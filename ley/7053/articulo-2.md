@@ -1,0 +1,2 @@
+Artículo 2º.- Adiciónase un párrafo al artículo 11 de la ley número 6839 del 5 de enero de 1983, que dirá así:
+"Las cooperativas de autogestión decidirán si contribuyen con los porcentajes de sus respectivos excedentes, según lo establece este artículo, o si destinan esos fondos según lo dispone el inciso a.4) del artículo 114 de la Ley de Asociaciones Cooperativas y Creación del Instituto Nacional de Fomento Cooperativo, número 4179 del 22 de agosto de 1968 y sus reformas."

@@ -1,1 +1,3 @@
-Artículo 58.- Los empleados y trabajadores de las cooperativas gozarán de facilidades especiales para ser admitidos en ellas como asociados regulares.
+Artículo 58.—Los empleados y trabajadores de las cooperativas gozarán de facilidades para su admisión en ellas como asociados regulares.
+Los asociados que no realicen labores remuneradas en la cooperativa y que sean elegidos en el consejo de administración, no podrán ocupar cargos como empleados de la cooperativa durante el período para el cual fueron elegidos, ni durante el año posterior a la cesación en sus funciones. Asimismo, ningún asociado que perciba remuneración como trabajador de la cooperativa podrá derivar privilegios especiales ni obtener ascensos en beneficio propio, por el hecho de haber sido elegido como miembro del consejo de administración.
+(Así reformado por el artículo 1 de la Ley N° 7053 del 9 de diciembre de 1986)
