@@ -1,0 +1,25 @@
+Artículo 7º.- Silencio positivo.
+Toda solicitud de inscripción, registro, autorización o aprobación
+presentada ante la Administración Pública, relacionada con el
+cumplimiento de trámites y requisitos necesarios para el acceso de bienes
+al mercado nacional o con regulaciones al comercio, debe ser resuelta por
+el órgano o ente correspondiente de la Administración Pública dentro de
+los ocho días hábiles. Dicho plazo se contará a partir de la presentación
+de la solicitud completa en cuanto al cumplimiento de sus formalidades
+esenciales, entendidas éstas como aquellas cuyo defecto u omisión sería
+causa de nulidad absoluta.
+Transcurrido el plazo sin que haya recaído resolución expresa, la
+gestión se entenderá aprobada. Para ejercitar los derechos que
+corresponda, bastará que el interesado exhiba la copia de su solicitud
+con una razón notarial que certifique que la misma fue presentada en
+forma completa y que la Administración no la resolvió en tiempo. Las
+oficinas públicas no podrán rechazar o desconocer la validez legal del
+derecho así acreditado.
+Si la aprobación tácita a que se refiere este artículo implicara
+vicios de nulidad relativa o absoluta, se deberá proceder conforme a lo
+dispuesto en la Ley General de la Administración Pública.
+Cuando los trámites, los requisitos o las regulaciones sean
+autorizados mediante silencio administrativo positivo, corresponderá a la
+CPC, como Comisión encargada de velar por el proceso de desregulación,
+ejercer las facultades previstas en el párrafo final del artículo 3 de la
+Ley.

@@ -1,0 +1,47 @@
+Artículo 55.- Registro de planes de venta a plazo
+Antes de su ofrecimiento público o generalizado, los planes de las
+ventas a plazo o prestación futura de servicios, en los términos y
+condiciones indicados en el artículo anterior, deben ser autorizados por
+el ACAC. Para este efecto, el interesado deberá aportar los siguientes
+atestados:
+a) Una descripción detallada de los bienes o servicios ofrecidos,
+los plazos de cumplimiento, la naturaleza, la extensión y los
+beneficios, según los bienes y servicios de que se trate, así
+como copia de los contratos tipo que se firmará con los
+consumidores. El ACAC podrá establecer el uso de formularios
+para este efecto.
+b) Indicación de los responsables del cumplimiento de lo ofrecido
+y lo pactado. En el caso de personas físicas, se deberá
+expresar sus calidades completas, incluyendo su domicilio
+preciso, y aportar copia de su cédula de identidad. Las
+personas jurídicas deberán acreditar fehacientemente su
+existencia y representación.
+c) Demostración de la solvencia económica de los responsables del
+plan, lo cual se podrá acreditar mediante informe de contador
+público autorizado. Para este efecto, no será necesario
+acreditar la solvencia previa de dichos responsables si de la
+documentación aportada (incluyendo estudios de factibilidad y
+otros) se acredite razonablemente que, durante la ejecución del
+plan, se logrará adquirir bienes u obtener niveles de
+financiamiento suficientes para crear una garantía o previsión
+(mediante fideicomiso u otra figura igualmente segura) que
+responda de la solvencia de los responsables y de su capacidad
+de indemnizar a los interesados en caso necesario.
+Si, a juicio del ACAC, no se acredita satisfactoriamente lo indicado
+en el párrafo anterior, se deberá rendir garantía o caución suficiente
+para responder del cumplimiento de lo pactado o de la adecuada reparación
+a los interesados.
+En su caso, los responsables del plan deberán comprobar
+oportunamente al ACAC que la garantía o previsión suficiente mencionada
+en el párrafo primero de este inciso, ha sido efectivamente constituida;
+si no lo hicieren, o lo hicieren de modo deficiente a criterio de ese
+despacho, el caso será trasladado inmediatamente a la CNC para que ésta
+aplique las medidas pertinentes, incluyendo la suspensión a que se
+refiere el artículo 50 inciso d) de la Ley, medida que se mantendrá hasta
+que sea subsanado el defecto.
+El ACAC deberá enviar una copia de los planes autorizados a la CNC.
+Las personas o las entidades que se dedican habitualmente a las
+actividades indicadas en este capítulo, podrán inscribirse, por una sola
+vez, ante el ACAC. En este caso, deben describir su giro y los planes de
+venta generales que ejecutan; además, cumplir con los restantes
+requisitos estipulados en este artículo.

@@ -1,0 +1,23 @@
+Artículo 66.- Conciliación
+Siempre que la denuncia verse sobre aspectos puramente
+patrimoniales, y antes del inicio formal del procedimiento, la Unidad
+Técnica deberá proceder a agotar las posibilidades de conciliación entre
+las partes. Para ello se procurará contactar a la otra parte
+inmediatamente después de recibida la denuncia, ya sea telefónicamente o
+mediante apersonamiento en su domicilio o establecimiento. En casos
+extraordinarios, las partes podrán realizar sus presentaciones por
+cualquier medio escrito, incluido el telefacsímil (fax).
+En la audiencia de conciliación, el funcionario de la Unidad Técnica
+debe procurar avenir a las partes proponiéndoles un arreglo y
+sugiriéndoles la conveniencia de él. De todo se dejará constancia
+mediante acta, firmada por el o los funcionarios de la Unidad Técnica.
+Cuando medie arreglo, deberán firmar también las partes. La ausencia de
+firma lo invalidará.
+En el mismo acto, el funcionario debe aprobar el arreglo, salvo
+cuando sea contrario a la ley. Este arreglo tendrá la misma eficacia de
+las resoluciones de la Comisión para Promover la Competencia y de la CNC,
+en los términos del artículo 61 de la Ley, pero sin recurso ulterior.
+Ninguno de los funcionarios de la Unidad Técnica que participe en
+las gestiones de conciliación será luego recusable como integrante del
+órgano director del procedimiento, por el sólo hecho de haber actuado en
+esta etapa.

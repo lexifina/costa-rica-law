@@ -1,0 +1,13 @@
+Artículo 5º.- Concordancia con leyes especiales y convenios
+internacionales.
+La revisión y eliminación de trámites y requisitos de regulación de
+las actividades económicas debe concordar con lo establecido en leyes
+especiales y convenios internacionales. Esto significa que no pueden ser
+objeto de eliminación por parte de la Administración Pública, los
+trámites y requisitos que se encuentren expresamente previstos en leyes
+especiales y convenios internacionales, salvo por instrumentos de ese
+mismo rango.
+Sin embargo, sí deben ser objeto de revisión y, en su caso, de
+eliminación. los trámites y requisitos establecidos mediante reglamentos
+u otros actos administrativos, aunque se funden en disposiciones
+generales contenidas en leyes especiales y convenios internacionales.

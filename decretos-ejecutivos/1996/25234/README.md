@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 25234
+
+Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor
+
+- Tipo: Decreto Ejecutivo
+- Número: 25234
+- Fecha: 1996-01-25
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 124 del 1996-07-01, Alcance 38
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=40187&param2=42351&param3=1 (ficha 40187)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1996-07-01 | la propia norma |
