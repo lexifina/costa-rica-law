@@ -14,3 +14,4 @@ Reforma Bosque Nacional Diriá (Actualmente " Refugio Nacional de Vida Silvestre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-03 | la propia norma |
+| 2 | 1994-04-07 | Decreto Ejecutivo 23126 (1994-04-07) |

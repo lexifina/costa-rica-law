@@ -26,3 +26,4 @@ N235.765 E 361.100
 N235.860 E 361.015
 N235.750 E 359.180
 éste último punto corresponde al punto de partida de la presente descripción.
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 23126 del 7 de abril de 1994, se cambia la categoría de manejo de Zona Protectora Bosque Nacional Diriá a la de "Refugio Nacional de Vida Silvestre Bosque Diriá, de propiedad mixta")
