@@ -1,0 +1,1 @@
+Artículo 8°—Si concluido el plazo otorgado, el patrono, el trabajador independiente o sus representantes se niegan a suministrar la información solicitada, la jefatura de sección o sucursal en los siguientes tres días, reiterará la prevención, otorgando tres días hábiles, contados a partir del día siguiente al de la fecha de notificación, para la entrega de ésta.

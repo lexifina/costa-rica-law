@@ -1,0 +1,2 @@
+Artículo 19.—El recurso se presentará por escrito ante el órgano que dictó la resolución. Bajo pena de inadmisibilidad, deberán ser fundamentados expresando las razones y aportando u ofreciendo las pruebas pertinentes.
+El escrito deberá señalar lugar y medio para recibir notificaciones en alzada, dentro del perímetro establecido en el artículo 14 de este reglamento, cuando el órgano superior esté ubicado en otro lugar.

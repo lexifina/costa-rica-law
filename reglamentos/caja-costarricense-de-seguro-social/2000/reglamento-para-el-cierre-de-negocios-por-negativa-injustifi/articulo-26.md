@@ -1,0 +1,2 @@
+Articulo 26.—Si en el establecimiento que se va a cerrar, se encuentran mercancías de fácil descomposición, se solicitará al patrono o asegurado o sus representantes que tas coloque en un lugar apropiado, para que no se dañen o deterioren. En caso de negativa, la perdida será atribuible al patrono asegurado o sus representantes.
+Si se encuentran animales vivos dentro del local, serán puestos a disposición del interesado.

@@ -1,0 +1,1 @@
+Articulo 21.—El recurso de apelación lo resolverá la Junta Directiva , dentro de un plazo de quince días hábiles contados a partir del recibo del expediente, o de que éste se tenga por completo, si hubiere que evacuar nueva prueba para mejor resolver, agotando la vía administrativa.

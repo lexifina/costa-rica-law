@@ -1,0 +1,6 @@
+CAPÍTULO V
+De la ejecución
+Articulo 22.—Una vez firme el acto administrativo, el funcionario ejecutor designado por la administración procederá al cierre del establecimiento, local o lugar donde se realiza la actividad. No se aplicará la medida, si la información requerida se entrega dentro de los cinco días siguientes a la notificación que ordena el cierre.
+El cierre se ejecutará exclusivamente donde se realiza la actividad del patrono o trabajador independiente, que se hizo acreedor a la sanción regulada en el artículo 2 del presente reglamento.
+De todo lo actuado se levantará un acta que deberá ser firmada por los ejecutores y el patrono o trabajador independiente o quien lo represente.
+Si estos se negaren a firmar o se retiraren sin hacerlo, se consignará en el acta esa circunstancia.

@@ -1,0 +1,3 @@
+Artículo 15.—Todo acto de procedimiento que afecte derechos con intereses del patrono o asegurado, deberá ser notificado a éste o su representante, en el tanto se haya señalado lugar o medio para oír notificaciones. Se consideran representantes del patrono su representante legal, y los contemplados en el artículo cinco del Código de Trabajo.
+La notificación contendrá el texto íntegro de la resolución y en los casos que corresponda, indicación de los recursos procedentes, del órgano que los resolverá, de aquél ante el cual deben interponerse y de los plazos para interponerlos.
+Debe entenderse que la notificación se tendrá por bien hecha con sólo uno de los destinatarios mencionados que la haya recibido en forma legal.

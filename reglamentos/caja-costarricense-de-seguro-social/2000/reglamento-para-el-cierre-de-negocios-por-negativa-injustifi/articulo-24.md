@@ -1,0 +1,1 @@
+Articulo 24.—La ejecución del cierre material podrá ser realizada a cualquier hora del día, como mejor convenga a los intereses de la Institución , pero de preferencia se efectuará en horas en que hubiere el menor número de personas dentro del establecimiento, local o centro donde se desarrolla la actividad.

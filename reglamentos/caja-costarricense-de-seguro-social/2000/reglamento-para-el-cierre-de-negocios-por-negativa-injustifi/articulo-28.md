@@ -1,0 +1,1 @@
+Artículo 28.—La orden de reapertura del negocio procederá de inmediato únicamente cuando se ha cumplido el plazo de la sanción y se hará efectiva por el funcionario ejecutor en un plazo máximo de 24 horas.

@@ -1,0 +1,1 @@
+Artículo 3°—En el caso de que exista la posibilidad para la administración de aplicar una sanción administrativa u ordenar el cierre de un negocio, optará por la aplicación de la sanción administrativa. La aplicación de estas sanciones es independiente del pago de intereses que se estipula en el artículo 49 de la Ley.

@@ -1,0 +1,1 @@
+Articulo 16.—En caso de notificación personal, servirá como prueba el acta firmada por la persona que la recibe y por el funcionario que notifica, o solo por éste último si aquél se negara a firmar, en cuyo caso se debe dejar constancia en el acta de notificación.

@@ -1,0 +1,2 @@
+Artículo 9°—Cuando en el transcurso de los 5 días otorgados en la primera prevención, se presente justificación formal por escrito para negarse a suministrar la información solicitada, la Jefatura de Sección o Sucursal valorará la justificación. Si procede rechazarla preparará un proyecto de resolución debidamente motivado en los siguientes cinco días al recibo de la justificación, y lo trasladará al Gerente para su valoración.
+De rechazar la justificación se instruirá al Jefe de Sección o Sucursal para que proceda a efectuar la segunda prevención según el artículo anterior.

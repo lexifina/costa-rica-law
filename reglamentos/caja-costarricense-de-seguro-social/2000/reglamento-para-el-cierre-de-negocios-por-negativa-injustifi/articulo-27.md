@@ -1,0 +1,1 @@
+Articulo 27.—El cierre podrá ordenarse por un periodo máximo de cinco días, prorrogable por otro igual cuando se mantengan los motivos por los que se dicto, previa resolución motivada al efecto, dictada por parte del Gerente, contra la que cabrán los recursos dé revocatoria y apelación establecidos en el articulo 18 de este reglamento.
