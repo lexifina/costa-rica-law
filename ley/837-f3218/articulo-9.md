@@ -12,5 +12,6 @@ d) Las remuneraciones o regalías que el contribuyente asigne para él, para su 
 e) El resultado neto de las inversiones de lujo y recreo personal, cuando dichas inversiones habitualmente produzcan pérdida;
 f) Los gastos vinculados con la adquisición y traspaso de bienes inmuebles, tales como los provenientes de escrituras y gastos causados en juicios sucesorios y otros, salvo en el caso de que esa adquisición o traspaso sea hecho a resultas de una operación mercantil de las contempladas en el artículo 7°;
 g) Los intereses pagados o acreditados a los padres e hijos, lo mismo que a los cónyuges, excepto cuando éstos estén separados legalmente; y
-h) Los montos superiores a tres mil colones correspondientes a primas de ahorro y capitalización, inclusive las indicadas en la ley N° 1644 de 26 de setiembre de 1953.
+h) Los montos superiores a ocho mil colones (¢ 8,000.00) correspondientes a primas de ahorro y capitalización, inclusive las indicadas en la ley Nº 1644 de 26 de setiembre de 1953, pagadas por personas jurídicas.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
 (Así reformado por el artículo 1° de la ley N° 1789 del 18 de setiembre de 1954)
