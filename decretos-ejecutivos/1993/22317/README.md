@@ -13,3 +13,4 @@ Movilidad Horizontal en Ministerios, Instituciones y Empresas Públicasserá aut
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-07-20 | la propia norma |
+| 2 | 1993-07-20 | SINALEVI (sin norma nombrada) |

@@ -2,8 +2,8 @@ Nº 22317-MP-H-MIDEPLAN
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE LA PRESIDENCIA, DE HACIENDA
 Y DE PLANIFICACION NACIONAL Y POLITICA ECONOMICA
-En ejercicio de las atribuciones que les confieren los incisos 3) y 18)
-del artículo 140 de la Constitución Política y
+En ejercicio de las atribuciones que les confieren los incisos 3) y
+18) del artículo 140 de la Constitución Política y
 Considerando:
 1º.- Que mediante el Decreto Ejecutivo Nº 21238-H se creó la
 Comisión de Coordinación de los Recursos Humanos en el Sector Público,
@@ -27,7 +27,7 @@ Instituciones y Empresas Públicas, a Instituciones cubiertas por el
 Régimen de Servicio Civil, deberá realizarse mediante Ley de Presupuesto
 y sus titulares deberán tener, por lo menos, dos años de servicio
 ininterrumpido al Estado.
-4º.- Sin excepción, no see autorizará la creación de plazas nuevas,
+4º.- Sin excepción, no se autorizará la creación de plazas nuevas,
 para sustituir las plazas trasladadas.
 5º.- Rige a partir de su publicación.
 Transitorio único: Las solicitudes de traslado entregadas antes de
