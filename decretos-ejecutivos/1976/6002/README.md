@@ -15,3 +15,4 @@ Crea el Centro de Investigación y Perfeccionamiento para el Profesorado de Educ
 | --- | --- | --- |
 | 1 | 1976-06-03 | la propia norma |
 | 2 | 1976-07-29 | Decreto Ejecutivo 6258 (1976-07-29) |
+| 3 | 1977-03-09 | Decreto Ejecutivo 6877 (1977-03-09) |

@@ -1,0 +1,2 @@
+Artículo 16.- El Ministerio de Educación Pública extenderá los títulos y certificados correspondientes (Profesorado, Certificado de Aptitud o de Idoneidad), que acrediten el nivel de formación o capacitación alcanzado por los estudiantes que cumplan con los requisitos establecidos por el Centro y debidamente aprobados por el Consejo superior.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 6877 del 9 de marzo de 1977)
