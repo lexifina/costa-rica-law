@@ -4,14 +4,14 @@ Artículo 3º.- Formarán la Asamblea General, todos los miembros del
 Colegio, la cual tendrá las siguientes atribuciones:
 a) Velar por el cumplimiento de los fines a que se refiere el artículo
 1º;
-b) Sancionar conforme a los términos del reglamento que para los efectos
-de esta ley se creará, a los colegiados que incumplan los deberes y
-obligaciones que se señalen;
+b) Sancionar conforme a los términos del reglamento que para los
+efectos de esta ley se creará, a los colegiados que incumplan los deberes
+y obligaciones que se señalen;
 c) Fijar las cuotas ordinarias y extraordinarias, y procurar cualquiera
 otra clase de ingreso que para el cumplimiento de sus fines, sea
 necesario;
-d) Elegir de su seno una Junta Directiva compuesta por un Presidente, un
-Secretario, un Tesorero, un Fiscal y tres Vocales. Los miembros de la
+d) Elegir de su seno una Junta Directiva compuesta por un Presidente,
+un Secretario, un Tesorero, un Fiscal y tres Vocales. Los miembros de la
 Junta Directiva durarán en sus cargos dos años y podrán ser reelectos,
 serán renovables cuatro un año y tres el siguiente;
 e) Resolver por un mínimo de dos terceras partes del total de los
