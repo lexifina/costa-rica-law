@@ -1,0 +1,1 @@
+Art 3°.- La Comandancia General hará que el Juez de la causa, dándola por suspensas, intime esta providencia a las personas que comprende, y dispondrá todo lo necesario para el cumplimiento de esta resolución.- Dado en la Ciudad de San José a los veintiocho días del mes de setiembre de mil ochocientos treinta y siete.
