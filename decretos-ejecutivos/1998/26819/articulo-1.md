@@ -1,0 +1,12 @@
+N°26819-MAG-H
+EL PRESIDENTE DE LA REPÚBLICA Y LOS MINISTROS DE AGRICULTURA Y GANADERÍA Y DE HACIENDA
+En uso de las facultades establecidas en los incisos 3) y 18} del artículo 140 de la Constitución Política;
+Considerando:
+1°—Que en "La Gaceta" No 173 del lunes 12 de setiembre de 1994, se publicó el Decreto Ejecutivo No 23609-MAG-H de 15 de julio de 1994, mediante el cual del producto del impuesto establecido por Ley No 5515 del 19 de abril de 1974, se destinaron $0.02 por caja de banano exportada para dejar un fondo a favor de los productores bananeros de la Zona Sur del Pacífico Sur.
+2°—Que los objetivos de dicho Fondo son los de garantizar el pago de los créditos que los Bancos del Sistema Bancario Nacional, después de la publicación de ese Decreto, hayan concedido o concedan a los productores beneficiarios y para hacer préstamos directamente a esos mismos productores.
+3°—Que de conformidad con el Decreto Ejecutivo No 23609 citado y sus reformas, el plazo de vigencia de dicho Decreto y retención y destino de los $0.02 por caja de banano exportada para la constitución del Fondo, se estableció en cuatro años contados a partir de la publicación del Decreto supracitado.
+4°—Que las circunstancias y necesidades que dieron origen a la emisión del Decreto indicado y la constitución del Fondo, se han mantenido, por lo que es congruente mantener y prorrogar la vigencia del plazo respecto de la retención y destino de los $0.02 por caja de banano exportada. Por tanto;
+Decretan:
+Artículo 1°—Refórmase el artículo 1° del Decreto Ejecutivo N° 23609-MAG-H del 15 de julio de 1994 y sus reformas para que en adelante se lea de la siguiente manera:
+"Artículo 1°—Del impuesto bananero establecido por la Ley No 5515 del 19 de abril de 1974, por el plazo de cinco años que se contará a partir de la publicación del presente Decreto, las compañías comercializadoras retendrán y girarán directamente a CORBANA dos centavos de dólar de los Estados Unidos (US$0,02) por caja que exporten. Estas sumas se destinarán, distribuirán y pagarán a los productores bananeros de la Zona del Pacífico Sur mediante un fondo Especial que será administrado por CORBANA.
+- CORBANA otorgará los créditos correspondientes a las Empresas Productoras beneficiarios, con garantía fiduciaria de los socios o asociados y en el entendido de que los recursos serán recuperables en tanto las empresas logren rehabilitarse y salir adelante".
