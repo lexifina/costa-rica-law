@@ -1,6 +1,5 @@
-Artículo 49.—Faltas graves:
-Se considerarán faltas graves entre otras las infracciones a los artículos 43, incisos d), i), j), o), r), s); 44, incisos d), e),g), y 45, incisos a), b), c, ch), d), e), f), g), h), i), j), k), 1), m), n), ñ), y o); que no constituyen falta leve, las cuales se computarán en un lapso de tres meses y se sancionarán en la siguiente forma:
+Artículo 49.—Faltas graves: Se considerarán faltas graves, entre otras, las infracciones a los artículos 43, incisos, d), i), j), o), r), s) y u), ; 44, incisos d), e),g), y 45, incisos a), b), c, ch), d), e), f), g), h), i), j), k), 1), m), n), ñ), y o); que no constituyen falta leve, las cuales se computarán en un lapso de tres meses y se sancionarán en la siguiente forma:
 a) Por una, con suspensión sin goce de sueldo por ocho días; y
 b) Por dos, con despido sin responsabilidad patronal.
 Las anteriores sanciones se aplicarán sin perjuicio de que si las faltas lo ameriten, se imponga una sanción mayor.
-(Así reformado mediante sesión 1951 celebrada el 25 de agosto de 1982)
+(Así reformado párrafo primero mediante sesión 2394 celebrada el 6 de abril de 1987)

@@ -17,3 +17,4 @@ Reglamento Autónomo de servicio del Instituto Nacional de Aprendizaje
 | 2 | 1982-08-25 | Reglamento 1951 (1982-08-25) |
 | 3 | 1985-07-31 | Reglamento 2226 (1985-07-31) |
 | 4 | 1986-11-03 | Reglamento 2351 (1986-11-03) |
+| 5 | 1987-04-06 | Reglamento 2394 (1987-04-06) |

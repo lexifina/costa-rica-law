@@ -27,3 +27,5 @@ r) Pagar inmediatamente, o bien suscribir un arreglo de pago por las indemnizaci
 s) Presentar dentro del término reglamentario las liquidaciones de adelantos de viáticos cuando se realicen giras; dentro de tres días hábiles cuando la gira haya sido postergada; y dentro de 24 horas cuando la gira haya sido cancelada; y
 t) Durante la jornada de trabajo portar en forma visible la identificación de funcionario;
 (Así refomado mediante sesión 1951 celebrada el 25 de agosto de 1982)
+u) Presentar la constancia de incapacidad al Jefe inmediato dentro de los dos días hábiles siguientes a la fecha en que surgió el impedimento para laborar.
+(Así ampliado con inciso u) mediante sesión 2394 celebrada el 6 de abri de 1987)
