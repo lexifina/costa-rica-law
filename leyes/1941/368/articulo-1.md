@@ -1,4 +1,6 @@
+(Derogado)
 N° 368
+(Esta norma fue derogada por el artículo 414 del Código Penal, ley N° 4573 del 4 de mayo de 1970)
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 DECRETA el siguiente
 CODIGO PENAL
