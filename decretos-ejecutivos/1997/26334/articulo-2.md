@@ -1,0 +1,1 @@
+2°-Cuando se compruebe que dichas personas se encuentran en el país, se les comunicará la cancelación del permiso de entrada y permanencia temporal, y se procederá a su deportación o a su expulsión según el caso con arreglos a los procedimientos establecidos por la ley.
