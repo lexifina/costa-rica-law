@@ -1,4 +1,4 @@
-Artículo 43.- Cuando el Presidente del Colegio tuviere informes de
+ARTICULO 43.- Cuando el Presidente del Colegio tuviere informes de
 que existe entre dos o más miembros del colegio un conflicto que pudiere
 originar un incidente personal, procederá a interponer sus buenos oficios
 para que la querella sea resuelta por un Tribunal de Honor. De igual

@@ -1,4 +1,4 @@
-Artículo 46.- Cuando se presente queja contra un miembro del Colegio
+ARTICULO 46.- Cuando se presente queja contra un miembro del Colegio
 por algún hecho que vaya en desdoro de la profesión por constituir delito
 o siquiera procedimiento torcido; por la irregularidad de su conducta
 moral o por vicios que lo hagan desmerecer en el concepto público y la

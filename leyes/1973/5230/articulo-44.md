@@ -1,4 +1,4 @@
-Artículo 44.- El tribunal a que se refiere al artículo anterior será
+ARTICULO 44.- El tribunal a que se refiere al artículo anterior será
 integrado por el Presidente o el Vicepresidente del Colegio, por el
 Secretario de la Directiva, quienes en ausencia serán sustituidos por los
 Vocales correspondientes y por dos Geólogos sorteados de la lista del

@@ -1,4 +1,4 @@
-Artículo 17.- Son atribuciones de la Asamblea General:
+ARTICULO 17.- Son atribuciones de la Asamblea General:
 a) Dictar los reglamentos necesarios para que el Colegio realice sus
 fines;
 b) Examinar y aprobar el presupuesto de gastos que presente la Junta

@@ -1,4 +1,4 @@
-Artículo 48.- La deliberación del Tribunal será secreta, pero dará
+ARTICULO 48.- La deliberación del Tribunal será secreta, pero dará
 audiencia a las partes cuando el caso lo requiera y la votación será
 también secreta. El fallo del Tribunal se mandará a publicar cuando así
 se acuerde expresamente.

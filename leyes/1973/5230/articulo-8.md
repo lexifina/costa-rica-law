@@ -1,4 +1,4 @@
-Artículo 8º.- Las actividades profesionales del Geólogo comprenden:
+ARTICULO 8º.- Las actividades profesionales del Geólogo comprenden:
 a) Estudios geoquímicos y petrográficos;
 b) Determinaciones mineralógicas;
 c) Prospección y evaluación de áreas mineralizadas, de yacimientos
