@@ -1,4 +1,5 @@
 (Derogado)
+(Este decreto fue derogado por el artículo 114 del decreto ejecutivo N° 13607 del 24 de abril de 1982)
 N° 9829
 EL PRESIDENTE DE LA REPUBLICA
 Y LA MINISTRA DE JUSTICIA,
