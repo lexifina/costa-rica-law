@@ -1,0 +1,5 @@
+Artículo 7º.- Además, los Alcaldes Penales y mixtos de las circunscripciones a que se refiere el artículo 6º, conocerán de los siguientes asuntos, de conformidad con el procedimiento establecido en el Código Procesal anterior y en las leyes especiales respectivas:
+a) De los hechos punibles previstos en los títulos I a VII inclusive, del Libro Segundo del Código Penal o en leyes especiales, cuando no sean de conocimiento de los Jueces Penales o del Tutelar de Menores y salvo los delitos cuyo juzgamiento esté encomendado por leyes especiales a otros tribunales o autoridades;
+b) De los delitos previstos en los artículos 305 y 306 del Código Penal y en el artículo 328 de ese Código, siempre que en este último no corresponda a los Jueces Penales conocer del hecho principal;
+c) De las faltas y delitos previstos en el artículo 469 del Código Fiscal; y
+d) Del delito de contrabando y de las defraudaciones previstas en la Ley de Defraudación Fiscal, o en leyes especiales, siempre que la cuantía de los derechos defraudados no exceda de cinco mil colones.

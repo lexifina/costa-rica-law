@@ -1,0 +1,1 @@
+Artículo 2º.- En todas las demás circunscripciones, y salvo disposición en contrario de la presente ley, los asuntos se tramitarán y resolverán de conformidad con lo estatuido en el anterior Código de Procedimientos Penales, cuya vigencia se restablece temporalmente para esos efectos, quedando así modificado el artículo 548 del nuevo Código.

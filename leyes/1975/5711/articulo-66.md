@@ -1,0 +1,1 @@
+Artículo 66.- Los principios establecidos en los tres artículos anteriores se aplicarán en todos los casos en que el nuevo sistema procesal se extienda a otros lugares o circunscripciones; y la Corte Plena dictará las normas prácticas para adaptar esos principios a las situaciones que se presenten.

@@ -1,0 +1,1 @@
+Artículo 17.- La excarcelación que concedan los Alcaldes actuando como Jueces Instructores, deberá consultarse al Juez de Instrucción, salvo cuando la pena aplicable exceda de seis años, en cuyo caso la consulta será al Tribunal Superior Penal respectivo.

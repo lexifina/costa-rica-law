@@ -1,0 +1,1 @@
+Artículo 9º.- Los asuntos pendientes de fallo y las diligencias de pensión alimenticia que se encuentren sin resolver o en etapa de ejecución de sentencia, que estuvieren conociendo los Delegados de la Guardia de Asistencia Rural, pasarán a conocimiento de los Alcaldes de la jurisdicción, a partir de la vigencia de la presente ley.

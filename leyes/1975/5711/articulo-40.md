@@ -1,0 +1,1 @@
+Artículo 40.- El recurso de casación deberá interponerse ante el tribunal que alude el artículo 477 del nuevo Código de Procedimientos Penales; o bien, ante la Sala Penal que deba conocer de él, si se tratare de recursos que se rigen por el Código anterior.

@@ -1,0 +1,1 @@
+Artículo 61.- Los recursos de casación y revisión en materia penal que se encuentren pendientes en la Sala de Casación de la Corte, pasarán a conocimiento de las Salas Penales a partir de la vigencia de la presente ley, de acuerdo con las reglas que dicte la Corte Plena para distribuir el trabajo entre esas Salas Penales.

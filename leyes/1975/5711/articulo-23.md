@@ -1,0 +1,1 @@
+Artículo 23.- El juicio ante el Juez Penal se ajustará a los artículos 415 a 422 del Código de Procedimientos Penales, excepto si se tratare de delitos de acción privada, en que se seguirá el procedimiento de los artículos 428 a 446.

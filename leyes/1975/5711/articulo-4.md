@@ -1,0 +1,3 @@
+CAPÍTULO II
+De los Alcaldes
+Artículo 4º.- Podrá haber en los cantones el número de Alcaldes que sea necesario, para que ejerzan su jurisdicción en la totalidad del territorio cantonal o en uno o más distritos; o, al mismo tiempo, en el territorio de cantones vecinos o de alguno o algunos de sus distritos, si en esos cantones no se hubieren creado Alcaldías, o si, habiéndolas, fuese más conveniente, para un mejor servicio público, que asuntos de determinados lugares se atribuyan a Alcaldías de cantones cercanos; todo de acuerdo con la regulación que haga la Corte Plena para distribuir el trabajo entre esas oficinas.
