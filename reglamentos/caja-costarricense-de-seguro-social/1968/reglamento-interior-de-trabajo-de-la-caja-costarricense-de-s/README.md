@@ -14,3 +14,4 @@ Reglamento Interior de Trabajo de la Caja Costarricense de Seguro Social.
 | --- | --- | --- |
 | 1 | 1968-11-25 | la propia norma |
 | 2 | 2003-06-26 | Reglamento 7767 (2003-06-26) |
+| 3 | 2003-08-28 | Reglamento 7785 (2003-08-28) |
