@@ -1,0 +1,1 @@
+Art 4°.- Así mismo se destinarán al fondo dos reales que se cobrarán por cada mil de caña blanca que se coceche, dos reales por cada tercio de cacao, del Pais y quatro reales por el quintal de fierro en pasta, quatro por el de fierro labrado, quatro por el de asero, y un real por el de algodón, exepto el de el paiz que se expenda en aquella plaza.
