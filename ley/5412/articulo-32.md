@@ -1,4 +1,1 @@
-Artículo 32.- Corresponderá a la División Administrativa recomendar
-las normas técnicas; establecer y mantener sistemas para una adecuada y
-eficiente administración, que garantice el apoyo eficaz a las actividades
-técnicas del Ministerio y velar por su correcta ejecución.
+Artículo 32.- (Derogado por el artículo 4 de la Ley No. 7927 de 12 de octubre de 1999).

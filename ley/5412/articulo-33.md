@@ -1,3 +1,1 @@
-Artículo 33.- Corresponderá a la División de Regiones Programáticas
-la ejecución, supervisión y evaluación de los programas, normas y
-procedimientos dictados por el Ministerio.
+Artículo 33.- (Derogado por el artículo 4 de la Ley No. 7927 de 12 de octubre de 1999).
