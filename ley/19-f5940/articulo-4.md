@@ -1,0 +1,1 @@
+Art. 4. Se comisiona á los señores Pedro Iglesias y Francisco Gutiérrez, para que reconozcan los terrenos, abran la campaña y distribuyan los solares y tierras de labor y pastos. Las calles se alinearán de dieziseis varas de ancho en toda su extensión, y los caminos se dejarán de treinta varas.
