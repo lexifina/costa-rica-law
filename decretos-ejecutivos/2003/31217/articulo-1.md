@@ -1,0 +1,13 @@
+Nº 31217-G-H
+EL PRESIDENTE DE LA REPÚBLICA EL MINISTRO DE GOBERNACIÓN Y POLÍCIA, Y SEGURIDAD PÚBLICA Y EL MINISTRO DE HACIENDA
+En ejercicio de las facultades establecidas en los artículos 9, 140 incisos 3), 18) y 20), y 146 de la Constitución Política; artículos 4º, 5º inciso 1) y 11 de 1a Ley General de 1a Administración Pública Nº 6227, del 2 de mayo de 1978, y la Ley Nº 7138, del 24 de noviembre de 1989.
+Considerando:
+1º—Que e1 artículo 60 de la Ley Nº 7138 del 24 de noviembre de 1989, establece la potestad del Poder Ejecutivo de remunerar las dietas de los miembros de las juntas directivas de las instituciones autónomas y demás juntas directivas nombradas por el Poder Ejecutivo, cuyo monto debe ser aumentado anualmente, de conformidad con el índice de inflación que determina e1 Banco Central de Costa Rica.
+2º—Que jurídicamente es posible integrar y armonizar la misma ley para establecerla como parámetro con el objeto de fijar el monto de las dietas que les corresponde devengar a los miembros del Consejo Nacional de Migración.
+3º—Que los miembros del Consejo Nacional de Migración designados por el Poder Ejecutivo, cumplen una función de interés público para el mejoramiento de las políticas migratorias del país.
+4º—Que mediante Decreto Ejecutivo Nº 30914-G, de las diez horas del treinta de octubre del dos mil dos, se estableció el monto de las dietas por sesiones ordinarias y extraordinarias para el año dos mil dos, en la suma de diecisiete mil doscientos cuarenta y cuatro colones ochenta y siete céntimos (¢17.244,87).
+5º—Que por principio de legalidad, al haberse establecido en el Decreto Ejecutivo Nº 30914-G una limitación temporal para reconocer el pago de dietas únicamente durante el año dos mil dos, ha resultado imposible reconocer el pago de las dietas devengadas por los miembros del Consejo Nacional de Migración a partir del primero de enero del dos mil tres, por no existir un decreto ejecutivo que expresamente lo autorice.
+6º—Que el pago de las dietas está sujeto al presupuesto de cada institución y a la asistencia a las correspondientes sesiones, según lo establece el artículo 6º del Reglamento a la Ley General de Migración y Extranjería, Decreto Ejecutivo Nº 19010-G, del 11 de mayo de 1989. Por tanto,
+Decretan:
+Artículo 1º—Se modifica el artículo 1° del Decreto Ejecutivo Nº 30914-G, de las diez horas del treinta de octubre del dos mil dos, para que en adelante se lea como sigue:
+"Artículo 1º—Se fijan las dietas que devengarán los miembros del Consejo Nacional de Migración por las sesiones ordinarias y extraordinarias, en la suma de diecisiete mil doscientos cuarenta y cuatro colones ochenta y siete céntimos (¢17.244,87)".
