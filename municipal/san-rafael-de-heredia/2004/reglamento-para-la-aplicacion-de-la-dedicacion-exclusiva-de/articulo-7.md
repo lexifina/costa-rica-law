@@ -1,0 +1,1 @@
+Artículo 7º—El contrato debe ser tramitado en original para el Municipio y cuatro copias: una para el Departamento de Recursos Humanos, la Auditoría Interna, el expediente del funcionario y una para el empleado municipal.

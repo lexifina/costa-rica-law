@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la aplicación
+Artículo 4º—En virtud de la profesionalización de la Institución y a efecto de obtener el mejor rendimiento de los profesionales con que el Municipio cuenta y contratará para el desempeño de los puestos, donde el requisito legal es poseer un grado académico profesional, se acuerda establecer el Incentivo denominado: DEDICACIÓN EXCLUSIVA, bajo el 55%, porcentaje de Ley sobre el salario base del puesto, para aquellos casos en donde el Manual Descriptivo de Puestos lo exija y posea el grado de "Licenciado". Para los efectos deberá firmarse un contrato, para los funcionarios que actualmente laboren en la Municipalidad, tienen la alternativa de acogerse o no a este beneficio.

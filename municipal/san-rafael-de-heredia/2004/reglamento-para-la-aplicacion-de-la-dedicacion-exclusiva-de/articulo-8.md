@@ -1,0 +1,1 @@
+Artículo 8º—Una vez firmado el contrato, el trabajador no podrá ejercer la profesión comprometida con dicha exclusividad, ni actividades relacionadas con ésta o con su cargo, si no es con su Patrono, la Municipalidad de San Rafael de Heredia.
