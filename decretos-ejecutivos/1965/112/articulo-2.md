@@ -1,3 +1,0 @@
-CAPITULO II
-De la Organización del Comité
-Artículo 2°-El Comité Arancelario estará integrado por cinco miembros propietarios y sus correspondientes suplentes, de nombramiento del Ministerio de Hacienda, entre los cuales habrá necesariamente un representante de la Dirección General de Hacienda, uno de la Dirección General de Integración Económica y uno de la Dirección General de Aduanas. También habrá un representante propietario y suplente por el Banco Central de Costa Rica y otro por las Cámaras de Industria, Comercio y Agricultura. Cuando por cualquier motivo no puede asistir el propietario, será reemplazado por su suplente.

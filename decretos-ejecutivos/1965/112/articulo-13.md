@@ -1,1 +1,0 @@
-Artículo 13. - Los miembros del Comité, propietarios o los suplentes cuando actúan en vez de aquéllos, devengarán por sesión dietas de cien colones. Serán remuneradas todas las sesiones ordinarias y únicamente dos sesiones extraordinarias al mes. La partida para su pago deberá ser incluida en el Presupuesto Ordinario de cada ejercicio fiscal.
