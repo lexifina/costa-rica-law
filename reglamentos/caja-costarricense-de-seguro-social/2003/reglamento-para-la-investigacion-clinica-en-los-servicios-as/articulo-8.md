@@ -7,3 +7,5 @@ d) Estos conocimientos no pueden ser obtenidos de otro modo.
 e) El consentimiento informado deberá obtenerse de conformidad con este Reglamento.
 f) Las investigaciones cuyo objetivo es proporcionar un beneficio terapéutico, deben ser al menos tan ventajosas para el sujeto como cualquier otra alternativa existente.
 g) Sólo se podrán realizar investigaciones en mujeres gestantes o en período de lactancia, cuando se determine que no supone un riesgo previsible para su salud o dignidad, ni para la del feto o niño y que se obtendrán conocimientos útiles y relevantes sobre el embarazo o la lactancia.
+h). No se realizarán investigaciones no terapéuticas en menores e incapaces.
+(Asídicionado el inciso anterior , mediante el inciso 2° del artículo 9° de la sesión de la Junta Directiva de la Caja Costarricense de Seguro Social, No. 7927 del 27 de enero del 2005.)
