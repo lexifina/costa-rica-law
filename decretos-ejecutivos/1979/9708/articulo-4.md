@@ -1,0 +1,2 @@
+Artículo 4°— La Comisión Nacional de Energía deberá celebrar sesiones ordinarias al menos una vez por mes y extraordinarias cuando la convoque su presidente. El quórum lo formarán tres miembros y las decisiones se tomarán por mayoría absoluta. Su Presidente tendrá la representación legal de la Comisión. Sus miembros no devengarán remuneración alguna por su asistencia a sesiones.
+Dado en la Casa Presidencial.— San José. a los ocho días del mes de marzo de mil novecientos setenta y nueve.
