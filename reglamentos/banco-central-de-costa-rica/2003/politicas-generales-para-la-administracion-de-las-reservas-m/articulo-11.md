@@ -1,0 +1,1 @@
+Artículo 11.—Composición por monedas. Las reservas monetarias internacionales del Banco Central de Costa Rica se invertirán en activos denominados en dólares de los Estados Unidos o bien en otras divisas internacionales. La exposición en monedas diferentes al dólar de los Estados Unidos deberá ser contrarrestada mediante la adquisición de instrumentos de cobertura.

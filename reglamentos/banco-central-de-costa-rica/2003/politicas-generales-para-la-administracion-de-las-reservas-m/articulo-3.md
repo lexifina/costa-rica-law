@@ -1,0 +1,1 @@
+Artículo 3°—Responsabilidades de la Junta Directiva. La Junta Directiva del Banco Central de Costa Rica evaluará periódicamente la gestión de reservas y las metas de desempeño establecidas, de acuerdo con lo consignado en estas normas.

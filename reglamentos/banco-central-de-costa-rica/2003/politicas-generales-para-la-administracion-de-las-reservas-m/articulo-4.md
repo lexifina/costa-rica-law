@@ -1,0 +1,1 @@
+Artículo 4°—Control de las políticas. La Auditoría Interna es responsable de ejercer el control y la supervisión sobre la custodia, la administración y la ejecución de las políticas de inversión de las Reservas Monetarias Internacionales. Al menos una vez cada año presentara a la Junta Directiva del Banco Central un informe sobre la labor realizada.

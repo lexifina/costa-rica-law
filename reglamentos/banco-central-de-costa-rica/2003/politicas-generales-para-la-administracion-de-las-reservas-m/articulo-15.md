@@ -1,0 +1,1 @@
+Artículo 15.—Montos máximos. Corresponderá al Comité de Reservas definir los montos máximos que podrán ser invertidos en los diferentes instrumentos y entidades, de conformidad con los parámetros de riesgo indicados en el presente reglamento.
