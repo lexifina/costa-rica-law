@@ -1,0 +1,4 @@
+Transitorio I.-El cálculo del impuesto a liquidar para el período 1953-54, se hará de la siguiente manera:
+a) Con base en la renta líquida gravable del período se calculará el impuesto que debería ser pagado, como si hubiera estado vigente todo el articulado de la ley N° 837 de 20 de diciembre de 1946 y todas sus reformas, sin considerar la presente reforma, durante todo el período;
+b) Con base en la renta líquida gravable del período, tomando en cuenta las deducciones mayores que la presente ley autoriza, se calculará el impuesto que debería haber pagado si hubiera estado vigente esta ley durante todo el período; y
+c) El impuesto que deberá liquidar el contribuyente será el que resulte de sumar un setenta y cinco por ciento (75 %) de la cantidad que se obtenga mediante el procedimiento señalado en a), más un veinticinco por ciento (25 %) del determinado, según b ).

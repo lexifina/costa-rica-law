@@ -1,0 +1,2 @@
+TITULO II
+Artículo 2°-Esta leyes de orden público y rige a partir del 1° de julio de 1954. En consecuencia, todos los derechos, obligaciones, situaciones y declaraciones correspondientes hasta el período 1952-53, deberán ser acatados y cumplidos de conformidad con las leyes que le dieron nacimiento; pero en los procedimientos para el cobro y procedimientos compulsivos al efecto, se estará a los trámites señalados en esta ley.
