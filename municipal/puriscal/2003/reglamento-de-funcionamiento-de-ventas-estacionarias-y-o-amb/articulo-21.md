@@ -1,0 +1,1 @@
+Artículo 21.—En caso de extinción de una licencia, la Municipalidad procederá a la adjudicación de la misma entre las solicitudes pendientes atendiendo el orden de presentación y situación socioeconómica.

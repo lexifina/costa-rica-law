@@ -1,0 +1,1 @@
+Artículo 25.—El no pago del impuesto de patentes en los términos fijados en la ley y este Reglamento, generará multas señaladas por el Código Municipal artículo 69 y el artículo 57 del Código de Normas y Procedimientos Tributarios, por cada mes o fracción de atraso.

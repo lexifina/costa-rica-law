@@ -1,0 +1,1 @@
+Artículo 24.—Contra las resoluciones de la municipalidad que ordene la caducidad de la licencia por falta de pago, no cabrá recurso alguno y su tramitación no admitirá prueba en contrario, salvo la excepción de pago. Las demás resoluciones se regirán por lo que dispone el artículo 154 del Código Municipal.
