@@ -1,4 +1,3 @@
-Artículo 25.- En ningún caso podrá cambiarse la naturaleza del trabajo
-de exploración por el de explotación, sin obtenerse previamente una
-concesión de explotación. La contravención a esta norma implicará la
-sanción a que se refiere el artículo 3º de este Código.
+Artículo 25.- En ningún caso podrá cambiarse la naturaleza del trabajo de exploración por el de explotación, sin obtenerse previamente una concesión de explotación. La contravención a esta norma implicará la sanción a que se refiere el artículo 3º de este Código.
+Para el otorgamiento de permisos de exploración y concesiones de explotación minera en áreas de aptitud agrícola, se requerirá de previo el visto bueno del Ministerio de Agricultura y Ganadería, que podrá oponerse al otorgamiento del permiso o la concesión, cuando se pierda la capacidad productiva del recurso suelo. Dicha oposición conllevará el archivo del expediente, sin más recurso que el de revisión.
+(Así adicionado su párrafo final por el artículo 66 de la Ley N° 7779 de 30 de abril de 1998,“Uso, Manejo y Conservación de Suelos”)
