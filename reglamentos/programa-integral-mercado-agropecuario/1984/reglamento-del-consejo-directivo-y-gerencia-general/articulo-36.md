@@ -20,6 +20,8 @@ o) Establecer los procedimientos y sistemas de control interno administrativo y 
 p) Integrar los comités y comisiones que considere oportunos y necesarios para el funcionamiento de la Institución.
 q) Facilitar las labores del Auditor y del Secretario del Consejo Directivo; y comunicar a este órgano las anomalías que cometan esos funcionarios en el ejercicio de sus obligaciones.
 r) Presentar al Consejo Directivo un informe anual de actividades conforme con el artículo 6°, inciso p) de este reglamento.
-s) DEROGADO por la Sesión Ordinaria N° 688 de 28 de mayo de 1986, publicada en La Colección de Leyes y Decretos de 1986, II Semestre, Tomos II y III, p. 52.)
-t) Ejecutar las demás funciones que le asigne el Consejo Directivo, las leyes y reglamentos.
+s) Autorizar, aprobar y ejecutar los arreglos de pago producto de los contratos de uso de acuerdo a la reglamentación vigente para cada caso.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el Consejo Directivo del Programa Integral de Mercadeo Agropecuario (PIMA), publicado en La Gaceta N° 183 de 24 de setiembre de 2003.)
+t) Ejecutar las demás funciones que le asigne el Consejo Directivo, Leyes y Reglamentos.
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 638 de 28 de noviembre de 1985, publicada en La Gaceta N° 58 de 25 de marzo de 1986, los incisos s) y t) del presente artículo.)
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el Consejo Directivo del Programa Integral de Mercadeo Agropecuario (PIMA), publicado en La Gaceta N° 183 de 24 de setiembre de 2003.)
