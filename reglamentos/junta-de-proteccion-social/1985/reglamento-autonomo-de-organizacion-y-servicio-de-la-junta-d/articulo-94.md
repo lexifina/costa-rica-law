@@ -1,0 +1,1 @@
+Artículo 94.—Los servidores de las oficinas centrales y los del Cementerio General gozarán de dos horas diarias para la asistencia médica (Caja Costarricense de Seguro Social) y los servidores del Cementerio Metropolitano y Finca Las Pavas tendrán tres horas.

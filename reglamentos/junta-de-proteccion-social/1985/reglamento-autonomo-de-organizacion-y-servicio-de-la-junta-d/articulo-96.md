@@ -1,0 +1,1 @@
+Artículo 96.—El presente Reglamento no perjudica los derechos jurídicos adquiridos por los servidores y, una vez aprobados, entrará en vigencia a partir de su publicación en el Diario Oficial “La Gaceta”.

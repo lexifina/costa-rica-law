@@ -1,0 +1,1 @@
+Artículo 57.—La llegada tardía de quince minutos y que a juicio del jefe superior inmediato carezca de justificación, acarreará al servidor la pérdida de la fracción de jornada, para efectos de rebajo de salario.
