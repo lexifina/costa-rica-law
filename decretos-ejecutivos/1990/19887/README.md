@@ -14,3 +14,4 @@ Reglamento de Eliminación de toda Plaza Vacante, así como las que adquieran es
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-09-05 | la propia norma |
+| 2 | 1990-11-07 | Decreto Ejecutivo 20100 (1990-11-07) |
