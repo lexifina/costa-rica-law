@@ -20,3 +20,4 @@ Reglamento del Consejo Superior de Educación
 | 5 | 1992-11-24 | SINALEVI (sin norma nombrada) |
 | 6 | 1994-04-27 | Decreto Ejecutivo 23257 (1994-04-27) |
 | 7 | 1999-04-19 | Decreto Ejecutivo 27899 (1999-04-19) |
+| 8 | 2001-10-24 | Decreto Ejecutivo 29942 (2001-10-24) |
