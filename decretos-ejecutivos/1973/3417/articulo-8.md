@@ -1,0 +1,1 @@
+Artículo 8°—La Dirección General Forestal conjuntamente con los otros dos Institutos indicados en el articulo anterior podrá levantar instalaciones o efectuar trabajos para fines turísticos o para proteger los recursos hidrológicos de la Reserva Forestal establecida.
