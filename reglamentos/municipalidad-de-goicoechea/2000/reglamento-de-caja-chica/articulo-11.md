@@ -1,0 +1,1 @@
+Artículo 11.—Si resultare una diferencia luego de realizado el arqueo, ésta debe ser justificada por el responsable del fondo de caja chica, quien en forma inmediata debe depositar el sobrante o reintegrar el faltante.

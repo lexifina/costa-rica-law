@@ -1,0 +1,1 @@
+Artículo 9°—El fraccionamiento del pago de una compra para tramitarlo por caja chica, así como cualquier otra infracción al presente reglamento será motivo de sanción conforme a las disposiciones contenidas en el Reglamento de Organización y Servicio de la Municipalidad y leyes conexas.
