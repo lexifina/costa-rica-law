@@ -1,0 +1,1 @@
+Artículo 2º.- Dentro de esta adición regirán las prohibiciones y disposiciones que establecen las Leyes Nº 6900 de 28 de octubre de 1983, Nº 6084 de 24 de agosto de 1977 y Nº 7174 de 28 de junio de 1990.
