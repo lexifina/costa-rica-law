@@ -31,3 +31,5 @@ maquinaria y equipo y la continuidad de su operación.
 4) En caso de aumento de productividad o de la capacidad productiva,
 además de los puntos anteriores, indicación de las
 características técnicas del equipo que se adiciona.
+( NOTA: Tácitamente derogado por el artículo 36 de la Ley Nº 7293 de
+31 de marzo de 1992)

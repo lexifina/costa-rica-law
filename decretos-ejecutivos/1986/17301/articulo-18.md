@@ -10,3 +10,5 @@ tal efecto la Autoridad Administrativa informará los permisos concedidos
 a más tardar 8 días hábiles después de comunicarlo al interesado.
 De no cumplir las disposiciones de este artículo, se aplicarán las
 sanciones establecidas en el artículo 69 de este Reglamento.
+( NOTA: Tácitamente derogado por el artículo 36 de la Ley Nº 7293 de
+31 de marzo de 1992)

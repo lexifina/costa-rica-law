@@ -13,3 +13,4 @@ Reglamento Ley de Incentivos para Producción Industrial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-11-28 | la propia norma |
+| 2 | 1986-11-28 | SINALEVI (sin norma nombrada) |

@@ -1,4 +1,4 @@
-Artículo 44.- Decreto de calificación: Los Decrretos queemita el
+Artículo 44.- Decreto de calificación: Los Decrretos que emita el
 Poder Ejecutivo, para otorgar los incentivos a una unidad productiva,
 deberán contener como mínimo:
 1) Como encabezamiento la frase "Decreto Ejecutivo número ..."
@@ -15,7 +15,12 @@ derecho de la solicitud y de la calificación;
 5) En el por tanto, su decisión;
 6) En la parte resolutiva, cuando se califica una unidad
 productiva:
-i) Los incentivos que se le otorguen a la unidad productiva;
+i) Los incentivos que se otorguen a la unidad productiva,
+indicando que solo podrán aplicarse si la unidad
+productiva obtiene la calificación en relación con los
+aspectos ambientales y de urbanismo.
+( Así reformado por el artículo 1º del Decreto Nº 19588 de 4 de
+abril de 1990)
 ii) Enumeración de los productos específicos que fabricará la
 unidad productiva, con indicación de su naturaleza;
 iii) El plazo máximo en que la unidad productiva deberá dar

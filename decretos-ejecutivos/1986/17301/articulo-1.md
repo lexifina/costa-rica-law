@@ -9,6 +9,12 @@ DECRETAN:
 El siguiente
 Reglamento a la Ley de Incentivos
 para la Producción Industrial
+NOTA: En vista de la derogación que de las exoneraciones contenidas en el
+artículo 7º de la Ley aquí reglamentada, Nº 7017-A de 16 de diciembre de
+1985, se hizo a través de los artículos 1º y 36 de la Nº 7293 de 31 de
+marzo de 1992, ver las Observaciones a este Reglamento y el Decreto
+Ejecutivo Nº 21443(*) de 13 de julio de 1992.
+(*) Anulado por la Sala Constitucional mediante Resolución Nº 2381-96.
 CAPITULO I
 Disposiciones generales
 Artículo 1º.- Del objetivo: El presente instrumento tiene por

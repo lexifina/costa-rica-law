@@ -1,6 +1,9 @@
-Artículo 75.- Con la finalidad de que las entidades públicas puedan
-contar con la información necesaria para dar fiel cumplimiento a la
-preferencia de productos manufacturados por la industria nacional, al
-momento de efectuar sus compras, según lo estipula el artículo 12 de la
-Ley, la SEPSI mantendrá a su disposición la documentación informativa
-necesaria.
+Artículo 75.-Las empresas que ofrezcan sus productos al Gobierno de
+la República, las instituciones autónomas, las semiautónomas, las
+municipalidades o cualesquiera otras entidades oficiales, según la
+protección otorgada por el artículo 12 de la ley, para ser tomadas en
+cuenta, únicamente requieren certificar que sus productos son
+manufacturados por la industria nacional. Certificación que extenderá la
+Dirección General de Industrias.
+( Así reformado por el artículo 1º del Decreto Nº 19009 de 22 de
+mayo de 1989)

@@ -9,3 +9,5 @@ Administrativa y deberá estar acorde con los campos que se enumeran y las
 condiciones que especifica en el artículo 7º, numeral 5, inciso b) de la
 ley, siempre y cuando éstas conlleven a mejorar la productividad o
 capacidad productiva del sector.
+( NOTA: Tácitamente derogado por el artículo 36 de la Ley Nº 7293 de
+31 de marzo de 1992)

@@ -13,3 +13,5 @@ No podrá deducirse por este concepto las compras que se hagan de
 acciones nominativas emitidas porla propia sociedad que pretende el
 crédito ni las compras hechas recíprocamente o en cadena, con el solo
 propósito de evadir el pago del impuesto.
+( NOTA: Tácitamente derogado por el artículo 36 de la Ley Nº 7293 de
+31 de marzo de 1992)

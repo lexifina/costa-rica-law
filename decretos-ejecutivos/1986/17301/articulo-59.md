@@ -9,3 +9,8 @@ parámetros, a la luz de su evolución efectiva.
 Para estos efectos, la Autoridad Administrativa mantendrá
 actualizados los datos y estadísticas necesarias sobre el sector
 productivo.
+( NOTA: El artículo 5º del Decreto Ejecutivo Nº 21443(*) de 13 de
+julio de 1992, mantiene vigentes los parámetros de calificación
+establecidos en los Anexos II y III del presente Reglamento)
+(*) Anulado por la Sala Constitucional mediante Resolución Nº
+2381-96.

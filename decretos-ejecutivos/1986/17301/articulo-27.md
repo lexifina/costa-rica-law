@@ -12,3 +12,5 @@ Hacienda y un representante del sector Industrial Privado que será electo
 por la Autoridad Administrativa de una terna que presentará la Cámara de
 Industrias de Costa Rica. Dicho Comité tendrá como función primordial
 establecer el procedimiento, mediante el cual administrará ese fondo.
+( NOTA: Tácitamente derogado por el artículo 36 de la Ley Nº 7293 de
+31 de marzo de 1992)

@@ -1,7 +1,7 @@
 Artículo 12.- De la depreciación acelerada de bienes: Las unidades
 productivas que adquieran a partir de su calificación bienes de capital
 de producción nacional que tengan al menos un 30% de contenido nacional
-podrán aplicar a dichos activos el sistema de depreciación acelebrada de
+podrán aplicar a dichos activos el sistema de depreciación acelerada de
 la siguiente forma:
 a) Por activos cuya vida útil estimada, según tabla anexa al
 Reglamento del Impuesto sobre la Renta, sea mayor de 10 años,
@@ -16,3 +16,5 @@ Para estos efectos deberá presentarse solicitud ante la
 Autoridad Administrativa, quien corroborará el cumplimiento de
 los porcentajes y enviará su recomendación a la Dirección
 General de la Tributación Directa del Ministerio de Hacienda.
+( NOTA: Tácitamente derogado por el artículo 1º de la Ley Nº 7293 de
+31 de marzo de 1992)

@@ -24,8 +24,11 @@ durante los primeros cinco años y estimación del
 consumo de dichas materias primas en el mismo período,
 indicando el proveedor y origen (nacional,
 centroamericano y resto del mundo).
-1.6 Precalificación de la unidad productiva en relación con
+1.6.-Constancia de la solicitud presentada al INVU para la
+calificación de la unidad productiva en relación con
 los aspectos ambientales y de urbanismo.
+( Así reformado por el artículo 1º del Decreto Nº 19588 de 4 de
+abril de 1990)
 1.7 Original y tres copias de un estudio técnico-económico
 elaborado y firmado por un profesional competente en la
 materia e incorporado al colegio profesional
@@ -46,12 +49,17 @@ productiva durante los primeros cinco años; consumo
 actual y estimación del consumo de dichas materias
 primas en el mismo período, indicando el proveedor y
 origen (nacional, centroamericano y resto del mundo).
-2.6 Calificación de la unidad productiva en relación con
+2.6.-Constancia de la solicitud presentada al INVU para la
+calificación de la unidad productiva en relación con
 los aspectos ambientales y de urbanismo.
-2.7 Copia de los Estados de resultados, balance de
-situación, los desgloses necesarios y el flujo de caja
-del último período fiscal debidamente autenticado por
-un Contador Publico Autorizado.
+( Así reformado por el artículo 1º del Decreto Nº 19588 de 4 de
+abril de 1990)
+2.7.-Copia de los estados de resultados, balance de
+situación, los desgloses necesarios del último período
+fiscal debidamente certificado por un contador público
+autorizado.
+( Así reformado por el artículo 1º del Decreto Nº 19588 de 4 de
+abril de 1990)
 2.8 En caso de ampliación de la unidad productiva, aportar
 en original y tres copias un estudio técnico-económico
 de acuerdo con lo especificado en el punto 1.7 que

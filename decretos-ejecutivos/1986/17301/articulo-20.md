@@ -15,3 +15,5 @@ características más importantes: monto invertido, ubicación, etc.
 Para la aplicación del crédito correspondiente, la unidad productiva
 deberá adjuntar a la respectiva declaración del Impuesto sobre la Renta,
 un detalle del cálculo del subsidio.
+( NOTA: Tácitamente derogado por el artículo 36 de la Ley Nº 7293 de
+31 de marzo de 1992)

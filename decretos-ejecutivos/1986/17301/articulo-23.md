@@ -14,3 +14,5 @@ presentación ante la Autoridad Administrativa para su análisis, de un
 estudio detallado del proyecto. En estos casos deberá contarse, además
 con una recomendación de la Dirección Sectorial de Energía de la
 Autoridad Administrativa, en los campos de su competencia.
+( NOTA: Tácitamente derogado por el artículo 36 de la Ley Nº 7293 de
+31 de marzo de 1992)
