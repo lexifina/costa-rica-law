@@ -1,0 +1,1 @@
+Art. 7. El dueño de almacen, que contravenga à los dos artículos precedentes, pagará una multa [imagen] de cien pesos á beneficio de los fondos itinerarios; [imagen] y ademas el duplo del derecho que por su descuido se calcule defraudado.
