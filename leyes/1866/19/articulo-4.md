@@ -1,0 +1,2 @@
+Art 4°.- El Gobernador dará certificación del asiento en la matricula al interesado, quien pagará en el acto un derecho de dos pesos, en favor de los fondos de Instrucción Pública de la respectiva localidad, equivalente del quince por ciento que la ley concede sobre el honorario de los taquilleros.
+Único- Esta matrícula servirá por un año, trascurrido el cual deberá precisamente renovarse, bajo la pena al que continuare vendiendo sin matricularse nuevamente, de ser castigado como contrabandista.

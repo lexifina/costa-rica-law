@@ -1,0 +1,3 @@
+Art 8°. – Cada expendedor deberá llevar un libro, en el cual el Administrador, bajo su firma pondrá razón de las compras conforme aquella vaya haciendo. En este mismo libro llevará el expendedor la cuenta de sus ventas diarias, con la mayor exactitud.
+$1. Por la falta de cumplimiento de las prescripciones de este artículo incurrirán los expendedores en las penas que la ley impone a los contrabandistas y en la de quedar perpetuamente inhabilitado para hacer el comercio de esos ramos.
+$2. Iguales penas sufrirán si se encontrase en su casa o tienda, o se averiguase de una manera fehaciente, que tiene en su poder o a expendido mayor cantidad de Licor o de Tabaco que la que ha comprado en la Administración.

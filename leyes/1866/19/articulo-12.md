@@ -1,0 +1,1 @@
+Art 12° La contravención a lo dispuesto en los dos anteriores artículos, así como la adulteración en la calidad de las especies a que se refiere, será castigada con las penas que la ley señala a la estafa.
