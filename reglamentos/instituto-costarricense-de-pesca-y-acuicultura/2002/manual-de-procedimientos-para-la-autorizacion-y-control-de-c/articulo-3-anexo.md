@@ -1,0 +1,28 @@
+Anexo 3
+DECLARACIÓN JURADA
+(Embarcaciones artesanales en pequeña escala)
+Señores
+Sección de Control y Administración de Combustible
+Instituto Costarricense de Pesca y Acuacultura
+El suscrito_______________cédula de identidad Nº_______para efecto de tramitar combustible a precio preferencial, bajo la fe del juramento y conocedor (a) de las implicaciones legales del falso testimonio procedo a brindar el siguiente detalle de mis actividades de pesca con la embarcación__________________matrícula____________durante el período comprendido del_________________hasta el________________.
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Día_______hora de salida______________hora de llegada__________
+Firma__________________________Fecha____________________
