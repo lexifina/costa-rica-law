@@ -1,0 +1,17 @@
+Nº 32169
+EL PRESIDENTE DE LA REPÚBLICA
+LA MINISTRA DE JUSTICIA Y GRACIA
+Y EL MINISTRO DE HACIENDA
+En uso de las atribuciones conferidas en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, los artículos 25, numeral 1); 27 numeral 1) de la Ley Nº 6227, Ley General de la Administración Pública del 2 de mayo de 1978, el artículo 23 de la Ley Nº 5695, Ley de Creación del Registro Nacional del 28 de mayo de 1975 y la Ley Nº 7764, Código Notarial de 17 de abril de 1998.
+Considerando:
+1º—Que la Ley de Creación del Registro Nacional Nº 5695 y sus reformas, publicada en La Gaceta Nº 106 del 7 de junio de 1975, establece que la Junta Administrativa del Registro Nacional, creará su propio régimen de salarios para el personal de informática, y estará autorizada para contratar al personal técnico y profesional requerido, que satisfaga las necesidades del servicio público por el plazo que estipule o por término indefinido.
+2º—Que mediante acuerdos Nº J 070 de la sesión ordinaria Nº 08- 2004 de la Junta Administrativa del Registro Nacional, celebrada el 26 de febrero del 2004 y Nº J 088 de la sesión ordinaria Nº 09-2004, celebrada el 4 de marzo de 2004, se acoge la solicitud de creación de plazas para la Dirección de Informática.
+3º—Que mediante oficio DM-514-2004 del 31 de mayo del 2004 emitido por Ministerio de Planificación Nacional y Política Económica, se aprueba la nueva estructura organizacional para la Dirección de Informática del Registro Nacional, con cuatro departamentos, a saber: Departamento de Redes y Telecomunicaciones, Departamento de Proyectos, Departamento de Base de Datos y Departamento de Soporte y se justifica la ubicación de un especialista en el campo de la informática dentro de la Dirección General, como un asesor de la Junta Administrativa y de la Dirección General en esa materia.
+4º—Que mediante STAP-959-04 la Secretaría Técnica de la Autoridad Presupuestaria determinó que el Manual Descriptivo de Clases de Puestos de la Dirección de Informática del Registro Nacional, cumple con la normativa que al efecto contempla el Decreto Ejecutivo Nº 31089-H publicado en La Gaceta Nº 63 del 31 de marzo del 2003.
+5º—Que la Autoridad Presupuestaria, mediante el oficio STAP-Nº 990-04 del 30 de junio del 2004, transcribió el acuerdo firme Nº 7208, tomado en su sesión extraordinaria Nº 03-2004, celebrada el día 30 de junio del 2004, en el que se aprobó la creación de plazas y la clasificación de puestos de la Dirección de Informática del Registro Nacional.
+6º—Que le corresponde a la Autoridad Presupuestaria valorar los salarios de los puestos de la Dirección de Informática del Registro Nacional, así como hacer extensivo los aumentos por costo de vida decretados por el Poder Ejecutivo.
+7º—Que mediante Acuerdo Nº J233 de la Junta Administrativa del Registro Nacional tomado en sesión Nº 23-2004 celebrada el 17 de junio del 2004, se acordó realizar los trámites de publicación del presente decreto ejecutivo. Por tanto,
+DECRETAN:
+Régimen Salarial para la Actividad de Informática
+del Registro Nacional
+Artículo 1º—De acuerdo con la estructura organizacional aprobada por el Ministerio de Planificación Nacional y Política Económica en el oficio DM-514-2004 del 31 de mayo del 2004, la estructura ocupacional de la Dirección Informática está compuesta por: Gestor Informático, Coordinador de Departamento Informático, Oficial de Seguridad Informático como asesor de la Junta Administrativa y de la Dirección General.

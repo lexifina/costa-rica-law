@@ -1,0 +1,1 @@
+Artículo 2º—El Departamento de Recursos Humanos elaborará y mantendrá al día el Manual Descriptivo de Clases de Puestos que contendrá las atribuciones, deberes y requisitos mínimos de cada puesto descrito en el artículo anterior, con el fin de que sirvan como base para la elaboración de las pruebas de idoneidad al cargo.
