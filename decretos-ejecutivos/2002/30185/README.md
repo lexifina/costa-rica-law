@@ -14,3 +14,4 @@ Reglamento para el Procedimiento de Reajuste de Tarifas del Servicio de Revisió
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-06 | la propia norma |
+| 2 | 2002-05-07 | Decreto Ejecutivo 30396 (2002-05-07) |
