@@ -1,247 +1,179 @@
-Artículo 5°-Ventas de mercancías exentas. De acuerdo con el artículo 9° de la ley, están exentas del pago del impuesto las ventas de las mercancías siguientes:
-a) Canasta básica alimentaria
-Mercancías | Partida NAUCA
-Aceites vegetales comestibles, excepto de maní o cacahua-te y de Olivia………………….. | 412
-Agua natural (potable)…………………………… | 111-01
-Ajos frescos, no envasados…………………….. | 054-0904
-Arroz sin cáscara, excepto precocido………… | 042-02-00
-Arroz, excepto precocido (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 042
-Atún en conserva, envasado……………………. | 032-01-08
-Azúcar de remolacha y de caña sin refinar…… | 061-01-00
-Azúcar de remolacha y de caña, refinada (excepto para repostería)……………………….. | 061-02-00
-Bolígrafos desechables......................................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 89-16-01
-Café molido, excepto envasado y el soluble….. | 071-02-00
-|
-|
-Carnes frescas, refrigeradas o congeladas: |
--de ganado vacuno………………………………. | 011-01-00
--de ganado ovino………………………………… | 011-02-00
--de ganado porcino……………………………… | 011-03-00
--de aves de corral………………………………… | 011-04-00
--de caballo, aves y animales de caza………….. | 011-09-00
--desperdicios comestibles de los animales arriba enumerados……………………………… | 011-09-00
-Carne molida a granel de cualqueir clase, que no contenga ningún preservante u otro aditivo. Incluye las tortas de cualquier clase de carne, sin preservantes, condimentos u otros aditivos. (Así adicionada la mercancía anterior por el artículo 1° del dcereto ejecutivo N° 18899 del 23 de febrero de 1989) |
-Calzado escolar, a juicio de la Administración Tributaria............................................................. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 851
-Calzado ortopédico............................................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 851
-Café sin tostar, en cereza, en pergamino, en oro o tostado en grano (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 16729 del 12 de noviembre de 1985) |
-Cebolla fresca, no envasada…………………… | 054-09-01
-Compempases para uso escolar............................ (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 861-09-03
-|
-Cuajada, no envasada…………………………... | 024-01-00
-Cubaces, no envasados………………………… | 054-02-01
-Colas y pegamentos de toda clase, en envases de contenido neto menor de 250 cc, excepto los preparados a base de caucho (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14345 del 24 de febrero de 1983) | 599-04-04
-Colores para estudiantes, incluso en cajas con sus accesorios (témperas) (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14345 del 24 de febrero de 1983) | 533-03
-Chocolate en polvo o panecillos………………. | 073-01-02
-Escuadras para uso escolar.................................. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 861-09-03
-Fósforos y cerillos a granel o en empaques............ (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 899-02-00
-Frijoles rojos, negros y blancos, no envasados…………………………………………. | 054-02-01
-Frutas frescas, excepto manzanas, uvas y peras………………………………………………. | 051-01-00
-Galletas de todas clases, no envasadas ni enlatadas…………………………………………. | 048-04-02
-Garbanzos, no envasados………………………. | 054-02-02
-Gomas para borrar de caucho............................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 629-09-07
-Gomas para borrar de material plástico..... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)............. | 899-17-12
-Harinas de legumbres y frutas……………………. | 055-04-04 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Harinas finas y gruesas: |
--de trigo, fina……………………………………… | 046-01-01
--de trigo gruesa…………………………………… | 046-01-02
--de escanda y comuña………………………….. | 046-01-02
--de centeno……………………………………….. | 047-01-00
--de maíz……………………………………………. | 047-02-00
--de otros cereales………………………………… | 047-09-00
-Helados de crema natural………………………. | 029-09-00-09
-Helados............................................................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 062-01-02
-Hojas de papel para portafolio................................ (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 642-02-01
-Hortalizas frescas, no envasadas……………… | 054-09-05
-Huevos frescos comestibles, con cascarón, de toda clase de ave…………………………….. | 025-01-00
-Jabón en barra para lavar...................................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 552-02-03
-Lápices de colores para dibujar y crayones........... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 899-17-04
-Lápices para escribir de mina gruesa..................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 899-17-04
-Leche y crema frescas, pasteurizadas o esterilizadas (incluso sueros de mantequilla o de queso, leche descremada, leche y crema agrarias)……………………………………………. | 021-01
-Leche y crema (incluso sueros de mantequilla o de queso y leche descremada), deshidratadas o desecadas, en forma sólida, como bloques y polvos…………………………... | 022-02
-Leches medicinales y alimenticias, para infantes…………………………………………….. | 02-09-00-01
-Legumbres frescas y secas, no envasadas (incluye hortalizas, verduras, tubérculos, legumbres y raíces comestibles)……………... | 054
-Lentejas, no envasadas…………………………. | 054-02-02
-Levaduras (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14457 del 21 de marzo de 1983) | 099-09-03
-Maicena y otros almidones comestibles de maíz ………………………………………………. | 055-04-02
-Maíz en grano, no envasado…………………….. | 044-01-00
-Maicillo en grano, no envasado…………………. | 045-09-02
-Manteca de cerdo comestible…………………… | 091-02-01
-Mantecas comestibles de origen animal o vegetal, excepto de cerdo comestible………….. | 091-02-02
-Margarina y similares……………………………. | 091-01-00
-Marones frescos, refrigerados o congelados (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 16701 del 8 de noviembre de 1985) | 031-03-01
-Miel de abejas y otras mieles naturales………. | 02-01-00
-Natilla fresca………………………………………. | 021-01-01
-Pan de toda clase, tal como pan blanco, negro cuadrado español y dulce, galletas ordinarias, rosquillas, ilustrados, roscas, gatos, acemitas, quesadillas y biscoteles que no se venden en envases o envoltorios originales metálicos o de cartón…………………………………………… | 048-04
-Panela (dulce de tapa)…………………………… | 061-01-00
-Pastas alimenticias (macarrones, espagueti, tallarines, fideos y similares)…………………… | 048-03-00
-Papel higénico, en hojas o en rollos....................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 642-09-06
-Pastas dentales................................................... | 552-01-06
-Pescado y sus partes, frescos, salado o desecado, comestible (no envasados)………... | 031
-Plastilina (plasticina) acondicionada para uso de niños (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14345 del 24 de febrero de 1983) | 899-15-09
-Queso blanco tipo duro, semiduro y cremoso, no envasado ………………………………………. | 024-01-00
-Reglas milimetradas............................................. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 861-09-03
-Sal común , mineral y yodada…………………… | 272-05-02
-Sacapuntas de bolsillo (tajadores)......................... | 699-17-04
-Salchichón, chorizos, mortadelas, corrientes, no envasadas ni enlatadas (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14326 del 23 de diciembre de 1982) | 013-01-00
-Salchichas, no enlatadas ni envasadas herméticamente................................................. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 15991 del 24 de enero de 1985) | 013-01-00
-Sorgo sin moler, no envasado………………….. | 045-09-03
-Tiza en barritas para escribir y dibujar.................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 899-17-05
-Tortillas de maíz…………………………………... | 048-09-04
-Tortillas de harina de trigo (tipo ("paninas") (Así adicionada la mercancía anterior por el artículo 1° del decreto eejcutivo N° 16110 del 22 de marzo de 1985) | 048-04-05
-Transportadores................................................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 861-09-03
-Trigo y escanda (incluso comuña) sin moler (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 041
-Uniformes escolares (sólo camisa, pantalón y enagua) a juicio de la Administración Tributaria...... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 841-05
-Velas, cirios, veladoras y mariposas para lámparas, excepto los coloreados, decorados o perfumados.. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 899-01-01
-Vinagres de toda clase…………………………... | 099-09-01
-b) Medicinas comprendidas en el cuadro básico de la Caja Costarricense de Seguro Social:
-Mercancías | Partida NAUCA
-Alcaloides opiáceos, sus sales y derivados….. | 541-04-03
-Aparatos ortopédicos, miembros o partes artificiales del cuerpo, aparatos para sordera y accesorios para fracturas……………………….. | 899-99-09
-Cafeína, estricnina y todas sus sales…………. | 541-04-04
-Emetina y todas sus sales……………………… | 541-04-02 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Esparadrapo (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 541-09-08-02 y 655-04-01
-Glucósicos y sus sales………………………….. | 541-09-01
-Instrumentos médicos n.e.p. (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 861-03-02
-Jeringas y agujas hipodérmicas (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 861-03-02
-Medicamentos preparados para uso externo, n.e.p………………………………………………… | 541-09-05
-Medicamentos preparados para uso interno, (oral) n.e.p…………………………………………. | 541-09-04
-Medicamentos preparados para uso parentético (inyectable) n.e.p…………………… | 541-09-03
-Otros alcaloides, sus sales y sus derivados… | 541-04-05
-Penicilina, estreptomicina, tirocidina y otros antibióticos ……………………………………….. | 541-03-00
-Productos bacteriológicos, sueros, vacunas, estén o no preparados como medicamentos... | 541-02-00
-Productos de contrate radiológico y de diagnóstico……………………………………….. | 541-09-08
-Productos opoterápicos (plasma humano insulina, hormonas y otros extractos de glándulas órganos, etc, para fines terapéuticos) n.e.p……………………………….. | 541-09-02
-Quinina y todas sus sales………………………. | 541-04-01
-Termómetros clínicos (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 861-03-02
-Vitaminas y preparados exclusivos de vitaminas ………………………………………….. | 541-01-00
-c) Insumos agrícolas
-Mercancías | Partida NAUCA
-Abonos manufacturados………………………… | 561
-Acaricidas………………………………………….. | 511,512 y 599-02-00
-Aceites agrícolas, más de 70% de derivados del petróleo……………………………………… (Excluída la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 313 (Excluída la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Aceites agrícolas, menos de 70% de derivados del petróleo………………………….. (Excluída la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 599-09-15 (Excluída la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Adherentes……………………………………….. | 552-02-03
-Bactericidas………………………………………. | 511,512 y 599-02-00
-Fungicidas………………………………………… | 511,512 y 599-02-00
-Hierbicidas………………………………………. | 511,512y 599-02-00
-Hormonas vegetales…………………………….. | 512 y 599-09-15
-Humectantes……………………………………… | 552-02-03
-Insecticidas………………………………………… | 511,512 y 599-02-00
-Molusquicidas……………………………………… | 511,512 y 599-02-00
-Nematicidas…………………………………………. | 511,512 y 599-02-00
-Rodenticidas, para uso exclusivo en explotaciones agrícolas, previa recomendación del Ministerio de Agrícultura y Ganadería y nota de exención de la Dirección de Hacienda (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 15829 del 6 de noviembre de 1984) | 599-02-00-09
-Semillas, estacas y otros medios para la reproducción vegetal……………………………….. | 041,042 043,044 045, 054 071, 072 074, 075, 221 y 292-02-03
-Semillas para sembrar, bulbos, tubérculos y rizomas de plantas, productoras de flores o follajes, estacas, esquejes, árboles vivos y otras plantas..... (Mediante el punto II del artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982, se corrige la enumeración de las subpartidas. No obstante; al no coincidir la subpartida como la mercancía anterior la misma se ha transcrito) | 292-05-00 y las demás partidas conforme notas legales de la NAUCA
-Sufactantes…………………………………………… | 552-02-03
-Las materias primas y demás insumos que se incorporen o utilicen para producir agroquímicos, específicamente: fertilizantes, acariciadas, adherentes, bactericidas, fungicidas, hierbicidas, humectantes, insecticidas, molusquicidas, nematicidas, rodenticidas y coadyuvantes.
-(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 15855 del 15 de noviembre de 1984)
-Ch) Herramientas e instrumentos manuales, con o sin mango, para ser usados en la actividad agrícola
-Mercancías | Partida NAUCA
-Alicates diablo……………………………………. | 699-12-02
-Azadas…………………………………………….. | 699-12-01
-Azadones…………………………………………. | 699-12-01
-Barrenas de mano………………………………. | 699-12-02
-Bombas tipo mochila para atomizar…………… | 716-13-05
-Carretillas de mano……………………………… | 733-09-03
-Cuchillas para injertar…………………………… | 699-17-01
-Cuchillos, de toda clase…………………………. | 699-12-01
-Desmonchadoras……………………………….. | 699-12-01
-Excavadoras manuales…………………………. | 699-12-01
-Ganchos de 4,5, 6 dientes………………………. | 699-12-01
-Guadañas…………………………………………. | 699-12-01
-Hoces……………………………………………… | 699-12-01
-Hachas…………………………………………….. | 699-12-01
-Hoja de tijeras podadoras………………………. | 699-12-01
-Limas de filo………………………………………. | 699-12-02
-Macanas……………………………………………. | 699-12-01
-Machetes…………………………………………… | 699-12-01
-Mariposas rociadotas…………………………….. | 716-13-05
-Martillos…………………………………………….. | 699-12-02
-Palas de toda clase………………………………. | 699-12-01
-Picos de toda clase………………………………. | 699-12-01
-Podadoras de toda clase……………………… | 699-12-01
-Raspadoras………………………………………. | 699-12-02
-Rastras de mano…………………………………. | 699-12-01
-Rastrillos (peines) de toda clase………………. | 699-12-01
-Serruchos curvos para podar…………………… | 699-12-01
-Surcadores (arados de mano)…………………. | 699-12-01
-Tenedores de 3, 4, 5 dedos o dientes…………. | 699-12-01
-d) Equipo e implementos para uso exclusivo en la explotación agrícola, maderera o ganadera
-Mercancías | Partida NAUCA
-Abridores de huecos…………………………….. | 716-03-04 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Acondicionadores………………………………… | 712
-Acordonadores……………………………………. | 712
-Arados………………………………………………. | 712-01-01
-Aislantes plásticos W, S y V, para cercas eléctricas...... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)..................................................... | 721-19-03
-Alambre de púas (alambre espigado), de hierro o acero................................................................ (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 699-05-01
-Alambre liso de hierro galvanizado en calibres del doce al dieciséis A.W.G. para cercas ele´ctricas... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 681-12-00
-Biberones para terneros…………………………. | 899-11-01 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Cabezotes para cosechar maíz…………………. | 712-02-01
-Cortadoras (chanchos de monte)………………. | 712-02-01
-Cosechadoras…………………………………….. | 712-02-01
-Cultivadoras……………………………………….. | 712-01-02
-Chupones para terneros…………………………. | 629-02-00
-Chuzos eléctricos………………………………… | 721-19-06
-Descargadoras……………………………………. | 716-03-03
-Determinadores de humedad………………… | 861-09 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Distribuidoras de estiércol………………………. | 712-01-05
-Distribuidoras de fertilizantes…………………… | 712-01-05
-Elevadores…………………………………………. | 716-03-03
-Embaladoras………………………………………. | 712-02-01
-Ensiladoras………………………………………… | 712-09-03
-Energizadores (trnasformadores) para cercas eléctricas........................................................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 721-01-04
-Equipo para atomizar o espolvorear, manuales y de motor………………………………………… | 716-13-05-01
-Equipo para arroz inundado (fangueadoras y otros)………………………………………………… | 712
-Equipo para riesgos y accesorios exclusivos para los mismos…………………………………. | 716-13-05-01
-Grapas para cercas (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14457 del 21 de marzo de 1983) | 699-07-01-01
-Jeringas…………………………………………….. | 861-03-02
-Máquinas picadoras de pasto…………………… | 712-09-03
-Máquinas moledoras de forraje…………………. | 712-09-03
-Mesas para volcar ganado (madera)…………… | 821-01-03
-Mesas para volcar ganado (metal)…………… | 821-02-03
-Motosierras…………………………………………. | 716-05-00
-Niveladoras de arrastre (land plane)…………… | 716-03-04 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Palas hidráulicas para montar en chapulines… | 713-03-04
-Palas delanteras………………………………….. | 716-03-04 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Pulidoras……………………………………………. | 712-02-02
-Rastras……………………………………………… | 712-01-03
-Rotavatores…………………………………………. | 712-01-05
-Sembradoras………………………………………. | 712-01-04
-Secadoras para granos (no eléctrica)…………... | 712-02-02
-Secadoras para granos (eléctricas)…………….. | 721-06-04
-Separadoras……………………………………….. | 712-02-02
-Segadores…………………………………………. | 712-02-01
-Silos de almacenamiento………………………… | 699-21-01
-Trailes……………………………………………….. | 733-09-02
-Tractores, excepto los a vapor (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14220 del 13 de enero de 1983) | 713
-Vagones……………………………………………. | 733-09-03
-Ventiladores…………………………………………… | 716-12-01
-La exención no comprende aviones, avionetas o helicópteros, aún cuando éstos sean utilizados en explotaciones agrícolas o ganaderas. Respecto a las situaciones dudosas se deberá consultar a la Administración Tributaria para que resuelva, con carácter general si procede o no la exención.
-e) Productos veterinarios
-Mercancías | Partida NAUCA
-Anestésicos……………………………………… | 541-09-07
-Antibióticos sulfanados………………………….. | 541-09-07
-Antígenos para diagnóstico…………………….. | 599-09-15-09
-Antítoxinas…………………………………………. | 541-02-00
-Alimentos preparados para animales criados por el hombre para su alimentación, incluso las harinas de semillas oleaginosas....................................... (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 081
-Bacterinas………………………………………….. | 541-02-00
-Medicamentos para uso veterinario n.e.p…….. | 541-09-07
-Nitrofuranos………………………………………… | 541-09-07
-Opoterápicos………………………………………. | 541-09-02-09
-Parasiticidas externos e internos……………….. | 541-09-07 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Semen congelado…………………………………. | 291-09-13 y 001-01-01 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Sueros………………………………………………. | 541-02-00 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Suplementos alimenticios (premezclados minerales, vitaminas y antibióticos)…………….. | 081-09-02
-Toxoides……………………………………………. | 541-02-00
-Vacunas…………………………………………… | 541-02-00
-f) Mercancías varias
-Mercancías | Partida NAUCA
-Cemento de toda clase, incluyendo el puzzolánico……………………………………….. | 661
-Cajas mortuarias: a) De fibra........................................................... b) De madera....................................................... c) De metal........................................................ (Así adicionada la mercancía "cajas mortuarias", anterior por el artículo 1° del decreto ejecutivo N° 19715 del 30 de abril de 1990) | 39.07 80 99 44.27 73.40 80 00
-Cuadernos para escolares, de toda clase……. | 642-03-00
-Cuadros y pinturas hechas a mano, producidas en el país …………………………… | 899-21-03 (Así corregida la subpartida anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982)
-Libros, y folletos impresos incluso los atlas, con cualquier encuadernación……………….. (Así corregida la mercancía anterior por el artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982) | 892-01-01
-Melaza no comestible (miel de purga)………… | 061-03-00
-Sillas de rueda para minusválidos con o sin motor……………………………………………….. | 733-09-01
-g) Insumos esenciales para la construcción de viviendas populares
-La Administración Tributaria, mediante resolución dictada con carácter general, emitirá la lista de los insumos esenciales para esta acitividad.
+Artículo 5°-Mercancías exentas. De acuerdo con el artículo 4° anterior y el 9° de la ley, están exentas del pago del impuesto, las ventas de las mercancías siguientes:
+a) Canasta Básica Alimentaria y de Bienes Esenciales para la Educación:
+Aceites vegetales comestibles, excepto de maní, cacahuate y de Olivia.
+Agua natural (potable), no envasada.
+Ajos frescos, no envasados.
+Arroz, excepto precocido.
+Azúcar de remolacha y de caña (excepto la refinada para repostería).
+Cacao en polvo o panes.
+Café, excepto el envasado, el enlatado y el soluble.
+Carnes frescas, refrigeradas o congeladas, de ganado vacuno, ovino, porcino, caballar, de aves de corral, aves y animales de caza así como los desperdicios comestibles de estos animales.
+Cebolla fresca, no envasada.
+Cuajada, no envasada.
+Cubaces, no envasados.
+Chorizo, excepto el enlatado.
+Frijoles rojos, negros y blancos, no envasados.
+Frutas frescas, excepto manzanas, uvas y peras.
+Galletas de todas clases, excepto las enlatadas, empaquetadas o las que se vendan en envoltorios originales, metálicos o de cartón.
+Garbanzos, no envasados.
+Harinas de legumbres y frutas.
+Harinas finas y gruesas de trigo, escanda, comuña, centeno, maíz y de otros cereales.
+Hortalizas frescas, no envasadas.
+Huevos frescos comestibles, con cascarón, de toda clase de aves.
+Leche y crema frescas, pasteurizadas o esterilizadas (incluso sueros de mantequilla o de queso, leche descremada; leche y crema agrias).
+Leche y crema (incluso sueros de mantequilla o de queso y leche descremada), deshidratadas o desecadas, en forma sólida, como bloques y polvo.
+Leches modificadas y sucédaneos de leche para infantes.
+Legumbres frescas y secas, no envasadas (incluye hortalizas, verduras, tubérculos, leguminosas y raíces comestibles).
+Lentejas, no envasadas.
+Levadura.
+Maicena y otros almidones comestibles de maíz.
+Maíz en grano, excepto el enlatado o envasado.
+Maicillo en grano, no envasado.
+Mantecas comestibles de origen animal o vegetal.
+Margarinas y similares.
+Miel de abeja y otras mieles naturales.
+Mortadela, excepto la enlatada.
+Natilla fresca.
+Pan de toda clase, como el blanco, negro, cuadrado, integral, español y dulce; rosquillas, ilustrados, roscas, gatos, acemitas, quesadillas y biscotelas, que no se venden en envases o envoltorios originales, metálicos o de cartón.
+Panela (dulce de tapa).
+Pastas alimenticias (macarrones, espaguetti, tallarines, fideos y similares).
+Paté, excepto enlatado o envasado.
+Pescado y sus partes, fresco, salado o desecado, (no envasado o enlatado).
+Queso blanco tipo duro, semiduro y cremoso, no envasado.
+Sal común, mineral y yodada.
+Salchichas, excepto las enlatadas.
+Salchichón, excepto el enlatado.
+Sorgo sin moler, no envasado.
+Tamales.
+Tortillas de maíz, de harina o de trigo (tipo “panina”).
+Trigo y escanda (incluso comuña), sin moler.
+Vinagres de toda clase.
+ii) Bienes Esenciales para la Educación:
+Bolígrafos desechables.
+Colas y pegamentos de toda clase, en envases de contenido neto menor de 250cc, excepto los preparados a base de caucho.
+Colores para estudiantes, incluso en cajas con sus accesorios (témperas).
+Compases para uso escolar ( de latón, con o sin lápiz).
+Cuadernos.
+Escuadras para uso escolar (únicamente las pequeñas, planas, hasta 15 cms).
+Gomas para borrar de caucho o material plástico.
+Hojas de papel para portafolio.
+Lápices de colores para dibujar y crayones.
+Lápices para escribir de mina gruesa.
+Libros de texto.
+Plastilina (plasticina) acondicionada para uso de niños.
+Reglas milimetradas.
+Sacapuntas de bolsillo (tajadores).
+Tiza en barritas.
+Transportadores.
+Uniformes escolares (solo camisa, blusa, pantalón o enagua), a juicio de la Administración tributaria.
+b) Medicinas:
+para efectos tributarios se definen las medicinas o medicamentos, como las sustancias o productos naturales, artificiales sintéticos y toda mezcla de esas sustancias o productos que se utilicen para el diagnóstico, prevención, tratamiento y alivio de las enfermedades o estados físicos anormales, o de los síntomas de los mismos y para el restablecimiento o modificación de funciones orgánicas en las personas. Los medicamentos exentos serán únicamente los indicados en el Formulario Terapéutico Nacional, establecido en el Decreto Ejecutivo N° 19343-S del 19 de diciembre de 1989.
+c) Insumos esenciales para la construcción de viviendas. Según Resolución N° 319 de la Dirección General de la Tributación Directa publicada en “La Gaceta N° 148 del 5 de agosto de 1988.
+Ch) Productos veterinarios:
+Anestésicos.
+Antibióticos sulfanados.
+Antígenos para diagnóstico.
+Antitoxinas.
+Bacterinas.
+Detectores de celo.
+Hormonas.
+Medicamentos para uso veterinario (referidos a la partida NAUCA 30.03)
+Nitrofuranos.
+Opoterápicos.
+Parasiticidas externos e internos.
+Semen congelado y diluyente para semen.
+Suero.
+Suplementos alimenticios (premezclados minerales, vitaminas y antibióticos, y estimulantes de crecimiento).
+Toxoides.
+Vacunas.
+d) Insumos agropecuarios:
+abridores de huecos.
+Acaricidas.
+Aceites agrícolas (más de 70% de derivados del petróleo).
+Acondicionadores.
+Acordonadores.
+Adherentes y coayuvantes.
+Alambre de púas.
+Alicates diablo.
+Alimentos preparados para animales criados por el hombre, para la alimentación, incluso las harinas de semillas oleaginosas, de hueco o pescado.
+Arados.
+Azadores.
+Azadones.
+Bactericidas.
+Barrenas de mano.
+Biberones para terneros.
+Bombas tipo mochila para atomizar, manuales o motorizadas.
+Bombas para agua sumergibles.
+Cabezotes para cosechar maíz.
+Carretillas de mano.
+Comedores y bebedores.
+Cortadoras (chanchos de monte).
+Cuchillas para injertar.
+Cuchillos de toda clase.
+Chapeadoras.
+Chupones para terneros.
+Chuzos eléctricos.
+Descargadoras.
+Desmonchadoras.
+Determinadotes de humedad.
+Distribuidoras de estiércol.
+Distribuidoras de fertilizantes.
+Excavadoras manuales.
+Equipo para atomizar o espolvorear, manual o motorizado.
+Equipo para inseminación artificial.
+Equipo para ordeño.
+Excluidores de abejas reinas.
+Fertilizantes de todo tipo.
+Fungicidas.
+Ganchos de 4, 5, 6 dientes.
+Guadañas.
+Hachas.
+Herbicidas.
+Hoces.
+Hoja de tijera podadoras.
+Hormonas vegetales.
+Huevo fértil.
+Humectantes.
+Incubadoras.
+Insecticidas.
+Jaulas de parición.
+Jeringas.
+Limas de filo.
+Macanas.
+Machetes.
+Máquinas moledoras de forraje, manuales.
+Máquinas picadoras de pasto, manuales y para el procesamiento de heno.
+Máquinas sembradoras.
+Miel de purga o melaza.
+Molinos de viento.
+Molusquicidas.
+Motosierras.
+Nematicidas.
+Ovicidas.
+Óvulos fecundados.
+Palas de toda clase.
+Picos de toda clase.
+Plaquicidas.
+Podadoras de toda clase.
+Pollos en pie Preservantes para frutas, flores y ornamentales
+Raspadores.
+Rastras de mano.
+Rastrillos (peines) de toda clase.
+Rodenticias.
+Secadores para granos (no eléctricas).
+Segadores.
+Semillas, estacas, meristermos, y otros medios para la reproducción vegetal.
+Serruchos curvos para podar.
+Sufactantes.
+Surcadores (arados de mano).
+Tenedores de 3, 4, 5 dedos o dientes.
+Terneros para pie de cría.
+e) Mercancías varias:
+Reencauches y llantas para maquinaria exclusivamente.
+Queroseno.
+Diesel para pesca no deportiva.
+Libros.
+Cuadernos y pinturas hechos por pintores nacionales y extranjeros, producidos en el país.
+Cajas mortuorias.
+Consumo de energía eléctrica, hasta 250 KWh, del sector residencia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 20293 del 5 de marzo de 1991)
