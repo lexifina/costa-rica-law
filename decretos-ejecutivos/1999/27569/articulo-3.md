@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio de Salud, en la medida de sus posibilidades, podrá desconcentrar y descentralizar las inspecciones requeridas para el otorgamiento de los permisos sanitarios de funcionamiento, de conformidad con lo indicado en el artículo anterior y las listas anexas.
