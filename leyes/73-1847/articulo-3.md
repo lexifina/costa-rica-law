@@ -1,0 +1,1 @@
+Art 3. Dicho administrador cada tres meses dirigirá al despacho de hacienda del Gobierno un estado de cuenta que en este concepto debe llevar, sin perjuicio de rendir ésta por fin de año al tribunal respectivo.- Dado en la ciudad de San José à los diecisiete días del mes de noviembre de mil ochocientos cuarenta y siete
