@@ -10,3 +10,5 @@ h. Fomentar en la Dirección General la realización de investigaciones aplicada
 i) Apoyar la transformación estructural-funcional de las instituciones, procurando la identificación y diferenciación claras de sus procesos de trabajo productos respectivos.
 j. Propiciar la integración de los servicios sustantivos de la Administración de Recursos Humanos de la corporación Pública al proceso planificador de la gestión de las respectivas entidades.
 k. Impulsar y fortalecer la motivación, integración y satisfacción del personal que labora en el campo de la Administración de Recursos Humanos.
+l) Propiciar la efectiva aplicación de los principios universales de igualdad de oportunidades y accesibilidad a los servicios de conformidad con la Ley 7600, (Ley de Igualdad de Oportunidades para las personas con discapacidad.).
+(Así adicionado mediante el artículo 1° del Decreto Ejecutivo N° 27795 del 15 de abril de 1999)

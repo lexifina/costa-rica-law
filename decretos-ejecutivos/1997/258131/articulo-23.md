@@ -11,4 +11,6 @@ f) Dejar sin cancelar deudas adquiridas por alimentación o por pasajes, en aque
 o) Dar órdenes a sus subalternos para la ejecución de asuntos ajenos a su labor oficial.
 p) Utilizar la violencia, de hecho o de palabra, para resolver las dificultades que surjan durante la realización del trabajo, o para las de tipo personal con alguno de sus compañeros.
 q) Registrar los escritorios u otros muebles donde se mantengan objetos personales o de trabajo de otro servidor y hacer uso de los mismos sin la previa autorización de este.
+r) Emitir acciones y disposiciones que directa o indirectamente promuevan la discriminación que afecta la dignidad de las personas con discapacidad.
+(Así adicionado mediante el artículo 1° del Decreto Ejecutivo N° 27795 del 15 de abril de 1999)
 En casos excepcionales para fines de trabajo y bajo la responsabilidad del director de núcleo, podrán usarse los útiles de trabajo o documentos que están en custodia de un servidor ausente.
