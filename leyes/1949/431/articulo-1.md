@@ -1,3 +1,5 @@
+(Derogado)
+(NOTA: DEROGADA, tácitamente por el artículo 111 de la Ley N° 8412 de 22 de abril de 2004, Ley Orgánica del Colegio de Ingenieros Químicos y Profesionales Afines y Ley Orgánica del Colegio de Químicos de Costa Rica)
 Considerando:
 1º.- Que aquellas personas que hayan realizado el estudio de la
 Química conforme a las disciplinas establecidas en Centros Universitarios y
