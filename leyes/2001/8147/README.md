@@ -1,6 +1,6 @@
 # Creación del Fideicomiso para la Protección y el Fomento Agropecuarios para Pequeños y Medianos Productores
 
-Ley N° 8147 del 2001-10-24. SINALEVI, ficha 47429: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=47429&param2=50314&param3=1>.
+Ley N° 8147 del 2001-10-24. SINALEVI, ficha 47429: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=47429&param2=50315&param3=1>.
 
 Publicada en La Gaceta N° 216 del 2001-11-09.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 7 | 2001-11-09 | Ley 8147 | 2001-10-24 |
 | 2 de 7 | 2002-11-27 | Ley 8332 | 2002-11-07 |
 | 3 de 7 | 2003-11-07 | Ley 8390 | 2003-11-04 |
+| 4 de 7 | 2004-12-27 | Ley 8427 | 2004-12-07 |
