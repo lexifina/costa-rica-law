@@ -1,0 +1,1 @@
+Artículo 19.—Una vez otorgado el permiso, la Dirección de Planificación y Desarrollo Urbano, trasladará el permiso de construcción a la Policía Técnica Fiscal, con el fin de que esta Unidad certifique que el trabajo se llevó a cabo como lo indica el permiso de construcción y remitirá el mismo a la Dirección de Planificación y Desarrollo Urbano para su archivo y custodia.
