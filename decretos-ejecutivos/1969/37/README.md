@@ -13,3 +13,4 @@ Creáse Comisión Asesora de Catastro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1969-10-05 | la propia norma |
+| 2 | 1971-05-27 | Decreto Ejecutivo 1731 (1971-05-27) |
