@@ -2023,3 +2023,4 @@ Ced. Jur.: 2-100-042014 35.900.000
 Total Aumento de Programa: 936-00 85.900.000
 Total Aumento del Título: 129 88.300.000
 Total Aumentar 2,790.644.383
+(Modificado por el artículo 2 del Decreto Ejecutivo 29870 del 28 de setiembre del 2001)
