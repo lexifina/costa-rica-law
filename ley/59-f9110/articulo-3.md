@@ -1,0 +1,1 @@
+Art 3° El señor Don Bernardo Capurro encargado por el Gobierno para esta operación según acuerdo de 29 de setiembre anterior, se reputará como Director de la Oficina Central de Estadística para el efecto de la cooperación que deben prestarle las Municipalidades y funcionarios del orden político y eclesiástico.
