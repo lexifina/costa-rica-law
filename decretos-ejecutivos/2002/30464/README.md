@@ -14,3 +14,4 @@ Determina que los Ministerios y sus Órganos adscritos reducirán el gasto en su
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-15 | la propia norma |
+| 2 | 2002-06-12 | Decreto Ejecutivo 30512 (2002-06-12) |
