@@ -1,0 +1,2 @@
+ARTÍCULO DECIMOTERCIO
+En caso de efectuarse por el territorio de Costa Rica, en todo ó en parte, la proyectada comunicación interoceánica, sea por de canales, por ferrocarriles, ó por estos ú otros medios combinados, la bandera y las mercaderías españolas así como los súbditos de su Majestad Católica, disfrutarán el libre tránsito en los mismos términos y sin pagar otros ó mayores impuestos que los respectivamente paguen los buques, mercaderías y ciudadanos de Costa Rica.

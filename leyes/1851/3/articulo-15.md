@@ -1,0 +1,4 @@
+ARTÍCULO DECIMOQUINTO
+En los ab intestatos que ocurran de súbditos españoles establecidos en Costa Rica, ó de ciudadanos de esta República en España, sus respectivos Cónsules formarán el inventario de los bienes del finado, de acuerdo con la Autoridad local; y en los mismos términos proveerán á la custodia de dichos bienes hasta que se presente el heredero é su legítimo representante.
+En los casos de naufragio, los Cónsules respectivos podrán también proceder al salvamento de acuerdo con la autoridad local competente.
+Los Agentes diplomáticos y consulares estarán autorizados para reclamar que se restituyan á su bordo los desertores de los buques de guerra y mercantes de su Nación que lleguen á los puertos de sus respectivas residencias; y ambas Partes Contratantes se comprometen á hacer cuanto esté de su parte para que los dichos desertores sean aprehendidos y custodiados hasta que se verifique la entrega.

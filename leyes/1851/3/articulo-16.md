@@ -1,0 +1,4 @@
+ARTICULO DECIMOSEXTO
+Deseosas Su Majestad Católica y la República de Costa Rica de conservar la paz y buena armonía que felizmente acaban de restablecer por el presente Tratado, declaran solemne y formalmente:
+1° Que cualquiera ventaja ó ventajas que adquieren en virtud de los artículos anteriores, son y deben entenderse como una compensación de los beneficios que mutuamente se confieren por ellos; y
+2° Que si [lo que Dios no permita] se interrumpiese la buena armonía que debe reinar en lo venidero entre las partes Contratantes, por falta de inteligencia de los artículos aquí convenidos, ó por otro motivo cualquiera de agravio ó queja, ninguna de las Partes podrá autorizar actos de represalia u hostilidad por mar ó tierra sin haber presentado antes á la otra una memoria justificada de los motivos en que funde la injuria ó agravio y denegándose la correspondiente satisfacción.
