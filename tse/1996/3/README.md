@@ -16,3 +16,4 @@ Reglamento Autónomo Servicios del Tribunal Supremo de Elecciones
 | 1 | 1996-10-21 | la propia norma |
 | 2 | 2002-04-03 | Reglamento 5 (2002-04-03) |
 | 3 | 2002-04-03 | Ley 8 |
+| 4 | 2004-04-13 | Decreto TSE 4 (2004-04-13) |
