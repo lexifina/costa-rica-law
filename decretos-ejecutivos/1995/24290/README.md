@@ -14,3 +14,4 @@ Declara Parque Nacional Volcán Tenorio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-06-08 | la propia norma |
+| 2 | 1995-06-08 | Decreto Ejecutivo 24416 (1995-06-07) |
