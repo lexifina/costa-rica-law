@@ -1,0 +1,1 @@
+Artículo 11.- Todo estudiante que desea optar al beneficio de una beca deberá haber ganado el año anterior, además durante el periodo que tenga beca deberá mantenerse sobre el promedio general mínimo para aprobar las asignaturas en su respectiva institución, ya que lo anterior autoriza automáticamente a la Comisión de Educación a suspender la beca eI resto del curso lectivo.
