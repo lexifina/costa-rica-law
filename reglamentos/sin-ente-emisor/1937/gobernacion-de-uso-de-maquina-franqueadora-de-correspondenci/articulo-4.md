@@ -1,1 +1,0 @@
-4°.- El franqueo de la correspondencia del interesado se harpa por medio de impresiones de la máquina franqueadora, de acuerdo con la tarifa de portes que está en vigor, y cuando por error se hagan impresiones por menor valor, las piezas de correspondencia se consideraran como insuficientemente franqueadas, quedando sujetas a las disposiciones legales.
