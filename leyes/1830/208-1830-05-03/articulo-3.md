@@ -1,0 +1,1 @@
+Art 3°.- Los Jueces inferiores, contra quienes se verse la queja, y si ésta es emanada de juicios verbales, conciliación, sumario u otro procedimiento de oficio, presentarán sus pruebas, (si estas les fueren necesarias por escrito) en el mismo papel de partes.

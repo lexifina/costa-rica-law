@@ -1,0 +1,1 @@
+Art 2°.- El querellante, siendo pobre según la ley, presentará a la Corte un libelo en papel de partes que contengan la clase de falta o exceso cometido por el juez, el carácter y territorio de éste, y la especie de prueba que tenga en su favor.
