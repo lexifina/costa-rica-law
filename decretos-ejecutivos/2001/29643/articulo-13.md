@@ -1,0 +1,7 @@
+CAPÍTULO VIII
+Disposiciones finales
+Artículo 13.—Los recursos correspondientes al treinta por ciento (30%) de los ingresos provenientes de la recaudación del impuesto único sobre los combustibles, destinados al Consejo Nacional de Vialidad de conformidad con el artículo 5º de la Ley Nº 8114, se distribuirán de la siguiente forma:
+a. El setenta y cinco por ciento (75%) se destinará exclusivamente a la conservación, mantenimiento rutinario, mantenimiento periódico, mejoramiento, rehabilitación, y construcción de obras viales de la red vial nacional.
+De los recursos establecidos, se asignará hasta el tres por ciento (3%) para garantizar la máxima eficiencia de la inversión pública de reconstrucción y conservación óptima de la red vial costarricense, suma que será girada por la Tesorería Nacional al CONAVI para que la entregue a la Universidad de Costa Rica, que la administrará bajo la modalidad presupuestaria de fondos restringidos vigente en esa entidad universitaria mediante su Laboratorio Nacional de Materiales y Modelos Estructurales.
+b. El veinticinco por ciento (25%) restante se destinará exclusivamente a la conservación, mantenimiento rutinario, mantenimiento periódico, mejoramiento, rehabilitación y construcción de obras viales de la red vial cantonal.
+La Tesorería Nacional girará estos recursos de conformidad con lo que se disponga en la Ley de Presupuesto de la República para cada año respectivo.
