@@ -1,0 +1,1 @@
+Artículo 2º.- En todo aquello en que en las disposiciones del Decreto Nº 23609-MAG-H se haga al "fideicomiso" o los "fondos fideicometidos", en adelante deberá entenderse que se hace referencia al "fondo" establecido en el artículo 1 tal y como aquí ha sido reformado, o a los recursos de dicho fondo.
