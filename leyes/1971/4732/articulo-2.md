@@ -1,0 +1,1 @@
+Artículo 2°-Cada organismo o entidad, sin detrimento de sus propias necesidades, podrá incorporar a su presupuesto ordinario las partidas correspondientes, dictar las modificaciones o presupuestos extraordinarios que juzgue oportunos para los fines de esta ley o, en definitiva determinar de acuerdo a su propia conveniencia el monto o género de su colaboración.
