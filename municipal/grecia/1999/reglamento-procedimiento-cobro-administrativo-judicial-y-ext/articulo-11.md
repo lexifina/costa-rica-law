@@ -1,0 +1,1 @@
+Artículo 11.—Colaboración a los funcionarios de la Administración Tributaria Municipal. Los contribuyentes, responsable, declarantes y terceros deben atender a los funcionarios de la Administración Tributaria Municipal y presentarles la mayor colaboración en el desarrollo de su función.
