@@ -1,0 +1,1 @@
+TRANSITORIO I.- La Corte Suprema de Justicia deberá crear los despachos judiciales mencionados en el artículo 65 del Código de Normas y Procedimientos Tributarios, en el plazo de seis meses a partir de la vigencia de esta Ley.

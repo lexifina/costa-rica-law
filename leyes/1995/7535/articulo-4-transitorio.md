@@ -1,0 +1,1 @@
+TRANSITORIO IV.- La caducidad a que se refiere el artículo 28 de la Ley No. 7210, del 23 de noviembre de 1990, no se aplicará a las empresas que a la vigencia de esta Ley, ya se encuentren acogidas al Régimen de Zona Franca, independientemente de la fecha en que hayan sido suscritos los respectivos contratos de operaciones.
