@@ -1,0 +1,1 @@
+Artículo 2º—Destino del inmueble. El terreno que la Junta de Educación de la Escuela Villa Ligia, de Pérez Zeledón, adquirirá por esta permuta, se destinará exclusivamente a la construcción de la nueva Escuela de Villa Ligia, de Pérez Zeledón.
