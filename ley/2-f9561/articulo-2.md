@@ -1,0 +1,1 @@
+Art 2° Se nombran Regidores propietarios para componer la Representación Municipal de Puntarenas a los señores Don Orontes Quesada, Don Joaquín Lizano, S. y don Manuel Fernández y suplentes a los señores Presbíteros don Miguel Pérez y Don Evaristo Méndez.

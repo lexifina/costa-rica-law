@@ -1,0 +1,2 @@
+Art 3° Se nombran Regidores propietarios de la Municipalidad de Esparza a los Señores don Norberto Paniagua, Don Ignacio Pérez y don Vicente Araya, y suplente a los señores don Esteban Acuña, Don José Palacio Nacional, en San José, a los veinte y seis días del mes de enero de mil ochocientos setenta y siete.
+Dado en el Palacio Nacional, en San José, a los veintisiete y seis días del mes de enero de mil ochocientos setenta y siete.
