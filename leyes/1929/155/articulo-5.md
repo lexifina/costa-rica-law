@@ -1,1 +1,0 @@
-Artículo 5°-Los compradores estarán obligados a obtener el traslado de los racimos de bananos rechazados por el Tribunal con las empresas ferrocarrileras con las cuales tengan convenios vigentes para el transporte de su propia fruta, al lugar que el vendedor indique y por cuenta de éste.
