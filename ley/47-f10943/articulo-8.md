@@ -1,0 +1,1 @@
+Artículo 8° La consolidación de capital a que se refiere el artículo anterior, se suspenderá tan pronto como el Poder Ejecutivo apruebe el contrato citado en el articulo 5° debiendo el Administrador de Aduana de Puntarenas entregar las sumas que a tal objeto se destinaban, al Municipio de aquel cantón.

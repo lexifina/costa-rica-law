@@ -1,0 +1,2 @@
+Art 6° Si por cualquier motivo no se formalizare el contrato con el ingeniero en cuyo favor declararse el jurado la preferencia, la obra se sacará días y servirán de base para ello el plan y condiciones a que se refiere el artículo precedente, quedando dicho ingeniero con el derecho a una indemnización de mil pesos por su trabajo, si el plan hidráulico hubiere merecido entera aprobación del jurado.
+Los demás proyectos serán devueltos a sus autores tan luego se haya declarado la preferencia en el concurso.

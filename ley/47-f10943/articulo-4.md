@@ -1,0 +1,1 @@
+Art 4° La obra se adjudicará al ingeniero cuyo proyecto mereciere la aprobación y preferencia del jurado, siempre que a juicio de éste fueren aceptables las clausulas referentes a precio, pago y garantías por él propuestas, o que no siéndolo se conforme con las modificaciones que, oído el parecer de dicho tribunal, fijare la Secretaría de Fomento.
