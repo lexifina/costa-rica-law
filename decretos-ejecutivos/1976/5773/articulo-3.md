@@ -1,0 +1,1 @@
+Articulo 3°-Quien otorgare el consentimiento referido, comparecerá en el acto de otorgar la licencia al menor interesado, a fin de ratificar el consentimiento otorgado en las oficinas de la Dirección General de Tránsito y Transporte Automotor y suscribirá la fórmula que a tales efectos imprima la citada Dirección.
