@@ -1,0 +1,1 @@
+Artículo 4° Los fondos acumulados por la Sociedad Nacional de Agricultura, por decretos números 83 de 20 de agosto de 1903 y 14 de 22 de octubre de 1908, quedan asignados al Ministerio de Fomento de 1908, quedan asignados al Ministerio de Fomento para ser invertidos en obras de fomento de la agricultura.
