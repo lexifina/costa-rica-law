@@ -1,0 +1,1 @@
+Artículo 9°—El Colegio comunicará a la Junta Directiva el retiro de la condición de miembro ausente del profesional, para su información. La Junta Directiva General comunicará lo necesario a la Oficina de Registro para los trámites necesarios, a fin de que el profesional ostente nuevamente su condición de miembro activo.

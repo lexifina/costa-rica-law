@@ -1,0 +1,1 @@
+Artículo 5°—Cada Colegio comunicará a la Junta Directiva General que, cumplidos los requisitos necesarios por el solicitante, se le ha otorgado la condición de miembro ausente, indicando las fechas en las cuales regirá dicha condición. La Junta Directiva comunicará lo anterior a la Oficina de Registro para los trámites administrativos correspondientes.
