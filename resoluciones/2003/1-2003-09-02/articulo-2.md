@@ -1,0 +1,1 @@
+Artículo 2º—Competencia. Corresponde al Departamento de Evaluación de Conductores y a los Departamentos Regionales de la Dirección General de Educación Vial, por medio de los funcionarios evaluadores autorizados, efectuar el examen práctico de manejo al aspirante a conductor, observando y aplicando los criterios valorativos, que se establecen en esta resolución administrativa.

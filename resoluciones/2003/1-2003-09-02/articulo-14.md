@@ -1,0 +1,1 @@
+Artículo 14.—No aprobación del examen práctico. El interesado que no aprobare el examen práctico de manejo, tendrá derecho a repetirlo, transcurridos cinco días hábiles, contados a partir del día siguiente al que fue evaluado, en cuyo caso deberá cancelar nuevamente las tarifas legales correspondientes.

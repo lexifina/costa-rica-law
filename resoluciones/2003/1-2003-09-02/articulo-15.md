@@ -1,0 +1,2 @@
+Artículo 15.—Caducidad del derecho. La prueba práctica de manejo que hubiere sido aprobada debidamente y que cumpla con todos los requisitos de ley, tendrá una vigencia de seis meses, contados a partir de la fecha de realización.
+Si transcurrido dicho plazo, el interesado no hubiere obtenido la licencia de conducir, deberá cumplir nuevamente con el proceso de evaluación, así como con el pago de las tarifas establecidas reglamentariamente.
