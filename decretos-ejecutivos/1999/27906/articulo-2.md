@@ -1,0 +1,1 @@
+Artículo 2°—Las disposiciones anteriores no se aplicarán de existir un régimen más favorable vigente en el momento de efectuarse la liquidación o bien que existan disposiciones especiales que regulen de manera particular la liquidación de impuestos en el respectivo régimen exoneratorio.

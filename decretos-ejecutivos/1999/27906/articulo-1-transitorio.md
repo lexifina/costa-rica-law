@@ -1,0 +1,2 @@
+Transitorio.—Las solicitudes autorizadas por la Dirección General de Hacienda para la liquidación voluntaria, que se encuentren pendientes de resolver en el Sistema Aduanero Nacional, se tramitarán conforme a las reglas dispuestas en el artículo 2° de este decreto, en cuanto que de existir un régimen más favorable se aplicará al caso concreto.
+Dado en la Presidencia de la República.—San José, a los treinta días del mes de abril de mil novecientos noventa y nueve.
