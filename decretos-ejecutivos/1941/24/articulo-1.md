@@ -1,0 +1,4 @@
+N° 24
+El Congreso constitucional de la República de Costa Rica
+Decreta:
+Artículo 1°.- Autorízase al Banco Nacional de Costa Rica para que por medio del Departamento Hipotecario emita hasta tres millones de colones (¢3.000.000.00) en cédulas al portador que se denominarán Cedulas 1941, para ser vendidas a la par, únicamente a los bancos comerciales del país, en las condiciones y para los fines exclusivos determinados por esta ley. La colocación de las cédulas se efectuará paulatinamente, conforme lo requieran las operaciones de préstamo que el Departamento Hipotecario verifique, pero en ningún caso esa colocación podrá ser cada mes por una suma mayor de doscientos mil colones (¢200,000.00), que el citado Departamento distribuirá entre los bancos comerciales, proporcionalmente a los promedios mensuales de encaje mínimo legal de cada banco, conforme lo disponga el reglamento respectivo, según datos que al efecto suministrará la Superintendencia de Bancos.

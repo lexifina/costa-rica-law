@@ -1,0 +1,1 @@
+Artículo 4°-Refórmase el inciso 5° del artículo 85 de la ley N° 16 de 5 de noviembre de 1936, en la siguiente forma: "Comprar cédulas emitidas de acuerdo con la ley N° 79 de 4 de julio de 1933 y las llamadas Cédulas 1941, en las condiciones que establece la ley N° 15 de 5 de noviembre de 1936".
