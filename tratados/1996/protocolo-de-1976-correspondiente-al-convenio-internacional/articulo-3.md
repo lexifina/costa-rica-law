@@ -1,0 +1,5 @@
+Artículo III
+1.- El presente Protocolo estará abierto a la firma, para todo Estado signatario del Convenio o que se haya adherido al mismo, y para todo Estado invitado a asistir a la Conferencia para la revisión de lo dispuesto acerca de la unidad de cuenta en el Convenio internacional sobre responsabilidad civil nacida de daños debidos a contaminación por hidrocarburos, 1969, celebrada en Londres del 17 al 19 de noviembre de 1976. El Protocolo estará abierto a la firma en la sede de la Organización del 1 de febrero de 1977 al 31 de diciembre de 1977.
+2.- A reserva de lo dispuesto en el párrafo 4 del presente artículo, el presente Protocolo estará sujeto a ratificación, aceptación o aprobación por parte de los Estados que lo hayan firmado.
+3.- A reserva de lo dispuesto en el párrafo 4 del presente artículo, el presente Protocolo estará abierto a la adhesión de los Estados que no lo hayan firmado.
+4.- El presente Protocolo podrá ser objeto de ratificación, aceptación, aprobación o adhesión por parte de los Estados Partes en el Convenio.

@@ -1,0 +1,3 @@
+Artículo V
+1.- El presente Protocolo entrará en vigor para los Estados que lo hayan ratificado, aceptado o aprobado, o que se hayan adherido a él, el nonagésimo día siguiente a la fecha en que ocho Estados, entre los cuales figuren cinco Estados que respectivamente cuenten con no menos de 1.000.000 toneladas brutas de arqueo de buques tanque, hayan depositado ante el Secretario General los oportunos instrumentos de ratificación, aceptación, aprobación o adhesión.
+2.- Para todo Estado que posteriormente ratifique, acepte o apruebe el presente Protocolo, o que se adhiera al mismo, el Protocolo entrará en vigor al nonagésimo día siguiente a la fecha en que el Estado de que se trate haya depositado el oportuno instrumento.
