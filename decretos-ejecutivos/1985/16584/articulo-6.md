@@ -1,0 +1,9 @@
+Artículo 6º.-A los servidores que realizan labores que por su
+indudable naturaleza se encuentran excluidos de la limitación de la
+jornada laboral, similares a aquellos casos que indica el artículo 143
+del Código de Trabajo, de acuerdo con las disposiciones legales
+aplicables, se les podrá exigir una jornada ordinaria de hasta doce
+horas diarias, con una hora y media de descanso durante la jornada.
+Además para quienes eventualmente presten servicios en similares
+condiciones a las que señala el artículo 143 del código antes citado la
+jornada ordinaria de trabajo será la que ahí se establece.
