@@ -15,3 +15,4 @@ Reglamento de Procedimientos pago por Servicio Ambiental Hídrico
 | --- | --- | --- |
 | 1 | 2001-10-25 | la propia norma |
 | 2 | 2002-09-09 | Reglamento 2425 (2002-09-09) |
+| 3 | 2005-02-01 | Reglamento 28 (2005-02-01) |

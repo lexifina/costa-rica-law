@@ -1,6 +1,8 @@
+(Derogado)
 EMPRESA DE SERVICIOS PÚBLICOS DE HEREDTA,S. A.
 REGLAMENTO DE PROCEDIMIENTOS PAGO POR SERVICIO AMBIENTAL HÍDRICO
 EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA, S. A.
+(Este Reglamente fue DEROGADO mediante el inciso 14 del Acuerdo No. JD-028-2005, del 1° del febrero del 2005.)
 Antecedentes
 La Empresa de Servicios Públicos de Heredia, S. A. (ESPH, S. A.), según su Ley de Transformación (N° 7789 del 23 de abril 1998), tiene entre sus objetivos la conservación, administración y explotación racional de los recursos hídricos de la región de Heredia.
 La Empresa, en su afán de proteger el recurso hídrico y asegurar su abastecimiento futuro, logró ajustar ambientalmente su tarifa por servicio de agua potable. El ajuste ambiental consiste en incluir, en la tarifa de agua potable, el cobro de la tarifa hídrica, definida como a) el valor económico del servicio ambiental hídrico o servicio de producción de agua que brindan los bosques y b) el costo ambiental requerido para recuperar los sitios donde se ubican las fuentes de agua que suministra y c) a sufragar los gastos de operación de la Oficina Ambiental.
