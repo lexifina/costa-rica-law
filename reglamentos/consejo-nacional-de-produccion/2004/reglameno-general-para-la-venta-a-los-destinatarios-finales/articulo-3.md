@@ -1,0 +1,1 @@
+Artículo 3º—Se entenderán como principios de contratación administrativa los siguientes: eficiencia, igualdad, libre competencia, publicidad, legalidad o transparencia de los procedimientos, seguridad jurídica, formalismo de los procedimientos de contratación, equilibrio de intereses, buena fe, mutabilidad del contrato, intangibilidad patrimonial y control de los procedimientos.

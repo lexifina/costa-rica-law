@@ -1,0 +1,1 @@
+Artículo 14.—El adjudicatario que incumpla sus obligaciones será responsable ante el CNP por el monto de los daños y perjuicios ocasionados, si éstos no pueden ser cubiertos con las garantías rendidas.

@@ -1,0 +1,1 @@
+Artículo 13.—Cuando el adjudicatario no cumpliere con lo acordado se ejecutará la garantía de cumplimiento y se repetirá el mismo procedimiento hasta que se consiga vender los bienes en su totalidad, respetando el precio preestablecido.

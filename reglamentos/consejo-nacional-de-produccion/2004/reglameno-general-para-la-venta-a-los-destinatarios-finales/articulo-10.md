@@ -1,0 +1,1 @@
+Artículo 10.—El CNP podrá comunicar por medios electrónicos los actos del procedimiento cuando se pueda establecer por registros fidedignos que el destinatario ha sido informado debidamente, así como el día y la hora.

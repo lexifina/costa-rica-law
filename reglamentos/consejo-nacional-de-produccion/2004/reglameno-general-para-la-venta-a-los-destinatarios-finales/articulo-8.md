@@ -1,0 +1,1 @@
+Artículo 8º—El CNP podrá vender los bienes en su totalidad a un solo oferente o bien distribuirlos entre todos o algunos de los oferentes pero la decisión debe fundamentarse en motivos de interés público que deberán constar en el expediente del caso.

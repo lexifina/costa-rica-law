@@ -1,0 +1,1 @@
+Artículo 5º—De previo a iniciar el procedimiento de venta el Consejo Nacional de Producción en coordinación con el MEIC fijará el precio de venta de los bienes, para lo cual el CNP realizará un estudio preliminar que se remitirá al MEIC para su consideración final.
