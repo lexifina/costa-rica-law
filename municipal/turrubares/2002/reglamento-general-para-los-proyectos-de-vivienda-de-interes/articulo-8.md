@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De la elaboración del proyecto
+Artículo 8º—El Departamento de Ingeniería Municipal podrá elaborar el anteproyecto de los planos de lotificación a fin de abaratar los costos. Dicho departamento tendrá bajo su completa vigilancia la ejecución de las obras y que estas sean acordes al proyecto, sea o no finalizado por la Municipalidad de Turrubares. Para la ejecución del proyecto en lo referente a las obras de infraestructura, esta Municipalidad podrá eventualmente aceptar la ayuda técnica y asesoría de las empresas particulares reconocidas en el campo de la construcción de urbanización. En dado caso el departamento de ingeniería de la Municipalidad de Turrubares, deberá realizar las recomendaciones pertinentes.
