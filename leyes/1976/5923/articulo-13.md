@@ -1,1 +1,1 @@
-Artículo 13.- Esta ley rige a partir de su publicación.
+ARTICULO 13.- Esta ley rige a partir de su publicación.
