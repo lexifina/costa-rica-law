@@ -1,0 +1,2 @@
+Transitorio Unico: Considerando que para el logro de una eficiente organización acorde a los objetivos legales y reglamentarios propuestos es necesario un cambio estructural, el Despacho ordenará los movimientos de persona(sic) que corresponda. De conformidad con la legislación laboral vigente en el Régimen Público de empleo, no se concretará ninguna supresión de puesto hasta tanto no se hayan cumplido los procedimientos constitucionales y legales existentes.
+Dada en la Presidencia de la República. -San José, a los 17 días del mes de mayo de mil novecientos noventa y cuatro.
