@@ -13,3 +13,4 @@ Reforma Ley Presupuesto Ejercicio Económico 1994
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-03-25 | la propia norma |
+| 2 | 1994-03-25 | SINALEVI (sin norma nombrada) |
