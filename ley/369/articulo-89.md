@@ -1,0 +1,1 @@
+Artículo 89.-El que excitare, dirigiere o tomare parte en cencerradas u otras reuniones tumultuosas en ofensa o detrimento de alguna persona, será sancionado con arresto de uno a treinta días o multa de dos a sesenta colones.

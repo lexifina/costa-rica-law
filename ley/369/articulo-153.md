@@ -1,0 +1,1 @@
+Artículo 153.-Se impondrá arresto de uno a treinta días o multa de dos a sesenta colones, al que confiare o permitiere llevar o pusiere a su alcance armas peligrosas, materias explosivas o sustancias venenosas, a un ebrio o a cualquiera otra persona que evidentemente no sepa o no pueda manejarIas o hacer uso de ellas, sin peligro propio o para los demás.

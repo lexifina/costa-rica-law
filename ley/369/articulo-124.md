@@ -1,0 +1,1 @@
+Artículo 124.-Los dueños o encargados de ganado o animales domésticos que, por su abandono o negligencia, causaren un daño en la propiedad ajena, cualquiera que sea su cuantía, serán sancionados con arresto de uno a treinta días o multa de dos a sesenta colones.

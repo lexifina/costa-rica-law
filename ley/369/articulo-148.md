@@ -1,0 +1,1 @@
+Artículo 148.-Los gerentes o administradores de una empresa de utilidad o de servicio público, que faltaren a las reglas establecidas para su servicio, serán castigados con multa de treinta a trescientos sesenta colones, cuando el hecho no tenga señalada pena mayor.

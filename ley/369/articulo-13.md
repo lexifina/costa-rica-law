@@ -1,0 +1,1 @@
+Artículo 13.-No pierden el carácter de eximentes las circunstancias 5 y 6 del artículo anterior por el exceso de acción en que el reo incurra, si el exceso proviene de la perturbación de espíritu que la agresión ilegítima o el riesgo le hayan producido.

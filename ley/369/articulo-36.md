@@ -1,0 +1,1 @@
+Artículo 36..-La multa será satisfecha dentro de las veinticuatro horas siguientes a la firmeza de la sentencia que la imponga. Sin embargo, el juzgador podrá, bajo su responsabilidad y en casos muy calificados, conceder un plazo hasta de una semana, para el pago total de la multa.

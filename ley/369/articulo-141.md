@@ -1,0 +1,1 @@
+Artículo 141.-El que perturbare el orden en las sesiones del Congreso Constitucional, de la Corte Plena o de las Municipalidades, o en las reuniones electorales, o en las audiencias de los tribunales, o donde quiera que se celebre una asamblea pública o una autoridad se encuentre en función, sufrirá arresto de dos a noventa días o multa de cuatro a ciento ochenta colones.

@@ -1,0 +1,1 @@
+Artículo 72.-Los cansaren a otro cualquiera molestia o vejación no especificada en este capítulo, pero suficientemente desagradable para merecer corrección, incurrirán en la pena de uno a diez días de arresto o de dos a veinte colones de multa.

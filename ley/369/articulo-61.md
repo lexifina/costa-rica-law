@@ -1,0 +1,1 @@
+Artículo 61.-La prescripción, tanto de la acción penal como de la pena, se opera fatalmente por e! transcurso de! tiempo, y será declarada de oficio. La de la acción penal, sin embargo, se interrumpirá por la sentencia de primera instancia, aunque no esté firme.

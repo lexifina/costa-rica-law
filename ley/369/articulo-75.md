@@ -1,0 +1,3 @@
+Artículo 75.-El que amenazare a otro con un atentado contra su seguridad personal, o contra su propiedad, o contra su honestidad, o las de las personas de su familia, será detenido y no se le pondrá .en libertad hasta que dé garantía suficiente de haber desistido de su propósito.
+Si no la diere dentro de tres días, o fuere persona de antecedentes o índole que hagan presumible la ejecución del mal anunciado, se le impondrá de treinta a noventa días de arresto inconmutable.
+El que amenazare a otro con un mal distinto de los previstos en el párrafo primero. será penado con multa de dos a sesenta colones.

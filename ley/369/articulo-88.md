@@ -1,0 +1,1 @@
+Artículo 88.-EI que por cualquier medio divulgare hechos relativos a la vida privada de una persona o de una familia, que, sin ser calumniosos o injuriosos, puedan causar perjuicio, molestia o mortificación a dicha persona o familia, sufrirá la pena de uno a treinta días de arresto o multa de dos a sesenta colones.
