@@ -1,0 +1,2 @@
+Artículo 15.—Los datos consignados en los libros serán para todos los efectos, considerados como los oficiales y definitivos. Finalizada cada zafra, uno de los libros originales será archivado en las Oficinas Centrales de la Liga de la Caña, bajo la responsabilidad del Departamento Técnico, por un plazo de diez años, salvo que exista algún proceso legal de impugnación de tal información, que obligue a conservar los datos por un plazo mayor.
+El ingenio respectivo custodiará el otro libro, debiendo conservarlo por igual plazo.

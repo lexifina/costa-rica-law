@@ -1,0 +1,1 @@
+Artículo 8º—El ingenio deberá llevar un control de los análisis del azúcar pasado a la refinería, los cuales deberán ser verificados y aprobados por el Departamento Técnico de la Liga de la Caña, según los procedimientos de muestreo y análisis vigentes.

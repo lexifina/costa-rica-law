@@ -1,0 +1,1 @@
+Artículo 9º—El Departamento Técnico de la Liga de la Caña verificará diariamente por medio de sus inspectores, la cantidad de azúcar pasado a la refinería, así como los resultados de los análisis de ellas, con el objeto de confeccionar el Reporte de Molienda y Producción semanal, así como el respectivo asiento en los libros que se indican en el artículo 12 siguiente.

@@ -1,0 +1,1 @@
+Artículo 3º—El presente reglamento será de aplicación en aquellos casos en los cuales, se disponga la producción de azúcar refino o blanco de calidad especial en una refinería, sea en régimen de cuota o extracuota.
