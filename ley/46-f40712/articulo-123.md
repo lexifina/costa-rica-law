@@ -1,0 +1,2 @@
+ARTICULO 123.- A los funcionarios que administren justicia, no podrá suspendérseles de sus destinos, sin que preceda declaratoria de haber lugar a formación de causa; ni deponérseles, sino en virtud de sentencia ejecutoriada. Sin embargo, la Corte Suprema de Justicia, por el voto de dos tercios de sus miembros, podrá revocar la elección de cualquier Juez, y por el voto de la mayoría, la de cualquier Alcalde.
+(Así reformado por ley Nº 14 de 26 de mayo de 1898)
