@@ -1,0 +1,1 @@
+Artículo 6°-Las ventas de los lotes que realicen las Municipalidades o los Concejos Municipales en cumplimiento de esta Ley, no estarán sujetas a la Ley de Administración Financiera de la República, y el producto de la venta de los terrenos deberá ser aplicada a la compra y fraccionamiento de otros inmuebles.

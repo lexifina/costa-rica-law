@@ -1,0 +1,1 @@
+Artículo 3°-Los lotes vendidos por la respectiva Municipalidad no podrán ser arrendados, gravados, embargados, vendidos ni traspasados por ningún título a persona física o jurídica alguna, mientras no hayan sido totalmente pagados, y no hayan transcurrido 10 años desde la fecha de la respectiva renta.

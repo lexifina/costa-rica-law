@@ -1,0 +1,1 @@
+Artículo 8°-En efecto de disposiciones propias de este REGLAMENTO, deberá tenerse como supletorias la Ley General de la Administración Pública, el Código Municipal y las demás leyes, decretos, reglamentos conexos de la materia que estén en vigencia en el país.
