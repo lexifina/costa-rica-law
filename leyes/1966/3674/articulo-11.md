@@ -1,1 +1,2 @@
-Artículo 11.- El Director General presentará anualmente un informe general de actividades al Consejo Directivo, con cuya aprobación lo hará llegar al Ministro de la Presidencia. Rendirá además los informes parciales que le pida el Consejo.
+Artículo 11.- El Director General presentará anualmente un informe general de actividades al Consejo Directivo, con cuya aprobación lo hará llegar al Ministro de Cultura, Juventud y Deportes. Rendirá además los informes parciales que le pida el Consejo.
+(Así reformado TÁCITAMENTE por el artículo 5º de la Ley de Creación del Ministerio de Cultura, Juventud y Deportes No.4788 del 5 de julio de 1971)

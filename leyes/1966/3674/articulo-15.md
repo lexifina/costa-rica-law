@@ -1,1 +1,2 @@
-Artículo 15.- Se autoriza a las Municipalidades e instituciones del Estado, a contribuir para la realización de los programas del Movimiento. Este podrá hacer gestiones financieras ante los organismos internacionales, previa autorización del Ministerio de la Presidencia.
+Artículo 15.- Se autoriza a las Municipalidades e instituciones del Estado, a contribuir para la realización de los programas del Movimiento. Este podrá hacer gestiones financieras ante los organismos internacionales, previa autorización del Ministerio de Cultura, Juventud y Deportes.
+(Así reformado TÁCITAMENTE por el artículo 5º de la Ley de Creación del Ministerio de Cultura, Juventud y Deportes No.4788 del 5 de julio de 1971)
