@@ -15,3 +15,4 @@ Reglamento a la Ley para el Desarrollo y Ejecución del Proyecto Turístico Golf
 | --- | --- | --- |
 | 1 | 1996-09-11 | la propia norma |
 | 2 | 2001-08-30 | Decreto Ejecutivo 29794 (2001-08-30) |
+| 3 | 2004-05-21 | Decreto Ejecutivo 31991 (2004-05-21) |
