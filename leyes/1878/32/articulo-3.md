@@ -1,0 +1,1 @@
+Art. 3°-Las acciones ejecutivas que por razón de costas deban establecerse, lo serán ante el Alcalde tercero de la capital de la respectiva Provincia; el cual, procediendo como funcionario de Hacienda
