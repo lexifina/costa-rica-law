@@ -1,0 +1,4 @@
+Artículo 2°-Para los efectos de este Reglamento, se entiende por:
+a) Patrono: A la Municipalidad del Cantón de Carrillo con domicilio en Filadelfia.
+b) Representantes patronales: El Ejecutivo Municipal y en general todas aquellas personas que debidamente autorizadas por el primero ejerzan, dentro de la Municipalidad, funciones de dirección, administración o en ambos géneros. Los representantes patronales, obligan al patrono en las relaciones que tengan con los servidores de la Municipalidad como si este personalmente hubiera realizado el acto o actos de que se trate.
+c) Servidores: Las personas físicas que presten a la Municipalidad sus servicios materiales, intelectuales o de ambos géneros en forma subordinada y a cambio de una retribución o salario, sea en forma permanente o transitoria y como consecuencia de una relación de servicio. Para efectos de este reglamento son equivalentes los términos: servidor, empleado, funcionario público o municipal.

@@ -1,0 +1,1 @@
+Artículo 71.-En efecto de disposiciones propias de este Reglamento deberá tenerse como supletorias la Ley General de la Administración Pública, el Código Municipal y el Código de Trabajo y demás leyes, decretos y reglamentos conexos de la materia, que estén en vigencia en el país.
