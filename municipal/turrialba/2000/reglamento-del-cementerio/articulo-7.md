@@ -1,0 +1,1 @@
+Artículo 7°—Para toda reparación que modifique el estado de un nicho o mausoleo, es necesario la autorización del Departamento de ingeniería, previa solicitud del interesado, el Departamento de Ingeniería facilitará los formularios adecuados a precio de costo, previo pago de un timbre, cuyo valor será fijado por el departamento financiero de la Municipalidad.

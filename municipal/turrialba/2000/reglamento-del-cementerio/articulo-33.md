@@ -1,0 +1,1 @@
+Artículo 33.—La Junta Administrativa del cementerio podrá arrendar parcelas a quien lo solicite por escrito, para cualquier sepultura o nicho o en la forma que estén construidos no podrán tener comunicación dirección especial con el exterior del cementerio.

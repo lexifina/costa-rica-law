@@ -1,0 +1,1 @@
+Artículo 5°—La Corporación Municipal subvencionará de su presupuesto de sanidad, para las mejoras, conservación y mantenimiento del cementerio, una suma anual igual a la recaudación total de derechos percibidos en el año anterior.

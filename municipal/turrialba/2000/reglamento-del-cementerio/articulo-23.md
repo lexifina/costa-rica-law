@@ -1,0 +1,1 @@
+Artículo 23.—Los cadáveres deberán presentarse encerrados en cajas de madera livianas. No se permitirán inhumaciones de más de un cadáver en la misma caja, salvo cuando se tratase de madre y recién nacido en el acto del parto.

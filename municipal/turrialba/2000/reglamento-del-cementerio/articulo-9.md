@@ -1,0 +1,1 @@
+Artículo 9°—Los interesados en construir mausoleos, nichos u otras edificaciones en el cementerio, tendrán la obligación de presentar copia del contrato de construcción de la edificación que pretenden así como estar al día en el pago de impuestos u otras obligaciones dinerarias para con a Municipalidad de Turrialba.

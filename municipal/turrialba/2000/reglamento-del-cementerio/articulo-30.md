@@ -1,0 +1,1 @@
+Artículo 30.—Los mausoleos, nichos, etc. se pintarán única y exclusivamente con pintura blanca, pudiéndose ocupar pintura negra para señalar las letras. Los empleados del cementerio no permitirán que se use otro color de pintura, medida que se toma para guardar la mejor presentación del Campo Santo.

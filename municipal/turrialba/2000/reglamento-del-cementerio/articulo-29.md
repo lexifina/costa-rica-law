@@ -1,0 +1,1 @@
+Artículo 29.—Para realizar trabajos de construcción, mejoramiento pintura de mausoleos, nichos, etc., en el cementerio, es requisito "dispensable estar al día en el pago de los correspondientes derechos, sin el cual los empleados del cementerio no permitirán trabajo alguno.

@@ -1,0 +1,1 @@
+Artículo 11.—Se establece el cobro de arrendamiento de los lotes en el cementerio, que deberán cubrir los interesados, cuyo valor será fijado por el departamento financiero, y será cancelado en forma anual. Este dinero debe ser percibido por la municipalidad a través de la tesorería mediante el sistema creado para tal efecto.

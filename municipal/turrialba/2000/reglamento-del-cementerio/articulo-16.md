@@ -1,0 +1,1 @@
+Artículo 16.—El cementerio estará debidamente delimitado por un muro o cerca de no menor de dos metros de alto, se podrán sembrar árboles ornamentales con poco desarrollo de raíces para evitar problemas a las sepulturas, el encargado del cementerio coordinará con la Junta Administrativa que tipo de árboles ornamentales podrán sembrarse en el cementerio.

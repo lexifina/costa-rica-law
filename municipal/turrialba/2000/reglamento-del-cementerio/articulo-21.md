@@ -1,0 +1,1 @@
+Artículo 21.—La presentación del permiso para inhumación será por lo menos seis horas antes del entierro, a fin de que el jefe del cementerio revise los registros y otros y pueda determinar el nicho o fosa que haya de ocuparse.

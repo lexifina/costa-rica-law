@@ -1,0 +1,1 @@
+Artículo 39.—Para todos los problemas que se presenten a la Junta Administrativa que sean de carácter legal y que no pueden ser resueltos por ésta, serán enviados en consulta al Departamento Legal de la Municipalidad, el cual prestara el asesoramiento respectivo para la correspondiente solución.

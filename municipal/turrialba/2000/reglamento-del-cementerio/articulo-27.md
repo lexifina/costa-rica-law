@@ -1,0 +1,1 @@
+Artículo 27.—La Junta Administrativa procederá a comunicar a los dueños de los nichos, mausoleos y demás, que mantengan éstos en estado presentable, de no hacerlo así. la Junta procederá a su arreglo y después será recargado en el pago de derecho anual.

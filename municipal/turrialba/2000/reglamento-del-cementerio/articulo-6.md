@@ -1,0 +1,1 @@
+Artículo 6°—Los dineros por derechos de arriendo de parcelas, construcción de sepulturas o nichos, derechos de inhumación, derechos de exhumación etc. Se pagarán a nombre de la Municipalidad de Turrialba, en el edificio principal, situado a un costado del parque Quesada Casal cumpliendo los trámites que al efecto se establezcan.

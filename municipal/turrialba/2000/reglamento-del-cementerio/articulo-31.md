@@ -1,0 +1,1 @@
+Articulo 31.—Las personas a quienes corresponda el dominio sobre alguna porción de terreno en el cementerio, pueden completar las construcciones a que tengan derecho; repararlas o reedificarlas de modo conveniente con tal que se ajuste a las condiciones de su adquisición, de do con la ley y el presente Reglamento.

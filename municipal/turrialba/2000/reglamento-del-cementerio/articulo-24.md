@@ -1,0 +1,1 @@
+Artículo 24.—Las fosas para inhumaciones se excavaran hasta dos metros del plano superficial del cementerio y medirán en su parte mas honda 1,80 metros por 0,80 metros de ancho, las de los niños menores de siete años tendrán la misma profundidad, pero medirán 1.50 metros de largo por 0,50 meros de ancho la distancia será la misma que para adultos.

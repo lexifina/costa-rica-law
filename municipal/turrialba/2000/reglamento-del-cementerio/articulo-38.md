@@ -1,0 +1,1 @@
+Artículo 38.—No podrá realizarse la exhumación de ningún cadáver antes de la destrucción de las partes blandas. El plazo fijado para ello no puede ser menor de cinco años de la inhumación. El Ministerio de Salud Publica podrá en casos muy calificados autorizar la exhumación respectiva, así como también el Poder Judicial mediante orden expresa.

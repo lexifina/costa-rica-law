@@ -1,0 +1,1 @@
+Artículo 45.—El presente Reglamento, deroga cualquier otra disposición reglamentaria emitida por la Municipalidad de Turrialba, para la administración del Cementerio La Paz Eterna de la Ciudad de Turrialba.

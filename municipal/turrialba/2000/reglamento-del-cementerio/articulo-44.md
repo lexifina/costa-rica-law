@@ -1,0 +1,1 @@
+Artículo 44.—La Junta Administrativa tendrá un libro de actas debidamente foliado y firmado por el Alcalde Municipal, donde se harán constar sus acuerdos. Este libro lo tendrá en su poder el secretario(a) durante el período de su nombramiento.

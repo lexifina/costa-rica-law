@@ -1,0 +1,2 @@
+Artículo 46.—Este Reglamento tendrá vigencia a partir de su aprobación definitiva por parte de la Corporación Municipal y luego de haberse ordenado su publicación en el Diario Oficial La Gaceta, previo cumplimiento de lo dispuesto por el artículo 43 del Código Municipal vigente a la fecha.
+Este Reglamento fue aprobado por el Concejo Municipal de Turrialba, en la sesión ordinaria N° 41-2000 celebrada el día viernes 20 de octubre del 2000, en el inciso 3, aparte b, del Artículo Segundo.

@@ -1,0 +1,1 @@
+Artículo 19.—El personal del cementerio tendrá listo como obligación de su trabajo, un hueco para inhumar adultos y otro para inhumar niños, ambos deberán acondicionarse debidamente para evitar accidentes y podrán ser ocupados en casos de emergencia, previo pago a la Municipalidad según lo estipulado en él artículo 12 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 8°—El jefe del cementerio tendrá la obligación de presentar a la Junta Administrativa todos los documentos necesarios para el otorgamiento del permiso de construcción, como también presentar un informe de las inhumaciones, exhumaciones, traslados de restos etc. Este informe tendrá que presentarlo cada fin de mes, con copia al Alcalde Municipal.

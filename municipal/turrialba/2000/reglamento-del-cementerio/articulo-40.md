@@ -1,0 +1,1 @@
+Artículo 40.—Todas las Oficinas o Departamentos Municipales, que tengan relación con el cementerio tienen el deber de prestar toda la colaboración que la Junta Administrativa solicite, siempre que sean relacionadas con problemas del cementerio.

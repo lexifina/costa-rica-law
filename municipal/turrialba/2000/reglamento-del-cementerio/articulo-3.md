@@ -1,0 +1,1 @@
+Artículo 3°—La Junta queda facultada para otorgar todos los permisos de construcción de nichos, mausoleos y los respectivos contratos de arrendamiento. Para el otorgamiento de los permisos deberá coordinar con la persona encargada del cementerio y el departamento municipal correspondiente, de tal forma que exista un adecuado control de los espacios a arrendar.
