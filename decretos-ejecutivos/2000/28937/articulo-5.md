@@ -1,1 +1,0 @@
-Artículo 5º—La Secretaría del Plan Nacional de Desarrollo Urbano es una instancia permanente y estará conformada por un equipo técnico de funcionarios de las instituciones así como por funcionarios municipales de las diferentes regiones del país, una vez firmados los convenios respectivos.
