@@ -1,0 +1,2 @@
+45.-Por el despacho de buques de vela o de vapor que realicen en el puerto la carga o la descarga, o una u otra completa o parcialmente, derecho proporcional. Naves de cincuenta hasta mil toneladas de registro pagarán cincuenta dólares ($ 50-00); las que tengan mayor tonelaje pagarán además un dólar ($ 1-00) por cada cien toneladas o fracción de cien toneladas de exceso.
+Estos derechos serán satisfechos en la administración de la aduana del puerto del destino del buque, conforme a la liquidación que el Cónsul consignará en la patente de zarpe.

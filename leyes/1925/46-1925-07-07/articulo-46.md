@@ -1,0 +1,1 @@
+46.-Las mercaderías que por leyes o concesiones especiales se importen para las corporaciones públicas o establecimientos de beneficencia, con excepción de todo derecho de importación, quedarán igualmente exentas del impuesto consular que esta ley establece.
