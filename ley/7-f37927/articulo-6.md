@@ -1,0 +1,1 @@
+Artículo 6°. —Para la renovación de una marca de fábrica ó de comercio bastará la declaración del propietario en la oficina correspondiente, hecha dentro de los treinta días siguientes al del vencimiento de la concesión. Pasado este término caducará el derecho adquirido.

@@ -1,0 +1,1 @@
+Artículo 8°. —Serán responsables solidariamente por las defraudaciones cometidas contra la propiedad de marcas de fábrica y de comercio, salvo prueba de inculpabilidad, la persona por cuya cuenta se cometa el fraude, los autores de la falsificación y los importadores y expendedores del objeto ó producto falsificado.
