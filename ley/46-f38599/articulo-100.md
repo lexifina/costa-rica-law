@@ -1,0 +1,1 @@
+Art. 100. —Es nula toda la votación cuando no se haya verificado en el día y hora señalados por la ley ó por la convocatoria. También lo es cuando durante la votación se hubiere ejercido coacción notoria con armas sobre los sufragantes ó las Juntas ó Asambleas, por particulares ó funcionarios públicos.

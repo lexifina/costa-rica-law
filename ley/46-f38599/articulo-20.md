@@ -1,0 +1,1 @@
+Art. 20. —Lo establecido en este capítulo, para las Juntas principales de distrito, en cuanto á calidades de sus miembros, organización, juramento y residencia, es también aplicable á las juntas auxiliares que con arreglo al artículo 32 llegaren á nombrarse. Asimismo les es aplicable lo que disponen los artículos 17 y 18 de la presente ley.

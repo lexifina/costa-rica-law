@@ -1,0 +1,1 @@
+Art. 108. —Los Jefes Políticos ejecutarán en el cantón de su mando, las mismas atribuciones fijadas en el artículo anterior á los Gobernadores, dando á éstos inmediatamente cuenta de sus procedimientos.

@@ -1,0 +1,1 @@
+Art. 45. —La junta resolverá sobre las excusas que presenten los nombramientos para ejercer el cargo por enfermedad grave que les impida desempeñar las funciones, y cuando fuesen presentadas ó depositadas en la oficina de correos dentro de cuarenta y ocho horas después de recibida la comunicación de la elección.

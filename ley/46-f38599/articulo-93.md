@@ -1,0 +1,1 @@
+Art°. 93. —En cualquier tiempo en que un Diputado se inhabilitare, después de admitido en el Congreso, por alguna de las causas enumeradas en el art°. 87, se declarará por el Congreso su inhabilidad y perderá inmediatamente el cargo.

@@ -1,0 +1,1 @@
+Art. 130. —Las Municipales nombradas para el presente año seguirán funcionando durante el año próximo hasta el primero de Mayo, fecha en que tomarán posesión las que para este último período nombraren las Asambleas Electorales.

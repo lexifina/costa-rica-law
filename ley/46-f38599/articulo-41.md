@@ -1,0 +1,1 @@
+Art. 41. —Si por algún evento se extraviase alguno de los pliegos que contuviere un registro de elecciones de distrito, el Presidente de la Junta de provincia ó comarca pedirá por expreso al Presidente de la Junta de distrito el ejemplar de los registros que ha debido quedar en poder de este funcionario.

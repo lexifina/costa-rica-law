@@ -1,0 +1,1 @@
+Art. 122. —Cuando alguna corporación pública ó funcionario faltare al cumplimiento de los deberes que le impone esta ley, cuya falta no tenga pena señalada, incurrirá en una multa de veinticinco á cien pesos; pero si de la falta resultare que no se hace una votación ó que se incurre en alguna nulidad, la multa será doble.

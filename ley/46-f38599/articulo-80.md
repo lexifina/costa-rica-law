@@ -1,0 +1,1 @@
+Art°. 80. —Si del escrutinio resultare que ninguno ha reunido la mayoría absoluta, ó se declarare conforme á lo dispuesto en el artículo 78, que no hay elección, se procederá á perfeccionarla entre los dos ó más que hayan obtenido mayor número de votos, anunciando el Presidente cuáles son aquéllos entre quienes se deba recaer la elección.
