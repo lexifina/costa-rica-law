@@ -1,0 +1,1 @@
+Artículo 13.—El colegiado respetará en todo momento y circunstancias, el buen nombre, dignidad y honra del colega y se abstendrá de toda expresión o juicio que pueda ir en mengua de su buena reputación y prestigio.

@@ -1,0 +1,1 @@
+Artículo 14.—Será deber del colegiado negar todo apoyo al colega cuya labor sea deficiente o su conducta moral resulte tan seriamente reprochable, que desnaturalice y desprestigie a los profesionales en ciencias económicas y al Colegio. Además, deberá poner en conocimiento del Colegio cualquier conducta censurable observada en sus colegas.
