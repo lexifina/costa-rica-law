@@ -14,3 +14,4 @@ Reglamento General de Créditos y Avales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-01 | la propia norma |
+| 2 | 2003-08-25 | Reglamento 3272 (2003-08-25) |
