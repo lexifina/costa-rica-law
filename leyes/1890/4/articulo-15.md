@@ -1,0 +1,3 @@
+Artículo 15:--El Gobierno trasfiere al concesionario trescientas mil hectáreas de terrenos baldíos, en los lúgares que éste tenga á bien elegir, siempre que no sean los excluidos hasta hoy por contratos y leyes vigentes, ni los denunciados por particulares.
+El sitio ó sitios elegidos se dividirán en lotes de dos mil quinientas hectáreas, máximun cada uno, los cuales se adjudicarán al concesionario alternando con otros de igual tamaño, que se reserva el Gobierno.
+La medida y amojonamiento de todos los terrenos elegidos se harán de acuerdo con el Gobierno, y los gastos se harán de cuenta del concesionario.

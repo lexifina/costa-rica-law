@@ -1,0 +1,1 @@
+Artículo 30.-Al vencimiento del término de esta concesión pasará la línea con todos sus materiales fijos y rodantes, estaciones, edificios y demás accesorios á propiedad de la Nación, sin que ésta tenga que indemnizar cantidad alguna. Todos los objetos indicados deberán entregarse por la Empresa en perfecto estado de servicio.

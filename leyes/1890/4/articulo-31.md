@@ -1,0 +1,1 @@
+Artículo 31.-Toda cuestión ó diferencia que surja entre el Gobierno y el concesionario con motivo de este contrato, será fallado por árbitros arbitradores de nombramiento de las partes. En caso de discordia los arbitradores nombrarán un tercero. El laudo arbitral será inapelable.

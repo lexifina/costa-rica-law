@@ -1,0 +1,1 @@
+Artículo 4°-El ferrocarril partirá de la ciudad de Puntarenas, pasará por el valle del Río Grande y terminará en el punto que elija el concesionario de las inmediaciones de esta ciudad de San José, en toda la zona del Suroeste.

@@ -1,0 +1,4 @@
+Artículo 25. -Las Legaciones nacionales ó extranjeras, los Resguardos, Agentes de Policía en ser- vicio, las Malas del Gobierno, los reos, su escolta y testigos en causas criminales, se conducirán gratis.
+Las tropas nacionales en servicio activo con sus equipajes y armas pagarán la mitad de las tarifas publicadas.
+En tiempo de guerra se pondrán trenes al servicio del Gobierno, á la hora que se pidan, previo aviso dado con oportunidad á la Empresa. En este caso se cobrará tan sólo la tercera parte de las tarifas vigentes.
+Con el mismo aviso previo se pondrá en cualquier tiempo un tren expreso para el Presidente de la República ó sus Secretarios de Estado, por el precio de cincuenta pesos por cada viaje ó por toda la extensión de la línea. Para este objeto tendrá el concesionario un carro especial.
