@@ -1,8 +1,2 @@
-Artículo 42.—El secretario del Consejo tendrá las siguientes funciones:
-a) Firmar el libro de actas y repartirlas entre los miembros, tener listas copias de las actas un día antes de la sesión respectiva, para su discusión.
-b) Rendir los informes que le sean solicitados por el Consejo.
-c) Certificar la asistencia a las sesiones de los miembros del Consejo, propietarios y suplentes, para efectos de pago de las dietas respectivas.
-d) Presentar al Consejo los asuntos que considere que deben ser de su conocimiento.
-e) Comunicar las resoluciones del Consejo, cuanto ello no se ha encomendado o reservado expresamente al presidente.
-f) Certificar las actas o acuerdos del Consejo.
-g) En general, realizar todas las labores propias de su cargo.
+Artículo 42.—El Secretario devengará en calidad de dieta por cada sesión celebrada a la que asista una cantidad económica igual a la percibida por los directores, sin embargo el número de dietas no excederá de 50 al año. El caso del Secretario constituye una excepción a las disposiciones del artículo cuarto de la Ley de Administración Financiera de la República, tal y como lo establece el Decreto Ley 832 del 4 de noviembre de 1949 y sus reformas.
+(Así reformado por Decreto ejecutivo N° 27306 de 12 de agosto de 1998).
