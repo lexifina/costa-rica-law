@@ -1,0 +1,1 @@
+Artículo 11.—Las ayudas a indigentes que concederá la Municipalidad de Belén podrán ser en dinero en efectivo, en materiales o en víveres, según la recomendación que, de acuerdo con lo establecido en el Artículo 5 anterior, realizará la Dirección de Desarrollo Social.

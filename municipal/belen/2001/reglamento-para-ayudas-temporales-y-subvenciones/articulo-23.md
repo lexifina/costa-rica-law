@@ -1,0 +1,1 @@
+Artículo 23.—El beneficiario de una subvención deberá presentara la Municipalidad, un informe sobre el uso dado a los recursos transferidos. Esa información será verificada por la Dirección de Desarrollo Social de lo cual dejará constancia en el expediente respectivo.

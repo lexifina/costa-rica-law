@@ -1,0 +1,1 @@
+Artículo 14.—En caso de que el interesado haya suministrado datos falsos o cualquier situación irregular que haya inducido a error a la Municipalidad, obligará a suspender el trámite respectivo y de inmediato dejar sin efecto la ayuda decretada, así como a realizar todas las demás acciones civiles y penales que puedan caber para el caso en particular.

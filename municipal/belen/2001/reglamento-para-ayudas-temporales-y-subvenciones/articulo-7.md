@@ -1,0 +1,1 @@
+Artículo 7°—Estas ayudas serán autorizadas por ia Jefatura de la Dirección de Desarrollo Social, hasta por un monto máximo de dos Salarios base, de la clase de puesto Oficinista 1 con que cuenta la Administración Pública: con base en la recomendación del estudio socioeconómico, definido en el Artículo 5 anterior.
