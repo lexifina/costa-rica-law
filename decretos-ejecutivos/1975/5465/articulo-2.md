@@ -1,0 +1,1 @@
+Artículo 2°-Unicamente se podrá hacer uso del Hipnotismo por parte de los profesionales en Medicina, Psicólogos Clínicos o Cirujanos Dentistas para el tratamiento de enfermedades y como recurso analgésico cuando así se amerite y sólo dentro del campo de su especialidad profesional.
