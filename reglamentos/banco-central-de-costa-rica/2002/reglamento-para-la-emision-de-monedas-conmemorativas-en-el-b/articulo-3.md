@@ -1,0 +1,1 @@
+Artículo 3º—Además de las condiciones estipuladas en el artículo 2º de la Ley Nº 5291, el motivo alusivo al diseño de las monedas conmemorativas deberá tener un alto contenido artístico que evidencie su relación con el acto que se conmemora.

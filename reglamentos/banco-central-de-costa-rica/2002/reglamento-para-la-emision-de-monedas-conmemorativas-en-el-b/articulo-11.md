@@ -1,0 +1,1 @@
+Artículo 11.—Queda facultada la Tesorería del Banco Central para que las monedas conmemorativas de oro y plata que ingresen al Banco Central mediante depósitos del Sistema Financiero Nacional o vía servicio de cajas, sean vendidas por el valor que, a la fecha de la venta, tenga el material en el mercado internacional, par lo cual debe previamente mutilarlas.

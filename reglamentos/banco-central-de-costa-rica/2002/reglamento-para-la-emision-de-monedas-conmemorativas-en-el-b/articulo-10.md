@@ -1,0 +1,1 @@
+Artículo 10.—Con el propósito de evitar distorsiones y confusiones en la población, bajo ninguna circunstancia, el Banco Central de Costa Rica emitirá monedas conmemorativas cuyas denominaciones o rasgos se asemejen a las del cono monetario regular del país.

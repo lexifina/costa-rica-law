@@ -1,0 +1,1 @@
+Artículo 4º—La Junta Directiva del Banco Central conocerá las propuestas para la emisión de monedas conmemorativas, siempre y cuando el hecho o acontecimiento que se desea conmemorar cumpla con las definiciones mencionadas en el artículo 2º anterior. Para tales efectos, la Junta Directiva autorizará hasta dos emisiones anuales de monedas conmemorativas.

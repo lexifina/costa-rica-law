@@ -1,0 +1,1 @@
+Artículo 9º—Con el fin de cumplir con los criterios que prevalecen en el mercado numismático internacional, las monedas conmemorativas que emita el Banco Central de Costa Rica serán acuñadas exclusivamente en oro y plata, con su respectivo estuche.
