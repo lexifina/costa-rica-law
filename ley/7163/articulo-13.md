@@ -1,1 +1,0 @@
-Artículo 13.- Aquellas personas físicas o jurídicas cuyas actividades estén distribuidas en uno o más cantones, aparte del cantón de Nicoya, motivo por el cual estén sujetas al pago de patentes en esos cantones, deberán determinar qué proporción del volumen de sus negocios se genera en el cantón de Nicoya, para efectos del pago del impuesto.

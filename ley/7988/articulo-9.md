@@ -1,0 +1,1 @@
+Artículo 9°- Licencias y patentes en un establecimiento. Cuando en un establecimiento realicen actividades varias sociedades o personas físicas, el monto de la imposición se determinará de la suma total del impuesto que le corresponde a cada una.
