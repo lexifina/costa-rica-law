@@ -16,3 +16,4 @@ Reglamento Interno para Contratos Administrativos. (NOTA: Mediante sesión No. 4
 | 1 | 1993-03-22 | la propia norma |
 | 2 | 1995-03-06 | Reglamento 4537 (1995-03-06) |
 | 3 | 1996-09-02 | Reglamento 4666 (1996-09-02) |
+| 4 | 1997-05-23 | Reglamento 4719 (1997-05-23) |
