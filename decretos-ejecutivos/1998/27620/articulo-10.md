@@ -1,1 +1,0 @@
-Artículo 10.—La Autoridad Administrativa podrá tramitar, aprobar o denegar las solicitudes de permisos de importación, exportación y reexportación de la flora y la fauna silvestre, previa recomendación, emitida por la Autoridad Científica, dentro del plazo máximo de 30 días, debiendo notificar su decisión al administrado.

@@ -1,1 +1,0 @@
-Artículo 8°—El Consejo de Representantes de las Autoridades Científicas deberán sesionar, como mínimo una vez por mes, en forma ordinaria y extraordinaria cuando se requiera por convocatoria de su Coordinador, Secretario o a solicitud de la Autoridad Administrativa,
