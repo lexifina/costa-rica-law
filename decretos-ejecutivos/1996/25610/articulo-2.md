@@ -1,0 +1,3 @@
+Artículo 2°—Adiciónese un inciso al artículo 9 del decreto ejecutivo No 25068-S de 21 de marzo de 1996, publicado en "La Gaceta" No 78 de 24 de abril de 1996 "Reglamento de Servicio Social Obligatorio para los Profesionales en Ciencias de la Salud", para que en lo sucesivo se lea así:
+"Artículo 9°—...
+g) Cuando el participante no sea hispanoparlante, deberá presentar un certificado extendido por la Escuela de Lenguas Modernas de la Universidad de Costa Rica, donde conste que lee, habla y escribe bien el idioma español."
