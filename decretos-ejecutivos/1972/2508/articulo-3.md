@@ -1,0 +1,1 @@
+Artículo 3°-Los beneficios que en virtud de este decreto se otorgan al señor Juan de Dios Freer Solano, podrán ser modificados o regulados en virtud de convenios, protocolos, acuerdos o resoluciones de los organismos del Tratado General de Integración Económica Centroamericana.

@@ -1,0 +1,1 @@
+Artículo 6°- En el caso de que el empresario llegue a colocarse de hecho en situación de monopolio, el Ministerio de Economía, Industria y Comercio podrá verificar los costos de producción y fijar el precio de venta de sus productos.
