@@ -1,1 +1,1 @@
-Artículo 27.—En lo no expresamente regulado en este reglamento, la actividad del órgano se regirá por lo estipulado en el decreto ejecutivo 22198, sobre esta materia.
+Artículo 27.—(DEROGADO mediante el artículo 1 del Decreto Ejecutivo No. 28456, del 24 de febrero del 2000).

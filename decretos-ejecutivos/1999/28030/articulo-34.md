@@ -1,1 +1,1 @@
-Artículo 34.—La Administración del Centro deberá llevar, además del libro de Actas, un registro de los casos analizados, a efecto de informar mensualmente a la Dirección Administrativa lo que corresponda.
+Artículo 34.—(DEROGADO mediante el artículo 1 del Decreto Ejecutivo No. 28456, del 24 de febrero del 2000).

@@ -14,3 +14,4 @@ Reglamento de Valores en Custodia y Fondo de Ayuda a Privados de Libertad del Si
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-17 | la propia norma |
+| 2 | 2000-01-10 | Decreto Ejecutivo 28456 (2000-01-10) |

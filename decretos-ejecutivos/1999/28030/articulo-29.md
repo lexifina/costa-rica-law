@@ -1,1 +1,1 @@
-Artículo 29.—Corresponde a la Dirección Administrativa girar las instrucciones a los diferentes departamentos que intervienen en la emisión del monto acordado, para que procedan con celeridad, debiéndose en todo caso darle el carácter de prioritario al trámite que corresponda.
+Artículo 29.—(DEROGADO mediante el artículo 1 del Decreto Ejecutivo No. 28456, del 24 de febrero del 2000).

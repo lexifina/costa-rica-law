@@ -1,2 +1,1 @@
-Artículo 31.—Corresponde al Administrador del Centro, en coordinación con el Director, efectuar las acciones pertinentes a fin de hacer efectiva la ayuda, esto en los cinco días hábiles siguientes al retiro del cheque.
-En caso de ayuda por: productos alimenticios, vestuario, material educativo y otros indicados de conformidad con lo contemplado en el artículo 20 del presente Reglamento; corresponde al Centro de Atención establecer el mecanismo de entrega, de manera que ello no implique el traslado del funcionario hasta la residencia del beneficiario.
+Artículo 31.—(DEROGADO mediante el artículo 1 del Decreto Ejecutivo No. 28456, del 24 de febrero del 2000).

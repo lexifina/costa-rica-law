@@ -1,3 +1,3 @@
 CAPITULO 4
 Procedimiento de ejecución y control
-Artículo 28.—Una vez aprobada la solicitud, el Administrador del Centro respectivo debe remitir el acuerdo de aprobación en un plazo de dos días hábiles a la Dirección Administrativa.
+Artículo 28.—(DEROGADO mediante el artículo 1 del Decreto Ejecutivo No. 28456, del 24 de febrero del 2000).

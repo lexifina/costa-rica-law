@@ -1,1 +1,1 @@
-Artículo 32.—Compete al Área Comunitaria efectuar la evaluación de los resultados de la gestión de ayuda. De lo anterior presentará un informe al órgano.
+Artículo 32.—(DEROGADO mediante el artículo 1 del Decreto Ejecutivo No. 28456, del 24 de febrero del 2000).

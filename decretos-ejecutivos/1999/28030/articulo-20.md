@@ -1,1 +1,1 @@
-Artículo 20.—Podrán gestionar la ayuda económica, las personas privadas de libertad que deban cubrir necesidades básicas urgentes, suyas o de su núcleo familiar, siguiendo los procedimientos establecidos.
+Artículo 20.— (DEROGADO mediante el artículo 1 del Decreto Ejecutivo No. 28456, del 24 de febrero del 2000).
