@@ -1,0 +1,1 @@
+Artículo 11.-Semanalmente los jefes de las distintas dependencias, deberán dirigir a la Oficina de Transportes, un programa de las necesidades del vehículo, a fin de hacer las asignaciones correspondientes para la semana siguiente, estipulando claramente prioridades según los casos.

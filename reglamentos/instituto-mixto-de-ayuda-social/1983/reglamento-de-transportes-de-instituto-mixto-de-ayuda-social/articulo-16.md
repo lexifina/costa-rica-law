@@ -1,0 +1,1 @@
+Articulo 16.-La Oficina de Transportes deberá registrar el uso de combustible de toda la Institución y por vehículo. Dicho registro se realizará a través de la entrega de cupones de consumo de combustible en orden consecutivo, conforme como se indica en formularios números S.T. -6 y S.T. -7.

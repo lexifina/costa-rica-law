@@ -1,0 +1,1 @@
+Artículo 27.-Es prohibido a todo conductor de vehículos del Instituto, ingerir bebidas embriagantes. El desacato a esta disposición, es falta grave, que puede dar base a despido sin responsabilidad patronal, y sin perjuicio de la responsabilidad en que Incurra en caso de accidente, por todos los daños causados.

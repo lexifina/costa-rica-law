@@ -1,0 +1,1 @@
+Artículo 5°-Todos los vehículos, a excepción de los denominados “de uso discrecional" llevarán el Logotipo de la Institución y las leyendas "IMAS uso oficial", que serán pintadas en letras negras en franja color zapote.

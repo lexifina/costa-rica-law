@@ -1,0 +1,1 @@
+Articulo 28.-Todo conductor de vehículo del IMAS, está obligado a informar en fórmulas que recibirá del Departamento de Transportes, si el vehículo se halla en buen funcionamiento, en caso contrario, deberá anotar las fallas que aprecie.

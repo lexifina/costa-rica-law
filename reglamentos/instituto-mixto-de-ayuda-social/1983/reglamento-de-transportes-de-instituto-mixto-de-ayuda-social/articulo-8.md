@@ -1,0 +1,1 @@
+Artículo 8°-Los vehículos serán conducidos por las personas nombradas expresamente para ese efecto. En caso de excepción podrán hacerla otras personas de la Institución, previa autorización de la Dirección Administrativa.

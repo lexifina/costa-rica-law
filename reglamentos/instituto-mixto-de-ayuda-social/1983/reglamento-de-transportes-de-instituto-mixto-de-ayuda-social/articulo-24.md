@@ -1,0 +1,1 @@
+Artículo 24.-La Oficina de Transportes llevará un Registro General de Conductores, en el cual se anotará el nombre y apellidos del conductor, número de licencia y fecha de vencimiento de la misma. Asimismo, se anotarán los accidentes que tuviere con vehículos del Instituto y la resolución judicial que puso término al proceso respectivo.

@@ -1,0 +1,1 @@
+Artículo 17 .-A través del formulario número S. T.-8, se registrarán los Costos de operación de cada vehículo, por período anual, con el propósito de determinar el costo de operación por kilómetros recorridos.
