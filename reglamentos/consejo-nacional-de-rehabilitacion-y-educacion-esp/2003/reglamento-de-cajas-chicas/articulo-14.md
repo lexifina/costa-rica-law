@@ -1,0 +1,1 @@
+Artículo 14.—Cuando por algún motivo sea necesario sustituir a la persona responsable del fondo de caja chica, se debe realizar un arqueo por parte del área Financiera Contable, que se incluirá como anexo al Acta de Traspaso. Este documento debe firmarse sin excepción por el funcionario que entrega, el que recibe los fondos y el coordinador del área respectiva.

@@ -1,0 +1,2 @@
+Artículo 23.—Cualquier faltante que se produzca en el momento de practicarse el arqueo, deberá ser cubierto de inmediato por el responsable del manejo del fondo. En caso de sobrante, deberá confeccionarse el recibo correspondiente y depositarse el dinero en la cuenta corriente bancaria, en depósito separado.
+En ambos casos, el responsable del manejo del fondo deberá informar de inmediato y por escrito al coordinador de área, con copia al Departamento Administrativo Financiero.

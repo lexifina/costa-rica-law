@@ -1,0 +1,1 @@
+Artículo 41.—Tanto el responsable del control como el del manejo de la caja chica, que incumplan con las disposiciones de este Reglamento, se harán acreedores, además de lo dispuesto en el artículo 35, a las sanciones estipuladas al efecto en la normativa interna y leyes vigentes aplicables.

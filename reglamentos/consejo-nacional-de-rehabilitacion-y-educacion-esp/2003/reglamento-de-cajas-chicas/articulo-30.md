@@ -1,0 +1,1 @@
+Artículo 30.—El responsable del manejo del fondo de caja chica debe mantener un archivo de los reembolsos solicitados y copia del cheque de cancelación del reembolso, cuando este no se efectúe por transferencia electrónica.

@@ -1,0 +1,1 @@
+Artículo 12.—Es prohibido fraccionar compras para evadir los procedimientos ordinarios de contratación establecidos en la Ley de Contratación Administrativa y en su Reglamento o el límite autorizado para la caja chica.

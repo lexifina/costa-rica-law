@@ -1,0 +1,1 @@
+Artículo 31.—El encargado del área Financiero Contable es responsable de reportar al Jefe del Departamento Administrativo Financiero cualquier irregularidad que se detecte en el manejo y control de los fondos.

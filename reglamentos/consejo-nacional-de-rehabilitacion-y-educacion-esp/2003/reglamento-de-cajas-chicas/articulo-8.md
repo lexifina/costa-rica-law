@@ -1,0 +1,1 @@
+Artículo 8º—Antes de efectuar una compra, deberá consultarse el código de subpartida presupuestaria, a efecto de identificar claramente el gasto correspondiente por realizar, así como la disponibilidad presupuestaria. No se podrá comprar bienes que pueda suministrar el almacén del Consejo.

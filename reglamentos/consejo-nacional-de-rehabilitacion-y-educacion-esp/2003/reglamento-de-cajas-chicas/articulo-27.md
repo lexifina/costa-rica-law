@@ -1,0 +1,1 @@
+Artículo 27.—Cuando el funcionario encargado del manejo de una caja chica cese en sus funciones, o se ausente de su trabajo temporalmente y se requiera asignar un nuevo funcionario, debe observarse lo estipulado en el artículo 14 de este Reglamento.

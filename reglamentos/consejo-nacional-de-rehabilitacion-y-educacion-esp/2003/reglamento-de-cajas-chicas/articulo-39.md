@@ -1,0 +1,1 @@
+Artículo 39.—Los coordinadores (as) de las sedes desconcentradas son los encargados de las aprobaciones de vales de caja chica, adelantos y liquidaciones de viáticos, solicitudes de reintegros de caja chica y facturas de compra, sin que de previo deban obtener los vistos buenos de su jefatura inmediata.

@@ -1,0 +1,1 @@
+Artículo 28.—El coordinador responsable del control de caja chica debe velar porque el funcionario encargado del manejo, mantenga en un lugar seguro los documentos y efectivo que componen el fondo de caja chica.

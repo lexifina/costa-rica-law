@@ -1,0 +1,1 @@
+Artículo 5º—La Dirección Ejecutiva establecerá la creación y montos de cajas chicas, con base en las necesidades de las diferentes sedes y programas del Consejo. Asimismo, definirá a los funcionarios autorizados para el manejo de las cajas chicas. Para efectos de control, la Tesorería levantará un registro de las firmas de dichos funcionarios.

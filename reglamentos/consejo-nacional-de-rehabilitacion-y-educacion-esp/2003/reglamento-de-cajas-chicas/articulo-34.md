@@ -1,0 +1,1 @@
+Artículo 34.—En los comprobantes o facturas emitidos por terceros, no debe hacerse agregados de ninguna especie que puedan causar confusión. Cualquier aclaración debe efectuarse en una hoja adicional.
