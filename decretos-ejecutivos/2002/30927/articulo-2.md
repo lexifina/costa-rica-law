@@ -1,0 +1,2 @@
+Artículo 2º—Modificar el artículo 2° del Decreto Ejecutivo Nº 30583-MP-PLAN de 24 de junio del 2002, para que se lea de la siguiente manera:
+"Artículo 2º—Créase el Consejo de Seguridad Integral y Participación Ciudadana, el cual será presidido por la Primera Vicepresidenta de la República y estará conformado por los Ministros, Presidentes Ejecutivos y Directores de cada una de las entidades que conforman el Área."

@@ -1,0 +1,2 @@
+Artículo 3º—Modificar el artículo 3° del Decreto Ejecutivo Nº 30583-MP-PLAN de 24 de junio del 2002, para que se lea de la siguiente manera:
+"Para cumplir con sus fines, el Consejo de Seguridad Integral y Participación Ciudadana podrá convocar a cualquier otro Ministro (a), Presidente Ejecutivo (a), Director (a), asesores, consejeros presidenciales o jerarcas de entes descentralizados, empresas públicas, organizaciones sociales y organizaciones no gubernamentales, así como representantes de la sociedad civil, cuando fuere necesario."
