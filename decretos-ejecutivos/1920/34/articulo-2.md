@@ -1,1 +1,0 @@
-Artículo 2°.-No puede ser objeto de concesión el derecho que el Estado se reserva a perpetuidad de establecer estaciones radiográficas en el territorio de la República para usos militares y para la transmisión y recepción de mensajes oficiales.

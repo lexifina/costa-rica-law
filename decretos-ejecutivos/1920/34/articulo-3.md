@@ -1,1 +1,0 @@
-Artículo 3°.-EI Poder Ejecutivo podrá, de acuerdo con los Reglamentos que dicte, autorizar a los aficionados e institutos de enseñanza para que instalen aparatos radiográficos de experimentación, siempre que no violen el secreto de correspondencia de las demás comunicaciones inalámbricas ni estorben su funcionamiento ni usen sus aparatos para fines comerciales.
