@@ -1,0 +1,1 @@
+Artículo 3º.- La Oficina Sectorial de Planificación del Ministerio de Obras Públicas y Transportes será el enlace entre la Oficina de Planificación Nacional y Política Económica y las instituciones centralizadas y descentralizadas en todo lo relativo con las actividades del Sector Transportes.
