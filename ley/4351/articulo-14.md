@@ -1,17 +1,11 @@
 CAPITULO III
 De la dirección y Administración
-Artículo 14.- La orientación de la política general del Banco corresponderá a la Asamblea de los Trabajadores, su definición a la Junta Directiva Nacional y la Administración a la Gerencia General.
-La Asamblea es un órgano representativo de los trabajadores y estará integrada de la siguiente manera:
-a) Veinte representantes de cada confederación sindical que cuente con no menos de diez mil afiliados y con no menos de dos años de constituida, según certificación del Ministerio de Trabajo.
-b) Cuarenta representantes de las asociaciones del Magisterio Nacional con más de cinco mil afiliados y con no menos de dos años de constituidas, de acuerdo con la respectiva certificación del Ministerio de Trabajo.
-c) Veinte representantes del movimiento solidarita.
-ch) Diez representantes del movimiento cooperativo.
-d) Diez representantes de las cooperativas de autogestión.
-e) Cuarenta representantes de las asociaciones de desarrollo comunal.
-f) Veinte representantes del sindicalismo no confederado.
-g) Diez representantes del sector artesanal.
-h) Diez representantes del sector profesional.
-i) Diez representantes del sector de trabajadores independientes.
-Los miembros de la Asamblea durarán en sus cargos cuatro años. Podrán ser reelegidos por otro período.
-(Así reformado por el artículo 1° de la ley N° 7031 del 14 de abril de 1986)
-(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 1267 del 15 de marzo de 1996, se ordenó anular las frases: ndicalizados y un representante de las Asociaciones Integrales de Desarrolo de la Comunidad._ y _...los Sindicatos y las Asociaciones de Desarrollo Integral de la Región._ del segundo párrafo del numeral 14, de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, No. 4351 del 11 de julio de 1969, al no existir dichas frases no se realizó la anulación.)
+Artículo 14.—La orientación de la política general del Banco corresponderá a la Asamblea de Trabajadores y Trabajadoras; su definición, a la Junta Directiva Nacional, y la administración, a la Gerencia General.
+La Asamblea será un órgano representativo de los trabajadores y las trabajadoras y estará integrada por doscientos noventa delegados y delegadas, de la siguiente manera:
+a) Cuarenta representantes del sector de Desarrollo Comunal.
+b) Doscientos cincuenta representantes que serán designados proporcionalmente al número de afiliados a cada sector.
+El Banco Popular y de Desarrollo Comunal deberá levantar un censo de todos los ahorrantes obligatorios y especificar, en cada caso, la afiliación a cada sector, con una periodicidad de tres meses, por lo menos.
+Las delegaciones a la Asamblea de cada uno de los sectores y movimientos de trabajadores, deberán estar integradas por un cincuenta por ciento (50%) de mujeres, como mínimo.
+Para garantizar la participación de los grupos de minoritarios cuyo número de afiliados sea insuficiente para tener un delegado, deberá nombrárseles a un representante.
+Los miembros y las miembras de la Asamblea permanecerán en sus cargos cuatro años y podrán ser reelegidos o reelegidas por otro período igual.
+(Así reformado por el artículo único de la Ley de Democratización de las Instancias del Decisión del Banco Popular y de Desarrollo Comunal , N° 8322 del 21 de octubre de 2002)
