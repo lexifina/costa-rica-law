@@ -1,0 +1,1 @@
+Artículo 2°.- La estimación de las obras y la faja de terreno es de 4.230.00 (cuatro mil doscientos treinta colones), que corresponde al total de la suma a pagar de conformidad con avalúo realizado por el Ministerio de Obras Públicas y Transportes.
