@@ -1,1 +1,2 @@
-Artículo 2°—Las sesiones ordinarias del Concejo, se celebrarán los días viernes iniciándose a las quince horas y terminando a las dieciocho y treinta horas. Los últimos viernes de cada mes, se efectuarán a la misma hora, pero prioritariamente para atención al público.
+Artículo 2º—Las sesiones ordinarias del Concejo Municipal de Turrialba, se celebrarán los días viernes, iniciándose a las catorce horas (2,00 p.m.) y finalizando a las diecisiete horas (5,00 p.m.), entrando en vigencia dicho cambio una vez que salga publicado en el Diario Oficial La Gaceta. Acuerdo unánime y definitivamente aprobado.
+(Así reformado por acuerdo tomado en sesión N° 3 de 17 de mayo del 2002)

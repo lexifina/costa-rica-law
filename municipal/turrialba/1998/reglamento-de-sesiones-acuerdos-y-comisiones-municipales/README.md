@@ -14,3 +14,4 @@ Reglamento de Sesiones Acuerdos y Comisiones Municipales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-11-04 | la propia norma |
+| 2 | 2002-05-17 | Reglamento municipal 3 (2002-05-17) |
