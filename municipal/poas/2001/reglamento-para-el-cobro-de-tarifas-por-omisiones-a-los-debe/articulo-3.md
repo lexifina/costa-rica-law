@@ -1,0 +1,1 @@
+Artículo 3°—La Municipalidad deberá cobrar a los propietarios omisos de sus deberes el costo que le generó la prestación del servicio o construcción de la obra que ejecutó, para solventar la omisión de los propietarios del inmueble ubicados en el cantón según lo dispone el artículo 75 del Código Municipal y el numeral 2 de este Reglamento.

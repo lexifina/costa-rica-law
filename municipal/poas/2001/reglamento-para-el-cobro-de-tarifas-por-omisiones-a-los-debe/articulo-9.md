@@ -1,0 +1,1 @@
+Artículo 9°—Corresponderá al departamento de ingeniería, de la municipalidad, determinar en el campo, la (s) omisión (es) de los propietarios de bienes inmuebles según lo señala el artículo 75 Código Municipal y artículo 2° de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 7°—La determinación del costo efectivo, se demostrará con base en la liquidación presupuestaria de cada obra realizada. Que estará sustentada en los costos reales, brindados por las dependencias encargadas de prestar esos servicios o de realizar las obras.

@@ -1,0 +1,1 @@
+Artículo 11.—Una vez transcurrido el plazo sin que exista una respuesta positiva por parte del propietario, la municipalidad, podrá proceder a realizar las obras que correspondan en el predio, sobre las cuales pasará el cobro correspondiente al propietario omiso, según el procedimiento que se describe en este Reglamento y las leyes aplicables al caso.

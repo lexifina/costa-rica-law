@@ -1,0 +1,1 @@
+Artículo 8°—Corresponde al alcalde municipal, otorgar el visto bueno sobre el monto de las tarifas, el cual deberá fundamentar con base en los estudios técnicos y de costos que le presente el Departamento encargado de realizar la obra.

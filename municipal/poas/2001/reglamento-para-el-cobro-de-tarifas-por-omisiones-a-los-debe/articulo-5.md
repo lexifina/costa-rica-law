@@ -1,0 +1,1 @@
+Artículo 5°—El costo de esta tarifa se incrementará en un cincuenta por ciento más, por concepto de multa, de conformidad con lo establecido en el artículo 76 del código, siempre que dicho incremento no exceda del monto original.
