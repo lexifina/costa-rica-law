@@ -1,0 +1,1 @@
+Artículo 123.- El gravamen a que se refiere el artículo, mientras la multa no sea satisfecha o no descuente el infractor el arresto, impide la renovación de las licencias de conductor y de circulación del vehículo, inscripción de gravamen prendario o de traspaso a un tercero.

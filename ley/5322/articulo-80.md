@@ -1,0 +1,1 @@
+Artículo 80.- La Dirección General de Tránsito deberá señalar zonas de seguridad para el cruce de vías por peatones. Dicho señalamiento consistirá en la instalación de semáforos para vehículos y para peatones, que funcione coordinadamente, dando el paso alternativamente a unos y a otros.

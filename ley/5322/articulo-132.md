@@ -1,0 +1,1 @@
+Artículo 132.- Los detenidos por las razones a que se refiere el inciso b) del artículo anterior, que no aceptaren el cargo, serán sometidos a los exámenes clínicos que establezca el Reglamento de esta ley.

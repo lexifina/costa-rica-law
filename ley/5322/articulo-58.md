@@ -1,0 +1,1 @@
+Artículo 58.- El Instituto Nacional de Seguros propondrá al Poder Ejecutivo las disposiciones reglamentarias correspondientes al Seguro Obligatorio de Responsabilidad Civil para Vehículos Automotores.

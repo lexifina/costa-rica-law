@@ -1,0 +1,1 @@
+Artículo 54.- Si la indemnización que corresponda fuere superior a la cubierta por el presente seguro, la víctima o sus causahabientes tendrán derecho a cobrar el exceso faltante a la parte que conforme a las leyes que tengan la obligacion de pagar.

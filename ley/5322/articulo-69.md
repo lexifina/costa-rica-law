@@ -1,0 +1,1 @@
+Artículo 69.- En caso de que el conductor del vehículo o el dueño de éste resulten legalmente obligados a pagar indemnización mayor del límite del Seguro Obligatorio, se rebajarán del monto de estas prestaciones las cubiertas por el Instituto Nacional de Seguros en virtud de dicho seguro.

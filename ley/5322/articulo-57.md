@@ -1,0 +1,1 @@
+Artículo 57.- El Instituto tendr facultad suficiente para calcular y establecer las tarifas del Seguro Obligatorio, basado en su propia experiencia. Sin embargo, el cálculo de dichas tarifas se hará tomando en cuenta la conveniencia de que ellas sean lo menos onerosas para los asegurados.

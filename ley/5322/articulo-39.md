@@ -1,0 +1,1 @@
+Artículo 39.- Los derechos de licencia se pagarán anualmente. No podrán cobrarse al interesado derechos por más de dos años de atraso. La Dirección General de Tránsito está obligada a adoptar las medidas necesarias para impedir que el pago de derecho de licencias se atrase por un período mayor de dos años.

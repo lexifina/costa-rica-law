@@ -1,0 +1,1 @@
+Artículo 63.- En caso de venta del vehículo, el Registro respectivo no lo inscribir a nombre del nuevo propietario, si no se comprueba que la pólizas de Seguro Obligatorio ha sido traspasada al adquiriente o que éste ha tomado un nuevo seguro, de conformidad con lo que dispone esta ley.

@@ -1,0 +1,1 @@
+Artículo 24.- El Registro de Vehículos llevará un índice por número de placas y otro por nombres de propietarios. Efectuada la cancelación del asiento de inscripción, se eliminará de los índices activos la inscripción correspondiente, pero se mantendrá una referencia en un índice de inscripciones canceladas.

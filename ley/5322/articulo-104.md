@@ -1,0 +1,2 @@
+Artículo 104.- Realizada la comparecencia a que se refiere el artículo 102, si el indicado acepta el cargo, el fallo será dictado en el mismo acto; si lo rechaza, deberá ofrecer y le será recibida prueba de descargo a la mayor brevedad posible, de todo lo cual se levantar sumaria, y la sentencia ser dictada a continuación.
+Si el indiciado que hubiere recibido el parte no compareciere dentro del término antes señalado, sin causa justificada, será declarada su rebeldía y el fallo será dictado de inmediato.

@@ -1,0 +1,2 @@
+Artículo 37.- Los conductores con licencias extendidas en el extranjero quedan autorizados para conducir en el territorio costarricense sin necesidad de exámenes que acrediten su capacidad, si portan la licencia correspondiente al día, extendida por las autoridades competentes de su país y cumplen los requisitos de edad establecidos en el artículo anterior.
+Sin embargo, no podrán conducir vehículos por un período mayor de tres meses sin cumplir los requisitos establecidos por esta ley para los conductores nacionales.

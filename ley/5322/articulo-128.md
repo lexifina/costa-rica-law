@@ -1,0 +1,1 @@
+Artículo 128.- La oficina bancaria donde el infractor pague la multa, remitirá diariamente al Tribunal de San José, o en su caso a las Agencias Judiciales de Policía de cabecera de provincia, copia del entero para los efectos de ley.

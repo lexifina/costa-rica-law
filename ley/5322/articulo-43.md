@@ -1,0 +1,1 @@
+Artículo 43.- Para efectos de responsabilidad civil, todos los vehículos de propiedad pública, diplomáticos y de misiones internacionales, y sus conductores, quedan sujetos a las disposiciones de esta ley, sin perjuicio de los convenios o acuerdos internacionales vigentes.

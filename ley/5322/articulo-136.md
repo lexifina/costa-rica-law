@@ -1,0 +1,1 @@
+Artículo 136.- Queda prohibido la circulación de vehículos de carga por las vías públicas con exceso de la carga permitida por el Reglamento respectivo. Los vehículos que circulen infringiendo lo anterior, serán detenidos hasta que se presente constancia de haber pagado la multa que corresponda. En todo caso, deberá ser eliminada la sobrecarga.
