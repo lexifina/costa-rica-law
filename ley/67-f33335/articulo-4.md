@@ -1,0 +1,1 @@
+Art 4°.- Todas las sentencias pronunciadas por cualquiera de los Ministros de la Contaduría mayor o del Tribunal de rezagos, se publicarán inmediatamente por el Boletin Oficial, sin perjuicio del estado que el jefe de la oficina debe rendir al Gobierno cada día cuatro, de los trabajos del Tribunal en el mes anterior.
