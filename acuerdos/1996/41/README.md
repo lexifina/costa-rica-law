@@ -14,3 +14,4 @@ Tasas para el Cobro por Servicios de Recolección de Basura de la Municipalidad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-18 | la propia norma |
+| 2 | 2003-07-28 | Acuerdo municipal 78 (2003-07-28) |
