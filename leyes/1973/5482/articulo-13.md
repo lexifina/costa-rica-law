@@ -1,4 +1,4 @@
-Artículo 13.- Los Cuerpos de policía están protegidos por un sistema de
+ARTICULO 13.-Los Cuerpos de policía están protegidos por un sistema de
 administración de personal con los siguientes objetivos: crear la carrera
 policial con base en un régimen de méritos, capacitar, responsabilizar,
 proteger y dignificar a sus servidores e incrementar la eficiencia

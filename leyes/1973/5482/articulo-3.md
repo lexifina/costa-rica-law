@@ -1,4 +1,4 @@
-Artículo 3º.- La Fuerza Pública, constituida conforme a la
+ARTICULO 3º.- La Fuerza Pública, constituida conforme a la
 Constitución Política por todas las fuerzas de policía del país y las
 eventuales fuerzas militares que se organicen en los caos de excepción que
 la misma establece, están subordinadas al Poder Civil.
