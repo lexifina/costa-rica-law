@@ -14,3 +14,4 @@ Modifica suspensión de solicitudes aprovechamiento recursos forestales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-14 | la propia norma |
+| 2 | 2003-07-03 | SINALEVI (sin norma nombrada) |

@@ -1,5 +1,7 @@
+(Anulada)
 No 28345-MINAE
 EL PRESIDENTE DE LA REPÚBLICA Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
+*(Por resolución de la Sala Constitucional No. 6311 de las 14: 03 hrs. del 3 de julio del 2003 se anula por inconstitucional el presente Decreto Ejecutivo.)
 En uso de las facultades que les confieren los artículos 50 y 140 incisos 3) y 18) de la Constitución Política; los artículos 1°, 2°, y 3° inciso 3) del Convenio Regional para el Manejo y Conservación de los Ecosistemas Naturales Forestales y el Desarrollo de Plantaciones Forestales No 7572 del lo de febrero de 1996; los artículos 1° , 5° , 6° y 20 de la Ley Forestal No 7575 del 5 de febrero de 1996: los artículos 1° ,^2°, 4° y 48 de la Ley Orgánica del Ambiente No 7554 del 4 de octubre de 1995; v los artículos 1° , 4° y 61 de la Ley de Biodiversidad No 7788 del 23 de abril de 1998.
 Considerando:
 lo—Que mediante Decreto Ejecutivo No 28015-MINAE del 10 de agosto de 1999, se suspendió por un plazo de ciento ochenta días, la tramitación y aprobación de solicitudes de aprovechamientos forestales y de vida silvestre en refugios de vida silvestre, reservas forestales y zonas protectoras, a efecto de que la Administración Forestal del Estado se abocara a la elaboración del Plan de Ordenamiento Ambiental.
