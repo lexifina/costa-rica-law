@@ -1,0 +1,2 @@
+Artículo 18.—De las papeletas de votación. El Concejo Municipal elaborará y aprobará las papeletas que serán usadas en la votación de los plebiscitos y referendos, las cuales contendrán la pregunta que se someta a consulta, así como las casillas para marcar la respuesta.
+En el caso del referendo, la papeleta contendrá el texto íntegro del asunto que se consulta, salvo si éste fuera muy largo, en cuyo caso se colocará en afiche, con el articulado completo que será expuesto en la entrada de cada recinto de votación.

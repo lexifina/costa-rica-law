@@ -1,0 +1,1 @@
+Artículo 9°—Límites a la reiteración de consultas. Rechazado un asunto en plebiscito o refrendo, no podrá volver a ser sometido a consulta popular, en un período de tiempo que no será inferior a dos años.

@@ -1,0 +1,1 @@
+Artículo 13.—Publicación de la convocatoria. La convocatoria formal a plebiscitos o referendos, deberá ser publicada en un mínimo de dos diarios de circulación nacional. Dicha convocatoria contendrá una explicación del asunto que se someterá a consulta, la formulación de la pregunta que ha de ser contestada y la eficacia de la decisión ciudadana.
