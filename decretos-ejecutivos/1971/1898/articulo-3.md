@@ -1,0 +1,1 @@
+Artículo 3°—El Poder Ejecutivo adscribirá por decreto los poblados no citados en el artículo anterior que correspondan a esta unidad administrativa, conforme a la información toponímica que suministre el avance cartográfico nacional.
