@@ -1,6 +1,6 @@
 # Ley Orgánica del Colegio de Abogados y Abogadas de Costa Rica
 
-Ley N° 13 del 1941-10-28. SINALEVI, ficha 3127: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3127&param2=100582&param3=1>.
+Ley N° 13 del 1941-10-28. SINALEVI, ficha 3127: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3127&param2=100583&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 13 | 1957-10-31 | Ley 2174 | 1957-10-25 |
 | 7 de 13 | 1966-12-22 | Ley 3831 | 1966-12-19 |
 | 8 de 13 | 1981-08-06 | Ley 6595 | 1981-08-06 |
+| 9 de 13 | 1994-01-02 | Ley 7333 | 1993-05-05 |

@@ -1,7 +1,6 @@
 CAPITULO VI
-Fondos del Colegio
-Artículo 23.- Constituirán los fondos del Colegio:
-1º.-Las contribuciones que se establezcan a cargo de los miembros del Colegio;
-2º.-Las donaciones que se hagan a la Corporación;
-3º.-Las multas que se impongan disciplinariamente por el Colegio o por los Tribunales de Justicia a los profesionales en derecho o a las partes litigantes;
-4º.-Las subvenciones que acuerde a su favor la Universidad de Costa Rica o el Gobierno de la República.
+De los Miembros de la Directiva
+(Corrida la numeración del capítulo anterior por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del capítulo V al capítulo VI)
+Artículo 23.- Son atribuciones del Presidente: presidir las sesiones tanto de la Junta General como de la de Gobierno; proponer el orden en que deben tratarse los asuntos y dirigir las discusiones; llevar la correspondencia con las autoridades supremas; decidir en caso de empate, tanto en las Juntas Generales como en las de Gobierno; conceder licencia con justa causa y hasta por quince días, a los miembros de la Junta de Gobierno; nombrar las Comisiones que hayan de ser desempeñadas por individuos de la Corporación; disponer los gastos que no pasen de cincuenta colones, dando cuenta a la Junta de Gobierno; firmar, en unión del Secretario, las actas de las sesiones y los libramientos contra la Tesorería; practicar con el Fiscal cortes de caja trimestrales, dejando constancia de ellos en los libros del Tesorero; convocar a sesiones extraordinarias a la Junta de Gobierno; nombrar los empleados subalternos del Colegio y presidir todos los actos de la Corporación.
+Las faltas del Presidente serán suplidas por el Vicepresidente y en defecto de éste, por los Vocales, por el orden de su nombramiento.
+(Corrida su numeración por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del artículo 17 al 23)
