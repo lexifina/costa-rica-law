@@ -1,0 +1,1 @@
+Art. 2°-Las Municipalidades de cada una las Provineias del interior procederán inmediatamente, por mayoría relativa de votos, a la elección un Consejero por cada una de ellas, y las de Guanacaste y Puntarenas elegirán otro,
