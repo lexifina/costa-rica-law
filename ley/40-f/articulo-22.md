@@ -1,0 +1,2 @@
+Articulo XXII
+Cada Estado contratante tendrá el derecho de establecer en favor de sus aeronaves nacionales reservas y restricciones relativas al transporte comercial de personas y mercancías entre dos o más puntos de su territorio y concernientes a otros trabajos aéreos remunerados ejecutados enteramente dentro de su territorio. Estas reservas y restricciones serán inmediatamente publicadas y comunicadas a los demás Estados contratantes y a la Unión Paname ricana.

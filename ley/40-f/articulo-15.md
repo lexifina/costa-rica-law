@@ -1,0 +1,2 @@
+Artículo XV
+El transporte por la vía aérea de los explosivos, armas y municiones de guerra está prohibido en la navegación aérea internacional. Por lo tanto, no se permitirá a ninguna aeronave extranjera, o nacional autorizada para el tráfico internacional, transportar artículos de esta naturaleza ni entre puntos situados dentro del territorio de cualquiera de los Estados contratantes ni a través de ellos, aun en calidad de simple tránsito.
