@@ -1,0 +1,1 @@
+Transitorio III.—De conformidad con el transitorio primero de la Ley de Marinas en el área del Proyecto Golfo de Papagayo el otorgamiento de la concesión le corresponderá al Instituto Costarricense de Turismo entendiéndose se seguirán los mismos trámites ante la CIMAT, estipulados en la ley 7744 y el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 4°—Toda marina o atracadero turístico podrá ser construido y explotado por entes privados o por cualquier persona física o jurídica, nacional o extranjera, por el Estado o bien por cualquiera de sus instituciones, de acuerdo con las disposiciones de este Reglamento.

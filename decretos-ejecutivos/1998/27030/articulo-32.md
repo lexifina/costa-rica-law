@@ -1,0 +1,1 @@
+Artículo 32.—La Municipalidad, en todos los casos tendrá derecho a cobrar y percibir un canon anual, por la concesión del 0,25% sobre el valor de las obras marítimas y complementarias en tierra, construidas en el área de concesión, de conformidad con lo indicado en el artículo 17 de la Ley.

@@ -1,0 +1,1 @@
+Artículo 2°—Se regirán por el presente Reglamento las marinas y los atracaderos mayores y menores, especialmente construidos o destinados para ser utilizados por embarcaciones de recreo, deportivas, turísticas y de pesca deportiva.

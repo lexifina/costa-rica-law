@@ -1,0 +1,1 @@
+Artículo 58.—Los daños que eventualmente pudiera ocasionar el proceso constructivo de la marina turística o atracadero, en el área del proyecto y sus vecindades, serán responsabilidades del concesionario y el profesional encargado de la obra exclusivamente y no de las autoridades que intervengan en el proceso.

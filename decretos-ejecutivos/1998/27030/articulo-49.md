@@ -1,0 +1,1 @@
+Artículo 49.—El MOPT a través de las Capitanías de Puerto o con el auxilio de la Guardia de Asistencia Rural, las Autoridades de la Vigilancia Marítima y cualquier otro organismo encargado de velar por el control policial, antidrogas, migratorio y hacendario controlará el fiel cumplimiento de las disposiciones anteriores.

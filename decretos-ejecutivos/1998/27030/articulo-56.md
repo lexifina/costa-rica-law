@@ -1,0 +1,1 @@
+Artículo 56.—El propietario de una embarcación extranjera que no cumple con lo exigido en los artículos 51 y 52 de este reglamento será obligado a abandonar las aguas nacionales. La comunicación se hará por conducto de la representación diplomática del país de origen.

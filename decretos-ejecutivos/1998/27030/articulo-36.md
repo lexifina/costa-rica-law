@@ -1,0 +1,1 @@
+Artículo 36.—El interesado deberá iniciar las obras en el término indicado en el contrato de concesión, debiendo comunicar la fecha de inicio, con quince días naturales de anticipación a la CIMAT y a la Municipalidad respectiva para que estos programen las inspecciones correspondientes.
