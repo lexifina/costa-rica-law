@@ -1,0 +1,1 @@
+Artículo 3º—Se permite el libre acceso a cualquier particular a las recomendaciones e informes que dicte la Comisión de la Zona Marítimo Terrestre, una vez que las mismas hayan sido debidamente aprobadas en firme por el Concejo Municipal. De igual manera se permitirá la libre consulta de la base de datos de las concesiones otorgadas, una vez que la misma esté conformada.

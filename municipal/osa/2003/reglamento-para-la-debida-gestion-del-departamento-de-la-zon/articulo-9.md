@@ -1,0 +1,1 @@
+Artículo 9º—Salvo casos muy excepcionales y previa justificación por escrito del señor Alcalde Municipal, se permitirá la consulta y fotocopia del expediente en las horas no habilitadas para atención de consultas.

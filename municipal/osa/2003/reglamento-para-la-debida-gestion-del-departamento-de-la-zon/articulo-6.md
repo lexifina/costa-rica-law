@@ -1,0 +1,1 @@
+Artículo 6º—Los consultantes de expedientes sólo podrán hacer uso de lápiz. No se permitirá la utilización de lapiceros, bolígrafos o plumas, de constatarse que el consultante no cumple con esta obligación se procederá a retirársele el expediente y se hará la indicación respectiva en el espacio de observaciones del libro de control de expedientes.

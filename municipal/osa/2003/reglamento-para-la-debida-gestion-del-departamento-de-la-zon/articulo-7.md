@@ -1,0 +1,1 @@
+Artículo 7º—En caso de que el consultante desee fotocopiar el expediente, le indicará al funcionario los folios a fotocopiar, quién procederá a anotar dicha circunstancia en el espacio de observaciones del libro de control de expedientes. El costo de las fotocopias deberá ser cancelada por el particular.
