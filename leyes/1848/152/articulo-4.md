@@ -1,0 +1,1 @@
+Art. 4. Un decreto posterior señalará el templo ó campo sagrado donde deba elevarse el mausoleo que se destine a recibir aquellos venerables restos. -Dado en la ciudad de San José á los seis días del mes de noviembre de mil ochocientos cuarenta y ocho. -José Maria Castro, -El Ministro de relaciones y gobernacion, Joaquin Bernardo Calvo."
