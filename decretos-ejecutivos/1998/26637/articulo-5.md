@@ -1,1 +1,0 @@
-Artículo 5°—Los comprobantes de los ingresos serán confeccionados en original y copia. El original se entregará al interesado y la copia quedará en los archivos de la dependencia que realiza la recaudación. Los fondos recaudados deberán depositarse en la cuenta bancaria correspondiente, al menos una vez por semana.

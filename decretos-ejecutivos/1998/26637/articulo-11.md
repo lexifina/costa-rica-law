@@ -1,1 +1,0 @@
-Artículo 11.—La Administración Regional y el Nivel Central, por medio de las unidades administrativas competentes, supervisarán las dependencias para que este Reglamento se cumpla en todos sus extremos.

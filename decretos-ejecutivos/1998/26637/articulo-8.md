@@ -1,3 +1,0 @@
-Artículo 8°—Para la compra de bienes y servicios la dependencia deberá seguir los siguientes procedimientos.
-a) Compra por caja chica: se pueden efectuar compras de bienes y servicios de conformidad con el Reglamento de Caja Chica vigente. Sin excepción, no se podrá adquirir ningún tipo de equipo por este medio.
-b) Compra por cheques: se podrán realizar solo compras por contratación directa. Deberá solicitarse al menos tres facturas proforma de eventuales proveedores. La compra debe efectuarse adjudicando la factura proforma u oferta que mejor convenga a los intereses de la dependencia según las disposiciones de la Ley de Contratación Administrativa y del Reglamento General de Contratación Administrativa.
