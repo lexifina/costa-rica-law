@@ -14,3 +14,4 @@ Reglamento Mercado Municipal de Orotina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-04 | la propia norma |
+| 2 | 2000-09-04 | Ley 8 |
