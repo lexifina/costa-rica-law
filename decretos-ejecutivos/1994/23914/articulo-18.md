@@ -1,1 +1,0 @@
-Artículo 18.- La Bolsa formará un boletín de cotizaciones que comprenderá los resultados de sus operaciones. Dicho boletín se registrará fielmente en un libro o registro que con ese objeto llevará la Bolsa y los datos se publicarán periódicamente en

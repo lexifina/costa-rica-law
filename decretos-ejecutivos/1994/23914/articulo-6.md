@@ -1,1 +1,0 @@
-Artículo 6°- El Ministerio deberá coordinar todo lo relativo a la ejecución de este Reglamento con el Ministerio de Comercio Exterior. Asimismo, establecerá los mecanismos necesarios de coordinación con el Ministerio de Hacienda, para efectos del control de las importaciones de productos sujetos a contingentes arancelarios.

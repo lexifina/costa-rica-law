@@ -1,1 +1,0 @@
-Artículo 12.- En el remate público, cualquier puesto de bolsa interesado en participar en la negociación presentada mediante un contrato preliminar, podrá presentar su propia postura de compra o venta, la cual deberá mejorar las condiciones vigentes en el contrato preliminar.

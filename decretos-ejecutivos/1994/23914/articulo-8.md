@@ -1,1 +1,0 @@
-Artículo 8°- Los contingentes arancelarios, una vez adjudicados, no serán transferibles y se aplicarán únicamente a los productos incluidos en el Anexo 1 y que consten por escrito en el contrato de operación correspondiente registrado ante la Bolsa.
