@@ -1,1 +1,0 @@
-Artículo 29.- Además de los gastos de medida, los que se ocasionen en la tramitación de las solicitudes de arrendamiento, serán por cuenta de los solicitantes, pero si otra persona adquiere en el remate el derecho al arrendamiento, deberá reembolsarlos a aquél antes de firmarse el contrato respectivo.

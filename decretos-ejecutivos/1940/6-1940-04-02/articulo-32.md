@@ -1,1 +1,0 @@
-Artículo 32.- En el mismo caso del artículo anterior quedan sometidos los poseedores de terrenos nacionales que tuvieren viviendas o cultivos estables y formales; pero deben satisfacer el valor del arrendamiento en las mismas condiciones, por el precio que fije uno de los peritos de la Tributación Directa y previa la medida y localización del terreno.

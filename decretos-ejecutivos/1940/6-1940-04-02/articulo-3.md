@@ -1,1 +1,0 @@
-Artículo 3º.- El arrendamiento se concederá hasta por diez años. Sin embargo, si el arrendatario se compromete a dedicar las tierras a cultivos de café, cacao, banano u otra clase de productos de activa exportación, en una extensión por lo menos del setenta y cinco por ciento del área que recibe, dicho plazo se extenderá hasta quince años.

@@ -1,1 +1,0 @@
-Artículo 31.- No se sujetarán tampoco a los trámites anteriores los arrendamientos sobre fajas de terreno en las orillas del ferrocarril al Atlántico a que se refiere el capítulo V de la misma ley. La Secretaría de Hacienda puede celebrar arreglos privados con los ocupantes de esa zona, cobrándoles el canon que fije la Oficina de la Tributación Directa.

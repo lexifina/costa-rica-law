@@ -1,1 +1,0 @@
-Artículo 30.- Los arrendamientos de terreno situados en zonas marítimo-terrestres y fluvial a que se refiere el capítulo IV de la ley que se reglamenta, se otorgarán siguiéndose los mismos trámites indicados en el presente capítulo.

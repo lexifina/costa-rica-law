@@ -1,1 +1,0 @@
-Artículo 28.- Firme el auto que apruebe el remate el Juez lo comunicará a la Secretaría de Hacienda para que se extienda el contrato de arrendamiento, el cual deberá ser aprobado por el Presidente de la República y publicado en el Diario Oficial.

@@ -1,1 +1,0 @@
-Artículo 23.- Recibido el expediente por la Secretaría de Fomento, ésta estimará el valor del trabajo de medición y de valoración y prevendrá al interesado que deposite ese valor en la Administración de Rentas Públicas, a la orden de dicha Secretaría de Estado. Recibido el depósito la Secretaría designará un ingeniero para que practique la medida del terreno.

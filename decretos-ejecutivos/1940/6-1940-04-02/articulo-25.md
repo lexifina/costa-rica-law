@@ -1,1 +1,0 @@
-Artículo 25.- Terminada la medida el ingeniero presentará el plano a la Oficina de Catastro a fin de que ésta tome la copia respectiva y lo devuelva con la visación correspondiente, de acuerdo con lo dispuesto en la ley Nº 49 de 29 de julio de 1926. Del plano se sacarán dos copias, una para agregar al expediente y otra para entregar al interesado.

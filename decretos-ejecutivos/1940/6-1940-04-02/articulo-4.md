@@ -1,1 +1,0 @@
-Artículo 4º.- Cuando se soliciten terrenos para dedicarlos a la cría o engorde de ganado, cada persona, familia o empresa, podrá obtener el arrendamiento de parcelas no mayores de quinientas hectáreas, y si se tratare de destinarlas a cultivos agrícolas, las parcelas se reducirán a doscientas cincuenta hectáreas.

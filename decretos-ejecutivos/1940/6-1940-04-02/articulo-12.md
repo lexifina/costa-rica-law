@@ -1,1 +1,0 @@
-Artículo 12.- Si en el terreno que se solicita existen ríos o manantiales, el arrendatario debe comprometerse a conservar los árboles que haya en una extensión que no sea menor de diez metros de distancia de las expresadas aguas, en todo el trayecto de su curso comprendido en la respectiva propiedad y a sembrarlos en caso de que no existan.
