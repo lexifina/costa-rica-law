@@ -1,0 +1,2 @@
+ARTICULO DECIMO
+La Secretaría General de la Organización de Estados Centroamericano será la depositaria del presente Protocolo, del cual enviará copias certificadas a las Cancillerías de los Estados contratantes, notificándose asimismo del depósito de cada uno de los instrumentos de ratificación. Al entrar en vigor el Protocolo, procederá también a enviar copia certificada de este a la Secretaría General de la Organización de las Naciones Unidas, para los fines de registro que señala el artículo 102 de la Carta de las Naciones Unidas.
