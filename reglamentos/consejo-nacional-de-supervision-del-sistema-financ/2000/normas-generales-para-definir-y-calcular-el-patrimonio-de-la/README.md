@@ -19,3 +19,4 @@ Normas Generales para Definir y Calcular el Patrimonio de las Entidades Fiscaliz
 | 4 | 2003-06-03 | Reglamento 374 (2003-06-03) |
 | 5 | 2003-06-10 | Reglamento 375 (2003-06-10) |
 | 6 | 2003-12-09 | Reglamento 408 (2003-12-09) |
+| 7 | 2004-03-09 | Reglamento 425 (2004-03-09) |
