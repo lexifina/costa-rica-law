@@ -1,4 +1,2 @@
-ARTÍCULO 158.- Los Magistrados de la Corte Suprema de Justicia serán
-electos por ocho años y se considerarán reelegidos para períodos iguales,
-salvo que en votación no menor de las dos terceras partes del total de los
-miembros de la Asamblea Legislativa se acuerde lo contrario.
+ARTÍCULO 158.—Los Magistrados de la Corte Suprema de Justicia serán elegidos por un período de ocho años y por los votos de dos terceras partes de la totalidad de los miembros de la Asamblea Legislativa. En el desempeño de sus funciones, deberán actuar con eficiencia y se considerarán reelegidos para períodos iguales, salvo que en votación no menor de dos terceras partes de la totalidad de los miembros de la Asamblea Legislativa se acuerde lo contrario. Las vacantes serán llenadas para períodos completos de ocho años.
+(Así reformado por el artículo único de la ley N° 8365 de 15 de julio de 2003)
