@@ -16,3 +16,4 @@ Reglamento para la Evaluación y Aprobación de Productos y/o Subproductos de Or
 | 1 | 1993-03-11 | la propia norma |
 | 2 | 1998-07-29 | Decreto Ejecutivo 27200 (1998-07-29) |
 | 3 | 2002-03-04 | Decreto Ejecutivo 30211 (2002-03-04) |
+| 4 | 2002-12-09 | Decreto Ejecutivo 31105 (2002-12-09) |

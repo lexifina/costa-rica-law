@@ -1,4 +1,3 @@
-DECRETOS
 No 21858-MAG
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERÍA.
@@ -19,9 +18,8 @@ Reglamento para la Evaluación y Aprobación de Productos y/o Subproductos de
 Origen Animal Importados por Costa Rica
 NORMAS GENERALES CAPITULO I
 Evaluación de sistemas y programas de inspección
-Artículo 1°—Evaluación y aprobación previa de sistemas de inspección veterinaria:
-Solo podrán exportar a Costa Rica productos y/o subproductos de origen animal provenientes de países cuyos sistemas de inspección veterinaria hayan sido evaluados y aprobados por las autoridades que designe el Ministerio de Agricultura y Ganadería.
-a) Equivalencia de sistemas:
-Todo país que exporte productos y/o subproductos de origen animal a Costa Rica debe contar con un sistema de inspección veterinaria debidamente organizado que en lo administrativo, jurídico y técnico sea equivalente al sistema de inspección veterinaria de Costa Rica.
-b) Evaluación y aprobación previa:
-De previo a la importación de productos y/o subproductos de origen animal el Gobierno de Costa Rica a través del Ministerio de Agricultura y Ganadería procederá a evaluar y aprobar los sistemas de inspección veterinaria que tiene el país, que eventualmente exportará a nuestra nación.
+Artículo 1º—Evaluación y aprobación previa de sistemas de inspección veterinaria:
+Solamente podrán importarse productos y subproductos de origen animal provenientes de países cuyos sistemas de inspección veterinaria y/o de plantas o establecimientos estén regidos por normas equivalentes a los sistemas de inspección de Costa Rica y hayan sido evaluados y aprobados por la Dirección de Salud Animal del Ministerio de Agricultura y Ganadería (MAG).
+Aún cuando se haya otorgado la aprobación del sistema de inspección veterinario, la Dirección de Salud Animal del MAG, tendrá la potestad de realizar inspecciones en las plantas o establecimientos exportadores de otros países, con el propósito de verificar el cumplimiento de las medidas sanitarias establecidas en el país exportador.
+La aprobación de sistemas de inspección veterinaria y/o de plantas o establecimientos exportadores se efectuará de conformidad con lo dispuesto en la Ley de Salud Animal, el Acuerdo de Medidas Sanitarias y Fitosanitarias de la Organización Mundial del Comercio (AMSF), así como las normas, directrices y recomendaciones internacionales emitidas por la Organización Internacional de Epizootias (OIE) y el Codex Alimentarius. Adicionalmente, serán de aplicación los protocolos generales y específicos de inspección que al efecto determine la Dirección de Salud Animal del MAG.
+(Así reformado por artículo 1 del Decreto Ejecutivo N° 31105 de 9 de diciembre de 2002).
