@@ -1,0 +1,1 @@
+Artículo 40.—Ningún funcionario del BANHVÍ, alegara desconocimiento del presente Reglamento, quedando como obligación y responsabilidad de todos los Jerarcas del BANHVÍ, hacerlo del conocimiento del personal a su cargo.
