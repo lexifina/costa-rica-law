@@ -1,4 +1,5 @@
 Artículo 435.
-No propagándose la calumnia con publicidad y por escrito, será castigada:
-1—Con la pena de reclusión menor en su grado mínimo ó multa de ciento uno á doscientos treinta y tres pesos, cuando se imputare un crimen.
-2—Con la de confinamiento menor en su grado mínimo ó multa de ciento uno á doscientos treinta y tres pesos, si se imputare un simple delito.
+La calumnia será castigada:
+I°.-Con la pena de arresto en su grado máximo ó multa de sesenta y-seis á cien colones, cuando se imputare un crimen;
+2°.-Con la de arresto en su grado medio ó multa de treinta y tres á sesenta y seis colones, cuando se imputare un simple delito.
+(Así reformado por ley N° 33 del 12 de julio de 1910)
