@@ -1,0 +1,1 @@
+Artículo 11.—Todo daño a las instalaciones v equipos portuarios propiedad del INCOP, causados por los funcionarios de éste departamento será indemnizado por el responsable en el costo real del daño salvo caso fortuito o fuerza mayor.

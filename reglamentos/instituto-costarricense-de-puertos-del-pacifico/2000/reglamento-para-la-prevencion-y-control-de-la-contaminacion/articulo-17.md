@@ -1,0 +1,1 @@
+Articulo 17.—El capitán de la embarcación sancionado por el articulo anterior, podrá recuperar el derecho de atraque firmando un compromiso con la gerencia general en donde se abstenga de contaminar, además de comprometerse a enmendar la contaminación ya realizada.

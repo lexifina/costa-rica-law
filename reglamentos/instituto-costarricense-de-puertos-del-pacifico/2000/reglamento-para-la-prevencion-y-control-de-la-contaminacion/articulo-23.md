@@ -1,0 +1,1 @@
+Artículo 23.—Las disposiciones contempladas deben ser estrictamente acatadas por todos los trabajadores del INCOP y los particulares que hagan uso de las instalaciones de los muelles propiedad y administrados por el INCOP.

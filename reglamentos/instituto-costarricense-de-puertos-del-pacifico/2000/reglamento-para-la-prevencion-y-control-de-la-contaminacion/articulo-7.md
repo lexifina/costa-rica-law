@@ -1,0 +1,1 @@
+Artículo 7°—De la asignación del equipo portuario que cuenta la institución: este equipo estará asignado al Departamento de Seguridad e Higiene Portuario de Puerto Caldera, así mismo su uso estará a cargo única y exclusivamente a los funcionario de este departamento con determinadas excepciones en los casos que se justifiquen por parte de la Junta Directiva.
