@@ -1,0 +1,1 @@
+ARTÍCULO 8.-Calificado el escrito con este acto auténtico, el impresor, siendo requerido por parte legítima, deber entregar la firma del autor; y negándose, se hará responsable a la pena que aquel mereciese.
