@@ -1,0 +1,2 @@
+ARTICULO 23.- Modifícase el párrafo primero del artículo 22 de la ley Nº 7089 del 18 de diciembre de 1987 (Presupuesto Nacional para 1988), para que diga de la siguiente manera:
+"Artículo 22.- (Párrafo primero). Los recursos provenientes de la Ley de Reajuste Tributario, Nº 7088 del 30 de noviembre de 1987, ingresarán en su totalidad a la caja única del Estado, excepto los señalados en los artículos 11 y 12 (Timbre del Niño Abandonado), y se incorporarán a esta ley mediante modificación presupuestaria."
