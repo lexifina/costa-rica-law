@@ -1,0 +1,1 @@
+Artículo 11—La tabla del artículo anterior se revisará anualmente en el mes de abril por parte de la Comisión de Incentivo por Regionalización del MIRENEM, para que sus recomendaciones, previa modificación del presente Reglamento, rijan a partir del primero de enero del año siguiente.

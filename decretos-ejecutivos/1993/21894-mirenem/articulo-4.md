@@ -1,0 +1,1 @@
+Artículo 4°—El reconocimiento de pago de incentivo por regionalización se hará mediante Acción de Personal (P21) por el Departamento de Recursos Humanos del MIRENEM la cual requerirá para su validez de la aprobación de la Dirección General de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 8°—Con el fin de resolver casos no previstos en este Reglamento, se nombrará la Comisión de Incentivos por Regionalización integrada por el Director General Administrativo, el Jefe del Departamento de Recursos Humanos, el Oficial Presupuesta!, y dos (2) representantes de los trabajadores escogidos en asamblea general.
