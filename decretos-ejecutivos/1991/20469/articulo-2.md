@@ -1,0 +1,1 @@
+Artículo 2°—La Dirección Nacional de Desarrollo de la Comunidad (DINADECO) deberá promocionar la constitución de la Asociación de Desarrollo Integral de la Reserva Indígena Guaymí de Osa en un plazo no mayor a nueve meses a partir de la publicación de este decreto.
