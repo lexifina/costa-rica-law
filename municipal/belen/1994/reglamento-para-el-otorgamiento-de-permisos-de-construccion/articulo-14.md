@@ -12,6 +12,5 @@ f. Presentar planos de los trabajos debidamente firmados por un ingeniero respon
 g. El trámite de la solicitud es de 8 días hábiles como mínimo y 30 como máximo.
 h. Señalar dentro de la solicitud el lugar para recibir notificaciones dentro del cantón.
 i. Para dar inicio a los trabajos deberá pagar la póliza del Instituto Nacional de Seguros y cancelar el impuesto de construcción equivalente al uno por ciento de la obra.
-j.En obras menores de 36 metros cuadrados para casa de habitación, debe presentar un plano con criterio estructural, ubicación, profesional responsable, instalaciones electromecánicas y cualquier otra información requerida para la construcción.
-Aprobación del Ministerio de Salud, Centro de Salud local.
-(Así adicionado por el artículo 1° de sesión ordinaria N° 15 del 11 de marzo de 1997)
+j.En obras menores de cuarenta y cinco metros cuadrados (45 mi), cuyo uso sea para casa de habitación, se deberá presentar un plano con criterio estructural, ubicación, profesional responsable, instalaciones electromecánicas y cualquier otra información requerida para la construcción. Asimismo deberá adjuntarse la aprobación del Ministerio de Salud del Centro de Salud local.
+(Así reformado en sesión ordinaria N° 2 del 11 de enero del 2000)

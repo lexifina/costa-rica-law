@@ -12,6 +12,8 @@ Cordón y cano: desagüe pluvial que conforma el límite entre la calzada de una
 Edificio: construcción destinada a habitación o en la que una o más personas pueden desarrollar cualquier labor, almacenamiento, o para protección de maquinaria.
 Enrejado: sinónimo de reticulado en cuanto se refiere a estructuras de alma Abierta.
 Entubado pluvial: desagüe pluvial subterráneo formado generalmente por tubería de concreto.
+Estacionamientos: aquellos lugares (ya sea en edificios o lotes) públicos o privados, destinados a guardar vehículos.
+(Así reformado en sesión ordinaria N° 2 del 11 de enero del 2000)
 Estructura: sistema de elementos resistentes a los efectos de las fuerzas externas o internas de todo tipo que forma el esqueleto de un edificio u obra civil.
 Fraccionamiento: es la división de cualquier predio con el fin de vender, traspasar, negociar, repartir, explotar o utilizar en forma separada, las parcelas resultantes, incluye tanto particiones de adjudicación judicial o extrajudicial, localizaciones de derechos indivisos y meras segregaciones en cabeza del mismo dueño, como las situadas en urbanizaciones o construcciones nuevas que interesen el control de la formación y uso urbano de los bienes inmuebles.
 Instalación: en un edificio, cualquier sistema destinado a servicios tales como agua potable, desagües, energía eléctrica, transporte vertical, aire acondicionado, etc.
