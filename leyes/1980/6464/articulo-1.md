@@ -1,7 +1,7 @@
 Artículo 1º.- Autorízase la ratificación, por parte de Costa Rica, del
 Convenio de Cooperación Cultural, Científica y Técnica, entre el gobierno
 de la República de Costa Rica y el Gobierno de la República Popular de
-Polonia, cuyo texto es el siguiente:
+Polonia, cuyo texto es el siguiente :
 ACUERDO ENTRE EL GOBIERNO DE LA REPUBLICA DE
 COSTA RICA Y EL GOBIERNO DE LA REPUBLICA POPULAR DE POLONIA
 SOBRE LA COOPERACION CULTURAL, CIENTIFICA Y TECNICA
