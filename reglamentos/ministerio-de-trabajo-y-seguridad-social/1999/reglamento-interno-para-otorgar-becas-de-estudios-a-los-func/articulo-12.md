@@ -1,0 +1,1 @@
+Artículo 12.-Todos los informes y documentos recibidos por la Comisión de Becas, referentes a las actividades, comportamientos y resultados obtenidos por el estudiante, pasarán a formar parte del expediente de estudios que mantendrá esta Comisión.

@@ -1,0 +1,1 @@
+Artículo 13.-El empleado deberá firmar un contrato formal con la institución, por medio del cual acepta y se compromete a cumplir las condiciones del presente Reglamento y cualquier otra disposición que la Comisión de Becas o la Administración Superior consideren fijarle.

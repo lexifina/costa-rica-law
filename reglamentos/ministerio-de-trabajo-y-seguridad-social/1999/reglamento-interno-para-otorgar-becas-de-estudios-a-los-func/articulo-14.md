@@ -1,0 +1,1 @@
+Artículo 14.-La institución podrá cesar el auxilio económico cuando la conducta del estudiante no sea satisfactoria o haya faltado al cumplimento de cualesquiera de las obligaciones establecidas en este Reglamento. En cualquiera de los casos, se le notificará al empleado de la decisión tomada.

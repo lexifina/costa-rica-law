@@ -1,0 +1,1 @@
+Artículo 7°-Los estudiantes que no aprueben un curso o que por motivos no justificables hagan abandono de sus estudios, deberán reintegrar a la institución las sumas que ésta pagó con ocasión de los estudios realizados.

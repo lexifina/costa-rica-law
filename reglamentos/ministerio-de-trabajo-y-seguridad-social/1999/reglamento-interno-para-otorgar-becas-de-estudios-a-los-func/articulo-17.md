@@ -1,0 +1,1 @@
+Artículo 17.-El becario debe mantener una comunicación permanente con la Comisión, con el fin de informarle sobre la calidad y avance de los estudios que realiza, así como cualquier asunto o gestión sobre la que pueda opinar, interceder o participar en la Comisión de Becas.

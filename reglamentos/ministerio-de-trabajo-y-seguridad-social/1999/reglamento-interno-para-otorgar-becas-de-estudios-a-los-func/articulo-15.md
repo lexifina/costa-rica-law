@@ -1,0 +1,1 @@
+Artículo 15.--Cuando por alguna razón justificada, el empleado deba llevar un curso durante su horario de trabajo, deberá llegar a un acuerdo con su Superior inmediato en la forma en que repondrá ese tiempo. Además, es necesario aportar a la Comisión de becas una nota donde se detalle el arreglo a que se llegó y en la cual deberá consignar su firma y el visto bueno de su Jefe.

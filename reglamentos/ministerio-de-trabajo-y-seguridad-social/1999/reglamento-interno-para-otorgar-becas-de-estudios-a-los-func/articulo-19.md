@@ -1,0 +1,1 @@
+Artículo 19.-La solicitud de beca, junto con la respectiva documentación, deberá ser presentado a la Comisión por lo menos 15 días antes del inicio del ciclo lectivo, de igual forma, la Comisión contará con un plazo de 10 días hábiles para resolver la misma.

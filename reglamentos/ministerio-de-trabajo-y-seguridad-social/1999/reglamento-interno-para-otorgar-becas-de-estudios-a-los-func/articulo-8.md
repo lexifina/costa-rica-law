@@ -1,0 +1,1 @@
+Artículo 8°-EI becario autorizará al Ministerio de Trabajo y Seguridad Social a rebajar de su salario, las sumas que la comisión de becas fije por incumplimiento de este Reglamento o las cláusulas establecidas en el contrato, sin que tales deducciones excedan el 25% ni sean inferiores al 10% de su salario.

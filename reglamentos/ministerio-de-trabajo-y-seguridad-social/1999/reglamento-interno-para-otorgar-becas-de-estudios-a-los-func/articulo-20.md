@@ -1,0 +1,1 @@
+Artículo 20.-Si el funcionario suspendiera sus funciones voluntariamente o fuere despedido por justa causa (sin responsabilidad patronal), deberá reintegrar las sumas recibidas por concepto de beca, de acuerdo con lo que señala este Reglamento.
