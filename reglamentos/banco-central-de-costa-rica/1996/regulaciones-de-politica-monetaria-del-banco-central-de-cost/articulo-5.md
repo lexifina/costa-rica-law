@@ -1,15 +1,15 @@
 TITULO V
 Definición de metodologías
-(*)I. TASA BÁSICA PASIVA
-Definición
-La tasa de interés básica pasiva se calculará como un promedio ponderado de las tasas de interés que rijan en los Bancos Comerciales del Sistema Bancario Nacional (excluidos los Departamentos Hipotecarios) y en las empresas financieras no bancarias, para las operaciones pasivas en moneda nacional a seis meses plazo y de las que se reconozcan en la subasta conjunta del Banco Central y el Ministerio de Hacienda al plazo de 168 días.
-(**) B. Cálculo
-1. La tasa básica pasiva se calculará el día miércoles de cada semana. Se tomarán en cuenta para el cálculo, las tasas de interés vigentes ese día y el miércoles de la semana anterior.
-2. Se emplearán como ponderadores los saldos disponibles de captación a seis meses plazo de cada una de las entidades incluidas en el cálculo. En el caso del Banco Central y el Ministerio de Hacienda, se considerará el saldo de captación conjunto.
-3. La tasa de interés del Banco Popular y de Desarrollo Comunal deberá ajustarse por el porcentaje correspondiente al Impuesto sobre la Renta, a fin de hacerla consistente con las tasas reportadas por los restantes emisores.
-4. La tasa resultante se redondeará al cuarto de punto porcentual más cercano.
-(**) (Así reformado el literal B anterior en sesión N° 4924 del 17 de setiembre de 1997)
-(*)(Así reformado el numeral I anterior en sesión N° 4909 del 9 de abril de 1997)
+(*) I. Tasa básica pasiva
+A. Definición
+La tasa de interés básica pasiva se calculará como un promedio ponderado de las tasas de interés que rijan en los bancos comerciales del Sistema Bancario Nacional (excluidos los Departamento Hipotecarios) y en las empresas financieras no bancarias, para las operaciones pasivas en moneda nacional a seis meses plazo, y de la tasa promedio que reconozca en la modalidad competitiva de la subasta conjunta del Banco Central de Costa Rica y el Ministerio de Hacienda al plazo de seis meses o bien al plazo más cercano a este, si el ajuste por el vencimiento al miércoles más próximo resulta en un lapso de vencimiento mayor o menor a los seis meses.
+B. Cálculo
+i. La Tasa Básica Pasiva se calculará el miércoles de cada semana. Se tomarán en cuenta para el cálculo, las tasas de interés vigentes ese día y el miércoles de la semana anterior. Para las tasas del Gobierno y del Banco Central de Costa Rica se tomarán las de la subasta más cercana al miércoles de cada semana.
+ii. Se emplearán como ponderadores los saldos disponibles de captación a seis meses plazo de cada una de las entidades incluidas en el cálculo. En el caso del Banco Central de Costa Rica y el Ministerio de Hacienda, se considerará el saldo de captación conjunto.
+iii. Se procurará que las diferentes tasas de interés empleadas en el cálculo sean consistentes y comprables: que se refieran a un interés simple, que sean reportadas sobre un factor de 360 días, que reflejen la misma carga impositiva, etc. En los casos en que sea preciso, las tasas reportadas serán ajustadas con el fin de eliminar, sobre una base objetiva, los elementos que conduzcan a diferencias en la rentabilidad efectiva obtenida por los inversionistas.
+iv. La tasa resultante se redondeará al cuarto de punto porcentual más cercano.
+v. Cada vez que se produzca un cambio metodológico en el cálculo de la tasa básica, ésta se ajustará para eliminar el efecto de dicho cambio.
+(*) (Así reformado el punto anterior en sesión N° 4962 del 9 de julio de 1998)
 II.- TASA DE INTERES DE LOS CREDITOS DE
 REDESCUENTO
 A. Definición
