@@ -1,0 +1,1 @@
+Art. 25-Cuando al Gobierno le convenga hacer depósitos por tiempo determinado, convertir en tales los saldos en cuenta corriente, el Banco los admitirá reconociendo el interes que estipule con el mismo Gobierno.

@@ -1,0 +1,1 @@
+Art.60. La Asamblea General resolverá: 1° los negocios que se le sometan por la Direccion; y 2° las proposiciones que, sometidas por cinco accionistas, sacan de reconocido interes, y hayan sido presentadas á la Direccion por lo menos ocho dias ántes de la reunion de la Asamblea.

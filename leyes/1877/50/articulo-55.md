@@ -1,0 +1,2 @@
+Art. 55. La Asamblea General se reunirá los días para que fuere convocada dentro de la primera quincena de los meses de Enero y Julio de cada año. Sus reuniones ordinarias tendrán por objeto:
+1° Examinar el balance semestral; 2° imponerse del informe que deberá presentarle el Presidente de la Dirección; 3° hacer la elección que sea necesaria de Directores; 4° resolver sobre sobre todos los asuntos que le someta la Dirección.le someta la Direccion.

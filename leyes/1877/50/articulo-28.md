@@ -1,0 +1,1 @@
+Art. 28. -Los dueños de acciones al portador, cuando necesiten tomar dinero del Banco, pueden hacerlo afanando con sus propias acciones y dejandolas en depósito en el mismo Banco; pero sólo deberá dárseles un valor igual al de las dos terceras partes del representado en las acciones depositadas.

@@ -1,0 +1,1 @@
+Art. 71. -El Administrador, el Cajero, el Tenedor ó Tenedores de Libros y los demns empleados del Banco, permanecerán en sus destinos durante su buena conducta y fiel desempeño de sus deberes. Pero la Dirección por removerlos por algun motivo grave de conveniencia, procediendo en este caso de conformidad con los artículos 11 y 45 de estos Estatutos.

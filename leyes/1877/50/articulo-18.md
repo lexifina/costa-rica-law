@@ -1,0 +1,1 @@
+Art. 18 -El Banco no cobrará ni reconocerá comision alguna por el depósito de estos valores, y los mantendrá siempre á la órden del depositante, bajo las mismas condiciones con que hubiere sido efectuado el depósito.

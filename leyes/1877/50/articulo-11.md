@@ -1,0 +1,1 @@
+Art 11.--Bi el caso de que un empleado por cualquiera causa deje de serlo sin completar una accion, se le devolverán las fracciones que hubiere puesto en depósito, junto con el interés que les corresponda, á razón de un uno por ciento mensual.

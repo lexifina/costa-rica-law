@@ -1,0 +1,1 @@
+Art. 67. Si por circunstancias imprevistas por cualquier otro motivo, el Banco legare á sufrir pérdidas que montaren á un diez por ciento de las acciones emitidas, se pondrá en liquidacion definitiva; pero las pérdidas no afectarán á los tenedores de acciones al portador.

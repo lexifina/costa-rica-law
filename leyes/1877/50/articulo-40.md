@@ -1,0 +1,1 @@
+Art. 40- Es deber de la Direccion del Banco; formar listas de las firmas calificadas por ella misma, de acuerdo con el artículo tercero de estos Estatutos, y pasarlos al Administrador del Banco para que éste ajuste á ellas sus procedimientos. Tambien debe calificar las fincas que se ofrezcan en hipoteca, conforme á lo dispuesto en el inciso quinto del mismo articulo.

@@ -1,0 +1,1 @@
+Art. 10 -Las acciones privilegiadas, adquiridas asi por los empleados públicos, no pueden ser, embargadas en ningun caso; ellas constituirán un patrimonio de la familia del mismo empleado, y úniçamente á la terminacion del Establecimiento, podrán disponer de ellas a su voluntad.
