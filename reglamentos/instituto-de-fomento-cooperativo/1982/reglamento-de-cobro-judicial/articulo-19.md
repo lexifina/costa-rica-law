@@ -1,2 +1,0 @@
-Artículo 19.—No podrá el abogado encargado de un cobro, por ningún motivo, recibir pagos o abonos a la deuda, o hacer arreglos con el deudor sin autorización expresa de la junta directiva o dirección ejecutiva del INFOCOOP.
-Asimismo, todo pago deberá hacerse en la tesorería del Instituto o mediante depósito bancario a nombre de éste, en el que se especificarán todos los datos necesarios para la mejor identificación del asunto, así como los conceptos por los que se hace el depósito.
