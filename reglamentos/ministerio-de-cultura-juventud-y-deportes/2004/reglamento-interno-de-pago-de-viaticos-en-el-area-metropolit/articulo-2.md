@@ -1,0 +1,1 @@
+Artículo 2º—El Centro Costarricense de Producción Cinematográfica, reconocerá el pago de viáticos a sus funcionarios cuando deben desarrollar en el área metropolitana actividades tales como filmaciones, festivales, cursos, talleres, cineforos y otros, previa aprobación de la Dirección General del CCPC.

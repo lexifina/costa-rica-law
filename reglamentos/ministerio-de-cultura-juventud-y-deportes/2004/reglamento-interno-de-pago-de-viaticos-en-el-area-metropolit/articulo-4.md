@@ -1,0 +1,1 @@
+Artículo 4º—El funcionario que reciba sumas por concepto de adelanto, deberá una vez finalizada la actividad, proceder a realizar la liquidación de los viáticos en los mismos términos que lo establecen los artículos 9º, 10, 11, 12, 13, y 14 del Reglamento de gastos de Viaje y Transporte para los Funcionarios Públicos.

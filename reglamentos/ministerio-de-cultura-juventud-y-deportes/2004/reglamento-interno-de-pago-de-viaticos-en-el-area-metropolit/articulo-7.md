@@ -1,0 +1,1 @@
+Artículo 7º—Para la correcta aplicación y control de las disposiciones del presente reglamento la Dirección del Centro Costarricense de Producción Cinematográfica, una vez aprobada la actividad, elaborará una lista de funcionarios cuyos servicios se requieran para cubrir la misma, a efectos de mantener un control sobre los montos que por viáticos se deben erogar.

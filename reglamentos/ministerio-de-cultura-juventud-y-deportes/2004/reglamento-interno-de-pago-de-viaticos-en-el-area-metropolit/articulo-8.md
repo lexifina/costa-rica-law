@@ -1,0 +1,1 @@
+Artículo 8º—En las situaciones no previstas en el presente reglamento, se aplicará de manera suplementaria, las disposiciones establecidas al efecto, en el Reglamento de Gastos de Viaje y de Transporte para funcionarios públicos, publicado en La Gaceta Nº 97 del 22 de mayo del 2001 y su modificación en La Gaceta Nº 162, del 25 de agosto del 2003.

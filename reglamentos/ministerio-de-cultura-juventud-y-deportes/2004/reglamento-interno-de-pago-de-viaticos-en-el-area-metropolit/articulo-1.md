@@ -1,0 +1,1 @@
+Artículo 1º—El presente reglamento regulará el reconocimiento de viáticos a los funcionarios del Centro de Producción Cinematográfica, para aquellos casos no previstos en el Reglamento de Gastos de Viaje y Transportes para los Funcionarios Públicos, publicado en La Gaceta Nº 97 del 22 de mayo de 2001, en aplicación de lo dispuesto por el artículo 17 del citado reglamento.

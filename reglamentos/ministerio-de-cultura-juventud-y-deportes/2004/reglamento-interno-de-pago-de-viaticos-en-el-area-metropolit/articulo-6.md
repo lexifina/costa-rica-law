@@ -1,0 +1,1 @@
+Artículo 6º—Cuando el funcionario necesite utilizar los servicios de transporte público o colectivo, el pago se hará con las tarifas que para las diferentes rutas de autobuses ha autorizado el organismo regulador correspondiente. La utilización de servicios de taxi, en cada caso, deberá ser autorizada previamente por el supervisor del funcionario que lo solicita.
