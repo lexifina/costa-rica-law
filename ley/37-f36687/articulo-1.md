@@ -1,4 +1,6 @@
+(Derogado)
 N° 37
+(Esta norma fue derogada por el artículo 10 de la ley N° 5086 del 13 de octubre de 1972 “Traspasa la administración de los Bienes del Sanatorio Nacional de las Mercedes al Ministerio de Salubridad Pública”)
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 (Nota de Sinalevi: Mediante el artículo único de la ley N° 37 del 23 de diciembre de 1943 se establece lo siguiente: “Artículo Único.- El Asilo Nacional de Leprosos "Las Mercedes", se seguir llamando en adelante "Sanatorio Nacional de Las Mercedes."”)
