@@ -1,0 +1,1 @@
+Artículo 4º—Deróganse los artículos 131, 132, 133, 134, 135, 136, 137 y 138 del Código Penal, Ley Nº 4573, de 4 de mayo de 1970, y sus reformas, sin que se corra la numeración. Cada derogación se consignará al lado del numeral.
