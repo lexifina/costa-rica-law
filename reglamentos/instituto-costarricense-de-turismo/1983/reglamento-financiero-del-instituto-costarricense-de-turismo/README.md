@@ -15,3 +15,4 @@ Reglamento Financiero del Instituto Costarricense de Turismo. (NOTA: Mediante se
 | --- | --- | --- |
 | 1 | 1983-06-20 | la propia norma |
 | 2 | 1984-07-09 | Reglamento 0 (1984-07-09) |
+| 3 | 1984-12-06 | Reglamento 0 (1984-12-06) |

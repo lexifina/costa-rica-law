@@ -1,4 +1,4 @@
-REGLAMENTO FINANCIERO
+DEROGADO EXPRESA y PARCIALMENTE por Reglamento Nº 0 del 06 de diciembre de 1984, publicado en la Colección de Leyes y Decretos de 1984, II Semestre, Tomo II, página 203. De acuerdo a lo establecido en el Transitorio único del Reglamento, se mantienen vigentes las disposiciones referentes a los Fondos de Caja Chica de las diferentes oficinas externas con que cuenta el ICT, hasta tanto las mismas no sean modificadas por acuerdo de Presidencia Ejecutiva o Gerencia.
 CAPITULO I
 Definiciones
 Artículo 1º—Para los efectos del presente Reglamento se han adoptado las siguientes definiciones sobre los términos de mayor uso:
