@@ -1,0 +1,1 @@
+Artículo 19.—Es prohibido para los abogados hacer cualquier t de arreglos con el deudor, recibir pagos o abonos a la deuda, los honorarios profesionales los cobrará el abogado en su oficina con la excepción di condonación de honorarios, donde deberá mediar nota del abogado donde indique, expresamente esa circunstancia.

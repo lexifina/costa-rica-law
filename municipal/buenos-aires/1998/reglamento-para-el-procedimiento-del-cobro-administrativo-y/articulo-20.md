@@ -1,0 +1,1 @@
+Artículo 20.—Los abogados nombrados no podrán aceptar case litigio en contra de la Institución, el incumplimiento de esta disposición hará que su nombramiento quede revocado automáticamente como abogado de la institución.

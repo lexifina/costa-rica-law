@@ -1,0 +1,1 @@
+Artículo 21.—Todos los abogados nombrados por la Institución deberán presentar, informe de los casos asignados en la forma prevista este Reglamento y dentro de .los primeros cinco días hábiles de cada los que serán entregados a la Oficina de Cobro. El incumplimiento de disposición faculta a la Oficina para suspender la entrega de ni operaciones.

@@ -1,0 +1,1 @@
+Artículo 18.—El abogado deberá excursarse de atender la dirección de un juicio cuando tuviere vínculos de parentesco o incluso en caso amistad, lo cual comunicará por escrito a la Oficina correspondiente de cuarenta y ocho horas siguientes al recibo de la documentación de cobro.

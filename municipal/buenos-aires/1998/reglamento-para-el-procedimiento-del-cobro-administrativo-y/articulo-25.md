@@ -1,0 +1,1 @@
+Artículo 25.—Los abogados que por alguna razón personal deseen dejar de servir a la Municipalidad, deberán comunicar esa decisión con treinta días de antelación al Alcalde Municipal y enviar la totalidad de los expedientes judiciales que manejan a la oficina de Cobro Administrativo.
