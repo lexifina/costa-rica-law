@@ -1,0 +1,1 @@
+Artículo 4°- El material didáctico que se elabore con los recursos provenientes del arrendamiento o venta de libros de texto, será distribuido por el Ministerio de Educación Pública por medio del Departamento de Suministros Escolares.

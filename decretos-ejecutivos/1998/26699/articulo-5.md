@@ -1,0 +1,1 @@
+Artículo 5°- Cuando el Ministerio de Educación Pública considere oportuno y necesario vender o arrendar parte de este material didáctico, su precio de venta o arrendamiento estará constituido por el costo de su producción más un margen máximo que corresponderá al monto definido por variación del índice de precios al consumidor.

@@ -1,0 +1,1 @@
+Artículo 3°- El Departamento de Suministros Escolares del Ministerio de Educación Pública, será el encargado de ejecutar, implementar y operatizar los acuerdos tomados por el Consejo del Fondo Editorial, siendo el responsable directo de tales acciones el Director Ejecutivo.
