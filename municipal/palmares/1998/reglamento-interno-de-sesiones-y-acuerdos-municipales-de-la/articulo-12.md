@@ -1,0 +1,1 @@
+Artículo 12.-Las mociones o proposiciones que evidentemente resultaren improcedentes o tiendan a exagerar el tiempo del debate y si resolución final, el presidente tendrá la potestad de declararlas desiertas e fuera de orden y no les dará curso.

@@ -1,0 +1,1 @@
+Artículo 7°—Por acuerdo del Concejo se puede llamar a cualquier funcionario a una sesión para que explique alguna situación o actuación. El funcionario está obligado a responder personalmente y no por medio de otras personas. La negativa a presentarse o a responder las preguntas se considera falta grave.

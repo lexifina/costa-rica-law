@@ -1,0 +1,1 @@
+Artículo 4°—El quórum es la mitad más uno de los concejales. Si en el transcurso de una sesión se rompiera el quórum, quien presida instará a ios regidores que se hubieran retirado sin permiso, a que ocupen sus curules. Transcurridos diez minutos sin que se restablezca el quórum se procederá a levantar la sesión. Los regidores remisos perderán el derecho a dieta por esa sesión.

@@ -1,0 +1,1 @@
+Artículo 20.—Las comisiones especiales serán las que decida crear el Concejo y será el presidente el encargado de nombrarlas. Se escogerán con dos regidores propietarios o suplentes y un síndico, propietario o suplente, corno mínimo. Todos los integrantes tendrán voz y voto. En estas comisiones, los funcionarios municipales y los particulares estarán en condición de asesores.

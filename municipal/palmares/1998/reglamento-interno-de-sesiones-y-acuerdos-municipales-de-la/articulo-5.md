@@ -1,0 +1,1 @@
+Artículo 5°—Los Regidores y Síndicos propietarios y suplentes tendrán derecho al pago de dieta de acuerdo al artículo 30 del Código Municipal. Por un máximo de cinco sesiones por mes. Cuando haya sesiones extraordinarias estas no tendrán el pago de dieta.

@@ -1,0 +1,1 @@
+Artículo 18.—El secretario hará un expediente para cada proyecto. A él se agregará el dictamen de comisión y las mociones que se presenten durante el debate y los acuerdos tomados. Firmarán el Presidente y el secretario.
