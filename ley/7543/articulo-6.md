@@ -1,1 +1,1 @@
-Artículo 6.- Durante los primeros tres años de vigencia de esta ley, las mercancías usadas destinadas al uso o al consumo definitivo en el país gozarán de una depreciación adicional de cero coma cinco por ciento (0,5%) de su valor.
+Artículo 6°.- Durante los primeros tres años de vigencia de esta ley, las mercancías usadas destinadas al uso o al consumo definitivo en el país gozarán de una depreciación adicional de cero coma cinco por ciento (0,5%) de su valor.
