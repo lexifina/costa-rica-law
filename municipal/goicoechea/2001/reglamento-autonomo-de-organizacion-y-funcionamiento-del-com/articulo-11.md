@@ -1,0 +1,1 @@
+Articulo 11.—En la primera semana del mes de julio de cada año, el Comité Cantonal someterá a conocimiento del Concejo Municipal su plan anual de actividades, obras e inversión, antes de aprobarse los presupuestos ordinarios de la municipalidad, acorde con el articulo 172 del Código Municipal.

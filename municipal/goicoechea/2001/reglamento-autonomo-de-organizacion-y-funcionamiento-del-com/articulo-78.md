@@ -1,0 +1,1 @@
+Artículo 78.—Cada trimestre o cuando se requiera por el Comité Cantonal los Tesoreros de los Comités Comunales deberán presentar ante el Comité Cantonal, e) Libro de Tesorería, adjuntando las facturas, comprobantes y recibos correspondientes para su respectiva revisión; si éste no se presentaré el Comité Cantonal paralizará cualquier gestión económica.

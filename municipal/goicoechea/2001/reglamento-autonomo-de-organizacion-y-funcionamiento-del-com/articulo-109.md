@@ -1,0 +1,4 @@
+Articulo 109.—De los postulantes para ser miembros del comité comunales de distrito. Cada organización podrá postular tantos candidatos como lo tengan a bien, los cuales deberán estar registrados ante las oficinas del Comité Cantonal de Deportes a más tardar el 30 de diciembre de cada dos años, quien no cumpla con tal disposición no podrá participar como candidato ante el Comité Comunales.
+Para ser postulantes a formar parte del Comité Comunal de Deportes debe cumplir los requisitos establecidos en el artículo 57 de este reglamento.
+Una vez finalizado el periodo concedido para recibir postulaciones se levantará una lista que se hará visible en las oficinas del Comité Cantonal, la Municipalidad de Goicoechea y lugares públicos del distrito, con no menos de ocho días antes de la celebración de la elección.
+(Nota de Sinalevi: Respecto a este artículo ver transitorio 7, adicionado mediante sesión N° 14 del 6 de abril de 2009)

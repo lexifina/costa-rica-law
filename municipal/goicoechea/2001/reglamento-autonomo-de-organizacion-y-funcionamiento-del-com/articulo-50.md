@@ -1,0 +1,2 @@
+Articulo 50.—El acta de cada sesión y la copia de la correspondencia recibida y enviada, así como los documentos que van a ser analizados en la misma, deberán entregarse a los miembros del Comité, a más tardar veinticuatro horas antes de la sesión en que serán discutidos y aprobados.
+La Dirección Administrativa responderá del cumplimiento de lo antes dispuesto y en la elaboración de las actas contará con la colaboración del Secretario y el Presidente de la Junta Directiva, quienes harán las revisiones, modificaciones o aclaraciones del caso según corresponda.

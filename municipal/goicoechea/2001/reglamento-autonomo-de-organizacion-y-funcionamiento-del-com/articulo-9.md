@@ -1,0 +1,1 @@
+Articulo 9°—Están inhibidos para integrar el Comité Cantonal, los Comités y Subcomités Comunales; los miembros del Concejo, propietarios o suplentes, el Alcalde, los Alcaldes suplentes o subalcaldes, el tesorero, el auditor y el contador, sus cónyuges, parientes, en línea directa o colateral hasta el tercer grado inclusive.

@@ -1,0 +1,1 @@
+Articulo 112.—La finalidad de la Escuelas Integrales del Deporte en el cantón será promover el deporte y la recreación en los niños y jóvenes del cantón, atendiéndolos no sólo física, sino familiar, psicológica y espiritualmente.

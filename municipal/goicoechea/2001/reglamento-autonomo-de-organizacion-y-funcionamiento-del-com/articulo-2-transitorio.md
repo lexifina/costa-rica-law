@@ -1,0 +1,1 @@
+Transitorio II.—Para la elección por realizarse de los miembros del Comité Cantonal de Deportes y Recreación de Goicoechea para el período de 1999-2001, por única vez, le corresponderá realizarla al Concejo Municipal.

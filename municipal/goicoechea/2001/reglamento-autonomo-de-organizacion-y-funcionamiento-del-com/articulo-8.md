@@ -1,0 +1,1 @@
+Articulo 8°—El Comité Cantonal de acuerdo con las políticas generales en materia deportiva y de recreación, establecerá los controles que corresponden, para que sus órganos y afiliados cumplan con las funciones asignadas para el logro de dichas políticas y con su gestión de fomentar, tutelar y dirigir el deporte y la recreación en esta localidad.

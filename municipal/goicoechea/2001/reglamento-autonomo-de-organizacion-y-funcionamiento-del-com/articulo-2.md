@@ -1,0 +1,1 @@
+Articulo 2°—El Comité Cantonal de Deportes y Recreación de Goicoechea, es un organismo adscrito a la Municipalidad de Goicoechea, con personería jurídica instrumental únicamente para el cumplimiento de los fines que la ley y sus reglamentos le otorguen. La certificación de la personería será extendida por la Secretaria Municipal.

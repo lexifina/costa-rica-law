@@ -1,0 +1,2 @@
+Articulo 31.—Los integrantes de los Comités se reunirán en sesión ordinaria el día, hora y con la frecuencia acordados en la sesión inaugura), los cuales sólo podrán modificarse por la totalidad de los miembros presentes y de manera esporádica por motivos especiales.
+Extraordinariamente, se reunirán cuando sean convocados por el Presidente o conjuntamente por tres miembros, la convocatoria deberá hacerse con veinticuatro horas de anticipación por lo menos y señalándose el objeto de la sesión. En sesiones extraordinarias sólo se conocerá lo incluido en la convocatoria.
