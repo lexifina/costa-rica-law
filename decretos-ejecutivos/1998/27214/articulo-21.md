@@ -8,7 +8,8 @@ Salas de conferencias, trece dólares $ USA ($13,00) o su equivalente en colones
 Microcomputadoras, dos dólares $ USA ($2,00) o su equivalente en colones, diarios, por el uso de cada microcomputadora.
 Laboratorios, dos dólares $ USA ($2,00) o su equivalente en colones, diarios, por el uso de instalaciones de laboratorios.
 Bodegas, dos dólares $ USA ($2,00) o su equivalente en colones, o diarios, por el uso instalaciones para bodegas.
-Derecho de buceo cuatro dólares $ USA ($2,00) o su equivalente en colones, diarios por persona, por derecho a bucear dentro de las zonas marítimas de las áreas.
+Derecho de buceo, cuatro dólares $USA ($4,00) o su equivalente en colones, diarios por persona, por derecho a bucear dentro de las zonas marítimas de las áreas.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo No. 27347 de 18 de agosto de 1998, publicado en La Gaceta No. 199 de 14 de octubre de 1998.)
 Parques, por concepto de parqueo diario, cincuenta centavos $ USA ($0,50) o su equivalente en colones por cada vehículo liviano; sesenta centavos $ USA ($0,60) o su equivalente en colones por microbuses y de un dólar $ USA ($1,00) o su equivalente en colones, para buses y otros vehículos pesados. Esta tarifa no se aplicará cuando el servicio de parqueo sea brindado u por particulares, en razón de concesiones o contratos con el Estado.
 Servicio de guías, cinco dólares ($5,00) o su equivalente en colones por hora, por el servicio de guías de Servicio de Parques Nacionales, n Esta tarifa no aplica cuando el servicio de guías sea brindado por p particulares, en razón de concesiones o contratos con el Estado.
 Charlas, veintisiete dólar $USA ($27,00) o su equivalente en colones, por impartir cada charla a grupos que lo soliciten.

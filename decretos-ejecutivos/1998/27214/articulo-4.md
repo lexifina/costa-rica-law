@@ -1,1 +1,4 @@
-Artículo 4°—Por derecho de ingreso al Parque Nacional Isla del Coco, los visitantes pagarán una suma de quince dólares (USA $15,00) o su equivalente en colones por día. Tarifa que será la misma para nacionales y extranjeros residentes y no residentes.
+Artículo 4°— Por derecho de ingreso al Parque Nacional Isla del Coco, los visitantes pagarán la suma de quince dólares USA ($15,00) o su equivalente en colones, por día.
+Tarifa que será la misma para nacionales y extranjeros residentes y no residentes.
+Por derecho de ingreso en el Área de Conservación Tortuguero al Parque Nacional Tortuguero y Refugio de Vida Silvestre Barra del Colorado, la tarifa diaria, cuando se utilicen ambas áreas, será de seis dólares USA ($6,00) o su equivalente en colones para visitantes extranjeros no residentes. Cuando se utilicen ambas áreas por un período de 4 días, 3 noches, a partir de la fecha de emisión del boleto de entrada, la tarifa de ingreso será de diez dólares USA ($10,00) o su equivalente en colones.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo No. 27347 de 18 de agosto de 1998, publicado en La Gaceta No. 199 de 14 de octubre de 1998.)

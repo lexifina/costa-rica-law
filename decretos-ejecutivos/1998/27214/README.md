@@ -14,3 +14,4 @@ Tarifas para las Áreas Silvestres Protegidas bajo la Administración del Sistem
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-09-18 | la propia norma |
+| 2 | 1998-09-18 | Decreto Ejecutivo 27347 (1998-08-27) |
