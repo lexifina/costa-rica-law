@@ -13,3 +13,4 @@ Procedimiento Percepción Impuesto de 1.50 por Caja Banano Exportada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-04-07 | la propia norma |
+| 2 | 1995-04-07 | SINALEVI (sin norma nombrada) |
