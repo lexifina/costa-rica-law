@@ -67,3 +67,4 @@ Directrices Generales de Política Presupuestaria del 2003 para los ministerios,
 | 52 | 2003-09-16 | Decreto Ejecutivo 31373 (2003-09-16) |
 | 53 | 2003-09-16 | Decreto Ejecutivo 31374 (2003-09-16) |
 | 54 | 2003-09-16 | Decreto Ejecutivo 31385 (2003-09-16) |
+| 55 | 2003-09-24 | Decreto Ejecutivo 31387 (2003-09-24) |
