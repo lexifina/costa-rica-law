@@ -1,0 +1,2 @@
+Artículo 42.—La Tesorería llevará un sistema de control para el registro y custodia de los cupones de combustible, boletas de pago, boletas de seguridad y otros, mediante el uso de los formularios correspondientes con los procedimientos y rutinas existentes.
+Además llevará un sistema de control y registro separado por las cuentas por cobrar, especies fiscales y los intereses de los saldos diarios de las cuentas corrientes, entre otros.

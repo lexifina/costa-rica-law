@@ -1,0 +1,1 @@
+Artículo 8º—El funcionario que temporalmente sustituya a la Coordinación de la Tesorería, será responsable junto con los demás funcionarios de esa oficina del cumplimiento de las funciones encomendadas en los reglamentos, procedimientos y rutinas.

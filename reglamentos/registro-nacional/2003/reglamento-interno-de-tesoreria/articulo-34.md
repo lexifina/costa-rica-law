@@ -1,0 +1,1 @@
+Artículo 34.—La Coordinación de Tesorería custodiará y administrará el fondo de caja chica, de acuerdo con el "Reglamento de Caja Chica del Registro Nacional", publicado en el diario oficial La Gaceta, Nº 34 del día 16 de febrero del 2001.

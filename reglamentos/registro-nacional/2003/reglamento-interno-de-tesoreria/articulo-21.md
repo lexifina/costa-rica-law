@@ -1,0 +1,1 @@
+Artículo 21.—La apertura de cuentas bancarias, solo podrá ser autorizada por la Junta Administrativa del Registro Nacional, de acuerdo con las leyes y reglamentos vigentes para las instituciones del sector público.

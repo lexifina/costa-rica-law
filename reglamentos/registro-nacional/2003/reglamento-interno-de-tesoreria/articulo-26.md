@@ -1,0 +1,1 @@
+Artículo 26.—El Cajero entregará a los funcionarios del Registro Nacional, los cheques por adelantos de viáticos según el capítulo III "Del procedimiento", del Reglamento de Caja Chica del Registro Nacional, publicado en La Gaceta 16 de febrero 2001, con número de Gaceta 34.

@@ -1,0 +1,1 @@
+Artículo 5º—Los Funcionarios de la Tesorería deberán de coordinar sus funciones con el encargado del Equipo de Tesorería; en ausencia de éste lo deberán de realizar con la Jefatura del Departamento Financiero.

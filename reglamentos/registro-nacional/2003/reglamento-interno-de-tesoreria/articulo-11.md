@@ -1,0 +1,1 @@
+Artículo 11.—El Cajero de Tesorería deberá remitir un informe de los ingresos y egresos diarios adjuntado las copias de los comprobantes diarios a la Coordinación de la Tesorería para su verificación y; posteriormente se trasladarán a las coordinaciones de presupuesto y contabilidad para su respectivo proceso de registro y control.

@@ -1,0 +1,1 @@
+Artículo 9º—La Coordinación de la Tesorería es responsable de realizar los trámites de inversiones en títulos valores según lo disponga el ordenamiento jurídico vigente, contando con la aprobación de los funcionarios autorizados por la Junta Administrativa del Registro Nacional.

@@ -1,0 +1,2 @@
+Artículo 15.—La Coordinación de la Tesorería comunicará de inmediato al Cajero, la devolución de los cheques no pagados por el Banco (cheques sin fondos), correspondientes a la cancelación de servicios, para que se realice la anulación inmediata de estos pagos y recibos.
+Los cheques devueltos serán entregados una vez que sean cancelados en efectivo en la Caja de la Tesorería del Registro Nacional.

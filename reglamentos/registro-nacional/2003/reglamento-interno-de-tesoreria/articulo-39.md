@@ -1,0 +1,1 @@
+Artículo 39.—La Coordinación de Tesorería designará a un funcionario la confección de la lista mensual con los cheques emitidos (proveedores, prestarios, planillas y otros), también aquellos que a su fecha se encuentran en custodia de la Tesorería, para presentarlo a la Jefatura de Departamento Financiero y la Dirección Administrativa.

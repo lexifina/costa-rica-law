@@ -1,0 +1,1 @@
+Artículo 12.—El funcionario designado por la Coordinación de la Tesorería, deberá revisar los depósitos de efectivo diarios que prepara el Cajero y que han sido revisados; previamente por la Coordinación de la Tesorería para enviarlos al Banco correspondiente.

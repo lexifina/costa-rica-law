@@ -1,0 +1,1 @@
+Artículo 3º—En ausencia de la Coordinación de Tesorería, los subalternos de esta Área deberán reportar sus consultas a la Jefatura del Departamento Financiero o en su ausencia a la Dirección Administrativa.

@@ -1,0 +1,1 @@
+Artículo 20.—Las transferencias electrónicas se realizarán de acuerdo a lo estipulado en el "Reglamento sobre uso del Sistema TELEBAN por parte de los usuarios del Registro Nacional", publicado en el Diario Oficial La Gaceta, el día 31 de octubre del 2002, con número de Gaceta 210.

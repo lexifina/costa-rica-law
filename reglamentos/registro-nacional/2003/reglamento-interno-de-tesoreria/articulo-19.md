@@ -1,0 +1,1 @@
+Artículo 19.—La Coordinación de la Tesorería comprobará que las solicitudes de pago incluyan los documentos respectivos, las firmas del Jefe del Departamento Proveeduría, Coordinación de Presupuesto y Jefatura de Financiero, para realizar el pago correspondiente, por medio de transferencia electrónica o cheque.

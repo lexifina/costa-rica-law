@@ -1,0 +1,1 @@
+Artículo 29.—La Tesorería utilizará comprobantes de ingreso, recibos y cheques preimpresos, exclusivamente para transacciones propias de las operaciones de la Institución, conservando el estricto orden de numeración pre-impresa. La custodia de las existencias de estos formularios será designada por la Coordinación de la Tesorería.

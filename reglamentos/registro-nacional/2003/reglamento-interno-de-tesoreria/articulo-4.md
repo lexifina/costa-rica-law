@@ -1,0 +1,1 @@
+Artículo 4º—Está prohibida la entrada de particulares y funcionarios del Registro Nacional a la Tesorería. Se exceptúa de esta disposición al Auditor Interno o su delegado en funciones propias del cargo, a la Jefatura del Departamento Financiero, cualquier otro funcionario del Registro Nacional en funciones propias de su cargo.

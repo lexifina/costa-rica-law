@@ -1,0 +1,1 @@
+Artículo 31.—La Coordinación de la Tesorería rechazará reclamos por diferencias de dinero, una vez que el cliente o funcionario haya abandonado la ventanilla de la caja o el Cajero haya realizado la liquidación diaria de operaciones, salvo prueba en contrario.

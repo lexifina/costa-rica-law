@@ -1,0 +1,1 @@
+Artículo 13.—El Cajero es responsable de recibir todos los ingresos que percibe la institución y de las erogaciones que se realicen por concepto de boletas de pago, cupones de combustibles, manejo del efectivo de la Caja Chica, entre otros.

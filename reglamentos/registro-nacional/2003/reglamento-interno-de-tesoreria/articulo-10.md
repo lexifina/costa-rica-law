@@ -1,0 +1,1 @@
+Artículo 10.—La Coordinación de la Tesorería, al finalizar las labores diarias, es responsable de recibir del cajero y verificar en presencia de éste, la cantidad de dinero y los comprobantes correspondientes de las operaciones que se registren en el día.

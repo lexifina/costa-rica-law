@@ -1,0 +1,1 @@
+Artículo 17.—La Coordinación de la Tesorería deberá de ejecutar cualquier otra labor que le asigne la Jefatura del Departamento Financiero; siempre y cuando corresponda a la misión del Equipo de Tesorería.

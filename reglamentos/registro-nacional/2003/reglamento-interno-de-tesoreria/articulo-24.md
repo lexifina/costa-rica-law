@@ -1,0 +1,3 @@
+Artículo 24.—El Cajero verificará que los datos correspondientes a la cédula de identidad correspondan con los del cheque o boleta de pago, antes de entregarlo a la respectiva persona. Cuando el cheque es retirado por terceros, deberá solicitar:
+a) Una autorización por escrito en la que éste indique la fecha, el nombre y número de la cédula del proveedor; así como de la persona autorizada a retirar el cheque. Requiere las cédulas de identidad del proveedor y la de persona autorizada.
+b) En caso de que el proveedor requiera de apoderado legal, una copia del documento legal (Copia de la Cédula Jurídica y Personería al día), debidamente inscrito en el Registro Nacional.

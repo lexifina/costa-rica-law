@@ -1,0 +1,1 @@
+Artículo 32.—El Cajero registrará y custodiará los valores recibidos depositándolos en las cajas de seguridad. Deberá depositar todo el dinero en efectivo y los cheques que ingresen a la Tesorería en las cuentas bancarias de la Institución, a más tardar el día siguiente de realizado el depósito, dejando en cajas únicamente el fondo de caja chica diario.

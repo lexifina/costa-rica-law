@@ -1,0 +1,1 @@
+Artículo 33.—Cuando un cheque es anulado por error en su confección u otra causa que determina la Coordinación de Tesorería, estampará el sello anulado en el original y copias del cheque. El Coordinador de Tesorería enviará nota a la Coordinación de Contabilidad para indicarle la anulación, exponiendo los motivos que le dieron origen.
