@@ -1,15 +1,3 @@
-Artículo 51.- Obligaciones del vendedor
-El comerciante o proveedor contará con plazo máximo de ocho días
-naturales para restituir al comprador todos los importes recibidos, menos
-lo que corresponda a cualesquiera menoscabos que haya sufrido la
-mercadería devuelta, incluyendo sus accesorios. Tendrá derecho a exigirle
-al comprador que extienda constancia de recibo por este concepto, sin la
-cual el retracto resultará ineficaz. En caso de no existir acuerdo, las
-partes podrán acudir a la CNC.
-El plazo indicado en el párrafo anterior correrá desde el día
-siguiente a la recepción del aviso de rescisión, salvo que el comprador
-ya tenga en su poder las mercaderías, en cuyo caso correrá desde el día
-siguiente a su devolución.
-Salvo que las partes acuerden otra cosa, el reintegro se realizará
-en el domicilio del vendedor (entendido conforme al artículo 47 anterior)
-y en dinero efectivo.
+Artículo 51.- Obligaciones del vendedor. El comerciante o proveedor contará con plazo máximo de ocho días naturales para restituir al comprador todos los importes recibidos, menos lo que corresponda a cualesquiera menoscabos que haya sufrido la mercadería devuelta, incluyendo sus accesorios. Tendrá derecho a exigirle al comprador que extienda constancia de recibo por este concepto, sin la cual el retracto resultará ineficaz. En caso de no existir acuerdo, las partes podrán acudir a la CNC.
+El plazo indicado en el párrafo anterior correrá desde el día siguiente a la recepción del aviso de rescisión, salvo que el comprador ya tenga en su poder las mercaderías, en cuyo caso correrá desde el día siguiente a su devolución.
+Salvo que las partes acuerden otra cosa, el reintegro se realizará en el domicilio del vendedor (entendido conforme al artículo 47 anterior) y en dinero efectivo.

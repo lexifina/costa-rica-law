@@ -1,2 +1,1 @@
-Artículo 96.- Vigencia.
-Rige desde su publicación.
+Artículo 96.- Vigencia. Rige desde su publicación.

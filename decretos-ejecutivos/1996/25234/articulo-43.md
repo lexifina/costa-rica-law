@@ -1,4 +1,4 @@
-Artículo 43.- Deber de brindar información real al consumidor
+ARTÍCULO 43.- Deber de brindar información real al consumidor
 Es obligación del comerciante informar, clara, veraz y
 suficientemente, al consumidor, de todos los elementos que incidan
 directamente en su decisión de consumo, conforme a las disposiciones
@@ -23,6 +23,10 @@ exhibir sus precios de manera llamativa y fácilmente visible, mediante
 listas, carteles, menúes u otros.
 Los precios deberán estar indicados de manera que no quede duda
 de su monto preciso incluyendo los impuestos cuando corresponda.
+Cuando en la publicidad de un bien se indique su precio, éste
+debe indicar todos los impuestos que lo afecten.
+(Así adicionado este párrafo tercero por el artículo 1 del decreto
+ejecutivo No.26962 de 1º de abril de 1998)
 En cuanto a la venta con entrega a domicilio y a la prestación de
 servicios técnicos o profesionales, se deberá informar al cliente o
 consumidor sobre su costo exacto y completo, antes de formalizar la

@@ -1,4 +1,4 @@
-Artículo 34.- Calificación de admisibilidad
+ARTÍCULO 34.- Calificación de admisibilidad
 Recibida una denuncia, la Unidad Técnica deberá preparar un informe
 preliminar para la CPC, incluyendo un análisis de aspectos tales como la
 legitimación del denunciante, la observancia de los requisitos mínimos

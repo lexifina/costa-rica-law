@@ -1,4 +1,4 @@
-Artículo 48.- Plazo y modo de ejercicio del derecho de retracto
+ARTÍCULO 48.- Plazo y modo de ejercicio del derecho de retracto
 Dentro de los ocho días naturales siguientes al perfeccionamiento,
 el comprador podrá rescindir el contrato sin responsabilidad, bien
 manifestándolo al vendedor por escrito enviado a la dirección señalada, o

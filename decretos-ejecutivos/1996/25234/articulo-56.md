@@ -1,4 +1,4 @@
-Artículo 56.- Inscripción ante organismos o entes privados
+ARTÍCULO 56.- Inscripción ante organismos o entes privados
 Con carácter auxiliar, el MEIC podrá acreditar a organismos o entes
 privados para inscribir y autorizar diferentes planes futuros. Para este
 efecto, deberá tratarse de organismos o privados de reconocida seriedad,

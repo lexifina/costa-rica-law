@@ -1,4 +1,4 @@
-Artículo 2º.- Definiciones.
+ARTÍCULO 2º.- Definiciones.
 Además de las definiciones previstas en la Ley de Promoción de la
 Competencia y Defensa Efectiva del Consumidor, para los efectos de este
 Reglamento se entenderá por:

@@ -1,6 +1,6 @@
 SECCION SEXTA
 De la educación e información a los consumidores
-Artículo 76.- Atribuciones del ACAC en educación en información a
+ARTÍCULO 76.- Atribuciones del ACAC en educación en información a
 consumidores.
 Formular programas de educación e información para el consumidor con
 el propósito de capacitarlo para que pueda discernir y tomar decisiones

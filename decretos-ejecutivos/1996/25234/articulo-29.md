@@ -1,4 +1,4 @@
-Artículo 29.- Excepciones al principio general.
+ARTÍCULO 29.- Excepciones al principio general.
 La únicas excepciones al principio general contenido en el artículo
 anterior son las siguientes:
 a) Servicios públicos sujetos a concesión, regulados por ley

@@ -1,4 +1,4 @@
-Artículo 90.- Toma de muestras
+ARTÍCULO 90.- Toma de muestras
 Los comerciantes están igualmente obligados a permitir, en forma
 gratuita, la toma de muestras de los productos para verificar la calidad
 o la exactitud de la información suministrada al consumidor, mediante

@@ -1,4 +1,4 @@
-Artículo 39.- Contenido de la resolución final
+ARTÍCULO 39.- Contenido de la resolución final
 La resolución final podrá imponer la o las sanciones que corresponda
 según el artículo 25 de la Ley, cuando se haya demostrado fehacientemente
 en el procedimiento la existencia de prácticas monopólicas absolutas,

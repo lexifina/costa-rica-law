@@ -1,6 +1,6 @@
 SECCION SEGUNDA
 Procedimientos ante la Comisión para Promover la Competencia
-Artículo 30.- Inicio de los procedimientos
+ARTÍCULO 30.- Inicio de los procedimientos
 Los procedimientos ante la CPC, que puedan resultar en la imposición
 de alguna de las sanciones previstas en el artículo 25 de la Ley, se
 iniciarán por denuncia o de oficio.

@@ -1,8 +1,1 @@
-Artículo 91.- Incumplimiento de los deberes anteriores
-En el caso de los dos artículos anteriores, la negativa de entrega,
-la falsedad o la inclusión de datos inexactos o incompletos, en los
-documentos requeridos, debe ser sancionada como falta grave por las
-respectivas comisiones, según proceda. Cuando las faltas se cometan en
-virtud de la solicitud formulada por el Ministerio de Economía, Industria
-y Comercio, este remitirá esos documentos a la comisión competente para
-la sanción.
+Artículo 91.- Incumplimiento de los deberes anteriores. En el caso de los dos artículos anteriores, la negativa de entrega, la falsedad o la inclusión de datos inexactos o incompletos, en los documentos requeridos, debe ser sancionada como falta grave por las respectivas comisiones, según proceda. Cuando las faltas se cometan en virtud de la solicitud formulada por el Ministerio de Economía, Industria y Comercio, este remitirá esos documentos a la comisión competente para la sanción.

@@ -1,4 +1,4 @@
-Artículo 9º.- Remisión periódica de información de los entes y
+ARTÍCULO 9º.- Remisión periódica de información de los entes y
 órganos de la Administración Pública a la CPC.
 Para efectos de que la CPC pueda ejercer su función de velar porque
 los trámites y requisitos de regulación al comercio cumplan con las

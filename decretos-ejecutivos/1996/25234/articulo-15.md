@@ -1,4 +1,4 @@
-Artículo 15.- Procedimiento para la regulación de precios en casos
+ARTÍCULO 15.- Procedimiento para la regulación de precios en casos
 de fuerza mayor.
 Además de comprobar la existencia de la fuerza mayor, y salvo caso
 de urgencia, la regulación deberá estar precedida de un estudio técnico

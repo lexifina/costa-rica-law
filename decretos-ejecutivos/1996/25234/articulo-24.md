@@ -1,6 +1,6 @@
 SECCION TERCERA:
 Otras disposiciones
-Artículo 24.- Alcances de la eliminación de restricciones no
+ARTÍCULO 24.- Alcances de la eliminación de restricciones no
 arancelarias a las importaciones y exportaciones.
 La eliminación de las restricciones no arancelarias a las
 importaciones y exportaciones de productos, a que se refiere el párrafo

@@ -1,4 +1,4 @@
-Artículo 4º.- Regulaciones aceptables a la actividad económica.
+ARTÍCULO 4º.- Regulaciones aceptables a la actividad económica.
 Se consideran como únicas regulaciones aceptables a la actividad
 económica las que sean necesarias para proteger la seguridad nacional,
 para la prevención de prácticas que puedan inducir a error, la protección

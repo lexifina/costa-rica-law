@@ -1,4 +1,4 @@
-Artículo 26.- Dispensa de profesionales o técnicos.
+ARTÍCULO 26.- Dispensa de profesionales o técnicos.
 Cualquier persona con interés legítimo y directo podrá solicitar a
 la CPC que se dispense, total o parcialmente, la participación de
 profesionales y técnicos en los trámites o los procedimientos para el

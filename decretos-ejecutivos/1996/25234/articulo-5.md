@@ -1,4 +1,4 @@
-Artículo 5º.- Concordancia con leyes especiales y convenios
+ARTÍCULO 5º.- Concordancia con leyes especiales y convenios
 internacionales.
 La revisión y eliminación de trámites y requisitos de regulación de
 las actividades económicas debe concordar con lo establecido en leyes

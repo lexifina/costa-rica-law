@@ -1,4 +1,4 @@
-Artículo 32.- Requisitos
+ARTÍCULO 32.- Requisitos
 La denuncia ante la CPC deberá constar por escrito, en idioma
 español y ser firmada por el interesado u otra persona a su ruego. El
 denunciante también podrá presentarse directamente -ante la CPC o

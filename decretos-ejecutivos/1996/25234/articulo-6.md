@@ -1,4 +1,4 @@
-Artículo 6º.- Alcances de la aplicación de estándares de calidad.
+ARTÍCULO 6º.- Alcances de la aplicación de estándares de calidad.
 No podrá restringirse la importación de bienes ni su
 comercialización en el mercado interno con base en la aplicación de
 estándares de calidad que no sean los incorporados en los reglamentos

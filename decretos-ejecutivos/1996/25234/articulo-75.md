@@ -1,4 +1,4 @@
-Artículo 75.- Atribuciones del ACAC en organización de
+ARTÍCULO 75.- Atribuciones del ACAC en organización de
 consumidores
 El ACAC tendrá las siguientes atribuciones en la materia:
 Fomentar y promover las organizaciones de consumidores y garantizar

@@ -1,4 +1,4 @@
-Artículo 35.- Inicio del procedimiento
+ARTÍCULO 35.- Inicio del procedimiento
 Con base en el informe preliminar presentado por la Unidad Técnica,
 la CPC, si estimare que hay mérito suficiente y cuando la resolución
 final pueda resultar en la imposición de alguna de las sanciones

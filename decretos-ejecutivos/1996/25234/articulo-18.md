@@ -1,4 +1,4 @@
-Artículo 18.- Bienes y servicios de la canasta básica.
+ARTÍCULO 18.- Bienes y servicios de la canasta básica.
 La regulación y control de los bienes y servicios que componen la
 canasta básica a que se refiere el inciso e) del artículo 30 de la Ley,
 se ejercerá mediante: a) el monitoreo y seguimiento periódico por parte

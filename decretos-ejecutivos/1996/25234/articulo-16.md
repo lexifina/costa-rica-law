@@ -1,4 +1,4 @@
-Artículo 16.- Procedimiento para la regulación de precios en casos
+ARTÍCULO 16.- Procedimiento para la regulación de precios en casos
 de condiciones monopólicas u oligopólicas.
 De previo al establecimiento de la medida regulatoria, la
 Administración otorgará audiencia por diez días hábiles a los

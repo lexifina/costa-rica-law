@@ -1,4 +1,4 @@
-Artículo 38.- Resolución final
+ARTÍCULO 38.- Resolución final
 Una vez cumplidos los trámites procedimentales previstos en este
 Reglamento y en la LGAP, incluyendo la celebración de la o las
 comparecencias correspondientes, la Unidad Técnica trasladará el caso a

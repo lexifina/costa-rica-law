@@ -1,7 +1,7 @@
 CAPITULO II
 Desregulación
 SECCION PRIMERA: RACIONALIZACION Y ELIMINACION DE TRAMITES
-Artículo 3º.- Delimitación de los propósitos de la eliminación de
+ARTÍCULO 3º.- Delimitación de los propósitos de la eliminación de
 trámites.
 La eliminación de los trámites y los requisitos de control y
 regulación de las actividades económicas, por parte de la Administración

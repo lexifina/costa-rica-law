@@ -1,4 +1,4 @@
-Artículo 7º.- Silencio positivo.
+ARTÍCULO 7º.- Silencio positivo.
 Toda solicitud de inscripción, registro, autorización o aprobación
 presentada ante la Administración Pública, relacionada con el
 cumplimiento de trámites y requisitos necesarios para el acceso de bienes

@@ -1,4 +1,4 @@
-Artículo 36.- Notificaciones por telefacsímil
+ARTÍCULO 36.- Notificaciones por telefacsímil
 Las notificaciones del procedimiento podrán enviarse por vía de
 telefacsímil (fax) a las partes que así lo hayan solicitado expresamente.
 En estos casos, valdrá como prueba de la notificación la constancia del

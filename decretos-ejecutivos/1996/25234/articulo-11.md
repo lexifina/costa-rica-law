@@ -1,4 +1,4 @@
-Artículo 11.- Inscripción y registro de productos farmacéuticos,
+ARTÍCULO 11.- Inscripción y registro de productos farmacéuticos,
 medicinales, alimenticios, agroquímicos y veterinarios.
 Independientemente de los análisis costo beneficio a que se refiere
 la Ley, la CPC podrá solicitar en cualquier momento a los órganos y entes

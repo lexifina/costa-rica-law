@@ -1,4 +1,4 @@
-Artículo 85.- Acta de las sesiones
+ARTÍCULO 85.- Acta de las sesiones
 De cada sesión se levantará un acta, que contendrá la indicación de
 las personas asistentes, así como las circunstancias de lugar y tiempo en
 que se ha celebrado, los puntos principales de la deliberación, la forma

@@ -1,4 +1,4 @@
-Artículo 45.- Prohibiciones
+ARTÍCULO 45.- Prohibiciones
 Se prohíben todas las acciones orientadas a restringir la oferta
 (abastecimiento), la circulación o la distribución de bienes y servicios.
 La CNC debe sancionar tales acciones sin perjuicio de las potestades que

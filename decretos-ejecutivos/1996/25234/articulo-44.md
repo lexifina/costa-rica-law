@@ -1,4 +1,4 @@
-Artículo 44.- Deberes de los comerciantes
+ARTÍCULO 44.- Deberes de los comerciantes
 Además de las restantes obligaciones y prohibiciones contenidas en
 la Ley o en este reglamento, los comerciantes, productores y -en cuanto
 resulte aplicable- los proveedores de servicios, tendrán las siguientes:

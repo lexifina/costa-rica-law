@@ -1,4 +1,4 @@
-Artículo 13.- Vigencia de las regulaciones.
+ARTÍCULO 13.- Vigencia de las regulaciones.
 La regulaciones se mantendrán mientras subsistan las condiciones de
 excepción, determinadas mediante el estudio a que se refieren los
 artículos siguientes. En todo caso, las regulaciones deben revisarse

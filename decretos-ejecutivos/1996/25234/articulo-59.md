@@ -1,4 +1,4 @@
-Artículo 59.- Propósito de las inspecciones
+ARTÍCULO 59.- Propósito de las inspecciones
 Las inspecciones tendrán por objeto:
 a) Ejercer un control de precios y porcentajes de utilidad bruta
 sobre aquellos bienes y servicios afectos a tales medidas,

@@ -1,4 +1,4 @@
-Artículo 8º.- Determinación del carácter esencial de requisitos y
+ARTÍCULO 8º.- Determinación del carácter esencial de requisitos y
 trámites.
 Con el fin de determinar las características de los requisitos y los
 trámites que deberán mantenerse en virtud de ser esenciales, la CPC

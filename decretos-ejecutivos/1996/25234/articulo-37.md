@@ -1,4 +1,4 @@
-Artículo 37.- Información confidencial
+ARTÍCULO 37.- Información confidencial
 Durante toda la tramitación, el acceso a los expedientes se regulará
 por lo dispuesto en los numerales 272 a 274 de la LGAP.
 La Unidad Técnica de la CPC, como órgano director de los

@@ -1,4 +1,4 @@
-Artículo 10.- Criterios y formato de los análisis costo beneficio.
+ARTÍCULO 10.- Criterios y formato de los análisis costo beneficio.
 La CPC definirá los criterios en los cuales deben basarse los
 análisis costo-beneficio a que se refiere el párrafo primero del artículo
 4 de la Ley, así como el formato al que deben ajustarse. Lo anterior será

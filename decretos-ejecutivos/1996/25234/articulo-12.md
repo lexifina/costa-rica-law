@@ -1,6 +1,6 @@
 SECCION SEGUNDA: REGULACION DE PRECIOS EN SITUACIONES DE
 EXCEPCION
-Artículo 12.- Casos en que procede la regulación de los precios de
+ARTÍCULO 12.- Casos en que procede la regulación de los precios de
 bienes y servicios.
 Para lograr el objetivo de un ordenado crecimiento económico, la
 Administración deberá recurrir, de modo primario, a la aplicación de las
