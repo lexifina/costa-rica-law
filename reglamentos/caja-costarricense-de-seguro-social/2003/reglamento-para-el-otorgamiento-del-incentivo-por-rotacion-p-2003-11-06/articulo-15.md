@@ -1,0 +1,1 @@
+Artículo 15.—La Administración activa, será la responsable de proponer las modificaciones a este Reglamento ante Junta Directiva, cuando las circunstancias propias de la dinámica institucional así lo ameriten, conforme la vigente Normativa de Relaciones Laborales, hará del conocimiento a las organizaciones sindicales.

@@ -1,0 +1,1 @@
+Artículo 5º—Las condiciones del artículo 3 anterior, deberán ser comprobadas por el jefe o supervisor correspondiente, avaladas por el superior en jerarquía y tramitadas oportunamente ante la unidad que corresponda.

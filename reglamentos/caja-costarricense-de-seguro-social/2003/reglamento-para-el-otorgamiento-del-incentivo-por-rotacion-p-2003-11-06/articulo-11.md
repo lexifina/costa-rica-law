@@ -1,0 +1,1 @@
+Artículo 11.—Las unidades formularán en el respectivo presupuesto anual el contenido correspondiente a este incentivo, con el fin de hacer efectivo el pago a los funcionarios que tengan o lleguen a tener derecho.
