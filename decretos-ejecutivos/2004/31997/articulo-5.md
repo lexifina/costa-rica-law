@@ -1,0 +1,1 @@
+Artículo 5º—La violación a las disposiciones establecidas en este Decreto será sancionada con las penas señaladas en la Ley Nº 7664, Ley de Protección Fitosanitaria; la Ley Nº 5395, Ley General de Salud, leyes y reglamentos conexos vigentes.

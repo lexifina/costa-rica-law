@@ -1,0 +1,1 @@
+Artículo 4º—El Ministerio de Agricultura y Ganadería por medio del Servicio Fitosanitario del Estado y la Dirección de Registros y Controles del Ministerio de Salud, velarán por el cumplimiento de estas disposiciones.

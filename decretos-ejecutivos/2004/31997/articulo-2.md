@@ -1,0 +1,1 @@
+Artículo 2º—Las disposiciones aquí establecidas se aplican a todas las personas físicas y jurídicas que fabrican, formulan, importan, transportan, registran, almacenan, comercializan y usan plaguicidas de uso agrícola.
