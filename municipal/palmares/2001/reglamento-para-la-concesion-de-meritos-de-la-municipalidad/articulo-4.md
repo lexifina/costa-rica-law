@@ -1,0 +1,1 @@
+Artículo 4°—Todo palmareño que ocupe el cargo de Presidente de la República nombrado constitucionalmente en elecciones libres, se galardonará con el título de Hijo Ilustrísimo y Predilecto en un acto especial antes de abandonar su silla presidencial.

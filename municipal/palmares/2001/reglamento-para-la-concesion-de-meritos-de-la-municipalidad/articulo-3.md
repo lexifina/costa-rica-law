@@ -1,0 +1,1 @@
+Artículo 3°—Toda persona palmareña que se elija diputado (a) a la Asamblea Legislativa y que se destaque por la ayuda a la Municipalidad y al Cantón, se galardonará con el título de Hijo Predilecto, en un acto especial antes de abandonar su curul, sin distinción de partido político.

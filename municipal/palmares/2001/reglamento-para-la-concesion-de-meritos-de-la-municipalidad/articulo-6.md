@@ -1,0 +1,1 @@
+Artículo 6°—Todo servidor palmareño del cuerpo de Policía Pública, Bombero, Cruz Roja o servidor municipal que ofrende su vida en el servido a los demás, el Concejo Municipal podrá otorgar el título de Hijo Predilecto en un homenaje postumo que acordará el mismo Concejo.
