@@ -1,0 +1,1 @@
+Artículo 5º—El Ministerio de Hacienda queda facultado para otorgar esta garantía por medio del señor Ministro de Economía y Hacienda o mediante autorización que el citado funcionario dará al señor Embajador de Costa Rica en Washington, para la firma del documento o documentos correspondientes que serán de fianza solidaria única exclusivamente.
