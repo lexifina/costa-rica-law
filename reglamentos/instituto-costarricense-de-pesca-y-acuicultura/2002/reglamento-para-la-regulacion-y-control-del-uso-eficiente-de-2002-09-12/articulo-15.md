@@ -1,0 +1,5 @@
+CAPÍTULO III
+Atribuciones, obligaciones y responsabilidades de los beneficiarios
+Artículo 15.—Los beneficiarios y empresas interesadas en obtener combustible a precio preferencial, presentarán las solicitudes de combustible ante las oficinas del INCOPESCA, en forma personal o a través de organizaciones debidamente autorizadas para tal fin por esta Institución, debiendo mediar un contrato suscrito entre las partes en el que se establecerán las regulaciones pertinentes.
+Será esencial para poder obtener combustible a precio preferencial que la respectiva Organización cuente con el Código de RECOPE para la adquisición de combustible.
+Los beneficiarios físicos podrán tramitar las solicitudes de exoneración de combustible en forma personal o a través de un máximo de dos miembros de su familia , ya sea su cónyuge o hasta el tercer grado de consanguinidad, los cuales deberán ser mayores de edad y estar previamente autorizados en el contrato suscrito con el INCOPESCA para estos efectos. Estas personas autorizadas podrán ser sustituidas por el permisionario en cualquier momento manteniendo los requisitos de consanguinidad, previa notificación al SCAC.

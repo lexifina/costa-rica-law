@@ -1,0 +1,1 @@
+Artículo 10.—La orden de compra tendrá una vigencia de sesenta días calendario, vencido el plazo de su vigencia sin haberse hecho efectiva, la misma caducará de pleno derecho y bajo ninguna circunstancia podrá ser revalidada.
