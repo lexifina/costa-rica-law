@@ -1,0 +1,1 @@
+Artículo 6°—Sobre la fijación del costo: Todos los costos de los cursos serán periódicamente acordados por el Instituto Costarricense de Acueductos y Alcantarillados de acuerdo a las erogaciones que estos impliquen.

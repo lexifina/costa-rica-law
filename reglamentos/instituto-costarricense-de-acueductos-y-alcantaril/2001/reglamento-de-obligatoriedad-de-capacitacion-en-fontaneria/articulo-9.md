@@ -1,0 +1,1 @@
+Artículo 9°—Falta de cupo: En el caso de que la empresa solicitante no encontrare cupo para sus trabajadores en un curso, y habiendo interpuesto solicitud formal para ello, será eximido de dicho requisito, en relación con la contratación inmediata que exige ese requisito y solo por ese momento.

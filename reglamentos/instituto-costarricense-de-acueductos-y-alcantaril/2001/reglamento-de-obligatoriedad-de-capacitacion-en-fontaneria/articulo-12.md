@@ -1,0 +1,1 @@
+Artículo 12.—Sobre la publicación: El presente acuerdo se publicara una vez en el diario oficial o en un diario de circulación nacional a criterio de la Institución con el objetivo de hacer de conocimiento público, la información acerca de este requisito. Acuerdo Firme.

@@ -1,0 +1,1 @@
+Artículo 11.—Sobre el atestado: Al finalizar el curso, el INA realizará los exámenes oficiales correspondientes y expedirá los títulos a quien cumpla con la evaluación , o en su caso se les acredite con tales. El INA establecerá la categoría académica que corresponderá al educando.

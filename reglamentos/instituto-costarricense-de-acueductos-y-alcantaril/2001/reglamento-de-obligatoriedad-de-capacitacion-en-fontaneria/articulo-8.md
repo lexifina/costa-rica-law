@@ -1,0 +1,1 @@
+Artículo 8°—Sobre la asignación de cupos: La asignación de cupos para los cursos será realizada por el Instituto Costarricense de Acueductos y Alcantarillados, y atenderá a criterios de capacidad y disponibilidad, acorde a la presentación de las solicitudes por las respectivas empresas.

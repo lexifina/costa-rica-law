@@ -1,0 +1,1 @@
+Artículo 5°—Otras disposiciones: El Instituto Costarricense de Acueductos y Alcantarillados cobrará el costo del curso a las empresas interesadas, que deberán pagar todos los costos administrativos, materiales y de recursos humanos que acarree la capacitación.
