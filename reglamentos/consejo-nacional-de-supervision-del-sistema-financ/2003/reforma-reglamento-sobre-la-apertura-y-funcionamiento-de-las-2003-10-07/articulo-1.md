@@ -1,0 +1,18 @@
+El Consejo Nacional de Supervisión del Sistema Financiero mediante artículo 11 del acta de la sesión 396-2003, celebrada el 7 de octubre del 2003,
+considerando que:
+a) El artículo 49 de la Ley de Protección al Trabajador, Ley Nº 7983, establece la aprobación de la estructura de comisiones, por parte de la Superintendencia.
+b) El artículo 37 del reglamento de "Apertura y Funcionamiento de las Entidades Autorizadas y el Funcionamiento de los Fondos de Pensiones, Capitalización Laboral y Ahorro Voluntario previstos en la Ley de Protección al Trabajador" establece la estructura de comisiones como una combinación de comisiones sobre rendimiento y aporte no superiores al 8% y 4% cada una de éstas.
+c) El citado artículo 37 establece "un máximo de un 4% de comisión sobre los aportes realizados por el afiliado al fondo".
+d) Si bien en términos económicos todos los aportes son realizados, por la posibilidad de traslado de cargas sociales y tributarias, por el afiliado, en términos jurídicos, la ley obliga al patrono a su cumplimiento y, por ende, no sería posible establecer la comisión sobre la totalidad de los aportes al fondo.
+e) El artículo 39 prohíbe expresamente el cobro de comisiones por concepto de traslados de recursos hacia un fondo diferente administrado por la misma operadora de pensión, o hacia un fondo administrado por una operadora diferente, y que, de esta manera, se evita tanto los obstáculos a la libre transferencia de afiliados como el cobro doble de comisiones sobre aporte en el caso de los traslados contemplados desde el Fondo de Capitalización Laboral hacia el Régimen Obligatorio de Pensión Complementaria.
+f) La fijación de comisiones tiene sentido en un contexto de obligatoriedad del régimen, según lo expuesto en el numeral 2 del artículo 37.
+g) El artículo 40 no diferencia entre planes voluntarios y obligatorios de beneficio, entendiéndose que los planes de beneficio voluntario también deben ajustarse al límite máximo de comisión por administración.
+h) Que mediante artículo 11 del acta de la sesión 390-2003, celebrada el 2 de setiembre del 2003, y en cumplimiento de lo establecido en el Artículo 361, numeral 2, de la Ley General de la Administración Pública, fue remitido en consulta.
+convino en:
+modificar el literal b) del artículo 37 y el artículo 40 del "Reglamento de Apertura y Funcionamiento de las Entidades Autorizadas y el Funcionamiento de los Fondos de Pensiones, Capitalización Laboral y Ahorro Voluntario previstos en la Ley de Protección al Trabajador" de manera que se lean como se copia a continuación:
+"Artículo 37.—
+b) Un máximo del 4% sobre los aportes al fondo en el momento de su registro. Esta comisión no será aplicable a los traslados que se realicen al Régimen de Pensiones Complementarias provenientes del Fondo de Capitalización Laboral".
+"Artículo 40.—De las comisiones por pago de beneficios por parte de las Operadoras
+Por la administración de los planes de beneficio del régimen obligatorio de pensión complementaria, sea renta permanente o retiro programado, las Operadoras podrán cobrar una comisión calculada sobre la base de un porcentaje aplicable sobre el rendimiento bruto de las inversiones del Fondo. Tal porcentaje será como máximo el que aplica sobre los rendimientos para los fondos obligatorios, según lo dispuesto en el artículo 37 de este Reglamento. En el caso de Planes Voluntarios de Beneficio, las comisiones serán establecidas según el numeral 2 del artículo 37.
+Cuando la Operadora actúe como intermediario en la contratación y prestación de los servicios de rentas vitalicias, no podrá cobrar comisiones a su asegurado pensionado".
+Las presentes modificaciones rigen a partir de su publicación en el Diario Oficial La Gaceta.
