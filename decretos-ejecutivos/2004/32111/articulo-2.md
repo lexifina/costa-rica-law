@@ -1,0 +1,1 @@
+Artículo 2°—El artículo 7º del “Reglamento para las actividades de Carga y Descarga de Bienes y Materiales de los Vehículos Automotores en el Casco Central de San José y Restricciones en la Circulación por la Autopista General Cañas”, contenido en el Decreto Ejecutivo N° 30739- MOPT, pasa a ser el artículo 6º del citado Reglamento.
