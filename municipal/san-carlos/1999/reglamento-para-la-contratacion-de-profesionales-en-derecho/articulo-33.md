@@ -1,0 +1,1 @@
+Artículo 33.—El Departamento de Contabilidad, remitirá la documentación adicionando certificación del Contador Municipal respecto al estado de cuenta del contribuyente moroso, a la Oficina de Cobros de la Municipalidad.
