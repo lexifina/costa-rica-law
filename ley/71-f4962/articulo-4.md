@@ -1,0 +1,1 @@
+Art 4° Forman los estudios de aplicación según su objeto: Lenguas vivas, matemáticas, nociones de historia y geografía, agronomía, teneduría de libros-economía política; operaciones prácticas de agrimensura-conocimientos de los materiales de construcción; derecho mercantil, legislación agraria y Disposiciones legales sobre agrimensuras y dibujo.

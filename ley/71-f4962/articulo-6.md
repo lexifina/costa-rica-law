@@ -1,0 +1,1 @@
+Art 6° Las Municipalidades, en atención a los fondos de que puedan disponer, establecerán las cátedras necesarias en armonía con las bases que quedan determinadas y formarán los reglamentos de orden, régimen y disciplina interior, pasándolos al Poder Ejecutivo para su examen y aprobación.
