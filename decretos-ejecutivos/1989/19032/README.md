@@ -14,3 +14,4 @@ Reglamento de Importación de Precursores, Sustancias o Productos Químicos y Di
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-06-27 | la propia norma |
+| 2 | 1996-03-13 | Decreto Ejecutivo 25061 (1996-03-13) |
