@@ -1,0 +1,1 @@
+Art 2°. - Por consiguiente, todos los fondos, que constituyen el tesoro municipal de las Villas y Pueblos, se encontrarán en las respectivas capitales de cada Provincia para emplearse en provecho de la Villa o Pueblo debido a que pertenecen.

@@ -1,0 +1,1 @@
+Art 6°.- El que sin las causas establecidas en el artículo 4° se resista a servir la alcaldía u oficio de Rejidor para sea electo, pagará una multa de quinientos pesos, o servirá según su clase dos meses en la guarnición del Castillo
