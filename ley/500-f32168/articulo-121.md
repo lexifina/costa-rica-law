@@ -1,1 +1,0 @@
-Artículo 121.- Corresponde a la Asamblea Nacional de los partidos inscritos en escala nacional la designación de sus candidatos a la Presidencia de la Republica, al Congreso Constitucional y a una Asamblea Constituyente corresponde a su Asamblea de Provincia.

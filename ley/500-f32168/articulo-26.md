@@ -1,1 +1,0 @@
-Artículo 26.-El Registro atenderá las solicitudes de inclusión que correspondan a personas que el día anterior a la elección deban alcanzar la edad requerida en el artículo 1°, si se trata de personas a quienes se ha extendido ya la cedula de identidad.

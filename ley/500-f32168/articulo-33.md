@@ -1,1 +1,0 @@
-Artículo 33.- Un mismo escrito dirigido al Registro puede contener varias solicitudes o reclamaciones de la misma especie, pero no puede hacerse en el conjuntamente solicitudes de inclusión y exclusión, ni aquellas o estas cuando se refieran a distinto distrito electoral.

@@ -1,1 +1,0 @@
-Artículo 21.-Todo asiento o nota marginal llevara la firma del Director General del Registro, quien será responsable de cualquier inexactitud o falta de la prueba correspondiente, sin perjuicio de que también se castigue a otro u otros culpables.

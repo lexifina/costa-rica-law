@@ -1,2 +1,0 @@
-Articulo 17.- El empadronamiento de los electores se mantendrá por distritos electorales con la debida separación de libros en secciones cantonales para cada provincial.
-No obstante el Registro Electoral mantendrá por duplicado para cada provincial, un índice alfabético por apellidos de todas las personas inscritas, con indicación del asiento, folio y libro en donde existe la inscripción respectiva.

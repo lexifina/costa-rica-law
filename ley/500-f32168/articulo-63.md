@@ -1,2 +1,0 @@
-Artículo 63.- El Director General del Registro Electoral será nombrado por el Tribunal Nacional Electoral para servir un período de cuatro años. Puede ser reelecto; y cada designación se hará en la primera sesión del mes de Julio correspondiente.
-El Tribunal Nacional Electoral podrá revocar el nombramiento por simple mayoría, en el caso comprobado de incumplimiento de los deberes que esta ley le impone.

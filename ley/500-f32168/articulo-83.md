@@ -1,1 +1,0 @@
-Artículo 83.- Dentro de los tres días posteriores a la publicación del acuerdo indicado en el artículo anterior y en la misma forma señalada en el artículo 12, ante el respectivo Gobernador o Jefe Político, se procederá a la Juramentación e instalación de las Juntas Cantonales.

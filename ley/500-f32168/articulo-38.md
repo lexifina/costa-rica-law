@@ -1,1 +1,0 @@
-Artículo 38.- El día cuatro de diciembre anterior a una elección, el Registro comenzará a formar la lista general definitiva de electores o padrón electoral nacional tomando en cuenta sus propias resoluciones, las del Poder Ejecutivo vertidas hasta el día primero de ese mismo mes y las de los Jueces que se hubieren dictado hasta el día tres del mismo mes de diciembre.

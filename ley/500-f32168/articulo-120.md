@@ -1,3 +1,0 @@
-Artículo 120.- Cada cuatro años, a partir de su fundación, quedara sin efecto alguno el Registro de afiliados de un partido. Deberá en consecuencia renovarse a fin de que, presentado de Nuevo al Registro Electoral el número de adhesiones a que se refiere el artículo 107, se anote al margen de la inscripción su reorganización.
-Los partidos inscritos, que con cuatro años de fundados no tengan anotada la reorganización de su Registro de Afiliados, serán cancelados sin más trámite.
-A igual reorganización estarán obligados los partidos que en una elección no hubieren tenido un número de sufragios igual al 2% del respectivo electorado, si quieren participar en la siguiente elección.

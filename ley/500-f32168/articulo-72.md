@@ -1,1 +1,0 @@
-Artículo 72.-El secretario tiene facultades para extender las certificaciones que se pidan al registro y para hacer ejecutar las ordenes que sobre disciplina y distribución del trabajo imparta el Director General.

@@ -1,1 +1,0 @@
-Articulo 201.- Después de una declaratoria definitiva de elección, no se podrá volver a tratar de la validez de la misma ni de la aptitud legal de la persona electa, a no ser por causas posteriores que la inhabiliten para el ejercicio del cargo.

@@ -1,3 +1,0 @@
-Artículo 82.- Las Juntas Cantonales estarán formadas por un elector delegado de cada uno de los partidos Políticos inscritos en escala provincial.
-A tal efecto, en la última semana de diciembre, cada partido, por medio del presidente del comité ejecutivo de la Asamblea de Cantón comunicara a la respectiva Junta Provincial, por escrito, el nombre de su delegado por el Cantón.
-La Junta Provincial respectiva, dentro de los tres primeros días de enero, hacienda la designación por los partidos remiso y acogiendo necesariamente la designación por los partidos, tomara y publicara el acuerdo en donde declare integradas las Juntas Cantonales, siguiendo el mismo orden dicho en el artículo 79.

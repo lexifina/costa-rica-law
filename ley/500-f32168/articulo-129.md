@@ -1,1 +1,0 @@
-Artículo 129.-Para los efectos del aparte Segundo del artículo 127, la autoridad política fijara en su despacho una copia del plan escrito que formulara para la ocupación sucesiva de dichos lugares por los diferentes partidos. Al presidente del Comité Ejecutivo local de cada Partido, le hará entregar otra copia perfectamente legible del mismo plan.

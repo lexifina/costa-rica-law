@@ -1,1 +1,0 @@
-Artículo 222.-Durante las horas de la elección los particulares gozaran de franquicia telegráfica para quejarse de cualquier irregularidad ante las autoridades administrativas, judiciales y electorales.

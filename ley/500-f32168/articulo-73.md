@@ -1,1 +1,0 @@
-Artículo 73.- Cada uno de los oficiales de provincia practicará las operaciones correspondiente a una de las siete provincias de la Republica que conforme, al artículo 21, deberá firmar el Director General.

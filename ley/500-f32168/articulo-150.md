@@ -1,1 +1,0 @@
-Artículo 150.- El local de votaciones estará acondicionado de modo que en una parte de el pueda establecer la Junta Receptora, y en la otra, con todas las garantías necesarias al secreto del voto, el elector pueda marcar sus papeletas a solas.
