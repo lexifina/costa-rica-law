@@ -14,3 +14,4 @@ Reglamento de Inversiones de las Entidades Reguladas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-20 | la propia norma |
+| 2 | 2003-08-05 | Reglamento 383 (2003-08-05) |

@@ -9,5 +9,6 @@ c) Estar adscrito a uno de los custodios globales acreditados por la Superintend
 d) Contar con quince años de experiencia prestando sus servicios de custodia a administradoras de carteras.
 e) Mantener al menos cien mil millones de dólares en valores bajo su custodia.
 f) Debe tener la posibilidad de abrir y administrar cuentas a nombre de los fondos administrados las cuales se deben actualizar diariamente.
-g) Contar con los seguros necesarios y suficientes para garantizar la conservación e integridad de los instrumentos de inversión bajo custodia, ya sea que éstos se encuentren en guarda física, en tránsito o custodia electrónica.
-h) Prestar el servicio de custodia con fundamento en un contrato de custodia que incluya los requisitos mínimos señalados en el Artículo 56 del presente reglamento.
+g) Contar con los seguros necesarios y suficientes para garantizar la conservación e integridad de los instrumentos de inversión bajo custodia.
+h) Prestar el servicio de custodia con fundamento en un contrato de custodia que incluya los requisitos mínimos señalados en el artículo 58 del presente Reglamento.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 383-2003, celebrada el 05 de agosto de 2003, publicada en La Gaceta N° 162 de 25 de agosto de 2003.)

@@ -5,4 +5,5 @@ Calificadora Corto plazo Largo plazo
 Fitch F1+ AAA
 Moody´s P-1 Aaa
 Standard and Poor´s A-1 AAA
-c) Podrán estar denominados en moneda nacional o en dólares. Las inversiones del capital mínimo de funcionamiento deberán ser en la misma moneda en la que están denominados los fondos respectivos.
+c) Podrán estar denominados en moneda nacional, en dólares o en euros. No obstante, los recursos del capital de funcionamiento que correspondan a fondos en dólares deberán ser invertidos en esa misma moneda.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 383-2003, celebrada el 05 de agosto de 2003, publicada en La Gaceta N° 162 de 25 de agosto de 2003.)
