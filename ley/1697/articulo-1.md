@@ -1,0 +1,6 @@
+N° 1697
+LA ASAMBLEA DE LA ASAMBLEA DE LA REPUBLICA DE COSTA RICA
+Artículo 1º.- Refórmase el artículo 574 del Código Fiscal, que en lo sucesivo se leerá así:
+"Artículo 574.- El depositario venderá el papel sellado, timbres, sellos de correos, boletas de destace y demás especies fiscales en su poder, pero sólo en cantidad de veinticinco colones o más, y en ese caso descontará un seis por ciento (6%) en favor del comprador, el que deberá depositar previamente la cantidad necesaria para pagar las especies. Se exceptúan del descuento anterior los marbetes para fósforos, que sólo lo tendrán de uno y medio por ciento (1 ½%), los timbres consulares que lo tendrán de un ocho por ciento (8%), y los demás marbetes, tales como para refrescos, licores, cerveza y cigarrillos, que no tendrán descuento alguno.
+De todo lo realizado diariamente se llevará y presentará cuenta comprobada, conforme a los reglamentos. El depositario avisará quincenalmente al Ministerio de Economía y Hacienda y a la Proveeduría Nacional el estado de las existencias, a fin de que ésta proceda con suficiente anticipación a efectuar las correspondientes licitaciones para la adquisición de especies fiscales.
+El Poder Ejecutivo, en uso de la facultad reglamentaria, dictará todas aquellas disposiciones que juzgue oportunas para evitar cualquier acaparamiento o especulación con dichas especies".
