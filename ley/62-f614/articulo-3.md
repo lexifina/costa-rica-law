@@ -1,0 +1,1 @@
+Art. 3°-Una comisión compuesta de las personas que se nombran en este decreto, ó de las que en lo futuro se designen, si fuere necesario, procederá á organizar la Exhibición, á formar y hacer circular los respectivos programas, y á nombrar las sucursales y agencias que juzgue necesario establecer en las provincias y cantones de la República.

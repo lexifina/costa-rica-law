@@ -1,0 +1,1 @@
+Art. 5°-Las autoridades políticas cantonales están en el deber de dar á la comisión, á las sucursales y agencias, todo el auxilio que se les pida y cuya satisfacción sea compatible con sus atribuciones.
