@@ -15,3 +15,4 @@ Reglamento de Cobro de la Tasa sobre Mantenimiento de Parques y Zonas Verdes y s
 | --- | --- | --- |
 | 1 | 2000-05-30 | la propia norma |
 | 2 | 2000-06-06 | Reglamento municipal 132 (2000-06-06) |
+| 3 | 2000-08-25 | Reglamento municipal 0 (2000-08-25) |

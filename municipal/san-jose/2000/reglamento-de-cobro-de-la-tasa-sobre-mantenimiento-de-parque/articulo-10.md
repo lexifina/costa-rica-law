@@ -1,2 +1,2 @@
-Artículo X.-Esta tasa deberá pagarla todos los contribuyentes de cada uno de los distritos, según la medida lineal de frente de propiedad.
-(Así reformado mediante sesión N° 132 del 6 de junio del 2000).
+Artículo X.-EI cobro de esta tasa lo hará la Municipalidad a cada uno de los contribuyentes, en trimestres vencidos y en un único recibo que se emitirá para tal efecto.
+(NOTA: Mediante sesión N° 132 del 6 de junio del 2000, se reforma este artículo no obstante, por publicación efectuada en La Gaceta N° 170 del 5 de setiembre del 2000, se dejó sin efecto dicha reforma por lo que el texto actual corresponde al que tenía antes de dicha reforma).
