@@ -1,0 +1,4 @@
+CAPITULO ULTIMO
+De la reformación de estos Estatutos
+Art 41° - Como la experiencia puede hacer diariamente los vacíos de estos Estatutos, así como la inconveniencia de alguna de las disposiciones que contienen, y no siendo justo que el buen servicio de la casa sufra por estos defectos, la Junta de Gobierno queda autorizado y en su receso el Presidente de ella para llenar los vacíos que se noten y aun para suspender o modificar algunas disposiciones bajo su propia responsabilidad, dando cuenta a la Hermandad en la reunión general del primer Domingo de Diciembre, para que si se encontrase convenientes las disposiciones acordadas las eleve con informe al Supremo Gobierno para su aprobación, y en el caso de que se dé esta se tenga por enmienda hechos a los presentes Estatus.
+Dado en el Palacio Nacional. San José octubre dieciséis de mil ochocientos sesenta y tres.
