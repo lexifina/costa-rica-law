@@ -1,0 +1,1 @@
+Art 4°.- El Gobierno espera de todas las personas mencionadas en el presente Decreto que se prestarán gustosas a hacer el servicio que se les designa, como tan patriótico y de tanto interés para la humanidad. Dado en la ciudad de San José a los dieziseis días del mes de mayo de mil ochocientos treinta y siete.
