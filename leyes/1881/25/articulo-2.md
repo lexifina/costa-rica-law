@@ -1,0 +1,1 @@
+ART. 2°. -En la oficina ser n custodiados y ordenados todos los papeles, libros, expedientes, legajos y protocolos, relativos a materias civiles, criminales, eclesiásticas, militares, municipales, de Hacienda y de Administración, de fecha anterior al año de 1850 inclusive.

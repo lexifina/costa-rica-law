@@ -1,0 +1,1 @@
+ART. 4°.-Por ahora, esta oficina depender inmediatamente de la Secretaría de Hacienda, y el Secretario de este ramo queda autorizado para organizarla, hacer el nombramiento de empleados y dar los reglamentos y órdenes convenientes en cumplimiento de este decreto.
