@@ -2,8 +2,8 @@ CAPITULO II
 De la Junta Directiva
 Articulo 7°—Son deberes y atribuciones de la Junta Directiva:
 1) Elegir en la primera sesión de cada ano un Presidente, un Vicepresidente y un Secretario, entre .sus miembros. El Vicepresidente repondrá al Presidente en sus ausencias, impedimentos y excusas temporales, y faltando ambos, la Junta designará un Presidente interino. A falta temporal del Secretario, se nombrará uno ad hoc.
-2) Nombrar en su oportunidad al Gerente, Subgerente. Auditor, Subauditor y Secretario de Actas.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE el inciso 2) de este artículo por el artículo 1° del Decreto Ejecutivo N° 1005 de 21 de mayo de 1970, publicado en La Gaceta N° 122 de 03 de junio de 1970.)
+2) Nombrar en su oportunidad al Gerente, Subgerente, Auditor y Subauditor.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE el inciso 2) de este artículo por el artículo 1° del Decreto Ejecutivo N° 14967 de 06 de octubre de 1983, publicado en La Gaceta N° 218 de 17 de noviembre de 1983.)
 3) Acordar las operaciones del Instituto que, conforme a la Ley o los Reglamentos, necesiten ese requisito.
 4) Revisar y autorizar el presupuesto de egresos de cada ejercicio anual y los presupuestos extraordinarios y someterlos para su aprobación a la Contraloría General de la República.
 5) Establecer en el Presupuesto, como gasto, todas las sumas a que el Instituto esté obligado por Leyes de la República y Fallos Judiciales.
