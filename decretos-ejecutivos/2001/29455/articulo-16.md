@@ -1,0 +1,1 @@
+Artículo 16.—Funciones de la Asesoría Legal. La asesoría legal será responsable por la supervisión, revisión y ejecución de todos los aspectos legales relacionados con la fiscalización contractual, incluyendo la realización de los trámites legales asignados al CETAC en el Contrato de Gestión Interesada.

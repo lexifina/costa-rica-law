@@ -1,0 +1,2 @@
+Artículo 3º—Objetivo General del Órgano Fiscalizador. El Objetivo General del Órgano Fiscalizador es velar por el cumplimiento efectivo y oportuno de las obligaciones y derechos de las partes de conformidad con lo dispuesto en el Contrato de Gestión Interesada y la legislación aplicable.
+Para el cumplimiento de este objetivo general, el Órgano Fiscalizador resguardará los intereses públicos y garantizará el desarrollo de las actividades del Aeropuerto Internacional Juan Santamaría.

@@ -1,0 +1,2 @@
+Artículo 4º—Relación del Órgano Fiscalizador y el Consejo Técnico de Aviación Civil. El Órgano Fiscalizador fungirá como un órgano asesor del CETAC, para verificar el cumplimiento de las obligaciones de las partes derivadas del Contrato de Gestión Interesada.
+El Órgano Fiscalizador podrá actuar en nombre del CETAC en aquellas relaciones formales con el Gestor que hayan sido autorizadas por el Contrato de Gestión Interesada o por el CETAC.

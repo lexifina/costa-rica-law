@@ -1,0 +1,1 @@
+Artículo 17.—Funciones del Asesor Financiero. La asesoría financiera será responsable de la supervisión, revisión y desempeño de todos los aspectos financieros relacionados con la fiscalización contractual, incluyendo el control de costos, revisión de informes mensuales, etc.

@@ -1,0 +1,1 @@
+Artículo 14.—Nombramientos. Los asesores en materia legal, financiera y de planificación de la Unidad de Asesoría Técnica serán autorizados por el Consejo Técnico de Aviación Civil con base en la propuesta que le presente el Inspector General.
