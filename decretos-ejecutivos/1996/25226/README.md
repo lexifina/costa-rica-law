@@ -15,3 +15,4 @@ Reglamento de las Empresas y Actividades Turísticas
 | --- | --- | --- |
 | 1 | 1996-06-26 | la propia norma |
 | 2 | 1998-03-02 | Decreto Ejecutivo 26843 (1998-03-02) |
+| 3 | 2000-11-06 | Decreto Ejecutivo 29058 (2000-11-06) |

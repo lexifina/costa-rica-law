@@ -1,3 +1,2 @@
-Artículo 12.—Las empresas o actividades turísticas podrán solicitar los beneficios para el fomento del turismo, establecidos en la legislación y reglamentos vigentes.
-Sin embargo, la clasificación no conlleva el derecho a tales beneficios de un modo implícito, por cuanto todo beneficio que se solicite, será recomendado específicamente, previo estudio técnico de cada caso.
-Asimismo las reclasificaciones que se realicen a las empresas turísticas, como consecuencia de una inspección o de la aplicación de un nuevo sistema de clasificación, serán aplicables en forma inmediata.
+Artículo 12.—La declaratoria de empresa o actividad turística no otorga los beneficios establecidos en la Ley de Incentivos para el Desarrollo Turístico Nº 6990 y sus reformas y su reglamento y otros beneficios establecidos en la normativa vigente. Para obtener dichos beneficios deberán realizarse los trámites y procedimientos de contrato turístico una vez obtenida la declaratoria turística.
+(Así reformado mediante el artículo 1 del decreto ejecutivo N°29058 del 06 de noviembre del 2000).
