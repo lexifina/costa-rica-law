@@ -1,0 +1,1 @@
+Art 437- El Director en Jefe, en el reglamento de régimen interior de las oficinas, determinará con la debida precisión y claridad las faltas leves de que sean responsables los telegrafistas, lo mismo que las circunstancias que las agravan o atenúan.

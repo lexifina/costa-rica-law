@@ -1,0 +1,1 @@
+Art. 236.- El Subsecretario de Hacienda ó el que haga sus veces , presidirá el jurado; no puede recusársele sin justa causa, y cuando con ella se le recusare, resolverá sobre la recusación el Ministro de Hacienda, nombrando en su caso el empleado que deba presidir el jurado.

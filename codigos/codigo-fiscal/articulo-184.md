@@ -1,0 +1,1 @@
+Art 184.-Estando el pedimento en regla, lo pasará rubricado al Alcaide para que haga trasladar los bultos á la sala de registro, y en seguida se practicará éste por el Alcaide, á presencia de uno de los guarda-almacenes, del Contador ó el Administrador, y del dueño consignatario ó persona autorizada para ello.

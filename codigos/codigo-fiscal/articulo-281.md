@@ -1,0 +1,1 @@
+Art. 281.-En el caso del artículo 278, la cancelación del timbre en documentos privados la hará el Receptor, y en su falta la autoridad política del lugar y en instrumentos público, el respectivo cartulario, quien sentará al margen de la matriz y en el testimonio la razón correspondiente.

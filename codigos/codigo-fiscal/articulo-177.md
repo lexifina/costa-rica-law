@@ -1,0 +1,1 @@
+Art. 177.-Siempre que se les pierda la placa ó placas, y cuando por enajenar los carros ó por cúalquier otro motivo, no les convenga continuar matrículado, los porteadorcs deben dar aviso al Director Gene-ral de Aduanas. - Mientras la matrícula subsista, el porteador es responsable de lo que cualquiera haga cubierto con la autorización de su placa.

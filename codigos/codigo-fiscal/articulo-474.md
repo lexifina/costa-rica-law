@@ -1,0 +1,1 @@
+Art 474- El depositario ó expendedor de artículos estancados y el fabricante, sembrador ó cultivador de ellos sufrirá, además de las penas señaladas, un mes de arresto, que no será conmutable ni indultable sino para el depositario.

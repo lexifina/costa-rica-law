@@ -1,0 +1,1 @@
+Art 45- Por cada recibo que los Cónsules den de cada factura, cobrarán dos pesos. Se exceptúan las facturas de muestras sin valor. Fuera de aquel derecho, ningunos otros cobrarán, ni á los capitanes, ni á los remitentes, ni á los pasajeros.

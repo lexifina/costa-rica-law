@@ -1,0 +1,1 @@
+Art 355.-Es correspondencia oficial, y por tanto exenta de porte, la del Presidente de la República, la de los Secretarios de Estado y la de los empleados entre sí, civiles y militares, cuando tenga por objeto el servicio público y lleve el sello de la oficina de donde proceda, sin cuya formalidad se considerará como privada.

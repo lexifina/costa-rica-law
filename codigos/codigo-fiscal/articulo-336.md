@@ -1,0 +1,1 @@
+Art 336.-Se autoriza al Director General para imponer a sus dependientes de uno a cinco pesos de multa en favor del Tesoro Público, por las faltas que note en el desempeño de las obligaciones que les están encomendadas.

@@ -1,0 +1,1 @@
+Art 606.-Cada mes, cuando ya las órdenes de entero estén para archivarse, el Tenedor de Libros pasará a la Contaduría Mayor todos los giros a la vista por derechos de Aduana para que, con vista de ellos, cancele las cuentas de los comerciantes a que se refieren, y también las pólizas que lo causaron.

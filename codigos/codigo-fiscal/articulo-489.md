@@ -1,0 +1,1 @@
+Artículo 489- Las monedas extranjeras el oro ó la plata tendrán curso legal, despúes que el gobierno determine la relación en que se hayan con nuestra moneda. A este fin hara que en la Casa de Monedas se examinen cada año las monedas extranjeras, para fijar la ley y peso de cada una de ellas, y la relación de valor con las de la República.

@@ -1,0 +1,1 @@
+Art. 143.-Si el marchamo del carro ó carros llegare roto el Administrador, haciéndolo constar así, seguirá información sobre el motivo de la rotura, recíbiendo la declaracion del conductor y de las demas personas que crea conveniente.

@@ -1,0 +1,1 @@
+Art 411- Podrán los particulares pedir a los telegrafistas una o más copias de los telegramas que se les hayan dirigido, pero pagarán por cada copia el valor correspondiente al telegrama original, el cual corresponde a la oficina del telegrafista que expida la copia.

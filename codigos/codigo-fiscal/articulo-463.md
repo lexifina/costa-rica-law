@@ -1,0 +1,1 @@
+Art 463- Lo dispuesto en el artículo anterior, es aplicable a los almacenistas de las ventas sucursales; y cuando en estas haya que hacer algún gasto, darán cuenta al jefe de sección de la Secretaría de Hacienda para que, una vez comprobado o aprobado el gasto, lo mande pagar.

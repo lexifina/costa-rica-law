@@ -1,0 +1,1 @@
+Art 559- El Oficial Mayor de la Imprenta pasará cada semana un estado al Ministerio de Hacienda, de los ingresos habidos en el establecimiento y pondrá en la Tesorería Nacional la cantidad a que monten las entradas.

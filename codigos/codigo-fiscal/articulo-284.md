@@ -1,0 +1,1 @@
+Art. 284.-Cuando se haga uso de dos ó más estampillas para documentos y libros, no debe quedar ninguna sin cancelación legal. De lo contrario, se reputará el documento ó libro como falto en lo absoluto de estampillas.

@@ -1,0 +1,1 @@
+Art 462- Los almacenistas son jefes respectivamente de su departamento y no entregarán ninguna cantidad de especies sin orden escrita del Superintendente. Pasarán mensualmente al jefe de sección de la Secretaría de Hacienda nota de las especies entregadas y de las que quedan en almacén.

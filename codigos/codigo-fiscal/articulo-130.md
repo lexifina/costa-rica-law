@@ -1,0 +1,1 @@
+Art. 130.- Las mercaderías serán conducidas directamente de los almacenes al carro ó carros que deban transportarlas, y concluida la carga se marchamarán los carros y se le cerrará con dos candados, de los cuales conservara una llave el Alcaide y otra el Administrador.

@@ -1,0 +1,1 @@
+Art.66.-El Administrador de la Aduana del puerto remitirá por el inrnediatocorréo al Director General de Aduanas uno de los ejemplares del manifiesto por mayor; entregará otro al guarda encargado de recibir en el muelle ó playa el cargumento, y al jefe de almacenes la copia hecha por el Contador.

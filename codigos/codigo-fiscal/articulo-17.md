@@ -1,0 +1,1 @@
+Art 17- Cuando en un mismo bulto vengan mercaderías de clases diversas entre sí, deberá estar cada clase en paquetes ó con la debida separación, de tal manera que pueda verificarse su peso con el declarado en la factura, a fin de que, encontrándolo exacto, se haga la repartición proporcional de la tara del bulto y quede fijado el peso bruto que corresponde á cada mercadería.

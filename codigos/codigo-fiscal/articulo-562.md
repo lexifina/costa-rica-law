@@ -1,0 +1,1 @@
+Art 562- Siempre que la Imprenta Nacional imprima tiquetes de ferrocarril, folletos de leyes, códigos, cédulas, papel sellado, etc., y en general cualquier papel o valor que deba ponerse en venta o a la circulación pública, pasará el Oficial Mayor una nota de aviso al Ministerio de Hacienda, con expresión del número de ejemplares que se haya entregado al jefe de sección.

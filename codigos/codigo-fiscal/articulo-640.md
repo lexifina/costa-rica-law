@@ -1,0 +1,1 @@
+Art 640.-El Gobierno puede contratar con un Banco la administración de las rentas; en este caso el Administrador del Banco será el Tesorero Nacional, y el Banco el que le responda al Gobierno de los fondos que administra.

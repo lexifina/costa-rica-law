@@ -1,0 +1,1 @@
+Art 413- En los casos de interrupción de las líneas los telegrafistas solamente podrán recibir partes o despachos telegráficos a condición de trasmitirlos cuando se restablezca la comunicación. Entre tanto, los interesados podrán retirar de la oficina sus partes.

@@ -1,0 +1,1 @@
+Artículo 29- Si fuere extranjero el remitente de los efectos cuya consignación se haya renunciado, dará el administrador de aduana el aviso oficial respectivo al Cónsul o Vicecónsul de la nación del remitente, para que dentro del término de tres días, conteste si se hace ó no cargo de la consignación; pasado este plazo sin decir que no acepta, se entiende que acepta.

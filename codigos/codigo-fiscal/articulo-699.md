@@ -1,0 +1,1 @@
+Art 699- Toda constancia de caución debe custodiarse en el archivo del Ministro de Hacienda, y ningún empleado obligado a caucionar podrá entrar en posesión de su empleo sin haber llenado antes ese requisito, bajo las penas que establece la ley.

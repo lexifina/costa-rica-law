@@ -1,0 +1,1 @@
+Art 20- Cuando se emplee en las facturas consulares la nomenclatura de arancel, expresándose el nombre de las mercaderías sin especificar su clase, no pudiéndose saber por lo mismo, la cuota que les corresponde, y el arancel asigne varias cuotas para diversas clases de la misma mercadería, se liquidaran los derechos de un veinticinco por ciento de recargo.

@@ -1,0 +1,1 @@
+Art 389- Cuando el domicilio a que el mensajero tuviere que llevar el telegrama, se hallare a más distancia de 800 metros de la oficina, podrá exigir para sí, de la persona a quien fuere dirigido el telegrama, veinticinco céntimos, que ésta deberá pagarle.

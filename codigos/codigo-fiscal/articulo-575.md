@@ -1,0 +1,1 @@
+Art 575- Entregará a los agentes del ferrocarril, bajo recibo y detalle, los tiquetes que le pidan; y a los receptores y administradores de correos, las estampillas y especies fiscales que deban recibir bajo cuenta y razón.

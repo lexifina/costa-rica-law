@@ -1,0 +1,1 @@
+Art 675- Al practicar la visación de las cuentas de un empleado de los que manejan caudales públicos, el contador encargado de la visación confrontará minuciosamente las partidas con las de la cuenta que respectivamente se les llevará en los libros de la Contabilidad Nacional.

@@ -1,0 +1,1 @@
+Art 145.-El Administrador, o por sí, ó por medio de algunos de los empleados de la Aduana revisará á la llegada del tren los demás carros que por venir abiertos, no deban conducir mercaderías destinadas al consumo interior.

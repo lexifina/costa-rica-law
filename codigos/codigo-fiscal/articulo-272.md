@@ -1,0 +1,1 @@
+Art. 272.-El documento en que provisionalmente se hiciere constar una obligación, negocio ó acto dé los por esta ley, pagará el impuesto correspondiente, quedando exento de pago el que definitivamente se otorgue.

@@ -1,0 +1,1 @@
+Art 683- Todas las sentencias definitivas las dará el Contador Mayor por fallo, a nombre de la República, y debe publicarlas en persona, en la sala de audiencia, y en presencia del secretario, firmándola con firma entera. El secretario las autorizará, y siendo condenatorias se sacará testimonio y se remitirá a la Secretaria de Hacienda para su ejecución.

@@ -1,0 +1,1 @@
+Art 499- Terminada la acuñación, el maquinista dará aviso al Director, el cual sacará indistintamente de las monedas acuñadas bocados para que se proceda a un nuevo ensayo. Si de éste resultare que las monedas tienen ley más baja que al ser entregadas al maquinista, se procederá a averiguar la causa de esa baja y se mandarán a refundir las monedas para su afinación.

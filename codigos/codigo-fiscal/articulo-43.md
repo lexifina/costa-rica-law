@@ -1,0 +1,1 @@
+Art 43- Los cónsules costarricenses tienen obligación de imponerse de todas las expediciones mercantiles que se dirijan a los puertos de la República, aun cuando no salgan del puerto o punto donde estuvieren establecidos, dando cuenta a la Secretaría de Hacienda, por el conducto más rápido, de todos los pormenores o circunstancias que hubieren adquirido.

@@ -1,0 +1,1 @@
+Art 517.-En la medida y revisión se procederá conformé á los principios de la ciencia y á las leyes que reglamentan las funciones de los agrimensores, medidas, deslindes, y todo lo demás concerniente á la propiedad territorial.

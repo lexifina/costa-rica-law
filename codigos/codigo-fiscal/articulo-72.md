@@ -1,0 +1,1 @@
+Art. 72.-Los resguardos apresarán cualesquiera embarcaciones que contravengan a lo dispuesto en el artículo anterior; y tanto éstas como los efectos que contengan serán declarados en comiso por el Administrador de la Aduana, previa la comprobación de ley.

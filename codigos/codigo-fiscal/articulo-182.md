@@ -1,0 +1,1 @@
+Art. 182. -No serán admitidos los pedimentos de registro que se presenten sin los requisitos expresados en el artículo anterior, ni los que tnvieren borrones, raspaduras ó enmiendas, ó que no estuvieren confor-mes con lo expresado en la factura original.

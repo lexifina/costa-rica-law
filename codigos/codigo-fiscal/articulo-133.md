@@ -1,0 +1,1 @@
+Art. 133.-El Administrador expedirá guías de la carga despachada, y los guías contendrán, udemás de la fecha de la salidadel tren y del nombre del conductor, el número y copia literal de la partida de al- macenes, El conductor deberá devolver la guía cancelada al regreso del tren.

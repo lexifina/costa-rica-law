@@ -1,0 +1,1 @@
+Art. 83.-En los libros gravados por esta ley con el impuesto de timbre, el Juez, al poner la nota de que habla el artículo 40 del Código deComercio, fijará en la primera hoja, las estampillas correspondientes, que cancelará en la forma prevenida en el artículo 280.

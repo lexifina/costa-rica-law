@@ -1,0 +1,1 @@
+Art 42- Los Cónsules costarricenses tienen, además, obligación, cuando fueren requeridos por algún comerciante o capitán de buque que trata de emprender negocios de comercio con la República, de instruirlos de todas las reglas y prevenciones que debe observar, haciéndolo de palabra o por escrito si la expedición se organizare fuera del punto del Consulado.

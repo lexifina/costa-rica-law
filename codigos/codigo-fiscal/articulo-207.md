@@ -1,0 +1,1 @@
+Art. 207.-Registradas y despachadas las mercaderías en la Aduana de tránsito, se devolverá la declaración y copia de la factura al Director General de Aduanas, para que en la Aduana de Registro se liquiden los derechos correspondientes.

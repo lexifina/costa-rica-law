@@ -1,0 +1,1 @@
+Art. 80.-En la solicitud de licencia para trasbordo deberá expresarse el número, marca y contenido en general del bulto ó bultos que se intente trasbordar, el nombre del buque de donde deben extraerse y el del en que van á ser trasbordados.

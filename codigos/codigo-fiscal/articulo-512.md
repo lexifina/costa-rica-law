@@ -1,0 +1,1 @@
+Art 512.-Presentada la denuncia se llamará por edictos publicados por tres veces en el periódico oficial, a los que tengan derecho de oponerse a la denuncia, para que formalicen su oposición dentro del término de treinta días.

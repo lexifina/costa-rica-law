@@ -1,0 +1,1 @@
+Art 406- Los telegrafistas no trasmitirán los telegramas particulares que contengan noticias de hechos subversivos o conatos de sedición. En este caso, trasmitirán dichas noticias al Director en Jefe, quien con conocimiento del telegrama le mandará dar curso o lo enviará a la autoridad que corresponda.

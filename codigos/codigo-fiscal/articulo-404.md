@@ -1,0 +1,1 @@
+Art 404.-Los particulares tienen derecho a pedir respuesta libre de porte, advirtiendo esto en el tenor del parte; pero depositando en la oficina telegráfica cincuenta céntimos para responder por el valor de la contestación.

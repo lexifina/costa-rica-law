@@ -1,0 +1,1 @@
+Art 636.-Los fondos que colecten las obras Administraciones especiales, y las ventas de especies fiscales que haga el Jefe de Sección de la Secretaría de Hacienda, ingresarán diariamente a la Tesorería Nacional. Las administraciones de Aduana y las de tabacos y licores de Puntarenas y Limón, verificarán la remesa de sus fondos los viernes de cada semana.

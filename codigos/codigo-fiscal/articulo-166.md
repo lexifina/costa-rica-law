@@ -1,0 +1,1 @@
+Art. 166.-Los porteadores deben colocar y llevar siempre de un modo visible, en el frente del carro ó en la testera de la acémila, la placa de matrícula, y además, pintado en cifras visibles en los costados del carro, el respectivo número de su placa.

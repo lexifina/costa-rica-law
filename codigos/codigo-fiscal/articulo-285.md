@@ -1,0 +1,1 @@
+Art. 285.-No es admisible en documentos y libros la estampilla ó estampillas cuya cancelación contenga enmienda ó raspadura. Cualquiera de ambos defectos se reputará como infracción, y por lo mismo el documento, serán considerados como faltos de estampillas, aplicándose al tenedor la multa que le corresponde, sin perjuicio de proceder a lo que haya lugar.

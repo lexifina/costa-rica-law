@@ -1,0 +1,1 @@
+Art 555- Los avisos judiciales y particulares se publicarán con numeración de orden, que cambiará cada mes. Al pie de ellos se pondrá también el número de veces que se debe publicar el aviso y el valor recibido en la Imprenta por la publicación. No se publicará aviso particular ni judicial sujeto a pago, sin haberse satisfecho antes los derechos de publicación.

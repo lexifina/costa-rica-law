@@ -1,0 +1,1 @@
+Art. 260.-Si en el curso de un pleito, ó al fenecerse, apareciere ser mayor su cuantía que la que se haya atribuído al incoarse, el juzgado ó tribunal que de él conozca dispondrá que inmediatamente se reintegre en los autos la diferencia entre el sello empleado y el que resulte corresponderle, y que en- éste se continuen las diligencias sucesivas.

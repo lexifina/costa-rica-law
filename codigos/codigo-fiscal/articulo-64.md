@@ -1,0 +1,1 @@
+Art. 64.- El empleado que reciba el manifiesto por mayor, ó los conocimientos en su caso, deberá dar recibo al capitán del buque, y anotar al pie de dicho documento el día y hora de su recibo, pasándolo inmediatamente después al Administrador de la Aduana del puerto.

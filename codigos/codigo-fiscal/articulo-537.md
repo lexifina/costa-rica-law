@@ -1,0 +1,3 @@
+CAPÍTULO III
+Disposiciones generales
+Art 537.-A una sola persona en un solo denuncio no deben venderse terrenos que excedan de quinientas hectáreas sino en los dos casos siguientes: 1º, cuando por haber justificado verdadera necesidad, alcance permiso especial del Poder Ejecutivo para que se le adjudique mayor área de tierra; y 2º, cuando el agrimensor encuentre que, limitando la medida a las quinientas hectáreas dichas, quedan entre el terreno denunciado y otros de dominio particular, o entre aquél y algún río, camino u otro lindero natural, orillas de tierra que a nadie conviniere denunciar, por ser inadecuadas para formar una finca.

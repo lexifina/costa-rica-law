@@ -1,0 +1,1 @@
+Art. 101- A solicitud de los capitanes ó consignatario, de los buques despachados ú puertos extranjeros, deberá el Administrador de la Aduana dar certificación ú constancia del todo ó parte del cargamento que el buque llevare a bordo.

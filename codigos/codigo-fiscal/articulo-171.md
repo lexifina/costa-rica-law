@@ -1,0 +1,1 @@
+Art. 171.-Lo porteadores deben conducir directamente la carga de la Aduana de tránsito á la de Registro, sin separarse de la carretera, ni llevar la carga á casa de particular, ni entregarla fuera de la Aduana, sino con orden escrita del Director de Aduanas.

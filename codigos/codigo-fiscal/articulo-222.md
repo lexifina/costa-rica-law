@@ -1,0 +1,1 @@
+Art. 222.-En ·caso de contrabando defraudación, que tuviere lugar en los carros de ferro-carriles, no caerán en comiso los carros, pero la compañía ó empresa sufrirá una multa equivalente al cuádruplo del valor de la mercaderías, objeto del delito.

@@ -1,0 +1,1 @@
+Art 10- El capitán de todo buque nacional ó extranjero que arribe trayendo á bordo especies prohibidas ó estancadas, puede el Administrador de la Aduana obligarle a admitir á bordo uno o más guardas vigilantes, que serán mantenidos á costa del buque.

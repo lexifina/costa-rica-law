@@ -1,0 +1,1 @@
+Art 453- El Ejecutivo fijará el precio a que deben venderse los licores y los diversos grados de fortaleza que deben tener éstos. Cuándo se altere el precio de los artículos estancados, la disposición que así lo acuerde no tendrá efecto antes de cuarenta días.

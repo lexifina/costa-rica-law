@@ -1,0 +1,1 @@
+Art. 92.-Estando conformes las pólizas de reembarque, el Administrador de la Aduana concederá el permiso solicitado y ordenará el despacho, entregando una de la pólizas al guarda encargado de presenciar el reembarque, quien la devolverá á la Aduana; cubriendola con la razón de "Cumplida."

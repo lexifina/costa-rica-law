@@ -1,0 +1,1 @@
+Art 475- Los expendedores patentados de artículos de monopolio fiscal que incurran en el delito de contrabando,sufrirán, como penas accesorias, la pérdida de la autorización ó patente, é inhabilitación por cinco años para ejercer el cargo de expendedor de dichos artículos.

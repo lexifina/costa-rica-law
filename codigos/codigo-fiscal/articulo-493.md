@@ -1,0 +1,1 @@
+Art 493- El Director es el jefe inmediato de la Casa. Cuidará de que las monedas fabricadas en la Casa tengan el peso, ley y dimensiones legales. Verificará, cuando lo crea conveniente, las balanzas y medidas empleadas en la Casa. Expedirá con aprobación superior, el reglamento interior de la Casa.

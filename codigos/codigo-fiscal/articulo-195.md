@@ -1,0 +1,1 @@
+Art. 195.-Los equipajes que traigan los Ministros extranjeros acreditados cerca del Gobierno de la República, no serán registrados. Igualmente los equipajes de los Mininistros nacionales que en calidad de tales regresen al país.

@@ -1,0 +1,1 @@
+Art 318- El expendedor patentado que quiera cerrar su establecimiento de licores no estancados, deberá avisarlo al Oficial Mayor de la Secretaría de Hacienda, a más tardar dentro de cuatro días antes de vencer la patente. Si no diere este aviso, pagará un peso por cada día que deje transcurrir sin darlo.

@@ -1,0 +1,1 @@
+Art. 88.- Los dueños o consignatarios de las mercaderías o frutos que deben ser embarcados en buque puesto a la carga, presentarán pedimento al Administrador de la Aduana, expresando el nombre del buqué, el del capitán, las marcas, números, búltos, contenido y peso bruto de los bultos que intentare embarcar, y su destino.

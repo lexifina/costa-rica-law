@@ -1,0 +1,1 @@
+Art 627- Vigilará a todos los empleados del ramo de Hacienda, a fin de averiguar si son exactos en el cumplimiento de sus deberes, e informará a la Secretaría de Hacienda de los defectos y abusos que note en las oficinas.

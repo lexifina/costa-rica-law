@@ -1,0 +1,1 @@
+Art 509.-La propiedad de los terrenos es trasmisible, por título gratuito u oneroso, a costarricenses o extranjeros. No pueden enajenarse los terrenos comprendidos en una zona de una milla de latitud a lo largo de las costas de ambos mares, y orillas de ríos navegables.

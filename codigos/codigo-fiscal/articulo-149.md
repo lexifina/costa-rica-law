@@ -1,0 +1,1 @@
+Art. 149.-Si estuviere conforme el contenido el pedimento con los manifiestos respectivos y los· asento del libro de almacenes, se concederá el permiso y se entregará el pedimento original al guarda-almacene, para la extracción de los bultos á que se refiere la solicttud.

@@ -1,0 +1,1 @@
+Art. 126.-Las mercaderías certificadas podrán entregarse á un tercero que presente la certificación endosada, con la expresión de valor recibido. Procediéndose, para el despacho y registro dé ellas, con las mismas formalidades establecidas para todas las mercaderías.

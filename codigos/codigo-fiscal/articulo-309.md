@@ -1,0 +1,1 @@
+Art 309.-Los inspectores de matanzas, jueces de galera, jueces de paz o comisarios, a quienes se convenciere de connivencia con los carniceros para la defraudación del derecho de destace, a más de perder el destino, si tuviere sueldo o emolumentos fijos, incurrirán en la multa de veinticinco pesos.

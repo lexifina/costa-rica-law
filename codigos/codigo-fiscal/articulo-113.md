@@ -1,0 +1,1 @@
+Art. 113.-No obstante que las mercaderías se declaren inútiles, los dueños ó consignatarios deben, pagar íntegro el derecho de depósito hasta el día en que se hizo la declaración, y á más los costos que haya en su destrucción.

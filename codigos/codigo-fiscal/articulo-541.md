@@ -1,0 +1,1 @@
+Art 541.-Los terrenos baldíos que se vendan o adjudiquen no quedan sujetos implícitamente a otras cargas, limitaciones o servidumbres que las establecidas por las leyes civiles y la libre entrada y salida a los baldíos limítrofes; y la propiedad de dichos terrenos se trasfiere al interesado con todas sus anexidades y productos.

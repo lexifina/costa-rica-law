@@ -1,0 +1,2 @@
+Art. 185.-El registro se practicará abriendo de cada cinco bultos uno que la suerte señale, y examinando detalladamente su contenido, para ver si corresponde con lo manifestado en el pedimento y en las factu ras originales.
+Cuando los bultos fueren menos' de cinco ó hubiere un residuo que no llegue á ese número, siempre se registrará un bulto que la suerte designe entre ellos si fuere un solo bulto, se registrará también.

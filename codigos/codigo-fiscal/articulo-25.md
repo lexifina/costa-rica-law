@@ -1,0 +1,1 @@
+Art 25- Si alguno de ellos renunciare y el otro admitiere, éste sólo será el consignatario. Las renuncias de estos consignatarios nombrados de oficio deberán hacerse dentro de las cuarenta y ocho horas posteriores á la fecha de la notificación del nombramiento; si dejaren pasar ese término sin renunciar, se entiende que aceptan.

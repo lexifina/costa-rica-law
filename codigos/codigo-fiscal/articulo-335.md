@@ -1,0 +1,1 @@
+Art 335.-De cualquier falta o irregularidad en el servicio, es responsable únicamente el Director General, quien salvará su responsabilidad dando cuenta oportunamente al Secretario de Gobernación, de las causas que hayan motivado las faltas o irregularidades.

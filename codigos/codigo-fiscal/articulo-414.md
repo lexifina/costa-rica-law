@@ -1,0 +1,2 @@
+Art 414- Antes de trasmitir un parte, puede solicitar el interesado que no se trasmita.
+En este caso, el telegrafista escribirá en dicho parte: "Retirado por el interesado", y se abstendrá de trasmitirlo, devolviendo el valor que se le hubiere satisfecho por su trasmisión. Trasmitido un telegrama a la oficina a donde se dirige, podrá pedir el interesado que no se entregue, si es que no hubiere salido de la oficina; pero tal petición la hará por medio de un nuevo telegrama, cuyo valor pagará previamente.

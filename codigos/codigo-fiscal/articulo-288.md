@@ -1,0 +1,1 @@
+Art. 288.-Los que hubieren intervenido en el negocio como contratantes, y los que por cualquier acto posterior, hayan sido alguna vez dueños del documento, son fiadores mancomunados entre si, del cartulario ó tenedor, por la responsabilidad proveniente de la falta de timbre.

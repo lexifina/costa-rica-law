@@ -1,0 +1,1 @@
+Art 533.-El título de propiedad se extenderá por el Juez de Hacienda Nacional, previo expediente en que se compruebe el cultivo y se practique la mensura. Al mismo Juez compete la declaración de caducidad

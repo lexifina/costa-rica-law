@@ -1,0 +1,1 @@
+Art 603.-La Contabilidad de Hacienda Nacional es la que debe proveer a todas las oficinas de la República de los libros de cheques por sueldos y gastos extraordinarios, los que se imprimirán bajo su dirección, por series compuestas de un número determinado, según el ramo a que pertenezcan.

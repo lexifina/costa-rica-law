@@ -1,0 +1,1 @@
+Art 646.-Antes de separarse de la oficina, el Contador-Cajero hará un balance de los valores en billetes y dinero en caja, para cerciorarse de si éstos están en conformidad con el Libro de Caja, y el Tesorero y el Tenedor de Libros se satisfarán de si el balance es exacto, y pondrán sus respectivas iniciales en frente de los saldos expresados en el respectivo libro.

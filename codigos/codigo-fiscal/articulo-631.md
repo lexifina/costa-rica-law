@@ -1,0 +1,1 @@
+A Art 631- Todo empleado público debe proporcionar al inspector los datos que éste requiera y que se hallen a su alcance, y prestarle los auxilios que estén en su mano para la persecución de los delincuentes o averiguación de los delitos.

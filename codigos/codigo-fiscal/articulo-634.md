@@ -1,0 +1,1 @@
+Art 634.-El Tesorero General, el Contador y el Tenedor de Libros, son conclaveros, y por consiguiente corresponsables, y deben afianzar su responsabilidad en cantidad suficiente, a juicio del Ministerio de Hacienda.

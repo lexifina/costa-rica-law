@@ -1,0 +1,1 @@
+Art. 291.-El Jefe de Sección de la Secretaría de Hacienda tendrá libros talonarios de boletas de destace, de veinticinco boletas cada uno, para la venta pública. Las boletas de estos libros estarán numeradas y selladas con el sello blanco del Ministerio de Hacienda.

@@ -1,0 +1,1 @@
+Art 353.-Las cartas que en la cubierta lleven la inscripción «quede en el correo,» se archivarán en su respectivo departamento, y se anunciará en la oficina por medio de una lista que se fijará en la puerta principal. Si a los quince días no fuesen retiradas, se publicará en el Diario Oficial, después de cuya formalidad se considerarán como rezago.

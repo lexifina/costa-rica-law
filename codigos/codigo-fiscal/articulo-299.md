@@ -1,0 +1,1 @@
+Artículo 299.-Copia del conocimiento mencionado en el artículo anterior, se remitirá por las autoridades respectivas de Policía al Inspector General de Hacienda durante la primera quincena de cada mes.

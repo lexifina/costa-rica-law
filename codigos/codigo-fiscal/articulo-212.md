@@ -1,0 +1,1 @@
+Art. 212.-A solicitud del interesado, el Alcaide expedirá certificación de la avería ó de las faltas notadas en los bultos registrados. Estas certificaciones llevarán el visto bueno del Administrador, y cuando haya de enviarse al extranjero, el Secretario de Hacienda autenticará las firmas de dichos funcionarios.

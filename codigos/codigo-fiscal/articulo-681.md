@@ -1,0 +1,1 @@
+Art 681- La ejecución de las sentencias dictadas por el Contador Mayor corresponde al Juez de Hacienda Nacional, en juicio escrito, o al Alcalde de Hacienda Nacional, en juicio verbal, según el importe del reclamo ejecutivo, en cuyas instancias el Fiscal de Hacienda debe representar al fisco, pasándose en su caso, y al intento, el instrumento respectivo.

@@ -1,0 +1,1 @@
+Art 338.-Cualquier objeto que se despache por el Correo, debe franquearse por medio de los sellos postales en uso a la fecha de su entrada en la oficina, sin cuya formalidad queda sin curso. No se admite franqueo con fracciones de estampillas.

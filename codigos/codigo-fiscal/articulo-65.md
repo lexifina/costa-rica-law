@@ -1,0 +1,1 @@
+Art.65.-El Contador de la Aduana del puerto confrontará los dos ejemplares del manifiesto por mayor; y si estuvieren conformes, hará una copia exacta, firmando tanto ésta como los dos ejemplares presentados por el capitán de buque.

@@ -1,0 +1,1 @@
+Art 632- El inspector cumplirá además las obligaciones que en otros lugares le impone la ley, y emitirá un reglamento interior de la oficina y del servicio de resguardos que someterá a la aprobación del Secretario de Hacienda.

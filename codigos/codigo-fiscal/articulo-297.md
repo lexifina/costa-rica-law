@@ -1,0 +1,1 @@
+Art 297.-Todos los inspectores de matanzas y jueces de galera, lo mismo que los jueces de paz y comisarios encargados de matanzas, son subalternos del Inspector General de Hacienda y cumplirán estrictamente las órdenes que de él reciban en todo lo concerniente a esta renta.

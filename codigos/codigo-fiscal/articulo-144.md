@@ -1,0 +1,1 @@
+Art 144.-Cuando por ser hora incompetente no pudiere hacerse la descarga en seguida, quedaran los carros cerrados y marchamados, y el Administrador tomará las disposiciones necesarias para la seguridad.

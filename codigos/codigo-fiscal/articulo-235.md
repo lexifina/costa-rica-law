@@ -1,0 +1,1 @@
+Art. 235.-El acusador y el reo pueden recusar sin causa, hasta cuatro jurados cada uno; y con causa legal, á todos los que la tengan. De las recusaciones conocerá el Subsecretario de Hacienda, resolviendo sobre ellas sin ulterior recurso.

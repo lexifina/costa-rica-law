@@ -1,0 +1,1 @@
+Art. 162-EI que pretenda matricularse como porteador deberá hacer constar previamente, por medio de certificación del Alcalde de su domicilio, el lugar de su residencia, su buena conducta, su nombre y demás generales y la calidad de propietario del carro, carros ó acémilas con que quiera inscribirse.

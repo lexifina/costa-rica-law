@@ -1,0 +1,1 @@
+Art 691- Los empleados que rindan sus cuentas deben presentar por duplicado el inventario de los libros y cuadernos de comprobantes de que consten; al pie de uno de los dos ejemplares de tal inventario, el secretario firmará el recibo devolviéndolo al Administrador o Tesorero interesado; y el otro ejemplar lo conservará con las mismas cuentas para cubrir su responsabilidad.

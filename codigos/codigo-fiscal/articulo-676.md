@@ -1,0 +1,1 @@
+Art 676- Visada una cuenta por cualquiera de los contadores, si el que hubiese practicado su examen no encontrare reparos que hacerle, extenderá su aprobación al pie del libro principal, sin otro trámite, dando el empleado el pliego de fenecimiento.

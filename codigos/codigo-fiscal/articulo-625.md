@@ -1,0 +1,1 @@
+Art 625.-Se clasificarán como «gastos diversos» todos los que no correspondan a alguna de las separaciones que quedan determinadas. A cada especie se abrirá su cuenta respectiva, y sólo al Secretario de Hacienda corresponde girar por gastos diversos.

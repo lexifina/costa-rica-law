@@ -1,0 +1,1 @@
+Art 403- No se trasmitirá ningún telegrama particular, aun cuando sea dirigido a un funcionario público, si no se paga previamente su valor por el interesado. A este respecto no servirá de excusa el conocimiento y abono de la persona que presente el telegrama.

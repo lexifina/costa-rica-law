@@ -1,0 +1,1 @@
+Art 735- Se devolverán dichas consignaciones a sus respectivos dueños, acto continuo del remate, excepto la que corresponda al mejor postor, la cual se reservará en depósito como garantía del cumplimiento de su obligación y en su caso, como parte del precio de la venta.
