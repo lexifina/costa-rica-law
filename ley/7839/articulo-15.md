@@ -14,6 +14,7 @@ c) Las emanadas de las encuestas de hogares, de propósitos múltiples,
 de encuestas agropecuarias, de ingresos y gastos de los hogares, de
 encuestas económicas y los índices de precios al consumidor, al productor
 de bienes y servicios y las de comercio exterior.
-d) Las derivadas del sistema de cuentas nacionales.
+d) Las estadísticas básicas requeridas para elaborar las cuentas nacionales y demás cuentas macroeconómicas a cargo del Banco Central de Costa Rica. Para efectos de financiamiento, el Banco y el INEC procederán de conformidad con los artículos 34 y 35 de esta Ley.
+(Así reformado por el artículo 1 de la ley N° 8284 de 28 de mayo del 2002)
 e) Todas las estadísticas que no elaboren otras instituciones, pero
 que el Consejo Directivo del INEC considere relevantes.
