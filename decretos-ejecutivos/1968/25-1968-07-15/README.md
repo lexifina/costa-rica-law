@@ -14,3 +14,4 @@ Autoriza Celebración Corridas Toros por Fiestas Cívicas y Populares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1968-08-06 | la propia norma |
+| 2 | 1978-05-08 | Decreto Ejecutivo 8605 (1978-05-08) |
