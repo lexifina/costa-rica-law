@@ -1,0 +1,3 @@
+Artículo 3º—Modificase el artículo 289 del Reglamento a la Ley General de Aduanas, emitido mediante Decreto Ejecutivo N° 25270-H, publicado en el Alcance N° 37 a La Gaceta N° 123 del 28 de junio de 1996, para que se lea de la siguiente forma:
+"Artículo 289.—Horario de Trabajo del Depósito. El depositario aduanero deberá proporcionar el servicio de recepción de vehículos y unidades de transporte las veinticuatro horas del día. Los servicios de depósito fiscal deberán ser prestados como mínimo, en el horario de funcionamiento normal de la aduana de control.
+Cualquier ampliación a dicho horario deberá solicitarse a la aduana a efecto de que le sea debidamente autorizado".
