@@ -1,0 +1,1 @@
+Artículo 2°─ El traspaso o transferencia al Estado solicitante se hará bajo condición estricta de reciprocidad la que se hará constar en la solicitud del país interesado ante el Gobierno de la República.
