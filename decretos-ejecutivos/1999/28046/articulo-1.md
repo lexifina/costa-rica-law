@@ -118,3 +118,4 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificase el límite presupuestario y de gasto efectivo para el 2000, establecido a la Dirección General de Museos y al Museo Nacional de Costa Rica, según el artículo 1° del Decreto Ejecutivo Nº 28837- H del 21 de julio del 2000)
 (Modificase el límite presupuestario y de gasto efectivo para el 2000, establecido a la Dirección General de Museos y al Museo Nacional de Costa Rica, según el artículo 1° del Decreto Ejecutivo Nº 28841- H del 21 de julio del 2000)
 (Modificase el límite presupuestario y de gasto efectivo para el 2000, establecido a la Escuela Centroamericana de Ganadería, según el artículo 1° del Decreto Ejecutivo Nº 29093- H del 30 de octubre del 2000)
+(Modificase el límite presupuestario y de gasto efectivo para el 2000, establecido al Sistema Nacional de Radio y Televisión Cultural, según el artículo 1° del Decreto Ejecutivo Nº 29189- H del 17 de noviembre del 2000)

@@ -17,3 +17,4 @@ Política Presupuestaria del 2000 para Ministerios y Entidades PúblicasCubierta
 | 2 | 2000-07-21 | Decreto Ejecutivo 28837 (2000-07-21) |
 | 3 | 2000-07-21 | Decreto Ejecutivo 28841 (2000-07-21) |
 | 4 | 2000-10-30 | Decreto Ejecutivo 29093 (2000-10-30) |
+| 5 | 2000-11-17 | Decreto Ejecutivo 29189 (2000-11-17) |
