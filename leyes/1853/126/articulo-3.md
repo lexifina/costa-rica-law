@@ -1,0 +1,1 @@
+Art 3.- También se exceptúan los casos que indican los Capítulos VIII y IX, Lib III, Título XXI de la 1° parte del Código, con las reformas que les hizo la ley número 24 de 1° de junio de 1842 en sus artículos 6, 7, 8 y 9.
