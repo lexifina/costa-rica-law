@@ -15,3 +15,4 @@ Reglamento Autónomo de Trabajo Dirección General de Servicio Civil
 | --- | --- | --- |
 | 1 | 1981-08-03 | la propia norma |
 | 2 | 1982-09-23 | Decreto Ejecutivo 14072 (1982-09-23) |
+| 3 | 1989-05-30 | Decreto Ejecutivo 19025 (1989-05-30) |
