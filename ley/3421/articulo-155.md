@@ -1,0 +1,1 @@
+Artículo 155.- Cuando se trate de aprehensión de una nave, el Administrador deberá dar aviso previo a la autoridad correspondiente, y en todo caso solicitará su intervención, salvo que lo impida la urgencia de las circunstancias, en cuyo caso se dará cuenta a dicha autoridad una vez efectuada la diligencia.

@@ -1,0 +1,1 @@
+Artículo 157.- Para cumplimiento de las facultades antes señaladas, las autoridades deberán dar a conocer previamente su investidura oficial y exhibir en su caso la orden escrita que las autorice para proceder al registro.
