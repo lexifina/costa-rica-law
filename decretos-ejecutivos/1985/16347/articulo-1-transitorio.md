@@ -1,0 +1,1 @@
+Transitorio 1.-La actualización de las calificaciones que está haciendo el Departamento de Planeamiento Físico conjuntamente con la Oficina Técnica Mecanizada con base en la información y variables de 1984, se consideran con una vigencia a partir del 1° de marzo de 1985.

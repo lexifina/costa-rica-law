@@ -1,0 +1,2 @@
+Artículo 3°-El porcentaje que se le asigne a cada centro educativo, se calculará tomando en consideración, entre otros factores, la insalubridad, vías de comunicación, transporte, alimentación, etc., los porcentajes serán fijados mediante acuerdo y publicados en la tabla de zonaje que edita el Ministerio.
+Se consideran zonas incómodas o insalubres las instituciones calificadas con 10 o más puntos de acuerdo con las variables que aplica el Departamento de Planeamiento Físico del Ministerio de Educación Pública.

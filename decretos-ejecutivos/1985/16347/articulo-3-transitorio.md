@@ -1,0 +1,2 @@
+Transitorio 3.-Para las inclusiones y ajustes de sobresueldo que deberán de realizarse según el presente Decreto y la nueva calificación, en el año 1985 se reconocerá el máximo posible de lo que cada servidor debe percibir sujeto al contenido presupuestario en los respectivos programas.
+Dado en la Presidencia de la República.-San José, a los veinticuatro días del mes de mayo de mil novecientos ochenta y cinco.

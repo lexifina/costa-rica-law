@@ -1,0 +1,1 @@
+Artículo 9°-Cuando el servidor sea objeto de movimiento en cualquiera de sus formas, el pago de sobresueldo de zonaje, quedará sujeto a las circunstancias en que habrá de prestar servicios, sin que en ninguna forma pueda alegar perjuicio económico.

@@ -1,0 +1,1 @@
+Artículo 10.-Cuando en la calificación que haga el Ministerio de acuerdo con lo establecido en el artículo 1° del presente reglamento, ocurriera que disminuye el porcentaje asignado a un centro educativo, éste no será aplicable a los servidores que estuvieren amparados a la calificación anterior.

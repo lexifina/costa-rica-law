@@ -1,0 +1,1 @@
+Transitorio 2.-El pago de sobresueldo que señala el artículo 3° se aplicará de acuerdo con la vigencia de la calificación actualizada, que publicará el Ministerio de Educación en un plazo no mayor de dos meses.
