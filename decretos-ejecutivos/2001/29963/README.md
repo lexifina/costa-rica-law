@@ -15,3 +15,4 @@ Determina que previo a la autorización para la importación de arroz, deben ser
 | --- | --- | --- |
 | 1 | 2001-11-19 | la propia norma |
 | 2 | 2002-09-25 | Decreto Ejecutivo 30747 (2002-09-25) |
+| 3 | 2003-01-30 | Decreto Ejecutivo 30973 (2003-01-21) |
