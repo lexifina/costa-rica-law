@@ -30,3 +30,4 @@ Reglamento a la Ley Forestal
 | 15 | 1993-12-15 | Decreto Ejecutivo 23202 (1993-12-15) |
 | 16 | 1994-01-24 | Decreto Ejecutivo 22840 (1994-01-24) |
 | 17 | 1994-03-18 | Decreto Ejecutivo 23109 (1994-03-18) |
+| 18 | 1994-03-21 | Decreto Ejecutivo 23078 (1994-03-21) |

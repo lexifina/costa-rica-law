@@ -1,1 +1,1 @@
-Artículo 134.-Cumplido lo establecido en el artículo 133 del presente reglamento y aprobada la solicitud por la DGF, esta lo comunicará al Ministerio de Hacienda, conjuntamente con la documentación respectiva, a fin de que este Ministerio proceda con el trámite correspondiente.
+Artículo 134.- (Derogado por el artículo 1° del decreto ejecutivo N° 23078 del 21 de marzo de 1994)
