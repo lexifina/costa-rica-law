@@ -14,3 +14,4 @@ Declara veda total el aprovechamiento de árboles en peligro extinción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-01-16 | la propia norma |
+| 2 | 1999-07-27 | Decreto Ejecutivo 28041 (1999-07-27) |
