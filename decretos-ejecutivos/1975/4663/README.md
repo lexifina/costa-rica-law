@@ -13,3 +13,4 @@ Reglamento Operación Fondo Revolutivo Pago Viáticos Funcionarios MOPT
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-04-04 | la propia norma |
+| 2 | 1975-04-04 | SINALEVI (sin norma nombrada) |
