@@ -1,0 +1,1 @@
+Articulo 7°—Rentabilidad: La rentabilidad que obtenga el fideicomiso estará en función de la cartera. En consecuencia, el fiduciario no podrá garantizarle rendimiento alguno, ni podrá asumir perdidas de la cartera, ni otorgarle al fideicomiso un rendimiento diferente al obtenido por la cartera. El fiduciario está obligado a informar periódicamente la rentabilidad de la cartera.

@@ -1,0 +1,3 @@
+Articulo 4— Suministro de información al cliente: El fiduciario deberá enviar al cliente un estado de cuenta, con la periodicidad que éste lo solicite en el respectivo contrato sobre la gestión desarrollada. indicando, como mínimo, composición de la cartera por tipo de titulo, emisor, vencimientos, rendimiento, método de valorización de la cartera.
+Lo anterior sin perjuicio de que el cliente solicite esta y cualquier otra información en cualquier momento.
+Por cada operación realizada en la administración de cartera, el fiduciario debe entregar al cliente una copia de la boleta de transacción, según los términos establecidos en el contrato general.

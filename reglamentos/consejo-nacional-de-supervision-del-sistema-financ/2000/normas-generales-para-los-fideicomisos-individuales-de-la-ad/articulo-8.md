@@ -1,0 +1,1 @@
+Articulo 8°—Liquidez: La liquidez que obtenga el fideicomisario estará en función de la cartera; de modo que el fiduciario no podrá garantizarlos ni realizar aportes de recursos propios para satisfacer la demanda de liquidez de este.

@@ -1,0 +1,1 @@
+Articulo 3°—Gestión individual; El fiduciario deberá administrar en forma separada los recursos de cada uno de los fideicomisos que administre. Los titules valores que conforman la cartera administrada serán propiedad de cada fideicomiso. En ningún caso podrá transferir títulos entre fideicomisos sin efectuar una operación a través de una bolsa de valores.
