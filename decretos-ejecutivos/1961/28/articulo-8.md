@@ -1,0 +1,7 @@
+Artículo 8°. Además de las contempladas en el artículo 7° y en otros del presente Reglamento, los jefes de departamento o de sección tendrán las siguientes obligaciones:
+a) La supervisión de la labor de todo los servidores de su departamento o sección, tanto en el aspecto técnico como administrativo;
+b) informar a su superior inmediato, con la correspondiente periodicidad, sobre la marcha de su respectivo departamento o sección o en forma inmediata, cuando ocurra un hecho extraordinario o que requiera la pronta atención del mismo;
+c) Cuidar de la disciplina y de la buena asistencia de los servidores de su departamento o sección, informando al jefe de la dependencia o, por delegación hecha por éste, al encargado de personal, de las irregularidades que en uno u otro aspecto se presenten;
+d) Cuidar que todos los servidores lleven al día y en debida forma la labor que se les tiene asignada, tomando las medidas que juzgue convenientes para que el trabajo general del departamento o sección se realice eficientemente y sin retrasos;
+e) dictar las necesarias disposiciones internas para el trabajo de su departamento o sección y someterlas a la aprobación del respectivo jefe de dependencia;
+f) planear las labores de su departamento o sección y elaborar los anteproyectos de presupuesto correspondientes, para someterlos a la aprobación del superior jerárquico o el jefe de la dependencia según sea el caso.

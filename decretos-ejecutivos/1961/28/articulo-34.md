@@ -1,0 +1,2 @@
+Artículo 34.- El servidor que incumpla las obligaciones a que se refieren los artículo 7° y 8° o cometa alguno de los actos prohibidos en el artículo 9°, todos de este Reglamento, salvo que por su gravedad deban ser sancionados en otra forma, o que tengan sanciones específicas, será sancionado por escrito la primera vez; con suspensión hasta por ocho días la segunda vez y con despido la tercera vez.
+Las faltas que se produzcan de conformidad con el párrafo anterior, deberán computarse para efecto de la sanción dentro de un período de dos meses.

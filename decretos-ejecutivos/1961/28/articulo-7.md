@@ -1,0 +1,12 @@
+CAPITULO II
+Deberes y Obligaciones de los Servidores
+Artículo 7°.- Son obligaciones de los servidores del Ministerio, fuera de las contenidas en el Estatuto de Servicio Civil y su Reglamento, en el Código de Trabajo y en otros Capítulos de este Reglamento, las siguientes:
+a) Desempeñar los servicios personalmente, en forma regular y continua, bajo la dirección de su jefe inmediato, a cuya autoridad estarán sujetos en todo lo concerniente a sus funciones y dentro de la jornada señalada por el artículo 10 de este Reglamento o aquella que se fije, de acuerdo con la índole especial de las funciones de los servidores;
+b) Ejecutar el trabajo con la intensidad, esmero y cuidado apropiado, de modo que los resultados que se obtengan, sean del todo satisfactorios;
+c) Acatar y cumplir con la mayor diligencia las órdenes e instrucciones de sus superiores jerárquicos, con motivo del trabajo o cualesquiera otras funciones que se les encomiende, siempre que sean compatibles con sus aptitudes y condiciones y objeto del contrato y que no contravengan lo dispuesto por la Ley de Administración Financiera, en su artículo 8°;
+d) Trabajar, cuando fuere necesario, durante horas extraordinarias, dentro de los límites señalados por el artículo 140 del Código de Trabajo;
+e) Conservar en buen estado las máquinas, mobiliario, útiles, vehículos o cualesquier utensilios o instrumentos de propiedad o al servicio del Ministerio y o usarlos para fines ajenos a la realización del trabajo;
+f) Guardar rigurosamente la más absoluta reserva sobre los asunto privados del ministerio, que, por la índole de las funciones que desempeñan llegan a ser de su conocimiento, y cuya divulgación esté prohibida por ley o cause perjuicio al Ministerio o a terceras personas, aun después de haber cesado en el cargo, sin perjuicio de la obligación en que están de denunciar ante quien corresponda los hechos incorrectos de que tengan noticia;
+g) Observar dignidad en el desempeño de sus cargos; o fuera de ellos, guardando conducta que no ofenda el orden y la moral públicos;
+h) Guardar la debida compostura en sus relaciones con el público, jefes y compañeros, en forma que garantice el eficiente servicio de sus cargos y la disciplina y respeto debidos;
+i) Rendir un informe ante quien corresponda dentro de los tres días hábiles siguientes a la terminación de una gira de trabajo, sobre los gastos de viaje. Estos informes deberán llevar la aprobación del superior inmediato y la de aquellos funcionarios que la Oficina de Presupuesto indique.

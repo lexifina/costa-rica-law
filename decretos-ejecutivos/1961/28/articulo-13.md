@@ -1,0 +1,1 @@
+Artículo 13.- Son días hábiles todos los del año, excepto los feriados considerados en el artículo 147 del código de Trabajo y aquellos que el Poder Ejecutivo declare de asueto conforme el acuerdo correspondiente.

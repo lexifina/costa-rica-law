@@ -1,0 +1,1 @@
+Artículo 27.- Para casos muy calificados no contemplados en este Reglamento ni en el Estatuto de Servicio Civil y su Reglamento, queda a juicio del jefe de dependencia y el respectivo jefe de departamento o sección justificar ausencias que no sean por enfermedad comprobada, sin que ello signifique obligación al pago del salario.

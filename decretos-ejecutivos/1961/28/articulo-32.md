@@ -1,0 +1,1 @@
+Artículo 32.- Las llegadas tardías injustificadas computables dentro de un mismo mes calendario, se sancionarán en la forma siguiente: hasta por cinco, amonestación verbal; por seis. Amonestación escrita; por siete, suspensión por dos días; por ocho, suspensión por una semana; por nueve, suspensión por quince días; por diez o más, despido.

@@ -1,0 +1,1 @@
+Artículo 30.- Las faltas para efectos de sanción se considerarán leves o graves según importancia, a juicio del jefe de la dependencia correspondiente, escuchando precisamente las alegaciones del servidor.
