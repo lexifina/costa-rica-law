@@ -1,0 +1,4 @@
+Artículo 383.—Cumplimiento posterior de la obligación tributaría aduanera
+Dentro de un plazo de diez días hábiles contados a partir del ingreso de las mercancías, la aduana remitirá copia de la información levantada a la Comisión Nacional de Emergencias, a efecto de que, dentro del plazo de quince días hábiles posteriores a su notificación, la Comisión proceda a presentar la lista detallada de las mercancías ingresadas y el documento que acredita el pago o exoneración de los tributos aplicables.
+Presentada la documentación o información correspondiente, la aduana tramitará de oficio la declaración aduanera y realizará la verificación de la documentación aportada y demás comprobaciones que estime pertinentes.
+El resultado de la verificación será comunicado a la Comisión Nacional de Emergencias y a la Contraloría General de la República para los fines correspondientes, sin perjuicio de las facultades de control y fiscalización de la autoridad aduanera.

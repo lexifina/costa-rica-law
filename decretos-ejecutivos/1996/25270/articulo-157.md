@@ -1,0 +1,4 @@
+Artículo 157.—Cese definitivo o temporal de operaciones
+Cuando una empresa de perfeccionamiento activo solicite voluntariamente el cese definitivo o temporal de sus operaciones, sin perjuicio de la comunicación que efectuará el órgano administrador del régimen, deberá hacerlo del conocimiento de la aduana de control, a efecto de que la autoridad aduanera proceda a constatar, en sus instalaciones, la existencia de mercancías sujetas al control aduanero y ordenar, en tal caso, el traslado a un depósito aduanero.
+Una vez que se determine la inexistencia de obligaciones pendientes con el Fisco, la Dirección General procederá a la suspensión o cancelación de la condición de Auxiliar en el registro respectivo.
+En caso de existir deudas tributarias aduaneras pendientes de cancelar, la Dirección General iniciará los procedimientos administrativos y judiciales pertinentes para su pago.

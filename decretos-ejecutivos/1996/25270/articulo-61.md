@@ -1,0 +1,3 @@
+Artículo 61.—Fichas informativas
+Son fichas informativas los repones que se generan por funcionarios de los Departamentos Técnicos de las aduanas y de la División de Control y Fiscalización a partir de dudas surgidas en el procedimiento de despacho aduanero, sobre declaraciones aduaneras o sobre información o hechos de transcendencia tributaria aduanera, incluyendo dudas respecto de la existencia de eventuales infracciones y delitos aduaneros y fiscales.
+El procedimiento para los (sic) emisión de las fichas informativas, su formato y la información que deben contener, los plazos de remisión y demás formalidades, se establecerán en un manual operativo que al efecto emitirá la División de Control y Fiscalización.

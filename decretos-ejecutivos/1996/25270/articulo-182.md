@@ -1,0 +1,2 @@
+Artículo 182.—Inscripción en el Registro y efectos legales
+Cumplidos los requisitos indicados, el funcionario competente procederá a la inscripción de la entidad respectiva en el Registro que al efecto establecerá la Dirección General y le asignará la identificación correspondiente, constituida ésta, por el código seleccionado por la Dirección General para identificar a un Auxiliar o entidad pública en el registro correspondiente. Efectuado este trámite, se tendrá para todos los efectos legales cumplido el requisito del registro de la entidad.

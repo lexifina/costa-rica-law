@@ -1,0 +1,4 @@
+Artículo 319.—Documentos sobre el valor aduanero y el origen de las mercancías.
+La declaración aduanera de mercancías con un valor aduanero igual o inferior a quinientos pesos centroamericanos y las importaciones realizadas por el Estado y demás entes públicos, no requerirán de una declaración del valor en aduana de las mercancías, se exceptuarán asimismo aquellas mercancías que disponga el Poder Ejecutivo mediante Decreto.
+Cuando se solicite un trato preferencial sobre mercancías incluidas en un programa de desgravación arancelaria o en un convenio internacional que imponga la obligación de presentación de un documento que acredite el origen de las mercancías, la declaración deberá ampararse en ese documento en las condiciones que establezcan las normas que lo regulan.
+(Así reformado por el artículo 24 del Decreto Ejecutivo N° 28976 de 27 de setiembre del 2000)

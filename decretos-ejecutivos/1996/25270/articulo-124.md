@@ -1,0 +1,2 @@
+Artículo 124.—Garantía de operaciones
+Los transportistas aduaneros indicados en el artículo anterior, deberán garantizar sus operaciones de conformidad con el artículo 41 inciso d. de la Ley, salvo los transportistas terrestres que exclusivamente hagan circular mercancías al amparo del Reglamento centroamericano sobre el régimen de tránsito aduanero internacional. En este último caso se regirán por lo que disponga ese Reglamento.

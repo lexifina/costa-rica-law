@@ -1,0 +1,2 @@
+Artículo 309.—Declaración aduanera de salida
+Para la salida de las mercancías del régimen, el agente aduanero deberá presentar una declaración de importación definitiva o de reexportación, según el caso. La declaración de importación definitiva o de reexportación deberá ajustarse a lo consignado en la declaración de ingreso, efectuando los ajustes por upo cambio y tarifas arancelarias vigentes al momento de aceptación de la declaración.

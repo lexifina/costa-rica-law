@@ -1,0 +1,2 @@
+Artículo 455.—Obligaciones de los beneficiarios
+En los casos referidos en los dos artículos anteriores, el beneficiario tendrá la obligación de renovar el certificado de importación temporal cada seis meses, antes de su fecha de su vencimiento, caso contrario la autoridad aduanera dará por cancelado el régimen, con las consecuencias legales correspondientes. Salvo lo dispuesto en el artículo 446 de este Reglamento, se aplicarán las demás disposiciones de la presente Sección.

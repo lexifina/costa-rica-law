@@ -1,0 +1,3 @@
+Artículo 213.—Días y horarios habilitados
+Mediante resolución de alcance general la Dirección General establecerá los días y horarios habilitados para la recepción de vehículos y las demás operaciones que se realicen en los puertos aduaneros relacionados con la entrada y salida de personas, mercancías, vehículos y unidades de transporte.
+Tratándose de tráfico aéreo y marítimo, las autoridades Portuarias y de Aviación Civil deberán comunicar los itinerarios y horarios de arribo establecidos para la entrada y salida del territorio nacional de buques aeronaves. para el ejercicio de las competencias aduaneras correspondientes.

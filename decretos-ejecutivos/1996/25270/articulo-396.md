@@ -1,0 +1,2 @@
+Artículo 396.—Declaración definitiva
+La declaración definitiva deberá realizarse dentro del plazo que establece el artículo 125 de la Ley cumpliendo con todos los requisitos del régimen al cual se destinaran las mercancías. Para esos efectos el agente aduanero que actúa en representación de la empresa podrá efectuar el examen previo de las mercancías, pero la empresa no podrá disponer de las mercancías mientras la aduana de control no autorice el levante.

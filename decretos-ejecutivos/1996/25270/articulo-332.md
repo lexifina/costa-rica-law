@@ -1,0 +1,4 @@
+Artículo 332.—Condiciones para la aceptación y tramitación del despacho mediante declaración anticipada
+Para los efectos de aceptación de la declaración, la transmisión anticipada del manifiesto de carga debe haber sido recibida de conformidad por la aduana de ingreso. Aceptada la declaración aduanera anticipada se deberá cancelar la obligación tributaria aduanera, si no se hubiere demostrado su cancelación previa.
+Los procedimientos de despacho de las mercancías sólo se podrán realizar en las instalaciones de la aduana de ingreso, cuando no sea necesario desembalar o desconsolidar las mercancías. En caso contrario, la aduana de ingreso ordenará su traslado a un depósito fiscal para los procedimientos respectivos.
+Las mercancías serán recibidas en los recintos aduaneros que disponga la aduana de ingreso.

@@ -1,0 +1,2 @@
+Artículo 80.—Inspección de instalaciones
+Tratándose de depositarios aduaneros, terminales de carga, empresas de despacho domiciliario industrial, consignatarios de la calidad de despacho domiciliario comercial, perfeccionamiento activo zona franca y estacionamientos transitorios, previo a emitir la autorización respectiva, la aduana de control deberá inspeccionar las instalaciones y emitir el dictamen correspondiente a la Dirección General.

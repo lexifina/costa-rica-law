@@ -1,0 +1,3 @@
+Artículo 184.—Asignación Clave de Acceso Confidencial
+El o los funcionarios públicos, a los que en nombre de una o varias entidades públicas y en virtud de lo dispuesto en la Ley y el presente Reglamento, les corresponda la remisión o comunicación a las autoridades aduaneras de documentos electrónicos debidamente firmados, deberán apersonarse ante la División de Estadística, Registro y Divulgación, en donde un computador les asignará la clave de acceso confidencial que deberán utilizar para firmar y que para todo efecto legal equivaldrá a la firma autógrafa. El funcionario podrá solicitar una nueva clave cuando lo considere pertinente, pero deberá hacerlo como mínimo una vez al año.
+Esta clave es a la que se refiere el artículo 105 de la Ley.

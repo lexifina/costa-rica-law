@@ -1,0 +1,2 @@
+Artículo 416.—Procedimiento a la presentación del manifiesto de entrega rápida
+Presentado el manifiesto de entrega rápida a la aduana mediante los formatos autorizados y con la información requerida, la aduana procederá a aceptarlo e indicará si procede ordenar un acto inmediato de verificación al arribo de las mercancías. En este último caso la empresa de entrega rápida separará los bultos o mercancías que serán sometidos a verificación.

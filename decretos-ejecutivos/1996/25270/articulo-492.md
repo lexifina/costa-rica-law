@@ -1,0 +1,2 @@
+Artículo 492.—Reexportación de mercancías no destinadas a un régimen definitivo
+A solicitud del agente aduanero la aduana autorizará la reexportación de mercancías que no hayan sido destinadas a un régimen definitivo, siempre que se encuentren en el mismo estado en que ingresaron al territorio nacional y que la solicitud se presente dentro de los plazos de permanencia autorizados según el régimen en que se encuentren, no habiendo caído en abandono.

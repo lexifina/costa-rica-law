@@ -1,0 +1,5 @@
+SECCION VIII
+Consignatarios bajo la modalidad
+de despacho domiciliario comercial
+Artículo 167.—Concepto
+Los consignatarios habituales, que mantengan un promedio mínimo anual de importaciones con un valor CIF declarado igual o superior a tres millones de pesos centroamericanos, podrán ser autorizados por la Dirección General para recibir directamente, en instalaciones habilitadas como zonas de operación aduanera, los vehículos y unidades de transporte que contengan mercancías consignadas a ellos.

@@ -1,0 +1,2 @@
+Artículo 406.—Realización del reconocimiento físico
+De requerirse el reconocimiento físico de las mercancías, la aduana lo comunicará inmediatamente y designará al funcionario encargado de realizarlo. El funcionario competente se presentara a las instalaciones habilitadas y procederá al reconocimiento físico. Estando conforme el resultado del reconocimiento físico con la información declarada a la aduana, el funcionario autorizará inmediatamente el levante de las mercancías.

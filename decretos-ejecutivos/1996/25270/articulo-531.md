@@ -1,0 +1,2 @@
+Artículo 531.—Procedimiento de la audiencia
+Concluida la fase de evacuación de pruebas, cuando proceda, o vencido el plazo de presentación de pruebas, el interesado podrá solicitar, dentro del día hábil siguiente, la audiencia prevista en el artículo 196 literal c. de la Ley. El órgano comunicará la hora y fecha de realización de la audiencia solicitada, la cual deberá efectuarse dentro de los ocho días siguientes a la solicitud respectiva.

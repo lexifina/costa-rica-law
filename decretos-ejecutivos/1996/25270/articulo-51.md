@@ -1,0 +1,3 @@
+Artículo 51.—Actuaciones de comprobación e investigación
+Las actuaciones de comprobación e investigación tendrán por objeto verificar el adecuado cumplimiento por los sujetos pasivos y Auxiliares, de sus obligaciones y deberes contenidos en el régimen jurídico aduanero. Asimismo tendrá por objeto determinar la posible existencia de elementos de hecho u otros antecedentes con trascendencia tributaria, que sean desconocidos total o parcialmente por la autoridad aduanera.
+Las actuaciones de comprobación e investigación tendrán por objeto además, efectuar la revisión y realizar ajustes a la obligación tributaria aduanera.

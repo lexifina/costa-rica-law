@@ -1,0 +1,2 @@
+Artículo 454.—Importación temporal de automotores terrestres por estudiantes extranjeros que realizan estudios de post-grado en el país
+Los estudiantes extranjeros que realizan estudios de post-grado en el país y que demuestren esa condición a través de certificación emitida por la Institución de Enseñanza Superior correspondiente, podrán gozar del beneficio de importación temporal de un vehículo automotor terrestre, por periodos consecutivos de seis meses hasta completar el tiempo razonable que duren sus estudios.

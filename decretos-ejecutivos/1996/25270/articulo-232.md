@@ -1,0 +1,3 @@
+Artículo 232.—Control de permanencia y salida de la zona portuaria
+La aduana solicitará a la autoridad portuaria correspondiente, un reporte semanal de unidades de transporte descargadas en el puerto, las mercancías descargadas en sus bodegas y el itinerario dispuesto en forma anticipada por la autoridad portuaria para el atraque de buques durante esa semana.
+La aduana de ingreso controlara la salida efectiva de los vehículos y unidades de transporte de la zona portuaria o de la zona de operación de la aduana, por los medios que establezca la Dirección General mediante resolución administrativa.

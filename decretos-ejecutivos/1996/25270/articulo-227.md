@@ -1,0 +1,3 @@
+Artículo 227.—Descarga y carga de unidades de transporte y recepción de mercancías con intervención de funcionario aduanero
+Cuando proceda la inspección de la descarga, carga o recepción de mercancías con intervención de funcionario aduanero, ésta se realizará sobre la base de la información que contiene el manifiesto de carga.
+El funcionario designado para realizar la inspección dejará constancia de sus actuaciones y registros en el formulario o acta que se establezca para tales efectos, especialmente en lo relativo a las cantidades de unidades de transpone, mercancías o bultos descargados o cargados, sus números de marchamo, las diferencias con el manifiesto de carga, hora y fecha.

@@ -1,0 +1,2 @@
+Artículo 264.—Tránsito aduanero en unidades de transporte no precintables.
+Cuanto el tránsito de mercancías se realice en unidades de transpone no precintables, la autoridad aduanera establecerá las condiciones de seguridad necesarias para realizar el transito aduanero, tales como comprobación de mercancías, toma de muestras, requerimiento de la factura comercial de las mercancías o colocación de precintos o señales de identificación en cada bulto.

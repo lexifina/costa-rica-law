@@ -1,0 +1,2 @@
+Artículo 447.—Desperfecto o daño del vehículo
+Cuando por haber sufrido un desperfecto o daño el vehículo no pueda hacer abandono del territorio nacional antes del vencimiento del plazo concedido, el interesado deberá solicitar ante cualquier aduana, el permiso para reparación, por el tiempo que el vehículo requiera para estar en condiciones de salir del país. previa consideración de las prueba pertinentes. El funcionario que autorice el permiso, deberá registrar en el sistema de información, los datos de la autorización.

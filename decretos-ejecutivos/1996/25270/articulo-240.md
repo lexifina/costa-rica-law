@@ -1,0 +1,3 @@
+Artículo 240.—Formato general de la declaración aduanera
+La declaración aduanera de mercancías se efectuará sobre la base de la información requerida en los formatos y mediante las guías e instructivos autorizados por la Dirección General y deberá cumplir los requerimientos para la integración con el Sistema de Información Aduanera.
+La Dirección General podrá emitir resoluciones generales sobre los datos que deben consignarse en la declaración aduanera y en la declaración del valor respecto a la descripción arancelaria y comercial de las mercancías de acuerdo con su naturaleza, régimen o modalidad aduanera.

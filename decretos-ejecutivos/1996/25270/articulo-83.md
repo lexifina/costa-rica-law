@@ -1,0 +1,2 @@
+Artículo 83.—Inscripción en el Registro y efectos legales
+Cumplidos los requisitos indicados en el artículo anterior, el funcionario competente procederá a la inscripción del auxiliar en el registro que al efecto establecerá la Dirección General, mediante la asignación del código de identificación correspondiente. Efectuado este trámite, se tendrá para todos los efectos legales cumplido el requisito del registro del Auxiliar.

@@ -1,0 +1,3 @@
+Artículo 436.—Identificación de mercancías
+Las mercancías deberán ser identificadas mediante cualquier medio razonable como precintos, marcas, números, catálogos, fotografías, dimensiones o indicaciones con carácter permanente sobre las mercancías o mediante la extracción de muestras. No obstante, si las mercancías no son plenamente identificables, la aduana podrá autorizar el régimen cuando, atendiendo a la naturaleza de la mercancía, o de las operaciones que se han de llevar a cabo. la ausencia de medios de identificación no conduzcan a un abuso del régimen.
+La aduana adoptará todas las medidas que estime necesarias para asegurar la identificación de las mercancías y el control de su utilización.

@@ -1,0 +1,2 @@
+Artículo 153.—Suspensión o cancelación
+En caso de incumplimiento de cualquiera de las obligaciones que deba cumplir la empresa de entrega rápida, de conformidad con la Ley y el presente Reglamento, la Dirección General, podrá suspender o cancelar la aplicación del procedimiento simplificado regulado en la Sección VII, Capítulo VII, Título VII de este Reglamento, sin perjuicio de las sanciones que correspondan.

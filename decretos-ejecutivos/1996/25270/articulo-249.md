@@ -1,0 +1,2 @@
+Artículo 249.—Tramitación de oficio de la declaración aduanera
+En aquellos casos en que la declaración aduanera se tramite de oficio, la autoridad aduanera exigirá la presentación de las autorizaciones y permisos necesarios para autorizar la destinación y calculará el monto de la obligación tributaria aduanera. La autoridad aduanera podrá confeccionar el formulario correspondiente, el cual deberá ser firmado por el interesado, bajo su responsabilidad.

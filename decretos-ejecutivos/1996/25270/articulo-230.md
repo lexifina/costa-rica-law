@@ -1,0 +1,2 @@
+Artículo 230.—Unidades de transporte aseguradas con marchamos
+Las unidades de transporte aseguradas con precintos o marchamos que cumplan con las especificaciones y características técnicas definidas por la Dirección General, no serán abiertas, excepto cuando se trate del ejercicio de las facultades de control y fiscalización. En caso contrario, el interesado deberá colocar marchamos que cumplan con esas especificaciones y características.

@@ -1,0 +1,2 @@
+Artículo 494.—Reexportación de mercancías prohibidas
+En ningún caso se autorizará la reexportación de mercancías prohibidas; en tal caso. las mercancías serán decomisadas y puesta a disposición de las autoridades competentes.

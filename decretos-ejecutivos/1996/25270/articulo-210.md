@@ -1,0 +1,3 @@
+Artículo 210.—Procedimiento de adjudicación
+A la hora señalada para la efectuar la venta, la aduana recibirá las solicitudes de compra y adjudicará al primer postor que ofrezca el precio base determinado por la aduana. El adjudicatario o comprador tendrá un plazo de tres horas a partir de la venta, para cancelar el monto adeudado. Transcurrido este plazo sin que demuestre el pago efectivo, la venta se considerará como no hecha y las mercancías serán puestas nuevamente a la venta.
+Las mercancías deberán ser retiradas previo cumplimiento de las regulaciones no arancelarias que fueren aplicables y demás formalidades establecidas por la Dirección General.

@@ -1,0 +1,5 @@
+Artículo 132.—Obligaciones específicas
+El consolidador de carga internacional, además de las obligaciones establecidas en el Ley, deberá cumplir con las siguientes:
+Comunicar a la aduana de control el manifiesto de carga consolidada y los conocimientos de embarque matriz e individualizados que fueren necesarios, por medio de transmisión electrónica inmediatamente después de la llegada de las mercancías al puerto aduanero.
+Comunicar a la aduana de control las diferencias encontradas en la operación de desconsolidación de mercancías efectuada en el depósito fiscal u otro lugar autorizado, respecto de la documentación que las ampara, dentro del plazo de tres horas hábiles de finalizada la descarga. En ese mismo plazo deberá comunicar la información de los conocimientos de embarque que se deriven del conocimiento matriz y el nombre de los consignatarios.
+Conservar el original del manifiesto de carga consolidada y del conocimiento de embarque matriz y copias de los conocimientos de embarque individualizados y del reporte de las diferencias encontradas en la desconsolidación de los bultos.

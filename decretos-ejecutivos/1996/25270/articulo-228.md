@@ -1,0 +1,2 @@
+Artículo 228.—Descarga y carga de unidades de transporte y recepción de mercancías bajo responsabilidad del transportista aduanero
+En caso de realizarse la descarga, carga de unidades de transporte o recepción de mercancías bajo responsabilidad del transportista aduanero, éste reportará a la aduana competente, una vez finalizada la operación, las unidades de transporte o los bultos efectivamente descargados, cargados o recibidos, los números de marchamo y las diferencias con los datos o documentos aportados.

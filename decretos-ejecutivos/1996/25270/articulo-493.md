@@ -1,0 +1,3 @@
+Artículo 493.—Solicitud de reexportación de mercancías en régimen no definitivo
+La solicitud de reexportación de mercancías indicadas en artículo anterior se efectuará en cualquier aduana, con intervención de agente aduanero, por medio de una declaración aduanera en la cual se consignarán, además de los datos exigidos en el artículo 491. literales b, c, d, g, h, i, j, k. l y m de este Reglamento, el número y fecha de la declaración del régimen en que se encuentran las mercancías, con indicación de las cantidades exactas que serán objeto de reexportación y las que permanecerán en el régimen amparadas a la misma declaración.
+No se exigirá la presentación de la declaración para la reexportación de vehículos amparados el régimen de importación temporal para turistas.

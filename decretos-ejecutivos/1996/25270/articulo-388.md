@@ -1,0 +1,2 @@
+Artículo 388.—Muestras inutilizadas para su comercialización o fin establecido
+Se considerarán además muestras sin valor comercial, otras mercancías que hayan sido inutilizadas para la comercialización o fin para el que fueron destinadas en forma original y normal o para cualquier otro fin que no sea su presentación como muestras, mediante cortes, perforaciones o colocación de marcas indelebles con la leyenda ''Muestra sin valor comercial".

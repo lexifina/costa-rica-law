@@ -1,0 +1,2 @@
+Artículo 507.—Demás operaciones del régimen
+Los procedimientos para la autorización de las demás operaciones de las empresas beneficiarías del régimen de perfeccionamiento activo se regirán, en lo conducente, por las disposiciones de este Reglamento y del Reglamento del Régimen de Admisión Temporal, Decreto Ejecutivo No. 22108-COMEX-H de 30 de marzo de 1993 y sus reformas, de acuerdo con el régimen aduanero correspondiente.

@@ -1,0 +1,2 @@
+Artículo 287.—Mercancías de manipulación especial
+Únicamente se podrá autorizar el transbordo de gases o sustancias tóxicas, combustibles inflamables, químicos, elementos radiactivos y mercancías cuya manipulación pueda poner en peligro la salud o seguridad común y en general aquellas que requieran una manipulación técnica o especializada, cuando se cumplan con los requerimientos y condiciones exigidas por la autoridad pública competente.

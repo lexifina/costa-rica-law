@@ -1,0 +1,5 @@
+Artículo 269.—Inicio del tránsito
+El inicio del tránsito se contabilizará a partir de la salida efectiva del vehículo y la Unidad de Transporte del Estacionamiento Transitorio. Para tales efectos el Estacionamiento Transitorio, será responsable de anotar en la respectiva declaración de tránsito, la hora y fecha de salida efectiva y comunicar inmediatamente dichos datos a la Aduana de jurisdicción haciendo referencia a la numeración de la declaración de tránsito. Recibida esa comunicación, la aduana efectuará el descargo en la información de manifiesto correspondiente.
+Si se iniciare el tránsito desde el puerto aduanero de ingreso la aduana comprobará los datos que deben consignarse en la declaración, anotará la hora y el día efectivo de la salida y efectuará la descarga en la información del manifiesto correspondiente.
+Si el tránsito iniciare desde un depósito fiscal o cualquier otro lugar debidamente autorizado, el auxiliar respectivo procederá conforme lo indicado en el primer párrafo.
+(Así reformado por el Decreto Ejecutivo N° 26961 de 30 de marzo de 1998)

@@ -1,0 +1,2 @@
+Artículo 379.—Cumplimiento de requisitos a la importación
+La presentación de los permisos correspondientes de importación podrá efectuarse con posterioridad al ingreso de las mercancías. Sin embargo, tratándose de alimentos o medicamentos y de todas aquellas mercancías sujetas a condiciones sanitarias, las autoridades competentes deberán realizar la inspección de previo a autorizar la salida de las mercancías.

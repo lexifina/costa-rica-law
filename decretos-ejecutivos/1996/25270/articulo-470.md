@@ -1,0 +1,2 @@
+Artículo 470.—Comprobación del cumplimiento de requisitos para el ingreso de mercancías a territorio aduanero
+Cuando la legislación obligue al cumplimiento de determinados requisitos arancelarios o no arancelarios para el ingreso de las mercancías a territorio aduanero, el declarante deberá indicar en la declaración el cumplimiento de esos requisitos. Para tal efecto, reseñará el número de identificación del documento y las condiciones especiales, si existieren.

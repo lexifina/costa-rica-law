@@ -1,0 +1,4 @@
+Artículo 246.—Reconocimiento físico
+El reconocimiento físico se realizará en las zonas de operación aduanera destinadas habitualmente a esos efectos, en instalaciones de la Autoridad Aduanera o de Auxiliares autorizados para esos efectos.
+Excepcionalmente y mediante resolución motivada, la aduana podrá autorizar el reconocimiento en otras instalaciones, cuando medien causas justificadas por tratarse de mercancías peligrosas para la salud humana, vegetal o animal, de difícil movilización o almacenamiento o aquellas que por su funcionalidad, uso o limitaciones de infraestructura requieran ser despachadas en lugares con características especiales.
+Para la realización del reconocimiento físico la Dirección General emitirá directrices sobre los criterios de muestreo que deberán aplicarse, las operaciones que deberán realizarse de acuerdo con la naturaleza de las mercancías y del régimen o modalidad solicitados y los casos que requerirán de un reconocimiento detallado.

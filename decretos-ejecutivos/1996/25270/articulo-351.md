@@ -1,0 +1,4 @@
+Artículo 351.—Reconocimiento físico de las mercancías
+De requerirse el reconocimiento físico, la aduana lo comunicará inmediatamente al declarante y designará al funcionario encargado de realizarlo.
+El funcionario designado se presentará en las instalaciones habilitadas y procederá al reconocimiento físico. En ese acto deberá constatar la cantidad de bultos, el peso neto y bruto de las mercancías, verificar las condiciones de la unidad de transporte, inspeccionar la operación de carga de las mercancías y corroborar los marchamos de la unidad de transporte.
+Estando conforme el resultado del reconocimiento físico con la información declarada a la aduana, el funcionario autorizará inmediatamente el levante de las mercancías, comunicará a la aduana de control la cantidad de bultos o mercancías cargadas y la fecha y hora de salida del vehículo y de la unidad de transporte y la identificación de los marchamos o precintos colocados.

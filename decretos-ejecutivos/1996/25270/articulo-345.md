@@ -1,0 +1,3 @@
+Artículo 345.—Provisionalidad de los datos contenidos en la declaración.
+Cuando no se cuente con los datos exactos respecto a cantidades. identificación del vehículo en que se embarcarán las mercancías y todas aquellos que no afecten la naturaleza de las mercancías, éstos se considerarán provisionales y deberán ser confirmados o rectificados por el declarante en el plazo de cuarenta y ocho horas a partir del embarque efectivo de las mercancías.
+En caso de que se hubieren generado obligaciones tributarias, el declarante deberá presentar con la rectificación el comprobante del pago por las sumas no canceladas.

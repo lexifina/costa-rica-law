@@ -1,0 +1,2 @@
+Artículo 219.—Datos adicionales del manifiesto de carga en tráfico marítimo y terrestre
+El manifiesto de carga en el tráfico marítimo y terrestre contendrá el código de identificación de los contenedores que transporte, compuesto por un prefijo alfabético de cuatro letras, una parte numérica de seis dígitos y un dígito verificador. Ademán, indicará la identificación de los vehículos de transporte comercial de carga.

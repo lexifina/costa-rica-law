@@ -1,0 +1,2 @@
+Artículo 355.—Utilización de marchamos autorizados
+Para los efectos de la autorización del tránsito, la empresa o su representante utilizará en las unidades de transporte, precintos, marchamos o sellos que cumplan con las especificaciones y características técnicas definidas por la Dirección General. El tránsito o traslado aduanero se podrá amparar a la declaración de exportación autorizada cuando así lo disponga la Dirección General.

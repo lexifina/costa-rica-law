@@ -1,0 +1,2 @@
+Artículo 432.—Convenios de mejoramiento del servicio postal.
+Las autoridades postales y aduaneras podrán establecer convenios para implantar proyectos de mejoramiento de los servicios, incluyendo la asignación temporal o permanente de funcionarios de la aduana de control en las oficinas postales de áreas rurales, para prestar los servicio aduaneros, siempre que tal medida produzca un servicio más ágil al usuario, el costo operativo no sea mayor al beneficio fiscal y la oficina postal disponga de áreas destinadas a tales funcionarios.

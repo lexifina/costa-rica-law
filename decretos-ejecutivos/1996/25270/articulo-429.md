@@ -1,0 +1,5 @@
+Artículo 429.—Importación definitiva
+En caso de solicitarse la importación definitiva, la declaración aduanera se tramitara de oficio por la aduana, en el formato autorizado por la Dirección General, cuando el destinatario, cumpla con los requisitos arancelarios y no arancelarios requeridos para autorizar el régimen.
+Cumplidos los requisitos exigibles se procederá con la verificación e las mercancías. El resultado de la verificación incluirá la notificación del adeudo tributario, para que el destinatario realice su cancelación en las Reinas bancarias. Comprobado el pago, el funcionario aduanero autorizará el levante de la mercancías, las cuales serán entregadas por la autoridad Postal.
+El funcionario postal podrá concurrir al acto de reconocimiento físico, cuando proceda según los criterios establecidos por la aduana.
+Las mercancías que sean abandonadas expresamente, y las consideradas legalmente en abandono según se disponga en las invenciones postales, serán sometidas al procedimiento de subasta pública o destruidas de conformidad con las disposiciones de la Ley y este reglamento.

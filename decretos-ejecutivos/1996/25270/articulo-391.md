@@ -1,0 +1,3 @@
+Artículo 391.—Procedimiento ante la aduana
+Si las mercancías son declaradas como muestras sin valor comercial a su ingreso, una vez que la aduana las reciba determinará si procede considerarlas como muestras sin valor comercial y tramitará de oficio la declaración aduanera, donde consignará la partida arancelaria y el código estadístico correspondiente.
+Cuando la aduana determine que las mercancías presentadas a despacho, no constituyen muestras sin valor comercial, las pondrá bajo su control y notificará al interesado a efecto de que solicite, dentro de los plazos legales, otra destinación para las mercancías, sin perjuicio de las sanciones aplicables.

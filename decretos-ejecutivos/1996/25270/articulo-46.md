@@ -1,0 +1,2 @@
+Artículo 46.—Etapas para el ejercicio del control
+La autoridad aduanera aplicará controles aduaneros a los usuarios del Sistema en las diversas etapas del proceso de ingreso, permanencia bajo control aduanero, despacho y salida de mercancías del territorio aduanero, conforme a los criterios de simplicidad, especificidad, uniformidad, efectividad y eficiencia y acorde con el objetivo de agilización de los procedimientos administrativos.
