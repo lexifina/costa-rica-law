@@ -1,0 +1,1 @@
+Artículo VIII.—Para cualquier negociación o gestión relacionadas con actividades o empresas, en donde se de la convenida distribución de los ingresos conforme se indicó e incluso el de bienes inmuebles, se conformará una comisión integrada por el Alcalde e Intendente y los Presidentes de ambos Concejos o miembros del Concejo que estos últimos designen.
