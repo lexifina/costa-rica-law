@@ -1,5 +1,6 @@
 CONTRALORIA GENERAL DE LA REPÚBLICA
 Contraloría General de la República.—Despacho del Contralor General.—San José, a las ocho horas del doce de mayo de mil novecientos noventa y nueve.
+(NOTA DE SINALEVI: La Contraloría General de la República, publicó en La Gaceta N° 22 del 31 de enero del 2006, un nuevo Reglamento Orgánico)
 En uso de las atribuciones que le confieren el artículo 183 de la Constitución Política; 2 y 23 de la Ley Orgánica de la Contraloría General de la República;
 Considerando:
 I.—Que por Ley No 7428 del 07 de setiembre de 1994, publicada en La Gacela N° 210 del 04 de noviembre de 1994, se promulgó la actual Ley Orgánica de la Contraloría General de la República, y se derogó la Ley No. 1252 del 23 de setiembre de 1950.
@@ -11,3 +12,4 @@ REGLAMENTO ORGÁNICO DE LA CONTRALORÍA GENERAL DE LA REPÚBLICA
 CAPITULO I
 Disposiciones generales
 Artículo 1°—Por el presente Reglamento se establece la organización de la Contraloría General de la República para el cumplimiento de las funciones que le encomiendan la Constitución.
+(DEROGADO por el artículo 1º emitido por Resolución de la Contraloría General de la República del 7 de julio del 2000)

@@ -21,3 +21,4 @@ Reglamento Orgánico de la Contraloría General de la República (En La Gaceta N
 | 6 | 1999-10-19 | Resolución 0 (1999-10-21) |
 | 7 | 1999-10-26 | Resolución 0 (1999-10-26) |
 | 8 | 2000-02-17 | Resolución 0 (2000-02-17) |
+| 9 | 2000-07-07 | Resolución 0 (2000-07-07) |

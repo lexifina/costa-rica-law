@@ -1,1 +1,2 @@
 Artículo 4°—Contará con un cuerpo de asesores que coadyuvarán con este Despacho y el del Subcontralor General en la atención de las funciones de su competencia. Asimismo, cuenta con una Unidad de Prensa que se encargará de manejar las relaciones de la Contraloría General con los medios de comunicación masiva.
+(DEROGADO por el artículo 1º emitido por Resolución de la Contraloría General de la República del 7 de julio del 2000)

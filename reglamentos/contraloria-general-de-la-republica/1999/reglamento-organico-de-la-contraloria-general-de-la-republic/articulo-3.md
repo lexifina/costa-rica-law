@@ -9,3 +9,4 @@ Artículo 3°—El Contralor General es la máxima autoridad de la Contraloría 
 6) Delegar el ejercicio de atribuciones, que no sean esenciales de su ejercicio personal, en el Subcontralor General o en cualquier otro funcionario u órgano de la Contraloría.
 7) Enviar a la Asamblea Legislativa una memoria anual en la oportunidad y forma que lo establece la Constitución Política.
 8) Ejercer todas las demás funciones, atribuciones y deberes que le señala la Constitución Política y las leyes.
+(DEROGADO por el artículo 1º emitido por Resolución de la Contraloría General de la República del 7 de julio del 2000)

@@ -15,3 +15,4 @@ Dirección General de Contratación Administrativa.
 Dirección General de Asuntos Jurídicos.
 Dirección General de Centro de Capacitación.
 Dirección General Administrativa.
+(DEROGADO por el artículo 1º emitido por Resolución de la Contraloría General de la República del 7 de julio del 2000)
