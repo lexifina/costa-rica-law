@@ -14,3 +14,4 @@ Amplía la Resolución 84-2002, que crea el Comité de Coordinación de Cooperac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-08 | la propia norma |
+| 2 | 2004-08-13 | Decreto Ejecutivo 31925 (2004-08-13) |
