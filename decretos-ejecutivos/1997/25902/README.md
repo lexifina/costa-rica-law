@@ -14,3 +14,4 @@ Reforma Plan Regional Desarrollo Urbano Gran Area Metropolitana
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-04-07 | la propia norma |
+| 2 | 2001-03-28 | Decreto Ejecutivo 29415 (2001-03-28) |

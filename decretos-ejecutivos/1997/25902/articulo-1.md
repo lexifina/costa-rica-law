@@ -1,8 +1,9 @@
 N° 25902-MIVAH-MP-MINAE
 EL PRESIDENTE DE LA REPÚBLICA
-LA SEGUNDA VICEPRES1DENTA DE LA REPÚBLICA
+LA SEGUNDA VICEPRESIDENTA DE LA REPÚBLICA
 Y MINISTRA DE VIVIENDA Y ASENTAMIENTOS HUMANOS
-EL MINISTRO DE LA PRESIDENCIA Y EL MINISTRO DEL AMBIENTE Y DE ENERGÍA.
+EL MINISTRO DE LA PRESIDENCIA
+Y EL MINISTRO DEL AMBIENTE Y DE ENERGÍA.
 En uso de las facultades que les confieren el artículo 140, incisos 3 y 18 de la Constitución Política, en relación con el artículo 28 de la Ley General de la Administración Pública.
 Considerando:
 1°—Que el Decreto N- 13583-VAH-OFIPLAN, del tres de mayo de mil novecientos ochenta y dos, publicado en "La Gaceta" número 95 del dieciocho de mayo de mil novecientos ochenta y dos, crea la Gran Área Metropolitana como un instrumento legal necesario para regular el desarrollo urbano del sistema de ciudades y centros de población del Valle Central del país, designado como LA GRAN ÁREA METROPOLITANA.
@@ -34,7 +35,7 @@ Alajuela | Alajuela | Alajuela San José Carrizal San Antonio Guácima San Isidr
 | Poás | San Pedro San Juan San Rafael Camilos Sabana Redonda
 Cartago | Cartago | Oriental Occidente Carmen San Nicolás Agua Caliente o San Francisco Guadalupe Tierra Blanca Dulce Nombre Llano Grande
 | Paraíso | Paraíso Santiago Orosí Cachí
-| La Unión | Tres Ríos San Diego San Juan San Rafae Concepción Dulce Nombre San Ramón Río Azul
+| La Unión | Tres Ríos San Diego San Juan San Rafael Concepción Dulce Nombre San Ramón Río Azul
 | Alvarado | Pacayas Cervantes Capellades
 | Oreamuno | San Rafael Cot Potrero Cerrado Cipreses Santa Rosa
 | El Guarco | El Tejar San Isidro Tobosi
@@ -66,7 +67,7 @@ Artículo 4°—En la Zona Especial de Protección sólo se permitirán las sigu
 4.4.1 Localización frente a calles públicas que cuenten con todos los servicios.
 4.4.2 Altura de edificación: Menor de doce metros o tres pisos. Se podrán aceptar alturas mayores, siempre y cuando cumplan con los siguientes retiros:
 4.4.3 Retiros Mínimos. Para alturas inferiores o iguales a doce metros o tres pisos: veinte metros. Para alturas mayores a doce metros: adicionales a los veinte metros señalados, se deberá dejar diez metros por cada piso en exceso,
-4.4.4 Área mínima: Para clubes campestres y hoteles se requerirá un área de cinco hectáreas. Para los demás usos se requerirá un área de dos hectáreas.
+4.4.4 Área mínima: Para clubes campestres y Hoteles se requerirá un área de cinco hectáreas. Para los demás usos se requerirá un área de dos hectáreas.
 4.4.5 Cobertura: Hasta un diez por ciento.
 4.4.6 Densidad Hotelera: 12 habitaciones por hectárea.
 4.5 Industrias o actividades industriales de tipo inofensivo o incómodas, como se definen en los artículos 4,5,6,7,S,9,10 y 11 del Reglamento sobre Higiene Industrial vigente. Las de tipo incómodo, se permitirán siempre que las posibles molestias sean confinables en la propiedad en que se pretenda ubicar la industria, mediante requisitos constructivos especiales o de cualquier otro tipo que establezca el Ministerio de Salud. Las industrias o actividades industriales incómodas con molestias confinables en la propiedad, sólo se permitirán cuando cumplan con lo siguiente:
@@ -76,7 +77,9 @@ Artículo 4°—En la Zona Especial de Protección sólo se permitirán las sigu
 4.5.4 Área mínima: se requerirá un área mínima de cinco hectáreas,
 4.5.5 Cobertura: Hasta un diez por ciento.
 4.5.6 Cuando no colinden por ninguno de sus linderos con viviendas y no se ubiquen contiguo a zonas residenciales. de alta densidad, así definidas en el Reglamento de Zonificación de la Gran Área Metropolitana.
-4.5.7 La calificación de la industria o actividad industrial deberá ser efectuada por el Departamento de Seguridad e Higiene Industrial del Ministerio de Salud. El permiso de ubicación será extendido por la Dirección de Urbanismo del INVU, teniendo a la vista el dictamen positivo de clasificación otorgado previamente por el Ministerio de Salud.
+4.5.7 La calificación de la industria o actividad industrial deberá ser efectuada por el Departamento de Seguridad e Higiene Industrial del Ministerio de Salud. El permiso de ubicación será extendido por la Dirección de Urbanismo del 1NVU, teniendo a la vista el dictamen positivo de clasificación otorgado previamente por el Ministerio de Salud.
+(*) 4.6.-Cuando existan terrenos de baja aptitud agrícola o que no tengan aptitud forestal o no requieran de arborización para contrarrestar problemas de estabilización de suelos, dictaminados ambos por el Ministerio de Agricultura y Ganadería; que no presenten problemas de escorrentía, de acuerdo con un dictamen del Ministerio de Ambiente y Energía; que no perjudique con su desarrollo a mantos acuíferos que puedan ser susceptibles de contaminación, según dictamen del SENARA; que no sean terrenos vulnerables a riesgos naturales según certificación de la Comisión Nacional de Emergencias; y que cumplan los demás requisitos que establezcan las normas nacionales o municipales correspondientes, podrán ser urbanizados para coadyuvar a reducir el déficit de vivienda del país.
+(*)(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 29415 de 28 de marzo de 2001. Posteriormente dicho inciso fue derogado por el artículo 1° del decreto ejecutivo N° 30754 de 17 de setiembre de 2002).
 Todas las edificaciones para los usos aceptados en este artículo, se construirán bajo un estricto control de impacto que pueden generar en la zona donde se instalarán, proporcionando los elementos de juicio necesarios para evaluar dichos proyectos, debiendo aportarse lo siguiente:
 - Estudio de impacto ambiental, aprobado por el -Ministerio del Ambiente y la Energía (MINAE),
 Construcción de una planta de tratamiento para aguas residuales, autorizada por el Instituto Costarricense de Acueductos y Alcantarillados (ICAA) y el Ministerio de Salud evitando la contaminación de los mantos acuíferos y de los cauces fluviales a que desemboquen.
