@@ -1,0 +1,1 @@
+Artículo 12.- Estarán exentos de todo pago de derecho de Registro las adquisiciones de bienes inmuebles que hayan sido hechas o lo sean en lo futuro por parte del Instituto Costarricense de Electricidad y de igual exención de derechos gozarán cualesquiera otras operaciones inscribibles en el Registro Público, en que sea parte interesada el Instituto Costarricense de Electricidad.
