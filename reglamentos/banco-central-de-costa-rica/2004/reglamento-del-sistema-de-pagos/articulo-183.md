@@ -1,0 +1,1 @@
+Artículo 183.—Transcurrido el período de suspensión de la entidad financiera para operar en el servicio CAN, ésta podrá solicitar su reincorporación a dicho servicio. La decisión sobre la aceptación corresponde a la División de Servicios Financieros del BCCR.

@@ -1,0 +1,1 @@
+Artículo 77.—La entidad destino efectuará el débito al cliente destino de acuerdo con la información electrónica recibida y será responsable de todos los aspectos relacionados con validaciones de índole electrónico definido en las normas complementarias respectivas.

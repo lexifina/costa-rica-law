@@ -1,0 +1,1 @@
+Artículo 195.—Para satisfacer las necesidades de liquidez de los mercados financieros, el BCCR implementará en forma paulatina diversos mecanismos de optimización con el objetivo de liquidar dichos mercados utilizando la menor cantidad de recursos dentro de un adecuado ambiente de control de riesgos.

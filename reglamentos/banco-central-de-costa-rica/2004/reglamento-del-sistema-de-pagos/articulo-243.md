@@ -1,0 +1,1 @@
+Artículo 243.—Toda aquella entidad que incumpla con las disposiciones establecidas en el esquema tarifario, no recibirá el pago de las comisiones que tenga a su favor durante el mes en que se dio el incumplimiento; además el BCCR informará de este incumplimiento a los consumidores de los servicios financieros.

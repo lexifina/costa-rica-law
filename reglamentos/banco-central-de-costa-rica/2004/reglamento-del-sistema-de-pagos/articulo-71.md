@@ -1,0 +1,9 @@
+CAPÍTULO III
+Del ciclo del servicio
+Artículo 71.—El ciclo del servicio CLC, se efectuará de conformidad con las siguientes etapas:
+a) Transmisión Electrónica de Cobro: La entidad origen envía un archivo electrónico con la información detallada de todos los cheques recibidos de sus clientes que han sido girados contra otros bancos, debiendo diferenciar los cheques truncados de los no truncados. Posterior al cierre de esta etapa, cada asociado recibirá del SINPE un archivo con la información de los cheques cobrados por los demás asociados a través del SINPE que han sido girados a su cargo.
+b) Intercambio Físico de Cobro: Los delegados de cada asociado intercambiarán el físico de los cheques no truncados cobrados electrónicamente. Además se intercambiarán los cheques truncados correspondientes al ciclo del día hábil anterior.
+c) Transmisión Electrónica de Devoluciones: La entidad destino envía un archivo electrónico con la información detallada de todos los cheques recibidos en las etapas anteriores del ciclo vigente, que resulten rechazados durante los procesos de consulta y verificación correspondientes. Posterior a la transmisión de devoluciones se realiza una compensación multilateral neta y cada asociado recibe un archivo electrónico con la información de los cheques devueltos por los demás asociados.
+d) Intercambio Físico de Devoluciones: Los delegados de cada asociado intercambiarán el físico de los cheques no truncados que resulten rechazados electrónicamente.
+e) Liquidación: El SIL efectúa en firme la liquidación utilizando el mecanismo de liquidación multilateral neta.
+f) Acreditación de Fondos: Los asociados están obligados a acreditar en la cuenta del cliente o bien dar valor a la operación de contrapartida, por el valor de los cheques recibidos en el horario bancario a más tardar a las catorce horas del segundo día hábil del ciclo.

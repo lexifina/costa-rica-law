@@ -1,0 +1,1 @@
+Artículo 246.—En caso de cierre de la Cuenta SINPE de algún asociado, el BCCR efectuará la retención del monto correspondiente a las comisiones adeudadas al momento del cierre, utilizando el tipo de cambio del día del cierre de la cuenta, no obstante, la liquidación de estas comisiones se efectuará en el cobro de comisiones del mes siguiente al cierre de la entidad.

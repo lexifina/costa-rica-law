@@ -1,0 +1,1 @@
+Artículo 22.—El BCCR verificará la calidad del billete que reciba como depósito de las entidades financieras. En caso de que producto de tal verificación compruebe la existencia de billete mal clasificado por tales entidades, sea circulable o deteriorado, podrá devolver el numerario mal clasificado a la entidad depositante.

@@ -1,0 +1,1 @@
+Artículo 162.—El BCCR es el responsable de liquidar oportunamente al proveedor o a las entidades financieras participantes los montos correspondientes derivados del proceso de importación y exportación de divisas.

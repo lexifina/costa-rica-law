@@ -1,0 +1,1 @@
+Transitorio VIII.—A más tardar el primer trimestre del 2005, el Ministerio de Hacienda deberá incorporar las regulaciones del servicio ILI como parte de las regulaciones definidas en la Serie de Normas y Procedimientos del SINPE.

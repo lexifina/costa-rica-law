@@ -1,0 +1,1 @@
+Artículo 73.—La CLC operará bajo un monto de truncamiento definido como del “90% de importe-riesgo”, no obstante, la entidad origen que lo considere conveniente podrá truncar cheques por montos mayores a los definidos, asumiendo para éstos las mismas responsabilidades establecidas para los cheques truncados.

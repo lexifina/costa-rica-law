@@ -1,0 +1,1 @@
+Transitorio X.—La tarifa por concepto de “servicio de deuda pública”, correspondiente al Ministerio de Hacienda, empezará a regir luego de que se rescinda el “CONVENIO ENTRE EL GOBIERNO DE LA REPÚBLICA Y EL BANCO CENTRAL DE COSTA RICA”, suscrito por ambas entidades el 14 de octubre de 1997, en lo que al servicio de la deuda interna bonificada corresponda.

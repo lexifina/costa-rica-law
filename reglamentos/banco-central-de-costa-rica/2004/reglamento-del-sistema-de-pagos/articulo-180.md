@@ -1,0 +1,6 @@
+Artículo 180.—El encargado de la Custodia Principal del BCCR ordenará, a través del SIL, un débito sobre la Cuentas de Reserva de cualquiera de las entidades participantes, por el monto total mantenido en la Custodia Auxiliar respectiva, utilizando el mecanismo de liquidación bilateral bruta y ajustará los saldos de inventario de numerario de las Custodias Auxiliares ante cualquiera de las siguientes circunstancias:
+a) La entidad financiera decida por su iniciativa excluirse de participar en el servicio CAN; situación que deberá comunicar al BCCR con un mes natural de anticipación.
+b) El BCCR revoque la autorización concedida a la entidad financiera para administrar Custodias Auxiliares.
+c) Cualquier clase de anomalía o circunstancias especiales como: desastre natural, caso fortuito o fuerza mayor, que atente contra la seguridad del numerario mantenido en la CAN por la entidad financiera.
+d) El BCCR, producto de las inspecciones realizadas, identifique diferencias faltantes entre el monto físico en la Custodia Auxiliar y el saldo registrado en el servicio CAN. En este caso se aplicará un recargo equivalente al veinticinco por ciento de la diferencia.
+e) El BCCR suspenda a la entidad financiera para operar en el servicio CAN, según los criterios establecidos en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 203.—El valor negociable de los valores dados en garantía, así como cualquier actualización sobre dicho valor, se deberá determinar con base en la valoración utilizada por la Bolsa Nacional de Valores S. A.

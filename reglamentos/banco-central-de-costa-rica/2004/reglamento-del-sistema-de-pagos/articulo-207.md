@@ -1,0 +1,1 @@
+Artículo 207.—De la suspensión del servicio. La entidad que incumpla con su obligación en el proceso de liquidación en los servicios de VED, VEV y SUV, será excluida del servicio correspondiente, por un plazo de tres meses, contado a partir del sexto día hábil de la fecha del incumplimiento.

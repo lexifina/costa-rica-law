@@ -1,0 +1,1 @@
+Artículo 204.—El monto de la garantía se calculará el último día hábil de cada semana y el saldo de los valores mantenidos en garantía deberá ser actualizado a más tardar a las once horas del primer día hábil de la semana subsiguiente.

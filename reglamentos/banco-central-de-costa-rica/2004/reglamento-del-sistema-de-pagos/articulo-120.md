@@ -1,0 +1,1 @@
+Artículo 120.—La entidad destino del reclamo, en el caso de reclamación por débitos no autorizados, deberá entregar al cliente destino, el comprobante del cobro revertido emitido por el servicio REF, si el cliente así lo solicita.

@@ -1,0 +1,1 @@
+Artículo 74.—El monto de truncamiento será detallado en las normas complementarias respectivas y operará para períodos anuales, debiendo este monto ser comunicado, en caso que varíe, a todos los participantes del servicio CLC, dentro de los últimos 15 días naturales de cada año y su entrada en vigencia será a partir del ciclo del primer día hábil del año siguiente.

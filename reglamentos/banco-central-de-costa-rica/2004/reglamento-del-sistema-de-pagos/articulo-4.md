@@ -1,0 +1,1 @@
+Artículo 4º—Horario de operación: El SINPE operará durante todos los días del año, en un horario de las seis horas a las veinticuatro horas. Durante este horario los asociados podrán acceder el sistema para efecto de remisión, recepción y consulta de información, además se dispondrá del COS para su atención.

@@ -1,0 +1,1 @@
+Artículo 97.—La entidad destino deberá proveer las facilidades necesarias para que sus clientes (cliente destino) puedan realizar los procesos de autorización de la orden de domiciliación de una forma ágil y eficiente (Internet, teléfono, plataforma de servicios u otros).

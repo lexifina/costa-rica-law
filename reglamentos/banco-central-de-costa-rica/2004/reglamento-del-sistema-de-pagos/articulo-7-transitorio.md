@@ -1,0 +1,1 @@
+Transitorio VII.—La incorporación y validación del número de identificación, en el caso de las transacciones correspondientes a extranjeros, será efectiva a partir de que dicha identificación sea definida por la Dirección General de Migración y Extranjería.

@@ -1,0 +1,1 @@
+Artículo 28.—El BCCR no asumirá responsabilidad alguna por los atrasos o cualquier inconveniente causado por una falla tecnológica del SINPE, siempre y cuando dicho problema no obedezca a negligencia de su personal. Ante situaciones imprevistas el BCCR activará los esquemas contingentes de que dispone el SINPE.

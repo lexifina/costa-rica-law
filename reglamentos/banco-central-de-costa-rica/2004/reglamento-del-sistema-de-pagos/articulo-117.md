@@ -1,0 +1,1 @@
+Artículo 117.—Las entidades participantes deberán utilizar el servicio REF del SINPE para la presentación de toda reclamación efectuada por sus clientes. En el caso de servicios de crédito, el reclamo debe ser presentado por el cliente ante la entidad origen y en caso de servicios de débito el reclamo debe realizarse ante la entidad destino.

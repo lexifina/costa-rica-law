@@ -1,0 +1,1 @@
+Artículo 33.—La entidad origen es responsable de verificar que la identificación del cliente origen corresponda efectivamente con dicho cliente; por su parte la entidad destino es responsable de verificar que la identificación del cliente destino corresponda efectivamente con el registro de la identificación del cliente destino mantenido en los sistemas de su entidad.

@@ -1,0 +1,1 @@
+Artículo 237.—El BCCR es responsable de administrar confidencialmente la información recibida de parte de las distintas entidades realizando un tratamiento agregado de la misma y utilizando esta información para apoyar exclusivamente la labor de Vigilancia y la modernización del Sistema de Pagos.

@@ -1,0 +1,1 @@
+Artículo 179.—El BCCR atenderá los requerimientos de las entidades participantes siempre y cuando no dispongan de una Custodia Auxiliar bajo su responsabilidad y no logren satisfacer dichos requerimientos en una primera instancia por medio del servicio de Mercado de Numerario (MEN). Asimismo, la Custodia Principal distribuirá el numerario nuevo y destruirá el deteriorado.

@@ -1,0 +1,1 @@
+Transitorio II.—Las variaciones en el esquema tarifario definido en este reglamento regirá a partir del primer día hábil del mes subsiguiente a la entrada en vigencia del presente reglamento o de la entrada en operación de los nuevos servicios.

@@ -1,0 +1,1 @@
+Artículo 171.—Las entidades financieras podrán depositar en las CAN billete circulable, deteriorado o por clasificar, según los criterios que sobre el particular se establecen en la norma complementaria del servicio CAN.

@@ -1,0 +1,1 @@
+Artículo 21.—El Numerario o su representación no podrá ser usado con fines publicitarios sin previa autorización expresa del BCCR, según los criterios técnicos que sobre el particular establezca. Asimismo, se prohíbe la reproducción parcial o total, de billetes o monedas, con fines publicitarios o de promoción que puedan inducir a falsificación o timo a la población.

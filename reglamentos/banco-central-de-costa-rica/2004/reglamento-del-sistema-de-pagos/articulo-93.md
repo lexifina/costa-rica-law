@@ -1,0 +1,1 @@
+Artículo 93.—La entidad origen podrá proveer a su cliente (cliente origen) el servicio de entrega de la orden de domiciliación ante la entidad destino, ya sea de forma física, para lo cual se utilizará la reunión de intercambio físico del servicio CLC o bien de forma electrónica por medio de una prenotificación electrónica a través del SINPE.

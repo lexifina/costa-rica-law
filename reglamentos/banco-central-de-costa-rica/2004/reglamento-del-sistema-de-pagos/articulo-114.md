@@ -1,0 +1,1 @@
+Artículo 114.—La Reclamación por Créditos no Aplicados se limita a una solicitud de información efectuada por la entidad origen, por tanto, no implica para la entidad destino del reclamo ningún movimiento de fondos sobre su Cuenta SINPE.

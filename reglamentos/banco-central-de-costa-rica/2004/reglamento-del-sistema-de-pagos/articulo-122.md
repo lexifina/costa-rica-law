@@ -1,0 +1,1 @@
+Artículo 122.—El pago de las comisiones que se deban aplicar a los entes recaudadores, por concepto de recaudación y trascripción a medios magnéticos de los enteros, relacionados con la recaudación de impuestos, será realizado en forma automática por el servicio ILI.

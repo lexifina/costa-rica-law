@@ -1,0 +1,1 @@
+Artículo 165.—Las Custodias Auxiliares podrán operar tanto en las oficinas centrales de las entidades financieras como en aquellas agencias o sucursales que cumplan los requisitos correspondientes para ser autorizadas a disponer de una Custodia Auxiliar.

@@ -1,0 +1,4 @@
+Reclamación por créditos no aplicados
+Artículo 113.—El ciclo REF por créditos no aplicados, establecido para los servicios TFT y CCD, opera de conformidad con las siguientes etapas:
+a) Solicitud de información: La entidad origen del reclamo, solicita a través del servicio REF, datos sobre una determinada transacción de crédito, indicando el número de referencia asociado a cada operación en SINPE.
+b) Validación de la solicitud: El SINPE, automáticamente, valida que la transacción haya sido tramitada previamente por el sistema, que cumpla con los plazos de reclamo establecidos y que la transacción no haya sido rechazada. Se valida además, que sobre esta transacción, no se haya realizado un reclamo previamente, con el fin evitar la duplicación de reclamos. En caso de verificarse la validez de la transacción, el SINPE comunica automáticamente a la entidad destino sobre la reclamación recibida.

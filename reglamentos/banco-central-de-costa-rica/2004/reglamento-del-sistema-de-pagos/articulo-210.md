@@ -1,0 +1,1 @@
+Artículo 210.—De las Contingencias en el SINPE. En caso de que se presente una contingencia que ocasione un retraso en la liquidación en las Cuentas SINPE, las entidades financieras podrán extender el tiempo de acreditación a sus clientes a lo sumo por un plazo igual al tiempo oficial de retraso presentado.

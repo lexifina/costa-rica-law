@@ -1,0 +1,1 @@
+Artículo 58.—Todo movimiento de depósito o retiro que se realicen en moneda nacional en las Cuentas SINPE, podrá efectuarse con dinero efectivo o mediante alguno de los servicios del SINPE. Todo movimiento en moneda extranjera deberá efectuarse únicamente a través de los servicios del SINPE.

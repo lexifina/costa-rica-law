@@ -1,0 +1,1 @@
+Artículo 160.—Las entidades participantes son las responsables de tramitar y solicitar aclaraciones sobre cualquier reclamo o irregularidad presentada en la prestación del servicio directamente con el proveedor.

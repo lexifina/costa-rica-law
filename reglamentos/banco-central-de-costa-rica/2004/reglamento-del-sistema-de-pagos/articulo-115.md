@@ -1,0 +1,1 @@
+Artículo 115.—La reclamación deberá corresponder a transacciones enviadas a través del SINPE dentro de los últimos 100 días naturales, contados a partir de la fecha de presentación del reclamo (incluido el día del reclamo), luego de este plazo, la transacción sea de débito o crédito se considera final y no puede por ningún otro medio ser sujeto de reclamación en el futuro.

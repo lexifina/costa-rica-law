@@ -1,0 +1,1 @@
+Artículo 176.—Las entidades participantes deberán permitir el acceso inmediato de los inspectores del BCCR para que efectúen su labor de inspección de las custodias. Para tales efectos, los inspectores podrán ingresar a las CAN en un horario comprendido entre las siete y las diecinueve horas de cualquier día hábil.

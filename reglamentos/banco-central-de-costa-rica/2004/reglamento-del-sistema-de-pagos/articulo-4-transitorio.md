@@ -1,0 +1,1 @@
+Transitorio IV.—A partir de la puesta en funcionamiento de los servicios Liquidación de Deuda Pública (LDP) el BCCR deberá trasladar a la Tesorería Nacional las funciones relacionadas con la emisión, impresión, mantenimiento, cancelación y liquidación de los títulos valores emitidos por el Ministerio de Hacienda.

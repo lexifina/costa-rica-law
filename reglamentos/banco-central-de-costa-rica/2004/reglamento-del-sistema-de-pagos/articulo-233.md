@@ -1,0 +1,1 @@
+Artículo 233.—De la información de otros medios y del Sistema de Pagos. El BCCR, en su función de vigilante del Sistema de Pagos, a través del ISP, administrará la información de todos aquellos sistemas de compensación y pago, distintos al SINPE, que involucre a cualquiera de las entidades financieras.

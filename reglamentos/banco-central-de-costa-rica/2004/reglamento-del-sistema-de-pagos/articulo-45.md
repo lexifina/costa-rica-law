@@ -1,0 +1,1 @@
+Artículo 45.—La responsabilidad por la liberación de fondos al cliente, previo a completar las fases de compensación y liquidación sobre las Cuentas SINPE en el BCCR, definidos en este reglamento, será por cuenta y riesgo de la entidad financiera que utilice esta práctica.

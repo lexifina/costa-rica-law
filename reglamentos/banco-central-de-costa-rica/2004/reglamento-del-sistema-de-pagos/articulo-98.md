@@ -1,0 +1,1 @@
+Artículo 98.—Cualquier autorización de débito automático, ya sea que se presente directamente ante la entidad destino o a través del la entidad origen, empezará a regir, para efecto de aplicación del cobro respectivo, a más tardar el sexto día hábil de la fecha de su recepción por parte de la entidad destino.

@@ -1,0 +1,1 @@
+Artículo 103.—Las entidades financieras, para efecto de cubrir la responsabilidad que asumen en nombre de sus clientes por la gestión de cobro realizada, podrán solicitar a éstos, la formalización de una garantía o depósito de conformidad con las condiciones acordadas entre la entidad financiera y su cliente.

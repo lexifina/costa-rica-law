@@ -1,0 +1,1 @@
+Artículo 182.—Las faltas enumeradas en el artículo anterior serán sancionadas con una suspensión del servicio CAN, de seis meses por cada incumplimiento, contados a partir del sexto día hábil del incumplimiento. Estas sanciones serán aplicadas exclusivamente a la oficina en la cual se encuentra la CAN que incurrió en la falta.

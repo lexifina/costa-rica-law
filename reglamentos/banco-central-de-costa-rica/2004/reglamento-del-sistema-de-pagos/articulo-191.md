@@ -1,0 +1,1 @@
+Artículo 191.—Las entidades financieras serán responsables de que la información relativa al catálogo de vehículos y catálogo de personas vinculadas al transporte de numerario, sean propios o de las empresas transportadoras, se mantenga actualizada en el servicio MEN.

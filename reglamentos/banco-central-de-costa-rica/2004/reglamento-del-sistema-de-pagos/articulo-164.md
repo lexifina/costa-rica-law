@@ -1,0 +1,1 @@
+Artículo 164.—Las Custodias Auxiliares operarán por medio del servicio CAN del SINPE, el cual se constituye en el sistema oficial de registro del inventario de numerario del BCCR, tanto del que mantiene en su Custodia Principal como del que custodian por su cuenta las entidades financieras que administren Custodias Auxiliares.

@@ -1,0 +1,10 @@
+CAPÍTULO III
+Del ciclo del servicio
+Artículo 151.—El ciclo del servicio SUV se efectuará de conformidad con las siguientes etapas:
+a) Registro y publicación de la convocatoria: El BCCR o el Ministerio de Hacienda, según corresponda en cada caso, abre una convocatoria de captación con los valores que subastarán entre los inversionistas, indicando el periodo durante el cual dicha convocatoria estará abierta.
+La información relacionada con los términos y condiciones financieras de los valores ofrecidos podrá ser consultada por los inversionistas a partir del momento en que se activa la convocatoria y la recepción de ofertas de inversión estará disponible únicamente durante la vigencia del periodo de captación.
+b) Registro de ofertas de inversión: Los inversionistas ingresan en el servicio sus ofertas de inversión y una vez que dichas ofertas sean activadas por éstos, quedarán disponibles para que los emisores procedan con el análisis respectivo.
+c) Asignación y distribución de las ofertas: Los emisores, de conformidad con la metodología y los procedimientos de asignación de ofertas establecidos en las normas complementarias del servicio, asignan las ofertas que cumplan con sus expectativas de captación. En caso de corresponder a una subasta conjunta, ambos emisores procederán también con la distribución de las ofertas que resulten asignadas durante la subasta.
+Dependiendo de las condiciones financieras de las ofertas recibidas, y de sus propias necesidades de captación, los emisores podrán declarar desierta una determinada subasta. Las normas complementarias del servicio establecerán las condiciones bajo las cuales los emisores podrán invocar tal declaratoria.
+d) Liquidación de las ofertas asignadas: El SIL efectúa en firme la liquidación utilizando el mecanismo de entrega contra pago.
+Cuando un inversionista presentare una insuficiencia de fondos en su Cuenta de Reserva, por la cual no logre cubrir las obligaciones financieras contraídas con su participación en la subasta, la liquidación definitiva se ejecutará excluyendo todas sus ofertas de inversión del proceso.

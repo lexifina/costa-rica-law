@@ -1,0 +1,1 @@
+Transitorio IX.—Todas las transacciones de cobro y pago realizadas a través del SINPE a partir de la fecha de entrada en vigencia del presente reglamento, serán sujetas al esquema planteado en el servicio REF.

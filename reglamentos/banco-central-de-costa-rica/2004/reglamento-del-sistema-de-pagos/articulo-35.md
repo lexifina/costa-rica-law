@@ -1,0 +1,1 @@
+Artículo 35.—La funcionalidad de aceptación automática que ofrecen los servicios del SINPE o la operativa en tiempo real con que operan algunos de ellos, no exime a las entidades financieras de su responsabilidad en relación con el control y prevención de la Legitimación de Capitales.

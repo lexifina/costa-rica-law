@@ -1,0 +1,4 @@
+Artículo 95.—El ciclo de la prenotificación estará conformado por las siguientes etapas:
+a) Envío de la información: La entidad origen a título propio o a nombre de su cliente (cliente origen), envía a la entidad destino, a través del servicio ADA, la información de la orden de domiciliación.
+b) Gestión de la autorización de débito automático: La entidad destino, a más tardar el segundo día hábil después de recibida la información, deberá tener disponible al cliente destino, a través de los medios que defina, la información de la orden de domiciliación, para que éste emita la autorización respectiva. La entidad destino de previo, deberá informar a su cliente (cliente destino), acerca de los mecanismos y procedimientos establecidos, para facilitarle el proceso de autorización.
+c) Aceptación o rechazo: La entidad destino a más tardar el quinto día hábil deberá comunicar a través del servicio ADA, la aceptación o el rechazo de la autorización emitida.

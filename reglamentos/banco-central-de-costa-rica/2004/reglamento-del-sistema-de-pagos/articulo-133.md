@@ -1,0 +1,1 @@
+Artículo 133.—La entidad de servicio o compensadora deberá utilizar su Cuenta SINPE exclusivamente para el cobro de las obligaciones producto de su participación en el servicio. Se prohíbe la utilización de esta cuenta para la recepción de pagos y posterior traslado de fondos a alguna otra entidad financiera.

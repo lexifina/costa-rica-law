@@ -1,0 +1,1 @@
+Transitorio VI.—Para los servicios CLC y COV la incorporación del número de identificación específicamente, del cliente destino por parte de la entidad origen, así como la validación de éste por parte de la entidad destino se efectuará de conformidad con el cronograma que al respecto defina la Comisión de Normas y Procedimientos del SINPE.

@@ -1,0 +1,1 @@
+Artículo 118.—El servicio REF constituye el medio oficial, exclusivo, para realizar reclamos por débitos no autorizados o créditos no aplicados; la entidad destinataria de un reclamo no estará obligada a atender ningún reclamo que no le sea efectuado por este medio.

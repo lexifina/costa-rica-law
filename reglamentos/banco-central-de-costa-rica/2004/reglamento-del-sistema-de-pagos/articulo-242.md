@@ -1,0 +1,1 @@
+Artículo 242.—En caso de que las entidades asociadas o sus asociaciones gremiales no estén de acuerdo con las tarifas definidas por el BCCR, deberán presentar ante la Gerencia del BCCR, su propuesta de tarifas con la justificación y estudio de costos respectivo.

@@ -1,0 +1,1 @@
+Artículo 40.—Las sanciones y multas consignadas en la Ley Orgánica del Banco Central de Costa Rica serán aplicadas por el Director del Departamento de Sistema de Pagos del BCCR, quien para estos efectos fungirá como Órgano Superior Jerárquico, entendido este como órgano decisor que resolverá estos procedimientos.

@@ -1,0 +1,1 @@
+Artículo 36.—Los asociados al SINPE tendrán la responsabilidad de asociar un número de referencia a cada una de las transacciones ordenadas a través del SINPE, según el estándar definido en las normas complementarias respectivas.

@@ -1,0 +1,1 @@
+Artículo 108.—La responsabilidad de la entidad destino se limita a efectuar el débito al cliente destino de acuerdo con lo indicado por la entidad origen, previa validación de la autorización de cobro automática emitida por el cliente destino vía suscripción o prenotificación.

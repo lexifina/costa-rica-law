@@ -1,0 +1,7 @@
+CAPÍTULO III
+Del ciclo del servicio
+Artículo 67.—El ciclo del servicio TFT se efectuará de conformidad con las siguientes etapas:
+a) Envío de la transferencia: La entidad origen emite a través del SINPE, por mandato de su cliente o por cuenta propia, una instrucción para transferir fondos de su Cuenta SINPE a la Cuenta SINPE de una entidad destino, con la indicación expresa de que se acredite en una determinada Cuenta Cliente en dicha entidad.
+b) Aceptación o rechazo de la transferencia: Después de recibida la comunicación electrónica, la entidad destino, en tiempo real, deberá confirmarle automáticamente a la entidad origen la aceptación o rechazo de la transferencia. En caso de que la entidad destino presente problemas en su plataforma tecnológica que imposibilite la aceptación o rechazo de la transferencia en forma automática, la transacción será devuelta por el SINPE a la entidad origen con la indicación de la naturaleza del problema.
+c) Liquidación de la transferencia: El SIL efectúa en firme la liquidación utilizando el mecanismo de liquidación bilateral bruta, una vez que se haya recibido la aceptación de la transferencia de parte de la entidad destino. En caso de rechazo de la transferencia por parte de la entidad destino, el SIL procederá a liberar los fondos que habían sido previamente retenidos a la entidad origen.
+d) Acreditación de la transferencia en la Cuenta Cliente destino: Si la transferencia es aceptada por la entidad destino; deberá acreditar en tiempo real el total del monto de la transferencia en la Cuenta Cliente respectiva.
