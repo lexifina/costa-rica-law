@@ -1,0 +1,6 @@
+ARTÍCULO XXI
+ASIGNACIÓN
+21.01 El PRESTAMISTA puede en cualquier momento asignar todos o cualquier parte de sus derechos y/o obligaciones al amparo del presente Acuerdo de línea de Crédito, de los Pagarés y/o de la Garantía.
+21.02 Si el PRESTAMISTA ha asignado (Cedido) cualquiera de sus derechos u obligaciones amparo del presente Acuerdo, todas las provisiones respectivas del Acuerdo serán un compromiso para el cesionario del PRESTAMISTA y serán ejecutables por y tendrán efecto en el beneficio del cesionario del PRESTAMISTA respectivamente.
+21.03 El PRESTATARIO no puede asignar sus derechos u obligaciones al amparo del presente Acuerdo sin el consentimiento por escrito previo del PRESTAMISTA. Sin embargo, el PRESTATARIO puede asignar sus derechos y obligaciones al amparo del presente Acuerdo al Ministerio de Hacienda de la República de Costa Rica, dando aviso por escrito al PRESTAMISTA no menos de veinte (20) Días Comerciales antes de ello.
+21.04 Todos los convenios, los acuerdos, representaciones y garantías establecidas en el Acuerdo serán comprometedoras para el PRESTATARIO y sus sucesores y cesionarios y serán ejecutables por y tendrán efecto en el beneficio del PRESTAMISTA y sus sucesores y cesionarios.

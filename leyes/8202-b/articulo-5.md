@@ -1,0 +1,10 @@
+ARTÍCULO V
+COSTOS Y GASTOS; INDEMNIZACIÓN
+5.01 Todos los Impuestos e Impuestos Documentales, presentes o futuros, que sean pagaderos en relación con la preparación, registro, ejecución, entrega o desempeño, enmienda o asignación del Acuerdo, de los Pagarés, de la Garantía y/o cualquier otro acuerdo o documento requerido o contemplado al amparo del presente así como todos los costos y gastos incurridos en relación con la dicha preparación, registro, ejecución, entrega o desempeño, enmienda o asignación, serán asumidos por y pagados por el PRESTATARIO.
+5.02 Todos los costos y gastos relacionados con las obligaciones y/o tareas actuales del PRESTATARIO o incurridos en relación con el cobro de los Pagarés y/o en relación con la entrada en vigor del Acuerdo (también incluyendo cuotas legales y los gastos menores incurridos por el PRESTAMISTA) serán asumidos por y pagados por el PRESTATARIO.
+5.03 Todos los costos, cargos y gastos con respecto a la procura y la ejecución de la Opinión Legal y toda otra declaración legal que el PRESTAMISTA de vez en cuando puede requerir en relación con el Acuerdo, los Pagarés y/o cualquier otro acuerdo relacionado, serán asumidos por y pagados por el PRESTATARIO.
+5.04 El PRESTATARIO pagará todos los costos, cargos y gastos relacionados al Agente y al Agente de Proceso.
+5.05 El PRESTATARIO pagará al PRESTAMISTA todos los costos, cargos y gastos producidos en relación con el Seguro de Crédito.
+5.06 El PRESTATARIO pagará todos los costos, cargos y gastos relacionados con la Garantía.
+INDEMNIZACIÓN
+5.07 El PRESTATARIO indemnizará al PRESTAMISTA contra cualquier pérdida o gasto que el PRESTAMISTA puede tener o en el que puede incurrir como consecuencia de cualquier retraso o falta causado por el PRESTATARIO en el cumplimiento de sus obligaciones al amparo del Acuerdo o en pago de cualquier monto pagadero al amparo del presente, también incluyendo todas las pérdidas, primas y multas incurridas en la liquidación o reempleo de fondos adquiridos para efectuar o mantener la Línea de Crédito.
