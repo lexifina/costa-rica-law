@@ -1,0 +1,1 @@
+Artículo 7º—De los recursos Financieros del Comité. El Comité financiará sus actividades y programas mediante los excedentes del Canon de Mejoras Portuarias en Centroamérica, que recaudan las Autoridades Portuarias en los puertos nacionales, una vez reducido el 50% de dicho monto a favor del Consejo Portuario Nacional.
