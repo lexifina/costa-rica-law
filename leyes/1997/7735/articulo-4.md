@@ -1,9 +1,8 @@
 ARTÍCULO 4.- Fines
 Los fines del Consejo interinstitucional de atención a la madre
 adolescente serán:
-a) Promover programas preventivos, educativos, divulgativos y de
-capacitación sobre las implicaciones del embarazo en la adolescencia,
-dirigidos a estudiantes de secundaria y las familias costarricenses.
+a) Promover programas preventivos, educativos, divulgativos y de capacitación sobre las implicaciones del embarazo en la adolescencia, dirigidos tanto a la población escolarizada y no escolarizada como a las familias costarricenses.
+(Así reformado por el inciso b) del artículo 1 de la ley N° 8312 de 30 de setiembre del 2002)
 b) Coordinar, apoyar, asesorar y contribuir al mejoramiento de los
 programas y las acciones de las organizaciones, públicas y privadas, en
 favor de las madres adolescentes.
@@ -25,3 +24,5 @@ remunerado.
 g) Recomendar la construcción de albergues temporales, para las
 madres adolescentes que no cuenten con el apoyo de sus familiares, y
 solicitar que se incluyan en los rubros presupuestarios correspondientes.
+h) Promover acciones para el fomento de la maternidad y paternidad responsables dirigidas a adolescentes en situación de riesgo.
+(Así adicionado el inciso h), por el inciso b) del artículo 1 de la ley N° 8312 de 30 de setiembre del 2002)
