@@ -14,3 +14,4 @@ BCR: Ref. Tarifas y Condiciones Servicios Nacionales e Internacionales
 | --- | --- | --- |
 | 1 | 1995-06-06 | la propia norma |
 | 2 | 1996-01-29 | Reglamento 10 (1996-01-29) |
+| 3 | 1996-01-29 | Ley 8 |
