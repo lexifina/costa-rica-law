@@ -1,0 +1,2 @@
+Transitorio III.- Para efectos de la aplicación de esta ley, mientras no esté en funcionamiento el Registro Único de Valores, el cálculo del arancel se basará en el mayor valor dado por las partes en el acto o contrato o el constante en el Registro de Valores de la Dirección General de Tributación Directa o en la municipalidad respectiva.
+(Así adicionado por el artículo 189 del Código Notarial No.7764 de 17 de abril de 1998)
