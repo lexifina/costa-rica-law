@@ -13,3 +13,4 @@ Lineamientos Generales Política Salarial y de Empleo para 1995
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-10-07 | la propia norma |
+| 2 | 2001-03-07 | SINALEVI (sin norma nombrada) |
