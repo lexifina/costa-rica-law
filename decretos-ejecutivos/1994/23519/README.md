@@ -13,3 +13,4 @@ Declara Interés Histórico Casona Hacienda San Luis Cañas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-08-16 | la propia norma |
+| 2 | 1994-08-16 | SINALEVI (sin norma nombrada) |
