@@ -15,3 +15,4 @@ Reforma Integración de la Junta de Desarrollo Portuario de Golfito
 | --- | --- | --- |
 | 1 | 2001-09-07 | la propia norma |
 | 2 | 2002-07-01 | Decreto Ejecutivo 30567 (2002-07-01) |
+| 3 | 2002-09-10 | Decreto Ejecutivo 30744 (2002-09-10) |
