@@ -1,0 +1,1 @@
+Art 3° Con el propio intento, el día mismo de un sorteo, a lo más tarde el siguiente la Secretaría respectiva comunicará su designación al conjuez que hubiese resultado para conocer en una causa, acompañándole copia del relato de que habla el artículo 1°.

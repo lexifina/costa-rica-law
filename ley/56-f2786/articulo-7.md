@@ -1,0 +1,1 @@
+Art 7° En lo sucesivo no será atribución de las Salas de la Suprema Corte, sino de sus respectivos Presidentes, mandar librar las ejecutorias de aquellas sentencias ejecutorias en el conocimiento de las mismas Salas. Queda así reformado el art 145 del Reglamento de 4 de noviembre de 1845.
