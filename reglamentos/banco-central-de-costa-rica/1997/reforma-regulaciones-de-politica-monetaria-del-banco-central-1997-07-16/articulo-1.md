@@ -1,0 +1,6 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica, mediante Artículo 13, numeral 1, del Acta de la Sesión 4915-97, celebrada el 16 de julio de 1997. Por tanto,
+ACUERDA:
+Modificar los literales C y D del Capítulo III, del Título III, de las “Regulaciones de Política Monetaria”, para que en lo sucesivo se lean así:
+“C La nota de aviso prescrita en el artículo 67 de la Ley 7558 y remitida por la Superintendencia General de Entidades Financieras a la Junta Directiva del Banco Central de Costa Rica será acompañada por los atestados técnicos emanados del sistema informatizado encargado de mostrar las deficiencias quincenales en los encajes mínimos legales, cualquier nota de descargo enviada por la entidad financiera que demuestre el desencaje y el criterio técnico de la SUGEF relacionado con lo manifestado por la entidad.”
+“D En el caso que la deficiencia persistiere dos o más veces dentro de un período de tres meses calendario, la Superintendencia General de Entidades Financieras enviará la nota de estilo con los anexos previstos en el literal anterior. La Junta Directiva del Banco Central de Costa Rica podrá imponer la sanción prevista en el numeral 67 in fine, atendiendo principios elementales de justicia, lógica y conveniencia.”
