@@ -7,6 +7,9 @@ Se declaran inembargables las sumas que se devuelvan a los empleados que dejaren
 En las Juntas Administrativas del Fondo de Garantía y Jubilaciones de cada Banco, se le dará representación a los empleados bancarios, quienes elegirán a dos de sus miembros; y
 3) Un diez por ciento (10 %) para incrementar el capital del Departamento de Cooperativas del Banco Nacional de Costa Rica.
 (Así adicionado el inciso anterior por el artículo 115 de la Ley de Asociaciones Cooperativas, N° 4179 del 22 de agosto de 1968)
-4) El remanente para incrementar la Reserva Legal."
+4) Un diez por ciento del remanente después de deducir el Impuesto de la Renta, para formar la Reserva Técnica de Contingencias a que se refiere la ley Nº 4461 de 10 de noviembre de 1969, la cual se destinará a enjugar los déficit que pueda arrojar la liquidación anual del Seguro de Cosechas.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 4623 del 5 de agosto de 1970)
+5) El remanente para incrementar la Reserva Legal.
 (Así corrida la numeración del inciso anterior y reformado por el artículo 115 de la Ley de Asociaciones Cooperativas, N° 4179 del 22 de agosto de 1968, que lo traspaso del inciso 3) al 4))
+(Corrida la numeración del inciso anterior por el artículo 2° de la ley N° 4623 del 5 de agosto de 1970, que lo traspaso del inciso 4) al 5))
 (Así reformado por el artículo 3° de la ley N° 3020 del 16 de agosto de 1962)
