@@ -1,0 +1,8 @@
+ARTÍCULO VII
+Intercambio de técnicos
+El intercambio de técnicos a que se refiere el Artículo VI, se sujetará a las disposiciones siguientes:
+a) las Partes cubrirán los gastos de transporte internacional, alimentación y hospedaje de sus técnicos, salvo en el caso que las Partes lo acuerden de otra forma;
+b) el personal comisionado por cada una de las Partes continuará bajo la dirección y dependencia de la institución a la que pertenezca, por lo que no se crearán relaciones de carácter laboral con la Otra, a la que en ningún caso se considerará patrón sustituto;
+c) las Partes gestionarán ante las autoridades competentes todas las facilidades necesarias para la entrada, permanencia y salida de los participantes que en forma oficial intervengan en los proyectos de cooperación que se deriven del presente Acuerdo. Éstos participantes se someterán a las disposiciones migratorias, fiscales, aduaneras, sanitarias y de seguridad vigentes en el país receptor, y no podrán dedicarse a ninguna actividad ajena a sus funciones sin la previa autorización de las autoridades competentes en esta materia. Asimismo, los participantes dejarán el país receptor de conformidad con las leyes y disposiciones del mismo.
+d) las Partes se asegurarán que su personal que participe en las acciones previstas en este Acuerdo, cuente con seguro médico, de daños personales y de vida, a efecto de que, en caso de siniestro resultante del desarrollo del Acuerdo, que amerite reparación del daño o indemnización, éste sea cubierto por la institución de seguros correspondiente;
+e) Ambas Partes mantendrán, en la medida de lo posible, las fechas programadas para la realización de las diferentes actividades.
