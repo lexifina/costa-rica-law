@@ -13,3 +13,4 @@ Regulaciones sobre Pago Previo para Agilizar el Sistema Aduanero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-09-30 | la propia norma |
+| 2 | 1996-06-14 | Decreto Ejecutivo 25270 (1996-06-14) |
