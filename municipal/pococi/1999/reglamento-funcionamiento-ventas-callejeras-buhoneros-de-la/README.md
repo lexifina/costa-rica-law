@@ -14,3 +14,4 @@ Reglamento Funcionamiento Ventas Callejeras (Buhoneros) de la Municipalidad de P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-27 | la propia norma |
+| 2 | 2000-12-14 | Reglamento municipal 78 (2000-12-14) |
