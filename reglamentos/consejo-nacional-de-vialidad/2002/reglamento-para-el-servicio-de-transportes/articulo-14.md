@@ -1,0 +1,1 @@
+Artículo 14.—Atención de solicitudes de transportes. Las solicitudes de transportes serán tramitadas de acuerdo con el orden de presentación de las solicitudes y de acuerdo a los lugares a recorrer y deberán presentarse con tres días hábiles antes de efectuarse la gira.

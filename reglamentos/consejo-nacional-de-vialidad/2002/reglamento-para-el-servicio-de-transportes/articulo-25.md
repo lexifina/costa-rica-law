@@ -1,0 +1,1 @@
+Artículo 25.—Protecciones. El CONAVI otorgará protecciones a sus chóferes, conductores y demás funcionarios durante el ejercicio de sus funciones, por medio de pólizas de riesgo del trabajo y las relativas a vehículos según las disposiciones indicadas en el artículo 31 de la Ley de Tránsito.

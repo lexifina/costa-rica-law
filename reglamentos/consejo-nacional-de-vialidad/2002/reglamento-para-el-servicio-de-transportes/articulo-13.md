@@ -1,0 +1,1 @@
+Artículo 13.—Presentación de la solicitud de transporte. Toda instancia deberá presentar la Solicitud de Servicios de Transporte debidamente completada, ante la Dirección de Administración y Finanzas. Se realizaran excepciones en caso de una emergencia o situación que amerite dar el servicio, sin haberse contemplado en la programación.

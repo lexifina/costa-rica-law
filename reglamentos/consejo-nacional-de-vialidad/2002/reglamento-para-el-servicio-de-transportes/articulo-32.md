@@ -1,0 +1,1 @@
+Artículo 32.—Del cobro del deducible. El abogado encargado del proceso, deberá comparecer en la fase de ejecución de sentencia a efecto de cobrar los daños y perjuicios ocasionados así como el correspondiente deducible al chofer o conductor.

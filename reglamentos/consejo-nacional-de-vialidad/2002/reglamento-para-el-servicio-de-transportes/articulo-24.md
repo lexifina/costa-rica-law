@@ -1,0 +1,1 @@
+Artículo 24.—Personas autorizadas para conducir vehículos. Únicamente están autorizadas para conducir vehículos de uso administrativo general, los que ocupen puestos de chofer y los conductores, que se encuentran inscritos en el Registro que lleva la Dirección de Administración y Finanzas.

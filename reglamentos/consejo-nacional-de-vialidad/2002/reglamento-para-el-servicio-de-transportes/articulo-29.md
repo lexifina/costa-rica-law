@@ -1,0 +1,7 @@
+Artículo 29.—Del procedimiento general en caso de accidente. El conductor o chofer y sus acompañantes, deberán proceder con la mayor prontitud de la forma siguiente:
+a) Llamar a la autoridad competente (Inspector de Tránsito, etc.), por el medio que disponga para que confeccionen el parte correspondiente y a los Inspectores del Instituto Nacional de Seguros (INS).
+b) Obtener información sobre las personas afectadas en el accidente.
+c) Dar aviso en forma inmediata a la Dirección de Administración y Finanzas y/o a su superior inmediato sobre lo sucedido, para que se tomen las medidas del caso.
+d) El vehículo debe permanecer en el lugar del accidente, con el motor apagado, ignición cerrada, freno de mano puesto, y todas las medidas de seguridad convenientes. El conductor no se separará del vehículo por ningún motivo.
+e) En caso de colisión o accidente con otro vehículo, se tomarán las placas de éste, nombre si es posible y licencia de su conductor, nombres y apellidos y vecindario de testigos presénciales y se anotarán todos los datos pertinentes.
+f) Deberá prestar cooperación a las autoridades que se presenten. Todo conductor será responsable del vehículo y por lo mismo en caso de accidente, deberá trasladarse al lugar seguro una vez cumplidos los trámites legales. Por ningún motivo, salvo fuerza mayor o imposibilidad, abandonará el vehículo en ningún momento sin cumplir las disposiciones dichas.

@@ -1,0 +1,1 @@
+Artículo 40.—Definición de controles internos. El Director Ejecutivo y la Dirección de Administración y Finanzas, serán los responsable de definir las normas y procedimientos de control interno adicionales que estime necesaria, tendientes a lograr un uso adecuado de los vehículos.

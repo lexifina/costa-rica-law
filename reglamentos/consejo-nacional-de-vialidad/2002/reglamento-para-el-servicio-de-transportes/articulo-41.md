@@ -1,0 +1,1 @@
+Artículo 41.—Sanciones. Las infracciones al presente Reglamento serán sancionadas disciplinariamente de acuerdo a lo establecido en los Reglamentos Autónomos que se establezcan en el CONAVI, o en su defecto por el Código de Trabajo, la Ley General de Administración Pública o el Estatuto del Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 11.—Autorización para circular. Los vehículos de uso administrativo deberán contar con una autorización para circular, la cual deberán portar en todo momento, misma que será emitida por la Dirección de Administración y Finanzas.

@@ -1,0 +1,1 @@
+Artículo 30.—Informe de accidente. La Dirección de Administración y Finanzas deberá realizar un informe con respecto al accidente de tránsito, dentro de los cinco días hábiles siguientes a la fecha del percance y remitirlo a la Dirección Ejecutiva, con copia a la Auditoria.

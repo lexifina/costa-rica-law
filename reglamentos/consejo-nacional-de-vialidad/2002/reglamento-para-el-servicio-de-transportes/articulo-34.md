@@ -1,0 +1,2 @@
+Artículo 34.—Por condenatoria a terceros. El Encargado de Seguros del CONAVI, será el responsable de comunicar al responsable del accidente de Tránsito, lo correspondiente al monto adeudado.
+El Encargado de Seguros, será la persona responsable de remitir la certificación de la deuda, a la Asesoría Legal para el trámite judicial correspondiente, si en el término de ocho días hábiles, el responsable no se ha presentado a pagar o establecer arreglo de pago en la oficina administrativa que se establezca para tal efecto.
