@@ -1,0 +1,1 @@
+Artículo 20.-La comunicación de resultados podrá hacerse mediante memorando durante el desarrollo de la Auditoría o estudio especial, o por medio de un informe parcial, cuando el caso lo amerite, o al finalizar labor de campo, por medio del informe final.

@@ -1,0 +1,1 @@
+Artículo 11.-EI Auditor Interno deberá de proponer de manera justificada a la Junta Directiva General y previa coordinación con el Contralor de la última, la creación de plazas y servicios que considere indispensables para el cumplimiento de su Programa Anual de Trabajo en general, para el buen funcionamiento de su unidad.

@@ -1,0 +1,1 @@
+Artículo 9°-EI Auditor Interno organizará y dirigirá su oficina según la técnica en la materia y en la forma que considere más apropiada para el desempeño de su cometido, conforme con las disposiciones legales y reglamentarias vigentes y las disposiciones dictadas por el Reglamento Interior de Trabajo del Colegio Federado.

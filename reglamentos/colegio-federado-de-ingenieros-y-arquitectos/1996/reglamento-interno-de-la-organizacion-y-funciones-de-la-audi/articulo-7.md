@@ -1,0 +1,2 @@
+Artículo 7°-El nombramiento del Auditor Interno será por tiempo indefinido y lo hará la Junta Directiva General del Colegio Federado mediante acuerdo unánime.
+El Auditor Interno dependerá y responderá por su gestión directamente ante la Junta Directiva General coordinando sus labores a través del Contralor de la Junta Directiva General y sólo podrá ser removido del cargo por justa causa mediante acuerdo unánime de la Junta Directiva General.

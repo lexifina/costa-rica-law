@@ -1,0 +1,1 @@
+Artículo 31.-Cualquier discrepancia que pudiere presentarse en cuanto a la interpretación o aplicación de este Reglamento, así como las atribuciones y jurisdicción de la Auditoría, será resuelta por la Junta Directiva General del Colegio Federado.

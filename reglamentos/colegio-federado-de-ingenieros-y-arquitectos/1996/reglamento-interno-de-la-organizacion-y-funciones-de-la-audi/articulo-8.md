@@ -1,0 +1,1 @@
+Artículo 8°-La Auditoría Interna contará con la organización y personal asistente necesario, el cual debe de poseer suficientes conocimientos en Auditoría, contabilidad, administración y de disposiciones legales relacionadas con las actividades del Colegio Federado, que lo califiquen para ejercer en forma apropiada las funciones a él encomendadas.

@@ -1,0 +1,6 @@
+Artículo 17.-En el cumplimiento de sus obligaciones, el personal de la Auditoría Interna tendrá las siguientes prohibiciones generales:
+a) El Auditor Interno y sus subalternos no podrán ser empleados ni ejercer funciones en ninguna unidad administrativa del Colegio Federado, no ser miembro de ninguno de los Colegios que compone el Colegio Federado; así como no participar como miembro pleno de ninguna Junta Directiva, comisiones de trabajo o similares en organizaciones directa o indirectamente relacionadas con el Colegio Federado.
+b) Los funcionarios de la Auditoría Interna están impedidos de aceptar beneficios de cualquier naturaleza, de las personas, y/o dependencias sujetas a su fiscalización.
+c) Divulgar de cualquier manera la información obtenida en el ejercicio de sus funciones. Sin embargo, esta confidencialidad no se aplicará cuando haya solicitud expresa de autoridad competente.
+d) Emitir declaraciones, juicios o expresiones, que por su naturaleza, lesionen la imagen del Colegio Federado.
+e) En caso de duda sobre la naturaleza de la función o actuación del personal de la Auditoría Interna, la Junta Directiva General a través de su Contralor podrá dirimirla de oficio o a gestión de parte interesada.

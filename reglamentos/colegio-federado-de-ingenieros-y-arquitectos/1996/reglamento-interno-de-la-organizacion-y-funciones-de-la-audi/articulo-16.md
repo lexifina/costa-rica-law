@@ -1,0 +1,18 @@
+Artículo 16.-Para el acertado cumplimiento de su objeto, deberes y funciones, la Unidad de Auditoría Interna tendrá al menos, las siguientes atribuciones generales:
+a) Libre acceso, en cualquier momento y sin ningún tipo de restricción, para su examen, en 'la forma, condiciones y plazo que estime convenientes, todos los libros, valores, bienes, documentos, registros, informes, archivos computarizados, instalaciones, locales, unidades administrativas y operativas, así como otras fuentes de información relacionadas con la actividad del Colegio Federado.
+b) Solicitar de funcionarios y empleados de cualquier nivel jerárquico, la colaboración, la asesoría y las facilidades que demande el ejercicio de la labor de la Auditoría Interna.
+c) Potestad de utilizar, según las circunstancias y su criterio profesional, el tipo, las técnicas y los procedimientos de auditoría que satisfagan en mejor forma las necesidades de los exámenes y verificaciones que lleve a cabo.
+La finalidad de los procedimientos de auditoría es ser el medio o instrumento para obtener evidencia comprobatoria, suficiente y adecuada de:
+-Que las transacciones fueron debidamente analizadas, autorizadas y registradas.
+-La precisión aritmética de los registros.
+-Que el trabajo de asumir cuentas y de preparar los estados financieros fue preciso y con atención a los principios de contabilidad generalmente aceptados.
+-Si el uso de los recursos humanos, financieros y materiales fue eficiente, económico y eficaz en el logro de los objetivos y metas.
+-El cumplimiento de las disposiciones legales vigentes. Cualquier otro hecho o aspecto importante sujeto a la función de auditoría.
+d) Requerir la participación de profesionales en otras disciplinas, cuando las circunstancias lo ameriten, para que realicen labores de su especialidad durante la ejecución de las auditorías y estudios especiales.
+e) Mantener un archivo adecuado de todas las obligaciones o préstamos que suscriba el Colegio Federado por un período igual o mayor de un año, así como todos los convenios y contratos que se suscribieran. Para tal efecto anterior, la Dirección Ejecutiva o la Junta Asesora de Administración del Régimen de Mutualidad según corresponda, le enviará a la Auditoría Interna, obligatoriamente copia de todas las obligaciones o préstamos que suscriba en nombre del Colegio Federado por un período igualo mayor de un año, así como de todos los convenios y contratos que se suscribieran por parte del Colegio Federado.
+f) Asistir a las sesiones de Junta Directiva General, así como al Grupo de Trabajo Administrativo Financiero nombrado por la Junta Directiva General con voz pero sin voto en ambos casos.
+g) Pedir que conste en el acta respectiva su opinión cuando lo considere necesario.
+h) Conocer con anticipación cualquier variación de importancia en los procedimientos de contabilidad, control interno y cualquier otro establecidos por la Administración activa.
+i) Autorizar con anticipación la destrucción, venta o enajenación de cualquier activo propiedad del Colegio Federado sean estos en uso, desuso o en mal estado que la Administración activa realice, pudiendo extender en ciertos casos, autorizaciones de tipo general, debidamente reglamentadas por ella.
+j) Autorizar previamente y por escrito, después de cerciorarse que la Administración activa ha agotado todos los esfuerzos para efectuar el cobro, toda liquidación de derechos o deudas a favor del Colegio Federado, contra cuentas de gastos o contra la reserva para incobrables.
+k) Cualesquiera otras necesarias para el cumplimiento de su objeto, deberes, funciones, acordes con el ordenamiento jurídico vigente.
