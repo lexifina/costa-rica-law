@@ -14,3 +14,4 @@ Reglamento sobre el Control de la Brucelosis en los Animales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-29 | la propia norma |
+| 2 | 1999-06-29 | SINALEVI (sin norma nombrada) |
