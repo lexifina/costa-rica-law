@@ -14,3 +14,4 @@ Reglamento para el Sorteo de Premios en Especie en la Lotería Nacional.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-07-28 | la propia norma |
+| 2 | 2003-09-02 | Reglamento 32 (2003-09-02) |
