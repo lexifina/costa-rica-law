@@ -1,1 +1,2 @@
-Artículo 2º.- Rige a partir de su publicación.
+Artículo 2.- El SISTEMA DE LA INTEGRACION CENTROAMERICANA es el marco
+institucional de la Integración Regional de Centroamérica.
