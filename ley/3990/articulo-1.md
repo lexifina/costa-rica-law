@@ -1,6 +1,3 @@
-N§ 3990
-LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
-DECRETA:
 ARTÖCULO 1§- El Estado asumir la obligaci¢n de auxiliar a
 las
 v¡ctimas, viudas, hu‚rfanos y los incapacitados total o
