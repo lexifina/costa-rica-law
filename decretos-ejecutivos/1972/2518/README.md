@@ -13,3 +13,4 @@ Crea Cuerpo de Agentes de Investigación de Narcóticos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1972-09-07 | la propia norma |
+| 2 | 1992-10-21 | Decreto Ejecutivo 21661 (1992-10-21) |
