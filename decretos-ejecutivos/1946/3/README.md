@@ -13,3 +13,4 @@ Reforma Tarifa General de Fletes No 45 del Ferrocarril Eléctrico al Pacífico.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1946-02-19 | la propia norma |
+| 2 | 1946-04-09 | Decreto Ejecutivo 4 (1946-04-09) |
