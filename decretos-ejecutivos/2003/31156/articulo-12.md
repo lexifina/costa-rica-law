@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Administración y pago del impuesto
+Artículo 12.—Declaración jurada. Los contribuyentes de este impuesto estarán obligados a presentar al IDA, mensualmente, una declaración jurada, a más tardar el décimo día hábil de cada mes, mediante la cual informen de la producción vendida en el mes anterior.
+La declaración mencionada en el párrafo anterior deberá contener el siguiente detalle: producto; número de unidades; el contenido en litros, según los diferentes envases empleados por el fabricante, factor del impuesto y el monto del impuesto en colones, a los fines de que el IDA pueda verificar la exactitud de la declaración presentada en cuanto al monto a pagar en cada caso. El IDA confeccionará el formulario de declaración respectivo y lo suministrará a los contribuyentes para su cumplimiento.
+La información contenida en la mencionada declaración presentada al IDA, se basará en los mismos registros de información contable, empleados por las empresas fabricantes para la declaración y pago del impuesto específico a que se refiere el artículo 9 de la citada Ley N° 8114.

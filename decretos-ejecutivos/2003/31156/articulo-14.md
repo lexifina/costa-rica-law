@@ -1,0 +1,2 @@
+Artículo 14.—Pago del impuesto. El impuesto será pagado en la caja recaudadora del IDA o en las agencias o cajas auxiliares del Banco Central dentro de los treinta y dos días siguientes al vencimiento del mes de su venta por el fabricante.
+Cuando correspondiere, el citado Banco girará a favor del IDA el producto de la recaudación del impuesto, mediante el depósito correspondiente, en la cuenta bancaria que el citado Instituto indique.
