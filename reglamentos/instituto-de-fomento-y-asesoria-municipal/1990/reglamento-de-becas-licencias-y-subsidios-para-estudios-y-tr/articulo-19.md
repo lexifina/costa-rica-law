@@ -1,0 +1,4 @@
+SECCIÓN SEGUNDA
+Del procedimiento y adjudicación
+Artículo 19.—Todas las becas que otorgue el Instituto, deberán ser objeto de concurso por oposición, el cual será difundido por medio de un cartel que deberá ser aprobado por la Comisión o por la Junta Directiva, según corresponda. En el cartel se indicarán todos los requisitos exigidos por la Institución o por el Gobierno que ofrece la beca, así como los aportes adicionales que a juicio del IFAM procedan. La Comisión o la Junta Directiva podrán recomendar requisitos adicionales para seleccionar el candidato idóneo.
+Tratándose de becas de evidente interés institucional, la especialidad del curso y de los puestos de trabajo, la Comisión podrá obviar el trámite del concurso para actividades menores a 22 días en el interior del país. Para las que se realicen en el exterior será competencia de la Junta Directiva decidir al respecto.

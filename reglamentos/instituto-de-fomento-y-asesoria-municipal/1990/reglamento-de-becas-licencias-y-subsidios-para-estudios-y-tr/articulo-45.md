@@ -1,0 +1,1 @@
+Artículo 45.—Cuando por algún motivo se paralicen, temporalmente, las actividades docentes (en razón de huelgas, vacaciones u otras causas), el estudiante deberá reintegrarse a su trabajo habitual, siempre y cuando su ubicación geográfica lo permita.

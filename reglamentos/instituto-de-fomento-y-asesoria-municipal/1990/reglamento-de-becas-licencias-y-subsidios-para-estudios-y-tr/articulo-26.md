@@ -1,0 +1,1 @@
+Artículo 26.—El Secretario Ejecutivo confecionará y mantendrá en existencia formularios que contengan todos los datos necesarios para concursar sin que sea admitido ningún otro documento distinto de este.

@@ -1,0 +1,1 @@
+Artículo 52.—En casos calificados podrán traspasarse los derechos y obligaciones provenientes de contratos de conformidad con el artículo 55 del Estatuto de Personal. Se mantendrán vigentes las garantías otorgadas, hasta por el término respectivo.

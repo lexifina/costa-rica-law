@@ -1,0 +1,1 @@
+Artículo 28.—Las solicitudes serán acompañadas de la mayor información posible respecto a materias de estudio, títulos o grados obtenibles, duración del estudio, criterio de la jefatura debidamente razonado y otros que se consideren convenientes para que la Comisión pueda evaluar la importancia institucional que representen.

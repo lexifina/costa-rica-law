@@ -1,0 +1,1 @@
+Artículo 22.—La divulgación de un concurso para beca deberá realizarse en un tiempo no menor de cinco días hábiles. Sin embargo, cuando proveniente del exterior, se ofreciere una beca de evidente interés, la Dirección Ejecutiva, previo dictamen de la Comisión, podrá autorizar el texto del cartel respectivo y divulgarlo, acortando, en lo posible, los correspondientes términos.

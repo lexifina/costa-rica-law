@@ -1,0 +1,2 @@
+Artículo 55.—El incumplimiento de este Reglamento, por parte de los funcionarios encargados de aplicarlo, se considera falta sancionable de acuerdo con la gravedad del hecho y en relación con las normas disciplinarias.
+Este Reglamento fue aprobado mediante Acuerdo segundo, artículo 4° de la Sección Extraordinaria N° 1984, celebrada por la Junta Directiva a las 20,00 horas del día 3 de abril del año en curso.

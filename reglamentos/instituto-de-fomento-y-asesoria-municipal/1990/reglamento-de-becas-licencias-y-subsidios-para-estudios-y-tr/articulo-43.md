@@ -1,0 +1,2 @@
+Artículo 43.—En caso de enfermedad grave o muerte de un trabajador del IFAM que esté disfrutando de una beca en el exterior, el Instituto cubrirá los gastos necesarios para el regreso al lugar de residencia.
+En caso de enfermedad grave, el Instituto cubrirá los gastos ocasionados, reservándose el derecho de dejar al beneficiario a cargo de los servicios asistenciales del centro donde estudia, cuando estos fueren de tal calidad que resulte más conveniente no traerlos al país.
