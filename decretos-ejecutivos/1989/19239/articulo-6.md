@@ -1,1 +1,0 @@
-Artículo 6°.- La Dirección General de Aduanas, y la Administración de la Aduana Central en su caso, tomarán las medidas administrativas y de organización interna que sean necesarias a efecto de normalizar los controles y operaciones a cargo de la Aduana Central y la fecha en la cual empezar a funcionar.

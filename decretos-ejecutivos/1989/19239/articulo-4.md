@@ -1,1 +1,0 @@
-Artículo 4°.- Los agentes aduaneros autorizados para ejercer la correduría ante las Aduanas Principal o Nueva podrán gestionar en la Aduana Central. Asimismo deber n modificar o adecuar las cauciones a fin de quede garantizada su actuación en la Aduana Central.
