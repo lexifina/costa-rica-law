@@ -13,3 +13,4 @@ Reglamento Exportación Carne procedente de Ganado Bovino Hembra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-08-29 | la propia norma |
+| 2 | 1985-08-29 | SINALEVI (sin norma nombrada) |
