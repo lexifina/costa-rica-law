@@ -1,0 +1,1 @@
+Artículo 7°—La Dirección General Forestal del Ministerio de Agricultura y Ganadería podrá cobrar tarifas de admisión al parque y de uso de sus instalaciones. Igualmente, podrá recibir los ingresos que deban pagar los concesionarios, en base a los contratos respectivos. Estos ingresos pasarán a formar parte del Fondo Forestal.

@@ -1,0 +1,1 @@
+Artículo 4°—La pesca comercial o deportiva dentro de los límites de este Monumento Nacional, quedará sujeta a las restricciones que establezca la Dirección General Forestal del Ministerio de Agricultura y Ganadería, y que sean necesarias para proteger los recursos naturales del mismo.
