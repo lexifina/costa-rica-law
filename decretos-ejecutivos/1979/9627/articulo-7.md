@@ -1,0 +1,2 @@
+Artículo 7° Toda emisión de bonos que realicen las instituciones públicas descentralizadas deberá contar con la aprobación previa del Banco Central de Costa Rica en cuanto a la tasa de interés y la forma de colocación de los títulos.
+Para los efectos anteriores, esas instituciones deberán suministrar al Banco toda la información que les sea requerida. El Banco deberá solicitar, en cada caso, la opinión del Ministerio de Hacienda.

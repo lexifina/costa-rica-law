@@ -1,0 +1,1 @@
+Artículo 5° El Ministro de Hacienda determinará el monto y la clase de bonos que se ofrezcan con tasas diferenciales para las ventas en firme y con pacto de retroventa a plazo, estas últimas dentro de los límites que se fijen según lo establecido en el artículo 20 de la ley N°6014 de 9 de diciembre de 1976.
