@@ -1,0 +1,1 @@
+Artículo 13.—Información que deben contener los certificados. Para el reconocimiento correspondiente los certificados de capacitación deberán indicar el tipo de instrucción, la fecha en que se impartió, la duración en horas, el organismo que lo emite, las firmas y sellos correspondientes.

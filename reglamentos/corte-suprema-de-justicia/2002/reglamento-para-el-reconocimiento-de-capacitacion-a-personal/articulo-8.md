@@ -1,0 +1,1 @@
+Artículo 8º—Conformación de la Comisión Asesora. La Comisión estará conformada por el Jefe del Departamento y todos los jefes de las unidades formales existentes en este despacho. La presidencia será ejercida por el Jefe del Departamento y en su ausencia será sustituido por el Subjefe.

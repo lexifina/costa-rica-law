@@ -1,0 +1,1 @@
+Artículo 16.—Horas insuficientes. Los cursos recibidos menores al mínimo de horas establecido y los excedentes de capacitaciones anteriores, se podrán acumular para efectos de reconocimientos posteriores.

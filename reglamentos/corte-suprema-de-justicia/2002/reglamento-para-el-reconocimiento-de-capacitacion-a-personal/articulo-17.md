@@ -1,0 +1,1 @@
+Artículo 17.—Certificaciones. En los casos en que el interesado no contare con el título que acredita la capacitación, podrá presentar certificación emitida por el ente que la impartió, la cual deberá cumplir con todos los datos señalados en el artículo 13.
