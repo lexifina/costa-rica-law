@@ -1,0 +1,1 @@
+Art. 2. Desde el enunciado año de 1852, y previo aviso que publicará la Intendencia general, serán permitidas las ventas libres de este fruto, con solo las restricciones que establezca el reglamento respectivo.

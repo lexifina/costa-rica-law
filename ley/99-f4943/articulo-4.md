@@ -1,0 +1,1 @@
+Art. 4. Se concentra la destilacion de licores del pais en el edificio de los Almacenes de esta capital, que comenzará à tener efecto desde el 1° de enero del año entrante de 1851, por medio de contratistas; mas si no hubiere estos, por cuenta del erario público.
