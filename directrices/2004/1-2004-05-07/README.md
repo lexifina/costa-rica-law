@@ -14,3 +14,4 @@ Reglamenta la Organización de la Comisión Institucional de Control Interno del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-25 | la propia norma |
+| 2 | 2004-10-26 | Directriz 2 (2004-10-26) |

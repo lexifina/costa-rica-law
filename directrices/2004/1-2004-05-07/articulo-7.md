@@ -1,2 +1,3 @@
 Funciones y atribuciones
 Artículo 7º—Además de las funciones señaladas en la Directriz Nº 001-2003, la Comisión tiene también como función proponer al Ministro los lineamientos necesarios a implementar para establecer, mantener, perfeccionar y evaluar un sistema de control interno aplicable a todas las Dependencias que conforman el Ministerio, previo a lo anterior se desarrollará un programa de divulgación e implementación de la Ley de Control Interno y del Manual de Normas Generales de Control Interno para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización.
+(Derogado por el artículo 2º de la Directriz N° 002-2004 de fecha 26 de octubre del 2004).
