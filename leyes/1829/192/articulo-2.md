@@ -1,0 +1,1 @@
+2°.- Corresponde a las mismas la deliberación y acuerdos en todos los objetos que las Leyes y reglamentos del Gobierno interior de los Pueblos, les ha encargado y prevenido como de su peculiar atención y deberes.

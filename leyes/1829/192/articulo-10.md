@@ -1,0 +1,1 @@
+10°.- Quando alguno de los Alcaldes tuviese urgencia de retirarse a ocuparse de sus negocios particulares, solicitará de la Municipalidad el permiso, la que le concederá licencia por tiempo limitado y con consideración a la misma urgencia sostituyendole como previene el artículo anterior.

@@ -1,0 +1,1 @@
+6°.- Los Alcaldes Constitucionales se renovarán en el todo anualmente. Las Municipalidades que se compongan de seis individuos se renovarán por mitades cada año, saliendo uno el siguiente los dos que quedan y en uno y otro caso y mientras se establece el orden de antiguos y nuevos individuos saldrán los primeros electos.

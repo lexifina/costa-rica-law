@@ -1,0 +1,1 @@
+14°.- En cada Quartel habrán Jueces Pedanesos subalternos de los Alcaldes respectivos. El nombramiento de estos lo hará la Municipalidad en sus primeras sesiones y por el orden observado y su número será el que la misma concidere únicamente necesario.

@@ -1,0 +1,1 @@
+3°.- Las Municipalidades que según lo prevenido en el artículo primero deban componerse de seis individuos, tendrán dos Alcaldes Constitucionales con la denominación de primero y segundo, y las que se compongan de tres tendrán uno solo.
