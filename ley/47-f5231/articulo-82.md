@@ -1,0 +1,1 @@
+ARTÍCULO 82.-El Decano nombrara una comision de exámen que se compondrá por lo menos de tres individuos, incluso el Secretario de la facultad que levantar el acta de las sesiones de examen y hará los correspondientes asientos en el libro.

@@ -1,0 +1,1 @@
+ARTÍCULO 11.-Corresponde al Consejo dispensar algunas de las solemnidades exijidas en la colacion de grados, previa aprobacion del Poder Ejecutivo. Tambien corresponde al Consejo autorizar exámenes en épocas distintas de las establecidas.

@@ -1,0 +1,1 @@
+ARTÍCULO 217.-La distribucion de premios ser precedida de la memoria del Rector en que debe dar cuenta de los trabajos del colegio en el año anterior, del discurso que debe pronunciará el profesor nombrado por el Consejo y de la lectura de alguna de las composiciones presentadas por los alumnos premiados, que el Consejo de profesores juzgare digna de este honor.

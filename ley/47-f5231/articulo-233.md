@@ -1,0 +1,1 @@
+ARTÍCULO 233.-El curso de agricultura y de ramos industriales se arreglará y distribuirá en instrucción especial dada por el consejo de instrucción pública en conformidad a las órdenes que recibirá oportunamente del Poder Ejecutivo.

@@ -1,0 +1,1 @@
+ARTÍCULO 15.-En el mes de marzo de cada año, el Consejo dirijir al Ministro de Gobierno una noticia del estado de la instruccion pública de cada uno de sus ramos, de la mejoras que se le hayan introducido y de las difucultades que las hubiesen contrariado.

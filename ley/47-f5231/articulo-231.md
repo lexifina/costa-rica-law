@@ -1,0 +1,1 @@
+ARTÍCULO 231.-Los alumnos de las primeras clases, tanto del curso de humanidades, como de el de matemáticas, deberán recibir lecciones alternadas de dibujo y escritura a lo menos cuatro veces por semana.

@@ -1,0 +1,1 @@
+ARTÍCULO 33.-El que perdiere un libro deberá reponerle dentro del término que le señale el Rector, y sino le repusiere pagar el duplo del valor de la obra que perteneciere y no podrá en lo sucesivo usar de la biblioteca.

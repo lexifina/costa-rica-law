@@ -1,0 +1,1 @@
+ARTÍCULO 259.-Los alumnos, despues de determinada su enseñanza y comprobadas sus aptitudes por medio de un examen, seran destinados como instructores las principales escuelas de la República y disfrutarán de una renta proporcionada a las circunstancias peculiares de los pueblos donde fueren a servir.

@@ -1,0 +1,1 @@
+ARTÍCULO 272.-Ademas de los ex menes privados habrá uno público en el mes de diciembre de cada año, y serán convidados a presenciarle las autoridades locales, los profesores de los establecimientos literarios. y las familias en general.

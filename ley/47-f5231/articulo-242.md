@@ -1,0 +1,1 @@
+ARTÍCULO 242.-En la mañana de los fines se estudiará y explicará la constitucion política de la República, y los jueves se dará a los alumnos lecciones de moral, virtud y urbanidad en la hora prefijada para las lecciones de aritmética.

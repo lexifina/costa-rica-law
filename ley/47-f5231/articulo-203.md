@@ -1,0 +1,1 @@
+ARTÍCULO 203.-Los alumnos que no hubiesen sido aprobados en el examen del fin de año, podran presentarse en las tres primeras semanas de cuaresma para incorporarse en la clase superior correspondiente. A este mismo examen se someteran los nuevos alumnos que entraren para determinar la clase a que deben concurrir.

@@ -1,0 +1,1 @@
+ARTÍCULO 73.-Cada una de las cinco facultades de que se compone la Universidad tendrá una y mas cátedras de enseñanza, que estarán a cargo del Decano y de la persona quien eligiere la facultad, previa aprobacion del Consejo de instruccion.

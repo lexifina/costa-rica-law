@@ -1,0 +1,1 @@
+ARTÖCULO 154.-Si hubiere de darse dinero é interes, bien sea que se devuelva alguna de las sumas exhibidas y que haya algun sobrante, el Rector, unido con el tesorero, fijar el premio que debe pedirse, y el último, como único responsable, exijir la fianza y las demas seguridades necesarias.

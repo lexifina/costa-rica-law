@@ -1,0 +1,1 @@
+ARTÍCULO 140.-Cada profesor pasara al Rector mensualmente un estado de los alumnos de su clase, distribuyéndolos segun su conducta, aplicacion, aprovechamiento y talento, anotando el nombre de aquellos, cuya mala conducta, desaplicacion e incapacidad para el estudio fuere manifestada.
