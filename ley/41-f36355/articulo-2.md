@@ -15,3 +15,5 @@ ll) - Los actos ejecutivos y administrativos que sean objeto de una declaratoria
 m)-La ley N° 5 de 31 de julio de 1917 que adiciona el artículo 12 de la Ley Orgánica de Tribunales, y el decreto N° 4 de 21 de agosto de 1917, que crea fondos para el Asilo de Corrección de Menores;
 n)- Los decretos de pensión dados en el período administrativo a, que se concreta esta ley a favor de servidores del Estado o deudos de los mismos;
 ñ)-Los actos del Poder Ejecutivo referentes a permisos para aceptar condecoraciones, títulos honoríficos y funciones diplomáticas y consulares, y los de emancipación de menores y cartas de naturalización.
+o) El Decreto Legislativo Nº 28 de 24 de julio de 1918, que confirió el título de Ciudad a las siguientes Villas: Naranjo, Atenas, Palmares, Orotina y Zarcero, de la provincia de Alajuela; Nicoya, de la provincia de Guanacaste; y Barba, de la provincia de Heredia.
+(Así adicionado el inciso anterior, por el artículo 1° de la Ley N° 4399 de 4 de setiembre de 1969).
