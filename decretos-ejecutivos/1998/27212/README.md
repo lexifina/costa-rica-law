@@ -15,3 +15,4 @@ Declara Refugio de Vida Silvestre de propiedad privada Jaguarundi los inmuebles 
 | --- | --- | --- |
 | 1 | 1998-08-18 | la propia norma |
 | 2 | 2003-07-01 | Decreto Ejecutivo 31284 (2003-05-27) |
+| 3 | 2004-08-09 | Decreto Ejecutivo 32200 (2004-08-09) |
