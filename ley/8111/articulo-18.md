@@ -1,0 +1,1 @@
+Artículo 18.—Derogaciones. Esta Ley deroga todas las disposiciones legales vigentes contrarias a ella. No deroga la Sección I del Capítulo III de la Ley General de Salud, Nº 5395, del 30 de octubre de 1973, ni cualquier otra norma general sobre vacunación que establezca ese cuerpo normativo.

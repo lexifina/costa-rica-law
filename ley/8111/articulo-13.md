@@ -1,0 +1,1 @@
+Artículo 13.—Día nacional de vacunación. Como parte de las celebraciones del Día Mundial de la Salud, se declara el 7 de abril de cada año Día Nacional de la Vacunación, especialmente dirigido a inmunizar a los niños menores de siete años.

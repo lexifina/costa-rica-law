@@ -1,0 +1,1 @@
+Artículo 2º—Gratuidad y acceso efectivo. Garantízase a toda la población la obligatoriedad y gratuidad de las vacunas, así como el acceso efectivo a la vacunación, en especial, para la niñez, los inmigrantes y los sectores ubicados por debajo del índice de pobreza.

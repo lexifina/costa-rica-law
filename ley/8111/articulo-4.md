@@ -1,0 +1,1 @@
+Artículo 4º—Creación y naturaleza jurídica de la Comisión Nacional de Vacunación y Epidemiología. Créase la Comisión Nacional de Vacunación y Epidemiología, adscrita al Ministerio de Salud, como órgano con desconcentración máxima y personalidad jurídica instrumental.
