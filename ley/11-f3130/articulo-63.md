@@ -1,1 +1,1 @@
-Artículo 63.-Los libros de la Superintendencia estarán a la disposición del público durante las horas que señalen al efecto, y el personal de la oficina se abstendrá en absoluto de intervenir en los estudios que cualquier interesado desee efectuar, para lo cual será indispensable que los libros e índices respectivos ofrezcan la mayor claridad.
+Artículo 63.-(Derogado por el artículo único de la Ley N° 2 del 19 de setiembre de 1940).

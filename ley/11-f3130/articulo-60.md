@@ -1,1 +1,1 @@
-Artículo 60. -Las resoluciones de la Superintendencia en materia de seguros, deben contener una relación detallada de hechos y los considerándoos pertinentes.
+Artículo 60. -(Derogado por el artículo único de la Ley N° 2 del 19 de setiembre de 1940).

@@ -1,1 +1,1 @@
-Artículo 55 .-Uno de dichos interventores se dedicará al seguro contra incendio de los inmuebles de la capital; otro al seguro contra incendio sobre las existencias, mueblaje y maquinaria de establecimientos de comercio o empresas industriales de la capital; y el tercero a los seguros de igual género que se realicen en el resto del país sobre inmuebles y muebles.
+Artículo 55 .-(Derogado por el artículo único de la Ley N° 2 del 19 de setiembre de 1940).

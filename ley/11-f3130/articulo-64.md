@@ -1,2 +1,2 @@
 DEL REGISTRO DE PÓLIZAS DE SEGUROS
-Artículo 64. -Se establece en la ciudad de San José un Registro de Pólizas de Seguros, bajo la dirección y responsabilidad del Superintendente de Seguros.
+Artículo 64. -(Derogado por el artículo único de la Ley N° 2 del 19 de setiembre de 1940).
