@@ -1,0 +1,1 @@
+Transitorio I. – Los servidores regulares que no se acojan al beneficio de la Dedicación Exclusiva, conservarán los sobresueldos por este Decreto derogados y que a su entrada en vigencia venían percibiendo, los que conservarán mientras subsistan las causas y condiciones jurídicas que les dieron origen.

@@ -1,0 +1,1 @@
+Artículo 3° ---. El presente Decreto rige a partir del curso lectivo de 1993, excepto para quienes suscriban con anterioridad contrato para acogerse al beneficio de la Dedicación Exclusiva, de conformidad con las resoluciones de la Dirección General, números DG-056-91, DG-080-92, y DG-132-92, a quienes se le suprimirá dichos sobresueldos a partir de la firma de dichos contratos.
