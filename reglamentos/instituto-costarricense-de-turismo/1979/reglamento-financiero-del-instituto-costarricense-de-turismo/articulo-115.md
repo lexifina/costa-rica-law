@@ -1,2 +1,2 @@
-Artículo 114.—Aprobado por Junta Directiva en sesión No3016, artículo 2°, inciso 2° de fecha lunes 24 de setiembre de 1979, deroga a su vez el aprobado por Junta Directiva en Sesión No 2935, artículo 4°, inciso 3° de fecha lunes 4 de diciembre de 1979 y todos los acuerdos que se opongan.
-Rige a partir de su publicación en el Diario Oficial.
+Artículo 115.—Se establece el fondo de Caja Chica Nº 7 que operará en la Dirección de Recreación, con un fondo fijo de c5.000,00 (cinco mil colones).
+(Así ADICIONADO mediante Sesión de Junta Directiva Nº 3248 del 1º de febrero de 1982, publicada en la Colección de Leyes y Decretos de 1982, Semestre 1, Tomo 2, página 74.)
