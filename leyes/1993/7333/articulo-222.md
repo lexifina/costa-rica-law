@@ -1,23 +1,6 @@
-ARTICULO 222.- En el primer caso del artículo 219 se impondrá, de
-plano, la corrección disciplinaria; en el segundo caso, el funcionario o
-tribunal hará constar en los autos, de forma lacónica, la falta cometida
-y, a continuación, dictará la resolución en la que impondrá la multa. En
-ambos casos regirán, respecto de la multa, en lo que fueren aplicables,
-las disposiciones del artículo anterior.
-En todos los casos en los que como corrección disciplinaria se
-imponga una multa, firme la resolución correspondiente, se concederá al
-interesado un plazo de tres días para que la pague o deposite a la orden
-del Colegio de Abogados, conforme lo establece su Ley Orgánica. Si no lo
-hiciere, una vez vencido ese plazo y sin necesidad de una nueva
-resolución que así lo declarare, las consecuencias serán las siguientes:
-a) El profesional en Derecho quedará suspendido en el ejercicio de
-la profesión durante el tiempo que esté sin cancelar la multa, lo que se
-comunicará tanto al Colegio de Abogados como a la Corte Suprema de
-Justicia, para que tomen nota y realicen la publicación correspondiente.
-b) En cuanto a los que no fueren profesionales en Derecho, se
-comunicará a la alcaldía respectiva para que la haga descontar con
-prisión, a razón de cien colones por día. Si no lo hiciere, una vez
-vencido ese plazo y sin necesidad de nueva resolución que así lo declare,
-la falta de pago de la multa se convertirá en razón de un día de prisión
-por día multa, lo que ejecutará el funcionario o tribunal que la hubiere
-impuesto.
+ARTICULO 222.- En el primer caso del artículo 219 se en el segundo caso, el funcionario o tribunal hará constar en los autos, de forma lacónica, la falta cometida y, a continuación, dictará la resolución en la que impondrá la multa. En ambos casos regirán, respecto de la multa, en lo que fueren aplicables, las disposiciones del artículo anterior.
+(Mediante resolución de la Sala Constitucional N° 11596 del 9 de noviembre de 2001, se anuló del párrafo anterior el enunciado que disponía: “impondrá de plano la corrección disciplinaria”)
+En todos los casos en los que como corrección disciplinaria se imponga una multa, firme la resolución correspondiente, se concederá al interesado un plazo de tres días para que la pague o deposite a la orden del Colegio de Abogados, conforme lo establece su Ley Orgánica. Si no lo hiciere, una vez vencido ese plazo y sin necesidad de una nueva resolución que así lo declarare, las consecuencias serán las siguientes:
+a) El profesional en Derecho quedará suspendido en el ejercicio de la profesión durante el tiempo que esté sin cancelar la multa, lo que se comunicará tanto al Colegio de Abogados como a la Corte Suprema de Justicia, para que tomen nota y realicen la publicación correspondiente.
+b) En cuanto a los que no fueren profesionales en Derecho, se comunicará a la alcaldía respectiva para que la haga descontar con prisión, a razón de cien colones por día.
+Si no lo hiciere, una vez vencido ese plazo y sin necesidad de nueva resolución que así lo declare, la falta de pago de la multa se convertirá en razón de un día de prisión por día multa, lo que ejecutará el funcionario o tribunal que la hubiere impuesto.
