@@ -1,6 +1,1 @@
-ARTICULO 43.- Las personas físicas o jurídicas que se dediquen a la
-explotación o a la industrialización de productos vivos del mar o de la
-acuacultura, deberán suministrar al Instituto información actualizada,
-para que éste pueda establecer un modelo de costos de la actividad
-exportadora de los productos pesqueros y de otros que considere
-convenientes.
+ARTICULO 43.- Las personas físicas o jurídicas que se dediquen a la explotación o a la industrialización de productos vivos del mar o de la acuacultura, deberán suministrar al Instituto información actualizada, para que éste pueda establecer un modelo de costos de la actividad exportadora de los productos pesqueros y de otros que considere convenientes.
