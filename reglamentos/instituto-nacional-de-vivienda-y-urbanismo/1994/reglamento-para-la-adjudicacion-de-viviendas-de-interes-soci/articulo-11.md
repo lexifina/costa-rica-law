@@ -1,0 +1,2 @@
+Artículo 11.—Para efectuar cambios, arreglos o alteraciones en la construcción, los adjudicatarios deberán contar con la anuencia previa y por escrito del Instituto. Las mejoras en la vivienda no confieren, al adjudicatario, derecho alguno de condominio o accesión.
+El Instituto tiene el derecho de inspeccionar las viviendas, mientras no haya fenecido, en su totalidad la deuda y podrá exigir que el adquirente repara los daños causados en las construcciones, por motivos ajenos a la acción del tiempo y a otros factores similares.

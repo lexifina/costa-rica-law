@@ -1,0 +1,1 @@
+Artículo 14.—La certificación que emite el Jefe de la Contabilidad, respecto del atraso en el pago de las cuotas y copia certificada del contrato de adjudicación, servirán como plena prueba para justificar el desahucio por falta de pago, según artículo cuarenta y cuatro. Ley 188 del 24 de agosto de 1954. En los demás casos previstos, servirá como base, el acto final firme.

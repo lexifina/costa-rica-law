@@ -1,0 +1,1 @@
+Artículo 6°—El precio de las viviendas adjudicadas en venia, será aprobado por Junta Directiva, previa propuesta de la Gerencia, quien fijará el plazo máximo de cancelación, tipo de interés y demás condiciones de la adjudicación.

@@ -1,0 +1,1 @@
+Artículo 15.—Este reglamento, como las demás disposiciones legales y reglamentarias, que rigen al Instituto en la materia, se considerarán tácitamente incluidas en el contrato respectivo y aceptadas por los adjudicatarios.

@@ -1,0 +1,1 @@
+Artículo 13.—En caso de revocación, el Instituto, únicamente, devolverá las cuotas extraordinarias pagadas y solo reconocerá las mejoras autorizadas, previo estudio de los Departamentos de Cobros y Administración de Bienes del Instituto.

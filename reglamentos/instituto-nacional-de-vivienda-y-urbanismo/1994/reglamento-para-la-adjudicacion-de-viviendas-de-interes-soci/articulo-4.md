@@ -1,0 +1,1 @@
+Artículo 4°—La solicitud de renovación o cambio de representante, se hará mediante escrito, debidamente firmado por los representantes, según el articulo anterior y autenticado por un abogado, cubriendo el interesado, el costo de los gastos administrativos de la tramitación.

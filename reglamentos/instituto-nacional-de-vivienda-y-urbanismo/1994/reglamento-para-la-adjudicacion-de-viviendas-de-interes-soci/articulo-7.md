@@ -1,0 +1,1 @@
+Artículo 7°—Además de las cuotas mensuales de intereses y amortización, los adjudicatarios serán responsables del pago de los servicios municipales y el mantenimiento de su vivienda. Además estarán obligados al pago de las pólizas de incendio y de la colectiva de vida, la cual cubre los saldos adeudados que se establezcan.
