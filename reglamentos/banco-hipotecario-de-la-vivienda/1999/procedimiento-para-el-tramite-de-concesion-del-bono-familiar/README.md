@@ -14,3 +14,4 @@ Procedimiento para el Trámite de Concesión del Bono Familiar de Vivienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-16 | la propia norma |
+| 2 | 2000-01-27 | Reglamento 5 (2000-01-27) |

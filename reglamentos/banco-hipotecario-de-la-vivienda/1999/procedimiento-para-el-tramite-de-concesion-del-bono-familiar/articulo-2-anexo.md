@@ -1,9 +1,9 @@
 ANEXO No. 2
 Sobre el proceso de envío de casos para emisión
-Cada vez que la entidad autorizada realice la remisión de un grupo de casos para que el BANHVI proceda a su emisión, deberá enviar:
-Disquete y reporte generado en Paradox, con la información de los casos correspondientes.
-Expedientes originales de los casos remitidos, foliados en forma consecutiva.
-Reporte de expedientes enviados, con la siguiente información:
+1. Cada vez que la entidad autorizada realice la remisión de un grupo de casos para que el BANHVI proceda a su emisión, deberá enviar:
+a. Disquete y reporte generado en Paradox, con la información de los casos correspondientes.
+b. Expedientes originales de los casos remitidos, foliados en forma consecutiva.
+c. Reporte de expedientes enviados, con la siguiente información:
 Nombre de la Entidad Autorizada.
 Número de lote de referencia (Número de lote generado en PARADOX).
 Nombre y número de cédula de los solicitantes.
@@ -40,13 +40,64 @@ DESCRIPCION | LOTE | LOTE CONST | CONST | VIVIENDA EXISTENTE | REPAR AMPLIAC MEJ
 17. Formulario Declaración Jurada (Formulario BANHVI 2-99) para uso exclusivo de la Entidad Autorizada. | X | X | X | X | X
 NOTA: Todos los requisitos antes citados y el avalúo de la propiedad que se dará en garantía, conformarán el expediente físico de la operación. La información en cada caso, deberá remitirse foliada, en un folder con prensa, indicando en la carátula del expediente: el nombre del postulante, su número de cédula y el nombre de la Entidad Autorizada. En el caso del avalúo, además del valor estimado del inmueble, deberá contener el criterio pericial con opinión sobre la vulnerabilidad del inmueble (condiciones topográficas, inundaciones, deslizamientos, rellenos).
 INFORMACION SOBRE ALGUNOS ALCANCES DE LOS REQUISITOS
-En caso de separación de hecho, estudio de bienes del cónyuge.
-En casos de constancias de ingreso para solicitantes con actividades propias, la entidad solicitará que sea emitida por un contador público o privado. Toda constancia deberá indicar el salario bruto y neto. Queda a criterio de la Entidad, aplicar algún mecanismo que le permita verificar el monto de ingresos reportados.
-El presupuesto de obras debe estar desglosado por actividad unitaria, con costos unitarios y totales por actividad.
-En el caso de entidades que tengan registrados ante el BANHVI planos constructivos prototipo, se avalará la presentación de un formato en hoja tamaño carta, conteniendo al menos la planta de distribución arquitectónica, la fachada principal; el nombre, número de carnet CFIA, y la firma del profesional responsable y referencia del plano prototipo a utilizar. En el documento de tasación se tendrá que indicar claramente la utilización del prototipo.
-En aquellos casos donde los solicitantes poseen otros bienes, se deberán adjuntar los estudios complementarios realizados por el perito de la entidad autorizada, que describan las características de dichas propiedades, la factibilidad técnica de construir en ellas, la existencia de vivienda en condiciones habitables y la utilización que se les da al momento de efectuar la evaluación.
-En aquellos casos donde el núcleo familiar sea atípico. Únicamente se podrán tramitar expedientes de "Unión de hecho" cuando los convivientes no se encuentren vinculados por un matrimonio anterior, esto por cuanto la ley no reconoce derechos a las parejas que conviven en Unión de Hecho con impedimento para contraer matrimonio.
-Cuando el beneficiario no tiene firma registrada, lo pueda hacer ¨a ruego¨ ante un funcionario de la Entidad Autorizada y dos testigos.
+1. En caso de separación de hecho, estudio de bienes del cónyuge.
+2. En casos de constancias de ingreso para solicitantes con actividades propias, la entidad solicitará que sea emitida por un contador público o privado. Toda constancia deberá indicar el salario bruto y neto. Queda a criterio de la Entidad, aplicar algún mecanismo que le permita verificar el monto de ingresos reportados.
+3. El presupuesto de obras debe estar desglosado por actividad unitaria, con costos unitarios y totales por actividad.
+4. En el caso de entidades que tengan registrados ante el BANHVI planos constructivos prototipo, se avalará la presentación de un formato en hoja tamaño carta, conteniendo al menos la planta de distribución arquitectónica, la fachada principal; el nombre, número de carnet CFIA, y la firma del profesional responsable y referencia del plano prototipo a utilizar. En el documento de tasación se tendrá que indicar claramente la utilización del prototipo.
+5. En aquellos casos donde los solicitantes poseen otros bienes, se deberán adjuntar los estudios complementarios realizados por el perito de la entidad autorizada, que describan las características de dichas propiedades, la factibilidad técnica de construir en ellas, la existencia de vivienda en condiciones habitables y la utilización que se les da al momento de efectuar la evaluación.
+6. En aquellos casos donde el núcleo familiar sea atípico. Únicamente se podrán tramitar expedientes de "Unión de hecho" cuando los convivientes no se encuentren vinculados por un matrimonio anterior, esto por cuanto la ley no reconoce derechos a las parejas que conviven en Unión de Hecho con impedimento para contraer matrimonio.
+7. Cuando el beneficiario no tiene firma registrada, lo pueda hacer ¨a ruego¨ ante un funcionario de la Entidad Autorizada y dos testigos.
+(Nota: Aclarado mediante acuerdo de Junta Directiva, sesión 5-2000 del 27 de enero de 2000, el cual dispuso lo siguiente:
+"ACLARACIONES AL FORMULARIO BANHVI 1-99
+Formulario BANHVI 1-99
+REQUISITOS POSTULACION BONO FAMILIAR VIVIENDA
+| PROPÓSITO
+DESCRIPCION | LOTE | LOTE CONST | CONST | VIVIENDA EXISTENTE | REPAR AMPLIAC MEJOR
+Opción de Compra-venta (dación-traspaso) mínimo 90 días. | SI | SI | NO APLICA | SI | NO APLICA
+Plano Catastrado de la Propiedad con visado Municipal. | SI | SI | SI | SI | SI
+Fotocopia Escritura de la Propiedad a ser ofrecida en garantía o Estudio Registral de la misma, con un visto bueno de un Notario. | SI | SI | SI | SI | SI
+Impuestos sobre Bienes Inmuebles o que no es contribuyente. | SI | SI | SI | SI | SI
+Fotocopias Cédulas de Identidad (todos los mayores de edad del núcleo familiar). | SI | SI | SI | SI | SI
+Constancia Original de Nacimiento Menores de Edad (si existen) o fotocopia certificada. | SI | SI | SI | SI | SI
+Certificado Estado Civil ( Registro Civil ó Declaración Jurada ante Notario Público) | SI | SI | SI | SI | SI
+Cuando el núcleo familiar es atípico, certificación del PANI, ó Juzgado de Familia, ó estudio de un Trabajador Social cuando se considere necesario. | SI | SI | SI | SI | SI
+Certificación de ingresos reportados a la CCSS de los últimos tres meses, para los componentes del núcleo familiar mayores de edad. | SI | SI | SI | SI | SI
+Constancia de Salario de las personas que devengan ingresos en el núcleo familiar (en el caso de que no sean cotizantes de la C.C.S.S): 3 meses. | SI | SI | SI | SI | SI
+Constancia INVU de que no son adjudicatarios de vivienda (todos los mayores de edad): 6 meses. | SI | SI | SI | SI | NO APLICA
+Constancia IMAS de que no son adjudicatarios de vivienda (todos los mayores de edad): 6 meses. | SI | SI | SI | SI | NO APLICA
+Certificación de Bienes (Registro Nacional de la Propiedad) mayores de edad o bien, estudio registral obtenido vía modem con el criterio legal respectivo. | SI | SI | SI | SI | SI
+Estudios Registrales de otras propiedades (si existen) | SI | SI | SI | SI | SI
+Plano Construcción o croquis si es reparación, ampliación o mejoras, firmado por un Ingeniero Civil o Arquitecto debidamente inscrito en el CFIA. | NO APLICA | SI | SI | NO APLICA | SI
+Presupuesto Construcción firmado por un profesional responsable (Ingeniero Civil, Arquitecto). | NO APLICA | SI | SI | NO APLICA | SI
+Formulario Declaración Jurada (Formulario BANHVI 2-99) para uso exclusivo de la Entidad Autorizada. | SI | SI | SI | SI | SI
+NOTA: Todos los requisitos antes citados y el avalúo de la propiedad que se dará en garantía, conformarán el expediente físico de la operación. La información en cada caso, deberá remitirse foliada, en un folder con prensa, indicando en la carátula del expediente: el nombre del postulante, su número de cédula y el nombre de la Entidad Autorizada. En el caso del avalúo, además del valor estimado del inmueble, deberá contener el criterio pericial con opinión sobre la vulnerabilidad del inmueble (condiciones topográficas, inundaciones, deslizamientos, rellenos).
+1. Se requiere para solicitantes que no sean propietarios del inmueble. Adjuntar fotocopia de la cédula del vendedor. Se acepta también la autenticación de ésta por un abogado. Esta opción de venta deberá tener una vigencia no menor a tres meses.
+2. Si el visado no es exigido por la municipalidad del lugar, el solicitante deberá adjuntar nota municipal con esa razón.
+3. Se puede presentar informe registral o certificación registral o bien una certificación notarial (estudio registral), a juicio del beneficiario. Estas certificaciones no deberán tener antigüedad mayor a tres meses al momento de su presentación a la Entidad Autorizada respectiva.
+4. Certificación emitida por la Municipalidad del lugar de que la propiedad está al día en el pago de los impuestos correspondientes. Esta certificación no deberá tener una antigüedad mayor a tres meses al momento de su presentación a la Entidad Autorizada.
+5. En el caso de extranjeros, con una situación migratoria permanente debidamente legalizada, deberá aportar fotocopia del documento que acredite su permanencia legal en Costa Rica. El documento original deberá presentarse solamente para cotejar la validez de la fotocopia y se devolverá en el acto. Este documento debe estar vigente al momento de la formalización.
+6. Si el solicitante aporta fotocopia certificada de las constancias de nacimiento de los menores de edad, esta certificación deberá ser realizada por un Notario. Estos documentos, ya sea original o fotocopias no tienen vencimiento.
+7. La certificación original o fotocopias certificadas por Notario, del estado civil de los mayores de 15 años del núcleo familiar. Estos documentos no deberán tener una antigüedad mayor a tres meses a la fecha de su presentación a la Entidad Autorizada.
+8. Se define como núcleo típico, el conjunto familiar igual o mayor de dos personas, que por sus relaciones de parentesco conviven bajo un mismo techo, en los términos que indica el artículo 2, inciso h) del Reglamento de Operaciones del Sistema Financiero Nacional para la Vivienda.
+Los núcleos familiares que no cumplan lo aquí establecido se consideran atípicos y para optar por el Bono Familiar de Vivienda, requerirán aportar estudio de un trabajador social debidamente colegiado, ya sea de las instituciones del Estado o en ejercicio liberal de su profesión.
+Ejemplos de núcleo típico:
+a. Cónyuges entre sí, solos o con sus hijos.
+b. Unión de hecho entre sí, solos o con sus hijos
+c. Madre o Padre, solos, o con sus hijos.
+Ejemplos de núcleo atípico:
+a. Tíos conviviendo con sobrinos
+b. Abuelos conviviendo con nietos
+c. Primos conviviendo entre sí.
+d. Hermanos conviviendo entre sí.
+Nota:
+El núcleo atípico, puede optar por el Bono Familiar de Vivienda, con el único requisito adicional de probar que su conformación es verdadera y no simulada, para lo cual se exige el estudio de un trabajador social que así lo establezca.
+9. La certificación de la C.C.S.S. de los ingresos reportados, deberá abarcar los ingresos de al menos tres de los últimos seis meses, previos a la solicitud del Bono Familiar de Vivienda. La vigencia de esta certificación no deberá tener una antigüedad mayor a tres meses al momento de su presentación ante la Entidad Autorizada.
+10. Este requisito sólo se exige cuando la certificación de la C.C.S.S. establece que no tiene ingresos reportados. En este caso el solicitante deberá aportar constancia de los ingresos brutos y netos emitida por un Contador Público o Privado. Esta constancia no deberá tener una antigüedad mayor a tres meses al momento de su presentación ante Entidad Autorizada.
+11. La constancia del INVU de que no es ni ha sido adjudicatario de vivienda, aplica para el solicitante y los mayores de edad del núcleo familiar. Esta constancia no deberá tener una antigüedad mayor a tres meses al momento de su presentación ante la Entidad Autorizada.
+12. La certificación de Bienes Inmuebles del Registro de la Propiedad o el estudio registral vía módem con el visto bueno de Notario, deberá ser de los miembros del núcleo familiar solicitantes del Bono Familiar de Vivienda. Esta certificación no deberá tener una antigüedad mayor a tres meses al momento de su presentación ante la Entidad Autorizada.
+13. Si en el caso anterior, aparecen inscritas otras propiedades inmuebles a nombre de alguno de los miembros del núcleo familiar, se deberá adicionar el estudio registral correspondiente a esa persona y aplicarse lo dispuesto en el artículo 8 del Reglamento de Operaciones del Sistema Financiero Nacional para la Vivienda, si fuese procedente.
+15 y 16. Los planos, croquis y presupuestos deberán ser firmados por un profesional inscrito en el Colegio Federado de Ingenieros y Arquitectos con la facultad legal para realizarlo.
+Nota: La vigencia de todos los requisitos aquí descritos, empezará a regir a partir de la fecha de entrega por parte del beneficiario a la Entidad Autorizada de la totalidad de los documentos requeridos, para lo cual deberá quedar constancia en el expediente mediante sellado con fecha en los mismos.")
 FORMULARIO BANHVI 3-99
 Formulario para solicitar financiamiento de proyectos
 al amparo del Artículo 59, Ley 7052 y sus Reformas
@@ -91,7 +142,7 @@ VALORES UNITARIOS
 Precio del m2 en verde: | ¢ | Área total de las zonas verdes: | m2
 Precio de m2 del lote urbanizado: | ¢ | Área total zonas comunales: | m2
 Precio del m2 de construcción: | ¢ | Área total zonas comerciales: | m2
-Área de aprovechamiento = (área lotes urbanizables + área de lotes comerciales) =___________ Área total del terreno | %
+Área de aprovechamiento = (área lotes urbanizables + área de lotes comerciales) =_ Área total del terreno | %
 Nota: Se considera aprovechamiento óptimo un valor mayor de 60% de utilización de terreno. La aceptación de terrenos con un aprovechamiento menor a un 50% deberá estar justificado mediante certificación de un profesional de la Unidad Técnica del MIVAH.
 CRONOLOGÍA DEL PROYECTO
 .
