@@ -1,0 +1,5 @@
+DECRETO LXI
+Aprueba los actos del Poder Ejecutivo constantes en In Memoria presentada por el Ministro de Hacienda, Guerra y Marina.
+"Juan Rafael Mora Presidente de la República de Costa Rica, -Por cuanto el Excelentísimo Congreso Constitacional ha decretado lo siguiente.
+El Excelentísimo Congreso Constitucional de la República de Costa Rica, despues de haber examinado la Memeria con que et Señor Ministro de Hacienda, Guerra v Marina dió cuenta del estado de los negocios concernientes à los departamentos de su cargo, decreta:
+Art. unico. Se aprueban tolos los actos del Poder Ejecutivo constantes en la Memoria presentada pOr el Señor Ministro de Hacienda, Guerra y Marina en 18 de mayo proximo pasado. Al Poder Ejecutivo. -Dado en el Palacio de los Supremos Poderes en San José, á los cuatro dias del mes de junio de mil ochocientos cincuenta y dos.-Francisco Maria Oreamuno, Presidente. - Bruno Carranza, Secretario, José Maria Garcia, Secretario. -Por tanto: EJECUTESE. Palacio Nacional, San José junio ocho de mil ochocientos cincuenta y dos.-Juan Rafael Mora, El Ministro de Estado en el Despacho de Hacienda, Guerra y Marina, Manuel José Carazo."
