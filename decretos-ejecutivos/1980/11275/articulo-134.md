@@ -1,3 +1,0 @@
-Artículo 134.—El Fondo tiene por objeto, auxiliar a los miembros del Colegio Federado. Su fin primordial es auxiliar por una sola vez a los beneficiarios y herederos del miembro colegiado fallecido, por la suma de quinientos setenta y cinco mil colones (575.000,00).
-(Así REFORMADO PARCIAL Y TÁCITAMENTE por el artículo 1° del Decreto Ejecutivo N° 27348 de 28 de agosto de 1998, publicado en La Gaceta N° 199 de 14 de octubre de 1998, el cuál reformó el Decreto Ejecutivo N° 13859 que adicionaba el presente artículo.)
-(Así REFORMADO PARCIAL Y TÁCITAMENTE por el artículo 1° del Decreto Ejecutivo N° 28513 de 11 de febrero de 2000, publicado en La Gaceta N° 55 de 17 de marzo de 2000, el cuál reformó el Decreto Ejecutivo N° 13859 que adicionaba el presente artículo.)
