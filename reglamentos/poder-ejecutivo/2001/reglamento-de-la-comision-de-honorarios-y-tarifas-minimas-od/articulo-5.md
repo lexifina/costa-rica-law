@@ -1,0 +1,1 @@
+Artículo 5º—Para establecer las tarifas deberán fijarse parámetros con la asesoría de profesionales que conozcan esta materia y en especial deberá contarse con la asesoría de profesionales en contabilidad y en administración.
