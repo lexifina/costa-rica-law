@@ -1,0 +1,1 @@
+Artículo 20.—El Jurado emitirá el fallo en la segunda semana del mes de noviembre de cada año y lo comunicará al Ministro, quien lo dará a conocer a la Dirección de los Centros Educativos con 8 días hábiles previos a la entrega de los premios.

@@ -1,0 +1,1 @@
+Artículo 25.—La premiación de los/las ganadores/as del Concurso se efectuará en una ceremonia pública, a la cual se invitarán todas las personas participantes, mediante comunicación a la Dirección del Centro Educativo correspondiente. Esta actividad se realizará en la primera semana del mes de diciembre.

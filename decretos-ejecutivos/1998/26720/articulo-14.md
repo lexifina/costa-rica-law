@@ -1,0 +1,1 @@
+Artículo 14.—La Secretaría de la O.M.M. conservará las copias de comprobantes de recepción de los trabajos de los/las concursantes y entregará al Jurado todo el material recibido dentro de los 8 días hábiles siguientes.

@@ -1,0 +1,1 @@
+Artículo 16.—El Centro solicitará en la primera semana de enero de cada año a las entidades señaladas en el artículo anterior, la designación de dos personas para la integración del Jurado; una representante propietaria y otra suplente.
