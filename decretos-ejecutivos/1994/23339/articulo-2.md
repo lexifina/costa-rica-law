@@ -1,0 +1,1 @@
+Artículo 2°—La Dirección General de Museos del Ministerio de Cultura, Juventud y Deportes, le brindará asesoría profesional y apoyo financiero de acuerdo con sus posibilidades, de común acuerdo con el Ministerio de Educación Pública y un representante de la Comisión Nacional de Conmemoraciones Históricas.
