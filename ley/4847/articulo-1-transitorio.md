@@ -1,2 +1,0 @@
-Transitorio.- Las informaciones posesorias que hubieren sido presentadas a los juzgados al 8 de setiembre en curso, continuarán tramitándose hasta su terminación.
-(La Corte Plena en sesión extraordinaria N° 52 celebrada el 02 de noviembre de 1972, publicada en el Boletín Judicial N° 215 del 03 de noviembre de 1972, acordó por unanimidad, declarar que este transitorio es contrario al artículo 34 de la Constitución Política “únicamente en cuanto retrotrae sus efectos al 8 del mes de setiembre inmediato anterior”, en ese aspecto se declaró inaplicable)
