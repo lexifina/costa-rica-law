@@ -14,3 +14,4 @@ Crea la comisión de Presupuesto Institucional del MAG como instancia asesora en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-04 | la propia norma |
+| 2 | 2002-08-14 | Decreto Ejecutivo 30804 (2002-08-14) |
