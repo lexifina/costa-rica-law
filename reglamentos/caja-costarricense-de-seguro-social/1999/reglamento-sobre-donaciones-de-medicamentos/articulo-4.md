@@ -1,0 +1,1 @@
+Artículo 4°-Las donaciones internas y las donaciones externas se manejarán de conformidad con los procedimientos que se describen en éste reglamento, en el entendido que todas se aceptarán en forma centralizada. Deben ser entregadas en el Almacén General para ser incorporadas en los sistemas contables e ingreso de mercadería.

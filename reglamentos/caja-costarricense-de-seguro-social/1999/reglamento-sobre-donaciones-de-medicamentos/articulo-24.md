@@ -1,0 +1,1 @@
+Artículo 24°.-La estabilidad del medicamento a su entrada al país será por seis meses para aceptarse, ya que se destina a un desastre cuya resolución está en el tiempo que el medicamento esté vigente. La vigilancia de fechas de vencimiento siempre debe ser estricta.

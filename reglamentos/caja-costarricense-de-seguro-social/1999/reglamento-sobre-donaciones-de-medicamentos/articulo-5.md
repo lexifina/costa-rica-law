@@ -1,0 +1,1 @@
+Artículo 5°-La Gerencia División Médica define la entrega o prioridades de acuerdo con la necesidad, como una acción solidaria a la zona comprometida basada en la información mencionada en el Artículo VIII.

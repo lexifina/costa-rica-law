@@ -1,0 +1,1 @@
+Artículo 27°.-Todos los gastos en que incurriera la donación a saber, de transporte internacional, local, depósitos, custodia, despacho de aduana y almacenamiento deben correr a cargo de la personería donante.

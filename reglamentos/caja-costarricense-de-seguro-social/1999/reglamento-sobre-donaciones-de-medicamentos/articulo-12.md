@@ -1,0 +1,1 @@
+Artículo 12°.-La recomendación para la aceptación de la donación la hará la Gerencia División Médica por medio de la Dirección Técnica de Servicios de Salud, Sección de Farmacia. La Gerencia División Médica será, en última instancia, la que aprobará o rechazará dicha donación.

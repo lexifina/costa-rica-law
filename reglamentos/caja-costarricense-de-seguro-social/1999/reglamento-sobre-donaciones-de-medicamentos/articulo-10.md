@@ -1,0 +1,1 @@
+Artículo 10°.-La Caja Costarricense de Seguro Social asegurará su prestación de servicios con las donaciones de medicamentos, de manera que estos respondan a la infraestructura existente como el nivel de usuario de los diferentes Centros de Salud.

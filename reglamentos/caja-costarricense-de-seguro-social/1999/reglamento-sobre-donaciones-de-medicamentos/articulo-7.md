@@ -1,0 +1,1 @@
+Artículo 7°-La Dirección Técnica de Servicios de Salud, Sección de Farmacia asesora el uso de los medicamentos donados utilizando la vía que crea conveniente, y le da seguimiento, con los datos que se mencionan en el Artículo VIII.

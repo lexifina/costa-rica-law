@@ -1,0 +1,1 @@
+Artículo 6°-La permanencia de un medicamento como un jonativo, debe considerarse como transitoria, la planificación en el uso siempre será finita, de acuerdo con las existencias, dejando claramente informado al centro que recibe la donación que una vez agotada su existencia la CCSS no lo continuará despachándolo.
