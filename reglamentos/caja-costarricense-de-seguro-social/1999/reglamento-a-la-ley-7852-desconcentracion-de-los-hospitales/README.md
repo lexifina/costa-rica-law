@@ -17,3 +17,4 @@ Reglamento a la Ley 7852 Desconcentración de los Hospitales y Clínicas de la C
 | 2 | 2000-01-05 | Reglamento 7399 (1999-12-16) |
 | 3 | 2000-01-13 | Reglamento 7404 (2000-01-13) |
 | 4 | 2000-09-07 | Reglamento 7476 (2000-09-07) |
+| 5 | 2001-12-03 | Reglamento 7605 (2001-12-03) |
