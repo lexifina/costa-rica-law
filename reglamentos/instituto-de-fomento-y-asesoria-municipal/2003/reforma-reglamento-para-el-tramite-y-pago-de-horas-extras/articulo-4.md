@@ -1,0 +1,1 @@
+Artículo 4º—No se podrá autorizar jornada extraordinaria a un mismo servidor (a) en forma sucesiva durante más de tres meses, en virtud de que desnaturaliza el carácter extraordinario de este tipo de jornada.

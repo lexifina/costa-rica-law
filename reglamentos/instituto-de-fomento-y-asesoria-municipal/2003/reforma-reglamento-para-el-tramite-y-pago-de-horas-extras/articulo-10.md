@@ -1,0 +1,1 @@
+Artículo 10.—Una vez recibida la solicitud, la Sección de Recursos Humanos en los siguientes cinco hábiles trasladará la solicitud a la persona titular de la Dirección Ejecutiva o Presidencia Ejecutiva para su autorización.

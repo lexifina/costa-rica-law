@@ -1,0 +1,1 @@
+Artículo 16.—Toda solicitud para el pago de tiempo extraordinario la presentará el jefe inmediato del funcionario (a), ante la Sección de Recursos Humanos, dentro de los cuatro días hábiles posteriores al mes en que se trabajó el tiempo extraordinario. Después de ese plazo no se tramitará ningún pago por horas extras.

@@ -1,0 +1,1 @@
+Artículo 3º—Quedan excluidos del pago de la jornada extraordinaria los y las servidoras que ocupen puestos de confianza y de jefatura, así como quienes ocupen puestos excluidos de la limitación de la jornada de trabajo, de conformidad con el Artículo 143 del Código de Trabajo.

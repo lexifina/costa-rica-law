@@ -1,0 +1,1 @@
+Artículo 11.—La persona titular de la Dirección Ejecutiva o Presidencia Ejecutiva, comunicará a la Sección de Recursos Humanos, las solicitudes aprobadas para laborar en jornada extraordinaria el mes siguiente, dentro de los cinco días hábiles posteriores al comunicado de la Sección de Recursos Humanos, especificando la cantidad de horas autorizadas.

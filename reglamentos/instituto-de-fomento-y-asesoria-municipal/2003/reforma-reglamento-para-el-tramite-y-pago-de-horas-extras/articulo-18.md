@@ -1,0 +1,1 @@
+Artículo 18.—La Sección de Recursos Humanos verificará la información de los reportes de horas extras, velando que se cumpla con lo establecido en el artículo 12, inciso c), de este Reglamento para posteriormente remitirlos a la Sección de Contabilidad y Finanzas a fin de efectuar el pago correspondiente.

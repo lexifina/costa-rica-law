@@ -1,0 +1,1 @@
+Artículo 7º—Toda solicitud para laborar en tiempo extraordinario, será autorizada por la persona titular de la Dirección Ejecutiva o Presidencia Ejecutiva y tramitada por medio de la Sección de Recursos Humanos con quince días naturales de antelación previa a la realización de los trabajos, salvo casos de urgencia a juicio de la Presidencia o Dirección Ejecutivas.
