@@ -1,0 +1,1 @@
+Art. 3. Todos los efectos que en virtud de tal franquicia se introduzcan en el Departamento del Guanacaste deben precisamente haber sido desembarcados antes en Puntarenas, de donde saldrán sin restriccion alguna destinados para cualquiera de los puertos que dentro del golfo tenga el referido Departamento.
