@@ -1,0 +1,3 @@
+El Concejo Municipal de Escazú, en su sesión ordinaria Nº 98, acta Nº 140 del 15 de marzo del 2004, adoptó el siguiente acuerdo:
+Acuerdo AC-130-04: “Aprobar moción presentada por los miembros de la Comisión de Asuntos Jurídicos que dice:
+“Aprobar moción que dice: Conforme al artículo 43 del Código Municipal, en ejercicio de las potestades de reglamentación, que autorizan al Concejo Municipal a adoptar, reformar, suspender o derogar disposiciones reglamentarias se acuerda: Derogar el Reglamento para la instalación de Casetas de Seguridad y Agujas en vías públicas de la Municipalidad de Escazú. Rige a partir de su publicación”. Acuerdo firme.
