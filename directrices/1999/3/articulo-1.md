@@ -1,0 +1,4 @@
+DIRECTRIZ Nº 003-99
+DIRECCION NACIONAL DE NOTARIADO.- San José, a las ocho horas trece minutos del trece de enero de mil novecientos noventa y nueve.-
+Esta Dirección, en uso de las facultades concedidas por el artículo 9 del Código Notarial, resuelve:
+Existiendo los mecanismos legales y técnicos para definir la cobertura de los daños y perjuicios generados por los notarios públicos en el ejercicio de esa función, pero tomando en cuenta que el Fondo de Garantía no contará con recurso alguno al inicio de sus funciones, la cuantía de esa cobertura no se definirá, hasta tanto no se cuente con recursos económicos e información suficientes para efectuar el estudio actuarial que requiere la aplicación de la ley y que tiene como fin, establecer esa caución de acuerdo a las posibilidades económicas del Fondo. Hágase saber.-
