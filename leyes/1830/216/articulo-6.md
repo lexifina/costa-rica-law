@@ -1,0 +1,1 @@
+ARTÍCULO 6°.-Se nombrar por cada uno de los diputados un sustituto en la misma forma del artículo 4° para que tengan el lugar y ejercicio de los diputados en los casos de su recusación, muerte, enfermedad, ausencia necesaria £ otro justo impedimento.

@@ -1,0 +1,1 @@
+ARTICULO 74.-En las minas hasta ahora abiertas y labradas se guardar n en sus pertenencias las medidas practicadas si tienen los suficientes documentos, pero si no los tuvieren, se actuarán las que les corresponda según este reglamento.

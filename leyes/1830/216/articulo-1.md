@@ -1,0 +1,8 @@
+DECRETO 216.
+El Jefe Supremo del Estado libre de Costa-Rica.
+Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Constitucional del Estado libre de Costa-Rica, deseando mejorar el naciente y ya ruinoso ramo de minera, corregir los abusos nocivos que en todo sentido han abortado ya en el Aguacate; y precaver las recíprocas quejas a que daría lugar en los sucesivo el descuido de esta preciosa industria, teniendo presentes las varias insinuaciones que antes de ahora han hecho los individuos mineros ‚ ingenieros, de que hechaban de menos una protección especial: reflexionando que la suma de males (en cualquier negocio por lucrativo que fuese), sería mayor que la de los bienes que reportase al Estado, que este sintiesen que se relajaban en sus individuos los resortes de la moral, del pudor y de la estabilidad en los contratos: observando que esto tendría el engroso del erario público, que resultase del fomento de los vicios y la desatención al modo de vivir de los concurrentes al Aguacate: con presencia de que la minería demanda una especial inspección y protección; tanto para asegurar las obras en s¡, como para precaver desgracias en las de los operarios y evitar la ruina de los patrones: apreciando en fin, el laudable esmero y vigilancia de la comisión de mineros, (nombrada en la Legislatura del año próximo pasado), en presentar el proyecto y observaciones dispendiosas y penosas que se le confiaron, ha venido en decretar y decreta la siguiente
+ORDENANZA DE MINERIA.
+SECCION PRIMERA.
+Matricula de mineros, Juez de minas y diputados territoriales.
+ARTÍCULO 1°.-El Intendente es el Juez de minas en el Estado.

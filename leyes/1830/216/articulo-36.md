@@ -1,0 +1,1 @@
+ARTÍCULO 36.-Los diputados deber n conocer del oficio, destino y ocupaci¢n de todos los individuos que hay en el mineral, pudiendo prohibir a cualesquiera la residencia en ‚l, siempre que resulte no tener propiedad o arrendamiento en alguna mina o ingenio, o que por los informes aparezca su conducta sospechosa.

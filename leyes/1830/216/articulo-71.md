@@ -1,0 +1,1 @@
+ARTÍCULO 71.-Pero si algún minero sospechando alguna otra veta de contrario recuesto o variación del de la suya, (lo que rara vez sucede) quisiere que se le de alguna parte de la cuadra contra el recuesto de la veta principal que denuncié, se le podrá conceder con tal que no se arguya malicia, ni ceda en perjuicio de tercero.

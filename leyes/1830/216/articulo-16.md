@@ -1,0 +1,1 @@
+ARTÍCULO 16.-El Intendente del Estado conocer y providenciar en todos los negocios de minería en lo gubernativo, directivo y económico, y en su consecuencia se declara que las diputaciones de todos los distritos de minas le han de reconocer una precisa subordinaci¢n en todas las indicadas materias puramente gubernativas.

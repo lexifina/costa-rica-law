@@ -1,0 +1,1 @@
+ARTÍCULO 12.-Los electos en diputados y sustitutos no podrán exentarse de aceptar el empleo dentro de tercero día, bajo la pena de cincuenta pesos aplicados al fondo del mineral y de ser apremiados la admisión después de pagados; pero si les pareciere tener para ello suficiente y legitima causa, deberán aceptar el empleo y servirle hasta tanto sean calificados por el Intendente.

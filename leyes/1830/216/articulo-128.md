@@ -1,0 +1,1 @@
+ARTÍCULO 128.-Los sitios de minas que se hallasen establecidas sobre tierras de particulares y que ‚estas fuesen de indispensable necesidad para el laborío y beneficio de las minas, ser n vendidas a ‚ estos por justa tasación de peritos y tercero en discordia, si la hubiere.

@@ -1,0 +1,1 @@
+ARTÍCULO 125.-Los individuos matriculados que al fin de cada año no presentaren papeletas que justifiquen haber cumplido el tiempo de su contrato en aquel año, ser n obligados en lo sucesivo a completar el tiempo que hubieren fallado, y además el que les corresponda por aquel año.

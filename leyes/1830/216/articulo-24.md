@@ -1,0 +1,1 @@
+ARTÍCULO 24.-Se prohíbe la recusación absoluta de los diputados en 1¦. instancia; pero Sí podrá hacerse de uno de ellos dando el recusante las causas para ello, y cuando se recuse al Intendente en 2¦. instancia, deber ‚este acompañarse con persona satisfacción de la parte, con arreglo ordenanza.

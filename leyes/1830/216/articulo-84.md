@@ -1,0 +1,1 @@
+ARTÍCULO 84.-Se prohíbe estrechamente el que se puedan quitar, debilitar ni cercenar los pilares, puentes y macizos necesarios de las minas, bajo las penas de perder lo que ellos hubiere extraído y sufrir el castigo que se le imponga, según la gravedad del delito precediendo el debido sumario.

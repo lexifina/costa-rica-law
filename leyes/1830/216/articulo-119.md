@@ -1,0 +1,1 @@
+ARTÍCULO 119.-Si se vendiese una parte de mina o una mina entera, estimada y valuada por peritos según el estado que entonces tenga y después produjere grandes riquezas, se declara que no por ello se ha de poder rescindir la venta alegándose la lesión enorme o enormísima.

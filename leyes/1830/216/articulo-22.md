@@ -1,0 +1,1 @@
+ARTÍCULO 22.-Las apelaciones deber n ser intentadas dentro de ocho días de notificada la sentencia y no de otra manera, concediendo que el apelante se pueda introducir por carta, expresando que remitir poder para la formalidad del juicio que comparecer personalmente en el perentorio término de quince días y pasados ‚estos, no ser admitida la apelación.

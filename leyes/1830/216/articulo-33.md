@@ -1,0 +1,1 @@
+ARTÍCULO 33.-Cuando se ofrecieren competencias entre los diputados de minería y otros juzgados sobre los límites de sus atribuciones, se ocurrir la Corte Superior de Justicia del Estado, y lo que ‚esta resuelva se observar sin suplicación.

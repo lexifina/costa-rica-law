@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-La primera formación de matrícula y elección de diputados ser presidida por el Intendente, y en lo sucesivo su lugar el diputado m s antiguo del año anterior, atendiéndose que han de quedar siempre electos los individuos en quienes concurra y mayor número de votos.

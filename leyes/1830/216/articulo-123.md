@@ -1,0 +1,1 @@
+ARTÍCULO 123.-Los operarios de minas o ingenios que, por haber contraído deuda en algún trabajo y pasasen a trabajar en otra parte, han de ser obligados a volver a pagar con su trabajo al lugar en donde la hayan contraído, a no ser que el acreedor se conforme con que redima la dependencia en otra elaboración.

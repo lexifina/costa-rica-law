@@ -1,0 +1,1 @@
+ARTÍCULO 134.-Los licores que se comisen en el mineral ser n vendidos a favor de la caja del Estado; y las multas que los Jueces impongan a los contraventores de aquel distrito, serán aplicadas a la misma caja.

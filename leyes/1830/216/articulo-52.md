@@ -1,0 +1,1 @@
+ARTÍCULO 52.-Pero si alguno denunciare mina o hacienda dentro de la población, de manera que pueda perjudicar a sus principales edificios, o resulte otro semejante inconveniente, no se podr conceder el denuncio sin previo permiso de la Intendencia, para que consult ndolo con el Soberano Poder Legislativo, resuelva el caso con la debida madurez y circunspección.

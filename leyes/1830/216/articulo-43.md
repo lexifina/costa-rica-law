@@ -1,0 +1,1 @@
+ARTÍCULO 43.-Si durante los expresados noventa días compareciese alguno pretendiendo tener derecho a aquel descubrimiento, se le oír en justicia brevemente y se adjudicar al que mejor probare su intención; pero si ocurriese después no ser oído.
