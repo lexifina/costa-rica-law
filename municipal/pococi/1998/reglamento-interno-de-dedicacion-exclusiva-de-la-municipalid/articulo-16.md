@@ -1,0 +1,1 @@
+Articulo 16.—Las Oficinas de la Dirección Administrativa deben velar por el cumplimiento de las disposiciones establecidas en la presente resolución y en los contratos respectivos, sin perjuicio de la intervención que al respecto pueda hacer el Departamento de Auditora Interna de la Municipalidad de Pococí cuando lo estime conveniente.

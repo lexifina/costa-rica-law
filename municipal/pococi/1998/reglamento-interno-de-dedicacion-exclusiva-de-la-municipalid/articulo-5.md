@@ -1,0 +1,1 @@
+Articulo 5°—El contrato que se menciona en el articulo anterior deberá estar confeccionado en un original que se conservara en la Municipalidad y dos copias, una para el servidor y la otra para adjuntar en el expediente del servidor.
