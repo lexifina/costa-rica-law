@@ -1,0 +1,5 @@
+Artículo 54
+Las personas que laboren en el Poder Judicial se denominan "servidores". Sin embargo, cuando en esta ley se hable de "funcionarios que administran justicia" ha de entenderse por tales a los Magistrados, Jueces Superiores, Jueces, Actuarios, miembros integrantes de los Tribunales Colegiados y Alcaldes; por "funcionarios" a los que, fuera de los antes dichos, tengan atribuciones y responsabilidades propias determinadas en esta ley; y por "empleados" a todas las demás personas que desempeñen puestos en el Poder Judicial remunerados por el sistema de sueldos.
+Las prohibiciones establecidas en esta ley se aplicarán tanto a los servidores que fueren nombrados en propiedad como a los interinos, salvo disposición legal en contrario.
+Cuando esta ley mencione "Corte" ha de entenderse Corte Plena y cuando en los Códigos Procesales se hable de "Ley Orgánica", sin especificación alguna, se alude a la presente ley.
+( Así reformado por el artículo 1º de la Ley Nº 6024 de 15 de diciembre de 1976 )

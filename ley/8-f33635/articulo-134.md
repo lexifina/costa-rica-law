@@ -1,0 +1,1 @@
+Artículo 134 Los Tribunales nombrarán defensor de oficio a los menores, viudas, inhábiles, personas desvalidas, a los ausentes y reos que no tuvieren quién los represente y defienda en los negocios judiciales en que fueren interesados; salvo que los reos prefieran defenderse por sí mismos en los casos permitidos por la ley.
