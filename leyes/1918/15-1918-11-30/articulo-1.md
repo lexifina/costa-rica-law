@@ -1,3 +1,5 @@
+(Derogado)
+(El presente Código fue derogado por el inciso h) del artículo 1° de la Ley de Nulidades contra Normativa emitida en Régimen de Tinoco, N° 41 del 21 de agosto de 1920)
 PODER LEGISLATIVO
 EL PRESIDENTE CONSTITUClONAL
 DE LA REPUBLICA DE COSTA RICA
