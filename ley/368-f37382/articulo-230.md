@@ -1,3 +1,4 @@
 Artículo 230.-Se aplicará prisión de seis meses a tres años:
 1.-Al que con ánimo de lucro y mediante violencia física o moral, abuso de autoridad o cargo, de maniobras engañosas o valiéndose de cualquiera otra maquinación semejante, logre que una mujer pública entre en una casa de lenocinio para la explotación de su cuerpo, o la obligue a permanecer en ella, o a ejercitar prácticas sexuales anormales.
-2.-Al que reclute o enganche mujeres con su consentimiento o valiéndose de amenaza, ofrecimientos, engaño o cualquiera otra maquinación semejante, para ejercer la prostitución dentro o fuera de la República, o introduzca en ella a quienes conocidamente la ejerzan.
+2.-Será reprimido con prisión de uno a tres años, el que valiéndose de amenazas o engaños, o cualquier otra maquinación semejante, reclute o enganche mujeres para ejercer la prostitución dentro o fuera de la República o introduzca en ella a quienes conocidamente la ejerzan.
+(Así sustituido el inciso anterior por el artículo 218 del Código Sanitario, aprobado mediante ley N° 809 del 2 de noviembre de 1949)
