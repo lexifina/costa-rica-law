@@ -1,0 +1,2 @@
+2°-Los que actualmente perciben auxilios mensuales de la Junta Administrativa de Telégrafos y Teléfonos Nacionales, quedan comprendidos en los beneficios de esta ley; y los que gozan de pensión de Estado fundada en servicios prestados únicamente en correos, telegráfos, teléfonos o radios nacionales, podrán acogerse a las disposiciones de esta ley, en cuanto les sean aplicables.
+Casa Presidencial.-San José, a los veintitrés días del mes de setiembre de mil novecientos cuarenta.
