@@ -1,0 +1,1 @@
+ARTICULO 3°. -Certificado el nombramiento, el Juez hará comparecer los nombrados, y lo hará saber, y aceptado les recibir juramento, en que ofrecer n cumplir fiel y legalmente el encargo, y practicada esta diligencia, la firmarán el Juez, las partes, los árbitros y dos testigos de asistencia. Todo lo practicado se pondrá en manos de los árbitros para que comienzen á obrar.
