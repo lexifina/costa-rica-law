@@ -1,0 +1,3 @@
+Artículo 2°- Son objetivos básicos de la Carrera Artística:
+Reconocer por medio de un estímulo económico .......y talento artístico de los músicos de la Orquesta Sinfónica Nacional.
+Coadyuvar en el reclutamiento ...... en el desempeño del trabajo profesional de la Orquesta Sinfónica Nacional, a los músicos mejor calificados por su virtuosidad ......

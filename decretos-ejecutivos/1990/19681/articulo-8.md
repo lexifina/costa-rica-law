@@ -1,0 +1,1 @@
+Artículo 8°- La Comisión sólo realizará estudios a solicitud de los interesados. Sesionará ordinariamente una vez al mes y extraordinariamente cuando dos de sus miembros la convoquen. Los asuntos tratados serán resueltos por mayoría simple. Sus miembros no devengarán dietas por su labor.

@@ -1,0 +1,1 @@
+Artículo 9°- Para ser incluido o reubicado en alguna de las categorías de esta carrera artística, el músico debe aportar además de la solicitud por escrito ante el director ejecutivo, los documentos que se le requieran.
