@@ -14,3 +14,4 @@ Los licores nacionales y extranjeros que se ofrezca al público para consumo nac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-01-22 | la propia norma |
+| 2 | 1985-01-22 | Decreto Ejecutivo 15546 (1984-07-23) |
