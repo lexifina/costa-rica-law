@@ -1,4 +1,5 @@
-Artículo 14.- Esta ley rige desde su publicación.
-Transitorio.- Durante el presente año se aplicará la tarifa de $
-10.00 (diez pesos centroamericanos) por tonelada neta de registro del
-barco y con vigencia por lo que resta del mismo.
+ARTICULO 14.- Para efectos de la presente ley, se consideran
+empresas o sociedades extranjeras aquellas en que los costarricenses no
+tengan más del cincuenta por ciento de las acciones. En todo caso, las
+acciones deben ser nominativas. Los mismos requisitos se aplicarán a las
+enlatadoras y frigoríficos.
