@@ -1,0 +1,1 @@
+ARTÍCULO 3°. -Los que se apoderasen ¢ procurasen apoderarse del Gobierno, del modo que lo hizo Carrillo por cualquiera vía de hecho, y contra los principios, usurparen los Poderes Legislativo, Constituyente, son reos de traición, lo mismo que sus cómplices, auxiliadores, y encubridores; todos responder n con su persona y bienes ante la ley.
