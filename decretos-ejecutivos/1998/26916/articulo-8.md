@@ -1,0 +1,1 @@
+Artículo 8°—El Sistema Nacional de Radio y Televisión Cultural, tendrá un Auditor que dependerá del Consejo Educativo y deberá ser costarricense, contador público autorizado, con no medios de cinco años de experiencia profesional. Será nombrado por el Consejo Ejecutivo de una tema que le presente el Director General.

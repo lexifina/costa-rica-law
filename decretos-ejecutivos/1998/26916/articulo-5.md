@@ -1,0 +1,1 @@
+Artículo 5°—E1 Director General será nombrado por el Poder Ejecutivo y durará en sus funciones mientras dure el buen desempeño del cargo, no obstante el plazo máximo de este nombramiento no podrá sobrepasar el 8 de mayo del 2002.
