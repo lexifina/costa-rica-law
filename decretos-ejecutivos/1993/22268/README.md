@@ -14,3 +14,4 @@ Aprueba Norma NCR 148:1993 Metrología. Contenido neto de preempacados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-07-13 | la propia norma |
+| 2 | 1997-08-25 | Decreto Ejecutivo 26480 (1997-08-25) |
