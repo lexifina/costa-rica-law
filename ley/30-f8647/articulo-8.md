@@ -1,0 +1,1 @@
+Art 8° El Director indicará al Ministerio de Obras Públicas, en exposición motivada y por vía de informe, cual sea en general el modo más económico de administración y según lo requieran las circunstancias si debe o no aumentarse o disminuirse el personal y los gastos consiguientes.
