@@ -14,3 +14,4 @@ Directrices y regulaciones generales de política salarial, empleo y clasificaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-29 | la propia norma |
+| 2 | 2004-08-12 | Decreto Ejecutivo 31914 (2004-08-12) |
