@@ -1,0 +1,1 @@
+Artículo 3°.- Autorízase al Poder Ejecutivo para limitar o prohibir la conversión de certificados de plata, con el objeto de impedir cualquier especulación y de que pueda regular hasta donde sea posible, la circulación de moneda fraccionaria para las transacciones comerciales.
