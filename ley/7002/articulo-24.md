@@ -1,0 +1,1 @@
+Artículo 24.- Todas las armas que sean decomisadas serán puestas de inmediato a la orden de la autoridad judicial competente. Tanto la autoridad que practique el decomiso como el funcionario judicial a quien correspondiere conocer de la infracción, deberán informarle al Departamento las características de las armas decomisadas.

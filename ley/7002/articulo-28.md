@@ -1,0 +1,1 @@
+Artículo 28.- La inscripción de las armas permitidas faculta al propietario para tenerlas en su casa de habitación o en el lugar que se desee proteger, así como para portarlas en carreteras y caminos solitarios y en lugares alejados de los centros de población, mas cuando entrare a estos, deberá descargar el arma y guardarla separada de la munición.

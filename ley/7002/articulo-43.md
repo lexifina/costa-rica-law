@@ -1,0 +1,1 @@
+Artículo 43.- Los permisos de portación, fabricación, importación, exportación y comercialización de armas permitidas, se extenderán por un año y podrán ser renovados indefinidamente por períodos iguales, o revocados en cualquier momento por violación de esta ley.

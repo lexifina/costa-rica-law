@@ -1,0 +1,1 @@
+Artículo 2º.- Para los fines de la presente ley, se entenderá que se trata del Ministerio de Seguridad Pública, cuando se hable del "Ministerio" y del Departamento de Control de Armas y Explosivos, cuando se hable del "Departamento".

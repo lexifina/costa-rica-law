@@ -1,0 +1,1 @@
+Artículo 11.- Queda prohibido en forma absoluta el uso, la producción o introducción en el país de gases, compuestos químicos, virus o bacterias tóxicas o letales que produzcan consecuencias físicas o mentales irreversibles.

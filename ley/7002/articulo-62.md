@@ -1,0 +1,1 @@
+Artículo 62.- Se impondrá sanción de cinco a cuarenta días multa, a quien vendiere o comprare armas permitidas sin cumplir con los requisitos de esta ley o a quien no informare sobre su pérdida o sustracción al Departamento.

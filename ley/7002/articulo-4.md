@@ -1,0 +1,1 @@
+Artículo 4º.- Los entes estatales autorizados por esta ley o por otras leyes especiales, deberán informar semestralmente al Departamento, la cantidad, el tipo y el estado de las armas que tengan bajo su custodia, y llevarán un inventario permanente de ellas. Los particulares informarán a solicitud del Departamento.

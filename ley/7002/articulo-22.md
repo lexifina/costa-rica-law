@@ -1,0 +1,1 @@
+Artículo 22.- Se garantiza a los habitantes de la República el derecho de poseer armas permitidas con fines de defensa de sus vidas y haciendas o deportivos y de cacería, de acuerdo con lo que se establece en esta ley y su reglamento.
