@@ -1,0 +1,2 @@
+Artículo 3º.- Se autoriza la disección y autopsia de cadáveres realizada por estudiantes y profesores de las Facultades y los Departamentos correspondientes de la Universidad de Costa Rica, conforme a la reglamentación que dicha Institución establezca y conforme al reglamento que al respecto publicará el Poder Ejecutivo.
+Casa Presidencial.-San José, a los veinticinco días del mes de junio de mil novecientos cincuenta y nueve.
