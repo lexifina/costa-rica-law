@@ -1,5 +1,6 @@
 Anexo IV.1
 Reglas de Origen Específicas
+(NOTA: Mediante decreto ejecutivo N° 30823 de 5 de noviembre del 2002, se MODIFICA este anexo)
 Sección I - Nota General Interpretativa
 Para los propósitos de interpretar las reglas de origen establecidas en este Anexo:
 (a) la regla específica, o el conjunto específico de reglas que se aplican a una partida o subpartida específica, se coloca inmediatamente adyacente a la partida o subpartida;
