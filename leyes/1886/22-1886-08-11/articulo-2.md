@@ -1,0 +1,2 @@
+Art. 2°-Los empleados no comprendidos en el detalle precedente quedan cesantes, y los superiores que tengan facultad de girar contra el Tesoro Público deberán hacerlo de acuerdo con la presente ley, á contar del 10 del mes en curso.
+Dado en el Palacio Presidencial, en San José, á once de agosto de mil ochocientos ochenta y seis.-BERNARDOSOTO.-El Secretario de Estado en el despacho de Hacienda,-MAURO FERNÁNDEZ.
