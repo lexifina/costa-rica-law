@@ -1,0 +1,1 @@
+Artículo III.-La responsabilidad de los fondos de la caja chica estará a cargo del funcionario de mayor jerarquía destacado en el Departamento de Tesorería y en ausencia de este, el que decida el responsable del área financiera.

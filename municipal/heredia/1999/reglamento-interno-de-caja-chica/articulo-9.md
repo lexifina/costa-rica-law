@@ -1,0 +1,1 @@
+Artículo IX.- Todo pago de caja chica estará respaldado por una factura comercial (no se aceptará fraccionamiento de facturas), o en el caso de un servicio, por una factura que indique el tipo de servicio prestado, el monto correspondiente con la firma y cédula del beneficiario.

@@ -1,0 +1,1 @@
+Artículo XIII-Al funcionario que tenga pendiente una liquidación de un anticipo de dinero para adquisición de bienes o servicios, no le será entregado otro anticipo hasta tanto no liquide el que tiene pendientes.

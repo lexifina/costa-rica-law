@@ -1,0 +1,1 @@
+Artículo II.-Los fondos destinados a la caja chica será usado única y exclusivamente para la adquisición de bienes y servicios realmente indispensables de verdadera necesidad, que justifique su pago, fuera de los trámites ordinarios del cheque. Dichos fondos podrán usarse para gastos solamente de las subpartidas 2 (servicios no personales) y 3 (materiales y suministros).

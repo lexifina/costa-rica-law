@@ -1,0 +1,1 @@
+Artículo VII-Se podrán hacer pagos de gastos de viaje y transporte (no fraccionados) que no superen los ¢3.000,00 (tres mil colones), y el formulario de viático deberá sellarse con la leyenda PAGADO EN EFECTIVO, bajo la responsabilidad del encargado de los fondos de revisar minuciosamente de que dichos formularios vengan debidamente confeccionados.

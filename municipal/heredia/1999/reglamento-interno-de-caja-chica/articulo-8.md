@@ -1,0 +1,1 @@
+Artículo VIII.- Todo pago por medio de caja chica debe tener su correspondiente contenido presupuestario y será responsabilidad del encargado de la misma, velar por el cumplimiento de esta disposición.

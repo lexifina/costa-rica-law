@@ -1,0 +1,1 @@
+Artículo XVI-Como sano principio de administración de fondos, deberá solicitarse reintegro de los fondos de caja chica, cuando se tenga un máximo del 70% (setenta por ciento) del fondo gastado, esto permitirá una mayor agilidad y una disponibilidad permanente de los recursos.
