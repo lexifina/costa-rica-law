@@ -1,0 +1,1 @@
+Articulo 23.—Integración de la Junta Directiva, Comité Cantonal. Los comités comunales estarán conformados por una Junta Directiva dentro de la cual se nombrarán un presidente, un vicepresidente, un tesorero, un secretario, un vocal. Sus funciones estarán reguladas por el Comité Cantonal.

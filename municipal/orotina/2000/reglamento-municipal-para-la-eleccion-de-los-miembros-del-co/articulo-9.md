@@ -1,0 +1,1 @@
+Artículo 9°—Responsables de las convocatorias. El Concejo Municipal en la última sesión del mes de marzo, nombrará una comisión que será la encargada de realizar la convocatoria a todas las organizaciones para el nombramiento del comité.

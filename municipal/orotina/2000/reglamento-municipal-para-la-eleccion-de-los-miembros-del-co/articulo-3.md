@@ -1,0 +1,1 @@
+Artículo 3°—Reglamentación del nombramiento. La Municipalidad de Orotina reglamentará el proceso de elección de los miembros del Comité Cantonal de Deportes y Recreación (artículo 165 Código Municipal).
