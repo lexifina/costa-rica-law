@@ -1,0 +1,1 @@
+Artículo 29.-Para los efectos de boletaje, se advierte que el empresario no podrá vender más entradas que el número que le indique la Dirección, para cada sector de la instalación deportiva sobre la cual se le otorga el permiso de uso.

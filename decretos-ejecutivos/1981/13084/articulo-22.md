@@ -1,0 +1,1 @@
+Artículo 22.-El empresario no podrá hacer ninguna reclamación a la Dirección por cualquier concepto ajeno al objeto del permiso de uso y tampoco podrá traspasar el convenio a tercer persona, salvo que haya autorización expresa y por escrito de la Dirección General de Educación Física y Deportes.

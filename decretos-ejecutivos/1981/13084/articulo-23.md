@@ -1,0 +1,1 @@
+Artículo 23.-Cualquier beneficio o exención que el empresario reciba de parte del Gobierno de la República, es entendido que se trata de una relación entre el Gobierno y el empresario, por lo cual la Dirección no debe intervenir en ello y los mismos no afectarán los términos del presente reglamento.

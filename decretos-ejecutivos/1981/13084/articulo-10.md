@@ -1,0 +1,1 @@
+Artículo 10.-El empresario deberá depositar en la Dirección General de Educación Física y Deportes o entregar al funcionario que ésta indique, la suma convenida por el permiso de uso, después de cada función, al hacer la liquidación respectiva, en presencia de éste.
