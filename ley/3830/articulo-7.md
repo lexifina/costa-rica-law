@@ -1,7 +1,2 @@
-Artículo 7º.- Interpuesta una excepción de incompetencia y declarada
-con lugar por el Tribunal, en un asunto que tenga recurso de Casación,
-éste podrá interponerse si en virtud de lo resuelto, el negocio no
-pudiere seguirse tramitando ante los tribunales costarricenses por razón
-del territorio, o si por razón de la materia quedare sustraído del
-conocimiento del Tribunal o del Juez que conoció de él en primera
-instancia.
+Artículo 7º.- DEROGADO.
+(DEROGADO por la Ley Nº 4957 de 16 de diciembre de 1972, artículo 8º)
