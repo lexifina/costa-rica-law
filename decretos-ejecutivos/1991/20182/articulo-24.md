@@ -1,2 +1,0 @@
-Artículo 24.- Las Auditorías Internas, o en su defecto, los Departamentos de Recursos Humanos de las respectivas instituciones, verificarán cuando lo consideren pertinente y de conformidad con los procedimientos que al respecto establezcan, el fiel cumplimiento de todas las disposiciones contenidas en este reglamento. Cuando aprobare incumplimiento de las obligaciones contraídas por los servidores suscriptores, deberá tomar las medidas que estime convenientes.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 22630 del 25 de octubre de 1993)

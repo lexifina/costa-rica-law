@@ -1,1 +1,0 @@
-Artículo 4º.-Este comité de dedicación exclusiva, tendrá como función principal, de conformidad con el estudio y análisis de la naturaleza y responsabilidades de los puestos, señalar aquellos que son sujetos de aplicación de la mencionada compensación económica.

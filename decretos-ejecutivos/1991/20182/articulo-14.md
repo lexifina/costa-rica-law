@@ -1,2 +1,0 @@
-Artículo 14.-Los servidores acogidos al Régimen de Dedicación Exclusiva continuarán gozando de este beneficio en los casos en que se acojan a permisos con goce de sueldo total o parcial para adiestramiento, siempre y cuando su contrato de dedicación exclusiva haya sido aprobado por el Departamento de Recursos Humanos de la Institución respectiva con un mínimo de tres meses de anticipación a la fecha en que empieza a regir el contrato de adiestramiento.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 22630 del 25 de octubre de 1993)

@@ -1,1 +1,0 @@
-Artículo 8º.-La aplicación de esta compensación económica (dedicación exclusiva), únicamente se hará dentro de los montos señalados anteriormente y a los servidores incluidos en los artículos 5º y 6º de este reglamento.

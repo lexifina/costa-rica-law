@@ -1,5 +1,0 @@
-CAPITULO IV
-De la aplicación de Régimen de Dedicación Exclusiva
-Artículo 7º.-Las instituciones y empresas del sector público, según se definen en el artículo 2º, inciso a), b) y c) de la ley Nº 6821 del 19 de octubre de 1982 y sus reformas (con personal cubierto o no por el Régimen de Servicio Civil y de conformidad con su disponibilidad presupuestaria), podrán reconocer a sus servidores de nivel profesional en razón de la naturaleza y responsabilidad de los puestos que desempeñan, una suma adicional sobre sus salarios base por concepto de dedicación exclusiva, de la siguiente manera:
-a) De un 10% a aquellos servidores que posean el grado académico de bachiller universitario y ocupen un puesto para el que se requiera la condición anterior y además satisfaga los literales c), d) e), f) y g) del artículo 5º de este reglamento.
-b) De un 10% a un 55%, a aquellos otros que ostentando el grado académico de licenciatura, ocupen un puesto para el que se requiere como mínimo el grado académico de bachillerato universitario y además cumplen los literales c), d) e), f) y g) del artículo señalado anteriormente.
