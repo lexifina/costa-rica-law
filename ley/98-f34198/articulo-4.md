@@ -1,0 +1,1 @@
+Art 4.- Por las actas de toda conciliación, de que habla el artículo 13 de dicha ley, las partes pagarán al Alcalde por mitad ocho reales fuera de lo escrito siendo más de una hoja, y por cada certificación nueve reales y lo escrito excediendo de una hoja, a más del papel del sello 3° que nunca puede ser menos de un pliego.
