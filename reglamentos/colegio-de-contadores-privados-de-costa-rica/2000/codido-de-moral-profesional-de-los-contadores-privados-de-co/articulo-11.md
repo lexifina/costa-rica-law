@@ -1,0 +1,1 @@
+Artículo 11.—Por considerarlo lesivo para la profesión y los principios legales y morales, el contador no debe cometer actos que lo conduzcan a sentencias judiciales y penales relacionadas con su profesión.

@@ -1,0 +1,1 @@
+Artículo 9º—De la misma forma, está reñido con la ética el incluir en tarjetas de presentación, o en cualquier otro medio, títulos, antecedentes o dignidades que no posea legalmente el que se presenta, para inducir a error o confusión respecto a su identidad o título profesional.

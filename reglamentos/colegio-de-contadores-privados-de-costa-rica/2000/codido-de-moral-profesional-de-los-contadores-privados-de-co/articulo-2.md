@@ -1,0 +1,1 @@
+Artículo 2º—En el ejercicio de la contaduría en forma independiente, el contador guardará el debido respeto a sus colegas. No se suscribirá ningún contrato de servicios como contador con un tercero si no media renuncia previa y definitiva de quien los venía prestando. Cuando se presente una situación como la descrita deberá mediar una comunicación previa al colega afectado.
