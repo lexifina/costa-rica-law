@@ -14,3 +14,4 @@ Establece La Comisión Presidencial de Reforma del Estado (COPRE) actuará como 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-07-22 | la propia norma |
+| 2 | 1998-12-09 | Decreto Ejecutivo 27523 (1998-12-09) |
