@@ -1,4 +1,4 @@
-Nº 30214-H
+Nº 30214
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140º de la Constitución Política; artículos 21, 23, 24 y 25 de la ley Nº 8131 y su Reglamento.
@@ -10,8 +10,7 @@ Considerando:
 5º—Que la AP formuló las siguientes directrices y demás regulaciones en acuerdo número 6356, tomado en sesión Nº 03-02, celebrada el 28 de febrero del 2002.
 6º—Que el Consejo de Gobierno conoció las directrices y regulaciones en el artículo 3 de la Sesión Nº 183, celebrada el 5 de marzo del 2002. Por tanto,
 DECRETAN:
-DIRECTRICES GENERALES DE POLÍTICA PRESUPUESTARIA DEL 2003 PARA LOS MINISTERIOS, DEMÁS ÓRGANOS
-SEGÚN CORRESPONDA Y ENTIDADES PUBLICAS CUBIERTAS POR EL ÁMBITO DE LA AUTORIDADPRESUPUESTARIA
+DIRECTRICES GENERALES DE POLÍTICA PRESUPUESTARIA DEL 2003 PARA LOS MINISTERIOS, DEMÁS ÓRGANOS SEGÚN CORRESPONDA Y ENTIDADES PUBLICAS CUBIERTAS POR EL ÁMBITO DE LA AUTORIDAD PRESUPUESTARIA
 CAPÍTULO I
 Del gasto presupuestario
 Artículo 1º—El gasto presupuestario de las entidades públicas para el año 2003, podrá incrementarse hasta un máximo del 7 % con respecto al límite presupuestario establecido para el 2002, del cual se deducen los gastos no recurrentes, resultando los siguientes montos máximos permitidos para cada entidad:
@@ -24,13 +23,13 @@ Centro Nacional de Drogas | 560,4
 Centro Univ. Para el Desarrollo del Trópico Seco (Así modificado mediante artículo 1° del Decreto ejecutivo N° 31065 de 4 de febrero de 2003). | 283.8
 Colegio de San Luis Gonzaga (Así REFORMADO PARCIAL Y EXPRESAMENTE, por el artículo 1° del Decreto Ejecutivo N° 31287 de 01 de julio de 2003, publicado en La Gaceta N° 146 de 31 de julio de 2003.) | 145.51
 Colegio Universitario de Alajuela | 917,7
-Colegio Universitario de Cartago ( Así REFORMADO PARCIAL Y TACITAMENTE por el artículo 1 del Decreto Ejecutivo N° 31335-H de 28 de julio de 2003, publicado en La Gaceta N° 168 del 02 de setiembre de 2003.) | ¢ 768.4
+Colegio Universitario de Cartago (Así REFORMADO PARCIAL Y TACITAMENTE por el artículo 1 del Decreto Ejecutivo N° 31335-H de 28 de julio de 2003, publicado en La Gaceta N° 168 del 02 de setiembre de 2003.) | ¢ 768.4
 Colegio Universitario de Limón (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 271.5
 Colegio Universitario de Puntarenas | ¢ 446.2
 Comisión de Energía Atómica | 33,0
 Comisión Nacional de Asuntos Indígenas | 153,7
 Comisión Nacional de Gestión para la Biodiversidad | 96,5
-Comisión Nacional de Préstamos para la Educación | 347,1
+Comisión Nacional de Préstamos para la Educación (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31487 de 27 de octubre de 2003, publicado en La Gaceta N° 230 del 28 de noviembre de 2003.) | ¢377,5
 Comisión Nacional para la Prevención del Riesgo y Atención de Emergencias | 1.733,4
 Comisión Nacional. de Conmemoraciones Históricas (Así Modificado por el Decreto Ejecutivo No. 31203 de 16 de mayo de 2003, publicado en La Gaceta No. 112 de 12 de junio de 2003) | ¢2.97
 Compañía Nacional de Fuerza y Luz | 30.791,3
@@ -41,7 +40,7 @@ Consejo Nacional para Investigaciones Científicas y Tecnológicas (Así REFORMA
 Consejo Nacional de Producción | 8.607,6
 Consejo Nacional de Rehabilitación (Así modificado por decreto ejecutivo N° 31162 de 5 de mayo de 2003) | 782,3
 Consejo Nacional Persona Adulto Mayor | 1.213,0
-Consejo Técnico de Asistencia Médico Social CTAMS | 1.116.3
+Consejo Técnico de Asistencia Médico Social CTAMS (Así REFORMADO PARCIAL Y EXPRESAMENTE por el Artículo 1° del Decreto Ejecutivo N°31469 del 08 de octubre de 2003, publicado en el Alcance N°56 a La Gaceta N°225 de 21 de noviembre de 2003.) | 1.558.4
 Consejo Transporte Público | 628,5
 Dirección de Geología y Minas (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 224.80
 Direc. Serv. de Protec. Fitosanitaria (Así modificado por decreto ejecutivo N° 31048 de 11 de febrero de 2003) | 1.600,0
@@ -52,7 +51,7 @@ Dirección General Aviación Civil (Así REFORMADO PARCIAL Y EXPRESAMENTE por el
 Editorial Costa Rica (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31315 de 21 de julio de 2003, publicado en La Gaceta N° 158 de 19 de agosto de 2003.) | 122,6
 Escuela Centroamericana de Ganadería | 514,6
 Estaciones Experimentales MAG (Así modificado por el artículo 1° del decreto ejecutivo N° 31128 de 3 de abril de 2003) | 173.0
-Fábrica Nacional de Licores (Así modificado por el artículo 1° del decreto ejecutivo N° 31131 de 3 de abril de 2003) | 1.936,6
+Fábrica Nacional de Licores (Así modificado por el artículo 1° del decreto ejecutivo N° 31131 de 3 de abril de 2003) (Así modificado por el artículo 1° del decreto ejecutivo N° 31528 de 16 de octubre de 2003, publicado en La Gaceta N° 240 de 12 de diciembre de 2003.) | 2124.0
 Fondo de Parques Nacionales (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31224 de 16 de junio de 2003) | 2.076,1
 Fondo Forestal (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31224 de 16 de junio de 2003) | 120,2
 Fondo Nacional Ambiental | 6,3
@@ -62,7 +61,7 @@ Instituto Costarricense del Deporte y la Recreación (Así modificado por el art
 Instituto Costarricense de Acueduc. y Alcantarillado (Así modificado por decreto ejecutivo N° 31142 de 21 de abril de 2003) | 32.129,2
 Instituto Costarricense de Ferrocarriles (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31266 de 23 de junio de 2003) | 1.693.7
 Instituto Costarricense de Pesca | 833,4
-Instituto Costarricense de Puertos del Pacífico (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31408 de 26 de agosto de 2003, publicado en La Gaceta N° 204 de 23 de octubre de 2003.) | 5.100.0
+Instituto Costarricense de Puertos del Pacífico (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31477 de 27 de octubre 2003, publicado en La Gaceta N° 228 de 26 de noviembre de 2003.) | 5140.1
 Instituto Costarricense de Turismo (Así modificado por decreto ejecutivo N° 31057 de 26 de marzo de 2003) | 6.518,6
 Instituto Costarricense sobre Drogas (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 609.7
 Instituto de Desarrollo Agrario (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31309 de 29 de julio de 2003, publicado en La Gaceta N° 156 de 14 de agosto de 2003.) (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31373 de 16 de setiembre de 2003, publicado en La Gaceta N° 187 de 30 de setiembre de 2003.) | 8.024.7
@@ -110,11 +109,11 @@ Teatro Nacional (Así modificado por el artículo 1° del decreto ejecutivo N° 
 Teatro Popular Melico Salazar (Así modificado por el artículo 1° del Decreto Ejecutivo No. 31201 de 12 de mayo de 2003, publicado en La Gaceta No. 11 de 11 de junio de 2003) | 570,6
 Tribunal Registral Administrativo Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 387.5
 Unidad Ejecutora PPZN MIDEPLAN | 10,3
-(Interpretado por el artículo 1 del Decreto Ejecutivo N° 30401 de 15 de abril del 2002, en el sentido de que para la Oficina del Arroz, el límite de gasto presupuestario y el límite de gasto efectivo señalados en el DE N° 29511-H comprende el período que va del 1° de julio del 2002 al 30 de junio del 2003 y el porcentaje de crecimiento del gasto presupuestario que señala el DE N° 30214-H, se establece para el período que va del 1° de julio del 2003 al 30 de junio del 2004, de acuerdo con el ejercicio económico de la entidad.)
+(Interpretado por el artículo 1 del Decreto Ejecutivo N° 30401 de 15 de abril del 2002, en el sentido de que para la Oficina del Arroz, el límite de gasto presupuestario y el límite de gasto efectivo señalados en el DE N° 29511-H comprende el período que va del 1° de julio del 2002 al 30 de junio del 2003 y el porcentaje de crecimiento del gasto presupuestario que señala este Decreto, se establece para el período que va del 1° de julio del 2003 al 30 de junio del 2004, de acuerdo con el ejercicio económico de la entidad.)
 (Mediante Decreto Ejecutivo N° 30693 de 27 de agosto del 2002 se modifica para el Instituto Costarricense del Deporte y la Recreación los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30784 de 2 de octubre del 2002 se modifica para RECOPE los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30822 de 24 de octubre del 2002 se modifica para RECOPE los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30832 de 7 de octubre del 2002 se modifica para Consejo Nacional para Investigaciones Científicas y Tecnológicas los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30889 de 12 de noviembre del 2002 se modifica para la Junta Administrativa del Registro Nacional los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30907 de 9 de diciembre 2002 se modifica para el Colegio Universitario de Puntarenas los límites de gasto presupuestario y de gasto efectivo para el año 2003)
-(Con respecto al gasto presupuestario para el período 2003, el Decreto Ejecutivo N° 31006 de 27 de enero de dos mil tres, en su artículo 2°, indica los siguiente: "Artículo 2º—Modificase el gasto presupuestario para el período 2003, establecido en el Decreto Ejecutivo Nº 30214-H y sus reformas, publicado en La Gaceta Nº 54, del 18 de marzo del 2002, fijándolo en ¢4.948.27 millones, producto de la adición de nuevas exclusiones al gasto presupuestario".)
+(Con respecto al gasto presupuestario para el período 2003, el Decreto Ejecutivo N° 31006 de 27 de enero de dos mil tres, en su artículo 2°, indica los siguiente: "Artículo 2º—Modificase el gasto presupuestario para el período 2003, establecido en este decreto y sus reformas, publicado en La Gaceta Nº 54, del 18 de marzo del 2002, fijándolo en ¢4.948.27 millones, producto de la adición de nuevas exclusiones al gasto presupuestario".)
