@@ -1,0 +1,6 @@
+ARTICULO VII
+Existencias
+1.- Para asegurar el abastecimiento de trigo a los países importadores, cada país importador se esforzará en mantener, al fin de su año agrícola, existencias de trigo de cosechas anteriores a un nivel adecuado que asegure que podrá cubrir sus ventas garantizadas conforme a este Convenio en cada año agrícola subsiguiente.
+2.- En caso de que algún país exportador tenga una cosecha insuficiente, el Consejo, antes de relevar a ese país de alguna de las obligaciones contraídas conforme al artículo X, tendrá especialmente en cuenta los esfuerzos hechos por dichos país exportador para mantener las adecuadas existencias requeridas en el párrafo 1 de este artículo.
+3.- Para evitar compras desproporcionadas de trigo a principios y a fines de un año agrícola que pudieran perjudicar la estabilización de precios conforme a este Convenio y hacer difícil el cumplimiento de las obligaciones de todos los países exportadores e importadores, los países importadores se esforzarán por mantener en todo momento existencias adecuadas.
+4.- En caso de que algún país importador, de acuerdo con lo que dispone el artículo XII, recurra al Consejo, éste antes de decidir en su favor, tendrá especialmente en cuenta los esfuerzos hechos por dicho país importador para mantener las adecuadas existencias requeridas en el párrafo 3 de este artículo.

@@ -1,0 +1,7 @@
+ARTICULO XXIII
+Aplicación territorial
+1.-Todo Gobierno, en el momento de suscribir, aceptar o adherirse a este Convenio, podrá declarar que sus derechos y obligaciones conforme al Convenio, no se aplicarán a la totalidad o parte de sus territorios de ultramar cuyas relaciones exteriores estén bajo su responsabilidad.
+2.-Con excepción de los territorios respecto de los cuales se haya hecho una declaración conforme al párrafo 1 de este artículo, los derechos y obligaciones de todo Gobierno en virtud de este Convenio se aplicarán a todos los territorios cuyas relaciones exteriores estén bajo la responsabilidad de ese Gobierno.
+3.-Todo Gobierno en cualquier momento después de la aceptación o de la adhesión a este Convenio, podrá declarar, mediante notificación al Gobierno de los Estados Unidos de América, que sus derechos y obligaciones conforme al Convenio, se aplicarán a la totalidad o parte de los territorios respecto de los cuales haya hecho una declaración de acuerdo con el párrafo 1° de este artículo.
+4.-Todo Gobierno, mediante notificación de retirada al Gobierno de los Estados Unidos de América, podrá retirar de este Convenio, separadamente, la totalidad o parte de los territorios de ultramar cuyas relaciones exteriores estén bajo su responsabilidad.
+5.-EI Gobierno de los Estados Unidos de América informará a todos los Gobiernos signatarios y adherente s de cada declaración o notificación que se haga conforme a este artículo.
