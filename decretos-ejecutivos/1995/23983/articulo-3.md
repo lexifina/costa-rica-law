@@ -1,0 +1,3 @@
+Artículo 3º.- A partir de la publicación de este decreto, toda
+publicación seriada, deberá consignar en el ángulo superior derecho de la
+portada y la cubierta, el número ISSN asignado por la Agencia Nacional.
