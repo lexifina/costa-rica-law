@@ -1,0 +1,1 @@
+Artículo 3°-Los miembros del Consejo Consultivo serán elegidos por períodos de cuatro años; podrán ser reelectos y desempeñarán sus cargos ad honórem. El Consejo nombrará de su seno un Presidente y un Secretario, los cuales ejercerán su cargo por un año, pudiendo ser reelectos.

@@ -1,0 +1,1 @@
+Transitorio III.-El Consejo Consultivo, dentro de un plazo no mayor de treinta días a partir de su instalación, deberá formular la política nacional de préstamos para la educación, la cual deberá ser revisada periódicamente.

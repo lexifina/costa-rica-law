@@ -1,0 +1,1 @@
+Artículo 13.-Para acogerse a los beneficios de esta ley, el aspirante a un préstamo deberá ser costarricense, demostrar la necesidad del mismo y quedar obligado a acatar las disposiciones del Reglamento de Préstamos para Educación.

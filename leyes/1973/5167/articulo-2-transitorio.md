@@ -1,0 +1,1 @@
+Transitorio II .-Dentro del mismo plazo indicado en el artículo anterior, el Banco Anglo Costarricense someterá al Consejo Consultivo, para su aprobación, un proyecto de Reglamento para la concesión de los préstamos para Educación.
