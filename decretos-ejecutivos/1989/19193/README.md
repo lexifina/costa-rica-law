@@ -14,3 +14,4 @@ Adiciona Reglamento Operación Radiodifusoras de Televisión agregandoServicio R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-09-18 | la propia norma |
+| 2 | 1989-09-18 | Decreto Ejecutivo 19278 (1989-11-09) |
