@@ -1,0 +1,1 @@
+Art 2° Se le autoriza igualmente para señalar el lugar en donde deba ubicarse el referido establecimiento, sin sujeción á lo dispuesto por el 1° y art 3° del decreto de 3 de julio del presente año._ A la Cámara de Senadores_ . San José diciembre treinta y uno de mil ochocientos cuarenta y cinco.
