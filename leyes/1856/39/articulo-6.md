@@ -1,0 +1,1 @@
+Art 6°.- En la capital deberá entregarse la contribución en la Tesorería especial, establecida en el Palacio nacional, y a ella misma remitirán los Comandantes las cantidades que recauden semanalmente en las provincias.
