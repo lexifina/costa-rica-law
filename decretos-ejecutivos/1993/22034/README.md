@@ -15,3 +15,4 @@ Crea Comité Ad-Hoc Hispano Costarricense
 | --- | --- | --- |
 | 1 | 1993-04-22 | la propia norma |
 | 2 | 1995-05-23 | Decreto Ejecutivo 24420 (1995-05-23) |
+| 3 | 1998-09-03 | Ley 7822 |

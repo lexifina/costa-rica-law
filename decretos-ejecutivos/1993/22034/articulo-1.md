@@ -1,7 +1,9 @@
+(Derogado)
 N°22034-PLAN-RE
 EL PRESIDENTE DE LA REPÚBLICA
 Y LOS MINISTROS DE RELACIONES EXTERIORES Y CULTO
 Y DE PLANIFICACIÓN NACIONAL Y POLÍTICA ECONÓMICA
+NOTA: El artículo 10 de esta norma disponte que "...tendrá validez mientras se mantenga vigente el Convenio de Cooperación Técnica entre los Gobiernos de Costa Rica y España", al ser DEROGADO este convenio, por el artículo 10 de la Ley N° 7822 de 03 de Septiembre de 1998, Ley de Convenio Básico General de Cooperación Científico Técnica con España, queda tácitamente DEROGADO ESTE DECRETO. No obstante, mediante Decreto N° 28911 de 27 de julio de 2000, se promulga el "Reglamento para el Funcionamiento del Fondo de Ayuda al Equipamiento España-Costa Rica, y el Fondo de Contravalor" que en su artículo 10 constituye el Comité Ad-Hoc Hispano Costarricense (Comité Ad-Hoc).
 En uso de las facultades que les concede el Inciso 18) del Artículo 140 de la Constitución Política y el Artículo 11 de la Ley de Planificación Nacional No 5525 del de mayo de 1974, y el Artículo 1 de la Ley Orgánica del Ministerio de Relaciones Exteriores y Culto No 3008 del 18 de julio de 1962.
 Considerando:
 l°--Que corresponde al Ministerio de Planificación Nacional y Política Económica, formular, negociar, coordinar, aprobar y evaluar los programas de asistencia técnica, teniendo en cuenta los objetivos del Plan Nacional de Desarrollo. Las solicitudes de asistencia técnica serán transmitidas por el Ministerio de Relaciones Exteriores y Culto, como medio por el cual el Estado realiza todas sus gestiones ante Gobiernos e instituciones extranjeras y el que se encargará de establecer su congruencia con la política exterior del país y las presentará oportunamente.
