@@ -26,3 +26,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | 11 | 2003-02-11 | SINALEVI (sin norma nombrada) |
 | 12 | 2003-08-05 | Reglamento 383 (2003-08-05) |
 | 13 | 2003-10-07 | Reglamento 396 (2003-10-07) |
+| 14 | 2004-03-09 | Reglamento 424 (2004-03-09) |

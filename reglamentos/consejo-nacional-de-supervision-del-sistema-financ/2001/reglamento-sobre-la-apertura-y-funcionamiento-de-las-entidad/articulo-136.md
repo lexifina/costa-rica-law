@@ -1,2 +1,1 @@
-Artículo 136. De la presentación de los estudios actuariales a la Superintendencia
-Los estudios actuariales deberán presentarse a la Superintendencia en la forma y tiempo que establezca el Superintendente mediante disposición general.
+Artículo 136. (DEROGADO, en sesión N° 424 de 9 de marzo de 2004).
