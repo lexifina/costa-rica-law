@@ -1,0 +1,1 @@
+Artículo 51.- Sin perjuicio de lo establecido en el artículo 71, toda resolución de los Juzgados Tutelares será ejecutada inmediatamente, pero el Juez, de oficio o a petición de parte interesada, podrá revocar o modificar sus pronunciamientos en cualquier momento.

@@ -1,0 +1,1 @@
+Artículo 11.- Sin perjuicio de lo dispuesto en las leyes sobre estadística, los Jueces Tutelares enviarán el Registro Judicial de Delincuentes, para efectos estadísticos, una memoria anual de los casos atendidos. Esta memoria deberá enviarse en el mes de mayo.

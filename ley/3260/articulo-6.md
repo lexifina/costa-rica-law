@@ -1,0 +1,2 @@
+Artículo 6º.- Cuando fuere necesario retener a un menor de edad por encontrarse en alguna situación de las señaladas en el artículo 2º de esta ley, será llevado al Centro de Observación, o al local especial que para menores deberá existir en cada jurisdicción, y puesto inmediatamente a la orden del Juez Tutelar. En ningún caso se hará la custodia en lugares destinados a mayores de edad.
+La internación de un menor en alguna de las instituciones destinadas a su observación, educación o rehabilitación, constituirá únicamente una medida tutelar de asistencia y readaptación.

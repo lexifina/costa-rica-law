@@ -1,0 +1,1 @@
+Artículo 61.- Si los hechos no constituyeren delito, cuasidelito o falta, o se hubiere operado prescripción o perdón del ofendido o sus representantes en favor del menor, cualquiera que sea la calificación de la infracción, el juez lo hará constar en auto fundamentado y decidirá en él si ha de proseguirse la acción tutelar.

@@ -1,0 +1,1 @@
+Artículo 54.- Después de la primera entrevista, el Juez decidirá si el menor puede ser entregado a sus padres o representantes en forma definitiva o provisional, o depositado en otro hogar apto para el caso, o si es necesaria su internación en el establecimiento destinado para tal efecto.

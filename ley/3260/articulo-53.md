@@ -1,0 +1,1 @@
+Artículo 53.- Tan pronto como un menor sea enviado al Juzgado, será entrevistado por el Juez en presencia de sus padres, tutor, guardadores o representantes, si pudieren ser habidos para el acto, con el propósito de averiguar los motivos del hecho que se le atribuye, estudiar su participación, sus antecedentes y conducta, e indagar sobre la familia a que pertenece.

@@ -1,0 +1,1 @@
+Artículo 7º.- La aprehensión de los menores que deban ser remitidos a los Juzgados Tutelares se llevará a cabo por Agentes Tutelares, o, en su defecto, por inspectores de Defensa Social. En los lugares donde no existieren esas autoridades, se instruirá debidamente a las personas encargadas de realizar tales funciones.

@@ -1,0 +1,1 @@
+Artículo 43.- El Juez podrá, de oficio o a iniciativa de alguna de las personas indicadas en el artículo 68, o del director del plantel donde el menor se encuentra depositado, modificar, suspender o dar por terminada la aplicación de las medidas; la resolución respectiva se ajustará a lo establecido en el artículo 69.

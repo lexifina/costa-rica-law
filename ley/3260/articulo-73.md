@@ -1,0 +1,1 @@
+Artículo 73.- El auto que admita el recurso, contendrá siempre el emplazamiento a las partes para que acudan a usar de su derecho en la nueva instancia, dentro de un término que fijará el juez entre tres y quince días, según el lugar de residencia.
