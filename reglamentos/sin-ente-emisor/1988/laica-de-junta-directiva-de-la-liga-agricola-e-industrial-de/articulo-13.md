@@ -1,0 +1,1 @@
+Artículo 13.-Las sesiones de la junta directiva no tendrán un mínimo de duración y se prolongarán el tiempo necesario para la resolución de los asuntos sometidos a su conocimiento. En todo caso, se dejará constancia en el acta de la hora en que finaliza la sesión.

@@ -1,0 +1,1 @@
+Artículo 3°-En ausencia del presidente le corresponderá al vicepresidente presidir la sesión y si estuvieren ausentes el presidente y vicepresidente, se nombrará entre los miembros que conforman el quórum, un presidente ad hoc, para que en forma única, presida esa sesión en especial.

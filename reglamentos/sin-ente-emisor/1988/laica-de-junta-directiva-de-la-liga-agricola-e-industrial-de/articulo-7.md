@@ -1,0 +1,1 @@
+Artículo 7°-La convocatoria a sesiones extraordinarias se hará por telegramas o carta certificada con 24 horas. de anticipación a la hora en que deberá celebrarse la sesión, salvo caso de urgencia, en el cual podrá convocarse oral o telefónicamente, pero siempre con indicación de la agenda respectiva.

@@ -1,0 +1,1 @@
+Artículo 17.-Ningún director que haya presentado un asunto a discusión podrá retirarse mientras no se haya votado el mismo y está obligado a dar su voto, afirmativo o negativo. Todo voto salvado deberá constar en el acta respectiva.

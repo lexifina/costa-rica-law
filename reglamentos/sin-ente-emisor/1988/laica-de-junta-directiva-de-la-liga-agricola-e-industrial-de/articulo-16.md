@@ -1,0 +1,1 @@
+Artículo 16.-Las resoluciones de la junta directiva se tomarán por mayoría de los votos presentes en cada sesión. Se exceptuarán los casos en que la ley exija mayores calificaciones, cuales con la votación de la aplicación e interpretación de los artículos 18 y 50 de la Ley Orgánica de la Corporación.

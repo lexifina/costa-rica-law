@@ -1,0 +1,1 @@
+Artículo 15.-Los directores podrán pedir al presidente que se llame a cualquier funcionario de la institución para que rinda los informes, las explicaciones y asesoría que se requiera sobre los asuntos que se discuten.

@@ -1,0 +1,1 @@
+Artículo 19.-Los directores o cualquier otra persona presente deberán retirarse de la sesión por solicitud del presidente cuando se discuta y vote asuntos en los que de tengan interés personal, debiéndose dejar constancia de su salida e ingreso al salón de sesiones en el acta respectiva.

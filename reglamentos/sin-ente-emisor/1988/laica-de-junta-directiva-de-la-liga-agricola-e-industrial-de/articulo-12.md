@@ -1,0 +1,1 @@
+Artículo 12.-Un acuerdo podrá ser declarado firme con el voto de dos tercios de la totalidad de los miembros de la junta. Sólo podrán ser ejecutados los acuerdos firmes. Los acuerdos firmes no tendrán revisión.
