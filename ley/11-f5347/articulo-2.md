@@ -1,0 +1,1 @@
+Art. 2. Gozarán de igual gracia todas las pastas de harina que sirvan de alimento, los cereales, carnes, pescados de toda clase; y la grasa de vaca o de puerco.— Dado en San José, a los quince dias del mes de mayo de mil ochocientos cincuenta y cuatro.—Juan Rafael Mora. -El Ministro de Estado en el Despacho de Hacienda, Manuel José Carazo."
