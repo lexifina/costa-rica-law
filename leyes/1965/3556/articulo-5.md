@@ -1,0 +1,1 @@
+Artículo 5º.- Se les da nueva vigencia, en relación con las elecciones a celebrarse el 6 de febrero de 1966, a los artículos transitorios III de la Ley Nº 1536 de 10 de diciembre de 1952, y III de la Ley Nº 1594 de 7 de julio de 1953.
