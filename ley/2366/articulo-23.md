@@ -1,2 +1,2 @@
-Artículo 23.- Los miembros del Comité de Selección desempeñarán sus funciones por un período de dos años y podrán ser reelectos.
-Los nombramientos de los miembros del Comité que deban sustituir a los que hayan concluido su período, deberán hacerse dentro de los treinta días anteriores al vencimiento de éste. El que renunciare a su cargo lo participará con un mes de antelación, en el transcurso del cual deberá nombrarse el propietario sustituido.
+Del Equipo Impresor
+Artículo 23.- La Editorial, cuando sus recursos lo permitan, adquirirá la maquinaria impresora que necesite para publicar por sus propios medios. Mientras no se adquiera imprenta propia, se deben editar las obras mediante licitación, y de no ser esta necesaria por ser su costo inferior por el límite señalado por la Ley de la Administración Financiera, el Consejo Directivo editará la obra en la casa impresora que a su juicio reuna más satisfactorias condiciones.

@@ -1,1 +1,1 @@
-Transitorio III.- El primer Consejo Directivo serán nombrado dentro de los treinta días siguientes a la promulgación de la ley.
+Transitorio III.- El primer Consejo Directivo serán nombrado dentro de los treinta días siguientes a la constitución y legalización de la Asociación de Autores de Obras Literarias, Artísticas y Científicas, de acuerdo con esta ley.
