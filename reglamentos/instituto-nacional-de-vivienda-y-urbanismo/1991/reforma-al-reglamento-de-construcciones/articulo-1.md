@@ -1,0 +1,12 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+La Junta Directiva del Instituto Nacional de Vivienda y Urbanismo, en sesión ordinaria No 4142, artículo VI, celebrada el 12 de setiembre de 1991,
+ACUERDA:
+Dictar las presentes disposiciones como adición al artículo IV.6, ubicación de edificios del Reglamento de Construcciones.
+IV. 6.4 En las urbanizaciones recibidas por las Municipalidades solo se conceden! patentes y permisos de construcción para usos no residenciales en los lotes designados como comerciales o mixtos.
+IV.6.5 En caso de requerirse un área para usos no residenciales mayor a la aprobé se deberá hacer un cambio de uso que estará sujeto al consentimiento expresado por escrito de los vecinos comprendidos dentro de un radio di 50 m y de la Dirección de Urbanismo del INVU, en todo caso solo se podrán autorizar en lotes esquineros y que enfrenten a vía nacional o principal de la urbanización.
+IV.6.6 En aquellas urbanizaciones que no cuenten con lotes comerciales o mixta debidamente aprobados solo se otorgarán patentes y permisos de construcción para usos no residenciales en los lotes que enfrenten a vías clasificadas como nacionales y principalmente en lotes esquineros. Cuando la urbanización no enfrente a vía nacional la Dirección de Urbanismo podrá autorizar la instalación de usos no residenciales en lotes esquineros ubicados frente a las vías principales de la urbanización. En ambos casos el lote deben tener un frente mínimo de 10 m y de requerirse estacionamiento por lo dispuesto en este Reglamento deberá ubicarse a más de 8 m de la esquina.
+IV.6.7 En ningún caso podrán autorizarse patentes y permisos de construcción para usos no residenciales en lotes ubicados frente a alameda o calle de uso restringido (7 m de derecho de vía).
+IV.6.8 Los usos comerciales que se admiten bajo estas normas, deben ser siempre compatibles con el uso residencial predominante. En todo caso se prohiben bares, cantinas y licoreras en estos terrenos.
+IV.6.9 Cuando una urbanización residencial quede comprendida dentro de un plan de zonifícación, se entenderá que los usos permitidos se refiere a los lotes aquí indicados, salvo que el plan regulador modifique los usos de la zona con referencia expresa a la urbanización.
+IV.6.10 Cuando se trate de cambios de uso de vivienda a comercio u oficinas o \ pequeña industria, las municipalidades no autorizarán patentes si el local no puede ser adoptado al uso que se le pretende dar en lo referente a la requisitos exigidos por este Reglamento.
+Rige a partir de su publicación.
