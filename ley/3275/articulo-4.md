@@ -1,3 +1,0 @@
-Artículo 4º.- Si llegare a organizarse un sistema de apuestas sobre las carreras de caballos, aun cuando éstas fueren televisadas directamente o en video tape, el producto neto será distribuido por el Consejo Técnico de Asistencia Médico-Social, de acuerdo con lo que dispone el reglamento a esta ley, que aprobará y publicará el Poder Ejecutivo.
-Dicho reglamento será confeccionado por el Consejo Técnico de Asistencia Médico-Social, con participación de representantes del Patronato del Hospital Nacional de Niños y será sometido a la aprobación del Poder Ejecutivo, dentro de los treinta días siguiente a la publicación de la ley.
-( Así reformado por el artículo 1º de la Ley Nº 5038 del 7 de agosto de 1972).

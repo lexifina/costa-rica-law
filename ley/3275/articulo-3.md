@@ -1,1 +1,0 @@
-Artículo 3º.- Se autoriza el cobro por concepto de legalización de formularios en el monto que fije el respectivo reglamento; la suma que se derive de ese cobro, será distribuida exclusivamente entre la entidad deportiva correspondiente y el Sistema Hospitalario Nacional como se indica en el artículo 2º de esta ley.
