@@ -1,0 +1,1 @@
+ARTÍCULO 3.-En ningún caso la nacionalidad de la persona acusada podrá impedir su entrega en las condiciones estipuladas por el presente Tratado; pero ningún Gobierno estará obligado á conceder la extradición de sus propios ciudadanos, sino que podrá entregarlos cuando á su juicio sea conveniente hacerlo.

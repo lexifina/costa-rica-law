@@ -1,0 +1,2 @@
+ARTÍCULO 10.-Todos los objetos que se encontraren en poder del acusado, si los hubiere obtenido por medio de la perpetración del hecho de que se le acusa, ó pudiesen servir de prueba del delito por el cual se pide su extradición, serán secuestrados y entregados con su persona.
+Sin embargo, quedarán á salvo los derechos de tercero sobre las cosas secuestradas, si no estuviesen implicadas en la acusación.

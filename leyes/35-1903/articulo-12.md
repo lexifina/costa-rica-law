@@ -1,0 +1,1 @@
+ARTÍCULO 12.-Todos los gastos ocasionados con la extradición de un prófugo serán á cargo del Estado requiriente, exceptuándose las compensaciones de los funcionarios públicos que reciban sueldos fijos.

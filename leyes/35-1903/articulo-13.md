@@ -1,0 +1,1 @@
+ARTÍCULO 13.-La extradición de todo individuo culpable de actos de anarquismo puede pedirse siempre que la legislación de los Estados, requirientes y requerido, haya establecido la pena para dichos actos. En este caso la extradición se concederá aun cuando el delito imputado al reclamado tuviere una pena menor de dos años de prisión.
