@@ -1,0 +1,1 @@
+TRANSITORIO II.- Se autoriza a la Dirección General de Vida Silvestre para utilizar el superávit de su presupuesto o las inversiones en títulos de propiedad de que se disponga, para cumplir con los objetivos señalados en esta Ley, hasta tanto funcionen eficientemente las transferencias y desembolsos previstos en el artículo 11 de esta Ley.
