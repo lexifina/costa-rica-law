@@ -1,0 +1,2 @@
+Art. 4°-El presente decreto se someterá al conocimiento del Congreso Constitucional en la siguiente reunión ordinaria.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los veinticuatro días del mes de setiembre de mil ochocientos ochenta y tres. -JN. M. CARAZO, Vice-Presidente. LEOVIGILDO CASTRO S., Secretario. -Palacio Presidencial. -San José, á veintiocho de setiembre de mil ochocientos ochenta y tres. -Ejecútese.-P. FERNÁN- DEZ.-El Secretario de Estado en el Despacho de Gobernación.-VÍCTOR GUARDIA.
