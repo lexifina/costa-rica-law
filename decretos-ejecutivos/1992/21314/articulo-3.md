@@ -1,1 +1,0 @@
-Artículo tercero: se exceptúan del pago de este canon, los puestos para radiocomunicación propiedad del Estado. Las televisaras y emisoras estatales cancelaran según lo, establecido en los puntos A. y B. del artículo anterior.
