@@ -1,0 +1,1 @@
+Art. 2. En consecuencia, el Ejecutivo del Estado se dirigirá á los de los otros de Centro América, exitandolos y persuadiéndolos amistosamente, con el fin de que se decidan por la medida que indica el art. anterior, en concepto de ser la más ajustada a principios y la que demanda la naturaleza de nuestro sistema.
