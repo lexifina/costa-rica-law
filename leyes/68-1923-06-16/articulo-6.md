@@ -1,0 +1,1 @@
+Artículo 6°--Los Gobernadores Jefes políticos, Agentes de Policía y demás autoridades del mismo ramo deberán exigir, en sus respectivos territorios el estricto, cumplimiento de los artículos 550, 551; y 552 del Código Fiscal.
