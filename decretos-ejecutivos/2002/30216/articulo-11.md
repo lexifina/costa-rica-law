@@ -1,0 +1,1 @@
+Artículo 11.—En los casos que proceda el nombramiento de personal, se exigirá al candidato una declaración jurada, con el fin de verificar que se haya cumplido con lo establecido en el artículo 25º de la Ley Nº 6955 y sus reformas.
