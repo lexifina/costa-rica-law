@@ -1,5 +1,7 @@
+(Derogado)
 Nº 30067-MINAE
 EL PRESIDENTE DE LA REPÚBLICA Y LA MINISTRA DEL AMBIENTE Y ENERGÍA
+DEROGADO TOTAL Y EXPRESAMENTE por el artículo 37 del Decreto Ejecutivo No. 30355 de 23 de abril de 2002, publicado en La Gaceta No. 92 de 15 de mayo de 2002.
 En uso de las facultades que les confieren los incisos 3) y 18) del artículo 140 de la Constitución Política, el inciso d) del artículo 6º de la Ley Nº 6227 del 2 de mayo de 1978, el inciso 2) del artículo 6º de la Ley Nº 6084 del 24 de agosto de 1977, el artículo 125 de la Ley Nº 7317 del 7 de diciembre de 1992, los artículos 11y 42 de la Ley de Biodiversidad, Nº 7788 del 27 de mayo de 1998 y el artículo 6º, inciso d), 1º el 16 y 27 inciso 1) de la Ley General de la Administración Pública.
 Considerando:
 1º—Que la Ley de Biodiversidad tiene como objeto la conservación de la Biodiversidad y el uso sostenible de los recursos y la distribución justa de los beneficios y costos derivados, autorizando para ello al Ministerio del Ambiente y Energía a través del Sistema Nacional de Áreas de Conservación, para el cobro de tarifas diferenciadas para el ingreso a todas las áreas silvestres protegidas estatales.
