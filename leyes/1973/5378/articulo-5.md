@@ -1,0 +1,1 @@
+Artículo 5°-Se derogan el artículo 3° de la citada ley N° 2377 del 25 de junio de 1959, y la ley N° 3310 de 27 de julio de 1964, sobre pensiones para los combatientes de Sixaola, Almirante, Guabito y Bocas del Toro.
