@@ -21,3 +21,4 @@ Reglamento para el Pago de Caña de Azúcar de Acuerdo con su Calidad
 | 6 | 1990-09-11 | Reglamento 1351 (1990-09-11) |
 | 7 | 1990-10-04 | Reglamento 1353 (1990-10-04) |
 | 8 | 1994-12-20 | Reglamento 1568 (1994-12-20) |
+| 9 | 1995-05-02 | Reglamento 1586 (1995-05-02) |
