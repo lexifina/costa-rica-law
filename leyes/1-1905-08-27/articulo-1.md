@@ -1,0 +1,10 @@
+COMISIÓN PERMANENTE
+N°1
+COMISIÓN PERMANENTE DEL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
+A iniciativa del Poder Ejecutivo y en conformidad con lo dispone la fracción 4° del artículo 94 de la Constitución Política.
+Decreta:
+Artículo primero: Reformase los artículos 103 y 104 de la Ley de Elecciones en los siguientes términos.
+“Articulo 103. – Corresponderá a la Sala de Casación del Supremo Tribunal de Justicia, cuyos miembros no pueden excusarse, ni son recusables en el caso, resolver cualesquiera reclamaciones de nulidad de elecciones de primer grado, o de Munícipes y Síndicos con sujeción a los dispuesto en los artículos 47, 99, 100, 101 y 102 de esta ley. Dicho Tribunal resolverá previamente acerca de la legalidad de la causa alegada, conforme a lo dispuesto en el artículo 106 de la misma, no admitirá ninguna reclamación que se presente después del lapso de diez días naturales, contados desde el siguiente al último de las elecciones, y fallará las demandas respectivas, sin celebración de vista, en el curso de los cinco días siguientes al de su presentación.
+Sin embargo, cuando se tratare de la validez de la elección de Diputados o de Presidente de la República, las nulidades alegadas serán de conocimiento del Congreso, el cual al para juzgar de le elección hecha por la Asamblea de electores, sino que no obstante lo que haya declarado la Sala de Casación sobre validez o nulidad de las elecciones de primer grado, o sobre la calidad legal de un elector, podrá conocer de esos puntos en cuanto se refieran a la elección de Diputados o de Presidente de la República.
+Tanto el Congreso, como la Sala de Casación, apreciarán la realidad y eficacia de la prueba rendida en tales reclamaciones, con entera libertad de criterio, conformándose tan sólo a las reglas de la sana crítica.
+Artículo 104° Contra lo que la Sala de Casación resuelva en esta materia, y no pudiere ser revisto por el Congreso, conforme al artículo anterior, no cabe mas recurso que el de responsabilidad.
