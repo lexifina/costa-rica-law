@@ -1,0 +1,1 @@
+Artículo 18.-Deróganse los Decretos Ejecutivos Nº 3 de 2 de diciembre de 1907, Nº 7 de 13 de diciembre de 1920, el Decreto-Ley Nº 383 de 15 de febrero de 1949, el Reglamento de Centros Agrícolas Cantonales y Agrónomos Regionales publicado en "La Gaceta" Nº 158 del 16 de julio de 1949 y el Decreto Ejecutivo Nº 5 de 17 de julio de 1960.

@@ -1,0 +1,1 @@
+Artículo 16.-Los Centros Agrícolas Cantonales podrán importar, libres de derechos aduaneros y exentos de toda clase de impuestos, la maquinaria, equipo, implementos y materiales necesarios para llevar a cabo su cometido.

@@ -1,0 +1,1 @@
+Artículo 10.-Quedan autorizados los Centros Agrícolas Cantonales para depositar, en una cuenta especial en un banco del Sistema Bancario Nacional, todos sus fondos, los cuales emplearán exclusivamente en cumplimiento de los objetivos de la presente ley.

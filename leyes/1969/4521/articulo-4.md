@@ -1,0 +1,1 @@
+Artículo 4º.-Con excepción de los funcionarios de las distintas dependencias estatales, municipales y de instituciones autónomas, los miembros serán nombrados por un período de dos años, pudiendo ser reelectos. La designación en los años siguientes deberá hacerse dentro de los quince días anteriores al vencimiento de cada período.

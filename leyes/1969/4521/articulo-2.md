@@ -1,0 +1,1 @@
+Artículo 2º.-Estos organismos están adscritos al Ministerio de Agricultura y Ganadería bajo la orientación técnica del Servicio de Extensión Agrícola y de la Oficina de Planeamiento y Coordinación, pero en el manejo de fondos están sujetos a las prescripciones del artículo 9º de esta ley.

@@ -1,0 +1,1 @@
+Artículo 11.-Quedan autorizadas las instituciones autónomas y semiautónomas, así como las municipalidades, para incluir en sus presupuestos las partidas anuales que estén en capacidad de destinar para la financiación de los proyectos que lleven a cabo los Centros Agrícolas Cantonales.

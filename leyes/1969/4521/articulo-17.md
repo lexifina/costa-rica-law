@@ -1,0 +1,1 @@
+Artículo 17.-El Ministerio de Agricultura y Ganadería establecerá los Centros Agrícolas Cantonales, en forma gradual, de conformidad con sus posibilidades de personal y el interés despertado por este tipo de organización en las diferentes zonas agrícolas del país.
