@@ -1,0 +1,1 @@
+Artículo 20.- La salida de mercancías del depósito libre comercial, en contravención a las disposiciones de la presente ley y sus reglamentos, tendrá las mismas implicaciones que las leyes establecen con respecto de los delitos de contrabando y defraudación fiscal.

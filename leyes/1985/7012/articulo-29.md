@@ -1,0 +1,2 @@
+Artículo 29.- Adiciónase un párrafo al artículo 11 de la ley sobre la Venta de Licores, Nº 10 del 7 de octubre de 1936 y sus reformas, que dirá:
+"Los establecimientos de interés turístico tendrán derecho a obtener del Concejo Municipal de Golfito la licencia para la venta de licores nacionales o extranjeros, mediante el simple pago de la respectiva patente. La licencia se cancelará cuando cese la actividad del respectivo negocio y no será transferible. La Municipalidad llevará un riguroso control de tales patentes."

@@ -1,0 +1,1 @@
+Artículo 17.- Las personas o instituciones que, en virtud de legislación especial, gocen del beneficio de exoneración total de impuestos de importación, también podrán adquirir mercaderías en el depósito libre comercial, con base en tales franquicias, previo cumplimiento de las formalidades correspondientes.

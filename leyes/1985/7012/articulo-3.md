@@ -1,0 +1,1 @@
+Artículo 3º.- Se entiende por "depósito libre comercial" el área física, debidamente cercada, cuyos límites son vigilados por la Aduana, en la que se encuentran almacenes y expendios para la venta de mercaderías, nacionales y extranjeras, libres de todo tributo.

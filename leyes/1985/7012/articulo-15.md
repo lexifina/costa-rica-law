@@ -1,0 +1,1 @@
+Artículo 15.- Toda persona física o jurídica, que se establezca como comerciante en el depósito libre comercial, estará regida por lo dispuesto en esta ley y sus reglamentos: así como por las regulaciones que dicte el Ministerio de Hacienda y por las que normen el ejercicio del comercio y de la industria en el país.
