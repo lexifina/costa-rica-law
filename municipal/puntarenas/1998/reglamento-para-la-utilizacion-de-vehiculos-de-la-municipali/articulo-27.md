@@ -1,0 +1,4 @@
+Artículo 27.—Es de acatamiento obligatorio el Manual sobre Normas Técnicas y Control Interno al uso, control y mantenimiento de vehículos, esto de conformidad con lo dispuesto por los artículos 12, 24 y 60 de la Ley Orgánica N° 7428 “de la Contraloría General de la República.
+Cualquier reforma o adición a este reglamento será aprobada por el Concejo Municipal y requerirá para su eficacia la aprobación definitiva de la Contraloría General de la República.
+De conformidad con lo dispuesto por el Artículo 4° de la Ley N° 5691 del 19 de mayo de 1975, se aprueba el presente “REGLAMENTO PARA LA UTILIZACIÓN DE VEHÍCULOS DE LA MUNICIPALIDAD DE PUNTARENAS”, debiendo proceder esa Corporación Municipal a disponer su publicación en el Diario oficial La Gaceta.
+San José, a las 15,00 horas del 22 de abril de 1998.—

@@ -1,0 +1,3 @@
+Artículo 3°—Los vehículos de toda clase que existan en la Municipalidad, sólo podrán ser conducidos por aquellos Funcionarios que estén nombrados como choferes con los requisitos pertinentes, salvo en los casos que por inopia se haga necesario ocupar otro personal de la Municipalidad para tal labor.
+En ningún caso las facilidades y ventajas que represente para el servidor municipal, el uso del vehículo será parte del respectivo contrato de trabajo.
+La Oficina de Personal llevará un registro actualizado con prontuario que contenga toda la información y récord de los choferes con que cuenta la Institución así como el personal que en casos especiales y por situaciones emergentes puedan desempeñarse como conductores.

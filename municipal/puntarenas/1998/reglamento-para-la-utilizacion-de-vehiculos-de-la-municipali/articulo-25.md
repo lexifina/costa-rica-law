@@ -1,0 +1,1 @@
+Artículo 25.—Cuando la naturaleza de la labor a desarrollar así como la conveniencia y oportunidad del medio a usar, permitan la utilización de medios de transporte público (autobuses, trenes etc.) estos deberán preferirse siempre que resulten más económicos, sin menoscabo de la labor a realizar.
