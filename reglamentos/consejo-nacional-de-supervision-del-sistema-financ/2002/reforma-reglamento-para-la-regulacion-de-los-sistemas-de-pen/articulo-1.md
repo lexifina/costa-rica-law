@@ -1,0 +1,12 @@
+El Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 6, del Acta de la Sesión 346-2002, celebrada el 19 de diciembre del 2002,
+considerando que:
+a. El artículo 171 de la Ley Reguladora del Mercado de Valores, Ley 7732, en su literal q), modificado por la Ley de Protección al Trabajador, Ley 7983, establece como una función del CONASSIF aprobar las normas garantes de la supervisión y resguardo de la solidez financiera de los regímenes de pensiones del Poder Judicial y cualesquiera otros creados por ley o convenciones colectivas.
+b. El Consejo Nacional de Supervisión del Sistema Financiero, mediante Artículo 11, del Acta de la Sesión 302-2002, celebrada el 28 de mayo del 2002 aprobó el "Reglamento para la regulación de los Sistemas de Pensiones Complementarias, creados por Ley Especial o Convención Colectiva y los Regímenes Públicos sustitutos del Régimen de Invalidez, Vejez y Muerte".
+c. Para el adecuado cumplimiento de los objetivos de la "Ley de Protección al Trabajador", se requiere que el Consejo Nacional de Supervisión del Sistema Financiero emita las normas reglamentarias requeridas.
+d. Realizadas las primeras sesiones de trabajo con los regulados, se ha determinado de que existe imposibilidad de cumplir con la implementación del Plan de Cuentas en el plazo al que hace referencia el citado reglamento, debido a que los fondos deben realizar desarrollos informáticos y cambios en su infraestructura contable.
+e. La Superintendencia de Pensiones está desarrollando un modelo de supervisión basado en riesgos, el cual implica el cálculo de ciertos indicadores de riesgo, tanto operativo como financiero, para los "fondos especiales" y que utilizan como insumo información de algunas cuentas que son preferibles de incorporar de previo a la aprobación del citado Plan de Cuentas.
+Convino en tomar el siguiente acuerdo:
+Modificar el transitorio VI. Plan de Cuentas del "Reglamento para la regulación de los Sistemas de Pensiones Complementarias, creados por Ley Especial o Convención Colectiva y los Regímenes Públicos sustitutos del Régimen de Invalidez, Vejez y Muerte", de manera tal que se lea como se copia a continuación:
+Transitorio VI.—Plan de Cuentas.
+Los entes administradores deberán adoptar el plan de cuentas dictado por la Superintendencia de Pensiones a partir del 1° de enero del 2004.
+La presente modificación reglamentaria rige a partir del 19 de diciembre del 2002.
