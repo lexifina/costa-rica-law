@@ -1,0 +1,15 @@
+Artículo 8º.- Todo casino debe emitir comprobantes numerados
+cronológicamente, tanto para las entradas de dinero como para las salidas
+de este de las mesas de juego, en forma perfectamente legibles y sellados
+previamente por la Tributación Directa. En el documento de entrada o
+recepción de dinero deberá anotarse como mínimo: la fecha, el monto
+comprado en fichas, el nombre del empleado que emite el recibo y su
+firma. Este último documento o comprobante deberá introducirse, junto
+con el dinero recibido en las cajas, que para este efecto llevarán las
+mesas de juego. Por su parte, el comprobante de salida deberá contener
+como mínima información: la fecha de emisión, la suma pagada, nombre y
+firmas de los funcionarios que autorizan el pago, y nombre, firma y
+número de cédula de identidad o pasaporte, en caso de extranjeros, de
+quien recibe el dinero si se trata de un monto superior a los cincuenta
+mil colones. Todos estos documentos deberán estar disponibles para su
+examen por las autoridades competentes.

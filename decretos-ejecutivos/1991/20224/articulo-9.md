@@ -1,0 +1,5 @@
+Artículo 9º.- Para permanecer en los casinos será necesario, en
+caso de los extranjeros mostrar el pasaporte o documento idóneo que
+compruebe la legalidad de su estancia en Costa Rica y depositarlo en la
+Administración del casino mientras permanezca dentro de él; los
+nacionales deberán mostrar su cédula de identidad al día.

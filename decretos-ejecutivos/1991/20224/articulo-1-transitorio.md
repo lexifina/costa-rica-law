@@ -1,0 +1,1 @@
+Transitorio 1º.- Los casinos autorizados antes de la promulgación del presente decreto, que se encuentren operando actualmente, gozarán de un plazo de tres meses para ajustarse a las disposiciones del presente, so pena de clausura del casino.

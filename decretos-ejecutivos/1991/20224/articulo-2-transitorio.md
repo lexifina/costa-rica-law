@@ -1,0 +1,1 @@
+Transitorio 2º.- Para la renovación de patentes y permisos de funcionamiento otorgados antes de promulgado este decreto, será necesario cumplir con los requisitos que aquí se estipulan bajo el apercibimiento de que si no cumple, no les serán renovados dichos documentos.
