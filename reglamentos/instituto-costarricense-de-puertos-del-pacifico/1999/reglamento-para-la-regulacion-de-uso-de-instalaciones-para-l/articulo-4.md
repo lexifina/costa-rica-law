@@ -1,0 +1,1 @@
+Artículo 4°—Cumpliendo los requisitos del presente reglamento, los permisos serán autorizados por el Gerente General, siendo también de su competencia la firma del respectivo acto mediante el cual se formalice el régimen de obligaciones y derechos de los permisionarios.
