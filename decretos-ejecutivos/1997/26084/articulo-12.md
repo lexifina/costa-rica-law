@@ -1,1 +1,2 @@
-Artículo 12.—En los casos en que la Municipalidad respectiva detecte violaciones o infracciones a la Ley No 7633 deberá proceder a efectuar la denuncia respectiva ante la Alcaldía competente, debiendo dar seguimiento a la misma, de manera tal que se aporten las pruebas necesarias para demostrar lo denunciado.
+Artículo 12.—En los casos en que las autoridades competentes detecten violaciones o infracciones a la ley No 7633 deberán proceder a efectuar la denuncia respectiva ante la Alcaldía competente, debiendo dar seguimientos a la mismas, de manera tal que se aporten las pruebas necesarias para demostrar lo denunciado.
+(Así Reformado por el artículo 1° del Decreto Ejecutivo N° 26355 del 4 de Agosto de 1997)
