@@ -18,3 +18,4 @@ Reglamento a la Ley de Régimen de Zonas Francas.
 | 3 | 2002-01-25 | Decreto Ejecutivo 30124 (2002-01-25) |
 | 4 | 2002-04-18 | Decreto Ejecutivo 30407 (2002-04-18) |
 | 5 | 2002-10-23 | Decreto Ejecutivo 30849 (2002-10-23) |
+| 6 | 2003-10-20 | Decreto Ejecutivo 31585 (2003-10-20) |
