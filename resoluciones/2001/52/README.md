@@ -14,3 +14,4 @@ Establece los criterios interpretativos respecto del efecto en el impuesto sobre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-12-06 | la propia norma |
+| 2 | 2002-01-29 | Resolución 4 (2002-01-29) |
