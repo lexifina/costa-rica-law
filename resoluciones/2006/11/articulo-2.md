@@ -1,0 +1,1 @@
+Artículo 2º—Rige a partir de la vigencia de la Ley de Contingencia Fiscal, N° 8343 de 18 de diciembre del 2002, publicada en La Gaceta N° 250 del 27 de diciembre del 2003, que adicionó el artículo 15 bis) a la Ley del Impuesto General sobre las Ventas.
