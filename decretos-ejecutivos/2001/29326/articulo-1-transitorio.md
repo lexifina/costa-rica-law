@@ -1,0 +1,1 @@
+Transitorio único.—Los funcionarios que ocupen a la entrada en vigencia del presente Decreto, el puesto de Asesor de Educación 2 y que, por la vía de la reasignación, sus puestos pasen a la clase de Jefe Técnico de Educación 1, tendrán derecho a recibir el monto por concepto de viático fijo asignado a esta última clase de puesto.

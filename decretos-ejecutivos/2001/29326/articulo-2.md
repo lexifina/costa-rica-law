@@ -1,0 +1,1 @@
+Artículo 2º—Le corresponderá a cada Dirección Regional de Educación, supervisar el cumplimiento de la cantidad y calidad de las visitas a instituciones educativas, según lo establecido en el plan anual de trabajo de la Dirección Regional respectiva.

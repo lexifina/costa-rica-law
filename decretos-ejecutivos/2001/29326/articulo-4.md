@@ -1,0 +1,1 @@
+Artículo 4º—Este Decreto rige a partir del 1º de enero del 2001 y su aplicación queda sujeta a la disponibilidad presupuestaria correspondiente y deroga al Decreto Ejecutivo Nº 25.040-MEP del 20 de marzo de 1996.
