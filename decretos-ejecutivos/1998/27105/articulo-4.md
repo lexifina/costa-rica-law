@@ -1,0 +1,1 @@
+Artículo 4°— La Comisión se dará la organización interna que juzgue adecuada y contará, para el mejor cumplimiento de su misión, con el apoyo de las instituciones públicas, las que en la medida de sus posibilidades legales y económicas coadyuvarán para el logro de los objetivos de aquella.
