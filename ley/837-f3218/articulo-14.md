@@ -14,11 +14,11 @@ Sobre el exceso de 150,000.00 Hasta 200,000.00 un 32% anual
 Sobre el exceso de 200,000.00 Hasta 250,000.00 un 38% anual
 Sobre el exceso de 250,000.00 Hasta 350,000.00 un 44% anual
 Sobre el exceso de 350,000.00 en adelante un 50% anual
-2) En el caso de sociedades de hecho o de derecho, patrimonios hereditarios indivisos, establecimientos permanentes, fideicomisos o encargos de confianza, se aplicará sobre la renta líquida obtenida, la escala progresiva que sigue:
-De cero (0), hasta cincuenta mil colones (¢ 50.000,00) un quince por ciento (15%) anual.
-Sobre el exceso de cincuenta mil colones (¢ 50.000,00) y hasta cien mil colones (¢ 100.000,00) un veinte por ciento (20%) anual.
-Sobre el exceso de cien mil colones (¢ 100.000,00) y hasta doscientos mil colones (¢ 200.000,00) un treinta por ciento (30%) anual.
-Sobre el exceso de doscientos mil colones (¢ 200.000,00) hasta un millón de colones (¢ 1.000.000.00) un cuarenta por ciento (40%) anual.
-Sobre el exceso de un millón de colones (¢ 1.000.000,00) un cincuenta por ciento (50%) anual".
-(Así reformado el inciso 2) anterior por el artículo 2° de la ley N°6450 del 15 de julio de 1980)
+2) En el caso de sociedades de hecho o de derecho, patrimonios hereditarios indivisos, establecimientos permanentes, fideicomisos o encargos de confianza, se aplicarán sobre la renta líquida obtenida la escala progresiva que sigue:
+De cero (0) hasta mil colones (100.000) un diez por ciento (10%) anual.
+Sobre el exceso de cien mil colones (¢ 100.000) y hasta doscientos cincuenta mil colones (250.000) un veinte por ciento (20%) anual.
+Sobre el exceso de doscientos cincuenta mil colones (¢ 250.000) y hasta quinientos mil colones (¢ 500.000) un veinticinco por ciento (25%) anual.
+Sobre el exceso de quinientos mil colones (¢ 500.000) y hasta setecientos cincuenta mil colones (¢ 750 000) un treinta y cinco por ciento (35%) anual.
+Sobre el exceso de setecientos cincuenta mil colones (¢ 750.000) y hasta un millón de colones (¢ 1.000.000) un cincuenta por ciento (50%) anual."
+(Así reformado el inciso 2) anterior por el artículo 38° de la ley N° 6955 del 24 de febrero de 1984)
 (Así reformado por el artículo 20 de la ley N° 4961 del 11 de marzo de 1972)
