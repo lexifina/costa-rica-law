@@ -12,3 +12,4 @@ Reglamento del Museo Histórico Cultural Juan Santamaría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-05-04 | la propia norma |
+| 2 | 1995-05-02 | Decreto Ejecutivo 24295 (1995-05-02) |
