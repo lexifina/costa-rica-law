@@ -1,0 +1,1 @@
+Artículo 11.—Este reglamento modifica en lo que a viático fijo se refiere, las circulares números 0110870 del 27 de julio de 1999, 008586 del 27 de febrero de 1997 y la circular número 0016830 del 9 de setiembre de 1997 suscritas por las Gerencias de División.

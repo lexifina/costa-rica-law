@@ -1,0 +1,1 @@
+Artículo 9º—La Institución tratándose de permisos con goce de salario para efectos de capacitación del funcionario (a), por excepción, únicamente por este concepto, autoriza a que se le pague la diferencia diaria entre lo que recibe como viático fijo y lo que le corresponde por viático de tabla, para efectos de alimentación y hospedaje por el tiempo que dure el respectivo curso.

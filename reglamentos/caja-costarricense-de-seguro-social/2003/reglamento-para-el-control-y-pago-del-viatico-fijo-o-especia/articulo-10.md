@@ -1,0 +1,2 @@
+Artículo 10.—Las Jefaturas que aprueban la diferencia por viático contemplada en el artículo anterior, deben indicar en la fórmula Orden de Pago de Viáticos, la totalidad de los viáticos requeridos para el curso, menos la suma que durante esos días se paga por viático fijo, debiéndose entonces girar únicamente la diferencia resultante.
+La dependencia que efectúa el pago deberá comprobar que el pago que va efectuar corresponda efectivamente a la diferencia indicada en el párrafo anterior.

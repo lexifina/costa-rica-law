@@ -1,0 +1,1 @@
+Artículo 3º—La Gerencia División Administrativa por medio de la Dirección de Recursos Humanos, revisará las normas y demás disposiciones contenidas en el presente Reglamento cuando lo considere estrictamente necesario, a efecto de estimar la necesidad de introducirle modificaciones del mismo las cuales deben contar con aprobación de Junta Directiva.

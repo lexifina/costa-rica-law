@@ -1,0 +1,1 @@
+Artículo 8º—Los funcionarios traspasados del Ministerio de Salud a la Caja, que conserven como derecho el viático fijo no puede pagárseles el viático de tabla, o sea, aquel que regula el Reglamento de Gastos de Viaje y Transporte para funcionarios públicos.
