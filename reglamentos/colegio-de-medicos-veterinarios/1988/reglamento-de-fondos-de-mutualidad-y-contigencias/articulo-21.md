@@ -1,0 +1,1 @@
+Artículo 21.-El monto a entregar a los beneficiarios se revisará anualmente. Sin embargo no podrá ser menor de cuatro veces, ni mayor de cinco veces la cantidad que debe recaudarse con las cuotas ordinarias en un mes.
