@@ -13,3 +13,4 @@ Reglamenta Aval ICE Operaciones de Crédito para Proyectos Eléctricos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-04-14 | la propia norma |
+| 2 | 1980-04-14 | SINALEVI (sin norma nombrada) |
