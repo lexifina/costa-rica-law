@@ -1,0 +1,7 @@
+Artículo 29.- El mutualista que incurriere en atraso de más de seis
+meses de pago de las cuotas de mutualidad, será reconvenido y se le dará
+un mes de plazo para el pago; si no se cumpliere con éste, será suspendido
+en el ejercicio de sus funciones por resolución de la Junta Directiva del
+Colegio la cual se publicará en el Diario Oficial. La suspensión se
+levantará tan pronto como se paguen las cuotas atrasadas y un veinticinco
+por ciento más en concepto de multa.
