@@ -1,1 +1,5 @@
-Artículo 22.—De conformidad con la Ley de Administración Financiera y Presupuestos Públicos (Ley Nº 8131), el ICE podrá girar el dinero de la donación una vez que la entidad beneficiaria presente la modificación presupuestaria aprobada por la Contraloría General de la República.
+TÍTULO II
+De los tipos de donación
+CAPÍTULO I
+De la donación en dinero
+Artículo 19.—Las solicitudes de donación de dinero, que se formulen, además de cumplir con los requisitos señalados en este Reglamento, deberán venir acompañadas de la descripción del presupuesto debidamente detallado, del plan de inversión, la finalidad y el plazo estimado de ejecución del proyecto.

@@ -1,1 +1,5 @@
-Artículo 30.—Tratándose de bienes inscribibles en el Registro Nacional, no procederá la entrega del bien o bienes, hasta tanto no conste su inscripción respectiva. La inscripción deberá realizarse en un plazo no mayor de tres meses después de otorgada la escritura. Lo anterior sin perjuicio de que haya prórroga del plazo en casos justificados y debidamente demostrados, que se sujeten a la aprobación del Consejo Directivo del ICE. En todo caso, tratándose de bienes inscribibles, será responsabilidad del donatario asumir la totalidad de los gastos de inscripción, cuyo otorgamiento le corresponderá realizar a través de la Dirección Jurídica Institucional.
+CAPÍTULO II
+De las donaciones de activos muebles e inmuebles, productos
+forestales, agregados, material didáctico,
+bienes obsoletos y de desecho
+Artículo 27.—La solicitud de donación deberá especificar claramente las características de los bienes que se pretenden donar.

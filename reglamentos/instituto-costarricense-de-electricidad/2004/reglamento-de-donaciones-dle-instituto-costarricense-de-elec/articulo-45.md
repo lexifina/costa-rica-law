@@ -1,1 +1,1 @@
-Artículo 45.—Será el Área de Avalúos de la Dirección Administrativa de Logística, a solicitud de la Dirección de Proveeduría, la responsable de llevar a cabo los avalúos y peritajes en materia de donaciones.
+Artículo 42.—En todos los casos que suponga la administración de recursos públicos, la entidad beneficiaria deberá cumplir con lo dispuesto en la Ley de la Administración Financiera y Presupuestos Públicos y la Ley de la Contratación Administrativa y su Reglamento.

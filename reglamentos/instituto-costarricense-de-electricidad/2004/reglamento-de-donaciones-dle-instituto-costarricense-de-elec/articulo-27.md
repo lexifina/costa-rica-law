@@ -1,5 +1,1 @@
-CAPÍTULO II
-De las donaciones de activos muebles e inmuebles, productos
-forestales, agregados, material didáctico,
-bienes obsoletos y de desecho
-Artículo 27.—La solicitud de donación deberá especificar claramente las características de los bienes que se pretenden donar.
+Artículo 24.—Una vez entregada la donación en dinero, la entidad beneficiaria deberá aplicarla al plazo estipulado para la ejecución del proyecto. Si transcurridos 90 días naturales no han realizado la ejecución del proyecto, la entidad beneficiaria deberá justificar dicha situación en el término de 30 días naturales; caso contrario el ICE le exigirá la devolución de los recursos donados.

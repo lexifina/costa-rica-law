@@ -1,1 +1,3 @@
-Artículo 40.—Cuando por su naturaleza la aprobación de una solicitud de donación requiera la elaboración de contratos, y otros documentos legales, será responsabilidad de la Dirección Jurídica Institucional, la elaboración de estos documentos, previa coordinación con la Dirección de Proveeduría, Presidencia Ejecutiva, Gerencia General, Subgerencias respectivas, según corresponda.
+TÍTULO III
+Disposiciones finales
+Artículo 37.—Una vez aprobada por el ICE una donación, el beneficiario queda obligado a permitir las inspecciones y verificaciones que el ICE crea conveniente, con la finalidad de evidenciar el uso y destino para el cual fue otorgado el bien que fue donado.

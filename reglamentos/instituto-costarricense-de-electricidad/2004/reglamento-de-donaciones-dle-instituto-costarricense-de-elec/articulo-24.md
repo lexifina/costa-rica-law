@@ -1,1 +1,1 @@
-Artículo 24.—Una vez entregada la donación en dinero, la entidad beneficiaria deberá aplicarla al plazo estipulado para la ejecución del proyecto. Si transcurridos 90 días naturales no han realizado la ejecución del proyecto, la entidad beneficiaria deberá justificar dicha situación en el término de 30 días naturales; caso contrario el ICE le exigirá la devolución de los recursos donados.
+Artículo 21.—Una vez aprobada la donación de dinero, por parte del órgano que corresponda, se comunicará a las entidades solicitantes el acuerdo de aprobación.

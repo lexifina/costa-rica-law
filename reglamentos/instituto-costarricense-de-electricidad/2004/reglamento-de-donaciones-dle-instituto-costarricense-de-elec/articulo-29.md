@@ -1,1 +1,1 @@
-Artículo 29.—En la escritura pública descrita en el artículo 12 de este reglamento, se deberá consignar el estado del bien donado, características esenciales, avalúo y el número de registro institucional.
+Artículo 26.—El incumplimiento del artículo anterior o el uso inadecuado de los recursos financieros donados, obligará al ICE a exigir a la entidad beneficiaria, la devolución inmediata de los fondos donados y esta deberá dar cumplimiento a tal obligación.
