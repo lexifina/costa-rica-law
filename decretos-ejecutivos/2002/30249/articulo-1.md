@@ -9,3 +9,4 @@ Considerando:
 4º—Que por lo anterior, resulta necesario ampliar los límites de gasto presupuestario y efectivo del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco, establecidos en el artículo 1° del Decreto Ejecutivo N° 29511-H, publicado en La Gaceta N° 98 del 23 de mayo del 2001. Por tanto,
 Decretan:
 Artículo 1º—Modifícase el artículo 1° del Decreto Ejecutivo N° 29511-H, para fijar en ¢195.7 millones los límites de gasto presupuestario y efectivo del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco para el 2002.
+(Mediante artículo 1 del decreto ejecutivo N° 30825 de 25 de octubre del 2002, se modifica el límite de gasto presupuestario y efectivo del 2002 para el Colegio Universitario para el Riego y el Desarrollo del Trópico Seco)
