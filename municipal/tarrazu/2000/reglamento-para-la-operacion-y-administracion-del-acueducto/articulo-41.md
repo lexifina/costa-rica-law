@@ -1,0 +1,1 @@
+Artículo 39.—De la medición del servicio. La Municipalidad deberá, dentro de sus posibilidades, medir el consumo de agua potable en su jurisdicción, para lo cual se abocará a la obtención de hidrómetros, sea con fondos propios, créditos, donaciones, etc., para poder controlar de manera más eficiente el uso que de ella hagan los usuarios.
