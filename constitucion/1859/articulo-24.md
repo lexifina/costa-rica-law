@@ -1,0 +1,1 @@
+Artículo 24.-Todo Costarricense puede trasladarse a cualquier punto de la República ó país extranjero, siempre que se halle libre de toda responsabilidad, y puede volver a su patria cuando le convenga.

@@ -1,0 +1,1 @@
+Artículo 81.-Ambas Cámaras residirán en la capital de la República; y tanto para trasladar su residencia a otra población, como para suspender sus sesiones, por tiempo determinado, se necesita el mutuo consentimiento de las dos.

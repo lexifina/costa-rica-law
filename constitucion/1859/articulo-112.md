@@ -1,0 +1,1 @@
+Artículo 112.-El Presidente de la República mientras dure en su destino ó el Encargado del Poder Ejecutivo, no pueden ser perseguidos ni juzgados por delitos comunes, sino después que, a virtud de acusación interpuesta, haya declarado el Congreso haber lugar a formación de causa.

@@ -1,0 +1,1 @@
+Artículo 95.-Ningún proyecto de ley, aunque esté aprobado por ambas Cámaras, tendrá fuerza de ley, sin la sanción del Poder Ejecutivo. Si este hallare por conveniente dársela, lo hará mandándolo ejecutar y publicar; pero si se la rehusare, lo objetará y devolverá a la Cámara de su origen con las objeciones que le haga.

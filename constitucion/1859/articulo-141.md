@@ -1,0 +1,1 @@
+Artículo 141.-La reforma general de esta Constitución, una vez acordado el proyecto para los trámites de que habla el artículo anterior, no podrá hacerse si no por una Constituyente convocada al efecto.

@@ -1,0 +1,1 @@
+Artículo 126.-Corresponde a la Corte Suprema de Justicia, hacer el nombramiento de los Jueces de 1ª Instancia y demás funcionarios que designe la ley: conocer de las renuncias de estos y concederles licencias, cuando las soliciten:

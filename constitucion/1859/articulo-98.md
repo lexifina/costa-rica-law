@@ -1,0 +1,1 @@
+Artículo 98.-Para que se considere objetado por el Poder Ejecutivo un proyecto de ley, es indispensables que sea devuelto a las Cámaras dentro del preciso término de diez días. Si esto no se verificare, se considerará como ley de la República.

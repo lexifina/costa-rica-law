@@ -1,0 +1,1 @@
+Artículo 51.-Son deberes de los Costarricenses: 1º.-Vivir sometidos a la Constitución y a las leyes, y obedecer y respetar las legítimas autoridades. 2º.-Contribuir para las gastos públicos: 3º.-Servir a la patria y defenderla.

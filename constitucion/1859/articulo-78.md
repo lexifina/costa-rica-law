@@ -1,0 +1,1 @@
+Artículo 78.-Ninguna de las Cámaras podrá abrir sus sesiones, ni ejercer las funciones que le competen, sin la concurrencia de los dos tercios de sus respectivos miembros: ni la una podrá instalarse ó abrir sus sesiones en distinto día que la otra, ni continuarlas poniéndose una de ellas en receso.

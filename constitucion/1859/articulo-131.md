@@ -1,0 +1,1 @@
+Artículo 131.-Todos los abogados mayores de veinticinco años que reúnan las demás calidades mencionadas en el artículo anterior, son Conjueces natos de la Corte Suprema, llamados a suplir por la suerte conforme a la ley las faltas de los Magistrados.
