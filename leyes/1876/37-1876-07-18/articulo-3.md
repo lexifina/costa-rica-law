@@ -1,0 +1,1 @@
+Art 3° Se autoriza al Poder Ejecutivo para que disponga igual servicio fúnebre para honrar la memoria de los finados Presidente Don Juan Rafael Mora y Generales Don José Joaquín Mora y Don José María Cañas, cuyas cenizas se hallan depositadas en poder de sus familias.
