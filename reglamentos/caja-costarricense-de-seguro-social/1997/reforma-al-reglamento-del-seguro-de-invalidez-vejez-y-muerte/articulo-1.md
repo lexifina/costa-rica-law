@@ -1,0 +1,7 @@
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 11° de la sesión número 7096, celebrada el 21 de enero de 1997, acordó reformar el artículo 38° del Reglamento del Seguro de Invalidez, Vejez y Muerte se introduce un nuevo inciso a) al articulo 38° del Reglamento del Seguro de Invalidez, Vejez y Muerte; el inciso a) vigente pasa a ser el inciso b), y el inciso b) vigente pasa a ser el c), para que en adelante se lea así:
+"Artículo 38° ...
+Los patronos que no presenten o cancelen sus planillas dentro del plazo reglamentario, estarán sujetos al pago de recargos sobre el monto de las cuotas, con fundamento en lo dispuesto en el artículo No 36 de la Ley Constitutiva de la Caja. Dichos recargos se aplicarán en la siguiente forma:
+a) Por presentación tardía el 1% (uno por ciento), del monto total de las cuotas, sin que la suma pueda ser menor a 100 colones.
+b) Por atraso en el pago durante los primeros quince días calendario o fracción, se aplicará el 1% (uno por ciento, sin que la suma pueda ser menor a 100 colones).
+c) Transcurrido el plazo señalado en el inciso anterior, por mes o fracción de atraso, se aplicará el 2% (dos por ciento) mensual hasta el 24% (veinticuatro por ciento).
+Estos cobros se harán sin perjuicio de las sanciones establecidas en los artículos 44° y siguientes de la Ley Constitutiva de la Caja". (El texto destacado es el que se reforma).
