@@ -1,2 +1,0 @@
-Artículo 86.- Los testimonios serán extendidos en papel común o papel para escritura en braille, pero los que contengan operaciones destinadas a inscribirse en el Registro Público, se extenderán en papel de oficio. El funcionario que los expida deberá tasar, al pie de ellos, el valor del papel sellado, los timbres y los derechos de inscripción que hayan de pagarse.
-(Así reformado por el artículo 72 (actual 85) de la ley N° 7600 del 2 de mayo de 1996 “Ley de Igualdad de Oportunidades para las Personas con Discapacidad”)

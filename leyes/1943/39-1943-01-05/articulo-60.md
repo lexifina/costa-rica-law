@@ -1,2 +1,0 @@
-Artículo 60.- En los casos del artículo anterior, se consignará en la escritura quién de los interesados no comprende el idioma o lenguaje, cuál es el idioma o lenguaje que comprende, si el notario comprende ese idioma o lenguaje, en qué idioma o idiomas fue leída la escritura por el intérprete o por el notario en su caso; también se consignarán el nombre, los apellidos y las generales del intérprete cuando intervenga.
-(Así reformado por el artículo 72 (actaula 85) de la ley N° 7600 del 2 de mayo de 1996 “Ley de Igualdad de Oportunidades para las Personas con Discapacidad”)

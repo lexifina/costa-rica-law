@@ -1,1 +1,0 @@
-Artículo 97.- En las protocolizaciones o adjudicaciones de bienes con base en la tramitación de un juicio ante los tribunales, los honorarios del Notario se cobrarán independientemente de los del abogado por la dirección profesional del litigio, salvo pacto en contrario.

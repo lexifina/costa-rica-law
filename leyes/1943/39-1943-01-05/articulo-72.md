@@ -1,2 +1,0 @@
-Artículo 72.-El cuerpo de la escritura contendrá la relación clara y circunstanciada del acto, contrato, hecho o suceso que se quiera hacer constar, tal y como hubiere pasado ante el notario o como lo refirieren los interesados en minutas escritas o de palabra. Sin embargo, el notario debe dar forma jurídica a lo expresado por las partes o a lo que haga constar, y redactar la escritura en la forma más clara y precisa que le sea posible.
-(Así reformado por el artículo 1° de la ley N° 6145 del 18 de noviembre de 1977)
