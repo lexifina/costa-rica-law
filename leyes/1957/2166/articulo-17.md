@@ -1,4 +1,4 @@
-Artículo 17.- El Ministro podrá autorizar el trabajo durante horas
+ARTICULO 17.- El Ministro podrá autorizar el trabajo durante horas
 extras, pero sólo en situaciones excepcionales, cuando sea indispensable
 satisfacer exigencias especiales del servicio público.
 TRANSITORIOS
@@ -36,5 +36,8 @@ Ley de Administración Financiera de la República.
 Transitorio VIII.- Aquellos trabajadores que no sean artesanos y
 peones, actualmente pagados por planillas de jornales, podrán seguir en
 la misma situación hasta el 31 de diciembre de 1958, a más tardar.
+Transitorio IX.- Los aumentos anuales a que se refiere esta ley se
+harán efectivos a partir de enero de 1967.
+( ADICIONADO por Ley No. 3671 de 18 de abril de 1966, artículo 10).
 CAPITULO II
 SUSTENTO ECONOMICO
