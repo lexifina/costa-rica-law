@@ -8,6 +8,7 @@ La provincia de Cartago comprende los cantones de Cartago, Paraíso, La Unión, 
 La provincia de Heredia comprende los cantones de Heredia, Barba, Santo Domingo, Santa Bárbara, San Rafael, San Isidro, Belén, Flores, San Pablo, Sarapiquí(*).
 (*) (Mediante el artículo 1° de la ley N° 4671 del 18 de noviembre de 1970, se creó el Cantón de Sarapiquí.)
 La provincia de Guanacaste comprende los cantones de Liberia, Nicoya, Santa Cruz, Bagaces, Carrrillo, Cañas, Abangares, Tilarán, Nandayure y La Cruz.
-La Provincia de Puntarenas comprende los cantones de Puntarenas, Esparta, Buenos Aires, Montes de Oro, Osa, Aguirre, Golfito y Coto Brus.
+La Provincia de Puntarenas comprende los cantones de Puntarenas, Esparta, Buenos Aires, Montes de Oro, Osa, Aguirre, Golfito, Coto Brus, Parrita(*).
+(*) (Mediante el artículo 1° de la ley N° 4787 del 5 de julio de 1971, se creó el Cantón de Parrita.)
 La provincia de Limón comprende los cantones de Limón, Pococí, Siquirres, Talamanca, Matina, Guácimo(*).
 (*) (Mediante el artículo 1° de la ley N° 4753 del 3 de mayo de 1971, se creó el Cantón de Guácimo.)
