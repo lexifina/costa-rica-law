@@ -1,0 +1,2 @@
+Artículo 4
+Dicha política se basará en el principio de igualdad de oportunidades entre los trabajadores inválidos y los trabajadores en general. Deberá respetarse la igualdad de oportunidades y de trato para trabajadoras inválidas y trabajadores inválidos. Las medidas positivas especiales encaminadas a lograr la igualdad efectiva de oportunidades y de trato entre los trabajadores inválidos y los demás trabajadores no deberán considerarse discriminatorias respecto de estos últimos.

@@ -1,0 +1,2 @@
+Artículo 5
+Se consultará a las organizaciones representativas de empleadores y de trabajadores sobre la aplicación de dicha política y, en particular sobre las medidas que deben adoptarse para promover la cooperación y la coordinación entre los organismos públicos y privados que participan en actividades de readaptación profesional. Se consultará asimismo a las organizaciones representativas constituidas por personas inválidas o que se ocupan de dichas personas.

@@ -1,0 +1,2 @@
+Artículo 7
+Las autoridades competentes deberán adoptar medidas para proporcionar y evaluar los servicios de orientación y formación profesionales, colocación, empleo y otros afines, a fin de que las personas inválidas puedan lograr y conservar un empleo y progresar en el mismo; siempre que sea posible y adecuado, se utilizarán los servicios existentes para los trabajadores en general, con las adaptaciones necesarias.
