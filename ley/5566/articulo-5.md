@@ -1,30 +1,4 @@
 ARTICULO QUINTO
-1. Las disposiciones del Artículo Cuarto no se aplicarán cuando sea
-necesario salvaguardar la seguridad de la vida humana o de buques,
-aeronaves, plataformas y otras construcciones en el mar, en casos de
-fuerza mayor debidos a las inclemencias del tiempo o en cualquier otro
-caso que constituya un peligro para la vida humana o una amenaza real
-para buques, aeronaves, plataformas u otras construcciones en el mar, si
-el vertimiento parece ser el único medio para evitar la amenaza y si
-existe toda probabilidad de que los daños emanantes de dicho vertimiento
-sean menores que los que ocurrirían de otro modo. Dicho vertimiento se
-llegará a cago de forma que se reduzca al mínimo la probabilidad de que
-ocasiones daños a seres humanos o a la vida marina y se pondrá
-inmediatamente en conocimiento de la Organización.
-2. Una Parte Contratante podrá expedir un permiso especial como
-excepción a lo dispuesto en el inciso a) del apartado 1 del Artículo
-Cuarto, en casos de emergencia que provoquen riesgos inaceptables para la
-salud humana y en los que no quepa otra solución factible. Antes de
-expedirlo, la Parte consultará con cualquier otro país o países que
-pudieran verse afectados y con la Organización, quien, después de
-consultar con las otras Partes y con las Organizaciones Internacionales
-que estime pertinentes, recomendará si demora a la Parte, de conformidad
-con el Artículo Decimocuarto, los procedimientos más adecuados que deban
-ser adoptados. La Parte seguirá esta recomendaciones en la máxima media
-factible de acuerdo en el plazo dentro del cual deba tomar las medidas y
-con la obligación de principio de evitar daños al medio marino e informará
-a la Organización de las medidas que adopte. Las Partes se comprometen a
-ayudarse mutuamente en tales situaciones.
-3. Cualquier Parte Contratante podrá renunciar al derecho reconocido en
-el apartado 2 del presente artículo en el momento de ratificar el presente
-Convenio o de adherirse al mismo o en cualquier otro momento ulterior.
+1. Las disposiciones del Artículo Cuarto no se aplicarán cuando sea necesario salvaguardar la seguridad de la vida humana o de buques, aeronaves, plataformas y otras construcciones en el mar, en casos de fuerza mayor debidos a las inclemencias del tiempo o en cualquier otro caso que constituya un peligro para la vida humana o una amenaza real para buques, aeronaves, plataformas u otras construcciones en el mar, si el vertimiento parece ser el único medio para evitar la amenaza y si existe toda probabilidad de que los daños emanantes de dicho vertimiento sean menores que los que ocurrirían de otro modo. Dicho vertimiento se llegará a cago de forma que se reduzca al mínimo la probabilidad de que ocasiones daños a seres humanos o a la vida marina y se pondrá inmediatamente en conocimiento de la Organización.
+2. Una Parte Contratante podrá expedir un permiso especial como excepción a lo dispuesto en el inciso a) del apartado 1 del Artículo Cuarto, en casos de emergencia que provoquen riesgos inaceptables para la salud humana y en los que no quepa otra solución factible. Antes de expedirlo, la Parte consultará con cualquier otro país o países que pudieran verse afectados y con la Organización, quien, después de consultar con las otras Partes y con las Organizaciones Internacionales que estime pertinentes, recomendará si demora a la Parte, de conformidad con el Artículo Decimocuarto, los procedimientos más adecuados que deban ser adoptados. La Parte seguirá estas recomendaciones en la máxima media factible de acuerdo en el plazo dentro del cual deba tomar las medidas y con la obligación de principio de evitar daños al medio marino e informará a la Organización de las medidas que adopte. Las Partes se comprometen a ayudarse mutuamente en tales situaciones.
+3. Cualquier Parte Contratante podrá renunciar al derecho reconocido en el apartado 2 del presente artículo en el momento de ratificar el presente Convenio o de adherirse al mismo o en cualquier otro momento ulterior.
