@@ -13,3 +13,4 @@ Reglamento para prevenir, investigar y sancionar el hostigamiento sexual en el P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-26 | la propia norma |
+| 2 | 1998-07-20 | Reglamento 19 (1998-07-20) |
