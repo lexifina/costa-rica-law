@@ -1,1 +1,0 @@
-Artículo 4º—Para efectos de disfrutar del Incentivo, los (as) trabajadores (as) deberán cumplir con lo estipulado en los artículos 1 y 2; cuando se trabaje en el primer turno no se genera derecho al pago del Incentivo.

@@ -1,1 +1,0 @@
-Artículo 6º—Durante el disfrute de vacaciones, incapacidad, permisos con y sin goce de salario por cualquier causa, suspensiones o ausencias, los funcionarios(as) no tendrán derecho al Incentivo, es decir, el pago corresponde siempre que se dé una efectiva prestación de servicios.

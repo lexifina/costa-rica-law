@@ -1,1 +1,0 @@
-Artículo 11.—El Incentivo se tomará en cuenta para efectos del cálculo del décimo tercer mes, remuneración adicional por vacaciones, salario escolar, así como para la deducción del impuesto al salario y todas las demás deducciones de ley.

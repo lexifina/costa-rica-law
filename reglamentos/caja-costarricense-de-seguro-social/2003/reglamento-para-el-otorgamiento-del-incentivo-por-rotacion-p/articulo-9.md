@@ -1,1 +1,0 @@
-Artículo 9º—El Incentivo se calculará sobre el salario base de la clase de puestos que tenga el trabajador (a) en el momento de prestar efectivamente los servicios, por lo que no incluye ningún otro concepto salarial.
