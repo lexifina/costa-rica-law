@@ -1,1 +1,0 @@
-Artículo 9º.- Se formará en el Archivo una colección de impresos nacionales, con los dos ejemplares que le serán enviados conforme a la disposición contenida en el artículo 50 de la ley Nº 2834, que aquí se reforma.

@@ -1,1 +1,0 @@
-Artículo 7º.- Salvo la documentación que deberán conservar por razones de Estado y la que esté en trámite, los Ministerios, sus dependencias, instituciones autónomas y semiautónomas, pondrán a disposición del Archivo Nacional, con el debido inventario, la documentación que tengan archivada, en los plazos fijados por el Reglamento de esta Ley, que no excederán de treinta años.

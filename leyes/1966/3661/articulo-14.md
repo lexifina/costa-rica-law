@@ -1,1 +1,0 @@
-Artículo 14.- Los que se propongan ceder documentos históricos notificarán al Archivo Nacional el nombre y domicilio del futuro propietario o tenedor, y dentro de los treinta días de producido el acto lo comunicarán así al Archivo.
