@@ -1,0 +1,1 @@
+Artículo 2°.- La Municipalidad establecerá la base de venta y dedicará su producto a la compra de una niveladora mecanizada para el arreglo permanente de las calles de la ciudad. El sobrante, si lo hubiere, ingresará al fondo de entradas extraordinarias del distrito primero del citado cantón.
