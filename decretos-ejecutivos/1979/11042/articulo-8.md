@@ -1,0 +1,1 @@
+Artículo 8°- Tratándose del resto de los funcionarios, la solicitud para autorización del viaje deberá estar suscrita por el Ministro respectivo, o por el Presidente Ejecutivo, Rector, Gerente, o Director Ejecutivo en su caso. Toda solicitud deberá venir acompañada de copia fiel del respectivo acto por el cual se ha autorizado institucionalmente el viaje.

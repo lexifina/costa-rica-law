@@ -1,0 +1,1 @@
+Artículo 6°-A juicio de la Oficina de Planificación Nacional y Política Económica, y en casos excepcionales de verdadera urgencia, la solicitud de autorización a que se refieren los artículos 4° y 5° del presente Reglamento podrán tramitarse en un plazo menor.

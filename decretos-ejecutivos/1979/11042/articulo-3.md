@@ -1,0 +1,1 @@
+Artículo 3°-Se entenderá por viajes al exterior los que realicen los funcionarios en razón del desempeño de sus cargos y los que realicen aquellas personas particulares en misión oficial, debidamente acreditada por Decreto Ejecutivo, financiados o no por la Administración correspondiente, incluyendo las becas de estudio.

@@ -1,0 +1,1 @@
+Artículo 10.-La Oficina de Planificación Nacional y Política Económica sólo autorizará aquellos viajes que estén plenamente justificados para el cumplimiento de los objetivos institucionales y para el desarrollo general del país.

@@ -1,0 +1,1 @@
+Artículo 9°-Los viajes del Ministro-Director de la Oficina de Planificación Nacional y Política Económica serán autorizados por el Presidente de la República y refrendados por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 14-Este Reglamento se aplicará sin perjuicio de lo dispuesto en el Reglamento de Gastos de Viaje y de Transporte para funcionarios o empleados del Estado emitido por la Contraloría General de la República y publicado en "La Gaceta" N° 186 del 2 de octubre de 1978.
