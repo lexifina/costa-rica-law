@@ -1,0 +1,1 @@
+Artículo 2º.- El impuesto de transferencias de los bienes inmuebles, establecidos por la ley Nº 5909 del 16 de junio de 1976 y sus reformas, quedará derogado en la misma fecha que entre a regir el reglamento de esta ley.
