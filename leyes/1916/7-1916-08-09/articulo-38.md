@@ -1,0 +1,1 @@
+Artículo 38.—Se sortearán los Bonos que han de amortizarse de cada serie y de cada emisión anual por separado, para determinar las numeraciones que han de llamarse al pago según las cancelaciones parciales regulares efectuadas por los deudores correspondientes a cada año de emisión, hasta la fecha del sorteo.

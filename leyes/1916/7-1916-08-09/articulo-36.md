@@ -1,0 +1,1 @@
+Artículo 36. — Al pie de cada aviso que llame al pago los Bonos sorteados para la amortización se publicará también, durante diez años, término de la prescripción, la lista de los Bonos que hayan sido sorteados para su amortización anteriormente y que no se hayan presentado para su cobro.

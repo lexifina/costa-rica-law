@@ -1,0 +1,2 @@
+Artículo 23.—El Banco procurará estar al tanto del estado en que se encuentran los bienes que tiene en hipoteca, y una vez que las operaciones lleguen a tener una extensión que justifique el gasto que el caso demande, organizará una inspección regular.
+Cuando del examen de algún fundo hipotecado, practicado por persona de confianza del Banco, apareciere que ha sufrido algún daño o desmejora, eí Banco pedirá al deudor que justifique el carácter o importancia de esos daños para, en caso necesario, exigir nueva hipoteca o el pago total del crédito.
