@@ -14,3 +14,4 @@ Reglamento de Creación del Fondo de Consejos Regionales (FOCORE)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-04-11 | la propia norma |
+| 2 | 2003-12-14 | Reglamento 89 (2003-12-14) |
