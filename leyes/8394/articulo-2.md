@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Educación Pública podrá incluir en el calendario escolar y en los programas de estudio de primer y segundo ciclos, la fecha antes indicada, con el fin de que en todos los centros educativos del país se celebre el Día Nacional del Sabanero.
