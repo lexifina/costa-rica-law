@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De los Comités Comunales y Distritos Deportivos
+Artículo 47.—Los Comités Comunales serán nombrados en asamblea general convocada al efecto por el Comité Cantonal, durarán en sus cargos dos años. Esa asamblea estará conformada por dos representantes de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en su comunidad, según lo dispuesto en el artículo 166 del Código Municipal. El nombramiento deberá llevarse a cabo a más tardar en la última semana del mes de enero. Los representantes que conforman la asamblea efectuarán la elección mediante una votación de la mitad más uno de la totalidad de ellos y emitirán su voto de forma nominal.

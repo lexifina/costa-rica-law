@@ -1,0 +1,2 @@
+Artículo 42.—El acta de cada sesión deberá entregarse a los miembros del Comité Cantonal o de los Comités Comunales según se trate, a más tardar veinticuatro horas antes de la sesión en que serán discutidas y aprobadas.
+La oficina administrativa será responsable de cumplir con lo dispuesto en el párrafo anterior y en la elaboración de las actas contará con la colaboración del Secretario de la Junta Directiva, quien hará las revisiones, modificaciones o aclaraciones según corresponda.

@@ -1,0 +1,2 @@
+Artículo 56.—Los miembros del Comité Cantonal no podrán formar parte ó integrar los Comités Comunales, los Distritos Deportivos y éstos a su vez, los Subcomités de Deportes y Recreación, según la estructura organizativa contenida en este Reglamento.
+Los miembros de los Comités Comunales, se juramentarán ante el Comité Cantonal, que extenderá además el carné que los acredita como tales. Los nombramientos de los Comités Comunales y los Subcomités de Deportes deben ser comunicados al Concejo, con el fin de que el mismo esté enterado de las personas que los integran.
