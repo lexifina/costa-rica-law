@@ -14,3 +14,4 @@ El Ministerio de Agricultura y Ganadería, a través de las Agencias Sectoriales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-07-31 | la propia norma |
+| 2 | 2000-10-27 | Decreto Ejecutivo 29032 (2000-10-27) |

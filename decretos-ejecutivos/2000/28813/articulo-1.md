@@ -11,7 +11,8 @@ l°-Que los fenómenos atmosféricos que han afectado nuestro país desde el añ
 5°-Que esta Administración ha considerado prudente destinar parte de los recursos con que cuenta este Programa, para que los pequeños productores de palmito que se encuentran en la situación de pobreza mencionada, cancelen los intereses que deben a la fecha, así como los que se generen en los seis meses siguientes a la emisión de este Decreto. Por tanto,
 DECRETAN:
 Artículo 1°-Dentro del término de los diez días hábiles posteriores, contados a partir de la conformación del expediente y cumplimiento de los requisitos establecidos en el presente Decreto, el Ministerio de Agricultura y Ganadería, a través de las Agencias Sectoriales de Servicios Agropecuarios, referirá y remitirá al Instituto Mixto de Ayuda Social, los expedientes de los pequeños productores de palmito que se encuentren en las siguientes condiciones:
-1. Que sean pequeños productores de palmito con terrenos menores a diez hectáreas de extensión.
+1. Que sean pequeños productores con un área sembrada de palmito no mayor de diez hectáreas de extensión.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 29032 del 27 de octubre de 2000)
 2. Que hayan realizado la respectiva solicitud ante alguna de las Agencias Sectoriales de Servicios Agropecuarios.
 3. Que hayan sido afectados en sus cosechas por alguno de los fenómenos naturales mencionados en los Decretos Ejecutivos números 28518-MP, 27402-MP-MOPT, 28009-P-MOPT, 28130MP-MOPT, u otros.
 4.Que hubieren formalizado sus operaciones de crédito ante las entidades o instancias financieras hasta el mes de diciembre de 1999.
