@@ -1,1 +1,1 @@
-Artículo 6°-Toda acción de personal que responda a nombramientos que se hagan a través de las nóminas de elegibles del Servicio Civil, tendrán plena validez con sólo la firma del Jefe de la Sección Docente.
+Artículo 6°-(Derogado por el artículo 1° del decreto ejecutivo N° 1755 del 15 de junio de 1971)

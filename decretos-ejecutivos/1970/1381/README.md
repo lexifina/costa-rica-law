@@ -14,3 +14,4 @@ Destaca funcionarios con el respectivo equipo y mobiliario de la Sección Docent
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-12-15 | la propia norma |
+| 2 | 1971-06-15 | Decreto Ejecutivo 1755 (1971-06-15) |
