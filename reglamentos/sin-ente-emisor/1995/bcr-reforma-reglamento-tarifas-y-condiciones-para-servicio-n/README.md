@@ -13,3 +13,4 @@ BCR: Reforma Reglamento Tarifas y Condiciones para Servicio Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-13 | la propia norma |
+| 2 | 1996-01-29 | Reglamento 10 (1996-01-29) |
