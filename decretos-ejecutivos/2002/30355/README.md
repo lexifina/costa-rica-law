@@ -14,3 +14,4 @@ Tarifas para las Áreas Silvestres Protegidas bajo la Administración del Sistem
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-01 | la propia norma |
+| 2 | 2004-05-04 | Decreto Ejecutivo 31804 (2004-05-04) |
