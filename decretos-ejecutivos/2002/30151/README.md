@@ -14,3 +14,4 @@ Ordena que todo el Gobierno Central se proponga diligentemente prevenir y combat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-21 | la propia norma |
+| 2 | 2002-02-22 | Decreto Ejecutivo 30236 (2002-02-22) |
