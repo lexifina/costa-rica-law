@@ -14,3 +14,4 @@ Reforma decreto sobre permisos para recolectar y comercializar peces atrapados e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-04-22 | la propia norma |
+| 2 | 1988-02-05 | Decreto Ejecutivo 18221 (1988-02-05) |
