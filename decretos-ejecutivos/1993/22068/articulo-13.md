@@ -1,0 +1,1 @@
+Artículo 13.-Quien deje de ser miembro del Consejo, por cualquier causa, no exime a las personas que hubieren ocupado el cargo de las responsabilidades legales en que pudiesen haber incurrido durante su gestión.

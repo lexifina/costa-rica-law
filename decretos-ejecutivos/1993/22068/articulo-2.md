@@ -1,0 +1,1 @@
+Artículo 2°-La acción del Consejo estará encaminada a fortalecer la fijación de los salarios mínimos, declarados de interés público, como uno delos medios para contribuir al bienestar de la familia costarricense y al fomento de la justa distribución de la riqueza.

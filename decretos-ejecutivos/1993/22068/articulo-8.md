@@ -1,0 +1,3 @@
+Artículo 8°-Los miembros del Consejo serán juramentados por el Ministro, de previo a la iniciación de cada período de labores o cuando corresponda en caso de sustitución de miembros cuyos cargos hubieren quedado vacantes.
+Se elegirá de su seno un Presidente y un Vicepresidente, escogido este último de los sectores distintos al que representa el Presidente. El Vicepresidente ejercerá la presidencia en las ausencias temporales del titular. La votación se hará en forma secreta, por simple mayoría.
+Las ausencias simultáneas del Presidente y Vicepresidente, serán suplidas por un Presidente ad-hoc, nombrado del seno del Consejo por simple mayoría.

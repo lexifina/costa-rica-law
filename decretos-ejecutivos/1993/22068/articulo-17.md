@@ -1,0 +1,4 @@
+Artículo 17.-Los miembros del Consejo propietarios y suplentes, devengarán por cada sesión a la que asistan la cantidad de ¢ 4.783,50 (cuatro mil setecientos ochenta y tres colones, con cincuenta céntimos) en calidad de dietas.
+De las sesiones plenarias celebradas cada mes, únicamente serán remuneradas ocho, incluyendo ordinarias y extraordinarias.
+En el programa respectivo del presupuesto ordinario o extraordinario de la República, figurará la partida correspondiente para el pago de la referida dietas, incluyendo aquella destinada al pago de las dietas del secretario. Dietas que se reajustarán periódicamente en una proporción igual al incremento promedio, de las remuneraciones establecidas para los órganos colegiados en el sector público.
+Reajustes que se determinarán por Decreto Ejecutivo.

@@ -1,0 +1,2 @@
+Artículo 31.-La presidencia del Consejo será ejercida alternativamente por un representantes del Estado, de los patronos y de los trabajadores, durante el respectivo periodo administrativo de un año.
+El Presidente durará en su cargo un año. Cada año el Presidente será elegido entre los miembros de determinado sector, de manera que permita en forma sucesiva a trabajadores, patronos y representantes del Estado, ejercer la Presidencia del Consejo.
