@@ -1,0 +1,1 @@
+Artículo 15.—Cuando la extensión del área de cementerio lo permita o cuando existan parcelas no asignadas, la Municipalidad podrá arrendarlas a los residentes del Cantón respectivo que las soliciten, previo cumplimiento de los requisitos que este Reglamento y la Sección de Cementerios determinen.

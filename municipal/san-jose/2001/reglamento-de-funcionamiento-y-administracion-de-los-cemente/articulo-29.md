@@ -1,0 +1,1 @@
+Artículo 29.—Los derechos de arrendamiento sólo podrán ser traspasados cuando en la parte respectiva no se haya verificado inhumación, o una vez exhumados los restos que contuviere sepultura o bóveda respectiva.

@@ -1,0 +1,1 @@
+Artículo 57.—Los restos modificados no se trasladarán al osario general, ni a fosas comunes, u otros cementerios, siendo que cada camposanto contará con un área para sepultura, de manera que se destinen a tal ubicación.

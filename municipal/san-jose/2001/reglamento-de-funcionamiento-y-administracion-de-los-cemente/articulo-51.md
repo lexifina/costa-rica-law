@@ -1,0 +1,1 @@
+Artículo 51.—En el mismo cementerio, sólo se autorizará la exhumación y traslado de un cadáver cuando la sepultura donde está inhumado, no pertenezca al difunto o a su familia y la nueva sepultura sea de su cónyuge, hijos, tíos, sobrinos.

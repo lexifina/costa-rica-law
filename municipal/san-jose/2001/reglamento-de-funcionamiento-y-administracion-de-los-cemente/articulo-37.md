@@ -1,0 +1,1 @@
+Artículo 37.—Los errores de nombre, apellidos u otros en la inscripción del derecho de arrendamiento, se corregirán a instancia del titular, previa justificación, y comprobación ante la Sección de Cementerios de la información correcta.

@@ -1,0 +1,1 @@
+Artículo 4°—Todo habitante del cantón central de San José que fallezca tendrá derecho a la disposición más conveniente y adecuada de su cadáver, restos o cenizas y a que éstos sean tratados con consideración y respeto.

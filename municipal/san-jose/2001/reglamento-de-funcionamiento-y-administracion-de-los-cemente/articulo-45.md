@@ -1,0 +1,1 @@
+Artículo 45.—La ocupación de los nichos de alquiler se hará empezando por un extremo de cada cuadro y sucesivamente fila por fila, de manera que siempre quede en espacio libre entre nichos ocupados. Agotada la ocupación de los impares de un cuadro se utilizará en igual forma los nichos que habrían quedado libres.

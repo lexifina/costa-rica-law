@@ -1,0 +1,1 @@
+Artículo 6°—Cuando la extensión del área de cementerio lo permita o cuando existan parcelas no asignadas, la Municipalidad puede venderlos como derecho de arrendamiento a quienes lo soliciten, siempre y cuando demuestren tener residencia fija en el Cantón en que se encuentra el cementerio; la Sección les solicitará los documentos probatorios que considere conveniente.

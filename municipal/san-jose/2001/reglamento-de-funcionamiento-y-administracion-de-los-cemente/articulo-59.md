@@ -1,0 +1,1 @@
+Artículo 59.—La Sección, para cumplir con su cometido, contará , con funcionarios auxiliares denominados Encargados de Cementerio (inhumadores) en cada uno de los cementerios y demás personal necesario para llevar a cabo una mejor atención del servicio.

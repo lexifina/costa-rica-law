@@ -1,0 +1,1 @@
+Artículo 50.—La exhumación sólo puede ser solicitada por ascendientes, descendientes, cónyuges, hermanos, tíos o sobrinos del fallecido, o por sus cuñados, tíos y sobrinos políticos y yernos; por orden de autoridad competente.

@@ -1,0 +1,1 @@
+Artículo 16.—Las sepulturas se construirán paralelamente con una separación entre si de 0,75 cm como mínimo o según criterio que emita la Dirección de Ingeniería y perpendiculares a callejuelas de ancho suficiente para permitir el paso del cortejo fúnebre tendrán un metro de ancho, por dos metros cincuenta centímetros de largo y dos metros de profundidad.
