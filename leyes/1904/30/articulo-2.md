@@ -1,0 +1,1 @@
+Artículo 2.- Igualmente Prorróganse las pensiones concedidas á don Pedro Ulloa Mata, Rosa Cooper v. de Ulloa, María, Jiménez v. de Castro, Lucila Segura Saborío, Elvira y Asdrubal Escalante Pacheco, reduciendo la primera á cincuenta colones, la segunda á cuarenta colones, la tercera á veinticinco colones y las restantes a quince colones cada una.
