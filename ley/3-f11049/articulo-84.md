@@ -1,0 +1,1 @@
+Articulo 84.-A este acto ser n invitados oficialmente el Presidente de la República y los Secretarios de Estado, el Obispo Vicario Capitular, la Dirección de estudios y también se dirigirán invitaciones particulares las demás personas que se tenga por conveniente.

@@ -1,0 +1,1 @@
+ARTICULO 64.-Adems de los títulos académicos, pueden conferirse el Instituto los de Perito Mercantil, Perito Agrónomo y Agrimensor, los alumnos que se hayan dedicado los estudios de aplicación conforme las reglas que se establecen continuación.

@@ -1,0 +1,1 @@
+ARTICULO 60.-Los derechos del grado de Bachiller en Artes son 10 que ingresarán en el Tesoro del Instituto y se pagarán al solicitar el grado. Los Bequistas y los pobres que están exentos de pagar el derecho de matrícula, lo están igualmente del de grado.

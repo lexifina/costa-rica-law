@@ -1,0 +1,7 @@
+ARTÍCULO 25.-Al Secretario, en su calidad de Tesorero corresponde:
+1°. -Percibir los derechos, impuestos y rentas que correspondan al Instituto, cobrar y percibir las pensiones de los alumnos internos con la debida exactitud, dando aviso al Rector de las que dejasen de pagarse dentro de los ocho primeros días del respectivo trimestre.
+2°. -Presentar al Rector para que este dirija la Secretaria de Instrucción cada fin de mes el presupuesto de gastos del Instituto con expresión de la cantidad existente en Tesorería, precedente de los ingresos que haya habido y del déficit, si los hubiere, para cubrir los gastos, fin de que se expida el giro correspondiente para llenar dicho déficit.
+3°. -Cubrir los giros de sueldos de los empleados, Profesores y sirvientes del Instituto, cuyos giros expedir el Rector con presencia de la lista de servicio, que le debe presentar el Director, la cual ser visada por el Secretario.
+4°. -Cubrir igualmente los giros que el mimo Rector expida en favor del Ecónomo para cubrir los presupuestos semanales para alimentos y demás gastos del servicio doméstico. Cada uno de estos giros ir acompañado del respectivo presupuesto.
+5°. -Rendir cuentas de su administración, de entera conformidad con las leyes fiscales.
+6°.-Presentar la Rector cada fin de año un estado en que consten, con la debida especificación, los ingresos y egresos en todo el año. Este estado ser dirigido por el Rector, después de visado por ‚ la Secretaria de Instrucción Pública.

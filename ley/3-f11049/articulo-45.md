@@ -1,0 +1,3 @@
+ARTICULO 45.-Sin perjuicio de las horas de clase que cada alumno interno corresponde, los de primer año deber n asistir cada día una lección de caligrafía y repaso de las materias de primera enseñanza superior, no ser que el Director juzgue innecesaria esa asistencia por el estado de adelantamiento en que se encuentre el alumno. Los de segundo y tercer año asistirán las clases de adorno. Los de cuarto, quinto y sexto ejercicios prácticos de Retórica y Política, Literatura y Filosofía que dirigirán los respectivos Profesores. Todos los alumnos internos concurrir n en los días que se designen los ejercicios gimnásticos, así como la Misa en los días de precepto y los demás actos piadosos, con la reserva del artículo 39.
+CAPITULO X.
+Del curso académico.

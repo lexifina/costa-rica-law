@@ -1,0 +1,1 @@
+ARTICULO 31.-Los que comprueben con atestados bastantes haber ganado algún curso de Humanidades Filosofía en la Universidad en algún otro. Establecimiento literario de la República autorizado, se les reconocer el curso y ser n admitidos sin previo examen.

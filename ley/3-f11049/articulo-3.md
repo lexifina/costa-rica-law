@@ -1,0 +1,1 @@
+Artículo 3°El Rector, Director y Profesores del Instituto son del nombramiento del Poder Ejecutivo. El del primero recaer en persona que reúna las calidades que exijan los Estatutos Universitarios y durar un año, pudiendo ser reelecto.

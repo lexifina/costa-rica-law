@@ -1,0 +1,1 @@
+ARTÍCULO 83.-El acto se iniciar con la memoria que el Director debe presentar sobre el estado del Instituto, y los trabajos del año anterior. Después el Secretario publicar el resultado de los ex menes, y el Rector la autoridad que presida pondrá en mano de las alumnas los premios conforme el resultado de las oposiciones.

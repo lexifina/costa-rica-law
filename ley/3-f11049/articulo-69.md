@@ -1,0 +1,1 @@
+ARTICULO 69.-El tribunal de examen se compondrá del Director y dos Profesores nombrados por el Rector. A falta de Profesores podrán nombrarse dos examinadores competentes que hayan obtenido el título que se refiere el examen.

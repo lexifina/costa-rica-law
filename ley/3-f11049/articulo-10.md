@@ -1,0 +1,1 @@
+ARTICULO 10.-Siempre que el Rector concurra exámenes actor literarios de cualquiera clase, tendrá la presidencia. Del mismo modo, siempre que concurran el Presidente de la República, el secretario de Instrucción Pública el Obispo, este corresponde la presidencia de honor en el orden en que quedan designados.

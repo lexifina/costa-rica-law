@@ -1,0 +1,1 @@
+ARTICULO 35.-El Reglamento interior fijar las condiciones de admisión de los alumnos internos y las obligaciones que deben sujetarse. Las pensiones se pagar n por trimestres adelantados. Si la pensión dejare de satisfacerse dentro de los primeros ocho días del trimestre, el alumno dejar de considerarse como interno.

@@ -1,0 +1,1 @@
+ARTICULO 34.-Los derechos de matrícula son tres pesos por cada curso completo y uno por cada asignatura suelta, Los alumnos hijos de padres pobres, cuyo capital no exceda de mil pesos, estarán exentos del impuesto de matrícula.
