@@ -32,3 +32,9 @@ contratación, pese a estar cubierta por el régimen de
 prohibiciones del artículo 22 de esta ley.
 ( Así adicionado este inciso por el artículo 1º, inciso ñ), de la
 ley Nº 7612 de 22 de julio de 1996)
+g) Sin motivo comprobado de caso fortuito o fuerza mayor, no inicie las labores
+propias de la obra de que se trate, dentro del mes siguiente al refrendo del contrato
+respectivo por parte de la Contraloría General de la República, sin perjuicio de
+la ejecución de la garantía correspondiente o de otro tipo de responsabilidades
+legales que quepan.
+(Así adicionado este inciso por Ley N° 8291 de 23 de julio del 2002)
