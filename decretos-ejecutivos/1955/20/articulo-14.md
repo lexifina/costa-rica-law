@@ -1,0 +1,1 @@
+Artículo 14.—Las causales indicadas en el articulo anterior, darán derecho al Instituto para demandar el desalojamiento del local por medio de los tribunales, previa resolución de la Gerencia, y sin derecho a reclamo de ninguna especie por parte del arrendatario.

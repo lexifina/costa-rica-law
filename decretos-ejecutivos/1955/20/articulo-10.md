@@ -1,0 +1,1 @@
+Articulo 10.—Previamente a la firma del contrato deberán presentarse constancias satisfactorias del Registro Judicial de Delincuentes, de la Agencia Principal de Policía de Precios, Patente Municipal, y demás documentos que la Junta Directiva considere necesarios.

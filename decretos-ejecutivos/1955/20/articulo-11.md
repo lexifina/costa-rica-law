@@ -1,0 +1,3 @@
+Artículo 11.—El arrendatario queda igualmente obligado a mantener el local en buen estado de conservación, así como a ejercer la debida vigilancia para evitar que terceros causen daños al mismo.
+No podrá llevar a cabo transformaciones ni mejoras del local, salvo con autorización expresa del Instituto, y las que fueren realizadas con o sin autorización, quedarán a beneficio del arrendante, sin derecho a reclamo alguno.
+Asimismo corresponde al arrendatario la realización de aquellos gastos necesarios para protección del local de los deterioros y daños que se presentaren, entendidos éstos de conformidad con las definiciones dadas por el Reglamento de Conservaciones del Instituto.
