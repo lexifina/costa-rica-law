@@ -1,1 +1,5 @@
-Texto no disponible
+Artículo 695
+Dentro del término del articulo precedente, el Juez mandara entregar los reos rematados, con testimonio de su condena, a la Autoridad Política respectiva para que los remita a su destino o haga efectiva la pena, e insertará en los autos el recibo correspondiente.
+Cuando la sentencia deba ser ejecutada por alguno de los Jueces de las provincias de San José, Alajuela, Heredia o Cartago, deben éstos ordenar que los reos rematados, tan pronto quede firme la sentencia respectiva, sean llevados a la Oficina de Investigación para que les tomen las impresiones digitales, las fotografías de frente, de perfil y en traje de calle y los demás datos que recoge esa oficina para identificar a los delincuentes. La oficina dicha enviará a las autoridades que le remitan esos reos una constancia de haber practicado las diligencias respectivas y el número del expediente que se ha de levantar al efecto en cada caso para que sean agregados en autos.
+Los reos sentenciados por los Jueces de las otras provincias llenarán esta formalidad cuando se establezcan departamentos apropiados en los lugares respectivos.
+(Así reformado por el artículo 2° de la ley N° 16 del 28 de enero de 1939)
