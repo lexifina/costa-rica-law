@@ -1,0 +1,2 @@
+II
+De la emisión autorizada se harán préstamos al Gobierno en cantidad que no exceda de dos millones de colones, observando la siguiente formalidad: cuando el Gobierno necesitare una suma deberá sacar a suscrición Bonos de los especificados en el Decreto n° 14 de 6 de los corrientes, por un monto igual al que necesita, a fin de obtenerla de quienes los tomen, y sólo aquellos Bonos no suscritos se entregarán al Banco Internacional para que emita billetes por el mismo valor y haga el préstamo al Gobierno.
