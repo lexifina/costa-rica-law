@@ -25,7 +25,8 @@ Centro de Formación de Formadores 337,5
 Centro Cost. Producción Cinematográfica 58,1
 Centro Cultural Histórico José Figueres Ferrer 19,7
 Centro Nacional de Drogas 560,4
-Centro Univ. Para el Desarrollo del Trópico Seco 154,8
+Centro Univ. Para el Desarrollo del Trópico Seco 283.8
+(Así modificado mediante artículo 1° del Decreto Ejecutivo N° 31065 de 4 de febrero de 2003).
 Colegio de San Luis Gonzaga 97,4
 Colegio Universitario de Alajuela 917,7
 Colegio Universitario de Cartago ¢722.7 millones.
@@ -47,7 +48,8 @@ Consejo Nacional de Rehabilitación 666,0
 Consejo Nacional Persona Adulto Mayor 1.213,0
 Consejo Técnico de Asistencia Médico Social CTAMS 1.116.3
 Consejo Transporte Público 628,5
-Direc. Serv. de Protec. Fitosanitaria 868,4
+Direc. Serv. de Protec. Fitosanitaria 1.600,0
+(Así modificado por Decreto Ejecutivo N° 31048 de 11 de febrero de 2003)
 Direc. Salud y Produc. Pecuaria 637,0
 Dirección Ejecutora de Proyectos PL 480 247,3
 Dirección General Archivo Nacional 450,1
@@ -77,7 +79,8 @@ Instituto Meteorológico Nacional 272,0
 Instituto Mixto de Ayuda Social 20.426,2
 Instituto Nacional de Estadística y Censos 924,4
 Instituto Nacional de Fomento Cooperativo 1.012,5
-Instituto Nacional de las Mujeres 904,3
+Instituto Nacional de las Mujeres 1062.0
+(Así modificado por artículo 1° del Decreto Ejecutivo N° 31067 de 20 de febrero de 2003)
 Instituto Nacional de Vivienda y Urbanismo 6.102,0
 Instituto sobre Alcoholismo y Farmacodependencia IAFA 945.3
 (Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
