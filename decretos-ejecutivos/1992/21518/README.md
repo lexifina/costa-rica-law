@@ -13,3 +13,4 @@ Normas de Ubicación de Sistemas de Tratamientos de Aguas Residuales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-09-16 | la propia norma |
+| 2 | 1992-09-16 | Decreto Ejecutivo 24379 (1995-06-06) |
