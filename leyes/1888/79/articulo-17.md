@@ -1,0 +1,3 @@
+ARTÍCULO 17.
+No se impondrán derechos ni gravámenes de especie alguna á la importación y tránsito de mercaderías para Nicaragua ó viceversa, ni á las destinadas para que se consuman fuera de la jurisdicción costarricense. Los pasajeros y sus equipajes que pasen por la República estarán asimismo exentos de todo impuesto local ó nacional. Lo dicho no impide el cobro de derecho de muellaje que el Gobierno crea conveniente imponer á mercaderías ó equipajes.
+El concesionario será responsable del abuso que se cometa introduciéndose clandestinamente mercaderías en el territorio de la República; y el Gobierno se reserva el derecho de inspección y vigilancia para impedir ó castigar tales fraudes.

@@ -1,0 +1,8 @@
+ARTÍCULO 27.
+Todas las cuestiones y diferencias que, con motivo de esta concesión, surjan entre el Gobierno y el concesionario serán dirimidas por árbitros arbitradores nombrados por las partes. -En caso de discordia, los árbitros nombrarán un tercero. El laudo arbitral será inapelable.
+Las cuestiones que ocurrieren con particulares serán resueltas por los tribunales y las leyes de la República.
+En fe de lo estipulado firman los infrascritos dos ejemplares del presente contrato, en San José de Costa Rica, el tres de agosto de mil ochocientos ochenta y ocho. P. PÉREZ ZELEDÓN.MINOR C. KEITH.
+Palacio Presidencial.-San José, á tres de agosto de mil ochocientos ochenta y ocho. Estando, como está, el precedente contrato, ajustado á las instrucciones dadas al Secretario de Estado en el despacho de Fomento que lo suscribe, apruébase en todas sus partes, y pase al Congreso Constitucional lo creyere conveniente, se sirva darle la ratificación del caso.
+Rubricado por el señor General Presidente de la República. El Secretario de Estado en el despacho de Fomento, PÉREZ ZELEDÓN.
+Artículo 2°. -Exímese del pago del impuesto de timbre el contrato á que se refiere el artículo anterior.
+AL PODER EJECUTIVO. Dado en el salón de sesiones del Palacio Nacional, San José, á los veinte días del mes de agosto de mil ochocientos ochenta y ocho. FÉLIX GONZÁLEZ, Prosecretario.A. ESQUIVEL, Presidente. SANTIAGO DE LA GUARDIA, Secretario. Palacio Presidencial.-San José, á los veinte días del mes de agosto de mil ochocientos ochenta y ocho. Ejécutese. BERNARDO SOTO. El Secretario de Estado en el despacho de Fomento, MÁXIMO FERNÁNDEZ.

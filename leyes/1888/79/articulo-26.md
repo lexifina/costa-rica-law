@@ -1,0 +1,2 @@
+Artículo 26.
+Durante los últimos diez años de esta concesión, el Gobierno tiene el derecho de hacer examinar el ferrocarril, y si se prueba deterioro á juicio de la mayoría de una comisión compuesta de diez personas técnicas, la mitad nombrada por cada parte, puede obligar al concesionario á que verifique la debida composición, y en defecto de ésta, tomar posesión inmediata del ferrocarril y sus dependencias, sin indemnización alguna.
