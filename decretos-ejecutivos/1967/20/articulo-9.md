@@ -1,10 +1,9 @@
-Artículo 9°.- Bajo la Dirección del Departamento de Promoción y Coordinación, la Dirección, previo acuerdo del Consejo, podrá crear oficinas cantonales, regionales, o provinciales, encargadas de cumplir las funciones de departamento y las otras que ella les señale en el área de su jurisdicción.
-Estas oficinas estarán a cargo de funcionarios especializados en la promoción del desarrollo comunal y ubicaran sus instalaciones preferentemente en los edificios municipales o en locales de las asociaciones de desarrollo.
-Son funciones de estas oficinas:
-a) Promover la organización de asociaciones de desarrollo de la comunidad;
-b) Supervisar y evaluar, a nivel local, los planes y programas de desarrollo de la comunidad;
-c) Velar por la actividad participación de las asociaciones en los planes y programas de desarrollo de la comunidad;
-d) Asesorar el funcionamiento de las asociaciones de desarrollo de la comunidad; y
-e) Poner en práctica las instrucciones impartidas por la Dirección.
-Las oficinas regionales o cantonales serán dirigidas y administradas por un delegado regional o cantonal, respectivamente.
-Los referidos delegados estarán directamente subordinados al Departamento de Promoción y Coordinación.
+Artículo 9°.- La Dirección previo acuerdo de Consejo, podrá establecer oficinas zona, regionales o provinciales encargadas de cumplir las funciones de la Dirección y las otras que se les señalen en el área d su jurisdicción. Estas oficinas estarán a cargo de Promotores de Desarrollo de la Comunidad y sus funciones son:
+a) Promover la organización y desarrollo de las comunidades.
+b) Supervisar y evaluar a nivel local los planes y programa de desarrollo de la comunidad.
+c) Velar por la activa participación de las asociaciones en los planes y programas de desarrollo de la comunidad.
+d) Asesorar el funcionamiento de las asociaciones y otros grupos organizados para el desarrollo de la comunidad.
+e) Realizar estudios y brindar adiestramiento a las asociaciones y grupos comunales.
+f) Poner en práctica las políticas impartidas por la Dirección.
+Las Oficinas de zona serán dirigidas y administrativas por un Promotor Comunal y estarán directamente subordinadas a la Dirección y al Departamento correspondiente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 2199 del 4 de febrero de 1972)

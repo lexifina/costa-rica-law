@@ -1,6 +1,3 @@
-Artículo 14.- En la fecha en que entre en vigencia el presente Reglamento, el Presidente de la República, a solicitud del Director, procederá a integrar el Consejo Nacional de Desarrollo de la Comunidad en la siguiente forma:
-a) Designará a los tres ministros que participarán en él;
-b) Determinará cuáles serán las tres instituciones autónomas que estarán representadas en el Consejo y les solicitará las ternas de ley, por medio del Director;
-c) Solicitará, al Jefe de la Oficina de Planificación, la designación del representante correspondiente;
-d) Solicitará al Movimiento Nacional de Juventudes y a las asociaciones de desarrollo, las ternas de ley; y
-e) Una vez recibidas las ternas referidas y la designación a que se refiere el inciso c) dictará el Decreto Ejecutivo integrando el Consejo, firmado por él y el Ministro a que se refiere el párrafo segundo del artículo 1°de la ley, quien presidirá el Consejo.
+Artículo 14.- En la fecha en que entre en vigencia el presente Artículo 14°.- El Poder Ejecutivo, a solicitud del Director, procederá a integrar el Consejo Nacional de Desarrollo de la comunidad en la siguiente forma: El Ministro de Gobernación, El Ministro de Cultura, Juventud y Deporte, otro Ministro de Gobernación designado por el Presidente de la República, uno del movimiento Nacional de Juventud y uno de las asociaciones de desarrollo de la comunidad. El representante del Movimiento Nacional de Juventudes y el de las asociaciones de desarrollo se nombraran escogiéndolos de ternas que deberán ser solicitadas a estas entidades.
+Cuando las asociaciones de desarrollo estén organizadas a escala nacional, serán los organismos nacionales los encargados de presentar las ternas de los representantes de aquellas. La integración del Consejo se hará por Derecho Ejecutivo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 2199 del 4 de febrero de 1972)

@@ -1,2 +1,2 @@
-Artículo 24°.- Del seno de la asamblea se elegirá provisionalmente un director de debates, quien podrá nombrar entre los asistentes, a las personas que crea más conveniente y aptas para que lo auxilien en su trabajo. El representante de la Dirección entregará a la asamblea el proyecto de Estatuto previamente revisado por el Departamento Legal y de Registro de Asociación, el que será sometido a votación, artículo por artículo y su aprobación será por mayoría de votos.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 6 del 6 de febrero de 1969)
+Artículo 24°.- Del seno de la Asamblea se podrá elegir un director de debates, quien podrá nombrar entre los asistentes a las personas que crea convenientemente para que lo auxilien en su trabajo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 2199 del 4 de febrero de 1972)
