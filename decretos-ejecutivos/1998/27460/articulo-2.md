@@ -1,0 +1,1 @@
+Artículo 2°—Se ratifica la integración de la Junta Médica Calificadora de la Incapacidad para el Trabajo, que estableció el decreto número 21779-MTSS del 11 de octubre de 1992. por el período del 16 de octubre de 1997 al 30 de setiembre de 1998.
