@@ -1,0 +1,1 @@
+Art. 4. Con el resultado de la informacion verbal, que seguirá con citacion del Procurador Sindico, comprobada la posesion por el registro de que habla elart. 2 de esta ley, y con presencia del plano del Agrimensor, el Gobernador estenderá gratis y en el papel correspondiente una certificacion que servirá al interesado de suficiente titulo de propiedad.
