@@ -1,1 +1,0 @@
-Artículo 22.- Las entidades deportivas que reciban el 10% a que se refiere el artículo 2º de la ley Nº 3275. deberán destinar el 40% de lo que reciban, a fomentar la práctica del deporte respectivo por aficionados.

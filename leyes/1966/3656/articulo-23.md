@@ -1,1 +1,0 @@
-Artículo 23.- La Ley de Salarios de la Administración Pública y el Estatuto de Servicio Civil y sus reformas, se aplicarán en forma general y obligatoria a la Dirección General de Educación Física y Deportes.

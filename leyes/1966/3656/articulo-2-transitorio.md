@@ -1,1 +1,0 @@
-Transitorio II.- Los reglamentos que esta ley requiera, los elaborará el Consejo Nacional, para su promulgación por el Poder Ejecutivo con las reformas que éste considere necesario introducirles; pero mientras el Consejo no esté integrado, el Poder Ejecutivo la reglamentará directamente.
