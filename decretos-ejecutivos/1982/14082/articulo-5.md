@@ -66,6 +66,7 @@ Maicillo en grano, no envasado…………………. | 045-09-02
 Manteca de cerdo comestible…………………… | 091-02-01
 Mantecas comestibles de origen animal o vegetal, excepto de cerdo comestible………….. | 091-02-02
 Margarina y similares……………………………. | 091-01-00
+Marones frescos, refrigerados o congelados (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 16701 del 8 de noviembre de 1985) | 031-03-01
 Miel de abejas y otras mieles naturales………. | 02-01-00
 Natilla fresca………………………………………. | 021-01-01
 Pan de toda clase, tal como pan blanco, negro cuadrado español y dulce, galletas ordinarias, rosquillas, ilustrados, roscas, gatos, acemitas, quesadillas y biscoteles que no se venden en envases o envoltorios originales metálicos o de cartón…………………………………………… | 048-04
