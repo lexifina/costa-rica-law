@@ -1,0 +1,1 @@
+Artículo 13.-Plazo del Préstamo. Los documentos tendrán un plazo de Rréstamo de quince días hábiles. Una vez concluido el período, el Archivo Central notificará al usuario para recordarle la devolución del documento.

@@ -1,0 +1,1 @@
+Artículo 9°-Listas de Remisión. El Archivo Central no se hará responsable de la documentación no descrita en las Listas de Remisión, que deben acompañar a los traslados documentales. Asimismo, las consultas de los usuarios serán evacuadas de conformidad con la información contenida en dichas listas, de cuya correcta elaboración será responsable cada unidad.

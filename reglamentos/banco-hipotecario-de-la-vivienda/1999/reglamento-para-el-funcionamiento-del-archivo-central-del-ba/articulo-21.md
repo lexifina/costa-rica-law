@@ -1,0 +1,1 @@
+Artículo 21.-Eliminación Documental. El Comité Institucional deberá consultar a la Comisión Nacional de Selección y Eliminación de Documentos, cuando se acuerde eliminar documentación que haya finalizado su trámite administrativo. Esta consulta deberá ser presentada mediante un informe, el cual será acompañado por las Tablas de Plazo.

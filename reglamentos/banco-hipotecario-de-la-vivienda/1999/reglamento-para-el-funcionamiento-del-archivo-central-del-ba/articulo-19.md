@@ -1,0 +1,1 @@
+Artículo 19.-Integrantes. El Comité Institucional de Selección y Eliminación Documental estará integrado por el encargado del Archivo Central, el superior administrativo (lel departamento a que pertenezca jerárquicamente el mismo, un representante de la Asesoría Legal y un representante de la Auditoría Interna.
