@@ -1,0 +1,5 @@
+DECRETO CXVI.
+Aprueba el convenio celebrado por un comisionado del Gobierno con el Señor Santiago Mercker sobre el reclamo de una suma de pesos procedente de perjuicios que le fueron irrogados en tiempo de la extinguida federacion.
+"El General Presidente del Estado de Costa Rica. -Por cuanto el Excelentísimo Poder Legislati-ro ha decretado y sancionado lo siguiente,
+El Excelentisimo Congreso Constitucional del Estado de Costa Rica, decreta.
+Art. único. Se ratifica el couvenio celebrado entre el comisionado por el Sapremo Gobierno del Estado y el Sr. Santiago Mereher súbdito franeés el 10 de marzo proximo pasado, por cantidad de pesos que reclama el segundo de perjuicios que recibiò en tiempo de la extinguida federacion,-Al Poder Ejecutivo. Dado en la cindad de San José, los veintiseis dias del mes de julio de mil ocho- cientos cuarenta y ocho.-Tuan Ralael Reyes, Diputado Viee-Presidente.-Pedro Garcia, Diputado Secretario.-Nicolas Ulloa, Diputado Pro-Secretario,-Por tanto: BISCOTESE. San José, julio veintiocho de mil ochocientos cuarenta y ocho. -José Maria Castro,-Al Ministro de relaciones gobernacion, Señor Don Joaquin Bernardo Calvo"
