@@ -1,0 +1,1 @@
+Artículo 2.- Concédese igualmente pensión de veinticinco colones mensuales á cada una de las señoras Mercedes Montealegre v. de Salazar, Dolores Montealegre Mora, Adela Mora Trejos, Dolores Mora Monge y Augustina Roldán v de Guillén; esta última vitalicia.
