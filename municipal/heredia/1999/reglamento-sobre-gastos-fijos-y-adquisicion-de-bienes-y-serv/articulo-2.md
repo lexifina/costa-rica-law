@@ -1,0 +1,1 @@
+Artículo 2°-Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y servicios, así como para suscribir gastos fijos, convenios en los cuales la Municipalidad de Heredia actúe como parte, hasta por la suma 2.221.628,00 (dos millones doscientos veintiún mil seiscientos veintiocho con 00/100.)

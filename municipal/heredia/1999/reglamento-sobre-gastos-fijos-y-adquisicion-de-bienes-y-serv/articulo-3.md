@@ -1,0 +1,1 @@
+Artículo 3°-Semestralmente rendirá el Alcalde Municipal un informe al Consejo Municipal, el cual contendrá los egresos que hubiese autorizado. Lo anterior de conformidad al artículo 17, inciso F) del Código Municipal.
