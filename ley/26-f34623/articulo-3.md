@@ -1,0 +1,2 @@
+Artículo 3.- También Prorróganse las pensiones concedidas á la señora Ramona Gutiérrez v. de Castro, Josefa Vargas v. de Alfaro, Jacinta Carrillo v. Estrada y Elena Castro v. de Orozco, Asignándoles cincuenta colones mensuales á cada una de las tres primeras y sesenta colones á la última.
+La pensión prorrogada por este artículo a la señora Jacinta Carrillo y. de Estrada, cuando está muera, pasará á sus hijas dolores, Isabel, Sabina y Manuela Estrada.
