@@ -14,3 +14,4 @@ Reforma Tasas Ordinarias Especiales Respuestas de Cartas y Tarjetas Comerciales 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-03-13 | la propia norma |
+| 2 | 1976-06-08 | Decreto Ejecutivo 6081 (1976-06-08) |
