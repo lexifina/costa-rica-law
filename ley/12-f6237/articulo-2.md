@@ -1,0 +1,1 @@
+Art. 2 Para que dicho cuerpo de derecho patrio sea conforme con los principios generales de la Jurisprudencia, se autoriza a la misma Comisión Permanente para que pueda asociar á uno ó a dos abogados, cuya instrucción y acreditada experiencia contribuyan al acierto de la enunciada obra.
