@@ -1,0 +1,1 @@
+Art.2. El Tribunal de que habla el art. 2 de aquel decreto queda suprimido, y las causas de que ha conocido se pasarán por su Secretario al del Despacho; y éste las pasara a los Tribunales ó autoridades que debiesen conocer de ellas por la Constitucion y leyes vigentes.
