@@ -14,3 +14,4 @@ Declara Zona Protectora Tivives
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-06-02 | la propia norma |
+| 2 | 1998-10-13 | Ley 7575 |
