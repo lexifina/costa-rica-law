@@ -1,0 +1,1 @@
+Art 2°.- La población será preferente en ellos a qualesquiera otro destino, y las labores de los vecinos de aquel Pueblo a las de qualesquiera otros, debiéndose en uno y otro caso indegnizar a los posedores de los costos útiles que allí tengan impendidos.
