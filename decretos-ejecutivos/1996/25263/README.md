@@ -13,3 +13,4 @@ Tasas Apartados Postales de Dirección Nacional Comunicaciones CORTEL
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-23 | la propia norma |
+| 2 | 1996-07-23 | SINALEVI (sin norma nombrada) |
