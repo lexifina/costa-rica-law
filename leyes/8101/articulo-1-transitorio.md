@@ -1,0 +1,1 @@
+Transitorio I.-En un plazo de tres meses, el Ente Nacional de Acreditación de Laboratorios (ENAL) deberá reglamentar el procedimiento para la acreditación de los laboratorios que puedan realizar las pruebas de marcadores genéticos ADN.

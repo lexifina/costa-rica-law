@@ -1,0 +1,31 @@
+Artículo 4º-Adiciónase al Código de Familia, Ley N° 5476, del 21 de diciembre de 1973, el artículo 98 bis, cuyo texto dirá:
+"Artículo 98 bis.-Proceso especial para las acciones de filiación. En los procesos en que se discuta la filiación, se observarán las siguientes reglas procesales:
+a) Contenido de la demanda: En el escrito de la demanda se indicarán necesariamente:
+1.- Los nombres, los apellidos, las calidades de ambas partes y los números de las cédulas de identidad.
+2.- Los hechos en que se funda, expuestos uno por uno, enumerados y bien especificados.
+3.- Los textos legales que se invocan en su apoyo.
+4.- La pretensión que se formula.
+5.- El ofrecimiento de las pruebas, con indicación, en su caso, del nombre y las demás generales de ley de los testigos.
+6.- El señalamiento de casa u oficina para recibir notificaciones y el medio.
+En la misma resolución en que se curse la demanda se pedirá la cita de los marcadores genéticos.
+b) Demanda defectuosa: Si la demanda no llena los requisitos legales, la instancia jurisdiccional ordenará al actor o la actora que la corrija y, para ello, le puntualizará los requisitos omitidos o no llenados como es debido. Igual orden dará en el caso de que la parte demandada, dentro de los cinco primeros días del emplazamiento, señale algún defecto legal que su autoridad halle procedente. Dicha resolución, en ambos casos, carecerá de recurso. En la resolución se prevendrá la corrección dentro del plazo de cinco días y, si no se hace, se declarará la inadmisibilidad de la demanda y se ordenará su archivo.
+c) Emplazamiento: Presentada la demanda en forma legal o subsanados los defectos, el órgano jurisdiccional dará traslado a la parte demandada y le concederá un plazo perentorio de diez días para la contestación, oponer excepciones previas y excepciones de fondo, aportar la prueba documental y ofrecer toda la demás, con indicación, en su caso, del nombre y las generales de las testigos y los testigos.
+d) Incompetencia: Si el órgano jurisdiccional estima que es incompetente, lo declarará así de oficio y ordenará remitir el expediente a la instancia a la que le corresponda conocer el caso.
+e) Órgano jurisdiccional competente: Será competente el órgano con jurisdicción sobre asuntos familiares del domicilio de la parte demandada o de la parte actora, a elección de esta última y sin posibilidad de prórroga.
+(La Sala Constitucional mediante resolución N° 11098 del 10 de julio del 2009, interpretó el inciso e) del artículo 98 bis de la ley N° 5476 del 21 de diciembre de 1973, adicionado por esta norma, en el sentido de que "la posibilidad del actor de fijar la competencia es válida en tanto éste represente los intereses del menor de edad de conformidad con lo expuesto en el último considerando de la sentencia".)
+f) Intervención del Organismo de Investigación Judicial: En la misma resolución en que se curse la demanda, se pedirá cita al Organismo de Investigación Judicial de la Corte Suprema de Justicia, o alguno de los laboratorios debidamente acreditados y reconocidos por el Ente Nacional de Acreditación de Laboratorios, a fin de que se practique la prueba científica sobre la paternidad o maternidad en discusión.
+g) Audiencia Oral: Contestada la demanda o la reconvención, se señalará hora y fecha, dentro de los treinta días siguientes, para realizar la audiencia única en la que, bajo pena de nulidad, se desarrollarán:
+1.- La definición del contenido del proceso o el objeto mismo de la audiencia específica.
+2.- La conciliación.
+3.- El saneamiento.
+4.- La recepción de pruebas.
+5.- La resolución a las excepciones previas y excepciones de fondo.
+6.- Las conclusiones de los abogados o las partes.
+7.- El dictado de la parte dispositiva de la sentencia.
+h) Incidentes: No podrá suspenderse el señalamiento por la interposición de incidentes, recursos o gestiones de naturaleza similar, los cuales serán reservados para el inicio de la audiencia y resueltos en esa oportunidad.
+i) Concentración de pruebas: La totalidad de la prueba confesional y testimonial deberá evacuarse en una sola audiencia y, solamente cuando sea muy abundante, podrán fijarse audiencias sucesivas.
+j) Discusión final: Terminada la recepción de las pruebas, la persona juzgadora otorgará la palabra a las partes y a su representación legal para formular conclusiones.
+k) Prueba pendiente: Si en el momento de concluir la audiencia oral existe prueba científica pendiente de evacuar, se esperará su resultado y, al llegar este, será puesto en conocimiento de las partes por un plazo de tres días, para que formulen las observaciones pertinentes.
+l) Sentencia: Evacuada la prueba y cerrado el debate, se señalará la hora de ese día para la lectura de la parte dispositiva de la sentencia, salvo en los casos de gran complejidad, en los cuales se autoriza al juzgado para que la dicte al día siguiente. La notificación de la sentencia íntegra se realizará dentro de un plazo máximo de cinco días.
+m) Recursos: La sentencia será apelable dentro del tercer día y, en su caso, la sentencia de segunda instancia admitirá el recurso de casación previsto para la materia de familia. Lo resuelto en firme en los procesos en los que se discuta la filiación, produce los efectos de la cosa juzgada material."
+(La Sala Constitucional mediante resolución N° 11158-2007 de las 14:52 hrs. del 01/08/2007, interpretó el inciso m) del artículo 98 bis de la ley N° 5476 del 21-12-1973, adicionado mediante esta norma, en el sentido de que éste no resulta inconstitucional en el tanto se interprete que la sentencia vertida en un proceso de filiación con eficacia y autoridad de cosa juzgada admite el recurso extraordinario de revisión en los términos que se indican en la parte considerativa.)
