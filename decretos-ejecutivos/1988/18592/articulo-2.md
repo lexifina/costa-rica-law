@@ -1,2 +1,0 @@
-Artículo 2°.- Las tarifas establecidas conforme con el artículo anterior, se cobrarán en ambos sentidos de circulación, por el recorrido total o parcial que se realice. Se autoriza a la Administración el cobro del doble de la tarifa en un solo sentido, cuando lo considere conveniente para disminuir la contaminación y Los costos de operación que provoca el cobro del peaje.
-(Así reformado por el artículo 2 del decreto ejecutivo N° 20385 del 18 de abril de 1991)
