@@ -13,3 +13,4 @@ AyA: Reglamento General Cajas Chicas y Fondos de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-01-20 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
