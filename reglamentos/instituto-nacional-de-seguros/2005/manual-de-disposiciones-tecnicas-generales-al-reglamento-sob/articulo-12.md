@@ -1,0 +1,2 @@
+Artículo 12.—Disposiciones transitorias. La adopción del paquete de normas de la NFPA se hará de forma gradual, inicialmente se integrarán las clases de ocupaciones que se indican en el presente Manual de Disposiciones, posteriormente, se incluirán las correspondientes a otras ocupaciones conforme la revisión y ajuste que realice el Cuerpo de Bomberos y la aprobación que se sirva hacer la Gerencia, la cual se hará del conocimiento general por parte de la Dirección de Planificación.
+San José, 10 de enero del 2005.
