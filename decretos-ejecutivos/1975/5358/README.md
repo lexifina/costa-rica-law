@@ -13,3 +13,4 @@ Reglamento Regulador al Ejercicio Privado de Correduría Bienes Raíces
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-12-16 | la propia norma |
+| 2 | 1975-12-16 | SINALEVI (sin norma nombrada) |
