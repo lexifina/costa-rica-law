@@ -7,7 +7,7 @@ en el Vigésimo Período Ordinario de Sesiones
 de la Asamblea General
 ENTRADA EN VIGOR:
 DEPOSITARIO: Secretaría General OEA (Instrumento original y ratificaciones).
-TEXTO: Serie sobre Tratados, OEA, N° 73.
+TEXTO: Serie sobre Tratados, OEA, No. 73.
 REGISTRO ONU:
 PAÍSES SIGNATARIOS DEPÓSITO RATIFICACIÓN
 (1) Ecuador |
