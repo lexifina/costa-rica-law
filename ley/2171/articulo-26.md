@@ -1,0 +1,1 @@
+Artículo 26.- El Instituto Nacional de vivienda y Urbanismo, de acuerdo con sus leyes y reglamentos, otorgará derecho de preferencia, en las adjudicaciones que haga de viviendas, a los padres o jefes de familia ciegos,previo el estudio de la necesidad en cada caso. Igualmente concederá las facilidades que sean posibles en cuanto a plazos y monto de las cuotas.

@@ -1,0 +1,1 @@
+Artículo 12.- El Patronato se reunirá ordinariamente dos veces al mes y extraordinariamente cuando sea necesario. En ambos casos la convocatoria deberá hacerla la Junta Directiva por medio del Secretario.

@@ -1,0 +1,1 @@
+Artículo 18.- Toda persona ciega que desee obtener el título de Bachiller en Humanidades puede usar del sistema Braille para realizar las pruebas de suficiencia, o llevar un lector para revisar lo escrito o mimeografiado.
