@@ -1,0 +1,9 @@
+ARTÍCULO 32.- Comités científico-técnicos
+Cada Área de Conservación deberá contar con un comité científico-
+técnico, cuya función será asesorar al Consejo y al director en los
+aspectos técnicos del manejo del área. De dicho Comité formarán parte los
+responsables de los programas del área, así como otros funcionarios y
+personas externas al área designada por el director. Este Comité es un
+foro permanente cuyo carácter es el máximo órgano asesor para analizar,
+discutir y formular planes y estrategias que serán ejecutados en las Áreas
+de Conservación.

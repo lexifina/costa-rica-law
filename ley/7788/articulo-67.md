@@ -1,0 +1,10 @@
+ARTÍCULO 67.- Registro de derechos de acceso sobre elementos
+genéticos y bioquímicos
+La Oficina Técnica de la Comisión organizará y mantendrá
+permanentemente actualizado un Registro de derechos de acceso a elementos
+genéticos y bioquímicos. El Director de la Oficina Técnica de la Comisión
+será, a su vez, Director del Registro y funcionario responsable de la
+custodia y autenticidad de la información registrada.
+La información registrada será de carácter público, excepto los
+secretos industriales, que deberán ser protegidos por el Registro, salvo
+que razones de bioseguridad obliguen a darles publicidad.
