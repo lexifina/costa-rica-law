@@ -1,0 +1,2 @@
+Artículo 4°- Del nombramiento de los asociados:
+Una vez redactados los estatutos y reglamentos de la Asociación para la Promoción de la Ciencia y la Tecnología , serán presentados al Rector del Sistema Nacional de Ciencia y Tecnología para la convocatoria a nivel nacional de todas aquellas personas físicas que de manera personal o en representación, reúnan los requisitos y deseen participar en la Asamblea Constituyente de la Asociación para la Promoción de la Ciencia y la Tecnología.
