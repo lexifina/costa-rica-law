@@ -11,7 +11,8 @@ Por tanto,
 DECRETAN:
 Artículo primero.—Modifícanse los artículos 2º, 3º, 5º y 6º de la Ley Nº 8398 publicada en el Alcance Nº 66 a La Gaceta Nº 252 del 31 de diciembre del 2003 “Ley de Presupuesto Ordinario de la República para el Ejercicio Económico del 2004”, en la Relación de Puestos de Cargos Fijos de los Ministerios afectados, Tribunal Supremo de Elecciones, Asamblea Legislativa, Defensoría de los Habitantes de la República y Poder Judicial respectivamente en la forma que se indica a continuación:
 REBAJAR:
-000 RELACIÓN DE PUESTOS DE CARGOS FIJOS PARA EL AÑO 2000
+000 RELACIÓN DE PUESTOS DE CARGOS FIJOS PARA EL AÑO 2004
+(Así reformado por el artículo 3° del Decreto Ejecutivo N° 31725 de 16 de marzo de 2004).
 101 ASAMBLEA LEGISLATIVA
 Cuota Cuota
 Código Clase Detalle de los puestos mensual anual
