@@ -1,0 +1,1 @@
+Artículo 5°-Igualmente, y en especial coordinación con el Instituto de Fomento y Asesoría Municipal, a través de su División de Planificación, establecerá un programa de estudio, promoción y análisis del sistema regional entre las municipalidades del país, ya sea consideradas aisladamente o como parte de las respectivas Ligas. .

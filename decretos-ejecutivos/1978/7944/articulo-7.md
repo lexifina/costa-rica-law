@@ -1,0 +1,1 @@
+Artículo 7°-El Ministro de Planificación Nacional y Política Económica deberá organizar la divulgación y promoción de la regionalización creada por este decreto, conforme al artículo 20 del decreto N° 6400 del 27 de setiembre de 1977.

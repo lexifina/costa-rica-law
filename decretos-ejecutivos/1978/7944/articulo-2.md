@@ -1,0 +1,1 @@
+Artículo 2°.-A partir de la fecha de vigencia del presente decreto, todos los Ministerios, Instituciones Autónomas o Semiautónomas y todos aquellos organismos que por su naturaleza deban realizar labores de planeamiento y administración en todo o en parte del país, deben ajustar gradualmente sus planes y actividades a la regionalización indicada en el artículo anterior.

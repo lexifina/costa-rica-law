@@ -1,0 +1,1 @@
+Artículo 6°-La Oficina de Planificación Nacional y Política Económica, deberá iniciar, a partir de la vigencia del presente decreto, un estudio sistemático del nuevo Plan Nacional de Desarrollo, a fin de encuadrar sus programas y proyectos dentro del nuevo marco de la regionalización establecida por este medio.

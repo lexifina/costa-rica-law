@@ -1,0 +1,1 @@
+Artículo 8°-Por su parte, la Oficina de Planificación Nacional y Política Económica, por medio de la División de Planificación Regional y Urbana. deberá dar cumplimiento a lo dispuesto en el artículo 21 del mencionado decreto.
