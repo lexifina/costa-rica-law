@@ -1,0 +1,1 @@
+Artículo 16. —El excedente que resulte en el producto de las renta después de pagadas las sumas votadas en esta ley, lo aplicará el Poder Ejecutivo, con preferencia, á la disminución de la deuda interior.
