@@ -1,0 +1,1 @@
+Artículo 2. Dentro de un plazo no mayor de seis meses, del presente Protocolo, las Partes Contratantes deberán acordar multilateralmente, en el seno del Consejo Arancelario y Aduanero Centroamericano el reglamento a que se refiere el articulo 3 del CAUCA adoptado en este Instrumento.
