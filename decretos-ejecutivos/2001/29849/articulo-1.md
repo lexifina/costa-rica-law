@@ -1,0 +1,11 @@
+Nº 29849-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+LA MINISTRA DEL AMBIENTE Y ENERGÍA
+En el ejercicio de las facultades que les confieren el artículo 140, incisos 3) y 18) de la Constitución Política y de conformidad con lo dispuesto en el artículo 82 de la Ley de Conservación de la Vida Silvestre Nº 7317 del 7 de diciembre de 1992 y los artículos 32, 37 y 38 de la Ley Orgánica del Ambiente Nº 7554 del 13 de noviembre de 1995. La Ley Forestal Nº 7575 y los artículos 6º, 11 y 27 de la Ley General de la Administración Pública.
+Considerando:
+1º—Que por Decreto Ejecutivo Nº 27963-MINAE, publicado en La Gaceta Nº 134 del 12 de julio de 1999, creó el Refugio de Vida Silvestre Caletas, Categoría Mixto, el área de humedal del tipo palustrino, de limitadas por las coordenadas horizontales 192 y 194 y verticales 397 y 400, hojas cartográficas Río Ario y Puerto Coyote, proyección Lambert, así como los terrenos propiedad privada de la empresa Agropecuaria Playa Caletas, S. A., cédula de persona jurídica número 3-101-033721, finca Nº 44816-000, plano catastrado Nº G-415257-81, ubicadas en el distrito de Bejuco, cantón 9 Nandayure, provincia Guanacaste.
+2º—Que el señor Sylvester Feichtinger, portador del pasaporte de ese país número cero tres dos cuatro siete seis cinco nueve siete, actuando como presidente con facultades de apoderado generalísimo sin límite de suma de la sociedad de esta plaza Agropecuaria Playa Caletas, S. A.; solicitó la derogatoria del Decreto Ejecutivo Nº 27963-MINAE, publicado en La Gaceta Nº 134 del 12 de julio de 1999; a efecto de desafectar los terrenos propiedad privada, propiedad de su representada y que forman parte del Refugio Nacional de Vida Silvestre Caletas, Categoría Mixta.
+3º—Que la empresa Agropecuaria Playa Caletas, S. A., cédula de persona jurídica número 3-101-033721, accedió a incorporar sus propiedades en forma voluntaria a este régimen de protección de ecosistemas y la vida silvestre.
+4º—Que los terrenos privados incluidos dentro de este Refugio Nacional de Vida Silvestre Caletas, Categoría Mixta, no han sido adquiridos por el Estado y por lo tanto es decisión de su propietario mantenerlos o no dentro de este régimen. Por tanto,
+Decretan:
+Artículo 1º—Derogar el Decreto Ejecutivo Nº 27963-MINAE, publicado en La Gaceta Nº 134 del 12 de julio de 1999.
