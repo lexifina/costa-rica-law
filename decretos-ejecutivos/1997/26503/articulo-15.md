@@ -1,0 +1,1 @@
+Artículo 15.—Cada vez que la Junta Directiva apruebe nombramientos, tramite renuncias o despidos de regentes o asesores técnicos, realice suspensiones o revocatorias de nombramientos, la Fiscalía deberá comunicar lo pertinente al regente o asesor técnico y a la empresa regentada, así como a las autoridades competentes que regulan la actividad correspondiente.

@@ -1,0 +1,1 @@
+Artículo 29.—Los colegiados que regentan sus propias establecimientos o las empresas para las cuales laboran, deberán dedicar como mínimo el horario establecido para la categoría regencial correspondiente, al cumplimiento de las funciones pertinentes.

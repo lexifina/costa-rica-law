@@ -1,0 +1,2 @@
+Artículo 33.—Los salarios mínimos definidos para las categorías A y B se actualizarán automáticamente, cada vez que el Poder Ejecutivo modifique los salarios mínimos para el sector privado, en forma equivalente al porcentaje que el mismo acuerde para la clase profesional.
+De igual manera los honorarios mínimos establecidos para las categorías C. CH, D, E, F, G y H se actualizaran en forma automática, cada vez que el Poder Ejecutivo modifique el monto mínimo de la hora profesional para la prestación de servicios privados en Ciencias agropecuarias.

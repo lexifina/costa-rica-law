@@ -1,0 +1,1 @@
+Artículo 11.—El Colegio deberá suministrar al regente o asesor técnico, una vez aprobada la regencia, un certificado en el cual se le autoriza el ejercicio de la actividad en la empresa correspondiente, estando el colegiado en la obligación de mantenerlo en un lugar visible dentro de la misma.

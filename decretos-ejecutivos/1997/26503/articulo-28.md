@@ -1,0 +1,1 @@
+Artículo 28.—Cuando un regente o asesor técnico convenga con el regentado cualquier modificación en el horario establecido inicialmente deberá comunicarlo por escrito a la Fiscalía del Colegio y presentar además el certificado regencial correspondiente, para su debida corrección.

@@ -1,0 +1,1 @@
+Artículo 20.—Todo establecimiento que expenda productos extremadamente tóxicos o restringidos, deberá llevar un libro de inventario de productos restringidos debidamente registrado en el Ministerio de Agricultura y Ganadería, que será revisado periódicamente por el regencia o asesor técnico.

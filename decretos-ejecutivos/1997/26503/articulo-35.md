@@ -1,0 +1,2 @@
+Artículo 35.—Los profesionales de planta que asuman la regencia de la empresa para la cual laboran, deberán convenir con el regentado un sobresueldo adicional a su salario mensual por las responsabilidades regenciales, estando el regentado en la obligación de pagar dicho sobresueldo.
+Asimismo los profesionales que asuman la regencia de alguna persona física con la que tengan parentesco hasta el primer grado de consanguinidad, tendrán la potestad de no cobrar los salarios u honorarios respectivos, para lo cual se requerirá aprobación previa de la Junta Directiva.

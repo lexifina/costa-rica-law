@@ -1,0 +1,2 @@
+Artículo 4°—Las recomendaciones y observaciones del regente o asesor técnico tendrán carácter de acatamiento obligatorio para la persona física o jurídica que lo contrató. En caso de que las mismas no sean acatadas, deberá notificar tal situación a las autoridades competentes, para que se realicen las acciones procedentes de conformidad con las disposiciones que regulan la materia.
+El regente o asesor técnico deberá guardar confidencialidad en la información técnica, que le suministre la empresa para los fines propios de la actividad regentada.

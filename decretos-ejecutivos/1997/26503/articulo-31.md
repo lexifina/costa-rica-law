@@ -1,0 +1,6 @@
+CAPITULO VII
+De los salarios y honorarios por regencia y de las cuotas regenciales.
+Artículo 31.—Se establecen los siguientes salarios y honorarios mínimos mensuales por categoría regencial, que deberán pagar las empresas regentadas al profesional por el ejercicio de la actividad.
+a) CATEGORÍA A: El regente o asesor técnico deberá percibir como mínimo, un salario mensual equivalente al salario mínimo definido por el Poder Ejecutivo para la profesión en el sector privado más un cincuenta y cinco por ciento, dividido entre la fracción de jornada legal de trabajo por la que es contratado, la cual no podrá ser inferior a media jornada.
+b) CATEGORÍA B: El regente o asesor técnico deberá percibir como mínimo, un salario mensual equivalente al salario mínimo definido por el Poder Ejecutivo para la profesión en el sector privado más un cincuenta y cinco por ciento.
+c) CATEGORÍAS C. CH. D. E. F, G y H: Los regentes o asesores técnicos de estas categorías deberán percibir honorarios mínimos mensuales, equivalentes al número de horas dedicadas a la actividad regencial, multiplicado por el monto mínimo de la hora profesional para la prestación de servicios privados en Ciencias Agropecuarias fijado por el Poder Ejecutivo. En ningún caso dicho pago podrá ser inferior al equivalente a ocho horas profesionales por mes.

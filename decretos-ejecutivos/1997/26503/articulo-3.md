@@ -1,0 +1,3 @@
+CAPITULO II
+De las categorías y de las funciones y responsabilidades regenciales
+Artículo 3°—Todas las personas físicas o jurídicas establecidas en el Artículo 22 de la Ley No 7221, deberán contar, por cada local, con los servicios de un profesional en Ciencias Agropecuarias incorporado al Colegio en calidad de regente o asesor técnico, el cual será responsable de asumir la dirección técnica, asesoría, regulación y control de las actividades realizadas por las personas contratantes en la materia que corresponde, para que las mismas se ajusten en todo a las disposiciones legales definidas en la legislación correspondiente, así como a las normas técnicas y administrativas que dicten las autoridades competentes.

@@ -1,0 +1,1 @@
+Artículo 19.—Las recetas profesionales deberán cobrarse, con base en el monto mínimo de la hora profesional para la prestación de servicios privados en Ciencias Agropecuarias. Si el regente o asesor técnico emite la receta dentro del horario establecido para la función regencial, tendrá la potestad de cobrar los honorarios correspondientes por dicha receta.

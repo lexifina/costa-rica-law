@@ -1,0 +1,4 @@
+Artículo 9°—Los colegiados que no posean formación académica curricular afín a la actividad que van a regentar, de acuerdo en lo establecido en el inciso c) del artículo anterior, podrán ser nombrados como regentes en dicha actividad, siempre y cuando además de cumplir con los otros incisos de dicho artículo, cumplan los siguientes requisitos:
+a) Demostrar a satisfacción del Colegio suficiente experiencia profesional en la actividad respectiva, que lo capacite para el cumplimiento de todas las funciones atinentes a la categoría que pretende regentar, debiendo presentar para ello la documentación pertinente que para el efecto le solicite el Colegio.
+b) Haber aprobado cursos formales complementarios a los recibidos en su carrera universitaria, sobre temas específicos relacionados con la actividad que va a regentar.
+c) Aprobar aquellos cursos de capacitación que sobre la materia específica, imparta o avale el Colegio.

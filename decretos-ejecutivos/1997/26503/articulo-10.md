@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros del Colegio, que sean propietarios o que laboren como profesionales de planta de personas físicas o jurídicas que requieran los servicios de un regente o asesor técnico, podrán ejercer la regencia respectiva, debiendo cumplir los requisitos definidos para esos efectos y ajustarse a las disposiciones de este Reglamento.

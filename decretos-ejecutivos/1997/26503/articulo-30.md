@@ -1,0 +1,1 @@
+Artículo 30.—Los miembros del Colegio podrán asumir la regencia en una o más de las personas físicas o jurídicas definidas en este Reglamento, siempre y cuando la suma total de los horarios mínimos establecidos para cada categoría a regentar o de los horarios convenidos con las empresas correspondientes, no sobrepase el tiempo completo de una jornada legal de trabajo.

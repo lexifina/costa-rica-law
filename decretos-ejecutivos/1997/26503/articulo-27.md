@@ -1,0 +1,1 @@
+Artículo 27.—Todo regente o asesor técnico deberá comunicar por escrito a la Fiscalía del Colegio, el horario específico convenido para el ejercicio de la actividad, el cual tendrá que ser concordante con el horario regular de la empresa regentada.

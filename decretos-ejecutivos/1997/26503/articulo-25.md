@@ -1,0 +1,1 @@
+Artículo 25.—La Fiscalía del Colegio podrá solicitar al regente o asesor técnico el Libro de Protocolo, en el momento que lo considere oportuno para su respectiva revisión, estando el profesional en la obligación de presentarlo dentro del plazo que le conceda la Fiscalía.

@@ -1,0 +1,2 @@
+Artículo 18.—Los colegiados podrán elaborar la receta correspondiente. solamente cuando hayan realizado la inspección previa al cultivo o explotación objeto de la recomendación, o cuando cuenten con evidencias suficientes para la elaboración de la misma.
+La responsabilidad del profesional en la emisión de la receta, se circunscribe únicamente en la recomendación técnica en cuanto a cultivos, usos recomendados de los productos a utilizar, dosificación, método de aplicación y equipo de protección requerido.

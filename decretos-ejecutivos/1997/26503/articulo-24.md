@@ -1,0 +1,1 @@
+Artículo 24.—En caso de extravío del Protocolo, el profesional deberá comunicar de inmediato por escrito tal situación al Colegio, para que se proceda a tomar nota de ello y tendrá que solicitar la apertura de un nuevo Protocolo.

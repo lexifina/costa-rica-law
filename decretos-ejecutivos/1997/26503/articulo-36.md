@@ -1,0 +1,1 @@
+Artículo 36.—En todo contrato de regencia se contemplará exclusivamente el pago de las funciones establecidas en este Reglamento para la categoría correspondiente; los salarios u honorarios atinentes a labores o funciones extras deberá cancelarlas quien así las solicitara.
