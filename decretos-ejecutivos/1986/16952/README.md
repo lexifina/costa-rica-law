@@ -14,3 +14,4 @@ Delimita Zonas Portuarias Reservadas Limón Centro y Moín
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-04-21 | la propia norma |
+| 2 | 1993-09-08 | Decreto Ejecutivo 22503 (1993-09-08) |
