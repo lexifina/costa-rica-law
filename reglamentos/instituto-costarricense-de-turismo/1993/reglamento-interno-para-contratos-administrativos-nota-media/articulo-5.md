@@ -1,0 +1,1 @@
+Artículo 5°—No obstante lo establecido en el artículo anterior, los topes para determinar el procedimiento de contratación administrativa a emplear, podrán ser objeto de excepción cuando medien autorizaciones específicas o genéricas emanadas de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 25°—Con excepción de los trámites de pago de salarios ordinarios y extraordinarios a los servidores de la Institución, previstos en los artículos anteriores y los que correspondan a través de las Cajas Chicas y los de adelanto de gastos para viajes, todos los demás deberán canalizarse por medio de la respectiva "Orden de Pago" u "Orden de Compra".

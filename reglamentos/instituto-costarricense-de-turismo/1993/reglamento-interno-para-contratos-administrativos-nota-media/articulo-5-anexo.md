@@ -1,0 +1,2 @@
+Artículo 5°—El pago del canon por concepto de Título Licencia para operar Agencias de Viajes, puede hacerse semestralmente durante los meses de enero y junio de cada año.
+En cuanto a los términos y plazos fijados a través de contratos, convenios, o por cualquiera otra determinación administrativa, el Área de Ingresos les dará el seguimiento que corresponda para su fiel y correcto cumplimiento, o en su defecto, iniciar los trámites legales que sean pertinentes.

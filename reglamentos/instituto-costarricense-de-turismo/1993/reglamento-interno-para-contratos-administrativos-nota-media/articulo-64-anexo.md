@@ -1,0 +1,1 @@
+Artículo 64°—Se exceptúa de este fondo, cuando las circunstancias lo ameriten, la prohibición establecida por el artículo 50, inciso 50.1. Tampoco se requerirá en los pagos tramitados con estos fondos, lo establecido por el Artículo 51 en cuanto a la autorización previa de presupuesto.

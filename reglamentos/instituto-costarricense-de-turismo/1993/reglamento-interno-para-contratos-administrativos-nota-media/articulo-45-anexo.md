@@ -1,0 +1,1 @@
+Artículo 45°—El personal de Cómputo mantendrá una estrecha y efectiva coordinación con Contabilidad, Presupuesto y los Analistas de Sistemas, a fin de asegurarse resultados óptimos y oportunos que permitan visualizar en forma integral y pormenorizada, la situación económica y financiera que presente la Institución en cualquier momento.

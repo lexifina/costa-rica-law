@@ -1,0 +1,1 @@
+Artículo 17º—Para la adquisición de artículos en existencia en la bodega de la Proveeduría, deberá utilizarse la fórmula "REQUISICIÓN", la que también es de uso obligatorio para todas las unidades y en la que se observarán e indicarán los requisitos al que la Proveeduría solicite, además de las firmas autorizadas.

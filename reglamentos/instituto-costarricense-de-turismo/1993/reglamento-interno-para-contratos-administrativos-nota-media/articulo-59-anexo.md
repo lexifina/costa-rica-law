@@ -1,0 +1,1 @@
+Artículo 59°—Únicamente podrán tramitarse mediante estos fondos, aquellas compras de bienes y servicios que no sobrepasan la suma de c10.000,00 (diez mil colones), quedando expresamente prohibido fraccionar compras mayores de ese monto.

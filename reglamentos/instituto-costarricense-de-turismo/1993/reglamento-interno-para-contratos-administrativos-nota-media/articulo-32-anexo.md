@@ -1,0 +1,1 @@
+Artículo 32°—La existencia de contenido económico en las diferentes partidas presupuestarias, deberá hacerse constar en todos y cada uno de los formularios utilizados por la Institución para las diferentes transacciones.

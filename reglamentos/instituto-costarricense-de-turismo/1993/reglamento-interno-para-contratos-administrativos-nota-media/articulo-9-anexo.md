@@ -1,0 +1,1 @@
+Artículo 9°—Todos los ingresos que se reciban en efectivo -monedas, cheques y cualquier otro documento de pago bancario-, deberán depositarse íntegramente a más tardar, el día hábil posterior a su recepción. Bajo ningún concepto se cambiarán cheques personales con los fondos percibidos.

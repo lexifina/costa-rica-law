@@ -1,0 +1,1 @@
+Artículo 28°—Todas las modalidades de cheques que se utilicen en la Institución, deben ser prenumerados y con las copias que sean necesarias para los diferentes controles que sobre los mismos se establezcan. Además, se requerirán dos firmas mancomunadas en el refrendo de los mismos.

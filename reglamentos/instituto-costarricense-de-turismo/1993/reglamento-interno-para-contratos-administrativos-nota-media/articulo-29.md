@@ -1,0 +1,1 @@
+Artículo 29º.—La Proveeduría, una vez cumplido con los trámites establecidos por el Manual de Procedimientos del Área de Proveeduría y este Reglamento, así como por las leyes y reglamentos conexos, procederá a emitir la orden de compra en el formulario correspondiente, remitiéndola una vez revisada y aprobada a Presupuesto.

@@ -1,0 +1,1 @@
+Artículo 39°—El primer día hábil de julio de cada año, la Gerencia presentará para conocimiento y aprobación de Junta Directiva, el proyecto del presupuesto anual del Instituto, el que deberá quedar firme por parte de este Órgano deliberativo, come de S fecha máxima el último día del mismo mes de julio.

@@ -1,0 +1,1 @@
+Artículo 80°—En casos muy calificados y de conformidad con la resolución de la jefatura de la Dirección Administrativa Financiera, se podrá reintegrar o acreditar el impuesto a los Agentes Retenedores.

@@ -1,0 +1,1 @@
+Artículo 25º—La justificación de las compras de activos que en cada caso se requieran, o el retiro y cambio de estos del inventario permanente, serán de responsabilidad de la Jefatura de la unidad que las reciba y del superior jerárquico que las autoriza.

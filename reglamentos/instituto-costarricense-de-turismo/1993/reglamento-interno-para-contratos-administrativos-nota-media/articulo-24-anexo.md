@@ -1,0 +1,1 @@
+Artículo 24°—Para el pago de los salarios a los servidores que laboran en el exterior, la Contabilidad preparará la planilla correspondiente y tramitará ante el banco comercial, el egreso de divisas, debiendo hacerlo el primer día hábil del mes al que corresponda el giro.

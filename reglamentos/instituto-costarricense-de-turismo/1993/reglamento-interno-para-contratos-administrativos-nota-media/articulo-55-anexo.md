@@ -1,0 +1,1 @@
+Artículo 55°—Es prohibido mantener o sustituir los fondos de caja chica por otros valores que no sean lo que indica el artículo 47 y la violación de esta disposición se considerará falta grave, que se sancionará según lo estipula el artículo 39 del Reglamento Autónomo de Trabajo.

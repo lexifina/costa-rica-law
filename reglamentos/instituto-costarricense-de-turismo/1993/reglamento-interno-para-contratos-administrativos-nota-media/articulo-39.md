@@ -1,0 +1,3 @@
+Artículo 39.—Para la realización de giras dentro o fuera del territorio nacional, debe solicitarse el anticipo para gastos de viaje y de transporte, salvo casos excepcionales que lo ameriten, justificados por el superior inmediato. En lo que respecta a giras al exterior debe solicitarse la autorización ante la Junta Directiva.
+En todos los casos al regreso de la gira, debe confeccionarse la liquidación de gastos en el formulario utilizado para ese fin.
+La comprobación de falsedad, o el ocultamiento de información, en los datos incluidos en la liquidación, hará incurrir al responsable en las sanciones previstas en el Reglamento Autónomo de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 44°—Además de los ajustes a las validaciones de los movimientos digitados, es responsabilidad de los Operadores de Cómputo, emitir y preparar los diferentes informes y reportes que ayuden a la toma de decisiones por parte de los diferentes niveles jerárquicos.

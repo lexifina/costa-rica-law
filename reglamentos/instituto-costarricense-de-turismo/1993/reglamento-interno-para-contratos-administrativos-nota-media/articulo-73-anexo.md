@@ -1,0 +1,1 @@
+Artículo 73°—Para los efectos de este fondo, la autorización de los gastos la efectuará la jefatura de la Dirección de Promoción y Fomento, quien será responsable ante su superior inmediato, de los gastos que autorice. Las liquidaciones de estos fondos serán refrendadas por dicha jefatura de Dirección.

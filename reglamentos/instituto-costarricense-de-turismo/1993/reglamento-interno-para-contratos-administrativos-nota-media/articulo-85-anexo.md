@@ -1,0 +1,1 @@
+Artículo 85°—Para los efectos de este fondo, la autorización de los gastos la hará el Administrador, quien será responsable ante su superior inmediato de los gastos que autorice. Las liquidaciones de estos fondos serán refrendadas por el superior jerárquico del Administrador.

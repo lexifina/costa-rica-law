@@ -1,0 +1,1 @@
+Artículo 42°— Es responsabilidad de los operadores de Cómputo, mantener actualizados los sistemas computarizados y en uso por parte de Financiero; como resultado del procesamiento electrónico de datos, mantendrán un estricto control de rubros, apertura y actualización de catálogos de cuentas y sobre la digitación de todos los documentos que se procesan en los diferentes sistemas.

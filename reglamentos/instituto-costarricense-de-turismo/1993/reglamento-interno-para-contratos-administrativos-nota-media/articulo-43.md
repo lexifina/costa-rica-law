@@ -1,0 +1,1 @@
+Artículo 43.—Es improcedente y por lo tanto no está permitido, utilizar los adelantos de gastos de viaje y transporte en fines distintos para los que se autorizaron, incluyendo variaciones en cuanto a los lugares y estancias de viajes originalmente aprobados.

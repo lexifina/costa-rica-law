@@ -1,0 +1,1 @@
+Artículo 72°—Únicamente podrán tramitarse mediante estos fondos, aquellas compras de oficina, que no sobrepasen la suma de US$ 1.000,00 (mil dólares) con excepción de los servicios de comunicación, adelanto de gastos de viaje y de transporte y la compra de activos que se requieran y que por su índole sólo puedan adquirirse en ese país, para los que no regirá este límite.

@@ -1,0 +1,1 @@
+Artículo 77°—Únicamente podrán tramitarse mediante estos fondos, los reintegros del Impuesto 8% sobre pasajes internacionales que no sobrepasen la suma de c10.000,00 (diez mil colones) en cada caso, con la aprobación del Encargado del Área de Ingresos.

@@ -1,0 +1,1 @@
+Artículo 38°—El 15 de Mayo de cada año, es la fecha límite para que las unidades encargadas de eiecutar gastos en la Institución, presenten a la Gerencia a través de los responsables de los programas que establezcan; la información consolidada de los requerimientos para el año venidero, en base a las justificaciones y los objetivos y metas que se piensan cumplir y alcanzan.

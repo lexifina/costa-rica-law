@@ -1,0 +1,2 @@
+Artículo 8º—La percepción de todos los dineros propiedad de la Institución, que se efectúen en las Oficinas Centrales, estarán bajo la responsabilidad y administración del Tesorero.
+Todo pago que recibe la Tesorería, estará amparado al correspondiente recibo oficial por dinero, en las fórmulas prenumeradas y confeccionadas para esos efectos, debiendo contener un detalle claro de lo que se está cubriendo, la codificación exacta de acuerdo al catálogo de cuentas y la firma del Tesorero o de quien se delegue.

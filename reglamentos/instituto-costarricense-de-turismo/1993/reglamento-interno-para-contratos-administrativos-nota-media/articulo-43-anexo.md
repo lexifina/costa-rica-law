@@ -1,0 +1,1 @@
+Artículo 43°— Dentro de los procesos generales se dará especial atención, a los que corresponden a planillas, para que dentro de los términos fijados por los Artículos 22 y 23, se proceda a los pagos salariales pertinentes.

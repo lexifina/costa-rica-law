@@ -1,0 +1,1 @@
+Artículo 74°—Se exceptúan de este fondo las disposiciones establecidas por los artículos 50, incisos 50.1 y 54 inciso 54.1 y 54.4. Tampoco se requerirá en los pagos tramitados mediante este fondo, lo establecido por el artículo 51, en cuanto a la autorización previa de Presupuesto.

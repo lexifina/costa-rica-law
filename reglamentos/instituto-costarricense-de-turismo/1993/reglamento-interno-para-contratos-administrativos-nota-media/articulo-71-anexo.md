@@ -1,0 +1,1 @@
+Artículo 71°—El cuidado y manejo de estos fondos, estará a cargo de la Secretaria de esa Oficina, quien será solidariamente responsable junto con la Jefatura de la Dirección de Promoción y Fomento de su correcto manejo en apego a las disposiciones generales.

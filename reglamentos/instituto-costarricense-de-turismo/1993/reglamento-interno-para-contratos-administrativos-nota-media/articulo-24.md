@@ -1,0 +1,1 @@
+Artículo 24º—La reincidencia comprobada en errores de trámite para la compra de bienes o la contratación de servicios, dará base para que la administración ordene la investigación pertinente, para sentar las responsabilidades que correspondan y aplicar las sanciones que contempla el Reglamento Autónomo de Trabajo.

@@ -1,0 +1,2 @@
+Artículo 40.—Toda liquidación de gastos, haya o no sido tramitada mediante anticipo, deberá ser presentada ante la unidad designada para su revisión dentro de los días hábiles siguientes concedidos al término del viaje, por el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos. De no cumplirse con esta disposición, la Administración aplicará las sanciones correspondientes.
+En ningún caso se autorizará una nueva gira ni se podrá girar adelanto, al servidor que tuviese pendiente la liquidación del viaje anterior.

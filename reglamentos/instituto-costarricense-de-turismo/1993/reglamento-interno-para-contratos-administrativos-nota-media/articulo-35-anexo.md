@@ -1,0 +1,1 @@
+Artículo 35°—Deberá Presupuesto mantener actualizado, el manual de cuentas presupuestarias; el cronograma financiero y cualquier otro tipo de control que en este campo se utilice, manteniendo una estrecha y constante coordinación con la Contabilidad y Cómputo.

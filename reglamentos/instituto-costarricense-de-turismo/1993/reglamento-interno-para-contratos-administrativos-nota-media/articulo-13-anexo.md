@@ -1,0 +1,1 @@
+Artículo 13°—La Tesorera debe de velar y mantener un estricto control sobre todos los valores entregados para su custodia, dentro de los que se destacan pólizas, acciones comunes y preferenciales, bonos, garantías de participación o de cumplimiento, pagarés, patentes, colecciones numismáticas, folletos, leyes y reglamentos entre otros.

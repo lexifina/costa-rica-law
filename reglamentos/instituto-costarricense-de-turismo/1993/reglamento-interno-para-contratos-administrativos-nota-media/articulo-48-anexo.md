@@ -1,0 +1,1 @@
+Artículo 48°—Los encargados de la custodia de los fondos asignados en cada caso en particular, responderán por el correcto manejo de los mismos ante sus superiores inmediatos, así como ante la Auditoría. Esta última, de acuerdo con lo establecido en el artículo 35, inciso b), de la Ley Orgánica, realizará arqueos y verificaciones periódicas de estos fondos.

@@ -1,0 +1,1 @@
+Artículo 56°—La liquidación de los fondos de caja chica deberá hacerse por parte del responsable de las mismas, por lo menos, el último día hábil de cada mes, en la fórmula editada al efecto, o cuando se hubiere gastado menos del cincuenta por ciento de los fondos asignados.

@@ -1,0 +1,1 @@
+Artículo 12°—El Tesorero es el responsable directo de la custodia y emisión de las tarjetas de turismo requisadas para la venta, debiendo llevarlos más claros y seguros registros demostrativos del saldo y secuencia numérica estricta, así como las entregadas en consignación.

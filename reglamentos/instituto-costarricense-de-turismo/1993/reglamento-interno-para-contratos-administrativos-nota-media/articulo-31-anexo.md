@@ -1,0 +1,1 @@
+Artículo 31°—Deberá el Área de Contabilidad en coordinación con el Departamento Financiero, controlar la ejecución del presupuesto ordinario y sus modificaciones en la forma más amplia y detallada, siguiendo las técnicas y directrices que en ese campo se deben utilizar.

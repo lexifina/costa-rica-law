@@ -1,0 +1,1 @@
+Artículo 27°—Todo desembolso deberá hacerse por medio de cheque, salvo los que estén autorizados para efectuarse a través de las Cajas Chicas, según lo determinado por el Capítulo IV de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 44.—Los adelantos de gastos de viaje y transporte de los servidores destacados en el exterior, para cuando se internan en el país en funciones de su cargo, deberán girarse según la tarifa que indique la Contraloría General de la República, debiendo cubrirse en colones en la suma equivalente a los dólares que corresponda.

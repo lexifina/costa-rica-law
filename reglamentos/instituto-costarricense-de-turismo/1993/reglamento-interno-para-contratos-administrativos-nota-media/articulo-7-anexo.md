@@ -1,0 +1,1 @@
+Artículo 7°—El Área de Ingresos dentro de sus funciones de control, fiscalización y verificación de todos los ingresos tributarios, no tributarios y de capital, propiedad de la Institución, aplicará las disposiciones legales y reglamentarias específicas para cada caso que se han dado y en forma supletoria utilizará las que sobre I impuestos establezca el Código Tributario.

@@ -1,0 +1,1 @@
+Artículo 7°—Cualquier modificación que deba efectuarse en contratos adjudicados o en vías de ejecución, deberá efectuarse de acuerdo con las disposiciones de la Ley de la Administración Financiera de la República y el Reglamento de la Contratación Administrativa.
