@@ -1,0 +1,1 @@
+Artículo 12.—El usuario tendrá la obligación de que al concluir la actividad, entregará la explanada en las mismas condiciones de estado y aseo en que le fue cedida. De igual forma se le advertirá de que será el responsable civil por cualquier tipo de accidente o incidente que se llegara a presentar con ocasión de la actividad.

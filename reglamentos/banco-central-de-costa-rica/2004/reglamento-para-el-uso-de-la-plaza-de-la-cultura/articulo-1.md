@@ -1,0 +1,9 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica mediante Artículo 12 del Acta de la sesión 5197-2004, celebrada el 12 de mayo del 2004, con base en la recomendación de la División de Asesoría Jurídica contenida en su memorando AJ-477-2004 del 4 de mayo del 2004, y considerando:
+a. que conforme lo establece el Artículo 28, inciso I), de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558 del 3 de noviembre de 1995, corresponde a la Junta Directiva del Instituto Emisor reformar e interpretar los reglamentos internos del Banco y regular sus servicios de organización y administración,
+b. que La Plaza de la Cultura que se ubica en el edificio de los Museos del Banco Central de Costa Rica es patrimonio del Banco Central,
+c. que la Fundación Museos del Banco Central de Costa Rica fue creada mediante Ley 7363 del 10 de noviembre de 1993, con el objeto de manejar y administrar los museos de dicho Banco,
+d. que según el voto 3667 de la Sala Constitucional del 7 de mayo de 2003, La Plaza de la Cultura es un bien patrimonial del Estado, por lo que su propietario, el Banco Central, puede regular su uso y disfrute por parte del público que tenga acceso a ella, pudiendo permitir o restringir determinados usos o actos sobre el inmueble, incluyendo la realización de función de policía para su conservación e impedir el uso abusivo, dispuso:
+Aprobar el “Reglamento para uso de La Plaza de la Cultura”, conforme al texto que se copia seguidamente:
+“REGLAMENTO PARA EL USO DE LA PLAZA DE LA CULTURA
+Artículo 1º—La Fundación para administrar los Museos del Banco Central de Costa Rica, velará porque las actividades que autorice en el espacio de La Plaza de la Cultura respondan consecuentemente con las disposiciones del presente reglamento y para tal efecto, contratará un servicio de vigilancia permanente que garantice la preservación y conservación de la arquitectura de La Plaza.

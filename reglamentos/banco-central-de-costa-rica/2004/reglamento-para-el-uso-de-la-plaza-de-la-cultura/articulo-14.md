@@ -1,0 +1,1 @@
+Artículo 14.—Queda terminantemente prohibido el ingreso de todo tipo de vehículos a La Plaza de la Cultura, aún cuando sea para efectos de carga o descarga. Los Vehículos de carga deben estacionarse en el Boulevard al costado norte y oeste de La Plaza.

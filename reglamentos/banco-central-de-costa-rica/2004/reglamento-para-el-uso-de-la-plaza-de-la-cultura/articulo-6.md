@@ -1,0 +1,1 @@
+Artículo 6º—Cuando la Fundación lo considere necesario, podrá pedir al solicitante un depósito de garantía para cubrir los daños y perjuicios que eventualmente se pueda ocasionar a las instalaciones objeto de préstamo. El monto de esa garantía no será inferior a US$250 ni sobrepasará los US$500.

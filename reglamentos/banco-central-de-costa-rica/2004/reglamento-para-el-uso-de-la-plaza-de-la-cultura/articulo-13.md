@@ -1,0 +1,1 @@
+Artículo 13.—El Banco Central de Costa Rica y la Fundación no asumen responsabilidad alguna por el robo, daño o cualquier otra eventualidad que pueda ocurrir al movilizar, equipo y otros que pertenezcan al usuario y que estén siendo utilizados en la actividad.

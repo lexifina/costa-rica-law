@@ -1,0 +1,1 @@
+Artículo 7º—Una vez que la Dirección de la Fundación haya aprobado la solicitud, se formalizará la autorización por escrito donde el usuario se compromete a cumplir con todas las disposiciones que regulan el uso de La Plaza de la Cultura.

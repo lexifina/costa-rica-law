@@ -1,0 +1,2 @@
+Artículo 2º—La Fundación podrá autorizar actividades y eventos cuyo objetivo sea de carácter cultural, cívico o social sin fines de lucro y que no riñan con la moral y las buenas costumbres a juicio de la Dirección de la Fundación.
+Las actividades autorizadas será de carácter temporal, para ello la Fundación realizará la calendarización de eventos de conformidad con el procedimiento que se establece en este reglamento.
