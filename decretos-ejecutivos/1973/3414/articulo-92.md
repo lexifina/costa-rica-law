@@ -1,1 +1,2 @@
-ARTICULO 92.- Todo gasto que exceda de quinientos colones deberá ser aprobado por la Junta Directiva General. De esta obligación se exceptúa el pago de aquellas partidas fijas establecidas en el presupuesto anual de gastos, tales como salarios, alquileres, seguros y otras similares.
+ARTICULO 92.- Todo gasto que exceda del 1,5 x 1.000 del Presupuesto Ordinario de Ingresos del Colegio Federado, excluidos los ingresos del Régimen de Mutualidad, deberá ser aprobado por la Junta Directiva General. De esta obligación se exceptúa el pago de aquellas partidas fijas establecidas en el Presupuesto Anual de Gastos, tales como salarios, alquileres, seguros y otros similares.
+(Así reformado por Acuerdo de Sesión Nº 4 de 5 de agosto de 1987)

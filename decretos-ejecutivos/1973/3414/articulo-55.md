@@ -9,3 +9,4 @@ d) Se tendrá como empresa constructora a aquella cuyo objeto se dirija a la mat
 Tales planos de construcción o de urbanización deberán ser firmados por un miembro activo del Colegio Federado, quien será el responsable profesionalmente de la realización de la obra.
 Estos planos podrá ser firmados también por varios profesionales y en este caso cada profesional responderá por la participación que tuviere en el ejecución de la obra.
 e) La responsabilidad civil por el diseño así como por la ejecución de la obra, se establecerá de acuerdo con lo que dispone el Código Civil.
+(Así reformado por Acuerdo de Sesión Nº 4 de 5 de agosto de 1987)

@@ -19,3 +19,4 @@ Reglamento Interior General Colegio Federado Ingenieros y Arquitectos
 | 4 | 1982-10-21 | Reglamento 4 (1982-10-21) |
 | 5 | 1982-10-21 | Reglamento 2 (1982-10-21) |
 | 6 | 1984-11-14 | Reglamento 0 (1984-11-14) |
+| 7 | 1987-08-05 | Reglamento 4 (1987-08-05) |
