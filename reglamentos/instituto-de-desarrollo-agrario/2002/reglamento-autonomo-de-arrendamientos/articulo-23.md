@@ -1,0 +1,1 @@
+Artículo 23.—Contra lo que resuelva la Junta Directiva cabrán los recursos de reconsideración y reposición, en los términos dispuestos por el artículo 31, párrafo 3) de la Ley Reguladora de la Jurisdicción Contencioso Administrativo.

@@ -1,0 +1,1 @@
+Artículo 35.—Requisito indispensable para autorizar la cesión o el subarriendo del contrato de arrendamiento será, que las partes se encuentren al día en el pago de sus obligaciones económicas respecto al Instituto.

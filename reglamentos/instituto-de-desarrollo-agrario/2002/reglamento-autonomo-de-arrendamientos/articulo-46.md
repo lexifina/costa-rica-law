@@ -1,0 +1,1 @@
+Artículo 46.—La resolución que acuerde la revocatoria tendrá recursos de reconsideración y reposición en los términos dispuestos por el artículo 31, párrafo 3) de la Ley Reguladora de la Jurisdicción Contencioso Administrativo.

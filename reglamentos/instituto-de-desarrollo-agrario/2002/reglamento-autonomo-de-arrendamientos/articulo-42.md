@@ -1,0 +1,1 @@
+Artículo 42.—El Instituto no otorgará arrendamientos, ni autorizara cesiones o subarriendos a aquellas personas a las que previamente se les haya rescindido un contrato de arriendo por incumplimiento de las obligaciones con el Instituto.

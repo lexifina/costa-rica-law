@@ -1,0 +1,1 @@
+Artículo 13.—Cuando se presente cualquier tipo de solicitud de arrendamiento, el funcionario que la reciba deberá revisarla previamente. En caso de encontrar errores o falta de requisitos, entregará al interesado una boleta con indicación del defecto, de lo cual dejará un duplicado en el expediente. No se dará curso a la solicitud, hasta tanto no se subsane la misma.

@@ -1,0 +1,1 @@
+Artículo 30.—Para todo estudio de solicitudes de renovaciones de contrato, prórrogas, traspasos, segregaciones, cesión de derechos y subarriendos, el Arrendatario(a) deberá cancelar la suma correspondiente para que se efectúe una nueva inspección en el predio arrendado de conformidad con lo establecido en el artículo 15 de este Reglamento.

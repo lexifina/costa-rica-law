@@ -1,0 +1,1 @@
+Artículo 29.—Los Cánones establecidos para todo contrato de arrendamiento podrán ser modificados cuando se autorice la prórroga o renovación del mismo, conforme al mecanismo establecido en los artículos 16 y 26 de este reglamento.

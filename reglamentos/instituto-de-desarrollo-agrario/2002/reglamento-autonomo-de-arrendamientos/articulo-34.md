@@ -1,0 +1,1 @@
+Artículo 34.—De aprobarse la cesión o el subarriendo que solicite el Arrendatario(a), lo será por el término que reste para el vencimiento del plazo establecido en el contrato de arrendamiento original. Vencido dicho término, si así procediera, se dará curso a una nueva solicitud del cesionario o del arrendatario y su subarrendante según corresponda.

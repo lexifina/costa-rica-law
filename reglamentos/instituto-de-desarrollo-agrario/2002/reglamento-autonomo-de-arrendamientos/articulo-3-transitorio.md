@@ -1,0 +1,1 @@
+Transitorio III.—Los contratos de arriendo otorgados de conformidad con el Reglamento anterior, a su vencimiento, solicitud de prórroga, cesión o subarriendo deberán ajustarse a los requisitos establecidos en el presente reglamento.

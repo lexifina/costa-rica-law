@@ -1,0 +1,1 @@
+Artículo 22.—Efectuado el pago del Cánon correspondiente se solicitará al petente o los petentes, presentarse ante la oficina subregional correspondiente a firmar el contrato arrendamiento, mismo que deberá contener como mínimo los requisitos establecidos en el artículo 9 de este cuerpo normativo.
