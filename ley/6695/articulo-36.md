@@ -1,0 +1,1 @@
+Artículo 36.- Si de las infracciones cometidas, señaladas en el artículo 33, de la presente ley, resultaren hechos punibles, el Ministerio de Economía, Industria y Comercio comunicará lo conducente al Ministerio Público, para que promueva y ejercite las acciones penales pertinentes.

@@ -1,0 +1,9 @@
+Artículo 22.- La Corporación queda facultada para:
+a) Construir o contratar la construcción de los edificios necesarios para el buen funcionamiento de los parques industriales, ya sea para uso propio o para ser arrendados a las empresas que en ellos se instalen;
+b) Dar en arrendamiento las propiedades y tierras propias, o las que haya recibido en administración, para que las empresas puedan construir, hacer construir, o modificar por cuenta propia, los edificios diseñados para cumplir sus requisitos específicos. Al final del arrendamiento, las construcciones y mejoras pasarán a ser propiedad de la Corporación, sin costo alguno de su parte, si el propietario no quisiere desmantelarlas, y llevárselas por su cuenta, dentro del plazo señalado por la Corporación;
+c) Vender propiedades y terrenos para la instalación de industrias, en los parques industriales, con autorización de la Contraloría General de la República, la que podrá oponerse, tanto por razones de conveniencia, como de la legalidad;
+ch) Establecer las facilidades aduaneras, de seguridad y de salubridad necesarias, de acuerdo con los requerimiento y recomendaciones de los Ministerios de Hacienda, de Salud y del Instituto Nacional de Seguros, según sea el caso;
+d) Construir o contratar, y coordinar con las instituciones estatales respectivas, la construcción de instalaciones de infraestructura y de servicios públicos en los parques industriales, necesarios para los fines de esta ley;
+e) Recomendar, canalizar y regular los respectivos permisos de la empresas que deseen establecerse en los parques industriales, en coordinación con las instituciones gubernamentales correspondientes;
+f) Proveer servicios de apoyo a las empresas establecidas en los parques industriales, o procurar que los provean las entidades correspondientes; y
+g) Realizar cualesquiera otros actos lícitos que sean necesarios para el cumplimiento de sus fines.

@@ -1,0 +1,5 @@
+Artículo 32.- Los beneficiarios de los incentivos fiscales otorgados por esta ley, quedarán obligados a lo siguiente:
+a) Llevar y anotar en libros y registros específicos, las operaciones de la empresa, relativas a los bienes que gozan de exenciones de impuesto, autorizados por la dependencia respectiva del Ministerio de Economía, industria y Comercio los cuales estarán sujetos a la inspección del Ministerio, de la Corporación y de las autoridades fiscales;
+b) Proporcionar a las autoridades competentes, los informes que se les soliciten, sobre el uso y destino de los artículos que importen al amparo de esta ley, así como permitirles las comprobaciones del caso, cuando lo estimen conveniente las autoridades;
+c) Facilitar gratuitamente, o prestar al organismo oficial respectivo, muestras de los artículos, para ser exhibidos en los eventos internacionales, en que participe el país; y
+ch) Cumplir con las demás obligaciones y condiciones que se les impongan en el acuerdo de calificación y concesión de incentivos.

@@ -1,0 +1,1 @@
+Artículo 6º.- Autorízase al Estado, conforme lo crea conveniente, para donar a la Corporación los bienes que ésta requiera en el cumplimiento de sus fines. La Contraloría General de la República podrá improbar dichas donaciones, por razones de oportunidad o de legalidad.
