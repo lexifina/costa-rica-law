@@ -1,0 +1,6 @@
+DECRETO LXXIV.
+Autorizan al Poder Ejecutivo para que, del Tesoro Nacional, pueda disponer anualmente hasta de cinco mil pesos para auxiliar la instrucción primaria en la Republica,
+"Juan Rafael Mora Presidente de la República de Costa Rica. -Por cuanto el Excelentisimo Congreso Constitucional ha decretado lo siguiente.
+El Excelentísimo Congreso Constitucional de la República de Costa Rica, con la mira de protejer en cuanto sea posible la instruccion primaria de la juventud, decreta:
+Art. único. Se autoriza al Poder Ejecutivo para que del tesoro nacional, pueda tomar anualmente hasta la suma de cinco mil pesos, a fin de auxiliar con ella los fondos destinados a la instruccion primaria.
+§ único. Las sumas que se dieren en virtud del articulo anterior serán distribuidas entre las Provincias con justa proporcion al monto de sus poblaciones respectivas.-Al Poder Ejecutivo.-Dado en el Palacio de los Supremos Poderes, en San Jose a los treinta dias del mes de junio de mil ochocientos cincuenta y dos. Miguel Mora, Vice-Presidente- Joaquin FIores, Secretario. Jose Maria Garcia Secretario, Por tanto: EJECUTESE. Palacio Nacional. -San Jose, julio primero de mil ochocientos cincuenta y dos –Juan Rafael Mora.-_El Ministro de Estado en el Despacho de Gobernacion Joaquin Bernardo Calvo."
