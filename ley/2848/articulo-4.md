@@ -1,0 +1,2 @@
+Artículo 4
+No se consideran como discriminatorias las medidas que afecten a una persona sobre la que recaiga sospecha legítima de que se dedica a una actividad perjudicial a la seguridad del Estado, o acerca de la cual se haya establecido que de hecho se dedica a esta actividad, siempre que dicha persona tenga el derecho a recurrir a un tribunal competente conforme a la práctica nacional.
