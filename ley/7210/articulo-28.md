@@ -1,4 +1,1 @@
-ARTICULO 28.- Una vez publicado el Acuerdo Ejecutivo, la empresa
-beneficiaria deberá suscribir con la Corporación un Contrato de Operaciones
-en un plazo de tres meses. Pasado ese plazo sin que se suscriba el
-Contrato, la concesión del Régimen de Zona Franca caducará.
+ARTÍCULO 28.- (Derogado por el artículo 13, inciso a), de la Ley de Creación del Ministerio de Comercio Exterior y la Promotora de Comercio Exterior Nº 7638 de 30 de octubre de 1996)

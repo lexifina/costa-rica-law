@@ -1,8 +1,2 @@
-ARTICULO 35.- Se exceptúa a la Corporación del alcance de las leyes
-No. 6821, Ley de Creación de la Autoridad Presupuestaria y sus reformas,
-del 19 de octubre de 1982 y a la Ley No. 6955, Ley para el equilibrio
-financiero del sector público y sus reformas, del 24 de febrero de 1984,
-así como del artículo 9 de la ley No. 5255, Ley de planificación nacional y
-sus reformas, del 2 de mayo de 1974 y, en consecuencia, de los decretos,
-resoluciones, acuerdos o directrices que se hayan fundamentado en tales
-leyes.
+ARTÍCULO 35.- Se exceptúa a la Corporación(*) del alcance de las leyes Nº 6821, Ley de Creación de la Autoridad Presupuestaria y sus reformas, del 19 de octubre de 1982 y a la Ley Nº 6955, Ley para el equilibrio financiero del sector público y sus reformas, del 24 de febrero de 1984, así como del artículo 9 de la ley Nº 5255, Ley de planificación nacional y sus reformas, del 2 de mayo de 1974 y, en consecuencia, de los decretos, resoluciones, acuerdos o directrices que se hayan fundamentado en tales leyes.
+(*) (Nota: Estas facultades y deberes corresponden ahora a la Promotora de Comercio Exterior PROCOMER, según el artículo 13, inciso a), de la Nº 7638 de 30 de octubre de 1996)

@@ -1,4 +1,4 @@
-ARTICULO 23.- Las empresas nacionales que provean a las empresas
+ARTÍCULO 23.- Las empresas nacionales que provean a las empresas
 establecidas en las Zonas Francas, servicios, materias primas nacionales,
 productos, partes o componentes, parcial o totalmente elaborados en el
 país, están exentas del pago de impuestos de ventas y de consumo en estas

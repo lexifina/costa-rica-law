@@ -1,8 +1,4 @@
-ARTICULO 25.- La persona física o jurídica interesada en obtener el
-Régimen de Zona Franca, bajo la clasificación de alguna de las categorías
-que señala el artículo 17 de esta ley, deberá presentar la solicitud
-respectiva a la Corporación, debidamente autenticada por un notario,
-acompañada de información detallada sobre la contaminación producida por el
-proceso y sus desechos, así como de los documentos que solicite la Junta
-Directiva de la Corporación, todo de acuerdo con los instructivos que al
-efecto proporcionará la Corporación.
+CAPITULO VIII
+Procedimiento para otorgar el Régimen
+ARTÍCULO 25.- La persona física o jurídica interesada en obtener el Régimen de Zona Franca, bajo la clasificación de alguna de las categorías que señala el artículo 17 de esta ley, deberá presentar la solicitud respectiva a la Corporación (*), debidamente autenticada por un notario, acompañada de información detallada sobre la contaminación producida por el proceso y sus desechos, así como de los documentos que solicite la Junta Directiva de la Corporación (*), todo de acuerdo con los instructivos que al efecto proporcionará la Corporación (*).
+(*) (Nota: Estas facultades y deberes corresponden ahora a la Promotora de Comercio Exterior PROCOMER, según el artículo 13, inciso a), de la Nº 7638 de 30 de octubre de 1996)

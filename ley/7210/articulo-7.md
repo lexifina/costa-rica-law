@@ -1,5 +1,2 @@
-ARTICULO 7.- Todos los incentivos y beneficios contemplados en esta
-ley, a favor de las empresas sometidas al Régimen de Zona Franca, se
-otorgarán a la Corporación, que también quedará exenta del pago de tributos
-y derechos que deba pagar, por la parte que le corresponda, en cualquier
-contrato que ejecute.
+ARTÍCULO 7.- Todos los incentivos y beneficios contemplados en esta ley, a favor de las empresas sometidas al Régimen de Zona Franca, se otorgarán a la Corporación(*), que también quedará exenta del pago de tributos y derechos que deba pagar, por la parte que le corresponda, en cualquier contrato que ejecute.
+(*) (Nota: Estas facultades y deberes corresponden ahora a la Promotora de Comercio Exterior PROCOMER, según el artículo 13, inciso a), de la Nº 7638 de 30 de octubre de 1996)
