@@ -1,0 +1,1 @@
+Artículo 4: Con la salvedad de lo dispuesto en el artículo 244 de la Ley Orgánica leí Poder Judicial, la compensación económica establecida por la Ley N° 5867 y sus reformas, sólo se hará efectiva cuando el servidor que desempeñe el puesto afectado por prohibición se encuentre realizando las funciones propias de dicho puesto.

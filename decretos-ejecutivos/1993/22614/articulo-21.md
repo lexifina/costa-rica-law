@@ -1,0 +1,1 @@
+Artículo 21: El incumplimiento en que incurra el servidor, aparte del reintegro económico que deba hacerse en favor del Estado, constituirá falta grave, que ajuicio del jerarca correspondiente y de acuerdo con las circunstancias y disposiciones reglamentarias vigentes, podrá ser considerada como causal de despido.

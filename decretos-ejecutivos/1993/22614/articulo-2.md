@@ -1,0 +1,14 @@
+CAPITULO I
+DE LAS DEFINICIONES
+Artículo 2: Para los efectos del presente reglamento entiéndase por:
+a) Dirección: Dirección General de Servicio Civil;
+b) Prohibición: Inhibición obligatoria e irrenunciable para ejercer funciones propias del cargo o de la profesión que se ostenta, fuera de la Institución, así como también las actividades relacionadas con el ejercicio liberal de la profesión;
+c) Pago de compensación económica; pago otorgado por ley, en forma porcentual, de acuerdo con el salario base, al servidor cuyo puesto, funciones o profesión estén afectados por prohibición;
+d) Ejercicio liberal de la profesión: prestación de servicios profesionales al público sin que medie contrato de trabajo ni relación de dependencia;
+e) Profesional: toda persona natural que ostente un título universitario de grado o posgrado, y que se encuentra incorporado al Colegio profesional correspondiente cuando así lo disponga la ley.
+f) Servidor Público: la persona que presta servicios a la Administración o a nombre y por cuenta de esta como parte de su organización en virtud de un acto válido y eficaz de su investidura;
+g) Requisito académico primario: requisito de mayor nivel académico que tiene el puesto;
+h) Requisitos del puesto: conjunto total de requisitos que exige el puesto;
+i) Técnico: puesto correspondiente a las clases del Manual Descriptivo de Clases del Régimen de Servicio Civil, cuyas tareas demandan el dominio de principios generales, técnicos y prácticos de una actividad determinada, que por lo general se complementan con conocimientos técnicos o administrativos que por su naturaleza especializada y específica, se adquieren durante el ejercicio del cargo;
+j) Técnico y Profesional: comprende las clases de puestos que demandan estudios académicos superiores para una ejecución exitosa de las actividades que las conforman;
+k) Administración Pública: la constituida por el Estado y los demás entes públicos.

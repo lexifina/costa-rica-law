@@ -1,0 +1,1 @@
+Artículo 22: Comprobado el incumplimiento, el servidor deberá reintegrar al Estado los montos percibidos por concepto de prohibición, de conformidad con el procedimiento que se establece en el artículo siguiente.

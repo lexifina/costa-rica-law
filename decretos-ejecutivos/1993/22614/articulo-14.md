@@ -1,0 +1,1 @@
+Artículo 14: Es atribución de la Dirección, controlar y emitir criterios en relación con este beneficio, los cuales serán de acatamiento obligatorio para las instituciones comprendidas en el Régimen de Servicio Civil.

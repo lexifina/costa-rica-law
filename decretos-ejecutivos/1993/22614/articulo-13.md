@@ -1,0 +1,1 @@
+Artículo 13: Corresponde a las Oficinas de Recursos Humanos ejercer el control inmediato en todo lo inherente al pago por concepto de prohibición, sin perjuicio (la intervención que puedan tener las Auditorías Internas de cada institución, y Dirección según su competencia en relación con este beneficio.
