@@ -14,3 +14,4 @@ Autoriza la operación y funcionamiento del Relleno Sanitario de Río Azul por e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-12 | la propia norma |
+| 2 | 1995-04-20 | Decreto Ejecutivo 24276 (1995-04-20) |
