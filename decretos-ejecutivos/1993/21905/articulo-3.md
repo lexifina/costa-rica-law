@@ -1,0 +1,2 @@
+ARTICULO 3°
+El mapa de los caseríos y poblados de la Reserva Indígena Cabécar de Chirripó elaborado por la CONAI, el Registro Civil y la Asociación de Desarrollo Integral de la Reserva de Chirripó, será presentado al Instituto Geográfico Nacional, y otras Instituciones oficiales, de manera que sea tomado en cuenta en las nuevas ediciones de la "División Territorial Administrativa de la República de Costa Rica" y el mapa 1/50000 1GM, así como para los censos de población.
