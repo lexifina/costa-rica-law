@@ -1,0 +1,2 @@
+Artículo 9º.- La presente ley entrará a regir un mes después de que se publique en "La Gaceta"; pero, dentro de los quince días siguientes a esa publicación, la Asamblea Legislativa y la Corte, en su caso, cumplirán lo dispuesto en los artículos transitorios II y III.
+La Corte Plena queda facultada para hacer, de inmediato, los nuevos nombramientos de Jueces Superiores y de los traslados que sean necesarios, a fin de que esta ley pueda aplicarse desde la fecha de su vigencia.
