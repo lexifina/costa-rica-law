@@ -1,0 +1,1 @@
+Artículo 28.—Las inversiones, las compras de bienes y servicios deberán de canalizarse con base en los niveles de aprobación de gastos establecidos por la Administración del ICAFÉ y cumpliendo con los procedimientos de contratación administrativa y su reglamento.

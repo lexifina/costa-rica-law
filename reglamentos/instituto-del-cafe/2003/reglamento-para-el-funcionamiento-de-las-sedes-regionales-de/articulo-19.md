@@ -1,0 +1,1 @@
+Artículo 19.—La comunicación de los acuerdos deben ser firmados por el secretario de actas del Consejo Asesor que será el Jefe de la Sede Regional. El secretario de actas del Consejo Asesor no devengará remuneración adicional por la atención de las sesiones del Consejo Asesor.

@@ -1,0 +1,1 @@
+Artículo 12.—Los integrantes de los Consejos Asesores de Sedes Regionales serán nombrados por la Junta Directiva del ICAFÉ por un periodo de un año y podrán ser contratados nuevamente. Tal nombramiento se hará de forma que los miembros del Consejo Asesor inicien sus funciones el primer día hábil del mes de enero del año siguiente al nombramiento de la Junta Directiva del ICAFÉ.

@@ -1,0 +1,1 @@
+Artículo 27.—El custodio de la caja chica, deberá remitir mensualmente a la Gerencia Administrativa-Financiera un informe sobre los gastos, independientemente de los reintegros realizados, el cual debe contar con el aval del Jefe de la regional y el visto bueno del Coordinador de Regionales.
