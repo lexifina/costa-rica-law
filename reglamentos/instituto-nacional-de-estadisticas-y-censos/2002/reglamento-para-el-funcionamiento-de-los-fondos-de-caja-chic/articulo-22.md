@@ -1,0 +1,1 @@
+Articulo 22.—Si realizados los arqueos, resultaren diferencias, éstas deben ser justificadas por los responsables de los fondos, quienes además deberán, en forma inmediata, depositar el sobrante o reintegrar el faltante, según corresponda.

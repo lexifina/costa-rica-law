@@ -1,0 +1,1 @@
+Artículo 12.—La cancelación de los rubros citados será responsabilidad exclusiva de la Unidad de Finanzas, cuyos funcionarios designados deberán velar por la aplicación del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos vigente y el presente Reglamento.

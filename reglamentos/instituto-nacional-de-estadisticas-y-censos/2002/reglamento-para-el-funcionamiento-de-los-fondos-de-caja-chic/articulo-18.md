@@ -1,0 +1,1 @@
+Artículo 18.—El monto de lo gastado no podrá exceder el monto autorizado en el vale de caja chica. De presentarse esta situación, el funcionario a quien le fue girado el vale, deberá asumir el gasto diferencial resultante, sin que el INEC quede obligado a reintegrarle esa suma.

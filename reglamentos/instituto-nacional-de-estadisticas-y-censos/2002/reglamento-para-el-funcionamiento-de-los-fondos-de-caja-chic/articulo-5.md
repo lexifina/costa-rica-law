@@ -1,0 +1,1 @@
+Artículo 5º—Corresponde a la Gerencia determinar y variar el monto establecido para los fondos de caja chica, mediante solicitud escrita y justificada que le haga la Coordinación de la Unidad de Finanzas, en razón del estudio de necesidades que al respecto presente esta Unidad, quien es la encargada de administrar los fondos de caja chica.

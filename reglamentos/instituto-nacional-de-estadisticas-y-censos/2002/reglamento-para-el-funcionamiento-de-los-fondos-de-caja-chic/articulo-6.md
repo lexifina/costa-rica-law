@@ -1,0 +1,1 @@
+Artículo 6º—La caja chica mantendrá el dinero en efectivo para atender exclusivamente la adquisición de bienes y servicios, así como para pagar los gastos de viaje y de transporte, cuando la situación así lo amerite por razones urgentes y necesarias para una determinada obra o servicio.

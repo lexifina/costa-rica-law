@@ -1,0 +1,1 @@
+Artículo 23.—Todo arqueo de la caja chica se realizará en presencia del Tesorero Institucional, o del Encargado de los Fondos de Caja Chica. Este funcionario tendrá el derecho de pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.
