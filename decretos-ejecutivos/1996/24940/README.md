@@ -13,3 +13,4 @@ Determina Cálculo Impuestos Selectivos de Consumo a Vehículos Usados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-05 | la propia norma |
+| 2 | 1998-11-26 | Decreto Ejecutivo 27464 (1998-11-26) |
