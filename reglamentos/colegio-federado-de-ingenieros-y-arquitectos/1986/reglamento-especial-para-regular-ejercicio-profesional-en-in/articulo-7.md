@@ -1,0 +1,1 @@
+Artículo 7°—Los planos para instalación de calderas que no requieran la aprobación en el Ministerio de Salud y que deben ser tramitados ante el Consejo de Salud Ocupacional, quedan sujetos a lo establecido en los artículos 4°, 5° y 8° del presente Reglamento.

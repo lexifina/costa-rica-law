@@ -1,0 +1,1 @@
+Artículo 8°—Los profesionales de otros colegios con especialidad o formación afín con la Ingeniería Mecánica , ya sea en su totalidad o en áreas específicas, podrán solicitar al Colegio Federado una licencia para desempeñarse profesionalmente en el campo de su conocimiento.

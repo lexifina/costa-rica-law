@@ -1,0 +1,1 @@
+Artículo 9°—Cualquier cambio en la obra con respecto a los planos sellados, según se indica en el articulo 4° de este Reglamento, debe ser autorizado por el inspector y su aprobación debe constar con su firma en los planos y en el cuaderno de bitácora.
