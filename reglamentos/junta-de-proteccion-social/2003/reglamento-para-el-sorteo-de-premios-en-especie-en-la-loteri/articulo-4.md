@@ -1,0 +1,7 @@
+Artículo 4º—De las características del premio en especie y su cuantía:
+a) Una casa de habitación con su respectivo lote y su cuantía se establece dentro del siguiente rango: De sesenta mil dólares US (US$ 60.000,00) hasta un máximo de sesenta y cuatro mil dólares US (US$ 64.000,00).
+b) Un vehículo, su cuantía se establece dentro del siguiente rango: De quince mil doscientos dólares US (US$ 15.200,00) hasta un máximo de dieciocho mil dólares US (US$ 18.000,00).
+c) El costo real para cada bien será el que se determine de la escogencia que realice el ganador conforme los alcances del artículo 8º del presente reglamento. Una vez comunicada formalmente dicha escogencia, al día siguiente, el Departamento de Tesorería previa verificación del depósito de la fracción ganadora, procederá a adquirir los dólares que correspondan y custodiarlos hasta su entrega final al proveedor conforme la orden incondicional de pago que se señala en el artículo 6º inciso a), de este reglamento.
+d) El monto final del premio en especie debe comprender todos los honorarios profesionales, impuestos de traspaso y ventas, derechos de registro y otros gastos o tributos necesarios para la inscripción de estos bienes en el Registro Público de la Propiedad a nombre del ganador.
+e) Los bienes anteriores deberán regirse por las condiciones y características generales que se establecen en el pliego de "especificaciones técnicas mínimas" que forman parte integral de este reglamento.
+f) La Junta de ninguna forma adquirirá el derecho de la propiedad del bien.
