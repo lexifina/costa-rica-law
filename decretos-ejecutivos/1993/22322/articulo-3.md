@@ -1,0 +1,1 @@
+Artículo 3°—La Dirección General de Museos del Ministerio de Cultura, Juventud y Deportes brindará financiamiento y apoyo en el campo museológico y museográgico de acuerdo con sus posibilidades presupuestarias.
