@@ -1,0 +1,13 @@
+Artículo 6. Pasivos:
+A- Sobregiro Bancario. SÍ existe algún tipo de sobregiro el mismo debe presentarse en esta cuenta, a saber
+* Contable: Se origina cuando existe un excedente entre el monto total de cheques emitidos y entregados y las disponibilidades de efectivo, una vez compensado dicho exceso con otros saldos deudores de la misma naturaleza.
+* Real: Se origina cuando tanto los registros contables como el estado de cuenta bancario muestran un sobregiro y el mismo prevalece una vez compensado con otros saldos deudores que mantenga el Fondo en cuentas bancarias de la misma institución.
+B- Documentos por Pagar. Corresponde al monto total de los préstamos obtenidos por el Fondo de Inversión, suscritos por un período menor a un año o saldos de otros documentos con vencimiento menor a 1 año. Se debe mencionar en notas a los Estados Financieros las condiciones o aspectos importantes relacionados con los mismos.
+C- Cuentas por Pagar. Representa el importe de las obligaciones a cargo del Fondo de Inversión pendientes de pago a la fecha del balance de situación, y que se han originado por el giro normal de operación del Fondo, así como otras cuentas a pagar a terceros y entes relacionados.
+D- Ingresos por Pagar a Inversionistas. Corresponde a los ingresos distribuidos por el fondo, pero que a la fecha de los estados financieros no han sido aun entregados a los respectivos beneficiarios.
+E- Gastos Acumulados por Pagar. Los gastos incurridos y no pagados aún, así como las provisiones creadas para el pago de obligaciones derivadas de la operación del Fondo de Inversión deben registrarse en esta cuenta.
+F- Intereses Acumulados por Pagar sobre Documentos. Incluye el monto de los intereses incurridos y no pagados aún. que se han originado en las diversas obligaciones financieras del Fondo, tales como intereses sobre préstamos recibidos y otras obligaciones financieras.
+G- Comisión por Pagar Sociedad Administradora. Corresponde a la comisión incurrida y no pagada a la Sociedad Administradora del Fondo a la fecha de los estados financieros.
+H- Otros Pasivos. En esta cuenta se deben registrar aquellos pasivos que por su naturaleza no se puedan clasificar dentro de las cuentas indicadas anteriormente.
+I- Documentos por Pagar Largo Plazo. Corresponde al monto total de los préstamos obtenidos por el Fondo de Inversión, suscritos por un período mayor a un año o saldos con vencimiento a más de un año. Se debe mencionar en notas a los Estados Financieros las condiciones o aspectos importantes relacionados con los mismos.
+J- Otras Cuentas por Pagar a Largo Plazo. En esta cuenta se deben registrar aquellos pasivos de largo plazo que por su naturaleza no se pueden clasificar dentro de las cuentas indicadas anteriormente.
