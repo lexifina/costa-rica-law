@@ -13,3 +13,4 @@ Reglamenta Uso Aerosoles Incluidos Protocolo Montreal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-08-06 | la propia norma |
+| 2 | 1990-08-06 | SINALEVI (sin norma nombrada) |
