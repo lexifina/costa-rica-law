@@ -1,0 +1,1 @@
+Artículo 3°-No obstante lo dispuesto anteriormente, la sal de calidad alimentaría deberá contener yodo en la cantidad que legalmente establece la Norma Oficial, por lo que deberá indicar en su etiquetado las concentraciones de yodo y de flúor, si contiene este último.
