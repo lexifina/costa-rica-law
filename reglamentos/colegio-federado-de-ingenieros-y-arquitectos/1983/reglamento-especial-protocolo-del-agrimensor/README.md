@@ -14,3 +14,4 @@ Reglamento Especial Protocolo del Agrimensor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-09-26 | la propia norma |
+| 2 | 1988-11-08 | Reglamento 2 (1988-11-08) |
