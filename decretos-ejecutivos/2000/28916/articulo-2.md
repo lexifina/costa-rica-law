@@ -1,0 +1,1 @@
+Articulo 2°—Adiciónese al inciso b) del Decreto citado los siguientes conceptos: Canon ARESEP, Canon Aviación Civil, Comisión sobre tarjetas de crédito, en la Refinadora Costarricense de Petróleo, S. A.
