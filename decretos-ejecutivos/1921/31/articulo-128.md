@@ -1,1 +1,0 @@
-Artículo 128.-Ningún abonado podrá hacer llaves del apartado que arrienda sin el consentimiento expreso de la Dirección General de Correos. El abonado que infrinja esta disposición, perderá el derecho de arriendo.

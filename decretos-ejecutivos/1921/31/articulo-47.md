@@ -1,1 +1,0 @@
-Artículo 47.- La correspondencia que se cruce entre el Tesorero de la Junta de Caridad y sus agentes fuera de la capital pero dentro del territorio de la República, gozará de libre porte siempre que su contenido pueda ser examinado por los empleados del ramo.

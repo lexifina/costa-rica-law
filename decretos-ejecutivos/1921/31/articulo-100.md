@@ -1,1 +1,0 @@
-Artículo 100.- Es enteramente prohibido a los ambulantes de ferrocarril, correos montados y protavalijas, transportar correspondencia o paquetes que no hayan sido despachados por las oficinas postales.

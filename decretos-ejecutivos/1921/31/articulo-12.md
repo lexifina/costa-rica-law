@@ -1,1 +1,0 @@
-Artículo 12.- El artículo 32 de la Constitución de la República garantiza la inviolabilidad de la correspondencia. Esta no puede ser abierta o detenida sino por orden de autoridad competente con facultad para ello, conforme a la Ley.

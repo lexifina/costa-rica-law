@@ -1,1 +1,0 @@
-Artículo 96.- Los ambulantes de ferrocarril, correos montados y portavalijas, serían provistos de una tarjeta de identificación que los acredite como tales, la cual les será suministrada mensualmente por los Administradores de Correos.

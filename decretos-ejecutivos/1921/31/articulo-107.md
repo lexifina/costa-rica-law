@@ -1,1 +1,0 @@
-Artículo 107.- Las empresas navieras, subvencionadas por el Estado para ese efecto, conducirán igualmente entre los diferentes puertos comprendidos en sus itinerarios, todos los correos que se les encomiende.

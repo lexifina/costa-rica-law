@@ -1,1 +1,0 @@
-Artículo 60.-La correspondencia rezagada que ostente membrete y que emane de persona conocida, le será devuelta con la razón escrita sobre la misma, indicando el motivo de su no entrega al destinatario.

@@ -1,1 +1,0 @@
-Artículo 73.- Se autoriza al Director para interponer a sus subalternos de uno a cinco colones de multa a favor del Tesoro Público, por faltas que note en el desempeño de las obligaciones que les están encomendadas.

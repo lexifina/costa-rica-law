@@ -1,1 +1,0 @@
-Artículo 129.-AI separarse el Administrador de Correos de su puesto entregará bajo recibo al Administrador entrante, todo el dinero proveniente del arriendo de apartados y depósito de llaves, que se encuentre en su poder.

@@ -1,1 +1,0 @@
-Artículo 72.- De cualquier falta o irregularidad en el servicio, es responsable únicamente el Director General, quien salvará su responsabilidad dando cuenta al secretario de Gobernación, de las causas qi hayan motivado las faltas o irregularidades.

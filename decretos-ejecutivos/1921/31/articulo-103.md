@@ -1,1 +1,0 @@
-Artículo 103.- Las autoridades de la República tanto civiles como militares, les prestarán todo su apoyo a los conductores de correspondencia, los cuales sólo podrán ser detenidos en virtud de falta grave o delito que hubieren cometido.

@@ -1,1 +1,0 @@
-Artículo 144.-CUlando una pieza de correspondencia certificada sea depositada por medio del servicio "entrega inmediata" en el recibo que expida la oficina receptora se hará constar la hora exacta de su depósito.

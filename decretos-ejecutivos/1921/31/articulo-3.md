@@ -1,1 +1,0 @@
-Artículo 3.-El recibo, transporte, entrega y distribución de correspondencia u objetos que se le confíen al servicios de correos, se hará. por medio de las respectivas Administraciones, de conformidad con lo prescrito en el presente Reglamento.

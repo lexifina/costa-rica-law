@@ -1,1 +1,0 @@
-Artículo 134.-Para tener derecho a gozar del servicio de que habla el artículo anterior, es necesario habitar dentro del perímetro de la ciudad; y en los pueblos, dentro de un radio no mayor de 600 metros a partir del sitio donde está situada la oficina de correos.

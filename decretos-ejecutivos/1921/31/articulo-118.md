@@ -1,2 +1,0 @@
-Artículo 118.- El arriendo de apartados en la Oficina Central de Correos de San José, deberá satisfacerse por semestres anticipados. La Dirección General de Correos dispondrá, dándolos a nuevos arrendatarios, de los apartados cuyo arriendo no haya sido cubierto durante los meses de enero y julio de cada año, según el caso, sin ningún derecho a reclamo de parte del anterior arrendatario.
-(Así reformado por el artículo único del decreto ejecutivo N° 65 del 24 de noviembre de 1942)

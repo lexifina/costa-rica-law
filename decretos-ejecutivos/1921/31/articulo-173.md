@@ -1,1 +1,0 @@
-Artículo 173.-Las alhajas y demás objetos de valor cuya circulación no está prohibida pueden circular por correo certificado, pero sin valor declarado. Deben presentarse en cajas de madera consistentes y debidamente lacradas.

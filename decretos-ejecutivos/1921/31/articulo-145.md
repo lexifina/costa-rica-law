@@ -1,1 +1,0 @@
-Artículo 145.-Por toda pieza de "entrega inmediata," además de ser anotada la hora de su ingreso en el correo en un formulario adjunto, se recogerá la firma del destinatario y se anotará la hora en que se efectúe la entrega.

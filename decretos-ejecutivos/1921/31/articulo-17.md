@@ -1,2 +1,0 @@
-Artículo 17.-Toda la correspondencia de segunda clase estará sujeta a la inspección de los empleados del ramo.
-Cuando en esta correspondencia se encuentren cartas, dinero u objetos cuya circulación por el correo esté prohibida, será decomisada junto con el dinero u objeto; y si por otros medios, que no sean las mismas cartas se pudiere averiguar quién es el infractor, el Administrador respectivo dará aviso inmediato a la autoridad competente, para que proceda ·a imponer la pena establecida para los defraudadores de los caudales públicos.

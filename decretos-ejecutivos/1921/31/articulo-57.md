@@ -1,1 +1,0 @@
-Artículo 57.-Todo Administrador de Correos que entregue correspondencia multada antes de que el interesado haya pagado la multa correspondiente, incurrirá en la pena señalada para los defraudadores de caudales públicos.

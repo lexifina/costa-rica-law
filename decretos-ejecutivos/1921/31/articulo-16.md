@@ -1,1 +1,0 @@
-Artículo 16.-El derecho de inviolabilidad es solamente para la correspondencia de primera clase, considerándose como tal, todas aquellas piezas que se presenten cerradas de modo que los empleados de correos no las puedan inspeccionar.

@@ -1,1 +1,0 @@
-Artículo 187.-EI Administrador de Correos a quien sea presentado para su visación un giro postal, procederá a confrontar éste con el aviso recibido. Si está conforme, lo visará para su pago, pero si encuentra alguna alteración, lo avisará por la vía más rápida para su verificación y aguardará la contestación para pagarlo.

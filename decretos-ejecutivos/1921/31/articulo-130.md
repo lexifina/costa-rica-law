@@ -1,1 +1,0 @@
-Articulo 130.-AI arrendar se un apartado se le pedirá al nuevo abonado una lista de los nombres de las demás personas a quienes, mediante su autorización, debe depositárseles la correspondencia en su apartado.

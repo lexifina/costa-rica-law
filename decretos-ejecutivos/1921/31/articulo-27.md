@@ -1,1 +1,0 @@
-Articulo 27.-Las tarjetas postales que se depositen en el correo y no reúnan las condiciones indicadas en indicadas en los artículos anteriores, serán consideradas como cartas y por lo tanto, quedarán sujetas al pago del porte que les impone la tarifa respectiva.

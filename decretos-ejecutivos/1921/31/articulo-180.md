@@ -1,1 +1,0 @@
-Artículo 180.-Una vez hecho el depósito del monto del giro postal en la Administración de Rentas Nacionales, el interesado devolverá a la Administración de Correos el recibo de entero dado por la Administración de Rentas y, a cambio de éste, se procederá a entregar el giro postal solicitado.

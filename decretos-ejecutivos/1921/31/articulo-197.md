@@ -1,1 +1,0 @@
-Artículo 197.-La primera pieza de correspondencia a que se dará curso una vez chequeada y recibida por la oficina, es la de "entrega inmediata," luego las cartas con destino a los apartados y lista de correos; después, la de los carteros ; y por último circularán los impresos.

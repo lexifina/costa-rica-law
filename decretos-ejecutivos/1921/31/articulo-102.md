@@ -1,1 +1,0 @@
-Artículo 102.- Los Capitanes de Puerto velarán porque el artículo anterior sea cumplido por las empresas navieras, y no darán el zarpe a ninguna embarcación que transporte correo sin que antes estén seguros de que el correo ha sido embarcado.

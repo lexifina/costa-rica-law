@@ -1,1 +1,0 @@
-Artículo 143.-El correo no asume ninguna responsabilidad por correspondencia de "entrega inmediata" que, no venga conforme lo indica el artículo anterior, y por lo tanto quedará sujeta a las demoras consiguientes.

@@ -1,1 +1,0 @@
-Artículo 207.- Todo servicio nuevo o creación de un oficina en el ramo de correos, antes de ser inaugurado, debe reglamentarse, si sus funciones no están comprendidas dentro de lo establecido en el presente Reglamento.

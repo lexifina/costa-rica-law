@@ -1,2 +1,0 @@
-Artículo 20.-Cuando el destinatario de una Pieza ordinaria o certificada no sea conocido del empleado que va hacer la entrega, tiene obligación de identificarse por medio, de persona conocida y abonada de la Oficina; y si el caso se refiere a un certificado o giro postal, dicha persona firmará junto con el interesado en el asiento del libro respectivo.
-El empleado de correos que por no acatar lo dispuesto en este artículo, incurriese en una mala entrega, de hecho será responsable de los reclamos que pudieran presentarse en estos casos.

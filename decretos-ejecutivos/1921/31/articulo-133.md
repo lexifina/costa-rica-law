@@ -1,2 +1,0 @@
-REGLAMENTO DE CARTEROS
-Artículo 133.-Todas las oficinas de correos de la República tendrán servicio de carteros para la entrega de correspondencia a domicilio. Este servicio estará a cargo de un cuerpo de estos empleados, de acuerdo con la importancia de cada Administración, los cuales estarán bajo las órdenes de un Jefe, y en los lugares donde no lo haya, bajo la vigilancia del respectivo Administrador de Correos.

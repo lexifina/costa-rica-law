@@ -1,4 +1,0 @@
-Artículo 111.-EI dinero recaudado por este servicio será remitido mensualmente por los Administradores respectivos al Cajero de [a Dirección General de Correos de San José, quien dará recibo por toda suma que se le envíe.
-Este empleado a su vez hará el entero correspondiente en la Administración Principal de Rentas Nacionales, por cuenta, de la oficina remisora.
-(Nota de Sinalevi: Mediante el artículo 5° del Reglamento N° 188 del 10 de setiembre de 1937, se establece lo siguiente: “Las Administraciones de Correos remitirán diariamente a la Auditoría General de Comunicaciones el producto del cobro de alquiler de apartados efectuados el día anterior, junto con las copias de los recibos que componen la remesa. La Auditoría General de Rentas el producto de esas remesas con indicación del lugar a que corresponden.
-Este artículo modifica el precepto 111 del Reglamento de Servicio Postal del Interior que indica que las remesas deben hacerse mensualmente”)

@@ -1,1 +1,0 @@
-Artículo 6.-Quedan con entera libertad los particulares para no circular por el correo cartas abiertas o cerradas, invitaciones, participaciones y periódicos sin dirección. Las empresas marítima y terrestres pueden igualmente circular sus comunicaciones privadas.

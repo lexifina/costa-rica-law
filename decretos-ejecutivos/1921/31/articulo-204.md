@@ -1,1 +1,0 @@
-Artículo 204.- La presencia de personas ajenas al servicio de correos en el acto. de la apertura o. cierre de las valijas de correspondencia, queda terminantemente prohibida, lo mismo que su permanencia en las oficinas, excepto cuando ello fuere indispensable para asuntos relacionados con el servicio, y con permiso del respectivo jefe de la oficina.

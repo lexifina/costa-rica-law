@@ -1,1 +1,0 @@
-Artículo 2.- EI Gobierno ejercerá. el monopolio de los servicios postales. Sin embargo, empresas particulares, bajo su responsabilidad, pueden hacer el servicio de correos en aquellos lugares en donde aún no se encuentre establecidos.

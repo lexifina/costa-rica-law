@@ -1,1 +1,0 @@
-Artículo 54.-Cuando la correspondencia se presente con sellos postales anulados para su uso conforme a lo dispuesto en el artículo anterior, incisos a, d, y e, será señalada con el signo de multa y además con una "o" colocada alrededor del sello.

@@ -1,1 +1,0 @@
-Artículo 106.- Las empresas ferroviarias están obligadas a conducir entre sus estaciones todos los correos de la República, lo mismo que a admitir a los empleados que el correo necesite para hacer la distribución de la correspondencia.

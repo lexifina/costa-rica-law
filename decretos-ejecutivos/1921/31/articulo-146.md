@@ -1,2 +1,0 @@
-Artículo 146.-En todos los buzones se puede depositar correspondencia para su "entrega inmediata," quedando a riesgo del remitente la dilación de tiempo que exista entre la hora en que fue depositada en el buzón y aquella en que fue recogida del mismo, por el encargo de este servicio.
-El Administrador de Correos anunciará, con caracteres rojos, en la carta cuenta, las piezas de "entrega inmediata" que remita, las cuales serán entregadas inmediatamente después de la ,apertura de las valijas.

@@ -1,1 +1,0 @@
-Artículo 126.- Las sumas recaudadas por el depósito de llaves deben conservarse en la oficina por un término no mayor de 6 meses. El saldo que resultare de esta cuenta con sus comprobantes, se remitirá al Cajero de Correos de San José, quien extenderá un recibo por esa suma.

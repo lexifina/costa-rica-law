@@ -1,1 +1,0 @@
-Artículo 40.- Cuando una encomienda haya quedado en rezago, o durante u travesía su contenido se haya dañado o descompuesto, el Jefe o empleado respectivo procederá a destruirla en presencia de dos empleados del ramo, levantando un acta en que Conste si es posible el nombre del remitente, el de la oficina de origen, el de su destinatario y el de su contenido.

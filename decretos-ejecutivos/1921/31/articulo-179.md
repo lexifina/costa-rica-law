@@ -1,1 +1,0 @@
-Artículo 179.-Con esta solicitud el Administrador de Correos procederá a formular el correspondiente entero de depósito en Ia Administración de Rentas Nacionales cuya operación tendrá que hacerla el mismo interesado.

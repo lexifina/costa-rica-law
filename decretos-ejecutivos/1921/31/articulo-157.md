@@ -1,1 +1,0 @@
-Artículo 157.-Todo aviso de recepción, una vez firmado por el destinatario, se devolverá al lugar de su origen por el primer correo, y si el remitente lo solicita, le será entregado, previa devolución del original del correspondiente recibo de depósito.

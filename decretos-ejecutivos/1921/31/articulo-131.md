@@ -1,1 +1,0 @@
-Artículo 131- Si una pieza de correspondencia por su volumen no es posible colocada dentro del apartado, el empleado depositará una tarjeta conforme al modelo usado, para que su destinatario se presente a retirarla por la ventanilla o puerta del casillero.

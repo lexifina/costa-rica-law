@@ -1,1 +1,0 @@
-Artículo 190.-En caso de pérdida del original de un giro postal, el Administrador de Correos podrá emitir un duplicado del giro, sin cobro de comisión, una vez que se cerciore con la oficina sobre la cual había emitido la orden que el giro postal no ha sido pagado. En todo caso pondrá en el duplicado la palabra “DUPLICADO”.

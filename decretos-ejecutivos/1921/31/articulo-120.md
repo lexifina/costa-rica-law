@@ -1,1 +1,0 @@
-Articulo 120.-Los Administradores de Correos no podrán retener durante un tiempo mayor del estipulado en el artículo 111 del presente Reglamento, las sumas colectadas por ellos por arriendo de apartados.

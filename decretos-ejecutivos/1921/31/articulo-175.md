@@ -1,1 +1,0 @@
-Articulo 175.-Toda oficina de correos debe entregar los certificados bajo recibo y debe especificar en el asiento de la entrega el número de la serie, oficina de origen, nombre del remitente y el valor declarado si lo hay. La Entrega de todo objeto certificado debe hacerse conforme lo previene el artículo 20 del presente Reglamento.

@@ -1,1 +1,0 @@
-Articulo 168.-Si el destinatario de una carta con valores declarados, en el acto de retirarla de la oficina postal rehúsa abrirla en presencia del Administrador de Correos, éste no será responsable de cualquier suma que falte, y no atenderá quejas posteriores sobre ese particular.

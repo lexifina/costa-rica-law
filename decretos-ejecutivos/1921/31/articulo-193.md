@@ -1,1 +1,0 @@
-Artículo 193.-Los correos de la República, para sus despachos de correspondencia entre las Administraciones, usarán la fórmula No. 9, donde anotarán el número de piezas de que se compone el envío, así como el número de sacos.

@@ -1,1 +1,0 @@
-Artículo 48.- Las colonias veraniegas tienen amplio porte dentro del territorio de la República para las cartas que dirijan a sus familiares, siempre que lleven el sello de la Inspección de Escuelas correspondiente o la firma del jefe o encargado de la colonia.

@@ -1,1 +1,0 @@
-Artículo 171-La responsabilidad del empleado de correos empieza desde el momento en que bajo recibo se hace cargo de una pieza de correspondencia certificada; y cesa desde el instante en que la remite al lugar de su destino.

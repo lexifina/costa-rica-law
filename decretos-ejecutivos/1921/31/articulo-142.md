@@ -1,1 +1,0 @@
-Artículo 142.-Para que este servicio se pueda prestar con toda eficiencia es preciso que las personas que remitan correspondencia de "entrega inmediata" escriban sobre las piezas de la misma la dirección exacta del destinatario, es decir, nombre y apellidos de éste, calle o avenida en que está situada su residencia y todas las señas posibles.

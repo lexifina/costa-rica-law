@@ -1,1 +1,0 @@
-Artículo 105.- Las empresas ferrocarrileras, navieras y los conductores de las valijas de correspondencia, siempre que haya habido fuerza mayor, serán responsables de la pérdida o atraso que sufra la correspondencia.

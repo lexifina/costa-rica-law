@@ -1,1 +1,0 @@
-Articulo 160.-Los objetos certificados deben acompañarse de una lista en que vaya anotado el número de la serie, lugar de procedencia, nombre del destinatario y lugar de destino. Deben ser convenientemente envueltos de modo que no se mezclen ,con, la demás correspondencia.
