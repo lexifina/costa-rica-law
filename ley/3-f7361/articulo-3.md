@@ -1,0 +1,1 @@
+Art. 3°. –El Presidente de la República nombrará los Catedráticos, quienes convocados por el Rector y reunidos bajo su Presidencia, con los más Profesores de Medicina que à bien tenga asociar cada vez, constituirán el Consejo Universitario de la Facultad, para los casos de voto consultivo, en asuntos de la enseñanza médica, y otros netos que se le atribuyan.
