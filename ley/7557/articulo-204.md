@@ -6,6 +6,6 @@ Contra los actos dictados directamente por la Dirección General de
 Aduanas, cabrá el recurso de reconsideración y el de apelación para ante
 el Tribunal Aduanero Nacional. Ambos recursos deberán interponerse dentro
 del plazo de cinco días hábiles siguientes al de notificación del acto
-recurrido. El recurso de reconsideración se sustanciará de conformidad
-con los artículos 201 y 202 y el de apelación de conformidad con el
-artículo 203 de esta ley.
+recurrido. El recurso de reconsideración se sustanciará de conformidad con
+los artículos 201 y 202 y el de apelación de conformidad con el artículo
+203 de esta ley.

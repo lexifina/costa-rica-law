@@ -26,12 +26,12 @@ de esta ley.
 Cuando las condiciones tributarias, arancelarias o derechos contra
 prácticas desleales de comercio internacional fueran objeto de
 modificaciones después de la fecha en que las mercancías hayan sido
-embarcadas en el país de procedencia, según lo certifique el
-representante legal del transportista en el puerto de embarque mediante
-instrumento otorgado ante un notario público del lugar debidamente
-legalizado por medio del procedimiento consular, el declarante podrá
-optar por el nuevo régimen tributario o por el anterior en el momento de
-declarar las mercancías a un régimen aduanero definitivo, siempre que se
-declaren antes del plazo de quince días hábiles desde el arribo de las
-mercancías a puerto aduanero. Esta disposición no es aplicable, si se
-trata de regulaciones no arancelarias o cambiarias.
+embarcadas en el país de procedencia, según lo certifique el representante
+legal del transportista en el puerto de embarque mediante instrumento
+otorgado ante un notario público del lugar debidamente legalizado por
+medio del procedimiento consular, el declarante podrá optar por el nuevo
+régimen tributario o por el anterior en el momento de declarar las
+mercancías a un régimen aduanero definitivo, siempre que se declaren antes
+del plazo de quince días hábiles desde el arribo de las mercancías a
+puerto aduanero. Esta disposición no es aplicable, si se trata de
+regulaciones no arancelarias o cambiarias.

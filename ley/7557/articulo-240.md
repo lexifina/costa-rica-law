@@ -1,6 +1,6 @@
 ARTICULO 240.- Suspensión de tres meses
-Será suspendido por tres meses del ejercicio de su actividad
-aduanera ante la autoridad aduanera, el agente aduanero que:
+Será suspendido por tres meses del ejercicio de su actividad aduanera
+ante la autoridad aduanera, el agente aduanero que:
 a) Intervenga en algún despacho aduanero sin la autorización de
 quien legítimamente puede otorgarla.
 b) Sea responsable en una infracción tributaria aduanera, siempre y
