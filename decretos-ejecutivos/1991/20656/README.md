@@ -15,3 +15,4 @@ Reforma Régimen Tarifario para la Prestación de Servicios y Facilidades Aeropo
 | --- | --- | --- |
 | 1 | 1991-09-10 | la propia norma |
 | 2 | 1993-01-05 | Decreto Ejecutivo 21852 (1993-01-05) |
+| 3 | 1994-02-04 | Decreto Ejecutivo 22861 (1994-02-04) |
