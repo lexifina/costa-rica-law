@@ -1,0 +1,1 @@
+Artículo 4°—Que deberán de indicar en formar clara en qué se van a invertir los recursos aportados por la Municipalidad o en qué se van a utilizar las ayudas materiales, maquinaria y equipo que eventualmente la Municipalidad les pueda brindar.

@@ -1,0 +1,1 @@
+Artículo 8°—Que una vez entregado el dictamen de la Comisión de Hacienda al Concejo Municipal, éste conocerá del mismo y someterá a discusión primero y aprobación después de dicho informe ante los señores regidores, quienes podrán aprobar o improbar por mayoría simple.
