@@ -1,0 +1,4 @@
+Artículo 14.—De la resolución. El Departamento de urbanismo podrá rechazar la solicitud tramitada mediante resolución motivada. Por su parte, la resolución que conceda el permiso municipal, podrá ser emitida mediante leyenda que indique:
+“El Departamento de Urbanismo de la Municipalidad del Cantón Central de Cartago otorga el Permiso de construcción Nº ______ que corresponde a la solicitud del Expediente Administrativo de este Departamento Nº ______ para desarrollar la obra que se describe así: _________
+Este permiso se otorga bajo la responsabilidad del desarrollo de la obra del profesional de nombre _______y carné del CFIA ______Y quien firma los planos constructivos Nº ___
+Dado en Cartago a las_____ horas_____ minutos del día ______ del mes____del año_________ (Firma, cargo, sello autorizados)”

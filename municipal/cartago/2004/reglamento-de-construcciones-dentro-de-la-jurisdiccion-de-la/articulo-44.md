@@ -1,0 +1,3 @@
+Artículo 44.—De la suspensión de obras. La Municipalidad o la Dirección de Urbanismo llevarán a cabo la suspensión de toda obra que se ejecute en contravención a la zonificación, pudiendo disponer para ello del auxilio de la Fuerza Pública o la Policía Municipal.
+Igualmente cabra esta sanción cuando no cuente en el sitio con los documentos que la acrediten o autoricen la concesión del permiso de construcción municipal; un juego completo de planos aprobados, original del formulario de permiso de construcción con los sellos y firmas registradas y la hoja de visitas del inspector municipal.
+Se suspenderá toda obra que en el transcurso de la ejecución que deje escombros en la vía pública, obstruya el libre tránsito sin tener la autorización de la Departamento de Urbanismo.

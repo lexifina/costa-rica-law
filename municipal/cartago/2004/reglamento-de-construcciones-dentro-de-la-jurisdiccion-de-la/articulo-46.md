@@ -1,0 +1,10 @@
+“Municipalidad de Cartago. Departamento de Urbanismo.
+CLAUSURADO
+“Por Violar Normas y Procedimientos”
+Artículo 46.—Demolición de la obra. Una obra civil podrá ser demolida por parte de la Municipalidad cuando:
+a) Tenga que ser aplicado el artículo 96 de la Ley de Construcciones.
+b) Cuando la Municipalidad demuestre que existe una obra que pone en peligro la vida de las personas o la integridad de las casas que la rodean.
+c) Cuando la Municipalidad lo haya ordenado en resolución firme en que quede demostrado que la obra no cuenta con los permisos de construcción correspondientes.
+Para ello se levantará un expediente del caso y notificará al interesado la orden de clausura, impidiendo el uso de la obra en resolución motivada, de conformidad con lo establecido en el capítulo XXI de la Ley de Construcciones.
+El interesado solicitará al Departamento de Urbanismo su intención de acogerse al beneficio del artículo 93 de la Ley de Construcciones, si así lo quisiera, en cuyo caso el Departamento de Urbanismo concederá al administrado un termino perentorio e improrrogable de 30 días para que cumpla con lo establecido en la ley y este Reglamento y presente los requisitos y las solicitudes de permiso correspondientes. Si el administrado cumpliere satisfactoriamente con lo antes dicho, el Departamento de Urbanismo resolverá la solicitud de acuerdo a los meritos del expediente y notificará al administrado.
+Si el administrado no pudiere cumplir con la presentación de los requisitos y solicitudes en el plazo que señala el párrafo anterior y justificare el incumplimiento en una imposibilidad real y probada, el Departamento de Urbanismo concederá al administrado un plazo improrrogable por una única vez de ocho días hábiles para que cumpla definitivamente con lo exigido por este Reglamento y las normas del Ordenamiento Jurídico vigente. De presentarlo a tiempo y a derecho la Unidad respectiva evaluará la obra y resolverá si se ajusta o no al proyecto presentado en los planos constructivos y así lo hará saber al administrado ordenándole que modifique o destruya la totalidad o la parte de la obra que no se ajuste al proyecto referido.

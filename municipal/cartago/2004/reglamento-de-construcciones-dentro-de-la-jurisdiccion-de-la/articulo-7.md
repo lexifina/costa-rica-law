@@ -1,0 +1,1 @@
+Artículo 7º—Inspección preliminar. De previo al otorgamiento del permiso respectivo, el Departamento de Urbanismo realizará una inspección en el campo a fin de verificar el cumplimiento y veracidad de los requisitos aportados por el interesado.

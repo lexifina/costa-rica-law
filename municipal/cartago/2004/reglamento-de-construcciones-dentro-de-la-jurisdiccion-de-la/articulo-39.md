@@ -1,0 +1,1 @@
+Artículo 39.—Aplicación supletoria. En todo lo que expresamente no quede estipulado en el presente Reglamento, se aplicará las disposiciones contenidas en el Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones y en toda ley o reglamento conexo y concordante que no se le oponga.

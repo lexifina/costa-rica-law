@@ -1,0 +1,1 @@
+Artículo 15.—Del certificado. Una vez aprobado el permiso de construcción, el Departamento de Urbanismo emitirá un certificado del permiso de construcción, que el interesado deberá colocar en el sitio de la obra en un lugar visible. El incumplimiento de este artículo podrá sancionarse de conformidad con este Reglamento.

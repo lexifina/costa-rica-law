@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Sanciones y procedimientos
+Artículo 43.—Sanciones por incumplimiento de requisitos. La Municipalidad podrá sancionar mediante las normas contenidas en el presente reglamento y en el ordenamiento jurídico vigente que no se le opongan y le complementen, aquellas conductas que impliquen el incumplimiento de las disposiciones reglamentarias, antes y durante el ejercicio del derecho consagrado en el permiso de construcción, cometidas por el profesional responsable de un Proyecto, el propietario del proyecto, por sus representantes legales, cuando se trate de una sociedad, o por cualquier administrado en general, con base en las siguientes disposiciones.

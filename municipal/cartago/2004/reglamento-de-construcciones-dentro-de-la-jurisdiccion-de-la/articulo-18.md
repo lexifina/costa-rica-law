@@ -1,0 +1,2 @@
+Artículo 18.—Pago de impuesto. De previo al inicio de las obras, el interesado deberá cancelar a la Municipalidad en sus cajas recaudadoras autorizadas, el impuesto de construcción el cual será del 1% del valor de la construcción.
+No pagarán el impuesto las instituciones públicas que con recursos propios o a través de empresas ejecuten la obra, cuya responsabilidad debe quedar establecida en el respectivo contrato. Para las viviendas de interés social se cobrará un cincuenta por ciento (50%) del impuesto antes mencionado.

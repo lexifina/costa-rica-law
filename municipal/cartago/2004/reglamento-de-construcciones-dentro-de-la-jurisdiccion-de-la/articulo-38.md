@@ -1,0 +1,1 @@
+Artículo 38.—En el caso de que se altere sustancialmente las condiciones del terreno por razones topográficas u otros. La Municipalidad podrá exigir nuevas pruebas de filtración para los niveles finales.

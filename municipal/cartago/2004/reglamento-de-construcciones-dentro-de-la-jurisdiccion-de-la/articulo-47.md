@@ -1,0 +1,1 @@
+Artículo 47.—Multa por renuencia a obedecer la orden de clausura. En los casos de renuencia por parte del administrado, del ingeniero responsable o sus representantes, al cumplimiento de la orden de clausura, la Municipalidad podrá imponer una multa, de acuerdo al artículo 90 de la Ley de Construcciones.
