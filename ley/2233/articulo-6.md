@@ -1,0 +1,1 @@
+Artículo 6°.- -Anualmente el I. C. E. presentnrá a la Caja un programa de los trabajos para realizar durante el año siguiente en la Planta Río Macho, quedando la Caja autorizada para fiscalizar la realización de ese programa.
