@@ -13,3 +13,4 @@ Declara Interés Cultural Visita Jóvenes Programa Visión MundialDEl 25 al 29 d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-18 | la propia norma |
+| 2 | 1999-05-18 | SINALEVI (sin norma nombrada) |
