@@ -1,0 +1,6 @@
+Artículo 10
+Terceros
+1.- En el curso del procedimiento de los grupos especiales se tomarán plenamente en cuenta los intereses de las partes en la diferencia y los demás Miembros en el marco de un acuerdo abarcado a que se refiera la diferencia.
+2.- Todo Miembro que tenga un interés sustancial en un asunto sometido a un grupo especial y así lo haya notificado al OSD (denominado en el presente Entendimiento "tercero") tendrá oportunidad de ser oído por el grupo especial y de presentar a este comunicaciones por escrito. Esas comunicaciones se facilitarán también a las partes en la diferencia y se reflejarán en el informe del grupo especial.
+3.- Se dará traslado a los terceros de las comunicaciones de las partes en la diferencia presentadas al grupo especial en su primera reunión.
+4.- Si un tercero considera que una medida que ya haya sido objeto de la actuación de un grupo especial anula o menoscaba ventajas resultantes para él de cualquier acuerdo abarcado, ese Miembro podrá recurrir a los procedimientos normales de solución de diferencias establecidos en el presente Entendimiento. Esta diferencia se remitirá, siempre que sea posible, al grupo especial que haya entendido inicialmente en el asunto.

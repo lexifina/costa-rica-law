@@ -1,0 +1,5 @@
+Artículo 7
+Mandato de los grupos especiales
+1.- El mandato de los grupos especiales será el siguiente, a menos que, dentro de un plazo de 20 días a partir de la fecha de establecimiento del grupo especial, las partes en la diferencia acuerden otra cosa: "Examinar, a la luz de las disposiciones pertinentes (del acuerdo abarcado (de los acuerdos abarcados) que hayan invocado las partes en la diferencia), el asunto sometido al OSD por (nombre de la parte) en el documento ... y formular conclusiones que ayuden al OSD a hacer las recomendaciones o dictar las resoluciones previstas en dicho acuerdo (dichos acuerdos)."
+2.- Los grupos especiales considerarán las disposiciones del acuerdo o acuerdos abarcados que hayan invocado las partes en la diferencia.
+3.- Al establecer un grupo especial, el OSD podrá autorizar a su Presidente a redactar el mandato del grupo especial en consulta con las partes, con sujeción a las disposiciones del párrafo 1. El mandato así redactado se distribuirá a todos los Miembros. Si se acuerda un mandato que no sea el uniforme, todo Miembro podrá plantear cualquier cuestión relativa al mismo en el OSD.

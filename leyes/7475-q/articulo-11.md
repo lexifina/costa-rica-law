@@ -1,0 +1,3 @@
+Artículo 11
+Función de los grupos especiales
+La función de los grupos especiales es ayudar al OSD a cumplir las funciones que le incumben en virtud del presente Entendimiento y de los acuerdos abarcados. Por consiguiente, cada grupo especial deberá hacer una evaluación objetiva del asunto que se le haya sometido, que incluya una evaluación objetiva de los hechos, de la aplicabilidad de los acuerdos abarcados pertinentes y de la conformidad con estos y formular otras conclusiones que ayuden al OSD a hacer las recomendaciones o dictar las resoluciones previstas en los acuerdos abarcados. Los grupos especiales deberán consultar regularmente a las partes en la diferencia y darles oportunidad adecuada de llegar a una solución mutuamente satisfactoria.

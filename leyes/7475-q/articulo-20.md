@@ -1,0 +1,3 @@
+Artículo 20
+Marco temporal de las decisiones del OSD
+A menos que las partes en la diferencia acuerden otra cosa, el período comprendido entre la fecha de establecimiento del grupo especial por el OSD y la fecha en que el OSD examine el informe del grupo especial o el informe del examen en apelación no excederá, por regla general, de nueve meses cuando no se haya interpuesto apelación contra el informe del grupo especial o de 12 cuando se haya interpuesto. Si el grupo especial o el Organo de Apelación, al amparo del párrafo 9 del artículo 12 o del párrafo 5 del artículo 17, han procedido a prorrogar el plazo para emitir su informe, la duración del plazo adicional se añadirá al período antes indicado
