@@ -1,0 +1,1 @@
+Artículo 2°. —De conformidad con ese mismo plano, se dividirá la superficie en treinta y tres porciones de una hectárea cada una, excepto en la parte contigua al Ferrocarril, que no admitiendo esta división, será fraccionada en porciones mayores ó menores que una hectárea y se abrirán calles rectas de veinte metros de ancho.
