@@ -1,0 +1,1 @@
+Artículo 3º.- Igual trámite se seguirá con los beneficios a quienes se ha privado de pensión o jubilación por parte de ese Instituto, a quienes se les girará su pensión o jubilación desde que fueron excluidos y serán inmediatamente incluidos en planillas mientras no reciban el beneficio de otro régimen.
