@@ -1,0 +1,1 @@
+Artículo 28.—Derogatorias: Se deroga el Reglamento sobre la Organización y Funcionamiento del Sistema Financiero Nacional para la Vivienda, decreto ejecutivo No 20210-P-VAH del 24 de enero de 1991, publicado en "La Gaceta" del 5 de febrero de 1991.

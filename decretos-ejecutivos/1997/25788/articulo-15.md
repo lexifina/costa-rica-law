@@ -1,0 +1,1 @@
+Artículo 15.—Aprobación y autorización: Si la Junta Directiva aprueba la solicitud presentada, deberá extender una autorización escrita en que así se haga constar, para los respectivos trámites de inscripción.

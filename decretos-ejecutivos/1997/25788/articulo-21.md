@@ -1,0 +1,2 @@
+Artículo 21.—Estudio de la solicitud: La Junta Directiva, al conocer la solicitud, determinará -previo informe de la Administración del la conveniencia de incorporar a la entidad solicitante al Sistema, y de determinarlo procedente así lo expresará mediante acto motivado.
+Tratándose de entes del Sector Público, de reconocida solvencia y autorizados para destinar fondos del financiamiento de vivienda, el Banco podrá prescindir de exigir uno o varios de los requisitos citados en el artículo anterior, con excepción del indicado en el inciso b).

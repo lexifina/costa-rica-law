@@ -1,0 +1,1 @@
+Artículo 23.—Plazo de aprobación: El plazo que tiene la Junta Directiva para aprobar o improbar una solicitud es de 30 días naturales que se contarán a partir de la fecha en que esta se presentó con todos los documentos completos. Vencido ese plazo sin pronunciamiento alguno se tendrá por aprobada la solicitud, siempre que cumpla todos los requisitos legales y reglamentarios.
