@@ -1,0 +1,1 @@
+Artículo 2°-La silla indicada deberá instalarse en la Comandancia de Plaza y Guardia Civil de Limón, para uso exclusivo del personal ahí destacado, y bajo ningún concepto podrá ser trasladada a ninguna otra dependencia del Estado.
