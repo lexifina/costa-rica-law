@@ -1,0 +1,2 @@
+Articulo 3°—Adicionar al Decreto Ejecutivo N° 24797-MEIC, con un articulo 6, que se leerá así:
+"Artículo 6°—Serán sancionados con las leyes penales y especiales sobre la materia quienes incumplan con lo dispuesto en el presente Reglamento. Se faculta a los Ministerios de Salud y de Agricultura y Ganadería, así como a! Consejo Nacional de Producción cada uno en las áreas de su competencia para que ejecuten las acciones necesarias que garanticen el cumplimiento de lo dispuesto en el presente Reglamento".
