@@ -1,2 +1,0 @@
-De los aspectos operativos
-Artículo 4°—Las solicitudes de residencia podrán ser presentadas de manera personal o por interpuesta persona. No obstante, será obligatoria la presencia del extranjero interesado, para todo trámite de notificación de la resolución de la solicitud de residencia, así como para la confección y entrega de la cédula correspondiente. Lo anterior, en razón de que el procedimiento demanda la toma de fotografías y huellas digitales al extranjero solicitante, así como su firma.

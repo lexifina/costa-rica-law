@@ -1,1 +1,0 @@
-Artículo 14.—Se eximirá del pago de derechos atrasados, multas, y especies fiscales por reintegro de papelería adjunta a la solicitud de residencia, a todos aquellos extranjeros que se encuentran en condiciones irregulares, con el fin de facilitarles regularizar su situación migratoria en el país.
