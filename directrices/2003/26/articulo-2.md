@@ -1,0 +1,1 @@
+Artículo 2º—Todo lo indicado en el artículo anterior deberá ser realizado por cada dependencia gubernamental en un plazo máximo de tres meses, contado a partir de la publicación de esta directriz en el Diario Oficial.

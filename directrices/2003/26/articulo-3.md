@@ -1,0 +1,1 @@
+Artículo 3º—El Consejo de Seguridad Integral y Participación Ciudadana velará por el debido cumplimiento de esta directriz, para lo cual podrá solicitar a todas las dependencias la información que estime pertinente.

@@ -1,0 +1,1 @@
+Artículo 4º—Cumplido el plazo señalado en el artículo segundo, el Consejo de Seguridad Integral y Participación Ciudadana rendirá al Presidente de la República un informe sobre el acatamiento de esta directriz por parte de cada dependencia.
