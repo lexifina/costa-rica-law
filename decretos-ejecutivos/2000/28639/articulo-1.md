@@ -138,3 +138,5 @@ respecto de la Oficina de Cooperación Internacional de la Salud)
 respecto de la Dirección General del Archivo Nacional)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29368 de 27 de febrero del 2001,
 para el Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29354 de 2 de marzo del 2001,
+respecto del Patronato de Construcciones, Instalaciones y Adquisición de Bienes)
