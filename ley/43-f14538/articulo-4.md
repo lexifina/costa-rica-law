@@ -1,0 +1,1 @@
+Art 4° Se destina para el pago de las cantidades designadas en el art 2° la suma de dos millones ochocientos cuarenta y tres mil setecientos noventa pesos y tres centavos ($2,843,790-93 cts) a que asciende el presupuesto general de ingresos de las rentas de la Nación, calculadas en el año económico citado, según detalle presentado por el Poder Ejecutivo, marcado con letra D.

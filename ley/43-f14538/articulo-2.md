@@ -1,0 +1,6 @@
+Art 2° Se autoriza al Poder Ejecutivo para invertir la suma referida, de la manera siguiente:
+1° Para pagar las cantidades que la República deba justamente por intereses y amortización de los empréstitos contratados en el extranjero y correspondiente al mismo año económico, hasta la suma de novecientos cincuenta y tres mil, setecientos cincuenta pesos ($953,750 cts.)
+2° Para cubrir los gastos de la Secretaría de Relaciones Escritorios, Instrucción Pública, Culto Beneficencia y Carteras anexas de Guerra y Marina, se destina hasta la suma de trescientos setenta y unos mil doscientos veinticinco pesos nueve centavos ($361, 255.05 cts.).
+3° Para la Secretaría de Gobernación, Justicia y Carteras anexas de Policía, Agricultura e Industria, se destina hasta la suma de trescientos setenta mil doscientos pesos setenta y ocho centavos ($370,228-78 cts).
+4°Para la Secretaría de Hacienda, Comercio y Cartera anexa de Obras Públicas se dará la suma de seiscientos cuarenta y seis mil ciento ochenta y cuatro pesos ($646,184 cts).
+5° Para gratificaciones a empleados de varios Departamentos a quienes se les haya recargado servicio no previsto en la Tarifa, se destina hasta la suma de cinco mil pesos ($5,000).
