@@ -1,0 +1,1 @@
+Art. 3°-'Todo daño que las carretas ó carruajes causen en la calzada, ya sea intencionalmente ó por falta de cuidado de parte del conductor, debe ser refaccionado en el acto mismo por aquél, bajo la pena, si no lo hiciere, de pagar una multa doble del valor en que se estime el daño causado.

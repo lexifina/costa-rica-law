@@ -1,0 +1,1 @@
+Art. 5°-El carretero ó conductor de carruajes que introduzca desorden en el camino, separándose de la línea antes marcada y que esta obligado á seguir, será penado con una multa de cinco a diez pesos y el carretero que no guíe sus bueyes, con la de uno à cinco pesos; en ambos casos sin perjuicio de las demás responsabilidades en que por su falta llegare á incurrir.
