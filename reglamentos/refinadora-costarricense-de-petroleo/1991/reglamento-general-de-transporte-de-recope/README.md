@@ -14,3 +14,4 @@ Reglamento General de Transporte de RECOPE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-12-30 | la propia norma |
+| 2 | 2001-08-08 | Reglamento 0 (2001-08-08) |
