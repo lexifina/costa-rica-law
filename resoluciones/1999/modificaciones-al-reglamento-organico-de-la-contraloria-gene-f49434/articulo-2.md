@@ -1,0 +1,1 @@
+2°—Derogar el Capítulo XVI "De la Dirección General de Centro de Capacitación" del Reglamento Orgánico de la Contraloría General de la República, dictado mediante resolución de las ocho horas del doce mayo de mil novecientos noventa y nueve, publicado en "La Gaceta" No 103 del veintiocho de mayo de mil novecientos noventa y nueve.
