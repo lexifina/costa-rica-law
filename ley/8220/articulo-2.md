@@ -1,0 +1,3 @@
+Artículo 2º—Presentación única de documentos. La información que presenta un administrado ante una entidad, órgano o funcionario de la Administración Pública, no podrá ser requerida de nuevo por estos, para ese mismo trámite u otro en esa misma entidad u órgano. De igual manera, ninguna entidad, órgano o funcionario público, podrá solicitar al administrado, información que una o varias de sus mismas oficinas emitan o posean.
+Para que una entidad, órgano o funcionario de la Administración Pública pueda remitir información del administrado a otra entidad, órgano o funcionario, la primera deberá contar con el consentimiento del administrado.
+Quedan exceptuadas de la aplicación de este artículo las personerías jurídicas.
