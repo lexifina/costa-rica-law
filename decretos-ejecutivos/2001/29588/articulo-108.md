@@ -1,0 +1,1 @@
+Artículo 108.—Las canales que durante el procesamiento, se hayan contaminado con contenido gastrointestinal, pus, orina u otro contaminante, se les eliminarán los tejidos impregnados con el material contaminante mediante recorte del tejido afectado. De igual se procederá con hematomas, contusiones, traumatismos, ectoparásitos y otros.

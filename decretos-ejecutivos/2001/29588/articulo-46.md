@@ -1,0 +1,3 @@
+Artículo 46.—El establecimiento debe contar con bodegas separadas para el almacenamiento de productos químicos.
+Esta bodega estará debidamente rotulada y dividida en dos secciones que se mantendrán cerradas con candado. En una sección se almacenarán los productos de uso interno tales como: detergentes, desinfectantes, jabón líquido, grasas y lubricantes grado alimentario y otros que puedan utilizarse con propósitos similares. En la otra sección se almacenarán los insecticidas, rodenticidas, aditivos para calderas y otros.
+Esta bodega contará con lavaojos y un lavamanos con su respectiva jabonera.

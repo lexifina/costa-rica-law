@@ -1,0 +1,1 @@
+Artículo 68.—Contar con jaula para retención de carne en canal y para retención de carne empacada, que puedan mantenerse con dispositivos de seguridad para el almacenamiento de carnes "retenidas", que estén construidas y ubicadas de tal forma que se impida todo riesgo de contaminar otras carnes, así como el riesgo que puedan sustituirse unas por otras.

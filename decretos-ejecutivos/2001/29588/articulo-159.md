@@ -1,0 +1,1 @@
+Artículo 159.—Sólo podrán exportar carne y productos cárnicos, aquellos establecimientos que hayan sido expresamente aprobados por el Departamento de Servicios Zoosanitarios Internacionales del MAG y por el MS. Toda persona física o jurídica que exporte deberá estar registrada ante la DSA.

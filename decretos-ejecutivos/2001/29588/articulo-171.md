@@ -1,0 +1,1 @@
+Artículo 171.—Los certificados oficiales para exportación serán firmados por los médicos veterinarios oficiales. Para su emisión es necesario contar y revisar el Resumen de Embarque para exportación. Los certificados y marchamos estarán bajo la custodia del médico veterinario oficia

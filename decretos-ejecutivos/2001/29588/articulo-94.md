@@ -1,0 +1,1 @@
+Artículo 94.—Las operaciones de insensibilización y sangrado de los animales deberán llevarse a cabo de tal forma, que el flujo se suceda ininterrumpidamente y se eviten pausas que produzcan aglomeraciones en fases posteriores del proceso.

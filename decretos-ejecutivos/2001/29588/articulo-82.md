@@ -1,0 +1,1 @@
+Artículo 82.—Queda prohibido comer, fumar, masticar chicle, introducirse los dedos en boca, nariz u oídos o escupir, o cualquier otra actividad o hábito no higiénico en todas las áreas de trabajo. Comer o fumar queda restringido a las áreas destinadas para ese fin.

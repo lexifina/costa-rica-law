@@ -1,0 +1,1 @@
+Artículo 36.—Cada empleado debe tener asignado un guardarropa, con aberturas para facilitar la ventilación y evitar olores desagradables, deben estar colocados sobre patas a 30 cm del piso para facilitar la limpieza. Estos no deben ser construidos de madera. Contar con bancas para facilitar el cambio de ropa de uso diario por el uniforme.

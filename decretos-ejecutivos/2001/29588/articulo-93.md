@@ -1,0 +1,1 @@
+Artículo 93.—Los animales se izarán a la red de suspensión por medios mecánicos, después de izados se procederá a realizar las incisiones necesarias para llevar a cabo el sangrado, rápida y eficazmente.

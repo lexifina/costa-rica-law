@@ -1,0 +1,1 @@
+Artículo 124.—Los animales deberán inspeccionarse de manera que el médico veterinario inspector pueda reconocer las desviaciones con respecto a la condición normal, ya sea en el porte, conducta u otros signos clínicos capaces de indicar una enfermedad, condición o defecto que exijan una manipulación especial o un examen más detenido.

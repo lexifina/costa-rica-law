@@ -1,0 +1,1 @@
+Artículo 14.—Los mataderos, plantas de deshuese y fábricas de embutidos, deberán contar con un plan documentado de manejo de desechos sólidos, aprobado por la DPAH, según lo dispuesto por los artículos 278, 279, 281, 283, y 284 de la Ley General de Salud.

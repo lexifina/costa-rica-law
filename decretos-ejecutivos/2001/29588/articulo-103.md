@@ -1,0 +1,1 @@
+Artículo 103.—Las ubres de animales lactantes y las que presenten evidentes alteraciones patológicas, deberán separarse de la canal, lo antes posible durante el proceso, para evitar que sus secreciones puedan contaminarla.

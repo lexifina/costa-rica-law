@@ -1,0 +1,1 @@
+Artículo 153.—En los establecimientos en donde se procese, manipule o expenda carne de equinos, se tendrán letreros visibles, cuyas letras y dimensiones no podrán ser menores a las de cualquier otro rótulo del establecimiento, aclarando "Matadero de equinos" o "carnicería de equinos".

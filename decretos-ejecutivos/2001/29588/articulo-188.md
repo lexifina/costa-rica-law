@@ -1,0 +1,6 @@
+CAPÍTULO XXX
+De las sanciones
+Artículo 188.—Del análisis y control que el MAG y el MS, efectúen con relación a los requerimientos del presente Reglamento, se aplicarán las siguientes acciones administrativas, en caso de incumplimiento por parte del administrado, específicamente en lo relativo a obras:
+a) Otorgamiento al interesado, de un plazo de ocho a quince días hábiles, para la corrección de aquellos puntos necesarios, de conformidad con el resultado de las auditorías e inspecciones efectuadas en la misma y de cuyo resultado se dará comunicación en el mismo acto de su expedición, mediante entrega de copia al interesado, propietario, representante o encargado.
+b) Vencido el citado plazo, sin que se hubieren practicado efectivamente las correcciones establecidas, a satisfacción de las autoridades, se suspenderá el permiso de funcionamiento otorgado por un plazo de hasta por seis meses.
+c) Transcurrido el plazo de suspensión temporal sin que se hayan realizado las correcciones requeridas se procederá a declarar de oficio la cancelación definitiva del permiso otorgado.

@@ -1,0 +1,1 @@
+Artículo 106.—Los intestinos no deberán ser cortados o separados, del estómago durante la evisceración, sino en el área destinada para el propósito, tan pronto como lo permita el procedimiento de inspección.

@@ -1,0 +1,1 @@
+Artículo 189.—La cancelación antes dicha, no impedirá que la planta o empresa pueda ser nuevamente autorizada, para lo cual deberá acreditar a satisfacción de las autoridades, el cumplimiento de todas las regulaciones establecidas en el presente Decreto y las otras disposiciones conexas que rigen la materia.

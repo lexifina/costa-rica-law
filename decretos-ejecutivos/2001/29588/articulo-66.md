@@ -1,0 +1,1 @@
+Artículo 66.—Contar con instalaciones externas para el aprovechamiento industrial o para el almacenamiento temporal, de patas, desechos y decomisos, garantizando la eliminación sanitaria de los mismos.

@@ -1,0 +1,1 @@
+Artículo 152.—La carne de equinos y productos con ella elaborados, ya sea en forma parcial o total deberá presentarse en rótulos visibles, leyendas como: "Carne de equino" o "Preparado con carne de equino" o "Contiene carne de equino".

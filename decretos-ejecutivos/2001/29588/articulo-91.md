@@ -1,0 +1,1 @@
+Artículo 91.—Se permitirá el sacrificio de animales destinados al consumo de grupos sociales, étnicos o religiosos particulares, que lo requieran, siempre y cuando cumplan con las normas sanitarias establecidas en este reglamento.

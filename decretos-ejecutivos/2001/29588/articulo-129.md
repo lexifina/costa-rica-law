@@ -1,0 +1,1 @@
+Artículo 129.—Los animales que hayan muerto accidentalmente dentro de las dependencias del matadero deberán ser inmediatamente procesados y a juicio del médico veterinario inspector podrán ser destinados al consumo humano.

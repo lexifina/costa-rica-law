@@ -1,0 +1,1 @@
+Artículo 23.—Los establecimientos dedicados al expendio de carnes, vísceras, embutidos y los vehículos destinados para su transporte deberán ser autorizados para su operación por el MS a través de las Áreas de Salud.

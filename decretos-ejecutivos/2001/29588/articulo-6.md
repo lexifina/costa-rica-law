@@ -1,0 +1,1 @@
+Artículo 6º—Todos los productos cárnicos, que ingresen a los establecimientos aprobados y todos los productos procesados total o parcialmente en el mismo serán transportados, manipulados, reinspeccionados, marcados y rotulados en la forma en que se establece en el presente Reglamento.

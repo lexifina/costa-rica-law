@@ -1,0 +1,1 @@
+Artículo 133.—Nadie podrá retirar de las áreas de inspección de un matadero ninguna parte de una canal, órganos o vísceras mientras el inspector no haya terminado la inspección y se haya adoptado una decisión.

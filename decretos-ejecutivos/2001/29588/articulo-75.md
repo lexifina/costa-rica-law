@@ -1,0 +1,1 @@
+Artículo 75.—Los vehículos destinados al transporte de canales de equino deberán ser de uso exclusivo y estar rotulados con la leyenda "Transporte exclusivo de carne equina". Las letras del rótulo serán de un tamaño mínimo de15 cm de altura.

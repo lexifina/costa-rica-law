@@ -1,0 +1,1 @@
+Artículo 47.—Se debe disponer de una bodega separada para almacenar materiales de uso general, como papel higiénico, toallas de papel, esponjas abrasivas, cepillos, ropa, botas, cascos nuevos, repuestos y otros. Utilizar tarimas o estanterías a 30 cm con relación al piso y separados a 50 cm de la pared.

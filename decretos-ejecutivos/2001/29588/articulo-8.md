@@ -1,0 +1,1 @@
+Artículo 8º—Para vigilar la inocuidad de los productos cárnicos, estos se someterán a exámenes organolépticos realizados por el Médico Veterinario Inspector y su equipo de auxiliares de inspección, a pruebas físicas, químicas y microbiológicas realizadas in situ ó en laboratorios oficiales o bien laboratorios debidamente acreditados para dicho fin.

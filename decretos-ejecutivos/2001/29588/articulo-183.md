@@ -1,0 +1,1 @@
+Artículo 183.—Toda superficie que entre en contacto con la carne, ingredientes o derivados de la carne estará construido de material liso, inocuo, resistente a la corrosión, de fácil limpieza y desinfección. No se permitirá el uso de madera.

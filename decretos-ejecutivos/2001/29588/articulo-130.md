@@ -1,0 +1,2 @@
+Artículo 130.—Para evitar que se produzcan lesiones en la piel o musculatura de los animales, durante su descarga o movilización dentro de los corrales se utilizarán instrumentos adecuados, se evitará en todo momento el uso de dispositivos puntiagudos.
+Se prohíbe usar instrumentos puntiagudos o cualquier otro que pueda lesionar la piel o la musculatura de los animales en el momento de desembarcarlos o durante el movimiento de los animales.

@@ -1,0 +1,1 @@
+Artículo 105.—La descarga de cualquier material procedente del esófago, los estómagos, los intestinos o el recto, de la vesícula biliar, de la vejiga urinaria, del útero o de las ubres deberán prevenirse. El esófago debe atarse y el recto atarse y embolsarse, para evitar que su contenido se derrame y pueda ser causa de contaminación.

@@ -1,0 +1,1 @@
+Artículo 52.—Las cámaras de refrigeración deberán contar con dispositivos para evitar que los productos cárnicos entren en contacto con el piso y almacenarse de tal manera que se deje espacio para la circulación de aire frío a lo largo de las paredes y del piso.

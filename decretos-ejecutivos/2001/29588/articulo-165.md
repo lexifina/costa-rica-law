@@ -1,0 +1,1 @@
+Artículo 165.—El Médico Veterinario, el propietario o administrador del establecimiento, están obligados a suministrar al MAG y al MS, toda la información relacionada con el APPCC u otras que se consideren necesarias, además de brindar todas las facilidades necesarias para la inspección.

@@ -1,0 +1,1 @@
+Artículo 70.—Los establecimientos donde se deshuese la carne deberán estar provistos de un local materialmente separado de otras áreas y cuya temperatura se pueda regular y exista una separación entre esta área y el lugar donde se realiza el empaque final.

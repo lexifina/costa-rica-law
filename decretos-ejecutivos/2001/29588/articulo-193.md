@@ -1,0 +1,2 @@
+Derogatorias y vigencia
+Artículo 193.—Se deroga el Decreto Nº 2 del 10 de marzo de 1969 y sus reformas "Reglamento Sanitario de Mataderos, Plantas Procesadoras de Productos Cárneos, Plantas Procesadoras de Grasa Animal, Expendios de Carne, Plantas Procesadoras de Pescado y Mariscos, Transporte de Carnes y Derivados" y toda otra disposición de carácter reglamentario que se oponga al presente Decreto Ejecutivo.

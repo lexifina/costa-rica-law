@@ -1,0 +1,1 @@
+Artículo 21.—Aquellas actividades industriales que utilicen calderas en su proceso o cuenten con un sistema de rendering deberán presentar ante la DPAH, la descripción de los sistemas de control de contaminantes atmosféricos y la respectiva autorización del Ministerio de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 110.—La carne y derivados aprobados para el consumo humano, una vez colocadas en cámaras de refrigeración, deberán ubicarse de tal forma que permitan una adecuada circulación del aire a su alrededor.

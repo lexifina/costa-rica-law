@@ -1,0 +1,2 @@
+Artículo 42.—El vapor utilizado para calentar agua o el utilizado durante las operaciones de limpieza no deberá contener ninguna sustancia que pueda poner en peligro la salud o contaminar los productos cárnicos o sus derivados. La temperatura del agua caliente para la esterilización de cuchillos, chairas, ganchos u otros utensilios debe ser al menos de 82º C.
+La identificación de las tuberías de conducción de vapor, agua caliente, fría o electricidad se ajustará a la Norma Internacional de Simbología y Colores.

@@ -1,0 +1,1 @@
+Artículo 157.—Después de cada supervisión el médico veterinario oficial deberá remitir al médico veterinario inspector a cargo del establecimiento y al propietario o administrador una copia del informe de evaluación o bien ser notificado mediante orden sanitaria.

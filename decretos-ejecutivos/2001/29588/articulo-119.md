@@ -1,0 +1,1 @@
+Artículo 119.—La inspección ante-mortem deberá efectuarse con pleno conocimiento del origen de los animales, información que deberá ser suministrada por el propietario o administrador, para realizar, en caso necesario, el rastreo de enfermedades o de residuos.

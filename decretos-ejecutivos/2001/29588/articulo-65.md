@@ -1,0 +1,1 @@
+Artículo 65.—Destinar un local independiente para el lavado y limpieza de los aparatos digestivos y el equipo necesario para la preparación ulterior de los mismos, cuando éstos se destinen al consumo humano o industrial.

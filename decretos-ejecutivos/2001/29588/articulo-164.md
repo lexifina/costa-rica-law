@@ -1,0 +1,1 @@
+Artículo 164.—La auditoría interna del APPCC será realizada por el médico veterinario inspector que está a cargo del establecimiento, o por el supervisor, la auditoría externa será realizada por el Médico Veterinario Oficial, en cualquier caso los registros deben estar asociados a cada lote de producción.

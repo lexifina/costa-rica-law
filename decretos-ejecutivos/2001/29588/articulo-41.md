@@ -1,0 +1,1 @@
+Artículo 41.—El agua debe ser clorada en el momento que ingresa a los tanques de captación. Se debe contar con sistemas automáticos de cloración, dotados de un sistema de alarma que le indique al médico veterinario inspector, a los auxiliares de inspección y al personal de mantenimiento del establecimiento que la cloración del agua ha dejado de funcionar.

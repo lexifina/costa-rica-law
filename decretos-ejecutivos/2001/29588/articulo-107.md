@@ -1,0 +1,1 @@
+Artículo 107.—El estómago, los intestinos y todo material no comestible deberán retirarse de la sala de matanza, tan pronto como lo permita el procedimiento de inspección y procesarse en el área destinada para tal fin.

@@ -1,0 +1,1 @@
+Artículo 126.—Los animales identificados como sospechosos serán excluidos de la matanza normal y se sacrificarán al final del proceso, previa autorización del médico veterinario inspector. Se llevará a cabo una detallada inspección post-mortem, después de la cual, el médico veterinario inspector emitirá un dictamen final.

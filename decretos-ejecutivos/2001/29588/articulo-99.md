@@ -1,0 +1,1 @@
+Articulo 99.—Los animales deberán desollarse antes de la evisceración a excepción de la especie porcina, en cuyo caso deberá de limpiarse de cerdas, costras o suciedad mediante procedimientos higiénicos y adecuados de depilación.

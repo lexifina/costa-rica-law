@@ -1,0 +1,1 @@
+Artículo 156.—Los establecimientos dedicados al sacrificio, deshuese o procesamiento de productos cárnicos, serán supervisados al menos una vez al mes. Los médicos veterinarios oficiales deberán ir acompañados de personal oficial del Ministerio de Salud responsable de evaluar otros puntos de interés como los sistemas de tratamiento de desechos sólidos y líquidos.

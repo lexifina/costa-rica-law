@@ -1,0 +1,1 @@
+Artículo 31.—Disponer de un número adecuado de lavamanos accionados por pedales, rodilla o fotocelda o por cualquier otro medio no manual, distribuidos estratégicamente y contar con dispensadores de jabón líquido y de un recipiente con solución desinfectante y equipados con toallas desechables o secadores de aire.

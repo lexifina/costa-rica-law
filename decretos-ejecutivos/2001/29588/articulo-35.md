@@ -1,0 +1,1 @@
+Artículo 35.—El área destinada a servicios sanitarios y lavamanos debe estar completamente separada del área para vestidores y guardarropa, contar con puertas de acceso independientes, con mecanismos de cierre automático, las que deben abrir hacia fuera.

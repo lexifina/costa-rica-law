@@ -1,0 +1,1 @@
+Artículo 132.—La cabeza, órganos o las vísceras deberán estar identificados con el mismo número que se le asignó a la canal, de esta forma se pone en evidencia la canal a la que pertenecen. Esta identificación deberá conservarse hasta que la inspección post-mortem haya concluido y emitido el dictamen. La numeración de las canales será consecutiva.

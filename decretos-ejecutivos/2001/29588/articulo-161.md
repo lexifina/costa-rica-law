@@ -1,0 +1,1 @@
+Artículo 161.—Los médicos veterinarios inspectores y sus auxiliares de inspección, serán los responsables de ejecutar las labores de inspección ante y post-mortem, enfriamiento, deshuese, empaque, almacenamiento, procedimientos de cargado de los contenedores.

@@ -1,0 +1,1 @@
+Artículo 166.—El MAG y el MS a través de sus funcionarios competentes, mantendrán el nivel de confidencialidad necesaria y requerida de la información, datos y conocimientos de que fueran impuestos en razón del ejercicio de las competencias por la aplicación del APPCC.

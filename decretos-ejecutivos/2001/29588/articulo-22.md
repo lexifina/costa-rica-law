@@ -1,0 +1,1 @@
+Artículo 22.—La evaluación físico sanitaria, de proceso y de la salud pública veterinaria de los mataderos, plantas de deshuese, empacadoras y embutidoras será competencia de los médicos veterinarios oficiales del MAG y MS.

@@ -1,0 +1,1 @@
+Artículo 175.—Todo expendio de carne y derivados deberá contar con una persona dedicada exclusivamente al manejo del dinero. Queda terminantemente prohibido que un mismo trabajador desempeñe simultáneamente las funciones de cajero y manipulador.

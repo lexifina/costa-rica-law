@@ -1,0 +1,1 @@
+Artículo 63.—El equipo para el sacrificio, desollado y eviscerado deberá estar construido con materiales impermeables, resistentes a la corrosión, fácilmente lavables y estar diseñado, construido e instalado de modo tal que la carne no entre en contacto con el piso o las paredes.

@@ -1,0 +1,1 @@
+Artículo 76.—Las empresas de transportes deberán brindar rápidamente cualquier información sobre la carne y derivados que transporten y poner a la vista los documentos que acrediten su procedencia. Deberán prestar la colaboración necesaria para facilitar la inspección de los productos transportados y para la recolección de las muestras en caso necesario.

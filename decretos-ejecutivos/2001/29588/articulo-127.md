@@ -1,0 +1,1 @@
+Artículo 127.—Cuando los animales presenten signos evidentes de enfermedad, infección generalizada, intoxicación, condición anormal, o que estén moribundos serán identificados como condenado, procediendo a su destrucción o aprovechamiento industrial para la elaboración de harina para la alimentación animal, de acuerdo con las facilidades del establecimiento.

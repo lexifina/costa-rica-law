@@ -1,0 +1,1 @@
+Artículo 96.—El sangrado deberá ser lo más completo posible. Si se destina la sangre para la preparación de alimentos, esta deberá recolectarse y manipularse higiénicamente. Solo se permitirá el uso de la sangre, cuando el médico veterinario inspector haya declarado el o los animal(es) como apto(s) para el consumo humano.

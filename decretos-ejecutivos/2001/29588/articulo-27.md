@@ -1,0 +1,1 @@
+Artículo 27.—Cuando un establecimiento aprobado cuente con diferentes secciones de procesamiento, cada sección recibirá el mismo número oficial, a éste se le agregará una letra para identificar la sección.

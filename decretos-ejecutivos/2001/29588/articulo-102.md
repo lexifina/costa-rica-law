@@ -1,0 +1,1 @@
+Artículo 102.—El agua en los tanques utilizados para escaldar, deberá cambiarse tan frecuentemente como sea necesario a juicio del médico veterinario inspector. El tanque deberá tener en el fondo un enrejado (petatillo) y contar con sistema de rebalse entubado que conduzca el agua hacia los drenajes.

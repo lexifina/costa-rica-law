@@ -1,0 +1,1 @@
+Artículo 7º—Los establecimientos que quedarán sujetos a las disposiciones del presente reglamento son: los que se dediquen al sacrificio, deshuese, embutido, empaque, almacenamiento, proceso, expendio, así como los vehículos de transporte de las carnes provenientes de las especies bovina, caprina, equina, ovina, porcina y otras autorizadas por el MAG y MS.

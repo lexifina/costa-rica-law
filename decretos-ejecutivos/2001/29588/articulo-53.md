@@ -1,0 +1,1 @@
+Artículo 53.—Las puertas de acceso directo o indirecto a las cámaras deberán ser de materiales impermeables, lisos, no absorbentes y fácilmente lavables, se mantendrán con empaques en buen estado para evitar fugas de frío y condensación. Deberán contar con ductos para el ingreso o egreso de los productos cárnicos empacados.

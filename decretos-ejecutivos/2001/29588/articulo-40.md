@@ -1,0 +1,2 @@
+Artículo 40.—El agua proveniente de los acueductos públicos puede ser aceptada si previamente ha sido tratada y examinada física, química y microbiológicamente y declarada como potable. El agua proveniente de pozos perforados dentro del establecimiento debe estar certificada mediante exámenes microbiológicos y físico químicos.
+Los pozos deben estar protegidos de la contaminación y los tanques de captación de agua, deben contar con brocal, tapa y sistema de seguridad para evitar la contaminación del agua.

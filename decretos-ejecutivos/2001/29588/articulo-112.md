@@ -1,0 +1,1 @@
+Artículo 112.—La carne y derivados, una vez empacados en bolsas plásticas, cajas o por otros medios, deberán mantenerse en tarimas o estanterías adecuadas para este propósito. Las tarimas o estanterías deben tener una altura mínima de treinta centímetros con respecto al piso.

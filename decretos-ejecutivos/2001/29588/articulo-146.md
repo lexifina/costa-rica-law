@@ -1,0 +1,1 @@
+Artículo 146.—Las marcas y sellos que lleven el distintivo de la inspección deberán mantenerse limpios y desinfectados. Deberán guardarse bajo el control de un inspector y utilizarse únicamente bajo supervisión de éste.

@@ -1,0 +1,1 @@
+Artículo 178.—Cuando se almacenen carnes empacadas deberán mantenerse en estantes o tarimas para permitir una adecuada circulación del frío. Carne empacada de diferentes especies se almacenará en estantes o tarimas separadas.

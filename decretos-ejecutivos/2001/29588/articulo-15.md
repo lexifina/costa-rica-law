@@ -1,0 +1,1 @@
+Artículo 15.—La construcción de nuevos mataderos, deberá cumplir con lo establecido en el Reglamento Sobre Procedimientos de la Setena. (Decreto Nº 25705-MINAE y sus modificaciones, Decreto Nº 26228-MINAE).

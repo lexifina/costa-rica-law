@@ -1,0 +1,1 @@
+Artículo 88.—Antes de utilizar sustancias químicas para el control de plagas, los productos cárnicos, materiales de empaque o condimentos, deberán almacenarse en áreas donde no se contaminen durante las operaciones de control.

@@ -1,0 +1,1 @@
+Artículo 160.—Los establecimientos aprobados, de conformidad con el artículo 159, podrán intercambiar carne y productos cárnicos, los que deben llegar acompañados por su respectivo resumen de embarque, no podrán deshuesar o cocinar productos cárnicos procedente de establecimientos no aprobados.

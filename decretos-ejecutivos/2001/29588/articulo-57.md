@@ -1,0 +1,1 @@
+Artículo 57.—Las estructuras de los corrales estarán construidas de tal forma que sus características no den lugar a posibles lesiones de los animales y operarios durante la movilización o estadía de los mismos.
