@@ -1,1 +1,1 @@
-Artículo 298.-La sentencia civil que califique una quiebra de excusable, o una insolvencia de culpable o excusable, surtirá los efectos de absolución en lo penal; pero la que declare ser la quiebra fraudulenta o culpable, o la insolvencia fraudulenta, no obliga a los jueces represivos a condenar.
+Artículo 298.- (Derogado por el artículo 7 de la ley N° 4327 del 17 de febrero de 1969)

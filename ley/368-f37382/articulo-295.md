@@ -1,2 +1,1 @@
-Artículo 295.-Las penas de quiebra fraudulenta o culpable sé aplicarán a los gerentes, administradores, directores o liquidadores de las sociedades mercantiles que hubieren sido declaradas en estado de quiebra cuando personalmente hubieren ejecutado los hechos que según. La ley constituye el delito.
-Las puniciones indicadas se aplicarán elevando sus extremos mayor y menor en un tercio, cuando la imputación se hiciere a un administrador, director o gerente de un banco.
+Artículo 295.-(Derogado por el artículo 7 de la ley N° 4327 del 17 de febrero de 1969)

@@ -1,1 +1,1 @@
-Artículo 296.-EI que fuere declarado en insolvencia fraudulenta de conformidad con el artículo 892 del Código Civil, será sancionado con prisión de tres meses a cuatro años.
+Artículo 296.- (Derogado por el artículo 7 de la ley N° 4327 del 17 de febrero de 1969)
