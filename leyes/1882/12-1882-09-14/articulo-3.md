@@ -1,0 +1,1 @@
+Art. 3°. – A los reos que estén en el presidio de San Lucas, y que sean trasladados al del Coco, ó al que elija para sustituirlo, se le rebajará la cuarta parte del tiempo que les falte para cumplir su condena.
