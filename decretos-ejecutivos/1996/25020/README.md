@@ -13,3 +13,4 @@ Otorga Categoría de Museo al Museo de Insectos de la UCR
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-25 | la propia norma |
+| 2 | 1996-03-25 | SINALEVI (sin norma nombrada) |
