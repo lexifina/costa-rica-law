@@ -5,3 +5,4 @@ Relación de puestos de sueldos para cargos fijos del gobierno central, para el 
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30183 de 22 de febrero del 2002)
 (Modificado respecto la relación de puestos de cargos fijos de la Asamblea Legislativa, Defensoría de los Habitantes y el Tribunal Supremo de Elecciones por el artículo 1 del Decreto Ejecutivo N° 30194 de 22 de febrero del 2002)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30258 de 22 de marzo del 2002)
+(Modificado por el artículo 2 del Decreto Ejecutivo N° 30405 de 16 de abril del 2002)
