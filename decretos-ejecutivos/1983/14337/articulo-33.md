@@ -1,0 +1,1 @@
+ARTICULO 33.-Corresponder al Comité Sectorial Regional de Trabajo y Obras Públicas como tal, programar y coordinar las actividades del Sector Transportes y Obras Públicas en la región, en apoyo tanto del Ministro de Obras Públicas y Transportes como del Consejo Regional de Desarrollo, respectivos.

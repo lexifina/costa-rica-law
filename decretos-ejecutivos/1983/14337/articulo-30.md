@@ -1,0 +1,1 @@
+ARTICULO 30.-El Comité Sectorial Regional de Transportes y Obras Públicas, estará integrado por todos los Directores Regionales del sector en la región respectiva. Para el caso del Ministerio de Obras Públicas y Transportes deberá ser un funcionario de planta.

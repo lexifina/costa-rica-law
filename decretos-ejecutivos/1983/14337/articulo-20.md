@@ -1,0 +1,1 @@
+ARTICULO 20.-El Director de la Secretaría Ejecutiva de Planificación Sectorial de Transportes y Obras Públicas, actuará como Colaborador directo del Ministro Sectorial y será asimismo el Secretario Ejecutivo del Consejo Nacional Sectorial de Transportes y Obras Públicas, participando en sus sesiones con derecho a voz.
