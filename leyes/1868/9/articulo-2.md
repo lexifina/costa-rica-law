@@ -1,0 +1,1 @@
+Art 2° En sustitución se recarga con cinco centavos más precio de cada botella de aguardiente del país y sus compuestos, y con un centavo más por libra la introducción de los licores alcohólicos procedentes del extranjero.
