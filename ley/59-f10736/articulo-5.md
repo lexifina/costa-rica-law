@@ -1,0 +1,1 @@
+Art. 5. Los vecinos de otros Pueblos que necesiten aquellas tierras, pagarán el duplo del artículo anterior: si se avecindasen se les dará gratis un solar en la Villa, mientras lo permita el terreno del recinto, y ademas el goce comun en las tierras del vecindario.
