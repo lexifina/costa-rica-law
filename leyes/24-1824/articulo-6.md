@@ -1,0 +1,3 @@
+6° La aplicacion que se dispone en el articulo 3° será por ahora, y con calidad de reintegro por los impuestos que se estableserán en los mismos caminos, luego que las comodidades que ofrescan lo permitan.
+Comumquese al Gefe Supremo del Estado para su execucion, publicacion, circulacion. –San Jose Noviembre veinte y nueve de mil ochocientos veinte y quatro. -El Presidente del Congreso Manuel Aguilar. Manuel Alvarado Secretario.-Manuel Fernandez Secretario.-Al Gefe Supremo del Estado.
+Por tanto mando se cumpla exactamente en todas sus partes y que al intento el Secretario del Despacho lo haga publicar y circular. San Jose Noviembre 30 de 1824.-Juan Mora.-Al C. Jose Maria Peralta.
