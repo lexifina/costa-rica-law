@@ -1,0 +1,1 @@
+Artículo 2º.- La intervención de la República de Costa Rica para la introducción, discusión o resolución de cualquier asunto relacionado con dicho Convenio será ejercitada por intermedio del Banco Central de Costa Rica.

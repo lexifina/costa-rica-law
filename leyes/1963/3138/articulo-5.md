@@ -1,0 +1,1 @@
+Artículo 5º.- Las disposiciones del Capítulo VI del Convenio Constitutivo del Banco Centroamericano de Integración Económica, tendrán fuerza de ley en todo el territorio de la República desde la fecha en que entre en vigencia la presente ley.
