@@ -1,0 +1,1 @@
+Art 8° El que teniente autorización legal para vender licor fuera del país o tabaco en rama, defraude al comprador usando la medida o pesa falsa menor que la legal, a más de perder la autorización, incurre en la multa de cincuenta pesos.

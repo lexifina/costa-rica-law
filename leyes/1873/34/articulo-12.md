@@ -1,0 +1,1 @@
+Art 12° La persona patentada, matriculada o legalmente autorizada para vender renglones de monopolio fiscal, es la única responsable de los fraudes y contrabandos descubiertos en sus establecimientos, aun cuando esté ausente o impedida, o haya recomendado a otra para la venta.
