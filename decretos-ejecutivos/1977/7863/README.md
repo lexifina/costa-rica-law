@@ -16,3 +16,4 @@ Reglamento de Funcionamiento del Programa Integral de Mercadeo Agropecuario (PIM
 | 1 | 1977-12-27 | la propia norma |
 | 2 | 1981-03-23 | Decreto Ejecutivo 12424 (1981-03-23) |
 | 3 | 1981-03-24 | Decreto Ejecutivo 12453 (1981-03-24) |
+| 4 | 1982-07-01 | Decreto Ejecutivo 13724 (1982-07-01) |
