@@ -14,3 +14,4 @@ Reglamento de Bachillerato en Educación Media
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-08-06 | la propia norma |
+| 2 | 1993-10-11 | Decreto Ejecutivo 22610 (1993-10-11) |
