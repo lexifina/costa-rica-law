@@ -1,0 +1,1 @@
+Artículo 9º—El Órgano Director, deberá citar a las partes, otorgándoles oportunidad para rendir la declaración o ampliar la ya rendida, y en este mismo acto deberán aportar la prueba pertinente. Previo a la toma de la declaración se les pondrá en conocimiento de los artículos 14, 15 y 16 de la ley 7476.

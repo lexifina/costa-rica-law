@@ -1,0 +1,1 @@
+Artículo 10.—Durante el proceso, el Órgano Director podrá, en el momento que lo considere oportuno, recomendar a la autoridad competente las medidas cautelares pertinentes, incluida, la suspensión al denunciado con goce de salario, o previa solicitud de cualquiera de las partes, la reubicación o, dependiendo de la gravedad de los hechos y cuando la situación lo amerite.

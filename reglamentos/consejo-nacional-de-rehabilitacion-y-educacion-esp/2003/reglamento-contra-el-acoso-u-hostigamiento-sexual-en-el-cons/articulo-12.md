@@ -1,0 +1,1 @@
+Artículo 12.—El Órgano dará oportunidad a la persona denunciante, para ampliar o aclarar los términos de la denuncia. Asimismo dará audiencia al denunciado(a) para que aporte pruebas de descargo de cada uno de los hechos que se le imputan. En caso de que la persona denunciada no ejerza su defensa, el proceso continuará hasta concluirse definitivamente el informe final.

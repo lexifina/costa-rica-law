@@ -1,0 +1,1 @@
+Artículo 8º—La autoridad competente, nombrará el Órgano Director del Proceso, en un plazo no mayor a ocho días naturales, luego de recibida la denuncia, es deber del Órgano Director, garantizar la confidencialidad de la misma e informar en un plazo de tres días hábiles a la Defensoría de los Habitantes sobre la interposición de una denuncia y la apertura del procedimiento.
