@@ -1,0 +1,1 @@
+Artículo 17.- El rematario de un puesto de licores puede traspasarlo a un tercero, siempre que éste sea persona hábil para tenerlo, según la ley. De todo traspaso se dará aviso inmediato al Gobernador o Jefe Político respectivo.

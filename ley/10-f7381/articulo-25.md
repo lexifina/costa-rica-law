@@ -1,0 +1,1 @@
+Artículo 25.- Los establecimientos de sólo licores no admitirán la entrada de menores de edad. Los que tengan ventas de otras mercaderías podrán venderles, pero no licores, y haciendo que el menor, una vez servido, se retire inmediatamente.
