@@ -1,2 +1,0 @@
-Artículo 82.-Además de las facultades que expresamente les señale esta ley, los Oficiales Mayores o Jefes de Departamento están autorizados para extender las certificaciones que se soliciten al Registro; asimismo, están obligados a poner en ejecución las ¢órdenes que sobre disciplina y distribución del trabajo imparta la Dirección General, la que tiene la obligación de hacerlas ejecutar únicamente por medio de los respectivos Oficiales Mayores o Jefes de Departamento.
-(Así reformado por el artículo 1° de la ley N° 2277 del 28 de octubre de 1958)

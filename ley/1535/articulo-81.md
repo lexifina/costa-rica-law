@@ -1,1 +1,0 @@
-Artículo 81.- No puede ser funcionario o empleado del Registro Civil quien sea ascendiente, descendiente, hermano, tío o sobrino consanguíneo o afín de un funcionario o empleado en propiedad del Tribunal Supremo de Elecciones o del Registro.
