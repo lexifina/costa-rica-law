@@ -2,5 +2,7 @@ ARTICULO 127.- Los cánones que señala esta Ley se ajustarán,
 automática y anualmente, de conformidad con el índice de inflación que
 establece el Banco Central, correspondiente al año anterior.
 Para efectos de lo que se señala en el párrafo anterior, el
-Ministerio de Recursos Naturales, Energía y Minas, solicitará al Banco
-Central que certifique el referido índice de inflación.
+Ministerio de Ambiente y Energía, solicitará al Banco Central que
+certifique el referido índice de inflación.
+(Así modificado el nombre del Ministerio por el artículo 116 de la
+Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)
