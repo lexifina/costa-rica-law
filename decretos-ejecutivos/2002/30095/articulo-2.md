@@ -1,0 +1,1 @@
+Artículo 2°—Para los efectos correspondientes, podrá el Ministerio de Salud nombrar como Unidad Ejecutora a la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, mientras dure aquel, asumiendo la prestación del servicio de recolección y disposición de los desechos sólidos en el Cantón Central de la Provincia de Limón.

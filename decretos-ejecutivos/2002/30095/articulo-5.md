@@ -1,0 +1,1 @@
+Artículo 5°—El plazo durante el cual el Ministerio de Salud asumirá el servicio de recolección y disposición de los desechos sólidos en el Cantón Central de la Provincia de Limón, cesará quince días naturales después de presentado el plan que se señala en el artículo 2° de este Decreto Ejecutivo.
