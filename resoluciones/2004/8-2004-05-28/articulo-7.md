@@ -1,0 +1,1 @@
+Artículo 7º—Vigencia: Rige a partir de su publicación y se aplicará al suministro de la información correspondiente al período fiscal 2004 (1° de octubre del 2003 al 30 de setiembre del 2004) y siguientes.
