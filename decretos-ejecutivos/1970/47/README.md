@@ -14,3 +14,4 @@ Concede beneficios a "Rosago Sociedad Anónima" para su planta industrial destin
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-04-04 | la propia norma |
+| 2 | 1970-06-17 | Decreto Ejecutivo 1046 (1970-06-17) |
