@@ -1,0 +1,1 @@
+Artículo 2º—Del permiso. Toda actividad social con karaoke que se programe en establecimientos comerciales o actividades públicas deberá contar con el correspondiente permiso municipal para su realización.

@@ -1,0 +1,1 @@
+Artículo 4º—De los locales comerciales con sistema de karaoke propio. En el caso de aquellos comercios que posean sistema de karaoke propio, deberán solicitar patente permanente para el desarrollo de dicha actividad y pagar la tarifa establecida para tal efecto por la Municipalidad.
