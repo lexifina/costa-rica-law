@@ -1,0 +1,1 @@
+Artículo 7°— La Comisión se reunirá cada vez que sea convocada por su Presidente, y establecerá sus propios procedimientos y normas de trabajo, de conformidad con lo establecido en la Ley General de la Administración Pública.
