@@ -1,0 +1,1 @@
+Art. 6. Cualquiera que en contravención de los artículos anteriores, construya paredes ó cercos, abra zanjas, ponga caños, haga excavaciones ó cualquiera otra obra que ocasione algún accidente, daño o perjuicio de tercero, será responsable y obligado á resarcirlo.

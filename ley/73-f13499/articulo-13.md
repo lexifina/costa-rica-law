@@ -1,0 +1,1 @@
+Art. 13 Del presente decreto se dará conocimiento á la Cámara de Senadores cuando se instale. –Dado en la Ciudad de San José á primero de Octubre de mil ochocientos cuarenta y cuatro –José María Alfaro –Al Ministro de Hacienda y Guerra encargado del Despacho de Relaciones y Gobernación.
