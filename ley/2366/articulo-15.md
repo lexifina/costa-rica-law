@@ -1,0 +1,1 @@
+Artículo 15.- Se prohíbe a los miembros del Consejo Directivo inmiscuir a la Editorial en actividades político-electorales, y asimismo intervenir, con carácter personal, en críticas y polémicas relacionadas con la labor de la Editorial.

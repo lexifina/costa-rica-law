@@ -1,0 +1,1 @@
+Artículo 18.- El Consejo Directivo se reunirá en sesión ordinaria una vez por semana y en extraordinaria cada vez que sea convocada por su Presidente o conjuntamente por los otros dos miembros del Consejo o por el Administrador General. Por cada sesión los miembros del Consejo devengarán dieta, y sólo cuatro sesiones mensuales podrán ser remuneradas.

@@ -1,0 +1,2 @@
+Artículo 23.- Los miembros del Comité de Selección desempeñarán sus funciones por un período de dos años y podrán ser reelectos.
+Los nombramientos de los miembros del Comité que deban sustituir a los que hayan concluido su período, deberán hacerse dentro de los treinta días anteriores al vencimiento de éste. El que renunciare a su cargo lo participará con un mes de antelación, en el transcurso del cual deberá nombrarse el propietario sustituido.
