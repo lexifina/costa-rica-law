@@ -1,0 +1,9 @@
+# Préstamo Gobierno de Costa Rica-BCD
+
+Ley N° 4669 del 1970-11-10. SINALEVI, ficha 32556: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=32556&param2=34346&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1970-11-10 | Ley 4669 | 1970-11-10 |
