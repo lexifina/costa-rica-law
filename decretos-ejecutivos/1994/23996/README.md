@@ -18,3 +18,4 @@ Reforma al decreto ejecutivo que establece el monto de dietas a la Junta Naciona
 | 3 | 1996-09-03 | Decreto Ejecutivo 25549 (1996-09-03) |
 | 4 | 1996-12-20 | Decreto Ejecutivo 25817 (1996-12-20) |
 | 5 | 1998-03-11 | Decreto Ejecutivo 26872 (1998-03-11) |
+| 6 | 1999-03-10 | Decreto Ejecutivo 27761 (1999-03-10) |
