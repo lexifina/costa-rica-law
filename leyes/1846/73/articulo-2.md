@@ -1,0 +1,1 @@
+Art. 2. El Gobierno nombrará un inspector general de vacuna en el Estado, y sus funciones se arreglaran al mencionado decreto de 8 de febrero; entendiendose directamente con los Jefes Políticos en los casos que ocurran, los cuales representarán al Gobierno cuanto consideren necesario para la conservacion y propagacion de aquel preservativo.
