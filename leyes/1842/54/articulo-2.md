@@ -1,0 +1,1 @@
+Art. 2. Se deroga igualmente el citado artículo 2° de la referida órden en cuanto impone penas á los que verifiquen desmontes en los terrenos baldíos de dicha demarcación, aplicándoseles en su lugar las que las leyes comunes prefijan para casos de esta naturaleza.

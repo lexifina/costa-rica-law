@@ -1,0 +1,1 @@
+Art. 3. No habiéndose hasta ahora establecido ningún trabajo de minas en Pacaca, se deroga en artículo 5° y último de la misma órden. –Dado en San Jose, á veinte de Mayo de mil ochocientos cuarenta y dos. –Francisco Morazan. –Al Ministro general del Despacho Sr. General José Miguel Saravia.
