@@ -66,15 +66,13 @@ NOTAS:
 3/ Corresponde al porcentaje según la disposición dos de este acuerdo, aplicado a la diferencia entre las cuentas 500 y 400 cuando la cuenta 500 es mayor que la cuatrocientos.
 4/ El monto de las estimaciones genéricas será determinado de conformidad con el siguiente procedimiento:
 D(20041) Estimaciones genéricas XXXX XXXX
-C(139) Estimación para cartera de créditos XXXX
-C(252) Estimación para incobrabilidad
-de créditos contingentes XXXX
+*C(139) Estimación para cartera de créditos XXXX
+*C(149.08.M.03) Estimación por deterioro e incobrabilidad de productos por cobrar por cartera de crédito XXXX
+*C(252) Estimación para incobrabilidad de créditos contingentes XXXX
 Menos
-D(20042) Monto de las Estimaciones Mínima
-para la cartera clasificada en categorías
-de riesgo B2, C, D y E, según el
-Acuerdo SUGEF 1-95 XXXX
+*D(20042) Monto de las estimaciones mínimas para la cartera clasificada en categorías de riesgo B2, C, D y E, según el Acuerdo SUGEF 1-95 XXXX
+*(Así reformado parcialmente mediante sesión ordinaria N° 408, celebrada el 09 de diciembre de 2003.)
 Las estimaciones genéricas elegibles para su inclusión como capital secundario estarán limitadas hasta el 1,25% de los activos totales ponderados por riesgo según el Acuerdo SUGEF 23-00 "Normas para Establecer la Suficiencia Patrimonial de las Entidades Fiscalizadas por la Superintendencia General de Entidades Financieras".
 5/ Hasta el 50% del capital primario.
 6/ Equivale a la diferencia entre la cuenta 400 Gastos y 500 Ingresos, siempre que la cuenta 400 sea mayor a la cuenta 500.
-(Así reformaod por acuerdo tomado en sesión N° 320 de 20 de agosto del 2002)
+(Así reformado por acuerdo tomado en sesión N° 320 de 20 de agosto del 2002)
