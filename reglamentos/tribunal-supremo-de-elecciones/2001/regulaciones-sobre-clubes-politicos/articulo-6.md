@@ -1,0 +1,3 @@
+6. De las notificaciones.
+6.1 La secretaría general de cada partido político debe señalar ante el Tribunal Supremo de Elecciones, la Inspección Electoral y las autoridades policiales correspondientes, el lugar para recibir notificaciones; o en su caso, el nombre y dirección de la persona designada para tales efectos (artículo 159 del Código Electoral).
+6.2 La respectiva autoridad queda obligada a notificar inmediatamente a la secretaría general de los partidos políticos, o a la persona que ésta designe, las resoluciones que dicte sobre inscripción de locales para clubes políticos, bajo pena de inhabilitación absoluta (artículo 159 del Código Electoral).

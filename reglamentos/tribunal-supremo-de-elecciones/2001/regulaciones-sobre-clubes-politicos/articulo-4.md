@@ -1,0 +1,3 @@
+4. Requisitos para la ubicación del club político.
+4.1 Ningún club político podrá ser inscrito y ubicado a menos de cien metros de otro club ya inscrito o de 50 metros de un centro de votación (artículos 82 y 107 del Código Electoral).
+4.2. La distancia entre los clubes políticos debe medirse por el centro de la vía pública, siguiendo la dirección de las calles que conduzcan de uno al otro local, tomando como punto de partida y como punto terminal, los que en el centro de la vía coincidan con las puertas de entrada principal de los locales de que se trate, y si entre ambos locales hubiere una plaza, parque o sitio abierto que permita el paso libre, la distancia de los cien metros se medirá por ese sitio en línea recta.
