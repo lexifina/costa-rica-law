@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-La responsabilidad de los tres primeros empleados nombrados en el artículo precedente, será mancomunada; y por consiguiente los tres serán claveros, y no se podrán abrir las arcas sin la cooperación simultánea de todos.

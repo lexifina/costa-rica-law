@@ -1,0 +1,1 @@
+ARTÍCULO 3°. -Las partidas de cargo y data que deben sentarse en el manual y cualesquiera otros libros auxiliares de este, en la Administración Principal, serán firmados por los tres empleados referidos.
