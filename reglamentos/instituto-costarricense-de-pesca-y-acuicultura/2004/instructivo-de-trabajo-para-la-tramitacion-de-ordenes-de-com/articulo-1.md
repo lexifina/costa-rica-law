@@ -1,7 +1,8 @@
 INSTITUTO COSTARRICENSE DE PESCA Y ACUACULTURA
 Nº AJDIP/319.—Puntarenas, a los nueve días del mes de julio del dos mil cuatro.
 Considerando
-I.—Que la Ley Nº 7384, del 16 de marzo de 1994, publicada en La Gaceta Nº 62 del 29 de marzo de 1994, Ley de Creación del Instituto Costarricense de Pesca y Acuacultura (INCOPESCA), establece que el Instituto se encargará de la administración y el control del uso eficiente del combustible destinado a la actividad pesquera no deportiva. II.—Que la Junta Directiva integró una Comisión a los efectos de elaborar el instructivo para la tramitación de combustible a precio preferencial otorgado a la flota pesquera no deportiva, con la participación de varios funcionarios que conocen ampliamente el procedimiento de exoneración, la cual rindió el informe respectivo, remitiendo un borrador de instructivo, el cual ha sido analizado por los Señores Directores y consideran procedente su aprobación. Por tanto:
+I.—Que la Ley Nº 7384, del 16 de marzo de 1994, publicada en La Gaceta Nº 62 del 29 de marzo de 1994, Ley de Creación del Instituto Costarricense de Pesca y Acuacultura (INCOPESCA), establece que el Instituto se encargará de la administración y el control del uso eficiente del combustible destinado a la actividad pesquera no deportiva.
+II.—Que la Junta Directiva integró una Comisión a los efectos de elaborar el instructivo para la tramitación de combustible a precio preferencial otorgado a la flota pesquera no deportiva, con la participación de varios funcionarios que conocen ampliamente el procedimiento de exoneración, la cual rindió el informe respectivo, remitiendo un borrador de instructivo, el cual ha sido analizado por los Señores Directores y consideran procedente su aprobación. Por tanto:
 Artículo 1º—Aprobar el siguiente
 INSTRUCTIVO DE TRABAJO PARA LA TRAMITACIÓN DE ÓRDENES DE COMBUSTIBLE DESTINADO A LA FLOTA NACIONAL NO DEPORTIVA A SEGUIR POR PARTE DE LOS FUNCIONARIOS DE LA SCAC
 INTRODUCCIÓN
@@ -33,7 +34,9 @@ APERTURA DE EXPEDIENTE
 Responsable. Funcionario Recetor y Emisor de documentos.
 Paso 1: Crear el expediente de combustible para cada embarcación correspondiente al año calendario, anotando en la parte frontal el nombre de la embarcación, número de matrícula, número de expediente, fecha de vencimiento de la licencia de pesca y la potencia del motor expresada en Kw.
 Paso 2: Registrar en el acto y en presencia del beneficiario la firma de este último o personas autorizadas según los formularios 5, 6, 7 para tal efecto deberá solicitar la cédula de identidad, pasaporte o cédula de residencia.
-Paso 3: En casos de personas físicas que autoricen a familiares hasta el tercer grado de consanguinidad deberá verificar a través de una declaración jurada notarial el vínculo existente. Paso 4: En el caso de personas jurídicas deberá verificar que las personas autorizadas, sean empleados, demostrado mediante orden patronal, planilla o constancia de la CCSS, de al menos una de las empresas del mismo representante legal.
+Paso 3: En casos de personas físicas que autoricen a familiares hasta el tercer grado de consanguinidad o su cónyuge, deberá verificar a través de una declaración jurada notarial o certificación emitida por el Registro Civil el vínculo existente.
+(Así reformado por el artículo 1° del acuerdo 435 del 8 de octubre del 2004)
+Paso 4: En el caso de personas jurídicas deberá verificar que las personas autorizadas, sean empleados, demostrado mediante orden patronal, planilla o constancia de la CCSS, de al menos una de las empresas del mismo representante legal.
 Paso 5: Una vez realizado los pasos anteriores deberá archivar en el expediente los documentos mencionados y ubicarlos en el sitio destinado al archivo.
 2. REVISIÓN DE LA SOLICITUD DE COMBUSTIBLE Y LEGAJO CORRESPONDIENTE
 Paso 1: El funcionario deberá consultar el expediente respectivo, de previo a dar por recibido los documentos completos y continuar con el trámite a efecto de determinar si existe una inspección, memorando u otros que no permita el trámite correspondiente.
@@ -53,7 +56,9 @@ C. Factura de compra del combustible del(os) viaje(s) inmediato(s) anterior(es).
 • Precio cobrado por la Organización.
 • Sello de cancelado.
 • Debidamente autorizada por el Ministerio de Hacienda.
-D. Zarpe Nacional con firma y sello de la Capitanía de Puerto, el cual no podrá ser anterior a la fecha en que se emitió la orden de combustible a precio preferencial que se pretende liquidar. Se exceptúa de la presentación del zarpe las embarcaciones Artesanales en Pequeña Escala cuyos propietarios podrán utilizar el formulario de declaración jurada de los días de pesca (Ver anexo Nº 3). El funcionario verificará que dicha declaración consigne en forma consecutiva la hora de salida y regreso de cada día laborado, con su respectiva fecha del mes inmediato anterior o el período respectivo. Sí la embarcación efectúa viajes de pesca mayores a un día, verificará que anoten ininterrumpidamente los días en que la embarcación faena, anotándose claramente la fecha y hora en que zarpó, la fecha y hora en que arribó a puerto. En aquellos casos en que el permisionario realice dos o más viajes diarios de pesca, deberá consignarlo así en dicho formulario. Cuando por motivos de fuerza mayor excepcionalmente el zarpe no fuera firmado ni sellado por la Capitanía de Puerto, deberá el permisionario aportar copia de la Bitácora y reporte emitido por Seguridad Pública que haga constar el arribo a puerto de la embarcación en el plazo señalado.
+D. Zarpe Nacional con fecha y hora real de salida, firma y sello de la Capitanía de Puerto, el cual no podrá ser anterior a la fecha en que se emitió la orden de combustible a precio preferencial que se pretende liquidar. Se exceptúa de la presentación del zarpe las embarcaciones Artesanales en Pequeña Escala cuyos propietarios deberán utilizar el formulario de declaración jurada de los días de pesca (ver Anexo Nº 3).
+(Así reformado por el artículo 2° del acuerdo 435 del 8 de octubre del 2004)
+El funcionario verificará que dicha declaración consigne en forma consecutiva la hora de salida y regreso de cada día laborado, con su respectiva fecha del mes inmediato anterior o el período respectivo. Sí la embarcación efectúa viajes de pesca mayores a un día, verificará que anoten ininterrumpidamente los días en que la embarcación faena, anotándose claramente la fecha y hora en que zarpó, la fecha y hora en que arribó a puerto. En aquellos casos en que el permisionario realice dos o más viajes diarios de pesca, deberá consignarlo así en dicho formulario. Cuando por motivos de fuerza mayor excepcionalmente el zarpe no fuera firmado ni sellado por la Capitanía de Puerto, deberá el permisionario aportar copia de la Bitácora y reporte emitido por Seguridad Pública que haga constar el arribo a puerto de la embarcación en el plazo señalado.
 E. Fotocopia de la boleta de control de saldos (Ver anexo Nº 4). La cual deberá contener como mínimo lo siguiente:
 1. Fecha.
 2. Nombre y matrícula de la embarcación.
@@ -61,8 +66,10 @@ E. Fotocopia de la boleta de control de saldos (Ver anexo Nº 4). La cual deber�
 4. Número y fecha de emisión de la Orden de combustible.
 5. Litros que ingresan, litros retirados y saldo.
 6. Fechas en que el beneficiario retira el combustible.
-7. Firma y sello del administrador o su designado de la Estación de Servicio que certifique los retiros de combustible.
-8. Firma del beneficiario o su designado por cada retiro de combustible.
+7. Sello de la Estación de Servicio.
+(Así reformado por el artículo 3° del acuerdo 435 del 8 de octubre del 2004)
+8. Firma del beneficiario o persona autorizada por cada retiro de combustible.
+(Así reformado por el artículo 4° del acuerdo 435 del 8 de octubre del 2004)
 F. Fotocopia de la bitácora del (los) viaje (s) correspondiente (s) de pesca, se exceptúa de esta disposición a las embarcaciones pertenecientes a la Flota Artesanal en Pequeña Escala. El funcionario responsable o encargado debe verificar lo siguiente:
 1. Que el documento sea legible.
 2. Que contenga el sello y firma de la Capitanía de Puerto correspondiente.
@@ -74,7 +81,8 @@ H. Que el contrato suscrito entre las partes se encuentre vigente.
 Paso 4: En el caso de presentación de Solicitudes de Combustible a través de Organizaciones debidamente conformadas, el funcionario deberá verificar que esta presentación se haga mediante las personas autorizadas por ésta (Representante Legal o hasta un máximo de dos funcionarios que consten en planilla) y a través del formato confeccionado para tal caso (Ver anexo Nº 12), para lo cual deberá respetarse el horario de recepción y entrega de documentos establecido por el jefe inmediato en cada Oficina del INCOPESCA.
 Paso 5: El funcionario de la SCAC verificará a través de la información computarizada suministrada mensualmente por la C.C.S.S., según el último párrafo del artículo 74 de la Ley Orgánica de la C.C.S.S., modificada según la Sección IV, artículo 85 de la Ley de Protección al Trabajador, que el beneficiario esté al día en el pago de sus obligaciones, una vez verificado dejar constancia en la parte frontal inferior de la solicitud, a través del sello utilizado para dichos efectos, estampando la firma correspondiente.
 Paso 6: Si al verificarse a través de la información computarizada se encontrase moroso, el funcionario de la SCAC deberá indicarle que no se le puede tramitar solicitud de obtención de combustible preferencial hasta tanto no se encuentre al día, acto que deberá demostrar mediante una certificación emitida por la C.C.S.S.
-Paso 7: En caso de que el beneficiario no aparezca registrado en la información suministrada por la C.C.S.S., el funcionario deberá solicitarle que presente documento vigente expedido por autoridad competente de la CCSS (carné, planilla, constancia, certificación, orden patronal entre otros) que estipule estar al día con sus obligaciones con esa Institución. Paso 8: Los documentos referidos en los pasos 6 y 7, se archivan en el expediente de combustible.
+Paso 7: En caso de que el beneficiario no aparezca registrado en la información suministrada por la C.C.S.S., el funcionario deberá solicitarle por una única vez al año, que presente documento vigente expedido por autoridad competente de la CCSS (carné, planilla, constancia, certificación, orden patronal entre otros) que estipule estar al día con sus obligaciones con esa Institución.
+(Así reformado por el artículo 5° del acuerdo 435 del 8 de octubre del 2004)
 3. RECEPCIÓN DE LA SOLICITUD DE COMBUSTIBLE Y LEGAJO CORRESPONDIENTE
 Paso 1: Si el funcionario de la SCAC determina que la presentación de los documentos que tiene que aportar el beneficiario está completa y correcta, estampará el sello de recibido en cada uno de los documentos, consignando además la fecha y su firma. Este sello deberá estamparse en un espacio tal que no dificulte su lectura e interpretación, indicando además la fecha de recibido, el nombre de la oficina correspondiente y con bolígrafo el funcionario de la SCAC firmará sobre la marca del sello como responsable de aceptar los documentos. Además, cuando es requerido por el interesado el funcionario entregará copia de la solicitud debidamente sellada, firmada y recibida como prueba del acto descrito.
 Paso 2: Si el funcionario determina que la presentación de documentos que tiene que aportar el beneficiario es incompleta o defectuosa, procederá a su devolución inmediata, indicando la deficiencia por escrito en el formulario respectivo de devolución de documentos (Ver anexo Nº 10). Para todos los casos en los que se incumple con alguno de los documentos establecidos como requisitos, de conformidad con la Ley Nº 8220, se concederá al interesado (en el mismo formulario del Anexo Nº 10 citado) un plazo de diez días, a partir del recibo de la solicitud, a los efectos que complete ésta.
@@ -123,6 +131,11 @@ Paso 4: Una vez realizado el paso anterior el funcionario procederá de acuerdo 
 Cuando la orden de combustible se ha extraviado, se debe de proceder de la siguiente manera:
 Paso 1: El beneficiario presentará la solicitud por escrito, manifestando, que se le ha perdido la orden, acompañada de la denuncia ante el Organismo de Investigación Judicial, u otra autoridad competente (Guardia Civil, Servicio de Guardacostas), además deberá pagar el costo del tramite administrativo (costo de la orden).
 Paso 2: El funcionario deberá seguir los pasos establecidos en los procedimientos para la sustitución indicados en los puntos b, c, d, del punto anterior.
+Paso 5: El Jefe de la SCAC, o Jefe de la Dirección u Oficina Regional, o el funcionario designado, deberá remitir una nota a RECOPE, cada vez que se proceda a anular una orden de combustible, indicando el extravío de ésta.
+Paso 6: El beneficiario deberá aportar una constancia emitida por RECOPE, que indique que la orden se hizo efectiva.
+Paso 7: Cuando la copia de la orden de combustible que se pretende liquidar, se ha extraviado, se debe de proceder de la siguiente manera:
+Paso 7: El funcionario deberá seguir los pasos establecidos en los procedimientos para la sustitución indicados en los pasos 2, 3, 4, 5 y 6 del proceso 7.
+(Así adicionados los Pasos 5, 6, 7, por el artículo 6° del acuerdo 435 del 8 de octubre del 2004)
 8. ENTREGA DE ÓRDENES DE COMBUSTIBLE
 A PRECIO PREFERENCIAL
 Paso 1: Una vez que el funcionario recibe el comprobante de ingresos cancelado, anota el número de comprobante y el importe cancelado en la solicitud de combustible, estampa el sello correspondiente, Procede a firmar la orden en el espacio “funcionario que entrega”.
@@ -130,19 +143,22 @@ Paso 2: Entrega al beneficiario o representante debidamente autorizado, la orden
 9. ARCHIVO DE DOCUMENTOS.
 Paso 1: Una vez que el funcionario entrega la orden de combustible procede a incorporarlos en el expediente administrativo y debidamente foliados, según el siguiente orden:
 1- Orden Actual.
-2- Copia del comprobante de Ingresos.
+2- Copia del comprobante de ingresos. En aquellos casos en donde se cancelen diversas ordenes en un mismo comprobante, deberá anotarse el número del comprobante en las diferentes solicitudes de combustible, en el espacio de observaciones.
+(Así reformado por el artículo 7° del acuerdo 435 del 8 de octubre del 2004)
 3- Solicitud de Combustible.
 4- Constancia de captura o factura de venta de producto.
 5- Gastos de operación.
 6- Declaración Jurada de los días de pesca o zarpe nacional.
 7- Fotocopia de la Bitácora.
 8- Declaración Jurada del Capitán sobre el uso del TED.
-9- Reporte de zonas de pesca.
+9- Reporte de zonas de pesca, flota semiindustrial.
+(Así reformado por el artículo 8° del acuerdo 435 del 8 de octubre del 2004) .
 10- Boleta de Control de Saldos.
 11- Factura de compra de combustible.
 12- Orden Anterior.
 13- Otros documentos.
 Paso 2: posteriormente procede archivar el expediente en el lugar correspondiente, se deberá remitir copia de la constancia de captura o factura (s) de venta del producto al Departamento de Estadísticas.
 Otras Instrucciones:
-Cuando por alguna razón el beneficiario decida descargar en un puerto distinto al de su base de operación, podrá realizar excepcionalmente el trámite de combustible en la Dirección u Oficina regional más cercana al puerto de desembarque, para lo cual, el Jefe de la Dirección u Oficina regional en la que se realiza dicho trámite o quien éste designe, deberá solicitar ante la Oficina del INCOPESCA en la cual se encuentra registrada la embarcación, el suministro vía fax de orden de compra de combustible anterior y la licencia de pesca, debiendo crear el expediente correspondiente.
+Cuando por alguna razón el beneficiario decida descargar en un puerto distinto al de su base de operación, podrá realizar excepcionalmente el trámite de combustible en la Dirección u Oficina regional más cercana al puerto de desembarque, para lo cual, el Jefe de la Dirección u Oficina regional en la que se realiza dicho trámite o quien éste designe, deberá solicitar ante la Oficina del INCOPESCA en la cual se encuentra registrada la embarcación, el suministro vía fax del legajo de la solicitud de combustible anterior y la licencia de pesca, debiendo crear el expediente correspondiente.
+(Así reformado por el artículo 9° del acuerdo 435 del 8 de octubre del 2004)
 En aquellos casos en que los beneficiarios soliciten un permiso de inactividad y ante ello se encuentren imposibilitados para adquirir el combustible, el Jefe de la SCAC, Dirección u Oficina Regional o quien éste designe, a gestión expresa del interesado hará constar la presentación de la solicitud con la documentación completa, a efectos de emitir una vez vencido el período de inactividad o bien cuando el beneficiario manifieste con anterioridad al vencimiento de la inactividad, su decisión de reiniciar las actividades de pesca, la orden de compra correspondiente.
