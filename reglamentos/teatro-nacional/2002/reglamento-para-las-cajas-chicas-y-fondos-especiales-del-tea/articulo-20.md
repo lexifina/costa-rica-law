@@ -1,0 +1,1 @@
+Artículo 20.—Los reintegros se efectuarán por medio de cheques a la orden del responsable de la caja chica o del fondo especial y de seguido en la misma línea del beneficiario anotar la leyenda que identifique la caja chica o fondo especial de que se trate.

@@ -1,0 +1,1 @@
+Artículo 34.—En ausencia del responsable del manejo de la Caja Chica, se podrá designar un nuevo responsable de parte de la Dirección General y se le entregará el fondo mediante arqueo previo por parte de los supervisores encargados, debiendo quedar documentado.

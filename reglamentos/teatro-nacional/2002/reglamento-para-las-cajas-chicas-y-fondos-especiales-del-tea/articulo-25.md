@@ -1,0 +1,1 @@
+Artículo 25.—Los encargados de los fondos, no podrán guardar documentos, efectivo, cheques o cualesquiera otros efectos de propiedad particular, en los lugares y espacios físicos destinados para los recursos de caja chica y fondos especiales.

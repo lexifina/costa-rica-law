@@ -1,0 +1,2 @@
+Del uso de los recursos
+Artículo 6º—El fondo de Caja Chica General deberá ser usado única y exclusivamente para el gasto en las partidas de servicios no personales y materiales y suministros, indispensables y urgentes que justifican el pago fuera de los trámites ordinarios establecidos; los fondos especiales de Boleterías y Recuerdos (Souvenir) serán sólo para dar cambio, y el fondo de Escenario será para el pago de taxis y otros gastos necesarios para el personal que labora en las funciones nocturnas que presenta el Teatro Nacional.

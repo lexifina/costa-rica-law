@@ -1,0 +1,1 @@
+Artículo 16.—Salvo situaciones especiales y a criterio del supervisor de cajas chicas y fondos especiales, no le serán girados recursos adicionales al funcionario que tenga pendiente una liquidación de un anticipo de dinero, hasta que liquide el anticipo pendiente.

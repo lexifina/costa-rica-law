@@ -1,0 +1,1 @@
+Artículo 11.—Ningún fondo podrá ser utilizado para el cambio de cheques, ni usarse para fines distintos para el que fue creado, ni disponerse para actuaciones distintas a las autorizadas por las leyes o este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 23.—Los encargados de Caja Chica y Fondos deben cumplir con las siguientes condiciones: ser funcionario regular de la entidad, nombrado en propiedad, con un mínimo de dos años de servicio continuo y de reconocida solvencia moral.

@@ -1,0 +1,1 @@
+Artículo 31.—Todo arqueo de Caja Chica y de Fondos se realizará en presencia de la persona responsable del fondo. Esta tendrá derecho a pedir una segunda verificación, si mantiene dudas sobre el resultado obtenido.
