@@ -14,3 +14,4 @@ Reglamento Regular Prestación Servicios Miembros Permanentes Cuerpos Bomberos I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1971-11-09 | la propia norma |
+| 2 | 1972-08-24 | Decreto Ejecutivo 2489 (1972-08-24) |
