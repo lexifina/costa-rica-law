@@ -13,3 +13,4 @@ Sobre la Aplicación de Medidas a tomar respecto del Trámite de Embargo de Pens
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-19 | la propia norma |
+| 2 | 2004-02-27 | Circular 14 (2004-02-27) |
