@@ -15,3 +15,4 @@ Reforma decreto que establece que los licores nacionales y extranjeros que se of
 | --- | --- | --- |
 | 1 | 1984-10-11 | la propia norma |
 | 2 | 1993-03-22 | Decreto Ejecutivo 22089 (1993-03-22) |
+| 3 | 1993-06-25 | Decreto Ejecutivo 22305 (1993-06-25) |
