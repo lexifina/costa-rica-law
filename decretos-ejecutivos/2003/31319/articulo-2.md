@@ -1,0 +1,1 @@
+2º—Solicitar a la Procuraduría General de la República la coordinación necesaria con el Ministerio de Obras Públicas y Transportes, con el fin de llevar a cabo la desafectación de este tipo de sobrantes según los términos del Oficio Nº DAGJ-219-2003 del 25 de febrero del 2003 de la Contraloría General de la República.
