@@ -1,0 +1,6 @@
+Artículo 3º.- El producto del Impuesto de Destace de Ganado será distribuido en la forma siguiente:
+a) 50% entre las Municipalidades o Concejos Municipales de Distrito, en proporción al número de cabezas de ganado vacuno de engorde existente en cada cantón de la República, o distrito en su caso, según los índices obtenidos de las estadísticas que para tales efectos deberá remitir anualmente el Consejo Nacional de Producción al Banco Central de Costa Rica.
+La parte del tributo a que se refiere este inciso será distribuida semestralmente y en forma directa por el citado Banco.
+b) 50% para la Municipalidad o Concejo Municipal de Distrito, en cuya jurisdicción se practicó la venta de carne al consumidor. Sin embargo, cuando la carne se destine a la exportación, la distribución del 50% indicado, la hará el Banco Central en favor de la Municipalidad o Concejo Municipal de Distrito, en cuya jurisdicción se practicó el destace.
+c) Cuando la exportación de ganado se realice en pie, la totalidad del impuesto recaudado se distribuirá conforme al inciso a) de este artículo.
+La distribución de lo que corresponde por los incisos b) y c) anteriores, será girado también semestralmente por el Banco Central; de conformidad con los datos que obran en su poder provenientes de las declaraciones hechas por los interesados conforme se indica en el artículo primero.

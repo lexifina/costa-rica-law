@@ -1,0 +1,1 @@
+Transitorio I.- Mientras las instituciones beneficiadas con el referido tributo realizan un cálculo más exacto del ingreso probable, la Contraloría General de la República podrá adoptar las medidas que estime pertinentes, a fin de lograr un mayor equilibrio en sus presupuestos.

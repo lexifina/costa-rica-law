@@ -1,0 +1,2 @@
+Artículo 9º.- La presente ley deroga las siguientes disposiciones relativas al impuesto de destace de ganado:
+Ley Nº 1823 del 22 de noviembre de 1954; párrafos cuarto y quinto del artículo 5º de la ley Nº 2634 del 28 de setiembre de 1960, según reforma producida por la ley Nº 3793 del 7 de noviembre de 1968; el artículo 1º de la ley Nº 4712 del 5 de octubre de 1971; y los artículos 290, 291, 292, 293, 294 y 296 del Código Fiscal.
