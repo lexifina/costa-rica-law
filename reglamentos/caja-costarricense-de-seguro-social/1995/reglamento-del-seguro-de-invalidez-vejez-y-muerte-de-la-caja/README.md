@@ -29,3 +29,4 @@ Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricense de Se
 | 14 | 2000-09-28 | Reglamento 7482 (2000-09-28) |
 | 15 | 2002-11-05 | Reglamento 7699 (2002-11-05) |
 | 16 | 2002-12-19 | Reglamento 7717 (2002-12-19) |
+| 17 | 2003-01-09 | Reglamento 7719 (2003-01-09) |
