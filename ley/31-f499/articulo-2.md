@@ -1,0 +1,1 @@
+Artículo 2°.-Corresponde á la Facultad Técnica extender el título de Licenciado Geómetra ó Ingeniero Topógrafo á los bachilleres en ciencias que- lo soliciten, conforme á las disposiciones que esta Facultad acuerde en su reglamento interior.
