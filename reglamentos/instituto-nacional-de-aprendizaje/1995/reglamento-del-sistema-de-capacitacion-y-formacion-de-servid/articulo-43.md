@@ -5,4 +5,5 @@ b. La repercusión que tenga sobre el servicio la ausencia del servidor.
 c. La importancia y necesidad de los estudios a realizar para el INA.
 d. Los méritos del candidato.
 e. La posibilidad de obtener ayuda de otras fuentes.
-f. El informe técnico presentado por el Departamento de Desarrollo de Recursos Humanos.
+f. El informe técnico presentado por la (*)Unidad de Recursos Humanos.
+(*)(Modificada su denominación mediante sesión N° 3332 del 11 de marzo de 1996)

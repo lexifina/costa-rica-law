@@ -16,3 +16,4 @@ Reglamento del Sistema de Capacitación y Formación de Servidores del Instituto
 | 1 | 1995-03-13 | la propia norma |
 | 2 | 1995-06-12 | Reglamento 3255 (1995-06-12) |
 | 3 | 1995-08-25 | Reglamento 0 (1995-08-25) |
+| 4 | 1996-03-11 | Reglamento 3332 (1996-03-11) |
