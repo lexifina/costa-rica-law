@@ -14,3 +14,4 @@ Reforma al Acuerdo SGV-A-16 Normativa Contable para Puestos de Bolsa, Sociedades
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-12 | la propia norma |
+| 2 | 2003-06-12 | Acuerdo 63 (2002-06-24) |
