@@ -1,0 +1,1 @@
+Artículo 2.- Prorrogase así mismo la pensión otorgada á doña Jesús Ramírez, viuda de Arroyo, reduciéndola a sesenta y siete colones mensuales. Se declara de justicia esta pensión de conformidad con el artículo 753 de la Ordenanza para el Ejército, y de ella gozará la beneficiaria mientras permanezca viuda y pobre.

@@ -1,0 +1,1 @@
+Artículo 3.- Se asigna al Sargento Asunción Martínez una pensión vitalicia de veinte colones mensuales, en consideración a su pobreza , avanzada edad é importantes servicios prestados en la campaña de 1856 y 1857.
