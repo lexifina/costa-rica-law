@@ -1,2 +1,2 @@
-Artículo 19.—Si no se hubiese completado el quórum legal a los treinta minutos después de la hora fijada para iniciar la sesión, los miembros presentes podrán ausentarse con derecho al pago de la dieta.
-Si un miembro propietario llegare a una sesión después de treinta minutos de la hora señalada para iniciarla, el suplente que lo estuviere sustituyendo conservara los derechos del propietario para todos los efectos de dicha sesión.
+Artículo 19.—Si un miembro propietario llegare a una sesión después de treinta minutos de la hora señalada para iniciarla, el suplente que lo estuviere sustituyendo conservara los derechos del propietario para todos los efectos de dicha sesión.
+(DEROGADO EL PRIMER PARRAFO de este artículo por Decreto ejecutivo N° 30939 de 8 de enero de 2003).
