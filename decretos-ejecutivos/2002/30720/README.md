@@ -14,3 +14,4 @@ Reglamento para el Registro y Control de Bienes de la Administración Central
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-01 | la propia norma |
+| 2 | 2003-04-03 | Decreto Ejecutivo 31194 (2003-04-03) |
