@@ -1,0 +1,15 @@
+UNIVERSIDAD DE COSTA RICA
+ASAMBLEA COLEGIADA REPRESENTATIVA
+La Asamblea Colegiada Representativa en sesión N° 35, celebrada el 16 de mayo de 1985, acordó las siguientes modificaciones al Estatuto Orgánico:
+Artículo 204.—Antes de conferirse el grado académico, el estudiante debe cumplir con el Trabajo Comunal Universitario que el reglamento correspondiente determine.
+V. Títulos y Grados Académicos.
+Artículo 205.—La Universidad confiere títulos con los siguientes grados o niveles académicos: Bachillerato Universitario, Licenciatura, Maestría y Doctorado Académico, estos dos últimos como culminación de estudios de posgrado El grado o nivel académico se refiere a la extensión y la intensidad de los estudios realizados. El título se refiere al área del conocimiento, carrera o campo profesional en el cual se otorga el grado académico y designa el área de acción del graduado. La Universidad consignará en los diplomas tanto e. grado o nivel académico como el título.
+Los estudios de posgrado que conduzcan a una especialización profesional se certificarán con el título de Especialista en el campo correspondiente.
+Artículo 206.—La Universidad otorga también diplomas al concluir ciertas carreras cortas (pregrado) y extiende certificados al terminar programas especiales.
+Artículo 207.—Los grados y títulos que confiere la Universidad son válidos para el ejercicio de las profesiones cuya competencia acreditan, con los derechos que señalen las leyes orgánicas de los colegios profesionales universitarios.
+Artículo 208 bis.—En la Universidad de Costa Rica:
+a) Se entiende por reconocimiento de un grado o un título extendido por otra institución de educación superior, el acto mediante el cual la Universidad acepta la existencia de dicho grado o título y lo inscribe en su registro. En caso de falsedad declarada judicialmente del grado o título, el acto de reconocimiento será nulo de pleno derecho.
+b) Se entiende por equiparación el acto mediante el cual la Universidad declara que el titulo o el grado, reconocido, equivale a un determinado titulo o grado que ella misma confiere.
+Artículo 209.—Los graduados de otras universidades pueden solicitar reconocimiento y equiparación de su grado académico y de su titulo. Los que hayan aprobado estudios en otras universidades y que no culminaron con un diploma de graduación, también podrán solicitar reconocimiento y equiparación de estos estudios. Un reglamento regulará el procedimiento para estos reconocimientos y equiparaciones. Se incluirá en ese reglamento el trámite para cumplir los tratados internacionales o los convenios en que sea parte la Universidad en lo relativo a esta materia.
+Artículo 97.—Las Escuelas son unidades académicas a las que corresponde la enseñanza, la investigación y la acción social. Desarrollan programas y actividades que culminan con un grado y título universitario o con un diploma de pregrado o certificado de especialización de estudios en programas especiales. Ofrecen, además, cursos requeridos por otras Facultades.
+Ciudad Universitaria "Rodrigo Facio", julio de 1985.
