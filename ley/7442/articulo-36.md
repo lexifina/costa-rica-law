@@ -1,4 +1,6 @@
-ARTICULO 36.- De las agencias fiscales nocturnas. Funcionarán en el
-país agencias fiscales en horas de la noche y en días no laborables,
-según se acuerde en el Consejo Superior del Poder Judicial, conforme a
-las necesidades del servicio.
+CAPÍTULO VII
+DEL RÉGIMEN ADMINISTRATIVO
+Artículo 36.- De la organización administrativa. El Ministerio
+Público tendrá la organización administrativa necesaria para el buen
+desempeño de sus funciones, según disponga la Corte Plena a requerimiento
+del Fiscal General.

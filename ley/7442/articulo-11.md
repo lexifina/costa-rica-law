@@ -1,5 +1,4 @@
-ARTICULO 11.- Cauciones. El Fiscal General y el Fiscal General
-Adjunto deberán rendir caución por el mismo monto fijado para los
-Magistrados de la Corte Suprema de Justicia. Los fiscales de juicio y
-los agentes fiscales rendirán caución por el monto señalado para los
-jueces superiores.
+Artículo 11.- Cauciones. El Fiscal General deberá rendir caución por
+el monto de catorce salarios base, según la regla establecida en la Ley
+Orgánica del Poder Judicial. El resto de los fiscales rendirán caución
+por el monto fijado para los jueces de Tribunal Colegiado.
