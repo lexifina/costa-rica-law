@@ -1,0 +1,1 @@
+Artículo 72.—El beneficiario debe presentar al puesto de aduana la Declaración Aduanera de Zona Franca, en la que se consignará el plazo requerido para la permanencia de las materias y mercancías internadas temporalmente al territorio aduanero nacional.

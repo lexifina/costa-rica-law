@@ -1,0 +1,2 @@
+Artículo 60.—La empresa beneficiaria del régimen de zonas francas será responsable por el pago de cualquier obligación tributario-aduanera, generada por el incumplimiento de los términos de la subcontratación.
+En caso de incumplimiento de los términos de la subcontratación, que afecte los intereses tributario-aduaneros del Estado, la Aduana de control informará a PROCOMER a efectos de que se inicie el procedimiento de cancelación de la subcontratación, sin perjuicio de las sanciones administrativas o penales que resultaren aplicables.

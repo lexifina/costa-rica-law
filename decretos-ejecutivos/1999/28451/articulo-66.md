@@ -1,0 +1,1 @@
+Artículo 66.—Para los procedimientos aplicables al tránsito o trasiego de materias y mercancías las empresas beneficiarias del régimen de zonas francas deberán regularse por lo que al efecto establezcan la Ley General de Aduanas, su Reglamento y cualquier otra disposición de carácter administrativo debidamente razonada y de alcance general.

@@ -1,0 +1,1 @@
+Artículo 61.—La empresa beneficiaria subcontratante debe rendir trimestralmente un informe a PROCOMER sobre los montos, porcentajes y condiciones de las operaciones subcontratadas. Si encuentra alguna irregularidad de naturaleza aduanera, PROCOMER lo informará de inmediato a la aduana de control, para lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 59.—La subcontratación no requiere de la constitución de garantías, sin perjuicio de lo dispuesto en el artículo 71 de la Ley General de Aduanas. Además, la subcontratación queda sujeta al control y fiscalización aduaneros, establecidos en la Ley General de Aduanas y su Reglamento.

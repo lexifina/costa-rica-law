@@ -1,0 +1,1 @@
+Transitorio III.—No obstante lo dispuesto en los artículos 47 y 48 de este Reglamento, cuando el proveedor local sea beneficiario de certificados de abono tributario deberá presentarse una declaración aduanera de exportación por cada venta o exportación realizada a empresas de zonas franca, conforme a los procedimientos establecidos para tal efecto.
