@@ -1,0 +1,2 @@
+TRANSITORIOS
+I.—Durante el período de coexistencia de ambos sistemas (el sistema actual de residencias médicas y el regido por este Reglamento), se respetarán los programas docentes y asistenciales, así como la normativa vigente inherentes a cada sistema. A partir de la aprobación de este Reglamento para ser médico residente en formación para obtener una especialidad debe regirse por el sistema de beneficios para estudio (permiso con goce de salario) o por el contrato de aprendizaje bajo sistema de residencia.

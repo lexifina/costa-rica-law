@@ -1,0 +1,1 @@
+Artículo 13.—Derechos Laborales: Los médicos residentes con contrato de aprendizaje o con beneficio para estudio tendrán los mismos derechos laborales respecto de los restantes trabajadores y profesionales de la CCSS.

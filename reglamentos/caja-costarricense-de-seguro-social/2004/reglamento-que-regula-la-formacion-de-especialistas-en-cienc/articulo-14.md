@@ -1,0 +1,1 @@
+Artículo 14.—Guardias Remuneradas: El médico residente podrá efectuar un máximo de una guardia en forma semanal establecida en forma equitativa como parte de su proceso de aprendizaje, la cual se remunerará conforme al sistema vigente para la cancelación de guardias a los profesionales en la CCSS, pudiendo ser ubicada en los días sábado, domingos y feriados.

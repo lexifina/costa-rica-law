@@ -1,0 +1,1 @@
+Artículo 12.—Remuneración: El pago de los médicos residentes con contrato de aprendizaje bajo la modalidad de residencia suscrito con la CCSS, se regirá por lo dispuesto en el artículo 9º de la Ley Nº 6836.

@@ -1,0 +1,1 @@
+Artículo 15.—Tutores: El cumplimiento de las actividades de aprendizaje en servicio y asistenciales de los médicos residentes será responsabilidad de los tutores avalados por las Autoridades de la CCSS.
