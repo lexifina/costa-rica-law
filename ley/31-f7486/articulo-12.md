@@ -1,0 +1,1 @@
+Art. 12. -El Tenedor de Libros, en vista del de "Ventas", y de todos los troncos de los giros que expidan el Administrador y el Superintendente, hará las respectivas inscripciones, poniendo en cada una la fecha y la razón de "inscrito en el libro "Diario", al folio tal", y después los devolverá al girador.
