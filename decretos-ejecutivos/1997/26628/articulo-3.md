@@ -1,0 +1,1 @@
+Artículo 3°- Instruir a las instituciones del sector público o poner a disposición de los ciudadanos mediante la red de INTERNET toda la información de sus servicios y trámites y al menos el cincuenta por ciento de éstos servicios poder realizarse de manera interactiva o en línea antes del año 2000.
