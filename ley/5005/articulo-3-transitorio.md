@@ -1,0 +1,2 @@
+Transitorio III.- El Consejo Superior de Educación, dentro de los noventa días siguientes a la publicación de esta ley, deberá someter al Poder Ejecutivo, para que éste adicione el decreto Nº 32 de 20 de setiembre de 1968, una categoría para el Secretario Profesional, con los requisitos mínimos que han de cumplir las personas para ingresar al Colegio que se crea por medio de esta ley.
+Casa Presidencial. San José, a los quince días del mes de junio de mil novecientos setenta y dos.

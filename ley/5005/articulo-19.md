@@ -1,0 +1,5 @@
+Artículo 19.- Son atribuciones del Tribunal de Honor:
+a) Conocer, juzgar y fallar las acusaciones que establezcan contra los colegiados en el cumplimiento de sus deberes y obligaciones profesionales;
+b) Conocer y resolver los conflictos que se presentan entre un colegiado y un organismo superior del Colegio, o entre dos o más colegiados, según lo acuerde la Junta Directiva, luego de estudiar la naturaleza de la denuncia; y
+c) Recomendar las penas, que irán según el grado de la falta, desde la amonestación escrita, hasta la inhabilitación y la expulsión definitiva del colegiado.
+La Junta Directiva ejecutará los fallos del Tribunal de Honor, cuando adquieran firmeza por los procedimientos que esta ley establece. Las resoluciones del Tribunal de Honor tendrán recurso de apelación para ante la Asamblea General. La Asamblea General decidirá en votación secreta, por simple mayoría, todos aquellos recursos que conozcan en alzada, excepto cuando se tratare de fallos de inhabilitación o de expulsión definitiva del colegiado, en cuyo caso se requerirán dos tercios del total de los presentes para obtener la confirmación.
