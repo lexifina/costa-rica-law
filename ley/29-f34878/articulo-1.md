@@ -1,4 +1,6 @@
+(Derogado)
 N° 29
+(Esta norma fue derogada por el artículo 10 de la ley N° 3 del 22 de octubre de 1914)
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA
 DE COSTA RICA,
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
