@@ -1,3 +1,5 @@
-Artículo 8°-Los miembros de la Junta Directiva, excepto el indicado en el inciso a) del artículo 5°, cuya condición es inherente al cargo, serán designados por períodos de seis años, pudiendo ser relectos; serán inamovibles durante el período cometido, salvo que les faltare alguna de las condiciones exigidas para su nombramiento, o que se declarara responsabilidad legal contra ellos, previa información promovida de oficio por la propia Junta Directiva y practicada por la Contraloría General de la República, con el debido asesoramiento, en casos técnicos, a fin de que inicien las acciones civiles o penales que correspondan. Cuando los hechos graves se refieren a la propia Junta Directiva, la Contraloría actuará de oficio o por gestión de partes.
-Cesará de ser miembro de la Junta Directiva el que renuncie a su cargo; el que hiciere abandono de sus funciones o faltare por más de tres meses a sus deberes, sin motivo legal; el que infringiere o consintiere en la infracción de las leyes o reglamentos concernientes al Servicio Nacional de Acueductos y Alcantarillado; el que llegare a padecer de incapacidad física o mental, o por causa de muerte.
-Si vencido el período de uno o más directores, el Poder Ejecutivo no procede a nombrar los sustitutos en un plazo máximo de un mes desde que ocurran las vacantes y de recibidas las nóminas de los respectivos Colegios, los nombramientos de esos directores quedarán prorrogados de pleno derecho, por un período más.
+ARTICULO 8º.- El período de los directores, su remoción y
+nombramiento se regirán por lo dispuesto en el artículo 5º de la ley Nº
+4646 de 20 de octubre de 1970.
+(Así reformado por el artículo 1º de la Ley Nº 5915 de 12 de julio de
+1976).
