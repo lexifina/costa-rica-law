@@ -13,3 +13,4 @@ Reglamento Empresas y Actividades Turísticas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-01-08 | la propia norma |
+| 2 | 1978-11-07 | SINALEVI (sin norma nombrada) |
