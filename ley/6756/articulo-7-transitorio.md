@@ -1,0 +1,2 @@
+VII.-En el momento en que surja a la vida jurídica la confederación de cooperativas de autogestión, ésta sustituirá en todos sus derechos y funciones a la Comisión Permanente de Cooperativas de Autogestión.
+El Fondo Nacional y todos los bienes adquiridos por el Consejo Nacional de Cooperativas, con recursos del Fondo Nacional de Cooperativas de Autogestión pasarán a ser propiedad de la confederación.

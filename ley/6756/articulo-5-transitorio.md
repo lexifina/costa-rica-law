@@ -1,0 +1,2 @@
+V.-Cuando se produzca una vacante en la Junta Directiva del Instituto Nacional de Fomento Cooperativo, entre los representantes del sector cooperativo, el Consejo Nacional de Cooperativas procederá a llenar la vacante con un representante de las cooperativas de autogestión.
+Al vencimiento del período de los actuales representantesdel Consejo en esa Junta Directiva, se procederá de acuerdo a lo estipulado en esta ley.
