@@ -1,0 +1,8 @@
+N° 13
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE SALUBRIDAD PUBLICA,
+A solicitud de la Junta de Protección Social de San José y oído el parecer favorable de la Dirección General de Asistencia Médico-Social,
+DECRETAN:
+Artículo 1°-Refórmase los artículos 42 y 47 del Reglamento General del Patronato y Junta Directiva de Protección Social de San José, emitido por Acuerdo Ejecutivo número 589 de 1° de noviembre de 1949, los cuales se leerán así:
+"Artículo 42.-EI valor total en premios de cada plan de Loterías no podrá ser menor del 60% del producto total de la venta de billetes, a menos que la diferencia sea compensada en otra u otras emisiones inmediatas por igual valor en conjunto, que la emisión afectada con porcentaje inferior al 60%. La Junta podrá también fijar un porcentaje menor en premios, siempre que no sea inferior al 55% y que la diferencia hasta el 60% se destine a un fondo de estabilización de precios con el fin de equilibrar la oferta y la demanda.
+Artículo 47.-Toda venta de billetes se considerará firme y definitiva desde el momento en que se entreguen al interesado o al Departamento de Certificados, si se envían por correo, en cuyo caso viajarán por cuenta y riesgo al comprador. No se aceptará devolución de billetes por la Tesorería, a menos que se haya incurrido de su parte en error que justifique el reclamo. En todo caso, ningún reclamo será atendido si no se presenta antes de cuarenta y ocho horas de la señalada para el sorteo. Se exceptúa la compra de excedentes de loterías que se disponga para los fines contemplados en el párrafo final del artículo 42".
