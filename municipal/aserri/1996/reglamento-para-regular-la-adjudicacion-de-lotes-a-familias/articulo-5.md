@@ -1,0 +1,1 @@
+5.—La Municipalidad entregará tantas fórmulas de solicitud como lotes disponibles tenga para cada proyecto, las que una vez realizados los estudios correspondientes adjudicará a aquellos que cumplan con todos los requisitos que demuestren ser personas de escasos recursos y de necesidad demostrada. En el caso de quedar lotes disponibles seguirá el mismo procedimiento.

@@ -1,0 +1,1 @@
+8.—Los costos de traspaso, así como cualquier otro que derive de la adjudicación del terreno, será cubierto en su totalidad por los adjudicatarios y lo harán en el mismo acto de traspaso ante Notario Público.
