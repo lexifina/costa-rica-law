@@ -14,3 +14,4 @@ Crea Comisión Algodonera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-03-07 | la propia norma |
+| 2 | 1979-06-15 | Decreto Ejecutivo 10163 (1979-06-15) |
