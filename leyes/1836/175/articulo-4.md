@@ -1,0 +1,1 @@
+Art 4°.- Las Juntas serán nombradas inmediatamente de la publicación de este reglamento, y dentro los nueve días siguientes darán el resultado de sus trabajos, para que los interesados en las indemnización del cupo respectivo, ocurran desde luego a la Factoría por el Tabaco equivalente.
