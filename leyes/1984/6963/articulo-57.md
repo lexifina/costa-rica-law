@@ -1,0 +1,1 @@
+Artículo 57.- Autorízase al Ministerio de Agricultura y Ganadería para que traspase a la Cooperativa Caña India R.L., de Palmares, lote de 20 metros de frente por 33 de fondo que colinda al norte con el Cuerpo de Bomberos; al sur con el Ministerio de Agricultura y Ganadería; al este con Juan Quirós y al oeste con calle pública.

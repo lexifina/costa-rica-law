@@ -1,0 +1,2 @@
+Artículo 53.- Traspásase a la Municipalidad de Aguirre la explanada Nao mi, ubicada contiguo a los terrenos del muelle de Quepos. Se autoriza a la Junta Portuaria de Quepos o al Ministerio de Obras Públicas y Transportes para hacer este traspaso y para que cada un terreno de diez metros de ancho por su largo, que permita el libre acceso a dicha explanada.
+El terreno en mención será exclusivamente para instalaciones turísticas administradas por la Municipalidad.

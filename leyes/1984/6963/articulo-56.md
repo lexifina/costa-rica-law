@@ -1,0 +1,2 @@
+Artículo 56.- (*) Se autoriza al Ministerio de Hacienda para que otorgue exención de los impuestos de venta y de consumo sobre los implementos, repuestos, motores e insumos que se utilicen en la pesca artesanal. Igualmente, se autoriza al Banco Central para que exonere de las sobretasas los mismos artículos.
+(*) ANULADO por Resolución de la Sala Constitucional Nº 759-92 de las 15:00 horas del 17 de marzo de 1992.

@@ -1,0 +1,1 @@
+Artículo 66.- Autorízase a la Municipalidad de San José, para que traspase a las Temporalidades de la Arquidiócesis de San José, un terreno para la construcción de la Iglesia de Hatillo 5. Las dimensiones las determinará el Municipio y el traspaso se hará libre del pago de todo tributo, timbres gastos de notario.

@@ -1,0 +1,1 @@
+Artículo 77.- Los efectos de la ley Nº 6660 del 19 de octubre de 1981 seguirán vigentes a favor de los cantones en que por políticas convencionales de las empresas bananeras que operan en el país perdieran su condición de productores de banano, hasta tanto el Estado no restituya, por otro medio legal, el monto que corresponde a cada uno.

@@ -1,0 +1,2 @@
+Artículo 36.(*)- Agrégase un nuevo párrafo al artículo 14 de la ley de Pensiones de Hacienda, Nº 148 del 23 de agosto de 1943 y sus reformas, que dirá así: "Igualmente podrán acogerse a los beneficios de esta ley, los empleados y funcionarios del Ministerio de Agricultura y Ganadería del Ministerio de Trabajo y Seguridad Social, de la Dirección General de Servicio Civil y de la Imprenta Nacional."
+(*) ANULADO por Resolución de la Sala Constitucional Nº 2136 de las 14:00 hrs. del 23 de octubre de 1991.

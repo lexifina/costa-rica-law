@@ -1,0 +1,1 @@
+Artículo 65.- Autorízase al Ministerio de Salud, para que el terreno inscrito en el Partido de San José, tomo 759, folio 289, asientos 12 y 15, finca Nº 44058, propiedad del Estado, sea utilizados por dicho ministerio, para la construcción del Centro de Salud del Barrio Cristo Rey o para cualquier otro servicio asistencial y comunal que preste ese Ministerio.

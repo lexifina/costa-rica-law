@@ -1,0 +1,1 @@
+Artículo 22.- Exclúyase de las disposiciones de los artículos 4º, 18º, 19º y 29º de la ley Nº 6955 del 24 de febrero de 1984, las agencias y sucursales de los bancos del Estado de las zonas rurales del país.

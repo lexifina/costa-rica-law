@@ -1,0 +1,1 @@
+Artículo 51.- Exonérase de toda clase de impuestos de compra de una ambulancia, que hará el Club de Leones de Quepos, para ser usada por el Hospital Max Terán Valls de Quepos. La exoneración se refiere a tasas, sobretasas, timbres, impuestos consulares y de muellaje e impuestos municipales y nacionales.

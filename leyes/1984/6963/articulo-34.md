@@ -1,0 +1,1 @@
+Artículo 34.- Autorízase al Ministerio de Seguridad Pública según su criterio, para que destaque funcionarios de la Guardia Civil como inspectores de transito, todo ello coordinado con la Dirección General de Transportes Automotor del MOPT.

@@ -1,0 +1,3 @@
+Artículo 55.- Adiciónase un artículo 19 a la Ley de Salarios y Régimen de Méritos Tribunal Supremo de Elecciones y del Registro Civil, Nº 4519 del 24 de diciembre de 1969 y sus reformas que dirá:
+"Artículo 19.- A los servidores del Tribunal de Elecciones y del Registro Civil se les reconocerá, para efectos de los aumentos anuales a que se refiere el artículo 6º de la ley Nº 4519 del 24 de diciembre de 1969, reformado por la Nº 6915 del 8 de noviembre de 1983, el tiempo de servicios prestados en estas instituciones a partir de la fecha de su nombramiento en propiedad."
+(NOTA: Este artículo fue Vetado por el Poder Ejecutivo, dicho Veto puede ser consultado al final de esta Ley).

@@ -1,0 +1,1 @@
+Artículo 17.- Modifícase el inciso c) del artículo 9º de la ley Nº 6936 de 14 de diciembre de 1983, a efecto de que: Donde dice: 01.28 Dirección de Relaciones Intergubernamentales y Protocolo diga: 01.28 Departamento de Prensa y Protocolo.

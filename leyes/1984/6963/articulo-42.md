@@ -1,0 +1,2 @@
+Artículo 42.- Autorízase a la Junta Directiva de la Refinadora Costarricense de Petróleo para que otorgue la ayuda material y financiera que requieran las instituciones de la provincia de Limón para el buen funcionamiento de sus programas. Lo anterior por el término de un año que se contará a partir de la publicación de esta ley.
+(NOTA: Este artículo fue Vetado por el Poder Ejecutivo, dicho Veto puede ser consultado al final de esta Ley).

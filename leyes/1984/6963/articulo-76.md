@@ -1,0 +1,4 @@
+Artículo 76.- Exonérase de toda clase de impuestos la adquisición de un vehículo, tipo Sedán, marca Toyota Corona, modelo 1984, motor de gasolina, de 1 600 cc, 1 500 kilogramos de peso, que realizará la Asociación pro Hospital Nacional de Niños, cuya rifa se autoriza.
+El producto de esta actividad será destinado a financiar la terminación de obras en la Unidad de Cuidados Intensivos del Hospital Nacional de Niños, así como la adquisición de equipo para la misma.
+La rifa y sus utilidades se regirá por la ley de rifas número 1367 del 21 de noviembre de 1951 reformada por la ley Nº 6443 del 18 de setiembre de 1980.
+La persona favorecida con este vehículo no podrá traspasarlo con exoneración de impuesto sino hasta que transcurran al menos cuatro años a partir de la inscripción a su nombre en el Registro de Vehículos.

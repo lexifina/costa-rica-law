@@ -1,0 +1,1 @@
+Artículo 52.- Autorízase al Banco Nacional de Costa Rica para que le venda a la Municipalidad del cantón de Aguirre, el terreno de su propiedad ubicado en el distrito de Quepos frente a las actuales oficinas del Banco Nacional de Costa Rica. El precio de venta será el mismo por el que fue adquirido a la Municipalidad de Aguirre.

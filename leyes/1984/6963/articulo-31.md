@@ -1,0 +1,1 @@
+Artículo 31.- El Banco Central girará directamente al Instituto Mixto de Ayuda Social el total de los fondos provenientes de las sobretasas temporales a las importaciones, correspondientes al período 1983.

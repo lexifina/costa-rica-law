@@ -1,0 +1,1 @@
+Artículo 23.- Autorízase al Instituto Mixto de Ayuda Social (IMAS) para que contrate personal mediante el sistema de pago por jornales, únicamente para el desarrollo de programas de vivienda y durante el tiempo que de éstos duren.

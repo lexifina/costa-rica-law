@@ -1,0 +1,1 @@
+Artículo 49.- Autorízase al Ministerio de Obras Públicas y Transportes para que traspase a la Municipalidad del cantón de Aguirre el terreno donde operaba el campo de aterrizaje de Paquita, ubicado en el distrito primero de ese cantón, con el fin de llevar a cabo un programa de vivienda para familias de escasos recursos.

@@ -1,0 +1,1 @@
+Artículo 48.- La adquisición de vehículos destinados al transporte remunerado de personas, su inscripción o traspaso, así como toda clase de repuestos para el mantenimiento de los mismos, incluso llantas y lubricantes, estarán exentos del pago de toda clase de derechos, tasas, sobretasas, timbres o impuestos, previa autorización del Ministerio de Obras Públicas y Transportes.
