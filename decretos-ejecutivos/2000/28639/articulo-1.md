@@ -113,3 +113,5 @@ Unidad Ejecutora Pequeños Productores Zona Norte 8.9
 Para ajustarse a los límites establecidos en este artículo, las entidades públicas realizarán los ajustes necesarios por programa completo, o proporcionales por partida dentro de cada programa.
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29000 de 12 de setiembre del 2000)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29002 de 21 de setiembre del 2000)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29092 de 25 de octubre del 2000, para el Consejo Naional
+para Investigaciones Científicas y Tecnológicas)

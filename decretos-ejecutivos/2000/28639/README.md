@@ -17,3 +17,4 @@ Directrices Política Presupuestaria 2001 Ministerios y EntidadesPúblicas Cubie
 | 2 | 2000-09-11 | SINALEVI (sin norma nombrada) |
 | 3 | 2000-09-12 | SINALEVI (sin norma nombrada) |
 | 4 | 2000-09-21 | Decreto Ejecutivo 29002 (2000-09-21) |
+| 5 | 2000-10-25 | Decreto Ejecutivo 29092 (2000-10-25) |
