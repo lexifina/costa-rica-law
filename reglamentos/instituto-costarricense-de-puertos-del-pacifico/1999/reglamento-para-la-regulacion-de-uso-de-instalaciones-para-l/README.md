@@ -14,3 +14,4 @@ Reglamento para la regulación de Uso de Instalaciones para la Venta de Atesaní
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-27 | la propia norma |
+| 2 | 1999-12-01 | Reglamento 2891 (1999-12-01) |
