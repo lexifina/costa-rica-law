@@ -1,0 +1,1 @@
+Art 3° El Administrador hará por sí o mandará practicar, en seguida un registro de comparación con las mercaderías y el manifiesto presentado, cuyo registro se repartirá al regreso de las embarcaciones dichas, del punto de donde hubiesen tomado la carga, para persuadirse de que no se han desembarcado, desautorizado artículos o mercaderías de las que se condujeron a bordo.
