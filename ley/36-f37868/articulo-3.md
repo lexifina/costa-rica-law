@@ -1,0 +1,1 @@
+Artículo 3° El enjuiciamiento por juego prohibido compete a los jefes políticos y agentes principales de policía, y contra sus fallos no cabrá otro recurso que el de apelación para ante el Gobernador.
