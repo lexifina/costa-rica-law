@@ -1,0 +1,1 @@
+Artículo 106.—A falta de disposiciones de este Reglamento, aplicable a un caso determinado, deberá tenerse como norma supletoria el Estatuto de Servicio Civil, su Reglamento, el Código de Trabajo, la Ley General de la Administración Pública y demás leyes y reglamentos conexos.

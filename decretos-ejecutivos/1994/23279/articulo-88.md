@@ -1,0 +1,1 @@
+Artículo 88.—Las licencias concedidas según el artículo anterior, serán únicamente por el tiempo necesario para concurrir a lecciones. El servidor debe asistir al trabajo durante los períodos y días libres que conceda el correspondiente centro educativo. Salvo disposiciones expresas en contrario, estas licencias serán con goce de salario.

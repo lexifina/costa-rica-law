@@ -1,0 +1,2 @@
+Artículo 20.—Los servidores que, en el ejercicio de sus funciones, deban viajar dentro o fuera del país tendrán derecho a gastos de transporte y viáticos, consistentes en pasajes, aumentación y hospedaje, de acuerdo con el tope máximo de la tabla de viáticos vigente. Su liquidación deberá efectuarse en el término de los siete días posteriores de la fecha de regreso a sus labores en la Dirección.
+Los pagos anteriores, no se considerarán salario para ningún efecto legal.

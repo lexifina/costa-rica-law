@@ -1,0 +1,1 @@
+Artículo 53.—Las faltas no contempladas en este Reglamento serán sancionadas conforme lo establezca el Estatuto de Servicio Civil y su Reglamento; el Código de Trabajo y demás leyes supletorias y conexas.

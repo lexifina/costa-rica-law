@@ -1,0 +1,2 @@
+Artículo 80.—Las peticiones, quejas o reclamos deberán ser dirigidas al Jefe inmediato superior, no obstante cuando este considera que es incompetente para resolver algún asunto especial o por establecerse conflicto entre el subalterno y el Jefe Inmediato, el servidor podrá dirigirse al Jefe de grado Superior, debiéndose seguir siempre el estricto orden jerárquico.
+En todos los casos, el afgano encargado de agotar la vía administrativa, será el Consejo Nacional de Deportes.

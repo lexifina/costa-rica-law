@@ -1,0 +1,1 @@
+Artículo 10.—La Dirección está facultada pata utilizar a sus servidores en las labores que considere necesario asignarles, siempre que sean compatibles con sus aptitudes, fuerzas, estado o condición y dentro de aquellas para cuya ejecución hayan sido contratados.

@@ -1,0 +1,1 @@
+Artículo 7°—Sin perjuicio de lo establecido en los artículos 26 y 31 del Código Trabajo, los contratos de trabajo a plazo fijo o por obra determinada, una, vencido el plazo o concluida la obra, terminarán sin responsabilidad para la Dirección.

@@ -1,0 +1,5 @@
+Artículo 24.—Como regla general, la remuneración durante las vacaciones será de acuerdo con el sueldo correspondiente asignado en la Ley de Salarios o Ley de Presupuesto. En su defecto, con el salario vigente a la fecha en que el servidor disfruta del descanso anual.
+Esa remuneración se calculará con base en el tiempo de trabajo efectivo y el promedio de los salarios ordinarios y extraordinarios devengados durante las respectivas últimas cincuenta semanas de servicio. No obstante, se tomarán en cuenta los subsidios recibidos por el servidor, de parte del Estado o de sus Instituciones de Seguridad Social, en los tres casos siguientes:
+a) Cuando el servidor hubiere estado incapacitado para trabajar por razón de enfermedad o riesgos del trabajo, durante un periodo mayor de seis meses.
+b) Cuando por circunstancias-especiales previstas por la ley, se acuerda la compensación en dinero, parcial o total del período de vacaciones, y;
+c) Cuando el servidor hubiere disfrutado de licencia sin goce de sueldo por mes de treinta días consecutivos o no.

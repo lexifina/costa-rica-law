@@ -1,0 +1,1 @@
+Artículo 50.—Corresponde a los jefes superiores inmediatos respectivos sancionar a sus subalternos, cuando se hagan acreedores a una amonestación verbal o un apercibimiento escrito. Deberán enviar copia de la sanción al Departamento de Recursos Humanos y al respectivo director cuando aquella fuera escrita.

@@ -1,0 +1,1 @@
+Artículo 90.—La Dirección no aprobará contratos de licencia para estudio si el servidor ha omitido presentar la certificación sobre las calificaciones obtenidas durante el curso lectivo anterior o si fuere reprobado en dos o mas materias o asignaturas. En este último caso no podrá autorizarse licencia para estudios en el año siguiente.

@@ -1,0 +1,1 @@
+Artículo 69.—De conformidad con lo establecido en el artículo 221 del Código de Trabajo, la Dirección dará aviso al Instituto Nacional de Seguros de cualquier riesgo de trabajo que ocurra a sus servidores, dentro del término de ocho días hábiles contados a partir de su acaecimiento.

@@ -1,0 +1,1 @@
+Artículo 18.—Cuando circunstancias especiales exijan el nombramiento de un servidor para trabajar menos tiempo del señalado en el artículo 12 de este Reglamento, se le pagará en proporción a la jornada que en tal caso hubiere autorizado el Director General.

@@ -1,0 +1,1 @@
+Artículo 3°—E1 Estado es la persona jurídica responsable de las consecuencias resultantes de las relaciones entre la Dirección y sus servidores, pero la representación inmediata estará delegada en el Director General de Educación Física y Deportes, en lo sucesivo denominado el Director.
