@@ -1,0 +1,1 @@
+Artículo 4°.-Los cargos de Gerente, Tesorero y Secretario serán remunerados. Los de los demás serán ad-honorem, pero el Presidente y Vicepresidente pueden reunir a su cargo el de Gerente si así lo acordare la Junta.
