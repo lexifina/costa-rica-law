@@ -1,0 +1,2 @@
+Artículo 4
+Respecto a los transportes marítimos y aéreos de personas y mercancías resultantes de la concesión de las aportaciones financieras, el Gobierno de la República de Costa Rica permitirá a los pasajeros y proveedores elegir libremente entre las empresas de transporte, autorizados para funcionar en Costa Rica, no adoptará medidas que excluyan o dificulten la participación en pie de igualdad de las empresas de transporte con sede en la República Federal de Alemania.

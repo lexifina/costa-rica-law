@@ -1,0 +1,3 @@
+Artículo 2
+(1) El empleo de la suma mencionada en el Artículo 1, las condiciones de su concesión y el procedimiento de adjudicación de encargos se fijarán en los contratos de financiación que habrán de concertarse entre la Kreditanstalt für Wiederaufbau y los receptores de la aportación financiera, contratos que estarán sujetos a las disposiciones legales vigentes en la República Federal de Alemania.
+(2) El Gobierno de la República de Costa Rica, si no es el mismo el receptor de las aportaciones financieras, garantizará ante la Kreditanstalt für Wiederaufbau las eventuales reclamaciones de devolución basadas en los contratos de financiación que habrán de concertarse según el párrafo 1.
