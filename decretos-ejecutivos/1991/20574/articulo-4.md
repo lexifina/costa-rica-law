@@ -1,4 +1,4 @@
-Artículo 4º.- Operaciones entre el Banco y las entidades
+ARTICULO 4º.- Operaciones entre el Banco y las entidades
 autorizadas: De conformidad con los artículos 38 y 147 de la Ley del
 Sistema, están exentas de todo tipo de tributos, las operaciones, actos y
 contratos que se celebren entre el Banco y las entidades autorizadas.

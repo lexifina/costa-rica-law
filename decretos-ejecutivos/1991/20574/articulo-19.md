@@ -1,4 +1,4 @@
-Artículo 19.- Importación de materiales: Toda importación que se
+ARTICULO 19.- Importación de materiales: Toda importación que se
 pretenda hacer, amparada a los beneficios de las leyes reglamentadas por
 este decreto y su lista de materiales, requerirá de la aprobación previa
 del Ministerio de Hacienda por medio de la Dirección General de Hacienda.

@@ -1,6 +1,6 @@
 CAPITULO IV
 Disposiciones finales
-Artículo 20.- Inscripción en el Registro Público: Para hacer
+ARTICULO 20.- Inscripción en el Registro Público: Para hacer
 efectivas las exenciones previstas en el presente reglamento, relativas a
 la inscripción de documentos en el Registro Público, el notario
 respectivo certificará lo indicado en el párrafo segundo del artículo 11

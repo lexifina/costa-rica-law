@@ -1,4 +1,4 @@
-Artículo 15.- Formalización e inscripción de escrituras.
+ARTICULO 15.- Formalización e inscripción de escrituras.
 Exenciones: La formalización e inscripción de las escrituras principales
 y adicionales, por medio de las cuales se formalicen las operaciones de
 las operaciones individuales de vivienda declaradas de interés social,

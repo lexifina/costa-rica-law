@@ -2,7 +2,7 @@ CAPITULO II
 Sobre las excenciones generales del Sistema
 SECCION PRIMERA
 Exenciones y beneficios del Banco y de las entidades autorizadas
-Artículo 3º.- Exenciones del BANHVI: De conformidad con el artículo
+ARTICULO 3º.- Exenciones del BANHVI: De conformidad con el artículo
 38 de la Ley del Sistema, para la mejor realización de sus objetivos el
 Banco está exento de toda clase de tributos, presentes y futuros. Dicha
 exención se refiere a todos los actos, operaciones y contratos que

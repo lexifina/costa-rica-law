@@ -1,4 +1,4 @@
-Artículo 23.- Fiscalización y control: El Ministerio de Hacienda
+ARTICULO 23.- Fiscalización y control: El Ministerio de Hacienda
 ejercerá el control de uso y destino de los bienes exonerados, para lo
 cual emitirá las resoluciones pertinentes, cuyas disposiciones serán
 comunicadas a todas las instituciones correspondientes. Si se determinare

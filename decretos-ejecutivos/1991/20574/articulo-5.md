@@ -1,4 +1,4 @@
-Artículo 5º.- Operaciones con terceras personas: Los actos y
+ARTICULO 5º.- Operaciones con terceras personas: Los actos y
 contratos que realicen el Banco y las entidades autorizadas con otras
 personas físicas o jurídicas y que no se refieran al otorgamiento de
 financiamiento para la construcción de viviendas de interés social,

@@ -1,4 +1,4 @@
-Artículo 6º.- Exenciones de las mutuales: De conformidad con los
+ARTICULO 6º.- Exenciones de las mutuales: De conformidad con los
 artículos 69, 71 y 74 de la Ley del Sistema, para la mejor realización de
 sus fines, las mutuales están exentas de toda clase de tributos. Dicha
 exención abarca los impuestos directos e indirectos, nacionales y

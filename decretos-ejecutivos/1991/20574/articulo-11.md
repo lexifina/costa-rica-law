@@ -1,4 +1,4 @@
-Artículo 11.- Nulidad de declaratorias: Cuando se hubiere emitido
+ARTICULO 11.- Nulidad de declaratorias: Cuando se hubiere emitido
 una declaratoria de interés social para un proyecto o un caso individual,
 y posteriormente la vivienda no fuere financiada directa o indirectamente
 por el Sistema, la declaratoria quedará sin efecto en forma automática.

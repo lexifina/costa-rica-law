@@ -1,4 +1,4 @@
-Artículo 22.- Declaratorias de interés social ajenas al Sistema:
+ARTICULO 22.- Declaratorias de interés social ajenas al Sistema:
 Las declaratorias de interés social no relacionadas con el Sistema,
 podrán ser emitidas por el Instituto Nacional de Vivienda y Urbanismo o
 el Instituto Mixto de Ayuda Social, al amparo del artículo 13 inciso 5)

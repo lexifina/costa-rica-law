@@ -2,7 +2,7 @@ CAPITULO III
 Exenciones aplicables a las viviendas de interés social
 SECCION PRIMERA
 Del procedimiento
-Artículo 10.- Declaratorias de interés social: Para la aplicación de
+ARTICULO 10.- Declaratorias de interés social: Para la aplicación de
 las exenciones que prevé la Ley del Sistema respecto a las viviendas de
 interés social, las declaratorias de interés social se definirán y
 emitirán de acuerdo con la reglamentación que apruebe el Banco. No se

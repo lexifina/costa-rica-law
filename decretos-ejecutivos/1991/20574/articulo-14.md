@@ -1,4 +1,4 @@
-Artículo 14.- Exenciones de todo otro tipo de impuestos: Con la
+ARTICULO 14.- Exenciones de todo otro tipo de impuestos: Con la
 excepción citada en el artículo anterior, la construcción de viviendas
 declaradas de interés social según los reglamentos del Sistema, estará
 exenta del ciento por ciento de derechos de catastro de planos, de los

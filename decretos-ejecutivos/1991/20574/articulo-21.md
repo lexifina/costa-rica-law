@@ -1,4 +1,4 @@
-Artículo 21.- Traspasos de inmuebles exentos del pago de honorarios
+ARTICULO 21.- Traspasos de inmuebles exentos del pago de honorarios
 notariales: Según el artículo 148 de la Ley del Sistema, estará exento
 del pago de honorarios notariales, el traspaso de terrenos, a título
 gratuito u oneroso, de las instituciones públicas y las entidades

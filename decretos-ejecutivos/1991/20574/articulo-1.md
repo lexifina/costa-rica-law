@@ -24,7 +24,7 @@ Reglamento de Exenciones Fiscales y otros beneficios de la Ley
 del Sistema Financiero Nacional para la Vivienda
 CAPITULO I
 Objeto y definiciones
-Artículo 1º.- Objeto: El presente reglamento se dicta con el objeto
+ARTICULO 1º.- Objeto: El presente reglamento se dicta con el objeto
 de regular el otorgamiento de las exenciones fiscales y otros beneficios
 establecidos en la Ley del Sistema Financiero Nacional para la Vivienda y
 sus reformas.

@@ -1,4 +1,4 @@
-Artículo 13.- Exención parcial de tasas, impuestos y contribuciones
+ARTICULO 13.- Exención parcial de tasas, impuestos y contribuciones
 municipales. Pago de permisos de construcción y urbanización: Todos los
 trámites que se relacionen con el proceso de urbanización o construcción
 de viviendas de interés social, estarán exentos del cincuenta por ciento

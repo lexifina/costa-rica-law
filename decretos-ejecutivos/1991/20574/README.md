@@ -13,3 +13,4 @@ Reglamento Beneficios y Exenciones Fiscales Sistema Bancario Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-08-08 | la propia norma |
+| 2 | 1991-08-08 | SINALEVI (sin norma nombrada) |

@@ -1,4 +1,4 @@
-Artículo 2º.- Definiciones: Para efectos de lo dispuesto en el
+ARTICULO 2º.- Definiciones: Para efectos de lo dispuesto en el
 presente reglamento, se adoptan las siguientes definiciones:
 a) Banco o BANHVI: Banco Hipotecario de la Vivienda.
 b) Entidades Autorizadas: Las entidades autorizadas del Sistema
