@@ -1,0 +1,3 @@
+NOTIFICACIÓN POR PUBLICACIÓN Y LUGAR PARA NOTIFICACIÓN ES
+Artículo 18.—En la denuncia del interesado o al rendir declaración, los interesados deben señalar lugar para oír notificaciones en Puerto Limón, Moín o en la ciudad de San José, la notificación a los testigos corre por cuenta del interesado.
+Si se inicia de oficio y se ignorare el domicilio de una de las partes interesadas, la notificación del traslado se practicará por medio de una publicación tal y como lo dispone el artículo 241-3 y 242 de la Ley General de la Administración Pública, en el Diario Oficial La Gaceta, computándose el término a partir del sexto día de la publicación.

@@ -1,0 +1,2 @@
+QUORUM
+Artículo 12.—El órgano director del procedimiento, se reunirá válidamente con la totalidad de sus miembros propietarios o de sus respectivos suplentes , y los acuerdos se tomarán por simple mayoría. No obstante, para la práctica y evacuación de pruebas, el órgano director del procedimiento podrá comisionar al efecto a dos de sus integrantes. Los miembros deberán emitir en el sentido que lo consideren procedente y en forma razonada. Bajo ninguna circunstancia les será permitido abstenerse de emitir voto.

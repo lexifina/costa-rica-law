@@ -1,0 +1,4 @@
+INASISTENCIA INJUSTIFICADA
+Artículo 19.—Si parte interesada no compareciere a la citación por justa causa proveniente de enfermedad demostrada mediante dictamen médico, que le incapacite totalmente para realizar Si la su defensa, o por cualquier otro motivo muy calificado, siempre ajuicio del órgano director del procedimiento, se convocará a una segunda convocatoria conforme a lo previsto en el artículo 309.3 de la Ley General de la Ley General de la Administración Pública.
+El interesado contará con tres días hábiles a partir de la primera comparecencia para justificar su inasistencia, salvo que previamente acrediten los hechos que impedirán su asistencia.
+El órgano director del procedimiento mediante resolución, señalará la nueva fecha. Dicha resolución se notificará a las partes en el lugar señalado para oír notificaciones.

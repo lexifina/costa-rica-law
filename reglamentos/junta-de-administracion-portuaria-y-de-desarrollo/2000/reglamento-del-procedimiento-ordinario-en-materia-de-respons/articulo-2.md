@@ -1,0 +1,8 @@
+OBJETO
+Artículo 2°— Mediante los procedimientos previstos en este Reglamento, la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, reconocerá el derecho a indemnización de los particulares en los términos previstos en el Título Segundo de la Ley General de la Administración Pública, por las lesiones que aquellos sufran en cualesquiera de sus bienes o derechos , siempre que dicha lesión sea consecuencia del funcionamiento legítimo o ilegítimo, normal o anormal de los servicios públicos que otorga JAPDEVA, salvo en los casos de fuerza mayor, culpa de la víctima, hecho de un tercero o de daños que el particular tenga el deber jurídico de soportar de acuerdo con la ley.
+Es imputable a la Administración la carga de probar las existencia de la fuerza mayor.
+También será de aplicación el procedimiento previsto en este Reglamento para el reconocimiento de la responsabilidad patrimonial en que incurra JAPDEVA cuando actúe en sus relaciones como persona de derecho privado.
+En el caso de funcionarios cuyo nombramiento competa al Consejo de Gobierno, el expediente se remitirá a la Contraloría General de la República, una vez que se hayan investigado, individualizadas las responsabilidades , los cargos imputables y las sanciones fijadas si fueren procedentes.
+La resolución del procedimiento o en su caso el acuerdo de terminación convencional, fijará la cuantía y el modo de indemnización cuando proceda.*
+(*) Significa que el procedimiento se puede concluir por acuerdo entre las partes.
+Las resoluciones y los acuerdos de terminación convencional que recaigan en los procedimientos regulados en este reglamento ponen fin al procedimiento administrativo, dando por agotada la vía administrativa.

@@ -1,0 +1,3 @@
+FACULTADES PARA RECEPCIÓN DE PRUEBA
+Artículo 14.—Para la recepción de la prueba, el órgano director tendrá las mismas facultades y deberes de las autoridades judiciales. Los testigos o peritos, incurrirán en los delitos de falso testimonio y perjurio, previstos en el Código Penal, cuando se dieren las circunstancias allí señaladas según lo dispuesto por el artículo 300 de la Ley General de la Administración Pública, sin perjuicio de las sanciones disciplinarias que les fueren aplicables, en el caso de los servidores de la institución.
+El órgano director del procedimiento sólo podrá rechazar las pruebas propuestas por los interesados cuando sean manifiestamente improcedente o innecesarias, mediante resolución motivada.

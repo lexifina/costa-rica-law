@@ -1,0 +1,2 @@
+DURACIÓN DEL PROCEDIMIENTO
+Artículo 22.—El órgano director del procedimiento dispondrá de dos meses para instruir el procedimiento y remitir el expediente con la propuesta del acto final al órgano competente. Actuará impulso procesal de oficio y tendrá amplias facultades para investigar la verdad real de los hechos, evacuando la prueba propuesta por las partes que se estime pertinente y de oficio la que se considere necesaria.

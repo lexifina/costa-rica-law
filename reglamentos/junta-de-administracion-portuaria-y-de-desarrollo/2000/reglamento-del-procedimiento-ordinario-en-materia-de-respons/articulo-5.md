@@ -1,0 +1,3 @@
+INICIACIÓN DE OFICIO
+Artículo 5°—Cuando el órgano competente para iniciar el procedimiento de responsabilidad patrimonial entienda que se han producido lesiones en los bines y derechos de los particulares, iniciará el procedimiento que aquí se regula.
+La iniciación de oficio del procedimiento se efectuará siempre por acuerdo del órgano competente, (el cual puede ser la junta directiva, la Presidencia ejecutiva o la gerencia sea de Administración Portuaria o de desarrollo), adoptado ya sea por propia iniciativa o bien como consecuencia de orden superior, o a petición razonada de otros órganos o por denuncia.

@@ -1,0 +1,4 @@
+INICIACIÓN POR PETICIÓN DEL INTERESADO
+Artículo 6°—Cuando el procedimiento se inicie a instancia del interesado , la reclamación se dirigirá al órgano competente, tal y como se indica en el inciso 2), del artículo 5).
+En la reclamación deberá especificar las lesiones producidas, la presunta relación de causalidad entre éstas y el funcionamiento del servicio público, la evaluación económica de la responsabilidad, si fuera posible, y el momento en que la lesión efectivamente se produjo e irá acompañada de cuantas alegaciones, documentos, informaciones se estimen oportunas y procedentes, amén de la proposición de la prueba.
+Si se admite la reclamación por el órgano competente, el procedimiento se impulsará de oficio en todos sus trámites y se podrá acordar la acumulación de la reclamación a otro procedimiento con el que guarde identidad sustancial o misma conexión.

@@ -1,0 +1,3 @@
+ACCESO A LAS DEPENDENCIAS, INFORMES Y PERMISOS
+Artículo 13.—El órgano director del procedimiento tendrá acceso a las diferentes áreas administrativas de la institución, las cuales facilitarán en forma expedita la documentación e información requerida para el cumplimiento de sus fines. Igualmente los superiores inmediatos de los funcionarios que requiera el órgano deberán otorgar los permisos respectivos para la hora y fecha en que fueren citados.
+En todo caso, se solicitará informe del servicio cuyo funcionamiento haya ocasionado la presunta lesión. Los informes serán emitidos en el plazo de diez días. Cuando se tratare de informes complicados, juicio del órgano, se podrá otorgar un plazo mayor, el cual no podrá exceder de quince días.
