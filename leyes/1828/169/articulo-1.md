@@ -1,0 +1,5 @@
+DECRETO 169
+El Gefe Supremo del Estado Libre de Costa rica
+Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Constitucional del Estado Libre de Costa rica, considerando que el privilegio concedido por la Asamblea Nacional Constituyente en veinte de mayo de ochocientos veinte y cuatro para el establecimiento de un Cuño en este Estado se haya sin efecto por las actuales circunstancias de la República en quanto a darle planta nombrando sus funcionarios que se reservó en dicho Decreto; y que además de la escases actual del literario no se hallan sugetos de pericia para llenar todos los destinados que exige la ordenanza, siendo por otra parte muy urgente la necesidad que imperiosamente demanda el establecimiento del rescate e indegnisacion del empréstito, ha tenido a bien decretar y decreta.
+Art 1°.- Se establece provisionalmente en el Estado de Costa rica, la planta de la Casa de Moneda decretada por la Asamblea Nacional, Constituyente en veinte de mayo de mil ochocientos veinte y cuatro.

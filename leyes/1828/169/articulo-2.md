@@ -1,0 +1,1 @@
+Art 2°.- Al efecto se faculta al Gobierno para que en calidad de empréstito tome lo necesario del ramo de diezmos, o de qualquier otro fondo del Estado, cuyo reintegro se hará de las utilidades de la misma Casa.
