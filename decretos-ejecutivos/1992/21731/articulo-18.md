@@ -1,0 +1,2 @@
+Artículo 18°
+El estudiante del décimo año que resulte aprobado en todas las asignaturas del área general pero reprobado en una o mas asignaturas del área de profundización, no perderá el año ; será promovido al undécimo año de la Educación Diversificada pero perderá su derecho a permanecer en el Sistema de Colegios Científicos. El estudiante del undécimo año deber, ser aprobado en todas las asignaturas de las dos áreas para poder tener por concluidos sus estudios y obstentar la condición de egresado de Educación Diversificada.
