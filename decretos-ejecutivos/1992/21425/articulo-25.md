@@ -1,1 +1,0 @@
-Artículo 25.—Los estudiantes una vez concluida la sesión y siempre que así lo demandaren, tendrán derecho, a revisar la hoja de respuestas o el examen calificado, a plantear sus dudas y a obtener las explicaciones en forma verbal del Delegado General o del Tribunal Calificador, cuando así corresponda.

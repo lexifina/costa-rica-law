@@ -1,1 +1,0 @@
-Artículo 13.—El postulante que obtuviese una calificación definitiva, en alguna de las asignaturas objeto de examen final, inferior a la establecida en el artículo 12 del presente Reglamento, deberá someterse nuevamente al respectivo examen final en alguna de las convocatorias que señala este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 6.—El Ministerio de Educación Pública procurará que los exámenes finales para los postulantes de la Educación Académica Nocturna, en las convocatorias de febrero y julio, sean administrados en horario nocturno.

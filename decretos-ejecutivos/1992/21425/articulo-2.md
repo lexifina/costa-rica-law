@@ -1,2 +1,0 @@
-Artículo 2.—Se entenderá por exámenes finales de Bachillerato en Educación Media, aquellos a que se deben someter los postulantes en las asignaturas que adelante se indican, elaboradas con estricto respecto a los contenidos programáticos y demás elementos propios de la rama educativa o modalidad que hubieren cursado dentro de dicho nivel de la enseñanza.
-A los postulantes con discapacidades se les administrará los exámenes finales, de conformidad con las normas que al respecto dicte el Consejo Superior de Educación.

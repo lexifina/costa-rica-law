@@ -1,1 +1,0 @@
-Artículo 31.—El Director de la Institución, en forma personal, revisará las solicitudes de inscripción presentadas por los postulantes y ordenará subsanar en el acta las omisiones o errores que descubriere.

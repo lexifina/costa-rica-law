@@ -1,1 +1,0 @@
-Artículo 26.—Si el Delegado General, en virtud de lo dispuesto en el artículo anterior, estimare que hubo error en la apreciación o calificación del examen final, hará la corrección correspondiente, asentando en el acta los hechos y las circunstancias fundamentales que justifiquen su decisión.

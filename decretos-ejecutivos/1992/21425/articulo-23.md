@@ -1,1 +1,0 @@
-Artículo 23.—El proceso de calificación de los exámenes finales de Composición y Ortografía y de la “producción escrita” del idioma extranjero, lo desarrollará el Tribunal Calificador durante las sesiones convocadas para ese efecto por el Delegado General, quien supervisará ese proceso.

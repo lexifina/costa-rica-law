@@ -1,1 +1,0 @@
-Artículo 21.—Para calificar los exámenes finales de Composición y Ortografía y la parte de “producción escrita” del idioma extranjero, se nombrarán Tribunales Calificadores en las sedes que la Comisión Nacional de Bachillerato determine. Estos Tribunales estarán integrados por docentes de la especialidad respectiva, siempre que no sean profesores de los postulantes.

@@ -1,2 +1,0 @@
-Artículo 11.—De conformidad con lo dispuesto en el artículo anterior, en la calificación definitiva de cada asignatura en que se aplica un examen final, el promedio general tendrá un valor equivalente al cuarenta por ciento y la calificación del examen final un sesenta por ciento.
-La calificación definitiva de Español será la suma de los resultados obtenidos por el postulante en el examen final de Composición y Ortografía y en el examen final de Gramática y Literatura.
