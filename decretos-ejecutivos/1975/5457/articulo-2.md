@@ -1,6 +1,7 @@
 Artículo 2°-Para disfrutar de los beneficios enumerados en el artículo 1° de este decreto "Spparica, Sociedad Anónima", debe cumplir con las. Siguientes obligaciones :
 a) Instalar la planta industrial en la Meseta Central con una inversión mínima de ¢ 4. 472,000.00 (cuatro millones, cuatrocientos setenta y dos mil colones) en maquinaria y equipo de planta;
 b) Iniciar la instalación de la planta industrial dentro de seis meses contados a partir de la publicación de este decreto en "La Gaceta" ; concluir las instalaciones e iniciar la producción dentro de doce meses contados a partir de la misma fecha ;
+(Nota de Sinalevi: Mediante el decreto ejecutivo N° 6815 del 23 de febrero de 1977 se amplía el inciso b) anterior y se autorizar a la firma “Soparica, Sociedad Anónima”, a iniciar la producción a partir del 30 de abril de 1977)
 c) Producir en la planta industrial, sopas y otros productos agropecuarios deshidratados ;
 d) Doce meses después de iniciadas las operaciones la planta deshidratará en el país los principales componentes de sopas de pollo y cebollas ;
 e) A partir del inicio de su producción la empresa queda obligada a incorporar un 70% (setenta por ciento) del peso total de materia prima nacional al producto final ;

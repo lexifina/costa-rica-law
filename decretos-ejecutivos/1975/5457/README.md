@@ -14,3 +14,4 @@ Otorga a la firma "Soparica, Sociedad Anónima" exención de impuestos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-12-16 | la propia norma |
+| 2 | 1977-02-23 | Decreto Ejecutivo 6815 (1977-02-23) |
