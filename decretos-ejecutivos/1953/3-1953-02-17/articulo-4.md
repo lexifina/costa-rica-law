@@ -1,0 +1,1 @@
+Artículo 4°-Queda autorizado el Procurados General de la república para aceptar en nombre del estado la o las escrituras del caso; para rectificar citas de inscripción e indicar la naturaleza actual de los inmuebles mencionados.
