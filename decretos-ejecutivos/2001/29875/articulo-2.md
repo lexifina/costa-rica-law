@@ -1,0 +1,1 @@
+Artículo 2º—Asimismo, se establecen los límites de gasto corriente presupuestario y gasto corriente efectivo que se estipulan en el artículo 3° del Decreto Ejecutivo N° 28639-H y sus reformas, de manera que el gasto corriente presupuestario y el gasto corriente efectivo de este año no podrán exceder la suma de ¢ 11.122.4 millones.
