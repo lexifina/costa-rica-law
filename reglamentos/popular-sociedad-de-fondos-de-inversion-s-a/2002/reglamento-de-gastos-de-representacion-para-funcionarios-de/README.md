@@ -14,3 +14,4 @@ Reglamento de gastos de representación para funcionarios de popular, Sociedad d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-22 | la propia norma |
+| 2 | 2004-06-23 | Reglamento 106 (2004-06-23) |
