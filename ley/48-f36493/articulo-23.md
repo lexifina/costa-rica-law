@@ -1,1 +1,0 @@
-Artículo 23.-La separación indiciada, así como el cierre y sello de los envases se hará constar por acta formal en que se anotará la forma y calidad de éstos, la cantidad depositable fuera del Juzgado y la marca numérica correspondiente.

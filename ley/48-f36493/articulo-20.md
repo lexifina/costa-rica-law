@@ -1,1 +1,0 @@
-Artículo 20.-Para que sea oída la solicitud del reo sobre el segundo reconocimiento, debe con el escrito que la contenga presentar constancia de haber depositado á la orden del Juez en el establecimiento señalado por la ley para consignaciones judiciales de dinero, la suma de treinta colones destinados á cubrir el honorario de los peritos.

@@ -1,1 +1,0 @@
-Artículo 6°.-Se tendrá por autor de la introducción de artículos de comercio prohibido, á la persona en cuyo poder se encontraren, si ella no demostrare á quién pertenecen en el país, ó de quién los adquirió en el mismo.

@@ -1,1 +1,0 @@
-Artículo 12.-Salvo prueba en contrario, toda venta sin patente de licores monopolizados se calificará de expendio de aguardiente clandestino, si el culpable ha sido condenado en los cinco años precedentes por fabricación, expendio ó depósito de artículos de ilícita procedencia.
