@@ -1,0 +1,2 @@
+(*) Artículo 4°—Las Autoridades de Tránsito que constaten el incumplimiento de la presente disposición sanitaria, levantarán una boleta especial en donde deberá constar al menos el nombre del supuesto infractor, número de cédula, calidades, y dirección exacta; en caso de que existan testigos, se consignarán igualmente todos los datos de los mismos.
+(*) ANULADO por inconstitucional, según resolución de la Sala Constitucional N° 2001-10542 de las 14:55 horas del 17/10/2001.

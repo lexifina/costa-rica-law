@@ -1,0 +1,2 @@
+(*) Artículo 3°—Para velar por el efectivo cumplimiento de las disposiciones del presente decreto se nombra a las Autoridades de Tránsito de todo el país como funcionarios Ad Honorem del Ministerio de Salud, en virtud de lo cual ostentarán el carácter de Autoridades de Salud y tendrán para el desempeño de sus funciones todas las atribuciones que la Ley General de Salud otorga a estas autoridades.
+(*) ANULADO por inconstitucional, según resolución de la Sala Constitucional N° 2001-10542 de las 14:55 horas del 17/10/2001.

@@ -1,0 +1,1 @@
+Artículo 2°—La persona que incumpla con la presente medida de carácter general será denunciada ante la autoridad judicial competente, de conformidad con lo establecido en el artículo 378 de la Ley General de Salud.
