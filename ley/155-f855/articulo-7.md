@@ -1,0 +1,1 @@
+Artículo 7°-El pago del impuesto deberá hacerse en moneda de oro americano de la presente ley y peso o en letras a la vista sobre New York, a satisfacción de la Secretaría de Hacienda, la cual dictará las medidas para su liquidación y percepción.

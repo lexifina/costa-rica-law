@@ -1,0 +1,1 @@
+Artículo 2°-En el case de que las personas o compañías compradoras de bananos rebajaren los precios corrientes que efectivamente se han estado pagando en los últimos cinco años, de conformidad con las especificaciones establecidas para la fruta, el impuesto a que se refiere el artículo 1° quedará adicionado automáticamente en la misma cantidad rebajada a los vendedores.
