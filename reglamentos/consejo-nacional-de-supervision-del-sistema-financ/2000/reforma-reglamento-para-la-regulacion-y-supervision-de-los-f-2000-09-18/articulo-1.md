@@ -1,0 +1,24 @@
+BANCO CENTRAL DE COSTA RICA
+El Concejo Nacional de Supervisión del Sistema Financiero, mediante Articulo 10, del acta de la sesión 177-2000, celebrada el 18 de setiembre del 2000, considerando:
+I. Que por artículo 11 del acta de la sesión 130-2000, celebrada el 4 de enero del 2000, el Consejo Nacional de Supervisión del Sistema Financiero aprobó el "Reglamento para la regulación, supervisión y fiscalización de los fondos administrados mediante contratos de fideicomiso que sean similares a los fondos de inversión, planes de capitalización o fondo-, de pensión".
+II. Que dicho Reglamento vino a establecer la normativa aplicable a los fideicomisos que funcionen como fondos de inversión, planes de capitalización y fondos de pensión. Asimismo prohibió a las entidades supervisadas la administración de encargos y comisiones de confianza como un fondo común.
+III. Que los Transitorios I y II de dicho Reglamento previeron determinados plazos para la adecuación de los fideicomisos, encargos y comisiones de confianza a la normativa en él establecida.
+IV. Que la Asociación Bancaria Costarricense solicitó a este Consejo la reconsideración de esos plazos, especialmente por la dificultad práctica que ha habido para la recolección de las firmas de los contratos mediante los cuales el afiliado expresará su voluntad para que el traslado de sus recursos, dada la gran cantidad de inversionistas.
+V. Que por otra parle algunos fideicomisos y encargos de confianza por sus fines y naturaleza vencen durante los meses de noviembre y diciembre del presente año.
+VI. Que existen en este caso razones de urgencia, determinadas por los plazos que los transitorios vigentes disponen para la adecuación de las carteras que se han venido administrando como fondos comunes, a la normativa establecida en este Reglamento, que hacen necesaria la emisión inmediata de esta reforma; por lo que con fundamento en el párrafo 2. del artículo 361 de la Ley General de Administración Pública, se prescinde del trámite de consulta. Asimismo este Consejo hace constar que la presente reforma obedece a la solicitud de las mismas entidades fiscalizadas, de modo que su entrada en vigencia inmediata opera en su beneficio.
+Acuerda:
+1. Reformar el Transitorio IV y adicionar un Transitorio V al "Reglamento para la regulación y supervisión de los fondos administrados mediante contratos de fideicomiso que sean similares a los fondos de pensión, planes de capitalización o fondos de pensión", de modo que se lea de la siguiente manera:
+"Transitorio IV.
+Los fondos administrados mediante contratos de fideicomiso, encargos o comisiones de confianza que estén siendo administrados como fondos comunes y que conforme a sus términos contractuales venzan a mas tardar el 31 de diciembre del año en curso no tendrán que adecuarse a la normativa establecida en el presente Reglamento, en el entendido de que si los contratos se renovaran, la administración de esos recursos quedara automáticamente sujeta a lo dispuesto en este Reglamento.
+Las entidades que deseen acogerse a lo dispuesto en este Transitorio deberán informarlo al Superintendente General de Entidades Financieras a más tardar el 30 de setiembre del 2000. con la indicación de las carteras que se encuentren en estas condiciones.
+En caso de que la entidad no comunique su decisión de acogerse a este transitorio, la administración de esos recursos quedará automáticamente sujeta a lo dispuesto en este Reglamento."
+"Transitorio V.
+Las entidades que resuelvan trasladar los fondos administrados mediante contratos de fideicomiso, encargos de confianza o comisiones de confianza, a fondos de inversión, fondos de pensión o planes de ahorro voluntario estarán excepcionados del cumplimiento de los plazos establecidos en los Transitorios I, II y III de este Reglamento, siempre y cuando cumplan con el plan de migración que a continuación se establece:
+a) Al 30 de setiembre del 2000 deberán trasladar un 50% del total del saldo de la cartera.
+b) Al 31 de octubre del 2000 deberán trasladar un 20% del total del saldo de la cartera.
+c) Al 30 de noviembre del 2000 deberán trasladar un 20% del total del saldo de la cartera.
+d) Al 31 de diciembre del 2000 deberán trasladar el 10% restante.
+Las entidades que deseen acogerse a lo dispuesto en este Transitorio deberán informar al Superintendente General de Entidades Financieras su decisión de acogerse a este plan a mas tardar el 30 de setiembre del 2000, con la indicación de las carteras para las cuales se realizará la migración.
+Para esa misma fecha deberán haber completado el primer tramo de traslados.
+Todos los traslados podrán ser realizados fuera de bolsa siempre y cuando cumplan con las condiciones establecidas en el Articulo 14 de este reglamento.
+En caso de que la entidad no comunique su decisión de acogerse a este transitorio, la administración de esos recursos quedará automáticamente sujeta a lo dispuesto en este Reglamento."
