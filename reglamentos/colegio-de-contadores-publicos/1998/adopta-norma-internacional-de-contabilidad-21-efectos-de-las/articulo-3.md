@@ -1,0 +1,1 @@
+3°—La aplicación de las disposiciones contenidas en la presente norma será obligatoria a partir de su publicación en el Diario Oficial ""La Gaceta". Sin embargo, se recomienda su aplicación para todo el período fiscal 98.
