@@ -1,0 +1,1 @@
+Artículo 3°-No procederá el pago de zonaje cuando la residencia habitual del servidor este ubicada dentro del radio de 50 kilómetros de la sede a la que ha sido trasladado. Sin embargo, si podrá cobrar viáticos según su desplazamiento y en estricto apego al Reglamento de Gastos de Viajes de la Contraloría General de la República.

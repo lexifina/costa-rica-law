@@ -1,0 +1,1 @@
+Artículo 8°-Mientras dure la prestación del servicio en las condiciones que obligan al INFOCOOP al pago de zonaje, las sumas devengadas por este concepto serán tomadas en cuenta para cálculo de aguinaldo, vacaciones cuando procedan, preaviso, cesantía, etc.

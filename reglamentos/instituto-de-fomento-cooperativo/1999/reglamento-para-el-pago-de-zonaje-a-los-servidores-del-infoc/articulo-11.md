@@ -1,0 +1,1 @@
+Artículo 11.-El servidor que por cualquier circunstancia hubiese perdido el derecho a pago de zonaje, lo recuperará, previa solicitud al Departamento de Recursos Humanos, una vez que las condiciones sean similares a las que se dieron para su concesión inicial.

@@ -1,0 +1,1 @@
+Artículo 9°-Los trabajadores que devengan zonaje, podrán cobrar viáticos, cuando por motivo de su trabajo deban movilizarse fuera del área a la que fueron trasladados y que motiva el reconocimiento adicional por zonaje, excepto cuando el trabajo a realizar se ejecute en el mismo lugar en donde reside habitualmente.

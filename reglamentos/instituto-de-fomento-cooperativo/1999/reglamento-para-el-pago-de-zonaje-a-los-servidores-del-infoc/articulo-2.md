@@ -1,0 +1,1 @@
+Artículo 2°-El pago de zonaje procederá cuando un servidor a instancias de la Administración, debe trasladarse a un lugar distante 50 kilómetros o más del lugar geográfico donde se encuentra la oficina sede para la que fue contratado y su permanencia se estime de previo en períodos iguales o mayores a 30 días calendario.

@@ -1,0 +1,1 @@
+Artículo 6°-La inclusión, exclusión, deducciones y aumentos en planillas de compensación por zonaje sólo podrá realizarse mediante acción de personal emitida por el Departamento de Recursos Humanos cuya aprobación corresponde a la Dirección Ejecutiva.
