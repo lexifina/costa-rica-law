@@ -8,4 +8,4 @@ d) Publicará, mensualmente, un resumen estadístico de la situación económica
 e) Pondrá a disposición del público, por medios escritos y sistemas electrónicos, la información diaria sobre los tipos de cambio que rigieron durante el día anterior, en cada uno de los entes autorizados para participar en el mercado cambiario, así como el tipo de cambio promedio que rigió el día anterior en los entes autorizados. Para hacer este último cálculo, el Banco establecerá y publicará la metodología que usará, así como los cambios que haga en ella.
 f) Publicará, durante los meses de enero y julio, un informe de la evolución de la economía en el semestre anterior.
 Se autoriza al Banco Central para cobrar el costo de las publicaciones y de cualquier otro medio que utilice para divulgar información económica.
-El Banco está obligado a guardar la confidencialidad de la información individual que le suministren las personas físicas y jurídicas.
+El Banco está obligado a guardar la confidencialidad de la información individual que le suministren las personas físicas yjurídicas.
