@@ -1,0 +1,1 @@
+Artículo 4º—La Escuela funcionará a nivel centroamericano por medio de convenios que habrá de celebrar colectiva o individualmente con los países interesados, por medio de instituciones públicas o privadas.

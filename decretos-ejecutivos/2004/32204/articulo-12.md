@@ -1,0 +1,1 @@
+Artículo 12.—Los representantes del sector privado serán escogidos por parte del Ministro de Educación Pública de ternas que enviarán los organismos a nivel nacional que operan en los campos de producción de leche, producción de carne y producción industrial a.nes al quehacer de la Escuela.

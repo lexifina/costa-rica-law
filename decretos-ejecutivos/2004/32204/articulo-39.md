@@ -1,0 +1,1 @@
+Artículo 39.—La Escuela contará con una Dirección Administrativa, Dirección Financiera Contable, Dirección de Producción y Dirección Académica, sin perjuicio de las que se lleguen a constituir en el futuro.

@@ -1,0 +1,1 @@
+Artículo 53.—Los planes de estudio estarán basados, preferentemente, en las particulares condiciones de Centro América, de conformidad con las necesidades agropecuarias, industriales y procesos afines de la región.

@@ -1,0 +1,1 @@
+Artículo 22.—Por cada sesión ordinaria o extraordinaria, los miembros del Consejo Directivo devengarán una dieta que se determinará por acuerdo del Poder Ejecutivo y cuyo monto se incluirá en los presupuestos anuales de la Escuela, sin perjuicio de lo que al efecto establezca la Ley Nº 7138. Se pagará un máximo de cinco sesiones al mes.

@@ -1,0 +1,1 @@
+Artículo 2º—La Escuela tendrá su sede principal en Balsa de Atenas, distrito quinto, Concepción, del cantón quinto, Atenas, de la Provincia de Alajuela, pero podrá tener otra u otras sedes regionales en cualquier sitio de la República o fuera de ella. En cuanto a las sedes regionales dentro del territorio nacional, deberán ser aprobadas por el Consejo Superior de Educación.

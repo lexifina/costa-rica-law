@@ -1,0 +1,1 @@
+Artículo 50.—Una vez aprobado el presupuesto por el Consejo Directivo y ratificado por la Contraloría General de la República, constituirá una autorización para el Decano para contraer las obligaciones y realizar los gastos e inversiones necesarias de conformidad con el destino de las partidas correspondientes, la normativa sobre la materia y los acuerdos del Consejo Directivo.

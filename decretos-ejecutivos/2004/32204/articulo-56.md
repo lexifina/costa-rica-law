@@ -1,0 +1,1 @@
+Artículo 56.—El presente reglamento deberá ser revisado cada cinco años a partir de su entrada en vigencia, para lo cual, el Decano deberá informar al Consejo Directivo sobre el vencimiento de dicho período con dos meses de anticipación.

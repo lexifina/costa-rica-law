@@ -1,0 +1,1 @@
+Artículo 18.—La finalización de funciones del miembro del Consejo Directivo, sea por terminación del período o por cualquier otra causa, no le exime de las responsabilidades legales en que pudiere haber incurrido durante su gestión, de conformidad con el artículo 11º de la Constitución Política.

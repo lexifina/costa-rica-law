@@ -1,0 +1,1 @@
+Artículo 52.—El Decano presentará al Consejo Directivo, con la anticipación mínima de quince días naturales de la fecha de la reunión preestablecida, el estado general de la situación financiera de la Escuela y el estado de cuentas correspondientes, a la fecha de presentación del documento.

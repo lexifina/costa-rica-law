@@ -1,0 +1,1 @@
+Artículo 51.—La contabilidad de la Escuela queda establecida en la forma que satisfaga los requisitos, rubros y trámites impuestos por la Contraloría General de la República y los que el Consejo Directivo determine.

@@ -1,0 +1,2 @@
+XI. Otras Disposiciones
+Artículo 44.—En concordancia con el artículo 35 de este reglamento, el Vicedecano y los Directores de Área de la Institución, constituirán el Comité Ejecutivo Asesor de la Escuela, con el cual el Decano consultará los problemas de la administración y conducción de la Escuela. El Decano podrá invitar a las reuniones del comité a otro personal técnico o administrativo, según lo tenga por conveniente.

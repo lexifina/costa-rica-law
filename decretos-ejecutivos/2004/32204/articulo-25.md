@@ -1,0 +1,1 @@
+Artículo 25.—La Secretaría del Consejo repartirá entre los miembros del Consejo Directivo, a más tardar tres días hábiles antes del día de la sesión respectiva, copia de las actas que deberán ser aprobadas, para lo cual podrá utilizar cualquier medio electrónico, excepto en casos muy calificados, en que podrá utilizar cualquier otro medio de comunicación.

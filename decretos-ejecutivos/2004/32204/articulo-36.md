@@ -1,0 +1,15 @@
+V. Del Vicedecano
+Artículo 36.—Habrá un Vicedecano de nombramiento por parte del Consejo Directivo, quien deberá poseer título universitario no inferior a licenciatura, ser ciudadano costarricense, mayor de treinta años, incorporado al colegio profesional respectivo y haber laborado como mínimo dos años en una Institución de Educación Superior en cargos docentes y/o administrativos. Deberá sustituir al Decano en sus ausencias temporales o permanentes y tendrá los siguientes deberes:
+a) Ejecutar y hacer cumplir las normas y decisiones establecidas por el Decano y el Consejo Directivo.
+b) Supervisar que la unidad competente de la ECAG mantenga un inventario actualizado y un programa permanente de mantenimiento de los bienes de la Escuela.
+c) Desempeñarse como coordinador general en la acción conjunta que realicen las direcciones docentes, administrativas, .nancieras y de producción, para el cumplimiento de las disposiciones, políticas y normas establecidas por el Decano y el Consejo Directivo.
+d) Designar y coordinar comités especí.cos internos que colaborarán en las labores internas estratégicas administrativas, docentes y productivas de la ECAG.
+e) Fungir de enlace técnico para canalizar ante el Decano los asuntos de orden interno que afecten a la Institución.
+f) Definir las acciones internas que han de ser implementadas en la Institución con el objeto de que se cumplan con efectividad las políticas y disposiciones que dicte el Decano y el Consejo Directivo.
+g) Participar en conjunto con el Decano en la formulación del Plan Anual de Operación, vigilar su cumplimiento y e.caz y eficiente ejecución.
+h) Establecer y ejecutar oportunamente las medidas preventivas y correctivas que sean necesarias para garantizar el uso racional de los recursos y el balance adecuado entre el funcionamiento de la institución y la ejecución de los planes de trabajo previamente aprobados por el Decano y el Consejo Directivo.
+i) A solicitud del Decano, de.nir y proponer planes estratégicos que propicien a lo interno el desarrollo y modernización de la estructura y organización, la eficiencia y la eficacia de los procesos de trabajo en las diferentes áreas de acción de la Institución.
+j) Representar al Decano, en su ausencia, en las relaciones con otros organismos nacionales e internacionales.
+k) Representar a la ECAG ante otros organismos nacionales e internacionales, por encargo del Decano o el Consejo Directivo.
+l) Por encargo del Decano o del Consejo Directivo, coordinar los proyectos académicos o productivos y de otra naturaleza que le contraten a la ECAG en su función particular de venta externa de servicios técnicos de capacitación y asesoría.
+m) Asistir al Decano en todas aquellas funciones y responsabilidades que le sean encomendadas o delegadas por Este. En general y en ausencia del Decano, le corresponderán todos aquellos deberes y atribuciones establecidas en el Capítulo II del título III del Reglamento de la Educación Superior Parauniversitaria, Decreto Ejecutivo número 30431-MEP, en lo que fueren compatibles.

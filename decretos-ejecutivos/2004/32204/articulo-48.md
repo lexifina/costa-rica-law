@@ -1,0 +1,1 @@
+Artículo 48.—Es responsabilidad del Decano elaborar el proyecto de presupuesto por programas para cada año fiscal, que habrá de someter al Consejo Directivo con la anticipación mínima de quince días hábiles de la sesión fijada para su conocimiento.

@@ -1,0 +1,1 @@
+Artículo 20.—El Consejo Directivo será instalado por el Ministro de Educación Pública o por su representante al iniciarse un nuevo período cada dos años y se elegirá de su seno un Presidente, un Vicepresidente y un Secretario que pueden ser reelectos. Los demás miembros se tendrán como vocales, cuyo orden numérico será establecido en la misma elección.
