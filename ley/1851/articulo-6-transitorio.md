@@ -1,0 +1,2 @@
+Transitorio VI.- El Poder Ejecutivo ampliará el Capítulo de Subvenciones del Presupuesto General del año en curso, fijando la suma que, de acuerdo con las posibilidades fiscales, aportará el Estado para las Juntas de Caminos y en 1956 tomará como base para esas subvenciones las sumas cobradas por detalles de caminos en 1952.
+Casa Presidencial.- San José, a los veintiocho días del mes de febrero de mil novecientos cincuenta y cinco.
