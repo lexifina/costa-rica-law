@@ -1,0 +1,6 @@
+Artículo 19.- Rige a partir de su publicación.
+(Así modificada su numeración por el artículo 144 de la ley No.6995 del 22 de julio de 1985).
+Transitorio I.-La comisión será integrada dentro de los quince días siguientes a la entrada en vigencia de esta ley, y redactará el reglamento respectivo, que será revisado por la Contraloría General de la República y emitido por el Poder Ejecutivo en un plazo no mayor de treinta días a partir de la integración de la comisión.
+Transitorio II.-Otórganse los mismos beneficios que establece la ley de Emergencia del Pacífico Seco, Nº 6832 del 22 de diciembre de 1982 a los productores del plátano y cacao de la región atlántica.
+Transitorio III.-Las fincas que a la entrada en vigencia de esta ley estén en poder de los bancos, deberán venderse al precio que establezcan los peritos del mismo. En caso de que este valor sea superior al declarado en la Dirección General de la Tributación Directa, se establecerá un promedio entre ambos valores.
+Transitorio IV.-Se faculta a los bancos del Sistema Bancario Nacional para que, previo acuerdo de sus juntas directivas, puedan donar a los colegios técnicos y agropecuarios o instituciones de educación superior, maquinaria agrícola o industrial en su poder, en virtud de remates judiciales o pagos por obligaciones a su favor.
