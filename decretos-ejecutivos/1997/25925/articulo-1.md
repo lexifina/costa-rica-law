@@ -21,3 +21,7 @@ La denuncia como criterio único para la selección de un contribuyente para su 
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 26796 de 04 de marzo de 1998, publicado en La Gaceta N° 65 de 02 de abril de 1998, el cual reformó el inciso g) del presente artículo.)
 h) Que no apliquen correctamente las tarifas de impuesto del cual sean sujetos pasivos, de acuerdo con las disposiciones legales en vigencia.
 (Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 26796 de 04 de marzo de 1998, publicado en La Gaceta N° 65 de 02 de abril de 1998, el cual adicionó el inciso h) del presente artículo.)
+i) Que haya presentado declaración rectificativa mediante la cual se hubiese disminuido el impuesto o aumentado el saldo a favor, determinados en declaraciones anteriores.
+j) Que hubiera tenido o que mantenga, operaciones económicas con las entidades no sujetas al impuesto sobre las utilidades establecidas en el inciso ch) del artículo 3º de la Ley del Impuesto sobre la Renta, Nº 7092 del 21 abril de 1988.
+k)Que pertenezca a los sectores o actividades económicas que establezca la Dirección General de Tributación, mediante resolución publicada con antelación al inicio del Plan Anual de Fiscalización.
+(Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 28455 de 12 de enero de 2000, publicado en La Gaceta N° 38 de 23 de febrero de 2000, el cual adicionó el inciso i), j) y k) del presente artículo.)
