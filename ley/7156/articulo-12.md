@@ -1,1 +1,0 @@
-Artículo 12.- Las personas físicas o jurídicas que tengan establecimientos en otros cantones y que paguen patente municipal, deducirán las ventas realizadas en ellos para efectos del pago del impuesto de patentes en el cantón de Grecia.
