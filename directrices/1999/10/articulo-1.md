@@ -1,4 +1,6 @@
+(Derogado)
 DIRECTRIZ Nº 99-010
+(La presente Directriz es inaplicable según lo establece el artículo 28 de la Directriz 005-2001, dictada por la Dirección Nacional de Notariado a las diez horas del dieciocho de diciembre de dos mil uno )
 DIRECCION NACIONAL DE NOTARIADO.- A las diez horas del veintitrés de junio de mil novecientos noventa y nueve.
 R E S U L T A N D O:
 I.- Que el Título VI del Código Notarial, permite a los notarios públicos el ejercicio de competencia en actividad judicial no contenciosa.-

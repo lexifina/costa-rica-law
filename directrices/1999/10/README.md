@@ -13,3 +13,4 @@ Directriz sobre la Tramitación de Procedimientos en Actividad Judicial no Conte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-31 | la propia norma |
+| 2 | 2001-12-18 | Directriz 5 (2001-12-18) |
