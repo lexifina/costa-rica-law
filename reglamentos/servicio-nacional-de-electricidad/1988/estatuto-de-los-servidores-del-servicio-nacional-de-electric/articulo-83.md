@@ -1,0 +1,2 @@
+Artículo 83.-La persona ofendida podrá solicitar a la Dirección, su reubicación temporal en otra dependencia de la Institución, por el tiempo que se dilate el proceso incoado, siempre y cuando, labore en la misma dependencia que la persona acosadora. La Dirección acogerá o denegará la solicitud dentro de los tres días posteriores a su recepción.
+(Así adicionado en sesión N° 2908 del 16 de octubre de 1995)

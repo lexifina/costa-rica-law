@@ -15,3 +15,4 @@ Estatuto de los Servidores del Servicio Nacional de Electricidad
 | --- | --- | --- |
 | 1 | 1988-04-22 | la propia norma |
 | 2 | 1988-08-01 | Reglamento 2483 (1988-08-01) |
+| 3 | 1995-10-16 | Reglamento 2908 (1995-10-16) |

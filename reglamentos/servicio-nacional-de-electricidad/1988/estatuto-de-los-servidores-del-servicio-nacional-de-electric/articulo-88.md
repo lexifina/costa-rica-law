@@ -1,0 +1,2 @@
+Artículo 88.-El Órgano Director evacuará la prueba aportada, realizando todas las diligencias probatorias necesarias para determinar la verdad real de los hechos objeto del trámite y estará en disposición de aceptar prueba testimonial, documental, grabaciones tanto en video como en audio, y cualquier otra prueba que se considere oportuna.
+(Así adicionado en sesión N° 2908 del 16 de octubre de 1995)
