@@ -1,0 +1,1 @@
+Artículo 10.- Las funciones públicas, para las cuales la ley exige la calidad de farmacéutico, sólo podrán ser desempeñadas por los miembros del Colegio a quienes también se dará preferencia en aquellos puestos para los cuales están capacitados especialmente por la naturaleza de su profesión.

@@ -1,0 +1,1 @@
+Artículo 29.- Ocurrido el fallecimiento de un mutualista el Presidente de la Directiva podrá autorizar un adelanto hasta de (¢500.00) quinientos colones, el cual se girará inmediatamente en favor del cónyugue sobreviniente o del pariente o persona que a juicio de aquél deba recibirlo. El saldo, o la cuota total en su caso, sólo se entregará a quién figure como albacea.

@@ -1,0 +1,1 @@
+Artículo 18.- El quórum lo constituyen cinco miembros y los acuerdos o resoluciones se tomarán por mayoría de los votos presentes. Las decisiones de la Junta Directiva serán apelables para ante la Junta General, dentro de los cinco días siguientes a su notificación.
