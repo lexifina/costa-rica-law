@@ -1,0 +1,1 @@
+Artículo 6 o—Nómbrase, como Director de la Red Nacional de Televisión Cultural (Canal 13) al Prof. Mario Arguedas Ramírez, mayor, casado, Profesor en Físico - Matemáticas cédula No 4-099-560. vecino de Barva. Heredia.

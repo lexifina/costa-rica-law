@@ -1,0 +1,1 @@
+Artículo 7°—El SINART tendrá un auditor que dependerá del Consejo Ejecutivo v que será nombrado por éste. El auditor deberá ser costarricense, contador Público autorizado, y tener experiencia profesional.

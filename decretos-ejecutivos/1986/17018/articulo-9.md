@@ -1,0 +1,1 @@
+Artículo 9°—Deposítese en el Fondo del Sistema Nacional de Radio y Televisión Cultural a que se refiere el artículo 4° de este Decreto, todos los recursos de que disponga o llegare a disponer el Sistema Nacional de Radio y Televisión Cultural.

@@ -1,0 +1,1 @@
+Artículo 5°—Nómbrase, a partir del 28 de mayo de 1986, como Gerente Administrativo al Máster Marco Vinicio Alvarez Amador, mayor, casado, Máster en Economía cédula No 3-185-736, vecino de Cartago, Interinamente y esa fecha ejercerá esas funciones el señor Jorge Astacio Piñeda, mayor, cédula No R 047-003 vecino de San Francisco de Dos Ríos.
