@@ -1,0 +1,1 @@
+Transitorio VI.—Los despachos, los procedimientos, los plazos y las demás formalidades aduaneras, iniciados antes de la entrada en vigencia de esta Ley, se concluirán según las disposiciones vigentes en el momento en que fueron iniciados.

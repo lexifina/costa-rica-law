@@ -1,0 +1,2 @@
+Transitorio V.—En los procedimientos y reclamos iniciados antes de la entrada en vigencia de esta Ley, la fase recursiva se tramitará conforme a lo dispuesto en ella.
+En los procedimientos y reclamos en los que se haya interpuesto el recurso de reconsideración o de revisión jerárquica antes de la entrada en vigencia de esta Ley, el recurrente podrá optar, por escrito, a que la tramitación se continué conforme a lo dispuesto en ella, renunciando al recurso correspondiente.

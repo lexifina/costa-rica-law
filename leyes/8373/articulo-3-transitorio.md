@@ -1,0 +1,1 @@
+Transitorio III.—Los consolidadores y transportistas aduaneros dispondrán de un plazo de tres meses contado a partir de la entrada en vigencia de esta Ley, para presentar a la Dirección General de Aduanas documento legítimo que compruebe la representación legal de la persona cuando, para efectos aduaneros, actúe a nombre del consolidador de carga y del transportista extranjero.
