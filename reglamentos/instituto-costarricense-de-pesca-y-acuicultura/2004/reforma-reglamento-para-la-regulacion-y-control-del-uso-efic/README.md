@@ -14,3 +14,4 @@ Reforma reglamento para la regulación y control del uso eficiente del combustib
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-01 | la propia norma |
+| 2 | 2004-10-01 | Reglamento 386 (2004-08-27) |

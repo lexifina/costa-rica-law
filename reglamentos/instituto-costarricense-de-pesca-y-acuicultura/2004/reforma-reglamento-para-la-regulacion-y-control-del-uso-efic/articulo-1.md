@@ -7,3 +7,4 @@ III.—Que discutido el oficio anterior, la Junta Directiva, coincide en su inte
 SE ACUERDA:
 Artículo 1º—Modificar el párrafo primero del artículo 11, del Reglamento de Combustible, emitido mediante acuerdo Nº AJDIP/258- 2002, del 12 de setiembre del 2002, para que se lea de la siguiente manera:
 “Para las embarcaciones de la flota artesanal en pequeña escala la solicitud se recibirá durante los primeros diez días posteriores al último viaje (es) anteriores, para lo que se reconocerá un máximo de 25 días de ausencia”.
+( Así reformado por el artículo 2° del acuerdo AJDIP 386 del Instituto Costarricense de Pesca y Acuacultura del 27 de agosto del 2004)
