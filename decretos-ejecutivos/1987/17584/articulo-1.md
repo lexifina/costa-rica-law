@@ -29,12 +29,12 @@ TABLA N° 1
 CARACTERISTICAS FISICAS Y QUIMICAS
 DE LOS DIFERENTES TIPOS DE AZUCAR
 Parámetros de calidad | Azúcar blanco sin refinar | Azúcar crudo | Azúcar refinado
-Polarización % mínimo | 99,5 | 96,0 | 99,7
+Polarización % mínimo | 99,50 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 21982 del 8 de febrero de 1993) | 96,0 | 99,7
 Humedad % máximo | 0,2 | 0,3 a 0,1 | 0,1
-Color unidades ICUMSA máximo Solución al 50% | 250 | 3000 a 6000 afinado: 800 a 1500 | 70
-Cenizas sulfatadas % máximo | 0,10 | 0,48 | 0,05
-Sólidos insolubles ppm máximo | 50 | ------ | 25
-Dióxido de azufre ppm máximo | 50 | ------ | 15
+Color unidades ICUMSA máximo Solución al 50% | 300 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 21982 del 8 de febrero de 1993) | 3000 a 6000 afinado: 800 a 1500 | 70
+Cenizas sulfatadas % máximo | 0,13 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 21982 del 8 de febrero de 1993) | 0,48 | 0,05
+Sólidos insolubles mg/kg máximo (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 21982 del 8 de febrero de 1993) | 150 (Así reformado el monto anterior por el artículo 1° del decreto ejecutivo N° 21982 del 8 de febrero de 1993) | ------ | 25
+Dióxido de azufre mg/kg máximo (Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 21982 del 8 de febrero de 1993) | 50 | ------ | 15
 Factor de seguridad | ------ | 0,25 a 0,33 | ------
 Tamaño del grano % malla 0,59 mm | ------ | 22 a 52 | ------
 Dextranas máximo | ------ | 250 u.m.a. (1) 400 ppm (2) | ------

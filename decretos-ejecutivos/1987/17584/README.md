@@ -13,3 +13,4 @@ Norma Oficial para Azúcar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-06-08 | la propia norma |
+| 2 | 1993-02-08 | Decreto Ejecutivo 21982 (1993-02-08) |
