@@ -1,0 +1,1 @@
+Artículo 3°— Los agentes de seguridad, los encargados de información y todos los servidores ligados a la función de orientar al público, deberán estar atentos a la demanda de servicio por parte de un adulto mayor, para dirigirlo al puesto, caja o ventanilla correspondiente en que se le dará la atención adecuada a su condición.

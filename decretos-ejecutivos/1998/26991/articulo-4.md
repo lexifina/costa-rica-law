@@ -1,0 +1,1 @@
+Artículo 4°—La negativa injustificada a otorgar el trato especial que aquí sé dispone a favor de un adulto mayor, será considerada falta grave, la cual será sancionada de conformidad con la legislación aplicable, previo los procedimientos legales en que se garantice el debido proceso y el derecho de defensa.

@@ -1,0 +1,1 @@
+Artículo 5°—Las Instituciones del Estado que administren teatros, museos, parques nacionales, gimnasios, centros deportivos, etc., dispondrán descuentos especiales para los usuarios mayores de sesenta y cinco anos. que se identifiquen adecuadamente. Estos descuentos deberán exponerse en un lugar visible junto con las tarifas normales.
