@@ -1,0 +1,1 @@
+2- El Departamento de Adquisiciones será la unidad que administrará para todos los efectos, trámites y procedimientos el Registro de Proveedores. Para ello implantará la organización que se estime necesaria con el apoyo de los medios y recursos que garanticen la eficiencia y eficacia del registro.

@@ -1,0 +1,1 @@
+3- El Registro de Proveedores tiene por objeto lograr la mayor y mejor participación de oferentes en licitaciones privadas y compras directas, por ello el interesado se inscribirá única y exclusivamente en -los bienes y servicios que está en capacidad de ofertar.

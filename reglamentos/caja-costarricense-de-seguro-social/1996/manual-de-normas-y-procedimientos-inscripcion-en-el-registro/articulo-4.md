@@ -1,0 +1,1 @@
+4- El Registro de Proveedores no se utilizará para la compra o venta de inmueble s, para estos efectos, la Caja Costarricense de Seguro Social actuará de acuerdo a lo previsto por el ordenamiento jurídico pertinente.
