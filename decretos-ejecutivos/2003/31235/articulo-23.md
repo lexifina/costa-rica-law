@@ -1,0 +1,1 @@
+Artículo 23.—Remisión Normativa. El auditor del Teatro Nacional, en su labor de fiscalización, estará supeditado en lo aplicable, a las disposiciones de la Ley Nº 8292 del 4 de setiembre del 2002, Ley de Control Interno y normativa conexa.

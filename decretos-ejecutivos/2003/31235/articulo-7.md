@@ -1,0 +1,1 @@
+Artículo 7º—Arrendamiento. El Teatro podrá dar en arrendamiento sus instalaciones, para que personas físicas o jurídicas presenten en él, espectáculos artísticos acordes con su finalidad; procurando brindar la mayor difusión y participación de potenciales exponentes artísticos.

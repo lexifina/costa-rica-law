@@ -1,0 +1,1 @@
+Artículo 39.—Revocación de la aprobación. La aprobación otorgada por el Consejo, para la utilización de las instalaciones del Teatro, podrá ser revocada en cualquier momento cuando se acredite que las características del espectáculo, no corresponde en calidad, al aprobado.

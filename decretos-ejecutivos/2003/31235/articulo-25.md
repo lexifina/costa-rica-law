@@ -1,0 +1,3 @@
+Artículo 25.—Cuentas corrientes. Con la finalidad de llevar a cabo la adecuada administración de los rubros que comprende el fondo, el Consejo dispondrá la apertura de cuentas corrientes bancarias, las cuales se regirán por el procedimiento de firmas mancomunadas.
+Todas las cuentas bancarias tendrán registradas las firmas del Ministro de Cultura, Juventud y Deportes o su representante ante el Consejo, el Vicepresidente y el Director General. Además, el Consejo podrá autorizar el registro de las firmas de otros funcionarios del Teatro, previa justificación de tal necesidad.
+En uno y otro caso, deberán rendir las garantías exigidas por ley como respaldo de su responsabilidad, y demás obligaciones que para su gestión, exija el ordenamiento jurídico.

@@ -1,0 +1,1 @@
+Artículo 33.—Plazo del uso. La utilización del Teatro Nacional, será concedida por un plazo máximo de ocho días, no obstante el Consejo podrá prorrogarlo cuando la calidad del espectáculo y el interés público así lo ameriten.

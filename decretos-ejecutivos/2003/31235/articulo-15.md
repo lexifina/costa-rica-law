@@ -1,0 +1,4 @@
+Artículo 15.—Sesiones. El Consejo celebrará dos sesiones ordinarias por mes y extraordinariamente las que convoque su Presidente.
+Para sesionar ordinariamente no será necesaria convocatoria especial, para reunirse de manera extraordinaria deberá existir una convocatoria por escrito con al menos veinticuatro horas de antelación, salvo casos de urgencia. A la convocatoria debe acompañarse el orden del día, excepto que la urgencia del caso amerite prescindir de su incorporación.
+No obstante, el Consejo podrá sesionar válidamente prescindiendo de los requisitos anteriores, si a la respectiva sesión asisten todos sus miembros y así lo acuerdan por unanimidad.
+Perderá su condición, el miembro que dejare de asistir sin causa justificada, a cuatro sesiones ordinarias consecutivas o más de cuatro alternas, en un mismo semestre.

@@ -1,0 +1,1 @@
+Artículo 9º—Período. Los miembros escogidos por el Ministro para integrar el Consejo Directivo del Teatro, desempeñarán sus cargos ad-honorem y serán nombrados por períodos de cuatro años, con posibilidad de reelección. Los nombramientos que se realicen para cubrir vacantes por muerte, renuncia o incapacidad, se harán por el resto del período del miembro saliente.

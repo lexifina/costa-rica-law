@@ -1,0 +1,1 @@
+Artículo 37.—Publicidad. No será permitida la colocación de carteles, fotos o cualquier tipo de publicidad o propaganda en las paredes del Teatro. En caso de requerirse alguna exposición, el gestionante deberá indicarlo así al Consejo para su aprobación, corriendo bajo su responsabilidad cualquier daño causado a un tercero o a las instalaciones del Teatro.

@@ -1,0 +1,1 @@
+Artículo 27.—Prohibición. Será absolutamente prohibido la utilización de los recursos del fondo, para actividades ajenas a la finalidad y objetivos del Teatro, bajo pena de responsabilidad civil, penal, o cualquier otra que pudiera derivarse.

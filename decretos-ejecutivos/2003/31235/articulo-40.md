@@ -1,0 +1,1 @@
+Artículo 40.—Ensayos. Atendiendo las características y complejidad del espectáculo, el Consejo podrá aprobar al interesado, el derecho de realizar un máximo de tres ensayos previos a la actividad. Las fechas y hora de estos ensayos, serán establecidas de común acuerdo con el personal técnico del Teatro.

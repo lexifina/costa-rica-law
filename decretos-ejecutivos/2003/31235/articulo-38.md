@@ -1,0 +1,1 @@
+Artículo 38.—Suspensión de los espectáculos. Las autoridades competentes del Teatro, podrán suspender por razones de seguridad, fuerza mayor o caso fortuito, la realización de un espectáculo sin responsabilidad de su parte, devolviendo al interesado o permisionario, el monto proporcional a la suma cancelada por concepto de uso de las instalaciones.

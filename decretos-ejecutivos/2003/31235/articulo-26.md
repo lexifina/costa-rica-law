@@ -1,0 +1,1 @@
+Artículo 26.—Programación. Para un mayor control de las sumas que comprende el fondo, el Consejo Directivo con el Director General, elaborará anualmente un programa en el cual se incorporará un detalle de las actividades a realizar durante ese período, con indicación de las fechas probables, tipo de actividad y costo aproximado.

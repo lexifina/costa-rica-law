@@ -1,0 +1,3 @@
+Artículo 30.—Tipo de actividades. Sólo podrá autorizarse el uso de las instalaciones del Teatro, para los siguientes actos:
+a) Espectáculos de alta calidad artística y cultural, de acuerdo con los criterios establecidos en el artículo siguiente, que aplicará de la misma forma, cuando se trate de solicitudes de programación, copatrocinios o ejecución de espectáculos por su cuenta.
+b) Sesiones inaugurales de congresos o conferencias internacionales de carácter gubernamental o privado, siempre que dichas sesiones no interfieran con la presentación de espectáculos artísticos o con trabajos de mantenimiento o restauración en el Teatro.

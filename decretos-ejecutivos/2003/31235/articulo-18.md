@@ -1,0 +1,2 @@
+Artículo 18.—De las actas. Las actas de las sesiones serán firmadas por el Presidente o quien lo represente en sus ausencias, y por el Secretario del Consejo. En ésta se consignarán todos los aspectos debatidos en la respectiva sesión, la forma y resultado de la votación, así como el contenido de los acuerdos.
+Las actas serán aprobadas en la sesión ordinaria siguiente, antes de esa aprobación los acuerdos adoptados carecerán de firmeza, excepto que por mayoría absoluta de sus miembros se acuerde otorgarle esa calidad, en la misma sesión.

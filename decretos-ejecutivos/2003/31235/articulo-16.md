@@ -1,0 +1,1 @@
+Artículo 16.—Quórum. El Consejo sesionará válidamente con la mayoría absoluta de sus miembros. Si no hubiere quórum, el órgano podrá sesionar válidamente en segunda convocatoria, veinticuatro horas después de la señalada para la primera, salvo casos de urgencia en que podrá sesionar después de media hora, siendo suficiente la asistencia de tres de sus miembros.

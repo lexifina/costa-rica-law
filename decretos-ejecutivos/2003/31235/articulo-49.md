@@ -1,0 +1,1 @@
+Artículo 49.—Procedimientos de Contratación. Toda adquisición de bienes y servicios, que para el desarrollo de sus fines y objetivos requiera el Teatro, será realizada en estricta observancia de las disposiciones de la Ley de Contratación Administrativa, su Reglamento y legislación conexa que le resulte aplicable.

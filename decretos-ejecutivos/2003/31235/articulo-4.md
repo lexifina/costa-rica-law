@@ -1,0 +1,1 @@
+Artículo 4º—Patrimonio. El patrimonio del Teatro Nacional estará conformado por sus instalaciones, el fondo creado por el artículo 7 de su Ley de creación, el monto que le corresponda de lo recaudado por el impuesto sobre espectáculos públicos, según la Ley Nº 3 de 1918 y sus reformas, y todos aquellos bienes muebles e inmuebles que llegaren a pertenecerle en el futuro.

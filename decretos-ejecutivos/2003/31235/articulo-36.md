@@ -1,0 +1,1 @@
+Artículo 36.—Grabación del espectáculo. En caso que el interesado requiera filmar o grabar el espectáculo para radio o televisión o bien, llevar a cabo transmisiones en directo, deberá indicarlo así en la solicitud que dirija al Consejo. No se permitirán este tipo de actividades, sino están debidamente aprobadas por dicho órgano.

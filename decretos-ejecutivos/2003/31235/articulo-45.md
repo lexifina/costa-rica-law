@@ -1,0 +1,1 @@
+Artículo 45.—Abandono de las instalaciones. El personal técnico o administrativo del Teatro, podrá solicitar a cualquier persona que incumpla las disposiciones de los artículos anteriores, su retiro de las instalaciones.
