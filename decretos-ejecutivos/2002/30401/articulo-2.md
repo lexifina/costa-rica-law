@@ -1,0 +1,1 @@
+Artículo 2º—Este decreto rige para la formulación del presupuesto de la Oficina del Arroz a partir de su publicación y para la ejecución del mismo a partir del 1° de julio del 2002, y del 2003, respectivamente.
