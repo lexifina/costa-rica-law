@@ -31,7 +31,7 @@ Comisión Nacional de Asuntos Indígenas | 153,7
 Comisión Nacional de Gestión para la Biodiversidad | 96,5
 Comisión Nacional de Préstamos para la Educación | 347,1
 Comisión Nacional para la Prevención del Riesgo y Atención de Emergencias | 1.733,4
-Comisión Nal. de Conmemoraciones Históricas | 1,4
+Comisión Nacional. de Conmemoraciones Históricas (Así Modificado por el Decreto Ejecutivo No. 31203 de 16 de mayo de 2003, publicado en La Gaceta No. 112 de 12 de junio de 2003) | ¢2.97
 Compañía Nacional de Fuerza y Luz | 30.791,3
 Consejo de Salud Ocupacional | 74,2
 Consejo de Seguridad Vial (Así modificado por decreto ejecutivo N° 31138 de 7 de abril de 2003) | 5.983,0
