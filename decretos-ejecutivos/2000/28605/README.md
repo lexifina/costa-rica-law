@@ -14,3 +14,4 @@ Modifica Ley de Presupuesto Ordinario y Extraordinario para el 2000(Modifica el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-02 | la propia norma |
+| 2 | 2000-10-30 | Ley 7 |
