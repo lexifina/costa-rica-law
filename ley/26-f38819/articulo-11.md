@@ -1,2 +1,1 @@
-Artículo 11.- El examen será de prueba práctica del Notariado y teórica sobre las materias y leyes aplicables a la cartulación, que no formen parte del plan de estudios de la Escuela de Derecho. Concluido el examen se procederá a la votación que se dará con la nota de aprobado o de suspenso. De todo, el Secretario del Colegio, que debe asistir al examen, levantará una acta en que irá consignada la votación nominal que firmarán los examinado res y el mismo Secretario.
-(Así reformado por la ley N° 25 del 18 de junio de 1915).
+Artículo 11.- (Derogado por la ley N° 11 del 02 de junio de 1922)
