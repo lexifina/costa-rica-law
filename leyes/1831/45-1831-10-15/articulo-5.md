@@ -1,0 +1,1 @@
+Art 5. Por cada res que se mate para el abasto público, se pagarán a la Hacienda Pública dos reales de tajo, sin perjuicio del derecho extablecido para el fondo de propios, debiendo verificar el matador con la correspondiente boleta del propio receptor bajo la pena del art tres impuesta a los vendedores y cambistas.

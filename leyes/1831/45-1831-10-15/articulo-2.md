@@ -1,0 +1,1 @@
+Art 2. En los contratos de cambio de las fincas de que habla el art. anterior se pagará la alcabala por mitad entre uno y otro interesado exceptuando el exceso de que el dueño de la alhaja que lo contenga, satisfará el cuatro por ciento.

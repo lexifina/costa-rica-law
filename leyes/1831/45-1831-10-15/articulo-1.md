@@ -1,0 +1,7 @@
+DECRETO XLV
+Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente
+Se establece el Derecho de alcabala sobre venta de fincas rústicas y urbanas (I)
+(1)El presente decreto está reformado en el $ 5° sección 2a del reglamento del 10 de diciembre de 1839, artículos 9 y 10.
+“ El Gefe supremo del estado libre de Costa Rica.- Por cuánto la Asambléa ha decretado y el consejo sancionado lo siguiente.
+La asamblea extraordinaria del Estado libre de Costa Rica considerando I° Que el primer punto de la convocatoria de 6 de julio del presente año fue emitido para arvitrar medios suficientes a cubrir el presupuesto de gastos de la administración, y amortizar gradualmente la deuda pública: 2. Que la ley de 24 de mayo de 828 ha sido en parte impracticable, por dificultades que se han presentado. 3. Que no siendo fácil la exacción del tanto de alcabala impuesta a los vendedores de ganados, bestias etc. prevenida por la misma ley, porque a las veces se efectúan los contratos entre particulares sin previa noticia: 4. Que prescindiendo de estos derechos, se alivia el pueblo en esta parte, pudiendo ser grabados por otra, los dueños de carnicerías sin perjuicio: 5. Que a los cosecheros de tabaco se les ha aumentado el valor del fruto, ha tenido a bien decretar y decreta.
+Art 1. Los vendedores de fincas rústicas y urbanas pagarán, de cualquier cuantía, un cuatro por ciento de alcabala; ya lo hagan con escritura pública o sin ella.
