@@ -1,0 +1,2 @@
+Artículo 6°-A las sesiones de la Comisión de la Actividad Lechera podrán ser invitados, con derecho a voz, representantes de otras instituciones especializadas en el campo de la actividad lechera y, en general, todas aquellas personas a quienes la Comisión estime conveniente escuchar.
+La Comisión dará audiencia a la Cámara Nacional de Comerciantes Detallistas cuando se vayan a discutir aspectos de la comercialización de los productos de la actividad lechera.
