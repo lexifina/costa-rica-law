@@ -1,0 +1,1 @@
+Artículo 11.-La recogida de residuos sólidos será establecida por la Sección de Recolección de Basura con la frecuencia que considere oportuno, y a la hora que determine. Todo cambio de horario y frecuencia será hecho público y con la antelación suficiente.

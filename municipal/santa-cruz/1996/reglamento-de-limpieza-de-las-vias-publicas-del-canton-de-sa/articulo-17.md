@@ -1,0 +1,1 @@
+Artículo 17.-Para desechos de origen industrial y mercados, se recomiendan el uso de RSP con una capacidad de 100 a 200 litros máximo, o bien en bolsa plásticas. Clínicas deben usar solamente RSP. Se recogerán un máximo de 2000 litros.

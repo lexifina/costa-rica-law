@@ -1,0 +1,1 @@
+Artículo 26.-Los residuos sólidos de establecimientos comerciales, industriales u de otro tipo que recolectados por la sección de recolección , podrán llevarse al relleno sanitario, previo pago de la tasa que corresponda."

@@ -1,0 +1,1 @@
+Artículo 8°-Todos los locales comerciales, en que por naturaleza de sus actividades se produzcan desechos de diferente índole, deberán tener recipientes apropiados para que el público deposite en ellos los mismos.

@@ -1,0 +1,1 @@
+Artículo 12.-La Sección de recolección remitirá la basura doméstica. Igualmente retirará los residuos provenientes de los establecimientos comerciales, industriales, de Instituciones Públicas, Clínicas.

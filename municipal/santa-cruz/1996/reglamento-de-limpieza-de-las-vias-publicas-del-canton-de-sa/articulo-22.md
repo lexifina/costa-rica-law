@@ -1,0 +1,1 @@
+Artículo 22.-En las industrias, clínicas y además centros públicos o privados, la Sección de Recolección procederá a retirar los desechos sólidos; pero no el barrido y limpieza del lugar donde se encontraban los desechos en sus respectivos recipientes.

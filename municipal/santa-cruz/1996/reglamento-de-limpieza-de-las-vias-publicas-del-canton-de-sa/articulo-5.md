@@ -1,0 +1,1 @@
+Artículo 5°-Todos los negocios o quioscos ubicados en la vía pública deb<:rán tener receptáculos para basura y mantener permanentemente barridos y limpios los alrededores de los mismos. Si no se cumple con ésta disposición se podrá cancelar el correspondiente permiso de funcionamiento.

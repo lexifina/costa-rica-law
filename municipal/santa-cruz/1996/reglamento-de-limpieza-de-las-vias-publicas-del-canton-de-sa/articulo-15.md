@@ -1,0 +1,1 @@
+Artículo 15.-Los desechos de establecimientos comerciales, industriales, de instituciones públicas y otros, deben envolverse en bolsas plásticas y otros, y luego disponer éstas en los RSP. Los objetos punzo cortantes deberán envolverse en cartones o en ese material consistente.
