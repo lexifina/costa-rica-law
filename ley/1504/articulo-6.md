@@ -1,4 +1,1 @@
-Artículo 6º.- Todos los trabajadores al servicio de la Junta, que
-estén obligados a serlo, deben continuar como asegurados del Régimen de
-Invalidez, Vejez y Muerte que tiene establecido la Caja Costarricense de
-Seguro Social.
+Artículo 6º.- Todos los trabajadores al servicio de la Junta, que estén obligados a serlo, deben continuar como asegurados del Régimen de Invalidez, Vejez y Muerte que tiene establecido la Caja Costarricense de Seguro Social.
