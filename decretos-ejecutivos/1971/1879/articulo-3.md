@@ -1,0 +1,1 @@
+Artículo 3º.- Modifíquese el artículo 1º del Decreto Ejecutivo Nº 7 de 12 de setiembre de 1968, debiendo entenderse que en tanto no se emita la reglamentación a que se refiere el artículo siguiente, el personal de los Cuerpos de Bomberos continuará disfrutando del pago adicional que resulte del trabajo efectuado en horas inhábiles.

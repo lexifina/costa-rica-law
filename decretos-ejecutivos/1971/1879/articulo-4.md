@@ -1,0 +1,1 @@
+Artículo 4º.- En un plazo de 90 días, contado a partir de la publicación del presente decreto, el Ministerio de Trabajo y Bienestar Social, hará la reglamentación correspondiente, debiendo oir a las partes interesadas.

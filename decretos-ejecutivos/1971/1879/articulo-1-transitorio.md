@@ -1,0 +1,2 @@
+Transitorio: En tanto no se dicte la reglamentación a que se refiere el artículo 4º del presente decreto, los Miembros Permanentes de los Cuerpos de Bomberos, sin perjuicio de la protección que se les otorga en este decreto, continuarán laborando sujetos a las condiciones de trabajo que han estado vigentes hasta el presente.
+Dado en la Casa Presidencial.- San José, a los treinta días del mes de julio de mil novecientos setenta y uno.
