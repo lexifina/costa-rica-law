@@ -1,0 +1,1 @@
+Art. 13. —La unidad de medida para el peso del oro, la plata, las perlas, los diamantes y demás metales y materias de alto precio, así como para las sustancias que entran en las manipulaciones químicas y de la farmacia, es el gramo, que equivale al peso de un centímetro cúbico de agua destilada.
