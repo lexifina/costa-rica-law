@@ -14,3 +14,4 @@ Reforma total al Reglamento Sesiones Acuerdos y Comisiones Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-17 | la propia norma |
+| 2 | 2000-05-03 | Reglamento municipal 121 (2000-05-03) |
