@@ -1,0 +1,4 @@
+SM-832.—El Concejo Municipal del cantón de Goicoechea en sesión ordinaria N° 32-2000, celebrada el día 7 de agosto de 2000, articulo 30, inciso b) por unanimidad y con carácter firme aprobó adición dictamen N° 8-2000 de la Comisión de Hacienda y Presupuesto, en lo que interesa textualmente dice:
+"Oficio SM-501-00 26-5-2000 enviado por la secretaría municipal, incluyendo solicitud de la señora Marta E. Gutiérrez Salazar. secretaria de la Mujer Trabajadora SITMLTSAJ, para presupuestar las becas por diez meses.
+Esta comisión acuerda recomendar al Concejo, modificar el Reglamento de Becas, Artículo 3, Inciso c), de la siguiente manera:
+La beca se otorga por el curso lectivo correspondiente. En caso de desear seguir optando por este beneficio debe renovarse la solicitud con todos los requisitos cada año".
