@@ -1,6 +1,7 @@
 Artículo 6º—Conformación del Consejo Social de Gobierno. Conformarán el Consejo Social de Gobierno:
 a) El Presidente de la República
-b) El Ministro coordinador del Área Social
+b) El Ministro coordinador del Área Social o la Primera Vicepresidenta de la República, en ausencia del primero.
+(Así reformado por el artículo 3° del Decreto Ejecutivo N° 31052 de 16 de diciembre de 2002.)
 c) El Coordinador del área económica
 d) El Ministro de la Presidencia
 d) El Ministro de Planificación Nacional y Política Económica

@@ -15,3 +15,4 @@ Determina la conformación del área social de gobierno.
 | --- | --- | --- |
 | 1 | 2002-07-04 | la propia norma |
 | 2 | 2002-08-14 | Decreto Ejecutivo 30656 (2002-08-14) |
+| 3 | 2002-12-16 | Decreto Ejecutivo 31052 (2002-12-16) |
