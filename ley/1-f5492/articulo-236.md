@@ -1,0 +1,1 @@
+Artículo 236. Junto con las copias de que habla el artículo anterior, se remitir también al Ministerio otra copia certificada del inventario, que deber autorizarlo el Juez y ser firmado por las mismas personas de que se hace referencia en el mismo artículo anterior.

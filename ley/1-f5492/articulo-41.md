@@ -1,0 +1,1 @@
+Artículo 41. La anotación preventiva de que trata el caso 3° del art. 40 de la ley, no podrá verificarse hasta que, para la ejecución de la sentencia, se manden embargar bienes inmuebles del condenado por ella, en la forma prevenida respecto al juicio ejecutivo.

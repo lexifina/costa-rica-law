@@ -1,0 +1,1 @@
+ARTÍCULO 222. Las certificaciones de cada especie se extenderán con arreglo a los modelos números 15, 16, 17 y 18, con las adiciones que fueren necesarias, según la calidad y circunstancias de los asientos que deban comprender.

@@ -1,0 +1,1 @@
+Artículo 230. La visita prevenida en el artículo anterior, se practicar con citación del Registrador, si existiere, o de sus herederos, o personas que le representen, así como del sustituto que ejerciere las funciones de Registrador.

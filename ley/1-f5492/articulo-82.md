@@ -1,0 +1,1 @@
+ARTÍCULO 82. Siempre que se litigue sobre la ineficacia de alguna cancelación, se observar lo dispuesto acerca de las inscripciones, en los artículos 29 y 30. La nota de la demanda de ineficacia se pondrá al margen de la cancelación que la misma demanda tenga por objeto.

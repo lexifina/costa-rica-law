@@ -1,0 +1,1 @@
+ARTÍCULO 228.Un reglamento especial determinar la organización interior del registro, su división en secciones, los negocios que han de corresponder a cada una, los derechos, atribuciones y deberes del suplente del Registrador, de los oficiales de los auxiliares y de los subalternos, y las demás disposiciones necesarias para el pronto y acertado despacho de los expedientes.

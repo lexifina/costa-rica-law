@@ -1,0 +1,1 @@
+Artículo 274. Siempre que deba aplicarse lo dispuesto en el anterior artículo, lo pedir el interesado, acompañando a su solicitud una certificación de la autoridad política o judicial superior que exista en el lugar donde está‚ situada la finca, acerca del valor de ella y la circunstancia de ser sola e independiente de otras.

@@ -1,0 +1,1 @@
+Artículo 113. El Registrador hará la inscripción hipotecaria de los inmuebles dotales estimados, prevenida en el art. 145 de la ley, aunque la carta de dote en cuya virtud se pida la inscripción de propiedad de la misma, no contenga estipulación expresa de dicha hipoteca.

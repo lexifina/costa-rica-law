@@ -1,0 +1,1 @@
+Artículo 76. Cuando el Registrador suspenda la cancelación por dudar de la competencia del Juez que la haya proveído, lo comunicar por escrito a la parte interesada para que pueda, si quisiere, comparecer ante la Sala de 2¦ instancia de la Corte, en el término de diez días, presentándole el documento en cuya virtud haya pedido dicha cancelación.

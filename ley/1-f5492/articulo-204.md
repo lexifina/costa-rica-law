@@ -1,0 +1,1 @@
+ARTÍCULO 204. Cuando se hubiere de nombrar algún Registrador interino por hallarse suspenso el propietario, se elegir siempre que sea posible, persona de arraigo y en quien concurran los requisitos que exige la ley, para desempeñar el cargo, pero en ningún caso podrá‚ este recaer en quien no sea letrado.

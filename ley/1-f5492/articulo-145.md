@@ -1,0 +1,1 @@
+ARTÍCULO 145. El registro estar abierto todos los días no feriados, seis horas en cada uno, los cuales señalar previamente el Registrador con aprobación del Ministro de Gobernación, anunciándolo por medio del Boletín Oficial, y de carteles que mandar fijar a la puerta del edificio del mismo registro. Se entiende por d¡as feriados, aquellos que no lo sean para los tribunales.

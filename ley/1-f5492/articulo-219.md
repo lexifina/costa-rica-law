@@ -1,0 +1,1 @@
+ARTÍCULO 219. Siempre que deba comprenderse en las certificaciones algún asiento de presentación, por hallarse pendiente de inscripción, el título a que se refiera, se copiar literalmente, cualquiera que sea la forma en que se extienda el resto de la misma certificación.

@@ -1,0 +1,1 @@
+Artículo 50. El Registrador no solamente negar la inscripción de todo título que contenga faltas que la impidan, tomando no anotación preventiva, conforme a lo dispuesto en el artículo 50 de la ley, sino que cuando resultare del mismo título haberse cometido algún delito, dar parte al Juez, remitiéndole el documento presentado.

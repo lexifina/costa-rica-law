@@ -1,0 +1,1 @@
+ARTÍCULO 117. La hipoteca que constituya el marido sobre sus propios bienes en seguridad de la devolución de los muebles semovientes entregados como dote inestimada, como parafernales, aumento de dote de igual especie, se inscribir por separado de la que se constituya sobre los inmuebles pertenecientes a la misma dote.

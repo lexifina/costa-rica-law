@@ -1,0 +1,1 @@
+Artículo 53. Cuando fuere de anotación preventiva el primer asiento relativo a una finca, que deba hacerse en el registro de la propiedad, se observar lo dispuesto en el art. 18 empezando por la primera anotación que se hubiere hecho de la finca.

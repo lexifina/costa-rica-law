@@ -1,0 +1,1 @@
+Artículo 13. Presentado el título en el registro y extendido en el acto el asiento de presentación, el Registrador devolver el documento al interesado, a fin de que acuda con ‚l a pagar el derecho de hipotecas, si lo devengare el acto.

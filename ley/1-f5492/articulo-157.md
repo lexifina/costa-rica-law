@@ -1,0 +1,1 @@
+ARTÍCULO 157. El Registrador tomando en consideración el movimiento que tuviere la propiedad, destinar a cada finca el número de hojas que conceptúe necesario, poniendo a la cabeza de todas, a medida que empezare a llenarlas, el número de la misma finca.

@@ -1,0 +1,1 @@
+ARTÍCULO 89. El registrador no inscribir ninguna hipoteca sobre bienes diferentes, afectos a una misma obligación sin que, por convenio entre las partes por mandato del Juez en su caso, se determine previamente la cantidad de que cada finca deba responder.

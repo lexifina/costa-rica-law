@@ -1,0 +1,2 @@
+De las hipotecas por bienes reservables y de peculio.
+Artículo 124. El inventario y tasación de bienes reservables que deber presentar el padre al Juzgado, con objeto de constituir la hipoteca legal a que está obligado, conforme a lo prevenido en el número 1° artículo 164 de la ley, serán los que judicial extrajudicialmente, se hubieren practicado, y sino existieren de esta especie, los que el padre forme por sí, haciendo constar el valor de los bienes, con testimonio de la adjudicación que de ellos se le hubiere hecho, y en su defecto, por certificación de peritos.
