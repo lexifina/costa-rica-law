@@ -1,0 +1,1 @@
+Artículo 17.—La fijación de cuotas y porcentajes máximos de que hablan los tres artículos anteriores, igualmente que las modificaciones a los mismos, deberán ser comunicados por escrito a los beneficiadores, exportadores y torrefactores.

@@ -1,0 +1,1 @@
+Artículo 48.—La inscripción de contratos de compra - venta de café para la exportación se iniciará el primero de abril inmediato anterior al año cafetero a que corresponden y se cerrará el último de setiembre del respectivo año cafetero. Queda la Junta Directiva facultada para anticipar la fecha de inicio o prorrogar la de cierre.

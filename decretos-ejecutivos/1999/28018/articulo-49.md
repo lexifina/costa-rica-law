@@ -1,0 +1,1 @@
+Artículo 49.—Los contratos de compra - venta de café para la exportación y de compra - venta de café para la exportación por consignación, una vez aprobados por el Director Ejecutivo, se inscribirán por orden de presentación y con numeración seguida, abierta para cada cosecha. Los datos contenidos en dichos contratos no podrán ser divulgados públicamente por el Instituto.

@@ -1,0 +1,1 @@
+Artículo 103.—Los dictámenes de la Comisión de Peritos Catadores del Café. servirán de fundamento a las partes, a la Junta Directiva o Dirección Ejecutiva para dirimir los conflictos que se presenten.

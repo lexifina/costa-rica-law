@@ -1,0 +1,1 @@
+Artículo 93.—El Auditor del Instituto del Café o en su defecto el Subauditor. podrán delegar sus funciones y atribuciones en otros servidores y empleados de la Unidad para su normal funcionamiento, salvo cuando su intervención personal fuere legalmente obligatoria.

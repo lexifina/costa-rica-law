@@ -1,0 +1,1 @@
+Artículo 98.—Los balances y estados del Instituto deberán ser firmados por el Director Ejecutivo y el Gerente de Administración y Finanzas, siendo solidariamente responsables por la exactitud y corrección de esos documentos.

@@ -1,0 +1,1 @@
+Artículo 23.—La Junta de Liquidaciones deberá celebrar la primera sesión el primer lunes de julio del año en que hayan sido nombrados sus miembros, debiendo nombrar un Presidente y un Secretario e igualmente acordará la periodicidad de sus reuniones y se tomara nota de los fiscales acreditados. La Junta de Liquidaciones tendrá su sede en el Instituto.

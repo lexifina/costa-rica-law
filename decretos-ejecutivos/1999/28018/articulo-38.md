@@ -1,0 +1,1 @@
+Artículo 38.—Para todos los efectos, se considerará el domicilio legal de la firma beneficiadora, como lugar de pago de las liquidaciones provisionales trimestrales o extraordinarias, así como de la definitiva.

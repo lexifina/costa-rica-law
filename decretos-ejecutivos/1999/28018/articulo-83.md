@@ -1,0 +1,2 @@
+Artículo 83.—El quorum de las sesiones se formará con cuatro miembros. El Director Ejecutivo o el Subdirector Ejecutivo y el Auditor o el Subauditor deberán asistir a las sesiones- con voz pero sin voto.
+De las sesiones de la Junta Directiva deberán levantarse actas, que se pasarán a un libro, para tal efecto legalizado por la Contraloría General de la República y que serán firmadas por los miembros que actúen como Presidente y Secretario de la sesión en que se aprueben las mismas.

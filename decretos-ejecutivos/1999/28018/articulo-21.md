@@ -1,0 +1,1 @@
+Artículo 21.—Los miembros suplentes de la Junta de Liquidaciones asistirán a todas las sesiones de ésta con voz pero sin voto, salvo cuando sustituyan al respectivo propietario, en cuyo caso tendrán voto.

@@ -1,0 +1,2 @@
+Artículo 26.—Además de las Liquidaciones provisionales trimestrales ordinarias y pagos correspondientes, los beneficiadores deberán efectuar liquidaciones provisionales extraordinarias y sus respectivos pagos, en el momento en que las ventas efectivas acumuladas alcancen el cien por ciento de la totalidad del café recibido.
+Por ventas efectivas se entenderán aquellas cuyo pago hubiere recibido el beneficiador o fuere legalmente exigible por éste.

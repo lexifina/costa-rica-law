@@ -1,0 +1,1 @@
+Artículo 66.—Para darle cumplimiento al Artículo 98 de la ley, el Instituto del Café anualmente determinará de acuerdo con estudios técnicos, el monto de gastos por unidad de 46 kg. que puede deducir el exportador y que formara parte de la conversión del precio rieles a FOB.

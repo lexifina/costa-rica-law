@@ -1,0 +1,1 @@
+Artículo 71.—El ejercicio financiero del Instituto se extenderá del primero de octubre al treinta de setiembre, al final de cada ejercicio financiero se hará una liquidación completa de sus operaciones, las cuales una vez auditadas por una auditoría externa, pasarán a conocimiento del Congreso Nacional Cafetalero y de la Contraloría General de la República.

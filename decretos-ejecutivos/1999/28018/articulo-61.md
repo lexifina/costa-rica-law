@@ -1,0 +1,1 @@
+Artículo 61.—Los exportadores deben ejecutar los contratos con el mismo café. recibido de los beneficiadores, cuando se trate de exponaciones de café por marcas inscritas a nombre de éstos. En estos casos el ICAFE deberá mantener a disposición del beneficiador una muestra del café exponado.

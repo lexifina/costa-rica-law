@@ -1,0 +1,1 @@
+Artículo 9°—El café deberá recibirse en los beneficios o sus recibidores en medidas de un doble hectolitro, doble decalitro o pemalitro. a menos que la Junta Directiva resuelva lo contrario en cuanto al lugar de recibo.

@@ -1,0 +1,1 @@
+Artículo 63.—El tamaño de las muestras tomadas por el ICAFE obedecerá a estudios técnicos, dichas muestras permanecerán en custodia del Instituto por un plazo de tres meses, transcurrido ese plazo, se notificara al interesado. Pasados ciento ochenta días sin que las muestras se retiren, pasaran a ser propiedad del Instituto del Café de Costa Rica.

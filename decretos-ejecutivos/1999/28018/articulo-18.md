@@ -1,0 +1,1 @@
+Artículo 18.—Las ventas de café de consumo nacional de acuerdo a lo previsto en el artículo 33 de la ley, que efectúen los beneficiadores a torrefactores o compradores comerciantes con el mercado nacional como destino, se regirán por las mismas normas aplicables a los contratos de exportación en lo referente a informes de venta, precio, rescisiones y controles de ejecución.

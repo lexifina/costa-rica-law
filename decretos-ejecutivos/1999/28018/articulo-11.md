@@ -1,0 +1,2 @@
+Artículo 11.—Los beneficiadores deberán presentar al Instituto un informe quincenal sobre la cantidad de café ingresado a sus instalaciones. especificando el propio y el comprado, cantidad de café maduro, de café verde, café bellota u otra calidad, debiendo desglosarlo por zonas, en el caso de haberlas. El informe deberá remitirse a más tardar dentro de los cinco días hábiles siguientes a la quincena de que se trate.
+Para los efectos del informe a que se refiere el párrafo anterior, se tendrá como café propio el producido en las fincas del beneficiador.

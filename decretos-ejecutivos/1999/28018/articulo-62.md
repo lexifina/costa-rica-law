@@ -1,0 +1,1 @@
+Artículo 62.—A fin de cumplir con lo previsto en el anículo 89 de la ley, la Dirección Ejecutiva podrá ejercer los controles que considere oponunos de previo a que el exponador. torrefactor o comprador comerciante reciba el café por pane del beneficiador.
