@@ -1,0 +1,1 @@
+Artículo 17.—Uso de los Servicios Bibliotecarios. Los estudiantes podrán hacer uso de los servicios bibliotecarios. Tal servicio se prestará siempre que se sigan los lineamientos propios de la biblioteca de la unidad docente respectiva.

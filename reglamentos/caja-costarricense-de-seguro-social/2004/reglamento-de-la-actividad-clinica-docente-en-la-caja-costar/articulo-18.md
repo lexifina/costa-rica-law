@@ -1,0 +1,2 @@
+Artículo 18.—Sobre la Alimentación, Transporte y Parqueo. Los estudiantes de pregrado y grado no tendrán derecho a alimentación, transporte, ni parqueo en la Unidad docente donde realicen las prácticas.
+Los estudiantes de internado y posgrado tendrán derecho a alimentación (excepto en atención primaria) y al área de descanso. Tendrán espacio en el parqueo cuando las posibilidades de la Institución lo permitan.

@@ -1,0 +1,1 @@
+Artículo 31.—A unidades docentes: Los campos docentes se suspenderán por un año cuando el Consejo Académico Local incumpla, previa investigación, en dos oportunidades o más los deberes del presente reglamento.

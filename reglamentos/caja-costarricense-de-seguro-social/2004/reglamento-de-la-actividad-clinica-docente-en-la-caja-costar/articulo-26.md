@@ -1,0 +1,1 @@
+Artículo 26.—Actualización de Costos: La Dirección Financiero Contable de la Caja Costarricense de Seguro Social, por medio del Departamento de Costos, actualizará el valor del campo docente semestralmente e informará al CENDEISSS.

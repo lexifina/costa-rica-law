@@ -1,0 +1,1 @@
+Artículo 14.—Identificación y Presentación Personal: Los estudiantes deben usar ropa adecuada y presentación personal de acuerdo con los lineamientos institucionales. Deben usar gabacha con el logotipo y el gafete de la entidad docente a la que pertenecen.

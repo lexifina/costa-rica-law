@@ -1,0 +1,18 @@
+Artículo 2º—Conceptos: Para los efectos del presente reglamento se entiende por:
+CCSS o Caja: Caja Costarricense de Seguro Social.
+Campo Docente: Ámbito donde sin detrimento de la calidad de atención al usuario, un estudiante puede desarrollar actividades clínicas o de apoyo clínico con fines de aprendizaje, bajo la supervisión profesional de docentes del propio ámbito asistencial, entendiéndose como hospital, clínica, centros y áreas de salud, o cualquier otro que la Institución establezca.
+Capacidad Instalada: La capacidad que tiene una unidad docente de recibir estudiantes tomando en cuenta los siguientes criterios: número de pacientes, giro cama, servicios aptos para la docencia según carrera y curso, número de funcionarios, experiencia del docente, número de estudiantes por docente, objetivos de la práctica, infraestructura, recursos materiales para la docencia y cualquier otra variable.
+Carrera base: Programa de estudios que imparte una Universidad para que un individuo obtenga un título de grado. De la anterior pueden originarse diferentes especialidades relacionadas a ésta.
+CENDEISSS: Centro de Desarrollo Estratégico e Información en Salud y Seguridad Social.
+Consejo Académico Local: Órgano administrador de la actividad clínica docente de la unidad.
+Consejo Superior de Campos Docentes: Órgano asesor de la Dirección Ejecutiva del CENDEISSS, que emite recomendaciones respecto a las normas y políticas rectoras de la actividad clínica docente.
+Coordinador Consejo Académico Local: Profesional que labora en la Unidad Docente y que coordina el Consejo Académico Local por designación de la Dirección de la Unidad.
+Coordinador Docente: Es un profesional que labora en una Unidad Docente y que tiene un nombramiento universitario como profesor, cuya función es coordinar las acciones docentes de un curso específico.
+EBAIS: Equipo Básico de Atención Integral en Salud.
+Entidad Docente: Institución de educación superior pública o privada, debidamente autorizada por el Consejo Nacional de Rectores (CONARE) o el Consejo Nacional de Educación Superior Privada (CONESUP) para formar o capacitar recursos humanos en ciencias de la salud y afines.
+Estudiante: Alumno regular de una Institución de Educación Superior, de pregrado, grado o posgrado.
+Estudiante de posgrado: Profesional debidamente colegiado, con todos los derechos y deberes inherentes a su título, que cumple con el programa académico de posgrado de una institución de educación superior con el objetivo de obtener un título de especialista. Incluye al médico residente con los derechos que le confiere el artículo 9 de la Ley 6836 (Ley de Incentivos a los Profesionales en Ciencias Médicas).
+Horas Docentes: Período de tiempo permitido a un profesional en ciencias de la salud para desarrollar procesos de enseñanza y aprendizaje en las unidades docentes de la Institución, concomitantemente con la práctica clínica.
+Interno Universitario: Estudiante regular de último año de carrera que se incorpora a un programa de aprendizaje, cuyo elemento central es el entrenamiento clínico - académico en una unidad docente, bajo la supervisión de un docente universitario. Para la carrera de medicina tendrá una duración de 52 semanas como máximo iniciándose en enero de cada año y finalizando en diciembre del mismo. Para las carreras de microbiología y farmacia tendrá una duración de 26 semanas como mínimo, iniciándose en enero y julio de cada año.
+Práctica Clínica Extraordinaria: Período de tiempo en el cual el estudiante realiza práctica clínica en horario no tradicional, bajo la supervisión de un profesional docente.
+Unidad Docente: Unidad de la CCSS en donde se realizan actividades de enseñanza - aprendizaje en las diferentes disciplinas.

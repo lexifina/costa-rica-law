@@ -1,0 +1,1 @@
+Artículo 15.—Regalías. Los estudiantes no deberán otorgar ni recibir ningún tipo de estipendio o beneficio por parte de los pacientes, profesionales en ciencias de la salud o funcionarios administrativos.

@@ -1,0 +1,6 @@
+CAPÍTULO XII
+De las apelaciones
+Artículo 32.—Por entidades docentes: Podrán apelar los actos finales de los Consejos Académicos Locales, cuando no les sea favorable su resolución o se contravengan los términos del presente reglamento.
+Podrán interponer Recurso de Revocatoria con Apelación en Subsidio, ante el Consejo Académico Local, dentro del término de 3 días hábiles, contados a partir del día siguiente de la comunicación del acto; invocando las razones de hecho y de derecho a su favor.
+El Consejo Académico Local resolverá en un plazo de cinco días hábiles posteriores al recibo del recurso. De ser declarado sin lugar se dará trámite al Recurso de Apelación, interpuesto en forma subsidiaria, ante la Dirección Ejecutiva del CENDEISSS quien lo discutirá ante el Consejo Superior de Campos Docentes en la reunión ordinaria siguiente.
+La Dirección Ejecutiva contará con un plazo de cinco días hábiles para resolver y comunicar a la entidad docente lo resuelto, lo cual carecerá de recurso alguno. Si se declara con lugar el Recurso de Apelación competirá al Consejo Académico Local gestionar las medidas correctivas o sancionatorias que considere pertinente. Si la resolución de la Dirección Ejecutiva del CENDEISSS lo declarare sin lugar se procederá a archivar el expediente.

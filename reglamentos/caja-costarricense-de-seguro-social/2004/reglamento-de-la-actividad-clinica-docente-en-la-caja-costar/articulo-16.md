@@ -1,0 +1,1 @@
+Artículo 16.—Permanencia en el Centro Asistencial. Los estudiantes podrán permanecer en el centro asistencial solamente durante las horas programadas para su práctica, salvo que cuenten con la autorización respectiva. Así mismo deberán limitar sus actividades dentro de la unidad docente en salud para los fines que fueron programados.

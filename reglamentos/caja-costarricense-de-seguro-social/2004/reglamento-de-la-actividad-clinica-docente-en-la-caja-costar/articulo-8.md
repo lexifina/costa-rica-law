@@ -1,0 +1,2 @@
+Artículo 8º—De las sesiones. El Consejo Académico Local se reunirá una vez al mes y extraordinariamente en caso necesario. Sesionar con la mayoría simple de sus miembros. Deberá dejar constancia de los acuerdos tomados, mediante actas que garanticen su verificación posterior.
+Los acuerdos se tomarán por mayoría simple. En caso de empate, el Coordinador del Consejo Académico Local resolverá con doble voto.

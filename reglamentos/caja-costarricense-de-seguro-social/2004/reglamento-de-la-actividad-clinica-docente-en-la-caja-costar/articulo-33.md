@@ -1,0 +1,1 @@
+Artículo 33.—Por unidades docentes: En caso de conflicto, los Consejos Académicos Locales podrán recurrir a la Dirección Ejecutiva del CENDEISSS, quien resolverá en un plazo de cinco días hábiles, en una única instancia y sin caber recurso alguno, con la asesoría del Consejo Superior de Campos Docentes.

@@ -1,0 +1,1 @@
+Artículo 10.—Utilización de equipo y otros: Los estudiantes y profesores podrán hacer uso del equipo, materiales, ropa hospitalaria e instalaciones de la CCSS, directamente relacionados con la normal utilización del campo docente, de conformidad con la normativa Institucional y con la disponibilidad de los mismos.
