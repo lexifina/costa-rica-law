@@ -1,0 +1,3 @@
+ARTÍCULO XVIII.
+Para la construcción, conservación y explotación del Canal, tendrá derecho la Asociación á tomar gratuitamente de los terrenos pertenecientes al Estado, cualesquiera materiales que en ellos se encuentren, consistentes en productos espontáneos de la tierra; en particular, las maderas de construcción y las que puedan servir para combustible; y la cal, piedra, barro para ladrillos, y tierra para los rellenos que hayan de hacerse.
+Por lo que hace á los materiales de la clase antes expresada, que existan en terrenos de particulares, la Asociación gozará á este respecto de los mismos derechos y privilegios, de que por las leyes goza el Estado.

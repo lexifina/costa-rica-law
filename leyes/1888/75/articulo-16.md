@@ -1,0 +1,2 @@
+ARTÍCULO XVI.
+Los terrenos baldíos que pertenezcan al Estado serán dados á la Asociación sin indemnización alguna; y en cuanto á los de propiedad particular, queda á cargo del Estado su expropiación, si la Asociación lo pidiere. La indemnización á que conforme á las leyes de Costa Rica haya lugar en este caso, se pagará por la Asociación, con más el valor de los gastos y costas del expediente respectivo, de modo que el Tesoro Nacional
