@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio Municipalidad de Poás.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-27 | la propia norma |
+| 2 | 2004-07-13 | Reglamento municipal 113 (2004-07-13) |
