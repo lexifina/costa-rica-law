@@ -1,9 +1,9 @@
-Artículo 4º.—Para la ejecución y debida coordinación interinstitucional del presente Programa, se establece la Comisión del Programa de Compensación Social integrada de la siguiente forma:
-1. Un representante de la Segunda Vicepresidenta de la República.
-2. Un representante del Presidente Ejecutivo del Instituto Nacional de Vivienda y Urbanismo.
-3. Un representante del Presidente Ejecutivo del Instituto Mixto de Ayuda Social.
-4. Un representante del Presidente Ejecutivo del Instituto Costarricense de Acueductos y Alcantarillados.
-5. Un representante del Presidente Ejecutivo del Instituto de Desarrollo Agrario.
-6. Un representante de la Dirección General de Desarrollo Social y Asignaciones Familiares.
-La Comisión será coordinada por el representante de la Segunda Vicepresidenta de la República, adoptará los acuerdos necesarios para su funcionamiento, y de sus integrantes nombrará un secretario.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 24912 del 15 de enero de 1996)
+Artículo 4º.—Para la ejecución, debida coordinación interinstitucional del Programa, se establece la Comisión del Programa de Compensación Social, integrada de la siguiente forma:
+1. Un representante designado por la Segunda Vicepresidencia de la República.
+2. Un representante designado por el Ministerio de Vivienda y Asentamientos Humanos.
+3. Un representante designado por el Presidente Ejecutivo del Instituto Nacional de Vivienda y Urbanismo.
+4. Un representante designado por el Presidente Ejecutivo del Instituto de Desarrollo Agrario.
+5.-Un representante designado por el Presidente Ejecutivo del Instituto Costarricense de Acueductos y Alcantarillado.
+6. Un representante designado por el Presidente Ejecutivo del Instituto Mixto de Ayuda Social y Asignaciones Familiares.
+La comisión será presidida y coordinada por el representante designado por la Segunda Vicepresidenta de la República, adoptará los acuerdos necesarios para su funcionamiento y se designará los integrantes y las funciones de la Secretaría Técnica del Programa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 25481 del 24 de julio de 1997)
