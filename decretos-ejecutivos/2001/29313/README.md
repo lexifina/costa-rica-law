@@ -14,3 +14,4 @@ Modifica Aprueba Tarifas Trasbordo Vehículos Ferry Puntarenas y Paquera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-23 | la propia norma |
+| 2 | 2002-01-18 | Decreto Ejecutivo 30179 (2002-01-18) |

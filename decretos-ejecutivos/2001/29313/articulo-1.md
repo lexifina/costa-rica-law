@@ -21,3 +21,4 @@ Vehículo carga 2 ejes 6.000 7.900
 Vehículo carga 3 ejes 7.000 9.100
 Vehículo carga 4 ejes 8.500 10.700
 Vehículo carga 5 ejes 11.000 13.500"
+(Modificadas las tarifas por el artículo 1 del Dereto Ejecutivo N° 30179 de 18 de enero del 2002)
