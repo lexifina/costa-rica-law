@@ -1,0 +1,1 @@
+Artículo 6° Una vez negociado y contratado este empréstito, deberá venir a la Asamblea Legislativa para su debida aprobación, de acuerdo con el inciso 15) del artículo 121 de la Constitución Política.
