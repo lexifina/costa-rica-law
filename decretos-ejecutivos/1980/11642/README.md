@@ -13,3 +13,4 @@ Aprueba Norma Oficial Método Obtención Muestras Ensayos Químicos Cuero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-08-01 | la propia norma |
+| 2 | 1980-08-01 | Decreto Ejecutivo 25728 (1996-12-10) |
