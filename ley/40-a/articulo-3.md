@@ -1,0 +1,1 @@
+Artículo 3°—Los extranjeros no pueden ser obligados al servicio militar; pero los domiciliados, a menos que prefieran salir del país, podrán ser compelidos, en las mismas condiciones que los nacionales, al servicio de policía, bomberos o milicia para la protección de la localidad de sus domicilios contra catástrofes naturales o peligros que no provengan de guerra.
