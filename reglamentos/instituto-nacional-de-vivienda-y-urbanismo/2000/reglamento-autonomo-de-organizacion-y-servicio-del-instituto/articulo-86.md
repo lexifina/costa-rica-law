@@ -1,0 +1,1 @@
+Artículo 86.—Si el denunciado no cumple lo dispuesto en el artículo anterior por motivos fehacientes de fuerza mayor, se le dará el mismo plazo para que alegue lo que a bien tenga, y no dejarlo en un estado de indefensión. En caso contrario se seguirá con el procedimiento hasta el final.

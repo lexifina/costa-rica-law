@@ -1,0 +1,2 @@
+Artículo 31.—Salvo impedimento grave, los servidores están en la ineludible obligación de laborar horas extraordinarias hasta por el máximo permitido por la ley, cuando necesidades imperiosas e impostergables del Instituto así lo requieran.
+En cada caso, el Instituto deberá comunicar a los servidores con anticipación la jornada extraordinaria que deben laborar, siempre y cuando ello sea posible. La negativa injustificada a laborar jornada extraordinaria tendrá como falta grave, para efectos de sanción.

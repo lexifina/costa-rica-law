@@ -1,0 +1,4 @@
+Artículo 13.—Además de lo contemplado en el artículo anterior y en otros de este reglamento, queda absolutamente prohibido a los servidores autorizados para conducir vehículos del Instituto:
+a) Conducir a velocidades superiores a las permitidas por las leyes o reglamentos de tránsito o incumplir sus disposiciones.
+b) Ceder la conducción del vehículo a otras personas, salvo razones muy calificadas o de fuerza mayor. El servidor que incurra en esta falta se hará acreedor a las mismas responsabilidades que tiene el conductor autorizado.
+c) Ocupar o permitir que se use el vehículo en actividades ajenas al servicio del Instituto, así como transportar a servidores o particulares que no tengan relación con el servicio que presta, excepto los casos que así lo obliguen o amerite, a requerimiento del funcionario responsable de la misión, por la índole o el propósito del viaje.

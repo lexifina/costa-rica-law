@@ -1,0 +1,3 @@
+Artículo 32.—Toda labor que se ejecute fuera de los límites señalados en los artículos 25 y 26 de este reglamento o durante los días inhábiles, será considerada como extraordinaria y se remunerará en cada caso conforme con lo dispuesto por la ley.
+En ningún caso se reconocerá labores extraordinarias ejecutadas ni se aplicará compensación, sin la autorización previa del Presidente Ejecutivo, del Gerente General o del Director del Area de Gestión de Administración y Finanzas. Dicha autorización deberá solicitarla el servidor por medio de su superior inmediato.
+Tampoco se reconocerá como tiempo extraordinario el requerido para subsanar los errores imputables al servidor, cometidos durante la jornada.

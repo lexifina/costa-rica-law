@@ -1,0 +1,1 @@
+Artículo 76.—La calificación semestral servirá, en cuanto a reconocimiento a los buenos servidores, como factor a considerar para: régimen méritos en los casos que corresponda, entrenamientos, ascensos, concesiones de permisos, reducciones forzosas de personal y otros.

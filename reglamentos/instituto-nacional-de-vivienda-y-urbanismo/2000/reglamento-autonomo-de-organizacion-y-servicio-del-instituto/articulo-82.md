@@ -1,0 +1,1 @@
+Artículo 82.—El Organo Director deberá garantizar en el procedimiento, el cumplimiento del debido proceso y absoluta confidencialidad en el seguimiento del mismo. Si alguno de los miembros del Organo Director cometiera indiscreción en lo pertinente, se tendrá como falta grave, de acuerdo al presente reglamento.

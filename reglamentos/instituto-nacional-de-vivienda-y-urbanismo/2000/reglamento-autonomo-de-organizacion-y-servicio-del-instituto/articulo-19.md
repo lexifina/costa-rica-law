@@ -1,0 +1,2 @@
+Artículo 19.—Los servidores del Instituto tienen derecho a que se les brinde la debida capacitación y formación, mediante cursos, seminarios, charlas, becas y otros. A estos efectos, se aplicará estrictamente la legislación específica vigente en esta materia.
+Los funcionarios que disfruten de beca para realizar cursos en el exterior y, por consiguiente, licencias con goce de salario, al concluir la actividad deben presentar ante su superior inmediato un informe de resultados y fotocopia fiel y exacta del certificado o título obtenido.

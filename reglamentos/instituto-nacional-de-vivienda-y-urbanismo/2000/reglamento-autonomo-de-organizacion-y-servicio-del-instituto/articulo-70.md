@@ -1,0 +1,1 @@
+Artículo 70.—El Instituto pagará a la Caja Costarricense del Seguro Social además de la cuota patronal, lo que corresponde a cada empleado por cuota obrera sobre los primeros cuatrocientos colones de su salario y el 1% sobre el exceso de ¢ 400,00 hasta ¢1.000,00.

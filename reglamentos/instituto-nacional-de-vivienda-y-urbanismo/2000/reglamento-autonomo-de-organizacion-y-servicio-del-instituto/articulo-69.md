@@ -1,0 +1,1 @@
+Artículo 69.—Los beneficios que reciben los trabajadores del Instituto provenientes del Fondo de Garantías y Jubilaciones y del Fondo de Enfermedad, se considerarán parte de sus garantías laborales y derechos adquiridos.

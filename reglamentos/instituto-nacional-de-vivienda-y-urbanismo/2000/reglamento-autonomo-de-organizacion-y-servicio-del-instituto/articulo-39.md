@@ -1,0 +1,1 @@
+Artículo 39.—El cómputo de los períodos a que se refiere el artículo anterior se hará aunque los servicios no se hayan prestado en forma continua. Se reconocerá asimismo, el tiempo laborado para cualquier otra dependencia del Estado.

@@ -1,0 +1,1 @@
+Artículo 110.—En caso de terminación de la relación de servicios, el interesado deberá plantear en tiempo el correspondiente reclamo en relación con los extremos que considere adeudados. Caso contrario, el Instituto declarará la prescripción legal, cuando proceda.

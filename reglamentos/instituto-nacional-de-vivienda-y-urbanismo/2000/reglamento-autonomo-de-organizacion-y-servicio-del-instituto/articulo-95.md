@@ -1,0 +1,2 @@
+Artículo 95.—El Proceso de Recursos Humanos dará audiencia al servidor por tres días hábiles siguientes a la fecha de notificación, en la segunda semana del mes siguiente, para el solo efecto de que aporte la justificación que corresponda, firmada por su jefe inmediato.
+Es entendido que, en todo caso, aunque se justifique la inasistencia a labores, se rebajará el salario correspondiente al período no laborado.

@@ -1,0 +1,1 @@
+Artículo 46.—Cuando no funcione el reloj marcador de asistencia a labores en alguno de los lugares de prestación de servicios, el Director de Área indicará la forma en que se llevará a cabo el control de asistencia y puntualidad.

@@ -1,0 +1,1 @@
+Artículo 83.—El Órgano Director tendrá bajo su responsabilidad la tramitación del procedimiento Ordinario Administrativo de conformidad con lo establecido en los artículos 308 siguientes y concordantes de la Ley General de la Administración Pública, quien una vez finalizado deberá hacer su recomendación a la Gerencia para que ésta dicte la resolución final.

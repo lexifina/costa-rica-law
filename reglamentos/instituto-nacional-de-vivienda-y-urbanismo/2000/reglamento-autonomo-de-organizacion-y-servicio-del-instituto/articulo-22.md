@@ -1,0 +1,1 @@
+Artículo 22.—Los servidores disfrutarán de un día libre con goce de salario, con motivo de su graduación por estudios de nivel medio o superior. La licencia se concederá el día correspondiente, no pudiendo trasladarse su disfrute para otra fecha.

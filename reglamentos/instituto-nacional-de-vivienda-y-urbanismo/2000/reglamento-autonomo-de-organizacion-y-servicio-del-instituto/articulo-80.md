@@ -1,0 +1,1 @@
+Artículo 80.—En el caso del funcionario que se le hubiera sancionado por faltas contempladas en el epígrafe anterior, como leves y graves y presente una conducta reiterativa, se le aplicará la sanción inmediata siguiente.

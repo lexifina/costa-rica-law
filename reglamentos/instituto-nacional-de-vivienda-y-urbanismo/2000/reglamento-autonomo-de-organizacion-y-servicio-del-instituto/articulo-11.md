@@ -1,0 +1,8 @@
+Artículo 11.—Además de las contempladas en el artículo anterior y en otros de este reglamento, los servidores autorizados para manejar vehículos del Instituto tendrán las siguientes obligaciones específicas:
+a) Obedecer las normas de tránsito vigentes y el Reglamento de Transportes.
+b) Acatar las órdenes que impartan sus superiores inmediatos, para que presten sus servicios en los lugares y por el tiempo que las necesidades de las labores así lo requieran.
+c) Seguir las instrucciones que sobre la buena marcha de la misión indique el servidor encargado de ésta.
+d) Velar por la custodia, limpieza y conservación del vehículo que se les asigne durante el ejercicio de sus labores, así como verificar que se encuentre en buen estado de funcionamiento y que posea las herramientas e implementos necesarios para su uso idóneo.
+e) Informar al Director o Subdirector del Area de Gestión de Administración y Finanzas cualquier accidente e incidente que les ocurra, por leve que sea, suministrando los nombres y apellidos de las personas afectadas, los daños que sufra el vehículo y el lugar y las circunstancias en que se produjo el accidente, robo o hurto. Salvo causa justificada, este informe debe rendirse inmediatamente después de ocurrido el hecho, con copia para el área responsable de la misión y para su superior inmediato.
+f) Guardar el vehículo en el lugar destinado para ese efecto y entregar las llaves al funcionario designado al efecto por la administración del Instituto, para su debida custodia, salvo cuando estén en gira o en misiones especiales del servicio.
+g) Contar con la respectiva licencia de conducir al día y portar identificación que lo acredite como funcionario del Instituto.

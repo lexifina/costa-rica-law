@@ -1,0 +1,1 @@
+Artículo 66.—Cada vez que haya una nueva fijación de salarios, el Proceso de Recursos Humanos revisará los salarios, a fin de que ningún servidor devengue menos del salario que le corresponde según su categoría.

@@ -1,0 +1,1 @@
+Artículo 42.—Las vacaciones del Gerente, Subgerente y Auditor serán concedidas por el Presidente Ejecutivo en su condición de Presidente de la Junta Directiva. En los demás casos, serán autorizadas por los superiores inmediatos, según el procedimiento interno definido.

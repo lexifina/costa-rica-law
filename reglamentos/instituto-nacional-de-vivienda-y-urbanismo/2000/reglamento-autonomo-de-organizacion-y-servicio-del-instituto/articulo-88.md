@@ -1,0 +1,1 @@
+Artículo 88.—Efectuada la comparecencia, la Gerencia tendrá un plazo de 15 días para el dictado del acto final y notificará del mismo a la Defensoría de los Habitantes conforme lo dispone la ley 7476.

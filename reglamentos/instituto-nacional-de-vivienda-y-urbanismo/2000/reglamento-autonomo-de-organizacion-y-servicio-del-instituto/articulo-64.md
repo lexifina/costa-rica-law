@@ -1,0 +1,1 @@
+Artículo 64.—Las licencias por regla general, serán sin goce de sueldo, salvo que en el presente Reglamento o por disposición de la Junta Directiva, Presidencia Ejecutiva o Gerencia General se disponga lo contrario.

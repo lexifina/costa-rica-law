@@ -1,0 +1,3 @@
+Artículo 52.—En todos los casos, el servidor deberá informar a su jefe inmediato lo antes posible, oralmente o por escrito, las causas que le impiden asistir a sus labores.
+Por ninguna razón deberá esperar hasta el segundo día de ausencia para informarlo, salvo fuerza mayor o caso fortuito que deberá probar debidamente.
+Para efectos de no aplicar sanciones disciplinarias, en casos calificados, el respectivo superior, a solicitud del servidor, podrá justificar las ausencias dentro de los dos días hábiles siguientes a aquel en que se produjo la ausencia. Esa justificación no implica pago del salario correspondiente.

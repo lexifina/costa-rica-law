@@ -1,0 +1,2 @@
+Artículo 48.—En caso de producirse una llegada tardía injustificada superior a veinte minutos, pero inferior de cuarenta minutos, se suspenderá sin goce de salario al trabajador durante dos horas de la jornada de ese día, si la marca fuera registrada después de cuarenta minutos, la suspensión será de media jornada de ese día.
+Para efectos de sanción y del no pago del salario respectivo, dicha falta se calificará y computará como media ausencia.

@@ -1,0 +1,1 @@
+Artículo 61.—El Instituto otorgará a sus trabajadores que así lo soliciten por escrito, permiso sin goce de sueldo hasta por el término de seis meses, el cual podrá ser prorrogado, a criterio de la administración, por un período igual. El conceder el permiso solicitado y la prórroga respectiva, es un acto meramente potestativo de la Presidencia Ejecutiva o de la Gerencia General.

@@ -1,0 +1,1 @@
+Artículo 15.—Los superiores inmediatos serán los responsables de advertir a los funcionarios sobre la prohibición del fumado. El Instituto deberá, asimismo, indicar dicha prohibición por medio de rótulos en lugares visibles.

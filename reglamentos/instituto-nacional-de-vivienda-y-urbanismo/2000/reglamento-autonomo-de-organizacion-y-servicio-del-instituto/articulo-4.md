@@ -1,0 +1,1 @@
+Artículo 4º—El Instituto es la persona jurídica responsable de las consecuencias resultantes entre la relación de este y sus servidores, pero la representación inmediata estará delegada en el Presidente Ejecutivo de la Institución o en el Gerente General.

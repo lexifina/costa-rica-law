@@ -1,0 +1,2 @@
+Artículo 51.—Cuando una enfermedad incapacite al servidor para el desempeño de sus labores por un plazo que no exceda de un día, podrá justificarse la ausencia a labores por otro medio que no sea el certificado médico, a juicio del superior inmediato. Dicho plazo podrá ampliarse a dos días, en casos muy calificados, a juicio del Director de área respectivo.
+En ninguno de dichos casos la justificación significa pago de salario.

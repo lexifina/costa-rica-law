@@ -1,0 +1,1 @@
+Artículo 91.—No obstante lo dispuesto en el artículo anterior para los casos de negligencia, el Proceso de Recursos Humanos, podrá omitir la sanción disciplinaria si el servidor informa del hecho dentro de los cinco días hábiles siguientes y no posea antecedentes similares.

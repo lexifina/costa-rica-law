@@ -1,0 +1,1 @@
+Artículo 27.—En todo caso, se considerará tiempo efectivo de labores aquel en que los servidores permanezcan bajo las órdenes o dirección inmediata o delegada de los respectivos superiores, en servicio de sus funciones.
