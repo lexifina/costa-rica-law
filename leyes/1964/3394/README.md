@@ -1,9 +1,10 @@
 # Convención de Viena sobre Relaciones Diplomáticas
 
-Ley N° 3394 del 1964-09-24. SINALEVI, ficha 2618: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2618&param2=2778&param3=1>.
+Ley N° 3394 del 1964-09-24. SINALEVI, ficha 2618: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2618&param2=2779&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 1964-09-24 | Ley 3394 | 1964-09-24 |
+| 2 de 2 | 1964-09-24 | SINALEVI | 1964-09-24 |
