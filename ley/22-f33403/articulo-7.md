@@ -1,0 +1,2 @@
+Art. 7°-Hará la calificación de la garantía la correspondiente Junta de Educación, quien no admitirá en hipoteca inmuebles cuyo valor actual no exceda del duplo de la suma que se trata de garantizar.
+Cuando según el artículo 3° del decreto número XIII de 26 de marzo del año en curso, se encargue al Tesorero cantonal de la administración de los fondos escolares de varios distritos, la calificación de la garantía la hará el Gobernador de la provincia. previo informe de las respectivas Juntas de Educación.
