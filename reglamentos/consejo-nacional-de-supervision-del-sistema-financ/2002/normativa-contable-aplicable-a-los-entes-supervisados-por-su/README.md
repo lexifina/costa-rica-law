@@ -14,3 +14,4 @@ Normativa contable aplicable a los entes supervisados por SUGEF, SUGEVAL, SUPEN,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-22 | la propia norma |
+| 2 | 2004-03-09 | Reglamento 424 (2004-03-09) |

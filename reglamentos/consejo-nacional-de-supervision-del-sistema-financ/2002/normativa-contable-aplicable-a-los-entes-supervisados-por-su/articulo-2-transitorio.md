@@ -1,0 +1,14 @@
+Transitorio 2. Entre el 1° de enero del 2003 y el 31 de diciembre del 2005, las siguientes Normas Internacionales de Contabilidad se adoptarán con la gradualidad que se indica, en el entendido de que en lo no indicado, se tendrá por aplicable lo establecido en la Norma Internacional de Contabilidad.
+NIC 18 Ingresos
+En lo que respecta a las “Comisiones de formalización, recibidas por la empresa y relacionadas con la creación o adquisición de un instrumento financiero que se mantiene como una inversión”, el exceso de comisiones sobre costos directos, que se produzcan de la compensación originada por la evaluación de la posición financiera del tomador del préstamo, evaluación y registro de garantías, avales u otros instrumentos de garantía, negociación de las condiciones relativas al instrumento, preparación y procesamiento de documentos y cancelación de la operación se diferirán conforme a la siguiente gradualidad:
+a. Para el periodo 2003, se permitirá reconocer en los resultados del periodo un 75% de dicho exceso de las comisiones recibidas, relacionadas con instrumentos financieros, el restante 25% se deberá registrar conforme lo dispuesto en las Normas Internacionales de Contabilidad.
+b. Para el periodo 2004, se permitirá reconocer en los resultados del periodo un 50% del exceso mencionado, relacionadas con instrumentos financieros, el restante 50% se deberá registrar conforme lo dispuesto en las Normas Internacionales de Contabilidad.
+c. Para el periodo 2005 el exceso de las comisiones sobre los costos, relacionadas con instrumentos financieros, se registrarán tal como lo dispone la Norma Internacional de Contabilidad dispuesta para ese efecto.
+Para todas las entidades, fondos de inversión, fondos de pensión y fideicomisos que funcionan como fondos de inversión o de pensión administrados por entidades financieras deberán aplicar en forma obligatoria la tasa efectiva para el reconocimiento de los ingresos al 31 de diciembre de 2004, no obstante las entidades están facultadas a aplicar dicha norma antes de la fecha indicada.
+NIC 36 Deterioro del Valor de los Activos
+Para todas las entidades lo dispuesto en esta normativa será de aplicación obligatoria a partir del primero de enero del 2004.
+NIC 38 Activos Intangibles
+En el caso de las operadoras de pensiones los costos y gastos de promoción y publicidad incurridos entre el 1 de marzo al 31 de diciembre del 2000 serán diferidos en un plazo máximo de cinco años. Por tanto esta Norma será de aplicación obligatoria al 31 de diciembre de 2005.
+NIC 12 Impuesto sobre renta diferido
+Lo dispuesto en esta Norma Internacional de Contabilidad referente a reconocimiento del impuesto diferido será de aplicación obligatoria al 31 de diciembre de 2004, no obstante las entidades están facultadas a aplicar dicha norma antes de la fecha indicada.
+(Adicionado mediante Sesiones N°424 y 425 del 09 de marzo de 2004)
