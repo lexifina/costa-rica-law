@@ -1,6 +1,8 @@
+(Derogado)
 DECRETO XX
 (Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
-Acuerda una dotación al Eclesiastico que administre lac Ciudad de Esparza. [1]
+(Esta norma fue suprimida por el artículo 2° de la Ley "Designa las leyes y disposiciones dictadas por la Administración del Lic. Carrillo que deben continuar rigiendo provisionalmente", N° 96 del 05 de setiembre de 1842)
+Acuerda una dotación al Eclesiastico que administre la Ciudad de Esparza. [1]
 [1] Suprimido por el párrafo 7°, artículo 2° del Decreto de la Asamblea Constituyente n° 25 de 1° de Setiembre de 1842.
 “EI Jefe Supremo del Estado Soberano de Costa Rica.
 Con presencia de Ias recIamaciones que ha hecho el Eclesiastico encargado de Ia administración de Esparza sobre la incongruidad de aquel beneficio, que llega al punto de no poderse mantener aun escasamente, siendo de otra parte muy extensa y gravosa Ia administracion.-Atendidos tambien el informe de la Vicaría , y el dictámen del Consejo á quien se Ie consultó con el expediente de la materia: y considerando que Ia naturaleza y Ia religion exigen de los fieIes cristianos la mantencion decente de sus sacerdotes, que les administran los Sacramentos y ruegan á Dios por su felicidad; y que por lo mismo, cuando los impuestos eclesiasticos no alcanzan á cubrir aquella obligacion por su escacéz, ó porque no se pagan religiosamente, deben contribuir de un modo directo que asegure la subsistencia corporal del Ministro por una dotacion fija e inalterable, decreta.
