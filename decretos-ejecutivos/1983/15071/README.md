@@ -14,3 +14,4 @@ Reglamenta artículo 5 Ley de Creación Fondo Contingencias Agrícolas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-12-19 | la propia norma |
+| 2 | 1984-07-02 | Decreto Ejecutivo 15537 (1984-07-02) |
