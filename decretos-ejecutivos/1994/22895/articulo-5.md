@@ -1,0 +1,1 @@
+Artículo 5°—La caja chica podrá subdividirse en Cajas Chicas auxiliares. La Ministra de Justicia, determinará el número y monto de dichas cajas, con base en el estudio de necesidades que deberá realizar el Oficial Presupuestal o quien haga las veces de este.

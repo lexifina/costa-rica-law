@@ -1,0 +1,1 @@
+Artículo 26.—Todo sobrante de dinero establecido en la liquidación del adelanto de caja chica por medio de cheque, deberá ser depositado en la cuenta bancaria respectiva, a más tardar el día hábil siguiente a la liquidación.

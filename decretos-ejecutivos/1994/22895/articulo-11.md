@@ -1,0 +1,1 @@
+Artículo 11.—Las ampliaciones de montos temporales deberán ser totalmente reintegrados en la fecha preestablecida para la liquidación. La responsabilidad del reintegro recae sobre el solicitante quien deberá informar a la Tesorería Nacional la fecha en que el mismo se realice, así como presentar el respectivo Entero.

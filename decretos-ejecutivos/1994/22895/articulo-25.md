@@ -1,0 +1,1 @@
+Artículo 25.—El funcionario que tenga pendiente una liquidación de un anticipo de dinero para la adquisición de bienes y servicios o gastos de viaje, no le será entregado otro anticipo hasta tanto no liquide él que tiene pendiente.

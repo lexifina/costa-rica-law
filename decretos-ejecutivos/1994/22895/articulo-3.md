@@ -1,0 +1,1 @@
+Artículo 3°—Las solicitudes de ampliación de los fondos de caja chica, deberán hacerse, considerando los artículos 4° y 5° del Reglamento General de Cajas Chicas, emitido por el Ministerio de Hacienda.

@@ -1,0 +1,1 @@
+Artículo 30. —Los aspectos no contemplados en este Reglamento se regirán por el Reglamento General de Caja Chica, por la Ley de Administración Financiera, Reglamento de Contratación Administrativa y las leyes conexas, así como todas las modificaciones que las afecten.

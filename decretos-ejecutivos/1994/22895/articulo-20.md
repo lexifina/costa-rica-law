@@ -1,0 +1,3 @@
+Artículo 20.—Et reintegro de las cajas chicas, del Ministerio de (*)Justicia y Paz, se canalizará a través del Oficial Presupuestal, quien verificará el contenido del mismo y lo enviara al trámite establecido para los gastos de! Gobierno acompañadas de los originales de las facturas comerciales, debidamente canceladas.
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
+El giro que se emita en virtud de dicho acuerdo será retirado en Pagaduría Nacional por el Oficial Presupuesta! o el designado por este, quien deberá depositarlo de inmediato en la cuenta bancaria respectiva, o en su detecto se aplicará el sistema computarizado implantado por la Tesorería Nacional.

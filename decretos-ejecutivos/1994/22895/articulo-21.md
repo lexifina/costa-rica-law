@@ -1,0 +1,1 @@
+Artículo 21.—El reintegro de un gasto efectuado por caja chica central o sus auxiliares deberá solicitarse necesariamente dentro de los treinta días inmediatos siguientes a aquel en que se hizo su pago. Sin embargo, si el reembolso a solicitar contra subpartida del gasto es inferior a dos mil colones, esta plazo podría ampliarse hasta un máximo de dos meses.
