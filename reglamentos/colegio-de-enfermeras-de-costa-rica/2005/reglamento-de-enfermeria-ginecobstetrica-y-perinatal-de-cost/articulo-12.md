@@ -1,0 +1,3 @@
+(NOTA DEL SINALEVI: No obstante que en la publicación de la Gaceta N° 10 del 14 de enero del 2005 aparece este articulo con otra numeración, mediante oficio CECR-JD-029-2005 del 27 de enero del 2005, del Colegio de Enfermeras de Costa Rica se indica que corresponde al "Articulo 12")
+Artículo 12. Atención en Modalidades Emergentes de Prevención de la Mortalidad Materna-Perinatal e Infantil.
+Situaciones emergentes. La enfermera(o) Ginecobstetra y perinatal realiza intervenciones en espacios emergentes (servicio de emergencias, servicios gerenciales públicos y privados u otros), creando modalidades de atención que aseguren un servicio humanizado de calidad e innovador.

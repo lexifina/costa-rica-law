@@ -1,0 +1,76 @@
+COLEGIO DE ENFERMERAS DE COSTA RICA
+REGLAMENTO DE ENFERMERÍA GINECOBSTÉTRICA
+Y PERINATAL DE COSTA RICA
+Introducción
+La práctica de Enfermería Ginecobstétrica y Perinatal ha tenido un sin número de cambios y ajustes, conforme ha cambiado el modelo de desarrollo del país, las políticas de salud, la reforma y la adecuación del modelo de atención de salud. Las propuestas de OMS/OPS, el desarrollo tecnológico en el campo de la Ginecología, la Obstetricia y la Perinatología han sido ejes decidores de cambio.
+Actualmente nuevos acuerdos internacionales en el campo de la salud sexual y reproductiva, suscritos en Cairo y Beijing (1994-95,1999-2000), que incorporan la humanización de la atención de salud, la incorporación del hombre, la promoción de la construcción de los manejos de poder patriarcal, la discriminación y la ruptura de desigualdades e inequidades.
+Es importante tener en cuenta que han surgido condiciones legales que ponen en riesgo personal, profesional y legal a diferentes profesionales de Enfermería Ginecobstétrica y Perinatal, lo que ha causado serios problemas en la vida de estas personas, por lo que se requiere de una revisión del respaldo jurídico, que a su vez capacite en nuevos conocimientos y prácticas saludables, producto del esfuerzo científico y de la experiencia.
+Esta nueva versión del reglamento de la práctica profesional de Enfermería Ginecobstétrica y Perinatal que establece competencias en:
+Fortalecer la atención integral de Enfermería Ginecobstétrica y Perinatal en la promoción de la salud sexual y reproductiva, derechos sexuales y reproductivos de hombres y mujeres en los ciclos de vida (niñez, adolescencia, juventud, adultez y adultez mayor) en el primer nivel de atención en los escenarios de salud establecidos.
+Desarrollar las competencias cognoscitivas, gerenciales, humanísticas, habilidades y destrezas en la atención integral de salud en ginecología, obstetricia y perinatalogía en los niveles de atención establecidos, fundamentada en la normativa nacional vigente.
+Establecer la atención integral de Enfermería Ginecobstétrica y Perinatal en los programas nacionales existentes a nivel ambulatorio, hospitalario de bajo y alto riesgo, de carácter público y privado (en salud reproductiva y sexual) .
+Promover la expansión de la práctica de Enfermería Ginecobstétrica y Perinatal mediante la investigación, el cuidado, la bioética y la ética en otras modalidades innovadoras a nivel público y privado.
+Fortalecer el desarrollo profesional y su legitimación en el liderazgo conductor de una Enfermería Ginecobstétrica y Perinatal para la transformación.
+Responder y proteger los procesos de mal praxis en los espacios privado y público de la Enfermería Ginecobstétrica y Perinatal.
+Ampliar los espacios de la práctica de Enfermería Ginecobstétrica y Perinatal de acuerdo al desarrollo tecnológico y científico social nacional e internacional, públicos, privados y de voluntariado.
+El presente Reglamento comprende los siguientes capítulos:
+Capítulo I: Considerandos.
+Capítulo II. Definiciones.
+Capítulo III. Competencias cognitivas, técnicas y actitudinales de Enfermería Ginecoobstétrica y Perinatal.
+Capítulo IV. Actividades en el Primer Nivel de Atención. (Escenarios de Salud)
+Capítulo V. Actividades en el II y III Nivel de Atención.
+Capítulo VI. Atención en el Ciclo Vital.
+El propósito y objetivos del reglamento:
+Este reglamento tiene como fin, regular como cuerpo normativo específico el ejercicio profesional, asalariado o voluntario, de la enfermería gineco-obstétrica y perinatal dentro de los establecimientos de salud públicos, privados y mixtos, de manera que regule la Enfermería Ginecobstetra y Perinatal durante su ejercicio profesional y asegure a la población blanco que los recibe, un servicio de calidad con calidez.
+Los objetivos generales son:
+1. Dignificar el desempeño profesional y fortalecer el liderazgo en el ejercicio de la Enfermería Ginecobstétrica y Perinatal a nivel nacional.
+2. Contar con un respaldo legal para el ejercicio de Enfermería Ginecobstetra y Perinatal, a nivel público y privado.
+3. Ampliar los espacios y escenarios para la práctica de la Enfermería Ginecobstetra y Perinatal, en los diferentes niveles administrativos (por ejemplo rectoría) y de atención.
+4. Definir las funciones esenciales de la Enfermería Ginecobstetra y Perinatal en los programas nacionales de atención integral a las personas, en sus deferentes ciclos de vida.
+5. Crear modelos innovadores de atención integral a las personas por parte de la Enfermería Ginecobstetra y Perinatal.
+6. Ubica el rol de la Enfermería Ginecobstetra y Perinatal dentro del equipo natural interdisciplinario.
+Este reglamento al estar amparado en la legislación vigente y en la normativa oficial de atención a las personas, en el nivel nacional es de acatamiento obligatorio para todo el personal que ejerza la prestación de servicios profesionales en la modalidad Enfermería Ginecobstetra y Perinatal.
+CAPÍTULO I
+Considerandos en el ejercicio de las facultades contenidas en:
+La constitución de la República, convenios internacionales suscritos por el país en el campo de la salud sexual reproductiva, tales como los acuerdos tomados en las conferencias mundiales de Cairo Beijing en 1994, 1995 y 2000.
+La Ley General de Salud, artículos No. 40, 48, 53, 54, 55 y art.370.
+La Ley Orgánica del Colegio de Enfermeras de Costa Rica Nº 23443 del 4 de mayo 1959, su reglamento y reformas.
+La Ley Orgánica del Colegio de Farmacéuticos, artículo 41.
+La Ley de Estatutos de Enfermería No. 7085 su reglamento y reformas.
+Los lineamientos emitidos por la OMS/OPS en los siguientes documentos. 54 Asamblea Mundial- mayo- 2001.
+Considerando que:
+El Colegio de Enfermeras de Costa Rica debe regular el ejercicio profesional de la obstetricia en Costa Rica, el conocimiento científico no es estático, sino que cambia constantemente a la luz de las investigaciones y el surgimiento de nuevos conocimientos. La tecnología evoluciona vertiginosamente, día con día requiere actualización permanente de los profesionales de la salud. Existe un nuevo concepto de salud como producto social que trasciende lo meramente patocéntrico y el perfil epidemiológico del país, es cambiante.
+La reforma del sector salud forma parte de un nuevo modelo de desarrollo en el país, el Ministerio de Salud, asume una nueva función: la de rectoría del sector salud, la CCSS asume la responsabilidad de ser el prestador universal del servicio de salud en el país, la aparición de nuevos modelos de atención a la salud de las personas y la incorporación de nuevas disciplinas en el campo de la salud.
+Propósito de la salud en el país: La salud pública de la población es un interés público tutelado por el Estado y el mismo debe velar por el interés superior de las personas como un principio básico en toda gestión institucional pública o privada.
+Reconocimiento del Liderazgo en Enfermería Ginecobstetra y Perinatal Nacional e Internacional: En toda actividad nacional e internacional que involucre el desarrollo de la Obstetricia, Ginecología, Perinatología, Salud Reproductiva, Salud Sexual, Derechos Sexuales, Reproductivos, compete la participación de Enfermería Ginecobstétrica y Perinatal designada por el Colegio de Enfermeras de Costa Rica a miembros del Comité hoy denominado Comité de Salud de la Mujer y Perinatología o a quien su defecto se le otorgue dicha representación, que esté debidamente incorporada (o).
+Práctica de salud sexual y reproductiva, derechos sexuales y reproductivos: El abordaje de la salud sexual y reproductiva, derechos sexuales y reproductivos, incorpora los hombres y mujeres durante las etapas del ciclo vital. La promoción efectiva está comprendida por la promoción emancipadora y crítica, la prevención, detección seguimiento e interdisciplinaridad en los diferentes niveles y escenarios de salud, por lo que requieren de la experiencia y participación activa de Enfermería Ginecobstétrica y Perinatal.
+Estrategia Internacional de Reducción de la Mortalidad Materna e Infantil y la segura, sin riesgo y acompañada, promovida por OMS/OPS/UNICEF7UNFPA/Naciones Unidas y ONGS, aprobada en Nairobi en 1978, en la cual se reconocen y recomiendan:
+Garantizar la vida de las mujeres durante el embarazo, el parto y el puerperio, que es el ciclo mediante generan la vida, es garantizar un derecho humano fundamental.
+Asistencia del parto por personal calificado: la atención profesional del parto es el eje de los esfuerzos más exitosos para reducir la enfermedad y la muerte materna.
+Empoderamiento de las mujeres, sus familias y comunidades: es una estrategia clave para la reducción de la mortalidad materna. Permitir a las mujeres elegir sus propias alternativas y proporcionarles información adecuada, les permite tomar decisiones cruciales, en lo referente a su salud y, por consiguiente ejercer sus derechos.
+La vigilancia de la salud sexual y reproductiva: la vigilancia y evaluación de los programas son esenciales para la continuación y el mejoramiento de los esfuerzos para reducir la mortalidad materna. Hay que proceder a la evaluación a nivel local, nacional y regional.
+Las Políticas Nacionales de Salud, la Agenda Sanitaria Concertada 200-2006. El Decreto Nº 27913-S. Salud Reproductiva 9 de junio de 1999. Con base en el análisis de la situación de salud reproductiva en el país se hace evidente la incorporación de Enfermería Ginecobstétrica y Perinatal, dado que:
+Se ha observado en el análisis de la situación de salud de las mujeres en América Latina, las mujeres se mueren y se enferman porque no reconocen oportunamente las señales de complicaciones, no tienen acceso a servicios de atención del parto de calidad o simplemente porque prefieren ser tratadas en casa. La clave para la reducción de la mortalidad materna reside en el manejo eficaz y oportuno de las complicaciones del embarazo y en aumentar el conocimiento de las familias y comunidades sobre las señales de peligro de las complicaciones obstétricas y perinatales.
+Competencia de Enfermería Ginecobstetra y Perinatal para la Transformación: La renovación de esquemas de la práctica de la Enfermería Ginecobstétrica y Perinatal, han conducido a la renovación de la formación del recurso humano, con una base actualizada de conocimientos científicos, sociales que le facilita comprender la transición a la maternidad y a la paternidad, así como el desarrollo de habilidades y destrezas para el abordaje desde lo privado y lo público en la cotidianidad, con respeto y tolerancia a las diversidades.
+"La 54° Asamblea Mundial de mayo del 2001, se plantea la recomendación del fortalecimiento de la Enfermería y la Partería, que señala lo siguiente a los países miembros:
+A que examinen, elaboren y apliquen planes de acción nacionales en pro de la salud, así como modelos de enseñanza, legislación, reglamentación y práctica para las enfermeras y parteras, y velen porque todos ellos reflejen suficiente y apropiadamente las competencias y los conocimientos que permitan a las enfermeras y las parteras atender las necesidades de la población a la que sirven.
+A que establezcan programas integrales de desarrollo de los recursos humanos que favorezcan la formación, la contratación y la prestación en los servicios de salud de un personal de enfermería y partería calificado y motivado.
+A que elaboren y apliquen políticas y programas que garanticen la salubridad del lugar de trabajo y la calidad del entorno laboral de las enfermeras(os) parteras(os).
+A que respalden las medidas precipitadas con la evaluación continua de las necesidades de enfermería y partería y mediante la elaboración, el examen periódico y la aplicación de planes nacionales de enfermería y partería, como parte integrante de la política nacional de salud.
+Se establece el reglamento para el Ejercicio de Enfermería Gineco-Obstétrica y Perinatal.
+CAPITULO II
+Definiciones
+(NOTA DEL SINALEVI: No obstante que en la publicación de la Gaceta N° 10 del 14 de enero del 2005 no se indica la numeración de este articulo, mediante oficio CECR-JD-029-2005 del 27 de enero del 2005, del Colegio de Enfermeras de Costa Rica se indica que corresponde al "Articulo 1")
+Artículo 1- Definiciones
+Salud reproductiva: estado general de bienestar físico, mental y social de una persona, no mera ausencia de enfermedades o dolencia en todos los aspectos relacionados con el sistema reproductivo, sus funciones y procesos. Las personas son capaces de disfrutar de una vida sexual satisfactoria, sin riesgos de procrear y la libertad para decidir hacerlo o no, cuando y con qué frecuencia. El hombre y la mujer tiene el derecho a obtener información y tener acceso a métodos seguros (Cairo,1994).
+Salud sexual: Óptimo estado de bienestar físico, mental y social de una persona encaminada al mejoramiento de la vida y las relaciones personales. En todo momento, los servicios de salud no deberán estar orientados meramente al asesoramiento y la atención en materia de reproducción y de enfermedades de transmisión sexual, sino contemplar los anteriores factores de bienestar (Cairo,1994).
+Derechos reproductivos: Los derechos reproductivos se refieren a regular nuestra fecundidad con al conocimiento de los métodos anticonceptivos modernos y eficaces, decidiendo por el más conveniente para nuestro organismo, después de acudir a la consulta y consejería de personas capacitadas.
+Derechos sexuales: Son derechos humanos universales, cuya finalidad es que todas las personas puedan vivir libres de discriminación, riesgos, amenazas, coerciones, violencia en el campo de la sexualidad y reproducción humana.
+Riesgo reproductivo: Es la probabilidad (grado de peligro o de enfermedad o muerte que tienen la mujer, su futuro(a) hijo(a) en caso de embarazo en condiciones no ideales.
+Riesgo obstétrico: Es el peligro de enfermedad o muerte que tienen la mujer o su futuro hijo(a) en un embarazo presente.
+Riesgo perinatal: Es la probabilidad o peligro de pérdida del bienestar feto-materno-neonatal.
+Ciclo de vida: Diferentes etapas del desarrollo humano, que va desde el nacimiento hasta la muerte.
+Equidad de género en salud: Es vincular la división por sexo del trabajo y del poder dentro de una población, con los perfiles epidemiológicos y con las características de accesibilidad, financiamiento y gestión del sistema de salud de la población (OPS; EQUIDAD GÉNERO SALUD; 2003).
+Alianzas en salud: Es una relación abierta establecida entre socios(as) activos (as) cuya fortaleza radica en los aportes distintos pero complementarios que cada uno hace para alcanzar un propósito común acordados por todos (as). (PROGRAMA NACIONAL DE ALIANZAS; COLOMBIA).
+Abogacía: Es una estrategia para fortalecer y aumentar el poder de acción de la sociedad civil y la participación ciudadana organizada en los distintos procesos de la toma de decisión en políticas y programas y en la formulación de agendas, para promover una nueva cultura política más transparente, participativa y democrática. (AGENDA ACOES EN GÉNERO CIDADIVIA E DESNVOLVIMENTO Y REDE SAUDE,1999).
+Escenarios de salud: Son espacios de la vida colectiva e individual en la que se lleva a cabo la producción de salud. Podrían citarse: servicios de salud, laboral, educativo familiar y comunitario.
