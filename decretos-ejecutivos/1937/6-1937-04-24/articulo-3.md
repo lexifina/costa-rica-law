@@ -1,0 +1,1 @@
+Artículo 3°-Conforme al artículo 374 del mismo Código Fiscal, la Dirección General de los Telégrafos estará al cuidado de un Director Jefe y todo el Departamento dependerá de la Secretaría de Gobernación.

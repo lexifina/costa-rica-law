@@ -1,0 +1,1 @@
+Artículo 5°-La Sección de Radios Nacionales estará a cargo de un Director con funciones técnicas y administrativas que comprenden el Servicio de Radios Nacionales y la Dirección e Inspección de Estaciones Radiodifusoras particulares. Esta Sección dependerá en el futuro directa y exclusivamente de la Secretaría de Gobernación.
