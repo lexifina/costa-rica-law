@@ -1,5 +1,8 @@
-CAPITULO III
-Autorizaciones permanentes para viajar
-otorgadas por los representantes legales del menor
-Artículo 15.—Los representantes legales del menor debidamente identificados podrán dar su autorización permanente por escrito para que el menor pueda viajar al extranjero, mediante manifestación hecha ante la Oficina del Patronato, notario público o ante el cónsul de Costa Rica en otro país (cuando los representantes se encuentren fuera del país), debidamente legalizado el documento por el Ministerio de Relaciones Exteriores y Culto de Costa Rica.
-La supracitada autorización debe presentarse a la Oficina del Patronato, cada vez que el menor requiera la aprobación de los requisitos exigidos para salir del país.
+CAPITULO IV
+De los impedimentos de salida
+Artículo 15.—Cuando exista justa causa un progenitor en ejercicio de la patria potestad, un depositario o un tutor, podrá interponer, verbalmente o por escrito, solicitud de impedimento de salida del país de un menor, indicando:
+1) Nombre y apellidos del o los menores a los que se pretende impedir la salida del país.
+2) Datos de identificación de la persona interesada en sacar del país al menor, con su dirección exacta y número de teléfono, de ser posible.
+3) Los hechos en que se funde su solicitud, numerados y especificados.
+4) Lugar donde recibir notificación dentro del perímetro de un kilómetro alrededor de la oficina competente para conocer la gestión.
+Con el escrito de solicitud deberá aportarse, la cédula de identidad del solicitante, certificación de nacimiento del o los menores, certificación de matrimonio y cualquier otro documento con el que se comprueba fehacientemente los hechos y el derecho que le asisten para solicitar el impedimento. Todo documento se presentará en original y una copia.

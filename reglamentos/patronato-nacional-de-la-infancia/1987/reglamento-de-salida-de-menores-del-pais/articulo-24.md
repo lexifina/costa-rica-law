@@ -1,1 +1,3 @@
-Artículo 24.—Este Reglamento fue aprobado en la sesión número 1929, extraordinaria, artículo 2°, celebrada por la Junta Directiva de esta Institución el 18 de mayo de 1987.
+CAPITULO V
+Disposiciones finales
+Artículo 24.—La aprobación de la solicitud de salida del país extendida por el Patronato, tiene una vigencia de treinta días, a partir de la fecha de expedición.

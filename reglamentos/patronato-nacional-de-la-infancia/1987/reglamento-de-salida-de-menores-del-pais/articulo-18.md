@@ -1,3 +1,2 @@
-CAPITULO VI
-Del procedimiento
-Artículo 18.—Si se objetare un documento que fundamenta la salida del país de un menor de edad, o si estos fueren incompletos a juicio del funcionario competente, se hará del conocimiento de los interesados, señalando la forma correcta o manera de subsanar los errores u omisiones cometidos.
+Artículo 18.—Si se presentare oposición a la gestión de impedimento, el funcionario competente para resolver contará con el plazo de cinco días contados a partir del vencimiento del término al cual se refiere el artículo 16, para dictar la resolución final, la cual debe ser notificada a los interesados, a la Dirección General de Migración y Extranjería y a la Dirección de Operaciones. A esta última, igualmente con la finalidad de que la comunique a todas las oficinas del país.
+Si vencido el término, no se presentare oposición, se comunicará de inmediato a dichas oficinas, a fin de que se cancele la orden de impedimento de salida que se hubiere dado con el traslado.

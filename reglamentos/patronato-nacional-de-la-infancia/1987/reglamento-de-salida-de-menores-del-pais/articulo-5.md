@@ -1,3 +1,1 @@
-CAPITULO II
-De la solicitud y requisitos
-Artículo 5°—Es requisito previo para la salida de un menor del país, que los interesados presenten en la Oficina del Patronato toda la documentación necesaria que permita otorgarla, conforme las disposiciones del presente Reglamento.
+Artículo 5°—Cuando se trate de menores de nacionalidad extranjera o costarricenses residentes en otro país, que han permanecido en Costa Rica por más de treinta días naturales, en condición de turista comprobada, no será necesario trámite alguno adicional ante el Patronato, para efectos de su salida del país, salvo los que requiere al efecto la Dirección General de Migración.

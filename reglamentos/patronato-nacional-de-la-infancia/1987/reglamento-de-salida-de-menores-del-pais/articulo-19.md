@@ -1,1 +1,1 @@
-Artículo 19.—Si la solicitud cumple con todos los requisitos establecidos, el funcionario lo indicará así, en una fórmula, que remitirá al Departamento de Migración para que esta dependencia continúe con los trámites de su competencia.
+Artículo 19.—Si la parte gestionante desconoce el domicilio de la otra parte interesada, este deberá gestionar a su costa la publicación de la resolución de traslado de la solicitud de impedimento y la resolución final en uno de los diarios de más circulación, por una sola vez, así como por edicto en "La Gaceta".

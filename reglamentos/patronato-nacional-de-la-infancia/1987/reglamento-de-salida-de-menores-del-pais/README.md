@@ -14,3 +14,4 @@ Reglamento de Salida de Menores del País
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-09-25 | la propia norma |
+| 2 | 1990-04-16 | Reglamento 29 (1990-04-16) |

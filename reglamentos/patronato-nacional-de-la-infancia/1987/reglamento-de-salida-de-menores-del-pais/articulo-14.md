@@ -1,1 +1,4 @@
-Artículo 14.—Si el menor viaja con sus representantes legales, éstos se identificarán personalmente en la Oficina del Patronato con sus respectivos pasaportes en caso de extranjeros y con la cédula de identidad en caso de costarricenses, lo que no será necesario si ambas firmas vienen autenticadas por abogado.
+CAPITULO III
+Autorizaciones permanentes para viajar
+Artículo 14.—Los representantes legales del menor, podrán dar su autorización permanente por escrito para que el menor pueda viajar al extranjero, mediante manifestación realizada ante la oficina del Patronato, ante notario público o ante el Cónsul de Costa Rica en otro país; en este último caso conforme lo establecido en el artículo 9°, del presente Reglamento.
+La supracitada autorización debe presentarse a la Oficina del Patronato, cada vez que se solicite la salida del país.

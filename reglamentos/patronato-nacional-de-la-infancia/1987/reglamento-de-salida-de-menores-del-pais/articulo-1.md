@@ -1,10 +1,9 @@
 PATRONATO NACIONAL DE LA INFANCIA
-REGLAMENTO DE SALIDA DE MENORES DEL PAÍS
+REGLAMENTO DE SALIDAS DEL PAÍS
+En uso de las facultades que otorga el artículo 12 de la Ley General de la Administración Pública, y de conformidad con lo dispuesto en los artículos 6°, inciso k) y 20, inciso d) de la Ley Orgánica del Patronato Nacional de la Infancia, se dicta el presente
+REGLAMENTO DE SALIDA DEL PAÍS DE MENORES
 CAPITULO I
-De la materia
-Artículo 1°—Definiciones. Para los efectos del presente Reglamento se entiende por:
-Patronato: Patronato Nacional de la Infancia.
-Ley: Ley Orgánica del Patronato Nacional de la Infancia, N° 3286 de 28 de mayo de 1964.
-Oficina: La Oficina de Salida de Menores del País del Patronato Nacional de la Infancia.
-Centro de Cómputo: Oficina especializada del Departamento de Migración, dependencia del Ministerio de Gobernación y Policía, encargada del control de entrada y salida del país de nacionales y extranjeros según artículo 19 de la ley No 37 de 7 de junio de 1940 y sus modificaciones posteriores.
-Departamento de Migración: Dependencia del Ministerio de Gobernación y Policía.
+De la autorización para la salida del país
+NOTA DE SINALEVI: El texto de este Reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, en sesión N° 29 del 16 de abril de 1990 y publicado en La Gaceta N° 136 del 19 de julio de 1990, por lo que se reproduce a continuación:
+Artículo 1 °—Sin perjuicio de los requisitos migratorios impuestos por la Dirección General de Migración y Extranjería en uso de sus atribuciones propias, toda salida del país de un menor de edad, solo o acompañado por quien ejerza de modo exclusivo la patria potestad o la representación legal del mismo, deberá siempre ser autorizada por el progenitor que ejerce conjuntamente la patria potestad y no lo acompaña en el viaje, o por el representante legal en caso de menores sujetos a tutela o depósitos judiciales o administrativos.
+Dicha autorización se formalizará en la oficina competente del Patronato Nacional de la Infancia, conforme con las disposiciones siguientes, y deberá remitirse a la Dirección General de Migración y Extranjería para el otorgamiento de la visa de salida respectiva, que no se otorgará sin este requisito.
