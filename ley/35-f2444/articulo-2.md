@@ -1,0 +1,1 @@
+Artículo 2° Los demás electorales del mencionado distrito cuarto del Naranjo, señores Francisco Alvarado Segura, Antonio Rodríguez Soto, Belisario Rojas Retana, Félix Villalobos Vargas, propietarios y los señores Manuel Marín Vargas, y Cupertino Alfaro Corrales, suplentes, seguirán con la representación electoral del cuarto distrito actual del cantón de Naranjo.
