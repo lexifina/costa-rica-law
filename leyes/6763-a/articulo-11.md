@@ -1,0 +1,2 @@
+Artículo 11
+Todo Miembro que ratifique el presente Convenio deberá enviar anualmente a la Oficina Internacional del Trabajo una declaración general en la cual exponga la forma en que se aplican las disposiciones del Convenio. Esta declaración contendrá, en forma sumaria, indicaciones sobre las ocupaciones, las categorías y el número aproximado de trabajadores sujetos a esta reglamentación, la duración de las vacaciones concedidas, y, si las hubiere, sobre las demás medidas importantes relacionadas con las vacaciones pagadas en la agricultura.

@@ -1,0 +1,3 @@
+Artículo 4
+1. Todo Miembro que ratifique el presente Convenio, previa consulta a las organizaciones interesadas más representativas de empleadores y de trabajadores, si dichas organizaciones existen, quedará en libertad para determinar las empresas, ocupaciones y categorías de personas mencionadas en el artículo 1 a las cuales deberán aplicarse las disposiciones del Convenio.
+2. Todo Miembro que ratifique el presente Convenio podrá excluir de la aplicación de todas o de algunas de las disposiciones del Convenio a categorías de personas cuyas condiciones de trabajo hagan inaplicables estas disposiciones, tales como los miembros de la familia del empleador ocupados por este último.

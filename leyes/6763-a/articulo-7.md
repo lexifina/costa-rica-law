@@ -1,0 +1,4 @@
+Artículo 7
+1. Toda persona que tome vacaciones en virtud del presente Convenio deberá recibir, durante todo el período de dichas vacaciones, una remuneración que no podrá ser inferior a su remuneración habitual, o la remuneración que pudiere ser prescrita de conformidad con los párrafos 2 y 3 de este artículo.
+2. La remuneración que deba pagarse por el período de vacaciones se calculará en la forma prescrita por la legislación nacional, los contratos colectivos o las sentencias arbitrales, por organismos especiales encargados de la reglamentación de las vacaciones pagadas en la agricultura, o por cualquier otro medio aprobado por la autoridad competente.
+3. Cuando la remuneración de la persona que tome vacaciones comprenda prestaciones en especie, se le podrá pagar, por el período de vacaciones, la equivalencia en efectivo de dichas prestaciones.
