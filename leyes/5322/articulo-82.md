@@ -1,1 +1,0 @@
-Artículo 82.- Los vehículos de emergencia debidamente autorizados gozarán de preferencia de vía en toda ocasión, siempre que se identifiquen por señales visuales y sonoras características y cumplan con las limitaciones reglamentarias.

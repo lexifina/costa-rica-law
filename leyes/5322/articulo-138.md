@@ -1,4 +1,0 @@
-CAPÍTULO XII
-Disposiciones Finales
-Artículo 138.- Para efectos del artículo 20, quedan reformados o derogados los artículos pertinentes del Código de Comercio y sus reformas así como las demás leyes que se le opongan. Sin embargo, estas disposiciones no serán aplicables sino hasta seis meses después de entrar en vigencia la presente ley. Las prendas sobre vehículos serán inscritas nuevamente dentro del término de un año, libres de derechos en el Registro Público de la Propiedad de Vehículos. Las inscripciones de renovación, prórroga, endoso o modificación que deban hacerse sobre dichos contratos de prenda se harán en el Registro Público de la Propiedad de Vehículos, una vez realizada la reinscripción.
-Solamente las cancelaciones se efectuarán en el Registro General de Prendas cuando no haya habido ninguna inscripción posterior a la original, siempre que ésta se produzca dentro del año siguiente a la vigencia de este artículo.

@@ -1,1 +1,0 @@
-Artículo 103.- Si en el momento de emitir la boleta, el presunto infractor no está presente, se dejará adherida al vehículo de la infracción, pero será necesario hacer nueva notificación por los medios comunes, una vez que se inicie el trámite por la Agencia correspondiente. Esto sin perjuicio de los dispuesto en el artículo anterior.

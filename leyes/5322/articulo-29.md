@@ -1,1 +1,0 @@
-Artículo 29.- Todo vehículo debe portar en el sitio reglamentario la o las placas de matrícula y los distintivos de identificación y pago que señale la Dirección General de Tránsito y la Oficina Recaudadora de Impuestos y Derechos de Tránsito, los cuales son intransferibles a otros vehículos sin la autorización formal de esa Dirección.

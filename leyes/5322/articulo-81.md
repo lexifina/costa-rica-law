@@ -1,1 +1,0 @@
-Artículo 81.- Los vehículos que transiten en los centros urbanos, en las intersecciones donde no haya señalamiento, deberán ceder el paso al vehículo que desembocan a su derecha. En las carreteras tendrán prioridad los que circulen por la vía más ancha o por la principal.

@@ -1,1 +1,0 @@
-Artículo 60.- La Dirección General de Transporte Automotor no extenderá ninguna licencia de circulación, ni de prueba, sin que el propietario del vehículo haya rendido a satisfacción la prueba a que se refiere el artículo anterior. En dicha licencia de circulación se hará la anotación respectiva.
