@@ -1,0 +1,2 @@
+Artículo 6°—Quien no atienda el pago de estas multas en el plazo que le fije la Municipalidad, será objeto de la clausura inmediata de la construcción, cuyo levantamiento solo podrá realizarse en un plazo inmediato de tres días posteriores a aquella, mediante el pago de las multas e impuesto tasados para el mismo.
+Si transcurrido este plazo el infractor no ha cumplido con esta norma, se pasará el asunto a la vía judicial correspondiente y se mantendrá el acto de clausura hasta la resolución final que emita esa vía, salvo ordenamiento contrario que dicte esta.
