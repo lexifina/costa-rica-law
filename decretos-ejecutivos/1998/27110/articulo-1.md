@@ -1,0 +1,22 @@
+N° 27110-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En el ejercicio de las facultades conferidas por el artículo 140, incisos3) y 18) de la Constitución Política; y con fundamente en lo establecido por la ley6 de Creación del Ministerio de Obras Públicas y Transportes, N° 4786 del 5 de julio de 1971 y sus reformas, especialmente en su artículo 3; y la Ley General de la Administración Pública, N° 6227 del 2 de mayo de 1978,
+Considerando:
+1°—Que en el Alcance 29 a "La Gaceta" No 99 del 24 de mayo de 1996 se publicó el decreto ejecutivo No 25151-MOPT del 14 del mismo mes y. año, el que dispuso reestructurar y reorganizar el denominado "Nivel Superior del Ministerio de Obras Públicas y Transportes , conformando diversas "unidades administrativas" que responderían directamente por su gestión desarrollada, ante el Ministro de Obras Públicas y Transportes.
+2°—Que dentro de dicha configuración administrativa, se estableció, entre otras, la unidad denominada "Proyección Institucional”, abarcando ámbitos tales como: "Relaciones Comunales", “Contraloría de Servicios", "Embellecimiento de Carreteras Nacionales” y “Prensa y Relaciones Públicas”.
+3°—Que mediante oficio D.M. 328-96 del 12 de abril de 1996 suscrito por el Ministro de Planificación Nacional se emitió criterio en relación a la reestructuración del Nivel Superior del Ministerio de Obras Públicas y Transportes, entre cuyas recomendaciones se estableció redefinir la ubicación de cada una de las unidades que conforman ese Nivel Superior, con el fin por un lado de no confundir el nivel de asesoría y el de elocución, y por el otro lado el de no integrar las unidades en un sólo cuerpo asesor, ya que por su naturaleza, demandan, una independencia específica y responden a objetivos diferentes.
+4°—Que el dictamen emitido en el aparte anterior se encuentra sujeto" a los ajustes que el proceso integral requiera, de modo que se requiere modificar dicho Decreto Ejecutivo No 25151-MOPT; con el fin de que la actividad concerniente a "Relaciones Comunales", "Contraloría de Servicios", "Embellecimiento de Carreteras Nacionales" y "Prensa y Relaciones Públicas", sean excluidas de la "Unidad de Proyección Institucional", las que a su vez pasarán a formar nuevas "unidad administrativa" que responderán, directamente por su gestión desarrollada, ante el Ministro de Obras Públicas y Transportes.
+5°—Que el artículo 3° de la Ley de Creación del Ministerio de Obras Públicas y Transportes, establece la potestad del Poder Ejecutivo para que mediante decreto establezcan las dependencias necesarias para el cumplimiento de sus objetivos. Por tanto,
+DECRETAN:
+Artículo 1°—Modifícase el artículo 1° del decreto ejecutivo N° 25151-MOPT del 14 de mayo de 1996, publicado en el Alcance 29 a "La Gaceta" N° 99 del 24 del mismo mes y año, con el fin de que se lea de la siguiente forma:
+"Artículo 1°—Determínase la reestructuración y reorganización del Nivel Superior del Ministerio de Obras Públicas y Transportes, el cual, además de los respectivos niveles de mando constituidos por el Ministro y el Viceministro, estará conformado por las siguientes unidades administrativas:
+a) Auditoría (incluye los procesos de auditoria en ingeniería civil y en sistemas administrativos);
+b) Asesoría Jurídica (incluye los procesos de asesoría jurídica y adquisición de bienes muebles e inmuebles para la construcción de obras públicas);
+c) Planificación Institucional (incluye los procesos de Financiamiento Externo, Medios de Transporte y Gestión Tecnológica );
+d) Contraloría de Servicios (incluye los procesos de atención a las quejas y reclamos presentados por los usuarios y la de emitir las propuestas al Superior Jerárquico en cuanto a las acciones y procedimientos que mejoren los servicios);
+e) Embellecimiento de Carreteras Nacionales (incluye los procesos de dar mantenimiento a las zonas verdes aledañas a las carreteras nacionales);
+f) Relaciones Comunales (incluye los procesos tendientes a otorgar de manera equitativa de recursos por parte del MOPT a las comunidades);
+g) Prensa y Relaciones Públicas (incluye los procesos de Prensa y relaciones Públicas);
+h) Oficialía Mayor (incluye los procesos de administración de los Despachos del señor Ministro y señores Viceministros, así como ser el ejecutor del Programa Presupuestario ?300).
+Cada una de estas unidades responderá directamente al Ministro de Obras Públicas y Transportes por la gestión desarrollada."
