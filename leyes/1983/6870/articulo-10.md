@@ -1,0 +1,1 @@
+Artículo 10.-Derógase el artículo 10 de la Ley de Presupuesto vigente, ley N° 6831 del 24 de diciembre de 1982, así como las siguientes normas generales del artículo 9° de la citada ley: 2°, 10, párrafo 2° de la norma general N° 21, párrafo 4° de la número 26, 29, 44, 45, 56, 58, 60, 64, 67, 69, 70, 75, 78, 79, 80, 81, 84,. 88, 92, 95, , 96, 97 y 102.

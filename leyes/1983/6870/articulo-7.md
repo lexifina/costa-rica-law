@@ -1,0 +1,1 @@
+Artículo 7°-Autorizase al Poder Ejecutivo para que, mediante decreto, efectúe traslados entre partidas del presupuesto del Ministerio de Obras Públicas y Transportes para 1983 y modifique las listas de obras, con el propósito de utilizar sus recursos de acuerdo con las necesidades actuales de ésa dependencia.
