@@ -1,0 +1,1 @@
+Art 2°.- En él entretanto las mismas harán la calificación de las que verdaderamente lo fuesen y de estas se hará publicación y al efecto se les librará conocimiento para que sean tenidos por legítimos pordioseros.
