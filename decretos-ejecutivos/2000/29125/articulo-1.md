@@ -7,3 +7,4 @@ Considerando:
 4-Que el Decreto Ejecutivo N° 28957-H, establece los l¡mites de gasto presupuestario y efectivo de la Junta Administrativa del Registro Nacional para el año 2001, el cual no contempla los gastos para cubrir la compra del computador y de las placas met licas.
 5-Que por lo anterior, resulta necesario ampliar el l¡mite de gasto presupuestario y efectivo de la Junta Administrativa del Registro Nacional, establecido en el Decreto Ejecutivo N° 28957-H.
 Por tanto, Decretan: Articulo 1-Modificase el Decreto Ejecutivo N° 28957- H, para fijar en ½3.454,3 millones el limite de gasto presupuestario y efectivo de la Junta Administrativa del Registro Nacional para el año 2001.
+(Modificado el límite de gasto presupuestario y efectivo para la Junta Administrativa del Registro Nacional por el Decreto Ejecutivo N° 29664 de 27 de junio del 2001).

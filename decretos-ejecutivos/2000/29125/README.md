@@ -14,3 +14,4 @@ Modifica Gasto Presupuestario y Efectivo para el 2001, de la Junta Administrativ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-12-08 | la propia norma |
+| 2 | 2001-06-27 | Decreto Ejecutivo 29664 (2001-06-27) |
