@@ -69,6 +69,7 @@ articulo-68.md
 articulo-69.md
 articulo-70.md
 articulo-71.md
+articulo-71-bis.md
 articulo-72.md
 articulo-73.md
 articulo-74.md

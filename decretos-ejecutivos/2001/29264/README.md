@@ -19,3 +19,4 @@ Reglamento General de Gestión, Fiscalización y Recaudación Tributaria.
 | 4 | 2001-09-12 | Decreto Ejecutivo 29802 (2001-09-12) |
 | 5 | 2001-09-20 | Decreto Ejecutivo 29881 (2001-09-20) |
 | 6 | 2001-12-17 | Decreto Ejecutivo 30165 (2001-12-17) |
+| 7 | 2002-12-10 | Decreto Ejecutivo 30909 (2002-12-10) |
