@@ -1,0 +1,1 @@
+Art. 3. El Intendente con los dos Ministros tesoreros, deberán distribuir al fin del año la suma de dinero que se hubiere colectado; para cuyo efecto formarán una cuenta de prorrateo, con arreglo á los individuos propietarios que tienen derecho á la indemnizacion.

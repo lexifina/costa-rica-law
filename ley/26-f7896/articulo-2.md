@@ -1,0 +1,1 @@
+Art. 2. Serà á cargo del colector nombrado: 1° recoger las cantidades destinadas para el fondo de indemnizacion con arreglo al decreto de 17 de Abril de 1824 desde dicha fecha en adelante, y con el premio de un cuatro por ciento: 2° rendir por semestres la cuenta de las cantidades colectadas al Intendente y Ministros tesoreros.
