@@ -1,1 +1,1 @@
-Artículo 44.-La persona que en su declaración proporcione datos falsos, se hará reo del delito de perjurio y sufrirá las penas que para este delito marca el Código Penal.
+Artículo 44.- (Derogado por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971)

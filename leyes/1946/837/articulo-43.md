@@ -1,9 +1,1 @@
-Artículo 43.-El contribuyente que presente una declaración falsa o incompleta, deberá .pagar además del impuesto que le corresponda y de los intereses y/o recargos propios de la mora, un recargo igual al monto del impuesto que haya dejado o habría dejado de pagar a consecuencia de su declaración viciosa. En ningún caso este recargo será inferior a cincuenta colones (¢50.00). Salvo prueba en contrario, se presumirá que una declaración es falsa o incompleta, cuando se presente cualquiera de las siguientes circunstancias:
-a) Intento de producir o facilitar la evasión total o parcial del impuesto, ya sea por omisión, aserción, simulación, ocultación, maniobra o por cualquier medio o hecho;
-b) Contradicción evidente entre los libros, documentos o demás antecedentes, con los datos que surjan de las declaraciones;
-c) Declaraciones que contengan datos falsos;
-d) Exclusión de algún bien, actividad u operación que implique una declaración incompleta de la materia imponible, salvo cuando, atendidos el volumen de ingresos del contribuyente y la escasa cuantía de lo excluído, pueda calificarse de simple olvido excusable;
-e) Suministro de informaciones inexactas sobre las actividades y negocios concernientes a ventas, compras, existencias o valuación de mercaderías, capital invertido o cualquier otro factor de carácter análogo o similar; y
-f) Llevar, para una misma contabilidad, dos o más juegos de libros, legalizados o no, con distintos asientos, con perjuicio de los intereses fiscales.
-Sin embargo, si el declarante espontáneamente corrigiera su declaración dentro de los treinta días siguientes a la fecha en que la presentó o después de ese plazo, pero antes de que hubiera sido iniciada la revisión correspondiente, quedará eximido del recargo a que este artículo se refiere.
-(Así reformado por el artículo 1° de la ley N° 1789 del 18 de setiembre de 1954)
+Artículo 43.- (Derogado por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971)

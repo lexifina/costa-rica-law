@@ -1,1 +1,1 @@
-Artículo 40.-Los Tesoreros Municipales deberán enviar a la Oficina de la Tributación, en la misma época señalada en el artículo anterior, una nómina de las patentes industriales y comerciales otorgadas en el año anterior.
+Artículo 40.- (Derogado por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971)

@@ -1,5 +1,1 @@
-Artículo 28.-Prescribe en el plazo de tres años el derecho del Fisco para determinar y liquidar el impuesto que debe pagarse de acuerdo con esta ley.
-Sin embargo, para los contribuyentes que no hayan declarado o para los que lo hayan hecho con evidente mala fe, el plazo será de cinco años.
-Este plazo de prescripción se interrumpe con la notificación de la resolución administrativa que impone al contribuyente el monto del impuesto que debe pagar, y comienza a contarse a partir de la expiración del año en que el impuesto haya debido pagarse.
-En cuanto al cobro del impuesto, ya proceda éste de la propia declaración del contribuyente o de la resolución firme que fije su monto, prescribe en el plazo de cinco años contados desde la expiración del año en que el impuesto haya debido pagarse si se origina en la declaración del contribuyente, o desde la fecha en que la resolución haya quedado firme en este último caso.
-(Así reformado por el artículo 1° de la ley N° 3063 del 14 de noviembre de 1962)
+Artículo 28.- (Derogado por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971)

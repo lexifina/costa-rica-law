@@ -1,2 +1,1 @@
-Artículo 30.- El recargo establecido en el artículo anterior no podrá ser mayor, en ningún caso, del veinticuatro por ciento (24%) del total del impuesto a pagar.
-(Así reformado por el artículo 1° de la ley N° 3063 del 14 de noviembre de 1962)
+Artículo 30.- (Derogado por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971)

@@ -1,2 +1,1 @@
-Artículo 45-Todo agente de retención que no cumpla con lo prescrito en los artículos 8°, inciso 7), 32. 62 y 63 de esta ley de retener o de pagar el impuesto retenido, será sancionado con una multa igual al impuesto que haya dejado de retener o de pagar, sin perjuicio del pago de dicho impuesto del que también es responsable. En ningún caso la multa podrá ser menor de cincuenta colones (¢ 50.00) .
-(Así reformado por el artículo 1° de la ley N° 3063 del 14 de noviembre de 1962)
+Artículo 45-(Derogado por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971)

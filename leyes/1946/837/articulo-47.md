@@ -1,1 +1,1 @@
-Artículo 47.-Los funcionarios de la Tributación que no cumplan las obligaciones que les impone la presente ley o que permitan o faciliten a cualquier persona burlar el impuesto u otras obligaciones señaladas en ella, serán removidos de sus cargos o condenados al pago de una multa de cien a tres mil colones. .
+Artículo 47.- (Derogado por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971)
