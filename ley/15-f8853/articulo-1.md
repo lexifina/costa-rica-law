@@ -1,0 +1,4 @@
+DECRETO XV
+Fija el número de electores principales y suplentes que respectivamente deben elegir las Provincias; como también el de Representantes al Congreso para la próxima renovación.
+El Senado y la Cámara de Representantes de la República de Costa Rica reunidos en Congreso. – En vista del Censo general de la población levantado el 27 de noviembre de 1864 y de los documentos a él adjuntos y de acuerdo con los artículos 59 y 64 de la Constitución, Decretan:
+Art 1° La Providencia de San José, elegirá ciento once electores principales y treinta y siete suplentes: la de Alajuela ochenta y un propietarios y veintisiete suplentes loa de Cartago sesenta y nueve principales y veintitrés suplentes: la de Heredia cincuenta y un propietarios y diecinueve suplentes la de Guanacaste treinta principales y diez suplentes y cuatro suplentes.
