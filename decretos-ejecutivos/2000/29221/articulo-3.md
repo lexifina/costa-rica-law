@@ -1,0 +1,1 @@
+Artículo 3°-La Unidad del Equidad de Género del Ministerio de Trabajo y Seguridad Social, tendrá como objetivo asesorar, capacitar, controlar y asistir técnicamente en la implementación y evaluación del Plan Nacional sobre Equidad de Género en el Trabajo.
