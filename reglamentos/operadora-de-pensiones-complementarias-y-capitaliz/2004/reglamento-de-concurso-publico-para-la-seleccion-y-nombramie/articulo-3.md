@@ -1,0 +1,1 @@
+Artículo 3º—Requisitos del puesto. Los requisitos del puesto de Auditor Interno se encuentran definidos en el Manual Descriptivo de Clases y en lo que establece la Ley General de Control Interno y Ley de Protección al Trabajador.

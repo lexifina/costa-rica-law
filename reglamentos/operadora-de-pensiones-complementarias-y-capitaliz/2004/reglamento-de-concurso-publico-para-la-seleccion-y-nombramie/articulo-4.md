@@ -1,0 +1,1 @@
+Artículo 4º—Sobre las condiciones de la evaluación. De previo a la realización del concurso, el Encargado Administrativo Financiero elaborará una propuesta que contendrá los elementos con los cuales se evaluarán las ofertas presentadas y sus ponderaciones, así como un cronograma de actividades.

@@ -1,0 +1,1 @@
+Artículo 15.—Comunicación del nombramiento a la Contraloría General de la República. De conformidad con el artículo 31 de la Ley General de Control Interno, se comunicará a la Contraloría General de la República el nombramiento efectuado a más tardar el primer día hábil del inicio de funciones en el cargo.

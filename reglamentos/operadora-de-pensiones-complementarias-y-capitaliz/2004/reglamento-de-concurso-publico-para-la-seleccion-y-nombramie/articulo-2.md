@@ -1,0 +1,1 @@
+Artículo 2º—Acciones previas. El Encargado Administrativo Financiero, programa y pone en marcha la realización del concurso público que indica la Ley de Control Interno para el nombramiento del Auditor Interno, comprobando que se cuente con el acuerdo de Junta Directiva en el que se autorice a la administración iniciar los trámites.

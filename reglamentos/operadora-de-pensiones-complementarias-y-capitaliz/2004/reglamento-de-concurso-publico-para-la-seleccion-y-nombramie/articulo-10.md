@@ -1,0 +1,2 @@
+Artículo 10.—Convocatoria para el proceso de evaluación. Las personas que cumplan con los requisitos de la clase del puesto en concurso y cuyas ofertas hayan sido aceptadas según lo establecido en los artículos 7º y 8º del presente Reglamento, serán convocadas para cumplir con la fase de evaluación.
+La convocatoria o convocatorias respectivas deberán especificar el día, la hora y el lugar en que se realizarán las entrevistas o actividades previstas, todo de conformidad con el artículo 4º del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 6º—Plazo para la presentación de ofertas. El plazo para la presentación de las ofertas no podrá ser en ningún caso menor a tres días naturales contados a partir del día siguiente de su publicación.
