@@ -1,0 +1,1 @@
+2°—Este departamento que se denominará Departamento de Conservación y Pesca, estará servido por un jefe y el personal necesarios para el buen desempeño de sus labores, los cuales deben estar técnicamente preparados en la materia.
