@@ -14,3 +14,4 @@ Estado de Emergencia de las Provincias de; Limón , cantones de Talamanca, Limó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-01-09 | la propia norma |
+| 2 | 2005-01-28 | Decreto Ejecutivo 32211 (2005-01-28) |
