@@ -1,11 +1,2 @@
-Artículo 2º.- Serán socios o accionistas de la Caja los miembros de
-la Asociación Nacional de Empleados Judiciales y todos los demás
-funcionarios o empleados, ya estén en servicio, con licencia, o sean
-jubilados o pensionados del Poder Judicial, quienes deberán suscribir las
-acciones que para llenar sus fines acuerde la Directiva de la Caja,
-fijándose cinco como mínimo para cada accionista.
-Lo será también la propia Asociación, que suscribirá temporalmente
-las acciones necesarias para completar el capital de la Caja, pero dichas
-acciones no estarán sujetas a la prohibición de traspaso o venta que
-establece el artículo siguiente, sino que serán traspasadas
-paulatinamente a los socios nuevos que ingresen a esta cooperativa.
+ARTÍCULO 2º.- Serán socios o accionistas de la Caja los miembros de la Asociación Nacional de Empleados Judiciales y todos los demás servidores, ya estén en servicio, con licencia, o sean jubilados o pensionados del Poder Judicial, para lo que deberán suscribir las acciones que para llenar sus fines, acuerde y determine la Junta Directiva de la Caja.
+(La Corte Suprema de Justicia, mediante resolución de las 15:00 horas del 11 de octubre de 1988 (expediente N° 227-87, promovido por Fernando Alfonso Mora Astorga y Juan Bautista Quirós Mora) declaró inconstitucional e inaplicable el artículo 2° de la reforma practicada por la Ley N° 6063 del 29 de julio de 1977, a éste artículo, únicamente en el aspecto del cual se infiere como obligatoria la pertenencia a la organización, por resultar ello contrario al artículo 25 Constitucional.)
