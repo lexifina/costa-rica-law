@@ -1,0 +1,1 @@
+Art 4° Se asigna la cantidad de cuatro mil pesos para gastos extraordinarios, administrativos y de representación del Presidente de la República en el año que cursa. El Secretario de Estado del Interior, dará cuenta en general a las Cámaras, de la inversión de esta suma.
