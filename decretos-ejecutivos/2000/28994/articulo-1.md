@@ -1,0 +1,12 @@
+N° 28994-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que le confieren los incisos 3) y 18) del numeral 140 de la Constitución Política, artículos 26 y 27 de la Ley General de la Administración Pública, y Ley N° 7384 del 16 de marzo de 1994.
+Considerando:
+1°—Que mediante Ley N° 7384 del 16de marzo de 1994, se creó el Instituto Costarricense de Pesca y Acuacultura (INCOPESCA) con el objetivo de proponer el programa nacional para el desarrollo de la pesca y la acuacultura, controlar la pesca y la caza de especies marinas en las aguas jurisdiccionales, dictar las medidas tendientes a la conservación, el fomento, el cultivo y el desarrollo de la flora y la fauna marinas y de la acuacultura, y regular el abastecimiento de la actividad pesquera.
+2°—Que para implementar las políticas, planes, programas y proyectos destinados al sector pesca y acuacultura, el INCOPESCA necesita incrementar en ₡110.0 millones, rubros de activos fijos y gasto corriente como son: la adquisición de vehículos, embarcaciones, construcción de muros de contención, adquisición de licencias de cómputo, la edificación de oficinas y erogaciones faltantes en el gasto corriente, cuyo financiamiento requiere ser incorporado en el presupuesto vigente del Instituto.
+3°—Que mediante el Decreto Ejecutivo N° 28046-H, publicado en La Gaceta N° 161 del 19 de agosto de 1999 y sus reformas, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria fiara el año 2000; las cuales fueron conocidas por el Consejo de Gobierno y debidamente aprobadas por el Presidente de la República, estableciendo los límites de gasto presupuestario y de gasto efectivo del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+4°—Que mediante el Decreto Ejecutivo N° 28917-H publicado en La Gaceta N° 180 del 20 de setiembre del 2000, se le modificaron al INCOPESCA tos límites de gasto establecidos en la normativa anteriormente citada.
+5°—Que para continuar con los objetivos establecidos en el INCOPESCA, es necesario ampliar los límites de gasto Presupuestario y Efectivo del 2000. Por tanto,
+DECRETAN:
+Articulo 1 °—Modificase para el Instituto Costarricense de Pesca y Acuacultura, los limites de gasto presupuestario y efectivo para el año 2000, establecidos en el Decreto Ejecutivo N° 28917-H, de manera que el gasto presupuestario y el gasto efectivo total no excedan la suma de ₡809.0 millones, en ese periodo.
