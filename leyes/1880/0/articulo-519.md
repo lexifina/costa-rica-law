@@ -1,3 +1,4 @@
+(Nota de Sinalevi: De conformidad con el artículo 5° de la ley N° 2 del 30 de agosto de 1899, "Establece penas aplicables a las personas que en publicaciones impresas falten al respecto debido a miembros de Supremos Poderes, Ministros Diplomáticos acreditados en el país y al Obispo Diocesano", se indicó lo siguiente: "Artículo 5°-Queda en estos términos adicionado el Título I del Libro III del Código Penal...")
 LIBRO TERCERO.
 TITULO PRIMERO.
 Capítulo único.
