@@ -1,0 +1,1 @@
+Artículo 13.—Presidencia. La persona que ocupe el cargo de la Subgerencia Técnica preside las sesiones del Consejo Central y en sus ausencias temporales lo hará la persona designada por ella. En caso de ausencia de ésta, se nombrará una presidencia ad-hoc.

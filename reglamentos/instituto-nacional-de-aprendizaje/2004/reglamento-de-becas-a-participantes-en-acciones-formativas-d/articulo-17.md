@@ -1,0 +1,1 @@
+Artículo 17.—Asuntos no incluidos en el orden del día. Los asuntos no incluidos en el orden del día no pueden ser objeto de acuerdo, salvo que por los dos tercios de quienes integran el Consejo sea declarada la urgencia del asunto. El orden del día de las sesiones ordinarias debe incluir siempre un capítulo de mociones y varios.

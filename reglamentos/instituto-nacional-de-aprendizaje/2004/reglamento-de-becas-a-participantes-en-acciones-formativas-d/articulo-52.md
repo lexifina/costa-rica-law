@@ -1,0 +1,2 @@
+Artículo 52.—Montos a pagar. Los gastos de viaje al exterior, los autoriza la Junta Directiva, según lo dispuesto por el Reglamento de Gastos de Viaje y de Transporte para Funcionarios del Estado, para viajar al exterior.
+Si la beca es financiada por algún organismo público o privado puede concederse a la persona designada, una suma complementaria o ayuda adicional para cubrir eventuales necesidades.

@@ -1,0 +1,1 @@
+Artículo 38.—Gastos personales. El INA puede otorgar a las personas participantes un porcentaje para cubrir gastos personales. Este beneficio se debe girar mensual o quincenalmente y el monto máximo a otorgar está definido en la "Tabla de Cuantificación de Ayuda Económica".

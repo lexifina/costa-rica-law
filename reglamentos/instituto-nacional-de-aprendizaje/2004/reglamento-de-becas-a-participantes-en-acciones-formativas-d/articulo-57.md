@@ -1,0 +1,1 @@
+Artículo 57.—Revisión y plazo. Cuando una persona reingresa a una acción formativa o continúa en otra acción formativa que no sea un programa y requiere de beca, deberá hacer la solicitud por escrito, para que se de el trámite a la prórroga de la beca. Cuando la permanencia fuera de la Institución fue superior a seis meses, deberá realizar nuevo trámite de beca.

@@ -1,0 +1,1 @@
+Artículo 34.—Financiamiento de beca por otros organismos. A quien recibe beca de algún organismo público o privado, el INA puede concederle una beca adicional, que complemente la beca recibida y le permita cubrir necesidades de su condición de participante.

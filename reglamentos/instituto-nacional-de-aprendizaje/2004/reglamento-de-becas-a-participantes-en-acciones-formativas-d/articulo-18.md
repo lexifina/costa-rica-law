@@ -1,0 +1,1 @@
+Artículo 18.—Obligaciones de votar. Las personas integrantes del Consejo Central, deben votar afirmativa o negativamente, no pudiendo abstenerse de hacerlo, salvo que exista motivo que les impida conocer el asunto. No obstante por decisión de la mayoría de los presentes, la Presidencia puede postergar la votación, por una sola vez, para realizarla en sesión posterior.
