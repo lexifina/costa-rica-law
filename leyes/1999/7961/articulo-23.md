@@ -1,0 +1,1 @@
+Artículo 23.- Resoluciones y registro. Si se han cumplido los requisitos fijados, el Registro registrará el esquema de trazado, expedirá un certificado con los datos incluidos en el registro correspondiente y ordenará que el registro se anuncie en el diario oficial.

@@ -1,0 +1,1 @@
+Artículo 28.- Ausencia de legalización. Ningún trámite administrativo, instancia de parte o contencioso, relativo a la obtención, el mantenimiento o la disposición de un registro previsto en esta ley, será admisible si los documentos no cumplen las autenticaciones, la legalización, y la certificación respectiva.

@@ -1,0 +1,1 @@
+Artículo 12.- Creación independiente. El titular del registro de un esquema de trazado no podrá impedirle a un tercero realizar los actos mencionados en el inciso b) del primer párrafo del artículo 8 de la presente ley respecto de otro esquema de trazado original creado independientemente por un tercero, aun cuando sea idéntico.

@@ -1,0 +1,4 @@
+Artículo 32.- Publicidad de expedientes. Cualquier persona podrá consultar en el Registro el expediente relativo a una solicitud publicada aun después de haber concluido su trámite.
+El expediente de una solicitud en trámite no podrá ser consultado por terceros antes de publicarse la solicitud, salvo consentimiento por escrito del solicitante. Esta restricción es aplicable igualmente a las solicitudes que hayan sido objeto de desistimiento o abandono, antes de ser publicadas.
+El expediente de una solicitud en trámite podrá ser consultado antes de su publicación por quien acredite que el solicitante lo ha notificado para que cese alguna actividad industrial o comercial, invocando la solicitud.
+Cuando el esquema de trazado incluya algún secreto empresarial, será aplicable, en lo pertinente, lo dispuesto en el tercer párrafo del artículo anterior.

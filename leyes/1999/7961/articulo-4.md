@@ -1,0 +1,2 @@
+Artículo 4.- Condición para la protección. Un esquema de trazado será protegido cuando sea original. Se considerará original cuando resulte del esfuerzo intelectual propio de su diseñador y no sea corriente en el sector de la industria de los circuitos integrados.
+Cuando un esquema de trazado esté constituido por uno o más elementos corrientes en el sector de la industria de los circuitos integrados, se considerará original si la combinación de los elementos, como conjunto, cumple con esta condición.

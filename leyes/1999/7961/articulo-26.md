@@ -1,0 +1,1 @@
+Artículo 26.- Responsabilidades. Las acciones administrativas, civiles o penales relacionadas con esta ley se regularán en una ley posterior sobre procedimientos de observancia de los derechos de propiedad intelectual.

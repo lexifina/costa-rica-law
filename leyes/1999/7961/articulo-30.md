@@ -1,0 +1,1 @@
+Artículo 30.- Inscripción y publicación de las resoluciones. El Registro inscribirá y publicará en el diario oficial las resoluciones y sentencias firmes relativas a la concesión de licencias obligatorias y a la nulidad, anulación o renuncia de los registros.

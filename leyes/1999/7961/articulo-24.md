@@ -1,0 +1,7 @@
+CAPÍTULO VI
+Nulidad, anulación y otras medidas
+Artículo 24.- Nulidad. Siempre que se garanticen los principios del debido proceso, el Registro podrá declarar, de oficio o a pedido de cualquier sujeto al menos con interés legítimo la nulidad de registro de un esquema de trazado, siempre que sea evidente y manifiesta, en los siguientes casos:
+a) Cuando el objeto del registro no constituya un esquema de trazado conforme a la definición del artículo 1 de la presente ley.
+b) Cuando el registro se haya concedido para un esquema de trazado que no cumple con los requisitos de protección previstos en el artículo 4 de la presente ley.
+c) Cuando el registro se haya concedido para un esquema de trazado presentado después de vencido alguno de los plazos dispuestos en los párrafos segundo y tercero del artículo 6 de la presente ley.
+Cuando una causal de nulidad solo afecte a una parte del esquema de trazado registrado, la nulidad se declarará únicamente respecto de la parte afectada, y el registro quedará vigente para las demás partes, siempre que, en su conjunto, cumplan el requisito de originalidad conforme al artículo 4 de la presente ley. La acción de nulidad prescribirá a los cuatro años contados desde la fecha de concesión del registro. La declaración de nulidad tendrá efecto retroactivo a la fecha del acto, todo sin perjuicio de los derechos adquiridos de buena fe. Tratándose de una nulidad declarada de oficio se estará a lo dispuesto en los incisos 1) a 3) del artículo 173 de la Ley General de la Administración Pública, No. 6227, de 2 de mayo de 1978.
