@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza del Fondo. El Fondo es un órgano con personería jurídica propia y capacidad para adquirir derechos y contraer obligaciones, adscrito a la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica.

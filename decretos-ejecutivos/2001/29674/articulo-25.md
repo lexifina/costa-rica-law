@@ -1,0 +1,4 @@
+Artículo 25.—De los acuerdos. Los acuerdos o resoluciones serán adoptados por simple mayoría de los presentes, salvo en aquellos casos que por disposición legal se exija una mayoría calificada.
+Los miembros de la Junta votarán los asuntos sometidos a su conocimiento. No obstante lo anterior, cuando tres miembros manifiesten su deseo de estudiar más un asunto, petición o proposición, la Junta postergará por una sola vez la votación hasta la sesión siguiente.
+Cuando hubiere empate en la votación de una moción, de un acuerdo o de otra disposición de la Junta ya sea en general o en detalle, el Presidente resolverá conforme y para ello tendrá doble voto.
+Los acuerdos de la Junta votados y aprobados con mayoría calificada quedarán en firme en forma inmediata. Los acuerdos votados y aprobados con mayoría simple, quedarán en firme hasta cuando se apruebe el acta respectiva en la sesión siguiente.

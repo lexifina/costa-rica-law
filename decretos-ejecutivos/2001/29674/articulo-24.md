@@ -1,0 +1,1 @@
+Artículo 24.—De las sesiones fuera de la sede del Fondo. El Presidente de la Junta podrá convocar periódicamente a sesiones extraordinarias en lugares distintos a la sede legal del Fondo, con el objeto de que los miembros puedan conocer los diferentes asuntos que conciernen al Fondo.

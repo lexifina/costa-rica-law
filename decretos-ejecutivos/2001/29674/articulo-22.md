@@ -1,0 +1,2 @@
+Artículo 22.—De las sesiones extraordinarias. Las sesiones extraordinarias se celebrarán cuando sean convocadas por el Presidente, el Vicepresidente o cuatro de los miembros de la Junta, por lo menos con veinticuatro horas de antelación. Se deberá comunicar el objeto y la hora de la sesión, salvo en aquellos casos en que todos los miembros de la Junta estén presentes y acuerden prescindir de la convocatoria.
+Igualmente se realizarán sesiones extraordinarias cuando en sesión ordinaria sea dispuesto por la Junta Directiva.
