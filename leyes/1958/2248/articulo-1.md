@@ -1,4 +1,5 @@
 N° 2248
+(Nota de Sinalevi: Mediante decreto ejecutivo No. 22009 del 2° de marzo de 1993, “Reglamento a la Ley que Reforma Integralmente la Ley de Pensiones y Jubilaciones del Magisterio Nacional”, se reglamentó la Ley No. 7268, que a su vez es una reforma integral de esta Ley.)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 La siguiente
@@ -9,7 +10,8 @@ CAPÍTULO I
 DEL REGIMEN DE PENSIONES Y JUBILACIONES
 De los beneficiarios
 Artículo 1º.- Estarán protegidos por los alcances y beneficios de esta Ley las personas que se desempeñen en el Magisterio Nacional, específicamente:
-a) Quienes sirvan en cargos docentes, tal y como lo define el artículo 54 de la Ley de Carrera Docente, en instituciones educativas públicas o privadas de enseñanza preescolar, enseñanza general básica, educación diversificada y en las universidades estatales.
+a) Quienes sirvan en cargos docentes, tal y como lo define el artículo 54 de la Ley de Carrera Docente, en instituciones educativas públicas o privadas de enseñanza preescolar, enseñanza general básica, educación diversificada y en las instituciones de educación superior estatal.
+(Así reformado el inciso anterior por el artículo 40 de la Ley Régimen General de Pensiones con Cargo al Presupuesto Nacional (Marco), N° 7302 del 8 de julio de 1992)
 b) El personal administrativo del Ministerio de Educación Pública y de los centros de educación antes indicados.
 c) Los funcionarios del Instituto Nacional de Aprendizaje, que ejerzan actividades docentes.
 ch) Quienes ya gozan de pensión o jubilación al amparo de esta Ley.
