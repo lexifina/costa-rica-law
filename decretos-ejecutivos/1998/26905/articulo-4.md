@@ -1,0 +1,1 @@
+Artículo 4°— La Caja Costarricense de Seguro Social y el Ministerio de Salud con la asesoría del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud serán los responsables de la capacitación de los equipos técnicos encargados de atender a los niños y en el primer y segundo nivel de atención.
