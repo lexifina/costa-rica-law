@@ -14,3 +14,4 @@ Reforma Reglamento de Proveeduría y el de Compras por Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-25 | la propia norma |
+| 2 | 2000-02-25 | Ley 8 |
