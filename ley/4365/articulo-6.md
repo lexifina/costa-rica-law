@@ -1,0 +1,2 @@
+Artículo 6º.- La Administración Postal disfrutará, para satisfacer las necesidades del correo, de la suma que representará el 15% de descuento en todas las compras que haga ésta al Banco Central. Además, dicha Administración se beneficiará con el 9% del monto de las ventas hechas por el Banco Central a particulares u otras instituciones.
+Queda entendido que el Banco Central siempre hará el descuento del 6% al público, para las ventas de estampillas que pasan de los veinticinco colones, como lo establece la ley.

@@ -1,0 +1,1 @@
+Transitorio I.- Mientras haya en existencia sellos "Pro Plan Postal y Social" de diez céntimos (¢ 0.10), podrán utilizarse agregando a cada pieza dos, de manera que sumen los veinte céntimos de que habla el artículo 3º de la ley.
