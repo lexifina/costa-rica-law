@@ -13,3 +13,4 @@ Transporte de madera en troza o aserrada dentro del territorio nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-07-19 | la propia norma |
+| 2 | 1989-12-22 | Decreto Ejecutivo 19498 (1989-12-22) |

@@ -1,2 +1,1 @@
-Artículo 4°—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los diecinueve días del mes de julio de mil novecientos ochenta y nueve.
+Artículo 4°—La Guardia de Asistencia Rural velará conjuntamente con los funcionarios de la Dirección General Forestal, para que el horario mencionado sea debidamente respetado.

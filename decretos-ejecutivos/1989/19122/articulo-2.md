@@ -1,1 +1,1 @@
-Artículo 2°—Al conductor de un vehículo que transporte madera fuera del horario señalado, le será cancelada su licencia para transportar ese tipo de productos.
+Artículo 2°—Al conductor de un vehículo que transporte madera fuera del horario señalado, le será cancelada su licencia para transportar este tipo de productos por un período de un año la primera vez, período que, en caso de reincidencia, se aumentará por tantos iguales.

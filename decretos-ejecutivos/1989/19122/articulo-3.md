@@ -1,1 +1,1 @@
-Artículo 3°—La Guardia de Asistencia Rural velará conjuntamente con los funcionarios de la Dirección General Forestal, para que el horario mencionado sea debidamente respetado.
+Artículo 3°—El transporte de madera aserrada, proveniente de industrias forestales estacionarias o aserraderos convencionales, debe portar únicamente la factura membretada del aserradero o industria forestal, donde se indique la fecha, clases, cantidad y especie de las piezas transportadas
