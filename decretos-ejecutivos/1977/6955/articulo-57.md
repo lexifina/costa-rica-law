@@ -1,0 +1,1 @@
+Artículo 57 .- La calificación del comportamiento en el III ciclo estará a cargo de un Comité integrado por el Asistente de orientación que tiene a cargo el grupo, el profesor guía y el presidente de la sección.

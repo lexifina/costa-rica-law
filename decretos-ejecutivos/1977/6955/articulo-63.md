@@ -1,0 +1,1 @@
+Artículo 63.—La suspensión por el resto del curso lectivo podrá ser apelada ante el Ministro de Educación Pública, dentro de los quince días siguientes a la notificación del respectivo acuerdo. [imagen]

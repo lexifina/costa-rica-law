@@ -1,0 +1,1 @@
+Artículo 62.—En el caso del artículo anterior, el alumno podrá ser suspendido hasta por S días hábiles por el director mientras éste o su delegado levanta la información del caso. En caso de suspensión por el resto del curso, las ausencias correspondientes se computarán como ausencias inmotivadas y acarrearán las consecuencias señaladas en el artículo 71.

@@ -1,0 +1,1 @@
+Artículo 16.—Para la resolución de casos, los Comités de Evaluación podrán asesorarse con la Unidad de Evaluación del Ministerio de Educación Pública con aquellas personas, organismos y dependencias que consideren convenientes para el mejor cumplimiento de su función.

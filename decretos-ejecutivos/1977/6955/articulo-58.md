@@ -1,0 +1,1 @@
+Artículo 58.—La nota de comportamiento inferior a 60 obtenido en dos trimestres para el año de Enlace o en tres trimestres para la Unidad Educativa o el promedio general inferior a 60, obligarán al alumno a presentar pruebas de aplazados en todas las asignaturas y actividades, en que tenga un promedio final inferior a 70.

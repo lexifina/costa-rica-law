@@ -1,0 +1,1 @@
+Artículo 81 .—La Unidad de Evaluación y las Instituciones Educativas serán responsables de que la evaluación y la promoción se realicen con riguroso acatamiento de lo dispuesto en el presente reglamento.

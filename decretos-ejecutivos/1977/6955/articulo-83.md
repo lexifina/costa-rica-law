@@ -1,0 +1,1 @@
+Articulo 83.—Las actividades de asesoramiento en evaluación que lleven a cabo entidades públicas o privadas deberán ser debidamente coordinadas con las que realiza el Ministerio de Educación Pública por medio de la Unidad de Evaluación.
