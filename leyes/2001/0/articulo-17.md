@@ -1,0 +1,4 @@
+Artículo 17.—Documentación a entregar por el adjudicatario. Dentro del plazo de diez días naturales, en obras de menor plazo, y de quince días naturales, en obras cuya ejecución demande plazos mayores a los tres meses, ambos plazos contados a partir de la orden de inicio, el adjudicatario deberá entregar a la Unidad de Arquitectura e Ingeniería:
+1) El detalle de actividades y su correspondiente asignación temporal dentro del plazo previsto para la entrega de la obra, de acuerdo a la técnica indicada por el cartel o, por la Unidad de Arquitectura (Ruta Crítica, Diagrama de Pert, etc.).
+2) El presupuesto detallado de la obra.
+En caso de omisión, la Unidad de Arquitectura e Ingeniería no dará trámite favorable a ninguna factura presentada a cobro, e intimará su presentación por una única vez al Contratista.
