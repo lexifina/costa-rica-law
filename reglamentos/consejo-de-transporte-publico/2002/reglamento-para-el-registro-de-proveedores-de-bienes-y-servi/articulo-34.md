@@ -1,0 +1,1 @@
+Artículo 34.—Inscripción de oficio. De no efectuarse la supervisión en el plazo establecido, el Departamento de Proveeduría inscribirá de oficio al potencial oferente en el Registro. Los perjuicios derivados por falta de supervisión oportuna, será responsabilidad de la Unidad Supervisora de dicho trámite.

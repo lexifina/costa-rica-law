@@ -1,0 +1,1 @@
+Artículo 26.—Verificación posterior del proveedor. Sin perjuicio de lo establecido en los artículos 23, 24 y 25 de este Reglamento, todo proveedor está obligado a verificar su inclusión en el Registro dentro del plazo de veinte días hábiles posteriores a la aceptación de los documentos que se requieran para integrar el Registro y mantener actualizada su inscripción.

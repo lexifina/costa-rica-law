@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza: El Registro de Proveedores del Consejo de Transporte Público es el instrumento idóneo para incorporar la información de las personas físicas y jurídicas que deseen participar en los procesos de contratación administrativa que lleva a cabo el Consejo, con el fin de adquirir sus bienes y servicios.

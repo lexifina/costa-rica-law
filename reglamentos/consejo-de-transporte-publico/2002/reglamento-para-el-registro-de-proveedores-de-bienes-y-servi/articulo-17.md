@@ -1,0 +1,12 @@
+Artículo 17.—Documentos legales. Además de la información solicitada en el artículo 16 de este Reglamento, el interesado en formar parte del Registro deberá aportar la siguiente documentación, según corresponda:
+a) Certificación original o copia certificada expedida por Registro Público o notarial, sobre la personería (existencia, vigencia y representación), en caso de personas jurídicas.
+b) Certificación original o copia certificada expedida por el Registro Público o notarial, respecto a la naturaleza y propiedad de sus cuotas o acciones. En caso de que dentro de sus accionistas figuren personas jurídicas, deberá aportar igual certificación en cuanto a la naturaleza y propiedad de las acciones de éstas últimas; así como la lista de Socios y cantidad de Acciones que posean.
+c) Fotocopia por ambos lados de la cédula de identidad o cédula jurídica, según sea el proveedor de que se trate.
+d) Fotocopia por ambos lados de la cédula de identidad, número de pasaporte o documento de identificación del representante legal.
+e) Copia certificada del acuerdo consorcial, cuando el proveedor sea de dicha naturaleza.
+f) Fotocopia certificada de la resolución mediante la cual la Contraloría General de la República, procede a levantar la incompatibilidad, según los términos del artículo 23 de la Ley de Contratación Administrativa.
+g) Declaración jurada, expedida por una persona con poder suficiente acreditada para ello, en la que manifieste que no le alcanzan las prohibiciones contenidas en el artículo 22 y 24 de la Ley de Contratación Administrativa No. 7494 del 24 de abril de 1995.
+h) Declaración jurada, expedida por una persona con poder suficiente acreditada para ello, en la que se indique que se encuentra al día en el pago de todo tipo de impuestos nacionales (costarricenses).
+i) Aportar original de certificaciones o copia autenticada de inscripción a colegios profesionales y otros.
+j) Las personas físicas o jurídicas, que ofrezcan bienes o servicios para los cuales requieran permisos especiales o requisitos semejantes para el desempeño de sus actividades respecto de ellos, deberán aportar documentos probatorios de esta situación, emitidos por las autoridades competentes.
+Las certificaciones a que se refiere este artículo deberán de tener una fecha de expedición no mayor a un mes, respecto de la fecha en que se presenten los documentos para la inscripción en el Registro de Proveedores.

@@ -1,0 +1,1 @@
+Artículo 11.—Registro de Proveedores. La Proveeduría, estará en la obligación de mantener incluidos en forma indefinida en el Registro a todas aquellas personas físicas o jurídicas que han sido incluidas con sujeción a los procedimientos preestablecidos, salvo que por situaciones especiales establecidas en el Capítulo VI de este Reglamento, se amerite su exclusión.

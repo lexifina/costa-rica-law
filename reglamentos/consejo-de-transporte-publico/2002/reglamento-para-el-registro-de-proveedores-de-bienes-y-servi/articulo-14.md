@@ -1,0 +1,1 @@
+Artículo 14.—Regionalización de proveedores. Sin menoscabo del principio de libre participación, la Proveeduría estará facultada para agrupar regionalmente los bienes y servicios ofrecidos por los proveedores, según las necesidades y requerimientos por cubrir dentro de la actividad administrativa.

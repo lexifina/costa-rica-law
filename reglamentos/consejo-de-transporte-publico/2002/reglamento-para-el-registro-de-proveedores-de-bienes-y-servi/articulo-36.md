@@ -1,0 +1,1 @@
+Artículo 36.—Contratación de Servicios. La contratación de servicios previstos en los apartados precedentes, podrá aplicarse en forma subsidiaria en el hecho de que el Consejo haya acordado otro mecanismo para la atención de esos rubros. Lo anterior, únicamente y bajo resolución del Consejo de Transporte Público.

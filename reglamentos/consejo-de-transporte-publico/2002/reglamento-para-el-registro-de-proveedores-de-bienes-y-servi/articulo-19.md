@@ -1,0 +1,1 @@
+Artículo 19.—Idioma de los Documentos. Tanto la solicitud de incorporación como la documentación que debe adjuntarse a la misma, deberán presentarse en idioma español o bien con la respectiva traducción oficial, así como satisfacer la diligencia consular, éste último cuando sean emitidos en el exterior.

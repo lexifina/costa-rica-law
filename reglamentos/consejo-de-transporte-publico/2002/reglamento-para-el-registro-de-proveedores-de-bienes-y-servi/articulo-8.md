@@ -1,0 +1,1 @@
+Artículo 8º—Catálogo de Bienes y Servicios. Los bienes y servicios se registrarán en el "Catálogo de Bienes y Servicios" y tendrán como mínimo, una descripción básica de aquellos rubros que le interesa al Consejo adquirir, para el cumplimiento y protección de los intereses colectivos que le han sido asignados.

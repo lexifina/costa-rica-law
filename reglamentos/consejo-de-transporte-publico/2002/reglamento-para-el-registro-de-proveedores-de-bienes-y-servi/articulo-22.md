@@ -1,0 +1,1 @@
+Artículo 22.—Vigencia de los documentos. Para los Proveedores Extranjeros, todos los documentos mencionados en el Art. 18 de este Reglamento que se aporten, deberán tener una fecha de expedición no superior a tres meses, respecto de la fecha en que son presentados para la inscripción en el Registro.

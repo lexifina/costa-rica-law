@@ -1,0 +1,1 @@
+Artículo 28.—Validez de la información y documentos aportados por el proveedor. Salvo prueba en contrario, por el solo hecho de presentar la solicitud de inscripción, la documentación e información aportada por el Proveedor para lograr la inscripción, así como cualquier información complementaria, se reputará válida salvo prueba en contrario que se deduzca posteriormente.

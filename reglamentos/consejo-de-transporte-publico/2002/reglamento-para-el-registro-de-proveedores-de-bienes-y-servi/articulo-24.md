@@ -1,0 +1,2 @@
+Artículo 24.—Notificación al Proveedor. La Proveeduría procederá a notificar formalmente al oferente que no califica según el artículo anterior el resultado de su gestión, dentro de los tres días hábiles siguientes a la verificación efectuada, dándole a conocer el número con el que se identifica su expediente.
+La notificación se efectuará por el medio o mecanismo que el proveedor acredite en el expediente del Registro. En caso de no ubicarse el lugar acreditado, se dejará constancia en el expediente de tal situación y se procederá a notificar por el Diario Oficial La Gaceta.
