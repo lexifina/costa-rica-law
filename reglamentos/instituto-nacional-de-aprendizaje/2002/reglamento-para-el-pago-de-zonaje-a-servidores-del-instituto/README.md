@@ -14,3 +14,4 @@ Reglamento para el Pago de Zonaje a Servidores del Instituto Nacional de Aprendi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-18 | la propia norma |
+| 2 | 2002-02-18 | Reglamento 3944 (2002-02-18) |
