@@ -1,0 +1,2 @@
+Artículo 3º—E1 nombramiento, los traslados, ascensos, descensos y permutas del personal que cumpla labores técnico docentes o administrativo-docentes, serán regulados por las disposiciones contenidas en el Título I del
+Estatuto de Servicio Civil y su correspondiente reglamento. Cuando dichos movimientos se refieran al personal propiamente docente, se aplicará lo dispuesto por el artículo 114 del Estatuto Servicio Civil y las disposiciones complementarias que al efecto dicte el Departamento Docente de Servicio Civil.

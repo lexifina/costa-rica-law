@@ -1,0 +1,1 @@
+Artículo 7-iniciado el curso no podrá nombrarse como interino o sustituto a servidor alguno que desempeñe puesto en propiedad salvo que el nombramiento o sustitución lo fuere por el resto del curso respectivo.

@@ -1,0 +1,1 @@
+Artículo 4º—El Departamento de Personal del Ministerio de Educación Pública, deberá entregar al Departamento Docente de la Dirección General de Servicio Civil, la totalidad de las plazas vacantes que deban ser ocupadas por servidores propiamente docentes, en las fechas que indique esta última dependencia con no menos un mes de anticipación.

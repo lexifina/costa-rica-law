@@ -1,0 +1,1 @@
+Artículo 15. —Sin perjuicio de los movimientos de personal aprobados por el Departamento Docente del Servicio Civil hasta la fecha en que éste sea público, el presente decreto rige a partir del primero de enero de mil novecientos ochenta y uno, y deroga el decreto Nº 2670-E-P de cuatro días del mes de diciembre de mil novecientos setenta y dos y sus reformas.

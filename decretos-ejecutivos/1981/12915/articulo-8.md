@@ -1,0 +1,1 @@
+Artículo 8—Sólo por inopia del personal y hasta por un máximo de 12 lecciones interinas, podrá, ser nombrado personal que tenga plaza en propiedad en otra clase de puesto, siempre que no exista superposición horaria.
