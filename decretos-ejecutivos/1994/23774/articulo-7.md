@@ -1,0 +1,1 @@
+Artículo 7º.-El presente Decreto se hace con el propósito de individualizar los terrenos que el Estado está autorizado para adquirir conforme las disposiciones y las leyes Nº6084 y Nº 7174. Esta Declaratoria irá cobrando plena y absoluta eficacia conforme el Estado vaya adquiriendo los inmuebles que restan por comprar.

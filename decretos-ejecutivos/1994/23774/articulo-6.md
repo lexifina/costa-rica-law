@@ -1,0 +1,1 @@
+Artículo 6º.-Deróguese los Decretos Ejecutivos Nº 20791-MIRENEM, de 30 setiembre de 1991 y Nº 21197-MIRENEM de 27 de marzo de 1992, que establecieron el Parque Nacional Arenal con otros límites a los presentes.
