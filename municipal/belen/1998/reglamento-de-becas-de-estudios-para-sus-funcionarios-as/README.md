@@ -14,3 +14,4 @@ Reglamento de Becas de Estudios para sus Funcionarios (as)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-11-23 | la propia norma |
+| 2 | 1999-09-07 | Reglamento municipal 48 (1999-09-07) |
