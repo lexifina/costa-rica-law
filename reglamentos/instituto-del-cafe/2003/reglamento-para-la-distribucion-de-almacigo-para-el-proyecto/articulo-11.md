@@ -1,0 +1,1 @@
+Artículo 11.—Conforme lo que dispone Ley de General de Control Interno, la Auditoría Interna tendrá la potestad de realizar auditorías sobre la asignación de fondos públicos transferidos a terceros a través del Proyecto de Renovación de Plantaciones de Café.
