@@ -1,0 +1,1 @@
+Artículo 8°.- El certificado a que se refiere este Reglamento, será extendido por el Departamento de Educación para Adultos y será rubricado necesariamente por el Administrador General de Educación y el jefe de dicho Departamento.

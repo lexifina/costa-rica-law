@@ -1,0 +1,1 @@
+Artículo 5°.- Las pruebas serán escritas y elaboradas por el Departamento de Educación para Adultos; su práctica y evaluación corresponderá a las Comisiones, que para este efecto, integre dicho Departamento.

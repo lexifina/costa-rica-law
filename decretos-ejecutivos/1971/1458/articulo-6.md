@@ -1,0 +1,1 @@
+Artículo 6°.- Las Comisiones a que se refiere el artículo inmediato anterior, tendrán las atribuciones y funcionarán de acuerdo con la reglamentación que dicte el Departamento de Educación para Adultos.

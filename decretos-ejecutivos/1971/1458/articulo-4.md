@@ -1,0 +1,1 @@
+Artículo 4°.- La escala de calificaciones irá del uno a diez; la nota mínima para aprobar cualquier ejercicio será de 6. No obstante, si un aspirante logra un promedio general superior a 6, y sólo en una materia obtiene una nota inferior a esa calificación, se tendrá tal materia por aprobada.

@@ -1,0 +1,1 @@
+Artículo 2°.- Para optar tal certificado, el aspirante debe tener por lo menos 15 años de edad, ser de buena conducta y demostrar que ha adquirido los conocimientos propios de la enseñanza básica para adultos.
