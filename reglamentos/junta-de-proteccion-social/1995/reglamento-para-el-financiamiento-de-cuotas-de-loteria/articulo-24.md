@@ -1,0 +1,1 @@
+Artículo 24.—Aquellos adjudicatarios cuya cuota se encuentre en trámite de cancelación deberá suspendérsele los efectos hasta que se dicte la resolución final. En el caso de aquellos que poseen tres seguimientos de serie negativos pendiente de trámite de cancelación, se mantendrá en suspenso la solicitud respectiva, hasta que haya una resolución sobre el mismo.

@@ -1,0 +1,1 @@
+Artículo 21.—El interés corriente en los financiamientos extraordinarios será igual a la tasa activa que cobre el Banco Nacional de Costa Rica en sus operaciones crediticias para el sector comercial; y en última instancia será fijada por la Junta Directiva.

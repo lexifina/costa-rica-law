@@ -1,0 +1,1 @@
+Artículo 18.—El préstamo para financiamiento extraordinario se otorga sobre una cuota anteriormente financiada. Estos casos deberá conocerlos la Comisión y enviarlos a Junta Directiva quien tendrá la potestad de aprobación y deberá cancelarse dentro de las veinticinco semanas a partir de la entrega de la autorización de financiamiento.

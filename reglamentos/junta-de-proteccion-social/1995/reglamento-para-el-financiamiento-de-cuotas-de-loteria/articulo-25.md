@@ -1,0 +1,1 @@
+Artículo 25.—La Junta Directiva tendrá la potestad de definir los sorteos extraordinarios objeto de financiamiento en consignación, así como la cantidad de billetes de lotería a entregar a los adjudicatarios.

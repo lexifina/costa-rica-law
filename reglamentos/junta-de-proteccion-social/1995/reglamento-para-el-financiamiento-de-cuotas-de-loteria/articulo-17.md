@@ -1,0 +1,1 @@
+Artículo 17.—El financiamiento por diferencia de precio, es aquel que se otorga para cubrir la diferencia en el nuevo costo de la Lotería en los sorteos ordinarios, respecto al costo de la cuota antes de la variación en precio. Deberá cancelarlo el adjudicatario dentro de las quince semanas (15) posteriores a la entrega de la autorización de financiamiento.

@@ -1,0 +1,1 @@
+Artículo 61.—El no pago de dos abonos consecutivos por parte del adjudicatario da lugar a iniciar el trámite de cobro administrativo. En el caso del financiamiento para lotería en consignación se iniciará el día hábil siguiente a la fecha de pago establecida.

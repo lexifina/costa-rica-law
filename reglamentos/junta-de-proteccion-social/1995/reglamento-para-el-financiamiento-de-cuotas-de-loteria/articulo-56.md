@@ -1,0 +1,1 @@
+Artículo 56.—El plazo máximo para la cancelación de un financiamiento debido a un aumento de precio de las loterías es de quince semanas, mediante cuotas semanales iguales y consecutivas que incluye amortización e intereses.

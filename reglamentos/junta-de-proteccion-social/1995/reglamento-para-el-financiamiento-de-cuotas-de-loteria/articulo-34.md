@@ -1,0 +1,1 @@
+Artículo 34.—Será potestad de la Comisión de Financiamiento, resolver los créditos corrientes, por diferencia de precio y en consignación a los adjudicatarios, así como analizar y recomendar los créditos de las Cooperativas y los créditos extraordinarios, los que tendrán que resolverse en Junta Directiva.

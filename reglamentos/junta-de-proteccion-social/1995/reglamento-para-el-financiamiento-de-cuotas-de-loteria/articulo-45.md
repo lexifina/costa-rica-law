@@ -1,0 +1,1 @@
+Artículo 45.—En caso de garantía fiduciaria, se requiere la fianza de una o dos personas, quienes deben tener sueldos o ingresos mensuales que en forma individual o conjunta alcancen al menos el 50% del crédito solicitado. Solo se aceptarán fiadores con sueldos o ingresos sujetos de embargo conforme a la ley.

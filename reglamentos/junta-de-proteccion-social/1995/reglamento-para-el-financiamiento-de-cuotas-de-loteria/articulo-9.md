@@ -1,0 +1,1 @@
+Artículo 9°—De cada sesión de la Comisión se levantará un acta donde conste todo asunto tratado y resuelto por ésta, además se consignarán las firmas de los presentes, con la numeración, fecha y hora de inicio y finalización de la misma.

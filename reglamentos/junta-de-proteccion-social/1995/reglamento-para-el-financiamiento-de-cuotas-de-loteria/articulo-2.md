@@ -1,0 +1,1 @@
+Artículo 2°—El contenido económico para el cumplimiento de los objetivos de la Institución se denomina fondo presupuestario para financiamiento y lo constituyen los recursos que anualmente la Junta destina para que el adjudicatario pueda efectuar el retiro de las cuotas de loterías financiadas.

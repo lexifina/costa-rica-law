@@ -1,0 +1,1 @@
+Artículo 5°—Las evaluaciones y recomendaciones de la Comisión de Financiamiento serán remitidas a la Junta Directiva para la resolución correspondiente. Las potestades para resolver asuntos, serán únicamente las contempladas en este Reglamento.

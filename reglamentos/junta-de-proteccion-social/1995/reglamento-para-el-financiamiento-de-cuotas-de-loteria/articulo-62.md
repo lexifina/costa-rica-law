@@ -1,0 +1,1 @@
+Artículo 62.—Transcurridos quince días naturales de iniciado el trámite de cobro administrativo y si la deuda no ha sido cancelada en todo o en parte, se iniciarán los trámites de cobro judicial. Para ello se enviarán los respectivos documentos a la Asesoría Legal quien procederá de acuerdo con los términos y condiciones que la ley indica.

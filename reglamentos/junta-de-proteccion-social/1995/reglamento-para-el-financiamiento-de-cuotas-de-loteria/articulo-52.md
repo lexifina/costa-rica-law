@@ -1,0 +1,1 @@
+Artículo 52.—El trámite del préstamo se iniciará una vez recibido el acuerdo por parte del Consejo de Administración de la Cooperativa, en el cual autorice la gestión del crédito ante la Junta, trámite similar se seguirá para las organizaciones sociales.

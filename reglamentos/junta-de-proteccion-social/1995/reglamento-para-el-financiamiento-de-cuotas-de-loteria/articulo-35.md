@@ -1,0 +1,1 @@
+Artículo 35.—Una vez resuelto el crédito, sea por comisión de financiamiento o por junta directiva se comunicará al solicitante. Si la resolución fuere positiva la Unidad de Financiamiento completará la fórmula de autorización incluyendo el número del acta, fecha de sesión cuando fue aprobado.

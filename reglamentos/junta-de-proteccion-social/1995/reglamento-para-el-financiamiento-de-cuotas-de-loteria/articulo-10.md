@@ -1,0 +1,1 @@
+Artículo 10.—En caso de ausencia temporal o fortuita de cualquiera de los miembros de la Comisión, podrá ser sustituido por el funcionario que normalmente le suple en sus funciones habituales, u otro funcionario nombrado al efecto.

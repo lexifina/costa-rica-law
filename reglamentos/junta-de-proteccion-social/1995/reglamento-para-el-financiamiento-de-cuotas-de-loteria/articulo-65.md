@@ -1,0 +1,1 @@
+Artículo 65.—El Adjudicatario, ante la comunicación de la Comisión de Financiamiento sobre los términos del arreglo de pago tendrá derecho a solicitar reconsideración del monto exclusivamente; para lo que la Comisión se reunirá y resolverá en forma definitiva.

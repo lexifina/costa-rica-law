@@ -1,0 +1,1 @@
+Artículo 43.—Si un préstamo es anulado por no utilizarlo y el adjudicatario demuestra que por motivo de fuerza mayor o caso fortuito no lo pudo retirar, la misma solicitud podrá conocerse nuevamente en la Comisión de Financiamiento para su respectivo trámite.

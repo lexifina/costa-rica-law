@@ -1,0 +1,1 @@
+Artículo 26.—Se podrá otorgar financiamiento extraordinario al adjudicatario interesado en obtenerlo, siempre y cuando posea un historial excelente de pago en financiamientos anteriores y presenten documentos que indiquen por los cuales se desfinanció. El crédito puede cubrir la totalidad de la cuota o parte de ella de acuerdo con lo solicitado.

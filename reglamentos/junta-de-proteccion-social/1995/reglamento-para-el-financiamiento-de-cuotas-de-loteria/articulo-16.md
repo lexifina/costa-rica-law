@@ -1,0 +1,1 @@
+Artículo 16.—El préstamo corriente es aquel que la Institución le otorga al Adjudicatario por primera vez y deberá cancelarse dentro de veinticinco (25) semanas siguientes a la entrega de la autorización de financiamiento.

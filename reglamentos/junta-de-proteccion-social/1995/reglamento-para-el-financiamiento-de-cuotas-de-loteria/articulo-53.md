@@ -1,0 +1,1 @@
+Artículo 53.—En el caso de garantía hipotecaria, se tomará como base para efectos de cubrir el monto del crédito, hasta un 90% de su valor registra!, o el establecido por medio de avalúo efectuado por un perito.

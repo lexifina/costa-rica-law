@@ -1,0 +1,1 @@
+Artículo 36.—En caso de que el crédito fuere denegado, por la Comisión de Financiamiento, el solicitante tendrá derecho al recurso de apelación y deberá interponerlo ante la Unidad de Financiamiento dentro del quinto día, contados a partir de la comunicación, para que sea resuelto en alzada por la Junta Directiva.

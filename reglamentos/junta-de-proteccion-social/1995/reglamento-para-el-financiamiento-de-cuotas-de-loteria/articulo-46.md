@@ -1,0 +1,1 @@
+Artículo 46.—Los sueldos o ingresos de los fiadores deben demostrarse por medio de la orden patronal y en caso de propietarios deberán presentar la constancia de presentación de la declaración de impuestos. Estos documentos no deberán tener más de treinta días de emitidos, respecto a la fecha de presentación de la solicitud de crédito.

@@ -1,0 +1,1 @@
+Artículo 47.—Los fiadores asalariados que se constituyan en garantes de los créditos por financiamiento, deben tener al menos tres meses de trabajar para su patrono. Los fiadores con actividades propias, deben tener al menos tres meses de recibir ingresos consecutivos.

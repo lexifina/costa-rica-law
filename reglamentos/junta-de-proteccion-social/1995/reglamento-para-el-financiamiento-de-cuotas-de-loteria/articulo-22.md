@@ -1,0 +1,1 @@
+Artículo 22.—En cuanto a los intereses moratorios que pudiesen devengar las obligaciones, se cobrará una tasa igual a la tasa más alta que cobren los bancos en sus operaciones activas, por este mismo tipo de interés.

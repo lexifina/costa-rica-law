@@ -1,0 +1,1 @@
+Artículo 49.—No podrán ser aceptados como garantes, personas que ya tienen esa calidad en otras operaciones de financiamiento con la Junta, salvo casos muy calificados ajuicio de la Junta Directiva, para este efecto se deberá llevar un registro de garantes en el Departamento de Loterías.

@@ -1,0 +1,1 @@
+Artículo 12.—La Junta establecerá un fondo para el financiamiento de cuotas de los adjudicatarios, de acuerdo con la disponibilidad presupuestaria y la estimación que al efecto determine la Comisión de Financiamiento.

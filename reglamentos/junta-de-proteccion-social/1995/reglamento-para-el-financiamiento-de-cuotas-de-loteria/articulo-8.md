@@ -1,0 +1,1 @@
+Artículo 8°—El quórum de las sesiones de la Comisión la constituirán al menos 3 de sus miembros. Las decisiones tomadas por la Comisión en cuanto a las evaluaciones y recomendaciones serán por mayoría simple de votos. En caso de empate el Presidente tendrá doble voto.

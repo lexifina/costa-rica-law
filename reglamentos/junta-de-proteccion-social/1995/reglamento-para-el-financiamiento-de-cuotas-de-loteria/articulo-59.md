@@ -1,0 +1,1 @@
+Artículo 59.—La lotería entregada en consignación para sorteos extraordinarios en caso de no ser vendida por el adjudicatario, deberá devolverla antes del sorteo con base en lo establecido en el artículo 17 de la Ley de Loterías No. 7395. El comprobante de devolución, que emite el Departamento de Tesorería, podrá aplicarse a la cancelación del crédito.

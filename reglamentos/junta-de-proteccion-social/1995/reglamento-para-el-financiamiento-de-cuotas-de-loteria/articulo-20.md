@@ -1,0 +1,1 @@
+Artículo 20.—La tasa de interés corriente que se cobrará para los diferentes tipos de financiamiento, excepto los financiamientos extraordinarios, es del 20% y será establecida por la Junta Directiva previa revisión semestral.

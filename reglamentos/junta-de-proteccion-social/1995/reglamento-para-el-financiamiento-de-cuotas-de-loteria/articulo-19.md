@@ -1,0 +1,2 @@
+Artículo 19.—El financiamiento para el retiro de lotería en consignación consiste en entregarle al adjudicatario para un sorteo extraordinario, su cuota de Lotería sin el pago previo de la misma.
+Este tipo de entrega se hace por una sola vez y la cantidad de billetes estará estipulada en la autorización del crédito cuyo monto máximo será aprobado por la Junta Directiva, previa recomendación de la Comisión.

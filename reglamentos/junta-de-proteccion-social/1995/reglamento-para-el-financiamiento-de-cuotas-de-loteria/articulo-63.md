@@ -1,0 +1,1 @@
+Artículo 63.—El adjudicatario podrá realizar solicitud de arreglo de pago de la deuda contraída y del plazo vencido con la Institución siempre que presente solicitud por escrito ante el Departamento de Loterías, quien dará curso en forma inmediata ante la Comisión de Financiamiento.
