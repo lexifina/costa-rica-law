@@ -1,0 +1,1 @@
+Artículo 6°—El Banco podrá adecuar el saldo de la operación que motivó el arreglo de pago hasta por un plazo máximo de treinta y seis meses, independientemente del periodo que falte para su vencimiento, siempre que el mismo no sobrepase el plazo original al que fue concedido el crédito.
