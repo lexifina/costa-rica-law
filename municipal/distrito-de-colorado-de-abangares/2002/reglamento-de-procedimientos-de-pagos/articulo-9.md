@@ -1,0 +1,1 @@
+Artículo 9º—El Tesorero será la persona responsable de la Caja Chica y por medio de ella se podrá adquirir bienes y servicios así como pagar viáticos y gastos de viaje al Intendente Municipal, Regidores, Síndicos y Empleados Municipales siempre y cuando realicen funciones oficiales.

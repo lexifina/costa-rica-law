@@ -1,0 +1,1 @@
+Artículo 6º—En todos los demás casos, el Intendente Municipal debe solicitar la autorización al Concejo Municipal previo a la realización de la Contratación y del desembolso. De lo contrario contraviene las disposiciones y los artículos 6º y 7º de la Ley de Administración Financiera.
