@@ -1,7 +1,1 @@
-Artículo 3º.- Cuando en algún juicio atendido por uno de los
-Consultorios Jurídicos hubiere que designar Curador ad litem, si no hubiese
-ninguna de las personas a que se refiere el artículo 37 del Código Civil,
-la elección la hará el Juez en un Defensor Público. Igual regla se seguirá
-cuando hubiere que nombrar Juez ejecutor para realizar alguna diligencia
-judicial. El designado no podrá cobrar honorarios y estará sujeto a las
-obligaciones que le fija la Ley de Defensores Públicos.
+Artículo 3º.- Cuando en algún juicio atendido por los consultorios jurídicos hubiere que designar Curador ad litem, a falta de alguna de las personas a que se refiere el artículo 50 del Código Civil, la elección la hará el juez en un defensor público. Igual regla se seguirá cuando hubiese que nombrar juez ejecutor para realizar alguna diligencia judicial. El designado no podrá cobrar honorarios; el cargo es obligatorio y estará sujeto a las obligaciones que le fija la Ley de Defensores Públicos.

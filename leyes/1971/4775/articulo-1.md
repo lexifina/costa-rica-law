@@ -1,6 +1,4 @@
-Ley de los Consultorios Jurídicos
-Artículo 1º.- Las personas con ingresos anuales inferiores a cinco mil
-colones tendrán derecho a obtener servicios gratuitos de abogación y
-notariado en los Consultorios Jurídicos que ha establecido y establezca la
-Universidad de Costa Rica, de acuerdo con la reglamentación que al efecto
-se haga.
+Ley de los Consultorios Jurídicos o Trabajo Comunal
+NOTA DE SINALEVI: Esta ley fue reformada por la Ley N° 6369 de 5 de setiembre de 1979, por lo que se reproduce su texto a continuación:
+Artículo 1º.- Las personas que, por el monto de sus ingresos anuales no estén obligadas a presentar declaración, según establezca la Ley del Impuesto sobre la Renta, tendrán derecho a obtener servicios gratuitos de abogacía y notariado en los consultorios jurídicos que ha establecido y establezca la Universidad de Costa Rica, de acuerdo con la reglamentación que al efecto se dicte.
+(Mediante resolución de la Sala Constitucional N°5420-01 de las 15:16 horas del 20/06/2001: Se interpretó que este artículo no es inconstitucional y tiene como fin cumplir con el principio de solidaridad social; razón por la cual nada impide que las universidades privadas contemplen en los programas de las respectivas carreras de Derecho cursos que cumplan esa misma función. En consecuencia, debe entenderse que las ventajas académicas y profesionales que poseen los estudiantes de la Universidad de Costa Rica se deben de entender de manera extensiva para todo estudiante de derecho de cualquier otra universidad nacional sea pública o privada. Por otra parte, las ventajas económicas y de exoneración fiscal, son dispuestas de manera exclusiva para la Universidad de Costa Rica porque así lo estableció el legislador y ello no resulta contrario al derecho de la Constitución. También debe ser entendido de manera extensiva la función consultiva y de asesoría jurídica que pueden llevar todas las Universidades públicas o privadas por medio de los consultorios jurídicos, pues para eso en la práctica no existe limitación alguna)
