@@ -1,0 +1,1 @@
+Artículo 12°.—Serán funciones del Secretario preparar la agenda de cada i sesión, tomar la minuta de las sesiones, redactar las actas respectivas y contestar la correspondencia. Será además responsable de los expedientes de la Comisión y tendrá las demás atribuciones que le fije este Reglamento y el Reglamento del Estatuto del Servicio Exterior.

@@ -1,0 +1,1 @@
+Artículo 5°—Una vez integrada la Comisión Calificadora mediante el acuerdo respectivo, ésta procederá a designar de su seno por el lapso de dos años un Presidente y un Secretario. El cargo de Secretario, deberá ser desempeñado por uno de los funcionarios del Ministerio de Relaciones Exteriores y Culto que forma parte de la Comisión.
