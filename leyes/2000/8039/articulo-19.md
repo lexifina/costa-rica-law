@@ -1,0 +1,8 @@
+CAPÍTULO III
+Creación del Tribunal Registral Administrativo
+y Procedimientos Administrativos
+SECCIÓN I
+Tribunal Registral Administrativo
+Artículo 19.—Creación del Tribunal Registral Administrativo. Créase el Tribunal Registral Administrativo como órgano de desconcentración máxima, adscrito al Ministerio de Justicia y Gracia, con personalidad jurídica instrumental para ejercer las funciones y competencias que le asigna esta Ley. Tendrá la sede en San José y competencia en todo el territorio nacional. Sus atribuciones serán exclusivas y tendrá independencia funcional y administrativa; sus fallos agotarán la vía administrativa.
+El Tribunal Registral Administrativo formulará su presupuesto ante la Junta Administrativa del Registro Nacional, la cual lo aprobará y remitirá a la Contraloría General de la República. Dicho presupuesto será cubierto con los ingresos que recibe la Junta Administrativa del Registro Nacional, suma que no podrá ser inferior al seis por ciento (6%) de los ingresos ordinarios del Registro Nacional calculados para el año económico ni del superávit del Registro Nacional. Tal presupuesto no estará sujeto a las directrices en materia económica o presupuestaria que limiten de alguna forma su ejecución y funcionamiento. El personal será pagado con fondos de la Junta Administrativa del Registro Nacional, por el plazo que se estipule o por término indefinido.
+De ser necesario, las instituciones del Estado podrán trasladar funcionarios al Tribunal Registral Administrativo y donar activos, bienes muebles o inmuebles, para el mejor desempeño de este. Asimismo, se autoriza al Tribunal para recibir donaciones de empresas estatales, públicas o de empresas privadas, nacionales o internacionales.

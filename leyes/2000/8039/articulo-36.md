@@ -1,0 +1,1 @@
+Artículo 36.—Recursos contra decisiones del Registro de la Propiedad Industrial. Las decisiones del Registro de la Propiedad Industrial tendrán recurso de revocatoria ante el órgano que dictó la resolución respectiva y de apelación ante el Tribunal Registral Administrativo.

@@ -1,0 +1,2 @@
+Artículo 58.—Adaptación, traducción, modificación y compendio sin autorización de obras literarias o artísticas. Será sancionado con prisión de uno a tres años quien adapte, transforme, traduzca, modifique o compile obras literarias o artísticas protegidas, sin autorización del titular, de modo que pueda resultar perjuicio.
+No serán punibles los compendios de obras literarias o de artículos de revista científicos o técnicos que tengan fin didáctico, siempre y cuando hayan sido elaborados sin fines de lucro e indiquen la fuente de donde se extrajo la información.

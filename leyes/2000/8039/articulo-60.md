@@ -1,0 +1,1 @@
+Artículo 60.—Arrendamiento de obras literarias o artísticas, fonogramas o videogramas sin autorización del autor. Será sancionado con prisión de uno a tres años quien alquile o dé en arrendamiento obras literarias o artísticas, fonogramas o videogramas, sin autorización del autor, el titular o el representante del derecho, de modo que pueda resultar perjuicio.

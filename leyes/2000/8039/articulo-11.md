@@ -1,0 +1,6 @@
+Artículo 11.—Solicitud de medidas en frontera. El titular de un derecho de propiedad intelectual que tenga conocimiento fundado sobre la llegada o el despacho de mercancías que infringen su derecho, podrá solicitarle al Registro de la Propiedad Industrial, al Registro Nacional de Derechos de Autor y Derechos Conexos o a la autoridad judicial, que ordene a las autoridades aduaneras suspender el despacho.
+A todo titular de un derecho de propiedad intelectual protegido, o su representante, que solicite la suspensión del despacho de las mercancías, se le exigirá, como mínimo, que:
+a) Acredite ser el titular o el representante de un derecho de propiedad intelectual.
+b) Otorgue una garantía por un monto razonable, antes de que se dicte, para proteger al supuesto infractor y evitar abusos.
+c) Aporte la información y descripción de la mercancía lo más detallada posible, para que las autoridades de aduana puedan identificarla con facilidad.
+Ejecutada la suspensión del despacho de mercancías, el Registro de la Propiedad Industrial, el Registro Nacional de Derechos de Autor y Derechos Conexos o las autoridades judiciales, lo notificarán inmediatamente al importador o exportador de las mercancías y al solicitante de la medida.

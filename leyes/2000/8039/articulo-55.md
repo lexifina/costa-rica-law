@@ -1,0 +1,2 @@
+Artículo 55.—Fijación, reproducción y transmisión de ejecuciones e interpretaciones protegidas. Será sancionado con prisión de uno a tres años quien fije y reproduzca o transmita interpretaciones o ejecuciones protegidas, sin autorización del titular, de modo que pueda resultar perjuicio.
+La misma pena se aplicará a quien fije, reproduzca o retransmita emisiones protegidas, incluidas las satelitales, sin autorización del autor, el titular o el representante del derecho, de modo que pueda resultar perjuicio.

@@ -1,0 +1,2 @@
+Artículo 38.—Procesos civiles. Las pretensiones de los titulares de propiedad intelectual se tramitarán y decidirán mediante el proceso abreviado que manda el título II, libro II del Código Procesal Civil.
+Los casos de competencia desleal se tramitarán en la vía sumaria, según el artículo 17 de la Ley de promoción de la competencia y defensa efectiva del consumidor, N° 7472, de 20 de diciembre de 1994.

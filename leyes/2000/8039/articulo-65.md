@@ -1,0 +1,2 @@
+Artículo 65.—Invocación frente a terceros de derechos en calidad de titular. Será sancionado con prisión de uno a tres años quien, sin ser titular de una patente ni de un modelo de utilidad o sin gozar ya de estos privilegios, los invoque ante terceros como si los disfrutara, de modo que pueda causar daño al legítimo titular del derecho.
+Queda a salvo el derecho que posee el creador de utilizar su invención o modelo de utilidad una vez iniciado el trámite de registro de esa patente de invención o modelo de utilidad.

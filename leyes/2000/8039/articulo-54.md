@@ -1,0 +1,1 @@
+Artículo 54.—Reproducción no autorizada de obras literarias o artísticas, fonogramas o videogramas. Será sancionado con prisión de uno a tres años quien fije y reproduzca obras literarias o artísticas, fonogramas o videogramas protegidos, sin autorización del autor, el titular o el representante del derecho, de modo que pueda resultar perjuicio.
