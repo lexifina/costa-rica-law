@@ -1,0 +1,1 @@
+Artículo 7°—El proyecto de presupuesto del Ministerio de Seguridad Publica se incluirán las partidas necesarias para atender las necesidades de la Capellanía de la Fuerza Pública y cubrir los programas de trabajo de la misma.

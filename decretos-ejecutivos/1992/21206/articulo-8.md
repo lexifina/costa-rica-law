@@ -1,0 +1,1 @@
+Artículo 8°—Los servidores de la Capellanía de la Fuerza Pública gozarán de los mismos derechos establecidos para los servidores cubiertos por la Ley Orgánica del Ministerio de Seguridad Pública, quedando sujeto a los mismos deberes de ese estatuto orgánico.
