@@ -23,3 +23,9 @@ perseguibles solo a instancia privada:
 (...)
 d) Los delitos contemplados en la Ley General del VIH-
 Sida."
+(NOTA: El artículo 81 bis que aquí se indica fue expresamente
+derogado por el artículo 26 de la Ley de Reorganización Judicial Nº 7728
+de 15 de diciembre de 1997. Se ha insertado una adición tácita al
+artículo 18 del Código de Procedimientos Penales, por ser allí donde se
+mencionan los delitos de acción pública perseguibles sólo a instancia
+privada)
