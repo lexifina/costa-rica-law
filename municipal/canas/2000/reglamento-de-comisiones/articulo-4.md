@@ -1,0 +1,1 @@
+Artículo IVº—Las Comisiones permanentes serán integradas en la sesión siguiente de la toma de posesión. Estas deberán de tener un mínimo de tres integrantes y un máximo de siete; que deberán ser dos regidores propietarios o suplentes y un sindico propietario o suplente como mínimo.

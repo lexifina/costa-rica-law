@@ -1,0 +1,1 @@
+Artículo VIº—Las comisiones deberán admitir dictámenes en el plazo que estime el presidente del Concejo, podrán generar proyecto y actividades por propia iniciativa previo conocimiento y aprobación del Concejo.
