@@ -1,1 +1,0 @@
-Artículo 19.- El Departamento de Evaluación de Proyectos está obligado a pronunciarse acerca de la prioridad de cada proyecto de inversión, de acuerdo con las disposiciones anteriores y con los planes de desarrollo confeccionados.

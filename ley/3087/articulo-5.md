@@ -1,1 +1,0 @@
-Artículo 5º.- El personal técnico de la Administración Pública, estará obligado a prestar sus servicios a la Oficina de Planificación cuando ésta así lo requiera por conducto del Presidente de la República.

@@ -1,1 +1,0 @@
-Artículo 16.- La Sección de Secretaría tendrá a su cargo la atención de la correspondencia, de los archivos, la preparación de instructivos y otras labores similares de asistencia administrativa de la Oficina de Planificación, del Comité Técnico de Evaluación de Proyectos y de la Comisión Consultiva de Planes, así como lo referente a relaciones públicas de todos esos cuerpos.

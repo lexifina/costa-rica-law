@@ -1,1 +1,0 @@
-Artículo 30.- Con base en los informes presentados a la consideración de este Comité Técnico, por el Departamento de Evaluación de Proyectos, éste deberá pronunciarse dentro de un plazo no mayor de un mes, a partir de la fecha de recibo del informe, sobre la prioridad de cada proyecto de inversión.
