@@ -1,1 +1,2 @@
-Artículo 27.-Derogación. Queda derogada cualquier disposición de su género que se le oponga.
+Artículo 27.-Adicionalmente a lo establecido en el artículo 3º y como única excepción a lo estipulado en los artículos 14, 15 y 22, el ministro respectivo podrá autorizar el uso discrecional de vehículos oficiales a aquellos funcionarios de alto nivel que considere necesario. En este caso se hará dicha decisión del conocimiento de las autoridades mencionadas en el artículo 16.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 12770 del 6 de julio de 1981)
