@@ -1,0 +1,1 @@
+Artículo 17.- Cuando por las autoridades competentes fuere ordenada la destrucción de una mercadería que se encuentre en depósito fiscal, dicha destrucción deberá hacerse de conformidad con las disposiciones legales de la materia y en presencia de funcionarios de aduana.
