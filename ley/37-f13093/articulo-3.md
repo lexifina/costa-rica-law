@@ -1,0 +1,3 @@
+Art. 3°-Si el concesionario no diere cumplimiento á las disposiciones consignadas en los artículos anteriores, caducará esta concesión y pagará al Tesoro Nacional, por vía de multa, la cantidad de dos mil pesos que desde luego y para este fin depositará en el Banco de la Unión ó garantizará con fianza equivalente.
+AL PODER EJECUTIVO.
+Dado en el Salón de Sesiones del Palacio Nacional, en San José, á los seis días del mes de Junio de mil ochocientos noventa. -FRANCISCO M. IGLESIAS.-F. AGUILAR B., Secretario.-J. VARGAS M., 1er. Prosecretario. Palacio Nacional. -San José, siete de Junio de mil ochocientos noventa.-Ejecútese.-José J. RODRÍGUEZ. El Secretario de Estado en el despacho de Fomento,-JOAQUÍN LIZANO.
