@@ -1,0 +1,1 @@
+Art 18° El Gobierno tiene el derecho de inspeccionar todas las operaciones del Banco, y puede oponerse a la ejecución de toda medida que sea contraria a esta ley, a los Estatutos o a los intereses del Estado.
