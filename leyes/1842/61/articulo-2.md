@@ -1,0 +1,1 @@
+Art. 2. En cada una de las Capitales de los Departamentos del Estado se depositarán trescientos fusiles, bajo la custodia de sus respectivas milicias, y con el objeto de que estas se instruyan en el manejo de las armas. –Dado en San José, á 23 de Mayo de 1842. –Francisco Morazan. – Al Ministro general del Despacho Sr. General José Miguel Saravia.
