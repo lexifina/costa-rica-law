@@ -124,6 +124,7 @@ Humectantes……………………………………… | 552-02-03
 Insecticidas………………………………………… | 511,512 y 599-02-00
 Molusquicidas……………………………………… | 511,512 y 599-02-00
 Nematicidas…………………………………………. | 511,512 y 599-02-00
+Rodenticidas, para uso exclusivo en explotaciones agrícolas, previa recomendación del Ministerio de Agrícultura y Ganadería y nota de exención de la Dirección de Hacienda (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 15829 del 6 de noviembre de 1984) | 599-02-00-09
 Semillas, estacas y otros medios para la reproducción vegetal……………………………….. | 041,042 043,044 045, 054 071, 072 074, 075, 221 y 292-02-03
 Semillas para sembrar, bulbos, tubérculos y rizomas de plantas, productoras de flores o follajes, estacas, esquejes, árboles vivos y otras plantas..... (Mediante el punto II del artículo 1° del decreto ejecutivo N° 14112 del 6 de diciembre de 1982, se corrige la enumeración de las subpartidas. No obstante; al no coincidir la subpartida como la mercancía anterior la misma se ha transcrito) | 292-05-00 y las demás partidas conforme notas legales de la NAUCA
 Sufactantes…………………………………………… | 552-02-03
