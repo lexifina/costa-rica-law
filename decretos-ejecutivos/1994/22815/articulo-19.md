@@ -1,0 +1,5 @@
+Artículo 19.-Los Técnicos en Saneamiento Ambiental, debidamente
+identificados y autorizados, podrán ordenar la clausura de granjas
+porcinas, cuando éstas se construyan, instalen o funcionen sin los
+permisos respectivos del Ministerio de Salud, girando la respectiva Orden
+Sanitaria.

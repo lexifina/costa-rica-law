@@ -1,0 +1,8 @@
+Artículo 3.-En terrenos con pendientes fuertes, erosionables o muy
+húmedos o en zonas de protección de las cuencas hidrográficas y mantos
+acuíferos, el Ministerio de Salud, mediante el Departamento de Constrol
+Ambiental de la División de Saneamiento Ambiental, podrá ordenar
+distancias mayores a las que establece el artículo 2º anterior, para
+ubicar o construir sistemas sanitarios, como medida preventiva de
+protección del ambiente atmosférico, terrestre y acuático y en resguardo
+del bienestar y salud de las personas.
