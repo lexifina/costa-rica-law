@@ -1,0 +1,1 @@
+Artículo 12.—La Dirección General de Cultura se encargará de los aspectos administrativos, de control y de seguimiento del Programa Apoyo a Actividades y Proyectos Artístico-Culturales, para lo cual emitirá un reglamento interno que regule estos aspectos.

@@ -1,0 +1,1 @@
+Artículo 4º—Podrán participar en el presente programa personas o grupos culturales que realicen actividades o proyectos artístico-culturales, cuyos objetivos sean afines con los de la Dirección General de Cultura.

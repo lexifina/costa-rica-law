@@ -1,0 +1,1 @@
+Artículo 10.—La persona o grupo a la que se le otorgue el apoyo a que se refiere el presente Programa, será responsable por la adecuada ejecución de la actividad para la cual se giró la ayuda, debiendo presentar el informe de la actividad y la liquidación presupuestaria de los recursos otorgados, incluyendo facturas timbradas.

@@ -1,0 +1,1 @@
+Artículo 5º—El apoyo a que se refiere el presente Programa, consiste en el pago total o parcial de servicios, para solventar alguna de las necesidades de las actividades o proyectos artístico-culturales.

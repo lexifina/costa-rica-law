@@ -1,0 +1,1 @@
+Artículo 2º—El Programa a que se refiere el artículo anterior, se ejecutará a través de la Dirección General de Cultura del Ministerio de Cultura, Juventud y Deportes que será la responsable de presupuestar anualmente los recursos para su financiamiento.

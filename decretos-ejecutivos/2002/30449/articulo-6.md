@@ -1,0 +1,1 @@
+Artículo 6º—La Dirección General de Cultura publicará en un periódico de circulación nacional, durante el mes de enero de cada año, un aviso informando sobre el Programa Apoyo a Actividades y Proyectos Artístico-Culturales.
