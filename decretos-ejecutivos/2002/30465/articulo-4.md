@@ -1,0 +1,2 @@
+Artículo 4º—Ningún permiso de funcionamiento podrá ser concedido ni prorrogado automáticamente, según las condiciones que establece este Reglamento, cuando existan ordenes sanitarias incumplidas, hasta tanto no se corrijan las deficiencias.
+Cuando el interesado comunique al Ministerio, que ha cumplido con lo ordenado, se aplicarán los términos y plazos establecidos en el artículo siguiente, a efectos de que el Ministerio de Salud emita la resolución final.

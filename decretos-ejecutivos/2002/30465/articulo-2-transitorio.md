@@ -1,0 +1,1 @@
+Transitorio II.—La disposición contenida en el artículo 6º del presente Decreto, entrará a regir una vez que el Ministerio de Salud publique las guías correspondientes; lo cual deberá hacerse en un plazo no mayor de seis meses, contados a partir de la publicación del presente Reglamento.
