@@ -1,1 +1,2 @@
-Artículo 48.- Compensación por terceros cesionarios. Los créditos líquidos y exigibles del contribuyente por concepto de tributos pueden ser cedidos a otros contribuyentes y responsables, llenando las formalidades legales, para el solo efecto de ser compensados con deudas tributarias que tuviere el cesionario con la misma Oficina de la Administración Tributaria.
+Artículo 48.- (Derogado por el artículo 5º, inciso a), de la ley No.7900 de 3 de agosto de 1999)
+(Nota de Sinalevi: El contenido del presente artículo se mantendrá vigente hasta el 30 de setiembre del año 2000, de acuerdo con el Transitorio III de la ley N° 7900. Las solicitudes de cesión a terceros realizadas antes de la derogación del artículo 48 deberán tramitarse de conformidad con dicho artículo)
