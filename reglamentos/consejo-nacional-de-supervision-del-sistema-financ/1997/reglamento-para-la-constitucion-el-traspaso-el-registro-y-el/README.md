@@ -19,3 +19,4 @@ Reglamento para la constitución, el traspaso, el registro y el funcionamiento d
 | 4 | 1998-10-29 | Reglamento 48 (1998-10-29) |
 | 5 | 1999-09-27 | Reglamento 114 (1999-09-27) |
 | 6 | 2000-05-23 | Reglamento 153 (2000-05-23) |
+| 7 | 2000-06-20 | Reglamento 157 (2000-06-20) |
