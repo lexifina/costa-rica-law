@@ -176,7 +176,7 @@ Embarcaciones de hasta 8 metros de eslora | Licencia | 17.000,00
 Embarcaciones de 8,01 metros a 12,0 metros de eslora | Licencia | 34.000,00
 Embarcaciones de 12.01 metros de eslora en adelante | Licencia | 45.150,00
 | |
-LICENCIAS PARA EMBARCACIONES EXTRANJERAS DE PESCA DEPORTIVA (por año o por trámite) | * | *
+LICENCIAS PARA EMBARCACIONES EXTRANJERAS DE PESCA DEPORTIVA (por año *calendario) (*Así reformado por acuerdo N° 17 del 14 de enero del 2005) | * | *
 Embarcaciones de hasta 15,0 metros de eslora | Licencia | $150,00
 Embarcaciones de 15,01 metros de eslora en adelante | Licencia | $200,00
 | |
