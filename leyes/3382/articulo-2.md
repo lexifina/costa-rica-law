@@ -1,1 +1,0 @@
-Artículo 2º.- Inmediatamente después de realizada la expropiación, el Poder Ejecutivo iniciará los trámites de indemnización a efecto de cumplir con ese requisito a más tardar dos años después de la fecha del respectivo Decreto.
