@@ -1,0 +1,1 @@
+Artículo 2º—Modifícase el gasto presupuestario establecido al Sistema Nacional de Radio y Televisión Cultural Sociedad Anónima en el artículo 2º del Decreto Ejecutivo Nº 31868-H, fijando el nuevo gasto en la suma de ¢ 1.379.7 millones.
