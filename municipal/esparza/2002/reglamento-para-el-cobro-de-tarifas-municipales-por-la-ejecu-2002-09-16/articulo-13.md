@@ -1,0 +1,1 @@
+Artículo 13.—La certificación que el contador municipal emita de la suma adeudada por el munícipe incumpliente, que no sea cancelada dentro de los tres meses posteriores a su fijación, constituirá título ejecutivo con hipoteca legal preferente sobre los respectivos inmuebles, de conformidad con lo que establece el artículo 70 del Código Municipal.
