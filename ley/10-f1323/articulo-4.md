@@ -1,0 +1,1 @@
+Artículo 4°, -Los Agentes venderán el aguardiente, licores y alcohol a los mismos precios que rijan corrientemente en la Fábrica Nacional. No podrán en ningún caso expender al menudeo y para este efecto se señala como mínumum de la venta en cada vez, diez litros de aguardiente, y cinco de licores compuestos y de alcohol.
