@@ -1,0 +1,2 @@
+Artículo 21.- La Universidad de Costa Rica, invertirá lo recursos provinientes de la Ley N° 5185 del 20 de febrero de 1963, en primer término, en la construcción de la Escuela de Derecho.
+Se autoriza a la Universidad de Costa Rica para contratar con base en el ingreso indicado, un empréstito con ibstitución nacional o internacional hasta por la suma de cinco millones de colones, o su equivalente, para destinarlos a tal fin.
