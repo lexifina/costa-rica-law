@@ -1,0 +1,1 @@
+Artículo 22.—Aquellas personas físicas o jurídicas, que para efectos ‘ del impuesto sobre la renta tengan responsabilidades separadas, pero que operan en un mismo establecimiento, deberán presentar una declaración conjunta para efectos del impuesto de patentes, designando a una de las personas físicas o jurídicas involucradas, como responsable solidaria ante la municipalidad.

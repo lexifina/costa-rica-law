@@ -1,0 +1,1 @@
+Artículo 31.—Cuando un patentado planteare un recurso a la Dirección General de Tributación Directa; o para ante el tribunal fiscal administrativo, y el mismo fuere declarado a lugar, la administración deberá proceder a realizar cualquier ajuste que tal declaratoria implicase en relación con el impuesto de patentes.

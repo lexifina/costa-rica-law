@@ -1,0 +1,1 @@
+Artículo 38.—La revisión de las declaraciones y la correspondiente tasación, estarán a cargo de la Oficina de Patente, quienes dispondrán del apoyo de por lo menos un inspector permanente dedicado a la laborar de verificación en el campo, durante los meses de noviembre, diciembre y enero.

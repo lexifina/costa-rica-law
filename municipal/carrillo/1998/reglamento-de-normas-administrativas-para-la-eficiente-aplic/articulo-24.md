@@ -1,0 +1,1 @@
+Artículo 24.—La administración municipal determinará mediante los instrumentos establecidos, el monto del impuesto a pagar por cada patentado, en el transcurso de los meses de diciembre y enero siguientes a la presentación de las declaraciones, sin perjuicio de las revisiones que pueda luego efectuar.

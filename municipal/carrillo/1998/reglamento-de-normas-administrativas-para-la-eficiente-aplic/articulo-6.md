@@ -1,0 +1,1 @@
+Artículo 6°—Será requisito obligatorio en los trámites de licencias la constancia del Contador Municipal, referente a obligaciones tributarias, contractuales o de cualquier otra índole, que los interesados pudieren tener con la Municipalidad, las cuales dicho funcionario tenga como obligación registrar. Para estos efectos se refuta como interesado al dueño del local involucrado.

@@ -1,0 +1,1 @@
+Artículo 26.—Para efectos de la reclasificación que indica el artículo de la Ley de Impuestos Municipales del Cantón de Carrillo, el término máximo que se da por presentar la declaración será hasta el mes de marzo del año siguiente.

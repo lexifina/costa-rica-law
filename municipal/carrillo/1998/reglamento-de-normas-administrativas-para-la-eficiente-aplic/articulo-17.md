@@ -1,0 +1,1 @@
+Artículo 17.—La Municipalidad remitirá los formularios al lugar en que se realiza la actividad lucrativa, durante el mes de setiembre de cada año y los patentados presentarán su declaración en la oficina de patentes durante los meses de octubre y noviembre siguientes.

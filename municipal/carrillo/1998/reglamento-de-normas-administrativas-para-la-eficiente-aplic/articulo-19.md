@@ -1,0 +1,1 @@
+Artículo 19.—Si el patentado no presentare la declaración en el plazo previsto por la Ley y este Reglamento de Normas Administrativas; la administración procederá a calificarlo conforme los procedimientos establecidos en el artículo 29 de este Reglamento de Normas Administrativas.

@@ -1,0 +1,1 @@
+Artículo 42.—Las resoluciones de la administración que ordenen el cierre del establecimiento en cumplimiento de órdenes emanadas del Poder Ejecutivo o de instituciones de derecho público no admitirán recurso alguno para ante las autoridades municipales.

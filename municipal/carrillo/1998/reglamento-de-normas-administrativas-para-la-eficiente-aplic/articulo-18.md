@@ -1,0 +1,1 @@
+Artículo 18.—Toda declaración queda sujeta a revisión por los medios establecidos en la Ley y en este Reglamento de Normas Administrativas. Si la Municipalidad comprueba que los datos suministrados son incorrectos, circunstancias que determine una variación en al tributo, procederá a hacer la reclasificación correspondiente.

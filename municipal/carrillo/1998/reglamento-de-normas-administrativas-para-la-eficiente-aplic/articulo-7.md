@@ -1,0 +1,1 @@
+Artículo 7°—Cuando resultare evidente el abandono de una actividad, y previo informe del ejecutivo Municipal, el Concejo procederá a suspender la licencia y la administración tramitará el cobro judicial de los saldos adeudados por concepto del impuesto y las correspondientes multas.

@@ -1,0 +1,1 @@
+Artículo 34.—Para las actividades aludidas en el anterior, podrán practicarse recalificaciones en el curso del año, en el caso de que varíen las características con base en las cuales se practicó la tasación original.

@@ -1,0 +1,1 @@
+Artículo 35.—El total de ventas o ingresos brutos anuales de aquellas actividades que no hayan operado durante todo el período fiscal anterior, se determinaran con base en el promedio mensual del periodo de actividad, bajo los términos del artículo 15 de este Reglamento de Normas Administrativas.

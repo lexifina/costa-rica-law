@@ -1,0 +1,1 @@
+Artículo 21.—Las ventas o ingresos brutos de clubes sociales u otras organizaciones colectivas no incluirán lo pagado por los socios en concepto de cuotas para organización y mantenimiento; pero se considerarán como determinantes del impuesto todos los restantes ingresos generados en la prestación de servicio o socios o al público en general.

@@ -1,0 +1,1 @@
+Artículo 43.—Todos los numerales que aparecen del Código Municipal actual se regirán a partir del 18 de julio de 1998, por el nuevo Código Municipal Ley 7794, publicado en “La Gaceta” N° 94 del día 18 de mayo de 1998.

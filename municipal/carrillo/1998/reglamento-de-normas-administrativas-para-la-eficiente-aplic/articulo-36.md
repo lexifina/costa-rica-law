@@ -1,0 +1,1 @@
+Artículo 36.—Lo dispuesto en el artículo anterior es aplicable a los adquirientes de licencias por medio de traspaso complementario, alternativamente con lo dispuesto en el capítulo IV de este reglamento y a criterio de la Administración.

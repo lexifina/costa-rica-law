@@ -1,0 +1,1 @@
+Artículo 12.—Las resoluciones de la administración que ordenen la cancelación de la patente o la clausura del negocio por el vencimiento o revocatoria de permisos de funcionamiento, no tendrán recurso alguno.
