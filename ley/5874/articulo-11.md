@@ -1,5 +1,1 @@
-Artículo 11.- Las autoridades administrativas, empleados de
-Migración, o cualquier funcionario que admita un pasaporte, permiso,
-salvoconducto, sin que en él se hayan agregado y cancelado los timbres
-correspondientes, deberá pagar una multa equivalente a diez veces el
-valor de los timbres (no cobrados).
+Artículo 11.- Las autoridades administrativas, empleados de Migración, o cualquier funcionario que admita un pasaporte, permiso, salvoconducto, sin que en él se hayan agregado y cancelado los timbres correspondientes, deberá pagar una multa equivalente a diez veces el valor de los timbres (no cobrados).
