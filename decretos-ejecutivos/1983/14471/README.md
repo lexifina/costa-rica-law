@@ -13,3 +13,4 @@ Crea Comisión de Coordinación del Año Internacional de la Juventud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-05-06 | la propia norma |
+| 2 | 2002-05-02 | Ley 8261 |
