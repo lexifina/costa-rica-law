@@ -1,0 +1,1 @@
+Artículo 15.—Le corresponderá al Asistente Administrativo, la observancia y vigilancia del cumplimiento del presente Reglamento y quedará en la obligación de elevar ante el Alcalde Municipal, cualquier anomalía detectada, respecto a las normas del debido proceso establecidos en la Ley General de la Administración Pública.

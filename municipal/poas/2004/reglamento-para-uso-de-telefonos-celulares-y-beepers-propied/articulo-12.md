@@ -1,0 +1,1 @@
+Artículo 12.—En el caso que no cancele la suma superior al tope indicada en el recibo telefónico del correspondiente mes, el Asistente Administrativo procederá al decomiso del aparato y presentará informe al Alcalde Municipal con el fin de que se inicie el procedimiento administrativo respectivo.

@@ -1,0 +1,1 @@
+Artículo 9º—Los montos establecidos podrán ser actualizados, hasta un 10% anualmente, acorde con el aumento del costo de la vida. Las sumas superiores al tope establecido en los artículos anteriores serán canceladas por los asignatarios ante la Tesorería Municipal.

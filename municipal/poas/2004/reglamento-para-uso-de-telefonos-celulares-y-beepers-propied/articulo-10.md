@@ -1,0 +1,1 @@
+Artículo 10.—El teléfono del Presidente Municipal, será entregado al Asistente Administrativo, al menos con 24 horas antes de la Elección del nuevo directorio, y por ende de la conclusión de su período o de sus funciones.

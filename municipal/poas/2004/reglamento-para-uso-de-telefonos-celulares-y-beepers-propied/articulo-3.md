@@ -1,0 +1,1 @@
+Artículo 3º—Mediante acuerdo municipal en sesión ordinaria, el Concejo Municipal conocerá la asignación de los teléfonos celulares y de los beepers, ante solicitud escrita del Alcalde Municipal, inmediatamente después de haber asumido sus puestos (Alcalde y Presidente).
