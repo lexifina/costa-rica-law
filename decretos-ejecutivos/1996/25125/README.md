@@ -15,3 +15,4 @@ Crea Fondo Nacional de Garantías para los Microempresarios, Pequeños Empresari
 | --- | --- | --- |
 | 1 | 1996-03-13 | la propia norma |
 | 2 | 1996-03-13 | SINALEVI (sin norma nombrada) |
+| 3 | 1997-10-23 | Decreto Ejecutivo 26455 (1997-10-23) |

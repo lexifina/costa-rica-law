@@ -10,4 +10,5 @@ Considerando:
 3º.Que dentro de la política de desarrollo del sector industrial del país, se tiene como objetivo su modernización, para lo cual se requiere la transferencia y mejoras en la tecnología de producción.
 4º.Que el Gobierno de la República se ha propuesto impulsar el desarrollo del Sector Cooperativo, del Sector Agropecuario y de la Pequeña Industria del país. Por tanto,
 Decretan:
-Artículo 1º.- Se crea el Fondo Nacional de Garantías con la finalidad de facilitar el otorgamiento de garantías, que posibiliten el acceso al sistema financiero nacional de los microempresarios, los pequeños empresarios, pequeños productores agropecuarios y las cooperativas.
+Artículo 1º.- Se crea el Fondo Nacional de Garantías con la finalidad de facilitar el otorgamiento de garantías, que posibiliten el acceso al Sistema Financiero Nacional de los microempresarios, los pequeños empresarios, las pequeñas industrias y los pequeños productores agropecuarios "incluyendo las actividades de pesca, acuicultura y silvicultura".
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 26455 del 23 de octubre de 1997).
