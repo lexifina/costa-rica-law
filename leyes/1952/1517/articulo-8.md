@@ -1,0 +1,1 @@
+Artículo 8º.- El servicio de los bonos se llevará a cabo por medio del Banco Central de Costa Rica, que tendrá el carácter de agente fiscal de dicho empréstito. Autorízase al Banco Central y al Instituto Costarricense de Electricidad para para contratar las normas a que deberá ceñirse el servicio en referencia.

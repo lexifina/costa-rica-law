@@ -1,0 +1,1 @@
+Artículo 6º.- Dichos títulos tendrán la garantía plena del Estado así como la del activo total del Instituto Costarricense de Electricidad junto con los beneficios e ingresos de dicha Institución, los cuales quedan preferentemente gravados para que se destinen en primer término a su pago.

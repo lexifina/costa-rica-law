@@ -1,0 +1,1 @@
+Artículo 13.- Para los efectos del artículo 7º de la ley Nº 258 de 18 de agosto de 1941, queda autorizado el Instituto Costarricense de Electricidad para adquirir las concesiones otorgadas por el Servicio Nacional de Electricidad y otras instituciones públicas, en favor de las Compañías vendedoras.
