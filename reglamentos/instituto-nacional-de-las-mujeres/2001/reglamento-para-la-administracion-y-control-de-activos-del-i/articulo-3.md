@@ -1,0 +1,1 @@
+Articulo 3° Los activos de uso individual serán asignados a cada usuaria(o) para ser utilizados personalmente en la ejecución de sus funciones. Los activos de uso general, serán asignados a la Directora , Coordinadora (or) o Encargada(o) del Área o unidad administrativa en la que se vayan a ser utilizados.

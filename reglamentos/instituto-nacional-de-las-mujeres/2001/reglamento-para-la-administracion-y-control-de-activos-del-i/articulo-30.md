@@ -1,0 +1,1 @@
+Articulo 30° Antes de iniciar los procedimientos de contratación para adquirir cualquier activo que haya sido solicitado, la Unidad de Proveeduría del Instituto deberá analizar la posibilidad de asignar mobiliario y equipo en desuso en otras dependencias. Si este fuera el caso, la Unidad de Proveeduría deberá asegurarse que se elabore y firme el documento de Traslado de Activos.

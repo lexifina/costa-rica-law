@@ -1,0 +1,1 @@
+Articulo 12° Una vez que haya sido reparado y recibido a satisfacción el activo, la Unidad de Proveeduría lo entregara nuevamente a la (al) respectiva(o) usuaria(o), quien deberá firmar el documento "Entrega de Activo".

@@ -1,0 +1,1 @@
+Articulo 34° Queda prohibido a los funcionarios lomar bienes para ser movilizados sin premiso de la (del) funcionaria(o) a quien están formalmente asignados y sin haber confeccionado previamente el documento de "Traslado de activo'".

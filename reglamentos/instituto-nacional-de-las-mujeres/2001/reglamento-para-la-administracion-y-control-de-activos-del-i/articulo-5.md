@@ -1,0 +1,1 @@
+Articulo 5° Los activos nuevos serán entregados por la Unidad de Proveeduría a las respectivas (os) usuarias (os), mediante el documento "Entrega de activos'". Los activos que ya están en uso y que son trasladados de una usuaria o de una unidad a otra, serán entregados formal ni en te por medio del documento de ''Traslado de activos".

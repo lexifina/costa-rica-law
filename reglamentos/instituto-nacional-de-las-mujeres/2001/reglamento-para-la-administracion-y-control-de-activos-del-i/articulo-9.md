@@ -1,0 +1,1 @@
+Articulo 9° Cuando sea necesario trasladar un activo a la bodega por estar descompuesto o dañado, se debe utilizar el documento "Devolución de activo a Bodega", el cual debe ser firmado, contra la recepción del activo, por parte del encargado de Bodega, para relevar a la (al) usuaria (o) de su responsabilidad sobre el bien devuelto.

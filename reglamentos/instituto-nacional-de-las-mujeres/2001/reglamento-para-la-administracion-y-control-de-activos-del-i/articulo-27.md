@@ -1,0 +1,2 @@
+Artículo 27° Al Área de Contabilidad le corresponde mantener el control y llevar un registro detallado del costo y techa de adquisición, cargos por depreciación, depreciación acumulada, adiciones, retiros y valor neto en libros de los activos (bienes muebles) propiedad del Instituto.
+Este registro deberá ser confrontado y conciliado periódicamente con el que debe mantener la Unidad de Proveeduría y con los estados financieros del Instituto.

@@ -1,0 +1,1 @@
+Articulo 19° Es responsabilidad de las (los) Coordinadoras (es) o Encargadas (os) de cada Área velar porque los activos bajo su responsabilidad, estén debidamente asignados a las {os) funcionarías (os) a su cargo, por medio de los respectivos documentos de "Entrega de Activos".

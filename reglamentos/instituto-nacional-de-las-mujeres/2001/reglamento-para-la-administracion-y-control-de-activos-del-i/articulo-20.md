@@ -1,0 +1,1 @@
+Artículo 20° Es responsabilidad de las (los) Coordinadoras (es) y encargadas (os) de las diferentes Áreas o Unidades velar por el uso correcto de los activos asignados al Área o Unidad a su cargo, de conformidad con las disposiciones del presente Reglamento.

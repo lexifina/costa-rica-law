@@ -1,0 +1,1 @@
+Articulo 14° Las (os) usuarias (os), a quienes se les haya asignado mobiliario y equipo, son responsables de que los activos estén ubicados en eI lugar correspondiente. Deberán responder por aquellos activos que no sean localizados en su sitio.

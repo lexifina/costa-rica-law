@@ -1,0 +1,1 @@
+Articulo 24° La Unidad de Proveeduría anualmente realizará un inventario físico total de mobiliario v equipo, con el fin de verificar la existencia, ubicación y estado de conservación de los bienes asignados a cada Dirección, Área, Unidad, Sección y funcionaria( o).

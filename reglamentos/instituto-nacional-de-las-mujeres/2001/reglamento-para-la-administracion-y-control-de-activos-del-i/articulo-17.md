@@ -1,0 +1,1 @@
+Articulo 17° Cuando un funcionario no haya reportado, en el tiempo establecido en el articulo anterior, la perdida o extravío de un activo y éste es detectado como faltante en un inventario, se procederá al cobro de su valor de reposición, previa aplicación del correspondiente procedimiento administrativo.

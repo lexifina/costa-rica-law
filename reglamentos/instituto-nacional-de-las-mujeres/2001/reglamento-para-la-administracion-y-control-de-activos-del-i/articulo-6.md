@@ -1,0 +1,1 @@
+Articulo 6°—Al recibir los activos que le son asignados, ya sea por medio de entrega directa de parte de la Unidad de Proveeduría o por medio de traslado, cada usuario debe firmar el correspondiente documento, previa verificación de que los bienes anotados están en las condiciones que se indican y que todas las casillas contengan la información correcta.

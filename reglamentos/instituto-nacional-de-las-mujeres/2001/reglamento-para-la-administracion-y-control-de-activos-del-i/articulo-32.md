@@ -1,0 +1,1 @@
+Artículo 32° Una vez recibido el activo en la Bodega de la Unidad de Proveeduría, se comunicara a la superior jerárquica de la unidad solicitante, con el fin de que indique a quién se asignará el activo, para proceder a confeccionar el respectivo documento de "entrega de activos".
