@@ -1,1 +1,0 @@
-Artículo 7°-La Comisión se reunirá ordinariamente dos veces por mes y extraordinariamente cada vez que sea convocada por su presidente. El quórum de las sesiones lo formarán seis miembros. En ausencia del Presidente, la Comisión nombrará uno de sus miembros como presidente ad hoc.

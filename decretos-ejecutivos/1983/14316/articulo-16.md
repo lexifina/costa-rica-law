@@ -1,1 +1,0 @@
-Artículo 16.-La Comisión financiará sus actividades con la suma global que le asigne el Ministerio de Trabajo y Seguridad Social en su presupuesto, así como con las donaciones y aportes de entidades públicas y privadas.

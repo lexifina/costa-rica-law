@@ -1,1 +1,0 @@
-Artículo 8°-La Comisión constituirá las unidades de trabajo y estudio que sean necesarias para el desempeño de sus atribuciones y para el cumplimiento de sus fines todos los entes públicos y privados relacionados con la "tercera edad" quedan obligados a prestarle su concurso y colaboración.
