@@ -1,0 +1,1 @@
+3°.- El artículo 105 de nuestra Ley fundamental solo surtirá todo su efecto en orden a la libertad absoluta cuando no haya que evacuar algunas citas conducentes, pues en este caso será necesaria la fianza que requiere el artículo citado.

@@ -1,0 +1,1 @@
+5°.- Los carteles llamando al reo ausente se fizaran en los parages más públicos en el lugar de la residencia del juez y del reo. El emplazamiento será por nueve días perentorios para la comparecencia.
