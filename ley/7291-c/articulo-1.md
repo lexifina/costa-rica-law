@@ -1,0 +1,12 @@
+No. 7291
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
+DECRETA:
+CONVENIO DE LAS NACIONES UNIDAS
+SOBRE EL DERECHO DEL MAR
+ANEXO III
+DISPOSICIONES BASICAS RELATIVAS A LA PROSPECCION,
+LA EXPLORACION Y LA EXPLOTACION
+ARTÖCULO 1
+Derechos sobre los minerales
+Los derechos sobre los minerales se transmitir n en el momento
+de su extracci¢n de conformidad con esta Convenci¢n.
