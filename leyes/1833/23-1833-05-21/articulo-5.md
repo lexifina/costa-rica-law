@@ -1,0 +1,1 @@
+ART 5.- Los Alcaldes y personas que cartulan son obligados a manifestar a los testadores esta obligados a manifestar a los tentadores esta obligación, no estenderán testamento alguno que no contenga esta manda, ni darán testimonio de los que hiciesen sin noticia oficial al Jefe Político bajo la pena establecida en el artículo 2°
