@@ -1,0 +1,1 @@
+Artículo 3°—Una vez que se hayan cumplido los trámites indicados en' los artículos- 1° y 29, el Ministro de Relaciones Exteriores y Culto procederá a la selección y nombramiento de los miembros de la Comisión Calificadora.
