@@ -1,0 +1,1 @@
+Artículo 9°.- La duración de los préstamos a domicilio será por un lapso no mayor de ocho días hábiles. Las publicaciones periódicas se prestarán por un período de cinco días hábiles. La renovación en ambos casos es factible, siempre y cuando no sea solicitada por otros prestatario.
