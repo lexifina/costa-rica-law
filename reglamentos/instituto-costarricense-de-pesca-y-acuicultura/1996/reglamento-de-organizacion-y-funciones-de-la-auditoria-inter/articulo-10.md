@@ -1,0 +1,1 @@
+Artículo 10.—Ningún nombramiento para desempeñar cargos en el Instituto Costarricense de Pesca y Acuacultura. podrá recaer en parientes o cónyuge del Auditor Interno, ni de los demás miembros de la Auditoría Interna, hasta el tercer grado de parentesco por consanguinidad o afinidad. La violación de este impedimento causará la nulidad absoluta del nombramiento.

@@ -1,0 +1,1 @@
+Artículo 2°—La Unidad de Auditoría Interna es parte integral y vital del sistema de control interno del Instituto Costarricense de Pesca y Acuacultura. la cual tendrá como función principal la comprobación del cumplimiento, la suficiencia y la validez de dicho sistema.

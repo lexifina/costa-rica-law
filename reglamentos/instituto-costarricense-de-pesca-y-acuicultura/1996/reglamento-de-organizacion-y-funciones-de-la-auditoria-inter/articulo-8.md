@@ -1,0 +1,1 @@
+Artículo 8°—El Auditor Interno depende de la Junta Directiva y responde directamente ante ella en el desempeño de sus funciones, las cuales ejerce sujetándose al mandato de la Constitución, las leyes, reglamentos, disposiciones de la Contraloría General de la República y de la Junta Directiva del Instituto.

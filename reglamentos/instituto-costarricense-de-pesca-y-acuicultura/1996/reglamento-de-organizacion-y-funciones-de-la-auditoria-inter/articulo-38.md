@@ -1,0 +1,1 @@
+Artículo 38.—Cualquier discrepancia en cuanto a la interpretación o aplicación de este Reglamento, así como las atribuciones y jurisdicción de la Auditoría Interna, será resuelta por la Junta Directiva y/o mediante consulta a la Contraloría General de la República.

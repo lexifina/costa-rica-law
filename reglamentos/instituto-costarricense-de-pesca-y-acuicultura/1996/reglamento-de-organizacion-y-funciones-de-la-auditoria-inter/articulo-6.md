@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la organización
+Artículo 6°—La Unidad de Auditoría Interna funcionará bajo la responsabilidad y dirección del Auditor Interno, quien deberá ser Contador Público Autorizado, de conformidad con lo que consigna el artículo 8° del Reglamento del Colegio de Contadores Públicos de Costa Rica. Decreto 13606-E. publicado en "La Gaceta" 100 del 25 de mayo de 1982: y en el artículo 31 de la Ley 7384 Creación del Instituto Costarricense de Pesca y Acuacultura, publicado en "La Gaceta" 62 del 29 de marzo de 1994. Además poseer conocimiento de las disposiciones legales que rigen en general a la Administración Pública, y específicamente al Instituto Costarricense de Pesca y Acuacultura.
