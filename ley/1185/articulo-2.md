@@ -1,0 +1,1 @@
+Artículo 2º.- Los trabajos corrientes, las obras y cualquiera otra empresa administrativa municipal que se haga necesaria en un distrito , se hará tomando el dinero del fondo cantonal referido, no siendo de tomar en consideración sino la urgencia de la necesidad a satisfacer y las posibilidades económicas del Municipio.
