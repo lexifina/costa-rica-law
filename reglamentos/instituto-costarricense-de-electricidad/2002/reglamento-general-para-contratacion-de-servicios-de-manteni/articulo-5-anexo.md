@@ -1,0 +1,1 @@
+V.—Deberá establecerse concretamente y de previo a cada contratación quien será el funcionario administrador del contrato para delimitar la fiscalización de la ejecución contractual establecida en el Capítulo V del presente Reglamento.
