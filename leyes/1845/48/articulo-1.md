@@ -1,0 +1,5 @@
+DECRETOXLVIII
+Autoriza al Gobierno para la venta de medios reales cortados, conforme al decreto de 24 de setiembre de este año.
+“El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica. –Por cuanto las Cámaras han decretado y sancionado lo siguiente.
+La Cámara de Representantes del Estado libre de Costa Rica, con presencia de la exposición que le ha sido elevada por el Supremo Poder Ejecutivo, manifestando la utilidad y conveniencia de contratar con el comercio toda la moneda de medios que, conforme al decreto de 24 de setiembre del presente año, se amortice en la casa de moneda, à fin de evitar con este paso la pérdida que seria consiguiente al erario: atendiendo à que es incuestionable el provecho que resultará al Estado de adoptar una medida de esta naturaleza, se ha servido decretar y decreta.
+Art 1° Se autoriza al Ejecutivo para que contrate con la persona ó personas á quienes pueda con venirles la moneda de medios reales cortados que conforme al decreto de 24 de setiembre referido, se amortice en la casa de rescates del Estado.
