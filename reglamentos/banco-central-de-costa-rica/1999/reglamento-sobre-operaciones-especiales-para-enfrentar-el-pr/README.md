@@ -14,3 +14,4 @@ Reglamento sobre operaciones especiales para enfrentar el problema del año 2000
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-03 | la propia norma |
+| 2 | 1999-11-10 | Reglamento 5013 (1999-11-10) |
