@@ -1,0 +1,2 @@
+Art 5°.- Los carros deben ser precisamente de cuatro ruedas, altas, y estas construidas de rayos: las llantas deben tener por lo menos cuatro y media pulgadas inglesas de ancho: las ruedas delanteras deben estar metidas de cada lado más que las traceras cuatro y media de las pulgadas dichas, de suerte que las dos ruedas laterales caminen sobre un espacio de nueve pulgadas, todas cuatro sobre el de diezicho.
+Los carros todos deben ser cubiertos con algún género impermeable para librar la carga de la lluvia.
