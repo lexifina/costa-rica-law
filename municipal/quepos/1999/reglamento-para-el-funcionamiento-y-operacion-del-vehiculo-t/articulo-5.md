@@ -1,0 +1,1 @@
+Artículo 5°-Los miembros del Concejo Municipal, de los concejos de distrito y de las comisiones municipales, deberán coordinar con el Alcalde Municipal las necesidades de transporte para su priorización.
