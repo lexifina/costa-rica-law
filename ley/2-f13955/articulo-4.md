@@ -1,0 +1,1 @@
+Art. 4. Los Jefes Políticos cumplirán con el final del artículo 2° dentro del término de veinte días contados desde la publicación de este Decreto. –Dado en la Ciudad de San José á los veinticuatro días del mes de Enero de mil ochocientos treinta y nueve. – Braulio Carrillo. –Al Ministro General del Despacho”.
