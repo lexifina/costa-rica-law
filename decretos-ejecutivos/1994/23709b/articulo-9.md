@@ -1,0 +1,5 @@
+TITULO III - EJECUCION DE LOS CONTRATOS
+Artículo 9: Establecimiento y derecho a instalarse
+Las personas físicas y jurídicas que participen en contratos de obras públicas, de suministros y servicios públicos, serán beneficiarios en las mismas condiciones de un derecho provisional de estancia e instalación si la naturaleza del contrato lo justifica. Sólo se pueden beneficiar de este derecho el personal técnico necesario para la ejecución de los estudios preparatorios para la formulación de las licitaciones, se mantendrá hasta la expiración del plazo de un mes siguiente la designación del titular del contrato público.
+El titular del contrato gozará de derechos similares durante el período de ejecución del contrato y hasta un mes después de la recepción definitiva.
+Las personas físicas y jurídicas que se han establecido para la ejecución de las obras, servicios o suministros públicos, gozarán de absoluta libertad, si así lo desean, de reexportar los materiales importados por ellos con tales fines en el país del BENEFICIARIO.

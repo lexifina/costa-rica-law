@@ -1,0 +1,3 @@
+Artículo 20: Notificaciones - Direcciones
+Cualquier notificación y cualquier acuerdo entre las partes previstos en dicho acuerdo deberán ser objeto de comunicación escrita que haga referencia explícitamente al número y título del proyecto. Tales notificaciones o acuerdos se harán por carta enviada a la parte autorizada a recibirla, y a la dirección indicada por dicha parte. En caso de urgencia, se permitirán y se aceptarán como válidas las comunicaciones telegráficas o por telex, siempre y cuando sean confirmadas inmediatamente por carta.
+Las direcciones se especifican en las Condiciones Especiales.

@@ -1,0 +1,4 @@
+Artículo 3: Desembolsos
+Dentro de los límites de la subvención de la Comunidad, las solicitudes de fondos deben ser presentadas por el BENEFICIARIO conforme al ritmo y en los plazos estipulados en el Anexo A y acompañadas de los comprobantes relativos a los pagos efectuados en relación con el PROYECTO.
+Sin embargo, los contratos de suministros y los contratos de estudios pueden prever pagos directos por la COMISION en favor de sus titulares. Cada contrato público o contrato deberá indicar el ritmo y los plazos de tales pagos, así como los comprobantes que deben presentarse.
+Por otra parte, en los proyectos ejecutados en base a estimaciones, un primer pago que no exceda 20 % del presupuesto aprobado por la COMISION, salvo disposición contraria del Anexo A, puede ser efectuado a favor del BENEFICIARIO con el fin de facilitar el comienzo del PROYECTO. Los pagos restantes serán liberados, a iniciativa del BENEFICIARIO previa justificación de los gastos efectuados.

@@ -1,0 +1,3 @@
+Artículo 7: Adjudicación de contratos públicos de obras y de suministros
+La COMISION y el BENEFICIARIO asegurarán, para cada operación, que se respete lo estipulado en el Artículo 6 y que la oferta seleccionada sea económicamente la mas ventajosa, teniendo en cuenta, en particular, las calificaciones y garantías ofrecidas por los licitantes, la naturaleza y las condiciones de ejecución de las obras o de los suministros, el precio de las prestaciones, su costo de utilización y su valor técnico.
+El resultado de las licitaciones debe ser publicado en el Diario Oficial de las Comunidades Europeas en el más breve plazo posible.
