@@ -1,0 +1,2 @@
+Art. 3°-Con el presente decreto se dará cuenta al Congreso Constitucional en su próxima reunión ordinaria.
+AL PODER EJECUTIVO.-Dado en el Salón de Sesiones del Palacio Nacional, en San José a seis de diciembre de mil ochocientos ochenta y dos.-A. DE JESUS SOTO, Presidente,-VICENTE C. SEGREDA, Secretario.-Palacio Presidencial. -San José. Á seis de diciembre de mil ochocientos ochenta y dos.-Ejecútese. P. FERNÁNDEZ. -El Secretario de Estado en el Despacho de Fomento,- BERNARDO SOTO.
