@@ -1,0 +1,1 @@
+Artículo 2°—El objetivo de la Comisión es promover proyectos de renovación urbana dentro de la Ciudad de San José en los sectores que se determinen; instar a las instituciones responsables para que los desarrollen; y velar por el cumplimiento de los mismos.

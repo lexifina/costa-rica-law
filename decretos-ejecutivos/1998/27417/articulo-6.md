@@ -1,0 +1,1 @@
+Artículo 6°—Las instituciones públicas y dependencias del Estado podrán apoyar, con carácter temporal a la Comisión, suministrando personal para el buen funcionamiento de la misma, así como la suscripción de los convenios que sean necesarios para el cumplimiento del objetivo de la comisión.
