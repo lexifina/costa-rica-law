@@ -4,3 +4,5 @@ Ministerio a través de la Dirección de Sanidad Vegetal conforme a los
 programas y presupuestos anuales. El fondo acumulado será usado
 exclusivamente para dar cumplimiento a la Ley bajo la responsabilidad de
 quienes lo administren.
+(TACITAMENTE DEROGADO por el artículo 87 de la Ley Nº 7664 de 8 de
+abril de 1997 -LEY DE PROTECCION FITOSANITARIA-)
