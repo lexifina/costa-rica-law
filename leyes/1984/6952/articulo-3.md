@@ -1,0 +1,2 @@
+Artículo 3º.- Del producto del impuesto general sobre las ventas, establecido por la ley Nº 6826, el Banco Central de Costa Rica girará, en forma directa y trimestral, a la Dirección General de Desarrollo Social y Asignaciones Familiares, el veinte por ciento para el fondo creado y administrado según lo indica la ley Nº 5662 del 23 de diciembre de 1974.
+Transitorio: Esta disposición rige a partir del 1º de enero de 1984.
