@@ -1,0 +1,2 @@
+ARTICULO 37.-
+En beneficio y resguardo de la salud pública, ninguna persona con escoriaciones, heridas infectadas o cualquier otra lesión dermatológica en manos, antebrazos o brazos, así como infecciones respiratorias agudas, podrá trabajar en la manipulación de alimentos en los establecimientos señalados en el artículo 22 ante la posibilidad de que se contaminen dichos alimentos o superficies que entren en contacto con ellos.

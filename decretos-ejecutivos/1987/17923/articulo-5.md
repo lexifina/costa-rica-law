@@ -1,0 +1,2 @@
+ARTICULO 5°.-
+Los sitios se dividirán en lotes, el uso que se otorgue se dará atendiendo a las facilidades sanitarias y físicas que ahí se requieran y se dispongan. Existirán espacios libres entre los locales, a modo de pasillos, los que no serán menores de tres metros de ancho, debiendo ser de un ancho superior cuando se requiera para servicio de los locales y el tránsito de las personas. Todos los pasillos tendrán lastre y pendiente hacia desagües que permitan que el agua de lluvia discurra rápidamente de estos sin formar estancamientos.

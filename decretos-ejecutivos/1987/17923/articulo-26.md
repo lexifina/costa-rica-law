@@ -1,0 +1,2 @@
+ARTICULO 26.-
+Aquellos alimentos procesados bajo riesgo, utilizados como materias primas para la elaboración de alimentos, tales como: sal, harinas, azúcar, condimentos y otros, al ser abierto su empaque original, deberán ser depositados en envases, tapados y rotulados, excepto en los períodos necesarios de preparación o servicio. Las tapas de los envases deberán ser impermeables, no absorbentes y de fácil limpieza, así como de uso permitido en alimentos.

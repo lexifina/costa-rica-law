@@ -1,0 +1,2 @@
+ARTICULO 3°.-
+Sólo se podrán realizar las actividades que menciona el artículo anterior, en sitios previamente aprobados por la autoridad de salud. Proceder el otorgamiento del permiso sanitario de funcionamiento cuando se compruebe que se cumplieron con los requisitos que se contemplan en el presente Reglamento. Dichas actividades requerirán asimismo de la autorización final de la Gobernación de la provincia.
