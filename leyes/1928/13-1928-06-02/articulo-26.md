@@ -1,1 +1,0 @@
-Art 26°.-Los Defensores Públicos recibirán de la Corte Suprema de Justicia todos los útiles necesarios para el ejercicio de su cargo, y sus gestiones las presentarán, aun tratándose de delitos de acción privada, en papel de oficio.
