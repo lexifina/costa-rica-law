@@ -1,1 +1,0 @@
-Artículo 8°.—En lo sucesivo las Municipalidades no percibirán otro impuesto local sobre el destace de ganado vacuno y cerdoso que los señalados en la presente ley, quedando eliminados de sus tarifas los que hoy contienen, salvo lo que cobraren por servicio de matadero.
