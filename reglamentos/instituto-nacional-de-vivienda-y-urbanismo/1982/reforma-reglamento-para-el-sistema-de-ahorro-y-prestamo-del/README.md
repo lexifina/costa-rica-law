@@ -14,3 +14,4 @@ Reforma Reglamento para el Sistema de Ahorro y Préstamo del Instituto Nacional 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-05-21 | la propia norma |
+| 2 | 1984-02-27 | Reglamento 3509 (1984-02-27) |
