@@ -17,3 +17,4 @@ Reglamento a la Ley de Relaciones entre Productores, Beneficiadores y Exportador
 | 2 | 2001-05-30 | Decreto Ejecutivo 29585 (2001-05-30) |
 | 3 | 2002-02-12 | Decreto Ejecutivo 30197 (2002-02-12) |
 | 4 | 2002-04-23 | Decreto Ejecutivo 30305 (2002-04-23) |
+| 5 | 2002-05-13 | Decreto Ejecutivo 30474 (2002-05-13) |
