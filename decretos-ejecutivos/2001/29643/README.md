@@ -14,3 +14,4 @@ Reglamento a la Ley de Simplificación y Eficiencia Tributarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-07-18 | la propia norma |
+| 2 | 2002-09-16 | Decreto Ejecutivo 30819 (2002-09-16) |
