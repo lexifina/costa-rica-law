@@ -1,0 +1,1 @@
+Artículo 19.- Sucesores. Los derechos y obligaciones del contribuyente fallecido deben ser ejercitados o, en su caso, cumplidos por su sucesión, o sus sucesores, entendiéndose que la responsabilidad pecuniaria de estos últimos se encuentra limitada al monto de la porción hereditaria recibida.

@@ -1,0 +1,1 @@
+Artículo 7º.- Principios aplicables. En las situaciones que no puedan resolverse por las disposiciones de este Código o de las leyes específicas sobre cada materia, se deben aplicar supletoriamente los principios generales de Derecho Tributario y, en su defecto, los de otras ramas jurídicas que más se avengan con su naturaleza y fines.

@@ -1,0 +1,1 @@
+Artículo 23.- Agentes de retención y de percepción. Son agentes de retención o de percepción, las personas designadas por la ley, que por sus funciones públicas o por razón de su actividad, oficio o profesión, intervengan en actos u operaciones en los cuales deban efectuar la retención o percepción del tributo correspondiente.
