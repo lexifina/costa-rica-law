@@ -1,0 +1,1 @@
+Artículo 4°—De conformidad con el artículo 66, de la Ley 7169, la Academia Nacional de Ciencias, la Cámara Nacional de Empresas de Base Tecnológica y la Asociación Costarricense para la Promoción de las Ciencias y la Tecnología , tendrán representación en el Sistema Nacional de Ciencia y Tecnología.
