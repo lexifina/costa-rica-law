@@ -1,3 +1,3 @@
-Artículo 10-Cada oficina regional debe llevar un registro de las personas que soliciten tierra tanto individualmente como en grupos organizados. Dicho registro deberá mantenerse depurado y .actualizado, con el fin de conocer la magnitud real de este componente de la presión por la tierra- a nivel de cada Subregión. Esta información deberá enviarse periódicamente al Banco de Datos del Instituto.
-(Así reformado mediante sesión N° 83 del 06 de noviembre de 1987).
+Artículo 10.-Cada oficina subregional debe llevar un registro de las personas que soliciten tierra, tanto individualmente como en grupos organizados. Dicho registro deberá mantenerse depurado y actualizado, con el fin de conocer la magnitud real de este componente de la presión por la tierra a nivel de cada subregión. Esta información deberá enviarse periódicamente a la Dirección de Planificación del Instituto.
 (Así corrida su numeración mediante sesión N° 83 del 06 de noviembre de 1987, que lo traspasó del anterior artículo 9 al 10 actual).
+(Así reformado mediante sesión N° 85 del 26 de noviembre de 1990).

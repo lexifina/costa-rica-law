@@ -9,17 +9,18 @@ A.2) Acceso a servicios básicos:
 Se refiere .a la disponibilidad de los servicios como transporte, educación, salud y otros, en un radio de acción de 2,5 Km, los dos primeros y 5 Km los demás.
 Los servicios de agua potable y electricidad deberán estar a una distancia no mayor de 500 metros para que se consideren asequibles.
 A.3) Cabida familiar estimada:
-Se dará la siguiente relación máximo:
-EN HECTAREA/REGION
-| Central | Pacífico Central | Brunca | Chorotega | Huetar Norte | Huetar Atlántica
-I | 2-3 | 3-6 | 4-7 | 3-7 | 4-7 | 4-7
-II | 2-4 | 3-7 | 5-8 | 4-8 | 5-8 | 5-8
-III | 2-5 | 4-8 | 5-10 | 5-10 | 5-10 | 5-10
-IV | 3-6 | 5-10 | 6-12 | 6-12 | 6-12 | 6-12
-V | 3-7 | 7-12 | 8-15 | 8-15 | 8-15 | 8-15
-VI | 3-8 | 9-15 | 10-20 | 10-20 | 10-20 | 10-20
-En condiciones de excepción el análisis podrá variar. Por ejemplo: tierra bajo riego, área con problemas de inundación, manejo tradicional del suelo, manejo avanzado del suelo, otros.
-(Así reformado el inciso anterior mediante sesión N° 66 del 22 de agosto de 1989).
+Se dará por la siguiente relación máxima:
+EN HECTAREAS/REGION
+Clase | Central | P. Central | Bronca | Chorotega | H.Norte | H. Atlántica
+| 1-2 | 3- 6 | 4- 7 | 4- 7 | 3- 6 | 4- 7
+| 2-3 | 3- 7 | 5- 8 | 5- 8 | 3- 7 | 5- 8
+| 2-5 | 4- 8 | 5-10 | 5-10 | 4- 8 | 5-10
+| 3-6 | 6-12 | 6-12 | 6-12 | 6-12 | 6-12
+| 3-7 | 8-15 | 8-15 | 8-15 | 8-15 | 8-15
+| 3-8 | 10-20 | 10-20 | 10-20 | 10-20 | 10-20
+NOTA: Los suelos de clases VII y VIII permanecen como reserva.
+En condiciones de excepción el análisis podrá variar, por ejemplo: tierra bajo riego, área con problemas de inundación, manejo tradicional de suelo, manejo avanzado del suelo. Posibilidades de avenamiento y obras de conservación de suelos.
+(Así reformado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990).
 B.-Criterios técnicos:
 B.1) Capacidad de uso:
 Se determinará únicamente con lo que estipule el estudio agrológico de la finca. Para valorar esta variable, se deberá multiplicar el porcentaje del área en cada categoría de tierras por el factor de ponderación respectiva y dividirse entre cien. La suma: total de los valores así calculados dará el puntaje total de la variable capacidad de uso.
@@ -27,7 +28,8 @@ Se determinará únicamente con lo que estipule el estudio agrológico de la fin
 Se refiere a que en el inmueble haya disponibilidad, de aguas superficiales, durante todo el año, con un buen acceso y distribución.
 C-Criterios operacionales
 C.1) Situación legal:
-El valor de ponderación: se otorgará a las fincas cuyo propietario presente plano catastrado del área en negociación, certificación del Registro Público en que consten propietario, gravámenes, anotaciones y limitaciones; cuando, se trate de personas jurídicas, certificación de personería de la Sección Mercantil del mismo ,Registro y documento que demuestren la propiedad, cuando se trate de fincas sin inscribir.
+El valor de ponderación se otorgará a las fincas cuyo propietario presente plano catastrado del área de negociación, certificación del Registro Público en que consten propietario, gravámenes, anotaciones y limitaciones, cuando se trate de personas jurídicas, certificación de personería de la Sección Mercantil del mismo Registro y documento notarial que demuestre la propiedad cuando se trate de fincas sin inscribir.
+(Así reformado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990).
 C.2) Acceso a la finca:
 Se refiere a los diferentes medios de acceso con que pudiese contar la finca.
 C.3) Ubicación de las fincas con respecto a otras ya adquiridas:

@@ -30,15 +30,14 @@ A.3) Cabida familiar estimada | | 12
 80 familias | 12 |
 Puntaje = 0,15 x (cabida familiar) | |
 B.- Criterios Técnicos | | 30
-B.1) Capacidad de uso | | 25
+B.1) Capacidad de uso | |
 Tierra Clase I | 25 |
 Tierra Clase II | 23 |
 Tierra Clase III | 20 |
 Tierra Clase IV | 15 |
 Tierra Clase V | 8 |
-Tierra Clase VI | 5 |
-Tierra Clase VII | 2 |
-Tierra Clase VIII y más (Así reformado el inciso anterior mediante sesión N° 66 del 22 de agosto de 1989). | 0 |
+Tierras clase VI | 5 |
+Tierras clase VII y más (Así reformado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990). | 0 |
 B 2) Disponibilidad de aguas: | |
 Superficiales | | 5
 Todo el año. Buena distribución y acceso | 5 |
@@ -60,21 +59,34 @@ C.3). Tamaño de la finca | | 2
 menores de 200 ha | 0 |
 de 200 a 500 ha | 1 |
 mayores de 500 ha | 2 |
-D.-Criterios económicos | | 20
-D.1) Costo de asentamiento por familia | | 15
-200.000,00 | 15 |
-300.000,00 | 7.5 |
-400.000,00 | 0 |
-500.000,00 | 7.5 |
-600.000,00 | 15 |
-Puntaje = 300,75 x (costo por familia por miles) | |
-D.2) Forma de pago | | 5
-10% en bonos | 1 |
-20% en bonos | 2 |
-30% en bonos | 3 |
-40% en bonos | 4 |
-50% en bonos | 5 |
-Puntaje - 0,1 x (% de bonos negociado) | |
+C.4 Tamaño de la finca | 3 |
+Menores de 100 Has. | 1 |
+De 100 a 300 Has. | 2 |
+Mayores de 300 Has (Así adicionado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990). | 3 |
+D.1 Costo de asentamiento por familia 15
+COSTO DE ASENTAMIENTO POR FAMILIA SEGUN REGIO N
+(En miles de colones)
+Central | P. Central | Brunca | Chorotega | H.Norte | H. Atlántica | Puntaje
+600 | 500 | 400 | 400 | 500 | 400 | 15
+900 | 750 | 600 | 600 | 750 | 600 | 7,5
+1.200 | 1.000 | 800 | 800 | 1.000 | 800 | 0
+1.500 | 1.250 | 1.000 | 1.000 | 1.250 | 1.000 | -7,5
+1. 800 | 1.500 | 1.200 | 1.200 | 1.500 | 1.200 | -15
+NOTA: Estos valores serán revisados y ajustados en forma anual. de acuerdo con el índice de inflación oficial.
+(Así reformado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990).
+D.2 Cálculo de puntaje según región
+Para las regiones Huetar Atlántica, Bronca y Chorotega: Puntaje = 30-0,0375 (costo por familia en miles de colones) Regiones Pacífico Central y Huetar Norte:
+Puntaje = 30-0,030 (costo por familia en miles de colones) Región Central:
+Puntaje = 30-0,025 (costo por familia en miles de colones)
+Puntaje = 0,1 x (% de bonos negociados).
+(Así reformado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990).
+D.3 Forma de pago 5
+100/0 en bonos 1
+200/0 en bonos 2
+30% en bonos 3
+40% en bonos 4
+50% en bonos 5
+(Así adicionado el inciso anterior mediante sesión N° 85 del 26 de noviembre de 1990).
 E.-Otros criterios | | 5
 favorables | 5 |
 desfavorables | 0 |
