@@ -14,7 +14,11 @@ La Constitución del Comité Ad-Hoc Hispano Costarricense
 CAPITULO I
 DEL COMITÉ AD-HOC HISPANO COSTARRICENSE
 Artículo lo—
-El Comité estará integrado por las siguientes personas o sus representantes:
-- Ministro de Relaciones Exteriores y Culto de Costa Rica.
-- Ministro de Planificación Nacional y Política Económica de Costa Rica, y
-- Embajador de España en Costa Rica, quienes actuarán por sí mismos, ad-Honorem, en ejercicio de su cargo en el Ministerio respectivo o en la Embajada. Para sus sesiones de trabajo el quórum requerido será de mayoría simple.
+Artículo 1º.- El Comité Ad-Hoc Hispano-Costarricense estará integrado por las siguientes personas o sus representantes:
+- El Ministro de Planificación Nacional y Política Económica-
+- El Ministro de Relaciones Exteriores y Culto;
+- Dos miembros designados por la Embajada de España en Costa Rica, uno de los cuales podrá ser el propio señor Embajador.
+Todos los miembros actuarán de manera ad-honorem. Para las sesiones de trabajo el quórum requerido será de mayoría simple. Las actuaciones y
+resoluciones del Comité se regirán por las disposiciones sobre órganos colegiados establecidas en la Ley General de la Administración Pública,
+en todo aquello en que resulten compatibles.
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 24420 de 23 de mayo de 1995).

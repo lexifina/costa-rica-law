@@ -14,3 +14,4 @@ Crea Comité Ad-Hoc Hispano Costarricense
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-04-22 | la propia norma |
+| 2 | 1995-05-23 | Decreto Ejecutivo 24420 (1995-05-23) |
