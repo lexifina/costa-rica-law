@@ -13,3 +13,4 @@ Fondo Conservar Desarrollo Sumideros Depósitos Gas Efecto Invernadero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-22 | la propia norma |
+| 2 | 1996-04-22 | SINALEVI (sin norma nombrada) |
