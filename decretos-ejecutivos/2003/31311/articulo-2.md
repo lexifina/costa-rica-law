@@ -1,0 +1,1 @@
+Artículo 2º—La Municipalidad de Santa Cruz deberá llevar a cabo dentro de los seis meses siguientes a la vigencia de este Decreto, los trámites pertinentes ante la Notaría del Estado, a efecto de que se proceda a la confección de la respectiva escritura pública del inmueble que le fue asignado, conforme a la normativa vigente.
