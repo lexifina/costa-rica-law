@@ -1,0 +1,1 @@
+Artículo 77. El derecho a pedir la declaración de inconstitucionalidad en casos determinados, se extingue por caducidad cuando ese derecho no se ejercite antes de que el respectivo proceso judicial quede resuelto por sentencia firme.

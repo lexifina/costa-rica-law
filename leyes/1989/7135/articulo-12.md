@@ -1,0 +1,1 @@
+Artículo 12. Las sentencias que dicte la Sala podrán ser aclaradas o adicionadas, a petición de parte, si se solicitare dentro de tercero día, y de oficio en cualquier tiempo, incluso en los procedimientos de ejecución, en la medida en que sea necesario para dar cabal cumplimiento al contenido del fallo.

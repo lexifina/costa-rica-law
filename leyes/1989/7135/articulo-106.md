@@ -1,0 +1,1 @@
+Artículo 106. La Sala podrá evacuar la consulta en cualquier momento, cuando considere que está suficientemente contestada mediante la simple remisión a su jurisprudencia y precedentes, todo esto con las mismas salvedades previstas en el párrafo segundo del artículo 9 de esta ley.

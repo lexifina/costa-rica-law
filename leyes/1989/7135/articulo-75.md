@@ -1,0 +1,4 @@
+Artículo 75. Para interponer la acción de inconstitucionalidad es necesario que exista un asunto pendiente de resolver ante los tribunales, inclusive de hábeas corpus o de amparo, o en el procedimiento para agotar la vía administrativa, en que se invoque esa inconstitucionalidad como medio razonable de amparar el derecho o interés que se considera lesionado.
+No será necesario el caso previo pendiente de resolución cuando por la naturaleza del asunto no exista lesión individual y directa, o se trate de la defensa de intereses difusos, o que atañen a la colectividad en su conjunto.
+Tampoco la necesitarán el Contralor General de la República, el Procurador General de la República, el Fiscal General de la República y el Defensor de los Habitantes.
+En los casos de los dos párrafos anteriores, interpuesta la acción se seguirán los trámites señalados en los artículos siguientes, en lo que fueren compatibles.

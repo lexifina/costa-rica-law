@@ -1,0 +1,2 @@
+Artículo 79. El escrito será presentado ante la Secretaría de la Sala, junto con certificación literal del libelo en que se haya invocado la inconstitucionalidad en el asunto principal, conforme con lo dispuesto en el párrafo primero del artículo 75.
+Además, con todo escrito o documento se acompañarán siete copias firmadas para los magistrados de la Sala, y las necesarias para la Procuraduría y las partes contrarias en el proceso o procedimiento principal.

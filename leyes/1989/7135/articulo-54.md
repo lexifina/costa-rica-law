@@ -1,0 +1,1 @@
+Artículo 54. El cumplimiento de la sentencia que se dicte en el amparo no impedirá que se proceda contra el servidor, si los hechos u omisiones en que incurrió constituyeren delito, a cuyo efecto se testimoniarán las piezas necesarias y se remitirán al Ministerio Público.

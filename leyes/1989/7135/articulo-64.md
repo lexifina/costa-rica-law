@@ -1,0 +1,1 @@
+Artículo 64. El rechazo del amparo contra sujetos de Derecho Privado no prejuzga sobre la responsabilidad civil o penal en que haya podido incurrir el autor del agravio, y el ofendido podrá ejercitar o promover las acciones respectivas.

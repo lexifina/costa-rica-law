@@ -1,0 +1,3 @@
+Artículo 98. Cuando se trate de reformas constitucionales, la consulta deberá hacerse después de su aprobación en primer debate, en primera legislatura, y antes de la definitiva. Cuando se trate de otros proyectos o actos legislativos sujetos al trámite de emisión de las leyes, deberá interponerse después de aprobados en primer debate y antes de serlo en tercero.
+No obstante, cuando la Asamblea Legislativa tuviere un plazo constitucional o reglamentario para votar el proyecto, la consulta deberá hacerse con la anticipación debida, y el proyecto se votará aunque no se haya recibido el criterio de la Sala.
+En los demás supuestos, la consulta deberá plantearse antes de la aprobación definitiva.

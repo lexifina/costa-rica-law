@@ -1,0 +1,1 @@
+Artículo 59. El recurso se dirigirá contra el presunto autor del agravio, si se tratare de persona física en su condición individual; si se tratare de una persona jurídica, contra su representante legal; y si lo fuere de una empresa, grupo o colectividad organizados, contra su personero aparente o el responsable individual.

@@ -1,0 +1,3 @@
+Artículo 38. En el recurso de amparo se expresará, con la mayor claridad posible, el hecho o la omisión que lo motiva, el derecho que se considera violado o amenazado, el nombre del servidor público o del órgano autor de la amenaza o del agravio, y las pruebas de cargo.
+No será indispensable citar la norma constitucional infringida, siempre que se determine claramente el derecho lesionado, salvo que se invoque un instrumento internacional.
+El recurso no está sujeto a otras formalidades ni requerirá autenticación. Podrá plantearse por memorial, telegrama u otro medio de comunicación que se manifieste por escrito, para lo cual se gozará de franquicia telegráfica.

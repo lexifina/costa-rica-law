@@ -1,0 +1,3 @@
+Artículo 52. Si, estando en curso el amparo, se dictare resolución, administrativa o judicial, que revoque, detenga o suspenda la actuación impugnada, se declarará con lugar el recurso únicamente para efectos de indemnización y de costas, si fueren procedentes.
+El recurrente podrá desistir del amparo, en cuyo caso se archivará el expediente si, a juicio de la Sala Constitucional, el recurso involucrare solamente derechos patrimoniales u otros renunciables. De lo contrario, continuará su tramitación.
+Cuando el desistimiento se funde en una satisfacción extraprocesal de los derechos o libertades reclamados por el interesado, el expediente podrá reabrirse en cualquier tiempo, si se demuestra que la satisfacción acordada ha resultado incumplida o tardía.

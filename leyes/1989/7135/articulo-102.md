@@ -1,0 +1,4 @@
+CAPITULO III
+DE LAS CONSULTAS JUDICIALES DE CONSTITUCIONALIDAD
+ARTICULO 102. Todo juez estará legitimado para consultarle a la Sala Constitucional cuando tuviere dudas fundadas sobre la constitucionalidad de una norma o acto que deba aplicar, o de un acto, conducta u omisión que deba juzgar en un caso sometido a su conocimiento.
+Además, deberá hacerlo preceptivamente cuando haya de resolver los recursos de revisión a que se refiere el artículo 42 de la Constitución Política, fundados en una alegada violación de los principios del debido proceso o de los derechos de audiencia o defensa; pero esto solamente para los efectos de que la Sala Constitucional defina el contenido, condiciones y alcances de tales principios o derechos, sin calificar ni valorar las circunstancias del caso concreto que motiva el respectivo recurso.

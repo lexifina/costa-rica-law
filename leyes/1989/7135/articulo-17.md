@@ -1,0 +1,1 @@
+Artículo 17. El recurso se interpondrá ante la Sala Constitucional, y su tramitación estará a cargo de su Presidente o del Magistrado instructor. Si se tratare de un caso de improcedencia manifiesta, el Magistrado se abstendrá de tramitarlo y reservará el asunto para la próxima sesión de la Sala.

@@ -1,0 +1,1 @@
+Artículo 25. Si del examen practicado resultare ilegítima la medida acordada por las autoridades, la Sala declarará con lugar el recurso, sin perjuicio de lo que proceda contra la autoridad responsable.

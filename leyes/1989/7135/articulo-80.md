@@ -1,0 +1,2 @@
+Artículo 80. Si no se llenaren las formalidades a que se refieren los dos artículos anteriores, el Presidente de la Sala señalará por resolución cuáles son los requisitos omitidos y ordenará cumplirlos dentro de tercero día.
+Si no se diere cumplimiento a lo ordenado, el Presidente denegará el trámite de la acción. De esta última resolución podrá pedirse revocatoria dentro de tercero día, en cuyo caso el Presidente elevará el asunto a conocimiento de la Sala para que ésta decida lo que corresponda.

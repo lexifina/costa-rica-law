@@ -1,0 +1,1 @@
+Artículo 70. Las resoluciones que se dicten en virtud del presente capítulo serán ejecutorias, y se harán efectivas en la vía civil por el procedimiento ejecutorio de sentencia establecido en el Código Procesal Civil.

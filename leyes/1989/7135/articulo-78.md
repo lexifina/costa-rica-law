@@ -1,0 +1,3 @@
+Artículo 78. El escrito en que se interponga la acción deberá presentarse debidamente autenticado.
+Se expondrán sus fundamentos en forma clara y precisa, con cita concreta de las normas o principios que se consideren infringidos.
+(Corregido mediante Fe de Erratas y publicada en la Colección de Leyes y Decretos de 1989 II Semestre I Tomo Página 25. Anteriormente la redacción de este numeral indicaba: “Artículo 78. El escrito en que se interponga la acción deberá presentarse debidamente autenticado. Se expondrán sus fundamentos en forma clara y precisa, con cita concreta de las normas o principios que se consideren infringidos.”)

@@ -1,0 +1,1 @@
+Artículo 23. Si el informe no fuere rendido dentro del plazo correspondiente, se podrán tener por ciertos los hechos invocados al interponerlo, y la Sala declarará con lugar el recurso, si procediere en derecho.

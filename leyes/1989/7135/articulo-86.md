@@ -1,0 +1,1 @@
+Artículo 86. La Sala debe resolver la acción de inconstitucionalidad dentro de un término máximo de un mes, a partir de la fecha en que concluya la vista. El Presidente señalará, en cada caso, el término respectivo, de acuerdo con la índole y complejidad del asunto.

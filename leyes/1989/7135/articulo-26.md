@@ -1,0 +1,2 @@
+Artículo 26. La sentencia que declare con lugar el hábeas corpus dejará sin efecto las medidas impugnadas en el recurso, ordenará restablecer al ofendido en el pleno goce de su derecho o libertad que le hubieren sido conculcados, y establecerá los demás efectos de la sentencia para el caso concreto.
+Además, condenará a la autoridad responsable a la indemnización de los daños y perjuicios causados, los cuales se liquidarán y ejecutarán en la vía contencioso administrativa por el procedimiento de ejecución de sentencia previsto en la ley reguladora de esa jurisdicción.

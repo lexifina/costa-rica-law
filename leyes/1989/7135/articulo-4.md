@@ -1,0 +1,4 @@
+Artículo 4. La jurisdicción constitucional se ejerce por la Sala Constitucional de la Corte Suprema de Justicia establecida en el artículo 10 de la Constitución Política.
+La Sala Constitucional está formada por siete magistrados propietarios y doce suplentes, todos elegidos por la Asamblea Legislativa en la forma prevista por la Constitución. Su régimen orgánico y disciplinario es el que se establece en la presente y en la Ley Orgánica del Poder Judicial.
+La Sala Constitucional no está sometida al plan de vacaciones establecido en la Ley Orgánica del Poder Judicial y, en consecuencia, fijará las fechas en que sus miembros tomarán vacaciones, de manera que haya siempre una mayoría de magistrados propietarios.
+Si la ausencia de propietarios fuere por licencia, se aplicará la regla anterior, excepto en los casos de enfermedad o de otro motivo justo.

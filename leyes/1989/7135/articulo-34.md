@@ -1,0 +1,3 @@
+Artículo 34. El recurso se dirigirá contra el servidor o el titular del órgano que aparezca como presunto autor del agravio. Si uno u otro hubiesen actuado en cumplimiento de órdenes o instrucciones impartidas por un superior, o con su autorización o aprobación, se tendrá por establecido el amparo contra ambos, sin perjuicio de lo que se decida en sentencia. De ignorarse la identidad del servidor, el recurso se tendrá por establecido contra el jerarca.
+Se tendrá también como parte al tercero que derivare derechos subjetivos de la norma o del acto que cause el proceso de amparo.
+Además, quien tuviere un interés legítimo en el resultado del recurso podrá apersonarse e intervenir en él como coadyuvante del actor o del demandado.

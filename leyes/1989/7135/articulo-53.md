@@ -1,0 +1,3 @@
+Artículo 53. Firme la sentencia que declare procedente el amparo, el órgano o servidor responsable del agravio deberá cumplirla sin demora.
+Si no lo hiciere dentro de las cuarenta y ocho horas siguientes a su firmeza, la Sala se dirigirá al superior del responsable y le requerirá para que lo haga cumplir y abra el correspondiente procedimiento disciplinario contra aquél.
+Al mismo tiempo, mandará abrir proceso contra el culpable o los culpables, y, pasadas otras cuarenta y ocho horas, contra el superior que no hubiere procedido conforme con lo expuesto, salvo cuando se trate de funcionarios que gocen de fuero privilegiado, en cuyo caso se comunicará al Ministerio Público para lo que proceda.

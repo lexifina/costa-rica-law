@@ -1,0 +1,2 @@
+Artículo 91. La declaración de inconstitucionalidad tendrá efecto declarativo y retroactivo a la fecha de vigencia del acto o de la norma, todo sin perjuicio de derechos adquiridos de buena fe.
+La sentencia constitucional de anulación podrá graduar y dimensionar en el espacio, el tiempo o la materia, su efecto retroactivo, y dictará las reglas necesarias para evitar que éste produzca graves dislocaciones de la seguridad, la justicia o la paz sociales.

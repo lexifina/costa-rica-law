@@ -1,0 +1,4 @@
+Artículo 49. Cuando el acto impugnado sea de carácter positivo, la sentencia que conceda el amparo tendrá por objeto restituir o garantizar al agraviado en el pleno goce de su derecho, y restablecer las cosas al estado que guardaban antes de la violación, cuando fuere posible.
+Si el amparo hubiere sido establecido para que una autoridad reglamente, cumpla o ejecute lo que una ley u otra disposición normativa ordena, dicha autoridad tendrá dos meses para cumplir con la prevención.
+Cuando lo impugnado hubiere sido la denegación de un acto o una omisión, la sentencia ordenará realizarlo, para lo cual se otorgará un plazo prudencial perentorio. Si se hubiere tratado de una mera conducta o actuación material, o de una amenaza, se ordenará su inmediata cesación, así como evitar toda nueva violación o amenaza, perturbación o restricción semejante.
+En todo caso, la Sala establecerá los demás efectos de la sentencia para el caso concreto.

@@ -1,0 +1,1 @@
+Artículo 108. En lo no dispuesto en el presente capítulo, las consultas judiciales de constitucionalidad se regirán por las normas del anterior y, supletoriamente, de la acción de inconstitucionalidad, en lo que fueren razonablemente aplicables.

@@ -1,0 +1,2 @@
+Transitorio I. Mientras no se promulgue la Ley del Defensor de los Habitantes, la actuación que se le señala en esta ley le corresponderá al Procurador General de la República.
+(Corregido mediante Fe de Erratas y publicada en la Colección de Leyes y Decretos de 1989 II Semestre I Tomo Página 25. Anteriormente la redacción de este numeral indicaba: “Transitorio I. Mientras no se promulga la Ley del Defensor de los Habitantes, la actuación que se le señala en esta ley le corresponderá al Procurador General de la República.”)

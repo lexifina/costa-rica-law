@@ -1,0 +1,1 @@
+Artículo 37. La falta de impugnación directa de los decretos y disposiciones generales a que se refiere el inciso a) del artículo 30, o el transcurso del plazo para formularla, no impedirán que los actos de aplicación individual puedan discutirse en la vía del amparo, si infringieren algún derecho fundamental del reclamante.

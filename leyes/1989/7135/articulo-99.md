@@ -1,0 +1,1 @@
+Artículo 99. Salvo que se trate de la consulta forzosa prevista en el inciso a) del artículo 96, la consulta deberá formularse en memorial razonado, con expresión de los aspectos cuestionados del proyecto, así como de los motivos por los cuales se tuvieren dudas u objeciones sobre su constitucionalidad.
