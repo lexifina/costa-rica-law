@@ -1,0 +1,42 @@
+Artículo 1º.- Refórmase al artículo 2º de la Ley de Pensiones y
+Jubilaciones del Magisterio Nacional, Nº 2248 del 5 de setiembre de 1958
+y sus reformas, cuyo texto será el siguiente:
+"Artículo 2º.- Las jubilaciones serán ordinarias o extraordinarias.
+Tendrán derecho a acogerse a la jubilación ordinaria los servidores que se
+hallen en cualquiera de los siguientes casos:
+a) Los que hayan prestado treinta años de servicio.
+b) Los que hayan servido veinticinco años, siempre que durante diez
+años consecutivos o quince alternos lo hayan hecho en la enseñanza especial, o
+con horario alterno o en zonas que no cuenten con servicios y condiciones de
+salubridad y comodidad, a juicio de una comisión permanente integrada por las
+organizaciones gremiales del Magisterio y por los Ministerios de Educación
+Pública y de Salud. Esta comisión hará una calificación de zonas cada dos años.
+c) Quienes hayan servido consecutivamente o en forma alterna en las
+condiciones establecidas en el inciso b) anterior, sin alcanzar los términos
+indicados, en cuyo caso tendrán derecho, para efectos del cómputo del tiempo
+señalado en el inciso a), a que se les reconozcan adicionalmente cuatro meses
+por cada año laborado en dichas condiciones.
+ch) Quienes en el ejercicio de su profesión alcanzaren sesenta años de
+edad, aunque no tuvieren los años de servicio establecidos en los
+incisos anteriores.
+d) Quienes sean sacerdotes y hayan cumplido treinta años de ejercicio
+eclesiástico, computados a partir de la ordenación sacerdotal, y quince
+años de servicio en el Magisterio Nacional.
+Tratándose de los incisos a), b), c) y d) anteriores, la jubilación
+será voluntaria y se concederá a solicitud del interesado. En cuanto a la
+referida al inciso ch), será obligatoria y se otorgará de oficio. Los
+años de servicio a que se refiere este artículo deberán probarse, mediante
+certificación emitida por el Departamento de Personal del Ministerio de
+Educación o por las universidades. En el cómputo de esos años se incluirán
+las licencias por incapacidad concedidas de acuerdo con los artículos 165,
+166, 167, 170, 173 y 177 de la Ley de Carrera Docente, Nº 4565 del 4 de
+mayo de 1970. También serán computados los años referidos a las licencias
+o permisos estipulados en el artículo 171 de esa misma ley. Asimismo, en
+el cómputo de esos años se incluirán los servidos en otras dependencias
+del Estado, con anterioridad al ingreso o reingreso al servicio docente,
+y deberán probarse mediante certificación emitida por la respectiva
+institución. En este cómputo se tendrán en cuenta solamente diez años o
+menos de servicio debidamente comprobados.
+En todo caso, al acogerse a las disposiciones de este artículo, el
+interesado deberá comprobar que ha servido por lo menos diez años en la
+educación nacional."
