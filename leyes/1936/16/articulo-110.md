@@ -1,0 +1,1 @@
+Artículo 110.—Los edificios que se hipotequen al Banco, deberán estar asegurados contra incendio por una suma no inferior a la que, en cada caso, fijará la Junta. La suma exigida por ésta no podrá exceder del monto del préstamo, más un 10 %. La póliza de seguro deberá transferirse al Banco, dándose el aviso correspondiente al asegurador.

@@ -1,0 +1,2 @@
+Artículo 56.—El Consejo presentará al Superintendente de Bancos, semanalmente, un estado de la. situación financiera del Departamento, en la forma que el Superintendente determine. Los estados semanales serán acompañados de una lista de las tasas oficiales de interés y descuento que rijan para las diferentes clases de documentos y operaciones.
+Estos estados semanales serán publicados en La Gaceta.

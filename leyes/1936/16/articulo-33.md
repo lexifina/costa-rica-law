@@ -1,0 +1,1 @@
+Artículo 33.—Los directores, gerentes y empleados del Banco que, a sabiendas, ejecuten o autoricen operaciones prohibidas por la presente ley, responderán personalmente con sus bienes de las pérdidas que con ellas se Irroguen al Banco, sin perjuicio de las otras sanciones legales que les correspondan.

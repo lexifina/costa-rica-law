@@ -1,0 +1,1 @@
+Artículo 18.—Cinco miembros de la Junta, propietarios y suplentes en su caso, formarán quorum en sesión ordinaria o extraordinaria. Los acuerdos se tomarán, salvo disposición legal en contrario, por mayoría de votos.

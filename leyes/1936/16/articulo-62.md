@@ -1,0 +1,1 @@
+Artículo 62.—El Departamento Emisor tomará a su cargo todos los billetes en circulación del Banco Internacional. Estos billetes deberán ser reemplazados, a medida que se retiren de la circulación para ser incinerados, por billetes de emisión propia del Departamento Emisor.

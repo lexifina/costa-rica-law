@@ -1,0 +1,1 @@
+Artículo 81.—El precio que el Departamento pagará por el oro que compre será calculado sobre la base del precio del oro fino en Nueva York, deducidos todos los gastos de análisis en el país y en el extranjero, transporte, seguro, fundición y demás gastos accesorios que se originen de su reducción a oro fino y de su depósito para custodia en un Banco del exterior.

@@ -1,0 +1,2 @@
+ARTÍCULOS TRANSITORIOS
+Artículo 1°—Para los efectos legales deberá tenerse por sustituido, sin más requisitos, el nombre Banco Internacional cíe Costa Rica, usado en toda clase de leyes, operaciones, actos o contratos, por el Banco Nacional de Costa Rica. Este continuará ejerciendo las atribuciones que le confirió al Banco Internacional la ley N° 60 del 18 de marzo de 1933 para el manejo y administración del Crédito Hipotecario de Costa Rica.

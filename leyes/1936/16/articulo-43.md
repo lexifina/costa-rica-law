@@ -1,0 +1,1 @@
+Artículo 43.—El Consejo Directivo del Departamento Emisor—llamado en adelante el Consejo—se compondrá de tres miembros propietarios y tres suplentes. Estos repondrán a sus respectivos propietarios en las ausencias temporales.

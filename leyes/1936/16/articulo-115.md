@@ -1,0 +1,1 @@
+Artículo 115.—Los gastos de avalúo, inspección, escritura y demás que demandare el cumplimiento de las formalidades y exigencias requeridas para la completa seguridad del Banco, serán a cargo del prestatario.

@@ -1,0 +1,1 @@
+Artículo 187.—Si un deudor, por cualquier razón, faltare al cumplimiento de las condiciones del préstamo con respecto al pago de intereses o cuotas de amortización, el Banco le podrá dar un plazo prudencial para ponerse al día en sus obligaciones.

@@ -1,0 +1,1 @@
+Artículo 162.—El Banco informará mensualmente al Superintendente sobre el estado general de las operaciones del Departamento Hipotecario, indicando el movimiento de los bonos, sus garantías, las operaciones efectuadas con sus productos, y las operaciones directas del Departamento.

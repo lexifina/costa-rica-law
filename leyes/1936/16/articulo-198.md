@@ -1,0 +1,1 @@
+Artículo 198.—La autorización del artículo primero de la ley N° 79 del 4 de julio de 1933, para emitir ocho millones de colones en cédulas, se limitará a la suma de siete millones quinientos mil colones (¢ 7.500,000.00).

@@ -1,0 +1,1 @@
+Artículo 134.—El Departamento tendrá la obligación de amortizar extraordinariamente, a la par y por sorteo, en las fechas que la Junta determine, el número de bonos necesario para mantener la relación entre el monto de ellos y el de las hipotecas vigentes.

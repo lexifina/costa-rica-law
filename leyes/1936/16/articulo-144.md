@@ -1,0 +1,1 @@
+Artículo 144.—Las obligaciones constituidas a favor del Departamento Comercial con el producto de estos bonos de acuerdo con el artículo 169 de esta ley, así como sus garantías, responderán preferentemente al pago de los bonos en circulación, los cuales estarán además garantizados con el activo general del Banco.

@@ -1,0 +1,1 @@
+Artículo 87.—El total de las operaciones que efectué el Departamento Emisor con un mismo Banco de acuerdo con lo establecido en los incisos 1) a 4) del artículo 85 de esta ley, no podrá exceder del 20 % del activo realizable de dicho Banco aceptado por el Superintendente.

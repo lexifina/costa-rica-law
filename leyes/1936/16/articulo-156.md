@@ -1,0 +1,1 @@
+Artículo 156.—Los préstamos a corto plazo efectuados por el Banco Internacional con dichos fondos, serán cancelados a medida que venzan sus plazos. El Departamento no podrá hacer nuevas operaciones de préstamo de esta clase.
