@@ -1,0 +1,1 @@
+Artículo 3º—En el Certamen se evaluarán tres categorías. Cada categoría obtendrá tres premios de dinero en efectivo, así como menciones honoríficas. La suma de dinero establecido para la premiación en dicho Certamen, se definirá en el presupuesto anual ordinario del programa 751-Conservación del Patrimonio Cultural del Ministerio de Cultura, Juventud y Deportes.

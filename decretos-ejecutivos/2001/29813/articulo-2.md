@@ -1,0 +1,1 @@
+Artículo 2º—El Centro de Investigación y Conservación del Patrimonio Cultural del Ministerio de Cultura, Juventud y Deportes, en coordinación con las organizaciones culturales de la región asignada, será el encargado de la organización y realización de este Certamen.
