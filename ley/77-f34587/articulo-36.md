@@ -1,0 +1,1 @@
+Art. 36. Dará cuenta á la corporacion municipal oportunamente de todo lo que crea necesario con relacion al alumbrado, y de cuanto fuere conducente á su arreglo y mejora. --Dado en la Ciudad de San José a los doce dias del mes de mayo de mil ochocientos cincuenta --Juan Rafael Mora. El Ministro de Estado en el Despacho de Gobernacion, Joaquin Bernardo Calvo,"

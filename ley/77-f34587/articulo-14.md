@@ -1,0 +1,1 @@
+Art. 14. Los segundos llevaran à su costa igual sombrero, con una plancha de lata en la parte anterior en que se pondrá esta leyenda “Compañia de serenos de San José num, tal" (desde uno hasta dieziseis.)

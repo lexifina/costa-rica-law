@@ -1,0 +1,1 @@
+Art. 6. Mientras no haya empresarios, el jefe de los serenos cumplir puntualmente, bajo su mas estrecha responsabilidad, las obligaciones que al ante dicho empresario se impone en los artículos anteriores.
