@@ -1,0 +1,2 @@
+Artículo 21. Información sobre las aceptaciones recibidas
+Con la periodicidad que indique el Superintendente, el oferente deberá informar a la Superintendencia de Valores sobre el número de aceptaciones presentadas. Así mismo, durante el plazo de aceptación, los interesados podrán obtener información sobre el número de aceptaciones presentadas en el domicilio del oferente, con sus representantes o en la Superintendencia General de Valores.

@@ -1,0 +1,2 @@
+Artículo 26. Límites a la desinscripción
+Las sociedades cuyo capital accionario haya sido objeto de una oferta pública de adquisición no podrán desinscribirse durante el plazo de un año contado a partir del cierre de la operación, salvo que presenten una oferta pública de adquisición; de conformidad con los términos que se establezcan reglamentariamente. Para efectos de la aplicación de esta norma, se tendrá por fecha de cierre de la operación la establecida en el Artículo 24 de este Reglamento.

@@ -1,0 +1,3 @@
+Artículo 25. Devolución de títulos
+En caso de que la oferta quede sin efecto, los puestos de bolsa que hubieran recibido aceptaciones estarán obligadas a devolver los documentos acreditativos de la titularidad que les hubiesen sido entregados, en el plazo máximo de tres días hábiles contados a partir de la comunicación a que se refiere el Artículo 22 de este Reglamento. Todos los gastos correrán por cuenta del oferente.
+Igual plazo se aplicará para la devolución, en los casos de aceptaciones que no resulten adjudicadas en virtud del prorrateo a que se refiere el Artículo 23 de este Reglamento.
