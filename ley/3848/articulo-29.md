@@ -1,1 +1,0 @@
-Artículo 29°.-Quedan modificadas en lo que se opongan a la presente ley, las leyes de lo Contencioso Administrativa y Orgánica de Notariado, derogada la ley N° 33 de 1° de diciembre de 1928 y los Decretos Leyes números 40 de 2 de junio de 1948, 103 de 17 de julio de 1948, así como las demás disposiciones legales que se opongan a la presente ley.
