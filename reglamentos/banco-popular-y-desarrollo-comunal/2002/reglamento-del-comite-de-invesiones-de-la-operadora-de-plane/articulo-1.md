@@ -1,5 +1,3 @@
 BANCO POPULAR Y DE DESARROLLO COMUNAL
-REGLAMENTO DEL COMITÉ DE INVERSIONES DE LA
-OPERADORA DE PLANES DE PENSIONES COMPLEMENTARIAS
-DEL BANCO POPULAR Y DE DESARROLLO COMUNAL S. A.
-Artículo 1º—El presente Reglamento se emite con fundamento en los artículos 42 inciso o de la Ley de Protección al Trabajador, y 44 a 46 del "Reglamento sobre la apertura y funcionamiento de las entidades autorizadas, el funcionamiento de los fondos de pensiones, capitalización laboral y ahorro voluntario previstos en la Ley de Protección al Trabajador", (en adelante denominado "el Reglamento"), y regula la operación y funciones del Comité de Inversiones (en adelante, "el Comité") de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S. A. (en adelante, "la Operadora").
+REGLAMENTO DEL COMITÉ DE INVERSIONES DE LA OPERADORA DE PLANES DE PENSIONES COMPLEMENTARIAS DEL BANCO POPULAR Y DE DESARROLLO COMUNAL S. A.
+Artículo 1º—El presente Reglamento se emite con fundamento en los artículos 42 inciso o de la Ley de Protección al Trabajador, y 44 a 46 del "Reglamento sobre la apertura y funcionamiento de las entidades autorizadas, el funcionamiento de los fondos de pensiones, capitalización laboral y ahorro voluntario previstos en la Ley de Protección al Trabajador", (en adelante denominado "el Reglamento"), y regula la operación y funciones del Comité de Inversiones (en adelante, "el Comité") de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, S. A. (en adelante, "la Operadora").

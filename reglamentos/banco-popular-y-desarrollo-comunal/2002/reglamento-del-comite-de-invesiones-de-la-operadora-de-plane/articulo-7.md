@@ -1,1 +1,3 @@
+CAPÍTULO II
+De las inversiones
 Artículo 7º—El Comité procurará obtener la mayor rentabilidad de las inversiones, manteniendo un balance adecuado entre seguridad, liquidez y rentabilidad, salvaguardando en todo momento los intereses de los afiliados a los fondos, y cumpliendo lo establecido en la normativa aplicable.

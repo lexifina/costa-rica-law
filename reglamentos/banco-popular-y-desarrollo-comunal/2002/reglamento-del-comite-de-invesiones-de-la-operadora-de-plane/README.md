@@ -14,3 +14,4 @@ Reglamento del comité de Invesiones de la operadora de planes de pensiones comp
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-01 | la propia norma |
+| 2 | 2002-03-01 | Reglamento 60 (2002-02-26) |
