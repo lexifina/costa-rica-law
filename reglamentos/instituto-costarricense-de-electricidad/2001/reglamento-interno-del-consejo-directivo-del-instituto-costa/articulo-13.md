@@ -1,0 +1,1 @@
+Artículo 13.—En caso de ausencia o enfermedad del Secretario en las sesiones ordinarias o extraordinarias, será sustituido por el Secretario Suplente que designe el Consejo Directivo, el cual asumirá los deberes inherentes al cargo de Secretario General, por el tiempo de su ausencia.

@@ -1,0 +1,3 @@
+SECCIÓN III
+Del acta
+Artículo 23.—El Secretario y su personal de apoyo, levantarán un borrador de acta de cada sesión, el cual contendrá el nombre de las personas asistentes, el lugar, fecha y hora de inicio y finalización, los puntos principales de discusión, la forma y resultado de las votaciones y el contenido de los acuerdos. Cuando algún miembro del Consejo quiera razonar su voto o hacer algún comentario y así lo quiera hacer constar en el acta respectiva, señalará al Secretario en el momento de su intervención, que así lo consigne, debiendo este transcribir literalmente de la grabación que se esté realizando.

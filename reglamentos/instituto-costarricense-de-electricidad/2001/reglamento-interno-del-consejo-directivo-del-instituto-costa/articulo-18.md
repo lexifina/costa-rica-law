@@ -1,0 +1,1 @@
+Artículo 18.—Únicamente para las sesiones extraordinarias deberá existir una convocatoria especial por escrito, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia. Dicha convocatoria deberá acompañarse de una copia de la agenda con los asuntos respectivos.

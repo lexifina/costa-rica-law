@@ -1,0 +1,1 @@
+Artículo 34.—La inasistencia, a las sesiones del Consejo Directivo, sean estas ordinarias o extraordinarias, ocasionará la pérdida de la respectiva dieta, salvo que se esté ante el caso de enfermedad o misión oficial.

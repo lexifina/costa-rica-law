@@ -1,0 +1,1 @@
+Artículo 40.—Los gastos de viaje y de transporte correspondientes a las misiones oficiales, se regularán por las disposiciones de la Ley número 3462 del 26 de noviembre de 1964 y por su respectivo reglamento dictado por la Contraloría General de la República y el propio Reglamento de Viajes al Exterior de este Consejo Directivo.

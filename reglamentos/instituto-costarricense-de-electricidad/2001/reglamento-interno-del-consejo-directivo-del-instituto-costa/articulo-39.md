@@ -1,0 +1,3 @@
+SECCIÓN III
+Del pago de dietas por funciones propias de su cargo o misiones oficiales
+Artículo 39.—Los miembros del Consejo Directivo que hayan sido designados en funciones propias de su cargo, o en misión oficial, tendrán derecho a que se les reconozca las dietas correspondientes a las sesiones, tanto ordinarias como extraordinarias, que celebre el Consejo Directivo durante su ausencia, siempre dentro del límite contemplado en la Ley 3065 del 20 de noviembre de 1965 y de conformidad con la autorización extendida por la Contraloría General de la República en su nota número 2110 del 5 de abril de 1996.

@@ -1,0 +1,1 @@
+Artículo 29.—Cualquiera de los miembros del Consejo Directivo podrá interponer recurso de revisión contra los acuerdos dictados, en cuyo caso será interpuesto y resuelto al conocerse el borrador de acta en la sesión ordinaria siguiente, salvo que, por tratarse de un asunto que el Presidente juzgue urgente, se decida conocer en sesión extraordinaria.

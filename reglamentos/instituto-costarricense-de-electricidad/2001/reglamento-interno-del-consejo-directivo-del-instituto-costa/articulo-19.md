@@ -1,0 +1,1 @@
+Artículo 19.—No obstante lo establecido en los artículos precedentes, el Consejo Directivo sesionará válidamente, sin cumplir todos los requisitos referentes a la convocatoria o a la Agenda, cuando asistan todos sus miembros y así lo acuerden por unanimidad.

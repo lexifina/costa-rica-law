@@ -1,0 +1,2 @@
+Artículo 16.—Son comisiones permanentes: Aquellas designadas por el Consejo Directivo para atender permanentemente algun asunto o trámite y deberán rendir su informe en el plazo que se señale en el momento de su constitución.
+Son comisiones especiales: Aquellas nombradas por el Consejo Directivo para atender un asunto específico y deberán rendir su informe en el plazo que se señale en el momento de su constitución; no obstante, dicho plazo podrá ser prorrogado a juicio del Consejo, en razón de la complejidad del asunto en investigación.
