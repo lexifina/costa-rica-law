@@ -1,3 +1,3 @@
-Artículo 2º.- El edificio se destinará a la instalación de un Centro Nacional de Exposiciones.
-El ministerio de Cultura, Juventud y Deportes podrá conceder, mediante los procedimientos correspondientes, el desarrollo, administración y explotación del Centro.
-(Así reformado por artículo 1° del decreto ejecutivo Nº 18895 de 9 de marzo de 1989)
+Artículo 2º.- El edificio se destinará a la instalación de un Centro Nacional de Artes Escénicas y Exposiciones.
+El Ministerio de Cultura, Juventud y Deportes, podrá conceder mediante el procedimiento licitatorio correspondiente el equipamiento, desarrollo, administración y explotación del Centro, cuya adjudicación se realizará una vez vencido el plazo del contrato que permite actualmente el desarrollo, administración y explotación del Centro Nacional de Exposiciones.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 29887- C del 25 de septiembre de 2001)
