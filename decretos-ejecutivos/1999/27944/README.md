@@ -13,3 +13,4 @@ Interés Público Primera Olimpiada Matemática de Centroamérica y Caribe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-29 | la propia norma |
+| 2 | 1999-06-29 | SINALEVI (sin norma nombrada) |
