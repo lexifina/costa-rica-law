@@ -14,3 +14,4 @@ Reglamento de Licencias Municipales de la Municipalidad de Curridabat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-04 | la propia norma |
+| 2 | 2003-01-30 | Reglamento municipal 39 (2003-01-30) |
