@@ -14,3 +14,4 @@ Declara Interés XI Simposio Patrimonio Mundial 13 abril 2000 CENAC
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-16 | la propia norma |
+| 2 | 2000-03-16 | Ley 7 |
