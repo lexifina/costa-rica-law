@@ -1,0 +1,1 @@
+Artículo 2º—La remisión de la información solicitada deberá ser realizada por cada institución, empresa, entidad, Ministerio y dependencia del Sector Público, en un plazo máximo de 30 días contado a partir de la publicación de esta Directriz en el Periódico Oficial.

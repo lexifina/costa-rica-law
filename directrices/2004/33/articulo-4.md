@@ -1,0 +1,1 @@
+Artículo 4º—Cumplido el plazo señalado en el artículo segundo, el Consejo Nacional de Financiamiento Interno, Externo y de Inversión, rendirá un informe sobre el acatamiento de la presente directriz por parte de cada institución, empresa, entidad, Ministerio y dependencia del Sector Público.

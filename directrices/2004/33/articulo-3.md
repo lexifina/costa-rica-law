@@ -1,0 +1,1 @@
+Artículo 3º—El Consejo Nacional de Financiamiento Interno, Externo y de Inversión, velará por el debido cumplimiento de esta directriz, para lo cual podrá solicitar a todas las entidades citadas la información que estime pertinente.
