@@ -1,0 +1,1 @@
+Artículo 51.- Al cazador o pescador que fuere requerido por los inspectores de pesca o de vida silvestre del Ministerio de Agricultura y Ganadería, por la Guardia Civil o la Guardia Rural, para la presentación de su licencia, si no la tuviere, le será incautado el producto de la caza o pesca, el cual será entregado a instituciones de beneficencia.

@@ -1,0 +1,1 @@
+Artículo 5º.- Los organismos descentralizados y centralizados del Poder Ejecutivo, al igual que los gobiernos municipales, quedan obligados a prestar su colaboración económica al Ministerio de Agricultura y Ganadería cuando éste así lo requiera, para el fiel cumplimiento de lo encomendado en esta ley.

@@ -1,0 +1,1 @@
+Artículo 8º.- El Poder Ejecutivo, por medio del Ministerio de Agricultura y Ganadería, queda facultado para establecer la coordinación necesaria con los entes descentralizados y centralizados, que posean programas agropecuarios de conservación de suelos, aguas y bosques, con el fin de lograr la conservación y el mejor aprovechamiento de la fauna silvestre.
