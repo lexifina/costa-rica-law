@@ -1,0 +1,2 @@
+X.
+Si Riatti abandonare hasta por dos años las industrias que haya establecido, sin que ésto proceda de fuerza mayor comprobada, ó si dejare de pagar las rentas correspondientes á cuatro semestres, caducará de hecho la concesión y pasarán todos los objetos indicados en la cláusula octava, á poder de la Municipalidad de la comarca, en buen estado de explotación sin reembolso de ninguna cantidad por parte de ella.

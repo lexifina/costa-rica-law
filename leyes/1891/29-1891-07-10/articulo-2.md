@@ -1,0 +1,2 @@
+II.
+Las mil hectáreas de terreno de que habla la cláusula anterior, puede tomarlas Riatti en uno ú otro lado del río, ó en ambos si le conviniere, ya sea en una porción ó en varias, exceptuando las tres primeras millas que quedan, partiendo desde el puente de la línea férrea y siguiendo aguas á bajo del río. Dentro de dos años contados desde que comience á regir el contrato, deberá estar determinado y medido el total del terreno que comprende las mil hectáreas, y el plano que de dicho terreno debe levantarse, presentado al Gobierno.
