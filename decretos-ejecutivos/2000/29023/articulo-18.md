@@ -1,0 +1,1 @@
+Artículo 18.-En lo que sea compatible, para la prestación del transporte estudiantil, se aplica el Reglamento para la Explotación de Servicios Especiales de Transporte Automotor Remunerado de Personas, Decreto Ejecutivo N° 15203-MOPT, del 31 de enero de 1984 y sus reformas.

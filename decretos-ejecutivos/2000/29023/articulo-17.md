@@ -1,0 +1,1 @@
+Artículo 17.-EI Director del Centro Educativo, deberá poner en conocimiento de la Dirección General Financiera, debidamente documentada, toda queja o denuncia que sea causa de resolución del contrato, con el fin de que se proceda de conformidad con lo que establezca el ordenamiento jurídico.

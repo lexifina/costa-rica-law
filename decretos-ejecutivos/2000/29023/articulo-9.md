@@ -1,0 +1,1 @@
+Artículo 9°-En igualdad de condiciones se dará preferencia al oferente que brinde un servicio exclusivo de transporte estudiantil, respecto al transportista que ofrezca la modalidades de servicio compartido.
