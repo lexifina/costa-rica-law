@@ -1,0 +1,2 @@
+Artículo 3°—La Subgerencia de la División Médica promoverá en forma eficiente y eficaz, un sistema de prestación de servicios de salud adecuado a las demandas y necesidades de los clientes de la Institución.
+Las Direcciones Generales que la integran, deberán promover el desarrollo gerencial de los hospitales desconcentrados, clínicas mayores, direcciones regionales y de las áreas de salud, con base en las políticas vigentes, con el fin de garantizar la consolidación de un proceso continuo de modernización institucional.

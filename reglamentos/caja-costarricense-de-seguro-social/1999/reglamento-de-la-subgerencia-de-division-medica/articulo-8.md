@@ -1,0 +1,1 @@
+Artículo 8°—En caso de que un Director General deba asumir temporalmente funciones propias del Gerente de División Médica, por ausencia de éste, se requerirá el acuerdo previo de la Junta Directiva de la Institución.

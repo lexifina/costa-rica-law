@@ -1,0 +1,1 @@
+Artículo 4°—Cada Dirección General estará a cargo de un Director General, quien representará al Gerente de la División Médica en el ámbito de sus respectivas competencias, sin que ello implique delegación de potestades de imperio, ni el ejercicio de funciones indelegables expresamente reservadas por ley al Gerente de la División Médica.
