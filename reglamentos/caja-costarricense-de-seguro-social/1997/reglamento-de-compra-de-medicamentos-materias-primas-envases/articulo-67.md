@@ -1,0 +1,1 @@
+Artículo 67.—Cualquier resolución de la Administración que deje sin efecto el acto de adjudicación, será emitida de conformidad con lo establecido por el artículo 56.6 del Reglamento General de la Contratación Administrativa.

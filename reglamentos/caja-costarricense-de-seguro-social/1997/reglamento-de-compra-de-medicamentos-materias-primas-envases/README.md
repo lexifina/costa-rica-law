@@ -1,0 +1,16 @@
+# Reglamento (1997-10-21)
+
+Reglamento de Compra de Medicamentos, Materias Primas, Envases, Empaques y Reactivos
+
+- Tipo: Reglamento
+- Número: 7169
+- Fecha: 1997-10-21
+- Ente emisor: Caja Costarricense de Seguro Social
+- Publicación: La Gaceta N° 10 del 1998-01-15
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=49728&param2=53211&param3=1 (ficha 49728)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1998-01-15 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 58.—La Caja aceptará una única reposición por cada partida que llegare a rechazar su Laboratorio de Control de Calidad y ello deberá cumplirse dentro del plazo que la Caja en cada caso indique.

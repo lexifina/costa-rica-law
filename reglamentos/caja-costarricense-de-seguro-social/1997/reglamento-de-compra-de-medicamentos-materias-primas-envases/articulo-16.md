@@ -1,0 +1,3 @@
+Artículo 16.—Si la solicitud es aceptada, la inscripción tendrá vigencia por un plazo de cinco años, salvo que deje de ajustarse a las condiciones fijadas en los artículos precedentes, o que surja causa de suspensión, conforme con lo que se dispone en el Capítulo VIII.
+Si la solicitud fuere rechazada, podrá iniciarse un segundo trámite de inscripción seis meses después de notificado el rechazo. Si esta solicitud se rechazare por segunda vez, el tercer trámite de inscripción podrá iniciarse seis meses después de notificado el segundo rechazo. Para la cuarta y sucesivas deberá esperarse 24 meses.
+Para el segundo trámite y subsiguientes, el interesado conjuntamente con las muestras y documentos, debe aportar recibo de pago del análisis correspondiente.

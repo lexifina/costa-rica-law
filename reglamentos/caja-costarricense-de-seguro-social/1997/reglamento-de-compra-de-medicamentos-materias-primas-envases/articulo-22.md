@@ -1,0 +1,1 @@
+Artículo 22.—La administración procederá a adjudicar, o declarar desierto el concurso, dentro de los 60 días naturales a partir del acto' de apertura, para las compras de medicamentos y sus materias primas. En los demás casos dentro de los 120 días naturales, salvo que el respectivo cartel indique otra vigencia.
