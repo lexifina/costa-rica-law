@@ -1,0 +1,12 @@
+Nº 30391-MTSS
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las facultades que les confieren los incisos 3), 18) y 20) del artículo 140 de la Constitución Política; y con fundamento en los numerales 25, 27, 28 y 103 de la Ley General de la Administración Pública.
+Considerando:
+I.—Que en cumplimiento de sus fines y objetivos, el Ministerio de Trabajo y Seguridad Social debe realizar el proceso de gestión de políticas públicas que busquen el establecimiento efectivo de la equiparación de oportunidades y no discriminación en el empleo en razón de situaciones de discapacidad.
+II.—Que se ha señalado como prioritaria la formulación de política sociolaboral para la atención de las personas con discapacidad, así como la formación y concientización continua de estas y de los empleadores del país, acerca de los derechos y obligaciones laborales que les asisten.
+III.—Que es urgente y necesario hacer que el enfoque de equiparación de oportunidades para personas con discapacidad, sea transversalizada a todos los programas ejecutados por el Ministerio.
+IV.—Que, en la Dirección Nacional de Empleo funciona el Departamento de Mano de Obra, que entre otras cosas debe ocuparse a lo relativo a la colocación, asesoramiento en la readaptación y reubicación de las personas con discapacidad.
+V.—Que a partir de lo estipulado en el artículo 30 de la Ley Nº 7600, Igualdad de Oportunidades para las Personas con Discapacidad en Costa Rica y su Reglamento; se creo en el Ministerio la Unidad de Equiparación de Oportunidades para Personas con Discapacidad, la cual funciona en forma exitosa, pero que es necesario consolidar su institucionalización y ubicación orgánico-funcional dentro del contexto institucional; como instancia formuladora de lineamientos políticos para la atención de personas con discapacidad, por parte del Ministerio. Por tanto,
+Decretan:
+Artículo 1º—Se institucionaliza la Unidad de Equiparación de Oportunidades para Personas con Discapacidad del Ministerio de Trabajo y Seguridad Social, como una instancia formuladora de lineamientos políticos para la atención de personas con discapacidad, ubicándose funcionalmente dentro del Área Técnica, según la reestructuración aprobada por el Ministerio de Planificación en el año 1995; por ser esta una unidad de carácter técnico asesor de alto nivel; con lo cual se garantiza que su alcance sea a todos los niveles, políticas, tareas, funciones y actividades que desarrolle la institución.
