@@ -1,2 +1,2 @@
-Artículo 3°-Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a las catorce horas del día primero de abril de mil novecientos noventa y tres.
+Artículo 3°-La reserva Indígena Guaymí de Osa constituye una zona de amortiguamiento al Parque nacional Corcovado y, de conformidad con el artículo 7 párrafo primero de la Ley Indígena N° 6172 del 29 de noviembre de 1977, es una zona de vocación forestal, por lo que la extracción de madera en dicha reserva Indígena será totalmente restringida y únicamente se autorizará en casos muy calificados. Queda prohibida la exportación sistemática de la madera, y se deberá buscar soluciones viables que permitan a los indígenas desarrollarse sin que ello produzca alteraciones al medio ambiente.
+(Mediante el artículo 3° del decreto ejecutivo N° 29957 del 26 de octubre del 2001, se estableció que el anterior numeral 2° del presente decreto queda vigente y debe numerarse como artículo 3°)

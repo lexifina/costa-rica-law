@@ -14,3 +14,4 @@ Reforma Reserva Indígena Guaymí de Osa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-06-07 | la propia norma |
+| 2 | 2001-10-26 | Decreto Ejecutivo 29957 (2001-10-26) |
