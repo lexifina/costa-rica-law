@@ -1,0 +1,1 @@
+Artículo 2°-La erogación prevista en esta ley debe sustentarse con los fondos indicados por la ley N° 2866 de 14 de noviembre de 1961 (Reforma al artículo 419 del Código Fiscal), cuya estimación debe hacer el Poder Ejecutivo y consignarla en el Presupuesto Ordinario de Gastos de la Nación, como ampliación en el ejercicio fiscal de 1962 y ordinariamente en los años sucesivos.
