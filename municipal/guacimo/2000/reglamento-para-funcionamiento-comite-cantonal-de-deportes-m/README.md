@@ -14,3 +14,4 @@ Reglamento para Funcionamiento Comité Cantonal de Deportes, Municipalidad de Gu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-07-21 | la propia norma |
+| 2 | 2002-07-27 | Reglamento municipal 30 (2002-07-27) |
