@@ -1,0 +1,1 @@
+Articulo 17.—La matricula en un ciclo superior en casos de estudiantes que hayan reprobado cursos, solamente se podrá realizar en aquellas asignaturas sin prerequisito o cuyos prerequisitos hayan sido aprobados o reconocidos anteriormente.

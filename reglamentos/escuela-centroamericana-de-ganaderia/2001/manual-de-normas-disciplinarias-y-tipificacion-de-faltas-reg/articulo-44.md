@@ -1,0 +1,1 @@
+Artículo 44.—El alumno matriculado podrá renunciar justificadamente al (los) curso (s) matriculado (s) durante las 2 primeras semanas lectivas de cada ciclo, llenando una boleta para este efecto en la Oficina de Registro.

@@ -1,0 +1,1 @@
+Artículo 62.—Ningún estudiante podrá ser sancionado sino en de expediente instruido al efecto, con previa audiencia al interesado impendiente a la trasgresión de las normas y que corresponda a una falta grave o muy grave.

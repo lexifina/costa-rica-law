@@ -1,0 +1,2 @@
+Artículo 53.—Cuando la inconformidad lo sea contra las pruebas finales o extraordinarias del ciclo el recurso de apelación será interpuesto ante el Consejo Docente.
+En los casos anteriores, los recursos deberán interponerse en el plazo máximo de 2 días hábiles posteriores al día de tener publicación de las notas por parte de la Oficina de Registro en el caso de exámenes finales y de 1 día hábil para las pruebas extraordinarias.
