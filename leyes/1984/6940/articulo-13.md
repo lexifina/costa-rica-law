@@ -1,1 +1,0 @@
-Artículo 13.- La aplicación de impuestos, tasas y otros gravámenes internos a los productos originarios y procedentes del territorio, de cualquiera de las Partes gozarán, en sus respectivos territorios, de un tratamiento no menos favorable al que se aplique a productos similares nacionales.
