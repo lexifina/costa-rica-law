@@ -1,0 +1,1 @@
+Art. 2. La plana mayor de cada Brigada se compone, del Comandante de la misma, un Sargento mayor, un Ayudante mayor, un Sub-Ayudante, un Subteniente abanderado, un Cirujano, un Conductor de Artillería, un Armero, un Tambor mayor, un Pífano 1°, un 2° y dos Cornetas.

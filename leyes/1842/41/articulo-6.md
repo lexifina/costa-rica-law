@@ -1,0 +1,1 @@
+Art. 6. La plana mayor de estas brigadas consta del Comandante, un Teniente Coronel, un Sargento mayor, dos Ayudantes mayores, dos Sub- Ayudantes, cuatro Alferez Porta- Estandartes, un Capellan, el Cirujano, dos Sargentos garzones, y cuatro Clarines.
