@@ -13,3 +13,4 @@ Reglamento Interno Compras Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-12-15 | la propia norma |
+| 2 | 1983-12-15 | SINALEVI (sin norma nombrada) |
