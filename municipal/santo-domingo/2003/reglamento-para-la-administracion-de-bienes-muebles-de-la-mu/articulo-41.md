@@ -1,0 +1,1 @@
+Artículo 41.—Cuando los bienes deben salir temporalmente de las instalaciones de la Municipalidad, Proveeduría coordinará la respectiva salida, para lo cual deberá llenar el formulario "Salida de Activo".

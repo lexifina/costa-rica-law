@@ -1,0 +1,1 @@
+Artículo 6º—La Sección de Proveeduría entregará los activos nuevos, mediante el formulario "Entrega de Activos", o "Traslado de Activos", al recibir un activo, previa verificación de que los bienes anotados están en las condiciones que se indica y que todas las casillas contengan la información correcta.

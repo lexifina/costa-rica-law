@@ -1,0 +1,1 @@
+Artículo 27.—El funcionario(a) debe velar porque los activos a él encomendados, mantengan la placa de identificación, en caso de pérdida de la misma deberá informar y solicitar su reposición a Proveeduría.

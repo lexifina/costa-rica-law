@@ -1,0 +1,1 @@
+Artículo 3º—Los bienes muebles de uso individual deben ser asignados a cada usuario(a) para su utilización personal. Los bienes de uso general, (tales como archivadores y otros similares), serán asignados al superior jerárquico de la unidad administrativa en que se encuentran localizados.

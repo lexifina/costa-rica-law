@@ -1,0 +1,1 @@
+Artículo 13.—Contabilidad es la encargada de realizar la clasificación y registro de los bienes según el departamento al que se le asigne y la clasificación existente, conforme con los principios de Contabilidad Generalmente Aceptados.

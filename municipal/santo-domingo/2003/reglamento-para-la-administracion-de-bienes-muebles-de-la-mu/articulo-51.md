@@ -1,0 +1,1 @@
+Artículo 51.—También se exceptúan de estas disposiciones los libros, folletos, diccionarios, manuales técnicos y demás documentos propiedad de la Municipalidad de Santo Domingo, que han sido adquiridos por las diferentes unidades administrativas para su uso, por estar a cargo del Área de Archivo Municipal.

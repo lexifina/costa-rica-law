@@ -1,0 +1,1 @@
+Artículo 32.—El control administrativo de los activos asignados a una dirección o unidad administrativa, corresponde a las jefaturas correspondientes. Deberá establecerlo según su criterio asumiendo toda responsabilidad al respecto.

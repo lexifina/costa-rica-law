@@ -1,0 +1,1 @@
+Artículo 48.—Para entregar activos en calidad de préstamo a otras instituciones, se deberá realizar mediante autorización formal de la alcaldía y confección de acta de entrega de los activos por parte de la Sección Jurídica de la Institución.

@@ -1,0 +1,1 @@
+Artículo 34.—Cuando un funcionario(a) traslade un activo a otro usuario(a) o a bodega por estar descompuesto o cuando ya no lo requiere, debe obtener la firma de quien lo recibe, para quedar relevado de su responsabilidad sobre el bien.

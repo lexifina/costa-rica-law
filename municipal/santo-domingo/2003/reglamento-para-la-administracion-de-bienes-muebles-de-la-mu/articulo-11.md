@@ -1,0 +1,1 @@
+Artículo 11.—Contabilidad en coordinación con Proveeduría, una vez al año en el mes de diciembre, efectuará, un inventario físico para verificar que los bienes asignados a cada departamento sean realmente los existentes y verificar que se encuentren en adecuadas condiciones de uso.

@@ -1,0 +1,1 @@
+Artículo 10.—Contabilidad es el área responsable de coordinar todas las actividades relacionadas con el control de activos y de mantener un registro auxiliar que concilie con la cuenta de control de los activos de la Municipalidad.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Otras disposiciones
+Artículo 44.—Los bienes que ingresen a las instalaciones de la Municipalidad, por contrato de alquiler o en calidad de préstamo, propiedad de empresas, organismos del Estado u otros organismos no gubernamentales que vayan a realizar algún trabajo, deben ser reportados inmediata y obligatoriamente a Proveeduría, con el propósito de registrar su permanencia y su posterior salida de la Institución. Para retirar esos bienes debe solicitarse a Proveeduría la autorización correspondiente. Es responsabilidad de la seguridad municipal vigilar la aplicación del presente artículo.
