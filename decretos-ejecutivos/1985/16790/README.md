@@ -13,3 +13,4 @@ Reglamenta Arts.25 y 26 Convenio Régimen Arancelario Aduanero Centroam(Ver Obse
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-12-27 | la propia norma |
+| 2 | 1985-12-27 | SINALEVI (sin norma nombrada) |
