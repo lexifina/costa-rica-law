@@ -1,2 +1,3 @@
-Artículo N° 24 Responsabilidad por interferencias
-El I.C.E. no asume responsabilidad por interferencias o intervenciones dolosas derivadas de las limitaciones tecnológicas propias del Sistema Advance Movil Phone System (AMPS) o cualquier otro sistema que llegue a utilizar, siempre y cuando sea demostrable que técnicamente los sistemas celulares por sí solos carecen de los medios de seguridad para evitar estos eventos.
+Artículo 24.-Averías en el aparato telefónico celular
+Serán responsabilidad del cliente las averías que se produzcan en sus aparatos telefónicos, las cuales deberán ser atendidas bajo su cuenta y riesgo.
+El ICE asumirá únicamente la responsabilidad de aquellas averías ocurridas en la red pública o en los equipos telefónicos de clientes, propiedad del ICE.

@@ -14,3 +14,4 @@ Reglamento para el Servicio Telefónico Celular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-05-12 | la propia norma |
+| 2 | 1996-07-13 | Resolución 66 (1996-07-13) |

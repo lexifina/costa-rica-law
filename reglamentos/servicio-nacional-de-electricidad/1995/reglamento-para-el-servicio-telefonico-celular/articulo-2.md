@@ -1,4 +1,4 @@
 CAPITULO SEGUNDO
-GENERALIDADES
-Artículo N° 2 Norma General
-El I.C.E. suministrará el Servicio de Telefonía Celular de acuerdo con las disposiciones del presente Reglamento, la RT., la RT.T. y la R.S.T.L, de tal forma que toda persona física o jurídica queda sujeta a éstos, por el hecho de disfrutar del servicio celular.
+Generalidades
+Artículo 2°-Marco legal
+El ICE suministrará el Servicio de Telefonía Celular de conformidad con esta reglamentación y a lo establecido en reglamentos conexos, tales como, la RT, RIT, RSS, RCP y RSTI. A dichas disposiciones queda sujeta toda persona física o jurídica que ostente la calidad de cliente, administrador del servicio o usuario.

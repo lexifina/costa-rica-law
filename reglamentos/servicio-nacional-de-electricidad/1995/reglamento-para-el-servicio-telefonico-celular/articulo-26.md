@@ -1,0 +1,2 @@
+Artículo 26.-Responsabilidad por interferencias
+El ICE no asume responsabilidad por interferencias o intervenciones dolosas derivadas de las limitaciones tecnológicas propias del Sistema Advance Movil Phone System (AMPS) o Time Division Multiplex Access (TDMA), o cualquier otro sistema que se lIegare a utilizar, siempre y cuando sea demostrable técnicamente, que los sistemas celulares carecen por sí solos de los medios de seguridad para evitar estos eventos.

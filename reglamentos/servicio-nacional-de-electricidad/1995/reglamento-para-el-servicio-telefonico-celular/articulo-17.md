@@ -1,2 +1,2 @@
-Artículo N° 17 Disconformidad con la Facturación
-Cualquier disconformidad con la facturación, se regirá de acuerdo con lo establecido en el artículo 13 de la R.T.T. para este tipo de situaciones.
+Artículo 17.-Disconformidad con la facturación
+Cualquier disconformidad entre el ICE y sus clientes por motivo de la facturación de los servicios telefónicos celulares, se regirá de conformidad con lo establecido en la RTT para este tipo de situaciones.

@@ -1,9 +1,19 @@
-CAPITULO SEXTO
-RESTRICCIONES
-Artículo N° 20 Limitaciones
-Ningún cliente, usuario o tercero que utilice el servicio celular I.C.E. podrá:
-a. Instalar equipos cuyo uso atente contra el nivel de calidad del sistema celular, o que produzca distorsiones en perjuicio del resto de los clientes.
-b. Subarrendar a terceros los servicios que mediante el contrato suscrito, le ha autorizado el LC.E. en forma nacional o internacional. Se exceptúan aquellos casos debidamente autorizados, para lo cual debe existir la suscripción de un contrato especial con copia al S.N.E. para el correspondiente registro y control.
-c. Conectar o accesar la red pública con equipos o aparatos que no hayan sido previamente revisados y aprobados por el I.C.E.
-De confirmarse la violación por parte del cliente a cualquiera de las restricciones aquí indicadas, o a cualquier otro artículo de este Reglamento, o bien variar las condiciones del contrato originalmente establecido, el I.C.E. podrá suspender de inmediato el servicio y, previa notificación al cliente y al SNE, declarar la resolución del contrato respectivo sin responsabilidad de ninguna naturaleza de su parte.
-El S.N.E. de oficio podrá ordenar, respetándose el debido proceso, la suspensión del servicio y la resolución del contrato, de aquellos clientes que incumplan con lo establecido en las normas aquí indicadas o cualquier otro artículo de este Reglamento. El S.N.E. vigilará la correcta aplicación de este inciso.
+Artículo 20.-Índices de calidad
+El ICE remitirá semestralmente al SNE, en los meses de enero y julio de cada año, el reporte de cada uno de los indicadores de calidad especificados en los incisos siguientes, de cada una de las centrales celulares del SNT.
+a) Disponibilidad anual de centrales celulares
+1. Las centrales celulares deberán cumplir con el 97% de disponibilidad durante cada año.
+El SNE de acuerdo con sus atribuciones de Organismo Regulador efectuará revisiones anuales al porcentaje mínimo establecido, a fin de ajustarlo o modificarlo según corresponda.
+2. El SNE conforme a sus atribuciones de Organismo Regulador, podrá efectuar evaluaciones periódicas de las centrales celulares que considere pertinentes.
+Si las encontrare defectuosas o que no se ajustan al parámetro minimo establecido, ordenará su reparación en el menor tiempo posible y fijará la adecuación de deudas entre el ICE y sus clientes.
+3. En aquellas centrales telefónicas en las que el nivel minimo de disponibilidad reportado por el ICE o evaluado por el SNE, sea inferior al minimo establecido en el aparte 1 del presente artículo y mientras se mantenga esta condición, el ICE en cada periodo cíclico de facturación posterior a la evaluación, incrementará los minutos correspondientes a la tarifa básica de los clientes servidos por esas centrales, en el porcentaje que resultare de la diferencia del porcentaje de disponibilidad de la central en cuestión y el porcentaje mínimo establecido en el presente artículo.
+b) Completación de llamadas de la red
+1. Deben ser completadas como mínimo el 65% de todas las comunicaciones originadas en una central celular respecto al SNT, durante la hora cargada media, así como durante las dos horas inmediatamente adyacentes, en cada período cíclico de facturación.
+2. Deben ser completadas como mínimo el 60% de todas las comunicaciones originadas desde cualquier central telefónica del SNT hacia los sistemas celulares del ICE durante la hora cargada media, así como las dos horas inmediatamente adyacentes, en cada período cíclico de facturación.
+3. El SNE de acuerdo con sus atribuciones de Organismo Regulador efectuará revisiones anuales al porcentaje mínimo establecido, a fin de ajustarlo o modificarlo según corresponda.
+El SNE conforme a sus atribuciones de Organismo Regulador, podrá efectuar evaluaciones periódicas de las centrales telefónicas que considere pertinentes.
+Si las encontrare defectuosas o que no se ajustan al parámetro mínimo establecido, ordenará su reparación en el menor tiempo posible y fijará la adecuación de deudas entre el ICE y sus clientes.
+4. En aquellas centrales telefónicas celulares en las que el nivel mínimo de completación de llamadas originadas reportado por el ICE o evaluado por el SNE, sea inferior al mínimo establecido en el aparte 1, del presente artículo y mientras se mantenga esta condición, el ICE en cada período cíclico de facturación posterior a la evaluación, incrementará los minutos correspondientes a la tarifa básica de los clientes servidos por esas centrales celulares, en el porcentaje que resulte de la diferencia entre el porcentaje de completación de llamadas de la central en cuestión y el porcentaje mínimo establecido en el presente artículo.
+c) Números de prueba
+El ICE deberá disponer en todas las centrales celulares en operación de un número de prueba, el cual se informará trimestralmente al SNE.
+d) Áreas de cobertura
+El ICE deberá remitir al SNE en los meses de enero y julio de cada año, el detalle geográfico de todas las áreas de cobertura del sistema celular.

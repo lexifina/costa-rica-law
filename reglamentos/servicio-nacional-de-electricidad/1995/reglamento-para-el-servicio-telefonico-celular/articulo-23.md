@@ -1,2 +1,4 @@
-Artículo N° 23 Publicación de números telefónicos celulares
-Los números de los servicios telefónicos celulares no serán publicados en la guía telefónica, salvo que sea solicitado expresamente por el cliente.
+Artículo 23.-Discrepancias y precios no previstos
+a) Las diferencias que se susciten entre el ICE y sus clientes por motivo de la aplicación de este reglamento serán sometidas al SNE, quien resolverá los casos en cumplimiento de sus atribuciones de Organismo Regulador.
+b) Cuando un servicio solicitado por el cliente no tenga una tarifa prevista en el pliego tarifario, el ICE procederá a elaborar un estudio especial para determinar la factibilidad técnica de brindarlo, así como el cálculo de la tarifa correspondiente, misma que deberá ser resuelta por el SNE, a solicitud del ICE.
+c) En aquellos casos en que el cliente solicite alguno de los servicios que este reglamento regula y quede el servicio en retiro sin cargos con facturación pendiente, el ICE podrá cargar a nómina el monto correspondiente, en el momento en que se restablezca el servicio.
