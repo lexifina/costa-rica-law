@@ -15,3 +15,4 @@ Reglamento de Ventas Estacionarias en Vías Públicas o Sitios deTránsito Inter
 | --- | --- | --- |
 | 1 | 1968-09-14 | la propia norma |
 | 2 | 1968-09-14 | SINALEVI (sin norma nombrada) |
+| 3 | 1969-02-24 | Decreto Ejecutivo 170 (1969-02-24) |
