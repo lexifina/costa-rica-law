@@ -1,0 +1,5 @@
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+Decreta:
+AUTORIZACIÓN A LA MUNICIPALIDAD DE SAN CARLOS PARA QUE TRASPASE UN INMUEBLE DE SU PROPIEDAD A LA JUNTA DE EDUCACIÓN DE LA ESCUELA SAN RAFAEL DE CIUDAD QUESADA
+Artículo 1º—Autorízase a la Municipalidad de San Carlos, para que traspase a título gratuito a favor de la Junta de Educación de la Escuela San Rafael de Ciudad Quesada, cédula jurídica número tres-cero cero ocho-ciento ochenta y cinco mil cuatrocientos setenta y siete, el inmueble de su propiedad, inscrito en el Registro Público de la Propiedad Inmueble, partido de Alajuela, bajo el Sistema de Folio Real, matrícula número trescientos sesenta mil treinta y cinco-cero cero cero. Registralmente, el terreno indicado se describe así: es terreno para construir, está situado en el distrito 1º, cantón X, mide: cinco mil metros cuadrados, linda: al norte; el sur; y el oeste con La Tesalia S. A., y al este con calle pública, posee un frente de cincuenta metros lineales, conforme al plano catastrado Nº A-quinientos treinta y dos mil ciento treinta y ocho-mil novecientos noventa y ocho.
