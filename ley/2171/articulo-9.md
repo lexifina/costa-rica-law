@@ -1,2 +1,2 @@
-Artículo 9º.- Los miembros del Patronato que sean representantes de los Ministerios, desempeñarán este cargo como parte de sus funciones públicas; para tal efecto, dichos Ministerios deberán otorgarles en cada oportunidad permiso hasta por dos horas. Los miembros desempeñarán el cargo gratuitamente, excepto el médico, a quien el Patronato le fijará dietas, sin embargo, éste podrá renunciarlas.
-(Así reformado por el artículo 1° de la ley N° 3295 del 3 de junio de 1964)
+Artículo 9.- Los miembros que integren la Junta Directiva del Patronato, tendrán derecho al permiso respectivo para realizar su labor, por parte de las instituciones y organizaciones que representen. El cargo será desempeñado gratuitamente por los miembros electos.
+(Así reformado por el artículo 1° de la ley N° 7286 del 4 de febrero de 1992)

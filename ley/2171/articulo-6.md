@@ -1,3 +1,10 @@
 Del Patronato
-Artículo 6º.- El Patronato estará integrado por un representante de cada uno de los Ministros de Trabajo y bienestar Social, Educación Pública y Salubridad Pública; un profesor tiflólogo como representante de la Sección de Ciegos de la Escuela de Enseñanza Especial; un profesor ciego en ejercicio; un representante de la Escuela de Servicio Social de la Universidad de Costa Rica; y un médico oftalmólogo nombrado por el Colegio de Médicos y Cirujanos de Costa Rica.
-(Así reformado por el artículo 1° de la ley N° 3295 del 3 de junio de 1964)
+Artículo 6.- La Junta Directiva del Patronato Nacional de Ciegos estará integrada por:
+1.- Un representante del Ministerio de Educación Pública que se desempeñe en el campo de la educación especial.
+2.- Un representante de la Caja Costarricense de Seguro Social.
+3.- Un representante del Ministerio de Trabajo.
+4.- Un representante del Ministerio de Salud.
+5.- Un oftalmólogo representante del Colegio de Médicos y Cirujanos.
+6.- Dos representantes designados por las organizaciones de ciegos legalmente constituidas en nuestro país.
+Para esos efectos, gozarán de permiso con goce de salario de su respectivo patrono. Los representantes de las entidades públicas y del Colegio de Médicos serán designados por su máximo jerarca.
+(Así reformado por el artículo 1° de la ley N° 7286 del 4 de febrero de 1992)
