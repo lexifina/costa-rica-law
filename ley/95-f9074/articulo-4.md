@@ -1,0 +1,1 @@
+Art 4°.- Los que se encontrasen pidiéndola limosna sin impedimento alguno serán destinados a obras públicas hasta que afiansen competentemente no volveria a pedir y dedicarse al trabajo y aun los impedidos que tuviesen asendientes, desendientes o consorte sanos no pueden mendigar sino que es a cargo del mas inmediato de aquellos su sostención.

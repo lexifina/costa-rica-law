@@ -1,0 +1,1 @@
+Art 3°.- Los que en la calificación resultaren con actitud de exercer algun oficio la autoridad política sino diesen fianza los destinará al servicio de alguna persona donde al paso que adquieran su subsistencia no sean honerosos al Público sin causa legítima.
