@@ -1,0 +1,1 @@
+Artículo 2°—Para la adquisición de bienes y Servicios el Alcalde Municipal de Guácimo podrá girar contra las cuentas corrientes de la Municipalidad, hasta por la suma del 0.5 % (cero punto cinco por ciento) del monto del presupuesto ordinario correspondiente para el periodo vigente, al momento de efectuarse el egreso respectivo.
