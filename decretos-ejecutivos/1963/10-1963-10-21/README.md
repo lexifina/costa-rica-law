@@ -14,3 +14,4 @@ Reserva Natural Absoluta Cabo Blanco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1963-10-26 | la propia norma |
+| 2 | 1982-05-13 | Decreto Ejecutivo 13632 (1982-05-13) |
