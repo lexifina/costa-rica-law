@@ -1,0 +1,1 @@
+2.—El punto céntrico de la Bahía de Salinas, ha de fijarse, trazando una línea recta, que cierre la boca de la Bahía y determinando matemáticamente el centro de la figura geométrica que resulte circunscrita por dicha línea recta y la orilla de la Bahía en la baja marea.

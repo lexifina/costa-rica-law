@@ -1,0 +1,1 @@
+4.—La República de Costa Rica no está obligada á concurrir con la República de Nicaragua a los gastos necesarios para impedir que se obstruya la Bahía de San Juan del Norte, ó para mantener libre y desembarazada la navegación del río o del puerto, o mejorarla en beneficio común.
