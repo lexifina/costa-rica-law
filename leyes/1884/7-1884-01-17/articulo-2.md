@@ -1,0 +1,1 @@
+Art. 2°-Nómbrase Secretario de Estado en los Despachos de Relaciones Exteriores, Instrucción Pública, Culto, Beneficencia, Gracia y Justicia, al Honorable Señor Dr. Don José María Castro; é igualmente nombrase Secretario de Estado en los Despachos de lo Interior, Policía, Hacienda, Comercio, Fomento, Guerra y Marina, al Honorable Señor Licenciado Don Bernardo Soto.
