@@ -13,3 +13,4 @@ Modifica el Reglamento del Estatuto del Servicio Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-17 | la propia norma |
+| 2 | 1996-05-17 | Decreto Ejecutivo 25247 (1996-06-18) |
