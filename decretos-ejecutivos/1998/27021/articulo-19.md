@@ -1,0 +1,1 @@
+Artículo 19.—Se prohibe toda propaganda que atribuya propiedades terapéuticas al azúcar fortificada; así como a la que presente ese producto como la única fuente de vitamina A. Los productos que se elaboren con azúcar fortificada no podrán indicarla como cualidad de su producto. Los que incumplieren o violaren esta disposición quedarán sujetos a las sanciones previstas en la ley.

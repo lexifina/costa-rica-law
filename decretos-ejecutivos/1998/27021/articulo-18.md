@@ -1,0 +1,1 @@
+Artículo 18.—El etiquetado se ajustará a lo estipulado en la Norma General de Etiquetado de los Alimentos Preenvasados, deberá especificar que se trata de un producto fortificado con la frase "AZÚCAR FORTIFICADA CON VITAMINA A" y declarar un mínimo de 5 miligramos de vitamina A por kilogramo de azúcar, Jon la nota "Garantizado hasta -indicar la fecha.

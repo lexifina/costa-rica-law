@@ -1,0 +1,1 @@
+Artículo 13.—La inspección y el monitoreo de la calidad del azúcar fortificada en fábricas, sitios de fraccionamiento, expendios y otros es responsabilidad del Ministerio de Salud ya sea en forma directa o por delegación de funciones. Para lo anterior diseñará un sistema de control de calidad.

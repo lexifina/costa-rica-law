@@ -1,0 +1,1 @@
+Artículo 17.—Los envases y empaquen utilizados para la venta del azúcar enriquecida deben ser nuevos estar libres de sustancias nocivas y que impidan la contaminación con otros productos, sólidos o líquidos.

@@ -1,0 +1,1 @@
+Artículo 15.—El Ministerio de Salud establecerá los criterios técnicos de los procedimientos y técnicas de laboratorio, para el análisis cuantitativo y semicuantitativo de las muestras de azúcar fortificada.

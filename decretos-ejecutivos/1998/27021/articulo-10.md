@@ -1,0 +1,1 @@
+Artículo 10.—Para autorizar el registro y desalmacenaje del azúcar importada, el importador deberá demostrar en el certificado de conformidad del país de origen, la conformidad de la fortificación de acuerdo al presente reglamento, para cada partida de importación.

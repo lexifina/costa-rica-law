@@ -1,0 +1,1 @@
+Artículo 6°—Para la importación de la mezcla fortificante, el Ministerio de Salud otorgará el registro sanitario, exigirá el certificado de conformidad y de libre venta y consumo, del país de origen del producto y realizará los análisis cuando lo considere necesario.

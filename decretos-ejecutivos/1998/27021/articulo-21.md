@@ -1,0 +1,1 @@
+Artículo 21.—En caso de incumplimiento de las especificaciones que se señalan en este reglamento, se practicará una inspección en los centros de producción, distribución o importación. Si se confirma el incumplimiento, se procederá a sancionar de acuerdo con la legislación vigente.

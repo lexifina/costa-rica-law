@@ -1,0 +1,1 @@
+Artículo 16.—Para el fraccionamiento y venta del azúcar fortificada, los establecimientos deben seguir las normas higiénico sanitarias mínimas estipuladas en la Ley General de Salud y otras disposiciones legales o técnicas establecidas por los organismos competentes.

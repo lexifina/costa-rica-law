@@ -1,0 +1,1 @@
+Transitorio 2°—Seis meses después de iniciada la fortificación del azúcar, el Ministerio de Salud y la Liga Agrícola Industrial de la Caña de Azúcar, realizarán un estudio para determinar la estabilidad de la vitamina A y con base a los resultados ajusfar el nivel de fortificación si fuere necesario.

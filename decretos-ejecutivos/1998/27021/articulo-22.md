@@ -1,0 +1,1 @@
+Artículo 22.—El Ministerio de Salud podrá modificar la composición de la mezcla y los niveles de fortificación, acorde con el perfil epidemiológico de la hipovitaminosis A en el país y con los avances de los conocimientos científicos y tecnológicos sobre el tema.

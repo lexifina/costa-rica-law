@@ -1,0 +1,1 @@
+Artículo 11.—En caso de establecerse que un lote de azúcar producida en el país o importada no esté debidamente fortificada, se procederá al decomiso de la cantidad total, siguiendo los procedimientos establecidos por la autoridad competente.
