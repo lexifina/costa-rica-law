@@ -125,4 +125,5 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gasto presupuestario y efectivo del Teatro Melico Salazar, por el artículo 1 del Decreto Ejecutivo N° 30076 de 12 de diciembre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo de RECOPE, por el artículo 1 del Decreto Ejecutivo N° 30084 de 18 de diciembre del 2001)
 (Modificado el límite de gasto presupuestario y efectivo del Consejo Técnico de Asistencia Médico Social para el año 2002 , por el artículo 1 del Decreto Ejecutivo N° 30109 de 14 de enero 2002)
-(Modificado el límite de gasto presupuestario y efectivo del , por el artículo 1 del Decreto Ejecutivo N° 30133 de 14 de enero 2002)
+(Modificado el límite de gastos para el año 2002 de la Junta de Protección Social de San José , por el artículo 1 del Decreto Ejecutivo N° 30133 de 14 de enero 2002)
+(Modificado el límite de gastos para el año 2002 del Instituto Costarricense de Investigación y Enseñanza en Nutrición y Salud, por el artículo 1 del Decreto Ejecutivo N° 30162 de 24 de enero 2002)
