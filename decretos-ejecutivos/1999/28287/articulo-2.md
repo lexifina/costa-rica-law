@@ -1,0 +1,1 @@
+Artículo 2°-El precio de venta estimado al consumidor final se establecerá adicionando al precio de venta del distribuidor o mayorista, un margen de valor agregado de treinta por ciento (30%), como utilidad estimada para la etapa del detallista.
