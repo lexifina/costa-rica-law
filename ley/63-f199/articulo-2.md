@@ -1,0 +1,1 @@
+Art. 2°-La expresada Municipalidad afectará pago de dicho empréstito la renta que produce la misma cañería, debiendo pagar cada año los intereses y amortizar $ 1,000 de la deuda. En caso que la renta tenga mayor rendimiento, la dedicará también á la amortización del crédito.
