@@ -1,0 +1,2 @@
+Artículo 12.—Competencia del Consejo Técnico de Aviación Civil y de la Dirección General de Aviación Civil. Compete al Consejo
+Técnico de Aviación Civil el otorgamiento, prórroga, suspensión, caducidad, renovación, modificación o cancelación del Certificado de Explotación o del permiso de operación privado y a la Dirección General de Aviación Civil lo concerniente al Certificado Operativo respectivo.

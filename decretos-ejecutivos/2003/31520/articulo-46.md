@@ -1,0 +1,1 @@
+Artículo 46.—Obligatoriedad de equipamiento con guarniciones de hombro. Cada avión operado debe estar equipado con guarniciones de hombro (arnés de hombro) conveniente y apropiadamente instalados para el uso de cada piloto y debe ser de un tipo aprobado.
