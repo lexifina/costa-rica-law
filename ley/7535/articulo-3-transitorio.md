@@ -1,0 +1,5 @@
+TRANSITORIO III.- Los incrementos injustificados de patrimonio e ingresos, que se presenten en la primera declaración del impuesto sobre la renta posterior a la vigencia de los artículos 1 a 11 (*) de esta Ley, no requerirán justificación de origen ni servirán como base para aplicar sanciones administrativas o penales.
+(*) (Así reformado por el Auto de Corrección Material de las 14:00 hrs. del 10 de agosto de 1995, publicado junto con el texto de la presente ley)
+A las obligaciones tributarias cuyos hechos generadores se inicien antes de la vigencia de la presente Ley, no se les podrán aplicar sus disposiciones.
+En los tributos cuyo pago esté sujeto a la presentación de una declaración jurada, esta Ley se aplicará en relación con los hechos generadores que se produzcan a partir del período fiscal posterior a la vigencia.
+A partir de la vigencia de la presente Ley, los contribuyentes de impuestos administrados por el Ministerio de Hacienda, contarán con un período de tres meses para cancelar sus obligaciones tributarias contraídas con anterioridad a la vigencia de esta Ley, pendientes de pago, con exoneración total de recargos, sanciones e intereses.

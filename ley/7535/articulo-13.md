@@ -1,0 +1,17 @@
+ARTICULO 13.- Se modifica el artículo 13 de la Ley del impuesto sobre la renta, No. 7092, del 21 de abril de 1988, y sus reformas, cuyo texto dirá:
+"Artículo 13.- Otras rentas presuntivas
+Para los contribuyentes que sean personas físicas, independientemente de la nacionalidad y el lugar de celebración de los contratos, así como para las empresas individuales de responsabilidad limitada y las empresas individuales que actúen en el país, se presumirá que, salvo prueba directa o indirecta en contrario, obtienen una renta mínima anual por los conceptos siguientes:
+a) Prestación de servicios en forma liberal: todo profesional o técnico que preste servicios sin que medie relación de dependencia con sus clientes, que no presente declaración sobre la renta cuando corresponda y, por ende, no cancele el impuesto correspondiente o no emita los recibos o comprobantes debidamente autorizados por la Administración Tributaria, como lo establece esta Ley, o que incurra en alguna de las causales establecidas en los incisos 1) y 2), del presente artículo, se presumirá que obtiene una renta neta mínima anual de acuerdo con la clasificación siguiente:
+i) Médicos, odontólogos, arquitectos, ingenieros, abogados y notarios, agrimensores, contadores públicos, profesionales de las ciencias económicas, y corredores de bienes raíces, el monto equivalente a trescientos treinta y cinco (335) salarios base.
+ii) Peritos, contadores privados, técnicos y, en general, todos los profesionales y técnicos, colegiados o no, que no se contemplan en el numeral anterior, el monto equivalente a doscientos cincuenta (250) salarios base.
+En ningún caso, esas rentas de presunción mínima se podrán prorratear entre el tiempo que el profesional o el técnico dedique a prestar otros servicios, sean estos en relación de dependencia, o bien, por el desarrollo de otras actividades sujetas a este impuesto.
+b) Para explotar el transporte terrestre remunerado de personas y carga, si no se presentan declaraciones o si se ha incurrido en alguna de las causales establecidas en los incisos 1) y 2) de este artículo, la renta neta mínima anual presuntiva será el monto equivalente a:
+Vehículos de carga con un peso bruto vehicular igual o mayor a cuatro mil (4.000) kilos... ciento diecisiete (117) salarios por cada vehículo.
+Autobuses..........ciento diecisiete (117) salarios base
+Microbuses.........ochenta y cuatro (84) salarios base
+Taxis..............ochenta y cuatro (84) salarios base
+Para calcular el impuesto no se permitirá fraccionar esa renta. El cálculo debe efectuarse antes de repartir dividendos o cualquier otra clase de utilidades entre socios, accionistas o beneficiarios y antes de separar las reservas legales o las especiales. Las presunciones establecidas en este artículo se aplicarán si ocurre alguna de las siguientes causales:
+1.- Que no presenten la declaración de la renta.
+2.- Que no lleven las operaciones debidamente registradas en los libros legales y amparadas por comprobantes fehacientes y timbrados, cuando corresponda.
+Las presunciones establecidas en este artículo no limitan las facultades de la Administración Tributaria para establecer las rentas netas que realmente correspondan, por aplicar las disposiciones de esta Ley y del Código de Normas y Procedimientos Tributarios.
+La denominación "salario base" utilizada en este artículo, debe entenderse como la contenida en el artículo 2 de la Ley No. 7337."
