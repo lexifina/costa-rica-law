@@ -1,0 +1,1 @@
+Artículo 13.—Los informes citados en el artículo anterior deberán ser remitidos en nota firmada por el funcionario administrativo de mayor rango y se aportará también el acuerdo del Comité Cantonal en el que conste que conocieron y aprobaron los documentos mencionados.

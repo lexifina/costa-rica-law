@@ -1,0 +1,1 @@
+Artículo 11.—El ICODER bajo ninguna circunstancia podrá autorizar un nuevo aporte al CCDR que tenga pendiente de liquidar un aporte anterior o no que no haya presentado las justificaciones debidas que el ICODER aceptará según su criterio.

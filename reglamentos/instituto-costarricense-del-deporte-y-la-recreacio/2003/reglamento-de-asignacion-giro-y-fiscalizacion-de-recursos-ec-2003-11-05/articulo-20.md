@@ -1,0 +1,1 @@
+Artículo 20.—El Área que financia el aporte con el Área Administrativa-Financiera verificará que los C.C.D.R., agreguen al principal y con el mismo destino, los intereses que genere la inversión de los fondos transferidos por el ICODER.

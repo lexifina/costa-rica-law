@@ -1,0 +1,1 @@
+Artículo 16.—El Área mediante la cual se incluyeron los aportes a los C.C.D.R., deberá suspender o revocar las transferencias, cuando compruebe que los CCDR se han apartado de los fines previstos, así como aplicar las sanciones previstas en el marco jurídico.

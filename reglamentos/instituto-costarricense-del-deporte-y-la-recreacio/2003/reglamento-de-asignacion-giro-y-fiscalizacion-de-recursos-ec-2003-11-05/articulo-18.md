@@ -1,0 +1,1 @@
+Artículo 18.—La Auditoría Interna se cerciorará que el C.C.D.R., administre los beneficios otorgados por el ICODER en una cuenta corriente separada, en un banco estatal y que lleve registros de su empleo independientemente de los que correspondan a otros fondos de su propiedad.

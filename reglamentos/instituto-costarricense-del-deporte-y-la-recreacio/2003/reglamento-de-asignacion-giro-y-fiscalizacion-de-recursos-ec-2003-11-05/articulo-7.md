@@ -1,0 +1,1 @@
+Artículo 7º—Los C.C.D.R., prepararán los presupuestos con apego a los principios presupuestarios indicados en el artículo 5 de la Ley de Administración Financiera y Presupuestos Públicos, Nº 8131 del 18 de setiembre de 2001 y cumplirán además con las circulares que en ese sentido emite la Contraloría General de la República.

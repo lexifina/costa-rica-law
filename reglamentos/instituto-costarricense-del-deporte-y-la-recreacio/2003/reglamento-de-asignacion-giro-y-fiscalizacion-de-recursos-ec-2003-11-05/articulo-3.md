@@ -1,0 +1,1 @@
+Artículos 3º—Sujetos beneficiarios. Podrán recibir aportes del ICODER todos aquellos C.C.D.R., que tengan planes de trabajo que el ICODER considere útiles para el cumplimiento de sus fines, así como aquellas que por ley obtengan ese beneficio.

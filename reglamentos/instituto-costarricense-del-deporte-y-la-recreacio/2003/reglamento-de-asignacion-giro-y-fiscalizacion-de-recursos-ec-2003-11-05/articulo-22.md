@@ -1,0 +1,1 @@
+Artículo 22.—El resultado del estudio indicado en el artículo anterior se emitirá sin perjuicio de otros medios de control señalados por otras leyes y reglamentos y sin perjuicio de la fiscalización que realice posteriormente la Auditoría Interna del ICODER.

@@ -1,0 +1,2 @@
+Artículo 23.—El beneficiario del aporte queda obligado a devolver al ICODER, dentro de los treinta días naturales siguientes a la fecha de la notificación del resultado de la revisión aquellas sumas no justificadas o cuya justificación no haya sido aceptada.
+El presente reglamento rige a partir de su publicación. Dado en el Salón de Sesiones del Consejo Nacional del Deporte y la Recreación, a los cinco días del mes de noviembre del año dos mil tres.

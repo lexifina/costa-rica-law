@@ -1,0 +1,8 @@
+CAPÍTULO 2
+Del giro de los fondos de beneficios patrimoniales incluidos como transferencias en el presupuesto del ICODER
+Artículo 6º—Requisitos y competencia. Corresponderá al Área que tenga consignadas las asignaciones presupuestarias para los C.C.D.R., requerir de éstos, de previo a solicitar al Área Administrativa y Financiera el giro de los fondos respectivos:
+Inciso A) Carta suscrita por el representante legal del CCDR con los datos del monto, finalidad y código presupuestario de la partida, tal y como aparece en el presupuesto del ICODER. En este documento se deberá aclarar:
+i. Que los fondos se administrarán en una cuenta corriente separada, para lo cual deberán indicar el banco estatal, cuenta corriente y cuenta cliente, asimismo deberán indicar que se llevarán registros de su empleo, independientes de los que correspondan a otros fondos de su propiedad o administración, dato que deberán informar al Área respectiva.
+ii. El compromiso incondicional de presentar ante el Área correspondiente, un informe anual sobre el uso de los fondos y de mantener a su disposición y de la Auditoría Interna y de la Contraloría General de la República, sin restricción alguna, toda la información y documentación relacionada con el manejo de los recursos y libre acceso para la verificación de la ejecución financiera y física del programa y proyecto.
+iii. Que los gastos que se consignan en el presupuesto no han sido ejecutados ni existen sobre ellos compromisos legales de ninguna naturaleza.
+Inciso B) En relación con los C.C.D.R., se exigirá además la presentación del respectivo presupuesto aprobado por el Concejo de la respectiva municipalidad.

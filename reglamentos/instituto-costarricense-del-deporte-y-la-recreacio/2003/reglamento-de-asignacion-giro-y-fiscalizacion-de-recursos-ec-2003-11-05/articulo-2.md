@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente reglamento tiene por objeto regular el otorgamiento por el ICODER de beneficios patrimoniales gratuitos o sin contraprestación alguna a los Comités Cantonales de Deporte y Recreación, previa conformación de un expediente y con independencia del monto que se trate.
