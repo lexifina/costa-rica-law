@@ -1,1 +1,2 @@
-Artículo 11.—Las consultas a que se refiere el presente Tratado, se realizarán por medio de la Reunión de Ministros de Relaciones Externo de las Repúblicas Americanas que lo hayan ratificado, o en la forma o el órgano que en lo futuro se acordare.
+Artículo 11.— Las Altas Partes Contratantes reconocen que para el mantenimiento de la paz y la seguridad en el Continente debe garantizarse, asimismo la seguridad económica colectiva para el desarrollo de los Estados Miembros de la Organización de los Estados Americanos, mediante mecanismos adecuados que serán establecidos en un Tratado Especial.
+(Así adicionado mediante el artículo 2° de la ley N° 5885 del 3 de febrero de 1976).

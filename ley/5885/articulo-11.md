@@ -1,0 +1,2 @@
+ARTICULO DECIMOPRIMERO
+Al entrar en vigor el Protocolo de Reformas, la Secretaría General de la Organización de los Estados Americanos elaborará un texto integrado del Tratado Interamericano de Asistencia Recíproca que comprenderá las partes no enmendadas de dicho Tratado y las reformas introducidas por el presente Protocolo. Ese texto se publicará previa aprobación del Consejo Permanente de dicha Organización.

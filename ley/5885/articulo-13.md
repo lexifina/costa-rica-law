@@ -1,0 +1,23 @@
+ARTICULO DECIMOTERCERO
+Los Estados Partes del Tratado Interamericano de Asistencia Recíproca que no hayan ratificado el Protocolo de Reformas a la fecha en que éste entre en vigencia. podrán solicitar la convocación del Órgano de Consulta, así como participar plenamente en todas las reuniones que dicho Órgano pudiere efectuar si asumen, en cada caso el compromiso formal de aceptar las decisiones del Órgano de Consulta, adoptadas de conformidad con el Tratado Interamericano de Asistencia Recíproca enmendado por el Protocolo de Reformas.
+DECLARACIONES Y RESERVAS:
+Declaración de Bolivia
+La República de Bolivia suscribe el presente Protocolo de Reformas al Tratado Interamericano de Asistencia Recíproca sin ninguna reserva en la convicción de que dicho Protocolo actualiza v mejora las estipulaciones del instrumento original en función del cambio de las circunstancias.
+Reserva del Perú
+Al suscribir el Protocolo de Reformas al Tratado Interamericano de Asistencia Recíproca el Perú hace reserva expresa del numeral tres del articulo tercero.
+Reserva del Paraguay
+La Delegación del Paraguay, al suscribir ad-referéndum el presente Protocolo de Reformas, formula expresa reserva respecto del artículo 20 del Protocolo, porque considera improcedente consagrar distintos criterios para aplicar medidas v para levantarlas, ya que a ello equivale la adopción de distintas mayorías para uno v otro caso. La Delegación del Paraguay considera, por consiguiente, que así como las decisiones o recomendaciones del Órgano de Consulta deben ser adoptadas por el voto de los dos tercios de los Estados Partes, así también debe requerirse el voto de los dos tercios de dichos Estados para dejarlos sin efecto
+Reserva de Guatemala
+Al firmar el presente Protocolo Guatemala reitera la reserva que hizo al ratificar el Tratado Interamericano de Asistencia Recíproca, que dice: "El presente Tratado no constituye impedimento alguno para que Guatemala pueda hacer valer sus derechos sobre el territorio guatemalteco de Belice. por los medios que estime más convenientes. Tratado que, en cualquier tiempo, podrá ser invocado por la Re- pública con respecto al mencionado territorio".
+Declaración de Panamá
+La firma de este Protocolo de Reformas al Tratado Interamericano de Asistencia Recíproca se hace a reserva de que la aceptación del nuevo texto sólo podrá ser hecha de conformidad con las disposiciones constitucionales panameñas concernientes a la ratificación de Tratados, y entre tanto Panamá no aceptará ninguna cláusula nueva que pueda contravenir los mandatos de la Constitución Política de la República de Panamá o los intereses nacionales.
+Declaración de México
+1) La Delegación de México reitera su convicción de que al trazarse la zona de seguridad descrita en el artículo 4° debió haberse eliminado, hasta donde ello era posible, la superposición de regiones protegidas por otros instrumentos internacionales que han contado con la aprobación expresa o tácita de la Organización de las Naciones Unidas.
+2) La Delegación de México continúa considerando que, salvo el caso de la legítima defensa, las medidas colectivas a que se refiere el artículo 8° no podrán ser aplicadas en forma obligatoria, dado su carácter coercitivo, sin la autorización del Consejo de. Seguridad de las Naciones Unidas.
+Reserva de los Estados Unidos
+Los Estados Unidos, al firmar este Protocolo de enmiendas al Tratado Interamericano de Asistencia Recíproca, no aceptan la obligación o el compromiso de negociar, firmar o ratificar ningún Tratado o Convención en materia de seguridad económica colectiva.
+Declaración y Reserva de El Salvador
+La Delegación de El Salvador manifiesta su firme convicción de que ninguna disposición del presente Protocolo menoscaba el principio de la solidaridad continental frente a la agresión, cualquiera que sea el origen de ésta y sin perjuicio de otras reservas que el Gobierno de la República formule en su oportunidad, suscribe el presente Protocolo con la reserva de que sus artículos no contienen el compromiso de las Partes utilizar métodos o procedimientos compulsorios de solución de conflictos, que El Salvador no puede aceptar.
+En fe de lo cual los Plenipotenciarios infrascritos cuyos plenos poderes fueron hallados en buena y debida forma, firman el presente Protocolo, que se llamará "Protocolo de Reformas al Tratado Interamericano de Asistencia Recíproca (TIAR)" en la ciudad de San José. República de Costa Rica, el veintiséis de julio de mil novecientos setenta y cinco.
+Artículo 2°—Rige a partir de su publicación.
+Casa Presidencial.—San José, a los tres días del mes de febrero de mil novecientos setenta y seis.
