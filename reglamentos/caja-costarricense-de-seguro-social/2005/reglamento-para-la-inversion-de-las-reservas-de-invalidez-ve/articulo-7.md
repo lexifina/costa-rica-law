@@ -1,0 +1,3 @@
+Artículo 7º—Corresponderá al secretario del Comité de Inversiones:
+a) Apoyar técnicamente al Comité de Inversiones, a cuyo efecto estará a cargo de la elaboración de la propuesta de agenda, la que se constituirá con al menos una semana de antelación.
+b) Incluir en la agenda respectiva, con al menos una semana de antelación al vencimiento de cualquier obligación, las inversiones con las observaciones que sean necesarias. La comunicación de la propuesta de agenda y de los vencimientos que deba conocer el Comité, así como cualquier observación u otro asunto que deba ser sometido por la Dirección de Inversiones al Comité de Inversiones, se hará siempre por escrito.

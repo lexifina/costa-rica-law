@@ -1,0 +1,7 @@
+Artículo 10.—Corresponderá a la Dirección de Inversiones:
+a) Elaborar y proponer a la Gerencia de la División de Pensiones y al Comité de Inversiones la política y estrategia anual de inversiones, en concordancia con el artículo 4º de este Reglamento, que contemple una adecuada diversificación por plazos, emisores e instrumentos financieros.
+b) Presentar al Comité de Inversiones las opciones viables de inversión con su respectivo criterio técnico, así como otros estudios específicos para facilitar la toma de decisiones.
+c) Atender y evacuar consultas, a solicitud de la Gerencia de la División de Pensiones y del Comité de Inversiones.
+d) Elaborar un informe trimestral sobre el estado de la cartera de inversiones, para que sea presentado al Comité de Inversiones y al Comité de Vigilancia del Seguro de Invalidez, Vejez y Muerte, y -a través de la Gerencia de la División de Pensiones- a la Junta Directiva. Este informe deberá contener, al menos, una evaluación de la gestión de las inversiones, y el cumplimiento de las políticas y directrices aprobadas por la Junta Directiva. Así mismo deberá incluir un panorama del mercado financiero costarricense.
+e) Presentar a la Gerencia de la División de Pensiones y al Comité de Inversiones un informe mensual sobre la situación de la cartera de inversiones.
+La Dirección de Inversiones colocará los recursos de conformidad con las instrucciones escritas que al efecto emane la Gerencia de la División de Pensiones.
