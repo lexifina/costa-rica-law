@@ -1,0 +1,1 @@
+Artículo 5º—La documentación señalada en los artículo 3 y 4 de este Reglamento deberá presentarse en original y copia ante la Secretaría del Concejo Municipal, no se recibirán solicitudes incompletas o carentes de los requisitos apuntados.

@@ -1,0 +1,1 @@
+Artículo 7º—Las solicitudes serán resueltas durante el mes siguiente a la presentación de conformidad con el artículo 331 de la Ley General de la Administración Pública y el acto que resuelve la solicitud, tendrá el recurso administrativo de revocatoria.
