@@ -1,11 +1,12 @@
 REGLAMENTO INTERNO DE GASTOS DE VIAJE DEL INSTITUTO COSTARRICENSE DE TURISMO
+(Nota de Sinalevi: La Junta Directiva del Instituto Costarricense de Turismo, en sesión ordinaria Nº 5588, artículo 2º, inciso VI, celebrada el día 23 de junio del 2009, publicó en La Gaceta N° 137 del 16 de julio de 2009, el Reglamento Interno de Gastos de Gira o Viaje y de Transporte para los Funcionarios del Instituto Costarricense de Turismo)
 Además de lo regulado en la materia por el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República, los funcionarios del Instituto Costarricense de Turismo estarán sujetos a las siguientes disposiciones:
 NOTA: Este Reglamento fue reformado parcialmente y reproducido su texto en forma íntegra, y publicado en La Gaceta N° 47 del 7 de marzo del 2001, por lo que se reproduce a continuación:
 CAPITULO I
 Aspectos Generales
 Artículo 1°—Presentación de los comprobantes de pago. Todos los comprobantes de pago deben cumplir con las siguientes condiciones:
-a- Ser originales y sin borrones ni tachaduras que puedan presumir alteración.
-(Así reformado el inciso anterior mediante sesión N° 5095 del 2 de abril del 2001).
+a-Ser originales, emitidos a nombre del ICT y sin borrones ni tachaduras que puedan presumir alteración.
+(Así reformado el inciso anterior mediante sesión N° 5140 del 1 de octubre del 2001).
 b- Estar debidamente timbrados, si así lo dispone el Reglamento del Impuesto sobre la Renta.
 c- Mostrar toda la información requerida tal como la fecha, dirección del vendedor y detalle o descripción del servicio brindado.
 d- No se aceptará el "voutcher” como comprobante de pago; cuando se realicen cancelaciones con tarjetas de crédito, se debe incorporar la factura correspondiente.
