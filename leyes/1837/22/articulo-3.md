@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-El Presidente de la Corte en su defecto el Fiscal recibir juramento a los que designe la suerte, bajo esta forma. ¨Juráis por Dios y sus Santos Evangelios desempeñar fielmente el cargo que se os ha conferido, con arreglo la Constitución y Leyes secundarias Responderán: si juro. Reproduciéndoseles: si así lo hicieres Dios os lo premie; y si no os lo demande.

@@ -1,0 +1,1 @@
+ARTÍCULO 7°.-Si al tiempo de citar los Jurados estuviese alguno de Magistrado propietario suplente en la Corte de Justicia, por muerte ausencia estuviese incompleto el número, la Corte complementar la lista con arreglo al art. 6° dando cuenta la Asamblea en sesiones ordinarias para que disponga lo conveniente.

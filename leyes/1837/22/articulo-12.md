@@ -1,0 +1,1 @@
+ARTÍCULO 12.-Ser n obligaciones del Secretario extender y autorizar los acuerdos y comunicaciones que se deriven del Jurado, y conservar los expedientes con la seguridad necesaria, practicando lo más que disponga dicho Jurado.

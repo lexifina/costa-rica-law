@@ -1,0 +1,1 @@
+ARTÍCULO 10.-Los que infringieren el art. Anterior incurrir n de la pena de una multa desde veinticinco hasta trescientos pesos según la capacidad del sujeto y gravedad del delito aplicables al Tesoro del Estado, su equivalente en obras públicas, que deber compensarse según el oficio en que trabaje en ellas.

@@ -1,0 +1,1 @@
+ARTÍCULO 14.-Fallada la sentencia, el Jurado la publicar , y por medio del Secretario la comunicar la Corte para la ejecución de la pena; más si después de haber conferenciado tres horas no se conviniese el Jurado en resolver, se tendrá por absuelto el acusado.
