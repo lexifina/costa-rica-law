@@ -1,5 +1,8 @@
-Artículo 54.—La Comisión del Subsistema de Educación Indígena estará conformada por el Director del Departamento de Educación Académica, dos Asesores de la División de Desarrollo Curricular, designados por su Director y los Asesores Regionales de Educación Indígena; la que tendrá las siguientes funciones:
-a) Dirigir la adecuación del currículo en las instituciones educativas que tienen población indígena, teniendo en cuenta las características y necesidades de cada comunidad indígena.
-b) Incentivar a los docentes de comunidades indígenas para que en el desarrollo de la práctica pedagógica, incorporen recursos propios del medio.
-c) Velar por el cumplimiento de la práctica de la lengua vernácula, en el proceso de enseñanza-aprendizaje, según cada grupo cultural.
-ch) Incentivar a los jóvenes indígenas para que opten por la formación en las ciencias de la educación.
+Artículo 54. Son funciones del Departamento de Educación Indígena;
+a) Disecar, ejecutar, evaluar proyectos y acciones curriculares dirigidos a la educación formal e informal de las comunidades indígenas, con apego a la política educativa y las disposiciones curriculares nacionales.
+b) Orientar la contextualización del currículo a las características y necesidades de la población indígena costarricense.
+c) Promover la educación bilingüe y pluricultural en las instituciones educativas de las comunidades indígenas.
+d) Coordinar el desarrollo de proyectos educativos dirigidos a esos pueblos con el Instituto Nacional de Enseñanza Radiofónica y otras instituciones.
+e) Promover y divulgar los aportes que los pueblos indios han dado para el enriquecimiento de la cultura nacional.
+f) Impulsar la inclusión de objetivos y contenidos curriculares, en distintos programas de estudio, atinentes a las características socio-económicas y culturales propias de los pueblos indios costarricenses.
+(Así reformado tácimente por el artículo 1 del Decreto Ejecutivo N° 23489 de 11 de julio de 1994)

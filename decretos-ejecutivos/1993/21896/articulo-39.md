@@ -4,3 +4,4 @@ b) Asesorar a las autoridades del Ministerio de Educación Pública en la adquis
 c) Procesar datos provenientes de las oficinas centrales y de las regiones educativas.
 ch) Preparar informes orientados a retroalimentar el proceso educativo en las diferentes instancias.
 d) Brindar, el soporte técnico en las áreas, de reparación, adecuación y de mantenimiento del software, tanto en las oficinas centrales como de las regiones educativas.
+(Tácitamente derogado por el artículo 3 del Decreto Ejecutivo N° 23489 de 11 de julio de 1994)

@@ -1,1 +1,2 @@
 Artículo 16.—Las funciones del Departamento de Régimen Disciplinario y de las Unidades Jurídicas Regionales se enmarcan en las legislaciones aplicables en cada caso, dentro del procedimiento establecido por el Estatuto de Servicio Civil (títulos I y II), Código de Trabajo y Reglamento Interior de Trabajo.
+(Tacitamente derogado por el artículo 3 del Decreto Ejecutivo N° 23489 de 11 de julio de 1994)

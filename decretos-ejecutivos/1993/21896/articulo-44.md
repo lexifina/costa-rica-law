@@ -1,9 +1,7 @@
-Artículo 44.—Son funciones del Departamento de Planificación, Diseño y Evaluación de los Aprendizajes:
-a) Proponer políticas de evaluación de los aprendizajes.
-b) Elaborar, revisar y actualizar los reglamentos e instructivos de evaluación.
-c) Apoyar al Departamento de Currículo de las Regiones Educativas en el asesoramiento a los docentes y a los Comités de Evaluación de los centros educativos.
-ch) Coordinar con el Departamento de Investigación Educativa de la División de Planeamiento y Desarrollo Educativo y los Departamentos de Currículo de las Regiones Educativas investigaciones en el campo de evaluación de los aprendizajes.
-d) Divulgar las políticas nacionales de evaluación, así como los reglamentos y demás instrumentos jurídicos.
-e) Promover el desarrollo de investigaciones curriculares, de tipo cualitativo en los ámbitos nacional, regional e institucional.
-f) Brindar lineamientos de tipo conceptual y metodológico para orientar la planificación y el diseño curricular.
-g) Brindar lineamientos para la adecuación curricular en el ámbito nacional, regional e institucional.
+Artículo 44. Son funciones del Departamento de Asesoría para la Evaluación de los Aprendizajes:
+a) Asesorar a las autoridades nacionales, provinciales a regionales en materia de evaluación de los aprendizajes.
+b) Crear y recomendar la utilización de instrumentos de evaluación apropiados a las realidades nacionales, provinciales o regionales del sistema educativo costarricense y para su mejoramiento de la calidad.
+c) Divulgar diversas técnicas de evaluación de los aprendizajes, apropiados a la realidad del sistema educativo.
+ch) Crear y proponer, con la obligada colaboración de los asesores nacionales, técnicas e instrumentos de evaluación para las diversas disciplinas o materias.
+d) Colaborar cuando así lo requieran con las autoridades nacionales, provinciales o regionales en los procesos de capacitación que organicen sobre esta materia.
+(Así reformado tácimente por el artículo 1 del Decreto Ejecutivo N° 23489 de 11 de julio de 1994)
