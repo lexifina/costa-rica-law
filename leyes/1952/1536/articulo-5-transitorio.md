@@ -1,2 +1,4 @@
 V.- En las solicitudes de traslado y duplicado de cédula de identidad no se exigirá constancia de nacimiento, siempre y cuando la solicitud respectiva no entrañe modificación del Padrón General. Esta disposición regirá en el actual proceso electoral.
+(Nota de Sinalevi: Mediante el artículo único de la ley N° 7094 del 27 de mayo de 1988, se adiciona el siguiente transitorio, el cual dispone:
+"...Transitorio III.-Para el proceso electoral de 1990, los partidos inscritos en escala nacional podrán realizar en cualquier fecha las convenciones nacionales o cualquier otra actividad para designar o elegir candidatos a la Presidencia. En ese sentido se separarán de lo señalado al efecto en el artículo 74, aunque deberán cumplir con todas las otras disposiciones establecidas para regular los procesos internos de escogencia de candidatos.")
 Casa Presidencial. San José, a los diez días del mes de diciembre de mil novecientos cincuenta y dos.
