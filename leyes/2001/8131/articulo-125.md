@@ -1,0 +1,5 @@
+ARTÍCULO 125.- Desarrollo del Sistema Integrado de Información
+El Ministerio de Hacienda promoverá y apoyará el desarrollo y buen funcionamiento de un Sistema Integrado de Información de la Administración Financiera, como elemento facilitador del cumplimiento de los objetivos de esta Ley.
+Asimismo, podrá establecer en qué casos y con cuáles requisitos, se utilizarán medios que faciliten el intercambio de datos y documentos mediante el empleo de tecnologías de la información y las comunicaciones, cuyo propósito sea:
+a) Agilizar los procedimientos, sustituyendo los soportes documentales por soportes propios de las tecnologías disponibles en materia de información y comunicaciones.
+b) Reemplazar los sistemas de autorización y control, formalizados mediante diligencias, firmas manuscritas, sellos u otros medios manuales o mecánicos, por autorizaciones y controles automatizados, según los requerimientos de los sistemas de información que se habiliten para el cumplimiento de esta Ley y sus reglamentos, siempre que el órgano correspondiente garantice el ejercicio de la competencia.

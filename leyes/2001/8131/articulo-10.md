@@ -1,0 +1,3 @@
+ARTÍCULO 10.- Medios de pago
+Los entes y órganos del sector público definirán los medios de pago que podrán utilizarse en procura de la mayor conveniencia para las finanzas públicas. Atendiendo los principios de eficiencia y seguridad, podrán establecer que para determinados pagos se utilice un medio único e implementar los mecanismos y las condiciones para captar y recibir los recursos.
+A la vez, los obligados tendrán el derecho de que el cajero general o el cajero auxiliar reciba el pago con la sola condición de que, en el comprobante utilizado, quede constancia de la información requerida para identificar tanto la causa de la obligación como al obligado.

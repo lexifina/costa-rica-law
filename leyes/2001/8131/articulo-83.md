@@ -1,0 +1,2 @@
+ARTÍCULO 83.- Política de endeudamiento
+La aprobación de las políticas de endeudamiento y reducción de la deuda pública tanto interna como externa, para el corto, mediano y largo plazo, compete al Presidente de la República, a propuesta de la Autoridad Presupuestaria, la cual considerará la programación macroeconómica establecida en el título III de esta Ley. Esta política deberá ser respetada en la formulación de los presupuestos del sector público.

@@ -1,16 +1,7 @@
 CAPITULO IV
 DE LAS DISPOSICIONES FINALES
 ARTICULO 10.- Fideicomiso
-Los recursos del Fondo Nacional de Becas serán administrados por un
-fideicomiso que la Junta Directiva creará en uno de los bancos
-comerciales del Estado. De los recursos que se perciban, de conformidad
-con lo establecido en el artículo 9, únicamente podrá destinarse hasta un
-diez por ciento (10%), a gastos de administración y operativos del Fondo.
-El faltante que se requiriere para el funcionamiento eficaz del Fondo,
-será proveído por el Ministerio de Educación Pública, tanto para gastos
-materiales como de personal.
-En el contrato de fideicomiso, deberá establecerse la
-responsabilidad del banco en cuanto a la colocación, el seguimiento y la
-recuperación de los fondos correspondientes. La firma del contrato no
-relevará a la Junta Directiva de las responsabilidades de manejo
-eficiente de los recursos que le establece esta ley.
+Los recursos del Fondo Nacional de Becas serán administrados por un fideicomiso que la Junta Directiva creará en uno de los bancos comerciales del Estado. De los recursos que se perciban, de conformidad con lo establecido en el artículo 9, únicamente podrá destinarse hasta un diez por ciento (10%), a gastos de administración y operativos del Fondo.
+El faltante que se requiriere para el funcionamiento eficaz del Fondo, será proveído por el Ministerio de Educación Pública, tanto para gastos materiales como de personal.
+En el contrato de fideicomiso, deberá establecerse la responsabilidad del banco en cuanto a la colocación, el seguimiento y la recuperación de los fondos correspondientes. La firma del contrato no relevará a la Junta Directiva de las responsabilidades de manejo eficiente de los recursos que le establece esta ley.
+NOTA DE SINALEVI: Según el punto 7) de las conclusiones del dictamen de la Procuraduría General de la República N° C-297-2005, suscrito por la Licda. Magda Inés Rojas Chaves, ... "El artículo 10 de la Ley N ° 7658 de 11 de febrero de 1997, al autorizar el manejo de los recursos financieros mediante un fideicomiso de inversión, faculta una administración sin ingreso a la caja única del Estado. Por lo que conforme a lo dispuesto expresamente en el artículo 127, inciso e) de la Ley de Administración Financiera y Presupuestos Públicos debe considerarse derogado".

@@ -1,9 +1,3 @@
-ARTICULO 32.- MEMORIA ANUAL Y COMPARECENCIA
-La Contraloría General de la República deberá presentar a la Asamblea
-Legislativa y enviar a cada uno de los diputados, el 1 de mayo de cada
-año, un informe acerca del cumplimiento de sus deberes y atribuciones del
-año anterior, que incluya una exposición de opiniones y sugerencias que
-considere necesarias para un uso eficiente de los fondos públicos.
-El Contralor General de la República comparecerá ante la Asamblea
-Legislativa o ante sus comisiones, siempre que sea requerido, todo de
-acuerdo con lo estipulado en el Reglamento de la Asamblea Legislativa.
+Artículo 32.- Memoria anual. Informes periódicos y comparecencia. La Contraloría General de la República deberá presentar a la Asamblea Legislativa un informe acerca del cumplimiento de sus deberes y atribuciones del año anterior, que incluya una exposición de opiniones y sugerencias que considere necesarias para un uso eficiente de los fondos públicos y enviarlo a cada uno de los diputados, el 1º de mayo de cada año.
+Asimismo, la Contraloría General de la República presentará a la Comisión para el Control del Ingreso y Gasto Públicos de la Asamblea Legislativa, informes periódicos de la gestión presupuestaria del sector público y de las auditorías y denuncias que tengan repercusión sobre los recursos públicos que se estén administrando. La periodicidad de los informes será establecida por la Comisión supracitada. El Contralor General de la República comparecerá ante la Asamblea Legislativa o ante sus Comisiones, siempre que sea requerido, según lo dispuesto en el Reglamento de la Asamblea Legislativa.
+(Así reformado por el inciso d) del artículo 126 de la Ley de Administración Financiera de la Republica y Presupuestos Públicos, N° 8131 de 18 de setiembre del 2001)

@@ -1,0 +1,2 @@
+ARTÍCULO 84.- Facultades del Ministerio de Hacienda en negociación de crédito externo
+Sin perjuicio de la participación conjunta de otros órganos en el proceso de negociación, el Ministerio de Hacienda será el único agente con capacidad legal de endeudamiento, gestión y control de la deuda pública de la Administración Central, sin perjuicio de las facultades de asesoramiento del Banco Central de Costa Rica.

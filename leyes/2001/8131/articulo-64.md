@@ -1,0 +1,2 @@
+ARTÍCULO 64.- Cumplimiento de plazos por parte de cajeros auxiliares
+El banco cajero general deberá exigir a los cajeros auxiliares el depósito de las sumas percibidas, en los plazos que fije la Tesorería Nacional. En caso de incumplimiento se aplicará, en favor del tesoro público, una comisión que determinará la Tesorería Nacional, sin menoscabo de otras consecuencias jurídicas que procedan de acuerdo con la reglamentación y los contratos firmados.

@@ -1,0 +1,2 @@
+ARTÍCULO 115.- Responsabilidad ante terceros
+El servidor público que, a nombre y por cuenta del órgano o ente público donde presta sus servicios, contraiga obligaciones o adquiera compromisos al margen del ordenamiento jurídico, será de ellos el responsable civil ante terceros, sin perjuicio de la acción de repetición que pueda emprender el Estado o la entidad pública de que se trate por los pagos efectuados.

@@ -1,0 +1,4 @@
+ARTÍCULO 75.- Letras del tesoro
+Cuando por una situación especial de caja esté amenazado el interés público ante eventuales incumplimientos de pago por parte del Gobierno, el Ministerio de Hacienda, por medio de la Tesorería Nacional, previa resolución que lo justifique, podrá emitir obligaciones de corto plazo a cargo del Estado denominadas letras del tesoro. El Banco Central de Costa Rica podrá adquirirlas por el monto necesario para cubrir el déficit temporal. La suma total de dichas obligaciones pendientes de pago no podrá ser superior a un veinteavo del presupuesto ordinario de la República.
+El pago de los intereses de las letras del tesoro deberá cargarse a las partidas presupuestarias para el servicio de la deuda interna.
+No podrán emitirse letras del tesoro para financiar la cancelación de otras ya emitidas.

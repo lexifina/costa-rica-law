@@ -1,0 +1,1 @@
+TRANSITORIO II.- El Poder Ejecutivo dispondrá de un plazo de nueve meses para establecer el banco cajero, de conformidad con las disposiciones del artículo 63. Mientras se concreta tal designación, los servicios se prestarán conforme a los contratos vigentes a la publicación de la Ley.

@@ -1,1 +1,0 @@
-Artículo 97.- (Derogado por el artículo 295 del decreto ejecutivo N° 7576 del 23 de setiembre de 1977. Posteriormente por el artículo 111 de la Ley de Contratación Administrativa, N° 7494 del 2 de mayo de 1995, se vuelve a derogar este numeral.)

@@ -1,0 +1,2 @@
+ARTÍCULO 73.- Operaciones de cobertura de riesgo
+En procura del mayor beneficio para el tesoro público, la Tesorería Nacional, en consulta con el Banco Central de Costa Rica, podrá adquirir instrumentos formalmente definidos en los mercados internacionales para la cobertura del riesgo cambiario o de tasas de interés, o bien adquirir divisas anticipadamente, de conformidad con la reglamentación que se dictará para el efecto. En dichas operaciones deberán imperar los principios de publicidad, seguridad y transparencia.

@@ -1,0 +1,2 @@
+ARTÍCULO 124.- Cese sin responsabilidad ante sentencia penal
+Cesarán en su cargo sin responsabilidad patronal, los miembros de las juntas directivas, presidentes ejecutivos y gerentes de los entes descentralizados y empresas públicas sobre quienes recaiga sentencia penal firme por la comisión de delitos contra la buena fe en los negocios, los Poderes públicos y el orden constitucional y contra los deberes de la función pública.

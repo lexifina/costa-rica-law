@@ -1,15 +1,4 @@
-ARTICULO 8.- HACIENDA PUBLICA
-Hacienda Pública es la organización formada por los entes y órganos
-públicos, incluyendo los no estatales, propietarios o encargados, por
-cualquier título, de la administración del patrimonio público; salvo la
-contribución obrero patronal que es de naturaleza pública.
-Los recursos del Banco Popular y de Desarrollo Comunal tendrán el
-carácter que su propia ley orgánica les otorga.
-Patrimonio público es la universalidad constituida por los fondos
-públicos y por los pasivos a cargo de la Hacienda Pública.
-Los componentes de la Hacienda Pública son las instituciones,
-corporaciones y empresas públicas, sean entes u órganos.
-Las sociedades mercantiles constituidas con arreglo a la legislación
-costarricense son empresas públicas únicamente cuando estén bajo el
-dominio mayoritario o el predominio legal del Estado o de otro ente u
-órgano públicos.
+Artículo 8.- Hacienda Pública. La Hacienda Pública estará constituida por los fondos públicos, las potestades para percibir, administrar, custodiar, conservar, manejar, gastar e invertir tales fondos y las normas jurídicas, administrativas y financieras, relativas al proceso presupuestario, la contratación administrativa, el control interno y externo y la responsabilidad de los funcionarios públicos.
+Respecto a los entes públicos no estatales, las sociedades con participación minoritaria del sector público o las entidades privadas, únicamente formarán parte de la Hacienda Pública los recursos que administren o dispongan, por cualquier título, para conseguir sus fines y que hayan sido transferidos o puestos a su disposición, mediante norma o partida presupuestaria, por los Poderes del Estado, sus dependencias y órganos auxiliares, el Tribunal Supremo de Elecciones, la administración descentralizada, las universidades estatales, las municipalidades y los bancos del Estado. Los recursos de origen distinto de los indicados no integran la Hacienda Pública; en consecuencia, el régimen jurídico aplicable a esas entidades es el contenido en las Leyes que las crearon o los ordenamientos especiales que las regulan.
+El patrimonio público será el universo constituido por los fondos públicos y los pasivos a cargo de los sujetos componentes de la Hacienda Pública. Serán sujetos componentes de la Hacienda Pública, el Estado y los demás entes u órganos públicos, estatales o no, y las empresas públicas, así como los sujetos de Derecho Privado, en cuanto administren o custodien fondos públicos por cualquier título, con las salvedades establecidas en el párrafo anterior.
+(Así reformado por el inciso d) del artículo 126 de la Ley de Administración Financiera de la República y Presupuestos Públicos, N° 8131 de 18 de setiembre del 2001)

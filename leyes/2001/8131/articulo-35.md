@@ -1,0 +1,2 @@
+ARTÍCULO 35.- Facultades de la Dirección General de Presupuesto Nacional
+La Dirección General de Presupuesto Nacional analizará los anteproyectos de presupuesto que deberán ser aprobados por la Asamblea Legislativa y efectuará los ajustes necesarios de conformidad con la política presupuestaria y en estricto cumplimiento de los artículos 176 y 177 de la Constitución Política. Igualmente, con la aprobación del Ministro de Hacienda, podrá aumentar cualquier partida a solicitud del titular respectivo.

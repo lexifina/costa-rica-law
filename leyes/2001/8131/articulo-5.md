@@ -1,0 +1,9 @@
+ARTÍCULO 5.- Principios presupuestarios
+Para los efectos del artículo anterior, deberán atenderse los siguientes principios presupuestarios:
+a) Principio de universalidad e integridad. El presupuesto deberá contener, de manera explícita, todos los ingresos y gastos originados en la actividad financiera, que deberán incluirse por su importe íntegro; no podrán atenderse obligaciones mediante la disminución de ingresos por liquidar.
+b) Principio de gestión financiera. La administración de los recursos financieros del sector público se orientará a los intereses generales de la sociedad, atendiendo los principios de economía, eficacia y eficiencia, con sometimiento pleno a la ley.
+c) Principio de equilibrio presupuestario. El presupuesto deberá reflejar el equilibrio entre los ingresos, los egresos y las fuentes de financiamiento.
+d) Principio de anualidad. El presupuesto regirá durante cada ejercicio económico que irá del 1° de enero al 31 de diciembre.
+e) Principio de programación. Los presupuestos deberán expresar con claridad los objetivos, las metas y los productos que se pretenden alcanzar, así como los recursos necesarios para cumplirlos, de manera que puedan reflejar el costo.
+f) Principio de especialidad cuantitativa y cualitativa. Las asignaciones presupuestarias del presupuesto de gastos, con los niveles de detalle aprobados, constituirán el límite máximo de autorizaciones para gastar. No podrán adquirirse compromisos para los cuales no existan saldos presupuestarios disponibles. Tampoco podrán destinarse saldos presupuestarios a una finalidad distinta de la prevista en el presupuesto, de conformidad con los preceptos legales y reglamentarios.
+g) Principio de publicidad. En aras de la transparencia, el presupuesto debe ser asequible al conocimiento público, por los medios electrónicos y físicos disponibles.

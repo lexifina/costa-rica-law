@@ -1,0 +1,1 @@
+TRANSITORIO VI.- En un plazo máximo de dos meses contados a partir de la entrada en vigencia de la presente Ley, la Contraloría General de la República presentará a la Asamblea Legislativa un proyecto que contendrá un capítulo sobre control interno, así como las reformas que, en materia de responsabilidades, considere pertinentes.

@@ -1,0 +1,3 @@
+ARTÍCULO 47.- Desconcentración de la ejecución
+Facúltase al Ministerio de Hacienda para definir, en coordinación con la Contraloría General de la República en lo correspondiente a sus competencias constitucionales, los mecanismos y la organización que propicien la desconcentración de la ejecución del presupuesto de la República y su adecuada evaluación, en procura de la agilidad necesaria de ese proceso, con apego a la legalidad y la técnica propias de esta materia.
+En lo que se refiere a los entes y órganos incluidos en el inciso b) del artículo 1, el Ministerio de Hacienda podrá coordinar con los respectivos jerarcas lo que corresponda, a efecto de propiciar la adecuada desconcentración y evaluación de los presupuestos de estos entes.

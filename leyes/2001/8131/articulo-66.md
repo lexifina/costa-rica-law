@@ -1,0 +1,3 @@
+ARTÍCULO 66.- Caja única
+Todos los ingresos que perciba el Gobierno de la República, cualquiera que sea la fuente, formarán parte de un fondo único a cargo de la Tesorería Nacional. Para administrarlos, podrá disponer la apertura de una o varias cuentas en colones u otra moneda, en procura del mayor beneficio para la Hacienda Pública.
+Los recursos recaudados en virtud de las leyes especiales que determinen su destino se depositarán en cuentas autorizadas por la Tesorería Nacional, en cualquiera de los bancos del sector público. Estos recursos financiarán total o parcialmente, según lo disponga la ley respectiva, el presupuesto de gastos del ente responsable de la ejecución del gasto.

@@ -1,0 +1,3 @@
+ARTÍCULO 20.- Contenido de la programación macroeconómica
+La programación macroeconómica consistirá en la evaluación y proyección del estado de la economía que, con fundamento en las principales variables económicas y sociales, tendrá el objetivo de formular directrices y lineamientos generales que procuren un alto grado de coordinación entre las políticas en el campo macroeconómico, respetando la autonomía del Banco Central de Costa Rica en materia cambiaria y monetaria.
+Esa programación se fundamentará en las consideraciones de tipo estratégico, de orden económico y social, así como en las prioridades definidas por los jerarcas de los respectivos Poderes.

@@ -1,0 +1,2 @@
+ARTÍCULO 114.- Responsabilidad civil
+Todo servidor público será responsable civil por los daños y perjuicios que ocasione, por dolo o culpa grave, a los órganos y entes públicos, independientemente de si existe con ellos relación de servicio. Tal responsabilidad se regirá por la Ley General de la Administración Pública y podrá surgir, sin que esa enumeración sea taxativa, por la comisión de alguno de los hechos contemplados en los artículos 110 y 111 de la presente Ley.
