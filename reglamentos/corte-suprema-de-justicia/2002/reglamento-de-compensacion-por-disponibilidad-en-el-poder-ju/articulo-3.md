@@ -1,2 +1,3 @@
-Artículo 3°—Compensación económica. A cambio de esa disponibilidad, al funcionario o senidor se le reconocerá una compensación económica, la cual será tramitada y ejecutada por el Departamento de Personal. Esa compensación será fijada por la Corte con base en los lineamientos que indiquen las ley es laborales, en un porcentaje sobre el salario base.
-Para el caso de los investigadores del Organismo de Investigación Judicial, que perciben un rubro por este concepto, se estará a lo contemplado en el porcentaje por variación de jornada que se les reconoce.
+Artículo 3°—Compensación económica. A cambio de esa disponibilidad, al funcionario o servidor se le reconocerá una compensación económica, la cual será tramitada por el Departamento de Personal. Esa compensación será fijada por la Corte con base en los lineamientos que indiquen las ley es laborales, en un porcentaje sobre el salario base.
+Para el caso de los investigadores del Organismo de Investigación Judicial, que perciben un rubro por este concepto, se estara a lo contemplado en el porcentaje por disponibilidad que se les reconoce.
+(Así reformado por Corte Plena en Sesión N°50-02, de 4 de noviembre de 2002)

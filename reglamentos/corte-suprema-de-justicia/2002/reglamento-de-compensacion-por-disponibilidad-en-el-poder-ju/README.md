@@ -13,3 +13,4 @@ Reglamento de Compensación por Disponibilidad en el Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-18 | la propia norma |
+| 2 | 2002-11-04 | Reglamento 50 (2002-11-04) |
