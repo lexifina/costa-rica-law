@@ -14,3 +14,4 @@ Reglamento de la Ley de Incentivos para el Desarrollo Turístico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-10-15 | la propia norma |
+| 2 | 1988-05-19 | Decreto Ejecutivo 18159 (1988-05-19) |
