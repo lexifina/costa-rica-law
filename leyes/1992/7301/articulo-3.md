@@ -1,35 +1,12 @@
-ARTÍCULO 3.- El Fondo contará con los siguientes recursos para el
-cumplimiento de sus funciones:
-a) Los que logre captar por cualesquiera de los dos medios siguientes
-o por una combinación de ambos:
-1.- Un préstamo de hasta cincuenta millones de dólares
-estadounidenses (US$50.000.000,00), o su equivalente en moneda
-nacional que contratará localmente o en el extranjero.
-2.- La emisión, por parte del Instituto del Café de Costa
-Rica, de bonos de hasta por un monto de cincuenta millones de
-dólares estadounidenses (US$50.000.000,00), o su equivalente en
-moneda nacional, para lo cual se autoriza expresamente al
-Instituto del Café de Costa Rica, para proceder a esta emisión.
-Tanto la emisión de bonos como la constitución del crédito,
-según sea el caso, deberán contar con la previa aprobación del
-Ministerio de Hacienda, en cuanto a sus condiciones generales y
-específicas.
-El endeudamiento del Fondo, en virtud de lo que disponen
-los numerales 1 y 2 de este inciso, no podrá exceder, en
-conjunto, de cincuenta millones de dólares estadounidenses
-(US$50.000.000,00), o su equivalente en moneda nacional. Tanto
-para la financiación con el préstamo que indica el numeral 1
-anterior, como con los bonos del numeral 2, el Fondo contará con
-el aval del Estado y podrá contar con el respaldo, como
-garantía, de bienes que integren el patrimonio del Instituto del
-Café de Costa Rica.
-Quedan expresamente autorizados el Ministerio de Hacienda
-y el Instituto del Café de Costa Rica para otorgar estos avales.
-b) La contribución de estabilización cafetalera a la que se refiere
-esta ley.
-c) Se autoriza al Estado, a las entidades públicas, centralizadas y
-descentralizadas y a las empresas públicas del Estado a otorgar
-subvenciones y servicios de cualquier clase al Fondo.
-d) Los que perciba por concepto de intereses devengados, provenientes
-de las inversiones realizadas o de cualquier otra fuente prevista en esta
-ley.
+Artículo 3.- Para el cumplimiento de la competencia que le otorga esta Ley, el Fondo Nacional de Estabilización Cafetalera (FONECAFE), contará con los siguientes recursos:
+a) Los recursos que logre captar por cualquiera de los dos medios siguientes o por la combinación de ambos:
+1.- Un préstamo hasta de cincuenta millones de dólares estadounidenses (US$50.000.000,00), o su equivalente en moneda nacional, que podrá contratar en el extranjero o localmente.
+2.- La emisión, por parte del FONECAFE, de bonos hasta por un monto de cincuenta millones de dólares estadounidenses (US$50.000.000,00), o su equivalente en moneda nacional.
+Tanto la emisión de bonos como la constitución del préstamo, según el caso, deberán contar con la previa aprobación del Ministerio de Hacienda.
+El endeudamiento de FONECAFE, en virtud de lo dispuesto en los numerales 1 y 2 de este inciso, no podrá exceder, en conjunto, de cincuenta millones de dólares estadounidenses (US$50.000.000,00), o su equivalente en moneda nacional.
+Tanto para la financiación mediante el préstamo como para la emisión de los bonos, que se indican en los numerales 1 y 2 del inciso a), respectivamente, se autorizan el aval del Estado y, como garantía, el respaldo de los bienes que integran el patrimonio del Instituto del Café de Costa Rica.
+b) La contribución de estabilización cafetalera a la que se refiere esta Ley.
+c) Las subvenciones y los servicios, de cualquier clase, que otorguen a FONECAFE las entidades públicas, centralizadas y descentralizadas, y las empresas públicas del Estado. Dichas instituciones y empresas quedan autorizadas para otorgar tales servicios.
+d) Los recursos que perciba por concepto de intereses provenientes de las inversiones realizadas.
+e) Los intereses por el pago tardío de la contribución cafetalera.
+(Modificado Tácitamente por Ley N° 8064 que reformó el artículo 3 de la Ley Nº 7770 del 24 de abril de 1998 que a su vez hace una Reforma Integral de la presente norma. Esta misma ley (N° 8064) en su artículo Transitorio III, indica lo siguiente: "TRANSITORIO III.- Los recursos obtenidos mediante la colocación de los bonos a que refiere el artículo 3 de esta Ley, serán entregados a los productores de café, sesenta días después del ingreso de dichos dineros al FONECAFE. El giro de los recursos obtenidos por medio de la colocación de los bonos, se realizará conforme al promedio de entregas de las cosechas 98-99 y 99-2000. Cuando se registren entregas de café solamente en la cosecha 99-2000, el volumen entregado en ella servirá de base para el cálculo".

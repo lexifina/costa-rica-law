@@ -1,5 +1,3 @@
-ARTÍCULO 8.- La contribución según la tarifa indicada deberá
-cancelarse directamente al Fondo. Se tasará al inscribir el contrato ante
-el Instituto del Café de Costa Rica y será cancelada por el beneficiador,
-dentro de los ocho días naturales siguientes a la fecha consignada en la
-factura.
+Artículo 8.- La contribución cafetalera se tasará al inscribir el contrato de exportación ante el Instituto del Café de Costa Rica y será cancelada por el beneficiador, dentro de los ocho días naturales siguientes a la fecha consignada en la factura correspondiente al respectivo contrato de exportación, directamente ante FONECAFE.
+Los beneficios de café deberán presentar, en las oficinas de FONECAFE, copia de la factura de café de exportación, dentro de los cinco días hábiles siguientes a la fecha de la transacción comercial correspondiente.
+(Modificado Tácitamente por Ley N° 8064 que reformó el artículo 8 de la Ley Nº 7770 del 24 de abril de 1998, que a su vez reforma en forma Integral la presente norma)
