@@ -1,0 +1,2 @@
+Artículo 51°.- Legitimación procesal.
+Las organizaciones de consumidores están legitimadas para iniciar como parte o intervenir, en calidad de coadyuvantes, en los procedimientos ante la Comisión nacional del consumidor y ante los tribunales de justicia, en defensa de los derechos y los intereses legítimos de sus asociados. La coadyuvancia se rige por lo establecido en la Ley General de la Administración Pública y en el Código Procesal Civil.

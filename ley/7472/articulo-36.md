@@ -1,0 +1,2 @@
+Artículo 36.- Bienes usados y reconstruidos.
+Cuando se vendan productos defectuosos, usados o reconstruidos, antes de la compra, el comerciante debe indicar al consumidor, de manera precisa y clara, tales condiciones y dejarse constancia en las facturas o los comprobantes. El comerciante debe advertir los extremos anteriores si anuncia la venta de esos productos usando cualquier medio. Si no existe advertencia sobre el particular, esos bienes se consideran nuevos y en perfecto estado.
