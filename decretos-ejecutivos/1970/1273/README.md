@@ -18,3 +18,4 @@ Crea Consejo Agropecuario Nacional (CAN)
 | 3 | 1971-04-23 | Decreto Ejecutivo 1677 (1971-04-23) |
 | 4 | 1971-09-29 | Decreto Ejecutivo 1988 (1971-09-29) |
 | 5 | 1972-07-14 | Decreto Ejecutivo 2427 (1972-07-14) |
+| 6 | 1973-01-15 | Decreto Ejecutivo 2773 (1973-01-15) |
