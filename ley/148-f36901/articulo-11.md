@@ -1,0 +1,1 @@
+Art. 11. Tanto los Gobernadores como los Jueces cartularios y los Curas que no cumplan con las disposiciones anteriores son responsables con arreglo à las leyes, y obligados ademas á satisfacer al hospital el duplo de cualquier cantidad que por su culpa á omision dejare de cobrarse.
