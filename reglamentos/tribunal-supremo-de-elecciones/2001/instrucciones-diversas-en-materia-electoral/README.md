@@ -14,3 +14,4 @@ Instrucciones Diversas en Materia Electoral
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-27 | la propia norma |
+| 2 | 2002-01-21 | Reglamento 1 (2002-01-21) |
