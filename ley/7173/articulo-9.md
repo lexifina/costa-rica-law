@@ -1,8 +1,8 @@
-ARTICULO 9.- Autorízase a la Municipalidad para que verifique ante la
-Dirección General de la Tributación Directa la exactitud de los datos
+ARTICULO 9.- Autorízase a la Municipalidad para que verifique ante
+la Dirección General de la Tributación Directa la exactitud de los datos
 suministrados por los patentados. Si se comprobare que existe alteración
-de ellos, circunstancia que determine que el monto asignado es incorrecto,
-la Municipalidad hará la recalificación correspondiente.
+de ellos, circunstancia que determine que el monto asignado es
+incorrecto, la Municipalidad hará la recalificación correspondiente.
 Asimismo, cuando la Dirección General de la Tributación Directa
 efectuare alguna recalificación en el impuesto sobre la renta, deberá
 comunicarlo de oficio a la Municipalidad, para lo que corresponda.
@@ -15,5 +15,5 @@ disposiciones del Código Municipal. Agotada la vía administrativa, el
 patentado estará obligado a pagar la suma establecida, mientras no exista
 pronunciamiento en sentido contrario de la autoridad judicial competente.
 A las personas físicas o jurídicas que no presenten la declaración
-jurada sobre la renta, se les aplicará la tarifa que establece el artículo
-15 de esta ley.
+jurada sobre la renta, se les aplicará la tarifa que establece el
+artículo 15 de esta ley.
