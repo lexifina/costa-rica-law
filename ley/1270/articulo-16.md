@@ -1,0 +1,2 @@
+CLAUSULA XVI
+El Gobierno y el Instituto reconocen que es de mutuo interés que se dé completa publicidad a los objetivos y avances del Programa Cooperativo de Agricultura y a las medidas tomadas para el progreso del programa, a fin de fortalecer el sentimiento de esfuerzo común que es esencial para alcanzar las metas del programa. El Ministro y el Chief of Field Party continuarán estimulando la diseminación de tal información y la pondrán al alcance del público.

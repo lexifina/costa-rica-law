@@ -1,0 +1,2 @@
+CLAUSULA XV
+Las partes contratantes declararan reconocer que el Instituto, siendo una entidad incorporada al Gobierno de los Estados Unidos de América, enteramente poseída, dirigida y controlada por el Gobierno de los Estados Unidos de América, está autorizado para gozar en forma total de todos los privilegios e inmunidades, incluyendo inmunidad para ser juzgado en las Cortes de Costa Rica, de los cuales goza el Gobierno de los Estados Unidos de América.

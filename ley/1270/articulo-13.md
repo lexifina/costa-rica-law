@@ -1,0 +1,2 @@
+CLAUSULA XIII
+Sujeto a las estipulaciones de la Sección "e)" de la Cláusula VII, cualesquiera fondos de STICA que queden sin gastarse ni comprometerse a la terminación del Programa Cooperativo de Agricultura deberán ser devueltos a las partes contratantes en proporción a las respectivas contribuciones hechas por el Gobierno y por el Instituto (o su predecesor), según el convenio básico, tal como se han reformado y ampliado, y según convenios básicos anteriores tal como se han reformado y ampliado a menos que oportunamente se acuerde otra cosa por escrito entre las partes.
