@@ -1,0 +1,13 @@
+ARTICULO X
+SUSPENSION Y TERMINACION DE OPERACIONES
+Sección 1.- Suspensión de Operaciones.
+Cuando surgieren circunstancias graves, el Directorio Ejecutivo podrá suspender las operaciones relativas a nuevos préstamos y garantías hasta que la Asamblea de Gobernadores tenga oportunidad de examinar la situación y tomar las medidas pertinentes.
+Sección 2.- Terminación de Operaciones.
+El Banco podrá terminar sus operaciones por decisión de la Asamblea de Gobernadores adoptada por mayoría de dos tercios de los gobernadores que represente por lo menos tres cuartos de la totalidad de los votos de los países miembros. Al terminar las operaciones, el Banco cesará inmediatamente todas sus actividades excepto las que tengan por objeto conservar, preservar y realizar sus activos y solucionar sus obligaciones.
+Sección 3.- Responsabilidad de los Países Miembros y Pago de las Deudas.
+(a) La responsabilidad de los países miembros que provenga de las suscripciones de capital y de la depreciación de sus monedas continuará vigentes mientras no se liquiden todas las obligaciones del Banco, incluyendo las eventuales.
+(b) A todos los acreedores directos se les pagará con los activos del Banco y luego con los fondos que se obtengan del cobro de la parte que se adeude del capital pagadero en efectivo y del requerimiento del capital exigible. Antes de hacer ningún pago a los acreedores directos, el Directorio Ejecutivo deberá tomar las medidas que a su juicio sean necesarias para asegurar una distribución a prorrata entre los acreedores de obligaciones directas y los de obligaciones eventuales.
+Sección 4.- Distribución de Activos.
+(a) No se hará ninguna distribución de activos entre los países miembros a cuenta de las acciones que tuvieren en el Banco mientras no se hubieren cancelado todas las obligaciones con los acreedores o se hubiere hecho provisión para su pago. Se requerirá, además, que la Asamblea de Gobernadores, por mayoría de dos tercios de los gobernadores que represente por lo menos tres cuartos de la totalidad de los votos de los países miembros, decida efectuar la distribución.
+(b) Toda distribución de activos entre los países miembros se hará en proporción al número de acciones que posean y en los plazos y condiciones que el Banco considere justos y equitativos. No será necesario que las porciones que se distribuyan entre los distintos países contengan la misma clase de activos. Ningún miembro tendrá derecho a recibir su parte en la referida distribución de activos mientras no haya ajustado todas sus obligaciones con el Banco.
+(c) Los países miembros que reciban activos distribuidos de acuerdo con este artículo gozarán de los mismos derechos que correspondían al Banco en esos activos, antes de efectuarse la distribución.
