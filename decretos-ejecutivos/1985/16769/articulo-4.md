@@ -1,1 +1,0 @@
-Artículo 4°-Las exenciones serán otorgadas individualmente para cada unidad de la flota inscrita de acuerdo con los términos del Decreto número 16379-MOPT y los montos que no se utilicen en un año no podrán ser acumulados para uso posterior para lo cual regirán los períodos anuales a partir de la fecha de vigencia del presente Decreto.

@@ -1,2 +1,0 @@
-Artículo 5°-Los montos de las exenciones de cada ruta o línea, serán aplicados por el Ministerio de Obras Públicas y Transportes, como compensación del diferencial tarifario cuando exista una diferencia entre la tarifa resultante de los estudios y la tarifa fijada al usuario. Para futuras fijaciones tarifarias, el Ministerio de Transportes podrá utilizar los costos de los insumos exonerados a la hora de estudiar las tarifas.
-Dado en la Presidencia de la República.-San José, a los dieciséis días del mes de diciembre de mil novecientos ochenta y cinco.
