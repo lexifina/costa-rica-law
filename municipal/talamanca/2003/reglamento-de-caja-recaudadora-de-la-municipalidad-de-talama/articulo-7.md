@@ -1,0 +1,1 @@
+Artículo 7º—Al final del día el cajero entrega el dinero a Tesorería, quien prepara el depósito bancario, con lo que ha quedado después de los depósitos parciales efectuados durante el día y guarda en su caja fuerte lo correspondiente al fondo fijo.

@@ -1,0 +1,1 @@
+Artículo 10.—Las ausencias de el cajero deben ser suplidas por un funcionario adiestrado para ese fin, el cual deberá rendir garantía fiduciaria, a este funcionario se le debe equipar el salario base, mientras ocupe temporalmente este puesto.

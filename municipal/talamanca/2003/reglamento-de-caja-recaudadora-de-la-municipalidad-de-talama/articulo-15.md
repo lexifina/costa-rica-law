@@ -1,0 +1,1 @@
+Artículo 15.—La caja recaudadora estará ubicada contiguo a la oficina de rentas y funcionará independiente a esta, salvo comunicación por medio de una ventanilla, por lo cual el cajero recibirá los mandatos de ingresos que el usuario ha solicitado.
