@@ -1,0 +1,1 @@
+Artículo 37.—Los alumnos tendrán representación en los órganos del Instituto, para lo cual deberán dar a conocer al Consejo Académico, para su ratificación, el reglamento que fija las normas de su organización.

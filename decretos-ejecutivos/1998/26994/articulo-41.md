@@ -1,0 +1,1 @@
+Artículo 41.—La Comisión Técnica del Coro tiene la finalidad de asesorar al Director Artístico y ser el enlace entre este y las diferentes voces pertenecientes al Coro. Sus criterios no son vinculantes.

@@ -1,0 +1,1 @@
+Artículo 7°—Excepto el Ministro, perderá la calidad de miembro de la Junta Administrativa el que dejare de asistir sin justa causa a cuatro sesiones ordinarias consecutivas o seis no consecutivas dentro de un mismo semestre.

@@ -1,0 +1,1 @@
+Artículo 16.—El personal artístico interino es aquel que obtenga en el concurso la máxima calificación. Laborará en la Orquesta bajo contrato por tiempo definido, al cabo del cual podrá someterse de nuevo a concurso.
