@@ -1,6 +1,1 @@
-Artículo 8°—Se pierde la calidad de asociado:
-a) Por renuncia expresa;
-b) Por renuncia tácita al incumplirse el pago de cuatro cuotas regulares;
-c) Por expulsión definitiva, y
-d) Por muerte.
-La separación implica renuncia a todos los derechos adquiridos excepto los irrenunciables por imperativo legal.
+Articulo 8°—El Ministerio de Educación Pública concederá licencia con goce de sueldo, a los asociados que desempeñen cargos bajo su jurisdicción con el objeto de concurrir a las sesiones de los Congresos Nacionales de Educadores.
