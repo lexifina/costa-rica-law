@@ -1,0 +1,1 @@
+Artículo 21.—La Comisión coordinará con las instancias correspondientes, la incorporación de la temática de discapacidad y equiparación de oportunidades en la capacitación, la divulgación y el sistema de información del Ministerio.
