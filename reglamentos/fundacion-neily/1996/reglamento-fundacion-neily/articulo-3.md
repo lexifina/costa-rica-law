@@ -1,0 +1,1 @@
+Artículo 3°-La JFN deberá tener todos los años para ello de enero listo un informe contable de las actividades de la Fundación al 30 de noviembre anterior, que deberá enviar a la Contraloría General de la República.

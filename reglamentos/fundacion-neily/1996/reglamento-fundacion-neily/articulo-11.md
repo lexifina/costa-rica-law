@@ -1,0 +1,1 @@
+Artículo 11.-Es obligación de la Junta Administrativa realizar los estudios a las solicitudes que se presenten para los diferentes fines de la Fundación, sin importar aspectos políticos, religiosos, color, etc.

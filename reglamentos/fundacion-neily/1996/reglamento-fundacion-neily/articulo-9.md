@@ -1,0 +1,1 @@
+Artículo 9°-La JFN de acuerdo con la mayoría, está facultado para promover y firmar convenios, para recibir donaciones del estado, cualquier organización u organismo extranjero, lo mismo que personas físicas.

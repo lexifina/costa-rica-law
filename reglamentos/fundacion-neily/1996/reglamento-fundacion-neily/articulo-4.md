@@ -1,0 +1,1 @@
+Artículo 4°-La Administración y Dirección estará a cargo de la Junta Administrativa, constituida por 5 miembros: Presidente, vicepresidente, secretario, tesorero y vocal, correspondiendo la representación judicial y extrajudicial al presidente, con facultades de apoderado general.
