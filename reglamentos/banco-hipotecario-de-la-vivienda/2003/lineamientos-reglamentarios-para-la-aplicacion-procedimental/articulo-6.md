@@ -1,0 +1,1 @@
+Artículo 6º—El acto de apertura del procedimiento administrativo, lo mismo que el acto final, serán dictados por la Junta Directiva del BANHVI. Contra este último acto sólo procede el recurso de reposición para el agotamiento de la vía administrativa.
