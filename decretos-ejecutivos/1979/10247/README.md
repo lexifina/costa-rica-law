@@ -17,3 +17,4 @@ Estatuto de los Servidores del Fondo del Plan Nacional de Desarrollo.
 | 2 | 1980-03-24 | Decreto Ejecutivo 11365 (1980-03-24) |
 | 3 | 1982-06-25 | Decreto Ejecutivo 13712 (1982-06-25) |
 | 4 | 1983-10-14 | Decreto Ejecutivo 14939 (1983-10-14) |
+| 5 | 1984-08-16 | Decreto Ejecutivo 15625 (1984-08-16) |

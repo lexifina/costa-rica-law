@@ -1,2 +1,2 @@
-Artículo 32.—Recargo de Funciones. En los casos de recargo de funciones de jefaturas, se reconocerá la diferencia salarial correspondiente, sin que el pago pueda exceder del 20% del salario del funcionario que sustituye, siempre y cuando el recargo no sea menor de un mes.
-El recargo de funciones deberá ser acordado por el Director Adjunto de la Oficina.
+Artículo 32.—Recargo de Funciones. En los casos en que a un servidor, se le recargare el puesto de Director de División, de cualquier otra jefatura que el Ministerio autorice mediante el respectivo acuerdo y de Secretaria del Ministerio o del Viceministro. Devengará el sueldo base correspondiente a dichas categorías, salvo que el sueldo del puesto que ocupare regularmente fuere mayor. El recargo de funciones solo se reconocerá cuando el mismo se efectura por plazos mayores de un mes.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 15625 del 16 de agosto de 1984)
