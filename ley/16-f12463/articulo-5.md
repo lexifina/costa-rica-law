@@ -1,0 +1,3 @@
+Art. 5. La raya que divide la jurisdiccion polìtica entre Esparza y las Minas, será en lo sucesivo, “San Mateo y cerro de Santo Domingo.’’—
+Al Consejo Representativo—Dado en San José á los tres dias del mes de Mayo de mil ochocientos treinta y uno—José Nereo Fonseca, D. Presidente.—Josè Julian Blanco, D. Secretario.—Manuel Alvarado, D. Secretario.—Sala del Consejo—San José Mayo nueve de mil ochocientos treinta y-uno.-Pase al Poder Ejecutivo.—Josè Rafael de Gallegos, Presidente.—José Anselmo Sancho, Secretario.—Por tanto: ejecutese
+San José Mayo nueve de mil ochocientos treinta y uno.—Juan Mora—Al C. Joaquin Bernardo Calvo.’’
