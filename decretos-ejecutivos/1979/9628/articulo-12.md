@@ -1,0 +1,1 @@
+Artículo 12.—Para realizar los respectivos estudios de investigación, los particulares deberán pedir autorización a la Dirección General Forestal, acatar los lineamientos dados por ella a ese efecto y pagar el canon correspondiente.

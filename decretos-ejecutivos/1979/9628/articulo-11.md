@@ -1,0 +1,1 @@
+Artículo! 11.—Si los planes técnicos han sido elaborados por los particulares, éstos podrán formular las correspondientes solicitudes de áreas forestales, casos en los que, de ser aprobadas, la Dirección General Forestal otorgará la concesión respectiva, sujeta igualmente a las condiciones establecidas en el contrato que a ese efecto deberá firmar el interesado.

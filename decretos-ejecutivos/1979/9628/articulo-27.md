@@ -1,0 +1,1 @@
+Artículo 27.—Serán. separados de sus cargos, sin responsabilidad de ninguna índole para el Estado, los funcionarios de la Dirección General Forestal y autoridades que contravengan las disposiciones de este reglamento, o que amparen acciones u omisiones que vayan en perjuicio de sus finalidades.

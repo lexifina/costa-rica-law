@@ -1,0 +1,1 @@
+Artículo 3°—El Poder Ejecutivo, por medio del Ministerio de Agricultura y Ganadería, procederá mediante decretos ejecutivos, una Vez efectuados los estudios e investigaciones del caso, a las declaraciones de reservas forestales de aquellas áreas, estatales o privadas, que así lo requieran.

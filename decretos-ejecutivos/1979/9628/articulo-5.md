@@ -1,0 +1,1 @@
+Artículo 5°—El aprovechamiento de los productos forestales en las reservas forestales estará en función de planes de ordenamiento y manejo, que determinen las cantidades anuales de aprovechamiento y las normas técnicas silviculturales a seguir.

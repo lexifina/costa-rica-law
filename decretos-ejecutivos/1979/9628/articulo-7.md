@@ -1,0 +1,1 @@
+Artículo 7°—En las zonas protectoras comprendidas dentro de las áreas declaradas “Reserva Forestal” es prohibido efectuar labores agrícolas o destruir la vegetación, salvo casos excepcionales a juicio de la Dirección General Forestal.

@@ -1,0 +1,1 @@
+Artículo 2°—Para los fines de este reglamento, se entenderá por Reserva Forestal una área boscosa, o de aptitud forestal, de reconocida capacidad productiva y linderos definidos señalados en el respectivo Decreto Ejecutivo, destinada al aprovechamiento forestal racional, de acuerdo a los planes técnicos que formulen la Dirección General Forestal o los particulares.

@@ -1,0 +1,1 @@
+Artículo 6°—Las reservas forestales funcionarán como unidades productoras de materia prima, procurando al mismo tiempo la incorporación de nuevas especies al mercado nacional y buscando la mayor utilización de ellas.

@@ -1,0 +1,1 @@
+Artículo 23.—Queda facultado el Poder Ejecutivo, por medio del Ministerio de Agricultura y Ganadería, para excluir de las reservas forestales aquellos terrenos de aptitud agropecuaria reducidos a dominio particular que no sean necesarios para su integración.

@@ -1,0 +1,1 @@
+Artículo 22.—El Ministerio de Agricultura y Ganadería, a través de la Dirección General Forestal, podrá delegar en otras instituciones del Estado parte de las reservas forestales de su propiedad, siempre que se comprometan a manejarlas de acuerdo con los principios estipulados en la Ley Forestal y el presente reglamento.

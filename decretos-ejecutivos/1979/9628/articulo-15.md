@@ -1,0 +1,2 @@
+Artículo 15.—Ninguna persona podrá disfrutar simultáneamente de más de una concesión cuando se trate de la explotación de una misma especie de productos. Serán absolutamente nulas aquellas que se celebren directamente o a través de interpuestas personas en contravención a lo aquí dispuesto.
+Las concesiones se darán hasta por un máximo de 50 años, y solamente podrán ser prorrogadas previa aprobación de la Asamblea Legislativa.
