@@ -1,0 +1,1 @@
+Transitorio: Las personas que revalidaren su pensión de conformidad con la presente ley, tendrán derecho a que se les gire el importe de las que no hubieren retirado por no haber hecho a su debido tiempo la revalidación correspondiente.
