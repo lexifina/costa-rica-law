@@ -1,0 +1,1 @@
+Artículo 6°—La suma que se asigne por concepto de gastos de representación en el exterior podrá girarse en colones al tipo de cambio a la fecha en que ésta se entregue, o bien en dólares, según la moneda en que se haya recibido el adelanto. El tipo de cambio que se utilizará para calcular el reintegro en colones será el de la fecha de entrega del adelanto.

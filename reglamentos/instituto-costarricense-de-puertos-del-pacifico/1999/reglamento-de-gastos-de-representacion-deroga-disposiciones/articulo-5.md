@@ -1,0 +1,1 @@
+Artículo 5°—Corresponde a la Junta Directiva autorizar y fijar, en el respectivo acuerdo de viaje, el monto del gasto de representación y establecer el tipo de atención que el funcionario que goce de esa prerrogativa puede brindar a las personas con que se relacionará en cumplimiento de su misión.
