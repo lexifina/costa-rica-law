@@ -1,0 +1,1 @@
+Art. 4. La presente tarifa regirá provisionalmente hasta tanto se emita la general que debe designar las dotaciones de todos los funcionarios pùblicos del Estado.--Dado en la ciudad de Cartago á los dieziocho dias del mes de agosto de mil ochocientos cuarenta y siete. –José Maria Castro –Al Ministro de hacienda y guerra Señor Don Francisco Maria Oreamuno.
