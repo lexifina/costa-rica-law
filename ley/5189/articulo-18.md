@@ -1,6 +1,6 @@
-Artículo 18.- La Asociación podrá abrir cuentas corrientes y de
-cualquier clase en los bancos del Sistema Bancario Nacional. Para tal
-efecto, los cheques o cualesquiera otros documentos con que deban
-operarse estas cuentas deberán estar firmados por el Presidente o el
-Vicepresidente de la Junta Directiva, pero acompañándose forzosamente
-esta firma con la del Tesorero de dicha Junta Directiva.
+ARTICULO 18.- Los apoderados de la Asociación acreditarán su
+personería mediante certificados emanada del Secretario de la Junta
+Directiva, la cual hará referencia al acuerdo de su nombramiento y a la
+publicación que del mismo deberá hacerse en el Diario Oficial, La Gaceta.
+(Así adicionado por el artículo 1º de la ley No.5894 de 12 de marzo
+de 1976. Además, corre la numeración de los artículos restantes)
