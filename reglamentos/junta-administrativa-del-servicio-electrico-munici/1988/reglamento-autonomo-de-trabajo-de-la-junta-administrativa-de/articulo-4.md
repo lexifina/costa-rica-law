@@ -1,1 +1,0 @@
-Articulo 4°—Cuando un servidor sea ascendido o trasladado a desempeñar otra cargo, sea éste con igual o mayor remuneración, los primeros sesenta días naturales se considerarán como periodo de prueba, pudiendo cualquiera de las partes solicitar el regreso a su antigua posición en las mismas condiciones.

@@ -1,1 +1,0 @@
-Articulo 24.—Sin perjuicio del derecho que asiste a los servidores en forma ininterrumpida sus vacaciones, los jefes de común acuerdo con estos, podrán convenir en fraccionarlas en dos periodos, siempre que no se perjudique la continuidad y eficiencia del servicio.

@@ -1,1 +1,0 @@
-Articulo 78.—Los servidores que se acojan a la licencia con goce de salario para estudios deben suscribir un contrato de conformidad con los términos establecidos en el Reglamento de Becas y en el presente instrumento legal.

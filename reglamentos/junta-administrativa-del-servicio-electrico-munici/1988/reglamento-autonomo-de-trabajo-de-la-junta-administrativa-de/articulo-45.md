@@ -1,3 +1,0 @@
-Articulo 45.—Se entenderá como concurso externo, la invitación que haga la Administración a todas aquellas personas que no sean funcionarios de JASEC, a efecto de que presenten ofertas de servicios para los puestos requeridos. Este procedimiento de escogencia de personal será utilizado cuando un concurso interno haya sido declarado desierto. La convocatoria respectiva se hará a través de la prensa nacional.
-Excepto que se cuente con registro de elegibles.
-(Así AMPLIADO por la Sesión N° 2307, publicada en La Gaceta N° 16 de 25 de enero de 1988, la cuál adicionó el párrafo segundo al presente artículo.)

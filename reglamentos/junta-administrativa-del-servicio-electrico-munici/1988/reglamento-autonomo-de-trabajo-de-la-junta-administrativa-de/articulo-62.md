@@ -1,1 +1,0 @@
-Articulo 62.—De las llegadas tardías: El trabajador deberá presentarse al lugar de trabajo que se le haya asignado a la hora indicada para el inicio de su jornada. La ausencia de marca en la tarjeta de asistencia o cualquier otro sistema de control legalmente establecido se considerará como ausencia, salvo prueba en contrario.

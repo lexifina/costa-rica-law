@@ -1,2 +1,0 @@
-Articulo 81.—En caso de fallecimiento de un trabajador, la Junta reconocerá por concepto de sepelio y gastos de funeral hasta la suma de veinte mil colones; monto que deberá ser revisado y actualizado cada año.
-Para los efectos anteriores la Oficina de Personal confeccionará una boleta donde cada funcionario reportará el o los nombres de los beneficiarios directos, así como el porcentaje que les corresponde. La Junta pagará el monto nicho a las personas autorizadas en la boleta respectiva.

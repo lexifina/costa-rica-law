@@ -1,1 +1,0 @@
-Articulo 14.—Para los fines dichos, el interesado deberá acreditar su antigüedad mediante certificación o documento público idóneo expedido por funcionario competente con clara especificación de fechas y puestos desempeñados. En ningún caso. se computará como doble el tiempo que en forma simultánea haya servido en dos o más entidades.

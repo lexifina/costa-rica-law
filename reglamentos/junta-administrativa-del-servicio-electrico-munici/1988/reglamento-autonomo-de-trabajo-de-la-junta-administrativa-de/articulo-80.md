@@ -1,1 +1,0 @@
-Articulo 80.—Las servidoras que comprobaran estar incapacitadas por la Caja Costarricense de Seguro Social, debido a maternidad, disfrutarán de un descanso de cuatro meses distribuidos así: un mes antes y tres meses después del alumbramiento, debidamente remunerado conforme con la ley.

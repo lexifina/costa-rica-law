@@ -1,1 +1,0 @@
-Articulo 20.—El derecho a la vacación anual se tiene cuando el servidor haya prestado sus servicios durante cincuenta semanas de labor continua, sin embargo, si por cualquier causa el servidor no hubiere completado dicho plazo tendrá opción a disfrutar vacaciones proporcionales en el tanto que corresponda, por cada mes trabajado a criterio de su inmediato superior.
