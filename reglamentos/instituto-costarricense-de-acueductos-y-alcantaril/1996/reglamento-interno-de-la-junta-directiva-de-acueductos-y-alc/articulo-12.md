@@ -4,4 +4,5 @@ a) Lectura, discusión y aprobación de las actas.
 b) Correspondencia.
 c) Asuntos de la Presidencia, Gerencia y Auditoría.
 d) Mociones y proposiciones de los miembros de la Junta Directiva.
-e) Asuntos varios que podrán ser propuestos por los directores o los miembros auxiliares. En este aparte no se podrán adoptar acuerdos.
+e) Asuntos varios que podrán ser propuestos por los directores o los miembros auxiliares. Los asuntos varios propuestos por los señores directores, serán objeto de comentario y discusión y sobre los mismos, la junta directiva podrá tomar los acuerdos que considere pertinentes.
+(Así reformado mediante acuerdo tomado por la Junta Directiva, en su sesión N° 45 del día 6 de septiembre de 1998.)
