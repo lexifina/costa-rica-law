@@ -1,0 +1,1 @@
+Artículo 2°─ Se autoriza al Instituto Geográfico Nacional para interpretar estos límites, y se declaran oficiales los mapas de los distritos de Pital y de Cutris, con su respectiva toponimia, que prepare en su oportunidad la citada Institución.
