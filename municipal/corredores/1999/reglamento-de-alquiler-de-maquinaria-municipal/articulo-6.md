@@ -1,0 +1,1 @@
+Artículo 6°-Los salarios devengados por los operarios en el período que permanezca el alquiler correrán por cuenta de la Municipalidad y el equipo solo podrá ser utilizado por el personal autorizado para ello por la Municipalidad, en ningún caso la persona física o jurídica que alquile la maquinaria correrá con gastos de seguros, extras o sobresueldos que se generen.

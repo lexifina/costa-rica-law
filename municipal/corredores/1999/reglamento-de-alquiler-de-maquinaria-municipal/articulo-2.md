@@ -1,0 +1,1 @@
+Artículo 2°-Para los efectos del presente reglamento la maquinaria que se podrá alquilar será la considerada Maquinaria Pesada o equipo especial, sea ésta la utilizada en obras de construcción de gran volumen y recolección de vías contemplará la maquinaria existente y cualquiera otra que en el futuro se adquiera por parte de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 8°-En supuestos en los que por causas especiales la obra para la cual fue alquilada la maquinaria se retrasara en el tiempo la misma se extenderá por un período máximo de tres días si durante ese espacio de tiempo las obras no concluyen la Municipalidad retirará la maquinaria sin que exista responsabilidad para la Municipalidad.

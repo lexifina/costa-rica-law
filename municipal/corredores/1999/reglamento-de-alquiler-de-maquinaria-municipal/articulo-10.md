@@ -1,0 +1,1 @@
+Artículo 10.-De resultar el precio de la obra no acorde a la realidad del mercado el Alcalde Municipal podrá determinar el precio por hora o por contrato que considere oportuno en ambos casos deberá existir memorial razonado que justifique tal decisión.

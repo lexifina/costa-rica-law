@@ -1,0 +1,2 @@
+Artículo 4°-Deberá existir un contrato por escrito debidamente autenticado por un abogado donde se detallen concretamente las obras que se realizarán a fin de que los encargados del equipo no excedan ni extralimiten los recursos para los cuales fueron alquilados.
+Dicho contrato no podrá ser contrario a la Ley, la moral y las buenas costumbres, los gastos legales correrán por cuenta de la parte de la arrendadora.

@@ -1,0 +1,1 @@
+Artículo 3°-En todo caso, siempre es prioritario, el fin público, por eso en aquellos casos en que se haya comprometido el alquiler de la maquinaria y surja un imprevisto donde se involucre el fin público, se atenderá en primer orden la emergencia o imprevisto y luego el compromiso adquirido.
