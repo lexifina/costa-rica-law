@@ -1,0 +1,4 @@
+Artículo 6º—Recibida en tiempo y forma la recusación, el Ministro ordenará que le sea remitido por quien corresponda el respectivo expediente administrativo y dará audiencia por tres días al negociador recusado. Asimismo, podrá recabar los informes y ordenar las otras pruebas que considere oportunas, todo dentro de los cinco días siguientes al vencimiento del plazo de la citada audiencia. Vencido este último plazo, el Ministro dictará una resolución fundada.
+Si el Ministro no acogiere la recusación, devolverá el expediente al negociador recusado o a quien corresponda, para que el negociador recusado continúe conociendo del asunto.
+Si la recusación fuere declarada procedente, en la misma resolución el Ministro señalará al negociador sustituto.
+Las resoluciones serán notificadas al recusante y al recusado y tendrán los recursos ordinarios, todo conforme a lo dispuesto en la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 4º—Cuando se dé alguna de las causas de abstención descritas en el artículo 5° de la Ley de Negociaciones, el negociador respectivo lo comunicará por escrito al Ministro de Comercio Exterior. Para tales efectos se seguirá, en lo pertinente, el procedimiento previsto en los artículos siguientes.

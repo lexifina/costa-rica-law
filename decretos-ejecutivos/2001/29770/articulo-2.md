@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con lo dispuesto en el artículo 2° de la Ley de Negociaciones, son de interés público los procesos de negociación comercial mediante los cuales el país procura su inserción en el comercio internacional.

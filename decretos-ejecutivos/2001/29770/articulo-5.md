@@ -1,0 +1,2 @@
+Artículo 5º—En caso de recusación planteada por quien tenga interés legítimo, la solicitud deberá presentarse debidamente fundamentada y por escrito ante el Ministro de Comercio Exterior.
+En el escrito deberá indicarse el nombre del negociador recusado, la negociación o negociaciones específicas a que se refiere la recusación y las causales de recusación que presuntamente son aplicables conforme al artículo 5° de la Ley de Negociaciones. Asimismo, el recusante deberá aportar las pruebas de que disponga, incluyendo aquéllas relativas a la demostración de su interés legítimo.

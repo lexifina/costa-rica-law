@@ -1,0 +1,2 @@
+Artículo 8º—Los negociadores están obligados a plantear la abstención ante el Ministro, cuando respecto a una negociación específica en la que deban participar se dé alguna de las causales previstas en el artículo 5° de la Ley de Negociaciones.
+Si un negociador estimare que respecto a él o ella se da alguno de los casos de excepción previstos en los incisos a) y b) del artículo 5° de la Ley de Negociaciones, lo pondrá en conocimiento del Ministro por escrito, quien resolverá siguiendo lo indicado en los artículos anteriores, en lo que sea racionalmente aplicable.
