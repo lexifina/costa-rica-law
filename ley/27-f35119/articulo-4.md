@@ -1,0 +1,1 @@
+Art 4°.- El Juez de Hacienda será dotado únicamente con los derechos que se causen en su Juzgado; a excepción de aquellos que correspondían a la Intendencia general, que deben entrar íntegros en la Administración principal, cada fin de mes.
