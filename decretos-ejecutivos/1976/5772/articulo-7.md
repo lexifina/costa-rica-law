@@ -1,3 +1,0 @@
-Artículo 7°.- Los alumnos que no aprobaren alguna de las asignaturas o cursos de cualquiera de los núcleos, complementario o de tecnología, tendrán derecho a presentar pruebas por suficiencia en los meses de mayo y setiembre del curso inmediato. Estas pruebas pueden ser teóricas o prácticas según la naturaleza de las asignaturas o cursos de los núcleos complementario o tecnológico al finalizar el último año de la rama que cursan, tendrán derecho a presentar en las pruebas ordinarias de aplazados.
-Asimismo, tendrán derecho a pruebas extraordinarias, según lo dispuesto por los artículos 27 y 28 del Reglamento de Evaluación y Normas de Promoción de la Educación General Básica.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 7061 del 26 de mayo de 1977)

@@ -1,1 +1,0 @@
-Art 28°.- La nota inferior a 65 repetidas en dos trimestres u obtenida en el último trimestre, obligará al alumno a presentar pruebas de aplazados en todas las asignaturas en que tengan un promedio final inferior a 75.

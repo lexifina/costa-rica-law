@@ -1,1 +1,0 @@
-Art 38°.- El Ministerio de Educación Pública, establecerá los procedimientos técnicos y administrativos indispensables que contribuyan a garantizar la calidad de los alumnos graduados, junto con los mecanismos de registro y control conducentes al otorgamiento del diploma en mención, en cada establecimiento educativo.
