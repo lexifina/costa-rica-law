@@ -1,0 +1,21 @@
+ARTÍCULO 41.- Tarifa, modificaciones y reajuste
+1.- La tarifa podrá ser expresada en moneda nacional o extranjera, y
+será la que resulte del contrato de concesión, con sus correspondientes
+reajustes.
+2.- Las tarifas resultantes del contrato se entenderán como máximas,
+por lo que el concesionario podrá reducirlas, salvo que el cartel lo haya
+prohibido expresamente. El concesionario podrá definir las políticas
+comerciales, ya sea mediante descuentos por pago pronto, cantidad, uso
+frecuente u otras consideraciones, siempre que no sean discriminatorias
+para los usuarios.
+3.- Los reajustes de las tarifas y sus metodologías de revisión serán
+fijados en el cartel.
+4.- En caso de discrepancia entre el concesionario y la
+Administración concedente, respecto de los resultados obtenidos por la
+aplicación de las metodologías de revisión consignadas en el contrato, el
+concesionario podrá apelar la decisión de la Administración concedente,
+dentro de los tres días hábiles siguientes a la notificación. Esta
+Administración trasladará la apelación, junto con el expediente del
+contrato de concesión, a la Autoridad Reguladora de los Servicios Públicos
+para que resuelva en definitiva, en un plazo máximo de cinco días hábiles.
+La resolución de la Autoridad Reguladora agotará la vía administrativa.

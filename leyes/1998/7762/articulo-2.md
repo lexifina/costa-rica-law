@@ -1,0 +1,22 @@
+ARTÍCULO 2.- Cobertura
+1.- Toda obra y su explotación son susceptibles de concesión cuando
+existan razones de interés público, que deberán constar en el expediente
+mediante acto razonado. Se exceptúan de la aplicación de esta ley las
+telecomunicaciones y la electricidad.
+2.- Los ferrocarriles, las ferrovías, los muelles y los aeropuertos
+internacionales, tanto nuevos como existentes, así como los servicios que
+ahí se presten, únicamente podrán ser otorgados en concesión mediante los
+procedimientos dispuestos en esta ley.
+3.- En el caso de los muelles de Limón, Moín, Caldera y Puntarenas,
+por esta ley, únicamente podrán ser concesionadas las obras nuevas o las
+ampliaciones que ahí se realicen y no las existentes.
+El setenta por ciento (70%) de lo que la Administración obtenga por
+lo dispuesto en el artículo 42.1 a) de esta ley, en razón de las obras
+nuevas o ampliaciones que se concesionen en los citados muelles, será
+girado a la Junta de la Administración Portuaria de la Vertiente Atlántica
+y el Instituto Costarricense de Puertos del Pacífico, según corresponda,
+para ser destinado exclusivamente a inversiones en obras de las
+respectivas provincias, sin que pueda utilizarse para cubrir gastos
+administrativos.
+Transcurrido el plazo de estas concesiones, dichas obras pasarán a la
+titularidad de los entes mencionados, según corresponda.

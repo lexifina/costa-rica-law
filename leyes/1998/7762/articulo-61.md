@@ -1,0 +1,78 @@
+ARTÍCULO 61.- Suspensión de pagos y quiebra del concesionario
+1.- Como acto previo a la solicitud de declaratoria de quiebra, el
+concesionario que no pueda cubrir sus obligaciones tendrá la facultad de
+apersonarse ante el juez civil de su domicilio, para solicitarle una
+suspensión de pagos por un plazo máximo de tres meses, contados a partir
+de la resolución que autoriza la suspensión, con el objeto de que, durante
+el primer mes de este período, presente una proposición de convenio para
+el pago de los acreedores.
+2.- El concesionario deberá acompañar su solicitud de suspensión de
+pagos, con los siguientes documentos:
+a) Un estado de sus obligaciones con el nombre completo y domicilio
+de cada uno de los acreedores, el monto de la deuda, el plazo, los
+intereses convenidos y la fecha en que cesó el pago.
+b) Una exposición clara y detallada de las causas determinantes del
+estado de cesación de pagos.
+c) El estado general de la explotación de la concesión, junto con un
+cuadro demostrativo de gastos e ingresos.
+d) La contabilidad de todos los libros, comprobantes y facturas.
+El juzgado no dará trámite a la solicitud de suspensión pedida por el
+concesionario, si no aportare los documentos mencionados. Cualquier
+información falsa o dato inexacto de los requeridos en este punto, además
+de la responsabilidad penal que implica, será motivo suficiente para que
+el juez declare la quiebra.
+3.- Presentada la solicitud de suspensión, acompañada de los
+documentos requeridos, el juez autorizará la suspensión de pagos, para lo
+cual dispondrá de cinco días hábiles, contados a partir de la solicitud.
+La resolución del juez paralizará todo trámite ejecutivo contra el
+concesionario.
+4.- Para aprobar el convenio, una vez presentada la propuesta será
+indispensable publicar, en La Gaceta y dos diarios de circulación
+nacional, un edicto que convoque a los acreedores para que acudan a
+adherirse a la proposición del convenio o acuerden modificarla, en el
+término de los dos meses restantes del plazo referido en el punto 1.
+5.- Si se alcanzare la mayoría de dos terceras partes de los
+acreedores, el juez aprobará el convenio que será obligatorio para todos
+los interesados. Si, por el contrario, fuere imposible alcanzar esta
+mayoría o si se incumpliere el convenio, se declarará la quiebra de la
+sociedad concesionaria.
+6.- También procede la declaratoria de quiebra, a instancia de la
+Administración concedente o algún acreedor, cuando el concesionario
+abandone, de hecho o de derecho, la explotación de la concesión o se
+resuelva el contrato de concesión. En tales casos, para verificar el
+abandono, la Administración concedente dispondrá hasta de veinticuatro
+horas contadas a partir del momento en que tenga conocimiento del hecho o
+adquiera firmeza el acto que resuelve el contrato de concesión. Una vez
+verificado, la Administración concedente procederá a nombrar un
+interventor, quien asumirá la administración y explotación temporal de la
+concesión hasta la integración de la Junta de Intervención referida en el
+punto siguiente.
+El interventor temporal estará obligado a depositar judicialmente los
+ingresos provenientes de la explotación de la concesión, una vez deducidos
+y pagados los gastos de administración y explotación. Asimismo, deberá
+proceder a depositar los recursos en efectivo o los valores que tenga el
+concesionario en el momento de la intervención, y a exhibir los libros y
+documentos pertenecientes a la sociedad, cuando proceda, y el juez lo
+autorice a instancia de parte.
+7.- Declarada la quiebra por el juez, y firme la resolución, se le
+notificará a la Administración concedente, que, dentro de los cinco días
+hábiles siguientes, procederá a integrar una Junta de Intervención,
+compuesta por tres miembros designados por esta Administración de la
+siguiente manera:
+a) Un representante de la Administración concedente, quien presidirá
+la Junta.
+b) Uno escogido de una terna presentada por la masa de acreedores.
+c) Un representante del Consejo Nacional de Concesiones.
+A los miembros de la Junta de Intervención se les remunerará de
+conformidad con lo que, para el efecto, disponga el reglamento de esta
+ley.
+8.- La Junta de Intervención tendrá las obligaciones, facultades,
+atribuciones y responsabilidades señaladas en el Código de Comercio para
+el curador en un proceso normal de quiebra.
+9.- Dentro de los seis meses siguientes a la firmeza de la resolución
+que declara la quiebra del concesionario y conforme a las reglas que se
+determinan en el artículo siguiente, se procederá a rematar el derecho a
+la explotación del conjunto de bienes objeto de la concesión, por el plazo
+que reste para el vencimiento.
+10.- En lo no previsto en este artículo, se aplicará supletoriamente
+el Código de Comercio.

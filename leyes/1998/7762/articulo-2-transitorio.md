@@ -1,0 +1,1 @@
+Transitorio II.- El Poder Ejecutivo dispondrá las medidas presupuestarias que correspondan, con el propósito de dotar al Fondo Nacional de Concesiones, de los recursos económicos necesarios para iniciar sus operaciones.

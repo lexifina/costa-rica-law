@@ -1,0 +1,7 @@
+ARTÍCULO 66.- Régimen salarial de los trabajadores portuarios
+El Consejo Nacional de Salarios fijará el régimen de salario mínimo
+de los trabajadores portuarios que regirá para las ampliaciones de los
+muelles existentes y de los nuevos que se concesionen. Dicha fijación no
+podrá ser inferior a la que se encuentre vigente para los trabajadores
+portuarios del país en la zona respectiva al momento de iniciar la
+explotación de la concesión.
