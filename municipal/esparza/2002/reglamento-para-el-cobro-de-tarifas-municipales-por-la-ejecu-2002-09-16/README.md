@@ -14,3 +14,4 @@ Reglamento para el cobro de tarifas municipales por la ejecución de las obligac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-11-06 | la propia norma |
+| 2 | 2004-08-23 | Reglamento 17 (2004-08-23) |
