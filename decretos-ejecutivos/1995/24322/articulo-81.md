@@ -1,1 +1,0 @@
-Artículo 81°- Certificaciones, valor de las mismas. La plenitud, limitación o restricción de los derechos inscritos y todo lo que conste en la unidad de información, podrá acreditarse auténticamente con relación a terceros mediante las certificaciones emitidas por esta Institución, las cuales irán firmadas por aquellos funcionarios autorizados legalmente para ello.

@@ -1,1 +1,0 @@
-Artículo 51°- Calificación de documentos por parte de la Dirección. Una vez calificado el documento por el Jefe de Departamento y, habiendo éste confirmado el defecto, se someterá el mismo a calificación por parte de la Dirección; el pronunciamiento de ésta es de obligatorio acatamiento para el Registrador y su inobservancia se considerará falta grave.

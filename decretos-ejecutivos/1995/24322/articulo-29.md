@@ -1,1 +1,0 @@
-Artículo 29°- Del Departamento de Certificaciones. Al Departamento de Certificaciones le corresponde la expedición de las certificaciones que se solicitan sobre la información registrada y que consta en la unidad de información, lo cual harán por los medios de que dispongan en coordinación con la Dirección, con la intención de brindar un eficiente servicio.

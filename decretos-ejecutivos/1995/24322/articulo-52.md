@@ -1,1 +1,0 @@
-Artículo 52°- Revocatoria de suspensión de documentos. La Dirección, bajo su propia responsabilidad, puede revocar la suspensión de inscripción de un documento ordenada por el Registrador. En tal caso ordenará por escrito que la inscripción sea autorizada por el Registrador, cumpliendo así con lo estipulado en el artículo anterior.

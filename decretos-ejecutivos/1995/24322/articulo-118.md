@@ -1,1 +1,0 @@
-Artículo 118°- Resolución final por parte del Tribunal respectivo. Una vez resuelto lo que corresponda por el Tribunal respectivo y devuelto el expediente, la Dirección procederá de acuerdo con la resolución dictada.

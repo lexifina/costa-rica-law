@@ -1,1 +1,0 @@
-Artículo 75°- Base de Datos. La base de datos constituye un medio de registración en donde se transcribe el contenido del estado jurídico registral de cada inmueble, sociedad mercantil, persona, asociación y cualquier otra inscripción que se lleve a cabo en este Registro, con el fin de cumplir con el principio de especialidad.

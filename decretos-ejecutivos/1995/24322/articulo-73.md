@@ -1,1 +1,0 @@
-Artículo 73°- De la información contenida en los asientos. El asiento de inscripción se confeccionará suministrando la información requerida en cada caso, dependiendo de las especificaciones necesarias para su debida registración.

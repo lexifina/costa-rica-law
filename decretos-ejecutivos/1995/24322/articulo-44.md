@@ -1,1 +1,0 @@
-Artículo 44°- Indice de Documentos sujetos a inscripción, que por su naturaleza no poseen citas de inscripción. En la Sección del Diario se llevará un índice de los documentos sujetos a inscripción en los Registros de Asociaciones, Mercantil y Personas, y de cualquier otro título que por su naturaleza no posea citas de inscripción.

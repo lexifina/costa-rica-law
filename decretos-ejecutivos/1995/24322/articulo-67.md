@@ -1,1 +1,0 @@
-Artículo 67°- Validez de los Títulos. La inscripción no convalida los actos o contratos inscritos que sean nulos o anulables conforme a la ley, sin perjuicio de lo establecido en el artículo 456 del Código Civil.

@@ -1,1 +1,0 @@
-Artículo 24°- Prohibición de intervenir en la redacción de documentos sujetos a inscripción en el Registro. Es prohibido a los empleados del Registro intervenir en la redacción de documentos sujetos a Registro y en su presentación, trámite e inscripción.

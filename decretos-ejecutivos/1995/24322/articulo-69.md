@@ -1,6 +1,0 @@
-Artículo 69°- Excepciones al principio del Tracto Sucesivo. No será necesaria la previa inscripción o anotación, a los efectos de la continuidad del tracto sucesivo, con respecto al documento que se otorgue en los siguientes casos:
-a) Cuando el documento sea otorgado o expedido por los jueces, herederos declarados o sus representantes, en cumplimiento de contratos u obligaciones inscritos a su nombre.
-b) Cuando los herederos declarados o sus sucesores trasmitieren o cedieren bienes hereditarios inscritos a nombre del causante.
-c) Cuando se trate de instrumentos otorgados en forma simultánea y se refieran a negocios jurídicos que versen sobre el mismo inmueble, aunque en las respectivas autorizaciones hayan intervenido distintos funcionarios.
-d) Cuando se inscriban simultáneamente los documentos por los cuales se adquirió la titularidad del derecho transmitido y su adquisición, o en el supuesto del artículo 455 del Código Civil.
-En todos estos casos, el documento deberá expresar la relación de los antecedentes de éste o de los derechos motivo de la transmisión o adjudicación, a partir del que figure inscrito o pendiente de inscripción en el Registro, circunstancia que se consignará en el folio respectivo.

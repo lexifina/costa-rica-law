@@ -1,1 +1,0 @@
-Artículo 82°- Medios y formas de extender certificaciones. El Registro podrá expedir certificaciones de la información contenida únicamente en los asientos registrados, lo cual se hará utilizando los recursos técnicos de que disponga. El sistema por medio el cual se expedirán éstas lo determinarán la Dirección o la Subdirección.

@@ -1,1 +1,0 @@
-Artículo 36°- Del Departamento de Encuadernación. A este Departamento le corresponde la encuadernación de todos los libros que se consideren necesarios encuadernar. Además, deberá realizar todos los trabajos atinentes a su actividad que la Dirección le asigne.

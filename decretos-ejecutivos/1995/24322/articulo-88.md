@@ -1,1 +1,0 @@
-Artículo 88°- Requisitos del documento para ser inscrito. Los documentos en donde se constituyen cédulas hipotecarias, deberán observar los requisitos establecidos en el artículo 63 de este Reglamento.

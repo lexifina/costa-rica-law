@@ -1,2 +1,0 @@
-Artículo 60°- Inscripción de vías de ferrocarriles, canales, carreteras y calles públicas. No será necesaria la inscripción de la propiedad de vías de ferrocarril, canales, carreteras y calles públicas en el Registro.
-Sin embargo el testimonio de la escritura en donde se constituye, deberá presentarse al Registro para hacer las referencias y disminución de cabidas en las fincas respectivas con indicación del plano, catastrado.

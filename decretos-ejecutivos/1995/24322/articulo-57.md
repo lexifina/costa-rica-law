@@ -1,1 +1,0 @@
-Artículo 57°- Anotaciones caducas. El Registrador, al calificar un documento, hará caso omiso de las anotaciones caducas y de las inscripciones prescritas y, al momento de su inscripción, las cancelará.

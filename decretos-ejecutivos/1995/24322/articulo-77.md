@@ -1,1 +1,0 @@
-Artículo 77°- La digitalización. La digitalización es un medio auxiliar de la publicidad registral que consiste en la captura de imágenes por medio de un almacenamiento y captura, utilizando un dispositivo electrónico, las cuales se guardan en la base de datos y pueden ser consultables.

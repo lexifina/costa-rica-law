@@ -1,1 +1,0 @@
-II- Mientras no se implemente totalmente el nuevo sistema de Propiedad Inmueble, permanecerá vigente el Decreto Ejecutivo número 9885-J de 16 de abril de 1979 y sus reformas, para todo lo que se considere necesario.

@@ -1,1 +1,0 @@
-III- Todos los actos registrales autorizados por los Registradores y sus asistentes principales, a partir de la implantación del nuevo sistema de registro a la fecha de promulgación de este decreto, tendrán toda su validez, y efecto legal.

@@ -1,1 +1,0 @@
-Artículo 42°- Recepción de imágenes. La recepción de la imagen de los documentos que se presenten al Diario, se hará por los medios técnicos que el Registro considere pertinentes, a fin de cumplir con el control y la publicidad que ellos requieren.

@@ -1,2 +1,0 @@
-Artículo 122°- De la revisión de la Boleta de Seguridad. El Registrador a quien se le asignó la registración del documento, deberá corroborar que la boleta que lo acompaña corresponda a las asignadas al notario o al funcionario público respectivo; de no ser así, el Registrador deberá cancelarle la presentación.
-La omisión de esta obligación por parte del Registrador será tenida como falta grave, y será sancionado conforme lo dispone el Reglamento Autónomo de Servicios del Ministerio de Justicia y Gracia.

@@ -1,1 +1,0 @@
-Artículo 97°- Del Registro Mercantil. En el Registro Mercantil se inscribirá todo lo indicado en el artículo 235 del Código de Comercio y cualquier otro acto o contrato que por ley o reglamento se indicare. En el asiento donde se practique la inscripción se indicará la información más importante, para los efectos de la publicidad del acto o contrato que se registra.

@@ -1,1 +1,0 @@
-Artículo 78°- Microfilmación. La microfilmación es otro medio técnico auxiliar de la registración, por medio del cual se garantiza plenamente el principio de literalidad, en relación a los actos o contratos registrables, presentados a este Registro.
