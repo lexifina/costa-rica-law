@@ -1,0 +1,1 @@
+Artículo 18.—Las diferentes municipalidades del país, serán directamente responsables de velar porque los programas y proyectos que hayan sido aprobados por los Concejos Distritales Ampliados, en cumplimiento de lo estipulado en el inciso c3 del Artículo 4° de la Ley 7TO citada, y en observancia de la normativa relativa a la votación contenida en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 50.—La acumulación de intereses que se generen de los recursos correspondientes a partidas específicas, deberá incorporarse al principal, en las mismas condiciones establecidas por la ley que le dio origen al beneficio.

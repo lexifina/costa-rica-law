@@ -1,0 +1,1 @@
+Artículo 29.—La Tesorería Nacional diseñará además del formulario para la emisión de constancias de avance de obra o ejecución de programas que deben llenar las municipalidades, el correspondiente a la solicitud de giro de recursos a las cuentas de los beneficiarios, los que deberán suscribirlas.

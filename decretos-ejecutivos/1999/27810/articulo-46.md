@@ -1,0 +1,1 @@
+Artículo 46.—Los Concejos Distritales Ampliados tomarán los acuerdos por mayoría simple, pudiendo quedar firmes en el mismo acto en que se adopten. Cuando en una votación se produzca un empate, se votará de nuevo en el mismo acto, y de empatar otra vez, el asunto se tendrá por desechado.

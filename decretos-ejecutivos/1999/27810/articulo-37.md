@@ -1,0 +1,1 @@
+Artículo 37.—Las entidades bancarias están en la obligación de realizar los depósitos en un plazo máximo de veinticuatro horas, por medio de la acreditación en las cuentas destinadas para tales efectos.

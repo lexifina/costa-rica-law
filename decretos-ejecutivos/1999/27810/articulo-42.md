@@ -1,0 +1,1 @@
+Artículo 42.—Para fines de identificación, selección y definición de programas y proyectos de inversión, los Concejos Distritales Ampliados podrán celebrar las sesiones extraordinarias que se requieran, debiendo convocarse las mismas por lo menos con veinticuatro horas de antelación.

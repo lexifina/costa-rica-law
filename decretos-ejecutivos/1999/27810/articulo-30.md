@@ -1,0 +1,1 @@
+Artículo 30.—Las Municipalidades y Entidades Idóneas beneficiarías de partidas específicas, deberán registrar ante el Área de Gestión Pagos de la Tesorería Nacional, las firmas de los responsables de tramitar el giro y retiro de los fondos y cualquier otro asunto relacionado con las partidas específicas.

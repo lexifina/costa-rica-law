@@ -1,0 +1,3 @@
+CAPITULO V
+De los procedimientos de la ejecución del pago
+Artículo 31.—La Tesorería Nacional es la dependencia encargada de la ejecución de la emisión y pago correcto a favor de las personas autorizadas para la administración de las partidas específicas. Por ello, se encargará de velar por la existencia de los controles, suficientes y adecuados que garanticen la correcta emisión y ejecución del pago correspondiente a las partidas específicas aprobadas, requiriendo en algunas oportunidades a las entidades bancarias o a los destinatarios, la información necesaria que se refiera al pago de estos fondos públicos, para realizar los estudios de control y fiscalización que resulten necesarios.

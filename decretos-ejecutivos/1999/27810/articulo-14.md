@@ -1,0 +1,2 @@
+Artículo 14.—Los Concejos Distritales deberán durante la segunda quincena del mes de marzo, convocar a las diferentes Entidades Idóneas del distrito inscritas ante la Municipalidad, con el propósito de darles a conocer el monto que corresponde al distrito por concepto de partidas específicas, así como los requisitos que deben de cumplir en su presentación y elaboración, los diferentes proyectos y programas a realizar.
+Tales requisitos serán definidos mediante circular que emita la Contraloría General de la República.
