@@ -12,3 +12,4 @@ Procedimiento Reubicación en Propiedad por Regionalización Educativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-01-04 | la propia norma |
+| 2 | 1982-01-04 | SINALEVI (sin norma nombrada) |
