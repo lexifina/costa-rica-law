@@ -1,0 +1,1 @@
+Artículo 9°—La Proveeduría no dará curso a solicitud alguna si no se ajusta a las condiciones descritas, la que devolverá a la dependencia interesada a más tardar el día hábil siguiente, haciendo notar las razones que se tiene para eüoa efecto de que sea corregida.

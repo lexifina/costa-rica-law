@@ -1,0 +1,1 @@
+Artículo 53.---Las ventas de productos perecederos, tales como banano, arroz, tendrán un trámite preferencial en el sentido de que se debe aplicar los topes mínimos de tiempo permitido para el recibo de ofertas. Lo anterior por cuanto se pueden dañar si transcurre mucho tiempo para el trámite de venta.

@@ -1,0 +1,1 @@
+Artículo 28.—La adjudicación de una licitación se hará a la persona física o jurídica que suscriba la oferta correspondiente. Ningún contrato podrá ser traspasado por la persona favorecida sin el conocimiento previo y expreso del Instituto y de la Contraloría General de la República.

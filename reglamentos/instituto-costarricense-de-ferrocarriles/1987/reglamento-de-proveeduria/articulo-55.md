@@ -1,0 +1,2 @@
+Artículo 55.—Cuando se trate de venta de vehículos automotores y previo al traspaso respectivo, el comprador deberá cancelar los impuestos que correspondan .
+La proveeduría informará al Departamento de Servicios Generales el nombre del adjudicatario, así como todas las calidades personales o bien la personería jurídica cuando se trate de otra institución o empresa, a fin de que se realicen los trámites de traspaso del vehículo que se esté vendiendo.

@@ -1,0 +1,1 @@
+Artículo 38.—Entre las condiciones o bases del mismo se indicará cuáles elementos serán tomados en cuenta para la calificación final de las ofertas y el porcentaje o grado de incidencia correspondiente a cada uno de ellos en la valoración total.

@@ -1,0 +1,1 @@
+Artículo 58.—La Proveeduría deberá efectuar la inscripción para fines de registro previo en el Banco Central de Costa Rica, de todos aquellos pedidos al exterior, para efectos de concesión de divisas por parte del citado Banco.

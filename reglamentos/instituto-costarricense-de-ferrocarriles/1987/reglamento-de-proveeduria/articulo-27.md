@@ -1,0 +1,1 @@
+Artículo 27.—Cuando convenga a los intereses del Instituto, se podrá adjudicar total o parcialmente una licitación, declarada desierta o distribuirla entre los oferentes, cuando fuere técnica y legalmente divisible, sin que por tal motivo los interesados tengan derecho a reclamar contra el Instituto.

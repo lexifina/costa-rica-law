@@ -1,0 +1,3 @@
+Artículo 20.—Sin perjuicio de lo dispuesto en el artículo 110 del Reglamento de la Contratación Administrativa, transcurrido el término para el recibo de ofertas se procederá inmediatamente a la apertura de las recibidas, en presencia de los interesados que asistan, el Proveedor o su Delegado, así como el Departamento interesado en el concurso, si lo tiene a bien hacerse presente.
+Caso contrario, dicho trámite se realizará con la sola presencia del Jefe de Proveeduría o su Delegado.
+La determinación de las horas que se indican en las licitaciones se hará mediante el reloj oficial del Instituto, el cual regirá también para marcar la hora de recepción de cada una de las ofertas.

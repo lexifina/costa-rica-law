@@ -1,0 +1,5 @@
+Artículo 25.—El Jefe de Dirección o del Departamento respectivo y el Proveedor, una vez que se haya formulado un juicio completo sobre las ofertas aceptadas, prepararán el correspondiente informe, conforme lo estipulado en el artículo anterior, dentro de un plazo máximo de quince días hábiles distribuidos así:
+a) Hasta días diez hábiles para la Dirección o Departamento; y
+b) Hasta cinco días hábiles para el Proveedor.
+Dicho informe debe estar acompañado de un cuadro sinóptico que contenga en forma comparativa las oferta, los precios, condiciones de pago y entrega, especificaciones, etc. Además contendrá todos los antecedentes y cada uno de los distintos pasos del trámite de la licitación, así como el resultado del estudio de las ofertas, acompañando a este informe las ofertas originales debidamente consignadas en el expediente que llevará la Proveeduría de cada licitación.
+Cuando se trate de licitaciones especiales en que el plazo para resolverlas sea mayor de treinta días hábiles, el término que tendrá el Departamento respectivo y el Proveedor para estudiar las ofertas y rendir el correspondiente informe, podrá ser fijado por el Presidente Ejecutivo.

@@ -1,0 +1,3 @@
+Artículo 18.—Las ofertas deberán presentarse en las oficinas de la Proveeduría en el papel respectivo con cuatro copias, además de los documentos necesarios, en sobre cerrado con la leyenda indicada en el cartel de licitación, dentro del término señalado en el aviso.
+El Departamento de Proveeduría registrará la fecha y la hora de recibo en los sobres, debiendo ponerles el número de recibo que extenderá a los interesados. Estos sobres deberán mantenerse bajo custodia, debidamente cerrados, hasta el momento señalado para la apertura de las ofertas.
+Las ofertas presentadas después de la hora señalada para su apertura no serán recibidas.

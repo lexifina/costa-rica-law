@@ -1,0 +1,1 @@
+Artículo 6°—Para determinar las fuentes de aprovisionamiento, la Proveeduría deberá llevar registros actualizados de proveedores y por clase de mercancías en orden alfabético, que le permita suministrar antecedentes en las relaciones con el Instituto, de manera que con ellos se pueda realizar la mejor compra.

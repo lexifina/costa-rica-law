@@ -1,0 +1,1 @@
+Artículo 12.—En caso de urgencia apremiante el Presidente Ejecutivo podrá ordenar la compra directa de materiales o equipos, sin el trámite de cotización indicado en el artículo 11, incisos a), b) y c), debiendo posteriormente hacerlo del conocimiento del Consejo Directivo.

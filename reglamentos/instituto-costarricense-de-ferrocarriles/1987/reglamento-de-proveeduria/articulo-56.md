@@ -1,0 +1,2 @@
+Artículo 56.—Para los efectos de venta el Proveedor podrá solicitar toda te información que considere conveniente al Departamento respectivo o a cualquier persona física o jurídica que tenga relación con la venta.
+Además deberá asegurarse que el interesado no es empleado del Instituto, que lo que vaya a vender es propiedad del mismo y que los oferentes no se encuentran dentro de la imposibilidad legal que establecen los artículos 95 y 96 del Reglamento de la Contratación Administrativa.
