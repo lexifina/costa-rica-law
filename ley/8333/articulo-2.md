@@ -1,0 +1,3 @@
+Artículo 2º—El Ministerio de (*)Justicia y Paz mantendrá sobre la propiedad donada una servidumbre de paso en relación con la calle pública que está en el lindero norte de esa propiedad; dicha servidumbre tendrá una extensión de 7,90 m, correspondientes a los establecidos en los derroteros 1 y 2 del supra citado plano catastral. Asimismo, deberá tener una línea imaginaria que inicie desde el punto dos de los derroteros en dirección este, para una distancia total de 53,2 m. La servidumbre deberá constar claramente en la eventual escritura pública de donación que para los efectos elabore la notaría del Estado.
+(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
+Rige a partir de su publicación.
