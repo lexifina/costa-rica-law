@@ -1,0 +1,1 @@
+Artículo 6º—Concluida la emergencia, el Servicio Fitosanitario del Estado remitirá la liquidación presupuestaria al Ministro de Agricultura y Ganadería y este a la Contraloría general de la República para lo que corresponda.
