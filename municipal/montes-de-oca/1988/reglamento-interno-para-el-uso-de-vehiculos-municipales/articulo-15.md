@@ -1,0 +1,1 @@
+Artículo 15.- El conductor de un vehículo es responsable de que el mismo se mantenga en buenas condiciones de funcionamiento y responderá por los daños que le sucedan si se llegare a comprobar imprudencia, impericia o negligencia en su manejo o infracciones a las leyes de tránsito.

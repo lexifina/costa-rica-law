@@ -1,0 +1,1 @@
+Artículo 10.- Cada Municipalidad llevará un control de kilometraje de los vehículos haciendo anotaciones correspondientes antes de cada salida y a la llegada del vehículo, indicando destino y objetivo.

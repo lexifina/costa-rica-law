@@ -1,0 +1,1 @@
+Artículo 5°.- Ninguna persona que conduzca vehículos de la Institución podrá estacionarlo cerca de lugares, que o su condición de centros de diversión u otros, puedan lesionar la imagen de la Municipalidad.

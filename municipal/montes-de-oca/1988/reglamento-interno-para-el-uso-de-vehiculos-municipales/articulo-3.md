@@ -1,0 +1,1 @@
+Artículo 3°.- Es terminantemente prohibido portar o consumir bebidas alcohólicas o cualquier tipo de drogas en los vehículos de la Institución, Quien lo haga se hará acreedor a las sanciones disciplinarias contempladas en los artículo 153 y 154 del Código Municipal.
