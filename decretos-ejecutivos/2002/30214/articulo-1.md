@@ -88,7 +88,7 @@ Museo Histórico Juan Santa María | 89,1
 Museo Nacional | 571,5
 Museo Rafael A. Calderón Guardia | 57,6
 Oficina del Arroz | 140,6
-Oficina de Cooperación Internacional de la Salud OCIS (Así adicionado por el artículo 1° del decreto ejecutivo N° 30824 de 22 de octubre de 2002) (Así REFORMADO PARCIAL Y TÁCITAMENTE por el artículo 1° del Decreto Ejecutivo N° 31387 de 24 de setiembre de 2003, publicado en La Gaceta N° 196 de 13 de octubre de 2003.) | 4.042,3
+Oficina de Cooperación Internacional de la Salud OCIS (Así adicionado por el artículo 1° del decreto ejecutivo N° 30824 de 22 de octubre de 2002) (Así REFORMADO PARCIAL Y TÁCITAMENTE por el artículo 1° del Decreto Ejecutivo N° 31387 de 24 de setiembre de 2003, publicado en La Gaceta N° 196 de 13 de octubre de 2003.) (Así REFORMADO PARCIAL Y TÁCITAMENTE por el artículo 1° del Decreto Ejecutivo N° 31541 de 26 de noviembre de 2003, publicado en La Gaceta N° 244 de 18 de diciembre de 2003.) | ¢4.167,3
 Oficina Nacional de Semillas (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31264 de 23 de junio de 2003) | 161.5
 Patronato de Construcciones, Instalaciones y Adquisición de Bienes (Así adicionado por el artículo 1° del Decreto ejecutivo N° 30824 de 22 de octubre de 2002) | 2.685.5
 Patronato Nacional de Ciegos (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31317 de 24 de julio de 2003, publicado en La Gaceta N° 159 de 20 de agosto de 2003.) | 35.3
