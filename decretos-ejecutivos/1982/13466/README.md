@@ -17,3 +17,4 @@ Reglamento General de los Riesgos del Trabajo
 | 2 | 1983-01-27 | Decreto Ejecutivo 14317 (1983-01-27) |
 | 3 | 1983-04-07 | Decreto Ejecutivo 14426 (1983-04-07) |
 | 4 | 1984-01-31 | Decreto Ejecutivo 15262 (1984-01-31) |
+| 5 | 1988-01-08 | Decreto Ejecutivo 17963 (1988-01-08) |
