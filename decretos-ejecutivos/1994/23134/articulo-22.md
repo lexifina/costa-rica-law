@@ -1,0 +1,1 @@
+Artículo 22.-En ausencia de los responsables del manejo de las Subcajas Chicas Auxiliares de cada región, deberá designarse un nuevo responsable y se le entregará el fondo mediante arqueo previo por parte del Oficial Presupuestal, por el Departamento Financiero Contable o por la Auditoría Interna de MIDEPLAN a solicitud del Oficial Presupuestal o quien haga las veces de éste.

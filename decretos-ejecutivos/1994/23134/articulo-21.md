@@ -1,0 +1,1 @@
+Artículo 21.-Cualquier faltante que se produzca al momento de practicarse el arquco, deberá ser cubierto de inmediato por el responsable del Fondo; en caso de sobrante, deberá ser depositado en la Caja única del Estado mediante Entero de Gobierno, del cual se enviará copia a la Tesorería Nacional del Ministerio de Hacienda.

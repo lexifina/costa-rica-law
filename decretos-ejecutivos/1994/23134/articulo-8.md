@@ -1,0 +1,1 @@
+Artículo 8°-Todo pago por medio de Subcaja Chica Auxiliar deberá contar con su correspondiente contenido presupuestario y será responsable del Oficial Presupuestal o el funcionario que haga las veces de éste, velar por el cumplimiento de esta disposición.

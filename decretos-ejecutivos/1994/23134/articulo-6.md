@@ -1,0 +1,2 @@
+Artículo 6°-Periódicamente y sin previo aviso, el Departamento Financiero Contable, o la Auditoria Interna de MIDEPLAN efectuarán arqueos de Subcajas Chicas Auxiliares e informarán de los resultados al Ministro y al Oficial Presupuestal.
+El control de las Subcajas Chicas Auxiliares estará sujeto también a arqueos por parte de la Contraloría General de la República y de la Tesosería Nacional del Ministerio de Hacienda, por lo cual el funcionario responsable estará obligado a brindar toda la información que se le solicite.

@@ -1,0 +1,1 @@
+Artículo 23.-Los responsables de las Subcajas Chicas Auxiliares deberán presentar trimestralmente arqueos al Departamento Financiero Contable de MIDEPLAN. Estos arqueos deberán hacerse llegar a este Departamento en el transcurso de los primeros cinco días hábiles del mes siguiente.

@@ -1,0 +1,1 @@
+Artículo 5-Las Subcajas Chicas Auxiliares deberán ajustarse a las disposiciones del presente Reglamento, de la Ley de la Administración Financiera de la República, del Reglamento de la Contratación Administrativa y del Reglamento de Gastos de Viaje y de Transporte para Funcionarios del Estado emitido por la Contraloría General de la República. .
