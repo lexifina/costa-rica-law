@@ -1,0 +1,1 @@
+Artículo 21: LEGISLACIÓN COMPLEMENTARIA: En lo no previsto en estas Normas, se aplicarán las disposiciones de la Ley del Sistema Financiero Nacional para la Vivienda y la Ley General de la Administración Pública.
