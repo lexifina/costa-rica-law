@@ -1,0 +1,1 @@
+Artículo 7º—De la Dirección General de Cultura. La Dirección General de Cultura fijará el número y los montos de cada Beca-Taller para Proyectos de Desarrollo Artístico- Cultural y, conjuntamente con los respectivos Directores Regionales deberá dar seguimiento a los proyectos, de acuerdo a las recomendaciones que al efecto emita la Comisión Evaluadora.
