@@ -1,0 +1,1 @@
+Artículo 5°-La Sección de Defensa Agrícola del Departamento Nacional de Agricultura, una vez enterada de la presencia de la plaga, organizará sin dilación la campaña de exterminio de la langosta, en la zona o zonas indicadas por las autoridades, enviando al efecto los delegados, materiales y equipos necesarios.
