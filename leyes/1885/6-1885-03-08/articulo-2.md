@@ -1,0 +1,2 @@
+Art. 2°-El producto de los "Billetes de Aduana", á que se refiere el artículo 4: del citado decreto, ingresará al Banco de la Unión, y quedará allí á disposición del Gobierno, para hacer frente á los gastos que ocasionen las presentes circunstancias.
+Dado en la ciudad de Puntarenas, á los ocho días del mes de marzo de mil ochocientos ochenta y cinco. -P. FERNÁNDEZ. -Palacio Presidencial. -San José, á los nueve días del mes de marzo de mil ochocientos ochenta y cinco. -El Secretario de Estado en el des- pacho de Hacienda, BERNARDO SOTO.
