@@ -1,0 +1,1 @@
+Artículo 5º—Gestión por Competencia en el Sector Público. El CONOCETE mediante los respectivos mecanismos de coordinación interinstitucional fomentará en el Sector Público y Privado la gestión por competencias.
