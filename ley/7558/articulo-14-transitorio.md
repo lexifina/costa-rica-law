@@ -1,0 +1,1 @@
+TRANSITORIO XIV.- Hasta el momento en que entre en vigencia la Ley No. 7494, del 2 de mayo de 1995, léase en lo aplicable Ley de Administración Financiera de la República y Reglamento de la Contratación Administrativa.

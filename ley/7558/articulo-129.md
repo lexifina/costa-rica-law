@@ -1,0 +1,2 @@
+Artículo 129.- Aceptación de criterios de la Superintendencia
+Los criterios que establezca la Superintendencia, en cuanto al registro contable de las operaciones de las entidades fiscalizadas, la confección y presentación de sus estados financieros, sus manuales de cuentas, la valuación de sus activos financieros y la clasificación y calificación de sus activos, deberán ser aceptados para efectos tributarios.

@@ -1,0 +1,2 @@
+Artículo 61.- Operaciones de mercado abierto
+El Banco Central podrá realizar operaciones de mercado abierto, mediante captaciones o emisión de títulos propios. También podrá efectuarlos en el mercado secundario de valores, sea con obligaciones propias o de entidades sujetas a la fiscalización de la Superintendencia General de Entidades Financieras. Para el caso del mercado secundario, deberá efectuarlas mediante procedimientos que aseguren la transparencia de su participación y de acuerdo con las condiciones del mercado.
