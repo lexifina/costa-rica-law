@@ -1,1 +1,0 @@
-Artículo 6º.-Los miembros representantes de los colegio profesionales, serán escogidos de una terna que enviarán al Ministerio de Recursos Naturales, Energía y Minas, un mes antes del vencimiento del plazo durante el cual fungirán los miembros designados con anterioridad, conforme con el acuerdo ejecutivo correspondiente.

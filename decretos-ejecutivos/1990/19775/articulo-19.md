@@ -1,2 +1,0 @@
-Artículo 19.-Les está terminantemente prohibido a los miembros de La Comisión, elaborar, participar o refrendar directa o indirectamente Estudios de Impacto Ambiental.
-En caso de que tengan algún interés directo o indirecto en la resolución de determinado caso, deberán retirarse del salón de sesiones cuando La Comisión revise los Estudios de Impacto Ambiental correspondientes, y no podrán participar en las deliberaciones ni en la votación para la aprobación, rechazo u observaciones sobre los mismos, como tampoco en la resolución de los recursos que se interpusieren.

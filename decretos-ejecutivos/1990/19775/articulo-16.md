@@ -1,1 +1,0 @@
-Artículo 16.-La Comisión deberá responder a las necesidades de eficiencia en el análisis de los Estudios de Impacto Ambiental, de conformidad con las normas específicas, viables y funcionales para la protección de la naturaleza, permitiendo el desarrollo racional de los recursos naturales no renovables.

@@ -1,1 +1,0 @@
-Artículo 17.-La Dirección de Geología y Minas, por medio de su Sección Ambiental, será la oficina responsable de la ejecución y seguimiento de los acuerdos y recomendaciones de la Comisión. El Director de Geología y Minas será el enlace directo entre La Comisión y dicha Sección Ambiental, debiendo coordinar lo pertinente.

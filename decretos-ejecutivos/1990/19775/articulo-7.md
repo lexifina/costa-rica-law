@@ -1,1 +1,0 @@
-Artículo 7º.-La Comisión se reunirá ordinariamente una vez por semana, en día y hora fijos que ella misma señalará. La agenda se hará del conocimiento de sus miembros en la sesión anterior. Las sesiones extraordinarias serán convocadas por el presidente con al menos tres días de anticipación, mediante nota escrita que contendrá la agenda de la respectiva sesión.

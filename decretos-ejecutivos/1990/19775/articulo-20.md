@@ -1,2 +1,0 @@
-Artículo 20.-La Comisión devolverá a la Sección Ambiental de la Dirección de Geología y Minas, los Estudios de Impacto Ambiental inmediatamente después de concluido su análisis, discusión y evaluación.
-Sin perjuicio de lo anterior, los miembros de La Comisión podrán solicitar a la Sección Ambiental los Estudios de Impacto Ambiental ya aprobados, para consultarlos como referencia, debiendo devolver los mismos en un plazo no mayor de dos días.

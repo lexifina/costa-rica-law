@@ -1,1 +1,0 @@
-Artículo 11.-Las notificaciones de los acuerdos de La Comisión deberá hacerlas la Sección Ambiental al Director de Geología y Minas, dentro de los tres días siguientes a la aprobación del acta respectiva, y este notificará lo pertinente al permisionario o concesionario dentro de igual plazo. De ambos trámites deberá remitirse copia al Registro Nacional Minero.

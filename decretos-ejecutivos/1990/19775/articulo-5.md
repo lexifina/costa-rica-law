@@ -1,3 +1,0 @@
-CAPITULO III
-Del funcionamiento
-Artículo 5º.-Los miembros de La Comisión no percibirán remuneración alguna por su labor dentro de la misma. El concesionario o permisionario depositará en el Departamento Administrativo de la Dirección de Geología y Minas, los viáticos y gastos de transporte que aquellos requieran cuando deban desplazarse al campo. Para realizar las inspecciones que correspondan. En monto de dicho concepto será el que al efecto establece el Reglamento de Gastos de Viaje y de Transporte para Funcionarios o Empleados del Estado, publicado en "La Gaceta" número 110 de 9 de junio de 1989.

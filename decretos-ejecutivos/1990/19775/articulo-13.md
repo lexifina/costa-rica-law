@@ -1,1 +1,0 @@
-Artículo 13.-Las actas de las sesiones serán aprobadas en la sesión ordinaria inmediata siguiente. Antes de dicha aprobación, carecerán de firmeza los acuerdos tomados en la respectiva sesión. Las actas serán firmadas por todos los miembros presentes.
