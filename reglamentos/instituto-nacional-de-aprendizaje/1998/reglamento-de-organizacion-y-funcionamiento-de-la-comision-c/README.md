@@ -14,3 +14,4 @@ Reglamento De Organización Y Funcionamiento De La Comisión Central Y De Las Su
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-03 | la propia norma |
+| 2 | 2003-09-08 | Reglamento 4076 (2003-09-08) |

@@ -1,3 +1,4 @@
-CAPITULO III
-Subcomisiones de Emergencias
-Artículo 6°—La CCE podrá crear en las Unidades Regionales que así lo requieran, subcomisiones que se encarguen de la ejecución de los programas definidos por la CCE.
+CAPÍTULO III
+Subcomisiones de Emergencia
+Artículo 6º—La C.C.E. cuando así lo requiera podrá crear subcomisiones que se encarguen de la ejecución de programas definidos por ésta.
+(Reformado mediante Sesión N° 4076 del 08 de setiembre de 2003)
