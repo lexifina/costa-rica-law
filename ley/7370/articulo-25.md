@@ -1,0 +1,2 @@
+ARTICULO 25.- Autorízase a la Asamblea Legislativa a utilizar los recursos provenientes del Convenio de Cooperación Técnica no reembolsable, suscrito entre ella y el Banco Interamericano de Desarrollo, para el financiamiento parcial del plan de modernización.
+De ser necesario la Asamblea Legislativa podrá abrir una cuenta especial, en cualquier banco del Sistema Bancario Nacional, para el manejo de dichos recursos y contra esa cuenta únicamente se girarán cheques firmados por el Presidente o el Vicepresidente de la Asamblea Legislativa.

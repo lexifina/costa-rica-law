@@ -1,0 +1,1 @@
+ARTICULO 42.- Autorízase al Ministerio de Hacienda para emplear los recursos no utilizados por concepto de amortización de los "Bonos Deuda Interna", en poder de la Tesorería Nacional, para cubrir faltantes en intereses de la deuda pública interna.

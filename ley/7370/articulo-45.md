@@ -1,0 +1,2 @@
+ARTICULO 45.- Modifícase el artículo 32 de la Ley No. 7216 del 26 de diciembre de 1990, adicionada por el artículo 10 de la Ley Nº 7280 del 24 de diciembre de 1991, para que se agregue un nuevo párrafo, cuyo texto dirá:
+..."Los recursos, los valores, el interés y otros que se han dicho, serán aplicados en un veinticinco por ciento a la indemnización señalada y el setenta y cinco por ciento restante será aplicado a programas de reactivación del sector agropecuario y a cubrir programas de reactivación social y económico."

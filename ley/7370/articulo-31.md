@@ -1,0 +1,1 @@
+ARTICULO 31.- Modifícase la Ley No.7358, Título 117, Programa 759, 6 transferencias corrientes, 664 transferencias a instituciones descentralizadas públicas, código 207-30, en el sentido de que la frase que dice: "para construcción de pista atlética Estadio Nacional", se sustituya por: "Obras varias en instalaciones deportivas, recreativas y administrativas de la DGEFD".
