@@ -1,0 +1,5 @@
+DECRETO XL
+Entiende la franquicia del Puerto y Comarca del Limón
+La Comisión Permanente.
+Considerando: que es de grande importancia para los intereses de la Nación el impulsar por todos los medios el adelanto y progreso del Puerto de Limón, terminó del Ferrocarril en el Atlántico que la franquicia concedida por decreto de 4 de setiembre del año próximo pasado, no ha podido producir todos los buenos efectos que eran de esperarse, producir todos los buenos efectos que eran de esperarse, por la excepción que contiene el artículo 3° que estando al terminarse el contrato celebrado con la Empresa del Ferrocarril, por el cual se le concedió el privilegio de la importación y expendio de licores en el referido Puerto de Limón, es llegado el tiempo en el referido Puerto de Limón, es llegado el tiempo de dar a la franquicia toda su extensión, decreta:
+Art 1° La franquicia concedida a la Comarca del Limón, por decreto de 4 de setiembre de 1872, se extiende a todos los artículos de comercio, aun los monopolios fiscales, a partir desde el día 18 de febrero del año próximo de 1874.
