@@ -1,1 +1,1 @@
-Artículo 130.- Sin perjuicio de las que estén previstas en la ley, la Corte Suprema de Justicia establecerá, mediante acuerdo que se publicará en el Boletín Judicial, las funciones de los actuarios, según la materia y la cuantía de los asuntos.
+Artículo 130.- (Derogado por el artículo 23 de la Ley N° 7728 de 15 de diciembre de 1997).

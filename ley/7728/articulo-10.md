@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Reformas del título IV
+Refórmanse enunciados de los artículos 95, 97, 98, 99 y 100 del Título IV de la Ley Orgánica del Poder Judicial, No. 8, de 29 de noviembre de 1937 y sus reformas, para que donde dice "superiores", se lea correctamente "colegiados". Refórmase además, la denominación del capítulo IV, del mismo Título IV , para que en adelante se lea "De los tribunales de trabajo de menor cuantía".

@@ -1,1 +1,0 @@
-Artículo 28.- El Presidente del Tribunal será nombrado por la Corte Plena entre los Jueces que lo integran y actuará como Jefe del Tribunal en lo administrativo, pero sin que sus decisiones puedan prevalecer sobre el criterio de la mayoría de los integrantes del Tribunal.

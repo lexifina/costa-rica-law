@@ -1,1 +1,0 @@
-Artículo 31.- Mientras no se establezcan Tribunales separados de apelación y de juicio, los Tribunales Superiores Penales tendrán esas funciones, conforme a la distribución que disponga la Corte Plena.

@@ -1,1 +1,0 @@
-Artículo 47.- No obstante lo dispuesto en el párrafo segundo del artículo 45, la Sala Penal podrá ordenar de oficio antes de la vista o debate o de dictar sentencia, según corresponda, la elevación del asunto a la Sala Superior Penal, si tuviere conocimiento o llegare a comprobar que efectivamente existe jurisprudencia contradictoria.

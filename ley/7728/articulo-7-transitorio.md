@@ -1,0 +1,1 @@
+TRANSITORIO VII.- En relación con las causas que deban continuar su tramitación de conformidad con el Código de Procedimientos Penales, Ley No. 5377, de 19 de octubre de 1973, las funciones encomendadas al agente fiscal, al fiscal de juicio y al de apelaciones las podrán realizar el fiscal auxiliar, el fiscal o el fiscal adjunto a que se refiere esta ley.

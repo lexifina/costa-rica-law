@@ -1,1 +1,0 @@
-Artículo 26.- El Juzgado Penal de Hacienda se convertirá en Juzgado Penal común de San José; pero mantendrá ese nombre para conocer de los asuntos a que se refiere el artículo anterior, sin perjuicio de que conozca también de otros delitos, según la distribución de trabajo que haga la Corte Plena.

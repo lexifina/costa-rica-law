@@ -1,1 +1,0 @@
-Artículo 60.- Las Salas Penales de la Corte remitirán a los Tribunales Superiores Penales de San José y al Tribunal Superior de Alajuela, en su caso, los asuntos que tengan sin resolver a la fecha en que esta ley entre en vigencia.
