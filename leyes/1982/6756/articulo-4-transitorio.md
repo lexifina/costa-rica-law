@@ -1,0 +1,1 @@
+IV.-El Consejo Nacional de Cooperativas en un plazo de 60 días a partir de la promulgación de esta ley, convocará la asamblea de las cooperativas de autogestión para nombrar los 10 delegados que se integrarían al Consejo Nacional de Cooperativas y se deberá proceder a llenar las nuevas plazas en el directorio.

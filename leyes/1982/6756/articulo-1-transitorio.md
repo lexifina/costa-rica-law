@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+I.-Noventa días contados a partir de la promulgación de la presente ley, una comisión ad hoc, compuesta por delegados de la Oficina de Planificación Nacional y Política Económica y del Instituto Nacional de Fomento Cooperativo, en consulta con el Consejo Nacional de Cooperativas y la Comisión Permanente de Cooperativas de Autogestión, presentarán al Poder Ejecutivo el reglamento de la presente ley para su aprobación.

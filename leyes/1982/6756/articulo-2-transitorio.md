@@ -1,0 +1,1 @@
+II.-Las cooperativas, uniones o federaciones debidamente inscritas que decidan convertirse en cooperativas, uniones o federaciones de autogestión en los términos que esta ley establece, lo harán de pleno derecho y su inscripción para todos los efectos legales contará a partir del momento que el Instituto Nacional de Fomento Cooperativo le dé ese carácter.
