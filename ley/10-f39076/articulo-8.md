@@ -1,0 +1,1 @@
+Art. 8.-Los ejercicios de lectura corriente serán siempre razonados, y se procurará que los alumnos expliquen con la mayor claridad y corrección posibles lo que han leído; en caso de que no puedan hacerlo, el maestro dará las explicaciones que crea convenientes para habituar á los niños á que se aprovechen de la lectura.

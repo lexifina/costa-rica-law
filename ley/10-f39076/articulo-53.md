@@ -1,0 +1,1 @@
+Art. 53.-Las Juntas de Educación, de acuerdo con el preceptor, fijará la hora en que ha de estar abierta la biblioteca para los alumnos de la escuela. Es prohibido sacar los libros de la biblioteca, salvo que se consigne un importe, m s un veinticinco por ciento, en la Tesorería del distrito.

@@ -1,0 +1,1 @@
+Art. 49.-Todos los años se hará el blanqueo de la escuela, y tanto esa operación como la de pintura y cualquiera otra refacción necesaria, se efectuarán durante la época de vacaciones ordinarias; mas en el caso que la reparación fuere de urgente necesidad, podrá verificarse en cualquier época del año.
