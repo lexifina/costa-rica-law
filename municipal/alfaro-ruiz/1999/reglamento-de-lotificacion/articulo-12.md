@@ -1,0 +1,1 @@
+Artículo XII.—Corresponde al Consejo Municipalidad fijar el monto de las amortizaciones, conforme al plazo autorizado para el pago de los créditos, así como el valor porcentual de los gastos administrativos que impliquen la operación.

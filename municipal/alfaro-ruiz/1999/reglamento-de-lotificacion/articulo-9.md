@@ -1,0 +1,1 @@
+Artículo IX.—Corresponde al Alcalde Municipal, ejecutar los acuerdos del Concejo, en relación con el plan de notificación y créditos, además deberá notificar a los interesados sobre el resultado de su gestión.

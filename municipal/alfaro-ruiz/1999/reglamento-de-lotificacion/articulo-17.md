@@ -1,0 +1,1 @@
+Artículo XVII.—Los gastos y honorarios de notario, serán cubiertos por el adjudicatario, para lo cual se declara de interés social y por tanto el notario a cargo deberá cobrar los honorarios, de conformidad con la Ley del Sistema Nacional para la Vivienda, esto es un 50% de los mismos.

@@ -1,0 +1,1 @@
+Artículo VII.—Las solicitudes serán consideradas por su orden de presentación y conforme hayan cumplido con todos los requisitos comprendidos en los artículos 2º y 3º de este Reglamento. Solamente en casos muy calificados y por acuerdo de mayoría calificada de los miembros de la comisión, se podrá modificar el orden de prelación.

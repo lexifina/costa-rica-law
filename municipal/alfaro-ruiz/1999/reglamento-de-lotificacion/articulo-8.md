@@ -1,0 +1,1 @@
+Artículo VIII.—Los resultados de la Comisión en los estudios de las solicitudes, serán presentadas al Concejo Municipal, al que se le recomendarán las personas a elegir. La decisión final de las propuestas formuladas por la Comisión, será a cargo del Concejo.
