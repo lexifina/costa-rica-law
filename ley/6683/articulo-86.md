@@ -1,4 +1,2 @@
-Artículo 86.- Los organismos de radiodifusión gozan del derecho de
-autorizar o prohibir la retransmisión, la fijación y la reproducción de su
-emisiones, así como la comunicación al público de su emisiones de
-televisión en locales de frecuentación colectiva.
+Artículo 86°.- Sin perjuicio de los derechos conferidos a los titulares de derechos de autor, los organismos de radiodifusión gozan del derecho de autorizar o prohibir la fijación y reproducción de sus emisiones, la retransmisión, la ulterior distribución y la comunicación, al público, de sus emisiones de televisión en locales de frecuentación colectiva.
+(Así reformado por el artículo 1° inciso i) de la ley N° 7979 del 6 de enero del 2000)

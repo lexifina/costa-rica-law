@@ -1,6 +1,2 @@
-Artículo 78.- Los artistas, intérpretes o ejecutantes, sus
-mandatarios, herederos, sucesores o cesionarios, a título oneroso o
-gratuito, tienen el derecho de autorizar o prohibir la fijación, la
-reproducción, la comunicación al público, la transmisión y retransmisión,
-por medio de radio o televisión, o cualquier otra forma de uso de sus
-interpretaciones o ejecuciones.
+ARTÍCULO 78.- Sin perjuicio de los derechos conferidos a los titulares de derechos de autor, los artistas, intérpretes o ejecutantes, sus mandatarios, herederos, sucesores o cesionarios, a título oneroso o gratuito, tienen el derecho de autorizar o prohibir la fijación, la reproducción, la comunicación al público, la transmisión y retransmisión, por radio o televisión o cualquier otra forma de uso, de sus interpretaciones o ejecuciones.
+(Así reformado por Ley N° 7979 del 6 de enero del 2000)
