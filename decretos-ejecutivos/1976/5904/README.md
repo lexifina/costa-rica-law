@@ -43,3 +43,4 @@ Establece las Reservas Indígenas Chirripó, Guaymi de Coto Brus, La Estrella y 
 | 28 | 1985-05-16 | Decreto Ejecutivo 16306 (1985-05-16) |
 | 29 | 1985-05-16 | Decreto Ejecutivo 16309 (1985-05-16) |
 | 30 | 1985-05-16 | Decreto Ejecutivo 16307 (1985-05-16) |
+| 31 | 1985-05-16 | Decreto Ejecutivo 16308 (1985-05-16) |
