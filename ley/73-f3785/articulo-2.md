@@ -1,0 +1,1 @@
+Artículo 2.- Los soldados a que alude el artículo primero, recibirán 40 colones de pensión, si a consecuencia de lesiones recibidas en aquella guerra, se hallaren enfermos, o adolecieran de impedimento o deformidad notable.
