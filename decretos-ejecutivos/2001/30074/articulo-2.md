@@ -1,0 +1,1 @@
+Artículo 2°—El personal administrativo, administrativo-docente y técnico-docente de los centros educativos de todos los niveles y modalidades del sistema educativo, iniciará funciones el día 1 de febrero del 2002.
