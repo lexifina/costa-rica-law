@@ -1,0 +1,1 @@
+Artículo 7 Los miembros de la Comisión elegirán de su seno, en la primera sesión del año, un Presidente, un Vicepresedente y un Secretario, serán elegidos por mayoría absoluta. En ausencia del miembro propietario el respectivo suplente asumirá todas sus funciones. Durarán en sus cargos dos años pudiendo ser reelectos.

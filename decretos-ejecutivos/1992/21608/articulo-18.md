@@ -1,0 +1,1 @@
+Artículo 18.—Los nombres autorizados por esta Comisión son de carácter oficial y obligatorio. Si el dictamen de la Comisión fuere negativo, el bautizo con inobservancia de la ley No 3535, carecerá de valor legal.

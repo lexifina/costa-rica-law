@@ -1,0 +1,1 @@
+Artículo 9 Cuando un miembro propietario no pueda asistir a una sesión ordinaria deberá comunicarlo así, al presidente de la Comisión y a su respectivo suplente por lo menos con cuarenta y ocho horas de anticipación. Caso de convocatoria a sesión extraordinaria deberá comunicarse la inasistencia al recibo de la convocatoria.

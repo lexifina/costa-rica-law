@@ -1,0 +1,1 @@
+Artículo 17 En todos los casos, de previa a emitir dictamen sobre una solicitud del bautizo, la Comisión deberá recabar el criterio de la entidad propietaria del inmueble, el cual será de acatamiento obligatorio para la Comisión tratándose de una entidad privada. Si se tratare de un organismo público el dictamen de la Comisión será definitivo.

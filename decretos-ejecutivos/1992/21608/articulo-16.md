@@ -1,0 +1,1 @@
+Artículo 16 Todas las entidades interesadas o relacionadas con determinada denominación, están en la obligación de suministrar a la Comisión la información que requiera para la investigación correspondiente y la actualización del Registro de Nomenclatura.

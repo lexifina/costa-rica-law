@@ -1,0 +1,1 @@
+Artículo 8 Las sesiones se efectuarán en la sede del Ministerio de Cultura, Juventud y Deportes, o en el sitio que la Comisión designe por mayoría, serán siempre privadas, pero ésta podrá disponer, acordándolo así por unanimidad de sus miembros presentes, que tengan acceso a ella otras personas, concediéndoles o no el derecho de participar en las deliberaciones.
