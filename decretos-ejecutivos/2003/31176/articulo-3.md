@@ -1,0 +1,40 @@
+Artículo 3º—Definiciones. Para efectos del presente Reglamento los siguientes términos se entenderán como sigue:
+Agua residual. Agua que ha recibido un uso y cuya calidad ha sido modificada por la incorporación de agentes contaminantes.
+Caudal promedio (Q). Corresponde al volumen de vertimientos por unidad de tiempo durante el período de muestreo. Para los efectos del presente reglamento, el caudal promedio se expresará en litros por segundo (l/s).
+Caudal. Volumen de agua por unidad de tiempo.
+Concentración (C). Es la masa de un elemento, sustancia o compuesto, por unidad de volumen del líquido que lo contiene. Para los efectos del presente Decreto, la concentración se expresará en miligramos por litro (mg/l), excepto cuando se indiquen otras unidades.
+Canon ambiental por vertidos. Contraprestación en dinero pagada por quienes usen el servicio ambiental de los cuerpos de agua, bien de dominio público, para el transporte, la dilución y eliminación de desechos líquidos originados en el vertimiento puntual, los cuales pueden generar efectos nocivos sobre el recurso hídrico, los ecosistemas relacionados, la salud humana, y las actividades productivas.
+Canon. Canon ambiental por vertidos
+Carga contaminante diaria vertida (Cc). Es el resultado de multiplicar el caudal promedio por la concentración de la sustancia contaminante, por el factor de conversión de unidades y por el tiempo diario de vertido del usuario, medido en horas: Cc = Q x C x 0.0864 x (t/24)
+Carga neta contaminante vertida. Cantidad de sustancia contaminante resultante de descontar a la carga presente en el efluente, la carga existente en el punto de captación del recurso.
+Carga Presuntiva. Cálculo de carga diaria contaminante a aplicar a una fuente específica basado en índices de generación según proceso productivo, información técnica referida a factores de contaminación relacionados con niveles de producción, información derivada de caracterizaciones de vertidos previas y otra disponible.
+Cauce. Depresión natural de longitud y profundidad variable en cuyo lecho fluye una corriente de agua permanente o intermitente, definida por los niveles de las aguas alcanzados durante las máximas crecidas ordinarias, la cual se refiere al nivel de agua mayor que se presenta por el escurrimiento del caudal promedio mayor histórico.
+Conservación de los recursos hídricos. Gestión tendiente a garantizar el manejo integral, administración, protección, el mantenimiento, recuperación y mejoramiento de los recursos hídricos, en cantidad como en calidad y oportunidad, en función de la calidad del ambiente y desarrollo humano sostenible.
+Contaminación de las aguas. Es la incorporación de vertidos o descargas directas o indirectas, o de cualquier tipo de sustancia o energía, cuyas características provoquen o puedan provocar alteraciones nocivas en la calidad física, química y biológica de las aguas, en la salud o el ambiente.
+Cuenca hidrográfica. Unidad territorial delimitada por la línea divisoria de sus aguas, las cuales drenan superficial o subterráneamente hacia una salida común. Cuando los límites de las aguas subterráneas no coincidan con la línea divisoria de aguas, dicha delimitación incluirá la proyección de las áreas de recarga de las aguas subterráneas, las cuales fluyen hacia la cuenca delimitada superficialmente. Si las aguas de una cuenca tienen como salida común algún punto del litoral, su zona de influencia marítima se considera como proyección de la cuenca hidrográfica respectiva, según lo determinen los estudios técnicos pertinentes. Se subdividen en subcuencas y tramos de cuenca.
+Cuerpo receptor. Es todo aquel manantial, río, quebrada, arroyo permanente, lago, laguna, marisma, embalse, canal, artificiales o no, estuario, mar, manglar, turbera, pantano de agua dulce, salobre o salada, donde se vierten aguas residuales, según su clasificación.
+DQO (Demanda química de oxígeno). Se usa como un indicador de la carga orgánica de las aguas de desecho. Es la cantidad de oxígeno necesario para oxidar químicamente sustancias orgánicas presentes en una muestra. El DQO representa todo lo que se puede oxidar, particularmente ciertas sales minerales y la mayoría de los compuestos orgánicos.
+Efectos nocivos. Es el resultado de incorporar al recurso hídrico una o varias sustancias contaminantes, cuya concentración y caudal sean potencialmente capaces de degradar el recurso, amenazar la salud de las personas o el ambiente.
+Efluente. En manejo de aguas residuales se refiere al caudal que sale de la última unidad de conducción o tratamiento.
+Ente generador. Fuente, persona física o jurídica, pública o privada, responsable del reuso de aguas residuales, o de su vertido en un cuerpo receptor o alcantarillado sanitario.
+Fuente. Instalación estacionaria, puntual, emisora de sustancias contaminantes.
+Límite permisible de vertido. En el vertimiento es el contenido permisible de un elemento, sustancia, compuesto o factor ambiental, solo o en combinación, o sus productos de metabolismo.
+Línea base de referencia. Nivel de contaminación total actual expresada como la carga total vertida por todas las fuentes puntuales presentes en una zona de control, a partir del cual se define una meta de reducción.
+Monto del canon. Es el valor que se cobra por cada kilogramo de sustancia contaminante vertida en los cuerpos de agua.
+Muestra compuesta. Es la integración de varias muestras puntuales de una misma fuente, tomadas a intervalos programados y por períodos determinados, las cuales pueden tener volúmenes iguales o ser proporcionales al caudal durante el período de muestreo.
+Muestra puntual. Es la muestra tomada en un lugar representativo, en un determinado momento.
+Parámetros de contaminación. Sustancias contaminantes reguladas mediante el canon ambiental por vertidos o sujetas a límites de vertimiento.
+Período de descarga mensual (T). Corresponde al número de días durante el mes en el cual se realizan vertidos.
+Permiso de vertido. Autorización emitida por el MINAE que faculta a los entes generadores a hacer descargas en cuerpos receptores.
+Punto de captación. Es el lugar en el cual el usuario toma el recurso hídrico para cualquier uso.
+Punto de descarga. Sitio o lugar donde se realiza un vertimiento, en el cual se deben llevar a cabo los muestreos y que se encuentra ubicado antes de la incorporación del vertimiento a un cuerpo de agua, a un canal, al suelo o al subsuelo.
+Recursos hídricos. Aguas continentales e insulares, superficiales y subterráneas, también la atmosférica o capilar, así como las marítimas.
+Servicios ambientales. Los servicios ambientales son aquellos derivados directamente de elementos de la naturaleza y cuyos valores y beneficios pueden ser económicos, ecológicos o socioculturales, y que inciden directamente en la protección y el mejoramiento del medio ambiente, propiciando una mejor calidad de vida de los habitantes.
+Sistema de tratamiento. Son todas aquellas obras cuya finalidad es mejorar la calidad del agua de aprovechamiento o vertido según su uso actual o potencial.
+Sistemas de tratamiento de aguas residuales. Son todas aquellas inversiones cuya finalidad exclusiva sea mejorar la calidad físico-química y bacteriológica de los vertimientos o aguas servidas.
+SST. Parámetro de contaminación de sólidos suspendidos totales.
+Sustancia contaminante. Todo aquel elemento cuya incorporación a un cuerpo de agua conlleve el deterioro de la calidad física, química o biológica de éste, ponga en peligro la salud humana o amenace la biodiversidad asociada.
+Usuario. Es usuario toda persona natural o jurídica, de derecho público o privado, cuya actividad produzca vertimientos.
+Vertido o vertimiento. Es cualquier descarga final de un elemento, sustancia o compuesto que esté contenido en un líquido residual de cualquier origen, ya sea agrícola, minero, industrial, de servicios, aguas negras o servidas, a un cuerpo de agua, al suelo o al subsuelo.
+Vertimiento puntual. Es aquel vertimiento realizado en un punto fijo.
+Zona de Control. Cuenca, subcuenca o tramo de cuenca delimitados para la aplicación del canon ambiental por vertidos.

@@ -1,0 +1,2 @@
+Disposiciones finales
+Artículo 33.—Deudas, recargos y morosidad. La deuda por falta de pago de este canon conllevará un recargo adicional del tres por ciento mensual sobre los saldos. Si el canon no fuera pagado en el período establecido, podrá hacerse posteriormente con los recargos que fije administrativamente el MINAE; pero si transcurridos dos cuatrimestres consecutivos no se hicieran los pagos totales con las multas respectivas, se revocará el permiso de vertidos y se establecerán las acciones legales que el ordenamiento jurídico costarricense estipule.

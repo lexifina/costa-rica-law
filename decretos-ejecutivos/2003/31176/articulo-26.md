@@ -1,0 +1,1 @@
+Artículo 26.—De la facturación. La facturación y cobro del monto anterior se hará en cuatrimestres mediante los procedimientos que para tal efecto establezca el MINAE. Para ello podrá contratar los servicios de entidades o empresas especializadas en este tipo de labores, pero el MINAE siempre será responsable de velar por la correcta recaudación y destino de los fondos.

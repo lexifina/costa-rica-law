@@ -1,0 +1,2 @@
+Transitorio cuatro.—Durante el periodo de cumplimiento del límite global de la meta de reducción de la contaminación fijado en cada zona de control se excluirán los parámetros de contaminación sujetos a la aplicación de este canon, de las regulaciones del Reglamento sobre Vertido y Reuso de Aguas Residuales, Decreto Ejecutivo Nº 26042-S-MINAE publicado el 19 de junio de 1997.
+Dado en la Presidencia de la República.—San José, a los veintidós días del mes de abril del dos mil tres.

@@ -1,0 +1,1 @@
+Transitorio dos.—En el lapso comprendido entre la publicación de este reglamento y su entrada en vigencia, el MINAE emitirá las directrices y resoluciones administrativas y tomará todas las providencias necesarias para la puesta en marcha del canon ambiental por vertidos.

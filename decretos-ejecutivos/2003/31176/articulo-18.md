@@ -1,0 +1,4 @@
+Artículo 18.—Requisitos para solicitar el permiso de vertidos. El interesado en obtener un permiso de vertidos deberá cumplir con los siguientes requisitos:
+a. Presentar solicitud por escrito al MINAE.
+b. Llenar el formulario correspondiente.
+c. Presentar formulario de Declaración de Vertidos con carácter de declaración jurada, que contenga al menos los parámetros de contaminación regulados por el Reglamento de Vertido y Reuso de Aguas Residuales, Decreto Ejecutivo Nº 26042-S-MINAE publicado el 19 de junio de 1997, para cada actividad, así como indicación expresa de su caudal, concentración y tiempo de vertimiento. Para el caso del parámetro DQO deberá suministrarse además la información correspondiente a la concentración de la DQO disuelta de conformidad con el artículo 8º de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 7º—El sujeto de cobro del canon. Lo constituyen todas las personas físicas o jurídicas, públicas o privadas, que realicen actividades lucrativas o no, que vierten sustancias que de algún modo alteran la calidad de los cuerpos de agua y/o provocan efectos nocivos sobre la salud de las personas y el ambiente, de conformidad con el artículo 4 anterior.
+En el caso de redes de alcantarillado, el MINAE aplicará el cobro de este canon a la entidad que presta dicho servicio y no a quien vierte en las mismas.

@@ -1,0 +1,1 @@
+Transitorio tres.—En el mismo lapso señalado en el transitorio anterior el Ministro de Ambiente y Energía designará los órganos y estructuras que serán competentes para la aplicación y administración de este canon y hará las modificaciones que correspondan para ajustarlas a estas disposiciones.

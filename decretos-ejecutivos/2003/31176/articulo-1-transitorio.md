@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio uno.—Los costos ambientales y sociales causados por el vertimiento de sustancias contaminantes a los cuerpos de agua serán considerados parte del monto del canon ambiental por vertidos cuando el MINAE establezca el procedimiento que se empleará para su cálculo, el cual deberá estar definido a más tardar un año después de la entrada en vigencia del presente reglamento.
