@@ -1,0 +1,1 @@
+Artículo 2º—En aquellos casos en que los marcos de los DET’s y las barras deflectoras se construyan con tubo de aluminio, éste deberá tener un diámetro mínimo exterior de 3,81 centímetros y un mínimo de 0,32 centímetros (1/8 de pulgada) del grosor del tubo.

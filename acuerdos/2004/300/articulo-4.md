@@ -1,0 +1,1 @@
+Artículo 4º—Las dimensiones mínimas de la parrilla de los DET’s deben ser de 87,63 centímetros (34,5 pulgadas) por 106,68 centímetros (42 pulgadas), cuando éste haya sido construido de varilla de aluminio sólido.

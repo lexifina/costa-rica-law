@@ -1,0 +1,1 @@
+Artículo 3º—En aquellos casos en que los marcos de los DET’s y las barras deflectoras se construyan con varilla de aluminio sólida, éste deberá tener un diámetro mínimo exterior de 1,91 centímetros (3⁄4 de pulgadas).

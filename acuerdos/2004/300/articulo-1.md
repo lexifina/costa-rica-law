@@ -1,0 +1,10 @@
+INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+AJDIP/300.—Puntarenas, a los dos días del mes de julio del dos mil cuatro.
+Considerando:
+1º—Que a través de la Convención Interamericana para la Protección y Conservación de las Tortugas Marinas, se han dictado medidas para promover la protección, conservación y recuperación, así como la prohibición de la captura, retención y muerte incidental de tortugas marinas.
+2º—Que de conformidad con la Sección 609 de la Ley Pública de los Estados Unidos de Norteamérica Nº 101-162 decretada en el año 1989, el camarón capturado con tecnología de pesca comercial que pudiera afectar negativamente a ciertas especies de tortugas marinas, podría no ser importado hacia ese país a menos que el Departamento de Estado Certifique que el Gobierno del país de origen de ese producto, ha implementado un programa que promueva el uso de ciertos equipos que permitan el escape de las tortugas.
+3º—Que el Servicio Nacional de Pesca Marítima (NMFS) de los Estados Unidos de Norteamérica, ha propuesto nuevas regulaciones que conllevan cambios significativos y sustanciales en el diseño de los Dispositivos Excluidores de Tortugas Marinas (DET’s).
+4º—Que el principal método para reflejar tasas incidentales comparables de tortugas marinas, es el desarrollo de un régimen que requiere del uso de los DET’s, de tal forma que se consideran efectivos cuando se logra excluir hasta el 97% de las tortugas encontradas en el proceso de arrastre de la red.
+5º—Que corresponde al INCOPESCA garantizar el uso adecuado del DET’s por parte de la flota camaronera de arrastre de orilla. Por tanto:
+ACUERDA:
+Artículo 1º—Modificar las medidas y características de los DET’s por parte de la flota camaronera de arrastre de orilla, de tal modo que la medida mínima del mayor marco cuadriculado de la tapa de salida (solapa), sea de 81,28 centímetros (32 pulgadas de diámetro mínimo) y una o ambas de las dos configuraciones mínimas mayores de la abertura de escape sea de 180,34 centímetros estirada o cubierta duplicada (71 pulgadas estirada o cubierta duplicada).
