@@ -13,5 +13,10 @@ Artículo 1°- Prorrogar la modificación realizada en decreto N° 27742-MEIC-CO
 SAC DESCRIPCIÓN DAI%
 Sobre valor
 1006 ARROZ
-1006.10 Arroz con cáscara (arroz “paddy”):
+1006.10 Arroz con cáscara (arroz "paddy"):
 1006.10.90 otros 35
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 28214 del 25 de octubre de 1999, se acordó prorrogar hasta el 31 de diciembre de 1999, la modifica realizada en el presente decreto ejecutivo, en los rubros que a continuación se detallan:
+Código SAC | Descripción | DAI
+10.06 | Arroz |
+1006.10 | Arroz con cáscara (paddy) |
+1006.10.90 | Otros") |
