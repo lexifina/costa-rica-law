@@ -1,0 +1,1 @@
+Artículo 6° — Una vez se cumpla con todos los requisitos antes dichos, se elevará el expediente completo a conocimiento del Concejo Municipal, el cual tendrá un plazo de 15 días naturales para estudiarlo y hacer las consultas que estime necesario.

@@ -1,0 +1,1 @@
+Artículo 4° — En caso de que alguno de los requisitos exigidos en este Reglamento no sea obtenible por razones de imposibilidad, fuerza mayor u oportunidad, la administración deberá dejar justificados expresamente dichos motivos.

@@ -1,0 +1,1 @@
+Artículo 7° — Toda objeción que pretenda hacer el Concejo Municipal a la propuesta presentada deberá ser puesta en conocimiento de la Administración con las debidas justificaciones, las cuáles debe basarse en criterios técnicos y legales. La Administración tendrá un plazo de 8 días naturales para referirse a tales objeciones y dejar constando criterio.
