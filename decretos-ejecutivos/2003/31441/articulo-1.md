@@ -1,0 +1,12 @@
+Nº 31441
+EL PRESIDENTE DE LA REPÚBLICA Y LA MINISTRA DE CULTURA, JUVENTUD Y DEPORTES
+Con fundamento en los artículos 140 inciso 20) y 146 de la Constitución Política, 25.1 de la Ley General de la Administración Pública, y la Ley Nº 7555 del 4 de octubre de 1995, publicada en La Gaceta Nº 199 del 20 de octubre del mismo año, Ley de Patrimonio Histórico-Arquitectónico de Costa Rica y,
+Considerando:
+1º—Que el análisis efectuado en la hacienda cafetalera denominada Finca Doka Estate, evidencia un alto valor histórico y cultural, dentro de la actividad cafetalera costarricense de la primera mitad del siglo XX; siendo construida en la década de 1920.
+2º—Que la hacienda adquirió un importante lugar como exportadora de café a los mercados internacionales, consolidándose a lo largo de cincuenta años, como una de las más importantes empresas productoras del país.
+3º—Que la innovación, como estrategia empresarial, al complementar la producción de café de la más alta calidad internacional, con un muy exitoso esquema de desarrollo turístico, ha cobrado gran valor cultural al retratar la historia costarricense, sus costumbres y mejores tradiciones.
+4º—Que el Beneficio Finca Doka Estate representa el auge y desarrollo de la agroindustria cafetalera en la provincia de Alajuela, constituyéndose como hito espacial, y replanteando para siempre el paisaje geográfico y cultural de la región.
+5º—Que el Beneficio Finca Doka Estate constituye una muestra de historia viva, manteniendo vigente los métodos de industrialización del café, utilizando maquinaria que data de inicios del siglo XX, inclusive utilizando con fines productivo-culturales, las áreas de patios para secar el grano al sol.
+6º—Que es deber del Estado salvaguardar el patrimonio cultural del país. Por tanto:
+DECRETAN:
+Artículo 1º—Declarar e incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble conocido como Beneficio Finca Doka Estate, inscrito en el Registro Nacional, Sección Propiedad, partido de Alajuela, Matrícula de Folio Real número 377700, ubicado en el Distrito Sabanilla, del cantón Central de la provincia de Alajuela, propiedad de Sanpol S. A., cédula jurídica número 3-101-025183, cuyos linderos son los siguientes: al norte, Río Poás y Orvo Limitada; al sur, Enrique Castro Rojas, Beneficiadora Santa Eduviges y Oliva Ruiz Hidalgo; al este, Río Caracha y al oeste, Maurilio Ovarez Carvajal, calle pública en medio.
