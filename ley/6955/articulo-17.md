@@ -1,5 +1,1 @@
-ARTICULO 17.- El ahorro en recursos producido por la eliminación de
-las plazas vacantes, será destinado, en una modificación del presupuesto
-del Gobierno de la República, para cubrir los faltantes en la partida de
-servicios para cargos fijos, por concepto de la aplicación de la escala
-salarial de la ley Nº 6835 del 22 de diciembre de 1982.
+Artículo 17.- (Derogado por el inciso d) del artículo 127 de la Ley N° 8131 de 18 de setiembre del 2001. “Ley de Administración Financiera de la República y Presupuestos Públicos”)

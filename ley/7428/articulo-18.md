@@ -1,18 +1,7 @@
-ARTICULO 18.- POTESTADES DE CONTROL PRESUPUESTARIO
-La Contraloría General de la República examinará y aprobará, total o
-parcialmente, los presupuestos de la Administración, conforme lo determina
-el artículo 184 de la Constitución Política; los de los entes que por ley
-deban cumplir con tal requisito y los de las empresas públicas de
-cualquier tipo, salvo ley especial en contrario respecto de estas.
-La Contraloría General de la República fiscalizará que esos
-presupuestos sean organizados y formulados para cada ejercicio, de
-conformidad con las prescripciones técnicas y con los planes de desarrollo
-o, en su defecto, con los lineamientos generales de política del
-desarrollo nacional, según la jerarquía de tales planes y lineamientos.
-Los presupuestos deberán presentarse balanceados y con el
-financiamiento asegurado para el año fiscal correspondiente.
-Cuando se trate de programas o proyectos, cuya ejecución se extienda
-más allá de dicho período, la entidad que formule el presupuesto deberá
-demostrar, a satisfacción de la Contraloría, que dispondrá de la
-financiación complementaria para la terminación del programa o del
-proyecto respectivo.
+Artículo 18.- Fiscalización presupuestaria. Corresponde a la Contraloría General de la República examinar para su aprobación o improbación, total o parcial, los presupuestos de los entes referidos en el artículo 184 de la Constitución Política, así como los del resto de la Administración descentralizada, las instituciones semiautónomas y las empresas públicas. Los entes públicos no estatales deberán cumplir con tal requisito cuando una ley especial así lo exija.
+En caso de que algún presupuesto sea improbado regirá el del año inmediato anterior. Si la improbación del presupuesto es parcial, hasta tanto no se corrijan las deficiencias, regirá en cuanto a lo improbado el del año anterior.
+Los órganos, las unidades ejecutoras, los fondos, los programas y las cuentas que administren recursos de manera independiente, igualmente deberán cumplir con lo dispuesto por este artículo. La Contraloría General de la República determinará, mediante resolución razonada para estos casos, los presupuestos que por su monto se excluyan de este trámite.
+La Contraloría General de la República fiscalizará que los presupuestos sean formulados y presentados para cada ejercicio, de conformidad con las disposiciones legales y técnicas.
+Si la Contraloría atrasa la tramitación y aprobación de un presupuesto, continuará rigiendo el anterior hasta que la Contraloría se pronuncie.
+Cuando se trate de programas o proyectos cuya ejecución se extienda más allá de dicho período, la entidad que formule el presupuesto deberá demostrar, a satisfacción de la Contraloría General de la República, que dispondrá de la financiación complementaria para terminar el programa y el proyecto respectivo.
+(Así reformado por el inciso d) del artículo 126 de la Ley de Administración Financiera de la República y Presupuestos Públicos, N° 8131 de 18 de setiembre del 2001)

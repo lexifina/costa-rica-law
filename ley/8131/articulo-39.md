@@ -1,0 +1,2 @@
+ARTÍCULO 39.- Delimitación de facultades en materia presupuestaria
+La iniciativa de los presupuestos corresponde al Poder Ejecutivo. La Asamblea Legislativa no podrá aumentar los gastos propuestos por el Poder Ejecutivo, salvo que fije las nuevas rentas o los ingresos necesarios a los presupuestados que hayan de cubrirlos, previo informe de la Contraloría General de la República sobre la efectividad fiscal.

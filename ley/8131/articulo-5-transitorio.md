@@ -1,0 +1,1 @@
+TRANSITORIO V.- Para cumplir el principio presupuestario establecido en el artículo 6 de la presente Ley, el Poder Ejecutivo dispondrá de un plazo de tres ejercicios económicos para tomar las medidas necesarias que permitan su cabal cumplimiento.

@@ -1,0 +1,2 @@
+ARTÍCULO 63.- Contratos
+El Ministerio de Hacienda tendrá plenas facultades para efectuar los contratos necesarios con los bancos del Sistema Bancario Nacional y otras entidades autorizadas por ley, para los efectos de contar con los servicios de recaudación, procesamiento de la información y depósito de las sumas que corresponda depositar en las cuentas definidas por la Tesorería Nacional en el banco cajero general, según los principios de la Ley de Contratación Administrativa.

@@ -1,0 +1,2 @@
+ARTÍCULO 37.- Clasificaciones presupuestarias
+Las clasificaciones presupuestarias de ingresos y gastos se determinarán en el Reglamento de esta Ley. Para ello, se considerarán, entre otros asuntos, las necesidades de cada una de las etapas del proceso presupuestario. Tal reglamentación deberá elaborarse previa consulta a la Contraloría General de la República, en lo que corresponda dentro del cumplimiento de sus funciones constitucionales.
