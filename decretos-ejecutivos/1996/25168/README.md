@@ -13,3 +13,4 @@ Oficializa Como Métodos Análisis el BAM de la FDA y Otros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-12 | la propia norma |
+| 2 | 1996-06-12 | SINALEVI (sin norma nombrada) |
