@@ -1,0 +1,7 @@
+Artículo 2º.- Para los efectos correspondientes, se tienen como
+comprendidas dentro del presente Decreto todas las obras de
+infraestructura situadas en los cantones que hayan resultado o resultaren
+afectado por las intensas lluvias y sus eventos conexos, incluyendo las
+vías públicas, puentes, obras de canalización, muros de contención,
+acueductos, edificios públicos, casas de habitación, estructuras diversas
+y edificaciones en general.
