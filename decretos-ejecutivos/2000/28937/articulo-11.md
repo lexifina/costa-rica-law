@@ -1,0 +1,1 @@
+Artículo 11.—Corresponde al Consejo coordinar la ejecución de los proyectos regionales y nacionales que ordene el Poder Ejecutivo, dentro de los procesos jurídicos y administrativos de cada institución allí representada.

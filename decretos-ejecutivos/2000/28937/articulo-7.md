@@ -1,0 +1,1 @@
+Artículo 7º—El Secretario Ejecutivo de la Secretaría podrá convocar a los directores de planificación o afines de cada institución o municipalidad miembro del Consejo cada vez que sea pertinente, a efectos de coordinar proyectos, acciones o medidas que tengan impacto en la planificación urbana nacional, regional y del GAM.

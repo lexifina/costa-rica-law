@@ -1,0 +1,1 @@
+Artículo 13.—Se autoriza a las Instituciones del Estado y la Secretaría del Plan Nacional de Desarrollo Urbano para que, de acuerdo a su disponibilidad, puedan destinar o aportar los recursos económicos, materiales y humanos, necesarios para fortalecer el buen funcionamiento de esta iniciativa, así como trasladar personal a su servicio con carácter temporal.

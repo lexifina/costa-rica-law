@@ -1,0 +1,1 @@
+Artículo 15.—Se autoriza a la administración pública centralizada y descentralizada, territorial e institucional, así como las empresas del Estado a contribuir, dentro del marco legal respectivo, con los recursos económicos, humanos y materiales necesarios para fortalecer esta actividad.
