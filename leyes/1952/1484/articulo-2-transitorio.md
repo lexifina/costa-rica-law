@@ -1,1 +1,0 @@
-Transitorio II.- Para determinar las subvenciones que correspondan a las Municipalidades durante el próximo ejercicio fiscal y el resto del presente, la Oficina del Presupuesto lo hará tomando en cuenta el valor de las importaciones del ejercicio anterior, el nuevo aforo ad-valórem y los porcentajes indicados en el artículo 3° de esta ley.

@@ -1,1 +1,0 @@
-Artículo 6°.- Las drogas, preparados químicos y farmacéuticos destinados al uso humano o veterinario que, por pagar la patente respectiva al Colegio de Farmacéuticos no pagan actualmente el impuesto municipal, quedarán exentos del gravamen adicional que establece esta ley.
