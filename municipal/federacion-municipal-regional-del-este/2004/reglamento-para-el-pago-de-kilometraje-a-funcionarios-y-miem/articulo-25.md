@@ -1,0 +1,1 @@
+Artículo 25.—Toda modificación al presente Reglamento, es potestad exclusiva del Consejo Directivo de la Federación Municipal Regional del Este, y para su aplicación debe obtenerse la autorización de la Contraloría General de la República y publicarse en el Diario Oficial La Gaceta.

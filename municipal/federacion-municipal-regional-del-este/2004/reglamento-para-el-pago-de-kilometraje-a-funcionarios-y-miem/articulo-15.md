@@ -1,0 +1,1 @@
+Artículo 15.—Cada beneficiario deberá llevar su propio control de lectura y anotación del número de kilómetros con que inicia y finalice cada gira o servicio en forma actualizada y accesible en caso de que la misma deba ser consultada.
