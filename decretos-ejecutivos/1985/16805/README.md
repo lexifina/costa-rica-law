@@ -14,3 +14,4 @@ Declara emergencia nacional no tener presupuesto autorizado para 1986
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-01-01 | la propia norma |
+| 2 | 1986-09-12 | Decreto Ejecutivo 17215 (1986-09-12) |
