@@ -1,0 +1,1 @@
+Art 3° El Patrón que, obligado a ese aviso, lo omitiere, será responsable del importe de la multa, con derecho a repetirlo del multado, a quien no dará papeleta de solvencia mientras no le conste estar satisfecha la pena.
