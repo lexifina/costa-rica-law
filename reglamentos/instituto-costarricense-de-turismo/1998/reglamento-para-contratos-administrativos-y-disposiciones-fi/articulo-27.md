@@ -1,0 +1,1 @@
+Artículo 27.—La justificación de las compras de activos que en cada caso se requieran, o el retiro y cambio de éstos del inventario permanente, se regulará de conformidad con lo dispuesto en el artículo 6° de la L.A.F. y del Reglamento para el control de activos o bienes del Instituto.

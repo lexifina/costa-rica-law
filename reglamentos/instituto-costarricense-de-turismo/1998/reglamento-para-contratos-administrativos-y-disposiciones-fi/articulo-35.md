@@ -1,0 +1,1 @@
+Artículo 35.—El recibido conforme por parte de la Proveeduría en cuanto al tramite de adquisición de bienes, servicios y obras, lo extenderá junto con la jefatura o encargado de la Unidad Solicitante para que la Institución pueda devolver, si procediere, la respectiva garantía de cumplimiento cuando ésta se hubiere solicitado.

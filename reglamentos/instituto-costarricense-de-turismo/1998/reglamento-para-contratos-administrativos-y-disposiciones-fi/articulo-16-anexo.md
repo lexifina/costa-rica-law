@@ -1,0 +1,1 @@
+Artículo 16.—Es responsabilidad de la persona Encargada del Área de Contabilidad, mantener actualizados los sistemas que permitan la revisión, verificación y pago de todas las transacciones referidas a la adquisición de bienes, servicios y operaciones financieras en que incurre el I.C.T.: además, debe velar por mantener actualizados los Manuales vigentes.

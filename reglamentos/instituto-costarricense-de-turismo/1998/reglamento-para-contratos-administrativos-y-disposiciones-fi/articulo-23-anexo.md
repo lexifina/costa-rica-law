@@ -1,0 +1,1 @@
+Artículo 23.—El Departamento Administrativo es responsable junto con la, o las personas en quien delegue, de mantener actualizado el control de liquidaciones de Gasto de Viaje y de Transporte, la validación del sistema de requisiciones, así como a través del Área de Personal, del control y validación del Sistema de Planillas.
