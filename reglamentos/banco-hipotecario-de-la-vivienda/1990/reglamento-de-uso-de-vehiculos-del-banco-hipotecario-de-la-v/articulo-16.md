@@ -1,0 +1,1 @@
+Artículo 16.-El Gerente General podrá autorizar la asignación temporal de un vehículo a determinado departamento, si así lo solicita el jefe de departamento con la debida justificación, aportando un adecuado plan de trabajo, donde se fije el período para el cual se requiere el vehículo.

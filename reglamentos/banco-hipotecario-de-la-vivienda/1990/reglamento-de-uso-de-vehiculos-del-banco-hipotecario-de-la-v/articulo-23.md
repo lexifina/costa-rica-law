@@ -1,0 +1,1 @@
+Artículo 23.-Previa autorización de la Junta Directiva, la Gerencia General podrá proceder a la venta de vehículos que resulten innecesarios o que demanden una atención onerosa para el Banco. Todo conforme con las disposiciones que regulan las contrataciones del Banco.

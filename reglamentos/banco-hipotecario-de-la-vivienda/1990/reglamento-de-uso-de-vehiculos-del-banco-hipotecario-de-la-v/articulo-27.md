@@ -1,0 +1,1 @@
+Artículo 27.-Las disposiciones contenidas en este reglamento no limitan al BANHVI para aplicar sanciones más severas que resulten según la gravedad del caso, todo ello de conformidad con el Estatuto de Personal y las leyes respectivas.

@@ -1,0 +1,10 @@
+Artículo 11.-Esta terminantemente prohibido a los conductores del Banco:
+a) Estacionar los vehículos frente a locales o establecimientos cuya fama vaya en contra de la moral y buenas costumbres.
+b) Darle al vehículo un fin distinto a aquel para el que se le ha autorizado.
+c) Permitir que otras personas no autorizadas conduzcan el vehículo.
+d) Permitir que personas ajenas al Banco viajen en los vehículos no existiendo una orden superior para este efecto, con excepción de personas de otras instituciones relacionadas con el Banco.
+e) Abandonar el vehículo sin causa justificada.
+f) Conducir los vehículos del BANHVI bajo los efectos de bebidas alcohólicas, drogas o sustancias enervantes.
+g) Llevarse el vehículo para su casa al finalizar la jornada, de trabajo, durante los fines de semana o en días feriados, excepto que por el desarrollo de determinada labor, ello fuere absolutamente necesario. Para tal fin debe estar debidamente autorizado y por escrito, por el Gerente quedando bajo la exclusiva responsabilidad de dichos funcionarios, la procedencia del permiso. No obstante, ello exime de la obligación que tiene el funcionario o empleado de guardar el automotor en un lugar que reúna los requisitos de seguridad indispensables. Si por incumplimiento de esta disposición el vehículo sufre daño, el conductor será responsable del mismo y deberá pagarlo en un plazo no mayor de treinta días hábiles o formalizar en quince días hábiles un arreglo de pago bajo las condiciones que fije el Banco por medio de la Dirección de Administración. Dicho arreglo deberá contar con garantías de cumplimiento y con las seguridades necesarias. Las sumas que resulte en deber el funcionario correspondiente, le serán rebajadas directamente de su salario.
+EI funcionario que autorice llevarse un vehículo para la casa, será corresponsable de los daños que pudieran ocurrirle.
+La violación de una o varias de las disposiciones anteriores, se podrá considerar falta grave a la relación de servicio y por tanto, podrá dar base al despido sin responsabilidad patronal, sin perjuicio de la responsabilidad civil, penal o administrativa en que pudiere incurrir el servidor.

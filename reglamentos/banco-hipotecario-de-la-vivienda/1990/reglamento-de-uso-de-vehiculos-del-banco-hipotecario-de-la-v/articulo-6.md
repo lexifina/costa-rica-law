@@ -1,0 +1,1 @@
+Artículo 6º-Para el retiro de los vehículos los días sábados, domingos y feriados, y fuera de horas de oficina, el conductor respectivo presentará una copia de la "Fórmula de Solicitud y Control de Vehículo" al guarda de tumo. En los demás días y horas el trámite se hará directamente con el Departamento de Proveeduría.

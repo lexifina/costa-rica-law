@@ -1,0 +1,1 @@
+Artículo 25.-EI servicio de transporte utilizando vehículos del BANHVI. queda restringido al territorio nacional, salvo cuando exista autorización expresa de la Junta Directiva para salir de Costa Rica. En este caso, se deberán cumplir los tramites respectivos para la salida del país de los vehículos.

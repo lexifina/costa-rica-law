@@ -1,0 +1,2 @@
+Del uso de los vehículos
+Artículo 19.-Queda prohibido el uso de vehículos del Banco fuera de las jornadas ordinarias de trabajo. Para circular fuera de las jornadas ordinarias de trabajo, el conductor deberá portar autorización escrita y especifica para el caso, la cual no podrá ser de carácter permanente y deberá ser firmada por el Gerente General. EI incumplimiento de esta disposición por parte de cualquier funcionario dará lugar a la imposición de las sanciones correspondientes.

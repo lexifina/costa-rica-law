@@ -1,0 +1,1 @@
+Artículo 15.-En ningún caso las facilidades o ventajas que haya representado o representen para los funcionarios o empleados del Banco el uso de vehículos, incluyendo la asignación de vehículo de uso discrecional, será parte del respectivo contrato de trabajo o de la relación de empleo público.

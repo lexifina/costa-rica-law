@@ -1,0 +1,1 @@
+Artículo 18.-Si un conductor, con conocimientos de un daño causado al vehículo, propiedades o personas lo ocultare, se podrá considerar que ha cometido falta grave, para los efectos del artículo 81 del Código de Trabajo, sin perjuicio de las otras responsabilidades que le pudieren ser imputadas.

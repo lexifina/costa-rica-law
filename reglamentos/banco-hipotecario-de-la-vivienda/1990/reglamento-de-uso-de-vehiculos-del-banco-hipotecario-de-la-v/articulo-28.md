@@ -1,0 +1,1 @@
+Artículo 28.-Cualquier reforma o adición de este reglamento, será aprobado por la Junta Directiva del BANHVI y requerirá para su puesta en práctica de la aprobación definitiva de la Contraloría General de la República y de su publicación en "La Gaceta".
