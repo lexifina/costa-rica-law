@@ -1,5 +1,5 @@
-ARTICULO 16.- El abandono de labores será sancionado en la forma
+Artículo 16.- El abandono de labores será sancionado de la forma
 siguiente:
 La primera vez, amonestación escrita.
-La segunda, suspensión sin goce de sueldo por ocho días.
-La tercera, despido sin responsabilidad patronal.
+La segunda vez, suspensión sin goce de sueldo por ocho días.
+La tercera vez, despido sin responsabilidad patronal.

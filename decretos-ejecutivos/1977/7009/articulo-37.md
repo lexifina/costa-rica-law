@@ -1,3 +1,3 @@
-ARTICULO 37.- Sólo en casos muy calificados, a juicio del director,
+Artículo 37.- Solo en casos muy calificados, a juicio del Director,
 para efectos de no aplicar la sanción disciplinaria correspondiente, se
-justificarán las llegadas tardías.
+justificará las llegadas tardías.

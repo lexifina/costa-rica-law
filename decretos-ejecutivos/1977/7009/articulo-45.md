@@ -1,4 +1,4 @@
-ARTICULO 45.- Mientras no se cubra a los Conserjes con la póliza de
-riesgos profesionales ante el Instituto Nacional de Seguros, las
-indemnizaciones previstas en el Código de Trabajo para los accidentes de
-trabajo o las enfermedades profesionales serán pagadas por el Estado.
+Artículo 45.- Es responsabilidad del Ministerio de Educación,
+acondicionar debidamente, según sus posibilidades, un lugar en cada
+centro educativo, donde los Conserjes puedan almorzar o tomar el café,
+con la instalación de su respectivo calentador.

@@ -1,10 +1,12 @@
-ARTICULO 15.- Las ausencias injustificadas, computadas dentro de un
-mismo mes calendario, darán lugar a las siguientes sanciones:
-Por media ausencia, amonestación escrita.
-Por una, o dos medias alternas, suspensión de dos días.
-Por tres medias ausencias, suspensión de seis días.
-Por dos alternas o cuatro medias alternas, suspensión por ocho días.
-Por dos consecutivas o más de dos alternas, despido sin
-responsabilidad patronal.
-Las sanciones podrán hacerse efectivas inmediatamente o en el mes
-siguiente.
+Artículo 15.- Las ausencias injustificadas, que se computen dentro
+de un mismo mes calendario darán lugar a las siguientes sanciones:
+a) Por media ausencia "injustificada", amonestación escrita.
+b) Por una ausencia "injustificada", o dos media ausencia, un día
+de suspensión.
+c) Por dos ausencias alternas o cuatro medias ausencias
+injustificadas suspensión por seis días.
+d) Por tres ausencias injustificadas alternas, seis medias
+injustificadas o dos continuas en un mismo mes calendario
+despido sin responsabilidad patronal.
+Las sanciones se harán efectivas en el mes siguiente, pasado ese
+lapso prescribe la acción.

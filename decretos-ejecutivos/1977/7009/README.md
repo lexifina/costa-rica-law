@@ -13,3 +13,4 @@ Reglamento Servicio Conserjería Instituciones Educativas Oficiales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-08-06 | la propia norma |
+| 2 | 1977-08-06 | SINALEVI (sin norma nombrada) |
