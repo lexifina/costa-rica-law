@@ -13,3 +13,4 @@ Reglamento general de cementerios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1931-09-05 | la propia norma |
+| 2 | 1934-07-20 | Decreto Ejecutivo 33 (1934-07-20) |
