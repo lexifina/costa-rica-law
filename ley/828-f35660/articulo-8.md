@@ -1,0 +1,1 @@
+Artículo 8°.- Cualquiera de los Departamentos y Secciones del Banco Nacional podrá comprar, vender y conservar como inversión, sin limitación alguna y por su valor a la par, los bonod creados por esta ley, que tambien servirán para realizar todas las operaciones que las leyes vigentes autorizan efectuar con valores moboliarios de su clase.

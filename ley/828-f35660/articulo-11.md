@@ -1,0 +1,1 @@
+Artículo 11.- El aumento del capital del Departamento Hipotecario que esta ley establece, deberá emplearse exclusivamente en préstamos hipotecarios, sin perjuicio de la facultad contenida en el artículo anterior. El aumento del capital del Departamento Comercial deberá emplearse en préstamos reproductivos para la agricultura y para el fomento de la ganadería y de la industria.

@@ -1,0 +1,1 @@
+Artículo 10.- Facúltese al Departamento Hipotecario del Banco Nacional de Costa Rica y a la Caja Costarricense de Seguro Social, para contratar un préstamo hasta de tres millones de colones que el primero concederá a la segunda para la construcción de viviendas populares, en la forma y condiciones que de común acuerdo establezcan las Juntas Directivas de ambas Instituciones.

@@ -1,0 +1,1 @@
+Artículo 5°- El Consejo Directivo del Departamento Emisor y la Comiión de Cambios tomarán adecuadamente en cuenta las obligaciones impuestas por la presente ley al Departamento Emisor al realizar la fijación de los tipos de cambio de las dicisas extranjeras, la cual les compete de acuerdo a lo dispuesto al efecto para la Ley del Banco Nacional de Costa Rica.
