@@ -14,3 +14,4 @@ Reglamento Dirección General Auditoría Ministerio Salud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-06-04 | la propia norma |
+| 2 | 2002-02-18 | Decreto Ejecutivo 30253 (2002-02-18) |
