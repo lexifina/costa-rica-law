@@ -1,4 +1,5 @@
-Artículo 107°- Derechos en procesos. En todo proceso o procedimiento en que se discutan disposiciones materiales de este Código, las personas menores de edad tendrán derecho a lo siguiente:
+Artículo 107°- Derechos en procesos.
+En todo proceso o procedimiento en que se discutan disposiciones materiales de este Código, las personas menores de edad tendrán derecho a lo siguiente:
 a) Ser escuchadas en su idioma y que su opinión y versiones sean consideradas en la resolución que se dicte.
 b) Contar con un traductor o intérprete y seleccionarlo cuando sea necesario.
 c) Acudir a las audiencias en compañía de un trabajador social, un psicólogo o cualquier otro profesional similar o una persona de su confianza.

@@ -1,4 +1,5 @@
-Artículo 54°- Deberes de los centros de salud. Los centros de salud, públicos y privados, tendrán las siguientes obligaciones:
+Artículo 54°- Deberes de los centros de salud.
+Los centros de salud, públicos y privados, tendrán las siguientes obligaciones:
 a) Llevar registros actualizados del ingreso y el egreso de personas menores de edad, donde conste el tratamiento y la atención médica que se le brindó.
 b) Permitir que la persona recién nacida tenga contacto inmediato y alojamiento con su madre desde el nacimiento.
 c) Identificar a la persona nacida viva o la fallecida antes o después del parto, por medio de los controles estadísticos y la impresión de las huellas dactilares de la madre y plantares de la persona recién nacida, sin perjuicio de otras formas que indique la autoridad competente.

@@ -1,4 +1,5 @@
-Artículo 113°- Interpretación de este Código. Serán principios rectores para interpretar las normas procesales de este Código:
+Artículo 113°- Interpretación de este Código.
+Serán principios rectores para interpretar las normas procesales de este Código:
 a) La ampliación de los poderes del juez en la conducción del proceso.
 b) La ausencia de ritualismo procesal.
 c) El impulso procesal de oficio.

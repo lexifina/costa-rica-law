@@ -1,1 +1,2 @@
-Artículo 65°- Deberes del Ministerio de Educación Pública. Le corresponderá al Ministerio de Educación Pública censar a las personas menores de edad que cursan la enseñanza primaria o la secundaria, disponer de los mecanismos idóneos que aseguren su presencia diaria en los establecimientos educativos y evitar la deserción.
+Artículo 65°- Deberes del Ministerio de Educación Pública.
+Le corresponderá al Ministerio de Educación Pública censar a las personas menores de edad que cursan la enseñanza primaria o la secundaria, disponer de los mecanismos idóneos que aseguren su presencia diaria en los establecimientos educativos y evitar la deserción.

@@ -1,2 +1,3 @@
-Artículo 39°- Acuerdos sobre alimentos. Los acuerdos sobre alimentos pactados entre las partes tendrán carácter de sentencia ejecutoria, siempre que se homologuen ante la autoridad judicial competente. La suma cobrada podrá deducirse directamente del salario o según las formas establecidas por ley.
+Artículo 39°- Acuerdos sobre alimentos.
+Los acuerdos sobre alimentos pactados entre las partes tendrán carácter de sentencia ejecutoria, siempre que se homologuen ante la autoridad judicial competente. La suma cobrada podrá deducirse directamente del salario o según las formas establecidas por ley.
 Cuando se incumpla el acuerdo de alimentos, la parte interesada acudirá a la autoridad competente y pedirá la ejecución de lo acordado sin necesidad de plantear el proceso de alimentos. La solicitud de ejecución podrá ser verbal.
