@@ -1,0 +1,1 @@
+Artículo 13.-La Dirección de Financiamiento Externo fungirá como Unidad Negociadora en Materia de Crédito Externo. Ninguna institución del . Gobierno Central o del sector público o privado que requieran el aval del Estado podrá gestionar o negociar directamente su crédito externo.

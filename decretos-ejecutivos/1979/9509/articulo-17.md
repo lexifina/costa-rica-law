@@ -1,0 +1,2 @@
+Artículo 17.-Todas aquellas operaciones de crédito superiores a US$ 5.000,000.00 serán resueltas una vez externado el criterio del Consejo Nacional de Financiamiento Externo.
+En casos de urgencia las operaciones superiores a US$ 5.000,000.00 podrán ser resueltas por el Ministro de Hacienda por medio de la Dirección de Financiamiento Externo, la cual deberá informar sobre las características de la operación al Consejo Nacional de Financiamiento Externo en su próxima sesión.

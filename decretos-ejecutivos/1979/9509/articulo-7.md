@@ -1,0 +1,1 @@
+Artículo 7°-Se exceptúa del análisis y dictamen a que se refiere el artículo anterior, las operaciones de financiamiento que realice el Ministerio de Hacienda encaminadas a la refundición o consolidación del endeudamiento, y aquellas otras que pueda realizar para satisfacer necesidades distintas a las de financiamiento de Proyectos de Inversión.

@@ -1,0 +1,1 @@
+Artículo 8°-Con exclusión de su financiamiento, OFIPLAN participará en la negociación de las características técnicas, económicas e institucionales de aquellos proyectos de inversión que requieran financiamiento externo.

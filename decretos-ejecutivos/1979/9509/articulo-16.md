@@ -1,0 +1,1 @@
+Artículo 16.-Después de realizar las investigaciones y análisis necesarios que le corresponda, la Dirección 'de Financiamiento Externo del Ministerio de Hacienda, presentará su recomendación al Consejo Nacional de Financiamiento Externo, el que deberá rendir un dictamen al Ministro de Hacienda.

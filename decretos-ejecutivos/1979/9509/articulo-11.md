@@ -1,0 +1,1 @@
+Artículo 11.- Toda oferta de crédito que reciban las instituciones comprendidas en el artículo anterior, deberá remitirse para su estudio y trámite subsiguiente a la Dirección de Financiamiento Externo.

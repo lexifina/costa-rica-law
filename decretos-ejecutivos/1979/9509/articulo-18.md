@@ -1,0 +1,1 @@
+Artículo 18.-A fin de que el Consejo Nacional de Financiamiento Externo pueda dar su opinión respecto a las operaciones en el mercado privado de capitales, la Dirección tendrá a la vista o invitará, previa autorización del Consejo, a un mínimo de dos bancos o instituciones financieras para que presenten ofertas.
