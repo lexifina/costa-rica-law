@@ -1,0 +1,1 @@
+Articulo 2° Las multas que se impongan a los contrabandistas; los artículos u objetos que se aprehendan en los casos previstos por la ley de la materia, serán aplicados del modo que el Gobierno lo tiene ya determinado en ordenes especiales.
