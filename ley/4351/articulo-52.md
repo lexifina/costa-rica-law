@@ -1,2 +1,0 @@
-Artículo 52.-La disolución del Banco sólo podrá declararse por la vía judicial, previa una ley especial que establezca las bases de dicha disolución, cuando la Auditoría General de Bancos y la Contraloría General de la República determinen, por resolución razonada que debe procederse a la misma por causas financieras que hagan imposible el cumplimiento de los fines para los cuales fue creado el Banco.
-(Así reformado por el artículo 1° de la ley N° 4838 del 24 de agosto de 1971)

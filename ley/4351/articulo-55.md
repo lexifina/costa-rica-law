@@ -1,1 +1,0 @@
-Artículos 55.- Es igualmente prohibido para las Juntas Directivas hacer operaciones, directa o indirectamente, con sus propios miembros o con sus esposas sus padres o hijos, por afinidad o por consanguinidad, sin que esta prohibición se extienda a las operaciones realizadas antes del nombramiento respectivo.

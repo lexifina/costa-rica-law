@@ -1,2 +1,2 @@
-Artículo 10.- El ahorro voluntario que realicen los trabajadores y otras personas naturales y jurídicas devengarán un interés anual cuya tasa se fijará en el Reglamento de esta ley.
-Este ahorro voluntario estará permamentemente a disposición de los ahorrantes. Sin embargo, cuando se establezcan convenios por ahorros a plazo, el ahorrante deberá atenerse a los plazos convenidos de acuerdo con lo establecido en el Reglamento del Banco.
+Artículo 10.- El ahorro obligatorio y el ahorro voluntario que realicen los trabajadores y otras personas naturales y jurídicas devengarán intereses anuales cuya tasa fijará la Junta Directiva Nacional.
+El ahorro voluntario estará permanentemente a disposición de los ahorrantes. Sin embargo, cuando se establezcan convenios por ahorros a plazo, el ahorrante deberá atenerse a los plazos convenidos de acuerdo con lo establecido en el Reglamento del Banco.

@@ -1,1 +1,0 @@
-Transitorio VI.- El Banco no podrá tener instalaciones propias, nacionales o regionales, mientras no tenga constituido por lo menos, la mitad del patrimonio a que se refiere el artículo 50 de la presente ley.
