@@ -1,0 +1,5 @@
+DECRETO XXXI
+Reorganiza el Supremo Tribunal de Justicia
+“ Juan Rafael Mora, Presidente de la República de Costa Rica.- Por cuanto el Excelentísimo Congreso Nacional ha decretado lo siguiente:
+El Excelentísimo Congreso de la República de Costa Rica- Considerando: que ha llegado el caso previsto por la ley fundamental de exijir la calidad de Letrado para ocupar las principales plazas de Ministro Juez de la Suprema Corte de Justicia, y en atención a la iniciativa del Supremo Poder Ejecutivo, a la necesidad de hacer en el Tribunal Poder Ejecutivo, a la necesidad de hacer en el Tribunal Superior las reformas que reclama el estado de desorganización en que se halla y el mejor servicio público, según el mismo Tribunal lo ha hecho presente, y mientras se da la Constitución reformada, conformándose con lo prevenido en las disposiciones contenidas en el título 14 de la Constitución, ha venido en decretar y decreta:
+Art 1°.- El Poder Judicial reside exclusivamente en los Tribunales y Jueces creados por la ley para ejercer la justicia.
