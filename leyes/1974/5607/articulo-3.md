@@ -1,0 +1,7 @@
+Artículo 3º.- Los "Bonos Mobiliario y Herramientas Escolares 1975",
+tendrán la garantía plena del Estado y estarán exentos, al igual que sus
+intereses, de todo impuesto presente o futuro.
+Los bonos favorecidos en los sorteos trimestrales, así como los
+cupones de intereses vencidos, los recibirá el Banco Cajero del Estado o
+sus agencias auxiliares, en pago de cualquier impuesto o contribución
+nacional.
