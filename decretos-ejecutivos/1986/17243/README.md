@@ -20,3 +20,4 @@ Reglamento de inscripciones y propaganda medicamentos y cosméticos
 | 5 | 1992-06-08 | Decreto Ejecutivo 21374 (1992-06-08) |
 | 6 | 1994-04-26 | Decreto Ejecutivo 23191 (1994-04-26) |
 | 7 | 1994-07-12 | Decreto Ejecutivo 23527 (1994-07-12) |
+| 8 | 1994-12-22 | Decreto Ejecutivo 24008 (1994-12-22) |
