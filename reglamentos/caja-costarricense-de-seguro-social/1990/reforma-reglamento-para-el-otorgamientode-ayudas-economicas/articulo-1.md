@@ -1,0 +1,8 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 8° de la sesión N° 6456, celebrada el 27 de setiembre de 1990, dispuso reformar el inciso b) del artículo 4° y los artículos 6° y 7° del reglamento para el otorgamiento de ayudas para tratamiento médico en el exterior, para que en adelante se lea de este modo:
+REGLAMENTO PARA EL OTROGAMIENTO DE AYUDAS PARA TRATAMIENTO MÉDICO EN EL EXTERIOR
+“Artículo 4°-
+b) La Gerencia de la División Médica solicitará el pronunciamiento de tres médicos – uno de los cuales debe ser jefe de servicio- de los hospitales de la Caja Costarricense de Seguro Social, especialistas en la principal rama médica a que se refiere la enfermedad, en donde se establecerá claramente el pronóstico y las expectativas de recuperación y se determinará claramente el pronóstico y las expectativas de recuperación y se determinará la necesidad imperiosa de atención fuera del país.”
+“Artículo 6°-La ayuda para el tratamiento médico en el exterior se concederá por una sola vez, por una suma máxima de US$ 2.000,00 (dos mil dólares), para lo cual se tomará en cuenta si es solo examen o procedimiento diagnóstico o incluye además tratamiento y hospitalización. Dentro de esa suma no podrá contemplarse la inclusión de costos de pasajes, viáticos personales ni del acompañante.”
+“Artículo 7°-En casos muy especiales, la institución podrá, por acuerdo unánime de los miembros presentes de Junta Directiva, autorizar hasta la suma máxima de US $ 3.000,00 (tres mil dólares) o conceder la ayuda por una vez más, sin sobrepasar (sumada la primera y segunda ayudas) el monto máximo de US $ 5.000,00 (cinco mil dólares).”
+San José, octubre de 1990.
