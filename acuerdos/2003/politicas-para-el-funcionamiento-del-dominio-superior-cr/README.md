@@ -14,3 +14,4 @@ Políticas para el Funcionamiento del Dominio superior CR
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-17 | la propia norma |
+| 2 | 2003-12-15 | Acuerdo 0 (2003-12-15) |
