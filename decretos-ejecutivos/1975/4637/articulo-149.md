@@ -2,4 +2,5 @@ TITULO V
 Requisitos Médicos
 CAPITULO 1
 Requisitos Médicos Generales
-Artículo 149.-Para pedir un reconocimiento médico el solicitante debe, mediante declaración jurada escrita, detallar los datos médicos referentes a su historia personal, familiar y hereditaria. Al momento de entregar dicha declaración, el funcionario que la recibe hará saber al solicitante que la declaración que presenta es jurada y que debe contener el máximo de detalles médicos dichos sobre los que tenga conocimiento.
+Artículo 149.-Los requisitos médicos para la renovación de una licencia o habilitación serán los mismos que los prescritos para el otorgamiento inicial de esa licencia o habilitación, con excepción de lo estipulado específicamente en este título. Los intervalos entre los reconocimientos médicos periódicos, que tienen por fin establecer la continuidad de la aptitud psicofísica, con específica en el artículo 30, sin embargo para efectos de renovación de licencia o habilitaciones se entenderá que el vencimiento del examen médico será a partir del último día del mes de vencimiento del mismo entendiéndose vigente la licencia o habilitación hasta esa fecha inclusive.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 15579 del 21 de agosto de 1984)

@@ -18,3 +18,4 @@ Reglamento de licencias para el personal técnico aeronáutico
 | 3 | 1976-08-09 | Decreto Ejecutivo 6232 (1976-08-09) |
 | 4 | 1980-01-28 | Decreto Ejecutivo 10996 (1980-01-28) |
 | 5 | 1980-05-09 | Decreto Ejecutivo 11141 (1980-05-09) |
+| 6 | 1984-08-21 | Decreto Ejecutivo 15579 (1984-08-21) |
