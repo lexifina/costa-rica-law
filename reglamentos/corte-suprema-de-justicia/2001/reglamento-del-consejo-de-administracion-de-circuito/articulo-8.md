@@ -1,0 +1,1 @@
+Artículo 8°—En caso se renuncia, impedimento o sustitución del titular, su suplente entrará en funciones como titular por el resto del período. A quien corresponda el nombramiento del titular designará en definitiva al nuevo suplente.

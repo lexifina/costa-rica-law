@@ -1,0 +1,1 @@
+Artículo 7° — En caso de ausencia del Presidente, es la será sustituido por el Vicepresidente y en ausencia de ambos por el miembro más antiguo de nombramiento en el Poder Judicial. Las del Secretario por SLI suplente.
