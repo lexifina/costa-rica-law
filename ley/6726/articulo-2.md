@@ -1,0 +1,1 @@
+Artículo 2º.- En el Libro II, Título I del Código Penal, la Sección V se denominará Homicidio o lesiones en riña y comprenderá solamente el artículo 139; la Sección VI se denominará Agresión con armas y comprenderá los artículos 140 y 141; y la actual Sección VI pasará a ser la Sección VII, con el nombre de Abandono de personas y comprenderá los artículos 142, 143 y 144.

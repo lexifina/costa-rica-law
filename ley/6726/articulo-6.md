@@ -1,0 +1,8 @@
+Artículo 6º.- Refórmase el artículo 21 de la Ley especial sobre jurisdicción de los tribunales, Nº 5711 del 27 de junio de 1975, el cual dirá así:
+"Artículo 21.- La jurisdicción de los juzgados penales se extiende a la provincia o al circuito judicial en que ejerzan sus funciones, pero la corte Plena podrá atribuirles el conocimiento de asuntos de otros lugares, para una mejor distribución del trabajo.
+Los juzgados penales conocerán en primera instancia de los recursos de amparo, en los casos que la ley señala. En materia de extradición se estará a lo que disponga la ley respectiva.
+En los juzgados penales podrá haber uno o más jueces, según lo disponga la Corte Plena, para el mejor servicio público. Cada uno de esos jueces tendrá competencia para conocer de los asuntos que la ley determina y actuará con un prosecretario sin perjuicio de que también pueda hacerlo con el secretario.
+Cuando en un juzgado hubiere dos o más jueces, el jefe administrativo de la oficina lo será el juez con mayor tiempo de servicio en ese juzgado, y, en igualdad de condiciones, el de título más antiguo en el catálogo del Colegio de Abogados.
+El juez penal que conozca de un asunto tendrá facultades para ordenar lo que corresponda en el cumplimiento de sus funciones, en ese proceso, y en relación con éste ejercerá el régimen disciplinario, de acuerdo con el Código de Procedimientos Penales y la Ley Orgánica del Poder Judicial.
+En los demás casos corresponderá ejercer el régimen disciplinario al cuerpo de jueces. Los acuerdos se tomarán por mayoría, y se hubiere empate, el jefe administrativo tendrá doble voto para definir el punto.
+En las resoluciones deberá consignarse el nombre y apellidos del juez que actúa en la causa."
