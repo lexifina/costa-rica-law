@@ -1,0 +1,1 @@
+Artículo 3°.- La estimación del lote y de las fajas de terreno es de ¢ 308.665.20 (trescientos ocho mil seiscientos sesenta y cinco colones, veinte céntimos) que corresponde al total de la suma a pagar de conformidad con los avalúos números 12.742, 12.923, Av. E 12.745 y 12.916 Av.E, de la Sección de Avalúos Especiales de la Tributación Directa.
