@@ -1,0 +1,1 @@
+Artículo 59.—División ,o reunión de fincas. Si el inmueble se dividiera, se confeccionarán tantas nuevas inscripciones y matrículas como fincas resultaren, anotándose en la inscripción primitiva, los números de matrículas de las fincas resultantes. Cuando se reúnan inmuebles, se hará una nueva y única matrícula.

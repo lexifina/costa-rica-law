@@ -1,0 +1,1 @@
+Artículo 97.—Resolución de la Dirección o de la Subdirección. Una vez vencidas las audiencias conferidas, la Dirección o la Subdirección resolverá dentro del mes siguiente, en resolución debidamente razonada. Esta resolución se notificará al gestionante, así como a los demás interesados que se hubieren apersonado. Para los demás se tendrá por firme 24 horas después de dictada.

@@ -1,0 +1,1 @@
+Artículo 84.—Error conceptual. Se entenderá que se comete error conceptual cuando el Registrador altere o varíe el verdadero sentido de los . conceptos contenidos en el título que se registra, debido a una errónea calificación.

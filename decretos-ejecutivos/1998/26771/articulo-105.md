@@ -1,0 +1,1 @@
+Artículo 105.—De la presentación de varios documentos en una sola Boleta de Seguridad. Podrán ser presentados Con una sola Boleta de Seguridad y bajo una misma presentación, varios documentos autorizados por diferentes notarios.

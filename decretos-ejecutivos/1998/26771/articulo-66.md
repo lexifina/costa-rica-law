@@ -1,0 +1,1 @@
+Artículo 66.—Procesamiento electrónico de datos. El procesamiento electrónico de datos es el medio técnico de la registración, por el cual se introduce, procesa, actualiza y archiva la información registral contenida en la unidad de información, en dispositivos propios de un ordenador o computador.

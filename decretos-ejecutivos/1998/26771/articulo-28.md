@@ -1,0 +1,1 @@
+Artículo 28.—Registración de imágenes. La registración de la imagen de los documentos que se presenten al Diario, se hará por los :medios técnicos que el Registro considere pertinentes, a fin de cumplir las de control y publicidad que estos requieren.

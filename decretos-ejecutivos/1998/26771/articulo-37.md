@@ -1,0 +1,1 @@
+Artículo 37.—Calificación de documentos por parte de la Dirección y Subdirección. Una vez calificado el documento por el Jefe y, confirmado el defecto, se someterá el mismo a calificación por parte de la Dirección o Subdirección; el pronunciamiento de ésta es de obligatorio acatamiento para el Registrador y su inobservancia se considerará falta grave.

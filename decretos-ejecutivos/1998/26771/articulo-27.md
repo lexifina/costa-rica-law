@@ -1,0 +1,1 @@
+Artículo 27.—Horario de recepción de documentos. El horario de opción de documento será de 7,30 a.m. a 15,30 p.m., el cual podrá ser aliado por la Dirección a efecto de mejorar el servicio público que se brinda.

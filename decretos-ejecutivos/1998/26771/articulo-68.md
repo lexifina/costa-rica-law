@@ -1,0 +1,1 @@
+Artículo 68.—De la Microfílmación de Documentos. La microfilmación de documentos es otro medio técnico auxiliar de la registración, que garantiza plenamente el principio de literalidad de los actos o contratos registrables, presentados a este Registro.

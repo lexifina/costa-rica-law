@@ -1,0 +1,1 @@
+Artículo 78.—Diferencia entre la fórmula de la cédula hipotecaria y el asiento. Si del cotejo de la fórmula de la cédula hipotecaria con su respectivo asiento resultaren incongruencias o diferencias, el Registrador de cédulas hipotecarias denegará la emisión, hasta tanto no se subsanen los errores u omisiones.

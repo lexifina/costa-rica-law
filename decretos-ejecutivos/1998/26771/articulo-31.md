@@ -1,0 +1,1 @@
+Artículo 31.—Del reparto automático. Una vez que se haya cerrado la entrada de documentos del día y se hayan realizado todas las aciones correspondientes al Diario, se efectuará el reparto de los momentos que se presentaron ese día a los registradores respectivos, el que se realizará de la manera más justa y equitativa.

@@ -1,0 +1,1 @@
+Artículo 22.—Del Registro Mercantil. En el Registro Mercar inscribirá todo lo indicado en el artículo 235 del Código de Comer. cualquier otro acto o contrato que por ley o reglamento se indicare el asiento donde se practique la inscripción se indicará la información importante, del acto o contrato que se registra, para efectos de la publicidad.

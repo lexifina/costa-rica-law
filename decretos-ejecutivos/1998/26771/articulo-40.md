@@ -1,0 +1,1 @@
+Artículo 40.—Retiro de documentos sin inscribir. Si el interesado en vez de subsanar el defecto o pedir denegación, retira el documento sin inscribir, se cancelarán las anotaciones que haya originado.

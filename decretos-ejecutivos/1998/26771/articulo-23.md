@@ -1,0 +1,1 @@
+Artículo 23.—Del Registro de Asociaciones. En el Registro de Asociaciones se inscribirán las asociaciones con fines artísticos, científicos, benéficos, de recreo y cualesquiera otros lícitos que no tengan por único y exclusivo objeto el lucro o ganancia. En el asiento donde se registre constará un resumen de los datos más importantes c. inscripción.

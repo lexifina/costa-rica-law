@@ -1,0 +1,1 @@
+Artículo 25.—Del Registro de Concesiones de Derecho de Uso de la Zona Marítimo Terrestre y del Golfo de Papagayo. En el Registro de es de Derecho' de Uso de la Zona Marítimo Terrestre se inscribirá todo lo relativo a la concesión de derechos de la Zona Marítimo Terrestre y del Golfo de Papagayo y aquellos que por leyes o decretos se le asignen.

@@ -1,0 +1,1 @@
+Artículo 76.—Requisitos del documento para ser inscrito. Los documentos en donde se constituyen cédulas hipotecarias, deberán observar los requisitos establecidos en los artículos 48 y 49 de este Reglamento.

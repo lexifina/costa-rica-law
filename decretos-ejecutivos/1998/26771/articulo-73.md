@@ -1,0 +1,1 @@
+Artículo 73.--- Cédula de Persona Jurídica. El Registro extenderá una cédula que identificará con número, la razón social y otros datos a cada persona jurídica, que será el documento oficial para su identificación, de conformidad con lo que señala el Decreto Ejecutivo No. 18504-J de 29 de setiembre de 1988.

@@ -1,0 +1,1 @@
+Artículo 93.—Legitimación para Gestionar. Pueden promover la gestión administrativa los titulares de los derechos inscritos en el Registro y toda aquella persona que pruebe tener interés en el asunto, de acuerdo con los asientos del Registro.

@@ -1,0 +1,1 @@
+Artículo 70.—Modo de extender certificaciones. El Registro podrá expedir certificaciones de toda la información contenida en las Bases de Datos, por los medios técnicos de que disponga. La Dirección determinará el sistema más seguro y eficiente.

@@ -1,0 +1,1 @@
+Artículo 67.—De la digitalización de documentos. La digitalización de documentos es un medio auxiliar de la publicidad registral que consiste en la captura de imágenes por medio de un aparato lector óptico, las cuales se guardan en la base de datos y pueden ser consultados por toda persona.

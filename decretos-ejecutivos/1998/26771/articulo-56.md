@@ -1,0 +1,1 @@
+Artículo 56.—De las competencias especializadas de cada Dirección. Cada Dirección del Registro Nacional tendrá competencia propia y no se podrá registrar ningún documento en otra Dirección que opere con otra especialidad funcional.

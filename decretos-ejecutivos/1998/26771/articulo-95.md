@@ -1,0 +1,1 @@
+Artículo 95.—De la nota de advertencia. Se dará curso a la gestión que cumpla todos los requisitos, y se pondrá cuando así se determine, una nota de advertencia en la inscripción respectiva, para efectos de publicidad únicamente.

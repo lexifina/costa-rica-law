@@ -1,0 +1,1 @@
+Artículo 44.—La inscripción. Si el documento calificado no presenta defecto alguno, se procederá a su debida inscripción, por los medios técnicos que la Dirección considere más ágiles, eficientes y seguros, valiéndose para ello de las técnicas de computación, microfilmación, digitalización y cualquier otra tecnología.

@@ -1,0 +1,1 @@
+Artículo 72.—Informes regístrales. Aparte de las certificaciones enunciadas en los artículos anteriores, el Registro podrá expedir una copia simple de la información registral, por los medios técnicos que determine la Dirección, que no será una certificación.

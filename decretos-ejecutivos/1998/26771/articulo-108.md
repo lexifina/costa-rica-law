@@ -1,0 +1,1 @@
+Artículo 108.—Cambio de la clave de acceso. En cualquier tiempo el funcionario podrá cambiar su clave de acceso, como medida de seguridad. Bajo la autorización y supervisión superior, podrán ser cambiadas las claves de acceso, como medida de seguridad.

@@ -1,0 +1,1 @@
+Artículo 24.—Del control administrativo y fiscalización de Asociaciones. El control administrativo y la fiscalización de asociaciones, será competencia del Departamento Legal del Ministerio de Justicia y Gracia, de conformidad con lo dispuesto en el Título IV, Capítulo I del Reglamento de la Ley de Asociaciones, que es el Decreto Ejecutivo N° 18670-J de 20 de diciembre de 1988.

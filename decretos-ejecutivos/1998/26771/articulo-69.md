@@ -1,0 +1,1 @@
+Artículo 69.—Del valor de las Certificaciones. La plenitud, limitación o restricción de los derechos inscritos y todo lo que conste en las diferentes Bases de Datos, podrá acreditarse auténticamente con relación a terceros mediante las certificaciones emitidas por esta Institución, las cuales irán firmadas por los funcionarios que ejercen fe pública para ese efecto.

@@ -1,0 +1,1 @@
+Artículo 99.—Resolución final por parte del Tribunal respectivo. Una vez resuelto lo que corresponda por el Tribunal Superior Contencioso Administrativo y devuelto el expediente, la Dirección o Subdirección ejecutará la decisión final.

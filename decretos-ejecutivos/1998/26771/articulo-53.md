@@ -1,0 +1,1 @@
+Artículo 53.—Validez de los Títulos. La inscripción en el Registro Público no convalida los actos o contratos inscritos que sean nulos o anulables conforme a la ley, sin perjuicio de lo establecido en el artículo 456 del Código Civil.

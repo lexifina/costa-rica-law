@@ -1,0 +1,1 @@
+Artículo 21.—Del Registro de Personas. En el Registro de Personas se inscribirá todo lo indicado en el artículo 466 del Código! y cualquier otro acto o contrato que por ley o por reglamento se indicare. El asiento donde se realice la inscripción deberá contener los requisitos indicados en el artículo 467 de dicho Código.

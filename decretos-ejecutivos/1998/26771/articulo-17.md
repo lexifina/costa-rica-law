@@ -1,0 +1,1 @@
+Artículo 17.—Del Departamento del Registro de Asociaciones Este Departamento está constituido por un Jefe y los Registra dedicados a la registración de todo lo relativo al Registro Asociaciones para lo cual deberán cumplir lo que establecen los artículos 8 y 9 de Reglamento.

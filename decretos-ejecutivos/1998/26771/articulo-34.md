@@ -1,0 +1,1 @@
+Artículo 34.—Plazo para calificar. A más tardar dentro de los ocho días siguientes a su recibo y guardando estricto orden de presentación, procederán los Registradores a calificar los documentos que les hubiere sido entregados. Dicho plazo no correrá para los documentos a los que se les de el carácter de complejos.

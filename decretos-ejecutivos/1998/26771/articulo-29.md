@@ -1,0 +1,1 @@
+Artículo 29.—De la anotación. Una vez recibido el documento y ida su imagen, se procederá de inmediato a elaborar la anotación respectiva por los medios técnicos que se consideren más eficientes y seguros.

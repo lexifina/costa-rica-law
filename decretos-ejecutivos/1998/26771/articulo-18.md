@@ -1,0 +1,1 @@
+Artículo 18.—De los Servicios Regístrales. Para los efecto , cumplir los fines de esta Dirección $e podrá establecer la organiza administrativa necesaria para brindar los servicios regístrales de manera eficiente.

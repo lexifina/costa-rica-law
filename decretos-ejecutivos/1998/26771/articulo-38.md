@@ -1,0 +1,1 @@
+Artículo 38.—Revocatoria de la orden de suspensión de documentos. El Director o el Subdirector bajo su propia responsabilidad pueden revocar la orden de suspensión de inscripción de un documento ordenada por el Registrador, en tal caso ordenará por escrito que la inscripción sea autorizada por el Registrador, cumpliendo así lo estipulado en el artículo anterior.

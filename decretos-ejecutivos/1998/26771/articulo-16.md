@@ -1,0 +1,1 @@
+Artículo 16.—Del Departamento Mercantil y de Personas Departamento Mercantil y de Personas está constituido por un Jefe Registradores y Certificadores dedicados a la registración y certifica de todo lo relativo al Registro Mercantil, de Personas y de Asociaciones para lo cual deberán cumplir lo que establecen los artículos 8, 9 y 1 este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 57.—Del Principio de Rogación. El Registro no inscribirá ni tramitará ningún documento de oficio. La presentación formal del documento al Registro, significará la solicitud de tramitación del documento. No se podrá tramitar ningún tipo de documento por medios postales o tecnológicos, excepto los que se indiquen expresamente por Ley.
