@@ -1,0 +1,1 @@
+5. Informes periódicos y finalización del proyecto. La Municipalidad deberá rendir a la Presidencia, de conformidad con los parámetros de periodicidad que ésta última determine según el caso concreto, informes sobre el avance de la obra. Asimismo, cuando haya finalizado la obra deberá presentar un informe de finalización del proyecto".
