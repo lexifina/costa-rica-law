@@ -1,0 +1,1 @@
+Artículo 7°—El Auditor Interno deberá proponer justificada y debidamente al Ministro de Vivienda y Asentamientos Humanos, para su aprobación, la creación de plazas y sen icios que considere indispensables para el cumplimiento de su plan anual de auditoría y en general para el buen funcionamiento de su unidad.
