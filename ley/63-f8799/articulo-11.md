@@ -1,0 +1,1 @@
+Art 11° Siempre que se oblen cantidades provenientes del valor de estos terrenos, se colocarán inmediatamente a interes en personas de responsabilidad y que presten las correspondientes seguridades de fianza o hipoteca, por un término que no excederá de un diez por ciento anual. Siempre será condición del mutuo que, no pagando los intereses en su plazo, sea exigible el principal.
