@@ -1,1 +1,2 @@
-Artículo 13.—La CRPF será nombrada por la Junta Directiva del Colegio de Farmacéuticos de Costa Rica en la segunda sesión ordinaria del año y estará integrada por cinco miembros activos de dicho Colegio.
+Artículo 13.—La Comisión de Recertificación Profesional Farmacéutica, será nombrada por la Junta Directiva del Colegio de Farmacéuticos de Costa Rica en la segunda sesión ordinaria del año y estará integrada por cinco miembros activos de dicho Colegio. El Jefe del Departamento de Desarrollo Profesional, será miembro permanente con derecho a voz pero sin voto
+(Así reformado mediante acuerdo de Junta Directiva del 6 de Julio del 2004)
