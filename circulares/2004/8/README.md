@@ -13,3 +13,4 @@ Reitera obligación degirar, actualizar y reafirmar las órdenes de captura en c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-28 | la propia norma |
+| 2 | 2004-07-12 | Circular 92 (2004-07-12) |
