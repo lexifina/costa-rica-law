@@ -13,3 +13,4 @@ Autoriza Importación y Uso de Muestras Médicas con Drogas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-06-18 | la propia norma |
+| 2 | 1975-06-18 | SINALEVI (sin norma nombrada) |

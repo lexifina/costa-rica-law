@@ -1,3 +1,1 @@
-Artículo 4º.- La Junta de Vigilancia de Drogas Estupefacientes podrá
-autorizar la importación de muestras médicas, sin sujeción a las
-estipulaciones anteriores, en casos de emergencia y necesidad pública.
+ARTICULO 4º.- La Junta de Vigilancia de Drogas Estupefacientes podrá autorizar la importación de muestras médicas, sin sujeción a las estipulaciones anteriores, en casos de emergencia y necesidad pública.
