@@ -1,0 +1,4 @@
+Artículo 5º.- El INCOP estará obligado a reconocer las informaciones,
+ad perpetúan, como medio de prueba idóneo para demostrar los años laborados
+por los servidores de la Institución, que soliciten acogerse a los
+beneficios de la ley número 264 del 23 de agosto de 1939 y sus reformas.

@@ -1,0 +1,2 @@
+El Instituto Autónomo del Ferrocarril Eléctrico al Pacífico, no hará revisión de pensiones, jubilaciones o traspasos, otorgados al amparado de la ley número 264 del 23 de agosto de 1939 y sus reformas; ni suprimirá ni traspasará pensiones o jubilaciones a instituciones del Estado.
+(Nota de Sinalevi: Mediante el artículo 4° de la ley N° 6563 del 3 de abril de 1981, se adiciona este nuevo artículo. No obstante, la ley afectante no precisa la numeración del nuevo artículo, por lo que el mismo se añade al final de esta ley)

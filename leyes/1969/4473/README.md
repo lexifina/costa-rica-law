@@ -1,6 +1,6 @@
 # Reforma Ley de Jubilaciones y Pensiones para los Empleados del Ferrocarril Eléctrico al Pacífico
 
-Ley N° 4473 del 1969-12-03. SINALEVI, ficha 8365: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8365&param2=79896&param3=1>.
+Ley N° 4473 del 1969-12-03. SINALEVI, ficha 8365: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=8365&param2=79906&param3=1>.
 
 Publicada en La Gaceta N° 278 del 1969-12-06.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1969-12-06 | Ley 4473 | 1969-12-03 |
 | 2 de 3 | 1970-05-07 | Ley 4572 | 1970-04-30 |
+| 3 de 3 | 1981-04-03 | Ley 6563 | 1981-04-03 |
