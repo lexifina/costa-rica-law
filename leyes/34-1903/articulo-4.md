@@ -1,0 +1,1 @@
+ARTÍCULO 4°.-Formar n dicha Facultad todos los Ingenieros y Agrimensores autorizados por la ley. Se tendrán desde luego por autorizados los que en la actualidad existan en el país y que hayan sido legalmente reconocidos.
