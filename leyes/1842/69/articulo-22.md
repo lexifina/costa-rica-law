@@ -1,0 +1,1 @@
+Art. 22. –art. 275. “Muchos indicios que no dependen uno de otro, y que todos concurren al hecho principal, harán plena prueba, si cada uno de ellos está apoyado sobre la deposición de dos testigos; mas un solo indicio que vehemente que sea, no puede ser considerado sinó como principio de prueba, ó prueba semiplena, á menos que sea un indicio necesario.”

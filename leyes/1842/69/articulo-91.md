@@ -1,0 +1,1 @@
+Art. 91. –art.1089. “Acabada la visita de cualquiera causa en las salas, la votarán los Magistrados, antes que se levante el despacho, sin poderse suspender, ni diferir la votación, y discutiendo previamente, á puerta cerrada y solos, los datos que arroje el proceso.”

@@ -1,0 +1,1 @@
+Art. 64. “Las discusiones serán secretas, y para hacer sentencia es necesaria unanimidad, poniéndose entre tanto á los jurados en absoluta incomunicación, y sin que puedan tomar mas alimentos que pan y agua bajo la custodia del Juez de 1° Instancia hasta que hallen todos de acuerdos, ya sea por absolver ó condenar al acusado.”

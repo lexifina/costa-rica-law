@@ -1,0 +1,1 @@
+Art. 96. –art.1180. “Los Alcaldes Constitucionales serán recusables de palabra ante ellos mismos, y entonces fijarán el término para ocurrir al Juez de 1 Instancia con la prueba de la recusación, y en el mismo término le informarán acerca de ella. El Juez de 1a Instancia resolverá dentro tercero dia de recibido el informe del Alcalde, y las pruebas del recusante.”

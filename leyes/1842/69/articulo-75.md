@@ -1,0 +1,1 @@
+Art. 75. –art.1033. “El dia noveno á mas tardar de haberse entregado los autos á los Magistrados se verá la causa en el Tribunal; y oído el informe verbal de las partes, ó de sus abogados, si quisieren darlo, se pronunciará la sentencia que corresponda. Si esta fuere definitiva, quedará terminada la segunda instancia.”

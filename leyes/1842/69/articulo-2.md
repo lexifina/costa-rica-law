@@ -1,0 +1,2 @@
+PARTE I
+Art.2. –art. 13. “El costarricense que sin permiso del Gobierno tomase servicio militar en una nación extranjera, ó se alistase en un cyerpo militar extranjero, perderá la calidad de Costarricense. No podrá volver a la República, sino con permiso del Gobierno, ni recobrar la calidad de Costarricense, sino después de haber llenado las condiciones impuestas á un extranjero para que pueda ser Ciudadano, salvo todo sin perjuicio de las penas pronunciadas por la Ley hácia los Costarricenses que han tomado ó tomaren armas contra su patria.”

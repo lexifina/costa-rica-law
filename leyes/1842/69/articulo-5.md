@@ -1,0 +1,1 @@
+Art. 5. –art.1265. “El interés es legal ó convencional. Legal, es el fijado por la ley para los casos en que np hay convención, el cual será de un seis por ciento al año. El convencional, es el estipulado por las partes y puede ser reclamado en pago sea cual fuere la cantidad convenida.”

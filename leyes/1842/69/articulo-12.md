@@ -1,0 +1,1 @@
+Art. 12. –art. 59. “Si el reo á quien el Jefe del Estado hubiese conmutado la pena de muerte fuere aprehendido en el Estado antes de cumplido el destierro, ó fugare del presidio, fortaleza ó lugar del confinamiento, será condenado á diez años de presidio sin descuento ni rebaja alguna, sino hubiese cometido nuevo delito ó culpa.”

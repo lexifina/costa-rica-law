@@ -1,0 +1,1 @@
+Art. 86. “En caso de que la parte suplicante4, al tiempo de formalizar la súplica hubiese presentado nuevos documentos. Ó el agravio de que se queja fuere por falta de pruebas que no se le hubiesen admitido en 1a ó 2a instancia, la primera y segunda sala se arreglaran en todo á lo dispuesto detalladamente para la 2a instancia.”

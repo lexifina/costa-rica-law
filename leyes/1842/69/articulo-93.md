@@ -1,0 +1,1 @@
+Art. 93. –art.1103. “En la Cámara no podrán haber sentencias con menos de tres votos conformes, en los asuntos en que conozca en reunión de las dos salas, debiendo concurrir á su vista cuatro Jueces.”

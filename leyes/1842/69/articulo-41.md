@@ -1,0 +1,1 @@
+Art. 41. Después del art. 943, se leerá el siguiente artículo. “Para las resoluciones que se tomen sobre rebaja de penas , y rehabilitaciones de delincuentes, es necesario la conformidad absoluta de votos de los vocales del tribunal.”
