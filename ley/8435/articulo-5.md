@@ -1,0 +1,1 @@
+Artículo 5º—Para que esta Comisión pueda sesionar, el quórum se constituirá con la presencia de la mayoría de sus miembros. Sus resoluciones, acuerdos y decisiones se tomarán por mayoría simple de los votos presentes.
