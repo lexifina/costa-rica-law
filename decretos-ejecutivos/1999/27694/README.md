@@ -14,3 +14,4 @@ Modifica Reglamento a la Ley Forestal y su Reforma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-12 | la propia norma |
+| 2 | 1999-04-30 | Decreto Ejecutivo 27925 (1999-04-30) |
