@@ -8,8 +8,4 @@ b) Reunirse ordinariamente una vez al mes y, en forma extraordinaria,
 cuando lo considere necesario. Las sesiones serán convocadas por el
 Presidente. El quórum se formará con cuatro miembros y los acuerdos se
 tomarán por mayoría absoluta.
-c) Nombrar a una persona que desempeñe el trabajo técnico
-secretarial, quien deberá ser de reconocida experiencia en el trabajo con
-adolescentes. Se nombrará, por votación de por lo menos cinco miembros.
-Durará en su cargo cuatro años y podrá ser reelegida en forma sucesiva,
-por igual período.
+c) DEROGADO por el artículo 2 de la ley N° 8312 de 30 de setiembre del 2002.
