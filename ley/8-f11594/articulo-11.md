@@ -1,0 +1,2 @@
+ARTÍCULO 11.
+Los vapores de la Compañía de las Malas del Pacífico estarán exentos, durante el término de este contrato, del pago de cualquiera y de todos los derechos que actualmente existen ó que puedan ser establecidos en adelante, exceptuando el derecho del faro; pero en ningún caso excederá este derecho de la suma de cien pesos ($100) anuales, por todos los vapores que puedan tocar en el puerto de Puntarenas.
