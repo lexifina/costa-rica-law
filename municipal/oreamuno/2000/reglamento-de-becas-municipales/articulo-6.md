@@ -1,0 +1,1 @@
+Articulo 6°—-El Alcalde Municipal deberá incluir en el Presupuesto Anual Ordinario, los recursos necesarios para dar cumplimiento al Programa de Becas Municipales, tomando en cuenta la recomendación que se emita. Todo lo anterior, después de la debida aprobación del Concejo Municipal.

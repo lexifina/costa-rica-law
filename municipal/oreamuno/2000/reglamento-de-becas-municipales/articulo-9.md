@@ -1,0 +1,1 @@
+Articulo 9°- Las personas interesadas en una beca, deberán presentar, aparte de la información requerida en el Articulo N° 4, copia del último informe de calificaciones certificada por la institución educativa correspondiente.

@@ -1,0 +1,1 @@
+Articulo 19.—Este reglamento deroga cualquier reglamentación existente al respecto, se publicara de conformidad con el articulo 43 del Código Municipal y rige a partir de su publicación en el Diario Oficial La Gaceta.

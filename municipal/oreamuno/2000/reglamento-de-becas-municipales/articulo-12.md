@@ -1,0 +1,1 @@
+Articulo 12.— La Tesorería Municipal no emitirá el primer pago. Sin haber recibido el lisiado general y la autorización de la Comisión de Becas avalado por el Concejo Municipal, en el cual se le comunica que el estudiante ha completado su documentación y se le ha asignado la beca por ese año.

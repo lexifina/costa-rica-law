@@ -1,0 +1,1 @@
+Articulo 14.-- Una vez acordada la aprobación de la lisia de becados por el Concejo Municipal se comunicara la nómina de becados a cada institución educativa. Si pasados tres meses el beneficiario no retira su beca, pierde automáticamente el derecho de ese beneficio,

@@ -1,0 +1,1 @@
+Articulo 5°—La información que se da en la fórmula respectiva, deberá ser fidedigna. Si se comprueba lo contrario, automáticamente, se desechara la solicitud. La Comisión de Becas estará en plena autoridad para verificar la información cuando así lo considere pertinente.
