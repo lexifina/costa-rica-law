@@ -9,4 +9,6 @@ f) Los Gerentes de los siguientes Bancos: Nacional de Costa Rica, de Costa Rica,
 g) El Gerente del Instituto de Tierras y Colonización.
 h) El Gerente del Consejo Nacional de Producción.
 i) Tres personas designadas por el Presidente de la República, una como su representante personal y las otras dos en representación del Sector Privado, incluyendo necesariamente a la organización de las Cooperativas Agropecuarias.
+k) El Ministro de Hacienda.
+(Así adicionado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 1677 del 23 de abril de 1971).
 La representación en el Consejo será indelegable.
