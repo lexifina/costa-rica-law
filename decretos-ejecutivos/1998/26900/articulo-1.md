@@ -2,6 +2,7 @@
 No 26900-MEIC
 EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO,
 SUSPENDIDA TEMPORALMENTE por un plazo de seis meses su vigencia, por el artículo 1° del Decreto Ejecutivo N° 27183 de 23 de julio de 1998, publicada en La Gaceta N° 145 de 28 de julio de 1998, Alcance 42 A.
+SUSPENDIDA TEMPORALMENTE por un plazo de ocho meses su vigencia, por el artículo 1° del Decreto Ejecutivo N° 27883 de 06 de mayo de 1999, publicada en La Gaceta N° 105 de 01 de junio de 1999.
 En uso de las atribuciones que les confiere el artículo 140 de la Constitución Política en sus incisos 3) y 18). artículo 28.2b de la Ley General de Administración Pública. N° 6227 del 2 de mayo de 1978. Ley de Normas Industriales, N 1698 del 26 de noviembre de 1953. Ley del Sistema Internacional de Unidades. N° 5292 del 9 de agosto de 1973 Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor, N° 7472 del 20 de diciembre de 1994. Ley de Aprobación Tratado de Libre Comercio Estados Unidos Mexicanos-Costa Rica. N° 7474 del 20 de diciembre de 1994. Ley de Aprobación del Acta Final en que se incorporan los Resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales. No 7475 del 20 de diciembre de 1994 y Ley Orgánica del Ministerio de Economía, Industria y Comercio, ley N° 6054 del 14 de junio de 1977 y sus reformas.
 Considerando:
 1°—Que la función esencial del Estado es velar por la protección al consumidor en lo que a la oferta y la calidad se refiere como un factor básico para el aseguramiento del bienestar de las personas.

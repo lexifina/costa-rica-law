@@ -15,3 +15,4 @@ Reglamento Técnico RTCR 201:1998. Arroz en Cascara. Especificaciones y Métodos
 | --- | --- | --- |
 | 1 | 1998-06-19 | la propia norma |
 | 2 | 1998-07-23 | Decreto Ejecutivo 27183 (1998-07-23) |
+| 3 | 1999-05-06 | Decreto Ejecutivo 27883 (1999-05-06) |
