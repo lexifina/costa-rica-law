@@ -1,0 +1,12 @@
+Nº 29399-MINAE-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DEL AMBIENTE Y ENERGÍA
+Y DE OBRAS PÚBLICAS Y TRANSPORTES
+En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) de la Constitución Política, 26 y 27 de la Ley Nº 6227 del 2 de mayo de 1978 Ley General de la Administración Pública, 2º de la Ley Nº 7152 del 5 de junio de 1990, Ley de Conversión del Ministerio de Industria, Energía y Minas en Ministerio de Recursos Naturales, Energía y Minas; 2º y 4º de la Ley Nº 7454 del 13 de noviembre de 1995, Ley Orgánica del Ambiente; 1º, 2º, 3º y 27 de la Ley Nº 7447 del 3 de noviembre de 1994, Ley Reguladora del Uso Racional de la Energía; 1º y 2º de la Ley Nº 7331 del 13 de abril de 1993, Ley de Tránsito por Vías Públicas Terrestres y 1º, 2º, 3º y 4º del Decreto Ejecutivo Nº 21351-MIRENEM-PLAN del 3 de junio de 1992, Constitución del Sector Recursos Naturales, Energía y Minas.
+Considerando:
+1º—Que del 28 de marzo al 1º de abril del 2001, la Fundación Costa Rica para el Desarrollo Sostenible, en colaboración con el Instituto Costarricense de Electricidad, realizará el Primer Rally Experimental Interoceánico de Vehículos Eléctricos que recorrerá desde Puerto Viejo de Limón hasta Puntarenas.
+2º—Que el Ministerio del Ambiente y Energía, como Rector del Sector Recursos Naturales, Energía y Minas le interesa tanto, la promoción y utilización de tecnologías que hagan un uso racional energía, como velar por procurar mejorar la calidad del aire, de tal forma que se responda a los compromisos ambientales adquiridos por el país.
+3º—Que las actividades que se realizarán en dicho evento, se consideran de importancia para el país en materia de aire limpio y en la transferencia de conocimientos sobre tecnologías de punta y combustibles alternos, aplicados en el transporte, lo que le permitirán a las nuevas generaciones vivir en un mundo menos contaminado.
+4º—Que los organizadores del evento han solicitado al Ministerio del Ambiente y Energía la declaratoria de interés público y nacional de las actividades indicadas. Por tanto,
+Decretan:
+Artículo 1º—Se declara de interés nacional y público, las actividades que llevará a cabo la Fundación Costa Rica para el Desarrollo Sostenible y el Instituto Costarricense de Electricidad, con motivo de la realización del primer Rally Experimental Interoceánico, que tendrá lugar en nuestro país del 28 de marzo al 1º de abril del 2001.
