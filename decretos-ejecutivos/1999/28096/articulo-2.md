@@ -1,0 +1,1 @@
+Artículo 2°—Aplicación de créditos: La aplicación de los créditos fiscales a que se refiere el último párrafo del artículo 10 del Reglamento de la Ley del Impuesto sobre las Ventas estará sujeta a lo contemplado en la Ley del Impuesto General sobre las Ventas y su Reglamento.

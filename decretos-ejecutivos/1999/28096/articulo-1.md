@@ -1,0 +1,11 @@
+N° 28096-H
+EL PRESIDENTE DE LA REPÚBLICA, Y EL MINISTRO DE HACIENDA.
+Con fundamento en las facultades que les conceden los incisos 3) y 18) del artículo 140 de la Constitución Política y la Ley N° 6826 del 8 de noviembre de 1982 y sus reformas, denominada Ley del Impuesto General sobre las Ventas.
+Considerando
+I.—Que el artículo 1 de la Ley del Impuesto General sobre las Ventas, establece el impuesto sobre el valor agregado en la venta de mercancías y en la prestación de los servicios expresamente señalados por el legislador.
+II.—Que la venta de energía eléctrica, conceptuada como la transferencia de una mercancía, está gravada con el impuesto de ventas.
+III.—Que de conformidad con el artículo 27 del Reglamento a la Ley del Impuesto General sobre las Ventas la Administración Tributaria está facultada para otorgar órdenes especiales a fin de que los declarantes o contribuyentes puedan efectuar adquisiciones de mercancías sin el pago previo del impuesto, cuando no puedan compensar el crédito fiscal o se les dificulte su aplicación contra aquél que deban pagar.
+IV.—Que las actividades de generación y/o, distribución, transmisión, venta de energía eléctrica no se encuentran contempladas dentro de los supuestos para otorgar órdenes especiales para adquirir mercaderías o bienes sin el pago de impuesto, a pesar que por la naturaleza de dichas actividades se dificulta la aplicación de créditos fiscales.
+V.—Que resulta procedente, de conformidad con el artículo 27 de reiterada cita, mantener la improcedencia para el otorgamiento de autorizaciones de adquisición de mercancías sin el pago previo del impuesto sobre las ventas, para las plantas de emergencia hasta de 2500 KW que generan energía para remplazar la corriente externa. Por tanto,
+DECRETAN:
+Artículo 1°—Inscripción: Todas las personas, físicas o jurídicas, públicas o privadas, que generen, y/o distribuyan, trasmitan, o vendan la mercancía denominada energía eléctrica, están en la obligación de recaudar el Impuesto General sobre las Ventas. Para tal efecto deben de inscribirse como responsables del tributo en la Administración Tributaria del lugar donde ejerzan su actividad comercial cumpliendo con lo estipulado en los artículos 9, 10 y 11 de la Ley del Impuesto General sobre las Ventas y demás disposiciones contenidas en dicha ley y su Reglamento.
