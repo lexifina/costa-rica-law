@@ -14,3 +14,4 @@ Directrices Política Presupuestaria 2001 Ministerios y EntidadesPúblicas Cubie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-26 | la propia norma |
+| 2 | 2000-09-11 | SINALEVI (sin norma nombrada) |
