@@ -1,0 +1,8 @@
+Artículo 7º.- El Consejo Nacional de Enseñanza Superior Universitaria
+Privada pronunciarse acerca de la solicitud, dentro de los cuatro meses
+siguientes al día de su presentación. La falta de este pronunciamiento
+implicará la destitución inmediata de los integrantes del Consejo, salvo
+del Ministro.
+Si el Consejo denegare la solicitud, la entidad interesada, podrá
+recurrir esa resolución, mediante el pronunciamiento señalado en el
+artículo 19 de esta ley.
