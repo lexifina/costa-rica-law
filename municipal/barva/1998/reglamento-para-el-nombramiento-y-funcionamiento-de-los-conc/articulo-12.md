@@ -1,0 +1,1 @@
+Artículo 12.—En lo conducente, serán aplicables a los síndicos las disposiciones que establece el Código Municipal respecto a los requisitos, impedimentos, prohibiciones, reposición, juramentación y toma de posesión del cargo de los regidores.

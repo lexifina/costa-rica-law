@@ -1,0 +1,1 @@
+Transitorio III.—Los Concejos de Distrito elaborarán durante los dos siguientes meses posteriores a su instalación el Reglamento de Sesiones del Concejo de Distrito y presentarlo al Concejo Municipal para su aprobación.

@@ -1,0 +1,1 @@
+Transitorio I.—Los miembros de los Concejos de Distrito que se constituyan por primera vez con posterioridad a la promulgación de este Reglamento, durarán en sus cargos hasta la nueva designación de los Regidores, según lo dispuesto en el artículo 4 de este Reglamento.

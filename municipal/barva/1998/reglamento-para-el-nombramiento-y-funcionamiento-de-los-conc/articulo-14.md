@@ -1,0 +1,1 @@
+Artículo 14.—La Municipalidad velará por la integridad y fortalecimiento estructural de los Concejos de Distrito de su jurisdicción, de acuerdo a la disponibilidad de los recursos existentes, suministrará apoyo administrativo para el debido cumplimiento de las funciones propias de los Concejos de Distrito.

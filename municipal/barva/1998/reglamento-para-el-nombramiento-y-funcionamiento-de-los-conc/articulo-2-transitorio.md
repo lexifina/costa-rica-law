@@ -1,0 +1,1 @@
+Transitorio II.—En la primera semana de julio, los Concejos de Distrito deberán presentar una lista de sus programas, requerimientos de financiamientos y prioridades, basados en el Plan de Desarrollo Municipal. De conformidad con las necesidades municipales, el Concejo Municipal, incluirá los gastos correspondientes en el presupuesto municipal.

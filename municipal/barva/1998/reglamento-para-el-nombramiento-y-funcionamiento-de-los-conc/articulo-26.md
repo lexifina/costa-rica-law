@@ -1,0 +1,1 @@
+Artículo 26.—Los acuerdos serán tomados por simple mayoría de votos de los miembros presentes y sostendrán por firmes; si hubiere empate se someterá de nuevo a votación y si persistiera el empate, se tendrá por desechado el asunto.

@@ -1,0 +1,1 @@
+Artículo 2°—Existirán tantos Concejos de Distrito como distritos posea el cantón de Barva. La jurisdicción territorial del Concejo de Distrito es el Distrito y el caserío designado por la Municipalidad corno cabecera, será su sede.

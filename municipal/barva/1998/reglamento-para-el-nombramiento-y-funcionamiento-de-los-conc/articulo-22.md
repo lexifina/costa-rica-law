@@ -1,0 +1,1 @@
+Artículo 22.—Las sesiones ordinarias deben efectuarse en el caserío designado por la Municipalidad con cabecera del Distrito, pudiendo el Concejo de Distrito celebrar sesiones en otros distritos del Cantón para tratar asuntos de interés interdistrital.

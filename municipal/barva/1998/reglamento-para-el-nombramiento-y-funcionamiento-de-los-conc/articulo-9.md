@@ -1,0 +1,3 @@
+Artículo 9°—Prohíbese a los Concejales:
+a. Intervenir en la discusión y votación de los asuntos en los que tengan un interés personal directo, su cónyuge o alguno de sus parientes en línea directa o en la colateral hasta el tercer grado inclusive, por lo que debe excusarse de participar, excepto cuando se tratase de ocupar un puesto en el directorio del Concejo de Distrito.
+b. Depender del Concejo de Distrito en razón de contrato o trabajo que cause obligación de pago o retribución a su favor, en general percibir dinero o bienes de patrimonio del Concejo de Distrito y del patrimonio Municipal, excepto los síndicos quienes pueden recibir dietas, viáticos y gastos de viaje según lo establece el Código Municipal.
