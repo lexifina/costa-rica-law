@@ -1,0 +1,2 @@
+Artículo 30.- Siendo necesario simplificar el fondo documental de los Archivos, el Director General queda autorizado para destruir telegramas, oficios, troncos de los últimos diez años, libros de cuentas de Tesorerías, ya fenecidas, y todos aquellos papeles y documentos del orden administrativo que ya no tengan ninguna importancia actual.
+Dado en la Casa Presidencial.- San José, a los seis días del mes de febrero de mil novecientos treinta y uno.

@@ -1,0 +1,1 @@
+Artículo 16.- El Subdirector tendrá las mismas atribuciones que al Director en las ausencias temporales de éste; y siempre debe colaborar al mantenimiento del orden y de la disciplina. En defecto del Oficial Mayor, hará sus veces en cuanto sus propios ocupaciones se lo permitan.

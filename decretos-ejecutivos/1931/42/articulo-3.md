@@ -1,0 +1,1 @@
+Artículo 3°.- La catalogación, además del estudio de los documentos, comprende el extracto o síntesis de su contenido, que se consigna en papeletas, éstas son de dos clases, principales y secundarias o auxiliares

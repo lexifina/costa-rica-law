@@ -1,0 +1,1 @@
+Artículo 12.- Se llevará también ni libro especial denominado clave, en el cual, comenzado por las procedencias, se indicarán el estante, el tramo y los números que cada legajo contiene. Para su colocación en el lugar correspondiente los documentos se arreglarán en legajos adecuados.

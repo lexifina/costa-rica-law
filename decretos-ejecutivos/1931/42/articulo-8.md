@@ -1,0 +1,1 @@
+Artículo 8°.- Las indicadas secciones a su vez se clasifican en clases, series, materias y asuntos. Estas serán las denominaciones generales o comunes de los grupos. Las partículas de cada uno de éstos deberán ser sintéticas y apropiados a la índole de la documentación respectiva.

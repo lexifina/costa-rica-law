@@ -1,0 +1,1 @@
+Artículo 14.- Mientras el Poder Ejecutivo lo juzgue necesario, mantendrá también un departamento para el estudio, selección y copia de los documentos históricos que sean dignos de publicación. Ese departamento será servicio por un jefe y un auxiliar.

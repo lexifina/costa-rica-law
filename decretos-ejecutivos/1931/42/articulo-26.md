@@ -1,0 +1,1 @@
+Artículo 26°.- La Dirección de los Archivos no puede hacer uso del telégrafo para expedir ninguna certificación. Por ese medio informará, simplemente cuando se trata de lo criminal, si existen o no, depositados, procesos con sentencia condenatorio contra el individuo que se le indique.

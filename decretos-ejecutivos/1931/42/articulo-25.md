@@ -1,0 +1,1 @@
+Artículo 25°.- Los expedientes, libros y demás papeles del Congreso y de las Secretaría de Estado se consideran reservados y de ellos no se extenderán certificación sin autorización escrita de la Secretaría de Gobernación, que el interesado ha de presentar a la Dirección de los Archivos.

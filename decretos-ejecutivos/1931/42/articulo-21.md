@@ -1,0 +1,1 @@
+Artículo 21°.-Los oficiales auxiliares de los demás Jefes de Sección harán los estudios y las papeletas de éstos les encomienden, con arreglo a las fórmulas e instrucciones que reciban de dichos jefes.

@@ -1,0 +1,1 @@
+Artículo 23.- No obstante lo establecido en los artículos precedentes, el Director queda autorizado para ordenar que todos los empleados, se ayuden mutuamente, siempre que el mejor servicio público lo requiera y que no se perjudiquen las ocupaciones que a cada uno corresponden.

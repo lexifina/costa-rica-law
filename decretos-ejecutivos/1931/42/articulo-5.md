@@ -1,0 +1,4 @@
+Artículo 5°.- En las papeletas secundarias, que se formarán con los datos de las principales, pero de manera más abreviada, se consignará; en la primera línea, los apellidos y nombres de las partes, de manera que a cada una de éstas corresponde una papeleta; en las líneas siguientes, los nombres y apellidos de las demás partes y los otros datos necesarios para individualizar el documento.
+Por último se expresaran las signaturas externas o de colocación del documento en el lugar que se designe
+A cada documento se le hará una papeleta de asunto, a fin de formar el índice especial de éstos por orden alfabético. En esas papeletas, por consiguiente, se escribirá en la primera línea el nombre técnico del asunto.
+Para mayor claridad se dan en el apéndice de este reglamento, los modelos de las diversas papeletas enunciadas..

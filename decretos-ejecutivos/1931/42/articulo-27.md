@@ -1,0 +1,1 @@
+Artículo 27°.- A toda remesa de documentos de cualquier clase que se haga a los Archivos, debe acompañarse un inventario por duplicado, en orden alfabético de apellidos y nombres de las partes. Uno de los tantos se devolverá, oportunamente, a la oficina de procedencia con razón de recibido firmada por el Jefe del Indice.
