@@ -1,6 +1,6 @@
 # Código Penal de 1924
 
-Ley N° 11 del 1924-04-22. SINALEVI, ficha 35220: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35220&param2=96639&param3=1>.
+Ley N° 11 del 1924-04-22. SINALEVI, ficha 35220: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35220&param2=96640&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 18 | 1925-05-30 | Ley 19 | 1925-05-30 |
 | 4 de 18 | 1925-10-02 | Ley 19 | 1925-10-02 |
 | 5 de 18 | 1926-12-11 | Ley 38 | 1926-12-11 |
+| 6 de 18 | 1927-08-25 | Ley 5 | 1927-08-25 |
