@@ -1,0 +1,3 @@
+CAPITULO VII
+Del Fondo de Mutualidad y Subsidios
+Artículo 24.- Los abogados que formen parte del Colegio están obligados a pagar una cuota mensual de tres colones, de los cuales se destinarán dos colones a formar el Fondo de Mutualidad y Subsidios del Colegio de Abogados, y uno al fondo común del Colegio con destino al pago de los gastos que éste ocasione y al cumplimiento de los fines que le estén encomendados. El Fondo de Mutualidad y Subsidios será administrado por la Directiva de conformidad con las disposiciones generales de este capítulo y del Reglamento que al efecto apruebe el Colegio.

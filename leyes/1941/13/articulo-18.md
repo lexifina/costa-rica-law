@@ -1,0 +1,1 @@
+Artículo 18.- Son atribuciones del Fiscal: velar por la observancia de estos estatutos y de los reglamentos; concurrir con el Presidente a los cortes trimestrales de Caja, y visar al fin de cada año las cuentas de la Tesorería, y representar judicialmente a la Corporación.
