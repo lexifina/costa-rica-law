@@ -1,0 +1,1 @@
+Artículo 7º—Corresponderá a la Oficina Ejecutora del Polo Turístico la aprobación de los planos relativos a las vías de acceso que presenten los interesados, para lo cual deberá verificar el cumplimiento de los requisitos legales y reglamentarios correspondientes, así como lo dispuesto en el presente Reglamento

@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos de este Reglamento, los caminos de acceso serán las vías existentes o por construir que permitirán el acceso a diferentes zonas dentro de las concesiones ubicadas en el área regulada por la Ley del Polo Turístico Golfo de Papagayo.
