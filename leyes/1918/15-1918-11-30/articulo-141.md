@@ -1,2 +1,0 @@
-Consecuencias legales de la condena
-Artículo 141.-Toda sentencia condenatoria en materia criminal Ileva envuelta la obligación para los autores y cómplices, de pagar los daños y perjuicios que el delito ocasione; determinará ser a cargo de los mismos las costas personales y procesales, siempre que el juicio se haya seguido por acusación de parte, que no sea el Ministerio Público, y declarará el comiso previsto en el artículo 83.

@@ -1,2 +1,0 @@
-Falta de trabajo en el presidio
-Artículo 96.-Cuando en los presidios o penitenciarias faltare trabajo para los reclusos podrá empleárseles fuera de ellos en obras públicas de cualquier género, principalmente en la apertura y reparación de caminos, con tal que no fueren contratadas por particulares, debiendo entonces reglamentarse el servicio de vigilancia de Ios penados, en la forma que en cada caso convenga.

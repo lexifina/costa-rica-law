@@ -1,2 +1,0 @@
-Presunción de estado de necesidad
-Artículo 52.-Se entenderá que ocurren todos los caracteres de la defensa Iegítima expresados en el inciso 11°. del artículo 50, respecto de aquel que durante la noche rechazare el escalamiento o fractura de los cercados, paredes o entradas de su casa, de Ias dependencias de ella o de otro departamento habitado, o la violación de su morada, cualquiera que sea el daño causado al agresor.

@@ -1,1 +1,0 @@
-Artículo 163.-Cualquiera que sea Ia forma en que la punición esté enunciada por la Iey, si el hecho imputado no ofreciere circunstancias atenuantes, ni agravantes, el juzgador determinará prudencialmente la duración o cuantía de la misma, dentro de los límites que ella tuviera señalados.

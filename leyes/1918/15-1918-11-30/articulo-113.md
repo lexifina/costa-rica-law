@@ -1,2 +1,0 @@
-Consejo Superior de Prisiones
-Articulo 113.-Se organizará por el Ministerio de Justicia un Consejo Superior de Prisiones con jurisdicción sobre todos los establecimientos penales de la República, que aparte de las atribuciones que el reglamento respectivo señale, intervendrá en los expedientes relativos a Ia Iibertad condicional de penados o a su retención por mala conducta en los casos por este Código previstos.

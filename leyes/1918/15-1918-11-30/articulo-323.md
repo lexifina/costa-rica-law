@@ -1,3 +1,0 @@
-Revelación de secretos
-Artículo 323.-Se impondrá la misma pena y además la de inhabilitación temporal para cargos y oficios públicos en sus grados primero a tercero, al que teniendo noticia por razón de su estado, oficio, empleo, profesión o arte, de un secreto cuya divulgación pueda causar daño y que no consista en un plan o conspiración para delinquir, lo revelare sin causa que justifique su conducta.
-Si en tal caso el daño recayere sobre los intereses de la Nación, sin constituir delincuencia de mayor gravedad, prevista en los Títulos IX, X y XII de este Libro, o si recayendo sobre intereses individuales fuere de notable importancia, las penas dichas se aplicarán elevándolas uno o dos grados.

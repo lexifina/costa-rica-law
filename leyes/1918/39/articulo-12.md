@@ -1,1 +1,0 @@
-Artículo 12.—El Consejo en pleno, las Secciones o las Comisiones, no podrán tomar acuerdo sino con el quórum de las dos terceras partes de sus vocales, si se tratare de la primera citación; si fuere la segunda, el quórum se formará con la mitad de los miembros; y en la tercera, con los presentes. Los acuerdos se tomarán por mayoría de votos presentes.

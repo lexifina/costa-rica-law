@@ -1,2 +1,0 @@
-Violación de inmunidades diplomáticas
-Artículo 430.-Con igual pena será castigado el que violare las inmunidades del Jefe de un Estado o de la representación diplomática de una potencia, o el privilegio de extraterritorialidad otorgado a Ias naves extranjeras de guerra, o a los barcos mercantes en los casos en que lo hacen extensivo a ellos el Derecho Internacional o los Tratados Públicos, siempre que el hecho no constituyere un delito penado más severamente.
