@@ -1,0 +1,1 @@
+Artículo 10.- En la adquisición de aquellas fincas que califiquen como de pequeños propietarios, de conformidad con lo que establezca la comisión, considerada la región o zona a la que pertenezca la finca, tendrán prioridad sus expropietarios, en tanto no posean otras tierras y reúnan los requisitos que establece el inciso c) del artículo 7º.
