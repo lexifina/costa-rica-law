@@ -1,7 +1,8 @@
-Artículo 4º.- Para calcular el monto del beneficio a otorgar mensualmente se procederá así:
-a) La jubilación ordinaria se calculará con el promedio de los treinta y seis mejores sueldos, sobresueldos y dietas nominales devengados durante los último cinco años de servicio.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 6285 del 26 de octubre de 1978)
+Artículo 4º.- El monto del beneficio se determinará de conformidad con las siguientes reglas:
+(Así reformado el párrafo anterior por el artículo 2° de la ley N° 6997 del 24 de setiembre de 1985)
+a) Cuando la jubilación fuere ordinaria, será igual al mejor salario recibido en los últimos cinco años de servicio, más el promedio de los sobresueldos y las dietas mensuales nominales devengados en el mismo período.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 6997 del 24 de setiembre de 1985)
 b) La jubilación ordinaria en los casos a que se refiere el inciso c) del artículo 2º se calculará así: el 100% de la suma calculada en la forma que se indica en el inciso anterior, para quienes hubieren servido veinte años por lo menos; el 75% de esa suma para quienes hubieren servido quince años por lo menos; y el 50% de esa suma para quienes hubieren servido diez años por lo menos;
 c) Si se tratare de servicios prestados en instituciones particulares, se hará el cálculo a que se refiere el inciso a), tomando como base el sueldo de categoría y los sobresueldos, más los recargos de ley durante ese mismo período; y
-d) La jubilación extraordinaria se calculará con el promedio de los treinta y seis mejores sueldos, sobresueldos y dietas nominales devengados durante los últimos cinco años de servicio, dividiendo esta suma entre el número de años exigido para la jubilación ordinaria, o según sea el caso, se ha desempeñado el servicio en la enseñanza especial o en zonas calificadas como incómodas o insalubres y multiplicando la cantidad así obtenida por el número de años de servicio, sin exceder de treinta.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 6285 del 26 de octubre de 1978)
+d) Cuando la jubilación fuere extraordinaria, se determinará como se indica en el inciso a) anterior, pero dividiendo esa suma entre el número de años exigido para la jubilación ordinaria o, según sea el caso, si se ha desempeñado el servicio con horario alterno, en la enseñanza especial o en zonas calificadas como incómodas o insalubres, y multiplicando la cantidad obtenida por el número de años de servicio, que no podrá ser mayor de treinta.
+(Así reformado el inciso anterior por el artículo 2° de la ley N° 6997 del 24 de setiembre de 1985)
