@@ -1,0 +1,2 @@
+Artículo 22.—Recursos contra la resolución de fondo
+La resolución de fondo, dictada por el Órgano Instructor, tendrá los recursos que la Ley Orgánica del Poder Judicial admite, los que se ejercerán dentro de los correspondientes términos legales.

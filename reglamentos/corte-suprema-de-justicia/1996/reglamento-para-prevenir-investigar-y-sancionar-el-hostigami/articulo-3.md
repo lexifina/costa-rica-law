@@ -1,0 +1,2 @@
+Artículo 3°—Ámbito de Cobertura
+El presente reglamento regirá para todos los funcionarios y empleados judiciales, tanto propietarios como interinos, con excepción de los Magistrados y Magistradas de la Corte Suprema de Justicia y aquellos funcionarios sobre lo que la Corte Plena tiene competencia para ejercer el régimen disciplinario, de conformidad con los artículos 182 y 183 de la Ley Orgánica del Poder Judicial.

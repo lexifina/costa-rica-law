@@ -1,0 +1,2 @@
+Artículo 20.—Término para dictar la resolución de fondo
+Una vez concluida la audiencia de recepción de pruebas, el Órgano Instructor, gozará del término previsto en el artículo 206 de la Ley Orgánica del Poder Judicial, para dictar la resolución de fondo.

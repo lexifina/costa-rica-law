@@ -1,0 +1,3 @@
+Artículo 29.—De la vigencia de la política interna
+La presente normativa entrará a regir a partir de su publicación, en el Boletín Judicial, y se hará del conocimiento de todos los servidores judiciales a través de una publicación que estará a cargo del Departamento de Información y Relaciones Públicas."
+San José, 17 de abril de 1996.—
