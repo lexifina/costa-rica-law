@@ -1,0 +1,1 @@
+Art 2° Los Gobernadores de Provincia al conceder las licencias para los establecimientos de juego, procurarán que sean llenadas las condiciones que exige el orden público, de modo que donde no haya un empleado político que los vigile, no se concederán.
