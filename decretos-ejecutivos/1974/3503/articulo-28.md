@@ -1,7 +1,7 @@
 CAPITULO IX
 Fondos del Colegio
 Artículo 28.-Constituiran los fondos del Colegio:
-a) La renta que establecen los artículos 3° y 4° de la Ley Orgánica del Colegio, la cual distribuirá de acuerdo con las normas que establece el artículo 20 de la Ley Orgánica de la Universidad de Costa Rica;
+a) (Anulado mediante resolución de la Sala Constitucional N° 3477 del 10 de julio de 1996)
 b) La cuota de incorporación, las mensualidades de Colegiado y las multas que de ello resultaren, y cualesquiera otras contribuciones que el Colegio esté autorizado a recaudar, de acuerdo con la Ley o sus reglamentos;
 c) La renta que se establece en el artículo 6° de la Ley Orgánica del Colegio;
 d) Las multas que por razones disciplinarias imponga la Junta Directiva a los miembros colegiados;

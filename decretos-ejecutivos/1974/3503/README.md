@@ -14,3 +14,4 @@ Reglamento General Orgánico o Reglamento Interno Colegio Farmacéuticosde Costa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1974-02-06 | la propia norma |
+| 2 | 1996-07-10 | SINALEVI (sin norma nombrada) |
