@@ -14,3 +14,4 @@ Reglamento de Desconcentración de Funciones en Favor de las Unidades Regionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-03 | la propia norma |
+| 2 | 2002-12-05 | Reglamento 0 (2002-12-05) |

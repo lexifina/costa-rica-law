@@ -1,8 +1,10 @@
 Artículo 3°—Actuaciones desconcentradas. Se desconcentran en favor de las Unidades Regionales las siguientes funciones:
 Las funciones sustantivas y adjetivas establecidas para las Unidades Regionales en el Proyecto de Transformación Institucional aprobado mediante acuerdo de Junta Directiva adoptado en sesión No 202-95-JD. celebrada el 4 de setiembre de 1995.
 Las siguientes funciones adjetivas.
-1) Promover contrataciones administrativas directas con arreglo a la Ley de Contratación Administrativa y su respectivo Reglamento, y el Reglamento de Suministros.
-2) Promover contrataciones administrativas al amparo de los Reglamentos internos de "Servicios de Apoyo" y de "Contratación de Servicios de Instrucción Técnica" así como firmas los respectivos contratos.
+1) Promover contrataciones administrativas según lo establecido en el Reglamento de Suministros.
+(Así reformado por el Transitorio II del Reglamento de Suministros del Instituto Nacional de Aprendizaje, publicado en La Gaceta N° 247 de 23 de diciembre de 2002)
+2) Promover Licitaciones por Registro y Públicas al amparo del Reglamento de "Servicios de Apoyo" y contrataciones administrativas al amparo del Reglamento de "Contratación de Servicios de Instrucción Técnica", así como firmar los respectivos contratos.
+(Así reformado por el Transitorio II del Reglamento de Suministros del Instituto Nacional de Aprendizaje, publicado en La Gaceta N° 247 de 23 de diciembre de 2002)
 3) Firmar cheques, órdenes de pago. órdenes de compra, vales de caja chica.
 4) Firmar convenios de cooperación de alcance regional con instituciones públicas y privadas y sus respectivos proyectos específicos o cartas de entendimiento en coordinación con el respectivo Núcleo Tecnológico.
 5) Tramitar y firmar contratos de kilometraje.
