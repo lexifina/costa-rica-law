@@ -1,0 +1,1 @@
+Artículo 3°─Corresponde a la Dirección General de Integración Económica y Comercio, la distribución de la citada cuota entre los industriales autorizados, quienes deberán presentarle la solicitud correspondiente durante los cinco días siguientes a la publicación de este decreto.
