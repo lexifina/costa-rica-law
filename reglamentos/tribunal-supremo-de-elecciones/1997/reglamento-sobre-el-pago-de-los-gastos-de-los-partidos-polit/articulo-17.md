@@ -1,3 +1,4 @@
 CAPITULO V
 De los Bonos del Estado
-Artículo 17.—El Poder Ejecutivo, a más tardar el primero de octubre del año anterior a las elecciones, emitirá los bonos a los que se refieren los artículos 179 y 180 del Código Electoral, los cuales tendrán un rendimiento financiero igual al rendimiento neto de los títulos del Ministerio de Hacienda "Tasa Básica" con vencimiento a dos años, vigente a la fecha antes indicada.
+Artículo 17.—El Poder Ejecutivo emitirá los bonos a los que se refieren los artículos 179 y 180 del Código Electoral con vencimiento a dos años y con un rendimiento igual a la Tasa Básica Pasiva calculada por el Banco Central de Costa Rica más el uno por ciento (1%). Esta tasa será ajustable cada tres meses.
+(Así reformado mediante sesión N° 19 de 28 de noviembre del 2001)

@@ -1,1 +1,2 @@
-Artículo 15.—El Tribunal Supremo de Elecciones, prevendrá personalmente a los tesoreros de los partidos políticos que no informen a tiempo sobre los aportes recibidos. Una vez notificados tendrán diez días con el objeto de que cumplan con esta obligación. Omitir el envió del informe o retrasarlo injustificadamente una vez practicada la prevención, será sancionado con la pena que se señala en el artículo 151 del Código Electoral.
+Artículo 15.—El Tribunal Supremo de Elecciones, prevendrá personalmente a los tesoreros de los partidos políticos que no informen a tiempo sobre los aportes recibidos. Una vez notificados tendrán diez días con el objeto de que cumplan con esta obligación.
+(Así reformado mediante sesión N° 19 de 28 de noviembre del 2001)

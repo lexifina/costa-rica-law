@@ -14,3 +14,4 @@ Reglamento sobre el Pago de los Gastos de los Partidos Políticos del Tribunal S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-06-26 | la propia norma |
+| 2 | 2001-11-28 | Reglamento 19 (2001-11-28) |
