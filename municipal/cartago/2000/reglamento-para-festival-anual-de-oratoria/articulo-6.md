@@ -1,0 +1,1 @@
+Artículo 6º—La Comisión de Educación escogerá a las personas que serán miembros del Jurado Calificador para dicho Festival, se establece el nombramiento de un jurado para las eliminatorias y otro para la final.

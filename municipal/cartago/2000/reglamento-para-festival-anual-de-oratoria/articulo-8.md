@@ -1,0 +1,2 @@
+Artículo 8º—No podrá ser miembro del jurado del Festival de Oratoria, Directores y Personal Docente y Administrativo de ninguna de las instituciones participantes en dicho evento, esto con el fin de evitar problemas a la hora de escogencia y deliberación de los ganadores por parte del Jurado calificador.
+No obstante lo anterior la Comisión de Educación queda autorizada para invitar a participar como miembro del Jurado a alguna persona, siempre y cuando el Centro Educativo al que pertenece no tenga participación en el evento.

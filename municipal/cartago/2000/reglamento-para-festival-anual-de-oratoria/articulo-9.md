@@ -1,0 +1,1 @@
+Artículo 9º—Solamente se escogerá una o dos personas como miembro del jurado de las instituciones que de una u otra manera participan como dedicado, colaboradores y otro tipo en el festival, tomando en cuenta que una estará en las eliminatorias y otra si fuera del caso en la final.

@@ -1,0 +1,1 @@
+Artículo 3º—Se establecerán tres modalidades para el Festival de Oratoria, orientado a la participación de jóvenes estudiantes en las categorías de Kinder, Escuela y Colegio del Cantón Central de Cartago.

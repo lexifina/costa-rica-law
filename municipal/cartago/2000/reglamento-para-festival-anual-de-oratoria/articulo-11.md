@@ -1,0 +1,1 @@
+Artículo 11.—Todo estudiante participante del Festival de Oratoria deberá acatar los ordenamientos del presente reglamento, cumplir las indicaciones que el jurado indique y aceptar las decisiones del mismo, las cuales son inapelables.

@@ -1,0 +1,1 @@
+Artículo 4º—Cada Centro Educativo debe enviar la lista de participantes al Festival de Oratoria al Departamento de Secretaría de la Municipalidad antes de la fecha indicada por la Comisión de Educación en la invitación enviada para el evento, debe indicarse el nombre, edad, nivel académico y otro dato que la Comisión solicite con anticipación.
