@@ -1,0 +1,2 @@
+Artículo 3º.-Los funcionarios a que se refiere el presente Decreto, no deben haber ejercido sus profesiones liberables, o desempeñado funciones similares a las de su cargo, en el caso de los no profesionales, en provecho de terceras personas físicas o jurídicas, desde la inclusión de sus puestos en el Régimen de Servicio Civil, sea el 14 de febrero de 1985, y para lo cual bien puede serles solicitada una declaración jurada por el superior jerárquico.
+Dado en la Presidencia de la república.-San José, a los dieciocho días del mes de abril de mil novecientos ochenta y ocho.
