@@ -1,0 +1,2 @@
+Artículo 89.—Transcurrido el plazo del traslado de la denuncia establecido en el artículo 88, el Órgano Director dentro de un término que no podrá exceder de cinco días hábiles, dictará resolución mediante la cual hará comparecer a las partes involucradas a una audiencia oral y privada, y ordenará recibir las probanzas que considere admisibles, con inclusión de declaraciones de testigos ofrecidos.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 24710 del 29 de septiembre de 1995)

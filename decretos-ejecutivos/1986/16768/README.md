@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Ministerio de Planificación Nacional y Pol
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-02-01 | la propia norma |
+| 2 | 1995-09-29 | Decreto Ejecutivo 24710 (1995-09-29) |
