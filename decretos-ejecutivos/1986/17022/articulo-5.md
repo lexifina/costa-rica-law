@@ -1,0 +1,1 @@
+Artículo 5°—El Ministerio de Trabajo y Seguridad Social solicitará criterio técnico del INFOCOOP, sobre aquellos estudios que se le presenten, no realizados por este Instituto, antes de autorizar el inicio de actividades de la cooperativa gestionante.
