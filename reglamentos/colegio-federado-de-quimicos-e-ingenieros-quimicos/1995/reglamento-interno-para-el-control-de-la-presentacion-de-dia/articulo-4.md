@@ -1,0 +1,1 @@
+Artículo 4°— La Comisión del Colegio estará conformada por tres miembros activos del Colegio de Ingenieros, pudiendo este número ser aumentado por la Junta del Colegio de Ingenieros, La Comisión del Colegio será coordinada por el Fiscal del Colegio de Ingenieros. El coordinador deberá velar por una relación eficaz entre la Comisión del Colegio y la Dirección Ejecutiva.

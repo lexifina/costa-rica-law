@@ -1,0 +1,1 @@
+Artículo 3°— La Comisión del Colegio será permanente, sus miembros serán nombrados por la Junta del Colegio de Ingenieros en primera instancia y. confirmada por la Junta del Colegio Federado en segunda instancia, estos miembros durarán en sus cargos dos años, pudiendo ser reelectos.

@@ -1,0 +1,1 @@
+Artículo 5°—Todos aquellos gastos debidamente justificados y documentados en que debe incurrir la Comisión del Colegio, serán aportados a priori por la Junta del Colegio Federado, mediante una partida de presupuesto.

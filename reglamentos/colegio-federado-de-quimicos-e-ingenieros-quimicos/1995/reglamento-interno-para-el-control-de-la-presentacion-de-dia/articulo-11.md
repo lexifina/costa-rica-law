@@ -1,0 +1,1 @@
+Artículo 11.—Las disposiciones para la elaboración y presentación de Diagramas, Planos y Diseños de la Ingeniería Química aprobados por el Colegio Federado deben ser acatados por el Profesional cuando elabore y presente dichos documentos.

@@ -1,0 +1,1 @@
+Artículo 6°— La Comisión del Colegio deberá presentar ante la Junta del Colegio de Ingenieros, la que lo trasladará a la Junta del Colegio Federado un programa de trabajo anual, dentro de los treinta días calendario posteriores a su elección.
