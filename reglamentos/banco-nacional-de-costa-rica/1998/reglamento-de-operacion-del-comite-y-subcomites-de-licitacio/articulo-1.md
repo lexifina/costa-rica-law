@@ -11,12 +11,16 @@ Artículo 1º—Conformación del Comité y Subcomités de Licitaciones:
 El Director Corporativo Administrativo fungirá como Presidente y el Proveedor General como Secretario, éste último con voz pero sin voto. Es entendido, al tenor de lo dispuesto por la Junta Directiva General en el artículo 9°, sesión 10.904, del 27 de enero, 1998, que el Gerente General, por su condición, podrá asistir a las sesiones y presidir con derecho a voz y voto.
 1.2 Los Subcomités de Licitaciones estarán conformados de la siguiente manera:
 Casa Matriz:
-a. El Director de Bienes quien fungirá como Presidente.
-b. El Proveedor General quien fungirá como Secretario.
-c. El Abogado de la Dirección Jurídica asignado a la Dirección de Bienes.
-Banco Regionales:
-a. El Director Regional quien fungirá como su Presidente.
-b. El Director Administrativo Regional.
-c. El Director de Operaciones y Tecnología Regional.
-d. El Proveedor Regional, quien fungirá como Secretario del Subcomité, con voz pero sin voto.
-(Así reformado por acuerdo de Junta Directiva, en su sesión N° 11195 del 4 de marzo de 2003)
+Tres miembros propietarios:
+a) El Director de Bienes quien fungirá como Presidente.
+b) El Proveedor General quien fungirá como Secretario.
+c) El Jefe de Control y Apoyo Técnico.
+Como asesor, en la sesión del Subcomité estará presente el Abogado de la Dirección Jurídica asignado a la Dirección de Bienes, con voz pero sin voto.
+El Jefe de Control de Bienes será miembro suplente para suplir las ausencias temporales de cualquiera de los tres miembros propietarios.
+Bancos Regionales:
+a) El Director Regional quien fungirá como su Presidente.
+b) El Director Regional de Apoyo.
+c) El Director Regional de Negocios.
+El Proveedor/SIPRO Regional asistirá a las sesiones del Comité con voz pero sin voto y fungirá como Secretario del órgano.
+d) El Director de Crédito será miembro suplente para suplir las ausencias temporales de cualquiera de los tres miembros propietarios.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 11263 del 27 de abril de 2004)
