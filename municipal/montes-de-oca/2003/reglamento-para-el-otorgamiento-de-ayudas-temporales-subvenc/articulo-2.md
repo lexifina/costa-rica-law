@@ -1,0 +1,6 @@
+Artículo 2º—De los requisitos para acceder a la ayuda. Para ser beneficiario de ayudas por este concepto, los interesados deben de cumplir con los requisitos siguientes:
+a) Ser vecino del Cantón de Montes de Oca.
+b) Encontrarse en una situación de desgracia e infortunio, según lo dispuesto por el artículo 1º de este reglamento.
+c) Plantear ante la Administración Municipal la solicitud de ayuda escrita misma que será trasladada a la Dirección de Planificación y a la Oficina de la Mujer y Familia para la confección del respectivo expediente; así como, para recabar todas las pruebas que consideren necesarias y pertinentes para que, complementado con el respectivo estudio socioeconómico, estas sean elevadas al Concejo para su conocimiento y resolución.
+El interesado debe aportar junto con su solicitud los documentos que demuestren la situación de desgracia e infortunio que motivan su petición, así como aquella otra información o documentos que le sean solicitados por las instancias mencionadas en el párrafo anterior.
+d) Someterse al estudio socioeconómico que elaborarán los entes designados por esta Municipalidad quienes verificarán, en primer término la situación socioeconómica del solicitante, así como la situación de desgracia e infortunio.

@@ -1,0 +1,1 @@
+Artículo 3º—La Municipalidad se reserva, el derecho de solicitar y realizar toda la clase de pruebas que coadyuven a determinar la necesidad real del vecino que solicita la ayuda, incluyendo la visita al hogar y/o a miembros de la familia del solicitante, así como la aplicación de otras técnicas de investigación social.

@@ -1,0 +1,1 @@
+Artículo 6º—En caso de que un acontecimiento de grandes proporciones, afecte a varios vecinos de este cantón, la Municipalidad ayudará a tantos vecinos como lo permitan los recursos presupuestados y destinados previamente para tales fines.

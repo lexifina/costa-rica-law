@@ -1,0 +1,1 @@
+Artículo 4º—Para efectos de otorgar estas ayudas, la Municipalidad se reserva también el derecho de determinar, si la ayuda se da en dinero o en Artículos de primera necesidad, de acuerdo con las prioridades que se determinen en cada caso, por los medios técnicos indicados.

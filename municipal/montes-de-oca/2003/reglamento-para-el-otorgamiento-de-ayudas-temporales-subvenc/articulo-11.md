@@ -1,0 +1,6 @@
+CAPÍTULO II
+De las subvenciones a centros educativos públicos, de beneficencia y servicio social este Concejo acuerda:
+Artículo 11.—La Municipalidad podrá otorgar subvenciones a centros educativos públicos, de beneficencia o servicio social que realicen su actividad y servicio a favor del Cantón de Montes de Oca, siempre y cuando se cumpla con lo dispuesto en este Reglamento y disponga del correspondiente contenido económico anualmente en su Presupuesto Ordinario, y en una partida específicamente destinada a estos fines. Para tales efectos de lo dispuesto en este Reglamento, se entiende por:
+a) Centro de Educación Pública: aquellos establecimientos como Kinder Garden, Escuelas, Colegios, Para-Universitarias y Universidades, que estén ubicados y presten servicios en el cantón de Montes de Oca.
+b) Centros de Beneficencia: aquellas entidades que se dediquen a la atención de personas en riesgo social, que promuevan y desarrollen obras, proyectos, programas o actividades de bien común, orientados a ayudar a esta población del Cantón de Montes de Oca.
+c) Centros de Servicio Social: aquellas entidades, que desarrollen obras, proyectos programas o actividades sociales y culturales, que estén al servicio de la comunidad y coadyuven en el mejoramiento del nivel de vida y en el esparcimiento de los habitantes del Cantón de Montes de Oca.
