@@ -1,0 +1,1 @@
+Artículo 2º--Suspéndase por tres meses la vigencia del decreto ejecutivo Nº 23191-S de 26 de abril de 1994 "Reglamento sobre Inscripción y Propaganda de Medicamentos, Cosméticos y Productos Sanitarios", y póngase en vigencia durante dicho plazo el decreto ejecutivo Nº 17243-S de 10 de octubre de 1986 "Reglamento de Inscripción y Propaganda de Medicamentos y Cosméticos".
