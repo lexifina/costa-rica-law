@@ -1,0 +1,1 @@
+3°-Semestralmente rendirá el Alcalde Municipal un informe al Concejo Municipal, el cual contendrá los egresos que hubiere autorizado. Lo anterior de conformidad con el artículo 17 de inciso 1), la Ley N° 7794 (Código Municipal).
