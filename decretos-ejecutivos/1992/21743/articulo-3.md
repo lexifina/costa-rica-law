@@ -1,0 +1,1 @@
+Artículo 3- El Registro Público de la Propiedad Inmueble y los usuarios harán el cálculo de los derechos de Registro y timbres respectivos, conforme a los valores de los inmuebles constantes en Tributación Directa, a la fecha del acto o contrato, salvo que el documento indicare una estimación mayor, en cuyo caso regirá ésta.

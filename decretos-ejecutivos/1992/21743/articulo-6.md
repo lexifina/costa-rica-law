@@ -1,0 +1,1 @@
+Artículo 6- Para la aplicación del Decreto Ejecutivo número 21172-J-H del 8 de abril de 1992, será requisito la presentación del formulario a que se refiere el artículo cuatro anterior, debiendo atenderse tan solo a la naturaleza del negocio jurídico y no a la denominación que le hayan dado las partes.

@@ -1,0 +1,1 @@
+Artículo 9- Para asignar la suma correspondiente al dos y medio por ciento que establece la ley en favor de los programas que debe desarrollar la Dirección General de la Tributación Directa, el Ministerio de Hacienda, por medio de la Oficina Nacional de Presupuesto, hará anualmente la asignación presupuestaria correspondiente.

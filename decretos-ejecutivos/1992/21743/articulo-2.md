@@ -1,0 +1,1 @@
+Artículo 2- La Tributación Directa facilitará, a requerimiento del Registro Público de la Propiedad Inmueble, el Registro de Valores de bienes inmuebles, para que éste lo incorpore a su base de datos.
