@@ -1,0 +1,1 @@
+Artículo 4. El Consejo Nacional de Bibliotecas se reunirá ordinariamente una vez al mes y extraordinariamente cuando lo convoque su presidente; de cada sesión deberá confeccionarse un acta. El Director (a) General de Bibliotecas asistirá a las sesiones del Consejo Nacional de Bibliotecas, con voz pero sin voto.

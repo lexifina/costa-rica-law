@@ -1,0 +1,1 @@
+Artículo 3. Los miembros del Consejo Nacional de Bibliotecas desempeñarán sus cargos ad-honorem y por un período de dos años pudiendo ser reelectos. Los nombramientos que se produzcan para llenar vacantes serán por el resto del período del miembro saliente.

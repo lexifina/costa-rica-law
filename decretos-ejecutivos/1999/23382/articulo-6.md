@@ -1,0 +1,1 @@
+Artículo 6. Deróganse los Decretos Ejecutivos Nº 14932- C, del 14 de setiembre de 1983, Nº 15187-C del 12 de enero de 1984, Nº 16285-C del 17 de mayo de 1985, Nº 17603-C del 22 de junio de 1987, Nº 18915-C del 07 de marzo de 1989, Nº 19017-C del 19 de mayo de 1989, Nº22220-C del 24 de marzo de 1993 y Nº 24317-C del 02 de mayo de 1995.
