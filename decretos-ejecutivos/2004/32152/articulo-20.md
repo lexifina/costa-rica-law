@@ -1,0 +1,1 @@
+Artículo 20.—Procedimiento. El Procedimiento Sancionatorio se realizará de conformidad con lo establecido en la Ley General de la Administración Pública. La Dirección, podrá discrecionalmente, convocar a los Centros a una audiencia previa al inicio del procedimiento sancionatorio, a fin de procurar el cumplimiento o corrección de la conducta que motiva el ejercicio sancionatorio.

@@ -1,0 +1,2 @@
+Artículo 8°—De la aprobación o rechazo de la solicitud de autorización. En caso de que la solicitud sea aprobada, la Dirección dictará una resolución razonada de aprobación y otorgará el certificado correspondiente, el cual deberá ser expuesto en un lugar visible del Centro.
+Si la solicitud fuera rechazada, se dictará una resolución razonada, que tendrá recurso de revocatoria ante la Dirección, y de apelación ante la Ministra de Justicia, quien resolverá en forma definitiva, dando por agotada la vía administrativa.

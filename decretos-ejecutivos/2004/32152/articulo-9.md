@@ -1,0 +1,1 @@
+Artículo 9°—Vigencia de la autorización. La autorización concedida a los Centros estará vigente por un plazo de 3 años, el cual se considerará prorrogado de oficio, salvo que la Dirección en resolución razonada la revoque, de conformidad con las causales establecidas en el artículo 18 de este reglamento.

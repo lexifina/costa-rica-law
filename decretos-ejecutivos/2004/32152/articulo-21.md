@@ -1,0 +1,1 @@
+Artículo 21.—Derogatoria. El presente reglamento deroga el Decreto Ejecutivo N° 27166-J, del tres de julio de 1998, publicado en el Diario Oficial La Gaceta N° 142 del veintitrés de julio de mil novecientos noventa y ocho.

@@ -1,0 +1,1 @@
+Artículo 13.—Responsabilidad. Los Centros, o la Entidad a la que éstos pertenecen, serán responsables conforme al Ordenamiento Jurídico, de las actuaciones y omisiones culposas o dolosas de sus neutrales, personal administrativo y operativo, en la administración institucional de métodos RAC.
