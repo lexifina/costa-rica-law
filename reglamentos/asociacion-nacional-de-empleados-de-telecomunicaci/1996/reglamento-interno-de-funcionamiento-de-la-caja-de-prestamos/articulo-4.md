@@ -1,0 +1,1 @@
+Artículo 4°-Todo empleado o funcionario de la Caja, así como los miembros de la Junta Directiva, son responsables del ejercicio de sus cargos y asumirán cualquier responsabilidad en que puedan incurrir para con la Caja.

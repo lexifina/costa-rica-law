@@ -1,0 +1,1 @@
+Artículo 3°-La Caja de Préstamos de la ANDET, estará administrada: a) Por una Junta Directiva, que será la misma de la ANDET de un y b) Por el personal administrativo de nombramiento de la Junta Directiva, que se compondrá de: un Gerente, un Su Gerente, un Tesorero Contador, y demás empleados necesarios a juicio de la Junta Directiva.

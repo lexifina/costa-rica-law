@@ -1,0 +1,1 @@
+Artículo 6°-La Junta Directiva se reunirá en sesión ordinaria una vez a la semana, en el día y hora que se señale por parte de la Junta. Podrá reunirse extraordinariamente cuando el Presidente la convoque o cuando la misma Directiva lo decida en sesión ordinaria.

@@ -1,0 +1,1 @@
+Artículo 14.-Todo funcionario que maneje fondos deberá rendir garantía hasta por una suma no inferior a los quinientos mil colones, tal garantía podrá constituir una póliza de fidelidad del Instituto Nacional de Seguros.

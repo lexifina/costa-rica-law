@@ -1,0 +1,1 @@
+Artículo 21.-Después de aplicado el artículo tercero de la Ley dos mil ciento veintiuno de la Caja de Préstamos y Descuentos de ANDET en caso de muerte del socio, los ahorros se le cancelarán a los beneficiarios que haya nombrado el asociado. Para tal efecto se le solicitará al asociado nombrar los beneficiarios y se llevará un registro de los mismos.

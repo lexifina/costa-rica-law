@@ -1,0 +1,1 @@
+Artículo 9°-El Gerente será nombrado por la Junta Directiva y durará en sus funciones dos años, pero podrá ser reelecto indefinidamente por periodos iguales. Será el Gerente el personero judicial y extrajudicial de la Caja con las facultades que enumera el artículo mil doscientos cincuenta y tres del Código Civil.

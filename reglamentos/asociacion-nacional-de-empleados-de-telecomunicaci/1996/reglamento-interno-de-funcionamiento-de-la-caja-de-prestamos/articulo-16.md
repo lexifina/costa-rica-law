@@ -1,0 +1,1 @@
+Artículo 16.-Los Asociados tienen derecho a solicitar a la Caja, toda clase de operaciones autorizadas por la ley, pero la Directiva tiene el derecho de aceptarlas o rechazadas, según considere conveniente. Sus actuaciones en ese sentido serán inapelables.
