@@ -1,0 +1,1 @@
+Articulo 3°-Los permisos de venta o consignación del café de la cuota de exportación serán concedidos una vez que el beneficiador firme el compromiso de dejar, a la orden de la Oficina, una cantidad de café equivalente a las cuotas de consumo local y en disponibilidad.

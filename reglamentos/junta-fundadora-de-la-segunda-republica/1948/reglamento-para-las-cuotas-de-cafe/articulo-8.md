@@ -1,0 +1,1 @@
+Artículo 8°-En los casos en que llegaren a producirse las infracciones comprendidas en el artículo 4, el Director podrá ordenar a los funcionarios o autoridades que hubieren constatado la falla, a que efectúen o amplíen las investigaciones o diligencias convenientes a su juicio, para confirmar o establecer la culpabilidad dolosa de la falta.

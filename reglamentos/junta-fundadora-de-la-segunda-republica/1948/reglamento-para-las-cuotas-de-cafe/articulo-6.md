@@ -1,0 +1,1 @@
+Artículo 6°-Los saldos de café que quedaren pendientes de exportación al finalizar el año de cuotas, no se tomarán en cuenta para la cosecha próxima inmediata. La Oficina ordenará hacer un inventario de ellos y para su exportación será necesaria la revalidación del permiso respectivo.
