@@ -1,4 +1,1 @@
-Artículo 6º.- La contribución establecida en el artículo primero de
-esta ley, se cobrará mediante un timbre denominado "Uso de Fronteras y
-Puertos", emitido y vendido por el Banco Central de Costa Rica (que se
-adherirá al respectivo permiso de salida).
+Artículo 6º.- La contribución establecida en el artículo primero de esta ley, se cobrará mediante un timbre denominado "Uso de Fronteras y Puertos", emitido y vendido por el Banco Central de Costa Rica (que se adherirá al respectivo permiso de salida).

@@ -1,21 +1,5 @@
-Artículo 12.- Autorízase al Poder Ejecutivo para que, por intermedio
-del Ministerio de Hacienda, unifique en un solo timbre de distintas
-denominaciones, según corresponda en cada caso, los distintos actos que
-regula esta ley y demás normas relacionadas con migración y extranjería.
-La recaudación se hará a través del Banco Central de Costa Rica y la
-distribución del monto recaudado se hará de acuerdo a esta ley y demás
-leyes que han creado los respectivos timbres.
-TRANSITORIO I.- El Poder Ejecutivo por medio de la Oficina de
-Planificación incluirá en el Presupuesto Ordinario o Extraordinario
-siguiente el producto de estos nuevos impuestos, y las sumas de dinero
-necesarias para la reorganización y acondicionamiento de todos las
-oficinas de Migración y Extranjería.
-TRANSITORIO II.- Del 50% restante sin fin específico señalado por
-esta ley, el Banco Central de Costa Rica girará al Ministerio de
-Educación Pública la suma de setecientos cincuenta mil colones para la
-construcción de un monumento al General José María Cañas, para dar
-contenido económico a la ley Nº 3655 de 6 de enero de 1966.
-TRANSITORIO III.- Del 50% restante, el Banco Central de Costa Rica
-girará, por una sola vez, la suma de setecientos cincuenta mil colones
-(¢ 750,000.00) a la Junta Administrativa del Museo Histórico Cultural
-Juan Santamaría de la ciudad de Alajuela.
+Artículo 12.- Autorízase al Poder Ejecutivo para que, por intermedio del Ministerio de Hacienda, unifique en un solo timbre de distintas denominaciones, según corresponda en cada caso, los distintos actos que regula esta ley y demás normas relacionadas con migración y extranjería.
+La recaudación se hará a través del Banco Central de Costa Rica y la distribución del monto recaudado se hará de acuerdo a esta ley y demás leyes que han creado los respectivos timbres.
+TRANSITORIO I.- El Poder Ejecutivo por medio de la Oficina de Planificación incluirá en el Presupuesto Ordinario o Extraordinario siguiente el producto de estos nuevos impuestos, y las sumas de dinero necesarias para la reorganización y acondicionamiento de todos las oficinas de Migración y Extranjería.
+TRANSITORIO II.- Del 50% restante sin fin específico señalado por esta ley, el Banco Central de Costa Rica girará al Ministerio de Educación Pública la suma de setecientos cincuenta mil colones para la construcción de un monumento al General José María Cañas, para dar contenido económico a la ley Nº 3655 de 6 de enero de 1966.
+TRANSITORIO III.- Del 50% restante, el Banco Central de Costa Rica girará, por una sola vez, la suma de setecientos cincuenta mil colones (¢ 750,000.00) a la Junta Administrativa del Museo Histórico Cultural Juan Santamaría de la ciudad de Alajuela.
