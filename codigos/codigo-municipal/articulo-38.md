@@ -1,12 +1,3 @@
-ARTÍCULO 38.- Las sesiones del Concejo deberán iniciarse dentro de
-los quince minutos siguientes a la hora señalada, conforme al reloj del
-local donde se lleve a cabo la sesión.
-Si, pasados los quince minutos, no hubiere quórum, se dejará
-constancia en el libro de actas y se tomará la nómina de los miembros
-presentes, a fin de acreditarles su asistencia para efecto del pago de
-dietas.
-El regidor suplente, que sustituya a un propietario tendrá derecho a
-permanecer como miembro del Concejo toda la sesión, si la sustitución
-hubiere comenzado después de los quince minutos referidos en el primer
-párrafo o si, aunque hubiere comenzado con anterioridad, el propietario no
-se hubiere presentado dentro de esos quince minutos.
+Artículo 38. — Las sesiones del Concejo deberán iniciarse dentro de los quince minutos siguientes a la hora señalada, conforme al reloj del local donde se lleve a cabo la sesión.
+Si, pasados los quince minutos, no hubiere quórum, se dejará constancia en el libro de actas y se tomará la nómina de los miembros presentes, a fin de acreditarles su asistencia para efecto del pago de dietas.
+El regidor suplente, que sustituya a un propietario tendrá derecho a permanecer como miembro del Concejo toda la sesión, si la sustitución hubiere comenzado después de los quince minutos referidos en el primer párrafo o si, aunque hubiere comenzado con anterioridad, el propietario no se hubiere presentado dentro de esos quince minutos.

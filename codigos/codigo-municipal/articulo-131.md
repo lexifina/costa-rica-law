@@ -1,4 +1,1 @@
-ARTÍCULO 131.- El servidor que concurse por oposición y cumpla con lo
-estipulado en el artículo 116 de esta ley, quedará elegible si obtuviere
-una nota mayor o igual a 70. Mantendrá esta condición por un lapso de un
-año, contado a partir de la comunicación.
+Artículo 131. — El servidor que concurse por oposición y cumpla con lo estipulado en el artículo 116 de esta ley, quedará elegible si obtuviere una nota mayor o igual a 70. Mantendrá esta condición por un lapso de un año, contado a partir de la comunicación.

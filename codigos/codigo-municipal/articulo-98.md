@@ -1,8 +1,1 @@
-ARTÍCULO 98.- Si el presupuesto ordinario no fuere presentado
-oportunamente a la Contraloría General de la República, el presupuesto del
-año anterior regirá para el próximo período, excepto los egresos que, por
-su carácter, solo tengan eficacia en el año referido. En todo caso,
-deberán determinarse las responsabilidades administrativas, civiles y
-penales que puedan resultar de tal omisión. Para solventar esta situación,
-el Concejo deberá conocer y aprobar los presupuestos extraordinarios
-procedentes.
+Artículo 98. — Si el presupuesto ordinario no fuere presentado oportunamente a la Contraloría General de la República, el presupuesto del año anterior regirá para el próximo período, excepto los egresos que, por su carácter, solo tengan eficacia en el año referido. En todo caso, deberán determinarse las responsabilidades administrativas, civiles y penales que puedan resultar de tal omisión. Para solventar esta situación,el Concejo deberá conocer y aprobar los presupuestos extraordinarios procedentes.

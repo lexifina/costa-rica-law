@@ -1,4 +1,1 @@
-ARTÍCULO 6.- La municipalidad y los demás órganos y entes de la
-Administración Pública deberán coordinar sus acciones. Para tal efecto
-deberán comunicar, con la debida anticipación, las obras que proyecten
-ejecutar.
+Artículo 6. — La municipalidad y los demás órganos y entes de la Administración Pública deberán coordinar sus acciones. Para tal efecto deberán comunicar, con la debida anticipación, las obras que proyecten ejecutar.

@@ -1,5 +1,1 @@
-ARTÍCULO 114.- Las normas relativas a los asuntos financieros
-contables de la municipalidad deberán estar estipuladas en el Manual de
-procedimientos financiero-contables aprobado por el Concejo. El proyecto
-del manual deberá ser analizado y dictaminado previamente por la
-auditoría.
+Artículo 114. — Las normas relativas a los asuntos financieros contables de la municipalidad deberán estar estipuladas en el Manual de procedimientos financiero-contables aprobado por el Concejo. El proyecto del manual deberá ser analizado y dictaminado previamente por la auditoría.

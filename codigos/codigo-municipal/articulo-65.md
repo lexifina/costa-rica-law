@@ -1,5 +1,1 @@
-ARTÍCULO 65.- El funcionario o empleado que contraiga, en nombre de
-la municipalidad, deudas o compromisos de cualquier naturaleza, en contra
-de las leyes y los reglamentos, será solidariamente responsable, ante los
-acreedores correspondientes y, consecuentemente, sancionado conforme a las
-disposiciones del régimen disciplinario.
+Artículo 65. — El funcionario o empleado que contraiga, en nombre de la municipalidad, deudas o compromisos de cualquier naturaleza, en contra de las leyes y los reglamentos, será solidariamente responsable, ante los acreedores correspondientes y, consecuentemente, sancionado conforme a las disposiciones del régimen disciplinario.

@@ -1,6 +1,1 @@
-ARTÍCULO 77.- Dentro de los tributos municipales podrán establecerse
-contribuciones especiales, cuando se realicen obras que se presten a ello
-y que mantengan una relación apropiada con el beneficio producido. Estas
-contribuciones estarán a cargo de los propietarios o poseedores del
-inmueble beneficiado y se fijarán respecto de los principios
-constitucionales que rigen la materia.
+Artículo 77. — Dentro de los tributos municipales podrán establecerse contribuciones especiales, cuando se realicen obras que se presten a ello y que mantengan una relación apropiada con el beneficio producido. Estas contribuciones estarán a cargo de los propietarios o poseedores del inmueble beneficiado y se fijarán respecto de los principios constitucionales que rigen la materia.

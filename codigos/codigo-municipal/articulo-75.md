@@ -1,16 +1,16 @@
-ARTÍCULO 75.- Por medio de un reglamento, la municipalidad
-establecerá, por los servicios enunciados en este artículo, tarifas por la
-omisión de los deberes de los propietarios de bienes inmuebles, que
-obliguen a la municipalidad a suplir sus obligaciones:
-Son deberes de los munícipes:
-a) Limpiar la vegetación a orillas de las vías públicas y recortar la
-que perjudique o dificulte el paso de personas.
-b) Construir cercas y limpiar los lotes sin construir.
-c) Remover de las aceras y vías públicas los objetos abandonados.
-d) Construir aceras y darles mantenimiento.
-e) Instalar bajantes y canoas para recoger las aguas pluviales de las
-edificaciones, cuyas paredes externas colinden inmediatamente con la vía
-pública.
-f) Garantizar adecuadamente la seguridad, la limpieza y el
-mantenimiento de propiedades cuando se afecten las vías y propiedades
-públicas o a terceros en relación con ellas.
+Artículo 75. — De conformidad con el Plan Regulador Municipal, las personas físicas o jurídicas, propietarias o poseedoras, por cualquier título, de bienes inmuebles, deberán cumplir las siguientes obligaciones:
+a) Limpiar la vegetación de sus predios ubicados a orillas de las vías públicas y recortar la que perjudique o dificulte el paso de las personas.
+b) Cercar y limpiar tanto los lotes donde no haya construcciones y como aquellos con viviendas deshabitadas o en estado de demolición.
+c) Separar, recolectar o acumular, para el transporte y la disposición final, los desechos sólidos provenientes de las actividades personales, familiares, públicas o comunales, o provenientes de operaciones agrícolas, ganaderas, industriales, comerciales y turísticas, solo mediante los sistemas de disposición final aprobados por la Dirección de Protección al Ambiente Humano del Ministerio de Salud.
+d) Construir las aceras frente a sus propiedades y darles mantenimiento.
+e) Remover objetos, materiales o similares de las aceras o los predios de su propiedad que contaminen el ambiente u obstaculicen el paso.
+f) Contar con un sistema de separación, recolección, acumulación y disposición final de desechos sólidos, aprobado por la Dirección de Protección al Ambiente Humano del Ministerio de Salud, en las empresas agrícolas, ganaderas, industriales, comerciales y turísticas, cuando el servicio público de disposición de desechos sólidos es insuficiente o inexistente, o si por la naturaleza o el volumen de desechos, este no es aceptable sanitariamente.
+g) Abstenerse de obstaculizar el paso por las aceras con gradas de acceso a viviendas, retenes, cadenas, rótulos, materiales de construcción o artefactos de seguridad en entradas de garajes. Cuando por urgencia o imposibilidad de espacio físico deben de colocarse materiales de construcción en las aceras, deberá utilizarse equipos adecuados de depósito. La municipalidad podrá adquirirlos para arrendarlos a los munícipes.
+h) Instalar bajantes y canoas para recoger las aguas pluviales de las edificaciones, cuyas paredes externas colinden inmediatamente con la vía pública.
+i) Ejecutar las obras de conservación de las fachadas de casas o edificios visibles desde la vía pública cuando, por motivos de interés turístico, arqueológico o histórico, el municipio lo exija.
+j) Garantizar adecuadamente la seguridad, la limpieza y el mantenimiento de propiedades, cuando se afecten las vías o propiedades públicas o a terceros relacionados con ellas.
+Cuando en un lote exista una edificación inhabitable que arriesgue la vida, el patrimonio o la integridad física de terceros, o cuyo estado de abandono favorezca la comisión de actos delictivos, la municipalidad podrá formular la denuncia correspondiente ante las autoridades de salud y colaborar con ellas en el cumplimiento de la Ley General de Salud.
+Salvo lo ordenado en la Ley General de Salud, cuando los munícipes incumplan las obligaciones anteriores, la municipalidad está facultada para suplir la omisión de esos deberes, realizando en forma directa las obras o prestando los servicios correspondientes. Por los trabajos ejecutados, la municipalidad cobrará, al propietario o poseedor del inmueble, el costo efectivo del servicio o la obra. El munícipe deberá reembolsar el costo efectivo en el plazo máximo de ocho días hábiles; de lo contrario, deberá cancelar por concepto de multa un cincuenta por ciento (50%) del valor de la obra o el servicio, sin perjuicio del cobro de los intereses moratorios.
+Con base en un estudio técnico previo, el Concejo Municipal fijará los precios mediante acuerdo emanado de su seno, el cual deberá publicarse en La Gaceta para entrar en vigencia. Las municipalidades revisarán y actualizarán anualmente estos precios y serán publicados por reglamento.
+Cuando se trate de las omisiones incluidas en el párrafo trasanterior de este artículo y la municipalidad haya conocido por cualquier medio la situación de peligro, la municipalidad está obligada a suplir la inacción del propietario, previa prevención al munícipe conforme al debido proceso y sin perjuicio de cobrar el precio indicado en el párrafo anterior. Si la municipalidad no la suple y por la omisión se causa daño a la salud, la integridad física o el patrimonio de terceros, el funcionario municipal omiso será responsable, solidariamente con el propietario o poseedor del inmueble, por los daños y perjuicios causados.
+(Así reformado por el artículo 1 de la Ley N° 7898 del 11 de agosto de 1999)

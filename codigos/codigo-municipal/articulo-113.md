@@ -1,4 +1,1 @@
-ARTÍCULO 113.- Los responsables del área financiero-contable deberán
-rendir al alcalde municipal los informes que les solicite, relacionados
-con las funciones atinentes a ellos. Estos serán remitidos al Concejo para
-su discusión y análisis.
+Artículo 113. — Los responsables del área financiero-contable deberán rendir al alcalde municipal los informes que les solicite, relacionados con las funciones atinentes a ellos. Estos serán remitidos al Concejo para su discusión y análisis.

@@ -1,0 +1,1 @@
+TRANSITORIO III.— Para todos los efectos legales, a los servidores que al entrar en vigencia esta ley, estén desempeñando puestos conforme a las normas anteriores, y mientras permanezcan en los mismos puestos no se les exigirán los requisitos establecidos en la presente ley.

@@ -1,4 +1,1 @@
-ARTÍCULO 58.- En lo conducente, serán aplicables a los síndicos las
-disposiciones de este título respecto de requisitos, impedimentos,
-prohibiciones, reposición, juramentación y toma de posesión del cargo de
-los regidores.
+Artículo 58. — En lo conducente, serán aplicables a los síndicos las disposiciones de este título respecto de requisitos, impedimentos, prohibiciones, reposición, juramentación y toma de posesión del cargo de los regidores.

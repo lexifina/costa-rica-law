@@ -1,16 +1,5 @@
-ARTÍCULO 156.- Los recursos de revocatoria y apelación ante el
-Concejo deberán interponerse, en memorial razonado, dentro del quinto día.
-La apelación podrá plantearse sólo por ilegalidad: la revocatoria podrá
-estar fundada también en la inoportunidad del acto.
-El Concejo deberá conocer la revocatoria en la sesión ordinaria
-siguiente a la presentación. La apelación será conocida por el Tribunal
-Superior-Contencioso Administrativo.
-Si la revocatoria con apelación subsidiaria, no se resolviese
-transcurridos ocho días desde la sesión en que debió haberse conocido, y
-el expediente no hubiere llegado a la autoridad que deberá conocer de la
-apelación, el interesado podrá pedirle que ordene el envío, y será
-prevenido de las sanciones del artículo 40 de la Ley Reguladora de la
-Jurisdicción Contencioso-Administrativa.
-Lo dispuesto en el párrafo anterior será aplicable en caso de que,
-interpuesta exclusivamente la apelación, el expediente no llegue dentro
-del octavo día de presentada a la autoridad competente para resolverla.
+Artículo 156. — Los recursos de revocatoria y apelación ante el Concejo deberán interponerse, en memorial razonado, dentro del quinto día.
+La apelación podrá plantearse sólo por ilegalidad: la revocatoria podrá estar fundada también en la inoportunidad del acto.
+El Concejo deberá conocer la revocatoria en la sesión ordinaria siguiente a la presentación. La apelación será conocida por el Tribunal Superior-Contencioso Administrativo.
+Si la revocatoria con apelación subsidiaria, no se resolviese transcurridos ocho días desde la sesión en que debió haberse conocido, y el expediente no hubiere llegado a la autoridad que deberá conocer de la apelación, el interesado podrá pedirle que ordene el envío, y será prevenido de las sanciones del artículo 40 de la Ley Reguladora de laJurisdicción Contencioso-Administrativa.
+Lo dispuesto en el párrafo anterior será aplicable en caso de que, interpuesta exclusivamente la apelación, el expediente no llegue dentro del octavo día de presentada a la autoridad competente para resolverla.

@@ -1,7 +1,2 @@
-ARTÍCULO 102.- La Contraloría General de la República deberá aprobar
-o improbar los proyectos de presupuesto que reciba. Los improbará dentro
-del plazo de un mes contado a partir del recibo, en resolución razonada y
-la aprobación podrá ser parcial o total, por violación del ordenamiento
-jurídico o por falta de recursos.
-Podrá introducir modificaciones a los proyectos únicamente con
-anuencia del Concejo.
+Artículo 102. — La Contraloría General de la República deberá aprobar o improbar los proyectos de presupuesto que reciba. Los improbará dentro del plazo de un mes contado a partir del recibo, en resolución razonada yla aprobación podrá ser parcial o total, por violación del ordenamiento jurídico o por falta de recursos.
+Podrá introducir modificaciones a los proyectos únicamente con anuencia del Concejo.

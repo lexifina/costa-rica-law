@@ -1,5 +1,8 @@
+N° 7794
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
+DECRETA:
 CÓDIGO MUNICIPAL
 TÍTULO I
-DISPOSICIONES GENERALES
+Disposiciones generales
 CAPÍTULO ÚNICO
-ARTÍCULO 1.- El Municipio está constituido por el conjunto de vecinos residentes en un mismo cantón, que promueven y administran sus propios intereses por medio del gobierno municipal.
+Artículo 1°.—El Municipio está constituido por el conjunto de vecinos residentes en un mismo cantón, que promueven y administran sus propios intereses por medio del gobierno municipal.

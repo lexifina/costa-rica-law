@@ -1,17 +1,3 @@
-ARTÍCULO 29.- Los regidores y síndicos tomarán posesión de sus cargos
-el primer día del tercer mes posterior a la elección correspondiente. A
-las doce horas, deberán concurrir al recinto de sesiones de la
-municipalidad los propietarios y suplentes, quienes se juramentarán ante
-el Directorio Provisional, luego de que este se haya juramentado ante
-ellos. El Directorio Provisional estará formado por los regidores
-presentes de mayor edad que hayan resultado electos. El mayor ejercerá la
-Presidencia y quien le siga, la Vicepresidencia. El Tribunal Supremo de
-Elecciones, al extender las credenciales respectivas, indicará, de acuerdo
-con este artículo, cuáles regidores deberán ocupar los cargos mencionados.
-Corresponderá al Directorio Provisional comprobar la primera
-asistencia de los regidores y síndicos, con base en la nómina que deberá
-remitir el Tribunal Supremo de Elecciones.
-Realizada la juramentación, los regidores propietarios elegirán en
-votación secreta, al Presidente y el Vicepresidente definitivos, escogidos
-de entre los propietarios. Para elegirlos se requerirá la mayoría relativa
-de los votos presentes. De existir empate, la suerte decidirá.
+Artículo 29. — Los regidores y síndicos tomarán posesión de sus cargos el primer día del tercer mes posterior a la elección correspondiente. A las doce horas, deberán concurrir al recinto de sesiones de la municipalidad los propietarios y suplentes, quienes se juramentarán ante el Directorio Provisional, luego de que este se haya juramentado anteellos. El Directorio Provisional estará formado por los regidores presentes de mayor edad que hayan resultado electos. El mayor ejercerá la Presidencia y quien le siga, la Vicepresidencia. El Tribunal Supremo de Elecciones, al extender las credenciales respectivas, indicará, de acuerdo con este artículo, cuáles regidores deberán ocupar los cargos mencionados.
+Corresponderá al Directorio Provisional comprobar la primeraasistencia de los regidores y síndicos, con base en la nómina que deberá remitir el Tribunal Supremo de Elecciones.
+Realizada la juramentación, los regidores propietarios elegirán en votación secreta, al Presidente y el Vicepresidente definitivos, escogidos de entre los propietarios. Para elegirlos se requerirá la mayoría relativa de los votos presentes. De existir empate, la suerte decidirá.
