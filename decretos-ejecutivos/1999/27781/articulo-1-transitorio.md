@@ -1,0 +1,1 @@
+Transitorio I.—En el tanto se formalice y refrende el instrumento mediante el cual se traspasa la administración de la operación, mantenimiento y cierre técnico del relleno sanitario de Río Azul a las entidades que asumirán la misma, de conformidad con lo dispuesto en el artículo 5 del presente Decreto, la Comisión Nacional de Emergencia continuará la citada administración

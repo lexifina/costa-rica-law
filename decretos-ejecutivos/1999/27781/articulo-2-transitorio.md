@@ -1,0 +1,1 @@
+Transitorio II.—La Comisión Nacional de Emergencia y el Ministerio de Salud de común acuerdo con las entidades que asumirán la administración de la operación, mantenimiento y cierre técnico del relleno sanitario de Río Azul, podrán contratar, a través de los medios que prevé la Ley, los bienes y servicios indispensables para lograr una adecuada administración del mismo.
