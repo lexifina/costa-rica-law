@@ -14,3 +14,4 @@ Reforma Reglamento de Ley sobre el Desarrollo de la Comunidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-12-28 | la propia norma |
+| 2 | 1984-06-19 | Decreto Ejecutivo 15519 (1984-06-19) |
