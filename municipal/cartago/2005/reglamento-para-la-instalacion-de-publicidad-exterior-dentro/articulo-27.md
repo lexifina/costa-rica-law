@@ -1,0 +1,1 @@
+Artículo 27.—Se considera área restringida para la colocación de rótulos y anuncios el circuito arquitectónico de la ciudad de Cartago el cual comprende, la zona de la Basílica de los Ángeles y las Ruinas de la Parroquia de Santiago Apóstol, sus alrededores y 100 metros a la redonda de cada uno de estos inmuebles.

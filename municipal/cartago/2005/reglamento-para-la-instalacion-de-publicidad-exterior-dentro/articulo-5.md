@@ -1,0 +1,4 @@
+CAPÍTULO II
+De las licencias
+Artículo 5º—Será requisito indispensable para la persona física o jurídica que pretenda instalar o construir, reconstruir, trasladar, exhibir, fijar publicidad exterior con fines comerciales, contar con la respectiva licencia municipal así como el permiso de construcción respectivo, cuando la estructura constructiva lo requiera, para la cual deberá presentar debidamente lleno el formulario original que provee el Departamento de Servicio al Cliente para la instalación de publicidad, así como los requisitos técnicos que de conformidad con este reglamento deba adjuntar.
+La licencia para la colocación de cualquier tipo de rótulo, exceptuando los rótulos temporales, tendrá vigencia por un período de tres años, a partir del cual deberá solicitarse su renovación, cumpliendo con todos los requisitos, existentes a esa fecha.

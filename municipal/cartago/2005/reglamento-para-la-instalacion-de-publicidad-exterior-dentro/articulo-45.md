@@ -1,0 +1,1 @@
+Artículo 45.—Cuando proceda la demolición o remoción de la publicidad exterior, el Departamento Urbanismo cobrará los costos en los que haya incurrido con cargo a la cuenta del patentado o del propietario del inmueble, previo estudio del departamento de Contabilidad, más un 50% del costo de las obras, todo sin perjuicio de las acciones penales y civiles correspondientes.

@@ -1,0 +1,1 @@
+Artículo 13.—El titular de la licencia deberá colocar o insertar en la publicidad exterior, en el ángulo inferior izquierdo, una placa con el número de licencia y la fecha de expedición que de la misma hagan las autoridades municipales.

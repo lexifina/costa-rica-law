@@ -1,0 +1,3 @@
+Artículo 31.—Distancia de colocación. La publicidad exterior que se coloque en predios no edificados continuos a la vía pública será ubicada a la altura y distancia mínima de seguridad y visibilidad.
+La publicidad exterior saliente o esa que se proyecte más allá de la línea de construcción del edificio o finca en la cual se instalen, no podrá ocupar más del ancho mismo de la acera. La distancia de la colocación, entre el borde inferior del rótulo y la acera no podrá ser menor de dos metros cincuenta centímetros de altura (2,50 m).
+La publicidad exterior con luminosidad externa deberá alejarse de los cables eléctricos a una distancia radial no menor de dos metros o lo que establezca el ente competente.

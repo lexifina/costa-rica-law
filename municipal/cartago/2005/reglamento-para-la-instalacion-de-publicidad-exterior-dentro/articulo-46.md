@@ -1,0 +1,1 @@
+Artículo 46.—Pasado el plazo dispuesto en el artículo anterior y pronunciada la Municipalidad, a través de los órganos competentes según sea el caso, se informará al Departamento de Patentes a fin de que proceda a la cancelación de la licencia.

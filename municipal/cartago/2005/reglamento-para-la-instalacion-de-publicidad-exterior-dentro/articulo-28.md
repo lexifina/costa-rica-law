@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la superficie de la publicidad exterior
+Artículo 28.—Únicamente se permitirá un solo rótulo por cada actividad patentada, sobre acceso de locales, que indique el nombre de las actividades económicas, cuando la edificación se ubique sobre la línea de propiedad y exista un alero o marquesina que cubre la extensión de este tipo de rótulo. Deberá ubicarse debajo del alero y con el ancho máximo igual a éste; su punto más bajo debe tener, como mínimo, 2,5 metros de altura sobre el nivel de acera. En el caso de que no exista alero o marquesina, el rótulo se ubicará únicamente paralelo sobre la fachada.

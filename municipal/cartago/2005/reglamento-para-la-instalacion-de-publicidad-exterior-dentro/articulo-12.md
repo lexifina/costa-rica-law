@@ -1,0 +1,1 @@
+Artículo 12.—Una vez otorgada la licencia de publicidad exterior, el Departamento de Patentes suministrará al titular un certificado de licencia de rótulo que haga constar la vigencia del mismo el cual deberá mantenerse en el sitio o local donde se instalare el rótulo en forma visible y accesible al inspector municipal.

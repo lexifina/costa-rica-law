@@ -1,0 +1,1 @@
+Artículo 32.—Los toldos que sirvan para la publicidad exterior, deberán estar a 2,50 metros del nivel de la acera. Quedan entendidos los titulares de la licencia respectiva, que cumplida la vida útil del toldo, éste deberá ser sustituido so pena de remover la estructura de sustento, por parte de la municipalidad, sin responsabilidad alguna, y previa audiencia al interesado.

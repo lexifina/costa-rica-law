@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE CARTAGO
+SEGUNDA PUBLICACIÓN
+La Municipalidad de Cartago, avisa que el Concejo Municipal del Cantón Central de Cartago, mediante artículo 19 del acta 173 de sesión ordinaria, celebrada el 21 de setiembre del 2004, acordó aprobar el proyecto de Reglamento para la Instalación de Publicidad Exterior dentro de la Jurisdicción de la Municipalidad del Cantón Central de Cartago, de conformidad con lo establecido en los artículos 170 de la Constitución Política, 2, 3, 4; inciso a); 13, inciso c) y 43 del Código Municipal, la Ley de Patentes para el Cantón Central de Cartago (Ley de Impuestos Municipales Nº 7248), Ley de Planificación Urbana, Código Municipal, Ley de Construcciones y su reglamento, Ley Orgánica del Ambiente, Reglamento sobre Control de la Publicidad y Fumado de Cigarrillos, Decreto Ejecutivo Nº 20196 del 13 de diciembre de 1990, Reglamento de los Derechos de Vía y Publicidad Exterior, Decreto Ejecutivo Nº 29253 del 5 de febrero del 2000, Ley de Defensa del Idioma Español y Lenguas Aborígenes Costarricenses, el cual se regirá por las siguientes disposiciones. Revisadas las observaciones presentadas al amparo del artículo 43 del Código Municipal, y aprobado de manera definitiva por el Concejo Municipal mediante acuerdo 22 del acta 197 de sesión del 1º de febrero del 2005, se reglamenta la instalación de la publicidad exterior mediante las siguientes disposiciones:
+REGLAMENTO PARA LA INSTALACIÓN DE PUBLICIDAD EXTERIOR
+DENTRO DE LA JURISDICCIÓN DE LA MUNICIPALIDAD
+DEL CANTÓN CENTRAL DE CARTAGO
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—El objetivo del presente reglamento es regular y controlar todo lo referente a publicidad exterior, y rótulos de funcionamiento en el cantón de Cartago, con el fin de lograr un paisaje urbano en armonía con el ambiente y el ser humano dentro de la jurisdicción del cantón central de Cartago.

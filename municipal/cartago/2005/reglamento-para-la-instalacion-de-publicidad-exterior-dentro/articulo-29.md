@@ -1,0 +1,2 @@
+Artículo 29.—Como superficie de la publicidad se entiende la superficie exterior del cuerpo que encierra el rótulo en su totalidad, independientemente de su forma de soporte. Cuando se coloque publicidad en una fachada, ésta no ocupará más del veinte por ciento de la misma en zona comercial.
+En todo caso, los elementos de iluminación del soporte de la publicidad exterior forman parte de éste para los efectos de cálculo.

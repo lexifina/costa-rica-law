@@ -1,0 +1,3 @@
+Artículo 10.—Las decoraciones temporales para eventos o días festivos, serán permitidas, en estricto apego a lo dispuesto por este reglamento, advertido el interesado que deberá gestionar y cancelar los derechos de la respectiva licencia temporal ante el Departamento de Urbanismo, al menos con quince días hábiles de antelación al evento.
+La licencia para rótulos temporales se otorgará por un plazo mínimo de un trimestre y un máximo de seis meses.
+Concluidos los eventos que anuncia deberá hacer retiro de dichas decoraciones, a más tardar dentro de la siguiente semana. En caso contrario, queda facultada la Municipalidad para hacer el retiro de los materiales y disponer de ellos de acuerdo con los intereses municipales.

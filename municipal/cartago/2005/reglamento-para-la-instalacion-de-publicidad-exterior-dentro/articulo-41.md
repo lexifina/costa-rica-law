@@ -1,0 +1,2 @@
+Artículo 41.—Cuando se pretenda suspender la licencia, el Departamento de Urbanismo dará audiencia a las partes interesadas, para que en el término de cinco días hábiles manifiesten lo que en Derecho corresponda. Pasado este tiempo, el Departamento de Urbanismo resolverá como en derecho corresponde la sanción respectiva.
+Esta resolución será notificada personalmente al titular de la patente, a fin de que en el plazo antes dicho tome las medidas pertinentes, en relación con la publicidad y su estructura de soporte, de previo a la ejecución del acto administrativo.
