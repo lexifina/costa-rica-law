@@ -1,0 +1,1 @@
+ARTÍCULO 10.-La Sección de Suministros registrar todas las operaciones que por cualquier concepto aumenten o disminuyan los inventarios, tales como adquisiciones, traspasos, donaciones, devoluciones, altas, bajas, etc., notificando de oficio a la Sección de Bienes Patrimoniales del Ministerio de Recursos Naturales, Energía y Minas.

@@ -1,0 +1,2 @@
+DE LA SIMULTANEIDAD
+ARTÍCULO 1°.-Establécese la contabilización simultanea entre el egreso o compromiso presupuestario y el incremento de los inventarios de bienes en uso, en tal forma que se garantice la continua vigilancia y registro de los bienes adquiridos por la Dirección General Forestal; el establecimiento de inventarios permanente; la responsabilidad en su administración; la identificación de los mismos y el destino que se les de.

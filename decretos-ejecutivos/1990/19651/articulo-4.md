@@ -1,0 +1,1 @@
+ARTÍCULO 4°.-La firma de los inventarios por parte de las personas a que se refiere este Reglamento, implica responsabilidad administrativa y fiscal. A ninguna persona se le puede hacer firmar inventario de bienes si estos no están bajo su inmediato control o responsabilidad.

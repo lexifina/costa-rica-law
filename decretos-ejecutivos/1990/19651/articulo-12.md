@@ -1,0 +1,1 @@
+ARTÍCULO 12.-La identificación de los bienes se hará por un sistema de rotulado (placa de metal o plástico) y en el que se indique el número de inventario asignado por la Sección de Patrimonio Nacional para los bienes de la Dirección General Forestal.

@@ -1,0 +1,2 @@
+TRASPASOS INTERNO Y EXTERNO DE BIENES
+ARTÍCULO 27.-Todo traspaso interno de bienes patrimoniales que se realice entre Departamento, Programas Regionales, Secciones y Unidades, deber previamente antes del traspaso correspondiente notificarle por escrito a la Sección de Suministros de la D.G.F., con el fin de actualizar los inventarios, reubicando en forma precisa los bienes trasladados. En caso de traslado de bienes a otras dependencias se seguir el mismo procedimiento señalado anteriormente.
