@@ -14,3 +14,4 @@ Reglamento a la Ley N° 3503, Relativo a las Funciones de la Comisión Técnica 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1965-05-20 | la propia norma |
+| 2 | 1971-05-08 | Decreto Ejecutivo 1694 (1971-05-08) |
