@@ -1,4 +1,2 @@
-Artículo 37.—Calificación de Servicios. Los funcionarios del Fondo serán calificados anualmente.
-Quedan a salvo los servidores a que se refiere el artículo 15.
-La calificación será acordada por un Comité integrado por el Director Adjunto, el Director de la División de Reforma Administrativa y el Jefe de Personal. El Comité actuará a propuesta del respectivo jefe, y con audiencia del interesado.
-La decisión del Comité será apelable dentro de cinco días hábiles, ante el Ministro-Director.
+Artículo 37.—Calificación de Servicios. Los funcionarios del Fondo serán calificados anualmente. Quedan a salvo los servidores que se refiere el artículo 15. La calificación se llevará a cabo de conformidad con lo señalado al respecto por el Estatuto de Servicio Civil y su Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 14939 del 14 de octubre de 1983)
