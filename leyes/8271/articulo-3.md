@@ -1,0 +1,1 @@
+Artículo 3º—Desaféctanse los inmuebles donde se ubican la planta hidroeléctrica Tacares, sus instalaciones y construcciones, de cualquier uso actual o potencial que los destine a la explotación ferrocarrilera y de cualquier uso público que restrinja, de alguna manera, su uso, rehabilitación y explotación por parte de la ESPHSA y de la Municipalidad de Grecia.
