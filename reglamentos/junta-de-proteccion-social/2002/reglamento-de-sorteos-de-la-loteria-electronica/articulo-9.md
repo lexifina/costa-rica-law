@@ -1,0 +1,1 @@
+Artículo 9º—Acumulación de premios no acertados. Los premios disponibles que no sean acertados por los concursantes en cada sorteo, se acumulan para el siguiente sorteo en forma general, de manera que el total no acertado se suma a la bolsa total de premios a repartir para el siguiente sorteo.

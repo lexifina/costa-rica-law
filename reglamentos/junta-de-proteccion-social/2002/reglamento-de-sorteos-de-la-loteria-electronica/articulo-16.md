@@ -1,0 +1,1 @@
+Artículo 16.—Caducidad. El período de caducidad para el cobro de cualquier premio no acreditado en forma automática, es de sesenta días naturales contados a partir del día de la realización del sorteo que se trate.

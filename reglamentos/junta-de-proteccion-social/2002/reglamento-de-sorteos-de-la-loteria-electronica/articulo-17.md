@@ -1,0 +1,1 @@
+Artículo 17.—Premios prescritos. Los premios disponibles en cada sorteo, para cada modalidad de juego, que se hayan determinado como acertados y que no hayan sido cambiados al finalizar el período de caducidad, se consideran premios prescritos, procediéndose a su distribución según lo establece el artículo 23 de la Ley de Loterías.

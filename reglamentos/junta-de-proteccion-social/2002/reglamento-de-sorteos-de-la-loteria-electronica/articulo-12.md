@@ -1,0 +1,1 @@
+Artículo 12.—Validación de apuestas. Para poder participar en el respectivo sorteo, cada apuesta debe estar válidamente registrada en el sistema, bajo las diferentes modalidades indicadas para la captura de apuestas. Para efectos de control, cada apuesta registrada tendrá asignado un número de transacción que la identifica dentro del sistema.
