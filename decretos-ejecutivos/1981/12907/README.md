@@ -17,3 +17,4 @@ Reglamento a Ley de Semillas
 | 2 | 1986-05-07 | Decreto Ejecutivo 17009 (1986-05-07) |
 | 3 | 1989-10-31 | Decreto Ejecutivo 19323 (1989-10-31) |
 | 4 | 1995-11-14 | SINALEVI (sin norma nombrada) |
+| 5 | 1997-09-01 | Decreto Ejecutivo 26322 (1997-09-01) |

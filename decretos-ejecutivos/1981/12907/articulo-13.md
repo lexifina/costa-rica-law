@@ -1,2 +1,2 @@
-Artículo 13.-La Oficina Nacional de Semillas podrá invertir los fondos disponibles
-en el Sistema Bancario Nacional, en valores de fácil recuperación.
+Artículo 13.-El fideicomiso que haya costituido La Oficina Nacional de Semillas, en uno de los bancos del Sistema Bancario Nacional, se destinará exclusivamente al cumplimiento de todos y cada uno de los objetivos y funciones que la Ley impone a la Oficina Nacional de Semillas, pudiéndose invertir, transitoriamente, en valores del Sistema Bancario Nacional, de fácil recuperación, los recursos ociosos de mediana disposición.
+(Así reformado por Decreto Ejecutivo N° 26322 del 1° de setiembre de 1997)
