@@ -1,0 +1,1 @@
+Artículo 2°—El empréstito y los bonos emitidos por el Instituto Costarricense de Electricidad en favor del Banco International de Reconstrucción y Fomento, gozarán de los mismos derechos concedidos a la Caja Costarricense de Seguro Social por el inciso g) del artículo 3° de esta ley, para hacer efectiva la garantía en caso de incumplimiento.
