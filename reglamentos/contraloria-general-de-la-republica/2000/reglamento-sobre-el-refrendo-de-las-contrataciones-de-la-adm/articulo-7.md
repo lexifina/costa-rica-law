@@ -1,0 +1,1 @@
+Artículo 7º—Modificación contractual. Los documentos en que consten modificaciones a los elementos esenciales de los contratos refrendados, deberán contar con el respectivo refrendo, de forma previa a su ejecución.
