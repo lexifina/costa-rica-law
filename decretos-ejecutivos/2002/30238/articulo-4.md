@@ -1,0 +1,1 @@
+Artículo 4º—Todo funcionario policial o persona que desee ingresar a los cuerpos de policía adscritos al Ministerio de Seguridad Pública, que sea seleccionado para el examen de control de dopaje o convocado para la aplicación de la prueba, deberá someterse al examen y cooperar con los funcionarios encargados de su realización. La toma de orina es obligatoria en todos los casos.

@@ -1,0 +1,1 @@
+Artículo 25.—Después de publicado el presente Reglamento en el periódico oficial la Gaceta, los Directores Regionales de la Fuerza Pública tendrán la obligación de remitirlo a los diferentes jefes de unidades policiales, para que estos a su vez informen a todo el personal bajo su cargo de los alcances de las medidas de este acto.

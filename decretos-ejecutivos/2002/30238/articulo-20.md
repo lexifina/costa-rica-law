@@ -1,0 +1,1 @@
+Artículo 20.—El profesional en salud entregará a la Comisión de Salud el sobre que contiene los resultados, el cual será abierto cuando ésta se encuentre en sesión. Una vez impuesta del contenido, decidirá lo que corresponda en cada caso, consignadolo en un libro de actas para ese efecto, el cual estará bajo la responsabilidad del secretario de la Comisión.
