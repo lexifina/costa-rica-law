@@ -1,0 +1,1 @@
+Artículo 8°.- Las solicitudes de divisas extranjeras para el pago de importciones serán, salvo caso de inflamables o explosivos contemplados en el artículo 4°, atendidas por la Jnta, siguiendo un riguroso orden de presentación, siempre que en ellas se hubiere llenado, oportunamente, las formalidades de inscripción de los respectivos pedidos y de registro de las facturas.

@@ -1,0 +1,1 @@
+Artículo 4°.- Entre las peticiones que reciba la Junta para adquirir deivisas extranjeras con el objeto de pagar facuras de artículo socrrespondientes a la segunda categoría, dará preferencia a aquellas cuyo objeto sea cubrir el valor de explosivos a sustancias inflamables, los cuales, por disposiciones especiales, sólo pueden permanecer muy corto tiempo en las Aduanas.

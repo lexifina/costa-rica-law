@@ -1,0 +1,1 @@
+Artículo 6°.- Los saldos de divisas extranjeras existentes en los Bancos locales al entrar en vigencia este decreto, serán acreditdos por la Junta con sujeción a los porcentajes mencionados en el artículo anterior, en los libros auxiliares que para ese efecto abrirá.
