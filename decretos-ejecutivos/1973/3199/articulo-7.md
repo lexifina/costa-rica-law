@@ -1,0 +1,1 @@
+Artículo 7° Para cubrir las importaciones, los beneficiarios de este sistema, rendirán caución ante la Dirección General de Aduanas, consistente en pagarés, pólizas de fidelidad, bonos del Estado dinero en efectivo, certificados de abono tributario, cheques certificados o garantías hipotecarias.

@@ -1,0 +1,1 @@
+Artículo 6° De producirse un cese de operaciones, el beneficiario deberá notificar ese hecho de inmediato a la Dirección General de Aduanas, que pondrá bajo custodia las mercaderías, maquinarias y equipo. La Dirección General podrá autorizar su reexportación u ordenar el pago de los impuestos correspondientes.

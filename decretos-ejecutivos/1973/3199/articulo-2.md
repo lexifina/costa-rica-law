@@ -1,0 +1,1 @@
+Artículo 2° Se autoriza la creación de una bodega para que las compañías nacionales e internacionales puedan tener un inventario de artículos necesarios para la operación de los aviones jet usados en vuelos internacionales, artículos que permanecerán en garantía y que podrán ser utilizados tanto dentro del territorio nacional como de los aeropuertos donde toquen dichas compañías.

@@ -1,0 +1,1 @@
+Artículo 4° La Dirección General de Aduanas dará las facilidades del caso para desalmacenar los artículos que urgen, aun sin los respectivos documentos siempre y cuando se realicen mediante póliza provisional y en presencia de un funcionario de la respectiva aduana. La compañía nacional deberá legalizar la situación a mas tardar en el término de ocho días.
