@@ -1,0 +1,1 @@
+Art 8.- Tan luego como los protectores juzguen ya necesaria la existencia de un reglamento para el gobierno interior del hospital, lo formarán con la persona ó personas asociadas, y lo someterán á la aprobación del Supremo Gobierno.

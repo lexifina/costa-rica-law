@@ -1,0 +1,1 @@
+Art 6.- Quedan autorizados los protectores para que, asociados con una ó mas personas de su elección, recauden y administren, con arreglo á las leyes fiscales, los fondos que existen y se vayan creando, y para la construcción de un edificio proporcionado á las circunstancias de cada lugar
