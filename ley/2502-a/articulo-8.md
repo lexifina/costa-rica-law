@@ -35,7 +35,8 @@ Los directores ejecutivos serán designados o elegidos por períodos de tres añ
 (f) El quórum para las reuniones del Directorio Ejecutivo será la mayoría absoluta de los directores que represente por lo menos dos tercios del total de los votos de los países miembros.
 (g) Todo miembro del banco podrá enviar un representante para que asista a cualquier reunión del Directorio Ejecutivo cuando en ella se trate de un asunto que le afecte especialmente. Esta facultad será reglamentada por la Asamblea de Gobernadores.
 (h) El Directorio Ejecutivo podrá constituir los comités que considere convenientes. No será necesario que todos los miembros de tales comités sean gobernadores, directores o suplentes.
-(i) El Directorio Ejecutivo determinará la organización básica del Banco, inclusive el número y las responsabilidades generales de los principales cargos administrativos y profesionales, y aprobará el presupuesto de la institución.
+(i) El Directorio Ejecutivo determinará la organización básica del Banco, inclusive el número y las responsabilidades generales de los
+principales cargos administrativos y profesionales, y aprobará el presupuesto de la institución.
 Sección 4.- Votaciones.
 (a) Cada país miembro tendrá 135 votos más un voto por cada acción que posea en el capital del Banco.
 (b) En las votaciones de la Asamblea de Gobernadores cada gobernador podrá emitir el número de votos que corresponda al país miembro que represente. Salvo cuando en este Convenio se disponga expresamente lo contrario, todo asunto que considere la Asamblea de Gobernadores se decidirá por mayoría de la totalidad de los votos de los países miembros.
