@@ -1,0 +1,1 @@
+Artículo 2°—Principios. Los principios que orientan el pensamiento y la acción del Partido son los enunciados en su Carta Fundamental, principios que sólo podrán ser revisados y modificados por el Congreso Nacional.

@@ -1,0 +1,1 @@
+Articulo 28.—Aprobación. Para el funcionamiento de núcleos se deberá contar con la aprobación del comité Politice Cantonal o de la Asamblea Cantonal respectiva. En el caso de núcleos de vecindario o de caserío, los linderos los fijará el Comité Cantonal en cada caso.

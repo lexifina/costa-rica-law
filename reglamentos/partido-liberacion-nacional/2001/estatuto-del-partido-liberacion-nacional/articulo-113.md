@@ -1,0 +1,1 @@
+Articulo 113.—Respeto institucional. Las tendencias están obligadas a realizar su acción política con estricto apego a las normas de respeto y convivencia entre compañeros de Partido, así como acatar todos los reglamentos, acuerdos, resoluciones y directrices que emita el Tribunal de Elecciones Internas del Partido.

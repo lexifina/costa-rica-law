@@ -1,0 +1,1 @@
+Articulo 34. —Primera instancia ética. El Comité Ejecutivo Cantonal funcionara como organismo de primera instancia en materia de ética y disciplina, en aquellos casos que se cuestione la conducta de un Iiberacionista del respectivo cantón. Los acuerdos que se lomen en estos casos tienen recurso ante los órganos de dirección superior.

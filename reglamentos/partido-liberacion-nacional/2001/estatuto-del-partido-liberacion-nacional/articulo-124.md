@@ -1,0 +1,1 @@
+Articulo 124. Curso a denuncias. Prescripción. El Tribunal sólo dará curso a denuncias o acusaciones que se refieren a hechos que hayan tenido lugar dentro de los cinco años anteriores a la fecha de presentación de la denuncia o acusación.

@@ -1,0 +1,1 @@
+Artículo 71.—Reuniones. La Asamblea Nacional se reunirá ordinariamente dos veces al año y extraordinariamente cuando sea convocada por el(la) Presidente(a) o por el(la) Secretario(a) General del Partido, o cuando así lo solicite de manera expresa al menos el veinticinco por ciento de sus miembros.

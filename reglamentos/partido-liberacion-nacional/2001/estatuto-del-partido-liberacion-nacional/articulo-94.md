@@ -1,0 +1,1 @@
+Articulo 94.—Funciones. Las funciones del Secretariado se circunscriben a la ejecución de los planes que dispongan el Directorio Político Nacional y el(la) propio(a) Secretario(a) General. El (la) Secretario(a) es un órgano de coordinación.

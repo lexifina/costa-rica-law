@@ -1,0 +1,1 @@
+Articulo 56.—Reglamento del Departamento. El Secretario General y el Tesorero deberán someter al Directorio Político Nacional la aprobación de un reglamento interno de este Departamento, así como los presupuestos de ingresos y egresos del Partido.

@@ -1,0 +1,2 @@
+Articulo 11.—Convocatoria de Asambleas. Las Asambleas del Partido podrán sesionar cuando sean convocadas por una cuarta parte de sus miembros. La convocatoria deberá hacerse por lo menos con ocho días naturales de anticipación, mediante publicación de un periódico de circulación nacional y por medio de comunicación personal, con indicación del orden del día, lugar, fecha y hora en que se efectuará la reunión.
+(Reformado en Asamblea Nacional celebrada el 21 de mayo de 1997),

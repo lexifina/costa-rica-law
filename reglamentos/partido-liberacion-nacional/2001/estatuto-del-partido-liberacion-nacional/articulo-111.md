@@ -1,0 +1,1 @@
+Articulo 111.- Reformas al calendario. Las fechas señaladas en los artículos anteriores solamente podrán ser variadas por la Asamblea Nacional, mediante votación de las dos terceras partes de la totalidad de sus miembros.

@@ -1,0 +1,1 @@
+Articulo 27.—Integración. Los núcleos se integran con tres o mas liberacionistas y al igual que las organizaciones distritales o sectoriales del Cantón se conducirán en política local por lo que disponga el Comité Político Cantonal. Tendrán un coordinador electo por sus miembros y deberán reunirse al menos una vez al mes o cuando los convoque el(la) coordinador(a).

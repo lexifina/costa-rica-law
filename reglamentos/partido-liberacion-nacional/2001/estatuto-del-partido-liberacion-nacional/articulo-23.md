@@ -1,0 +1,1 @@
+Articulo 23.—Concepto de núcleos. Los núcleos son organizaciones de base abiertos a lodos(as) los(as) Iiberacionistas. Sus objetivos y labores serán congruentes con los fundamentos, propósitos y programas que establecen la Carta Fundamental, las Proclamas y el Estatuto del Partido.

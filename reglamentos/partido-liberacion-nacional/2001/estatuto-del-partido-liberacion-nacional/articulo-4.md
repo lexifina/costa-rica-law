@@ -1,0 +1,2 @@
+Articulo 4°— Divisa y sede. Los colores de la divisa del Partido serán: verde, blanco y verde, en franjas horizontales y de igual ancho. El domicilio para efectos partidarios y legales, para efectos de Asambleas y recepción de notificaciones será la Casa Liberación isla José Figueres Ferrer, sita en el distrito Mata Redonda, cantón central, provincia San José, 125 metros al oeste del edificio del Ministerio de Agricultura y Ganadería.
+(Reformado en Asamblea Nacional celebrada el 21 de mayo de 1997).

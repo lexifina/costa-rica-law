@@ -1,0 +1,1 @@
+Articulo 8°—Acuerdos. Los acuerdos y resoluciones de los órganos se tomarán por simple mayoría de los votos presentes, salvo que en este Estatuto o en la ley se prevea una mayoría diferente para los casos que específicamente se señalen.

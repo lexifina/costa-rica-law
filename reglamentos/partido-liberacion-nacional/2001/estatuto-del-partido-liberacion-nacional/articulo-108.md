@@ -1,0 +1,9 @@
+Articulo 108. —Diputaciones y Regidurías. Puestos elegibles. 40% para mujeres. Los puestos elegibles para diputados(as) y regidores (as) corresponderán al promedio histórico de puestos elegidos por cada provincia para la Asamblea Legislativa o por cada cantón para la , respectiva municipalidad y serán publicados por el Tribunal de Elecciones Internas a más tardar el 30 de setiembre del año anterior a los procesos electorales pertinentes. Se reservará al menos el 40% de las plazas para ser ocupadas por mujeres.
+Las candidaturas para diputaciones se designarán por votación directa conjuntamente con la convención nacional, el primer domingo de junio antes de las elecciones nacionales. En la misma lecha se designarán, también por votación directa las candidaturas a regidores(as) propietarios (as) y suplentes, síndicos(as) propietarios y suplentes.
+Se exceptúan Ios puestos vacantes por inopia, las suplencias de las papeletas diputadiles y las excepciones previstas en el articulo 167, inciso a), que serán designados por las respectivas asambleas dentro de los dos meses siguientes a la lecha prevista en este articulo según corresponda, previa convocatoria del Comité Ejecutivo Superior Nacional.
+(Reformado en Asamblea Nacional celebrada el 28 de agosto de 1999).
+(Reformado en Asamblea Nacional celebrada el 30 de agosto del 2000).
+Transitorio.- El Comité Ejecutivo Superior Nacional podrá convocar a los órganos correspondí en les para conocer y resolver renuncias, revocación de nombramientos y sustitución de candidatos (as), nombramientos y ratificaciones, de candidaturas a Diputados (as), Regidores (as) y Síndicos (as).
+(Reformado en Asamblea Plenaria celebrada el 31 de agosto de 1999).
+(Reformado en Asamblea Plenaria celebrada el 22 de agosto de 1997).
+(Reformado en Asamblea Nacional celebrada el 27 de setiembre de 1997).

@@ -1,0 +1,1 @@
+Articulo 146,—Competencia. El Tribunal conocerá de los recursos de revisión interpuestos contra la resolución final del Tribunal de Ética y Disciplina, Antes de resolver, deberá dar audiencia a las partes a fin de que aleguen lo que estimen pertinente,

@@ -1,0 +1,1 @@
+Artículo 130.—Aplicabilidad de sanciones. Todas las sanciones disciplinarias se aplicarán al(la) miembro del Partido, con independencia de responsabilidades penales, civiles o administrativas en que incurra con su conducta.

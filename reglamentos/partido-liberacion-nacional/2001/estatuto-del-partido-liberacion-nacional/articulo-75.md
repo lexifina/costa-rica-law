@@ -1,0 +1,1 @@
+Artículo 75.—Reuniones. El Directorio Politice Nacional se reunirá ordinariamente una vez al mes y extraordinariamente cuando lo convoque su Presidente(a) o el(la) Secretario(a) General, o a solicitud de diez de sus miembros.

@@ -1,0 +1,2 @@
+Artículo 62.—Informes sobre contribuyentes. El Tesorero está obligado a informar trimestralmente al Comité Ejecutivo Superior Nacional del Partido y al Directorio Político Nacional, con copia al Tribunal Supremo de Elecciones, acerca de las contribuciones que se reciben. Sin embargo, en el período comprendido entre la convocatoria y la fecha de las elecciones nacionales, deberá rendir informe mensual.
+(Reformado en Asamblea Nacional celebrada el 21 de mayo de 1997).

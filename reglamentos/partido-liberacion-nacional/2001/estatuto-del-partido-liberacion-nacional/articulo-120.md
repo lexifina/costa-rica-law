@@ -1,0 +1,1 @@
+Artículo 120.– Incompatibilidades. No podrá ser electo como candidato del Partido de la Presidencia de la República, quien hubiere ejercido durante el año anterior a la Convención Nacional todo o parte de ese período, funciones dentro del Comité Ejecutivo Superior Nacional o la Presidencia del Directorio Político Nacional o las Secretarías de Organización o Electorales.

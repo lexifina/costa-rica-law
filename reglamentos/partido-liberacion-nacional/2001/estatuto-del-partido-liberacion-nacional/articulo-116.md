@@ -1,0 +1,6 @@
+Articulo 116.—Obligaciones. La inscripción definitiva conlleva la obligación ineludible de contribuir económicamente a los costos del proceso, según el presupuesto que para tal efecto elabore el Tribunal de Elecciones Internas. La contribución será por partes iguales entre todos los precandidatos inscritos definitivamente.
+Además, la solicitud referida determina ipso iure la aceptación del solicitante de su sometimiento incondicional al marco normativo, ético y jurídico, que integralmente rige el proceso de la Convención, que se establece en este Estatuto, así como al Reglamento que para tal efecto elabore el Tribunal de Elecciones Internas. Esta aceptación significa especialmente:
+a) La reiteración de su fe en los principios ideológicos y programáticos del Partido, sobre lodo los contenidos en su Carta Fundamental y en su Estatuto.
+b) Su compromiso para que el proceso electoral tenga una campaña de altura en donde la propaganda sea de mensajes positivos, desprovistos de insultos entre los grupos contendientes.
+c) Su absoluto respeto a las decisiones del Tribunal de Elecciones Internas y, en especial, a su veredicto final sobre el resultado de la Convención.
+d) Su compromiso de apoyar al candidato vencedor en la convención con miras al triunfo del Partido Liberación Nacional en las elecciones nacionales siguientes.

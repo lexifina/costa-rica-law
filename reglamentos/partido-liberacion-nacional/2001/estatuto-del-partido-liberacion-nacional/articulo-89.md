@@ -1,0 +1,2 @@
+6.6. La Fracción Parlamentaria.
+Articulo 89.—Integración. La Fracción Parlamentaria, integrada por todos (as) los(as) diputados(as) a la Asamblea Legislativa electos(as) por el Partido es su órgano de expresión legislativa, por lo tanto, en su actividad política debe reflejar la estrategia y las tácticas del Partido, adoptadas respectivamente por la Asamblea Plenaria y por el Directorio Político Nacional.

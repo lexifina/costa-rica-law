@@ -1,0 +1,1 @@
+Articulo 43.—Secretaria de ORSE. Las funciones de la Secretaria respectiva serán de promoción y apoyo; sin embargo, las organizaciones sectoriales que formen podrán participar en las estructuras y órganos nacionales de acuerdo con este Estatuto.

@@ -1,0 +1,1 @@
+Articulo 52.— Impedimento para cargos de elección. Los(as) miembros del Tribunal de Ética y Disciplina y los(as) miembros del Tribunal de Elecciones Internas no podrán optar a cargos de elección dentro del Partido.

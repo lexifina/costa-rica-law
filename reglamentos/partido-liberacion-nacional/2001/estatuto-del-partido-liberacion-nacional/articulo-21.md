@@ -1,0 +1,1 @@
+Articulo 21.—Acatamiento de acuerdos. Los acuerdos, políticas, orientaciones y programas de trabajo que se acuerden en cada nivel deberán ser cumplidos por los niveles inferiores. En el caso del nivel provincial, éste sólo podrá intervenir en políticas y orientaciones generales y no en cuestiones de carácter operativo.

@@ -1,0 +1,10 @@
+Articulo 170.—Participación en cargos. Se garantiza la libre participación y representación de las mujeres en el Partido, para la cual en toda elección por papeletas, éstas serán mixtas e integradas en orden alternativo de sexo. En el caso de puestos de elección nominal habrá total libertad de participación por sexo.
+Las delegaciones de las Asambleas Distritales, Cantonales y Provinciales deberán estar conformadas al menos, por un cuarenta por ciento de mujeres y un cuarenta por ciento de hombres.
+Para tal efecto, cada Asamblea adjudicará en primer término el sesenta por ciento de los puestos mediante el sistema de elección por papeletas y asignación de plazas por cociente y subcocieme. El cuarenta por ciento restante se reservará con el fin de atenuar o compensar la desigualdad real entre los sexos, que llegase a producirse en esa primera adjudicación de puestos.
+En segundo termino, el porcentaje reservado se tomará para designar a los candidatos de uno y otro sexo que hubieren alcanzado el mayor número de votos en sus papeletas, hasta completar ese porcentaje.
+Si garantizado el cuarenta por ciento a cada sexo quedaren puestos por llenar serán asignados sin consideración de sexo, cu orden al número de votos que hubiere obtenido cada papeleta.
+En el caso de elección nominal para conformar las papeletas para los puestos de elección popular y los cargos en la estructura partidaria, se
+elegirá primero el sesenta por ciento del total de puestos, reservando el cuarenta por ciento restante con el fin de atenuar o compensar la desigualdad real entre los sexos, que llegase a producirse en esa elección.
+En segundo termino el porcentaje reservado se tomará para designar a los (as) candidatos (as) de uno u otro seso que alcancen el mayor número de votos, hasta complementar ese porcentaje.
+Garantizado el cuarenta por ciento a cada sexo, los puestos por llenar, serán elegidos sin consideración de sexo, en orden al número de votos que obtenga cada candidato(a).
+(Reformado en Asamblea Nacional celebrada el 21 de mayo de 1997).

@@ -1,0 +1,1 @@
+Articulo 158.—Comité director. La Asamblea Plenaria designará un Comité Director de Foros, integrado por un(a) Coordinador(a) y tres miembros que desempañarán sus cargos por un periodo de cuatro años, pudiendo ser reelectos consecutivamente solo una vez,

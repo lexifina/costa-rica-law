@@ -1,0 +1,2 @@
+Articulo 98.- Titulares y comisiones. Cada Secretaria estará dirigida por un(a) Secretario (a) y un(a) Subsecretario(a) nombrados(as) por el Directorio Político Nacional a propuesta del (la) Secretario(a) General. Además dichas autoridades y el(la) Secretario(a) General nombrarán un mínimo de cinco y un máximo de quince miembros adicionales para cada comisión del Secretariado, que deberán ser sometidos(as) a ratificación del Directorio Político Nacional.
+(Reformado en Asamblea Nacional celebrada el 12 de agosto de 1998).

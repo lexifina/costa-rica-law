@@ -1,0 +1,1 @@
+Articulo 47. —Mujeres. El Movimiento de Mujeres Liberacionistas deberá centrar su atención en todos los grupos femeninos que no se expresan ni manifiestan a través de las estructuras del Partido territoriales o sectoriales.

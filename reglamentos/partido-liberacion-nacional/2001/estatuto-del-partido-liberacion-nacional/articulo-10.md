@@ -1,0 +1,2 @@
+Articulo 10.—Órganos legales. Los órganos legales del Partido de conformidad con el artículo 60 del Código Electoral son: las Asambleas Distritales, Cantonales, Provinciales, la Asamblea Nacional y sus respectivos Comités Ejecutivos.
+Existirán además Órganos Consultivos a nivel cantonal, provincial y nacional, conforme a las determinaciones y atribuciones que se establezcan en el presente Estatuto, no pudiendo asumir en ningún caso funciones conferidas a los órganos legales indicados en el párrafo anterior.

@@ -1,0 +1,1 @@
+Artículo 159.—Responsabilidades. El Comité Director de los Foros tendrá a su cargo la organización de los Foros Nacionales v delegará en los Comités Ejecutivos de la respectiva Provincia, Cantón o Distrito, la organización de los respectivos Foros provinciales, cantonales o distritales, otorgándoles la cooperación necesaria.

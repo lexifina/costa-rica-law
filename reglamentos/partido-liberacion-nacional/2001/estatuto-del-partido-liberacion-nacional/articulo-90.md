@@ -1,0 +1,1 @@
+Articulo 90. -Relación con el Directorio Político Nacional. La Fracción Parlamentaria debe atender en sus actividades legislativas, el criterio del Directorio Político Nacional, con el cual trabajará en estrecha colaboración.

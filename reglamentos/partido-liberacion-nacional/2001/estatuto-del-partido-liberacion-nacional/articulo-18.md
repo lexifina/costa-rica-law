@@ -1,0 +1,1 @@
+Articulo 18.—Registro liberacionista. La Secretaría de Asuntos Electorales mantendrá un Registro actualizado de los miembros del Partido, sin perjuicio de que los comités cantonales lleven sus propios registros actualizados de miembros del Partido.

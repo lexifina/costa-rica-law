@@ -1,0 +1,2 @@
+Articulo 142.- Privacidad deliberativa. Las actuaciones, deliberaciones y resoluciones del Tribunal de Ética y Disciplina, se efectuarán privadamente. Queda absolutamente prohibido a los(as) miembros del Tribunal suministrar información de los casos que conozcan y de las resoluciones dictadas hasta, tanto no hayan alcanzado su firmeza.
+El(la) miembro del Tribunal de Ética o del Tribunal de Alzada que incumple esta disposición, será sancionado (a) conforme a lo establecido en este Estatuto.

@@ -1,0 +1,1 @@
+Articulo 144.—Reglamento. Para su funcionamiento y organización interna, el Tribunal podrá emitir su propio reglamento, el cual deberá ser aprobado por el Directorio Politice Nacional. El Reglamento que dicte en ningún caso podrá contravenir las normas del presente Estatuto, o cualesquiera otras que tengan rango superior.

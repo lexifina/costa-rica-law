@@ -1,0 +1,1 @@
+Articulo 78.—Comisión Ejecutiva. El Directorio Politice Nacional tendrá una Comisión Ejecutiva para la atención diaria de los asuntos del Partido, cuyo funcionamiento e integración será reglamentado por el propio Directorio.

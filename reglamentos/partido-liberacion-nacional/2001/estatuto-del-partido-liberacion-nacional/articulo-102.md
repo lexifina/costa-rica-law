@@ -1,0 +1,3 @@
+Articulo 102.—Asambleas de Movimientos y Sectores. Las asambleas de movimientos y sectores para elegir sus representaciones ante Órganos Consultivos Cantonales. Provinciales y Nacionales del Partido, se efectuarán en la misma fecha que las Asambleas Distritales, todo(a) liberacionista podrá votar en cada uno de los dos procesos según cumpla los requisitos para participar en una Asamblea distrital y en un Movimiento o Sector, de acuerdo con el reglamento respectivo.
+(Reformado en Asamblea Nacional celebrada el 28 de agosto de 1999).
+(Reformado en Asamblea Nacional celebrada el 11 de noviembre de 1999).

@@ -1,0 +1,5 @@
+Artículo 61.—Aportes privados. Queda prohibido aceptar o recibir, directa o indirectamente, de personas físicas y jurídicas extranjeras, contribuciones, donaciones, préstamos o aportes en dinero o en especie, para sufragar sus gastos da administración y, los de sus campañas electorales.
+Ninguna de las personas señaladas podrá adquirir bonos ni realizar otras operaciones que impliquen ventajas económicas para el Partido. No obstante, quedarán autorizadas para entregar contribuciones o donaciones dedicadas específicamente a labores de capacitación, formación e investigación del Partido.
+Las personas físicas y jurídicas nacionales podrán destinar contribuciones, donaciones o cualquier otro tipo de aporte, en dinero o en especie, hasta por un monto anual equivalente a cuarenta y cinco veces el salario mínimo menor mensual que figure en la Ley de Presupuesto Ordinario de la República vigente en el momento de la contribución.
+Quedan prohibidas las donaciones, contribuciones o aportes en nombre de otra persona.
+(Reformada en Asamblea Nacional celebrada el 21 de mayo de 1997).

@@ -1,0 +1,2 @@
+Articulo 117.—Prevenciones. El Tribunal podrá prevenir en el proceso de convención nacional u otros procesos electorales la presentación de algunos de los requisitos faltantes, otorgándole un plazo de cinco días hábiles al interesado(a) para subsanar la omisión. Vencido el plazo sin que el prevenido (a) cumpla el o los requisitos, el Tribunal rechazara o revocará la inscripción, no pudiendo en consecuencia participar en el proceso respectivo.
+(Reformado en Asamblea Nacional celebrada el 11 de noviembre de 1999).

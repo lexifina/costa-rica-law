@@ -1,0 +1,3 @@
+Articulo 140.—Recursos. Los fallos del Tribunal de Ética y Disciplina no tendrán recurso alguno, salvo el de nulidad ante el mismo órgano y revisión ante el Tribunal de Alzada.
+El plazo para interponer los recursos será de diez días hábiles contados a partir del conocimiento del hecho que amerite la nulidad o de la notificación del fallo al(la) interesado (a) y deberán presentarse ante el(la) Secretario(a) del mismo Tribunal.
+En caso de ser admitido el recurso de revisión por parte del Tribunal de Ética y Disciplina, deberá remitirse el expediente al Tribunal de Alzada dentro de las cuarenta y ocho horas hábiles siguientes.

@@ -1,0 +1,1 @@
+Artículo 53.—Cociente y subcociente. En todos los casos que este Estatuto indica para las elecciones internas el sistema de cociente, subcociente y residuo mayor se aplicarán en lo conducente las normas previstas en el capitulo IV, titulo VI del Código electoral, especialmente los articulos 135, 136, 137, 138 y 13') de dicho cuerpo legal.

@@ -1,0 +1,1 @@
+Articulo 137.—Fallo. Terminada la comparecencia, el asunto quedará listo para dictar fallo, lo cual deberá hacer el Tribunal dentro del plazo máximo de treinta días naturales a partir del recibo del expediente, debidamente ordenado, que le haya remitido el órgano director. El fallo deberá ser notificado íntegramente; mientras no lo sea, el acto dictado carecerá de eficacia.

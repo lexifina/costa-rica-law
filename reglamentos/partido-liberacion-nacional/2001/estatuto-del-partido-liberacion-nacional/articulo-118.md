@@ -1,0 +1,2 @@
+Articulo 118.- Tribunal de Elecciones Internas. Resolución. Las solicitudes de inscripción se harán ante el Tribunal de Elecciones Internas, a quien corresponde velar porque se cumpla con los requisitos y exigencias indicados en los artículos anteriores.
+El Tribunal de Elecciones Internas del Partido, dentro de los siguientes treinta días de vencido el término de inscripción definitiva dictará la resolución correspondiente.

@@ -1,0 +1,4 @@
+Articulo 6°—Órganos estatutarios. El Partido estará regido exclusivamente por los órganos cuya estructura y funcionamiento se determinen en este Estatuto.
+En el desempeño de su cometido, estos órganos propiciarán la participación del mayor número de miembros del Partido en sus actividades y estarán plena y permanentemente abiertos para atender y evacuar gestiones y re presentaciones que éstos le presenten en forma individual o colectiva.
+Conforme con el principio anterior, los (las) liberacionistas no podrán crear u organizar otros órganos diferentes a los que aquí se estatuyen, ni podrán constituir grupos de presión u órganos de cualquier clase públicos o privados para actuar dentro del Partido o para realizar cualquier clase de acción política interna o externa que corresponda decidir a los órganos competentes del Partido, de acuerdo con este Estatuto.
+La desobediencia a esta norma será juzgada y sancionada por el Tribunal de Ética y Disciplina.

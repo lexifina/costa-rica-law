@@ -1,0 +1,2 @@
+Articulo 87. —Electores(as) doble voto. En la elección directa de candidatos(as) a diputados(as) o regidores (as) podrán volar todos los liberación islas (hombres y mujeres) integrados al respectivo padrón electoral, de manera que cada persona podrá emitir fu voto una vez en la elección para puestos reservados para mujeres y oirá vez en el proceso para las demás plazas.
+(Agregado en Asamblea Nacional celebrada el 30 de agosto del 2000).

@@ -1,0 +1,1 @@
+Artículo 97.- Reglamento. Cada Secretaría se regirá por un reglamento interno para normar sus actuaciones, en consulta con la Secretaría General. Dicho Reglamento deberá ser sometido por la Secretaria General a la aprobación del Directorio Politice Nacional.

@@ -1,0 +1,1 @@
+Articulo 66.—Reuniones. El Congreso se reunirá en sesión plenaria ordinariamente cada dos años, y extraordinariamente cuando lo convoque el Directorio Politice Nacional, por decisión de la Asamblea Plenaria.

@@ -1,0 +1,1 @@
+Articulo 148. • Resolución. El Tribunal de Alzada podrá continuar los fallos del Tribunal de Ética y Disciplina o determinar la nulidad del procedimiento por violar el debido proceso y las normas que lo regulan, para lo cual y en este último caso remitirá el expediente al Tribunal de Ética y Disciplina para que subsane el yerro y emita la resolución que corresponda.

@@ -1,0 +1,1 @@
+Artículo 50.—Contribución económica. Los(as) funcionarios(as) públicos que señale el Directorio Político Nacional y los(as) miembros electos (as) a cargos de elección popular deberán contribuir a los gastos del Partido con las cuotas que para cada cargo señale el citado Directorio.

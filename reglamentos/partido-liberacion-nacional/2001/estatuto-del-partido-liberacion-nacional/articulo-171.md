@@ -1,0 +1,2 @@
+Artículo 171.—Formación política. Del prosupuesto del partido, se destinará al menos el diez por ciento para promover la formación política de las mujeres liberacionistas. Corresponderá a la Secretaria de Educación Política en coordinación con la Presidenta del Movimiento de Mujeres Liberacionistas, velar por el cumplimiento de la presente disposición.
+(Reformado en Asamblea Nacional celebrada el 21 de mayo de 1997).

@@ -1,0 +1,1 @@
+Artículo 68.—Conducción. El(la) Presidente(a) del Directorio Político Nacional actuará como Presidente del Congreso. La Secretaria de Planes tendrá a su cargo la preparación de las sesione-s de acuerdo con la ayuda y et proyecto que apruebe el Directorio Político Nacional.

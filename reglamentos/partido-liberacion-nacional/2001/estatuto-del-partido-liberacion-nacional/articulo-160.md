@@ -1,0 +1,1 @@
+Articulo 160.—Reglamento. El Comité de Foros elaborará un reglamento sobre el funcionamiento de los distintos Foros, el cual deberá ser sometido a la aprobación del Directorio Político Nacional, sesenta días después de su integración.
