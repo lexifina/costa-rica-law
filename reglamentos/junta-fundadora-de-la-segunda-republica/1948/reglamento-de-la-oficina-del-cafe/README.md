@@ -13,3 +13,4 @@ Reglamento de la Oficina del Café
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1948-09-10 | la propia norma |
+| 2 | 1954-03-03 | Reglamento 82 (1954-03-03) |
