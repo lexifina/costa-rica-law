@@ -1,0 +1,1 @@
+Art. 2. Esta nueva denominacion no afecta la organizacion politica que actualmente tiene Costa Rica, ni el periodo constitucional de sus actuales funcionarios. Tampoco afecta las instituciones y leyes secundarias que al presente rigen; sinó es aquella parte en que estas pugnen con dicha denominacion.
