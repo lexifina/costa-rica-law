@@ -14,3 +14,4 @@ Traspasa Registro Genealógico de Ganado a la Asociación de Productores y Criad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-01-16 | la propia norma |
+| 2 | 1994-09-16 | Decreto Ejecutivo 23685 (1994-09-16) |
