@@ -1,3 +1,1 @@
-Artículo XIII.-Vigencia y derogatoria: Este reglamento podrá ser modificado total o parcialmente en cualquier momento y conforme a la Ley y Reglamentos del Sistema Financiero Nacional para la Vivienda.
-Las presentes normas rigen a partir de su publicación en el Diario Oficial y derogan cualquier otro reglamento o disposición aprobado anteriormente por la Mutual.
-Aprobado en la sesión ordinaria N° 14-97 del día lunes 17 de marzo de 1997.
+Artículo XIII.-Sobre los Beneficiarios en las Cuentas: El dueño de la cuenta podrá designar beneficiarios para el caso de muerte, quienes, cuando ésta ocurra y con solo comprobarla, asumirán de pleno derecho y sin necesidad de trámites judiciales o administrativos la propiedad de la cuenta, para lo cual solo requerirá su identificación como tales y, si fueren menores, la de sus representantes.
