@@ -1,0 +1,2 @@
+Transitorio.-Los excedentes registrados al 31 de diciembre de 1974 servirán de base para financiar el aumento en el costo de las pensiones que se establece en la presente ley, salvo la suma de cuatro millones de colones (¢ 4.000,000.00), la que se entregará a la Junta para los fines contemplados en los artículo 19, párrafo tercero y 20 de la Ley de Pensiones y Jubilaciones del Magisterio Nacional.
+Casa Presidencial.-San José, a los nueve días del mes de diciembre de mil novecientos setenta y cuatro.
