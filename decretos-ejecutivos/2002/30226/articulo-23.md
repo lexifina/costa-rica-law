@@ -1,0 +1,1 @@
+Artículo 23.—Cuando el estudiante que realiza el Servicio Comunal Estudiantil presentare una discapacidad que le impide ejecutar algunas tareas, el profesor tutor definirá las tareas pertinentes de acuerdo con lo que disponga la ley de Igualdad de Oportunidades 7600.

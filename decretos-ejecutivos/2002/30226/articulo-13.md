@@ -1,0 +1,1 @@
+Artículo 13.—Para la aprobación de los proyectos del SCE, el Comité institucional tomará en cuenta entre otros aspectos, los siguientes: factibilidad, pertinencia con las áreas definidas como prioritarias por el Comité Institucional del SCE, costos y seguridad para los estudiantes, interés e impacto del proyecto.

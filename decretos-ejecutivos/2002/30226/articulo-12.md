@@ -1,0 +1,1 @@
+Artículo 12.—Los estudiantes, asesorados por los profesores tutores del Comité de SCE, prepararán, los planes y los presentarán para su aprobación, a más tardar en la última semana de abril de cada año. Los proyectos podrán ser ejecutados en el colegio o en la comunidad.

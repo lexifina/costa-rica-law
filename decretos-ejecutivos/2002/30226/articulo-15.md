@@ -1,0 +1,1 @@
+Artículo 15.—El horario de trabajo se establecerá fuera del horario lectivo preferiblemente en días laborales y horas hábiles. No obstante, cuando la naturaleza del SCE lo amerite, se emplearán periodos y días diferentes, siempre que se disponga del personal docente responsable de las actividades del proyecto, los estudiantes y padres estén de acuerdo.

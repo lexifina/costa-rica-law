@@ -1,0 +1,1 @@
+Artículo 2º—Se entiende por Servicio Comunal Estudiantil la participación de los estudiantes de la educación diversificada en: programas, proyectos y actividades que favorezcan el desarrollo personal y social del estudiante y contribuyan a la solución de problemas Institucionales y Comunales.
