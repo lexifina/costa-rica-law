@@ -1,0 +1,1 @@
+Artículo 13.—No sujeción al Impuesto sobre la Renta. Los premios obtenidos en estos sorteos no están sujetos al Impuesto sobre la Renta por no constituir renta derivada del empleo o explotación de factores de producción u otra fuente costarricense, tal como lo define el artículo 1º de la Ley del Impuesto sobre la Renta, Ley Nº 7092 y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 18.—Disposición de los sobres y facturas. Concluido el programa, la Oficina de Lotería Fiscal seleccionará una muestra de sobres y facturas para labores de fiscalización. La Oficina de Lotería Fiscal podrá disponer el destino final para el resto de los sobres y facturas participantes en el sorteo.

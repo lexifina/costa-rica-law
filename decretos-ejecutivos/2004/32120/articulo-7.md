@@ -1,0 +1,1 @@
+Artículo 7º—Disposición inicial de los sobres. La Oficina de Lotería Fiscal será la encargada de velar por la recolección de los sobres depositados en los centros de acopio, de su traslado a los centros de recolección en San José y de que sean depositados con tiempo en el lugar indicado para el sorteo.

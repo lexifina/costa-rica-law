@@ -1,0 +1,1 @@
+Artículo 2º—Oficina de Lotería Fiscal. La División de Gestión de la Dirección General de Tributación del Ministerio de Hacienda tendrá bajo su responsabilidad toda la organización, administración y procedimientos relacionados con la lotería fiscal.
