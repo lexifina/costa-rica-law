@@ -1,0 +1,1 @@
+Artículo 3°—En el contrato deberán consignarse necesariamente el monto total que se le pagará al artista o artistas y deberá también comprender el pago desglosado por presentación y tiempo, el monto de los pasajes, hospedaje, viáticos y cualquier otra prestación pecuniaria en especie o efectivo.

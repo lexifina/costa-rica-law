@@ -1,0 +1,1 @@
+Artículo 4°—La Dirección del Museo de Arte Costarricense procederá a el contrato y podrá solicitar cualquier aclaración, adición o prueba que considere oportuna. Asimismo podrá realizar cualquier investigación que considere conveniente para establecer si las contraprestaciones pactadas son reales o ficticias.
