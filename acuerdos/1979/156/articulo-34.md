@@ -1,0 +1,1 @@
+Artículo 34°.- Los transportadores deberán renovar su flota de aeronaves conforme a los adelantos tecnológicos, en la medida de que las características del servicio lo exijan y las previsiones de infraestructura y el mercado lo posibiliten, teniendo con ello a lograr un mejor servicio para el usuario y una ecuación financiera que cubra el punto del equilibrio de la explotación.

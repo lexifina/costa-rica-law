@@ -1,0 +1,1 @@
+Artículo 28.- A los fines señalados en el artículo precedente, se propiciará un entendimiento entre los explotadores de una misma ruta cuyas diagramaciones de servicios, de conformidad con los horarios propuestos, resulten perjudiciales para los transportadores nacionales.

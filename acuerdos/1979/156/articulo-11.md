@@ -1,0 +1,1 @@
+Artículo 11°.- Los arreglos y entendimientos que se celebren entre autoridades aeronáuticas de otros países y los correspondientes a Costa Rica, deberán ceñirse a los principios a los principios establecidos en los artículos 8° del presente acuerdo.

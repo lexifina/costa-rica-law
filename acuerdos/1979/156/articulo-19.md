@@ -1,0 +1,1 @@
+Artículo 19.- Las autorizaciones otorgadas a los transportadores aéreos para la realización de vuelos no regulares no excederán de un término mayor de dos años, pudiendo ser prorrogados por periodos por la Dirección General de Aviación Civil a gestión de los transportadores aéreos interesados.

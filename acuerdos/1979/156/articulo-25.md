@@ -1,0 +1,1 @@
+Artículo 25°.- En lo que se relaciona con la aplicación de las tarifas, se adoptaran medidas tendientes a evitar que en la práctica, los explotadores aéreos puedan desvirtuarlas por medios directos o indirectos.

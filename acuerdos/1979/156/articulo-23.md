@@ -1,0 +1,1 @@
+Artículo 23°.- El procedimiento determinado en el artículo precedente se aplicará sin perjuicio de lo fijado por los acuerdos celebrados por el país, y de lograr, si se juzga conveniente, entendimiento con las autoridades competentes de países con los cuales no hubiese acuerdo o convenio.

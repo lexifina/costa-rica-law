@@ -1,0 +1,2 @@
+Artículo 48.- La Ley General de Aviación Civil número 5150 de 14 de mayo de 1973, sus reformas, reglamentos y el presente acuerdo, serán los instrumentos legales básicos, con las cuales contará el Ministerio de Obras Públicas y Transporte para planificar, regular, vigilar y controlar el transporte aéreo nacional e internacional.
+El Consejo Técnico de Aviación Civil y de la Dirección General de Aviación Civil serán los organismos internos de dicho Ministerio encargados de ejecutar las leyes precipitadas todo de conformidad con lo allí establecido.

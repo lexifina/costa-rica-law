@@ -1,0 +1,2 @@
+Artículo 7°.- Se tratará, en lo que concierne el transporte aéreo internacional a facilitar la operación de entrada en lo que concierne el transporte aéreo internacional a facilitar la operación de entrada y salida de aeronaves, pasajeros, carga y correo de conformidad con los acuerdos y convenios internacionales de los cuales el país sea parte.
+Con igual propósito que el anunciado para el transporte aéreo internacional, se adoptarán para el transporte aéreo interno, las medidas de agilización que corresponda.

@@ -1,0 +1,1 @@
+Artículo 26°.- Se podrán fijar tarifas especiales a los efectos de facilitar determinadas tarifas de pasajeros y la importación y explotación de productos que resulten de interés general para el país.

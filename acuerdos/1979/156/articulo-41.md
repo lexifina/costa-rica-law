@@ -1,0 +1,1 @@
+Artículo 41°.- En servicios similares entre dos puntos, corresponderá siempre aplicar iguales tarifas, salvo que se traten de prestaciones no regulares, que serán aprobados de acuerdo con los costos de explotación del transportador aéreo que le solicita, debiendo tener en cuenta lo previsto en el artículo 39 de este acuerdo.

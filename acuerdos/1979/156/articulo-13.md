@@ -1,0 +1,1 @@
+Artículo 13.- Las rutas en las cuales podrán realizar servicios los transportadores aéreos extranjeros serán previstos en los respectivos certificados de explotación, acuerdos o convenios bilaterales y se ajustarán y se ajustarán al principio establecido en el inciso e) del artículo 8° de este acuerdo.

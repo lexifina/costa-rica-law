@@ -1,0 +1,1 @@
+Artículo 47°.- Los servicios aéreos internos, se adecuarán progresivamente a los lineamientos establecidos por este acuerdo, para lo cual se tendrá especialmente en cuenta las prestaciones que se estén realizando, la demanda a satisfacer y su evolución, como asimismo la aplicación de las políticas estatales que se encuentren desarrollando en las distantes zonas del país.

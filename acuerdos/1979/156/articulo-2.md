@@ -1,0 +1,1 @@
+Artículo 2°.- En el orden interno se continuará asegurando la vinculación aerocomercial entre puntos del país mediante servicios de transporte aéreo estatales, mixtos y privados exclusivamente de bandera nacional.

@@ -1,0 +1,1 @@
+Artículo 18.- Se permitirá la realización de vuelos no regulares a los transportadores aéreos que previamente hayan sido autorizados y se ajusten a las disposiciones legales vigentes y lo dispuesto en el Decreto Ejecutivo N°6717-T de 20 de enero de 1977.

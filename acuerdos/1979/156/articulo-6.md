@@ -1,0 +1,1 @@
+Artículo 6°.- Los transportadores aéreos de bandera nacional deberán satisfacer en la medida de lo posible sus necesidades de funcionamiento operativo con medios nacionales, incluyendo su mantenimiento y reparación.

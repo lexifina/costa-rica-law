@@ -1,0 +1,1 @@
+Artículo 12.- La orientación de la red de rutas internacionales a la cual deberá ajustarse el transportador nacional, se fijará de modo tal que quede asegurado la vinculación del país conforme con los fines señalados en el artículo 1° del presente acuerdo.

@@ -1,0 +1,6 @@
+Artículo 4°.-Se podrá de acuerdo a la ley, estimular únicamente a los transportadores de bandera nacional que acrediten la posibilidad de una favorable evolución en los resultados de su explotación y siempre que cumplan con lo establecido en el artículo 36 del presente acuerdo, mediante la adaptación de medidas y regímenes adecuados que tiendan a asegurar la estabilidad, eficacia y expansión del servicio público comprendiendo alguna o varias de las siguientes formas de ayuda:
+a) Facilitación para la adquisición y mantenimiento de materias y equipos dando preferencia a la industria nacional;
+b) Reducción o eliminación de los derechos de importación a los equipos y materiales a ser utilizados en servicios concedidos a los transportadores aéreos, cuya fabricación requerida no se realice en el país;
+c) Liberación o disminución de gravámenes que incidan en los servicios aerocomerciales regulares internos, procurando de países extranjeros similares medidas con el transportador aéreo de bandera nacional, dentro del concepto de reciprocidad;
+d) Otorgamiento de avales y/o garantías financieras para las inversiones destinadas al reequipamiento o expansión de los transportes aéreos de conformidad con los artículos 33, 34 y 35 del presente acuerdo.
+e) Agilización de los procedimientos administrativos vinculados con el servicio de transporte aéreo.

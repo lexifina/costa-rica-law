@@ -1,0 +1,1 @@
+Artículo 21°.- Se podrá excepcionalmente otorgar permisos para realizar vuelos no regulares o transportadores no autorizados previamente, cuando por razones de emergencia debidamente acreditada, se requiera el traslado urgente de personas o los servicios regulares y no regulares autorizados, debiéndose en tal sentido dar preferencia a los transportadores de bandera nacional.
