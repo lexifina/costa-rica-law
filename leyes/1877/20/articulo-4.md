@@ -1,0 +1,1 @@
+Art. 4° -El sobrante de seiscientos veinticinco mil quinientos setenta y nueve pesos veintitres centavos ($625,579-23), que aparece en favor del Presupuesto de ingresos se aplicará exclusivamente á los gastos que demanda la continuación de la obra del Ferro-carril, mejorando asi la garantía é hipoteca de los prestamistas extranjeros.

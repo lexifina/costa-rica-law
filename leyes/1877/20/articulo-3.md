@@ -1,0 +1,1 @@
+Art. 3-Se destina para el pago de las cantidades designadas la suma de dos millones trescientos cincuenta y siete mil pesos ($ 2.357,000-00), á que asciende el presupuesto general de ingresos de las rentas nacionales en el citado año económico, según detalle que también ha presentado la Secretaría de Hacienda, marcado con la letra G
