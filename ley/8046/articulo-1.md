@@ -1,0 +1,5 @@
+LEY N° 8046
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA MUNICIPALIDAD DE ESCAZÚ PARA SEGREGAR UN TERRENO MUNICIPAL Y PERMUTARLO POR OTRA PROPIEDAD DE LA SOCIEDAD CENTRO COMERCIAL MULTIPLAZA S. A.
+ARTÍCULO 1.- Autorízase a la Municipalidad de Escazú, cédula jurídica N° 3-014-042150-25, para segregar de su finca sin inscribir el lote descrito en el plano catastrado N° SJ-603863-99; además, para desafectarlo del dominio público. Se trata de un terreno destinado a calle pública, sito en Guachipelín de Escazú, distrito 3° San Rafael, cantón II Escazú, provincia de San José, con una medida de 1.509,20 m2. Linda al norte con zona verde; al sur, con calle pública; al este, con el Centro Comercial Multiplaza S. A. y Desarrollos Los Pinos de Guachipelín S. A.; y al oeste, con el Condominio Ampliación Centro Comercial Multiplaza Tercera y Cuarta Etapa, con una longitud hasta de 166,33 m de línea de propiedad colindante con zona verde en medio autopista Próspero Fernández hacia el sur, y con un ancho máximo de 9,93 m. El resto de la finca ser conservado por la Municipalidad de Escazú.
