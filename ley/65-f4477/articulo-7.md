@@ -1,0 +1,1 @@
+Art. 7. Los jefes Políticos formarán un reglamento para la ejecución de esta ley en su jurisdicción respectiva, el cual elevarán al Gobierno Supremo para su aprobación ó reforma. Dado en San José, á treinta de Mayo de mil ochocientos cuarenta y dos. –Francisco Morazan. –Al Ministro general del Despacho Sr. General José Miguel Saravia.
