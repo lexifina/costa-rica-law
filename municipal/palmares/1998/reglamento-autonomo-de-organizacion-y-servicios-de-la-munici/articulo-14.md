@@ -1,0 +1,5 @@
+Artículo 14.—En la Municipalidad se trabajará jornada continua di nueve horas atendiendo el siguiente horario: Para empleado administrativos de lunes a viernes de siete de la mañana a cuatro de la tarde. También tendrán derecho a una hora de almuerzo, sin suspención di los servicios que prestan.
+Empleados de servicio: de lunes a viernes de seis de la mañana 2,30 de la tarde y sábados de seis a once de la mañana. Tendrán derecho a 15 minutos por la mañana y 45 minutos para almuerzo.
+Para los funcionarios que laboran jornada diferente a la ordinaria, se regirán por el siguiente horario:
+Para funcionarios que laboran un cuarto de tiempo: 11 horas media incluidas dentro del horario establecido para el persone administrativo de 7 am a 4pm de lunes a viernes. Los días a laborar será fijados por la Dirección Ejecutiva, u Oficina de Personal.
+Funcionarios a medio tiempo: veintidós horas y media incluidas dentro del horario establecido para el personal administrativo de 7am a 4 pm. Los días a laborar serán fijados por Dirección Ejecutiva, u Oficina de Personal

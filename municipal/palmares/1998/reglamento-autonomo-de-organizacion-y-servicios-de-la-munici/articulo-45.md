@@ -1,0 +1,1 @@
+Artículo 45.—Ningún empleado, una vez que se le asigne un salario base de la categoría correspondiente, devengará un sueldo superior a este, salvo que se le recarguen funciones de otros puestos con salario de categoría superior, en aquellas situaciones expresamente reguladas por este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 51.—La Municipalidad pagará los salarios en efectivo, los días 14 y 28 de cada mes. En caso de coincidir el día de pago con un feriado, se procederá al pago del salario el día hábil inmediato anterior.
+El trabajador al momento de recibir su salario deberá firmar la planilla correspondiente. En caso de inconformidad con el monto recibido, monto total devengado, o deducciones hechas, deberá reclamar ante el encargado de planillas; en todo caso las reclamaciones sobre diferencias del pago de salario prescribirán en el tiempo de tres meses.

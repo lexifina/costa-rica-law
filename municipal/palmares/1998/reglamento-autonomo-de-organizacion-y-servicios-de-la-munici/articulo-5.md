@@ -1,0 +1,1 @@
+Artículo 5°—La aplicación del presente Reglamento corresponde al Ejecutivo Municipal, u Oficina de Personal quienes controlarán todo lo concerniente a nombramientos, despidos, cambios de puesto, ascensos, vacaciones, permisos, mediante una acción de personal.

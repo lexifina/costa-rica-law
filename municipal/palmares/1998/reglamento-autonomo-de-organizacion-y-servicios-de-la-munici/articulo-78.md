@@ -1,0 +1,24 @@
+CAPITULO XII
+De las obligaciones de los trabajadores
+Artículo 78.—Además de lo estipulado en el Artículo 71 del Código de Trabajo y otros numerales de este Reglamento, son obligaciones de los trabajadores:
+a- Prestar los servicios personalmente, en Corma regular y continua dentro de la jornada de trabajo establecida.
+b- Comenzar las labores de conformidad con el horario estipulado, no pudiendo abandonarlas ni suspenderlas sin causa justificada, antes de haber cumplido su jornada de trabajo.
+c- Ejecutar el trabajo con la intensidad, cuidado, dedicación y esmero apropiados, en la forma, tiempo y lugar convenidos.
+ch-Restituir al patrono los materiales no usados, y conservar en buen estado ios instrumentos y útiles que se les faciliten para el trabajo. Es entendido que no serán responsables por el deterioro normal, no del que se ocasione por caso fortuito, fuerza mayor, mala calidad o defectuosa confección.
+d- Desempeñar el servicio contratado bajo la dirección de patrono, o de sus representantes, a cuya autoridad estarán sujetos en todo lo concerniente al trabajo y ejecutar las labores que los mismos les encomienden, dentro de su jornada de trabajo, siempre que sean compatibles con sus aptitudes, estado y condición.
+e- Observar durante el trabajo buenas costumbres y disciplina
+f- Atender con diligencia, afán de servicio, corrección y cortesía al público que acuda a las oficinas de la Municipalidad, motivados en el ejercicio de su cargo; y guardar a sus Jefes y compañeros de trabajo, toda la consideración debida, de modo que no se origine queja justificada, mal servicio o detención por mal trato o irrespeto.
+g- Prestar los auxilios necesarios en caso de siniestro o riego inminente en que las personas o intereses de la Municipalidad, o algún compañero de trabajo estén en peligro, nada de lo cual les dará derecho a remuneración adicional
+h- Cumplir con la mayor diligencia’ y buena voluntad las órdenes de sus jefes, relativas al servicio y a los deberes del puesto que desempeña, auxiliando en su trabajo a cualquiera de los demás trabajadores cuando su jefe o quien lo represente lo indique.
+i- Comunicar a sus jefes las observaciones que su experiencia y conocimiento le sugieran, para prevenir daños o. perjuicios a los intereses de la Municipalidad, de sus compañeros de trabajo y de las personas que eventual o permanentemente, se encuentren dentro del lugar en donde presta sus servicios.
+j- Someterse a reconocimiento médico, sea al solicitar su ingreso al trabajo, o durante su permanencia en éste, a solicitud del patrono, para comprobar que no padece ninguna incapacidad permanente o alguna enfermedad del trabajo, contagiosa o incurable; o a petición de un órgano oficial de Salud Pública o Seguridad Social, por cualquier motivo.
+k- Observar rigurosamente, las medidas preventivas que acuerden las autoridades competentes y las que indiquen los patronos en el Comité de Salud Ocupacional. para la seguridad y protección personal de ellos, sus compañeros de trabajo o de los lugares donde laboran. Es obligación de los trabajadores la colaboración decidida en los simulacros o ejercicios preventivos que se realicen en sus instalaciones.
+I- Responder económicamente, por los daños que causaren intencionalmente, o que se debieren a su negligencia o descuidos manifiestos y absolutamente inexcusables.
+II- Reportar a la Dirección Ejecutiva, los daños o imprudencias que otros compañeros causaren en perjuicio de la Institución, si-descubrieren un robo, o daño realizado por cualquier persona deberán denunciarlo inmediatamente.
+m- Durante las horas de trabajo, vestir en forma correcta, de conformidad con las labores que desempeñen. En este aspecto debe el trabajador cuidar su apariencia personal, en cuanto a higiene y limpieza.
+n- Tomar mensajes o pedidos en forma fehaciente, y rendir los informes que se les soliciten y desarrollar las labores dentro de un ambiente de seriedad y armonía, concentrando cada trabajador su atención en la labor que está realizando, a fin de que la misma resulte de la mejor calidad posible.
+ñ- Guardar rigurosamente la más absoluta reserva sobre los asuntos privados de la Municipalidad que, por índole de las funciones que desempeñan, llegaren a su conocimiento, y cuya divulgación está prohibida por la ley o cause perjuicios a la Entidad.
+o- Asistir a las sesiones del Concejo Municipal cuando éste los requiera sin que tengan derecho a pago de salario extraordinario.
+p- No interferir ni ejecutar labores propias de otra unidad, sin autorización expresa del Jefe del Departamento donde está destacado.
+q- Observar dignidad en el desempeño de sus cargos, o fuera de ellos, guardando conducta que no ofenda el orden y la moral pública.
+r- Informar al Encargado del Personal, de todo cambio de domicilio, estado civil y demás datos que sean necesarios, para mantener los respectivos expedientes de personal en orden y al día.

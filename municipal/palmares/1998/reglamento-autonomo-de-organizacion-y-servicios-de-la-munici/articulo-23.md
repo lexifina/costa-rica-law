@@ -1,0 +1,1 @@
+Artículo 23.—La Sección de Personal verificará la validez y autenticidad .de los documentos presentados por los aspirantes, -experiencia laboral o cualquier circunstancia que sirva para ponderar mi capacidad para el puesto sometido a concurso.

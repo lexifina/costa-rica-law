@@ -1,0 +1,1 @@
+Artículo 46.—Todos los funcionarios municipales recibirán por cada año de servicio una remuneración adicional que compensará su antigüedad en la Institución, que consistirá en un 3% del salario base de la categoría a la que se encuentre asignado.

@@ -1,0 +1,1 @@
+Artículo 44.—Los salarios de los trabajadores de la Municipalidad estarán regidos por una escala de salarios y con consecuencia de la valoración de los deberes, responsabilidades y complejidades que componen cada uno de los puestos de la entidad.

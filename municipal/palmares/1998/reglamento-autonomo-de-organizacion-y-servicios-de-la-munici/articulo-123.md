@@ -1,0 +1,1 @@
+Artículo 123.—En defecto de disposiciones propias de este reglamento deberán tenerse como supletoria el Código Municipal, el Código de Trabajo y demás leyes, decretos y reglamentos conexos en la materia que estén en vigencia. Así mismo el manual descriptivo de puestos de la Municipalidad.

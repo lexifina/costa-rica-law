@@ -1,0 +1,2 @@
+Artículo 91.—No obstante lo expuesto en el artículo anterior, las ausencias y llegadas tardías y las justificaciones de omisiones de marcas a, inicio y conclusión de labores deberán justificarse por escrito a más tardar dentro de los dos días hábiles siguiente a la fecha en que ocurrió el hecho.
+Posteriormente a ese lapso, no se aceptarán, sin excepción, ningún tipo de justificaciones, haciéndose acreedor el funcionario a las sanciones disciplinarias establecidas en este Reglamento para dichas faltas.

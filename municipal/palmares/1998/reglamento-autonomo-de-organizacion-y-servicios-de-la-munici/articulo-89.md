@@ -1,0 +1,2 @@
+Artículo 89.—Las ausencias al trabajo por enfermedad comprobada, que excedan de tres días, deberá justificarlas el servidor incapacitado mediante certificación medica extendida por la Caja Costarricense de Seguro Social o por el Instituto Nacional de Seguros.
+En casos muy calificados se aceptará la incapacidad o certificado médico extendido particularmente por un profesional en ciencias médicas, siempre y cuado la inasistencia al trabajo no exceda de dos días hábiles.

@@ -1,0 +1,1 @@
+Artículo 18.—La jornada que se labore fuera de. los límites establecidos en el artículo 14 de este reglamento, constituye jornada extraordinaria y deberá ser remunerada de acuerdo al salario del funcionario.

@@ -1,0 +1,1 @@
+Artículo 71.—De los feriados: Son días hábiles todos los 1 año, excepto los feriados considerados de en artículo 147 del Código de Trabajo y aquellos que el Poder Ejecutivo declare de asueto conforme al acuerdo correspondiente.

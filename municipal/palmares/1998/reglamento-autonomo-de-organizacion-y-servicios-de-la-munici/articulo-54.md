@@ -1,0 +1,1 @@
+Artículo 54.—Para los casos protegidos por la Caja Costarricense del Seguro Social por el Instituto Nacional de Seguros, la Municipalidad reconocerá el subsidio necesario para completar el sueldo completo devengado por el servidor, conforme a su antigüedad y en la forma prevista en el artículo siguiente:

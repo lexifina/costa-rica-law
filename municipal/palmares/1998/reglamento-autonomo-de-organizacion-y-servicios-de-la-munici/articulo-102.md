@@ -1,0 +1,1 @@
+Artículo 102.—Las sanciones establecidas en el presente capítulo, se aplicarán en el transcurso de hasta un mes después de que cometió la falta, o en el que los representantes patronales conocieron de la misma.

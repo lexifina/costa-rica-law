@@ -1,0 +1,5 @@
+Artículo 7°—Los contratos de trabajo serán:
+A) Por tiempo indefinido: que se llevarán a cabo con aquellos trabajadores para satisfacer las necesidades propias y permanentes de la Municipalidad.
+B) Por tiempo determinado: que se celebrarán con los trabajadores que vengan temporalmente a ejecutar las labores de quien o quienes se encuentren disfrutando de vacaciones o licencias en que la celebración resulte procedente conforme a la naturaleza de los servicios que se van a prestar.
+C) Por obra determinada: que se podrán celebrar para satisfacer necesidades que eventualmente se presten en la Municipalidad y en el cual sin previa fijación de tiempo, el objeto de la prestación personal del servicio subordinado será la misma obra producida.
+D) De aprendizaje: Que se formalicen por escrito de acuerdo con las disposiciones de la Ley de Aprendizaje, su Reglamento y disposiciones conexas y supletorias y que tiendan a la formación profesional, metódico y completa del individuo. Por convenio celebrados con Instituciones de Educación media o superior.

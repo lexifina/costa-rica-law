@@ -1,0 +1,1 @@
+Artículo 33.—Para aspirar a un ascenso, el candidato debe llenar los requisitos del Manual de Puestos, debe haber aprobado las pruebas internas, si asi lo dispone la administración; además es necesario que figure en la Terna o Nómina de candidatos que se derive de aquel procedimiento.

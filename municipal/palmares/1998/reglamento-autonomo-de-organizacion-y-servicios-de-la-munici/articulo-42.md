@@ -1,0 +1,1 @@
+Artículo 42.—Todos los permisos con goce de salario que se otorguen en conformidad con lo establecido en el inciso b del artículo 150 del Código Municipal, deberán deducirse del período de vacaciones, sin que el número de días de licencia pueda exceder del número de d0 las de vacaciones a que tenga derecho el servidor al momento de solicitar la licencia.

@@ -1,0 +1,1 @@
+Artículo 106.—El procedimiento a seguir y las sanciones aplicables por hostigamiento o acoso sexual, se tramitarán de conformidad con lo establecido en los capítulos XVIII de este Reglamento. (Ver Sanciones).

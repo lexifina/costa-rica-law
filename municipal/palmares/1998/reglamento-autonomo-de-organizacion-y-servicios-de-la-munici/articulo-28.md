@@ -1,0 +1,1 @@
+Artículo 28.—Podrán participar en los concursos servidores de la Municipalidad y particulares, pero a los primeros se les dará prioridad y preferencia cuando se trate de promociones internas para llenar caraos vacantes en la Institución.

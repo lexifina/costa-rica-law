@@ -1,0 +1,1 @@
+Artículo 49.—El salario comprende el trabajo por jornada continúa de 45 horas semanales para los empleados administrativos y de 47 horas y media para los empleados de servicio. El pago cubre descansos semanales, feriados y asuetos que incidan y estén comprendidos en su período.

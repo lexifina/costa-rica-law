@@ -1,0 +1,3 @@
+Artículo 31.—La persona que hubiere prestado servicios a la Municipalidad tiene derecho a ser considerada como candidato elegible para ocupar nuevamente un puesto con prioridad después de los trabajadores de la Municipalidad, de acuerdo a las siguientes condiciones:
+a- Que la terminación del contrato no hubiere ocurrido por despido justificado, ni que el trabajador hubiese dejado obligaciones pendientes de cubrir, de cualesquiera naturaleza que hubiesen sido, ni que en el expediente personal existan motivos suficientes que pudieran haber dado base para su despido justificado.
+b- Que el resultado de la evaluación de servicio de los últimos dos años de vigencia del Contrato de Trabajo, hubiese sido suficiente para considerar los servicios prestados como muy buenos.

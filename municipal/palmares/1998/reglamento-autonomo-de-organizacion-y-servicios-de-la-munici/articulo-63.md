@@ -1,0 +1,2 @@
+Artículo 63.—El Instituto Nacional de Seguros pagará el subsidio correspondiente al trabajador incapacitado por riesgos del trabajo, por todo el tiempo que esté incapacitado para prestar servicios o hasta que se le declare parcial o totalmente incapacitado para trabajar.
+Durante el periodo de incapacidad a consecuencia de un riesgo del trabajo, la Municipalidad reconocerá al trabajador afectado la diferencia resultante entre el subsidio pagado por el Instituto Nacional de Seguros hasta completar en cien por ciento (100%) del salario.

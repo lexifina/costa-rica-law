@@ -1,0 +1,1 @@
+Artículo 85.—Las asistencias al Seguro social, cuando son en horas laborales, se consideran como licencias con goce de salario, y deberán ser marcadas en el reloj controlador usando el gafete correspondiente.

@@ -1,0 +1,1 @@
+Artículo 107.—La persona denunciante de hostigamiento 4i acoso sexual, así como los testigos, gozarán de las garantías y derechos previstos en la Ley. 7476 del 03 de febrero de 1995, en relación con su empleo y condiciones generales de trabajo.

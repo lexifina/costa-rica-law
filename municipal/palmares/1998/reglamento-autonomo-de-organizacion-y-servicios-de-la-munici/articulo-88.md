@@ -1,0 +1,1 @@
+Artículo 88.—Cuando se suspendiere a un funcionario por ausencias injustificadas, se le deberá rebajar, además de los días de suspención, los días no laborados que motivaron tal sanción disciplinaria.
