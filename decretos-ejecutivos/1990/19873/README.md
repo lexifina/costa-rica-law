@@ -14,3 +14,4 @@ Norma de Bebidas Alcohólicas, Nomenclatura y Clasificación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-09-07 | la propia norma |
+| 2 | 1992-02-18 | Decreto Ejecutivo 21087 (1992-02-18) |
