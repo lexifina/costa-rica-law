@@ -1,0 +1,12 @@
+CAPITULO III
+De otros incentivos
+Artículo 24.- Se reforman el inciso 9) del artículo 6º, así como los incisos 5) y 12) del artículo 8º, de la Ley del Impuesto sobre la Renta, Nº 837 del 20 de diciembre de 1946 y sus reformas, los cuales dirán así:
+"Artículo 6º.-No forman parte de la rente bruta: ...
+9) En revaluaciones de activos fijos, tratándose de activos fijos depreciables, el valor de la revaluación no podrá exceder de aquel registrados para los efectos del pago del impuesto territorial. La revaluación será considerada para efectos de establecer las cuotas de las correspondientes depreciaciones. La revaluación de activos fijos no formará parte de la renta bruta en el caso de las empresas agropecuarias o agroindustriales."
+"Artículo 8º.-La renta líquida proveniente de las empresas, explotaciones o negocios a que se refiere el inciso 5) del artículo 5º, se determinará deduciendo de la renta bruta las siguientes partidas: ...
+5) Una amortización razonable, para compensar el agotamiento o desgaste de las maquinarias, bienes muebles, plantaciones y repastos usados en el negocio.
+La Administración Tributaria determinará los porcentajes máximos de depreciación que prudencialmente puedan hacerse por este concepto, en consideración con la naturaleza de los bienes y a la rama de la actividad económica en la cual son utilizados.
+Se faculta al Poder Ejecutivo para que conceda depreciaciones aceleradas sobre activos nuevos, adquiridos por empresas que se considere conveniente estimular. Estas depreciaciones se fijarán mediante decreto. con carácter general, por actividad o rama de actividad.
+Las empresas agropecuarias o agroindustriales, además de la amortización normal dispuesta en el párrafo primero, tendrán una depreciación especial sobre activos nuevos, durante un período no superior a la mitad del dispuesto para la amortización normal.
+12) Un equivalente del cincuenta por ciento (50%) del beneficio neto del período anterior, que se hubiere invertido en bienes de capital para uso de las empresas industriales. La oficina de la Administración Tributaria determinará los casos en los cuales deba hacerse esta deducción, que no podrá exceder, en ningún caso, de cien mil colones (¢ 100.000,00) anuales.
+Las empresas agropecuarias o agroindustriales tendrán el mismo beneficio sin límite de ninguna especie. La oficina de Administración Tributaria rechazará las inversiones que no se hayan realizado en bienes productivos, de mantenimiento, expansión o diversificación, propios de la actividad empresarial."
