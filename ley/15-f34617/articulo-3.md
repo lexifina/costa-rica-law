@@ -1,1 +1,1 @@
-Artículo 3°-Los espectáculos deportivos pagarán únicamente el seis por ciento que por las leyes anteriormente citadas perciben los colegios de Segunda Enseñanza, la Escuela Normal, el Patronato Nacional de la Infancia, las Juntas Provisionales de Protección a la Infancia y la Universidad.
+Artículo 3°-(Derogado por el artículo 1° de la ley N° 228 del 13 de octubre de 1948)

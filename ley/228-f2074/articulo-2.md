@@ -1,0 +1,3 @@
+Artículo 2º.- El artículo 3º de la ley Nº 841 de 15 de enero de 1947, se leerá así:
+"Artículo 3º.- Los espectáculos deportivos y los que tengan como finalidad la beneficencia pública, pagarán únicamente el seis por ciento que por las leyes Nº 296 de 26 de agosto de 1939 y Nº 362 de 26 de agosto de 1940, perciben los Colegios de Segunda Enseñanza, la Escuela Normal, el Patronato Nacional de la Infancia, las Juntas Provinciales de Protección a la Infancia y la Universidad. La calificación de estos espectáculos será a juicio de la Tributación Directa.
+Las teatros o salones de cine situados en distritos que no sean cabeceras de provincia, pagarán, por el anterior concepto, el tres por ciento de la entrada bruta obtenida en cada espectáculo."
