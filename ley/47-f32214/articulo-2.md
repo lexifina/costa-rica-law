@@ -1,0 +1,3 @@
+Artículo II.-Autorízase al Poder Ejecutivo para que invierta la cantidad de veinte mil cuatrocientos ocho pesos setenta y cinco centavos, en el mantenimiento de los cuarteles de Cartago, Heredia y Alajuela, hasta el 15 de Agosto entrante.
+AL PODER EJECUTIVO.
+Dado en el Salón de Sesiones del Palacio Nacional, á los diecinueve días del mes de Julio de mil ochocientos noventa y dos.-CLETO GONZÁLEZ VÍ- QUEZ, Vicepresidente.-JOSÉ JOAQUÍN TREJOS, Secretario.-INOCENTE MORENO, Prosecretario. Casa Presidencial. -San José, á veintidós de Ju- lio de mil ochocientos noventa y dos.-Ejecútese.- JOSÉ J. RODRÍGUEZ. El Secretario de Estado en el despacho de Hacienda y Comercio, -P. J. VALVERDE.
