@@ -14,3 +14,4 @@ Reglamento a la Ley de Armas (1986)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-04-07 | la propia norma |
+| 2 | 1986-04-07 | SINALEVI (sin norma nombrada) |

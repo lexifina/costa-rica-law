@@ -1,4 +1,1 @@
-ARTICULO 22.- Toda arma prohibida decomisada por traficarse con ella,
-en forma directa o indirecta en el país, deberá ser entregada al
-Departamento mediante acta formal; y pasará automáticamente a formar parte
-del patrimonio del Arsenal Nacional.
+Articulo 22.-Toda arma prohibida decomisada por traficarse con ella, en forma directa o indirecta en el país, deberá ser entregada al Departamento mediante acta formal; y pasará automáticamente a formar parte del patrimonio del Arsenal Nacional.

@@ -1,7 +1,1 @@
-ARTICULO 12.- Se exceptúan de la prohibición del artículo 9º, inciso
-d) del presente Reglamento, los aparatos destinados a la defensa personal
-con un contenido no mayor de 30 g de gas lacrimógeno, así como los
-dispositivos de seguridad a base del mismo gas, que se instalen en cajas
-de seguridad y establecimientos que requieran especial protección, siempre
-y cuando en este último caso cuenten con la debida autorización del
-Departamento.
+Artículo 12.-Se exceptúan de la prohibición del artículo 99, inciso d) del presente Reglamento, los aparatos destinados a la defensa personal con un contenido no mayor de 30 g de gas lacrimógeno, así como los dispositivos de seguridad a base del mismo gas, que se instalen en cajas de seguridad y establecimientos que requieran especial protección, siempre y cuando en este último caso cuenten con la debida autorización del Departamento.

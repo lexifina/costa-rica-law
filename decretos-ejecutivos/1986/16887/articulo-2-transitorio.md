@@ -1,0 +1,2 @@
+Transitorio II.-Los actuales propietarios de armas clasificadas como prohibidas, deberán en el término que establece la ley, entregarlas al Departamento, quien levantará un acta formal conteniendo: nombre, calidades, domicilio y teléfono del interesado, cantidad, tipo y características de las armas, de la cual dará copia al depositario. El Departamento gestionará el pago o indemnización respectiva, según el valor real de las armas.
+Dado en la Presidencia de la República.-San José, a los veintiún días del mes de febrero de mil novecientos ochenta y seis.

@@ -1,6 +1,1 @@
-ARTICULO 20.- El Departamento, previa aprobación del Ministro
-remitirá cada 15 de noviembre un informe anual a la Controlaría General de
-la República, de las armas en poder del Estado y sus instituciones. Estos
-informes e inventarios serán absolutamente confidenciales por razones de
-Seguridad Nacional, sin menoscabo de las facultades constitucionales de la
-Asamblea Legislativa.
+Artículo 20.-El Departamento, previa aprobación del Ministro remitirá cada 15 de noviembre un informe anual a la Contraloría General de la República, de las armas en poder del Estado y sus instituciones. Estos informes e inventarios serán absolutamente confidenciales por razones de Seguridad Nacional, sin menoscabo de las facultades constitucionales de la Asamblea Legislativa.

@@ -1,4 +1,1 @@
-ARTICULO 27.- Las armas para uso exclusivo de cacería, no gozarán por
-circunstancia alguna del permiso especial de portación y para su traslado
-o transporte deberán guardarse en la valija o estuche adecuado, separada
-de su munición.
+Artículo 27.-Las armas para uso exclusivo de cacería, no gozarán por circunstancia alguna del permiso especial de portación y para su traslado o transporte deberán guardarse en la valija o estuche adecuado, separada de su munición.

@@ -1,6 +1,1 @@
-ARTICULO 40.- El permiso de venta y exportación de explosivos
-permitidos, obliga a los comerciantes autorizados a informar al
-Departamento dentro de los tres días hábiles siguientes, y en el
-formulario correspondiente, sobre la venta realizada de los explosivos,
-con el suministro de todos los datos necesarios para la plena
-identificación del comprador, uso, clase y cantidad de los mismos.
+Artículo 40.-El permiso de venta y exportación de explosivos permitidos, obliga a los comerciantes autorizados a informar al Departamento dentro de los tres días hábiles siguientes, y en el formulario correspondiente, sobre la venta realizada de los explosivos, con el suministro de todos los datos necesarios para la plena identificación del comprador, uso, clase y cantidad de los mismos.

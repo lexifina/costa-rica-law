@@ -1,3 +1,1 @@
-ARTICULO 97.- Es obligación de todo propietario de arma inscrita ante
-el Departamento notificar al mismo de cualquier cambio de dirección o
-domicilio, dentro del término de treinta días, después de efectuado éste.
+Articulo 97.-Es obligación de todo propietario de arma inscrita ante el Departamento notificar al mismo de cualquier cambio de dirección o domicilio, dentro del término de treinta días, después de efectuado éste.

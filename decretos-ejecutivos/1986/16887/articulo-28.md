@@ -1,7 +1,1 @@
-ARTICULO 28.- Podrán inscribirse más de tres armas de las permitidas,
-cuando el Departamento las califique para uso exclusivo de tiro al blanco
-o al plato y éstas se ajusten a lo que al respecto señalen los reglamentos
-internacionales de esas disciplinas. Estas armas no gozarán por
-circunstancia alguna del permiso especial de portación y para su traslado
-o transporte deberán guardarse en la valija o estuche adecuado, separada
-de su munición.
+Artículo 28.-Podrán inscribirse más de tres armas de las permitidas, cuando el Departamento las califique para uso exclusivo de tiro al blanco o al plato y éstas se ajusten a lo que al respecto señalen los reglamentos internacionales de esas disciplinas. Estas armas no gozarán por circunstancia alguna del permiso especial de portación y para su traslado o transporte deberán guardarse en la valija o estuche adecuado, separada de su munición.
