@@ -1,0 +1,1 @@
+Artículo 25.- La Sección dispondrá del personal suficiente para el desempeño de sus funciones específicas y deberá estar integrada por maestros especialistas en enseñanza Pre-Escolar, Primaria, Secundaria, Normal y Especial. Agro- Pecuaria y cuantas especialidades vaya requiriendo la tecnificación progresiva de la educación.

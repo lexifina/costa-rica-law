@@ -1,0 +1,2 @@
+Artículo 46.- El Ministerio de Educación Pública consultará anualmente a la Dirección General de Bibliotecas los fondos presupuestarias para que dicho Servicio pueda cumplir a cabalidad las funciones que le asignan en la presente ley.
+En dicho presupuesto será incluído un rubro por la suma de cinco colones mensuales pro cada Junta Escolar, deducida, previamente, de los fondos que a éstas corresponden.

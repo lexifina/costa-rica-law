@@ -1,0 +1,1 @@
+Artículo 19.- Los problemas relativos a la correlación del Sistema Educativo de Costa Rica desde la escuela primaria hasta la Secundaria deberán ser estudiados en conjunto por las Direcciones Generales correspondientes y tratándose de éstas con la Universitaria, el Ministro de Educación designará la comisión que lo represente si él mismo no asume tal representación.
