@@ -1,0 +1,1 @@
+Artículo 23.-Las entidades participantes, por el hecho de recibir fondos de Asignaciones Familiares, están obligadas a brindar a la Dirección, en la forma, momento y plazos que lo estime conveniente, los informes, datos, declaraciones, copias de correspondencia o de documentos públicos que requiera para el cumplimiento de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 7º.-Con excepción de los casos enmarcados en el "Programa no Contributivo de Pensiones por Monto Básico", que por su propia índole y naturaleza no admiten otra solución que su permanencia, en todos los demás se deben evitar las situaciones parasitarias o de marginación permanente.

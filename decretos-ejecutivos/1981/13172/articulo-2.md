@@ -1,0 +1,1 @@
+Artículo 2º.-La materia regulada por la ley que se reglamenta es de auténtico interés público; es parte de la legislación social; y se inspira en la obligación de amparar a los grupos de población más necesitados, por razón de su bajo o nulo nivel de ingresos; y para promover el desarrollo social de los grupos marginados dentro del concepto global de la seguridad social.

@@ -1,0 +1,1 @@
+Artículo 8º.-Se debe proceder con rigurosidad por parte de la Dirección y de las entidades particulares, tanto al otorgar prestaciones o servicios como al fiscalizar su uso, su aplicación y, en su caso, la cesación o cambio de las circunstancias de hecho y de todo orden que autorizaron el otorgamiento de aquéllos.

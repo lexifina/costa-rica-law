@@ -1,0 +1,2 @@
+Transitorio IV.-Lo relativo a clasificación y valoración de puestos de personal de Asignaciones Familiares, estará a cargo de la Dirección General de Servicio Civil, la cual procederá a la determinación que corresponda dentro de los tres meses siguientes a la publicación de este decreto.
+Dado en la Presidencia de la República.-San José, a los treinta días del mes de noviembre de mil novecientos ochenta y uno.

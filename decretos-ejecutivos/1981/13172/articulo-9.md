@@ -1,0 +1,1 @@
+Artículo 9º.-Los dispuesto por el artículo 19 de la ley número 5662 en relación con las tareas cuya realización se contratará con la Caja Costarricense de Seguro Social, no excluye realización por parte de la Dirección, en cualesquiera otros aspectos que estime conveniente.

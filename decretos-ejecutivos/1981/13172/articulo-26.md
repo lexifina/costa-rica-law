@@ -1,0 +1,1 @@
+Artículo 26.-Lo que no esté expresamente previsto en este reglamento o en la Ley, se resolverá de acuerdo con los principios generales de Derecho Social y, en lo aplicable, con las normas generales de Derecho Público.
