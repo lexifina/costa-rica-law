@@ -1,0 +1,1 @@
+Art. 10. No quedan comprendidos en el art. anterior los actuales Mayordomos de fábricas.-Al Consejo Representativo. -Dado en San José á los tres dias del mes de Mayo de mil ochocientos treinta y tres. San José Mayo diezisiete de mil ochocientos treinta y tres. -Pase al Poder Ejecutivo.-.Por tanto.-EJECUTESE.-San José. Mayo veinte de mil ochocientos treinta y tres.

@@ -1,0 +1,1 @@
+Art. 8. Las Municipalidades con anuencia del Cura Párroco reducirán las festividades ó celebraciones de los Santos proporcionandolas al producto líquido de los réditos de cada año, y no permitirán que se establezcan nuevas devociones, sino que sosteniendo las muy precisas que hasta ahora existen en Ios Pueblos, se adelanten y prefeccionen de un modo decoroso y edificante.

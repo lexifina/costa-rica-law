@@ -1,0 +1,1 @@
+Art. 9. Nombrarán tambien Ias mismas, con anuencia del Párroco, un Mayordomo general que recaude é invierta los productos da los Capitales puestos al rédito, gratificado con un tres por ciento de los mismos productos. Este rendirá cuenta justificada, que aprobada por la Municipalidad, será dirijida al Supremo Tribunal de cuentas por el órgano correspondiente.
