@@ -1,1 +1,1 @@
-Artículo 17°-La relación laboral del Director y demás personal de la Casa, con el Movimiento Nacional de Juventudes, se regirá por la legislación laboral vigente.
+Artículo 17°-(Derogado por el artículo 1° del decreto ejecutivo N° 24667 del 18 de setiembre de 1995)

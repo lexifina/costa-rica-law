@@ -14,3 +14,4 @@ Reglamento General de Casas de Juventud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-10-16 | la propia norma |
+| 2 | 1995-09-18 | Decreto Ejecutivo 24667 (1995-09-18) |

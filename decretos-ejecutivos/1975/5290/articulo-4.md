@@ -1,9 +1,10 @@
 CAPÍTULO II
 De la Junta Directiva
-Artículo 4°-La Junta Directiva estará compuesta por cinco miembros de libre nombramiento y remoción del Ministerio de Cultura, Juventud y Deportes, escogidos de la siguiente manera:
-a) Un representante del Ministerio de Cultura, Juventud y Deportes
-b) Un representante del Movimiento Nacional de Juventudes.
-c) Un representante de las Asociaciones de Desarrollo Comunal de la zona.
-d) Un representante del Concejo Municipal.
-e) Un representante de las organizaciones juveniles y estudiantiles de la zona, representantes en el Comité Cantonal de la Juventud.
-El representante del Concejo Municipal será escogido de la terna presentada por la Corporación al Ministerio, y el de las organizaciones juveniles y estudiantiles, de la terna presentada por el Comité Cantonal de la Juventud. El representante de las Asociaciones de Desarrollo de la Comunidad será escogido entre los candidatos, uno por organización, que presenten las Asociaciones de Desarrollo. Los miembros de la Junta Directiva serán juramentados por el Ministerio y durarán en sus fuinciones por un período de un año, pudiendo ser reelectos.
+Artículo 4°-La Junta Directiva estará compuesta por cinco miembros de libre nombramiento y remoción por parte del Consejo Nacional de Política Pública de la Persona Joven, escogidos por éste de la siguiente forma:
+a) Un representante del Ministerio de Cultura, Juventud y Deportes.
+b) Un representante del Consejo Nacional de Política Pública de la Persona Joven.
+c) 3 representantes de las organizaciones juveniles.
+Los representantes de las organizaciones juveniles serán escogidos de entre las ternas enviadas, una por cada una de las organizaciones juveniles de la zona, al Consejo Nacional de Política Pública de la Persona Joven.
+Los miembros de la Junta Directiva, serán juramentados por el Ministro de Cultura, Juventud y Deportes, y durarán en sus funciones por un período de dos años, pudiendo ser reelectos.
+Las vacantes por sustitución de alguno de los miembros, serán ocupadas por el sustituto hasta la terminación del período de quien es sustituido.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 24667 del 18 de setiembre de 1995)
