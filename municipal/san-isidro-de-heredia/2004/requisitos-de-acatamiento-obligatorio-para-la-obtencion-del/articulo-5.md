@@ -1,0 +1,1 @@
+5º—Cada máquina que se autorice deberá tener en un lugar visible el respectivo permiso de funcionamiento rotulado con el nombre de la Empresa y de la leyenda "Prohibido para menores de 18 años", todo en la parte frontal de la máquina y de forma bien visible.

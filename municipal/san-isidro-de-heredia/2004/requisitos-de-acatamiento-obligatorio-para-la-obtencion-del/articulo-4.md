@@ -1,0 +1,1 @@
+4º—Horarios. De lunes a viernes de las 16:00 a las 22:00 horas; sábados, domingos y feriados de las 13:00 a las 23:00 horas. Autorizado el uso de las máquinas únicamente a personas mayores de 18 años, según Ley de Juegos Nº 1387 del 21 de noviembre de 1951 y Reglamento de Juegos Decreto Ejecutivo 3510-G del 24 de enero de 1974.
