@@ -1,0 +1,1 @@
+Artículo 6º—El solicitante u organizador deberán presentar solicitud formal ante las instituciones competentes. La autorización definitiva será extendida por la Municipalidad correspondiente, con base en las certificaciones, los criterios y disposiciones técnicas de las Instituciones que conforman el Comité Asesor.

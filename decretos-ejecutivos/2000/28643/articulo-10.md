@@ -1,0 +1,1 @@
+Artículo 10.—La actividad o evento que no cumpla con las disposiciones técnicas de las instituciones, podrá ser suspendido en cualquier momento, al amparo de lo dispuesto por la Ley General de Salud, las Ordenanzas Municipales y la Ley de Tránsito.

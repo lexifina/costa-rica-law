@@ -1,0 +1,1 @@
+Artículo 9º—La solicitud inicial para la autorización del evento debe ser presentada ante la Municipalidad correspondiente y las demás instituciones involucradas, por lo menos veintidós días naturales antes de la fecha programada para el mismo.
