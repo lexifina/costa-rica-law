@@ -1,0 +1,2 @@
+Artículo 22.- La Junta Administrativa del Registro Nacional, a fin de indemnizar por cualquier perjuicio que se cause a los usuarios del Registro Nacional, en la tramitación de documentos, deberá adquirir los seguros que considere convenientes. Para ello, efectuará los trámites pertinentes ante el Instituto Nacional de Seguros.
+(Así adicionado por el artículo 2° de la ley N° 6934 del 28 de noviembre de 1983)
