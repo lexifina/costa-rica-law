@@ -1,1 +1,2 @@
-Artículo 86.- Las deportaciones efectuadas serán comunicadas a la mayor brevedad a los puestos migratorios nacionales, al Centro de Cómputo del Ministerio de Seguridad Pública y a los Agentes de Migración en el Exterior.
+Artículo 86.—El extranjero a quien se le confiera la calidad de residente temporal, tendrá derecho de residir en el territorio nacional por el plazo de un ano prorrogable por períodos iguales, a solicitud del interesado y previo cumplimiento de los requisitos establecidos, o que se establecieren para cada una de las subcategorías comprendidas en esta.
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 73 al 86)

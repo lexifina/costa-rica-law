@@ -1,1 +1,2 @@
-Artículo 46.- Todos los documentos exigidos deberán venir debidamente autenticados por la autoridad consular costarricense respectiva y los documentos que no hubiesen sido emitidos en español, deberán aportar la correspondiente traducción a este idioma.
+Artículo 46.—Las visas múltiples podrán ser canceladas por la Dirección General en caso de que se incumplan las condiciones bajo las cuales fue otorgada o la legislación nacional vigente.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 30300 del 19 de maezo de 2002)

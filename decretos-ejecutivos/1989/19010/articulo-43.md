@@ -1,8 +1,2 @@
-CAPITULO QUINTO
-Documentos de viaje a extranjeros
-Artículo 43.- Los extranjeros que requieran salir del país y no tengan representante acreditado en la República o que por cualquier otro motivo justificable no pudiesen obtener un pasaporte de su país de origen, podrán solicitar que se les expida un documento de viaje debiendo cumplir con los siguientes requisitos:
-a) Solicitud autenticada por abogado en papel sellado, dirigida a la Dirección General.
-b) Certificación de delincuencia.
-c) Cuatro fotos de frente, tamaño pasaporte de fecha reciente.
-d) Fecha y lugar de nacimiento, nombre y calidades de los padres, estado civil, sexo, profesión u oficio.
-e) Los demás que indique el Director.
+Artículo 43.—En caso de que se autorizara la visa múltiple la Dirección General ordenará que se haga constar en el pasaporte del extranjero, y remitirá para esos efectos la comunicación respectiva a los Agentes de Migración en el Exterior, por cualquier medio idóneo.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 30300 del 19 de marzo de 2002)

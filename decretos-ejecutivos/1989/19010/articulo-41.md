@@ -1,2 +1,2 @@
-Artículo 41.- La Dirección General podrá eliminar, restringir, o condicionar en tránsito vecinal fronterizo cuando existan motivos suficientes para ello. Las oficinas de Migración destacadas en la frontera llevarán un registro de las personas que ingresen al territorio nacional con el permiso vecinal fronterizo.
-El permiso vecinal fronterizo tendrá una validez máxima de cuarenta y ocho horas.
+Artículo 41.—La presentación de los requisitos establecidos en este reglamento no garantiza el otorgamiento de la visa múltiple, lo cual será prerrogativa discrecional del Director General.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 30300 del 19 de marzo de 2002)

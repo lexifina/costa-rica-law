@@ -1,1 +1,2 @@
-Artículo 47.- Cuando la solicitud de residencia tenga asimismo por finalidad, el desempeño de funciones laborales, deberá venir acompañada de carta o documento expedido por la empresa contratante, en la cual indique las labores a desempeñar y duración del contrato y salario.
+Artículo 47.—La denegatoria de la solicitud de visa múltiple no tendrá recurso alguno.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 30300 del 19 de marzo de 2002)

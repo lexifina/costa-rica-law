@@ -1,3 +1,2 @@
-CAPITULO TERCERO
-De la expulsión
-Artículo 87.- Para los trámites de expulsión se aplicará el procedimiento establecido en el capítulo tercero, título octavo de la ley.
+Artículo 87.—La permanencia en el país de los no residentes será el plazo indicado en la visa correspondiente que en ningún caso podrá ser mayor de treinta días, salvo que por convenio o acuerdo internacional tuviese derecho a un plazo mayor. No obstante lo anterior, si el interesado deseare permanecer por más tiempo en el país deberá solicitarlo por escrito debidamente autenticado por abogado a la Dirección General, indicando sus razones o motivos. La denegatoria de la prórroga no tendrá ulterior recurso.
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 74 al 87)

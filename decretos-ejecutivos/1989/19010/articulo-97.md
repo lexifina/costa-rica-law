@@ -1,0 +1,2 @@
+Artículo 97.- En el pasaporte del extranjero que fuere deportado se estampará un sello de visa de salida, con tinta roja, con plazo máximo de dos días y con inclusión expresa de la palabra "deportado", e indicación de la prohibición de reingresar al país en el término de diez años.
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 84 al 97)

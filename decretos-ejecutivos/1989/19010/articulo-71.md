@@ -1,3 +1,2 @@
-CAPITULO QUINTO
-De los plazos de permanencia en el país
-Artículo 71.—La visa otorgada en calidad provisional de inmigrante, residente permanente o residente temporal, confiere al extranjero un derecho de permanencia en el país de treinta días naturales a partir de su ingreso. Dicho plazo podrá ser prorrogado hasta un máximo de noventa días. La Dirección General o el Consejo según corresponda, resolverán la respectiva solicitud y conferirán la categoría migratoria correspondiente.
+Artículo 71.- Satisfechos los requisitos exigidos en el artículo anterior, la Dirección General autorizará el ingreso al país, comunicándolo al correspondiente Agente Migratorio en el Exterior, a fin de que emita las visas correspondientes.
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 58 al 71)

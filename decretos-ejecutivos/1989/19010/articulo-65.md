@@ -1,1 +1,2 @@
-Artículo 65.- Los que tuvieren la categoría de residentes permanentes, podrán variarla cuando adquieran la nacionalidad costarricense de conformidad con lo que establece la Constitución Política y las leyes.
+Artículo 65.- La solicitud para obtener la condición de residente permanente como pensionado o rentista, deberá presentarse ante el Instituto Costarricense de Turismo, cumpliendo los requisitos establecidos por la ley número 4812 de 28 de julio de 1971 y su reglamento. La aprobación final del status corresponde a la Dirección General de Migración, quien a su vez podrá cancelarla de acuerdo con la ley.
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 52 al 65)

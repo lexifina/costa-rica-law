@@ -1,4 +1,2 @@
-Artículo 38.- Para obtener un nuevo pasaporte por pérdida, robo o hurto del original, se deberá cumplir con lo siguiente:
-a) Presentar copia certificada de la autoridad judicial competente en donde conste la denuncia efectuada por el titular.
-b) Los requisitos exigidos en el artículo 36 anterior.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 26634 del 9 de enero de 1998)
+Artículo 38.—Las visas múltiples podrán ser solicitadas personalmente por los extranjeros que pretenden ingresar al país, por un tercero con poder especial debidamente otorgado al efecto, o por una empresa de comercio nacional o internacional interesada, ya sea ante los agentes de migración de Costa Rica en el exterior, o ante la Dirección General.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 30300 del 19 de marzo de 2002)

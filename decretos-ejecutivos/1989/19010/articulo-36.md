@@ -1,7 +1,2 @@
-Artículo 36.- Para obtener pasaporte se debe cumplir con los siguientes requisitos:
-a)Presentar cédula de identidad vigente.
-b)En caso de menores de edad certificación de nacimiento.
-c)Impresión de huellas digitales, salvo los menores de diez años.
-d)Pago de los derechos correspondientes.
-e)Los demás que señale el Director.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 26634 del 9 de enero de 1998)
+Artículo 36.—La visa múltiple otorgará la posibilidad de ingresar al territorio nacional en todas las ocasiones que el beneficiario lo requiera durante el período de su vigencia. Sin embargo, el plazo de permanencia que dará derecho esta visa estará sujeto a las "Directrices Generales de Visas de Ingreso para No Residentes" que establezca la Dirección General, según la nacionalidad del extranjero.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 30300 del 19 de marzo de 2002)

@@ -1,2 +1,2 @@
-Artículo 50.- La solicitud para obtener la categoría de residente inversionista, deberá presentarse ante el Consejo Nacional, cumpliendo con los requisitos establecidos en los artículos precedentes.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 26634 del 9 de enero de 1998)
+Artículo 50.- Para revalidar el pasaporte el interesado deberá aportar a la Dirección General, la cédula de identidad vigente el pasaporte y cancelar los derechos de ley.
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 37 al 50)

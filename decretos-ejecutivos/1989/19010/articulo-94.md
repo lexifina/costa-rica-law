@@ -1,3 +1,2 @@
-Artículo 94.- Este reglamento rige a partir de su publicación.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 29964 del 5 de noviembre de 2001, que lo traspaso del antiguo artículo 89 al 94)
-Dado en la Presidencia de la República.-San José, a los once días el mes de mayo de mil novecientos ochenta y nueve.
+Artículo 94.- Dictada la resolución que ordena la deportación. Si esta estuviere entre los caso apelables se procederá conforme lo disponen los artículos 107 y siguientes de la ley.
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 81 al 94)

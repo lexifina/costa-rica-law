@@ -1,2 +1,8 @@
-Artículo 49.- Los requisitos establecidos en el artículo anterior, deberán ser satisfechos por los interesados dentro del plazo de treinta días a partir del ingreso al país. En casos muy calificados y a juicio del Consejo Nacional, este podrá se ampliado prudencialmente.
-Una vez completado el expediente, el Consejo Nacional contará con cuarenta y cinco días naturales para resolver las solicitudes.
+Artículo 49.- Para obtener pasaporte se debe cumplir con los siguientes requisitos:
+a)Presentar cédula de identidad vigente.
+b)En caso de menores de edad certificación de nacimiento.
+c)Impresión de huellas digitales, salvo los menores de diez años.
+d)Pago de los derechos correspondientes.
+e)Los demás que señale el Director.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 26634 del 9 de enero de 1998)
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 36 al 49)

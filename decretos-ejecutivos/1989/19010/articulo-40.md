@@ -1,3 +1,9 @@
-CAPITULO CUARTO
-De los pases o tarjetas locales
-Artículo 40.- El tránsito vecinal fronterizo deberá efectuarse por lo puestos habilitados al efecto y quien ingresare no podrá ir más lejos del lugar autorizado por la Autoridad Migratoria.
+Artículo 40.—La Dirección General de Migración y Extranjería, en el conocimiento de la petición, podrá solicitar requisitos adicionales, con el objeto de garantizar el ingreso del extranjero a favor de quien se pide la visa según las condiciones propias de la subcategoría migratoria solicitada, así como su egreso del país inmediatamente vencido el plazo de permanencia autorizado. Para estos efectos la Dirección General de Migración podrá solicitar:
+1. Documentación idónea emitida en el país de origen o residencia habitual del extranjero a favor de quien se pretende la visa, que demuestre su relación con sociedades o empresas reconocidas.
+2. Depósito de garantía en una cuenta a nombre de la Dirección General cuyo monto no podrá ser menor que el valor de un tiquete aéreo al país de origen o residencia habitual del extranjero a favor de quien se solicita la visa.
+3. Entrevista con el agente de migración costarricense competente cuyo contenido será determinado de manera casuística por la Dirección General.
+4. Personería jurídica, estados financieros y/o información de la constitución legal de la empresa que se ha señalado como contacto comercial.
+5. Documentación que demuestre los contactos comerciales dentro o fuera del país, de la empresa interesada en el ingreso del extranjero.
+6. Constancia de inscripción en la cámara de comercio local o internacional.
+7. Todos los demás que en el conocimiento de la petición requiera la Dirección General de Migración y Extranjería. Si los documentos indicados en los incisos anteriores son emitidos en el exterior, deberán presentarse debidamente legalizados, entendiéndose por dicho término la constancia por parte del cónsul de Costa Rica en el país donde se emite el documento de que las firmas estampadas en ellos son ciertas, así como la constancia del Ministerio de Relaciones Exteriores y Culto de Costa Rica de que la firma del cónsul es cierta.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 30300 del 19 de marzo de 2002)

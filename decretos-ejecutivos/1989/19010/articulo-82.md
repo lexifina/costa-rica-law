@@ -1,1 +1,9 @@
-Artículo 82.- El funcionario Jefe de la Policía de Migración, de previo a ejecutarse la orden de deportación definitivamente firme, realizará las comunicaciones pertinentes con la Autoridad Migratoria o de Policía del país hacia el cual será enviado el extranjero deportado, con el fin de asegurarse que el sujeto no será devuelto a Costa Rica. No se efectuará la deportación del extranjero a un país donde le pudiere ser aplicada la pena de muerte o donde su vida corriere inminente peligro.
+CAPITULO CUARTO
+De la renovación de cédulas
+Artículo 82.—Los residentes permanentes deberán renovar su cédula de residencia anualmente, dentro de los siguientes treinta días a su vencimiento, para lo cual la Dirección valorará los siguientes documentos:
+a) Documento que acredite su actual condición.
+b) Certificado de antecedentes penales.
+c) Timbres de ley.
+Los inversionistas: Estados financieros auditados por contador público autorizado. Estar al día en el pago de los impuestos nacionales.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 26634 del 9 de enero de 1998)
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 69 al 82)

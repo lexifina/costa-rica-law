@@ -1,8 +1,5 @@
-CAPITULO SEXTO
-De los salvoconductos y documentos de identidad y viaje
-Artículo 44.- El salvoconducto y el documento de identidad y viaje, individual tendrá validez de seis meses. El salvoconducto colectivo tendrá validez por sesenta días. Para obtener el salvoconducto o el documento de identidad y viaje, los nacionales deberán cumplir con los siguientes requisitos.
-a) Solicitud en papel sellado dirigida al Director debidamente autenticada por un abogado, e indicando las razones de la urgencia o necesidad.
-b) Cédula de identidad vigente.
-c) Cuatro fotografías de frente, tamaño pasaporte de fecha reciente.
-d) Cancelar los derechos que indica la ley.
-e) Los demás que señale el Director.
+Artículo 44.—Para ingresar al territorio nacional el beneficiario de una visa múltiple deberá presentar al momento del respectivo control migratorio:
+a) Pasaporte o documento de viaje vigente con fecha de vencimiento no menor a los seis meses.
+b) Tiquete, boleto o pasaje de regreso o de continuación de viaje en el mismo medio en el que ingresa, sea éste aéreo, marítimo o terrestre.
+c) Comprobante de los medios económicos para su subsistencia durante su permanencia en el país, con un mínimo equivalente a quinientos dólares moneda de los Estado Unidos de América.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 30300 del 19 de marzo de 2002)

@@ -1,2 +1,3 @@
-Artículo 92.—En el pasaporte del extranjero cuya permanencia haya sido cancelada se estampará un sello de visa de salida, con tinta roja con indicación de la conminación ordenada y la prohibición de reingresar al país en el término de cinco años.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 29964 del 5 de noviembre de 2001)
+Artículo 92.- De toda deportación se levantará un expediente administrativo en el cual se recogerán todos los documentos atinentes al caso y se dejará constancia de las diligencias efectuadas; tales como investigaciones, inspecciones oculares, interrogatorios, declaraciones de testigos, de la denuncia cuando se hubiese realizado personalmente, etc.
+Asimismo se recogerán dentro del expediente los informes de otras autoridades de policía nacionales o extranjeras y la correspondencia cursada en el asunto. Se dejará clara identificación del sujeto.
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 79 al 92)

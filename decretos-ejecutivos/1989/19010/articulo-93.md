@@ -1,4 +1,3 @@
-TITULO QUINTO
-Disposiciones finales
-Artículo 93.- El presente reglamento deja sin efecto el Reglamento General de Visas, número doce mil novecientos tres-S, de cuatro de agosto de mil novecientos ochenta y uno, y cualesquiera otra disposición o acuerdo de igual o inferior rango, que se le opongan.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 29964 del 5 de noviembre de 2001, que lo traspaso del antiguo artículo 88 al 93)
+Artículo 93.- Cuando se hubiere completado el expediente con toda la documentación y se hubieren practicado las diligencias necesarias, el legajo pasará a la Asesoría Legal de Migración para su estudio e informe a la Dirección General de Migración.
+Si la Asesoría Legal, encontrare que la tramitación está correcta y que la deportación es legalmente procedente preparará la resolución en la cual se ordena la misma. El Director General, si encontrare todo de conformidad con la ley, autorizará con su firma la deportación.
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 80 al 93)

@@ -1,1 +1,3 @@
-Artículo 55.- En el caso de las personas de especial relevancia en el ámbito científico, profesional, público, cultural, económico o político, deberán demostrar fehacientemente la existencia de la invitación a visitar Costa Rica, emanada de los Poderes del Estado o Instituciones Públicas o Privadas.
+Artículo 55.- Para obtener el permiso vecinal fronterizo el interesado deberá comprobar debidamente que es residente de las zonas limítrofes, mediante presentación de cédula de identidad o cualquier otro documento de identificación, otorgado por las autoridades competentes de los países limítrofes.
+El pase o tarjeta local deberá consignar necesariamente el nombre y apellidos, número del documento de identidad de su país, fecha de otorgamiento y de vencimiento, lugar de destino, firma y sello del funcionario de migración.
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 42 al 55)

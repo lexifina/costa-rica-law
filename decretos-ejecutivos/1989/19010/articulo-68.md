@@ -1,1 +1,2 @@
-Artículo 68.- A los efectos de otorgar el cambio de categoría, la Dirección General tomará en consideración las actividades desarrolladas y los vínculos familiares establecidos durante su permanencia en el país.
+Artículo 68.- En el caso de las personas de especial relevancia en el ámbito científico, profesional, público, cultural, económico o político, deberán demostrar fehacientemente la existencia de la invitación a visitar Costa Rica, emanada de los Poderes del Estado o Instituciones Públicas o Privadas.
+(Así corrida su numeración por el artículo 5° del decreto ejecutivo N° 30300 del 19 de marzo de 2002, que lo traspaso del antiguo artículo 55 al 68)

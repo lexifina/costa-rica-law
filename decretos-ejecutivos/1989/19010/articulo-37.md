@@ -1,1 +1,2 @@
-Artículo 37.- Para revalidar el pasaporte el interesado deberá aportar a la Dirección General, la cédula de identidad vigente el pasaporte y cancelar los derechos de ley.
+Artículo 37.—La Dirección General determinará en cada caso la vigencia de las visas múltiples que otorgue, que en ningún caso podrá exceder de cinco años.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 30300 del 19 de marzo de 2002)
