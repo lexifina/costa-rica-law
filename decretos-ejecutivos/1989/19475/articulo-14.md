@@ -1,1 +1,0 @@
-Artículo 14.-Le corresponderá al Comité Técnico de Población apoyar las labores de la Secretaria Técnica de Población concretamente la coordinación del proceso de programación entre las distintas instituciones involucradas en las actividades de población las cuales colaboran con el CONAPOPO.
