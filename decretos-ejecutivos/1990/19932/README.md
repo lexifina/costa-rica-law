@@ -14,3 +14,4 @@ Reglamento de Inscripción de Asociaciones en el Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-10-04 | la propia norma |
+| 2 | 1998-02-18 | Decreto Ejecutivo 26771 (1998-02-18) |
