@@ -1,0 +1,6 @@
+ANEXO "B"
+Responsabilidades del Gobierno de Canadá
+I. Canadá financiará los siguientes gastos basados en las tarifas autorizadas en sus regulaciones: a. Gastos relacionados con el personal canadiense:
+1. Sus salarios, honorarios, viáticos y otros beneficios. 2. Sus gastos de viajes, entre sus lugares habituales de residencia y el puerto de entrada y salida de Costa Rica. 3. Los costos de envío, entre sus lugares habituales de residencia y el puerto de entrada y salida de Costa Rica, de artículos personales, del material técnico y profesional requerido por este personal canadiense para la ejecución de sus tareas. b. Gastos relacionados con el suministro de bienes canadienses. II. Los contratos para la compra de bienes suministrados por Canadá o de servicios canadienses financiados por Canadá y requeridos para la implementación del Proyecto deberán de estar firmados por Canadá o una de sus agencias.
+III. Canadá proporcionará a Costa Rica en tiempo y forma, los nombres del personal canadiense que gozará de los derechos y privilegios establecidos en el Memorando de Entendimiento. c. Gastos relacionados con el personal costarricense participante en capacitación.
+IV. Canadá proveerá los costos de viaje, hospedaje y alimentación al personal costarricense que participe en seminarios y/o talleres.

@@ -1,0 +1,9 @@
+ANEXO "C"
+Responsabilidades del Gobierno de Costa Rica
+I. Costa Rica deberá proveer o pagar por lo siguiente:
+1. La contratación y selección de contrapartes para el Proyecto cuando sea necesario.
+2. Cualquier asistencia oficial que pueda requerirse con el propósito de facilitar los viajes del personal canadiense en el desempeño de sus funciones en Costa Rica.
+3. Cualquier asistencia oficial que pueda requerirse con el propósito de acelerar el despacho de aduana de equipos, productos, materiales, suministros y otros bienes requeridos para la ejecución del Proyecto.
+4. El almacenamiento de los artículos mencionados en el párrafo 3 descrito anteriormente, durante el periodo que se encuentren en aduana y cualquier otra medida necesaria para proteger estos artículos de la intemperie, pérdida, fuego o cualquier otro peligro.
+5. Todos los permisos, licencias, documentos, incluyendo los costos de éstos, que sean necesarios para habilitar a las empresas canadienses y al personal canadiense para realizar sus funciones en Costa Rica.
+6. Todas las visas necesarias y todos los permisos de importación y exportación para el personal canadiense, como sea el caso, para equipos, materiales, suministros o bienes que sean requeridos para la ejecución del Proyecto, el equipo profesional y técnico, y los artículos personales del personal canadiense. 7. Permisos del Ministerio o Ministerios correspondientes, de acuerdo con la ley y las regulaciones pertinentes, para utilizar todos los medios de comunicación, teléfono, redes de telégrafo, dependiendo de las necesidades del Proyecto; reportes, registros, mapas, estadísticas y otra información relacionada con el Proyecto y que pueda asistir al personal canadiense en el desempeño de sus funciones, que no estén clasificadas y no estén relacionadas con la seguridad nacional.
