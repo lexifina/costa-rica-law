@@ -14,3 +14,4 @@ Reglamento del Mercado Libre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-24 | la propia norma |
+| 2 | 2000-10-09 | Reglamento municipal 41 (2000-10-09) |
