@@ -1,0 +1,1 @@
+Artículo 11.- Sólo por ley podrán ser alterados los límites de los cantones. Las discusiones que puedan haber en la actualidad entre los cantones, respecto a sus límites, sólo podrán ser resueltas por una ley, en la forma que indica el artículo siguiente.

@@ -1,0 +1,6 @@
+Artículo 12.- Las municipalidades respectivas manifestarán dentro de seis meses del planteamiento de una controversia, al Gobernador de su provincia, cuáles son los límites que reconoce o pretende el cantón.
+El Gobernador de la provincia, junto con los informes a que se refiere el párrafo anterior, pasará dentro de un año a más tardar, al Ministerio de Gobernación, nota de los límites que reclama cada cantón de su jurisdicción y le manifestará su criterio acerca de ellos.
+Si hubiere desconformidad en las líneas pretendidas por cantones confinantes, el Ministerior de Gobernación someterá el caso a estudio de la Comisión Nacional de División Territorial Administrativa.
+El Ministro de Gobernación presentará a la Asamble Legislativa una exposición sobre cada caso, con base en el estudio de la Comisión Nacional de División Territorial, y un proyecto de ley, en el cual propondrá la línea que, a juicio de dicha Comisión, fuere más equitativa o conveniente.
+Los límites de provincias o de otros cantones que hayan sido fijados por ley, deberán respetarse, tanto por el Poder Ejecutivo, como por la Comisión.
+La Asamblea Legislativa, con vista de todos los atestados y resoluciones anteriores, señalará definitivamente la línea divisoria de los cantones.

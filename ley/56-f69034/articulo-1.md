@@ -1,4 +1,6 @@
+(Derogado)
 N° 56
+(Esta norma fue derogada por el artículo 16 de la Ley sobre División Territorial Administrativa, N° 4366 del 5 agosto de 1969)
 El Congreso Constitucional de la República de Costa Rica
 Decreta
 La siguiente ley sobre división territorial municipal:

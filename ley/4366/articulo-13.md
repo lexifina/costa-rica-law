@@ -1,0 +1,2 @@
+Artículo 13.- Los interesados en la cración de un nuevo cantón deberán presentar a la Asamblea Legislativa, prueba de que el territorio que ha de constituirlo, se ajusta a lo que indica el artículo 9º y que el resto del cantón por desmembrar, reune también esas condiciones. Deberán indicar, además con toda precisión, el perímetro del cantón, acompañando el mapa respectivo.
+La Asamblea Legislativa oirá al Poder Ejecutivo acerca de la conveniencia de la creación, el cual se pronunicará previo informe de la Comisión Nacional Territorial Administrativa.
