@@ -1,1 +1,0 @@
-Artículo 2º.-La Comisión se reunirá por lo menos una vez por semana en las instalaciones de la Oficina para Refugiados de la Dirección General de Migración, a la cual le corresponderá brindar el respaldo administrativo necesario que demande la ejecución de las tareas encomendadas a la Comisión.

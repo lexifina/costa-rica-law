@@ -1,6 +1,0 @@
-Artículo 7º.-El refugiado interesado en obtener un permiso de trabajo o el ACNUR como coadyuvante del mismo, presentará su respectiva solicitud ante la Oficina para Refugiados de la Dirección General de Migración y Extranjería a efecto de que ésta proceda a la apertura de un expediente que contendrá:
-1) La solicitud formada por el petente y por el ACNUR cuando éste actúe como coadyuvante; ambas firmas autenticadas por un abogado.
-2) El contrato de trabajo, o en su defecto carta del patrono donde se indique oferta de salario, horario de trabajo, función a desempeñar, lugar de trabajo y tiempo que ha de trabajar el refugiado.
-3) En caso de que el trabajo se llegare a realizar en empresas establecidas, deberá adjuntarse la personería jurídica y una copia de su cédula jurídica.
-La Comisión Mixta podrá solicitar a la Caja Costarricense de Seguro Social, una constancia que indique el número de trabajadores nacionales y extranjeros, así como el monto total de los salarios que percibe cada grupo en la empresa.
-Conformando el expediente, la Oficina para Refugiados de la Dirección General de Migración y Extranjería, lo elevará a conocimiento de la Comisión Mixta para que resuelva la solicitud.
