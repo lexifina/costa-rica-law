@@ -1,2 +1,0 @@
-Artículo 3º.- De la suma que Alcoa pagará anualmente, de acuerdo con el párrafo tercero de la Cláusula XIV del Contrato, corresponderán durante su vigencia el 50% a la Junta de Protección Social de Pérez Zeledón y el otro 50% a la Universidad de Costa Rica para la creación y el financiamiento de una escuela de geología.
-El Banco Central girará dichas sumas, directamente, a las referidas instituciones.
