@@ -1,1 +1,0 @@
-IV. Para la convocatoria de noviembre de 1995 el plazo para que los postulantes formalicen su solicitud, según lo establecido en los artículos 8 y 9 de este Reglamento, vencerá el último día hábil del mes de abril de 1995.

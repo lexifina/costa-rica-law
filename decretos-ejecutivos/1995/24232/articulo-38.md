@@ -1,1 +1,0 @@
-Artículo 38. De conformidad con lo dispuesto en los artículos 8 y 9 anteriores, el Director de la Institución velará por la oportuna solicitud que, como postulantes, deben hacer los alumnos del último año de la Educación Diversificada, así como por la oportuna selección de la ciencia y del idioma extranjero.

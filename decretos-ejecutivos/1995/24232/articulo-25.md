@@ -1,1 +1,0 @@
-Artículo 25. El Delegado Ejecutivo será el encargado de vigilar y asegurar que los exámenes se ejecuten conforme a las normas técnicas y mediante los procedimientos establecidos para su validez y confiabilidad.

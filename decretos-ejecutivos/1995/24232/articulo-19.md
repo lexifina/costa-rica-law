@@ -1,2 +1,0 @@
-Artículo 19.- La segunda convocatoria se realizará en las fechas que al efecto defina el Ministerio de Educación Pública, de acuerdo con la conveniencia de los diversos ciclos lectivos tanto del sistema formal regular, sistemas abiertos y de las universidades. En esta convocatoria sólo podrán postularse quienes tuviesen que presentar los exámenes por segunda vez, por haber improbado en la ocasión anterior.
-(Así reformado mediante el artículo 1° del Decreto Ejecutivo No. 25229, del 18 de junio de 1996.)

@@ -1,2 +1,0 @@
-Artículo 42.- Si con anterioridad a la administración de los exámenes finales el Delegado Ejecutivo o Delegado Auxiliar tuviere conocimientos de indicios que hagan presumir el intento de consumar un fraude que afecte en forma general su validez, suspenderá la administración del examen y establecerá comunicación, por la vía más rápida, con las autoridades del Ministerio y actuará conforme con las instrucciones que al efecto se le den.
-(Así reformado mediante el artículo 1° del Decreto Ejecutivo No. 25229, del 18 de junio de 1996.)

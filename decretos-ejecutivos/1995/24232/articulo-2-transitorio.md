@@ -1,1 +1,0 @@
-II. Los postulantes de la convocatoria a que se refiere el transitorio anterior, que improbaren una o varias disciplinas podrán acogerse a las previsiones contenidas en el artículo 16 de esta reglamentación.
