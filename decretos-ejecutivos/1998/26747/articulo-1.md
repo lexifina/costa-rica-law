@@ -1,6 +1,8 @@
+(Derogado)
 No 26747-MAG
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERÍA,
+(Norma derogada expresamente mediante artículo 9° de Decreto Ejecutivo N°30271 de 19 de marzo del 2002)
 En uso de las facultades que les confiere, el artículo 140, incisos 3) y 18) de la Constitución Política y la ley No 7064 del 29 de abril de 1987.
 Considerando:
 1°- Que las relaciones comerciales y las necesidades de garantizar el abastecimiento interno de alimentos y materias primas, obligan al país realizar esfuerzos por alcanzar la competitividad y una mayor capacidades aprovechamiento de las oportunidades de mercado.

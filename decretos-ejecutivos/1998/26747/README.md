@@ -14,3 +14,4 @@ Crea Programas Nacionales Sectoriales Adscritos a SEPSA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-17 | la propia norma |
+| 2 | 2002-03-19 | Decreto Ejecutivo 30271 (2002-03-19) |
