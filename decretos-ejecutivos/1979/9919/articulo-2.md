@@ -1,0 +1,1 @@
+Artículo 2°-La estimación de las dos fajas de terreno es de ¢68,461.00 (sesenta y ocho mil cuatrocientos sesenta y un colones) que corresponde al total de la suma a pagar de conformidad con el avalúo N° 0589, del Ministerio de Obras Públicas y Transportes.
