@@ -1,0 +1,1 @@
+Artículo 7º—El cobro por los trabajos que se realicen, se hará de acuerdo a los procedimientos establecidos por la Municipalidad, en caso de que el propietario se negara al pago, la deuda correspondiente se constituirá en hipoteca legal tal y como lo establece la Ley de Bienes Inmuebles y el Código Municipal

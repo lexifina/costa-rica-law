@@ -1,0 +1,1 @@
+Artículo 3º—La Municipalidad de Flores por medio del personal destacado para tal efecto notificará a los propietarios de lotes baldíos, ubicados en zonas urbanas o de aquellos otros lugares que se considere necesarios, para que los mantengan limpios.

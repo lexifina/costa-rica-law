@@ -1,0 +1,1 @@
+Artículo 5º—Si el propietario incumple con el trabajo solicitado, la Municipalidad podrá realizar dicho trabajo y procederá de inmediato al trámite de cobro, el costo por limpieza será de ¢20,00, el metro cuadrado. Dicho monto tendrá un incremento de un 15% cada año

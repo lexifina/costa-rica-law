@@ -1,0 +1,1 @@
+Artículo 8º—El presente reglamento se aplicará, también a quienes deban construir el cordón y caño y aceras en zonas urbanas ya sea por no existir o por estar en mal estado. Realizándose el mismo trámite legal en caso de cobro de servicio o trabajos realizados.
