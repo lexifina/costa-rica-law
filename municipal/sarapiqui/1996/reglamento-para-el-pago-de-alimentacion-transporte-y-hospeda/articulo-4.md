@@ -1,0 +1,1 @@
+Artículo 4°-Las sumas establecidas por el Reglamento de Gastos de Viaje y de Transporte para Funcionarios o Empleados del Estado. aprobado por la Contraloría General de la República, son asignaciones máximas, en consecuencia de la Municipalidad de Sarapiquí, se sujetará a dichas disposiciones.

@@ -1,0 +1,2 @@
+Artículo 6°-Los Regidores y Síndicos deberán hacer dentro de los siete días hábiles posteriormente al adelanto de los gastos de alimentación, transporte y hospedaje, la liquidación del adelanto. La falta de liquidación dará mérito para exigirle el reintegro de las sumas adelantadas.
+En ningún caso se autorizarán nuevamente gastos de transporte, alimentación y hospedaje a los Regidores y Síndicos que tuviera pendiente liquidación de adelanto anterior.

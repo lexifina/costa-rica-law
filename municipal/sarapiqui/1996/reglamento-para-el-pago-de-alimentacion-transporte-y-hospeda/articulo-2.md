@@ -1,0 +1,1 @@
+Artículo 2°-Los gastos a que se refiere este Reglamento únicamente serán cubiertos aquellos Regidores y Síndicos que ejerzan el cargo en la Municipalidad de Sarapiquí. y en condiciones del artículo anterior.
