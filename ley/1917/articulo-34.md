@@ -1,0 +1,13 @@
+Artículo 34.- La Auditoría funcionará bajo la responsabilidad y
+dirección inmediata del Auditor, el cual será un Contador Público, quien
+será nombrado por la Junta Directiva con el voto favorable de no menos de
+cuatro de sus miembros. Para ser Auditor se requieren las mismas
+condiciones exigidas para ser miembro de la Junta Directiva. El Auditor
+será inamovible, salvo el caso de que, a juicio de la Junta y previa
+información, se demuestre que no cumple debidamente su cometido, quedando
+asimismo sujeto a las disposiciones que para los miembros de la Junta
+Directiva establecen los artículos 14 y 24 de la presente ley, en cuanto
+fueren aplicables, dada la naturaleza de su cargo y el origen de su
+nombramiento; debe igualmente sujetarse a lo dispuesto en el artículo 32,
+inciso h) de la presente ley. La remoción del Auditor sólo podrá acordarse
+con el mismo número de votos necesarios para su nombramiento.

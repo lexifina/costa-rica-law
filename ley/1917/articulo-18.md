@@ -1,0 +1,6 @@
+Artículo 18.- Los miembros electivos de la Junta serán designados
+para un período de cuatro años y pueden ser reelectos. Sus nombramientos
+se harán de manera que se renueven en sus puestos uno cada año. Los
+nombramientos de los miembros de la Junta que deban sustituir a los que
+hayan terminado su período, deberán hacerse dentro de los treinta días
+anteriores al vencimiento de tal período.

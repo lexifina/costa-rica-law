@@ -1,4 +1,5 @@
 N° 91
+(Esta norma fue derogada por el artículo 47 de la Ley Orgánica del Instituto Costarricense de Turismo (ICT), N° 1917 del 30 de julio de 1955)
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE
 COSTA RICA
 DECRETA:
