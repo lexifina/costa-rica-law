@@ -1,0 +1,1 @@
+Art. 11. En el caso del art. 7°, medido y calificado el terreno; y cuando el comprador hubiere satisfecho à los interesados los costos de medida y pagado ademas al tesoro de propios tres reales por cada manzana en calidad de derecho de título, la Municipalidad otorgara la venta.

@@ -1,0 +1,1 @@
+Art. 5. La Municipalidad con presencia de la relacion del Agrimensor y declaraciones de los tiradores de cuerda y testigos, calificarà el terreno atendiendo para ello no solo à sus cualidades en sí, sinó á su distancia de algun pueblo o punto que influya en su mayor á menor aprecio.
