@@ -1,0 +1,1 @@
+Artículo 2° Para fijar la Tasa de interés de dichos Títulos el Ministerio de Hacienda utilizará la tasa básica los puntos que considere necesario para adecuar el rendimiento de estos títulos a efecto de que resulte razonable y atractivo según los requerimientos del mercado.

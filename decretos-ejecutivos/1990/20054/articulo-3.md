@@ -1,0 +1,1 @@
+Artículo 3° Para cada plazo de los indicados en el artículo 1° el Ministerio de Hacienda agregará a la tasa básica los puntos que considere necesarios para adecuar el rendimiento de estos títulos a efecto de que resulte razonable y atractivo según los requerimientos del mercado.

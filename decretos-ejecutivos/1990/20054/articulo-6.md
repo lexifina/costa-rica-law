@@ -1,0 +1,1 @@
+Artículo 6°- Las variaciones en el margen que sobre la tasa básica establezca el Ministerio de Hacienda, solo afectarán a los títulos que bajo este sistema se emitan a partir de la fecha que se comunique cada variación.

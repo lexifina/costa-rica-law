@@ -1,0 +1,1 @@
+Artículo 5°- Mediante el mecanismo de comunicación de las tasas de intereses fijas, establecido en el decreto N° 15907-H del 17 de diciembre de 1984, el Ministerio de Hacienda informará sobre los puntos porcentuales que se adicionarán a la tasa básica para los plazos de 5, 10 y 15 años.
