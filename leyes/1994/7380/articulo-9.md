@@ -1,1 +1,0 @@
-Artículo 9°.—La Dirección Nacional de Seguridad Social del Ministerio de Trabajo y Seguridad Social, deberá llevar un registro general actualizado de las guarderías infantiles y de los hogares escuela existentes, en el cual se deberán incluir, tanto los públicos como los privados y los mixtos.
