@@ -59,41 +59,23 @@ b) (NOTA: Ver Observaciones de la ley)
 c) Un dos por ciento a la Caja Costarricense de Seguro Social, la
 que deberá recibir el respectivo monto en forma directa.
 (Así reformado por el artículo 14, numeral 4, de la Ley de
-Presupuesto No.7018 del 20 de diciembre de 1985)
-d) De un ochenta y tres por ciento (83%), la Junta de Protección
-Social de San José retendrá un sesenta y siete por ciento (67%) en
-beneficio del Hospital San Juan de Dios y del Asilo Nacional de Insanos
-(Chapuí); un tres por ciento (3%) en beneficio de la Asociación Hogar
-Manos de Jesús pro Atención del Anciano Abandonado de Guadalupe de Cartago
-y de la Casa Hogar Tía Tere, y distribuirá el treinta por ciento (30%)
-restante según lo indique la Dirección General de Asistencia, cuyo Consejo
-Técnico determinará las cuotas para cada institución beneficiada, de
-acuerdo con el número y costo de estancia diaria y la importancia médico-
-social de entre las siguientes instituciones de asistencia médica:
-Hospital de Alajuela.
-Hospital de Cartago.
-Hospital de Heredia.
-Hospital de Liberia.
-Hospital de Puntarenas.
-Junta de Protección Social de Limón.
-Sanatorio Carlos Durán, Cartago.
-Preventorio Roosevelt de Coronado.
-Instituto Costarricense contra el Cáncer.
-Cruz Roja Costarricense.
-(Así reformado los párrafos primero y segundo por el artículo 3º de
-la ley No.7851 de 24 de noviembre de 1998)
-Las cuotas respectivas una vez autorizadas por la Dirección General
-de Asistencia serán giradas a la orden de las instituciones
-correspondientes dentro de los diez primeros días de cada mes y sin ningún
-otro trámite, y una vez hechas las deducciones de las sumas que le adeuden
-al Almacén de la Junta de Protección Social de San José, de conformidad
-con el artículo 4º de la presente ley.
-Para los efectos de la presente ley se entenderá por costo de
-estancia, los gastos originados únicamente por los siguientes conceptos:
-1) Personal Técnico y Administrativo de la propia Institución de
-Asistencia Médica;
-2) Alimentación;
-3) Droga y Medicinas; y
-4) Ropería.
-(Así reformado por el artículo 1 de la ley No.1212 del 18 de octubre
-de 1950)
+Presupuesto No.7018 del 20 de diciembre de 1985
+d) De un ochenta y tres por ciento (83%), la Junta de Protección Social de San José retendrá el sesenta y siete por ciento (67%) en beneficio del Hospital San Juan de Dios y del Asilo Nacional de Insanos (Chapuí) y un tres por ciento (3%), en beneficio de la Asociación Hogar Manos de Jesús pro Atención del Anciano Abandonado, de Guadalupe de Cartago, y de la Casa Hogar Tía Tere. El treinta por ciento (30%) restante lo distribuirá según lo indique la Dirección General de Asistencia, cuyo Consejo Técnico determinará las cuotas para cada institución beneficiaría, de acuerdo con el número y costo de estancia diaria y la importancia médico-social, entre las siguientes instituciones de asistencia médica:
+Hospital de Alajuela
+Hospital de Cartago
+Hospital de Heredia
+Hospital de Liberia
+Hospital de Puntarenas
+Junta de Protección Social de Limón
+Asociación de Desarrollo Específico Clínica para Enfermos
+Alcohólicos (ADEPEA)
+Preventorio Rooseveit de Coronado
+Instituto Costarricense contra el Cáncer
+Cruz Roja Costarricense
+Una vez autorizadas por la Dirección General de Asistencia, las cuotas respectivas serán giradas a la orden de las instituciones correspondientes, dentro de los primeros diez días de cada mes, sin ningún otro trámite y una vez deducidas las sumas que le adeuden al Almacén de la Junta de Protección Social de San José, de conformidad con el artículo 4 de la presente Ley.
+Para los efectos de esta Ley, se entenderá por costo de estancia los gastos originados únicamente por los siguientes conceptos:
+1. Personal técnico y administrativo de la propia institución de asistencia médica.
+2. Alimentación.
+3. Drogas y medicinas.
+4. Ropería.
+(Así reformado el inciso d) por la Ley N° 8193 de 17 de diciembre del 2001)
