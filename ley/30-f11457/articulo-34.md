@@ -1,0 +1,1 @@
+Art. 34. Los exámenes de ingreso se anunciarán con treinta días por lo menos de anticipación, por medio de una convocatoria, en la cual deben designarse las condiciones que los presentados han de reunido según Reglamento.

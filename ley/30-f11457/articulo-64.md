@@ -1,0 +1,1 @@
+Art. 64.-Los hechos que no tuvieren el carácter de faltas académicas sino el de verdaderos delitos militares, penados especialmente en las Ordenanzas generales de la carrera, deben castigarse conforme á éstas.

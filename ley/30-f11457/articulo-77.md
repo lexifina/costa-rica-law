@@ -1,0 +1,1 @@
+Art. 77.-El alumno interno que se ausente del Establecimiento sin permiso de sus superiores sufrirá quince días de arresto correccional, si reincidiese en la falta dos veces más, ó no se presentare durante el término de ocho días contados desde la fecha de su desaparición, será dado de baja en la Escuela.
