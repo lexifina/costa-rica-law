@@ -14,3 +14,4 @@ Declara una Sección de la Carretera José Ma. Cañas de Acceso Restringido y ot
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-02-19 | la propia norma |
+| 2 | 1977-01-26 | Decreto Ejecutivo 6734 (1977-01-26) |
