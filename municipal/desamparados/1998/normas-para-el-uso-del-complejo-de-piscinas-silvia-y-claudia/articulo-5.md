@@ -1,0 +1,1 @@
+Artículo 5°—El responsable administrativo regulará la cantidad de personas que utilicen el complejo de piscinas con el fin de lograr el mejor desenvolvimiento de las actividades docentes, deportivas y recreativas.
