@@ -14,3 +14,4 @@ Reforma Arrendamiento Vehículos Turistas Nacionales y Extranjeros
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-21 | la propia norma |
+| 2 | 2000-08-21 | Ley 8 |
