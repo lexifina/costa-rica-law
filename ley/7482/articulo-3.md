@@ -1,0 +1,8 @@
+ARTICULO III
+Las Partes Contratantes, de conformidad con sus legislaciones
+internas, adoptarán medidas para controlar la difusión, publicación,
+publicidad, propaganda y distribución del material que contenga
+estímulos o mensajes subliminales, auditivos, impresos o audiovisuales
+que puedan favorecer el tráfico y el consumo de estupefacientes y de
+sustancias psicotrópicas, incluidos sus precursores y productos
+químicos.

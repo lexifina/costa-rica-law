@@ -1,0 +1,11 @@
+ARTICULO VIII
+Las Partes Contratantes, de conformidad con sus legislaciones
+internas, adoptarán las medidas necesarias y se prestarán asistencia
+técnica mutua, en el marco de sus posibilidades, para realizar pesquisas
+e investigaciones para prevenir y controlar la adquisición, posesión y
+transferencia de bienes producto del tráfico ilícito de estupefacientes
+y sustancias psicotrópicas y de sus materias primas, incluidos los
+precursores y los productos químicos utilizados en la fabricación y
+transformación de esas sustancias, así como también para localizar y
+asegurar dichos bienes. A la vez para elaborar programas educativos
+preventivos y de rehabilitación del farmacodependiente.
