@@ -1,0 +1,1 @@
+Artículo 9°—Sólo podrán incluirse en la programación, las solicitudes previamente formalizadas mediante el depósito del cien por ciento de la estimación del costo de la obra a realizar, de acuerdo a lo que para tal efecto establezca la Municipalidad.

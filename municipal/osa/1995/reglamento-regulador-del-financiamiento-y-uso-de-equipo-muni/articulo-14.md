@@ -1,0 +1,1 @@
+Articulo 14.—La unidad mínima de alquiler de equipo corresponderá a una jornada de nueve horas reloj y solo en casos muy calificados esta jornada podrá fragmentarse hasta en un veinticinco por ciento, enjuicio de la administración y siempre que esta división no cause trastornos en el Programa de trabajo global.

@@ -1,0 +1,1 @@
+Artículo 13.—La administración estará obligada a llevar una contabilidad de costos, para cada máquina así como para los equipos auxiliares y de apoyo, a fin de calcular los costos totales de operación y mantenimiento de cada una de ellas.

@@ -1,0 +1,1 @@
+Artículo 6°—La administración municipal tendrá a su cargo el diseño de los procedimientos y la organización para la formalización de los contratos, así como el control y la actualización de los mismos.

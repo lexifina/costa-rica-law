@@ -1,0 +1,1 @@
+Artículo 4°—En caso fortuito o de fuerza mayor, el Consejo podrá autorizar el uso de las maquinarias, extra programación. El costo de este uso, según lo que establece el presente Reglamento, se deberá cargar al presupuesto municipal en un renglón específico que para tal efecto creará la administración municipal.

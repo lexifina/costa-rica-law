@@ -1,0 +1,3 @@
+REGLAMENTO REGULADOR DEL FINANCIAMIENTO Y USO DE
+EQUIPO MUNICIPAL PARA OBRAS
+Artículo 1°—Se emite el presente Reglamento para el uso, asignación, financiamiento y programación de las maquinarias, propiedad de la Municipalidad de Osa. Se establece la responsabilidad, deberes y derechos de las partes que solicitan los servicios que brindan la Municipalidad , con el uso de las máquinas, así como los procedimientos a seguir en el área operativa que incluye; programación de obra, contratación, ejecución de obra, mantenimiento y operación de las maquinarias, cálculo de los costos y tarifas a cobrar, así como todos los otros procedimientos requeridos para la ejecución de un proyecto.

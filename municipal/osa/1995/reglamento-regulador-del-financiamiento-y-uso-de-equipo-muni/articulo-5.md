@@ -1,0 +1,1 @@
+Artículo 5°—La administración tendrá a su cargo la elaboración mensual del Programa de trabajo de las maquinarias y la presentación del mismo ante el Consejo para su aprobación, a más tardar la segunda semana de cada mes.

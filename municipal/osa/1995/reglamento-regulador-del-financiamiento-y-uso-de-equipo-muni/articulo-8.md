@@ -1,0 +1,1 @@
+Artículo 8°—una vez aprobada la solicitud, el ente solicitante deberá depositar el cien por ciento del costo estimado de la obra, a fin de incluir esta solicitud en el programa de trabajo y darle el carácter de solicitud formal. Estos fondos deberán estar en la Municipalidad con al menos quince días de antelación al inicio de las obras.

@@ -1,0 +1,1 @@
+Artículo 11.—En el caso en que el Consejo no aprueba, la inclusión de una solicitud, el ente contratante podrá replantearla, según los términos requeridos por el consejo. En el caso en que no se apruebe la solicitud, la Municipalidad devolverá el dinero recibido, sin compromiso alguno.

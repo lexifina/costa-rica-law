@@ -1,0 +1,1 @@
+Artículo 18-—En los casos en que las máquinas no estén realizando ningún contrato, se podrá atender de inmediato las solicitudes que ingresen siempre y cuando estén enmarcadas dentro de las políticas dictadas por el Consejo, sin que sea necesaria una aprobación previa de parte de éste.
