@@ -1,0 +1,2 @@
+Art. 2°-En consecuencia, la Asamblea electoral de la misma provincia procederá en su primera reunión á elegir el Diputado suplente que le corresponde.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los diez días del mes de junio de mil ochocientos ochenta y cuatro. -JN. M. CARAZO, Presidente. -JESÚS SOLANO, Secretario. -MAURO FERNÁNDEZ, Secretario-Palacio Presidencial.-San José, á diez de junio de mil ocho- cientos ochenta y cuatro.-Ejecútese.-P. FERNÁN- DEZ.-El Secretario de Estado en el Despacho de Gobernación.--BERNARDO SOTO,
