@@ -1,0 +1,1 @@
+2°—En virtud de que en las modificaciones existen razones de oportunidad y conveniencia para la emisión inmediata y con fundamento en el párrafo 2 del Artículo 361 de la Ley General de la Administración Pública, se prescinde del trámite de consulta.
