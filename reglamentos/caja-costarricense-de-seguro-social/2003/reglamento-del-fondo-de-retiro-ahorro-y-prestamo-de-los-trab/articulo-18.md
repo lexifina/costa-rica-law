@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la administración
+Artículo 18.—La implementación de las funciones administrativas del FRAP estarán a cargo de un órgano administrativo designado institucionalmente para tales efectos, en éste se integrarán las actividades propias del FRE y del FAP, las cuales estarán a cargo de un Director Ejecutivo designado por acuerdo de la Junta Administrativa del FRAP, mediante votación calificada de al menos dos terceras partes de sus miembros. El nombramiento del Director Ejecutivo será por un período de 3 años, deberá ser ratificado por acuerdo de Junta Directiva pudiendo ser reelecto en el cargo. Para el desempeño de sus funciones se le otorgará un poder general con límite de suma.
+El perfil de las funciones, requisitos y las condiciones del proceso de selección y contratación del Director Ejecutivo serán determinados por la Junta Administrativa del FRAP, vía instructivo.
