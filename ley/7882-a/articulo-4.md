@@ -1,26 +1,4 @@
-ARTÍCULO 4.- Con respecto al tratamiento de los bienes producidos
-bajo regímenes de zonas francas y los demás regímenes fiscales, se acuerda
-lo siguiente:
-1.- Todos los bienes de una Parte producidos bajo regímenes de zonas
-francas y de los demás regímenes fiscales y aduaneros especiales serán
-admitidos en el territorio de otra Parte, en condiciones no menos
-favorables que aquellas que se apliquen a los bienes de esa Parte
-producidos en sus propias zonas francas y demás regímenes fiscales y
-aduaneros especiales.
-2.- Para efectos del párrafo anterior, el formulario de Certificado de
-Origen establecido conforme a los artículos 4.20 y 4.21 del presente
-Tratado, además de los requisitos allí estipulados, deberá indicar si la
-mercancía exportada ha sido producida bajo estos regímenes. Los efectos
-jurídicos de incluir en el formulario de Certificado de Origen,
-información incorrecta o falsa con respecto a si una mercancía ha sido o
-no producida bajo tales regímenes, serán los mismos que aquellos
-aplicables a las situaciones en las que el Certificado de Origen contenga
-información incorrecta o falsa con respecto al origen de una mercancía
-determinada.
-3.- Anualmente a partir de la entrada en vigor del presente Tratado, el
-Consejo revisará y evaluará cualquier reforma a la normativa sobre zonas
-francas y de los demás regímenes fiscales y aduaneros especiales de cada
-Parte, así como la evolución del comercio de bienes producidos bajo estos
-regímenes que se desarrolle entre ellas, con el objeto de procurar el
-mejoramiento de las condiciones de acceso al mercado de las Partes de
-dichos bienes.
+ARTÍCULO 4.- Con respecto al tratamiento de los bienes producidos bajo regímenes de zonas francas y los demás regímenes fiscales, se acuerda lo siguiente:
+1.- Todos los bienes de una Parte producidos bajo regímenes de zonas francas y de los demás regímenes fiscales y aduaneros especiales serán admitidos en el territorio de otra Parte, en condiciones no menos favorables que aquellas que se apliquen a los bienes de esa Parte producidos en sus propias zonas francas y demás regímenes fiscales y aduaneros especiales.
+2.- Para efectos del párrafo anterior, el formulario de Certificado de Origen establecido conforme a los artículos 4.20 y 4.21 del presente Tratado, además de los requisitos allí estipulados, deberá indicar si la mercancía exportada ha sido producida bajo estos regímenes. Los efectos jurídicos de incluir en el formulario de Certificado de Origen, información incorrecta o falsa con respecto a si una mercancía ha sido o no producida bajo tales regímenes, serán los mismos que aquellos aplicables a las situaciones en las que el Certificado de Origen contenga información incorrecta o falsa con respecto al origen de una mercancía determinada.
+3.- Anualmente a partir de la entrada en vigor del presente Tratado, el Consejo revisará y evaluará cualquier reforma a la normativa sobre zonas francas y de los demás regímenes fiscales y aduaneros especiales de cada Parte, así como la evolución del comercio de bienes producidos bajo estos regímenes que se desarrolle entre ellas, con el objeto de procurar el mejoramiento de las condiciones de acceso al mercado de las Partes de dichos bienes.
