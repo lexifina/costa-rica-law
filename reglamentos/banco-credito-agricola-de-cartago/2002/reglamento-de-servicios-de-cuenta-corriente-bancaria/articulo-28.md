@@ -1,0 +1,2 @@
+Artículo 28.—El cliente está obligado, al momento de hacer retiro de sus libros de cheques del Banco, a revisar cuidadosamente cada uno y verificar la correcta cantidad de fórmulas por cada libro, así como su numeración consecutiva.
+Si el cliente detectara algún error, debe comunicarlo de inmediato al Banco; si no lo hiciere, el Banco quedará eximido de toda responsabilidad por los errores que el cliente no haya detectado, o por aquellos que no dio aviso.

@@ -1,0 +1,1 @@
+Artículo 11.—El cliente podrá, bajo su exclusiva responsabilidad, facultar que otra u otras personas sean autorizadas para el manejo de una cuenta determinada, de la cual es titular. En tal hipótesis y para dicho propósito, el cliente concurrirá ante el Banco conjuntamente con la persona o personas autorizadas para el debido registro de firmas y demás extremos necesarios.

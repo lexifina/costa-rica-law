@@ -1,0 +1,1 @@
+Artículo 12.—Las personas autorizadas por parte del titular de una cuenta corriente, únicamente podrán realizar depósitos o realizar retiro de fondos, pero en ninguna forma podrán solicitar o gestionar el cierre de la respectiva cuenta corriente, así como tampoco podrán acreditar a otras personas en calidad de autorizados.

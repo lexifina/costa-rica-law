@@ -1,0 +1,2 @@
+Artículo 39.—El Banco podrá cobrar cualquier saldo deudor a su favor por la vía ejecutiva, mediante certificación debidamente emitida por un Contador Público Autorizado, de cuyo contenido se impondrá al cliente para que haga las consideraciones u objeciones que estime pertinentes, todo ello dentro del quinto día posterior al de la fecha de comunicación.
+La falta de manifestación y concurrencia por parte del cliente dentro del plazo previsto, se imputará como una aceptación explícita del saldo deudor certificado, de conformidad con el artículo 611 del Código de Comercio.

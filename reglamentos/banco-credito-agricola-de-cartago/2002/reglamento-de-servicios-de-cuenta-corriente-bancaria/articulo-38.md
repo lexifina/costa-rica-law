@@ -1,0 +1,1 @@
+Artículo 38.—Cuando por cualquier causa se haya cerrado una cuenta corriente, el cliente está obligado a devolver los talonarios o las fórmulas de cheques sin usar, así como todos aquellos otros documentos que el Banco le haya entregado para el uso de la cuenta corriente, al momento de su apertura o en cualquier tiempo.

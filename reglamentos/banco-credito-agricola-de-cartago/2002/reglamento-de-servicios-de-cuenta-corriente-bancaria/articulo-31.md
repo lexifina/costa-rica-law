@@ -1,0 +1,1 @@
+Artículo 31.—El Banco y el cliente, de mutuo acuerdo, podrán establecer los mecanismos electrónicos que se consideren convenientes y apropiados para la verificación de firmas de cuentacorrentistas y de las personas autorizadas para girar contra la cuenta corriente de mérito.

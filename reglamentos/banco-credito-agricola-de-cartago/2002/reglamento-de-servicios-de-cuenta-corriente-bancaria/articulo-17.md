@@ -1,0 +1,2 @@
+Artículo 17.—El Banco está expresamente facultado para establecer contra toda cuenta corriente, los débitos de mérito por emisión de tarjetas de débito, cobro de comisiones, cobro de multas por giro de cheques con fondos insuficientes, gastos de administración y emisión de estados de cuenta corriente.
+Las tarifas por servicios serán revisadas y ajustadas periódicamente por el Banco, e incluidas en el cuadro de tarifas y comisiones respectivas.

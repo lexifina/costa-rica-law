@@ -1,0 +1,1 @@
+Artículo 8º—El cliente sólo podrá girar contra los fondos acreditados a la cuenta corriente o contra los créditos concedidos por el Banco, y este último está obligado a pagar a su presentación, los cheques del cliente que giren en debida forma. Con este propósito, el Banco debe mantener al día los registros correspondientes para facilitar el depósito y el giro de fondos.

@@ -1,0 +1,1 @@
+Artículo 13.—En caso de muerte del titular de la cuenta corriente, ninguna persona autorizada podrá hacer retiro de los saldos al momento del deceso y se reputarán como actuaciones ajenas a la relación contractual, las que efectúe el autorizado posteriormente al fallecimiento del cliente.

@@ -1,0 +1,2 @@
+Artículo 24.—El Banco emitirá, al menos cada tres meses, un estado de cuenta corriente que se distribuirá al cliente por los medios idóneos y según la última dirección o lugar señalado como vigente.
+El cliente está obligado a manifestar formalmente, su inconformidad o reparo al estado de cuenta corriente, dentro de los diez días hábiles posteriores al envío de su estado de cuenta corriente por parte del Banco, que se contabilizarán a partir del día siguiente, una vez transcurrido el plazo dicho en el artículo precedente.

@@ -1,0 +1,1 @@
+Artículo 20.—Todo cheque que se deposite en la cuenta corriente, aún cuando fuere al portador, debe ser endosado por el beneficiario y acompañarse con la leyenda o sello que indique que su valor es para depositar en la cuenta corriente de mérito.

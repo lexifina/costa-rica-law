@@ -1,0 +1,4 @@
+Artículo 34.—Toda contraorden de pago de cheques, debe ser dada por el cliente haciendo uso de los medios escritos adecuados y autorizados para dicho propósito, o bien directamente ante el Banco haciendo uso de las fórmulas emitidas con ese propósito.
+La contraorden de pago únicamente podrá realizarla el cliente titular de la cuenta corriente, o en su defecto, su representante legal con poder y capacidad suficiente para este acto. No se admitirá la contraorden de pago, por parte de personas autorizadas para girar contra la cuenta corriente.
+El Banco no tendrá responsabilidad alguna si al momento de recibo de la contraorden de pago, el cheque ya ha sido pagado.
+Para los propósitos de contraorden de pago, el cliente preferentemente se dirigirá a la oficina del Banco donde abrió la cuenta corriente, salvo que por razones especiales deba hacerlo cautelarmente en otra oficina.

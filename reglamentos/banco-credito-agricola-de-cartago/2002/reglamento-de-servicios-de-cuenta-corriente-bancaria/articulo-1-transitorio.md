@@ -1,0 +1,1 @@
+Transitorio I.—A partir del siguiente día de la publicación de este Reglamento, el Banco requerirá de sus clientes actuales la suscripción de un nuevo contrato de cuenta corriente, acorde con los nuevos términos reglamentarios, y se fijará como meta la suscripción de la totalidad de estos nuevos contratos, con anterioridad a la fecha de entrada en vigencia de este Reglamento.

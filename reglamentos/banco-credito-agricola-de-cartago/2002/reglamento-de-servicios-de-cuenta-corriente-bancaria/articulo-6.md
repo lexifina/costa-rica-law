@@ -1,0 +1,1 @@
+Artículo 6º—Las cuentas corrientes son inviolables y el Banco sólo podrá suministrar información acerca de las mismas, previa autorización escrita del cliente, o por orden de autoridad judicial competente, salvo la intervención que en cumplimiento de sus funciones determine la Superintendencia General de Entidades Financieras.

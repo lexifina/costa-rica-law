@@ -1,0 +1,1 @@
+Artículo 26.—Los cargos que por concepto de impuestos, tasas, contribuciones, especies fiscales u otros, que por disposición de Ley puedan gravar los contratos de cuenta corriente en el futuro, deberán ser asumidos exclusivamente por el cliente y el Banco los deducirá de cada cuenta corriente, según corresponda.

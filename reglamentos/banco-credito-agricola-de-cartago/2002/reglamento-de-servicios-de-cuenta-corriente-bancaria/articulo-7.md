@@ -1,0 +1,2 @@
+Artículo 7º—El Banco podrá cerrar sin ninguna responsabilidad, todas aquellas cuentas corrientes, cuyo período de inactividad sea igual o mayor a ciento ochenta días desde el último movimiento.
+Asimismo, el Banco está obligado a cerrar aquellas cuentas corrientes de las cuales se haya hecho o se haga un mal uso, contrario con los principios de buena fe que rigen los actos y las relaciones contractuales mercantiles propias del contrato de cuenta corriente. De mutuo acuerdo entre el cliente y el Banco, también podrá ser cerrada una cuenta corriente.

@@ -1,0 +1,1 @@
+Artículo 15.—Tratándose de personas jurídicas, que como cliente actúan por representación, el Banco no asume ninguna responsabilidad por el vencimiento o por la revocatoria de los poderes respectivos, hasta tanto no se le haya notificado formalmente por escrito los cambios de representantes legales, o en su defecto, las revocatorias de autorizaciones y registro de nuevas firmas.

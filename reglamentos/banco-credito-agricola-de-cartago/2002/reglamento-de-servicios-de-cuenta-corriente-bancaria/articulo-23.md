@@ -1,0 +1,2 @@
+Artículo 23.—Toda correspondencia que sea necesaria en virtud del contrato de cuenta corriente, será remitida por el Banco a la dirección (física, postal o electrónica), o lugar señalado por el cliente al momento de apertura de la cuenta corriente.
+El cliente está obligado a notificar cualquier cambio posterior de dirección o de lugar señalado para recibir correspondencia, y si no lo hiciere, se reputará recibida por el cliente con el transcurso de las veinticuatro horas siguientes a la razón de despacho o envío.
