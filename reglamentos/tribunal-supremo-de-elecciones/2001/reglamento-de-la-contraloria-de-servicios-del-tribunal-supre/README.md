@@ -14,3 +14,4 @@ Reglamento de la Contraloría de Servicios del Tribunal Supremo de Elecciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-08 | la propia norma |
+| 2 | 2004-04-02 | Decreto TSE 3 (2004-04-02) |
