@@ -1,0 +1,1 @@
+Artículo 7º—El cuenta empresario. Toda persona física con capacidad de actuar o persona jurídica cuyo plazo social, personería y cédula jurídica se encuentren vigentes, podrán constituir las clases y la cantidad de los contratos de ahorros empresarial que deseen.

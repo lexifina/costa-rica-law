@@ -1,0 +1,1 @@
+Artículo 14.—Exención de retención y pago de impuestos. Los intereses que devengan los saldos depositados en las cuentas de ahorro empresarial en MUCAP, no son objeto de retención ni del pago del impuesto único sobre la renta.

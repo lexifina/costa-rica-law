@@ -1,0 +1,3 @@
+Artículo 10.—Pago y cálculo de intereses. La Administración de MUCAP fijará la tasa de interés pasiva de conformidad con el costo del dinero en el mercado financiero nacional para depósitos irregulares en cuenta de ahorros a la vista en colones, así como el saldo mínimo sobre el cual se cancelan los intereses.
+El cálculo de interés será diario, tomando en cuenta los débitos y créditos que se hayan hecho antes de la 1:00 de la tarde de ese día. Los créditos que se hagan después de la 1:00 de la tarde o sábados, domingos o en días feriados ganan intereses a partir del siguiente día hábil.
+Los intereses correspondientes al cierre de las operaciones del mes, se acreditarán en la cuenta de ahorros empresarial el primer día del mes siguiente.

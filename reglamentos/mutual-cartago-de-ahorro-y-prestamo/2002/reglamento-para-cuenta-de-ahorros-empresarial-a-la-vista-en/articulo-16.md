@@ -1,0 +1,1 @@
+Artículo 16.—Resolución voluntaria del contrato. El cuenta empresario podrá dar por concluido el contrato de ahorros en forma unilateral sin que medie incumplimiento de ninguna de las partes, mediante solicitud expresa o verbal en tal sentido, retiro de su saldo en cuenta, entrega a MUCAP de la libreta de ahorros y ordenes de retiro en blanco.
