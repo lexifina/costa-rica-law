@@ -61,28 +61,31 @@ Artículo 11.-Los derechos de seguridad se cobraran a toda empresa de transporte
 a. Pasajeros en vuelos internacionales $ 1,00 por pasajero.
 b. Pasajeros en vuelos locales $ 0,50.por pasajero.
 Artículo 12.-Por concesión de uso de áreas y/o instalaciones se aplicarán tarifas mensuales por metro cuadrado, considerando además de su ubicación, si se trata de una actividad comercial común, la de una línea aérea o la de una actividad aeronáutica conexa declarada por el Poder Ejecutivo.
-AEROPUERTOS
-Tipo de servicio | A.I.J.S Propuestas | T. Bolaños | Otros Aerop. Propuestas
-Uso de Áreas: Sótano | | |
-Conc. comerciales | $ 6,00 | $ 6,00 | $5,00
-Líneas Aéreas y Act. conexas | $ 5,00 | $ 5,00 |
-I Nivel | | | $4,70
-Conc. Comerciales | $ 6,00 | $ 6,00 | $ 4,70
+| AEROPUERTOS
+| A.I.J.S. | T. Bolaños | Otros aeropuertos
+Tipo de servicio | Propuestas | Propuestas | Propuestas
+Uso de Áreas | | |
+Sótano | | |
+Conc. Comerciales | $ 6,00 | $ 6,00 | $ 5,00
+Líneas Aéreas y Act. conexas | $ 5,00 | $ 5,00 | $ 4,70
+I Nivel | | |
+Conc. Comerciales | $ 6,00 | $ 6,00 | $4,70
 Líneas Aéreas y Act. conexas | $ 5,00 | $ 5,00 | $ 3,00
 II, III, IV Nivel | | |
-Conc. Comerciales | $ 6,00 | $6,00 | $ 3,00
-Líneas Aéreas y Act. conexas | $ 5,00 | $ 5,00 | $3,00
+Conc. Comerciales | $ 6,00 | $ 6,00 | $ 3,00
+Líneas Aéreas y Act. conexas | $ 5,00 | $ 5,00 | $ 3,00
 Edificios Conexos (Hangares) | | |
-Conc. Comerciales | $ 6,00 | $ 6,00 | $ 2.40
+Conc. Comerciales | $ 6,00 | $ 6,00 | $ 2,40
 Líneas Aéreas y Act. conexas | $ 5,00 | $ 5,00 | $ 1,70
 Terrenos Arrendados | | |
-Conc. Comerciales | $ 1,80 | $ 0,06 | $ 0,06
-Líneas Aéreas y Act. conexas | $ 1,20 | $ 0,06 | $ 0,06
+Conc. Comerciales | $ 1,00 | $ 0,50 | $ 0,50
+Líneas Aéreas y Act. conexas | $ 0,80 | $ 0,50 | $ 0,50
 Terrenos Arrendados | $ 1,20 | $ 0,06 | $ 0,06
-Est. Automóviles conc. conexas | $ 1,20 | $ 1,20 | $ 0,06
+Est. Automóviles conc. conexas | $ 0,80 | $ 0,50 | $0,50
 a. Por utilización de área de rampa en despacho aéreo y suministro de alimentos y bebidas $ 220,00 por mes.
 b. Por el derecho de uso de área para expendio de combustible a vehículos automotores en los Aeropuertos Internacionales del país, se cobrará una tarifa mensual de $ 0,75 por metro cuadrado.
 c. Las empresas de transporte aéreo deberán cancelar la suma de US$ 2,00 por cada mostrador utilizado en la atención de cada vuelo despachado.
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 25024 de 27 de febrero de 1996).
 Artículo 13.-Aquellos actos o contratos que, en virtud de sus naturaleza, requieran de publicidad registral, pagaran derechos de inscripción de la siguiente manera:
 a. Inscripción de aeronaves: Rangos en Kilogramos (de PMD) | Tarifa por aeronave (en dólares)
 De 0 a 7500 | 51,20
