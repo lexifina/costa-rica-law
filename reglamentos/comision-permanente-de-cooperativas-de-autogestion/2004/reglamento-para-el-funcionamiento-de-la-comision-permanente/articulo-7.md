@@ -1,0 +1,1 @@
+Artículo 7º—El Directorio sesionará ordinariamente una vez al mes el día y hora que acuerde en su primera sesión. Podrá sesionar extraordinariamente por convocatoria de la presidencia o de la dirección ejecutiva, la cual deberá efectuarse con al menos veinticuatro horas de antelación y puesta en conocimiento de los asuntos a tratar.

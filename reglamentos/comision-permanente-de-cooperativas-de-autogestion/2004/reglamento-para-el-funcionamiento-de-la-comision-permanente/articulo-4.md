@@ -1,0 +1,1 @@
+Artículo 4º—El plenario podrá sesionar cuando cuente con la presencia de la mitad más uno de sus miembros y sus asuntos los resolverá por simple mayoría, salvo cuando se trate del inciso cinco del artículo uno, caso para el que se requerirá al menos de dos tercios de los votos de los miembros del plenario.

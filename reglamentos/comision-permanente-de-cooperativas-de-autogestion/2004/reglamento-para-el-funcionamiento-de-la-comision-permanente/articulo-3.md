@@ -1,0 +1,1 @@
+Artículo 3º—El plenario sesionará ordinariamente al menos cada tres meses, el día y hora que acuerde en su primera sesión. Podrá sesionar extraordinariamente por convocatoria de la presidencia o de la dirección ejecutiva, la cual se efectuará con al menos veinticuatro horas de anticipación y puesta en conocimiento del o de los asuntos a tratar.

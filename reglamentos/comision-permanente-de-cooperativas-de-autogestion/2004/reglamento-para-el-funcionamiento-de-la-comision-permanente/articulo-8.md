@@ -1,0 +1,1 @@
+|Artículo 8º—La presidencia del Directorio, que lo será también del plenario, elaborará el orden del día, abrirá y cerrará las sesiones, decretará recesos, actuará como coordinador de los debates y tomará las votaciones. Sus ausencias temporales serán suplidas por la vicepresidencia o en su defecto por los vocales en su orden.
