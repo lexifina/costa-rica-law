@@ -14,3 +14,4 @@ Reglamento General de Crédito.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-10-18 | la propia norma |
+| 2 | 1996-03-12 | Reglamento 3205 (1996-03-12) |

@@ -1,9 +1,15 @@
 TABLA DE CONDICIONES VARIABLES EN MONTOS TASAS DE INTERÉS Y PLAZOS PARA LAS DIFERENTES LINEAS DE CRÉDITO
 1. TOPES MÁXIMOS | TASAS DE INTERÉS
-CRÉDITO FINANCIERO 1. Crédito Personal |
-a) Personal | ¢ 10.000.000 38%
-b. Automático | ¢ 500.000 38%
-2. Crédito Comercial Hasta ¢ 250.0 millones o el límite máximo establecido por el Banco Central; para los Bancos Comerciales, en esta línea. | 39%
+Crédito personal: |
+Personal | 33%
+Automático | 33%
+Crédito comercial: |
+Pignoración | 34%
+Financiero | 33%
+Crédito popular: | 33%
+Tarjetas de crédito visa (colones) | 33%
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 3205 de 12 de marzo de 1996, publicada en La Gaceta N° 63 de 29 de marzo de 1996.)
+1. TOPES MÁXIMOS | TASAS DE INTERÉS
 B. CRÉDITO SOCIAL Y DE DESARROLLO 1. CRÉDITO PERSONAL DE INTERÉS SOCIAL |
 a) Salud | 200.000 24%
 b) Educación | 200.000 24%
