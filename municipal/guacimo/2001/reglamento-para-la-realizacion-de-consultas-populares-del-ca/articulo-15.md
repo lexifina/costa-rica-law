@@ -1,0 +1,1 @@
+Articulo 15.-De la divulgación de la consulta: Sin perjuicio de lo anterior, el Concejo Municipal tomará todas las medidas necesarias a fin le dar amplia divulgación a la consulta en todo el cantón de Guácimo, y promover la efectiva participación ciudadana.
