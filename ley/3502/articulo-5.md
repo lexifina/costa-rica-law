@@ -1,0 +1,1 @@
+Artículo 5°-El Poder Ejecutivo destinará, íntegramente, los ¢25.000,000.00 de esta emisión, a la cancelación de la deuda que se ha acumulado a favor del Instituto Nacional de Vivienda y Urbanismo, por concepto de subvenciones asignadas y no pagadas por el Estado, hasta el 30 de junio de 1964.

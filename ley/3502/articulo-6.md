@@ -1,0 +1,1 @@
+Artículo 6°-Las sumas que el Poder Ejecutivo ponga a disposición del Instituto, hasta por un total de ¢ 13.300, 000.00, con base en los desembolsos del Crédito A.I.D. 515-L 006, se imputarán al pago de subvenciones del Estado a partir de la emisión de esta ley.
