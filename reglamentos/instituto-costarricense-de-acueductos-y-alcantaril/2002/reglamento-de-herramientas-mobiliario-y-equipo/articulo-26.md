@@ -1,0 +1,1 @@
+Artículo 26.—La Auditoría podrá realizar inventarios selectivos a las herramientas menores, mobiliario o equipo, en poder de los funcionarios y si hubiesen faltantes procederá según lo estípula el artículo anterior.

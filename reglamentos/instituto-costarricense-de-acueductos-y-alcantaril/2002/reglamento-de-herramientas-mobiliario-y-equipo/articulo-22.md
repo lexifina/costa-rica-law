@@ -1,0 +1,1 @@
+Artículo 22.—En caso de robo o hurto de herramientas menores, mobiliario o equipo, el funcionario a quien está asignado dicho bien, deberá enviar una nota a la Jefatura de la Región o Dirección respectiva, en la cual se explique cómo sucedió la pérdida . Esa nota deberá ser firmada por el Jefe inmediato de dicho funcionario y remitirla al Jefe Regional o Director.

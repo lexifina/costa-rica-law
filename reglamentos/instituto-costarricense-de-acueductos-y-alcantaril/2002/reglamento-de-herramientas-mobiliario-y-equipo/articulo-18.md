@@ -1,0 +1,1 @@
+Artículo 18.—Una vez recibida la nota por la Jefatura de la Dirección o Región y cuando lo considere pertinente, pasará el caso a la Unidad de Asuntos Legales de la Dirección de Recursos Humanos, para el trámite correspondiente.

@@ -1,0 +1,1 @@
+Artículo 5°—Cuando el funcionario se presente al Almacén para el retiro del bien solicitado, deberá entregar al encargado del Almacén un Vale por herramienta mobiliario o equipo, según sea el caso, debidamente firmado por su jefe inmediato y por el responsable de la herramienta que solicitó.

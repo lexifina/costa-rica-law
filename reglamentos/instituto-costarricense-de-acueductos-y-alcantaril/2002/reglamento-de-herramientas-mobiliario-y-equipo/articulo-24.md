@@ -1,0 +1,1 @@
+Artículo 24.—Cuando la Unidad de Asuntos Legales se pronuncie, la dependencia que remitió el caso, procederá de acuerdo a la Resolución dictada, notificando al Almacén respectivo, para el descargo correspondiente.

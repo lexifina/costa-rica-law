@@ -1,0 +1,1 @@
+Artículo 8°—El encargado del Almacén deberá entregar cada seis meses, a todos los funcionarios que tengan vales por herramienta menor, mobiliario o equipo asignados, un listado actualizado de dichos vales.

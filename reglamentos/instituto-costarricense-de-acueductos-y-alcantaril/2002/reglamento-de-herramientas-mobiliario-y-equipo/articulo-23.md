@@ -1,0 +1,1 @@
+Artículo 23.—Una vez recibida la nota por la Jefatura de la Dirección o Región ésta deberá remitir el caso a la Unidad de Asuntos Legales de la Dirección de Recursos Humanos, para el trámite correspondiente y posterior cobro o descargo del bien robado o hurtado. La Unidad de Asuntos Legales comunicará al Almacén Central cuando procede el descargo definitivo del vale.

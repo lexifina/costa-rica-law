@@ -1,0 +1,1 @@
+Artículo 13.—Cuando algún almacén contable reciba herramientas menor, mobiliario o equipo en buen estado y considere que deben incorporarse a stock, deberá generar una entrada al Almacén en SAP por la opción de "Diversos" mov No 501.

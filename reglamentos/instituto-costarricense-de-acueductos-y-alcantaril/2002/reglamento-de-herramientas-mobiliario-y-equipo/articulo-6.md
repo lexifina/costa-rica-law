@@ -1,0 +1,1 @@
+Artículo 6°—Si la herramienta menor, mobiliario o equipo, es comprado por caja chica y éstos no pasan por el Almacén, el Fondo de Trabajo respectivo, deberá exigir a quien compró el bien una copia del Vale por Herramienta, mobiliario o equipo, debidamente firmado, sellado y numerado por el Almacén respectivo, previo a la liquidación del Vale de Caja Chica.

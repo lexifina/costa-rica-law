@@ -1,0 +1,1 @@
+Artículo 16.—Cuando una herramienta menor, mobiliario o equipo, asignado a un funcionario sufre un daño o deterioro el funcionario deberá devolverlo al Almacén que corresponda adjuntando nota explicativa y solicitar la anulación y devolución del vale original.

@@ -1,0 +1,1 @@
+Artículo 15.—Cuando un funcionario traslada una herramienta » menor, mobiliario o equipo a otro funcionario, debe emitirse un traspaso de herramientas, mobiliario o equipo, para lo cual se utilizará el formulario denominado "traspaso por herramientas, mobiliario y equipo".

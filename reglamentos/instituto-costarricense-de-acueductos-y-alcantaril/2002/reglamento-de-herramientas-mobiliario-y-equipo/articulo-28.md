@@ -1,0 +1,1 @@
+Artículo 28.—Cuando se trata de herramientas menores, mobiliario o equipo que se devuelven temporalmente por motivo de vacaciones, el capataz encargado o Jefe responsable, tendrá a su cargo su custodia procurando hasta donde sea posible identificarlas y mantenerlas por separado, con el fin de que al regreso a su trabajo el funcionario reciba el mismo bien que devolvió.

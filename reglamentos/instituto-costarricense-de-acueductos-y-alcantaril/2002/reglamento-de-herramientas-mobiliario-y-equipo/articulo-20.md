@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Extravíos y auditorajes
+Artículo 20.—En caso de extravío de herramientas menores, mobiliario o equipo, el funcionario a quien está asignado dicho bien, deberá enviar una nota a la Jefatura de la Región o Dirección respectiva, en la cual se explique cómo sucedió la pérdida . Esa nota deberá ser firmada por el Jefe inmediato de dicho funcionario, quien además deberá recomendar por escrito al Jefe Regional o Director, el descargo o cobro del bien extraviado.

@@ -1,0 +1,1 @@
+Artículo 30.—El Jefe de la Dirección o de la Región respectiva, establecerá los mecanismos de control adecuados, para garantizar que el presente Reglamento se cumpla a cabalidad, salvaguardando el buen uso de las herramientas menores, mobiliario y equipo entregados a sus funcionarios.
