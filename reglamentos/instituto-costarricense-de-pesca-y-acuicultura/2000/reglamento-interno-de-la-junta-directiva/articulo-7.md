@@ -1,0 +1,2 @@
+Artículo 7º-Las sesiones de la Junta Directiva serán siempre privadas, pero la Junta podrá acordar por mayoría simple de sus miembros presentes, el acceso a ella de ciertas personas, concediéndoles el derecho de participar en las deliberaciones con voz pero sin voto.
+Podrán también asistir a las sesiones con voz pero sin voto, los funcionarios previamente convocados a través de la Presidencia Ejecutiva y Asesores que la Junta Directiva crea conveniente llamar, en razón de los asuntos que figuren en el orden del día

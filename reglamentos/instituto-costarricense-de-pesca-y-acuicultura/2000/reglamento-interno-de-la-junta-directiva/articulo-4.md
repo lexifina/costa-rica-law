@@ -1,0 +1,6 @@
+CAPITULO II
+De su instalación
+Artículo 4º-El período de nombramiento de los miembros de la Junta Directiva será de cuatro años contados a partir del mes de junio del mismo año en que se inicie el período presidencial del Gobierno de la República y empezarán a ejercer sus funciones el primero de julio de ese mismo año.
+En la primera sesión ordinaria correspondiente a un nuevo período de Gobierno; y en cada año de los sucesivos, la Junta Directiva procederá a elegir de su seno, por simple mayoría de votos a un Vicepresidente, pudiendo ser reelecto por una única vez en un mismo periodo de Gobierno, salvo que no existieran otros postulantes.
+En caso de ausencia o de enfermedad y en general, cuando concurra alguna causa justa, el Presidente de la Junta Directiva será sustituido por el Vicepresidente en el ejercicio de sus atribuciones y deberes. Cuando estén ausentes el Presidente y el Vicepresidente, la Junta nombrará a uno de sus miembros como Presidente ad hoc.
+Cuando un suplente atiende las ausencias temporales de un Director Propietario, éste ocupará la posición de aquel, excepto cuando se trate del cargo de Presidente o Vicepresidente, cuyos cargos temporalmente serán atendidos según se indica en el párrafo tercero de este artículo.

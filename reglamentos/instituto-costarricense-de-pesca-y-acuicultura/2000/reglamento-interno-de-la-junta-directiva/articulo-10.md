@@ -1,0 +1,2 @@
+Artículo 10.-Caso de que alguno de los miembros de la Junta interponga recurso de revisión de un acuerdo, el mismo será resuelto al conocerse el acta de la sesión respectiva, a menos que, por tratarse de un asunto que el Presidente juzgue urgente o de especial importancia, prefiera conocerlo en sesión extraordinaria, misma que deberá ser convocada dentro de los ocho días naturales siguientes.
+Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas, para efectos del inciso anterior, como recurso.

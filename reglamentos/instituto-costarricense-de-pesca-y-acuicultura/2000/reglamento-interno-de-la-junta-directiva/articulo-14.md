@@ -1,0 +1,4 @@
+Artículo 14.-El quórum para que pueda sesionar válidamente la Junta Directiva se forma con cinco de sus miembros.
+La inasistencia o llegada tardía de más de treinta minutos de un Director a sesiones, ocasionará la pérdida de la respectiva dieta, excepto en el caso de que esté cumpliendo una misión oficial expresamente encomendada por la Junta Directiva o que goce de permiso para llegadas tardías en razón de su trabajo o su lugar de residencia. Se entenderá por misión oficial aquella en que medie acuerdo firme de la Junta Directiva.
+Sin embargo, el Director que asista a la sesión después de transcurridos los treinta minutos señalados en el párrafo anterior, podrá participar en la misma con voz pero sin voto, en razón de que el suplente asumirá la Propiedad en esta sesión.
+Igualmente será causa de pérdida de la dieta respectiva, el hecho que el Director se retire con más de una hora de antelación al momento de la finalización de la misma.

@@ -1,0 +1,3 @@
+Artículo 13.-Las sesiones extraordinarias se celebrarán cuando sean convocadas por el Presidente, el Vicepresidente o cuatro o más de los miembros de la Junta Directiva, por lo menos con veinticuatro horas de antelación, a la hora fijada para su celebración, especificando el objeto de la sesión y la hora en que esta debe verificarse. Lo anterior salvo en aquellos casos en que todos los miembros de la Junta Directiva estén presentes y acuerden prescindir de la convocatoria por tratarse de un caso de urgencia.
+Igualmente se realizarán sesiones extraordinarias cuando en sesión ordinaria así sea dispuesto por la Junta Directiva.
+A la convocatoria se acompañará copia del orden del día, salvo casos de urgencia.

@@ -1,0 +1,1 @@
+Artículo 33.-La atención de los asuntos sometidos a conocimiento de la Junta Directiva, estará a cargo de un funcionario y de los empleados que se crea necesario para la eficaz atención de los mismos.

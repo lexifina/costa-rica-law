@@ -1,0 +1,2 @@
+Artículo 24.-Salvo situaciones excepcionales, las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que por unanimidad de los miembros presentes acuerden su firmeza.
+Tendrán carácter de excepción aquellos acuerdos tomados por la Junta Directiva relativos al otorgamiento de licencias, permisos o concesiones.
