@@ -1,0 +1,3 @@
+CAPÍTULO III.
+Disposiciones generales.
+Art. 26.-A una sóla persona no deben venderse terrenos que excedan de seiscientas manzanas, sino en los dos casos siguientes: 1°, cuando por haber justificado verdadera necesidad, alcance permiso especial del Poder Ejecutivo para que se le adjudique mayor área de tierra; y 2°, cuando el agrimensor encuentre dichas, quedan entre el terreno denunciado que, limitando la medida á las seiscientas manzanas y otros de dominio particular, ó entre aquél y algún río, camino ú otro lindero natural, orillas de tierra que á formar otra finca. nadie conviniere denunciar, por ser inadecuadas para formar otra finca.

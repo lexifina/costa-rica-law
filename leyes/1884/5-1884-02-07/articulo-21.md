@@ -1,0 +1,1 @@
+Art. 21.-El rematario que, antes de estar legalmente desierto el denuncio conforme al artículo anterior, justificare haber hecho en el terreno que se le adjudicó, mejoras que importen el doble del valor de los intereses correspondientes á un año, quedará exonerado del pago de la primera anualidad de intereses.

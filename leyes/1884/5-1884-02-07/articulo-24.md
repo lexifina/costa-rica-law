@@ -1,0 +1,1 @@
+Art. 24.-Aprobado el remate y pagado el precio, si la compra fuere al contado, 6 pagada la primera anualidad de intereses, ó declarada la exoneración del deudor, si la compra fué á plazo, procederá el Juez, previa aprobación del Poder Ejecutivo, á otorgar la correspondiente escritura de venta, que servirá de título de propiedad al rematario.

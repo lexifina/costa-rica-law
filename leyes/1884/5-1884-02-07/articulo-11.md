@@ -1,0 +1,2 @@
+Art. 11.-Cuando el baldío que se hubiere de medir estuviere limitado por terrenos titulados de propiedad particular, se seguirán los linderos de éstos. Si sólo en parte lindare con terrenos titulados, los lados que de nuevo se formen serán rectilíneos y los ángulos rectos, en cuanto fuere posible.
+Y si el terreno estuviere limitado sólo por baldíos, la figura que se forme será precisamente un cuadro ó paralelógramo, salvo el caso de que se encuentren linderos que por su estabilidad sean preferibles para formar el límite del terreno.

@@ -1,0 +1,1 @@
+Art. 5°-Presentada la denuncia, se llamará, por edictos publicados tres veces en el periódico oficial, á los que tengan derecho de oponerse á la denuncia, para que formalicen su oposición dentro del término de treinta días.

@@ -1,0 +1,1 @@
+Art. 45.-Los que infringieren cualquiera de las disposiciones de los tres artículos anteriores, además de la reposición de los árboles destruídos, incurrirán en una multa que no baje de cinco pesos ni exceda de cien, según la gravedad de la infracción, siendo la mitad para el denunciante y la otra mitad para el fisco.

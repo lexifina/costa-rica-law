@@ -1,0 +1,3 @@
+Art. 7°-Si el opositor alegare derecho de propiedad, el denunciante puede, durante el juicio en que aquélla se ventila, pedir que se mida deslinde el terreno denunciado, ó que se practiquen otros actos necesarios para comprobar la legalidad de su denuncia, quedando responsable por los daños y perjuicios, en caso de declararse que la denuncia es infundada en todo ó en parte.
+La persona opuesta á la denuncia tiene derecho á exigir que el denunciante afiance el pago de los daños y perjuicios á que se refiere el párrafo anterior.
+La misma obligación de afianzar, tendrá siempre el opositor, si el denunciante lo pidiere, y las mismas responsabilidades, si la oposición se declarare infundada.

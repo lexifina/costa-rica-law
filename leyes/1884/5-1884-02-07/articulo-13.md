@@ -1,0 +1,1 @@
+Art. 13.-Si la medida obtuviere calificación favorable del revisor, ó enmendados ya los defectos que éste señale, el Juez la aprobará y mandará que se proceda al valúo del terreno por dos peritos nombrados por el demandante y el representante del fisco.

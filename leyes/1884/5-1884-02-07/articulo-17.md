@@ -1,0 +1,1 @@
+Art. 17.-Los gastos de medida y valúo serán pagados por el denunciante, y éste tiene derecho á ser preferido en igualdad de posturas; pero si en los terrenos denunciados hubiere alguna mina adjudicada y en explotación, el adjudicatario de la mina será preferido al denunciante, en igualdad de posturas, respecto á los terrenos contiguos á la pertenencia de la mina.

@@ -1,0 +1,1 @@
+Art. 2°-La propiedad que la Nación tiene sobre los terrenos baldíos es trasmisible, por título oneroso ó gratuito, á costarricenses ó extranjeros, excepto los terrenos comprendidos en una zona de una milla de latitud á lo largo de las costas de ambos mares, y orillas de ríos navegables,

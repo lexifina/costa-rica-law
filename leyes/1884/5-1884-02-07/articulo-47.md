@@ -1,0 +1,2 @@
+Art. 47.-Del presente decreto se dará cuenta al Congreso Constitucional en su próxima reunión ordinaria.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los cuatro días del mes de febrero de mil ochocientos ochenta y cuatro.-A. DE JESÚS SOTO, Presidente.-PEDRO GARCÍA, Pro-secretario.-Liberia, febrero siete de mil ochocientos ochenta y cuatro.-Ejecútese.-P. FERNÁNDEZ.-El Secretario de Estado en el Despacho de Hacienda.-BERNARDO SOTO

@@ -1,0 +1,1 @@
+Art. 42.-Se prohibe destruir en los bosques nacionales los árboles que estén situados en las pendientes, orillas de las carreteras y demás vías de comunicación, lo mismo que los árboles que pueden explotarse sin necesidad de cortarlos, como el hulero, el liquidámbar, el bálsamo, etc.

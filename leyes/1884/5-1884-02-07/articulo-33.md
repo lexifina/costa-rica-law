@@ -1,0 +1,1 @@
+Art. 33.-Cuando por el trascurso del tiempo hubieren desaparecido los mojones de terrenos poseídos en propiedad á virtud de ventas hechas por Estado, el propietario podrá solicitar ante el Juez de Hacienda la remedida de los terrenos que poseyere, ó el avivamiento de mojones.
