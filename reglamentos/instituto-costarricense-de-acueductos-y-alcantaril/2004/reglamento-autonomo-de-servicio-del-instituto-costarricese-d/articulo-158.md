@@ -1,0 +1,1 @@
+Artículo 158.—La normativa vigente sobre la creación y funcionamiento del Fondo de Ahorro, Retiro y Garantía de AyA, así como el Acuerdo de Junta Directiva No. 87.269 del 21 de octubre de 1987, se mantienen inalterables.

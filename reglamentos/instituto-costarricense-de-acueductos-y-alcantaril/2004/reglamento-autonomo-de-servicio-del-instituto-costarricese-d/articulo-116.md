@@ -1,0 +1,1 @@
+Artículo 116.—La denuncia se presentará por escrito y deberá contener una relación circunstanciada de los hechos, con indicación de los servidores partícipes. El denunciante deberá, asimismo, aportar u ofrecer las pruebas en que funda su denuncia.

@@ -1,0 +1,20 @@
+Artículo 42.—Además de las prohibiciones que establecen otras disposiciones del presente reglamento, así como otras contenidas en el ordenamiento jurídico administrativo en materia de empleo público y el Código de Trabajo, se prohíbe al servidor:
+1) Desatender las labores a él asignadas o abandonar el lugar donde presta sus servicios, sin justa causa o sin permiso de su jefe inmediato, salvo que la naturaleza de sus funciones justifiquen la atención de tareas fuera del centro de trabajo.
+2) Utilizar los teléfonos, radio-comunicadores, fotocopiadores, servicio de Internet y demás instrumentos de comunicación de AyA para asuntos ajenos a las funciones propias de su cargo.
+3) Hacer uso indebido o no autorizado de los útiles, mobiliario, herramientas, equipos, maquinaria, vehículos, logos y demás bienes de AyA.
+4) Transportar en los vehículos de AyA personas ajenas a éste, así como conducirlos sin contar con el permiso interno correspondiente, salvo cuando la autoridad de tránsito, autoridades de policía e inspección y Cruz Roja así lo soliciten expresamente para atender emergencias, todo de conformidad al Reglamento Interno de Transportes.
+5) Apoderarse de materiales o productos propiedad de AyA.
+6) Distraer con cualquier clase de juegos, bromas, ruidos, mensajes o conversaciones escandalosas o improcedentes a sus compañeros de trabajo durante la jornada laboral.
+7) Quebrantar, en cualquier forma, la cordialidad y el mutuo respeto que deben imperar en las relaciones entre los servidores de AyA.
+8) Presentarse a laborar o prestar sus servicios en estado de embriaguez o en cualquier otra condición análoga, así como ingerir licor o cualquier otra sustancia enervante durante la jornada de trabajo.
+9) Participar en actividades político-electorales dentro de las instalaciones de AyA o durante la jornada de trabajo.
+10) Vender, comprar o cambiar cualquier clase de artículos así como hacer o promover rifas y solicitar o recoger, directa o indirectamente, contribuciones, suscripciones o cotizaciones dentro de las instalaciones de AyA o durante la jornada de trabajo.
+11) Portar armas de cualquier clase durante las horas de trabajo o dentro de las instalaciones de AyA, excepto en los casos autorizados en atención a la naturaleza de determinadas funciones y se cuente con el respectivo permiso de portación.
+12) Impedir o entorpecer el cumplimiento de las medidas que se adopten en materia de salud ocupacional, evaluación del desempeño, resultado y rendición de cuentas, y en cualquier otra actividad que desarrolle la Administración.
+13) Alterar, dañar, destruir o remover los avisos o advertencias sobre aquellos aspectos que la Administración tenga a bien divulgar.
+14) Dañar o negarse a utilizar los equipos de protección o seguridad que se le faciliten según sus funciones.
+15) Intervenir directa o indirectamente en la adjudicación de contratos administrativos promovidos por AyA, cuando exista prohibición en los términos prescritos por la Ley de la Contratación Administrativa y el Reglamento de la materia.
+16) Prestar servicios, de actividades ordinarias o competenciales de AyA, remunerados o no, asociarse, dirigir, administrar, asesorar, patrocinar o representar a personas físicas o jurídicas que tengan intereses contrapuestos, contratados o licitados, con los de la Institución, cuando se encontrare en período laboral, vacaciones, permiso o descanso.
+17) Aceptar dádivas o cualesquiera otras ventajas como retribución o compensación por la ejecución u omisión de actos propios de su cargo o con ocasión de éste.
+18) Valerse de su condición de servidor de AyA o invocarla para obtener ventajas de cualquier índole, para si mismo o un tercero, ajenas a las prerrogativas propias del cargo que desempeña.
+19) Accesar o reproducir material pornográfico por medio de los equipos informáticos o de comunicación de la Institución, o bien, exhibirlo en cualquiera de las instalaciones. La infracción a esta disposición será considerada grave, por lo que el presunto infractor estará expuesto al procedimiento disciplinario y a la eventual sanción.

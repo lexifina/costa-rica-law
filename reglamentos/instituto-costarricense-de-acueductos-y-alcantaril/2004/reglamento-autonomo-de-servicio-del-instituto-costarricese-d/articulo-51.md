@@ -1,0 +1,1 @@
+Artículo 51.—La ausencia de marca en el sistema de control institucional de asistencia al inicio o término de la jornada de trabajo hará presumir la inasistencia del servidor durante ésta, a menos que justifique la omisión dentro de los tres días hábiles siguientes a aquél en que se produjo.

@@ -1,0 +1,1 @@
+Artículo 100.—Según lo dispuesto en la Ley Constitutiva de AyA, corresponde a la Gerencia General ordenar y resolver sobre el régimen disciplinario de la Institución, siendo de su competencia la aplicación de las sanciones administrativas que correspondan.

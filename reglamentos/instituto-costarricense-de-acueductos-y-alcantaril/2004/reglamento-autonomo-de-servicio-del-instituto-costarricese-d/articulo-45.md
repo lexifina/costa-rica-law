@@ -1,0 +1,1 @@
+Artículo 45.—Salvo los casos debidamente autorizados, se considerará llegada tardía el ingreso al centro o lugar de trabajo transcurridos cinco minutos de la hora señalada para el inicio de la correspondiente fracción de la jornada laboral.

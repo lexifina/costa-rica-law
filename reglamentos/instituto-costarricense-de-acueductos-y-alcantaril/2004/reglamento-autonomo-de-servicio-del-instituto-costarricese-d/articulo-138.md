@@ -1,0 +1,1 @@
+Artículo 138.—La Gerencia General de la Institución, o la Junta Directiva en su caso, podrá ordenar de oficio o a solicitud de los afectados directos, la reubicación temporal del denunciado o del denunciante.

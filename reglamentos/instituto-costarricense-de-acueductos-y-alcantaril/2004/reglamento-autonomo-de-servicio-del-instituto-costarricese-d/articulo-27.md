@@ -1,0 +1,1 @@
+Artículo 27.—En caso necesario, debidamente justificado por el área solicitante, podrá procederse al recargo de funciones hasta tanto se complete el proceso de reclutamiento y selección, y por un período no mayor a seis meses.

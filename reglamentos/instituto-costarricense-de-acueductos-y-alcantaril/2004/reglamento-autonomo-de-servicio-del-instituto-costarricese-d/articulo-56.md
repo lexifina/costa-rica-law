@@ -1,0 +1,1 @@
+Artículo 56.—Quedan relevados de la obligación de registrar su asistencia únicamente el Presidente Ejecutivo, el Auditor, el Subauditor, el Gerente, el Subgerente, los Directores, Jefes Regionales, así como los Jefes de Departamento debidamente autorizados por el Director correspondiente.

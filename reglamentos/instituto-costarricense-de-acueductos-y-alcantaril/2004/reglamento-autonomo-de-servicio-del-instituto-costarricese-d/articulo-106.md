@@ -1,0 +1,1 @@
+Artículo 106.—El procedimiento disciplinario se verificará con celeridad y eficiencia, con respeto del ordenamiento jurídico y de los derechos del servidor y conforme a un sana y correcta administración de justicia administrativa. El órgano director actuará con plena independencia de criterio, imparcialidad y objetividad durante el procedimiento y al emitir sus conclusiones.

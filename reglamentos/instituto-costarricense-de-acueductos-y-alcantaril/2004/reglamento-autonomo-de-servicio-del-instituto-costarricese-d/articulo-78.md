@@ -1,0 +1,1 @@
+Artículo 78.—A los servidores del AyA que hayan laborado en otras instituciones del sector público, se le reconocerán los años servidos en ellas para determinar el número de días de vacaciones a que tienen derecho.

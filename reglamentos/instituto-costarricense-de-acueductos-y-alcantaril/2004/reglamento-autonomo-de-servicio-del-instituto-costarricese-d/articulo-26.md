@@ -1,0 +1,1 @@
+Artículo 26.—Si el concurso interno resultara infructuoso, se procederá a realizar un concurso externo, pudiendo participar cualquier persona que lo desee y cumpla con los requisitos legales y reglamentarios para el puesto y clase de que se trate.

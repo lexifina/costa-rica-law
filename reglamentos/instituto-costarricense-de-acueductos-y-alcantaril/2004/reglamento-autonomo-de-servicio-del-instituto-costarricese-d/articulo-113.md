@@ -1,0 +1,1 @@
+Artículo 113.—La acción disciplinaria prescribirá si dentro del mes siguiente a la fecha en que reciba todos los informes y atestados resultantes de la instrucción del procedimiento disciplinario, la Gerencia General no dicta la resolución definitiva.

@@ -1,0 +1,1 @@
+Artículo 136.—Transcurridos más de quince días hábiles desde la fecha de interposición del o los recursos ordinarios contra el acto final sin que los órganos correspondientes hayan dictado resolución firme, el recurrente podrá dar por agotada la vía administrativa, de conformidad con lo dispuesto en el artículo 402, inciso a), párrafo segundo del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 124.—El derecho de defensa deberá ser ejercido por el servidor en forma razonable. El órgano director podrá excepcionalmente limitar la intervención de éste a lo prudentemente necesario, sin llegar a la supresión de los derechos de audiencia y defensa consagrados en el ordenamiento jurídico.

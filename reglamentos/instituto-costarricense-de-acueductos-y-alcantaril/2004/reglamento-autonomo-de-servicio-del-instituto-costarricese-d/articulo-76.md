@@ -1,0 +1,1 @@
+Artículo 76.—No podrán disfrutar de los días feriados o de los asuetos señalados en el artículo anterior, los servidores que, por la índole de los servicios que AyA presta al público o por la necesidad de ejecutar tareas urgentes que no admiten posposición, deban trabajar en esos días. En estos casos se pagará el salario adicional que establece el Código de Trabajo.

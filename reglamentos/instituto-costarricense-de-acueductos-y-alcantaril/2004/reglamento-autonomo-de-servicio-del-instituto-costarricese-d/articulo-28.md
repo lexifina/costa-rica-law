@@ -1,0 +1,1 @@
+Artículo 28.—Para reemplazar temporalmente a servidores regulares ausentes por motivo de riesgo profesional, enfermedad, vacaciones, permiso o cualquier otra causa de suspensión de la relación de servicio, podrán nombrarse servidores interinos sustitutos, previa justificación, no habiendo sido posible el recargo de funciones, y con aprobación de la Dirección de Recursos Humanos.

@@ -1,0 +1,5 @@
+CAPÍTULO XII
+De los permisos con y sin goce de salario
+Artículo 88.—A través de la Dirección de Recursos Humanos, la Administración Superior podrá otorgar permiso con goce de salario hasta por veintiséis días hábiles al año, previa solicitud de la jefatura respectiva, en los siguientes casos:
+1) Al servidor cuyo cónyuge, hijos o padres hayan enfermado y necesiten su atención personal. Dicho permiso debe estar sujeto a un dictamen favorable del departamento de Salud Ocupacional, previa presentación del dictamen médico extendido por la Caja Costarricense de Seguro Social, por el Instituto Nacional de Seguros o por médico particular avalado por la Caja Costarricense de Seguro Social, en que conste la enfermedad del familiar.
+2) Al servidor que fuere invitado, a título personal y por un organismo internacional o un gobierno extranjero, a participar en un seminario, congreso, misiones, encuentros profesionales o técnicos, o actividad similar que tenga evidente relación con las funciones que aquél desempeña. Si la invitación proviene de una empresa privada, no deberá encontrarse pendiente un proceso licitatorio en trámite en el cual ella participe.

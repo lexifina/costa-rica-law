@@ -1,0 +1,1 @@
+Artículo 54.—Lo dispuesto en el artículo anterior no se aplicará cuando se trate de un error y el servidor que marcó el control equivocado y aquel a quien le marcaron el suyo informen de lo ocurrido al Jefe respectivo, a más tardar el día siguiente de conocido el hecho.

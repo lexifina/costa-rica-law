@@ -1,0 +1,1 @@
+Artículo 60.—El cometido de las comisiones de salud ocupacional será desempeñado dentro de la jornada de trabajo, sin perjuicio o menoscabo de ninguno de los derechos laborales de los servidores que las conforman y de las funciones laborales a ellos asignadas.

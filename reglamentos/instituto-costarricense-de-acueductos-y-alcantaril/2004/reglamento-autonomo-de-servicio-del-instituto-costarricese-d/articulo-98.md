@@ -1,0 +1,1 @@
+Artículo 98.—La clase de sanción a aplicar tendrá relación directa y proporcional con la gravedad cualitativa o cuantitativa de la falta cometida por el trabajador, de conformidad con lo dispuesto en los artículos 71, 72 y 81 del Código de Trabajo y en las demás leyes supletorias o conexas, así como en este reglamento.

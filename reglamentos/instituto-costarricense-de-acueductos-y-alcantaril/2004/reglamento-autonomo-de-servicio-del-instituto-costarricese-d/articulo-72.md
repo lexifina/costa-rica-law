@@ -1,0 +1,1 @@
+Artículo 72.—Durante el mes de enero de cada año, la Institución pagará por concepto de salario escolar un mes de salario, conforme lo establecido en el Decreto Ejecutivo 23907-H publicado en La Gaceta N° 246 del 27 de diciembre de 1994.

@@ -1,0 +1,1 @@
+Artículo 50.—La asistencia al trabajo será comprobada mediante el sistema que el Instituto haya dispuesto en el centro de trabajo respectivo, debiendo registrarse al comienzo y conclusión de la jornada laboral, salvo las excepciones establecidas en los artículos 56, 57 y 58 de este Reglamento.

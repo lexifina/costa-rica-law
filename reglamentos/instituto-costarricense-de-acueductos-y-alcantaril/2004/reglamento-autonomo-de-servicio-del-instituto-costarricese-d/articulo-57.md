@@ -1,0 +1,4 @@
+Artículo 57.—También quedarán relevados de la obligación de registrar su asistencia aquellos funcionarios que, con veinte años o más de laborar en forma ininterrumpida para AyA, reúnan además los siguientes requisitos:
+1) Que no hayan sido sancionados con suspensiones durante los últimos cinco años.
+2) Que hayan observado una puntualidad ejemplar durante sus años de trabajo.
+Previo estudio, la Dirección de Recursos Humanos o la unidad de Recursos Humanos de la Región según corresponda, concederá este beneficio a quienes reúnan los requisitos y procederá a cancelarlo cuando constate incumplimiento de lo señalado en los inciso a) y b) del presente artículo. En este último caso, deberá designarse un Órgano Director que deberá efectuar el procedimiento correspondiente en cumplimiento del debido proceso.

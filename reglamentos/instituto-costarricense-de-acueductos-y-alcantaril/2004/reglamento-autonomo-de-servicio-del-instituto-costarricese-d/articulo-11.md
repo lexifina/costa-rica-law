@@ -1,0 +1,1 @@
+Artículo 11.—La Gerencia General está integrada por el Gerente y el Subgerente, ambos con facultades de apoderados generalísimos sin límite de suma de la Institución, y serán responsables ante la Junta Directiva del correcto funcionamiento administrativo y operativo del Instituto, en los términos del artículo 12 de la Ley Constitutiva.

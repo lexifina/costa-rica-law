@@ -1,0 +1,1 @@
+Artículo 118.—La Dirección Jurídica, analizará la denuncia pudiendo recomendar rechazo de plano y ordenar el archivo de aquellas evidentemente improcedentes o que no ameriten la apertura de un procedimiento disciplinario, de acuerdo a objetivos y criterios de oportunidad.

@@ -1,0 +1,1 @@
+Artículo 61.—Todos los servidores de AyA están obligados a prestar al Departamento de Salud Ocupacional y a las comisiones de salud ocupacional el apoyo y la colaboración necesarios para que éstas cumplan sus objetivos.

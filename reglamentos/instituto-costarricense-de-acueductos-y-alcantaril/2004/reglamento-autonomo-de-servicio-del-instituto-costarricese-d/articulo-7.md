@@ -1,0 +1,1 @@
+Artículo 7º .- Los actos de la Administración que afecten al servidor son impugnables mediante los recursos de revocatoria, apelación o reposición. Éstos se regirán, en lo conducente, por las disposiciones del título octavo del Libro Segundo de la Ley General de la Administración Pública.

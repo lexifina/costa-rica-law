@@ -1,0 +1,1 @@
+Artículo 52.—Es responsabilidad de cada jefatura en coordinación con la unidad de Recursos Humanos de la Región correspondiente, establecer los sistemas de control necesarios para verificar la permanencia de los trabajadores durante la jornada laboral, la cual será fiscalizada por la Dirección de Recursos Humanos.

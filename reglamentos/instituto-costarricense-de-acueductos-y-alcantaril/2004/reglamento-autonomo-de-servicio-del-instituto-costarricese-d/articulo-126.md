@@ -1,0 +1,1 @@
+Artículo 126.—Practicadas todas las diligencias de prueba necesarias para determinar la verdad real de los hechos objeto del procedimiento disciplinario, el órgano director redactará un informe con su recomendación, el cual remitirá a la Gerencia, que contendrá todos los requisitos que establece el artículo 132.

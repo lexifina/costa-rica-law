@@ -1,0 +1,1 @@
+Artículo 24.—Cuando resulte necesario realizar un concurso interno por oposición, la Dirección de Recursos Humanos deberá publicar por el medio idóneo su apertura, dentro de los diez días hábiles siguientes a aquél en que se produjo la vacante, sujeta a que la plaza sea autorizada por los entes externos respectivos.

@@ -1,0 +1,4 @@
+Artículo 14.—Las modalidades de nombramiento serán:
+1) Por tiempo indefinido: Aplicable a aquellos servidores nombrados para realizar funciones y labores ordinaria y permanentes del Instituto, que correspondan a la clase y puesto establecido en el Manual de Clases vigente y que superen el período de prueba.
+2) Por tiempo determinado: Aplicable a aquellos servidores nombrados interinamente para sustituir a titulares ausentes por vacaciones, permisos e incapacidades, así como los que, excepcionalmente, deban reclutarse para la ejecución de tareas de naturaleza temporal. Estas relaciones de servicio son susceptibles de prórroga, de conformidad con lo establecido en el Código de Trabajo.
+3) Por obra determinada: Son aquellos servidores nombrados para cubrir necesidades eventuales de personal en relación con la ejecución de determinados proyectos, y que no corresponden a funciones ordinarias ni permanentes de la Institución.

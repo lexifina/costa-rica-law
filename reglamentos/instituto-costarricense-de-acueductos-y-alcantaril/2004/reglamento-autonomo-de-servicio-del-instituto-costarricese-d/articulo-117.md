@@ -1,0 +1,1 @@
+Artículo 117.—Recibida la denuncia, si ésta cumple los requisitos indicados en el artículo anterior, la Gerencia General, o la Junta Directiva cuando corresponde, procederá a nombrar el órgano director del procedimiento, quien deberá instruir la investigación del caso y emitir una recomendación para aquélla.

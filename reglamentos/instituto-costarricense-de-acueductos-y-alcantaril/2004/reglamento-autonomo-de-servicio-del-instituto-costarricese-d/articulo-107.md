@@ -1,0 +1,2 @@
+Artículo 107.—Sólo causará nulidad de lo actuado la omisión de formalidades cuya correcta realización hubiere impedido o modificado la decisión final en aspectos esenciales, o cuya omisión causare indefensión.
+La nulidad de un acto hará nulos todos los actos consecutivos que de él dependan y el procedimiento deberá retrotraerse a la situación inmediata anterior al acto o diligencia viciada. En este caso los correspondientes plazos y términos se entenderán interrumpidos.

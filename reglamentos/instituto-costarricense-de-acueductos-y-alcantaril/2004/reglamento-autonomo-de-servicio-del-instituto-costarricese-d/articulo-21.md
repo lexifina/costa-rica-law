@@ -1,0 +1,1 @@
+Artículo 21.—Las plazas que disponga la Administración Superior sean susceptibles de llenarse mediante nombramiento por tiempo indefinido, podrán ser cubiertas por ascenso, concurso interno por oposición y concurso externo en ese orden.

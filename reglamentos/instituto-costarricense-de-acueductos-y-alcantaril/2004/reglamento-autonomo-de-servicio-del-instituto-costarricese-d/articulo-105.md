@@ -1,0 +1,1 @@
+Artículo 105.—El fin primordial del procedimiento disciplinario es la determinación de la verdad real de los hechos. Por todos los medios de prueba admisibles, la Administración procurará precisar los hechos en su real configuración, para poder emitir una resolución ajustada a Derecho.

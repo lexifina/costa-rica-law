@@ -1,0 +1,1 @@
+Artículo 55.—Las jefaturas podrán justificar la omisión de control de asistencia de sus funcionarios, bajo su entera responsabilidad, en caso de giras al interior o al exterior del país en el desempeño de labores propias de la Institución, seminarios u otras actividades de capacitación, inspecciones, diligencias judiciales y por cualquier otra causa debidamente justificada.

@@ -1,0 +1,1 @@
+Artículo 125.—Después de la comparecencia oral y privada, el órgano director evacuará la prueba de descargo ofrecida por el investigado durante aquélla, así como cualquier otra que resulte necesaria para determinar la verdad real de los hechos.

@@ -1,0 +1,1 @@
+Artículo 25.—La publicación de la convocatoria a concurso interno deberá consignar los requisitos del puesto, los factores de selección y el valor asignado a cada uno de ellos. Se imprimirá en caracteres fácilmente legibles y se colocará en los sitios más visibles de todos los centros de trabajo de AyA, donde se mantendrá por un plazo no inferior a cinco días hábiles.

@@ -1,0 +1,1 @@
+Artículo 93.—Los Jefes de Departamento, con el visto bueno del Director de Área o de la Jefatura Regional pueden otorgar discrecionalmente a sus funcionarios permiso con o sin goce de salario hasta por un máximo de dos días hábiles, cuando existan motivos que, a su juicio, lo justifiquen.

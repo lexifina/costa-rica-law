@@ -1,0 +1,3 @@
+Artículo 2º—A los efectos de la aplicación de este reglamento, se entenderá que:
+a) Servidor o trabajador es toda persona física que, a cambio de una remuneración y en virtud de un acto válido y eficaz de nombramiento, presta sus servicios a AyA, temporal o permanentemente, como parte de su organización, en forma personal o subordinada.
+b) Representante institucional es el Presidente Ejecutivo, el Gerente, el Subgerente, el Director de Área y todo servidor de AyA que represente a la organización, cuyos actos produzcan, respecto a otros servidores, efectos imputables a la Institución como tal, según sus funciones y competencias conforme con la Ley y Reglamentos.

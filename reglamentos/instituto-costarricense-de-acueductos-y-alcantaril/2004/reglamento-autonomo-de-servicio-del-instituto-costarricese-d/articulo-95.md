@@ -1,0 +1,1 @@
+Artículo 95.—El otorgamiento de permisos y becas para estudios se regirá por lo que disponga el Reglamento de Becas para Capacitación y Desarrollo de Personal vigente y por las demás disposiciones jurídicoadministrativa aplicables en la materia.

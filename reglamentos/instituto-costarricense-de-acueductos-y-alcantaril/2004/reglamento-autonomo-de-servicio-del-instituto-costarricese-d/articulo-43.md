@@ -1,0 +1,1 @@
+Artículo 43.—AyA, como ente patronal, queda sujeto a las obligaciones y prohibiciones establecidas en la Constitución Política y en los artículos 69 y 70 del Código de Trabajo y en sus leyes conexas y supletorias.

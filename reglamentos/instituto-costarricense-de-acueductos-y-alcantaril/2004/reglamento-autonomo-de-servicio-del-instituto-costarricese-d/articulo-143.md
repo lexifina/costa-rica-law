@@ -1,0 +1,2 @@
+Artículo 143.—Las reasignaciones de puestos serán aprobadas por la Junta Directiva y entrarán en vigencia a partir del primer día del mes siguiente a aquél en que se emita dicha aprobación, salvo disposición en contrario contenida en los lineamientos que para tal efecto formule la Autoridad Presupuestaria y apruebe el Presidente de la República.
+El pago de los aumentos que se produzcan con motivo de las reasignaciones de puestos, queda sujeto al contenido presupuestario y a la aprobación de los entes externos respectivos cuando se requiera.

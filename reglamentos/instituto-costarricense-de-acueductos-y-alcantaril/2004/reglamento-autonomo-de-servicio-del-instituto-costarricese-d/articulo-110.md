@@ -1,0 +1,1 @@
+Artículo 110.—Las pruebas serán apreciadas de conformidad con las reglas de la sana crítica, esto es, de acuerdo a la lógica, la ciencia y la experiencia, y la resolución final deberá ser expresamente motivada en derecho y con arreglo a la técnica jurídica.

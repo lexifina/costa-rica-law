@@ -1,0 +1,1 @@
+Artículo 122.—A partir de la notificación inicial, cuando razones muy calificadas de necesidad o conveniencia evidentes así lo exijan, previa consulta a la Comisión sobre Conflictos Laborales, la Gerencia General, mediante resolución motivada, podrá dictar la suspensión cautelar del presunto infractor.

@@ -1,0 +1,1 @@
+Artículo 35.—La Administración Superior podrá modificar los horarios siempre que circunstancias especiales, excepcionales y comprobadas, lo hagan necesario y que, con ello, no se cause perjuicio a los derechos adquiridos de los servidores o a sus situaciones jurídicas consolidadas.

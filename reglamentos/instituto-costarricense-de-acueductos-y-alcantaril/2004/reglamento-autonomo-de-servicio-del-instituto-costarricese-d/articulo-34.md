@@ -1,0 +1,1 @@
+Artículo 34.—Los servidores cumplirán su jornada de trabajo dentro de los horarios que la Administración Superior establezca, con derecho a un receso de setenta y cinco minutos que corresponda a cuarenta y cinco minutos para el almuerzo y quince minutos tanto en la mañana como en la tarde para el refrigerio.

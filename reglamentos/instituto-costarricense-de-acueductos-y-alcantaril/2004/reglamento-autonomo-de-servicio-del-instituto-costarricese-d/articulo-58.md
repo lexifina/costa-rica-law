@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De la salud ocupacional
+Artículo 58.—De conformidad con el Código de Trabajo y sus leyes supletorias y conexas, así como lo dispuesto en el reglamento sobre las oficinas o departamentos de salud ocupacional, publicado en el diario Oficial La Gaceta de 25 de noviembre de 1998, y con las recomendaciones que en esta materia formulen tanto el Consejo de Salud Ocupacional como las autoridades de inspección del Ministerio de Trabajo y Seguridad Social y del Instituto Nacional de Seguros, AyA adoptará las medidas necesarias para garantizar la prevención y control de los riesgos del trabajo y la protección de la salud y la preservación de la integridad física, moral y social de sus servidores.

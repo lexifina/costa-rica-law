@@ -1,0 +1,1 @@
+Artículo 86.—Conforme a lo dispuesto en el artículo 80 del Código de Trabajo, la Administración Superior podrá destituir al servidor que haya permanecido incapacitado por más de tres meses consecutivos, cubriendo a éste el importe de las prestaciones legales que pudieran corresponderle.

@@ -1,0 +1,1 @@
+Artículo 135.—El recurso de revocatoria deberá resolverse dentro de los quince días hábiles posteriores a su presentación y el de apelación dentro de los quince días hábiles posteriores al recibo del expediente por el superior, salvo en los casos en que se requiera evacuar prueba para mejor proveer, para lo cual se fijará una prórroga que no supere el plazo indicado.

@@ -1,0 +1,1 @@
+Artículo 84.—Con el visto bueno de su jefe inmediato, el servidor podrá tramitar en la Dirección de Recursos Humanos un adelanto de sus vacaciones, que, en ningún caso, podrá superar el número de días que proporcionalmente corresponda a los meses laborados.

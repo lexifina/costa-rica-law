@@ -1,0 +1,1 @@
+Artículo 146.—Los miembros de la comisión actuarán con independencia de criterio y su posición no afectará su relación laboral con el Instituto y serán nombrados por un periodo de un año, con posibilidad de ser prorrogados por un periodo igual, y así sucesivamente. Cada periodo iniciará la primera quincena del mes de enero de cada año.

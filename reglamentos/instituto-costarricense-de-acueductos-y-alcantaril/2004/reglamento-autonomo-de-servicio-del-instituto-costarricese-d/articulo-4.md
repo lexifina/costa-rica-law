@@ -1,0 +1,1 @@
+Artículo 4º—En virtud del principio de legalidad, el servidor no podrá disfrutar de más beneficios, ni la Administración ejercer mayores potestades que las expresamente autorizadas por las leyes y este reglamento o por las demás normas del ordenamiento jurídico.

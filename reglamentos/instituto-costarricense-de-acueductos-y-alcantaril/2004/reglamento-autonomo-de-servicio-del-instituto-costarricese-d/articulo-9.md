@@ -1,0 +1,1 @@
+Artículo 9º—La Institución está regida por una Junta Directiva de nombramiento del Consejo de Gobierno, de conformidad con la Ley N° 5507 del 19 de abril de 1974, reformada por la Ley N° 5915 del 12 de julio de 1976, teniendo las atribuciones que le otorga el artículo 11 de la Ley Constitutiva de AyA.

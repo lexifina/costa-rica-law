@@ -1,0 +1,1 @@
+Artículo 127.—A partir del momento en que la Gerencia General reciba todos lo informes y atestados resultantes de la instrucción del procedimiento disciplinario, contará con un plazo improrrogable de un mes para dictar la resolución final.

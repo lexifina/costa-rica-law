@@ -1,0 +1,1 @@
+Artículo 154.—Recomendación de la Comisión. La Comisión, como órgano consultivo, se abocará al análisis del expediente administrativo recibido por la Gerencia, evaluará la conveniencia institucional de la recomendación dictada por el órgano director y en un plazo no mayor a ocho días naturales, emitirá su criterio no vinculante ante la Gerencia General del Instituto.

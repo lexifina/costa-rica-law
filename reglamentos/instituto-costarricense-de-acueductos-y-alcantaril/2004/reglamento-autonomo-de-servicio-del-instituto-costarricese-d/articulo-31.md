@@ -1,0 +1,1 @@
+Artículo 31.—Para ser nombrado en cualquiera de las modalidades previstas en este reglamento, el aspirante deberá reunir los requisitos para la clase del puesto de que se trate, según lo dispuesto en el Manual Descriptivo de Clases de AyA.

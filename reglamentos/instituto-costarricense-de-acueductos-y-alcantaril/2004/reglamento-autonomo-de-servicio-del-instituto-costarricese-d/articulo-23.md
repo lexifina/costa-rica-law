@@ -1,0 +1,1 @@
+Artículo 23.—En los casos de ascensos, permutas y traslados será aplicable el período de prueba establecido en el artículo 15 de este reglamento. Para tal efecto el servidor gozará de licencia en su puesto anterior durante el período de prueba, el cual será aplicable asimismo a su sustituto.

@@ -1,0 +1,1 @@
+Artículo 67.—La dedicación exclusiva, prohibición, carrera profesional, disponibilidad, viáticos, zonaje, notariado y otros similares, se pagarán de acuerdo con lo establecido por el ordenamiento jurídico vigente.

@@ -1,0 +1,1 @@
+Artículo 129.—La Gerencia General o la Dirección Jurídica notificará el acto administrativo y la Dirección de Recursos Humanos ejecutará la resolución que se emita. Dicha resolución surtirá efectos a partir del día siguiente al de la notificación.

@@ -1,0 +1,2 @@
+Artículo 19.—En caso de inopia comprobada, la Administración podrá nombrar interinamente a personas que no cumplan con los requisitos reglamentarios del puesto vacante, para lo cual se preferirá a funcionarios de AyA, quienes deberán en un plazo preestablecido realizar los estudios y prácticas necesarias del puesto.
+La inopia será comprobada en forma previa mediante concurso interno debidamente publicado en el lugar de trabajo, y en caso necesario posteriormente mediante concurso externo cuya convocatoria se publicará en un diario de circulación nacional.

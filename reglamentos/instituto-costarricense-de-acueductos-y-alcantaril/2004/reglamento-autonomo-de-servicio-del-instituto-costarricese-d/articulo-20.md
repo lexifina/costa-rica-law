@@ -1,0 +1,1 @@
+Artículo 20.—El Presidente Ejecutivo será nombrado por el Consejo de Gobierno. El Gerente, el Subgerente, el Auditor, Subauditor, Directores y Subdirectores, serán nombrados o removidos por la Junta Directiva, con arreglo a lo dispuesto en las leyes y reglamentos respectivos.

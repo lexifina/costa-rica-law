@@ -1,0 +1,1 @@
+Artículo 66.—Cuando se decreten aumentos salariales que beneficien a servidores de la Institución, la Dirección de Recursos Humanos ejecutará de inmediato los trámites necesarios para hacer efectivo su pago, previa autorización de los entes competentes.

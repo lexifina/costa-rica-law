@@ -1,0 +1,1 @@
+Artículo 83.—Queda prohibido acumular las vacaciones, pero podrán serlo por una sola vez cuando el servidor desempeñe labores técnicas, de dirección, de confianza u otras análogas, que dificulten especialmente su reemplazo. A este efecto, la jefatura respectiva solicitará a la Dirección de Recursos Humanos o Jefatura Regional según corresponda la respectiva autorización.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la naturaleza y contenido de la relación de servicio
+Artículo 12.—En su relación laboral con la Institución, el servidor está sujeto a las condiciones derivadas de la clase y puesto originadas en el acto de su nombramiento, la cual deberá formalizarse mediante acción de personal y, además de las disposiciones e instrucciones particulares que contenga, tendrá como incorporados, -y así se entenderá-, las normas del presente reglamento, las contenidas en los acuerdos de la Junta Directiva y todas las demás del ordenamiento jurídico administrativo en materia de empleo público y manuales de puestos.
