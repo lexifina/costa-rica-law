@@ -1,0 +1,1 @@
+Articulo 5° Las empresas de transporte aéreo y demás operadores deberán presentar a la Dirección General de Aviación Civil, los informes estadísticos que les corresponda con la periodicidad y dentro de los plazos estipulados para cada formulario.

@@ -1,0 +1,1 @@
+Artículo 19° Los accidentes que deberán ser recopilados, son aquellos que se encuentren enmarcados dentro de la definición que se consigna en el artículo 1° del Decreto Ejecutivo N° 3429-T de 10 diciembre de 1973 (Reglamento para Encuesta de Accidentes e Incidentes Aeronáuticos).

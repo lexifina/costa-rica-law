@@ -1,0 +1,1 @@
+Artículo 22° El formulario de Tráfico de Aeropuertos (DEA-006) deberá ser completado mensualmente con datos de todos los aeropuertos internacionales del país y de los aeropuertos del interior que cuenten por lo menos con una autoridad competente que pueda proporcionar o verificar la información que se necesita.

@@ -1,0 +1,1 @@
+Artículo 16° Las estadísticas contables adaptables al Sistema Contable Uniforme (DEA-004) deberán ser preparadas mensualmente. Los informes deberán enviarse a la Dirección General de Aviación Civil a mas tardar 30 días después del mes que se reporta.

@@ -1,0 +1,1 @@
+Artículo 25° Las empresas de aviación o personas físicas que cuenten con el permiso respectivo para dedicarse a actividades de aviación agrícola deberán enviar a la Dirección General de Aviación Civil el Formulario de Aviación Agrícola (DEA-007) en forma mensual, a mas tardar 15 días después del fin del mes que se está reportando.

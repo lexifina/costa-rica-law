@@ -1,0 +1,1 @@
+Articulo 21° El formulario de Tráfico de Aeropuertos (Apéndice 6) será recopilado por la propia Dirección General de Aviación Civil a través de los datos que proporcionen los servicios de control de tránsito aéreo y las empresas de transporte aéreo, así como otras dependencias gubernamentales que ejerzan funciones de control en los aeropuertos (Migración, Aduanas etc.)

@@ -1,0 +1,1 @@
+Articulo 28° Cuando se formulen nuevos Apendices de este Reglamento, o cuando los existentes ameriten modificaciones debido al aumento de las actividades aéreas, el Ministerio de Obras Públicas y Transporte, a través de la Dirección General de Aviación Civil, lo pondrá en conocimiento del público para que los interesados procedan al cumplimiento del nuevo Apéndice.

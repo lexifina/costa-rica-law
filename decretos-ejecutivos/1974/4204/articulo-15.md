@@ -1,0 +1,1 @@
+Artículo 15° El Sistema Contable Uniforme (Apéndice 4 al presente Reglamento) deberá ser llevado a cada una de las empresas de transporte aéreo nacional que prestan servicios aéreos regulares o no regulares.

@@ -1,0 +1,1 @@
+Artículo 4° para la recopilación de los datos que se necesitan en la preparación de las series estadísticas, la Dirección General de Aviación Civil entregará a las empresas de transporte aéreo y operadores que corresponda, los diseños de los formularios estadísticos que se necesiten, así como también una copia del catálogo de cuentas.

@@ -1,0 +1,1 @@
+Articulo 12° El formulario de Flota y Personal (Apendice 3 al presente Reglamento) deberá ser completado por cada una de las líneas aéreas nacionales que prestan servicios aéreos regulares o no regulares.

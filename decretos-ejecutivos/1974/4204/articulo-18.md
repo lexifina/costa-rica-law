@@ -1,0 +1,1 @@
+Artículo 18° El formulario de Accidentes de Aviación (Apéndice 5 ), será recopilado por la propia Dirección General de Aviación Civil. En dicho formulario se incluirán todos los datos relacionados con accidentes que se hayan tenido aeronaves civiles matriculadas, en el país, independientemente de que el accidente haya ocurrido en el país o en el extranjero.

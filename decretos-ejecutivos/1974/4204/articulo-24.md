@@ -1,0 +1,1 @@
+Articulo 24° El formulario de Aviación Agrícola (apéndice 7) deberá ser completado por cada una de las empresas o personas físicas que se dediquen a actividades de aviación agrícola de conformidad con el artículo 100 de la Ley General de Aviación Civil.

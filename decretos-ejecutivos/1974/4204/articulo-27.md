@@ -1,0 +1,1 @@
+Artículo 27° El Ministerio de Obras Públicas y Transportes por medio de Apéndices a este Reglamento podrá, cuando las circunstancias lo justifiquen, modificar, ampliar, reducir o aumentar los formularios estadísticos, tanto en su forma y contenido como en las instrucciones especiales para completarlos que aparecen en los propios formularios.

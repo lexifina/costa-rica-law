@@ -1,0 +1,1 @@
+Artículo 13° El formulario de Flota y Personal (DEA-003) debe prepararse con referencia al año calendario (de enero a diciembre). Sin embargo, si ese método no fuese el más práctico, puede prepararse con referencia al año fiscal.
