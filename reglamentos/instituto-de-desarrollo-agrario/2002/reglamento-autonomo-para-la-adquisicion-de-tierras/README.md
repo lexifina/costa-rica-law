@@ -15,3 +15,4 @@ Reglamento Autónomo para la Adquisición de Tierras
 | --- | --- | --- |
 | 1 | 2002-12-01 | la propia norma |
 | 2 | 2003-07-21 | Reglamento 35 (2003-07-21) |
+| 3 | 2004-04-12 | Reglamento 13 (2004-04-12) |
