@@ -1,0 +1,2 @@
+Artículo 17.- Los préstamos, créditos y avales se otorgarán para los propósitos y en las condiciones que establezcan los reglamentos de cada cooperativa.
+Cada consejo de administración establecerá las políticas, en cuanto a las garantías y demás condiciones de esas operaciones; asimismo le corresponde otorgarlas; pero podrá delegar esas potestades en una comisión de crédito, nombrada por él mismo, o en funcionarios de la propia cooperativa, de acuerdo con los montos establecidos en los reglamentos.

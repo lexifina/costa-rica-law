@@ -1,0 +1,1 @@
+Artículo 37.- El régimen de sanciones, saneamiento, intervenciones, totales o parciales, y la liquidación de las organizaciones cooperativas de ahorro y crédito se regirá por lo dispuesto en la Ley Orgánica del Banco Central de Costa Rica, en el título correspondiente a la Auditoría General de Entidades Financieras.

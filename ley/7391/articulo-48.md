@@ -1,0 +1,2 @@
+Artículo 48.- Adiciónase un párrafo al artículo 21 de la Ley de Asociaciones Cooperativas, Nº 4179 del 22 de agosto de 1968 y sus reformas, cuyo texto dirá:
+"La regulación y la supervisión de las organizaciones cooperativas de ahorro y crédito las efectuará la Auditoría General de Entidades Financieras, de conformidad con la Ley Reguladora de la Actividad de Intermediación Financiera de las Organizaciones Cooperativas."

@@ -1,0 +1,1 @@
+Artículo 25.- La razón de endeudamiento de las cooperativas de ahorro y crédito no podrá exceder de diez a uno. Esta razón se define como la relación entre el pasivo total, incluidos los pasivos contingentes, y el capital suscrito y pagado, las reservas y otras cuentas patrimoniales no sujetas a distribución.

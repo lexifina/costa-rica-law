@@ -1,0 +1,1 @@
+Artículo 20.- Los integrantes del consejo de administración o los del órgano correspondiente no podrán participar en la votación ni en el análisis de solicitudes de crédito, en que tengan interés directo o interesen a sus familiares, hasta el segundo grado de consanguinidad o afinidad.

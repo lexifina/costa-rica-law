@@ -11,3 +11,6 @@ Funcionarán de acuerdo a las siguientes normas especiales:
 6. La asamblea nombrará una comisión de crédito, compuesta de tres a cinco miembros, la cual debe pronunciarse sobre cada solicitud de crédito.
 7. El INFOCOOP podrá conceder créditos a largo plazo a las cooperativas de ahorro y crédito refaccionario que tengan créditos dirigidos a la agricultura, para que sus asociados de escasos recursos puedan hacer efectivos sus programas de desarrollo agrícola familiar. Las Agencias Locales de Extensión Agrícola del Ministerio de Agricultura y Ganadería, deberán actuar como organismo de asistencia técnica de la inversión.
 8. Los documentos de crédito a favor de estas cooperativas podrán ser negociados o descontados por cualquier institución de crédito.
+La regulación y la supervisión de las organizaciones cooperativas de ahorro y crédito las efectuará la Superintendencia General de Entidades Financieras(*), de conformidad con la Ley Reguladora de la Actividad de Intermediación Financiera de las Organizaciones Cooperativas.
+(Así adicionado el párrafo anterior por el artículo 48 de la ley N° 7391 del 27 de abril de 1994)
+(*)(Modificada su nomenclatura por el artículo 176° de la Ley Orgánica del Banco Central de Costa Rica, N° 7558 del 3 de noviembre de 1995)

@@ -1,0 +1,1 @@
+Artículo 43.- Las sociedades cooperativas de ahorro y crédito que se constituyan para brindar a tales cooperativas, servicios financieros de los definidos en esta Ley, deberán contar con la autorización previa de la Auditoría General y estarán supervisadas por ella.

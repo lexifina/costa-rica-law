@@ -1,0 +1,1 @@
+Artículo 45.- Los organismos de integración y las sociedades cooperativas sólo deberán constituir la reserva legal. No están obligadas a pagar las cuotas a los organismos cooperativos que señale la ley ni a conformar comités de educación y bienestar social.
