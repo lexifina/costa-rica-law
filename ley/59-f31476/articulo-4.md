@@ -1,0 +1,2 @@
+Artículo 4°-El sobrante de las rentas, si lo hubiere, se aplica al fomento de obras nacionales y especialmente al desarrollo de la educación pública.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José á los veintinueve días del mes de julio de mil ochocientos ochenta y siete.-A. ESQUIVEL, Presidente.-MÁXIMO FERNÁNDEZ, Secretario. -AND. SAENZ, Secretario ad hoc.-Palacio Presidencial.-San José, á treinta y uno de julio de mil ochocientos ochenta y siete.-Ejecútese.- A. DE JESÚS SOTO.-El Ministro de Hacienda y Comercio.-MAURO FERNÁNDEZ.
