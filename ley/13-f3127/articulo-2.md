@@ -1,0 +1,1 @@
+Artículo 2º.- Forman el Colegio los abogados graduados en Costa Rica e incorporados en él, de acuerdo con las leyes y Tratados. Se tendrán desde luego por inscritos los que actualmente figuran como miembros del Colegio, y de pleno derecho quedarán inscritos también los abogados graduados o incorporados por la Universidad.

@@ -1,0 +1,1 @@
+Artículo 26.- Estarán exentos de contribuir para el Fondo de Mutualidad y Subsidios, conservando todos sus derechos, los abogados mayores de setenta años; y, temporalmente, los abogados a quienes la Junta Directiva del Colegio conceda esa gracia en atención a dificultades económicas.

@@ -1,0 +1,1 @@
+Artículo 33.- La Directiva del Colegio formará cada año, en una de las primeras sesiones, una lista de doce jurisconsultos que tengan las capacidades exigidas en el inciso 2º del artículo 30, y designará también en cada caso tres miembros para integrar el Comité encargado de la consulta.

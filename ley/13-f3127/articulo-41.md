@@ -1,0 +1,1 @@
+Artículo 41.- Los acuerdos y resoluciones del Presidente del Colegio y de la Junta de Gobierno, en materia de su competencia, se ejecutará, desde luego. Los recursos contra dichos acuerdos y resoluciones se concederán para ante el Colegio, sólo en el efecto devolutivo.
