@@ -1,1 +1,0 @@
-Artículo 42.—El Concejo Municipal podrá pasar los dictámenes de comisión a conocimiento de otra comisión o alguna asignada especialmente por el Presidente, para que se pronuncie sobre un caso en concreto.

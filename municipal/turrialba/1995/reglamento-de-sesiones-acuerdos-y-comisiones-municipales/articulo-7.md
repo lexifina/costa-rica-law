@@ -1,1 +1,0 @@
-Artículo 7°—La convocatoria se notificará personalmente al funcionario o en su casa de habitación. En uno y otro caso, firmará la persona que reciba la notificación, debiendo la autoridad o el funcionario notifícador, hacerlo constar en el Acta de notificaciones.

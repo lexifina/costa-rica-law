@@ -1,2 +1,0 @@
-Artículo 12.—El Regidor Suplente que sustituyera a un Propietario, tendrá derecho a permanecer durante toda la sesión, como miembro del Concejo con voz y voto y el derecho a devengar la dieta de propietario.
-Si la sustitución se hubiera efectuado después de los quince minutos a que se refiere el artículo anterior, el Regidor Suplente pasará a ser Regidor Propietario devengando la dieta de Suplente.

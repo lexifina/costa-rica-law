@@ -1,1 +1,0 @@
-Artículo 52.—Finalizadas las exposiciones de los particulares, el Presidente concederá el uso de la palabra a los miembros del Concejo Municipal que lo soliciten con el fin de que puedan intercambiar opiniones con los visitantes sobre el asunto de que se trate.

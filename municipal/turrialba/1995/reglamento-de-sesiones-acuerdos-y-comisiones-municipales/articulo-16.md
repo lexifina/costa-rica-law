@@ -1,1 +1,0 @@
-Artículo 16.—Una vez leída el acta de ser aprobada, cualquier Regidor o Síndico podrán plantear revisión de acuerdos, salvo respecto de los que hayan aprobado definitivamente conforme al Código Municipal. La misma mayoría requerida para dictar el acuerdo, será necesaria para acordar su revisión.

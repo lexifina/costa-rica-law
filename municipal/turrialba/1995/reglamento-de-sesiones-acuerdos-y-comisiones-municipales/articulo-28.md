@@ -1,1 +1,0 @@
-Artículo 28.—Toda iniciativa tendiente a adoptar, reformar, suspender o derogar disposiciones reglamentarias debe ser presentada o acogida para su trámite por algún Regidor Propietario y enviada a Comisión, para su estudio y dictamen.
