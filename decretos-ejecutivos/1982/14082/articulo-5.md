@@ -35,11 +35,11 @@ Dentífricos.
 Fósforos y cerillas a granel o en empaques
 Frijoles, excepto enlatados o envasados
 Frutas frescas, excepto manzanas, uvas y peras
-Galletas, excepto las enlatadas
+(Eliminada la mercancía "Galletas, excepto las enlatadas", por el artículo 1° del decreto ejecutivo N° 23785 del 9 de noviembre de 1994)
 Garbanzos, excepto enlatados o envasados
 Harinas de legumbres y frutas
 Harinas finas y gruesas de trigo, escanda, comuña, centeno, maíz y otros cereales.
-Helados
+(Eliminada la mercancía "Helados", por el artículo 1° del decreto ejecutivo N° 23785 del 9 de noviembre de 1994)
 Hortalizas, excepto enlatadas o envasadas.
 Huevos frescos comestibles, con cascarón, de toda clase de ave.
 Jabón en barra para lavar
