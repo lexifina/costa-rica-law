@@ -1,4 +1,1 @@
-Artículo 9º.-En la audiencia oral y pública, el tribunal fijará los hechos que a su juicio deben ser probados y dispondrá la evacuación de la prueba que considere pertinente.
-Para la celebración de dicha audiencia, el tribunal gozará de las más amplias facultades a fin de idear o adoptar las formas procedimentales que mejor convengan a la buena resolución del negocio.
-Evacuada la prueba, el tribunal entrará de inmediato a dictar su fallo, consignándolo en un acto lacónica. Dicho fallo se tomará por mayoría, pero si ésta no se produjere, ello se hará constar en el expediente y el asunto quedará fallado conforme al voto del presidente del tribunal, quedando los otros miembros del mismo exonerados de cualquier responsabilidad civil o penal por motivo del fallo referido.
-Al alcalde que ha tramitado el proceso, corresponde la ejecución del fallo.
+Artículo 9º.-La fijación del monto de los correspondientes extremos en los procesos en que recaiga condenatoria, podrá hacerse por el instructor que tuvo a su cargo la tramitación, cuando así lo disponga el Tribunal, lo mismo que las demás diligencias de ejecución, dentro de un término no mayor de ocho días.

@@ -1,0 +1,1 @@
+III.- El Tribunal que se crea, conocerá de los asuntos que se inicien después de entrar en vigencia esta ley, como también de los que se encuentren ya en tramitación en las dos Alcaldías, a los cuales se aplicarán en lo posible las nuevas disposiciones.

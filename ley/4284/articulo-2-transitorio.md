@@ -1,0 +1,1 @@
+II.- El personal de las Alcaldías de Trabajo de San José, pasará a formar el del Tribunal a que se refiere esta ley, o a las oficinas que disponga la Corte Suprema de Justicia, conservándoles su categoría.
