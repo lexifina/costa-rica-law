@@ -1,0 +1,1 @@
+ARTÍCULO 10.-El examen verbal versar sobre la defensa de la crítica que se haga al tema escrito y sobre cuestiones que en relación con su profesión le fueren presentadas al candidato por la comisión de examen.

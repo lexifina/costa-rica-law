@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-Todo Ingeniero o Agrimensor público que no está‚ comprendido en las categorías indicadas en el artículo 4°, no ser admitido, sino por vía de incorporación, en la forma que m s adelante se dirá .

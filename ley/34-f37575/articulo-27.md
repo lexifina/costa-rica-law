@@ -1,0 +1,1 @@
+ARTICULO 27.-Al Fiscal corresponde vigilar por los intereses y buen nombre de la Facultad y por qué se cumplan las disposiciones de esta ley y de su reglamento, dando cuenta inmediatamente al Presidente de cualquier irregularidad que note dentro fuera de la Facultad.
