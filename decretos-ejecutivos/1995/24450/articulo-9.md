@@ -1,0 +1,1 @@
+Artículo 9º.- Corresponderá al jefe inmediato del funcionario que devenga dicho incentivo, comunicar dentro de los ocho días siguientes, al Departamento de Recursos Humanos del Ministerio, los cambios en la relación laboral del trabajador que implique una suspensión de este reconocimiento, con el fin de que se efectúen las acciones correspondientes.

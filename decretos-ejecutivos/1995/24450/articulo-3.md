@@ -1,0 +1,1 @@
+Artículo 3º.- Se concederá como pago por este incentivo, hasta un 50% del monto máximo establecido por la Contraloría General de la República, para el pago de zonaje en la geografía donde se encuentra el área silvestre protegida.

@@ -1,0 +1,1 @@
+Artículo 7º.- El reconocimiento de este incentivo económico para el servidor, deberá constar en acción de personal emitida por el Departamento de Recursos Humanos del MIRENEM, en la que se consignará el área silvestre en la que labora.
