@@ -1,0 +1,1 @@
+Art. 2. Los introductores pueden traer en derechura á sus Almacenes los efectos reconocidos, con la obligación de ponerlos de manifiesto á la vez que haya hacerse de confrontación prevenida; pagando los derechos causados por terceras partes: á los cinco otra, y á los ocho la última; pues no habiendo extraido dentro de éste término deben considerarse consumidos en el país.
