@@ -14,3 +14,4 @@ Reglamento para la Inscripción de Asociaciones Cooperativas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-05-28 | la propia norma |
+| 2 | 1999-02-15 | Decreto Ejecutivo 27653 (1999-02-15) |
