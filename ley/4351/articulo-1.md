@@ -1,4 +1,5 @@
 N° 4351
+(Nota de Sinalevi: De conformidad con el artículo 30 de la Ley para Garantizar al País Mayor Seguridad y Orden, N° 6122 del 17 de noviembre de 1977, se estableció lo siguiente: “Artículo 30.- Las disposiciones de esta ley se aplicarán tanto al Banco Popular y de Desarrollo Comunal como al Monte Nacional de Piedad, los cuales se regirán en lo pertinente por las disposiciones de esta ley y su reglamento.”)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 Ley Orgánica del Banco Popular y de Desarrollo Comunal
