@@ -1,3 +1,2 @@
 Disposiciones Transitorias
-Transitorio 1°-El Consejo de Gobierno procederá a nombrar a los miembros de la Junta Directiva del Servicio Nacional de Acueductos y Alcantarillado, dentro del mes siguiente de haber recibido las listas o nóminas de los respectivos Colegios Profesionales.
-La Junta Directiva se renovará a razón de un miembro cada año. En la primera Junta Directiva, la suerte decidirá cuál miembro se renovará cada año. El Consejo de Gobierno cada vez elegirá al Director sustituto de aquél que resulte separado en el sorteo. Al finalizar los primeros seis años de la elección original se procederá a sustituir al Director que en ese momento termine su período.
+Transitorio 1°-(Derogado por transitorio I de la Ley Nº 5915 de 12 de julio de 1976).

@@ -1,1 +1,2 @@
 Transitorio 3°-Los derechos laborales adquiridos por los funcionarios y empleados de las dependencias del Ejecutivo y de las Municipalidades que pasan a servir al Servicio, serán asumidos por éste, así como también los derechos laborales de aquellos empleados que, por virtud de disposición de esta ley, fueren despedidos de su trabajo.
+(Nota de Sinalevi: Mediante transitorio II de la Ley Nº 5915 de 12 de julio de 1976, se indicó que se entenderá modificada este numeral)

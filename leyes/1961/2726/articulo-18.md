@@ -1,10 +1,3 @@
-Artículo 18.-El capital y los ingresos ordinarios y extraordinarios del servicio estarán formados por:
-a) Todas las propiedades e instalaciones de los organismos del estado que hoy están destinados a la prestación de servicios relativos a la captación, tratamiento y distribución de aguas potables, servidas o pluviales, en el país.
-b) Todos los materiales y equipo de trabajo del departamento de Ingeniería Hidráulicas del Ministerio de Obras Públicas y del Departamento de Ingeniería Sanitaria del Ministerio de Salubridad Pública, que se requieran para los fines de esta ley;
-c) Los materiales de cañería que se encuentren en poder del Ministerio de Obras Públicas, incluyendo el período por ¢20.000,000.00 que fue autorizado por la Asamblea Legislativa según ley N° 2310;
-d) El aporte autorizado por ley N° 2310 de 18 de diciembre de 1958;
-e) El producto de la renta filatélica, y de los nuevos ingresos originados en el establecimiento de la reciprocidad en el pago de los derechos de residencia de los extranjeros, hasta la suma de ¢3.000,000.00 por año, según los proyectos de ley que para crear estos nuevos ingresos deberá enviar al Poder Ejecutivo a conocimiento de la Asamblea Legislativa en un plazo máximo de dos meses contados a partir de la promulgación de esta ley. En el caso de que dichos ingresos no alcancen la indicada suma de ¢3.000,000.00 por año, el Poder Ejecutivo enviará a la Asamblea Legislativa otro proyecto de ley, garantizándole nuevas rentas a este Servicio, hasta completar aquella suma;
-f) El producto de sus utilidades netas;
-g) Las asignaciones especiales que le haga la Asamblea Legislativa o que se hayan hecho para el cumplimiento de los fines que persigue esta ley;
-h) (Derogado por el artículo 2° de la ley N° 3583 del 9 de noviembre de 1965)
-i) Las donaciones que le hagan las instituciones autónomas, Municipalidades y cualesquiera personas físicas o jurídicas, públicas o privadas. Estas instituciones y las del Estado no necesitarán autorización legislativa para hacerle donaciones e materiales o dinero. En los demás casos, necesitarán esa autorización.
+Artículo 18.- Todas las propiedades e instalaciones de los organismos del Estado que estén destinadas a la prestación de servicios relativos a la captación, tratamiento y distribución de aguas potables y evacuación de aguas servidas o pluviales en el país, son patrimonio nacional.
+Para los efectos jurídicos, administrativos financieros y de tarifas se considerarán parte del capital del ente bajo cuya administración se encuentren.
+(Así reformado por el artículo 1° de la ley N° 5915 del 12 de julio de 1976)

@@ -1,2 +1,2 @@
-Transitorio 7°-Para los gastos de organización y administración del Servicio Nacional de Acueductos y Alcantarillado durante el año 1961, destinase quinientos mil colones ( ¢ 500.000.00) de las utilidades cambiarias que obtengan durante este mismo año el Banco Central en sus intervenciones en el mercado libre, a que se refiere el inciso d) del artículo 37 de la Ley de Pagos Internacionales N° 1351 de 29 de setiembre de 1951.
+Transitorio 7°-(Derogado por transitorio I de la Ley Nº 5915 de 12 de julio de 1976).
 Casa Presidencial.-San José, a los catorce días del mes de abril de mil novecientos sesenta y uno.
