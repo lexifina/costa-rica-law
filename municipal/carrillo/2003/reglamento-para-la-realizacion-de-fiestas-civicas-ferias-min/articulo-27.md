@@ -1,0 +1,1 @@
+Artículo 27.—El presente Reglamento deroga cualquier disposición reglamentaria municipal que se le oponga y una vez publicado en el Diario Oficial La Gaceta, entrará a regir a partir del 1° de enero del 2004.

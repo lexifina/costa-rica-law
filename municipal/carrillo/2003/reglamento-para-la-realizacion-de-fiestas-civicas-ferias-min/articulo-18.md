@@ -1,0 +1,1 @@
+Artículo 18.—Cumplidos los requisitos de la respectiva actividad, el Alcalde Municipal emitirá una resolución que entregará a la organización solicitante, acreditándola para realizarla. De no cumplirse con los requisitos estipulados y el tiempo de presentación, se negará el permiso dando por escrito las razones que fundamenten la negativa.
