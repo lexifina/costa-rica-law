@@ -1,0 +1,1 @@
+Artículo 2°—La Reserva Forestal Rubén Torres Rojas será administrada por la Dirección General Forestal del Ministerio de Recursos Naturales, Energía y Minas de conformidad con las disposiciones de la Ley Forestal N° 7174 del 28 de junio de 1990.
