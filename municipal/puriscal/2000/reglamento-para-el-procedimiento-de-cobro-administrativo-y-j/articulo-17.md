@@ -1,0 +1,1 @@
+Artículo 17.—Está prohibido para los abogados hacer cualquier tipo de arreglo indirecto o extrajudicial o recibir pagos o abonos al principal de la deuda. Los honorarios profesionales los calculará el abogado adjuntándose el mismo al expediente y se cobrará al contribuyente en el mismo recibo por pago de tributos.

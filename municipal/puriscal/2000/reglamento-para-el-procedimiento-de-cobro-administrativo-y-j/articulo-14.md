@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los abogados
+Artículo 14.—Los abogados que se contraten para realizar el cobro judicial se harán por honorarios a profesionales y técnicos. Estos nombramientos serán temporales y sin sujeción laboral y no generarán ningún beneficio contemplados en reglamentos, convenios simples o convenciones colectivas negociados por los empleados permanentes de la Municipalidad. El nombramiento se hará con cargo a la subpartida presupuestaria correspondiente, cumpliéndose con lo dispuesto en la Ley de Contratación Administrativa Nº 7794 y sus reformas. Para la cancelación de éstos se elaborará la correspondiente orden de compra y se hará efectiva con base en los montos de morosidad recuperados.

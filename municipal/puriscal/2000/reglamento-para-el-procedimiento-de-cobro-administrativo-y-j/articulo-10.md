@@ -1,0 +1,4 @@
+Artículo 10.—A la Oficina de Cobros corresponde ejercer control de la labor realizada por todos los abogados contratados por la Municipalidad, mediante el siguiente procedimiento:
+a. Mediante revisión de los informes mensuales que deberán rendir los abogados de acuerdo con lo que establece este Reglamento.
+b. Mediante requerimiento escrito de la oficina encargada del cobro sobre el avance de cada proceso o de alguna gestión en particular, de cualquier cuenta que se encuentre en gestión judicial.
+c. Los servidores de la oficina de cobros deberán informar a su jefe inmediato, de cualquier anomalía o irregularidad observada en el desempeño de la labor profesional de los abogados contratados. Lo anterior con el propósito de realizar una investigación, señalar omisiones e irregularidades en el cobro de cuentas atrasadas y si fuera del caso suspender al abogado de su gestión hasta que este cumpla con las indicaciones expresas establecidas en el presente Reglamento.

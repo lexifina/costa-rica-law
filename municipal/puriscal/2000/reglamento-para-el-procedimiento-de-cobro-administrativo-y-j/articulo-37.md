@@ -1,0 +1,1 @@
+Artículo 37.—Dación del pago. El procedimiento para la extinción de la obligación tributaria municipal mediante dación en el pago, se regirá por el Decreto Ejecutivo Nº 20870-H del 27-10-91, publicado en La Gaceta Nº 234 del 6-12-91, que reglamentó el artículo 4º de la Ley Nº 7218.
