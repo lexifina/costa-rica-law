@@ -1,5 +1,6 @@
 Envío del Material Electoral a las Juntas
-Artículo 33.- Quince días antes del fijado para celebrar las elecciones, el Registro empezará a enviar el material y la documentación electorales a las Juntas de cantón, las cuales los distribuirán en seguida entre las Juntas Receptoras de Votos, de modo que lleguen a poder de éstas por lo menos ocho días antes de la elección.
+Artículo 33.- Quince días antes cuando menos del fijado para celebrar las elecciones el Registro habrá terminado de enviar el material y la documentación electorales a las Juntas de Cantón, las cuales los distribuirán en seguida entre las Juntas Receptoras de Votos, de modo que lleguen a poder de éstas por lo menos ocho días antes de la elección. Del Padrón-Registro a que se refiere el inciso d) de este artículo, se entregará copia debidamente contramarcada a los Partidos Políticos inscritos en escala nacional que participaren en las elecciones, con quince días de anterioridad a la fecha en que se celebren las mismas.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 2169 del 15 de octubre de 1957)
 Por material y documentación electorales se entiende:
 a) Una lista definitiva de los electores que pueden votar ante ellas, para ser expuesta al público;
 b) Un número de papeletas oficiales equivalente al número de electores, destinados a la elección de Presidente y Vicepresidente y otras tantas para la elección de Diputados;
