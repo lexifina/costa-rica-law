@@ -1,0 +1,3 @@
+Artículo 15.—Procedimiento para la solicitud de adelantos de dinero por concepto de viáticos por viajes en el interior del país.
+15.1 Cuando se trate de adelantos por concepto de viáticos para viajes dentro del territorio nacional, la solicitud del anticipo debe realizarse por medio de la fórmula "Anticipo para gastos de viaje". (Ver el anexo Nº 2).
+15.2 Estos adelantos deben solicitarse a más tardar el día hábil anterior al inicio de la gira, mediante la fórmula correspondiente y además debe llevar la aprobación de los niveles competentes autorizados, lo mismo que cumplir con los requisitos señalados en dicho formulario.
