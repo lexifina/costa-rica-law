@@ -1,0 +1,1 @@
+Artículo 5°-A efecto de asegurar el cumplimiento del presente decreto, el Poder Ejecutivo enviará a la Asamblea Legislativa dentro de un plazo no mayor de treinta días, un proyecto de modificación al Presupuesto Ordinario de la República necesarias para que la Dirección General de Asistencia Técnica, tenga los recursos económicos necesarios para su funcionamiento.

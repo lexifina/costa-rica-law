@@ -1,0 +1,2 @@
+Artículo 3°-La Dirección General de Asistencia Técnica que aquí se establece, asume todas las funciones del Departamento de Asuntos Económicos y
+Asistencia Técnica del Ministerio de Relaciones Exteriores, al que se hace referencia en el artículo 17 del Reglamento de las Divisiones y Tareas del Ministerio de Relaciones Exteriores. Dicho Departamento se eliminará a partir de la vigencia del presente decreto y su personal pasará a formar parte del nuevo organismo.

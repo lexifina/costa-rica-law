@@ -1,0 +1,1 @@
+Artículo 2°-Por Asistencia Técnica se comprenderá tanto los servicios de asesoría a través de consultores y expertos como las facilidades de adiestramiento de personal mediante becas de estudio en el extranjero o el suministro de equipo de trabajo.
