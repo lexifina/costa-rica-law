@@ -3,8 +3,8 @@ Artículo 13.- Examen de fondo.
 patentable, de conformidad con los artículos 1º y 2º, así como si la
 solicitud satisface el requisito de la unidad de la invención, según el
 artículo 7º, y si, en su caso, la modificación o la solicitud fraccionada
-están conformes con lo dispuesto en el artículo 8º. También se examinará
-si la descripción, las reivindicaciones y los dibujos se ajustan a los
+están conformes con lo dispuesto en el artículo 8º. También se examinará si
+la descripción, las reivindicaciones y los dibujos se ajustan a los
 requisitos señalados en el artículo 6º, párrafos 2, 3, 4, y 5 y a las
 disposiciones correspondientes al reglamento.
 2. El Registro requerirá la opinión de centros oficiales, de educación
@@ -23,16 +23,15 @@ fundamentación detallada de sus conclusiones, y su costo, fijado conforme
 con el reglamento, correrá a cargo del solicitante.
 3. En caso de observarse que no se han cumplido las condiciones del
 párrafo 1º, el Registro de la Propiedad Industrial lo notificará al
-solicitante para que presente, dentro del mes siguiente, sus
-observaciones, y en su caso, corrija o complete la documentación
-aportada, o que modifique o divida la solicitud, con observación de lo
-prescrito en el artículo 8º.
-4. Si el solicitante no cumpliera con lo prevenido por el Registro,
-dentro del plazo prescrito, o si el Registro comprobara, que pese a la
-respuesta del solicitante, no se satisfacen las condiciones previstas en el
-párrafo 1, denegará la concesión de la patente. La denegatoria estará
-fundamentada y será notificada por el Registro al solicitante.
+solicitante para que presente, dentro del mes siguiente, sus observaciones,
+y en su caso, corrija o complete la documentación aportada, o que modifique
+o divida la solicitud, con observación de lo prescrito en el artículo 8º.
+4. Si el solicitante no cumpliera con lo prevenido por el Registro, dentro
+del plazo prescrito, o si el Registro comprobara, que pese a la respuesta
+del solicitante, no se satisfacen las condiciones previstas en el párrafo 1,
+denegará la concesión de la patente. La denegatoria estará fundamentada y
+será notificada por el Registro al solicitante.
 5. En la resolución de fondo se resolverá sobre las oposiciones
 presentadas.
-6. El examen previsto en este artículo deberá concluirse en un plazo
-no mayor de seis meses.
+6. El examen previsto en este artículo deberá concluirse en un plazo no
+mayor de seis meses.
