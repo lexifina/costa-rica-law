@@ -1,4 +1,4 @@
-Artículo 6º.- El poseedor de la parcela renunciará a las porciones
+ARTICULO 6º.- El poseedor de la parcela renunciará a las porciones
 reservadas a usos públicos en el plan de ordenamiento urbano que la
 Muncipalidad acuerde a propuestas del Instituto Nacional de Vivienda y
 Urbanismo, lo mismo que a todo reclamo contra el Municipio, en razón de
