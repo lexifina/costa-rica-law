@@ -14,3 +14,4 @@ Reglamento de Sesiones, Acuerdos y Mociones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-01-01 | la propia norma |
+| 2 | 1998-07-16 | Reglamento municipal 22 (1998-07-16) |
