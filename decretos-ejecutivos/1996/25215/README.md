@@ -13,3 +13,4 @@ Modifica Reglamento Tarifas Profesionales Química e Ingeniería Química
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-18 | la propia norma |
+| 2 | 1996-06-18 | Decreto Ejecutivo 26548 (1997-12-03) |
