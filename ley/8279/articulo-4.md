@@ -1,0 +1,1 @@
+Artículo 4º—Integración del Sistema. El SNC estará integrado por todos los órganos, organismos, laboratorios y entidades que ofrecen o coordinan servicios relacionados con la evaluación de la conformidad en el ámbito definido en el artículo 3 de esta Ley, independientemente de si operan en el sector público o privado.

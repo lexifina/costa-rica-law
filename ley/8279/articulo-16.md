@@ -1,0 +1,1 @@
+Artículo 16.—Presupuesto. Los recursos para el funcionamiento del LACOMET se incluirán en el presupuesto nacional de la República y considerarán, en una partida diferenciada, los ingresos provenientes de la venta de servicios.

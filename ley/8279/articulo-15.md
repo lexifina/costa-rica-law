@@ -1,0 +1,1 @@
+Artículo 15.—Venta de Servicios. Autorízase al LACOMET para que venda servicios a instituciones públicas o empresas privadas. El producto de la venta de servicios se destinará, en su totalidad, al mejoramiento de los laboratorios, la capacitación técnica de su personal y el desarrollo de la infraestructura metrológica.

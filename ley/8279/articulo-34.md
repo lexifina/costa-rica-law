@@ -1,0 +1,2 @@
+Artículo 34.—Servicios a las Entidades Públicas. Todas las instituciones públicas que, para el cumplimiento de sus funciones, requieren servicios de laboratorios de ensayo, laboratorios de calibración, entes de inspección y entes de certificación, deberán utilizar los acreditados o reconocidos por acuerdos de reconocimiento mutuo entre el ECA y las entidades internacionales equivalentes.
+Los laboratorios estatales deberán acreditarse ante el ECA, de conformidad con el reglamento respectivo.

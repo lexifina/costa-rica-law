@@ -1,0 +1,1 @@
+Artículo 35.—Auditoría Interna. El ECA contará con una auditoría interna que dependerá directamente de la Junta Directiva. Su función principal será comprobar el cumplimiento, la suficiencia y la validez del sistema de control interno establecido por la Institución.
