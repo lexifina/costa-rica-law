@@ -1,0 +1,1 @@
+Artículo 3°-La aprobación de este Convenio no incluye la cláusula 6.4. Sin embargo, se autoriza al ITCO para adquirir, gravar y enajenar bienes inmuebles, hasta por la suma de diez millones de colones, teniéndose por reformado, al efecto, el inciso 22) del artículo 30 de la ley N° 2825 del 14 de octubre de 1961.
