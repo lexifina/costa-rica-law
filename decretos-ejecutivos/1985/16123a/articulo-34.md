@@ -1,3 +1,0 @@
-Artículo 34.La (*) Dirección General Legal solo estará obligado a evacuar consultas provenientes de las distintas entidades públicas y en materia propia de fiscalización superior. No estará obligado a contestar consultas verbales. Las escritas serán evacuadas mediante dictámenes firmados por el Director, el Subdirector, o bien por los abogados de la (*) Dirección General debidamente autorizados.
-Las disposiciones de este artículo rigen igualmente para la (*) Dirección General de Licitaciones.
-(*) (Modificada su denominación por el artículo 2° del decreto ejecutivo N° 19419 del 31 de octubre de 1989).
