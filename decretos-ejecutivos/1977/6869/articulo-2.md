@@ -1,0 +1,1 @@
+Artículo 2°— La Comisión Organizadora de la Tercera Feria Nacional de Artesanía, estará integrada de la siguiente forma: Presidente, Señor Fernando Zumbado Jiménez; Secretario, Señor Mario Rodríguez Cubero; Tesorero, Señor José Luis Callaci Leginzamo.
