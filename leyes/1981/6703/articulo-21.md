@@ -1,0 +1,6 @@
+Artículo 21.- Quien omita el aviso a las autoridades, a que se refiere
+el artículo 11 de la presente ley, será penado con una multa de diez mil a
+veinte mil colones. Si fuere una autoridad la que no toma las medidas
+precautorias pertinentes, la misma será destituida de su cargo, son
+responsabilidad patronal y sin perjuicio de las sanciones penales en que
+pueda incurrir.

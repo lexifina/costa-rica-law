@@ -1,0 +1,6 @@
+Artículo 4º.- Créase la Comisión Arqueológica Nacional, formada por un
+representante de cada una de las siguientes instituciones: Museo Nacional,
+Universidad de Costa Rica, Departamento de Patrimonio Histórico del
+Ministerio de Cultura, Juventud y Deportes, comisión Nacional de Asuntos
+Indígenas y Ministro de Educación Pública, cuya función principal será
+velar por el cumplimiento de esta ley.

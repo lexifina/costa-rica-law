@@ -1,0 +1,5 @@
+Artículo 24.- A quien realice trabajos materiales o de exploración
+arqueológica por excavación, remoción o por cualquier otro medio, sin estar
+autorizado por la Comisión Arqueológica Nacional, se le impondrá prisión de
+uno a tres años y se le decomisarán los objetos hallados, que serán
+propiedad del Estado.

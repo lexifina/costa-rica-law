@@ -1,0 +1,6 @@
+Artículo 10.- El Museo Nacional podrá transferir la custodia de su
+bienes arqueológicos a otras instituciones del Estado, para la creación de
+museos regionales y municipales, siempre que estas instituciones garanticen
+la óptima conservación de los objetos. Si no se cumpliera este requisito o
+desmejoraran las condiciones de conservación, el Museo ordenará la
+devolución de los objetos arqueológicos transferidos.
