@@ -1,0 +1,1 @@
+Artículo 2º.- Los respectivos registros públicos no procederán a inscribir ninguna razón social, comercia o marca de fábrica que no se ajuste a las disposiciones del párrafo primero del artículo 1º de esta ley.
