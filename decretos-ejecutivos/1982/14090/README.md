@@ -13,3 +13,4 @@ Reglamento sobre Importación Temporal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-12-20 | la propia norma |
+| 2 | 1982-12-20 | SINALEVI (sin norma nombrada) |
