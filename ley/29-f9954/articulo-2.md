@@ -1,0 +1,2 @@
+Art. 2°-Las Municipalidades de las cabeceras de Provincia, después de su inauguración, harán el nombramiento de los jurados comunes que deben conocer en causas criminales, teniendo presentes para el efecto, las disposiciones anteriormente emitidas.
+Dado en el Palacio Presidencial, San José a diez y ocho de diciembre de mil ochocientos ochenta.-T. GUARDIA.-EI Secretario de Estado en el Despacho de Gobernación: -S. LIZANO.
