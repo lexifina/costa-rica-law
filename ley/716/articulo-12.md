@@ -1,11 +1,11 @@
-Artículo 12.- La Junta celebrará una sesión ordinaria por semana. En
-forma extraordinaria se reunirá cuando sea convocada por su Presidente,
-por los otros dos miembros conjuntamente, por el Gobernador de la
-provincia o por el Concejo Municipal; en tales casos, la convocatoria, que
-será escrita, deberá indicar con precisión los puntos a tratar, y deberá
-notificarse por lo menos con 24 horas de anticipación. Sin embargo, el
-número de sesiones extraordinarias pagadas no podrá exceder de cuatro al
-mes. Los miembros de la Junta serán juramentados por el Presidente
-Municipal en la primera sesión municipal ordinaria siguiente a la fecha de
-su nombramiento, y tomarán posesión de sus cargos dentro de los ocho días
-que siguen al de su juramentación.
+ARTICULO 12.- La Junta celebrará dos sesiones ordinarias por semana.
+En forma extraordinaria se reunirá cuando sea convocada por su
+Presidente, por los otros dos Directores conjuntamente o por el Concejo
+Municipal de Alajuela. En tales casos la convocatoria, que será escrita,
+deberá indicar con precisión los puntos a tratar y deberán notificarse con
+24 horas de anticipación por lo menos.
+Los Directores serán juramentados por el Presidente Municipal en la
+primera sesión ordinaria del Concejo siguiente a la fecha del nombramiento
+y tomarán posesión de su cargos en la fecha que corresponda.
+(Así reformado por el artículo 1º de la ley No.5097 de 3 de
+noviembre de 1972)

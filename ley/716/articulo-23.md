@@ -1,4 +1,4 @@
-Artículo 23.- La Junta queda facultada para establecer, adquirir y
+ARTICULO 23.- La Junta queda facultada para establecer, adquirir y
 administrar plantas generadoras y sistemas de distribución y transmisión
 de energía eléctrica, implementos y materiales de repuestos y demás que
 necesite, dentro o fuera de la República.
