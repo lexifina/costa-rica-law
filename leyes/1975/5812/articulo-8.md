@@ -1,4 +1,4 @@
-Artículo 8º.- Los permisos del Ministerio de Seguridad Pública,
+ARTICULO 8º.- Los permisos del Ministerio de Seguridad Pública,
 expedidos conforme al inciso c) del artículo anterior, no podrán cubrir
 períodos mayores que los de la contratación registrada en la Dirección
 General de Tributación Directa. En el evento de solicitarse prórrogas,
