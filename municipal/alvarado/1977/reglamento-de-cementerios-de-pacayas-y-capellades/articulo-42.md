@@ -1,0 +1,1 @@
+Artículo 42.—Es obligación de los dueños, arrendatarios o encargados, mantener en buen estado de ornato y conservación las parcelas, mausoleos, tumbas y demás sitios particulares en lo cementerios. Cualquier infracción en este sentido será sancionada por las autoridades conformé al Código Sanitario, a instancia de la Administrativa del Cementerio.

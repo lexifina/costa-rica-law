@@ -1,0 +1,1 @@
+Artículo 9°—Cuando la Junta disponga de los fondos necesarios construirá un osario, si es posible, se hará subterráneo y consistirá en una cripta en donde se depositarán los huesos que se exhuman de las parcelas de inhumación común, manteniéndolos ocultos a la vista del público. El osario se construirá en terreno seco y su capacidad debe ser proporcionada a las necesidades.

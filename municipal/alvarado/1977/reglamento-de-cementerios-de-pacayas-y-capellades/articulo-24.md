@@ -1,0 +1,1 @@
+Artículo 24.—Para proceder a la medida, el arrendatario debe presentar el recibo cancelado del Tesorero de la Junta, indicando la cantidad de terreno a que tiene derecho. Los extremos de la parcela se demarcarán por medio de mojones estables de piedra o manipostería cuyo costo corre por cuenta del arrendatario.

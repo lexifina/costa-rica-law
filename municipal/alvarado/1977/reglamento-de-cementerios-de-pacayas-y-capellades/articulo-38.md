@@ -1,0 +1,1 @@
+Artículo 38.—Cada fosa costará un precio mínimo de ¢30.00, el que aumentara gradualmente de acuerdo al salario mínimo establecido por la ley y que pague esta Junta al guardián como salario diario, esta remuneración será el valor sucesivo de cada fosa.

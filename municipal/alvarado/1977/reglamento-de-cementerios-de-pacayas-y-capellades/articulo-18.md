@@ -1,0 +1,1 @@
+Artículo 18.—Los huesos que se encuentran al hacer la exhumación ordinaria, serán recogidos cuidadosamente y depositados en el osario común, siempre que los deudos interesados no los reclamen para depositarlos en osarios privados que posean dentro del mismo cementerio. Los residuos de cajas, vestidos, etc., serán recogidos aparte y quemados.

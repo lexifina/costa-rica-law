@@ -1,0 +1,1 @@
+Artículo 19.—Las exhumaciones extraordinarias se harán siempre en presencia del guardián y de dos testigos; de la operación se levantará un acta en duplicado, una copia de la cual será enviada a la Junta del cementerio y la otra la conservará el guardián en su poder.

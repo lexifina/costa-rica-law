@@ -1,0 +1,1 @@
+Artículo 23.—Las parcelas arrendadas para sepulturas privadas tendrán como máximo una dimensión de 2,25 metros de largo por 2 metros de ancho, su valor será de ¢37.50 el metro cuadrado. Precio que cubre el arriendo por un período de cinco años, pasado éste, cada quinquenio tiene un valor adicional de ¢75.00, que se obliga a cancelar por adelantado el propietario de la sepultura.

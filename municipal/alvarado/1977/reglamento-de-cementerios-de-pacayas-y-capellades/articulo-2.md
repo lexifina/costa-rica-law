@@ -1,0 +1,1 @@
+Artículo 2°—La Municipalidad nombrará una Junta Administrativa del cementerio. Esta Junta tendrá a su cargo la administración del Cementerio y estará compuesta de cinco miembros entre los vecinos que mayormente se interesen por el progreso de la localidad. Estos cargos serán desempeñados ad honorem y los miembros durarán en sus funciones un año, pudiendo ser reelectos.
