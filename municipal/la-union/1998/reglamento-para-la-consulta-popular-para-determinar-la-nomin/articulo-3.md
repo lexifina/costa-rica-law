@@ -1,0 +1,1 @@
+Artículo 3°—En cada centro de operación habrá una junta Receptora de la Consulta Popular, oficializada por el Concejo Municipal, integrada por el síndico propietario del distrito respectivo, su suplente y un regidor de cada una de las fracciones representadas en el seno del Concejo, pudiendo en todo caso ser parte de estas juntas, los regidores que ostenten el cargo de suplentes.

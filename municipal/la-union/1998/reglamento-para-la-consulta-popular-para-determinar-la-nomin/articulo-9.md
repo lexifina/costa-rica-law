@@ -1,0 +1,1 @@
+Artículo 9°—Cada Junta Receptora, comunicará y entregará por escrito, al seno del Concejo Municipal en la sesión ordinaria siguiente que celebre este, posterior a cada consulta popular, su resultado, la nómina obtenida y la papelería que se haya utilizado para ésta, así como los sobrantes de la misma.

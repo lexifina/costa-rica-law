@@ -1,0 +1,1 @@
+Artículo 7°—Será responsabilidad plena de cada junta, el llevar un control estricto de las personas que se presentan a expresar su intención en la consulta, de manera tal que se garantice que no habrá repetición en la intención de parte de ningún ciudadano.

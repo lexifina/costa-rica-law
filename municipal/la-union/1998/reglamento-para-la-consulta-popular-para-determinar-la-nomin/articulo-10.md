@@ -1,0 +1,3 @@
+Artículo 10.—Cuando los resultados de la consulta popular provoquen una nómina mayor de quince personas, el Concejo deberá repetir la consulta popular, indicando a los vecinos de ese distrito, por el medio de aviso utilizado en la primera, las razones que provocan esta nueva consulta, para que el resultado no se repita, de no ser esto último, el Concejo decidirá cuales nombres no formarán parte de la nómina de la cual se escogerán los miembros del Concejo Municipal de Distrito.
+El presente Reglamento regirá a los diez días posteriores a su publicación en el Diario Oficial “La Gaceta”.
+Tres Ríos, 30 de abril de 1998.—

@@ -1,0 +1,1 @@
+Artículo 2°—La Municipalidad facilitará los medios para que cada vecino exprese su intención por escrito para este fin, los cuales son, fórmulas especiales, lapiceros, urnas de recolección y un centro de operación, por distrito, de la consulta popular, siendo la indicación de este último, parte de la publicación de la convocatoria.
