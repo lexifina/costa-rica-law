@@ -1,0 +1,1 @@
+Art. 3° — Al efecto se llevará cuenta y razón separada de los productos de una y otra renta, y mensualmente se enterarán en la Tesorería General los productos de la del Estado; y en la Factoría de tabacos como Tesorería de la federación, los que produzca la renta de la misma, percibiendo los documentos del caso.
