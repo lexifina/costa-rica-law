@@ -1,0 +1,1 @@
+Artículo 59.—De la coevaluación de la conducta. La coevaluación, en I y II ciclos, la realizará la directiva de sección con el asesoramiento y la supervisión del maestro a cargo. En el III ciclo y en la Educación Diversificada, la coevaluación la realizará la directiva de sección con el asesoramiento y supervisión de respectivo profesor guía.

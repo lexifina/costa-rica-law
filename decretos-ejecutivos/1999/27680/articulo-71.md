@@ -1,0 +1,1 @@
+Artículo 71.—De las garantías de comunicación en la aplicación de acciones correctivas. La decisión de aplicar acciones correctivas deberá efectuarse dando garantías claras de comunicación al padre, madre o encargado y de defensa al estudiante.

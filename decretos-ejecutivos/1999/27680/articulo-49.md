@@ -1,0 +1,1 @@
+Artículo 49.—De los requisitos para optar por un curso por tutoría. Los cursos por tutoría se podrán autorizar exclusivamente a aquellos estudiantes que demuestren de manera fehaciente, a juicio del director de la institución, estar claramente imposibilitados de asistir a los cursos regulares por razones geográficas, familiares, sociales, económicas o de salud.

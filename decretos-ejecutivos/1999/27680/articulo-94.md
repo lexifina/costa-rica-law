@@ -1,0 +1,3 @@
+SECCION II
+Objeciones y recursos
+Artículo 94.—De las divergencias o conflictos. A las divergencias o conflictos que se suscitaren entre docentes y alumnos o entre los docentes y los padres de familia o encargados o de aquellos últimos, dentro del proceso de evaluación o con motivo de la aplicación del presente reglamento, se procurará encontrarles solución en consonancia con los principios y fines de la educación, con la materia aquí regulada y con la rectitud y buena fe con que deben actuar las partes involucradas en ese proceso.

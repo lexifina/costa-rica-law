@@ -1,0 +1,2 @@
+Artículo 42.—De la solicitud de pruebas por suficiencia y las oportunidades de presentación de ellas. Los estudiantes interesados en realizar pruebas por suficiencia, deberán presentar solicitud formal escrita al director de la institución, con una antelación no inferior a quince días naturales a la fecha definida para la aplicación de éstas.
+Los estudiantes sólo podrán someterse a la prueba por suficiencia de una asignatura, en una única oportunidad cada año.

@@ -1,0 +1,1 @@
+Artículo 39.—De las opciones adicionales para la aprobación de asignaturas en los colegios nocturnos. Adicionalmente a lo dispuesto en los artículos 23 y 30 de este Reglamento, los estudiantes de colegios nocturnos pueden aprobar las asignaturas mediante pruebas de suficiencia, reconocimiento de estudios o tutorías.

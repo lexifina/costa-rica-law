@@ -1,0 +1,1 @@
+Artículo 98.—De las condicionantes de la normativa interna. La normativa interna que se establezca en cada centro educativo deberá respetar las leyes y reglamentos generales del sistema educativo y el ordenamiento jurídico nacional.
