@@ -14,3 +14,4 @@ Reglamento Interior de Servicio Postal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-12-18 | la propia norma |
+| 2 | 1999-07-01 | Reglamento 75 (1999-07-01) |
