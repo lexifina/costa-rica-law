@@ -1,4 +1,4 @@
-CAPITULO VI
+* CAPITULO VI
 División de Desarrollo Institucional
 SECCIÓN PRIMERA
 Generalidades
@@ -11,3 +11,4 @@ Artículo 26.—Objetivo; relación jerárquica.
 4. Servicios de Información.
 5. Sistemas y Tecnología de Información.
 6. Cooperación Internacional
+* NOTA DEL SINALEVI: El presente Capítulo VI cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)

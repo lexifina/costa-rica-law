@@ -14,3 +14,4 @@ g) Servicios Agropecuarios y de Medio Ambiente
 h) Servicios Municipales y Privados de Interés Público
 i) Ingresos Públicos
 j) Servicios Sociales
+* NOTA DEL SINALEVI: El presente artículo del Capítulo V cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República..)

@@ -16,3 +16,4 @@ n) Definir las metodologías de trabajo, de acuerdo con sus necesidades y lineam
 o) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos en función de los objetivos estratégicos.
 p) Rendir cuentas por el desempeño de las funciones a su cargo.
 q) Ejecutar las demás labores que le asigne el Contralor General o la Gerencia de División.
+* NOTA DEL SINALEVI: El presente artículo del Capítulo V cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)

@@ -15,3 +15,4 @@ l) Elaborar el plan anual operativo, de acuerdo con las prioridades y objetivos 
 m) Utilizar los recursos de forma racional en la consecución de los objetivos de fiscalización evaluativa y operativa.
 n) Rendir cuentas por el desempeño de las funciones que le competen.
 o) Ejecutar cualesquiera otras labores que le asigne la Gerencia de División o el Contralor General.
+* NOTA DEL SINALEVI: El presente artículo del Capítulo V cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)

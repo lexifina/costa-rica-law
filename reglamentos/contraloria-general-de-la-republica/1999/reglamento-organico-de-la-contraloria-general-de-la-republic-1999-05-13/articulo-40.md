@@ -7,3 +7,4 @@ e) Velar por el adecuado cumplimiento de las obligaciones y compromisos contraí
 f) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos que se asignen en función de los objetivos estratégicos.
 g) Rendir cuentas por el desempeño de las funciones a su cargo.
 h) Ejecutar cualesquiera otras labores que le asigne la Gerencia de División o el Contralor General.
+* NOTA DEL SINALEVI: El presente artículo del Capítulo VI cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)

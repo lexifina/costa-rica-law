@@ -10,3 +10,4 @@ h) Administrar en forma efectiva los recursos financieros, materiales, humanos y
 i) Elaborar el plan anual operativo, de acuerdo con las prioridades y objetivos definidos, para que sea integrado en un solo plan de la División.
 j) Rendir cuentas por el desempeño de las funciones que le competen.
 k) Ejecutar cualesquiera otras labores que le asigne la Gerencia de División o el Contralor General.
+* NOTA DEL SINALEVI: El presente artículo del Capítulo VI cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)

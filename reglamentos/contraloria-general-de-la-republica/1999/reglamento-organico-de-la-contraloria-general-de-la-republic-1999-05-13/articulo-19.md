@@ -1,4 +1,4 @@
-CAPITULO V
+* CAPITULO V
 División de Fiscalización Operativa y Evaluativa
 SECCIÓN PRIMERA
 Generalidades
@@ -7,3 +7,4 @@ Artículo 19.—Objetivo; relación jerárquica.
 2. Depende del Contralor General y está a cargo de un Gerente de División. Tiene bajo su dirección las siguientes unidades:
 3. La Secretaría Técnica.
 4. Las Áreas de Fiscalización Superior.
+* NOTA DEL SINALEVI: El presente Capítulo V cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)

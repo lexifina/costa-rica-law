@@ -14,3 +14,4 @@ l) Mantener una adecuada atención sobre la política de rotación de los funcio
 m) Utilizar los recursos de forma racional para contribuir en la consecución de los objetivos institucionales.
 n) Rendir cuentas por el desempeño de sus funciones.
 o) Ejecutar cualesquiera otras labores que le asigne la Gerencia de División o el Contralor General.
+* NOTA DEL SINALEVI: El presente artículo del Capítulo VI cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)

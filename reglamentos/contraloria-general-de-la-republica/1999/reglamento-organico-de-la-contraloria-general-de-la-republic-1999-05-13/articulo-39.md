@@ -3,3 +3,4 @@ Cooperación Internacional
 Artículo 39.—Objetivo. Relación jerárquica.
 1. Manejar las relaciones que establezca la Contraloría General de la República con otras instituciones y organizaciones internacionales de fiscalización superior.
 2. Depende del Gerente de la División de Desarrollo Institucional.
+* NOTA DEL SINALEVI: El presente artículo del Capítulo VI cuenta con vigencia atribuida mediante Resolución 0 del 19 de octubre de 1999, de la Contraloría General de la República.)
