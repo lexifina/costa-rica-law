@@ -1,0 +1,1 @@
+Artículo 13.—De contarse con el "visto bueno" de esta Comisión, la Administración General, enviará con su recomendación el expediente al Presidente Ejecutivo, quien lo elevará a la Junta Directiva para su aprobación.
