@@ -1,1 +1,0 @@
-Artículo 3°—En el área marina de esta ampliación, regirán las normas legales aplicables a los Parques Nacionales. La protección, administración y desarrollo de dicha zona estará a cargo del Servicio de Parques Nacionales del Ministerio de Recursos Naturales, Energía y Minas de conformidad con las disposiciones de la ley No 6084.
