@@ -1,0 +1,1 @@
+Artículo 2º—Que el inmueble supracitado, será utilizado para ubicar allí las oficinas del Sistema Nacional de Área de Conservación (SINAC), la Secretaría Técnica Nacional Ambiental y la Dirección de Aguas.
