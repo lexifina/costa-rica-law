@@ -12,11 +12,16 @@ a) De toda contribución directa o indirecta, entendiéndose sin
 embargo, que no se podrá reclamar exención alguna por concepto de
 contribuciones que de hecho constituyen una remuneración por servicios
 públicos;
-b) De derechos de aduanas, prohibiciones y restricciones respecto a
-los materiales scouts y artículos o elementos de trabajo que importe o
-exporte para su uso oficial; y
-c) De derecho de aduana, prohibiciones y restricciones sobre
-importación y exportación de sus publicaciones.
+b) De toda clase de impuestos, prohibiciones o restricciones
+respecto a los materiales Scouts y artículos o elementos de trabajo que
+importen o exporten necesarios para el desarrollo de sus actividades de
+conformidad con el Reglamento.
+(Así reformado por el artículo 1º del Protocolo de Modificación a
+este Acuerdo, ley No.5104 del 15 de noviembre de 1972)
+c) De toda clase de impuestos, prohibiciones y restricciones sobre
+la importación y exportación de sus publicaciones.
+(Así reformado por el artículo 1º del Protocolo de Modificación a
+este Acuerdo, ley No.5104 del 15 de noviembre de 1972)
 Sección Sétima.- Sin quedar afectada por ordenanzas fiscales,
 reglamentos o moratorias de naturaleza alguna:
 a) El Consejo podrá tener fondos, divisas corrientes de cualquier
