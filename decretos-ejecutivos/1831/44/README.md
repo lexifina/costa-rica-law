@@ -13,3 +13,4 @@ Reglamento de Aguardientes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1831-10-05 | la propia norma |
+| 2 | 1833-10-26 | Decreto Ejecutivo 45 (1833-10-26) |
