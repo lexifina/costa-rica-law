@@ -1,4 +1,6 @@
+(Derogado)
 N° 13
+(Este Decreto fue derogado por el artículo 41 del “Reglamento Orgánico de la Junta Protección Social de San José”, aprobado mediante decreto ejecutivo N° 11276 del 27 de febrero de 1980)
 EL PRESTDENTE DE LA. REPUBLICA
 Y EL MINISTRO DE SALUBRIDAD PUBLICA.,
 Por cuanto:
