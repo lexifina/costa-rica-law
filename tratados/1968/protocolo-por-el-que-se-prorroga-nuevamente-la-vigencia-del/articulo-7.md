@@ -1,0 +1,2 @@
+Artículo 7
+Los Gobiernos Parte en el presente Protocolo se obligan a pagar las contribuciones estipuladas en el artículo 38 del Convenio, de conformidad con sus procedimientos constitucionales. En el primer período de sesiones que celebre, de conformidad con el presente Protocolo, el Consejo aprobará su presupuesto para el primer ejercicio y determinará las contribuciones que debe pagar cada gobierno participante.
