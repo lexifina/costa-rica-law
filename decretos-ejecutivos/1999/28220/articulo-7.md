@@ -1,0 +1,1 @@
+Artículo 7°—Derogatorias. Se derogan todas las disposiciones que se le opongan y que regulen de manera diferente lo referente al impuesto general forestal. Específicamente, se derogan las disposiciones contenidas en los artículos 78, 79, 80, 81, 82, y 83 del decreto ejecutivo No 25721-MINAE y en su integridad los decretos ejecutivos No 26293-MINAE-H y No 27693-MINAE-H.

@@ -1,0 +1,2 @@
+Artículo 3º—Contribuyentes: A los efectos de lo dispuesto en el artículo 42 de la Ley Forestal, son contribuyentes del impuesto las personas, físicas o jurídicas, propietarias de centros de industrialización primaria de madera, o que brinden servicio de aserrío a terceras personas sin contar con un centro de industrialización en punto fijo.
+También serán considerados como contribuyentes del impuesto, las personas físicas o jurídicas, de hecho o de derecho, que importen madera.
