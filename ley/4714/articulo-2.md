@@ -1,0 +1,1 @@
+Artículo 2º.- Se autoriza al Instituto Geográfico Nacional para interpretar los límites descritos, de acuerdo con el avance cartográfico del mapa básico del país. Dicho Instituto deberá también medir la superficie exacta de este parque nacional y publicar un mapa del mismo.

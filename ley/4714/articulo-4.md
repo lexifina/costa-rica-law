@@ -1,0 +1,1 @@
+Artículo 4º.- La Dirección General Forestal de Ministerio de Agricultura y Ganadería gestionará la compra directa o la expropiación de los terrenos reducidos a dominio particular comprendidos dentro de la demarcación de este parque nacional. El traslado de ocupantes de terrenos sin inscribir, se gestionará con el Instituto de Tierras y Colonización.
