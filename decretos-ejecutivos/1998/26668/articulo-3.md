@@ -1,0 +1,1 @@
+Artículo 3°—Se crea el Comité Técnico Nacional Sobre la Utilización de Animales de Laboratorio, el cual funcionara (sic) como órgano consultivo técnico del Ministerio de Ciencia y Tecnología en materia de fiscalización e investigación de denuncias presentadas ante este Ministerio.

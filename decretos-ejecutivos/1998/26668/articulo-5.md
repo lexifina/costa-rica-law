@@ -1,0 +1,1 @@
+Artículo 5°—El Ministerio llevará a cabo inspecciones periódicas para verificar el cumplimiento de las disposiciones incluidas en la Guía. En caso de detectarse alguna anomalía o de comprobarse el incumplimiento de una disposición, se procederá a la suspensión temporal del experimento, todo de conformidad con las leyes aplicables.
