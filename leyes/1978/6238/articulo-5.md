@@ -1,1 +1,1 @@
-Artículo 5º.- Rige a partir de su publicación.
+ARTÍCULO 5º.- Rige a partir de su publicación.
