@@ -1,0 +1,5 @@
+Art. 18.-En cualquier tiempo que se presente una persona abonada, que bajo multa de cincuenta á quinientos pesos se obligue á responder de que el vago se dedicará dentro de un breve plazo, que se fijará, á ejercer un oficio ó profesión, ó que asimismo se obligue á que el vago aprenderá oficio, si no lo tuviere, mantenerlo entre tanto á sus expensas, se pondrá al reo en libertad, se levantará el confinamiento, ó se le descargará de la obligación de declarar trabajo. El fiador incurre en la multa:
+1°-Si el vago se hallaba declarando trabajo, por no avisar á la policía que su fiado dejó de trabajar más de la cuarta parte de los días hábiles de un mes, sin excusa suficiente.
+2°-Si el vago se hallaba confinado ó cumpliendo la pena de trabajos públicos, por no devolver al vago cuando deje de trabajar más de la cuarta par te de los días hábiles de un mes.
+3°-En cualquiera de estos casos, cuando el vago se fugare ú ocultare de modo que no pueda fácilmente ser habido,
+El fiador tendrá derecho á pedir en cualquier tiempo su liberación, con tal que presente la persona del vago para que cumpla ó extinga su condena

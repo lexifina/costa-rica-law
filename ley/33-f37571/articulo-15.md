@@ -1,0 +1,1 @@
+Art. 15.-Aun pasado el año durante el cual debe declararse el trabajo, quedará el indiciado sujeto á la vigilancia de la policía, por un año más; y si en éste dejare el indiciado de trabajar, sin excusa suficiente, más de la mitad de los días hábiles de un trimestre, se le impondrá la pena de vagancia.

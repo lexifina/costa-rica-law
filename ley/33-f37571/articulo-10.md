@@ -1,0 +1,3 @@
+Art. 10.-El indiciado puede contradecir, en los ocho días siguientes á la notificación, la calidad de vago. Si lo hace, debe presentar prueba de que posee capital que le produzca renta bastante para vivir, ó de los trabajos que hubiere hecho desde sesenta días antes de la notificación. La autoridad investigará la verdad de las declaraciones y pruebas dadas en defensa del indiciado. Si algún testigo declarare falsamente, se le impondrá una multa de cincuenta á doscientos pesos ó un arresto de uno á seis meses.
+Sin perjuicio de la contradicción, el indiciado deberá cumplir provisionalmente la obligación que le imponen el artículo anterior y los siguientes en su caso.
+La autoridad, al resolver la contradicción, apreciará prudencialmente el mérito de las pruebas aducidas.
