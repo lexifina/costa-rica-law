@@ -1,1 +1,0 @@
-Articulo 30.—El Comité Cantonal de Deportes y Recreación llevará registros contables, los que estarán sujetos a la fiscalización mensual de la municipalidad y de la Contraloría General de la República cada cuatro meses.

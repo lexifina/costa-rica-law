@@ -1,1 +1,0 @@
-Artículo 16.—Cualquier asunto que sea sometido a conocimiento del Comité deberá ser resuelto por medio de votación, y se decidirá por mayoría de votos los asuntos simples, los proyectos de infraestructura y erogaciones altas de fondos deberán de aprobarse por mayoría calificada, no menos de cinco votos, en caso de empate, decidirá el Presidente con su voto de calidad.

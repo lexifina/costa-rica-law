@@ -1,1 +1,0 @@
-Artículo 27.—Cualquier persona ,re considere que sus derechos han sido lesionados por alguna disposición tomada por el Comité, podrá presentar recurso de revocatoria y de apelación ante la Municipalidad dentro de un lapso de cinco días hábiles a partir del momento en que formalmente se conozca.
