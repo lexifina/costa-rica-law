@@ -1,0 +1,1 @@
+Artículo 3º Adicionar el requisito obligatorio establecido en el artículo anterior a todas aquellas clases y cargos que en el futuro se incorporen en los Manuales Institucionales de Clases creados o por crearse y cuyas actividades sustantivas consistan en la manipulación de alimentos para el consumo humano.
