@@ -13,3 +13,4 @@ Reforma Reglamento General Colegio Profesionales Ciencias EconómicasCosta Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-09-20 | la propia norma |
+| 2 | 1993-09-20 | SINALEVI (sin norma nombrada) |
