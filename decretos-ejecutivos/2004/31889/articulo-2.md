@@ -1,0 +1,1 @@
+Artículo 2º—Se debe restringir la comercialización e internamiento al país de la zanahoria que no cumpla con las exigencias relativas a podredumbre, según lo establecido en el punto 4.1.1, Tabla 1, del apartado 4 de Especificaciones.
