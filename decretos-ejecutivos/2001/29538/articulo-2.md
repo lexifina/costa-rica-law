@@ -1,2 +1,0 @@
-Artículo 2º—Se modifica el inciso G) del artículo 1º del Decreto Ejecutivo Nº 28926-H del 31 de Agosto del 2000 para que en adelante se lea así:
-G. Requerimiento: es la intimación que le hace la Administración Tributaria al sujeto pasivo, para que presente las declaraciones o bien ingrese las sumas retenidas, percibidas o cobradas. Dicho requerimiento deberá ser firmado por el funcionario del área a la cual corresponde la gestión, recaudación o fiscalización de los tributos.
