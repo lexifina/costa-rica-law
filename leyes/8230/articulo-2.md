@@ -1,0 +1,1 @@
+Artículo 2º—Destino del inmueble. La Asociación de Desarrollo Integral de Los Lagos de Heredia destinará los terrenos a obras comunales y a otras que considere de interés para los vecinos del área comunal; asimismo, a la reforestación de la cuenca La Granada, colindante al oeste.
