@@ -1,0 +1,8 @@
+ARTICULO 377
+La persona entregada no podrá ser detenida en prisión ni juzgada
+por el Estado contratante a quien se entregue, por un delito distinto
+del que hubiere motivado la extradición y cometido con anterioridad a
+la misma, salvo que consienta en ello el Estado requerido, o que
+permanezca el extraditado libre en el primero, tres meses después de
+juzgado y absuelto por el delito que originó la extradición o de
+cumplida la pena de privación de libertad impuesta.

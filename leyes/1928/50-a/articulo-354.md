@@ -1,0 +1,7 @@
+ARTICULO 354
+Asimismo se exigirá que la pena asignada a los hechos imputados,
+según su calificación provisional o definitiva por el juez o tribunal
+competente del Estado que solicita la extradición, no sea menor de un
+año de privación de libertad y que esté autorizada o acordada la
+prisión o detención preventiva del procesado, si no hubiere aún
+sentencia firme. Esta debe ser de privación de libertad.
