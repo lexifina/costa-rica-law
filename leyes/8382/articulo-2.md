@@ -1,0 +1,1 @@
+Artículo 2º—Destino de inmueble. El lote segregado y donado en el artículo anterior se destinará exclusivamente a la construcción de un hogar para adultos mayores, de escasos recursos económicos o que estén en un alto grado de vulnerabilidad y riesgo social.
