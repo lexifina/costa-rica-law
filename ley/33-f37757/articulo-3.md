@@ -1,0 +1,1 @@
+Art. 3. A dichos Representantes se les abonarà el viático y dietas que dispone el art. 5° del decreto de 10 de julio del año de 845, haciéndoles la anticipacion que dispone el art. 6° del mismo decreto para que marchen á la mayor brevedad, entendiéndose que la dieta se abona desde el dia que ingresan al lugar de su destino hasta el en que se separan.
