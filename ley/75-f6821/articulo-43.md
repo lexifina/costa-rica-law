@@ -1,0 +1,4 @@
+ARTÍCULO XLIII.
+También se concede á la Asociación el término de diez años para construir y completar el Canal de navegación marítima y para abrirlo al tráfico.
+Sin embargo, si se justificaren acontecimientos de fuerza mayor, capaces de impedir la marcha regular de la obra, durante el trascurso de los referidos diez años, se le concederá una prórroga igual en duración al tiempo que resulte perdido por causa de aquellos retardos.
+Si al expirar los diez años antes dichos los trabajos no estuvieren terminados de manera que quede abierta la comunicación marítima entre los dos océanos, la República, en consideración á los grandes capitales que la Asociación hubiere invertido en la Empresa, á la buena voluntad y aptitud de que hubiere dado muestra, y á las dificultades que se le hubieren presentado, se obliga á conceder una nueva prórroga.

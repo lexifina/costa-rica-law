@@ -1,0 +1,5 @@
+ARTÍCULO XLII.
+La Asociación emprenderá á su costa los estudios definitivos del terreno y trazado de la línea del Canal, por medio de una comisión de ingenieros competentes. El Gobierno de Costa Rica tendrá el derecho de visitar é inspeccionar los trabajos de estudio definitivo que estén haciéndose y los yá terminados, por medio de un ingeniero nombrado por dicho Gobierno, y cuyo sueldo será pagado por la Asociación, y fijado por convenio entre el Gobierno y ésta.
+Para los estudios definitivos del Canal se concede á la Asociación el término de dos años y medio, á contar desde la fecha de la ratificación de este contrato. Dentro de ese tiempo tendrá que hacer los estudios definitivos, organizar la Compañía que lleve á cabo la obra, y dar principio á los trabajos de ejecución.
+No se entienden comenzados los trabajos de ejecución, si después de tres años de haberse emprendido no se hubieren gastado en ellos dos millones de pesos.
+El plazo de que habla este artículo podrá prorrogarse por la República á petición de la Asociación, si hubiere justos motivos para hacerlo á juicio del Gobierno.

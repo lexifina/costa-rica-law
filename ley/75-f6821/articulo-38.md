@@ -1,0 +1,3 @@
+ARTÍCULO XXXVIII.
+Para la buena administración del Canal y sus dependencias, y para facilitar su construcción y explotación, la Compañía formulará los correspondientes Reglamentos, los cuales serán obligatorios para toda persona que se halle en sus aguas ó en sus dependencias, bajo la sola reserva del respeto á los derechos y soberanía del Estado.
+Es entendido que la Asociación en uso de las facultades que le concede este artículo, no podrá hacer otros reglamentos que los que exija la administración y particular manejo del Canal, que antes de ponerlos en ejecución, habrá de someterlos á la aprobación del Gobierno. -El Estado prestará el apoyo de su autoridad para hacer observar estos Reglamentos.

@@ -1,0 +1,5 @@
+ARTÍCULO L.
+Este contrato, aprobado que sea por el Benemérito General Presidente de la República, será sometido al Supremo Poder Legislativo, para que si lo estima conveniente le dé la ratificación necesaria. Caso de no alcanzarla quedará libre la Asociación del Canal de Nicaragua de todas las obligaciones contraídas. La ratificación ó no ratificación se dará dentro de ciento veinte días de la fecha.
+En fe de lo estipulado firman los infrascritos cuatro ejemplares de la presente contrata, dos para cada parte, en San José de Costa Rica, el 31 de julio de 1888. P. PÉREZ ZELEDÓN. A. G. MENOCAL.
+Palacio Presidencial. San José, treinta y uno de julio de m ochocientos ochenta y ocho.
+En razón de estar la anterior contrata de acuerdo con las instrucciones que le fueron dadas para su celebración al señor Secretario de Estado que lo autoriza, apruébase en todas sus partes, á fin de que se someta á las deliberaciones del Congreso Constitucional.-Rubricado por el señor Presidente de la República, PÉREZ ZELEDÓN.

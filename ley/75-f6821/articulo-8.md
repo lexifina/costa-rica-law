@@ -1,0 +1,5 @@
+ARTÍCULO VIII
+El capital social (capital stock) de la Compañía definitiva que explote el Canal, consistirá en acciones del valor nominal de cien pesos cada una, las cuales se emitirán en la cantidad que se considere necesaria. La emisión y trasmisión de estas acciones y de todos los bonos y obligaciones que la Compañía emita, estarán exentos de gasto de timbre y de cualquier otro impuesto establecido ó que se establezca en la República.
+Del capital de acciones con que se organice la Compañía se reservará al menos el cinco por ciento para los Gobiernos y ciudadanos de Centro América que quieran suscribirse.
+Tan pronto como la dicha Compañía esté lista para abrir los libros de suscripción, dará aviso de ello á los Gobiernos de Costa Rica y Nicaragua, quienes invitarán á los otros Gobiernos de la América Central, y por su medio á los particulares, para que se suscriban.
+Las acciones que dentro de seis meses á contar de la fecha en que se dió aviso al Gobierno de estar abiertos los libros de suscripción, no se hubieren pagado, quedarán á la libre disposición de la Compañía.
