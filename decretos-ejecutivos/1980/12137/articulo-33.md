@@ -1,0 +1,1 @@
+Artículo 33.- Los Comités Auxiliares estarán constituidos por cinco miembros que serán designados por la Asamblea de Agricultores. Duran en sus funciones dos años y podrán ser reelectos; cada miembro tendrá su respectivo suplente.

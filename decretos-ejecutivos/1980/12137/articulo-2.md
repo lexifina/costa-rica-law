@@ -1,0 +1,1 @@
+Artículo 2º.- El domicilio del Centro Agrícola Cantonal será la cabecea del cantón respectivo de su ubicación sin perjuicio de establecer Comités Auxiliares en los distritos o caseríos que así lo ameriten.

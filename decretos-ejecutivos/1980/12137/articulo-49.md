@@ -1,0 +1,1 @@
+Artículo 49.- Además de los dispuesto en la Ley Constitutiva Nº 4521 de 26 de diciembre de 1969, los Centros Agrícolas Cantonales, se regirán por las leyes supletorias, el presente reglamento y por los reglamentos internos y acuerdos que dicten las Juntas Directivas de cada Centro, Federación o Confederación de Centros Agrícolas Cantonales.

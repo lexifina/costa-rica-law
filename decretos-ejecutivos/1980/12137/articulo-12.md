@@ -1,0 +1,1 @@
+Artículo 12.- Los nombramientos de los miembros directivos de los Centros Agrícolas Cantonales que deban sustituirse o que hayan terminado su período deberá hacerse dentro de los quince días anteriores al vencimiento del mismo.

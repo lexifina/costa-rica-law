@@ -1,0 +1,2 @@
+Artículo 11.- En todos los casos indicados en el artículo anterior deberá comunicarse por escrito al Coordinador de los Centros Agrícolas Cantonales del Ministerio de Agricultura y Ganadería, indicando los nombres y apellidos de la persona que se va a sustituir, como de quien le suplirá, para hacer el acuerdo ejecutivo del cambio de personas, el cual deberá ser publicado en "La Gaceta".
+La persona nombrada lo será por el resto del período legal.

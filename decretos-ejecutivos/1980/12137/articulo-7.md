@@ -1,0 +1,1 @@
+Artículo 7º.- La Asamblea General se reunirá ordinariamente por lo menos dos veces al año y extraordinariamente, cuando así lo resuelva la Junta Directiva, o cuando lo solicite un grupo de miembros de los Centros no inferior al diez por ciento de la totalidad de sus componentes.

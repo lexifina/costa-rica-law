@@ -1,0 +1,2 @@
+Artículo 14.- La Junta Directiva se reunirá en sesión ordinaria cada mes, en el lugar, día y hora que la misma determine y en sesión extraordinaria, cuando así lo soliciten por lo menos cinco de sus miembros, o el Presidente de la misma.
+Cinco miembros harán quórum para sesionar válidamente y los acuerdos se tomarán por mayoría de votos presentes salvo los casos en que exista empate, el presidente decidirá la votación con doble voto.

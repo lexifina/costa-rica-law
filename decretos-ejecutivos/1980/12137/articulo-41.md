@@ -1,0 +1,1 @@
+Artículo 41.- La Confederación una vez juramentada, y en su primera sesión elegirá de su seno la Directiva, que estará formada por un Presidente, un Vicepresidente, un Tesorero, un Secretario, un Fiscal y dos Vocales.

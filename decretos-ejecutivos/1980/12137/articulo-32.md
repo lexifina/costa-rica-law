@@ -1,0 +1,1 @@
+Artículo 32.- En cada distrito o caserío se conformará un Comité Auxiliar. Si existieren proyectos de diversa índole que por su naturaleza necesiten una dedicación exclusiva, se podrá organizar un Comité Auxiliar para cada proyecto.

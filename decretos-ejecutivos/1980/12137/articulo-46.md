@@ -1,0 +1,1 @@
+Artículo 46.- Para el mejor cumplimiento del artículo anterior los Centros Agrícolas Cantonales podrán establecer programas cooperativos con la Universidad de Costa Rica, Ministerio de Educación Pública y el Ministerio de Agricultura y Ganadería; o cualquier otras institución nacional e internacional, interesadas en el mejoramiento del agricultor y su familia.

@@ -1,0 +1,4 @@
+Artículo 25.- De conformidad con el inciso a) del artículo 8º de la Ley, los Centros Agrícolas Cantonales, tendrán dos clases de miembros:
+a) Miembros Asociados: Serán miembros asociados, aquellas personas físicas que intervengan en las actividades del centro en forma permanente, gozando directamente de los beneficios otorgados por la ley; y
+b) Miembros Cooperadores: Son aquellas personas físicas o jurídicas que sin intervenir directamente en las actividades del Centro, en forma permanente, apoyan ciertas actividades mediante aportaciones económicas o de cualquier índole que permitan cumplir con los objetivos del Centro.
+Los primeros aportarán una cuota fija mensual para el mantenimiento e inversión de los Centros Agrícolas Cantonales, y los segundos cooperarán en el desarrollo de aquellos, con cualquier otra clase de aporte, que no sea la cuota dicha.

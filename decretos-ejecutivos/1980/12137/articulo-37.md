@@ -1,0 +1,3 @@
+Artículo 37.- La Federación de Centros Agrícolas Cantonales está constituida por la asociación de un mínimo de tras Centros Agrícolas Cantonales de una Región. La Federación estará integrada por dos delegados de cada Centro Agrícola Cantonal afiliados a ella. Además se designa un suplente por cada Centro Agrícola Cantonal.
+Cada Federación, una vez juramentada y en su primera sesión, elegirá de su seno un Presidente, un Vicepresidente, un Secretario, un Tesorero, un Fiscal y cuatro Vocales.
+Durarán en sus funciones dos años pudiendo se reelectos. Caso que una Federación necesite designar otros funcionarios puede hacerlo, determinando sus funciones a través de un Reglamento.

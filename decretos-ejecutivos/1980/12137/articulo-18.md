@@ -1,0 +1,1 @@
+Artículo 18.- En caso de ausencia o impedimento temporal del Presidente, será reemplazado por el Vicepresidente, quien en tal caso, tendrá todas las atribuciones, facultades y deberes. Cuando en alguna sesión estuvieren ausentes, la Junta Directiva nombrará un suplente.

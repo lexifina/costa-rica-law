@@ -1,0 +1,1 @@
+Artículo 48.- El Ministerio de Agricultura y Ganadería facilitará los medios de transportes y cualquier otra ayuda que sea posible a los entes antes dichos establecidos para que asistan a nivel nacional a los congresos, seminarios, exposiciones o cualquier otra actividad científica y cultural que los beneficie.

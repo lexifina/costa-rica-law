@@ -1,0 +1,1 @@
+Artículo 39.- De acuerdo con lo establecido en el artículo 14 de la ley Nº 4521, la secretaría permanente de la Federación respectiva estará bajo la responsabilidad del Centro Agrícola Regional correspondiente.

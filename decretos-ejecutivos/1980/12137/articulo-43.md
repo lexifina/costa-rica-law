@@ -1,0 +1,1 @@
+Artículo 43.- De acuerdo con el artículo 14 de la ley Nº 4521, la secretaría permanente será de responsabilidad de la Dirección de Planeamiento y Coordinación del Ministerio de Agricultura y Ganadería.
