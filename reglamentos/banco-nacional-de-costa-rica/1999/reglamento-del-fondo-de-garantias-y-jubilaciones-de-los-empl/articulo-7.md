@@ -1,2 +1,0 @@
-Artículo 7º—Inversiones. La política de inversiones será dictada por la Junta Administrativa del Fondo y se ajustará a las recomendaciones emanadas por el Comité de Inversiones. Este comité estará integrado por el Gerente del Fondo y tres miembros de la Junta Administrativa que tengan experiencia en el área financiera, nombrados por la Junta Administrativa; además de un miembro independiente del ente administrador El Gerente del Fondo, desempeñará la secretaría técnica del Comité de Inversiones.
-(Reformado mediante sesión N° 11181 del 3 de diciembre del 2002)

@@ -1,3 +1,0 @@
-Artículo 22.—Retiro como Integrante del Fondo. Los Integrantes que dejaren de prestar sus servicios al banco, antes de haber adquirido el derecho a una pensión, podrán retirar la totalidad de los fondos a su haber en la cuenta individualizada, previo pago de las operaciones de crédito vigentes.
-El retiro de los fondos por parte del integrante, dará por cancelados todos los demás beneficios que pudieren derivar de la aplicación de este reglamento.
-Para los que se retiren después de haber adquirido ese derecho, la pensión será obligatoria, salvo casos especiales solicitados por los interesados y debidamente autorizados por la Junta Administrativa y ratificados por la Junta Directiva General.

@@ -1,1 +1,0 @@
-Artículo 16.—Aportes de los Integrantes con Derecho a Jubilarse. El integrante que tiene derecho a jubilarse y continua al servicio del Banco Nacional, seguirá contribuyendo, al igual que el banco, con los porcentajes a que se refiere el artículo 5° del presente reglamento.

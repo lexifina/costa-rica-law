@@ -1,1 +1,0 @@
-Artículo 4°—Representación. La representación legal del fondo la tendrá éste, como un órgano adscrito al Banco Nacional de Costa Rica, con autonomía en la gestión y administración que este reglamento establece el Gerente General del banco y los Subgerentes.

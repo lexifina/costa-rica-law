@@ -1,1 +1,0 @@
-Artículo 29.—Quórum. Cuatro miembros harán quórum para sesionar válidamente. Los acuerdos se tomarán por mayoría absoluta de los miembros asistentes. En caso de empate, después de una segunda votación, el Presidente ejercerá el voto de calidad.

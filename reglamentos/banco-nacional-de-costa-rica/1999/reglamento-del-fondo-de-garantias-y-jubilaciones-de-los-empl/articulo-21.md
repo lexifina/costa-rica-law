@@ -1,5 +1,0 @@
-Artículo 21.—Permiso sin Goce de sueldo. Cuando el banco autorice a un integrante del fondo un permiso sin goce de sueldo, y este desee que se le reconozca este tiempo para efectos del cálculo de años de servicio, dicho empleado deberá aportar al fondo, necesariamente, mes a mes y durante todo el tiempo que dure el referido permiso:
-a) La suma equivalente al aporte que habría hecho el banco, si el empleado hubiese continuado laborando en el mismo puesto que desempeñaba.
-b) La suma equivalente al aporte que hubiese continuado cotizando el empleado en el mismo puesto que desempeñaba.
-c) Si en caso de una reclasificación dicho puesto desapareciera, se tomarán en consideración los sueldos ordinarios fijados para el nuevo puesto correspondiente al desempeño de las mismas
-El monto de su pensión se fijará en el 75% del sueldo de referencia; este último se calculará utilizando los sueldos ordinarios y extraordinarios, que estaría devengando en el banco si dicho permiso no se le hubiese aprobado.

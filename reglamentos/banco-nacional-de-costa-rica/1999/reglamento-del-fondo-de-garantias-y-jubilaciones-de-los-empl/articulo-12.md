@@ -1,7 +1,0 @@
-Artículo 12.—Beneficiarios. El integrante o jubilado podrá designar beneficiario o beneficiarios por escrito ante la Junta Administrativa o ante la Jefatura Administrativa del Fondo. Para efecto de mantener o gozar una pensión, únicamente podrán ser designados como beneficiarios (beneficiarías) personas físicas que ostenten, respecto al integrante o jubilado, las condiciones necesarias: relaciones de parentesco, por consanguinidad o afinidad, legalmente reconocidas y comprobadas, en el siguiente orden de prioridades:
-Cónyuge o compañera (compañero). debe mantener su estado de viudez o soltería.
-Hijos Menores: Los hijos solteros del fallecido que sean menores de 18 años.
-Hijos Mayores Dependientes: Los hijos de1 fallecido mayores de 18 años, solteros, no profesionales, que no tengan ingresos propios y que, hasta la edad de 25 años, tengan la condición de estudiantes a tiempo completo, debidamente comprobada, todo a juicio de la Junta Administrativa del Fondo.
-Hijos Incapacitados: Los hijos del fallecido, menores o mayores de edad, solteros, y que por condiciones físicas o mentales estén incapacitados para procurarse el sustento. Esta condición debe ser demostrada por medio una certificación extendida por la CCSS.
-El monto mínimo de pensión para los beneficiarios será establecido por la Junta Administrativa del Fondo y podrá ser modificada por ésta, cuando lo estime conveniente.
-La pensión se mantendrá vigente mientras exista al menos uno de los beneficiarios que califique dentro de las anteriores definiciones.

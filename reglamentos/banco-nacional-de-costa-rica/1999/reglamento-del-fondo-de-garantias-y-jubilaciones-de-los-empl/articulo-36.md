@@ -1,4 +1,0 @@
-Artículo 36.—Garantía Adicional en los Créditos Cesación en la Prestación de Servicios de los Empleados. Como seguridad adicional para el reintegro de) capital e intereses de todo préstamo del fondo, el empleado deudor autorizará al banco, expresa e irrevocablemente, en el documento respectivo, para que de su sueldo se le deduzca la cuota correspondiente a pagar por cada préstamo.
-Además, en el mismo documento de crédito, deberá consignarse:
-a) La autorización del empleado deudor para que, en caso de que deje de prestar sus servicios al banco por renuncia o despido, la suma a su haber en la cuenta individualizada, en primera instancia sea aplicada en la cancelación de todas las deudas que tenga con dicho fondo, en el entendido de que el remanente será entregado al empleado por parte del fondo.
-b) El compromiso del deudor y sus derechohabientes de cancelar la deuda antes de iniciar cualquier trámite para obtener una pensión de parte del fondo.
