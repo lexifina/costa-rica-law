@@ -1,7 +1,3 @@
-Artículo 16.—Comandante. Para optar por el grado de Comandante será necesario acreditar los siguientes requisitos:
-1. Un nivel académico mínimo de Diplomado Universitario en una carrera afín a la función policial.
-2. Antigüedad mínima de tres años como Capitán.
-3. Calificación mínima de "Muy Bueno" en la evaluación formal de los servicios realizada de conformidad con la normativa vigente en el Ministerio, durante el período ejercido como Capitán.
-4. Aprobación del Curso para Oficiales Superiores impartido por la Escuela Nacional de Policía o por las escuelas especializadas creadas por ley.
-5. Estar inscrito en el Escalafón de Oficiales Superiores de acuerdo al artículo 58 de la Ley.
-Podrán participar en esta promoción aquellos oficiales que, ostentando el resto de los requisitos exigidos, pero sin acreditar el nivel de Diplomado Universitario, posean el bachillerato de enseñanza media y hayan laborado por un período igual o superior a quince años en el Ministerio, en funciones policiales.
+Artículo 16.—Carreras atinentes a la función policial.
+Para efectos del artículo 57 inciso a), primer párrafo, de la Ley, las carreras atinentes o afines al desempeño de las funciones policiales son las siguientes: Derecho, Criminología, Sociología, Educación, Psicología, Estadística, Trabajo Social, Ciencias de la Comunicación, Geografía, Politología, Economía, Administración, Contaduría Pública, y todas aquellas que, previo estudio y resolución fundada, así determine el órgano técnico competente para ese fin, sea la Escuela Nacional de Policía.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el Decreto Ejecutivo N°31428 del 05 de agosto de 2003, publicado en La Gaceta N° 212 del 04 de noviembre de 2003.)

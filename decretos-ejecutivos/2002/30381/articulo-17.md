@@ -1,4 +1,2 @@
-Artículo 17.—Comisionado. Para optar por el grado de Comisionado será necesario acreditar los siguientes requisitos:
-1. Dos años de antigüedad como Comandante.
-2. Calificación mínima de "Muy Bueno" en la evaluación formal de los servicios realizada de conformidad con la normativa vigente en el Ministerio, durante el período ejercido como Comandante.
-3. Aprobar el Curso para Comisionado impartido por la Escuela Nacional de Policía, el cual deberá desarrollarse en un mínimo de ciento sesenta horas.
+Artículo 17.—Escalafón de oficiales superiores. El escalafón de oficiales superiores es la lista de elegibles para los nombramientos del Director de la Fuerza Pública, los directores y subdirectores regionales de esta, el Director del Servicio Nacional de Guardacostas y el Director del Servicio de Vigilancia Aérea. Dicho escalafón se conformará con aquellas personas que ostentan el grado policial de comandante, comisionado o comisario, debidamente registrado ante la Dirección de Recursos Humanos.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el Decreto Ejecutivo N°31428 del 05 de agosto de 2003, publicado en La Gaceta N° 212 del 04 de noviembre de 2003.)

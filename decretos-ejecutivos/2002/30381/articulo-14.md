@@ -1,4 +1,2 @@
-Artículo 14.—Intendente. Para optar por el grado de Intendente será necesario acreditar los siguientes requisitos:
-1. Un año de antigüedad como Subintendente.
-2. Calificación mínima de "Muy Bueno" en la evaluación formal de los servicios realizada de conformidad con la normativa vigente en el Ministerio, durante el período ejercido como Subintendente.
-3. Aprobar el Curso para Intendente impartido por la Escuela Nacional de Policía, el cual deberá desarrollarse en un mínimo de noventa horas.
+Artículo 14.—Curso de oficiales ejecutivos. La Escuela Nacional de Policía será la responsable de establecer los requisitos que deben cumplir las personas que no son funcionarios del Ministerio de Seguridad Pública, para tener acceso al Curso de Oficiales Ejecutivos, de conformidad con lo establecido en el inciso b) del artículo 57 de la Ley.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el Decreto Ejecutivo N°31428 del 05 de agosto de 2003, publicado en La Gaceta N° 212 del 04 de noviembre de 2003.)

@@ -1,4 +1,2 @@
-Artículo 12.—Sargento de Policía. Para optar por el grado de Sargento de Policía será necesario acreditar los siguientes requisitos:
-1. Dos años de antigüedad como Inspector de Policía.
-2. Calificación mínima de "Muy Bueno" en la evaluación formal de los servicios realizada de conformidad con la normativa vigente en el Ministerio, durante el período ejercido como Inspector de Policía.
-3. Aprobar el Curso para Sargento de Policía impartido por la Escuela Nacional de Policía, el cual deberá desarrollarse en un mínimo de noventa horas.
+Artículo 12.—Escala de oficiales ejecutivos. La escala de oficiales ejecutivos se conformará con aquellas personas que ostentan el grado policial de subintendente, intendente o capitán de policía, debidamente registrado ante la Dirección de Recursos Humanos. Se ingresará a la escala jerárquica de oficiales ejecutivos a partir del grado de subintendente.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el Decreto Ejecutivo N°31428 del 05 de agosto de 2003, publicado en La Gaceta N° 212 del 04 de noviembre de 2003.)
