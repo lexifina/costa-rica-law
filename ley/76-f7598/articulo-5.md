@@ -1,0 +1,1 @@
+5.- Es de la competencia de las Autoridades, cuidar de que no se altere el buen orden y la sumisión debida a las leyes, del país con hechos o palabras subversivas, y les es un deber perseguir a los contraventores pasando los recados conducentes al Tribunal que corresponde.

@@ -1,0 +1,1 @@
+Art 4°.- Las Autoridades de los pueblos cada quince días darán aviso al Jefe Político Superior de las personas que hayan llegado a sus pueblos, ejercicio, ú ocupación que tengan, y de las mas medidas que se hayan ejecutado conforme a la Ley para exterminar a los vicios y vagos, debiendo el Jefe Político dar cuenta de todo el Gobierno, cuando lo estime conveniente.
