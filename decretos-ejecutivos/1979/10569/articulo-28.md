@@ -1,0 +1,1 @@
+Artículo 28°- Aquellos profesionales del INCIENSA, así como los profesionales de investigación de instituciones que hayan suscrito convenios cooperativos con el INCIENSA, estarán en condiciones de ser elegidos como miembros del Comité Científico.

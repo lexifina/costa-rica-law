@@ -1,0 +1,1 @@
+Artículo 10°- El Consejo Técnico sesionará ordinariamente cada quince días; y extraordinariamente, cuando sea convocada por el Presidente, ó por el Director General o a solicitud de dos o más miembros del Consejo.
