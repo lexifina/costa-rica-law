@@ -14,3 +14,4 @@ Regalmento para Otorgar el Galardón "Bandera Ecológica"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-30 | la propia norma |
+| 2 | 1998-10-13 | Decreto Ejecutivo 27485 (1998-10-13) |

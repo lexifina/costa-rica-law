@@ -1,9 +1,9 @@
 CAPITULO VIII
 La Comisión Nacional Bandera Ecológica
-Artículo 19.—La Comisión Nacional Bandera Ecológica, estará integrada por los siguientes miembros:
-a) El Ministro del Ambiente y Energía o su representante, quien presidirá la Comisión.
-b) El Contralor Ambiental, que además fungirá como Secretario Ejecutivo.
-c) El Director del Departamento de Sustancias Tóxicas y medicina del Trabajo del Ministerio de Salud o su representante.
-e) Dos Representantes de la Comisión Coordinadora de la Cuenca del Río Grande de Tarcoles.
-f) Un representante de la Fundación para el Desarrollo Urbano.
-g) Un representante de la Unión Nacional de Cámaras.
+Artículo 19.—La Comisión Nacional de Bandera Ecológica, estará integrada por los siguientes miembros.
+1) El Ministro de Ambiente y Energía o su representante; quien presidirá.
+2) El Director de la Oficina de Sociedad Civil del MINAE; quien fungirá como Secretario Técnico.
+3) Un representante de la Dirección de Protección al Ambiente Humano del Ministerio de Salud.
+4) Un representante de las empresas poseedoras de Bandera Ecológica.
+5) Un representante del grupo de auditores acreditados ante Bandera Ecológica
+(Así Reformado por el artículo 8° del Decreto Ejecutivo N° 27485 del 13 de Octubre de 1998)
