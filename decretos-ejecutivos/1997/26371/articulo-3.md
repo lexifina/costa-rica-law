@@ -1,0 +1,1 @@
+Artículo 3°—Obligatoriedad del enriquecimiento. La harina de trigo que se utilice en el país para consumo humano, ya sea de uso casero o en la industria alimentaria, deberá estar enriquecida con hierro y ácido fólico y reconstituida con tiamina, riboflavina y niacina.
