@@ -1,0 +1,8 @@
+ARTÍCULO 7.- Documentos requeridos para la declaración jurada
+Los patentados que no sean declarantes del impuesto sobre la renta,
+deberán acompañar su declaración del impuesto de patentes, con una
+fotocopia del último recibo del pago de planillas a la Caja Costarricense
+de Seguro Social o una constancia de la agencia respectiva de esta
+Institución, sobre el total de los salarios declarados o, en su defecto,
+una nota explicativa de las razones que los eximen de cotizar para la Caja
+Costarricense de Seguro Social.

@@ -1,0 +1,15 @@
+ARTÍCULO 3.- Factores determinantes del impuesto
+Establécense como factores determinantes de la imposición, la renta
+líquida gravable y los ingresos brutos anuales que perciban las personas
+físicas o jurídicas afectas al impuesto, durante el período fiscal
+anterior al año que se grava.
+Se entiende por renta líquida gravable la que se aplique para el
+cobro del impuesto sobre la renta.
+Los ingresos brutos no incluyen lo recaudado por concepto del
+impuesto sobre las ventas. En el caso de los establecimientos financieros
+y de correduría de bienes muebles e inmuebles, se consideran como ingresos
+brutos los percibidos por concepto de comisiones e intereses.
+Los contribuyentes que presenten las cuatro declaraciones juradas del
+Régimen de Tributación Simplificada del año anterior, tendrán derecho a un
+veinticinco por ciento (25%) de ganancia en las ventas del total de
+compras del trimestre.
