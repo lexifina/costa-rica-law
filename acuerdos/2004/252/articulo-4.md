@@ -1,0 +1,1 @@
+Artículo Nº 4: A los pescadores que se les encuentre realizando labores de pesca en zonas y con artes de pesca no permitidos, se les iniciará los procedimientos administrativos y legales correspondientes, para que se les suspenda el subsidio económico o tenga que reintegrar el dinero otorgado con tal fin y se le cancele administrativamente el permiso de pesca.
