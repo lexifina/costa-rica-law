@@ -1,0 +1,1 @@
+Art. 4°-A las doce del día referido, los Gobernadores de la provincia de Guanacaste y de las comarcas de Puntarenas y Limón, presentarán el mismo juramento los dos primeros, ante cuatro individuos principales de la comarca, sentando una acta de todo lo practicado, que firmarán los individuos presentes, y de la cual se remitirá una copia al Ministerio de Gobernación.
