@@ -1,0 +1,2 @@
+De las inhumaciones
+Articulo 4°-Para las inhumaciones en el cementerio, es necesario presentar la fórmula denominada "Orden de Inhumación en el Cementerio Municipal", la cual deberá ser llenada y suministrada por la Administración previa presentación del certificado de defunción y pago de derechos correspondientes, los cuales serán determinados por la misma Administración, de acuerdo con las categorías establecidas en el artículo 10 de este reglamento y las tarifas vigentes al momento de pago.

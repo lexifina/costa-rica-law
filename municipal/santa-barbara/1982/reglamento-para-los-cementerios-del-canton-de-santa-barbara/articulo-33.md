@@ -1,0 +1,1 @@
+Articulo 33. -Cualquier daño o deterioro ocasionado por la construcción de una bóveda deberá ser reparado de inmediato por el interesado. En caso contrario el costo de la reparación será cargado a su cuenta con la Municipalidad y constituirá gravamen sobre el derecho respectivo.

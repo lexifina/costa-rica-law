@@ -1,0 +1,2 @@
+Articulo 38.-Los mausoleos subterráneos a que se refiere el articulo 23 se definen como construcciones de tres nichos en fonda colocados en ambas parcelas laterales y con acceso por la parcela central. Este acceso estará cubierto por una lapida debidamente asegurada. La construcción no podrá sobresalir más de 20 cm del nivel del suelo, ni podrá tener una profundidad mayor de 2 m del mismo nivel.
+De la reparación, cuidado y conservación de las bóvedas particulares

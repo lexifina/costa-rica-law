@@ -1,0 +1,1 @@
+Articulo 31.-Las tapas de los nichos deberán dar a los callejones de acceso y las lapidas o placas de identificación se colocaran sobre las bóvedas en forma tal que denoten el nicho a que hacen referencia.

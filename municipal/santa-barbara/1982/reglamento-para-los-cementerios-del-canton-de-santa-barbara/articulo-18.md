@@ -1,0 +1,1 @@
+Articulo 18.-Las exhumaciones ordinarias por interés de particulares sólo se podrán efectuar dentro de la jornada ordinaria de los empleados del cementerio y quedaran sujetas al pago de los derechos oportunamente fijados por el Concejo.

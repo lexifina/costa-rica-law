@@ -1,0 +1,1 @@
+Articulo 6°-La presentación de la orden de inhumación deberá hacerse dos horas antes de la misma en los casos de inhumaciones en nichos municipales o bóvedas particulares, con el fin de determinar el sitio exacto y la ausencia de restos con menos de cinco años de inhumados.
