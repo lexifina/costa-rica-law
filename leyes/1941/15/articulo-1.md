@@ -3,6 +3,7 @@ El Congreso de la República de Costa Rica
 DECRETAN:
 La siguiente:
 LEY ORGANICA DEL COLEGIO DE FARMACEUTICOS
+(Nota de Sinalevi: La presente norma fue reformada parcialmente y publicado su texto de forma íntegra mediante ley N° 5142 del 30 de noviembre de 1972, y se transcribe a continuación:)
 CAPITULO I
 Del Colegio
 Artículo 1º.- El Colegio de Farmacéuticos tiene por objeto:

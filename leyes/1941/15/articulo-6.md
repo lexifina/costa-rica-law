@@ -1,1 +1,1 @@
-Artículo 6º.- Las deudas a favor del Colegio por concepto de patentes se considerarán créditos privilegiados.
+Artículo 6º.- Para solicitar la inscripción de un producto farmacéutico o la apertura de un establecimiento farmacéutico, deberá cancelarse previamente un derecho de cincuenta colones (¢ 50.0 0) y cien colones (¢ 100.00) respectivamente, en la Tesorería del Colegio de Farmacéuticos.
