@@ -1,0 +1,1 @@
+Artículo 5º—La Oficina de Contabilidad determinará si la solicitud puede ser formalmente recibida por cumplir con los requisitos legales y reglamentarios. Sin embargo, cuando la determinación fuese negativa, el solicitante podrá recurrir para ante el Concejo, de acuerdo a lo dispuesto por el artículo 161 del Código Municipal.

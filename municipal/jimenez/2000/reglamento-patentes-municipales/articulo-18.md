@@ -1,0 +1,1 @@
+Artículo 18.—La Municipalidad pondrá a disposición de los patentados, los formularios y la información necesaria, para que presenten su declaración en la Oficina de Contabilidad a más tardar el 30 de setiembre del año respectivo.

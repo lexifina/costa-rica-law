@@ -1,0 +1,1 @@
+Artículo 20.—Si el patentado no presentare la declaración en el plazo previsto por la Ley y este Reglamento, la Administración procederá a calificarlo conforme a los procedimientos establecidos en el artículo 2º de este Reglamento.

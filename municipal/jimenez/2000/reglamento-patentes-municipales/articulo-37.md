@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Del porcentaje aplicable
+Artículo 37.—La renta líquida gravable y los ingresos brutos anuales determinarán el monto del impuesto de patentes que le corresponde pagar cada contribuyente. Se aplicará el cero coma dos por ciento (0,2%) sobre los ingresos brutos y el cero como nueve por ciento (0,9%) sobre la renta líquida gravable. Esta suma dividida entre cuatro determinará el impuesto trimestral por pagar, el cual deberá cancelarse a más tardar el último día hábil del respectivo trimestre. En los casos en que los declarantes no obtengan renta líquida gravable, pero sean declarantes del impuesto sobre la renta, o por no serlo, no puedan calcular la renta, se aplicará únicamente el factor correspondiente a los ingresos brutos.

@@ -1,0 +1,1 @@
+Artículo 21.—Para efectos de la recalificación que indica el artículo 5º de la Ley Nº 7924, el término máximo e improrrogable que se da para presentar la declaración será hasta el mes de diciembre del año respectivo.
