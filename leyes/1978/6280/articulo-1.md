@@ -38,3 +38,35 @@ N 241.875 y E 524.420 1 600 metros
 N 248.100 y E 524.420 6 230 metros
 N 249.000 y E 525.150 1050 metros
 Este último punto se encuentra ubicado en el cauce de un afluente del río Peje, por el que se continúa aguas abajo hasta su confluencia con el río Peje, en el punto N 251.950 y E 526.880, siguiendo aguas abajo hasta el punto en las coordenadas N 267.880 y E 531.320, de donde se parte con rumbo sureste aproximadamente con una distancia de 560 metros , hasta el punto de coordenadas N 267.450 y E 531.700 (vértice de propiedad de la Organización de Estudios Tropicales OTS). De aquí se parte hacia el punto N 266.920 y E 531.170 distante 750 metros , continuando así por el límite sur de la Estación Biológica La Selva hasta el punto de coordenadas N 265.780 y E 532.500 con una distancia de 1 740 metros , luego el punto de coordenadas N 266.170 y E 532.880, prosiguiendo hacia el noreste hasta el punto N 264.680 y E 534.720, sobre la Quebrada Esquina , continuando aguas abajo hasta el punto N 265.520 y E 535.850 del cual se continúa con una línea recta con rumbo sureste hasta encontrar el brazo izquierdo del río Guácimo, conocido como Quebrada Sábalo en las coordenadas N 265.275 y E 535.800, con una distancia de 300 metros , de este punto se continúa aguas arriba hasta encontrar el punto donde se divide el río Guácimo en sus dos brazos, coordenadas N 264.400 y E 535.650. De este punto se prosigue aguas arriba del río Guácimo hasta un punto ubicado en las coordenadas N 251.500 y E 529.450, continuando sobre una línea imaginaria con rumbo general sureste hasta el punto N 248.400 y E 537.000, siguiendo por esta coordenada con un rumbo sur franco hasta encontrar el cauce del río Puerto Viejo, siguiendo aguas arriba de éste, el cual define el actual limite del Parque Nacional Braulio Carrillo, hasta llegar al punto ubicado en el limite de este Parque en las coordenadas N 236.960 y E 523.860 que es el punto de partida de esta discripción.)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 22620 del 01 de octubre de 1993, se amplia los límites del Parque Nacional Braulio Carrillo de la siguiente manera: Área que se describe a continuación: Hoja Cartográfica del Instituto Geográfico Nacional, escala 1:50.000, Barba, 3346 II, localizando por los puntos enmarcados en las coordenadas siguientes:
+Partiendo del punto de intersección de las coordenadas 233 350 N y 525 640 E, que es el lugar donde el camino público al Volcán Barva atraviesa el límite del Parque Nacional Braulio Carrillo, se continúa sobre dicho camino hacia el sur, según las siguientes coordenadas:
+Coordenadas
+Norte Este
+233373 525514
+233 337 525 532
+233 304 525 588
+233 252 525 599
+233 199 525553
+233 149 525617
+233 063 525 589
+233 986 525 649
+232 903 525 602
+232759 525 568
+Este último punto corresponde al cruce del camino público al Volcán Barva, con un brazo del Río Porrosatí. El límite continúa aguas abajo por este brazo del río, según las siguientes coordenadas:
+Coordenadas
+Norte Este
+232759 525568
+232609 525581
+232498 525673
+232447 525778
+232352 525842
+A partir de aquí, se sigue por puntos imaginarios según las siguientes coordenadas:
+Coordenadas
+Norte Este
+232554 526064
+232937 526267
+233000 526257
+233000 526000
+Límite actual del parque
+233550 526000
+A partir de aquí se sigue un rumbo suroeste aproximado por una línea imaginaria formada por una circunferencia de dos kilómetros de radio del centro del cráter formado por la Laguna del Volcán Barva, hasta llegar a las coordenadas N 233 350 y E 525 640, punto de inicio de esta descripción.)
