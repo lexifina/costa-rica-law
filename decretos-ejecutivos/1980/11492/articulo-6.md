@@ -1,9 +1,3 @@
-Artículo 6º.- Son incómodos por sonido cuando estos se perciben
-en el interior de las habitaciones vecinas con una intensidad mayor de
-sesenta y cinco decibeles (A), desde las seis hasta las dieciocho horas y
-mayor de cuarenta decibeles (A) en las restantes doce horas. La
-División de Saneamiento Ambiental del Ministerio de Salud, establecerá
-los procedimientos de acuerdo con las normas establecidas para efectuar
-la pruebas de medición en el momento en que estime conveniente."
-( Así reformado por el artículo 1º del decreto Nº 18209 de 23 de junio de
-1988).
+Artículo 6º.-
+(DEROGADO, mediante el artículo 30 del decreto ejecutivo N° 28718 de 15 de junio de 2000).
+(NOTA DE SINALEVI: Mediante el artículo 30 del decreto ejecutivo N° 28718 del 15 de junio del 2000, se deroga el presente artículo. No obstante, mediante el artículo 1° del decreto ejecutivo N° 29190 del 4 de diciembre del 2000, se deroga el artículo 30 de decreto ejecutivo N° 28718, con el objetivo de poner de nuevo en vigencia el artículo 6° del presente decreto. Posteriormente mediante el artículo 1° del decreto ejecutivo N° 33168 del 17 de mayo del 2000, se deroga el decreto ejecutivo N° 29190, con el fin de que cobre vigencia el artículo 30 del decreto ejecutivo N° 28718 y así establecer nuevamente la derogatoria al presente artículo).

@@ -1,9 +1,3 @@
-Artículo 50.- Se prohíbe en los establecimientos industriales el
-trabajo después de las dieciocho horas y antes de las seis horas, cuando
-produzcan ruidos que trasciendan al interior de las habitaciones vecinas
-con una intensidad que sobrepase los cuarenta decibeles (A) y entre las
-seis y las dieciocho horas, cuando los ruidos se perciban en el interior
-de las habitaciones vecinas con una intensidad mayor de sesenta y cinco
-decibeles (A).
-( Así reformado por el artículo 1º del decreto Nº 18209 de 23 de junio de
-1988).
+Artículo 50.-
+(DEROGADO, mediante el artículo 30 del decreto ejecutivo No. 28718 de 15 de junio de 2000).
+(NOTA DE SINALEVI: Mediante el artículo 30 del decreto ejecutivo N° 28718 del 15 de junio del 2000, se deroga el presente artículo. No obstante, mediante el artículo 1° del decreto ejecutivo N° 29190 del 4 de diciembre del 2000, se deroga el artículo 30 de decreto ejecutivo N° 28718, con el objetivo de poner de nuevo en vigencia el artículo 50 del presente decreto. Posteriormente mediante el artículo 1° del decreto ejecutivo N° 33168 del 17 de mayo del 2000, se deroga el decreto ejecutivo N° 29190, con el fin de que cobre vigencia el artículo 30 del decreto ejecutivo N° 28718 y así establecer nuevamente la derogatoria al presente artículo).
