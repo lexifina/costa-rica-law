@@ -1,0 +1,1 @@
+Artículo cuarto. El beneficiario de la reserva tiene el derecho de hacer abrir a su costa caminos que conduzcan a las tierras baldías que va a explotar, por la vía administrativa y, en todo lo demás, con sujeción a las disposiciones del artículo 519 del Código Fiscal, modificado por el artículo segundo de la ley de 6 de agosto de 1892.
