@@ -1,0 +1,1 @@
+Artículo 7°-Corresponde a la Dirección Ejecutiva, de acuerdo con los incisos a) y c) del artículo 4° de este reglamento, determinar la clase de puestos que puedan acogerse en forma voluntaria a la Disponibilidad, para tal efecto podrá solicitar la intervención de la Administración de Personal de la Institución, y lo hará del conocimiento de la Junta de Relaciones Laborales.

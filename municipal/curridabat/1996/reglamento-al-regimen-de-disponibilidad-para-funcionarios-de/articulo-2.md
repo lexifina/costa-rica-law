@@ -1,0 +1,2 @@
+Artículo 2°-La Disponibilidad funcionará como elemento aleatorio del trato rle trabajo y como una condición propia de la actividad, se obliga al funcionario a estar a disposición de la Municipalidad, de manera permanente, pendiente del desarrollo y marcha de la Institución, excluyendo al pago de jornada extraordinaria cuando el trabajo se acoja a ella.
+Se otorgará el beneficio de la Disponibilidad a juicio de la Administración Municipal, aquellos casos que así lo ameriten.

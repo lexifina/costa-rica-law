@@ -1,0 +1,1 @@
+Artículo 11.-La Dirección Ejecutiva aprobará o improbará el contrato de disponibilidad, en un plazo no mayor de 5 días hábiles, contados a partir de la fecha de presentación. Una vez aprobado el contrato respectivo, la Municipalidad procederá a confeccionar la acción de personal, la cual deberá seguir el trámite usual que rige en la Institución.
