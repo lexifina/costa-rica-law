@@ -14,3 +14,4 @@ Norma General respecto a los rótulos ubicados sobre el espacio público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-12 | la propia norma |
+| 2 | 2004-07-06 | Acuerdo municipal 114 (2004-07-06) |
