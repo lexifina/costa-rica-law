@@ -1,0 +1,1 @@
+Art. 13.-Con presencia de los manifiestos arreglar la cuenta de los bultos que se hayan desembarcado y de los que deban permanecer a bordo, asegurándose de la igualdad por el registro que se haga en el buque antes de cancelar su manifiesto, sin cuyo requisito no permitir la salida.
