@@ -1,0 +1,9 @@
+# Interpreta Art 19 Ley Fundamental del Estado de Costa Rica (1825)
+
+Ley N° 145 del 1827-10-08. SINALEVI, ficha 9438: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=9438&param2=10114&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 2 | 1827-10-08 | Ley 145 | 1827-10-08 |
