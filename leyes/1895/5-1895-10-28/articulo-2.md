@@ -1,0 +1,1 @@
+Art 2° Se exceptúan de la prohibición establecidas por las leyes de 21 de diciembre de 1885 y 22 de junio de 1888, los terrenos que en virtud de concesiones hechas hasta hoy por el Estado hayan denunciado o denuncien las Municipales de la República.
