@@ -1,0 +1,1 @@
+Artículo 16.—La Comisión Evaluadora de atestados, estudiará y resolverá acerca de cada solicitud de incorporación. Su estudio y análisis será confidencial. De su decisión se podrá apelar ante la Junta Directiva.

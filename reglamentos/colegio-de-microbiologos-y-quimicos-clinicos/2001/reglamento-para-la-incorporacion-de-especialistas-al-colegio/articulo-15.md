@@ -1,0 +1,1 @@
+Artículo 15.—La Comisión analizará la solicitud presentada una vez que la documentación requerida se encuentre completa y podrá solicitar mayor información si lo estima necesario, así como podrá ordenar las entrevistas que estime convenientes con el interesado.

@@ -1,0 +1,2 @@
+Artículo 25.—Este Reglamento deroga y deja sin ningún efecto cualquier otro reglamento dictado con anterioridad. No obstante, el Colegio deberá respetar el registro existente de Especialistas y los derechos adquiridos de las personas que se encuentren en trámite de solicitud formal para el reconocimiento de nuevas especialidades conforme con el Reglamento anterior.
+Las personas que hubieren sido registradas con anterioridad como especialistas, tendrán los mismos derechos y deberes de los profesionales que se registren de acuerdo con este nuevo Reglamento.

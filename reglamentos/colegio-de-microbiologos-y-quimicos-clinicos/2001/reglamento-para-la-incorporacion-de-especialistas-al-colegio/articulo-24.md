@@ -1,0 +1,1 @@
+Artículo 24.—Será obligación del Especialista la promoción del conocimiento en el campo de su especialidad, lo mismo que recomendar a las entidades públicas y privadas los criterios, técnicas e interpretación de las mismas, que aseguren el diagnóstico correcto.

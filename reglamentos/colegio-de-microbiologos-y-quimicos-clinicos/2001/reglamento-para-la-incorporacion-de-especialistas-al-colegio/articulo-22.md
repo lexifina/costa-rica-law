@@ -1,0 +1,1 @@
+Artículo 22.—Cuando corresponda al Colegio de Microbiólogos y Químicos Clínicos integrar comisiones técnicas, temas o postular peritos, conciliadores y árbitros, se deberá dar prioridad a los profesionales registrados como Especialistas, de acuerdo con el campo en el que desarrollarán sus actividades.

@@ -1,0 +1,1 @@
+Articulo 6°—Solamente podrán solicitar el reconocimiento y registro de su Especialidad, los miembros activos del Colegio de Microbiólogos y Químicos Clínicos que se encuentren al día con sus cuotas de colegiatura.

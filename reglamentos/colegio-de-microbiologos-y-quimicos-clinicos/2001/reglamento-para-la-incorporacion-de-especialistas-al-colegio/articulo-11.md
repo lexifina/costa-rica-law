@@ -1,0 +1,1 @@
+Artículo 11.—Cuando el Microbiólogo y Químicos Clínico haya efectuado sus estudios de especialización en el extranjero, deberá presentar los atestados para el reconocimiento y registro como especialista debidamente reconocidos y equiparados por el Consejo Nacional de Rectores (CONARE).

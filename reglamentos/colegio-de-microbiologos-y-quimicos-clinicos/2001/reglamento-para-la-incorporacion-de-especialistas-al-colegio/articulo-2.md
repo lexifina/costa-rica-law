@@ -1,0 +1,1 @@
+Artículo 2°—El Colegio de Microbiólogos y Químicos Clínicos de Costa Rica, reconocerá Especialidades en las distintas ramas de la Microbiología y Química Clínica, de conformidad con las normas y los trámites aquí establecidos, mediante acuerdo de Junta Directiva.

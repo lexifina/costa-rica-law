@@ -1,0 +1,1 @@
+Artículo 5°—La Junta Directiva, por recomendación de la Comisión de Especialidades en Microbiología (CODEM), Universidad de Costa Rica u otro órgano de postgrado equivalente y reconocido, podrá incluir otras Especialidades, subespecialidades o secciones.

@@ -1,0 +1,1 @@
+Artículo 8°—La Junta Directiva del Colegio dictara la resolución final sobre la denegatoria o reconocimiento y registro de la Especialidad, una vez recibido el criterio de la Comisión Evaluadora de Atestados, mediante acto razonado.
