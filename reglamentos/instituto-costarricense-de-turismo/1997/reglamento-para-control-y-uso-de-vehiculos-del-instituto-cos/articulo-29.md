@@ -1,3 +1,2 @@
-CAPITULO OCTAVO
-De las sanciones
-Artículo 29.—El funcionario que infrinja cualquiera de las disposiciones del presente reglamento, se hará acreedor a las sanciones establecidas en el Reglamento Autónomo de Trabajo para empleados del ICT.
+Artículo 29.—Una vez concluida la gira con el vehículo asignado, sea este oficial o arrendado, la solicitud de uso de vehículo debe ser firmada por el jefe de la unidad solicitante, dándole el visto bueno al uso y kilometraje recorrido por el vehículo y entregada al Departamento Administrativo. En caso de vehículos arrendados, deben acompañar también una copia del contrato firmado con la arrendadora.
+(Así modificada tacitamente su numeración por acuerdo tomado en sesión N° 5173 de 2 de mayo del 2002, que lo pasó del 28 al 29)

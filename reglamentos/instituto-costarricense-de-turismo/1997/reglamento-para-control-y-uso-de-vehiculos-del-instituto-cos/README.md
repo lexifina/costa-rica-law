@@ -14,3 +14,4 @@ Reglamento para Control y Uso de Vehículos del Instituto Costarricense de Turis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-08-04 | la propia norma |
+| 2 | 2002-05-02 | Reglamento 5173 (2002-05-02) |
