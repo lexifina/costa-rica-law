@@ -1,0 +1,1 @@
+Artículo 4º—Representante del Directorio. El Directorio Nacional de la Asamblea designará a una de sus integrantes como representante ante la Comisión, quien fungirá como enlace tendrá derecho sólo a voz.

@@ -1,0 +1,1 @@
+Transitorio único. Quienes actualmente componen la Comisión permanecerán en sus cargos hasta que las integrantes designadas de conformidad con el presente Reglamento puedan entrar en posesión del cargo.

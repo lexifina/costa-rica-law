@@ -1,0 +1,2 @@
+Artículo 6º—Sesiones. La Comisión sesionará ordinariamente una vez por mes, y extraordinariamente cuando lo convoque la Presidenta o un veinticinco por ciento de sus integrantes. La sesión se desarrollará siguiendo el orden del día, cuyo orden podrá modificarse, pero cuando se desee introducir asuntos, será necesaria la presencia de al menos dos tercios de los miembros de la Comisión, y que se declare el asunto urgente por unanimidad.
+La agenda deberá ser enviada a cada integrante con no menos de tres días hábiles a la fecha de la sesión.

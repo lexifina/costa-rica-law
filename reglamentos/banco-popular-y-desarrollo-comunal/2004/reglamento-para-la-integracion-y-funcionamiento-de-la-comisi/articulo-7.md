@@ -1,0 +1,1 @@
+Artículo 7º—Quórum de Asistencia y Votación. El quórum para las sesiones se formará con la mayoría absoluta de las integrantes de la Comisión y los acuerdos serán tomados por mayoría absoluta de votos de las presentes al momento de la resolución.

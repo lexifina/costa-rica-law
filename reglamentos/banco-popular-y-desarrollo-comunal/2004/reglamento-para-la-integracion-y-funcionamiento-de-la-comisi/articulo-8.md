@@ -1,0 +1,1 @@
+Artículo 8º—Subcomisiones. Cuando la Comisión lo estime necesario para un mejor desempeño de sus funciones, constituirá de su seno subcomisiones, las que realizarán sus labores en los términos que la Comisión les indique.
