@@ -1,0 +1,5 @@
+DECRETO XXVI.
+Adiciona el articulo 451 del Codigo de procedimientos.
+“Juan Rafael Mora Presidente de la República de Costa Rica.-Por cuanto el Excelentísimo Congreso constitucional ha decretado lo siguiente.
+El Excelentísimo Congreso constitucional de la República de Costa Rica, para modificar en lo posible la dureza del articulo 455 del Código de procedimientos, decreta.
+Fraccion adicional al artículo 451 del Código de procedimientos. "Tampoco tendrá lugar la prisión cuando se presente la fianza de carcel, reducida a que el fiador se comprometa á entregar la persona del deudor cuando se pronuncie la sentencia del remate.*-Al Poder Ejecutivo.-Dado en el Palacio de los Supremos Poderes en San José, á los once días del mes de julio de mil ochocientos cincuenta y uno. -Francisco Maria Oreamuno, Presidente.-Modesto Guevara, Secretario.-Miguel Mora, Secretario. Por tanto: EJECUTESE. Palacio nacional. San José julio veintiocho de mil ochocientos cincuenta y uno. -Juan Rafael Mora. -El Ministro de Estado en el Despacho de Gobernacion, Joaquin Bernardo Calvo."
