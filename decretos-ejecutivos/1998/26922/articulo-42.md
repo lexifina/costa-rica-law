@@ -1,0 +1,1 @@
+Artículo 42.—Podrán optar, igualmente, los servidores del Ministerio, al pago del incentivo, por regionalización y zonaje, siempre que se den las circunstancias apropiadas de trabajo, y se cumpla con los requisitos que el reglamento correspondiente establece.

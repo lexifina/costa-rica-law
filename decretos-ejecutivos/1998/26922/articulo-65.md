@@ -1,0 +1,3 @@
+CAPITULO XVII
+Del Régimen Disciplinario
+Artículo 65.—La Inobservancia de los deberes y obligaciones, o la violación de las prohibiciones a que se refiere el Estatuto y su Reglamento, y el presente Reglamento, por parte de los servidores en el desempeño de sus funciones, se sancionarán de acuerdo con la gravedad de la falta cometida y siguiendo el procedimiento que se indica en el presente capítulo.

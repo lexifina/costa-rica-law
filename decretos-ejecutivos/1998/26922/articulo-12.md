@@ -1,0 +1,1 @@
+Artículo 12.—El Ministerio podrá establecer horarios diferentes para servidores que realicen funciones en el campo, quedando bajo la responsabilidad del jefe respectivo, determinar el tiempo en que éstas deben realizarse, previo acuerdo con el Departamento de Recursos Humanos.
