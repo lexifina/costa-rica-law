@@ -1,1 +1,0 @@
-Artículo 6°.- La Auditoría General de Comunicaciones se encargará de efectuar el control adecuado para el debido cobro del alquiler de apartados de correo, lo mismo que del correcto reintegro en la Administración de Rentas de los dineros percibidos.

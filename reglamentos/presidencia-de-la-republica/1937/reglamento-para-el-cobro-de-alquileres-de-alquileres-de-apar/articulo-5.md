@@ -1,2 +1,0 @@
-Artículo 5°.- Las Administraciones de Correos remitirán diariamente a la Auditoría General de Comunicaciones el producto del cobro de alquiler de apartados efectuados el día anterior, junto con las copias de los recibos que componen la remesa. La Auditoría General de Rentas el producto de esas remesas con indicación del lugar a que corresponden.
-Este artículo modifica el precepto 111 del Reglamento de Servicio Postal del Interior que indica que las remesas deben hacerse mensualmente.

@@ -1,1 +1,0 @@
-Artículo 4°.- Diariamente la Auditoría General de Comunicaciones enterará en la Administración General de Rentas el producto del cobro del alquiler de apartados efectuado el día anterior, acompañando las copias de los recibos cobrados , no pudiendo por ningún motivo omitir hacer el depósito indicado.
