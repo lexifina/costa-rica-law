@@ -1,1 +1,1 @@
-Articulo 9°—Los regidores, síndicos y funcionarios que no presentan las liquidaciones serán denunciados ante el Ministerio Público, previo cumplimiento del debido proceso, conforme a la normativa penal vigente. La presentación de la denuncia se hará por parte de la Dirección de Asuntos legales y se tendrá un plazo máximo para la misma de tres meses a partir del requerimiento escrito de las liquidaciones o de los reintegros.
+Articulo 9°—DEROGADO por la Sesion Extraordinaria N° 52 de 11 de julio de 2001, publicada en La Gaceta N° 167 de 01 de setiembre de 2003.

@@ -14,3 +14,4 @@ Reglamento de Viajes para Regidores, Síndicos y Funcionarios Municipales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-16 | la propia norma |
+| 2 | 2001-07-11 | Reglamento municipal 52 (2001-07-11) |
