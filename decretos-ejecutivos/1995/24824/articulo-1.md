@@ -11,4 +11,5 @@ V.—Que la introducción de llantas usadas al país, pone en grave peligro la s
 VI.—Que en el país no existe la tecnología necesaria para tratar las llantas usadas, sin que ello implique contaminación ambiental, las cuales se han convertido en un producto más de desecho que diariamente son localizadas en lotes baldíos, cauces de los ríos y otros sitios a la intemperie, lo que hace que se conviertan en habitad de los indicados mosquitos.
 VII.—Que se hace necesario y oportuno confirmar y ampliar la prohibición de importación de llantas usadas contenida en el decreto ejecutivo N° 4193-SPPS citado. Por tanto,
 DECRETAN:
-Artículo 1°—Se prohíbe la importación de toda clase y tipo de llantas usadas.
+Artículo 1°—Se prohíbe la importación de toda clase y tipo de llantas usadas, incluyendo las llantas reencauchadas.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 26449 del 24 de octubre de 1997)

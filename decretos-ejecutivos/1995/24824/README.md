@@ -13,3 +13,4 @@ Prohibe la Importación de Llantas Usadas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-12-22 | la propia norma |
+| 2 | 1997-10-24 | Decreto Ejecutivo 26449 (1997-10-24) |
