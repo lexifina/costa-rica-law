@@ -1,0 +1,1 @@
+Artículo 2°—Los miembros de la Junta Médica Calificadora de Incapacidades del Trabajo del Consejo de Salud Ocupacional devengarán las dietas fijas y consecutivas que la ley y su reglamento indican, cada una con un monto de ¢ 7.477,00 (siete mil cuatrocientos setenta y siete colones). Solo tendrán derecho a dieta los miembros que asistan a las sesiones respectivas.
