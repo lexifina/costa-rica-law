@@ -1,0 +1,1 @@
+Artículo 2°-La Municipalidades deberán atender directamente el cuidado y conservación de los recursos naturales de la zona marítimo terrestre aquí declarada, y asumir las obligaciones y funciones que le ordena la ley sobre la zona marítimo terrestre.

@@ -1,0 +1,2 @@
+Artículo 7°-A más tardar treinta días naturales posteriores a la publicación de este Decreto, el Instituto Costarricense de Turismo deberá declarar zona turística la nueva zona marítimo terrestre aquí demarcada, conforme con lo dispuesto en el artículo 27 de la Ley 6043. También deberá asumir todas las demás obligaciones y funciones que la citada Ley le ordena.
+Dado en la Presidencia de la República.-San José, a los cuatro días del mes de agosto de mil novecientos noventa y dos.
