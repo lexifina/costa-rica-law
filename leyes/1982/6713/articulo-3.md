@@ -1,1 +1,0 @@
-Artículo 3°—La Municipalidad deberá resolver las solicitudes de licencia, dentro de los treinta días hábiles siguientes a su presentación en forma. Vencido este plazo, el particular podrá establecer su actividad, sin perjuicio de lo que en definitiva decida la Corporación.

@@ -1,1 +1,0 @@
-Artículo 8°—Los impuestos de patentes se pagarán por trimestres adelantados. El atraso en el pago tendrá un recargo, con carácter de multa, del 2% por cada mes o fracción, el cual no podrá exceder, en ningún caso, del 24% del monto adeudado.
