@@ -23,3 +23,4 @@ Reglamento para el otorgamiento de crédito a grupos de interés económico
 | 8 | 2003-04-01 | Reglamento 364 (2003-04-01) |
 | 9 | 2003-06-03 | Reglamento 374 (2003-06-03) |
 | 10 | 2003-07-29 | Reglamento 382 (2003-07-29) |
+| 11 | 2003-12-09 | Reglamento 408 (2003-12-09) |
