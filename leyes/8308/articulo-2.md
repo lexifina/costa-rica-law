@@ -1,0 +1,1 @@
+Artículo 2º—El lote por donar será utilizado para proteger y preservar la naciente del río María Aguilar que en él se encuentra; con este propósito, el AyA realizará las acciones y obras que correspondan.
