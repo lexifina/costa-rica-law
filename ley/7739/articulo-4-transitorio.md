@@ -1,0 +1,1 @@
+Transitorio IV.- Corresponderá al Patronato Nacional de la Infancia adoptar las previsiones presupuestarias y administrativas para la constitución y el funcionamiento del Fondo para la niñez y la adolescencia, en un plazo máximo de seis meses contados a partir de la publicación de esta ley.
