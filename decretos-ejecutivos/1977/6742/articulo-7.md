@@ -1,0 +1,1 @@
+Artículo 7°.- La Comisión queda facultada para llevar a cabo la campaña de divulgación y promoción necesaria para los propósitos del presente decreto. Esta campaña tendrá un carácter eminentemente educativo promoviendo lo más legítimo intereses democráticos del país y sus valores cívicos y se llevará a cabo a través del IFAM.
