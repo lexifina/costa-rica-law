@@ -1,0 +1,2 @@
+Art. 3°-El día 31 de diciembre del corriente año quedará á disposición de los acreedores respectivos, en los Bancos encargados de la liquidación de la Deuda Interior, el importe del saldo de ésta.
+Dado en la ciudad de San José, en el Palacio Presidencial, á los tres días del mes de febrero de mil ochocientos ochenta y siete.-BERNARDO SOTO.-El Secretario de Estado en el despacho de Hacienda.- MAURO FERNÁNDEZ.
