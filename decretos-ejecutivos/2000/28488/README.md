@@ -14,3 +14,4 @@ De Utilidad Pública Asoc. Institución Cultural Germano Costarricense
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-09 | la propia norma |
+| 2 | 2000-03-09 | Ley 7 |
