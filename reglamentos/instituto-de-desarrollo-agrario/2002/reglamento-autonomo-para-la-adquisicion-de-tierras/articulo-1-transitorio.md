@@ -1,0 +1,1 @@
+Transitorio I.—Aquellos procedimientos de compra que se hayan iniciado y que cuenten a la fecha de entrada en vigencia del presente Reglamento con el avalúo respectivo y el estudio agrológico, podrán concluirse aplicando el reglamento anterior; pero si al 31 de enero del 2003, no estuviesen concluidos, deberán ajustarse a esta nueva normativa.

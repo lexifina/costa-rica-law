@@ -1,0 +1,1 @@
+Artículo 10.—La Secretaría Técnica de La Comisión velará porque exista un expediente por cada finca bajo estudio, el cual se localizará en la Dirección Formación y Desarrollo de Asentamientos, bajo su vigilancia y custodia.

@@ -1,0 +1,1 @@
+Artículo 49.—Rige a partir del día primero de Diciembre del año 2002, con el fin de que la Institución pueda adaptar sus procedimientos y formatos de informes, así como capacitar al personal pertinente, para la correcta aplicación de este Reglamento.

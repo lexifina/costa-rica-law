@@ -1,0 +1,1 @@
+Artículo 42.—En el proceso de análisis y calificación de los inmuebles ofrecidos en venta, para el establecimiento exclusivo de granjas familiares, La Comisión, analizará los expedientes de las fincas, asignándole una puntuación a cada una de acuerdo a los criterios que se detallan en el Capítulo VII, Sección II de este Reglamento.

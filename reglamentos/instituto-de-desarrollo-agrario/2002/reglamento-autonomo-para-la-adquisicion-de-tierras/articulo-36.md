@@ -1,0 +1,9 @@
+Artículo 36.—El grupo, en su solicitud, deberá indicar si han identificado opciones de fincas, que se adapten a sus necesidades. Las personas propietarias de estas fincas, que estén anuentes a vender, deberán presentar la correspondiente oferta de venta, de acuerdo a lo indicado en el artículo 11 de este Reglamento. Si las personas solicitantes no disponen de opciones, la Dirección Regional consultará el archivo de ofertas del Departamento Formación de Asentamientos para localizar aquellas que se adapten a las necesidades del grupo.
+Una vez recibidas las ofertas se procederá, en lo aplicable, según lo dispuesto en el Capítulo III de este Reglamento. Para este fin se deberán considerar las siguientes variantes:
+a) El estudio de Selección de Familias deberá efectuarse antes de realizar la inspección preliminar. Esto con el fin de determinar si la organización y sus integrantes cumplen con los requisitos establecidos en el respectivo Reglamento.
+b) No se procederá a iniciar el proceso de adquisición de una finca para los fines de este capítulo cuando:
+¨ La organización y/o sus integrantes no reúnan los requisitos descritos en el Reglamento de Selección de Familias.
+¨ El perfil del proyecto no cumpla con lo estipulado en los artículos 34 y 35 de este Reglamento.
+c) En el caso del informe sobre la inspección preliminar a que se refiere el artículo 12 de este Reglamento deberá destacarse si la finca presenta las características específicas requeridas por el proyecto y que deben constar en el perfil respectivo.
+d) Para los efectos de lo dispuesto en el artículo 13 de este Reglamento deberá añadirse al listado de documentos, la solicitud del grupo dirigida a la Dirección Regional, el perfil del proyecto a ejecutar y el informe del estudio de Selección de Familias.
+e) Los estudios técnicos mencionados en el artículo 14 deberán destacar si la finca cumple con las características exigidas en el perfil del proyecto a desarrollar.

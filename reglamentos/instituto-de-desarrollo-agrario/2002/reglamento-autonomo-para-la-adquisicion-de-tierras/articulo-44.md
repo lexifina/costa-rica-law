@@ -1,0 +1,1 @@
+Artículo 44.—Si el inmueble no reúne las condiciones mínimas establecidas en este Reglamento, la finca no debe ser adquirida. Esta situación debe fundamentarse debidamente por escrito. Quedará a criterio del Instituto ofrecer otras alternativas a las personas ocupantes, de modo que pueda solventarse su problema de tenencia de la tierra.

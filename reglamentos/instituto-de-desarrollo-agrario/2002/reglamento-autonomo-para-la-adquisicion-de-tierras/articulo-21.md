@@ -1,0 +1,1 @@
+Artículo 21.—Una vez que la Junta Directiva apruebe la compra de una finca, el acuerdo correspondiente será remitido por la Secretaría General a las unidades pertinentes, para su ejecución. Así mismo, dicha Secretaría procederá a devolver el expediente original la secretaría de La Comisión.
