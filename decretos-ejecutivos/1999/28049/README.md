@@ -14,3 +14,4 @@ Declara de Utilidad Pública Asociación Humanitaria de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-20 | la propia norma |
+| 2 | 1999-08-20 | Ley 7 |
