@@ -1,0 +1,3 @@
+CAPÍTULO II
+Monto del fondo y aportes
+Artículo 5º—Monto total del fondo. El monto total del fondo deberá cubrir al menos el noventa y cinco por ciento (95%) de la distribución de frecuencia acumulada, de las posiciones diarias netas de compra del conjunto de los puestos de bolsa miembros de la bolsa de valores respectiva en los seis meses anteriores a la realización del cálculo. Para este cálculo se tomarán las operaciones realizadas en el mercado primario y el mercado secundario de la bolsa de valores respectiva. Se entiende como compras netas la diferencia entre compras y ventas, siempre y cuando las compras superen el volumen de las ventas.

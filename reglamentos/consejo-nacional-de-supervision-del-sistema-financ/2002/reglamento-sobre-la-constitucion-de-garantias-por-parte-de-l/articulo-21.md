@@ -1,0 +1,1 @@
+Artículo 21.—Auditoría anual de los estados financieros del Fondo. Cada bolsa de valores, en su condición de fiduciaria, deberá someter los estados financieros del fondo a una auditoría externa anual. Dicha auditoría deberá acatar en lo conducente el Reglamento sobre auditorías externas emitido por el Consejo Nacional de Supervisión del Sistema Financiero.

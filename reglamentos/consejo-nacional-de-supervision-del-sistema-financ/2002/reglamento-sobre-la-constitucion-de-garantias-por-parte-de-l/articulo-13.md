@@ -1,0 +1,1 @@
+Artículo 13.—Cargos por uso del fondo. Cada bolsa de valores establecerá, reglamentariamente, la estructura de costos financieros y administrativos que estarán obligados a cubrir los puestos de bolsa, con motivo de la activación del fondo de garantía.

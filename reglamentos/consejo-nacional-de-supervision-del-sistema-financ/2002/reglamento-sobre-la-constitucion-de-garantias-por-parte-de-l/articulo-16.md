@@ -1,0 +1,2 @@
+Artículo 16.—Inversión de los recursos del fondo. Los recursos del fondo deberán ser invertidos por la fiduciaria en títulos negociables a través del Mercado Interbancario (MIB) u otro mecanismo similar, de manera que puedan hacerse efectivos el mismo día en que sea necesaria su utilización.
+Sin perjuicio de lo anterior, se mantendrá un coeficiente de liquidez, cuyos recursos deberán invertirse en activos líquidos, de conformidad con lo que establezca la bolsa de valores respectiva.

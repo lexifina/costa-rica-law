@@ -1,0 +1,1 @@
+Artículo 17.—Constitución de préstamos. La fiduciaria podrá suscribir líneas de crédito con las entidades financieras de su elección, para lo cual podrá dar en garantía los valores que formen parte del fondo.

@@ -1,0 +1,4 @@
+Artículo 9º—Aportes en caso de autorización de nuevos puestos, fusión y desinscripción. La autorización de nuevos puestos de bolsa estará condicionada a un aporte inicial por parte de la sociedad respectiva de una garantía equivalente al monto del aporte total más bajo de un puesto que ya opere a esa fecha en la bolsa de valores correspondiente.
+En caso de fusión, los recursos aportados por el puesto de bolsa que desaparece deberán ser contabilizados a favor del puesto prevaleciente.
+En el caso de la desinscripción de un puesto de bolsa, su aporte deberá mantenerse depositado en el fondo hasta que se haya liquidado la totalidad de las operaciones realizadas en bolsa.
+En todos los casos anteriores, la bolsa de valores respectiva deberá establecer los mecanismos necesarios para la realización de ajustes a los montos depositados por los participantes, de forma que se cumpla con el principio de proporcionalidad del fondo.
