@@ -1,0 +1,4 @@
+N° 3962
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1°-Se exonera del pago de impuestos aduaneros, de ventas, de consumo y municipales, la adquisición de los siguientes materiales que la Municipalidad de Grecia destinará a la construcción del nuevo Palacio Municipal de ese cantón: 136 metros cuadrados de parquet; 150 metros cuadrados de azulejo; 200 metros cuadrados de celosías de vidrio; 100 metros cuadrados de vidrio; 12 servicios sanitarios; 12 lavatorios; 1400 metros cuadrados de terrazo o terrazín; 1000 metros lineales de viguetas pretensadas; 600 metros cuadrados de losetas pretensadas; 550 metros cuadrados de asbeto cemento; 600 metros cuadrados de plywood ( 300 láminas) ; 700 láminas de hierro para techo N° 26 G; 500 galones de pintura; 3500 sacos de cemento; y 1600 quintales de hierro estructural.
