@@ -1,0 +1,2 @@
+Artículo 8º—Lo correspondiente al Fondo Fijo de la Caja
+Recaudadora, lo depositará el Cajero (a) en la Caja Metálica de Seguridad, cuya llave sólo deberá manejar él o ella (Cajero (a) y debe ser entregada y cerrada ésta caja al Tesorero (a), para que sea depositada en la Caja Fuerte de la Tesorería, para su custodia la misma. Y el Tesorero (a), la entregará nuevamente un día hábil siguiente al Cajero (a).

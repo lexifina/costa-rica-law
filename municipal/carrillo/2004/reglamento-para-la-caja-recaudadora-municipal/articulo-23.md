@@ -1,0 +1,1 @@
+Artículo 23.—A todo recibo de comprobante de ingreso, cancelado mediante cheque debe consignarse la leyenda “este recibo queda sujeto al pago a que el cheque tenga fondos”. Además, debe ponerse el número de cheque y la fecha con que canceló el contribuyente, así como, el nombre del banco quien emitió la chequera al contribuyente o usuario.

@@ -1,0 +1,1 @@
+Artículo 12.—Las ausencias del cajero (a) debe suplirlas un funcionario adiestrado para este fin, el cual deberá rendir garantía fiduciaria, previo traspaso del fondo que para tal efectos se dejará constancia, aplicando para tal efecto lo que señala el artículo 1, inciso e, del Manual de Procedimiento Financieros-Contables de esta Municipalidad.

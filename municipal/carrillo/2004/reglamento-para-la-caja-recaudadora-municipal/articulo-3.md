@@ -1,0 +1,1 @@
+Artículo 3º—El Cajero (a) revisa las operaciones aritméticas de los recibos de comprobantes de ingresos y pone la firma y sello, posteriormente entrega el recibo que indica contribuyente, después que éste, lo ha cancelado.
