@@ -1,0 +1,1 @@
+Art 54° En el caso de que algunas personas quieran establecerse fuera del campamento, se les designará, en conformidad con la ley, cierta extensión del terreno próximo al campamento en sitio en donde pueda cómodamente fundarse una Aldea.

@@ -1,0 +1,1 @@
+Art 4° El Ingeniero es responsable ante el Gobierno por falta de inteligencia en dirigir los trabajos, así como por omisión, negligencia o descuido en el cumplimiento de sus deberes y gozará del sueldo que le está asignado por la ley.

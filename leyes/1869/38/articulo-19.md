@@ -1,0 +1,1 @@
+Art 19° La dirección de este establecimiento será confiada a un Farmacéutica inteligente, que sepa pulsar, sangrar y tenga además nociones de medicina práctica. Se le dará el número de practicantes que se juzgue necesario; y tanto el Farmacéutico como los practicantes tendrán sus habilitaciones al lado de la enfermería para atender a su servicio.

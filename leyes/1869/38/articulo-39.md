@@ -1,0 +1,1 @@
+Art 39° También se utilizarán estos días en el aseo y remiendo de la ropa, arreglo de herramientas, pago y firma de cuentas, y en general en todo lo que ordene el Superintendente y no pueda verificarse durante la semana sin perjuicio del Erario.

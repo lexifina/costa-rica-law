@@ -1,0 +1,1 @@
+Art 56° Así el Superintendente como los demás empleados, cuidarán de procurar la instalación de familias en el campamento o sus inmediaciones; tanto para la conservación de la carretera como para procurarse los auxilios y comodidades que ofrece las poblaciones.
