@@ -1,0 +1,1 @@
+Artículo 2°.- La estimación de la faja de terreno es de ¢ 4.006.32 (cuatro mil seis colones treinta y dos céntimos) que corresponden al total de suma a pagar de conformidad con el avalúo número 9111-E del cinco de enero de mil novecientos setenta y uno de la Sección de Avalúos Especiales de la Tributación Directa.
