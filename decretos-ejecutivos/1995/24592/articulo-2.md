@@ -1,0 +1,3 @@
+Artículo 2º.- Modifícase el Decreto Ejecutivo Nº 24415-H del 23 de
+junio de 1995, publicado en "La Gaceta" Nº 131 del 11 de julio de 1995 en
+la forma que se indica a continuación: ...
