@@ -1,0 +1,3 @@
+Artículo 2º—Atendiendo a lo preceptuado por el inciso 1 del artículo 24, la Convención de Viena sobre el Derecho de los Tratados, la República de Costa Rica interpreta que el artículo III del Tratado de delimitación de áreas marinas y submarinas y cooperación marítima entre la República de Colombia y la República de Costa Rica, firmado en Bogotá el 6 de abril de 1984, en el sentido de que la entrada en vigencia del Tratado en mención será el momento del canje de los respectivos instrumentos de ratificación, acto que podrá realizarse de manera separada, según acuerdo de los gobiernos.
+Rige a partir de su publicación.
+Presidencia de la República.- San José, a los siete días del mes de febrero del dos mil uno.
