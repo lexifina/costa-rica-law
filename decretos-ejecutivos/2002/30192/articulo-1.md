@@ -1,0 +1,18 @@
+N° 30192-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+Con fundamento en lo dispuesto en los artículos 28 inciso 2.b) y 112 inciso 1) de la Ley General de la Administración Pública y el artículo 74 de la Ley General de Policía, Nº 7410 del 27 de mayo de 1994.
+Decretan:
+Reformas a los artículos 1, 2, 3 y 5 del Reglamento que regula los incentivos salariales de los funcionarios de la Dirección de Inteligencia y Seguridad Nacional, cubiertos por el Régimen de Estatuto Policial
+Artículo primero.—Reformase el Decreto Ejecutivo Nº 29459-MP, Reglamento que regula los incentivos salariales de los funcionarios de la Dirección de Inteligencia y Seguridad Nacional, cubiertos por el Régimen de Estatuto Policial, del primero de febrero del dos mil uno, en las siguientes disposiciones:
+a) Artículo tercero, punto segundo, se reforma el párrafo final para que se lea de la siguiente forma:
+"La suma máxima que se podrá otorgar por cada curso de capacitación será de un 1%. Cuando el número de horas efectivas de instrucción sobrepase las 100 horas bajo la modalidad aprovechamiento o 200 horas bajo la modalidad participación, las restantes horas no se tomarán en cuenta para un próximo reconocimiento. Por el contrario, cuando los cursos tengan una duración menor, en horas efectivas de instrucción, a los topes antes indicados, se acumularan para efectos de reconocimiento.
+Serán considerados de aprovechamiento, únicamente, los cursos en los cuales los funcionarios hayan sido evaluados y consecuentemente para efectos de pago, será necesario que el funcionario haya aprobado la evaluación realizada."
+b) Artículo tercero, punto tercero, párrafo inicial, para que se lea de la siguiente forma:
+"Por la enseñanza formal impartida por instituciones autorizadas por el Ministerio de Educación Pública y las entidades de educación superior, en las áreas afines con el área policial, siempre y cuando los funcionarios se encuentren desempeñando sus labores en esas áreas."
+c) Artículo tercero, punto tercero, párrafo final, para que se lea de la siguiente forma:
+"El pago que corresponda por el reconocimiento de este beneficio, en aplicación de lo dispuesto en este artículo, se regirá por las siguientes disposiciones:
+a) El reconocimiento será realizado por parte de una Comisión, la cual se denominará Comisión Evaluadora de los Incentivos del Estatuto Policial, integrada por un representante de la Dirección de Recursos Humanos del Ministerio de la Presidencia, un representante de la División de Recursos Humanos de la Dirección de Inteligencia y Seguridad Nacional y un representante designado por los funcionarios de esa Dirección que estén cubiertos por el Estatuto Policial.
+b) Los incentivos salariales, cuando procedan, se reconocerán dos veces al año, en los meses de enero y julio del año correspondiente. La documentación presentada hasta el 30 de junio será reconocida en el mes de julio y la presentada al 31 de diciembre se reconocerá en el mes de enero del año siguiente.
+c) Para efectos de reconocimiento, el funcionario deberá presentar ante la Comisión Evaluadora de los Incentivos, el formulario oficial debidamente lleno al cual deberá adjuntar originales y copias de los títulos, para confrontación, asimismo el programa de los cursos o en su defecto las certificaciones del ente capacitador. Una vez recibidas, las solicitudes serán analizadas por la Comisión la cual devolverá las que no cumplan con los requisitos. En todos los casos, la Comisión indicará al funcionario, por escrito, la razón de la devolución de la documentación respectiva.
+d) La Comisión reglamentará su funcionamiento dentro de los treinta días siguientes a partir de la entrada en vigencia de esta reforma."
