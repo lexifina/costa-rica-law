@@ -1,0 +1,2 @@
+Artículo 12.
+Una vez que la República reclamada, con vista de los atestados exigidos y hecha la calificación necesaria del delito, acordare la extradición del reo, lo entregará con todos los objetos que le hayan sido aprehendidos y que tengan relación con el delito. La entrega de tales objetos se hará á la nación reclamante, aun en el caso de que por muerte* ó fuga del reo no pueda ya efectuarse la extradición.

@@ -1,0 +1,2 @@
+Artículo 14.
+En casos urgentes y, sobre todo, cuando se tema la fuga, se podrá solicitar la detención preventiva del inculpado, aun por telégrafo, con a gestión necesaria del Juez competente y por conducto del Supremo Tribunal.—El arresto se verificará en la forma y según las leyes establecidas en la legislación del país del asilo, por un término que no exceda de cuarenta días, dentro de los cuales deberá solicitarse en forma la extradición.
