@@ -1,0 +1,1 @@
+Artículo 6º.- Autorízase a la Municipalidad de Mora para que varíe el destino de la partida de ¢ 28.000,00, para expropiación de la calle La Unión, barrio San Bosco, según la ley Nº 6831 del 7 de octubre de 1983, a fin de que la utilice en la compra de materiales para reparación de la misma calle.
