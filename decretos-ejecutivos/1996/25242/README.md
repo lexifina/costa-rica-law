@@ -13,3 +13,4 @@ Reglamento Centroamericano sobre Medidas de Salvaguardia Resol. 19-96
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-27 | la propia norma |
+| 2 | 1996-06-27 | SINALEVI (sin norma nombrada) |
