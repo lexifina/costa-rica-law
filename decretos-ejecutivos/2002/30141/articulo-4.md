@@ -1,0 +1,2 @@
+Artículo 4º—Modifíquese el artículo 43 del Decreto 30021-MAG antes citado para que se lea de la siguiente forma:
+"Para las sesiones del Comité de Fideicomiso, el Fideicomiso cubrirá dentro de los costos de administración, los rubros de movilización, alimentación y eventualmente hospedaje de los agricultores representantes de las organizaciones de productores, de acuerdo a los montos definidos por la Contraloría General de la República, siempre que los mismos residan fuera del Valle Central."
