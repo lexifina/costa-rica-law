@@ -1,0 +1,16 @@
+Artículo 2º.- Restitúyese el artículo 6º de la Ley Constitutiva de la Caja Costarricense de Seguro Social, cuyo texto será el siguiente:
+"Artículo 6º.-La Caja será dirigida por una junta directiva, integrada en la siguiente forma:
+1) Un presidente ejecutivo de reconocida experiencia y conocimientos en el campo correspondiente a la Institución, designado libremente por el Consejo de gobierno. Su gestión se regirá por la siguiente normas:
+a) Será el funcionario de mayor jerarquía para efectos del gobierno de la Institución, cuya Junta Directiva presidirá. Le corresponderá fundamentalmente velar porque se ejecuten las decisiones tomadas por la Junta Directiva, así como coordinar internamente la acción de la Institución, y la de ésta con las demás instituciones del Estado. Asimismo, asumirá las demás funciones que por ley están reservadas al Presidente de la Junta Directiva y las otras que le asigne la propia Junta.
+b) Será un funcionario de tiempo completo y dedicación exclusiva; consecuentemente no podrá desempeñar otro cargo público ni ejercer profesiones liberales.
+c) Podrá ser removido libremente por el Consejo de Gobierno, en cuyo caso tendrá derecho a la indemnización laboral que le corresponda por el tiempo servido en el cargo. Para determinar esa indemnización se seguirán las reglas fijadas en los artículos 28 y 29 del Código de Trabajo, con las limitaciones en cuanto al monto que esos artículos determinan.
+ch) Tendrá la representación de la Institución, con facultades de apoderado generalísimo sin limitación de suma. No será necesaria la inscripción de su personería en el Registro Público y bastará únicamente la publicación de acuerdo de nombramiento en "La Gaceta".
+2) Ocho personas de máxima honorabilidad de nombramiento del consejo de Gobierno, de acuerdo con las siguientes normas:
+a) Dos miembros en representación del Estado, de libre nombramiento, quienes no podrán ser ministros de Estado, o sus delegados.
+b) Tres miembros en representación del sector patronal y tres miembros en representación del sector laboral. La escogencia y la designación a que se refiere el inciso anterior se hará en la siguiente forma:
+Los representantes del sector serán escogidos de listas de personas, que presentarán al Consejo de Gobierno las cámaras patronales, por medio de la Unión de Cámaras.
+Los representantes del sector laboral serán escogidos de listas de tres personas, que presentarán al Consejo, de Gobierno las confederaciones sindicales mayoritarias del país, las cooperativas –por medio del Consejo Nacional de Cooperativas- y el movimiento solidarista.
+El Consejo de Gobierno escogerá un representante de cada uno de los sectores indicados.
+c) El Poder Ejecutivo tendrá facultad para rechazar las listas de candidatos que se le presenten y pedirlas de nuevo.
+ch) Las entidades que tienen derecho a participar en la elaboración y remisión de las listas de candidatos, deberán estar legal y correctamente inscritas y constituidas, según el caso, por lo menos con dos años de antigüedad."
+Transitorio 1º.- El Poder Ejecutivo emitirá el reglamento respectivo, en el cual se establecerán los procedimientos para la elaboración de las listas a que este artículo se refiere.
