@@ -1,0 +1,1 @@
+Artículo 18.—El apoyo administrativo-financiero a que hace alusión el artículo 4, inciso a. 1.2), constituye parte fundamental del proceso planificador en lo que se refiere a la asignación de recursos, seguimiento y evaluación de los programas sustantivos del Area General de Transportes.

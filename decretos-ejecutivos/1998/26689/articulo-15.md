@@ -1,0 +1,1 @@
+Artículo 15.—Existirán un Director General en el Area General de Transportes, y un Subdirector General en cada una de las Areas Sustantivas (Administración Vial y Sistemas de Transporte) los que conjuntamente serán responsables por su gestión ante el Viceministro de Transportes.

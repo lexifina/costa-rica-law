@@ -1,0 +1,1 @@
+Artículo 16.—Cada uno de los Organos Asesores, Areas y Subáreas contarán con un Director y en aquellos casos en que se determine la necesidad se designará a un Subdirector, los que serán responsables por los resultados de la gestión ante el Superior correspondiente.

@@ -1,0 +1,1 @@
+Artículo 17.—Todas las Areas, Subáreas y Organos Asesores se conformarán en equipos de trabajo por procesos, que permitan la flexibilidad y movilización de sus recursos, de conformidad con las necesidades que se presenten.
