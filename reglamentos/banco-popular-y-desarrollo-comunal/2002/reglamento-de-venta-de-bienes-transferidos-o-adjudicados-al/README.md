@@ -14,3 +14,4 @@ Reglamento de Venta de Bienes Transferidos o Adjudicados al Banco Popular y de D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-08 | la propia norma |
+| 2 | 2004-12-16 | Reglamento 4269 (2004-12-16) |
