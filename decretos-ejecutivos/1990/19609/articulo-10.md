@@ -1,0 +1,1 @@
+Artículo 10.-Las ausencias injustificadas en tres sesiones consecutivas o seis alternas en el período de un año por parte del representante de la comunidad, faculta al coordinador del CTB para suspenderlo de su condición de miembro del CTB y solicitar el nombramiento de un nuevo representante.

@@ -1,0 +1,1 @@
+Artículo 7°.-Los acuerdos se tomarán por mayoría simple de los asistentes, y tendrán carácter de firmes cuando se apruebe el acta correspondiente en la sesión siguiente, o en la misma sesión, cuando las dos terceras partes de los miembros presentes asá lo determinen.

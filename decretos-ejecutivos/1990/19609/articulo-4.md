@@ -1,0 +1,1 @@
+Artículo 4°-El CTB se reunirá ordinariamente al menor una vez al mes con agenda previamente elaborada, y extraordinariamente cuando el Director del Centro de Salud o la mitad o más de sus miembros lo soliciten. El quórum para poder sesionar será de la mitad más uno de los integrantes.

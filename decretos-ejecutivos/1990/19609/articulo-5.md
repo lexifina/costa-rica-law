@@ -1,0 +1,1 @@
+Artículo 5°.-El CTB elaborará el cronograma anual con las fechas de sus reuniones ordinarias. Las reuniones extraordinarias se convocarán con un plazo no menor de tres días hábiles e incluir la hora, lugar y agenda de la reunión.

@@ -1,0 +1,1 @@
+Artículo 9°.-Las ausencias injustificadas en tres sesiones consecutivas o seis alternas en el período de un año por parte de los funcionarios del Ministerio de Salud, se considerará como falta grave a sus funciones por lo que se harán acreedores a la sanción correspondiente de acuerdo con lo que al respecto establece el Reglamento Autónomo de Trabajo de la Institución.

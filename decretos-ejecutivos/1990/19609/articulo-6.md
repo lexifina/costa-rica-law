@@ -1,0 +1,1 @@
+Artículo 6°.-Se levantará un acta de cada reunión en la cual se resumirán los aspectos tratados, los acuerdos y responsabilidades respectivas, copia de la cual será remitida al Nivel Regional. Para ello se nombrará un secretario rotativo entre los integrantes del CTB.
