@@ -14,3 +14,4 @@ Regula las relaciones entre el Ministerio de Educación Pública y el Ministerio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-08-25 | la propia norma |
+| 2 | 1988-02-17 | Decreto Ejecutivo 18062 (1988-02-17) |
