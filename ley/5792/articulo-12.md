@@ -1,5 +1,2 @@
-Artículo 12.- Del producto del gravamen sobre consumo de la cerveza,
-el Banco Central girará mensualmente, en forma directa, al Instituto de
-Tierras y Colonización ¢ 0.211865 y reservará para el Fisco:
-¢ 0.021186 impuesto hospitalario (10%).
-0.016949 impuesto de ventas (8%).
+Artículo 12.- El Banco Central girará, mensualmente y en forma directa, el producto del gravamen establecido en el artículo 10, al Instituto de Desarrollo Agrario.
+(Así reformado por el artículo 35 de la Ley Nº 6735 de 29 de marzo de 1982).

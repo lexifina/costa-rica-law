@@ -1,20 +1,6 @@
-Artículo 6º.- Créase un impuesto sobre el consumo de refrescos
-gaseosos y bebidas carbonatadas por envase hasta de trescientos cincuenta
-y cinco centímetros cúbicos, de acuerdo con las siguientes tasas:
-a) ¢ 0.05 Refrescos gaseosos de marcas nacionales.
-b) 0.15 Refrescos gaseosos producidos por concesionarios de marcas
-internacionales.
-c) 0.25 Bebidas carbonatadas, de uso preferente como liga de licores,
-nacionales o extranjeras.
-Cuando el expendio se haga en envases de mayor capacidad, o mediante
-máquinas o sifones, el impuesto se pagará proporcionalmente, de acuerdo
-con la determinación que hará el Poder Ejecutivo.
-El presente gravamen no deroga los impuestos creados por el artículo
-4º de la ley Nº 3021 de 21 de agosto de 1962, reformada por artículos 38
-de la ley Nº 5185 de 20 de febrero de 1973 y 21 de la ley Nº 5214 de 19
-de junio de 1973.
-Sin perjuicio del sistema de recaudación que se señala, las fábricas
-de refrescos gaseosos y bebidas carbonatadas quedarán autorizadas a
-diferir hasta por treinta y dos días el pago del impuesto, con el objeto
-de que la cancelación del gravamen se realice, una vez recuperado por las
-fábricas el valor de los créditos otorgados a los expendedores.
+Artículo 6º.- Créase un impuesto sobre el consumo de refrescos gaseosos y bebidas carbonatadas, de acuerdo con las siguientes tasas, las cuales se aplicarán sobre el precio del artículo antes que el impuesto de ventas:
+a) 5,0% sobre los refrescos gaseosos de marcas nacionales.
+b) 10,0% sobre los refrescos gaseosos producidos en el país por concesionarios de marcas internacionales.
+c) 14,0% sobre las bebidas carbonatadas, nacionales y extranjeras, de uso preferente en la mezcla de licores.
+Sin que se afecte el sistema de recaudación señalado, las fábricas de refrescos gaseosos y bebidas carbonatadas estarán autorizadas para retardar el pago del impuesto, hasta por treinta y dos días, con el objeto de que se realice la cancelación del gravamen, una vez que las fábricas hayan recuperado el valor de los créditos otorgados a los expendedores.
+(Así reformado por el artículo 35 de la Ley Nº 6735 de 29 de marzo de 1982).
