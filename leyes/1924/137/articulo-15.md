@@ -1,1 +1,0 @@
-Artículo 15.—Si el denuncio fuere admitido, el Juez mandará a notificar a los colindantes en su caso la resolución que tal cosa disponga, y enviará un edicto al Boletín Judicial para que se publique por tres veces litre de gastos.
