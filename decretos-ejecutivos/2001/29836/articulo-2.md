@@ -1,0 +1,1 @@
+Artículo 2º—Asimismo, de conformidad con lo estipulado en el artículo 3° del citado Decreto Ejecutivo N° 28639-H y sus reformas, el límite de gasto corriente efectivo para el 2001, queda establecido en ¢3.244.5 millones.
