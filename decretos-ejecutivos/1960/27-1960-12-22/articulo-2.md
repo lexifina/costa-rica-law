@@ -1,0 +1,1 @@
+Artículo 2°─ La aplicación del artículo 12 de la ley N° 2426 de 3 de setiembre de 1959 estará vigente hasta el momento que se logre una adecuada protección arancelaria por medio de una modificación al Arancel de Aduanas.
