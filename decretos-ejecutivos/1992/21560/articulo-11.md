@@ -1,0 +1,3 @@
+Artículo 11.- Se modifica el inciso a) del artículo 27 para que diga así:
+a) A los declarantes productores de mercancías exentas, incluso las empresas dedicadas a la actividad avícola, sobre las materias primas, maquinaria, equipo, sus partes y repuestos, "búnquer", energía eléctrica, envases y material de empaque que utilicen directamente en la producción; asimismo, el equipo y materiales utilizados en los laboratorios de control de calidad de sus productos.
+En el caso de la energía eléctrica, debe demostrarse satisfactoriamente ante la Dirección, la proporción del gasto total incurrido, imputable en forma directa a la producción de artículos exentos.

@@ -1,0 +1,5 @@
+Artículo 10.- Se modifica el párrafo 6º del artículo 25, para que se lea así:
+"El régimen para los pequeños contribuyentes será regulado por las siguientes disposiciones:
+a) Los pequeños comerciantes que vendan mercancías gravadas o presten servicios afectos al impuesto general sobre las ventas directamente al consumidor, cuyas ventas anuales no exceden de dos millones de colones, así como también aquellos negocios que cumplan con el requisito de vender al consumidor final más del sesenta por ciento de la mercadería exenta del impuesto de ventas, con un máximo de ventas mensuales de seiscientos mil colones, podrán acogerse al sistema de tributación simplificada, mediante el cual pagarán el impuesto equivalente señalado en la ley, según corresponda.
+b) El pago del tributo se hará dentro de los primeros quince días del mes siguiente al trimestre vencido, es decir, en los meses de enero, abril, julio y octubre de cada año.
+c) Los contribuyentes acogidos a este régimen no harán uso del crédito del impuesto sobre las compras efectuadas ni cobrarán el impuesto sobre las ventas que realicen.

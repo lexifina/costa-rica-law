@@ -1,0 +1,2 @@
+Artículo 9º.- Se modifica el párrafo 5º del artículo 21 para que diga así:
+"No obstante lo anterior, cuando el contribuyente fabrique también mercancías cuya venta está exenta, en cuanto a éstas, solamente procede el crédito fiscal del impuesto pagado sobre los bienes que se incorporen físicamente en su elaboración y el pagado sobre el "búnquer", la energía eléctrica, la maquinaria y el equipo destinado directamente para producir dichas mercancías".
