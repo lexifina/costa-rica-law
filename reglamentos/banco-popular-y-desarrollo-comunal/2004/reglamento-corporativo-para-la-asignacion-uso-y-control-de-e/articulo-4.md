@@ -1,0 +1,4 @@
+Artículo 4º—Del pago de llamadas nacionales. La respectiva entidad realizará el pago de la facturación mensual directamente al Instituto Costarricense de Electricidad de conformidad con la siguiente escala para llamadas nacionales:
+a. Gerente General, Subgerentes, Auditor General y Subauditor General en el caso del Banco y Gerente de las demás entidades: hasta siete veces el monto de la tarifa básica mensual.
+b. Integrantes de la Junta Directiva Nacional del Banco, del Directorio de la Asamblea de los Trabajadores y Trabajadoras en el caso del Banco, del Auditor Interno y de los funcionarios o empleados que ocupen cargos de Gerente de área según el correspondiente organigrama en las demás entidades: hasta cinco veces el monto de la tarifa básica mensual.
+c. Los demás funcionarios o empleados: hasta cuatro veces la tarifa básica mensual.

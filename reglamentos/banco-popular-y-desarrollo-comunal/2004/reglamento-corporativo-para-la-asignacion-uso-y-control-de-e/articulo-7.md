@@ -1,0 +1,1 @@
+Artículo 7º—De la responsabilidad del usuario. El usuario es el responsable directo de la conservación y el uso racional de la línea, el equipo telefónico y los accesorios asignados, por lo que responderán por el uso que den a esos bienes, así como por la pérdida, hurto, robo o deterioro de los mismos cuando medie dolo o culpa de su parte.

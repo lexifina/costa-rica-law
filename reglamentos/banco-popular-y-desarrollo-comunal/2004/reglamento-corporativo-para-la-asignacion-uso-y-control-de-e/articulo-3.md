@@ -1,0 +1,1 @@
+Artículo 3º—Del recibo del equipo. Aprobada la asignación, y de previo a su entrega por el Proceso de Contratación Administrativa en el caso del Banco y de la Jefatura de Servicios Administrativos en los demás casos, el funcionario o empleado a quien se le haya hecho la asignación, firmará un recibido conforme responsabilizándose de los bienes que en él se describan.
