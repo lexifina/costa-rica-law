@@ -1,0 +1,1 @@
+Artículo 23.—El presidente otorgará la palabra a los Concejales por un máximo de cinco minutos en la discusión de cada tema. Si lo considerare oportuno el presidente podrá extender dicho plazo hasta otro tanto igual y para todos los Concejales.

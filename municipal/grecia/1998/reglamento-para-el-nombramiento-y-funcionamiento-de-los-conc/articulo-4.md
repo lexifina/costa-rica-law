@@ -1,0 +1,1 @@
+Artículo 4°—Los ciudadanos escogidos deberán reunir las condiciones que estipula el artículo 22 del nuevo Código Municipal, excepto en lo referente a vecindad que deberá ser el distrito correspondiente.

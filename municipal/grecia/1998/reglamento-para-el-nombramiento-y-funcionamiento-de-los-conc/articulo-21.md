@@ -1,0 +1,1 @@
+Artículo 21.—Los acuerdos serán tomados por simple mayoría de los Concejales presentes y se tendrán por firmes. Si hubiere empate se someterá de nuevo a votación y si persistiera el empate se entenderá desechado el asunto.

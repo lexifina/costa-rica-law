@@ -1,0 +1,1 @@
+Artículo 17.—El quórum para las sesiones se formará con tres Concejales, entre quienes siempre deberá estar presente el presidente, cargo que se cumplirá de acuerdo a lo dispuesto en el artículo Io de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 12.—La Comisión a que se refiere el artículo anterior funcionará como órgano de coordinación de los Concejos de Distrito y con el fin de presentarles la asistencia que proceda en los proyectos que serán de interés para un distrito o varios de ellos, aislada o conjuntamente.
