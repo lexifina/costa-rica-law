@@ -1,3 +1,0 @@
-Artículo 255
-Punición de la mujer
-Sufrirá prisión en sus grados primero a segundo, la mujer que causare su propio aborto o que consintiere en que otro se lo cause. La tentativa de la mujer soltera no es punible, cuando fuere su primera preñez.

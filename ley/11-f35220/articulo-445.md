@@ -1,3 +1,0 @@
-Artículo 445
-Ejecución de órdenes contrarias a la seguridad del estado
-El costarricense que ejecutare en el país cualesquiera órdenes o disposiciones de un Gobierno extranjero, que afecten la dignidad, la independencia o la seguridad de la Nación, será castigado con la pena señalada en el artículo 432, y si el responsable del hecho fuere un extranjero domiciliado en el país, que no tuviere el carácter de Agente Diplomático del Gobierno, cuyas órdenes o disposiciones cumpla, se aplicará la pena de extrañamiento y multa mayor en su grado sexto.

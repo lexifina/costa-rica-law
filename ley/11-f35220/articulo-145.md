@@ -1,5 +1,0 @@
-Artículo 145
-Máximum y mínimum
-La extensión de toda pena está señalada entre dos extremos, máximum y mínimum, que se determinarán según las reglas siguientes:
-1°. Si se formulare con dos o más grados o penas distintas, que sirvan para señalar los límites de su gravedad, será el máximum la imposición mayor por razón de su naturaleza, tiempo o suma, y el mínimum, la imposición menor en tales conceptos.
-2°. Si estuviere significada por un solo grado penal, su máximum y mínimum serán los de este grado, y para establecer uno y otro, se suman los dos extremos de su duración o valor pecuniario y el total se divide por dos, prescindiendo de toda fracción; la más alta de esas cantidades, yendo desde el medio a la cifra mayor, formará el máximum, y la más baja, yendo desde el medio a la cifra menor, formará el mínimum.
