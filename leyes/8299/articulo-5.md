@@ -1,0 +1,1 @@
+Artículo 5º—El ahorro y los recursos generados por las medidas propuestas en esta Ley, en ningún caso podrán ser utilizados para ampliar los límites del gasto; asimismo, deberán dedicarse exclusivamente a la disminución de la deuda pública y del déficit fiscal.
