@@ -15,3 +15,4 @@ BCR: De Tarifas y Condiciones para Servicios Reforma la de TASABAN
 | --- | --- | --- |
 | 1 | 1996-02-22 | la propia norma |
 | 2 | 1997-04-28 | Reglamento 33 (1997-04-28) |
+| 3 | 1997-04-28 | Ley 8 |
