@@ -14,3 +14,4 @@ Reglamento a la Ley sobre el Régimen de Relaciones entre Productores Beneficiad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-06-09 | la propia norma |
+| 2 | 1993-02-08 | Decreto Ejecutivo 21985 (1993-02-08) |
