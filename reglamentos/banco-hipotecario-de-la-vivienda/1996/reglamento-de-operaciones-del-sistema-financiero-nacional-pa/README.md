@@ -16,3 +16,4 @@ Reglamento de Operaciones del Sistema Financiero Nacional para Vivienda
 | 1 | 1996-05-20 | la propia norma |
 | 2 | 1996-08-29 | Reglamento 56 (1996-08-29) |
 | 3 | 1996-09-19 | Reglamento 56 (1996-09-19) |
+| 4 | 1996-10-10 | Reglamento 68 (1996-10-10) |
