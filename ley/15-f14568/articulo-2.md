@@ -1,0 +1,2 @@
+Art 2° El Tribunal de Justicia, por medio de Secretaria y los Jueces de 1° Instancia por sí, pasarán cada fin de mes a los Fiscales mencionados conocimiento de los deudores y sumas que deban cobrarse, a fin de que aquellos empleados procedan a verificarlo inmediatamente en la forma y por la vía ejecutiva que corresponde.
+& De los conocimientos que se dirijan a los Fiscales, se enviará al propio tiempo, duplicado a la Secretaria de Hacienda, con el objeto que de esta Oficina se pase a la Contaduría Mayor para el contraste de la cuenta respectiva.
