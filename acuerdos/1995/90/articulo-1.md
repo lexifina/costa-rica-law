@@ -1,0 +1,10 @@
+INSTITUTO COSTARRICENSE DE PESCA Y ACUACULTURA
+Acuerdo de resolución N° A-JD.I/90-95 de la Junta Directiva del Instituto Costarricense de Pesca y Acuacultura.—Puntarenas, a las 16,00 horas del día 28 de febrero de 1995.
+Considerando:
+I.—Que es deber de INCOPESCA normar el aprovechamiento racional de los recursos pesqueros para lograr mayores rendimientos económicos y la protección de las especies marinas y de acuacultura.
+II.—Que de acuerdo con las facultades que el confiere el articulo 5°, inciso 1) de la ley No 7384 del 16 de mayo de 1994, es atribución del INCOPESCA, "Determinar los períodos y áreas de veda, así como las especies y tamaño cuya captura estará restringida y prohibida".
+III.—Que la recolección de pianguas Moluscos bivalvos de las especies Anadara tuberculosa y Anadera similis, en los manglares del distrito de Lepante y zonas adyacentes, constituye una de las actividades más importantes a que se dedica parte de la población local para su sostenimiento.
+IV.—Que estos bivaldos están siendo sometidos a una intensa extracción, al grado de encontrarse al nivel de sobreexplotación que los pone en peligro de extinción en la zona y limita aún más el nivel de vida de las comunidades de piangueros, por lo que se hace necesario tomar medidas tendientes a proteger el recurso con el fin de evitar su agotamiento, garantizar su recuperación y fomentar un manejo sostenible.
+V.—Que conjuntamente con estas especies de moluscos hay otras que son de interés comercial y que por compartir su habitat son extraídos ocasionalmente. Por tanto,
+SE ACUERDA:
+Artículo 1°—Establecer una veda por un período de un año, a partir del 15 de abril de 1995, durante el cual no se podrá extraer ningún tipo de molusco en los manglares de Lepante y zonas adyacentes, sea en la zona comprendida desde el estero de La Palma (exclusive) hasta el estero de Cabo Blanco, coordenadas según la proyección Lambert, Costa Rica Norte, 222.850 N-408.500 E y 213.600 N-428.250 E., incluyendo los manglares adyacentes a la Isla de Venado.
