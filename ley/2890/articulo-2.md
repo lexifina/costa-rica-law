@@ -1,0 +1,1 @@
+Artículo 2°.- El contrato o los contratos a los que se otorgue para la instalación de fábricas de cemento no significarán privilegio ni monopolio especial. El Poder Ejecutivo podrá otorgar uno o más contratos en igualdad absoluta de tratamiento, siempre que se llenen los requisitos exigidos por la Ley de Protección y Desarrollo Industrial, la presente ley y la que se reforma.
