@@ -1,3 +1,2 @@
-Artículo 39.-En la ejecución, si resultare, por las pruebas, dudosa la inocencia del asegurado, en lo que respecta a la causa del incendio, podrá el Juez según la gravedad de la duda, negarse a obligar al pago al asegurador.
-Contra el avalúo de los daños dado por los peritos no cabe oposición en el juicio ejecutivo.
-La exoneración de responsabilidad, por parte del asegurador, que se declare en juicio civil por haber duda grave acerca de la inocencia del asegurado, no influye en el juicio cr iminal respectivo; ni la absolución que en éste se haga a favor del asegurado, tendrá valor en lo civil.
+Artículo 39.-Sin perjuicio de lo establecido en el artículo 37, los gastos en que incurran los Tasadores serán pagados por partes iguales entre el asegurador y el asegurado excepto innecesarios que serán por cuenta de la parte que los ocasionó.
+(Así reformado por el artículo 1° de la ley N° 5279 del 27 de julio de 1973)
