@@ -13,3 +13,4 @@ Reconocimiento Anualidades Servidores Interinos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-04-04 | la propia norma |
+| 2 | 1986-04-04 | SINALEVI (sin norma nombrada) |
