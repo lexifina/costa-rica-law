@@ -1,0 +1,1 @@
+Artículo 2º.- Los beneficios que esta ley establece para la Fundación Hanns Seidel de la República Federal de Alemania serán aplicables a las Fundaciones Konrad Adenauer, Friedrich Naumann y Friedrich Ebert, y a sus funcionarios, a los cuales se refieren las leyes N° 6454 del 18 de setiembre de 1980 y la N° 6675 del 23 de octubre de 1981.
