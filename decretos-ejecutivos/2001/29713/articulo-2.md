@@ -1,0 +1,1 @@
+Artículo 2.—Dicho distrito pertenecerá al Circuito Escolar 01 de la Dirección Regional de Educación de San Ramón y tendrá como único centro educativo adscrito a la Escuela José Joaquín Salas Pérez, código 3944, latitud 230.580, longitud 484.250.
