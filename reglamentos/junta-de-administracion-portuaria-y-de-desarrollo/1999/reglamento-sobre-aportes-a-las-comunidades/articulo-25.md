@@ -1,0 +1,1 @@
+Artículo 25-Tendrán capacidad para retirar los aportes girados por a Institución, cualquiera de los miembros que indique la certificación de personería jurídica vigente; asimismo, serán responsables ante JAPDEVA todos los miembros que tengan la representación jurídica de la Organización.

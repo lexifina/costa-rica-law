@@ -1,0 +1,2 @@
+Unidad de obras comunales del departamento de operaciones
+Artículo 27.-La Unidad de Obras Comunales del Departamento de Operaciones, es la responsable de velar por el buen uso de los aportes entregados por JAPDEVA. Asimismo, archivará, custodiará y efectuará los controles sobre el avance de las obras, emisión de cheques y toda documentación relacionada con los aportes y organizaciones. También vigilará la correcta aplicación de los aportes que JAPDEVA haga.

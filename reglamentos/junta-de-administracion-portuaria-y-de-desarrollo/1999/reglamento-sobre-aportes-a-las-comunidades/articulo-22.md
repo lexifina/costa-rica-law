@@ -1,0 +1,1 @@
+Artículo 22.-Las personas que tengan la representación jurídica de la beneficiaria, serán responsables directos de verificar que el aporte recibido de JAPDEVA sea utilizado según lo aprobado, esto de manera eficiente para lo cual se establecerán los controles y la supervisión oportuna.

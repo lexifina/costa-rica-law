@@ -1,0 +1,1 @@
+Artículo 15.-La Unidad de Obras Comunales rendirá un informe a la Comisión sobre el avance de los trabajos y su ejecución, lo cual hará trimestralmente; cualquier anomalía detectada por incumplimiento del presente Reglamento deberá ser notificada y procederá a investigar de oficio a la Organización respectiva y tomará las medidas correctivas.

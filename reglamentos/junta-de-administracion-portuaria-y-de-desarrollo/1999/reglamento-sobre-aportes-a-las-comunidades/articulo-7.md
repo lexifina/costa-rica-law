@@ -1,0 +1,1 @@
+Artículo 7°-Toda solicitud deberá ser presentada en el formulario respectivo cumpliendo con todos los requisitos que para tal efecto están estipulados en el artículo ocho de este reglamento. Aquella que no los presente será devuelta, informándose al solicitante sobre los requisitos omitidos.

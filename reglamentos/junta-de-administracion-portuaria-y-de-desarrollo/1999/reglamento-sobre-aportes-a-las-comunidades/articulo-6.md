@@ -1,0 +1,1 @@
+Artículo 6°-La Comisión de Ayudas Comunales evaluará las diferentes solicitudes, verificando las que más se ajusten al contenido del Plan Regional de Desarrollo; para ello tomará en cuenta la evaluación técnica y la factibilidad que debe realizarse de previo por el personal competente del departamento de operaciones.

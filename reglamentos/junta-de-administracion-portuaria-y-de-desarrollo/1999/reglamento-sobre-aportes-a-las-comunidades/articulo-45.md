@@ -1,0 +1,1 @@
+Artículo 45.-Los aportes destinados a las actividades deportivas serán conocidos por la Comisión de Asuntos Deportivos, y será ésta la encargada de someterlo a aprobación del Consejo de Administración.

@@ -1,0 +1,1 @@
+Artículo 9°-Con el propósito de evaluar las solicitudes y presupuestos para el año siguiente, la Unidad de Obras Comunales contara con el equipo necesario; se recibirán las solicitudes hasta el último día del mes de julio de cada año y se tramitarán para su resolución a más tardar el treinta de agosto del mismo año.

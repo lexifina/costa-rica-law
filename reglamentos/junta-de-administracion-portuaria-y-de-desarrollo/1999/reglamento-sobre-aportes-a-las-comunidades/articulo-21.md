@@ -1,0 +1,1 @@
+Artículo 21.-La Organización beneficiaria se compromete a llevar registros separados de los aportes que reciba de JAPDEVA, de manera que se pueda identificar al aporte recibido lo gastado y el saldo pendiente.

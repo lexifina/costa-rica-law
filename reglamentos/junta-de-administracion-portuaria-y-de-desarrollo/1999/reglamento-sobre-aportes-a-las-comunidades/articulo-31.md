@@ -1,0 +1,1 @@
+Artículo 31.-EI último día del mes de junio de cada año, la Unidad de Obras Comunales a través de la jefatura departamental deberá presentar a la Gerencia un listado de aportes, con la evaluación técnica y la viabilidad de ejecutar el proyecto, para la elaboración del Presupuesto Ordinario del año siguiente.
