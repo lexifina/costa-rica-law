@@ -1,0 +1,1 @@
+Artículo 2º.- Autorízase al Poder Ejecutivo para la interpretación limítrofe interdistrital que se haya afectado con esta ley y adscribir por decreto los poblados correspondientes a cada distrito en particular.
