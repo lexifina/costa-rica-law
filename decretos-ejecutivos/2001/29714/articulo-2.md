@@ -1,0 +1,1 @@
+Artículo 2.—Dicho distrito pertenecerá al Circuito Escolar 5 de la Dirección Regional de Educación de San José y tendrá como único centro educativo adscrito a la Escuela Lomas del Río de Pavas, código 2659, latitud 215.920, longitud 518.560.
