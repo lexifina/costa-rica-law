@@ -1,0 +1,1 @@
+Artículo 58.—Toda reclamación por descuentos de sueldos indebidamente hechos, deberá establecerse acompañada de los documentos correspondientes, antes de expirar el término de quince días desde la fecha en que se hubiere hecho efectivo el descuento; pasado ese término no será admitida.

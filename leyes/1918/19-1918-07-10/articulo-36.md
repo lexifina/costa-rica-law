@@ -1,0 +1,1 @@
+Artículo 36.—Los Directores y los maestros están obligados a permanecer en sus puestos hasta quince días después de haber presentado su renuncia, salvo en el caso de que les sea aceptada antes o de que comprueben encontrarse absolutamente imposibilitados para continuar en el ejercicio de sus funciones docentes.

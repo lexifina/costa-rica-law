@@ -1,0 +1,1 @@
+Artículo 18.—Los maestros titulados no tendrán derecho a pretender la plaza de un aspirante, una vez trascurridos quince días de iniciado el curso lectivo, a menos que por malos comportamientos u otra causa justificada hubiere necesidad de remover al aspirante.

@@ -1,0 +1,1 @@
+Artículo 39.—Toca al Ministerio de Instrucción Pública, previos los informes que estime convenientes, hacer la declaratoria de ineptitud, quedando al maestro el derecho de acogerse a las disposiciones del artículo 50 de la Ley General de Educación Común, en lo que respecta a pensiones.

@@ -1,0 +1,1 @@
+Artículo 64. — La deducción de la parte de sueldo correspondiente al fondo de pensiones, será siempre íntegra, aun cuando el empleado no perciba la totalidad de su salario, ya sea por pena impuesta o por estar separado de su cargo con licencia, o por cualquier otro motivo.

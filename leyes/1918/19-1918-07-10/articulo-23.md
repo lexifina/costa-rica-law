@@ -1,0 +1,1 @@
+Artículo 23.—La dotación de los maestros especiales acrecerá en la misma proporción que la de los maestros ordinarios, equiparando el sueldo de los de cuarta categoría al de los de segunda B y computando para la tasación un servicio de veinticuatro horas por semana.
