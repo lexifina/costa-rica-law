@@ -1,0 +1,9 @@
+DECRETO CIIL
+Corta la causa instruida contra los autores y complices de la conjuracion que estallo en Alajuela el 29 de marzo ultimo, imponiendoles penas gubernativamente.
+El General Presidente del Estado de Costa Rica.
+Con presencia de la causa instruida contra los autores y cómplices de la conjuracion estallada en la ciudad de Alajuela el 28 de marzo último, y considerando:
+1°. que de la sentencia pronunciada por el Consejo de guerra ordinario en seis de este mes resultan condenados à pena capital los reos Plàcido Suares, Ignacio Saborio, Ramon Fernandez. Lorenzo Solorzano, Juan Rafael Ramos, y Rafael Ugalde; y à destierro por tiempo, José Antonio Angulo, Sixto Arias, Manuel Alfaro y Julian Oampo:
+2°. que aunque este fallo, de que el Consejo estrechado por la ley no podia prescindir, es conforme en un todo con las disposiciones del derecho, no se ajusta á los principios en que está basada la 'presente Administracion, ni al programa de su filantròpica conducta; y
+3°. que entre 25 reos ausentes, que están para sentenciarse, hay muchos que, por la gravedad de su crimen comprobado, es segura su condenacion à muerte. Para evitar tan terrible castigo y dar a la causa el termino mas pronto y mas compatible con la lenidad adoptada, en uso de sus ámplias facultades, decreta.
+Art. 1°. Se corta la causa seguida por consecuencia de la conjuracion de marzo último, y la pena capital aplicada por el Consejo de guerra ordinario en sentencia de 6 del corriente, se conmuta en extrañamiento del territo del Estado que sufrirán, Plácido Suares por siempre, Ignacio Saborio y Ramon Fernandez por ocho años, y Juan Rafael Ramos y Rafael Ugalde por tres. La misma pena se conmuta respeto de Lorenzo Solorzano en cinco años de confinamiento en Puntarenas.(1.)
+(1) Véase el decreto n° 12 de 11 de diciembre de 1819, y el n° 5 de 21 de junio de 1850.
