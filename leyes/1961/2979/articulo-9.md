@@ -1,0 +1,1 @@
+Artículo 9º—El Poder Ejecutivo a través de los órganos correspondientes continuará las gestiones iniciadas para financiar hasta por la suma de diez millones de dólares ($ 10.000,000.00) los programas del Plan Vial no financiados por esta primera contratación.

@@ -1,0 +1,2 @@
+Artículo 8º—Se reforma el artículo 13 de la ley Nº 2719 de 10 de febrero de 1961, que se leerá así:
+"Artículo 13. —Se autoriza al Instituto Nacional de Seguros para que entregue previa licitación pública, al Ministerio de Obras Públicas, como adelanto de los fondos señalados en el artículo 11 de la Ley Constitutiva de esa Institución, todo o parte del equipo de construcción que posee la misma, y que desee adquirir el Ministerio de Obras Públicas, hasta por un valor de dos millones de colones (¢ 2.000,000.00)".
