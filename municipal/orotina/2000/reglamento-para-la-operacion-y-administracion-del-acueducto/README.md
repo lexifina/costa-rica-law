@@ -14,3 +14,4 @@ Reglamento para la operación y administración del acueducto de la Municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-18 | la propia norma |
+| 2 | 2004-11-02 | Reglamento municipal 212 (2004-11-02) |
