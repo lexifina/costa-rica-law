@@ -1,0 +1,1 @@
+Artículo 46.-Ninguno de los organismos de la Asociación, inclusive sus Comités Auxiliares y sus Comités de Cruz Roja Juvenil, como tampoco sus integrantes, pueden participar, como tales, en actos de ninguna naturaleza, ajenos a las actividades de la Cruz Roja.

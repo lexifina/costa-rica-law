@@ -1,0 +1,2 @@
+Artículo 30.-El Comité Nacional podrá autorizar a la Dirección General para designar delegaciones integradas en número no mayor de tres miembros cada una, en aquellas poblaciones en que. por no justificarse. o en virtud de circunstancias especiales. no requieren la existencia de un Comité Auxiliar.
+Asimismo podrá autorizar a la Dirección General para constituir Comités Juveniles en los Centros de Enseñanza en toda la República.

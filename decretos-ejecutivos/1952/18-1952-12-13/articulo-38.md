@@ -1,0 +1,2 @@
+Artículo 38.-La Oficina y edificios de la Asociación. tendrán en la parte exterior el escudo de la Institución, y la leyenda Cruz Roja Costarricense. Habrá además, dos astas de bandera. En una de ellas se izará diariamente la bandera de la Asociación, y cuando las circunstancias lo justifiquen, se izará además, en la otra asta, la bandera nacional.
+La bandera nacional y la de la Institución, se izarán a media asta, Siempre que la primera aparezca así en los edificios oficiales.

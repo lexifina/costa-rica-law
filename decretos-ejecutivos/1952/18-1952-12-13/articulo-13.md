@@ -1,0 +1,1 @@
+Artículo 13.-La representación judicial y extrajudicial de la Asociación, la tendrá el Presidente Efectivo, .con las facultades de un apoderado general. y en ausencia del Presidente, este mandato será ejercido por el Vicepresidente. La representación en los actos sociales de la Asociación, la tendrá el Presidente Efectivo y el Director General, o las personas que ellos designen.

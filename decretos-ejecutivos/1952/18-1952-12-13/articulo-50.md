@@ -1,0 +1,2 @@
+Artículo 50. -La modificación de estos Estatutos sólo podrá llevarse a cabo en Asamblea General Extraordinaria, si una mayoría de dos tercios de votos presentes aprueban las reformas propuestas, las cuales estarán sujetas a la aprobación del Poder Ejecutivo, de acuerdo con la ley N° 1153 (38) de 14 de abril de 1950, y a lo dispuesto por el artículo 19 de la Ley de Asociaciones.
+Las reformas intentadas deberán ser sometidas a conocimiento de los socios por medio de publicación que se hará con treinta días de anticipación a la fecha señalada para la Asamblea.

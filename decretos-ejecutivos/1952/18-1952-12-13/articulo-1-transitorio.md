@@ -1,0 +1,1 @@
+Transitorio 1°-La limitación a que se refiere el artículo 12 en cuanto a la reelección de los miembros del Comité Nacional, regirá a partir de la primera elección que se efectúe, con base en estos nuevos Estatutos.

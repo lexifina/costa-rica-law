@@ -1,0 +1,1 @@
+Artículo 4°- Las autoridades civiles y militares atenderán, en todo tiempo, las indicaciones de la Cruz Roja Costarricense y de los miembros de la misma que estuvieren en funciones, prestarán los auxilios indispensables para que éstos puedan realizar su cometido y harán respetar las dependencias u objetos que tuvieren el emblema o sello de la Institución.

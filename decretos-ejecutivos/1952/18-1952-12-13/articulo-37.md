@@ -1,0 +1,1 @@
+Artículo 37.-La Oficina de Patentes y Marcas de Fábrica se abstendrá de dar curso a las solicitudes respecto de marcas con el nombre o distintivo de la Cruz Roja Costarricense o emblemas parecidos, y en ningún caso extenderá la patente o facultad pedida.

@@ -1,0 +1,1 @@
+Artículo 10 .-Se fija en 50 el número de miembros presentes requerido para formar quórum en las reuniones de Asamblea, y en caso de que por falta de quórum no pueda celebrarse la reunión, se hará una segunda convocatoria, en cuyo caso, el quórum será de cualquier número de miembros presentes.

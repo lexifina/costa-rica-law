@@ -1,0 +1,2 @@
+Artículo 43 . -Para otorgar cualquiera de las recompensas enumeradas en el artículo anterior, el Comité Nacional deberá extender su aprobación por unanimidad de votos en reunión que celebrará extraordinariamente y que necesitará la concurrencia de las dos terceras partes de sus miembros a excepción de la Sétima, o sea Certificado de Reconocimiento, que podrá ser otorgada en sesión ordinaria.
+Cuando se trate de personas que sean miembros del Comité Nacional, éstas recompensas deben ser propuestas y aprobadas por la Asamblea General.

@@ -1,0 +1,1 @@
+Artículo 16.-Para las sesiones del Comité Nacional, siete de sus miembros forman quórum. Todo acuerdo se tomará por mayoría de votos presentes, y en caso de empate, el voto del Presidente se contará doble.

@@ -1,0 +1,1 @@
+Artículo 45.-La Cruz Roja Costarricense tiene atribuciones para la recolección en territorio nacional y distribución de fondos o especies destinados a auxilios de toda clase en casos de calamidades públicas o desastres nacionales e internacionales.

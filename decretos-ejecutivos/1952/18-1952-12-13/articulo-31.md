@@ -1,0 +1,2 @@
+Artículo 31.-El Comité Nacional podrá autorizar a la Dirección General para la creación de Zonas de Servicio en toda la República, en el número que ella estime conveniente, y para designar el personal respectivo. En tales zonas se realizarán las labores técnicas de Cruz Roja, especialmente en casos de emergencia o de desastre.
+La Dirección General dará cuenta oportunamente al Comité Nacional de los nombramientos y de las labores a que se refieren los artículos anteriores.

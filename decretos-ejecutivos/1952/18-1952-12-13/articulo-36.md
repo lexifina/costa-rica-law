@@ -1,0 +1,1 @@
+Artículo 36.-La Bandera de la Asociación estará formada por un cuadrilátero de color blanco, que ostenta en el centro. por uno y otro lado, una Cruz Roja que debe ocupar las tres quintas partes del ancho de la bandera, la que, por otra parte, no tendrá emblema ni inscripción alguna.

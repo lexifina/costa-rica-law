@@ -1,0 +1,1 @@
+Artículo 32. -La primera autoridad civil, en cada lugar donde se instale un Comité Auxiliar. será el Presidente Honorario de él, y las funciones de los Comités serán fijadas en el Reglamento de la Asociación.

@@ -1,0 +1,1 @@
+Artículo 41.-Los miembros que formen parte de una Sección y que estén prestando servicio, deberán estar provistos de una credencial extendida por el Director General, y además deberán ostentar su brazal.
