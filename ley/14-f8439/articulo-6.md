@@ -1,0 +1,1 @@
+Art 6° El niño que hubiere hecho los estudios correspondientes a los seis primeros años de una escuela de primer orden, tiene derecho a que se le admita en un Colegio de segunda enseñanza, y el que hubiere hecho los correspondientes a los siete años de enseñanza mas el especial de Pedagogía, podrá optar al científico que establece el artículo 4° de la Ley de Educación.
