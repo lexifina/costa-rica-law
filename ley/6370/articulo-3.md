@@ -1,0 +1,21 @@
+Artículo 3º.- El Instituto Costarricense de Turismo deberá levantar un
+expediente administrativo sobre los inmuebles que adquirirá para
+desarrollar el proyecto de Bahía Culebra.
+Unicamente sobre la base de este expediente, la Dirección General de
+la Tributación Directa podrá proceder a fijar el monto de la indemnización
+que deberá pagarse al propietario del inmueble afectado. Obtenido el
+informe de la Dirección General de la Tributación Directa el Instituto
+Costarricense de Turismo requerirá al propietario, personal, para que
+dentro de los treinta días hábiles siguientes lo acepte o presente a su
+avalúo; si no hubiere acuerdo y las partes así lo convinieren se solicitará
+un peritazgo del Colegio de Ingenieros Agrónomos o del Colegio Federado de
+Ingenieros y Arquitectos de Costa Rica, requiriendo a uno de esos colegios
+para que nombre un equipo idóneo que haga el peritazgo correspondiente.
+Este se llevará a cabo dentro de los veinte días hábiles siguientes. Los
+honorarios de dicho peritazgo serán pagados por el Instituto Costarricense
+de Turismo.
+Si sobre la base de los avalúos indicados en el párrafo anterior, el
+Instituto Costarricense de Turismo y el propietario llegaren a un acuerdo,
+comparecerán al otorgamiento de la escritura o escrituras correspondientes.
+Las escrituras se otorgarán ante la Notaría del Estado y en ellas deberá
+darse fe del refrendo de la Contraloría General de la República.
