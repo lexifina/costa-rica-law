@@ -201,5 +201,6 @@ Peñas Blancas | 6 de noviembre del 2000
 Limón | 13 de noviembre del 2000
 Paso Canoas | 20 noviembre del 2000
 Santamaría | 27 de noviembre del 2000
+(NOTA DE SINALEVI: Mediante la resolución DGA-205 del 13 de octubre de 2000, se establece revocar parcialmente el presente numeral 2 relativo al cronograma de implementación de los procedimientos que en ella se aprueban).
 3°—Comuníquese a la División de Estadística. Registro y Divulgación para su correspondiente publicación en el Diario Oficial La Gaceta.
 [imagen]
