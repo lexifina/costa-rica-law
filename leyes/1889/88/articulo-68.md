@@ -1,0 +1,2 @@
+Por arrendamiento.
+Art. 68.—Cuando se hayan verificado los contratos por arrendamientos, la Dirección nombrará un Inspector de Trabajos, que deberá tener las calidades de Conductor y que vigilará por el exacto cumplimiento de todas las cláusulas establecidas en el contrato respectivo. El Ingeniero de Trabajos arreglara las dificultades que pudieren presentarse entre el arrendatario y el Inspector.

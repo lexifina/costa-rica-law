@@ -1,0 +1,1 @@
+Art. 79.—El Ingeniero de Trabajos se pondrá de acuerdo con el Director para todos los nombramientos de sus agentes; señalará á aquellos cuyo celo, actividad y capacidad merezcan recompensa ó ascenso. Preparará el presupuesto de gastos de servicio y tendrá al Director al corriente de todos los trabajos, por medio de informes mensuales.

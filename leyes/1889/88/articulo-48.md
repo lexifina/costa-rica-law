@@ -1,0 +1,1 @@
+Art. 48.—Los Conductores de Trabajos, así como los ayudantes de la carretera, harán ejecutar los trabajos que les sean indicados, procederán inmediatamente á la ejecución de los urgentes, dando cuenta en seguida al Ingeniero de Trabajos, y se encargarán de la recepción de materiales.

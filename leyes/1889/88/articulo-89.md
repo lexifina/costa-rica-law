@@ -1,0 +1,1 @@
+Art. 89.—El Jefe del Depósito será de nombramiento y libre remoción de la Secretaría de Fomento, y no podrá entrar en ejercicio de sus funciones sin haber garantizado su responsabilidad con fianza ó hipoteca por una cantidad igual á los sueldos de un año.

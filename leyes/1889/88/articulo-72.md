@@ -1,0 +1,1 @@
+Art, 72.—A fin de cada mes levantará un estado de la situación provisora de los trabajos ejecutados para servir en los pagos, á buena cuenta del contratista, como está estipulado en el cuaderno de condiciones.

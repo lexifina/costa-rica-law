@@ -1,0 +1,1 @@
+Art. 31.—Recorrerá dos veces por semana, á lo menos, su trayecto, e indicará al Director, por medio de un informe, el resultado de sus visitas. En cada una de éstas será acompañado por el mandador de cada sección y le hará sus observaciones.

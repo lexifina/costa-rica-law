@@ -1,0 +1,2 @@
+Atribuciones y deberes del mandador.
+Art. 22. —Cada mañana, después de haber comenzado el trabajo, recorrerá su sección, examinará con cuidado el estado del camino y de las obras de arte, puentes, acueductos, etc, y observará las operaciones que deban urgentemente ejecutarse. En los casos de ausencia del mandador, designará éste al peón más honrado é inteligente de la cuadrilla, para que se encargue del mando de ella.

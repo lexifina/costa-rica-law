@@ -1,0 +1,2 @@
+Art. 24. —El mandador dirigirá personalmente los trabajos de la cuadrilla, y no podrá ausentarse sin licencia del ayudante. Llevará un libro de notas de los peones ocupados, con especificación del tiempo que cada uno ha trabajado, del jornal que devenga, y de los materiales y útiles de trabajo empleados.
+Cada semana presentará por duplicado al ayudante, para su pago, la planilla de jornales y de materiales.

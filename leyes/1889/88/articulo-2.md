@@ -1,0 +1,1 @@
+Art. 2°—Todos los trabajos públicos serán estudiados por la Dirección General de Obras Públicas, y ejecutados bajo su inmediata inspección; ó por ella misma, en los casos previstos en el presente Reglamento.

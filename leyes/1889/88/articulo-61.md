@@ -1,0 +1,1 @@
+Art. 61.— Los pedimentos de materiales para la ejecución de las obras ordenadas por el Gobierno y en su caso por el Director General, serán sometidos por el Jefe del taller á la aprobación del Ingeniero de Trabajos, quien extenderá una orden de entrega contra el Jefe del Depósito.

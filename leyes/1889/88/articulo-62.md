@@ -1,0 +1,1 @@
+Art. 62.—En cuanto al material que no se encuentre en el depósito, el Jefe del taller así como el Conductor de Trabajos, harán el pedimento al Ingeniero de Trabajos, quien les dará la orden de compra y procederá á ella, enviando la factura firmada al Ingeniero de Trabajos.

@@ -1,0 +1,2 @@
+Contabilidad del Depósito.
+Art. 86.—El Jefe del Depósito llevará tres libros: el Borrador, el Diario y el Mayor. En el primero hará constar, provisionalmente, el movimiento de entradas y salidas diarias de materiales. En el segundo asentará definitivamente esas partidas; y en el tercero, llevará la cuenta corriente á cada clase de material, de manera que en todo tiempo pueda saberse cual es la existencia en depósito de cada una de las clases.

@@ -1,0 +1,1 @@
+Art. 59.—Las funciones de los talleres se reducen á reparación de edificios públicos y muebles y á fabricación del mobiliario indispensable para las oficinas públicas, cuando el costo de esas operaciones no exceda de quinientos pesos.
