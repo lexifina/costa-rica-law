@@ -1,0 +1,1 @@
+Artículo 51.—Todas las oficinas o Departamentos Municipales, que tengan relación con los cementerios, tienen el deber de prestar toda la colaboración que la Junta solicite, siempre que sean relacionadas con problemas de los cementerios.

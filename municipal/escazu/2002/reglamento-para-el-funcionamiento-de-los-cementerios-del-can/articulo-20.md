@@ -1,0 +1,1 @@
+Artículo 20.—Administración de los recursos. La Junta será la responsable de la administración y cuido de los activos del cementerio a su cargo. Asimismo administrará los recursos económicos, pudiendo realizar la compra de bienes o la adquisición de servicios.

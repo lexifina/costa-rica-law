@@ -1,0 +1,1 @@
+Transitorio I.—Las nuevas juntas se integrarán dentro de los treinta días hábiles posteriores a la publicación del presente Reglamento y entrarán en funciones ocho días después de su juramentación. Para lo cual la Secretaría Municipal, se encargará de hacer la comunicación a las organizaciones correspondientes, con el fin que presenten las respectivas ternas.

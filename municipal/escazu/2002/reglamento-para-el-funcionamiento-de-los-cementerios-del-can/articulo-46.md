@@ -1,0 +1,2 @@
+Artículo 46.—La Junta Administradora de cada cementerio, establecerá vía reglamento interno; las condiciones a las que deberán sujetarse los monumentos mausoleos y lápidas que se construyan en las parcelas arrendadas a los particulares. Los interesados en realizar esta clase de obras deberán presentar, de previo, a la Junta, un diseño de la obra con indicación de sus dimensiones, ubicación, materiales que se emplearán y cualquier otro detalle de importancia.
+Ninguna obra podrá realizarse sin que la Junta haya aprobado el diseño o anteproyecto respectivos.

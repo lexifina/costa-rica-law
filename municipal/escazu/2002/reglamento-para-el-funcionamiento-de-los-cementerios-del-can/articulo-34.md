@@ -1,0 +1,1 @@
+Artículo 34.—Obligación de presentar copia de contratos. Los interesados en construir mausoleos, bóvedas, nichos u otras construcciones en los cementerios, estarán obligados a presentar al Departamento de Desarrollo Urbano, copia del contrato de construcción de la edificación que pretenden, así como estar al día en el pago de los tributos municipales.

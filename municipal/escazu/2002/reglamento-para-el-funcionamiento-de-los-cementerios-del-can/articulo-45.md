@@ -1,0 +1,1 @@
+Artículo 45.—Las sepulturas podrán ser marcadas por los familiares del difunto con una losa, cruz u otro distintivo acorde con el campo santo, los que deberán llevar un número progresivo y fecha de la inhumación. Estos distintivos deberán ubicarse frente a los pasillos y sus dimensiones no sobrepasarán las establecidas por la Junta Administradora de cada cementerio.

@@ -1,0 +1,11 @@
+Artículo 23.—De los recursos. Contra los acuerdos podrán presentarse los siguientes recursos:
+a) Recurso de revisión. Los miembros de la Junta podrán solicitar revisión de los acuerdos tomados por la misma, el tiempo de revisión se dará a la hora de discusión y corrección de las actas. El recurso de revisión sobre acuerdos, puede ser presentado por un miembro por una sola vez. Si la revisión fuese acogida, el asunto revisado volverá al estado en que se encontraba al momento anterior a su revisión y si procede se realizarán las enmiendas del caso.
+b) Por parte de los interesados, cabrán los recursos de revocatoria y de apelación, dentro de los cinco días hábiles siguientes al de su comunicación. Tanto el recurso de revocatoria, como el de apelación sobre acuerdos, debe presentarse por escrito, quedando legitimadas aquellas personas que tengan un interés actual y legítimo.
+c) Cualquier acuerdo estará sujeto a los recursos de revocatoria y de apelación, excepto:
+a. Los que no hayan sido aprobados definitivamente.
+b. Los de mero trámite de ejecución, confirmación o ratificación de otros anteriores y los consentidos expresa o implícitamente.
+c. Los reglamentarios.
+d. Los que aprueben presupuestos, sus modificaciones y adiciones.
+e. Los sometidos a los procedimientos especiales dispuestos en los artículos 82, 83, 89 y 90 de la Ley Reguladora de la Jurisdicción Contencioso Administrativa, No. 3667, de 12 de marzo de 1966.
+d) El recurso de revocatoria será interpuesto ante la Junta. Puede ser presentado por la persona o entidad que corresponda, aunque no tengan relación con el punto debatido, siempre que la resolución o acto administrativo le ocasione un perjuicio. Deberá presentarse dentro de los cinco hábiles días siguientes a la fecha en que dicho acto administrativo fuese notificado, indicándose en el recurso los motivos y aportando las pruebas respectivas. El recurso será admitido por la Junta, si cumple con todos los requisitos en cuanto a tiempo, forma y legitimación, y de ser pertinente, solicitará, los antecedentes al órgano involucrado.
+e) El Recurso de Apelación se interpondrá para ante el Concejo Municipal ya sea en forma subsidiaria al recurso de revocatoria o bien directamente, quien tendrá los plazos de Ley para su resolución.

@@ -1,0 +1,1 @@
+Artículo 50.—Aquellos problemas que se presenten a la Junta, que sean de carácter legal, y que no puedan ser resueltos por ésta dentro de los plazos de Ley, serán enviados en consulta al Departamento de Asuntos Jurídicos de la Municipalidad, quien brindará la asesoría correspondiente para su solución, a menos que cada Junta cuente con un asesor particular, en materia legal.

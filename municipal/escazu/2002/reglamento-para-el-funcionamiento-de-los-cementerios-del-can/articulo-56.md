@@ -1,0 +1,1 @@
+Artículo 56.—El presente Reglamento deroga expresamente el Reglamento aprobado en el Acta N° 297-5 del 5 de abril de 1978 y el Reglamento de la Junta Administrativa del Cementerio de San Antonio de Escazú, del 8 de setiembre de 1986, así como cualquier otra disposición y ordenanza municipal que se le oponga. Publíquese.

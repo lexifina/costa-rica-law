@@ -1,0 +1,1 @@
+Artículo 24.—Acuerdos firmes. Los acuerdos tomados por la totalidad de los miembros presentes de la Junta, siempre serán firmes, salvo que se acuerde lo contrario, quedando abierta la posibilidad de revisión, siguiendo para tal efecto el procedimiento señalado.

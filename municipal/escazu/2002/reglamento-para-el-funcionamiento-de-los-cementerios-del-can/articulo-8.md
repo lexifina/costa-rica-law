@@ -1,0 +1,1 @@
+Artículo 8º—Juramentación. La Secretaría Municipal con la brevedad oportuna, comunicará a las personas nombradas y a las fuerzas vivas que participaron con sus ternas, el nombramiento efectuado. Asimismo, la Secretaría convocará a los nuevos integrantes de cada Junta, para la sesión municipal inmediata siguiente al nombramiento, a fin que sean debidamente juramentados.
