@@ -1,0 +1,1 @@
+Art. 107. Si dentro de cinco dias contados desde aquel en que se notificó la sentencia, exclusive no se interpusiese suplica por alguna de las partes, deberá, à peticion de cualquiera de ellas declararse por pasada en autoridad de cosa juzgada, y el Secretario remitirà certificacion de dicha sentencia al Gobierno, al Cuerpo Conservador, y á la Asambléa sino estubiese en reseso.

@@ -1,0 +1,1 @@
+Art. 47. Determinada cualquiera causa civil ó criminal, darà á las partes testimonio si lo piden, à su costa para imprimirlo, ò para el uso que estimen; exceptuandose aquellos en que la decencia publica exija se vean à puerta cerrada: tambien estenderà con permiso de la Corte, todas las certificaciones y testimonios que se ofrezcan, y se le pidan por cualquiera Ciudadano.

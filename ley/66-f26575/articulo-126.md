@@ -1,0 +1,1 @@
+Art. 126. Tambien habrá lugar à acusacion en las causas de 2ª y 3ª clase, que se reducirán à las siguientes: 1ª fuerza à muger valiendose de la autoridad de Juez: 2ª admision (por si ò su familia á sabiendas) de regalos hechos por los litigantes, ò en nombre y consideracion de estos, aunque no llegue por esto a juzgar contra derecho.

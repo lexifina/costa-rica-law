@@ -1,0 +1,1 @@
+Art. 135. Antes de hacerse la declaratoria de haber lugar à la formacion de causa contra cualquiera Juez inferior, se pasarán los documentos en que haya de fundarse, al Magistrado Fiscal para que pida lo que estime conveniente.

@@ -1,0 +1,1 @@
+Art. 144. El término dentro del cual haya de ver los autos cada individuo, se fijarà según el volumen y complicacion de estos, por la Corte Plena, y cuando el último de los individuos que tienen de imponerse en los autos vuelva estos, se practicarà cuanto queda prescrito en los artículos 101 y siguientes, hasta el 104.

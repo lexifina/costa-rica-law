@@ -1,0 +1,1 @@
+Art. 141. Para imponer el castigo en estas causas, no habrà necesidad de declararles formacion de causa, ni de instruirla por escrito, ni de seguir los tràmites judiciales rigurosamente, pues bastará que á la Corte Plena le conste de cualquiera modo haberse cometido los exésos, ò faltas de que habla el artìculo 139.

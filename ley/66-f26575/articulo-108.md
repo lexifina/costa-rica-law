@@ -1,0 +1,1 @@
+Art. 108. Si se interpusiese suplica, se remitirán los autos con noticia de las partes, al Cuerpo Conservador, à fin de que se establezca el Tribunal de suplentes de que habla el artículo 95 de la Constitucion del Estado.

@@ -1,0 +1,1 @@
+Art. 61. Tambien dirigirà al Gobierno por medio del Ministro General, copia de los recados remitidos á la Tesoreria, á fin de que se pueda exigir la responsabilidad de los Ministros Tesoreros en sus cuentas periódicas, ó en caso de negligencia.

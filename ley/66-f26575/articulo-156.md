@@ -1,0 +1,1 @@
+Art. 156. De lo que se resolviere por algun Magistrado, en el acto de la visita, no habrá lugar á súplica, ni à algun otro recurso, con tal que lo resuelto sea sobre alguno de los puntos que son el objeto à que puedan estenderse las visitas.

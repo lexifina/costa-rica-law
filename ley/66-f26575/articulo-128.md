@@ -1,0 +1,1 @@
+Art. 128. Son causa de 3ª clase: 1ª la decidia habitual en el desempeño de sus funciones: 2ª ineptitud conocida para llenar los deberes de su destino: 3ª el pronunciamiento de tres fallos contra ley expresa, ó contra hechos notorios en el proceso con tal que no provenga de malicia, sino de descuido ó ignorancia.
