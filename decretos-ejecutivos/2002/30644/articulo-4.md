@@ -1,0 +1,1 @@
+Artículo 4º—El diesel y la gasolina destinado a la flota pesquera no deportiva se regirán, en cuanto al color, por lo dispuesto en el presente reglamento. En todas las demás características, dichos combustibles se regirán por lo establecido en los Reglamentos Técnicos RTCR 249-1997 y RTCR 245-1997.

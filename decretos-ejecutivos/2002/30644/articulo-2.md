@@ -1,0 +1,1 @@
+Artículo 2º—La Refinadora Costarricense de Petróleo, S. A., actuando en su condición de suplidor único del combustible destinado a la flota pesquera no deportiva, deberá instaurar en sus planteles de distribución, los mecanismos que considere necesarios para dotar de color a los combustibles que destine para la citada flota pesquera.
