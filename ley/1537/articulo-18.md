@@ -1,0 +1,1 @@
+Artículo 18°-Derogase el artículo 23 de la ley N° 7 del 14 de mayo de 1925, en cuanto autoriza a las Juntas de Educación para subvencionar a los Agentes Principales de Policía, que en la presente Ley de Presupuesto se incorporaran al Poder Judicial.
