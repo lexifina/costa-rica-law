@@ -1,0 +1,1 @@
+Artículo 45.—La inscripción de matrimonio católico se verificará trascribiendo literalmente la partida certificada y haciendo constar, además de las circunstancias exigidas por el artículo 248 del Código Civil, la de no aparecer en el Registro, antecedente alguno que impida la inscripción.

@@ -1,0 +1,1 @@
+Artículo 27.—Además de las circunstancias generales a toda inscripción y de los requisitos particulares a la inscripción de nacimientos, establecidos en los artículos 235 y 240 del Código Civil, en el acta o asiento de inscripción de nacimiento se especificará el nombre, apellido, edad y domicilio de la persona que hace la declaración, si no fuere el padre o la madre.

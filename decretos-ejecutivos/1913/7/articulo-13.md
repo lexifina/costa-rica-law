@@ -1,0 +1,1 @@
+Artículo 13.—Los libros llevados en campaña, terminada ésta, pasarán a la oficina central; y el Registrador General cuidará entonces de practicar en sus libros todas las inscripciones que aquéllos contengan.

@@ -1,0 +1,1 @@
+Artículo 32.—Si el niño muriese antes de estar, inscrito en el Registro, se hará la inscripción de nacimiento antes que la de muerte, caso de tenerse a la vista el cupón del nacimiento; de lo contarlo, se procederá inmediatamente a inscribir la defunción.

@@ -1,0 +1,1 @@
+Artículo 52.—El parte de que habla el artículo anterior se debe dirigir a la Oficina Central dentro de veinticuatro horas, si la inhumación se verificase en esta capital y dentro del término más breve que presente el servicio de correos, tratándose de los demás lugares de la República; y debe contener las circunstancias exigidas en el artículo 251 del Código Civil.

@@ -1,0 +1,1 @@
+Artículo 54.—Cuando el parte a que se refiere el artículo 49 careciere de alguno de los requisitos exigidos por el artículo 251 del Código Civil, el empleado que lo envíe dará los motivos de la omisión, lo que se hará constar en el Registro. Cuando se vayan adquiriendo nuevos datos se anotarán al margen del asiento.

@@ -1,0 +1,15 @@
+# Decreto Ejecutivo 7
+
+Reglamento del Registro del Estado Civil
+
+- Tipo: Decreto Ejecutivo
+- Número: 7
+- Fecha: 1913-07-25
+- Ente emisor: Presidente Constitucional de la República
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=68062&param2=80989&param3=1 (ficha 68062)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1913-07-25 | la propia norma |

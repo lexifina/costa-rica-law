@@ -1,0 +1,3 @@
+Artículo 23.—Después de practicar un asiento en el Registro, se tomará nota en el índice respectivo en esta forma: se pondrá el nombre y apellido de la persona a que afecte el asiento, comenzando por estos últimos, en la foja marcada con las iniciales de ambos apellidos y al lado, el folio, número del libro y número del asiento.
+Si la persona de que se trata no tiene más que un apellido, el asiento se pondrá en la foja marcada con las iniciales del apellido y nombre.
+Cuando la persona de que se trata constare ya en el índice, no se repetirá su nombre, a, menos que no hubiere espacio, sino que en seguida de las citas ya anotadas se hará la de los asientos que ocurran posteriormente.

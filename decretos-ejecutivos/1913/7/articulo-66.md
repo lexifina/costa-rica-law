@@ -1,0 +1,1 @@
+Artículo 66.—En todos los casos anteriores, cuando hubiere menores o inhábiles interesados, se citará al respectivo representante o en su defecto al Ministerio Público para que se apersone en su nombre.

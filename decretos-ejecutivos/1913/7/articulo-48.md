@@ -1,0 +1,2 @@
+Artículo 48.—La ejecutoria que declare la separación de cuerpos, la nulidad de un matrimonio o el divorcio, se inscribirá también en el libro destinado a matrimonios y además se pondrá nota marginal al asiento del matrimonio.
+Las ejecutorias dictadas por Tribunales extranjeros en materia de nulidad de matrimonio, divorcio, o separación de cuerpos, podrán inscribirse a requerimiento de parte interesada, una vez cumplidos los trámites que establecen los artículos 1064 y siguientes del Código de Procedimientos Civiles.

@@ -1,0 +1,1 @@
+Artículo 73. —Los costarricenses que después de haber vivido en países donde Costa Rica no tuviese Agente Consular, fijaren su domicilio en lugar donde lo haya o retornaren a la patria, deben hacer inscribir en el Registro de su domicilio todos los actos, que habiendo ocurrido antes, necesiten inscripción.

@@ -1,0 +1,1 @@
+Artículo 4°— El Poder Ejecutivo puede investir con el carácter de Registradores Auxiliares a los Agentes de Policía de los distritos, a los directores de escuelas públicas, a los telegrafistas o administradores de correos y aun a particulares capaces para el caso, y esas funciones se desempeñarán ad honórem.

@@ -1,0 +1,1 @@
+Artículo 19.—Cuando se agotaren las fojas destinadas en un libro a una combinación, se abrirá a ésta, nueva separación en el mismo libro, o en el siguiente, si en aquél no hubiere lugar. Al pie de la última foja de las agotadas, se pondrá razón del tomo y folio a donde pasa la combinación y en éste, el tomo y folio de donde viene.

@@ -1,0 +1,1 @@
+Artículo 79.—Cuando el Gobernador o Jefe Político se encontraren ausentes de la oficina, el Secretario respectivo podrá recibir en su lugar las declaraciones de nacimiento que ocurran y enviar los cupones correspondientes.

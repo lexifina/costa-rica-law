@@ -1,0 +1,1 @@
+Artículo 47.—Los matrimonios celebrados fuera de la República, entre costarricenses o extranjeros, podrán inscribirse en el Registro Civil a requerimiento de parte interesada y en virtud de documento debidamente autenticado y legalizado.
