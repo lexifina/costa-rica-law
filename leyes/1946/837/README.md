@@ -1,6 +1,6 @@
 # Ley de Impuesto sobre la Renta (1946) (Reformas a la ley de impuesto territorial)
 
-Ley N° 837 del 1946-12-20. SINALEVI, ficha 3218: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3218&param2=123985&param3=1>.
+Ley N° 837 del 1946-12-20. SINALEVI, ficha 3218: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3218&param2=123988&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -23,3 +23,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 15 de 34 | 1985-09-03 | Ley 3020 | 1962-08-16 |
 | 16 de 34 | 1985-09-03 | Ley 3063 | 1962-11-14 |
 | 17 de 34 | 1985-09-03 | Ley 3274 | 1964-02-06 |
+| 18 de 34 | 1985-09-03 | Ley 4395 | 1969-08-22 |
