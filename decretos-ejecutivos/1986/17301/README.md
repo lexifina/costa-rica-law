@@ -14,3 +14,4 @@ Reglamento Ley de Incentivos para Producción Industrial
 | --- | --- | --- |
 | 1 | 1986-11-28 | la propia norma |
 | 2 | 1986-11-28 | SINALEVI (sin norma nombrada) |
+| 3 | 2001-07-04 | Ley 8114 |

@@ -18,3 +18,5 @@ los porcentajes y enviará su recomendación a la Dirección
 General de la Tributación Directa del Ministerio de Hacienda.
 ( NOTA: Tácitamente derogado por el artículo 1º de la Ley Nº 7293 de
 31 de marzo de 1992)
+(Derogado tácitamente, por el inciso d) del artículo 22 de la Ley N° 8114,
+Ley de Simplificación y EficienciaTributaria de 4 de julio del 2001).
