@@ -1,0 +1,2 @@
+Artículo 2°—El monto del empréstito a que se refiere el artículo anterior, a efecto de garantizar su total recuperación, será destinado a financiar el mejoramiento y asfaltado de las vías urbanas que queden frente a propiedades privadas de la ciudad de San Isidro de El General y del distrito Daniel Flores
+Si hubiere remanente, el mismo será destinado por la Municipalidad mejoramiento de vías urbanas de cualquiera de los otros distritos del cantón
