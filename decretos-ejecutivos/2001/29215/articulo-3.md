@@ -1,0 +1,1 @@
+Artículo 3º—Deróguense los artículos 8, 9 del Decreto Ejecutivo Regulaciones a la Actividad de Empresas de Arrendamiento de Vehículos a Turistas Nacionales y Extranjeros Nº 25148-H-TUR y sus reformas.
