@@ -1,0 +1,3 @@
+PATRONATO NACIONAL DE LA INFANCIA
+En sesión ordinaria 99-0017-99, celebrada el 1° de marzo de 1999, Artículo 013) Inciso B) Aparte 01), se acuerda: modificar el Artículo N° 10 del "Reglamento de Compensación Económica por disponibilidad para la persona con categoría de plaza de tía sustituta del Patronato Nacional de la Infancia", de tal manera que diga: "el pago de la compensación económica por concepto de disponibilidad se suspenderá cuando la funcionaria no esté cumpliendo funciones de tía sustituta, esté disfrutando de una licencia con o sin goce de salario, de vacaciones, o por incapacidad extendida por la CCSS, INS, o médico particular".
+San José, 27 de abril de 1999.
