@@ -1,0 +1,1 @@
+Artículo 4°-Los beneficios establecidos en este Reglamento serán mutuamente excluyentes de tal forma que ningún funcionario pueda disfrutar de ambos al mismo tiempo. El reconocimiento de estos beneficios será por medio de acción de personal previa aprobación de la Dirección General de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 3°-El cálculo porcentual se establecerá para cada cantón del país de acuerdo con el análisis de los parámetros mencionados en el artículo anterior. El monto correspondiente a cada porcentaje, luego de que la Contra loría General de la República establezca el monto máximo será establecido de oficio por el Departamento de Personal según la tabla del artículo 9°.
