@@ -1,0 +1,1 @@
+Art 4° El Inspector General no tendrá residencia fija, pues el objeto primordial de su creación, es el de que recorra personalmente todas los Provincias de la República, vigilado por si todo lo que se halle dentro de la esfera de sus atribuciones.
