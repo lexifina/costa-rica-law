@@ -13,3 +13,4 @@ Exceptua Programa Gusano Barrenedor Alcances Presupuestarios para 1996
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-11 | la propia norma |
+| 2 | 1996-06-11 | SINALEVI (sin norma nombrada) |
