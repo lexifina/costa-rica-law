@@ -1,0 +1,4 @@
+Artículo 48.- Cuando un ferrocarril deba cruzar por encima o por
+debajo de un camino público u otra vía de transporte, deberá construir la
+estructura adecuada conforme a las especificaciones que fije el Ministerio
+de Obras Públicas y Transportes.
