@@ -1,0 +1,1 @@
+Artículo 6º—Facultades de verificación: La Dirección Financiera de la Municipalidad de Guácimo queda facultada para verificar cualquier dato relacionado con el gasto de representación que este en trámite de pago.
