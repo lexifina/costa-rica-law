@@ -13,3 +13,4 @@ Establece Cifra Indicativa Suma Presupuestos para Partidas EspecíficasPara el A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-02 | la propia norma |
+| 2 | 1999-07-02 | SINALEVI (sin norma nombrada) |
