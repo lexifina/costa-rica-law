@@ -1,0 +1,1 @@
+Art 2° Estos billetes devengarán el interés del uno por ciento mensual el día en que se pongan en circulación y gozarán de los privilegios siguiente: 1° El de ser admitido en pago de tierras baldías por su valúo y sin puja; y 2° el de ser igualmente admisibles en pago de derecho marítimos después de seis meses de su fecha.
