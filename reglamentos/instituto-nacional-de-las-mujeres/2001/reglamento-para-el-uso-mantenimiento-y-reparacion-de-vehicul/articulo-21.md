@@ -1,0 +1,1 @@
+Articulo 21.—En todo caso, la persona Coordinadora de Área que solicite el uso del vehículo particular del funcionario, deberá fundamentar los motivos y objetivos que cumplirá el funcionario, así como la importancia de la realización de las actividades para las que se solicita el vehículo.

@@ -1,0 +1,1 @@
+Articulo 33.—El kilometraje intermedio de una gira solo se reconocerá en casos muy calificados y previa autorización de la (del) superior inmediato (a) de la (del) funcionaria (o), indicando las circunstancias que dieron origen a ese kilometraje intermedio, lo cual debe quedar anotado en la respectiva boleta de viaje.

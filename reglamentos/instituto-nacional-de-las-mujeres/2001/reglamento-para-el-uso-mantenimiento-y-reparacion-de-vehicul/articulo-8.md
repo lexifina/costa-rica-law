@@ -1,0 +1,1 @@
+Artículo 8°—Para los efectos anteriores, debe utilizarse el formulario diseñado especialmente al efecto, el que debe remitirse a la Unidad de Servicios Generales, con la firma de la persona coordinadora del área o unidad respectiva.

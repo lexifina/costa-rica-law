@@ -1,0 +1,1 @@
+Artículo 16.— En casos excepcionales, en virtud de que no haya disponibilidad de chóferes y la realización de la actividad o gira no pueda postergarse por motivos debidamente justificados, se podrá autorizar a las personas funcionarias del INAMU para que conduzcan vehículos de uso administrativo.

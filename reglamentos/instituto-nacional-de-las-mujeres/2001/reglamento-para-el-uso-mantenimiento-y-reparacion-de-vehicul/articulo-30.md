@@ -1,0 +1,1 @@
+Articulo 30.—Correrá por cuenta de la (del) funcionaría (o) propietaria (o) del vehículo los gastos que se generen como parle del uso del vehículo, tales como combustibles, grasas, lubricantes, seguros y reparaciones de cualquier naturaleza.

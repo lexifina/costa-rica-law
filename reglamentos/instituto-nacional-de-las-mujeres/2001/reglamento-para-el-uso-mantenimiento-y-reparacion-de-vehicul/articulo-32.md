@@ -1,0 +1,1 @@
+Artículo 32.—Cuando con ocasión de la gira se requiera el traslado de otras personas funcionarias del INAMU, la (el) propietaria (o) del vehiculo está en la obligación de trasladarles, siempre y cuando el número no exceda de la capacidad del vehículo.
