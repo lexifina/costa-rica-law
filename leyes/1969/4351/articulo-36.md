@@ -1,2 +1,1 @@
-Artículo 36.- El Banco deberá mantener permanentemente en disponibilidad el equivalente al 10% del monto de los ahorros exigibles a la vista, sea en efectivo, en cuentas bancarias en los Bancos Comerciales Estatales, o en títulos valores adquiridos con pacto de retroventa a la vista de las instituciones bancarias del Estado.
-El Banco Central, por medio de la Auditoría General de Bancos, supervisará el cumplimiento de esta disposición.
+Artículo 36.- (Derogado por el artículo 168 de la Ley Orgánica del Banco Central de Costa Rica, N° 7558 del 3 de noviembre de 1995)

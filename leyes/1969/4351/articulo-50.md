@@ -1,2 +1,2 @@
-Artículo 50.- Si el Banco infringiere disposiciones legales o no acatare las resoluciones del Banco Central, que le sean aplicables de acuerdo con la presente ley, será requerido por el Auditor General de Bancos para que tome las medidas, que a su juicio fueren eficaces para subsanar las faltas en un plazo prudencial, que él mismo determinará. Si el Banco persistiera en su actitud, el Auditor lo informará a la Junta Directiva del Banco Central proponiendo las medidas adecuadas para el arreglo de la situación planteada.
+Artículo 50.- (Derogado por el artículo 168 de la Ley Orgánica del Banco Central de Costa Rica, N° 7558 del 3 de noviembre de 1995)
 (Así adicionado por el artículo 1° de la ley N° 5776 del 18 de agosto de 1975)

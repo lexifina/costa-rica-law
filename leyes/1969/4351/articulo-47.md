@@ -1,2 +1,3 @@
-Artículo 47.- El Banco no estará sometido a las disposiciones del Banco Central relativas a la tasa de interés, topes de cartera, límites de crédito y encaje mínimo legal.
+Artículo 47.- El Banco forma parte del Sistema Bancario Nacional y tendrá las mismas atribuciones, responsabilidades y obligaciones que le corresponden a los bancos, de conformidad con lo establecido en la Ley Orgánica del Banco Central, la Ley Orgánica del Sistema Bancario Nacional, a excepción del artículo 4, y las demás leyes aplicables. Sin embargo, las disposiciones del capítulo III de esta ley seguirán siendo aplicables.
 (Así adicionado por el artículo 1° de la ley N° 5776 del 18 de agosto de 1975)
+(Así reformado por el artículo 167 de la Ley Orgánica del Banco Central de Costa Rica, N° 7558 del 3 de noviembre de 1995)
