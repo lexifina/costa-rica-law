@@ -1,0 +1,1 @@
+Artículo 4º—Autoridad competente. De conformidad con el artículo 19 de la Ley Nº 7033, Ley General de Migración y Extranjería, y las atribuciones que constitucionalmente se otorgan al Ministerio de Relaciones Exteriores y Culto, corresponde a este Ministerio realizar todo trámite de expedición de visa diplomática u oficial.

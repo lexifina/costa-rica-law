@@ -1,0 +1,1 @@
+Artículo 3º—Investidura legal. Corresponde al Ministro de Relaciones Exteriores y Culto, en el funcionario que éste designe como Director de la Dirección de Servicio Exterior, el trámite para otorgar, revalidar y anular las visas diplomáticas y oficiales que se soliciten ante esa dependencia.

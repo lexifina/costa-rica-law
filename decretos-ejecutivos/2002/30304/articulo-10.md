@@ -1,0 +1,1 @@
+Artículo 10.—Comunicación sobre otorgamiento de visas. El Ministerio de Relaciones Exteriores y Culto informará oportunamente a la Dirección General de Migración y Extranjería y cualquier otra Institución sobre la emisión de visas oficiales y/o diplomáticas, si a su criterio dicha comunicación es oportuna por razones de conveniencia.

@@ -1,0 +1,2 @@
+Artículo 5º—Definición de Visa Oficial y Diplomática. Se entiende por visa diplomática el permiso de ingreso al territorio nacional, extendido por la autoridad competente para aquellos funcionarios diplomáticos portadores de documentos oficiales de viaje, en funciones de carácter oficial.
+Se entiende por visa oficial el permiso de ingreso al territorio nacional, extendido por la autoridad competente para aquellas personas portadoras de documentos oficiales de viaje, en funciones de carácter oficial, o todas aquellas que el Estado costarricense considere pertinentes.

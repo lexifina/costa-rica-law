@@ -1,0 +1,8 @@
+CAPÍTULO II
+Titulares del Derecho a Visa Diplomática y Oficial
+Artículo 7º—Otorgamiento.
+a. Se otorgarán las visas oficiales y/o diplomáticas, según sea el caso, a solicitud de gobiernos extranjeros, misiones diplomáticas acreditadas en Costa Rica, instituciones costarricenses u Organizaciones Internacionales debidamente reconocidas por el Gobierno de la República o de las cuales Costa Rica sea parte. La solicitud debe hacerse en forma escrita preferiblemente ante la Dirección del Servicio Exterior, o en su defecto, ante las Misiones Diplomáticas o Consulares de Costa Rica en el exterior con al menos tres días de anticipación, a la fecha programada para el viaje.
+En caso de otorgarse la visa, el petente será responsable de la estadía y salida del país en la fecha indicada de la persona a la cual se otorgó la visa.
+b. Este tipo de visas se otorgarán solamente cuando se trate de funcionarios diplomáticos u oficiales cuya condición sea debidamente acreditada. Excepcionalmente se podrá dar visa a aquellos funcionarios que viajen con pasaporte ordinario una vez acreditada su función oficial, siempre que el motivo de estadía en Costa Rica sea el de participar de actividades oficiales con el Gobierno de Costa Rica, con alguna institución autónoma u otra dependencia estatal, organismos internacionales, reuniones internacionales de carácter oficial o se encuentren acreditados como tales en el territorio costarricense.
+c. A la solicitud debe adjuntarse fotocopias del pasaporte del interesado.
+d. La denegatoria de otorgar las visas a que se refiere este Reglamento, no tiene recurso alguno y es discrecional del funcionario facultado para ello.
