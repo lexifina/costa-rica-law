@@ -1,0 +1,1 @@
+Artículo 11.—Del Reconocimiento: Se otorgará un reconocimiento público al esfuerzo del centro educativo, mediante la colocación de un símbolo de acreditación como Centro Educativo Seguro, de acuerdo con las categorías señaladas en el artículo nueve.

@@ -1,0 +1,1 @@
+Artículo 12.—Presentación de Informes: Todos los Comités de Seguridad Vial deberán presentar un informe de labores ante el Consejo de Seguridad Vial y a las Direcciones Regionales del Ministerio de Educación Pública, al finalizar el período lectivo y un Plan de Trabajo sobre los proyectos por desarrollar, para el siguiente año.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del Currículo en Materia de Seguridad Vial en la Educación Formal
+Artículo 14.—Del Currículo de Seguridad Vial en la Educación Formal Costarricense. De conformidad con el Decreto Ejecutivo 29390-MOPT-S, publicado el 23 de marzo del 2001, en el Alcance 24 a La Gaceta Nº 59, los contenidos propios de la seguridad vial se incorporarán al currículo de la educación preescolar, así como en la educación de primero, segundo, tercero y cuarto ciclo. Quienes hayan satisfecho y aprobado los contenidos durante todo el proceso de enseñanza antes descrito, tendrán por cumplido el curso Básico de Educación Vial.

@@ -1,0 +1,1 @@
+Artículo 15.—De la Incorporación de Contenidos: Corresponderá al Ministerio de Educación Pública en coordinación con el Consejo de Seguridad Vial y la Dirección General de Educación Vial, la incorporación de los contenidos propios de la seguridad vial en los currículos oficiales de los diferentes niveles de educación.

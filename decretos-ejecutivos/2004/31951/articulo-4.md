@@ -1,0 +1,1 @@
+Artículo 4º—Del Apoyo Económico: Los Patronatos Escolares y las Juntas de Educación y Administrativas de los centros educativos, en la medida de sus posibilidades, podrán destinar recursos para el desarrollo de acciones preventivas de seguridad vial.

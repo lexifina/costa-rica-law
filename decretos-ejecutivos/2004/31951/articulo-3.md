@@ -1,0 +1,1 @@
+Artículo 3º—De otras Organizaciones de Interés Social: De existir en los centros educativos otros grupos organizados (Comités o Comisiones) de atención a la salud, vigilancia de transporte estudiantil, prevención de desastres, seguridad ciudadana, rescate de valores, entre otros, estos podrán asumir las acciones de seguridad vial.

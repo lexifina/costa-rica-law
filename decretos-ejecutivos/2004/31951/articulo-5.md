@@ -1,0 +1,1 @@
+Artículo 5º—De la coordinación con los Consejos Locales de Seguridad Vial. El Comité o la Comisión que asumirá las acciones de seguridad vial, deberá actuar en estrecha coordinación con los Consejos Locales de Seguridad Vial existentes, en el cantón donde residan, cuando estén conformados.

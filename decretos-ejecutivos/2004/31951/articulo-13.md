@@ -1,0 +1,1 @@
+Artículo 13.—Monitoreo de los Centros Educativos Seguros. Corresponderá al Ministerio de Educación Pública en coordinación con la Dirección General de Educación Vial del Ministerio de Obras Públicas y Transportes y el Consejo de Seguridad Vial, verificar la existencia y funcionamiento de los Centros Educativos Seguros.
