@@ -18,3 +18,4 @@ Reglamento para Préstamos Hipotecarios del Instituto Nacional de Vivienda y Urb
 | 3 | 1959-03-05 | Decreto Ejecutivo 1 (1959-03-05) |
 | 4 | 1983-12-05 | Reglamento 3489 (1983-12-05) |
 | 5 | 1984-02-06 | Reglamento 3504 (1984-02-06) |
+| 6 | 1984-03-26 | Reglamento 3517 (1984-03-26) |
