@@ -1,0 +1,1 @@
+Artículo III.-Las pensiones otorgadas por la Caja Costarricense de Seguro Social serán reguladas por el presente reglamento que deberá ser de uso único y exclusivo para la adquisición de bienes y servicios que satisfagan las necesidades relacionados con la discapacidad de cada beneficiario.

@@ -1,0 +1,1 @@
+Artículo XXI.-Cuando la persona con discapacidad sea trasladada y por ende pasa a cuido de otra institución, el Patronato Nacional de la Infancia deberá transferirle el saldo de la cuenta y un informe actualizado de los ingresos y egresos realizados en el último año.

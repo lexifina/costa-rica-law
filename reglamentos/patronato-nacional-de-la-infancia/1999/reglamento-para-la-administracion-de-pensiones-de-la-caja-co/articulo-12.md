@@ -1,0 +1,1 @@
+Artículo XII-Cuando un servidor no presente la liquidación dentro del plazo estipulado deberá justificarlo, caso contrario será considerado como falta leve y podrá ser amonestado. Para ello se cumplirá con el procedimiento establecido en la Ley General de la Administración Pública.

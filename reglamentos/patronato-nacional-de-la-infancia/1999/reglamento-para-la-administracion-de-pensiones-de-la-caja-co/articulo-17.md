@@ -1,0 +1,1 @@
+Artículo XVII.-La Gerencia Técnica del PANI deberá, a través de la Secretaria Técnica de Protección con información proveída por las Oficinas Locales, llevar una base de datos actualizada con la información de las personas con discapacidad que tienen pensiones, sean éstas del Régimen No Contributivo (RNC) o Pensión por Parálisis Cerebral Profunda (PCP).
