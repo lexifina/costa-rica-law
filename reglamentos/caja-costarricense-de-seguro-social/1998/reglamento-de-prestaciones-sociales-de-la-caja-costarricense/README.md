@@ -15,3 +15,4 @@ Reglamento de prestaciones sociales de la Caja Costarricense de Seguro Social
 | --- | --- | --- |
 | 1 | 1998-02-02 | la propia norma |
 | 2 | 2000-06-29 | Reglamento 7455 (2000-06-29) |
+| 3 | 2004-03-11 | Reglamento 7841 (2004-03-11) |
