@@ -94,6 +94,8 @@ III.3.2.2 El área arriba indicada es la mínima pero ésta deberá estar apoyad
 III.3.2.3 Las pruebas de filtración deberán efectuarse (según especificaciones del Ministerio de Salud) por cada 5000 m2. Los resultados se deben reportar en función del tiempo que tarda en bajar el nivel de agua 2,5 cm. en condiciones saturadas del terreno en cada hueco (prueba).
 III.3.2.4 Las pruebas de filtración se harán conjuntamente con los estudios preliminares y su resultado será enviado a la Dirección de Urbanismo del INVU. En caso que se alteren sustancialmente las condiciones naturales del terreno por razones de topografía u otros, se requerirá una nueva prueba de filtración para los niveles finales. La Dirección de Urbanismo y el Ministerio de Salud se reservan la facultad de modificar el área mínima o la norma de diseño si las pruebas así lo exigieran.
 III.3.2.5 El fondo del lote no será mayor de siete veces el frente. Los lotes esquineros con frente menor a los diez metros (10 m.) tendrán un frente mayor a los demás en un tanto igual al del antejardín mínimo exigido en la zona.
+En lotes para uso agrícola el fondo del lote no será mayor de diez veces el frente.
+(Así ampliado por acuerdo de Junta Directiva, en su sesión N° 3522 de 9 de abril de 1984, el cual agregó el último párrafo)
 III.3.2.6 En los lotes que enfrentan a una calle en curva, su frente reglamentario será medido sobre la línea de construcción y no sobre la de propiedad.
 III.3.2.7 Hasta donde sea posible, los linderos laterales de los lotes serán perpendiculares a la línea de cordón y caño.
 III.3.2.8 Para el diseño de los drenajes de aguas negras se aplicarán las normas establecidas por el Ministerio de Salud en caso de tanque séptico y de A y A para caso de colectores.

@@ -14,3 +14,4 @@ Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-12-13 | la propia norma |
+| 2 | 1984-04-09 | Reglamento 3522 (1984-04-09) |
