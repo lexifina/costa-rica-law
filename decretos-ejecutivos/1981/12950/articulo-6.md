@@ -1,2 +1,0 @@
-Artículo 6°-A las sesiones de la Comisión de Oleaginosas podrán ser invitados, con derecho a voz, representantes de otras instituciones especializadas en el campo de las oleaginosas y, en general, todas aquellas personas a quienes la Comisión estime conveniente escuchar.
-La Comisión dará audiencia a la Cámara Nacional de Comerciantes Detallistas cuando se vayan a discutir aspectos de la comercialización de las oleaginosas.
