@@ -8,4 +8,5 @@ Sección 2.- Acuerdos de Colaboración sobre Asistencia Técnica.
 Con el fin de lograr los propósitos de este artículo, el Banco podrá celebrar acuerdo en materia de asistencia técnica con otras instituciones nacionales o internacionales, tanto públicas como privadas.
 Sección 3.- Gastos.
 a) El Banco podrá acordar con los países miembros o empresas que reciban asistencia técnica el reembolso de los gastos correspondientes en las condiciones que el Banco estime apropiadas.
-(b) Los gastos de asistencia técnica que no sean pagados por los beneficiarios serán cubiertos con los ingresos netos del Banco o del Fondo. Sin embargo, durante los tres primeros años de operaciones, el Banco podrá utilizar, para hacer frente a dichos gastos, hasta un total de tres por ciento de los recursos iniciales del Fondo.
+(b) Los gastos de asistencia técnica que no sean pagados por los beneficiarios serán cubiertos con los ingresos netos de los recursos ordinarios de capital, de los recursos interregionales de capital o del Fondo. Sin embargo, durante los tres primeros años de operaciones, el Banco podrá utilizar, para hacer frente a dichos gastos, hasta un total de tres por ciento de los recursos iniciales del Fondo.
+(Así reformado el inciso anterior por el artículo 1° punto 25) de la ley N° 5877 del 12 de enero de 1976)
