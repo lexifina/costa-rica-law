@@ -1,1 +1,0 @@
-Artículo 116.-En el caso que la Junta Directiva deniegue la inscripción del contrato y el vendedor insista en la venta en las mismas condiciones, dará opción por cuarenta y ocho horas a la Oficina del Café, organismo que podrá ofrecer la partida en licitación pública o adquirirla por su cuenta a cualquier precio superior.

@@ -1,1 +1,0 @@
-Artículo 215.-De conformidad con el artículo 38 de la Ley sobre el Régimen de Relaciones, la Oficina del Café operará un Almacén General de Depósito para café, para lo cual podrá usar los recursos propios o financiarse con el Sistema Bancario Nacional para este efecto.

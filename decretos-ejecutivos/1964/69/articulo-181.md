@@ -1,1 +1,0 @@
-Articulo 181.- La Oficina del Café tendrá su domicilio legal en la Ciudad de San José y podrá establecer agencias y representaciones en cualquier lugar de la República o fuera de ella, a juicio de su Junta Directiva.

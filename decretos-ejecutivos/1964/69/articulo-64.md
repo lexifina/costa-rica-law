@@ -1,8 +1,0 @@
-Artículo 64. -En cuanto los beneficiadores hayan realizado la totalidad de sus ventas, o en caso contrario a más tardar dentro de los diez primeros días del mes de octubre siguiente a la cosecha y con base en el estado de cuenta, al treinta de setiembre, deberán presentar al Departamento de Liquidaciones de la Oficina del Café, en los formularios preparados al efecto, una declaración de cuentas para la liquidación final, anotando los siguientes datos:
-a) Cantidad y monto totales de las ventas de café realizadas para exportación, excluyendo el caté comprado a otros beneficios ;
-b) Cantidad y monto totales del café rematado para consumo nacional
-c) Cantidad de café de la cuota de consumo nacional no vendida y estimación del valor de la misma, determinado en la forma prevista en el artículo 70 de este Reglamento;
-ch)Cantidad y monto totales del café de la cuota de retención, en el caso que la hubiere y/o que se hubiere acordado pago alguno sobre la misma;
-d) Cantidad total de café recibido, desglosando las cantidades de café maduro y de verde, y el detalle por zonas de recibo, en el caso que hubiere. demarcación de las mismas, y relación obtenida por conversión de café en fruta a café oro;
-e) Monto total de lo pagado por concepto del impuesto de ¢0.035 (tres y medio céntimos de colón), por cada quintal de cuarenta y seis kilogramos de café en fruta recibido, estatuido por el artículo 9° del Decreto N° 200 de 5 de octubre de 1948: y
-f) Cuando sea del caso, detalle de los gastos de elaboración aceptadas por Ley, acompañando los respectivos comprobantes, o certificación de los mismos extendida por un Contador Público Autorizado.

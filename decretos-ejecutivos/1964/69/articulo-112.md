@@ -1,2 +1,0 @@
-Artículo 112. -Los torrefactores de café legalmente inscritos en la Oficina del Café, mediante el trámite de contrato y demás disposiciones establecidas en los artículos 93, 94, 95 y 96 de este Reglamento, podrán adquirir café de la cuota de exportación para ser industrializado y exportado.
-Dichas partidas deberán ser teñidas, cuando tengan que ser llevadas a plantas de torrefacción que también industrializan café para- el consumo nacional.

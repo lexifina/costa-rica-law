@@ -1,1 +1,0 @@
-Artículo 170.-Una muestra del café adjudicado será entregada al comprador, en tanto que otra igual quedará depositada durante un mes en la Bolsa del Café de Consumo Nacional, para los fines previstos en el artículo 157 de este te Reglamento.

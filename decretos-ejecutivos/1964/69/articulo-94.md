@@ -1,2 +1,0 @@
-Artículo 94.-Para la Oficina del Café, aparte de los aspecto, civiles entre beneficiadores y exportadores, el contrato existe desde el momento en que éste se presenta para su inscripción, razón por la cual en el mismo deberá anotarse la hora y fecha de presentación.
-La inscripción no convalida los contratos que sean nulos o anulados conforme a la Ley o a este Reglamento. Se entenderá que queda bajo la responsabilidad de las partes contratantes el cumplimiento de las cuotas de exportación y de las condiciones anotadas en los contratos.

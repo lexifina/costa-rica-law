@@ -1,1 +1,0 @@
-Artículo 228.-Al propietario de una partida de café beneficiado no inventariada según el caso previsto en el artículo 55 de este Reglamento, independientemente de la sanción ordinaria que le corresponda, se le condenará a la pérdida deI café decomisado en tales condiciones, de acuerdo con lo establecido por el artículo 113 de la Ley sobre el Régimen de Relaciones.

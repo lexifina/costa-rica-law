@@ -1,1 +1,0 @@
-Artículo 166. -A más tardar dos días hábiles antes del remate, deberá quedar en exhibición un muestrario de café sin teñir de las partidas a rematar, obtenido de las partidas ingresadas a la Planta de Teñir.

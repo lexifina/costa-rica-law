@@ -1,1 +1,0 @@
-Artículo 242.-Para los fines de cálculo de los precios de liquidación y de acuerdo con las disposiciones del artículo 111 de la Ley sobre el Régimen de Relaciones, los beneficiado res y los torrefactores de café, no podrán negarse a mostrar sus contabilidades a los inspectores de la Junta de Liquidaciones.

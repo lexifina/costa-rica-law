@@ -1,1 +1,0 @@
-Artículo 114.-Si el precio consignado en un contrato por inscribir, no encaja dentro de los niveles normales prevalecientes en el mercado, por ser visiblemente inferior a éstos, su inscripción podrá ser denegada por la Dirección Ejecutiva,

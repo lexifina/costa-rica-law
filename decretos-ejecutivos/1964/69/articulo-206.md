@@ -1,1 +1,0 @@
-Articulo 206. - La Junta de Liquidaciones se pronunciará sobre las liquidaciones pro-forma y los proyectos de liquidación de oficio elaborados por el Departamento de Liquidaciones de la Oficina del Café, y sus resoluciones podrán apelarse para ante la Junta Directiva , en los términos y condiciones previstos en el artículo 73 de este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 195. -La separación de cualquiera de los miembros de la Junta Directiva , no lo libra de las responsabilidades legales en que pudiera haber incurrido por incumplimiento de alguna de las disposiciones de las leyes. decretos o reglamentos aplicables a la Oficina del Café.

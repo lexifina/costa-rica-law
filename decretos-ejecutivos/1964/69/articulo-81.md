@@ -1,1 +1,0 @@
-Artículo 81.-Los beneficiadores están obligados a transferir proporcionalmente a sus clientes, cuando éstos lo soliciten, el crédito cafetalero de las dos primeras etapas, que obtengan del Sistema Bancario Nacional.

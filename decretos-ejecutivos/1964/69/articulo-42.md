@@ -1,1 +1,0 @@
-Artículo 42.-La venta que se pretenda inscribir a precio visiblemente inferior a los niveles normales vigentes del mercado para el mismo tipo, clasificación y calidad, quedará supeditada a las disposiciones de los artículos 114, 115, 116 y 117 de este Reglamento.

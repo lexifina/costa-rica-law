@@ -1,1 +1,0 @@
-Artículo 117.-Una vez vencido el término de cuarenta y ocho horas a que se refiere el artículo precedente, sin que la Oficina del Café haya hecho uso de las facultades que se le confieren, se hará de oficio la inscripción del contrato al precio originalmente pactado.

@@ -1,1 +1,0 @@
-Artículo 36.-La fijación de cuotas y de porcentajes de que hablan los dos artículos anteriores, lo mismo que sus modificaciones, deberán ser comunicadas por escrito a los beneficiadores y exportadores.

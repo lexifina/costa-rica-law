@@ -1,1 +1,0 @@
-Artículo 54. -Cuando el recibo de café de un beneficio se extienda a diferentes zonas de! país, sin que razones de interés nacional justifiquen su amplio radio de acción comercial, a juicio de la Junta Directiva de la Oficina del Café, se computará el rendimiento de dicho beneficio como correspondiente al de la zona de mayor rendimiento.

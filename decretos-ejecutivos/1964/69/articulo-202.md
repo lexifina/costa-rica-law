@@ -1,3 +1,0 @@
-Artículo 202 .-Ningún miembro de la Junta Directiva podrá estar presente cuando se voten asuntos en que esté interesado él o algún pariente suyo hasta tercer grado por consanguinidad o segundo por afinidad, ambos inclusive, o que interesen a sociedades en que él o sus parientes dichos sean socios colectivos, comanditados, comanditarios, directores o gerentes.
-Igual prohibición existirá cuando la Junta Directiva tenga que conocer de una reclamación o conflicto en que sea parte alguna de las personas mencionadas en este artículo.
-Los acuerdos tomados en contravención él lo dispuesto por este artículo, estarán viciados de nulidad absoluta y se tendrán por inexistentes.

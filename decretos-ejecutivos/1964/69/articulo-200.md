@@ -1,2 +1,0 @@
-Artículo 200. -El quórum de las sesiones se formará con cuatro miembros, el Director Ejecutivo o el Subdirector Ejecutivo y el Auditor, deberán asistir a las sesiones, con voz pero sin voto.
-De las sesiones de Junta Directiva deberán levantarse actas, que se pasarán a un libro abierto al efecto y legalizado por la Contraloría General de la República y que serán firmadas por los miembros que actúen como Presidente y Secretario en la ocasión en que se aprueben las mismas.

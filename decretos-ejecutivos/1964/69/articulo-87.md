@@ -1,6 +1,0 @@
-Artículo 87.-Los exportadores deberán rendir a favor de la Oficina del Café, y ante la Auditoría de esta Dependencia. una garantía o póliza de fiidelidad según e! siguiente detalle:
-a) De cincuenta mil colones para los que tengan un volumen anual de exportación hasta de un millón de colones:
-b) De cien mil colones para los que tengan un volumen anual de exportación entre uno y dos millones de colones; y
-c) De doscientos mil colones para los que tengan un volumen anual de exportación mayor de dos millones de colones.
-Dicha garantía responderá proporcionalmente por el pago del adelanto del impuesto ad-valórem citado en el artículo 22 de este Reglamento, Se hará efectiva dicha garantía respecto al adelanto del impuesto citado, en el momento en que el exportador se encuentre en mora respecto al pago. También responderá tal garantía por las sumas que adeuden a los beneficiadores por concepto de entregas de café para la exportación.
-La Auditoría de la Oficina del Café revisará periódicamente las referencias bancarias de los exportadores, incluyendo a los socios y personas vinculadas con las firmas cuando se trate de personas jurídicas, debiendo informar a Ia Junta Directiva de los casos que a su juicio considere irregulares.

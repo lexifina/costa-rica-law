@@ -1,1 +1,0 @@
-Artículo 82.-Aparte de las disposiciones establecidas en el Reglamento citado en el artículo trasanterior, los beneficiadores no tendrán derecho a cobrar a los productores suma alguna por concepto de lucro cesante, peritazgos, inspecciones o cualquier otro tipo de comisión, que no sean intereses legales sobre los montos financiados.

@@ -1,1 +1,0 @@
-Artículo 77.-En caso de que los adelantos de dinero otorgados por un beneficiador por cada unidad de café por recibir, resulten superiores a los precios oficiales de liquidación para la respectiva cosecha, el adelanto por unidad se considerará precio mínimo de liquidación.

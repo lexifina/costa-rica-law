@@ -1,1 +1,0 @@
-Articulo 146. -Para las zonas donde no operen plantas de beneficio, la Oficina del Café, por sí o con la colaboración de otros organismos estatales, podrá comprar café bellota o café natural, el cual se destinará al consumo nacional por medro de la Bolsa del Café de Consumo Nacional.

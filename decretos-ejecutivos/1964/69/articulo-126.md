@@ -1,7 +1,0 @@
-Artículo 126 .-No se otorgarán permisos de exportación a aquellos exportadores que se encuentren en cualquiera de las siguientes condiciones:
-a) Qué no se hayan inscrito en el registro de exportadores de la Oficina del Café, de acuerdo con lo establecido por el artículo 86 de este Reglamento ;
-b) Que no bubieren rendido la garantía estatuida por el artículo 87 de este Reglamento o que la misma estuviere caduca o gravada o que durante el año hubieren adquirido compromisos para la exportación de café, por un volumen que sobrepase el límite correspondiente a la garantía otorgada;
-c) Que contravengan las disposiciones que sobre marcas establece el articulo 88 de este Reglamento;
-ch)Que en el término de los ocho días calendario siguientes a un embarque, no hayan presentado a la Oficina del Café el correspondiente recibo del pago del adelanto del impuesto ad-valórem establecido por la Ley N° 1411 de 19 de enero de 1952, modificada por la Ley N° 2127 de 8 de junio de 1957 y por la Ley N° 2802 de 1° de Setiembre de 1961;
-d) Que no hayan inscrito en la Bolsa del Café de Consumo Nacional, en el término establecido por el artículo 135 de este Reglamento, el saldo del café de la cuota de exportación de la cosecha anterior, recibido y no exportado al último de setiembre; y
-e) Que no hubieren presentado a la Bolsa del Café de Consumo Nacional, las partidas que se les hubiere ordenado, de acuerdo con lo establecido por el artículo 159 de este Reglamento.

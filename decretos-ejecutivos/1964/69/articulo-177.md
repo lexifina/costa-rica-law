@@ -1,1 +1,0 @@
-Artículo 177.-Además de la pérdida a favor de la Oficina del Café del depósito referido en el artículo 174, el adjudicatario de un remate que dejare de cumplir con los términos de la operación, podrá ser suspendido como comprador por un término de treinta a noventa días, a juicio de la Junta Directiva , la primera vez y definitivamente en caso de reincidencia.

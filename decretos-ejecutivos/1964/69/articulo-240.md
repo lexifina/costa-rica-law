@@ -1,1 +1,0 @@
-Artículo 240.-Para los casos no previstos, los honorarios del perito o peritos a que se refieren los dos artículos anteriores. serán pagados por aquella de las partes que resultare perdidosa, en la proporción fijada por el artículo 403 dell Código de Procedimientos Civiles.

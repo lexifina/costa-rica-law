@@ -1,2 +1,0 @@
-Artículo 75.-A más tardar el primero de noviembre siguiente a la cosecha respectiva, la Oficina del Café deberá haber enviado para su publicación, los precios oficiales de liquidación para todos los beneficios del país, salvo para aquellos cuya liquidación final se encuentre en conocimiento de la Junta Directiva, por haberse presentado apelación de la misma al tenor de lo establecido por los artículos 73 y 206 de este Reglamento.
-Estas publicaciones se harán en el Diario Oficial y en tres de los diarios de circulación nacional.

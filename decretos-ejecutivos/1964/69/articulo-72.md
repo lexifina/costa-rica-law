@@ -1,1 +1,0 @@
-Articulo 72.-La Junta de Liquidaciones, a más tardar el último de octubre siguiente a la cosecha, deberá concluir la revisión de las liquidaciones pro-forma y de los proyectos de liquidación de oficio presentados por el Departamento de Liquidaciones y haber determinado los precios oficiales de liquidación.

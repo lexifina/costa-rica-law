@@ -1,1 +1,0 @@
-Artículo 51.-Los ingresos que obtengan los beneficiadores por la aplicación de las disposiciones de los incisos a) y b) de! artículo 49, deberán ser incluidos en la liquidación correspondiente al año en que se obtienen los ingresos.

@@ -1,1 +1,0 @@
-Artículo 83. -Las fórmulas de certificado de prenda que usen los beneficios para otorgar crédito a los productores, deberán set aprobadas por la Oficina de Café y se tendrán como no puestas aquellas cláusulas que contravengan las disposiciones de la Ley N° 2762 de 21 de junio de 1961 y sus reformas.

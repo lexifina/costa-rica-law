@@ -1,1 +1,0 @@
-Articulo 69. -Durante el período de estudio de las cuentas de liquidación los productores y/o beneficiadores, podrán nombrar por cada parte, un fiscal que los represente ante la Junta de Liquidaciones.

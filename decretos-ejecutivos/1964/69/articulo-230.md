@@ -1,1 +1,0 @@
-Articulo 230. - La Dirección Ejecutiva de la Oficina del Café podrá negarse a dar trámite a las gestiones de una firma exportadora que se encuentre atrasada en Ias obligaciones que la Ley o este Reglamento le señalan.

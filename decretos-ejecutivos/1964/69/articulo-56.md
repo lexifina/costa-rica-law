@@ -1,1 +1,0 @@
-Artículo 56.-Los beneficios deben informar por escrito a la Oficina del Café, la localización de todas las bodegas e instalaciones, fuera de las que se encuentren en las plantas de beneficio, que utilicen para guardar o procesar café.

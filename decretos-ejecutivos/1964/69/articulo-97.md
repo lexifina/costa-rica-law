@@ -1,3 +1,0 @@
-Artículo 97.-La inscripción de contratos de compra-venta de café para la exportación por consignación, se completará tan pronto se realice la venta, según el procedimiento establecido en el artículo 118 de este Reglamento.
-La inscripción de estos contratos se abrirá el primero de octubre del respectivo año cafetalero.
-Para los efectos del cálculo del adelanto del impuesto ad-valórem establecido por la Ley N° 1411 de 19 de enero de 1952, modificada por la Ley N° 2127 de 8 de junio de 1957 y por la Ley N° 2802 de 1° de setiembre de 1961, a estos contratos se les fijará provisionalmente como precio, el del día en que se inscriben, para el mismo tipo y clasificación.

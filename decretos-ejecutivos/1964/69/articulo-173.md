@@ -1,1 +1,0 @@
-Artículo 173.-EI Jefe del Departamento de la Bolsa del Café de Consuno Nacional notificará la venta al beneficiador, productor o dueño del café, mediante el envío de una copia del acta respectiva, dentro de las cuarenta y ocho horas siguientes al remate.

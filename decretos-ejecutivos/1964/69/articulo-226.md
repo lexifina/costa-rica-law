@@ -1,1 +1,0 @@
-Artículo 226.-Se prohíbe a los beneficiadores la venta y todo acto de disposición del café beneficiado por cualquier conducto que no sean los medios establecidos por la Oficina del Café, y su contravención, de acuerdo con lo establecido por el artículo 108 de la Ley sobre el Régimen de Relaciones, será sancionada como delito de defraudación en perjuicio de los productores.

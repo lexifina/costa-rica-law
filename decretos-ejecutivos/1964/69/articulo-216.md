@@ -1,1 +1,0 @@
-Artículo 216.- La Oficina del Café estará sujeta a la fiscalización de Ia Contraloría General de la República, de acuerdo con las disposiciones legales de la misma, y de la Dirección General de Hacienda, de acuerdo con las disposiciones de la Ley N° 3022 de 27 de agosto de 1962.

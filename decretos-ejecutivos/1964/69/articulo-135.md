@@ -1,2 +1,0 @@
-Artículo 135.-Los exportadores asumen la obligación de exportar antes del treinta de setiembre el café de la cuota de exportación que hayan adquirido, debiendo destinar al consumo nacional aquellas partidas o saldos de café que no hubieren exportado a la mencionada fecha.
-La inscripción de tales partidas en la Bolsa del Café de Consumo Nacional deberá hacerse antes del quince de octubre siguiente.

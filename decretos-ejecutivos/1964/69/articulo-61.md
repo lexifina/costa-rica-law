@@ -1,1 +1,0 @@
-Artículo 61.-Si el beneficiador se niega a hacer la liquidación y pago provisional en los términos del artículo anterior, o los productores no estuvieran conformes con la establecida por el beneficio, podrán éstos recurrir ante la Junta de Liquidaciones a fin de que, conforme al procedimiento indicado, se proceda a fijar o revisar en su caso, el monto de la citada liquidación.

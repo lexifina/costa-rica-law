@@ -1,1 +1,0 @@
-Artículo 55. -A más tardar el treinta de mayo de cada año y en las fórmulas que al efecto suplirá la Oficina del Café, los beneficios deberán enviar a ésta un detalle de sus existencias de café al quince de mayo inmediato anterior, señalando e! estado en que se encuentre cada una de las partidas.

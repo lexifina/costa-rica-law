@@ -1,1 +1,0 @@
-Artículo 143. -Los traspasos o cesiones de contratos entre exportadores están sujetos a las mismas disposiciones contenidas en el presente título y en ningún caso la suma de las utilidades para los exportadores que participen en una transacción de este tipo, podrá sobrepasar la ganancia neta establecida.

@@ -1,1 +1,0 @@
-Artículo 224. -En los casos de transgresión contemplados en el articulo anterior, aparte de la acción civil correspondiente y de acuerdo con lo establecido por el artículo citado, se impondrá a los infractores una multa de un veinticinco por ciento del valor del café, en favor de los clientes del beneficio que lo reciba.

@@ -1,3 +1,0 @@
-Artículo 160, -El café deberá entregarse a la Planta de Teñir en sacos en buen estado y marcados con el número de partida que les hubiere asignado la Oficina del café,
-Una diferencia del cinco por ciento en el peso, entre lo inscrito y lo entregado, se considera como margen correcto, para efectos de tener por valida Ia inscripción.
-La falta de entrega oportuna del café a la Planta de Teñir se tendrá como posposición de la oferta por otros ocho días y obligará al vendedor al pago de los dos colones por quintal de cuarenta y seis kilogramos, que como derechos de remate establece la Ley N° 3062 de 14 de noviembre de 1962, modificada por la Ley N° 3380 de 20 de agosto de 1964.

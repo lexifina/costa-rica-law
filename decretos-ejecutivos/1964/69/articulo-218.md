@@ -1,1 +1,0 @@
-Artículo 218.-Los balances y estados de la Oficina. deberán ser firmados por el Director Ejecutivo y el Jefe de la Contabilidad y refrendados por el Auditor, siendo todos ellos solidariamente responsables por la exactitud y corrección de esos documentos.

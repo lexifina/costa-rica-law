@@ -1,1 +1,0 @@
-Artículo 43.-La Junta Directiva de la Oficina del Café podrá determinar las calidades y/o los precios mínimos del café de exportación; no se permitirá la venta para ese destino de aquellas partidas que no se ajusten a dichas calidades y / o precios mínimos.
