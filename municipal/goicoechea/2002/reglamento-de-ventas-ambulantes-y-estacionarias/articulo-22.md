@@ -1,0 +1,1 @@
+Artículo 22.—En caso de caducidad o renuncia a la licencia por cualquier motivo, el Departamento de Licencias y Patentes procederá a la adjudicación de esta licencia por medio del orden en que hayan ingresado las solicitudes.

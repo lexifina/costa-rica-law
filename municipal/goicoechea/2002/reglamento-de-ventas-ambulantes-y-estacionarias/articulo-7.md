@@ -1,0 +1,1 @@
+Artículo 7º—Se concederá la licencia para este tipo de actividad por familia. En caso de muerte o incapacidad permanente del concesionario, deberá solicitarse una nueva licencia dentro del mes posterior al fallecimiento y tendrá prioridad el cónyuge sobreviviente o compañera(o), salvo mejor criterio del Departamento de Licencias y Patentes.
