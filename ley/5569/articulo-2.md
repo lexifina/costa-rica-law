@@ -1,0 +1,1 @@
+Artículo 2°-El vehículo importado debe ser rifado entre el público, para invertir sus beneficios en cubrir gastos de la construcción de un templo católico en las Urbanizaciones Rohrmoser, distrito de Pavas, cantón Central de la provincia de San José.
