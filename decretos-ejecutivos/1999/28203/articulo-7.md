@@ -1,0 +1,1 @@
+Artículo 7°—La Asociación previa tramitación de los permisos respectivos ante las autoridades competentes, podrá establecer centros de acopio en puntos estratégicos del territorio nacional y a través de los cuales podría abarcar la demanda nacional de este producto.

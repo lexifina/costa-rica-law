@@ -1,0 +1,1 @@
+Artículo 17.—El INCOPESCA, podrá realizar en cualquier momento, operativos de protección y vigilancia fuera del refugio, para los cuales contará con la colaboración de los miembros del Comité de Vigilancia nombrados por la Asociación, así como de los efectivos de la Fuerza Pública.

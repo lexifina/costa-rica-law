@@ -1,0 +1,1 @@
+Artículo 14.—Para efectos de la aplicación del artículo anterior, se entenderá como comunidades circunvecinas a las comunidades de Lagarto, Marbella, San Juanillo, La Esperanza, Santa Marta, Nosara, Garza y Las Delicias de Garza.

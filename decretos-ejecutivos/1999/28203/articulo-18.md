@@ -1,0 +1,1 @@
+Artículo 18.—El INCOPESCA podrá realizar en cualquier momento, operativos de protección y vigilancia para los cuales solicitará la colaboración de las autoridades del MINAE, los miembros del Comité de Vigilancia nombrados por la Asociación, los efectivos de la Fuerza Pública y la Policía Municipal, a los efectos de coordinar la realización de tales acciones.

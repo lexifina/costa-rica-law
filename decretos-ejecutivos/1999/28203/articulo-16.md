@@ -1,0 +1,1 @@
+Artículo 16.—La Asociación podrá vender hasta un máximo de 200 huevos por persona mayor de edad, cuando se trate de personas que llegan de visita al refugio y a un precio no mayor al 50% del precio fijado por ésta para el mercado nacional durante cada arribada.

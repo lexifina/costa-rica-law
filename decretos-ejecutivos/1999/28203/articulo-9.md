@@ -1,0 +1,3 @@
+Artículo 9°—Durante el proceso de comercialización de los huevos de tortuga lora, los miembros de la Asociación estarán obligados a extender un comprobante para ventas menores a 50 huevos y una factura para ventas mayores de 50 huevos.
+Ambos documentos deben ser en original y dos copias (Original: interesado, copia: Asociación y Copia: INCOPESCA) y está última debe ser remitida a dicha Institución, antes de la próxima arribada.
+Los documentos anteriores deben ser presentados por el interesado a las autoridades competentes que lo requieran, de lo contrario el producto se decomisará y se procederá a poner la denuncia respectiva ante las autoridades judiciales del país.

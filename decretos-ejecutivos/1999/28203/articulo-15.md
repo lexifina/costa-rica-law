@@ -1,0 +1,2 @@
+Artículo 15.—La Asociación extenderá un comprobante por cada donación que realice. Dicho documento debe ser en original y dos copias (Original: interesado. Copia: Asociación y Copia: INCOPESCA) y este último debe ser remitido a dicha Institución, antes de la próxima arribada.
+El documento anterior debe ser presentado por el interesado a las autoridades competentes que lo requieran, de lo contrario el producto se decomisará y se procederá a poner la denuncia respectiva ante las autoridades judiciales del país.
