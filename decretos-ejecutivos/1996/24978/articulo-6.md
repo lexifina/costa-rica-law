@@ -1,0 +1,1 @@
+Artículo 6º- Las Juntas de Educación presupuestarán e invertirán los ingresos provenientes de la ley Nº 7552 del 2 de octubre de 1995, mediante los procedimientos y de conformidad con los criterios contenidos en el Reglamento General de Juntas de Educación y Juntas Administrativas, Nº 17763-E del 3 de septiembre de 1987 y sus reformas.

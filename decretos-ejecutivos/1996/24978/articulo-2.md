@@ -1,0 +1,1 @@
+Artículo 2º- El Ministerio de Educación Pública, directamente o con la intervención de sus Direcciones Regionales, informará a la Municipalidad el monto que corresponda girar a cada Junta de Educación.
