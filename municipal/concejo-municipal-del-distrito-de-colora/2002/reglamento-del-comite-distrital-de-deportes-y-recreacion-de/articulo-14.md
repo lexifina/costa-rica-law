@@ -1,0 +1,1 @@
+Artículo 14.—El quórum necesario para reunirse será de tres personas y los acuerdos se tomarán por mayoría simple. Podrá determinarse los acuerdos como firmes, cuando no sea necesario la aprobación de la sesión posterior. Los acuerdos serán unánimes cuando todos los presentes lo acuerden positivamente.

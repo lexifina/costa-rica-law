@@ -1,0 +1,1 @@
+Artículo 41.—La Junta Directiva, en la primera sesión de trabajo, designará la distribución de los puestos así: Presidente, Vicepresidente, Secretario, Tesorero, Vocal 1, Vocal 2 y Vocal 3. De su designación comunicará por escrito al Comité Distrital, donde se indicará nombre completo, número de cédula, estado civil, dirección exacta y lugar o medio para localizarlo.

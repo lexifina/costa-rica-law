@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE COLORADO
+REGLAMENTO DEL COMITÉ DISTRITAL DE DEPORTES Y RECREACIÓN DE COLORADO
+CAPITULO I
+Naturaleza jurídica y conformación del Comité Distrital de Deporte y Recreación
+Artículo 1º—El Comité Distrital de Deportes y Recreación del Distrito de Colorado, es un órgano adscrito al Concejo Municipal de Distrito de Colorado, el cual goza de personería jurídica instrumental, es decir para la consecución de sus fines y realizar sus funciones será el encargado de construir, administrar y mantener las instalaciones de naturaleza deportivas de la Municipalidad, así como de las instalaciones que el comité llegase a tener como de su propiedad. Tendrá a su cargo el desarrollo, fomento y estímulo de la práctica del deporte y la recreación en el Distrito de Colorado, para lo cual procurará la mayor participación de sus habitantes, sin discriminaciones por naturaleza de religión, raza, filiación política, condiciones socioeconómicas, fomentará además la práctica del deporte y la recreación a personas con discapacidad y adultos mayores.

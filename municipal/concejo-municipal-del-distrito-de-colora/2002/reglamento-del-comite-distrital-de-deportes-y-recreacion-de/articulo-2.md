@@ -1,0 +1,1 @@
+Artículo 2º—El Comité de Deportes y Recreación de Colorado, estará integrado por una Junta Directiva, personal de apoyo administrativo y secretarial necesario, remunerado o no para la consecución de sus fines, los comités comunales o distritales y las comisiones subordinadas a la Junta Directiva.

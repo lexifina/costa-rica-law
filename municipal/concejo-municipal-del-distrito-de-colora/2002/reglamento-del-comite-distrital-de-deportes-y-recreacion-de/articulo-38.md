@@ -1,0 +1,1 @@
+Artículo 38.—Los comités distritales, son la máxima representación en su distrito, en lo referente a actividades de promoción, administración de instalaciones y los responsables del desarrollo deportivo y recreativo en su comunidad.

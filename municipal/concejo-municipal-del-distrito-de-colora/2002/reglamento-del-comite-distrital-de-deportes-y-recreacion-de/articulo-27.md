@@ -1,0 +1,1 @@
+Artículo 27.—Cada comisión deberá designar de su seno a un Presidente, un Secretario, un Tesorero y un Vocal y están facultados para contratar, con el visto bueno de la Junta del Comité el personal administrativo para el buen desarrollo de sus actividades. El personal de la comisión estará subordinada a esta.

@@ -1,0 +1,12 @@
+Artículo 34.—Son funciones de la Comisión de Capacitación:
+a) Gestionar la capacitación de personal y miembros de las comisiones, comités distritales y directivos y recreativos.
+b) Promover la capacitación de personal y miembros de las comisiones, comités distritales y directivos de organizaciones deportivas en el distrito.
+c) Coordinar con entes deportivos nacionales e internacionales la ayuda técnica, sea esta gratuita o contratada en la preparación de atletas, entrenadores, dirigentes y personal servidor en el campo deportivo de Colorado. En todo trámite de contratación, se debe respetar las especificaciones tributarias y la Ley de Contratación Administrativa y su Reglamento.
+d) Poseer un registro de proveedores de servicios técnicos dentro del distrito que estén facultados para dar asesoramiento en el campo deportivo y recreativo, para la consecución de sus fines.
+e) Realizar un diagnóstico de las necesidades técnicas deportivas del distrito.
+f) Coordinar con el Instituto Costarricense del Deporte y la Recreación y demás entes públicos y privados en el campo deportivo, un plan anual de capacitación de árbitros, entrenadores y administradores deportivos, mediante clínicas y seminarios de capacitación en el distrito.
+g) Asumir un plan de capacitación deportiva constante en el distrito.
+h) Coordinar con los entes necesarios, y la biblioteca pública del distrito, los colegios.
+i) Estimular, financiar hasta donde sea posible, y difundir el estudio científico y elaboración de manuales, libros, folletos e investigación de miembros de la comunidad, en el campo deportivo, dar el respaldo necesario, cuando sea solicitado y así proceda, a las obras de investigación que elaboren profesionales investigadores del distrito y a nivel nacional en el campo deportivo.
+j) Elaborar un informe anual de su labor al Comité Distrital.
+k) Cualquier otra actividad que por naturaleza, o por asignación de la Junta de Comité Distrital deben desarrollar.

@@ -1,0 +1,1 @@
+Artículo 42.—Una vez designados en su seno, y comunicado al Comité Distrital, este hecho, los miembros del Comité Distrital serán juramentados por el presidente del Comité Cantonal, conforme al artículo 194 de la Constitución Política.
