@@ -1,0 +1,3 @@
+Artículo 20.—Diseño del sistema. El diseño del sistema, se hará de acuerdo al método que establezca la Dirección, definiendo todos aquellos aspectos de seguridad y control que deben incorporarse al sistema para asegurar la confidencialidad de la información procesada. Además de lo anterior, el diseño del sistema contendrá lo siguiente:
+a) Análisis de Riesgos: Definirá todos aquellos aspectos de seguridad y control que deben incorporarse al sistema para asegurar la confidencialidad de la información procesada, así como las pistas de Auditoria.
+b) Aprobación por escrito: Tanto la parte usuaria como la Dirección, aprobarán por escrito el diseño del sistema.

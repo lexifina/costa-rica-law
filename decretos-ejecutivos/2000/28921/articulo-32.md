@@ -1,0 +1,16 @@
+Artículo 32.—Obligaciones de los usuarios del hardware y software. Los funcionarios usuarios de Hardware y Software propiedad del Ministerio, tendrán las siguientes obligaciones:
+a) Usar el equipo de computo exclusivamente para labores propias de las dependencias del ministerio.
+b) Usar exclusivamente el software aprobados por la Comisión de Informática para funciones propias del cargo.
+c) Velar por el buen uso de los equipos de computo asignados a las diferentes dependencias del ministerio. Estando obligados a reportar de inmediato a la dirección, cualquier anomalía con su funcionamiento
+d) Apagar los equipos de cómputo cuando se presente tormenta eléctrica.
+e) Abstenerse de ingerir alimentos y bebidas en lugares donde se encuentren instalados los equipos de computo.
+f) Apagar los equipos de computo cuando no estén en uso, los cuales deberán de ser cubiertos por los protectores de polvo.
+g) Utilizar los disquetes que se utilicen normalmente en el trabajo diario y usual de las respectivas dependencias. Cuando por alguna circunstancia se deban utilizar disquetes distintos tendrá que contar con la anuencia de la Dirección. Sin embargo, no se deben de introducir disquete sin revisar con el antivirus anteriormente.
+h) Se utilizará como estándar para usuario final el Windows, 3.1, 3.11, 95 o superior y el Office 3.1, 3.11, 95 o superior, siempre que los recursos de la máquina lo permitan.
+i) El equipo de cómputo instalado en el ministerio, no podrá ser usado en la reproducción de programas informáticos, aunque los mismos sean propiedad de la institución. Sin embargo, la comisión podrá autorizar el equipo necesario cuando sea conveniente para el ministerio la reproducción de programas informáticos, siempre y cuando no violente ninguna norma jurídica en la materia, siendo los funcionarios de la Dirección los únicos autorizados para ello.
+j) El usuario solo podrá accesar el software, con la autorización del jefe inmediato. Cuando el funcionario tenga asignado un número de código o clave para poder hacer su ingreso al software, será el único responsable de su mal uso. La autorización dicha debe ser por escrito, conteniendo el nombre y apellidos completos del funcionario, número de cédula y opciones a las que tendrá acceso.
+k) Todo software que se instale en las máquinas propiedad del Ministerio, debe de contar con la licencia respectiva. Serán los jefes de departamentos o secciones los responsables de permitir la instalación de software sin la respectiva licencia.
+l) El manejo del software y de la información, por parte de los usuarios se hará dentro de los parámetros básicos de la informática, con el fin de no causar daños al sistema.
+m) Verificar que el equipo de cómputo este conectado a una red eléctrica polarizada diseñada para dicho fin y debidamente identificada, con el fin de que solamente se pueda utilizar dicho equipo. En el caso que el hardware no este conectado como se describe, le informará a su jefe inmediato y no lo usara hasta tanto se encuentre debidamente instalado a la red eléctrica descrita.
+n) Las impresoras de punto que tienen perilla para el ajuste, deben de encontrarse apagadas cuando se pretenda hacer uso de dicha perilla.
+ñ) Observar las demás obligaciones contempladas en el presente reglamento.

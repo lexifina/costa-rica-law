@@ -1,0 +1,1 @@
+Artículo 27.—Creación de expedientes. La Dirección, creará y mantendrá, expedientes individuales con toda la documentación de los sistemas desarrollados y en proceso de desarrollo. En dichos expedientes constará la metodología de desarrollo de sistemas, de tal manera que permita a la Auditoria efectuar verificaciones de cumplimiento.

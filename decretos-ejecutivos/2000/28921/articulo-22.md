@@ -1,0 +1,1 @@
+Artículo 22.—Manuales de operación. La Dirección preparará los manuales de operación, técnicos y del usuario para cada uno de los sistemas que se desarrollan. La Dirección gestionará las fotocopias necesarias y se les entregarán a los usuarios, conservándose en la Dirección dos originales de cada uno de los manuales.

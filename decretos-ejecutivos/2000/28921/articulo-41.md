@@ -1,0 +1,1 @@
+Artículo 41.—Desecho de hardware. Previo a la iniciación del procedimiento para declarar en desecho y por ende declarar de baja a equipo de computo, el departamento de activos deberá solicitar la autorización de la dirección.

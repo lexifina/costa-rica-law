@@ -1,0 +1,1 @@
+Artículo 26.—Actualizaciones de software. Las actualizaciones de software deberán ser aprobadas por la Dirección, previa solicitud del interesado. Los costos que pueda generar la actualización, se cargarán al programa presupuestario correspondiente. Todas las actualizaciones se almacenarán igual que los programas.
