@@ -15,12 +15,10 @@ e) Por cinco o más medias ausencias o por dos ausencias consecutivas, o más de
 3. Abandono injustificado del trabajo.
 a) Primera vez: Suspensión sin goce de salario por ocho días.
 b) Segunda vez: Despido sin responsabilidad patronal.
-4. Violación de las disposiciones del Artículo 109, Incisos 15, 19, 20,21 y 28.
-(Así reformado por el artículo 12 del decreto ejecutivo N° 25941 del 14 de marzo de 1997)
-a) Primera vez: Suspensión por ocho días.
-b) Segunda vez: Despido sin responsabilidad patronal.
+4. Violación de la disposición del artículo 15, obligación contenida en el Reglamento para la implementación de medidas y la Integración y Regulación de la Comisión Institucional en Materia de Discapacidad del Ministerio de Hacienda.
+(Así reformado por el artículo 28 del decreto ejecutivo N° 31661 de 19 de diciembre de 2003)
 5. Conductas definidas en el Artículo 115 como causa justa o falta grave: Despido sin responsabilidad para el Ministerio.
 6. Violación a la disposición del Artículo 109 inciso 18:
-(Así reformado por el artículo 12 del decreto ejecutivo N° 25941 del 14 de marzo de 1997)
+(Así reformado por el artículo 12 del decreto ejecutivo N° 25941 de 14 de marzo de 1997)
 a) Por primera vez: Amonestación por escrito.
 b) Por segunda vez: Despido sin responsabilidad patronal.
