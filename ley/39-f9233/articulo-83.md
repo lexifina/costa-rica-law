@@ -1,0 +1,3 @@
+Artículo 83.- Los primeros testimonios deberán extenderse en el mismo acto de firmarse la matriz o dentro de los cinco días hábiles siguientes.
+Estos testimonios irán firmados por las partes y testigos instrumentales cuando el Notario o aquéllas así lo deseen; pero podrán ir también firmados únicamente por el Notario y dos testigos de confrontación, quienes pueden ser los mismos instrumentales. Si se hubiere actuado ante dos notarios, el testimonio podrá ir firmado solamente por ellos, o por uno de ellos y dos testigos de confrontación.
+Sin embargo, los testimonios relativos a testamentos sí deben expedirse en el acto del otorgamiento de la matriz, firmarse por los testadores que sepan y pueden hacerlo, y por los testigos instrumentales.

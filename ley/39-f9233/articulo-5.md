@@ -1,0 +1,1 @@
+Artículo 5º.- Si la solicitud estuviere en forma, la Facultad de Derecho comisionará a su Decano para que reciba declaración a tres testigos honorables que él mismo designe, sobre la conducta del peticionario. Recibida la información, la Facultad resolverá si concede o no el título de Notario.

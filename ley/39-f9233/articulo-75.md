@@ -1,0 +1,1 @@
+Artículo 75.- La escritura de cancelación parcial de un crédito hipotecario deberá expresar el saldo que se queda debiendo y la finca o fincas que quedan libres; y si la cancelación no afectare más que parte de una finca, se hará también la descripción completa de esa parte, lo mismo que la del resto.

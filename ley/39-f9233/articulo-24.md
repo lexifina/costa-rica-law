@@ -1,0 +1,1 @@
+Artículo 24.- La cancelación definitiva o perpetua de la licencia para ejercer el notariado se decretará en los casos indicados en el artículo 38 y, además, en cualquiera otro de que hubiere resultado, por dolo o culpa del Notario, perjuicio grave para los otorgantes o terceros, y cuando la conducta, preparación o actuación del Notario fuere un peligro para el público.

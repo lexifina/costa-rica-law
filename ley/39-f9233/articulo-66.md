@@ -1,0 +1,1 @@
+Artículo 66.- Al extenderse la escritura matriz en el protocolo, se escribirá en el centro únicamente, sin ocupar los márgenes que hay a cada lado de las hojas del protocolo, y se comenzará poniendo, en letras, el número que le corresponda a la escritura; a continuación irá ésta sin dejar blanco alguno desde el número hasta la firma del Notario.

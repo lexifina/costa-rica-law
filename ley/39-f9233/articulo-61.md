@@ -1,0 +1,3 @@
+Artículo 61.- Los notarios podrán, por sí y bajo su responsabilidad, autorizar la traducción que ellos mismos hagan de documentos, instrumentos, cartas o cualesquiera otras piezas no redactadas en castellano. Podrá también el Notario autorizar traducciones ajenas que se le presenten, si las ratifican ante él y los testigos instrumentales, dos intérpretes que elija bajo su responsabilidad o el traductor oficial.
+Las traducciones así otorgadas surtirán todos los efectos legales, si se presentan acompañadas del original respectivo y en éste aparece razón de identidad suscrita por el mismo Notario.
+Las copias de ella se extenderán en papel de cincuenta céntimos, sin perjuicio de los reintegros e impuestos fiscales que correspondan en cada caso.

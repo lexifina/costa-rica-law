@@ -1,0 +1,1 @@
+Artículo 14.- De toda autorización para ejercer el notariado se tomará nota en el libro que con ese objeto debe llevar la Secretaría de la Corte. El Notario, al serle devuelto el título, firmará tal razón, para que conste allí la firma que usará en sus funciones.

@@ -1,0 +1,1 @@
+Artículo 88.- De cada segundo o ulterior testimonio que se expida dejará el Notario o funcionario razón firmada por él y el solicitante al margen de la respectiva escritura, la que expresará la fecha de entrega del testimonio y el mandato judicial que lo ordena.

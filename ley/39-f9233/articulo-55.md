@@ -1,0 +1,1 @@
+Artículo 55.- En todas las diligencias de reposición de protocolos se procederá con citación e intervención del Ministerio Público, quien firmará también todas las escrituras repuestas, cuando no comparecieren los otorgantes.

@@ -1,0 +1,1 @@
+Artículo 21.- El Notario no podrá autorizar escrituras en que se consignen derechos a favor de él o de alguno de los intérpretes o testigos instrumentales o de conocimiento, o de sus respectivos cónyuges, así como de sus ascendientes, descendientes, hermanos, tíos o sobrinos, por consanguinidad o afinidad.

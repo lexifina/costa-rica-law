@@ -1,0 +1,1 @@
+Artículo 34.- Se decretará el apremio corporal en materia civil contra todo Notario que, después de prevenido por la Corte o por el Juez Civil de su jurisdicción, no enviare su protocolo o protocolos a los Archivos Nacionales o al Juzgado, según corresponda, dentro del término que se le fije, sin perjuicio de la suspensión de que habla el artículo 23.

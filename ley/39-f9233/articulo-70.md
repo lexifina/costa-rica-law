@@ -1,0 +1,1 @@
+Artículo 70.- Si el Notario no conociere a las partes o a alguna de ellas, deben concurrir al otorgamiento de la escritura dos testigos más que las conozcan y sean a la vez conocidos del Notario, para que éste funde sobre el dicho de ellos la fe de identidad.

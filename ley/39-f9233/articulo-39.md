@@ -1,0 +1,1 @@
+Artículo 39.- Aunque los notarios, bajo su responsabilidad pueden llevar sus protocolos de una parte a otra en ejercicio de su profesión, no están en la obligación de permitir su salida de la oficina, pero sí lo están en la de mostrarlos dentro de su mismo despacho cuando los particulares lo soliciten o la autoridad lo ordene.

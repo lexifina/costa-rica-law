@@ -1,0 +1,1 @@
+Artículo 32.- En el caso de muerte del Notario, el Juez o el Director de los Archivos Nacionales, al recibir el protocolo, pondrá la razón al pie de la última escritura, indicando el número de las hojas ocupadas y el de las que aún quedan en blanco y la firmará. El funcionario que reciba el protocolo entregará la constancia respectiva a la persona que se lo lleve.
