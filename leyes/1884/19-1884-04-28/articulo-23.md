@@ -1,0 +1,1 @@
+Art. 23.-·El Gobernador determinará las horas de trabajo á que pueda obligarse á los reos, procurando conciliar la ocupación con la conservación de la salud. atendido el clima, y salvo lo dispuesto en el artículo 31 de este Reglamento.

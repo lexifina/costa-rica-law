@@ -1,0 +1,1 @@
+Art. 3°-El teniente Gobernador, el Ecónomo y el Proveedor son de libre nombramiento y remoción del Poder Ejecutivo. Los capataces y ejecutores dichos los nombrará y removerá el Teniente Gobernador de la isla, con aprobación del Gobernador de la comarca, entre los reos de mejor conducta que por ella y su inteligencia merecieren tal confianza.

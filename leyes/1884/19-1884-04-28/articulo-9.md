@@ -1,0 +1,1 @@
+Art. 9°-El Teniente Gobernador gozará del sueldo de su grado militar; y no teniendo grado alguno, del de setenta pesos mensuales: el Ecónomo del de cuarenta pesos también mensuales. El Proveedor disfrutará sólo de la mensualidad de veinte pesos y de un cinco por ciento sobre el importe de las ventas que haga de los productos de la isla.

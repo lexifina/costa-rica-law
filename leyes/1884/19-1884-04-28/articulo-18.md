@@ -1,0 +1,1 @@
+Art. 18.-El Teniente Gobernador anotará en el asiento de cada reo, la conducta de éste, expresando en caso de ser mala, las faltas ó delitos que haya cometido. El Gobernador inspeccionará este libro cada fin de mes.
