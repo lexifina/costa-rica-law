@@ -1,0 +1,1 @@
+Artículo 2° La rifa y sus utilidades se regirán por la Ley N°1387 del 21 de noviembre de 1951 y sus reformas; en especial por el artículo 2° bis (creado por la ley Nº 6463 del 1° de octubre de 1980), todo bajo la supervisión de la Contraloría General de la República.
