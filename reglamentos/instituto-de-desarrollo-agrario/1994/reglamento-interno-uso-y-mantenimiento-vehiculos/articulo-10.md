@@ -1,0 +1,1 @@
+ARTICULO X.— La Sección Transportes atenderá las solicitudes por estricto orden de presentación, salvo casos de emergencia o urgencia comprobada o por existir autorización expresa de la Presidencia Ejecutiva o la Gerencia. En las oportunidades que la Sección Transportes no pueda atender el servicio solicitado, deberá comunicar de inmediato exponiendo la razón que lo impide.

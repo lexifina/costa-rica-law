@@ -1,0 +1,4 @@
+ARTÍCULO XII.-Todos los vehículos, a excepción de los que se encuentran en cumplimiento de giras o misiones especiales de trabajo, deben permanecer estacionados al final de cada jornada en el garaje de la Sede Central del Instituto en San José, o en parqueos regionales establecidos.
+La custodia de los vehículos es responsabilidad del Jefe de la Sección Transportes o de los Jefes Regionales correspondientes; las llaves de cada unidad deben permanecer ubicadas en un recinto especialmente diseñado para ese efecto.
+Exceptuando los vehículos de uso discrecional, -solo en casos muy calificados podrán guardarse los vehículos propiedad de la Institución en casa de habitación de alguno de los funcionarios, siempre que en ella existan condiciones de seguridad suficientes.
+En los casos de vehículos que queden en oficinas centrales, la custodia quedará a cargo del Departamento de Servicios Generales a través del personal de vigilancia.

@@ -1,0 +1,3 @@
+ARTICULO VII.--Los vehículos de la sede central que se ubican dentro de la categoría de uso administrativo general, incluyendo los asignados a los diferentes Departamentos o Direcciones que tengan que circular en días y horas no hábiles, deberán portar una autorización escrita de la Presidencia Ejecutiva , Gerencia, Dirección Administrativa, Jefe de Servicios Generales o Jefe de Sección Transportes.
+Cuando se trate de Direcciones u Oficinas Regionales. la autorización la brindará el Director Regional o el Jefe Subregional correspondiente.
+Dicha autorización se extenderá solamente en casos especiales que lo ameriten, ya sea por fuerza mayor o para desarrollar una función específica de la institución.

@@ -1,0 +1,2 @@
+Artículo XX.—Los conductores o chóferes no podrán ceder en ningún momento la conducción del vehículo al usuario del servicio, salvo en casos de fuerza mayor. Si se presentare esta situación, el conductor o chofer deberá explicar, a su regreso, las razones que lo indujeron a ceder la conducción del vehículo, de lo contrario se hará acreedor a las sanciones correspondientes,
+El funcionario que acepte asumir la conducción de un vehículo debe acatar las disposiciones establecidas en el presente Reglamento.

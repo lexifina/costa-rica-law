@@ -1,0 +1,2 @@
+ARTICULO XI.—Para lograr el mejor aprovechamiento de los vehículos disponibles, la Sección Transportes coordinará la salida de los mismos de tal forma que se procure cuando sea factible que una misma unidad pueda ser utilizada por diferentes personas o Departamentos interesados en visitar un mismo sitio o región.
+El mismo principio debería seguir los Directores y Jefes regionales, tanto para las giras en sus regiones como para las visitas a Oficinas Centrales.

@@ -1,0 +1,3 @@
+CAPITULO V
+De los conductores.
+Artículo XIX.—La conducción de los vehículos estará a cargo del personal autorizado por el Instituto; sin embargo, en casos justificados y a falta de personal especializado para desempeñar esas labores, el Jefe de la Sección Transportes , Jefe Servicios Generales o el Jefe Regional, podrán autorizar a funcionarios que no estén nombrados como conductores, para que conduzcan los vehículos, siempre y cuando porten licencia al día y acaten las disposiciones contempladas en el presente reglamento. Esto es aplicable a las dependencias de oficinas centrales que tengan vehículos asignados, en cuyo caso la autorización deberá ser otorgada por y baja responsabilidad del Jefe.

@@ -1,0 +1,1 @@
+Artículo XXII.- Los chóferes deben guardar la más absoluta confidencialidad sobre los asuntos tratados durante las giras; la violación de esta disposición los puede hacer acreedores a las sanciones legales y reglamentarias correspondientes.

@@ -1,0 +1,2 @@
+Artículo XVIII.— La Sección Transportes o la Oficina encargada, deberá investigar todo accidente de tránsito en que partícipe un vehículo a su cargo y posteriormente lo comunicará al Departamento de Recursos Humanos para que este ordene la investigación por medio de la Sección Desarrollo de Personal.
+Una vez concluida la investigación, se remitirá el resultado correspondiente a la Junta de Relaciones Laborales para que lo conozca, analice y recomiende la sanción o la absolución según sea el caso.

@@ -1,0 +1,1 @@
+ARTICULO XIII— La Sección Transportes llevará un detalle individual del mantenimiento, repuestos y combustibles consumidos por vehículo. Lo mismo deberán hacer las Direcciones y Oficinas Regionales con los automotores a su cargo. Este control incluye la maquinaria agrícola y de construcción rodante, así como grúas, montacargas, dragas, pangas, etc.

@@ -1,0 +1,1 @@
+ARTICULO IX.—Para servicios oficiales dentro del Área Metropolitana, la Sección Transportes mantendrá uno o más vehículos disponibles, los cuales deberán solicitarse mediante boleta que será debidamente autorizada por el Jefe del Departamento o aquel que lo sustituye.

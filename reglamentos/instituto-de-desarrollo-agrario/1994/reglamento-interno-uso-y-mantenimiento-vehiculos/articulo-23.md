@@ -1,0 +1,2 @@
+Artículo XXIII.—Todo chofer o funcionario autorizado para conducir será responsable de la custodia, conservación y mantenimiento del vehículo que se le asigne para cumplir su trabajo. Salvo caso fortuito o fuerza mayor, cualquier daño en él debe ser debidamente justificado.
+Es obligación del Jefe de Sección Transportes, del Director Regional o Jefe Subregional correspondiente, verificar que el vehículo que se asigna a un funcionario se encuentre con todas las herramientas e implementos destinados al mismo y en buenas condiciones de funcionamiento.

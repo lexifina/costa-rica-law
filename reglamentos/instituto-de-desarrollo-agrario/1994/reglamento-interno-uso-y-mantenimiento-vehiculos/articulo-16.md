@@ -1,0 +1,2 @@
+Artículo XVI.—En caso de accidentes con vehículos oficiales, se prohíbe al conductor o chofer efectuar arreglos extrajudiciales. Cuando se presentare una situación como la indicada, la persona se debe remitir a la Sección Transportes para que realice las gestiones pertinentes.
+Queda igualmente prohibido realizar la reparación del vehículo sin el consentimiento y conocimiento por parte de la Sección Transportes y del Instituto Nacional de Seguros.

@@ -1,0 +1,5 @@
+ARTICULO IV.—Los vehículos del Instituto se clasifican de la siguiente forma:
+a) Uso discrecional.
+b) Uso administrativo general. Se consideran vehículos de uso discrecional los asignados al Presidente Ejecutivo, Gerente y Auditor General.
+Estos vehículos no tendrán restricciones en cuanto a combustible, horario de operación ni recorrido, características que asumirá bajo su estricto criterio el funcionario responsable de la unidad. Estos vehículos pueden portar placas particulares y no están obligados a utilizar los distintivos que los identifican como vehículos oficiales.
+Aparte de los vehículos anteriores, y al tenor de lo dispuesto por el artículo 226 de la ley de tránsito vigente, todos los demás vehículos son de uso administrativo general y están destinados a atender las necesidades que surjan con ocasión de las labores que a su cargo tienen las distintas dependencias de esta administración. Estos vehículos deben usar los distintivos de la institución y deben cumplir con los controles y requerimientos establecidos en el presente Reglamento, la Ley de Tránsito y su Reglamento.
