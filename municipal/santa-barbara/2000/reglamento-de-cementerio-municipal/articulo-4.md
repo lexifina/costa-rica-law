@@ -1,0 +1,1 @@
+Articulo 4°—El nombramiento de la Junte deberá hacerse por el periodo de un año, pudiendo ser reelectos y desempeñaran el cargo ad honórem. El Consejo podrá revocar los nombramientos por dos terceras partes, cuando el caso lo amerite y después de un estudio por parte de una comisión.

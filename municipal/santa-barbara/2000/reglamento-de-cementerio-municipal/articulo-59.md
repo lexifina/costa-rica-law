@@ -1,0 +1,1 @@
+Articulo 59.—No obstante en lo dispuesto en el articulo anterior, cuando un número mayor de cinco propietarios desee presentar un asunto de relevante importancia para el cementerio, la Comisión fijará hora y fecha de común acuerdo con los interesados, para que estos expongan sus inquietudes.

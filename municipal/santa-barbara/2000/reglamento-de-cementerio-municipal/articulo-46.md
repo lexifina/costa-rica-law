@@ -1,0 +1,2 @@
+Articulo 46.—Las exhumaciones ordinarias a solicitud de los interesados se realizarán en presencia del encargado del cementerio. Las que estuvieren motivadas por el interés de la Junta , con el fin de ocupar un espacio en el que hubieren transcurrido cinco años desde la última inhumación requerirán la presencia de un representante de dicha Junta y de la previa notificación a algún familiar del difunto.
+En ambos casos deberá levantarse en un acta cuya fórmula dispondrá y suministrara la Junta.

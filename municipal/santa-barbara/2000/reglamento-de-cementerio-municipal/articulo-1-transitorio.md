@@ -1,0 +1,16 @@
+Transitorio I.- Se eliminan los derechos triples, sin embargo los existentes con anterioridad a la publicación de este Reglamento deberán ajustarse al mismo y cancelar una Tarifa de 30 mil colones. Una vez agotado el plazo de vigencia de los derechos triples no se volverá a renovar el convenio con los mismos.
+MUNICIPALIDAD DE SANIA BARBARA
+CONTRATO DE ARRENDAMIENTO
+Nosotros,………………………………………………………………………………………………………
+(Nombre del Alcalde Municipal y calidades de Ley)
+en carácter de Alcalde Municipal del cantón de ……………………………………………………………
+según acuerdo número…………………………………de la sesión…………………….........................
+celebrada por el Consejo Municipal de..................................................... publicado en La Gaceta No.. ............. del……………………. del año.............................. y………………………………………….
+(Nombre y calidades de Ley, del Arrendatario)
+hemos convenido en celebrar un contrato de arrendamiento de un lote en el Cementerio Municipal de esta Ciudad, que se describe así: Parcela No......... ubicada en el sector..................................... cuyas dimensiones son las siguientes:
+LARGO……………….................... ANCHO.....................................METROS…………………………..
+ÁREA ........................ m2…………………………….la cual fue cancelada según recibo N°...................... de fecha................................ espedido por la Tesorería Municipal en la suma de……………………………………………….colones sin céntimos y hasta por un termino de............años. El presente contrato se rige por el Reglamento General de Cementerios, sus reformas y por todas las leyes y reglamentos relacionados en la materia. Para constancia firmamos este convenio en original y ………………………………………………copias, en la ciudad de ………………………………………..a las horas y ....................... minutos del día .......................... del año…………………………
+………………………………………. ………………………………………
+Designatario Nombre
+Cédula: Cédula:
+Santa Bárbara de Heredia, 29 de agosto del 2000.

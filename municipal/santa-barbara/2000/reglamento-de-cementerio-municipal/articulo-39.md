@@ -1,0 +1,1 @@
+Artículo 39.—La presentación de la Orden de Inhumación deberá hacerse por lo menos con dos horas de anticipación de la misma, con el fin de determinar el sitio exacto v la ausencia de restos con menos de cinco años de inhumados.

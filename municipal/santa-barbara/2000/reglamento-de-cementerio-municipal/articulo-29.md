@@ -1,0 +1,1 @@
+Articulo 29.—Toda solicitud que se haga a la Junta (derechos, permisos de construcción, reparaciones, demoliciones, etc.), deberá llevar el nombre completo del dueño del nicho, el motivo de la solicitud y en los casos de construcción, reparaciones, demoliciones deberá el interesado indicar el nombre de la persona encargada de hacer los trabajos.

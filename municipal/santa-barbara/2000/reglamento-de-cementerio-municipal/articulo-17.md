@@ -1,0 +1,1 @@
+Artículo 17.—Todo arrendatario de derecho se compromete en el acto mismo de adquisición al pago de la cuota anual de mantenimiento, la cual será fijada y revisada periódicamente por la Junta , conforme con el articulo 11 del Reglamento General de Cementerios; cualquier omisión en el pago de esta cuota constituirá gravamen sobre el derecho respectivo.

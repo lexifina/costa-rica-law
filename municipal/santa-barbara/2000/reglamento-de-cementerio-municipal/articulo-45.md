@@ -1,0 +1,3 @@
+CAPÍTULO X
+De las exhumaciones
+Articulo 45.—Las exhumaciones se distinguen en ordinarias y en Ira ordinarias. Las primeras tienen lugar cuando, cumplidos cinco años de haber sido hecha la inhumación y destruidas las partes blandas del cadáver, o expirado el plazo de arrendamiento si se tratare de sepultura privada, se excaven de nuevo las losas para dar lugar a nuevas inhumaciones. Las segundas, cuando los cadáveres sean desenterrados por orden de la autoridad judicial para investigaciones de interés de la justicia o con permiso del Jefe de Sanidad y del Ministerio de Salud, para ser trasladados a otras sepulturas o para ser incinerados.

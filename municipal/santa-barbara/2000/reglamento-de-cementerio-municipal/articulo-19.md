@@ -1,0 +1,1 @@
+Articulo 19.—Los derechos sobre lotes sencillos. tendrán una dimensión de 1,20 metros , de frente por 2,5 metros de fundo, y los derechos sobre los lotes dobles tendrán una dimensión de 2 metros de frente por 2,5 metros de fondo. Los derechos triples tendrán una dimensión de 3 metros de frente por 2,5 metros de fondo.

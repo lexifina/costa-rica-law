@@ -1,0 +1,1 @@
+Articulo 34.—Vencido el período de arrendamiento la Municipalidad quedará facultada para Exhumar y Trasladar al Osario General los restos contenidos en el respectivo nicho. La Municipalidad deberá notificar a los respectivos dolientes.

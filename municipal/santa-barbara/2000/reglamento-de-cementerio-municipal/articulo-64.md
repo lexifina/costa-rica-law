@@ -1,0 +1,1 @@
+Artículo 64.—Dentro del Cementerio no se permitirá el uso de ningún instrumento musical. Asimismo, es prohibido utilizar aparatos que trasmitan música o cualquier clase de sonido. Cuando la importancia de algún acto lo amerite y previo permiso de la Comisión , podrá permitirse la música religiosa tipo clásico.

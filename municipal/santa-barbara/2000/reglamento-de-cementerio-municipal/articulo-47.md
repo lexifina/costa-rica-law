@@ -1,0 +1,1 @@
+Articulo 47.—Para lodos los efectos de exhumación, se considerarán como interesados en derecho ante la Comisión , los parientes, pero en caso de conflicto con el propietario de la bóveda que contuviere los restos, sus derechos deberán definirse por mandamiento judicial.

@@ -1,0 +1,1 @@
+Articulo 61.— La Junta , miembros y funcionarios no incurrirán responsabilidad si mediante la actuación dolosa de un particular se efectúe traspaso, inhumación, exhumación o traslado de restos, contrario a lo dispuesto en este Reglamento o por las leyes que regulen la materia, siempre que tal actuación no haya sido de su conocimiento.

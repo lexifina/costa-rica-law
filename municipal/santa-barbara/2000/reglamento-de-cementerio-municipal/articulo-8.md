@@ -1,0 +1,1 @@
+Articulo 8°—El Presidente de la Junta tendrá las siguientes facultades, dirigir las sesiones, convocar a sesiones extraordinarias, firmar conjuntamente con el secretario las actas de las sesiones, firmar contratos o compromisos que la Junta contrajere.

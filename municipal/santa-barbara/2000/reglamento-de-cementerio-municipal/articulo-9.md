@@ -1,0 +1,1 @@
+Artículo 9°—Las ausencias del Presidente serán suplidas por el Vicepresidente, en ausencia de este se seguirá el orden especifico según el nombramiento de los vocales. Dejara de ser miembro de la Junta el que fallare a tres sesiones consecutivas sin causa justificada, decisión que tomará la Junta Administradora del Cementerio.
