@@ -1,0 +1,1 @@
+Artículo 13.—No se permitirá el cambio de cheques personales y de contribuyentes con fondos de Caja Chica, ni se permitirán préstamos como pueden ser vales a favor de un funcionario municipal, con cargo a la planilla municipal, ni de otra índole.

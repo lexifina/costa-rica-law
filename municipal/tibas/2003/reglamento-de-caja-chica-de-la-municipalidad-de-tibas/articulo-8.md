@@ -1,0 +1,1 @@
+Artículo 8º—La correcta utilización del fondo de Caja Chica está a cargo de la Jefatura de Tesorería Municipal, quien es responsable de la aplicación de las normas que rigen para su debido funcionamiento.

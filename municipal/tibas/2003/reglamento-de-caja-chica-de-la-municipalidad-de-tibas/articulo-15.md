@@ -1,0 +1,1 @@
+Artículo 15.—El fraccionamiento del pago por un bien o servicio para tramitarlo por Caja Chica, así como cualquier otra infracción al presente Reglamento será motivo de sanción conforme a las disposiciones contenidas en el Reglamento de Organización y Servicio de la Municipalidad y Leyes conexas.
