@@ -14,3 +14,4 @@ Reglamento de Avalúos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-10-14 | la propia norma |
+| 2 | 1997-01-15 | Reglamento 4665 (1997-01-15) |
