@@ -1,0 +1,2 @@
+Transitorio III.- En el plazo de seis meses a partir de la vigencia de la presente ley, la Dirección General de Adaptación Social del Ministerio de Justicia y Gracia elaborará un registro de las instituciones y los establecimientos de bien público o utilidad comunitaria, para efectos de la aplicación de lo preceptuado en los artículos 88 y 97 de la presente ley.
+(Así adicionado por el artículo 1° aparte d) de la ley N° 7957 del 17 de diciembre de 1999)
