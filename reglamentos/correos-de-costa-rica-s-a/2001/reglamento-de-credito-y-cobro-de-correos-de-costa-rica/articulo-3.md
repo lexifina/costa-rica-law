@@ -1,0 +1,1 @@
+Artículo 3º—Las condiciones términos y requisitos propios de las operaciones de crédito tales como: plazos, tasas de interés, garantías y otras condiciones generales y especiales establecidas en el presente Reglamento, podrán ser modificadas por la Junta Directiva, previa recomendación de la Gerencia General, según sea el caso.

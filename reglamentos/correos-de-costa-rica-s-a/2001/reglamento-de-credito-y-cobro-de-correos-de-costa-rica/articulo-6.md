@@ -1,0 +1,1 @@
+Artículo 6º—El cliente deberá cancelar las facturas de crédito a su nombre dentro de un plazo de 30 días naturales para las empresas privadas, públicas e instituciones autónomas y semiautónomas y 90 días naturales para el Gobierno Central, contados a partir de la fecha de emisión de la factura. Una vez vencidos dichos plazos, se procederá al cobro de intereses moratorios.
