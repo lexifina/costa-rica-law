@@ -13,3 +13,4 @@ Programa Integral de atención a familias costarricenses de ingresos mínimos, s
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-17 | la propia norma |
+| 2 | 2002-12-12 | Reglamento 82 (2002-12-12) |

@@ -30,7 +30,8 @@ Aprobación de beneficiarios:
 Los beneficiarios a este Programa serán presentados por las Unidades Ejecutoras del Programa, con la certificación documental de todos los requisitos antes señalados, a la Comisión establecida por la Junta del BANHVI, para Casos de Emergencia, Erradicación de Tugurios y Casos de Extrema Necesidad. Esta Comisión analizará los casos sometidos a su consideración y verterá el criterio del caso de acuerdo a las normas aprobadas para su funcionamiento por la Junta Directiva del Banco.
 Costos de ejecución:
 A efecto de establecer políticas claras en la Administración de este Programa se establecen los siguientes costos de ejecución:
-7.1 Certificación de profesional en Trabajo Social, relativa a la existencia del núcleo familiar y calificación de pobreza, extrema necesidad, precariedad o emergencia, incluyendo el expediente completo que exige el BANHVI. Hasta por Ë 15.000 por caso.
+7.1 Elaboración y digitación de la ficha de imagen (FIS) del Sistema de Información de la Población Objetivo (SIPO) administrado por el IMAS, o actualización de la misma en caso de que ya exista: Hasta (¢ 5.000,00 por caso).
+(Así reformado en sesión N° 1 de 10 de enero de 2001)
 7 .2 Avalúo y certificación, por profesional debidamente incorporado al C.F.I.A., de que cada lote urbanizado cumple a satisfacción con los requisitos de infraestructura y otros exigidos: Hasta por c5.000.00 por caso.
 7.3 Escritura debidamente inscrita en Registro Publico: Hasta por ¢10.000 por caso.
 7.4 Trámite de cada Unidad Ejecutora por trámite completo de compra de lote:
