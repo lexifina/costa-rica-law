@@ -1,1 +1,0 @@
-rtículo 5°—Los permisos o concesiones para la extracción de corteza de mangle se otorgarán en forma anual debiendo la Dirección General Forestal identificar el área y los árboles que serán aprovechados. Asimismo, los árboles que queden volteados y descortezados podrán ser aprovechados, previo permiso de la Dirección Forestal.

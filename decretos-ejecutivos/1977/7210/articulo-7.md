@@ -1,2 +1,0 @@
-Artículo 7°—No se otorgarán permisos para la extracción de puntales, leña y carbón con fines comerciales, salvo en los casos de manejo integral del recurso, siempre y cuando se garantice la persistencia del mismo.
-Asimismo, queda totalmente prohibida cualquier actividad que vaya orientada a interrumpir el crecimiento normal del manglar como la construcción de diques que eviten el flujo de las mareas y eventualmente la eliminación del mismo.

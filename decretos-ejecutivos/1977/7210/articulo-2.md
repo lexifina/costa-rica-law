@@ -1,1 +1,0 @@
-Artículo 2°—La administración de esta reserva estará a cargo de la Dirección General Forestal, la cual otorgará los respectivos permisos o concesiones para el aprovechamiento de mangle; los aprovechamientos de fauna marina estarán s. cargo de la Dirección General de Recursos Pesqueros y Acuacultura, debiéndose velar en ambos casos por la conservación de fauna silvestre y marina.
