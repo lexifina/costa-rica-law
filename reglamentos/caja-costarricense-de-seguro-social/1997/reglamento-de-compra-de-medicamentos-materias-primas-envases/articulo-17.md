@@ -1,1 +1,2 @@
-Artículo 17.- Para efectos de reinscripción el interesado debe aportar además de cumplir con lo establecido en articulo 7 incisos de la "a'" a la "p" y artículo 12 relativo a las muestras; los poderes, representación y en su caso las nuevas condiciones en que está en capacidad de ofrecer los productos, con todos los requisitos exigidos para la solicitud inicial de inscripción.
+Artículo 17.-
+(Así derogado total y expresamente por el Reglamento No. 7468 de 10 de agosto de 2000)

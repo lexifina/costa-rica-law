@@ -1,8 +1,5 @@
-Artículo: 2 °—Para los efectos del presente reglamento se entenderá por:
-La Caja: Caja Costarricense del Seguro Social.
-Registro de Oferentes: Archivo de la Caja donde constan los nombres y otros datos, de las personas físicas o jurídicas aceptadas por la Caja como proveedores de los productos enunciados en el artículo primero.
-Laboratorio de Control de Calidad: Laboratorio de Control de Calidad de Medicamentos de la Caja.
-Ficha Técnica: documento que incluye las especificaciones técnicas o analíticas de los productos del Catálogo General de Suministros de la Caja.
-Envase o Empaque Primario: se refiere al que está en contacto directo con el producto.
-Empaque Secundario: aquél que contiene uno o más empaques primarios.
-Empaque Terciario: aquél que contiene uno o más empaques secundarios.
+Artículo: 2 °—Para efectos del presente Reglamento se entenderá por:
+La caja: Caja Costarricense de Seguro Social
+Registro de oferentes: Archivo de la Caja donde constan los nombre y otros datos, de las personas físicas o jurídicas aceptadas por la Caja como proveedores de los productos enunciados en el artículo primero.
+Laboratorio de control de calidad: Laboratorio de Normas y Calidad de Medicamentos de la Caja.
+(Así reformado parcial y expresamente por el Reglamento No. 7468 de 10 de agosto de 2000)

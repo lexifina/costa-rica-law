@@ -17,3 +17,4 @@ Reglamento de Compra de Medicamentos, Materias Primas, Envases, Empaques y React
 | 2 | 1998-02-05 | Reglamento 0 (1998-02-05) |
 | 3 | 1998-02-24 | Reglamento 7203 (1998-02-24) |
 | 4 | 2000-05-11 | Reglamento 7441 (2000-05-11) |
+| 5 | 2000-08-10 | Reglamento 7468 (2000-08-10) |

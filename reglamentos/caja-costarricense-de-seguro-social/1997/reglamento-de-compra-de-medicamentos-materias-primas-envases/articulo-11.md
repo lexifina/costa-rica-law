@@ -1,1 +1,2 @@
-Artículo 11.—Las solicitudes de inscripción deben acompañarse de muestras según cantidades establecidas en el artículo 12 y de 200 mg como mínimo de sustancia patrón de los principios activos y 50 mg de sustancias relacionadas. Las muestras deberán ser originales, tener una vida útil no menor de dos terceras partes de la establecida por el laboratorio fabricante. Estas no serán devueltas.
+Artículo 11.—
+(Así derogado total y expresamente por el Reglamento No. 7468 de 10 de agosto de 2000)

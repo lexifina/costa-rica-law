@@ -11,6 +11,7 @@ EMPAQUE INTERIOR
 • Cantidad
 • Instrucciones de manejo y almacenamiento.
 35.3. Los empaques primarios y secundarios deberán indicar el contenido y ser estrictamente fieles a lo contratado.
-35.4. Las etiquetas de toda mercadería deben ser en idioma español con las condiciones requeridas para cada caso y con la leyenda de "Propiedad de la C.C.S.S.", o logotipo de "Propiedad de La Caja" en forma visible.
+35.4. La identificación de todo producto se definirá de acuerdo a las condiciones requeridas para cada caso, según se establezca en la ficha técnica.
 35.5. Todos los envases y empaques de los medicamentos, deben ser fácilmente diferenciables, a simple vista, mediante las normas que al efecto establezca la Caja.
 35.6. Cuando se trate de las reposiciones por reclamos, fallantes y otros motivos, debe indicarse claramente esa condición en los documentos correspondientes y de ser posible en los empaques exteriores.
+(Así reformado parcial y expresamente por el Reglamento No. 7468 de 10 de agosto de 2000)

@@ -1,2 +1,2 @@
-Artículo 22.—La administración procederá a adjudicar o declarar desierto el concurso dentro de los treinta días naturales, a partir del acto de apertura, para la compra de medicamentos y sus materias primas.
-(Así reformado total y expresamente por el Reglamento No. 7441 de 18 de mayo de 2000)
+Artículo 22.—La administración procederá a adjudicar o declarar desierta el concurso dentro de los 30 (treinta) días hábiles a partir del acto de apertura para la compra de medicamentos y sus materias primas. En los demás casos se regirá según se establezca en cada cartel.
+(Así reformado parcial y expresamente por el Reglamento No. 7468 de 10 de agosto de 2000)
