@@ -8,8 +8,8 @@ Considerando:
 3”—Que según estudios realizados por el Ministerio de Recursos Naturales, Energía y Minas con los bonos emitidos a este efecto, es posible adquirir aproximadamente mil hectáreas de terrenos de particulares existentes en esa zona.
 4°—Que es fundamental proteger adecuadamente esa zona, fijando medidas adecuadas. Por tanto,
 DECRETAN:
-Artículo 1°—Créase el *Bosque Nacional Diriá, demarcado en las hojas cartográficas del Instituto Geográfico Nacional, escala 1:50.000 Diriá y Cerro Brujo con la siguiente descripción:
-(*NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 22003 del 8 de febrero de 1993, el Bosque Nacional Diriá será considerado como "Zona Protectora", y en su artículo 2° establece que en lo que respecta a la categoría de manejo se mantienen los límites establecidos mediante decretos ejecutivos N° 20517del 5 de junio de 1991 y N° 21221 del 3 de marzo de 1992)
+Artículo 1°—Créase el *Refugio Nacional de Vida Silvestre Bosque Nacional Diriá, demarcado en las hojas cartográficas del Instituto Geográfico Nacional, escala 1:50.000 Diriá y Cerro Brujo con la siguiente descripción:
+(*NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 22731 del 19 de noviembre de 1993, se cambia la categoría de manejo de Bosque Nacional Diriá a "Refugio Nacional de Vida Silvestre Bosque Nacional Diriá en la clase de propiedad mixta")
 SECTOR A: partiendo de un punto ubicado en la margen derecha del Río Tigre, en coordenadas N243.100 v E366.680, continúa aguas arriba hasta un punto en coordenadas N 242.000 y E 367.800.
 De aquí, continuar por una serie de puntos cuyas coordenadas se describen a continuación:
 N 242.180 E 368.580
