@@ -1,0 +1,1 @@
+Artículo 3° Se autoriza al Poder Ejecutivo a usar en la o las licitaciones necesarias para esta carretera, el sistema de Precalificación de Contratista, o sea que en las respectivas limitaciones solo podrán participar las empresas que hayan sido calificadas previamente por el Ministerio de Transporte.
