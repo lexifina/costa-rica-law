@@ -14,3 +14,4 @@ Reforma Reglamento General de Crédito.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-02-03 | la propia norma |
+| 2 | 1997-02-03 | Reglamento 3286 (1996-12-03) |

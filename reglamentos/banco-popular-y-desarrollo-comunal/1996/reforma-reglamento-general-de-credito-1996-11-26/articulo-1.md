@@ -2,13 +2,14 @@ BANCO POPULAR Y DE DESARROLLO COMUNAL
 La Junta Directiva Nacional del Banco Popular y de Desarrollo comunal, en Sesión extraordinaria Nº 3285, celebrada el 26 de noviembre de 1996, acordó por mayoría, modificar el artículo 24 del Reglamento General de Crédito, el Capítulo VI Crédito, por medio de Banca de Segundo Piso y la Tabla de condiciones variables por montos, tasas de interés y plazos para las diferentes líneas de crédito en su punto J) para que se lean así:
 1. Artículo 24 del Reglamento General de Crédito.
 "La documentación contable y financiera que se presente, deberá expedirla un profesional legalmente autorizado al efecto.
-A) En el caso de personas jurídicas, sus estados financieros se acreditarán de la siguiente manera:
-a) Para créditos iguales o inferiores a ó ¢ 500.000,00 no será necesario justificarlos o auditarlos, para lo que será suficiente una constancia expedida por un contador privado incorporado, una certificación de la última declaración del Impuesto sobre la Renta o declaración jurada ante el notario público.
+A) En caso de personas jurídicas, sus estados financieros se acreditarán de la siguiente manera:
+a) Para créditos iguales o inferiores a ¢ 500.000,00 no será necesario certificarlos o auditarlos, para lo que será suficiente una constancia expedida por un contador privado incorporado, una certificación de la última declaración del impuesto sobre la I Renta.
 b) Para créditos superiores a ¢500.000,00 y hasta ¢15.000.000,00 mediante certificación expedida por el profesional legalmente autorizado.
 c) Para créditos planteados por las organizaciones sociales reguladas en la Sección F del capítulo III del presente Reglamento que sirvan de enlace o puente para desarrollar un proyecto de vivienda de sus afiliados cualquiera que sea el monto solicitado mediante certificación expedida por un profesional legalmente autorizado.
 d) Para créditos superiores a ¢ 15.000.000,00 deben ser auditados. Sin embargo podrán aceptarse estados financieros únicamente certificados, para períodos inferiores a seis meses contados desde la finalización del período fiscal. Los estados financieros no deberán tener pérdidas operativas. No obstante queda a criterio del nivel resolutivo correspondiente, valorar el origen de las pérdidas, a efecto de que se acepten estados financieros que muestren pérdidas, siempre que ello no implique un riesgo para el Banco. Lo dispuesto en el presente párrafo no es aplicable a los créditos indicados en el inciso c) anterior.
 B) En el caso de personas físicas, en cuanto a sus ingresos propios, éstos se acreditarán de la siguiente manera:
-a) Para créditos iguales o inferiores a ¢ 500.000,00 no será necesario certificarlos o auditarlos, para lo que será suficiente una constancia expedida por un contador privado incorporado, una certificación de la última declaración del impuesto sobre la Renta o declaración jurada ante el notario público.
+a) Para créditos iguales o inferiores a ¢ 500.000,00 no será necesario certificarlos o auditarlos, para lo que será suficiente una constancia expedida por un contador privado incorporado, una certificación de la última declaración del impuesto sobre la Renta.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE los puntos A) inciso a) y del B) inciso a) por la Sesión N° 3286 de 03 de diciembre de 1996, publicada en La Gaceta N° 23 de 03 de febrero de 1997.)
 b) Para créditos superiores a ¢ 500.000,00 mediante certificación expedida por un profesional legalmente autorizado.
 2. CAPITULO VI
 Crédito por medio de Banca de Segundo Piso
