@@ -1,0 +1,1 @@
+Artículo 4º—Jurisdicción en caso de conflicto. Autorízase el sometimiento del Prestatario -Banco Central de Costa Rica- a las leyes del estado de Nueva York y a la jurisdicción de los tribunales de Nueva York, ante cualquier diferendo que surja con ocasión de la ejecución y el cumplimiento del contrato.

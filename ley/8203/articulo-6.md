@@ -1,0 +1,1 @@
+Artículo 6º—Exoneraciones. Quedarán exentos del pago de impuestos, tasas, contribuciones o derechos, los actos requeridos para formalizar el convenio, así como las operaciones que se realicen con los recursos obtenidos.
