@@ -1,0 +1,1 @@
+Artículo 2°-Cuando el surtidor cuente con un buen historial de acuerdo con el procedimiento que establezca el Ministerio de Economía, Industria y Comercio por medio de la Oficina Nacional de Normas y Unidades de Medida se hará acreedora de un sello que para tal efecto diseñará y regulará el Ministerio de Economía, Industria y Comercio.
