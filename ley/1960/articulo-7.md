@@ -1,0 +1,1 @@
+Artículo 7º.- El Banco Central de Costa Rica tendrá derecho a requerir de las entidades oficiales o privadas con domicilio en el territorio de la República, todos los datos e informaciones necesarias para sus negociaciones con la Corporación Financiera Internacional.

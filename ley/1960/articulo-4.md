@@ -1,0 +1,1 @@
+Artículo 4º.- Se autoriza al Banco Central de Costa Rica para suscribir las acciones que le corresponden a nuestro país en la Corporación Financiera Internacional y efectuar el pago de conformidad con el Convenio.
