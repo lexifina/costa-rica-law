@@ -1,0 +1,1 @@
+Artículo 20.—El sistema de clasificación que utilizara la Municipalidad estará basado en la estructura orgánica y podrá ser complementado con el sistema por asuntos, para tener expedientes sobre temas específicos.

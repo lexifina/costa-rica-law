@@ -1,0 +1,1 @@
+Artículo 30.—Salida de documentos. El responsable del archivo podrá autorizar la salida de documentos para ser reproducidos fuera de la instalaciones, cuando no cuente con equipo requerido para ello. En todo caso la documentación saldrá bajo custodia de un funcionario municipal.

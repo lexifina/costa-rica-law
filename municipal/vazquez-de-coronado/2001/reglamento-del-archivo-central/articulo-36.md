@@ -1,0 +1,1 @@
+Artículo 36.—Obligación de revisar la documentación devueltas. Los expedientes o documentos devueltos al Archivo, serán revisados por el personal de éste para constatar el estado antes de entregar al prestatario el "Recibo de Préstamo de Documentos", cancelado.

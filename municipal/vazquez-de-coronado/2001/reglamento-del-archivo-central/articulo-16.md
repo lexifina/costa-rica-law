@@ -1,0 +1,2 @@
+Artículo 16.—Tablas de plazos. Cada dependencia administrativa además de observar y respetar las medidas de preservación y seguridad a que se refiere el artículo 9°, deberá elaborar con el asesoramiento del Archivo Central una tabla de plazos de conservación de sus documentos en el Archivo de Gestión, en la que se especificará como mínimo, el tiempo de permanencia de los documentos en la oficina productora( mínimo dos
+años), su valor científico cultural y descripción de la documentación con carácter permanente.

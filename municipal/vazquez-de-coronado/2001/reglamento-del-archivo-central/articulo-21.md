@@ -1,0 +1,1 @@
+Artículo 21.—El Archivista asesorará a los encargados de los archivos de gestión o secretarias, sobre el "Plan General de Clasificación" , que el mismo encargado del Archivo Central confeccionará. Los encargados de los archivos de Gestión deben velar porque se realicen todos los procesos o lineamientos archivísticos que establezca el Archivo Central.

@@ -1,0 +1,1 @@
+Artículo 35.—Plazo para el préstamo de documentos. El préstamo de documentos no podrá exceder el plazo de ocho días hábiles, salvo en caso de excepción debidamente acreditados y autorizados por el responsable del Archivo.

@@ -1,0 +1,2 @@
+Artículo 13.—La transferencia de una etapa a otra se hará en estricto orden, la documentación será acompañada de la respectiva lista de remisión por triplicado debidamente organizados, numerados y descritos.
+Una copia se devolverá como recibido a la oficina que le corresponde, otra copia se incorporará al Registro por oficina. La original formará parte del Registro General de Ingresos. El archivista instruirá a las personas que realicen la remisión de documentos.

@@ -1,0 +1,1 @@
+Artículo 44.—Acuerdos del Comité. Los acuerdos del comité se tomarán por consejo de mayoría, debiendo levantarse una minuta de los mismos en cada reunión. El acuerdo tomado se comunicará a la unidad productora de la documentación que se trate.

@@ -1,0 +1,1 @@
+Artículo 29.—Retiro temporal de documentos. El responsable de Archivo, podrá retirar temporalmente o en forma permanente de 1 consulta del público los documentos cuyo deterioro sea evidente procurando rehabilitar su acceso lo antes posible, cuando sea transitorio cuando no, se procederá a utilizar algún medio de reproducción par ponerla al servicio del usuario.

@@ -1,0 +1,1 @@
+Artículo 38.—Remoción de funcionarios. Los funcionarios que sean removidos en sus puestos, deberán devolver al Archivo todo documento que haya solicitado cinco días hábiles antes de su cese de cambio de dependencia como máximo.

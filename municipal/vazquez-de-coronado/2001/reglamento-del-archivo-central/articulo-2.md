@@ -1,0 +1,1 @@
+Artículo 2°—El Archivo Central es la oficina encargada de velar por el cumplimiento de las normas archivísticas para toda la documentación producida y recibida en función de las actividades municipales.

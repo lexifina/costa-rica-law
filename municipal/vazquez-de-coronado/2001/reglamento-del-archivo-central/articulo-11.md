@@ -1,0 +1,4 @@
+CAPÍTULO V
+Del patrimonio documental y material informativo de la Municipalidad
+Artículo 11.—Definición. Patrimonio documental y material informativo de la Municipalidad, se considera todo documento recibido o producido por la Institución en el cumplimiento de sus funciones, independientemente de su formato o soporte en el que esté contenido, así como toda la producción intelectual elaborada por sus funcionarios en el cumplimiento de sus responsabilidades y toda literatura que les sea entregada en seminarios, talleres, simposios y otros a los que asisten funcionarios de la Municipalidad.
+Cualquiera de los documentos citados y aquellos que en su defecto establezca el comité Institucional de Selección y Eliminación de Documentos como Título o valor de propiedad de la Municipalidad que sea necesario conservar.
