@@ -14,3 +14,4 @@ Regula venta de soluciones anestésicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1962-07-21 | la propia norma |
+| 2 | 1962-08-09 | Decreto Ejecutivo 11 (1962-08-09) |
