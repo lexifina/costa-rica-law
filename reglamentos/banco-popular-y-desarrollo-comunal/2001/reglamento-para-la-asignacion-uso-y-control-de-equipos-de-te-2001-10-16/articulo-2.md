@@ -1,1 +1,0 @@
-Artículo 2°—Del objeto: Este Reglamento es de acatamiento obligatorio para todos los funcionarios de la Institución y tiene como objeto fundamental regular y controlar la asignación y uso de los equipos de telefonía móvil (teléfonos celulares) con sus respectivos accesorios y línea telefónica.

@@ -1,1 +1,0 @@
-Artículo 4°—De los funcionarios sujetos a la asignación: La asignación de equipos de telefonía móvil propiedad del Banco Popular, estará restringida a los funcionarios que, de acuerdo con su jerarquía o responsabilidad dentro de la estructura orgánica del Banco, requieren la utilización del equipo, debido al constante y exclusivo contacto que deben tener con la Institución.
