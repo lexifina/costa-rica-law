@@ -13,3 +13,4 @@ Sobre plazos de prisión preventiva y traslado de sentenciados al Instituto Naci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-14 | la propia norma |
+| 2 | 2005-02-17 | Circular 19 (2005-02-17) |
