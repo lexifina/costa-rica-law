@@ -1,0 +1,1 @@
+Artículo 2°—Los contribuyentes deberán mantener dentro de sus locales comerciales colocado en un lugar visible la copia de este formulario debidamente sellada como recibida por parte de la Administración Tributaria.

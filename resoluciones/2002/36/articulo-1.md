@@ -1,0 +1,10 @@
+N° 36.—San José, a las ocho horas del día veintiocho de agosto del dos mil dos.
+Considerando:
+1°—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria para dictar normas generales tendientes a la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+2°—Que el artículo 6° de la Ley N° 6826 Ley General del Impuesto sobre las Ventas de 8 de noviembre de 1982 y sus reformas, y el artículo 12 de su Reglamento, establecen que la Administración Tributaria debe extender, a las personas inscritas como contribuyentes de este impuesto, una constancia que las acredite como tales, la cual deben mantener en un lugar visible de sus establecimientos comerciales.
+3°—Que mediante la resolución N° 9/97 la Dirección General de Tributación estableció que los contribuyentes, responsables o declarantes de los diferentes tributos deberían cumplir con sus obligaciones tributarias únicamente en los formularios autorizados por ésta.
+4°—Que como parte de dicha resolución se encuentra el anexo 13, correspondiente al formulario D.140 "Declaración de Inscripción, Modificación de datos y Desinscripción- Registro Único de Contribuyentes".
+5°—Que es imperativo procurar la agilización y simplificación de los procedimientos tributarios en aras de la modernización de la Administración Tributaria, y la protección de los intereses fiscales, así como la facilitación del cumplimiento de las obligaciones tributarias al contribuyente.
+6°—Y asimismo, procurando ser congruente con la Ley N° 8220 de 4 de marzo de 2002, publicada en el Alcance N° 22 a La Gaceta N° 49, "De Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos". Por tanto,
+RESUELVE:
+Artículo 1°—Aceptar el uso del formulario D-140 "Declaración de Inscripción, Modificación de datos y Desinscripción- Registro Único de Contribuyentes" como la constancia de inscripción que se regula en el artículo 6° de la Ley del Impuesto sobre las Ventas y el artículo 12 de su Reglamento.
