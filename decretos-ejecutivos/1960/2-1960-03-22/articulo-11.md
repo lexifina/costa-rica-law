@@ -1,1 +1,0 @@
-Artículo 11. —Tratándose de carreteras aún no terminadas, o en el caso de que en alguna de ellas existan puentes provisionales, no se podrá autorizar el tránsito de vehículos cuyo peso, incluyendo peso propio y carga útil, exceda de 8.000kg.

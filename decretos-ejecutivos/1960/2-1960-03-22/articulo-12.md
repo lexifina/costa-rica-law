@@ -1,1 +1,0 @@
-Artículo 12.—Para carreteras de tipo especial, construidas con curvas muy erradas, grandes ípendientes, anchos menores de los usuales o diseñadas para límites menores de los permitidos en el artículo 39, o en las que existan puentes antiguos que se desean conservar, la Dirección General de Obras Públicas fijará las características de los vehículos que deban circular por ellas.

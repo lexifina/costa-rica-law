@@ -1,4 +1,0 @@
-Artículo 10.—Cuando la carga exceda del 10% de los límites indicados en el artículo 3°, la Dirección General de Obras Públicas podrá, discrecionalmente, y siempre que el interés público lo justifique, como casos de verdadera excepción, autorizar su transporte si los interesados se obligan a lo siguiente:
-a) Construir por su cuenta las desviaciones que a juicio de la Dirección General de Obras Públicas se hagan necesarias para la protección de puentes y obras de arte.
-b) Que a su costa se refuercen los puentes y obras de arte sobre los cuales deba efectuarse el transporte, a satisfacción de la Dirección General de Obras Públicas.
-c) Que a su costa se reparen los daños que pudieran producirse en los puentes y obras de arte, así como la terraceria, revestimiento y pavimentos del camino recorrido.

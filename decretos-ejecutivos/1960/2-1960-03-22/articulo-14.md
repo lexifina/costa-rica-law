@@ -1,1 +1,0 @@
-Articulo 14.—Ningún vehículo de los comprendidos en este Reglamento deberá operarse a una velocidad mayor de 70 km. por hora, ni a una velocidad tan reducida que impida el movimiento normal y razonable del tránsito, excepto cuando fuera necesario reducir la velocidad por medida de precaución o en cumplimiento de los reglamentos de tránsito.
