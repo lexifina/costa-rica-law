@@ -14,3 +14,4 @@ Reforma Reglamento Concurso Oposición Ingreso Carrera Diplomática Condiciones 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-09 | la propia norma |
+| 2 | 2000-09-01 | Decreto Ejecutivo 28931 (2000-09-01) |
