@@ -1,0 +1,2 @@
+Artículo IV
+El "Field Party" tendrá, el número de miembros y se compondrá en la forma que el Instituto creyere conveniente, y estará bajo la dirección del "Chief of Field Party", quien representara al Instituto en Costa Rica en lo pertinente al programa comprendido en este Acuerdo. El "Chief of Field Party" y demás miembros de este "Party" serán seleccionados y nombrados por el Gobierno de los Estados Unidos de América, pero habrán de ser aceptables al Gobierno de Costa Rica.

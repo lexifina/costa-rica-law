@@ -1,0 +1,2 @@
+Artículo XIII
+Con sumisión a las provisiones del párrafo 5 º del artículo VIII de este Acuerdo, cualquier dinero del Servicio que permanezca desembolsado y libre de compromiso al terminar el programa cooperativo de higiene y salubridad, será, a menos que las partes de este pacto acuerden por escrito en dicho momento otra cosa, devuelto al Gobierno de los Estados Unidos de América y al Gobierno de Costa Rica en proporción a las respectivas contribuciones hechas por ellos en cumplimiento de este Acuerdo, aunque este sea de tiempo en tiempo enmendado y prorrogado.

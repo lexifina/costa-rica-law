@@ -1,0 +1,7 @@
+Artículo III
+Se ha acordado que el programa cooperativo de higiene y salubridad puede incluir:
+1º—El proveimiento por parte del Instituto de un cuerpo de especialistas en la materia (que en este documento se denominara "Field Party") para que colabore en la realización del programa cooperativo de higiene y salubridad.
+2º—El desarrollo y ejecución de actividades como las siguientes:
+a) Estudios e investigaciones científicas de las necesidades de Costa Rica en el campo de la higiene y la salubridad y de los recursos con los cuales se puede contar para llenar esas necesidades; y elaboración de un programa que permita remediar tales necesidades;
+b) Iniciación y administración de proyectos en materia de higiene y saneamiento, en cumplimiento de convenios funcionales escritos para ser firmados por el Ministro de Salubridad (que en este documento se denominara "el Ministro") y "Chief of Field Party", en los cuales convenios pueden figurar : el funcionamiento y desarrollo de unidades sanitarias y otras facilidades para la medicina preventiva y control de las enfermedades; la producción de aguas no contaminadas ; sistemas de alcantarillas y saneamiento del medio; exterminio de insectos, educación sanitaria, e incremento de la profesión de enfermería ; y
+c) Servicios de adiestramiento en el campo de higiene y salubridad dentro de Costa Rica, en los Estados Unidos de América y en cualquier otra parte.

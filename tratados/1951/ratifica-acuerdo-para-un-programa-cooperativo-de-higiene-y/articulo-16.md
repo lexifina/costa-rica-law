@@ -1,0 +1,2 @@
+Artículo XVI
+Todo derecho, concesión, poder, o deber conferido por este Acuerdo sobre el Ministro o el "Chief of Field Party" puede ser delegado por cualquiera de los dos, sobre cualquiera de sus respectivos asistentes, siempre que cada delegación de esas sea satisfactoria para la otra parte. Una delegación tal no limitar el derecho que tienen el Ministro y el "Chief of Field Party" para someter a la discusión y decisión directamente mutua, de cualquier asunto.

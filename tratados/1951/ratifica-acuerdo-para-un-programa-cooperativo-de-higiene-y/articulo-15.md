@@ -1,0 +1,2 @@
+Artículo XV
+Las partes contratantes declaran reconocer que el Instituto, siendo un instrumento incorporado de los Estados Unidos de América, totalmente perteneciente, dirigido y controlado por el Gobierno de los Estados Unidos de América, está en el derecho de participar de lleno en todos los privilegios e inmunidades, inclusive la inmunidad de proceso judicial en los tribunales de Costa Rica, de que goza el Gobierno de los Estados Unidos de América.
