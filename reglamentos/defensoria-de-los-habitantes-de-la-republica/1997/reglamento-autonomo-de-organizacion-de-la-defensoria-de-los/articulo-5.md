@@ -13,7 +13,8 @@ ii. Dirección de Protección Especial
 iii. Dirección de Calidad de Vida
 iv. Dirección de Asuntos Económicos y de Administración.
 d) Dirección de Defensa del Desarrollo Humano
-f) Dirección de Promoción y Divulgación
+f) Dirección de Comunicación Institucional
+(Así modificada la nomenclatura por acuerdo de la Junta Directiva, en su sesión N° 304 de 2 de abril de 1998)
 c) Dirección de Desarrollo Tecnológico
 h) Dirección Administrativa
 i) Unidades Móviles de Promoción y Divulgación.

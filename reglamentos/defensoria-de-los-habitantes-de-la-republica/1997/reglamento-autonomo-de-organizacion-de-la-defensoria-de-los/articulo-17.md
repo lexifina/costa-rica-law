@@ -6,5 +6,7 @@ c) Supervisar la aplicación de los procedimientos dictados por la Dirección de
 d) Velar por la distribución equitativa de los asuntos de acuerdo con criterios de complejidad y especialidad temática.
 e) Coordinar con la Dirección de Defensa la articulación de los procesos de admisibilidad, investigación y seguimiento.
 f) Coordinar con la Dirección de Defensa del Desarrollo Humano la planeación, ejecución y evaluación de las investigaciones que le sean asignadas.
-g) Asesorar a la Dirección de Promoción y Divulgación en la elaboración de los proyectos de difusión, promoción y educación de los habitantes.
-h) Elaborar informes de labores. i) Cualquier otra que le señale el Defensor(a) de los Habitantes.
+g) Asesorar a la Dirección de Comunicación Institucional en la elaboración de los proyectos de difusión, promoción y educación de los habitantes.
+(Así modificada la nomenclatura por acuerdo de la Junta Directiva, en su sesión N° 304 de 2 de abril de 1998)
+h) Elaborar informes de labores.
+i) Cualquier otra que le señale el Defensor(a) de los Habitantes.

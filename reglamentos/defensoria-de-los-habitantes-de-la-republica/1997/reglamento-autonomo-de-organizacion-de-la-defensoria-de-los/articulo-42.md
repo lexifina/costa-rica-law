@@ -3,4 +3,5 @@ El Consejo Deliberativo de Defensa estará integrado por el Defensor(a) de los H
 El Consejo Deliberativo de Defensa sesionará mensualmente y tendrá por funciones:
 a) Mantener un espacio de comunicación, información y deliberación sobre asuntos sometidos a conocimiento de la Dirección de Defensa y las Direcciones de Área.
 b) Analizar y comentar el trámite y resolución de los asuntos que se estimen de interés para la adecuada coordinación y tratamiento de los casos.
-c) Intercambiar información y coordinar acciones con las Direcciones de Defensa del Desarrollo Humano y de Promoción y Divulgación cuando corresponda.
+c) Intercambiar información y coordinar acciones con las Direcciones de Defensa del Desarrollo Humano y de Comunicación Institucional cuando corresponda.
+(Así modificada la nomenclatura por acuerdo de la Junta Directiva, en su sesión N° 304 de 2 de abril de 1998)

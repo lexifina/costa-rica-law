@@ -1,5 +1,6 @@
 Artículo 25.—Funciones
-Entre otras funciones, corresponde a la Dirección de Promoción y Divulgación:
+Entre otras funciones, corresponde a la Dirección de Comunicación Institucional:
+(Así modificada la nomenclatura por acuerdo de la Junta Directiva, en su sesión N° 304 de 2 de abril de 1998)
 a) Promover y divulgar el conocimiento y defensa de los derechos e intereses de los habitantes.
 b) Informar y educar a los habitantes sobre las vías, los mecanismos y procedimientos para la protección de sus derechos e intereses.
 c) Generar información y medios para activar la cultura de los derechos humanos.
