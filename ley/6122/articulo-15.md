@@ -1,7 +1,1 @@
-Artículo 15.- Se prohibe prestar el servicio de remolque a quienes no
-comprueben, con la respectiva tarjeta de circulación, la propiedad del
-vehículo a remolcar. En caso de accidentes de tránsito, se prohibe mover
-el o los vehículos antes de que se apersonen en el lugar de los hechos las
-autoridades competentes. Los encargados del servicio deberán informar a
-las autoridades de investigación acerca de cualquier solicitud de
-transporte que se considere sospechosa de hurto o de robo de vehículo.
+Artículo 15.- Se prohibe prestar el servicio de remolque a quienes no comprueben, con la respectiva tarjeta de circulación, la propiedad del vehículo a remolcar. En caso de accidentes de tránsito, se prohibe mover el o los vehículos antes de que se apersonen en el lugar de los hechos las autoridades competentes. Los encargados del servicio deberán informar a las autoridades de investigación acerca de cualquier solicitud de transporte que se considere sospechosa de hurto o de robo de vehículo.

@@ -1,8 +1,1 @@
-Artículo 7º.- Sin perjuicio de la sanción establecida en el artículo
-primero, en caso de que no se informe al Registro Público de la Propiedad
-de Vehículos el desarme del vehículo y en caso de que se encontraren
-omisiones o alteraciones en los asientos del libro de registro, el
-Gobernador o el Delegado de la Guardia de Asistencia Rural suspenderá el
-permiso y sellará el establecimiento, para evitar la salida de sus
-existencias. Esta resolución podrá ser revocada por el Ministerio de
-Gobernación o por los tribunales competentes.
+Artículo 7º.- Sin perjuicio de la sanción establecida en el artículo primero, en caso de que no se informe al Registro Público de la Propiedad de Vehículos el desarme del vehículo y en caso de que se encontraren omisiones o alteraciones en los asientos del libro de registro, el Gobernador o el Delegado de la Guardia de Asistencia Rural suspenderá el permiso y sellará el establecimiento, para evitar la salida de sus existencias. Esta resolución podrá ser revocada por el Ministerio de Gobernación o por los tribunales competentes.
