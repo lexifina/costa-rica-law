@@ -1,0 +1,1 @@
+Artículo 4°—En las comisiones que nombre el Concejo Municipal, para celebrar estos actos deberá nombrar al menos a un regidor, quien será el que coordine ésta, además de entre los otros miembros, que podrán ser asesores nombrar a un secretario para que tome notas y apuntes para efectos del informe posterior.

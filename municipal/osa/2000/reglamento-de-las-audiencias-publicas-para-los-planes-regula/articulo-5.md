@@ -1,0 +1,1 @@
+Artículo 5°—Las comisiones que celebren dichos actos, tendrán un plazo de 15 días naturales para rendir el informe al Concejo Municipal para su conocimiento y aprobación, por mayoría absoluta de votos.
