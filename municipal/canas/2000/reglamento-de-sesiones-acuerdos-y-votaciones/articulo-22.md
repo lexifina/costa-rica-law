@@ -1,0 +1,1 @@
+Articulo 22.—Los acuerdos del concejo se tomarán por mayoría absoluta, salvo los casos que de conformidad con la ley se requiera una mayoría diferente (Se entenderá por mayoría absoluta la mitad más uno de los votantes de los regidores propietarios).

@@ -1,0 +1,1 @@
+Articulo 20.—Toda iniciativa tendiente a reformar disposiciones reglamentarias deberán ser dictaminadas por la comisión permanente de asuntos jurídicos que establece el artículo 49 del código municipal.

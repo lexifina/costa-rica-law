@@ -1,0 +1,1 @@
+Articulo 24.—Al aprobarse el acta respectiva los acuerdos tomados quedarán definitivamente firmes. Para declarar como definitivamente aprobado un acuerdo se necesitará el voto de las dos terceras partes de la totalidad de los miembros del concejo.

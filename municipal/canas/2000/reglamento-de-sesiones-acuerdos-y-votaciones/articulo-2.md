@@ -1,0 +1,2 @@
+De las sesiones, sede y quórum
+Articulo 2°—El Concejo Municipal es la autoridad máxima de un Municipio que se constituye en un ente deliberativo con la participación de los regidores con !a participación de los regidores propietarios, regidores suplentes, síndicos propietarios, síndicos suplentes y el Alcalde Municipal según tas funciones y atribuciones que el Código Municipal y la Constitución Política le determinan.

@@ -1,0 +1,1 @@
+Artículo 13.—El uso de la palabra será regulada por el Presidente, respetando el orden en que se le solicitó. También retirar el uso de la palabra a quién intervenga sin permiso o quien se exceda en sus expresiones, reitere lo dicho por otro regidor o que se salga del tema en discusión.

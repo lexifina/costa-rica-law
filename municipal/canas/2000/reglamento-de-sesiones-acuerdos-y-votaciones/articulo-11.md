@@ -1,0 +1,1 @@
+Articulo 11.—La orden del día deberá respetarse después de pasado los quince minutos de reglamento. No obstante por iniciativa de un regidor o del alcalde se puede solicitar su alteración, debiendo ser aprobado por dos terceras partes de los miembros presente.

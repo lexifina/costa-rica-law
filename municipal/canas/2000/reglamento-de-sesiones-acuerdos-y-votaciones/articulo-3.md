@@ -1,0 +1,1 @@
+Articulo 3°—El Concejo tendrá sesiones ordinarias y extraordinarias según lo dispuesto por la ley. Todas sus sesiones serán públicas (Articulo 41 del código municipal) sin perjuicio de que en casos muy especiales por unanimidad, determinada sesión o parte de ella sea declarada secreta.
