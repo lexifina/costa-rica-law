@@ -1,0 +1,1 @@
+Artículo 10.—Los funcionarios de Departamento Financiero que participan del proceso Teleban deben de contar con una póliza de fidelidad, según lo establece la Ley de la Administración Financiera de la República y Presupuestos Públicos.

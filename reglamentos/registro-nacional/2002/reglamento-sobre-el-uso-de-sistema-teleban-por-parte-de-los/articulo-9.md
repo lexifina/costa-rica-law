@@ -1,0 +1,1 @@
+Artículo 9º—Los encargados de realizar las confirmaciones de las transferencias, serán responsables de la correcta operación de estos fondos, ante la Jefatura del Departamento Financiero del Registro Nacional. Estos funcionarios no tienen acceso al Registro de las transferencias.

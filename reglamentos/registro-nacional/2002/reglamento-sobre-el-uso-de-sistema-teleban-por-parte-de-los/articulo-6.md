@@ -1,0 +1,1 @@
+Artículo 6º—El Equipo de Tesorería, con la finalidad de mantener actualizada la base de datos, debe excluir a los proveedores a los que no se les girará más pagos e integrar a los nuevos; así como ajustar los montos máximos de pago.

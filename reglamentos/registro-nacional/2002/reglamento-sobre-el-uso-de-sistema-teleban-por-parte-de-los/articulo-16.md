@@ -1,0 +1,1 @@
+Artículo 16.—Promulgación. Este Reglamento fue aprobado por la Junta Administrativa del Registro Nacional, según Acuerdo Firme Nº J.0285, tomado en la Sesión Ordinaria Nº 25-2002, celebrada el día jueves 11 de julio del 2002.

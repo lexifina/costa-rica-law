@@ -1,0 +1,1 @@
+Artículo 15.—Los aspectos no previstos en el presente Reglamento, se ajustarán a lo que dispone a la Ley de la Administración Financiera de la República y Presupuestos Públicos y su Reglamento, el Manual de Normas Generales de Control Interno para la Contraloría General de la República y las Entidades y Órganos Sujetos a su fiscalización".
