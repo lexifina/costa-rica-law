@@ -1,3 +1,2 @@
-ARTÖCULO 3§.-La defensora ser de exclusivo nombramiento del
-Ministerio de Justicia y Gracia, a cuyo Despacho estar adscrita y ser
-juramentada por el Presidente de la Rep£blica.
+Artículo 3°--La Defensoría estará adscrita al Despacho del Ministro de Justicia y Gracia. Su nombramiento se hará conforme con la normativa que establece la Dirección General del Servicio Civil para la selección de los funcionarios protegidos por el Régimen de Servicio Civil. La plaza que ocupe el Defensor será del más alto rango dentro del escalafón de puestos establecido por dicha Dirección.
+(Así reformado por el artículo único del decreto ejecutivo No. 19444 de 15 de enero de 1990).

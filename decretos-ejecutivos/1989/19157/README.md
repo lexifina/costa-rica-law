@@ -13,3 +13,4 @@ Crea la Defensoría de la Mujer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-09-01 | la propia norma |
+| 2 | 1990-01-15 | Decreto Ejecutivo 19444 (1990-01-15) |
