@@ -1,2 +1,0 @@
-Artículo 24.- En los fideicomisos, el fiduciario está obligado solidariamente con el fideicomitente a presentar la declaración de los ingresos correspondientes a los bienes fideicometidos. Igualmente deberá responder el fiduciario del pago del impuesto, si teniendo bienes con qué pagar no lo hiciere. La misma regla se aplica en las cuentas en participación, en cuanto a las personas y bienes correspondientes.
-(Así reformado por el artículo 2° de la ley N° 6450 del 15 de julio de 1980)

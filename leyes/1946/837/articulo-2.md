@@ -1,5 +1,0 @@
-CAPITULO I
-Quienes deben pagar el impuesto
-Artículo 2°-Las personas físicas o jurídicas domiciliadas en Costa Rica, pagarán el impuesto sobre las rentas que obtengan dentro del país, y las personas no domiciliadas en él, lo pagarán sobre las rentas que obtengan de bienes, empresas o negocios situados o realizados en Costa Rica. Se considerarán como rentas gravables las provenientes del trabajo personal, cuando consistan en sueldos u otras remuneraciones que el Estado abone a sus representantes oficiales en el extranjero-diplomáticos o consulares-o a otras personas a quienes encomiende la realización de funciones fuera del país.
-También se aplicará el impuesto a las rentas obtenidas por las sociedades de hecho, por los patrimonios hereditarios mientras permanezcan indivisos, por los bienes administrados en virtud de fideicomiso encargo de confianza, sea que dichos bienes estén destinados a personas no nacidas aún, o a cualquier otro fin.
-(Así reformado por el artículo 1° de la ley N° 1789 del 18 de setiembre de 1954)

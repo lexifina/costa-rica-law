@@ -1,3 +1,0 @@
-2°-A las empresas teatrales y de espectáculos públicos a que se refiere el artículo 60, se les rebajará, al liquidárseles el tributo creado por esta ley, las sumas que a contar del 1° de octubre de 1946, hubieran. cubierto por concepto del 4 % sobre sus entradas brutas que están obligadas a pagar en la actualidad.
-Casa Presidencial.-San José, a los veinte días del mes de diciembre de mil novecientos cuarenta y seis.
-(Nota de Sinalevi: la presente ley contiene una Parte Segunda denominada “Reformas a la Ley de Impuestos territoriales”, por tener esta parte segunda artículo propio, la misma debe de consultarse en el sistema de forma independiente)

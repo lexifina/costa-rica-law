@@ -1,2 +1,0 @@
-Artículo 12 . -Podrán deducirse los gastos necesarios para obtener la renta de alguna profesión, siempre que dicha renta no consista en sueldos fijos.
-Si los gastos necesarios para producir la renta aparecieren confundidos con los que se han hecho con otro objeto, se estimará prudencialmente la proporción que corresponda a aquel fin y sólo se admitirá la deducción de la parte que le corresponda. A la Oficina de la Tributación corresponde pronunciarse sobre la proporción de gastos que deben admitirse como deducción de la renta bruta.
