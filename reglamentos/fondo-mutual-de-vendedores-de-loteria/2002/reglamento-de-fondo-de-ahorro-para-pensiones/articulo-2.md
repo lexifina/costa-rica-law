@@ -1,0 +1,1 @@
+Artículo 2º—Del Objeto: El objeto del presente Reglamento es reglamentar los aportes destinados al Fondo de Ahorro para Pensiones Individualizado por cada vendedor y los procedimientos de devolución de dichos montos después de que se cumplan las condiciones que se establecen en los Reglamentos de FOMUVEL y el presente, así como en los acuerdos de junta directiva.

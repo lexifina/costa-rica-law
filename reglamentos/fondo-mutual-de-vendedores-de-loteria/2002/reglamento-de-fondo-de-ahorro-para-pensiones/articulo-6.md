@@ -1,0 +1,1 @@
+Artículo 6º—De los estados de cuenta: El Fondo entregará semestralmente un estado de cuenta individualizada que refleje aportes, intereses capitalizados y excedentes a cada vendedor, asimismo, los estados de cuenta serán entregados a cada vendedor cuando así lo solicite.

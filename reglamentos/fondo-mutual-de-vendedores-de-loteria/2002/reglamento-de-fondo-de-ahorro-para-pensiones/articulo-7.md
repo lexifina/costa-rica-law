@@ -1,0 +1,1 @@
+Artículo 7º—De las potestades de la Junta Directiva: La Junta Directiva encuentra facultada para cambiar de operadora de pensiones o institución en el momento que así lo considere pertinente por razones de conveniencia y oportunidad en beneficio del vendedor.
