@@ -1,0 +1,1 @@
+Artículo 7º—Los miembros que no asistan a tres reuniones consecutivas o alternas sin justificación por escrito en un período anual, perderán en forma automática la credencial como representante del COLOSEVI-MORA.

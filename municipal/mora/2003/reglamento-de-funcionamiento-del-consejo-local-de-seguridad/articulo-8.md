@@ -1,0 +1,1 @@
+Artículo 8º—Para los efectos del artículo anterior o en caso de renuncia de alguno de los miembros del COLOSEVI-MORA, deberá el Presidente o quien lo supla, solicitar por escrito al Concejo Municipal, que se indique a la organización respectiva, el retiro y/o sustitución de su(s) representante(s) por incumplimiento en sus deberes o por deceso.
