@@ -1,5 +1,2 @@
-Artículo 1º.- Créase una Comisión Especial Mixta para que estudie a
-fondo e informe a la Comisión Permanente de Asuntos Sociales, el proyecto
-de Ley de Régimen Unificado de Pensiones para Servidores del Sector
-Público, la que estará compuesta por miembros de esa Comisión Permanente y
-técnicos asesores, nombrada por el Presidente de la Asamblea Legislativa.
+Artículo 1º.- Créase una Comisión Especial Mixta para que estudie a fondo e informe a la Comisión Permanente de Asuntos Sociales sobre las bases para un proyecto de ley que regule el Régimen Unificado Nacional de Pensiones del Sector Público y de la Caja Costarricense de Seguro Social, la que estará compuesta por miembros de esta Comisión Permanente y técnicos asesores, nombrada por el Presidente de la Asamblea Legislativa.
+(Así reformado por el artículo 1° de la Ley N° 4645 de 8 de octubre de 1970).
