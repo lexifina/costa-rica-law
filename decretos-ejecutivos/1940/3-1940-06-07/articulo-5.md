@@ -1,3 +1,0 @@
-Artículo 5°—Los funcionarios de los Departamentos Técnicos de Agricultura creados por el Estado, tendrán autoridad para exigir que sea retirado del mercado cualquier abono, materia fertilizante o enmienda para terrenos, fabricados o manipulados en el país, que hayan sido puestos a la venta sin haber registrado previamente su marca o que resulten deficientes después de practicado el análisis oficial, en relación al certificado de garantía.
-Los responsables de la falta serán sancionados con las puniciones establecidas para esta clase de fraudes por las leyes penales.
-Los funcionarios dichos tendrán la protección de las autoridades de policía y el libre acceso a las fábricas, almacenes o depósitos de abonos, sustancias o enmiendas.

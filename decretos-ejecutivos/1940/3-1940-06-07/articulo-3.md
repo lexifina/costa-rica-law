@@ -1,1 +1,0 @@
-Artículo 3°—Para su venta, cada bulto que contenga un abono comercial o sustancias químicas para abonos o sustancias para enmiendas de terrenos, deberá ser clara y distintamente marcado con el nombre del producto, el peso del producto, nombre y dirección del fabricante y el análisis mínimo de constituyentes útiles que posee dicho abono o sustancia.
