@@ -13,3 +13,4 @@ BCR: Modifica Reglamento de Tarifas y Condiciones para los Servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-26 | la propia norma |
+| 2 | 1997-04-28 | Reglamento 33 (1997-04-28) |
