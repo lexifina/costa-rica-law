@@ -1,0 +1,1 @@
+Artículo 4º.- En igual forma, las Instituciones obligadas por la ley a cubrir a los trabajadores indemnizaciones provenientes de riesgos profesionales, que no las hayan entregado a sus dueños debido a cualquier causa, deberán proceder en la forma que indica el artículo anterior.
