@@ -1,0 +1,1 @@
+Artículo 6°—La Junta de Gobierno mantendrá actualizado el Registro de Médicos especialistas inscritos en cada una de las ramas existentes y, enviará anualmente copia de la misma a las Instituciones contratantes de servicios médicos.
