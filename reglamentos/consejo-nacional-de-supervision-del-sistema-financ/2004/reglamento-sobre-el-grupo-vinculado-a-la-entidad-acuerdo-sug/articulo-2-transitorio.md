@@ -1,0 +1,2 @@
+Transitorio II
+En caso de detectarse algún exceso al límite con motivo de la entrada en vigencia de este Reglamento, éste será considerado como sobrevenido y le serán aplicables las disposiciones establecidas en el artículo 15 de este Reglamento, a excepción del plazo otorgado para la presentación del plan de regularización, el cual será de dos meses contados a partir de la entrada en vigencia de este Reglamento.
