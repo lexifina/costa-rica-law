@@ -7,3 +7,4 @@ En las contrataciones directas por montos superiores al fijado para el Banco Pop
 5. Remates: El órgano competente para adjudicar en este tipo de procedimientos será el Jefe del área técnica especializada, para lo cual podrá hacerse asistir de un pregón.
 Los funcionarios citados en este artículo no podrán delegar su competencia, salvo cuando se haya autorizado expresamente.
 La Junta Directiva podrá avocar la adjudicación de licitaciones públicas y por registro.
+(Reformado mediante sesión 3849 de 22 de mayo del 2001)

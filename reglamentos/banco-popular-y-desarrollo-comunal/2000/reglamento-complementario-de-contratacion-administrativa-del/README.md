@@ -14,3 +14,4 @@ Reglamento Complementario de Contratación Administrativa del Banco Popular y de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-16 | la propia norma |
+| 2 | 2001-05-22 | Reglamento 3849 (2001-05-22) |
