@@ -1,0 +1,1 @@
+Art 7° Las patentes se librarán solamente por un año contado desde el 1° de Enero hasta el 31 de diciembre, debiendo renovarse con la anticipación necesaria, para que nunca sufra demora el tráfico mercantil.
