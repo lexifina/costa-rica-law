@@ -1,0 +1,3 @@
+2°—Se establecen los intereses moratorios en un veintiocho punto cinco por ciento (28.5 %) anual.
+No procederá condonar el pago de estos intereses, excepto cuando se demuestre error de la Administración.
+El porcentaje de intereses moratorios se establece con fundamento en el promedio presentado por la tasa de interés pasiva del Banco Central correspondiente a los últimos siete años, en aras de mantener un índice equilibrado por dicho concepto que haga posible la omisión de una variación periódica del mismo.

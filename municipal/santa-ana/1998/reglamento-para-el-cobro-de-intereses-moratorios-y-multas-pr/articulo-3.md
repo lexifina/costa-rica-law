@@ -1,0 +1,2 @@
+3°—Se establece por concepto de multas un recargo del uno por ciento (1 %) por cada mes o fracción de mes transcurrido desde el momento en que debió satisfacerse la obligación hasta la fecha del pago efectivo del tributo y se calculará sobre las sumas sin pagar a tiempo.
+Rige a partir de su publicación.
