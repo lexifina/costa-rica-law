@@ -1,0 +1,7 @@
+Artículo 10.—Presentación de cuentas. El funcionario que haya concluido una gira deberá presentar, dentro de los siete días hábiles posteriores al regreso al Comité, el formulario de liquidación del viaje y hacer el reintegro respectivo en los casos en que proceda, para que el Comité pueda, luego de revisar y aprobar la liquidación:
+a. Pagar al funcionario el gasto reconocido no cubierto por la suma adelantada.
+b. Pagar al funcionario la totalidad del gasto reconocido, en los casos en que éste no haya retirado el respectivo adelanto.
+c. Exigir al funcionario el reintegro del monto girado de más, en aquellos casos en que la suma devuelta por éste no haya sido suficiente para cubrir el monto que efectivamente le corresponde reintegrar.
+Bajo ningún concepto se aceptará, al regreso de una gira, gastos de viaje y de transporte, si éstos no están debidamente autorizados por el funcionario u órgano que indica el artículo 7º, según corresponda.
+La cancelación o posposición de una gira da lugar al reintegro inmediato, por parte del funcionario, de la totalidad de la suma recibida en calidad de adelanto.
+En aquellos casos en que el funcionario viaje diariamente a atender un mismo asunto o actividad, o que en razón de ello deba permanecer regular y transitoriamente en un mismo lugar, siendo procedente el pago de viáticos, el Comité podrá autorizar, por vía de excepción, la presentación de la respectiva liquidación con la periodicidad que determine, ya sea, semanal, quincenal o a lo sumo mensualmente.

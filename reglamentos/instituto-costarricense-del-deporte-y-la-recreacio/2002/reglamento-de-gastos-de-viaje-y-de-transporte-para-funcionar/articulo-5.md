@@ -1,0 +1,1 @@
+Artículo 5º—Oportunidad del gasto. Deberá existir una estrecha relación entre el motivo del viaje y la naturaleza del cargo que desempeñan cualquiera de los sujetos indicados en los artículos anteriores.

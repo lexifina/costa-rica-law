@@ -1,0 +1,1 @@
+Artículo 22.—Gastos de transporte durante las giras. Los funcionarios de Comité deben de utilizar el transporte público de buses. Excepcionalmente podrá utilizarse el servicio de taxi por razones de conveniencia, necesidad y urgencia, previa aprobación del Director Ejecutivo.

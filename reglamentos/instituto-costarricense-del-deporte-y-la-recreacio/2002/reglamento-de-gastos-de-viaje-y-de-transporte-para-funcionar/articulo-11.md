@@ -1,0 +1,1 @@
+Artículo 11.—Documentos que acompañan a la liquidación. Junto con el formulario de liquidación el funcionario debe presentar las facturas que, de acuerdo con las disposiciones de este Reglamento así se requiera.

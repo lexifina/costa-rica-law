@@ -1,0 +1,4 @@
+Artículo 13.—Obligaciones del funcionario que recibe y revisa las liquidaciones. Son obligaciones del Director Ejecutivo el hecho de recibir y revisar las liquidaciones de gastos de viaje:
+a. Solicitar el reintegro de las sumas adelantadas en exceso en relación con el gasto reconocido del viaje.
+b. Llevar y mantener actualizado un registro de los adelantos girados. En caso de incumplimiento en la presentación de la liquidación de gastos, en los términos del plazo establecido en el Artículo 10º, por parte del funcionario que realizó el viaje, informar sobre el particular, -en forma inmediata al vencimiento de dicho plazo-, a la Junta Directiva, con el propósito de que aplique las medidas que señala el artículo anterior.
+El incumplimiento de estas obligaciones por el funcionario encargado, lo hará acreedor de las sanciones disciplinarias que la Administración activa haya previsto en tal caso.

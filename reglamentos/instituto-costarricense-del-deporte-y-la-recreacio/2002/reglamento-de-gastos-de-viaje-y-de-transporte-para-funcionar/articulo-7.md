@@ -1,0 +1,1 @@
+Artículo 7º—Competencia para extender autorizaciones. En el caso de viajes al interior del país, corresponderá dar las autorizaciones de éstos y del adelanto para los gastos de viaje y de transporte, le corresponderá al Director Ejecutivo, previa autorización de la Junta Directiva.
