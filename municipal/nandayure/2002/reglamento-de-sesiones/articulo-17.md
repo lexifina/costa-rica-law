@@ -1,0 +1,1 @@
+Artículo 17.—De las intervenciones: Los regidores podrán hacer uso de la palabra para referirse al asunto en discusión, solicitándola a la presidencia, levantando la mano. Pudiendo hacer dos intervenciones de cinco minutos máximo cada una, no consecutivos del mismo tema, salvo casos en que se le retire el uso de la palabra por la presidencia.

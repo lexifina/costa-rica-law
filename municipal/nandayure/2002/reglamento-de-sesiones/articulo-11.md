@@ -1,0 +1,1 @@
+Artículo 11.—Del Funcionario Municipal: Cualquier funcionario municipal podrá ser llamado a las sesiones del Concejo, cuando éste lo acuerde, siempre que no sea rutina y sin que por ello deba pagársele remuneración alguna.

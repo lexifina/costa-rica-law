@@ -1,0 +1,1 @@
+Artículo 13.—Acuerdos: Tal como lo establece el Código Municipal, el Concejo tomará los acuerdos por simple mayoría de los miembros presentes, salvo los casos en que el Código determine mayoría calificada.

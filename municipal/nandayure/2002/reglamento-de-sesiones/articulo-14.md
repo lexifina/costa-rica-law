@@ -1,0 +1,1 @@
+Artículo 14.—Acuerdos Firmes: Los acuerdos que tome el Concejo podrán ser declarados firmes, por votación de las dos terceras partes de la totalidad de los miembros y surge cuando ya se haya aprobado el acta que lo contiene.

@@ -1,0 +1,1 @@
+Artículo 10.—De la Correspondencia: La Correspondencia y solicitudes que se presentan para conocerlas en sesión se recibirán de lunes a viernes desde las 7,00 a. m. hasta las 4,00 p. m. El día miércoles se recibirán desde las 7,00 a. m. hasta las 10,00 a. m., las que se presenten después de esta hora, se conocerán en la sesión siguiente.

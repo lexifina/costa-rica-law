@@ -1,0 +1,1 @@
+Artículo 21.—El Reglamento de sesiones de la Municipalidad de Nandayure, podrá ser ampliado, y reformado de manera parcial o total por simple mayoría de los miembros presentes del Concejo, cuando así lo consideren necesario.
