@@ -1,0 +1,1 @@
+Artículo 3º—De previo a la exoneración del pasaje prevista en el inciso b) del artículo anterior, los usuarios deberán presentar al chofer de la unidad de transporte público, su cédula de identidad y el carné de ciudadano de oro, el cual será extendido por la Caja Costarricense de Seguro Social, a efectos de demostrar que realmente son personas mayores de 65 años.
