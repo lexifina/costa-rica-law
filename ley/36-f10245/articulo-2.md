@@ -1,0 +1,1 @@
+2°.- No obstante la precedente declaratoria, las sentencias con auto de ejecutoriadas, ó las causas mandadas archivar que, sujetas a consulta, no la hubieren corrido, con motivo de la duda que queda resuelta, se tendrán por legalmente fenecidas.
