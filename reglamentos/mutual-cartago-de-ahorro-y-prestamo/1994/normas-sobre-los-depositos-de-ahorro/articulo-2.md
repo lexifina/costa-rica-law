@@ -1,0 +1,2 @@
+Artículo 2—La apertura de los depósitos:
+Los depósitos de ahorro podrán ser individuales o mancomunados. Los individuales estarán a nombre de una persona física o jurídica y podrán ser retirados por el titular o por las personas autorizadas. Los mancomunados estarán a nombre de una persona física o jurídica y podrán ser retirados únicamente con las firmas de dos o más personas registradas en la Mutual. La autorización para que terceras personas hagan retiros de los depósitos, se regirá por las normas que dicte la MUCAP.

@@ -1,0 +1,2 @@
+Artículo 3—De los ahorrantes:
+MUCAP aceptará depósitos a cualquier persona, sin distinción de edad, sexo o nacionalidad, siempre que se pueda identificar debidamente ajuicio de la Mutual. Una misma persona podrá tener más de un depósito reflejado en diferentes cuentas, en la misma MUCAP. Sin embargo para los efectos de la garantía y la inembargabilidad previstas en la ley, todos los depósitos se tomarán como uno solo para determinar el monto total al cual se te aplicarán los beneficios dichos.
