@@ -14,3 +14,4 @@ Reglamento para otorgar ayudas temporales a vecinos del cantón de Escazú en es
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-27 | la propia norma |
+| 2 | 2000-10-03 | Reglamento municipal 135 (2000-10-03) |
