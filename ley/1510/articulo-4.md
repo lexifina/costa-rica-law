@@ -1,0 +1,1 @@
+Artículo 4°.- La Contraloría General de la República no podrá el conforme al presupuesto ordinario de gastos anuales emitido por la Municipalidad contratante, si no contiene la partida correspondiente para amortizar e intereses en el cumplimiento de la presente obligación.
