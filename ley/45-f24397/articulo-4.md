@@ -1,0 +1,1 @@
+Art 4. Los compradores que dentro de quince días, no dieren el correspondiente aviso al receptor, serán obligados a pagar el cuatro por ciento de alcabala, sin perjuicio de la que debe satisfacer el vendedor, y la pena del art antecedente.
