@@ -1,6 +1,6 @@
 (Suspendida)
 N° 23191-S
-(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 23527 del 12 de julio de 1994, se acordó suspender por tres meses la vigencia del presente decreto ejecutivo.)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 23833 del 18 de noviembre de 1994, se acordó prorrogar por dos meses más la suspensión de la vigencia de este decreto ejecutivo)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE SALUD
 En uso de las facultades que confiere el artículo 140 de la Constitución Política y artículos 1° y 2° de la Ley General de Salud.
