@@ -1,0 +1,1 @@
+Artículo 2º—Las personas designadas para integrar la Comisión Nacional de Seguridad Transfusional, deberán tener como requisito indispensable, amplia experiencia en Medicina Transfusional. Quedan excluidos de dicho requisito los representantes de las Asociaciones relacionadas con la medicina transfusional.
