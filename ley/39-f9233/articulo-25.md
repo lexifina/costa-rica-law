@@ -1,1 +1,1 @@
-Artículo 25.- En el caso de cancelación definitiva a que se refiere el artículo que antecede, la Corte Plena podrá rehabilitar al Notario y concederle nueva licencia si su conducta posterior fuere ejemplar y hubiere mérito suficiente para no considerarlo un peligro para el público; pero en ningún caso podrá concederse este beneficio si no hubieren transcurrido, por lo menos, diez años desde la fecha de cancelación de la licencia.
+Artículo 25.- (Anulado mediante resolución de la Sala Constitucional N° 3484 del 8 de julio de 1994)
