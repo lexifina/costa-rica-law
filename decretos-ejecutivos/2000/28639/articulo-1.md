@@ -127,3 +127,8 @@ para el Editorial Costa Rica)
 la Dirección de Servicios Fitosanitarios del Estado)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 29303 de 12 de enero del 2001, para
 la Junta Adeministrativa de la Imprenta Nacional)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29289 de 22 de enero del 2001,
+para el Colegio Universitario para el Riego y el Desarrollo del Trópico Seco)
+(Modificado por el artículo 1 del decreto Ejecutivo N° 29290 de 22 de enero del 2001)
+(Modificado por el artículo 2 del Decreto Ejecutivo N° 29290 de 22 de enero del 2001,
+para la Comisión Nacional de Prevención de Riesgo y Atención de Emergencias )
