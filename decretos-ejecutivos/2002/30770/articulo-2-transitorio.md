@@ -1,0 +1,1 @@
+Transitorio II.—Se autoriza la renovación hasta el 31 de diciembre del año en curso de los permisos especiales de circulación AGV emitidos al amparo del Decreto Ejecutivo N° 24446-MOPT. Transcurrido dicho término deberán todos los interesados solicitar el otorgamiento de los nuevos permisos conforme a las disposiciones del presente Reglamento.

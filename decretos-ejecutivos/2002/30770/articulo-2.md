@@ -1,0 +1,3 @@
+Artículo 2º—Definiciones.
+1.1 Permiso Especial de Circulación AGV (PEC-AGV): Documento expedido por la oficina competente del Ministerio de Obras Públicas y Transportes, mediante el cual se permite que todo vehículo que sea importado por primera vez al país, pueda circular por las vías públicas del territorio de la República a los efectos de traslado, demostración, cumplimiento de requisitos previstos por el ordenamiento jurídico, venta e inscripción registral con el fin de obtener en forma definitiva la documentación que lo habilite para circular legalmente por el territorio de la República.
+1.2 Empresa de vehículos: Toda persona física o jurídica que comercializa vehículos importados por sí o por terceros.

@@ -1,0 +1,2 @@
+Artículo 3º—Temporalidad de los Permisos Especiales de Circulación AGV. El Permiso Especial de Circulación AGV será extendido, previo cumplimiento de los requisitos, con una vigencia de un año, comprendido entre el 1° de enero y el 31 de diciembre del mismo año calendario, pero sólo podrán utilizarse en un mismo vehículo hasta por un máximo de cuarenta y cinco días naturales.
+De previo a su vencimiento deberá la empresa de vehículos solicitar el otorgamiento de nuevos permisos con arreglo a las disposiciones del presente Reglamento.

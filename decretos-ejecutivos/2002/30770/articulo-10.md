@@ -1,0 +1,2 @@
+Artículo 10.—Obligatoriedad de aseguramiento. Cada Permiso Especial de Circulación AGV deberá contar con la póliza de seguro obligatorio vigente, la cual se mantendrá adherida en la parte posterior del respectivo permiso.
+Copia de la respectiva póliza deberá ser enviada a la oficina correspondiente del Ministerio de Obras Públicas y Transportes a más tardar en los ocho días hábiles siguientes a la expedición de cada permiso.

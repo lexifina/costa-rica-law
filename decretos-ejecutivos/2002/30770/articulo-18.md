@@ -1,0 +1,1 @@
+Artículo 18.—Vigencia. Rige a partir de su publicación y deroga el Decreto Ejecutivo N° 24446-MOPT, del 11 de julio de 1995, publicado en La Gaceta N° 141 del 26 del mismo mes y año, así como cualquier otra norma de igual o inferior rango jerárquico en lo que se le oponga.
