@@ -15,3 +15,4 @@ Reglamento de Lotificación
 | --- | --- | --- |
 | 1 | 1999-11-13 | la propia norma |
 | 2 | 2000-04-18 | Reglamento municipal 102 (2000-04-18) |
+| 3 | 2000-07-26 | SINALEVI (sin norma nombrada) |
