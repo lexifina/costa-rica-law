@@ -1,0 +1,2 @@
+Art. 8-Quedan derogadas todas las leyes anteriores que traten de recaudación de impuestos municipales.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los treinta y un días del mes de agosto de mil ochocientos ochenta y siete.-AND. SÁENZ, Presidente.-MANUEL MONTEALEGRE, Secretario.-Palacio Presidencial, San José, á los treinta y un días del mes de agosto de mil ocho- cientos ochenta y siete.-Ejecútese.--BERNARDO SOTO. El Secretario de Estado en el despacho de Gobernación, CLETO GONZÁLEZ VÍQUEZ.
