@@ -39,8 +39,9 @@ Sobre el monto del crédito se cobrará la tasa de interés calculada según met
 VII.- AMPLIACIÓN DEL PLAZO
 La solicitud de ampliación del palazo deberá ser dirigida al Gerente del Banco Central de Costa Rica e indicar claramente el motivo por le cual se solicita. La Gerencia en el momento de recibirla la enviará a la SUGEF, para que esta entidad emita su dictamen en un plazo máximo de un día hábil. La solicitud será evacuada y resuelta por la Junta Directiva del Banco Central de Costa Rica en la sesión siguiente a la emisión del dictamen de la SUGEF.
 VIII. NORMAS DE OPERACIÓN DE LA COMISIÓN DE REDESCUENTOS
-A. CONFORMACIÓN
-La Comisión de Redescuentos estará conformada por el Presidente, el Gerente y el Director de la División Financiera del Banco Central de Costa Rica y deberá sesionar con los tres miembros
+(*) A. CONFORMACIÓN
+La Comisión de Redescuentos estará conformada por el Presidente, el Gerente y el Director de la División Gestión de Activos y Pasivos del Banco Central de Costa Rica, y deberá sesionar con los tres Miembros.
+(*) (Así reformado el aparte A anterior en sesión N° 5121 del 19 de junio de 2002)
 B. LOS LIMITES Y ATRIBUCIONES
 1. Para la aceptación o la improbación de los créditos de redescuento, la Comisión de Redescuentos se regirá por los límites y condiciones que se establecen en las presente normas.
 2. La Comisión de Redescuentos evaluará las solicitudes de créditos de redescuento, verificará que cumplan con los requerimientos estipulados en estas Regulaciones, y las resolverá en un plazo no mayor de un día hábil a partir de la fecha de recepción de la solicitud.
