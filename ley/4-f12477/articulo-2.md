@@ -1,0 +1,2 @@
+Art. 2°-Señálanse las doce del día ocho del presente mes para recibirá los nombrados el juramento constitucional.
+AL PODER ECECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los cinco días del mes de mayo de mil ochocientos ochenta y seis.-A. ESQUIVEL,-Presidente.-A. VENENAS, Secretario.-MÁXIMO FERNÁNDEZ, Secretario.-Palacio Presidencial.-San José, cinco de mayo de mil ochocientos ochenta y seis.-Ejecútese.-BERNARDO Soro.-El Secretario de Estado en el despacho de Justicia,-ASCENSIÓN ESQUIVEL.
