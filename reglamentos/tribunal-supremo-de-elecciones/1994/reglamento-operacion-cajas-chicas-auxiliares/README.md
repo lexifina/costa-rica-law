@@ -14,3 +14,4 @@ Reglamento Operación Cajas Chicas Auxiliares.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-15 | la propia norma |
+| 2 | 1997-01-07 | Reglamento 3 (1997-01-07) |

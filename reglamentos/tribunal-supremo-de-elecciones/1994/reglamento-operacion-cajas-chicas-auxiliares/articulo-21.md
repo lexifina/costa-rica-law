@@ -1,7 +1,2 @@
-CAPITULO III
-DISPOSICIONES GENERALES
-Artículo 23 .—El cierre de una Caja Chica Auxiliar implicará la revisión de:
-a) Arqueo del Fondo
-b) Conciliación de saldos
-c) Disponer de un detalle de documentos de la Caja Chica Auxiliar.
-(Modificada su numeración por el artículo 1 del Reglamento Nº 3-97 de 07 de enero de 1997, publicado en La Gaceta No. 38 de 24 de febrero de 1997, que lo pasó del 21 al 23)
+Artículo 21.—El monto que sobrepase al tope normal autorizado para cubrir gastos de viajes al exterior y dentro del país deberá ser aprobado por el Tribunal Supremo de Elecciones el cual no podrá exceder de 4.000.000,00. En cuanto a los gastos de viaje dentro del país se entenderán aquellos referentes a programas de cedulación y empadronamiento ambulante, de instrucción y divulgación, de creación de distritos electorales, de transmisión de resultados, de asesores electorales y todos aquellos que se deriven del proceso electoral.
+(Así ADICIONADO por el Reglamento 3-97 de 07 de enero de 1997, publicado en La Gaceta No. 24 de febrero de 1997.)
