@@ -1,0 +1,1 @@
+Artículo 17.—Los dictámenes de tas comisiones serán incluidos en la orden del día siguiendo el orden en que fueron presentados a la secretaría, para ese efecto la secretaria al recibir los dictámenes consignará al pie de ellos la hora y fecha de presentación.

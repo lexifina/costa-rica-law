@@ -1,0 +1,1 @@
+Artículo 34.—Los Síndicos que quieran exponer sus asuntos gozarán de un lapso de diez minutos, pudiéndose ampliar el término por cinco minutos más a discreción de la Presidencia. El Presidente regulará ese tiempo cuando hable el propietario y el suplente.

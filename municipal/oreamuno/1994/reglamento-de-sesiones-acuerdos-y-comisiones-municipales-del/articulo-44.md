@@ -1,0 +1,1 @@
+Artículo 44.— La Secretaría remitirá al Concejo, en orden de presentación, las solicitudes, que se presenten tos particulares. El Concejo decidirá si acepta o no la petición formulada, tomando en cuenta el interés municipal, la oportunidad y cualquier otro elemento que se considere pertinente.

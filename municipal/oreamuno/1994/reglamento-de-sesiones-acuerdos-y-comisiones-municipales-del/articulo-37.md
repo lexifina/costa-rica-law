@@ -1,0 +1,1 @@
+Artículo 37.—Toda Comisión estará integrada por cinco o más y por lo menos dos de éstos deberán escogerse necesariamente de entre los regidores propietarios y suplentes, dándole participación a las diferentes fracciones políticas representadas. Podrán integrar estas comisiones funcionarios o empleados de la Municipalidad y personas ajenas a ella.
