@@ -1,4 +1,5 @@
-Artículo 58°- Políticas nacionales. En el diseño de las políticas educativas nacionales, el Estado deberá:
+Artículo 58°- Políticas nacionales.
+En el diseño de las políticas educativas nacionales, el Estado deberá:
 a) Garantizar educación de calidad e igualdad de oportunidades para las personas menores de edad.
 b) Fomentar los niveles más elevados del conocimiento científico y tecnológico, la expresión artística y cultural y los valores éticos y morales.
 c) Favorecer el acceso temprano a la formación técnica, una vez concluido el segundo ciclo de la educación general básica.

@@ -1,2 +1,3 @@
-Artículo 120°- Asistencia a víctimas. Las personas menores de edad víctimas de delitos siempre deberán ser asistidas y reconocidas por expertos en tratar a este grupo.
+Artículo 120°- Asistencia a víctimas.
+Las personas menores de edad víctimas de delitos siempre deberán ser asistidas y reconocidas por expertos en tratar a este grupo.
 Todas las autoridades judiciales o quienes deban colaborar en la tramitación del proceso. Los profesionales especializados del Departamento de Medicina Legal del Poder Judicial y los auxiliares de la policía técnica o administrativa, deberán ser capacitados previamente.

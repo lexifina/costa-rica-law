@@ -1,4 +1,5 @@
-Artículo 159°- Acuerdo conciliatorio. El acuerdo conciliatorio se consignará en un acta firmada por el conciliador y las partes, y tendrá los efectos de sentencia ejecutoria.
+Artículo 159°- Acuerdo conciliatorio.
+El acuerdo conciliatorio se consignará en un acta firmada por el conciliador y las partes, y tendrá los efectos de sentencia ejecutoria.
 Las actas de acuerdos conciliatorios deberán contener:
 a) La indicación de los datos necesarios para identificar las partes y el proceso.
 b) La naturaleza del asunto.

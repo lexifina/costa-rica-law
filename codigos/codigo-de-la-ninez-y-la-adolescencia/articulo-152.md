@@ -1,1 +1,2 @@
-Artículo 152°- Modificación de resolución. Apelada la resolución, el tribunal superior confirmará, modificará o revocará únicamente en la parte objeto de recurso salvo que, como consecuencia de lo resuelto, requiera modificar otros puntos.
+Artículo 152°- Modificación de resolución.
+Apelada la resolución, el tribunal superior confirmará, modificará o revocará únicamente en la parte objeto de recurso salvo que, como consecuencia de lo resuelto, requiera modificar otros puntos.

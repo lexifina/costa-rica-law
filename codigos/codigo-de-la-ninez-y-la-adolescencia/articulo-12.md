@@ -1,1 +1,2 @@
-Artículo 12°- Derecho a la vida. La persona menor de edad tiene el derecho a la vida desde el momento mismo de la concepción. El Estado deberá garantizarle y protegerle este derecho, con políticas económicas y sociales que aseguren condiciones dignas para la gestación, el nacimiento y el desarrollo integral.
+Artículo 12°- Derecho a la vida.
+La persona menor de edad tiene el derecho a la vida desde el momento mismo de la concepción. El Estado deberá garantizarle y protegerle este derecho, con políticas económicas y sociales que aseguren condiciones dignas para la gestación, el nacimiento y el desarrollo integral.

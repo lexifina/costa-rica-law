@@ -1,2 +1,3 @@
-Artículo 3°- Ámbito de aplicación. Las disposiciones de este Código se aplicarán a toda persona menor de edad, sin distinción alguna, independientemente de la etnia, la cultura, el género, el idioma, la religión, la ideología, la nacionalidad o cualquier otra condición propia, de su padre, madre, representantes legales o personas encargadas.
+Artículo 3°- Ámbito de aplicación.
+Las disposiciones de este Código se aplicarán a toda persona menor de edad, sin distinción alguna, independientemente de la etnia, la cultura, el género, el idioma, la religión, la ideología, la nacionalidad o cualquier otra condición propia, de su padre, madre, representantes legales o personas encargadas.
 Los derechos y las garantías de este grupo son de interés público, irrenunciables e intransigibles.

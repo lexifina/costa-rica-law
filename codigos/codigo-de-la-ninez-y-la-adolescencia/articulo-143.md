@@ -1,1 +1,2 @@
-Artículo 143°- Señalamiento de audiencias. Incoado el proceso, el juez revisará los resultados obtenidos con las medidas dictadas en sede administrativa y señalará el día y la hora para la audiencia, que deberá celebrarse en un plazo máximo de cinco días. En caso de delito, certificará lo conducente y lo remitirá al Ministerio Público o a la jurisdicción penal juvenil, según el caso.
+Artículo 143°- Señalamiento de audiencias.
+Incoado el proceso, el juez revisará los resultados obtenidos con las medidas dictadas en sede administrativa y señalará el día y la hora para la audiencia, que deberá celebrarse en un plazo máximo de cinco días. En caso de delito, certificará lo conducente y lo remitirá al Ministerio Público o a la jurisdicción penal juvenil, según el caso.

@@ -1,2 +1,3 @@
-Artículo 138°- Condiciones para aplicar medidas. Al aplicar las medidas señaladas en los artículos 135 y 136 se tendrán en cuenta las necesidades de los afectados y prevalecerán las que tengan por objeto fortalecer los vínculos familiares y comunitarios.
+Artículo 138°- Condiciones para aplicar medidas.
+Al aplicar las medidas señaladas en los artículos 135 y 136 se tendrán en cuenta las necesidades de los afectados y prevalecerán las que tengan por objeto fortalecer los vínculos familiares y comunitarios.
 Las medidas previstas podrán adoptarse separada o conjuntamente y ser sustituidas en cualquier tiempo. En el caso del cuido provisional en familia sustituta y el abrigo temporal en entidad pública o privada, la medida no podrá exceder de seis meses.

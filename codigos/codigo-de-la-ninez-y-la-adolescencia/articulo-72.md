@@ -1,4 +1,5 @@
-Artículo 72°- Deberes de los educandos. Serán deberes de las personas menores de edad que se encuentren en el sistema educativo:
+Artículo 72°- Deberes de los educandos.
+Serán deberes de las personas menores de edad que se encuentren en el sistema educativo:
 a) Asistir regularmente a lecciones.
 b) Respetar y obedecer a sus maestros y superiores.
 c) Cumplir las disposiciones legales y reglamentarias del sistema.
