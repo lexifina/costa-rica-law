@@ -1,0 +1,1 @@
+Artículo 2º.- Del aumento que en sus ingresos generales obtenga el Estado por el impuesto creado en el artículo anterior, destinará la suma necesaria para los gastos de propaganda del café en el exterior y para el sostenimiento de los organismos que intervengan en ella y el mejoramiento del cultivo, beneficio y todo lo que tienda al progreso de ese producto en Costa Rica.
