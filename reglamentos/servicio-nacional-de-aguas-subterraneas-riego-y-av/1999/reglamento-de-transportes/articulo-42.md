@@ -1,0 +1,1 @@
+Artículo 42.-Corresponde a la Dirección Administrativa Financiera evaluar y recomendar la renovación, aumento o reducción de vehículos. En el caso de aumento deberá elaborar las especificaciones técnicas respectivas.

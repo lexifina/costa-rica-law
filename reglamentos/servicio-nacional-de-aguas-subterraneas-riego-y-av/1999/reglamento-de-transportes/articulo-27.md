@@ -1,0 +1,1 @@
+Artículo 27.-EI conductor de un vehículo oficial que se vea involucrado en un accidente de tránsito, deberá rendir declaración ante tribunal competente dentro del plazo legal respectivo, y prestar la colaboración necesaria para la atención y seguimiento del proceso.
