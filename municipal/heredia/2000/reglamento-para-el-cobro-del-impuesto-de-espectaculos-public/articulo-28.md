@@ -1,0 +1,1 @@
+Artículo 28.—Distribución. El ingreso recaudado por el Impuesto de Espectáculos Públicos será destinado para obras, servicios y cualquier otra necesidad que la Municipalidad de Heredia deba resolver dentro de su jurisdicción y competencia.

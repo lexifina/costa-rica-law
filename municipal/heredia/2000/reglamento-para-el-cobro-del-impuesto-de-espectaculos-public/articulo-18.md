@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la fiscalización
+Articulo 18.—Verificación INSITU. El Departamento de Rentas y Cobranzas tiene la facultad, en cualquier tiempo, de verificar el correcto cumplimiento de las obligaciones tributarias a que se refiere este Reglamento, utilizado para ello cualquier medio y procedimiento legalmente establecido, según lo estipulado en el Código de Normas y Procedimiento Tributarios, Los funcionarios municipales responsables, de la efectiva recaudación del impuesto coordinará con las autoridades de la Policía Administrativa, a fin de obtener la colaboración de ésta en la aplicación de este Reglamento.

@@ -1,0 +1,2 @@
+Articulo 10.—Recolección de boletos. Semanalmente o el día posterior a la realización del evento, según la naturaleza del espectáculo o diversión, los inspectores de espectáculos públicos trasladarán a la oficina de la Municipalidad los boletos recolectados junto con los talonarios respectivos los cuales deberán coincidir con los tiquetes vendidos.
+Simultáneamente, el dueño o encargado del negocio entregara al Inspector un informe de las entradas vendidas según su valor correspondiente a la semana o evento sujeto de inspección.

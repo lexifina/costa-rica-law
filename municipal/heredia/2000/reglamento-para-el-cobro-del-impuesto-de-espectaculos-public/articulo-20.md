@@ -1,0 +1,1 @@
+Articulo 20.—De la identificación de los inspectores- Los inspectores de espectáculos públicos, contarán con una identificación extendida y firmada por el Alcalde Municipal, la cual llevará impresa el sello Municipal. Esta identificación deberá ser presentada en el lugar en que se realizará el evento sujete a inspección.

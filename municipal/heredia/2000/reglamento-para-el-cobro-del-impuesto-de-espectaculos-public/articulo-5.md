@@ -1,0 +1,1 @@
+Articulo 5°—Tarifa. La Municipalidad de Heredia cobrara un impuesto del cinco por ciento (5%) sobre la base imponible definida en el articulo anterior, a todos los espectáculos públicos y de diversión no gratuitos señalados en el artículo 2 de este reglamento.
