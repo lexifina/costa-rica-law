@@ -1,0 +1,1 @@
+Art 2° Para que lo dispuesto en el artículo anterior tenga exacto cumplimiento, es obligación de todo dueño de imprenta o del que dirijan un establecimiento tipográfico, no entregar a la circulación impreso alguno, sin que la primera prueba de él haya obtenido la expresada aprobación.

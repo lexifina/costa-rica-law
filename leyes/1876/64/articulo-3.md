@@ -1,0 +1,1 @@
+Art 3° Toda infracción de lo dispuesto en los artículos precedentes, motivará que se mande cerrar el respectivo establecimiento tipográfico, sin perjuicio de aplicar a los contraventos una multa que no bajará de veinticinco pesos ni excederá de mil, según los casos, o prisión que no será por menos de quince días ni pasará de un año.
