@@ -1,8 +1,8 @@
 Artículo 5º.- Rige a partir de su publicación.
 Transitorio I.- Se autoriza al Ministerio de Hacienda, para que,
 mediante Decreto Ejecutivo, haga las modificaciones presupuestarias
-correspondientes a la emisión de bonos a que alude el artículo cuarto de la
-presente ley.
+correspondientes a la emisión de bonos a que alude el artículo cuarto de
+la presente ley.
 Transitorio II.- Inclúyanse dentro de los beneficios de esta ley a
 los productores de tabaco de las zonas de Puriscal, Pérez Zeledón y
 Alajuela, y a los pequeños productores de cebolla de la zona norte de
