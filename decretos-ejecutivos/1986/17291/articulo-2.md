@@ -1,1 +1,0 @@
-Artículo 2°-Las Federaciones son organismos integrativos de Uniones Cantonales, que pertenecen a una misma provincia, o región, previamente establecidas por la Dirección para cumplir los fines y propósitos que se establezcan en el Estatuto.

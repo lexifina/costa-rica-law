@@ -1,1 +1,0 @@
-Artículo 30.-Sesionará ordinariamente por lo menos una vez al mes, en el sitio fecha y hora que acuerde la Junta Directiva. El quórum para sesionar válidamente será la mayoría absoluta de sus integrantes, salvo que el Estatuto establezca una diferente.

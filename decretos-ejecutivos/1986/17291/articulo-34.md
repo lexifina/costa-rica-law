@@ -1,1 +1,0 @@
-Artículo 34.-Las comisiones están supeditadas a la fiscalización y vigilancia de la Junta, la que deberá estar informada por ellas, del curso de sus actividades. En su funcionamiento deberán ajustarse a la Ley y Reglamento sobre Desarrollo de la Comunidad en lo aplicable a este Reglamento, el Estatuto y los acuerdos de Asamblea General.

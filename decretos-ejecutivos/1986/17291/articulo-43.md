@@ -1,1 +1,0 @@
-Artículo 43.-La disolución administrativa será acordada por Decreto Ejecutivo, a solicitud de la Dirección y la resolución deberá ser publicada en el Diario Oficial. Con fundamento en la publicación se cancelará el asunto de inscripción.

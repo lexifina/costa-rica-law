@@ -1,1 +1,0 @@
-Artículo 33.-La Junta determinará el número de sus integrantes que deberán seleccionarse de los representantes de las Uniones debidamente inscritas y ajenas a la Junta. En cada comisión habrá un coordinador, que será un miembro de la Junta Directiva.

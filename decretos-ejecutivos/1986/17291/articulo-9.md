@@ -1,1 +1,0 @@
-Artículo 9°-El quórum para celebrar la Asamblea Constitutiva deberá estar formado por la mitad más uno de las Uniones Cantonales que tengan la personería jurídica existente en la provincia o región debidamente legalizados.

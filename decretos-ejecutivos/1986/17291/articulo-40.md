@@ -1,1 +1,0 @@
-Artículo 40.-Cuando el presupuesto acordado supera la suma de quinientos mil colones (¢ 500.000,00) deberá nombrarse un contador privado a tiempo completo o parcial cuando las actividades lo ameriten, para que sirva de apoyo a sus labores contables a la Junta Directiva, dicho contador no puede ser funcionario público.

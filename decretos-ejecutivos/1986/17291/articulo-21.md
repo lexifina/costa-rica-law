@@ -1,1 +1,0 @@
-Artículo 21.-Sesionará válidamente, también en forma extraordinaria convocada por el presidente o el secretario ejecutivo, la mayoría de la Junta Directiva o a solicitud de dos o más de las Uniones integrantes autorizado por sus juntas directivas, para tratar asuntos específicos de pronta solución.

@@ -1,1 +1,0 @@
-Artículo 12.-Acto seguido se someterá a conocimiento de la Asamblea el Proyecto de Estatuto previamente aprobado por la Unidad Legal y de Registro de esta Dirección. Deberá ser aprobado por mayoría de votos presentes.

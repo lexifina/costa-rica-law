@@ -1,1 +1,0 @@
-Artículo 47.-Corresponde a la Dirección coordinar el funcionamiento de las Federaciones dentro del plan Nacional de Desarrollo de la Comunidad, lo 'mismo que la acción con los organismos gubernamentales relacionados con las Federaciones como cuanto a los medios necesarios para impulsar el desarrollo comunal, regional o nacional.

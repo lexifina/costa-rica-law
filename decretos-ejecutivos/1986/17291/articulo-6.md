@@ -1,1 +1,0 @@
-Artículo 6°-Los funcionarios encargados de hacer los estudios anteriores, conjuntamente, verterán un informe a la Dirección externando su opinión concreta referente a la conveniencia de constituirla y posibilidades de funcionamiento.

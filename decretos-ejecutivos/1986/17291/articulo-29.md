@@ -1,1 +1,0 @@
-Articulo 29.-Los miembros de la Junta Directiva serán solidariamente responsables de las consecuencias derivadas de los acuerdos que tomen y los daños y perjuicios que ocacionan por la negligencia en el cumplimiento de sus deberes. Cualquiera de ellos que quiera salvar su responsabilidad, debe hacerlo constar en el acta respectiva.
