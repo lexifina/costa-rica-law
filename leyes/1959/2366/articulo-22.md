@@ -1,0 +1,1 @@
+Artículo 22.- Queda prohibido a los miembros del Comité de Selección participar con carácter personal en críticas y polémicas públicas sobre obras que se sometan o se hayan sometido a su juicio, pero sí podrá intervenir el Comité como cuerpo.
