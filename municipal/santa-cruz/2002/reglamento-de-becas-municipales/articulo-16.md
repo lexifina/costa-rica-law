@@ -1,0 +1,1 @@
+Artículo 16.—Una vez acordada la aprobación de la lista de becados por el Concejo Municipal, la Secretaría Municipal comunicará a cada institución educativa la nómina de becados con su respectivo duplicado para ser devuelta como recibido por el Departamento de Orientación.

@@ -1,0 +1,1 @@
+Artículo 7°—La Comisión de Educación cada año asignará según el presupuesto municipal la cantidad de becas a cada distrito del cantón, a fin de que sean directamente la Municipalidad e Institución la que recomienden y entreguen a los beneficiarios los recursos.

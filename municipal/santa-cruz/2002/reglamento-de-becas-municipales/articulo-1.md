@@ -1,0 +1,3 @@
+La Municipalidad de Santa Cruz, de conformidad con las atribuciones que le confiere los artículos 4º, 13, 43, 62 párrafo 2 del Código Municipal, emite el siguiente
+Reglamento de Becas
+Artículo 1°—La Municipalidad, otorgará becas trimestralmente a estudiantes de escasos recursos económicos, consistentes en dinero. El estudio, reconocimiento y la definición del monto a asignar por mes a cada beneficiario será realizado por la Comisión de Educación Municipal, la cual emitirá un dictamen con el listado de becados al Concejo para su aprobación, modificación o improbación, requiriendo para esos efectos una votación de mayoría simple.

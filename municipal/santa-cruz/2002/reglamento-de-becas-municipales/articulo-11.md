@@ -1,0 +1,1 @@
+Artículo 11.—El estudiante que goce del beneficio de beca deberá entregar a la Secretaría Municipal trimestral de acuerdo en la institución que estudie, una copia de su nota o reporte de calificaciones, además de una certificación o constancia emitida por el Departamento de Orientación o Registro de cada institución.
