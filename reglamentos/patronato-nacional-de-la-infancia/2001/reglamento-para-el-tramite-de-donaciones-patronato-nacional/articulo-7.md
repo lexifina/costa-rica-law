@@ -1,0 +1,7 @@
+Artículo 7°—Cuando se trate de donaciones de bienes inmuebles, se aplicara el siguiente procedimiento:
+a) La Presidencia Ejecutiva elevará la documentación de la donación a la Junta Directiva para su aprobación.
+b) Una vez aprobada la aceptación de la donación y el destino de l misma por parte de la Junta Directiva, el responsable del Área Administrativa deberá llenar el formulario "Boleta Control de Donaciones", con todos los datos requeridos (original y copia). La copia de la boleta se le entregara al donante y el original quedará e poder del Área Administrativa.
+c) La Asesoría Jurídica deberá elaborar una acta de donación en la cual se detalle las calidades del donante, las características de la donación y el uso que se le dará a la misma. Dicha acta debe ser firmada por la Presidencia Ejecutiva y el donante (original y dos copias). Una copia del acta se le entregara al donante, otra copia para el Área Administrativa y el original quedara en poder de la Asesoría Jurídica.
+d) La Asesoría Jurídica realizará todos los trámites legales necesarios para que las donaciones de bienes inmuebles queden debidamente inscritas a nombre del Patronato Nacional de la Infancia.
+Deberá remitir copia de toda la documentación respectiva al Área Administrativa para los controles correspondientes.
+e) El responsable del Área Administrativa dispondrá de la donación, de acuerdo al destino indicado en el acta de donación.

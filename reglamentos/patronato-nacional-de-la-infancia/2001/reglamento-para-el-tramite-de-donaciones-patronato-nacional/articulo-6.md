@@ -1,0 +1,7 @@
+Artículo 6°—Cuando se trate de una donación sin destino específico excepto Bienes inmuebles, se aplicara el siguiente procedimiento:
+a) El responsable del Área Administrativa o el Jefe de la Oficina Local remitirá un oficio a la Presidencia Ejecutiva para solicitarle la aceptación de la donación y el destino que se le dará a la misma.
+b) Una vez aprobada la aceptación de la donación y establecido el destino de la misma por parte de la Presidencia Ejecutiva, el responsable del Área Administrativa deberá llenar el formulario "Boleta de Control de Donaciones", con todos los datos requeridos (original y copia). La copia de la boleta se le entregara al donante y el original quedara en poder del Área Administrativa.
+c) El responsable del Área Administrativa deberá elaborar una acta de donación en el cual se detalle las características de la donación y el uso que se le dará a la misma. Dicha acta deber ser firmada por el responsable del Área Administrativa y el donante (original y copia) La copia del acta se le entregará al donante y el original quedara en poder del Área Administrativa.
+d) El responsable del Área Administrativa dispondrá de la donación de acuerdo al destino indicado en el acta de donación.
+e) Cuando el donante requiera deducir de impuestos el monto de la donación, deberá presentar los documentos probatorios del valor de la misma.
+f) Para donaciones sin destino específico y cuyo valor supere los 3.000.000,00 se procederá a establecer un convenio aprobado por La Junta Directiva firmado por la Presidencia Ejecutiva.

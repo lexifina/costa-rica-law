@@ -1,0 +1,2 @@
+Artículo 9°—El Área de Administración deberá llevar un registro actualizado de las donaciones efectuadas a la Institución, el cual consistirá en los datos generales del donante, indicación del bien o servicio donado, ubicación o destino, valor estimado, cuando no se trate de dinero y demás datos que se consideren necesario para su efectivo control.
+El Área de Administración deberá enviar a la Contabilidad y a la Auditoría Interna toda la información debidamente actualizada de dicho registro para lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 8°—Todo funcionario de la institución que requiera solicitar algún tipo de donación a otras organizaciones públicas o privadas. Deberá obtener la debida autorización de la Presidencia Ejecutiva o en su defecto de la Gerencia de Administración, lo cual se hará a través de la Gerencia de Administración, lo cual se hará a través del Coordinador del Área de Administración.

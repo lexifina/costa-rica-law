@@ -1,0 +1,1 @@
+Artículo 13.—Sin perjuicio de la utilización oportuna de los recursos donados la Institución, como bienes públicos están sujetos a los controles oficiales que las leyes determinen. Así mismo, los funcionarios encargados de los trámites de donación y recepción de las mismas, responderán administrativa, civil y penalmente por su gestión.
