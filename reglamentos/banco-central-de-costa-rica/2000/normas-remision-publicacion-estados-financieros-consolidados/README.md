@@ -14,3 +14,4 @@ Normas Remisión Publicación Estados Financieros Consolidados e Individuales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-31 | la propia norma |
+| 2 | 2000-08-31 | Ley 7 |
