@@ -1,0 +1,1 @@
+Artículo 2°.- La compra referida la hará la Junta hasta por la suma de sesenta y dos mil ciento veinticuatro colones (¢72, 124.00), y el terreno será dedicado a una futura ampliación del Cementerio de San José.
