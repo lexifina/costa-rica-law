@@ -1,0 +1,1 @@
+Art. 11 Si algún funcionario público, eclesiástico, civil de hacienda ó militar, reusare prestar el juramento prevenido en este Decreto, por el mismo hecho queda destituido de su destino, y debe salir del territorio del Estado.
