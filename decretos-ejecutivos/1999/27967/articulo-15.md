@@ -1,0 +1,1 @@
+Artículo 15.—El presente decreto únicamente establece los trámites y requisitos de visado de planos para la construcción concernientes al Estado, sus instituciones y empresas; no así lo relativo a las municipalidades, entidades que continuaran siendo las competentes para otorgar los permisos de construcción respectivos.
