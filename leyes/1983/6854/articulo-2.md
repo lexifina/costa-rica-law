@@ -1,0 +1,1 @@
+Artículo 2°-Comisiónase a la Notaría del Estado para la confección de la escritura de traspaso, exenta de todo tipo de derechos, timbres y tasas nacionales y municipales, así como del pago de honorarios.
