@@ -14,3 +14,4 @@ Se prohíbe la fabricación, importación, tráfico, venta y uso de todos los in
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-10-03 | la propia norma |
+| 2 | 1988-10-03 | SINALEVI (sin norma nombrada) |
