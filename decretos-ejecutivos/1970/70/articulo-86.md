@@ -1,2 +1,2 @@
-Artículo 86.-Se formará quórum con la asistencia de por lo menos cuatro miembros de la Comisión , la cual tomará sus resoluciones válidamente con el voto de la mayoría de los concurrentes. En caso de empate, el Presidente tendrá derecho a doble voto o a posponer la resolución para la sesión a que asista número impar de miembros.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 3192 del 23 de agosto de 1973).
+Artículo 86.-Se formará quórum con la asistencia de por lo menos cinco miembros de la Comisión , la cual tomará sus resoluciones válidamente con el voto de la mayoría de los concurrentes. En caso de empate, el Presidente tendrá derecho a doble voto o si, lo estimare conveniente, a posponer la resolución respectiva para la sesión a que asista número impar de miembros.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 4550 del 10 de febrero de 1975).
