@@ -1,0 +1,1 @@
+Artículo 20.—La Comisión Municipal efectuará la adjudicación de puestos mediante remate público, para la cual deberá publicarse un aviso en uno de los periódicos de mayor circulación, o en su defecto por medio de "cuñas" radiales. Cada puesto deberá adjudicarse al mejor postor.

@@ -1,0 +1,1 @@
+Artículo 8º—Realización de la Feria. La Comisión se reunirá con los productores de la zona y el Sector Agropecuario para planificar la fecha de su realización que según decreto ejecutivo será entre los meses de marzo y abril.

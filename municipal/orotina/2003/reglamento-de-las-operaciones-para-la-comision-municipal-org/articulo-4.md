@@ -1,0 +1,1 @@
+Artículo 4º—Dietas. Los integrantes tendrán derecho al pago de dietas, las cuales se pagarán de acuerdo al artículo Nº 25. La Municipalidad incorporará a su presupuesto desde el año anterior, el pago de las dietas de los miembros de esta comisión y el salario del Director Ejecutivo de la misma.

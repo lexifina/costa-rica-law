@@ -1,0 +1,1 @@
+Artículo 7º—Utilidades. De las utilidades obtenidas cada año de la Feria Nacional de las Frutas, se llevará a cabo el presupuesto indicado en el artículo 6º. El sobrante se destinará a obras comunales por medio de proyectos que deben ser presentados y aprobados por el Concejo Municipal.

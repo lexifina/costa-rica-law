@@ -1,0 +1,1 @@
+Artículo 9º—Instalaciones del Campo Ferial. Una vez nombrada la Comisión Organizadora de la Feria Nacional de la Fruta, ésta a través del Concejo Municipal coordinará la utilización de las instalaciones con la Junta Administradora del Campo Ferial; para las reuniones previas y posteriores a ésta, así como cualquier evento para la buena marcha de la organización de esta feria.

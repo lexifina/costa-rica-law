@@ -1,0 +1,1 @@
+Artículo 2º—Requisitos. Las personas que integran dicha comisión serán personas de reconocida honorabilidad, abnegado trabajo comunal, que no tengan causas pendientes en los Tribunales de Justicia, y un año de residencia en el cantón, aplíquese lo establecido en el artículo 127 del Código Municipal.
