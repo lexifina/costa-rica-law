@@ -1,0 +1,1 @@
+Artículo 25.—Sugerencias de las partes para la Resolución del Conflicto. Cada una de las partes, a iniciativa propia o a invitación del conciliador, deberá presentar a éste sugerencias que satisfagan los intereses de ambas partes para la resolución del problema.

@@ -1,0 +1,7 @@
+Artículo 9º—Tarifas. El solicitante de los servicios de conciliación deberá acompañar su solicitud con la tarifa vigente establecida en este artículo. Esta tarifa será determinada en función al salario mínimo mensual de un Trabajador Especializado Genérico cuyo monto se establece en el Decreto Ejecutivo del Ministerio de Trabajo y Seguridad Social, que determina los montos por concepto de salarios mínimos y que son publicados en el diario oficial La Gaceta. Esta tarifa se establece de la siguiente forma para cada una de las partes:
+a) Primera audiencia: Un doce por ciento del salario mínimo de un Trabajador Especializado.
+b) De dos a tres audiencias: Un siete por ciento del salario mínimo de un Trabajador Especializado.
+c) De cuatro a diez audiencias: Un doce por ciento del salario mínimo de un Trabajador Especializado.
+d) Después de la décima audiencia: Un quince por ciento del salario mínimo de un Trabajador Especializado.
+Asimismo, la parte que acepta la conciliación deberá consignar la misma cantidad al momento de la aceptación del servicio. Las cantidades consignadas por las partes, serán deducidas de los costos administrativos establecidos para las conciliaciones. En ningún supuesto habrá devolución de las sumas consignadas.
+Si por alguna razón, una de las partes no puede asistir a la audiencia convocada y no lo comunica al Centro de Resolución de Conflictos con veinticuatro horas de antelación, deberá pagar un tres por ciento del salario mínimo de un Trabajador Especializado.

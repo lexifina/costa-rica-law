@@ -1,0 +1,2 @@
+Artículo 22.—Comunicación entre el Conciliador y las partes.
+El conciliador invitará a las partes a reunirse con él o se comunicará con ellas oralmente o por escrito, en forma conjunta o con cada una de ellas por separado. El lugar en que se llevarán a cabo las audiencias de conciliación es el Colegio Federado , salvo que el Centro de Resolución de Conflictos disponga sobre la conveniencia de reunirse en otro lugar y las partes de común acuerdo lo acepten.

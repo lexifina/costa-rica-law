@@ -1,0 +1,3 @@
+Artículo 44.—Laudo. El tribunal arbitral deberá emitir el laudo en el plazo correspondiente. En caso de tres árbitros, el laudo deberá dictarse por unanimidad o por mayoría de votos. Cuando por alguna razón no se contare con mayoría, el presidente del tribunal contará con doble voto.
+El laudo se dictará por escrito y será definitivo, inapelable y obligatorio para las partes, debiendo estas cumplirlo sin demora.
+El laudo se emitirá en tres tantos originales, deberá exponer todas las razones de fondo, deberá estar firmado por el tribunal arbitral e indicará la fecha y el lugar. El Centro de Resolución de Conflictos entregará a las partes copia del laudo final.
