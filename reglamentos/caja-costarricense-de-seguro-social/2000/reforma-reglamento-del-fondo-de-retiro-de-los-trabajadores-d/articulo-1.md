@@ -1,0 +1,8 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+JUNTA DIRECTIVA
+La Junta Directiva de la Caja Costarricense de Seguro Social en el artículo 3° de la sesión 7450, celebrada el 15 de junio del año en curso, dispuso agregar un Transitorio II al Reglamento del Fondo de Retiro de los Trabajadores, para que en adelante se lea así:
+REGLAMENTO DEL FONDO DE RETIRO DE LOS EMPLEADOS
+DE LA CAJA COSTARRICENSE DE SEGURO SOCIAL
+"TRANSITORIO II.—Créase una reserva inicial por la suma de 2.457 millones de colones en el Fondo de Retiro de los Trabajadores de la Caja Costarricense de Seguro Social (FRE), con el fin de garantizar la recuperación de los recursos de los Seguros Sociales, en caso de que el arreglo de pago, respecto de los juicios en adelante detallados, por una eventual deuda del ("bono de garantía") acordado para todos los trabajadores de la Caja Costarricense de Seguro Social, en servicio, fuese ganado por la Caja:
+Los juicios son de Francisco Gómez A. y otros contra la Caja Costarricense de Seguro Social, número 96-140-8-215-LA, en trámite (no hay sentencia de primera instancia) y Freddy Aguirre y otros contra la Caja Costarricense de Seguro Social, número 96-1225-215-LA, en trámite, con sentencia de primera instancia estimatoria número 13671 de las 14,20 horas del 22 de marzo del 2000; se presentó recurso de apelación que actualmente pende de trámite ante el Tribunal Superior de Trabajo Segundo Circuito Judicial de San José.
+La Dirección Actuarial y de Planificación Económica realizará periódicamente evaluaciones para determinar la suficiencia de la reserva y recomendará a la Junta Directiva los ajustes que la misma requiera".
