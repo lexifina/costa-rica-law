@@ -1,0 +1,8 @@
+ARTICULO 8
+Tan pronto como las ratificaciones de dos Miembros de la
+Organización Internacional del Trabajo hayan sido registradas en la
+Oficina Internacional del Trabajo, el Director General de la Oficina
+notificará el hecho a todos lo Miembros de la Organización Internacional
+del Trabajo. Igualmente les notificará el registro de las
+ratificaciones que le comuniquen posteriormente los demás Miembros de
+la Organización.
