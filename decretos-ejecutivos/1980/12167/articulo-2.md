@@ -1,0 +1,1 @@
+Artículo 2°─ Este decreto deroga todos los anteriores que hayan modificado la lista de mercancías gravadas con los Impuestos Selectivos de Consumo, excepto aquellos que autorizan o establecen exenciones de dicho impuesto en razón del destino de las mercancías.
