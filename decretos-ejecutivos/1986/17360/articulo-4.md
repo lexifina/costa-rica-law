@@ -1,0 +1,1 @@
+Artículo 4°-La Dirección General de Aduanas brindará la colaboración que esta Comisión Asesora requiera para el cumplimiento de sus funciones. Asimismo ésta podrá solicitar la colaboración de cualquier dependencia pública para obtener mejor resultado en su gestión.
