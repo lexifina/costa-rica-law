@@ -1,0 +1,1 @@
+Artículo 3°─ Los salarios mínimos fijados en este decreto son referidos a la jornada ordinaria de acuerdo con lo estipulado en el capítulo segundo del título tercero del Código de Trabajo, con excepción de aquellos casos en los que se indique, específicamente, que están referidos a otra unidad de medida.
