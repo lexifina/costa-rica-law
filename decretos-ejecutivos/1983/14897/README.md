@@ -14,3 +14,4 @@ Emergencia Nacional Carreteras Piedades Sur-San Ramón y Tilarán-ArenalNuevo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-01-06 | la propia norma |
+| 2 | 1984-01-06 | Decreto Ejecutivo 15218 (1984-02-01) |
