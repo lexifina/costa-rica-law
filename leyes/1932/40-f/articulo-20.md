@@ -1,0 +1,2 @@
+Artículo XX
+Desde el aterrizaje o acuatizaje en cualquier punto hasta la partida de una aeronave extranjera, las autoridades del Estado visitado tendrán en todo caso el derecho de visitar y examinar la aeronave y de verificar todos los documentos de que debe estar provista, con el objeto de comprobar si han sido cumplidas todas las leyes y reglamentos de dicho Estado y todas las estipulaciones de la presente Convención.

@@ -1,0 +1,2 @@
+Artículo IV
+Cada uno de los Estados contratantes se obliga a conceder en tiempo de paz libertad de paso inofensivo por su espacio aéreo a las aeronaves privadas de los otros Estados contratantes, siempre que se observen las condiciones establecidas en la presente Convención. Las reglas establecidas por un Estado contratante para la admisión sobre su territorio de las aeronaves que proceden de los demás Estados contratantes, deben ser aplicadas sin distinción de nacionalidad.

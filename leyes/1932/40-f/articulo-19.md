@@ -1,0 +1,3 @@
+Artículo XIX
+Con excepción a las disposiciones generales las aeronaves postales y las pertenecientes a compañías de transportes aéreos debidamente constituidas y autorizadas, podrán ser exoneradas a opción del Estado subyacente de aterrizar o acuatizar en el aeródromo o puerto aéreo designado para su entrada, y permitírseles aterrizar en ciertos aeródromos en el interior designados para ese efecto por las autoridades de aduanas y policía de dicho Estado, en el cual deben cumplirse la formalidades de aduana.
+Tales aeronaves, sin embargo, deberán seguir la ruta aérea normal y deberán hacerse reconocer cuando atraviesen la frontera, por medio de las señales convenidas.
