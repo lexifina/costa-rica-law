@@ -1,0 +1,1 @@
+Artículo 3°.- Servirá de garantía el producto de tres cuartos por ciento del impuesto del café que se produzca en el cantón durante el término de diez años y que directamente debe percibir la Municipalidad de acuerdo con el artículo 3° de la Ley N°1141 (26) de 2 de marzo de 1950.
