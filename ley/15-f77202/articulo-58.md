@@ -1,2 +1,0 @@
-Carácter de la facultad judicial
-Artículo 58.-Es facultativo para los jueces y tribunales que hayan de formular la condena, el suspender su cumplimiento en Ias circunstancias expresadas en el artículo 57; pero si además de ocurrir éstas, el caso estuviere calificado por una causa eximente compleja en la cual sólo faltaré uno de sus requisitos, o el delincuente fuere un mayor de diez años que no haya llegado a los diez y seis, o un sordomudo, la suspensión tendrá que decretarse.

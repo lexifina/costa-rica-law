@@ -1,1 +1,0 @@
-Artículo 5°-Los reos que deban descontar su condena en el presidio de San Lucas o del Caño no podrán ser sacados de él para que descuenten su pena en trabajos públicos. Queda así modificada la ley de 15 de junio de 1916.

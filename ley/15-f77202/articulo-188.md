@@ -1,3 +1,0 @@
-Prolongación de Ias penas por una cuarta parte más
-Artículo 188.-Las penas de presidio temporal y prisión implican la posibilidad de retención del penado en el establecimiento por un tiempo igual a la cuarta parte del fijado en la sentencia, si cupiere dentro del máximo Iegal de la pena más un tercio, y esa retención se hará efectiva, cuando en la segunda mitad de su condena hubiere observado notable mala conducta, ya en hábitos perversos, ya resistiéndose al trabajo o incurriendo en graves faltas de disciplina.
-Si dicha cuarta parte no cupiere en el máximum de ley aumentado en un tercio, la retención sólo comprenderá el tiempo que lo complete.

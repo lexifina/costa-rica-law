@@ -1,1 +1,0 @@
-Artículo 4°. — Los maestros que por leyes especiales estén gozando de alguna pensión de retiro pueden acogerse a la presente ley siempre que tengan derecho de acuerdo con lo que prescribe el artículo segundo, haciendo por escrito la manifestación del caso al Ministerio de Instrucción Pública.

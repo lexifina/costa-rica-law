@@ -1,2 +1,0 @@
-Libre de registro de la conducta de los penados
-Artículo 108.-En cada establecimiento penal debe llevarse con tas formalidades indispensables para su autenticidad, un registro diario del comportamiento de los reclusos, en el que se anotarán en su fecha las notas que respecto de su conducta, disposición y empeño para el trabajo, índole que en ellos se revele y demás observaciones relativas a su estado moral, deben dar los guardianes al Jefe o Director de la prisión, así como los castigos disciplinarios que se impusieren, con expresión de las causas que los hayan motivado.

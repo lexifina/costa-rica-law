@@ -1,2 +1,0 @@
-Lesiones graves
-Artículo 239.-Se impondrá prisión en sus grados segundo a cuarto, si la lesión o daño produjera una debilitación permanente en la salud, o de un sentido o de un órgano o miembro importante, o una dificultad permanente de la palabra; o si hubiere puesto en peligro la vida del ofendido, le hubiere inutilizado para el trabajo por más de un mes o le hubiere dejado contrahecho o con una deformación permanente en el rostro.

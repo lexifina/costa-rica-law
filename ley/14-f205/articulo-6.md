@@ -1,1 +1,0 @@
-Artículo 6°-El artículo 4° de dicha ley se leerá así: “El trabajo de los reos que se aprovechen en obras públicas fuera del presidio o cárcel podrá ser retribuido en la forma y tanto que determine el Poder Ejecutivo.”

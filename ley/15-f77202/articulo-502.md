@@ -1,2 +1,0 @@
-Moneda y títulos extranjeros sin curso legal
-Artículo 502.-Si la falsedad, cercenamiento o alteración se hicieren respecto de monedas extranjeras, que no tengan curso legal en la República, o respecto de billetes de banco, títulos de deuda pública, títulos al portador y documentos de crédito extranjeros, las penas señaladas a los casos respectivos en Ios artículos 497, 498 y 499 se aplicarán con descenso de uno o dos grados.

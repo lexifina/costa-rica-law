@@ -1,2 +1,0 @@
-Ignorancia y error
-Artículo 19.-Contra la imputación de un hecho punible carece de valor jurídico la alegación de ignorancia de la Iey o de error acerca de sus disposiciones; pero ,si se tratare de delitos o faltas de mera creación legal, como los de contrabando o los que se refieren a leyes de carácter preventivo, los tribunales podrán apreciar la ignorancia o el error con efecto atenuante y aun con el valor de exención de responsabilidad, según las circunstancias evidentes de la especie.

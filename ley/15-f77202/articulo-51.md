@@ -1,2 +1,0 @@
-Otros casos de homicidio o lesión por ilegítimo concúbito
-Artículo 51.-El padre o el hermano que matare o lesionare a su hija o hermana soltera, de buena reputación, o al cómplice o a ambos en el acto de sorprenderles en ilegítimo concúbito, podrán ser declarados por los jueces exentos de responsabilidad, según las circunstancias particulares del hecho, y cuando así no lo decidieren, estimarán el caso para todos sus efectos penales, al igual del definido en el inciso tercero del artículo 36.

@@ -1,1 +1,0 @@
-Artículo 253.-El combatiente que faltare en daño de su adversario a las condiciones ajustadas por los padrinos, sufrirá por la muerte o las lesiones, que cause, las penas señaladas en el artículo 252, aumentadas en uno o dos grados.

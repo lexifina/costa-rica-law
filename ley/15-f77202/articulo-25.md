@@ -1,2 +1,0 @@
-Tentativa de dudosa clasificación
-Artículo 25.-Si en el caso de tentativa, no resultaré indicado de modo indudable el delito que se proponía ejecutar el culpable a causa de Ia indeterminación de Ios hechos o circunstancias, se presumirá que sus actos se dirigían a cometer el de menor gravedad entre aquellos a que racionalmente quepa juzgar que podían ser encaminados; pero tratándose de un reincidente, se estimará que su intento iba dirigido a la consumación de un atentado de igual especie al de la anterior condena.

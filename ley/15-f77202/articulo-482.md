@@ -1,3 +1,0 @@
-Negociaciones indebidas
-Artículo 482.-Se pronunciará multa del diez al sesenta por ciento de la parte que hubiere tomado en el negocio, e inhabilitación absoluta temporal en sus grados cuarto a sexto, contra el funcionario público que directamente o por persona interpuesta o por acto simulado, se interesare en cualquier contrato u operación en que, por razón de su cargo, intervenga.
-Esta disposición es aplicable a los peritos, respecto de los bienes en cuya tasación o distribución hubieren intervenido y a los tutores, curadores, Iiquidadores y albaceas respecto de los pertenecientes a pupilos, inhábiles, concursos, quiebras o testamentarías.
