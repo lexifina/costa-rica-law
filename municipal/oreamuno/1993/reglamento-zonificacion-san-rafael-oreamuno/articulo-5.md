@@ -1,0 +1,6 @@
+Artículo 5: Certificado de zona
+A solicitud de cualquier interesado, la Municipalidad emitirá un "certificado de zona" en el cual se hará constar la zona que le corresponde a determinado lote o finca. Este certificado será exigido en los siguientes casos:
+5.1. Para efectos de segregaciones, el certificado de zona será exigido para el visado municipal y deberá constar en este que ha sido debidamente conocido por el abogado que realiza la escritura y el oficio del Registro Público.
+5.2. Para los efectos de permisos de construcción, ampliación, remodelación o reconstrucción de edificios o urbanizaciones, el certificado de zona debe obtenerse previamente y no se permitirán planos visados por otros organismos públicos, como por Ministerio de Salud y la Dirección de Urbanismo si no consta en el certificado que el mismo ha sido exhibido y debidamente conocido por los entes públicos respectivos.
+5.3. Para los efectos de solicitud de uso condicional (cambio), será también exigido por la Municipalidad el certificado de zona ya revisado por la Dirección de Urbanismo del ÍNVU.
+5.4 Por su parte, la Municipalidad podrá exigir, discrecionalmente, remodelación, ampliación o reconstrucción de un uso no conforme, el certificado de zona para los efectos de concesión de patentes, visado de escrituras o cualesquiera otros.

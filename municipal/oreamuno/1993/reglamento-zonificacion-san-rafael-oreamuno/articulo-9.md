@@ -1,0 +1,2 @@
+Artículo 9: Niveles
+El nivel de desagüe de las aguas pluviales y servidas, como también el nivel de piso terminado base de las construcciones nuevas, deberá ser aprobado por la oficina de Ingeniería Municipal, pudiendo a la vez, indicar para cada caso requisitos especiales para la canalización de aguas pluviales o servidas de la calle y en el caso de carreteras, por el respectivo departamento del MOPT.
