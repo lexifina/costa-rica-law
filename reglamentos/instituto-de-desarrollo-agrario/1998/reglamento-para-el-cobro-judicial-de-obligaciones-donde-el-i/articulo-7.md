@@ -1,0 +1,1 @@
+7°—Todo arreglo judicial debe ser autorizado previamente por la presidencia ejecutiva o a quién este determine, en todo caso de arreglo el IDA deberá recuperar de inmediato lo gastado por concepto de costas procesales, gasto y honorarios.

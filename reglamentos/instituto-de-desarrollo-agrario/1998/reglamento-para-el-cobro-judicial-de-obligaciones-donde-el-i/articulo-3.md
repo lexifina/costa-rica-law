@@ -1,0 +1,1 @@
+3°—La presidencia ejecutiva o a quién este determine, luego de analizar el expediente procederá a ordenar, de acuerdo a su criterio una gestión administrativa de cobro o en su defecto el cobro judicial de la obligación.

@@ -1,0 +1,1 @@
+2°—Los jefes de los departamentos de caja agraria, arrendamientos y recuperación de inversiones, trasladaran a la presidencia ejecutiva o a quién este determine, los expedientes completos de las operaciones que deben ser puestas al cobro judicial.
