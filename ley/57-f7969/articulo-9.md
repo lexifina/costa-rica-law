@@ -1,0 +1,1 @@
+Art 9° El artículo 1° de esta ley que contiene el arancel de los derechos de Aduana, comenzará a surtir sus efectos desde el día primero del mes de Setiembre del corriente año, y desde entonces quedará derogada la número 27 de 12 de noviembre de 1862, y también las demás disposiciones, que se opongan a la presente.
