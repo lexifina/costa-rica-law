@@ -1,0 +1,1 @@
+ARTÍCULO 5.- Cada año el Ministerio de Educación deberá establecer un presupuesto especial para el Programa Nacional de Educación contra las Drogas, el cual incorpore las principales actividades por realizar, el costo respectivo y los resultados esperados del programa durante el año.
