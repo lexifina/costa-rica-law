@@ -12,3 +12,4 @@ Reglamento Ley Orgánica Ministerio Economía,Industria y Comercio (1977
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-09-20 | la propia norma |
+| 2 | 1977-09-20 | SINALEVI (sin norma nombrada) |
