@@ -1,13 +1,3 @@
-ARTICULO 91.- Será sancionado con multa de veinte mil colones
-(¢20.000) a cuarenta mil colones (¢40.000), convertible en pena de
-prisión de dos a cuatro meses y con el comiso de las piezas que
-constituyen el producto de la infracción, quien importe o exporte, sin
-autorización, la flora silvestre, declarada en peligro de extinción por
-el Poder Ejecutivo o incluida en los apéndices de la Convención sobre el
-Comercio Internacional de Especies Amenazadas de Flora y Fauna Silvestre,
-sus productos o subproductos. Si se tratare de la exportación de
-productos o subproductos de árboles maderables en peligro de extinción e
-incluidos en los apéndices de la Convención sobre el Comercio
-Internacional de Especies Amenazadas de Fauna y Flora Silvestres (CITES),
-la multa será de treinta (¢30.000) a cincuenta mil colones (¢50.000),
-convertible en pena de prisión de tres a seis meses.
+ARTICULO 91.-
+Será sancionado con multa de sesenta y dos mil ciento cincuenta y ocho colones netos (¢62.158,00) a ciento veintiséis mil ciento setenta y nueve colones netos (¢126.179,00), convertible en pena de prisión de dos a cuatro meses y con el comiso de las piezas que constituyen el producto de la infracción, quien importe o exporte, sin autorización, la flora silvestre, declarada en peligro de extinción por el Poder Ejecutivo o incluida en los apéndices de la Convención sobre el Comercio Internacional de Especies Amenazadas de Flora y Fauna Silvestre, sus productos o subproductos. Si se tratare de la exportación de productos o subproductos de árboles maderables en peligro de extinción e incluidos en los apéndices de la Convención sobre el Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestres (CITES), la multa será de noventa y cuatro mil doscientos treinta y cinco colones netos (¢94.235,00) a ciento cincuenta y seis mil trescientos noventa y dos colones netos (¢156.392,00) convertible en pena de prisión de tres a seis meses.
+(Así actualizados los montos por el artículo 1° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)

@@ -1,12 +1,6 @@
-ARTICULO 98.- Será sancionado con una multa de cincuenta mil colones
-(¢50.000) a cien mil colones (¢100.000), convertible en pena de prisión
-de uno a dos años y con el comiso del equipo utilizado y de los animales
-que constituyan el producto de la infracción, quien cace animales
-silvestres en peligro de extinción, sin el permiso correspondiente de la
-Dirección General de Vida Silvestre del Ministerio de Ambiente y Energía.
-La pena será de veinte mil colones (¢20.000) a cuarenta mil colones
-(¢40.000), convertible en pena de prisión de cuatro a ocho meses y con el
-comiso del equipo utilizado y de los animales respectivos, cuando se
-trate de animales declarados con poblaciones reducidas.
-(Así modificado el nombre del Ministerio por el artículo 116 de la
-Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)
+ARTICULO 98.-
+Será sancionado con una multa de ciento cincuenta y ocho mil ciento veintitrés colones netos (¢158.123,00) a trescientos dieciséis mil trescientos setenta y nueve colones netos (¢316.379,00), *(convertible en pena de prisión de uno a dos años) y con el comiso del equipo utilizado y de los animales que constituyan el producto de la infracción, quien cace animales silvestres en peligro de extinción, sin el permiso correspondiente de la Dirección General de Vida Silvestre del Ministerio de Ambiente y Energía.
+La pena será de sesenta y dos mil ciento cincuenta y ocho colones netos (¢62.158,00) a ciento veintiséis mil ciento setenta y nueve colones netos (¢126.179,00), convertible en pena de prisión de cuatro a ocho meses y con el comiso del equipo utilizado y de los animales respectivos, cuando se trate de animales declarados con poblaciones reducidas.
+(Así modificado el nombre del Ministerio por el artículo 116 de la Ley Orgánica del Ambiente No.7554 del 4 de octubre de 1995)
+(*) Por Resolución de la Sala Constitucional N° 6306 de las diez horas treinta y tres minutos del 03 de julio del 2003, se anula la frase de este artículo que dispone: " ... convertible en pena de prisión de uno a dos años ... " .
+(Así actualizados los montos por el artículo 1° del decreto ejecutivo N° 32732 del 7 de marzo del 2005)
