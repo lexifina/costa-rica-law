@@ -1,0 +1,3 @@
+CAPÍTULO 3
+De los Abogados
+Artículo 13.—Los abogados que se contraten para realizar el cobro judicial se hará por servicios profesionales y técnicos. Estos nombramientos serán temporales y sin sujeción laboral y no generarán ningún beneficio contemplados en Reglamentos, convenios simples o convenciones colectivas negociados por los empleados permanentes de la Municipalidad. El nombramiento se hará con cargo a la subpartida presupuestaria correspondiente, su base legal es el artículo número 67 de la Ley de la Contratación Administrativa, Ley número 7794 y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 11.—La distribución de las cuentas atrasas se hará en forma aleatoria mediante un programa de cómputo. No se tomará en cuenta aquellos abogados que se encuentren suspendidos por incumplimiento de las disposiciones de este Reglamento.

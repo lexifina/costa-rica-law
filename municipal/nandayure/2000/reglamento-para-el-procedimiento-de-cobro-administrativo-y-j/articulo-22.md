@@ -1,0 +1,1 @@
+Artículo 22.—Los abogados que por alguna razón personal deseen dejar de servir a la Municipalidad, deberán de comunicar esa decisión con treinta días de antelación al Alcalde y enviar la totalidad de los expedientes y aquellos documentos judiciales para la atención de la unidad de cobro de la Municipalidad, en un plazo no mayor de 15 días hábiles.
