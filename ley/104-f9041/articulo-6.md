@@ -1,0 +1,1 @@
+Art. 6. Despues seguirá el Cuerpo Municipal, presidido por el Gobernador; y en su seno, despues del Alcalde 1° se dará asiento de huesped á cualquier funcionario, oficiales superiores personas de representación.
