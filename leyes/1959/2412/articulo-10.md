@@ -1,4 +1,4 @@
-Artículo 10.- Esta ley es de orden público y se aplicará desde su
+ARTÍCULO 10.- Esta ley es de orden público y se aplicará desde su
 publicación.
 Transitorio 1º.- La aplicación de esta ley se hará en la siguiente
 forma:
@@ -34,6 +34,13 @@ contrato con el Estado, están exentas de declarar rentas en el país,
 siempre que el ingresos que les hubiera sido gravado si no lo amparara
 contrato, excediera de ¢ 300,000.00 y su planilla de aguinaldo no subiera
 del 20% de esa cifra dicha.
+No tendrá tampoco aplicación el transitorio anterior a las
+cooperativas y otros organismos que estén exentos del pago del impuesto
+de la renta que obtengan excedentes o utilidades netas al año mayores de
+trescientos mil colones (¢ 300,000.00).
+Esta norma se aplicará a partir de 1960.
+(Así adicionado este párrafo final por el artículo 1º de la ley
+No.2636 de 3 de octubre de 1960)
 Transitorio 3º.- Cuando el monto de la planilla a pagar por concepto
 de aguinaldo fuere mayor que ese 20% fijado en el transitorio anterior, el
 patrono pagará a los trabajadores, en proporción a sus sueldos, hasta ese
