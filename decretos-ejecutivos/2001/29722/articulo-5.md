@@ -1,0 +1,1 @@
+Artículo 5º—Deróguense el inciso c) del artículo 24 y el Capítulo quinto "Del nombramiento del representante de los Centros Agrícolas Cantonales ante la Junta Directiva del Consejo Nacional de Producción" del Decreto Ejecutivo Nº 26639-MAG de 27 de enero de 1998.

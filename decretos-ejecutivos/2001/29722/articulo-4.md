@@ -1,0 +1,1 @@
+Artículo 4º—Corríjase la numeración asignada al Capítulo denominado "Asignación de recursos reembolsables y no reembolsables del Programa de Reconversión Productiva" correspondientes al Decreto Ejecutivo Nº 26639-MAG de 27 de enero de 1998, para que se lea correctamente "Capítulo sexto".
