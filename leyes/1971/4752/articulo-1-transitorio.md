@@ -1,0 +1,2 @@
+Transitorio.- Las prendas constituidas sobre productos industriales elaborados con el 96% o más de materia prima nacional que no requieren ser inscritas en el Registro Nacional de Prendas, o que a la fecha no lo estén, quedarán exoneradas del gravamen creado por el artículo 12, de conformidad con la segunda parte del mismo, con independencia de la fecha en que fueron suscritas.
+Casa Presidencial.-San José, a los once días del mes de mayo de mil novecientos setenta y uno.
