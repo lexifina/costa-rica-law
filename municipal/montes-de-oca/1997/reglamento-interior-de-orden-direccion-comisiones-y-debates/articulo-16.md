@@ -6,14 +6,17 @@ Atención al público
 CAPÍTULO III
 Actas
 CAPÍTULO IV
-Correspondencia
+Control Político
+(Así AMPLIADO EXPRESAMENTE por la Sesión Ordinaria No 79-2003, celebrada el 3 de noviembre de 2003, publicada en La Gaceta No 224 de 20 de noviembre de 2003.)
 CAPÍTULO V
-Informes
+Correspondencia
 CAPÍTULO VI
-Asuntos de la Presidencia Municipal
+Informes
 CAPÍTULO VII
-Asuntos de los señores Concejales
+Asuntos de la Presidencia Municipal
 CAPÍTULO VIII
+Asuntos de los señores Concejales
+CAPÍTULO IX
 Asuntos del señor Alcalde Municipal
 Aquella correspondencia que no se tramite en ese plazo, se incluirá en la sesión siguiente
 *Así reformado por acuerdo en Sesión Ordinaria N°24/2002, del 14 de octubre del 2002.
