@@ -1,0 +1,2 @@
+Artículo 39.- El pago de las vacaciones se hará con base en el promedio de los salarios ordinarios y extraordinarios devengados por el empleado durante las cincuenta semanas de trabajo o durante el tiempo que le diera el derecho proporcional a las mismas.
+La negativa injustificada del empleado a firmar la constancia de haber recibido sus vacaciones anuales, será tenida como falta grave al contrato para los efectos de su sanción.

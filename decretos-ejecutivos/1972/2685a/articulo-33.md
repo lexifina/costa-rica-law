@@ -1,0 +1,1 @@
+Artículo 33.—No obstante lo dispuesto en el artículo anterior, imponerse la sanción si el trabajador que marcó la tarjeta o registro de asistencia, o al que le marcaron la misma, informa del hecho a quien corresponda, como un error, a más tardar en el curso de la siguiente jornada de trabajo en que aquél hecho sucedió.

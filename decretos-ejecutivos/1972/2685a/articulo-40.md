@@ -1,0 +1,1 @@
+Artículo 40.- No se compensarán ni acumularán vacaciones. Sin embargo podrán acumularse por una sola vez mediante resolución razonada del Ministro de la Presidencia, en casos de necesidad a tenor de lo dispuesto por el artículo 159 del Código de Trabajo.

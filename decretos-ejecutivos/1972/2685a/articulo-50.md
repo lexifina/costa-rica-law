@@ -1,0 +1,1 @@
+Artículo 50.- La Institución se reserva el derecho de adicionar o modificar en cualquier momento las disposiciones del presente Reglamento, con sujeción en cada caso a las disposiciones legales vigentes que fueren aplicables. Dichas adiciones o reformas deberán someterse a la aprobación previa de la División de Asesoría Jurídica del Ministerio de Trabajo y Seguridad Social,
