@@ -19,8 +19,10 @@ El Acuerdo entre Costa Rica y el Eximbank, fechado 7 de febrero de 1956 se enmie
 “El tipo de interés será de cuatro y medio por ciento (4 1/2%) anual sobre cada pagaré que se extienda de acuerdo con este Convenio hasta e incluyendo el pagaré cuyo valor facial, al sumarlo a los valores faciales de todos los pagarés emitidos anteriormente de acuerdo con este Convenio hará que la suma de los valores faciales de todos los pagarés emitidos de acuerdo con este convenio, sea equivalente a nueve millones quinientos cuarenta mil dólares ($ 9.540,000.00). El tipo de interés sobre pagarés emitidos de acuerdo con este Convenio que evidencian adelantos en exceso de nueve millones quinientos cuarenta mil dólares ($ 9.540,000.00) será de cinco y un cuarto por ciento (5 1/4%) anual. El interés será computado desde la fecha de la emisión de cada pagaré sobre el saldo que se debe sobre el principal del mismo de tiempo en tiempo. y será pagadero el primer día de mayo y el primer día de noviembre de cada año comenzando con la primera fecha de estos pagos de interés que siga a la fecha de emisión”.
 3.—Agregando, después de la primera frase del párrafo segundo del Artículo III, la siguiente frase:
 “No obstante cualesquiera de las disposiciones anteriores, los pagarés serán emitidos de acuerdo con este Convenio en sumas principales, de tal manera que habrá una serie de pagarés que serán emitidos consecutivamente comenzando con el pagaré que sea emitido primeramente, y el monto total de las sumas faciales, el cual será de nueve millones quinientos cuarenta mil ‘dólares ($ 9.540,000.00)”.
-4.—Eliminando del párrafo primero de la Sección B del Artículo IV la fecha “30 de junio de 1958” y sustituyéndola con la fecha “30 de junio de 1961”.
-5.—Eliminando déla Sección (a) en el Artículo V la fecha “30 de junio de 1958” y sustituyéndola con la fecha “30 de junio de 1961”.
+4.—Eliminando del párrafo primero de la Sección B del Artículo IV la fecha “30 de junio de 1958” y sustituyéndola con la fecha “30 de junio de 1963”.
+(Así reformado el inciso anterior por el artículo 1°, inciso 1° de la ley N° 3083 del 22 de enero de 1963)
+5.—Eliminando déla Sección (a) en el Artículo V la fecha “30 de junio de 1958” y sustituyéndola con la fecha “31 de enero de 1963”.
+(Así reformado el inciso anterior por el artículo 1°, inciso 2° de la ley N° 3083 del 22 de enero de 1963)
 ARTICULO II
 Opinión Legal y Otros Documentos
 Antes de efectuarse cualquier adelanto por el Eximbank, y como condición precedente, Costa Rica entregará al Eximbank:
