@@ -1,0 +1,1 @@
+Artículo 21.—El procedimiento citado para la fijación de alquileres, estará vigente hasta que la Municipalidad de Jiménez, cancele en su totalidad el contrato de préstamo suscrito con el IFAM-BID, que financió la construcción del centro.

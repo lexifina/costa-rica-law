@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad coordinará y resolverá todos los asuntos relativos al Centro Comunitario a través del Alcalde Municipal. En caso de desacuerdo entre las partes, resolverá la Municipalidad.

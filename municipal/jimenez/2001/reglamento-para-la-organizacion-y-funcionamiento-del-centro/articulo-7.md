@@ -1,0 +1,1 @@
+Artículo 7º—Fuera de los casos expresamente autorizados por este reglamento, ninguna persona podrá permanecer dentro del Centro Comunitario después del horario fijado, exceptuando los empleados del mismo, cuadrillas de aseo o personal de vigilancia.
