@@ -1,0 +1,2 @@
+ARTÍCULO 5°
+La Compañía se reserva el derecho de no efectuar los tres viajes correspondientes de junio á diciembre, en el caso de que no sea posible conseguir carga suficiente; pero si se compromete á enviar por lo menos los cinco vapores que corresponden de enero á mayo, incluso el directo que toque en puerto inglés, aun cuando no tenga seguridad de encontrar abundancia de carga en los puertos de esta República.
