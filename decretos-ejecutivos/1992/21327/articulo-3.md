@@ -1,0 +1,1 @@
+Artículo 3° - Con el objetivo de que el comité institucional pueda cumplir con las disposiciones del presente Reglamento, todas las unidades y dependencias del Ministerio deben prestar la colaboración que se solicite.
