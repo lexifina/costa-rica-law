@@ -1,0 +1,1 @@
+Artículo 7º—Mociones. En el capítulo de mociones los regidores presentarán sus mociones y proposiciones por escrito debidamente firmadas. Dichas mociones deben ser presentadas a la secretaría 5 minutos antes de que inicie la sesión.

@@ -1,0 +1,1 @@
+Artículo 9º—Palabras consignadas en el Acta. Los regidores en ocasión del debate de un asunto o de una votación, tienen la facultad de solicitar que se haga constar sus palabras en el acta, para lo cual deberá entregar por escrito ante la Secretaría Municipal y en un término de ocho horas lo que quiere que conste en ella.
