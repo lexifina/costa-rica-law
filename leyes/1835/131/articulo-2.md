@@ -1,0 +1,1 @@
+Art 2°.- Se exceptúan las referidas mil Caballerías de tierra cedidas a las Compañías, del derecho que impone la ley de 31 de marzo último, pro el término de quince años, con el objeto de su pronta enagenación.
