@@ -15,3 +15,4 @@ Reglamento de la Junta Administrativa del Colegio San Luis Gonzaga Cartago
 | 1 | 1946-04-15 | la propia norma |
 | 2 | 1948-08-05 | Decreto Ejecutivo 2 (1948-08-05) |
 | 3 | 1949-03-02 | Decreto Ejecutivo 2 (1949-03-02) |
+| 4 | 1967-05-23 | Decreto Ejecutivo 38 (1967-05-23) |
