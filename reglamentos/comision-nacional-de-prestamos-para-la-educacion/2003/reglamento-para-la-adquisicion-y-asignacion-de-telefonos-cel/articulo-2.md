@@ -1,0 +1,1 @@
+Artículo II.—La adquisición de teléfonos celulares, de las respectivas líneas, así como el pago del monto del consumo mensual por su uso, lo efectuará CONAPE, sujeto a que exista contenido en las respectivas subpartidas presupuestarias.

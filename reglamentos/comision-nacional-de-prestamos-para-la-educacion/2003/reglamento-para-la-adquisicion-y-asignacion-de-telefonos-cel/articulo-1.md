@@ -1,0 +1,3 @@
+COMISIÓN NACIONAL DE PRÉSTAMOS PARA EDUCACIÓN
+El Consejo Directivo de CONAPE, con el propósito de facilitar un instrumento que contribuya al mejor cumplimiento de las funciones de quienes por motivo del desempeño de sus cargos requieran el uso de la telefonía celular, aprueba el presente "Reglamento para la adquisición, asignación y funcionamiento de teléfonos celulares propiedad de CONAPE".
+Artículo I.—La asignación de teléfonos celulares para uso del Secretario Ejecutivo y del Auditor Interno la hará el Consejo Directivo. El Secretario Ejecutivo puede asignarle un teléfono celular para su uso exclusivo a aquellos funcionarios, que por su jerarquía o por la índole de las funciones que realizan lo requieran, debido al constante contacto que deben mantener con CONAPE.

@@ -1,0 +1,1 @@
+Artículo III.—La adquisición del teléfono celular tiene como propósito el mejor desempeño de las funciones en un determinado puesto, de manera que facilite la comunicación y localización del funcionario, por lo que no constituye un beneficio personal, ni forma parte del salario del funcionario a quien le fue asignado.

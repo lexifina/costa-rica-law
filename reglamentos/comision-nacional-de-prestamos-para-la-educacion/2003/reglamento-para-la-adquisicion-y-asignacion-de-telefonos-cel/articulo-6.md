@@ -1,0 +1,1 @@
+Artículo VI.—Los funcionarios a quienes se les asignare un teléfono celular serán responsables de su buen estado de conservación y deberán presentar el activo en el momento en que sea requerido por la Secretaría Ejecutiva o la Sección Administrativa.
