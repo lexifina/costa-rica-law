@@ -1,0 +1,1 @@
+Artículo 3°-Se cancelarán el empréstito y sus intereses, en abonos mensuales consecutivos mínimos de cinco mil colones cada uno, aplicables en primer término a cubrir los intereses vencidos a la fecha de aquéllos, y el resto a amortización del capital.

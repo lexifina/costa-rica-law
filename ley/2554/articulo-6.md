@@ -1,0 +1,1 @@
+Artículo 6°-La Contraloría General de la República vigilará la correcta inversión del empréstito y no aprobará los presupuestos anuales ordinarios de la Municipalidad mencionada, si no contuvieren debidamente apartados los fondos necesarios para cubrir los pagos de amortizaciones e intereses referidos, hasta la cancelación total de lo debido.
