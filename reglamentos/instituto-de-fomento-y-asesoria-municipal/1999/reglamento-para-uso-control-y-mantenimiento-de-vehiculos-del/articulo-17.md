@@ -1,0 +1,2 @@
+Artículo 17 .-Uso de vehículos en días inhábiles
+La circulación de vehículos de uso administrativo de la Sede Central y Oficinas Regionales, en horas y días inhábiles, domingos, feriados y asuetos, estará restringido a casos especiales en que se amerite para desarrollar las funciones inherentes a la Institución. Corresponderá en este caso al Director de Administración Interna, Director Ejecutivo o Presidente Ejecutivo autorizar el uso de los vehículos.

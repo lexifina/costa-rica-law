@@ -1,0 +1,2 @@
+Artículo 7°-Asignación especial de vehículos:
+La Junta Directiva podrá asignar, con carácter temporal o permanente, unidades automotores a entes gubernamentales y/o organizaciones con las cuales el IFAM posea cualquier tipo de convenio. Tal asignación deberá ser debidamente justificada y expresarse por escrito, pudiendo ser revocada en cualquier momento por razones de utilidad y necesidad pública.

@@ -1,0 +1,2 @@
+Artículo 41.-Sanciones:
+Las infracciones al presente Reglamento serán sancionados disciplinariamente de acuerdo a la normativa vigente en el Reglamento Autónomo de Organización y Servicio del IFAM,-Código de Trabajo, este Reglamento y Leyes conexas.

@@ -1,0 +1,2 @@
+Artículo 13.-Disponibilidad de Transporte:
+Corresponde al funcionario responsable asignado, una vez recibidas las solicitudes, decidir sobre la disponibilidad del vehículo y tenerlo debidamente preparado para su uso con la anticipación necesaria. Si en un lapso de treinta minutos a partir de la hora de salida programada no se ha utilizado el servicio asignado y no se ha comunicado la prórroga de salida, el funcionario asignado responsable, dispondrá del vehículo para cubrir otras necesidades.

@@ -1,0 +1,4 @@
+Artículo 32.-Informe del accidente:
+El funcionario encargado responsable, analizará todo accidente de tránsito en que participe un vehículo del IFAM a su cargo, del cual rendirá un informe con la recomendación respectiva, a la Dirección de Administración Interna, dentro de los tres días hábiles siguientes a la fecha del percance.
+Si dicha recomendación no es compartida por el conductor o chofer, este tendrá derecho a ser oído, dentro de los tres días hábiles posteriores, ante el titular de la dependencia respectiva para hacer valer sus derechos y presentar las pruebas que estime convenientes.
+Una vez concluido el procedimiento, los superiores tomarán la resolución correspondiente, todo de conformidad con el Reglamento Autónomo de Organización y Funcionamiento del IFAM y en forma supletoria el procedimiento ordinario que establece la Ley General de la Administración Pública.
