@@ -8,4 +8,5 @@ Reglamento sobre la Organización, el Funcionamiento
 y las Atribuciones de las Gobernaciones Provinciales
 CAPITULO I
 De la organización y competencia.
-Artículo 1°—Las gobernaciones de provincia residen en un funcionario denominado Gobernador, de nombramiento del Poder Ejecutivo y dependiente del Ministerio de Gobernación y Policía. Su competencia se limita por razón del territorio a la respectiva provincia donde ejerzan sus funciones de acuerdo con los lineamientos de la División Territorial Administrativa de Costa Rica y por razón de la materia con las funciones reguladas por el presente decreto y las leyes especiales que les señalen competencia.
+Artículo 1°—Las gobernaciones de provincia residen en un funcionario denominado Gobernador, de nombramiento del Poder Ejecutivo y dependiente del Ministerio de labPresidencia. Su competencia se limita por razón del territorio a la respectiva provincia donde ejerzan sus funciones de acuerdo con los lineamientos de la División Territorial Administrativa de Costa Rica y por razón de la materia con las funciones reguladas por el presente decreto y las leyes especiales que les señalen competencia.
+(Así reformado por el artículo 1° de decreto ejecutivo N° 24629 de 7 de awgodto de 1995).

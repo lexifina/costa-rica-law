@@ -3,7 +3,8 @@ a) Aplicar el régimen de la declaración con respecto a los impuestos que opera
 b) Realizar matrimonios civiles de conformidad con el Código de Familia.
 c) Autenticar firmas de los vecinos de las cabeceras de provincia para los trámites de emisión y renovación de cédulas de identidad.
 d) Juramentar las juntas administrativas de los colegios estatales conforme lo señala el Código de Educación.
-e) Representar en su provincia respectiva, al Presidente de la República y al Ministro de Gobernación y Policía, en aquellos actos oficiales en que fuere designado.
+e) Representar en su provincia respectiva, al Presidente de la República y al Ministro de la presidencia en aquellos actos oficiales en que fuere designado.
+(Así reformado el inciso anterior por el artículo 1° de decreto ejecutivo N° 24629 de 7 de awgodto de 1995).
 f) Servir de órgano de enlace entre las municipalidades respectivas y el Poder Ejecutivo en aquellas políticas no asignadas expresamente a otros órganos de la Administración.
 g) Llevar a cabo programas de desarrollo provincial en los campos económicos, social y de seguridad pública y con incidencia en las materias que afecten el desenvolvimiento normal de su provincia.
 h) Juramentar a los miembros de las juntas electorales a que se refiere el Código Electoral.
