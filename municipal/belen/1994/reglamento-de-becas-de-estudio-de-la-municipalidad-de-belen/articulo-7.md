@@ -1,0 +1,1 @@
+Artículo 7°-Los formularios de becas se entregarán en la Biblioteca Pública Municipal, a partir de la fecha indicada en el artículo 5. La Comisión Municipal de Biblioteca dictaminará sobre el otorgamiento del beneficio a más tardar el día treinta de enero de cada año, el Concejo determinará a más tardar el día veintiocho de febrero de cada año.

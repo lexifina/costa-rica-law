@@ -1,0 +1,1 @@
+Artículo 12°.-Cuando por cualquiera de las causal es anteriores se cancela el beneficio a un becado, la Comisión procederá hacer una recomendación, para ocupar la beca libre. Esto lo hará de los formularios que quedaron sin asignación de beca o principio de año y que por sus requisitos pueden calificar.

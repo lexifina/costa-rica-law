@@ -1,0 +1,1 @@
+Artículo 10°.-La Comisión Nacional de Biblioteca, podrá determinar el otorgamiento de la beca a un estudiante que haya gozado de dicho beneficio en años anteriores, siempre y cuando cumpla con los requisitos previstos por este reglamento.
