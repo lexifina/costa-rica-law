@@ -1,0 +1,1 @@
+Artículo 20.- El Jefe de la oficina debe dictar las demás resoluciones, lo mismo que pronunciarse acerca de la declaratoria y reposición de la quiebra, concurso o insolvencia, y sobre proyectos de cuenta partición, en juicios sucesorios, cuando alguno de los herederos o interesados se hubiere opuesto a su aprobación.

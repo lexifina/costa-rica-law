@@ -1,0 +1,1 @@
+Artículo 14.- Ningún asunto puede supenderse por los impedimentos o excusas del Actuario, ni por las recusaciones que se interpongan en su contra. Si no hubiere otro Actuario, el Jefe de la oficina asumirá el conocimiento del negocio, mientras no recaiga auto firme que rechace la separación, y cuando ésta fuere declarada con lugar.

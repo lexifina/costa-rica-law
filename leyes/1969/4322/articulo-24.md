@@ -1,0 +1,2 @@
+Artículo 24.- Los Juzgados Penales que tengan Actuario, deben instruir todos los asuntos, por delitos de su conocimiento, que se hubieren cometido en el cantón donde radique el Juzgado, y sólo podrán delegar la instrucción en los Alcaldes, cuando se trate de delitos cometidos en otros cantones.
+Sin embargo, los Alcaldes del mismo cantón en que tenga su asiento el Juzgado, pueden practicar las primeras diligencias de instrucción.

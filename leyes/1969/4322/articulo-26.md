@@ -1,0 +1,1 @@
+Artículo 26.- El Jefe de oficina debe dictar las demás resoluciones, aprobar los convenios que las partes celebren, y pronunciar las sentencias; y si en ejecución de éstas hubiere de formularse de oficio la liquidación de lo adeudado, también lo hará aquél, quien en todo caso deberá resolver sobre dicha liquidación o la que presentare el acreedor.
