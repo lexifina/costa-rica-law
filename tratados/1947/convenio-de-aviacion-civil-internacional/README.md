@@ -1,6 +1,6 @@
 # Convenio de Aviación Civil Internacional (Apéndice II Ley N° 877)
 
-Tratados Internacionales N° 877 del 1947-07-04. SINALEVI, ficha 50240: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=50240&param2=53906&param3=1>.
+Tratados Internacionales N° 877 del 1947-07-04. SINALEVI, ficha 50240: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=50240&param2=53907&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 3 de 9 | 1963-04-04 | Ley 3105 | 1963-04-04 |
 | 4 de 9 | 1969-10-16 | Tratados Internacionales 4447 (1969-10-16) | 1969-10-16 |
 | 5 de 9 | 1973-07-27 | Ley 5269 | 1973-07-27 |
+| 6 de 9 | 1973-08-09 | Ley 5297 | 1973-08-09 |
