@@ -1,0 +1,8 @@
+N°1276
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+Decreta:
+Artículo único: Modificanse los artículos 2°, 3° y 4° de la Ley de Socorro Mutuo de Defunción para los empleados y jubilados del Departamento de Comunicaciones (correos, telégrafos, teléfonos y radios nacionales), N° 733 de 5 de setiembre de 1946, los cuales se leerán así:
+“Artículo 2°.- La Institución estará regida por una Junta Directiva integrada por cinco miembros, que deberán ser empleados de las Oficinas Centrales de los departamentos mencionados, de nombramiento del Poder Ejecutivo, por medio del Ministerio de Gobernación. Todos los miembros que asistan a las sesiones de Directiva para acordar el pago de un beneficiario, devengarán una dieta de diez colones cada uno, por cada defunción que ocurra.
+Artículo 3°.- Para la formación del fondo correspondiente, se establece una cuota general de cinco colones (¢5.00) que pagará cada empleado o jubilado y los retirados del servicio que se acojan a lo que dispone el artículo 5° de esta ley, la cual se cobrará cada vez que ocurra la defunción de alguno de sus miembros. Del monto total, cobrado, se deducirá el uno por ciento que se dedicará al pago de las dietas de los miembros de la Junta Directiva y a los gastos de papelería. El resto será entregado al beneficiario contra recibo que se publicará en el Diario Oficial.
+Artículo 4°.- Al ocurrir cada fallecimiento de las personas amparadas por esta ley, la Tesorería Nacional deducirá de los sueldos de los empleados en servicio y de los jubilados, el monto de la cuota correspondiente, haciendo de inmediato una libranza por el total de las mismas a la orden del Presidente de la Junta Directiva”
+Dado en San José, a los nueve días del mes de abril de mil novecientos cincuenta y uno.
