@@ -1,0 +1,1 @@
+Art. 5. El presente decreto comenzará á tener efecto desde el dia 1° de noviembre del presente año. -Dado en el Palacio Nacional, en San José a los treinta dias del mes de setiembre de mil ochocientos cincuenta y uno.-Juan Rafael Mora.-El Ministro de Estado en el Despacho de Hacienda y Guerra, Manuel José Carazo

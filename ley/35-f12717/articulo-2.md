@@ -1,0 +1,1 @@
+Art.2. La Administracion Ceneral establecerá en el indicado partido todas las ventas de licores que corresponden, encargandolas à las personas que aclas tiene, mientras 'se cumple el presente año, para hacer nuevo nombramiento.

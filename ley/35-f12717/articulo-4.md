@@ -1,0 +1,1 @@
+Art. 4. Ademas del gasto que cause la conducción del licor á las ventas, se abonará à los encargados de ellas un tres por ciento de merma de camino; siendo de cuenta de la Renta el proveer de vacijas para la conduccion.
