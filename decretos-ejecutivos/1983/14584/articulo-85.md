@@ -1,4 +1,4 @@
-Artículo 85.- Las funciones del inspector en relación con su
+ARTICULO 85.- Las funciones del inspector en relación con su
 vigilancia sobre vehículos marítimos, aéreos y terrestres, se cumplirán
 en la siguiente forma:
 a) Abordaje de los vehículos tan pronto estos lleguen a las

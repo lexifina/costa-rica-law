@@ -1,4 +1,4 @@
-Artículo 92.- En relación con el tránsito internacional de
+ARTICULO 92.- En relación con el tránsito internacional de
 productos y subproductos de origen animal, tales como carnes, leche
 pescado, abejas y productos derivados, raciones concentradas para
 animales y otros, serán aplicados los mismos procedimientos de

@@ -1,4 +1,4 @@
-Artículo 38.- Se consideran libres de la fiebre aftosa y peste
+ARTICULO 38.- Se consideran libres de la fiebre aftosa y peste
 bovina cuando la autoridad oficial del país que tenga la responsabilidad
 con respecto a asuntos de sanidad animal, ha declarado al citado país
 libre de peste bovina y de fiebre aftosa, declarando que tal país ha

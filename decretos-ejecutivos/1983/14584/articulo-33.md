@@ -1,4 +1,4 @@
-Artículo 33.- Todos los documentos a que se refieran los numerales
+ARTICULO 33.- Todos los documentos a que se refieran los numerales
 anteriores, expedidos para amparar a los animales, productos y
 subproductos de los mismos en importación y con procedencia de países
 afectados o libres de fiebre aftosa y otras enfermedades exóticas,

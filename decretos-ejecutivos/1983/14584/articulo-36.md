@@ -1,4 +1,4 @@
-Artículo 36.- Se consideran libres de:
+ARTICULO 36.- Se consideran libres de:
 I.- Fiebre aftosa y peste bovina los siguientes países: Australia,
 Nueva Zelandia, territorios de las islas de Pacífico en fideicomiso por
 los Estados Unidos, Islas Fidji, Japón, Finlandia, Irlanda, Irlanda del

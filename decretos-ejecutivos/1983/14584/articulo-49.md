@@ -1,7 +1,7 @@
 CAPITULO V
 Disposiciones específicas de importación y exportación
 de animales, sus productos y subproductos
-Artículo 49.- Los animales procedentes de países libres de las
+ARTICULO 49.- Los animales procedentes de países libres de las
 enfermedades enumeradas en el artículo 5º y de otras enfermedades
 exóticas podrán importarse al territorio nacional, bajo las siguientes
 condiciones: siempre y cuando cumplan con los requisitos que establecen

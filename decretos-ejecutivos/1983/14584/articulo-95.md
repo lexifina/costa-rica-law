@@ -1,6 +1,6 @@
 CAPITULO XIV
 De las materia primas y productos para la alimentación animal
-Artículo 95.- A los efectos de este reglamento se entienden por
+ARTICULO 95.- A los efectos de este reglamento se entienden por
 materias primas y productos para alimentación animal, los productos
 alimenticios de origen vegetal, animal y mineral, incluyendo aquellos
 químicos que su preparación no constituya peligro.

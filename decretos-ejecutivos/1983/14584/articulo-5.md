@@ -1,7 +1,7 @@
 CAPITULO II
 SECCION I
 De la defensa sanitaria de los animales
-Artículo 5º.- Enfermedades de declaración obligatoria.
+ARTICULO 5º.- Enfermedades de declaración obligatoria.
 Son enfermedades de declaración obligatoria las siguientes:
 Bovinos: Dermatosis modular contagiosa, fiebre catarral maligna, fiebre
 aftosa, pleuroneumonía contagiosa bovina, peste bovina, theileriosis,

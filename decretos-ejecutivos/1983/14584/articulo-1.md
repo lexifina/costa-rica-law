@@ -33,7 +33,7 @@ El siguiente
 Reglamento de Defensa Sanitaria Animal
 CAPITULO 1
 Disposiciones generales
-Artículo 1º.- Este reglamento tiene por objeto establecer las
+ARTICULO 1º.- Este reglamento tiene por objeto establecer las
 disposiciones de protección sanitaria para los recursos pecuarios del
 país a través del control de tráfico internacional y nacional de
 animales, vegetales y materia inerte, productos y subproductos, los

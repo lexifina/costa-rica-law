@@ -1,4 +1,4 @@
-Artículo 4º.- Para los efectos del presente reglamento, se
+ARTICULO 4º.- Para los efectos del presente reglamento, se
 establecen las siguientes definiciones:
 Acariasis: Infestación con ácaros.
 Acción larvicida: Efecto letal de compuestos químicos orgánicos e

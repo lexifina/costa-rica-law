@@ -1,4 +1,4 @@
-Artículo 105.-
+ARTICULO 105.-
 1º.- El procedimiento de operación de una plaza de ganado no
 infectada dentro de un área cuarentenada será el siguiente:
 a) Se permitirán animales sólo con permiso oficial. Animales

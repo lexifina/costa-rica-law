@@ -1,4 +1,4 @@
-Artículo 10.- Si de acuerdo con las informaciones rendidas por las
+ARTICULO 10.- Si de acuerdo con las informaciones rendidas por las
 autoridades del Poder Ejecutivo, resultare que la enfermedad de que se
 trate es una enfermedad exótica, el Poder Ejecutivo podrá declarar
 infectada la propiedad, la circunscripción o la provincia entera, varias

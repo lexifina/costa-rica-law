@@ -1,4 +1,4 @@
-Artículo 103.- Las operaciones en la plaza serán:
+ARTICULO 103.- Las operaciones en la plaza serán:
 a) Restricción de movimiento alrededor del lote infectado o
 sospechosos.
 b) Registros de control muy estrictos del movimiento en la plaza

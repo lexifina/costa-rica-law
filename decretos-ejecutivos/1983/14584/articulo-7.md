@@ -1,4 +1,4 @@
-Artículo 7º.- Sin perjuicio de esta declaración y aun antes de que
+ARTICULO 7º.- Sin perjuicio de esta declaración y aun antes de que
 las autoridades hayan intervenido, desde el momento en que el
 propietario o su encargado, haya notado los síntomas primeros de la
 enfermedad contagiosa, deberán proceder al aislamiento del animal

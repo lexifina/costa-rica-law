@@ -1,4 +1,4 @@
-Artículo 91.- En casos inesperados, cuando el cargamento durante
+ARTICULO 91.- En casos inesperados, cuando el cargamento durante
 su ruta en tránsito sufra demoras involuntarias y los animales se
 enfermen o los productos y subproductos pierdan su pureza y normal
 estado de conservación, el médico veterinario procederá conforme con lo

@@ -1,4 +1,4 @@
-Artículo 27.- Fiebre aftosa: Para los efectos del presente
+ARTICULO 27.- Fiebre aftosa: Para los efectos del presente
 reglamento, el período máximo de incubación de la fiebre aftosa es de
 21 días.
 Inmediatamente después de comprobada la existencia de la fiebre

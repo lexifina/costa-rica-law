@@ -1,4 +1,4 @@
-Artículo 30.- Peste porcina africana: Para los efectos del presente
+ARTICULO 30.- Peste porcina africana: Para los efectos del presente
 reglamento el período máximo de incubación de la peste porcina africana
 es de 42 días, pudiéndose considerar que una zona de un país está libre
 de esta enfermedad cuando han transcurrido por lo menso 40 días después

@@ -1,4 +1,4 @@
-Artículo 102.- La forma de operación de un caso sospechoso será la
+ARTICULO 102.- La forma de operación de un caso sospechoso será la
 siguientes:
 a) Aislamiento del lote.
 b) Notificación a la autoridad sanitaria oficial y tomar otras

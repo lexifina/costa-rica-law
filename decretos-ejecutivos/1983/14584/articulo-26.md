@@ -1,4 +1,4 @@
-Artículo 26.- Pleuroneumonía contagiosa bovina: Para los efectos
+ARTICULO 26.- Pleuroneumonía contagiosa bovina: Para los efectos
 del presente reglamento, el período máximo de incubación de la
 pleuroneumonía contagiosa bovina, es de 180 días.
 Comprobada la existencia de la enfermedad, se procederá de acuerdo

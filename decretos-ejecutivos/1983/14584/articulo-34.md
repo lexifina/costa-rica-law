@@ -1,4 +1,4 @@
-Artículo 34.- :
+ARTICULO 34.- :
 a) El permiso que se conceda para la importación de animales o
 productos y subproductos de los mismos, en una sola partida, será válido
 por 30 días naturales a partir de su fecha de emisión.

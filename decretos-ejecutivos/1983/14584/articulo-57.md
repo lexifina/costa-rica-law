@@ -1,6 +1,6 @@
 SECCION I
 De la importación de animales exóticos
-Artículo 57.- Se permitirá la importación de animales exóticos y
+ARTICULO 57.- Se permitirá la importación de animales exóticos y
 silvestres, procedentes de países afectados por la fiebre aftosa, peste
 porcina africana peste bovina, peste equina africana y otras
 enfermedades exóticas que a juicio de la autoridad sanitaria, no pongan

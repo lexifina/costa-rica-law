@@ -2,7 +2,7 @@ CAPITULO III
 De la importación y exportación de animales
 sus productos y subproductos
 Disposiciones generales
-Artículo 31.- La importación y exportación de animales, sus
+ARTICULO 31.- La importación y exportación de animales, sus
 productos y subproductos y el tránsito de los mismos por el territorio
 nacional, además de las disposiciones vigentes, estará sujetos a los
 requisitos generales siguientes:

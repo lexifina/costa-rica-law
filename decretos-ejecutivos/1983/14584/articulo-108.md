@@ -1,4 +1,4 @@
-Artículo 108.- Operación de una plaza de ganado no infectado dentro
+ARTICULO 108.- Operación de una plaza de ganado no infectado dentro
 de un área cuarentenada en caso de peste porcina africana.
 a) Se permitirá la entrada de otras especies animales que procedan
 de predios donde no han tenido contacto con suinos.

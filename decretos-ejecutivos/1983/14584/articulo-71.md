@@ -1,4 +1,4 @@
-Artículo 71.- Se consideran pruebas de rutina:
+ARTICULO 71.- Se consideran pruebas de rutina:
 1) Pruebas sensoriales (organolépticas):
 a) Color (leches coloreadas por procesos patológicos, azules rojas
 y amarillas).

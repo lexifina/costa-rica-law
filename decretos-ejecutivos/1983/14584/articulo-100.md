@@ -1,4 +1,4 @@
-Artículo 100.- En el caso de que se declare emergencia nacional
+ARTICULO 100.- En el caso de que se declare emergencia nacional
 debido a un brote de fiebre aftosa u otra enfermedad exótica, o epidemia
 de enfermedades endémicas; se procederá de acuerdo con las normas
 dictadas por la Comisión Nacional de Emergencia y de la siguiente forma:

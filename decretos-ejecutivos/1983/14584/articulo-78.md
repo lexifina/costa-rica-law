@@ -1,4 +1,4 @@
-Artículo 78.- Será prohibida la importación de carnes que al
+ARTICULO 78.- Será prohibida la importación de carnes que al
 momento de la inspección resulten:
 a) Cansadas
 b) Caquécticas

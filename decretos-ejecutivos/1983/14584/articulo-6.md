@@ -1,4 +1,4 @@
-Artículo 6º.- Todo propietario o persona que de cualquier manera
+ARTICULO 6º.- Todo propietario o persona que de cualquier manera
 tenga a su cargo el cuidado o la asistencia de animales atacados de
 enfermedad contagiosa o sospechosos de tenerla, está obligado a hacer
 inmediatamente la declaración a la autoridad sanitaria. Esta denuncia

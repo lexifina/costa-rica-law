@@ -1,7 +1,7 @@
 CAPITULO VII
 De las obligaciones del Cuerpo Diplomático
 acreditado en países declarados aftosos
-Artículo 66.- Todas las importaciones de animales, materiales
+ARTICULO 66.- Todas las importaciones de animales, materiales
 productos que no representan riesgo para la seguridad sanitaria del
 patrimonio zootécnico nacional y que procedan de países declarados
 aftosos, deberán cumplir con lo estipulado en el artículo 32 de este

@@ -1,7 +1,7 @@
 CAPITULO XII
 Del tránsito internacional de ganado, productos y
 subproductos de origen animal
-Artículo 88.- La llegada a puertos marítimos, terrestres o aéreos
+ARTICULO 88.- La llegada a puertos marítimos, terrestres o aéreos
 de animales pertenecientes a las especies bovina, ovina, caprina,
 porcina, equina, bufalina, aves de coral, animales de exhibición,
 ornamento y otros, procedentes de países centroamericanos, México y

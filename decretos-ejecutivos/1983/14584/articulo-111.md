@@ -1,1 +1,1 @@
-Artículo 111.- Rige a partir de su publicación.
+ARTICULO 111.- Rige a partir de su publicación.

@@ -1,4 +1,4 @@
-Artículo 45.- Serán autoridades competentes para realizar la
+ARTICULO 45.- Serán autoridades competentes para realizar la
 fiscalización las siguientes:
 El Ministerio de Agricultura y Ganadería por medio de dependencias
 específicas; a saber:

@@ -1,6 +1,6 @@
 CAPITULO XIII
 Importación de medicamentos para uso veterinario
-Artículo 94.- La importación de medicamentos para uso veterinario
+ARTICULO 94.- La importación de medicamentos para uso veterinario
 procedentes de diferentes países, podrán ingresar al país cumpliendo los
 siguientes requisitos, además de los estipulados en el decreto Nº 5781-A
 de 13 de febrero de 1976.

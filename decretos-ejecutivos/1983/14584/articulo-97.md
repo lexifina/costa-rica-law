@@ -1,4 +1,4 @@
-Artículo 97.- Las importaciones procedentes de países libres de las
+ARTICULO 97.- Las importaciones procedentes de países libres de las
 enfermedades mencionadas en el artículo 5º se podrán efectuar por los
 siguientes puertos:
 Aéreos: Aeropuerto Internacional Juan Santamaría.

@@ -1,4 +1,4 @@
-Artículo 109.- La peste bovina afecta todos los rumiantes (bovinos,
+ARTICULO 109.- La peste bovina afecta todos los rumiantes (bovinos,
 caprinos, ovinos, etc.) y fue reportada afectando cerdos y pueden usarse
 los mismos procedimientos utilizados para la FA.
 Los 120 días requeridos de cierre de operaciones en la plaza de

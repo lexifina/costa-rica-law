@@ -1,6 +1,6 @@
 CAPITULO X
 De la importación de huevos
-Artículo 80.- Será permitida la importación de huevos para
+ARTICULO 80.- Será permitida la importación de huevos para
 reproducción, consumo e industria, siempre que cumpla con los requisitos
 enumerados en el artículo 32 de este reglamento y en el cual se haga
 constar que los destinados a "reproducción", provienen de granjas

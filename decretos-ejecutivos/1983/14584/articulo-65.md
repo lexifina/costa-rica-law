@@ -1,4 +1,4 @@
-Artículo 65.- La prohibición es absoluta para los animales
+ARTICULO 65.- La prohibición es absoluta para los animales
 productos y subproductos clasificados en los grupos desde la "A" a la
 "G" salvo aquellos que se excluyen en los incisos de cada uno de dichos
 grupos.

@@ -1,4 +1,4 @@
-Artículo 61.- Las aves silvestres para caza, de pluma, tales como
+ARTICULO 61.- Las aves silvestres para caza, de pluma, tales como
 gallos de bosque, pavos silvestres, pavos reales, palomas, patos,
 codornices, faisanes, gallinas de guinea, ocas, estrucoideos,
 avestruces, tórtolas tordos, alondras, calandrias, psitácidas y otras

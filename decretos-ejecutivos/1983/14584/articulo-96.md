@@ -1,6 +1,6 @@
 CAPITULO XV
 De los puertos legalmente autorizados
-Artículo 96.- Serán áreas sanitarias restringidas en prevención al
+ARTICULO 96.- Serán áreas sanitarias restringidas en prevención al
 ingreso y diseminación de enfermedades exóticas.
 a) Puestos fronterizos: Hasta 500 metros dentro del territorio
 nacional.

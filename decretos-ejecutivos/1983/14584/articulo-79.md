@@ -1,4 +1,4 @@
-Artículo 79.- Se prohíbe la importación de los derivados de la
+ARTICULO 79.- Se prohíbe la importación de los derivados de la
 carne tales como embutidos, cuando al momento de la inspección se
 encuentre como sigue:
 a) Superficie húmeda, pegajosa y exuden líquido a la presión

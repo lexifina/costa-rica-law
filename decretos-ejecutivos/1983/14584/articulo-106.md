@@ -1,4 +1,4 @@
-Artículo 106.- La peste porcina africana sólo afecta suinos. Para
+ARTICULO 106.- La peste porcina africana sólo afecta suinos. Para
 otras especies animales puede permitirse un movimiento más elástico
 comparado con las restricciones de cuarentena que se establecen para
 fiebre aftosa.

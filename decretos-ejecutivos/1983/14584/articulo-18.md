@@ -1,4 +1,4 @@
-Artículo 18.- Los empresarios portadores y acarreadores, están
+ARTICULO 18.- Los empresarios portadores y acarreadores, están
 obligados a desinfectar antes de las 24 horas de haber descargado los
 animales, y en la forma establecida en el artículo 18, todo vapor buque
 o vehículo de cualquier clase, que haya servido para transportar

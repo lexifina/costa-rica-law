@@ -1,4 +1,4 @@
-Artículo 20.- Los puestos fronterizos y las estaciones de
+ARTICULO 20.- Los puestos fronterizos y las estaciones de
 cuarentena permanentes y temporales, deberán disponer de un servicio
 veterinario integrado por el personal, el material y los locales
 precisos, según el caso y principalmente los medios para:

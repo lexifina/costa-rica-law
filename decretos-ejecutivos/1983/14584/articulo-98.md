@@ -1,7 +1,7 @@
 CAPITULO XVI
 De la disposición de los desperdicios alimenticios
 procedentes de vehículos aéreos marítimos y terrestres
-Artículo 98.- Las compañías de navegación aérea, terrestre y
+ARTICULO 98.- Las compañías de navegación aérea, terrestre y
 marítima tendrán la obligación de mantener la basura o desperdicios de
 que se trate en receptáculos bien tapados, a fin de que puedan ser
 descargados en el puerto de destino para la incineración enfosamiento

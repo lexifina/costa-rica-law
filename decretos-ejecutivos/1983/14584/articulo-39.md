@@ -1,7 +1,7 @@
 SECCION III
 Observaciones generales para la importación de bovinos,
 equinos, porcinos, ovinos y caprinos
-Artículo 39.- Cuando los animales importados o en tránsito,
+ARTICULO 39.- Cuando los animales importados o en tránsito,
 amparados por el certificado de salud correspondiente, muestren a su
 arribo cualquier sintomatología de enfermedad infecto-transmisible, o
 que a juicio de la Oficina de Cuarentena Animal representen riesgo y

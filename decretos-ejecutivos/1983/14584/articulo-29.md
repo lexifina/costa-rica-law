@@ -1,4 +1,4 @@
-Artículo 29.- Muermo: Para los efectos del presente reglamento, el
+ARTICULO 29.- Muermo: Para los efectos del presente reglamento, el
 período máximo de incubación del muermo es de 6 meses.
 Inmediatamente después de comprobada la existencia del muermo se
 declarará infectada la circunscripción y se aplicarán las siguientes

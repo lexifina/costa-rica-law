@@ -14,3 +14,4 @@ Reglamento de Defensa Sanitaria Animal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-02-01 | la propia norma |
+| 2 | 1983-05-16 | SINALEVI (sin norma nombrada) |

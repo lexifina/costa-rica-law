@@ -1,4 +1,4 @@
-Artículo 22.- En caso de que los productos importados que se
+ARTICULO 22.- En caso de que los productos importados que se
 presentan para la inspección, puedan poner en peligro la salud de las
 personas o de los animales o si los certificados sanitarios
 internacionales no están conforme con los requisitos previos de

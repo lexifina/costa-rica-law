@@ -1,4 +1,4 @@
-Artículo 11.- La declaración de infección determinará la extensión
+ARTICULO 11.- La declaración de infección determinará la extensión
 del territorio que comprenderá y dará lugar a la aplicación de las
 medidas sanitarias siguientes:
 1) Colocar bajo la vigilancia de las autoridades de salud animal,

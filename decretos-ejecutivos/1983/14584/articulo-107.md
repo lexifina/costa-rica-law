@@ -1,4 +1,4 @@
-Artículo 107.-
+ARTICULO 107.-
 1º.- Especificaciones del manejo de casos confirmados:
 a) Para todas las operaciones en suinos y restricción del
 movimiento de otras especies para eliminar la trasmisión mecánica (baño

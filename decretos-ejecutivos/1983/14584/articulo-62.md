@@ -1,4 +1,4 @@
-Artículo 62.-
+ARTICULO 62.-
 a) Se podrá importar abejas (celonias) cuando el certificado de
 origen y salud expedido por un médico veterinario, declare que en el
 radio de 5 kilómetros del apiario de procedencia, no se han constatado

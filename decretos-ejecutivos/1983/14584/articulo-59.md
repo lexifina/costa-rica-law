@@ -1,4 +1,4 @@
-Artículo 59.- La importación de moluscos y crustáceos para los
+ARTICULO 59.- La importación de moluscos y crustáceos para los
 mismos fines indicados en el artículo anterior será otorgada siempre y
 cuando el certificado especifique que provienen de criaderos, aguas o
 estanques salubres y libres de enfermedades infecciosas y parasitarias

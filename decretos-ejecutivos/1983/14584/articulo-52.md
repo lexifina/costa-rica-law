@@ -1,4 +1,4 @@
-Artículo 52.- Importación de equinos: En el certificado a que se
+ARTICULO 52.- Importación de equinos: En el certificado a que se
 refiere el artículo 32, se hará constar además:
 a) Que hayan sido sometidos a las pruebas diagnosticas para el
 muermo y la durina, con resultados negativos, cuando los animales

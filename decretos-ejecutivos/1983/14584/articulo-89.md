@@ -1,4 +1,4 @@
-Artículo 89.- Autorizado el permiso de tránsito por el territorio
+ARTICULO 89.- Autorizado el permiso de tránsito por el territorio
 nacional según los artículos 31, 32, 33 de este reglamento, el
 consignador del cargamento cumplirá con los siguientes trámites técnico-
 administrativos:

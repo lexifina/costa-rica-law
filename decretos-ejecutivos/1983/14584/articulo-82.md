@@ -1,4 +1,4 @@
-Artículo 82.- Serán requisitos y características de importación las
+ARTICULO 82.- Serán requisitos y características de importación las
 siguientes:
 a) Condiciones generales de empaque, limpieza de los huevos e
 higiene de las cajas.

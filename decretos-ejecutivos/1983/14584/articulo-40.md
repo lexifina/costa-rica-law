@@ -1,4 +1,4 @@
-Artículo 40.- En el caso de que los animales durante el transporte
+ARTICULO 40.- En el caso de que los animales durante el transporte
 o tránsito por el territorio nacional tengan manifestaciones de
 enfermedades infecciosas u orgánicas que no tengan prohibición de
 importación, el encargado del transporte deberá comunicarse con la

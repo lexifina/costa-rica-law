@@ -1,4 +1,4 @@
-Artículo 56.- Importación de aves y huevos para incubación.
+ARTICULO 56.- Importación de aves y huevos para incubación.
 a) Se permitirá la importación de pollitos recién nacidos y de
 huevo fértil, cuando procedan de granjas libres de pullorosis,
 mycoplasmosis, debiéndose agregar al certificado el resultado de la

@@ -1,6 +1,6 @@
 SECCION II
 Medidas especiales para algunas enfermedades
-Artículo 25.- Peste bovina: Para los efectos del presente
+ARTICULO 25.- Peste bovina: Para los efectos del presente
 reglamento el período máximo de incubación de la peste bovina es de 21
 días.
 Inmediatamente después de comprobada la existencia de la peste

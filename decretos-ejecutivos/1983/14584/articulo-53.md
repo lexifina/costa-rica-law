@@ -1,4 +1,4 @@
-Artículo 53.- Importación de porcinos:
+ARTICULO 53.- Importación de porcinos:
 Erisipela: Presentar certificado de vacunación indicando tipo de
 vacuna y ser vacunados en un plazo no menor de 15 días ni mayor de 30
 días antes de su llegada.

@@ -1,4 +1,4 @@
-Artículo 104.-
+ARTICULO 104.-
 1º.- En caso de enfermedad diagnosticada en la plaza el manejo de
 un caso confirmado será el siguiente:
 a) Detener las actividades de la plaza.
