@@ -1,0 +1,6 @@
+N°1465
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+Decreta:
+Artículo 1°.- Refórmase el artículo 28 de la Ley de Hacienda Municipal N°180 de 28 de agosto de 1923, reformada por las leyes N°73 de 15 de abril de 1935, N°178 de 16 de agosto de 1938 y N°270 de 16 de noviembre de 1948, el que deberá leerse así:
+Artículo 28.- Para la realización de cualquier obra o trabajo municipal que implique una erogación superior o veinticinco mil colones (¢25,000.00) y que no vaya hacerse por administración, se habrá de contratar siempre con el interesado que en la licitación pública previa ofrezca mejores condiciones para los intereses comunes. Extiéndese esta regla a las obras o trabajos de menor valor que el indicado, cuando sea la Municipalidad de San José la que encargue su ejecución a los particulares o contratistas.
+Las Municipalidades podrán adquirir artículos verdaderamente necesarios comprándolos, hasta por la suma de diez mil colones (¢10,000.00), a las entidades o instituciones oficialmente reconocidas como de servicio público o de cooperación social, que los produzcan o vendan sin ánimo de lucro, así como a las empresas que los suministren con propósito de ayuda ajeno al afán comercial.
