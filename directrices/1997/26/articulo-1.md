@@ -1,0 +1,15 @@
+DIRECTRIZ
+26
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE LA PRESIDENCIA,
+En uso de facultades que les confieren el artículo 140, inciso 8, de la Constitución Política y 27, párrafo 1), 99 y 100 de la Ley General de Administración Pública; y
+Considerando:
+1°—El sistema democrático costarricense se fortalece con la pureza de sus procesos electorales, caracterizados por una tradicional exclusión de las autoridades de Gobierno en las actividades proselitistas. Así lo prescriben con claridad normas de rango constitucional y preceptos legales incorporados al ordenamiento jurídico.
+2°—Recientes reformas de la legislación electoral, apoyadas por el Gobierno de la República, fortalecen el principio de la imparcialidad de las autoridades políticas, restringiendo rigurosamente la propaganda gubernamental en los meses previos a las elecciones nacionales. La trascendencia de este acto legislativo es enorme; pudiendo ser considerado como uno de los mayores logros de la institucionalidad costarricense de los últimos años. Nunca más podrán las autoridades de Gobierno poner a disposición de la agrupación política de sus simpatías, los millonarios recursos que pueda poseer y la obra de Gobierno, que es, en definitiva, el resultado del esfuerzo de todos los costarricenses, por encima de las afiliaciones partidistas.
+3°—El fenómeno que se ha dado en llamar "ciclo electoral", estilo de conducción gubernamental que supedita las decisiones políticas al interés electoral del gobierno de turno, debe ser eliminado. El Gobierno, particularmente sus jerarcas, deben tomar decisiones teniendo a la vista la conveniencia nacional sin importar los réditos electorales para la agrupación de sus simpatías. Esto implica, de manera especial, la responsabilidad fiscal y la disposición restrictiva de los recursos humanos y materiales de la Administración Pública. Por tanto,
+Emiten la siguiente:
+DIRECTRIZ:
+1°—Deben todos los funcionarios públicos del Gobierno central y la administración descentralizada, observar con rigor la legislación electoral que prescribe la absoluta prohibición de las acciones de los funcionarios públicos tendientes a intervenir en el proceso electoral. Particular cuidado deben observar los impedidos legal y constitucionalmente para tomar parte activa en el proceso electoral. Los habilitados para participar en actividades electorales, deben tomar las medidas que les permitan establecer límites claros entre sus tareas oficiales y sus actividades partidistas privadas. La inobservancia de estas disposiciones será sancionada conforme lo estable la legislación y con el rigor que la situación amerite.
+2°—Los jerarcas de las instituciones deben interpretar de manera restrictiva las excepciones que el artículo 85, inciso J) del Código Electoral establece a la facultad de difundir informaciones en los medios de comunicación.
+3°—Las quejas que en forma razonable y serias se presenten por inobservancia de esta directriz deben ser atendidas con prontitud por los respectivos jerarcas.
+Rige a partir de su firma.
+Dado en la Presidencia de la República.—San José, a los treinta y un días del mes de octubre de mil novecientos noventa y siete.
