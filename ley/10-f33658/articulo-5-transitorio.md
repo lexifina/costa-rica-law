@@ -1,0 +1,1 @@
+Artículo 5.-Las diferencias a cobrar por motivo de los documentos defectuosos presentados después de la ley de 1° de octubre de 1884, y no comprendidos entre los que indica el artículo 3 de estas disposiciones, se abonarán cuando la parte retire el documento o reintegre los derechos, si opta por la inscripción.
