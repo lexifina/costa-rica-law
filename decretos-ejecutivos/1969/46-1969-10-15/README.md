@@ -23,3 +23,4 @@ Establece Comisión Asesora Nacional de los Incentivos Fiscales al Desarrollo In
 | 8 | 1974-06-11 | Decreto Ejecutivo 3880 (1974-06-11) |
 | 9 | 1974-08-04 | Decreto Ejecutivo 4198 (1974-08-04) |
 | 10 | 1975-05-26 | Decreto Ejecutivo 4994 (1975-05-26) |
+| 11 | 1975-12-12 | Decreto Ejecutivo 5524 (1975-12-12) |
