@@ -1,0 +1,1 @@
+Artículo 42.—De la responsabilidad del director de carrera. Los Directores de Carrera velarán porque se de a los estudiantes las debidas oportunidades de orientación y guía para la realización de sus Proyectos de Investigación, de manera que se realice en el lapso señalado.

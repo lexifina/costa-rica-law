@@ -1,0 +1,3 @@
+Artículo 2º—Responsabilidad de Ejecución. La Decanatura y la Dirección Académica del C.U.C. son responsables por la correcta y justa aplicación del presente Reglamento, salvo aquellos casos en los cuales el mismo establezca en forma clara y específica otra unidad académica o administrativa como responsable.
+Todos los funcionarios docentes, docente-administrativos, administrativos y estudiantes del C.U.C., velarán en sus respectivas dependencias por el fiel cumplimiento de las normas, derechos y deberes, así como las restricciones contenidas en este Reglamento.
+La interpretación de las normas contenidas en este Reglamento, así como sus reformas, serán materia de competencia del Consejo Directivo. No podrá alegarse ignorancia de este Reglamento.

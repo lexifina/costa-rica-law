@@ -1,0 +1,1 @@
+Artículo 53.—Del horario de las unidades académicas. Los horarios serán confeccionados según las necesidades académicas y las posibilidades financieras y físicas del C.U.C.. Para tal efecto, el Director de Carrera confeccionará los horarios de sus respectiva oferta académica y los enviará a la Dirección Académica para su aprobación.

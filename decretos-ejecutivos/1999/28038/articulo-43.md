@@ -1,0 +1,2 @@
+Artículo 43.—De la normativa para elaborar los proyectos de graduación. El Profesor Guía y el Director de la Carrera tienen la responsabilidad de fijar las normas relativas a la extensión, la profundidad en el tratamiento del tema y la metodología de los Proyectos de Investigación.
+El trabajo final producto del Proyecto de Graduación deberá cumplir con las disposiciones que emanen de la carrera respectiva.

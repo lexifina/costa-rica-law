@@ -1,0 +1,2 @@
+Artículo 35.—Sobre la orientación psicológica y vocacional de los estudiantes. El Servicio de Bienestar Estudiantil es el encargado de velar por la orientación psicológica y vocacional de los estudiantes y debe actuar en estrecha coordinación con el Decano, Director Académico, Directores de Carrera, Profesores del C.U.C. y Representantes Estudiantiles en todas aquellas gestiones que propendan a la solución de la problemática estudiantil.
+Los casos de excepción deberán contar con la aprobación del Director Académico y del Director Administrativo.

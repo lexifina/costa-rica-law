@@ -1,0 +1,1 @@
+Artículo 44.—De la supervisión de los proyectos. El Director de la Carrera velará porque el equipo de profesores guía que supervisan los proyectos de investigación lo hagan de manera ágil, objetiva y expedita.

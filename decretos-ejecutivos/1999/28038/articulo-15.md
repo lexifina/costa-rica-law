@@ -1,0 +1,1 @@
+Artículo 15.—De la Evaluación. La evaluación de los alumnos se hará a lo largo del ciclo lectivo correspondiente y las pruebas podrán ser colegiados, en los casos en que las asignaturas se puedan integrar en cursos colegiados.

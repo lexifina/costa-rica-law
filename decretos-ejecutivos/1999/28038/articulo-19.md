@@ -1,0 +1,3 @@
+Artículo 19.—Del deber del estudiante en caso de ausencia a pruebas. Si el alumno faltase a alguna de las pruebas contenidas en este Capítulo, deberá presentar justificación escrita con el respectivo dictamen médico o documento equivalente, ante el profesor solicitando se le haga la prueba en referencia. Dicha solicitud deberá plantearla a más tardar dentro de los tres días hábiles después de realizada la prueba.
+A partir de ese momento queda a criterio del profesor la realización de la misma en los ocho días posteriores y en caso de duda resolverá el Director de Carrera.
+En aquellos casos en que el docente sea el mismo Director de Carrera, deberá resolver el Director Académico.

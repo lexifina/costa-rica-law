@@ -1,0 +1,6 @@
+Artículo 21.—De los periodos de realización de las pruebas.
+a. El calendario de pruebas finales y suficiencia será fijado en el Cronograma Institucional.
+b. Realizada la prueba final ordinaria, deberá realizarse la prueba extraordinaria en un lapso no mayor de cinco días hábiles.
+c. No podrá darse por aprobada una materia al estudiante si no existen pruebas realizadas por él que demuestre su suficiencia en la misma.
+La aplicación de las pruebas se iniciará en la hora establecida existiendo un margen de 15 minutos de espera al profesor por razones de contingencia. En el caso de llegada tardía de un estudiante, el mismo podrá ingresar a efectuar la prueba siempre y cuando ninguno de los estudiantes que lo estén aplicando, haya hecho abandono del salón. En el caso de admitirse a la prueba, contará con el tiempo que reste de aquel brindado por el profesor a todo el grupo en general, debiendo entregar su prueba en el mismo momento que el resto de sus compañeros.
+En el caso de ausencia del Profesor, pasado el margen de espera, debe levantarse una acta de los presentes y entregarla en el acto al Director de Carrera o Director Académico, con lo cual se adquirirá el derecho a la reprogramación en los cinco días hábiles posteriores.

@@ -1,0 +1,1 @@
+Artículo 27.—De la tutoría. La tutoría es la modalidad de estudios que se fundamenta en el proceso de auto-aprendizaje y el profesor es simplemente un orientador del proceso; esta forma de estudio no implica la asistencia a lecciones regulares.

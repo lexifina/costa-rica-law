@@ -14,3 +14,4 @@ Reglamento de Orden Académico del Colegio Universitario de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-01 | la propia norma |
+| 2 | 1999-07-21 | Ley 7 |

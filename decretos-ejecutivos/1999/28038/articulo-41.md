@@ -1,0 +1,2 @@
+Artículo 41.—Del numero de participantes en el proyecto de investigación. El Proyecto de Investigación debe ser ejecutado individualmente o en equipos, en este último caso podrá estar conformado por dos o tres estudiantes, bajo la tutoría de un Profesor Guía asignado por el Director de Carrera.
+En el caso de Proyecto de Investigación hechos por un equipo, el profesor guía velará para que la ejecución sea equitativa.
