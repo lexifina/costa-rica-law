@@ -30,3 +30,5 @@ DEL TÍTULO: 121 5.000.000
 TOTAL AUMENTAR 5.000.000
 (Modificado por el artículo No. 1 del Decreto Ejecutivo No. 31229 de 04 de junio de 2003, publicado en La Gaceta No. 130 de 08 de julio de 2003.)
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 4° del Decreto Ejecutivo N° 31262 de 23 de junio de 2003, publicado en La Gaceta No. 138 de 18 de julio de 2003, Alcance 39.)
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31301 de 16 de julio de 2003, publicado en La Gaceta No. 155 de 13 de agosto de 2003.)
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31384 de 24 de setiembre de 2003, publicado en La Gaceta No. 196 de 13 de octubre de 2003.)
