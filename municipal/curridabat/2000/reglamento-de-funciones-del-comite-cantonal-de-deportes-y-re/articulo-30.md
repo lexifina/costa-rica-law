@@ -1,0 +1,1 @@
+Artículo 30.—Los acuerdos comunes de la Junta Directiva del Comité se decidirán por simple mayoría. En lo que respecta al presupuesto, este se acordará por mayoría calificada. Queda a criterio de algún (os) miembro (s), el hacer constar en actas que su voto fue negativo. Los acuerdos tomados por la Junta Directiva del Comité quedarán firmes al aprobarse el acta respectiva.

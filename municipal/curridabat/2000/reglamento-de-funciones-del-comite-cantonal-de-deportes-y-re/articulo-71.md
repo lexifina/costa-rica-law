@@ -1,0 +1,1 @@
+Artículo 71.—Los comités comunales de deportes y recreación son la máxima representación de la Junta Directiva del Comité Cantonal en las actividades de promoción, administración de instalaciones y los responsables de los desarrollos deportivos y recreativos de su comunidad.
