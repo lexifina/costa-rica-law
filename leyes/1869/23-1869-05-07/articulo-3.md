@@ -1,0 +1,1 @@
+Art 3° Se nombran a sí mismos, Presidente de la 2° Sala, al señor Licenciado Don José Antonio Pinto y Magistrado de la misma a los señores Don Demetrio Iglesias y Don José Ana Herrera y Magistrados Fiscal al señor Licenciado Don Francisco Sánchez.
