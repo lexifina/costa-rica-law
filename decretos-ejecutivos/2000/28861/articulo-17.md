@@ -3,39 +3,40 @@ De los Medicamentos Veterinarios y Su Registro
 SECCIÓN I
 Clasificación de Medicamentos Veterinarios para efectos de su Registro
 Artículo 17.—Para los efectos de este Reglamento, se establece la siguiente clasificación de los Medicamentos Veterinarios, la cual podrá ser modificada por el Departamento a solicitud de su respectivo Jefe, quien recomendará las modificaciones necesarias a la clasificación:
-GRUPO 1: Medicamentos de uso restringido y sometidos a la fiscalización internacional según lo establece la Ley General de Salud e indicados en la lista emitida por la Junta Internacional de Fiscalización de Estupefacientes y Psicotrópicos y de venta exclusiva en droguerías y farmacias veterinarias.
-1. Analgésicos, narcóticos.
-2. Neuroleptoanalgésicos.
-GRUPO 2: Medicamentos de uso restringido y de venta exclusiva mediante receta Médico Veterinaria controlada en droguerías y farmacias veterinarias.
+Grupo 1: Medicamentos de uso restringido y sometidos a la fiscalización internacional según lo establece la Ley General de Salud e indicados en la lista emitida por la Junta Internacional de Fiscalización de Estupefacientes y Psicotrópicos y de venta exclusiva en droguerías y farmacias veterinarias.
+1. Analgésicos narcóticos.
+2. Leptoanalgésicos.
+Grupo 2: Medicamentos de uso restringido y de venta exclusiva mediante receta Médico Veterinaria controlada en droguerías y farmacias veterinarias.
 1. Anestésicos generales:
 a) Inhalatorios
 b) Parenterales
 2. Anestésicos locales inyectables.
 3. Tranquilizantes mayores y menores.
 4. Relajantes musculares y gangliopléjicos.
-5. Autacoides.
+4. Autacoides.
 6. Prostaglandinas.
 7. Hormonas, excepto oxitocina:
 a) naturales;
 b) sintéticas;
 c) semisintéticas.
 8. Anabolizantes no implantados.
-9. Biológicos que contengan microorganismos vivos y que constituyan riesgo de diseminación de la enfermedad. Esta condición se establecerá de manera individual en el momento del registro.
+9. Biológicos (vacunas y reactivos de diagnóstico) que contengan microorganismos vivos y que constituyan riesgo de diseminación de la enfermedad. Esta condición se establecerá de manera individual en el momento del registro, según su análisis de riesgo.
 10. Analépticos.
 11. Antineoplásicos.
-GRUPO 3: Medicamentos veterinarios de venta exclusiva en establecimientos farmacéuticos veterinarios:
+(Nota de Sinalevi: Mediante resolución SENASA-DG-D003-2011 de 21 de marzo de 2011, se dispuso lo siguiente: “…se instruye a la Dirección de Medicamentos Veterinarios que clasifique a los medicamentos que contengan como ingrediente activo la ivermectina, doramectina, moxidectina y abamectina en el Grupo 2 de Medicamentos Veterinarios, conforme a las disposiciones contenidas en el Decreto Nº 28861-MAG del 12 desde agosto del 2000, Reglamento de Registro y Control de Medicamentos Veterinarios, en un plazo no mayor a treinta días hábiles a partir de la entrada en vigencia de la presente resolución y para lo cual deberá tomar las previsiones que correspondan a los efectos de que su venta y disposición para uso en animales productores de alimento para consumo humano sea controlada”)
+Grupo 3: Medicamentos veterinarios de venta exclusiva en establecimientos farmacéuticos veterinarios:
 1. Analgésicos, antipiréticos y antiinflamatorios no esteroideos.
 2. Anestésicos locales tópicos.
 3. Agentes condroprotectores inyectables.
 4. Antianémicos.
 5. Antibióticos y otros antibacterianos.
 6. Antihistamínicos.
-7. Antiinflamatorios
+7. Antiinflamatorios esteroideos.
 8. Antimicóticos.
 9. Antivirales.
 10. Antihelmínticos.
 11. Antiprotozoarios
-12. Biológicos que no contengan microorganismos vivos (vacunas, bacterinas, toxoides, sueros hiperinmunes).
+12. Biológicos que contengan o no microorganismos vivos y que no constituyan riesgo de diseminación de la enfermedad (vacunas, bacterinas, toxoides, sueros hiperinmunes).
 13. Colinérgicos y anticolinérgicos.
 14. Diuréticos
 15. Ectoparasiticidas.
@@ -51,12 +52,12 @@ GRUPO 3: Medicamentos veterinarios de venta exclusiva en establecimientos farmac
 25. Inhibidores de crecimiento de ectoparásitos.
 26. Jabones, champúes, collares medicados, talcos con insecticidas fosforados cuyos ingredientes activos excedan el 1.5% de concentración.
 27. Medicamentos homeopáticos.
-28. Reactivos de diagnóstico que contengan o no microorganismos vivos, los cuales serán de uso exclusivo en laboratorios veterinarios debidamente acreditados.
+28. Reactivos de diagnóstico que contengan microorganismos vivos o muertos y que no constituyan riesgo de diseminación de la enfermedad, los cuales serán de uso exclusivo en laboratorios veterinarios debidamente acreditados.
 29. Promotores de crecimiento no hormonales.
 30. Soluciones dextrosadas o con aminoácidos parenterales.
 31. Vitaminas y minerales de carácter terapéutico.
 32. Oxitocina
-GRUPO 4: Está formado por Medicamentos Veterinarios de libre venta en cualquier local comercial autorizado.
+Grupo 4: Está formado por Medicamentos Veterinarios de libre venta en cualquier local comercial autorizado.
 1. Absorbentes.
 2. Agentes condoprotectores orales.
 3. Antiácidos.
@@ -76,3 +77,4 @@ GRUPO 4: Está formado por Medicamentos Veterinarios de libre venta en cualquier
 17. Ungüentos y cremas tópicas que no contengan principios activos del Grupo 3.
 18. Agentes de exclusión competitiva.
 Los medicamentos veterinarios del Grupo 1 sólo podrán ser prescritos y vendidos al amparo de las recetas que para ese grupo emite el Ministerio de Salud. Los medicamentos veterinarios del Grupo 2 sólo podrán ser prescritos y vendidos bajo una receta para medicamentos veterinarios de uso controlado.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 29762 de 26 de julio del 2001)
