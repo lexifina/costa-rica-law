@@ -1,0 +1,1 @@
+Artículo 16.- Los Corredores Jurados deben ejecutar por sí mismos las negociaciones que se les encomienden. No obstante, si por razones especiales no pudieren hacerlas personalmente, les será permitido ejecutarlas, bajo su entera responsabilidad, por un dependiente.

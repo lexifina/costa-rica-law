@@ -1,0 +1,1 @@
+Artículo 12.- Los asientos del Registro deben ser firmados por las partes y tendrán el carácter de prueba documental, acerca de las condiciones del contrato. En todo caso, queda a la libre apreciación judicial el valor de la prueba emanada del Registro de los Corredores Jurados.

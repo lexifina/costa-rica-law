@@ -1,0 +1,1 @@
+Artículo 15.- Una concluído un contrato, el Corredor Jurado debe entregar a cada una de las partes, certificación del asiento respectivo de su Registro, dentro de las veinticuatro horas siguientes de haberse celebrado el negocio. Las partes deben firmar el Registro al recibir esa certificación.

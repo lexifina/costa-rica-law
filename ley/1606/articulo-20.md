@@ -1,0 +1,1 @@
+Artículo 20.- Los Corredores Jurados tendrán todas las demás atribuciones que les señalen las leyes, pudiendo especialmente llevar a cabo la labor de martilleros o rematadores, y la de peritos, de acuerdo con lo establecido en el Código de Procedimientos Civiles.
