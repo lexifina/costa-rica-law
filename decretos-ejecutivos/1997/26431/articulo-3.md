@@ -79,3 +79,20 @@ La Coordinación Agropecuaria tendrá las siguientes funciones:
 15. Contribuir en la promoción y desarrollo de procesos de capacitación y educación no formal y formal tendientes a provocar cambios en la conducta productiva y en las actitudes de los pequeños productores y productoras en sus familias y organizaciones orientados hacia la eficiencia productiva, capacidad de gestión autogestionaria y fortalecimiento de las capacidades organizativas.
 16. Promover y asesorar en métodos, técnicas e instrumentos que integren la labor de las diferentes instancias a nivel regional.
 17. Cualquier otra función que las autoridades superiores, leyes y reglamentos le asignen.
+- La Oficialía Mayor que será el órgano de enlace político administrativo de la Institución, tendrá las siguientes funciones:
+1.—Coordinar con otras instituciones del más alto nivel la puesta en práctica de las políticas agropecuarias sectoriales:
+a) Dentro del Sector:
+- Con respecto a la regionalización del presupuesto, apoyo para los programas nacionales y financiamiento público a proyectos específicos.
+- Participar en la definición de la política del Ministerio y sugerir respuestas a las necesidades del sector.
+b) Fuera del Sector:
+- Con el Ministerio de Hacienda todo lo relacionado con la tramitación de los presupuestos ministeriales ordinarios y extraordinarios de la República.
+- Como enlace legislativo, en la defensa de los presupuestos para el MAG, CNP, IDA, SENARA, PIMA, entre otras; el impulso y seguimiento a los proyectos de ley de interés del Sector Agropecuario y el mantenimiento de las relaciones entre el señor Ministro con los señores Diputados.
+- Con la Comisión Nacional de Emergencia, todo lo relativo a la participación del Ministerio en situaciones de desastre.
+2.—Proponer programas específicos de apoyo y motivación al personal, en armonía con la eficiencia y eficacia en su desempeño y con el nivel de productividad que demuestran.
+3.—Proponer, coordinar y ejecutar acciones que tiendan al adecuado desenvolvimiento administrativo y técnico de la Institución.
+4.—Representar al Ministro en los Programas de Asistencia Técnica dirigidos a los pequeños productores, que propongan beneficiar a aquellos mediante el aporte de insumos agropecuarios.
+5.—Servir de enlace al más alto nivel entre el Ministro, Viceministro y otros Ministerios.
+6.—Coordinar las visitas de funcionarios de alto nivel de otros países relacionados con la labor del Ministerio en apoyo al Ministro y Viceministro y darle seguimiento a los acuerdos que de las reuniones se deriven.
+7.—Coordinar las acciones de apoyo en casos de emergencia causados por brotes de enfermedades de interés agropecuario.
+8.—Cumplir con otras tareas que le sean asignadas por el señor Ministro o Viceministro.
+(Así ampliado por el artículo 1° del Decreto Ejecutivo N° 27414 del 13 de setiembre de 1998)
