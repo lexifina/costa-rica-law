@@ -1,0 +1,1 @@
+Artículo 11.—El Encargado del Archivo Central deberá capacitar y asesorar a los encargados de los Archivos de Gestión de las diferentes unidades administrativas o cualquier otro funcionario relacionado con la actividad documental, para que se organicen los archivos de conformidad con las políticas y técnicas reguladas por esta instancia.

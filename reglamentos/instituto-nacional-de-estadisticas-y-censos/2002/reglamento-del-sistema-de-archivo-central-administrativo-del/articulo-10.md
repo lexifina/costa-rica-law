@@ -1,0 +1,4 @@
+Artículo 10.—La documentación por remitir al Archivo Central deberá estar debidamente clasificada, ordenada, acompañada por las respectivas listas de remisión y entregada, en los primeros 30 días naturales de cada año, según las siguientes especificaciones:
+a) El Archivo Central elaborará un cronograma de remisiones documentales para cada oficina, de modo que pueda planificarse este proceso y el personal tenga tiempo para cotejar las remisiones con la asistencia de un delegado del Archivo.
+b) Las remisiones de los documentos de los archivos de gestión de las diferentes unidades administrativas, deberán hacerse de acuerdo con el procedimiento que establece el Archivo Central.
+c) Si fueran documentos microfilmados o en cualquier otro soporte magnético que se considere adecuado, ingresarán al Archivo Central con las respectivas micropelículas o microfichas, discos ópticos o cualquier otro soporte que utilice.

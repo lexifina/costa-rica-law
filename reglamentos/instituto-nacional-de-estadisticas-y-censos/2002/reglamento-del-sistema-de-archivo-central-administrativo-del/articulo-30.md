@@ -1,0 +1,1 @@
+Artículo 30.—Los documentos pueden ser solicitados también por los particulares, siempre y cuando los consulten en el mismo archivo con un horario de 8,00 a.m. a 3,30 p.m., mediante la utilización de una fórmula denominada "Registro de Usuarios" que para tal efecto se usa en la oficina. Para efectos de fotocopiado, se procederá igual al artículo anterior.

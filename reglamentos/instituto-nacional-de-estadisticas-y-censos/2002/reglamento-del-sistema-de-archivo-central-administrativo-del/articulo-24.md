@@ -1,0 +1,1 @@
+Artículo 24.—Al realizarse la transferencia, un funcionario del Archivo Central y uno de la oficina remitente, confrontarán la lista de remisión con los documentos. En caso de presentarse faltantes o alguna anomalía, no se recibirá la documentación hasta que éstas se hayan corregido.

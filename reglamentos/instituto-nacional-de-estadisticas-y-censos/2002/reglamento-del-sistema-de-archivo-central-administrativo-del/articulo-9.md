@@ -1,0 +1,1 @@
+Artículo 9º—El Archivo Central reunirá los documentos custodiados por los Archivos de Gestión de las diferentes unidades administrativas, los cuales deberán remitir dentro del período que fija la Ley del Sistema Nacional de Archivo y el Reglamento a la ley, o bien la Tabla de Plazos.

@@ -1,0 +1,1 @@
+Artículo 21.—La documentación a transferir, deberá tener un mínimo de dos años de producida, excepto en casos especiales, para lo cual deberá contar con una autorización por escrito del encargado del Archivo de Gestión.

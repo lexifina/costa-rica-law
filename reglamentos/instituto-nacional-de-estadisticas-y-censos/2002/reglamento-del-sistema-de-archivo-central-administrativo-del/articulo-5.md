@@ -1,0 +1,1 @@
+Artículo 5º—Los archivos deberán facilitar los documentos a los usuarios internos y externos, de acuerdo con lo que establecen los artículos 24 y 30 de la Constitución Política, los artículos 10 y 42 de la Ley del Sistema Nacional de Archivos y el artículo 4 de la Ley Nº 7839 del INEC.

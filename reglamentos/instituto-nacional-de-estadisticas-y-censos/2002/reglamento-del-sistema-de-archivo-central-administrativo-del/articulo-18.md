@@ -1,0 +1,1 @@
+Artículo 18.—El Comité Institucional podrá convocar a sus reuniones a cualquier funcionario del INEC, competente en la materia por tratar, para decidir con mayor amplitud y objetividad la conservación y eliminación de la documentación evaluada.

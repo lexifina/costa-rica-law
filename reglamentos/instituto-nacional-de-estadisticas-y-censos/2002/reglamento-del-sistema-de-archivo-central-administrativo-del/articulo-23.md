@@ -1,0 +1,1 @@
+Artículo 23.—Todo expediente debe ser enviado al archivo con carátula al principio y protección al final, para su debida conservación. No se recibirán expedientes que no sean enviados en dicha forma y debidamente rotulados, indicando su contenido.
