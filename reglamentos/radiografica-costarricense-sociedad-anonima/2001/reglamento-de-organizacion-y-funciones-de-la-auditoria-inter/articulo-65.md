@@ -1,0 +1,1 @@
+Artículo 65.—Costos de cada estudio de Auditoría. En cada estudio de Auditoria, el auditor responsable de su ejecución deberá registrar los costos finales de dicho análisis, desglosando en los diferentes componentes, según los formularios establecidos previamente.

@@ -1,0 +1,1 @@
+Artículo 20.—Área de Supervisión. Corresponde al Área de Supervisión las tareas de planificar, organizar, dirigir, evaluar y controlar las labores de la Unidad, así como retroalimentar las tareas de los funcionarios de la Auditoria y preparar aquellos estudios especiales que por su naturaleza, requieren de atención especial o confidencial.

@@ -1,0 +1,1 @@
+Artículo 21.—Área Informática. Las funciones de la Auditoría Informática comprenden la verificación y evaluación de la planeación, organización y dirección del centro de cómputo, así como la Habilidad de la información procesada, respecto a la calidad y suficiencia de los controles sobre los sistemas actuales y futuros del área de procesamiento de datos.

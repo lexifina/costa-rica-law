@@ -1,0 +1,1 @@
+Artículo 32.—Apoyo a evaluaciones o auditorías externas. La Auditoría servirá de coordinadora y apoyo para las Evaluaciones y Auditorías Externas, las cuales son realizadas por la Contraloría General de la República y por Empresas de Auditoría Externa contratadas por RACSA.

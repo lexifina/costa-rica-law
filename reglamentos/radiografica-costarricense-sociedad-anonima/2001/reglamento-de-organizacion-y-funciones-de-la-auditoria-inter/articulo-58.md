@@ -1,0 +1,1 @@
+Artículo 58.—Evidencia suficiente y competente. Durante el proceso de cada estudio se obtendrá material de prueba suficiente y adecuado por medio de inspecciones, observaciones, investigaciones, indagaciones y confirmaciones, con el propósito de sustentar las conclusiones de los informes en la mejor forma posible.

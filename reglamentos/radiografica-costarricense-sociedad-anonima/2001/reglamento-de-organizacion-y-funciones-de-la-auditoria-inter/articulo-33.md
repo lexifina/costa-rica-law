@@ -1,0 +1,1 @@
+Artículo 33.—Contrataciones de recursos externos. La Auditoría Interna podrá realizar la contratación de recursos externos para llevar a cabo estudios especiales, los cuales deben ser previamente justificados. La Administración facilitará estas contrataciones, cumpliéndose para ello con los procesos de contratación establecidos.

@@ -1,0 +1,1 @@
+Artículo 68.—Publicación del reglamento. Ningún funcionario de RACSA puede alegar desconocimiento del presente Reglamento, quedando como obligación y responsabilidad de los diferentes niveles jerárquicos de la Administración, informar al personal a su cargo sobre el mismo.

@@ -1,0 +1,1 @@
+Artículo 39.—Asesoría de otras áreas. La Auditoría queda facultada para requerir, según sea el área que se esté examinando, el concurso de profesionales y técnicos de la Empresa, con el fin de lograr asesoramiento en áreas específicas.

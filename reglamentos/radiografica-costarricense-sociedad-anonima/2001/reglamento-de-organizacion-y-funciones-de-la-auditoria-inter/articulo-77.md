@@ -1,0 +1,1 @@
+Artículo 77.—Publicación de informes de Auditoría. La exhibición de informes a terceros, en forma parcial o total, será atribución de las autoridades superiores de la Empresa. La Auditoria sólo lo podrá hacer en función de sus actividades o por requerimiento judicial expreso.

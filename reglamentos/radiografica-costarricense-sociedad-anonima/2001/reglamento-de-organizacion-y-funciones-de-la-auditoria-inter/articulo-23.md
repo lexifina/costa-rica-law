@@ -1,0 +1,1 @@
+Artículo 23.—Área Financiera Contable. Las funciones de la Auditoria Financiera Contable tienen como propósito fundamental la evaluación de la legitimidad y legalidad de los ingresos y egresos de la Empresa y verificar la razonabilidad de los estados financieros.

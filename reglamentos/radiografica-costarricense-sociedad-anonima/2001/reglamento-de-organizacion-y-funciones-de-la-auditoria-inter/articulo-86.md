@@ -1,0 +1,1 @@
+Articulo 86.—Funciones del Comité. El Comité de Auditoría tendrá como funciones, las de coordinar los diferentes estudios que se realizan y el discutir casos de excepción que a criterio del Auditor, merezcan un tratamiento especial por sus características. Además, elaborar una minuta sobre los asuntos tratados con sus respectivos acuerdos.

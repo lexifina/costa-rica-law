@@ -1,0 +1,1 @@
+Artículo 35.—Cumplimiento de disposiciones. El personal de la Auditoría está sujeto a los Estatutos de Personal, a todas las disposiciones de carácter general que dicten la Junta Directiva y la Gerencia. Su nombramiento y remoción deberán contar con un informe previo del Auditor.

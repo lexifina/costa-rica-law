@@ -1,0 +1,4 @@
+Artículo 50.—Colaboración de funcionarios y libre acceso a los bienes institucionales. En el desarrollo de sus estudios o intervenciones, el personal de Auditoria tendrá acceso sin restricciones a toda documentación o información administrativa, asimismo podrá examinar físicamente todos los bienes de la Empresa. En este sentido, todos los funcionarios deben brindar colaboración al personal de Auditoría para que se les permita:
+a. Tener libre acceso, en cualquier momento, a los libros, archivos, valores y documentos de la Empresa, así como a otras fuentes de información relacionadas con su actividad.
+b. Obtener en la forma, condiciones y plazo que estime conveniente, informes, datos y documentos necesarios para el cumplimiento de sus funciones.
+c. Disponer de la colaboración y asesoría de otros funcionarios y de las facilidades que demande el ejercicio de la labor de la Auditoría.

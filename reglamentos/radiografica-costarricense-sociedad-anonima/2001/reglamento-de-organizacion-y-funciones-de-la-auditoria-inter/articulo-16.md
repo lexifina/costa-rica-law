@@ -1,0 +1,1 @@
+Artículo 16.—Fiscalización de recursos. La Auditoria abarcara, para el fiel cumplimiento de sus propósitos, todas aquellas labores de fiscalización de las operaciones administrativas, económicas y financieras que le permitan verificar que se está realizando una correcta utilización de los recursos y la apropiada salvaguarda de los activos y los intereses de la Empresa.

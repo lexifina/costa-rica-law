@@ -1,0 +1,1 @@
+Artículo 81.—Colaboración de la administración. La Administración, a solicitud del Auditor, colaborará en la coordinación y cumplimiento del programa de capacitación y entrenamiento aprobado por la Junta Directiva.

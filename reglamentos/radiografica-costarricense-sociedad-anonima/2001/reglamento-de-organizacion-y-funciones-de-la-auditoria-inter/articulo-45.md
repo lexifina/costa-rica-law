@@ -1,0 +1,1 @@
+Artículo 45.—Información presupuestaria. Se deberá incluir anualmente en el presupuesto general de RACSA, un anexo con la información brindada por el Auditor, correspondiente a los recursos asignados a la Unidad, con comentarios relativos a si las sumas autorizadas son suficientes para atender adecuadamente las funciones de ese año.

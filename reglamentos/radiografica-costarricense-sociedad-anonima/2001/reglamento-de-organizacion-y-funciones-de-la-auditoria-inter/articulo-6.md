@@ -1,0 +1,1 @@
+Artículo 6°—Alianzas estratégicas. Esta Unidad mantendrá en forma actualizada, las alianzas estratégicas con las Auditorias Internas del Grupo ICE, con el fin de establecer un norte común, de acuerdo con las políticas establecidas por las empresas del Grupo en materia de auditoria, de manera consistente.

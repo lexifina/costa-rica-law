@@ -1,0 +1,1 @@
+Artículo 84.—Integración del Comité. El Comité de Auditoría Interna estará integrado por el Gerente o Subgerente, el Gerente de Proceso del área auditada y el Auditor Interno. Cuando la Junta Directiva lo considere conveniente o a solicitud del Auditor Interno, uno o varios Directores de la Junta Directiva o sus representantes, podrán formar parte del Comité de Auditoria.

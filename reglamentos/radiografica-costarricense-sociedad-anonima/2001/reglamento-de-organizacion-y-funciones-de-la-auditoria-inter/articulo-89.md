@@ -1,0 +1,1 @@
+Artículo 89.—Distribución del reglamento. Copia de este Reglamento será entregada por el Auditor Interno a los miembros de la Junta Directiva, Gerencia, Subgerencia, Gerencias de Proceso y Subprocesos de la Empresa, una vez aprobado por la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 52.—Componentes del plan anual. El Plan Anual de Actividades abarcara estudios sobre Auditoría Operacional y Control Interno. Auditoría Contable-Financiera, Auditoría Informática, Auditoría de Infocomunicaciones, Supervisión. Auditoría de Estudios Especiales. Asistencia Técnica Administrativa y de los estudios extraordinarios de Auditoria, sujetos a ser contratados.

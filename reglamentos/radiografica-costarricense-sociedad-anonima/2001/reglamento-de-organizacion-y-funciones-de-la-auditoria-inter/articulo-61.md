@@ -1,0 +1,1 @@
+Artículo 61.—Herramientas de los estudios. La oportunidad, forma y herramientas a ser empleadas en los estudios o intervenciones serán de exclusiva competencia de la Auditoria y se enmarcarán dentro de la razonabilidad necesaria en cuanto a la disponibilidad y uso de recursos y a la aplicación de los procedimientos generalmente aceptados en la materia.

@@ -1,0 +1,1 @@
+Artículo 27.—Naturaleza de las funciones. La gestión de evaluación de las Áreas de Auditoria es recomendativa para que la Administración adopte las medidas correctivas, fortaleciendo de esta manera el control interno en las actividades y funciones que están realizando y que den como resultado servicios de mayor calidad al cliente.

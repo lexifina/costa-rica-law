@@ -1,0 +1,1 @@
+Artículo 74.—Confidencialidad de los resultados. El Personal de Auditoría, en todas sus actuaciones, deberá mantener una actitud mental independiente y guardar absoluta confidencialidad con respecto a sus estudios. No deberá hacer comentarios en relación con los procedimientos de trabajo o los resultados obtenidos, sin la autorización de sus superiores.

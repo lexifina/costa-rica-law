@@ -1,0 +1,1 @@
+Artículo 85.—Asuntos a tratar. El Comité de Auditoría sólo analizará aquellos estudios o exámenes que por su índole merezcan ser tratados a un nivel consultivo y que tengan las características de generalidad en RACSA.

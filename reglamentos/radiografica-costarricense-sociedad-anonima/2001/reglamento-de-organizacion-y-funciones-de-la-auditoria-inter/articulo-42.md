@@ -1,0 +1,1 @@
+Artículo 42.—Prohibiciones. Es prohibido para los funcionarios de la Auditoría recibir gratificaciones o beneficios de cualquier naturaleza, provenientes de personas, clientes, entidades o unidades administrativas sujetas a intervenciones de la Auditoria o que potencialmente lo fueren. Quien infrinja esta prohibición se hará acreedor de las sanciones correspondientes.

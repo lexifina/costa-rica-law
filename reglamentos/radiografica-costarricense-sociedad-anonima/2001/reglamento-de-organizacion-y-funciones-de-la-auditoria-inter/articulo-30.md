@@ -1,0 +1,1 @@
+Artículo 30.—Dirección. El jerarca inmediato superior de estas Áreas de la Auditoría será el Auditor Interno, quien será el responsable de rendir cuentas ante la Junta Directiva por los resultados de dichas Áreas.

@@ -1,0 +1,1 @@
+Artículo 31.—Comunicación de resultados. Los resultados de sus intervenciones serán informados al funcionario ejecutivo que corresponda; Gerencias de Proceso. Gerencia General o Junta Directiva. De ser procedente y con base en el evento detectado, podrá informarse a otras instancias competentes, como el Comité de Vigilancia.

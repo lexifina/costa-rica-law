@@ -1,0 +1,1 @@
+Artículo 13.—Declaración de bienes. El Auditor está obligado a cumplir con el requisito de declarar sus bienes de acuerdo con la Ley No 6872 y su Reglamento. También deberá dar cumplimiento a las disposiciones que establecen el control de la Auditoría en esta materia.

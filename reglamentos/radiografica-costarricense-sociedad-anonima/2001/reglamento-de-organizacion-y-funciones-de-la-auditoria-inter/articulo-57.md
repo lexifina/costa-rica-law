@@ -1,0 +1,1 @@
+Artículo 57.—Alcance del trabajo. La extensión y alcance de los tipos de pruebas serán determinados según lo indique la evaluación del control interno y aplicando las técnicas de muestreo o el juicio profesional. Serán utilizadas de conformidad con las atribuciones de la Auditoría y las disposiciones de la Contraloría General de la República.

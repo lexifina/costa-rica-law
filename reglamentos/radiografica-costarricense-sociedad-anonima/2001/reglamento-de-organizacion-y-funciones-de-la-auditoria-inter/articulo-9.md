@@ -1,0 +1,1 @@
+Artículo 9°—Nombramiento del Auditor. Corresponde a la Junta Directiva de RACSA el nombramiento del Auditor por tiempo indefinido. El Auditor debe ser Contador Público Autorizado, de conformidad con lo que consigna el articulo 8 del Reglamento del Colegio de Contadores Públicos de Costa Rica.

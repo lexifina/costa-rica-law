@@ -1,0 +1,1 @@
+Artículo 90.—Potestad para modificaciones. Las modificaciones a este Reglamento serán potestad de la Junta Directiva. Asimismo, será potestad exclusiva de la Junta Directiva en caso de ambigüedad o desacuerdo, la interpretación y resolución de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 3°—Independencia de sus actividades. La labor de Auditoría Interna es ía actividad de evaluar en forma oportuna e independiente las operaciones contables, financieras, administrativas y de otra naturaleza de la Empresa.

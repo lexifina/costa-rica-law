@@ -1,0 +1,1 @@
+Artículo 48.—Modificaciones presupuestarías. No podrán hacerse modificaciones presupuestarias que afecten los recursos asignados al desarrollo de las actividades de la Unidad, sin contarse con la anuencia del Auditor General, o su sustituto en caso de que esté ausente el titular.

@@ -1,0 +1,1 @@
+Artículo 80.—Aprobación del programa. Anualmente la Auditoría Interna preparará un programa de capacitación y entrenamiento para sus funcionarios, el cual será sometido a la revisión y aprobación de la Junta Directiva.
