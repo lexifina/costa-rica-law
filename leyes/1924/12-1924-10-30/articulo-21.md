@@ -1,6 +1,8 @@
-Artículo 21 .-Las operaciones principales del Banco son las generales del negocio de seguro, pero, le está prohibido:
-1°.-Hacer compras o préstamos para fomentar especulaciones de cualquier género.
-2°.-Comprar o pignorar acciones u obligaciones de sociedades anónimas.
-3°.-Invertir más del 25 % de las reservas técnicas que correspondan a los riesgos en deuda pública.
-4°.-Especular en cambios de moneda o en giros de letras, y
-5°.-Emprestar dinero al Gobierno, Municipios, Juntas de Educación o de Caridad, si es con garantías reales que puedan hacerse efectivas en caso de incumplimiento de la obligación.
+Artículo 21.- Para garantizar el cumplimiento de sus obligaciones de
+asegurador, el Instituto establecerá reservas técnicas (Matemáticas,
+Primas no Devengadas, Siniestros Pendientes, Pólizas Vencidas, Dividendos
+a Asegurados y Contingencias), que ajustará anualmente de acuerdo con su
+Cartera, e invertirá en las mejores condiciones de rentabilidad y
+liquidez, en consideración a la naturaleza de aquellas obligaciones.
+(Así reformado por el artículo 2 de la Ley Nº 5279 de 27 de julio de
+1973).

@@ -1,1 +1,4 @@
-Artículo 19.-Antes de los dos meses siguientes al nombramiento de la Directiva fundadora, ésta presentará al Ejecutivo para su aprobación o reforma, de acuerdo con este articulado y con la práctica de los seguros, el reglamento general de la Institución.
+Artículo 19.-Antes de los dos meses siguientes al nombramiento de la
+Directiva fundadora, ésta presentará al Ejecutivo para su aprobación o
+reforma, de acuerdo con este articulado y con la práctica de los seguros,
+el reglamento general de la Institución.
