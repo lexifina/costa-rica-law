@@ -1,0 +1,26 @@
+Artículo 3º—Modifícase la relación de puestos de Servicios Especiales de la Defensoría de los Habitantes de la República contenida en el inciso b) del artículo 7º de la Ley Nº 8341 del 9 de diciembre del 2002, en la forma que se indica a continuación:
+AUMENTAR:
+080 RELACIÓN DE PUESTOS DE SERVICIOS ESPECIALES PARA EL AÑO 2003
+121-DEFENSORÍA DE LOS HABITANTES DE LA REPÚBLICA
+Cuota Cuota
+Código Clase Detalle de los puestos mensual anual
+121.808 DEFENSORÍA DE
+LOS HABITANTES
+DE LA REPÚBLICA
+121.808-00.91 UNIDAD DE DEFEN-
+SORÍA GENERAL 841.750
+121.808-00.91.0001 DIRECCIÓN DE DESPACHO 841.750
+10125 1 OFICIAL DE
+ADMISIBILIDAD
+(5.0 meses) 168.350 841.750
+TOTAL AUMENTAR
+SUELDOS PROGRAMA:
+808 DEFENSORÍA DE
+LOS HABITANTES
+DE LA REPÚBLICA 841.750
+TOTAL AUMENTAR
+SUELDOS TÍTULO: 121
+DEFENS. DE LOS HABIT.
+DE LA REP. 841.750
+TOTAL AUMENTAR
+SUELDOS 841.750
