@@ -15,3 +15,4 @@ Reglamento de Inscripción de Asociaciones en el Registro Nacional
 | --- | --- | --- |
 | 1 | 1990-10-04 | la propia norma |
 | 2 | 1998-02-18 | Decreto Ejecutivo 26771 (1998-02-18) |
+| 3 | 1998-06-10 | Decreto Ejecutivo 27132 (1998-06-10) |
