@@ -1,0 +1,2 @@
+Artículo 6º—Relación administrativa significativa
+Para los efectos de este Reglamento, dos personas mantienen una relación administrativa significativa cuando se presente cualquiera de las siguientes situaciones entre ellas: a) dos personas jurídicas tienen en común un número de directores que representan el 30% o más de los integrantes del órgano directivo de por lo menos una de ellas; b) el gerente o el presidente de una persona jurídica se desempeña como gerente o presidente en otra persona jurídica o c) una persona física es presidente o gerente de una persona jurídica.
