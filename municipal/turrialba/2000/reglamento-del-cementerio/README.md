@@ -14,3 +14,4 @@ Reglamento del Cementerio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-26 | la propia norma |
+| 2 | 2002-09-20 | Reglamento municipal 21 (2002-09-20) |
