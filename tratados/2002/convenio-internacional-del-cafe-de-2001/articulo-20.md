@@ -1,0 +1,4 @@
+ARTÍCULO 20
+Procedimiento de votación de la Junta Ejecutiva
+1) Cada Miembro de la Junta Ejecutiva tendrá derecho a depositar el número de votos que haya recibido en virtud de lo dispuesto en los párrafos 6 y 7 del artículo 18. No se permitirá votar por delegación. Ningún Miembro de la Junta Ejecutiva tendrá derecho a dividir sus votos.
+2) Las decisiones de la Junta Ejecutiva serán adoptadas por la misma mayoría que se requeriría si las adoptase el Consejo.
