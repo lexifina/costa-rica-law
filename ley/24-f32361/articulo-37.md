@@ -1,4 +1,4 @@
-Artículo 37.- Cuando el Presidente del Colegio tuviere informes de
+ARTICULO 37.- Cuando el Presidente del Colegio tuviere informes de
 que existe entre dos dentistas un conflicto que pudiere originar un
 incidente personal, ofrecerá inmediatamente su mediación a ambos para que
 la querella sea resuelta por un Tribunal de Honor. También lo hará a

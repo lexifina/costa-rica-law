@@ -1,4 +1,4 @@
-Artículo 25.- Tiene por objeto el Fondo de Mutualidad auxiliar por
+ARTICULO 25.- Tiene por objeto el Fondo de Mutualidad auxiliar por
 una sola vez con la suma de mil quinientos colones a las familias de los
 colegiados y, en casos excepcionales, suministrar un auxilio global, una
 sola vez, o dividido tal auxilio en doce mensualidades a los miembros del

@@ -1,4 +1,4 @@
-Artículo 30.- El Fondo de Mutualidad a que se refieren los artículos
+ARTICULO 30.- El Fondo de Mutualidad a que se refieren los artículos
 precedentes puede ser sustituído por un Fondo Común de Mutualidad de los
 Colegios Universitarios, si así lo convienen dichos colegios.
 Las obligaciones de los miembros de cada Colegio y las sanciones que

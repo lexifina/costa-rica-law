@@ -1,4 +1,4 @@
-Artículo 20.- Son obligaciones del Secretario: redactar las actas de
+ARTICULO 20.- Son obligaciones del Secretario: redactar las actas de
 las sesiones, suscribiéndolas con el Presidente; llevar, bajo la dirección
 de éste, la correspondencia del Colegio que no fuere del exclusivo resorte
 del Presidente; refrendar los títulos y certificaciones; custodiar el
