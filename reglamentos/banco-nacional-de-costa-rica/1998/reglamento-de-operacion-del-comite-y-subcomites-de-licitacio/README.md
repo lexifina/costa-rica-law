@@ -14,3 +14,4 @@ Reglamento de Operación del Comité y Subcomités de Licitaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-15 | la propia norma |
+| 2 | 1999-10-26 | Reglamento 11004 (1999-10-26) |
