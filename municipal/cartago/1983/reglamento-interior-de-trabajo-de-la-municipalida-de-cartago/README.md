@@ -14,3 +14,4 @@ Reglamento interior de trabajo de la Municipalida de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-03-16 | la propia norma |
+| 2 | 1984-11-08 | Reglamento municipal 0 (1984-11-08) |
