@@ -1,0 +1,8 @@
+Artículo 62.—Para el cumplimiento de los cometidos fijados al IFAM en su Ley de Organización y Funcionamiento en lo relativo a la materia crediticia y en concordancia con la Ley General de Control Interno, deberá cumplir con lo establecido en dicha ley. La responsabilidad institucional será:
+a) Establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional para efecto de los préstamos otorgados.
+b) Analizar las implicaciones en el sistema de control interno, cuando se lleve a cabo una desconcentración de competencias; asimismo, la responsabilidad de tomar las medidas correspondientes para que los controles sean extendidos, modificados y cambiados, cuando resulte necesario.
+c) Documentar, mantener actualizadas y divulgar internamente, las políticas de crédito, las normas crediticias y los procedimientos de control que garanticen el cumplimiento del sistema de control interno institucional y la prevención de todo aspecto que conlleve a desviar los objetivos y las metas trazados por la Institución en materia de crédito.
+d) Documentar, mantener actualizados y divulgar internamente las políticas y los procedimientos que definan claramente, entre otros asuntos, la autoridad y responsabilidad de los funcionarios encargados de autorizar y aprobar las operaciones crediticias de la Institución.
+e) La conciliación periódica de registros para verificar su exactitud, determinar y enmendar errores u omisiones que puedan haberse cometido en los créditos otorgados con anterioridad.
+f) Los que la ley de Organización y Funcionamiento del IFAM y la
+Ley de Control Interno señalen.

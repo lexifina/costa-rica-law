@@ -1,0 +1,1 @@
+Artículo 27.—Previo a la resolución del préstamo por la Junta Directiva del IFAM, los documentos correspondientes preparados por las dependencias administradoras del crédito, deberán ser analizados y dictaminados por la Comisión Técnica.

@@ -1,0 +1,1 @@
+Artículo 19.—Después de aceptada la solicitud dentro del Plan de Inversión, la municipalidad debe presentar los estudios respectivos en un período máximo de tres meses. Si el IFAM propone modificaciones al estudio de factibilidad, se le ampliará el plazo por treinta días naturales más para su cumplimiento. En caso de que no se presenten dentro de ese plazo se excluirán del Plan.

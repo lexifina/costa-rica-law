@@ -1,0 +1,1 @@
+Artículo 52.—Para las readecuaciones de deudas o modificaciones a los términos del crédito aprobado, la municipalidad deberá presentar solicitud del Concejo con las justificaciones del caso. Estas solicitudes serán resueltas por la Junta Directiva, previo análisis y recomendación de los organismos técnicos del Instituto.

@@ -1,0 +1,1 @@
+Artículo 35.—En los proyectos que se financien en el primer y cuarto trimestre del año, se le permitirá a las municipalidades presupuestar solamente el crédito, comprometiéndose estas a incluir el aporte y los intereses en el primer presupuesto extraordinario que tramite ante la Contraloría General de la República.

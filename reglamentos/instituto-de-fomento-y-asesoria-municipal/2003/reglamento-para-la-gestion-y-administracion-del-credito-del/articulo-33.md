@@ -1,0 +1,1 @@
+Artículo 33.—Una vez elaborado el contrato y notificado el prestatario para su firma, este dispondrá de un período máximo de 15 días naturales para cumplir con este requisito. En caso de incumplimiento, el préstamo será cancelado por la Junta Directiva previo informe de las dependencias administradoras del crédito.

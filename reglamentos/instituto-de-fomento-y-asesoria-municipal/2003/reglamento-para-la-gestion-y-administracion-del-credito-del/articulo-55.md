@@ -1,0 +1,1 @@
+Artículo 55.—El financiamiento concedido por el IFAM obliga al prestatario a ajustar y a aplicar, cuando proceda, las tarifas del proyecto financiado, de tal manera que se garantice la recuperación de los costos en que se incurrió con la ejecución.

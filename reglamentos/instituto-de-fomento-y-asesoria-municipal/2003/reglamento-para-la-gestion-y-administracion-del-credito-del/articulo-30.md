@@ -1,0 +1,1 @@
+Artículo 30.—El IFAM mantendrá los recursos necesarios a disposición del prestatario por el monto determinado en el documento de préstamo y por el tiempo estimado de ejecución del proyecto. Vencido ese tiempo, si el prestatario no ha justificado plenamente su atraso en el uso de los recursos, el Instituto podrá cancelar la operación.

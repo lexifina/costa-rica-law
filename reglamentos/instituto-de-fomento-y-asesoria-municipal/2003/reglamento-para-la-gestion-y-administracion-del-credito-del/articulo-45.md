@@ -1,0 +1,1 @@
+Artículo 45.—Cuando el costo total del proyecto fuere menor que el estimado, se mantendrá la relación de financiamiento original, haciéndose los ajustes pertinentes entre las partes. Caso contrario, de ser mayor el costo del proyecto que el estimado, el prestatario lo asumirá o se acogerá en lo estipulado en los artículos 21 y 31 de este Reglamento.
