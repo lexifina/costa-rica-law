@@ -1,0 +1,1 @@
+Artículo 10.—Si por acuerdo del Concejo Municipal, se acuerda brindar algún refrigerio en las sesiones del Concejo, los Regidores y Síndicos, no podrán solicitar ninguno de los subsidios que se señalan en los numerales A, B, C, del artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 5º—La secretaria del concejo Municipal, al final del periodo de sesiones de cada mes, enviará al Alcalde Municipal la lista de asistencia de los señores Regidores y Síndicos, propietarios y suplentes que asistieron, con el propósito de que coteje las solicitudes presentadas por los concejales, para darles validez a las mismas.
