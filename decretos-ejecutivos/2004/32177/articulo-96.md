@@ -1,0 +1,1 @@
+Articulo 96.—Los miembros de la Dirección de Operaciones deberán cumplir con los requisitos contemplados en el articulo 59 de la Ley General de Policía y sus Reformas, teniendo los derechos y beneficios que sean en corresponder y que se derivan de esa Ley.

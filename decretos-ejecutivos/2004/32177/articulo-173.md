@@ -1,0 +1,1 @@
+Articulo 173.—El Ministro aprobara y aplicara un único Manual de Procedimientos Policiales, el cual será elaborado por la Comisión Técnica nombrada por este (a), previa revisión del Consejo Superior de Oficiales.

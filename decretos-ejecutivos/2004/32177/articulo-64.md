@@ -1,0 +1,1 @@
+Articulo 64.—Las direcciones podrán proponer al Ministro(a) el nombramiento permanente o temporal de consultores, asesores o de instructores, para que de manera voluntaria, colaboren con la Fuerza Publica en aquellos aspectos propios de la función policial.

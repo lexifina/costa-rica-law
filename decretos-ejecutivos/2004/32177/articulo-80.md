@@ -1,0 +1,1 @@
+Articulo 80.—El Ejecutivo(a) del Director(a) General de la Fuerza Publica y los directores (as) regionales deberán, en forma reciproca, intercambiar aquella información proveniente del Cuerpo de Bomberos, Cruz Roja, Comisión Nacional de Emergencias, agrupaciones y empresas de taxistas. Red Bancaria Nacional y otros cuerpos policiales.

@@ -1,0 +1,1 @@
+Articulo 57.—Se entenderá por Seguridad Comunitaria y Comercial la estrategia de prevención del delito desarrollada por la Fuerza Publica, en coordinacion con los grupos de la sociedad civil, organizados y capacitados para este propósito.

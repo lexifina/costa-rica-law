@@ -1,0 +1,10 @@
+Articulo 43.—El Departamento de Presupuesto tendrá las siguientes funciones:
+1) Controlar y dar seguimiento a la ejecución de las partidas presupuestarias, así como velar por la aplicación de la normativa y procedimientos necesarios para una adecuada racional y proporcional ejecución.
+2) Vigilar que el control y ejecución presupuestario del Ministerio sea acorde con el ordenamiento jurídico y la normativa técnica impartida por la Dirección General de Presupuesto Nacional, así como las demás Instituciones que intervienen en los procesos de ejecución presupuestaria.
+3) Coordinar con las diferentes unidades ejecutoras de presupuesto, la elaboración del Ante Proyecto Presupuestario, con el objetivo de que este responda a los Planes Operativos Institucionales.
+4) Coordinar y consolidar el anteproyecto de presupuesto del Ministerio, atendiendo la normativa técnica establecida por la Dirección General de Presupuesto Nacional, así como los lineamientos y directrices, generales y específicos, emitidos por la Autoridad Presupuestaria y la Contraloría General de la Republica.
+5) Ejercer supervisión sobre las actividades presupuestarias, de conformidad con las disposiciones y políticas que imparta el Ministerio de Hacienda y la Dirección General de Presupuesto Nacional.
+6) Valorar el resultado de la ejecución de las partidas presupuestarias, de acuerdo con los recursos asignados y ejecutados en cada subpartida, en concordancia con los principios de eficiencia, eficacia, economía y calidad.
+7) Mantener y custodiar un archivo de los documentos de ejecución presupuestaria que respaldan las operaciones económicas y financieras que se realicen, de conformidad con las regulaciones y lineamientos que defina el Ministerio de Hacienda, en coordinacion con la Contraloría General de la Republica.
+8) Formular las opciones de contenido presupuestario a los documentos de ejecución, estudios o proyectos que generen los programas, subprogramas y actividades presupuestarias.
+9) Atender cualquier otra propia de su competencia.

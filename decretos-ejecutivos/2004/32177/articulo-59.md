@@ -1,0 +1,1 @@
+Articulo 59.—La Dirección General de la Fuerza Publica recomendara al Ministro(a), mediante un estudio técnico, las regiones en que se dividirá territorialmente la Fuerza Publica. Para su implementación contara con el apoyo de las instancias policiales y técnicas del Ministerio.

@@ -1,0 +1,1 @@
+Articulo 135.—El Consejo Académico es el órgano asesor que recomienda las políticas generales en el ámbito de educación policial, de conformidad con los criterios establecidos en la Ley General de Policía y sus reformas.

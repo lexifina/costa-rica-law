@@ -1,0 +1,3 @@
+Articulo 162.—La Dirección General de Armamento será la encargada de realizar las acciones necesarias para recuperar armas, cargadores, municiones, explosivos, aditamentos y accesorios, así como, equipo policial propiedad del Estado, que hayan sido sustraídos, extraviados o traslados de dominio en forma ilícita.
+Esta Dirección podrá solicitar a la autoridad judicial que ordeno la custodia de un arma al Arsenal Nacional, como resultado de un proceso, la aprobación para incluir este bien como activo estatal o para destruirla.
+De igual forma, podrá solicitar a la autoridad judicial competente, la devolución de un arma que sea prioridad del Estado, que haya sido encautada o decomisada con ocasión de prueba para un proceso judicial.

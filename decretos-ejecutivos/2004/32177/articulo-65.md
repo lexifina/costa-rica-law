@@ -1,0 +1,1 @@
+Articulo 65.—Estos consultores o instructores deberán ser de reconocida solvencia moral, no serán remunerados por el servicio que presten ni ostentaran investidura publica alguna. Su elección y desempeño se regirá por las normas establecidas en el Reglamento de Servicio de este Ministerio.

@@ -1,0 +1,1 @@
+Articulo 101.—La Unidad Especial de Apoyo, por las características de sus funciones, dependerá técnicamente del Director General de la Fuerza Publica, y administrativamente, de la Dirección de Unidades Especializadas.

@@ -1,0 +1,1 @@
+Articulo 79.—La labor del Ejecutivo(a) del Director (a) General de la Fuerza Publica, se desarrollara las 24 horas del día, durante todos los días del ano. Será ejercida por los funcionarios que designe el Director(a) General de la Fuerza Publica en coordinación con la Dirección de Operaciones.

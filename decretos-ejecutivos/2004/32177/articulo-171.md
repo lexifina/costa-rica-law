@@ -1,0 +1,1 @@
+Articulo 171.—Con la finalidad de mantener armónica la estructura orgánica de este Ministerio, cualquier dependencia que requiera modificación en su estructura interna, deberá remitir al superior inmediato la propuesta, según lineamientos de la Oficina de Planificación Institucional. Dicha propuesta será conocida en definitiva por el Ministro

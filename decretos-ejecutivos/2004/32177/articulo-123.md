@@ -1,0 +1,1 @@
+Articulo 123.—Las direcciones regionales tendrán la organización que apruebe la Dirección General de la Fuerza Publica en coordinación con la Dirección de Operaciones, para el cumplimiento de sus funciones.

@@ -1,0 +1,1 @@
+Articulo 56.—La prevención del delito se llevara a cabo, mediante la actuación de la Fuerza Publica y el desarrollo de estrategias para la colaboración, capacitación y concientizacion de los habitantes.

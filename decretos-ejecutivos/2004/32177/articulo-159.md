@@ -1,0 +1,1 @@
+Articulo 159.—Cuando la Reserva de las Fuerzas de Policía no se encuentre convocada, procurara la capacitación policial de sus miembros y prestara colaboración a la Dirección de Seguridad Comunitaria y Comercial en materia de prevención del delito.

@@ -1,0 +1,1 @@
+Articulo 129.—Los documentos, las bases informáticas de datos y demás material informativo, que posee este Ministerio referentes a las investigaciones concluidas y activas, tendrán carácter estrictamente confidencial. El material informativo estará al servicio del personal de la Dirección, las dependencias autorizadas por el Ministro (a) y las autoridades judiciales competentes.

@@ -1,0 +1,5 @@
+Articulo 165.—El Departamento de Control de Armas y Explosivos tendrá los siguientes deberes y responsabilidades:
+1) Levantar y mantener actualizados y en forma adecuada y apropiada, los registros de todas las armas propiedad de particulares y tramitar los permisos establecidos en la Ley de Armas y Explosivos y su Reglamento y demás disposiciones vinculantes.
+2) Tramitar y resolver por escrito, los permisos que se soliciten para la inscripción, portación, adquisición, fabricación, importación, exportación, distribución y comercialización de las armas de fuego permitidas, sus municiones, sus partes, repuestos, aditamentos, accesorios; así como de la pólvora destinada a uso industrial agrícola, de minería, pirotécnico, deportivo y el gas para uso personal.
+3) Comprobar, inspeccionar, supervisar y fiscalizar la fabricación, compra, venta, importación, exportación, desalmacenaje, almacenaje, distribución, traslado y decomiso de armas, municiones, cargadores, aditamentos, accesorios, explosivos y afines.
+4) Aquellas otras que se deriven de nuestro ordenamiento jurídico, de conformidad con su competencia.

@@ -1,0 +1,1 @@
+Articulo 95.—Los funcionarios de la Dirección de Operaciones deberán administrar, de manera compartimentada, los asuntos, datos, antecedentes, documentos e informaciones que reciban y tramiten, así como lo referente a actividades y operativos policiales que desarrollen. La violación del principio de compartimentación se considerara falta grave para efectos disciplinarios.

@@ -1,0 +1,1 @@
+Articulo 55.—Se entiende por prevención del delito, el conjunto de estrategias, tácticas y acciones que realiza el Ministerio, con la finalidad de conservar el orden publico, la tranquilidad de los habitantes, el libre disfrute de las libertades publicas y de disminuir el riesgo de los habitantes a ser victimas de alguna conducta delictiva.

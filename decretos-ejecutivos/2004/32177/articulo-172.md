@@ -1,0 +1,1 @@
+Articulo 172.—Toda creación, modificación o supresión de cualquier dependencia de la estructura orgánica de este Ministerio deberá ser revisada por la Oficina de Planificación Institucional en coordinación con la Asesoría Jurídica y la Dirección de Recursos Humanos, para su posterior aprobación por parte del Ministro.

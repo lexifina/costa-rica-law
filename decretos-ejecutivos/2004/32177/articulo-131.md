@@ -1,0 +1,1 @@
+Articulo 131.—Las delegaciones regionales tienen la responsabilidad de realizar investigaciones y operativos policiales en el área geográfica de su competencia, con la finalidad de detectar, prevenir, erradicar y reprimir actividades de trafico ilícito de drogas, legitimación de capitales, desvío de precursores y químicos y otras actividades conexas.

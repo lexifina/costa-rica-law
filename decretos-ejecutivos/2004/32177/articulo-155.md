@@ -1,0 +1,1 @@
+Articulo 155.—El Departamento de Inspección llevará a cabo la verificación y el control para que las personas físicas y jurídicas, dedicadas a prestar el servicio privado de seguridad, cumplan los requisitos establecidos en el ordenamiento, incluyendo especialmente la Ley N° 8395, denominada Ley de Servicios de Seguridad Privados y su reglamento.

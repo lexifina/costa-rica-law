@@ -1,0 +1,2 @@
+Articulo 60.—La Escuela Nacional de Policía es la instancia responsable de aprobar o convalidar los cursos obligatorios antes de incorporarse a la función policial y los cursos de especialidad antes de ocupar un puesto de mando o dirección.
+De igual forma, corresponde a este órgano definir si los funcionarios policiales que están en el proceso de capacitación en la Escuela y las personas que han convalidado cursos, tienen la formación adecuada para incorporarse a la función policial.

@@ -1,0 +1,1 @@
+Articulo 53.—Los alcances del presente reglamento se extenderán a todos los cuerpos policiales y a todos los órganos de apoyo de carácter policial, agrupados dentro de las fuerzas de policía adscritas a este Ministerio, de modo que el marco de actuación de cada uno de estos y de sus servidores queda debidamente regulado.

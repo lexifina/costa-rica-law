@@ -1,0 +1,1 @@
+Articulo 128.—El Departamento de Inteligencia contara con el Centro de Información y Análisis, el cual se encargara de archivar, custodiar y resguardar los expedientes clasificados de las investigaciones y contara con el registro informático. También administrara la red informática de la Dirección y procurara crear enlaces con otras fuentes de información.
