@@ -1,8 +1,8 @@
 ARTICULO 35.- Prevención de incendios forestales
-Se declaran de interés público las acciones que se emprendan a fin de
-prevenir y extinguir incendios forestales. Las medidas que se tomen serán
-vinculantes para todas las autoridades del país, de acuerdo con lo que se
-disponga en el reglamento de esta ley.
+Se declaran de interés público las acciones que se emprendan a fin
+de prevenir y extinguir incendios forestales. Las medidas que se tomen
+serán vinculantes para todas las autoridades del país, de acuerdo con lo
+que se disponga en el reglamento de esta ley.
 Compete a la Administración Forestal del Estado ordenar y encauzar
 las acciones tendientes a prevenir esos incendios.
 Nadie podrá realizar quemas en terrenos forestales ni aledaños a

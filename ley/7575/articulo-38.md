@@ -13,10 +13,10 @@ c) Prevenir y combatir plagas, enfermedades de los bosques e
 incendios forestales.
 d) Modernizar las industrias forestales y los mercados para sus
 productos.
-e) Fomentar actividades de investigación y capacitación para producir
-y usar eficientemente los recursos del sector forestal.
+e) Fomentar actividades de investigación y capacitación para
+producir y usar eficientemente los recursos del sector forestal.
 f) Ejecutar acciones y proyectos tendientes a disminuir la
-contaminación y el deterioro de los recursos naturales renovables (suelo,
-aire y agua).
+contaminación y el deterioro de los recursos naturales renovables
+(suelo, aire y agua).
 g) Realizar otras actividades de la Administración Forestal del
 Estado para cumplir con los fines de la presente ley.

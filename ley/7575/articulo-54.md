@@ -9,8 +9,8 @@ ley, deberán denunciar ante las autoridades competentes las infracciones
 cometidas.
 Las autoridades de policía estarán obligadas a colaborar con los
 funcionarios de la Administración Forestal del Estado, cada vez que ellos
-lo requieran para cumplir, cabalmente, con las funciones y los deberes que
-esta ley les impone.
+lo requieran para cumplir, cabalmente, con las funciones y los deberes
+que esta ley les impone.
 Para el cumplimiento de sus atribuciones, estos funcionarios,
 identificados con su respectivo carné, tendrán derecho a transitar y a
 practicar inspecciones en cualquier fundo rústico o industrial forestal,
@@ -20,5 +20,5 @@ ilícitamente y secuestrar, en garantía de una eventual sanción, el equipo
 y la maquinaria usados en el acto ilícito. También, decomisarán el medio
 de transporte que sirva como instrumento o facilitador para la comisión
 del delito, previo levantamiento del acta respectiva. Todo lo anterior
-deberá ponerse a la orden de la autoridad judicial competente, en un plazo
-no mayor de tres días.
+deberá ponerse a la orden de la autoridad judicial competente, en un
+plazo no mayor de tres días.
