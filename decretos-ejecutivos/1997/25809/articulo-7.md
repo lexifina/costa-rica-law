@@ -1,0 +1,1 @@
+Articulo 7°-El miembro a quien se le imponga una suspensión será separado de su cargo por un lapso no menor de un mes ni mayor de seis meses, según la gravedad de la falta cometida. El tiempo que dure la suspensión no se tomará en cuenta para computar la antigüedad del servicio.
