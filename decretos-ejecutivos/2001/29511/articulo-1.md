@@ -165,3 +165,4 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gasto presupuestario y efectivo del 2002, para Fabrica Nacional de Licores, por el artículo 1 del decreto ejecutivo N° 30783 de 27 de setiembre del 2002)
 (Modificado el límite de gasto presupuestario y efectivo del 2002, para RECOPE, por el artículo 2 del decreto ejecutivo N° 30784 de 2 de octubre del 2002)
 (Modificado el límite de gasto presupuestario y efectivo del 2002, para la Dirección General de Archivo Nacional, por el artículo 1 del decreto ejecutivo N° 30840 de 5 de noviembre del 2002)
+(Modificado el límite de gasto presupuestario y efectivo del 2002, para el Fondo de Parques Nacionales, por el artículo 1 del decreto ejecutivo N° 30888 de 11 de diciembre del 2002)
