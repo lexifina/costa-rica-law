@@ -40,3 +40,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 25 | 1999-02-10 | Reglamento 4985 (1999-02-10) |
 | 26 | 1999-02-24 | Reglamento 4987 (1999-02-24) |
 | 27 | 1999-02-24 | Reglamento 4987 (1999-02-24) |
+| 28 | 1999-04-07 | Reglamento 4991 (1999-04-07) |
