@@ -15,3 +15,4 @@ Reglamento de Jubilaciones y Pensiones Judiciales
 | 1 | 1939-07-07 | la propia norma |
 | 2 | 1959-06-02 | Decreto Ejecutivo 59 (1959-06-02) |
 | 3 | 1961-06-09 | Decreto Ejecutivo 37 (1961-06-09) |
+| 4 | 1977-10-31 | Decreto Ejecutivo 7668 (1977-10-31) |
