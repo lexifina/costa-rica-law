@@ -1,0 +1,1 @@
+Artículo 124.—Salvo los casos previstos en este Reglamento la omisión de registrar la asistencia, hará presumir la inasistencia a la correspondiente fracción de jornada, salvo que el servidor la justifique dentro de los tres días hábiles siguientes ante su jefe inmediato quien lo hará del conocimiento de la Unidad de Recursos Humanos por escrito incluyendo su criterio.

@@ -1,0 +1,1 @@
+Artículo 61.—Las calificaciones serán determinantes para la concesión de ascensos, traslados y un factor de obligada consideración al decidir sobre cualquier modificación de los términos de la relación de servicio.

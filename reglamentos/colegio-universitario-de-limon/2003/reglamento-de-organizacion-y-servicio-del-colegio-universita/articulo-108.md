@@ -1,0 +1,1 @@
+Artículo 108.—El salario será pagado en forma quincenal mediante depósito en la cuenta del servidor en un Banco del Sistema Bancario Nacional y en su defecto mediante cheque que se entregará al servidor en las cajas de la institución. El pago se efectuará dentro de las horas hábiles del día fijado al efecto en el calendario anual de pagos.

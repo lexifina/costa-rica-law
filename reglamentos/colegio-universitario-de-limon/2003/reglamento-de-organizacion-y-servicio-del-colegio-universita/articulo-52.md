@@ -1,0 +1,1 @@
+Artículo 52.—La asignación de la carga académica para un profesor de tiempo completo no deberá contener más de cuatro cursos diferentes por período lectivo, que podrán ser impartidos en las diferentes carreras de la institución.

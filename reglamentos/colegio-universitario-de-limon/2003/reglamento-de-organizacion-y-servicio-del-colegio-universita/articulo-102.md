@@ -1,0 +1,1 @@
+Artículo 102.—En caso de incapacidad para trabajar, el monto del subsidio que pagará la respectiva institución aseguradora sumado al que pague el CUNLIMÓN no podrá exceder al monto del salario ordinario del servidor.

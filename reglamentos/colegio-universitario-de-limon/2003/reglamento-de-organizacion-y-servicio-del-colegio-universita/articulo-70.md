@@ -1,0 +1,1 @@
+Artículo 70.—A los servidores que hayan servido a la Administración Pública del país, y certifiquen además de tal situación, experiencia y conocimientos suficientes para el desempeño de las funciones que realicen en el CUNLIMÓN, se les reconocerá la antigüedad conforme lo establece la Ley de Salarios de la Administración Pública. No se reconocerán fracciones menores de un año.

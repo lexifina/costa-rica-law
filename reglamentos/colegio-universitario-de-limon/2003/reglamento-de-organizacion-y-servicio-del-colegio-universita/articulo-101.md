@@ -1,0 +1,1 @@
+Artículo 101.—Si como consecuencia de un accidente o enfermedad de trabajo el servidor no pudiera desempeñar el puesto que ocupaba antes de ocurrirle el hecho, el CUNLIMÓN procederá a reubicarlo en un nuevo puesto acorde con su capacidad actual y su formación profesional. Si no fuera posible la reubicación se procederá a su despido con responsabilidad institucional.

@@ -1,0 +1,1 @@
+Artículo 169.—El despido con responsabilidad patronal, únicamente podrá realizarse por reducción forzosa de servicios, lo cual sólo procederá por reorganización de personal, supresión de plazas, supresión o reducción de cursos o por falta de fondos.

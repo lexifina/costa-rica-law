@@ -1,0 +1,1 @@
+Artículo 65.—Dos calificaciones sucesivas de regular o una de deficiente, una vez que adquieran firmeza y se haya cumplido lo que establecen los artículos siguientes, se considerarán falta grave para todo efecto legal, dando al CUNLIMÓN la posibilidad de despedir al funcionario previo aplicación del debido proceso.

@@ -1,0 +1,1 @@
+Artículo 66.—El servidor que esté en desacuerdo con la calificación asignada, podrá impugnarla por escrito fundamentando su disconformidad y ofreciendo las pruebas necesarias para su defensa, ante su jefe inmediato, dentro de los tres días hábiles siguientes al de la notificación.

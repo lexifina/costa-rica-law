@@ -1,0 +1,1 @@
+Artículo 94.—Todo servidor está en la ineludible obligación de dar aviso a la Unidad de Recursos Humanos o al Jefe inmediato, Director o Decano, de algún accidente que haya sufrido, al día siguiente hábil al accidente.

@@ -1,0 +1,1 @@
+Artículo 142.—En la valoración de la falta y aplicación de la sanción correspondiente se tomarán en cuenta los principios de Equidad, Justicia, de Causalidad-Objetiva y Psicológica y de Proporcionalidad.

@@ -1,0 +1,1 @@
+Artículo 127.—Se considera como ausencia, la inasistencia injustificada al trabajo durante la jornada laboral completa. La inasistencia injustificada durante una fracción de la jornada laboral se computará como la mitad de una ausencia. No se pagará el salario que corresponde en caso de ausencias injustificadas.

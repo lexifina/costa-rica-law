@@ -1,0 +1,1 @@
+Artículo 51.—El CUNLIMÓN podrá contratar profesores por fracciones menores a tiempo completo. Ningún profesor podrá ser remunerado por una jornada mayor a la definida como tiempo completo, excepto casos especiales autorizados por el Decano, en una jornada adicional máxima de ¼ tiempo completo.
