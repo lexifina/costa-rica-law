@@ -1,2 +1,2 @@
-Artículo 79.—La fecha máxima para la presentar la liquidación de gastos de representación y de recepciones sera el quinto día hábil posterior al evento, cuya fecha de realización ha de haberse consignado en el formulario Adelanto de Gastos. En lo que respecta a otros bienes y servicios la fecha máxima será el tercer día hábil de haberse adquirido o dado el mismo.
-(Así ADICIONADO mediante Sesión Ordinaria Nº4995 celebrada el 31 de enero de 2000, publicada en La Gaceta Nº 72 del 12 de abril de 2000.)
+Artículo 79.—Se establece el Fondo de Caja General con sede en las Oficinas Centrales del Instituto, en la ciudad de San José, con un monto de ¢5.000,00 (cinco mil colones).
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Ordinaria N° 5252, celebrada el 1 de julio de 2003, publicada en La Gaceta N° 141 de 23 de julio de 2003.)

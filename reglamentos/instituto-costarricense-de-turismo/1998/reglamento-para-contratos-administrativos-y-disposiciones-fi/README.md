@@ -20,3 +20,4 @@ Reglamento para Contratos Administrativos y Disposiciones Financieras del Instit
 | 5 | 2001-01-29 | Reglamento 5080 (2001-01-29) |
 | 6 | 2003-06-03 | Reglamento 5248 (2003-06-03) |
 | 7 | 2003-06-17 | Reglamento 5250 (2003-06-17) |
+| 8 | 2003-07-01 | Reglamento 5252 (2003-07-01) |
