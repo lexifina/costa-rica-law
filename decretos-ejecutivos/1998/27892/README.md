@@ -14,3 +14,4 @@ Autoriza pago de un 100% para las contrataciones de ejecución de obras pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-12-01 | la propia norma |
+| 2 | 1998-12-01 | SINALEVI (sin norma nombrada) |
