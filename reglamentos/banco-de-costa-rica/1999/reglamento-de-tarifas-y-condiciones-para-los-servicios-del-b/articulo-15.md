@@ -100,6 +100,12 @@ La Jta. Dva. en Sesión 87-98, Art. V, del 26 de noviembre de 1998, aprobó la t
 Rige a partir de su publicación en el Diario Oficial La Gaceta el día 25 de enero del 2000.
 Comunicado por: Gerencia de Normativa Administrativa
 25 de enero del 2000
-(NOTA: La Junta Directiva General del Banco de Costa Rica, en sesión Nº 7-03, artículo XV del 11 de febrero del 2003, aprobó la siguiente modificación al Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica:
+NOTA: La Junta Directiva General del Banco de Costa Rica, en sesión Nº 7-03, artículo XV del 11 de febrero del 2003, aprobó la siguiente modificación al Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica:
 | SERVICIO | TARIFA
 106. | Cheques enviados al cobro por cuenta clientes a través de telex | $10,00
+NOTA: La Junta Directiva General del Banco de Costa Rica, en sesión Nº 03-04, artículo IX del 27 de enero del 2004, aprobó la siguiente modificación al Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica:
+Concepto Comisión
+Transferencia interbancarias y a terceros Comisión 0.050% sobre el
+enviadas y recibidas monto de transferencia
+Mínimo $10.00
+Máximo $50.00
