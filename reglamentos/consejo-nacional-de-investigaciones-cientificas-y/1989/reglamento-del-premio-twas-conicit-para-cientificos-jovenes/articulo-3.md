@@ -1,0 +1,1 @@
+Artículo 3°—El Premio consistirá en un certificado de distinción más una dotación en efectivo (US$ 2.000,00). Lo otorgarán conjuntamente “The Third World Academy of Sciences”, llamada en lo sucesivo la Academia y el Consejo Nacional para Investigaciones Científicas y Tecnológicas, llamado en lo sucesivo el CONICIT.

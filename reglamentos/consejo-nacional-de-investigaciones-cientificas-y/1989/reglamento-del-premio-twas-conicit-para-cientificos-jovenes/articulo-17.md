@@ -1,0 +1,1 @@
+Artículo 17.—La declaratoria del Premio la hará el Consejo Director del CONICIT, conjuntamente con el Comité, en sesión especial que se celebrará en la segunda quincena de julio de cada año. La entrega del Premio se llevará a cabo en las semana: siguientes, en una ceremonia debidamente convocada.

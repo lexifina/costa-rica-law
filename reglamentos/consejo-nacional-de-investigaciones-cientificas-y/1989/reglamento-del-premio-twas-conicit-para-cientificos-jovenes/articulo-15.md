@@ -1,0 +1,1 @@
+Artículo 15.—La Comisión conocerá las propuestas de postulaciones a partir de la segunda semana de junio y hasta el quince de julio de cada año y dará su dictamen al Comité el último día hábil del período mencionado.

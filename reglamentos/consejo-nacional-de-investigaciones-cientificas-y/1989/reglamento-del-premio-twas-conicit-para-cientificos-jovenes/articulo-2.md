@@ -1,0 +1,1 @@
+Artículo 2°—Las contribuciones a que hace referencia el artículo anterior se determinarán, entre otras formas, con base en teorías formuladas, modificaciones a teorías, acrecentamiento del conocimiento existente y práctica profesional destacada.

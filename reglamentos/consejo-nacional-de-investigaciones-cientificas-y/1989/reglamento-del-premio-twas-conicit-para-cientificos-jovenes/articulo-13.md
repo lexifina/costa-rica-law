@@ -1,0 +1,1 @@
+Artículo 13.—Las postulaciones se harán por escrito y se entregarán al Comité a más tardar el treinta y uno de mayo de cada año. Las postulaciones deberán sustentarse con los documentos pertinentes que permitan a la Comisión hacer una evaluación apropiada.

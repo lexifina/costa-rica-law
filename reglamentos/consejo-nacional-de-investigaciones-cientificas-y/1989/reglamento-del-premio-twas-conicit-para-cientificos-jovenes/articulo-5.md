@@ -1,0 +1,1 @@
+Artículo 5°—El premio se concederá anualmente, en rotación en cada uno de los cuatro campos mencionados en el artículo 1°. El Comité de Nominaciones al Premio, llamado en lo sucesivo el Comité, será el encargado de determinarla rotación.
