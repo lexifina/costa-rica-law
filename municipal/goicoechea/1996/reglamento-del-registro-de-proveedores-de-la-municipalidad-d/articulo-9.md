@@ -1,0 +1,2 @@
+Artículo 9°-Obligación de actualizar la información.
+Los proveedores incluidos en el registro estarán obligados a comunicar en el momento en que ocurra al Departamento de Proveeduría todo cambio en sus datos generales o descripción y características de los bienes y servicios. En el formulario de inscripción se contemplará una manifestación del Proveedor donde se obliga a informar por escrito a la Administración de cualquier cambio en la información antes referida.

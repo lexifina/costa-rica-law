@@ -1,0 +1,3 @@
+Artículo 12-Procedimiento.
+Salvo cuando la exclusión se fundamente en la manifestación expresa del interesado, muerte o extinción, en las demás ocasiones se deberá levantar una información administrativa.
+Para tal efecto el Departamento de Proveeduría trasladará al Departamento Legal la información que posea y éste notificará al interesado la intención de excluirlo del registro y en el mismo acto indicará la prueba existente y le concederá un plazo de cinco días hábiles para que formulen los descargos y ofrezca prueba que estime pertinente. La resolución deberá ser dictada por el Departamento de Proveeduría amparado al criterio que ex teme el Departamento Legal.
