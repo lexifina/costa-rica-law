@@ -1,1 +1,0 @@
-Artículo 16.- Para efectos de control de las exoneraciones, las empresas llevarán registros independientes donde detallen las exportaciones de productos no tradicionales a terceros mercados, las adquisiciones de insumos y los saldos de inventario de cada período fiscal.

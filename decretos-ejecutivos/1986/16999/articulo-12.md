@@ -1,1 +1,0 @@
-Artículo 12.- Los vehículos exonerados total o parcialmente de tributos sólo podrán ser utilizados por el personal de la empresa en labores directamente relacionadas al proceso productivo de mercancías no tradicionales que se exporten a terceros mercados.

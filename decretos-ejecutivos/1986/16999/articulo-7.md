@@ -1,5 +1,0 @@
-Artículo 7º.- El porcentaje de exoneración de tributos que se aplicará a las empresas beneficiarias de un contrato para la compra de maquinaria, equipo y sus repuestos se determinará de la siguiente forma:
-i) Para las adquisiciones que se realicen en el primer año del contrato de exportación corresponderá a la proporción que representarán las ventas a terceros mercados de productos no tradicionales en el total de ventas de la empresa para el primer año del Programa de Exportaciones, según lo que establece cada contrato.
-ii) Para las adquisiciones de los años siguientes, corresponderá a la proporción de las ventas a terceros mercados de productos no tradicionales en el total de ventas del último período fiscal.
-Cuando se trate de empresas acogidas a la ley Nº 5162, únicamente se autorizarán exoneraciones de tributos para la adquisición de maquinaria, equipo y sus repuestos cuando exporten el 100% de su producción a terceros mercados.
-La Secretaría Técnica remitirá al Consejo los estudios de los casos que a su juicio ameriten un tratamiento fiscal distinto al establecido en este artículo.
