@@ -14,3 +14,4 @@ Reglamento de mensajería de texto (SMS) y mensajería multimedia (MMS)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-11 | la propia norma |
+| 2 | 2005-02-01 | Reglamento 5657 (2005-02-01) |
