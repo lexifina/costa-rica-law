@@ -12,7 +12,7 @@ necesarios para el giro normal de la actividad, con el fin de provocar
 escasez o alza en el precio, salvo que se trate de insumos requeridos
 para satisfacer necesidades propias de la empresa o que, por causa ajena
 al interesado, no se puedan transar, lo cual debe ser demostrado
-adecuadamente ante el ACAC por el comerciante o proveedor.
+adecuadamente ante el AAC* por el comerciante o proveedor.
 b) Ventas atadas o condicionadas
 Cuando se condicione el perfeccionamiento de una venta o la
 prestación de servicios a la adquisición de otro producto o a la
@@ -31,3 +31,4 @@ productor.
 e) Otros supuestos
 Cualquier otra forma de restricción o manipulación injustificada
 de la oferta de bienes y servicios.
+*(Así reformado por el artículo 3° del Decreto Ejecutivo No. 31700 de 16 de marzo de 2004).

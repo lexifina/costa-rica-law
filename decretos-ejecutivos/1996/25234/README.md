@@ -17,3 +17,4 @@ Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consu
 | 2 | 1996-07-01 | Decreto Ejecutivo 26962 (1998-04-01) |
 | 3 | 2002-02-28 | Decreto Ejecutivo 30266 (2002-02-28) |
 | 4 | 2002-03-15 | Decreto Ejecutivo 30267 (2002-03-15) |
+| 5 | 2004-03-16 | Decreto Ejecutivo 31700 (2004-03-16) |

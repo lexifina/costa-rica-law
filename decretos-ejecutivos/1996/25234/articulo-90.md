@@ -1,49 +1,12 @@
-ARTÍCULO 90.- Toma de muestras
-Los comerciantes están igualmente obligados a permitir, en forma
-gratuita, la toma de muestras de los productos para verificar la calidad
-o la exactitud de la información suministrada al consumidor, mediante
-muestreos preliminares y muestreos estadísticos. Las muestras deberán ser
-tomadas de modo razonable, en la cantidad mínima necesaria y de acuerdo
-con la normativa vigente para el cumplimiento de las funciones del MEIC.
-El funcionario que exceda estas limitaciones incurrirá en falta grave
-para efectos disciplinarios, sin perjuicio de las restantes
-responsabilidades.
-Para el muestreo preliminar se tomarán cinco unidades de cada
-representación del producto y para el muestreo estadístico se tomará el
-tamaño de muestra especificado en el Reglamento Técnico NCR- 148:1993
-decreto No. 22268-MEIC o en el reglamento específico del productos si
-existiera. Las muestras serán tomadas en tres tantos y colocadas en
-recipientes sellados, sobre los cuales colocarán sus firmas y sellos
-tanto el funcionario responsable como el representante del
-establecimiento que asista al acto. Uno de estos tantos será sometido a
-análisis en los laboratorios de la ONNUM; otro deberá quedar en poder del
-comerciante, quien podrá someterlo a sus propios análisis; el tercer
-tanto quedará en custodia de la ONNUM y se empleará para el caso de que
-surja desacuerdo sobre los resultados de los primeros dos. Este último
-resultado será definitivo.
-La custodia de las muestras se efectuará de acuerdo con los
-lineamientos establecidos por la ONNUM. En el caso del muestreo
-estadístico de productos perecederos, esto es, aquellos que se
-descomponen o deterioran en un período de pocos días, la custodia no
-sobrepasará tres días en condiciones adecuadas de refrigeración. En el
-caso de que la muestra analizada incumpla con los reglamentos técnicos,
-la ONNUM procederá a analizar de inmediato el tanto bajo su custodia y
-notificará de inmediato los resultados a la CNC, para que tome la
-resolución del caso.
-Los dictámenes técnicos emitidos sobre muestras tomadas conforme a
-este artículo deberán dejar constancia acerca de la integridad de los
-sellos con que se recibieron. Caso contrario, su valor probatorio quedará
-reducido al nivel indiciario.
-Las verificaciones a que se refiere esta norma se realizarán a
-través de la ONNUM. Corresponderá a los laboratorios químico y
-metrológico de dicha dependencia, realizar los controles de calidad que
-estime pertinentes, así como requerir de colegios profesionales, centros
-de investigación, instituciones de educación superior, dependencias
-técnicas de los diferentes Poderes del Estado y de instituciones
-autónomas, así como de los laboratorios acreditados conforme a la Ley y a
-este reglamento, la más estrecha colaboración para el cabal desempeño de
-sus funciones. Las entidades anteriormente señaladas no podrán negar su
-concurso o colaboración salvo por causas justificadas de fuerza mayor
-debidamente demostradas.
-Todos los gastos originados en la aplicación de este artículo se
-regirán por lo previsto en el numeral 59 de la Ley.
+Artículo 90.—Toma de muestras. El MEIC podrá realizar las verificaciones e investigaciones en el mercado para constatar la calidad o exactitud de la información suministrada al consumidor para el cumplimiento de la Ley N° 7472, las normas de calidad, las reglamentaciones técnicas de acatamiento obligatorio y las demás normas cuyo objetivo es proteger en forma efectiva los derechos, prerrogativas e intereses de los consumidores, por medio de muestreos preliminares o estadísticos según sea la irregularidad identificada.
+Le corresponderá al Área de Apoyo al Consumidor coordinar y realizar las verificaciones e investigaciones en el mercado mencionadas en el párrafo anterior, a efectos de lograr una tutela efectiva de los derechos e intereses legítimos del consumidor y así cumplir con lo dispuesto en la Ley N° 7472 y este reglamento. Lo anterior sin perjuicio de las atribuciones otorgadas a otro órgano o ente de la Administración Pública para la tutela de los derechos, prerrogativas e intereses del consumidor. Para ello, podrá requerir del apoyo de los demás órganos, oficinas y departamentos del MEIC en forma gratuita. También podrá requerir la colaboración a las entidades públicas, los colegios profesionales, centros de investigación, instituciones de educación superior, dependencias técnicas de los distintos poderes del Estado y de instituciones autónomas, además, de los entes acreditados conforme a la Ley del Sistema Nacional para la Calidad. Todo lo anterior para el cabal desempeño de sus funciones. Las entidades anteriormente indicadas no podrán negar su concurso o colaboración salvo por causa justificada de fuerza mayor debidamente demostrada. Para estos efectos los gastos originados por la aplicación del presente artículo se regirán por lo previsto en el artículo 62 de la Ley N° 7472.
+El muestreo preliminar deberá efectuarse cuando la irregularidad detectada en el sitio, por el órgano de la Administración no evidencie afectación, riesgo o eventual daño a la salud, el ambiente o la seguridad de los consumidores, es decir que ésta deberá ser evidente y manifiesta. Las muestras se tomarán de modo razonable y en la cantidad mínima necesaria para garantizar el cumplimiento de los objetivos detallados en el artículo 89 bis, en caso de que proceda.
+El muestreo estadístico se realizará cuando sea necesario efectuar un ulterior análisis, en razón del tipo de parámetros que se quieran verificar; o se detecte en forma evidente y manifiesta riesgo o eventual daño a la salud, el ambiente o la seguridad de los consumidores.
+El tamaño de muestra se tomará según lo indicado en el reglamento específico del producto, si existiera; o en su defecto lo establecido en el Reglamento Técnico NCR- 148:1993 Decreto Nº 22268-MEIC. Las muestras serán tomadas en tres tantos y colocadas en recipientes sellados, sobre los cuales colocarán sus firmas y sellos tanto el funcionario responsable como el representante del establecimiento que asista al acto. Uno de estos tantos será sometido a análisis en las entidades, laboratorios estatales designados al efecto, o en LACOMET según corresponda. El otro tanto deberá quedar en poder del comerciante, quien será responsable de remitir dicha muestra en su custodia al productor, fabricante, importador o distribuidor, según sea el caso, quien podrá someterlo a sus propios análisis. El tercer tanto quedará en custodia del AAC y se empleará para el caso de que surja desacuerdo sobre los resultados de los primeros dos. El AAC deberá notificar al productor, fabricante, importador o distribuidor, para lo cual, el AAC deberá aportar copia del acta de muestreo a efectos de que éste proceda a retirar la muestra que le corresponde y realice sus propios análisis. Con el fin de diligenciar la respectiva notificación se tendrá por lugar cierto y conocido el señalado en la información otorgada al consumidor en el producto. Cuando no conste en el producto tal información, el establecimiento comercial estará en la obligación de dar la información del respectivo proveedor, importador, distribuidor o fabricante al AAC, a fin de que se le pueda notificar. De no ser así corresponderá al establecimiento comercial diligenciar la respectiva notificación al proveedor en un plazo máximo de tres días.
+En el caso de que el muestreo lo realice un órgano u oficina de la Administración distinta del AAC, debidamente autorizadas por el MEIC, el tercer tanto deberá ser remitido de inmediato con las firmas y los sellos incólumes sin mayor demora al AAC y deberá acompañar la documentación idónea del cumplimiento del procedimiento anteriormente descrito.
+En caso de existir discrepancia entre los resultados de las pruebas realizadas al primer y segundo tanto se ordenará practicar un análisis sobre el tercer tanto cuyo resultado será definitivo. La custodia de las muestras se efectuará de acuerdo con los lineamientos establecidos por AAC, pero en todo caso deberá realizarse de modo tal que garantice la integridad de la muestra para su posterior análisis de ser necesario.
+Para el cumplimiento de los objetivos propuestos en el artículo 45 de la Ley N° 7472, y con la finalidad de contar con dictámenes técnicos idóneos, el MEIC podrá requerir la colaboración de las instituciones públicas para la realización de análisis, estudios o dictámenes en forma gratuita. De igual manera podrá suscribir convenios con entidades públicas o privadas para estos efectos. Los entes o laboratorios deberán realizar los análisis a la brevedad posible y devolver del mismo modo su resultado, así como cualquier otra información o documentos que garantice la veracidad del análisis o ensayo practicado. Si la muestra analizada presenta incumplimientos con lo establecido en la regulación pertinente, se tramitará por la vía de denuncia ante la CNC, para que tome la resolución del caso.
+En el caso del muestreo estadístico de productos perecederos, esto es, aquellos que se descomponen o deterioran en un período de pocos días, el análisis deberá realizarse en el término máximo de cuarenta y ocho horas, y la custodia no sobrepasará tres días en condiciones adecuadas de refrigeración.
+El número de unidades de producto que se tomen para el muestreo estadístico y que consten en el acta respectiva, deberán ser repuestas al comerciante por parte del proveedor. Dicho número será conforme con el tamaño de la muestra establecido en el reglamento específico del producto, si existiera; o en su defecto lo establecido en el Reglamento Técnico NCR- 148:1993 Decreto Nº 22268-MEIC.
+Todo dictamen técnico emitido sobre muestras tomadas conforme a este artículo deberá dejar constancia acerca de la integridad de los sellos con que se recibieron. Caso contrario, su valor probatorio quedará reducido al nivel indiciario. Las verificaciones en el campo metrológico serán coordinadas por LACOMET de conformidad con la Ley N° 8279 y los demás reglamentos aplicables.
+(Así reformado por el artículo 7° del Decreto Ejecutivo No. 31700 de 16 de marzo de 2004).

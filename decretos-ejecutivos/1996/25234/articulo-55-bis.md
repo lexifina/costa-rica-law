@@ -1,7 +1,7 @@
-ARTÍCULO 55.1- Autorización de los planes de venta a futuro.
+ARTÍCULO 55 Bis.- Autorización de los planes de venta a futuro.
 Antes de su ofrecimiento público o generalizado los planes de venta
 a futuro, en los términos y condiciones del artículo 47, deben ser
-autorizados por el Area de Comercio y Apoyo al Consumidor del Ministerio
+autorizados por el Area de Comercio al Consumidor* del Ministerio
 de Economía, Industria y Comercio, esto de conformidad con los usos, las
 costumbres mercantiles y, en particular, la necesidad de proteger al
 consumidor.
@@ -23,5 +23,5 @@ La Administración Pública, puede acreditar organismos privados para
 inscribir y autorizar diferentes planes futuros, esto de conformidad con
 el artículo 8 y 41 de la Ley, y las disposiciones que se establezcan este
 Reglamento.
-(Así adicionado por el artículo 2º del decreto ejecutivo No.26962 de
-1º de abril de 1998)
+(Así adicionado por el artículo 2º del decreto ejecutivo No.26962 de 1º de abril de 1998 y modificada su denominación por artículo 2° del Decreto Ejecutivo No. 31700 de 16 de marzo de 2004).
+*(Así reformado por el artículo 3° del Decreto Ejecutivo No. 31700 de 16 de marzo de 2004).
