@@ -1,0 +1,2 @@
+Artículo 32.-Refórmase el artículo 5º de la Ley de Licencias para Adiestramiento de Servidores Públicos, número 1810 del 15 de octubre de 1954, para que en lo sucesivo diga así:
+"Artículo 5º.-El adiestramiento no podrá ser por más de dos años. Sin embargo, la Dirección General de Servicio Civil podrá autorizar estudios de posgrado que excedan de ese plazo o conceder prórrogas en igual sentido, cuando el plan correspondiente de la universidad o centro respectivo lo requiera."

@@ -1,0 +1,2 @@
+Artículo 45.-El Ministerio de Hacienda estará obligado a cumplir con las disposiciones del artículo 111 de la ley número 6975 del 3 de diciembre de 1984.
+En una próxima modificación al presupuesto vigente, para tales efectos, tomará fondos de los ingresos producto de la recalificación que haga la Contraloría General de la República, en incluirá los correspondientes gastos para su cumplimiento a partir del 1º de mayo de 1986.

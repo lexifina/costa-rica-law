@@ -1,0 +1,2 @@
+Artículo 14.-Para el funcionamiento del Programa de Incremento de la Productividad Agrícola, se autoriza al Poder Ejecutivo para que constituya, pro medio de la Tesorería Nacional, un fondo rotatorio hasta por la suma de ¢ 15.0 millones.
+Este fondo será utilizado en la ejecución del presupuesto de contrapartida nacional, conforme con la ley número 6887 del Préstamo BID-711-/SF-CR y el Reglamento Interno del Programa autorizado por el decreto ejecutivo número 16695-MAG, publicada en "La Gaceta" número 224 del 22 de noviembre de 1985.

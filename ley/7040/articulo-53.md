@@ -1,0 +1,1 @@
+Artículo 53.-Se le otorga personería jurídica, para la administración de los recursos asignados en este presupuesto y de otra índole que reciba, a la Comisión de los Juegos Nacionales de Alajuela. Asimismo, podrá, en casos especiales, contratar directamente todo lo relacionado con tal evento. La Contraloría General de la República hará la fiscalización correspondiente.

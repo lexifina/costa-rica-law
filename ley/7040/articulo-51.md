@@ -1,0 +1,1 @@
+Artículo 51.-La partida asignada a Coopemontes de Oro, R. L., para beneficios de café título 10, programas 195, transferencias varias, código 275, por un monto ¢ 2.000.000, en el presupuesto del Ministerio de Agricultura y Ganadería, será girada su totalidad y no por mensualidades, para la ejecución de la obra.

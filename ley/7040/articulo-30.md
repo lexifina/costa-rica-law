@@ -1,0 +1,1 @@
+Artículo 30.-Se amplía la vigencia del transitorio I de la Ley Orgánica del Consejo Nacional de Producción, número 6050 del 14 de marzo de 1977, a efecto de que cubra los períodos comprendidos entre el 1º de enero de 1983 y 31 de diciembre de 1986.

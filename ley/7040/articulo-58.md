@@ -1,0 +1,2 @@
+Artículo 58.-El Ministerio de Hacienda deberá cumplir en su totalidad con las disposiciones establecidas en el artículo 119 de la ley número 7015 del 29 de noviembre de 1985.
+En la próxima modificación al presupuesto vigente, para tales efectos tomará fondos de los ingresos producto de la recalificación que haga la Contraloría General de la República, e incluirá los recursos correspondientes para su cumplimiento.
