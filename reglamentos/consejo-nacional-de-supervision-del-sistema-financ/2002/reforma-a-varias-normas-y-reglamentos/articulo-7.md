@@ -1,0 +1,1 @@
+7. Derogar los anexos de los Acuerdos SUGEF 23-00 "Normas para establecer la suficiencia patrimonial de las entidades fiscalizadas por la Superintendencia General de Entidades Financieras" y SUGEF 26-00 "Normas para establecer la suficiencia patrimonial de las asociaciones mutualistas de ahorro y préstamo para la vivienda".
