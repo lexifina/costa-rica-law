@@ -1,22 +1,4 @@
-Artículo 7º.- Para la construcción de caminos públicos el Estado
-tendrá derecho a utilizar, sin indemnización alguna:
-a) Los porcentajes señalados como reserva para tal fin en las
-propiedades inscritas o pendientes de inscripción en el Registro
-Público; y
-b) Hasta un doce por ciento (12%) del área de los terrenos que en
-adelante se otorguen por el Estado o las Municipalidades a título de
-concesión, canje de terrenos, baldíos, aplicaciones de gracia, colonias
-agrícolas, adjudicación de lotes en terrenos baldíos y todos aquellos
-otros derechos o concesiones que otorgue el Estado por cualquier otra
-causa en los baldíos nacionales. Esta reserva se aplicará en cualquier
-momento a caminos de cualquier naturaleza con un ancho no mayor de
-veinte metros, o al aprovechamiento de fuerzas hidroeléctricas o para
-el paso de líneas telegráficas o telefónicas, para construcción de
-puentes o utilización de cursos de agua que fueren necesarios para el
-abastecimiento de poblaciones, abrevaderos de ganado o irrigación, o
-para cualquier otra finalidad de utilidad pública.
-Tales restricciones y cargas irán aparejadas la a inscripción de
-la finca afectada, quedando obligado el funcionario a quien corresponde
-otorgar la escritura o suscribir el mandamiento inscribible a dejar
-constancia de las mismas. El Registro Público no inscribirá el título
-si en éste no constan dichas restricciones y cargas.
+Artículo 7º.- Para la construcción de caminos públicos el Estado tendrá derecho a utilizar, sin indemnización alguna:
+a) Los porcentajes señalados como reserva para tal fin en las propiedades inscritas o pendientes de inscripción en el Registro Público; y
+b) Hasta un doce por ciento (12%) del área de los terrenos que en adelante se otorguen por el Estado o las Municipalidades a título de concesión, canje de terrenos, baldíos, aplicaciones de gracia, colonias agrícolas, adjudicación de lotes en terrenos baldíos y todos aquellos otros derechos o concesiones que otorgue el Estado por cualquier otra causa en los baldíos nacionales. Esta reserva se aplicará en cualquier momento a caminos de cualquier naturaleza con un ancho no mayor de veinte metros, o al aprovechamiento de fuerzas hidroeléctricas o para el paso de líneas telegráficas o telefónicas, para construcción de puentes o utilización de cursos de agua que fueren necesarios para el abastecimiento de poblaciones, abrevaderos de ganado o irrigación, o para cualquier otra finalidad de utilidad pública.
+Tales restricciones y cargas irán aparejadas a la inscripción de la finca afectada, quedando obligado el funcionario a quien corresponde otorgar la escritura o suscribir el mandamiento inscribible a dejar constancia de las mismas. El Registro Público no inscribirá el título si en éste no constan dichas restricciones y cargas.
