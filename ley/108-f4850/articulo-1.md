@@ -1,0 +1,5 @@
+DECRETO CVIII.
+Aumenta el empréstito decretado en 30 de Noviembre ultimo, a veinte mil pesos.
+El Jefe Supremo Provisorio, del Estado de Costa Rica.
+En vista de no ser suficiente la cantidad del empréstito decretada en 30 de Noviembre último para atender á la deuda que pesa sobre el Estado, en favor de las fuerzas del mismo; no teniendo, por la exhaustez del erario, medios para satisfacer el citado crédito, sin la penosa, circunstancia de gravar á los propietarios y queriendo, en la imperiosa necesidad de hacerlo, obrar con la justicia y equidad posibles, observando la debida proporción en el repartimiento de la cantidad que se exija, y concediendo á los prestamistas el premio y, garantías, que permiten las circunstancias, para hacerles menos oneroso el cargo que por el presente se les imponga; competente y legítimamente autorizado, decreta.
+Art. 1° Se exije á todos los propietarios del Estado un emprétito en cantidad de veinte mil pesos, que deberán enterarse por terceras partes en la Administración Principal: la primera el dia último del corriente: la segunda el id. de Enero; y la última el id. de Febrero ´proximos.
