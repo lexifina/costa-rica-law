@@ -1,8 +1,8 @@
 ARTICULO 14.- Por las actividades lucrativas que seguidamente se
 señalan, comprendidas en la clasificación internacional de actividades
 económicas, los patentados pagarán conforme con lo dispuesto en los
-artículos 3 y 4 de esta ley, con excepción de las señaladas en su artículo
-15.
+artículos 3 y 4 de esta ley, con excepción de las señaladas en su
+artículo 15.
 a) Industria.
 Se refiere al conjunto de operaciones materiales ejecutadas
 para la extracción, la transformación o la manufactura de uno o
