@@ -1,0 +1,1 @@
+Art. 30. La prision no será menor de veinticuatro horas, ni mayor de cinço dias. Las multas serán desde dos reales hasta tres pesos. Los objetos aprehendidos se perderán cuando estén destinados á violar la ley, como armas prohibidas, ganzúas, o máquinas para causar algun daño público ó privado.

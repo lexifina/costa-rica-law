@@ -1,0 +1,1 @@
+Art. 25. Si por omision descuido dejase de recorrer, como corresponde, todos los puntos que ocupan los serenos, será multado en cinco pesos por la primera vez, doble por la segunda y triple por la tercera. Iguales penas sufrirá, sinó pasase la revista con la exactitud debida, 6 encubriese las faltas de los serenos.
