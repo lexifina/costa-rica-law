@@ -14,3 +14,4 @@ Reglamento Zonaje para los Funcionarios del Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-25 | la propia norma |
+| 2 | 1998-03-25 | Ley 8 |
