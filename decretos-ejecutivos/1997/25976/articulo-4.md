@@ -1,0 +1,1 @@
+Artículo 4°-En caso de que el propietario tome la decisión de cambiar o modificar el destino del refugio de vida silvestre privado, deberán notificar dicha pretensión a la Dirección General de Vida Silvestre, con un año de anticipación como mínimo, para efectuar así los trámites correspondientes ante la Asamblea Legislativa de la República de Costa Rica.
