@@ -1,0 +1,2 @@
+Artículo 6º.- Por tener sus rentas ya establecidas, el Ministerio de Obras Públicas deberá iniciar, antes que cualesquiera otras carreteras, la construcción de la carretera a Limón y a Guápiles.
+La Contraloría General de la República no podrá autorizar Reservas de Crédito para la construcción y mejoramiento de las carreteras aquí citadas en el artículo 5º, si su Cuerpo de Inspectores no constata que el Ministerio ha iniciado los trabajos en esas dos rutas nacionales.
