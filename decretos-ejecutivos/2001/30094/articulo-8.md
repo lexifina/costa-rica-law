@@ -1,0 +1,1 @@
+Artículo 8°—La Dirección queda autorizada para ordenar la suspensión y el retiro inmediatos de la publicidad de alimentos que violen las disposiciones legales y reglamentarias vigentes en la materia. Además tendrá facultad de presentar la denuncia ante la Comisión de Defensa Efectiva del Consumidor y en los Tribunales de Justicia correspondientes.

@@ -1,0 +1,1 @@
+Artículo 7°—La Dirección podrá solicitar al responsable, cualquier información o material que considere necesario para comprobar la veracidad del material publicitario. Además los medios de comunicación tendrán a disposición del Ministerio, el material publicitario del último mes.

@@ -1,0 +1,1 @@
+Artículo 5°—La publicidad de alimentos no requiere autorización previa por parte del Ministerio y estará sujeta al control a posterior!. Quedan a salvo aquellos productos regulados por leyes o normativa especial.

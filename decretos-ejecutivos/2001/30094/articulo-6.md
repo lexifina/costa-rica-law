@@ -1,0 +1,1 @@
+Artículo 6°—La publicidad de alimentos se ajustará a las disposiciones de la Ley General de Salud, la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y de la normativa vigente en cuanto a etiquetado, sin perjuicio de cualquier otra normativa de carácter legal en la materia.
