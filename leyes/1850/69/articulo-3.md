@@ -1,0 +1,1 @@
+Art. 3. El presente decreto surtirá sus efectos desde el dia de mañana. -Dado en la ciudad de san José á los treinta y un dias del mes de enero de mil ochocientos cincuenta, -Juan Rafael Mora.-El Ministro de Relaciones encargado accidentalmente del Despacho de Hacienda y guerra, Joaquin Bernardo Calvo."
