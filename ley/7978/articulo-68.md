@@ -1,8 +1,2 @@
-ARTÍCULO 68.- Procedimiento de registro del nombre comercial
-Un nombre comercial, su modificación y anulación se registrarán en
-cuanto corresponda, siguiendo los procedimientos establecidos para el
-registro de las marcas y devengará la tasa fijada. El Registro de la
-Propiedad Industrial examinará si el nombre comercial contraviene el
-artículo 66 de la presente ley.
-La clasificación de productos y servicios utilizados para las marcas
-no será aplicable al registro del nombre comercial.
+Artículo 68°- Procedimiento de registro del nombre comercial. Un nombre comercial, su modificación y anulación se registrarán en cuanto corresponda, siguiendo los procedimientos establecidos para el registro de las marcas y devengará la tasa fijada. El Registro de la Propiedad Industrial examinará si el nombre comercial contraviene el artículo 66 de la presente ley.
+La clasificación de productos y servicios utilizados para las marcas no será aplicable al registro del nombre comercial.

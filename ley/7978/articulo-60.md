@@ -1,5 +1,1 @@
-ARTÍCULO 60.- Reserva de la marca de certificación extinguida
-Una marca de certificación cuyo registro sea anulado o deje de usarse
-por disolución o desaparición de su titular, no podrá ser empleada ni
-registrada como signo distintivo durante un plazo de diez años contados
-desde la anulación, disolución o desaparición, según el caso.
+Artículo 60°- Reserva de la marca de certificación extinguida. Una marca de certificación cuyo registro sea anulado o deje de usarse por disolución o desaparición de su titular, no podrá ser empleada ni registrada como signo distintivo durante un plazo de diez años contados desde la anulación, disolución o desaparición, según el caso.

@@ -1,4 +1,4 @@
-Artículo 6°- Cotitularidad. La cotitularidad de las solicitudes para los efectos del registro correspondiente cuando no exista acuerdo en contrario, se regirá por las siguientes normas:
+Artículo 6°- Cotitularidad. La cotitularidad de las solicitudes para los efectos del registrocorrespondiente cuando no exista acuerdo en contrario, se regirá por las siguientes normas:
 a) La modificación, la limitación o el desistimiento de una solicitud en trámite debe hacerse en común.
 b) Cada cotitular puede usar personalmente el signo distintivo objeto de la solicitud o el registro; pero debe compensar equitativamente a los cotitulares que no exploten ni usen el signo ni hayan concedido una licencia para el uso de este. En defecto de acuerdo, la compensación será fijada por el tribunal competente.
 c) La transferencia de la solicitud o el registro se hará de común acuerdo, pero cada cotitular puede ceder por separado su cuota; los demás gozarán del derecho de tanteo durante un plazo de tres meses contados desde la fecha en que el cotitular les notifique su intención de ceder su cuota.

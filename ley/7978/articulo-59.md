@@ -1,7 +1,2 @@
-ARTÍCULO 59.- Gravamen y transferencia de la marca de certificación
-Una marca de certificación no podrá ser objeto de carga o gravamen
-alguno; tampoco de embargo u otra medida cautelar o de ejecución judicial.
-Una marca de certificación solo podrá ser transferida con la entidad
-titular del registro. En caso de disolución o desaparición de la entidad
-titular, la marca de certificación podrá ser transferida a otra entidad
-idónea, previa autorización de la autoridad gubernamental competente.
+Artículo 59°- Gravamen y transferencia de la marca de certificación. Una marca de certificación no podrá ser objeto de carga o gravamen alguno; tampoco de embargo u otra medida cautelar o de ejecución judicial.
+Una marca de certificación solo podrá ser transferida con la entidad titular del registro. En caso de disolución o desaparición de la entidad titular, la marca de certificación podrá ser transferida a otra entidad idónea, previa autorización de la autoridad gubernamental competente.
