@@ -1,0 +1,1 @@
+Art. 2. Se les prohíbe volver al Estado, mientras que no se dé su nueva Constitucion, y que por ella se halle absolutamente organizado, y se extenderán los límites de esta prohibición, siempre que en los lugares donde residan, ofendan, de alguna manera, los derechos, crédito y dignidad de Costa Rica
