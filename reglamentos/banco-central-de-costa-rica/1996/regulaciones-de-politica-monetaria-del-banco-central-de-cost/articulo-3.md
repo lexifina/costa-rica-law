@@ -197,7 +197,7 @@ c) Los mecanismos de administración de carteras de títulos que mantienen los p
 B.—Excepciones y deducciones
 1. Se exceptúan del requerimiento de encaje las operaciones originadas en empréstitos externos
 (Así reformado el numeral anterior en sesión N° 4938 del 17 de diciembre de 1997)
-2.- Las entidades sujetas al control de la Superintendencia General de Entidades Financieras podrán deducir de sus obligaciones sujetas a encaje los depósitos e inversiones que hagan en instrumentos financieros o bursátiles sujetos al requerimiento de encaje mínimo legal, en el tanto sean los propietarios de los contratos y los títulos y sean contabilizados en sus balances como parte de sus activos (no en cuentas de orden). Si los instrumentos son vendidos, en firme o a plazo, o traspasados a otra entidad, no se aplica dicha rebaja.
+(*)2.- Las entidades sujetas al control de la Superintendencia General de Entidades Financieras podrán deducir de sus obligaciones sujetas a encaje los depósitos e inversiones que hagan en instrumentos financieros o bursátiles sujetos al requerimiento de encaje mínimo legal, en el tanto sean los propietarios de los contratos y los títulos y sean contabilizados en sus balances como parte de sus activos (no en cuentas de orden). Si los instrumentos son vendidos, en firme o a plazo, o traspasados a otra entidad, no se aplica dicha rebaja.
 La deducción se hará por el importe pagado excluyendo los intereses devengados acumulados por el título y no pagados por el emisor y las comisiones pagadas, esto último siempre y cuando esos intereses y comisiones estén incorporados en el precio pagado por el comprador.
 Un título en circulación solo podrá ser deducido cuando sea negociado en un mercado organizado y fiscalizado por algún ente del Banco Central de Costa Rica.
 La deducción a que se refiere este numeral la harán los intermediarios financieros sujetos a la fiscalización de la Superintendencia General de Entidades Financieras de la siguiente forma:
@@ -210,10 +210,14 @@ A partir de: | Porcentaje deducido por la entidad emisora de la obligación | Po
 1 de febrero, 1998 | 40% | 60%
 16 de febrero, 1998 | 20% | 80%
 1 de marzo, 1998 | 0% | 100%
+(*)(Así reformado el numeral anterior en sesión N° 4938 del 17 de diciembre de 1997)
+3.- En el caso de los fideicomisos, comisiones de confianza y los contratos de administración, para calcular el monto de operaciones sujetas al encaje, se deducirán de la totalidad de los recursos captados, los depósitos o inversiones que mantengan en otros instrumentos financieros o bursátiles sujetos a requerimiento de encaje, en el tanto los mantengan dentro de la cartera inversiones. Si los instrumentos son vendidos, en firme o a plazo, o traspasados a otra entidad, no se aplica dicha rebaja. La deducción se hará por e! valor transado de la operación excluyendo el monto correspondiente a los intereses devengados y acumulados por el título y no pagados por el emisor, en caso de que existieran, tampoco se considerarán las comisiones pagadas. Esto último en el tanto esos intereses y comisiones estén incorporadas en el precio pagado por el comprador.
+Un título en circulación solo podrá ser deducido cuando sea negociado en un mercado organizado y fiscalizado por algún ente del Banco Central de Costa Rica.
 (Así reformado el numeral anterior en sesión N° 4938 del 17 de diciembre de 1997)
-3. Se exceptúa del requerimiento de encaje las siguientes figuras:
-a) Los fideicomisos o contratos de administración que se constituyen exclusivamente y en forma limitada para administrar un patrimonio, cuyos Unes solo se consiguen después de transcurrido cierto tiempo, por lo que los recursos fideicometidos no se pueden transformar en efectivo hasta que dichas condiciones se cumplan.
-b) La captación de recursos para capital de trabajo o para el financiamiento de proyectos de inversión de carácter no financiero de las empresas emisoras o subsidiarias registradas ante la Comisión Nacional de Valores, según lo dispuesto en el Artículo 116 de la Ley Orgánica del Banco Central de Costa Rica.
+(*)4.- Se exceptúa del requerimiento de encaje las siguientes figuras.
+a) Los fideicomisos o contratos de administración que se constituyen exclusivamente y en forma limitada para administrar un patrimonio, cuyos fines solo se consiguen después de transcurrido cierto tiempo, por lo que los recursos fideicometidos no se pueden transformar en efectivo hasta que dichas condiciones se cumplan.
+b) La captación de recursos para capital de trabajo o para e! financiamiento de proyectos de inversión de carácter no financiero de las empresas emisoras o subsidiarias registradas ante la Comisión Nacional de Valores, según lo dispuesto en el artículo 116 de la Ley Orgánica del Banco Central de Costa Rica.
+(*)(Así adicionado el numeral anterior en sesión N° 4938 del 17 de diciembre de 1997)
 CAPITULO II
 Control de la situación de encaje
 A. Las entidades sujetas a los requerimientos de encaje, en moneda nacional o extranjera, están obligadas a mantener en el Banco Central de Costa Rica, en forma de depósitos en cuenta comente, un monlo no menor al encaje mínimo legal promedio resultante de la respectiva quincena. Dicho promedio quincenal se calculará con base en el promedio de saldos diarios de días hábiles de una quincena natural.
