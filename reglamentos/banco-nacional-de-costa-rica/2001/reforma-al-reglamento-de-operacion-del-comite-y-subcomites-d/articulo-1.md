@@ -1,0 +1,4 @@
+BANCO NACIONAL DE COSTA RICA
+La Junta Directiva del Banco Nacional de Costa Rica, en ejercicio de las facultades que le otorga el inciso 7) del artículo 34 de la ley N° 1644 del 26 de setiembre de 1953 y sus reformas, "Ley Orgánica del Sistema Bancario Nacional" y 105 de la Ley de Contratación Administrativa, acuerda según artículo 21 de su sesión 11.073 del 30 de enero del 2001, modifica el inciso 1.1.1 del artículo 1° del "Reglamento de Operación del Comité y Subcomités Licitaciones", aprobado mediante artículo 19 de sesión N° 10.594 del 15 de diciembre de 1998, como sigue:
+Artículo 1°—Refórmese el inciso 1.1.1 del artículo 1° del "Reglamento de Operación del Comité y Subcomités Licitaciones", para que se lea:
+"1.1.1 Titulares: Director Corporativo Administrativo, Director Corporativo de Sistemas y Operaciones y Director Corporativo de Finanzas"
