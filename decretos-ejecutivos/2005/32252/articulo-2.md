@@ -1,0 +1,1 @@
+Articulo 2°—Las tarifas, tasas o derechos se consignaran en dólares de los Estados Unidos de América, sin embargo se podrán pagar en moneda costarricense al tipo de cambio Oficial del Banco Central de Costa Rica al día de su pago.
