@@ -1,0 +1,1 @@
+Artículo 15.—De la firmeza de acuerdos. Los acuerdos se consideran firmes y valederos para todos sus efectos desde el momento en que se aprueben por votación y serán de obligatorio acatamiento para todos.

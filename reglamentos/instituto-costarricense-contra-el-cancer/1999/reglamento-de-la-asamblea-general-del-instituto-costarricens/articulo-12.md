@@ -1,0 +1,1 @@
+Artículo 12.—Del voto. El voto en la asamblea será de dos tipos: Voto público; con el simple levantamiento de mano y secreto por escrito en caso de nombramientos. Cada asambleísta tendrá derecho a justificar su voto haciendo uso de la palabra por espacio de cinco minutos y durante la realización de la votación será prohibido salir de la reunión.

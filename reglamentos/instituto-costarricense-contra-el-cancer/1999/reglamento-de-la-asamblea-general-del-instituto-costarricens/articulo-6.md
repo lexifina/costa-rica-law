@@ -1,0 +1,1 @@
+Artículo 6º—De las atribuciones del secretario. Este se encargará de asentar las actas en los libros legales y comunicar a quienes corresponda, los acuerdos adoptados por la asamblea. También colabora con el presidente en lo que éste le solicite y firmará junto con el presidente las actas respectivas.

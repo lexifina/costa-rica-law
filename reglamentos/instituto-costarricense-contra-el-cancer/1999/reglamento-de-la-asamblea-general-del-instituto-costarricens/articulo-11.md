@@ -1,0 +1,3 @@
+Artículo 11.—Del quórum. El quórum de la asamblea general se establecerá con la presencia de la mitad más uno de sus integrantes.
+Existiendo el quórum de ley en la primera convocatoria, los acuerdos serán tomados por simple mayoría. Caso de que no existiese quórum en la primera convocatoria, existirá una segunda convocatoria, que dará inicio 30 minutos después, y la sesión se iniciará con el número de miembros presentes, pero al menos debe estar presente el presidente o vicepresidente de la Junta Directiva, hasta tanto no se complete el quórum de ley, los acuerdos que se tomen deberán ser por unanimidad de los miembros presentes.
+Completado el quórum señalado de la mitad más uno, las votaciones continuarán por simple mayoría.

@@ -1,0 +1,1 @@
+Artículo 13.—De la privacidad e invitación a la asamblea. La asamblea general se realizará en forma pública, excepcionalmente y previo acuerdo de la asamblea general podrán ser privadas y esta asamblea definirá quienes pueden permanecer en el recinto.

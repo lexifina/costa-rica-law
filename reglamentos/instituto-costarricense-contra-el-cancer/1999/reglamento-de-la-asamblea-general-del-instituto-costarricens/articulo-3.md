@@ -1,0 +1,1 @@
+Artículo 3º—De los deberes de los asambleístas. Son deberes de los Asambleístas, asistir puntualmente a las sesiones ordinarias y extraordinarias a las que sean convocados y en sus actuaciones y decisiones tendrán siempre en mira los fines del Instituto estipulados en la Ley de su creación.

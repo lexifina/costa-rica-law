@@ -1,0 +1,1 @@
+Artículo 8º—De las sesiones. Las sesiones de la asamblea general serán ordinarias y extraordinarias. De conformidad con el artículo cuarto de la Ley de Creación del ICCC en asamblea general ordinaria se reunirán durante la primera quincena del mes de enero y julio de cada año y extraordinariamente cuando sea convocada por la Junta Directiva, con 8 días hábiles de anticipación.

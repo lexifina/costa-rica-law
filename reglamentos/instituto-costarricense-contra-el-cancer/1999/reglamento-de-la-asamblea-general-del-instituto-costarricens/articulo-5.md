@@ -1,0 +1,1 @@
+Artículo 5º—De las atribuciones del presidente. El presidente de la asamblea será, quien presida la misma, iniciando la apertura, leyendo la agenda, en colaboración con el secretario tomar el tiempo en caso de fundamentar los votos de los asambleístas y contarlos, dará por terminada la misma y firmará junto con el secretario el acta respectiva.

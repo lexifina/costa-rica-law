@@ -1,0 +1,3 @@
+Artículo 2º—De los nombramientos. De las prohibiciones para ser asambleísta y miembro del órgano directivo. No podrán ser asambleístas ni miembros del órgano directivo:
+a) El que por cualquier modalidad contractual con el ICCC le competa la docencia, investigación y/o tratamiento del cáncer y/o operador hospitalario, sea persona jurídica o física en el complejo hospitalario. Esta prohibición se mantendrá hasta un año posterior a su renuncia como asambleísta o miembro del órgano directivo.
+b) Quienes ocupen cargos en Juntas Directivas, tengan acciones o asesoren por relaciones profesionales, de sociedades anónimas fundaciones o asociaciones, mediante las cuales brinden servicios al ICCC o al Hospital Especializado para Pacientes con Cáncer.

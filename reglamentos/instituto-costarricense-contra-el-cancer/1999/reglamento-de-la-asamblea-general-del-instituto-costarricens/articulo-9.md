@@ -1,0 +1,1 @@
+Artículo 9º—Del lugar de reunión. Las asambleas se realizarán en donde tenga el ICCC sus oficinas principales. Podrán reunirse en lugar diferente cuando así lo acuerde la Junta Directiva o la propia asamblea, cuya decisión prevalecerá en todo caso.
