@@ -1,5 +1,1 @@
-Artículo 3º.- La Comisión Nacional de Asuntos Indígenas tendrá como
-asiento la capital de la República, pero cuando se juzgue necesario,
-podrá establecer dependencias u oficinas en cualquier lugar del
-territorio nacional, especialmente en las zonas habitadas por los
-indígenas.
+Artículo 3º.- La Comisión Nacional de Asuntos Indígenas tendrá como asiento la capital de la República, pero cuando se juzgue necesario, podrá establecer dependencias u oficinas en cualquier lugar del territorio nacional, especialmente en las zonas habitadas por los indígenas.

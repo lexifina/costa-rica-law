@@ -28,4 +28,3 @@ articulo-27.md
 articulo-28.md
 articulo-29.md
 articulo-30.md
-articulo-1-transitorio.md

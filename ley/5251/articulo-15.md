@@ -1,4 +1,1 @@
-Artículo 15.- La Junta Directiva se reunirá cuando sea convocada por
-el Presidente, ya sea por disposición propia o por solicitud de tres de
-sus miembros en forma escrita y por lo menos con cuarenta y ocho horas de
-anticipación. Formarán quórum con la mitad más uno de sus miembros.
+Artículo 15.- La Junta Directiva se reunirá cuando sea convocada por el Presidente, ya sea por disposición propia o por solicitud de tres de sus miembros en forma escrita y por lo menos con cuarenta y ocho horas de anticipación. Formarán quórum con la mitad más uno de sus miembros.

@@ -1,4 +1,1 @@
-Artículo 10.- Los fondos de la Comisión Nacional de Asuntos
-Indígenas serán manejados con autonomía a través de una cuenta corriente
-propia en un banco del Estado y fiscalizados por la Contraloría General
-de la República.
+Artículo 10.- Los fondos de la Comisión Nacional de Asuntos Indígenas serán manejados con autonomía a través de una cuenta corriente propia en un banco del Estado y fiscalizados por la Contraloría General de la República.
