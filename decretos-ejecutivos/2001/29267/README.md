@@ -16,3 +16,4 @@ División Territorial Administrativa
 | 1 | 2001-02-02 | la propia norma |
 | 2 | 2001-11-14 | Ley 8150 |
 | 3 | 2003-09-01 | Decreto Ejecutivo 31380 (2003-09-01) |
+| 4 | 2004-03-08 | Decreto Ejecutivo 31653 (2004-03-08) |

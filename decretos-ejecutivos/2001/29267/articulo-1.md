@@ -662,13 +662,14 @@ Leyes y decretos de creación y modificaciones:
 -Decreto Ejecutivo 12 de 19 de abril de 1911 (límites con Palmares al anexarse los distritos Santiago y Candelaria, según lo dispuesto por Ley 16 de 15 de octubre 1910 que ordena plebiscito).
 -Ley 28 de 24 de julio de 1918 (Título ciudad a la villa Atenas).
 -Ley 56 de 30 de julio de 1920 (crea el cantón Turrubares colindante con esta Unidad Administrativa).
+-NOTA DE SINALEVI: Mediante Decreto Ejecutivo N° 31653 de 8 de marzo de 2004, se crea el distrito octavo Escobal.
 Distritos:
 205 01 ATENAS: Ciudad: 09°58'48" LAT.N./ 84°22'55" LONG.O. ALTITUD: 698 m.
 Barrios: Angeles, Atenea, Boquerón, Escorpio, Güizaro, Oásis, Olivo.
 Poblados: Matías.
 205 02 JESÚS: Villa: 09°58'33" LAT.N. / 84º25'29" LONG.O. ALTITUD: 874 m.
 Barrios: Guacalillo, Sabanalarga, San Vicente.
-Poblados: Barroeta, Boca del Monte, Cerrillo, Cuajiniquil, Escobal, Estanquillo, Guácimos, Kilómetro 51, Lapas, Mangos, Pato de Agua (parte), Quebradas, Vuelta Herrera.
+Poblados: Barroeta, Boca del Monte, Cerrillo*, Cuajiniquil, Escobal*, Estanquillo, Guácimos*, Kilómetro 51*, Lapas*, Mangos*, Pato de Agua (parte), Quebradas*, Vuelta Herrera.
 205 03 MERCEDES: Villa: 09°59'22" LAT.N./ 84°24'16" LONG.O. ALTITUD: 720 m.
 Barrios: Cajón.
 Poblados: Callao, Plancillo, Plazoleta.
@@ -681,6 +682,7 @@ Poblados: Balsa, Calle Garita, Coyoles, Pan de Azúcar, Tornos.
 Poblados: Alto Cima, Alto López, Legua, San José Norte, Torunes, Vainilla.
 205 07 SANTA EULALIA: Villa: 10°00'44" LAT.N./ 84°22'32" LONG.O. ALTITUD: 709 m.
 Poblado: Rincón Rodríguez.
+*NOTA: Mediante Decreto Ejecutivo N° 31653 de 8 de marzo de 2004, se crea el distrito Ecobal, octavo del Cantón de Atenas, el cual tendrá a la Villa Escobal como cabecera, contando con los poblados Cerrillo, Escobal, Guácimos, Kilómetro 51, Lapas, Mangos, Quebradas, todos segregados del distrito segundo, Jesús.
 Hojas del mapa básico, 1:50 000(IGN): Naranjo, Río Grande.
 Hojas del mapa 1:10 000 (IGN): Balsa, Boca del Monte, Cuajiniquil, Desmonte, Escobal, Eulalia, Garita, Hornos, Machuca, Montes del Aguacate, Morazán, Palmares.
 CANTÓN 206: NARANJO
