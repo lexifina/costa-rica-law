@@ -1,0 +1,1 @@
+Artículo 7º.-En lo que atañe a los aspectos de seguridad nacional, las Capitanías de Puerto informarán al Ministerio de Seguridad Pública y al de Gobernación y Policía, el arribo de buques que transporten carga explosiva o mercancías peligrosas a aguas territoriales, sea que se dirijan a puerto costarricense o que porten ésta con destino o otros puertos.

@@ -1,0 +1,1 @@
+Artículo 4º.-Si perjuicio de las funciones que desempeñan en la actualidad para la ejecución y cumplimiento de las funciones y programas propios de la Dirección General de Transporte Marítimo, los capitanes de puerto actuarán dentro del marco específico que el Director General de Transporte Marítimo les señale.

@@ -1,0 +1,1 @@
+Artículo 5º.-La Guardia de Asistencia Rural, será la autoridad civil encargada de cooperar con el resguardo y vigilancia del orden en aquellos lugares de la costa en que no haya delegados de la Capitanía de Puerto, de conformidad con lo que establece el artículo 3º de la ley número 4639 del 15 de setiembre de 1970.

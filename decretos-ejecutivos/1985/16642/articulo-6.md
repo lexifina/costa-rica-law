@@ -1,0 +1,1 @@
+Artículo 6º.-A partir de la vigencia del presente Decreto, las Capitanías de Puerto quedarán sin atribuciones para realizar trámites migratorios. La Dirección General de Migración determinará a cuales funcionarios corresponderá dicha función.
