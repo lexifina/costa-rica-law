@@ -1,0 +1,3 @@
+Artículo 7°-Cuando el ICE, el Instituto Costarricense de Acueductos y Alcantarillados, o cualquier otra institución o empresa pública o privada; para el desarrollo de sus actividades requieran o necesiten romper o afectar las vías públicas (aceras, caminos, carreteras); deberán solicitar a la Municipalidad el permiso correspondiente, adjuntando un cronograma del trabajo a realizar y el compromiso de reparar el daño causado.
+No deberán iniciar los trabajos hasta tanto el permiso sea otorgado, para lo cual la Municipalidad contará con un tiempo no mayor de 8 días hábiles para resolver.
+Santa Ana, 27 de mayo de 1999.
