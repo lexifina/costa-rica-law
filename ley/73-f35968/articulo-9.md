@@ -1,0 +1,1 @@
+Artículo 9° Componen la Junta General, cualquier número de miembros que se reúna, siempre que no sea menor de once, con el objeto de tratar asuntos de la competencia de dicha Junta, y con tal de que se haya citado a todos por el periódico oficial, con tres días de anticipación y con indicación de lugar, día y hora de reunión.

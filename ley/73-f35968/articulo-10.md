@@ -1,0 +1,1 @@
+Artículo 10.-La Junta de Gobierno se compondrá de siete miembros elegidos anualmente; uno de ellos ser Presidente de la Junta y de la Facultad, tres Vocales, un Fiscal, un Tesorero y un Secretario. Para ser miembro de la Junta de Gobierno, se requiere serlo de la Facultad. El Presidente debe, además, ser mayor de treinta años.

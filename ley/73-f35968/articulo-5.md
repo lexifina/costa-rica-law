@@ -1,0 +1,1 @@
+Artículo 5°. -Solamente los miembros de la Facultad los autorizados por ‚esta, podrán desempeñar funciones públicas relacionadas con el ejercicio profesional de alguno de los ramos de la ciencia médica que requieran la posesión de un título o diploma.
