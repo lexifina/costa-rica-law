@@ -14,3 +14,4 @@ Obliga a Conductores el Debido Uso del Cinturón de Seguridad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-27 | la propia norma |
+| 2 | 2001-10-17 | SINALEVI (sin norma nombrada) |

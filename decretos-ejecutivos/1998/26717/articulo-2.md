@@ -1,1 +1,1 @@
-Artículo 2°—La persona que incumpla con la presente medida de carácter general será denunciada ante la autoridad judicial competente, de conformidad con lo establecido en el artículo 378 de la Ley General de Salud.
+Artículo 2°— ANULADO por inconstitucional, según resolución de la Sala Constitucional N° 2001-10542 de las 14:55 horas del 17/10/2001.
