@@ -16,3 +16,4 @@ Reglamento Interior del Servicio Postal
 | 2 | 1937-09-10 | Reglamento 188 (1937-09-10) |
 | 3 | 1940-06-06 | Decreto Ejecutivo 5 (1940-06-06) |
 | 4 | 1942-11-24 | Decreto Ejecutivo 65 (1942-11-24) |
+| 5 | 1943-05-05 | Decreto Ejecutivo 27 (1943-05-05) |
