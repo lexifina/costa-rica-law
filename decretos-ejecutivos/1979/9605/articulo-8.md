@@ -1,0 +1,1 @@
+Articulo 8°—El proceso de yodización de la sal común consistirá en la adición de la mezcla de yodato de potasio y de carbonato de calcio en la proporción 1:9 a la sal común, en cantidad tal, que el producto final contenga no más de una parte de yodo por 20.1)00 partes de sal, ni menos de una parte de yodo por ....30.000 partes de sal común.

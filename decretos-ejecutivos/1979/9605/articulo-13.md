@@ -1,0 +1,1 @@
+Artículo 13.—De conformidad con la Ley General de Salud, el Ministerio de Salud resolverá cualquier asunto no previsto en este decreto y aplicará las medidas correspondientes en caso de incumplimiento de las presentes disposiciones.

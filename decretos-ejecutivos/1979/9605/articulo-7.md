@@ -1,0 +1,1 @@
+Artículo 7°—El Ministerio de Salud, con la asesoría del Instituto de Nutrición de Centro América y Panamá (INCAP) fijará las proporciones de la mezcla de sales de yodato de potasio y de carbonato de calcio que deban emplearse, para la yodización de la sal. Las órdenes de pedidos para su adquisición; deberán llevar el visto bueno del Ministerio de Salud.

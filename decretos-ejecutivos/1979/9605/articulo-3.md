@@ -1,0 +1,1 @@
+Artículo 3°—Sin perjuicio de la sanción legal correspondiente, las autoridades sanitarias, fiscales y de policía, procederán al decomiso de la sal- que se ofrezca al consumo del público, sin reunir las condiciones establecidas en el artículo anterior.

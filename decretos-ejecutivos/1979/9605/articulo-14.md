@@ -1,0 +1,1 @@
+Articulo 14.—El presente decreto deroga los decretos ejecutivos números 1341-SPPS de 11 de noviembre de 1970, 3372-SPPS de 16 de noviembre de 1973, 1544-SPPS de 8 de marzo de 1971, 137I-SPPS de 23 de noviembre de 1970 y 1391-SPPS de 9 de diciembre de 1970.

@@ -1,0 +1,1 @@
+Artículo 2°—Toda la sal común de consumo humano y que se expenda en el país, deberá contener yodo en forma homogénea entre las proporciones de uno por veinte mil a uno por treinta mil, con la agregación del producto yódico que el Ministerio de Salud recomienda.

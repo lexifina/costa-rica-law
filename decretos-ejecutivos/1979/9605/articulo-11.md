@@ -1,0 +1,1 @@
+Artículo 11.—Las agrupaciones de que habla el artículo anterior deberán prestar a los pequeños productores todas las facilidades y la ayuda técnica necesaria para la correcta yodización de la sal que éstos produzcan.
