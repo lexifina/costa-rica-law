@@ -1,0 +1,1 @@
+Artículo 2º—El Poder Ejecutivo, por medio del Ministerio de Agricultura y Ganadería, podrá revisar anualmente los cánones definidos en este Decreto, sea por iniciativa propia o a solicitud de la Junta Directiva del Colegio de Ingenieros Agrónomos.
