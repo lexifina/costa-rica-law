@@ -1,0 +1,1 @@
+Artículo 12.—Se deroga el Reglamento Financiero del Instituto Costarricense de Turismo aprobado por esta Junta Directiva en Sesiones Nº 3347 y Nº 3358 de 02 de febrero y 23 de marzo de 1983, respectivamente, publicado en La Gaceta Nº 116 de 20 de junio de 1983.

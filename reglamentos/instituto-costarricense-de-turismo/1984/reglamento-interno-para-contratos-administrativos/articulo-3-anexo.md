@@ -1,0 +1,1 @@
+Artículo 3º—El control final sobre la existencia de partidas presupuestarias necesarias para cualquier contratación ordinaria de la Institución estará a cargo de la Sección de Presupuesto. En caso de que alguna contratación que se pretenda realizar no tuviere contenido presupuestario, la Sección de Presupuesto así lo hará ver a efecto de que se tomen las providencias del caso.

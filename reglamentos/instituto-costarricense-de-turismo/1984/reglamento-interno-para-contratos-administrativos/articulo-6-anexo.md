@@ -1,0 +1,1 @@
+Artículo 6º—Todos los pagos que deban realizarse por concepto de contrataciones administrativas o servicios fijos tales como electricidad, teléfono, etc., serán tramitados por el Departamento Administrativo a través de la Sección de Contabilidad, la cual confeccionará los cheques respectivos.

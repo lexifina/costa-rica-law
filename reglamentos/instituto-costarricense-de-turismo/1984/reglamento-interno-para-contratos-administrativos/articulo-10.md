@@ -1,0 +1,1 @@
+Artículo 10.—La Gerencia o la Presidencia Ejecutiva, atendiendo sus competencias, emitirán las normas adicionales y dictarán los trámites administrativos a seguir para la correcta y eficaz aplicación de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 6º—No obstante lo establecido en el artículo anterior, los topes para determinar el procedimiento de contratación administrativa a emplear podrán ser objeto de excepción cuando medien autorizaciones específicas o genéricas otorgadas por la Contraloría General de la República.
