@@ -14,3 +14,4 @@ Desvincula Hermandad de la Caridad de Cartago de Control Ministerio de Salud y D
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-15 | la propia norma |
+| 2 | 2000-03-15 | Ley 8 |
