@@ -15,3 +15,4 @@ Reglamento para la Administración, inversión y utilización del Fondo garantí
 | --- | --- | --- |
 | 1 | 1940-01-19 | la propia norma |
 | 2 | 1940-01-19 | Reglamento 3 (1940-01-10) |
+| 3 | 1946-05-30 | Reglamento 59 (1946-05-30) |
