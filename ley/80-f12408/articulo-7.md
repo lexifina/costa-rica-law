@@ -1,0 +1,1 @@
+ARTICULO 7°. -Los intereses de los billetes se pagarán cada seis meses; pero los tenedores no recibirán sino un diez por ciento, y el dos por ciento restante quedar a beneficio de los socios fundadores, en recompensa de su valiosa garantía.

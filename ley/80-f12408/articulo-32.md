@@ -1,0 +1,1 @@
+Artículo 32.-Las faltas absolutas ¢ temporales de los expresados vocales, pueden ser llenadas por el Administrador, llamando en subrogación de aquellos a los socios que tenga por conveniente, siempre que hayan suscrito, cuando menos, por $ 10,000

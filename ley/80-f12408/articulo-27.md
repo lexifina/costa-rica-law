@@ -1,0 +1,1 @@
+Artículo 27.-La reunión general de accionistas deliberar y resolver sobre los negocios que le sean sometidos por la Junta Directiva por el Ministerio de Hacienda, y en las ordinarias también sobre las proposiciones que hagan los socios.

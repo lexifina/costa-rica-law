@@ -1,0 +1,1 @@
+Artículo 29.-La reunión general de accionistas en la sesión ordinaria de Julio de cada año, nombrar los cuatro vocales que deben formar la Junta Directiva; de manera que los primeramente elegidos terminarán sus funciones en la fecha expresada.
