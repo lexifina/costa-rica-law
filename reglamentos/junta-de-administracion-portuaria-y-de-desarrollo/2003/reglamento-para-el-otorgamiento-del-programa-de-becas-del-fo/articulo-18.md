@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Artículo 18.—Cobertura de beneficiarios. A partir del 23 de enero del año 2002, fecha de aprobación del Convenio del Programa de Becas con CONAPE, aquellos estudiantes que ya gozan de préstamos aprobados por CONAPE, podrán ser beneficiarios del programa, como únicos casos de excepción, siempre que la disponibilidad de recursos así lo permita y que CONAPE le apruebe la beca, de conformidad con los requisitos de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 7º—Procedimiento de aprobación de las becas. Previa ratificación por parte de CONAPE, de que existe disponibilidad de recursos y satisfechos los requisitos anteriores, CONAPE aprobará el préstamo y la beca respectiva y lo notificará al FONDO.

@@ -1,0 +1,2 @@
+Artículo 4º—Concesión de los Préstamos y de las Becas. Los préstamos serán concedidos por CONAPE conforme su Ley de Creación, Reglamento, Directrices y Plan Anual de Crédito.
+Los procesos de promoción, información, gestión, análisis, aprobación de préstamos, formalización, desembolsos, control del préstamo, custodia de documentos y recuperación, serán responsabilidad exclusiva de CONAPE. Corresponderá a CONAPE incluir a los estudiantes limonenses en este programa de becas, con todos los beneficios y obligaciones que esto conlleva.

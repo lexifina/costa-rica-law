@@ -1,0 +1,1 @@
+Artículo 14.—Rendición de informes por parte del Banco. El Banco queda obligado a presentar informes mensuales a FODELI del estado de los valores y de todas aquellas erogaciones o desembolsos con cargo al fideicomiso. El Banco queda igualmente obligado a informarle a FODELI todos aquellos hechos relevantes que afecten al Fideicomiso.

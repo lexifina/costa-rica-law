@@ -1,0 +1,2 @@
+Artículo 5º—Recepción de solicitudes de préstamo y de becas. Lo que se refiere a información y difusión del programa a estudiantes, trámites, requisitos de las solicitudes, entrega y recepción de solicitudes, traslado de documentos Limón-San José-Limón, se podrán hacer en la oficina de Becas de JAPDEVA en Limón o directamente en las oficinas de CONAPE en San José.
+La sola presentación de la solicitud de préstamo y de beca ante CONAPE, no constituye obligación de aprobarla.

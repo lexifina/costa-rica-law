@@ -1,0 +1,1 @@
+Artículo 11—Rentabilidad de los recursos. Tanto la Junta Directiva de FODELI como la Auditoría de JAPDEVA, verificarán que el banco administre adecuadamente los recursos que conforman el fideicomiso, así como vigilará que las inversiones que realice el banco, cumplan con las disposiciones legales y reglamentarias vigentes para hacer sostenible el Programa de Becas.
