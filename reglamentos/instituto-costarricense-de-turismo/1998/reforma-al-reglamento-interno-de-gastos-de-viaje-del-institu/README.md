@@ -14,3 +14,4 @@ Reforma al Reglamento Interno de Gastos de Viaje del Instituto Costarricense de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-27 | la propia norma |
+| 2 | 1998-02-27 | Ley 8 |
