@@ -1,0 +1,5 @@
+Artículo 16.—Del Sistema Nacional de Gestión, Financiamiento y Cooperación Internacional. En los ámbitos de gestión, financiamiento y cooperación internacional, la Estrategia Nacional del Gobierno de la República se determinará mediante la ejecución de las siguientes políticas específicas:
+a) Fortalecer presupuestariamente al Centro Nacional de Prevención contra Drogas para que cumpla con la función que le compete por ley en la administración de los recursos provenientes del narcotráfico, para impulsar las acciones de los diferentes ámbitos del fenómeno de la droga.
+b) Procurar que cada institución nacional relacionada directa o indirectamente con el fenómeno de la droga incluya en sus presupuestos operativos las acciones previstas en el Plan Nacional Antidrogas.
+c) Suscribir y cumplir acuerdos bilaterales y multilaterales en el plano internacional que apoyen todas las acciones contempladas en el Plan Nacional Antidrogas.
+d) Suscribir convenios nacionales con entidades públicas y/o privadas para financiar acciones específicas sobre el fenómeno de la droga.

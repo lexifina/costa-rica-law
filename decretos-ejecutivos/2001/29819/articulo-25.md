@@ -1,0 +1,1 @@
+Artículo 25.—El Gobierno de la República se compromete a ejecutar los acuerdos internaciones en el seno de la CICAD/OEA, PNUFID/ONU y CCP/SICA encaminados al desarrollo de los programas SIDUC, CICDAT, MEM y demás relacionados con datos y estadísticas sobre drogas.

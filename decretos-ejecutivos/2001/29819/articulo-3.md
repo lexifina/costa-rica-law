@@ -1,0 +1,1 @@
+Artículo 3º—Objetivo General del Plan Nacional Antidrogas. El Objetivo General del Plan Nacional como Estrategia Gubernamental Antidrogas para Costa Rica es reducir el fenómeno de la droga en todas sus manifestaciones, basándose en una política oficial, global e integrada.
