@@ -1,0 +1,1 @@
+Artículo 64.—La liquidación estará a cargo de la Comisión Liquidadora, integrada de la siguiente manera: un representante de la municipalidad respectiva; un representante de la Confederación Nacional de Centros Agrícolas y un representante de las organizaciones agrícolas del cantón. El Presidente de esta Comisión será nombrado en la primera sesión.

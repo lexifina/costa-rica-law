@@ -1,0 +1,1 @@
+Artículo 55.- Mediante reglamento se fijarán las atribuciones, la organización y el funcionamiento de la Confederación de Centros Agrícolas; asimismo, los procedimientos para que pueda constituirse más de un centro agrícola por cantón, de conformidad con el artículo 17.

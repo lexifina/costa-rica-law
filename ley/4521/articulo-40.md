@@ -1,0 +1,2 @@
+Artículo 40.- Ningún miembro de la Junta Directiva podrá ser, a la vez, empleado del centro agrícola, ni recibir dádivas, directa ni indirectamente. Si algún miembro de la Junta Directiva desea ocupar un cargo como empleado, por lo menos seis meses antes de su designación, deberá renunciar a la Junta Directiva.
+Cualquier afiliado podrá ser contratado como empleado del centro agrícola siempre que no sea miembro de la Junta Directiva ni lo haya sido en los seis meses anteriores a la contratación.
