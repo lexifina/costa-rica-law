@@ -1,3 +1,0 @@
-Artículo 9°-Del Consejo Académico:
-La Escuela Casa del Artista, tendrá un Consejo Académico formado por los instructores y el Director de la misma, el que deberá reunirse por lo menos una vez al mes, o en cualquier momento a solicitud del Director, o de dos de los instructores, para tratar de solucionar divergencias de tipo académico o de tipo administrativo que pueden ser elevadas en segunda instancia al Consejo Asesor. Agotadas estas instancias el asunto se someterá a conocimiento del Ministro del ramo.
-Finalmente deben coadyuvar con la buena marcha y planes de trabajo establecidas por la Comisión Asesora y el Ministerio.
