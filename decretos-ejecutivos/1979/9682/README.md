@@ -14,3 +14,4 @@ Reglamento Inscripción Planos en Catastro Nacional
 | --- | --- | --- |
 | 1 | 1979-04-18 | la propia norma |
 | 2 | 1982-04-24 | Decreto Ejecutivo 13607 (1982-04-24) |
+| 3 | 1982-04-24 | Ley 8 |
