@@ -1,0 +1,1 @@
+Artículo 2°—La función de la Comisión será la compra de fincas, de manera a recuperar a corto plazo los terrenos de las Reservas Indígenas en posesión de ocupantes no indígenas, e indemnizar estos a la mayor brevedad.

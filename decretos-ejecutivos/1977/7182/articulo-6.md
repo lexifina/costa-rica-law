@@ -1,0 +1,1 @@
+Artículo 6°—La Comisión de Emergencia, en el desempeño de sus labores, se podrá asesorar a través del Departamento de Servicios Técnicos del I.T.C.O, o de Tributación Directa para efecto de determinar los montos a pagar en cada caso.

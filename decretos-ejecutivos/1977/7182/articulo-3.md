@@ -1,0 +1,1 @@
+Artículo 3°—Igualmente la Comisión intervendrá para solucionar los problemas de tenencia de la tierra en las zonas aledañas a las Reservas Indígenas e incluidas en la zona declarada de Emergencia Nacional.
