@@ -1,0 +1,1 @@
+Artículo 25.—Este cuerpo normativo deroga el anterior Reglamento para Ayudas Temporales y Subvenciones del cantón de Belén, aprobado en la sesión extraordinaria 7-2001, del 31 de enero del 2001 y su reforma.
