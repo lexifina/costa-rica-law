@@ -14,3 +14,4 @@ Constituye Comisión Asesora sobre Instalaciones Portuarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1969-05-31 | la propia norma |
+| 2 | 1969-06-24 | Decreto Ejecutivo 20 (1969-06-24) |
