@@ -1,0 +1,1 @@
+Artículo 2°—En este sentido se le dará prioridad al patrocinio de espectáculos públicos, materiales audiovisuales e impresos que contribuyan a una adecuada y balanceada formación integral del ser humano, los que por ende serán aptos para toda la familia.
