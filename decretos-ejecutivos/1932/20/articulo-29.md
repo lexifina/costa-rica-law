@@ -1,0 +1,1 @@
+Artículo 29.—La Junta de Control tiene la facultad de acudir al Gobierno por vía de consulta en lo referente a situaciones no previstas. La resolución que se diere servirá de complemento a este decreto reglamentario. En caso indispensable promoverá por medio de la Secretaría de Hacienda la intervención de la Cámara Legislativa.

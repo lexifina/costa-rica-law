@@ -1,0 +1,1 @@
+Artículo 6°—Los auxilios decretados sin condiciones por el Poder legislativo son inaplazables. Respecto a otros que exigen formalidades previas, el Banco Internacional acudirá a la Secretaría de Hacienda, a medida que vaya necesitándolo, según opinión de la Directiva, para que formalice en la porción indispensable el lanzamiento de billetes como parte del cupo total autorizado.

@@ -1,0 +1,1 @@
+Artículo 23.—Los Bancos, la Junta y los perjudicados por irregularidades en la gestión oficial o particular que contraríen las disposiciones de la ley, tienen el deber legal de ponerlas sin demora en cimiento del señor Gobernador de San José, a fin de promover el castigo de ellas.

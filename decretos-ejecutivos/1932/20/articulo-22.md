@@ -1,0 +1,1 @@
+Artículo 22.—Asimismo llevará la Junta un libro de actas. Cuando hubiere discusión o reparos acerca de sus autorizaciones o negativas, deberá resolver concreta y motivadamente lo que convenga, incorporando en este libro sus acuerdos.

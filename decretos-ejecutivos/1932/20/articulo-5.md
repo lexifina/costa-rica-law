@@ -1,0 +1,1 @@
+Artículo 5°—Con las formalidades de ley, se procederá a otorgar escritura inscribible donde conste el aplazamiento por un año de las amortizaciones concertadas y rebaja del tipo de interés; y el compromiso de los deudores para reanudar oportunamente su servicio de amortización e intereses,—sujetos éstos a la cuota penal en su caso,— fregando un año al plazo primitivo.

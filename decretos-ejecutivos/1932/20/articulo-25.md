@@ -1,0 +1,1 @@
+Artículo 25.—Cuándo la Junta deba adquirir letras o giros para efectuar pagos ajenos, procederá en orden cronológico y con la debida prudencia, si no tuviere a la mano medio de satisfacerlos de una vez.

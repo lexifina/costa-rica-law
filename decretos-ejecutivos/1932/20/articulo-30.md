@@ -1,0 +1,3 @@
+Artículo 30.— La Junta dará constancias oficiales de sus datos y actuaciones a los interesados, sin perjuicio de publicar circulares, resoluciones y otras piezas que a su juicio deban difundirse para mejor éxito de su cometido.
+Las cotizaciones insertadas en La Gaceta harán fe por si mismas, desde la publicación de la ley, el tanto por ciento de las afectadas al fondo acumulativo de respaldo y redención de los billetes de emisión extraordinaria. De acuerdo con el Banco Internacional, hará a ésta las entregas correspondientes.
+Dado en San José, a los veintinueve días del mes de enero de mil novecientos treinta y dos.

@@ -1,0 +1,1 @@
+Artículo 2°—Los deudores que deseen acogerse al favor de la ley, presentarán la solicitud a los Bancos Internacional o Crédito Hipotecario de Costa Rica, antes del primero de abril entrante. Las que lleguen después no valen.

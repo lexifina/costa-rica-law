@@ -1,0 +1,1 @@
+Artículo 14.—La Junta delibera en asocio del Experto, teniendo éste participación y voz en los debates, si bien carece de voto; la Junta resuelve por unanimidad o por mayoría cíe dos; el Experto tiene el derecho de hacer consignar en el acta, caso de discrepancia con la resolución de la Junta, los motivos en que la funda, a fin de salvar su responsabilidad.

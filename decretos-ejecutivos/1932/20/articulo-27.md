@@ -1,0 +1,2 @@
+Artículo 27.—Los Bancos u otras oficinas que vendan cheques de viajeros o cartas de crédito para viajeros, deberán declarar su existencia, para que la Junta haga su correspondiente anotación. No podrán ser vendidos o puestos en circulación sin previa autorización de la Junta.
+Los billetes y monedas extranjeros podrán comprarse y venderse libremente por el comercio, Bancos o particulares, con el margen usual en esta clase de negocio. Los Bancos enviarán a la Junta un detalle semanal de todas sus transacciones en esa clase de moneda.

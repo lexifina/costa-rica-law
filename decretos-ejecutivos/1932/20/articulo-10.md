@@ -1,0 +1,1 @@
+Artículo 10.—Las entregas que el Internacional ha efectuado y las que hiciere al Estado y al Crédito Hipotecario, llevan implícita la estipulación legal de 4 por ciento anual de intereses, capitalizables al fin del primer año. Las otras estipulaciones del empréstito indefectiblemente habrán de reducirse a contrato antes de que venza la primera anualidad.

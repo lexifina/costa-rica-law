@@ -1,0 +1,1 @@
+Artículo 18.—El exportador que reciba licencia, debe al mismo tiempo extender a favor de la Junta, una autorización amplia a fin de facultarla para investigar con los consignatarios o acreedores, el estado del negocio y la verdadera liquidación favorable o contraria que deje al exportador. También firmará el compromiso de vender sus letras a Bancos matriculados.

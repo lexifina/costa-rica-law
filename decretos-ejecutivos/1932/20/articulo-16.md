@@ -1,0 +1,1 @@
+Artículo 16.—Para los efectos de ley se entenderá por divisas internacionales, todo valor negociable pagadero fuera del país en efectivo o en cualquiera especie de moneda existente, convencional o imaginaria. Cuando habla de divisas extranjeras, se entiende por eso, cualquiera valores no expresados en colones.
