@@ -1,1 +1,0 @@
-Artículo 8°—El Instituto de Tierras y Colonización, conjuntamente con los otros dos Institutos indicados en el artículo anterior, podrá levantar instalaciones o efectuar trabajos para fines turísticos o para proteger los recursos hidrológicos de la reserva forestal establecida.
