@@ -1,0 +1,1 @@
+Art 10°.- También habrá lugar a súplica de la sentencia que se pronuncie en las acusaciones contra Jueces y Tribunales subalternos, por causas calificadas o que se califiquen, de primera y segunda clase que señala el capítulo 10 de la ley de 15 de mayo de 832, por las demás y de la misma declaratoria, no tendrá lugar este recurso.
