@@ -1,0 +1,1 @@
+Art. 2°.-De la presentación á que se refiere el inciso 1° del artículo anterior, el Gobernador ó Jefe Político dará cuenta á la Municipalidad, para que ésta mande extender á favor del interesado la constancia correspondiente si el terreno de que se trata fuere enajenable.

@@ -1,0 +1,1 @@
+Art. 5°.-Los ocupantes actuales deberán dentro de los tres meses siguientes á la publicación de esta ley, cumplir con lo dispuesto en el inciso 1° del artículo 1°; si no lo hicieren, tampoco tendrán derecho para impedir que su porción se saque á subasta pública y sólo podrán percibir el valor de las mejoras, caso de que un tercero sea quien compre aquélla.

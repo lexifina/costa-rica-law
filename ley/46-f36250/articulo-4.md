@@ -1,0 +1,1 @@
+Art. 4°.-Si la Municipalidad dispusiese vender terrenos ocupados cuyos poseedores no quisieren comprarlos, se sacarán á subasta pública en la forma prevenida por la ley; y del precio de la venta se dará al ocupante la parte correspondiente á las mejoras ejecutadas por él, las cuales, en el caso de este artículo, serán valoradas separadamente del terreno.
