@@ -1,0 +1,1 @@
+Artículo 20.- Sobre el monto que deba pagarse por concepto de esta ley, se autoriza a la Municipalidad para que cobre un cinco por ciento, que se destinará exclusivamente para la atención, mantenimiento y limpieza de las playas, parques y áreas verdes del cantón.

@@ -1,0 +1,1 @@
+Artículo 24.- Facúltase a la Municipalidad del cantón central de Puntarenas para revisar, cada tres años, los montos indicados en los artículos 16 y 17. Estas revisiones deberán ser aprobadas por la Contraloría General de la República.
