@@ -1,0 +1,4 @@
+Artículo 15.—El trabajador que goce de la prohibición está facultado para ejercer su profesión, en los siguientes casos:
+a) Cuando se trate de labores docentes en instituciones de enseñanza superior oficial o privada, siempre y cuando esta actividad no se realice en horas laborales y no exceda de un cuarto de tiempo.
+b) Cuando se trate de impartir cursos de capacitación en instituciones públicas o privadas, siempre que sean auspiciadas y organizadas por dichas instituciones y no medie pago alguno de terceros.
+c) Cuando se trate del ejercicio profesional relacionado con los asuntos personales del trabajador, de su cónyuge, descendientes o ascendientes hasta un tercer grado de consanguinidad o afinidad, siempre y cuando no exista conflicto de intereses con la Administración Tributaria de Municipalidad y en cada caso deberá informarlo a la Dirección de Recursos Humanos.

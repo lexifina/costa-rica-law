@@ -1,0 +1,1 @@
+Artículo 17.—El incumplimiento en que incurra el trabajador, constituirá falta grave y de acuerdo con las circunstancias y disposiciones legales y reglamentarias vigentes, podrá ser considerada como causal de despido.

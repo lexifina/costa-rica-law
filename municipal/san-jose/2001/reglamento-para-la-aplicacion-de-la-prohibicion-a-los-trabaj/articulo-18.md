@@ -1,0 +1,1 @@
+Artículo 18.—Comprobado el incumplimiento, el trabajador deberá reintegrar a la Municipalidad los montos percibidos por concepto de prohibición, de conformidad con el procedimiento que se establece en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 11.—La Dirección de Recursos Humanos tramitará el pago de la compensación económica por prohibición mediante acción de personal, la cual deberá indicar la disposición legal y reglamentaria en que se fundamenta dicho pago y contar con la aprobación del Alcalde Municipal.

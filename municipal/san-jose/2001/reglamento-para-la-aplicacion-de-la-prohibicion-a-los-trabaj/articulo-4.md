@@ -1,0 +1,3 @@
+Artículo 4º—Sólo se hará efectiva la prohibición, cuando el trabajador que desempeñe el puesto afectado por la misma, se encuentre realizando funciones propias de dicho puesto.
+Cuando un puesto no afecto por prohibición legalmente remunerable, es trasladado a la Administración Tributaria Municipal, será retribuido por tal concepto, a partir del momento en que inicie efectivamente su función.
+En caso contrario, si un servidor de la Administración Tributaria Municipal, que desempeña un puesto afectado por la prohibición es trasladado a otro puesto no afectado por ésta, dejará de percibir la compensación correspondiente a la misma.
