@@ -1,0 +1,8 @@
+CIRCULAR N° 49-2004
+ASUNTO: Reiteración de la Circular N° 82-03, publicada en el Boletín Judicial N° 169 del 3 de setiembre de 2003, sobre "Sobre una debida y correcta atención a los usuarios en las oficinas judiciales".
+A TODOS LOS SERVIDORES Y FUNCIONARIOS JUDICIALES DEL PAÍS SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 15-04, celebrada el 2 de marzo del año en curso, artículo XLIII, dispuso reiterar la circular N° 82-03, publicada en el Boletín Judicial N° 169 del 3 de setiembre de 2003, "Sobre una debida y correcta atención a los usuarios en las oficinas judiciales", a saber:
+"La Corte Plena, en sesión N° 18-03, celebrada el 12 de mayo de 2003, artículo XV, dispuso hacer de su conocimiento lo siguiente:
+a) Todas las personas tienen derecho a ser atendidas personalmente en las oficinas judiciales respecto de cualquier incidencia relacionada con el funcionamiento del Órgano Judicial, en la forma establecida legalmente y, en su caso, a recibir la debida orientación de parte de los funcionarios encargados.
+b) Los jueces no deben recibir a las partes, ni a sus abogados, en ausencia de la parte contraria, para referirse al tema de fondo que debe resolver, salvo los casos expresamente autorizados por la ley, como por ejemplo, cuando se convoca a una audiencia con notificación previa, pero no asiste alguna de ellas y la diligencia deba efectuarse. Sin embargo, los jueces pueden reunirse en el Despacho, con una parte o sus abogados cuando éstos pretendan referirse a aspectos relacionados con la administración del expediente, para el diligenciamiento de alguna actividad procesal o para instar la pronta resolución del asunto"
+San José, 23 de marzo de 2004.
