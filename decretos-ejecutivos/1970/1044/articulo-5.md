@@ -1,0 +1,1 @@
+Artículo 5°-El Ministerio de Industria y Comercio fiscalizará y controlará la ejecución y cumplimiento de las obligaciones a cargo del Empresario y el uso o disfrute de los beneficios que se le conceden. Velará también por la calidad de los productos y por qué se vendan a un precio razonable para el consumidor.
