@@ -1,0 +1,1 @@
+Artículo 4°-A una misma institución se le podría conceder máximo de dos veces por año, salvo en los casos de que no existiera otra solicitud para las fechas indicadas en el articulo 2° de la institución solicitante puede hacerse merecedora de una tercera ocasión.

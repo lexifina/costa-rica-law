@@ -1,0 +1,1 @@
+Artículo 2°-Los permisos se darán únicamente para Semana Santa, mes de la anexión, mes de la Patria, durante el mes de diciembre siempre y cuando la fecha de solicitud no interfiera con la del tradicional turno de la Parroquia.
