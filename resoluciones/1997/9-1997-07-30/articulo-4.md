@@ -1,0 +1,1 @@
+Artículo 4°—Formato de los formularios. Apruébanse los Anexos 1, 2, 3, 4, 5, 6, 7, 8, 9, 10, 11, 12, 13, 14, que corresponden a los formatos de formúlanos autorizados por la Dirección General de Tributación Directa, así como sus fechas de vigencia.

@@ -1,0 +1,1 @@
+Transitorio I.—Mientras que no entre en vigencia cada formulario los sujetos pasivos deberán cumplir sus obligaciones tributarias en los formularios que para su efecto se han utilizado y que serán suministrados por la Dirección General de la Tributación Directa.
