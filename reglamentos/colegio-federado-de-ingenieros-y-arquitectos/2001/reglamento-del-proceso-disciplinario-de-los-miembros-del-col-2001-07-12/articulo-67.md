@@ -1,0 +1,1 @@
+Artículo 67.—En los casos en que, a petición del interesado, deban recibirse pruebas cuya evacuación implique gastos que no deba soportar el Colegio Federado de Ingenieros y de Arquitectos, el Tribunal de Honor podrá exigir el depósito anticipado de los mismos.

@@ -1,0 +1,1 @@
+Artículo 8°—El impulso del procedimiento disciplinario se realizará de oficio, sin perjuicio del que puedan darle las partes. La inercia de las partes no podrá ser excusa para que el Tribunal no resuelva dentro de los plazos establecidos en este Reglamento.

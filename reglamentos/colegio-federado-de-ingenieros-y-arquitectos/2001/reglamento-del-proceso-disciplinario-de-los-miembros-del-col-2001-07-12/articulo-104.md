@@ -1,0 +1,1 @@
+Artículo 104.—La sanción prescribirá en el plazo de dos años contados a partir de que la Junta Directiva General haya impuesto la sanción, si al miembro sancionado no le fuera comunicada debidamente dicha sanción dentro de ese plazo. Únicamente interrumpirá la prescripción del auto que ordena la admisibilidad de la acción de inconstitucionalidad contra la norma a aplicar.

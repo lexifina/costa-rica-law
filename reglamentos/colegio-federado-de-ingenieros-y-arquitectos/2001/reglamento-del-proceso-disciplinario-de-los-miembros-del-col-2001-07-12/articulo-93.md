@@ -1,0 +1,1 @@
+Artículo 93.—Recibida la recomendación del Tribunal de Honor, 1a Junta Directiva General contará con quince días hábiles para dictar el acto final. La recomendación del Tribunal de Honor no será vinculante para la Junta Directiva General, quien podrá apartarse de esa recomendación motivando suficientemente su decisión.

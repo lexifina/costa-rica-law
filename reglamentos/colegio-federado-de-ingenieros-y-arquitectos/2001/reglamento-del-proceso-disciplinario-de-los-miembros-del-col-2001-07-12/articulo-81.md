@@ -1,0 +1,1 @@
+Artículo 81.—Concluido el plazo conferido en el traslado de la denuncia, sin que el denunciado se haya apersonado a los autos, se declarará en estado de Rebeldía, significando que el procedimiento se continuará sin su participación. Ello sin perjuicio de que pueda apersonarse en cualquier momento, tomando el procedimiento en el estado en que se encuentre.

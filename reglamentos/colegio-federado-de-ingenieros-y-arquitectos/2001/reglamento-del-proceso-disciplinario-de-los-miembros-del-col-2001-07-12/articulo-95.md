@@ -1,0 +1,1 @@
+Artículo 95.—La comunicación, por publicación o notificación, deberá contener lo establecido de acuerdo con el artículo 26, además de las decisiones o dictámenes de los Tribunales de Honor que se invoque come motivación.

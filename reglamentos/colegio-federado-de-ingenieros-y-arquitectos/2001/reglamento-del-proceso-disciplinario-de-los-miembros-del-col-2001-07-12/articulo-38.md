@@ -1,0 +1,4 @@
+Artículo 38.—
+1. Los términos se interrumpirán por la presentación de los recursos fijados por el Reglamento.
+2. No importará que el recurso carezca de las autenticaciones, formalidades o especies fiscales necesarias ni, en general, que padezca cualquier vicio que no produzca su nulidad absoluta, a condición de que se subsanen de conformidad con este reglamento.
+3. El recurso se tendrá como interpuesto correctamente aun si es presentado en cualquier oficina del Colegio Federado de Ingenieros y de Arquitectos, dentro del horario normal de la oficina. En este caso, el funcionario del Colegio Federado de Ingenieros y de Arquitectos que haya recibido el recurso, deberá remitirlo inmediatamente a la Subdirección de Fiscalía. Su omisión se considerará como falta grave y podrá ser despedido sin responsabilidad laboral.
