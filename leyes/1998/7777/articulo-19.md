@@ -1,0 +1,5 @@
+ARTÍCULO 19.- Aplicación irrestricta de esta ley
+Los procedimientos fijados en esta ley para cobrar el impuesto de
+patentes no excluyen las actividades sujetas a licencias que, por
+características especiales, sean objeto de gravámenes impositivos creados
+por leyes de alcance nacional.
