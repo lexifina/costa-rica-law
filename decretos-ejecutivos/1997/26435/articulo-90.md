@@ -1,1 +1,0 @@
-Artículo 90.- La DGVS será el órgano responsable de coordinar con la Oficina de Tributación Directa del Ministerio de Hacienda, los trámites que sean necesarios, cuando lo amerite, para atender las solicitudes de avalúos, revisión de los mismos, indicar los ajustes en las tablas y actualizar los registros correspondientes.

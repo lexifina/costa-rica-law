@@ -1,1 +1,0 @@
-Artículo 12.- La Dirección Regional de Área de Conservación será un órgano programador, de supervisión y de apoyo técnico al Director General de Vida Silvestre, y será las encargada de la ejecución de las actividades de campo. Se autoriza a la DGVS para el establecimiento de las oficinas subregionales que se ameriten.

@@ -1,1 +1,0 @@
-Artículo 46.- Para los poseedores de licencias de caza menor y mayor, una vez aprobada la inscripción de sus animales, la DGVS entregará un libro registro al interesado para que anote fecha de captura, especie, sitio de captura, con el fin de llevar un control de la cantidad de especies autorizadas según el decreto de vedas correspondiente.

@@ -1,1 +1,0 @@
-Artículo 101.- Aquellos inmuebles, no inscritos, ni amparados al derecho de poseción, en el Registro Público de la Propiedad y que se encuentran dentro de los Refugios Nacionales de Vida Silvestre de Propiedad Mixta, podrán ser inscritos a nombre del MINAE, si se cumple con lo establecido en el Decreto Ejecutivo Nº 21410G, publicado en "La Gaceta" Nº 150, del 6 de agosto de 1992.

@@ -1,1 +1,0 @@
-Artículo 6º.- Los cánones establecidos en la LCVS serán ajustados, automáticamente y anualmente, de conformidad con el índice de inflación que establece el Banco Central a partir del primero de enero de cada año.

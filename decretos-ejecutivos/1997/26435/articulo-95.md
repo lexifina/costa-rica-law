@@ -1,1 +1,0 @@
-Artículo 95.- Para viviendas de uso habitacional declarada de interés social que estén, asimismo, clasificadas y aprobadas por el Ministerio de Vivienda y así como en el uso agropecuario con fines de subsistencia, la DGVS podrá rebajar el pago del canon hasta el 1% del avalúo de Tributación Directa, o a montos mínimos de ¢10.000.00 colones anuales.

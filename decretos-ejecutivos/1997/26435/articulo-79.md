@@ -1,1 +1,0 @@
-Artículo 79.- Las actividades de reproducción de especies ornamentales exóticas de peces de acuario, aves y plantas en cautiverio, excepto las especies que se encuentran incluidas en apéndices de CITES, no requerirán inscribirse en los registros de zoocriaderos, viveros y acuarios que lleva la DGVS.

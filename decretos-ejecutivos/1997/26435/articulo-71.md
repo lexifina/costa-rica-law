@@ -1,1 +1,0 @@
-Artículo 71.- Las licencias de colecta de animales y plantas para zoológicos, zoocriaderos o viveros sólo serán otorgadas cuando los censos efectuados garanticen la viabilidad de la población a afectuar, salvo la excepción establecida en el artículo 14 de la LCVS.

@@ -1,1 +1,0 @@
-Artículo 72.- La DGVS establecerá mediante resolución administrativa, cuando lo considere necesario, el porcentaje de animales nacidos en cautiverio que el permisionario deberá liberar al medio natural; así como el área donde se realizará la liberación.

@@ -1,1 +1,0 @@
-Artículo 38.- Todo trasiego internacional de flora y fauna silvestre, que pase en tránsito por el territorio nacional, deberá contar con los certificados sanitarios emitidos por las autoridades correspondientes, los permisos de las autoridades públicas competentes y cuando corresponda, los permisos de la Autoridad Administrativa CITES del país de origen.

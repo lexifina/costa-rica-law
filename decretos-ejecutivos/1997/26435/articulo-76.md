@@ -1,1 +1,0 @@
-Artículo 76.- Los propietarios de viveros, zoológicos y zoocriaderos que exporten flora y fauna silvestre, sus productos o subproductos deberán presentar a la DGVS antes de realizar el embarque la factura donde conste el valor real, CIF o FOB, según corresponda, de la mercadería a exportar.

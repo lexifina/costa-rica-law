@@ -1,1 +1,0 @@
-Artículo 96.- El interesado solicitará a la Dirección General de Tributación Directa la realización del avalúo, el cual deberá ser presentado a la DGVS dentro de los requisitos para la concesión del permiso de uso. El mismo deberá ser revisado como mínimo cada cinco años y los cánones se ajustarán de conformidad al nuevo avalúo.

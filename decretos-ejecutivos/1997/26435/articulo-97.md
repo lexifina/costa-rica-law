@@ -1,1 +1,0 @@
-Artículo 97.- Los cánones estarán regidos por el artículo 127 de la LCVS y se deberán cancelar por anualidades adelantadas y regirá a partir de la fecha en que quede firme la resolución que apruebe la solicitud para un permiso de uso. El mismo deberá ser depositado en la caja única del Estado.

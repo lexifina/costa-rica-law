@@ -1,1 +1,0 @@
-Artículo 74.- La DGVS fiscalizará que los animales y plantas silvestres, productos y subproductos de los zoológicos, zoocriaderos, viveros o acuarios estén adecuadamente marcado, siempre y cuando sea ésto material y físicamente posible.
