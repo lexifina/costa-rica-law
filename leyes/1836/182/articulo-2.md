@@ -1,0 +1,1 @@
+Art 2°.- La dotación de este destino, será de cuarenta pesos en tiempo de paz, y cincuenta y cinco en campaña.- Al Consejo Representativo.- Dado en la Ciudad de Heredia a los diezsiete días del mes agosto de mil ochocientos treinta y seis años. Por tanto: Ejecutese: San José agosto veintitrés de mil ochocientos treinta y seis.
