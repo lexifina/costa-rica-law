@@ -1,7 +1,2 @@
-Artículo 49.- El Banco establecerá los costos administrativos
-necesarios que serán cargados al Fondo de Subsidios para la Vivienda, por
-parte de este Banco y, por parte de las entidades autorizadas para el
-trámite del subsidio. El máximo de estos costos será del uno por ciento
-(1%) de las sumas colocadas anualmente por el Fondo.
-( Así reformado por el artículo 1 de la ley No. 7208 de 21 de noviembre
-de 1990 ).
+Artículo 49.- El Banco establecerá los costos administrativos necesarios, los cuales serán cargados al Fondo de Subsidio para la Vivienda tanto por este Banco como por las entidades autorizadas para el trámite del subsidio. Estos costos serán por un máximo de un tres por ciento (3%) de las sumas colocadas anualmente por el Fondo. De la suma anterior, un punto porcentual será transferido a las entidades autorizadas. Los dos puntos porcentuales restantes serán destinados al Banco Hipotecario de la Vivienda, el cual no podrá utilizar más de un cincuenta por ciento (50%) de este monto para gastos en las partidas presupuestarias de "Servicios Personales", "Gastos de Viaje en el Exterior", "Transporte de o para el Exterior" ni "Consultorías, Información y Publicidad.
+(Así reformado por artículo único de la Ley 8351 de 9 de abril de 2003)
