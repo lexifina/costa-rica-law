@@ -1,0 +1,2 @@
+ARTICULO VIGESIMOTERCERO: En caso de caducidad o renuncia de una licencia por cualquier motivo, la Municipalidad procederá a la adjudicación de esa licencia. Por medio de sorteo entre las solicitudes pendientes de licencia, por falta de lugares comerciales para el ejercicio de la actividad.
+Aquellos concesionarios físicos o jurídicos que pierdan su patente por la infracción contemplada en el artículo 5°, inciso i) quedan inhabilitadas para obtener otra patente.

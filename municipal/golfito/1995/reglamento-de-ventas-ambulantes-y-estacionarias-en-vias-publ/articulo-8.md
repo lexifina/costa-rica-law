@@ -1,0 +1,1 @@
+ARTICULO OCTAVO: Las ventas ambulantes y estacionarias funcionarán en las vías públicas y existirán zonas prohibidas como las contenidas en otras leyes y aquellos lugares referentes a la seguridad de persona, estacionamiento y tránsito de vehículos, sistemas contra incendios, controles de energía eléctrica o agua potable y contemplados en otros artículos de este reglamento.

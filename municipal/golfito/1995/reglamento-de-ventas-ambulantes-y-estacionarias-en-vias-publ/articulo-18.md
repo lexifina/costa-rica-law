@@ -1,0 +1,1 @@
+ARTICULO DECIMOOCTAVO: Los vendedores ambulantes no podrán permanecer estacionados en un mismo sitio, salvo el tiempo necesario en el sitio demarcado que lo requiera al cliente. En cuanto a las demás regulaciones se exigen los mismos requisitos para los estacionarios. La licencia definirá la ruta comercial a que le da derecho la misma.

@@ -1,0 +1,1 @@
+ARTICULO VIGESIMONOVENO: Las resoluciones de la Municipalidad que ordene la caducidad de la licencia por falta de pago tendrán los recursos que se establecen en el Código Municipal. Las demás resoluciones se regirán por lo que dispone el artículo 179 del Código Municipal.

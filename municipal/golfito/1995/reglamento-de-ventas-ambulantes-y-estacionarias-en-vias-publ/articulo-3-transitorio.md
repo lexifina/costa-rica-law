@@ -1,0 +1,1 @@
+3.—Se extenderá una licencia por seis meses a partir de la publicación del presente reglamento, siempre y cuando hayan cumplido con los requisitos del mismo, que vencerá automáticamente si a esta fecha el vendedor no cumple con lo dispuesto en el artículo 14 del presente reglamento.

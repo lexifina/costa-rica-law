@@ -1,0 +1,1 @@
+ARTICULO DECIMOSEXTO: El Instituto Costarricense de Electricidad, Junta Administradora Acueducto Rural y el Instituto Costarricense de Acueductos y Alcantarillados, no podrán suministrar fuerza eléctrica ni agua a ningún puesto estacionario, salvo con el visto bueno de la Municipalidad.

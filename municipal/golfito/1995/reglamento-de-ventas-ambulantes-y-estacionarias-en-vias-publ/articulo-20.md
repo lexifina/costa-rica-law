@@ -1,0 +1,1 @@
+ARTICULO VIGÉSIMO: Queda terminantemente prohibido el traslado de un puesto estacionario a cualquier otro sitio sin la autorización previa de la Municipalidad. Igualmente se prohíbe el uso de alta voces o cualquier otro equipo sonoro, con el fin de anunciar o atraer la atención de público para que adquiera sus productos.
