@@ -14,3 +14,4 @@ Reglamento para las Juntas Administrativas de las Instalaciones Deportivas del C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-08-11 | la propia norma |
+| 2 | 1999-01-26 | Reglamento municipal 50 (1999-01-26) |

@@ -1,3 +1,4 @@
 CAPITULO II
 De la Junta Administrativa
-Artículo 5°-La Junta Administrativa, estará integrada por cinco miembros propietarios y tres suplentes, quienes reemplazarán a los propietarios según el orden de su nombramiento. Los suplentes que no sustituyan a un propietario, tienen tan sólo derecho a voz. Los miembros de la Junta Administrativa serán electos por el Concejo Municipal, mediante temas que propondrán las Asociaciones Deportivas y de Desarrollo legalmente constituidas en el Cantón, por invitación pública del Concejo Municipal.
+Artículo 5°-La Junta estará integrada por cinco miembros de conducta intachable y serán electos dos por el Concejo Municipal, dos por el Comité Cantonal de Deportes de Tibás y uno por el Instituto Costarricense del Deporte y la Recreación.
+(Así reformado mediante acuerdo N° III tomado en la sesión N° 50 del 26 de enero de 1999).

@@ -1,1 +1,2 @@
-Artículo 2°-Créase una Junta Administrativa para cada una de las instalaciones deportivas municipales de Tibás, donde previamente estaban funcionando, cuyas funciones y atribuciones serán las que en este Reglamento se les asignen, nombradas directamente por el Concejo Municipal.
+Artículo 2°-Créase un Junta Administrativa para cada una de las instalaciones deportivas municipales del Cantón de Tibás, cuyas funciones son las que le asigne este Reglamento.
+(Así reformado acuerdo N° III tomado en la sesión N° 50 del 26 de enero de 1999).
