@@ -1,0 +1,2 @@
+ARTICULO 16
+Los privilegios e inmunidades se conceden a los miembros del personal exclusivamente en interés del CIME. El Director del CIME tiene el derecho y el deber de renunciar a la inmunidad de cualquier miembro del personal en cualquier caso en que, según su propio criterio, dicha inmunidad impedirá el curso de la justicia y cuando dicha renuncia pueda hacerse sin que se perjudiquen los intereses del CIME.
