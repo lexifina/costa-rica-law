@@ -1,0 +1,1 @@
+Transitorio I.- La Dirección General de Planeamiento y Desarrollo Educativo y la Dirección de Educación Técnica del Ministerio de Educación Pública implementará los aspectos administrativos y técnicos que en el campo educativo fueren necesarios para ejecutar la fusión que ordena el presente decreto.

@@ -1,0 +1,1 @@
+Transitorio II.- Las previsiones presupuestarias así como las subvenciones que corresponden a las instituciones educativas que se refunden, se aplicarán o se girarán a favor del Instituto Técnico Agropecuario de Corredores.

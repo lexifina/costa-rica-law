@@ -1,0 +1,1 @@
+Transitorio V.- La Dirección General de Planeamiento y Desarrollo Educativo en coordinación con la Dirección general de Educación Técnica, formularán a la nueva Junta Administrativa, con el carácter de recomendación, una política de inversiones de los recursos económicos así como del mejor uso de los bienes que recibe por traspaso.

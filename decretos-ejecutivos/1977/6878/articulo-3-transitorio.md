@@ -1,0 +1,1 @@
+Transitorio III.- Mientras se construye el nuevo edificio que albergará al Instituto, el Ministerio de Educación Pública, mediante instructivo, regulará los aspectos de administración que fueren necesarios para la buena marcha de la institución.
