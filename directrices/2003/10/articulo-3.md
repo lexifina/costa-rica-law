@@ -1,0 +1,1 @@
+Artículo 3º—En todo caso en que se encuentre afectada una persona trabajadora, independientemente de la naturaleza de la posible infracción, la Dirección Nacional e Inspección General Trabajo investigará que no se trate de un caso de discriminación laboral.
