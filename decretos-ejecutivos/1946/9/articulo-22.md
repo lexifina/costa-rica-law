@@ -1,1 +1,0 @@
-Articulo 22.—Para toda clase de funciones y espectáculos serán reservados los siguientes palcos y puestos a la orden de los funcionarios que se indican: Palco Oficial, señor Presidente de la República; Palco Alto Derecha No. 11, señor Secretaria de Educación; Palco Alto Izquierda No. 11, señor Secretario de Fomento; y Palco Alto Izquierda No. 8, señor Gobernador de la Provincia,

@@ -1,1 +1,0 @@
-Artículo 9°—Toda resolución del Comité, para que tenga validez, debe ser tomada en sesión, y aprobada en votación secreta por tres o más de sus miembros. El acta correspondiente será firmada por el Presidente y el Secretario, o por los vocales que los hayan reemplazado.

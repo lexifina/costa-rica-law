@@ -1,2 +1,0 @@
-Articulo 25.—Transitorio: el presente Reglamento entrará en vigencia el primero de enero de mil novecientos cuarenta y siete. El Administrador del Teatro dictará desde ahora, y con aprobación de la Secretaria de Educación Pública, un reglamento interno que regule las labores de sus subalternos y que facilite el cumplimiento de sus funciones.
-Dado en la Casa Presidencial.—San José, a los diecinueve días del mes de noviembre de mil novecientos cuarenta y seis

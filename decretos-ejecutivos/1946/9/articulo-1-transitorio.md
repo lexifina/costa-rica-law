@@ -1,2 +1,0 @@
-Transitorio: el presente Reglamento entrará en vigencia el primero de enero de mil novecientos cuarenta y siete. El Administrador del Teatro dictará desde ahora, y con aprobación de la Secretaria de Educación Pública, un reglamento interno que regule las labores de sus subalternos y que facilite el cumplimiento de sus funciones.
-Nota: El presente artículo aparece en el Decreto No. 9 de 19 de noviembre de 1946 como artículo 25, pero como el mismo indica que es un transitorio es posible encontrar el texto del mismo en el artículo 25 y en el transitorio I a la vez.

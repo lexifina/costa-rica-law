@@ -1,1 +1,0 @@
-Articulo 2°—El Teatro sólo será facilitado a Compañías de Opera, Drama, Comedia y Operetas, cuando sean precedidas de Iegítima fama, y para efectuar Conciertos, Veladas de Beneficencia y actos de carácter cultural. Cuando se tratare de un espectáculo gratuito, conferencias o exposiciones, deberá extenderse obligatoriamente invitación persona! para los asistentes.

@@ -1,1 +1,0 @@
-Artículo 15.—La empresa, compañía o personal que solicitare el Teatro, deberá formular su solicitud en papel sellado de la novena clase, indicando el espectáculo de que se trata y término a que se contrae la solicitud.

@@ -1,1 +1,0 @@
-Articulo 14.—Se obligará a su vez, e! empresario, cuando el Teatro le fuere cedido gratuitamente y para más de tres representaciones, a dar una función gratuita que explotará un centro educacional o de beneficencia, a indicación de la Secretaria de Educación. La fecha de tal función se indicará en el contrato respectivo.

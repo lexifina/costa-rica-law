@@ -1,1 +1,0 @@
-Articulo 21.—Caso de que haya varios interesados en explotar la cantina durante determinado periodo, el Comité la cederá a quien ofrezca el precio mas alto, escogiéndose, en igualdad de circunstancias, al empresario a quien se hubiese cedido el Teatro, En todo caso quien la explote debe cubrir los impuestos legales y proveerse de la respectiva patente.

@@ -1,1 +1,0 @@
-Articulo 23.—Tendrán derecho a dos localidades de cortesía cada uno de los miembros del Comité de Vigilancia, d Administrador y los Censores primero y segundo de espectáculos públicos y el Oficial Mayor de Educación, y una cada uno de los Comandantes Primero y Segundo de Policía.

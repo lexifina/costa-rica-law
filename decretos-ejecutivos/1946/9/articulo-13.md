@@ -1,1 +1,0 @@
-Artículo 13.—Quien solicitare e! Teatro, fuere empresario o no, debe ser persona de reconocida solvencia moral; .garantizará plenamente las obligaciones que contraiga y depositará la suma de dinero que señale el Comité de Vigilancia para responder a los deterioros que el Teatro o sus accesorios puedan sufrir durante el tiempo de la concesión.
