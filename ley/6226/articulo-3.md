@@ -1,0 +1,1 @@
+Artículo 3°-Dado el caso de que las actividades del Centro Agrícola Cantonal de Turrialba desaparezcan o termine sus funciones, el inmueble que se le traspasa revertirá de nuevo al patrimonio del Estado.

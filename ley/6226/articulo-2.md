@@ -1,0 +1,1 @@
+Artículo 2°-EI inmueble relacionado será destinado por el Centro Agrícola Cantonal de Turrialba para continuar en él las actividades agropecuarias que de conformidad con el mismo convenio citado en e! artículo anterior ha realizado, y, en general, todas aquellas que son propias del Centro Agrícola.
