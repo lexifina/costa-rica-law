@@ -1,0 +1,1 @@
+Art. 7°-A fin de cada año económico, el Inspector General de Hacienda hará entrega á la Contaduría Mayor de todas las boletas que se le hubieren remitido, formando con ellas legajos separados, correspondientes las distintas Receptoras que haya establecidas.

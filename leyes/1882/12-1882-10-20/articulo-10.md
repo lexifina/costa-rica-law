@@ -1,0 +1,1 @@
+Art. 10. -En toda boleta de Subvención y en toda licencia municipal, se expresará el lugar donde ca a destazarse la res, considerándose clandestina la matanza si se verificare en lugar distinto del señalado.
