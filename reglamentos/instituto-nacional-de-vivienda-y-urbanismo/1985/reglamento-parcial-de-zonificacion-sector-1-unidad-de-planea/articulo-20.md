@@ -1,3 +1,0 @@
-Articulo 20.—Aplicación de normas conjuntamente:
-En los casos de este reglamento en que se menciona que las normas deben aprobarse conjuntamente por la Dirección de Urbanismo y la municipalidad correspondiente deberá convocar la Dirección a éstas cuando corresponda para emitir una aclaración conjunta.
-En caso de surgir discrepancias de criterio entre la Dirección de Urbanismo y la Municipalidad correspondiente en cuanto a la aplicación de las normas, se aplicarán las normas del Reglamento de Construcciones o en su caso el Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones.
