@@ -1,0 +1,1 @@
+Artículo 3º—Administración de otras comisiones de confianza. El Banco ofrecerá a los clientes, servicios para la administración de otras comisiones de confianza (mandatos de administración e inversión).

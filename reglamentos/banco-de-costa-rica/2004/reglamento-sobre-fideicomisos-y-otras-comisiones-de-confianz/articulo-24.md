@@ -1,0 +1,1 @@
+Artículo 24.—Apertura de otros servicios. El Banco se encuentra facultado para integrar los productos y servicios (apertura de cuentas corrientes y ahorros) de la Institución, dentro del contrato de fideicomiso, con el objetivo de brindar un servicio ágil y oportuno a los fideicomitentes. El servicio de cuentas corrientes se dará con la condición especial de no giro de cheques.

@@ -1,0 +1,1 @@
+Artículo 10.—La custodia de los bienes. La custodia de los bienes fideicometidos se realizará de acuerdo con lo establecido para tal efecto en el capítulo III Custodia de Valores de la Ley Reguladora del Mercado de Valores.

@@ -1,0 +1,1 @@
+Artículo 21.—Prescripción de un documento. Es responsabilidad del Banco revisar y evitar la prescripción de los documentos de crédito que garantizan los fideicomisos, excepto que se reciban instrucciones escritas del fideicomitente o que se encuentre así estipulado en el contrato el no seguimiento de prescripción.

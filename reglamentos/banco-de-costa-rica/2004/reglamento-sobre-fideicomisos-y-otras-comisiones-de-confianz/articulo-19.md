@@ -1,0 +1,1 @@
+Artículo 19.—Gestiones de cobro administrativo. El Banco brindará el servicio de administración, seguimiento y control de las carteras de créditos hipotecarios al cobro y procederá de conformidad con lo establecido en el contrato de fideicomiso, en lo referente al cobro judicial respetivo.

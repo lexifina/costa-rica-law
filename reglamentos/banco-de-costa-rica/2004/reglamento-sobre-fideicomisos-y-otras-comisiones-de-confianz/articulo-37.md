@@ -1,0 +1,1 @@
+Artículo 37.—Modificaciones al reglamento. El reglamento podrá ser modificado cuando el Banco como fiduciario lo crea necesario y oportuno, para una mejor administración fiduciaria, en cumplimiento con lo establecido por la Institución al respecto.

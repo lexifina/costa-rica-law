@@ -1,0 +1,1 @@
+Artículo 36.—Hechos relevantes. Es obligación del Banco, comunicar a los fideicomitentes, cualquier hecho relevante que afecte los valores que conforman la cartera del fideicomiso, esto dentro del plazo de veinticuatro horas, posterior a que éste tenga conocimiento de lo ocurrido.

@@ -1,0 +1,1 @@
+Artículo 17.—Póliza de incendio y vida. Todo fideicomiso de vivienda deberá estar respaldado por la póliza respectiva, de acuerdo con lo establecido en las cláusulas contractuales, políticas, reglamentos y disposiciones de crédito. El Banco deberá administrar dicha póliza de conformidad con las Disposiciones Administrativas de la Comercializadora de Seguros.

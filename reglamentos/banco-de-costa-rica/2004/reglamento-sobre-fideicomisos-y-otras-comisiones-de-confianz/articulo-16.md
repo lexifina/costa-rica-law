@@ -1,0 +1,1 @@
+Artículo 16.—Administración de bienes inmuebles. El Banco mantendrá en las bóvedas de seguridad, las escrituras o documentos que respaldan el fondo fiduciario, con el detalle de las citas de inscripción del registro de la propiedad, dirección exacta de ésta y todos los pormenores especificados en el contrato fiduciario.
