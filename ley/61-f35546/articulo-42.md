@@ -1,0 +1,1 @@
+Artículo 42.-Es a cargo de la Directora la llave de la puerta de los carros, también exterior, la cual debe permanecer cerrada y abrirse tan solo para actos a que está destinada; m s nunca antes de las seis de la mañana, ni después de las cinco de la tarde, ni sin apostar en ella un centinela.

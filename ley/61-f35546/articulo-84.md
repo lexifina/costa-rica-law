@@ -1,0 +1,1 @@
+Artículo 84.-A las arrestadas y presas no incomunicadas, y a las declaradas acreedoras a mejor tratamiento, puede la Directora permitirles recibir en el departamento interior, desde las nueve de la mañana hasta las doce, en días de asueto, las visitas de sus parientes y amigos a presencia de la misma Directora.

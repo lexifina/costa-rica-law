@@ -1,0 +1,1 @@
+Artículo 73.-Entre las reas condenadas a reclusión obras públicas o presidio, la Directora escoger un número suficiente para que desempeñen alternativamente los oficios de cocina, aseo y arreglo de la casa, prefiriendo, para tales ocupaciones, a las que hubieren de permanecer menos tiempo en el establecimiento. - Respecto de estas faenas no hay día de asueto.

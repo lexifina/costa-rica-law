@@ -1,0 +1,1 @@
+Artículo 75.-Cuando, por no poder la Directora, enseñar algún oficio que convenga establecer o perfeccionar en la casa, ni haber entre las reas quien lo dirija, fuese necesario contratar su enseñanza, el Gobernador lo verificar con persona capaz y honrada, sometiendo el contrato al Poder Ejecutivo, sin cuya aprobación no ser valedero.

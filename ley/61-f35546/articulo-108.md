@@ -1,0 +1,1 @@
+Artículo 108.-Concluida la visacion de los dos primeros por la Corte Suprema de Justicia y cancelados los asientos de detención, prisión y condena de los tres por los correspondientes de soltura, se remitirán con el índice y legajos respectivos al juzgado del crimen de ‚esta Provincia, en cuyo archivo deben conservarse.

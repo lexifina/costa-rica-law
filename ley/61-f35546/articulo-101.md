@@ -1,0 +1,1 @@
+Artículo 101.-La Directora hará los contratos, sin alterar los precios fijados por la junta: dar a los interesados recibo de los objetos que llevasen a la casa con el fin de que ejerza sobre ellos la obra o trabajo contratado, y recoger dichos recibos cuando se cancelen por la devolución respectiva.

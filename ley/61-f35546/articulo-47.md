@@ -1,0 +1,1 @@
+Artículo 47.-Deben hacerse en todos los cuartos del edificio con la frecuencia que se estado o las circunstancias lo demanden, las fumigaciones que correspondan, usando para ello de aquellas sustancias menos costosas aconsejadas por la Higiene.
