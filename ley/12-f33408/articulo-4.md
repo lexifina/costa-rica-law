@@ -1,0 +1,1 @@
+ARTÍCULO 4°.-Pertenecen la segunda clase: 1°.-Todas las de guerra; 2§.-Todas las de fuego, las cortantes, las punzantes y las contundentes. Exceptúanse la cuchilla de hoja que no exceda de tres pulgadas y los bastones de uso común.
