@@ -13,3 +13,4 @@ CCSS: Modifica Art 26 y 27 Reglamento del Expediente Salud.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-27 | la propia norma |
+| 2 | 2000-03-27 | Ley 7 |
