@@ -1,0 +1,1 @@
+Artículo 16.- El ministerio de Educación Pública asignará los fondos necesarios para el normal desarrollo de las funciones del CEMEC y podrá gestionar y aprovechar recursos que otras personas e instituciones destinen para el desarrollo de sus proyectos.

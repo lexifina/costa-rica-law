@@ -1,0 +1,1 @@
+Transitorio III.- EL personal que presta sus servicios en el Centro de Elaboración de Material Didáctico, creado en virtud del Decreto Ejecutivo número 2040 del 25 de octubre de 1971, será destacado por períodos anuales renovables en el CEMEC.

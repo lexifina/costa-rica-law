@@ -1,0 +1,1 @@
+Artículo 11.- Corresponde al Comité Coordinador establecer las líneas de coordinación y evaluación que fueren necesarias para la más eficaz ejecución de las políticas de mejoramiento en la enseñanza de las ciencias, así como para la vinculación funcional entre el CEMEC y el cuerpo de Asesores de la Dirección General de Educación Académica.

@@ -1,0 +1,1 @@
+Transitorio II.- Además del personal que designe la Dirección de Educación Académica, el ministro de Educación Pública designará a dieciséis profesores en servicio que se hayan destacado en su ejercicio profesional, asignándoles el sobresueldo que se determine, para que presten sus servicios al CEMEC.

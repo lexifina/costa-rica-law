@@ -1,0 +1,1 @@
+Artículo 13.- De conformidad con las necesidades que se determinen, el CEMEC creará los Núcleos Regionales compuestos cada uno por un número adecuado de educadores en servicio, de la circunscripción territorial correspondiente.
