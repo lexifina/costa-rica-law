@@ -1,0 +1,1 @@
+Artículo 9º—El Comité Cantonal proporcionará un formulario que consigne estos datos, del cual la organización tendrá una copia con el recibido respectivo. Corroborada la información el Comité Cantonal resolverá y convocará a los interesados.

@@ -1,0 +1,1 @@
+Artículo 22.—Durante la segunda sesión ordinaria está el último sábado del mes, se abrirá un espacio para la atención del público en general. Con el fin que estos tengan un espacio para emitir opinión sobre asuntos que competan al Comité.

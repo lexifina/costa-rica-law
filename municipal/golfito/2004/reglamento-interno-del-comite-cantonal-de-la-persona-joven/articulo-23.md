@@ -1,0 +1,1 @@
+Artículo 23.—Los acuerdos tomados por este Comité serán tomados por simple mayoría de votos, y se tendrán por firmes. Si hubiera empate se someterá de nuevo a votación, y si persiste se decidirá por medio de la suerte.

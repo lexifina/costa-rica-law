@@ -1,0 +1,1 @@
+Artículo 18.—El Comité Cantonal tendrá ámbito como mínimo en las instancias locales, una vez constituido legalmente. Sus miembros fungirán en el puesto por el período que la "Ley General de la Persona Joven" establece. Y no devengarán dietas o remuneración alguna.

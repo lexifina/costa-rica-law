@@ -1,0 +1,1 @@
+Artículo 25.—El Comité Cantonal nombrará de su seno por mayoría simple de votos un representante propietario y un suplente para la Asamblea Nacional de la Red Consultiva de la Persona Joven, quien fungirá en el puesto por dos años y podrá ser reelecto por única vez, según lo establece la "Ley General de la Persona Joven".

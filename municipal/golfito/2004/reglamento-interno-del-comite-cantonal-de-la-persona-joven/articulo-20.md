@@ -1,0 +1,1 @@
+Artículo 20.—Las sesiones deberán iniciarse dentro de los 15 minutos siguientes a la hora señalada, transcurrido este tiempo se dará inicio a la sesión. Si no están presentes al menos 4 miembros del Comité Cantonal no se podrá iniciar la sesión.

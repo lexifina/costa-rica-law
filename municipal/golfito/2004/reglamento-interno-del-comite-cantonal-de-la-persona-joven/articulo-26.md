@@ -1,0 +1,1 @@
+Artículo 26.—La municipalidad administrará los recursos con destino específico a que se hace referencia el artículo 26 de la Ley General de la Persona Joven, girados por el Concejo Nacional de la Persona Joven para el financiamiento de los Comités Cantonales de la Persona Joven".

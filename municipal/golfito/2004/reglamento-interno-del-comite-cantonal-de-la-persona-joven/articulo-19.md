@@ -1,0 +1,1 @@
+Artículo 19.—El Comité cantonal de la Persona Joven sesionará ordinariamente como mínimo dos veces al mes, durante los segundos y últimos sábados del mes, utilizando como sede las instalaciones de la Municipalidad de Golfito. Y sesionará extraordinariamente las veces que considere necesario en lugar y hora que así se defina por mayoría de los presentes.
