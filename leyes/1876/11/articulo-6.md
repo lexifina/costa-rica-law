@@ -1,0 +1,1 @@
+ARTICULO 6°. -No podrá el Fiscal de Hacienda percibir por sí los derechos cuya cobranza se le encargue, sino que en la Oficina del Registro deber n satisfacerse al recaudador, de quien el interesado recibir la constancia correspondiente.

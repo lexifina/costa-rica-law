@@ -1,0 +1,1 @@
+ARTICULO 3°. -En cuanto los derechos que deban cobrarse por manifestaciones del Registro, anotaciones marginales, retiros y certificaciones, el mismo Oficial 1° llevar un libro en el cual se tomara conocimiento de ellos, y este servir de contraste la cuenta del recaudador; cuyo efecto dicho libro ser pasado cada fin de año la Contaduría Mayor.
