@@ -1,0 +1,1 @@
+Artículo 72.—Los funcionarios que deban viajar en el ejercicio de sus funciones tendrá derecho a gastos de transporte y viáticos consistentes en pasajes, alimentación y hospedaje, los cuales serán otorgados según el Reglamento respectivo. Los viáticos no se considerarán salario para ningún efecto legal.

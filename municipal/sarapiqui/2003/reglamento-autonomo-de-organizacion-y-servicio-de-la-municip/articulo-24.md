@@ -1,0 +1,1 @@
+Artículo 24.—Cuando resulte necesario realizar un concurso por oposición, la Oficina de Personal publicará su apertura dentro de los quince días naturales posteriores a aquél en que se produjo la vacante.

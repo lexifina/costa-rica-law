@@ -1,0 +1,1 @@
+Transitorio.—A todos aquellos trabajadores que al momento de entrar en vigencia este Reglamento tengan más de dos períodos de vacaciones sin disfrutar, deberá la Oficina de Personal otorgárselas en un plazo no mayor de tres meses.

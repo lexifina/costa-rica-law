@@ -1,0 +1,1 @@
+Artículo 57.—Todo trabajador está en la ineludible obligación de dar aviso a la Oficina de Personal o al Jefe inmediato o Alcalde, de cualquier accidente que haya sufrido, dentro del día posterior al accidente.

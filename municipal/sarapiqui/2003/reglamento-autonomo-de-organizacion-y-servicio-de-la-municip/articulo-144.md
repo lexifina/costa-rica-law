@@ -1,0 +1,1 @@
+Artículo 144.—La Oficina de Personal comunicará a la Dirección e Inspección General de Trabajo del Ministerio de Trabajo y Seguridad Social, la existencia de la denuncia, y la conclusión a la que se llegó, una vez finalizado el procedimiento.

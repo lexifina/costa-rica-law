@@ -1,0 +1,1 @@
+Artículo 62.—En ningún caso de incapacidad para trabajar por enfermedad, maternidad o riesgo de trabajo, el monto del subsidio que pague la respectiva institución aseguradora sumado al que pague la municipalidad podrá exceder el monto del salario del servidor.

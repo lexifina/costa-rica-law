@@ -1,0 +1,1 @@
+Artículo 29.—La Oficina de Personal confeccionará un prontuario a efecto de llevar un registro expedito de todos aquellos datos y registros derivados de la relación de servicios en asuntos tales como: asistencia, evaluación del desempeño, aspectos disciplinarios y calidades del funcionario.

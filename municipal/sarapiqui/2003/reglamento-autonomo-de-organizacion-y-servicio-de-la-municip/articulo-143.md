@@ -1,0 +1,4 @@
+Artículo 143.—Concluida la audiencia de recepción de la prueba testimonial, el Jefe de personal, el Alcalde o el Concejo Municipal, según sea el caso, resolverá en un plazo máximo de ocho días hábiles, la existencia o no de la falta denunciada. En caso de comprobarse ésta, rendirá un informe a la Oficina de personal recomendando que la falta sea sancionada de la siguiente forma:
+a. Si se trata de un trabajador, en aplicación del artículo 25 de la Ley N° 7476, se le sancionará con amonestación, suspensión del trabajo sin goce de salario o despido sin responsabilidad patronal, según la gravedad de la falta.
+b. Si se trata del Alcalde, éstos serán responsables personalmente por sus actuaciones, respecto de las cuales deberán responder en la vía judicial, una vez que la gestión se haya presentado ante esa Sede.
+De no probarse la falta, se ordenará el archivo del expediente.

@@ -1,0 +1,1 @@
+Artículo 31.—La información contenida en el prontuario, así como en el expediente personal, es de carácter confidencial y sólo tendrá acceso a ella los funcionarios de la Municipalidad que lo requieran para labores propias del cargo, el servidor y su representante autorizado.

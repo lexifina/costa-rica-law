@@ -1,0 +1,1 @@
+Artículo 15.—Corresponde al Alcalde Municipal realizar los actos de nombramiento, promoción y remoción de los empleados municipales. Se exceptúa de lo anterior los empleados que dependan directamente del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 59.—La municipalidad deberá acatar las disposiciones que en materia de salud ocupacional establece la normativa vigente, especialmente en cuanto al suministro de implementos, herramientas y equipo de protección a los trabajadores.

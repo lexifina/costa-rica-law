@@ -1,0 +1,1 @@
+Artículo 30.—Es deber de las unidades administrativas de las dependencias de la municipalidad, enviar copia al expediente personal de los funcionarios, de aquellas gestiones que dentro de su ámbito de competencia, puedan generar actos jurídico-administrativos.

@@ -1,0 +1,1 @@
+Artículo 134.—La municipalidad debe propiciar las facilidades necesarias con el fin de que todos los servidores, sin discriminación alguna, puedan capacitarse y superarse en el desempeño de sus puestos.

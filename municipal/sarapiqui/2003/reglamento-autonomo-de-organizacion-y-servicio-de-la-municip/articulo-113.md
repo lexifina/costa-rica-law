@@ -1,0 +1,3 @@
+Artículo 113.—La suspensión del trabajo se aplicará hasta por quince días sin goce de salario. Para aplicar dicha sanción se debe seguir en lo conducente el procedimiento que establece el numeral 150 del Código Municipal. Dicha sanción se aplicará en los siguientes casos:
+a. Cuando el trabajador después de haber sido amonestado por escrito, incurra de nuevo en la falta que motivó la amonestación.
+b. Cuando el trabajador viole alguna de las prohibiciones señaladas en el artículo 107 de este Reglamento, después de haber sido amonestado por escrito, salvo que la causa diera mérito para una sanción mayor o estuviera sancionada por otra disposición de este Reglamento.

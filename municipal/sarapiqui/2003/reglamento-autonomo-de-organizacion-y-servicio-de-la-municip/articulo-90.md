@@ -1,0 +1,32 @@
+CAPÍTULO XIX
+De las obligaciones de los trabajadores
+Artículo 90.—Conforme a lo dispuesto en los Códigos de Trabajo, Municipal, leyes conexas y este Reglamento, son obligaciones de los trabajadores:
+1. Prestar los servicios personalmente, en forma regular y continua, de acuerdo con el respectivo contrato o relación laboral, dentro de la jornada de trabajo establecida.
+2. Ejecutar el trabajo con intensidad, cuidado, dedicación y esmero apropiados, en la forma, tiempo y lugar convenidos.
+3. Desempeñar sus funciones bajo la dirección directa o delegada del patrono, a cuya autoridad estará sujeto en todo lo concerniente al trabajo y ejecutar las labores que se le encomienden, dentro de la jornada de trabajo, siempre y cuando éstas sean compatibles con sus aptitudes, estado, formación y condición.
+4. Respetar estrictamente el orden jerárquico establecido y canalizar con riguroso apego a éste, toda solicitud, reclamo o queja que estime pertinente presentar, salvo en caso de conflicto grave con su superior jerárquico, en cuya situación deberá acudir al superior inmediato de éste.
+5. Obedecer las órdenes, instrucciones o circulares de sus superiores jerárquicos sin perjuicio de lo dispuesto en los artículos 107, numeral 2) 108, 109 y 110 de la Ley General de la Administración Pública.
+6. Conducirse en forma correcta, decorosa y disciplinada durante la jornada laboral y aun fuera de ésta mientras se encuentre dentro de las instalaciones de la Municipalidad o en giras de trabajo, igualmente cuando esté fuera de la institución y porte uniforme o emblemas que lo identifiquen con ésta.
+7. Vestir correctamente durante la jornada de trabajo. En aquellos casos en que la municipalidad proporcione uniformes, será absolutamente obligatorio su uso durante la jornada de trabajo.
+8. Portar su carné de identificación en un lugar visible de su vestimenta, dentro del lugar de trabajo o fuera de éste, cuando por el cumplimiento de las funciones propias de su cargo requiera identificarse.
+9. Atender con diligencia, espíritu de servicio, corrección y cortesía al público que acuda a las oficinas de la municipalidad y guardar a éste la consideración y respeto debidos de modo que no se origine queja justificada por el mal servicio, maltrato o falta de atención.
+10. Guardar a los representantes institucionales y a sus compañeros de trabajo la consideración y el respeto debidos de modo que no se origine queja por maltrato o irrespeto, observando en todo momento buenas costumbres y disciplina.
+11. Conservar en buen estado los útiles, mobiliario, herramientas, equipos, maquinaria y vehículos que se le faciliten para la prestación del servicio, en el entendido que no será responsable por su desgaste o deterioro normal, ni por daños debidos a caso fortuito o fuerza mayor, sin perjuicio de la obligación de dar aviso inmediato a su superior jerárquico respecto de cualquier avería o menoscabo que sufran dichos bienes.
+12. Debe aceptar y mantener actualizados los vales por equipos, herramientas, libros, etc.
+13. Restituir a la municipalidad los materiales no usados y conservar en buen estado los instrumentos y útiles que se le faciliten para el trabajo.
+14. Responder ante la municipalidad por todos los daños y perjuicios que le cause a ésta por culpa o dolo, aunque no se haya producido daño alguno a tercero, en los términos establecidos en el Título Sétimo del Libro Primero de la Ley General de la Administración Pública.
+15. Informar a su jefe inmediato de cualquier daño, imprudencia, error, deficiencia, anomalía o falta que descubra en el cumplimiento de sus funciones o con ocasión de estas y/o al encargado de la Oficina de Personal, de todo daño causado a los bienes o a los intereses de la municipalidad, ya sea cometido por funcionarios o cualquier persona ajena a la institución.
+16. Guardar absoluta discreción sobre los asuntos atinentes a su trabajo que, por su naturaleza privada o en virtud de instrucciones de sus superiores jerárquicos lo requieran, o cuya divulgación pueda causar perjuicio a la municipalidad.
+17. Ayudar a sus compañeros en las labores que se estén ejecutando cuando las circunstancias lo demanden o cuando se lo solicite su superior jerárquico.
+18. Efectuar personalmente su marca de control de asistencia a labores o cumplir con cualquier otro sistema establecido al efecto.
+19. Rendir dentro del plazo establecido los informes que le sean solicitados por su superior jerárquico.
+20. Declarar cuando fuere citado como testigo en un procedimiento disciplinario administrativo, evacuar y/o rendir los informes que en estos le sean solicitados por el encargado de la Oficina de Personal. Asimismo deberá apersonarse, en procesos judiciales en el que se defiendan los derechos e intereses de la municipalidad.
+21. Observar rigurosamente las medidas preventivas que acuerden las autoridades competentes en materia de salud ocupacional; denunciar toda situación susceptible de provocar riesgos laborales y dar inmediato aviso a su superior jerárquico de cualquier accidente de trabajo que sufriera él o alguno de sus compañeros.
+22. Prestar el auxilio necesario en caso de siniestro o riesgo inminente en que los intereses de la municipalidad o algún compañero de trabajo se encuentren en peligro, nada de lo cual dará derecho a remuneración adicional.
+23. Participar con la Comisión y Brigadas de Salud Ocupacional que se establezcan, y prestar a éstas el apoyo y la cooperación necesarios para que cumplan su cometido.
+24. Participar en reuniones, seminarios, cursos y cualesquiera otras actividades que la Administración lo convoque dentro de la jornada laboral o fuera de las mismas, tendientes a su capacitación o a obtener su colaboración en el desarrollo de tareas de interés institucional.
+25. Desarrollar las labores dentro de un ambiente de seriedad y armonía.
+26. No sobrepasar los límites de los descansos entre jornadas destinadas a tomar refrigerios, alimentos y otros.
+27. Asistir a las sesiones del Concejo Municipal cuando este Órgano lo requiera, sin que se tenga derecho a pago de salario extraordinario.
+28. No interferir ni ejecutar labores propias de otra unidad o departamento, sin mediar autorización expresa del Jefe del Departamento donde está destacado.
+29. Informar al encargado de personal de todo cambio de domicilio, estado civil y demás datos que sean necesarios para mantener los respectivos expedientes de personal en orden y al día.

@@ -1,0 +1,1 @@
+Artículo 28.—El expediente de personal deberá contener todos aquellos documentos y datos que sirvan para determinar el historial de la relación de servicios y será responsabilidad de cada funcionario actualizar su expediente.

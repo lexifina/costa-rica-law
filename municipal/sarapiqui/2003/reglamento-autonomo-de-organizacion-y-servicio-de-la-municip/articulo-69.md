@@ -1,0 +1,1 @@
+Artículo 69.—Los funcionarios podrán acogerse al pago por concepto de prohibición, dedicación exclusiva y disponibilidad y tendrán derecho al pago de la carrera profesional de conformidad con la normativa vigente.

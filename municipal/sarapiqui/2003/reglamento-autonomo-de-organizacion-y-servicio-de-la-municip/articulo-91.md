@@ -1,0 +1,11 @@
+Artículo 91.—Quienes conduzcan vehículos de la municipalidad tendrán las siguientes obligaciones:
+a) Mantener al día la licencia de conducir en la categoría correspondiente.
+b) Velar por la limpieza, custodia y conservación del vehículo que se le asigna durante el desempeño de sus funciones, de modo que estos no sufran daños y desperfectos que no sean los debidos a la acción del tiempo y del trabajo normal; responderán por ellos cuando sean ocasionados por culpa o dolo, sin perjuicio de las sanciones disciplinarias aplicables.
+c) Velar por que el vehículo se encuentre en buen estado de funcionamiento y posea las herramientas y accesorios necesarios. Deberá revisar con la regularidad aconsejable el vehículo y reportar a quien corresponda en forma inmediata los desperfectos que note y los ruidos que escuche y que hagan presumir la existencia de un daño.
+d) Rehusar la operación de un vehículo que se encuentre en condiciones de poner en peligro la integridad física del servidor y de terceros, previo diagnóstico del funcionario competente. Deberá comunicar a su jefe inmediato y a la Oficina de Personal, por escrito de las razones que le asisten para negarse.
+e) Abstenerse de ingerir licor o drogas cuando se está en servicio y no manejar bajo los efectos de éste, o a velocidades que dadas las circunstancias puedan motivar accidentes de tránsito.
+f) Impedir la conducción de los vehículos que les han sido encomendados a personas que no estén debidamente autorizadas.
+g) No transportar en los vehículos de la Municipalidad a personas ajenas al servicio.
+h) Limitar el recorrido del vehículo al estrictamente necesario para proporcionar el servicio requerido por la Municipalidad y no ocuparlo en menesteres personales o ajenos en general a éste.
+i) Informar a la jefatura de transportes de todo accidente que le ocurra, suministrando los nombres y apellidos de los ocupantes del vehículo y de las personas que resulten afectados con ocasión de aquel, así como los daños que sufra el vehículo, el lugar y las circunstancias en que se produjo el accidente. Este informe deberá rendirse a más tardar un día después de acaecido el hecho, salvo que debido a las lesiones sufridas, el trabajador estuviere en imposibidad material para hacerlo.
+j) Respetar en todos sus extremos la Ley de Tránsito.

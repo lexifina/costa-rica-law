@@ -1,0 +1,1 @@
+Artículo 85.—Cuando el Alcalde lo estime necesario, los servidores quedarán en la ineludible obligación de trabajar horas extraordinarias hasta el máximo permitido por ley salvo que por razones de índole grave, debidamente comprobada por el jefe inmediato, se les faculte para no hacerlo.
