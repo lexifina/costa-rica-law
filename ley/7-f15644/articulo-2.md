@@ -1,0 +1,1 @@
+Art. 2° -El Secretario de Estado en el Despacho de Gobernación, procederá desde luego á dictar las providencias necesarias, á fin de que á la mayor brevedad posible, se practiquen, con arreglo á la ley, las elecciones para Presidente de l República y Diputados al Congreso Nacional.
