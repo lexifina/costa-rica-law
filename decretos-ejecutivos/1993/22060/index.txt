@@ -11,6 +11,7 @@ articulo-10.md
 articulo-11.md
 articulo-12.md
 articulo-13.md
+articulo-13-bis.md
 articulo-14.md
 articulo-15.md
 articulo-16.md
@@ -53,6 +54,7 @@ articulo-52.md
 articulo-53.md
 articulo-54.md
 articulo-55.md
+articulo-55-bis.md
 articulo-56.md
 articulo-57.md
 articulo-58.md
@@ -89,5 +91,3 @@ articulo-88.md
 articulo-89.md
 articulo-90.md
 articulo-91.md
-articulo-55-bis.md
-articulo-13-bis.md
