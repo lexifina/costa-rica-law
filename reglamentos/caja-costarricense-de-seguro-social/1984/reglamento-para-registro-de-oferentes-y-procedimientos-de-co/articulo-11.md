@@ -1,1 +1,0 @@
-Artículo 11.—El Departamento de Aprovisionamiento comunicará al interesado, la aceptación o rechazo de su solicitud de inscripción en el Registro de Oferentes, en un plazo máximo de cuarenta y cinco días a partir de la fecha en que fue recibida.

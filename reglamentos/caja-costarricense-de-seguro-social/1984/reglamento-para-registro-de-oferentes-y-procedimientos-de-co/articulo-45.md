@@ -1,1 +1,0 @@
-Artículo 45.—Las cotizaciones sobre mercadería que debe ser importada se harán en moneda del país del fabricante, para efectos comparativos y a manera de referencia se indicará también en dólares, de acuerdo con el tipo de cambio oficial que rija en el día de entrega de la cotización.

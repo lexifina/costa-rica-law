@@ -1,1 +1,0 @@
-Artículo 12.—Si la solicitud es aceptada, la inscripción tendrá vigencia por un plazo de cinco años, salvo que deje de ajustarse a las condiciones fijadas en los artículos precedentes, o que surja causa de suspensión, conforme con lo que se dispone en el capítulo XI de este Reglamento.

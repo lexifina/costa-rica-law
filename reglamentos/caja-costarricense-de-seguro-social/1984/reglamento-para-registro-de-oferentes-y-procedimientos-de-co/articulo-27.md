@@ -1,1 +1,0 @@
-Artículo 27.—Los oferentes deben disponer de suficiente número de muestras para suplir cualquier cantidad en el término de diez días hábiles posteriores a la fecha en que se solicita la cantidad de muestras adicionales que fueren necesarias, para efectuar nuevos análisis. Las muestras de materia prima en lo que se refiere a cantidad, serán fijados para cada producto por separado.

@@ -1,1 +1,0 @@
-Artículo 8°—El interesado deberá comprometerse en su solicitud a reponer, en un máximo de sesenta días a partir de su notificación, en los productos que sufran deterioro dentro del plazo máximo de conservación, en condiciones apropiadas de almacenamiento o que hayan sido rechazados por el Departamento de Control de Calidad, y en su defecto, a reconocer a la Caja su valor.

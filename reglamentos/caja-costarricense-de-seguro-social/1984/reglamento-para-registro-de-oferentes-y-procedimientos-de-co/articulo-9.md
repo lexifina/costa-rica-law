@@ -1,1 +1,0 @@
-Artículo 9°—El Sistema Internacional de Medidas (Sistema Métrico Decimal), es de uso obligatorio en las solicitudes y ofertas. (Ley N° 5292 del 9 de agosto de 1973, Decretos Ejecutivos Nos. 3286 de 11 de octubre de 1973 y 4124 de 16 de setiembre de 1974).

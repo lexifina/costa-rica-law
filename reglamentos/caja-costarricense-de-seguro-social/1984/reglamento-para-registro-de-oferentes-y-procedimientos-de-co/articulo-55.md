@@ -1,1 +1,0 @@
-Artículo 55.—El precio será factor importante en la comparación de las ofertas, sin embargo no será por sí solo determinante para la adjudicación, ya que se tomarán en cuenta: el plazo de entrega, los atestados e historial de los oferentes, el cumplimiento de otras adjudicaciones que les haya otorgado la Caja, calidad del producto entregado y garantías ofrecidas.

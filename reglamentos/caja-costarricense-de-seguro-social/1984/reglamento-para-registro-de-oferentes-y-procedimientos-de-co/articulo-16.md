@@ -1,1 +1,0 @@
-Artículo 16.—Queda entendido que al solicitar su inscripción, los participantes aceptan sin reserva alguna todas las cláusulas contenidas en el presente Reglamento, y así deberán manifestarlo en el escrito de su solicitud.

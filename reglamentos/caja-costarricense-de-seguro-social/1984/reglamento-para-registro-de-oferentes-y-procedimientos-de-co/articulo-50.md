@@ -1,1 +1,0 @@
-Artículo 50.—En caso de artículos cuya capacidad deba ajustarse a determinado tipo de empaque o cuya producción pueda ser fluctuante, el oferente podrá cotizar hasta un cinco por ciento más o menos de la cantidad fijada en la solicitud de cotización.

@@ -1,1 +1,0 @@
-Transitorio II.—Durante el año 1984 se aceptarán en forma provisional en el Registro de Oferentes de Productos Químico-Farmacéuticos, todas las solicitudes que cumplan con lo estipulado en el capítulo I de este Reglamento y hasta tanto se puedan completar los análisis de control de calidad de las muestras presentadas.

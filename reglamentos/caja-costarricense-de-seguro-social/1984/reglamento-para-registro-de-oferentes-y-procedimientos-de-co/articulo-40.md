@@ -1,1 +1,0 @@
-Artículo 40.—Las ofertas deberán presentarse en el Departamento de Aprovisionamiento en sobre cerrado, indicándose en él la referencia del pedido. Conforme se reciban, las ofertas se marcarán con el reloj del Departamento, con la hora que señale el sistema de relojes de oficinas centrales. La oferta que se reciba extemporáneamente será descalificada.

@@ -1,4 +1,0 @@
-Artículo 54.—La recomendación de adjudicar será emitida por la Comisión en el término de cinco días hábiles contados a partir del cierre de recepción de las ofertas.
-La Contraloría General de la República autorizará la contratación en el término de cinco días hábiles posteriores al recibo de la recomendación de adjudicar.
-Por cualquiera de los medios que se mencionan en el artículo 38, de este Reglamento se dará aviso de la adjudicación a la firma favorecida, en un plazo máximo de dos días hábiles posteriores al recibo de la confirmación por parte de la Contraloría.
-En casos especiales, la Auditoria de la Caja podrá aprobar la adjudicación, debiéndose informar en las veinticuatro horas siguientes a la Contraloría General de la República, de acuerdo con lo señalado en la ley N° 6914 del 21 de diciembre de 1983, artículo 72, incisos a), b), c) y ch).

@@ -1,1 +1,0 @@
-Artículo 65.—El monto de la garantía de cumplimiento se calcurará de acuerdo con el tipo de cambio dispuesto por la Ley de la Moneda y artículo 61 del Reglamento de la Contratación Administrativa. En ningún caso la Caja reconocerá intereses sobre las garantías depositadas.

@@ -1,2 +1,0 @@
-Artículo 44.—Los oferentes deberán aportar constancias de la Sección de Cobro Administrativo o Sucursales, o copia certificada por notario público de que están al día en el pago de las deudas que tengan con la Institución (ley N° 6914 del 21 de diciembre de 1983).
-De igual modo deberán aportar declaración jurada de que se encuentran al día en las obligaciones relativas al régimen de impuestos directos a que se refiere el artículo VI de la ley No 3173 de 12 de agosto de 1963 (artículo 94 del Reglamento de la Contratación Administrativa).

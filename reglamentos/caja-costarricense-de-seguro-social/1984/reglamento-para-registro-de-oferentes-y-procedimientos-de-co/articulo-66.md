@@ -1,1 +1,0 @@
-Artículo 66.—Cuando la garantía de cumplimiento fuere hecha efectiva antes del término del contrato por razón de incumplimiento, el contratista quedará obligado a rendir una nueva por igual monto si desea que continúe la ejecución.

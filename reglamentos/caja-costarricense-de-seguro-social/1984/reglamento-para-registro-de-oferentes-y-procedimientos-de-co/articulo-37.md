@@ -1,1 +1,0 @@
-Artículo 37.—Para efecto de análisis de mercadería entregada al Almacén General correrá por cuenta de la Caja el primer análisis y los subsiguientes por cuenta del proveedor, de acuerdo con las tarifas que al efecto fija la Institución.

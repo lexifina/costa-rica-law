@@ -1,1 +1,0 @@
-Articulo 60.—Cualquier resolución de la Administración que deje sin efecto el acuerdo de la adjudicación, será sustentada por la facultad que le confiere el artículo 131 del Reglamento de la Contratación Administrativa.

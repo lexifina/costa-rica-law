@@ -1,1 +1,0 @@
-Artículo 15.—Los productos químico-farmacéuticos deben, para ser inscritos, ser de calidad FEU, NF o BP, y así deben expresarlo las solicitudes de inscripción. En caso contrario debe presentarse el método de análisis. (Ver complemento en artículo 23 siguiente).

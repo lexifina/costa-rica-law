@@ -1,1 +1,0 @@
-Artículo 46.—Las cotizaciones para cada partida indicarán precios unitarios y totales, costo y flete, puerto nacional (señalando cuál puerto). Los precios se consignarán en letras y números. En caso de divergencia prevalecerá la suma expresada en letras. Podrá hacerse vía marítima, terrestre o aérea.

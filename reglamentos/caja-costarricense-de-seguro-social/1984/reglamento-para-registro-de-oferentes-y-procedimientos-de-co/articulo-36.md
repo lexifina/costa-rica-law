@@ -1,1 +1,0 @@
-Artículo 36.—El adjudicatario debe agregar a la factura que ampara la mercadería, el o los números de registro en el Ministerio de Salud de los productos que despacha para facilitar el trámite de desalmacenaje.

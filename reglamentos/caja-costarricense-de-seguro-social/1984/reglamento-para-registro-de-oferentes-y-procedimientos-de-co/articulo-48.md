@@ -1,1 +1,0 @@
-Artículo 48.—Los precios indicados en la cotización u oferta del principal, deben ser firmes y definitivos, libres de toda variación y no se admitirá modificación bajo ningún concepto después de presentada la oferta. En consecuencia no pueden quedar sujetos a confirmación por la casa vendedora sea ésta fabricante, exportadora o distribuidora.

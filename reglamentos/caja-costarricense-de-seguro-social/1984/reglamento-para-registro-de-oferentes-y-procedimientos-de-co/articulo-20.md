@@ -1,1 +1,0 @@
-Artículo 20.—Las exclusiones a que se refieren los artículos anteriores, lo mismo que cualquier cambio que se produzca en el asiento de inscripción del oferente, serán comunicados de inmediato a la Contraloría General de la República, a la Auditoría de la Caja y al interesado.

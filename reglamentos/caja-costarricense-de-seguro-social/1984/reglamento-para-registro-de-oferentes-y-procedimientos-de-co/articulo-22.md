@@ -1,1 +1,0 @@
-Artículo 22.—La Institución cobrará a las personas o firmas participantes, los gastos en que incurra por el concepto anterior y por atrasos de entregas programadas, haciendo uso para dicho propósito de la garantía de cumplimiento, sin perjuicio de otras acciones administrativas y judiciales.

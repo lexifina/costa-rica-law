@@ -1,1 +1,0 @@
-Artículo 59.—Los adjudicatarios deberán aportar constancias de Tributación Directa, en la que se manifieste se encuentran al día en el pago de los impuestos de la Renta y Territorial (artículo 6° de la ley N° 3173 del 12 de agosto de 1963).

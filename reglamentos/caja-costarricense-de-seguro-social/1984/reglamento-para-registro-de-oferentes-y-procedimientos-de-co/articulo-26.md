@@ -1,1 +1,0 @@
-Artículo 26.—Las muestras presentadas pueden tener etiquetas provisionales, pero al entregarse la mercadería adjudicada debe cumplirse con los siguientes requisitos: etiquetas en idioma español, con las indicaciones requeridas para cada caso en particular y con la leyenda "Propiedad de la CCSS", o las siglas CCSS, en forma visible.

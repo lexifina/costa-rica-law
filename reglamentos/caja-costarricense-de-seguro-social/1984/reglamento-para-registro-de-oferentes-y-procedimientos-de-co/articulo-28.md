@@ -1,1 +1,0 @@
-Artículo 28.—La Caja cobrará a los solicitantes por cada análisis de muestras presentadas con las solicitudes de inscripción en el Registro de Oferentes conforme a la tarifa establecida por el Ministerio de Salud.

@@ -1,1 +1,0 @@
-Artículo 34.—Si se trata de soluciones en ampollas o frascos ampolla para uso parenteral, se debe indicar en el envase el nombre genérico, potencia, vía de administración, número de lote y fecha de fabricación en cada unidad.
