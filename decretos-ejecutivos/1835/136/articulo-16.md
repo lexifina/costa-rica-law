@@ -1,0 +1,1 @@
+Art. 16.-La ebriedad en ningun caso podrá alegarse como defensa para cualquiera especie de delitos, aun cuando estos no pasen de injurias verbales; y la portacion de armas en aquel estado será cualidad agravante para los mismos. Todo ciudadano es autorizado para perseguir, capturar y conducir á la presencia del Juez á los hebrios.

@@ -1,0 +1,1 @@
+Art. 10.-Debiendo hacerse "el pago el dia último de cada mes en la Tesorería general, incurrirán los que no lo verifiquen así, en la pena de cuatro reales más por cada dia distinto en que sean reconvenidos; exceptúanse los asentistas del partido de Nicoya cuando sean vecinos de allí, en cuyo caso harán sus enteros por cuatrimestres bajo la propia pena.

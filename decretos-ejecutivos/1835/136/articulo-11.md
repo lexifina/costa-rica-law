@@ -1,0 +1,1 @@
+Art. 11.-Los precios del aguardiente en los puestos autorizados, son libres lo mismo que su calidad, a voluntad de los dueños; pudiendo los vecinos de un pueblo y los transeuntes comprarlo en los asientos de otro cualquiera y llevarlo donde les agrade sin necesidad de licencia o guia, con tal que sea para su gasto, o para extraerlo fuera del Estado.

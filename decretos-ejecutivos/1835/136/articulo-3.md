@@ -1,0 +1,1 @@
+Art. 3..-El Intendente la conceder al que la pide, con tal que asegure a satisfaccion y bajo la responsabilidad del Ministro contador, la cantidad de ciento veinte pesos pagaderos en todo el año, entregando diez pesos el dia último de cada mes.

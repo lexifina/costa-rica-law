@@ -1,0 +1,1 @@
+Art. 2.-Se dará esta licencia con la de poner una fábrica proveedora por el valor de diez pesos mensuales y por el tiempo de un año necesariamente, que empezará á correr desde el 1° de Enero hasta el último de Diciembre.
