@@ -1,11 +1,13 @@
-ARTÖCULO 2§.-Usar n el Pabell¢n Nacional
-los cuerpos militares, los buques de guerra, los
-fiscales y mercantes y los Capitanes de Puertos.
-Se izar adem s en las fortalezas, cuarteles,
-en la residencia del Presidente de la Rep£blica
-y en los edificios en que se halle el despacho
-oficial de las Secretar¡as de Estado y las
-Gobernaciones de provincia ¢ comarca.
-Podr n tambi‚n enarbolarlo los Ministros
-Diplom ticos y C¢nsules de la Rep£blica en el
-exterior.
+Artículo 2º.- Usarán el Pabellón Nacional los cuerpos militares, los
+buques de guerra, los fiscales y los mercantes, y los botes de las
+Capitanías de Puerto.
+Se izará además los días que el Poder Ejecutivo designe, en las
+residencias del Presidente de la República, del Congreso Constitucional y
+de la Corte Suprema de Justicia, en los edificios en que se halle el
+despacho oficial de las Secretarías de Estado, las Gobernaciones de
+provincia, las Municipalidades y las Capitanías de Puerto, y en las
+fortalezas, los cuarteles de armas y los campamentos militares.
+Podrá enarbolarse también en las Legaciones y Consulados de la
+República en el exterior, y en los establecimientos de enseñanza en la
+ocasión de celebraciones escolares.
+( Así reformado por ley No. 60 de 13 de junio de 1934 ).

@@ -1,18 +1,16 @@
-ARTÖCULO 11.-El Escudo de Armas representar
-tres volcanes y un extenso valle entre
-dos oc‚anos, navegando en cada uno de ‚stos
-un buque mercante. Al extremo izquierdo de
-la l¡nea superior que marca el horizonte, se representar
-un sol naciente. Cerrar n el escudo
-dos palmas de mirto medio cubiertas con un
-list¢n ancho que las une, el cual ser blanco y
-contendr en letras de oro esta leyenda: "Rep£blica
-de Costa Rica"; el campo que queda entre
-la cima de los volcanes y las palmas de
-mirto, lo ocupar n cinco estrellas de igual
-magnitud y colocadas en figura de arco. El remate
-del Escudo ser un list¢n azul, enlazado
-en forma de corona, sobre el cual habr en letras
-de plata esta leyenda: "Am‚rica Central."
-El Poder Ejecutivo adoptar un modelo
-Oficial de Escudo.
+Artículo 11.- El Escudo Nacional representará tres volcanes y un
+extenso valle entre dos océanos y en cada uno de éstos un buque mercante.
+En el extremo izquierdo de la línea superior que marca el horizonte habrá
+un sol naciente.
+Cerrarán el Escudo dos palmas de mirto, unidas por una cinta ancha
+de color blanco y contendrá en letras doradas la leyenda "República de
+Costa Rica".
+El espacio entre el perfil de los volcanes y las palmas de mirto lo
+ocuparán siete estrellas de igual magnitud, colocadas en arco que
+representarán las provincias de San José, Alajuela, Cartago, Heredia,
+Guanacaste, Puntarenas y Limón. El remate del Escudo lo formará una cinta
+azul en forma de corona en la cual en letra plateada figurará la leyenda
+"América Central".
+El Poder Ejecutivo hará un modelo oficial del Escudo.
+( Así reformado por el artículo 2º de la ley No. 3429 de 21 de octubre de
+1964 ).
