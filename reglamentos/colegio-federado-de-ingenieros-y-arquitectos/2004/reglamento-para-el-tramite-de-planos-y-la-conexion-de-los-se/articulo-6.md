@@ -1,0 +1,5 @@
+CAPÍTULO VI
+Disposiciones generales
+6.1. Cuando se trate de obras en condominio y en el caso de que el profesional que elaboró el proyecto no sea el mismo que elaboró los planos individuales, se requerirá del visto bueno del representante del condominio para cualquier trámite de conexión eléctrica y/o de telecomunicaciones.
+6.2. Para dar el visado de los planos, el CFIA no revisará los planos eléctricos y/o de telecomunicaciones, solamente lo referente al cumplimiento formal de los requisitos. Todos los datos incluidos en los planos serán responsabilidad del Ingeniero responsable del diseño. En caso de no cumplirse con los requisitos formales de este Reglamento, los planos serán rechazados. La compañía Eléctrica respectiva de acuerdo al artículo 26 de la Ley del ARESEP podrá solicitar un peritaje antes de la conexión. Dicho peritaje obligatoriamente deberá conocerlo la Subdirección de Ejercicio Profesional del CFIA.
+6.3. Subdirección de Ejercicio Profesional del CFIA podrá realizar inspecciones o revisiones en cualquier momento en las instalaciones eléctricas y/o de telecomunicaciones para garantizar el cumplimiento de los Códigos y Reglamentos.
