@@ -1,0 +1,1 @@
+Artículo Transitorio I.- A partir de la vigencia de esta ley, sus beneficios deben comprender a los jubilados y pensionados con anterioridad, tomando como base el último salario devengado por el beneficiario al acogerse a la pensión o jubilación.
