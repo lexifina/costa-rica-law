@@ -1,6 +1,8 @@
-N° 20623-MIRENEM
+N° 20623-MINAE(*)
+(*)(Modificada la denominación por el artículo 116 de la Ley Orgánica del Ambiente, N° 7554 del 4 de octubre de 1995. Anteriormente se indicaba: "MIRENEM”)
 EL PRESIDENTE DE LA REPÚBLICA Y
-EL MINISTRO DE RECURSOS NATURALES, ENERGIA Y MINAS
+EL MINISTRO DE AMBIENTE Y ENERGÍA
+(Modificada la denominación por el artículo 116 de la Ley Orgánica del Ambiente, N° 7554 del 4 de octubre de 1995. Anteriormente se indicaba: "Ministro de Recursos Naturales, Energía y Minas")
 En uso de las facultades que confiere el artículo 6° inciso d) de la Ley N° 6227 del 28 de agosto de 1978, y los artículos 10, inciso i) 36 y 38 de la ley N° 7174 del 16 de julio de 1990.
 Considerando:
 1° Que la Reserva Natural de Cabo Blanco, fue creada desde el 21 de octubre de 1963, mediante decreto ejecutivo N°10 de esa fecha.
@@ -8,7 +10,8 @@ Considerando:
 3° Que desde su creación, la Reserva Natural Absoluta de Cabo Blanco, ha presentado un serio problema en cuanto a su delimitación, pues varios de sus límites en la parte continental, resulta geográficamente imposible de ubicarlos sobre el terreno, pues las coordenadas no concuerdan con las señaladas para la zona por los mapas clásicos del Instituto Geográfico Nacional.
 4°- Que los puntos geográficos señalados como referencia, tales como ríos o lugares, en algunos casos no existen o se ubican de que no se tiene certeza sobre que propiedades se incluyen dentro de la Reserva.
 5° Que este problema genera la dificultad de que no se tiene certeza sobre que propiedades se incluyen dentro de la Reserva.
-6°Que el Servicio de Parques Nacionales del Ministerio de Recursos Naturales, Energía y Minas, ha efectuado un trazado que fija los límites correctos de la Reserva Natural Absoluta Cabo Blanco, por tanto.
+6°Que el Servicio de Parques Nacionales del Ministerio de Ambiente y Energía(*), ha efectuado un trazado que fija los límites correctos de la Reserva Natural Absoluta Cabo Blanco, por tanto.
+(*)(Modificada la denominación por el artículo 116 de la Ley Orgánica del Ambiente, N° 7554 del 4 de octubre de 1995. Anteriormente se indicaba: "Ministro de Recursos Naturales, Energía y Minas")
 Decretan:
 Definir los límites de la Reserva Natural Absoluta de Cabo Blanco.
 Artículo 1° La Reserva Natural Absoluta Cabo Blanco, se situará dentro de los siguientes límites:
@@ -37,7 +40,7 @@ Rumbo | Distancia
 S 88°37´W | 168,93
 N 59°08´W | 31.66
 S 87° 10´w | 375,62
-Aquí llega el punto de coordenadas 175540.60 y 412848.57 “Quebrada San Miguel”, continua aguas abajo por dicha quebrada hasta encontrar el punto de coordenadas 174645.50 N, 411702.88 E y finalmente de este punto se continúa con el siguiente derrotero:
+Aquí llega el punto de coordenadas 175540.60 y 412848.57 "Quebrada San Miguel", continua aguas abajo por dicha quebrada hasta encontrar el punto de coordenadas 174645.50 N, 411702.88 E y finalmente de este punto se continúa con el siguiente derrotero:
 Rumbo | Distancia
 S 85°54´W | 104.80
 S 83°54´W | 31.70
