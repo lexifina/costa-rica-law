@@ -13,3 +13,4 @@ CCSS: Aprueba Escala Contributiva Pequeños Agricultores y PescadoresArtesanales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-16 | la propia norma |
+| 2 | 2000-03-16 | Ley 7 |
