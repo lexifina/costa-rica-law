@@ -1,2 +1,0 @@
-Artículo 8º.- Las Alcaldías asumirán el conocimiento de las diligencias de pensión alimenticia y de cualquier otro asunto que por leyes especiales haya correspondido conocer a las Agencias Judiciales y a las Delegaciones Cantonales o Distritales de la Guardia de Asistencia Rural, cometidos antes o después de la vigencia de la presente ley.
-La competencia para conocer de esos asuntos se regirá por la materia, ya sea civil, penal o laboral; y mientras no existan Alcaldías u otros tribunales de una sola materia, conocerán de ellos las Alcaldías mixtas.

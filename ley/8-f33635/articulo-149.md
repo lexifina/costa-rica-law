@@ -3,4 +3,5 @@ DE LAS PERSONAS Y DEPENDENCIAS QUE
 AUXILIAN LA ADMINISTRACION DE JUSTICIA
 CAPITULO I
 DE LOS ORGANOS
-Artículo 149.- Además de otros órganos que establezcan la ley o el reglamento, actuarán como auxiliares de la administración de justicia: el Ministerio Público, el Organismo de Investigación Judicial, el Departamento de Defensores Públicos, la Escuela Judicial, el Digesto de Jurisprudencia y el Archivo y Registros Judiciales.
+Artículo 149.- Además de otros órganos que establezcan la ley o el reglamento, actuarán como auxiliares de la administración de justicia: el Ministerio Público, el Organismo de Investigación Judicial, la Defensa Pública, la Escuela Judicial , el Centro Electrónico de Información Jurisprudencial y el Archivo y Registros Judiciales.
+(Así reformado por el artículo 6° de la Ley N° 7728 de 15 de diciembre de 1997).

@@ -1,6 +1,2 @@
-Artículo 5º.- El Consejo Directivo estará formado por cinco miembros,
-así: un magistrado -quien lo presidirá-, el Director de la Escuela, dos
-jueces y un representante del Organismo de Investigación Judicial, éste
-propuesto por el Director del Organismo. El magistrado y los jueces,
-necesariamente, deberán serlo de diferentes materias. Todos podrán ser
-reelectos en sus cargos.
+Artículo 5º.- El Consejo Directivo estará formado por siete miembros, así: un magistrado, quien lo presidirá, el director de la escuela, dos jueces, el jefe o en su caso el subjefe de la defensa pública, del Ministerio Público y del Organismo de Investigación Judicial. El magistrado y los jueces, necesariamente, deberán serlo de diferentes materias. Todos podrán ser reelegidos en sus cargos.
+(Así reformado por el artículo 12 de la Ley de Reorganización Judicial No.7728 de 15 de diciembre de 1997)

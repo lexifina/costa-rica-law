@@ -1,1 +1,0 @@
-Artículo 54.- La circunscripción judicial de San José será ampliada progresivamente, una vez que la organización que establezca la Corte Plena permita extender la aplicación del Código a otros lugares de la provincia.

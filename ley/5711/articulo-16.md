@@ -1,1 +1,0 @@
-Artículo 16.- Una vez practicada la investigación, el Alcalde enviará el asunto al correspondiente Agente Fiscal si el procedimiento aplicable fuere el de citación directa (artículo 401 al 414), o al Juez de Instrucción en los demás casos.

@@ -1,1 +1,0 @@
-Artículo 6º.- Los Alcaldes Penales o mixtos de las circunscripciones en que todavía no rija integralmente el nuevo sistema procesal, también conocerán de las contravenciones, faltas e infracciones de que tratan los dos primeros incisos del artículo 5º, de acuerdo con las reglas de procedimiento a que se alude en el último párrafo de ese mismo artículo.

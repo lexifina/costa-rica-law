@@ -1,3 +1,3 @@
-Artículo 156.- El Departamento contará con el número necesario de auxiliares en abogacía, para que colaboren estrechamente con el defensor en el ejercicio de su cargo.
-Tendrán las funciones que les señalen la jefatura, esta Ley, su Reglamento y el Manual descriptivo de puestos.
-Los auxiliares de abogacía, al menos, deberán tener aprobado el tercer año de la carrera profesional o estudios equivalentes en Derecho.
+Artículo 156.- La Defensa Pública contará con el número necesario de auxiliares en abogacía, para que colaboren estrechamente con el defensor en el ejercicio de su cargo. Tendrán las funciones que les señalen la jefatura, esta Ley, su Reglamento y el Manual descriptivo de puestos.
+Los auxiliares de abogacía deberán tener aprobado al menos el tercer año de la carrera profesional o estudios equivalentes en Derecho.
+(Así reformado por el artículo 5° de la Ley N° 7728 de 15 de diciembre de 1997).

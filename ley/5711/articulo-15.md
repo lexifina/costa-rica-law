@@ -1,3 +1,0 @@
-Artículo 15.- Si se tratare de un caso de citación directa, los Alcaldes actuarán con las facultades del Agente Fiscal, para dar cumplimiento a lo dispuesto en el artículo anterior; y si el asunto correspondiere a instrucción judicial, tendrán las funciones del Juez de Instrucción.
-En estos casos, cuando los Alcaldes actúen de oficio o por denuncia, deberán comunicarlo de inmediato al Agente Fiscal o al Juez de Instrucción, según corresponda citación directa o instrucción judicial.
-El Agente Fiscal o Juez de Instrucción podrán asumir la investigación o comisionar al Alcalde para que la continúe. Se entenderá que existe comisión mientras el Agente Fiscal o el Juez de Instrucción no dispongan lo contrario.
