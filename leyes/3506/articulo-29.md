@@ -1,0 +1,1 @@
+Artículo 29.- El Instituto Nacional de Aprendizaje prestará su colaboración a las instituciones encargadas de la solución de problemas sociales, en el sentido de ofrecer oportunidades de aprendizaje a las personas afectadas por esos problemas.

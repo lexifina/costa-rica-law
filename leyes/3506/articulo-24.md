@@ -1,0 +1,1 @@
+Artículo 24.- El Instituto Nacional de Aprendizaje estará exento del pago de impuestos nacionales o municipales. La importación de materiales y equipos que le sean necesarios para el cumplimiento de sus fines, estará asimismo liberada del pago de derechos siempre que se trate de artículos que no produzca la industria centroamericana.

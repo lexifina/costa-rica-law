@@ -1,0 +1,1 @@
+Artículo 31.- Para los efectos del artículo anterior, todos los puestos del Instituto serán calificados en armonía con el sistema de clasificación de puestos que prescribe el Estatuto de Servicio Civil.

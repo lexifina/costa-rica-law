@@ -1,0 +1,1 @@
+Artículo 14.- El Director Ejecutivo deberá tener título universitario o haber realizado estudios equivalentes, y contar con experiencia en formación profesional y en la administración de instituciones.
