@@ -1,0 +1,5 @@
+Artículo 10.—Zona de protección de ríos y quebradas (Z PRO):
+a) Propósitos. La zona de protección de ríos y quebradas es el área reservada para proteger en primer término los drenajes naturales del Cantón, creándose la defensa de éstos y del medio ambiente, a la vez que se pueden convertir en parques lineales atravesando el cantón.
+b) Usos permitidos. Solo se permitirán en esta área usos agrícolas o forestales y alternativamente parques y áreas recreativas al aire libre, no se permitirá ningún tipo de construcciones.
+c) Usos condicionales. No se permitirá ningún uso condicional.
+d) Requisitos. Los requisitos de uso de la zona de protección de ríos y quebradas los fijará en cada caso la Municipalidad en coordinación con la Dirección de Urbanismo, respetando los lineamientos del Plan Regulador, en lo posible se incorporarán a las áreas de parque de los nuevos desarrollos urbanísticos y formarán parte del porcentaje de área a ceder al Municipio por el urbanizador. Los retiros aprobados se anotan en la lámina II.
