@@ -1,0 +1,3 @@
+ARTICULO 6º.- Modifícase el artículo 1º de la Ley de Impuesto
+Territorial, N° 27 de 2 de marzo de 1939, el que se leerá así:
+... ... ...
