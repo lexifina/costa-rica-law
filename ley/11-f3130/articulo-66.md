@@ -1,1 +1,1 @@
-Artículo 66. -En el Registro de Pólizas de Seguros se inscribirán todos los contratos de seguro. Contendrá dos secciones: una para la inscripción de las pólizas de seguros de vida y accidentes corporales, y la otra para los demás.
+Artículo 66. -(Derogado por el artículo único de la Ley N° 2 del 19 de setiembre de 1940).

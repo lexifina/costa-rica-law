@@ -1,1 +1,1 @@
-Artículo 65.-Los Agentes Aseguradores ins cr ibirán las pólizas, cédulas de renovación, constancias de cancelación, etc., antes de entregarlas a los interesados, y si así no lo hicieren, incurrirán en la pena de nulidad de la operación.
+Artículo 65.--(Derogado por el artículo único de la Ley N° 2 del 19 de setiembre de 1940).
