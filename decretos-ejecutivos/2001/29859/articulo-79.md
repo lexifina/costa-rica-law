@@ -1,0 +1,2 @@
+Artículo 79.—Horario de aprovisionamiento: Los vehículos autorizados para surtirse de combustible en las diferentes bodegas del país deberán someterse a los horarios establecidos en cada una de las dependencias administrativas donde se ubique la bodega que suministra combustible.
+Si se tratare de vehículos que, por disposición del Director de Región, deban laborar un fin de semana (equipo pesado y liviano) dicho funcionario deberá, con anterioridad, gestionar y coordinar con la unidad de Almacenes, el pago de tiempo extraordinario respectivo para el personal de las bodegas.

@@ -1,0 +1,2 @@
+Artículo 24.—Ajustes por evaporación: Los ajustes por evaporación se permitirán, exclusivamente, en relación con la gasolina, estableciéndose tales ajustes en un porcentaje del 1%, aplicado al saldo del inventario anterior, más las entradas registradas después de este período.
+Dichos ajustes los realizará el bodeguero correspondiente mediante la confección de una Requisición de Materiales, cuyos movimientos deberán ser puestos en conocimiento de Contabilidad y la unidad de Almacenes, amparado a los documentos que den fe de lo actuado.

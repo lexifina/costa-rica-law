@@ -1,0 +1,1 @@
+Artículo 57.—Autorización que debe contener toda requisición de explosivos: Toda requisición de materiales explosivos, sin excepción alguna, deberá estar expresamente autorizada por el Ministro, los Viceministros, el Director de Obras Públicas o el ejecutor del Programa respectivo.

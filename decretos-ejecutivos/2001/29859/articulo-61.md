@@ -1,0 +1,1 @@
+Artículo 61.—Colocación de letreros de precaución: La unidad de Almacenes gestionará la colocación de letreros de precaución en lugares visibles, en donde se almacene material explosivo así como en todos aquellos sitios que se estime necesario, si alguna bodega, tajo o centro de producción guarde o fuere a utilizar materiales explosivos.

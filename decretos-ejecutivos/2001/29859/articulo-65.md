@@ -1,0 +1,1 @@
+Artículo 65.—Pedido semestral de materiales: Los encargados de los diferentes polvorines que se encuentran en los tajos deberán, semestralmente, enviar los pedidos de materiales (dinamita, fulminantes, mechas, etc.) al encargado de la Dirección o Departamento a la que pertenecen y ésta, a su vez, solicitará a la unidad de Almacenes su compra.

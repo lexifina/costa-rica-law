@@ -1,0 +1,4 @@
+CAPÍTULO XI
+Disposiciones finales
+Artículo 92.—Canje, donación o desecho de bienes y materiales: La unidad de Almacenes y Equipo y Maquinaria, con la autorización de las dependencias a las cuales pertenecen los bienes o materiales a que se refiere el presente Reglamento, conforme a los principios, procedimientos y límites establecidos por la normativa jurídica vigente, serán responsables de gestionar, ante quien corresponda el canje, donación o desecho de bienes y materiales.
+En todo caso se requerirá la previa autorización del Departamento de Bienes de la Proveeduría Nacional del Ministerio de Hacienda y del Ministro o Viceministros del Ministerio de Obras Públicas y Transportes, para gestionar el canje, venta, donación o desecho de los bienes y materiales a que se refiere este Reglamento, según los principios, procedimientos y límites establecidos por la normativa jurídica vigente.

@@ -1,0 +1,1 @@
+Artículo 68.—Observancia de reglamentaciones específicas: En lo que se refiere al transporte de explosivos deberá cumplirse con las disposiciones contenidas en el Decreto Ejecutivo Nº 27008-MEIC-MOPT del 20 de marzo de 1998, publicado en el Alcance 33 a La Gaceta Nº 128 del 3 de julio de 1998.

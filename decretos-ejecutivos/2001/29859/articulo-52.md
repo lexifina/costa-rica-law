@@ -1,0 +1,1 @@
+Artículo 52.—Prohibición de despacho de combustibles en estañones u otro envase: Queda prohibido el despacho de combustible en estañones u otro envase, salvo en aquellos casos en donde, excepcionalmente, según se demuestre y quede constatado por escrito, se requiera su traslado por dichos medios cuando el equipo no pueda trasladarse directamente hasta el lugar del depósito.

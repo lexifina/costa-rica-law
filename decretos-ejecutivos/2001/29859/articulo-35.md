@@ -1,0 +1,1 @@
+Artículo 35.—Caso de entregas parciales: Cuando se tratare de entregas parciales, el bodeguero controlará que la casa comercial facture las cantidades entregadas, hasta completar el total que indica la orden de compra.

@@ -1,0 +1,1 @@
+Artículo 47.—Requisitos para el despacho de repuestos: En toda "Solicitud y salida de repuestos" deberá indicarse el número de taller y la orden de trabajo, con excepción de las salidas que se produzcan por traspaso entre bodegas, pero en este último caso deberá quedar claramente identificada la índole de la transferencia.

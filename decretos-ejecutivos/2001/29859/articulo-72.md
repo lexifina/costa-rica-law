@@ -1,0 +1,1 @@
+Artículo 72.—Distribución interna de las cuotas de combustible: Será competencia del Director Regional, la redistribución interna de las cuotas de combustible asignadas a sus respectivas unidades, acatando para ello las políticas de racionamiento y ahorro institucional que se establezcan.

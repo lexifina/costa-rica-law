@@ -1,0 +1,1 @@
+Artículo 6º—Ubicación de los depósitos de asfalto: Los Depósitos de Asfalto y los Centros de Producción dependerán de la División de Obras Públicas, quien los tendrá bajo su responsabilidad aunque con mando técnico por parte de la Unidad de Almacenes.

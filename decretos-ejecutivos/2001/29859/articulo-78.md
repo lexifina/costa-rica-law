@@ -1,0 +1,4 @@
+Artículo 78.—Casos en que procede el traspaso de cuotas de combustible: Será posible el traspaso de cuotas cuando se cumpla con los siguientes requisitos y condiciones:
+a) El Administrador o Ingeniero encargado de la Región tendrá la potestad de autorizar, por escrito, traspasos de cuotas de combustibles entre equipos asignados a su jurisdicción, utilizando para ello el procedimiento adecuado y suministrando los informes del caso a las dependencias administrativas correspondientes.
+b) Similares reglas deberán aplicarse en el caso de las unidades administrativas del resto de la Institución.
+En el caso de las unidades ubicadas en la Sede Central, los traspasos deberán ser aprobados por el Superior de la unidad a la que pertenecen ambos vehículos y se tramitarán por medio de la unidad de Servicios Generales y Transportes.

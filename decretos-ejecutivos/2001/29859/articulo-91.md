@@ -1,0 +1,1 @@
+Artículo 91.—Prohibición para descargar el asfalto en sitios y proyectos ajenos al Ministerio: Queda prohibido descargar asfalto o emulsión asfáltica en plantas y proyectos ajenos al MOPT, excepto cuando se trate de una autorización escrita emitida por el Ministro o los Viceministros, mediante convenio o proceso legal correspondiente.

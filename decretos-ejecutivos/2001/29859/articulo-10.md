@@ -1,0 +1,1 @@
+Artículo 10.—Obligatoriedad de informe de bodegas ubicadas en Regiones: Las bodegas ubicadas en Regiones, además de las de asfalto y cemento, deberán informar por escrito a Contabilidad, en el plazo de los primeros ocho días hábiles de cada mes, sobre los movimientos de entradas y salidas de los artículos que despacharon en el mes anterior.

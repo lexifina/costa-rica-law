@@ -1,0 +1,1 @@
+Artículo 26.—Responsabilidad en la existencia de formularios: Será responsabilidad de cada Ejecutor de Programa disponer de los fondos presupuestarios que sean necesarios para mantener una existencia adecuada de los formularios requeridos para el normal funcionamiento del almacén o bodega.

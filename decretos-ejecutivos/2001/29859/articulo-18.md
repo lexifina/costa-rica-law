@@ -1,0 +1,5 @@
+Artículo 18.—Registro de nombres y firmas: Los almacenes y bodegas deberán contar con un "Registro de nombres y firmas" de los funcionarios autorizados para solicitar y retirar bienes, mismo que deberá ser objeto de consulta por parte del encargado, antes de tramitar todo despacho de bienes.
+Para los efectos del referido Registro, deberá cumplirse con los siguientes requisitos:
+a) El Ejecutor de cada Programa designará el o los funcionarios autorizados para solicitar y retirar artículos y comunicará a la unidad de Almacenes y a Equipo y Maquinaria, para el registro de firmas y su distribución en los almacenes y bodegas.
+b) El registro de firmas tendrá validez por un año y deberá renovarlo el interesado durante el mes de junio de cada año, requiriendo para ello de la firma del Ejecutor del Programa.
+La exclusión de funcionarios autorizados para firmar "Requisiciones de Materiales" y retirar bienes deberá ejecutarla el Ejecutor de Programa y comunicarla a la unidad de Almacenes para la actualización del registro de firmas y su distribución en los almacenes y bodegas.

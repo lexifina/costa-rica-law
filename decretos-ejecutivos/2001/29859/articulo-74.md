@@ -1,0 +1,1 @@
+Artículo 74.—Situaciones anómalas: Las dependencias administrativas a que se refiere este Reglamento deberán informar, oportunamente y por escrito, a Contabilidad y a la unidad de Almacenes sobre cualquier situación anómala que se presente en las respectivas bodegas.

@@ -1,0 +1,2 @@
+Artículo 80.—Sustitución de los encargados de bodegas de combustible: En caso de necesidad de sustitución del Encargado de Bodega, la responsabilidad la asume la unidad de Almacenes, para lo cual deberá practicar un inventario de existencias. El sustituto deberá de conocer la responsabilidad que asume.
+Se exceptúa de lo anterior aquellos casos especiales en que, por razones de urgencia, deba autorizarse a otros funcionarios administrativos principalmente regionales para que cumplan dichas funciones, en cuyo caso deberá informarse por escrito a la unidad de Almacenes.

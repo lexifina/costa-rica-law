@@ -1,0 +1,1 @@
+Artículo 82.—Obligatoriedad de requerir la "Orden de entrega y factura": Todo funcionario del MOPT designado para retirar el asfalto AC-20 o la emulsión asfáltica, deberá solicitar en la Sección de Facturación de RECOPE la "Orden de Entrega y Factura", que constituye el documento que demuestra el retiro efectivo del asfalto o emulsión.
