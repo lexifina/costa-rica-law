@@ -1,0 +1,1 @@
+ARTICULO 20.- El derecho de Ciudadano se pierde: primero, por haber residido fuera del territorio de la Federación siete años consecutivos sin licencia del Gobierno: segundo, por aceptación de pensión, distintivos, ó títulos hereditarios de algún Gobierno extranjero: tercero, por sentencia en que se impongan penas más que correccionales sino si obtuviese rehabilitación.

@@ -1,0 +1,1 @@
+ARTICULO 32.- Las juntas de que habla este Capítulo, deberán ser presididas por la autoridad Política del lugar en que se reunieren, dos escrutadores y un Secretario, nombrados por ella misma de individuos de su seno.

@@ -1,0 +1,1 @@
+ARTICULO 29.- Las juntas de partido se compondrán de los electores nombrados por las de Parroquia, y se verificarán el primer Domingo del mes de Febrero, siendo sus atribuciones: 1º.elegir el Diputado o Diputados que les correspondan en el Poder Legislativo: 2º.sufragar en el tiempo correspondiente para el Poder Ejecutivo, para el Judicial, y para el Conservador.

@@ -1,0 +1,1 @@
+ARTICULO 120.- Hasta pasados dos años de estar en práctica la Ley Fundamental, podrá el Congreso reformar ó alterar uno que otro artículo, y hasta pasados ocho, en su totalidad por un Congreso Constituyente; pero nunca los Capítulos 1º, 2º y 4º.

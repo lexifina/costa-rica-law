@@ -1,0 +1,1 @@
+ARTICULO 50.- En otra época podrá reunirse extraordinariamente si el Poder Ejecutivo, ó el Conservador lo convocase; mas entonces no podrá ocuparse de otro asuntos que de aquellos para que ha sido congregado.

@@ -1,0 +1,1 @@
+ARTICULO 17.- El Estado se denominará, ESTADO LIBRE DE COSTA RICA.

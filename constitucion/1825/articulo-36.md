@@ -1,0 +1,1 @@
+ARTICULO 36.- Las juntas de partido formarán escrutinios separados de las votaciones en favor de individuos para el Poder Ejecutivo, Judicial, y Conservador; y los dirigirán al Congreso cerrados y sellados, expresando en la cubierta de cada pliego de la que dirige.
