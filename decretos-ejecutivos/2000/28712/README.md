@@ -14,3 +14,4 @@ Reglamento de Tarjetas de Crédito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-26 | la propia norma |
+| 2 | 2003-07-16 | Decreto Ejecutivo 31322 (2003-07-16) |
