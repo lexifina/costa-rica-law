@@ -6,10 +6,16 @@ semestrales en los que se declare que ninguna actividad prohibida por las
 disposiciones del presente Tratado ha tenido lugar en sus respectivos
 territorios.
 2. Las Partes Contratantes enviarán simultáneamente al Organismo
-copia de cualquier informe que envíen al Organismo Internacional de
-Energía Atómica en relación con las materias objeto del presente Tratado
-y con la aplicación de las Salvaguardias.
-3. Las Partes Contratantes transmitirán también a la Organización de
-los Estados Americanos, para su conocimiento, los informes que pueedan
-interesar a ésta en cumplimiento de las obligaciones establecidas por el
-Sistema Interamericano.
+copia de los informes enviados al Organismo Internacional de Energía
+Atómica en relación con las materias objeto del presente Tratado, que
+sean relevantes para el trabajo del Organismo.
+(Así modificado este párrafo por el artículo 1 de la ley No.7819 de
+1 de setiembre de 1998, que aprobó el III Protocolo de Reformas a este
+Tratado)
+3. La información proporcionada por las Partes Contratantes no podrá
+ser divulgada o comunicada a terceros, total o parcialmente, por los
+destinatarios de los informes, salvo cuando aquellas lo consientan
+expresamente.
+(Así modificado este párrafo por el artículo 1 de la ley No.7819 de
+1 de setiembre de 1998, que aprobó el III Protocolo de Reformas a este
+Tratado)
