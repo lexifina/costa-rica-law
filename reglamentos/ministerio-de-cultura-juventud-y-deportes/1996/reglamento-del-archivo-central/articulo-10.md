@@ -1,0 +1,1 @@
+Artículo 10.-El archivista o encargado de la Unidad de Archivo, establecerá los plazos o fechas en que se recibirá documentos para cada oficina y deberá comunicarlo por escrito a los encargados de archivos de gestión.

@@ -1,0 +1,1 @@
+Artículo 12.-La documentación no podrá salir de la institución salvo en casos de exposición, o requerimiento específicos de instituciones públicas o privadas, previa autorización de salida del Director General.

@@ -1,0 +1,1 @@
+Artículo 22.-Para la adecuada selección de documentos que serán eliminados o remitidos al archivo central, los jefes o encargados de oficina se deberán guiar por la tabla de plazos de conservación y eliminación, una vez que la misma esté debidamente aprobada por las instancias respectivas.

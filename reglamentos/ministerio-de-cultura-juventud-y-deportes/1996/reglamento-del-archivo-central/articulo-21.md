@@ -1,0 +1,1 @@
+Artículo 21.-La autorización final para conservar o eliminar documentos será indicada por la Comisión Nacional de Selección y Eliminación de documentos, por lo que deben coordinar constantemente el Comité institucional y la Comisión Nacional para ejecutar estos procesos.

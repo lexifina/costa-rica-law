@@ -1,0 +1,1 @@
+Artículo 14.-Cualquier ciudadano interesado en consultar documentos deberá hacer la solicitud por escrito indicando con toda claridad el objetivo de su investigación, llenará la boleta de préstamo de documentos y además deberá identificarse con su cédula de identidad o carné de estudiante en su caso.

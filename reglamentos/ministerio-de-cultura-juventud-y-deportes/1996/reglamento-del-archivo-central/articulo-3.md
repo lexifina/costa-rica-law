@@ -1,0 +1,1 @@
+Artículo 3°-Funcionará bajo la coordinación de un Técnico en Archivística o un funcionario del mismo nivel académico, debidamente capacitado quién dependerá directamente de la Dirección Administrativa la Institución.
