@@ -1,2 +1,0 @@
-Artículo 5º.-Composición del patrimonio.
-El patrimonio de la "Empresa" estará constituido por los bienes que reciba de las municipalidades, del Servicio Nacional de Acueductos y Alcantarillado, de la Junta Administrativa del Servicio Eléctrico Municipal de Heredia (J.A.S.E.M.H.), de otras entidades que le traspasen la administración o prestación de servicios públicos, y los que lleguen a adquirir en el futuro. Igualmente, asumirá los pasivos que pesen sobre los bienes que le sean traspasados.
