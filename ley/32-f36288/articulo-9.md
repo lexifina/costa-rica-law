@@ -1,6 +1,2 @@
-Artículo 9º.- Cuando por cualquiera circunstancia lacondenatoria por
-alguno de los delitos á que se refieren los artículos anteriores hubiere
-de recaer contra una mujer, se aplicará la pena de multa, debiendo
-fijarse el monto de ella estableciendo su equivalencia con el arresto que
-al caso convendría sobre la relación proporcional estatuída por las
-leyes.
+Artículo 9º.- ( ANULADO por Resolución de la Sala Constitucional Nº
+1197 de las 16:30 hrs. del 25 de junio de 1991 ).

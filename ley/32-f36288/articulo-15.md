@@ -1,3 +1,2 @@
-Artículo 15.- Trascurrido el término dicho en el artículo anterior,
-el Juez citará y emplazará á las partes para ante la Sala de Casación á
-la cual pasarán las diligencias originales para sus demás consecuencias.
+Artículo 15.- ( ANULADO por Resolución de la Sala Constitucional Nº
+1197 de las 16:30 hrs. del 25 de junio de 1991 ).

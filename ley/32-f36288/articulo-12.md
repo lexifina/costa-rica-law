@@ -1,3 +1,2 @@
-Artículo 12.- El enjuiciamiento y fallo de los delitos de imprenta
-corresponden á la Sala de Casación, quien en la apreciación de hechos y
-pruebas, no atenderá más que al dictamen de su conciencia.
+Artículo 12.- ( ANULADO por Resolución de la Sala Constitucional Nº
+1197 de las 16:30 hrs. del 25 de junio de 1991 ).

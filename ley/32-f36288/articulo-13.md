@@ -1,2 +1,2 @@
-Artículo 13.- Toda denuncia ó acusación de un delito cometido por
-medio de la prensa será dirigida á la Sala de Casación.
+Artículo 13.- ( ANULADO por Resolución de la Sala Constitucional Nº
+1197 de las 16:30 hrs. del 25 de junio de 1991 ).
