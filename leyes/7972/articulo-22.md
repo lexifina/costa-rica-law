@@ -1,0 +1,1 @@
+ARTÍCULO 22.- El Poder Ejecutivo, por medio del Ministerio de Hacienda, incorporará en el presupuesto ordinario y extraordinario de la República, a favor del Instituto de Fomento y Asesoría Municipal, los recursos que esta institución deje de percibir como consecuencia directa de la disminución en la tarifa del impuesto selectivo de consumo a las bebidas alcohólicas.
