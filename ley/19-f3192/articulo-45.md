@@ -1,0 +1,1 @@
+Artículo 45.—Si la licencia fuere solicitada por más de quince días, el Inspector indicará sustituto, elegido de preferencia entre los maestros de la categoría correspondiente al grado que va a desempeñar.

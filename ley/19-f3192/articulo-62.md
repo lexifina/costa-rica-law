@@ -1,0 +1,1 @@
+Artículo 62.—Quedan asimilados a los certificados de aptitud elemental y superior, respectivamente, los títulos de maestros de enseñanza primaria inferior y de maestro de enseñanza primaria superior, expedidos por autoridad competente y con arreglo a las disposiciones vigentes en la época de su expedición.

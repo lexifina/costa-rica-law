@@ -1,0 +1,1 @@
+Artículo 25.—Los maestros especiales venidos del extranjero mediante contrato celebrado con el Gobierno, gozarán de los sueldos especificados en su contrato. En ningún caso se celebrarán contratos con profesores residentes en d país.
