@@ -14,3 +14,4 @@ Reglamento de los Derechos de Vía y Publicidad Exterior
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-05 | la propia norma |
+| 2 | 2001-10-25 | Decreto Ejecutivo 30063 (2001-10-25) |

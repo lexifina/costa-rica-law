@@ -1,6 +1,7 @@
 CAPÍTULO II
 Del Departamento de Inspección Vial y Demoliciones
-Artículo 7º—Para la ejecución del presente reglamento, el Ministerio de Obras Públicas y Transportes actuará a través del Departamento de Inspección Vial y Demoliciones de la Dirección General de Policía de Tránsito, dependencia que tendrá las siguientes atribuciones y funciones:
+Artículo 7º—Para la ejecución del presente Reglamento el Ministerio de Obras Públicas y Transportes actuará por medio del Departamento de Inspección Vial y Demoliciones de la Dirección de Ingeniería de la División de Obras Públicas, dependencia que tendrá las siguientes atribuciones y funciones:
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 30063 de 25 de octubre del 2001)
 a) Vigilar, controlar, fiscalizar y autorizar todo lo referente a los usos del área de derecho de vía de la red vial nacional;
 b) Notificar, denunciar, suspender, decomisar y demoler cualquier construcción que se realice en el derecho de vía, sin autorización del Ministerio, con fundamento en las certificaciones expedidas por el Consejo de Transporte Público, el Departamento de Previsión Vial de la Subárea de Diseño, el Departamento de Terrenos del Área Jurídica y de la Comisión de Carreteras de Accesos Restringidos y Semirestringidos;
 c) El otorgamiento, modificación, cancelación y renovación de los permisos y licencias a que se refiere el presente reglamento;
@@ -17,7 +18,8 @@ m) Reabrir caminos o servidumbres entregadas por ley o de hecho al servicio púb
 n) Mantener los controles y registros de las licencias y permisos vigentes debidamente actualizados, así como el respectivo expediente administrativo por empresa.
 o) Velar por el estricto cumplimiento del presente reglamento y de las leyes que regulan la materia;
 p) Velar por el riguroso, seguro y adecuado registro de los expedientes administrativos, así como su apropiada tramitación;
-q) Velar para que todo documento que ingrese, dirigido al Departamento de Inspección Vial y Demoliciones de la Dirección General de la Policía de Tránsito, reúna los requisitos de forma y fondo establecidos para tal efecto; caso contrario, requerir el cumplimiento de las formalidades omitidas en éstos.
+q) Velar para que todo documento que ingrese, dirigido al Departamento de Inspección Vial y Demoliciones de la Dirección de Ingeniería de la División de Obras Públicas, reúna los requisitos de forma y fondo establecidos para tal efecto; caso contrario, requerir el cumplimiento de las formalidades omitidos en éstos.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 30063 de 25 de octubre del 2001)
 r) Atender y evacuar las consultas del público, empresarios, organizaciones interesadas en los asuntos de competencia del departamento, así como tramitar y resolver las denuncias efectuadas por personas públicas o privadas.
 s) Todas aquellas funciones complementarias que le sean encomendadas, asignadas por el superior inmediato.
 t) Para la realización de estas funciones, el Departamento de Inspección Vial y Demoliciones podrá actuar de oficio o a instancia de parte. En todo caso y tratándose de decomiso de bienes, se procederá al levantamiento de un acta que contendrá:
