@@ -1,2 +1,0 @@
-Artículo 15. Caducidad de la autorización
-Si la empresa no cumpliera con los requisitos dentro del plazo señalado en el artículo anterior, la autorización conferida caducará. No obstante, este plazo podrá ser ampliado por el Superintendente General de Valores, por una única vez, previa solicitud escrita y justificada de la empresa emisora; siempre y cuando esta solicitud se presente con anterioridad al vencimiento del plazo establecido en el artículo anterior.

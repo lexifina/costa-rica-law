@@ -1,2 +1,0 @@
-Artículo 2. Publicidad de la información
-La información aportada de conformidad con lo establecido en este Reglamento, así como la información periódica que deberán remitir los emisores será pública una vez que el emisor se encuentre debidamente inscrito en la Superintendencia General de Valores, con la excepción de la información de carácter confidencial que se haya provisto a la Superintendencia, de conformidad con lo que establezca el Superintendente.

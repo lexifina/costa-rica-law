@@ -1,5 +1,0 @@
-Artículo 4. Niveles de endeudamiento
-De conformidad con el Artículo 116 de la Ley Orgánica del Banco Central de Costa Rica, las empresas de los sectores no financieros que soliciten su registro en la Superintendencia General de Valores no podrán exceder un nivel de endeudamiento total (individual o consolidado cuando corresponda) de 4 veces su capital y reservas de conformidad con la metodología que establezca el Superintendente General de Valores.
-En el caso de los emisores de valores provenientes de procesos de titularización que emitan valores de deuda, el monto a emitir no podrá superar el flujo máximo de recursos estimados, de conformidad con las instrucciones que emita el Superintendente.
-Las demás empresas privadas que realicen oferta pública de títulos valores deberán cumplir con las disposiciones establecidas en sus leyes especiales. Cuando no existieren, deberán sujetarse a las disposiciones que emita el Superintendente General de Valores.
-Modificado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante el Artículo 12, numeral 1, del Acta de la Sesión 175-2000, celebrada el 4 de setiembre del 2000

@@ -1,8 +1,0 @@
-Artículo 10. Documentación legal y de orden administrativo exigible a los fideicomisos
-En el caso de fideicomisos deberá aportarse la siguiente documentación:
-a) Copia certificada del contrato de fideicomiso.
-b) Certificación notarial de los estatutos vigentes de la entidad fiduciaria. Además de las entidades supervisadas por la Superintendencia General de Entidades Financieras podrán brindar el servicio de fiduciario las demás personas jurídicas cuyo objeto social les autorice a realizar este tipo de actividades, que demuestren contar con experiencia en la administración de activos similares a los aportados al fideicomiso y con el capital mínimo que fije el Superintendente, capital que deberá guardar relación con el monto de la emisión correspondiente.
-c) En el caso de bienes inmuebles y bienes muebles sujetos a inscripción en el registro, certificación registral o notarial de los bienes a fideicometir en la que se indiquen los gravámenes y anotaciones que pesen sobre ellos.
-d) Avalúo de los bienes aportados al fideicomiso con indicación de la metodología utilizada, realizado por perito independiente, todo de conformidad con las instrucciones que emita el Superintendente.
-e) Documentación exigida en los incisos e) f) y g) del párrafo primero del artículo anterior. En este caso la declaración jurada deberá ser rendida tanto por el representante legal de la empresa fideicomitente como de la empresa fiduciaria.
-Adicionado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante el Artículo 12, numeral 3, del Acta de la Sesión 175-2000, celebrada el 4 de setiembre del 2000.

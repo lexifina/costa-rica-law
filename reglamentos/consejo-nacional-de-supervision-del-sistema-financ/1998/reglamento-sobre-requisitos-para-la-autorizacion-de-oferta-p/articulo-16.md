@@ -1,2 +1,0 @@
-Artículo 16. Emisiones adicionales
-Los emisores que ya han sido autorizado para realizar oferta pública y que deseen inscribir emisiones adicionales, deberán presentar la solicitud, de conformidad con lo establecido en el Artículo 7; el Prospecto, de conformidad con lo establecido en el Artículo 8 y la documentación legal y administrativa que resultare modificada en virtud de la emisión a registrar.
