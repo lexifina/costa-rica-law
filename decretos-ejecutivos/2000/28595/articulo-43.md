@@ -1,0 +1,1 @@
+Artículo 43.—Dentro de los cinco días posteriores al cierre de la recepción de las candidaturas, el Tribunal Electoral deberá comunicar a los interesados si aceptó o rechazó las postulaciones presentadas. Un mismo candidato no podrá registrarse en más de una papeleta. En caso de que así sea, se tendrá por inscrito su nombre en la papeleta que se haya presentado primero

@@ -1,0 +1,1 @@
+Artículo 3°—El Colegio ejercerá sus funciones por medio de la Asamblea General, la Junta Directiva, la Fiscalía, el Tribunal de Honor y el Comité Consultivo.

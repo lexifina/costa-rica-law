@@ -1,0 +1,7 @@
+Artículo 6°—Serán miembros honorarios las personas a quienes la Asamblea del Colegio les otorgue esa distinción en reconocimiento a los esfuerzos de promoción e investigación en el campo de la quiropráctica.
+Para los efectos de este reconocimiento deberán seguirse los siguientes trámites:
+a) Un miembro activo del Colegio o un grupo de ellos, deberá presentar por escrito y ante la Junta, la postulación de una persona física a la distinción de miembro honorario, detallando las condiciones que hagan al candidato merecedor del reconocimiento.
+b) La Junta deberá presentar la candidatura ante la Asamblea del Colegio, la cual con mayoría simple decidirá si acepta o no el otorgamiento de la distinción de membresía de honor.
+c) Si la Asamblea otorga ese reconocimiento, la Junta Directiva, en sesión solemne, hará la recepción del nuevo miembro, si éste se encuentra en el país. Si el miembro honorario se encuentra fuera del país, la entrega del diploma se hará por el medio que la Junta estime conveniente. Los diplomas serán firmados por el Presidente y el Secretario de la Junta Directiva.
+El miembro honorario del Colegio tendrá además derecho a ser incluido en el Registro a que hace referencia el artículo 4 del presente Reglamento. Sin embargo estará exento del cumplimiento de las obligaciones impuestas por la Ley o este Reglamento a los miembros activos.
+Los miembros honorarios no podrán elegir ni ser elegidos en cargos de elección en el Colegio. Tendrán derecho a participar en las Asambleas del Colegio con voz pero sin voto.

@@ -1,0 +1,3 @@
+Artículo 18.—La Asamblea general extraordinaria se realizará cuando sea convocada por la Junta Directiva, el fiscal de la Junta o cuando así lo solicite a la Junta al menos un tercio de los miembros activos del Colegio.
+a) Las asambleas generales extraordinarias se celebrarán en la fecha y hora que establezca la Junta Directiva y que se expresará en la convocatoria, la cual deberá ser publicada por orden del Presidente de la Junta y conocerán únicamente los asuntos indicados en la convocatoria.
+b) De acuerdo con la Ley, la convocatoria deberá publicarse dos veces en el Diario Oficial La Gaceta y una vez en un periódico de circulación nacional, indicando el lugar, fecha y hora de la reunión y los asuntos que deberán ser tratados en ella.

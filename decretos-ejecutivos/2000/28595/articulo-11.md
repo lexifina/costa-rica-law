@@ -1,0 +1,1 @@
+Artículo 11.—Todo miembro del Colegio deberá estar al día en el pago de las cuotas mensuales para poder asistir a las reuniones de la Asamblea y para elegir y ser elegido. Igual exigencia tienen los miembros que sean integrantes de los diferentes órganos del Colegio

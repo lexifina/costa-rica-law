@@ -1,0 +1,1 @@
+Artículo 12.—Los miembros del Colegio que se ausenten de la República no perderán su condición de miembro mientras que no hayan sido separados por falta de pago de las respectivas contribuciones , o por cualquier otra causa.

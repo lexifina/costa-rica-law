@@ -1,0 +1,1 @@
+Artículo 22.—La Junta decidirá por mayoría simple, en la fecha y hora de su sesión mensual ordinaria. La Junta además sesionará extraordinariamente cuando sea convocada al efecto por el Presidente, el fiscal o por al menos tres de sus miembros. En este caso, la convocatoria deberá hacerse con al menos veinticuatro horas de anticipación a la sesión extraordinaria.

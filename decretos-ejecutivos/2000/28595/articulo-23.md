@@ -1,0 +1,2 @@
+Artículo 23.—Toda sesión de la Junta deberá iniciarse con la aprobación del acta anterior. Para esos efectos cada miembro de la Junta deberá contar con una copia del acta, o en su defecto deberá leerse completamente, salvo que por acuerdo de la mayoría de dos tercios de la totalidad de sus miembros se acuerde la dispensa de lectura.
+Ningún acuerdo será ejecutado antes de que el acta respectiva sea discutida y aprobada, salvo que se haya declarado en firme por votación de la mayoría de dos tercios de la totalidad de sus miembros

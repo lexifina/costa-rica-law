@@ -1,0 +1,1 @@
+Transitorio II.—Hasta enero del año 2001, los profesionales en quiropráctica que deseen incorporarse al Colegio, y para efectos del cumplimiento de la obligación establecida en el inciso g) del artículo 8 del presente reglamento podrán presentar cartas de recomendación extendidas por profesionales en quiropráctica con licencias en otros países.

@@ -1,0 +1,1 @@
+Artículo 29.—La Junta no podrá delegar las funciones que le establece la Ley, sin embargo, podrá crear comisiones para que le ayuden en el cumplimiento de esas obligaciones. Estas comisiones serán creadas por mayoría simple.

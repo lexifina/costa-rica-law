@@ -1,0 +1,1 @@
+Artículo 39.—Cada Tribunal Electoral que sea designado por la Junta Directiva deberá emitir un Reglamento que contenga la regulación básica para el proceso electoral correspondiente. El Tribunal Electoral deberá someter a la Junta Directiva estos Reglamentos con el propósito de que los apruebe en definitiva.

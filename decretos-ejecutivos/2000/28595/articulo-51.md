@@ -1,0 +1,1 @@
+Artículo 51.—Las consultas presentadas al Colegio por parte de los Poderes del Estado, y sometidas a este Comité no generan costo alguno. En los demás casos la Junta Directiva determinará la suma a cancelar.

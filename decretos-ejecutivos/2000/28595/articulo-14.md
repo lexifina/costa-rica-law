@@ -1,0 +1,1 @@
+Artículo 14.—Cuando un miembro deje de pertenecer al Colegio ya sea por muerte, retiro voluntario o disposición de la Junta, o cuando vuelva a él, o cuando sea suspendido temporalmente en el ejercicio de sus funciones, o cuando se le imponga una corrección disciplinaria, el Secretario de la Junta tomará nota de estas circunstancias en el Registro de miembros.

@@ -1,0 +1,1 @@
+Artículo 21.—La Junta Directiva estará integrada por un Presidente, un Vicepresidente, un Secretario, un Tesorero y tres Vocales. Adicionalmente la Asamblea designará un Fiscal que tendrá derecho a asistir a las sesiones de la Junta con voz pero sin voto.

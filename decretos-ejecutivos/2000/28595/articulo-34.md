@@ -1,0 +1,1 @@
+Artículo 34.—Son funciones de los vocales sustituir en orden de numeración, al presidente en ausencia del vicepresidente y a todos los demás miembros de la Junta en sus ausencias, asumiendo las obligaciones y deberes del respectivo cargo.

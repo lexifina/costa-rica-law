@@ -1,0 +1,1 @@
+Artículo 50.—La Junta Directiva o la Asamblea General podrán someter determinados asuntos a consideración del Comité Consultivo. Este Comité deberá emitir su opinión en el plazo que al efecto le haya fijado el órgano consultante.

@@ -1,0 +1,1 @@
+Artículo 19.—Todo miembro inscrito que se encuentre presente en la Asamblea tiene derecho a que se inserte su voto razonado en el acta. Para tales efectos, deberá entregar su razonamiento, por escrito, al Secretario de la Junta a más tardar dentro de las cuarenta y ocho horas siguientes a la sesión.

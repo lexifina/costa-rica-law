@@ -1,0 +1,1 @@
+Artículo 47.—El Tribunal de Honor deberá preparar y aprobar un Reglamento de Etica Profesional el cual incluirá las obligaciones, deberes y responsabilidades de los miembros del Colegio, así como las sanciones por su incumplimiento. Este Reglamento deberá ser sometido a consideración de la Junta Directiva, la cual en definitiva lo aprobará.

@@ -1,0 +1,1 @@
+Artículo 28.—La asistencia a las sesiones de Junta es obligatoria para sus miembros y para los miembros del Colegio que sean citados por ésta. Cualquier miembro del Colegio podrá asistir a las sesiones de Junta y podrá hacer uso de la palabra si así se lo autoriza el Presidente de ese órgano.

@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De los derechos y deberes de los miembros
+Artículo 10.—Los miembros activos del Colegio deberán cancelar la cuota mensual que al efecto establecerá la Asamblea a propuesta de la Junta Directiva. Si el asociado deja de cancelar tres o más cuotas mensuales, la Junta Directiva podrá ordenar la inmediata cancelación de la autorización para el ejercicio de la quiropráctica y de la condición de miembro del Colegio. Una vez que se ponga al día en el pago de las cuotas, más un veinticinco por ciento de exceso por concepto de recargo administrativo, deberá presentar los recibos de pago correspondientes ante la Secretaría de la Junta, la que lo someterá a consideración de la Junta para la activación de la condición de asociado y de la autorización para el ejercicio profesional.
+Los miembros activos del Colegio además estarán en la obligación de cancelar las cuotas extraordinarias que al efecto sean establecidas.
