@@ -1,0 +1,1 @@
+Artículo 4º.- El Poder Ejecutivo, conforme lo recomiende el Instituto Geográfico Nacional, establecerá por decreto los caseríos que correspondan a los nuevos distritos conforme avance la cartografía y podrá variarles el nombre, si se presentaren conflictos toponímicos, ajustándose para ello a lo que indica el artículo 4º de la ley Nº 3535 de 3 de agosto de 1965.

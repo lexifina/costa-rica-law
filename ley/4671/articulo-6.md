@@ -1,0 +1,1 @@
+Artículo 6º.- Los límites que aquí se indican, deberán ser ratificados en un plebiscito que se realizará en las áreas comprendidas entre el límite provincial anterior y el que se indica en el artículo 2º.
