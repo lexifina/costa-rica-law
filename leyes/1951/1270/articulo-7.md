@@ -16,7 +16,8 @@ Abril 1° 1951 | 128,333.00
 Mayo 1° 1951 | 128,333.00
 Junio 1° 1951 | 128,333.00
 Junio 30 1951 | 128,333.00
-d) Cualesquiera de los fondos depositados por el Instituto en la cuenta de STICA deberán ser cambiados al más alto tipo de cambio permitido y que se obtenga en el momento del cambio. .
+d) Cualesquiera de los fondos depositados por el Instituto en la cuenta de STICA deberán ser cambiados al más alto tipo de cambio permitido y que se obtenga en el momento del cambio.
 e) No se podrán girar o gastar los fondos que hayan sido depositados por una de. las partes, como su cuota mensual, hasta tanto la otra parte no haya hecho el depósito correspondiente al mismo período mensual. Los fondos depositados por una de las partes y no igualados por el correspondiente depósito de la otra parte, deberán ser devueltos a la parte contribuyente, a pesar de lo dispuesto en la Cláusula XIII.
 f) Las partes contratantes, por acuerdo escrito entre el Ministro y el Chief of Field Party, pueden reformar las fechas y disposiciones establecidas para hacer los depósitos requeridos en esta Cláusula VII.
-g) Las partes pueden acordar más adelante y por escrito, la cantidad de los fondos con que cada uno contribuirá y pondrá en disponibilidad para ser usados en la realización del programa durante el período comprendido entre el primero de julio de 1951 y el 30 de junio de 1955.
+g) Las partes posteriormente acordarán por escrito sobre la cantidad de fondos que cada una contribuirá al programa cooperativo anualmente para llevar a cabo dicho programa durante el período del 19 de julio de 1951 hasta la fecha de terminación de este acuerdo.
+(Así reformado el inciso anterior por el numeral 2 d) del artículo 1° de la Ley N° 1897 del 7 de julio de 1955)
