@@ -1,0 +1,1 @@
+Artículo 3º.-El demandado podrá contestar la demanda dentro de los ocho días siguientes al de la notificación del traslado. En el acto de la contestación podrá reconvenir al actor, exponiendo lacónicamente los hechos en que se basa y ofreciendo prueba sobre ellos. En tal caso, el alcalde dará al reconvenido el correspondiente traslado, dentro de las veinticuatro horas siguientes.

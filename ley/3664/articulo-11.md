@@ -1,0 +1,1 @@
+Artículo 11.-En lo que no se oponga a esta ley, para la tramitación de los asuntos a que la misma se refiere, se aplicarán supletoriamente, por su orden, las disposiciones del Código de Trabajo y del Código de Procedimientos Civiles.

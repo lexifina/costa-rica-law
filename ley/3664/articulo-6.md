@@ -1,0 +1,1 @@
+Artículo 6º.-Si el accionado no contesta la demanda dentro del término que al efecto se le concedió, o si se allana expresa y totalmente a ella, el alcalde procederá sin más trámite a dictar sentencia dentro de los cinco días siguientes, con base en los hechos aducidos por el actor y en las probanzas de autos.
