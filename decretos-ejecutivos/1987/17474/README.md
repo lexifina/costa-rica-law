@@ -1,0 +1,15 @@
+# Decreto Ejecutivo 17474
+
+Modificación Presupuestaria
+
+- Tipo: Decreto Ejecutivo
+- Número: 17474
+- Fecha: 1987-03-27
+- Publicación: La Gaceta N° 72 del 1987-04-14
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=26093&param2=27605&param3=1 (ficha 26093)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1987-04-14 | la propia norma |
