@@ -1,0 +1,1 @@
+Artículo 2°—Redefinir como Zona Protectora San Ramón el área establecida como Reserva Forestal por decreto ejecutivo N° 4960-A del 20 de junio de 1975, cuyos límites se encuentran establecidos en el artículo 1° del mismo decreto ejecutivo.

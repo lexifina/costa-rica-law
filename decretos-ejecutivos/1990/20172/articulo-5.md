@@ -1,0 +1,1 @@
+Artículo 5°—Deróganse los decretos ejecutivos N° 6934-A del 20 de abril de 1977, N° 4960-A del 26 de junio de 1975, el N° 8473-A de 24 de abril de 1978, excepto en lo correspondiente a la delimitación de las áreas definidas por los decretos N° 4960-A, en su artículo 1° y N° 8473-A en su artículo 2°, en lo concerniente a la Sección Miravalles.

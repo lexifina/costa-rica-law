@@ -1,0 +1,1 @@
+Artículo 3°—Redefinir como Zona Protectora Miravalles, el área establecida como Reserva Forestal por decreto ejecutivo N° 8473-A del 24 de abril de 1978, cuyos se encuentran establecidos en el artículo 2° del mismo decreto ejecutivo, en lo concerniente a la Sección del Volcán Miravalles.
