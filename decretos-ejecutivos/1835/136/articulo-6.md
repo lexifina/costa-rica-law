@@ -1,1 +1,0 @@
-Art. 6-Las ventas deben ser en lugares públicos y proporcionados, a fin de impedirse desordenes mediante el celo de las Justicias a quienes se encarga muy particularmente; no pudiendo pasar de una por cada permiso que se obtenga, y de la propia suerte las fabricas para proveerlas.

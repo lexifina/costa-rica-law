@@ -1,1 +1,0 @@
-Art. 9.-Las Municipalidades, luego que reciban la lista respectiva de que habla el artículo 5°, la harán publicar entre sus individuos para que entiendan los sitios donde deben celar, haciéndolo saber á los Pedáneos para el mismo fin.

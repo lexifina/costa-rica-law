@@ -1,1 +1,0 @@
-Art. 13.-El dueño de venta ó fabrica clandestina incurrirá, sin necesidad de aprension real, sinó justificandose legalmente, en la multa de veinticinco pesos aplicables al denunciante: é igualmente en la obligacion de pagar á la Hacienda pública, la cantidad de ciento veinte pesos que es el valor del permiso, y continuará de allí en adelante con su fabrica ó venta públicamente.

@@ -1,1 +1,0 @@
-Art. 14.-Las Justicias perseguirán por denuncio ó de oficio las fábricas y ventas clandestinas haciendo efectivas las penas del artículo anterior en terminación verbal, teniendo por parte á un asentista, y dando cuenta á la Contaduria con certificado de la terminacion á costa del condenado, para que ejecutada que sea la sentencia, se le dé la papeleta de permiso.

@@ -1,1 +1,0 @@
-Art. 7..-Por ningun pretesto se venderá en estas, ni podrá hacerse en aquellas antes de amanecer y pasadas las nueve de la noche, en cuya hora deben cerrarse bajo la multa de veinte pesos al dueño de puesto ó fabrica que de cualquier modo traspase este artículo, aplicables por terceras partes a la Hacienda publica, Juez y denunciante.
