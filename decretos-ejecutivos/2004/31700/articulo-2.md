@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese el artículo 55.1 del Decreto Ejecutivo N° 25234-MEIC - Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor N° 7472, publicado en el Alcance N° 38 a La Gaceta N° 124 del 01 de julio de 1996, para que se lea así: “55 bis”.

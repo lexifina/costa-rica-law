@@ -1,0 +1,1 @@
+Artículo 5º—Modifíquese el Decreto Ejecutivo N° 25234-MEIC Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor N° 7472, publicado en el Alcance N° 38 a La Gaceta N° 124 del 1º de julio de 1996, para que en todos los artículos donde se incluya la abreviatura “ONNUM” se sustituya por “LACOMET”.

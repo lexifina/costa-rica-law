@@ -1,0 +1,2 @@
+Artículo 9º—Reformar el artículo 3° del Decreto Ejecutivo N° 26012-MEIC, RTCR 100:1997. Etiquetado de los alimentos preenvasados del 15 de abril de 1997 publicado en La Gaceta N° 91 de 14 de mayo de 1997, para que en adelante se lea así:
+“Artículo 3º—El Ministerio de Economía, Industria y Comercio será, el organismo señalado para dictaminar cualquier asunto relacionado con el presente reglamento en el ámbito de sus competencias y en concordancia con lo dispuesto por la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y su reglamento. “

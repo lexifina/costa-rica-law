@@ -1,0 +1,6 @@
+Artículo 4º—Se modifica el inciso b) del numeral 43 del Decreto Ejecutivo N° 25234-MEIC Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor N° 7472, publicado en el Alcance N° 38 a La Gaceta N° 124 del 1º de julio de 1996, para que en adelante se lea de la siguiente forma:
+“Artículo 43º—Deber de brindar información real al consumidor.
+(...)
+b) Precios.
+En el caso de los bienes, deberá indicarse el precio al contado al menos en el empaque, el recipiente, el envase o la etiqueta del producto, la góndola o el anaquel del establecimiento. Los servicios comerciales deben exhibir sus precios de manera llamativa y fácilmente visibles, mediante listas, carteles, meñúes u otros. Los precios de los bienes y servicios deberán estar indicados de manera que no quede duda del monto final incluyendo todos impuestos cuando correspondan.
+En cuanto a la venta con entrega a domicilio y a la prestación de servicios técnicos o profesionales se deberá informar al cliente o consumidor sobre su costo exacto y completo, antes de formalizar la contratación. En cuanto a los servicios técnicos, deberá entregarse una cotización o presupuesto por escrito a solicitud del consumidor”.
