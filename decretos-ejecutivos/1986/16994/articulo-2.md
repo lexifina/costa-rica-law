@@ -1,0 +1,1 @@
+Artículo 2°.- Modificanse en lo conducente los decretos n° 14002-MEC del 2 de noviembre de 1982 y n°15136-MEC del 6 de enero de 1984, a efecto de que en adelante los artículos citados se comercialicen únicamente sujetos a los porcentajes máximos de utilidad fijados en el artículo anterior.
