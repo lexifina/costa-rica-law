@@ -1,4 +1,5 @@
 ARTÍCULO 10.- Para la ejecución del código presupuestario mi 109 Ministerio de Hacienda, Programa 131-00 Regularización del Catastro y Registro 664-37-132-12-200. Unidad Ejecutora Programa de Regularización del Catastro y Registro (incorporación de recursos crédito BID 1284/OC-CR, Ley No 8154), se aplicarán las siguientes regulaciones:
-1. La Unidad Ejecutora hará las contrataciones necesarias cumpliendo la totalidad de garantías laborales establecidas en la normativa costarricense y hará las retenciones correspondientes al pago de impuestos nacionales y municipales.
+1. La Unidad Ejecutora realizará las contrataciones necesarias, de conformidad con los procedimietos y las normas estipuladas en la ley N° 8154, Programa de Regularización del Catastro y registro.
+(Así reformado por el artículo 9 de la Ley N° 8341 de 27 de diciembre del 2002, Ley de Presupuesto Ordinario y Extraordinario del 2003)
 2. La Unidad Ejecutora rendirá cuentas a la Comisión Permanente Especial de Ingresos y Gasto Públicos de la Asamblea Legislativa mediante un informe en el que se especifiquen y relacionen los gastos e ingresos de cada mes, y un informe semestral en el que dará cuenta de los resultados y del impacto logrado por el proyecto en su población meta.
 3. Los desembolsos por parte del Ministerio de Hacienda se harán paulatinamente y conforme se vaya ejecutando el programa.
