@@ -1,1 +1,0 @@
-Artículo 7.- En la solicitud de Registro de sustancias, productos u objetos tóxicos o peligrosos, se deberá indicar el material, tipo y tamaño de los envases o empaques a ser utilizados en la comercialización, garantizando que el material utilizado en el envase es resistente a la acción física o química del producto, y a su manipulación.

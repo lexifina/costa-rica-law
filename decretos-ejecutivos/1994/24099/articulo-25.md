@@ -1,1 +1,0 @@
-Artículo 25.- El Departamento podrá solicitar los resultados de los precitados exámenes, cuando lo estime pertinente y le deberán ser remitidos todos los casos que resulten alterados producidos o que se sospeche relación con las labores que realizan los trabajadores.

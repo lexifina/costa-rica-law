@@ -1,1 +1,0 @@
-Artículo 67.- El Departamento podrá prohibir mediante Resolución, publicada en La Gaceta la importación, uso, introducción, almacenamiento y desecho en el territorio nacional de productos que puedan producir daño a la salud de las personas o al ambiente.

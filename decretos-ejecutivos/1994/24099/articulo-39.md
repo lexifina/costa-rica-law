@@ -1,1 +1,0 @@
-Artículo 39.- Todo permiso de funcionamiento por Primera Vez o su Renovación, deberá de contar previamente con la aprobación del Departamento de Control Ambiental en lo referente a funcionamiento, operación y mantenimiento de las plantas de tratamiento de aguas residuales, equipo de control de emisiones y disposición de otros tipos de desechos al ambiente extramuros.

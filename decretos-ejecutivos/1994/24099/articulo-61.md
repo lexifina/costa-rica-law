@@ -1,1 +1,0 @@
-Artículo 61.- Si el Ministro confirma en todo o en parte la resolución apelada, se informará al Departamento para que continúe el procedimiento partiendo del estado en que se encuentre el asunto en ese momento, adoptando las modificaciones ordenadas o pertinentes.

@@ -1,1 +1,0 @@
-Artículo 53.- Queda terminantemente prohibido la almacenamiento, venta, distribución, o suministro por personas naturales o jurídicas de sustancias, productos u objetos tóxicos o peligrosos sin el debido Permiso de Funcionamiento emitido por el Ministerio de Salud.

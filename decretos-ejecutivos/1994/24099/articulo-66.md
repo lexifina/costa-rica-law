@@ -1,1 +1,0 @@
-Artículo 66.- El Departamento tendrá amplias facultades para eximir al Registrante del registro de un producto, de la presentación de la información técnica que esté ya disponible en sus bases de datos. La anterior disposición será aplicable a las tintas, grasas y aceites, cuyo estudio técnico previo halla demostrado que no contienen sustancias tóxicas o peligrosas.

@@ -1,1 +1,0 @@
-Artículo 78.- Para los fines del artículo anterior, el Departamento será el ente encargado, a través del Registro de Sustancias Tóxicas o Peligrosas, de efectuar la vigilancia para que no se importen, exporten o transiten los desechos comprendidos en el Convenio de Basilea por el territorio nacional.

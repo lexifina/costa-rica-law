@@ -1,1 +1,0 @@
-Artículo 40.- El Ministerio a través de sus órganos competentes podrá revocar el Permiso de Funcionamiento para industria o el permiso sanitario de funcionamiento a toda persona natural o jurídica que venda sustancias o productos que puedan ser utilizados para usos de drogadicción.

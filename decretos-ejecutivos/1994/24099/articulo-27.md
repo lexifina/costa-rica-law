@@ -1,1 +1,0 @@
-Artículo 27.- Las personas naturales y jurídicas que almacenen sustancias, productos u objetos tóxicos o peligrosos, deben de contar con los respectivos Permisos de Ubicación y de Funcionamiento para la actividad que realicen, los cuales deben ser expedidos por el Departamento, y contar con un regente debidamente incorporado al Colegio Profesional correspondiente.

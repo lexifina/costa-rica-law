@@ -1,1 +1,0 @@
-Artículo 18.- Concedida la renovación de registro, al solicitante se le extenderá respectivo certificado debidamente sellado y con la firma del Director del Departamento y el jefe de la Sección de Productos Químicos.

@@ -1,1 +1,0 @@
-Artículo 47.- Controlada la emergencia el Departamento de Control Ambiental será el encargado de emitir el criterio técnico sobre el método para la disposición final de los desechos del producto involucrado.

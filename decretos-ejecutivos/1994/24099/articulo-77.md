@@ -1,1 +1,0 @@
-Artículo 77.- Se prohíbe la importación, exportación y tránsito por el territorio nacional de los desechos comprendidos en el Artículo l del Convenio de Basilea "Sobre el Control de los Movimientos Transfronterizos de los Desechos Peligrosos y su Eliminación", aprobado por Ley 7438.

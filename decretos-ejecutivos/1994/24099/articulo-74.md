@@ -1,1 +1,0 @@
-Artículo 74.- Deróguese el Decreto Ejecutivo 23313-S del 6 de mayo de 1994, excepto en lo estipulado y con los alcances señalados en los transitorios de este reglamento y deroga todos aquellos decretos o normas que se le opongan.

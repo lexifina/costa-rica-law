@@ -1,1 +1,0 @@
-Artículo 44.- Toda empresa donde ocurra una emergencia tecnológica, será sometida a la respectiva evaluación técnica por parte del Departamento, en coordinación con el Benemérito Cuerpo de Bomberos a través de su Departamento de Ingeniería de Riesgos, para lo que la persona natural o jurídica está en la obligación de suministrar la información que se considere necesaria.

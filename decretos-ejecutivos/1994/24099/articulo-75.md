@@ -1,1 +1,0 @@
-Artículo 75.- El Departamento se encargará de promover en coordinación con la Cámara de Industrias, la aplicación del Código Deontológico para el Comercio Internacional de Productos Químicos, elaborado por el Programa de Naciones Unidas para el Medio Ambiente.

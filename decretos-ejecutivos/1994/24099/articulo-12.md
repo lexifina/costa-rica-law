@@ -1,1 +1,0 @@
-Artículo 12.- Las sustancias, productos u objetos tóxicos o peligrosos, se clasificarán atendiendo a los riesgos que encierran su fabricación, almacenamiento, manipulación y uso, en las clases, categorías y subcategorías que se establecerán en la Norma respectiva que dictará el Ministerio de Economía Industria y Comercio, en coordinación con el Departamento.

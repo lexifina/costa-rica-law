@@ -1,1 +1,0 @@
-Artículo 21.- Los servicios de Aduana autorizarán únicamente el desalmacenaje de Sustancias, productos y objetos tóxicos o peligrosos, cuando estos cumplan con los requisitos establecidos en la Fórmula oficial de Autorización de Desalmacenaje y presenten esta debidamente aprobada por el Departamento.

@@ -1,1 +1,0 @@
-Transitorio IV.- En los casos que no exista una Norma Oficial sobre los aspectos contemplados en este Reglamento, el Departamento podrá aplicar Normas Técnicas que considere pertinentes para la salvaguarda de la salud y la seguridad de la población.

@@ -1,1 +1,0 @@
-Artículo 69.- El Departamento para el efectivo cumplimiento de lo que este Reglamento dispone, podrá requerir de todo ente de derecho público, la más estrecha colaboración. Las entidades anteriormente señaladas no podrán negar su colaboración.

@@ -1,1 +1,0 @@
-Artículo 71.- La Cámara de Insumos Agropecuarios distribuirá los formularios de inscripción y otros requeridos para la aplicación de este Reglamento cuyo costo será pagado por el interesado, acorde al Convenio existente entre la Cámara de Insumos Agropecuarios y el Ministerio de Salud.
