@@ -1,0 +1,1 @@
+Articulo 2° Para tener derecho a matricula en estas escuelas es indispensable presentar el Certificado de Conclusión de estudios de las Escuelas Primarias. No obstante, a las prácticas podrán concurrir las señoritas que no posean este certificado, pero no podrán aspirar al título de que habla el artículo cuarto.

@@ -1,0 +1,1 @@
+Artículo 3° La Escuela de Artes Domesticas será regentada, por una Directora, con clases a su cargo, y el cuerpo de profesoras indispensables para el servicio. El Inspector del Circuito correspondiente ejercerá la debida vigilancia sobre estos planteles.
