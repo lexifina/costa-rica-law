@@ -1,0 +1,1 @@
+Art. 35.—El desempeño del puesto de miembro de las Juntas de Educación es carga pública; pero el que lo sirve, mientras dure en sus funciones, está exento de todo servicio militar y de policía, salvo el caso de guerra exterior.

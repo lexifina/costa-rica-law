@@ -1,0 +1,1 @@
+Art. 95.—La recaudación de las rentas expresadas en el artículo anterior, se, verificará por el Tesorero de los fondos del distrito en la forma y según las reglas establecidas hoy para su percepción por los Tesoreros cantonales.

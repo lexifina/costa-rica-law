@@ -1,0 +1,1 @@
+Art. 76.—En los días lectivos, durante las horas de asistencia á la escuela, no podrán ser ocupados los escolares en haciendas, talleres, casas de comercio, casas particulares, etc., en asunto ajeno á la enseñanza, salvo licencia especial escrita del maestro ó de la Junta local de instrucción pública.

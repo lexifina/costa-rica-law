@@ -1,0 +1,1 @@
+Art. 103.—El pago debe hacerse al Tesorero de la Junta, y cuando más tarde, dentro de los diez días siguientes al del vencimiento: el contribuyente moroso pagará un recargo de diez por ciento, que se exigirá con el principal por medio de apremio personal.

@@ -1,0 +1,1 @@
+Art. 134.—Para la comparecencia de las personas cuyo testimonio solicite el responsable dentro de las setenta y dos horas, prestará la autoridad todos los auxilios de que disponga. Las pruebas inoficiosas encaminadas á entorpecer el procedimiento, pueden ser desechadas desde luego.

@@ -1,0 +1,1 @@
+Art. 127.—Los maestros deberán ser oídos, y se les admitirán todas las pruebas que produjeren en su descargo, para lo cual tendrán el término que se les señale, no menor de ocho ni mayor de quince días.

@@ -1,0 +1,1 @@
+Art. 51.—Estas pensiones serán pagadas de las rentas del fondo escolar de pensiones, el cual será formado con las sumas que la Nación, los particulares ó las asociaciones destinen á este objeto, y con el uno por ciento anual del sueldo que corresponda á los maestros, que será descontado cada trimestre.

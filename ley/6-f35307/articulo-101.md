@@ -1,0 +1,1 @@
+Art. 101.—Pasado el termino dicho, la Junta, con presencia de las observaciones que se hubieren hecho contra el detalle, lo confirmará ó reformará como convenga, fijando el número de partes en que ha de dividirse la cuota señalada, y las fechas en que deben verificarse los pagos.
