@@ -1,0 +1,1 @@
+Artículo 7º—La Municipalidad llenará un registro de Organizaciones Sociales del Distrito, donde constará el tipo de Organización, número de cédula jurídica, domicilio social, representantes legales y plazo de su nombramiento, estatutos y cualquiera otra información útil en la Gestión Municipal.
