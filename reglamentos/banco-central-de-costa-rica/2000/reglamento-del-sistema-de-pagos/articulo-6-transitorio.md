@@ -1,0 +1,1 @@
+Transitorio VI.—El esquema tarifario definido en este reglamento, regirá a partir del primer día hábil del mes subsiguiente a la entrada en vigencia del presente reglamento, con excepción de las tarifas citadas en el siguiente transitorio.

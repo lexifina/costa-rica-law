@@ -1,0 +1,1 @@
+Artículo 36.—En el momento en que los títulos mantenidos en garantía para la liquidación de la CLC sean inmovilizados en calidad de garantía de un crédito concedido por parte del BCCR, el participante deberá constituir una nueva garantía por este concepto, por un monto igual al requerido en ese momento según este Reglamento.

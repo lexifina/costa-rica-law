@@ -1,0 +1,1 @@
+Artículo 51.—El esquema óptimo de envío de transferencias establecido en el artículo anterior, será determinando individualmente para cada una de las monedas, además será aplicable a aquellas transferencias efectuadas entre las entidades participantes en los servicios del SINPE, exceptuando las transacciones enviadas al BCCR y al Ministerio de Hacienda.

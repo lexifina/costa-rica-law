@@ -1,0 +1,1 @@
+Artículo 38.—El monto del promedio móvil de los débitos netos de los últimos dos meses calendario se calculará el último día hábil de cada semana y el saldo de títulos mantenidos como garantía para la liquidación de la CLC deberá ser actualizado a más tardar a las once horas del primer día hábil de la semana subsiguiente.

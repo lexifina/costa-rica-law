@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+Transitorio I.—La compensación de los cheques de las demás regiones, no incluidas dentro de la Zona Central, bajo el esquema de acreditación al cliente a más tardar a las catorce horas del segundo día hábil, se implementará a partir del 1º de febrero del 2001. Antes de esta fecha, los cheques recibidos en zonas distintas a la Zona Central, deberán ser presentados al cobro a más tardar dos días hábiles posteriores a su recibo, debiendo cumplirse a partir de ese momento con los plazos y términos definidos para el ciclo de CLC.

@@ -1,0 +1,1 @@
+Artículo 37.—El valor negociable de los títulos dados en calidad de garantía para la liquidación de la CLC, así como cualquier actualización sobre este valor, se deberá efectuar con base en la valoración utilizada por la Bolsa Nacional de Valores.

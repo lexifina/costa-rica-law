@@ -1,0 +1,1 @@
+Artículo 15.—El BCCR deberá disponer de una base de datos estadística de información, referente a las transacciones efectuadas por las entidades financieras en el Sistema de Pagos, para lo cual dichas entidades deberán proveer al ente emisor la información requerida, de conformidad con las especificaciones definidas en la norma operativa correspondiente.

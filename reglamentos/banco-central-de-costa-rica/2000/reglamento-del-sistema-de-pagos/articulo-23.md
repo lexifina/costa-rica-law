@@ -1,0 +1,1 @@
+Artículo 23.—Los cuentacorrentistas del BCCR podrán obtener información de los saldos y operaciones de su Cuenta Corriente de Reserva a través del servicio de ICR que el BCCR tiene a su disposición a través de la red del SINPE.

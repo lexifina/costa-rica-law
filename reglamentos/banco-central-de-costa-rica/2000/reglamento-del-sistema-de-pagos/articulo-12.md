@@ -1,0 +1,1 @@
+Artículo 12.—Cada asociado por medio de su representante legal deberá autorizar dos o más funcionarios quienes actuarán como responsables de la administración de los usuarios por servicio de su entidad, y además deberán mantener actualizados en el BCCR, los registros concernientes a las personas autorizadas por ellos, para ejercer dicha función.

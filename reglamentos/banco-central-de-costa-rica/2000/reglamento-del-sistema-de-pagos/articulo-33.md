@@ -1,0 +1,3 @@
+CAPITULO IV
+Del mecanismo de garantía para la liquidación de la Cámara
+Artículo 33.—Con el objetivo de garantizar la liquidación de la CLC, cada participante deberá mantener en calidad de garantía, títulos de deuda emitidos por el Gobierno Central o por el BCCR, con un valor negociable igual al monto del promedio móvil de sus débitos netos de la CLC, tanto en colones como en US dólares, durante los últimos dos meses calendario. Estos títulos deberán ser depositados en una central de valores y registrados en una subcuenta específica del participante para este propósito. Para ello, se deberá suscribir un contrato de fideicomiso entre el participante, la Central de Valores y el BCCR.

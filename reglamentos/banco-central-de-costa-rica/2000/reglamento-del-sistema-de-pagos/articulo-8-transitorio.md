@@ -1,0 +1,1 @@
+Transitorio VIII.—Todas las entidades conectadas al SINPE, dispondrán de un plazo de 2 meses a partir de la entrada en vigencia del presente reglamento para realizar las gestiones necesarias ante el Instituto Costarricense de Electricidad (ICE) para adquirir sus propias líneas dedicadas de conexión.

@@ -1,0 +1,1 @@
+Artículo 4°—La Dirección Técnica del Sistema de Pagos publicará en la red del SINPE, cuando proceda, un "Boletín" para cada uno de los servicios en operación, el cual constituirá el medio oficial de comunicación del BCCR a los participantes, acerca de los diferentes aspectos operativos de cada servicio.
