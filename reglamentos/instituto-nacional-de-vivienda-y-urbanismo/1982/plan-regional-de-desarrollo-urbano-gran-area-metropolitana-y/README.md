@@ -22,3 +22,4 @@ Plan Regional de Desarrollo Urbano Gran Area Metropolitana y sus anexos
 | 7 | 1993-03-25 | Reglamento 4295 (1993-03-25) |
 | 8 | 1997-02-12 | Decreto Ejecutivo 25902 (1997-02-12) |
 | 9 | 2000-11-09 | Reglamento 0 (2000-11-09) |
+| 10 | 2001-03-28 | Decreto Ejecutivo 29415 (2001-03-28) |
