@@ -1,6 +1,6 @@
 (*) TITULO III
 Disposiciones sobre encaje mínimo legal
-(**)CAPITULO I
+(*) CAPITULO I
 Requisito de encaje mínimo legal
 A. Entidades sujetas al requisito de encaje
 Estarán sujetas al requisito de encaje mínimo legal las siguientes entidades:
@@ -23,15 +23,13 @@ ii. Los fideicomisos y contratos de administración que emiten algún tipo de pa
 iii. Los mecanismos de administración de carteras de títulos que mantienen los puestos de bolsa, tales como los denominados OPAB, CAV, OMED o similares.
 C. Tasas de encaje
 Las tasas de encaje mínimo legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
-1- El 10% sobre el total de los depósitos y obligaciones en moneda nacional, así como de las operaciones de captación de recursos en moneda nacional realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
+(*) 1. El 10% sobre el total de los depósitos y obligaciones en moneda nacional, así como de las operaciones de captación de recursos en moneda nacional realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
 Fecha | Tasa
 A partir del: |
-15 de octubre, 1999 | 14%
-1º de abril, 2000 | 13%
-1º de octubre, 2000 | 12%
-1º de abril, 2001 | 11%
-1º de octubre, 2001 | 10%
-2- El 5% sobre el total de los depósitos y obligaciones en moneda extranjera, así como de las operaciones de captación de recursos en moneda extranjera realizadas mediante fideicomisos o contratos de administración.
+1° de marzo, 2000 | 12%
+1° de abril, 2001 | 11%
+1° de octubre, 2001 | 10%”
+(*) (Así reformado el numeral anterior en sesión N° 5024 del 9 de febrero de 2000)
 D. Excepciones y deducciones
 1- Se exceptúan del requerimiento de encaje mínimo legal las operaciones originadas en empréstitos externos y los recursos recibidos por la banca estatal de entidades financieras privadas en cumplimiento de las condiciones establecidas, para estas últimas, para tener acceso al redescuento o poder captar depósitos en cuenta corriente, según lo estipulado en los artículos 52 de la Ley Orgánica del Banco Central de Costa Rica y 59 de la Ley Orgánica del Sistema Bancario Nacional.
 2- Las entidades sujetas a control de la Superintendencia General de Entidades Financieras podrán deducir de sus obligaciones sujetas a encaje los depósitos e inversiones que hagan en instrumentos financieros o bursátiles sujetos al requerimiento de encaje mínimo legal. En el caso de las Entidades Financieras Privadas no pueden deducir los fondos mantenidos en los bancos estatales en cumplimiento de las condiciones establecidas para poder captar depósitos en cuenta corriente o tener acceso al redescuento. Los instrumentos financieros o bursátiles pueden ser deducidos en el tanto la entidad financiera sea la propietaria de los contratos y los títulos y sean contabilizados en sus balances como parte de sus activos (no en cuentas de orden). Si los instrumentos son vendidos, en firme o a plazo, o traspasados a otra entidad, no se aplica dicha rebaja.
@@ -45,7 +43,7 @@ a) Los fideicomisos o contratos de administración que se constituyen exclusivam
 b) La captación de recursos para capital de trabajo o para el financiamiento de proyectos de inversión de carácter no financiero de las empresas emisoras o subsidiarias registradas ante la Superintendencia General de Valores, según lo dispuesto en el Artículo 116 de la Ley Orgánica del Banco Central de Costa Rica.
 5- Estarán exceptuadas de los requisitos de encaje mínimo legal mencionados en el numeral 1 anterior, las entidades que entren en un proceso de liquidación de conformidad con las leyes pertinentes y que al mismo tiempo hayan cesado de realizar intermediación financiera, según lo haga constar ante la Gerencia del Banco Central de Costa Rica el Organo Supervisor competente, así como constancias de que se han adoptado las medidas necesarias para asegurar la correcta liquidación de la entidad en beneficio de los intereses de los ahorrantes relacionados.
 Asimismo, la Gerencia del Banco Central de Costa Rica podrá eximir del requisito de encaje mínimo legal, previa recomendación del interventor y del Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF), a aquellas entidades sometidas a procesos de intervención derivados de problemas de liquidez extremos, para que con los recursos del encaje mejore las condiciones y se protejan los intereses de los ahorrantes. Los procedimientos que se seguirán para tales efectos se indican en el Capítulo IV de este Título.
-(**) (Así sustituído este capítulo en sesión N° 5007 del 16 de setiembre de 1999)
+(*) (Nota: Este Capítulo fue sustituído en sesión N° 5007 del 16 de setiembre de 1999)
 (*) CAPITULO II
 CONTROL DE LA SITUACIÓN DE ENCAJE
 A. El cálculo del requerimiento del encaje se realizará sobre el promedio de saldos diarios de las operaciones sujetas a este requisito, de una quincena natural, esto es, del 1 al 15 y del 16 al 30 ó 31 de cada mes. En el cálculo intervendrán todos los días de la quincena, para los fines de semana y días feriados se repite la información del último día hábil anterior.
