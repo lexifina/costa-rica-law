@@ -14,3 +14,4 @@ Reglamento de Evaluación de los Aprendizajes MEP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-16 | la propia norma |
+| 2 | 2001-02-02 | Decreto Ejecutivo 29373 (2001-02-02) |
