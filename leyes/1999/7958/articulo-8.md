@@ -1,0 +1,2 @@
+Artículo 8°-Verificación de las declaraciones juradas. Cuando exista duda sobre la veracidad de la declaración jurada, la Municipalidad podrá exigir a las personas físicas o jurídicas, declarantes o no del impuesto sobre la renta, una certificación sobre el volumen de los ingresos anuales, extendida por un contador público autorizado. Esta certificación correrá por cuenta del contribuyente.
+Si se comprueba que efectivamente existen inexactitudes, la Municipalidad, de oficio, podrá determinar las tarifas.
