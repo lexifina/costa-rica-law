@@ -1,0 +1,1 @@
+Artículo 2°—El fin de este servicio es brindar apoyo a los vecinos, empresarios y agricultores cuando necesitan realizar trabajos que requieren el uso de maquinaria pesada y que estén imposibilitados en encontrar empresas que presten este tipo de servicio.
