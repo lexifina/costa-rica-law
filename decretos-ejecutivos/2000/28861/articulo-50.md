@@ -1,0 +1,1 @@
+Artículo 50.—Publicidad de Medicamentos Veterinarios: Ningún medicamento veterinario puede ser promocionado publicitariamente sin estar debidamente registrado en el Ministerio. La propaganda de los medicamentos veterinarios estará sujeta a lo dispuesto por el artículo 141 de la Ley General de Salud y su respectivo Reglamento.

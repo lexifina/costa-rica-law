@@ -1,0 +1,1 @@
+Artículo 18.—El registrante podrá solicitar al Departamento, una reclasificación de un medicamento veterinario a otro Grupo, en virtud de nuevos estudios farmacológicos o por razones intrínsecas del producto. Toda solicitud en ese sentido, deberá ir acompañada de los atestados científicos que apoyen la petición.

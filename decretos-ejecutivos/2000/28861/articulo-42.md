@@ -1,0 +1,1 @@
+Artículo 42.—De las responsabilidades en la operación de establecimientos farmacéuticos veterinarios: El Regente Veterinario, solidariamente con el propietario del laboratorio fabricante, droguería o farmacia veterinaria, son responsables de las contravenciones a las disposiciones de este Reglamento derivadas de la mala operación del establecimiento.

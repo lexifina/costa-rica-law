@@ -1,0 +1,1 @@
+Artículo 14.—Elección de recinto y horario de sesiones: Cada año, en la primera sesión de la Comisión, sus miembros elegirán un Vicepresidente y designarán el recinto de sesiones y el horario para sesionar. Serán funciones del Vicepresidente sustituir al Presidente en ausencia de éste.

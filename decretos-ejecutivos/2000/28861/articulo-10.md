@@ -1,0 +1,1 @@
+Artículo 10.—Duración del nombramiento: Los miembros de la Comisión ocuparán sus puestos por un período de cuatro años, pudiendo ser reelectos, excepto el representante de la Cámara de Insumos Agropecuarios, quienes ocuparán el puesto por un año y no podrán ser reelectos para períodos consecutivos.

@@ -1,0 +1,1 @@
+Transitorio I: En un plazo de 6 meses a partir de la publicación del presente Decreto, el Ministerio oficializará las normas de control de calidad de medicamentos veterinarios del grupo dos y biológicos veterinarios, que aplicará de acuerdo con lo aquí establecido.

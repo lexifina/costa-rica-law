@@ -1,0 +1,1 @@
+Artículo 25.—Desalmacenaje de Aduana: Para efectuar el desalmacenaje de aduana de un medicamento veterinario, el interesado deberá presentar autorización de desalmacenaje del Departamento, la cual deberá ser emitida por éste en un máximo de un día hábil.

@@ -1,0 +1,1 @@
+Artículo 6º—Presupuesto del Departamento: Los fondos recaudados en virtud de la tasa de registro, así como aquellos generados por la venta de servicios que realice el Departamento serán ingresados en los fondos separados que maneja la Dirección de Salud Animal del Ministerio

@@ -1,0 +1,1 @@
+Artículo 11.—Designación de nuevos representantes: El Jefe del Departamento, tres meses antes de cumplirse el período de nombramiento de los miembros indicados en el Artículo anterior, enviará de oficio la comunicación a sus respectivas instituciones para que procedan a la designación del nuevo representante para el siguiente período.

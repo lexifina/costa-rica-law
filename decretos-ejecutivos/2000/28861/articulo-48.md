@@ -1,0 +1,3 @@
+Artículo 48.—Etiquetas de Muestras Médicas: Todo medicamento veterinario catalogado como "muestra médica veterinaria", debe tener la leyenda "MUESTRA MÉDICA" y su entrega estará sujeta a lo que dispone el artículo 140 de la Ley General de Salud.
+La información incluida deberá contener al menos la lista completa de ingredientes activos, forma de administración adecuada y contraindicaciones.
+Queda prohibida la venta y comercio de muestras de medicamentos veterinarios, así como la exposición de éstos en los establecimientos que comercialicen estos productos sin perjuicio de lo dispuesto en el artículo 140 de la Ley General de Salud.

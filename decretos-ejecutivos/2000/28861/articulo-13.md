@@ -1,0 +1,1 @@
+Artículo 13.—Funciones del Secretario: Serán funciones del Secretario, convocar a las sesiones ordinarias y redactar las actas, que serán firmadas por los miembros de la Comisión que estuvieren presentes.

@@ -1,0 +1,3 @@
+Artículo 40.—De las normas para la venta de medicamentos del Grupo 2 a Farmacias y al público: Las Farmacias veterinarias comprarán los medicamentos veterinarios del Grupo 2 a las Droguerías veterinarias mediante una orden de compra oficial confeccionada y controlada por el Departamento.
+Venderán los medicamentos del Grupo 2, únicamente contra la presentación de la respectiva receta de medicamentos veterinarios de uso restringido. La copia para la Farmacia veterinaria deberá ser archivada y custodiada por el Regente del establecimiento por un período de al menos 3 años.
+Queda prohibida la venta al público, de los medicamentos veterinarios del Grupo 2 sin la presentación de la respectiva receta.

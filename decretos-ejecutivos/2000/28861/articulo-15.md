@@ -1,0 +1,1 @@
+Artículo 15.—Adopción de acuerdos y declaración de firmeza: Todos los acuerdos de la Comisión deberán ser adoptados por mayoría simple de los miembros presentes y adquirirán firmeza en la siguiente sesión, salvo aquellos acuerdos adoptados por unanimidad de votos los cuales adquieren firmeza de inmediato.

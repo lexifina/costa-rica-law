@@ -1,0 +1,1 @@
+Artículo 12.—Funciones del Presidente: Serán funciones del Presidente, presidir las sesiones ordinarias, y dirimir con doble voto los empates que se presenten en las votaciones; asimismo deberá convocar a sesiones extraordinarias cuando así lo soliciten tres miembros de la Comisión o su Secretario.

@@ -1,0 +1,1 @@
+Artículo 49.—Etiquetas de Productos Homeopáticos: Las etiquetas de los productos homeopáticos que no pueden demostrar su efectividad, no podrán contener indicaciones terapéuticas ni incluir la frase "producto homeopático de uso veterinario" o de uso en la especie animal a la que se destina.

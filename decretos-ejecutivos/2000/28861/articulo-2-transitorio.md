@@ -1,0 +1,1 @@
+Transitorio II: Para los efectos del artículo 5º inciso h), los mecanismos de verificación y control del manejo, prescripción, venta y uso de los medicamentos veterinarios de uso restringido, serán adoptados vía reglamento del Ministerio y publicados en el periódico oficial La Gaceta, dentro del plazo máximo de 9 meses a partir de la entrada en vigencia de este decreto.

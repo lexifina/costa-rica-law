@@ -1,0 +1,4 @@
+Artículo 9º—Requisitos para la designación en la Comisión: Para ser designado como miembro de la Comisión, se debe cumplir con lo siguiente:
+a) Tener conocimientos técnicos, académicos y prácticos en materia de medicamentos veterinarios.
+b) Carecer de vínculo de parentesco por afinidad o consanguinidad hasta el tercer grado inclusive; vínculo laboral, profesional, de amistad íntima o enemistad, con personas físicas que directamente o mediante entidades jurídicas se dediquen o funjan con importadores, fabricantes o distribuidores de medicamentos, que se encuentren ejerciendo dicho giro al momento de su nominación. Esta restricción no operará en relación con el representante de la Cámara de Insumos Agropecuarios. Los nombramientos deberán constar en un comunicado de la Dirección de Salud Animal.
+c) Ser profesional en Medicina Veterinaria.

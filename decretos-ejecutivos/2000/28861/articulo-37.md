@@ -1,0 +1,1 @@
+Artículo 37.—Autorización de comercialización de medicamentos veterinarios: Toda persona física o jurídica que fabrique, importe, reempaque o reenvase medicamentos veterinarios, podrá comercializarlos únicamente si éstos están autorizados en el Departamento y si cuentan con las autorizaciones de los Colegios de Farmacéuticos y Médicos Veterinarios.
