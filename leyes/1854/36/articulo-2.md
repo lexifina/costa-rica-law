@@ -1,0 +1,3 @@
+Art 2°.- Esta aprobación se entienda con la condición de que se establezca en la contrata un artículo adicional en estos términos: “ Si el concesionario no hiciere uso entre el término de diez años, de las gracias que en esta contrata se le acuerdan, bien sea no emprendiendo trabajo alguno en el sitio cedido, o bien no introduciendo colones, en tal caso, el Gobierno de la República está facultada para retirar esta concesión.
+-Al Poder Ejecutivo.- Dado en el Salón de sesiones, en San José, a los once días del mes de julio de mil ochocientos cincuenta y cuatro.
+Por tanto: Ejecútese.- Palacio Nacional, Sa José, julio trece de mil ochocientos cincuenta y cuatro.
