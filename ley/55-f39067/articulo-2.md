@@ -1,0 +1,11 @@
+Artículo 2°.- La aplicación de los Convenios mencionados en
+el artículo anterior se hará necesariamente por intermedio del
+Departamento Emisor del Banco Nacional de Costa Rica, que será
+el único agente y depositario del Gobierno Nacional en sus
+relaciones con el Fondo Monetario Internacional y el Banco
+Internacional de Fomento y Reconstrucción. En todos los casos
+en que dichos Acuerdos establezcan la intervención de los paises
+asociados, ya sea para la introducción, discusión o resolución
+de cualquier asunto, la intervención de la República de Costa
+Rica será ejercida por el Consejo Directivo del Departamento
+Emisor.
