@@ -1,0 +1,1 @@
+Artículo 7º—Al segregarse las proporciones adjudicadas de conformidad con el artículo número dos de la Ley número siete mil quinientos noventa y nueve, no será necesaria la descripción del resto que se reserve el Instituto de Desarrollo Agrario de la finca que se inscribirá conforme con lo descrito en el artículo primero de este Decreto.
