@@ -1,0 +1,11 @@
+Nº 29539-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+De conformidad con las facultades que les confieren el artículo 140, incisos 3) y 18) de la Constitución Política y el artículo 25 de la Ley General de la Administración Pública, y la Ley Integral para la Persona Adulta Mayor Nº 7935 del 15 de noviembre de 1999, y
+Considerando:
+1º—Que el Estado debe incluir en las políticas públicas, programas y servicios de sus instituciones, para impulsar la atención integral de las personas adultas mayores, debido a que el envejecimiento de la población es un fenómeno que afecta cada vez más países en el Mundo y Costa Rica es uno de los que experimenta este fenómeno en forma acelerada.
+2º—Que actualmente se estima que la población costarricense de 60 años y más es de aproximadamente 282.000 personas, lo cual representan un 9% de la población total y para el año 2025 podrá llegar al orden de 865.000 y al 15% de la población total.
+3º—Que el Hospital Nacional de Geriatría y Gerontología Dr. Raúl Blanco Cervantes, que brinda atención especializada a las personas mayores de 60 años con problemas médicos múltiples, actualmente se enfrenta al hecho de atender a personas adultas mayores en instalaciones que originalmente fueron diseñadas, para la atención de otra especialidad; lo cual ha ocasionado que la planta física haya sufrido cambios parciales.
+4º—Que la Fundación Cadena Mayor PRO- Hospital Nacional de Geriatría y Gerontología Doctor Raúl Blanco Cervantes y la Asociación PRO- Hospital Nacional de Geriatría y Gerontología Doctor Raúl Blanco Cervantes son organizaciones sin fines de lucro que coordinan el Proyecto Maratónica Pro- HOSPITAL Nacional de Geriatría y Gerontología Dr. Raúl Blanco Cervantes con el objetivo de apoyar el mejoramiento de la infraestructura del Hospital Nacional de Geriatría y Gerontología Dr. Raúl Blanco Cervantes y fortalecer los esfuerzos nacionales sobre la temática de las personas adultas mayores y llamar la atención sobre los derechos de este grupo de la población. Por tanto,
+Decretan:
+Artículo 1º—Se declara de Interés Nacional y Público el Proyecto Maratónica Pro Hospital Nacional de Geriatría y Gerontología Dr. Raúl Blanco Cervantes con el objetivo de realizar la construcción de un edificio de 3 850 m2 en el ala sur del hospital.
