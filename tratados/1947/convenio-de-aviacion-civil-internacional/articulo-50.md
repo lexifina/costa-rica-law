@@ -1,6 +1,7 @@
 CAPITULO IX
 EL CONSEJO
 Artículo 50
-El Consejo será un cuerpo permanente, responsable ante la Asamblea y estará compuesto por veintiún Estados contratantes elegidos por aquélla. Se efectuará una elección en la primera reunión de la Asamblea y en lo sucesivo cada tres años. Los miembros elegidos desempeñarán sus cargos hasta la próxima elección.
+(a) El Consejo será un cuerpo permanente, responsable ante la Asamblea y estará compuesto por veintisiete Estados contratantes elegidos por aquélla. Se efectuará una elección en la primera reunión de la Asamblea y en lo sucesivo cada tres años. Los miembros elegidos desempeñarán sus cargos hasta la próxima elección.
+Modificado en el 13º período de sesiones (extraordinario) de la Asamblea de la Organización de Aviación Civil Internacional, el 19 de junio de 1961, entró en vigor el 17 de julio de 1962.
 (b) Al elegir los miembros del Consejo, la Asamblea asignará la debida representación (1) a los Estados de mayor importancia en el transporte aéreo; (2) a los Estados que no estén representados de otro modo y que más contribuyan a proveer facilidades para la navegación aérea civil internacional; y (3) a los Estados que no estén representados de otra manera y cuya designación garantice que todas las principales regiones geográficas del mundo estén representadas en el Consejo. La Asamblea llenará las vacantes del Consejo a la brevedad posible y el Estado contratante así elegido para el Consejo ejercerá sus funciones durante el resto del período que corresponda su predecesor.
 (c) Ninguno de los representantes de los Estados contratantes en el consejo podrá estar asociado activamente a la explotación de servicio alguno aéreo internacional ni interesado en el financieramente.
