@@ -1,0 +1,1 @@
+Artículo 5°—La Municipalidad prestara sus servicios en la forma más enciente que sus recursos y circunstancias lo permitan y tornara las medidas necesarias para asegurar el sostenimiento, desarrollo y ampliación del servicio.

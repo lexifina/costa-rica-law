@@ -1,0 +1,1 @@
+Artículo 16.—La Municipalidad bajo ninguna circunstancia autorizara acometidas mayores a 12 milímetros de diámetro, excepción hecha a instituciones públicas o industrias que ameriten una acometida mayor para el normal funcionamiento de las mismas, en cuyo caso debe ser demostrada dicha situación por el interesado.
