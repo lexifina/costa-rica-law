@@ -1,0 +1,1 @@
+Artículo 8°—No se podrán adquirir compromisos que excedan la capacidad de ingresos para el ejercicio presupuestario correspondiente. La junta directiva que aprobare lo contrario, deberá responder con su propio pecunio, de conformidad con lo que establece la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 9°—A más tardar el 1° de setiembre de 1991, presentarán para el análisis y dictamen correspondiente los proyectos de presupuesto ante la Secretaría Técnica de la Autoridad Presupuestaria, incluyendo el detalle de los recursos empleados en los proyectos a desarrollar durante el período, con indicaciones de metas cuantificadas, objetivos y cronogramas claramente definidos.

@@ -1,0 +1,2 @@
+Artículo 17.—Antes del 1° de julio de 1991, las instituciones y empresas públicas sujetas a lineamientos específicos deberán presentar a la Secretaría Técnica los proyectos de presupuesto para el año siguiente.
+En caso de que la Secretaría Técnica objete el proyecto de presupuesto, lo devolverá a la institución de origen, la que deberá presentarlo de nuevo con los cambios correspondientes, en un plazo de ocho días naturales a partir de la fecha de devolución.

@@ -1,0 +1,1 @@
+Artículo 13.—La Secretaría Técnica tramitará un máximo de diez modificaciones externas al presupuesto vigente, durante el período comprendido entre el 1" de enero y el 30 de setiembre de 1992, las cuales deberán respetar la especificación señalada por la Contraloría General de la República.
