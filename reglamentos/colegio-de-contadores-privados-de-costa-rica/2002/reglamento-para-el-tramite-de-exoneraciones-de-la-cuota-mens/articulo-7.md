@@ -1,0 +1,1 @@
+Artículo 7º—Las solicitudes de exoneración del pago de la cuota mensual de la colegiatura deberán presentarse completas ante la Fiscalía Administrativa del Colegio, de conformidad con lo que se indica en el artículo 6 de este Reglamento, a su vez, la remitirán a la Comisión de Fiscalía, quienes después del estudio pertinente recomendarán o no su aprobación.

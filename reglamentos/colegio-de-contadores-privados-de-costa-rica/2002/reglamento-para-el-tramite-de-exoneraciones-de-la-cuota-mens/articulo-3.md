@@ -1,0 +1,1 @@
+Artículo 3º—El 50% del pago de la cuota no exonerada se distribuirá de la siguiente forma: el 100% de las cuotas vigentes para el FASMU, el FOMYS y cuota de Colegiatura legalmente establecida, el 50% para el CECAP y FOCORE y el remanente para la administración del Colegio.

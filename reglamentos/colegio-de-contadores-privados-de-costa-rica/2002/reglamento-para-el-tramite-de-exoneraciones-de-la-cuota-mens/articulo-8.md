@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión de Fiscalía, una vez determinado lo indicado en el artículo 7, elevará la solicitud a conocimiento de la Junta Directiva, para el pronunciamiento final, que será comunicado al Departamento de Plataforma de Servicios para su debido registro y al interesado. Una copia de la resolución, quedará en el expediente del colegiado.

@@ -1,0 +1,1 @@
+Artículo 5º—El Contador Privado Incorporado a quien se exonere del pago de la cuota mensual de colegiatura, continuará disfrutando de todos los privilegios que le otorgan la Ley y sus Reglamentos, como miembro activo del Colegio y se contará con su participación en la diferentes actividades que realice la Institución.

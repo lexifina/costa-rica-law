@@ -1,0 +1,1 @@
+Artículo 2º—El beneficio de exoneración será del 50%, del pago de la cuota mensual de Colegiatura, el cual se crea como un auxilio de índole económico-social para los Contadores Privados Incorporados, que cumplan sesenta y cinco años de edad y treinta y cinco años de colegiatura.
