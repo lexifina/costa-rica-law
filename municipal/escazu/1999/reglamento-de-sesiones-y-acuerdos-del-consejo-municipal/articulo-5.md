@@ -1,0 +1,1 @@
+Artículo 5°—Los Regidores que no son miembros de una determinada Comisión, podrán asistir a ella sin voz. ni voto, únicamente como expectadores. a menos que la Comisión por mayoría simple acuerde que el Regidor tenga derecho a voz, pero nunca podrá votar los asuntos que se sometan a discusión en esa Comisión.

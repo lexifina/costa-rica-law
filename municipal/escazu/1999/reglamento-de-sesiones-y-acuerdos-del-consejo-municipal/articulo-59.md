@@ -1,0 +1,1 @@
+Artículo 59.—El Concejo podrá pasar los dictámenes de Comisión a conocimiento de otra Comisión o podrá crear una Comisión Especial, designada por el presidente para que se pronuncie sobre el caso concreto.

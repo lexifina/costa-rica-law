@@ -1,0 +1,1 @@
+Artículo 52.—Una vez que el Concejo haya aprobado las actas. deberán ser firmadas por el presidente municipal y el secretario, y se colocarán en las respectivas curules, dos horas antes de iniciarse la sesión siguiente.

@@ -1,0 +1,3 @@
+SECCIÓN XII
+De la comparecencia de funcionarios municipales
+Artículo 40.—Cualquier funcionario municipal podrá ser llamado a las sesiones del Concejo, cuando este lo acuerde, y sin que por ello deba pagársele remuneración alguna.

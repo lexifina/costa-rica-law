@@ -1,0 +1,3 @@
+SECCIÓN X
+De la intervención de particulares
+Artículo 34.—Toda persona o grupo organizado de vecinos de la comunidad que tenga interés en los asuntos de la Municipalidad del cantón, podrá solicitar audiencia al Concejo. Para tal efecto deberá presentar a la Secretaría Municipal solicitud escrita con exposición de los motivos que fundamenta su petición, con un día de anticipación a la celebración de la sesión, salvo que el Presidente del Concejo autorice justificadamente el no cumplir con este requisito, cuando razones de interés público, caso fortuito, fuerza mayor o urgencia, así lo requieran.

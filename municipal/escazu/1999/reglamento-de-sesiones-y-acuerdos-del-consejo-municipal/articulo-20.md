@@ -1,0 +1,1 @@
+Artículo 20.—El presidente calificará los asuntos de tramite urgente y ordenara a la Secretaría Municipal incluirlos en el orden del día. En sesión podrán incluirse asuntos de trámite urgente mediante moción de orden presentada por el presidente o por uno o más regidores propietarios, moción que deberá ser aprobada por mayoría simple de votos presentes.

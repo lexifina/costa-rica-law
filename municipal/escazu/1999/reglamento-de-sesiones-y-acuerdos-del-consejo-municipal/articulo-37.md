@@ -1,0 +1,2 @@
+Artículo 37.—Corresponde al presidente moderar las intervenciones de los particulares, las cuales no podrán exceder de siete minutos, a menos de que soliciten excederse de dicho término, lo cual debe ser aprobado por el presidente, o por acuerdo de mayoría simple del Concejo Municipal.
+Corresponde al Presidente del Concejo llamarlos al orden, suspender la audiencia si el caso lo amerita, y hasta solicitar que abandonen el salón de sesiones de ser necesario, para lo cual podrá pedir el auxilio de la fuerza pública si el caso lo amerita.

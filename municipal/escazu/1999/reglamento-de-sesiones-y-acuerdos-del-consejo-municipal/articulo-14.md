@@ -1,0 +1,1 @@
+Artículo 14.—La sesión del Concejo terminara sólo cuando se haya agotado la agenda, siempre que no sobrepase la media noche. Sin embargo. por moción de orden presentada por alguno de los Regidores, aprobada por mayoría calificada de votos presentes, procederá el cierre de la sesión previo a agotar la agenda.

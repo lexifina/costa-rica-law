@@ -1,0 +1,2 @@
+Artículo 7°—Podrán celebrarse sesiones ordinarias o extraordinarias en otros lugares del cantón, cuando se vayan a tratar asuntos relativos a los intereses de los vecinos de la localidad o la índole de los asuntos a tratar así lo requieran, y siempre que la convocatoria así lo indique.
+Para variar el lugar de la sesión ordinaria deberá realizarse la publicación respectiva en el Diario Oficial "La Gaceta", con tres días de anticipación a la celebración de la misma.

@@ -1,0 +1,1 @@
+Artículo 45.—Otra causa de pérdida de dieta. Los regidores propietarios perderán las dietas cuando no se presenten dentro de los quince minutos inmediatos posteriores a la hora fijada para comenzar la sesión o cuando se retiren antes de finalizada la sesión, sin la autorización del presidente.

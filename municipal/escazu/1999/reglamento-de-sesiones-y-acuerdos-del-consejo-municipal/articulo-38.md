@@ -1,0 +1,1 @@
+Artículo 38.—Finalizadas las exposiciones de los particulares, el presidente concederá el uso de la palabra a los regidores que lo soliciten con el fin de que puedan intercambiar opiniones con los visitantes sobre el asunto de que se trata, para lo cual se aplicara el artículo 29 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 31.—Los acuerdos del Concejo Municipal se tomarán mediante votación pública, sin embargo, procederá la votación secreta, siempre y cuando por la índole del asunto a tratar se considere oportuna dicha votación. La votación secreta deberá solicitarse mediante moción de orden, y procederá únicamente cuando la totalidad de los regidores presentes así lo acuerden.
