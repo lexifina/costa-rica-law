@@ -1,0 +1,1 @@
+Artículo 61.—Cuando el CONESUP requiera aplicar encuestas a la población estudiantil o al profesorado, su ejecución deberá ser coordinada con las autoridades universitarias. En todo caso, entre la comunicación y la aplicación deberá mediar ocho días naturales como mínimo.

@@ -1,0 +1,1 @@
+Artículo 24.—Las solicitudes conducentes a la modificación de carreras y planes de estudios previamente autorizados por el CONESUP, serán procedentes si responden al cumplimiento de por lo menos, una generación de graduados o a una adecuada justificación.

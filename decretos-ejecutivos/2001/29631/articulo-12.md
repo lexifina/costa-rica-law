@@ -1,0 +1,24 @@
+CAPÍTULO II
+De la autorización para la creación y el funcionamiento
+de las universidades privadas
+SECCIÓN PRIMERA
+De los requisitos para la creación y funcionamiento
+de las universidades privadas
+Artículo 12.—Toda solicitud para la creación y funcionamiento de una universidad privada deberá ser escrita enteramente en idioma español, dirigida al CONESUP y presentada formalmente ante la Secretaria Técnica. Las solicitudes deben ser firmadas por el representante legal de la entidad gestionante, quien debe indicar expresamente en ella que conoce y acepta las normas, los procedimientos, los requisitos y los acuerdos establecidos y adoptados por este Reglamento y por el CONESUP para estos efectos.
+La solicitud debe contener y aportar, la siguiente información y documentación:
+a- Nombre, naturaleza y domicilio de la entidad gestionante así como el nombre y calidades completas del representante legal de la misma.
+b- Certificación de la constitución de la entidad gestionante con su personería y cédula jurídica emitida por el Registro Nacional o por Notario Público.
+c- Certificación, expedida por Contador Público Autorizado, de los estados financieros de apertura y actual de la entidad solicitante, con una proyección de flujo de caja para los primeros tres años de funcionamiento y sus respectivos estados financieros, los que deberán guardar coherencia con el proyecto académico. En caso de que resultare necesario, la entidad solicitante deberá demostrar la posibilidad de aumentos de capital social o la disponibilidad de créditos, a fin de garantizar un adecuado y normal funcionamiento de la universidad.
+d- Nómina del personal académico propuesto de conformidad con lo establecido en los artículos 19 y 20 del presente Reglamento.
+e- Nómina del personal académico-administrativo: Rector, Vicerrector, Secretario General, Decanos, Directores de carreras o sus equivalentes, en los órganos fundamentales de la Universidad proyectada, de conformidad con lo establecido en los artículos 26 y 27 del presente Reglamento.
+f- Lista de carreras con sus respectivos planes de estudios, de conformidad con 1o establecido en el artículo 14 del presente Reglamento.
+g- Copia auténtica de los estatutos constitutivos y de organización de la entidad solicitante y reglamentos internos, con sus respectivos acuerdos de aprobación por parte de la entidad gestionante.
+h- Los proyectos del Estatuto Orgánico y de los Reglamentos Internos correspondientes a: Reglamento Académico, Reglamento del Régimen Docente, Reglamento del Régimen Estudiantil, Reglamento de Becas y Reglamento de Trabajo Comunal o de Servicio Social. El contenido mínimo de estos estatutos y reglamentos deberá ajustarse a lo establecido en los artículos 28 y 29 del presente Reglamento.
+i- Planes y programas de desarrollo institucional con los parámetros cualitativos y cuantitativos, objetivos, metas, recursos humanos y financieros que requerirán para la ejecución de los mismos, se debe hacer especial énfasis en los aspectos académicos (docencia, investigación y acción social). Los mismos podrán ser evaluados por el CONESUP cada cinco años.
+j- Descripción detallada de las instalaciones físicas en las que se desarrollará la acción educativa y que debe comprender, al menos, los siguientes elementos: salas de clase, laboratorios especializados, bibliotecas, campos deportivos, talleres, campos de trabajo y demás espacios físicos necesarios para el desarrollo de sus tareas de enseñanza y aprendizaje.
+Igualmente, debe incluirse la descripción del mobiliario, equipo y recursos bibliográficos requeridos para el funcionamiento general de la universidad y el desarrollo específico de las carreras que se vayan a impartir; así como el plan detallado de adquisiciones, el que deberá incluir plazos y formas de financiamiento e indicar la capacidad instalada con la que se cuenta para la matrícula inicial proyectada.
+Las universidades privadas deberán informar al inicio de cada ciclo lectivo, sobre el cumplimiento de las diversas etapas de su plan de adquisición, y los indicadores de utilización de la infraestructura y la matrícula universitaria proyectada, por carreras y por sede regional, a efecto de verificar si existen condiciones cualitativas aceptables para cubrir las necesidades de aprendizaje de los estudiantes.
+k- Las autorizaciones y permisos referentes a la infraestructura que se señalan en los artículos 33 y 34 de este Reglamento.
+l- Copia auténtica del contrato de arrendamiento, certificación de propiedad o permiso de uso de las instalaciones que ocupará la universidad proyectada, así como las permisos y autorizaciones a que se refiere el artículo 32, 33 y 34 del presente Reglamento.
+m- Constancia de la Caja Costarricense del Seguro Social de que se encuentra al día en el pago de las cuotas obrero-patronales.
+n- Comprobantes de pago de la tarifa establecida por el órgano competente para realizar estos procesos.

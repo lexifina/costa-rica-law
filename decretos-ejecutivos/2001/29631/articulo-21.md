@@ -1,0 +1,1 @@
+Artículo 21.—En caso de que se produzcan variaciones en las nóminas de personal académico docente que han sido aprobadas por el CONESUP, las universidades deberán comunicar a éste, de inmediato, el personal académico sustituto, el cual debe reunir -por lo menos- los mismos requisitos del personal sustituido, de manera tal que se preserven los porcentajes antes mencionados.

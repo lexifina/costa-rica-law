@@ -1,0 +1,1 @@
+Artículo 59.—Para los efectos de lo dispuesto en el artículo anterior, solo podrán fungir como responsables de la inspección, quienes no estuvieren vinculados con universidades públicas o privadas, dentro de los dos años inmediatos anteriores.

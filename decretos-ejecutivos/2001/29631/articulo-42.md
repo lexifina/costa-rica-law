@@ -1,0 +1,1 @@
+Artículo 42.—Si el análisis de la solicitud demuestra que se cumplen a cabalidad todos los requisitos, la Secretaría Técnica declarará su admisibilidad, lo comunicará por escrito al CONESUP y a la entidad gestionante e iniciará de inmediato el proceso de estudio académico del expediente.

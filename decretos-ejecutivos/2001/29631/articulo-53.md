@@ -1,0 +1,1 @@
+Artículo 53.—Contra las decisiones de la Secretaría Técnica cabrá recursos de revocatoria y de apelación subsidiaria ante el CONESUP, el que deberá presentarse por escrito y en forma razonada ante la propia Secretaría, dentro del plazo de tres días hábiles contados a partir de la comunicación del acto.

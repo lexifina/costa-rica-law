@@ -1,0 +1,1 @@
+Artículo 60.—Será obligación de las autoridades universitarias, facilitar el acceso a sus instalaciones centrales o regionales y a sus fuentes de información a los personeros que designe el CONESUP para llevar a cabo la inspección, y suministrarles toda la información y documentación que requieran.

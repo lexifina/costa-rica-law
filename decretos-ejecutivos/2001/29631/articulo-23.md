@@ -1,0 +1,4 @@
+SECCIÓN TERCERA
+De las modificaciones a carreras y planes de estudios autorizados
+Artículo 23.—Una modificación a una carrera es todo cambio del plan de estudios aprobado por el CONESUP que no exceda, en ningún caso, el treinta por ciento (30%) de los créditos o cursos aprobados originalmente, ni implique una modificación del nombre de la carrera ni del perfil profesional de salida, ni cambios significativos del plan de estudios.
+Si las modificaciones planteadas excedieran lo señalado en el párrafo anterior, la propuesta deberá considerarse como una carrera nueva. Igualmente se procederá en el caso de la creación de un "énfasis", "concentración" o "mención" en una carrera ya aprobada y, por tanto, todos estos casos se regirán por lo establecido en los artículos 14, 41 y siguientes de este Reglamento. Además la universidad deberá aportar el plan de estudios de la carrera en la que solicita crear el énfasis, la concentración o mención.

@@ -1,0 +1,1 @@
+Artículo 9º—El CONESUP elegirá de entre sus miembros un Vicepresidente(a), quien lo presidirá en ausencia del Ministro. El Vicepresidente durará en su cargo un año y podrá ser reelegido sucesivamente.

@@ -1,0 +1,2 @@
+Artículo 4º—Los representantes, tanto propietario como alterno, de las universidades privadas serán designados por mayoría simple de los rectores presentes en sesión especial convocada al efecto con aviso dado al menos con ocho días de anticipación y presidida por el Ministro de Educación.
+Dicha sesión se celebrará con, al menos, un mes de antelación al vencimiento del plazo por el que fueron nombrados los respectivos representantes. Tanto el representante propietario como el alterno deben cumplir con los requisitos establecidos en el artículo 1º de la Ley del CONESUP.

@@ -1,0 +1,1 @@
+Artículo 56.—La labor de inspección la ejercerá el CONESUP por medio de su Secretaría Técnica con el apoyo de profesionales debidamente investidos para ejecutar tal labor, según los requerimientos y directrices del CONESUP, el cual propondrá al Ministro de Educación, para estos efectos, la contratación de profesionales en diversas disciplinas, cuando el caso lo amerite.

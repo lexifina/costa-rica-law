@@ -1,0 +1,1 @@
+Artículo 17.—Las universidades privadas solo podrán matricular estudiantes e impartir válidamente una carrera después de que su funcionamiento institucional haya sido autorizado mediante acuerdo firme adoptado para tal efecto por el CONESUP y que la carrera en cuestión haya sido también previa y formalmente aprobada en firme por ese mismo Consejo.

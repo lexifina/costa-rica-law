@@ -1,0 +1,1 @@
+Artículo 25.—La matrícula de estudiantes y la ejecución de una modificación de carrera solamente podrá realizarse y tener vigencia real a partir de la fecha en la que quede firme el acuerdo del CONESUP que la autorice.
