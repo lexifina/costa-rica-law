@@ -1,0 +1,1 @@
+Art. 7° En el inmediato día festivo de recibida la Constitución en los Pueblos, habrá misa solemne de acción de gracias en todos ellos por el suceso feliz de estar constituido el Estado, pronunciándose por el Cura Párroco u otro Sacerdote de dignidad, un discurso análogo a las circunstancias, en que tambien se recomendará la paz y la obediencia y sumisión á las leyes.

@@ -1,0 +1,1 @@
+Art. 3° A las once del mismo día se presentará el funcionario encargado del Poder Ejecutivo y el Presidente de la corte suprema de Justicia a prestar el propio juramento ante la Asamblea, á cuyo solemne y augusto acto asistirán todas las autoridades y funcionarios así eclesiásticos como civiles y militares.
