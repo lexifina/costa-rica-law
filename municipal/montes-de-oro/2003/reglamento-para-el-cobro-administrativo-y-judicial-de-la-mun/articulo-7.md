@@ -1,0 +1,5 @@
+Artículo 7º—Al Departamento de Rentas y Cobranzas le corresponde ejercer control de la labor realizada por todos los abogados contratados por la Municipalidad para este efecto, a través del siguiente procedimiento:
+a) Mediante la revisión de los informes mensuales que deberán rendir los abogados a las oficinas respectivas de acuerdo con lo que establece este reglamento.
+b) Mediante requerimientos escritos que el Departamento de Rentas y Cobranzas solicite sobre el avance de cada proceso, o de alguna gestión en particular, de cualquier cuenta que se encuentre en gestión judicial.
+c) El Encargado del Departamento de Rentas y Cobranzas deberá informar al Alcalde Municipal de cualquier anomalía o irregularidad observada en el desempeño de la labor profesional de los abogados contratados y si fuera el caso recomendar la suspensión de los abogados hasta que este cumpla con las condiciones establecidas en el presente reglamento.
+d) En caso de reincidencia o incumplimiento de las indicaciones expresas, el Departamento de Renta y Cobranzas comunicará al Alcalde Municipal estos casos con el fin de que se prescinda de los servicios de este abogado.
