@@ -15,3 +15,4 @@ Reglamento a la Ley sobre el Régimen de Relaciones entre Productores Beneficiad
 | --- | --- | --- |
 | 1 | 1986-06-09 | la propia norma |
 | 2 | 1993-02-08 | Decreto Ejecutivo 21985 (1993-02-08) |
+| 3 | 1993-03-29 | Decreto Ejecutivo 22097 (1993-03-29) |
