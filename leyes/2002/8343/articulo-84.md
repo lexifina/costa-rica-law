@@ -1,0 +1,1 @@
+Artículo 84.—Exenciones. Exceptúase del impuesto establecido en el artículo 1 de la Ley Nº 7972, de 22 de diciembre de 1999, el producto destinado a la exportación, igualmente se exceptúan de los impuestos a favor del Instituto de Desarrollo Agrario (IDA) y el Instituto de Fomento y Asesoría Municipal (IFAM) las bebidas alcohólicas destinadas a la exportación.

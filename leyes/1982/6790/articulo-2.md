@@ -1,6 +1,2 @@
-Artículo 2º.-Créase un impuesto adicional al establecido en la ley
-número 5554 del 20 de agosto de 1974, a favor de la Asociación de
-Desarrollo Laboral Femenino Integral (ASODELFI), que pagarán los negocios
-clasificados en la categoría A y autorizados por el Ministerio de
-Gobernación y el IMAS, así como todos aquellos que en el futuro funcionen
-con esas mismas características.
+Artículo 2º—Créase un impuesto adicional al establecido en la Ley Nº 5554, de 20 de agosto de 1974, a favor de la Asociación de Desarrollo Laboral Femenino Integral (ASODELFI), el cual será pagado por los negocios calificados en la categoría A y autorizados por el IMAS, así como todos los que en el futuro funcionen con esas mismas características.
+(Así reformado por el artículo 69 de la Ley N° 8343 de 18 de diciembre de 2002).

@@ -1,0 +1,1 @@
+Artículo 79.—Modificación de la Ley Nº 7472. Modifícanse los artículos 3º y 4º de la Ley de promoción de la competencia y defensa efectiva del consumidor, Nº 7472, de 20 de diciembre de 1994, de manera que donde se hace referencia a la "comisión para promover la competencia", se lea: "comisión de mejora regulatoria".

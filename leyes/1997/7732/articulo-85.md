@@ -1,16 +1,6 @@
-ARTÍCULO 85.- Formas de inversión
-Los fondos de inversión deberán realizar sus inversiones en el
-mercado primario, en valores inscritos en el Registro Nacional de Valores
-e Intermediarios o en los mercados secundarios organizados que cuenten con
-la autorización de la Superintendencia. Podrán invertir en valores
-extranjeros, siempre que estos estén admitidos a cotización en un mercado
-bursátil organizado, de acuerdo con las normas que dicte la
-Superintendencia, esto deberá hacerse constar en el prospecto informativo.
-Los fondos de inversión sólo podrán invertir en valores en serie de
-los referidos en el párrafo primero del artículo 10, salvo lo dispuesto en
-el párrafo final del artículo 22.
-Los fondos de inversión podrán participar directamente en
-procedimientos de subastas, previa comunicación a la Superintendencia
-General de Valores.
-La Superintendencia podrá establecer, reglamen-tariamente, límites de
-liquidez a los fondos, en función de la naturaleza de sus inversiones.
+Artículo 85.—Formas de inversión. Los fondos de inversión deberán realizar sus inversiones en el mercado primario, en valores inscritos en el Registro Nacional de Valores e intermediarios o en los mercados secundarios organizados que cuenten con la autorización de la Superintendencia.
+Podrán invertir en valores extranjeros, de acuerdo con las normas que dicte la Superintendencia, siempre que estos estén admitidos a cotización en un mercado organizado y se haga constar en el prospecto informativo.
+Los fondos de inversión solo podrán invertir en valores en serie de los referidos en el párrafo primero del artículo 10, salvo lo dispuesto en el párrafo final del artículo 22.
+Los fondos de inversión podrán participar directamente en procedimientos de subastas, previa comunicación a la Superintendencia General de Valores. La Superintendencia podrá establecer, reglamentariamente, límites de liquidez a los fondos, en función de la naturaleza de sus inversiones.
+La Superintendencia reglamentará un tipo especial de fondos, los fondos de capital de riesgo, los cuales sí podrán invertir sus recursos en valores que no son de oferta pública, ello dentro de los límites y las condiciones que se establezcan por reglamento.
+(Así reformado por el artículo 82 de la ley N° 8343 de 27 de diciembre del 2002, Ley de Contingencia Fiscal)

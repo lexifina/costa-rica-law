@@ -1,0 +1,3 @@
+Artículo 78.—Modificación del párrafo primero del artículo 161 del Código de Normas y Procedimientos Tributarios, Ley N° 4755, y sus reformas. Modifícase el primer párrafo del artículo 161 del Código de Normas y Procedimientos Tributarios, Ley N° 4755, de 3 de mayo de 1971, y sus reformas. El texto dirá:
+"Artículo 161.—El Poder Ejecutivo deberá designar, individualmente, a los propietarios y a los suplentes del Tribunal Fiscal Administrativo, previo concurso de antecedentes, que ha de efectuarse formalmente, con la intervención de las autoridades que establece el Estatuto de Servicio Civil. Las formalidades y las disposiciones sustantivas fijadas en ese ordenamiento se observarán igualmente para la remoción de los miembros de este Tribunal.
+[...]"

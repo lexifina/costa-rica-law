@@ -1,0 +1,1 @@
+Artículo 51.—Base imponible. La base imponible del impuesto extraordinario sobre rendimientos y ganancias de capital de fondos de inversión será la prevista en el artículo 100 de la Ley reguladora del mercado de valores, Nº 7732, de 17 de diciembre de 1997, y el inciso c) bis del artículo 23 de la Ley del impuesto sobre la renta, Nº 7092, de 21 de abril de 1988.

@@ -1,0 +1,1 @@
+Artículo 58.—Aplicación supletoria de la Ley Nº 7092. Para lo no dispuesto por esta Ley, supletoriamente serán aplicables las disposiciones del título IV de la Ley de impuesto sobre la renta, Nº 7092, de 21 de abril de 1988.

@@ -1,0 +1,1 @@
+Artículo 81.—Reglamentación de la Comisión de mejora regulatoria. El Poder Ejecutivo reglamentará la organización, el funcionamiento y las disposiciones de la Comisión de mejora regulatoria en un plazo máximo de tres meses, a partir de la publicación de esta Ley.

@@ -1,0 +1,2 @@
+Artículo 69.—Modificación de la Ley Nº 6790. Modifícase el artículo 2º de la Ley Nº 6790, de 14 de octubre de 1982, cuyo texto dirá:
+"Artículo 2º—Créase un impuesto adicional al establecido en la Ley Nº 5554, de 20 de agosto de 1974, a favor de la Asociación de Desarrollo Laboral Femenino Integral (ASODELFI), el cual será pagado por los negocios calificados en la categoría A y autorizados por el IMAS, así como todos los que en el futuro funcionen con esas mismas características."

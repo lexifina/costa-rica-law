@@ -1,0 +1,1 @@
+Artículo 55.—Sujetos pasivos. Serán sujetos pasivos las personas físicas o jurídicas que realicen el hecho generador citado en el artículo anterior. La entidad que pague o acredite las rentas gravadas fungirá como agente retenedor del impuesto, de conformidad con lo dispuesto en el título IV de la Ley de impuesto sobre la renta, Nº 7092, de 21 de abril de 1988.

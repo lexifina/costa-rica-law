@@ -1,0 +1,1 @@
+Artículo 41.—Base imponible. La base imponible del impuesto extraordinario sobre renta disponible será la prevista en el capítulo VIII del título I de la Ley de impuesto sobre la renta, Nº 7092, de 21 de abril de 1988.

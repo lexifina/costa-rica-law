@@ -1,0 +1,1 @@
+Artículo 68.—Cierre de negocios. El IMAS, en su condición de administración tributaria, estará facultado para ordenar y ejecutar el cierre inmediato del negocio que se encuentre moroso en el pago de este impuesto durante más de dos meses.

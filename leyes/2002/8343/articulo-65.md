@@ -1,0 +1,1 @@
+Artículo 65.—Declaración jurada. Los negocios citados en el artículo 30 de esta Ley estarán obligados a declarar, mensualmente, ante el IMAS el número de habitaciones con que cuentan, sin perjuicio de la verificación que de ese número, efectúen los inspectores del IMAS, quienes tendrán todas las facultades y atribuciones conferidas a la Administración Tributaria.

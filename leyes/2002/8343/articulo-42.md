@@ -1,0 +1,2 @@
+Artículo 42.—Tarifas. Se aplicará una tarifa de un uno por ciento (1%) para las distribuciones que se encuentren gravadas con el impuesto de renta disponible con la tarifa de un cinco por ciento (5%).
+Asimismo, se aplicará una tarifa de un uno coma cinco por ciento (1,5%) de impuesto sobre las distribuciones que se encuentren gravadas con el impuesto de renta disponible con la tarifa de un quince por ciento (15%).

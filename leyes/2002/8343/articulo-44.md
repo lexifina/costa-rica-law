@@ -1,0 +1,4 @@
+SECCIÓN V
+Impuesto extraordinario sobre rendimientos
+del mercado financiero
+Artículo 44.—Hecho generador. El hecho generador del impuesto extraordinario sobre rendimientos del mercado financiero es la percepción, a partir de la vigencia de esta Ley, de rendimientos, intereses o descuentos generados por la captación de recursos del mercado financiero, incluso los rendimientos generados por operaciones de recompras; todo de conformidad con los incisos c) y c bis) del artículo 23, de la Ley de impuesto sobre la renta, Nº 7092, de 21 de abril de 1988. A este impuesto extraordinario se aplicarán las exenciones contenidas en el inciso c) del artículo 23 ya citado, salvo en lo correspondiente a los títulos emitidos en moneda nacional por el Banco Popular y de Desarrollo Comunal, así como los títulos en moneda extranjera emitidos por el Estado o por los bancos del Estado.

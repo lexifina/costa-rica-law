@@ -1,3 +1,5 @@
+(Derogado)
+(NOTA: Esta norma ha sido DEROGADA EN SU TOTALIDAD por el artículo 70 de la ley N° 8343 de 27 de diciembre del 2002, Ley de Contingencia Fiscal)
 Artículo 1º.- Créase un impuesto, a favor del Instituto Mixto de
 Ayuda Social, que pagarán los negocios calificados y autorizados por el
 Ministerio de Gobernación, Policía, Justicia y Gracia, como moteles, y

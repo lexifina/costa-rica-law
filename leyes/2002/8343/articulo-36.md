@@ -1,0 +1,1 @@
+Artículo 36.—Base imponible. La base imponible de este impuesto extraordinario será la prevista en el título II de la Ley de impuesto sobre la renta, Nº 7092, de 21 de abril de 1988, para el impuesto sobre rentas del trabajo personal dependiente u otros servicios personales o por concepto de jubilación o pensión.

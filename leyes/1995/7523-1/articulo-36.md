@@ -9,3 +9,5 @@ g) Rendir anualmente un informe sobre la situación financiera de cada régimen 
 h) Supervisar el sistema de calificación de la invalidez de los distintos regímenes.
 En cuanto al Sistema de Pensiones del Magisterio Nacional, las atribuciones de la Superintendencia serán las determinadas en la Ley No. 7531 y sus reformas.
 (Así reformado mediante el artículo 79 de la ley N° 7983 del 16 de febrero del 2000).
+Asimismo, la Superintendencia de Pensiones fiscalizará y supervisará la labor realizada por la Dirección General de Pensiones del Ministerio de Trabajo y Seguridad Social, en el otorgamiento de las pensiones con cargo al presupuesto nacional, en relación con la legalidad y oportunidad de las resoluciones. También, fiscalizará lo relativo a las modificaciones y revalorizaciones de las pensiones que son competencia de la mencionada Dirección.
+(Así adicionado el párrafo anterior mediante el artículo 71 de la ley N° 8343 del 18 de diciembre del 2002).

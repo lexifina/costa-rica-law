@@ -1,0 +1,1 @@
+Artículo 28.—Sujetos pasivos. Serán sujetos pasivos del impuesto extraordinario de utilidades las personas físicas, jurídicas, entidades o patrimonios autónomos que ostentan la condición de contribuyentes del impuesto de utilidades de la Ley de impuesto sobre la renta, Nº 7092, de 21 de abril de 1988, y que no disfrutan de la exención de dicho impuesto.

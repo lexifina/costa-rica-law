@@ -1,0 +1,1 @@
+Artículo 26.—Aplicación supletoria de la Ley Nº 7092. Para lo no dispuesto por esta Ley, supletoriamente serán aplicables a los impuestos extraordinarios las disposiciones respectivas de la Ley de impuesto sobre la renta Nº 7092, de 21 de abril de 1988, que regulan cada uno de los impuestos vigentes que tengan el mismo hecho generador y/o la misma base imponible.
