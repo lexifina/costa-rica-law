@@ -5,3 +5,5 @@ b) Que hubieren servido veinticinco años, siempre que diez años consecutivos o
 c) Que en el ejercicio de su profesión alcanzaren sesenta años de edad, aunque no tuvieren los años de servicio establecidos en los incisos anteriores.
 En los dos primeros casos la jubilación será voluntaria y se concederá a solicitud del interesado; en el tercero será obligatoria y se acordará de oficio.
 Los años de servicio a que se refiere este artículo deberán probarse mediante certificación emitida por el Departamento de Personal del Ministerio de Educación Pública. En el cómputo de esos años se incluirán las licencias de incapacidad concedidas de acuerdo con los artículo 134 y 144 del Código de Educación.
+Asimismo, en el cómputo de esos años se incluirán los servicios en otras dependencias del Estado con anterioridad al ingreso o reingreso al servicio docente. En este cómputo se tomarán en cuenta solamente diez o menos años de servicio debidamente comprobados.
+(Así adicionado el párrafo anterior por el artículo 1° de la ley N° 2841 del 21 de octubre de 1961)
