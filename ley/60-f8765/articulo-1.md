@@ -1,0 +1,5 @@
+DECRETO LX.
+Ordena a los habitantes de la Provincia de Alajuela Ia presentacion de armas y elementos de guerra que tengan en su poder, y establece penas contra los que no cumplan.
+“José Maria Castro Presidente del Estado de Costa Rica, y General en Jete del Ejército protector de la ley.
+Considerando:1° que las medidas suaves que se han dictado con el objeto de recojer todo el armamento y pertrechos de guerra que existian en el Departamento de Alajuela, no han surtido el completo efecto que se apeteciera; y la fel archivo de la Comandancia del mismo Departamento, é informes privados que ha recibido el Gobierno, falta todavia un nùmero considerable de armas y pertrechos que no se han entregado y estan ocultos, decreto.
+Art. 1° Todo habitante del Departamento de Alajuela que, teniendo fusiles ó elementos de guerra al tiempo de la ocupacion de aquella plaza por las fuerzas del Gobierno, no los haya presentado á la antoridad que para este efecto se designo por disposiciones anteriores, es obligado á entregarlos al Gobernador Polìtico y Comandante del Departamento dentro el término de ocho dias, contados desde la publicacion de este decreto.

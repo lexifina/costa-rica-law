@@ -1,0 +1,2 @@
+Art. 3. Se dará un premio de quince pesos; al que denuncie à los tenedores de los elementos de que habla el articulo precedente, siempre que sean aprehendidos; y se le guardará tambien un secreto inviolable.
+Lo tendrá entendido mi Secretario de la guerra, y dispondrà su impresion, circulación y publicacion. -Dado en la ciudad de San José á los quince días del mes de octubre de mil ochocientos cuarenta y siete. -José María Castro.
