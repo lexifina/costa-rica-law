@@ -1,0 +1,3 @@
+Artículo 2° Declárase libre del derecho de muellaje la exportación de las resinas á que se refiere el artículo anterior, siempre que el concesionario enseñe los procedimientos que emplee en la extracción de las mencionadas resinas.
+AL PODER EJECUTIVO.
+Dado en el Salón de sesiones del Palacio Nacional, en San José, á los veintiocho días del mes de Julio de mil ochocientos noventa y uno.-FRANCISCO M. IGLESIAS.-F. AGUILAR B., Secretario.- J. VARGAS M., Secretario. Palacio Nacional, San José, veintinueve de Julio de mil ochocientos noventa y uno. - Ejecútese. -JOSÉ J. RODRÍGUEZ. El Secretario de Estado en el despacho de Fomento,-JOAQUÍN LIZANO.
