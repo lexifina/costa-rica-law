@@ -1,0 +1,3 @@
+Artículo 8
+Principio de subrogación
+Si una Parte Contratante o su agencia designada realiza un pago en virtud de una indemnización, garantía o contrato de seguro otorgado en relación con una inversión de uno de sus inversionistas en el territorio de la otra Parte Contratante, esta última reconocerá la subrogación de cualquier derecho o reclamo de dicho inversionista a la primera Parte Contratante o su agencia designada y el derecho de la primera Parte Contratante o su agencia designada a ejercer, en virtud de la subrogación, cualquier derecho o reclamo en la misma medida que su anterior titular.

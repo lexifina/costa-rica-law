@@ -1,0 +1,3 @@
+Artículo 6
+Indemnización por pérdidas
+A los inversionistas de una Parte Contratante cuyas inversiones en el territorio de la otra Parte Contratante sufran pérdidas debidas a guerra u otro conflicto armado, un estado de emergencia nacional o disturbios civiles en el territorio de esta última Parte Contratante se les concederá por esta Parte Contratante, en cuanto a restitución, indemnización, compensación u otro arreglo, un trato no menos favorable que aquel que la Parte Contratante conceda por estas pérdidas a sus propios inversionistas o a inversionistas de cualquier tercer Estado. Los pagos resultantes serán libremente transferibles.
