@@ -1,0 +1,1 @@
+Artículo 26.—Asesor Jurídico. La Dirección General contará con un Asesor Jurídico, el cual dependerá directamente del Director. Asesorará y tramitará los asuntos jurídicos que Este y las demás dependencias de LACOMET, le sometan a su conocimiento, actuando dentro de la competencia del LACOMET.
