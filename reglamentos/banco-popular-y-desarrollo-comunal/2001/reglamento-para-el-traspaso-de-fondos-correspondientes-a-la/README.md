@@ -14,3 +14,4 @@ Reglamento para el Traspaso de Fondos Correspondientes a la Cesantía de los Tra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-23 | la propia norma |
+| 2 | 2004-08-26 | Reglamento 4237 (2004-08-26) |
