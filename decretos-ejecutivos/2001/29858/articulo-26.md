@@ -1,0 +1,1 @@
+Artículo 26.—Derogatoria. Se deroga el Decreto Ejecutivo N° 26176-MOPT del 21 de julio de 1997 y el Decreto N° 29402-MOPT del 3 de abril del 2001, así como cualquier otro acto de similar naturaleza o jerarquía que se oponga a las disposiciones del presente Reglamento.

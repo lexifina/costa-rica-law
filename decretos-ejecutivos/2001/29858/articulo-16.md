@@ -1,0 +1,1 @@
+Artículo 16.—Presentación extemporánea de documentos. Habiéndose dictado el archivo del expediente, si el interesado pretendiere aportar en forma extemporánea los documentos o requisitos omitidos, le será denegada por escrito su gestión, debiendo proceder de nuevo a su tramitación con la totalidad de los documentos, tal y como si se tratara de una solicitud inicial

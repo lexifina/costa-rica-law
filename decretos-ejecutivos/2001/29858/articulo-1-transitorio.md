@@ -1,0 +1,2 @@
+TRANSITORIOS
+Transitorio 1º—Las gestiones que antes de la entrada en vigencia del presente Reglamento se hayan presentado ante la Comisión de Carreteras de Acceso Restringido y Semirestringido acompañadas de todos los requisitos establecidos al efecto y que estuvieren en trámite, se resolverán conforme a las disposiciones del Decreto Ejecutivo Nº 26176-MOPT del 21 de julio de 1997, sin perjuicio de la aplicación complementaria de las disposiciones y principios del presente Reglamento en lo que las favorezcan.

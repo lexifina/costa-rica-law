@@ -1,0 +1,2 @@
+Artículo 10.—Trámite de las solicitudes. Recibidas las solicitudes con la documentación respectiva, serán remitidas de inmediato para el conocimiento de la Comisión de Carreteras de Acceso Restringido y Semirestringido en su sesión más próxima.
+La Comisión procederá a requerir el criterio técnico, según corresponda, del Consejo Nacional de Concesiones o el Consejo Nacional de Vialidad, los que deberán emitir su criterio en un término no superior a los diez días hábiles siguientes.

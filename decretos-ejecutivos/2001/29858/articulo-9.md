@@ -1,0 +1,2 @@
+Artículo 9º—Lugar de recepción de las solicitudes y documentos adjuntos. Toda solicitud para autorización de accesos en carreteras de acceso restringido y semirestringido se presentará ante las oficinas del Consejo Nacional de Vialidad del Ministerio de Obras Públicas y Transportes en original y dos copias acompañada de la totalidad de los documentos y requisitos a que se refiere el presente Reglamento.
+Un juego de copias le será devuelto al gestionante con el correspondiente recibido.
