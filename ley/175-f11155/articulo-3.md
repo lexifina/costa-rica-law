@@ -1,0 +1,1 @@
+Art 3°.- Del cálculo de estas juntas no habrá recursos: y ellas pasarán a la Intendencia una copia autorizada del rejistro que deben formar, en que conste específicamente el nombre, apelativo, y vecindad de las personas, y cantidad de pesos que deben pagar. Esta Oficina publicará impreso uno general en los propios términos.

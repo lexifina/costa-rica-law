@@ -1,0 +1,1 @@
+Art 6°.- A los empleados se abonarán en pago sus alcances: y si estos excediesen de la adjudicación que se les haga, como vecinos, recibirán el déficit en el propio fruto, con cuyo objeto que practicará una liquidación general hasta fines a los nueve días del mes de setiembre de mil ochocientos treinta y seis.
