@@ -17,3 +17,4 @@ Modifica las Directrices Generales de Política Presupuestaria par el 2003
 | 2 | 2003-05-02 | Decreto Ejecutivo 31179 (2003-05-02) |
 | 3 | 2003-09-24 | Decreto Ejecutivo 31387 (2003-09-24) |
 | 4 | 2003-10-13 | Decreto Ejecutivo 31409 (2003-10-13) |
+| 5 | 2003-11-26 | Decreto Ejecutivo 31541 (2003-11-26) |
