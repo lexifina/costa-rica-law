@@ -1,0 +1,1 @@
+Art. 3. En atención á que no se presentan fondos para fabricar la Iglesia ni para proveerla de lo necesario; se autoriza igualmente al Gobierno para que mande levantar una suscrición voluntaria entre aquellos vecinos y sobre ésta se forme el presupuesto por personas inteligentes, y si hubiere deficit, se cubra del tesoro público, asignándose para ello productos de aquella aduana.
