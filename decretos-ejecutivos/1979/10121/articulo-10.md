@@ -1,0 +1,1 @@
+Artículo 10.—La Guía Sanitaria de Movilización, será controlada por los funcionarios destacados en los puestos de control del Ministerio de Agricultura y Ganadería y por los funcionarios de la Guardia Rural que estén en otros puestos de control ubicados para otros fines, asimismo los administradores responsables de frigoríficos y mataderos.
