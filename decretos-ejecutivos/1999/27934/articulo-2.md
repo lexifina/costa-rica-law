@@ -1,0 +1,1 @@
+Artículo 2º—Suprimir de la estructura orgánica del Registro Nacional, las Asesorías Jurídicas de los Registros de Bienes Muebles, Bienes Inmuebles, Personas Jurídicas y Catastro Nacional, como estructuras independientes.

@@ -1,0 +1,1 @@
+Artículo 4º—Los funcionarios de las asesorías jurídicas de los Registros Bienes Muebles, Bienes Inmuebles, Personas Jurídicas y Catastro Nacional, que por este Decreto se trasladan a la Asesoría Jurídica del Registro Nacional, conservarán todos sus derechos, garantías y deberes.
