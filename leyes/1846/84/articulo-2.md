@@ -1,0 +1,2 @@
+Art 2°.- En consecuencia se imprimirá circulará y publicará para su cumplimiento.- Dado en la ciudad de San José a los veinte días del mes de julio de mil ochocientos cuarenta y seis.
+Por tanto decreto: hágase público dicho tratado de paz, amistad y alianza y téngase por obligatorio para Costa Rica, sus ciudadanos y habitantes en todas sus partes, artículos y clausulas, observándose y cumpliéndose fiel y exactamente en los términos que se expresan.- Dado en la ciudad de San José a los veinticuatro días del mes de julio de mil ochocientos cuarenta y seis.
