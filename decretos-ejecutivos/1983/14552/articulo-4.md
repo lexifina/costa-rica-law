@@ -1,1 +1,0 @@
-ARTICULO 4º.- La Tesorería del Consejo Técnico de Asistencia Médico Social, llevar un registro contable, en donde se consignar n las sumas recibidas por este concepto, lo que estar en todo caso bajo el control de la Auditoría General del Ministerio.
