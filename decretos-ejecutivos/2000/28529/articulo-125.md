@@ -1,0 +1,2 @@
+Artículo 125.—Las personas interesadas en la venta de loterías bajo esta modalidad, deberán presentar la solicitud correspondiente en los formularios que la Junta defina. La Dirección de Producción y Ventas hará el estudio correspondiente para determinar si el solicitante reúne las condiciones que requiere la Junta para su incorporación. Los parámetros y condiciones a analizar serán periódicamente definidos por la Dirección de Producción y Ventas y aprobados por la Gerencia.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 31823 del 20 de enero de 2004)
