@@ -319,7 +319,7 @@ cualquier otro acto que de acuerdo en este Contrato debiera llevarse a
 cabo en sábado o en día inhábil, según la ley, podrá ser válidamente
 realizado el primer día hábil siguiente, sin que proceda sanción o
 recargo alguno por esa circunstancia.
-Sección dos punto siete (2.7). Pagos Anticipados: El Presta- tario
+Sección dos punto siete (2.7). Pagos Anticipados: El Prestatario
 tendrá derecho de efectuar pagos anticipados sobre la totalidad o parte
 del principal que se encuentre insoluto, sin incurrir en recargo alguno,
 siempre que lo haga en cualquier fecha en que deba efectuarse el pago de
@@ -612,7 +612,7 @@ e) Cualquier situación o circunstancia que surja debido a causas
 atribuibles al Prestatario que haga imposible la terminación u operación
 del proyecto.
 Sección siete punto dos (7.2). Vencimiento Anticipado: Si alguna de
-las circunstancias pre-vistas en las letras a), b), c) y e) de la Sección
+las circunstancias previstas en las letras a), b), c) y e) de la Sección
 anterior, se prolongare más de treinta (30) días, o si después de la
 correspondiente notificación, la circunstancia a que se refiere el
 literal d) de la Sección anterior, se prolongare más de sesenta (60)
@@ -669,5 +669,4 @@ Banco, podrán convenir, a nombre del Prestatario, cualesquiera
 modificaciones o ampliaciones a este Contrato, siempre que no se varíen
 sustancialmente las obligaciones de las Partes conforme al mismo.
 Mientras el Banco no reciba aviso escrito de que el Prestatario ha
-revocado la autorización concedida a alguno de sus representantes, el
-Banco podrá aceptar la firma de dichos representantes en cualquier
+revocado la autorizaci
