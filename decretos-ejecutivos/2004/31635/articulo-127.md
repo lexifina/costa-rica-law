@@ -1,0 +1,1 @@
+Artículo 127.—Criterios de Aprobación del Bachillerato. Los postulantes que alcancen, según el procedimiento descrito en el artículo 126 anterior; una calificación final igual o superior a 70, se tendrán por aprobados en la respectiva asignatura.

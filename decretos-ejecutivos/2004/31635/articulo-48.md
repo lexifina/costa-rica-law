@@ -1,0 +1,1 @@
+Artículo 48.—Del Reconocimiento de Cursos. Se podrán reconocer, conforme con este reglamento, cursos cuya temática y contenidos fueren equivalentes a los de la oferta educativa Académica y Técnica, excepto en el caso de aquellos alumnos que hubieran sido reprobados en los colegios diurnos.

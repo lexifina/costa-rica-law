@@ -1,0 +1,9 @@
+CAPÍTULO IV
+De las Pruebas Nacionales
+SECCIÓN I
+Disposiciones Generales sobre las Pruebas Nacionales
+Artículo 90.—Del Objetivo de este Capítulo. Este capítulo tiene por objetivo establecer los lineamientos generales y las regulaciones que norman los procesos administrativo y técnico conducentes a la elaboración, validación, aplicación y calificación de las pruebas nacionales que se realizan con el fin de extender la correspondiente certificación. Tales pruebas son las siguientes:
+a. Las pruebas nacionales de conclusión del II Ciclo de la Educación General Básica.
+b. Las pruebas nacionales de conclusión de la Educación General
+Básica y,
+c. Las pruebas nacionales de Bachillerato en Educación Media.

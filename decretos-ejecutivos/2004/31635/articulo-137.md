@@ -1,0 +1,1 @@
+Artículo 137.—De la entrega de las Pruebas Recurridas al Tribunal Competente. Vencido el término señalado en el artículo 135, presentada o no la argumentación por escrito, el educador administrador de la prueba remitirá o entregará, según corresponda, las pruebas recurridas a alguno de los integrantes del Tribunal para su estudio y resolución.

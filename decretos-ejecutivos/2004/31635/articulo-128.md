@@ -1,0 +1,2 @@
+Artículo 128.—De la Consignación de los Resultados de las Pruebas de Bachillerato en Educación Media. Concluido el proceso de calificación de la prueba y establecido el resultado final de cada estudiante, la División de Control de Calidad y Macroevaluación del Sistema
+Educativo procederá a elaborar las actas respectivas, las que remitirán a cada institución educativa junto con el documento que transcribe los resultados.

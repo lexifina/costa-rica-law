@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 31635
+
+Reglamento de Evaluación de los Aprendizajes
+
+- Tipo: Decreto Ejecutivo
+- Número: 31635
+- Fecha: 2004-02-04
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 30 del 2004-02-12
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=52358&param2=56818&param3=1 (ficha 52358)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2004-02-12 | la propia norma |

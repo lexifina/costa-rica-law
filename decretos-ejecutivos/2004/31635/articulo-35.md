@@ -1,0 +1,1 @@
+Artículo 35.—De las Condiciones que Implican la Reprobación del Estudiante. El estudiante que fuere aplazado en más de tres asignaturas tendrá la condición de reprobado, debiendo repetir el respectivo año escolar, excepto lo dispuesto para colegios nocturnos en el artículo 54 de este Reglamento. Para estos efectos, la conducta se considera como una asignatura.

@@ -1,0 +1,1 @@
+Artículo 47.—De la Aprobación de las Pruebas por Suficiencia. Para aprobar una asignatura por suficiencia, el estudiante debe obtener al menos la nota mínima establecida en el artículo 32 de este Reglamento.
