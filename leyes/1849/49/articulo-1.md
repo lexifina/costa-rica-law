@@ -1,0 +1,6 @@
+DECRETO XLIX.
+Aprueba “ciertas providencias” dictadas ´por el Poder Ejecutivo, por hallarse, según dice, dentro de la orbita de sus atribuciones constitucionales.
+"José Maria Castro Presidente de Costa Rica etc. etc.
+-Por cuanto el Excelentísimo Congreso constitucional de la República ha decretado lo siguiente.
+El Excelentísimo Congreso constitucional de la República de Costa Rica: con presencia de la exposicion del Supremo Poder Ejecutivo y documentos que la acompañan, declara y decreta.
+Art. único. Las providencias dictadas por el Supremo Poder Ejecutivo y à que se refiere la exposicion del mismo fecha 18 del corriente, son de la aprobacion del Congreso, por hallarse comprendidas en la orbita de sus atribuciones constitucionales, y basadas en documentos que apoyan la justicia de los hechos. -Al Poder Ejecutivo. -Dado en el Palacio nacional en San José à los veinticinco dias del mes de octubre de mil ochocientos cuarenta y nueve. Nazario Taledo, Representante Vice-Presidente. Rafael Barroeta, Secretario. -Agapito Jimenez, Secretario. Por tanto: EJECUTESE. Palacio nacional. San Jose octubre veintiseis de mil ochocientos cuarenta y nueve. -José Maria Castro. -El Ministro de Hacienda y Guerra, José María Cañas."
