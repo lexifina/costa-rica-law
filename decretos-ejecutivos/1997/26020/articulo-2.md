@@ -1,1 +1,0 @@
-Artículo 2°-Para los efectos correspondientes se tienen como comprendidas dentro del presente Decreto, todas las obras de infraestructura que hayan resultado o resultaren dañadas, en la Provincia de Limón, incluyendo las vías públicas, puentes, acueductos y edificaciones en general.

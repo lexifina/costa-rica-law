@@ -1,1 +1,0 @@
-Artículo 3°-La Comisión Nacional de Emergencia designará como Unidades Ejecutoras a aquellas dependencias o instancias administrativas que estime pertinentes, con el propósito de llevar a cabo la pronta ejecución de las obras de reconstrucción necesarias para el cumplimiento del "Plan Regulador General" que se elabore para la atención de la presente emergencia.
