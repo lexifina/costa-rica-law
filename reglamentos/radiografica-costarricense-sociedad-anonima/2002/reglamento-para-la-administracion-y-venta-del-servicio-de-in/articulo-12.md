@@ -1,1 +1,0 @@
-Artículo 12.—RACSA aceptará un mínimo de diez cuentas mensuales por concepto de venta que realice el Agente Autorizado de los paquetes del servicio de INTERNET Conmutado. Por tanto, el incumplimiento por parte del Agente Autorizado dará derecho a RACSA de resolver el contrato suscrito entre ambas partes.

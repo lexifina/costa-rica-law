@@ -1,1 +1,0 @@
-Artículo 9º—RACSA programará nuevamente al Agente Autorizado, la opción de programación de cuentas de INTERNET conmutado, una vez que hayan sido presentados los contratos pendientes de entregar a RACSA, según el artículo seis del presente reglamento; en cuyo caso, RACSA asumirá la responsabilidad de la venta tramitada por el Agente Autorizado.

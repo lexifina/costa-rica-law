@@ -1,1 +1,0 @@
-Artículo 58.—RACSA emitirá a inicios de cada mes, los comunicados por concepto de pago de comisión por los paquetes vendidos del servicio de INTERNET conmutado a todos los agentes autorizados, para que este último presente a RACSA, en un tiempo máximo de tres días hábiles, la factura correspondiente a dicho monto.

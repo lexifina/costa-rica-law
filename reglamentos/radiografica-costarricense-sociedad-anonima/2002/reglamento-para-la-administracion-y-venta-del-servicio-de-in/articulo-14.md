@@ -1,1 +1,0 @@
-Artículo 14.—RACSA asignará a cada Agente Autorizado un único código de vendedor, con una identificación oficial y con la finalidad de que éste realice la programación de las cuentas del servicio de INTERNET conmutado.

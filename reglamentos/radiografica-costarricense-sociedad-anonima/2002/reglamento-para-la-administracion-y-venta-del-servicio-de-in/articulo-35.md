@@ -1,1 +1,0 @@
-Artículo 36.—El Agente Autorizado notificará a RACSA cualquier cambio en la información personal suministrada a la firma del contrato suscrito entre él y RACSA; lo cual se hará por escrito y en documento original dirigido al coordinador de Agente Autorizados.

@@ -1,1 +1,0 @@
-Artículo 24.—Para cumplir con lo indicado en el artículo anterior, el Agente Autorizado debe garantizar que sus empleados cumplan con los requerimientos básicos para la venta del servicio de INTERNET conmutado de RACSA estipulado en el presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 10.—RACSA deducirá de los honorarios del Agente Autorizado las cuentas programadas por éste, si los contratos no han sido entregados dentro del tiempo estipulado, según el artículo número seis del presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 34.—El Agente Autorizado deberá adjuntar los respectivos documentos a cada solicitud de servicio. Si uno de estos contratos carece de alguna de esta información, RACSA podrá devolver el contrato al Agente Autorizado para su corrección, y éste tendrá tres días hábiles para volverlo a presentar.

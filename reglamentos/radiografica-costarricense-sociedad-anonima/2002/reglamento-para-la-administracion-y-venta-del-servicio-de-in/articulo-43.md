@@ -1,1 +1,0 @@
-Artículo 45.—El Agente Autorizado deberá solicitar la autorización de RACSA para la aplicación de cualquier promoción o información destinada a los clientes del servicio de INTERNET conmutado; en que se involucren el nombre y el logotipo de RACSA.
