@@ -1,0 +1,1 @@
+Artículo 44.—El alumno que no esté al día en sus obligaciones con el CUNA (pago de matrícula, libros, reposición o cancelación de materiales e instrumentos, equipos inmobiliarios y cualquier daño a la infraestructura) será excluido de las actas finales, y no se le autorizará nueva matrícula mientras persista esta situación.

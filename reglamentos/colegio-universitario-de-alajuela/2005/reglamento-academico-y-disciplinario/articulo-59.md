@@ -1,0 +1,1 @@
+Artículo 59.—En el caso de materias prácticas, es decir, que se impartan en laboratorios o talleres y que impliquen trabajos prácticos supervisados por el profesor, quedará a criterio del Consejo de Profesores de la carrera, definir si se pueden o no impartir mediante la modalidad académica de tutoría.

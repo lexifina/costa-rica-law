@@ -1,0 +1,2 @@
+Artículo 27.—En casos fortuitos comprobados, al extraviar el docente una evaluación parcial o permanente, la misma deberá reaplicarse a los estudiantes previa autorización del coordinador de la carrera respectiva. El plazo para aplicar la prueba será de una semana posterior a la confirmación del hecho ante el Coordinador de Carrera.
+En ningún caso el profesor o el Coordinador están autorizados para otorgar el porcentaje respectivo de la evaluación a los estudiantes, sin realizar la prueba.

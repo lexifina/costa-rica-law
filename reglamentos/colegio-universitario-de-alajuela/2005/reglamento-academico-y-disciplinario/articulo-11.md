@@ -1,0 +1,1 @@
+Artículo 11.—La Dirección Académica elaborará y actualizará las tablas de equiparación y homologación de materias, cada vez que se apruebe un nuevo diseño o plan de estudios o bien el rediseño curricular de una o varias carreras.

@@ -1,0 +1,1 @@
+Artículo 53.—La nota mínima para aprobar una asignatura mediante el régimen de suficiencia es siete (7) y la consignada en el acta será la obtenida en el examen, de acuerdo con lo estipulado en el artículo 23.

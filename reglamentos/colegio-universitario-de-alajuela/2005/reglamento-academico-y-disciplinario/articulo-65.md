@@ -1,0 +1,1 @@
+Artículo 65.—La Dirección Académica en conjunto con el Coordinador de la Carrera podrán decidir el uso de esta modalidad, en las materias cuya matrícula sea inferior o igual a ocho estudiantes en el período lectivo correspondiente.

@@ -1,0 +1,3 @@
+Artículo 47.—Es responsabilidad exclusiva del estudiante realizar personalmente todo trámite que lo afecte y garantizarse mediante documentos extendidos por los departamentos o instancias respectivas, que su gestión fue efectivamente realizada. (Ingreso, matrícula, becas, certificaciones, apelaciones, reconocimientos, equiparaciones, homologaciones, premios
+por excelencia académica, retiros justificados, modificaciones de notas y otros).
+La institución no asume ninguna responsabilidad por las situaciones anómalas, causadas por los errores atribuidos a la persona que realiza el trámite o gestión.

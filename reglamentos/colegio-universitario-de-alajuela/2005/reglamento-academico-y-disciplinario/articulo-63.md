@@ -1,0 +1,1 @@
+Artículo 63.—La coordinación de cada carrera propondrá a la Dirección Académica las materias que podrán llevarse por tutoría, a fin de que ésta las incluya dentro de la programación académica del ciclo lectivo, sin perjuicio de lo establecido en los artículos 60 y 61.

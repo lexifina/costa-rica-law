@@ -1,0 +1,5 @@
+Artículo 2º—Para ingresar a las carreras del CUNA como estudiante regular, el interesado deberá cumplir con los siguientes requisitos:
+a. Presentar al Departamento de Registro el original y copia del título de bachiller o su equivalente o certificación del mismo, la cédula de identidad (los estudiantes nacionales) o certificación de nacimiento en caso de ser menor de edad y documento migratorio o pasaporte (los extranjeros). Los estudiantes extranjeros deben aportar los documentos debidamente autenticados y convalidados por el Consejo Superior de Educación.
+b. Someterse a los procesos de selección definidos por la institución y para cada carrera en particular, y obtener la calificación requerida para el ingreso correspondiente.
+c. Realizar el trámite de matrícula ante el Departamento de Registro y el pago de aranceles correspondientes ante el Departamento. Financiero.
+d. Los estudiantes extranjeros que no dominen el idioma español deberán aprobar antes de iniciar la carrera un curso de español, que les permita comprender la materia.

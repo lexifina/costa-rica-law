@@ -1,0 +1,3 @@
+Artículo 23.—La nota final ordinaria se establecerá en escala de seis (6) a diez (10), en múltiplos de 0,10. En los casos de nota final ordinaria inferior a seis, se consignarán las letras Rep. Además, los cursos cuya evaluación sea la establecida en los puntos (c) o (d) del artículo anterior, es requisito para aprobar el curso haber obtenido en el (los) proyecto (s) nota mayor o igual que 7.
+En la nota final extraordinaria se consignará únicamente Rep (en caso de reprobación del curso) y siete (7) curso aprobado, (aunque haya obtenido una nota superior a 7).
+La nota mínima de aprobación de la Opción de Graduación es de 7.50 (Artículo 15 del Reglamento Opciones de Graduación).

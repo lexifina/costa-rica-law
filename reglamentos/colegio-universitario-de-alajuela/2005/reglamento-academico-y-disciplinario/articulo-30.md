@@ -1,0 +1,1 @@
+Artículo 30.—En caso de sanción por fraude o intento de fraude, el estudiante podrá apelar ante la coordinación de la carrera respectiva en un plazo de dos días hábiles después de haber sido notificado.

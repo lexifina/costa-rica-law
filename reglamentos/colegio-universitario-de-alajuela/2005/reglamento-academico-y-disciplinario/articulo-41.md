@@ -1,0 +1,1 @@
+Artículo 41.—Se considerará estudiante regular a aquel que haya cumplido con los requisitos de ingreso a la Institución para seguir cualquiera de las carreras y este matriculado en el ciclo lectivo correspondiente.

@@ -1,0 +1,1 @@
+Artículo 42.—Se considerará estudiante no regular, a aquel que se matricule en cursos libres, de extensión, de capacitación o similares que ofrece la Institución, sea en forma independiente o conjuntamente con otras instituciones.

@@ -1,0 +1,1 @@
+Artículo 33.—Ningún alumno será admitido a examen o trabajos prácticos, después de transcurridos 30 minutos desde el inicio de éstos. En caso de que el estudiante llegue tarde a una prueba (durante los treinta minutos de iniciada la misma), contará únicamente con el resto del tiempo oficialmente establecido para la ejecución de la prueba.

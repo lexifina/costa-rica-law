@@ -1,0 +1,1 @@
+Artículo 6º—El reconocimiento quedará en firme cuando el interesado cancele en el Departamento Financiero Contable la suma correspondiente al costo de los cursos reconocidos, lo que deberá hacer dentro de quince días hábiles a partir de la fecha de aprobación.

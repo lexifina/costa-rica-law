@@ -1,0 +1,1 @@
+Artículo 31.—En caso de resultar procedente el recurso de apelación y de ser resuelto a favor del estudiante, el examen apelado se le deberá reprogramar en un plazo no menor de cinco días naturales después de recibir la resolución correspondiente, cuando no hubiera terminado la prueba y se revalidará el mismo en caso de haberla concluido.

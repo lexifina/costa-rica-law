@@ -1,0 +1,4 @@
+Del reconocimiento y equiparación de estudios
+RECONOCIMIENTO DE ESTUDIOS DE OTRAS INSTITUCIONES
+Artículo 3º—Se reconocerán los estudios realizados en instituciones que tengan por lo menos el mismo nivel del CUNA. En cualquiera de los casos, el estudiante deberá tener una residencia mínima de estudios, equivalente al 60% del plan de estudios aprobado por el Consejo Superior de Educación y cumplir con la opción de graduación correspondiente a la carrera que cursa y el taller de ética. Asimismo, deberá cumplir con cualquier otro requisito de graduación que establezca la institución, de conformidad con los procedimientos legales y reglamentarios vigentes.
+También serán reconocidos los títulos otorgados por aquellas instituciones con las que se tengan convenios de articulación académica, una vez que se haya firmado las cartas de entendimiento respectivas.

@@ -1,0 +1,1 @@
+Artículo 45.—Las certificaciones serán extendidas por el Departamento de Registro, ante solicitud escrita del interesado, en la fórmula que para tal efecto existe, previa cancelación de los aranceles correspondientes.

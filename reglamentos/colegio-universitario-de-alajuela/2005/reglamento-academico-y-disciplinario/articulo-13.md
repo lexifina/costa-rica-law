@@ -1,0 +1,1 @@
+Artículo 13.—Existirá una oportunidad de examen extraordinario por materia que se imparta en cada ciclo lectivo en las fechas que señale el calendario de actividades del CUNA, excepto los casos indicados en el artículo 12.

@@ -1,0 +1,1 @@
+Artículo 37.—Es obligación de los profesores, entregar por escrito a los estudiantes, el programa del curso, así como el cronograma de actividades (debe incluir fechas de exámenes y otras actividades académicas), en la primera lección. Además, debe explicarlo y analizarlo con los alumnos del curso en particular.

@@ -1,0 +1,1 @@
+Artículo 7º—Todo reconocimiento que se realice por la vía de convenios de articulación con el INA o con Colegios Técnicos, sólo podrá ser certificado por el Departamento de Registro del CUNA, una vez que el estudiante haya completado su proceso formativo en el CUNA.

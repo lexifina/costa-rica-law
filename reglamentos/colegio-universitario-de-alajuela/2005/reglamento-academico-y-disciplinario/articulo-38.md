@@ -1,0 +1,2 @@
+Artículo 38.—Las evaluaciones parciales y/o permanentes deben ser calificadas y devueltas a los estudiantes, en un período máximo de ocho días naturales después de realizadas. El incumplimiento por parte del profesor será falta leve, y en caso de reincidir se tipificará como falta grave en su relación de servicio.
+En casos muy calificados, el plazo se extenderá de acuerdo con el criterio de la coordinación de carrera respectiva.

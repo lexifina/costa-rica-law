@@ -1,0 +1,1 @@
+Artículo 46.—Todo estudiante deberá constatar, a la hora de matricularse, que los horarios de las diferentes materias que debe cursar no se superpongan. Asimismo, no podrá llevar materias cuyos requisitos o correquisitos no haya cumplido, salvo que haya sido autorizado por parte del coordinador de carrera respectiva.

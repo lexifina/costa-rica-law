@@ -1,0 +1,1 @@
+Artículo 32.—Toda conducta reincidente y de carácter fraudulento en que incurra el estudiante, durante su estancia en la institución, se catalogará de conformidad con lo previsto en el inciso e) del artículo 69 de este Reglamento como “muy grave” será sancionado de acuerdo a lo establecido en el artículo 70 inciso c).
