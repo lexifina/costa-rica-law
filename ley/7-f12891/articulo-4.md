@@ -1,0 +1,1 @@
+Art. 4° -Trascurridos cuatro años, á contar desde esta fecha, los preceptores y las preceptoras de primera enseñanza y sus ayudantes ó auxiliares, en las escuelas sostenidas por fondos públicos, que carecieren del correspondiente diploma pedagógico, cesarán sus oficios sin que puedan ser reemplazados sino con personas titulares.

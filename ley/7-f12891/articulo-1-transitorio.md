@@ -1,0 +1,2 @@
+Art. transitorio. -En el presente año, el curso de la academia será del tiempo que reste hasta el primero de abril, y las escuelas ya en accion, á cuya apertura se señala esa fecha, se cerrarán desde luego, quedando sus maestros y ayudantes en el caso del artículo 7°, pero con el derecho al pago de lo que ya hubieren devengado de su sueldo en el presente año.
+Dado en el Palacio Nacional, a treinta y uno de mil ochocientos setenta y ocho.-T. GUARDIA- -El Secretario de Estado en el Despacho de Intervencion Pública. –José MaCastro.
