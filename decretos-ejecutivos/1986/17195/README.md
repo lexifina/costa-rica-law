@@ -14,3 +14,4 @@ Crea comisión coordinadores del CODEX Alimentarius en Costa Rica.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-09-25 | la propia norma |
+| 2 | 1987-02-11 | Decreto Ejecutivo 17416 (1987-02-11) |
