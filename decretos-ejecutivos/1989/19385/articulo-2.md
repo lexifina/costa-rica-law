@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-El Museo será dependiente de la Municipalidad de Desamparados. Se localizará en la Casona de Salitral, propiedad de la Municipalidad, declarada reliquia de interés histórico y arquitectónico en decreto ejecutivo N° 13755-C, publicado en "La Gaceta" del 12 de agosto de 1982.

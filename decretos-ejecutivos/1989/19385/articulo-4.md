@@ -1,0 +1,1 @@
+ARTÍCULO 4°.-La Dirección General de Museos coordinará y brindará, de acuerdo con sus posibilidades, la asesoría museológica, museográfica y financiera que se requiera en la planificación y montajes del Museo, así como actividades museísticas afines.
