@@ -1,1 +1,0 @@
-Artículo 6° —El trámite del crédito y la readecuación, se regirá por las normas establecidas en los Reglamentos del INVU para préstamos hipotecarios. En relación con la capacidad de pago y las condiciones a reunir por los deudores, se considerarán, como máximo, las vigentes en el Sistema Bancario Nacional.

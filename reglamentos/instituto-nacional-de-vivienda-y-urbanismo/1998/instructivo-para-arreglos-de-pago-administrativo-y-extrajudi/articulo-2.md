@@ -1,5 +1,0 @@
-Artículo 2°—Son funciones del Departamento de Cobros y de las Oficinas Regionales:
-a. Conocer y pronunciarse en relación con los arreglos de pago, administrativos y extrajudiciales, solicitados por los interesados y analizados conforme los parámetros establecidos en el presente instructivo.
-b. Dictaminar sobre las posibles readecuaciones de deudas solicitadas y el financiamiento, mediante el otorgamiento de un crédito que cubra los intereses moratorios, las cuotas vencidas, el principal vencido y por vencer, gastos administrativos, pendientes de las operaciones que solicitan este tipo de arreglo, en el cual el interesado deberá aportar los gastos legales.
-c. Darle seguimiento a los arreglos de pago readecuaciones y financiamientos aprobados por el Departamento de Cobros, las Oficinas Regionales, o Gerencia General, según corresponda.
-d. Coordinar junto con la Dirección Financiera y la Gerencia General, la formulación de políticas de recuperación de recursos de operaciones atrasadas y comunicarlas a la Junta Directiva para su aprobación.

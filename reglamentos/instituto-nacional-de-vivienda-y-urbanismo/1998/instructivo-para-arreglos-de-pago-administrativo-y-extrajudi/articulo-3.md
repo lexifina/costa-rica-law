@@ -1,3 +1,0 @@
-Artículo 3°—Es atribución del Jefe del Departamento de Cobros, Oficinas Regionales, con el visto bueno de la Dirección Financiera, autorizar arreglos de pago hasta por un monto de un millón de colones, en aquellos casos de operaciones en mora en trámite de cobro administrativo y judicial.
-Para la aprobación de los arreglos de pago deberá existir un informe del. Departamento de Trabajo Social y/o el funcionario que se tenga asignado para el efecto por el Departamento de Cobros o las Oficinas Regionales.
-En aquellos casos superiores a un millón de colones, serán resueltos por la Gerencia General, con base en el informe que suscriban el Jefe del Departamento de Cobros y el visto bueno de la Dirección Financiera y/o el Jefe de la Oficina Regional y la Dirección Financiera.
