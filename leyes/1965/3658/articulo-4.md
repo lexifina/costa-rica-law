@@ -1,0 +1,13 @@
+ARTICULO IV
+Incumplimiento de Obligaciones del Deudor
+Sección 4.01. Suspensión de desembolsos.—El Banco, mediante aviso al Deudor, podrá suspender los desembolsos si surge, y mientras subsista alguna de la circunstancias siguientes:
+(a) El retardo en el pago de las sumas que el Deudor adeude por capital e intereses o por cualquier otro concepto, según el presente Contrato o cualquier otro contrato celebrado entre el Banco y el Deudor.
+(b) El incumplimiento por parte del Deudor de cualquier otra obligación estipulada en este Contrato.
+(c) El retiro o suspensión de la República de Costa Rica como miembro del Banco.
+(d) La modificación sustancial de la naturaleza, organización y facultades del Deudor que, a juicio del Banco, puedan afectar desfavorablemente la ejecución del Programa.
+(e) El incumplimiento de parte del Garante de cualquier obligación estipulada en el respectivo Contrato de Garantía.
+(f) Cualquier circunstancia extraordinaria que a juicio del Banco haga improbable que el Deudor o el Garante puedan cumplir las obligaciones contraídas en este Contrato, en los contratos respectivos o que no permita satisfacer los propósitos que se tuvieron en cuenta al celebrarlos.
+Sección 4.02. Vencimiento anticipado.—Si alguna de las circunstancias previstas en las letras (a) y (b) de la Sección anterior se prolongare más de treinta (30) días, o si después de la correspondiente notificación alguna de las circunstancias previstas en las letras (c), (d) y (e) se prolongare más de sesenta (60) días, el Banco tendrá derecho para declarar vencido y pagadero de inmediato el Préstamo o parte de él y los intereses devengados hasta la fecha de pago.
+Sección 4.03. Obligaciones no afectadas.—No obstante lo dispuesto en las Secciones 4.01 y 4.02, ninguna de las medidas previstas en este Articulo afectará: (a) las cantidades sujetas a la garantía irrevocable de una carta de crédito, o (b) las cantidades comprometidas por cuenta de compras contratadas con anterioridad a la suspensión, autorizadas por escrito por el Banco y con respecto a las cuales se hayan colocado previamente ordenes específicas.
+Sección 4.04. No renuncia de derechos.—El retardo en el ejercicio de los derechos del Banco acordados en este Artículo. o su omisión, no podrán ser interpretados como una renuncia del Banco a tales derechos ni como una aceptación de las circunstancias que lo habrían facultado para ejercitarlos.
+Sección 4.05. Disposiciones no afectadas.—La aplicación de las medidas establecidas en este Artículo no afectará las demás disposiciones de este Contrato, las cuales quedarán en pleno vigor.
