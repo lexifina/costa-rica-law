@@ -1,0 +1,1 @@
+Art. 2. La base de cada accion será la de cien pesos hasta completar por la primera vez la suma de quince mil pesos, Si se considerase no ser suficiente ésta para los trabajos que demanda aquella importante obra, podrá admitirse un nuevo número de accionistas que no exceda la mitad del primero ó se aumentará entre los de este el valor de sus acciones.
