@@ -15,3 +15,4 @@ Reglamento del Museo Nacional.
 | 1 | 1980-05-14 | la propia norma |
 | 2 | 1980-05-14 | SINALEVI (sin norma nombrada) |
 | 3 | 1995-05-02 | Decreto Ejecutivo 24293 (1995-05-02) |
+| 4 | 1998-02-11 | Decreto Ejecutivo 26743 (1998-02-11) |
