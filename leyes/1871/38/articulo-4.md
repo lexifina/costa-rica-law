@@ -1,0 +1,1 @@
+Art. 4. El impuesto de muelle de las mercaderías que se importen, será incluido en la liquidacion de las pólizas por derechos marítimos, conforme al peso anotado en el pedimento ó pedimentos de desalmacenaje de que se compongan las pólizas,
