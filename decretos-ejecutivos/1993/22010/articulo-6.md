@@ -1,0 +1,1 @@
+Artículo Sexto.—El Director tendrá la facultad de asignar funciones nuevas o complementar las existentes en cada Departamento, así como, efectuar aquellos cambios que se requieran para una mayor eficiencia de la Dirección.

@@ -1,0 +1,1 @@
+Artículo Cuarto.—Las consultas escritas serán evacuadas mediante dictámenes firmados por el Director, o bien por los abogados de la Dirección debidamente autorizados. La Dirección Jurídica podrá de oficio reconsiderar sus dictámenes, informes y pronunciamientos y no estará obligada a contestar consultas verbales, sin perjuicio de la asesoría que le compete brindar.
