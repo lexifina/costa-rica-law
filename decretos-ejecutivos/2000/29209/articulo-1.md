@@ -1,0 +1,10 @@
+PODER EJECUTIVO
+DECRETO N° 29209-H EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE HACIENDA
+Considerando:
+1°-Que en la Norma de Ejecución Presupuestaria N° 3 contenida en el artículo 7° de la Ley de Presupuesto Ordinario para el Ejercicio Económico del 2000, N° 7952 del 7 de diciembre de 1999, se autoriza al Ministerio de Hacienda para que mediante Decreto Ejecutivo preparado por la Oficina de Presupuesto Nacional, aprobado por la Contraloría General de la República y con base en los montos certificados por la Contabilidad Nacional, incorpore los recursos generados por el diferencial cambiario, en los diferentes programas presupuestarios financiados con recursos del crédito público o donaciones.
+2°-Que el Ministerio de Educación solicitó la confección del presente Decreto mediante oficio DM-4545-00 del 18 de diciembre del 2000.
+3°-Que la Contabilidad Nacional certificó los recursos incluidos en el presente Decreto mediante cartificación N° 1050-2000, del 18 de diciembre del 2000.
+4°-Que la Contraloría General de la República dio su aprobación al presente Decreto Ejecutivo, mediante oficio N° ______ de ___ de ___ del 2000.
+Por tanto, Decretan:
+Artículo 1°-Modifícase el artículo 1°, inciso c) de la Ley N° 7952 del 7 de diciembre de 1999, en la forma que se indica a continuación:
+AUMENTAR: DETALLE DEL CµLCULO DE LOS INGRESOS EXTRAORDINARIOS EXTERNOS PARA EL EJERCICIO DEL 2000 (En colones corrientes) C G SP S R S L R EA U E U A U CR B N B S P CT P G R E O II A L E Ó DR Ó N N AT N G I L D Ó A N Concepto Monto ½ 2 0 00 0 00 00 INGRESOS DE CAPITAL 349.724.303,93 2 4 00 0 00 00 ENDEUDAMIENTO 349.724.303,93 2 4 20 0 00 00 EXTERNO349.724.303,93 2 4 21 0 00 00 CRDITOS DE ORGANISMOS INTERNACIONALES349.724.30 3,93 2 4 21 1 00 00 AL GOBIERNO CENTRAL 349.724.303,93 2 4 21 1 04 00 BANCO INTERNACIONAL DE RECONSTRUCCIÓN Y FOMENTO (BIRF) 349.724.303,93 2 4 21 1 04 78 CRDITO BIRF N° 3414, LEY N° 7315 DEL 23-10-92. PROYECTO MEJORAMIENTO DE LA CALIDAD DE LA EDUCACIÓN GENERAL BµSICA349.724.303 ,93 TOTAL AUMENTO DE LOS INGRESOS EXTRAORDINARIOS EXTERNOS3 49.724.303,93
