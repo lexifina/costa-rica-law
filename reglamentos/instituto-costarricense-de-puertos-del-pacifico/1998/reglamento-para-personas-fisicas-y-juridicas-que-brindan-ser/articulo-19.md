@@ -1,1 +1,0 @@
-Artículo 19.—De la aprobación. Este reglamento fue aprobado por la Junta Directiva del Instituto Costarricense de Puertos del Pacífico, de conformidad con Acuerdo No 4 Sesión No 2731 Fecha: 1 de abril de 1998.

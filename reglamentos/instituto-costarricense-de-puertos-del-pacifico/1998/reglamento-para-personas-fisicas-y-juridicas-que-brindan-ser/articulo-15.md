@@ -1,1 +1,0 @@
-Artículo 15.—Del responsable del ingreso al buque. Será el capitán o en su defecto su designado el único que autorizará el ingreso al buque del sujeto beneficiario o su representante para brindarles los respectivos servicios o suministros.

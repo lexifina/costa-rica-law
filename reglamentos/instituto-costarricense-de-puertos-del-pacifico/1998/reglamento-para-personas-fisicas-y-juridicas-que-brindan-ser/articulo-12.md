@@ -1,1 +1,0 @@
-Artículo 12.—De las disposiciones de Aduana. El sujeto beneficiario y / o su personal deberán cumplir con todas las disposiciones que en materia de aduanas dicten sus autoridades en los puertos administrados por INCOP. Cualquier incumplimiento a dichas disposiciones dará lugar a suspención del permiso de Operaciones.
