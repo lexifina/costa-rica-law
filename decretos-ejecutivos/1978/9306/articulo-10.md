@@ -1,0 +1,2 @@
+Artículo 10.—La Comisión de Emergencia Nacional será la responsable directa del manejo de los fondos destinados a la compra de fincas en las reservas indígenas y podrá utilizar la misma cuenta bancaria de la Comisión establecida por el decreto No 7182-G.
+Los cheques serán firmados por el Presidente y el Tesorero de la Comisión. En caso de ausencia de uno de estos dos, podrá firmar el Secretario. Para tal efecto estas tres firmas deberán ser registradas.
