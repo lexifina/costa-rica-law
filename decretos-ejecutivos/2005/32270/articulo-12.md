@@ -1,0 +1,1 @@
+Artículo 12.—Las entidades públicas cuando presenten una propuesta de reestructuración orgánica ante MIDEPLAN, deberán contemplar los costos que ésta genere, en el gasto presupuestario estipulado en el artículo 1° de estas directrices.

@@ -1,0 +1,1 @@
+Artículo 9°—Las entidades públicas, ministerios y demás órganos según corresponda, deberán realizar un ordenamiento de sus prioridades, de manera que dentro de sus presupuestos se incluyan recursos para financiar las acciones estratégicas del PND.

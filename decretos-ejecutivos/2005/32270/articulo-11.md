@@ -1,0 +1,1 @@
+Artículo 11.—Las entidades públicas, ministerios y demás órganos según corresponda, observarán los Procedimientos emitidos para la aplicación y seguimiento de estas directrices. Para éstos, se exceptúa lo establecido en el Capítulo II de los mismos, que será de aplicación adicional para las entidades citadas en el artículo 10 anterior.
