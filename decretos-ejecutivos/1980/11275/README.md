@@ -15,3 +15,4 @@ Reglamento Ley del Colegio Federado de Químicos e Ingenieros Químicos
 | 1 | 1980-03-21 | la propia norma |
 | 2 | 1980-03-21 | SINALEVI (sin norma nombrada) |
 | 3 | 1998-08-28 | Decreto Ejecutivo 27348 (1998-08-28) |
+| 4 | 2000-02-11 | Decreto Ejecutivo 28513 (2000-02-11) |
