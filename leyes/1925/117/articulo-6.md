@@ -1,2 +1,0 @@
-Artículo 6°-Para que el estricto cumplimiento de esta ley sea efectivo, quedan obligados todos los Agentes de Policía, Jueces de Paz, Comisarios y Guardas Fiscales, a dar parte a los Agentes Principales de Policía de la existencia de hormigueros, tan luego como tengan conocimiento del lugar en que existen.
-Quedan también obligadas a vigilar el estricto cumplimiento de esta ley las Municipalidades de la República , las cuales en casos necesarios, podrán prestar su ayuda económica en la ejecución de las obras que dicte la policía .
