@@ -1,0 +1,1 @@
+Artículo 57.—Publicación como propias de obras ajenas. Será sancionado con prisión de uno a tres años quien publique como propias o como de otro autor, obras ajenas protegidas, a las cuales se les haya cambiado o suprimido el título o se les haya alterado el texto, de modo que pueda resultar perjuicio.

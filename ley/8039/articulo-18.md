@@ -1,0 +1,1 @@
+Artículo 18.—Retención infundada. Cuando haya habido retención infundada de las mercancías, las autoridades judiciales condenarán en abstracto al demandante al pago por los daños y perjuicios causados al importador, al consignatario y al propietario de las mercancías; dicho pago será liquidado en ejecución de sentencia.
