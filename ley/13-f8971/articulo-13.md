@@ -1,0 +1,1 @@
+ARTÍCULO 13.-Se prohíben en las plazas y mercados, ventas de chichas y caldos fermentados, verduras y frutas; carne aneja, y todo salado por ser el uso de todo esto un provocativo de la enfermedad del cólera, según la opinión de varios inteligentes que han tratado sobre esta enfermedad.

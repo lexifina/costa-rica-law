@@ -1,0 +1,1 @@
+ARTÍCULO 50.-En cada cabecera de los partidos designados por este reglamento habrá igualmente un botica provista por la general establecida en esta Ciudad, y surtida de las mismas drogas y medicinas que ‚esta: siendo su economía y manejo cargo de la persona que encargue el referido Lic. Toledo, y administrada en los mismos términos que la general.

@@ -1,0 +1,2 @@
+De la policía interior de las habitaciones.
+ARTÍCULO 4°Todo dueño de casa habitante en ella es obligado precisamente mantener aseados con la mayor escrupulosidad, sus salas, aposentos y demás departamentos de habitación; y aun las piezas destinadas la custodia de efectos, mercaderías y cualquiera otra cosa sea cual fuese; lo mismo los patíos, corrales, jardines y pesebres, y las acequias en los solares por donde pasen.
