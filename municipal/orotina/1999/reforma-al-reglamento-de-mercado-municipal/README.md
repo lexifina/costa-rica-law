@@ -15,3 +15,4 @@ Reforma al Reglamento de Mercado Municipal
 | --- | --- | --- |
 | 1 | 1999-03-03 | la propia norma |
 | 2 | 2000-08-23 | Reglamento municipal 132 (2000-08-23) |
+| 3 | 2000-08-23 | Ley 8 |
