@@ -14,3 +14,4 @@ Procedimientos para la aplicación y seguimiento de la Política Presupuestaria 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-31 | la propia norma |
+| 2 | 2003-07-01 | Decreto Ejecutivo 31282 (2003-07-01) |
