@@ -1,0 +1,2 @@
+Artículo IX.—De las cancelaciones de las cuentas: En caso de que un menor desee cancelar su cuenta de ahorros, según lo establecido en éste reglamento para sus efectos deberá presentar la boleta de retiro firmada por su representante y la cédula del mismo.
+O bien se podrá presentar la persona autorizada (padre, madre o tutor legal) que realizó la apertura de la cuenta y retirar la totalidad cancelando la misma.
