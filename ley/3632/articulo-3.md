@@ -1,5 +1,1 @@
-Artículo 3º.- El Ministerio de Hacienda continuará recaudando este
-impuesto en la forma en que lo ha hecho hasta el momento y girará su
-importe a la Junta Directiva del Teatro Nacional en cuotas trimestrales
-de ¢ 50,000.00 (cincuenta mil colones). En el cuarto trimestre, la
-cuota será la que corresponda al saldo de lo recaudado durante el año.
+ARTICULO 3º.- El Ministerio de Hacienda continuará recaudando este impuesto en la forma en que lo ha hecho hasta el momento y girará su importe a la Junta Directiva del Teatro Nacional en cuotas trimestrales de ¢ 50,000.00 (cincuenta mil colones). En el cuarto trimestre, la cuota será la que corresponda al saldo de lo recaudado durante el año.
