@@ -1,1 +1,0 @@
-Artículo 17.-Todo sobrante de dinero establecido en la liquidación del adelanto de Subcaja Chica Auxiliar de efectivo, deberá ser reintegrado al fondo respectivo, a más tardar el día siguiente a la liquidación.
