@@ -1,0 +1,1 @@
+Artículo 14.—En caso de extravío, robo o daños mayores, el Director Ejecutivo del CONAVI, instruirá a la Dirección de Administración y Finanzas para que de conformidad con el contrato que suscribió el Funcionario Responsable, se proceda de inmediato a realizar el cobro respectivo.

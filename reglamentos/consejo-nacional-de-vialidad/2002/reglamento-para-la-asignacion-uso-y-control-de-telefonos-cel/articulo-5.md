@@ -1,0 +1,1 @@
+Artículo 5º—Se establece como máximo 180 minutos en total que incluye la tarifa básica; costos que serán cubiertos por la institución, y el excedente deberá ser cubierto de su propio peculio, por el Funcionario Responsable, se exceptúa de este máximo al Director Ejecutivo, el cual no tiene restricción alguna, salvo que se demuestre uso indebido del servicio.

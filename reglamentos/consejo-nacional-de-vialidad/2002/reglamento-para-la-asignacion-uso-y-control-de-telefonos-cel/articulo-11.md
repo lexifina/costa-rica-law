@@ -1,0 +1,1 @@
+Artículo 11.—En el caso de que el teléfono celular sea extraviado o robado, el Funcionario Responsable debe presentar la denuncia respectiva ante el Organismo de Investigación Judicial (OIJ) y reponerlo en forma inmediata.

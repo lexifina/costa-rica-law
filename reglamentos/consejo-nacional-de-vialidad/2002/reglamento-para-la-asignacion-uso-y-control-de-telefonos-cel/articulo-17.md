@@ -1,0 +1,1 @@
+Artículo 17.—El Funcionario Responsable del teléfono celular deberá pagar con depósito en la cuenta corriente del CONAVI, el excedente de llamadas durante los siguientes 8 (ocho) días hábiles después de recibido el oficio.

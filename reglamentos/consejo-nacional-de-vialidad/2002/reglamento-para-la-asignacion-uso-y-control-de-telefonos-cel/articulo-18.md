@@ -1,0 +1,1 @@
+Artículo 18.—En caso de que el Funcionario Responsable no haya cancelado en el período definido en el artículo anterior, la Dirección de Administración y Finanzas, gestionará ante el Director Ejecutivo del CONAVI, la suspensión del teléfono celular.

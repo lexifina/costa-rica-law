@@ -1,0 +1,1 @@
+Artículo 16.—El Departamento Financiero, remitirá mediante oficio y con el informe respectivo, el excedente de llamadas al Director de Administración y Finanzas, para que en coordinación con el Director Ejecutivo del CONAVI, se determine el cobro respectivo, de lo cual se informará mediante oficio adjunto e informe al Funcionario Responsable, indicando el monto que debe cancelar.

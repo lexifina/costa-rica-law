@@ -1,0 +1,1 @@
+Artículo 12.—En el caso de extravío, robo o daños mayores, el Funcionario Responsable deberá comunicarlo por escrito, al Director Ejecutivo del CONAVI, a más tardar, el tercer día hábil de ocurrido el hecho y además cumplir con lo indicado en el artículo anterior.
