@@ -1,0 +1,1 @@
+Artículo 4º—Administración y fiscalización del impuesto. La administración y fiscalización del impuesto corresponden a la Dirección General de Tributación. La recaudación sobre la producción nacional le corresponderá a dicha dirección y las aduanas del país recaudarán el impuesto relativo a las importaciones o internaciones.

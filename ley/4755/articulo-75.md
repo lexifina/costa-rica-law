@@ -1,3 +1,2 @@
-ARTÍCULO 75.- ELIMINADO
-(Derogado por el artículo 2º de la ley No.7900 de 3 de agosto de
-1999)
+Artículo 75.—Pago de intereses. Las sanciones pecuniarias establecidas devengarán los intereses citados en el artículo 57 de este Código, a partir de los tres días hábiles siguientes a la firmeza de la resolución que las fije.
+(Así reformado por el inciso f) del artículo 27 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001. Anteriormente este numeral había sido derogado por el artículo 2º de la ley N° 7900 de 3 de agosto de 1999)

@@ -1,2 +1,1 @@
-ARTICULO 5.- Los traspasos de bienes inmuebles pagarán un impuesto de
-un centésimo por ciento (0.01%) a favor de la Cruz Roja.
+Artículo 5°.- (Derogado por el inciso n) del artículo 31 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributarias, de 4 de julio del 2001.)

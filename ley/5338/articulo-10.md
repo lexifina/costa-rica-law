@@ -11,3 +11,4 @@ recursos naturales, ambiente en general, higiene ambiental y salud
 pública, (inciso d); por lo que las exoneraciones no previstas en tales
 incisos quedaron tácitamente derogadas conforme con el artículo 1º) de
 la Ley 7293 ibídem).
+(Así derogado parcialmente, en lo referente a las excenciones del impuesto sobre las ventas, por el artículo 17 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio de 2001).

@@ -1,0 +1,1 @@
+Transitorio IV.—Los entes dedicados a la prestación privada de servicios de educación universitaria que, a la entrada en vigencia de esta Ley, se encuentren organizados bajo la figura jurídica de la fundación, podrán optar por transformarse en algún tipo de sociedad mercantil, la cual asumirá todas las obligaciones y los derechos correspondientes a la fundación que le dio origen.

@@ -1,0 +1,1 @@
+Artículo 12.—Administración y fiscalización de los impuestos. La administración y fiscalización de los impuestos corresponderán a la Dirección General de Tributación. La recaudación sobre la producción nacional le corresponderá a esta Dirección; las aduanas del país recaudarán los impuestos referentes a las importaciones o internaciones.

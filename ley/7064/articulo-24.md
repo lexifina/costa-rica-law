@@ -1,12 +1,3 @@
 CAPITULO III
 De otros incentivos
-Artículo 24.-Se establecen los siguientes incentivos relacionados con el impuesto sobre la renta, que podrán aplicar las empresas dedicadas a actividades agropecuarias y agroindustriales que regula la presente lay:
-1.-Las revaloraciones de los activos fijos no formarán parte de la renta bruta de estas empresas. Tratándose de activos fijos depreciables, el valor de la revaloración no podrá exceder de aquel registrado para los efectos del pago del impuesto territorial. La revaluación será considerada para efectos de establecer las cuotas de las correspondiente depreciaciones.
-2.-Serán deducibles de la renta bruta de las empresas indicadas en este artículo:
-a.-Un amortización razonable para compensar el agotamiento o desgaste de maquinarias, bienes muebles, plantaciones y repastos usados en el negocio. La Administración determinar los porcentajes máximos de depreciación que prudencialmente puedan hacerse por este concepto, en consideración a la naturaleza de los bienes y a la rama de la actividad económica en la cual son utilizados.
-Se faculta al Poder Ejecutivo para que conceda depreciaciones aceleradas sobre activos nuevos, adquiridos por empresas que se considere conveniente estimular. Esas depreciaciones se fijarán mediante decreto, con carácter general, por actividad o rama de actividad.
-Estas empresas, además de la amortización normal dispuesta en el párrafo primero, tendrán un depreciación especial sobre activos nuevos, durante un período no superior a la mitad del dispuesto para la amortización normal.
-b.-Un equivalente al cincuenta por ciento (50%) del beneficio neto del período anterior, que se hubiere invertido en bienes de capital para el uso de estas empresas.
-La oficina de la Administración Tributaria rechazar las inversiones que no se hayan realizado en bienes productivos, de mantenimiento, expansión o diversificación, propios de la actividad empresarial.
-Todo lo referente a la aplicación de los incentivos que se incluyen en este artículo se regulará de conformidad con lo que se establezca sobre esta materia en el reglamento de la Ley del Impuesto sobre la Renta.
-(Así reformado por el artículo 28 de la ley de Presupuesto ordinario, N° 7111 del 12 de diciembre de 1988)
+ARTICULO 24.- (Derogado por el artículo 22 de la Ley de Simplificación y Eficiencia tributaria, N° 8114 del 7 de julio de 2001)

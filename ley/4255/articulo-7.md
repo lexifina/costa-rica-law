@@ -1,7 +1,2 @@
-Artículo 7º.- Créase el "Timbre Bibliotecas Nacionales" con valor de
-cinco colones (¢ 5.00), que deberán pagar todas aquellas personas que
-necesiten visa de salida del país y que sean portadoras de pasaporte
-particular.
-Los pasaportes oficiales pagarán al ser expedidos veinte colones
-(¢20.00), o sea cuatro Timbres Biblioteca Nacional "Miguel Obregón", y
-quince colones (¢ 15.00) en cada visado de salida.
+Artículo 7º.- DEROGADO por el inciso o) del artículo 31 de la Ley N° 8114,
+Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001.

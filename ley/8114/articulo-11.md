@@ -1,0 +1,3 @@
+Artículo 11.—Actualización de los impuestos. El Ministerio de Hacienda deberá:
+a) Actualizar trimestralmente el monto de estos impuestos, a partir de la vigencia de esta Ley, de conformidad con la variación del índice de precios al consumidor que determina el Instituto Nacional de Estadística y Censos (INEC). En ningún caso, el ajuste trimestral podrá ser superior al tres por ciento (3%).
+b) Publicar, mediante decreto ejecutivo, la actualización referida en el inciso anterior, dentro de los ocho días anteriores a cada período trimestral de aplicación. Los períodos de aplicación iniciarán el primer día de enero, abril, julio y octubre.

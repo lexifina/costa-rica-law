@@ -1,0 +1,1 @@
+Artículo 14.—Derogación. Derógase la aplicación del impuesto selectivo de consumo a todas las bebidas envasadas sin contenido alcohólico, excepto la leche y los jabones de tocador, establecido en los anexos 1, 2 y 3 de la Ley Nº 4961, de 10 de marzo de 1972.

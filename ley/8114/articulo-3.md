@@ -1,0 +1,6 @@
+Artículo 3º—Actualización del impuesto. El Ministerio de Hacienda deberá:
+a) Actualizar trimestralmente el monto de este impuesto, por tipo de combustible, a partir de la vigencia de esta Ley, de conformidad con la variación en el índice de precios al consumidor que determina el Instituto Nacional de Estadística y Censos (INEC). En ningún caso el ajuste trimestral podrá ser superior al tres por ciento (3%).
+b) Publicar, mediante decreto ejecutivo la actualización referida en el inciso anterior, dentro de los cinco días hábiles posteriores al inicio de cada período trimestral de aplicación.
+La Autoridad Reguladora de los Servicios Públicos (ARESEP) tendrá un plazo máximo de dos días hábiles para actualizar el precio de los combustibles, con fundamento en la actualización del impuesto que publique el Ministerio de Hacienda. La Imprenta Nacional deberá publicar la resolución de la ARESEP en un plazo máximo de dos días hábiles a partir de su recibo.
+En los casos de fijaciones tarifarias, RECOPE aplicará el precio actualizado a partir del día siguiente al de publicación en La Gaceta, de la respectiva resolución de la ARESEP.
+c) Una vez publicado el decreto aludido en el inciso b) anterior, la actualización ordenada en el presente artículo entrará a regir automáticamente el primer día de cada período de aplicación.

@@ -1,0 +1,2 @@
+TRANSITORIOS
+Transitorio I.—Mientras no se promulgue el reglamento que fija las normas por seguir en cuanto a la inscripción de los contribuyentes fabricantes o envasadores nacionales, referidos en los capítulos I y II de esta Ley, RECOPE, en el caso del capítulo I, y los fabricantes o envasadores nacionales, en el caso del capítulo II, continuarán rigiéndose, en cuanto a inscripción y aplicación del formulario para declarar, por lo dispuesto en la Ley del impuesto selectivo de consumo, Nº 4961, de 10 de marzo de 1972, y sus reformas.

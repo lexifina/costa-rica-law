@@ -1,24 +1,14 @@
-ARTÍCULO 130.- Responsabilidad de los declarantes
-Las declaraciones juradas o manifestaciones que formulen los sujetos
-pasivos se presumen fiel reflejo de la verdad y responsabilizan al
-declarante por los tributos que de ellas resulten, así como por la
-exactitud de los demás datos contenidos en tales declaraciones.
-Asimismo, los sujetos pasivos podrán rectificar sus declaraciones
-tributarias, teniendo en cuenta los siguientes aspectos:
-a) Cuando los sujetos pasivos, rectifiquen sus declaraciones
-tributarias, deberán presentar en los lugares habilitados para este fin,
-una nueva declaración en los medios que defina la Administración
-Tributaria, y deberán cancelar un tributo, mayor cuando corresponda, junto
-con sus accesorios, tales como intereses fijados para el pago fuera de
-plazo.
-b) Toda declaración que el sujeto pasivo presente con posterioridad
-a la inicial, será considerada rectificación de la inicial o de la última
-declaración rectificadora, según el caso.
-La rectificación de las declaraciones a que se hace referencia en los
-párrafos anteriores, no impide el ejercicio posterior de las facultades de
-la Adminstración Tributaria para fiscalizar o verificar.
-(Así corregida su numeración por el artículo 6 de la Ley de Justicia
-Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo
-125 al actual)
-(Así reformado por el artículo 1º de la ley No.7900 de 3 de agosto de
-1999)
+Artículo 130.- Responsabilidad de los declarantes
+Las declaraciones juradas o manifestaciones que formulen los sujetos pasivos se presumen fiel reflejo de la verdad y responsabilizan al declarante por los tributos que de ellas resulten, así como por la exactitud de los demás datos contenidos en tales declaraciones.
+Asimismo, los sujetos pasivos podrán rectificar sus declaraciones tributarias, teniendo en cuenta los siguientes aspectos:
+a) Cuando los sujetos pasivos, rectifiquen sus declaraciones tributarias, deberán presentar en los lugares habilitados para este fin, una nueva declaración en los medios que defina la Administración Tributaria, y deberán cancelar un tributo, mayor cuando corresponda, junto con sus accesorios, tales como intereses fijados para el pago fuera de plazo.
+b) Toda declaración que el sujeto pasivo presente con posterioridad a la inicial, será considerada rectificación de la inicial o de la última declaración rectificadora, según el caso.
+c) En los casos de determinaciones por parte de la Administración Tributaria, el contribuyente podrá rectificar incluso su declaración después de comunicada la conclusión de la actuación fiscalizadora y hasta la notificación de la resolución que resuelve el recurso de revocatoria en contra de la resolución determinativa. Solo en estas fases procesales la rectificación tendrá el carácter de petición sujeta a la aprobación por parte de la Administración Tributaria. La consecuente aprobación o denegatoria será incorporada directamente en la resolución determinativa o en la resolución en que se defina el recurso de revocatoria contra la resolución determinativa, so pena de nulidad de la resolución respectiva. A esta petición, no se le aplicará el régimen del silencio negativo descrito en el artículo 102.
+d) La rectificación de la declaración tributaria podrá abarcar cualquier rubro que incida en la base imponible del tributo o en las formas de extinción de la obligación tributaria correspondiente.
+(Así adicionados los incisos c) y d) por el inciso k) de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001).
+Si en el momento de presentarse una declaración rectificativa se ha notificado el inicio de un procedimiento fiscalizador sobre el impuesto y período objeto de esta, automáticamente dicha declaración formará parte del procedimiento, siempre que este no haya concluido. Para estos efectos, el sujeto fiscalizado deberá poner en conocimiento de los funcionarios actuantes la existencia de la declaración rectificativa, la cual será considerada para la liquidación definitiva de la obligación tributaria.
+(Así adicionado el párrafo anterior, por el inciso l) del artículo 27 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001)
+Una vez emitida el acta de conclusión de actuación fiscalizadora, no procederá presentar declaraciones rectificativas referidas a los períodos e impuestos objeto de dicha actuación fiscalizadora.
+(Así adicionado el párrafo anterior, por el inciso l) del artículo 27 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001)
+La rectificación de las declaraciones a que se hace referencia en los párrafos anteriores, no impide el ejercicio posterior de las facultades de la Administración Tributaria para fiscalizar o verificar.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo125 al actual)
