@@ -1,1 +1,0 @@
-Artículo 3°-La Comisión estará integrada por funcionarios de la Dirección de Ganadería del Ministerio de Agricultura y Ganadería, por representantes de los ganaderos-asociaciones' y particulares-interesados, quienes actuarán con carácter ad-honorem.

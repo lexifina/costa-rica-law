@@ -1,2 +1,0 @@
-Artículo 6°-Los integrantes de la Comisión elegirán de su seno un Presidente, un Vicepresidente, un Secretario, un Tesorero, un Vicetesorero y un Fiscal, siendo el resto Vocales, los cuales durarán en sus puestos dos años pudiendo ser reelectos, lo mismo que los de los comités.
-Las reuniones, votaciones, acuerdos etc., se regirán por lo dispuesto en el reglamento general interno que preparará la Comisión.

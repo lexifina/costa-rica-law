@@ -1,1 +1,0 @@
-Artículo 2°-La Comisión dictará las normas bajo las cuales se llevarán a cabo esas exposiciones, redactando, a ese efecto, un reglamento general que servirá de base a aquellos otros específicos para determinado evento, los cuales serán preparados por el comité organizador respectivo, sujeto a su aprobación.
