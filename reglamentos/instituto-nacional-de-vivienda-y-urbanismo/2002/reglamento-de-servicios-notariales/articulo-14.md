@@ -1,0 +1,1 @@
+Artículo 14.—Las escrituras se distribuirán entre los Notarios Activos, atendiendo a un rol y de acuerdo con cada sistema. Se entenderá por Notarios Activos, aquellos Notarios, legalmente habilitados para el ejercicio del notariado contratados por el INVU, conforme a este Reglamento y las demás disposiciones vigentes aplicables a esta materia.

@@ -1,0 +1,1 @@
+Artículo 16.—Una vez asignado el notario, por los Subprocesos de Notariado de las áreas, éstas llenarán un formulario, por el cual, remitirán el caso o casos, los que retirará contra su firma o la de quien autorice, para tal efecto.

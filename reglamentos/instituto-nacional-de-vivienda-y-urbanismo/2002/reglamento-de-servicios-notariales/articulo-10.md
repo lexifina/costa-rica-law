@@ -1,0 +1,1 @@
+Artículo 10.—No se asignará Notario para la confección de la escritura, si el expediente no contiene todos los documentos requeridos para la formalización con vigencia no menor de quince días naturales, así como cualquier otro requisito, que exija el Sistema de crédito o contrato y que, necesariamente, deben llenarse en forma previa a la constitución de la escritura.

@@ -1,0 +1,1 @@
+Artículo 20.—Bimestralmente los Subprocesos de Notariado de las áreas remitirán informes de operaciones asignadas a cada notario, con detalle de los casos pendientes, para ser conocido por la Gerencia General, la que procederá según corresponda.

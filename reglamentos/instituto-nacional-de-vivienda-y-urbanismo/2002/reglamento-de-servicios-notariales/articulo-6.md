@@ -1,0 +1,1 @@
+Artículo 6º—Los trámites previos, la recopilación de documentos y datos para la formalización de las escrituras, así como la determinación de los honorarios, los debe realizar el proceso o área respectiva, según lo estipulado en este reglamento.

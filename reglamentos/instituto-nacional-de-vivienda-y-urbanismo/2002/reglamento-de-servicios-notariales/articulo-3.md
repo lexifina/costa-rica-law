@@ -1,0 +1,1 @@
+Artículo 3º—Los Notarios que presten sus servicios a la Institución, no podrán aceptar casos de litigios en contra de éste, ni de cualquier defensa de intereses opuestos al INVU, en cuyo evento será revocada su designación. Lo mismo ocurrirá cuando las operaciones que personalmente hubieren contraído con el INVU, se encontraren en cobro judicial por estar morosas.

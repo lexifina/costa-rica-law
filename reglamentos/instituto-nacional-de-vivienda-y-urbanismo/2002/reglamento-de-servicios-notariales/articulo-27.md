@@ -1,0 +1,1 @@
+Artículo 27.—El INVU deberá prever las partidas presupuestarias para los casos de escrituras de interés institucional como segregaciones, daciones en pago, actas notariales, certificaciones y de cualquier otra índole similar.
