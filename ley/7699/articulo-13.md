@@ -6,11 +6,11 @@ conformidad con el artículo 9 figurarán las siguientes:
 a) establecer una cooperación financiera que asegure la
 predictibilidad en los programas de acción y permita la necesaria
 planificación a largo plazo;
-b) elaborar y utilizar mecanismos de cooperación que permitan prestar
-un apoyo más eficaz a nivel local, incluso por conducto de organizaciones
-no gubernamentales, a fin de asegurar la posibilidad de repetir, cuando
-sea oportuno, las actividades de los programas experimentales que hayan
-tenido éxito;
+b) elaborar y utilizar mecanismos de cooperación que permitan
+prestar un apoyo más eficaz a nivel local, incluso por conducto de
+organizaciones no gubernamentales, a fin de asegurar la posibilidad de
+repetir, cuando sea oportuno, las actividades de los programas
+experimentales que hayan tenido éxito;
 c) aumentar la flexibilidad de diseño, financiación y ejecución de
 los proyectos de manera acorde con el enfoque experimental e iterativo
 indicado para la participación de las comunidades locales; y

@@ -24,8 +24,8 @@ políticas nacionales en favor del desarrollo sostenible.
 Partes desarrollados de conformidad con el artículo 6, se atribuirá
 prioridad al apoyo, según lo convenido, a los programas de acción
 nacionales, subregionales y regionales de los países Partes en desarrollo
-afectados, en particular los de África, ya sea directamente o por medio de
-las organizaciones multilaterales pertinentes, o de ambas formas.
+afectados, en particular los de África, ya sea directamente o por medio
+de las organizaciones multilaterales pertinentes, o de ambas formas.
 3.- Las Partes alentarán a los órganos, fondos y programas del
 sistema de las Naciones Unidas y a otras organizaciones
 intergubernamentales pertinentes, a las instituciones académicas, a la

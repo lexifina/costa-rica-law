@@ -7,8 +7,8 @@ a) las Partes deben garantizar que las decisiones relativas a la
 elaboración y ejecución de programas de lucha contra la desertificación y
 mitigación de los efectos de la sequía se adopten con la participación de
 la población y de las comunidades locales y que, a niveles superiores, se
-cree un entorno propicio que facilite la adopción de medidas a los niveles
-nacional y local;
+cree un entorno propicio que facilite la adopción de medidas a los
+niveles nacional y local;
 b) las Partes, en un espíritu de solidaridad y asociación
 internacionales, deben mejorar la cooperación y la coordinación a nivel
 subregional, regional e internacional, y encauzar mejor los recursos
