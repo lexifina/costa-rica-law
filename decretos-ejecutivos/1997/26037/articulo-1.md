@@ -1,0 +1,13 @@
+N° 26037-S
+EL PRESIDENTE DE LA REPUBLICA
+y EL MINISTRO DE SALUD,
+Con fundamento en las atribuciones conferidas por el artículo 140, incisos 3) y 18) de la Constitución Política; 25 de la Ley N° 6227 del ~ mayo de 1978 "Ley General de la Administración Pública".
+Considerando.:
+1°-Que el Reglamento de Especialidades Odontológicas, emitido mediante decreto ejecutivo W 23254-S del 25 de abril de 1994, no contempla plazo para que la Comisión de Registro de Especialidades Odontológicas, prevenga al interesado para contemplar su documentación o para que la misma Comisión se pronuncie en forma definitiva.
+2°-Que la junta directiva del Colegio de Cirujanos Dentistas de Costa Rica, mediante oficio 44-97 CCDCR del 4 de febrero de 1997, ha solicitado al Ministerio de Salud, que subsane dicha situación, por lo que se considera oportuno y necesario modificar el artículo 8° del decreto ejecutivo N° 23254-S del 25 de abril de 1994. Por tanto,
+DECRETAN:
+Artículo 1°-Se adiciona cuatro párrafos finales al artículo 8° del decreto ejecutivo N° 23254-S del 25 de abril de 1994 "Reglamento de Especialidades Odontológicas", que se leerán así:
+"Una vez que la solicitud cumpla con todos los requisitos, la Comisión deberá pronunciarse en un plazo de dos meses contados a partir de la fecha en que la solicitud quedó completa. Vencido este plazo, la solicitud se tendrá por aprobada debiendo la Junta Directiva del Colegio, a solicitud del interesado,.proceder a la inscripción.
+Si la solicitud no cumple con todos los requisitos, dentro del mes siguiente a la fecha de recepción de la misma, la Comisión le indicará al interesado, que proceda a completarlos, otorgándole para ello un plazo de un mes, vencido éste, sin tener respuesta del interesado, devolverá la solicitud a la Junta Directiva para que proceda a archivarla sin que sea necesario informar o notificar al interesado.
+Todas las comunicaciones a que se refieren los dos párrafos anteriores deberá hacerla la comisión por medio de correo certificado dirigido a la dirección que el interesado haya puesto a su solicitud. Si no hubiere indicado dirección alguna, la Comisión no será responsable por no haber notificado.
+Las resoluciones que dictare la Comisión. podrán ser apeladas dentro de los cinco días hábiles posteriores a su notificación, ante la Junta Directiva del Colegio y las de ésta ante la Asamblea General, dentro del mismo plazo, debiendo el interesado pagar los costos de convocatoria de la Asamblea General. los cuales deberán ser depositados en la tesorería del Colegio, como requisito previo para fijar la fecha en que se celebrará la Asamblea General."
