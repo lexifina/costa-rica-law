@@ -1,0 +1,1 @@
+Artículo 2° Los diputados de las provincias de Cartago, Heredia, Alajuela y Guanacaste y comarcas de Limón y Puntarenas, devengan además cincuenta pesos mensuales para gastos de permanencia en esta capital.
