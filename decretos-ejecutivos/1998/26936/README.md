@@ -14,3 +14,4 @@ Declara Interés Histórico Arquitectónico Catedral Metropolitana S.J
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-12-18 | la propia norma |
+| 2 | 1998-12-18 | Decreto Ejecutivo 27285 (1998-09-02) |
