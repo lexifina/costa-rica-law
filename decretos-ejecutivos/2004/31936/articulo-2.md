@@ -1,0 +1,2 @@
+Articulo 2°- Modificase el articulo 2° de la Ley N° 8398 ó Ley de Presupuesto Ordinario y Extraordinario de la Republica para el Ejercicio Económico del 2004, publicada en el Alcance N° 66 a la Gaceta N° 252 del 31 de diciembre del 2003, en la Relación de Puestos de Cargos Fijos, en la forma qua se a indica a continuación:
+(Por lo extenso de su contenido, consultar La Gaceta impresa N° 192, Alcance N° 47 del 1° de octubre del 2004)
