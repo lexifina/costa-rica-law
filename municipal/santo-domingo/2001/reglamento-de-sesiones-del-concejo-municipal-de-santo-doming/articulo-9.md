@@ -1,0 +1,1 @@
+Articulo 9°—El Presidente Municipal esta obligado, después de transcurridos quince minutos contados a partir de la hora señalada para iniciar la sesión, a realizar la sustitución del Regidor Propietario que incurra en esta anomalía, perderá el derecho de devengar la dieta y su derecho a voto, no obstante conservará su derecho a voz.

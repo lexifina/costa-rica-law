@@ -1,0 +1,1 @@
+Artículo 15.—I-os dictámenes de las comisiones serán incluidos, en el orden del día, siguiendo el orden en que fueron presentados. La Secretaria , al recibir los dictámenes, consignará al pie de ellos la hora y fecha de presentación.

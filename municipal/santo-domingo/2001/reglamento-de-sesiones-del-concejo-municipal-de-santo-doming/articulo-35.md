@@ -1,0 +1,1 @@
+Articulo 35.—Las Comisiones despacharán los asuntos a su cargo con la mayor brevedad posible. Salvo los casos especiales en que el Presidente del Concejo, en forma expresa, fije un término menor o superior, las Comisiones deberán rendir sus dictámenes en un plazo no mayor de quince días prorrogables por oíros quince, a juicio del Presidente.

@@ -1,0 +1,1 @@
+Articulo 18.—El Presidente no dará curso o declarara fuera de orden las proposiciones o mociones que evidentemente resulten improcedentes o que simplemente tiendan a dilatar l! obstruir el curso normal del debate o la resolución de un apunto.
