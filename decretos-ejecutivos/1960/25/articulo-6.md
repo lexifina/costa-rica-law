@@ -1,0 +1,1 @@
+Artículo 6°-La Oficina del Café se reserva la facultad de recalificar las café en una misma instalación para dos o más empresas beneficiadoras zonas a que efectivamente correspondan las entregas de café, caso de que no se ajusten al límite de diferenciación de alturas aprobado.(sic)
