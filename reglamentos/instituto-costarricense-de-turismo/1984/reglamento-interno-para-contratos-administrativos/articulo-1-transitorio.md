@@ -1,1 +1,0 @@
-Transitorio: No obstante lo dispuesto en el artículo 11, se mantienen vigentes las disposiciones referentes a los fondos de caja chica de las diferentes oficinas externas con que cuenta el ICT, hasta tanto las mismas no sean modificadas por acuerdo de Presidencia Ejecutiva o Gerencia.

@@ -1,1 +1,0 @@
-Artículo 4º—Cuando Presupuesto compruebe la existencia de partida para la contratación que se pretende, refrendará la orden a efecto de que se continúe el trámite de la negociación. El refrendo, o la indicación de falta de partida, deberá llevarse a cabo en el curso de las veinticuatro horas siguientes al recibo de la orden que la requiera.

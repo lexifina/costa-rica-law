@@ -1,2 +1,0 @@
-Disposiciones administrativas sobre la contratación
-Artículo Iº—Para la buena marcha de la administración, todas las dependencias del ICT deberán efectuar un análisis de los bienes y servicios que necesitarán durante el año, y presentar a la Sección de Proveeduría un detalle dé dichos bienes y servicios, antes de que se prepare el presupuesto de la Institución, con el objeto de que las partidas correspondientes para su contratación puedan ser incluidas en el mismo. De existir ya partidas generales para dichos efectos, se indicará este hecho en el informe correspondiente.

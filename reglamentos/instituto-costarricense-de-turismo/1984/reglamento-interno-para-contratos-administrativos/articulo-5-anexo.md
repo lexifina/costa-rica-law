@@ -1,1 +1,0 @@
-Artículo 5º—La Proveeduría es responsable de la tramitación de las contrataciones administrativas y de que se ejerzan los controles necesarios para que no se produzcan irregularidades, de conformidad con este Reglamento.

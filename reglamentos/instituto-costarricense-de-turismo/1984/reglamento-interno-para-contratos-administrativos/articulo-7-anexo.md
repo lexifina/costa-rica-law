@@ -1,1 +1,0 @@
-Artículo 7º—La aprobación del giro de gastos de representación, sus adelantos o liquidaciones según el caso, corresponderá a la Presidencia Ejecutiva o a la Gerencia, cuando su monto sobrepase la suma de veinte mil colones. En los demás casos procederá a su aprobación la Dirección que incurra en el gasto.

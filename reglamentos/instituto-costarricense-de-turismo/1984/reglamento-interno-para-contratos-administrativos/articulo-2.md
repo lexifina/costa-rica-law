@@ -1,1 +1,0 @@
-Artículo 2º—Todo lo relativo a las responsabilidades de los empleados o funcionarios que participen en dicha contratación, estará regulada por lo que al efecto disponen la ley y reglamento citados, así como la Ley General de la Administración Pública, la Ley Orgánica del Instituto, su Reglamento Interno de Trabajo y cualquier otra estipulación legal, o reglamentaria conexa.
