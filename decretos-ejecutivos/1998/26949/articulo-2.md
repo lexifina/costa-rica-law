@@ -1,0 +1,1 @@
+Artículo 2°—La Inspección General del Servicio Exterior estará cargo de un Inspector General, nombrado directamente por el Ministro de Relaciones Exteriores y Culto, y fungirá como su colaborador directo.
