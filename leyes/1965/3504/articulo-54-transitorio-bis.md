@@ -1,0 +1,2 @@
+Artículo 54 bis.—Notificaciones. Para los casos de los procesos de reconocimiento de paternidad, el Registro Civil se ajustará a las disposiciones de la Ley de notificaciones, citaciones y otras comunicaciones, Nº 7637, del 21 de octubre de 1996. Para estos efectos, toda notificación deberá realizarse en forma personal y las que se efectúen en forma contraria carecerán de toda validez y eficiencia jurídicas."
+(Así adicionado por el artículo 2 de la Ley N° 8101 de 16 de abril del 2001)
