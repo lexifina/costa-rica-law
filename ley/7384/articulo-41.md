@@ -1,0 +1,18 @@
+ARTICULO 41.- Los inspectores que nombre INCOPESCA para velar por el
+cumplimiento de la legislación pesquera, tendrán el carácter de
+autoridades de policía, y como tal deberán denunciar ante las autoridades
+competentes las infracciones cometidas según la presente Ley.
+La Guardia de Asistencia Rural y las demás autoridades de policía
+estarán obligadas a prestar su colaboración a dichos funcionarios, cada
+vez que estos la requieran para cumplir con las funciones y deberes
+impuestos por esta Ley.
+Mediante el Reglamento de la presente Ley, se establecerán las
+funciones y atribuciones de esos funcionarios.
+Serán juzgadas como cómplices y sancionadas con las mismas penas,
+según el caso, las autoridades a quienes competa hacer cumplir esta Ley,
+cuando se les compruebe que, teniendo conocimiento de las violaciones a la
+presente Ley o a su Reglamento, no procuren el castigo de los culpables o,
+por negligencia o complacencia, permitan infracciones de la misma. En
+tales casos, de acuerdo con la gravedad del hecho, los jueces que conozcan
+de esta Ley podrán imponer como pena adicional, la de inhabilitación
+especial.

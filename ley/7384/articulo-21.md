@@ -1,0 +1,5 @@
+ARTICULO 21.- La Junta Directiva eligirá de su seno un
+Vicepresidente, quien sustituirá al Presidente en caso de ausencia o
+impedimento en el ejercicio de sus atribuciones o deberes. Cuando estén
+ausentes el Presidente y el Vicepresidente, la Junta nombrará a uno de sus
+miembros como Presidente ad hoc.

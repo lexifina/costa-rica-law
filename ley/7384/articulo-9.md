@@ -1,0 +1,18 @@
+ARTICULO 9.- No podrán designarse como miembros de la Junta
+Directiva:
+a) Los deudores morosos del Instituto.
+b) Quienes hayan sido declarados en estado de quiebra o insolvencia;
+los condenados por delitos contra la propiedad o por peculado o
+malversación de fondos; ni los morosos en ninguno de los bancos o
+instituciones del Estado.
+c) Quienes estén ligados por parentesco, por consanguinidad o
+afinidad hasta el tercer grado inclusive, con otros miembros de la Junta
+Directiva o con el Auditor. Tampoco podrán conformar la Junta Directiva
+personas o empleados del mismo Instituto. Cuando, con posterioridad al
+nombramiento se compruebe la existencia de alguno de los impedimentos a
+los que se refiere este inciso, quedará sin efecto la designación del
+miembro que tenga el menor tiempo de permanecer en el cargo.
+En cualquiera de los casos especificados en este artículo, la Junta
+Directiva levantará la información correspondiente y de oficio procederá
+a declarar o no la pérdida de la credencial, lo que deberá ser aprobado
+por el Consejo de Gobierno.

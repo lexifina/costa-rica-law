@@ -1,0 +1,7 @@
+ARTICULO 35.- Las dependencias del Instituto estarán obligadas a
+presentar al Auditor, toda la información que les solicite, en la forma y
+en el plazo que él determine. El Auditor y los funcionarios de la
+Auditoría Interna autorizados por él, tendrán libre acceso a todos los
+libros, documentos, valores y archivos del Instituto, por lo cual los
+funcionarios y empleados de éste estarán obligados a prestarles su ayuda
+para el mejor desempeño de las funciones de vigilancia y fiscalización.
