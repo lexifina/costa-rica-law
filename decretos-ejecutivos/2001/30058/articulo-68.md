@@ -1,0 +1,1 @@
+Artículo 68.—Rendición de cuentas. La rendición de cuentas es una obligación de todo jerarca y funcionario de los entes u órganos que conforman el Sistema de Administración Financiera del Sector Público, consistente en informar y demostrar, con objetividad y transparencia, los resultados de la gestión institucional.

@@ -1,0 +1,1 @@
+Artículo 96.—Ampliaciones de cuotas. Toda ampliación de cuota de ejecución del presupuesto deberá ser autorizada por la Tesorería Nacional con base en la programación de la ejecución presupuestaria y la disponibilidad de Caja. Corresponderá al jerarca del órgano u ente de que se trate, solicitar la ampliación correspondiente.

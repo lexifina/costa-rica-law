@@ -1,0 +1,1 @@
+Artículo 27.—Asistencia técnica. La Dirección General de Presupuesto Nacional brindará, por medio de sus funcionarios, asesoría técnica y capacitación a los funcionarios de los órganos u entes que intervienen en el proceso presupuestario.

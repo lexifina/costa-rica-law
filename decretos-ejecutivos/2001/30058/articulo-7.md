@@ -1,0 +1,5 @@
+Artículo 7º—Principios del Plan Nacional de Desarrollo. En la elaboración del Plan Nacional de Desarrollo se tomarán en cuanta los siguientes principios:
+a) Realidad: Las metas y objetivos que se formulen deberán establecerse de tal manera que sean cuantificables y cualitativos, respectivamente, para permitir su comprobación real, mediante la aplicación de procesos matemáticos y puedan ser conocidos y evaluados, conforme a indicadores de desarrollo.
+b) Plurianualidad: Las principales metas y objetivos que se proponen realizar los órganos y entes públicos deben ser definidas dentro de un período gubernamental determinado, que incluya una visión de corto y mediano plazo.
+c) Integridad: Comprende un análisis de coherencia interna de forma tal que asegure una correspondencia entre políticas, objetivos, metas, estrategias, programas, proyectos y responsabilidades institucionales, en cuanto a la operación física y financiera.
+d) Flexibilidad: Permite evaluaciones periódicas para realizar ajustes en los programas y proyectos, sin perder la consistencia integral y estratégica del Plan.

@@ -1,0 +1,1 @@
+Transitorio V.—La plaza de Contador Nacional pasará a ser de nombramiento como funcionario de confianza, cuando su titular actual cese en sus funciones, ya sea por renuncia u otra disposición conforme al marco jurídico que regula el Régimen del Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 5º—Elaboración del Plan Nacional de Desarrollo. El Plan Nacional de Desarrollo será realizado por el Ministerio de Planificación Nacional y Política Económica, en concurso con las entidades que se requiera para esos fines.

@@ -1,0 +1,1 @@
+Artículo 38.—Presupuestación de los ingresos. De conformidad con la programación macroeconómica a que se refiere el artículo 9 del presente Reglamento, el Ministerio de Hacienda preparará, para su incorporación en el proyecto de Ley de Presupuesto de cada ejercicio, la estimación de los ingresos fiscales.

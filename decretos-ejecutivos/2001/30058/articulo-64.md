@@ -1,0 +1,1 @@
+Artículo 64.—Programación de otras instancias. Los Poderes Legislativo y Judicial, el Tribunal Supremo de Elecciones, sus dependencias y órganos auxiliares, presentarán la propuesta de programación de la ejecución presupuestaria, conforme a las disposiciones técnicas que para los efectos defina la Dirección General de Presupuesto Nacional.

@@ -1,0 +1,1 @@
+Transitorio VI.—Para efecto de lo que establece el artículo 46 de la Ley de Administración Financiera de la República y de Presupuestos Públicos, para el Ejercicio Económico del 2001 regirá lo establecido en los artículos 2º y 3º del Decreto Ejecutivo Nº 29980-H del 23 de octubre del 2001.

@@ -1,0 +1,1 @@
+Artículo 73.—Informe de cierre del ejercicio. La Dirección General de Presupuesto Nacional y el Ministerio de Planificación, dentro del ámbito de su respectiva competencia, elaborarán en forma conjunta un informe de cierre del ejercicio presupuestario y lo presentarán a la Autoridad Presupuestaria, que lo analizará y presentará con recomendaciones al Presidente de la República.

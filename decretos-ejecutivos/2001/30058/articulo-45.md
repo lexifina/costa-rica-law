@@ -1,0 +1,1 @@
+Artículo 45.—Aprobación. Corresponderá al jerarca del órgano respectivo aprobar el anteproyecto de presupuesto de su dependencia, que deberá ser remitido al Ministro de Hacienda a más tardar el 15 de junio de cada año.

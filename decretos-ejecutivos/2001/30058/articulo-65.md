@@ -1,0 +1,1 @@
+Artículo 65.—Programación de transferencias. Corresponderá a la Dirección General de Presupuesto Nacional, establecer la programación financiera de las transferencias presupuestarias. Para tal efecto, deberá tomar en consideración la propuesta de programación que le presenten los respectivos destinatarios y la disponibilidad de recursos del Estado.

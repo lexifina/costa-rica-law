@@ -1,0 +1,1 @@
+Artículo 148.—Administración de los sistemas. Corresponderá a la Dirección General de Administración de Bienes y Contratación Administrativa, diseñar y administrar los sistemas informáticos de apoyo que se utilizarán para el control a que se refiere el artículo anterior. Estos sistemas serán de uso obligatorio para los órganos de la Administración Central.

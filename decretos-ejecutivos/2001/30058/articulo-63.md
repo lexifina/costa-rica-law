@@ -1,0 +1,1 @@
+Artículo 63.—Cuotas. Las cuotas a que se refiere el artículo 61 del presente Reglamento, se establecerán por la Dirección General de Presupuesto Nacional en coordinación con la Tesorería Nacional y con base en la programación de la ejecución presupuestaria. Toda solicitud de ampliación se tramitará de conformidad con lo dispuesto en el artículo 96 del presente Reglamento.
