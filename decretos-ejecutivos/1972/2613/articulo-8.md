@@ -1,0 +1,1 @@
+Artículo 8°-En cuanto a las sanciones disciplinarias y su procedimiento, se estará a lo dispuesto en los artículos 21, 22, 23, 24, 25, 26 y 27 de la Ley Orgánica del Colegio de Médicos y Cirujanos, N° 3019 de 8 de agosto de 1962.

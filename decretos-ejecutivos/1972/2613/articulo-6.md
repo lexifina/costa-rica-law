@@ -1,0 +1,1 @@
+Artículo 6°-La autorización del Colegio se mantendrá mientras se satisfaga la cuota mensual que señale la Junta de Gobierno. Se suspenderá en el ejercicio profesional, de la rama autorizada por el Colegio, al que faltare al pago de tres o más cuotas. La suspensión se levantará con el pago de las cuotas atrasadas.

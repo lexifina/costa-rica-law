@@ -1,0 +1,1 @@
+Artículo 5°-Las personas autorizadas por el Colegio de Médicos y Cirujanos para el ejercicio de ramas dependientes de las ciencias médicas y técnicas en materias médico-quirúrgicas deberán satisfacer mensualmente la cuota que determine la Junta de Gobierno.
