@@ -14,3 +14,4 @@ Fija precios máximos de venta del maíz amarillo para el consumo animal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-04-03 | la propia norma |
+| 2 | 1991-09-26 | Decreto Ejecutivo 20746 (1991-09-26) |

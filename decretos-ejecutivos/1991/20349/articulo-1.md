@@ -1,4 +1,6 @@
+(Derogado)
 N° 20349-MEIC-MAG
+(Este decreto ejecutivo fue derogado por el artículo 2° del decreto ejecutivo N° 20746 del 26 de setiembre de 1991, "Fija precios máximos de venta del maíz amarillo para consumo animal")
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE ECONOMIA, INDUSTRIA y COMERCIO
 Y DE AGRICULTURA Y GANADERIA,
