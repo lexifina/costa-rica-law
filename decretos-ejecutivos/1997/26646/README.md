@@ -13,3 +13,4 @@ RTCR 311:1997 Requisitos Fitosanitarios para Importación de Especias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-25 | la propia norma |
+| 2 | 2000-10-30 | Ley 7 |
