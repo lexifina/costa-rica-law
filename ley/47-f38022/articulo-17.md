@@ -1,0 +1,5 @@
+XVII
+El derecho que cobren los concesionarios por mensajes radiotelefónicos al público en general, tanto para el interior como para el exterior de la República, será de acuerdo con una tarifa previamente aprobada por el Poder Ejecutivo. El derecho que los concesionarios cobren por mensajes radiotelegráficos entre estaciones del interior de la República será también fijado de acuerdo con el Poder Ejecutivo.
+Las tarifas radiográficas entre estaciones del interior de la República se reconsiderarán cada cinco años, o cuando las circunstancias demanden la modificación. Estas tarifas necesitarán la aprobación del Poder Ejecutivo.
+Ningún cargo se hará por los mensajes radiotelefónicos que se trasmitan por los empleados de las diferentes estaciones radiotelefónicas de los concesionarios o controladas por ellos, concernientes a la construcción, manejo, explotación y mantenimiento de todas las estaciones a que este contrato se refiere.
+Los Presidentes de los Supremos Poderes y los Secretarios de Estado pueden hacer uso gratuitamente del servicio inalámbrico entre las estaciones radiográficas del interior de la República.

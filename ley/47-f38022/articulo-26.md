@@ -1,0 +1,2 @@
+XXVI
+Cualquier diferencia que surja entre ambas partes con motivo de este contrato, se someterá a la decisión de árbitros.- Cada parte elegirá el suyo y si ambos no llegaren a un acuerdo en el fallo que deban dar, y si las partes no se entienden para nombrar un tercer árbitro, los dos primeros harán el nombramiento. Los árbitros serán costarricenses. El fallo de los dos árbitros o del tercero en discordia será final e inapelable.
