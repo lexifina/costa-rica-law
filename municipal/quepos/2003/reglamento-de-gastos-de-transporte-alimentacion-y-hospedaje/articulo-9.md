@@ -1,0 +1,1 @@
+Artículo 9º—El funcionario encargado de recibir y revisar las liquidaciones ante la omisión por parte de los Regidores y Síndicos de presentar la liquidación del adelanto del gasto en el tiempo establecido en artículo 7 del presente Reglamento, deberá informar al Concejo Municipal al respecto para que éste tome las medidas pertinentes.

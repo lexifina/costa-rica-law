@@ -1,0 +1,1 @@
+Artículo 2º—Los gastos a que se refiere este Reglamento únicamente serán cubiertos a aquellos Regidores y Síndicos, propietarios y suplentes, que ejerzan el cargo en la Municipalidad de Aguirre y cumplan con la condición establecida en el artículo 1 del presente Reglamento, siempre y cuando estuviesen presentes durante todo el tiempo de duración de la sesión.

@@ -1,0 +1,1 @@
+Artículo 11.—Deróguese el Reglamento para, regular el pago de transporte, alimentación y hospedaje para Regidores y Síndicos, propietarios y suplentes, y empleados municipales, publicado en el Diario Oficial La Gaceta Nº 173, del 4 de setiembre de 1998.

@@ -1,0 +1,1 @@
+Artículo 10.—En todo lo no previsto en el presente Reglamento, se regirá por lo establecido en el Reglamento de Gastos de Viajes y de Transporte para Funcionarios Públicos vigente, emitido por la Contraloría General de la República.
