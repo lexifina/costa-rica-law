@@ -1,7 +1,8 @@
 Artículo 57.- Acceso a las escalas jerárquicas . El sistema de acceso a cada una de las escalas jerárquicas y los grados policiales definidos por esta Ley será el siguiente:
 Escala de oficiales superiores
 El ingreso al escalafón de oficiales superiores será regulado de acuerdo con el requisito de poseer grado universitario con el título mínimo de diplomado en una carrera afín al desempeño de las funciones policiales.
-Podrán ingresar, además, a dicho escalafón, los funcionarios que cuenten con el bachillerato de enseñanza media y demuestren haber laborado en funciones policiales para el Ministerio de Seguridad Pública por un período mínimo de quince años.
+Podrán ingresar, además, a dicho escalafón, los funcionarios que cuenten con el bachillerato de enseñanza media y demuestren haber laborado en funciones policiales por un período mínimo de quince años.
+(Así reformado el párrafo anterior de acuerdo con la anulación parcial ordenada por resolución de la Sala Constitucional N° 4368 del 21 de mayo de 2003).
 Internamente, la promoción desde el grado de comandante hasta el de comisario será regulada por el reglamento correspondiente bajo el procedimiento de concurso interno y respetando los criterios de capacitación, tiempo de servicio y otros méritos.
 Escala de oficiales ejecutivos
 El acceso al grado de subintendente se establece mediante el procedimiento de concurso de oposición, al que podrán optar tanto los miembros de la escala básica como personas ajenas a la institución policial que, en ambos casos, reúnan los siguientes requisitos:
