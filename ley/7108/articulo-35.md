@@ -1,0 +1,6 @@
+ARTICULO 35.- (*) Autorízase el intercambio comercial en la zona fronteriza Costa Rica-Panamá, el cual se regirá por las siguientes disposiciones:
+1. Todo costarricense mayor de edad podrá adquirir artículos de consumo y uso familiar o de carácter alimentario, libres del pago de impuestos y derechos de importación y exportación, en la zona fronteriza con la República de Panamá, una vez cada cuatro meses, por un monto de hasta veinticinco dólares estadounidenses (US $ 25.00)), o su equivalente en moneda nacional. Este monto se estimará sobre el valor de las mercancías.
+El beneficio sólo podrá aprovecharse previo control de las autoridades aduaneras. El Ministerio de Hacienda determinará cuáles artículos estarán comprendidos en esta exención.
+El derecho que por esta ley se establece será personal y no acumulable. No se podrán adquirir mercancías en cantidades comerciales.
+2. Las autoridades aduaneras velarán por el estricto cumplimiento de lo establecido en esta ley, para lo cual se fortalecerán las medidas administrativas de supervisión y se realizarán las obras de infraestructura necesarias, que permitan el control adecuado y el ordenamiento del tráfico fronterizo.
+(*) ANULADO por Resolución de la Sala Constitucional Nº 1262-90 de las 16:00 horas del 9 de octubre de 1990.

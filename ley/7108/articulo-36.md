@@ -1,0 +1,1 @@
+ARTICULO 36. Todos aquellos fondos destinados al Parque de la Paz que aparezcan en el Presupuesto Nacional Ordinario y en los presupuestos extraordinarios de la República para 1988, se trasladarán a la Fundación de Parques Nacionales para su ejecución.
