@@ -1,0 +1,7 @@
+N° 510
+LA JUNTA FUNDADORA DE LA SEGUNDA REPÚBLICA
+A instancias de la Caja Costarricense de Seguro Social, y a fin de procurar una mejor recaudación del impuesto que se destina al Departamento de la Habitación, y obtener mayor justicia en cuanto a los aspirantes más antiguos,
+DECRETA:
+Artículo 1º.- El inciso 1) del artículo 4º de la Ley de la Habitación Nº 148 de 8 de agosto de 1945, reformado por ley Nº 841 de 15 de enero de 1947, se leerá así:
+"Inciso 1).-El producto de un impuesto de diez céntimos que pesará sobre cada boleta o entrada individual a todos los espectáculos públicos y diversiones no gratuitas que se realicen en los teatros, radioteatros, cines, salones de baile, locales, estadios o plazas nacionales o particulares; y en general los que se efectúen con motivo de festejos cívicos o patronales. En esta última categoría se reducirán a un diez por ciento del valor de cada boleta cuando ésta no exceda de veinticinco céntimos y cuando se trate de diversiones destinadas principalmente a los niños, tales como carrouseles, ruedas de Chicago y similares.
+Las boletas o entradas a espectáculos y diversiones públicas a que este artículo se refiere, cuando dichos actos se verifiquen en distritos que no sean cabecera de provincia pagarán cinco céntimos cada una por razón de este impuesto. Quedan exentos del impuesto aquí previsto los juegos, veladas, tómbolas o ferias cuyo producto íntegro se destine a fines escolares, de educación física, culto o beneficencia."
