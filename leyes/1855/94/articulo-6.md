@@ -1,0 +1,2 @@
+Art 6°.- Luego que la Municipalidad reciba certificación en papel de oficio de haber enterado el comprador de algún terreno su valor en la Tesorería de propios, y cierta de que satisfecho los costos de la medida, agregada dicha certificación al expediente con razón de estar también pagados aquellos.
+Hecho esto, extienden el título de propiedad, que será copias integra de dicho expediente en papel del sello 4° 1° clase el cual entregará al interesado, a quien no se exigirá otra clase de derechos.

@@ -1,0 +1,1 @@
+Art 4°.- Practicadas las medidas y con presencia de los informes del Agrimensor, y de los medidores y testigos, la Municipalidad calificará el terreno según su calidad, y le señalará el precio correspondiente desde cinco a ocho pesos manzana.
