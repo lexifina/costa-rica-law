@@ -1,0 +1,1 @@
+Artículo 30.—Los propietarios de derechos en este camposanto, pueden asistir a las sesiones de la Junta, para solicitar información, dar sugerencias y enterarse de sus acuerdos. No obstante la Junta Administrativa podrá asignar hora y fecha de común acuerdo con los interesadas para que estos expongan sus inquietudes.

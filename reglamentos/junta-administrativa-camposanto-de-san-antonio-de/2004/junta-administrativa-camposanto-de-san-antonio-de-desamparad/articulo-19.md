@@ -1,0 +1,1 @@
+Artículo 19.—Las construcciones podrán ser edificadas en forma total por la Junta Administrativa y/o arrendatario con previa autorización, incluyéndose ésta en el valor total del derecho, lo anterior con el fin de mantener la hegemonía del tipo de construcción que la Junta ha diseñado y establecido.

@@ -1,0 +1,1 @@
+Artículo 4º—El nombramiento de sus integrantes debe de hacerse por un periodo de un año, eligiéndose tres de sus miembros en año impar y los restantes en año par, pudiendo ser reelectos. Así mismo podrán ser revocados cuando el caso lo amerite, por acuerdo de las dos terceras partes de la junta administrativa, después de un estudio previo por parte de una comisión.

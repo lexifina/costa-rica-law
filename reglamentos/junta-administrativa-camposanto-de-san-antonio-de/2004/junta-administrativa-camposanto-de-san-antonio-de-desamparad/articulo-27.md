@@ -1,0 +1,1 @@
+Artículo 27.—La Junta puede disponer hasta por treinta días a partir de la presentación de la solicitud, para resolver el traslado de los restos. En casos que se consideren especiales podrá comisionar un fiscal o a un miembro de la Junta para comprobar los datos, documentos presentados y gastos en que se incurran, los cuales corren todos a cargo del solicitante.

@@ -1,0 +1,1 @@
+Artículo 11.—De los vocal, conforme el orden establecido los vocales podrán cubrir las ausencias a reunión de los demás miembros de la Junta. Por ser miembros propietarios de la Junta tienen iguales derechos y deberes que el resto de los integrantes de la Junta.

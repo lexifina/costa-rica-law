@@ -1,0 +1,1 @@
+Artículo 20.—Las tapas de los nichos, deberán direccionarse a los callejones de acceso y las lápidas o placas de identificación se colgarán sobre las bóvedas en forma tal que denoten el nicho a que hacen referencia.

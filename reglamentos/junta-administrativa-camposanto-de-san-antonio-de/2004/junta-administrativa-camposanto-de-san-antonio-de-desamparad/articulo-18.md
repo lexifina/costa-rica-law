@@ -1,0 +1,1 @@
+Artículo 18.—Todo poseedor de un derecho, es responsable del cuido de la bóveda, la cual debe ser pintada o enchapada de color blanco, si por razones contrarias fuera cubierta con otro color la Junta Administrativa puede exigir de forma inmediata el cambio del color, al aquí descrito.

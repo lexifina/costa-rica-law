@@ -1,0 +1,1 @@
+Artículo 23.—Las aceras, jardines, zonas verdes y otras, serán establecidas y construidas por la Junta a fin de mantener armonía estructural en el cementerio. Por lo anterior la Junta queda facultada para podar, cortar o desechar aquellas plantas que por su tamaño, cantidad, discrepen en su armonía.

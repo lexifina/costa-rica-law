@@ -1,0 +1,1 @@
+Artículo 5º—La Junta será integrada por un presidente, un vicepresidente, un tesorero, un secretario y vocales, debiendo proceder a su integración en el seno de la Junta en la primera sesión que realicen. El desempeño de sus cargos será ad honorem.

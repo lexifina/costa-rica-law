@@ -1,0 +1,1 @@
+Artículo 12.—Dejará de ser miembro de la Junta Administrativa, el que faltare a tres sesiones consecutivas sin causa justificada, decisión que tomará la Junta, quienes lo sustituirán y comunicarán al Consejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 2º—Las materias tratadas en este Reglamento están sometidas al previo cumplimiento de lo dispuesto en el Reglamento General de Cementerios y en la materia de propiedades y derechos, (Decreto Nº 22.183-S del 27 de mayo de 1993) y en la Ley General de Salud, sus reglamentos y anexos.

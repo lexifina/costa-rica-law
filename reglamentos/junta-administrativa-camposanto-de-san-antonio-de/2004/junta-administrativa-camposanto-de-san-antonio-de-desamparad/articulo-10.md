@@ -1,0 +1,1 @@
+Artículo 10.—Del secretario, es el encargado de llevar el registro de actas, una vez aprobadas, firmará conjuntamente con el presidente cada acta aprobada, enviar y dar contestación a la correspondencia recibida.

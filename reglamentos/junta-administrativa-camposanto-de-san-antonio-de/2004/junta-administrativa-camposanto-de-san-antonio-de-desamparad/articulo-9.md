@@ -1,0 +1,1 @@
+Artículo 9º—Del tesorero, es el encargado de los registros que le confiere el Decreto Ejecutivo “Reglamento General de Cementerios” y puede delegar en el personal administrativo algunos de ellos, le corresponde el manejo, registro y custodia de los fondos administrados por la Junta, firmará conjuntamente con el presidente los valores a girar.

@@ -1,0 +1,1 @@
+Artículo 21.—Los daños ocasionados a las bóvedas, por causas naturales, accidentes y daños de terceros, no serán responsabilidad de la Junta Administrativa, excepto aquellos en los que la Junta mantenga ingerencia directa.

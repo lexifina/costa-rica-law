@@ -1,0 +1,1 @@
+Artículo 22.—Los jarrones, recipientes y otros que se coloquen sobre las bóvedas, deberán estar permanentemente drenados conforme lo dispone la Ley de Salud, si algún propietario no acatare tal disposición, la Junta esta autorizada para acondicionar, perforar y drenar, o destruir según sea el caso.
