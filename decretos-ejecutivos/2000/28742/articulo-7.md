@@ -1,0 +1,1 @@
+Artículo 7º—Como parte complementaria del zarpe y con el propósito de establecer los mecanismos necesarios de búsqueda y salvamento de las embarcaciones, será requisito obligatorio el reporte por radiocomunicación de la salida y /o regreso de la embarcación a los sitios que indique la Capitanía de Puerto que emite el zarpe.

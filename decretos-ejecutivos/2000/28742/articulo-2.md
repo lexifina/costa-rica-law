@@ -1,0 +1,1 @@
+Artículo 2º—Se entiende por autonomía aquella distancia que el buque puede recorrer desde un puerto base hasta el próximo puerto de refugio así como la distancia que puede existir entre el buque y la costa.

@@ -1,0 +1,1 @@
+Artículo 5º—Una vez recibida la solicitud de zarpe por los medios autorizados y si la misma cumple con los requisitos prescritos en este Reglamento, el zarpe podrá ser retirado por el armador o por persona autorizada por éste.
