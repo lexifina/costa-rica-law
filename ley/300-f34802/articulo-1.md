@@ -1,0 +1,5 @@
+N° 300
+El Congreso Constitucional de la República de Costa Rica
+Decreta:
+Artículo único.- Modifícase el inciso 5° del artículo 169 de la Ley del Banco Nacional de Costa Rica, N° 16 del 5 de noviembre de 1936, en la siguiente forma: "Otrogar préstamos de avío pecuario con garantía de prenda ganadera destinados al fomento de la industri pecuaria de acuerdo con las disposiciones de la ley respectiva. Estos préstamos podrán otorgarse hasta por el 60% del valor del ganado que se ofrezca como prenda, pudiendose aumentar hasta el 75 % en el caso de ganado de uno a tres años, macho ohembra y de mpas de tres años únicamente tratándose de ganado macho destinado al engorde, quedando en lo dempas vigentes todas las otras disposiciones del citado inciso 5° y haciendose extensivos los alcances de la modificación hecha a todos los préstamos que otorgue con prenda ganadera el Departamento Cmercial del Banco Nacional de Costa Rica y las Juntas Rurales del mismo".
+Casa Presidencial.- San José, a los veintiséis días de agosto de mil novecientos treinta y nueve.
