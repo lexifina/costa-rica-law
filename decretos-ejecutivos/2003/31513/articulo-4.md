@@ -1,0 +1,1 @@
+Artículo 4º—Las actividades que desarrolle la propietaria dentro de este Refugio deberán cumplir con las normas legales, reglamentarias y técnicas que establezca el Ministerio del Ambiente y Energía y las aprobadas en el correspondiente plan de manejo.

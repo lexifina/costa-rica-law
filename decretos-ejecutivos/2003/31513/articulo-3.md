@@ -1,0 +1,1 @@
+Artículo 3º—Dicho inmueble estará sometido a la categoría de Refugio de Vida Silvestre durante un periodo de diez años prorrogables por periodos iguales en forma automática si la propietaria no manifiesta dentro del término de tres meses antes del vencimiento del plazo su deseo de no sometimiento de su propiedad al régimen de Refugio Nacional de Vida Silvestre Privado.

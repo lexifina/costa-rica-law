@@ -1,0 +1,1 @@
+Artículo 5º—La vigilancia de este refugio y el cumplimiento de las disposiciones técnicas que al efecto recomiende el Sistema Nacional de Áreas de Conservación, a través del Área de Conservación La Amistad Pacífico, serán responsabilidad de la propietaria de los inmuebles la sociedad Corporación de Desarrollo Agrícola Del Monte Sociedad Anónima.

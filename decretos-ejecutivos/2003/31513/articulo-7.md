@@ -1,0 +1,1 @@
+Artículo 7º—La propietaria de la finca señalada, gozará de los beneficios e incentivos establecidos en la Ley de Conservación de la Vida Silvestre, para lo cual las distintas dependencias ministeriales involucradas, emitirán los documentos necesarios.
