@@ -1,0 +1,15 @@
+CAPÍTULO IV
+De la Unidad de Transportes
+Artículo 12.—Para el cumplimiento de los deberes, el Encargado de Transportes Municipal tendrá las siguientes funciones:
+a. Realizar las actividades de planificación, organización y coordinación del servicio de transportes, de acuerdo con las normas y principios de sana administración y las disposiciones legales y reglamentarias que rigen a la institución en materia de administración de vehículos.
+b. Atender y tramitar los asuntos relativos al uso de vehículos solicitados y comprobar antes de entregar un vehículo, que se encuentra con todas las herramientas e implementos destinados al mismo, en buenas condiciones de funcionamiento y bien surtido de combustible y lubricantes, sin perjuicio de la responsabilidad que también le corresponde al conductor u operador.
+c. Llevar los registros y ejercer el control de kilometraje recorridos, consumo de combustibles y lubricantes, estado físico y mecánico, condiciones de operación de llantas, gastos e inversión en mantenimiento necesarios, para el adecuado uso y cuido de cada vehículo, de acuerdo al programa de mantenimiento de vehículos.
+d. Recomendar las prácticas de reparación de los vehículos y velar por su cabal cumplimiento.
+e. Velar porque los conductores cuenten con los requisitos legales para manejar.
+f. Velar para que los vehículos tengan la identificación de la institución.
+g. Llevar para el vehículo un registro histórico de materiales, accesorios y repuestos utilizados en las reparaciones, así como cualquier otra información referida a cada unidad.
+h. Atender todos los asuntos relacionados con inscripción y desinscripción de los vehículos, permisos de circulación, placas y otros.
+i. Presentar las denuncias y realizar los trámites necesarios ante el Instituto Nacional de Seguros para el cobro de las indemnizaciones que corresponda, en todas aquellas oportunidades que ocurran accidentes o daños a vehículos de la institución.
+j. Investigar todo accidente de tránsito, percance, robo, hurto o malversación en que se involucre cualquier vehículo municipal y rendir un informe escrito al Alcalde Municipal con las recomendaciones pertinentes, para que proceda según corresponda. Si del informe se evidenciaren faltas que ameriten sanciones disciplinarias, se informará lo pertinente para que la administración tome las medidas respectivas. De darse el caso de que las situaciones indicadas fueren cometidas por el alcalde, el informe será remitido al concejo para lo pertinente.
+k. Presentar informes mensuales al superior inmediato sobre las actividades realizadas para prestar el servicio de transportes, que incluya al menos información sobre el uso y estado de los vehículos, así como sus rendimientos en consumo de combustibles y reparaciones para esos mismos períodos.
+1. Divulgar ampliamente al personal de todas las unidades de la organización, las leyes, reglamentos, políticas, procedimientos, instructivos y demás documentación pertinente dictados en relación con el uso, control y mantenimiento de vehículos.

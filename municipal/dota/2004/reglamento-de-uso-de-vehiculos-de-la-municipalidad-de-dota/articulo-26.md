@@ -1,0 +1,1 @@
+Artículo 26.—El incumplimiento de las disposiciones contempladas en este reglamento, hará acreedor al servidor culpable, una vez servido el debido proceso, de las medidas disciplinarias que correspondan, sin perjuicio de otro tipo de responsabilidades, que conforme al ordenamiento jurídico, le sean aplicables.

@@ -1,0 +1,2 @@
+Artículo 9º—La circulación de vehículos en horas no hábiles requiere de una autorización expresa emitida por el Alcalde Municipal, esta autorización deberá ser específica y justificada en una necesidad institucional.
+Para efectos de circulación de vehículos municipales, se define como horas hábiles las comprendidas entre las 5:00 horas a las 18:00 horas, de lunes a viernes, exceptuando los días feriados que coincidan con esos días.

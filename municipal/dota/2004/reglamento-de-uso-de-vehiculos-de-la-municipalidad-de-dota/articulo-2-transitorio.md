@@ -1,0 +1,1 @@
+Transitorio II.—Es entendido que mientras la Municipalidad no posea más vehículos, este reglamento rige exclusivamente para los vehículos adquiridos con fondos de la ley 8114. Este reglamento fue aprobado por el Concejo Municipal de Dota, en sesión ordinaria N° 115, artículo XII, celebrada el día 30-8-2004.

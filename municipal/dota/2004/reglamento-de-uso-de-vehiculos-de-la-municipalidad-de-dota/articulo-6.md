@@ -1,0 +1,1 @@
+Artículo 6º—Es prohibido a los funcionarios municipales, el conducir vehículos de la institución bajo los efectos de bebidas alcohólicas o de cualquier droga que disminuya la capacidad física o mental del conductor.

@@ -1,0 +1,1 @@
+Artículo 2º—Todas las unidades automotoras de uso administrativo llevarán un rótulo en los costados de la carrocería en el cual se indique con claridad el emblema, nombre de la institución y la leyenda “uso oficial”. Este distintivo deberá fijarse con pintura.

@@ -1,0 +1,1 @@
+Artículo 19.—Los accesorios, repuestos, herramientas u otros implementos de los vehículos, que por culpa o negligencia del responsable del mismo, sean extraviados, el funcionario culpable deberá reemplazarlos o resarcir a la Municipalidad el costo de reposición en un plazo no mayor de 30 días naturales, contados a partir del hecho.
