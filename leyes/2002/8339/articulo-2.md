@@ -1,0 +1,1 @@
+Artículo 2º—Los traspasos que se originen con motivo de la ejecución de esta Ley estarán exentos de todo impuesto, especialmente del de traspaso, contemplado en la Ley N° 7509, Impuesto sobre bienes inmuebles, de 9 de mayo de 1995, así como de todo pago de derechos de registro y timbres municipales, agrarios, fiscales, de abogado y cualesquiera otros.
