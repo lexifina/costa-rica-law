@@ -1,0 +1,1 @@
+Artículo 5°-De conformidad con lo establecido en el artículo 121, inciso 15) de la Constitución Política, el o los contratos de empréstitos que se negocien para los fines que indica esta ley, deberán ser sometidos a la Asamblea Legislativa para su aprobación.
