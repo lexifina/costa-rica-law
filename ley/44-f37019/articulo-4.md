@@ -1,0 +1,1 @@
+Art 4°.- El Ingeniero Superintendente general tendrá obligación de entender, no solo en la composición de caminos, sino también de practicar las medidas de las distancias, levantar los planos correspondientes y hacer lo demás que se le prevenga.
