@@ -1,0 +1,1 @@
+Artículo 3°—El Concejo Municipal podrá celebrar las sesiones extraordinarias que se requieren y a ellas deberán ser convocados todos sus miembros. Se remunerarán solamente la primera y última sesión extraordinaria de cada mes.

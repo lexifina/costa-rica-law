@@ -1,0 +1,1 @@
+Artículo 9°—El presidente en coordinación con la secretaria llevara un control de la asistencia. Todo miembro del Concejo que se ausente por más de 15 minutos durante el desarrollo de la sesión, perderá el derecho a devengar la dieta, salvo cuando exista una autorización expresa por el presidente.

@@ -1,0 +1,1 @@
+Artículo 7°—Cada comisión ordinaria, nombrará a lo interno de su seno un coordinador y un secretario, por acuerdo mutuo de sus miembros. Las comisiones acordarán la hora y días de reunión, cuando el Concejo les asigne tareas.
