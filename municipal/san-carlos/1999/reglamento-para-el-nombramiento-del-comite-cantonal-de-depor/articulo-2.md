@@ -1,0 +1,1 @@
+2°-Toda Organización Deportiva, Recreativa, o Comunal, que desee participar en dichas reuniones, deberá de inscribirse en la Secretaría de ésta Municipalidad, estableciendo como fecha de inicio y límite de inscripción el día y la hora que se establezca en el comunicado público a través de los medios de comunicación del cantón.

@@ -1,0 +1,1 @@
+10.-En la primera sesión de instalación de la Junta Directiva del Comité Cantonal de Deportes y Recreación, nombrarán de su seno, un presidente, un vicepresidente, un tesorero, un secretario, y un vocal, y será dirigida por el Alcalde, el Presidente Municipal, o un Regidor.
