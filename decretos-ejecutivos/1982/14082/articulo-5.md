@@ -4,7 +4,8 @@ I) Canasta Básica Alimentaria:
 Aceites vegetales comestibles, excepto de maní, cacahuate y de oliva.
 Agua natural (potable), no envasada.
 Ajos frescos, no envasados.
-Arroz, excepto precocido.
+Arroz, incluso el precocido.
+(Así reformada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 22468 del 25 de agosto de 1993)
 Atún en conserva, enlatado.
 Audífonos para sordos.
 Azúcar de remolacha y caña.

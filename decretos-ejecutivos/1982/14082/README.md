@@ -36,3 +36,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 21 | 1991-04-10 | Decreto Ejecutivo 20375 (1991-04-10) |
 | 22 | 1991-12-11 | SINALEVI (sin norma nombrada) |
 | 23 | 1992-08-31 | SINALEVI (sin norma nombrada) |
+| 24 | 1993-08-25 | Decreto Ejecutivo 22468 (1993-08-25) |
