@@ -1,0 +1,1 @@
+ARTICULO 15.- El Ministerio de Hacienda, mediante decreto del Poder Ejecutivo, puede efectuar transferencias de recursos entre las subpartidas y los programas del título de la deuda pública y además crear las subpartidas y los programas necesarios para esos fines.

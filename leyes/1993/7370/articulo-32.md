@@ -1,0 +1,1 @@
+ARTICULO 32.- Modifícase la Ley Nº 7358 de la siguiente forma: en página OE-435, se elimina el código 730 637 1 242 30 99 construcción Estadio de Filadelfia ¢5.000.000. En la página OE-549, se elimina el código 702 674 1 241 30 99, construcción Estadio de Filadelfia ¢5.000.000.

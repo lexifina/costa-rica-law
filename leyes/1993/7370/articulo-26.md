@@ -1,0 +1,2 @@
+ARTICULO 26.- Autorízase al Ministerio de Obras Públicas, por medio de la Dirección General de Transporte Marítimo, para disponer de los excedentes provenientes del trasbordo sobre el Río Tempisque hasta ¢40.000.000 para el asfaltado del camino La Palma-San Joaquín-Guanacaste. Los citados recursos deberán ser depositados, a favor de la Unión Cantonal de la Asociación de Desarrollo de Abangares.
+Derógase, asimismo el artículo 42 de la Ley No. 7358 del 9 de setiembre de 1993.

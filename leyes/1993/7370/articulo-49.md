@@ -1,0 +1,1 @@
+ARTICULO 49.- Modifícase el artículo 6o. de la Ley No. 7358 del 17 de setiembre de 1993, en la forma que se indica a continuación: En PP108.576, DONDE DICE: "10 Reconocimiento por riesgo judicial (Art. 46, Ley No. 7040 del 26-04-86)". DEBE DECIR: "10 Reconocimiento por riesgo policial (Art. 46, Ley No. 7040 del 26-04-86)".

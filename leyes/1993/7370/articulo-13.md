@@ -1,0 +1,1 @@
+ARTICULO 13.- Los fondos que transfiera el Gobierno de la República a la Caja Costarricense de Seguro Social, provenientes del crédito del BCIE, Ley Nº 7311 del 1º de octubre de 1992, se aplicarán a las deudas que al 30 de junio de 1992, tenga el Estado con la Caja Costarricense de Seguro Social, de acuerdo con el convenio ya firmado.

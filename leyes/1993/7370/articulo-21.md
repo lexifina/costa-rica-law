@@ -1,0 +1,1 @@
+ARTICULO 21.- Autorízase a la Asociación de Desarrollo Urbano de Rohrmoser para utilizar los intereses generados por inversiones financieras, con partidas específicas, para el proyecto de construcción del mural artístico, en el Parque Amigos, Rohrmoser.

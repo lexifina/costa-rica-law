@@ -1,0 +1,1 @@
+ARTICULO 28.- Autorízase al Ministerio de Obras Públicas y Transportes para revalidar los compromisos y los disponibles del presupuesto, de las partidas 5, "Construcciones, adiciones y mejoras" y 184 "Mantenimiento y reparación de obras", de sus presupuestos de 1993 (ordinario y extraordinarios). Derógase el artículo 32 de la Ley No. 7358 del 9 de setiembre de 1993.

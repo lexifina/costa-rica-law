@@ -1,0 +1,1 @@
+ARTICULO 20.- Autorízase al Banco Nacional de Costa Rica a girar la suma remanente de ¢1.507.830.72, proveniente de la Ley No. 7306, registro contable 110-195-733-270, para pequeños agricultores de Jiménez de Pococí, por pérdidas de la inversión con recursos propios, en sus cultivos de pimienta, de acuerdo con la evaluación de técnicos del Ministerio de Agricultura y Ganadería.
