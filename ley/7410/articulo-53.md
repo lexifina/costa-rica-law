@@ -1,0 +1,2 @@
+Artículo 53°—Período de prueba
+Las personas que ingresen al servicio policial solo estarán cubiertas por el presente Estatuto, luego de cumplir, satisfactoriamente, con un período de prueba de seis meses, contados a partir de la fecha de su nombramiento. Este período de prueba rige para todos los que inicien el contrato laboral y también, para todos los ascensos y traslados, en cuyo caso ese período se reducirá a tres meses.
