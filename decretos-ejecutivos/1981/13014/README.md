@@ -14,3 +14,4 @@ Reforma Reglamento para el trámite y resolución de solicitudes de los Resident
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-10-20 | la propia norma |
+| 2 | 1982-05-03 | Decreto Ejecutivo 13596 (1982-05-03) |
