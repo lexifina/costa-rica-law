@@ -1,0 +1,1 @@
+Artículo 3°.- Previo al otorgamiento definitivo del permiso que se solicite, deberá publicarse un edicto en el Diario Oficial "La Gaceta" y un diario de circulación nacional, otorgando un plazo prudencial para oír eventuales oposiciones.

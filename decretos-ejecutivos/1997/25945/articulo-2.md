@@ -1,0 +1,1 @@
+Artículo 2°.- Los permisos de uso que se autoricen deberán de contar con la anuencia previa de la Comisión de Zonificación Portuaria de Moín, creada mediante decreto ejecutivo N° 16952-MOPT del diez de marzo de mil novecientos ochenta y seis y conformada por el Ministerio de Obras Públicas y Transporte, JAPDEVA, y RECOPE.
