@@ -1,0 +1,1 @@
+Artículo 31.—El conductor que con conocimiento de un daño causado con el vehículo municipal, al mismo vehículo o a un particular, y lo oculte, asumirá la responsabilidad legal que por ello le imputase.

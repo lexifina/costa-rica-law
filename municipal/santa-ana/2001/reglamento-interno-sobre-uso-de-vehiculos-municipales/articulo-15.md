@@ -1,0 +1,1 @@
+Artículo 15.—Una vez concluidas las labores diarias, todos los vehículos municipales, deben ser guardados en las instalaciones municipales. Por razones de fuerza mayor o cuando un vehículo se encuentre de gira fuera del cantón, previa autorización del Alcalde podrá pernoctar en un parqueo público y otro sitio que brinde condiciones de seguridad adecuadas

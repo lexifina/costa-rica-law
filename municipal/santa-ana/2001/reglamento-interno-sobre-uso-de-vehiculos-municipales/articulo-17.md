@@ -1,0 +1,1 @@
+Artículo 17.—Para lograr el mayor aprovechamiento de los vehículos disponibles, deberán agrupar en un solo viaje, siempre que las circunstancias lo permitan, varias solicitudes de transporte que se generen hacia un mismo sitio dando aviso oportuno a los interesados para lograr una adecuada coordinación del viaje
