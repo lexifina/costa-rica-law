@@ -1,0 +1,3 @@
+Artículo 22.
+Las condiciones del concurso se darán a conocer en el aviso o información de que trata el artículo anterior y se tendrán como aceptadas por los interesados, con la sola presentación de la solicitud para participar. Es obligación de los participantes dominar el idioma en el cual se desarrollará el evento.
+Una vez vencida la fecha límite para concursar, los términos de cartel no podrán ser modificados.
