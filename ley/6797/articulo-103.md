@@ -1,0 +1,2 @@
+Artículo 107.- La Dirección de Geología, Minas e Hidrocarburos exigirá a los concesionarios de permisos de exploración y explotación, garantías de cumplimiento de los programas de control de contaminación ambiental y de recuperación de los recursos naturales. El monto de esta garantía será variable, en función de la magnitud del impacto.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 103 al 107)

@@ -1,0 +1,3 @@
+Artículo 85.- Dentro del mes siguiente a la inscripción, en el Registro Nacional Minero, de la resolución de otorgamiento dictada, por el Ministerio, el titular de un permiso o de una concesión deberá pagar los cánones de superficie mencionados en el inciso a) del artículo 51 de esta ley, y presentar los recibos correspondientes en la Dirección de Geología, Minas e Hidrocarburos.
+La falta de pago oportuno de estos cánones podrá llevar a la cancelación del permiso o concesión, conforme con lo estipulado en los artículos 62 y 63 de esta ley.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 81 al 85)

@@ -1,0 +1,1 @@
+Artículo 14.- El permiso, o la concesión, se entenderán adquiridos desde la fecha en que se inscriba la resolución de otorgamiento en el Registro Nacional Minero. Desde entonces, el titular originario o su sucesor, según el caso, será poseedor de su derechos de concesionario o de titular del permiso de exploración.

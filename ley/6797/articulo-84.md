@@ -1,0 +1,2 @@
+Artículo 88.- Las resoluciones que dicte la Dirección de Geología, Minas e Hidrocarburos, durante la tramitación de un permiso o concesión, sólo podrán ser objeto de revocatoria dentro del plazo de diez días, y además serán susceptibles del recurso de apelación, el que deberá interponerse dentro de los tres días siguientes a la notificación. Del recurso de apelación, cuando procediere, conocerá el Tribunal Superior Contencioso Administrativo.
+(Modificada su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo pasó del 84 al 88)
