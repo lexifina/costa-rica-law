@@ -1,0 +1,1 @@
+Artículo 13.—El beneficiario o adjudicatario deberá cumplir con el plan de pagos estipulado por la Municipalidad en la escritura correspondiente. Al beneficiario que incumpla con dicho plan de pagos, se le tendrá por vencido el plazo establecido, haciéndose exigible el pago de la totalidad adeudada en forma inmediata.

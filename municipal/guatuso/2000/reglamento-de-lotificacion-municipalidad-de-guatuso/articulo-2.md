@@ -1,0 +1,1 @@
+Artículo 2º—Todo fraccionamiento estará basado en la habitación del terreno para fines de urbanos, lo cual contemplará principalmente la apertura de calles y la provisión de toda clase de servicios públicos indispensables para la seguridad, salud, comodidad y bienestar de los vecinos de la respectiva urbanización.

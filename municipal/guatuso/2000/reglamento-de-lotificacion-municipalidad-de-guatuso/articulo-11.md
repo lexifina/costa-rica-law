@@ -1,0 +1,1 @@
+Artículo 11.—Corresponde al Alcalde Municipal, ejecutar los acuerdos del Concejo, en relación con el plan de lotificación y créditos, además deberá notificar a los interesados sobre el resultado de su gestión.

@@ -1,0 +1,1 @@
+Artículo 14.—Corresponde al Concejo Municipal fijar el monto de las amortizaciones, conforme al plazo autorizado para el pago del crédito, así como el valor porcentual de los gastos administrativos que implique la operación.

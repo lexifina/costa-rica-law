@@ -1,0 +1,1 @@
+Artículo 18.—El adjudicatario o beneficiario, para garantizar cumplimiento del crédito que se le otorga por parte de la Municipalidad, así como el plan de pago acordado, impondrá sobre el lote o casa que se le traspasa garantía hipotecaria en primer grado en favor de la Municipalidad.

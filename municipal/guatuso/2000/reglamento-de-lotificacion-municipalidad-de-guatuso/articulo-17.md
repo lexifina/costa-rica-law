@@ -1,0 +1,1 @@
+Artículo 17.—El beneficiario queda comprometido a que el lote y la casa que se construya, será para uso exclusivo de vivienda familiar, la cual ocupará personalmente el beneficiario, con el núcleo familiar que indicó en su gestión; en caso que la Municipalidad demuestre otra cosa, se hará exigible la deuda en forma inmediata.

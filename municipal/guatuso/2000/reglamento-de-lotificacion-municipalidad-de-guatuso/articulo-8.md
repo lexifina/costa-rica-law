@@ -1,0 +1,1 @@
+Artículo 8º—Para el análisis, estudio y recomendación de las solicitudes formuladas, el Concejo Municipal conformará una Comisión Especial de Vivienda, la que dictaminará al Concejo Municipal quien en definitiva resolverá.

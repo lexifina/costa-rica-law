@@ -1,0 +1,1 @@
+Artículo 10.—Los resultados de la comisión en los estudios de las solicitudes, serán presentados al Concejo Municipal, al que se le recomendarán las personas a elegir. La decisión final de las propuestas formuladas por la comisión, estará a cargo del Concejo.

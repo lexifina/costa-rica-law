@@ -1,0 +1,1 @@
+Artículo 15.—El plazo para el pago de los créditos que se dan a través de esta lotificación y venta de vivienda o lote según lo estipulado en el presente reglamento será hasta un máximo de quince años.

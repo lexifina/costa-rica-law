@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad deberá en primera instancia fraccionar terrenos de su propiedad preferiblemente en áreas rurales y en defecto de ellos, gestionará la compra directa o bien el procedimiento de expropiación, para efecto de satisfacer los objetivos del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 9º—Las solicitudes serán consideradas por su orden de presentación y conforme hayan cumplido con todos los requisitos comprendidos en los artículos 5º y 6º de este Reglamento. Solamente en casos muy calificados y por acuerdo de las dos terceras partes del Concejo Municipal, se podrá modificar el orden de prelación.

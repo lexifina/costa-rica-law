@@ -1,0 +1,1 @@
+Artículo 12.—La Municipalidad, una vez que tenga definida y aprobada la gestión del solicitante autorizará el otorgamiento de la respectiva escritura de compraventa con hipoteca ante el notario que designe la Corporación Municipal.

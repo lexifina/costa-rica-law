@@ -1,0 +1,1 @@
+Artículo 3º—Los fraccionamientos que realice la Municipalidad se ajustarán, en lo que fuere aplicable a las disposiciones de la Ley de Planificaciones Urbana Nº 4240 del 15 de noviembre de 1968 y sus reformas.
