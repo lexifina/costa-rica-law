@@ -1,0 +1,1 @@
+Artículo 2°—Para efectos de conservación de la vida silvestre, la administración del Humedal Nacional Cariari corresponde a la Dirección General de Vida Silvestre del Ministerio de Recursos Naturales, Energía y Minas.

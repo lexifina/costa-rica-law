@@ -1,0 +1,1 @@
+Artículo 3°—En una franja de 100 en ambas riberas de las lagunas serán aplicables las disposiciones que rigen para las zonas protectoras, de conformidad con lo que establece la Ley Forestal No 7174, del 28 de junio de 1990.
