@@ -1,0 +1,1 @@
+Artículo 2º.- El Instituto tendrá derecho a percibir las contribuciones a que se refiere el artículo 10 de la Ley Nº 264 de 23 de agosto de 1939 y sus reformas, así como los reintegros de cuotas dejadas de pagar por los interesados.
