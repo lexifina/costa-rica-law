@@ -1,7 +1,8 @@
 ARTICULO 27.- Autorización para talar
-Solo se podrá llevar a cabo la corta de árboles en terrenos de uso
-agropecuario y sin bosque, obteniendo previamente la autorización del
-Consejo Regional Ambiental o de la municipalidad respectiva y hasta por un
-máximo de cinco árboles por hectárea al año. Para una corta que sobrepase
-los veinte árboles por inmueble se requerirá la autorización de la
-Administración Forestal del Estado.
+Solo podrán cortarse hasta un máximo de tres árboles por hectárea
+anualmente en terrenos de uso agropecuario y sin bosque, después de
+obtener la autorización del Consejo Regional Ambiental. Si la corta
+sobrepasare los diez árboles por inmueble, se requerirá la autorización
+de la Administración Forestal del Estado.
+(Así reformado por el inciso a) de la ley Nº7761 de 24 de abril de
+1998)

@@ -6,8 +6,8 @@ virtud de los recursos naturales existentes en el área que se desea
 proteger, los cuales quedan sometidos en forma obligatoria al régimen
 forestal.
 Estos terrenos podrán ser integrados voluntariamente a las áreas
-silvestres protegidas o bien comprados directamente cuando haya acuerdo de
-partes. En caso contrario, serán expropiados de acuerdo con el
+silvestres protegidas o bien comprados directamente cuando haya acuerdo
+de partes. En caso contrario, serán expropiados de acuerdo con el
 procedimiento establecido en la Ley de Expropiaciones, No. 7495, del 3 de
 mayo de 1995 y sus reformas. Cuando, previa justificación científica y
 técnica del interés público, se determine mediante ley que el terreno es
