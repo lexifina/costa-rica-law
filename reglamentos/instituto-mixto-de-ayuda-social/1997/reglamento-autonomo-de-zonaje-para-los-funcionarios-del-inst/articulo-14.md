@@ -1,3 +1,5 @@
-Artículo 14.-Del pago de viáticos
-Corresponderá el pago de viáticos a aquellos funcionarios que reciban el pago de zonaje cuando requieran desplazarse dentro de la misma localidad o a otro lugar aledaño con motivo de sus funciones dentro de un radio no menor de diez kilómetros del territorio de su circunscripción.
-El pago de viáticos se realizará de conformidad con el Reglamento correspondiente. emitido por la Contraloría General de la República.
+Artículo 14.-Del pago de Gastos de Viaje y Transporte:
+1. Corresponderá el pago de gastos de viaje y de transporte a aquellos funcionarios que reciban el pago de zonaje cuando requieren desplazarse dentro del, territorio nacional, con motivo de sus funciones, dentro de un radio no menor de diez kilómetros de su correspondiente sede laboral.
+2. Se reconocerá el pago de gastos de transporte entre la antigua y la nueva sede laboral a aquellos funcionarios que, por razones de interés institucional, deban trasladarse a esa nueva sede laboral en forma permanente, cuando no proceda o se cumplan con los requisitos establecidos para el pago de zonaje. El monto a reconocer será la diferencia o incremento de los mismos que incurra el servidor entre su antigua sede laboral y la nueva.
+3. En los casos a que se refieren, los incisos 1) y 2) anteriores, el funcionario deberá solicitar la autorización a su superior inmediato, y la liquidación correspondiente deberá efectuarse ante éste, de conformidad con lo establecido en el capítulo 11 del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, aprobado por la Contraloría General de la República.
+(Así reformado mediante sesión N° 2 del 19 de enero de 1998).
