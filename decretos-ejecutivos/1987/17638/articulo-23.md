@@ -1,0 +1,1 @@
+ARTÍCULO 23.-Las violaciones de las disposiciones legales y reglamentarias del presente régimen se sancionar n de conformidad con la legislación administrativo-tributaria y normas conexas y supletorias vigentes.
