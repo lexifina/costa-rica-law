@@ -1,0 +1,1 @@
+Artículo 5°-Para la atención de la presente declaratoria de emergencia, la Comisión Nacional de Emergencias, podrá destinar fondos, contraer préstamos y compromisos crediticios, otorgar avales, y aceptar donaciones de Instituciones Autónomas, Semiautónomas, Privadas y Organismos Internacionales, así como de cualquier Estado o Nación del Mundo.
