@@ -1,3 +1,5 @@
+CAPITULO III
+Disposiciones generales
 Artículo 32.- Cancelación.
 En cualquier tiempo podrá ser cancelada una patente, sin
 responsabilidad para el Estado, en los casos previstos en el párrafo octavo
