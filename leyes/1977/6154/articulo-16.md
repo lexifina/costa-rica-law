@@ -1,0 +1,1 @@
+Artículo 16.- Esta ley no podrá aplicarse a los inmuebles situados en las zonas urbanas del Area Metropolitana de San José, ni en aquellas zonas urbanas que así se definan en el reglamento de esta ley.

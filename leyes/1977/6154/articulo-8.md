@@ -1,0 +1,1 @@
+Artículo 8º.- Practicada la inscripción, el Director del Registro mandará a publicar un edicto en el Diario Oficial, en el que da noticia de ella, con el nombre y calidades del nuevo propietario y de los demás datos del inmueble.
