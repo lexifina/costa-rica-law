@@ -1,0 +1,1 @@
+Artículo 2º—No obstante, lo dispuesto en el artículo anterior, el CIPET conservará su condición y personería jurídica, atribuciones y administración organizacional y financiera que a la fecha ha venido ejerciendo.

@@ -1,0 +1,1 @@
+Artículo 3º—Mientras transcurre el plazo indicado en el artículo 1, se modifica la integración del Consejo Técnico del CIPET descrita en el artículo 5 del Decreto Nº 21167-MEP, en el sentido de que el integrante a que se refiere el inciso ch) lo será el Rector del ITCR o su representante y se suprime el integrante a que se refiere el inciso d).
