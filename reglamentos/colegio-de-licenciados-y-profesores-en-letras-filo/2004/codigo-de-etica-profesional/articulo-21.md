@@ -1,0 +1,1 @@
+Artículo 21.—Inicio de las audiencias de conciliación y recepción de pruebas. Las audiencias convocadas por el Tribunal de Honor se llevarán a cabo a la hora y fecha señaladas, sin mediar plazos de espera, salvo caso fortuito o de fuerza mayor.

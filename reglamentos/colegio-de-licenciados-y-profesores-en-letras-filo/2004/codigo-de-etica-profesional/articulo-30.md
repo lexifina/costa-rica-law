@@ -1,0 +1,1 @@
+Artículo 30.—Derogatoria. El presente Código de Ética Profesional deroga aquellas normas y disposiciones establecidas en el anterior Código de Ética. Se deroga el capítulo VI, del Reglamento General de la Ley 4770, denominado “De los Procedimientos Disciplinarios”, el cual incluye los artículos del 54 al 63, así como, cualquier otra norma que se le oponga o contradiga.

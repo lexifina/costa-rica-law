@@ -1,0 +1,1 @@
+Artículo 5º—Responsabilidad de denunciar. Las personas colegiadas están inhibidas para solidarizarse con colegas cuya labor sea deficiente, o su conducta moralmente censurable, la cual resulte tan seriamente reprobable que desnaturalice y desprestigie su misión. Antes bien, sin recurrir a la publicidad, deberán denunciar los hechos para no incurrir en encubrimiento.

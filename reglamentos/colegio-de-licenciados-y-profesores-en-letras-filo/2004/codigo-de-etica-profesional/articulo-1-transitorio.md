@@ -1,0 +1,1 @@
+Transitorio.—Las denuncias en trámite al momento de la entrada en vigencia de este código deberán ser finalizadas, según el anterior Código de Ética. Sin embargo, aquellas denuncias que hayan sido presentadas, y en las que no se hubiere efectuado ningún acto procesal, deberán ser conocidas con base en la presente normativa.

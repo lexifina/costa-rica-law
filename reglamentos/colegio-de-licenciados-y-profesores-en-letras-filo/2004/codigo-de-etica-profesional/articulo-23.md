@@ -1,0 +1,1 @@
+Artículo 23.—Término para plantear conclusiones. El Tribunal de Honor notificará a las partes interesadas la posibilidad de formular conclusiones sobre los hechos y la prueba evacuada en un plazo de tres días hábiles.

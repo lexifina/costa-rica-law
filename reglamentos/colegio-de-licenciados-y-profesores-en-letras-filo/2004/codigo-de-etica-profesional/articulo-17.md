@@ -1,0 +1,1 @@
+Artículo 17.—Prueba para mejor resolver. El Tribunal de Honor podrá ordenar, para mejor resolver, en cualquier momento, aquellas otras diligencias probatorias que estime necesarias para el mejor esclarecimiento de los hechos. Asimismo, podrá solicitar a las partes que aporten prueba que permita tener certeza sobre aspectos relevantes para el caso.

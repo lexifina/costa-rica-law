@@ -1,0 +1,1 @@
+Artículo 4º—Respeto al honor. El colegiado y la colegiada deberán respetar, en todo momento y en cualquier circunstancia, el buen nombre, la dignidad y la honra de sus colegas y deberán abstenerse de expresiones injuriosas, calumnias, difamación o juicios de valor, que puedan ir en mengua de su reputación y prestigio.

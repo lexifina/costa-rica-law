@@ -1,0 +1,1 @@
+Artículo 24.—Resolución final. El Tribunal de Honor deberá fallar el asunto dentro del plazo de treinta días hábiles posteriores a la finalización del término para la formulación de las conclusiones. Este fallo deberá reunir todos los requisitos de una sentencia de conformidad con lo establecido en el Código Procesal Civil.

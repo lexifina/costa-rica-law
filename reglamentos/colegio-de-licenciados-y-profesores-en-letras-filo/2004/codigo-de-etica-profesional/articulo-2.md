@@ -1,0 +1,1 @@
+Artículo 2º—Principios fundamentales. Estas deberán comportarse en general según las normas éticas derivadas de su condición de personas, de docentes y de profesionales. Por ello deberán actuar conforme a los principios fundamentales de lealtad, sinceridad, buena fe, responsabilidad, honestidad, respeto mutuo, cortesía, solidaridad, y de acuerdo con la legislación vigente.

@@ -1,0 +1,1 @@
+Artículo 9º—Faltas. Para todos los efectos, se considera como falta aquella conducta que transgreda los deberes establecidos en este código de ética, los reglamentos internos y la Ley Orgánica del Colegio.
