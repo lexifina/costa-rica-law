@@ -1,0 +1,1 @@
+Art° 7° La Caja en su interior tendrá tres diviciones en donde con separación se depositen los ingresos de cada departamento y los almacenes lo mismo que esta tendrán tres llaves de las que maneje una cada Ministro.

@@ -1,0 +1,1 @@
+Art° 4° Sin embargo de la división establecida en los anteriores artículos, todo asunto que se presente sobre qualquiera de los tres departamentos será resuelto por los tres Ministros, y todos tres serán responsables debiéndose consultar al Intendente quando alguno presente oposición.

@@ -1,0 +1,1 @@
+Art° 11. Los Ministros propondrán al Gobierno en terna estos sus dependientes, y también bajo su responsabilidad, sus Tenientes en todos los lugares que sean necesarios para expender y cobrar lo perteneciente á los ramos de su cargo con la asignación de un seis por ciento en todos ellos, exéptos el de pólvora y papel sellado en que solo será un tres por ciento,
