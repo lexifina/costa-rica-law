@@ -1,0 +1,1 @@
+Artículo 4º—No estarán sujetos al pago de ninguna clase de impuestos, tasas, contribuciones ni derechos, los documentos requeridos para formalizar los citados Contratos de Préstamos y de Garantía con el Banco Interamericano de Desarrollo. La inscripción de estos documentos en los registros correspondientes también estará exonerada de todo tipo de pago.
