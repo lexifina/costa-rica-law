@@ -1,1 +1,2 @@
-ARTICULO 111.- La reforma total de este Reglamento seguirá el mismo trámite antes indicado para reformas parciales, pero su validez, deberá ser promulgada por ley Poder Ejecutivo.
+Artículo 111.—A los efectos del artículo anterior, deberá entenderse que el Colegio Federado de Ingenieros y de Arquitectos podrá otorgar ayudas de tipo económico e intelectual a las organizaciones e instituciones que lo solicitaran para proyectos que, por acuerdo razonado de la junta directiva, requieran la cooperación de la Institución. Estas ayudas podrían incluir la donación de sumas de dinero, de bienes del Colegio Federado y de servicios profesionales, en los campos de las Ingenierías y la Arquitectura.
+(Así adicionado en sesión N° 2 del 19 de enero del 2005)

@@ -45,6 +45,7 @@ articulo-44.md
 articulo-45.md
 articulo-46.md
 articulo-47.md
+articulo-47-bis.md
 articulo-48.md
 articulo-49.md
 articulo-50.md
@@ -115,3 +116,11 @@ articulo-110.md
 articulo-111.md
 articulo-112.md
 articulo-113.md
+articulo-114.md
+articulo-115.md
+articulo-116.md
+articulo-117.md
+articulo-118.md
+articulo-119.md
+articulo-120.md
+articulo-121.md

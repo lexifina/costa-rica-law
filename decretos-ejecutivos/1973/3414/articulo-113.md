@@ -1,1 +1,2 @@
-ARTICULO 113.- Rige a partir de su publicación.
+Artículo 113.—Bajo ninguna circunstancia se otorgarán ayudas económicas o intelectuales a personas físicas, sean colegiados o no, que implique solventar una situación particular, si no forman parte de un grupo colectivo de interés social, cualquiera que sea su organización y siempre y cuando esté debidamente reconocida por el ordenamiento jurídico costarricense y en estricto apego a lo establecido en el artículo 110 de este Reglamento.
+(Así adicionado en sesión N° 2 del 19 de enero del 2005)

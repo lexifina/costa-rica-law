@@ -1,0 +1,2 @@
+Artículo 47. Bis.—A los efectos del artículo 27, inciso c) de la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos, los miembros de la Junta Directiva General perderán su credencial si incurren en nueve ausencias justificadas o injustificadas. Sin embargo, no incurrirán en ausencias justificadas o injustificadas, siempre y cuando cuenten con licencia previa otorgada por ese órgano.
+(Así adicionado en sesión N° 2 del 19 de enero del 2005)

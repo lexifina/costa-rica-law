@@ -1,1 +1,4 @@
-ARTICULO 110.- Toda reforma parcial de este Reglamento deberá ser aprobada por la asamblea de representantes por simple mayoría de los votos presentes; para que tenga validez. No obstante se dicha reforma se refiera a disposiciones del Reglamento relativo a asuntos de interés público, para su validez será necesario que la misma sea además promulgada por el Poder Ejecutivo.
+CAPÍTULO XV
+De la Cooperación con la Sociedad
+Artículo 110.—El Colegio Federado de Ingenieros y de Arquitectos podrá cooperar con organizaciones e instituciones estatales y privadas, en aspectos patrimoniales o intelectuales, que contribuyan al desarrollo social del país.
+(Así adicionado en sesión N° 2 del 19 de enero del 2005)

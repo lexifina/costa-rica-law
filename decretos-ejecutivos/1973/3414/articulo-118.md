@@ -1,0 +1,2 @@
+ARTICULO 118.- Toda reforma parcial de este Reglamento deberá ser aprobada por la asamblea de representantes por simple mayoría de los votos presentes; para que tenga validez. No obstante se dicha reforma se refiera a disposiciones del Reglamento relativo a asuntos de interés público, para su validez será necesario que la misma sea además promulgada por el Poder Ejecutivo.
+(Así corrida su numeración en sesión N° 2 del 19 de enero del 2005, que lo traspasó del antiguo 110 al 118 actual del artículo)
