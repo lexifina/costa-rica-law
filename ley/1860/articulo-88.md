@@ -1,17 +1,3 @@
-TITULO QUINTO
-INSPECCION GENERAL DE TRABAJO
-CAPITULO UNICO
-Constitución, Funcionamiento, Atribucione
-Artículo 88.- La Inspección General de Trabajo, por medio de su
-cuerpo de Inspectores, velará porque se cumplan y respeten las leyes,
-convenios colectivos y reglamentos concernientes a las condiciones de
-trabajo y a previsión social.
-Actuará en coordinación con las demás dependencias del Ministerio, y
-deberá efectuar los estudios, rendir los informes, hacer ejecutar las
-disposiciones y las demás actividades relacionadas con su función, que le
-soliciten aquéllas.
-En lo referente a la Ley Constitutiva de la Caja Costarricense de
-Seguro Social y a sus Reglamentos, prestará la colaboración y el auxilio
-que le soliciten los Inspectores de la Caja. De igual manera procederá
-tratándose de otras instituciones del Estado, dentro del ejercicio de
-sus funciones.
+Artículo 88.-
+La Inspección General de Trabajo, por medio de su cuerpo de Inspectores, velará porque se cumplan y respeten las leyes, convenios colectivos y reglamentos concernientes a las condiciones de trabajo y a previsión social. Actuará en coordinación con las demás dependencias del Ministerio, y deberá efectuar los estudios, rendir los informes, hacer ejecutar las disposiciones y las demás actividades relacionadas con su función, que le soliciten aquéllas.
+En lo referente a la Ley Constitutiva de la Caja Costarricense de Seguro Social y a sus Reglamentos, prestará la colaboración y el auxilio que le soliciten los Inspectores de la Caja. De igual manera procederá tratándose de otras instituciones del Estado, dentro del ejercicio de sus funciones.

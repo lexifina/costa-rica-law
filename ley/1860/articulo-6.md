@@ -1,4 +1,2 @@
-Artículo 6º.- La orientación de la política social estará a cargo
-del Titular de la Cartera, quien queda obligado a promover el desarrollo
-económico-social de la clase trabajadora y a estimular las actividades
-productoras de riqueza del país.
+Artículo 6º.-
+La organización y orientación de la política laboral y social estará a cargo del titular de la Cartera, quien deberá promover las condiciones sociales, económicas, educativas y culturales que permitan el pleno desenvolvimiento y dignidad del costarricense y su familia, impulsar el mejoramiento del nivel económico-social de la clase trabajadora y estimular las actividades productoras de riqueza del país. ( Así reformado por artículo 1º de Ley Nº 3095 de 18 de febrero de 1963).

@@ -1,7 +1,2 @@
-Artículo 66.- Promoverá la formación de comisiones de seguridad
-industrial, y estimulará la preparación, de códigos de higiene y
-seguridad del trabajo, debiendo actuar en coordinación con el Instituto
-Nacional de Seguros, con el Departamento de Rehabilitación de la Caja de
-Seguro Social, con el Ministerio de Salubridad Pública y demás organismos
-semejantes, en lo que se refiere a la adopción de medidas de profilaxis
-e higiene en general.
+Artículo 66.-
+Promoverá la formación de comisiones de seguridad industrial, y estimulará la preparación, de códigos de higiene y seguridad del trabajo, debiendo actuar en coordinación con el Instituto Nacional de Seguros, con el Departamento de Rehabilitación de la Caja de Seguro Social, con el Ministerio de Salubridad Pública y demás organismos semejantes, en lo que se refiere a la adopción de medidas de profilaxis e higiene en general.

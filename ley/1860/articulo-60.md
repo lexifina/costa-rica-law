@@ -1,7 +1,2 @@
-Artículo 60.- En el ejercicio de sus funciones, realizará estudios
-sobre los factores incidentes en la fijación de los salarios y los
-correspondientes para determinar la situación económica de las diversas
-actividades productoras; practicará encuestas dirigidas a establecer las
-condiciones de vida de los trabajadores; y efectuará la recolección
-periódica de toda clase de datos referentes a ingresos por concepto de
-salarios.
+Artículo 60.-
+En el ejercicio de sus funciones, realizará estudios sobre los factores incidentes en la fijación de los salarios y los correspondientes para determinar la situación económica de las diversas actividades productoras; practicará encuestas dirigidas a establecer las condiciones de vida de los trabajadores; y efectuará la recolección periódica de toda clase de datos referentes a ingresos por concepto de salarios.

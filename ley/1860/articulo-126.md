@@ -1,0 +1,2 @@
+Artículos 126.-
+En el caso de instituciones de bienestar social que se mantengan únicamente con fondos particulares, corresponde a esta Oficina aprobar o improbar los reglamentos y programas que obligatoriamente deberán formular estas instituciones, así como ejercer supervisión sobre las mismas, a fin de garantizar que en su funcionamiento se aplican las normas adecuadas para lograr el bienestar de los menores, adultos o ancianos en problema social. ( Así reformado por artículo 2º de Ley Nº 4076 de 6 de febrero de 1968).

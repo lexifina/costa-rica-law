@@ -1,4 +1,2 @@
-Artículo 5º.- Igualmente procurará el Ministerio de Trabajo y
-Previsión Social, mantener las relaciones necesarias con los diversos
-organismos e instituciones de la materia, públicos y particulares, a fin
-de lograr la armonía y mayor efectividad de sus funciones.
+Artículo 5º.-
+Igualmente procurará el Ministerio de Trabajo y Seguridad Social, mantener las relaciones necesarias con los diversos organismos e instituciones de la materia, públicos y particulares, a fin de lograr la armonía y mayor efectividad de sus funciones. ( Así reformado por artículo 1º de Ley Nº 3095 de 18 de febrero de 1963. El nombre del Ministerio fue así reformado por Ley Nº 5089 de 18 de octubre de 1972).

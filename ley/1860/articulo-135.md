@@ -1,0 +1,2 @@
+Artículo 135.-
+En los casos que así lo requiera, por la gravedad de los mismos o por la naturaleza del problema social, el Ministerio deberá actuar de oficio y a la mayor brevedad. NOTA: El artículo 3º de Ley Nº 3095 de 18 de febrero de 1963 corrió la numeración del presente artículo, pasando del 109 al 129 y posteriormente el artículo 1º de Ley Nº 4076 de 6 de febrero de 1968 alteró nuevamente su numeración del 129 al actual.

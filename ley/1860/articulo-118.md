@@ -1,7 +1,2 @@
-Artículo 118.- Las disposiciones del Código de Trabajo contenidas en
-los artículos 557 a 576 inclusive, y 601 a 614 inclusive, serán
-aplicables para efectos de esta ley, en lo que fuere procedente y no se
-disponga lo contrario.
-Los dispuesto en los artículos 95 y 96 de esta ley, será aplicable a
-los demás funcionarios del Ministerio de Trabajo y Previsión Social, en
-el ejercicio de sus funciones propias.
+Artículo 118.-
+El Ministerio de Salubridad Pública organizará en el campo de la medicina preventiva, la atención médica en los Hogares Escuela, sin costo alguno para éstos. ( Así adicionado por artículo 1º de Ley Nº 4076 de 6 de febrero de 1968).
