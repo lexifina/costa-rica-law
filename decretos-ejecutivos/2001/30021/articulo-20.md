@@ -1,3 +1,0 @@
-CAPÍTULO XII
-De las garantías de los créditos
-Artículo 20.—De la obligación de garantizar los créditos. Las operaciones que se readecuen con recursos del Fideicomiso, deberán garantizarse con: las garantías que previamente habían sido otorgadas a favor del acreedor original. En cada caso en particular, a juicio del Comité del Fideicomiso; por motivos tales como que las garantías originales hayan desaparecido, o hubiesen perdido su valor original, o que se encuentran prontas a prescribir, se podrá solicitar un mejoramiento en la garantía, suficiente para cubrir en su totalidad el monto del crédito otorgado y asegurar su recuperación en caso de incumplimiento del beneficiario en su atención.

@@ -1,1 +1,0 @@
-Artículo 4º—Del destino de los recursos. Los recursos del Fideicomiso se destinarán a los fines previstos en la Ley, y propiamente a lo establecido en el artículo cinco de la misma. Los recursos se destinarán para financiar casos acaecidos por fenómenos naturales entre el 1º de enero de 1996 y el 31 de diciembre del 2000.

@@ -1,2 +1,0 @@
-Artículo 21.—De la posibilidad de ofrecer nueva garantía hipotecaria. Como garantía de una operación, el beneficiario puede ofrecer hipoteca sobre un bien inmueble de su propiedad, o en su defecto, propiedad de un tercero que consentirá en el gravamen hipotecario; podrá sin perjuicio ofrecer también otra garantía.
-En el caso de que en el inmueble a hipotecarse, se haya construido un edificio, deberá aportarse por parte del beneficiario, los planos de construcción respectivos. Si no cuenta con ellos, se considerará solamente la descripción del avalúo.

@@ -1,2 +1,0 @@
-Artículo 43.—Para las sesiones del Comité de Fideicomiso, el Fideicomiso cubrirá dentro de los costos de administración, los rubros de movilización, alimentación y eventualmente hospedaje de los agricultores representantes de las organizaciones de productores, de acuerdo a los montos definidos por la Contraloría General de la República, siempre que los mismos residan fuera del Valle Central.
-(Así reformado por el artículo 4 del Decreto Ejecutivo N° 30141 de 24 de enero del 2002)

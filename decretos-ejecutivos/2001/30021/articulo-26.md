@@ -1,1 +1,0 @@
-Artículo 26.—De la aprobación de la solicitud. Aprobada que fuese la solicitud de liberación parcial de garantía, por parte del Comité del Fideicomiso, éste remitirá el expediente respectivo al Fiduciario, para que se proceda con tal liberación parcial de garantía, cubriendo el beneficiario de su propio peculio, los gastos que corresponda.
