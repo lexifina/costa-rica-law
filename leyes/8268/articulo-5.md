@@ -1,0 +1,2 @@
+Artículo 5º—Autorízase al ICE, en lo concerniente a las servidumbres para el desarrollo de la porción de este proyecto en Costa Rica, para que utilice los procedimientos de adquisiciones, expropiaciones y constitución de servidumbres a que se encuentra autorizado por leyes vigentes; asimismo, se autoriza al ICE para que contrate el personal necesario para la adquisición y legalización de las servidumbres referidas en este proyecto.
+Rige a partir de su publicación.
