@@ -6,5 +6,7 @@ El nivel resolutivo deberá llevar una bitácora si es órgano unipersonal y un 
 Tabla No 4
 Nivel de Aprobación
 Nivel Subnivel Nombre Monto $ Integrantes
-V A Gerencial $400.000,00 Los Subgerentes, el Simple Jefe de la División de Crédito, el Jefe
-Nivel | Subnivel B | Nombre Gerencial Pleno | Monto $ $1.400.000,00 | Integrantes Banco según lo estipulado en el artículo 62. Se incorpora el Gerente General.
+Nombre | Monto $
+Gerencia Simple | 2.000.000,00
+Gerencia Pleno | De 2.000.000,00 en Adelante.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 3614 de 15 de junio de 1999, publicada en La Gaceta N° 128 de 02 de julio de 1999, Alcance 48.)

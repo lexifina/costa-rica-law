@@ -14,3 +14,4 @@ Reforma Reglamento General de Crédito.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-02 | la propia norma |
+| 2 | 1999-07-02 | Reglamento 3614 (1999-06-15) |
