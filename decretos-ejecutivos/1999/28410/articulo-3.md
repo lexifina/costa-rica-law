@@ -1,0 +1,1 @@
+Artículo 3°—El SUID requerirá la información y cooperación necesaria de todas las instituciones involucradas y demás entes de los sectores público y privado, para facilitar el cumplimiento de sus funciones, de acuerdo con lo establecido por el artículo 104 de la Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado y Actividades Conexas.
