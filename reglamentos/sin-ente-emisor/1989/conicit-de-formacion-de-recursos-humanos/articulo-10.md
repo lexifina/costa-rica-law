@@ -1,0 +1,1 @@
+Artículo 10°—Cuando el ex becario cambie de empleo, dentro del término del período de justificación, deberá comunicarlo de inmediato al Departamento para hacer los ajustes al porcentaje correspondiente, cuando la nueva institución o empresa implique una bonificación mayor o menor, la aplicación del nuevo porcentaje será efectivo en el semestre siguiente.

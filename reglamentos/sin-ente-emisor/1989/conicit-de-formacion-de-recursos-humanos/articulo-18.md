@@ -1,0 +1,1 @@
+Artículo 18°.—En caso de incumplimiento por parte del ex becario en el pago de las obligaciones contraídas, empezarán a acumularse intereses moratorios a razón del 2% mensual sobre los saldos, a partir del undécimo día de la fecha de vencimiento de las citadas obligaciones.

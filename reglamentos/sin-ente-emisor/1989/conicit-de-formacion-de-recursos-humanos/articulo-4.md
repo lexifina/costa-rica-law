@@ -1,0 +1,1 @@
+Artículo 4°—Cuando el ex becario haya recibido más de una beca o extensiones a su beca original, para continuar sus estudios, los trámites de cobranza y bonificación del total del préstamo se iniciarán a partir del término de la última de ellas.

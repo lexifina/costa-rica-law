@@ -1,0 +1,1 @@
+Artículo 3°—El ex becario podrá optar por utilizar o no el período de gracia; en este caso deberá ponerlo en conocimiento del CONICIT, por medio del Departamento de Formación de Recursos Humanos, en adelante llamado el Departamento, a más tardar un mes después de haber finalizado su beca, para iniciar sus pagos, el proceso de bonificación del crédito o ambos.
