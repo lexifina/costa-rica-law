@@ -1,0 +1,2 @@
+Artículo 2º—Modificar el Transitorio del Decreto Ejecutivo Nº 27902-H-MAG precitado, para que en adelante se lea así:
+"Transitorio.—Se faculta al Ministerio de Hacienda para que, una vez finalizado el inventario de los bienes y activos que conforman la Red Frigorífica Nacional, proceda a traspasarlos, a título de propiedad y mediante la figura del Decreto Ejecutivo, con la colaboración de la Proveeduría Nacional, a favor del Ministerio de Agricultura y Ganadería, para su administración y explotación definitiva por parte del Proyecto Integral de Mercadeo Agropecuario PIMA.
