@@ -1,5 +1,0 @@
-ARTICULO XXXVIII
-Rendición y liquidación de cuentas
-1º—Las Administraciones de los Miembros y Miembros Asociados y las agencias de explotación particulares reconocidas que mantienen servicios internacionales de telecomunicaciones deberán ponerse de acuerdo con respecto al monto de sus créditos y débitos
-2º—Los estados de cuentas por los créditos y débitos mencionados en el párrafo anterior deberán prepararse de conformidad con las disposiciones de los Reglamentos que acompañaran este Convenio, a no ser que las partes interesadas hayan concluido arreglos especiales.
-3º—La liquidación de las cuentas internacionales se considerara como transacciones corrientes y se efectuara conforme se liquidan las obligaciones internacionales corrientes de los países interesados, en aquellos casos en que sus Gobiernos hayan concluido arreglos sobre el asunto. Cuando no se hayan concluido arreglos para el caso, y a falta de arreglos especiales hechos en virtud del artículo XL de este Convenio, estas liquidaciones se efectuaran de acuerdo con los Reglamentos.
