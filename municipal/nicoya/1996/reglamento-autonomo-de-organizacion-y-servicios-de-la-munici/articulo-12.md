@@ -1,0 +1,3 @@
+Artículo 12.-En la Municipalidad regirá el siguiente horario:
+Personal de servicios básicos: Jornada continua acumulativa de lunes a viernes, entrando a las seis a.m., (seis horas) y saliendo a las tres p.m., (quince horas), con sesenta minutos de almuerzo, y quince minutos para tomar café a las ocho a.m. y a la una p.m.
+El personal administrativo: Tendrá una jornada continua y acumulativa con un horario de lunes a viernes, entrando a las siete y treinta a. m., (siete y treinta horas) y saliendo a las 4,00 p.m. (dieciséis horas), con una hora para almorzar, que se establecerá por grupos para que el servicio de atención al público no sufra contratiempos y quince minutos para tomar café a las 9,00 a.m., y a las 2,00 p.m., (catorce horas).

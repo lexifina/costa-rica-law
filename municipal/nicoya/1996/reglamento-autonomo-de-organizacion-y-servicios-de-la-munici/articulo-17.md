@@ -1,0 +1,1 @@
+Artículo 17.-La Municipalidad pagará salarios en forma quincenal a los empleados administrativos, según las fechas que fije el Ejecutivo Municipal y si el día de pago coincide con día feriado se hará el pago inmediato anterior. A los empleados de servicios básicos se les pagará semanalmente. El pago se podrá hacer en efectivo o mediante cheque girado por la Municipalidad.

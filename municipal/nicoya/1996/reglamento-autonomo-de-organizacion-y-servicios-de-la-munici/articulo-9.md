@@ -1,0 +1,1 @@
+Artículo 9°-En todo contrato o relación de servicio por tiempo indeterminado habrá un período de prueba tres meses. Durante este período y sin previo aviso, cualquiera de las partes podrá ponerle término al contrato o relación de servicio que lo une.

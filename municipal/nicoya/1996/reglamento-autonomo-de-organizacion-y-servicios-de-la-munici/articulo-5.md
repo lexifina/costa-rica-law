@@ -1,0 +1,1 @@
+Artículo 5°-El Ejecutivo Municipal o el encargado de personal controlará todo lo concerniente a nombramientos, despidos, cambios de puestos, accesos, vacaciones, permisos, etc., mediante una acción de personal.

@@ -1,0 +1,1 @@
+Artículo 7°-Pese a lo dispuesto en los artículos anteriores se presume la existencia de la relación de empleo entre la Municipalidad y quienes presten sus servicios personales en forma subordinada y a cambio de una retribución o salario de cualquier clase o forma, por el simple hecho de la prestación de servicios.

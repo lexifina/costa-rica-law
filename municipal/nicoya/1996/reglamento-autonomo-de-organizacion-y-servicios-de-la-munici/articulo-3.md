@@ -1,0 +1,1 @@
+Artículo 3°-La Municipalidad está compuesta actualmente por las siguientes unidades administrativas: Concejo Municipal, Dirección Ejecutiva, Auditoría, Secretaría Municipal, Administrativo Financiero, Obras y Servicios.

@@ -1,0 +1,1 @@
+Artículo 26.-La Municipalidad por ser una institución pública, otorgará todos los feriados a que se refiere el artículo 148 del Código de Trabajo, de manera que si se labora un día feriado de pago obligatorio se tendrá que abonar al servidor, un salario adicional sencillo, al correspondiente de la jornada de trabajo de que se trate.
