@@ -1,0 +1,2 @@
+Artículo 10.—Inicio de la investigación
+Comprobado el cumplimiento de los requisitos formales, la Dirección dará curso a la investigación. El acto de la Dirección en que dé inicio a una investigación tendiente a imponer una medida de salvaguardia será comunicado al Ministerio, el cual lo notificará a México, en el Centro de Información designado. De dicho acto se publicará un extracto en el Diario Oficial " La Gaceta ".

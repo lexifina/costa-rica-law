@@ -1,0 +1,2 @@
+Artículo 19.—De las medidas de compensación.
+En la etapa de consultas previas la Parte exportadora hará las observaciones que considere pertinentes, en particular sobre la procedencia de las medidas. Se referirá también, a eventuales medidas compensatorias que le satisfarían en el caso de que se llegará a aplicar la medida de salvaguardia en discusión, todo de conformidad con lo estipulado en los párrafos 7 y 8 del artículo 7-03 del Tratado.

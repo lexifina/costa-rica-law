@@ -1,0 +1,3 @@
+Artículo 17.—Apertura del periodo de consultas.
+Si como resultado de la investigación, la Dirección determina que se cumplen los supuestos lácticos y legales para interponer una medida de salvaguardia, deberá comunicárselo inmediatamente al Ministerio, a efecto de que éste inicie el proceso de consultas previas. Dicha comunicación deberá exponer en forma clara y concisa los pormenores de la investigación y los elementos de notificación establecidos en el párrafo 10 del artículo 7-05 del Tratado.
+El Ministerio comunicará al Gobierno de México el inicio de las consultas previas, por medio de la notificación formal que se realizará en el Centro de Información que ese país haya designado.
