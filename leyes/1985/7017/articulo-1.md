@@ -205,8 +205,8 @@ CAPITULO 36
 Pólvoras y explosivos; artículos de pirotécnica; fósforos; aleaciones pirofóricas; materias inflamables
 CAPITULO 37
 Productos fotográficos y cinematográficos
-CAPITULO 38
-PRODUCTOS DIVERSOS DE LAS INDUSTRIAS QUIMICAS
+CAPÍTULO 38
+PRODUCTOS DIVERSOS DE LAS INDUSTRIAS QUÍMICAS
 Notas del Capítulo:
 1. Este Capítulo no comprende:
 a) Los productos de constitución química definida presentados
@@ -390,7 +390,7 @@ utilizarse juntos sin previo reacondicionamiento;
 b) Presentados simultáneamente;
 c) Identificables por su naturaleza o por sus cantidades respectivas
 como complementarios unos de otros.
-CAPITULO 39
+CAPÍTULO 39
 MATERIAS PLASTICAS ARTIFICIALES, ETERES Y ESTERES DE LA
 CELULOSA, RESINAS ARTIFICIALES Y MANUFACTURAS
 DE ESTAS MATERIAS
@@ -705,7 +705,7 @@ computación o de oficina ... ... ... ... ... ... ... ...
 5
 99 Los demás ... ... ... ... ... ... ... ... ... ... ... ...
 50
-CAPITULO 40
+CAPÍTULO 40
 CAUCHO NATURAL O SINTETICO, CAUCHO FACTICIO
 MANUFACTURAS DE CAUCHO
 Notas del Capítulo:
@@ -930,7 +930,7 @@ para neumáticos, cámaras de aire y
 "flaps", de caucho vulcanizado sin endurecer,
 para ruedas de cualquier clase
 01 Llantas para vehículos de las partidas 87.09, 87.10
-y 87.11 y los del Capitulo 88
+y 87.11 y los del CAPÍTULO 88
 01 Para bicicletas, incluidos los protectores o "flaps"
 5
 02 Para motocicletas, incluidos los protectores o
@@ -1037,7 +1037,7 @@ PIELES CUEROS, PELETERIA Y MANUFACTURAS DE ESTAS MATERIAS;
 ARTICULOS DE GUARNICIONERIA Y DE TALABARTERIA;
 ARTICULOS DE VIAJE, BOLSOS DE MANO Y CONTINENTES SIMILARES;
 MANUFACTURAS DE TRIPAS
-CAPITULO 41
+CAPÍTULO 41
 PIELES Y CUEROS
 Notas del Capítulo:
 1. Este Capítulo no comprende:
@@ -1101,7 +1101,7 @@ harina de cuero ... ... ... ... ... ... ... ... ... ...
 sin desfibrar o de fibras de cuero, en planchas o
 en hojas, incluso enrolladas ... ... ... ... ... ... ...
 30
-CAPITULO 42
+CAPÍTULO 42
 MANUFACTURAS DE CUERO; ARTICULOS DE GUARNICIONERIA
 Y DE TALABARTERIA; ARTICULOS DE VIAJE, BOLSOS DE MANO
 Y CONTINENTES SIMILARES; MANUFACTURAS DE TRIPAS
@@ -1177,7 +1177,7 @@ o regenerado ... ... ... ... ... ... ... ... ... ... ...
 60
 42.06 00 00 Manufacturas de tripas, de vejigas y de tendones
 5
-CAPITULO 43
+CAPÍTULO 43
 PELETERIA Y CONFECCIONES DE PELETERIA; PELETERIA FACTICIA
 Notas del Capítulo:
 1. Independientemente de la peletería en bruto de la partida 43,01 la
@@ -1192,7 +1192,7 @@ clasificadas en el Capítulo 41, según la Nota 1 c), del mismo;
 c) Los guantes confeccionados a la vez con peletería natural o
 facticia y con cuero (partida 42.03);
 d) Los artículos del Capítulo 64;
-e) Los sobreros y demás tocados y sus partes del Capitulo 65; y
+e) Los sobreros y demás tocados y sus partes del CAPÍTULO 65; y
 f) Los artículos del Capítulo 97 (juguetes, juegos, artefactos
 deportivos, etc.).
 3. Se consideran napas, trapecios, cuadrados, cruces o presentaciones
@@ -1240,7 +1240,7 @@ SECCION IX
 MADERA, CARBON VEGETAL Y MANUFACTURAS DE MADERA; CORCHO
 Y SUS MANUFACTURAS; MANUFACTURAS DE ESPARTERIA
 Y DE CESTERIA
-CAPITULO 44
+CAPÍTULO 44
 MADERA, CARBON VEGETAL Y MANUFACTURAS DE MADERA
 Notas del Capítulo
 1. Este Capítulo no comprende:
@@ -1413,7 +1413,7 @@ y objetos ... ... ... ... ... ... ... ... ... ... ... ...
 5
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 70
-CAPITULO 45
+CAPÍTULO 45
 CORCHO Y SUS MANUFACTURAS
 Notas del Capítulo:
 1. Este Capítulo no comprende:
@@ -1442,7 +1442,7 @@ fabricación de tapones ... ... ... ... ... ... ... ...
 45.04 00 00 Corcho aglomerado (con o sin aglutinante) y sus
 manufacturas ... ... ... ... ... ... ... ... ... ... ...
 5
-CAPITULO 46
+CAPÍTULO 46
 MANUFACTURAS DE ESPARTERIA Y DE CESTERIA
 Notas del Capítulo:
 1. Se consideran principalmente como materias trenzables: la paja, los
@@ -1485,7 +1485,7 @@ de la partida 46.02; manufacturadas de lufa ... ... ...
 SECCION X
 MATERIAS UTILIZADAS EN LA FABRICACION DEL PAPEL;
 PAPEL Y ARTICULOS DE PAPEL
-CAPITULO 47
+CAPÍTULO 47
 MATERIAS UTILIZADAS EN LA FABRICACION DEL PAPEL
 Partidas
 DAI
@@ -1509,7 +1509,7 @@ para la fabricación de papel ... ... ... ... ... ... ...
 a/ Cuando se verifique que existe producción centroamericana en
 condiciones adecuadas, a juicio del Consejo se aplicará un Derechos
 Arancelario de Importación de 15%.
-CAPITULO 48
+CAPÍTULO 48
 PAPEL CARTON; MANUFACTURAS DE PASTA CELULOSA,
 DE PAPEL Y DE CARTON
 Notas del Capítulo:
@@ -1825,7 +1825,7 @@ de cartón o de guata celulosa
 5
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 50
-CAPITULO 49
+CAPÍTULO 49
 ARTICULOS DE LIBRERIA Y PRODUCTOS DE LAS ARTES GRAFICAS
 Notas del Capítulo:
 1. Este Capítulo no comprende:
@@ -2056,7 +2056,7 @@ los Capítulos 58 ó 59 no se incluirán en los Capítulos 50 a 57.
 constituídos por capas de hilados textiles paralelizados que se superponen
 en ángulo agudo o recto. Estas capas están fijadas entre sí en los puntos
 de cruce de los hilos por un adhesivo o por ternosoldado.
-CAPITULO 50
+CAPÍTULO 50
 SEDA, BORRA DE SEDA ("SCHAPPE") Y BORRILLA DE SEDA
 Partidas
 DAI
@@ -2090,7 +2090,7 @@ con hilados de seda ... ... ... ... ... ... ... ... ...
 50.09 00 00 Tejidos de seda, de borra de seda ("schappe") o
 de desperdicios de borra de seda (borrilla)
 (50.10)
-CAPITULO 51
+CAPÍTULO 51
 TEXTILES SINTETICOS Y ARTIFICIALES CONTINUOS
 Notas del Capítulo:
 1. En todas las Secciones de la Nomenclatura en que se utilice la
@@ -2116,7 +2116,7 @@ mayor dimensión en su corte transversal no exceda de 1 mm se clasifican:
 deniers);
 -- En la partida 51.02, en caso contrario.
 Los monofilamentos, cuya mayor dimensión en su corte transversal sea
-superior a 1 mm, están clasificados en el Capitulo 39.
+superior a 1 mm, están clasificados en el CAPÍTULO 39.
 Las tiras y formas similares (paja artificial) de materias textiles
 sintéticas y artificiales se incluyen en la partida 51.02, si su anchura no
 excede de 5 mm, y en el Capítulo 39, en caso contrario.
@@ -2164,7 +2164,7 @@ igual a 10 hilos por cm cuadrado ... ... ... ... ... ...
 40
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 II
-CAPITULO 52
+CAPÍTULO 52
 TEXTILES METALICOS Y METALIZADOS
 Partidas
 DAI
@@ -2180,7 +2180,7 @@ de metal y los hilados textiles metalizados
 de hilados textiles metalizados de la partida 52.01,
 para prendas de vestir, tapicería y usos análogos
 70
-CAPITULO 53
+CAPÍTULO 53
 LANA, PELOS Y CRINES
 Nota del Capítulo:
 La expresión de pelos finos se refiere a los pelos de alpaca, de
@@ -2227,7 +2227,7 @@ menor ... ... ... ... ... ... ... ... ... ... ... ... ...
 53.12 00 00 Tejidos de pelos ordinarios o de crin ... ... ... ... ...
 70
 (53.13)
-CAPITULO 54
+CAPÍTULO 54
 LINO Y RAMIO
 Partidas
 DAI
@@ -2253,7 +2253,7 @@ la venta al por menor ... ... ... ... ... ... ... ... ...
 II
 54.05 00 00 Tejidos de lino o de ramio... ... ... ... ... ... ... ...
 70
-CAPITULO 55
+CAPÍTULO 55
 ALGODON
 Partidas
 DAI
@@ -2290,7 +2290,7 @@ de 10 hilos por cm cuadrado ... ... ... ... ... ... ...
 II
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 II
-CAPITULO 56
+CAPÍTULO 56
 TEXTILES SINTETICOS Y ARTIFICIALES DISCONTINUOS
 Nota del Capítulo:
 Se consideran "cables para discontinuos de fibras textiles sintéticas
@@ -2361,7 +2361,7 @@ II
 56.07 00 00 Tejidos de fibras textiles sintéticas y artificiales
 discontinuas ... ... ... ... ... ... ... ... ... ... ...
 II
-CAPITULO 57
+CAPÍTULO 57
 LAS DEMAS FIBRAS TEXTILES VEGETALES; HILADOS DE PAPEL
 Y TEJIDOS DE HILADOS DE PAPEL
 57.01 00 00 Cáñamo, ("Cannabis sativa") en rama, enriado,
@@ -2402,7 +2402,7 @@ de la partida 57.03 ... ... ... ... ... ... ... ... ...
 de hilados de papel ... ... ... ... ... ... ... ... ...
 40
 (57.12)
-CAPITULO 58
+CAPÍTULO 58
 ALFOMBRAS Y TAPICES; TERCIOPELOS, FELPAS, TEJIDOS RIZADOS Y
 TEJIDOS DE CHENILLA O FELPILLA; CINTAS, PASAMANERIA; TULES O
 TEJIDOS DE MALLAS ANUDADAS (RED); PUNTILLAS, ENCAJES
@@ -2499,7 +2499,7 @@ piezas, tiras o motivos ... ... ... ... ... ... ... ...
 II
 58.10 00 00 Bordados de todas clases, en piezas, tiras o
 motivos ... ... ... ... ... ... ... ... ... ... ... ...
-CAPITULO 59
+CAPÍTULO 59
 GUATAS Y FIELTROS; CUERDAS Y ARTICULOS DE CORDELERIA; TEJIDOS
 ESPECIALES, TEJIDOS IMPREGNADOS O RECUBIERTOS; ARTICULOS DE
 MATERIAS TEXTILES PARA USOS TECNICOS
@@ -2712,7 +2712,7 @@ textiles, incluso armadas ... ... ... ... ... ... ... ...
 59.17 00 00 Tejidos y artículos para usos técnicos, de materias
 textiles ... ... ... ... ... ... ... ... ... ... ... ...
 5
-CAPITULO 60
+CAPÍTULO 60
 GENEROS DE PUNTO
 Notas del Capítulo:
 1. Este Capítulo no comprende:
@@ -2775,7 +2775,7 @@ cauchutado... ... ... ... ... ... ... ... ... ... ... ...
 II
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 II
-CAPITULO 61
+CAPÍTULO 61
 PRENDAS Y ACCESORIOS DE VESTIR, TEJIDOS
 Notas del Capítulo:
 1. Este Capítulo comprende solamente los artículos confeccionados con
@@ -2844,7 +2844,7 @@ II
 hombreras, cinturones, manguitos, mangas
 protectoras, etc. ... ... ... ... ... ... ... ... ... ...
 50
-CAPITULO 62
+CAPÍTULO 62
 OTROS ARTICULOS DE TEJIDOS CONFECCIONADOS
 Notas del Capítulo:
 1. Este Capítulo sólo comprende artículos confeccionados con tejidos que
@@ -2888,7 +2888,7 @@ trabajadores ... ... ... ... ... ... ... ... ... ... ...
 5
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 II
-CAPITULO 63
+CAPÍTULO 63
 PRENDERIA Y TRAPOS
 Notas complementarias centroamericanas:
 (63-A) Los productos de este Capítulo deberán venir provistos de
@@ -2920,7 +2920,7 @@ SECCION XII
 CALZADO SOMBRERERIA; PARAGUAS Y QUITASOLES: PLUMAS
 PREPARADAS Y ARTICULOS DE PLUMAS; FLORES ARTIFICIALES;
 MANUFACTURAS DE CABELLOS
-CAPITULO 64
+CAPÍTULO 64
 CALZADO, BOTINES, POLAINAS Y ARTICULOS ANALOGOS; PARTES
 COMPONENTES DE LOS MISMOS
 Notas:
@@ -2976,7 +2976,7 @@ deportes ... ... ... ... ... ... ... ... ... ... ... ...
 10
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 80
-CAPITULO 65
+CAPÍTULO 65
 SOMBREROS Y DEMAS TOCADOS Y SUS PARTES COMPONENTES
 Notas:
 1. Este Capítulo no comprende:
@@ -3037,7 +3037,7 @@ de vidrio u otras materias... ... ... ... ... ... ... ...
 las armaduras de muebles para sombreros de copa
 plegables), viseras y barboquejos para sombrerería... ...
 30
-CAPITULO 66
+CAPÍTULO 66
 PARAGUAS, QUITASOLES, BASTONES, LATIGOS, FUSTAS Y SUS PARTES
 COMPONENTES
 Notas:
@@ -3074,7 +3074,7 @@ paraguas, sombrillas y quitasoles ... ... ... ... ... ...
 30
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 10
-CAPITULO 67
+CAPÍTULO 67
 PLUMAS Y PLUMON PREPARADOS Y ARTICULOS DE PLUMAS O DE
 PLUMON; FLORES ARTIFICIALES; MANUFACTURAS DE CABELLOS
 Notas:
@@ -3135,7 +3135,7 @@ SECCION XIII
 MANUFACTURAS DE PIEDRA, YESO, CEMENTO, AMIANTO, MICA Y
 MATERIAS ANALOGAS; PRODUCTOS CERAMICOS; VIDRIO
 Y MANUFACTURAS DE VIDRIO
-CAPITULO 68
+CAPÍTULO 68
 MANUFACTURAS DE PIEDRA, YESO, CEMENTO, AMIANTO,
 MICA Y MATERIAS ANALOGAS
 Notas:
@@ -3269,7 +3269,7 @@ etc.) ... ... ... ... ... ... ... ... ... ... ... ... ...
 (incluidas las manufacturas de turba) no
 expresadas ni comprendidas en otras partidas
 5
-CAPITULO 69
+CAPÍTULO 69
 PRODUCTOS CERAMICOS
 Notas:
 1. El presente Capítulo no comprende más que los productos cerámicos que
@@ -3357,7 +3357,7 @@ o adorno personal ... ... ... ... ... ... ... ... ... ...
 70
 69.14 00 00 Otras manufactura de materias cerámicas ... ... ... ...
 70
-CAPITULO 70
+CAPÍTULO 70
 VIDRIO Y MANUFACTURAS DE VIDRIO
 Notas:
 1. Este Capítulo no comprende:
@@ -3539,7 +3539,7 @@ PERLAS FINAS, PIEDRAS PRECIOSAS Y SEMIPRECIOSAS Y SIMILARES,
 METALES PRECIOSOS, CHAPADOS DE METALES PRECIOSOS Y
 MANUFACTURAS DE ESTAS MATERIAS; BISUTERIA
 DE FANTASIA; MONEDAS
-CAPITULO 71
+CAPÍTULO 71
 PERLAS FINAS, PIEDRAS PRECIOSAS Y SEMIPRECIOSAS Y SIMILARES,
 METALES PRECIOSOS, CHAPADOS DE METALES PRECIOSOS Y MANUFACTURAS
 DE ESTAS MATERIAS; BISUTERIA DE FANTASIA
@@ -3731,7 +3731,7 @@ reconstituidas ... ... ... ... ... ... ... ... ... ...
 50
 71.16 00 00 Bisutería de fantasía ... ... ... ... ... ... ... ... ...
 50
-CAPITULO 72
+CAPÍTULO 72
 MONEDAS
 Notas: Este Capítulo no comprende las monedas que tengan el carácter
 de objetos de colección (partida 99.05).
@@ -3821,7 +3821,7 @@ Nota Complementaria centroamericana:
 (XV-01) Se consideran como polvos metálicos en cada uno de los
 Capítulos de esta Sección, aquellos que pasan por lo menos el 90% sobre un
 tamiz con abertura de malla de 0,5 mm.
-CAPITULO 73
+CAPÍTULO 73
 FUNDICION, HIERRO Y ACERO
 Notas:
 1. Se considera como:
@@ -4332,7 +4332,7 @@ hierro o acero... ... ... ... ... ... ... ... ... ... ...
 5
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 35
-CAPITULO 74
+CAPÍTULO 74
 COBRE
 Notas:
 1. Para la aplicación de la partida 74.02 se entiende por cuproaleaciones
@@ -4456,7 +4456,7 @@ partes de cobre ... ... ... ... ... ... ... ... ... ...
 5
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 35
-CAPITULO 75
+CAPÍTULO 75
 NIQUEL
 Notas:
 1. Para la aplicación de este Capítulo se consideran:
@@ -4510,7 +4510,7 @@ electrólisis, en bruto o manufacturados ... ... ... ...
 5
 75.06 00 00 Otras manufacturas de níquel ... ... ... ... ... ... ...
 5
-CAPITULO 76
+CAPÍTULO 76
 ALUMINIO
 Notas:
 1. Para la aplicación de este Capítulo se consideran:
@@ -4687,7 +4687,7 @@ Nota 76-1 C ... ... ... ... ... ... ... ... ... ... ...
 5
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 35
-CAPITULO 77
+CAPÍTULO 77
 MAGNESIO, BERILIO (GLUCINIO)
 Partidas
 DAI
@@ -4706,7 +4706,7 @@ magnesio; las demás manufacturas de magnesio
 (77.03)
 77.04 00 00 Berilio (glucinio) en bruto o manufacturado
 5
-CAPITULO 78
+CAPÍTULO 78
 PLOMO
 Notas:
 1. Para la aplicación de este Capítulo se consideran:
@@ -4778,7 +4778,7 @@ Valor CIF
 5
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 5
-CAPITULO 79
+CAPÍTULO 79
 CINC
 Notas:
 1. Para la aplicación de este Capítulo se consideran:
@@ -4827,7 +4827,7 @@ manguitos, bridas, etc.), de cinc ... ... ... ... ... ...
 (79.05)
 79.06 00 00 Otras manufacturas de cinc... ... ... ... ... ... ... ...
 5
-CAPITULO 80
+CAPÍTULO 80
 ESTAÑO
 Notas:
 1. Para la aplicación de este Capítulo, se consideran:
@@ -4886,7 +4886,7 @@ manguitos, bridas, etc.), de estaño ... ... ... ... ...
 5
 80.06 00 00 Otras manufacturas de estaño ... ... ... ... ... ... ...
 5
-CAPITULO 81
+CAPÍTULO 81
 OTROS METALES COMUNES
 Notas:
 1. En la partida 81.04 sólo se clasifican los metales comunes
@@ -4911,7 +4911,7 @@ Valor CIF
 81.04 00 00 Otros metales comunes en bruto o manufacturados;
 "cermets" en bruto o manufacturados ... ... ... ... ...
 5
-CAPITULO 82
+CAPÍTULO 82
 HERRAMIENTAS, ARTICULOS DE CUCHILLERIA Y CUBIERTOS DE MESA,
 DE METALES COMUNES
 Notas:
@@ -5077,7 +5077,7 @@ Valor CIF
 82.15 00 00 Mangos de metales comunes para artículos de
 las partidas 82.09, 82.13 y 82.14 ... ... ... ... ... ...
 20
-CAPITULO 83
+CAPÍTULO 83
 MANUFACTURAS DIVERSAS DE METALES COMUNES
 Nota:
 En ningún caso se considerarán como partes de las manufacturas de
@@ -5195,7 +5195,7 @@ y artículos similares, de metales comunes
 o de carburos metálicos, recubiertos o con rellenes
 para la metalización por proyección ... ... ... ... ...
 5
-CAPITULO 84
+CAPÍTULO 84
 CALDERAS, MAQUINAS, APARATOS Y ARTEFACTOS MECANICOS
 Notas del Capítulo:
 1. Este Capítulo no comprende:
@@ -5809,7 +5809,7 @@ eléctricas.
 5
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 5
-CAPITULO 85
+CAPÍTULO 85
 MAQUINAS Y APARATOS ELECTRICOS Y OBJETOS DESTINADOS
 A USOS ELECTROTECNICOS
 Notas del Capítulo:
@@ -6263,7 +6263,7 @@ El material fijo para vías de aerotrenes debe considerarse como
 material fijo de vías férreas, y los aparatos de señalización, de
 seguridad, de control y de mando para vías de aerotrenes como aparatos de
 señalización, de seguridad, de control y de mando para vías férreas.
-CAPITULO 86
+CAPÍTULO 86
 VEHICULOS Y MATERIAL PARA VIAS FERREAS; APARATOS
 NO ELECTRICOS DE SEÑALIZACION PARA VIAS DE COMUNICACION
 Notas del Capítulo:
@@ -6328,7 +6328,7 @@ no eléctricos de señalización, seguridad, control y
 mando para cualquier vía de comunicación; sus
 partes y piezas sueltas ... ... ... ... ... ... ... ...
 5
-CAPITULO 87
+CAPÍTULO 87
 VEHICULOS AUTOMOVILES, TRACTORES VELOCIPEDOS
 Y OTROS VEHICULOS TERRESTRES
 Notas del Capítulo:
@@ -6431,7 +6431,7 @@ sueltas
 60
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 45
-CAPITULO 88
+CAPÍTULO 88
 NAVEGACION AEREA
 88.01 00 00 Aerostatos... ... ... ... ... ... ... ... ... ... ... ...
 5
@@ -6455,7 +6455,7 @@ y accesorios ... ... ... ... ... ... ... ... ... ... ...
 aparatos de entrenamiento de vuelo en tierra;
 sus partes y piezas sueltas ... ... ... ... ... ... ...
 5
-CAPITULO 89
+CAPÍTULO 89
 NAVEGACION MARITIMA Y FLUVIAL
 Notas del Capítulo:
 Los barcos incompletos o sin terminar y los cascos, incluso cuando se
@@ -6508,7 +6508,7 @@ INSTRUMENTOS DE MUSICA; APARATOS PARA EL REGISTRO O
 LA REPRODUCCION DEL SONIDO; APARATOS PARA EL REGISTRO
 O LA REPRODUCCION DE IMAGENES Y DE SONIDO
 EN TELEVISION
-CAPITULO 90
+CAPÍTULO 90
 INSTRUMENTOS Y APARATOS DE OPTICA, DE FOTOGRAFIA Y DE
 CINEMATOGRAFIA, DE MEDIDA DE COMPROBACION Y DE PRECISION;
 INSTRUMENTOS Y APARATOS MEDICO-QUIRURGICOS
@@ -6824,7 +6824,7 @@ o aparatos de este grupo de partidas
 80 00 Otros (incluidos los de los incisos 90.23 00 00 y
 90.28 80 00) ... ... ... ... ... ... ... ... ... ... ...
 5
-CAPITULO 91
+CAPÍTULO 91
 RELOJERIA
 Nota del Capítulo:
 1. Para la aplicación de las partidas 91.02 y 91.07, se consideran
@@ -6851,7 +6851,7 @@ de precisión, se clasifican en el presente Capítulo.
 de este Capítulo a los que van destinados y con los que se venden
 normalmente, se clasifican con estos artículos. Si se presentan
 aisladamente, sigue su propio régimen.
-CAPITULO 91
+CAPÍTULO 91
 RELOJERIA
 Partidas
 DAI
@@ -6912,7 +6912,7 @@ aparatos de relojería, y sus partes ... ... ... ... ...
 5
 91.11 00 00 Otras partes y piezas para relojería ... ... ... ... ...
 5
-CAPITULO 92
+CAPÍTULO 92
 INSTRUMENTOS DE MUSICA; APARATOS PARA EL REGISTRO O LA
 REPRODUCCION DEL SONIDO; APARATOS PARA EL REGISTRO O
 LA REPRODUCCION DE IMAGENES Y DE SONIDO EN TELEVISION
@@ -7067,7 +7067,7 @@ aparatos comprendidos en la partida 92.11
 5
 SECCION XIX
 ARMAS Y MUNICIONES
-CAPITULO 93
+CAPÍTULO 93
 ARMAS Y MUNICIONES
 Notas del Capítulo:
 1. Este Capítulo no comprende:
@@ -7129,7 +7129,7 @@ III
 SECCION XX
 MERCANCIAS Y PRODUCTOS DIVERSOS NO EXPRESADOS
 NI COMPRENDIDOS EN OTRAS PARTIDAS
-CAPITULO 94
+CAPÍTULO 94
 MUEBLES; MOBILIARIO MEDICO-QUIRURGICO; ARTICULOS
 DE CAMA Y SIMILARES
 Notas del Capítulo:
@@ -7210,7 +7210,7 @@ almohadas, etc., incluidos los de caucho o materias
 plásticas artificiales en estado esponjoso o celular,
 recubiertas o no ... ... ... ... ... ... ... ... ... ...
 50
-CAPITULO 95
+CAPÍTULO 95
 MATERIAS PARA TALLA Y MOLDEO, LABRADAS (INCLUIDAS
 LAS MANUFACTURAS)
 Notas del Capítulo:
@@ -7275,7 +7275,7 @@ farmacéuticos ... ... ... ... ... ... ... ... ... ... ...
 5
 80 00 Otros ... ... ... ... ... ... ... ... ... ... ... ... ...
 50
-CAPITULO 96
+CAPÍTULO 96
 MANUFACTURAS DE CEPILLERIA, BROCHAS, PINCELES,
 ESCOBAS, BORLAS Y CEDAZOS
 Nota del Capítulo:
@@ -7318,7 +7318,7 @@ materia ... ... ... ... ... ... ... ... ... ... ... ...
 96.06 00 00 Tamices, cedazos y cribas de mano, de cualquier
 materia ... ... ... ... ... ... ... ... ... ... ... ...
 5
-CAPITULO 97
+CAPÍTULO 97
 JUGUETES, JUEGOS, ARTICULOS PARA RECREO
 Y PARA DEPORTES
 Nota del Capítulo:
@@ -7435,7 +7435,7 @@ la caza de alondras y artículos de caza similares
 y demás atracciones de feria, incluidos los circos,
 zoos y teatros ambulantes ... ... ... ... ... ... ... ...
 50
-CAPITULO 98
+CAPÍTULO 98
 MANUFACTURAS DIVERSAS
 Notas del Capítulo:
 1. Este Capítulo no comprende:
@@ -7456,3 +7456,11 @@ artí
 (NOTA: El Decreto Ejecutivo No. 28230 modifica los Derechos Arancelarios a la Importación de Calamares)
 (Modificado mediante Decreto Ejecutivo N° 29955 de 01 de noviembre de 2001)
 (Modificado mediante Decreto Ejecutivo N° 30917 de 13 de diciembre de 2001, en cuanto a Derechos Arancelarios a la Importación productos varios )
+(NOTA: El Decreto Ejecutivo N° 30952 de 6 de enero de 2003 modifica mediante resolución N° 98-2002 una serie de productos al Anexo A)
+(NOTA: El Decreto Ejecutivo N° 30953 de 6 de enero de 2003 hace una emienda a la resolución N° 96-2002, en el sentido de confirmar los Derechos Arancelarios Autorizados para ser aplicados por parte de El Salvador los cuales son:
+Fracción Arancelaria | Descripción | DAI
+1704.10.00 | - Chicles y demás gomas de | 15%
+| mascar incluso recubiertos |
+| de azúcar |
+1704.90.00 | - Los demás | 15%
+)
