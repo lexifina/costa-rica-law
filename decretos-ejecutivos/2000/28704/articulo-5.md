@@ -1,0 +1,1 @@
+Artículo 5º—Se insta a las diferentes Instituciones del Estado, a colaborar y aportar fondos para este evento. Para ello, deberán contar con recursos para este tipo de actividades y cumplir con los procedimientos establecidos para el traslado de fondos.

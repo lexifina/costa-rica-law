@@ -1,0 +1,1 @@
+Artículo 4º—Con el fin de facilitar la organización de este evento el Ministerio del Ambiente y Energía, facilitará un funcionario del Ministerio del Ambiente y Energía como coordinador de las actividades relativas al Congreso.

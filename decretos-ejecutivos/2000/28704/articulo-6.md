@@ -1,0 +1,1 @@
+Artículo 6º—Con el fin de financiar el Congreso, la Fundación de Parques Nacionales podrá establecer un Fideicomiso en uno de los bancos del Sistema Bancario Nacional, que se encargará del manejo y administración de los fondos que se destinen a este evento.

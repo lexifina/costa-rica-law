@@ -1,0 +1,1 @@
+Artículo 3º—Instar a la Corte Suprema de Justicia, Asamblea Legislativa, Municipalidad de San José, Universidad de Costa Rica, a nombrar un representante que formará parte de la Comisión Organizadora; así como invitar a Organismos Internacionales con sede en Costa Rica y a Organizaciones No Gubernamentales a apoyar la organización de este evento.
