@@ -20,3 +20,4 @@ Reglamento Unico de Disponibilidad de la Caja Costarricense de Seguro Social
 | 5 | 2001-12-31 | Reglamento 7558 (2001-06-28) |
 | 6 | 2001-12-31 | Reglamento 7589 (2001-10-11) |
 | 7 | 2001-12-31 | Reglamento 7602 (2001-11-22) |
+| 8 | 2002-01-24 | Reglamento 7617 (2002-01-24) |
