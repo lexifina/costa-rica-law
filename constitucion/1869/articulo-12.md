@@ -1,0 +1,1 @@
+Artículo 12.-Las disposiciones del Poder legislativo ó del Ejecutivo que fueren contrarias a la Constitución son nulas y de ningún valor, cualquiera que sea la forma en que se emitan. Lo son igualmente los actos de los que usurpen funciones públicas y los empleos conferidos sin los requisitos prevenidos por la Constitución ó las leyes.
