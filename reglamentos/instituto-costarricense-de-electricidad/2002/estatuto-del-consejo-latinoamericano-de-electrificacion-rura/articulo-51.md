@@ -1,0 +1,1 @@
+Artículo 51.—Los recursos monetarios y de otra índole serán administrados por la Mesa Permanente, para cubrir sus gastos de operación y desarrollo, y de apoyo a las sedes de las Conferencias CLER, así como la implementación de proyectos y programas de electrificación rural.

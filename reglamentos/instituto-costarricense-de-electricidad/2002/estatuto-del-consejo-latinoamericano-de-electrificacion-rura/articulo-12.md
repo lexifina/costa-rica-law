@@ -1,0 +1,1 @@
+Artículo 12.—La Mesa Permanente se deberá reunir al menos una vez al año, propiciando que coincida en la Sede de la Conferencia CLER en la misma fecha del evento y las reuniones intermedias, en la sede que la Mesa designe.

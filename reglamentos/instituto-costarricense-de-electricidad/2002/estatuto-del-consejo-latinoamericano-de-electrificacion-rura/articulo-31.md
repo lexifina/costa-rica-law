@@ -1,0 +1,1 @@
+Artículo 31.—El Consejo de Delegados cuando lo estime conveniente podrá invitar como observador temporal, con voz pero sin voto, a cualquier persona física o jurídica y deberá ser aprobada por una votación de al menos dos tercios del mismo.

@@ -1,0 +1,1 @@
+Artículo 2º—El CLER es una organización de carácter internacional, de duración ilimitada y sin fines de lucro que reúne a gobiernos, instituciones, empresas, cooperativas, organismos no gubernamentales (ONG’s), sector académico y organizaciones afines a la electrificación rural.

@@ -1,0 +1,1 @@
+Artículo 18.—Cualquier organización de un país o de otra región podrá hacer la solicitud como miembro observador, la cual deberá ser aprobada por una votación de al menos dos tercios del Consejo de Delegados.

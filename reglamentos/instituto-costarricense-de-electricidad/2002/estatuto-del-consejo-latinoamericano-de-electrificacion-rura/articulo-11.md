@@ -1,0 +1,1 @@
+Artículo 11.—La Asamblea de Delegados se convocará para sesiones plenarias de inauguración y de clausura de la Conferencia CLER, y para casos especiales cuando así lo determine el Consejo de Delegados.

@@ -1,0 +1,1 @@
+Artículo 50.—Además de otros ingresos que se promoverán por parte de la organización CLER, se establecen cuotas por cada participante inscrito en la Conferencia CLER, y por cada metro cuadrado de espacio vendido para la Expocler. La Mesa Permanente y el Comité Organizador de la Conferencia CLER definirán en forma conjunta los montos de la cuota.

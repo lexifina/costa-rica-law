@@ -1,0 +1,1 @@
+Artículo 7º—El objeto del CLER es: propiciar el desarrollo económico y social de América Latina y el Caribe, mediante la investigación, implementación, cooperación y el intercambio de experiencias de electrificación rural.

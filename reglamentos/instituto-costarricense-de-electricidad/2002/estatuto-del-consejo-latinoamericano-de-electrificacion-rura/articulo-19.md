@@ -1,0 +1,1 @@
+Artículo 19.—Si algún país de Latinoamérica o el Caribe desea participar únicamente como observador, deberá indicarlo así en la solicitud y ésta deberá ser aprobada por al menos dos tercios del Consejo de Delegados.

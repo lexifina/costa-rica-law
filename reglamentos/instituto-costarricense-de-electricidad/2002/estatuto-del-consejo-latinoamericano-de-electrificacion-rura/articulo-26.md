@@ -1,0 +1,1 @@
+Artículo 26.—El Consejo de Delegados fijará las políticas y lineamientos generales de la organización y tomará las decisiones finales sobre los programas y presupuestos sometidos por la Mesa Permanente.

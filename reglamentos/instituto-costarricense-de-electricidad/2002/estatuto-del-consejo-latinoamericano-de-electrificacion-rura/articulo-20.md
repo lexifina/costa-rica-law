@@ -1,0 +1,1 @@
+Artículo 20.—También podrán hacer la solicitud de miembros observadores organismos internacionales o regionales, cuyas solicitudes también deberán ser aprobadas por una votación de al menos dos tercios del Consejo de Delegados.

@@ -1,0 +1,1 @@
+Transitorio 2º—El Grupo Latinoamericano de Energización Rural GLAERS y el Consejo Latinoamericano de Electrificación Rural CLER, comparten la Secretaría Permanente GLAERS - CLER, en adelante Secretaría Permanente.

@@ -1,0 +1,1 @@
+Artículo 22.—Los delegados propietarios deberán firmar el presente estatuto y esta firma se complementa y valida con una carta, que se convierte en el instrumento de aceptación y compromiso de la institución u organismo que respalda al delegado validando la participación del país.

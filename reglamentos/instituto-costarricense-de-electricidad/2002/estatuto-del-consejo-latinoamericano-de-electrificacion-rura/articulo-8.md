@@ -1,0 +1,12 @@
+Artículo 8º—Para alcanzar el objeto del CLER se proponen los siguientes objetivos específicos:
+Promover el intercambio de experiencias en electrificación rural y en el suministro energético rural, entre los países de América Latina y el Caribe, en particular en lo atinente a las políticas energéticas, mercados, y marcos regulatorios, así como en la aplicación de nuevas tecnologías convencionales, en la utilización de los recursos energéticos renovables y en el incremento de la eficiencia energética.
+Promover en la región la aplicación de políticas energéticas particulares orientadas al desarrollo sustentable económico y social del medio rural.
+Establecer un ámbito de diálogo, para todos los sectores involucrados en la electrificación y en el suministro energético rural en la región, tendiente a mantener actualizado los conocimientos en tecnologías energéticas, en la gestión empresarial y en los emprendimientos sustentables de los países de la Región.
+Mantener un sistema de información y base de datos sobre tecnologías de electrificación y del suministro energético rural, incluidas las actividades de las instituciones del sector energético rural, ya sean empresas públicas y privadas, el sector académico, el sector de la formación y educación, las cooperativas eléctricas, las asociaciones comunales y gremiales.
+Brindar asistencia técnica a la Región, con medios propios o mediante la cooperación de los países miembros y organismos regionales o internacionales, asesorando en materia de políticas, gestión energética y tecnologías.
+Colaborar en la elaboración de proyectos de inversión en electrificación o el suministro energético rural, ya sea en la formulación, obtención de financiamiento y evaluación de los mismos.
+Promover la participación en el desarrollo del sector energético rural de América Latina y el Caribe, de los organismos regionales e internacionales, de carácter político, económico y financiero.
+Coordinar con el Grupo de Trabajo Latinoamericano y del Caribe para la Energización Rural Sostenible (GLAERS) los objetivos y actividades comunes.
+Organizar la Conferencia Latinoamericana de Electrificación Rural -CLER- cada 2 años, en el país que se designe como anfitrión.
+Promover la creación de Consejos Locales de Electrificación Rural en cada país del CLER.
+Promover estrategias de desarrollo de la cobertura del sector rural, con el objeto de que todos los países miembros logren un índice de electrificación cercano al 100%, con indicadores de calidad competitiva.

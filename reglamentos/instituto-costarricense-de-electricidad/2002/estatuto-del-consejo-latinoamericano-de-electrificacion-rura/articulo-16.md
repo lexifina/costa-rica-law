@@ -1,0 +1,1 @@
+Artículo 16.—El Consejo Local CLER, lo constituirá el grupo de miembros de cada país que son aceptados en el CLER y los cuales reglamentarán en forma independiente la designación de un delegado oficial y un suplente al Consejo de Delegados.

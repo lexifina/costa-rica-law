@@ -1,0 +1,1 @@
+Artículo 27.—El Consejo de Delegados celebrará reuniones ordinarias al inicio de cada Conferencia CLER y reuniones extraordinarias convocadas por la Mesa Permanente o a solicitud de un tercio de los Jefes de Delegación.
