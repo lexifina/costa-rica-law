@@ -1,0 +1,2 @@
+Artículo 7º.- Cuando la Autoridad Presupuestaria formule las directrices, tomará en consideración los criterios globales, sectoriales y programáticos, sustentados en el Plan Nacional de Desarrollo y en los Planes Operativos anuales, a efecto de que los presupuestos de las instituciones del Sector Público sean concordantes con los objetivos y prioridades establecidos en esos planes.
+La Autoridad Presupuestaria también tomará en cuenta el índice del incremento en los precios.

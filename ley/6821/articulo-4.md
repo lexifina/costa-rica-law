@@ -1,0 +1,1 @@
+Artículo 4º.- La Autoridad Presupuestaria estará integrada por el Ministro de Hacienda, quien la presidirá, el Ministro de Planificación Nacional y Política Económica y el Presidente del Banco Central de Costa Rica.
