@@ -1,0 +1,1 @@
+Art. 3. Todas las secciones electorales del Estado sufragarán para dos Senadores propietarios en reposición de los Señores Presb° Dr. Juan de los Santos Madriz, y Juan Mora, y un suplente que subrogue al Sr. José M. Jimenez.
