@@ -1,0 +1,14 @@
+N° 31797-COMEX
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE COMERCIO EXTERIOR
+Con fundamento en lo dispuesto en los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política; los artículos 27 párrafo 1° y el artículo 28 inciso b) de la Ley General de la Administración Pública; el artículo 2 bis de la Ley de Creación del Ministerio de Comercio y la Promotora de Comercio Exterior de Costa Rica, Ley N° 7638 del 30 de octubre de 1996 y los artículos 7, 9, 10, 29 y 31 de la Ley General de Control Interno, Ley N° 8292, publicada en el Diario Oficial La Gaceta N° 169 del 4 de setiembre del 2002.
+Considerando:
+I.—Que con motivo de la adición del inciso l) al artículo 5 del Estatuto del Servicio Civil, Ley N° 1581 del 30 de mayo de 1953, por la Ley General de Control Interno, número 8292 de 31 de julio del 2002, los puestos de Auditor y Subauditor Internos de los Ministerios quedaron excluidos del Régimen de Servicio Civil.
+II.—Que el artículo 29 de la Ley General de Control Interno, dispone que las instituciones sujetas a esta Ley deben definir mediante un Manual de Cargos y Clases, la descripción de las funciones y los requisitos de los puestos de Auditor y Subauditor Internos.
+III.—Que el Ministerio de Comercio Exterior ha dictado, mediante Acuerdo 001-2001 de fecha 19 de marzo del 2004, un Manual que contiene las funciones y requisitos del puesto de Auditor Interno, de conformidad con el artículo 29 de la Ley General de Control Interno citada.
+IV.—Que el Ministerio de Comercio Exterior, tiene un compromiso claro con la finalidad de disponer de un sistema de control interno efectivo, razonable y congruente con sus competencias y atribuciones institucionales.
+V.—Que el texto de los artículos 11 y 13 del Decreto Ejecutivo N° 31571-COMEX del 2 de diciembre del 2003, contempla disposiciones que podrían afectar el debido cumplimiento de los principios de razonabilidad, proporcionalidad y participación, en el desarrollo del proceso de concurso público para la selección del Auditor Interno, según lo indicado por la Contraloría General de la República en su Informe Nº DI-CR-10-2003 y en su oficio DI-CR-470 del 28 de octubre del 2003.
+VI.—Que bajo esta perspectiva se hace necesario modificar el Decreto Ejecutivo N° 31571-COMEX del 2 de diciembre del 2003, publicado en el Diario Oficial La Gaceta N° 8 del 13 de enero del 2004, denominado Reglamento de Concurso Público para la Selección y Nombramiento del Auditor Interno. Por tanto,
+DECRETAN:
+Artículo 1º—Modifíquese el artículo 3 del Decreto Ejecutivo N° 31571-COMEX del 2 de diciembre del 2003, para que en lo sucesivo se lea como sigue:
+"Artículo 3º—Requisitos del puesto. Los requisitos del puesto de Auditor Interno son los que se encuentran definidos por el Ministerio de Comercio Exterior de conformidad con el Acuerdo 001-2004 de fecha 19 de marzo del 2004".
