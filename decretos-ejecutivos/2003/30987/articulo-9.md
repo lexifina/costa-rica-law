@@ -1,0 +1,1 @@
+Artículo 9º—Plazo para la revisión tarifaria. Las solicitudes de reajuste tarifario que se presenten cumpliendo con la totalidad de los requisitos establecidos en este Reglamento, independientemente de su condición de ordinarias o extraordinarias, deberán quedar resueltas y publicadas en La Gaceta en el plazo no mayor a los quince días hábiles siguientes a su presentación.
