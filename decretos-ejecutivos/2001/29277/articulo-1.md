@@ -10,3 +10,4 @@ Considerando:
 5º—Que el manejo racional integrado de los recursos marinos contribuye a satisfacer las necesidades regionales para la investigación, recreación, educación ambiental, belleza escénica, así como el aprovechamiento de los recursos naturales renovables, explotados racionalmente.
 Decretan:
 Artículo 1º—Declárase el Refugio Nacional de Vida Silvestre de propiedad estatal el área comprendida por: una porción terrestre conformada por la Isla San Lucas, ubicada en el Golfo de Nicoya, Hoja cartográfica del IGN denominada Golfo, Edición 3-IGNCR en la Latitud Norte 9º 56’ y Longitud Oeste 84º 54. 5’ con una extensión de 4,62 km cuadrados y el área marino costero, compuesta por las aguas alrededor de la isla con una profundidad de hasta 6 m.
+(NOTA DE SINALEVI: Mediante el artículo 1 del decreto ejecutivo Nº 32349 del 25 de febrero del 2005, se mantienen los límites del Refugio Nacional de Vida Silvestre Isla San Lucas, propiedad Estatal)
