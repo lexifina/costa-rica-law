@@ -1,0 +1,5 @@
+ARTICULO 4.- En el Código de Comercio, Libro II, Título I,
+Capítulo VIII, la Sección VI se denominará "Del Pago y Extinción de la
+Prenda", y comprenderá únicamente los artículos 561, 563, 578, 580 y
+581. Deróngase todos los demás artículos de dicha Sección VI, o sean
+los números 562, 564 a 577, ambos inclusive, y 579.

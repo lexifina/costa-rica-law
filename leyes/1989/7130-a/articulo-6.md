@@ -1,0 +1,267 @@
+ARTICULO 6.- De la Ley Orgánica del Poder Judicial, refórmanse los
+artículos 3 y 140; y del título X, Régimen disciplinario, el capítulo
+I se denominará Correcciones disciplinarias. Refórmanse los
+artículos 213, 214 y 215 de ese capítulo, y los dos capítulos
+siguientes del citado título, y los artículos que contienen, para que
+digan así:
+"Artículo 3.- La Justicia se administra:
+1. Por alcaldías.
+2. Por juzgados, actuarios y arbitros.
+3. Por tribunales colegiados.
+4. Por tribunales superiores.
+5. Por las salas de la Corte Suprema de Justicia y por la Corte
+Plena.
+En los juzgados y alcaldías podrá haber uno o más jueces, según lo
+disponga la Corte Plena, para el mejor servicio público. Cada uno de
+esos jueces tendrá competencia para conocer de los asuntos que la ley
+determina, y actuará con un prosecretario, sin perjuicio de que también
+pueda hacerlo con el secretario.
+Cuando en un Juzgado o alcaldía hubiere dos o más jueces, el jefe
+administrativo de la oficina lo será el juez con mayor tiempo de
+servicio en ese juzgado o alcaldía, y, en igualdad de condiciones, el
+de título más antiguo en el catálogo del Colegio de Abogados.
+El juez o alcalde que conozca de un asunto tendrá facultades para
+ordenar lo que corresponda en el cumplimiento de sus funciones, en ese
+proceso, y en relación con éste ejercerá el régimen disciplinario. En
+los demás casos le corresponderá ejercer el régimen disciplinario al
+cuerpo de jueces. Los acuerdos se tomarán por mayoría, y si hubiere
+empate, el jefe administrativo tendrá doble voto para definir el punto.
+En las resoluciones deberá consignarse el nombre y los apellidos
+del juez que actúa en el proceso.
+En los tribunales colegiados y tribunales superiores habrá las
+secciones que sean necesarias, cada una compuesta de tres jueces.
+También podrán existir tribunales o secciones con cuatro o cinco
+jueces, cuando no sea necesario crear nuevas secciones, y en estos
+casos tres de los jueces integrarán el tribunal para resolver cada
+asunto, todo conforme con la regulación que haga la Corte Plena, con
+aplicación de los principios establecidos en el artículo 62."
+"Artículo 140.- Salvo los casos exceptuados por la ley, sólo los
+abogados podrán representar a las partes ante los tribunales judiciales
+de la República. No obstante, en los lugares asiento de la alcaldía que
+disten más de veinticinco kilómetros de la sede del juzgado, y en donde
+no haya por lo menos dos abogados con oficina abierta, podrá ser
+apoderado judicial el egresado de la carrera de Derecho, dentro del
+período de dos años que se indica en el párrafo siguiente. El alcalde
+respectivo hará constar en el expediente, bajo su responsabilidad, que
+no existen por lo menos dos abogados con oficina abierta.
+Los universitarios que estudien la profesión de Derecho y que
+hubieren aprobado el segundo año completo, todo lo cual deberán
+comprobar, podrán concurrir a las oficinas judiciales en solicitud de
+datos y para el examen de expedientes, documentos y otras piezas.
+También podrán hacerlo los egresados, pero tan solo por un lapso de dos
+años a partir del día en el que hubieren aprobado el último año
+profesional. Vencido ese plazo caducará el derecho que aquí se les
+concede.
+Los estudiantes que estén cursando el primero y segundo años, sólo
+podrán solicitar datos y ver expedientes, documentos y otras piezas,
+para confeccionar trabajos de investigación, para lo cual deberán
+presentar solicitud que en ese sentido y bajo su responsabilidad hará
+el profesor respectivo."
+"Artículo 213.- Si los actos a que se refiere el artículo anterior
+significaren ultraje u ofensa directa contra el funcionario o tribunal,
+éste podrá imponer también al culpable de dos a cinco días multa; cabrá
+apelar esta resolución ante el superior, si se tratare de la de un
+juez, actuario, alcalde o agente fiscal. Si la multa fuere impuesta por
+una de las salas o por un tribunal colegiado, no cabrá más recurso que
+el de revocatoria. Contra las que imponga la Corte Plena no cabrá
+recurso alguno.
+Cuando los hechos de que tratan este artículo y el precedente
+llegaren a constituir delito o falta, su autor será detenido y puesto
+a la orden de la autoridad respectiva, para su juzgamiento."
+"Artículo 214.- Las partes y sus abogados directores serán
+corregidos con uno a cinco días multa cuando en los asuntos en los que
+intervengan, o con motivo de ellos, dentro o fuera de juicio, de
+palabra o por escrito, por correspondencia privada o por medio de la
+radio o de la imprenta, injurien o difamen a los tribunales o a los
+funcionarios que administran justicia, sin perjuicio de las
+responsabilidades penales correspondientes.
+Los abogados podrán, además, ser suspendidos por la Corte Plena,
+en los casos previstos en este artículo, por un plazo no menor de un
+mes ni mayor de seis meses.
+Si el ataque al funcionario fuere de obra se aplicará, a la parte,
+la multa en el máximo, y al profesional la suspensión en el extremo
+mayor.
+En caso de más de una reincidencia, la Corte Plena, además de
+imponer la corrección adecuada, dará cuenta a la Junta Directiva del
+Colegio de Abogados para que se proceda en la forma que se indica en el
+artículo 147."
+"Artículo 215.- Los profesionales y las partes que en sus escritos
+consignen ofensas, frases injuriosas,despectivas o irrespetuosas contra
+los colegas o contra las partes o personas que intervienen en los
+juicios, podrán ser corregidos con uno a tres días multa, sin perjuicio
+de que el ofendido les exija las responsabilidades consiguientes.
+En los casos de injurias o de agresión personal al practicarse una
+diligencia, la corrección será de uno a cinco días multa; pero si
+hubiere habido provocación por parte del agredido o injuriado, se le
+aplicará a éste la multa en el extremo mayor y al provocado la multa
+reducida a la mitad."
+CAPITULO II
+Procedimiento
+"Artículo 220.- Las correcciones disciplinarias a que se refiere
+esta ley, se impondrán de acuerdo con las disposiciones de los
+artículos siguientes."
+"Artículo 221.- En el caso del artículo 213, el funcionario o
+tribunal hará constar en los autos, en forma lacónica, la falta
+cometida, y a continuación dictará la resolución en la que impondrá la
+multa. La apelación que establezca el interesado de acuerdo con el
+mencionado artículo 213, deberá interponerse dentro de tercero día.
+"Artículo 222.- En los casos previstos en el artículo 214, se
+procederá en la siguiente forma:
+1. Si la injuria o difamación se cometiere dentro de un proceso
+por medio de escritos presentados en él, el funcionario o tribunal
+impondrá de plano la corrección disciplinaria, y podrá ordenar también
+la transcripción del escrito a la Corte Plena para el efecto de la
+suspensión ordenada, en el párrafo segundo del artículo 214.
+2. Si fuere cometida fuera de un proceso, o sea por medio distinto
+a la presentación de escritos, el funcionario o tribunal hará, en el
+proceso una reseña lacónica de lo ocurrido y aportará, en su caso, los
+documentos, papeles o periódicos en los que conste la falta.
+A continuación impondrá la corrección disciplinaria, y si la falta
+fuere de gravedad, o fuere un ataque de obra, ordenará, en la misma
+resolución comunicar lo ocurrido a la Corte Plena para que ésta
+resuelva si procede la suspensión del abogado. No habrá, en este caso,
+motivo de impedimento, ni de recusación ni de excusa para los
+magistrados que hayan de imponer la corrección.
+3. Si ésta fuere impuesta por un alcalde, podrá apelarse para ante
+el juez respectivo; si lo fuere por un juez o un actuario, el recurso
+se admitirá para ante el tribunal superior correspondiente; si lo fuere
+por las salas o por los tribunales colegiados, no cabrá más recurso que
+el de revocatoria. Contra las que imponga la Corte Plena no cabrá
+recurso alguno.
+4. El tribunal de alzada, en los casos en que ésta proceda, podrá
+ordenar cualquier prueba para mejor proveer, si el corregido negare el
+cargo.
+5. Si se infligiere suspensión, se ordenará publicarla en el
+Boletín Judicial y se procederá, además, en las forma indicada en el
+artículo 152."
+"Artículo 223.- En el primer caso del artículo 215 se impondrá de
+plano la corrección disciplinaria; en el segundo caso, el funcionario
+o tribunal hará constar en los autos, en forma lacónica, la falta
+cometida, y a continuación dictará la resolución en la que impodrá la
+multa. En ambos casos regirán, respecto de la multa, en lo que fueren
+aplicables, las disposiciones del artículo anterior.
+En todos los casos en los que como corrección disciplinaria se
+imponga una multa, firme la resolución correspondiente, se concederá al
+interesado un plazo de tres días para que la pague o desposite a la
+orden del Colegio de Abogados, conforme lo establece su Ley Orgánica.
+Si no lo hiciere, una vez vencido ese plazo, y sin necesidad de nueva
+resolución que así lo declare, las consecuencias serán las siguientes:
+a) El profesional en Derecho quedará suspendido en el ejercicio de
+la profesión durante el tiempo que esté sin cancelar la multa, lo que
+se comunicará tanto al Colegio de Abogados como a la Corte Suprema de
+Justicia, para que tomen nota y hagan la publicación correspondiente.
+b) En cuanto a los que no fueren profesionales en Derecho, se
+comunicará a la alcaldía respectiva para que la haga descontar con
+prisión, a razón de cien colones por día.
+Si no lo hiciere, una vez vencido ese plazo, y sin necesidad de
+nueva resolución que así lo declare, la falta de pago de la multa se
+convertirá en razón de un día de prisión por día multa, lo que
+ejecutará el funcionario o tribunal que la hubiere impuesto."
+"Artículo 224.- Las correcciones disciplinarias que conforme con
+el artículo 216 puedan imponer los alcaldes, actuarios, jueces,
+tribunales colegiados y salas, a sus respectivos secretarios y demás
+subalternos, las decretarán de plano en el proceso en el que se hubiere
+cometido la falta, y si ésta fuere ejecutada fuera del proceso, la
+corrección se impondrá por medio de resolución que se dictará en un
+libro de correcciones disciplinarias que cada tribunal deberá llevar."
+"Artículo 225.- Si la corrección hubiere de imponerse, de oficio
+o a solicitud de parte, a las salas, a los tribunales colegiados, a los
+jueces, a los actuarios, a los alcaldes, por alguno de los motivos que
+indica el párrafo primero del artículo 216, se decretará de plano con
+vista de los autos respectivos, al conocer el negocio, salvo que el
+superior creyere del caso solicitar previamente informe al inferior.
+Si fuera pedida por queja separada litigante, deberá establecer
+ante el tribunal correspondiente, dentro de los ocho días posteriores
+a la comisión de la falta, con indicación, en su caso, de las pruebas
+pertinentes.
+Recibida la queja, se pedirá informe al funcionario o tribunal
+respectivo, que deberá establecerla ante el tribunal correspondiente,
+dentro de los ocho días posteriores a la comisión de la falta, con
+indicación, en su caso, de las pruebas pertinentes.
+Recibida la queja, se pedirá informe al funcionario o tribunal
+respectivo, que deberá rendir dentro de tercero día; si fuere del caso
+recibir prueba, el tribunal dispondrá lo conveniente, y una vez
+evacuada o con vista de los autos originales, dictará la resolución que
+corresponda.
+Si la queja hubiere sido rechazada por extemporánea, el tribunal
+podrá siempre imponer la corrección, si a su juicio hubiere mérito para
+ello.
+Si la queja se fundare en un hecho falso o fuere temeraria,el
+tribunal podrá, al denegarla, imponer al quejoso de uno a tres días
+multa."
+"Artículo 226.- Cuando ante la Corte Plena se presentaren quejas
+sólo por irregularidades procesales, el Presidente de ella ordenará que
+se pasen al tribunal respectivo. Cuando los cargos contra el
+funcionario sean por irregularidades procesales y al mismo tiempo por
+otros motivos ajenos al procedimiento, las quejas serán del
+conocimiento de la Inspección Judicial."
+"Artículo 227.- Si la queja fuere presentada ante la Corte Plena
+y no fuere del caso pasarla a otro tribunal, de acuerdo con lo dicho en
+el artículo anterior, se seguirá el siguiente trámite:
+1. Si no se indicaren en el escrito respectivo las pruebas
+pertinentes, el tribunal podrá rechazar de plano la queja, si a su
+juicio los cargos no fueren verosímiles o no revistieren gravedad.
+2. Si no fuere del caso rechazarla de plano, podrá solicitarse un
+informe al funcionario o tribunal, o bien comisionar directamente a la
+Inspección Judicial o a otro funcionario, para que levante la
+información correspondiente con audiencia del funcionario acusado.
+3. Con vista del informe o de la información, la Corte Plena
+dictará la resolución que corresponda, ya revocando el nombramiento del
+funcionario, o bien imponiéndole la corrección disciplinaria que
+proceda.
+4. Si la queja se fundare en un hecho falso o fuere temeraria, la
+Corte Plena podrá imponerle al quejoso la multa a que alude el párrafo
+final del artículo 225.
+5. Cuando a la Corte se le dirijan telegramas o escritos
+informales de queja, queda al prudente arbitrio del Presidente del
+Tribunal darles curso en la forma indicada en los artículos que
+anteceden, o bien disponer que se archiven, y darle cuenta al quejoso
+de que debe presentar su queja en forma, con expresión de las pruebas
+que justifiquen el cargo.
+6. En los casos del artículo 218, el Presidente de la Corte pedirá
+los informes que juzgue pertinentes e impondrá la corrección en el
+libro de correcciones disciplinarias que debe llevar la Secretaría de
+la Corte.
+7. En la Corte Plena se procederá, en sesión privada y en votación
+secreta, a discutir y decidir sobre correcciones disciplinarias o
+revocación de nombramientos.
+Igual procedimiento se seguirá, en lo posible, cuando la queja
+fuere asumida por la Corte Plena."
+"Artículo 228.- En la calificación de las probanzas, la Corte
+Plena tendrá amplia facultad de apreciación, y tan pronto adquiera la
+convicción moral de que el funcionario o empleado no responde por su
+preparación, conducta, criterio, carácter, diligencia o trabajo, a los
+fines de una sana y buena administración de justicia, revocará su
+nombramiento.
+En las actas de Corte Plena no se consignarán por ningún motivo
+manifestaciones, votos salvados o protestas de los magistrados, que en
+alguna forma, directa o indirecta, insinúen o indiquen el modo en que
+sus votos fueron dados o los detalles de la discusión o votación. Es
+igualmente prohibido para el Secretario de la Corte suministrar dato
+alguno en ese sentido, y a los magistrados, revelar o divulgar
+cualquier detalle de lo ocurrido durante las sesiones privadas."
+CAPITULO III
+Visitas de oficinas judiciales y de cárceles
+"Artículo 229.- Los jueces estarán obligados a visitar e
+inspeccionar cualquier alcaldía, a requerimiento de las respectivas
+salas o de la Corte Plena, bajo las instrucciones u órdenes que
+concretamente les impartirán. De su resultado presentarán un informe
+escrito con las observaciones que juzguen pertinentes.
+Los jueces penales y los alcaldes estarán obligados a visitar, una
+vez a la semana y sin previo aviso, las prisiones del lugar de su
+residencia, a fin de indagar si se aplican debidamente los respectivos
+reglamentos y si se les da a los presos la alimentación y el
+tratamiento que corresponden: oirán las quejas de los reos, las
+transmitirán inmediatamente al jefe de la prisión, y oídos sus
+descargos, los consignarán en el informe que al efecto presentarán a la
+Corte Plena; esto sin perjuicio de cerciorarse, en primer término, de
+si hay reos presos que lo estén indebida o ilegítimamente, a efecto de
+promover su libertad y de remediar los defectos que notaren.
+En cada prisión habrá un libro en el cual se dejará razón de las
+visitas a que se refiere el párrafo anterior, y en él se anotarán las
+observaciones que hiciere el funcionario judicial. Tales actas deberán
+ser firmadas por el juez o alcalde y el jefe de la prisión.
+Los deberes impuestos a los jueces en los dos párrafos anteriores
+no podrán ser delegados por ellos en los alcaldes. Cuando hubiere más
+de un juez penal en una localidad, se turnarán en el ejercicio de estas
+funciones, y otro tanto harán los alcaldes cuando hubiere más de uno."
