@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios del Instituto Costarricense de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-20 | la propia norma |
+| 2 | 1999-09-09 | Acuerdo 307 (1999-09-09) |
