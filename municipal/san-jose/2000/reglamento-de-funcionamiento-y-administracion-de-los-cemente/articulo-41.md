@@ -1,0 +1,1 @@
+Artículo 41.—El permiso para inhumación, debidamente refrendado por la Sección de Cementerios, debe de entregársele al encargado del cementerio dos horas antes de presentarse con el ataúd de manera que de inmediato y en presencia del tramitante ubique la sepultura y la bóveda y se le indique el nicho en que se desea quede el nuevo cuerpo a inhumar.

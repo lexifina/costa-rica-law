@@ -1,0 +1,2 @@
+Artículo 22.—En los casos en que exista amenaza de ruina de una bóveda, nicho o sepultura, bien sea por la acción del tiempo, movimientos telúricos, negligencia o abandono de las mismas u otros causales semejantes, la Sección de Cementerios evaluará la posible demolición, cargando su costo al obligado, previa notificación si existiera dueño.
+Si se determina la demolición, los materiales resultantes pasarán al Cabildo y se emplearán en labores del cementerio de que se trate.

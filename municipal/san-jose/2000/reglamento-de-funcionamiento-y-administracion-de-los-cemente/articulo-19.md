@@ -1,0 +1,1 @@
+Artículo 19.—En el área de una parcela (un metro setenta centímetros por dos metros cincuenta centímetros) se permite construir dos nichos bajo tierra (horizontales) y sobre éstos dos nichos; en parcelas de un metro cincuenta centímetros por dos metros cincuenta centímetros se permite dos fosas y un nicho sobre ella ó, una fosa y un nicho.

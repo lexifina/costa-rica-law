@@ -1,0 +1,4 @@
+NORMAS TRANSITORIAS
+Artículo 61.—El presente reglamento entrará en vigencia diez días después de su publicación en La Gaceta y deroga toda disposición reglamentaria que se le oponga.
+Sin embargo, las normas relativas al especial régimen a que se encuentra sometido el derecho de sepultura, actualmente en los cementerios municipales, se respetará hasta su vencimiento, en particular en punto a su plazo. Es entendido que al vencimiento del plazo se regirá por las presentes normas y todo sin perjuicio de las reglas relativas a higiene, ornato, seguridad, administración y demás.
+De la misma manera la Municipalidad respetará el régimen del derecho de sepultura de los cementerios que en el futuro le sean traspasados hasta el vencimiento del plazo por el que fueron otorgados dichos derechos, en el entendido de que a su vencimiento se regirán por las presentes normas.

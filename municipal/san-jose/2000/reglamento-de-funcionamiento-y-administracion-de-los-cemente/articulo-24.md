@@ -1,0 +1,1 @@
+Artículo 24.—Se prohíbe el colocar jarrones, macetas u otros recipientes para poner flores, sin estar previstos de agujeros para evitar el estancamiento del agua, así como utilizar pinturas cuyos colores no sean blanco, gris o negro.

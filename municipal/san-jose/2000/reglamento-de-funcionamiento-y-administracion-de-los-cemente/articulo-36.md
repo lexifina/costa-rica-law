@@ -1,0 +1,1 @@
+Artículo 36.—Los derechos de arrendamiento cuyo título figure a favor de los cónyuges o su compañero (a), conllevará el beneficio automático del sobreviviente, quien, a su vez podrá designar nuevos beneficiarios si no hubiesen hecho ambos con antelación.

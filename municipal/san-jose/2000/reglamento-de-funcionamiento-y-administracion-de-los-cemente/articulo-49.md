@@ -1,0 +1,1 @@
+Artículo 49.—Cuando se trate de exhumaciones ordenadas por la autoridad judicial, los restos serán exhumados y trasladados por personal del Organismo Médico Forense en las condiciones que ellos establezcan, sólo se intervendrá en la apertura parcial de la sepultura y en nicho, a eliminar la tapa.

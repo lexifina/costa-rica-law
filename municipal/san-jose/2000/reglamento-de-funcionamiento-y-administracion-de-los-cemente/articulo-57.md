@@ -1,0 +1,1 @@
+Artículo 57.—Los restos momificados no se trasladarán al Osario General, ni a osas comunes, u otros cementerios, siendo que cada camposanto contará con un área para sepultura, de manera que se destinen a tal ubicación.

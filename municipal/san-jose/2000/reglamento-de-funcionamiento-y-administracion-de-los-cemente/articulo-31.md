@@ -1,0 +1,1 @@
+Artículo 31.—Los de arrendamiento, sobre parcelas con o sin construcción, cuyos beneficiarios los tengan en abandono y no aparezcan, sea porque se trate de extranjeros ausentes, o porque hayan muerto sin dejar heredero, pasarán a la Municipalidad luego de publicarse.

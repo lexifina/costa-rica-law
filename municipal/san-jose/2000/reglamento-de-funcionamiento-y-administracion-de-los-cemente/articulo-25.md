@@ -1,0 +1,1 @@
+Artículo 25.—Los interesados, previa autorización de la Sección, podrán colocar figuras que no excedan los setenta y cinco centímetros sobre el nivel de la losa, ni perjudiquen el ornato general del cementerio.
