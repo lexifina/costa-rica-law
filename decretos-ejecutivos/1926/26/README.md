@@ -13,3 +13,4 @@ Medidas aduaneras de control de café que se exportarse a Sur América
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1926-08-26 | la propia norma |
+| 2 | 1930-03-12 | Decreto Ejecutivo 4 (1930-03-12) |
