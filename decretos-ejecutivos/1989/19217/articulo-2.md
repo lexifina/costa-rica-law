@@ -1,0 +1,1 @@
+Artículo 2°- En un plazo no mayor de 4 meses a partir de la vigencia de este Decreto, la Administración Tributaria dispondrá la publicación del texto ordenado del Reglamento a la Ley de Impuesto General sobre las Ventas y sus reformas.
