@@ -1,0 +1,1 @@
+Artículo 31.—El Director Ejecutivo desempeñará su cargo por un período de cuatro años, pudiendo ser reelecto, no podrá pertenecer al Consejo Directivo, ni ser nombrado como delegado en la Asamblea Nacional, ni ser electo en el Consejo Directivo.

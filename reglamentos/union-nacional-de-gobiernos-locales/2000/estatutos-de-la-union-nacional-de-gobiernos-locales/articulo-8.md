@@ -1,0 +1,2 @@
+Artículo 8º—Corresponde al Director Ejecutivo realizar la convocatoria a las sesiones y publicará en un medio de comunicación nacional y en el Diario Oficial la Gaceta con ocho días de anticipación el lugar, fecha y hora de celebración de la Asamblea Nacional.
+El Director Ejecutivo realizará de oficio la convocatoria a la Asamblea Nacional Ordinaria, si por cualquier circunstancia el Consejo Directivo no toma el acuerdo respectivo.

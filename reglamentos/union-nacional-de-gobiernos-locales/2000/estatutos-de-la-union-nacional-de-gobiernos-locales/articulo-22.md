@@ -1,0 +1,1 @@
+Artículo 22.—Los miembros del Consejo Directivo serán electos por la Asamblea Nacional en forma individual por provincia y por Federaciones de Municipalidades. Se deberá dar representación a los distintos partidos políticos, del mismo modo, se deberá respetar la representatividad equitativa de género.

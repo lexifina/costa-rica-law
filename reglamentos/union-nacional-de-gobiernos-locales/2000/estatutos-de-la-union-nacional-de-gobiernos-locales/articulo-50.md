@@ -1,0 +1,1 @@
+Artículo 50.—Las conclusiones y recomendaciones de los congresos serán comunicadas por parte del Consejo Directivo a la Asamblea Nacional, las Municipalidades, Federaciones de Municipalidades y poderes del Estado.

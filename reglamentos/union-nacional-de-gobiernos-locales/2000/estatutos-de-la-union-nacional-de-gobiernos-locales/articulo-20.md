@@ -1,0 +1,1 @@
+Artículo 20.—El quórum para la celebración de las sesiones es la mitad más uno de los miembros del Consejo Directivo. La sesión deberá iniciarse, dentro de los quince minutos siguientes de la hora fijada, si no hubiese quórum, se dejará constancia en el libro de actas, tomándose la nómina de los directores presentes, para efecto del pago de las dietas respectivas.

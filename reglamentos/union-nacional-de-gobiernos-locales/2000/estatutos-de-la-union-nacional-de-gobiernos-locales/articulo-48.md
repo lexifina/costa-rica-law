@@ -1,0 +1,1 @@
+Artículo 48.—Los Congresos Nacionales serán convocados por acuerdo del Consejo Directivo o por la Asamblea Nacional, con un año de anticipación a la fecha de celebrarse, para lo cual integrarán una comisión con representación de los sectores relacionados directamente con el gobierno municipal.

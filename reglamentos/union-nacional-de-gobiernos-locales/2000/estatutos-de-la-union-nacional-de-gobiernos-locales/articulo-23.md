@@ -1,0 +1,2 @@
+Artículo 23.—El Consejo Directivo estará integrado por diez directores propietarios y con sus respectivos suplentes. Habrá un representante por cada provincia y tres de las Federaciones de Municipalidades. Los directores durarán en sus cargos dos años, pudiendo ser reelectos. No podrá haber directivos propietarios y suplentes que pertenezcan a una misma Municipalidad y Federación de Municipalidades.
+El Consejo Directivo emitirá el reglamento electoral respectivo.

@@ -1,0 +1,1 @@
+Artículo 56.—Se autoriza a la Contraloría General de la República a no aprobar el presupuesto ordinario del año siguiente de los miembros de esta UNIÓN, si tuviera la Municipalidad pendiente el pago de cuotas de períodos anteriores.

@@ -1,0 +1,1 @@
+Artículo 55.—Las Municipalidades miembros autorizan a la Contraloría General de la República, a presupuestar de oficio la cuota anual para la Unión Nacional de Gobiernos Locales, cuando no incluyan la partida respectiva.

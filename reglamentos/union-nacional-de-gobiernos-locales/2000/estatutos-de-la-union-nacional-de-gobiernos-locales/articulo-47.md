@@ -1,0 +1,1 @@
+Artículo 47.—En los congresos podrán participar todos los Regidores, Alcaldes y Síndicos de las Municipalidades, los Directores Ejecutivos de las Federaciones de Municipalidades, funcionarios municipales y los consultores expertos e invitados especialistas en el campo municipal, organizaciones no gubernamentales y agrupaciones de la sociedad civil.

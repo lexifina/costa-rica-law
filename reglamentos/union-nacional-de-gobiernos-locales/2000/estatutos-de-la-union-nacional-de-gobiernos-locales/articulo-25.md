@@ -1,0 +1,1 @@
+Artículo 25.—El directivo que se ausente injustificadamente a las sesiones del Consejo por más de un mes, perderá en forma automática su credencial y será destituido inmediatamente del seno del Consejo Directivo. Así también, cuando un directivo pierda su credencial de Regidor o Alcalde por cualquiera de los motivos estipulados en el Código Municipal y otras leyes.

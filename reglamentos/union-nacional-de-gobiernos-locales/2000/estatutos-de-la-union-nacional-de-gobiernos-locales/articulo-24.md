@@ -1,0 +1,2 @@
+Artículo 24.—Los directores propietarios y suplentes devengarán igual dieta por cada sesión ordinaria y extraordinaria a la que asistan.
+No se pagarán dietas cuando los directivos estén ausentes con justificación o sin ella, salvo que se encuentren en comisión, ni cuando se presenten quince minutos después de fijada la hora de sesión. Las justificaciones se deben presentar por escrito a más tardar en el tercer día hábil posterior a la ausencia.

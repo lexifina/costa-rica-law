@@ -1,0 +1,1 @@
+Artículo 39.—Constitúyase el Consejo Técnico Consultivo de Jefes de Recursos Humanos como instancia participativa y asesora de los proyectos, programas y asuntos sustantivos de mayor relevancia que afecten al sistema de administración de recursos humanos del Régimen Municipal; que en adelante se denominará como Consejo Técnico Consultivo.

@@ -1,0 +1,1 @@
+Artículo 54.—También, podrá solicitar a los Ministerios o instituciones autónomas los servicios de su personal, para que se trasladen temporal o permanentemente a colaborar con este organismo. En estos casos, el personal mantendrá los derechos adquiridos propios de la institución de procedencia.

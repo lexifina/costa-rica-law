@@ -1,0 +1,1 @@
+Artículo 53.—El personal municipal o de las Federaciones de Municipalidades que se traslade en forma definitiva a prestar servicios a éste organismo, conservará todos los derechos derivados de sus contratos de trabajo, sin resolución de continuidad, así como también los derechos adquiridos en los regímenes de pensiones o jubilaciones a que estén amparados.

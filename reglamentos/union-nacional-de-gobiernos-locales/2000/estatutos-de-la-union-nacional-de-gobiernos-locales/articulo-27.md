@@ -1,0 +1,2 @@
+Artículo 27.—El nuevo Consejo Directivo se elegirá en la última semana del mes de mayo y se instalará en la semana posterior su elección. Anualmente, se elegirá de su seno y por simple mayoría de votos un Presidente y el resto se denominarán Vicepresidentes, enumerados del uno al nueve.
+En tal elección, participarán con voz y voto los directores propietarios y suplentes, no obstante los directores suplentes no podrán ser electos en los referidos puestos. En caso de empate se someterá de nuevo a votación, si persiste el empate, la suerte decidirá.

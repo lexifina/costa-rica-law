@@ -1,0 +1,1 @@
+Artículo 13.—Los acuerdos de la Asamblea Nacional serán tomados por mayoría simple de los votos presentes, salvo los casos en que los Estatutos señalen una mayoría diferente. Requerirán al menos dos terceras partes de los votos presentes las reformas estatutarias, asuntos presupuestarios y alteraciones del orden del día.
