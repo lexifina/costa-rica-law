@@ -1,1 +1,0 @@
-Artículo 8°.- Este Decreto modifica en lo pertinente a los decretos números 17471-MEC, del 26 de marzo de mil novecientos ochenta y siete, 17818-MEC y 17819-MEC ambos del 9 de noviembre de mil novecientos ochenta y siete y cualquier otra disposición que lo contravenga.
