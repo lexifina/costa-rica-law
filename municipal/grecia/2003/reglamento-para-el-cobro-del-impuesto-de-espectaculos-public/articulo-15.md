@@ -1,0 +1,2 @@
+Artículo 15.—No se autorizará la realización de actividades de las reguladas por el presente Reglamento cuando se tenga un antecedente de que el solicitante, en ocasión anterior no liquidó las declaraciones juradas al finalizar las actividades.
+Una vez vencido el plazo fijado en el artículo 4º, Sección Segunda del Capítulo V Sobre la Extinción, del Código de Normas y Procedimientos Tributarios, las deudas no honradas serán remitidas al Departamento Legal para su respectivo cobro judicial.

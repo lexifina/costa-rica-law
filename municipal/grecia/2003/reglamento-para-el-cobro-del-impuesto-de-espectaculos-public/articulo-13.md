@@ -1,0 +1,1 @@
+Artículo 13.—Los responsables de las actividades a que se refiere este Reglamento, están obligados a denunciar de inmediato y por escrito ante la Municipalidad, cualquier anomalía cometida por un funcionario municipal. De lo contrario y ante demostración posterior de un hecho ilícito, será considerado para los efectos posteriores como coadyuvante.

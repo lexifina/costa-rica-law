@@ -1,0 +1,1 @@
+Artículo 7º—La Municipalidad instalará un Buzón Recolector de entradas debidamente cerrado, en cada lugar en que se realicen actividades, el cual sólo podrá ser abierto por un inspector de patentes a cargo del control, o por la persona que éste designe. La responsabilidad del buen estado del buzón recolector de entradas, corresponde al propietario del establecimiento.

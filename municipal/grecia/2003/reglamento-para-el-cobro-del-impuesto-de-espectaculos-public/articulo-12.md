@@ -1,0 +1,1 @@
+Artículo 12.—Los funcionarios del Departamento de Administración Tributaria, designados como Inspectores de Espectáculos Públicos, contarán con una identificación extendida y firmada por el Alcalde Municipal, la cual llevará impresa además, el sello municipal.

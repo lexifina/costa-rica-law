@@ -1,0 +1,1 @@
+Artículo 8º—En cada establecimiento donde se lleve a cabo una actividad generadora de este impuesto de acuerdo a lo establecido en el artículo 1) de este Reglamento, deberá indicarse en un lugar visible de la boletería, y en los boletos, el precio de cada entrada.
