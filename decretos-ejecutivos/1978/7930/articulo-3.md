@@ -16,6 +16,7 @@ NAUCA | | NAB
 211-01-00 | Pieles y cueros sin curtir incluso desperdicios de cueros curtidos | 41.01
 011-01-00 | Carnes de ganado vacuno, fresca, refrigerada o congelada | 02.01
 031-03-01-51 | Camarones (vivos o muertos) frescos, refrigerados o congelados | 03.03
+031-01-01 (Así adicionada la mercancía anterior por el artículo 1° del decreto ejecutivo N° 8055 del 28 de febrero de 1978) | Atún y sus partes (no enlatado), fresco, congelado y refrigerado | 03.01
 GPO-242 | Madera en troza s o simplemente escuadrada. | 44.03
 243-02-00 | Madera aserrada, cepillada, machimbrada, etc. | 44.05
 001-01-02 | Ganado vacuno ordinario | 01.02

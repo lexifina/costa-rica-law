@@ -15,3 +15,4 @@ Reglamento a la Ley de Fomento de las Exportaciones
 | --- | --- | --- |
 | 1 | 1978-01-23 | la propia norma |
 | 2 | 1978-02-24 | Decreto Ejecutivo 8035 (1978-02-24) |
+| 3 | 1978-02-28 | Decreto Ejecutivo 8055 (1978-02-28) |
