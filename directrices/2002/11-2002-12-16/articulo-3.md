@@ -1,0 +1,1 @@
+3º—El Departamento de Asesoría en Asuntos Internacionales del Trabajo, de la Dirección de Asuntos Jurídicos del Ministerio, velará para que la producción de estadísticas resultante atienda y se ajuste a los requerimientos de los órganos de control de la OIT, especialmente en lo que se refiere al cumplimiento de las Memorias de los Convenios ratificados que debe rendir el país.

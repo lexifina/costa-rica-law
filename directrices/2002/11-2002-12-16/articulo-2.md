@@ -1,0 +1,1 @@
+2º—Como complemento al esfuerzo que deberá desplegar la Unidad de Investigación y Calidad de Gestión, la Dirección General de Planificación, a través de la Unidad de Investigación del Mercado Laboral (UNIMEL), colaborará en aquellos temas que sean sometidos a su estudio y consideración.

@@ -1,0 +1,2 @@
+4º—La Dirección General de Asuntos Laborales deberá designar a un "funcionario de enlace" con la Unidad de Investigación y Calidad de Gestión, para que actúe como "centro de acopio" de la información sociolaboral que se lleva en dicha Dirección. Dicho funcionario tendrá la responsabilidad de ordenar y, de ser necesario, iniciar el procesamiento de los datos, para luego transferirlos a la Unidad de Investigación de cita.
+La Dirección Nacional de Inspección de Trabajo continuará utilizando los mecanismos y procedimientos de acopio de la información que emplea en la actualidad.

@@ -1,0 +1,1 @@
+5º—La Unidad de Investigación y Calidad de Gestión, con la obligada colaboración de UNIMEL, deberá evaluar y, si es preciso, rediseñar las fórmulas para registrar información que utilizan los funcionarios responsables de prestar los servicios de inspección y la Dirección General de Asuntos Laborales.
