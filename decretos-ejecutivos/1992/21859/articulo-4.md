@@ -1,1 +1,0 @@
-Artículo 4°—El Ministerio de Recursos Naturales, Energía y Minas, podrá instar a otras instituciones del Estado así como a organismos privados, nacionales o extranjeros, para que proporcionen al Comité contra Incendios Guanacaste, en la medida de sus posibilidades, el apoyo que este requiera para el cumplimiento de sus fines.

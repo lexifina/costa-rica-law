@@ -1,1 +1,0 @@
-Artículo 3°—El Comité contra Incendios Forestales Guanacaste estará bajo la dirección y autoridad del Ministerio de Recursos Naturales, Energía y Minas, quien aprobará, apoyará y supervisará las acciones que en materia de incendios forestales, fuere necesario ejecutar.

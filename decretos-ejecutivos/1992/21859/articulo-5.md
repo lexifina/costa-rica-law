@@ -1,1 +1,0 @@
-Artículo 5°—El Comité contra Incendios Guanacaste procurará entre las instituciones del Estado, así como en organismos internacionales públicos o privados, los fondos disponibles para desarrollar este programa.
