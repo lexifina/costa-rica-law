@@ -13,3 +13,4 @@ Exceptúa Instituciones Fondos FODESAF Directrices Presupuestarias 1996
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-15 | la propia norma |
+| 2 | 1996-03-15 | SINALEVI (sin norma nombrada) |
