@@ -1,0 +1,17 @@
+Artículo 6°—Normas de funcionamiento del órgano Para el ejercicio de sus atribuciones, el Consejo de Administración se regirá por las siguientes normas:
+1.-Ninguno de los miembros del Consejo de Administración podrá delegar en otra persona el ejercicio de las atribuciones que le confiere la Ley y el presente Reglamento.
+2.- El Presidente del Consejo de Administración tendrá las funciones que le asigna el artículo 49.3 de la Ley General de la Administración Pública. El Consejo escogerá de su seno un Vicepresidente y un Secretario.
+El Vicepresidente sustituirá al Presidente durante sus ausencias.
+3.- El Consejo de Administración deberá reunirse, en forma ordinaria, por lo menos una vez cada quince días naturales. El día y hora de las sesiones ordinarias será acordado por mayoría absoluta de la totalidad de los miembros del Consejo a1 iniciarse el cuatrienio, sin perjuicio de que más adelante, y por la misma mayoría, se disponga su modificación.
+4.- La convocatoria a sesiones extraordinarias deberá hacerse por lo menos con veinticuatro horas de antelación por el Presidente del Consejo de Administración, o por la solicitud conjunta de un número no menor de cuatro miembros del Consejo. La convocatoria se acompañará con el orden del día y únicamente podrán discutirse los aspectos ahí consignados.
+En casos de urgencia, así calificados por el Presidente del Consejo de Administración, el plazo de la convocatoria podrá reducirse a doce horas. La convocatoria a sesiones extraordinarias, deberá ser por escrito.
+No se aplicarán los requisitos del plazo y las formalidades para la convocatoria a sesiones extraordinarias, cuando se encuentren presentes todos los miembros del órgano y así lo acuerden por unanimidad.
+5.- Salvo el Ministro de Obras Públicas y Transportes, los restantes miembros del Consejo de Administración tendrán derecho a recibir, por concepto de dieta, una remuneración equivalente a la que se establezca para los Consejos Directivos de las Instituciones Autónomas.
+El máximo de sesiones a remunerar por mes, entre ordinarias y extraordinarias, será de ocho.
+6.- El quorum para que pueda sesionar válidamente el órgano será el de la mayoría absoluta de la totalidad de sus miembros.
+7.- Salvo en lo dispuesto por Ley o el presente Reglamento, los acuerdos del Consejo de Administración se adoptarán por mayoría absoluta de los miembros presentes y adquirirán firmeza con la aprobación del acta en la sesión siguiente, a menos que se declaren firmes por votación de dos tercios de la totalidad de los miembros del Consejo.
+Cualquiera de los miembros del Consejo tendrá derecho a solicitar la revisión de un acuerdo, para lo cual deberá presentar, por la vía -de la moción de orden, el recurso antes de la aprobación del acta donde conste el acuerdo que se impugna. El recurso planteado deberá resolverse en la misma sesión, sin que sea posible postergarlo para otro momento.
+Los acuerdos del Consejo adquieren firmeza con la aprobación del acta.
+8.- Cuando exista empate, el voto del Presidente será doble.
+9.- Ninguno de los miembros presentes en la sala de sesiones al momento de efectuarse la votación, podrá negarse a emitir su voto, salvo que concurran en él los motivos de abstención a que se refiere el artículo 230 de la Ley General de la Administración Pública, lo que se tramitará conforme a las reglas establecidas en el artículo 234 del mismo cuerpo normativo.
+10.- Contra los acuerdos del Consejo únicamente cabrá el recurso de revocatoria.

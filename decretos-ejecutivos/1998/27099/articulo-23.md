@@ -1,0 +1,1 @@
+Artículo 23.—Debido proceso. En todo proceso que se siga para la aplicación de las sanciones administrativas a que se refiere el artículo 30 de la Ley, deberán respetarse la garantía constitucional del debido proceso y el derecho a la defensa.

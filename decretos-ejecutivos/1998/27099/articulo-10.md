@@ -1,0 +1,1 @@
+Artículo 10.—Relación jerárquica. Respecto del Consejo de Administración, el Director Ejecutivo se encuentra sujeto a una relación jerárquica propia en los términos de los artículos 101, siguientes y concordantes de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 15.—Nombramiento del Auditor. La contratación del auditor contable-financiero y del subauditor, si lo hubiere, se hará, previo concurso de antecendentes, por tiempo indeterminado y, para todos los efectos, dependerán orgánicamente del Consejo Administración.

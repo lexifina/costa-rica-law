@@ -1,0 +1,1 @@
+Transitorio I.—Con el propósito de salvaguardar el interés público, se autoriza al Consejo de Administración del CONAVI a designar a un Director Ejecutivo interino por el período que dure el proceso de selección y nombramiento del titular, quien ejercerá el cargo con las mismas facultades y responsabilidades que la ley establece para aquel.

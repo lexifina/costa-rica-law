@@ -1,0 +1,1 @@
+Artículo 19.—Fideicomisos. Con fundamento en la autorización contenida en el artículo 21 de la Ley, el CONAVI podrá coloca los recursos del Fondo en uno o varios de los fideicomisos que se constituyan con los bancos comerciales del Estado. El contenido del contrato de fideicomiso deberá ser aprobado por el Consejo de Administración.
