@@ -1,5 +1,6 @@
 PODER EJECUTIVO
 N.° 16
+(Nota de Sinalevi: Mediante ley N° 3 del 23 de junio de 1917, se faculta a las instituciones bancarias para emitir billetes de dos colones, un colón, y cincuenta céntimos de colón, dado lo anterior su numeral 6 indica que queda reforma la presente norma en cuanto a la emisión de billetes)
 ALFREDO GONZÁLEZ
 Presidente Constitucional de la
 República de Costa Rica
