@@ -1,0 +1,1 @@
+Artículo 39.- Los aprovechamientos actuales que determinan los artículos anteriores de esta Sección continuarán beneficiando a los actuales usuarios, pero éstos quedan sujetos a las obligaciones que se determinan en el artículo 18 de la presente ley.

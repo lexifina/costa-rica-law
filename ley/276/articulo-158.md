@@ -1,0 +1,1 @@
+Artículo 158.- Es también obligación de las entidades a que se refiere el artículo anterior consultar al Departamento de Agricultura todo lo que se relaciona con trabajos de reforestación en terrenos de su propiedad.

@@ -1,0 +1,1 @@
+Artículo 87.- Los árboles arrancados y transportados por la corriente de las aguas pertenecen al propietario del terreno donde vinieren a parar, si no los reclaman dentro de un mes sus antiguos dueños quienes, previamente a la entrega, deberán abonar los gastos ocasionados en recoger los árboles o ponerlos en lugar seguro.

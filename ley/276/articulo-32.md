@@ -1,0 +1,1 @@
+Artículo 32.- Cuando en una área mayor de la anteriormente señalada exista peligro de contaminación ya sea en las aguas superficiales o en las subterráneas, el Poder Ejecutivo, por medio de la Sección de Aguas Potables a que alude el artículo siguiente, dispondrá en el área dicha las medidas que juzgue oportunas para evitar el peligro de contaminación.

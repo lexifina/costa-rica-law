@@ -1,0 +1,2 @@
+Artículo 163.- Se aplicará la pena de trescientos sesenta a mil colones e inhabilitación de seis meses a dos años para el ejercicio de cargos y oficios públicos, al perito, inspector o comisionado del Ministerio del Ambiente y Energía, o al Inspector Cantonal de Aguas, que en el desempeño de su cargo y con perjuicio de alguien, informe dolosamente sobre las actuaciones que se le encomienden.
+( Así reformado por el Transitorio V de la Ley Nº 7593 de 9 de agosto de 1996)

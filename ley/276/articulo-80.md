@@ -1,0 +1,1 @@
+Artículo 80.- Los cauces públicos que queden en seco a consecuencia de trabajos autorizados por concesión especial, son de los concesionarios, si quedaren comprendidos dentro de los terrenos objeto de la concesión y si no se estableciere otra cosa en el respectivo contrato

@@ -1,0 +1,1 @@
+Artículo 173.- Si las aguas concedidas fueren para riego y éste se efectuare por escurrimiento, los impuestos serán los determinados en el artículo primero de este capítulo. Mas, si el riego se efectuare por inundación, el impuesto se elevará al doble.

@@ -1,0 +1,1 @@
+Artículo 81.- Cuando la corriente de un arroyo, torrente o río, segrega de su ribera una porción conocida de terreno, y la trasporta a las heredades colindantes o a las inferiores, el dueño de la finca que orillaba la ribera segregada conserva la propiedad de la porción de terreno trasportado, siempre que no haya confusión con terrenos de aquellas heredades.

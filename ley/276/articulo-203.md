@@ -1,0 +1,1 @@
+Artículo 203.- Las acciones a que se refieren los artículos anteriores no podrán establecerse después de una año contado desde la fecha de la concesión o desde que ésta adquiera el carácter de definitiva conforme al artículo 183.

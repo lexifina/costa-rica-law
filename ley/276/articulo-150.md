@@ -1,0 +1,1 @@
+Artículo 150.- Se prohibe destruir, tanto en los bosques nacionales como en los terrenos particulares, los árboles situados a menos de cinco metros de los ríos o arroyos que discurran por sus predios.

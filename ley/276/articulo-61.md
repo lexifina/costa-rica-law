@@ -1,0 +1,1 @@
+Artículo 61.- Las empresas podrán en cualquier tiempo reducir los precios de las tarifas, previa autorización del Poder Ejecutivo. En este caso, lo mismo que en los del artículo anterior, se anunciarán al público, con tres meses al menos de anticipación al día en que han de entrar en vigencia las alteraciones que se hicieren.

@@ -1,0 +1,3 @@
+Artículo 28.- Todo aprovechamiento especial de aguas públicas está sujeto a la expropiación forzosa por causa de utilidad pública -previa la indemnización correspondiente-, en favor de otro aprovechamiento que la preceda, según el orden fijado en el artículo anterior; pero no a favor de los que le sigan a no ser en virtud de una ley especial.
+La expropiación se seguirá mediante los trámites corrientes, y la decretará la Secretaría de Gobernación en virtud del requerimiento que sobre el particular reciba del Ministerio del Ambiente y Energía, el cual no lo pedirá sino cuando considere justa y legal la solicitud.
+(Así reformado por el Transitorio V de la Ley Nº 7593 de 9 de agosto de 1996)

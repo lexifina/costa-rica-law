@@ -1,0 +1,1 @@
+Artículo 19.- Toda concesión de aprovechamiento de aguas pública se entenderá hecha, aunque no se diga expresamente, sin perjuicio de tercero de mejor derecho y dejando a salvo los de particulares en el orden que determina el artículo 27. La duración de las concesiones se determinará, en cada caso, según las circunstancias y se fija como límite máximo el término de treinta años.

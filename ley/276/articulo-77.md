@@ -1,0 +1,1 @@
+Artículo 77.- Los terrenos titulados que fuesen accidentalmente inundados por las aguas de los lagos, o por los arroyos, ríos y demás corrientes, continuarán siendo propiedad de sus dueños respectivos.

@@ -1,0 +1,1 @@
+Artículo 141.- Si las aguas sobrantes no bastaren en su totalidad para satisfacer los aprovechamientos a que se refiere la fracción III del artículo anterior, se aplicarán de preferencia a los que tengan más importancia económica actual para la colectividad. En igualdad de condiciones se hará la distribución proporcional de las aguas.

@@ -1,0 +1,3 @@
+SECCION V
+Abastecimiento para el desarrollo de fuerzas hidráulicas e hidroeléctricas para servicios públicos y particulares
+Artículo 46.- Las concesiones para el aprovechamiento de aguas públicas para el desarrollo de fuerzas hidráulicas e hidroeléctricas para servicios públicos y particulares, se regirán por las disposiciones contenidas en la ley Nº 258 de 18 de agosto de 1941 y en el Reglamento que sobre el particular dictará el Poder Ejecutivo. Sin embargo, también les serán aplicables las disposiciones de la presente ley, mientras éstas, no contradigan los preceptos de la referida ley número 258.

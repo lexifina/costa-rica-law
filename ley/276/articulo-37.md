@@ -1,0 +1,1 @@
+Artículo 37.- Son servicios domésticos el suministro de agua para satisfacer las necesidades de los habitantes, el riego de cultivos de terrenos que no excedan de media hectárea; el lavado de atarjeas y el suministro de aguas para surtir bocas contra incendios.

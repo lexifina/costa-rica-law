@@ -1,0 +1,1 @@
+Artículo 45.- A falta o por insuficiencia de los medios autorizados en los artículos anteriores, tendrán derechos las empresas de ferrocarriles, para el exclusivo servicio de éstas, al agua necesaria que, siendo de dominio particular, no esté destinada a usos domésticos y, en tales casos, se aplicará la ley de expropiación forzosa.
