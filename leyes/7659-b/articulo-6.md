@@ -1,0 +1,21 @@
+ARTICULO VI
+ESTIPULACIONES ADICIONALES
+Sección seis punto uno (6.1). Desarrollo del Proyecto:
+El Prestatario y/o el Organismo Ejecutor se obligan a llevar a cabo el proyecto de conformidad con las disposiciones de este Contrato y su documentación complementaria y al tenor de la descripción completa del proyecto a realizarse, programa de trabajo, calendario de desembolsos, presupuesto detallado, y cualquier otro arreglo convenido entre ambas Partes, que hayan sido aprobados por el Banco con anterioridad al primer desembolso o cualquier otro arreglo convenido entre ambas Partes.
+Sección seis punto dos (6.2). Utilización de Bienes y Servicios:
+El Prestatario y/o el Organismo Ejecutor cuidarán que todos los bienes y servicios financiados de acuerdo con este Contrato sean utilizados exclusivamente en el proyecto.
+Sección seis punto tres (6.3). Publicidad:
+El Prestatario y el Banco acuerdan dar una adecuada publicidad a este préstamo.
+Sección seis punto cuatro (6.4). Notificación sobre Hechos Importantes:
+El Prestatario manifiesta y asegura que ha hecho saber al Banco todas las circunstancias que en forma importante podrían afectar la realización del proyecto o el cumplimiento de las obligaciones que contrae de acuerdo con este Contrato y conviene en informar con prontitud al Banco sobre cualesquiera condiciones que interfieran o que razonablemente crea que puedan interferir con tales finalidades.
+Sección seis punto cinco (6.5). Comisiones, Honorarios y Otros Pagos:
+a) El Prestatario declara que no ha hecho, ni hará, y que tampoco se ha comprometido a hacer, el pago de comisiones, honorarios, dietas o pagos de cualquier naturaleza en relación con la preparación o presentación de la solicitud que ha motivado la autorización de este préstamo por el Banco, o en relación con negociaciones efectuadas para la obtención del mismo, en favor de ninguna persona, firma o sociedad, excepto las remuneraciones regulares pagadas a funcionarios o empleados permanentes del Prestatario o por servicios de carácter profesional, técnico o de otra naturaleza similar, obtenidos de buena fe;
+b) El Prestatario asegura que todas las comisiones, honorarios, dietas o pagos que el Banco califique de excesivos, deberán ser ajustados de manera razonable y satisfactoria para el Banco y que todos los que recibieren tales comisiones, honorarios, dietas o pagos serán advertidos de esta condición; y,
+c) El Prestatario y/o el Organismo Ejecutor informarán inmediatamente al Banco acerca de cualquier comisión, honorarios, dietas o pagos de los mencionados en esta Sección, que hayan sido efectuados o que se haya convenido en efectuar, indicando si tales pagos se han hecho o se harán sobre la base de honorarios condicionales.
+Sección seis punto seis (6.6). Exención de Impuestos:
+a) Este Contrato y el acto que contiene están exentos del pago de toda clase de impuestos, en virtud de la condición jurídica del Prestatario y de la aplicación del Convenio Constitutivo del Banco; y,
+b) En los casos que procediere o que se estuviere obligado a ello, todos los impuestos y derechos establecidos por las leyes de Costa Rica y relacionados con los bienes y servicios financiados bajo este Contrato, serán pagados con recursos distintos de este préstamo.
+Sección seis punto siete (6.7). Otros Informes y Supervisiones:
+El Prestatario deberá presentar al Banco informes mensuales, conteniendo datos relativos al progreso del proyecto, desde el momento en que se efectúe el primer desembolso o se haya emitido el primer documento de compromiso y hasta el momento en que el proyecto sea terminado. Tales informes se basarán en inspecciones físicas realizadas por técnicos calificados, contratados por el Prestatario. El Banco se reserva el derecho de hacer recomendaciones al Prestatario en cuanto al contenido de los informes para dar mayor claridad a los mismos, si así lo considerara necesario.
+Sección seis punto ocho (6.8). Cesión de Derechos y Prerrogativas:
+Este Préstamo, con todos sus derechos y prerrogativas, podrá ser cedido o traspasado por el Banco a favor de terceras personas jurídicas de derecho público costarricense, o a favor de instituciones financieras o bancarias internacionales de primer orden, informándolo al Prestatario.
