@@ -16,3 +16,4 @@ Reglamento para la constitución, el traspaso, el registro y el funcionamiento d
 | 1 | 1997-11-04 | la propia norma |
 | 2 | 1997-12-17 | Reglamento 4938 (1997-12-17) |
 | 3 | 1998-10-01 | Reglamento 43 (1998-10-01) |
+| 4 | 1998-10-29 | Reglamento 48 (1998-10-29) |
