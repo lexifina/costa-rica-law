@@ -1,0 +1,4 @@
+ARTICULO VI
+Informes del Comité
+1.- El Comité formulará anualmente un informe sobre la aplicación del presente Acuerdo, que será elevado al conocimiento de los Gobiernos de las Partes, en el que se dé cuenta del estado de la cooperación entre las Partes sobre el combate al narcotráfico y a la farmacodependencia.
+2.- Las Partes convienen en que los informes anuales a los que se refiere el presente Artículo, constituirán la base conjunta sobre la cual sus respectivos gobiernos actuarán individual, bilateral y multilateralmente, en materia de evaluación de los esfuerzos de las Partes contra el narcotráfico y la farmacodependencia, utilizando dichos informes frente a sus propias autoridades nacionales competentes, en su relación mutua y en los foros internacionales, especialmente los previstos por la Convención y recomendados por el Plan.
