@@ -14,3 +14,4 @@ Reglamento del Cementerio Municipal de San Isidro de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-21 | la propia norma |
+| 2 | 2004-03-23 | Reglamento municipal 334 (2004-03-23) |
