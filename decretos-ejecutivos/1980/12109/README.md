@@ -14,3 +14,4 @@ Crea Comisión Nacional de la Cebolla
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-12-19 | la propia norma |
+| 2 | 1982-03-03 | Decreto Ejecutivo 13465 (1982-03-03) |
