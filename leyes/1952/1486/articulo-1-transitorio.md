@@ -1,0 +1,1 @@
+Transitorio.- Para efectos de la representación legal que indica el artículo 5° de esta ley, la actual Fiscalía Específica de la Oficina Administradora queda adscrita a la Procuraduría General de la República.

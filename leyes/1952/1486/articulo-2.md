@@ -1,0 +1,1 @@
+Artículo 2.- En el cumplimiento de sus fines, actuará con arreglo a las disposiciones de las leyes respectivas que fijaron las atribuciones de aquéllas, con las modificaciones que la presente ley o su reglamento establezcan.
