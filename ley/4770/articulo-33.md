@@ -1,0 +1,1 @@
+Artículo 33.—En caso de disolución del Colegio por cualquier causa, todo su patrimonio pasará a propiedad de la Universidad de Costa Rica, la cual lo liquidará e invertirá el producto, preferentemente en la promoción y enseñanza de las letras, la filosofía, las ciencias y las artes.
