@@ -1,0 +1,4 @@
+Artículo 19
+Requisito de uso
+1.- Si para mantener el registro se exige el uso, el registro sólo podrá anularse después de un período ininterrumpido de tres años como mínimo de falta de uso, a menos que el titular de la marca de fábrica o de comercio demuestre que hubo para ello razones válidas basadas en la existencia de obstáculos a dicho uso. Se reconocerán como razones válidas de falta de uso las circunstancias que surjan independientemente de la voluntad del titular de la marca y que constituyan un obstáculo al uso de la misma, como las restricciones a la importación u otros requisitos oficiales impuestos a los bienes o servicios protegidos por la marca.
+2.- Cuando esté controlada por el titular, se considerará que la utilización de una marca de fábrica o de comercio por otra persona constituye uso de la marca a los efectos de mantener el registro.
