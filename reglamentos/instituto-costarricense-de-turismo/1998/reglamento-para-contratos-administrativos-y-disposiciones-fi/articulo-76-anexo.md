@@ -1,2 +1,2 @@
-Artículo 76.—Todo adelanto de gastos para atenciones es de trámite exclusivo del funcionario a quien se le autorice, si se emplea de otra forma, se considerará falta grave y hará incurrir al responsable en las sanciones prevista en el artìculo 53 del Reglamento Autónomo de Trabajo.
-(Así ADICIONADO mediante Sesión Ordinaria Nº4995 celebrada el 31 de enero de 2000, publicada en La Gaceta Nº 72 del 12 de abril de 2000.)
+Artículo 76.—El cuidado y manejo de estos fondos estará a cargo del Cajero Sustituto en turno, quien será responsable directo de su correcto manejo y en apego a las Disposiciones Generales.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Ordinaria N° 5250, celebrada el 17 de junio de 2003, publicada en La Gaceta N° 132 de 10 de julio de 2003.)
