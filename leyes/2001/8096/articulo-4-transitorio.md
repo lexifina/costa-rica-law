@@ -1,0 +1,1 @@
+TRANSITORIO IV.- El Instituto Policial Parauniversitario, creado mediante Ley Nº 7550, deberá estructurar e impartir un diplomado en Administración Policial. Los cursos tendrán como guía y fundamento los principios universales de los derechos humanos. Esta disposición se ejecutará en un plazo de seis meses contados a partir de la entrada en vigencia de la presente Ley.
