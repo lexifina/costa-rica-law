@@ -1,0 +1,1 @@
+Artículo 3°.-El nombre correcto de la reserva establecida por el decreto N° 8514-G, Alcance N° 93 a "La Gaceta" N° 105 de 2 de junio de 1978 y delimitada por decreto N° 13545-G, "La Gaceta" N° 92 de 13 de mayo de 1982 es "Reserva Indígena Guaymí de Conteburica."
