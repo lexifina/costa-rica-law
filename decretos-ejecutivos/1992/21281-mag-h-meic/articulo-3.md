@@ -308,5 +308,33 @@ Válvulas solenoide
 Válvulas de todo tipo para la actividad agropecuaria
 Zanjeadoras rotativas hasta 51 KW
 Zetas de metal para transporte de banano
+Accesorios y repuestos para equipo de laboratorio para producción agrícola.
+Accesorios y repuestos para equipo láser, únicamente para nivelación de suelos agrícolas.
+Aspiradora o succionadora de granos de uso agrícola.
+Balanza digital de precisión para uso específico en actividades agropecuarias.
+Bandejas para el enraizamiento y almacenamiento de esquejes.
+Cobertores plásticos para heno.
+Cortinas plásticas para el control de ventilación para uso agropecuario.
+Cultivos lácticos.
+Descremadora de leche manuales y/o eléctricos de hasta 500 litros por hora para pequeños productores.
+Despulpador de granos de café.
+Equipo de bandereo electrónico, accesorios y repuestos.
+Equipo fijo de conservación en frío para productos agrícolas y acuícolas perecederos.
+Equipo muestreador para caña de azúcar acoplado al tractor agrícola.
+Equipos para la agricultura de precisión, repuestos y accesorios.
+Invernaderos prefabricados de uso agrícola y sus accesorios y repuestos.
+Malla espaldera metálica y/o plástica para hortalizas.
+Mallas plásticas o de tela para la protección de cultivos (malla anti-insecto).
+Máquina electrónica y mecánica seleccionadora de grano, semillas y frutas.
+Máquina sembradora de plantas ornamentales, repuestos y accesorios.
+Máquinas llenadoras de contenedores y bandejas, repuestos y accesorios.
+Motores para bombas mayores de 1HP de uso exclusivo para la actividad agropecuaria.
+Organismos Vivos Modificados y sus productos de uso agropecuario.
+Película plástica tratada contra rayos ultravioleta.
+Reactivos químicos a base de enzimas de uso pecuario.
+Reactivos utilizados para diagnóstico en laboratorio agrícola.
+Romanas electrónicas exclusivas para la actividad porcícola.
+Sustratos, potes plásticos y continentes biodegradables a base de turba o vermiculita o perlita para enraizamiento y almacenamiento de semillas, esquejes y similares en invernaderos.
+Tractores de oruga de aplicación especial únicamente para proyectos agrícolas.
 Los importadores de las mercancías antes detalladas también podrán tramitar las exoneraciones bajo el procedimiento ordinario.
-(Así reformado por el artículo 2° del Decreto Ejecutivo No. 28648, del 15 de mayo del 2000).
+(Así ampliado mediante el artículo 1° del Decreto Ejecutivo No. 29902, del 29 de agosto del 2001).
