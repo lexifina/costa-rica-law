@@ -15,3 +15,4 @@ Reglamento General Créditos y Avales.
 | --- | --- | --- |
 | 1 | 2000-11-07 | la propia norma |
 | 2 | 2001-11-27 | Reglamento 0 (2001-11-27) |
+| 3 | 2002-10-28 | Reglamento 3196 (2002-10-28) |
