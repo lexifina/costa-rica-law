@@ -1,0 +1,1 @@
+Art. 2° -La primera Secretaría de Estado continuará á cargo del Honorable Señor Doctor Don José María Castro; y la cuarta, al del Honorable Señor Coronel Don Miguel Guardia. Trasládese a la segunda, al Honorable Señor Doctor Don Francisco Chaves Castro; y á la tercera, al Honorable Señor Licenciado Don Bernardo Soto.
