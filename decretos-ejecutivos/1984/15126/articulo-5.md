@@ -1,0 +1,1 @@
+Artículo 5°-Se faculta al Registro Nacional y al Ministerio de Gobernación y Policía para que mediante resolución establezcan las codificaciones que les corresponden a propósito de la aplicación de este Decreto.
