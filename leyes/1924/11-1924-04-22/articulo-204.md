@@ -1,3 +1,5 @@
 Artículo 204
-Facultad de revocar el indulto o la conmutación
-La facultad de revocar el indulto o la conmutación, corresponde exclusivamente a la Corte Suprema de Justicia.
+Revocatoria de gracias.-Para el cumplimiento de los estipulado en el inciso 8° del artículo 194 y en el inciso 6° del artículo 196, el registro Judicial de Delincuentes anotará en el asiento que corresponda a cada reo todo acuerdo que conceda un indulto o una conmutación e indicará esa circunstancia al certificar la sentencia a cualquier autoridad judicial que solicite los antecedentes del reo.
+La sentencia que condene de nuevo a este último hará la revocatoria y ordenará que se sume a la nueva pena la perdonada con anterioridad.
+Cuando cualquiera autoridad judicial tenga noticia del quebrantamiento de una condena conmutada, levantará de oficio la información correspondiente, con audiencia del Ministerio Público, y la pasará a la Corte Suprema de Justicia; ésta, comprobando el hecho, declarará revocada la conmutación y dispondrá que el reo cumpla la parte que faltare por descontar, sin perjuicio de la causa que proceda por el quebrantamiento, según el artículo 517 del presente Código.
+(Así reformado por el artículo 1° de la ley N° 19 del 19 de noviembre de 1934)

@@ -1,9 +1,11 @@
 Artículo 194
-Reglas comunes al indulto, conmutación y rehabilitación
-El ejercicio de la gracia por indulto especial y conmutación de penas, se somete a las siguientes reglas:
-1° No podrá ser otorgada a los reos de traición a la patria, ni a los de homicidio perpetrado en un ascendiente o descendiente, o en el cónyuge o hermano.
-2.° No procede en beneficio de los reos que hubieren incurrido en más de una reincidencia, o que hubieren quebrantado alguna condena, o hubieren violado con la fuga. la prisión preventiva en cualquier causa, o fueren ausentes o rebeldes.
-3.° A una misma persona no podrá concederse más de una gracia por el mismo delito o pena.
-4.° La concesión de una gracia debe tener por objeto satisfacer graves y evidentes necesidades de moralidad o de conveniencia pública o de adecuación de la condena, respecto de condiciones o circunstancias, que no fueron o no pudieron ser materia del pronunciamiento judicial.
-5.° Ninguna gracia será otorgada sin haber oído el parecer de la Corte Suprema de Justicia, salvo que se trate de indulto recomendado por el tribunal sentenciador, ni se ejecutará antes de que se dé publicidad al acuerdo respectivo.
-6.° El acuerdo de concesión expresará las razones que motivan la gracia y hará mención del parecer emitido por la Corte Suprema de Justicia.
+Clasificación del indulto y reglas especiales de éste.-El indulto revestirá las siguientes formas, con las reglas que a continuación se establecen:
+1°-Es general cuando se refiere a todos los condenados con motivo de un suceso o acción compleja, sin limitar sus efectos a determinada o determinadas personas, con exclusión de las que no se indiquen; es aplicable únicamente a los delitos políticos o a los conexos con ellos, según la definición que de éstos se da el artículo 192;
+2°-Es especial cuando se refiera a la pena infligida al reo o reos por un delito determinado;
+3°-Es total si comprende la remisión de todas las penas a que hubiese sido condenado y que todavía no hubiere cumplido el delincuente;
+4°-Es parcial cuando sólo resulta la remisión de alguna a algunas de las penas impuestas, o parte de ellas;
+5°-El indulto de la pena principal llevará consigo el de las accesorias, excepto la inhabilitación para cargos u oficios públicos o profesiones titulares, que no debe estimarse comprendida si el acuerdo de concesión no lo establece expresamente;
+6°-Cabe indultar al reo de las penas accesorias con exclusión de la principal, cuando por su naturaleza o efectos no sean inseparables;
+7°-El indulto de la pena pecuniaria exime al reo del pago de la cantidad no satisfecha aún, sin constituir derecho para obtener la devolución de lo pagado;
+8°-Excepto en los casos del artículo siguiente, la comisión de nuevo delito dentro del término que hubiere sido necesario para prescribir la pena remitida, trae como consecuencia la revocación de la gracias por resolución judicial.
+(Así reformado por el artículo 1° de la ley N° 19 del 19 de noviembre de 1934)

@@ -1,4 +1,6 @@
+(Derogado)
 N°118.-EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
+(Esta norma fue derogada por el artículo segundo de la ley N° 19 del 19 de noviembre de 1934)
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
 DECRETA:
 Ley de Gracia
