@@ -1,1 +1,0 @@
-Artículo 5°-La Dirección General de Servicio Civil enviará a la Comisión de Recursos Humanos todos los documentos que, a la fecha, tenga en trámite en relación a las acciones citadas en el artículo 4° de este decreto, con el objeto de que sigan el proceso descrito.

@@ -1,1 +1,0 @@
-Artículo 6°-La Comisión de Recursos Humanos deberá estudiar, además, en forma global lo atinente a la política de salarios tanto en el Gobierno Central como en las instituciones descentralizadas administrativamente.
