@@ -1,0 +1,1 @@
+Artículo 2º—El vehículo que se pretenda inscribir dentro de la concesión administrativa de taxi en virtud de la sustitución, deberá cumplir con las disposiciones del Decreto Ejecutivo Nº 28913-MOPT y sus reformas, o cualquier otro que regule las características y condiciones de los vehículos taxi.

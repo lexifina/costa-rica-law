@@ -1,0 +1,1 @@
+Artículo 5º—El Registro Público de Bienes Muebles exigirá, para la autorización de la inscripción de los nuevos vehículos concesionados, los documentos a que hace referencia el Decreto Nº 30748-J-MOPT, según sea el presupuesto de hecho en que se encuentre la nueva unidad a inscribir.
