@@ -1,0 +1,31 @@
+ARTICULO VIII. OBLIGACIONES GENERALES DE LOS ASOCIADOS
+1. Introducción.- Además de las obligaciones contraídas conforme a otros artículos de este Convenio, todo asociado se compromete a cumplir las dispuestas en el presente artículo.
+2. Prohibición de restricciones sobre pagos corrientes.-a) Salvo lo dispuesto en el artículo VII, párrafo 3, inciso b, y en el artículo XIV, párrafo 2, ningún asociado podrá sin el consentimiento del Fondo, imponer restricciones a los pagos y traspasos originados por operaciones internacionales en cuenta corriente.
+b) Los contratos de compra-venta de divisas expresados en la moneda de un país asociado y que sean contrarios a las disposiciones cambiarias que ese asociado mantenga o imponga conforme a este Convenio, no tendrán efecto en el territorio de ningún asociado. Además, los asociados podrán, por acuerdo mutuo, cooperar en la adopción de medidas destinadas a aumentar la eficacia de sus respectivas disposiciones de control de los cambios, siempre y cuando dichas medidas y disposiciones sean compatibles con este acuerdo.
+3. Prohibición de prácticas cambiarias discriminatorias.- Ningún asociado adoptará, o permitirá que las adopten las agencias fiscales a que se refiere el artículo V, párrafo 1, medidas cambiarias discriminatorias o monedas múltiples, excepto las autorizadas por este Convenio o las que apruebe el Fondo. Si en la fecha en que entre en vigor este Convenio subsisten tales medidas o prácticas, el asociado de que se trate consultará con el Fondo sobre su eliminación progresiva, a menos que se mantengan o impongan de acuerdo con el artículo XIV, párrafo 2, caso en el cual tendrá efecto lo dispuesto en el párrafo 4 de ese artículo.
+4. Convertibilidad de saldos en poder de otros asociados.- a) Los asociados comprarán los saldos de su moneda que estén en poder de otros asociados si éstos, al solicitar la compra, declaran:
+I) que los saldos por comprar han sido adquiridos recientemente como resultado de operaciones corrientes; o
+II) que es precisa su conversión para liquidar operaciones corrientes.
+El país comprador podrá, a su elección, pagar en la moneda del país que ha solicitado la conversión o en oro.
+b) La obligación prevista en el inciso a anterior no regirá:
+I) cuando la convertibilidad de los saldos ha sido limitada en forma compatible con el párrafo 2 de este artículo o el párrafo 3 del artículo VI; o
+II) cuando los saldos se han acumulado como resultado de operaciones efectuadas antes de que el asociado eliminara las restricciones mantenidas o impuestas según el artículo XIV, párrafo 2; o
+III) cuando los saldos han sido adquiridos en violación de las disposiciones cambiarias del asociado a quien se pide los compre; o
+IV) cuando la moneda del país que solicita la conversión ha sido declarada escasa de acuerdo con el artículo VII, párrafo 3, inciso a.
+V) cuando el asociado a quien se pide haga la compra no tiene, por cualquier motivo, derecho a comprar al Fondo, con su propia moneda, las monedas de otros asociados.
+5. Suministro de información.-a) El Fondo podrá exigir a los asociados que le suministren la información que juzgue necesaria para sus operaciones, comprendidos los siguientes datos nacionales mínimos, necesarios para el cumplimiento eficaz de las obligaciones del Fondo:
+I) Existencia oficial, en el país y en el extranjero, de 1) oro y 2) divisas.
+II) Existencia de 1) oro y 2) divisas, en el país y en el extranjero, en poder de instituciones bancarias y financieras, con excepción de dependencias del gobierno.
+III) Producción de oro.
+IV) Exportación e importación de oro por países de destino y procedencia.
+V) Exportación e importación total de mercancías, expresadas en moneda nacional, por países de destino y procedencia.
+VI) Balanza internacional de pagos, comprendidos 1) el comercio de mercancías y servicios, 2) los traspasos de oro, 3) los traspasos de capital de que se tenga conocimiento y 4) otros renglones.
+VII) Estado de las inversiones internacionales, esto es, inversiones en el país por parte de residentes de otros países, e inversiones en el extranjero por parte de residentes del país, en la medida en que sea posible suministrar esta información.
+VIII) Ingreso nacional.
+IX) Indices de precios, esto es, índices de precios al mayoreo y al menudeo y de precios de exportación e importación.
+X) Tipos de compra y de venta de divisas.
+XI) Control de cambios, esto es, un informe amplio de las medidas de control de cambios en vigor en el momento de asociarse el país al Fondo e información detallada periódica sobre las modificaciones subsecuentes.
+XII) Donde existen convenios oficiales de compensación, una relación de los saldos pendientes de liquidación motivados por operaciones comerciales y financieras, así como del plazo durante el cual han estado pendientes dichos pagos.
+b) Al solicitar información, el Fondo tendrá en cuenta la distinta capacidad de los asociados para suministrar los datos requeridos. Los asociados no estarán obligados a suministrar informes en forma tan detallada que revele la situación de individuos o compañías; pero se comprometen, sin embargo, a suministrarla de la manera más detallada y exacta que sea factible, y, en lo posible, a evitar dar meras estimaciones.
+c) El Fondo podrá convenir con los asociados el suministro de información adicional. Actuará como centro para la recolección e intercambio de información sobre problemas monetarios y financieros, y facilitará así la elaboración de informes con el objeto de ayudar a llevar a cabo programas que apoyen los fines del Fondo.
+6. Consultas entre los asociados respecto a convenios internacionales en vigor.- Cuando conforme a este Convenio un asociado esté autorizado, en las circunstancias especiales o transitorias que especifique este Convenio, a mantener o establecer restricciones sobre las operaciones cambiarias, y existan otros compromisos entre los asociados anteriores a este Convenio y que sean incompatibles con la aplicación de dichas restricciones, los signatarios de aquellos compromisos se consultarán entre sí con objeto de efectuar los ajustes que sean necesarios y aceptables mutuamente. Lo dispuesto en este artículo regirá sin perjuicio de lo dispuesto en el artículo VII, párrafo 5.
