@@ -14,3 +14,4 @@ Reforma Manual Descriptivo Puestos Docentes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-10-01 | la propia norma |
+| 2 | 1986-12-02 | Decreto Ejecutivo 17340 (1986-12-02) |
