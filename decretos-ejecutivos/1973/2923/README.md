@@ -24,3 +24,4 @@ Reglamento Ley Forestal
 | 9 | 1980-10-16 | Decreto Ejecutivo 12010 (1980-10-16) |
 | 10 | 1980-11-28 | Decreto Ejecutivo 12073 (1980-11-28) |
 | 11 | 1981-03-16 | Decreto Ejecutivo 12491 (1981-03-16) |
+| 12 | 1982-10-05 | Decreto Ejecutivo 13907 (1982-10-05) |

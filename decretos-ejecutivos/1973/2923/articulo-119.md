@@ -1,5 +1,19 @@
-Artículo 119.—En relación a las importaciones, las solicitudes se presentarán en papel sellado de un colón (1.00), indicando:
-a) Nombre y dirección del importador; y
-b) Descripción de los productos a importar, cantidad, valor y procedencia.
-La Dirección General Forestal sólo autorizará las peticiones de importación de madera cuando ésta no se produzca en condiciones satisfactorias de precio, calidad y cantidad en el mercado nacional. A ese efecto el interesado deberá adjuntar tres cotizaciones de proveedores nacionales, o en su defecto carta que justifique que el producto no puede hacerse en el país, todo a satisfacción de la Dirección General Forestal.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 10985 del 7 de diciembre de 1979)
+Artículo 119.—De las especies que se dirán, únicamente se permitirá la exportación de los productos forestales comprendidos del número 9) al 29), ambos inclusive, del artículo 115.
+Nombre común | Nombre científico | Familia
+Ron ron | Astronium graveolems | ANACARDIACEAE
+Probado | Bsilcxylum excelsum Cedrela fisilis | STERCULIACEAE MELIACEAE
+Cocobola | Dalbergia retusa | FABACEAE
+Olla de mono | Lecythia costarricense | LECYTHIDACEAE
+Magnolia | Magnolia poasana | MAGNOLIACEAE
+Tempisque | Mastichodendrum capiri var tempisque | SAPOTACEAE
+Manú | Minguartía guanensis | OLACACEAE
+Bálsamo | Myroxilum balsamun | FABACEAE
+Níspero chicle | Manilkara acharas Acras zapata | SAPOTACEAE
+Nazareno | Peltogyne purpurea | FABACEAE
+Cristóbal | Platymiscium pinnatum | FABACEAE
+Surá | Terminalia lúcida | COMBRETACEAE
+Guayabón negro | Terminalia bucidoides | COMBRETACEAE
+Roble | Quercus copeeyensis | FABACEAE
+Cedro amargo | Cedrela mexicana | MELIACEAE
+Laurel | Bombacopsis quinatum | BOMBACACEAE".
+(Así reformado por el artículo 1° del decreto ejecutivo N° 13907 del 5 de octubre de 1982)

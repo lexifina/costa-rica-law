@@ -1,3 +1,9 @@
-Artículo 116.—En tratándose de productos contemplados en el capítulo 24 de la Nomenclatura Arancelaria Centroamericana (NAUCA) y su respectiva correlación con la Norma Arancelaria de Bruselas (NAB), salvo la madera rolliza cuya exportación queda prohibida, el exportador, corriendo por su cuenta los gastos, deberá publicar un edicto por tres días seguidos en "La Gaceta n con la información del artículo anterior y por una sola vez en el periódico de mayor circulación del país.
-Transcurridos diez días después de la última publicación y si no hay oposiciones se concederá el permiso, previa la inspección y el pago de los impuestos correspondientes.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 10985 del 7 de diciembre de 1979)
+Artículo 116.—Toda solicitud de exportación deberá presentarse llenando el formulario que a ese efecto suministrará la Dirección General Forestal, en el que se cancelará un timbre fiscal de un colón (¢ 1,00), y el cual contendrá como mínimo la siguiente información:
+a) Nombre, calidades, número de cédula y dirección exacta del exportador
+b) Nombre, calidades, número de cédula y dirección exacta del importador
+c) Especiéis) forestal(es), descripción y uso.
+d) Volumen en metros cúbicos de cada una de las especies.
+e) Peso en kilogramos.
+f) Valor FOB o CIF del producto.
+g) Dimensiones del producto a exportar.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 13907 del 5 de octubre de 1982)
