@@ -1,0 +1,1 @@
+Artículo 23.—Una vez recibida la solicitud de inscripción junto con toda la documentación pertinente, se extenderá al interesado el recibo correspondiente con los requisitos de identificación para su respectiva localización, fecha y hora de presentación. El número de recibo corresponderá al número de asiento del diario.

@@ -1,0 +1,2 @@
+Artículo 4°—Corresponderá a las Capitanías de Puerto, entre otras funciones señaladas por ley, la de administrar y llevar el Registro Nacional de Buques menores, en el que figurarán los buques nacionales menores de 50 toneladas de registro bruto, en sus secciones correspondientes, para los matriculados en puertos de su zona; los libros de índice y los de anulación de inscripciones, de acuerdo a lo que a continuación establece el presente Reglamento.
+Habrá un registro nacional de buques menores en cada Capitanía de Puerto que exista en la Nación.

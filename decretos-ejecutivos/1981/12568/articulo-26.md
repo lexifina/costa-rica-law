@@ -1,0 +1,2 @@
+Artículo 26.—El Jefe de Registro revisará la documentación recibida. Si la encuentra conforme procederá a ordenar, sea registrada en el tomo correspondiente, labor que llevará a cabo el registrador.
+Si en ella se encontraren defectos de fondo o de forma que impidan la inscripción solicitada, se rechazará esta ad portas y se comunicará tal situación al interesado mediante nota que le será enviada por correo certificado, para que los subsane a la mayor brevedad por un plazo que no podrá exceder de quince días después de recibida la comunicación.

@@ -1,0 +1,2 @@
+Artículo 25.—El libro diario se llevará con cuidado y con perfecta claridad. En él se consignará en el instante mismo de presentación, la solicitud de inscripción, en numeración corrida y sin dejar espacio entre ellos, la hora y fecha.
+Acto seguido, se extenderá al asiento en ese libro de modo resumido así: el número que por orden corresponde al asiento y que ha sido marcado al margen de la solicitud, la hora y fecha de presentación, transcribiendo resumidamente la clase de pretensión y el nombre.

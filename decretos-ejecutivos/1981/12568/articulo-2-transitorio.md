@@ -1,0 +1,1 @@
+Transitorio II.—Mientras no se cuente en el país con el personal calificado y los medios adecuados para el otorgamiento de los certificados para buques mayores de cincuenta toneladas, en la medida de lo posible se seguirán aceptando los otorgados por las sociedades clasificadoras internacionales, reconocidos por la Dirección General de Transporte por Agua.

@@ -1,0 +1,1 @@
+Artículo 5°—Las Capitanías de Puerto darán noticia inmediata a la Dirección General, de las inscripciones en el Registro, de las certificaciones de matrícula que expidan y de las anulaciones de Registro que se produzcan, para que sean anotadas en un tomo general que al efecto llevará la Dirección.

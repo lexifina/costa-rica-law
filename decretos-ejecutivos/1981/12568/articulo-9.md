@@ -1,0 +1,1 @@
+Artículo 9°—Por su medio de propulsión los buques se denominarán: vapores, si son movidos por máquinas a vapor; motonaves si su propulsión se acciona con motores; y veleros los que utilicen el viento como medio de propulsión, aunque tengan el motor como medio auxiliar para las maniobras.

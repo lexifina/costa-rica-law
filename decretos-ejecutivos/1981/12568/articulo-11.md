@@ -1,0 +1,1 @@
+Artículo 11.—Se considerarán buques, no sólo las embarcaciones destinadas a la navegación de altura, gran cabotaje y cabotaje, sino también los buques pesqueros, remolcadores, dragas, gánguilas, diques flotantes, yates de recreo y embarcaciones menores, y cualquier otro aparato flotante destinado al servicio de la industria o comercio marítimo o auxiliar de él.

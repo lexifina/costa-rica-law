@@ -1,0 +1,2 @@
+Artículo 3°—Corresponderá exclusivamente a la Dirección General de Transporte por Agua, el llevar el Registro Marítimo Administrativo y el Registro Nacional de Buques, para aquellas embarcaciones mayores de 50 toneladas de registro buto.
+El abanderamiento u otorgamiento de matrícula, será otorgado previo dictamen técnico de la Dirección General de Transporte por Agua, por el Ministerio de Hacienda (según lo dispone la ley número 12 de 22 de octubre de 1941).

@@ -1,0 +1,1 @@
+Artículo 29.—Para las inscripciones que se practiquen en el Registro Naval Costarricense, existirán todos los tomos que sean necesarios. Los mismos se confeccionarán acorde a las necesidades, y cada hoja deberá estar debidamente foliada y numerada. Todas las inscripciones y anotaciones, para ser válidas, deberán estar debidamente firmadas por el Jefe de Registro.

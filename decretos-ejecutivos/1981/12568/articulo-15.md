@@ -1,0 +1,1 @@
+Artículo 15.—El cambio de nombre de la nave sólo será autorizado cuando haya cambiado de propietario, haya sufrido alteraciones sustanciales en su estructura y máquinas o cuando haya igualado o similitud de nombre con otra embarcación inscrita anteriormente en el mismo o en otro registro.

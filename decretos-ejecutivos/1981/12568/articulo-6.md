@@ -1,0 +1,1 @@
+Artículo 6°—Las Capitanías de Puerto y la Dirección General, tendrán plenas facultades para resolver todo lo imprevisto por las leyes correspondientes y el presente Reglamento, aplicando para ello, la legislación aceptada por Costa Rica en la firma de convenios internacionales sobre la materia y en su defecto leyes conexas, la analogía y los usos y costumbres.
