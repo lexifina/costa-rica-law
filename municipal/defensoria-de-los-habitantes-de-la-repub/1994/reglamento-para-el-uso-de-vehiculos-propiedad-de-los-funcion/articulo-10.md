@@ -1,0 +1,1 @@
+Artículo 10.—Podrá darse un adelanto por concepto de gastos de kilometraje cuando los funcionarios autorizados para usar el vehículo de su propiedad en funciones de la Defensoría , tengan que efectuar giras prolongadas que ameriten tal adelanto. Para este tipo de adelanto deberá confeccionarse una fórmula específica para este fin.

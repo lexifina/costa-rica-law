@@ -1,0 +1,1 @@
+Artículo 11.—El propietario debe presentar a la Unidad de Proveeduría y Servicios Generales la boleta de autorización de gira, a más tardar cinco días después de finalizada la gira, para la respectiva revisión. El incumplimiento de esta disposición hará que el propietario pierda el derecho al pago del kilometraje por esa gira.

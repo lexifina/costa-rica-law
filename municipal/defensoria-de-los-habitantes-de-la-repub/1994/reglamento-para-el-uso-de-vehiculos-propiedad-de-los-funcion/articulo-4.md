@@ -1,0 +1,2 @@
+Artículo 4°—Quienes califiquen para la inclusión en este sistema, deberán suscribir un contrato con la institución, en el cual se indique que se aplicará en forma integral este Reglamento y sus procedimientos.
+Las sumas que perciban por este concepto los funcionarios no constituyen bajo ninguna circunstancia, salario en especies, por lo que no pueden considerarse en cualquier cálculo de sus derechos laborales.

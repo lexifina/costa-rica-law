@@ -1,0 +1,12 @@
+Artículo 6°—Todos los propietarios que se acojan al presente Reglamento deberán utilizar, sin excepción, un formulario especialmente diseñado para la liquidación de gastos de kilometraje. Dicho formulario deberá contener como mínimo el siguiente detalle:
+- Número de documento.
+- Nombre del funcionario.
+- Cantidad de kilómetros recorridos.
+- Día de salida y regreso.
+- Lugares visitados.
+- Actividad llevada a cabo.
+- Nombre de la persona, empresa o Institución que visitó.
+- Nombre y firma del jefe de área o dirección que autorizó la gira.
+- Reporte del kilometraje de salida y regreso de cada gira.
+- Firma y número de cédula del propietario.
+- Nombre y firma del funcionario que revisa el kilometraje recorrido.

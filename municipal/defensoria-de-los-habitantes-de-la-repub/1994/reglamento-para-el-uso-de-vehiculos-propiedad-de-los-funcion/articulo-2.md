@@ -1,0 +1,1 @@
+Artículo 2°—Este Reglamento regula la forma en que la Defensoría retribuirá a los propietarios por el recorrido en sus propios vehículos que realicen para el desempeño de los trabajos oficiales de la Institución.
