@@ -1,0 +1,1 @@
+Artículo 2°-Las instituciones públicas deberán difundir ampliamente los objetivos de esta conmemoración. Asimismo deberán facilitar, promover y apoyar las acciones orientadas a la erradicación y denuncias de la violencia contra las mujeres.
