@@ -1,0 +1,1 @@
+Artículo 12— Tanto en los puestos estacionarios como en los ambulantes, el horario del funcionamiento será de las seis a las dieciocho horas. De las dieciocho horas en adelante, será con licencia especial.

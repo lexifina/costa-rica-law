@@ -1,0 +1,1 @@
+Artículo 16.—Únicamente se permitirá ejercer la actividad en los puestos, de los siguientes productos: Frutas nacionales, hortalizas y verduras, golosinas, artesanía nacional, juguetes nacionales, periódicos y revistas, lotería y chances, helados, flores, alimentos rápidos. No se permitirá la actividad de frutas y tarjetas importadas.

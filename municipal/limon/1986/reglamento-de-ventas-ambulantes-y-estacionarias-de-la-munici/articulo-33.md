@@ -1,0 +1,1 @@
+Artículo 33.—El no pago del impuesto de patentes en los términos fijados en la ley y este Reglamento, generará multas del 2% por cada mes o fracción, de atraso sin que pueda exceder del 24% del monto adecuado.

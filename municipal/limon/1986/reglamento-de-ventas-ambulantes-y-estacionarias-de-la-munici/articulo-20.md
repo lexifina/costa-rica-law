@@ -1,0 +1,1 @@
+Artículo 20.—La ubicación de los puestos estacionarios será de un máximo de ocho por manzana, sea dos puestos por cuadra, siempre y cuando las condiciones lo permitan a juicio de la municipalidad y el presente Reglamento.

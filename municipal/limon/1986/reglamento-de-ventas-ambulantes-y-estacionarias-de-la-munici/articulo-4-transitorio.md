@@ -1,0 +1,2 @@
+Transitorio 4.—Mientras la Ley de Patentes Municipales del cantón Central de Limón no disponga lo contrario, se fija el pago de patente en la suma de doscientos colones trimestrales a los vendedores estacionarios y de cincuenta colones trimestrales a los vendedores ambulantes, ambos por adelantado.
+El presente Reglamento rige a partir de su publicación en "La Gaceta", dejando sin efecto cualquier otro reglamento o disposición anterior.
