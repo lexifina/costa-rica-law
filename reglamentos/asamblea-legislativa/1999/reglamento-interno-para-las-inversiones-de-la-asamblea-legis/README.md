@@ -14,3 +14,4 @@ Reglamento Interno para las Inversiones de la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-24 | la propia norma |
+| 2 | 1999-09-07 | Reglamento 68 (1999-09-07) |
