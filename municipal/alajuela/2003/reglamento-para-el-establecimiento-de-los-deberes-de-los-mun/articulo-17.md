@@ -1,0 +1,2 @@
+Artículo 17.—Derogatoria. Se deroga el Reglamento para el establecimiento y cobro de tarifas por el incumplimiento de los deberes de los munícipes de la Municipalidad de Alajuela, aprobado en el artículo 4, capítulo III de la sesión extraordinaria 6-2001 celebrada el 12 de marzo del 2001 y publicado en La Gaceta Nº 79 del 25 de abril del 2001.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
