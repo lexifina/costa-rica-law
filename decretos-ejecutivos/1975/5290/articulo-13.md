@@ -1,0 +1,1 @@
+Artículo 13°-Cada unidad de trabajo tendrá un coordinador de actividades. Podrán inscribirse en las unidades de trabajo todos aquellos jóvenes que posean alguna calificación para la actividad que realizan.

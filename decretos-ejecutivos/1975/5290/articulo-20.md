@@ -1,0 +1,3 @@
+Artículo 20°-Los grupos juveniles independientes que funcionen en la comunidad podrán utilizar las instalaciones y servicios de las Casas de la Juventud para el desarrollo de sus respectivos programas. Podrán además participar en las actividades señaladas en el plan anual de trabajo de la Casa y en los programas generales definidos por el Ministerio de Cultura, Juventud y Deportes y el (*)Consejo Nacional de Política Pública de la Persona Joven.
+(*)(Modificada su denominación por el artículo 34 de la ley General de la Persona Joven, N° 8261 del 2 de mayo de 2002)
+Dado en la Casa Presidencial.-San José, a los cinco días del mes de setiembre de mil novecientos setenta y cinco.

@@ -1,0 +1,1 @@
+Artículo 2°-La Administración Financiera de las Casas de la Juventud estará a cargo del Ministerio de Cultura, Juventud y Deportes y del Movimiento Nacional de Juventudes, y con estricto apego a las disposiciones legales y reglamentarias vigentes al respecto. La ejecución de los programas dependerá del Movimiento Nacional de Juventudes.

@@ -1,0 +1,1 @@
+Artículo 16°-La sustitución de los miembros de la Junta que renuncien o dejen vacantes sus puestos, será efectuada teniendo en consideración el sector institucional o juvenil que el miembro saliente representaba.
