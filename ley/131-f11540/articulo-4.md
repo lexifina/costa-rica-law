@@ -1,0 +1,1 @@
+ARTÍCULO 4.-Las Municipalidades nombrar n antes del 15 de agosto una comisión que forme el padrón del centro de la ciudad, y otra en que, a lo menos, se halle un Munícipe y el pedáneo respectivo para el de cada barrio.
