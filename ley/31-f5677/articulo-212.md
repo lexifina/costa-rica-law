@@ -1,0 +1,1 @@
+Artículo 212. Ninguna inscripción se hará en el registro de la propiedad, sin que se acredite previamente el pago de los impuestos establecidos o que se establecieren por las leyes, si los devengar, en el acto o contrato que se pretenda inscribir:

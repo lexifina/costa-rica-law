@@ -1,0 +1,1 @@
+Artículo 295. Al pie‚ de todo asiento, certificación o nota que haya causado derecho, estampar el Registrador el importe de los que hubiere cobrado, citando el número del arancel, con arreglo al cual los haya exigido.

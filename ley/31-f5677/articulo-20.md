@@ -1,0 +1,1 @@
+Artículo 20° El cartulario que cometiere alguna omisión que impida inscribir el acto contrato, conforme lo dispuesto en el artículo anterior, la subsanar extendiendo, su costa, una nueva escritura, si fuere posible, ‚ indemnizado, en todo caso, los interesados de los perjuicios que les ocasiones su falta.

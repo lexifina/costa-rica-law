@@ -1,0 +1,1 @@
+Artículo 246. El Registrador no expedir las certificaciones de que tratan los anteriores artículos, sino a instancia verbal del que tenga interés en averiguar el estado del inmueble o derecho real de que se trate, o en virtud de mandamiento judicial.

@@ -1,0 +1,1 @@
+Artículo 167. El Juez que haya aprobado el expediente de que trata el artículo 164, cuidar, bajo su responsabilidad, de que se hagan las inscripciones y asientos prevenidos en el n° 6° del mismo artículo 164.

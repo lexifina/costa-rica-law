@@ -1,0 +1,1 @@
+Artículo 17. Cuando el Registrador notare falta en las formas extrínsecas de las escrituras, de capacidad en los otorgantes, lo manifestar los que pretendan la inscripción, y sino la subsanaren satisfacción suya, les devolver las mismas escrituras para que recurran, si quieren, los Tribunales, sin perjuicio de hacer la anotación preventiva que ordena el artículo 40 en su n° 8°.

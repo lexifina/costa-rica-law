@@ -1,0 +1,1 @@
+Artículo 53. El que, pudiendo pedir la anotación preventiva en un derecho, dejare de hacerlo dentro del término señalado al efecto, no podrá después inscribirlo su favor, en perjuicio del tercero que haya inscrito el mismo derecho, adquiriéndolo de persona que aparezca en el registro con facultad de trasmitirlo.

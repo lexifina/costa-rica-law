@@ -1,0 +1,3 @@
+Artículo105. Los diez días que, según el artículo 103, deben trascurrir para reclamar la deuda hipotecaria del tercer poseedor de la cosa hipotecada, empezarán correr desde el siguiente al del vencimiento de la obligación.
+Durante dicho término, deber el acreedor pedir judicial extrajudicialmente al deudor, el cumplimiento de su obligación, y si esto no tuviere efecto, cualquiera que sea la causa, se podrá repetir contra el tercer poseedor.
+Los diez días que se conceden al tercer poseedor para pagar la deuda desamparar la cosa hipotecada, empezar n a correr desde el siguiente en que se haga el requerimiento.

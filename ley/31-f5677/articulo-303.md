@@ -1,0 +1,1 @@
+Artículo 303. Si no hubiere avenencia entre los interesados, sobre la determinación del importe de la obligación que haya de asegurarse, o la suficiencia de los bienes ofrecidos en hipoteca, se decidirán uno y otro punto por el Juez, en la forma prescrita en el artículo 137.

@@ -1,0 +1,2 @@
+Artículo 159. Los bienes propios del marido hipotecados a la seguridad de la dote, conforme a lo dispuesto en el artículo 141, podrán enajenarse, gravarse, o hipotecarse por el mismo marido sin los requisitos expresados en el párrafo 1§ del artículo anterior, siempre que esto se haga dejado subsistente la hipoteca legal constituida sobre ellos, con la prelación correspondiente
+a su fecha. Cuando dicha hipoteca haya de extinguirse, reducirse, subrogarse, o posponerse, ser indispensable el consentimiento de la mujer, y se aplicar lo dispuesto en el artículo precedente.

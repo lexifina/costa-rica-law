@@ -1,0 +1,2 @@
+Artículo 276. Siempre que, en el caso del artículo anterior, indemnice el Registrador al perjudicado, podrá repetir la cantidad que por tal concepto pagare, del que, por su falta, haya quedado libre de la obligación inscrita.
+Cuando el perjudicado dirigiere su acción contra el favorecido por dicha falta, no podrá repetir contra el Registrado, en el caso de que no llegue a obtener toda la indemnización reclamada, o alguna parte de ella.

@@ -1,0 +1,1 @@
+Artículo 208. Cuando el Registrador extienda en el libro correspondiente la inscripción, anotación preventiva o cancelación a que se refiera el asiento de presentación, lo expresar así al margen de dicho asiento, indicando el tomo y el folio en que aquella se hallare, así como el número que tuviere la finca en el registro, y el que se haya dada a la misma inscripción solicitada.

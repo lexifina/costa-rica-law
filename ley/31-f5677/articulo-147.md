@@ -1,0 +1,1 @@
+Artículo 147. La cantidad que deba asegurarse por razón de dote estimada, no exceder en ningún caso del importe de la estimación y, si se redujere el de la misma dote, por exceder de la cuantía que el derecho permite, se reducir igualmente la hipoteca en la misma proporción, previa la cancelación parcial correspondiente.

@@ -1,0 +1,1 @@
+Artículo 176. Si la madre se mezclare, o continuare mezclándose en la administración de la tutela o curaduría, antes de constituir la hipoteca prevenida en el artículo anterior, quedar obligado su marido a prestar la que se establece en el artículo 179, respondiendo con ella, de las resultas de la administración ilegal de su mujer.

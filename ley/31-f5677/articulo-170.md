@@ -1,0 +1,2 @@
+Artículo 170. La madre asegurar con las mismas formalidades que el padre, el derecho de sus hijos a los bienes reservables, y si no tuviere bienes inmuebles propios, o los que tenga no fueren suficientes para constituir hipoteca por la cantidad necesaria, hipotecar su segundo marido los que poseyere, hasta cubrir el importe total de los que deban asegurarse.
+Si entre ambos cónyuges no pudieren constituir hipoteca bastante, quedar solidariamente obligado cada uno, a hipotecar los primeros inmuebles o derechos reales que adquiera.

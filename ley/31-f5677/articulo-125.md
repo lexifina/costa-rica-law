@@ -1,0 +1,1 @@
+Artículo 125. El crédito hipotecario puede enajenarse cederse un tercero, en todo en parte, siempre que se haga en escritura públicas de que se dé‚ conocimiento al deudor, y que se inscriba en el registro. El deudor no quedar obligado por dicho contrato más que lo estuviere por el suyo. El cesionario se subrogar en todos los derechos del cedente.

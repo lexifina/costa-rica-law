@@ -1,0 +1,1 @@
+Artículo 7° Cada una de las fincas que se inscriban por primera vez en los nuevos registros, se señalar con número diferente y correlativo. Las inscripciones correspondientes cada finca, se señalarán con otra numeración correlativa y especial.

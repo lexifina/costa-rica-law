@@ -1,0 +1,1 @@
+Artículo 225. Se entender que se comete error de concepto, cuando, al expresar en la inscripción alguno de los contenidos en el título, se altere o varié su sentido, sin que esta falta produzca necesariamente nulidad, conforme a lo prevenido en el artículo 28.

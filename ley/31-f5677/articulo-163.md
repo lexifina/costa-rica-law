@@ -1,0 +1,1 @@
+Artículo 163. Las disposiciones de esta ley sobre la hipoteca dotal, no se alteran ni modifican las contenidas en los artículos 979, 981 y 1054 del Código de Comercio; pero lo prevenido en el artículo 1057 del mismo, no tendrá lugar, cuando la dote estuviere asegurada con hipoteca anterior a los créditos que se reclamen.

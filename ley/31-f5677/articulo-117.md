@@ -1,0 +1,1 @@
+Artículo 117°. La hipoteca constituida por un tercero sin poder bastante, podrá ratificarse por el dueño de los bienes hipotecados; pero no surtir efecto sin¢ desde la fecha en que, por una nueva inscripción, se subsane la falta cometida.

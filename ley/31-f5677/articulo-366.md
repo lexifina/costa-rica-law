@@ -1,0 +1,1 @@
+Artículo 366. En toda inscripción, anotación preventiva o cancelación que se haga en los nuevos libros, de finca o derecho inscrito, bajo cualquier concepto, en los libros antiguos se citar el número, folio y nombre del libro en que se halle dicho asiento.

@@ -1,0 +1,1 @@
+Artículo 365. Al margen de toda inscripción extendida en los libros antiguos, que, después de cerrados, se cancelen en los libros nuevos, se pondrá una nota expresando dicha cancelación y el libro y folio en que se halle.

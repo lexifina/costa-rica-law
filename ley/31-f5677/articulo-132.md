@@ -1,0 +1,2 @@
+Artículo 132. Las personas cuyo favor establece esta ley hipoteca legal, podrán exigir que se constituya la especial sobre cualesquiera bienes inmuebles derechos reales de que pueda disponer el obligado prestarla, siempre que, con arreglo esta ley, sean hipotecables.
+También podrán exigir dicha hipoteca en cualquier tiempo, aunque haya cesado la causa que le diere fundamento como el matrimonio, la tutela, la patria potestad la administración, siempre que esta‚ pendiente el cumplimiento de la obligación que se debiera haber asegurado.

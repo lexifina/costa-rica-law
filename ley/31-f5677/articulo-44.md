@@ -1,0 +1,1 @@
+Artículo 44. No ser necesario que los títulos en cuya virtud se pida la anotación preventiva de créditos refaccionarios, determinen fijamente la cantidad de dinero ¢ efectos en que consistan los mimos créditos y bastar que contengan los datos suficientes para liquidarlos al terminar las obras contratadas.

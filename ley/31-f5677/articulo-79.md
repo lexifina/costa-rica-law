@@ -1,0 +1,1 @@
+Artículo 79. El Registrador calificar también bajo su responsabilidad, la competencia de los Jueces que ordenen las cancelaciones en los casos en que no firmare el despacho, el mismo que hubiere decretado la inscripción anotación preventiva. Si dudare de la competencia del Juez, dar cuenta una de las Salas de la Corte Suprema de Justicia, la cual decidir lo que estime procedente.

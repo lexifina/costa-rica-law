@@ -1,0 +1,1 @@
+Artículo 215. El Registrador conservar n también en legajos, por orden de fechas y numerados, los títulos de otra especie, en cuya virtud se cancele total o parcialmente alguna hipoteca, pero poniendo previamente en ellos, la nota a que se refiere el artículo 211.

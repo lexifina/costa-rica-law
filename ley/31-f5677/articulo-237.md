@@ -1,0 +1,2 @@
+Artículo 237. El Registrador consultar directamente con el Supremo Poder Ejecutivo, cualquiera duda que se ofrezca, sobre la inteligencia y ejecución de esta ley o de los Reglamentos que se dicten para aplicarla.
+El Poder Ejecutivo decidir las dudas que se le consulten, cuando se hallen dentro de la órbita de sus atribuciones ordinarias; en los demás casos, así el Registrador como los demás Tribunales y Juzgados, resolver n, con arreglo a las leyes y principios generales de justicia, consultando para los casos futuros, con las Cámaras Legislativas.

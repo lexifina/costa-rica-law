@@ -1,0 +1,1 @@
+Artículos 19. Las escrituras públicas de actos contratos que deban inscribirse, expresarán, por lo menos, todas las circunstancias que, bajo pena de nulidad, debe contener la inscripción y sean relativas las personas de los otorgantes, las fincas los derechos inscritos.

@@ -1,0 +1,2 @@
+Artículo 292. Cuando fueren varios los que tuvieren la obligación expresada en el artículo anterior, el Registrador podrá exigir el pago de cualquiera de ellos, y el que lo verifique, tendrá derecho a reclamar de los demás, la parte que por los mismos haya satisfecho.
+En todo caso, se podrá proceder a la exacción de dichos derechos por la vía ejecutiva pero nunca se detendrá ni negar la inscripción por falta de su pago.

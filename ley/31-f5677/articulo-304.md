@@ -1,0 +1,1 @@
+Artículo 304. Transcurrido el año prescrito en el artículo 301, no podrán exigir la constitución de hipotecas especiales en sustitución de las legales, sino los que tengan derecho a ello, con arreglo a esta ley y en la forma que la misma prescribe, sin perjuicio de lo establecido en el artículo 308.

@@ -1,0 +1,2 @@
+Artículo 144. Cuando la mujer tuviere inscritos como de su propiedad, los bienes inmuebles que hayan de constituir dote inestimada, los parafernales que entregue su marido, se hará constar en el registro, la cualidad respectiva de unos u otros bienes, poniendo una nota que lo exprese así, al margen de la misma inscripción de propiedad.
+Si dichos bienes no estuvieren inscritos favor de la mujer, se inscribir n en la forma ordinaria, expresando en la inscripción, su cualidad de dotales parafernales.

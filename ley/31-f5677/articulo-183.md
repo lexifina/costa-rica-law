@@ -1,0 +1,1 @@
+Artículo 183. Si la hipoteca constituida por el tutor o curador, llegare a ser insuficiente, el juez exigir, a su prudente arbitrio, una ampliación de la hipoteca, o adoptar las providencias oportunas, para asegurar los intereses del menor o incapacitado.

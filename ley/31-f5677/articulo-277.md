@@ -1,0 +1,1 @@
+Artículo 277. La acción civil que, con arreglo al artículo 274, ejercite el perjudicado por las faltas del Registrador, no impedir ni detendrá el uso de la penal que, en su caso proceda, conforme a las leyes.

@@ -1,0 +1,1 @@
+Artículo 127. Los derechos créditos asegurados con hipoteca legal, no podrán cederse, sino cuando haya llegado el caso de exigir su importe y sean legalmente capaces para enajenarlos, las personas que los tengan su valor.

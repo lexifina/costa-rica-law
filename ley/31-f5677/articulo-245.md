@@ -1,0 +1,1 @@
+Artículo 245. Cuando las certificaciones de que trata el artículo 242, no fueren conformes con los asientos de su referencia, se estar a lo que de estos resulte, salva la acción del perjudicado por ellas, para exigir la indemnización correspondiente del Registrador que haya cometido la falta.
