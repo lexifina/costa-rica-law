@@ -1,0 +1,1 @@
+Artículo 11.—Para conceder los créditos de esta sección el Banco deberá estimar los recursos con que cuenta cada propietario para hacer frente al compromiso, y podrá exigir en todo tiempo garantías contra riesgos por incendio.

@@ -1,0 +1,1 @@
+Artículo 13.—Los créditos de esta sección redituarán un ocho por ciento de interés anual y tendrán una amortización acumulativa que empezara por el cuatro por ciento al año sobre el total definitivo de la deuda e irá creciendo en la misma proporción en que disminuya la cuota de intereses.

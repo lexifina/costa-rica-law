@@ -1,0 +1,1 @@
+Artículo 2°—Para formar el capital de esta sección el Erario entregará al Banco Internacional el sobrante de los Bonos Nacionales Oro de 1923 en cantidad de setecientos setenta mil dólares, bonos que expresamente se habilitan para este objeto.
