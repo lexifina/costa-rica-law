@@ -1,6 +1,8 @@
 Artículo 2º—Por derecho de ingreso al Parque Marino del Pacífico pagarán las siguientes tarifas:
 a. Por día para no residentes:
-$ 3 (tres dólares) a los visitantes mayores de 12 años.
-$ 1 (un dólar) a niños de 4 a 11 años.
+$ 4 (cuatro dólares) a los visitantes mayores de 12 años.
+$ 2 (dos dólares) a niños de 4 a 11 años.
 b. Por día para nacionales y residentes:
-¢ 800 (ochocientos colones) para visitantes de 12 años en adelante. ¢ 400 (cuatrocientos colones) para infantes de 4 a 11 años, estudiantes de 12 a 28 años con carné, un acompañante de una persona con discapacidad, y los estudiantes de primaria y secundaria que visiten el Parque Marino en grupos organizados.
+¢ 1.000 (un mil colones) para visitantes de 12 años en adelante.
+¢ 600 (seiscientos colones) para infantes de 4 a 11 años. ¢ 500 (quinientos colones) estudiantes de 12 a 28 años con carné, un acompañante de una persona con discapacidad, y los estudiantes de primaria y secundaria que visiten el Parque Marino en grupos organizados
+(Así reformado mediante el artículo 1° del Decreto Ejecutivo No. 32273, del 30 de noviembre del 2004.)
