@@ -1,0 +1,1 @@
+Artículo 9°-Las ausencias del cajero deben ser suplidas por un funcionario adiestrado para ese fin, el cual deberá rendir garantía fiduciaria, a este funcionario se le debe equiparar el salario base, mientras ocupa temporalmente este puesto.

@@ -1,0 +1,4 @@
+Artículo 8°-El encargado de la caja recaudadora, deberá contar con una póliza de fidelidad, dicha póliza debe ser otorgada por el Instituto Nacional de Seguros por la suma de ¢500.000,00. Mientras se tramita ésta ante el INS, deberá rendir una garantía fiduciaria.
+Cuando el monto de la recaudación supere el 50% de la póliza de fidelidad, el cajero (a) debe entregar al tesorero el efectivo recaudado mediante el formulario "remesas parciales a tesorería".
+El tesorero y el cajero municipales, son solidariamente responsables por el buen funcionamiento de la caja recaudadora.
+Al cubículo donde se ubica la caja recaudadora, no debe ingresar persona alguna, con excepción de la Auditoría y el Tesorero, los cuales pueden realizar arqueos en cualquier momento que lo consideren necesario, siempre y cuando se encuentre presente el cajero.

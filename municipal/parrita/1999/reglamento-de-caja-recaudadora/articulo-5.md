@@ -1,0 +1,1 @@
+Artículo 5°-La liquidación de caja se hará en formulario diseñado para tal fin, el cual contendrá espacio necesario para registrar; monto con que inicia a operar la caja cada día, monto de ingresos correspondientes a cada código presupuestario, las remesas entregadas a tesorería y saldo al final del día.

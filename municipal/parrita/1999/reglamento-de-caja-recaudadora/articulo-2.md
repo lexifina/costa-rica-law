@@ -1,0 +1,1 @@
+Artículo 2°-El monto de dinero con que operará la caja recaudadora, será de cincuenta mil colones (¢50.000,00), en moneda nacional; el monto será exclusivamente para dar vueltos a los contribuyentes. Dicho monto podrá ser aumentado por acuerdo del Concejo Municipal, según las necesidades que se presenten durante la marcha.

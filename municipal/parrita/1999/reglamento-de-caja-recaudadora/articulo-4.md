@@ -1,0 +1,2 @@
+Artículo 4°-La caja sella y firma el original y la copia, entregando al contribuyente el original y deja en su poder la copia para el cierre de caja al finalizar el día. Anota los datos en el formulario, "comprobantes recibidos de caja".
+Al finalizar el día, el cajero realiza la liquidación o cierre de caja. El tesorero revisa la liquidación y la firma, después de comprobar su igualdad con la contabilidad, quien a su vez deberá firmar la liquidación en señal de que dicha comprobación se hizo.
