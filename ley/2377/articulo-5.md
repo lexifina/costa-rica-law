@@ -1,3 +1,2 @@
-Artículo 5º.- Para atender el pago de estas pensiones se impone un
-impuesto de cinco céntimos a cada paquete de cigarrillos que ingrese al
-país.
+Artículo 5º.- DEROGADO
+(Derogado por el artículo 2º de la Ley Nº 3145 de 6 de agosto de 1963).
