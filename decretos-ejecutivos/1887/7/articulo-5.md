@@ -1,0 +1,2 @@
+Art. 5°-La escritura hipotecaria que otorgue el Tesorero Cantonal sera aceptada y cancelada por los Presidentes de las mismas Juntas. Puede serlo también por el Gobernador de la provincia ó por el Jefe Político respectivo, cuando citados con tal objeto, no concurrieren todos los Presidentes ó al menos la mitad más uno.
+La calificación de la garantía corresponde á los mismos Presidentes, quienes pueden delegar esta facultad en el Gobernador ó Jefe Político.
