@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión contará con una Secretaría, a la que corresponderá llevar la agenda y el registro de las actuaciones que se realicen. Asimismo, la Comisión contará con los recursos tales como: transporte, hospedaje, alimentación, material didáctico y equipo audiovisual necesarios, para el cumplimiento de sus objetivos,

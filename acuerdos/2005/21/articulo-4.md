@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión se reunirá ordinariamente cuando sea convocada por su Presidente y su sede estará en la Asesoría Jurídica, en las oficinas centrales del Ministerio de Seguridad Pública, habrá quórum con la presencia de dos de sus miembros.
