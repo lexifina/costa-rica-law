@@ -1,0 +1,1 @@
+Artículo 19.—En los casos de emergencia o desastres, los Policías Municipales de Heredia (PMH), deberán presentarse en el menor tiempo posible a su respectiva base y prestarán sus servicios, aunque estuvieran libres.

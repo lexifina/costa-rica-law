@@ -1,0 +1,2 @@
+Artículo 35.—Los Policías Municipales podrán tener derecho a un incremento sobre el salario base de un 18% por motivos de RIESGOS POLICIALES, en virtud de las funciones policiales que impliquen riesgo a su integridad física.
+El otorgamiento de este incentivo salarial deberá fundamentarse en cada caso concreto, definiendo las razones por las cuales las funciones del empleado correspondiente encuadran dentro del supuesto de peligrosidad definido, y su reconocimiento, quedará sujeto a la existencia de contenido presupuestario.
