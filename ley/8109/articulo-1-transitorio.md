@@ -1,0 +1,1 @@
+Transitorio I.—Para las elecciones al Congreso Nacional Cafetalero que se realizarán en junio de 2001, el ICAFE deberá confeccionar el padrón de productores de café por región, a más tardar el 30 de mayo de 2001, con base en la nómina de productores de café de la cosecha cafetalera 1999-2000.
