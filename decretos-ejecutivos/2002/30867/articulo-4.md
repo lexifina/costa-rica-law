@@ -1,0 +1,1 @@
+Artículo 4º—No tendrán derecho a recibir las asignaciones previstas en este decreto los beneficiarios que hayan suministrado información falsa o que incumplan en cualquier forma con los términos de este decreto o de los contratos respectivos, sin perjuicio de las demás responsabilidades que están aplicables.

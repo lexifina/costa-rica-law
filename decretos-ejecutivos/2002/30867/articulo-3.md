@@ -1,0 +1,1 @@
+Artículo 3º—De previo a recibir la primera asignación, cada beneficiario deberá suscribir un contrato con la Corporación Arrocera, en el cual se establecerán las obligaciones del beneficiario y los demás aspectos necesarios para recibir las asignaciones no reembolsables, todo dentro de los términos previstos en este decreto.
