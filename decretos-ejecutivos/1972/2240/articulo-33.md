@@ -1,0 +1,1 @@
+Artículo 33.—Responsabilidad del daño con ocasión del cierre. Ni los ejecutores ni el Estado incurren en responsabilidad por los perjuicios económicos que se ocasionen al contribuyente moroso como resultado del cierre de un establecimiento.

@@ -1,0 +1,1 @@
+Artículo 29.—Cierre de establecimientos que afecte habitaciones. Si la orden de clausura afecta a un local que, además de fines comerciales e industriales. sirve de habitación a una o más personas, el cierre se efectuará de tal manera que suspenda el funcionamiento de la fábrica, sin que impida la entrada o salida de la habitación.

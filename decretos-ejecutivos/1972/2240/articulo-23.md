@@ -1,0 +1,2 @@
+Artículo 23.—Mecánica de aplicación del impuesto. Los fabricantes inscritos como contribuyentes que transfieran mercancías gravadas, están obligados obrar el impuesto selectivo de consumo que corresponda, independientemente que sus compradores estén o no inscritos a su vez como contribuyentes de estos impuestos.
+Las aduanas también están obligadas a cobrar el impuesto selectivo de sumo que corresponda, independientemente de que los importadores estén o inscritos como contribuyentes de estos impuestos.

@@ -1,0 +1,1 @@
+Artículo 24.—Aplicación del Código Tributario. Las disposiciones del ligo de Normas y Procedimientos Tributarios se deben aplicar en los casos y materias que no hayan sido expresamente previstos en la ley y en este Reglamento.

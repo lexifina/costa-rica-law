@@ -1,0 +1,1 @@
+Artículo 28.—Suspensión de la ejecución de cierre. En el mismo acto de efectuar el cierre del establecimiento podrá suspenderse la ejecución, si el interesado o cualquiera que lo represente en ese momento, presenta los recibos de! impuesto adeudado, debidamente cancelados. En este caso, se hará constar en el acta respectiva el motivo de la no ejecución.

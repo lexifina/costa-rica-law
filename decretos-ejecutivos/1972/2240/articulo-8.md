@@ -1,0 +1,3 @@
+CAPITULO III
+De las Exenciones
+Artículo 8°—Exención por importaciones. Para beneficiarse con la exención que establece el artículo 7°, incisos a) y b) de la ley, es requisito indispensable í tales personas o entidades gocen de franquicia aduanera, de acuerdo convenios internacionales, leyes especiales o la propia legislación aduanera. En los incisos. dichas personas o entidades deben efectuar un trámite similar y simultáneo al que tienen que realizar con respecto de los derechos arancelarios, a de que la autoridad correspondiente resuelva si procede o no la exención total o parcial de los impuestos selectivos de consumo.

@@ -1,0 +1,1 @@
+Artículo 32.—Orden de apertura del establecimiento. La orden de apertura del establecimiento, procederá únicamente cuando haya sido cancelada la deuda tributaria y deberá constar en resolución dictada por la Dirección, de la que se enviará copia a la Guardia de Asistencia Rural o a la autoridad competente para que procedan a efectuar la apertura.

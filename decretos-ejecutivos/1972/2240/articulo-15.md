@@ -1,0 +1,5 @@
+CAPITULO V
+De la Base del Impuesto
+Artículo 15.—Importaciones o internaciones. La base sobre la cual se calcula el impuesto en el caso de importaciones o internaciones de mercancías gravadas con impuestos selectivos de consumo, se determina sumando al valor CIF de tales mercancías, los derechos de importación y el Impuesto de Estabilización Económica efectivamente pagados. Cuando sobre tales importaciones se tenga que liquidar otros impuestos internos, los mismos no formarán parte de la base imponible del impuesto selectivo de consumo.
+Una vez liquidado el impuesto selectivo de consumo, no se permitir deducción por concepto de averías, amortización o depreciación por el uso o gaste de las mercancías ni ninguna otra rebaja semejante, que hubiera sido aplicada a los impuestos de importación en cumplimiento de disposiciones del Arancel de Aduanas o de usos o prácticas aduaneras en vigor.
+La Dirección queda facultada para comprobar, cuando lo estime conveniente, la veracidad del valor CIF de las mercancías gravadas que se importen o internen en el país.

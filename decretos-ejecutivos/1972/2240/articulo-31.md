@@ -1,0 +1,1 @@
+Artículo 31.—Horas de ejecución de la orden de cierre. Las clausuras podrán ejecutarse a cualquier hora del día, como mejor convenga a los intereses fiscales; pero de preferencia se efectuarán durante las horas en que hubiere el menor número de personas dentro del establecimiento.
