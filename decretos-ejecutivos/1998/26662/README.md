@@ -14,3 +14,4 @@ Autoriza Régimen de "Horarios Flexibles" en Instituciones Cubiertas por el Rég
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-16 | la propia norma |
+| 2 | 1998-02-16 | Ley 8 |
