@@ -1,0 +1,1 @@
+Artículo 7°-Como complemento del cuadro incorporado en el artículo 5°, y a fin de facilitar el uso de la clasificación, se anexa un mapa resumen por cada una de las regiones de planificación periféricas a la Región Central.
