@@ -1,0 +1,1 @@
+Artículo 2º—La importación a que se refiere el artículo anterior será realizada bajo los mismos términos y condiciones aplicables a ésta, establecidos en el Decreto Ejecutivo Nº 32091 -MAG-MEIC-COMEX.
