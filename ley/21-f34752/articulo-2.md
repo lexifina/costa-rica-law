@@ -1,0 +1,2 @@
+Art 2° En los lugares que dicho camino haya de construirse por baldíos nacionales, le será concedida al empresario, gratuitamente, la faja de terreno que para el camino necesite, siendo de una cuenta la indemnización en donde quiera que el mismo camino ocupe terrenos de propiedad particular.
+Al Poder Ejecutivo. – Dado en el Salón de Sesiones, Palacio Nacional, San José, junio once de mil ochocientos setenta y cuatro. Palacio Nacional, San José doce de junio de mil ochocientos setenta y cuatro. Ejecútese.
