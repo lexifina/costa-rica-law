@@ -1,0 +1,1 @@
+Artículo 14°-Las autenticaciones de firmas así como cualquier certificación del cargo desempeñado por los Traductores e Intérpretes Oficiales corresponderá emitirlas a la Dirección Jurídica del Ministerio de Relaciones Exteriores y Culto.

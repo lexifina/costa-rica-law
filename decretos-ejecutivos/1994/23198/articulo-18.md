@@ -1,0 +1,4 @@
+Artículo 18°-Al final debe escribirse: "En fé de lo cual se expide la presente Traducción Oficial del ___________al español (o viceversa), comprensiva de_________folios. Firmo y sello en la ciudad de_______a los______días del mes de_________de mil novecientos______________.
+Se agregan y cancelan os timbres de ley ". En las Traducciones Oficiales a un idioma extranjero, la misma leyenda debe ir en el idioma en que se traduce el documento.
+El Traductor Oficial debe firmar la Traducción Oficial en la línea inmediata al cierre, al lado derecho junto con el juego completo de timbres para certificación, colocado al lado izquierdo, que deberán quedar cancelados con el sello del Traductor Oficial.
+Además cada folio deberá llevar el timbre correspondiente en la parte superior de la hoja, y debe quedar también debidamente cancelado.

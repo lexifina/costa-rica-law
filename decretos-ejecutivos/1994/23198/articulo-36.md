@@ -1,0 +1,1 @@
+Artículo 36°-Las sanciones previstas en este capítulo son aplicables sin perjuicio de las demás responsabilidades administrativas, civiles, penales o de cualquier otra índole que puedan recaer sobre el Traductor e Intérprete Oficial.
