@@ -69,9 +69,12 @@ III. 2.8.2 No se permitirán gradas en las aceras, salvo en las vías peatonales
 III.2.8.3 La pendiente en el sentido transversal tendrá como máximo el 3 % y como mínimo el 2 %.
 III.2.8.4 En el caso de acceso vehicular a los predios, el desnivel debe salvarse con rampas construidas en la franja verde. Cuando esta no exista, la rampa se deberá resolver en una longitud máxima de cincuenta centímetros (50 cm.). Los desniveles que se generan en los costados también deberán resolverse con rampas de pendiente no mayor en un 30% de la que tiene la acera.
 III.2.9 Franjas verdes:
-III.2.9.1 Las franjas verdes intermedias entre la calzada y la acera, tendrán arborización utilizando especies de árboles o arbustos que por sus características de crecimiento no interfieran con el buen funcionamiento de las obras de infraestructura; dichas franjas serán interrumpidas en las esquinas de modo que la acera quede construida desde el límite de propiedad hasta el cordón.
-(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
-III.2.9.2 En caso que los urbanizadores construyan las aceras, las franjas verdes podrán sustituirse por jardineras, cuyo diseño debe ser aprobado por el INVU y la Municipalidad.
+III.2.9.1 En urbanizaciones que no sean de interés social donde se desarrollen proyectos de vivienda, las franjas verdes intermedias entre la calzada y la acera, tendrán arborización utilizando especies de árboles o arbustos que por sus características de crecimiento no interfieran con el buen funcionamiento de las obras de infraestructura; dichas franjas serán interrumpidas 20 metros antes de las esquinas. El tipo de plantas a utilizar deberá incluir especies nativas de floración vistosa y especies que den alimento a la fauna, ajustándose a las recomendaciones técnicas que al respecto dicte la Dirección Forestal del Ministerio de Recursos Naturales, Energía y Minas.
+En las áreas de juegos infantiles y de parque se dará preferencia a árboles frutales. Los árboles a utilizar deberán incluir especies de floración vistosa.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3928 de 19 de junio de 1989)
+III.2.9.2 Cuando las franjas verdes no sean iguales en ambos lados de la calzada, la franja más angosta deberá colocarse en el lado en donde se ubiquen las líneas eléctricas.
+Las especies a usar en las jardineras deberán cumplir con lo indicado en el artículo anterior.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3928 de 19 de junio de 1989)
 III.2.9.2.1 Cuando las franjas verdes no sean iguales en ambos lados de la calzada, la franja más angosta deberá colocarse en el lado en donde se ubiquen las líneas eléctricas.
 (Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986, el cual eliminó el párrafo 1°)
 III.2.9.2.2 Las cunetas tendrán un diseño tal que permitan el acceso de vehículos al área no pavimentada de la calle (espaldón) para su eventual utilización como estacionamiento.
@@ -112,8 +115,8 @@ III.3.2.6 Derogado
 (Así derogado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.3.2.7 Hasta donde sea posible, los linderos laterales de los lotes serán perpendiculares a la línea de cordón y caño.
 III.3.2.8 Para el diseño de los drenajes de aguas negras se aplicarán las normas establecidas por el Ministerio de Salud en caso de tanque séptico y de A y A para caso de colectores.
-III.3.2.9 En los terrenos con pendientes mayores del 15% deberá presentarse un estudio preliminar de suelos y terraceo, para determinar el tamaño de los lotes y sus taludes. En terrenos con pendientes mayores del 25%, deberá presentar estudio de estabilidad del terreno.
-(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
+III.3.2.9 En terrenos con pendientes mayores al 15% deberá presentarse un estudio preliminar de suelos y terraceo, para determinar el tamaño de los lotes y sus taludes. En terrenos con pendientes mayores del 30% se deberá presentar el estudio de estabilidad del terreno. Dichos terrenos deberán ser arborizados de acuerdo con un plan aprobado por la Dirección General Forestal del Ministerio de Recursos Naturales, Energía y Minas.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3928 de 19 de junio de 1989)
 III.3.2.10 Derogado
 (Así derogado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.3.2.11 Derogado
@@ -162,6 +165,8 @@ III.3.6.2.3 Dichas áreas se deberán ubicar :
 a) Contiguo a áreas públicas ya establecidas (si su ubicación es adecuada), si las hubiere o preferentemente en la periferia cuando las áreas aledañas no estén desarrolladas o si la escala de la urbanización lo requiere, concentradas equidistantemente de las viviendas.
 b) A distancias no mayores de 300 m de la vivienda más alejada (medidos sobre calles) para áreas de juegos infantiles y en sitios en los cuales no se deban cruzar vías , primarias para llegar a ellas desde las viviendas a que sirvan. Estas áreas deberán tener un frente mínimo de 10 m y no formar ángulos agudos ni tener zonas de difícil vigilancia.
 III.3.6.2.4 El urbanizador deberá entregar el área para juegos infantiles con el equipamiento necesario. La zona del parque se deberá dejar enzacatada y arborizada.
+Para la arborización de las áreas de parque y juegos infantiles se seguirá lo indicado en el artículo III.2.9.1.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3928 de 19 de junio de 1989)
 III.3.6.2.5 Para cumplir lo anterior, presentará al INVU y la Municipalidad un plano completo en que se indiquen las obras a realizar y el equipamiento que se les dará. Dichas obras incluirán : juegos, refugios, pavimentos, aceras, vallas, arborización, terraceos, bancas y cualquier otro detalle pertinente, todo según sea del caso. En todo caso proveerá salidas de agua potable, distribuidas de acuerdo a una cobertura no menor de cincuenta metros (50 m) de radio. Para efecto del cálculo de los juegos a instalar se considerará un núcleo por cada 50 unidades de vivienda. En proyectos de más de 1000 viviendas o lotes el número de juegos se definirá en cada caso.
 III.3.6.2.6 Con el fin de que los juegos sean adecuados a la zona, durables y seguros, el INVU proveerá planos de juego cuyo uso recomienda. Las copias de planos serán pagadas por los interesados. Por razón de seguridad o durabilidad, el INVU o la Municipalidad podrán rechazar los tipos de juegos que proponga el urbanizador. En el caso de que el área de juegos infantiles esté inmediata a una quebrada, río, canal o calle primaria y en general sitios peligrosos es obligación del urbanizador cerrar el sitio con malla, seto, tapia u otro sistema que ofrezca seguridad.
 III.3.6.2.7 Cuando la urbanización no vaya a ser habitada de inmediato, el urbanizador podrá pagar en efectivo a la Municipalidad el costo de las obras y el equipo para que ésta habilite el área en el momento en que se requiera, según precio que determinará la Municipalidad.
@@ -213,6 +218,8 @@ En casos muy calificados el INVU y la municipalidad podrán autorizar algunas de
 (Así reformado por acuerdo de Junta Directiva, en su sesión N° 3773 de 17 de noviembre de 1986)
 III.3.7.5 En el caso de terrenos con pendientes de más del 20 °/o o con laderas a orillas de cauces de agua, se deberán presentar, acompañando al anteproyecto de la urbanización, estudios geológicos de la zona a urbanizar que demuestren que los terrenos son aptos para construir.
 III.3.7.6 En caso que una corriente de agua permanente nazca en un área a urbanizar, el ojo de agua deberá protegerse en un radio de 50 metros como mínimo, zona en que no se podrá construir ninguna obra, salvo las de aprovechamiento del agua. Esta área podrá entregarse dentro del porcentaje a ceder al Municipio para uso público y en este caso deberá destinarse a parque.
+III.3.7.7.—Para todos los tipos de terrenos indicados en el artículo III.7, se deberá presentar un plan de reforestación aprobado por la Dirección Forestal del Ministerio de Recursos Naturales, Energía y Minas.
+(Así ampliado por acuerdo de Junta Directiva, en su sesión N° 3928 de 19 de junio de 1989)
 III.3.8 Entubamiento de ríos :
 Cuando la urbanización esté cruzada por un cauce de agua se podrán hacer trabajos de canalización o entubamiento, en cuyo caso deberán preverse rebalses para avenidas máximas manteniendo sobre el tubo un "canal abierto" adicional. Cuando existan proyectos municipales o de alguna institución para el entubamiento de dichas aguas, el urbanizador deberá pagar la parte proporcional que le corresponde de las obras.
 III.3.9 Movimiento de Tierras :
@@ -245,9 +252,12 @@ Las entidades competentes determinarán las obras de infraestructura que requier
 Las municipalidades dictaminarán acerca de los acabados de pavimentos, drenajes pluviales, aceras y similares.
 III.3.14.2 La aprobación de los planos constructivos por la Municipalidad no constituye aprobación para segregación de lotes. Para este trámite debe recabarse un visado especial, en donde se indique claramente que se da para los efectos del artículo 33 de la Ley de Planificación Urbana.
 III.3.15 Garantías de cumplimiento de obra
-III.3.15.1 Cuando un municipio esté anuente a autorizar la segregación de lotes sin que se hayan incluido las obras de urbanización deberá exigir para esto la garantía que menciona el artículo 38 de la Ley 4240. (Planificación Urbana).
-Para estos casos, se remitirán al INVU los siguientes documentos :
-- Tipo de garantía ofrecida.
-- Presupuesto de las obras hechas y faltantes, firmado por el responsable de una compañía constructora autorizada.
+III.3.15.1 Cuando un municipio está anuente a autorizar la segregación de lotes sin que se hayan incluido las obras de urbanización, deberá exigir para esto la garantía que menciona el artículo 38 de la Ley No 4240 (Planificación Urbana).
+Para estos casos, se remitirán al INVU los siguientes documentos:
+— Tipo de garantía ofrecida.
+— Presupuesto de las obras hechas y faltantes, firmado por el responsable de una compañía constructora autorizada.
+— Presupuesto de la arborización requerida asegurando el mantenimiento de los árboles durante los primeros dos años.
+Este documento debe contar con el visto bueno de la Dirección Forestal del Ministerio de Recursos Naturales, Energía y Minas.
+(Así reformado por acuerdo de Junta Directiva, en su sesión N° 3928 de 19 de junio de 1989)
 III.3.15.2 El INVU resolverá en un plazo no mayor de un mes si la garantía y el monto son satisfactorios y lo comunicará a la municipalidad para lo que proceda.
 III.3.15.3 En ningún caso se otorgarán permisos de segregación con base en anteproyectos.
