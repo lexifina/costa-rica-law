@@ -1,0 +1,1 @@
+Artículo 3º—El Fondo se incrementa a través de la reserva de cuatro millones de colones (¢4.000.000,00), que se toman del plan de premios de los sorteos ordinarios de la Lotería Nacional que se celebren. El fondo también se incrementa con los intereses generados por la inversión financiera de su contenido, durante los plazos en que tal inversión sea factible.
