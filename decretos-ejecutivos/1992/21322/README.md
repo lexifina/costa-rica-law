@@ -14,3 +14,4 @@ Reglamento para la Importación de Medicamentos y para la Exoneración de Materi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-04-03 | la propia norma |
+| 2 | 1992-10-30 | Decreto Ejecutivo 21719 (1992-10-30) |
