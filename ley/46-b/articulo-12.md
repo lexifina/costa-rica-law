@@ -1,0 +1,1 @@
+Artículo XII. Las adhesiones de las Naciones Americanas al presente convenio, serán dirigidas al Gobierno de la República Argentina, para que las comunique a los otros Estados. Estas comunicaciones harán las veces de Canje.

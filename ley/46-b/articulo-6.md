@@ -1,0 +1,2 @@
+Artículo VI. Se considerará invención: un nuevo modo de fabricar productos industriales; una nueva máquina o aparato mecánico o manual que sirva para fabricar dichos productos; el descubrimiento de un nuevo producto industrial; la aplicación de medios conocidos con el objeto de conseguir resultados superiores, y todo dibujo nuevo original y de adorno para un artículo de industria.
+El precepto anterior se entenderá sin perjuicio, de lo que disponga la legislación de cada país.

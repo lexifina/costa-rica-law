@@ -1,0 +1,2 @@
+Artículo IV. Cuando en los plazos fijados una persona haya depositado en varios Estados solicitudes de patentes por el mismo invento, los derechos resultantes de las patentes así solicitadas, serán independientes los unos de los otros.
+Serán también independientes de los derechos que resulten de las patentes que hayan sido adquiridas por el mismo invento, en los países que no formen parte de esta Convención.

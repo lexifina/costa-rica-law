@@ -1,0 +1,1 @@
+Artículo IX.Las personas que incurran en responsabilidades civiles o criminales, por dañar o perjudicar los derechos de los inventores, se perseguirán y castigarán con arreglo a las leyes del país en que se haya cometido el delito u ocasionado el perjuicio.
