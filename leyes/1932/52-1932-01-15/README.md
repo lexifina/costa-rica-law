@@ -1,6 +1,6 @@
 # Facilidades Deudores Bancos Internacional
 
-Ley N° 52 del 1932-01-15. SINALEVI, ficha 31296: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31296&param2=87273&param3=1>.
+Ley N° 52 del 1932-01-15. SINALEVI, ficha 31296: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=31296&param2=87276&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 4 | 1932-01-15 | Ley 52 | 1932-01-15 |
 | 2 de 4 | 1932-01-28 | Ley 54 | 1932-01-28 |
 | 3 de 4 | 1934-10-15 | Ley 5 | 1934-10-15 |
+| 4 de 4 | 1935-02-23 | Ley 57 | 1935-02-23 |
