@@ -1,6 +1,6 @@
 # Ley del Patronato Nacional de Ciegos
 
-Ley N° 2171 del 1957-10-30. SINALEVI, ficha 38462: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38462&param2=140479&param3=1>.
+Ley N° 2171 del 1957-10-30. SINALEVI, ficha 38462: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=38462&param2=140480&param3=1>.
 
 Publicada en La Gaceta N° 250 del 1957-11-03.
 
@@ -12,3 +12,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 5 | 1957-11-03 | SINALEVI | 1957-10-30 |
 | 3 de 5 | 1961-12-24 | Ley 2968 | 1961-12-20 |
 | 4 de 5 | 1964-07-22 | Ley 3295 | 1964-06-03 |
+| 5 de 5 | 1992-02-20 | Ley 7286 | 1992-02-04 |

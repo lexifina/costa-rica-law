@@ -1,3 +1,3 @@
 Sanciones
-Artículo 32.- La infracción a cualquiera de las disposiciones de la presente ley será sancionada, de acuerdo con la gravedad de la falta y las personas afectadas por la misma, con multa de sesenta colones (¢ 60.00) a trescientos colones (¢ 300.00).
-La reincidencia se sancionará con prisión de diez (10) a treinta (30) días.
+Artículo 32.- El Estado, por medio de sus Instituciones, está en la obligación de brindar apoyo y asesoría para el cumplimiento de los fines que persigue la presente Ley.
+(Así adicionado por el artículo 6° de la ley N° 7286 del 4 de febrero de 1992. Anteriormente este numeral había sido derogado por el artículo 5° de la ley N° 7286 del 4 de febrero de 1992)
