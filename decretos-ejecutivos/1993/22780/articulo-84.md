@@ -1,0 +1,1 @@
+Artículo 84.—El Ministro podrá conceder licencia con goce de salario a los servidores regulares para que realicen estudios en centros educativos del país, o fuera de éste, por medio de un contrato de licencias para estudios. La comisión contará con el apoyo de una subcomisión de cada una de las direcciones de conformidad con el artículo 37 del Estatuto del Servicio Civil.

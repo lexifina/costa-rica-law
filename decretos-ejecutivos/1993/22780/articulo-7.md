@@ -1,0 +1,1 @@
+Artículo 7°—Los servidores del Ministerio están obligados a realizar las funciones para las que fueron nombrados y cualquier otra similar, siempre y cuando fueren compatibles con sus fuerzas, aptitudes, estado o condición; cuando la naturaleza de la función que cumple el servidor así lo exija, éste deberá desplazarse a diferentes partes del país.

@@ -1,0 +1,1 @@
+Artículo 64.—Las sanciones se aplicarán, atendiendo no estrictamente al orden en que aparecen en el artículo anterior, sino conforme con todas las circunstancias de hecho y derecho presentes en la falta cometida, salvo que la misma tenga una sanción especifica en el Estatuto de Servicio Civil, el presente Reglamento y demás leyes conexas.

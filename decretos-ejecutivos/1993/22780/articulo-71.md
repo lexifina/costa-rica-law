@@ -1,0 +1,5 @@
+Artículo 71.—Además de las contempladas en el artículo anterior y en otras del presente Reglamento, queda absolutamente prohibido a los choferes o personas que manejen los vehículos del Ministerio o que estén asignados a este:
+a) Usar el vehículo en lugares diferentes al del itinerario que corresponda. Cuando por circunstancias muy calificadas, el conductor se vea obligado a salirse de la ruta respectiva, al término de la jornada deberá dar el informe del caso al jefe inmediato.
+b) Ceder la conducción del vehículo a terceros.
+c) Ocupar o permitir que se use el vehículo en actividades ajenas al servicio del Ministerio, así como transportar a funcionarios o particulares que no tengan relación con el servicio que se presta, salvo los casos que por la índole del transporte o del propósito del viaje así lo obliguen.
+d) Manejar los vehículos del Ministerio sin la autorización del jefe inmediato o de la persona en quien este haya delegado la firma de las respectivas órdenes de transporte. Quien no tenga licencia de conductor, en ningún caso podrá manejar los vehículos del Ministerio.

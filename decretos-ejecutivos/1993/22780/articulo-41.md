@@ -1,0 +1,2 @@
+Artículo 41.—El servidor que por dolo o complacencia marque registros de asistencia que no le corresponden, incurrirá en falta grave a sus obligaciones y será sancionado con tres días de suspensión de labores sin goce de sueldo en su primera falta.
+La misma sanción se le aplicará al servidor al que otro le haya marcado el registro de asistencia con su consentimiento y no por error involuntario. Estas faltas se computarán para efecto de reincidencia en un lapso de tres meses.

@@ -1,0 +1,2 @@
+Artículo 17.—El trabajo extraordinario, tanto después de la jornada ordinaria como durante los días feriados y de descanso semanal sólo podrá autorizarse en situaciones excepcionales cuando sea indispensable satisfacer exigencias improrrogables del Servicio Público, de conformidad con lo que establece el artículo 17 de la Ley de Salarios de la Administración Pública.
+No se reconocerá el trabajo extraordinario ejecutado sin autorización expresa del Oficial Mayor o del Director, y con la autorización previa de la Comisión de Recursos Humanos.

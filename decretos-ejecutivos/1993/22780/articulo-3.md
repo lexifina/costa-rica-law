@@ -1,0 +1,1 @@
+Artículo 3°—El Ministro, el Viceministro, o el Oficial Mayor, serán quienes tengan a su cargo todo lo relacionado con la aplicación de este Reglamento, así como también lo concerniente al personal y a las relaciones del mismo con la Dirección General de Servicio Civil.

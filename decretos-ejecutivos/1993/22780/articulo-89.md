@@ -1,0 +1,1 @@
+Artículo 89.—Cualquier servidor del Ministerio que tenga la respectiva licencia de conductor debidamente actualizada y extendida por la autoridad competente y que se encuentre inscrito en el registro que para ese efecto lleva el Departamento de Personal o las oficinas correspondientes, está facultado para conducir los vehículos del Ministerio en funciones de su cargo.

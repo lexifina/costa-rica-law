@@ -1,0 +1,30 @@
+CAPITULO VIII
+De las obligaciones de los servidores
+Artículo 36.—Además de lo dispuesto en el artículo 39 del Estatuto de Servicio Civil, el artículo 50 de su Reglamento, el Código de Trabajo y otras disposiciones del presente reglamento, son obligaciones de los servidores:
+I) Prestar servicios personalmente en forma regular y continua, cumpliendo con la jornada de trabajo correspondiente, salvo los horarios de los servidores de confianza, quienes la cumplirán en la forma que para tal efecto se pacte.
+II) Desempeñar su labor con la capacidad, interés y diligencia que su cargo requieren, a efecto de lograr mayor eficiencia y eficacia en el servicio que prestan.
+III) Cumplir con mayor diligencia y voluntad las órdenes de sus jefes, relativas al servicio y a los deberes del puesto que desempeñan, auxiliando en su trabajo a cualesquiera de los demás servidores cuando su jefe o quien lo representa lo indique, siempre que esas labores de auxilio sean compatibles con sus aptitudes, estado, condición y cargo que desempeña.
+IV) Atender con igual diligencia, afán de servicio o cortesía al público que acuda a las dependencias del Ministerio, así como guardar a sus jefes, compañeros, subalternos y demás servidores públicos, toda clase de consideración de modo que no se originen quejas injustificadas por el servicio, desatención, mal trato o irrespeto.
+V) Durante el trabajo, vestir correctamente de acuerdo con las reglas de moralidad, que no atente contra las normas de buenas costumbres o las normas mínimas de higiene.
+VI) Observar dignidad en el desempeño de su cargo y en todos sus actos, guardar conducta conforme con su posición oficial.
+VII) Guardar la más absoluta reserva sobre los asuntos privados del Ministerio, así como la debida discreción sobre lo relacionado con su trabajo, cuando así se requiera por la naturaleza de sus labores o en virtud de disposiciones legales, o instrucciones especiales, aún después de haber cesado el cargo. Todo ello sin perjuicio de la obligación que el servidor tendrá de denunciar ante quien corresponda, los hechos incorrectos o delictuosos que lleguen a su conocimiento.
+VIII) Responder por los objetos: máquinas y demás equipo de trabajo que tenga en uso; velar porque no sufran más deterioro que el de su uso normal y reponer o pagar aquellos cuyo deterioro o pérdida se probare que fue causada intencionalmente o se debieran a su negligencia o descuido manifiesto y absolutamente inexcusable.
+Es extendido que no serán responsables por el deterioro normal del que se ocasione por caso fortuito, fuerza mayor, mala calidad o defectuosa confección. Deberá cuidar por la conservación de las instalaciones físicas en donde está ubicado el centro de trabajo. El Estado deberá proporcionar las medidas de seguridad adecuadas. En caso de incumplimiento de éstas, el servidor no podrá ser responsable directo.
+IX) Antes de salir del centro de trabajo por razón de cualquier asunto oficial o personal reportar con exactitud el lugar donde se encontrara en el caso de los empleados de confianza.
+X) Someterse a reconocimiento médico al solicitar su ingreso al trabajo y durante este, a solicitud del superior jerárquico o a petición del organismo oficial de salud pública, para comprobar que no tiene incapacidad para el desempeño de su labor, enfermedad profesional, contagiosa o incurable.
+XI) Firmar o anotar sus iniciales en todo trabajo escrito que realice.
+XII) Comunicar al superior jerárquico, las sugerencias que estimare necesarias con vista de los hechos de que tuviese conocimiento para evitar o prevenir daños o perjuicios a los intereses del Ministerio, a sus compañeros de trabajo o a las personas que eventualmente se encuentren en las oficinas donde prestan sus servicios.
+XIII) Informar de inmediato a su superior de cualquier error, deficiencia o irregularidad que notaran en el trabajo o con ocasión de él.
+XIV) Cumplir estrictamente cuando sea del caso, con las disposiciones de los reglamentos respectivos sobre "Gastos de viaje y de transporte para servidores del Estado" y sobre el uso de los vehículos del Poder Ejecutivo.
+XV) Acatar y hacer cumplir en su caso, las medidas que tiendan a prever el acaecimiento de accidentes de trabajo y enfermedades profesionales, siempre que el patrono dé las condiciones mínimas de seguridad en el trabajo.
+XVI) Registrar su asistencia o informar que se encuentra realizando labores fuera del Ministerio.
+XVII) Prestar su colaboración a las comisiones de trabajo y cualesquiera otras de importancia para el Ministerio.
+XVIII) Velar para que la imagen del Ministerio no se deteriore y no comprometerla con comportamientos inadecuados aun cuando se encuentre representando a éste, en giras fuera de la jornada.
+XIX) Dar aviso inmediato al encargado de cualquier accidente, daño o deterioro que sufrieran los vehículos al servicio del Ministerio, aportando toda la información posible de los hechos, y circunstancias en que se produjo el accidente. El encargado de Servicios Generales, a su vez, deberá notificar de inmediato a su jefe superior inmediato lo que corresponda.
+XX) Rendir cuentas de las sumas de dinero que reciban adelantadas por concepto de viáticos dentro de los cinco días hábiles posteriores a la terminación de la labor encomendada.
+XXI) El servidor deberá notificar a su jefe lo antes posible, verbalmente o por escrito, la causa que le impide asistir a su trabajo.
+XXII) Presentar la documentación requerida para abrir y mantener actualizado el expediente personal.
+XXIII) Respetar el orden jerárquico tanto ascendente como descendente, en la realización de trámites, o gestiones administrativas.
+XXIV) Mantener al día las labores encomendadas, siempre que motivos justificados no lo impidan.
+XXV) Las demás obligaciones que en forma expresa establece el presente reglamento.
+XXVI) El funcionario tiene la obligación de recibir la capacitación y el adiestramiento necesario para el desempeño de sus funciones, siempre y cuando se den las condiciones socioeconómicas para ello.

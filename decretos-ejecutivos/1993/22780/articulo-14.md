@@ -1,0 +1,1 @@
+Artículo 14.—En casos extraordinarios siempre y cuando no se cause perjuicio grave a los servidores, temporalmente podrán regir diferentes horarios de servicio para el cumplimiento de la función pública.

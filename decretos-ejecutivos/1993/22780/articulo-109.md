@@ -1,0 +1,1 @@
+Artículo 109.—Cualquier modificación sea total o parcial, al presente Reglamento, deberá comunicarse a los servidores del Ministerio con 30 días de antelación a la fecha de entrada en vigencia y deberá contar con la aprobación de la Dirección General del Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 19.—El Departamento de Personal revisará y modificará los salarios que sean variados por el Poder Ejecutivo, a fin de que ningún servidor gane menos del sueldo que le corresponde. A la vez realizará las gestiones correspondientes ante la Oficina de Presupuesto Nacional, para que los salarios mínimos se reconozcan lo más pronto posible.

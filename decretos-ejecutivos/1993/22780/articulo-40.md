@@ -1,0 +1,1 @@
+Artículo 40.—El control de la entrada y salida del tiempo destinado al almuerzo, queda bajo la responsabilidad de cada jefe inmediato o director, quien establecerá los mecanismos necesarios de manera que no se ocasione menoscabo en la prestación del servicio.

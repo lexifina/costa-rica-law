@@ -1,0 +1,1 @@
+Artículo 51.—Para casos no contemplados en este Reglamento ni en el Estatuto de Servicio Civil y su Reglamento queda a juicio del superior inmediato, justificar ausencias que no sean por enfermedad comprobada, para efectos de evitar sanción disciplinaria, sin que ella signifique obligación al pago del salario.

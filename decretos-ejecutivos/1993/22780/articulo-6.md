@@ -1,0 +1,3 @@
+Artículo 6°.—Igualmente terminarán sin responsabilidad para el Ministerio, aquellos nombramientos que se efectúen en puestos amparados por el Régimen de Servicio Civil, con carácter de interino, siempre que éstos no sean efectuados por un período superior a un año.
+Se considerarán servidores interinos los que fueren nombrados para reemplazar temporalmente a un servidor regular, por cualquier causa de suspensión de la relación de servicio, así como los que se nombren en plazas vacantes, mientras la Dirección General de Servicio Civil envíe la terna correspondiente.
+Tales servidores deberán reunir las condiciones previstas en el artículo 9° del Reglamento del Estatuto de Servicio Civil.

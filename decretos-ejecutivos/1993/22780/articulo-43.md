@@ -1,0 +1,1 @@
+Artículo 43.—En todo caso, los servidores de confianza deberán avisar con anticipación sus ausencias y salidas del lugar de trabajo y la razón que las motive, y en todo momento señalar el lugar en el que se encuentran y el número de teléfono para efectos de una pronta localización.

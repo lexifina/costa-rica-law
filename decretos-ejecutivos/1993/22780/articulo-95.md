@@ -1,0 +1,1 @@
+Artículo 95.—El servidor que violare las disposiciones del presente capítulo será debidamente sancionado conforme lo que señalan el reglamento para regular el uso de vehículos oficiales y los capítulos XII y XIII de este reglamento, sin perjuicio de lo dispuesto en la Ley de Tránsito y la Ley General de la Administración Pública.

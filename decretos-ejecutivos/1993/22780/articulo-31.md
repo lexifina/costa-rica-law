@@ -1,0 +1,2 @@
+Artículo 31.—Son hábiles para el trabajo, todos los días del año, menos los feriados que establece el Código de Trabajo y aquellos que el Poder Ejecutivo declare de asueto, conforme con el acuerdo correspondiente.
+Cuando se declare asueto en los diferentes cantones del país en donde presten servicios servidores y encontrándose éstos en vacaciones podrán solicitar al departamento, reconocimiento de ese hecho a efecto, de que los días de asueto sean compensados.

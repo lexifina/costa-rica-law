@@ -1,0 +1,1 @@
+Artículo 58.—Toda justificación deberá remitirse a la Oficialía Mayor dentro de un plazo de ocho días contados a partir de la fecha en que se cometió el hecho, o desde el momento en que se tuvo conocimiento del mismo.

@@ -1,0 +1,1 @@
+Artículo 45.—Las llegadas tardías no se le computarán a los servidores de confianza, ni a aquellos servidores en general que sin ser de confianza, estén dispuestos a retirarse más tarde de sus funciones, en compensación de la llegada tardía.

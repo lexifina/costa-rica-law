@@ -1,0 +1,1 @@
+Artículo 85.—Podrá concederse licencia o permiso con goce de sueldo para viajes al exterior, con motivos de representación oficial del Ministerio o de alguna otra institución, siempre que en este último caso, el Ministerio derive algún beneficio y con autorización del mismo de conformidad con el artículo 40 del Estatuto del Servicio Civil.

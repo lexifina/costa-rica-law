@@ -1,0 +1,1 @@
+Artículo 61.—Toda sanción o corrección disciplinaria, deberá hacerse constar en el expediente que el Departamento de Personal llevará a cada uno de los servidores del Ministerio, con la salvedad de las sanciones verbales.
