@@ -1,0 +1,1 @@
+Art. 3. El presente decreto se comunicará á quienes corresponda y se imprimirá, circulará, y publicarà para su cumplimiento. –Dado en la ciudad de San José á los diezinueve dias del mes de abril de mil ochocientos cuarenta y cinco. -Rafael Moya. –Al Ministro de relaciones y gobernacion.
