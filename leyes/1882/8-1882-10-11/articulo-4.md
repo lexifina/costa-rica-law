@@ -1,0 +1,1 @@
+Art. 4°. -A los compradores de licores nacionales que deban expenderlos fuera del radio de una legua de la respectiva administración, se abonará el flete á razón de veinte centavos la legua por cada cien botellas; arreglándose todo lo referente á la carta de porte á las disposiciones vigentes, y extendiéndose hasta un mes el término concedido para la presentación de la toma-guía.

@@ -1,0 +1,1 @@
+Art. 2°- El Inspector General de Hacienda será únicamente quien, en lo sucesivo, concederá licencia para el establecimiento de nuevos puestos de ventas de licores nacionales; cuidando de que la concesión se haga á personas de reconocida honradez, y de que los estanquillos se sitúen en puntos adecuados á la inmediata vigilancia de la autoridad.

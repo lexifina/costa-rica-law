@@ -1,0 +1,1 @@
+Art. 3° -Se reduce á veinticinco botellas el minimum de la venta de licores nacionales en las administraciones respectivas; quedando obligados los expendedores á mantener en sus estanquillos un depósito no menor de diez botellas para la renta diaria, bajo las penas establecidas.
