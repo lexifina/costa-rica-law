@@ -3,12 +3,11 @@ De la tarifa del impuesto
 (Así modificada su numeración por el artículo 1º de ley No.7551 del 22 de setiembre de 1995, del antiguo XII al actual)
 ARTICULO 33.- Escala de tarifas.
 El empleador o el patrono retendrá el impuesto establecido en el artículo anterior y lo aplicará sobre la renta total percibida mensualmente por el trabajador. En los casos de los incisos a), b) y c) del artículo anterior lo aplicará el Ministerio de Hacienda y, en el caso del inciso ch) de ese mismo artículo, todas las demás entidades, públicas o privadas, pagadoras de pensiones. La aplicación se realizará según la siguiente escala progresiva de tarifas:
-a) Las rentas de hasta ¢323.000,00 mensuales no estarán sujetas al impuesto
-b) Sobre el exceso de ¢ 323.000,00 mensuales y hasta ¢ 485.000,00 mensuales, se pagará el diez por ciento (10%).
-c) Sobre el exceso de ¢ 485.000,00 mensuales se pagará el quince por ciento (15%).
-(Modificado los tramos de renta establecidos en los incisos a), b) y c) por artículo 1 del Decreto Ejecutivo N° 29809 del 10 de setiembre del 2001)
-(Modificado los tramos de renta establecidos en los incisos a), b) y c) por artículo 1 del Decreto Ejecutivo N° 30724 del 11 de setiembre del 2002)
-(Modificado los tramos de renta establecidos en los incisos a), b) y c) por artículo 1 del Decreto Ejecutivo N° 31375 del 08 de setiembre del 2003)
+a) Las rentas de hasta ¢ 367.000,00 mensuales no estarán sujetas al impuesto.
+b) Sobre el exceso de ¢ 367.000,00 mensuales y hasta ¢ 551.000,00 mensuales, se pagará el diez por ciento (10%).
+c) Sobre el exceso de ¢ 551.000,00 mensuales se pagará el quince
+por ciento (15%).
+(Modificado los tramos de renta establecidos en los incisos a), b) y c) por artículo 1 del Decreto Ejecutivo N° 32042 del 20 de setiembre del 2004)
 ch) Las personas que obtengan rentas de las contempladas en los incisos b) y c) del artículo 32 pagarán sobre el ingreso bruto, sin deducción alguna, el quince por ciento (15%).
 (Así reformado por inciso i) del artículo 19 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
 ( NOTA: Los montos a que se refieren los incisos a), b) y c) del presente artículo, fueron modificados por el Decreto Ejecutivo Nº 27338 de 10 de setiembre de 1998).
