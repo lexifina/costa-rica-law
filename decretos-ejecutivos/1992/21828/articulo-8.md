@@ -1,0 +1,1 @@
+Artículo 8°—El presupuesto anual de operación e inversión será sometido a la aprobación de la Contraloría General de la República, a la cual corresponde el control financiero-contable de las actividades del Fondo de Desarrollo Turístico.

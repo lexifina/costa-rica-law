@@ -1,0 +1,2 @@
+Transitorio: A efecto que el funcionamiento de FONDETUR cuente con los recursos humanos adecuados, el Instituto Costarricense de Turismo someterá a la aprobación de la Autoridad Presupuestaria las necesidades de personal que permitan dar cumplimiento a lo regulado por el presente reglamento.
+Dado en la Presidencia de la República.—San José, a los diecisiete días del mes de diciembre de mil novecientos noventa y dos.

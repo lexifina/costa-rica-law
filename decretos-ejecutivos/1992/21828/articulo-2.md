@@ -1,0 +1,1 @@
+Artículo 2°—Una vez concluido el Proyecto Golfo Papagayo, el fondo podrá ser usado para planificar, desarrollar, ejecutar, financiar y asesorar otros proyectos turísticos factibles de apoyo en el resto del país y que sean de interés nacional, dando prioridad a aquellas zonas declaradas por Instituto Costarricense de Turismo, de aptitud turística que ameriten planes de inversión.

@@ -1,0 +1,1 @@
+Artículo 5°—Los proyectos a desarrollar en Golfo Papagayo y todos aquello que les sirvan de apoyo y que sean financiados con recursos de este Fondo, deberán contar con previa aprobación del Instituto Costarricense de Turismo.

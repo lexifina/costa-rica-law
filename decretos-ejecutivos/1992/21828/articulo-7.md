@@ -1,0 +1,1 @@
+Artículo 7°—El Consejo Director del Proyecto Turístico Golfo Papagayo elaborará un presupuesto anual de los planes de inversión del Fondo, de acuerdo a las prioridades de obras a realizar, definidas en una programación previamente aprobada por la Junta Directiva del Instituto Costarricense de Turismo.
