@@ -357,7 +357,7 @@ Despicadores eléctricos para la avicultura
 Accesorios y repuestos para bebederos, comederos, despicadores eléctricos, incubadoras; para la avicultura
 Aparatos mecánicos (incluso manuales) para proyectar, dispersar o pulverizar materias líquidas o en polvo para la agricultura o la horticultura
 Repuestos y accesorios para bombas de fumigación, atomización, espolvoreo, y equipo de riego
-Ordeñadoras, sus accesorios y repuestos
+Ordeñadoras , sus accesorios y repuestos
 Remolques y semirremolques, para usos agrícolas
 Autocargadores para usos agrícolas
 Autodescargadores para usos agrícolas
@@ -397,16 +397,18 @@ Arrancadora de granos
 Artes de pesca para la producción acuícola no deportiva
 Avionetas destinadas exclusivamente a la fumigación, atomización y espolvoreo
 Bandejas placas para el enraizamiento y almacenamiento de esquejes
-bandejas para la reproducción de plantas de uso agrícola
+Bandejas para la reproducción de plantas de uso agrícola
 (Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Barra cardánica exclusiva para implementos agrícolas
 Barra portaherramientas para ser acoplada al sistema de enganche de los tractores agrícolas
 Barómetros
 Barrenadores para acoplar al tractor agrícola
+Bandas de huele (ligas).
+(Así adicionada la mercancía anterior por el artículo 2° del decreto ejecutivo N° 31189 del 24 de febrero de 2003)
 Biberones para terneros
 Biológicos para uso agropecuario
 Block de sal mineral
-Bombas de agua de 0.75 KW (1 HP) o más
+(Excluida la mercancía "Bombas de agua de 0.75 KW (1 HP) o más", por el artículo 2° del decreto ejecutivo N° 31189 del 24 de febrero de 2003. No obstante, el decreto referido hace mención a la mercancía "Bombas de agua de 0.75 KW (1 HP) o más para uso de proyectos agropecuarios", pero dicha mercancía había sido reformada por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997,reformándose en aquel momento con el nombre de :"Bombas de agua de 0.75 KW (1 HP) o más")
 (Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Bolsas plásticas para la protección y empaque del banano
 Bolsas plásticas estériles para la toma de muestra de leche
@@ -421,7 +423,7 @@ Carretillas de mano
 Carrete para extender y recoger mangueras de riego
 Cascos y caretas para la aplicación de agroquímicos
 Cauterizador eléctrico para cuernos
-Cartones de huevo. (artículos alveolares, para envase y transporte de huevos)
+Cartones de huevo. ( artículos alveolares, para envase y transporte de huevos)
 Cascos blancos con ventilación para uso apícola
 (Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Ceras antitranspirantes para frutas y vegetales
@@ -507,7 +509,7 @@ Grapas para cerca
 Grava para filtros y elementos filtrantes
 (Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Guantes desechables para obstetricia veterinaria
-Guantas especiales que cubran los brazoz para uso apícola
+Guantas especiales que cubran los brazos para uso apícola
 (Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Guadañadoras con motores de combustión interna
 (Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
@@ -521,6 +523,8 @@ Hojas de tijeras podadoras
 Hormonas vegetales
 Huevos fértiles de ave, óvulos fecundados, huevos y lechas de pescado
 (Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
+Huevos, gusanos y pupas, para la cría de mariposas.
+(Así adicionada la mercancía anterior por el artículo 2° del decreto ejecutivo N° 31189 del 24 de febrero de 2003)
 Implantadores
 Impulsadores de aire para granjas, y sus repuestos y accesorios
 Infiltrómetros
@@ -542,6 +546,8 @@ Láminas metálicas perforadas para la recolección de polen (trampas para abeja
 Láminas metálicas para trampas de polen y jaulas de reinas
 (Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Lápices para marcar aretes
+Las mercancías que se adquieran al amparo de los contratos suscritos con fundamento en el artículo 5° del Decreto Ejecutivo N° 28648-MAG-H-MEIC de 15 de mayo de 2000, siempre que medie nota de exoneración emitida por el Departamento de Exenciones del Ministerio de Hacienda.
+(Así adicionada la mercancía anterior por el artículo 2° del decreto ejecutivo N° 31189 del 24 de febrero de 2003)
 Limas de filo
 Limas para cascos y dientes
 Lombrices o sus huevos para uso en agricultura orgánica
@@ -570,7 +576,7 @@ Pasta para descornar
 Película plástica (protectores) blanca o negra tratada contra rayos ultravioleta
 Penetrógrafos
 Penetrómetros
-materias colorantes utilizadas en la pigmentación de productos agrícolas
+Materias colorantes utilizadas en la pigmentación de productos agrícolas
 (Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Pinzas para cascos
 Pinzas de acero para limpiar marcos de colmena
@@ -595,7 +601,7 @@ Quemadores de azufre
 Rastrillos
 Acordonadores o enfardadores
 Repuestos para mascarillas de protección y para jeringas
-Retroexcavadores de hasta 51 KW
+(Excluída la mercancía “Retroexcavadores de hasta 51 KW”, por el artículo 2° del decreto ejecutivo N° 31189 del 24 de febrero de 2003)
 Rieles para cable vías
 Rodines y rolas para cable vía
 Ruedas fangueadoras
@@ -621,7 +627,7 @@ Toallas para desinfección de ubres
 Tractores agrícolas que reúnen las siguientes características:
 a) Ancho de trocha ajustable
 b) Sistema de levante hidráulico trasero o delantero, con enganche de 3 o 2 puntos para el montaje de instrumentos agrícolas y sistema hidráulico para el control remoto
-c) Toma de furza trasera, lateral o delantera para poner en acción distintos implementos
+c) Toma de fuerza trasera, lateral o delantera para poner en acción distintos implementos
 d) Barra de tiro para el arrastre de implementos y carretas agrícolas y/o sistema de enganche (fijo o de levante automático) para halar implementos
 (Excluída la mercancía "Tractores de oruga de aplicación especial, únicamente para proyectos agrícolas", por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Trajes, velos y guantes para uso apícola
@@ -629,7 +635,7 @@ Trajes, velos y guantes para uso apícola
 Trampas y atrayentes para monitoreo y control de plagas de uso agropecuario
 (Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Tubería corrugada para avenamiento
-Zanjeadoras rotativas hasta 51 KW
+(Excluida la mercancía “Zanjeadoras rotativas hasta 51 KW”, por el artículo 2° del decreto ejecutivo N° 31189 del 24 de febrero de 2003)
 Zetas de metal para transporte de banano
 5) Insumos para la pesca marina
 Agujas de coser y relingar
