@@ -1,0 +1,2 @@
+Artículo 38.—El cálculo del monto de la pensión del régimen de los Diputados, será igual a un treintavo de la remuneración mensual que devenga un Diputada (vigente al momento de presentarse la solicitud), multiplicado por el número de años servidos en la administración pública. Este monto no podrá ser inferior a la tercera parte ni superior a la remuneración mensual antes mencionada.
+Entiéndase por remuneración mensual para un Diputado, el salario base más gastos de representación.

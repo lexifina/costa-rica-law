@@ -1,0 +1,1 @@
+Artículo 63.—El Fondo de Pensiones es un patrimonio independiente. La Junta de Pensiones y Jubilaciones deberá llevar contabilidad separada de este y no tendrá dominio de ese Fondo, salvo para los propósitos exclusivos establecidos por la Ley.

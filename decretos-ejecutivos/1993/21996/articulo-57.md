@@ -1,0 +1,1 @@
+Artículo 57.—Una copia de los estudios aduanales ordinarios o extraordinarios que realice la Junta, así como cualquier modificación a la estructura de beneficios, serán sometidos a los Jerarcas de los Ministerios representados en la Junta de Pensiones y Jubilaciones del Magisterio Nacional, quince días antes a su promulgación definitiva.

@@ -1,0 +1,2 @@
+Artículo 43.—Cuando fallezca el pensionado por este régimen. sin causahabientes tendrán derecho a disfrutar de la pensión, conforme lo dispone el Reglamento de Invalidez, Vejez y Muerte, que administra la Caja Costarricense del Seguro Social.
+Si al momento de la muerte del beneficiario directo, no se encontraba jubila pero cumplía con todos los requisitos para estarlo, sus causahabientes tendrán de a solicitar el monto de la pensión que le habría correspondido a su deudo.

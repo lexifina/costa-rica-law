@@ -1,0 +1,1 @@
+Artículo 39.—Los pensionados y jubilados bajo este régimen tendrán derecho reajustar sus pensiones, únicamente por variaciones en el costo de la vida, que decrete el Poder Ejecutivo en el mismo porcentaje de incremento para los servidores públicos activos, de conformidad con lo dispuesto por el artículo 23 de la Ley 7302.

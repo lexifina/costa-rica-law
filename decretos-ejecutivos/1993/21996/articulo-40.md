@@ -1,0 +1,1 @@
+Artículo 40.—Aquellas personas que se encuentren en la actualidad disfrutando de pensión o jubilación por el régimen de Hacienda - Diputado, pasarán a formar parte de lo dispuesto en el capítulo IV de la Ley 7302.

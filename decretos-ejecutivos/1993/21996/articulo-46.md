@@ -1,0 +1,2 @@
+Artículo 46.—Aquellas personas que amparadas a alguno de los regímenes cubiertos por la Ley, que faculten o no la revisión de su jubilación y que reingresen; la Administración Pública, tendrán derecho a una revisión de la misma, de acuerdo con las disposiciones señaladas en la Ley según sea el caso.
+Para lo anterior, el interesado deberá plantear la solicitud de revisión ante la Dirección Nacional de Pensiones, dentro de los tres meses posteriores al cese de su re laboral.

@@ -1,0 +1,1 @@
+Artículo 59.—Para el sostenimiento del nuevo Fondo de Pensiones del Magisterio Nacional a que se refiere este capítulo, los trabajadores activos y el patrono deberán contribuir con un 5,75% del monto del salario correspondiente. El Estado como tal, contribuirá con un porcentaje igual al que se determine para la Caja Costarricense del Seguro Social.

@@ -1,0 +1,2 @@
+Artículo 3.— Anulado.
+(Por resolución de la Sala Constitucional número 4682 de las once horas y quince minutos del 6 de setiembre de 1996, se anuló el texto del presente artículo que disponia: "Tendrán derecho a ingresar a este Régimen General de Pensiones y Jubilaciones aquellos servidores que, a la fecha de promulgación de la Ley, reúnan como mínimo diez años de servicio y cotización para cualquiera de los regímenes mencionados en el artículo anterior, según los requisitos establecidos en cada régimen especial que se deroga.")

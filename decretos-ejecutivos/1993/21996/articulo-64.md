@@ -1,0 +1,1 @@
+Artículo 64.—Los recursos que se acumulen en el Fondo de Capitalización del Magisterio Nacional, deberán invertirse teniendo como único objetivo la obtención de una adecuada rentabilidad y seguridad de la inversión. Cualquier otro objetivo que se pretenda dar a tal Fondo, se considerará contrario a los intereses de los beneficiarios del sistema y a la Ley.

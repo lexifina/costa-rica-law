@@ -1,0 +1,1 @@
+Artículo 13.—La prueba de los hechos en que se funde la solicitud deberá ser, lamente, documental. No obstante, cuando se requiera otro medio de prueba, la misma se apreciará de acuerdo a las reglas de la sana crítica salvo decisión expresa en contrario.

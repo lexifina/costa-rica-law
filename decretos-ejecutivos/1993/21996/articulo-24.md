@@ -1,0 +1,1 @@
+Artículo 24.—La Asamblea Legislativa deberá reportar a la Dirección de Pensiones, las variaciones del salario que se tenga como ingreso de un en un plazo no mayor de diez días hábiles después de decretadas estas.

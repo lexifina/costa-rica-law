@@ -1,0 +1,1 @@
+Artículo 65.—En condiciones de máxima seguridad y rentabilidad, procurando su necesario equilibrio, el incremento de su valor real y la liquidez necesaria, los recursos del nuevo Fondo de Pensiones deberán ser invertidos en instrumentos de oferta pública debidamente autorizados por la Comisión Nacional de Valores.

@@ -1,0 +1,1 @@
+Artículo 18.—Aquellos servidores que demuestren tener treinta o más años de servicio para un régimen especial, debidamente cotizados y no contaren con la edad mínima de jubilación establecida en el artículo 16 de este Reglamento, tendrá a su jubilación cuando este último requisito se cumpla.

@@ -1,0 +1,4 @@
+CAPITULO VI
+De la Cotización
+Artículo 32.—Podrá el interesado solicitar que las cuotas que haya cubierto para cualquier régimen de pensiones del Estado (incluyendo Invalidez, Vejez y Muerte), diferente de aquel en que se pensione, le sean computadas o trasladadas según sea el caso para estos efectos. No obstante, siempre quedará obligado a cubrir cualquier diferencia resultante.
+En relación con las cuotas que no hayan sido cubiertas y las diferencias a que se refiere el párrafo anterior, al menos el cincuenta por ciento (50%) del monto total adeudado, deberá cancelarse inmediatamente y el porcentaje restante se cancelará por medio de una deducción mensual a la pensión, cuyo monto se fijará en forma tal que la deuda sea cancelada en su totalidad, en un plazo máximo de cinco años. Las sumas que se perciban en virtud de este artículo, ingresarán a la caja única del Estado.

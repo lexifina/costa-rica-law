@@ -1,0 +1,1 @@
+Artículo 45.—Para aquellos pensionados y jubilados que laboren o reingresen a la administración pública, deberán notificarlo a la Dirección Nacional de Pensiones para que esta proceda a suspender el disfrute del derecho. Para tal efecto, el servidor deberá aportar además, certificación de la Institución la cual labora, indicando fecha de ingreso.

@@ -1,0 +1,1 @@
+Artículo 27.—Los incrementos por costo de vida se harán de conformidad con las reglas del régimen especial, que se tiene por incorporado al Régimen General y según el procedimiento administrativo que determinará la Dirección Nacional de Pensiones.
