@@ -1,0 +1,1 @@
+Artículo 12.—En caso de que el responsable del programa presupuestario no esté satisfecho con los artículos entregados ya sea por su calidad, presentación o funcionamiento, deberá hacerlo saber al Departamento de Proveeduría en un plazo no mayor a 48 horas, después de haber recibido los artículos o informes.

@@ -1,0 +1,1 @@
+Artículo 4º—Las sumas establecidas en este capítulo se ajustarán cada año, en correspondencia con las resoluciones dictadas por la Contraloría General de la República, previo acuerdo de la Junta Directiva.

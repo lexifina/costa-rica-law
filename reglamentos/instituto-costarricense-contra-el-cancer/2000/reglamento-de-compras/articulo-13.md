@@ -1,0 +1,1 @@
+Artículo 13.—Si en el plazo de 48 horas después de haber recibido los artículos o informes, el departamento de Contabilidad no ha recibido objeción alguna de las calidades de las compras, procederá a confeccionar los respectivos cheques, que en todos los casos serán respaldados por las ordenes de compra debidamente autorizadas.

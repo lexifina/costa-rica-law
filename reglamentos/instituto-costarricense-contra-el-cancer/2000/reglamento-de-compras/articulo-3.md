@@ -1,0 +1,1 @@
+Artículo 3º—En cualquiera de los tipos de compra contemplados en el artículo 2º de presente reglamento, deberán recibirse un mínimo de tres cotizaciones por parte del Departamento de Proveeduría, quien hará las recomendaciones pertinentes. Quedarán exentos de las tres cotizaciones aquellos montos considerados como montos máximos de caja chica.
