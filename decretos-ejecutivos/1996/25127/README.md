@@ -14,3 +14,4 @@ Declara como Secreto de Estado los archivos y registros de trasiego de drogas, l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-03 | la propia norma |
+| 2 | 1996-05-03 | SINALEVI (sin norma nombrada) |
