@@ -1,0 +1,1 @@
+Art. 2°-Nombrase igualmente Magistrados del mismo Supremo Tribunal, a los Señores Doctor Don Rafael Orozco, Doctor Don Pedro M. de Leon Páez, Licenciado Don Alejandro Alvarado, Licenciada Don José Maria Ugalde, Licenciado Don Rafael Chacon; y Magistrado Fiscal al Licenciado Don Gerardo Castro. El primero de los nombrados será el Presidente de la 2º Sala.
