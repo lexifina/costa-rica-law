@@ -1,0 +1,1 @@
+Art. 2°_El Secretario de Estado en el Despacho de Gobernacion queda encargado de la ejecucion de este Decreto, -Dado en el Palacio Nacional, en San José, á los quince dina del mes de Junio de mil ochocientos setenta y siete,-Vicente Herrera,-EI Secretario de Estado en Despacho de Gobernación, Rafael Machado.
