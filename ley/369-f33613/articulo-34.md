@@ -1,0 +1,4 @@
+Artículo 34.-EI Poder Ejecutivo. salvo disposición expresa de la ley, podrá conmutar la pena de arresto por la de multa, a razón de dos colones por día.
+La solicitud de gracia se sustanciará con arreglo a lo dispuesto en la Sección 2da del Capítulo IV, Título V, Libro I del Código Penal; pero sin oír el parecer previo del Consejo Nacional de Prisiones ni de la Corte Suprema de Justicia.
+Si el reo se encontrare en libertad, para que se dé curso a la solicitud, es indispensable que se presente constancia de haber depositado en la tesorería respectiva, una suma equivalente al monto de la multa. que se tendría que satisfacer en caso de obtener la conmutación.
+Si estuviere preso, la conmutación surtirá sus efectos a partir del momento en que se pague la suma que corresponda, y el reo será puesto en libertad al exhibir el respectivo comprobante de entero.

@@ -1,0 +1,1 @@
+Artículo 138.-El que desobedeciere a un funcionario público en el ejercicio de su cargo, o a la persona que a requerimiento suyo o por obligación legal le preste auxilio, sufrirá arresto de uno a cincuenta días o multa de dos a cien colones.

@@ -1,0 +1,2 @@
+Artículo 33.-Será consecuencia necesaria de la pena de arresto, la suspensión del ejercicio de cargos y oficios públicos, con privación de sueldos, ya se imponga el arresto directamente, ya resulte de la conversión legal de la multa.
+La suspensión comienza y concluye con la pena de arresto de que es consecuencia. Cumplido e! arresto, recobrará e! penado su capacidad para continuar en el desempeño del cargo o empleo, siempre que en los de período fijo, éste no hubiere trascurrido.

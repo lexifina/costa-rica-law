@@ -1,0 +1,1 @@
+Artículo 101.-Se pronunciará arresto de treinta a ciento ochenta días contra el funcionario público que celebre un matrimonio prohibido, según el Código Civil, o en que no se hayan llenado las formalidades que exige la ley para su celebración.
