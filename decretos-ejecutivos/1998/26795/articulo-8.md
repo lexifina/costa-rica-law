@@ -1,1 +1,0 @@
-Artículo 8°—Asignación de delegados por sector. Con dos meses de anticipación al inicio de cada período de la Asamblea de Trabajadores, la Comisión asignará a cada uno de los sectores indicados en el artículo 14 de la Ley Orgánica del Banco el número de delegados que le correspondan de conformidad con lo dispuesto en la presente reglamentación.

@@ -1,1 +1,0 @@
-Artículo 25.—Sindicalismo Confederado. En la asamblea del Sindicalismo Confederado cada una de las confederaciones deberá ser representada por su Presidente o su Secretario General y deberá presentar, de previo a la Asamblea, una certificación actualizada de su personería jurídica vigente al día de celebración de la Asamblea de Sector.

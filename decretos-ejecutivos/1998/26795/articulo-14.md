@@ -1,1 +1,0 @@
-Artículo 14.—Integración de la Asamblea con el quórum mínimo. La Comisión declarará integrada válidamente la Asamblea de Trabajadores cuando tenga por acreditados al menos la mitad más uno de los delegados propietarios. Posteriormente podrán acreditarse los delegados de los sectores que no hubiesen realizado las designaciones respectivas oportunamente.

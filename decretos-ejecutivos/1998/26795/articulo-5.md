@@ -1,1 +1,0 @@
-Artículo 5°—Asignación de delegados. Mínimo. Cuando alguno de los sectores indicados en el artículo 14 de la Ley Orgánica no cuente entre sus miembros o afiliados con el número de copropietarios requerido para obtener al menos un miembro de la Asamblea de Trabajadores, deberá, como mínimo, asignársele un delegado para efectos de conservar su participación en dicho órgano.

@@ -1,1 +1,0 @@
-Artículo 32.- El presente Decreto Ejecutivo deroga el Decreto número 17038-P, dado en la Presidencia de la República, a los 23 días del mes de mayo de 1986, así como cualquier otra disposición que se le oponga
