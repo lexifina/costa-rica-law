@@ -1,0 +1,1 @@
+Artículo 9°-A las sesiones del Comité Técnico podrán ser invitados con derecho a voz, representantes de otras instituciones públicas relacionadas con las labores del Comité Técnico y, en general, todas aquellas personas a quienes la Comisión estime conveniente escuchar.
