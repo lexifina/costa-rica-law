@@ -1,0 +1,1 @@
+Artículo 4º.- El personal docente y administrativo del Colegio será nombrado por su Junta Administrativa, conforme a las normas establecidas por el Servicio Civil y las complementarias que dicte el Ministerio de Educación Pública.
