@@ -1,0 +1,1 @@
+4°—Los inmuebles adjudicados en virtud de la presente ley, no podrán ser traspasados o enajenados durante un lapso de diez años, salvo en el caso de garantías hipotecarias con alguna institución financiera estatal, para efectos de vivienda o de actividades productivas en los propios terrenos.

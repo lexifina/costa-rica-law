@@ -1,0 +1,1 @@
+Artículo 6° --En los casos en que el terreno sea parte de un derecho inscrito sobre un inmueble, el Instituto Mixto de Ayuda Social, previamente al traspaso del lote respectivo, promoverá la correspondiente localización de derechos indivisos ante el juez competente
