@@ -1,0 +1,1 @@
+Artículo 4º—La vigencia de la autorización será de cinco años contados a partir de notificada la resolución de otorgamiento. Antes del vencimiento deberá solicitarse la renovación ante la DGTCC, aportando la(s) bitácora(s) que ha utilizado hasta ese momento.
