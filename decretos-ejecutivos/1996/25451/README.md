@@ -14,3 +14,4 @@ Reglamento Uso Público Regular Actividades Parque Nacional Tortuguero
 | --- | --- | --- |
 | 1 | 1996-09-23 | la propia norma |
 | 2 | 2000-01-15 | SINALEVI (sin norma nombrada) |
+| 3 | 2000-01-15 | Ley 7 |
