@@ -15,3 +15,4 @@ Reglamento para el Control de la Elaboración y Expendio de Alimentos para Anima
 | --- | --- | --- |
 | 1 | 1986-04-10 | la propia norma |
 | 2 | 1987-02-05 | Decreto Ejecutivo 17413 (1987-02-05) |
+| 3 | 1992-01-06 | Decreto Ejecutivo 20981 (1992-01-06) |
