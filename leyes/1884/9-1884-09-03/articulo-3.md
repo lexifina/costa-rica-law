@@ -1,0 +1,1 @@
+Art. 3°-Cada trimestre se cubrirán los intereses de todas las cédulas; y la cantidad que sobrare del producto de la renta de licores del país, se aplicará á la amortización de las cédulas que designe la suerte, en la forma que el Poder Ejecutivo determine.
