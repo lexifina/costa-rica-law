@@ -31,6 +31,6 @@ ARTÍCULO 2°: EGRESOS ORDINARIOS EXTRAORDINARIOS PARA 2004.
 (Así reformado por el artículo 7° de la Ley N °8424 del 7 de octubre del 2004)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32095 del 15 de octubre del 2004)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32114 del 26 de octubre del 2004)
-(Modificado por el artículo 1° del decreto ejecutivo N° 32119 del 8 de noviembre del 20004)
-(Modificado por el artículo 2° del decreto ejecutivo N° 32119 del 8 de noviembre del 2004)
+(Modificado por los artículos 1° y 2°, del decreto ejecutivo N° 32119 del 8 de noviembre del 20004)
 (Modificado por el artículo 1° del decreto ejecutivo N° 32126 del 24 de noviembre del 2004)
+(Modificado por el artículo 1° del decreto ejecutivo N° 32134 del 30 de noviembre del 2004)
