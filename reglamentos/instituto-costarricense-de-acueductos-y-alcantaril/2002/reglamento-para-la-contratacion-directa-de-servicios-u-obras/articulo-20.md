@@ -1,0 +1,2 @@
+Selección
+Artículo 20.—La selección de los proveedores se realizará en forma consecutiva y en grupos de cinco, de conformidad con el orden en que se encuentren en la lista de integrantes del Registro, y será responsabilidad de la Dirección, la cual deberá llevar un estricto rol de asignación que permita la participación igualitaria y equitativa con respecto al número de contrataciones que se realicen en el año.

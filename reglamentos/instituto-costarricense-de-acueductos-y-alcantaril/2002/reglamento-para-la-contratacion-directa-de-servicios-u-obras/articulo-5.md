@@ -1,0 +1,1 @@
+Artículo 5º—Las actividades han sido clasificadas de acuerdo a la complejidad que su ejecución requiera o a la inversión en equipo y personal necesarios. El proveedor podrá participar en cualquiera de las clasificaciones señaladas en este Reglamento.

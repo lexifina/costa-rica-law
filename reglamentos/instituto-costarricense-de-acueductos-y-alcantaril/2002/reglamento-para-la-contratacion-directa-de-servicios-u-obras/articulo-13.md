@@ -1,0 +1,1 @@
+Artículo 13.—Contra la decisión de rechazo de la solicitud de ingreso, que adopte la Dirección, cabrá recurso de apelación por parte del proveedor afectado, ante la Junta Directiva, dentro de los tres días hábiles siguientes a su publicación. La resolución de dicho recurso dará por agotada la vía administrativa.

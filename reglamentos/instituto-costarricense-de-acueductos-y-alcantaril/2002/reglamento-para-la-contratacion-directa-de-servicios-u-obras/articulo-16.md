@@ -1,0 +1,6 @@
+CAPÍTULO III
+Procedimiento de contratación
+Inicio del procedimiento de contratación
+Artículo 16.—La decisión de iniciar un procedimiento de contratación directa bajo el presente sistema de Registro de Elegibles, corresponderá única y exclusivamente a la Comisión Asesora para la Contratación de Bienes y Servicios, en ella participará un representante de la Gerencia, en adelante denominada la Comisión.
+La contratación de actividades para el Área Operativa por el presente procedimiento debe circunscribirse únicamente a necesidades imprevisibles que requieren respuestas inmediatas.
+La parte técnica presentará una justificación completa y detallada de las razones por las cuales el sistema que contempla el presente reglamento es la única forma satisfactoria para lograr el fin público. Deberá presentar además los términos de referencia o especificaciones técnicas, descripción del proyecto, escala de precios y cantidades, planos, estudio de impacto ambiental, si se requiere, la disponibilidad presupuestaria para la ejecución del contrato, citará cuál modalidad de adjudicación de las que se establecen en este reglamento será la aplicable en el procedimiento y todo aquello necesario para la ejecución del proyecto o servicio.

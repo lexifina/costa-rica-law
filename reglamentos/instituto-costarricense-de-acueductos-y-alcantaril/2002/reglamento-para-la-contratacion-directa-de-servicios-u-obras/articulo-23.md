@@ -1,0 +1,1 @@
+Artículo 23.—La oferta deberá indicar expresamente: el nombre y dirección del oferente, incluyendo la ciudad, provincia, país, número de teléfono y número de proveedor asignado por el AyA. Asimismo, deberá señalar un lugar para atender notificaciones pudiendo ser un número de facsímil (fax) o correo electrónico.

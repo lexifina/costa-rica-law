@@ -1,0 +1,1 @@
+Artículo 22.—Todas las ofertas deberán venir debidamente firmadas por el representante legal de la empresa y tendrán una vigencia de 15 días hábiles, contados a partir del día establecido para la apertura de las ofertas.

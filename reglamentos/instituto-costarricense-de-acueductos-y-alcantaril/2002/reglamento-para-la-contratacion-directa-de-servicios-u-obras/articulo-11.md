@@ -1,0 +1,2 @@
+Subsanaciones
+Artículo 11.—En cualquier tiempo dentro del plazo de estudio de las solicitudes de inscripción, la Dirección vía fax o correo electrónico, solicitará las subsanaciones de defectos formales no sustanciales de las mismas, necesarios para la evaluación técnica y legal. Dichas subsanaciones deberán ser presentadas ante ese despacho en el plazo de cinco días hábiles a partir del día hábil siguiente del recibo de tal solicitud, por iguales medios. De no presentarse las mismas en ese plazo, se rechazará de plano la solicitud de inscripción.

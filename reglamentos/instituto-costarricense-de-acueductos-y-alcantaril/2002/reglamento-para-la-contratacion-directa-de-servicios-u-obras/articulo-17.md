@@ -1,0 +1,1 @@
+Artículo 17.—Tomada la decisión de adoptar este procedimiento por parte de la Comisión, la Dirección de Suministros, procederá a formar el expediente de la Contratación Directa Autorizada. Estos expedientes se identificarán con las siglas CDA y llevarán una numeración consecutiva.
