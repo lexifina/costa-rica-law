@@ -1,0 +1,1 @@
+Artículo 16.—Arqueos en caso de ausencia del responsable de la caja chica. Cuando el encargado de la caja chica tenga que ausentarse por más de un día hábil de la empresa, el traslado del fondo a cargo deberá realizarse mediante arqueo practicado por su superior.

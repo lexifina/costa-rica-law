@@ -1,0 +1,1 @@
+Artículo 15.—Eficiencia de las cajas chicas. Es responsabilidad del encargado de caja chica mantener un eficiente servicio con apego a las disposiciones del presente reglamento. El trabajador que tenga pendiente una liquidación de un anticipo de dinero, no podrá solicitar otro hasta tanto no liquide el anterior.

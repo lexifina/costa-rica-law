@@ -1,0 +1,2 @@
+Artículo 5º—Obligación de denuncia. Es obligación de la Dirección de Finanzas, de los encargados de caja chica y de cualquier trabajador denunciar las infracciones del presente reglamento, ante el respectivo superior de quien cometa una irregularidad, con copia a la Auditoría Interna.
+En cualquiera de los casos anteriormente señalados en que esté comprobado un faltante en el fondo, se deberá coordinar inmediatamente con la Dirección de Administración para lo relativo al cobro del respectivo seguro.

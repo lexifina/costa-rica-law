@@ -1,0 +1,1 @@
+Artículo 2º—Definición de excepcional y urgencia. Se entiende por urgencia, aquellas necesidades apremiantes e impostergables. Requerimientos de ejecución instantánea y de tramitación inmediata y abreviada. Se entiende por excepcional, toda exclusión de la regla o generalidad, dispensa.
