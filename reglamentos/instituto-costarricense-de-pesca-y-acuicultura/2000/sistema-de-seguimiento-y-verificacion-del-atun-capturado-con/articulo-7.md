@@ -1,0 +1,1 @@
+7°—Cada lote de producción será identificado en los registros de procesamiento como "dolphin safe" o "no dolphin safe" indicándose la fecha de producción, códigos de fabricación, volúmenes, producto terminado y RSA correspondiente.

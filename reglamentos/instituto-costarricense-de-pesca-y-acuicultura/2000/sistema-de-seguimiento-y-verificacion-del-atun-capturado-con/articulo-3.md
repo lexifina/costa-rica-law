@@ -1,0 +1,1 @@
+3°—El "atún dolphin safe" deberá ser clasificado, pesado y almacenado separadamente del "atún no dolphin safe" en el frigorífico de la empresa, en tolvas debidamente identificadas y cuyos pesos y códigos serán registrados en el sistema de control de inventarios como "atún dolphin safe" o "no dolphin safe" con el RSA correspondiente.

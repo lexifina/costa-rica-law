@@ -1,0 +1,1 @@
+9°—Toda exportación de atún que se produzca con "atún dolphin safe" deberá ser acompañada de una certificación oficial, emitida por el INCOPESCA, en la cual se consignará el origen "dolphin safe" del atún procesado y los números de RSA correspondientes, de tal manera que fácilmente una Auditoría pueda seguir la transabilidad del atún en las diferentes etapas de manejo.

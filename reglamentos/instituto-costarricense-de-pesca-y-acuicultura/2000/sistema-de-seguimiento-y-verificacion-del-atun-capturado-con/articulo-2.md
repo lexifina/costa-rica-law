@@ -1,0 +1,1 @@
+2°—El "atún dolphin safe" y el "atún no dolphin safe" deberá ser descargado del barco en contenedores diferentes. La guía de transporte de cada contenedor indicará claramente la bodega de procedencia del barco y el número de RSA correspondiente, ya sea si es "atún dolphin safe" o "no dolphin safe".

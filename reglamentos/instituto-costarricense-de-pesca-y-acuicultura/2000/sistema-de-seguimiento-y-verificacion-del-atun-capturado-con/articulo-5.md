@@ -1,0 +1,1 @@
+5°—Los requerimientos de "atún dolphin safe" y de "atún no dolphin safe" para procesamiento se realizarán en cuanto al inventario en forma separada. En la guía de salida de inventario se consignará si es "atún dolphin safe" o "no dolphin safe", los números de las tolvas de almacenamiento que se envían a producción y el número de RSA al que corresponden.
