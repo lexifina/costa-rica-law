@@ -1,0 +1,1 @@
+Artº 31.-La lectura de molde deberá ser solo en libros de historia, sagrada ó profana, y gacetas ó papeles publicos que se acopiaren en la escuela al efecto, y no se permitirá a los niños la lectura en otros.

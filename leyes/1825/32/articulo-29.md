@@ -1,0 +1,1 @@
+Artº 29.-Asi mismo irá entablando sucesivamente el estudio de los ramos que se le encargan, pidiendo al Rector los quadernos, ó artes correspondientes, y haciendo sacar las copias necesarias á los escribientes adelantados.

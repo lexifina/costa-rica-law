@@ -1,0 +1,1 @@
+Artº 60.-Todo Dicipulo tiene derecho á quejarse ante el Rector de qualquiera defecto que en esta parte tenga el Maestro; pero no á publicarlo, ni referirlo á otros, ni al mismo, sinó con mucha moderacion y respeto.

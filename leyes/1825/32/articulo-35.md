@@ -1,0 +1,1 @@
+Artº 35.-Los que decoren se ocuparán hora y media en este oficio, pasada la qual se dedicarán al estudio de los antedichos ramos: siguiendo el mismo orden los que lean cartas, y pasando al estudio de Gramatica castellana, luego que concluyan estos.

@@ -1,0 +1,1 @@
+Artº 3º.-Este solo podrá ser alterado por la autoridad, á cuya direccion están los fondos de que se doten, por la Ley del Estado sobre instruccion publica ó la misma de la Republica de las Provincias unidas.

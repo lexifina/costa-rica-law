@@ -1,0 +1,1 @@
+Artº 26.-Para las ocurrencias sensillas, y frequentes, como dar lecciones, tomarlas, hacer guardar sosiego á los niños, y buen orden, tendrá un ayudante dotado de su mismo sueldo que le desempeñe mientras él se ocupa en objetos mas utiles y dificiles.
