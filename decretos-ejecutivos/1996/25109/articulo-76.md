@@ -1,5 +1,5 @@
 Artículo 76.- Revalorización. Fórmula matemática
-Para revalorizar los montos de la prestaciones otorgadas al amparo
+Para revalorizar los montos de las prestaciones otorgadas al amparo
 de la Ley Nº 7531, se utilizará las siguientes fórmulas matemáticas:
 a) En el caso de que la revalorización sea por un monto fijo de
 dinero la fórmula será:

@@ -11,6 +11,6 @@ Administración de Personal del Ministerio de Educación Pública, sobre el
 resultado de los tratamientos de rehabilitación.
 La renuencia o contumacia a someterse a tales tratamientos, suspende
 de pleno derecho el pago de las prestaciones, las cuales se restablecerán
-en el momento en que el pensionado se someta a eso tratamientos, sin que
-por tal razón, adquiera el derecho al pago de lo montos dejados de
+en el momento en que el pensionado se someta a esos tratamientos, sin que
+por tal razón, adquiera el derecho al pago de los montos dejados de
 percibir por razón de su contumacia.

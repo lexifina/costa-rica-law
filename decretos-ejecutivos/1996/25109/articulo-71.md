@@ -1,5 +1,5 @@
 Artículo 71.- Rehabilitación y restitución
-En caso de que los exámenes de revisión indiquen que e funcionario
+En caso de que los exámenes de revisión indiquen que el funcionario
 ha recuperado su capacidad, será restablecido en su puesto original, si
 así lo solicita expresamente y si es posible. De no hacer efectiva esta
 opción en el plazo de treinta días contados a partir de la comunicación

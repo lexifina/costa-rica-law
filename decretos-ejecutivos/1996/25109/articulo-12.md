@@ -12,3 +12,5 @@ Para los efectos de reglamentar el traslado de funcionarios del
 Régimen Transitorio de Reparto al de Invalidez Vejez y Muerte de la Caja
 Costarricense de Seguro Social el Poder Ejecutivo emitirá un reglamento
 especial.
+( NOTA: Cumplimentada la disposición final por Decreto Ejecutivo Nº
+26069 de 26 de mayo de 1997).

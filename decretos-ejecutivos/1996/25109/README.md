@@ -13,3 +13,4 @@ Reglamenta Sistema de Pensiones y Jubilaciones del Magisterio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-10 | la propia norma |
+| 2 | 1996-05-10 | Decreto Ejecutivo 25349 (1996-07-08) |

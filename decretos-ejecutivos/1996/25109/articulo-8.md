@@ -16,5 +16,5 @@ Seguros, podrán solicitar el beneficio de pensión según la ley
 7268 mediante el procedimiento de declaratoria de invalidez que
 se define en este reglamento, hasta antes del 13 de enero de
 1997(*).
-(*) (Corregido por Fe de Erratas en La Gaceta Nº 31 de 13 de
+(*)(Corregido por Fe de Erratas en La Gaceta Nº 31 de 13 de
 Febrero de 1998).
