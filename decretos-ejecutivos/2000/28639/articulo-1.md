@@ -40,10 +40,10 @@ Consejo Nacional de Producción 9.058.0
 Consejo Nacional de Investigación Científicas y Tecnológica 297.8
 Consejo Nacional de Rehabilitación y Educación Especial 440.0
 Consejo Técnico Asistencia-Médico Social (CTAMS) 802.8
-Dirección de Servicio de Protección Fitosanitaria 751.5
+Dirección de Servicio de Protección Fitosanitaria 751.5 (Se modifica a 886.5, mediante el Decreto Ejecutivo N°. 29654-H del 11 de julio del 2001)
 Dirección de Geología, Minas e Hidrocarburos 27.4
 Dirección de Migración y Extranjería 512.7
-Dirección de Salud y Producción Pecuaria 551.2
+Dirección de Salud y Producción Pecuaria 551.2 (Se modifica a 536.2, mediante el Decreto Ejecutivo N°. 29654-H del 11 de julio del 2001)
 Dirección Ejecutora de Proyectos de MIDEPLAN 214.0
 Dirección General de Aviación Civil 4.594.7
 Dirección General del Archivo Nacional 389.5

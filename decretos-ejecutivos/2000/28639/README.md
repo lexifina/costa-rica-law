@@ -54,3 +54,4 @@ Directrices Política Presupuestaria 2001 Ministerios y EntidadesPúblicas Cubie
 | 39 | 2001-06-01 | Decreto Ejecutivo 29603 (2001-06-01) |
 | 40 | 2001-06-11 | Decreto Ejecutivo 29640 (2001-06-11) |
 | 41 | 2001-06-20 | Decreto Ejecutivo 29642 (2001-06-20) |
+| 42 | 2001-07-11 | Decreto Ejecutivo 29654 (2001-07-11) |
