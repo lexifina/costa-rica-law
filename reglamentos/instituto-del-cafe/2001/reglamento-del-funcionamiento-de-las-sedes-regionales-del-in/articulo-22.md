@@ -1,1 +1,0 @@
-Artículo 22.—La comunicación de los acuerdos del Consejo deben de ser firmados por la secretaria de actas del Consejo Regional, o sea por la secretaria de la Sede Regional del ICAFÉ. La secretaria de actas del Consejo Regional no devengará remuneración adicional por la atención de las sesiones del Consejo.

@@ -1,2 +1,0 @@
-Artículo 16.—Si alguno de los miembros se ausenta dos veces seguidas o alternas de las reuniones del Consejo sin justificación previa o que la justificación no sea aceptada por el ICAFÉ, será motivo de destitución por parte del ICAFÉ. Para su sustitución se seguirá el procedimiento descrito en el artículo 15 de este Reglamento Interno. Asimismo, el ICAFÉ se reserva la facultad de destituir a los miembros del consejo cuando exista causa que lo amerite, habiéndole garantizado de previo el debido proceso.
-Reuniones del Consejo Regional

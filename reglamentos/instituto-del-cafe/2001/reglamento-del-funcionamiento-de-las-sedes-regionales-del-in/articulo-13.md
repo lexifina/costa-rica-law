@@ -1,1 +1,0 @@
-Artículo 13.—Los miembros del Consejo Regional serán nombrados por la Junta Directiva del ICAFÉ por un período de dos años y podrán ser reelectos. Tal nombramiento se hará de forma que los miembros del Consejo inicien sus funciones el primer día hábil del mes de enero del año siguiente al nombramiento de la Junta Directiva del ICAFÉ.
