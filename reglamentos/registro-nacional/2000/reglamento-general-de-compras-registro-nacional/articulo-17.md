@@ -1,0 +1,1 @@
+Articulo 17.—Informes. Los funcionarios responsables de las compras, citados en los incisos b) y c) del artículo 14, cada tres meses, deberán remitir a la Junta Administrativa del Registro Nacional, un listado de las compras que han autorizado.
