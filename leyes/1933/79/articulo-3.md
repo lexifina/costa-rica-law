@@ -1,0 +1,1 @@
+Artículo 3°—Además, de sus propios fondos, el Banco Internacional destinará hasta quinientos mil colones para hacer préstamos a los industriales, en cantidades no mayores de treinta mil colones por persona, y a los plazos y con las garantías que el Banco estime convenientes.
