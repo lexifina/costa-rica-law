@@ -1,0 +1,1 @@
+Artículo 19.—De las denuncias falsas. Podrá incurrir en los delitos de difamación, injuria o calumnia, toda persona que interponga denuncia falsa de acoso sexual, de conformidad con lo dispuesto en el artículo 16 de la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia, en concordancia con el Código Penal y tal conducta constituye falta grave.

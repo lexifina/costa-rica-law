@@ -1,0 +1,1 @@
+Artículo 25.—Prescripción. Los plazos contenidos en el presente Reglamento son ordenatorios y no perentorios. No obstante, de conformidad con lo dispuesto en el artículo 29 de la "Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia", el plazo para interponer la denuncia por hostigamiento sexual se rige por lo dispuesto en el Título Décimo del Código de Trabajo.

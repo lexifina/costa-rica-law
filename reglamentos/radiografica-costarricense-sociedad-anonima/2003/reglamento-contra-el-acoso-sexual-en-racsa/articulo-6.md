@@ -1,0 +1,1 @@
+Artículo 6º—Finalidad de la Política Empresarial. La política empresarial en la materia de acoso sexual tenderá a implementar la sensibilización de todos los trabajadores y las trabajadoras ante los valores empresariales de respeto a la dignidad humana y la igualdad de género.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente Reglamento regirá para todos los funcionarios de RACSA, tanto en las relaciones entre compañeros de trabajo, como en aquellas relaciones que se generen entre el personal ordinario y los que laboran en la Empresa bajo modalidades de contratación distintas al nombramiento usual.

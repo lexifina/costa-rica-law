@@ -1,0 +1,1 @@
+Artículo 9º—Dotación presupuestaria. Recursos Humanos se encargará de coordinar las acciones para los fines indicados en el artículo 8, así como otros que se requiera para la eficaz aplicación de esta Ley en la Empresa.

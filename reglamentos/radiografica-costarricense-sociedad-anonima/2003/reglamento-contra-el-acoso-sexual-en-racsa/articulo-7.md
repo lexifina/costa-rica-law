@@ -1,0 +1,1 @@
+Artículo 7º—Órganos responsables de la prevención. Recursos Humanos coordinará acciones preventivas y educativas derivadas de la obligatoriedad que establece la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia en su Capítulo III, tendientes a prevenir, desalentar, evitar el acoso sexual como las falsas denuncias de éste.
