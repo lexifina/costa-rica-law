@@ -240,16 +240,16 @@ Partidas Subpartidas e incisos | Descripción | DAI % sobre Valor CIF
 38.08 00 00 | Colofonias y ácidos resínicos, y sus derivados, excepto las resinas esterificadas de la partida 39.05; esencia de colofonia y aceite de colofonia... ... . | 5
 38.09 00 00 | Alquitranes de madera; aceites de alquitranes de madera (distintos de los disolventes y diluyentes compuestos de la partida 38.18); creosota de madera; metileno; aceite de acetona; pez vegetal de todas clases; pez de cerveceros y productos análogos a base de colofonias o de pez vegetal; aglutinantes para núcleos de fundición a base de productos resinosos naturales ... ... ... ... ... | 5
 (38.10) | |
-38.11 Desinfectantes, insecticidas, fungicidas raticidas,
-herbicidas, inhibidores de germinación, reguladores
-del crecimiento de las plantas y productos similares,
-presentados como preparaciones o en formas
-o envases para la venta al por menor o en artículos
-tales como cintas, mechas y bujías azufradas y
-y papeles matamoscas
-01 Desinfectantes
-01 A base de aceite de pino y de agentes tensoactivos
-de amonio cuaternario ... ... ... ... ... ... ... .. 30
+38.11 | Desinfectantes, insecticidas, fungicidas raticidas, |
+| herbicidas, inhibidores de germinación, reguladores |
+| del crecimiento de las plantas y productos similares, |
+| presentados como preparaciones o en formas |
+| o envases para la venta al por menor o en artículos |
+| tales como cintas, mechas y bujías azufradas y |
+| y papeles matamoscas |
+01 | Desinfectantes |
+01 | A base de aceite de pino y de agentes tensoactivos |
+| de amonio cuaternario ... ... ... ... ... ... ... .. | 30
 99 Los demás ... ... ... ... ... ... ... ... ... ... .. 15
 02 Insecticidas
 01 A base de canfenos clorados, clordimeform o
@@ -7711,9 +7711,103 @@ Código | Descripción | T.M. | (%) | (%)
 Nota: El artículo N° 1° del Decreto Ejecutivo No. 31727 de 23 de marzo de 2004 hizo una modificación, para Costa Rica, de la siguiente manera:
 Código Descripción DAI(%)
 8524.32.00 Para reproducir únicamente sonido 10
-Nota: Mediante artículo 1° del Decreto Ejecutivo N° 32865 de 14 de junio de 2004, se prorroga "...la vigencia del Decreto Ejecutivo N° 30901-COMEX publicado en el Alcance 94 a La Gaceta N° 251 del 30 de diciembre de 2002, el cual realiza una apertura arancelaria y modifica los Derechos Arancelarios a la Importación contemplados en el Arancel Centroamericano de Importación, como se detalla a continuación:"
+Nota: Mediante artículo 1° del Decreto Ejecutivo N° 31865 de 14 de junio de 2004, se prorroga "...la vigencia del Decreto Ejecutivo N° 30901-COMEX publicado en el Alcance 94 a La Gaceta N° 251 del 30 de diciembre de 2002, el cual realiza una apertura arancelaria y modifica los Derechos Arancelarios a la Importación contemplados en el Arancel Centroamericano de Importación, como se detalla a continuación:"
 SAC | Descripción | DAI
 32.09 | PINTURAS Y BARNICES A BASE DE DE POLIMEROS O MODIFICADOS, DISPERSOS O DISULTOS EN UN MEDIO ACUOSO |
 3209.10 | -A base de polímeros acrílicos o vinílico |
 3209.10.10 | — Barniz para artes gráficas | 0
 3209.10.90 | — Otros | 14
+NOTA: Mediante el artículo 1° del decreto ejecutivo N° 31963 del 26 de julio de 2004, se pone en vigencia la resolución N° 116-2004 (COMIECO), que modifica al Arancel Centroamericano de Importación conforme se consigna en el anexo siguiente, el cual forma parte integrante del anexo "A" del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano y el artículo 2° establece que de conformidad con la Resolución N° 48-94 (CONSEJO-XII) de fecha 23 de febrero de 1994, que autoriza a Costa Rica para que las tarifas de 10% y 15% incluyan el gravamen del 1% de la Ley N° 6946, a los incisos que aparecen en el anexo siguiente, con tarifas 10% y de 15%, aplicar un arancel de 9% y de 14% respectivamente:
+ANEXO RESOLUCIÓN Nº 116-2004 (COMIECO)
+SAC | Descripción | DAI
+2701.11.00 | — Antracitas | 5
+2701.19.00 | — Las demás hullas | 5
+2702.10.00 | - Lignitos, incluso pulverizados, pero sin |
+| aglomerar | 5
+2702.20.00 | - Lignitos aglomerados | 5
+2707.10.00 | - Benzol (benceno) | 10
+2707.20.00 | - Toluol (tolueno) | 10
+2707.30.00 | - Xilol (xilenos) | 10
+2707.40.00 | - Naftaleno | 10
+2707.50.00 | - Las demás mezclas de hidrocarburos aromáticos |
+| que destilen una proporción superior o |
+| igual al 65% de su volumen (incluidas las pérdidas) |
+| a 250°C, según la norma ASTM D 86 | 10
+2707.60.00 | - Fenoles | 10
+2707.91.00 | — Aceites de creosota | 10
+2917.32.90 | —- Otros | 10
+3506.91.90 | —- Otros | 15
+3506.99.00 | — Los demás 15 |
+4012.11.00 | — De los tipos utilizados en automóviles de turismo |
+| (incluidos los del tipo familiar -"Break" o |
+| "Station Wagon"- y los de carreras) | 15
+4012.12.00 | — De los tipos utilizados en autobuses o camiones | 15
+4012.13.00 | — De los tipos utilizados en aeronaves | 15
+4012.19.00 | — Los demás | 15
+4012.20.00 | - Neumáticos (llantas neumáticas) usados | 15
+4802.55.19 | —— Los demás | 0
+4802.55.31 | —— De anchura superior a 150 mm pero inferior |
+| a 559 mm | 0
+4802.56.19 | —— Los demás (papel bond) | 0
+4802.56.31 | —— En hojas en las que un lado sea superior a |
+| 360 mm y el otro sea superior a 150 mm | 0
+4802.57.19 | —— Los demás | 0
+4802.57.21 | —— En hojas en las que un lado sea superior a |
+| 435 mm y el otro sea superior a 297 mm o en |
+| tiras de anchura superior a 150 mm | 0
+4802.58.11 | —— En tiras o bobinas (rollos) de anchura superior |
+| a 150 mm pero inferior a 559 mm o en |
+| hojas en las que un lado sea superior a 360 mm |
+| y el otro sea superior a 150 mm, sin plegar | 0
+4802.61.19 | —— Los demás | 0
+4802.62.10 | —- En hojas en las que un lado sea superior a |
+| 360 mm y el otro sea superior a 150 mm | 0
+4802.69.10 | —- En hojas en las que un lado sea superior a |
+| 435 mm y el otro sea superior a 297 mm o en |
+| tiras de anchura superior a 150 mm | 0
+5603.91.00 | — De peso inferior o igual a 25 g/m² | 0
+7210.70.10 | — Pintados con pintura esmalte, de espesor |
+| superior o igual a 0.16 mm pero inferior o igual |
+| a 1.55 mm 15 |
+7212.30.10 | — De espesor superior o igual a 0.16 mm pero |
+| inferior o igual a 1.55 mm | 15
+7213.10.00 | - Con muescas, cordones, surcos o relieves, |
+| producidos en el laminado | 15
+7214.91.10 | —- Con un contenido de carbono superior o igual |
+| al 0.6% en peso y cuya mayor dimensión de la |
+| sección transversal sea superior a 13 mm | 15
+7214.99.10 | —- De sección transversal cuadrada cuya mayor |
+| dimensión sea superior a 13 mm, con un contenido |
+| de carbono superior o igual al 0.6% en |
+| peso | 15
+7216.10.91 | —- En I, de altura inferior o igual a 50 mm | 15
+7216.10.92 | —- En H, de altura inferior o igual a 50 mm | 15
+7216.21.10 | —- De espesor superior o igual a 1.8 mm pero |
+| inferior o igual a 6.4 mm y altura superior |
+| a 12 mm | 15
+7216.31.10 | —- De espesor superior o igual a 1.8 mm pero |
+| inferior o igual a 6.4 mm | 15
+7216.61.00 | — Obtenidos a partir de productos laminados |
+| planos | 15
+7216.69.00 | — Los demás | 15
+7217.20.31 | —- De sección circular, de diámetro superior o |
+| igual a 0.8 mm pero inferior o igual |
+| a 5.15 mm | 15
+7217.20.32 | —- De sección rectangular, de espesor superior |
+| o igual a 0.35 mm pero inferior o igual a 0.7 |
+| mm y anchura superior o igual a 0.5 mm pero |
+| inferior o igual a 3 mm | 15
+7306.30.10 | — Tubos de diámetro exterior superior o igual a |
+| 12 mm pero inferior o igual a 115 mm y espesor |
+| de pared superior o igual a 0.8 mm pero inferior |
+| o igual a 6.4 mm, incluso cincados | 15
+7310.29.00 | — Los demás | 15
+7323.10.00 | - Lana de hierro o acero; esponjas, estropajos, |
+| guantes y artículos similares para fregar, lustrar |
+| o usos análogos | 15
+7323.91.90 | —- Otros | 15
+7323.92.90 | —- Otros | 15
+7323.93.90 | —- Otros | 15
+7323.94.90 | —- Otros | 15
+8716.31.00 | — Cisternas | 10
+8716.39.00 | — Los demás | 10
