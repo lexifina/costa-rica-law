@@ -14,3 +14,4 @@ Reforma Certamen de Bellas Artes "José María Zeledón Brenes"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-05 | la propia norma |
+| 2 | 2004-06-15 | Decreto Ejecutivo 31885 (2004-06-15) |
