@@ -13,3 +13,4 @@ Reforma Reglamento Exportación Carne Ganado Bovino Hembra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-01-27 | la propia norma |
+| 2 | 1986-01-27 | Decreto Ejecutivo 16935 (1986-03-31) |
