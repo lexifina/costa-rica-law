@@ -12,3 +12,5 @@ Ingreso total proyectado: Es el monto total de dinero, que en un determinado per
 Gasto total proyectado: Erogaciones totales de dinero, que por un determinado período, la Administración concedente estima realizará el concesionario para cumplir con el objeto de la concesión.
 Valor actual neto del proyecto: Es la suma de los ingresos totales proyectados menos los gastos totales proyectados de la concesión, traídos a valor presente.
 Servicios básicos: Todos aquellos que comprenden el objeto específico de la concesión y que sean imprescindibles para su ejecución.
+Contrapartida de cualquier tipo pagadas por la Administración: Contraprestación que deberá pagar la administración licitante por las obras y/o servicios que preste el concesionario incluidos en el contrato de concesión.
+(Así ampliado por el artículo 1° del Decreto Ejecutivo N° 28700 de 26 de junio de 2000)

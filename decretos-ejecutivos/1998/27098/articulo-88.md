@@ -5,3 +5,5 @@ Artículo 88.—Atribuciones de la Secretaría. La Secretaría será responsable
 88.1.4 Vigilar que el concesionario cumpla sus obligaciones, para lo que se encuentra facultada a realizar las inspecciones que considere necesarias, o solicitar la información que estime oportuna, en cualquiera de las fases de ejecución.
 88.1.5 Promover y divulgar, en el nivel nacional e internacional, los proyectos por concesionar. Con este propósito, la Secretaría queda autorizada para utilizar los medios que considere más apropiados para alcanzar este objetivo.
 88.1.6 Recomendar al Consejo la imposición de las multas y sanciones consignadas en los artículos 49 y siguientes de la Ley. La imposición de esta multas y sanciones deberá hacerse respetando las reglas del debido proceso.
+88.1.7.Todas las demás, que por delegación, le asigne el Consejo.
+(Así ampliado por el artículo 3° del Decreto Ejecutivo N° 28700 de 26 de junio de 2000)
