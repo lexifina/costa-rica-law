@@ -1,0 +1,4 @@
+Artículo 4°-—Los terrenos de dominio particular comprendidos dentro del área establecida en el artículo primero de este decreto, quedan sometidos automáticamente al Régimen Forestal, a fin de proteger los recursos naturales y biológicos allí existentes. Por tanto sólo se podrán realizar en ellos las actividades autorizadas por la Dirección General de Recursos Pesqueros y Vida Silvestre, con base en estudios que presentarán los interesados. En casos muy calificados se consultará a una comisión de especialistas integrada por un representante de cada una de las siguientes instituciones:
+Consejo Nacional de Rectores (CONARE). Colegio de Biólogos.
+Consejo Nacional de Investigación Científica y Tecnológica (CONICIT) y de la Dirección General de Recursos Pesqueros y Vida Silvestre.
+Los tres primeros miembros deberán ser especialistas en Ciencias del Mar.

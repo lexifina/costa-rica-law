@@ -1,0 +1,1 @@
+Artículo 5°—Los terrenos de dominio particular que se encuentren dentro de la presente reserva, podrán ser adquiridos por el Ministerio de Agricultura y Ganadería por compra directa o expropiación cuando, a juicio de la Dirección General de Recursos Pesqueros y Vida Silvestre así lo recomiende. Esos terrenos formarán parte del patrimonio forestal del Estado.
