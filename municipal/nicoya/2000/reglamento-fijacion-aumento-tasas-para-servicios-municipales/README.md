@@ -14,3 +14,4 @@ Reglamento Fijación Aumento Tasas para Servicios Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-12 | la propia norma |
+| 2 | 2000-01-12 | Ley 7 |
