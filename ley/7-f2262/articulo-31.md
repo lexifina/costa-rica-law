@@ -1,0 +1,1 @@
+Artículo 31.-Queda derogado el decreto Nº 14 de 14 desetiembre de 1923 y sin aplicación, en cuanto se oponga a las prescripciones de esta ley, las disposiciones del Capítulo III, Título IX, Libro II del Código Civil.

@@ -1,0 +1,1 @@
+Artículo 4º.-Las especies arqueológicas de la época pre-colombina, así como aquéllas que pertenezcan al período colonial, no podrán ser exportadas sin licencia de la Secretaría de Educación Pública, la cual, necesariamente, habrá de oír en cada caso el parecer de la Dirección del Museo Nacional.

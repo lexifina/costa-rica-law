@@ -1,0 +1,1 @@
+Artículo 29.-Se impondrá multa de cincuenta a mil colones,de acuerdo con la gravedad de la falta, a quien en cualquier forma, contravenga las disposiciones contenidas en la presente ley. Con el producto de tales multas se constituirá un fondo del Museo Nacional, para los fines indicados en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 27.-Para los efectos del artículo 4º, los funcionarios fiscales o de policía impedirán la exportación no autorizada de objetos arqueológicos los cuales, decomisarán poniendo al contraventor a la orden de la autoridad judicial competente.

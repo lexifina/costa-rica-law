@@ -1,0 +1,1 @@
+Artículo 7º.-El Museo Nacional de Costa Rica llevará un Registro donde deben ser inscritos todos los monumentos y objetos arqueológicos que tenga en custodia, consignado cuantos datos sean necesarios para identificarlos debidamente.
