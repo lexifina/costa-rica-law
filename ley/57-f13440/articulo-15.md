@@ -1,0 +1,1 @@
+Art. 15.-Cuando en las Secciones compuestas de que habla el art§ anterior, no resulte de las listas de sufragios de las fracciones, elección popular para representante, devolver el Directorio de la cabecera respectiva, listas de resultado a los Directorios de las fracciones para que se repita la votación, según lo dispuesto en el art° 87 de la Constitución.

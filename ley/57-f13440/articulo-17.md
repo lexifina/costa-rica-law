@@ -1,0 +1,1 @@
+Art. 17.-La Asamblea Constituyente se reunirá el veinte de Junio próximo para abrir los pliegos de elección de Representantes y hacer su calificación del modo que dispone al art° 84 de la Constitución.

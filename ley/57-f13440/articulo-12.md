@@ -1,0 +1,1 @@
+Art. 12.-Concluida la votación se hará el escrutinio por el Directorio, y resultando mayoría absoluta de los votos concurrentes por algún candidato, se tendrá por hecha su elección, y sentada el acta correspondiente, se remitirá copia de ella autorizada en pliego cerrado a la Secretaría de la Cámara de Representantes.

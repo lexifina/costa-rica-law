@@ -1,0 +1,1 @@
+Art. 19.-Hecha la instalación de la Cámara de Representantes procederá abrir los pliegos de votaciones para los otros Supremos Poderes, declarará su elección y verificará su posesión en la forma que previene el art§ 85 y siguientes de la Constitución.
