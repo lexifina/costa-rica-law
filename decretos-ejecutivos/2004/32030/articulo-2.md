@@ -1,0 +1,1 @@
+Artículo 2º—La Semana Nacional de Educación para la Prevención de Riesgos y Desastres, se celebrará durante la segunda semana del mes de octubre de cada año y estará ligada a la celebración del Día Internacional para la Reducción de los Desastres Naturales.

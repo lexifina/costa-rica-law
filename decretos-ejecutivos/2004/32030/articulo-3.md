@@ -1,0 +1,1 @@
+Artículo 3º—Todas las acciones programadas por realizarse antes, durante y después de la Semana Nacional de Educación para la Prevención de Riesgos y Desastres, se ejecutarán según los lineamientos establecidos en la Estrategia Nacional de Educación Ambiental.
