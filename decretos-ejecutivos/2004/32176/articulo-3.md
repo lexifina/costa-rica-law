@@ -1,0 +1,1 @@
+Artículo 3º—El incumplimiento del presente Reglamento será sancionado, según su gravedad de conformidad con lo dispuesto en la Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor, N° 7472 del 20 de diciembre de 1994; y en el Código Penal vigente.
