@@ -1,0 +1,13 @@
+Artículo 16.- Si la Junta Administrativa considera que la fundación
+no puede ser administrada de acuerdo con sus preceptos constitutivos o
+reglamentarios, solicitará al Juez Civil de su jurisdicción que disponga
+la forma en que deberá ser administrada o que ordene subsanar las
+deficiencias que en ella ocurran, siempre con el propósito de que se
+mantengan los fines para los que fue creada. A la solicitud se
+acompañará un informe de la Contraloría General de la República.
+Esas diligencias se seguirán por los trámites de jurisdicción
+voluntaria, con intervención de la Procuraduría General de la República.
+Igual procedimiento se seguirá para remover los administradores
+cuando no cumplan debidamente sus obligaciones. Acordada la remoción, el
+Juez comunicará lo conducente a fin de que se reponga el cargo de acuerdo
+con el artículo 11.
