@@ -1,0 +1,1 @@
+Artículo 6º—Atender de oficio, aquella correspondencia de mero trámite y hará llegar a las sesiones, las que por su complejidad e importancia, sea necesaria una respuesta con el criterio del concejo o comisión respectiva, así como su acuerdo.

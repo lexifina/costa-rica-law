@@ -1,0 +1,1 @@
+Artículo 11.—La Secretaria no podrá dejar sola su oficina en horas de horario ordinario, siempre deberá existir una persona que atienda la secretaría. Para tal efecto el alcalde del personal subalterno o a su cargo, la suplirá, mientras no se nombre una vicesecretaria por el Concejo.

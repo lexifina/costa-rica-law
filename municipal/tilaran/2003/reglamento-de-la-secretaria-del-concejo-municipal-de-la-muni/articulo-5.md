@@ -1,0 +1,1 @@
+Artículo 5º—Todos los asuntos que se dirijan al concejo y sus comisiones, será atendidos por la presidencia y la secretaría y puesto en conocimiento de su integrantes, en la sesión siguiente inmediata a su recibido; pero con carácter urgente, las hará saber vías fax y telefónica.

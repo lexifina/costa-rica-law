@@ -1,0 +1,1 @@
+Artículo 9º—La Secretaria es la responsable de dar aviso por escrito, vía telefónica o por fax, con 24 horas de anticipación, de las sesiones del concejo y sus comisiones, cuando se trate de una sesión extraordinaria convocada por el alcalde, entonces éste comunicará por escrito a la secretaría, para que dé cumplimiento a este artículo.

@@ -1,0 +1,1 @@
+Artículo 10.—Para cumplir con los objetivos de este Reglamento, el concejo incluirá en el presupuesto ordinario o extraordinario, las partidas necesarias, para dotar de equipo y material necesario e imprescindible de la Secretaría.
