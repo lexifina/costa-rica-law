@@ -1,0 +1,1 @@
+Artículo 3°—Será el Ministerio de Agricultura y Ganadería, a través del Departamento de Insumos Agrícolas, de la Dirección de Servicios de Protección Fitosanitaria, el encargado de velar por el cumplimiento del presente reglamento técnico.
