@@ -13,3 +13,4 @@ INVU: De Proveeduría
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-09-25 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
