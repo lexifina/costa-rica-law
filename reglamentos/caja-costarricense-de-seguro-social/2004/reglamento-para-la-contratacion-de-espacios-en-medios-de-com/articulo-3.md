@@ -1,0 +1,1 @@
+Artículo 3º—La Dirección de Comunicación Organizacional constituirá y mantendrá permanentemente actualizado un registro de oferentes interesados en prestar a la Caja los servicios indicados en el artículo uno del presente reglamento.

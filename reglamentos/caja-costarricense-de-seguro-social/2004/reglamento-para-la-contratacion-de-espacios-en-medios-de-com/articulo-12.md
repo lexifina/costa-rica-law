@@ -1,0 +1,1 @@
+Artículo 12.—Una vez realizada la negociación y que se haya llegado a un acuerdo satisfactorio con el proveedor, éste deberá presentar su propuesta formal a la Dirección, para que se proceda a su contratación. Dicha oferta podrá realizarse utilizando la vía del fax.

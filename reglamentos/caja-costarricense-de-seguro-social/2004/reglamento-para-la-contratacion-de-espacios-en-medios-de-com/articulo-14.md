@@ -1,0 +1,1 @@
+Artículo 14.—En ningún caso la Dirección acudirá a agencias de publicidad para la producción de los mensajes, ni para la contratación de espacios en los medios de comunicación social, actividades que desarrollará en forma directa, ni pagará o reconocerá comisiones en ninguna de sus contrataciones.

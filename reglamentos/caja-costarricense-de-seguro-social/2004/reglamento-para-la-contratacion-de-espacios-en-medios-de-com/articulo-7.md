@@ -1,0 +1,1 @@
+Artículo 7º—La Dirección deberá contar con estudios de opinión e investigaciones sociales actualizadas, elaborados por su personal o por empresas especializadas que le permitan, ante una necesidad concreta, conocer fielmente la realidad nacional y poder diseñar campañas eficientes y efectivas a través de los medios apropiados.
