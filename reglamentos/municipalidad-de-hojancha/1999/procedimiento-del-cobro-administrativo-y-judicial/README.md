@@ -14,3 +14,4 @@ Procedimiento del Cobro Administrativo y Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-31 | la propia norma |
+| 2 | 1999-08-31 | Ley 7 |
