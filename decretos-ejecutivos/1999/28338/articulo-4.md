@@ -1,0 +1,1 @@
+Artículo 4º—Los titulares de los Ministerios y Poderes en común acuerdo con el Tesorero Nacional decidirán el monto del fondo general de caja chica, de acuerdo a la estimación del gasto a atender mediante esta modalidad, en aras de una ágil y eficiente gestión institucional.

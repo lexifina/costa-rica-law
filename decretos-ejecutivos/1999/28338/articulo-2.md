@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos del presente reglamento, los fondos generales de caja chica en los Ministerios y Poderes lo constituyen los anticipos de recursos que concede la Tesorería Nacional, como un servicio facilitador de la ejecución presupuestaria en las partidas servicios no personales, materiales y suministros.

@@ -1,0 +1,1 @@
+Artículo 5º—El responsable del fondo de caja chica central en cada Ministerio o Poder será el Oficial Presupuestal o el funcionario que haga las veces de este. En caso de utilizar fondos auxiliares con cuenta corriente o en efectivo se debe asignar formalmente un responsable, a quien se le hará entrega de los recursos para una adecuada disposición.

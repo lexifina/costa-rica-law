@@ -1,0 +1,1 @@
+Artículo 38.—Los intereses devengados por los saldos de la cuenta bancaria de caja chica deberán ser depositados al fondo general del Gobierno, en un plazo no mayor de ocho días, a partir del recibo del estado de cuenta bancario que consigne su acreditación.

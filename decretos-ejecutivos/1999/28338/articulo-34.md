@@ -1,0 +1,1 @@
+Artículo 34.—El titular del Ministerio o Poder, debe solicitar a la Auditoría Interna de su institución, incluir en el programa de trabajo de esa Dirección, como mínimo la realización de una auditoría anual del fondo general de caja chica.

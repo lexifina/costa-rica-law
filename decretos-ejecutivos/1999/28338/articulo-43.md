@@ -1,0 +1,1 @@
+Artículo 43.—Los aspectos no contemplados en este reglamento, se regirán por la Ley General de la Administración Financiera de la República, la Ley General de la Administración Pública, Reglamento de Gastos de Viaje y Transporte, el Reglamento de la Contratación Administrativa y demás leyes conexas.

@@ -1,0 +1,1 @@
+Artículo 23.—El Oficial Presupuestal y los encargados de las cajas auxiliares deben procurar tramitar con la diligencia y frecuencia debida los reintegros de las sumas pagadas, para que se mantenga una adecuada rotación y el fondo no llegue a agotarse. El monto mínimo que debe mantener el fondo para la solicitud de los reintegros, debe ser de un 10%.

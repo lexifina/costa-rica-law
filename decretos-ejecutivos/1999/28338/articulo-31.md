@@ -1,0 +1,1 @@
+Artículo 31.—Los auditores de la Tesorería Nacional, efectuarán al menos una vez al año o cuando lo juzgue conveniente y necesario, la revisión del sistema de control establecido para la salvaguardia y el buen uso del fondo asignado en caja chica; a fin de evaluar la suficiencia y la efectividad de estos controles.
