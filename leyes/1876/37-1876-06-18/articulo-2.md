@@ -1,0 +1,1 @@
+Art 2° Se exita al Poder Ejecutivo para que ponga en ejecución el decreto n°14 de 6 de noviembre de 1848, que dispone la exhumación y traslación de los restos del Licenciado Don Braulio Carrillo, y mandan celebrar honras fúnebres a su memoria.
