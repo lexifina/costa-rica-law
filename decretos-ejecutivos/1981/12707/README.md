@@ -14,3 +14,4 @@ Reglamento de Tarifas para la Inscripción de Planos en el Catastro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-07-23 | la propia norma |
+| 2 | 1981-07-23 | Decreto Ejecutivo 12758 (1981-06-26) |
