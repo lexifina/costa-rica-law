@@ -14,3 +14,4 @@ Constitución del Subsector de Promoción de Exportaciones e Inversiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-12-09 | la propia norma |
+| 2 | 1981-03-23 | Decreto Ejecutivo 12418 (1981-03-23) |
