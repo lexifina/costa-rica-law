@@ -1,0 +1,1 @@
+Artículo 2º- El Poder Ejecutivo se reserva el derecho de declarar navegables otros ríos cuyas condiciones permanentes de navegabilidad, dentro de los requisitos fijados por la ley no son ahora suficientemente conocidas.
