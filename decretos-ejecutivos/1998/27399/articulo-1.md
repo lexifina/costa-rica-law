@@ -5,6 +5,7 @@ En uso de las facultades conferidas en el artículo 141 inciso 1), artículos 28
 Considerando:
 1°—Que el Gobierno de la República de Costa Rica tiene un gran interés, así como una gran responsabilidad ante el serio problema de la drogodependencia.
 2°—Que además la adopción de medidas necesarias relacionadas con el control de toda actividad ilícita son de interés público.
-3°—Que el Estado debe propiciar el fortalecimiento de los programas dirigidos a la prevención, rehabilitación y control de drogas, así como la coordinación interinstitucional y el ordenamiento de los recursos económicos que se distribuyan. Por tanto,
+3°— Que el Estado debe propiciar el fortalecimiento de los programas dirigidos a la prevención, rehabilitación, tratamiento y control de drogas, así como la coordinación interinstitucional y el ordenamiento de los recursos económicos que se distribuyan. Por tanto,
+(Así reformado el considerando anterior por el artículo 1° del decreto ejecutivo N° 27647 del 11 de febrero de 1999)
 DECRETAN:
 Artículo 1°—Crear la Comisión Interinstitucional de Tratamiento y Rehabilitación a Drogodependientes (CITRED), encargada de analizar las necesidades y los problemas de las organizaciones no gubernamentales dedicadas a la atención del alcoholismo y fármaco dependencia.

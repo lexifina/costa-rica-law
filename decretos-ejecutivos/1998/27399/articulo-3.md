@@ -8,3 +8,9 @@ Artículo 3°—La Comisión de Coordinación Interinstitucional estará integra
 6. Un representante del Patronato Nacional de la Infancia (P.A.N.I.).
 7. Un representante de la Caja Costarricense del Seguro Social.
 8. Un representante del Ministerio de Salud.
+9.- Un representante del Instituto de Fomento y Asesoría Municipal (IFAM
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 27647 del 11 de febrero de 1999)
+10.- Un representante del Ministerio de Justicia.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 27647 del 11 de febrero de 1999)
+11.- Un representante del Consejo Nacional de Rehabilitación y Educación Especial
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 27647 del 11 de febrero de 1999)
