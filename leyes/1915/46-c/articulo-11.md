@@ -1,0 +1,1 @@
+Artículo XI. A los fines indicados en el presente Tratado se constituye una Unión de las Naciones Americanas que funcionará por medio de dos oficinas establecidas una en la ciudad de la Habana y otra en la de Río de Janeiro, en completa correlación entre si.

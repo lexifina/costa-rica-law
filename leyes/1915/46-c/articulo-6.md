@@ -1,0 +1,1 @@
+Artículo VI.Las cuestiones que se susciten sobre prioridad del depósito o adopción de una Marca de Comercio o de Fábrica, se resolverán teniendo en cuenta la fecha del depósito en el país en que se hizo la primera solicitud.

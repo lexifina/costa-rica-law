@@ -1,0 +1,1 @@
+Artículo XVII.Los Tratados sobre Marcas de Comercio o de Fábrica, celebrados con anterioridad entre los Estados signatarios, serán sustituidos por esta Convención, desde la fecha de su ratificación, en cuanto a las relaciones entre dichos Estados.

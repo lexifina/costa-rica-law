@@ -1,0 +1,1 @@
+Artículo VII.La propiedad de una Marca de Comercio o de Fábrica comprende la facultad de gozar de los beneficios de la misma y el derecho de ceder su propiedad o su uso, total o parcialmente, de conformidad con la legislación interna.

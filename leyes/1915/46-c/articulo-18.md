@@ -1,0 +1,1 @@
+Artículo XVIII.La ratificación o adhesiones de las Naciones Americanas a esta Convención, serán comunicadas al Gobierno de la República Argentina, que las hará saber a todos los demás Estados de la Unión. Estas comunicaciones harán las veces de canje.

@@ -1,0 +1,2 @@
+Artículo XVI.Los Gobiernos de las Repúblicas de Cuba y de los Estados Unidos de Brasil procederán a la organización de las oficinas de la Unión Internacional, de acuerdo con lo estipulado, tan pronto como haya sido ratificada esta Convención por las dos terceras partes, a lo menos, de las naciones pertenecientes a cada grupo.
+No será necesario el establecimiento simultáneo de las dos oficinas, pudiendo instalarse una sola, si hubiese el número señalado de Naciones signatarias.
