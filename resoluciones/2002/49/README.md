@@ -14,3 +14,4 @@ Establece obligación de adquirente líneas teléfonos celulares a suministrar a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-18 | la propia norma |
+| 2 | 2003-03-18 | Resolución 10 (2003-03-18) |
