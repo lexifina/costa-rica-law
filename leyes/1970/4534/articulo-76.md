@@ -1,0 +1,3 @@
+Artículo 76
+1. Cualquier Estado Parte directamente y la Comisión o la Corte por conducto del Secretario General, pueden someter a Asamblea General, para lo que estime conveniente, una propuesta de enmienda a esta Convención.
+2. Las enmiendas entrarán en vigor para los Estados ratificantes de las mismas en la fecha en que se haya depositado el respectivo instrumento de ratificación que corresponda al número de los dos tercios de los Estados Partes en esta Convención. En cuanto al resto de los Estados Partes, entrarán en vigor en la fecha en que depositen sus respectivos instrumentos de ratificación.

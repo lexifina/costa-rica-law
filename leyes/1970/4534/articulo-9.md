@@ -1,0 +1,2 @@
+Artículo 9 Principio de Legalidad y de Retroactividad
+Nadie puede ser condenado por acciones u omisiones que en el momento de cometerse no fueran delictivos según el derecho aplicable. Tampoco se puede imponer pena más grave que la aplicable en el momento de la comisión del delito. Si con posterioridad a la comisión del delito la ley dispone la imposición de una pena más leve, el delincuente se beneficiará de ello.

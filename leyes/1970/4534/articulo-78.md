@@ -1,0 +1,3 @@
+Artículo 78
+1. Los Estados Partes podrán denunciar esta Convención después de la expiración de un plazo de cinco años a partir de la fecha de entrada en vigor de la misma y mediante un preaviso de un año, notificando el Secretario General de la Organización, quien debe informar a las otras Partes.
+2. Dicha denuncia no tendrá por efecto desligar al Estado Parte interesado de las obligaciones contenidas en esta Convención en lo que concierne a todo hecho que, pudiendo constituir una violación de esas obligaciones, haya sido cumplido por él anteriormente a la fecha en la cual la denuncia produce efecto.

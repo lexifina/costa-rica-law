@@ -1,0 +1,2 @@
+Artículo 81
+Al entrar en vigor esta Convención, el Secretario General pedirá por escrito a cada Estado Parte que presente, dentro de un plazo de noventa días, sus candidatos para jueces de la Corte Interamericana de Derechos Humanos. El Secretario General preparará una lista por orden alfabético de los candidatos presentados y la comunicará a los Estados Partes por lo menos treinta días antes de la próxima Asamblea General.
