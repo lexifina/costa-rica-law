@@ -1,0 +1,2 @@
+Artículo V
+No se impondrán otros ni más altos derechos ni pagos por razón de puerto, práctico, derecho de salvamento en caso de pérdida ó naufragio, ni por razón de algunas otras cargas locales, en ninguno de los puertos de los Estados Unidos, á los buques costarricenses, sino los que únicamente pagan en los mismos los buques de los Estados Unidos; ni en los puertos de la República de Costa Rica se impondrán a los buque de los Estados Unidos otras cargas que las que en los mismos puertos pagan los costarricenses.
