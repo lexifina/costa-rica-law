@@ -14,3 +14,4 @@ Reforma Reglamento Ley Forestal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-09-02 | la propia norma |
+| 2 | 1991-11-15 | Decreto Ejecutivo 20993 (1991-11-15) |

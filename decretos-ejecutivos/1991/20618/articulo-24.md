@@ -1,2 +1,1 @@
-ARTÍCULO 24.-Modifíquese el artículo 93 del decreto ejecutivo N§ 19886-MIRENEM, para que se lea así:
-No se podrán realizar labores de pastoreo en bosques, terrenos forestales ubicados en reservas forestales y zonas protectoras, sin la autorización de la DGF para los cuales se establecer n administrativamente los requisitos necesarios de acuerdo con la extensión y características fisiográficas y ecológicas del área, entre otros.
+ARTÍCULO 24.-(Derogado por el artículo 9° del decreto ejecutivo N° 20993 del 15 de noviembre de 1991)
