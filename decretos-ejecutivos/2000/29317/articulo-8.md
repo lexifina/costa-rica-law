@@ -16,4 +16,5 @@ En caso de extractos o tinturas debe indicarse el solvente utilizado y la propor
 9) Adjuntar documentación científica que sustente la inscripción del producto así como el uso que se le atribuye y cualquier otra información que la Dirección solicite cuando lo considere pertinente.
 10) Un ejemplar del producto a inscribir y protocolo de etiquetado, con copia, tal y como va a ser comercializado.
 11) Carta del representante legal en caso de fabricación a terceros.
-12) Recibo de pago por concepto de inscripción. Fíjase la tasa prevista en el artículo 112 de la Ley General de Salud en la suma de US$ 500 (500 dólares americanos) o su equivalente en moneda nacional.
+12) Recibo de pago por concepto de inscripción. Fijase la tasa prevista en el artículo 112 de la Ley General de Salud en la suma de US $250 (doscientos cincuenta dólares americanos) o su equivalente en moneda nacional, para las tisanas en presentación de tes. El resto de Productos con base en Recursos Naturales industrializados que tienen presentaciones farmacéuticas y que son promocionados con cualidades terapéuticas el monto de inscripción será de US $ 500 (quinientos dólares americanos)
+(Así reformado por el decreto ejecutivo N° 31000 de 10 de febrero de 2003)
