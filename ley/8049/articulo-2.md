@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Corresponder a la Notaría del Estado otorgar la escritura pública de donación y la aceptación respectiva; asimismo, tramitar la debida inscripción en el Registro Público. Rige a partir de su publicación.
