@@ -1,0 +1,1 @@
+Artículo 5º—La forma de pago del financiamiento reembolsable se determinará conforme a la proyección financiera, el destino de la inversión para cada proyecto, así como el retorno de la inversión, para lo cual existirá un dictamen técnico con la recomendación correspondiente a la Gerencia General o Subgerencia General, debidamente aprobado por la Junta Directiva.
