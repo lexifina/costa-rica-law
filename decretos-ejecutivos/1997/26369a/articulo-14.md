@@ -1,0 +1,1 @@
+Artículo 14.-La CPE mantendrá actualizado el Registro de Especialidades Biológicas para cada uno de los inscritos en las áreas y ramas biológicas existentes. La Junta Directiva enviará anualmente copia del mismo a las instituciones contratantes de servicios biológicos.

@@ -1,0 +1,1 @@
+Artículo 25.-La CPE someterá ante la Junta Directiva aquellos casos en que los interesados apelen su resolución La Junta Directiva elevará dichas apelaciones ante la Asamblea General, único órgano del Colegio que puede resolver esas apelaciones.

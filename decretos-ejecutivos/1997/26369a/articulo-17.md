@@ -1,0 +1,1 @@
+Artículo 17.-La experiencia académica y profesional comprende la condición académica concluida: a) Grado académico. b) Estudios de posgrado que hayan culminado con una Maestría, Doctorado o Especialidad.

@@ -1,0 +1,1 @@
+Artículo 15.-La Junta Directiva comunicará al menos una vez al año, el registro actualizado a las Instituciones del Estado y Empresas que requieren emplear servicios técnicos y profesionales en ciencias biológicas, en concordancia con el inciso b) del artículo 12 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 20.-Una vez recibida la documentación por la Secretaria la misma será trasladada a la CPE y con base en lo establecido en los artículos 8° y 16, resolverá la solicitud y someterá a ratificación ante la junta directiva del Colegio. Si en un mes calendario la junta directiva no expresa su oposición, la solicitud se considerará ratificada.

@@ -1,0 +1,1 @@
+Artículo 4°-La CPE estará constituida por tres miembros de preferencia uno de ellos será miembro de la Junta Directiva. Durarán en el cargo dos años y deben ostentar el grado mínimo académico de Maestría en Ciencias. Corresponde a la Junta Directiva Ilenar las vacantes que se hayan producido y por el período que Ie resta cumplir, previa solicitud de la CPE.

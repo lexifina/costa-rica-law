@@ -1,0 +1,1 @@
+Artículo 13.-La CPE comunicará a la Junta Directiva la especialidad de cada miembro del Colegio. La certificación de esos estudios podrá ser solicitada por el interesado, por entes públicos o privados previo pago del canon correspondiente.

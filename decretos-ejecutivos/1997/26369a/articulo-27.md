@@ -1,0 +1,1 @@
+Artículo 27.-La evaluación profesional se refiere a las pruebas teóricas y prácticas o de cualquier otra índole, que la CPE considere pertinentes evaluar, como una forma para comprobar los conocimientos y destrezas que ha logrado alcanzar un colega en una determinada especialidad.
