@@ -1,0 +1,1 @@
+Art. 87. “La súplica interpuesta según el art° 59 se fallará en el término de dos meses cuando mas, después de haberse recibido el proceso. En el caso del artículo precedente, se fallará en el tiempo y forma establecidos para la 2a Instancia.”

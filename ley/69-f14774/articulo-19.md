@@ -1,0 +1,1 @@
+Art. 19. Todas las penas de este Código que tengan mínimun y máximun, graduada que sea por el juez ó tribunal la que deba sufrir el delincuente según el caso y las circunstancias se le disminuirá una tercera parte de ellas.

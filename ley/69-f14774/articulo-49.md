@@ -1,0 +1,1 @@
+Art. 49. “El Jurado en vista de la acusación y del impreso, y después de haberlo examinado, declarará: si ha o no lugar á fomación de causa, en sesión secreta y permanente, y en ningún caso podrá interrumpirse, hasta que resulte la declaración.”

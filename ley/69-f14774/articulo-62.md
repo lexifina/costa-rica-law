@@ -1,0 +1,1 @@
+Art. 62. “Concluido este acto se retirarán los jurados á otro departamento del mismo edificio á discutir, examinar y fallar la causa en sesión permanente y secreta, que no podrá interrumpirse de ninguna manera hasta darse el fallo.”

@@ -1,0 +1,1 @@
+Art. 61. “Terminadas las defensas, el Juez hará un resumen de los hechos, de sus circunstancias y de sus alegatos, arreglándose estrictamente á lo que constare del proceso y hubiese pasado en el juicio; sin manifestar de modo alguno su parecer. Concluirá su resumen con una exhortación á los jurados, para que fallen la causa conforme á su conciencia”

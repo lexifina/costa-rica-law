@@ -1,0 +1,1 @@
+Art. 32. –art. 826. “Cuando fuere acusado un mayor de siete años y menor de diecisiete será preciso, para que se le pueda reputar delincuente ó culpable, que concluida la instrucción y antes de remitirla al Juez de 1a Instancia, con audiencia del ajente fiscal en su caso, se declare si el menor obró ó no, con malicia y discernimiento.”

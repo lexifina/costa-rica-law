@@ -1,0 +1,1 @@
+Art.25. –art.353. “La sustanciación del juicio verbal en materias criminales, debe arreglarse á lo que queda establecido para el de la misma naturaleza en los civiles: y las sentencias que en él se pronunciaren son apelables ante el Juez de 1a Instancia cualquiera que sea la pena que se imponga, ó aun cuando se absuelva al reo si el acusador no se aquietare.”

@@ -1,0 +1,1 @@
+Art. 84. “Se conferirá traslado á otra parte, y esta lo contestará dentro de otros tres días con la suma. Responde. Á consecuencia llamará el Tribunal el proceso, y resolverá si ha ó no lugar á la suplica.,,

@@ -1,0 +1,1 @@
+Art. 55. “El autor ó el impresor, en sus casos respectivos, será preso inmediatamente, si el delito mereciere pena corporal ó de infamia, ú otorgará la fianza de haz, si el delito mereciere otra clase de pena.

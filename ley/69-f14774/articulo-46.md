@@ -1,0 +1,1 @@
+Art. 46. “Reunidos los Jurados, se sortearán doce de ellos, de los cuales los siete primeros compondrán el primer Jurado, y los restantes los reemplazarán, según el orden de su sortéo, en caso de impedimiento de aquellos.”

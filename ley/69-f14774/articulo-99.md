@@ -1,0 +1,1 @@
+Art. 99. –art. 1251. “ La 1a Instancia se seguirá en la sala de apelación, y la 2a en la de súplica por las reglas comunes para los juicios criminales: el Presidente lo sustanciará oyendo al Fiscal cuando corresponda, y para sentencia, sea interlocutoria ó definitiva dará cuenta a la sala.”

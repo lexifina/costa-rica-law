@@ -1,0 +1,1 @@
+Art. 90. “Siempre que la sentencia de 3a Instancia impusiere al reo pena capital, cuya conmutación pueda hacer el Gobierno, la sala le remitirá el expediente con informe, suspendiéndose la notificación, hasta que resuelva si conmuta ó no la pena.”

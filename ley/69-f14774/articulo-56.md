@@ -1,0 +1,1 @@
+Art. 56. “Antes de la prisión, ó del otorgamiento de la fianza, el juez eligirá por la suerte ante el acusado y el acusador doce jurados de la lista de los que se hallen presentes en el lugar del juicio, y que no hubiesen concurrido al primer jurado”
