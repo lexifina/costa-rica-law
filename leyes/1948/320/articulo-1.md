@@ -1,4 +1,6 @@
+(Derogado)
 N° 320
+(Esta ley fue derogada por el artículo 1° de la ley N° 1624 del 27 de agosto de 1953)
 LA JUNTA FUNDADORA DE LA SEGUNDA REPUBLICA ,
 Considerando :
 1°-Que es un acto imprescindible para el normal desarrollo de las actividades económicas del país y para la gestión financiera del Gobierno ordenar la actual deuda interna del Estado, mediante una refundición general de las obligaciones bonificadas existentes y de la consolidación de la deuda flotante;
