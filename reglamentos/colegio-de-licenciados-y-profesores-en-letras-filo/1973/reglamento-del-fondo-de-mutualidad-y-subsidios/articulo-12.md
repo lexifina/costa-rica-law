@@ -1,0 +1,2 @@
+Artículo 12.—Todas las solicitudes de subsidios serán tramitadas por medio de la Administración del Colegio, la cual velara porque los solicitantes cumplan con los requisitos que se señalan en el presente Reglamento, y trasladará los documentos al jefe de Crédito y Cobro, quien, junto con el tesorero de Junta Directiva, recomendara lo correspondiente.
+La Junta Directiva será la única encargada de aprobar el pago de los subsidios que se señalen en el artículo 4° de este Reglamento.

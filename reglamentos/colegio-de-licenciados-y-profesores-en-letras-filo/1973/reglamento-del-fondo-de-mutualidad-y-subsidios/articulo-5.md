@@ -1,0 +1,1 @@
+Articulo 5°—La Junta Directiva del Colegio será la encargada de fijar y revisar los montos de los diferentes tipos de subsidios, lo cual hará en la primera sesión del mes de noviembre, tomando en cuenta la situación económica nacional, la situación financiera del Colegio y la demanda por parte de los colegiados.

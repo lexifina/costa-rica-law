@@ -1,0 +1,1 @@
+Artículo 3°—La contribución económica de los colegiados al Fondo será determinada por la Junta Directiva del Colegio, como parte de la cuota mensual que aquellos deben cubrir, con el objeto de mantenerla actualizada, según comportamiento inflacionario.

@@ -1,0 +1,1 @@
+Artículo 18.—Las reservas acumuladas por el Fondo deben ser contabilizadas independientemente de la contabilidad general del Colegio, y se mantendrá una cuenta bancaria especial y exclusiva para la custodia de estos fondos, con igual regulación que la establecida para la cuenta ordinaria de la Corporación.

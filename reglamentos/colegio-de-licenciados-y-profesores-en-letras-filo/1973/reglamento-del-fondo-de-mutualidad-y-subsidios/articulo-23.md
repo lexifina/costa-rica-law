@@ -1,0 +1,1 @@
+Artículo 23.—Rige a partir de su publicación en el Diario Oficial La Gaceta.Aprobado bajo artículo V en asamblea general extraordinaria número LI del 29 de setiembre de 1973.Reformado en asamblea general extraordinaria número XCII del día 23 de setiembre del 2000.

@@ -1,0 +1,1 @@
+Artículo 14.—En caso de fallecimiento del colegiado, el beneficiario contará con un plazo de diez años. contados a partir del día de la defunción, para cobrar el dinero que le corresponda; de lo contrario, prescribirá su derecho al reclamo. El monto será el correspondiente al otorgado en la fecha de defunción.
