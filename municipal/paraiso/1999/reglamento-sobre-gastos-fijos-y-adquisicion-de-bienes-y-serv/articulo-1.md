@@ -1,0 +1,4 @@
+Por este medio, la suscrita Secretaria Municipal de la Municipalidad de Paraíso hace de conocimiento público que en la sesión número 086 del Concejo Municipal de Paraíso, celebrada en su salón de sesiones el día 17 de marzo de 1999. en el artículo 06 se tomó el Acuerdo de publicar el
+siguiente reglamento:
+REGLAMENTO SOBRE GASTOS FIJOS Y ADQUISICIÓN DE BIENES Y SERVICIOS DE COMPETENCIA DEL ALCALDE MUNICIPAL
+Artículo 1.—El presente reglamento tiene por objeto establecer las normas que regularán los egresos y adquisiciones de bienes y servicios de la Municipalidad de Paraíso, sin autorización previa del Concejo Municipal, de conformidad con las disposiciones de los artículos 2-3-4-13-43-62-101 y 103 y 109 del Código Municipal, y los principios contenidos en la ley de contratación administrativa y su reglamento.

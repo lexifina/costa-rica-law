@@ -1,0 +1,1 @@
+Artículo 2.—Autorícese al Alcalde Municipal, girar sin que medie acuerdo del Concejo Municipal, lodos los gastos fijos de la Municipalidad y la adquisición de bienes y servicios hasta por un monto de ¢ 500.000,00.

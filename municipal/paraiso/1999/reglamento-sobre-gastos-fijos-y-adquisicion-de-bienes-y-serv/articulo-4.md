@@ -1,0 +1,1 @@
+Artículo 4.—En todos los demás casos el Alcalde debe solicitar la autorización previa del Concejo Municipal, antes de la realización del desembolso, lo anterior sin perjuicio de los procedimientos complementarios que al efecto señalen para esos casos, la ley de Contratación Administrativa y su reglamento.
