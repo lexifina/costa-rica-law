@@ -1,1 +1,2 @@
-Artículo 5°-El nombramiento de los representantes a que se refiere el artículo 2° se hará por períodos de dos años, contados a partir del primero de julio de 1970, pudiendo ser reelectos.
+Artículo 5°.-El nombramiento de los representantes a que se refiere el artículo 2° se hará en forma indefinida y perderán la condición de tales en el momento en que las entidades que representan les retire la credencial, lo cual deberá ser comunicado oficialmente al Comité y a la Dirección General de Hacienda para que ambas entidades promuevan las diligencias del reemplazo correspondiente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 1990 del 29 de setiembre de 1971)

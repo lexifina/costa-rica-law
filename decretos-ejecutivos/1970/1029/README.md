@@ -14,3 +14,4 @@ Reglamento del Comité Arancelario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-07-04 | la propia norma |
+| 2 | 1971-09-29 | Decreto Ejecutivo 1990 (1971-09-29) |

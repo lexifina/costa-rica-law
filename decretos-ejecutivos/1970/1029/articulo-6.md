@@ -1,1 +1,1 @@
-Artículo 6°-El nombramiento para la reelección o sustitución, de los representantes en el Comité, deberá hacerse dentro de los 30 días anteriores al vencimiento del período legal respectivo.
+Artículo 6°-(Derogado por el artículo 2° del decreto ejecutivo N° 1990 del 29 de setiembre de 1971)

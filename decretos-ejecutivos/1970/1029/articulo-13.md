@@ -1,1 +1,2 @@
-Artículo 13 .-Los miembros del Comité, propietarios o los suplentes cuando actúan en vez de aquéllos, desempeñarán sus funciones ad honórem.
+Artículo 13.-Los miembros propietarios del Comité o los suplentes, cuando actúen en vez de aquéllos, devengarán por sesión dietas de cien colones. Serán remuneradas únicamente las sesiones ordinarias y la partida para el pago correspondiente, deberá ser incluida en el Presupuesto Ordinario de la República de cada ejercicio fiscal.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 1990 del 29 de setiembre de 1971)
