@@ -1,0 +1,2 @@
+7°—Modificar el literal A del Capítulo III del Título III de las Regulaciones de Política Monetaria, para que en adelante se lea de la siguiente forma:
+A. Se entenderá por “insuficiencia en el encaje mínimo legal”, sea en moneda nacional o extranjera, aquella situación en la que el estado de encaje de una entidad muestre deficiencia en el promedio quincenal de depósitos en cuenta corriente en el Banco Central, con respecto al requerimiento promedio de encaje mínimo legal, considerando la metodología de cálculo indicada en los literales A. y B. del Capítulo II.
