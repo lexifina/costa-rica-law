@@ -1,0 +1,2 @@
+Transitorio único.-Aquellos inversores que ya cuenten con una nota de autorización de esta Dirección, gozarán de un plazo de un mes, a partir de la publicación de la presente Resolución, para solicitar que se les ratifique su condición de exentos con respecto al impuesto estipulado en el inciso c) del artículo 23 de la ley N° 7092 mencionada, para que se les pueda incluir en el registro de organismos exentos de ese tributo, cuya creación se prevé en el artículo tercero de la presente resolución.
+Publíquese.

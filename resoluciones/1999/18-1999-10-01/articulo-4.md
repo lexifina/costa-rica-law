@@ -1,0 +1,1 @@
+Artículo 4°-La nota de la Dirección General de Tributación que autoriza la no retención del impuesto, tendrá una validez de un año, a partir de su fecha de emisión, siempre y cuando no varíe la legislación con fundamento en la cual ha sido emitida. Lo anterior, deberá hacerse constar expresamente en dicho documento.
