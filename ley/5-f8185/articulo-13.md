@@ -1,0 +1,2 @@
+Artículo 13.—Con garantía de los frutos, productos o mercancías recibidos en depósito, los Almacenes Generales podrán hacer a corto plazo que devengarán un ocho por ciento de interés anual si exceden de un mil colones y un doce por ciento de interés anual si no pasan de esa suma, cuyo monto y demás condiciones se consignarán en el respectivo bono de prenda.
+Sólo en la forma consignada de préstamos contra bonos de prenda emitidos por el propio Almacén podrán éstos hacer operaciones de crédito

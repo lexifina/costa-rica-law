@@ -1,0 +1,1 @@
+Artículo 49.—Queda derogado por esta ley el decreto N° 39 del 23 de febrero de 1915, revalidado por la ley N° 2 de 29 de marzo de 1915, y modificado el artículo 9° de la ley N° 52 de 15 de enero de 1932, en cuanto se refiere a Almacenes de Depósito.

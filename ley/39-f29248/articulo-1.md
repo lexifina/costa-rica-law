@@ -1,4 +1,6 @@
+(Derogado)
 PODER EJECUTIVO
+(Esta norma fue derogada por el artículo 49 de la ley N° 5 del 15 de octubre de 1934 "Ley de Almacenes Generales de Depósito")
 N.° 39
 ALFREDO GONZALEZ
 Presidente Constitucional de la

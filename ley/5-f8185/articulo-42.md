@@ -1,0 +1,3 @@
+Artículo 42.—Las sociedades que hubieren obtenido créditos conforme a los artículos 38 y siguientes, rendirán mensualmente al Banco Internacional un informe detallado de las operaciones de crédito verificadas en el mes anterior.
+La Directiva del Banco ordenará, de tiempo en tiempo, la inspección de los libros de contabilidad del Almacén, por medio de los delegados que al efecto nombre, a fin de comprobar la exactitud de aquellos informes y el cumplimiento de las leyes por parte de los Almacenes.
+La renuencia a rendir aquellos informes o a permitir estas investigaciones, constituye motivo suficiente para tener por vencido y exigible el crédito respectivo.

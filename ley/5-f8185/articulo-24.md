@@ -1,0 +1,1 @@
+Artículo 24.—El tenedor legítimo del certificado de depósito y sus bonos de prenda puede pedir en cualquier momento que los bienes o efectos depositados se dividan, por su cuenta y riesgo, en varios lotes y que se le entregue un certificado con sus respectivos bonos por cada lote, mediante la entrega y cancelación de sus títulos primitivos.

@@ -1,0 +1,1 @@
+Artículo 18.—Los Almacenes Generales expedirán tantos certificados de depósito y bonos de prenda como solicite el respectivo depositante, si las mercancías o efectos son divisibles; si no lo son únicamente podrán emitir un certificado y un bono con relación a cada depósito.

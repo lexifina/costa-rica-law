@@ -1,0 +1,1 @@
+Artículo 3°—El capital de operación de los Almacenes de podrá ser menor de ¢ 100,000.00 (cien mil colones) para los que se establezcan en las ciudades capitales de provincia, ni de ¢50,000.00 (cincuenta mil colones) para los que funcionen en las otras poblaciones.
