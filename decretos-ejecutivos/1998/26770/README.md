@@ -14,3 +14,4 @@ Reglamento para el Muestreo Combustible en Estaciones de Servicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-25 | la propia norma |
+| 2 | 1998-03-25 | Ley 8 |
