@@ -14,3 +14,4 @@ Reforma el artículo 26 del Reglamento para la Administración y Operación de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-20 | la propia norma |
+| 2 | 1996-07-20 | Ley 8 |
