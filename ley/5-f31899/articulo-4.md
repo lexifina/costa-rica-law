@@ -1,0 +1,3 @@
+Artículo 4°. —Desde 1912, inclusive, en adelante, el Tesoro Público destinará cada tres meses, por lo menos, un tres por ciento del toral de la emisión, con el fin de pagar los intereses vencidos sobre los bonos en circulación, y cancelar con el sobrante los bonos que fueren sorteados para retiro.
+Los sorteos de los bonos que hayan de retirarse se harán lo más tarde, quince días antes del señalado para el pago. El resultado se hará saber por el periódico oficial.
+El Estado se reserva el derecho de aumentar, en cualquier tiempo y en cualquier suma, el fondo de amortización, y aun el de llamar todos los bonos á su cancelación total.

@@ -1,0 +1,1 @@
+Artículo 7°. —El Poder Ejecutivo dictará los reglamentos necesarios para ejecución de esta ley y queda autorizado para hipotecar, en garantía del empréstito, la renta ó parte de renta que juzgue conveniente.
