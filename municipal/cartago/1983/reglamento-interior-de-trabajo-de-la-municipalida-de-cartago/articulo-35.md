@@ -1,0 +1,1 @@
+Artículo 35.-Si por error, inadvertencia o cualquier otro motivo se paga a un funcionario salarios a título de labores y luego se comprueba que no se ejecutaron, el servidor deberá devolver lo percibido indebidamente, previa notificación por escrito, lo que se deducirá del próximo o próximos salarios, sin perjuicio de la sanción correspondiente.

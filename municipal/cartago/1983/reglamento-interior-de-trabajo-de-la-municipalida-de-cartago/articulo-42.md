@@ -1,0 +1,1 @@
+Artículo 42.-Para efecto del disfruté de las vacaciones, no interrumpen la continuidad del trabajo: las licencias sin goce de salario, los descansos otorgados por la ley, sus reglamentaciones, las incapacidades justificadas para trabajar, la prórroga o renovación inmediata del contrato de trabajo, ni ninguna otra causa análoga que no termine con éste.

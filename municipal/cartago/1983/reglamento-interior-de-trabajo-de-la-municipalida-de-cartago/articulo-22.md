@@ -1,0 +1,3 @@
+Articulo 22.-Salvo que se trate de subsanar errores imputables sólo al servidor, incurridos durante la jornada ordinaria, el trabajo efectivo que se realice fuera de las horas y días indicados, o de la jornada convenida en caso de que sea mayor a aquella, será tenido como jornada extraordinaria, siempre que lo autorice o solicite el jefe respectivo .
+Tal jornada extraordinaria se pagará con un cincuenta por ciento más del salario; pero si se tratara de labores en días feriados de pago obligatorio o en días de descanso semanal, ese pago extra será del doble del salario.
+El Tesorero Municipal sólo pagará jornada extraordinaria con autorización escrita del Ejecutivo Municipal y del respectivo jefe, y con planilla debidamente firmada por cualquiera de éstos.

@@ -1,0 +1,35 @@
+CAPITULO DECIMO
+Obligaciones de los trabajadores
+Artículo 52.-Conforme con lo dispuesto en otros artículos de este Reglamento y de acuerdo con el Código de Trabajo, son obligaciones de los trabajadores:
+1) Prestar los servicios personalmente, en forma regular y continua de acuerdo con los respectivos contratos de trabajo o relación laboral y dentro de la jornada de trabajo;
+2) Observar buenas costumbres en sus relaciones laborales, en el trato con el público, con sus compañeros de trabajo, jefes y superiores, Regidores y Síndicos y demás funcionarios municipales.
+3) Comportarse correctamente en el desempeño de su cargo y evitar comportamiento escandaloso en la vida privada y social que afecten o lesionen el buen nombre de la Municipalidad, cuando sean de evidente notoriedad pública y casos excepcionales.
+4) Responder económicamente de los daños que causen intencionalmente o que se deban a su negligencia o descuidos manifiesto y absolutamente inexcusables.
+5) Reportar a la Municipalidad o a sus representantes, los daños e imprudencia de otros compañeros de trabajo que causen perjuicio a la misma.
+6) Tratar al público con esmero y educación, procurando servirle en forma eficiente para que no tenga queja alguna.
+7) Ejecutar el trabajo con la intensidad, cuidado, dedicación y esmero apropiados que la función de cada uno requiera, en la forma, tiempo y lugar convenidos.
+8) Entregar las obras con el debido acabado, de acuerda con normas de calidad establecidas por el Reglamento respectivo de la Municipalidad, así como también informar a tiempo de las obras defectuosas.
+9) Limpiar las máquinas, útiles, vehículos, instrumentos y demás elementos de trabajo que se les faciliten para la ejecución del mismo, y velar porque no sufran más deterioro que el normal, de acuerdo con las condiciones usuales del trabajo, siendo responsables de los daños que sufran aquellos por su propia negligencia o culpa, y restituir a la Municipalidad los materiales no usados. No serán responsables los trabajadores por este deterioro normal ni del que resultaré por caso fortuito, fuerza mayor, mala calidad o defectuosa construcción o fabricación de dicho equipo de trabajo, debiendo informar en estos casos, al jefe superior inmediato del mal estado del equipo.
+10) Tener absoluta reserva sobre los asuntos administrativos internos y técnicos de la Municipalidad, cuya divulgación pueda causar perjuicio a la institución, y la discreción necesaria sobre lo relacionado con su trabajo que, por su naturaleza o en virtud de disposiciones legales o instrucciones especiales lo requieran, aún después de cesado en el cargo. Todo lo anterior sin perjuicio de la obligación en que están de denunciar ante quien corresponda, los hechos incorrectos o penales de que tengan noticia.
+11) Colaborar con el adiestramiento de los nuevos empleados, de manera que éstos se instalen en su puesto y ejerzan sus funciones en el menor tiempo posible.
+12) Desempeñar el servicio contratado bajo la dirección de la Municipalidad o de sus representantes, a cuya autoridad estarán sujetos en todo lo concerniente al trabajo, y ejecutar las labores que los mismos les encomienden, dentro de la jornada de trabajo siempre que sean compatibles con sus aptitudes, estado o condición, y que sean aquellas que formen parte del contrato o relación laboral.
+13) Prestar los auxilios necesarios en caso de siniestro o riesgo inminente en que las personas o 'intereses de la Municipalidad, o algún compañero de trabajo, estén en peligro, nada de lo cual les dará derecho a remuneración adicional.
+14) Someterse a reconocimiento médico, sea al solicitar su ingreso al trabajo o durante éste, a solicitud de la Municipalidad, para comprobar que no padece alguna incapacidad permanente o alguna enfermedad profesional contagiosa o incurable, o a petición de un organismo oficial de Salubridad Pública o Seguridad Social, con cualquier motivo.
+15) Rendir los informes solicitados por el Concejo y otros superiores, con motivo de alguna circunstancia especial.
+16) Desarrollar las labores dentro de un ambiente de seriedad y armonía, concentrando cada trabajador la atención en la obra o labor que está realizando, a fin de que éstas resulten de la mejor calidad posible.
+17) Los trabajadores deberán seguir los sistemas de trabajo de manera que se obtenga el máximo de orden y productividad, en beneficio de la institución.
+18) Avisar cuando no pueda asistir al trabajo, en el entendido que el sólo hecho de avisar no exime al trabajador de la obligación de justificar la ausencia.
+19) Vestir en forma correcta durante las horas de trabajo, de conformidad con el puesto que desempeñan y los lugares donde se presten los servicios.
+20) Presentarse en su puesto de trabajo dispuesto a iniciar sus labores a las horas correspondientes, y no suspender el trabajo antes de las horas de salida indicadas.
+reglamento que a ese efecto confeccione.
+21) Observar normas de urbanidad y cultura en el uso de los servicios sanitarios y reportar cualquier anomalía que se encuentre en ellos.
+22) Informar a la Municipalidad o a sus representantes, cualquier irregularidad que se cometiere en su contra por extraños o empleados, sin perjuicio de las responsabilidades que pudieren caberle si informado de ellas no diere noticia a la Municipalidad.
+23) Observar rigurosamente las medidas preventivas que acuerden las autoridades competentes y las que señale la Municipalidad o sus representantes, para la seguridad y protección del personal, instalaciones, trabajos, maquinarias, materiales, etc.
+24) Dar aviso inmediato al jefe que corresponda, y a la Oficina de Personal de cualquier accidente que sufrieran en la ejecución de las labores.
+25) Inmediatamente que se detecte manifestación o cualquier otro signo de alarma que haga presumir evidente peligro para algún trabajador, sus compañeros estarán en la obligación de auxiliarlo en la medida de sus posibilidades.
+26) Acatar las instrucciones y órdenes que les dicten sus superiores sobre el buen manejo de las máquinas, útiles, vehículos y demás instrumentos que se les facilite.
+27) Al terminar la jornada desconectar el equipo de trabajo y verificar que el mismo se encuentre en buen estado para iniciar la siguiente jornada laboral.
+28) Los empleados o encargados de la custodia, administración y disposición del patrimonio municipal, deben rendir cuentas en el momento que los representantes municipales lo dispongan, debiendo presentar el dinero que se encuentra en su poder, comprobantes, facturas y otros documentos que le hayan sido entregados; en razón de sus cargos.
+29) Asistir a cursos de entrenamiento o conferencias relacionados con sus funciones, que dicte la Municipalidad o sus representantes. El tiempo empleado en ello se considerará como de trabajo efectivo.
+30) Solicitar los materiales necesarios para la ejecución de la labor a fin de no motivar el abandono de las mismas, bajo pretexto de, no contar con el material de trabajo requerido.
+31) Acatar y hacer cumplir las medidas que tiendan a prevenir accidentes de trabajo y enfermedades profesionales.

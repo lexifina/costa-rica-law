@@ -1,0 +1,1 @@
+Artículo 106.-Como lo ordena la ley, este Reglamento se mantendrá expuesto en caracteres fácilmente Iegibles por lo menos en dos de los sitios más visibles del local del patrono e imprimirá en folletos el Reglamento para ser repartido entre los trabajadores municipales.

@@ -1,0 +1,1 @@
+Artículo 69.-Cuando se produzca una llegada tardía injustificada superior a quince minutos, contados a partir de la hora de entrada, el trabajador no deberá permanecer laborando durante la jornada y esta falta, se calificará como ausencia injustificada; procediéndose al rebajo correspondiente en su salario y de conformidad con lo dispuesto en el artículo 66 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 94.-El Ejecutivo podrá nombrar interinamente hasta por dos meses, cuando quede vacante una plaza y se compruebe por la necesidad de la misma, que no puede esperar hasta la conclusión del concurso.

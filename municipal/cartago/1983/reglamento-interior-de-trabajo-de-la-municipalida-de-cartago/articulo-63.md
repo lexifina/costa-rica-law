@@ -1,0 +1,1 @@
+Artículo 63.-Todo jefe de departamento está en la obligación ineludible de Informar a la Oficina de Personal de las faltas en que incurran sus subordinados. La omisión de informar esas faltas, será considerada falta grave.

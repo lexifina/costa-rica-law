@@ -1,0 +1,6 @@
+Artículo 2°-Para los efectos de este Reglamento se entiende por:
+a) Patrono.-La Municipalidad de Cartago, como entidad con personería jurídica propia, con domicilio en la provincia de Cartago, cuya actividad es la administración de los intereses y servicios locales de ese cantón.
+b) Representantes patronales. Al Ejecutivo Municipal, Jefe de Personal y en general todas aquellas personas que debidamente autorizadas por ellos ejerzan dentro de la Municipalidad funciones de dirección, administración o de ambos géneros. Los representantes patronales obligan al patrono en las relaciones que tengan con los servicios de la Municipalidad, como si éste personalmente hubiera realizado el acto o actos de que trate.
+c) Servidores, trabajadores o empleados.-Las personas físicas que prestan a la Municipalidad sus servicios materiales, intelectuales o de ambos géneros, en forma subordinada a cambio de una retribución o salario, bajo su dependencia permanente y como consecuencia de una relación laboral o de un contrato de trabajo.
+d)Sindicato -Las organizaciones sociales legalmente constituidas en la Municipalidad de Cartago, reconocidas debidamente como representantes de los trabajadores.
+e) Toda organización social existente y legalmente constituida, y la de aquellos que en el futuro se constituyan deberán presentarse ante el Consejo para su reconocimiento.

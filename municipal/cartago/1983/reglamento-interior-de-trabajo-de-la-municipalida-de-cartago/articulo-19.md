@@ -1,0 +1,1 @@
+Artículo 19.-Con las salvedades apuntadas en los artículos 15 y 18 de este Reglamento, los servidores de la Municipalidad están obligados a efectuar sus labores durante los días y durante las horas señaladas en el artículo 14 de este Reglamento. Se considerará tiempo efectivo de trabajo aquel en que los trabajadores permanezcan bajo las órdenes o dirección inmediata del superior.

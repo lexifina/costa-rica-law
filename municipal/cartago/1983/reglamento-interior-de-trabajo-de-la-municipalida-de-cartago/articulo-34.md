@@ -1,0 +1,1 @@
+Artículo 34.-Si por cualquier motivo no hubiere partida para pagar los extremos adicionales al salario ordinario, la prescripción para su reclamo no empezará a contar, sino a partir del día en que la Oficina de Personal avise al respectivo empleado o empleados que pueden pagarse dichas sumas.

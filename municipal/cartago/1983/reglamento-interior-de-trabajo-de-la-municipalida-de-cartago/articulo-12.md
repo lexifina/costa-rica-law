@@ -1,0 +1,1 @@
+Artículo 12.-Todo aumento de labores que se le encargue a los trabajadores o que les resultara por disposiciones que se dicten, fuera de lo usual o que perjudique sus derechos adquiridos, implica la obligación de pagar al servidor una suma adicional de salario que corresponda por ese aumento, lo anterior siempre que éste exceda de seis días hábiles.

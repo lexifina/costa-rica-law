@@ -1,0 +1,6 @@
+Artículo 100.-La Municipalidad calificará los servicios del trabajador anualmente, a ese efecto, queda a criterio del Ejecutivo Municipal y la Oficina de Personal el sistema de calificación a emplear.
+Las fórmulas de "Calificación de Servicios" serán entregadas a cada jefe de departamento en cantidad acorde con el número de sus subordinados.
+El jefe de cada departamento calificará a sus subalternos, e informará personalmente a cada uno, de los motivos que tuvo para la respectiva calificación; posteriormente se remitirá a la Oficina de Personal las fórmulas de calificaciones.
+La calificación de servicios deberá realizarse por anualidades de setiembre del año anterior a setiembre del año en vigencia, y se contará para todo el procedimiento con el mes de octubre.
+Los trabajadores que obtengan una calificación igual o superior al 90% se harán acreedores a un aumento del 5% sobre su salario, a partir del 1° de enero del año siguiente al que se efectuará la calificación.
+Se crea un comité de apelaciones integrado por el Ejecutivo Municipal, por el Jefe de Personal Municipal, un regidor y un representante de los trabajadores municipales. Para efecto de toma de decisiones, quórum y demás organización interna dicho comité deberá elaborar en un plazo no mayor de un mes calendario, un reglamento, el cual lo remitirá al Concejo para su aprobación.

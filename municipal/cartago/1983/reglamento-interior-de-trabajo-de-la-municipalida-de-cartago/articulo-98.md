@@ -1,0 +1,2 @@
+Artículo 98.-Cuando el Ejecutivo Municipal conjuntamente con los jefes de departamento y la Oficina de Personal lo estimen conveniente, trasladarán a uno o más funcionarios, a otro puesto, siempre y cuando ese traslado se motive en razones de necesidad de organización.
+También puede el Ejecutivo realizar permutas, a solicitud de las partes y con el acuerdo de los jefes de los departamentos afectados.

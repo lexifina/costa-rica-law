@@ -1,0 +1,2 @@
+Artículo 29.-Las planillas de los servidores municipales, para el pago de sus salarios y otras sumas que les correspondan, serán confeccionadas por la Oficina de Personal. Para ese efecto, el encargado de planillas, hará la nómina respectiva de los servidores con cargo especifico en el Presupuesto y las que se pagan semanalmente.
+Las planillas deberán ser revisadas y firmadas también por el Contador o Auditor y el Ejecutivo Municipal.

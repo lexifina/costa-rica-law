@@ -1,0 +1,1 @@
+Artículo 49.-El salario mensual o quincenal de los servidores con cargo específico en el Presupuesto Municipal, incluye el pago de los días feriados de toda clase, incluso los que declararé de asueto la Municipalidad y no se trabajaren.

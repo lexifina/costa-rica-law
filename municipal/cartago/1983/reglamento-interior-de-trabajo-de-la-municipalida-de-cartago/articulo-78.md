@@ -1,0 +1,2 @@
+Artículo 78.-De conformidad con lo establecido en el artículo 256 del Código de Trabajo, el patrono debe dar aviso al Instituto Nacional de Seguros del accidente profesional que ocurra a sus trabajadores, dentro del término de cuarenta y ocho horas, contando a partir de su acaecimiento o desde que tenga conocimiento del mismo.
+Si la Municipalidad incumple esta obligación será quien debe correr con las responsabilidades que de ella se deriven.

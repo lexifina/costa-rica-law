@@ -1,0 +1,1 @@
+Artículo 23.-Cuando el equipo de trabajo sufra desperfectos, que imposibilite su funcionamiento, los trabajadores que operan los mismos, serán destinados a la prestación de otros servicios propios de la Municipalidad, compatibles con sus condiciones físicas o aptitudes, sin que ello signifique cambio alguno de su contrato de trabajo y sin menoscabo de su salario.

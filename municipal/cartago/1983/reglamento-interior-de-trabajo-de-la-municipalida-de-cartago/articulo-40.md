@@ -1,0 +1,2 @@
+Artículo 40.-En defecto de los planes o cuadros indicados en los artículos 38 y 39 de este Reglamento, la oficina de personal señalará, a solicitud del servidor interesado, dentro de las quince semanas posteriores al día en que se cumpla el período legal para el disfrute de vacaciones, la fecha en que gozará de tal beneficio.
+Transcurridos los indicados tres meses para obtener el disfrute del derecho de vacaciones sin haberlo logrado, total o parcialmente, prescribirá el mismo, excepto en casos contemplados en el artículo 14 de este Reglamento.

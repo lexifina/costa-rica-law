@@ -1,0 +1,1 @@
+Artículo 17 .-La jornada de trabajo se desarrollará por los empleados administrativos o de oficina en los locales municipales correspondientes o en cualquier otro lugar que en el futuro se ocupe al efecto, y por los demás servidores en los lugares de trabajo que señalen los respectivos jefes de acuerdo con las normas de este Reglamento.

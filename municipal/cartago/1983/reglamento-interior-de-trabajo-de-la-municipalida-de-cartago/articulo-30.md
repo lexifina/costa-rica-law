@@ -1,0 +1,1 @@
+Artículo 30.-Ningún servidor podrá desempeñar más de un cargo remunerado en la Municipalidad, ni recibir más de un salario o pago por concepto de sueldo, salvo los casos de recargo de labores, horas extraordinarias, labores adicionales, prestaciones u otros casos autorizados por la ley y el presente Reglamento.

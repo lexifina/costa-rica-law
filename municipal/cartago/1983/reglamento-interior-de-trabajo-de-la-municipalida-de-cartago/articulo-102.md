@@ -1,0 +1,1 @@
+Articulo 102.-El empleado que cumpla diez años de labores continuas con nuestra institución, y que, por cualquier motivo desee rescindir su contrato de trabajo, la Municipalidad le reconocerá el 50% de la cesantía que le correspondería como prestaciones legales.

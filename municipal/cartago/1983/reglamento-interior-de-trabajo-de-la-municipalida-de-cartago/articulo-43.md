@@ -1,0 +1,3 @@
+Artículo 43.-El pago de las vacaciones lo hará la Municipalidad con base en el promedio de los salarios ordinarios y extraordinarios devengados por el servidor durante las últimas cincuenta semanas de labores, o período menor originario del derecho o vacaciones proporcionales.
+No se considerarán remuneraciones los subsidios recibidos de instituciones aseguradoras o incapacidades para el trabajo, y por consiguiente las cantidades que perciban los trabajadores por esos conceptos no entrarán en los cálculos para el pago de vacaciones.
+Los respectivos términos para el artículo trasanterior y el presente, se contarán a partir del cumplimiento del día en que el servidor adquiera su derecho a vacaciones.

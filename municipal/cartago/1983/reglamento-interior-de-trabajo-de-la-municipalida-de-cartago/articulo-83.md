@@ -1,0 +1,1 @@
+Artículo 83.-En cuanto a la servidora incapacitada por maternidad y aborto no intencional o parto prematuro no viable, se estará a lo dispuesto por los artículos 95 y 96 del Código de Trabajo; y 40 y siguientes del Reglamento de Seguro de Enfermedad y Maternidad de la Caja Costarricense de Seguro Social; en lo que afecte al personal femenino.

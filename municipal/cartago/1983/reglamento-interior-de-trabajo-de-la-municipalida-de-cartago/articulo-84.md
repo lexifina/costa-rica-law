@@ -1,0 +1,1 @@
+Artículo 84.-En los casos de los dos artículos anteriores, la Municipalidad sólo reconocerá al trabajador la diferencia entre lo que pague la Institución aseguradora y las sumas que indican esos artículos.

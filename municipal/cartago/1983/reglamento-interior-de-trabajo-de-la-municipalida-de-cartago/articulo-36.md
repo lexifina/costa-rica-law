@@ -1,0 +1,1 @@
+Artículo 36.-El tiempo empleado por el servidor para ponerse al día al regreso de licencia, vacaciones, incapacidad, o ausencia justificada, que excedan de seis días hábiles a causa de que el trabajador sustituto no ejecutó el recargo, se pagará al doble del salario correspondiente, sin perjuicio de la disposición contenida en el artículo anterior.

@@ -1,0 +1,5 @@
+Artículo 93.-La Oficina de Personal, será la encargada de la recepción de documentación de los solicitantes de una plaza, tanto interno como público y revisará e investigará esa documentación, cuando por cualquier motivo exista duda.
+Cerrado el plazo del concurso, que nunca podrá ser mayor a un mes, esta Oficina seleccionará cinco solicitudes, de entre los oferentes que se considere con más aptitudes para ocupar el puesto.
+El Jefe de Personal llamará a entrevista a los cinco seleccionados que consistirá en el trato de aspectos generales sobre el Régimen Municipal y concernientes al puesto en concurso. A su vez el jefe del departamento en el que se va a ocupar la plaza, entrevistará a los solicitantes sobre aspectos directamente relacionados con el puesto.
+Con base en los antecedentes y la entrevista realizada, la Oficina de Personal remitirá un informe al Ejecutivo Municipal, en el que se recomendará por orden descendente los oferentes que más califican para ocupar la vacante.
+Lo dispuesto en los dos párrafos anteriores, deberá realizarse dentro de los quince días posteriores a la fecha en que se cierra el concurso.

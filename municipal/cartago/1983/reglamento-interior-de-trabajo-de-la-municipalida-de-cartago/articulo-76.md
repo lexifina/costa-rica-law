@@ -1,0 +1,1 @@
+Artículo 76.-El trabajador que tenga una cita para un día prefijado debe avisar a la Oficina de Personal con tres días de anticipación por lo menos, a fin de que ésta disponga lo pertinente, con el objeto de no entorpecer la buena marcha de la Municipalidad.

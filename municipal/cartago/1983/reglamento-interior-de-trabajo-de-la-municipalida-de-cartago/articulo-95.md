@@ -1,0 +1,1 @@
+Artículo 95.-Tratándose de profesionales, el nombramiento debe ajustarse a lo que indique la ley del respectivo colegio. Además cuando se pretenda contratar servicios profesionales temporales, deberá la Municipalidad cumplir con lo que estipula el artículo 105 de la Ley de Administración Financiera de la República.

@@ -1,0 +1,1 @@
+Artículo 45.-Las faltas de asistencia al trabajo con pago total del salario podrán deducirse del período de vacaciones, hasta un máximo de dos días consecutivos en un mismo mes, calendario y con la justificación respectiva a satisfacción del Departamento de Personal.

@@ -1,0 +1,1 @@
+Artículo 7°-En todo contrato o relación laboral por tiempo indeterminado, habrá un período de prueba de tres meses menos un día, salvo en aquellos casos en que se convenga un plazo menor; en este período y sin previo aviso, cualquiera de las partes podrá dar por .terminado el contrato o relación laboral sin responsabilidad para la misma.

@@ -1,0 +1,1 @@
+Artículo 87. -En todos los casos del artículo anterior, debe presentarse formalmente la solicitud ante la Oficina de Personal, la cual se encargará de las gestiones respectivas y dará respuesta inmediata y por escrito.

@@ -1,0 +1,1 @@
+Articulo 105.-Los casos no previstos en este Reglamento, se resolverán de acuerdo con el Código Municipal, Código de Trabajo, leyes supletorias o conexas, los principios generales del Servicio Civil, los principios y leyes de derecho común, la equidad, la costumbre y uso locales.

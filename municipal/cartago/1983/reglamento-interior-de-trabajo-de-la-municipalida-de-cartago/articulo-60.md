@@ -1,0 +1,3 @@
+Artículo 60.-La suspensión de trabajo sin goce de salario se aplicará en los siguientes casos:
+a) Cuando el trabajador, después de haber sido apercibido por escrito, incurre nuevamente en la falta que la motivó, se aplicará en este caso la suspensión que establece el inciso c) del artículo 57 de este Reglamento; si el trabajador incurre nuevamente en la misma falta, se aplicará la suspensión indicada en el inciso d) del artículo 57 de este Reglamento.
+b) Cuando el trabajador viole alguna de las prohibiciones establecidas en el artículo 53 de este Reglamento, salvo que la falta diere mérito para el despido.

@@ -1,0 +1,1 @@
+Artículo 103. -Quedan exentos de los impuestos de papel sellado, timbres y derechos fiscales, todos los actos jurídicos, solicitudes y actuaciones de cualquier especie que se hagan con motivo de la aplicación de este Reglamento.

@@ -1,0 +1,1 @@
+Articulo 31.-En cuanto a retenciones en los salarios, solamente se harán a los empleados en los casos autorizados por la ley y el presente Reglamento, por orden judicial, o por acuerdo con el servidor, en el último caso deberá existir autorización escrita de éste.

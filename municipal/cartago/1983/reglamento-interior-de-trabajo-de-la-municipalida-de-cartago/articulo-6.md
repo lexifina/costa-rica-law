@@ -1,0 +1,4 @@
+Artículo 6°-Los contratos de trabajo serán:
+a) Por tiempo indefinido.-Que se celebrarán con aquellos trabajadores indispensables para satisfacer las necesidades propias y permanentes de la Municipalidad;
+b) Por tiempo determinado. -Que se celebrarán con los trabajadores que ejecuten las labores de quien o quienes se encuentren disfrutando de vacaciones o bajo licencia o incapacidades, así como en aquellos casos excepcionales en que su celebración resulte procedente conforme con la naturaleza de los servicios que se van a prestar;
+c) Por obra determinada.-Que se podrán celebrar para satisfacer necesidades que eventualmente se presenten en la Municipalidad y en los cuales sin previa fijación de tiempo, el objeto de la prestación personal del servicio subordinado será la misma obra producida.

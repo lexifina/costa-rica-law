@@ -1,0 +1,1 @@
+Artículo 16.-Se considerará incluido dentro del lapso de jornada de trabajo el tiempo que se utilice en el traslado fuera de la ciudad o a otro lugar que no sea el acostumbrado, a realizar sus labores.

@@ -1,0 +1,1 @@
+Artículo 91.-Sin perjuicio de lo prescrito en el artículo 145 del Código Municipal, no podrá exigirse a los solicitantes de una plaza vacante, requisitos que no sean indispensables para el desempeño de la misma.

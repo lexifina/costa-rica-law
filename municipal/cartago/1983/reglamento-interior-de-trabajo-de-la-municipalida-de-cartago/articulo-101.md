@@ -1,0 +1,1 @@
+Articulo 101.-A todo empleado que se acoja a cualquiera de los regímenes de pensión vigentes, la Municipalidad le liquidará sus prestaciones legales, y en caso de que haya laborado más de veinticinco años para la institución, se le pagará hasta un máximo de quince meses en el concepto de cesantía.
