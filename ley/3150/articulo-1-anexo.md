@@ -46,4 +46,11 @@ HONDURAS-COSTA RICA
 NICARAGUA-COSTA RICA
 0901.2 | Café tostado | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 22.07 2208.90.10 | Alcohol etílico esté o no desnaturalizado | Control de importación
-(Así reformado por Resolución No 01-2002 (CEIE), la cual fue aprobada por decreto ejecutivo N° 30806 del 15 de octubre de 2002)
+(Así reformado por Resolución No 01-2002 (CEIE) la cual fue aprobada por decreto ejecutivo N° 30806 del 15 de octubre de 2002)
+(NOTA: Mediante resolución N° 2-2002 (CEIE) aprobada mediante decreto ejecutivo N° 30951 del 6 de enero de 2003, se resuelve incorporar al libre comercio en las relaciones bilaterales entre los Estados Parte y por tanto eliminar del Anexo "A" del Tratado General de Integración Económica Centroamericana los siguientes productos:
+ALCOHOL ETÍLICO ESTÉ O NO DESNATURALIZADO (fracciones arancelarias 22.07 y 220890.10)
+Guatemala - El Salvador Libre comercio a partir del 1º de enero de 2004
+El Salvador - Nicaragua Libre comercio a partir del 1º de enero de 2003
+CAFÉ TOSTADO (subpartida arancelaria 0901.2)
+Guatemala - Nicaragua Libre comercio a partir del 1º de enero de 2003
+El Salvador- Nicaragua Libre comercio a partir del 1º de enero de 2003)
