@@ -16,3 +16,4 @@ Reglamento General de Crédito.
 | 1 | 1998-06-18 | la propia norma |
 | 2 | 1999-06-08 | Reglamento 3611 (1999-06-08) |
 | 3 | 1999-06-15 | Reglamento 3614 (1999-06-15) |
+| 4 | 2000-03-02 | Reglamento 3696 (2000-03-02) |
