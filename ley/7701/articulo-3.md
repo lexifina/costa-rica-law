@@ -1,3 +1,2 @@
 ARTÍCULO 3.- Utilización
-El emblema de la Cruz Roja deberá utilizarse siempre conforme a los
-principios fundamentales del Movimiento Internacional de la Cruz Roja.
+DEROGADO por el artículo 11 de la Ley N° 8031 de 19 de octubre del 2000.
