@@ -1,0 +1,1 @@
+Art. 2°-Todo Jefe de oficina, dependiente de la Secretaría de Hacienda y Fomento, pasará mensualmente informe detallado de los trabajos hechos en su oficina, é indicará en él las medidas que, en su concepto, crea convenientes para el buen servicio.
