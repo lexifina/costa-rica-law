@@ -1,3 +1,4 @@
+(Derogado)
 REGLAMENTOS
 BANCO HIPOTECARIO DE LA VIVIENDA
 La Junta Directiva en su sesión No 48 del 14 de julio de 1988, acuerdo único;
@@ -7,6 +8,7 @@ Considerando:
 Por tanto,
 Se acordó aprobar y emitir el siguiente:
 ESTATUTO DE PERSONAL
+(Este Estatuto se encuentra derogado expresamente por Acuerdo de Sesión Nº 76 del 1 de octubre de 1992)
 CAPITULO I
 Disposiciones generales
 Artículo 1 °—Este Estatuto contiene las disposiciones aplicables a los trabajadores del Banco Hipotecario de la Vivienda, que en adelante se denominará simplemente "Banco" y se dicta con fundamento en los artículos 26, inciso ch) y 29, inciso f) de la Ley de Creación del Sistema Financiero Nacional para la Vivienda Nº 7052 del 13 de noviembre de 1986, que en adelante se denominará simplemente "Ley".

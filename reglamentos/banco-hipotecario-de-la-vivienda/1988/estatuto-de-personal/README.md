@@ -14,3 +14,4 @@ Estatuto de Personal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-08-16 | la propia norma |
+| 2 | 1992-10-01 | Reglamento 76 (1992-10-01) |
