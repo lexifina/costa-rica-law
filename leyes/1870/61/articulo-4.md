@@ -1,0 +1,2 @@
+Art 4° Los Capitanes o Sobrecargos que contravienen a las disposiciones anteriores, pagarán una multa igual al doble del impuesto itinerario y marítimo que correspondiera satisfacer por los artículos que se hubiesen desembarcado sin las formalidades legales.
+Único. - Cuando los artículos desembarcados fueren de ilícito comercio, los Capitanes o Sobrecargos pagarán una multa de doscientos has cinco mil pesos, según la importancia del contrabando que se hubiere verificado, - Dado en Palacio Nacional en San José, a los once días del mes de noviembre de mil ochocientos sesenta.
