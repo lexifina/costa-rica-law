@@ -1,0 +1,1 @@
+24. La remisión de los reos al presidio urbano, se arreglara al Decreto que el Supremo Gobierno emita con este objeto. –Dado en la ciudad de San José á veinticuatro de Enero de mil ochocientos cuarenta y cuatro. –José María Alfaro. –Al Secretario general del Despacho SR. Doctor José María Castro.”

@@ -1,0 +1,1 @@
+20. Los Alcaides y Carceleros, deben vivir y estar continuamente en el edificio, sin salir de él, sinó es a cumplir algunas de sus obligaciones ó por llamamiento de Autoridad competente; pero en ningún caso durante la noche. Su habitación estará inmediata á la puerta principal del edificio.

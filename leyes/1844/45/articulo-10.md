@@ -1,0 +1,1 @@
+10. El Alcaide no permitirá fuego ni vela encendida á presos, estén o no comunicados; excepto cuando tengan á la vista un centinela; pero los detenidos y deudores pueden tener luz, desde las seis hasta las ocho de la noche, en cuya hora se cerrarán las puertas.
