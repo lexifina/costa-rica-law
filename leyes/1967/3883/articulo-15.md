@@ -1,0 +1,2 @@
+ARTICULO 15.- El Registro no podrá oponerse a que los documentos sean retirados por sus dueños; tampoco a la correspondiente insubsistencia del asiento respectivo del diario. En tal caso, el retiro se efectuará en escritura pública, con la comparecencia del titular del derecho contenido en el documento. Esta solicitud de retiro estará exenta del pago de derechos de registro y cualquier otro impuesto.
+(Así reformado por el artículo 172 del Código Notarial No.7764 de 17 de abril de 1998)

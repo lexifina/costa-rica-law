@@ -1,0 +1,2 @@
+ARTICULO 27.- Para la calificación, tanto el Registrador General como los tribunales se atendrán tan sólo a lo que resulte del título, de los libros, de los folios reales, mercantiles o personales, y en general de toda la información que conste en el Registro y sus resoluciones no impedirán ni prejuzgarán el juicio sobre la validez del título o de la obligación, acto o contrato, que llegare a entablarse.
+(Así reformado por el artículo 2 de la Ley No.6145 del 18 de noviembre de 1977)

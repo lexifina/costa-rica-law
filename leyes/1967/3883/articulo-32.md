@@ -1,0 +1,2 @@
+ARTÍCULO 32.- El Registro Nacional, mediante los procedimientos técnicos y tecnológicos que considere seguros y ágiles, establecerá la forma de tramitar y publicitar la información registral. Los asientos registrales efectuados con estos medios surtirán los efectos jurídicos derivados de la publicidad registral, respecto de terceros y tendrán la validez y autenticidad que la ley otorga a los documentos públicos.
+(Así adicionado por el artículo 184 del Código Notarial No.7764 de 17 de abril de 1998)

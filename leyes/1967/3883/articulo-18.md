@@ -1,0 +1,2 @@
+ARTICULO 18.- Si el interesado no se conformare con la calificación que de un documento haga el Registrador General podrá, en cualquier tiempo, promover el ocurso respectivo, exponiendo por escrito los motivos y razones legales en que se apoya al solicitar se revoque la orden de suspensión o bien la denegación formal de la inscripción. El ocurso procederá también porque el Registrador se niegue a inscribir documentos por motivos de derechos de registro o impuestos.
+(Así reformado por el artículo 2 de la Ley No.6145 del 18 de noviembre de 1977)

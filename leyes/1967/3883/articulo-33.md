@@ -1,0 +1,2 @@
+ARTÍCULO 33.- Cuando la ubicación geográfica de un inmueble esté mal consignada en los asientos registrales, la situación podrá corregirse en escritura pública, con la comparecencia del titular del bien. En todo caso, el notario deberá dar fe de que la ubicación geográfica es correcta, con vista del plano debidamente inscrito en el Catastro Nacional. Si el inmueble no tuviere plano catastrado, deberá efectuarse el levantamiento correspondiente.
+(Así adicionado por el artículo 184 del Código Notarial No.7764 de 17 de abril de 1998)

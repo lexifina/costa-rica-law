@@ -1,0 +1,2 @@
+ARTÍCULO 6 bis.- Los funcionarios de las dependencias de los registros que reciban documentos para su inscripción, una vez que los califiquen, indicarán los defectos en un solo acto. El incumplimiento hará incurrir al funcionario público en responsabilidad disciplinaria, con la sola denuncia del notario o del interesado. El jefe administrativo o director aplicará de inmediato la sanción. La reiteración facultará al jefe inmediato para reubicar al funcionario.
+(Así adicionado por el artículo 184 del Código Notarial No.7764 de 17 de abril de 1998)
