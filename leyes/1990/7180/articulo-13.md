@@ -1,6 +1,1 @@
-ARTICULO 13.- Aquellas personas físicas o jurídicas cuyas actividades
-estén distribuidas en uno o más cantones, aparte del cantón de Santa
-Bárbara, por lo cual estén sujetas al pago de patentes en esos cantones,
-deberán determinar y demostrar, con la documentación pertinente, la
-proporción del volumen de sus negocios que se genera en el cantón de Santa
-Bárbara, para efectos del pago del impuesto.
+ARTICULO 13.- Aquellas personas físicas o jurídicas cuyas actividades estén distribuidas en uno o más cantones, aparte del cantón de Santa Bárbara, por lo cual estén sujetas al pago de patentes en esos cantones, deberán determinar y demostrar, con la documentación pertinente, la proporción del volumen de sus negocios que se genera en el cantón de Santa Bárbara, para efectos del pago del impuesto.

@@ -1,4 +1,1 @@
-ARTICULO 20.- A las personas físicas o jurídicas que estén excluidas
-de la obligación de presentar la declaración sobre la renta, o que no estén
-incluidas en ninguno de los casos especiales definidos en el artículo 15,
-se les aplicará la tarifa que establece el artículo 22 de esta ley.
+ARTICULO 20.- A las personas físicas o jurídicas que estén excluidas de la obligación de presentar la declaración sobre la renta, o que no estén incluidas en ninguno de los casos especiales definidos en el artículo 15, se les aplicará la tarifa que establece el artículo 22 de esta ley.
