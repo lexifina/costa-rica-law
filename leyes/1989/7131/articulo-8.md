@@ -1,0 +1,2 @@
+ARTICULO 8.- Modifícase los artículos 2 y 4 de la Ley No. 7111 de 12 -12 -88, para incorporar los siguientes recursos extraordinarios internos aprobados por la Asamblea Legislativa, en dicha Ley, así como el artículo 12 de la Ley 7089 de 18-12-87; en la forma que se indica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido el texto de la reforma debe ser consultado en el Alcance N° 28 a La Gaceta N° 159 del 23 de agosto de 1989)

@@ -1,0 +1,1 @@
+ARTICULO 37.-Las partidas de obras específicas, título 130 del presupuesto de 1988, comprometidas al 30 de junio de 1989 y no giradas, se considerarán automáticamente revalidadas hasta el 31 de diciembre de 1989.

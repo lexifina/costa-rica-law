@@ -1,0 +1,3 @@
+ARTICULO 56.-Modifícase el artículo 35, inciso 4) del Presupuesto Nacional para 1988, No. 7089 del 18 de diciembre 1987 para que diga de la siguiente manera:
+"Artículo 35: ...
+4.- Exonérase del pago de todo tipo de impuestos, tasas, sobretasas y derechos de inscripción al Comité Olímpico Nacional de Costa Rica, para la adquisición de un vehículo marca Hyunday Pony, estilo coupé, de 1300 cc., el cual le será donado por la Empresa o Compañía Tecnomotores, S.A.

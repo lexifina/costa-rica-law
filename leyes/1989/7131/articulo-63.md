@@ -1,0 +1,1 @@
+ARTICULO 63.-El número correcto de finca cuya donación se le autoriza a la Municipalidad de Goicoechea a favor de COOPECASA, R.L., en la ley No. 7097 del 18 de agosto de 1988, artículo 16, inciso 13 es el 349507-000.

@@ -1,0 +1,3 @@
+ARTICULO 44.-Modifícase el numeral 2 del artículo 38 de la ley No. 7111 del 12 de diciembre de 1988, para que diga de la siguiente forma.
+"Artículo 38: ...
+2.- De la partida de bonos "Refundición de la Deuda Externa", el Ministerio de Hacienda destinará la suma de cuarenta millones de colones ¢40.000.000) para girárselos a la Comisión Nacional de Asuntos Indígenas (CONAI), a fin de que los destine al pago de obligaciones por compra de tierras."

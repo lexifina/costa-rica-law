@@ -1,0 +1,1 @@
+ARTICULO 38.-Para los efectos legales correspondientes, revalídase la partida presupuestaria código 13-513-510, de la Ley de Presupuesto Nacional para 1988, para la casa del Maestro. Esta partida conservará su destino y será fuente de financiamiento para las obras contratadas mediante la licitación pública No.69-88, construcción de casas del maestro rural-MEP.

@@ -1,0 +1,1 @@
+ARTICULO 24.-Autorízase a los bancos comerciales del Estado para que suscriban convenios de cooperación con el Ministerio de Hacienda y con el Instituto Costarricense de Turismo, relacionados con el Depósito Libre Comercial de Golfito, y para que efectúen los aportes económicos necesarios, en las condiciones y modalidades que en tales convenios se establezcan.
