@@ -1,0 +1,2 @@
+III.—Indicar al Ministerio de Obras Públicas y Transportes, Io siguiente que debe tomar las acciones pertinentes, para que en materia de sustitución, ampliación y disminución de la flota establezca las regulaciones necesarias que permitan minimizar el impacto que tiene en las tarifas, los cambios en la flota del servicio de transporte remunerado de personas, dada la sensibilidad que presenta el modelo econométrico en tal sentido.
+Notifíquese y publíquese en el Diario Oficial.
