@@ -1,0 +1,42 @@
+Artículo 18
+Cooperación Internacional
+Existirá cooperación entre los tribunales o las autoridades
+competentes de los Estados Parte, tomando las medidas apropiadas, a fin de
+prestarse asistencia en materia relacionada con delitos de lavado de
+dinero, proveniente del tráfico ilícito de drogas y delitos conexos,
+conforme a este Convenio y dentro de los límites de sus respectivos
+ordenamientos jurídicos.
+El tribunal o autoridad competente de cada Estado Parte podrá, por la
+vía diplomática presentar o recibir una solicitud de su homólogo de otro
+Estado Parte para identificar, detectar, embargar o decomisar bienes,
+productos o instrumentos relacionados con delitos de lavado de dinero
+proveniente del tráfico ilícito de drogas y delitos conexos, y podrá tomar
+las medidas apropiadas, incluso lo dispuesto en los artículos 4 y 5 de
+este Convenio.
+Una resolución judicial o sentencia firme que condene al decomiso de
+bienes, productos o instrumentos, expedida por un tribunal competente de
+otro Estado Parte respecto al lavado de dinero proveniente del tráfico
+ilícito de drogas y delitos conexos, podrá admitirse como prueba de que
+estos bienes, productos o instrumentos pueden estar sujetos a embargo, a
+medidas cautelares, o a decomiso según corresponda, conforme al derecho
+interno de cada Estado Parte.
+El tribunal o autoridad competente podrá recibir por la vía
+diplomática una solicitud de un tribunal o autoridad competente de otro
+Estado Parte para prestar asistencia, sobre una investigación o proceso de
+carácter civil, penal o administrativo, según corresponda, referente a
+delitos de lavado de dinero proveniente del tráfico ilícito de drogas y
+delitos conexos, o a violaciones de este Convenio.
+Esta asistencia podrá incluir el suministro de originales o copias
+autenticadas de los documentos y registros pertinentes, comprendidos los
+de entidades de intermediación financiera, los de las que realicen
+actividades financieras, a que se refiere el artículo 10 del presente
+Convenio y entidades gubernamentales; la obtención de testimonios en el
+Estado Parte requerido; la facilitación de la presencia o disponibilidad
+voluntaria en el Estado Parte, requirente de personas para prestar
+declaración, incluso las detenidas; la localización o identificación de
+personas; la entrega de citaciones; el examen de objetos y lugares; la
+realización de inspecciones e incautaciones; la facilitación de
+información y elementos de pruebas y medidas cautelares.
+La asistencia que se brinde para este artículo se prestará conforme
+al derecho interno de cada Estado Parte y los instrumentos internacionales
+vigentes.
