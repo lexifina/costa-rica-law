@@ -1,0 +1,2 @@
+XXII
+La Empresa podrá importar libremente, sin pago de contribución alguna, todos los materiales necesarios para la construcción, mantenimiento y explotación de cualquiera de las estaciones antes mencionadas, adquiridas, construidas o por construir, de acuerdo con este contrato, para lo cual someterá previamente la nota de pedido a conocimiento de la Secretaría de Hacienda para que ésta determine si los artículos en ella comprendidos están o no incluidos en esta concesión y en caso afirmativo autorice su despacho inmediato.

@@ -1,0 +1,2 @@
+VIII
+Los concesionarios quedan obligados a dar un servicio eficiente, a fin de que el público en general pueda gozar de las ventajas de las comunicaciones radiográficas con el resto del Mundo y embarcaciones en alta mar. El Gobierno hará las facilidades necesarias para la comunicación entre las estaciones construidas o adquiridas de acuerdo con este contrato y las redes telegráficas o telefónicas nacionales.
