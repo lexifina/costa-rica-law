@@ -1,0 +1,1 @@
+Artículo 2°-Exonérase del pago de toda clase de derechos de aduana la compra que hará la Municipalidad de Siquirres de un tractor, una planta eléctrica de100 Kilovatios y 10 Kilómetros de alambre de teléfono y accesorios.
