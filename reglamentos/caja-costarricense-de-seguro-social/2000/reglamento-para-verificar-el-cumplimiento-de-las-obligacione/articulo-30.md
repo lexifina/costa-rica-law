@@ -1,0 +1,1 @@
+Artículo 30.—Se deroga el "Reglamento del procedimiento para verificar el cumplimiento de las obligaciones patronales ante la Caja Costarricense de Seguro Social", aprobado por la Junta Directiva de la Caja Costarricense de Seguro Social, artículo 24 de la sesión número 7062, celebrada el 24 de setiembre de 1996; así como cualquier otra disposición reglamentaria que se le oponga.

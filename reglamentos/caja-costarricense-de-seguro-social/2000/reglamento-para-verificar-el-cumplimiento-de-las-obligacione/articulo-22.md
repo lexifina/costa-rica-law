@@ -1,0 +1,3 @@
+Artículo 22.—Los recursos se presentarán por escrito ante el órgano que dictó la resolución o acto recurrido. Bajo pena de inadmisibilidad, deberán ser fundamentados expresando las razones y aportando u ofreciendo las pruebas pertinentes, de lo contrario se declarará su inadmisibilidad.
+El escrito deberá señalar lugar y medio para recibir notificaciones en alzada, dentro del perímetro establecido en el artículo 17, cuando el órgano superior esté ubicado en otro lugar.
+En el caso de que el patrono indique como medio de notificación número facsimilar o cualquier otro medio electrónico, no aplica la limitación de que éste se encuentre dentro del perímetro administrativo establecido por la Caja.

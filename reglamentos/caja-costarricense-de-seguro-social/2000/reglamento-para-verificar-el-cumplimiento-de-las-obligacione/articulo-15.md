@@ -1,0 +1,1 @@
+Artículo 15.—En los casos en que el patrono o asegurado solicite la confección de planillas adicionales, siempre que exista coincidencia entre lo solicitado por estos y lo comprobado por el Inspector, se procederá sin más trámite a la confección de éstas, prescindiendo del traslado de cargos.

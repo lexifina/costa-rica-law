@@ -1,0 +1,2 @@
+Artículo 2º—El presente reglamento regula el procedimiento para verificar el cumplimiento de las obligaciones a favor de la Caja, derivadas de los seguros sociales establecidos por el artículo 73 de la Constitución Política y la Ley. Así como lo correspondiente al Fondo de Capitalización Laboral y aporte patronal, según la Ley de Protección al Trabajador.
+Su objeto más importante es la verificación de la verdad real, con respeto de los derechos e intereses legítimos de las partes y del ordenamiento jurídico en general.

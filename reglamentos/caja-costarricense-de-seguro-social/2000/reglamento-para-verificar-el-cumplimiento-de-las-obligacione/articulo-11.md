@@ -1,0 +1,1 @@
+Artículo 11.—En los casos que el patrono o asegurado acepte los cargos por escrito, facultará a la administración para dictar la resolución final, sin que sea necesario el cumplimiento del plazo para el descargo conferido en el artículo anterior de este Reglamento.

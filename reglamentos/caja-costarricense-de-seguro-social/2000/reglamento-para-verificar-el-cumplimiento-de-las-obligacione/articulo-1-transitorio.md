@@ -1,0 +1,1 @@
+Transitorio Primero: Los procedimientos de determinación en los cuales se haya efectuado el traslado de cargos antes de la vigencia de la Ley Nº 7983, se continuarán tramitando y fenecerán con apego a las normas existentes al momento de su iniciación.

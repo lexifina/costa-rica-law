@@ -1,0 +1,2 @@
+Transitorio Segundo: La conformación de la comisión asesora en materia de impugnaciones patronales, se ajustará a lo dispuesto en el artículo 28 del presente Reglamento, hasta tanto a la Caja se le autoricen los códigos presupuestarios respectivos. Mientras tanto la comisión asesora de la Gerencia División Financiera, estará conformada por los miembros que el Gerente Financiero designe al efecto y tendrá las atribuciones que señala el artículo 28 de este Reglamento". Acuerdo firme.
+San José, 9 de noviembre del 2000.

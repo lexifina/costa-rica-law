@@ -1,0 +1,1 @@
+Artículo 13.—Dentro de los diez días siguientes a la conclusión de la fase a que hace referencia el artículo anterior, el inspector trasladará al jefe de sección o sucursal un proyecto de informe, salvo que estos ordenen prueba para mejor resolver, en cuyo caso el plazo regirá a partir de su recibo o de la recepción del expediente si se comisionó a otra oficina.
