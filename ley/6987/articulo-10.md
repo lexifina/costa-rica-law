@@ -1,2 +1,0 @@
-ARTÍCULO 10
-El presente Convenio tendrá un período de validez de tres años, y podrá ser automáticamente prorrogado por uno o más períodos iguales, excepto que una de las Partes lo denuncie, con una anticipación de seis meses antes de su vencimiento y mediante notificación expresa al otro Gobierno. La derogación de este Convenio no afectará los Acuerdos complementarios derivados del mismo, excepto que ambas Partes tomen una decisión en contrario respecto a este punto.
