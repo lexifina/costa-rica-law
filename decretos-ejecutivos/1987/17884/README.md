@@ -14,3 +14,4 @@ Reglamento Impuesto Propiedad Vehículos, Embarcaciones y Aeronaves
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-12-09 | la propia norma |
+| 2 | 1987-12-09 | Decreto Ejecutivo 21545 (1992-08-24) |
