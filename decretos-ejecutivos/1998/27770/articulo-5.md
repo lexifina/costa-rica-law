@@ -1,0 +1,1 @@
+Artículo 5º—La violación a las regulaciones anteriormente indicadas, será sancionada con las penas señaladas en la Ley de Protección Fitosanitaria, sus Reglamentos, Ley General de Salud, sus Reglamentos y otras leyes conexas vigentes.
