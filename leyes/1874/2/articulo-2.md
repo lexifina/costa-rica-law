@@ -1,0 +1,1 @@
+Art 2° Se faculta también para elevar en diez centavos el valor de cada libra de tabaco, de las clases que lo juzgue, conveniente, hasta en veinticinco centavos por libra los derechos de importación de tabaco.
