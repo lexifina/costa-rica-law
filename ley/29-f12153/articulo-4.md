@@ -1,0 +1,1 @@
+4°.- Quando en las Poblaciones hubiese un exeso de almas que no llegue a quatro mil, y que por lo mismo no puede entrar en la regla del art´2°, si exediese de dos mil tendrá igual consideración que si fuese el número completo de quatro, y si baja ninguna.
