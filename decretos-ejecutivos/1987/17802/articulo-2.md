@@ -1,0 +1,2 @@
+ARTICULO 2°.-Únicamente se permitir la recolección de huevos de tortuga lora, en el rea de anidamiento masivo, constituida por 880 metros de playa, desde la desembocadura del estero de Ostional, hasta las rocas "Las Cocineras".
+Quedar prohibida la extracción de huevos en 3 cuadrantes para investigación de 300 mts cada uno, que serán debidamente demarcados por personal científico idóneo, debidamente autorizado por el Ministerio de Agricultura y Ganadería.
