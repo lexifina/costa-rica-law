@@ -1,0 +1,3 @@
+Art 14°. - Los Mayordomos generales de fondos municipales, son obligados, después de la publicación de esta ley, a asegurar el manejo de los caudales que entren a su poder, con hipoteca libre que alcance el valor de tres mil pesos, o con fianza de esta cantidad de persona abonada. La hipoteca o fianza de esta cantidad de persona abonada. La hipoteca o fianza debe ser a satisfacción del respectivo Gobernador de la Provincia.
+Dado en San José, a los veintisiete días del mes de setiembre de mil ochocientos cincuenta y ocho.
+Por tanto, Ejecútese, San José setiembre veintiocho de mil ochocientos cincuenta y ocho.

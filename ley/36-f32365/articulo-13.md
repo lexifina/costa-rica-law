@@ -1,0 +1,1 @@
+Art 13°.- Los Mayordomos generales de propios de las Provincias, serán los Fiscales natos que deben representar la Hacienda, conforme queda dicho antes, quienes además del honorario que les tiene señalado, percibirán por el trabajo que se les impone por esta ley, de los derechos especificados en los artículos 1356 al 1362 de la parte 3° del Código general.
