@@ -14,3 +14,4 @@ Traslada programa de guarderías infantiles que venía ejecutando el Ministerio 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-09-17 | la propia norma |
+| 2 | 1997-04-09 | Decreto Ejecutivo 25996 (1997-04-09) |
