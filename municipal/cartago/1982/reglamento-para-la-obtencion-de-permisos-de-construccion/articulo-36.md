@@ -1,0 +1,1 @@
+Artículo 36.-En todo permiso de construcción, reparación, ampliación o remodelación se reservará un área de dos metros (2,00 m) mínimo hacia dentro del cordón y caño destinada a acera. La Ingeniería Municipal decidirá en cada caso las dimensiones de la misma dependiendo del interés social de la obra.

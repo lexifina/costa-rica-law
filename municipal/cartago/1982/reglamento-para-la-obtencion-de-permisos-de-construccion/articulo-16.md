@@ -1,0 +1,4 @@
+Artículo 16.-No conforme el interesado con la decisión del ingeniero municipal, podrá apelar de la misma ante el Ejecutivo dentro de los cinco días hábiles siguientes a aquél en que se le notificó la resolución.
+En este caso el Ejecutivo solicitará la colaboración del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, a efecto de que externe su criterio. Recibido el informe solicitado el Ejecutivo procederá a resolver el asunto objeto de la controversia.
+Conocida una solicitud, la Municipalidad deberá resolvería, dentro del mes siguiente.
+Vencido este plazo sin comunicación alguna por parte de la Municipalidad, se presume que la solicitud fue aprobada, sin perjuicio de las enmiendas que la misma ordene dentro de los 30 días siguientes al de vencimiento del primer plazo; de lo contrario, se entenderá por definitivamente aprobado el permiso, en los términos solicitados.

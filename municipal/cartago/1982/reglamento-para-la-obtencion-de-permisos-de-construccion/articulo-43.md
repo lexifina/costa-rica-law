@@ -1,0 +1,1 @@
+Artículo 43.-A partir de la vigencia de éste reglamento toda segregación que se efectúe en las áreas urbanas. los frentes de los lotes deben tener las dimensiones mínimas establecidas en la Ley de Planificación Urbana y las disposiciones del INVU.

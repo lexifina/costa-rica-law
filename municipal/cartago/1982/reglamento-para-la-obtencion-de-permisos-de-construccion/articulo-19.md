@@ -1,0 +1,1 @@
+Artículo 19.-Firme la resolución que indica el alineamiento y nivel respectivo se procederá a extender el permiso correspondiente el que deberá ser firmado por el Ingeniero Municipal y por el funcionario encargado del Departamento de emisión de permisos de construcción.

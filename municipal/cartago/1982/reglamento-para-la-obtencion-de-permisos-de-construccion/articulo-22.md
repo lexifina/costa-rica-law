@@ -1,0 +1,1 @@
+Artículo 22. -El supervisor de la obra dará su aprobación final y se "procederá a enviar la copia del formulario de "solicitud de permiso de construcción", a la Dirección General de la Tributación Directa.

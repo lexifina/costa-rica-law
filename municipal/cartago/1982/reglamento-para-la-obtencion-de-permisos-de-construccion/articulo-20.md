@@ -1,0 +1,1 @@
+Artículo 20 .-Toda alteración al trazo de una construcción hacia afuera del alineamiento oficial, será considerada como una invasión de la vía pública, quedando obligado el dueño de la construcción a demoler la parte de la misma que motive dicha Invasión del plazo que al efecto señale la Municipalidad.

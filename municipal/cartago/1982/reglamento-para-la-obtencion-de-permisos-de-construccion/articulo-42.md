@@ -1,0 +1,1 @@
+Artículo 42.-La violación e incumplimiento de éste reglamento y de las leyes que regulan la materia por parte de funcionarios municipales serán sancionados de acuerdo a lo que establece el Código Municipal, el Código de Trabajo y el Reglamento Interior de Trabajo.

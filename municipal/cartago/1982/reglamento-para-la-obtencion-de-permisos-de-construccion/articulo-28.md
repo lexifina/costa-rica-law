@@ -1,0 +1,1 @@
+Artículo 28.-No se autorizará la construcción de cocheras en el espacio destinado a antejardín. Salvo en casos calificados, en este caso el apoyo de la cubierta deberá ser sobre columnas, para evitar el cerramiento de este espacio.

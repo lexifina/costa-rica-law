@@ -1,0 +1,1 @@
+Artículo 8°-La ubicación de edificios públicos y privados se hará de acuerdo a lo previsto en el Plan Regulador si lo hubiera, y en su defecto, donde lo autoricen los ministerios correspondientes, la Municipalidad y el INVU, salvo que la ubicación de los mismos debe obedecer razones de carácter técnico.
