@@ -1,0 +1,1 @@
+Artículo 4°-Se autoriza a los notarios del Estado para que inscriban las fincas expropiadas a nombre de la Asociación de Desarrollo Integral de la Reserva Indígena de Conte Burica, una vez que haya concluido el proceso expropiatorio.

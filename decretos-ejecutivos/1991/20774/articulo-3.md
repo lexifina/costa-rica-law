@@ -1,0 +1,1 @@
+Artículo 3°-El precio que pagará el Estado por el conjunto de las tres propiedades incluidas en la Reserva Indígena es de ₡ 20.033.826,45, fundamentado en el avalúo administrativo N° AV-ADM-756, realizado por el Departamento de Avalúos de la Dirección General de la Tributación Directa, Ministerio de Hacienda, de fecha 6 de agosto de 1991.
