@@ -1,0 +1,1 @@
+Artículo 4°-En el caso de uso de pólvora, juegos pirotécnicos, se requiere de la autorización del Departamento de Armas y Explosivos del Ministerio de Seguridad Pública, póliza del Instituto Nacional de Seguros para dicha actividad específica y el compromiso formal y por escrito de utilizar un tubo de hierro ajustado a un hoyo y en tierra firme, para las detonaciones.

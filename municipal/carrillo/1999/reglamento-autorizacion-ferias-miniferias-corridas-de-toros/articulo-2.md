@@ -1,0 +1,1 @@
+Artículo 2°-Si en la actividad van a operar carrusel es, deberán adjuntar la original o copia de la póliza respectiva extendida por el Instituto Nacional de Seguros, que en ningún caso no podrá ser de una cobertura menor a los ¢5.000.000,00 (cinco millones de colones) en los caseríos y en las cabeceras de distrito ¢ 10.000.000,00 (diez millones de colones).
