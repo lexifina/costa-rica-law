@@ -1,0 +1,1 @@
+Articulo 16.—Los vehículos de uso administrativo no podrán circular fuera del horario normal de la Institución, solo en circunstancias especiales y con la debida autorización por escrito del señor Alcalde Municipal o jefes responsables.

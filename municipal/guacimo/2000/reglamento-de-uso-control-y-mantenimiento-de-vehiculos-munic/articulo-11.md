@@ -1,0 +1,1 @@
+Artículo 11.—El conductor de un vehículo municipal será responsable de los daños que le causen o lo que le suceda, si se comprueba imprudencia o negligencia en su manejo. También responderá por las infracciones o las leyes de tránsito salvo caso fortuito o fuerza mayor.

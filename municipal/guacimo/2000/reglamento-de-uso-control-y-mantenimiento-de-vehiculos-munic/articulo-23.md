@@ -1,0 +1,7 @@
+Artículo 23.—Los choferes y demás funcionarios autorizados para conducir los vehículos municipales son responsables del cuido y conservación de los mismos y están sujetos también a las siguientes obligaciones.
+a. Dejar en lugar seguro el vehículo mientras dura la gira y al regreso de ésta, dejarlo en el estacionamiento de la Institución, salvo cuando se cuente con autorización previa del Alcalde Municipal para llevárselo a la casa particular.
+b. Reportar al jefe de maquinaria cualquier desperfecto o falla mecánica, así como todo lo relacionado con el vehículo digno de mención, que allá ocurrido durante la gira.
+c. En caso de accidente o colisión durante la gira, deberá tomar las previsiones para que las autoridades judiciales y de tránsito, así como el Instituto Nacional de Seguros hagan las obligaciones, con base en la realidad de los hechos y reportar inmediatamente lo ocurrido al Alcalde Municipal y encargado de maquinaria.
+d. Reportar la desaparición de accesorios del vehículo, aceptando la responsabilidad civil o indicando la presente persona o personas responsables penal y civilmente.
+e. Vigilar las necesidades propias del vehículo (agua, aceite, combustible, desperfectos, etc.) y tomar las providencias del caso, mientras dure la gira.
+f. Velar por las condiciones de seguridad del vehículo durante la gira realizando dentro de lo posible la reparaciones para el normal funcionamiento del mismo.

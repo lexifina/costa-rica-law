@@ -1,0 +1,1 @@
+Artículo 4°—Queda prohibido que en los vehículos tanto de uso administrativo como discrecional viajen personas ajenas a esta Municipalidad salvo aquellos casos que por los propósitos del viaje, el Alcalde Municipal lo autorice expresamente por escrito (fórmula para ese fin vale de transporte numerados correctamente).

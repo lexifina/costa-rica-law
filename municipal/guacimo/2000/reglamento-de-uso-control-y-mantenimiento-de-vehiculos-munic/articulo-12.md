@@ -1,0 +1,4 @@
+Artículo 12.—Tendrán derecho a uso de vehículo discrecional solamente los funcionarios que expresamente la ley les conceda el beneficio en su artículo 225, Ley de Tránsito 7331, si así lo indica el Alcalde Municipal.
+El beneficio que otorga el uso del vehículo de uso discrecional, no podrá considerarse bajo ninguna circunstancia como salario en especie.
+El vehículo será utilizado por el funcionario que tiene ese derecho, en razón del cargo que ostenta y en ningún caso por otra persona.
+Igualmente el funcionario que tenga asignado la condición de uso discrecional responderá por su buen uso, mantenimiento adecuado, no se podrá dar un uso arbitrario en provecho de él ni su allegados, por lo tanto de acuerdo a las normas de una administración sana y responsable, se exigirá que el funcionario aproveche este recurso de la mejor forma posible, en el desarrollo de sus labores.

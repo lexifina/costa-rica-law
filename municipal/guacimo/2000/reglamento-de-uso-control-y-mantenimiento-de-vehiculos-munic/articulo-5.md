@@ -1,0 +1,1 @@
+Artículo 5°—Todos los vehículos de propiedad municipal deberán rotularse en lugar visible con la leyenda que exprese e identifique la propiedad municipal y se ubicará preferiblemente que no afecte la pintura del automotor.

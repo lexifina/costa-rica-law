@@ -1,0 +1,1 @@
+Artículo 8°—Es obligación municipal asegurar todos sus vehículos automotores con la cobertura más conveniente posibles promedio del Instituto Nacional de Seguros, los cuales serán responsabilidad administrativa mantenerlas vigentes en todo momento.

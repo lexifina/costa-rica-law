@@ -1,0 +1,1 @@
+Artículo 7°—E1 uso de los vehículos propiedad de la Municipalidad, incluyendo los de uso discrecional o uso del estacionamiento en ningún caso se entenderán como parte de la retribución del servidor para todos los efectos laborales.
