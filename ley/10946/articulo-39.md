@@ -1,0 +1,5 @@
+ARTÍCULO 39- Prohibición de diseño manipulativo y patrones oscuros en interfaces en línea
+1. Los proveedores de servicios intermediarios no utilizarán la estructura, función, diseño, programación o modo de funcionamiento de su interfaz en línea, ni de ninguna parte de esta, para intencionalmente, de forma ilícita y abusiva distorsionar, perjudicar o limitar la capacidad de los destinatarios de servicios para adoptar una decisión o elección libre, autónoma e informada. En particular, sin perjuicio de otras actuaciones que puedan formar parte de la conducta prohibida anteriormente descrita, los prestadores de servicios intermediarios se abstendrán de:
+a) Dar más protagonismo visual a cualquiera de las opciones de consentimiento al pedir al destinatario del servicio que tome una decisión.
+b) Hacer que el procedimiento de finalización o terminación de un servicio sea significativamente más engorroso que la suscripción a este.
+2. Cuando proceda, los proveedores de servicios intermediarios adaptarán sus características de diseño para garantizar un adecuado nivel de privacidad, seguridad y protección desde el diseño para las personas.

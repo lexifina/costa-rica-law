@@ -1,0 +1,6 @@
+ARTÍCULO 17- Prohibición en el uso de patrones oscuros comerciales
+Se prohíbe el uso de patrones oscuros comerciales, incluyendo en el diseño de las interfaces del comercio electrónico o de los servicios de la sociedad de la información.
+En el ofrecimiento de bienes y servicios, el comerciante o prestador del servicio debe abstenerse de seleccionar previamente cualquier prestación. Tal conducta será considerada un engaño en la suscripción que incorpora una venta atada en perjuicio del consumidor.
+El comerciante o prestador de servicios deberá brindar información al consumidor sobre la identidad del remitente, el costo del servicio, la frecuencia de remisión, y cualquier otro elemento decisivo en la contratación o adquisición del servicio.
+En todo caso, el comerciante debe garantizar que el consumidor sea quien seleccione libremente y de manera inequívoca las prestaciones que desee incorporar al contrato.
+Se prohíbe implementar mecanismos automáticos o de suscripción automática o utilizar mecanismos que induzcan a error para obtener el consentimiento del usuario final para implementar mecanismos automáticos de cobro de suscripción, sin el consentimiento del usuario final. En todo caso, el comerciante debe contar con el consentimiento expreso y en un medio constatable para respaldar.

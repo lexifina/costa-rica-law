@@ -1,0 +1,2 @@
+ARTÍCULO 25- Evaluaciones del consumidor
+El comerciante o prestador del servicio que utilice sistemas de recomendación debe establecer un mecanismo gratuito y transparente para recibir y publicar las evaluaciones, tanto positivas como negativas, que los consumidores realicen acerca de la calidad de los bienes y servicios que han adquirido del comerciante. Este mecanismo deberá ser de fácil acceso y utilización para el consumidor; el cual deberá ser informado de su existencia.
