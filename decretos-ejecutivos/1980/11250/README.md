@@ -13,3 +13,4 @@ Crea Comité Técnico Industria Metalmecánica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-03-13 | la propia norma |
+| 2 | 1980-03-13 | SINALEVI (sin norma nombrada) |
