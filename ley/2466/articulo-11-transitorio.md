@@ -1,0 +1,2 @@
+Artículo 11.—Durante el año 1960, la distribución del producto de las ventas de la Fábrica Nacional de Licores a que se refiere el artículo 56 de la ley N° 2035 de 17 de julio de 1956, modificado por el artículo 55 de la presente ley, se hará de acuerdo con las porcentajes siguientes: 61.15% corresponderá al Supremo Gobierno y 38.85% al Consejo Nacional de Producción. El Consejo distribuirá la parte que le corresponda en forma proporcional a los porcentajes indicados en el citado artículo 56.
+(Así adicionado por el artículo 2° de la Ley N° 2553 del 27 de abril de 1960)
