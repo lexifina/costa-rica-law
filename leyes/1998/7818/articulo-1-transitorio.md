@@ -21,3 +21,9 @@ totales de las zafras 1998/1999, 1999/2000 y 2000/2001.
 e) Para la zafra 2002/2003, la cuota de referencia será el promedio
 de la cuota de referencia de la zafra 1998/1999 y de las producciones
 totales de las zafras 1998/1999, 1999/2000, 2000/2001 y 2001/2002.
+(Interpretado auténticamente por el artículo 1 de la Ley N° 8092 del
+23 de febrero del 2001, en el sentido de que La Junta Directiva de la
+Liga Agrícola Industrial de la Caña de Azúcar puede aplicar, a todos
+los incisos del transitorio I aludido, lo dispuesto por el segundo párrafo
+del artículo 125 de la Ley citada, si se presentan los supuestos contemplados
+en dicho artículo.)
