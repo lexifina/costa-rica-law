@@ -1,0 +1,3 @@
+MODIFICACIÓN AL REGLAMENTO DE COMPRAS POR CAJA CHICA
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal, mediante acuerdo tercero, artículo cuatro de la sesión extraordinaria N° 3150, celebrada a las 11,30 horas del día 9 de enero del 2002, resolvió modificar el artículo 2 del indicado Reglamento, para que se lea:
+"Se establece en la Dirección de Administración Interna un fondo de caja chica para la compra de bienes y servicios, por la suma de 800.000,00 (ochocientos mil colones exactos). Este fondo será asignado a la Sección de Proveeduría de la Dirección de Administración Interna y será administrado por el funcionario que el Director de esta Dirección designe, en coordinación con la Jefatura de la Sección de Proveeduría".
