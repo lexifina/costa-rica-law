@@ -22,10 +22,11 @@ Requisitos específicos:
 a) Un año de residencia y estudios de Post-Grado en Hospital Clase A, universitario.
 b) Tres años de residencia y estudios de Post-grado en centro o servicio de otorrinolaringología en hospital clase A, universitario.
 Para ejercer como laringólogo, rinólogo, otoneurólogo, es requisito indispensable estar inscrito como especialista en otorrinolaringología."
-"Artículo 56.—Homeopatía:
+*"Artículo 56.—Homeopatía:
 Requisitos específicos:
 a) Un año de postgrado en homeopatía o terapéutica homeopática, reconocido y revalidado con equivalencia académica de especialidad, por el Sistema de Estudios de Postgrado de la Universidad de Costa Rica."
 "Artículo 57.—Medicina crítica y cuidados intensivos:
 Requisitos específicos:
 a) Dos años de residencia y adiestramiento académico en medicina interna.
 b) Dos años de residencia y adiestramiento en un servicio de medicina crítica en un hospital clase A universitario."
+*(La Sala Constitucional mediante resolución N° 110, del 09 de enero de 1998, estableció que se declara sin lugar la acción en cuanto a este artículo “en la medida que se interpreta que regula a los médico-cirujanos que quieran acreditar sus estudios de postgrado en homeopatía, y no a los médicos homeópatas.”)

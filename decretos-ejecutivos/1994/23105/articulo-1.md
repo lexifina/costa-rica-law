@@ -10,7 +10,7 @@ Las siguientes:
 Adiciones y reformas al Reglamento de Especialidades Médicas
 Artículo 1°—Adiciónase el artículo 2° del Reglamento de Especialidades Médicas, decreto ejecutivo No 10538-SPPS del 18 de setiembre de 1979 para reconocer, como Especialidades Médicas y como Subespecialidades Médicas dependientes de la Pediatría y Subespecialidad Médica dependiente de la Ginecología y Obstetricia, las siguientes:
 Especialidades médicas:
-Homeopatía
+*Homeopatía
 Medicina crítica y cuidados intensivos
 Acupuntura
 Medicina del deporte
@@ -28,3 +28,4 @@ Medicina crítica pediátrica
 Neonatología
 Subespecialidad médica dependiente de la ginecología y obstetricia:
 Perinatología
+*(La Sala Constitucional mediante resolución N° 110, del 09 de enero de 1998, estableció que se declara sin lugar la acción en cuanto a este artículo “en la medida que se interpreta que regula a los médico-cirujanos que quieran acreditar sus estudios de postgrado en homeopatía, y no a los médicos homeópatas.”)

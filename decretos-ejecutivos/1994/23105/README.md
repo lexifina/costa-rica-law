@@ -14,3 +14,4 @@ Reforma al Reglamento de Especialidades Médicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-21 | la propia norma |
+| 2 | 1998-01-09 | SINALEVI (sin norma nombrada) |
