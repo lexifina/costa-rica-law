@@ -1,0 +1,1 @@
+Artículo 3°-Todos los caficultores en el país están obligados a reportar al Ministerio de Agricultura y Ganadería cualquier anormalidad que noten en sus cultivos y que pudiere ser sospechosa de la presencia de la plaga conocida como "Broca del Café".

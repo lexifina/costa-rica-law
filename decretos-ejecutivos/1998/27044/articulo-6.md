@@ -1,0 +1,1 @@
+Artículo 6°-Las autoridades de Seguridad Pública, Gobernación y Judiciales, quedan obligados a colaborar con el Ministerio de Agricultura y Ganadería para la prevención, combate y erradicación de la plaga conocida como "Broca del Cafeto".
