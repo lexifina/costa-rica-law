@@ -1,0 +1,1 @@
+Articulo 5°—El costo de los servicios que genere la aplicación del presente Reglamento, deberá cubrirlos el interesado en la comercialización respectiva y realizarlo a la instancia prestataria de los mismos, a través de los procedimientos que ésta tenga definidos.
