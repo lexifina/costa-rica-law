@@ -1,0 +1,1 @@
+Art 2°.- Cada uno de los cuatro Contadores despachará por sí, autorizado con su firma y con la del Secretario las providencias que dicte, y sentenciado bajo su responsabilidad aquellas cuentas en la distribución de los trabajos, hecha por el Jefe de la oficina, le haya tocado examinar y fenecer.
