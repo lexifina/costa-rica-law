@@ -1,0 +1,8 @@
+ARTICULO 12.- Notificación automática
+La parte que, en su primer escrito o prevenida al efecto por el juez,
+no indicare, conforme al artículo 6, medio y lugar para atender
+notificaciones futuras, quedará notificada de las resoluciones posteriores
+con sólo que transcurran veinticuatro horas después de dictadas. Se
+producirá igual consecuencia si el medio escogido imposibilitare la
+notificación por causas ajenas al despacho, o bien, si el lugar señalado
+permaneciere cerrado, fuere impreciso, incierto o inexistente.
