@@ -1,7 +1,8 @@
-Artículo 106.- En la medida de sus posibilidades, los Refugios Nacionales de Fauna y Vida Silvestre, brindarán los siguiente servicios para lo cuales se cobrarán las tarifas que a continuación se indican:
-a) Hospedaje por día 1.250.00 colones (Mil doscientos cincuenta colones) particulares y 300.00 colones a estudiantes debidamente identificados.
-b) Derecho de acampar, Se cobrará una cuota general por día de 375.00 colones (Trescientos setenta y cinco colones).
-c) Derecho de filmación 31.250.00 (Treinta y un mil doscientos cincuenta colones) por día.
-La DGVS determinará aquellos casos en que las filmaciones sean de carácter científico o cultural, caso en el cual podrían se eximidas de este canon o disminuido prudencialmente su monto, a juicio de esta Dirección.
-d) Derecho de investigación 1500 colones (mil quinientos colones) por día. Podrán eximirse de este pago, a juicio de la Dirección, investigadores ligados a universidades o institutos de investigación de nuestro país que tengan convenios de cooperación con el MIRENEM y los centros de enseñanza primaria y diversificada reconocidos ante el Ministerio de Educación Pública.
+Artículo 106. En la medida de sus posibilidades, los Refugios Nacionales de Fauna y Vida Silvestre, brindarán los siguientes servicios para los cuales se cobrarán las tarifas, que a continuación se indican:
+a) Del Hospedaje. Se cobrará por hospedaje por el día ¢1.400.00 (mil cuatrocientos colones exactos) a particulares; y ¢350,00) (Trescientos cincuenta colones exactos) a estudiantes debidamente identificados.
+b) Derecho de acampar. Se cobrará una tarifa general por día de ¢450.00 (cuatrocientos cincuenta colones exactos).
+c) Derechos de filmación. Por derechos de filmación, se cobrará una tarifa diaria de ¢35,000. 00 (treinta y cinco mil colones exactos).
+d) Derecho de investigación. Por derechos de investigación se cobrará una tarifa diaria de ¢1,700 00 (mil setecientos colones exactos).
+El Sistema Nacional de Areas de Conservación a su juicio, determinará los casos en que se eximirá de este pago a los investigadores ligados a universidades o instituciones de investigación de Costa Rica, que tengan convenio de cooperación con el Ministerio del Ambiente y Energía y los centros de enseñanza primaria y diversificada, reconocidos ante el Ministerio de Educación Pública.
 Dichos montos serán revisados anualmente de acuerdo a la inflación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 27696 del 13 de enero de 1999)
