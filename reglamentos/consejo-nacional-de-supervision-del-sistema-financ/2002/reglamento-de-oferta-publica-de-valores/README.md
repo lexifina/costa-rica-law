@@ -15,3 +15,4 @@ Reglamento de Oferta Pública de Valores
 | --- | --- | --- |
 | 1 | 2002-11-22 | la propia norma |
 | 2 | 2003-06-17 | Reglamento 376 (2003-06-17) |
+| 3 | 2005-02-03 | Reglamento 496 (2005-02-03) |
