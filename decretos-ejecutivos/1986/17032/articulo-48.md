@@ -1,0 +1,1 @@
+Artículo 48.-El Auditor Externo será designado o removido con el voto de por lo menos 15 miembros de la Asamblea. Deberá ser un Contador Público y estar incorporado al colegio profesional correspondiente.

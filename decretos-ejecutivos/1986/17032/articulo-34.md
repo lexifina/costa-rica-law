@@ -1,0 +1,1 @@
+Artículo 34.-En la primera sesión de julio, la Junta Directiva deberá acordar el número de sesiones ordinarias a celebrar por mes y la fecha y la hora de las mismas .durante el período económico en ejercicio.

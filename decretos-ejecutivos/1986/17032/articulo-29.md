@@ -1,0 +1,1 @@
+Artículo 29.-En la primera sesión del mes de julio la Junta Directiva elegirá entre sus miembros un Presidente, un Vicepresidente y un Secretario, los demás miembros fungirán como vocales. Estos nombramientos serán por un año, pudiendo ser reelectos.

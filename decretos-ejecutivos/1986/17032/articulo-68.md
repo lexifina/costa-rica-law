@@ -1,0 +1,1 @@
+Artículo 68.-La Oficina podrá exportar gradualmente, los excedentes de arroz, de acuerdo con el comportamiento de las cosechas y plantaciones por cosechar. Estas exportaciones deben ser efectuadas en su totalidad antes del 30 de marzo de cada año y la liquidación de las mismas a los productores, antes del 30 de abril del mismo año.

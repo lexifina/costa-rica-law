@@ -1,0 +1,6 @@
+Artículo 65.-Si el valor promedio de venta de las exportaciones por tonelada, después de deducidos los costos y gastos correspondientes a los beneficiadores por manejo y conservación de la cuota de exportación y los gastos que origine el mercadeo de dicha cuota, es superior al precio establecido para la cuota de consumo interno durante el mismo período agrícola, el diferencial que se origine por este concepto se aplicará de la siguiente manera:
+a) El cincuenta por ciento al Fondo de Exportaciones y Reserva de Contingencia.
+b) El quince por ciento será pagado a los industriales como utilidad, por su participación en el recibo y manejo de la cuota destinada a la exportación durante el período agrícola, en que las exportaciones originen utilidades.
+c) El treinta y cinco por ciento restante a los productores, en proporción al arroz que hubieren entregado durante el año correspondiente.
+La Oficina establecerá los procedimientos administrativos necesarios, para realizar la distribución de los excedentes en forma directa y proporcionalmente a la participación de cada industrial y productor.
+Los productores y beneficiadores que durante el año posterior a la distribución de los excedentes, no hayan retirado los mismos, perderán su derecho sobre los montos dejados de cobrar, pasando estas sumas a formar parte del Fondo de Exportación y Reserva de Contingencia.

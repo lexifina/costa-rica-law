@@ -1,0 +1,1 @@
+Artículo 45.-El Director Ejecutivo deberá presentar declaración jurada en la que conste que reúne los requisitos del artículo anterior. La infracción al mismo lo hará incurrir en las sanciones penales y civiles correspondientes.

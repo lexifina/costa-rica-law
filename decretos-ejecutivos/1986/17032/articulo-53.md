@@ -1,0 +1,3 @@
+CAPITULO VIII
+De las relaciones y obligaciones entre beneficiadores y agricultores
+Artículo 53.-Los beneficiadores deberán entregar a la Oficina todos los lunes, un reporte de la semana anterior que incluya el detalle por persona física o jurídica de las ventas-compras de arroz, valor de las mismas y existencias al último día de la semana. La Oficina por medio de sus inspectores podrá constatar la información suministrada en los registros del beneficiador, verificación física de las existencias o por los medios que considere conveniente, cualquier otro tipo de información que la Junta Directiva apruebe, como pertinente para la eficiente ejecución de las funciones de la Oficina.

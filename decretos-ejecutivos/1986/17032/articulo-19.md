@@ -1,0 +1,1 @@
+Artículo 19.-Las resoluciones y acuerdos se tomarán por simple mayoría de votos. En caso de empate se repetirá la votación, de persistir el empate deberá celebrarse una nueva asamblea dentro de los siguientes 15 días hábiles para dirimir la cuestión.

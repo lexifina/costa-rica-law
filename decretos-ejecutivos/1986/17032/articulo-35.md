@@ -1,0 +1,1 @@
+Artículo 35.-La convocatoria a sesiones extraordinarias de la Junta Directiva, la hará la Oficina del Arroz a solicitud del Presidente de la Junta o a solicitud de por lo menos 5 miembros de la misma. La convocatoria se hará en el domicilio de los miembros por vía telegráfica y por lo menos con 48 horas de anticipación a la hora fijada para la sesión.

@@ -1,0 +1,1 @@
+Artículo 27.-El Fiscal de la Junta Directiva será nombrado por la Asamblea General de la Oficina del Arroz en la sesión ordinaria anual. Durará en sus funciones dos años pudiendo ser reelecto. Tendrá derecho a voz pero no a voto.

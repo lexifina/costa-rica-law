@@ -1,0 +1,1 @@
+Artículo 7°-El ejercicio económico y administrativo de la Oficina será un año, del primero de julio al treinta de junio. Al final de cada período hará una liquidación completa de todas las operaciones de la Oficina durante lapso.

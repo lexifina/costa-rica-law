@@ -1,0 +1,1 @@
+Artículo 6°-La Oficina del Arroz tendrá responsabilidad propia en la ejecución de sus funciones, lo cual impone a los miembros de su Junta Directiva la dirección y administración de la misma dentro de las disposiciones las leyes y reglamentos respectivos, quedando exentos de dichas responsabilidades únicamente quienes hubieren salvado su voto en el acta correspondiente.

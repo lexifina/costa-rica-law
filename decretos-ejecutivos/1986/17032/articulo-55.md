@@ -1,0 +1,3 @@
+Artículo 55.-Los beneficiadores están obligados a enviar copia de las facturas de compra de arroz en granza y ventas de arroz en granza o pilado y venta de todos los subproductos del proceso industrial a la Oficina del Arroz. Con el fin de uniformar la información la Oficina diseñará estos documentos ya que los mismos, en el caso de las facturas de compra, serán utilizados para efectuar la liquidación del valor de la cosecha a los productores.
+En el caso de los comprobantes que sean anulados, junto a la copia que debe enviarse a la Oficina, deberán remitirse el original y las otras copias, excepto la que corresponde al beneficiador.
+Estos comprobantes deben remitirse con el informe semanal a que se refiere el artículo 56 de este Reglamento.
