@@ -1,1 +1,0 @@
-Artículo 2°-Se entenderá por IDS un índice compuesto, que sintetiza ocho indicadores sobre dimensiones importantes del desarrollo social, a saber: saneamiento, nutrición, educación y vivienda. Su rango de variación oscila entre 1,00 (mejor situación) y 10,00 (situación más desfavorable).
