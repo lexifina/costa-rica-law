@@ -1,0 +1,5 @@
+Artículo 3º—Refórmase el artículo 5º del Decreto Ejecutivo Nº 26176-MOPT del 27 de junio de 1997, "Reglamento de Carreteras de Acceso Restringido y de Acceso Semirrestringido", publicado en La Gaceta Nº 139 del 21 de julio de 1997, para que se lea de la siguiente forma:
+"Artículo 5º—De la Comisión de Carreteras de Acceso Restringido y Semirrestringido
+Se constituye la "Comisión de Carreteras de Acceso Restringido y Semirrestringido" que estará integrada por un representante del Consejo Nacional de Vialidad, otro del Consejo Nacional de Concesiones, un funcionario de Ingeniería de Tránsito, un funcionario de Inspección Vial y un funcionario de la Dirección Jurídica del Ministerio de Obras Públicas y Transportes.
+La Comisión tendrá a su cargo, entre otras funciones, conocer de las solicitudes de acceso que se presentaren respecto a las vías de acceso restringido o semirrestringido y emitir el acto que correspondiere sobre la respectiva gestión.
+La Comisión velará por el cumplimiento de lo que al efecto se resuelva y porque las obras que se realicen cumplan con los requerimientos establecidos al efecto."
