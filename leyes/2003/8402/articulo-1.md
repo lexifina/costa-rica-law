@@ -44,3 +44,4 @@ ESTE PRESUPUESTO 710.000.000,00
 | | |____________ Sección
 | |______________ Grupo
 |________________ Clase
+(Así reformado por el artículo 10 inciso 38 de la Ley N° 8424 del 30 de setiembre del 2004)

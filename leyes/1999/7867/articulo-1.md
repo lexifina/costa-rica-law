@@ -18,3 +18,4 @@ queda autorizado para establecer, vía reglamento, el plazo, hasta por un
 máximo de quince años, el tipo de interés que podrá fijarse en una tasa
 máxima de 30% anual en colones y un 9% anual en dólares, y demás
 características de las emisiones de Títulos Valores de Deuda Interna.
+(Así reformado por el artículo 10 inciso 32 de la Ley N° 8424 del 30 de setiembre del 2004)
