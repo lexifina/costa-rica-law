@@ -14,3 +14,4 @@ Reglamento a la Ley Reguladora de Estacionamientos Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-21 | la propia norma |
+| 2 | 2000-07-28 | Decreto Ejecutivo 28829 (2000-07-28) |
