@@ -16,3 +16,4 @@ Reglamento para el Régimen Interno del Consejo de Salud Ocupacional
 | 1 | 1985-11-04 | la propia norma |
 | 2 | 1990-04-06 | Decreto Ejecutivo 19677 (1990-04-06) |
 | 3 | 2001-06-13 | Decreto Ejecutivo 29656 (2001-06-13) |
+| 4 | 2001-08-07 | Decreto Ejecutivo 29768 (2001-08-07) |
