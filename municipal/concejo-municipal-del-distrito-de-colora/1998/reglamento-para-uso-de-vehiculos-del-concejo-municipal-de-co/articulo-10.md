@@ -1,0 +1,1 @@
+Articulo 10.—Entre los controles internos deben existir las boletas que indiquen hora de salida, hora de llegada, motivo del viaje, kilómetros recorridos, pasajeros, y los demás requisitos que la auditoria interna considere conveniente para el uso correcto de los vehículos.

@@ -1,0 +1,1 @@
+Artículo 6°—En caso que el Ejecutivo no pueda asistir a alguna reunión que se necesite un vehículo de uso administrativo, es deber del Ejecutivo buscar un chofer que llene los requisitos necesarios para que lo conduzca.

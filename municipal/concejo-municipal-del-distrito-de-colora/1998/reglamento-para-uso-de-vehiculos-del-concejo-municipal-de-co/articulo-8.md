@@ -1,0 +1,1 @@
+Articulo 8°—Los vehículos municipales no podrán usarse en funciones diferentes a la que competen a la corporación, la violación de esta norma se considera falta grave a las obligaciones del cargo, una vez cumplidas las labores de que se trate deben depositarse en el plantel municipal o en el lugar que se designe para dicho fin.

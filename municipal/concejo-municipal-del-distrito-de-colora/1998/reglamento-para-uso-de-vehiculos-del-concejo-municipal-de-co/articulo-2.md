@@ -1,0 +1,1 @@
+Artículo 2°—Para efectos propios de este reglamento los vehículos municipales serán todos de uso administrativo y no existirá discrecionalidad en ningún asunto que sea tratado y en el cual se hubiere utilizado el vehículo municipal.

@@ -1,0 +1,1 @@
+Artículo 5°—Los vehículos de uso administrativo deben prestar servicio aun en días y horas no laborables cuando se necesite para reunión de Ejecutivos, de Concejos de la Liga de Municipalidades o cualquier otra reunión que lo amerite.

@@ -1,0 +1,1 @@
+Artículo 3°—En los vehículos de uso administrativo es prohibido que viajen personas ajenas a la municipalidad, salvo aquellos casos en que por los propósitos del viaje, el ejecutivo Distrital lo autorice expresamente.
