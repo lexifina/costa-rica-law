@@ -1,0 +1,1 @@
+Artículo 5º—Se autoriza al Poder Ejecutivo para pagar de los fondos dichos, los gastos que demanden los servicios técnicos de consulta necesarios para la realización de los proyectos financiados con los empréstitos aprobados.

@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza al Poder Ejecutivo a contratar total o parcialmente por la vía de Licitación, la construcción de obras a que se refieren los Contratos dichos, o a realizarlas por administración directa, a discreción del mismo, con base en las partidas para esas obras incluidas en los Presupuestos Nacional y con fondos indicados en los préstamos autorizados.
