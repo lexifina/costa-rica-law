@@ -1,0 +1,3 @@
+Artículo 13.-Los beneficios establecidos por la ley aquí reglamentada en ningún caso le serán concedidos a los extranjeros que hubieren obtenido cédula de residencia en Costa Rica. Esta prohibición se extiende a los cónyuges, hijos o dependientes suyos.
+Salvo para los efectos migratorios, tampoco podrán adquirir la categoría de Residentes Pensionados o Residentes Rentistas los cónyuges, los hijos y otros dependientes de quienes soliciten o hayan obtenido la calidad de Residentes Pensionados o Residentes Rentistas.
+Quedan a salvo de la anterior prohibición, los extranjeros residentes que obtengan una pensión o jubilación de entidades extranjeras.

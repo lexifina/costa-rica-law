@@ -1,0 +1,2 @@
+Artículo 3°-Los costarricenses que hayan residido en el exterior permanentemente por más de diez años y que comprueben el disfrute de una renta generada en el exterior en las condiciones estipuladas en el artículo precedente, podrán obtener los beneficios de la ley que se reglamenta.
+También podrán asimilarse a la condición de Residentes Pensionados los nacionales que obtuvieren en el país una pensión o jubilación procedente de otros gobiernos, organismos oficiales foráneos o empresas extranjeras establecidas en el país, siempre que tal renta se genere en el exterior.

@@ -1,0 +1,3 @@
+Artículo 2°-Para los efectos de la ley que se reglamenta, se entenderá por:
+Residentes Pensionados: Aquellas personas que hayan sido pensionadas o jubiladas por gobiernos, organismos oficiales o empresas particulares de sus respectivos países; y
+Residentes Rentistas: Aquellas personas que gocen de otro tipo de rentas estables permanentes generadas en el exterior. La categoría de Residentes Pensionados o Residentes Rentistas se extiende para efectos migratorios, al cónyuge, a los hijos y a los otros dependientes de quienes, obtengan la condición de Residentes Pensionados o Residentes Rentistas.
