@@ -1,0 +1,1 @@
+Artículo 2°-Este decreto rige a partir del 31 de diciembre del 2000 y por el período mencionado en el artículo anterior, sin demérito de las potestades del Poder Ejecutivo de efectuar las modificaciones o revisiones que se consideren oportunas.

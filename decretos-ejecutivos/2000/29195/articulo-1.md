@@ -1,0 +1,9 @@
+PODER EJECUTIVO
+DECRETO N°29195-MAG-MEIC-COMEX. EL PRESIDENTE DE LA REPéBLICA Y LOS MINISTROS DE AGRICULTURA Y GANADERÍA; ECONOMÍA, INDUSTRIA Y COMERCIO Y DE COMERCIO EXTERIOR
+En ejercicio de las facultades establecidas en el artículo 140, incisos 3) y 18) de la Constitución Política ,el artículo 8°de la Ley N°7473 del 20 de diciembre de 1994, Ley de Ejecución de los Acuerdos de la Ronda Uruguay de Negociaciones Comerciales Multilaterales así como el artículo 28.2b) de la Ley General de la Administración Pública.
+Considerando:
+1°-Que dadas las condiciones de precios prevalecientes en el mercado internacional de frijoles y la coyuntura nacional en materia productiva, se hace necesario brindar un margen de tiempo para favorecer condiciones en la importación de dicho grano, que eviten un riesgo de desestabilización del mercado local con impacto potencialmente negativo en los pequeños productores nacionales.
+2°-Que el Decreto Ejecutivo N°27483-MAG-COMEX puso en vigor una medida de Salvaguarda Especial Agrícola por Precio (SGE) sobre las importaciones de fríjol negro, según procedimiento establecido en el Decreto Ejecutivo N°23912-COMEX-MAG- MEIC; medida que fue posteriormente prorrogada mediante Decreto Ejecutivo N°28363-MAG-COMEX hasta el 31 de diciembre del 2000.
+3°-Que la normativa nacional en la materia y la internacional concordante y vigente establecen la posibilidad de que la SGE por precio pueda mantenerse en vigor por un período acorde al cual puedan potencialmente producirse importaciones por debajo de los precios de referencia contenidos en el Anexo III del Decreto Ejecutivo N°23912-COMEX-MAG-MEIC. Por tanto,
+Decretan:
+Artículo 1°-Prorrogar hasta el 30 de junio del 2001 inclusive la vigencia de la SGE por precio a las importaciones de fríjol clasificadas en los incisos arancelarios código SAC siguientes: Código SAC Descripción 0713.33 Frijoles comunes (Phaseolus vulgaris) 0713.33.10 Negros
