@@ -1,0 +1,3 @@
+Art. 3°-La inversión de los fondos que obtenga la Compañía en virtud de esta autorización, se hará con intervención del Gobierno de Costa Rica ó del Representante que designe al efecto.
+AL PODER EJECUTIVO.
+Dado en el salón de sesiones del Palacio Nacional, en San José, á los dieciocho días del mes de Diciembre de mil ochocientos noventa y uno.-FRANCISCO Ma IGLESIAS.-F. AGUILAR B., Secretario.-J. VARGAS M., Secretario. Palacio Nacional.-San José, á dieciocho de Diciembre de mil ochocientos noventa y uno.-Ejecútese.-José J. RODRÍGUEZ. El Secretario de Estado en el despacho de Hacienda,-P. J. VALVERDE.

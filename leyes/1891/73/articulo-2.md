@@ -1,0 +1,1 @@
+Art. 2-El Poder Ejecutivo dará cuenta anualmente al Congreso Nacional de las operaciones verificadas por la Empresa sobre el pago de los intereses, retiro de los bonos é inversión de los productos del ferrocarril, á cayo intento la Empresa suministrará al Gobierno los datos necesarios.
