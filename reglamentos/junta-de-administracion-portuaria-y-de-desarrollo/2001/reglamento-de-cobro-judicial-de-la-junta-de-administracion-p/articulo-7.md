@@ -1,0 +1,4 @@
+Articulo 7°—El abogado será responsable ante la Institución de cualquier daño o perjuicio que le ocasione con motivo de la atención de los juicios a su cargo, derivados de las declaratorias de deserción, prescripción, inadmisibilidad o cualquier causa a él imputable.
+Igualmente será responsable de todos los perjuicios que ocasione con motivo del ejercicio de la actividad desplegada por él, tales como errores o defectos atribuibles al abogado que no hubiere sido advertidos o subsanados por él.
+Independientemente de las sanciones establecidas en este reglamento, JAPUEVA puede instaurar las acciones o diligencias que estime convenientes ante los órganos jurisdiccionales o administrativos correspondientes, en demanda del resarcimiento y de la actividad irregular del profesional.
+Dichas acciones serán ejecutadas por el Departamento Legal, con instrucciones de la Presidencia Ejecutiva.

@@ -1,0 +1,1 @@
+Articulo 29 bis.—Se le suspenderá la entrega de operaciones para el cobro judicial, por el plazo que dure la sanción de inhabilitación al profesional que sea suspendido en sus funciones de abogado o notario. La suspensión por parte de JAPDHVA surtirá efecto a partir de la firmeza de la suspensión declarada por ese órgano y su plazo será igual al de la suspensión principal.

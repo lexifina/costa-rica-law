@@ -1,0 +1,1 @@
+Articulo 35.—No se contratará nuevamente para realizar funciones de cobro judicial a aquellos profesionales que por cualquier motivo hayan renunciado al ejercicio de sus funciones, mientras no haya transcurrido un periodo de seis años desde ]a firmeza de la renuncia,

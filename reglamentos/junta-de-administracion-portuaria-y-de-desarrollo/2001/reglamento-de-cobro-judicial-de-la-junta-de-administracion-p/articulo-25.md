@@ -1,0 +1,3 @@
+Articulo 25.—En el caso de los apersonamientos, la notificación deberá remitirse a la Oficina Contralora de Cobro Judicial para que, por medio de sus abogados realice la gestión inicial u otorgamiento de poderes.
+Estas gestiones se consideran como parte de las labores ordinarias de los profesionales que laboran en JAPDEVA, cubriendo JAPDEVA únicamente los gastos judiciales correspondientes.
+Realizada la gestión inicial, la Oficina Contralora deberá remitir, dentro del tercer día hábil, la documentación al ahogado previamente designado para atender el cobro judicial, se procederá a su distribución de acuerdo al rol.

@@ -1,0 +1,3 @@
+Articulo 11.—Cuando un profesional tenga que ausentarse de su oficina por cualquier motivo y por un periodo no mayor de una semana, deberá comunicarse en forma previa y por escrito con una anticipación de ocho días hábiles a las Oficinas Contraloras del Cobro Judicial.
+El profesional indicará el nombre del colega que atenderá temporalmente sus obligaciones y el lugar donde se le puede localizar, además de la aceptación del mismo, durante esta ausencia no se le asignarán labores sin que ello aléele su rol de entrega de operaciones.
+Las consecuencias de la actividad realizada por el sustituto y su remuneración corren por cuenta y riesgo del profesional contratado.

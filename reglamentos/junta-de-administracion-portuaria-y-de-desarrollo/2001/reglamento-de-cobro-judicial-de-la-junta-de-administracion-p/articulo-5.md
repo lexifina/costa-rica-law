@@ -1,0 +1,1 @@
+Articulo 5°— La Presidencia Ejecutiva establecerá los medios idóneos para remitir y recibir cualquier tipo de comunicación entre JAPDEVA y los profesionales incluidas las notificaciones de resoluciones judiciales. Dichos medios podrán ser los contemplados en la ley de notificaciones, citaciones y otras comunicaciones judiciales.

@@ -1,0 +1,1 @@
+Artículo 27.—JAPDEVA cancelará a los profesionales los honorarios causados por los estudios regístrales y certificaciones derivadas de las obligaciones exigidas por el presente reglamento, en la suma de 500,00 (quinientos colones, exactos) por estudio registral y certificación.

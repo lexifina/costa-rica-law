@@ -1,0 +1,1 @@
+Articulo 33.—Para efectos de pago de honorarios la Oficina Contralora de Cobro deberá rendir un dictamen a la gerencia, dentro de los ocho días hábiles siguientes a la recepción de los expedientes, acerca del resultado general de la gestión del profesional cesante, recomendando lo pertinente en salvaguarda de los intereses de la Institución.

@@ -1,0 +1,3 @@
+Artículo 9°—El profesional deberá excusarse de asumir la dirección de un juicio, cuando los demandados sean: su cónyuge, o parientes, ascendentes, descendientes, hermanos, líos o sobrinos por consanguinidad o afinidad, o cuando existiere una relación de amistad con los demandados o terceros involucrados en el caso de los procesos judiciales.
+En tal caso, así cuando no exista otro tipo de imposibilidad, el profesional enviará una nota explicativa a la oficina contralora respectiva dentro de los dos días hábiles siguientes al conocimiento de esa circunstancia, indicando los motivos de la imposibilidad, a fin de que la situación sea analizada de ser procedente se le restituya el asunto.
+El asumo devuelto será reasignado de acuerdo con el rol respectivo, de ser pertinente.

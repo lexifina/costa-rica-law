@@ -1,0 +1,2 @@
+Artículo 34.— La Oficina Contralora de Cobro deberá de redistribuir los juicios en un plazo no mayor de diez días hábiles, siguiendo el rol de asignaciones que establece el articulo 3° de este reglamento, salvo que considere más conveniente asignarlos total o parcialmente a los profesionales indicados en el párrafo final del artículo 2° de este reglamento.
+El nuevo ahogado deberá de rendir un informe a la oficina encargada del cobro, sobre el estado en que los recibe, dentro de los treinta días naturales siguientes,

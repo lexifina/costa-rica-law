@@ -1,0 +1,2 @@
+Articulo 16.—Los títulos ejecutivos originales que sean requeridos por el despacho judicial, podrán ser entregados por la oficina encargada al abogado, quien será responsable de su custodia, entrega al tribunal, y devolución a JAPDEVA a la conclusión del proceso cuando proceda.
+Los documentos deberán entregarse al despacho judicial al día hábil siguiente de recibidos por el abogado y deberán devolverse a JAPDEVA dentro del mes siguiente a la conclusión del proceso.

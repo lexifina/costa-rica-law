@@ -1,0 +1,2 @@
+Articulo 24.— La Oficina Contralora de Cobro, a través de sus profesionales en derecho, serán los encargados de defender los intereses de JAPDEVA en procesos tales como:
+Convenio preventivo, insolvencias, quiebra, soluciones, monitorios, ordinarios y cualquier otro. Estas gestiones se consideran como parte de las labores ordinarias de dichos profesionales cubriendo JAPDEVA, únicamente los gastos judiciales correspondientes.
