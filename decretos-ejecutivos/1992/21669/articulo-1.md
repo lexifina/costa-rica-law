@@ -13,5 +13,5 @@ General Cañas | ₵ 120 | ₵ 40 | ₵ 60 | ₵ 120 | ₵ 120 | ₵ 200
 Bernudo Soto | 300 | 40 | 120 | 300 | 300 | 760
 Próspero Fernández | 120 | 40 | 60 | 120 | 120 | 200
 Florencio del Castillo | 120 | 40 | 60 | 120 | 120 | 200
-Braulio Caurillo | 600 | 40 | 200 | 600 | 600 | 1500
+Braulio Caurillo | 300.00 (Así reformada la tarifa anterior por el artículo 1° del decreto ejecutivo N° 23924 del 23 de diciembre de 1994) | 40 | 200 | 600 | 600 | 1500
 (Así reformado por el artículo 1° del decreto ejecutivo N° 23786 del 9 de noviembre de 1994)
