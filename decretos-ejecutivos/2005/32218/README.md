@@ -14,3 +14,4 @@ Se etablece una moratoria y suspensión general del cobro y pago de deudas, incl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-02-09 | la propia norma |
+| 2 | 2005-03-29 | Decreto Ejecutivo 32406 (2005-03-29) |
