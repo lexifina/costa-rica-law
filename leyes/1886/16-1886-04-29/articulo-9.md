@@ -1,0 +1,2 @@
+Art. 9°-Facúltase al Poder Ejecutivo para que sobre las bases de la presente ley pueda fundar otras colonias ganaderas en los puntos que para ellas sean adecuados.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintinueve días del mes de abril de mil ochocientos ochenta y seis. -JN. M. CARAZO, Presidente. -LEOVI- GILDO CASTRO S., Secretario ad hoc.-Palacio Presidencial.-San José, á veintinueve de abril de mil ochocientos ochenta y seis.-Ejecútese.-BERNARDO SOTO.-El Secretario de Estado en el despacho de Fomento,-C. DURÁN.

@@ -1,0 +1,1 @@
+Art. 3°-Al fin de los diez años, ó antes si á los empresarios conviene, podrán éstos adquirir la pro- piedad de las tierras que ocupen y la de las contiguas no ocupadas por otros, hasta una cabida total de dos mil hectáreas, sin necesidad de subasta y al precio fijo de un peso cincuenta centavos por hectárea.

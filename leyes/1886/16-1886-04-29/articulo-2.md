@@ -1,0 +1,1 @@
+Art. 2°-Concédese á las personas que quieran emprender en la cría de ganado vacuno en dichos sitios, el uso gratuito por diez años de las tierras que necesiten, en la proporción de dos hectáreas por cada res.
