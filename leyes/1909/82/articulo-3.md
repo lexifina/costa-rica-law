@@ -1,0 +1,2 @@
+Artículo 3°-El pago del derecho de exportación de bananos establecido por este decreto deberá hacerse precisamente en moneda de oro americano de la presente ley y peso ó en letras á la vista sobre New York, á satisfacción de la Secretaría de Hacienda.
+Dado en el Salón de Sesiones del Congreso –Palacio Nacional.-San José, á los treinta días del mes de junio de mil novecientos nueve.-F.J.Alvarado,-Vicepresidente.-B Casorla,-Ier. Secretarío.-F. MAYORGA R;-° Secretario.-San José, siete de julio de mil novecientos nueve.
