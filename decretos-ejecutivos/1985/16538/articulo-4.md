@@ -1,0 +1,1 @@
+Artículo 4°-Los títulos y planes de estudio del programa podrán ser objeto de reconocimiento y equiparación por las autoridades educativas e instituciones de educación superior del país -en apego a las regulaciones vigentes.
