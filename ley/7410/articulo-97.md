@@ -1,4 +1,5 @@
-CAPITULO VI
-Disposiciones finales y transitorias
-Artículo 97°—Reforma
-Refórmase el artículo 43 de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado y actividades conexas, No. 7233, cuyo texto dirá: "El Ministro que designe el Presidente de la República será el representante legal y el Presidente de la Junta Administrativa."
+Artículo 97°—Procedimientos
+Las solicitudes de licencia deben dirigirse al órgano competente del Ministerio de Seguridad Pública, que se encargará de controlar este servicio.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 85 al 88 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 88 al 95 actual)
+(Así corrida su numeración por el artículo 3° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 95 al 97 actual)

@@ -1,2 +1,8 @@
-Artículo 58°—autorización para movilizaciones
-Todos los miembros de las fuerzas de policía podrán ser movilizados a cualquier parte del territorio nacional, por el tiempo necesario, a juicio del ministro del ramo.
+Artículo 58.- Escalafón de Oficiales Superiores . Créase el escalafón de oficiales superiores de policía, el cual se compone de los comisarios, comisionados y comandantes debidamente inscritos en él de acuerdo con las disposiciones reglamentarias que se designen al efecto.
+Dicho escalafón será la lista de elegibles para los nombramientos del director de la Fuerza Pública, los directores y subdirectores regionales de esta, el director del Servicio Nacional de Guardacostas y el director del Servicio de Vigilancia Aérea.
+Los integrantes del escalafón de oficiales superiores, una vez ingresados al servicio activo, gozarán de todos los beneficios del Estatuto Policial establecidos por el artículo 69 de esta Ley, salvo la inamobilidad en los puestos.
+Los directores regionales de la Fuerza Pública deberán ostentar, como mínimo, el grado de comisionado. Los subdirectores regionales de la Fuerza Pública deberán tener como requisito mínimo el grado de comandante.
+Los directores del Servicio Nacional de Guardacostas, del Servicio de Vigilancia Aérea y de la Policía de Control de Drogas, deberán ostentar el grado de comisionado, como mínimo.
+El director general de la Fuerza Pública, los directores y subdirectores regionales de esta, así como los directores del Servicio Nacional de Guardacostas, del Servicio de Vigilancia Aérea y de la Policía de Control de Drogas, serán de libre nombramiento y remoción por el Ministro de Seguridad Pública, únicamente con sujeción a la pertenencia al escalafón de oficiales superiores creado por esta Ley.
+Al ser removidos de sus puestos, los funcionarios antes indicados, serán acreedores al pago de los extremos laborales a los cuales tengan derecho.
+(Así adicionado por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)

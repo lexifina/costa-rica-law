@@ -1,1 +1,3 @@
-Artículo 23°- Nombramiento. El Director General del Servicio será nombrado directamente por el Ministro de Seguridad Pública.
+Artículo 23°- Nombramiento. El director del Servicio Nacional de Guardacostas será un funcionario de libre nombramiento y remoción por parte del ministro, únicamente vinculado a los requisitos establecidos por esta Ley para ser nombrado.
+El director del Servicio tendrá una base salarial equivalente a cuatro veces el salario base definido en el artículo 2 de la Ley N° 7337, de 5 de mayo de 1993, más los pluses e incentivos por prohibición, carrera profesional, disponibilidad y riesgo policial definidos por el Servicio Civil para los funcionarios del Gobierno central así como por la Ley General de Policía.
+(Así reformado por el artículo 4 de la Ley N° 8096 de 15 de marzo del 2001)

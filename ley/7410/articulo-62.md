@@ -1,2 +1,4 @@
-Artículo 62°—Tipos de faltas y sanciones aplicables
-Las faltas contra el régimen disciplinario podrán ser leves y graves. Las primeras se sancionarán con el apercibimiento oral o escrito y las segundas, con la suspensión, sin goce de salario, de uno a treinta días o el despido sin responsabilidad patronal.
+Artículo 62°—Nombramientos provisionales
+A instancia de cualquier jerarca de las fuerzas de policía, el Consejo de Personal podrá llenar, de inmediato y en forma provisional, los puestos vacantes. Para ello, escogerá a los candidatos elegibles, según el registro respectivo llevado por el Departamento de Personal. En caso de agotarse la lista de elegibles, el Consejo de Personal procederá a instalar, provisionalmente, a quienes hayan presentado una solicitud de ingreso al servicio, previo cumplimiento de las pruebas psicológicas y por un plazo no mayor de nueve meses. Pasado este lapso, la instalación provisional deberá terminarse.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 52 al 55 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 55 al 62 actual)

@@ -1,2 +1,8 @@
-Artículo 52°—Nombramientos provisionales
-A instancia de cualquier jerarca de las fuerzas de policía, el Consejo de Personal podrá llenar, de inmediato y en forma provisional, los puestos vacantes. Para ello, escogerá a los candidatos elegibles, según el registro respectivo llevado por el Departamento de Personal. En caso de agotarse la lista de elegibles, el Consejo de Personal procederá a instalar, provisionalmente, a quienes hayan presentado una solicitud de ingreso al servicio, previo cumplimiento de las pruebas psicológicas y por un plazo no mayor de nueve meses. Pasado este lapso, la instalación provisional deberá terminarse.
+CAPÍTULO III
+UNIFORMES, ESCALAS JERÁRQUICAS, GRADOS Y
+ASCENSOS DENTRO DE LA FUERZA PÚBLICA
+Artículo 52.- Ámbito de aplicación
+El presente capítulo rige para regular las escalas jerárquicas, así como los grados y ascensos dentro de las fuerzas policiales del país.
+Las policías especializadas existentes dentro del Ministerio de Seguridad Pública y el resto de las policías contempladas por esta Ley, serán reguladas en estos aspectos por sus reglamentos específicos; pero bajo ninguna circunstancia podrán incorporar, dentro de sus nomenclaturas, grados de naturaleza militar.
+Las comunicaciones oficiales de la policía, sean escritas o efectuadas por otros medios de transmisión de información, podrán contener y utilizar, única y exclusivamente, la nomenclatura de rangos estipulada por esta Ley.
+(Así adicionado por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001)
