@@ -15,3 +15,4 @@ Crea Programa Nacional de Titulación de Tierras
 | --- | --- | --- |
 | 1 | 1995-04-24 | la propia norma |
 | 2 | 1996-01-15 | Decreto Ejecutivo 24913 (1996-01-15) |
+| 3 | 1998-05-06 | Decreto Ejecutivo 27019 (1998-05-06) |
