@@ -14,3 +14,4 @@ Crea Refugio Nacional de Fauna Silvestre Golfito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-07-18 | la propia norma |
+| 2 | 1986-03-13 | Decreto Ejecutivo 16912 (1986-03-13) |
