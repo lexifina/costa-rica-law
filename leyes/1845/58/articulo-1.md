@@ -1,0 +1,5 @@
+DECRETO LVIII.
+Declara haber lugar a formacion de causa contra el Representante Suplente Don José Maria Zamora.
+“El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica. Por cuanto la Cámara de Representantes ha decretado Io siguiente.
+“La Cámara de Representantes del Estado libre de Costa Rica: habiendo tomado en consideracion la acusacion puesta por el Señor Rafael Moya, vecino de la ciudad de Heredia contra el Representante suplente Sr. José Maria Zamora de aquella misma ciudad, por injurias graves inferidas por este al primero; con vista tambien del dictámen de la comision nombrada conforme à los artículos 36 y 37 del decreto de 6 de abril de I832 y de los documentos justificativos que acompaña el acusador; y con presencia de los artículos 583, 584 y 586 parte 2ª libro 3° título 2° del Coligo general; y en observancia de los 117, 186, 187 y el final del 185 de la Constitucion política del Estado, ha venido en declarar y declara.
+Art. 1° Ha lugar á formacion de causa contra el Representante suplente por la Villa de Barba Sr. José Maria Zamora.
