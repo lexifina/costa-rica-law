@@ -1,0 +1,1 @@
+Artículo 8º—Aclaraciones o enmiendas: El profesional está en la obligación de acudir a la Institución para rendir aclaraciones sobre su informe, cada vez que ésta así lo considere conveniente, en un plazo no mayor a tres días hábiles después de ser notificado, de acuerdo con lo que establece en el artículo 13 de este Reglamento.

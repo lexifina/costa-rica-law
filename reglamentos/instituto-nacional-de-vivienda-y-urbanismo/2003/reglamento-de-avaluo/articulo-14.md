@@ -1,0 +1,2 @@
+Artículo 14.—Licencias: El profesional podrá gestionar, ante la Comisión de Tasación, la interrupción temporal de su prestación de servicios, por motivos justificados. La Comisión tiene tres días hábiles para resolver la solicitud.
+Durante el período de su licencia, dicho profesional será excluido de la asignación de casos, condición que no será compensada una vez que se reincorpore a sus labores.

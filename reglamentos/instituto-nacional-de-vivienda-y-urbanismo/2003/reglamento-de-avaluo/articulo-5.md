@@ -1,0 +1,3 @@
+Artículo 5º—Formato: Para confeccionar su informe, el profesional debe cumplir con el formato de informe de avalúo aportado por el INVU, que se encuentre vigente.
+Los informes deberán presentarse en original y una copia, debidamente firmado, indicando el número de registro profesional. Debe contener toda la información solicitada y cumplir con la totalidad de las disposiciones vigentes que le hayan sido comunicadas y todas aquellas aplicables según el reglamento de esta materia. No se recibirán los informes de avalúo realizados en forma manuscrita.
+En el caso de personas jurídicas, el informe deberá ser firmado por el profesional responsable, a cuyo cargo está el caso y haya sido previamente calificado y por el representante legal de aquella.

@@ -1,0 +1,1 @@
+Artículo 17.—Pago de facturas: El INVU, realizará el pago correspondiente por los servicios de avalúos presentados por los profesionales en los diez días hábiles posteriores a la presentación de la factura del profesional. únicamente se pagarán los servicios de todos aquellos informes que hayan sido aprobados por la Comisión de Tasaciones.

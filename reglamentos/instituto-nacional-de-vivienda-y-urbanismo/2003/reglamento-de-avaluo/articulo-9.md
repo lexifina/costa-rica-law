@@ -1,0 +1,1 @@
+Artículo 9º—El profesional deberá tener un banco de datos actualizado sobre valores de bienes, que le podrán ser solicitado por el INVU en cualquier momento. Una vez solicitado, el profesional contará con un plazo de tres días hábiles para entregarlo. En caso de atraso, se aplicará la sanción tipificada en el artículo 24 de este Reglamento.
