@@ -1,0 +1,1 @@
+Art. 63.-Toda anualidad que no sea satisfecha el día de su vencimiento, produce por el mismo hecho un interés de ocho por ciento anual á favor de la sociedad; lo mismo tendrá lugar respecto á los gastos costas del cobro desde el día en que hayan sido causados.

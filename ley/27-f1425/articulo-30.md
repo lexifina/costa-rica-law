@@ -1,0 +1,2 @@
+Art. 30.-Es prohibido á los administradores hacer operaciones de Bolsa ú otras que tengan carácter aleatorio. Les es prohibido igualmente interesarse en negocios hechos por cuenta de la sociedad, á menos que para ello sean autorizados por la asamblea general.
+Los miembros del consejo de administración no tienen sueldo fijo, pero devengan por cada sesión á que asistan, una dieta cuyo valor fijará la asamblea general. Además, tendrán derecho a la parte de beneficios expresada adelante, en el artículo 90.

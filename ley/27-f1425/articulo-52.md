@@ -1,0 +1,2 @@
+Art. 52.-Las deliberaciones y resoluciones de de otro. la asamblea general, tomadas en conformidad con los estatutos, son obligatorias para todos los accionistas, aun para los ausentes y disidentes. Unas y otras han de constar en actas inscritas en un registro especial, y deben ser firmadas por los individuos que formen la mesa.
+Correrá agregado á la minuta y firmado por los miembros de la mesa, un pliego que contenga el nombre y domicilio de los socios que han concurrido á la reunión y el número de sus acciones.

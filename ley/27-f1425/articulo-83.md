@@ -1,0 +1,2 @@
+Art. 83.-Las obligaciones hipotecarias se amortizarán por medio de sorteos semestrales, en la proporción que indica la anualidad cobrable.
+Cada reembolso comprende el número de obligaciones que sea necesario para conseguir una amortización tal que las que quedan en circulación nunca excedan de la suma de los capitales debidos, y cobrables por causa de préstamos hipotecarios.

@@ -1,0 +1,1 @@
+Art. 40.-La junta ejercerá las funciones que expresamente se le confieren en los estatutos, y auxiliará con su consejo al director-administrador en todos los asuntos en que éste solicite su opinión. Esto no obstante, el director-administrador no está obligado á seguir el parecer de la junta.
