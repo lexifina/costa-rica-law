@@ -6,3 +6,5 @@ Estos tres documentos tendrán un costo para el oferente de mil quinientos colon
 b. El Consejo de Transporte Público asegurará la existencia de la cantidad de formularios necesaria para cubrir la totalidad de los oferentes.
 c. El Consejo de Transporte Público anunciará en los medios de comunicación (prensa escrita, radio y televisión), el día, hora y lugar de distribución de los formularios.
 d. El formulario y sus componentes serán publicados como anexo del presente reglamento.
+e. Los recursos obtenidos de la venta de los formularios pre impresos, serán destinados al financiamiento del procedimiento especial abreviado, según las disposiciones que en este sentido deber emitir la Junta Directiva del Consejo de Transporte Público o su Director Ejecutivo.
+(Así adicionado el inciso anterior por el artículo 2° del Decreto Ejecutivo N° 29111 de 21 de noviembre de 2000).

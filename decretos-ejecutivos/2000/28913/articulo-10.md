@@ -1,3 +1,5 @@
-Artículo 10.—Excepciones a requisitos subjetivos. Para efectos del Primer Procedimiento Especial Abreviado, las personas que actualmente tienen una placa de taxi autorizada por el Ministerio de Obras Públicas y Transportes, y que mediante acuerdo de la Comisión Técnica de Transportes o del Consejo de Transporte Público estén eximidos de alguno (s) requisito (s) contemplados en el artículo 48 de la Ley 7969, estarán eximidos de presentar:
-1.1. Copia certificada de la licencia de taxi y código de conductor de taxi,
-1.2. Declaración jurada de que prestarán el servicio personalmente al menos durante una jornada de 8 horas diarias.
+Artículo 10.-Excepciones a requisitos subjetivos. Para efectos del Primer Procedimiento Especial Abreviado, las personas que actualmente tienen una placa de taxi autorizada por el Ministerio de Obras Públicas y Transportes, y que se encuentren contemplados en uno de los supuestos que establece el artículo 48 de la Ley N° 7969, estarán eximidos de presentar:
+1.1 Copia certificada de la licencia de taxi y código de conductor de taxi.
+1.2 Declaración jurada de que prestarán el servicio personalmente al menos durante una jornada de 8 horas diarias.
+Para efectos de calificación, los puntos establecidos a los requisitos establecidos en el punto 1.1 serán asignados en su totalidad a las personas que se encuentren en los supuestos definidos anteriormente. Salvo los documentos indicados, los oferentes que se encuentren eximidos en virtud del presente artículo, deberán presentar los demás requisitos que deben acompañar la oferta.
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 29111 de 21 de noviembre de 2000).

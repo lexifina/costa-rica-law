@@ -14,3 +14,4 @@ Reglamento Primer Procedimiento Especial Abreviado de Transporte Remunerado de P
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-19 | la propia norma |
+| 2 | 2000-11-21 | Decreto Ejecutivo 29111 (2000-11-21) |

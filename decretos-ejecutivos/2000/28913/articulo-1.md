@@ -312,7 +312,8 @@ LOS CHILES TOTAL 22
 214040 LOS CHILES San Jorge 1 base en San Jorge (vehículo rural) 1 *
 GUATUSO TOTAL 21
 215010 GUATUSO San Rafael 1 base en San Rafael (vehículos seddan) 3 *
-215010 GUATUSO San Rafael 1 base en San Rafael (vehículos rurales) 7 *
+215019 GUATUSO San Rafael 1 base en San Rafael (vehículos rurales) 7 *
+(Así reformado por artículo 3° del Decreto Ejecutivo N° 29111 de 21 de noviembre de 2000).
 215020 GUATUSO Buena Vista 1 base en Buena Vista (vehículos rurales) 5 *
 215021 GUATUSO Buena Vista 1 base en Katira (vehículos rurales) 2 *
 215030 GUATUSO Cote 1 base en Cabanga (vehículos rurales) 4 *
@@ -400,11 +401,13 @@ Código de PROVINCIA DE HEREDIA 995
 bases de Base de No. Taxis
 operación: CANTÓN: Distrito: operación: por base:
 CENTRAL TOTAL 615
-401010 HEREDIA Heredia Varias paradas en el AM de Heredia (1) 554
-401011 HEREDIA Ulloa 1 base en Ciudad Cariari (1) 10
-401030 HEREDIA San Francisco 1 base en La Aurora 50
+401010 HEREDIA Heredia Varias paradas en el AM de Heredia (1) 614
+(Así reformado por el artículo 5° del Decreto Ejecutivo N° 29111 de 21 de noviembre de 2000).
+401011 HEREDIA Ulloa 1 base en Ciudad Cariari (1) 10 (El artículo 5° del Decreto Ejecutivo N° 29111 de 21 de noviembre de 2000, elimina esta base).
+401030 HEREDIA San Francisco 1 base en La Aurora 50 (El artículo 5° del Decreto Ejecutivo N° 29111 de 21 de noviembre de 2000, elimina esta base).
 401050 HEREDIA Varablanca 1 base en Vara Blanca (vehículo rural) 1 *
-NOTA (1) El Área Metropolitana de Heredia está conformada por los Distritos de Heredia, Mercedes y Ulloa, todos bajo un mismo código (401010), excepto la base de Ciudad Cariari que se identifica con el código 401011
+NOTA (1) El área Metropolitana de Heredia está conformada por los Distritos de Heredia, Mercedes, San Francisco y Ulloa, todos bajo un mismo código (401010).
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 29111 de 21 de noviembre de 2000).
 BARVA TOTAL 40
 402010 BARVA Barva Varias paradas en el AM de Barva (2) 36
 402060 BARVA San José de Montaña 1 base San José de la Montaña (veh. Rural) 4 *
@@ -489,6 +492,10 @@ SANTA CRUZ 91
 503090 SANTA CRUZ Tamarindo 1 base en Tamarindo (3'''') 8
 503099 SANTA CRUZ Tamarindo Tamarindo (vehículos rurales) (3'''') 3 *
 Flamingo Flamingo (Vehículo rural) 8
+(NOTA DE SINALEVI: mediante artículo 3° del Decreto Ejecutivo N° 29111 de 21 de noviembre de 2000, se establece el siguiente código de base de operación:
+Cód. Cód. Base de N° Taxis
+anterior correcto Cantón Distrito operación
+------- 503091 Sta.Cruz Flamingo Framingo (Vehículo Rutal) 8*)
 NOTA (3) La base de operación de Santa Cruz tiene los códigos 503010 y 503019, dependiendo del tipo de vehículo
 NOTA (3') La base de operación de Veintisiete de Abril tiene los códigos 503030 y 503039, dependiendo del tipo de vehículo
 NOTA (3'') La base de operación de Brasilito tiene los códigos 503040 y 503049, dependiendo del tipo de vehículo
@@ -778,8 +785,13 @@ NOTA (6) La base de operación de Guácimo tiene los códigos 706010 y 706019, d
 NOTA (6') La base de operación de Pocora tiene los códigos 705030 y 705039, dependiendo del tipo de vehículo
 NOTA (6'') La base de operación de Río Jiménez tiene los códigos 705040 y 705049, dependiendo del tipo de vehículo
 NOTA I: Las paradas de taxis de las ciudades y sus áreas metropolitanas las ubicará el MOPT según criterios de accesibilidad a clínicas, hospitales, mercados, centros de comercio, etc.
-NOTA II: Se indican con asterisco (*) las bases de operación para las cuales se aceptarán ofertas.
+NOTA II: Se indican con asterisco (*) las bases de operación para las cuales se aceptarán ofertas únicamente para vehículos de tipo rural de acuerdo con las especificaciones técnicas señaladas en el presente reglamento.
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 29111 de 21 de noviembre de 2000).
 Únicamente para vehículos de tipo rural de acuerdo con las especificaciones; dichas bases se codifican con un número nueve (9) al final de la numeración.
 En las bases de operación en las cuales no se indica el asterisco, se aceptarán ofertas para vehículos de tipo sedán, de acuerdo con las especificaciones.
 En todas las bases de operación aplica el 10% para transporte de discapacitados (ver nota III).
 NOTA III: En todas las bases de operación aplica el 10% para transporte de discapacitados, de conformidad con la Ley 7600, excepto en aquellas bases de operación donde la disponibilidad de concesiones es menor de 5 unidades. Cuando el número de concesiones disponibles sea igual o mayor de 5 y menor de 15 unidades, 1 unidad deberá servir al transporte de discapacitados; si el número es igual o mayor a 15 unidades y menor de 25, 2 unidades deberán servir al transporte de discapacitados; si el número es igual o mayor a 25 y menor a 35, 3 unidades deberán servir al transporte de discapacitados; y así sucesivamente.
+Nota 10: Las concesiones administrativas asignadas a la base de operación 201011 del Aeropuerto Internacional Juan Santa María, serán adjudicadas según reglamentación especial que para tales efectos emitir el Ministerio de Obras Públicas y Transportes, de conformidad con el artículo 1° inciso d) y 29 inciso b) de la Ley Reguladora del Servicio Público de Transporte Remunerado de Personas en Vehículos en la Modalidad de Taxi, N° 7969.
+(Así adicionada la Nota 10, por artículo 2° del Decreto Ejecutivo N° 29111 de 21 de noviembre de 2000).
+Nota 11: La base de operación de Rivas, identificada con el código 119040 comprende al sector de San Gerardo de Rivas.
+(Así adicionada la Nota 11, por artículo 2° del Decreto Ejecutivo N° 29111 de 21 de noviembre de 2000).
