@@ -1,0 +1,1 @@
+Artículo 15.- Los nombramientos se realizarán mediante votación secreta. En las actas no podrán consignarse manifestaciones, votos salvados o protestas de los miembros del órgano encargado del nombramiento.

@@ -1,0 +1,3 @@
+Artículo 40
+Las Salas de la Corte se cerrarán el primero de febrero y reanudarán sus funciones el primero de marzo de cada año. En el mismo período cerrarán los Tribunales Superiores que no sean de la materia de Trabajo, lo mismo que los Juzgados de la República, salvo cuando la Corte Plena disponga que algunos de esos Tribunales y Juzgados deban permanecer abiertos para el mejor servicio público, en cuyo caso señalará los asuntos de que conocerán durante las vacaciones y los recursos y consultas que al efecto se confíen a la Corte Interina.
+( Así reformado por el artículo 2º de la Ley Nº 4620 de 29 de julio de 1970 )

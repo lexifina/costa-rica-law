@@ -1,0 +1,4 @@
+Artículo 106
+No podrán ser secretarios ni notificadores los estudiantes de derecho; los prosecretarios y escribientes que lo fueren podrán dejar de asistir a sus oficinas durante las horas que les fueren indispensables para estar presentes en los cursos o en los exámenes; pero el resto del tiempo, así como durante las vacaciones y los días de asueto en la Escuela, deberán asistir puntualmente al despacho.
+La Corte podrá cancelar el beneficio a que se refiere el párrafo anterior luego de comprobar, por los medios que tenga por convenientes, que el estudiante no asiste con regularidad, sin justa causa, al curso, o cursos lectivos correspondientes y que tampoco se presenta al desempeño de sus labores o que por falta de interés en los estudios, se atrasa en la conclusión de su carrera profesional.
+( Así adicionado por el artículo 1º de la Ley Nº 2521 de 17 de febrero de 1960 )

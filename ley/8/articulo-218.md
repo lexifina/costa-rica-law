@@ -1,0 +1,4 @@
+Artículo 218
+Sin perjuicio de lo dicho en los artículos anteriores, el Presidente de la Corte podrá apercibir y reprender, y aun suspender del ejercicio de sus funciones o empleo hasta por ocho días, a los funcionarios y empleados judiciales, en los casos en que pueden ser corregido disciplinariamente, o bien dar cuenta a la Corte Plena o al Tribunal de la Inspección Judicial, para que se pronuncie acerca de la corrección o revocatoria de nombramiento.
+Corresponde igualmente al Presidente la facultad de gestionar permutas o traslados de empleados o funcionarios para el mejor servicio público, dando cuenta en su oportunidad a la Corte Plena, al Consejo Administrativo o al Tribunal de la Inspección Judicial para que se resuelva lo que se considere conveniente.
+( Así reformado por el artículo 1º de la Ley Nº 6761 de 31 de mayo de 1982 )
