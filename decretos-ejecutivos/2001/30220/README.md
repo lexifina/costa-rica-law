@@ -14,3 +14,4 @@ Reglamento para el Registro de pruebas Rápidas de Diagnóstico de Laboratorio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-21 | la propia norma |
+| 2 | 2002-09-21 | Decreto Ejecutivo 30291 (2002-04-03) |
