@@ -1,0 +1,1 @@
+Artículo 2°—Las dependencias del sector público y privado, dentro del marco legal respectivo, podrán contribuir en la medida de sus posibilidades jurídicas y materiales, y sin perjuicio del cumplimiento de sus propios objetivos, en todas aquellas actividades que se desarrollen para el fortalecimiento y desarrollo del Programa Bandera Azul Ecológica.
