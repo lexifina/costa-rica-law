@@ -14,3 +14,4 @@ Declara Emergencia Nacional Servicio Trasbordadores entre Puntarenasy Playa Nara
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-10-24 | la propia norma |
+| 2 | 1986-10-24 | SINALEVI (sin norma nombrada) |
