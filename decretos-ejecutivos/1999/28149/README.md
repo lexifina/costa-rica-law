@@ -13,3 +13,4 @@ Declara de Interés Cultural Revista IMAGO
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-25 | la propia norma |
+| 2 | 1999-10-25 | SINALEVI (sin norma nombrada) |
