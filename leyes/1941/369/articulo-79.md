@@ -1,0 +1,1 @@
+Artículo 79.-Incurrirán en la pena de dos a quince colones de multa, los padres, tutores o encargados de un niño en edad escolar, que desobedezcan las obligaciones que les impone la Ley General de Educación Común acerca de la instrucción primaria de sus hijos o pupilos.

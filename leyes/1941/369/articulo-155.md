@@ -1,0 +1,1 @@
+Artículo 155.-El que infringiere los reglamentos sobre introducción al país, elaboración, custodia, tenencia, trasporte, venta o distribución de sustancias explosivas. inflamables o corrosivas, o productos químicos que puedan causar estragos, sufrirá arresto de uno a noventa días o multa de dos a ciento ochenta colones, o ambas penas.

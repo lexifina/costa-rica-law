@@ -1,0 +1,3 @@
+Artículo 55.-La acción privada corresponde exclusivamente al ofendido, y por muerte suya, tratándose de la calumnia, a los que sean o hubieren de ser sus herederos legítimos
+Cuando el ofendido no tuviere capacidad jurídica para acusar en razón de la edad u otro motivo, el ejercicio de esa acción corresponda a sus representantes legales o a sus guardadores; al Ministerio Público cuando ellos fueren los reos, y al Patronato Nacional de la Infancia cuando el ofendido fuere menor.
+Excepto en la injuria y la calumnia, para proceder al juzgamiento de las otras faltas privadas, basta la simple denuncia hecha por alguna de las personas indicadas en este artículo.

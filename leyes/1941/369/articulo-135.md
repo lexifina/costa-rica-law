@@ -1,0 +1,1 @@
+Artículo 135.-Los que se dedicaren a prácticas de brujería, hechicería o cualquier otro culto o creencia contrarios a la civilización o a las buenas costumbres, serán sancionados con arresto de dos a sesenta días o multa de cuatro a ciento veinte colones.

@@ -1,0 +1,2 @@
+Artículo 132.-Serán reprimidos con multa de dos a cien colones, los que turbaren las ocupaciones o el reposo nocturno de los vecinos con gritos, vociferaciones o cantos, o con toques de campana o de bocina o pitazos inmotivados, o con instrumentos, sonidos fuertes, maquinarias o aparatos de radiotelefonía, o ejecutando su oficio con infracción de los reglamentos, o por tener en su casa animales que causen ruido, o con cualquier otro ruido innecesario.
+En caso de reincidencia en la misma infracción, la pena será de cinco a treinta días de arresto inconmutable,

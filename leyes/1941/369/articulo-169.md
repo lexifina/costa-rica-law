@@ -1,0 +1,1 @@
+Artículo 169.-Serán sancionados con arresto de uno a cien días o multa de dos a doscientos colones, el médico o cualesquiera otras personas que ejercieren una profesión sanitaria, que se negaren a ejercer un servicio propio de su profesión, sin causa justificada, o que incurrieren en descuido culpable en el ejercicio de la misma, sin ocasionar daño a las personas.

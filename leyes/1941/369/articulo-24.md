@@ -1,0 +1,1 @@
+Artículo 24.-Se considerará también como una sola falta la infracción repetida de la misma ley penal, cuando una sola acción u omisión produzca la infracción de dos o más leyes penales, o cuando una de las faltas sea el medio necesario de perpetrar la otra.

@@ -1,0 +1,1 @@
+Artículo 151.-EI que mendigare en actitud amenazadora o vejatoria, por circunstancias de tiempo, de lugar, de medios o de personas, será penado con arresto de diez a treinta días, y de treinta a ciento ochenta días, en caso de reincidencia en la misma infracción.

@@ -1,0 +1,2 @@
+Artículo 121.-Será reprimido con arresto de cinco a noventa días o multa de diez a ciento ochenta colones, o con ambas penas, el funcionario o empleado público que, por sí o por medio de otro, exija derechos o propinas por lo que deba practicar gratuitamente en virtud de su oficio, o cobre mayores derechos que los que le correspondan.
+Si para efectuar la exacción simulare orden superior, mandamiento judicial u otra autorización legítima, la pena será de quince a ciento veinte días de arresto inconmutable.

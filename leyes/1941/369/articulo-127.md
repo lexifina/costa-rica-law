@@ -1,0 +1,1 @@
+Artículo 127.-Serán sancionados con multa de dos a sesenta colones, los que con ocasión de ejecutarse el Himno Nacional en actos oficiales y públicos, o desplegarse en los mismos la Bandera Nacional, o al pasar un cuerpo militar con ella desplegada, no mostraren el debido respeto.

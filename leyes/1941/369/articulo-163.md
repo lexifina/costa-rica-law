@@ -1,0 +1,1 @@
+Artículo 163.-Incurrirá en arresto de uno a treinta días o multa de dos a sesenta colones, el que, sin dar inmediatamente aviso a la autoridad, o sin autorización, cuando ésta fuere necesaria, recibiere para su custodia personas conocidamente enajenadas, o las pusiere en libertad.

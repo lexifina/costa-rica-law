@@ -1,0 +1,1 @@
+Artículo 165.- Cuando el culpable de las infracciones previstas en este capítulo fuere el director de un establecimiento de enajenados, la pena será de tres a noventa días de arresto o multa de seis a ciento ochenta colones, o ambas penas.

@@ -1,0 +1,2 @@
+Artículo 74.-Las autoridades de policía que tuvieren noticia de estarse concertando o de haberse concertado un duelo, procederán a la detención del provocador y del retado, si éste hubiere aceptado el desafío, los penarán con multa de treinta a ciento ochenta colones, y no los pondrán en libertad hasta que den garantía suficiente de haber desistido de su propósito.
+Si no la dieren dentro de tres días, serán castigados, además, con la pena de treinta a noventa días de arresto inconmutable.

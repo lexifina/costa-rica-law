@@ -1,0 +1,1 @@
+Artículo 136.-EI que cometiere cualquier profanación, que no deba calificarse de grave, en sepulcros, cementerios, cadáveres o restos humanos, incurrirá en arresto de uno a sesenta días o multa de dos a ciento veinte colones.

@@ -1,0 +1,3 @@
+Artículo 77.-Cuando por resolución judicial se haya proveído sobre el depósito o la guarda, provisionales o definitivos, de un menor de edad, el padre, la madre o cualquiera otra persona que no lo entregare a quien se ha confiado su guarda o depósito o lo sustrajere o hiciere sustraer del poder de este último, sufrirá arresto de veinte a ciento ochenta días.
+Se impondrá de uno a treinta días de arresto, al padre, la madre o cualquiera otra persona que! obligada por resolución judicial a presentar un menor, no lo hiciere sin causa justificada.
+En caso de reincidencia en infracción de la misma especie arresto será inconmutable
