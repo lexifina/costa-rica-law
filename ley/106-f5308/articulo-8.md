@@ -1,0 +1,1 @@
+Art 8°.- Practicando lo presedente procederá por medio de empedrados a la reparación y composición de los caminos, puentes y calzadas por el orden que se hayan señalado mandado a los Pedaneos citar la gente que necesite.

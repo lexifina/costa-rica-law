@@ -1,0 +1,1 @@
+Art 2°.- En este Padrón se expresaran y anotaran las personas que contribuyan al trabajo, por si, o por otro y las que por no poder o no querer, se allanen y obligen a dar quatro reales por razón de los dos días de trabajo.
