@@ -1,0 +1,1 @@
+Artículo 5° al 18. -Se extiende también la jurisdicción de los Jueces m s inmediatos, a los casos en que debiendo un Juez ser demandante o demandado en su jurisdicción, no hubiese en ella persona llamada por la ley a subrogarle.

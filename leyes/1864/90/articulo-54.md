@@ -1,0 +1,1 @@
+Artículo 54° al 1246. -Se agrega: "De la propia manera puede obrarse aún sin precedente queja, siempre que alguna de las Salas tuviere conocimiento de faltas cometidas por algún Juez subalterno, que merezca la aplicación de tales medios correccionales, en asuntos relativos al ejercicio de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 33° al 722. -Se adiciona: al margen de todo auto de detención, se pondrá razón firmada por el mismo que lo hubiese proveído, de la hora, día, mes y año en que la detención hubiese principiado; al de cada diligencia su denominación jurídica, y al de cada declaración y ratificación el nombre del deponente.

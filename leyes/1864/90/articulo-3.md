@@ -1,0 +1,1 @@
+Artículo 3° al 16. -La jurisdicción de los Jueces se extiende a personas no domiciliadas en su territorio, siempre que se hallen situadas en ‚l las cosas que son objeto del litigio o la mayor parte de ellas.

@@ -1,0 +1,2 @@
+Artículo 9° al 78-Todas las excepciones dilatorias deben oponerse simultáneamente, y dentro del término concedido para la contestación de la demanda.
+Ninguna opuesta fuera de este término o después de otra es admisible, sino como perentoria. De esta disposición se exceptúan las relativas a la jurisdicción del Juez, o a la personería de las partes, que pueden oponerse antes de cualquiera otra, y decidirse en artículo de previo y especial pronunciamiento.

@@ -1,0 +1,1 @@
+Articulo 40 al 879.-A los tres días, cuando más, de la devolución de autos por el defensor se celebrar, previa citación, la audiencia pública, siempre que concurrieren todos o alguno de ‚estos: el acusador, el reo o su defensor y el Fiscal, en caso de haberlo.

@@ -1,0 +1,1 @@
+Artículo 41 al 880.-En dicha audiencia se permitir n dos replicas por cada parte, y se conceder también al reo la palabra para que exponga lo que le convenga. Terminada la audiencia, o puesta razón de no haberse verificado por renunciación o falta de concurrencia de las partes a la hora designada, el Juez fallar dentro de cuarenta y ocho horas.

@@ -1,0 +1,1 @@
+Articulo 51 al 1191.-Se subroga el final de dicho artículo con el siguiente párrafo: "No se admitir escrito de recusación contra ningún Juez, sin que se determine, como fundamento de la recusación, alguna de las causales que se mencionan en el artículo 1192.

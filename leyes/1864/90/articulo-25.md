@@ -1,0 +1,1 @@
+Artículo 25 al 423.-Se agrega: también pertenecen a esta clase las certificaciones de lo convenido en el acto conciliatorio, las de las tasaciones de costas aprobadas por los Jueces, y las de las practicadas por los Tribunales.

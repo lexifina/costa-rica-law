@@ -1,0 +1,2 @@
+Artículo 47 al 1058.-Las sentencias definitivas de los Tribunales, en el asunto del litigio, se circunscribir n precisamente a los puntos apelados, y a aquellos que debieron haberse decidido y no lo fueron en 1° instancia, sin embargo, de haber sido propuestos
+y ventilados por las partes. Fuera del asunto, pueden en la misma sentencia dictarse aquellas providencias necesarias que surgen de los autos como condenan al Juez de las costas de las diligencias que aparezcan inoficiosas, ordenar juzgamientos y otras de tal naturaleza.
