@@ -1,0 +1,1 @@
+Artículo 10.- El Poder Ejecutivo establecerá las tarifas de admisión al Parque y uso de las instalaciones del Parque, y el producto obtenido se destinará exclusivamente al desarrollo y administración del mismo.

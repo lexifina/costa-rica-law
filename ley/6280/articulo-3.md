@@ -1,0 +1,1 @@
+Artículo 3º.- Las reservas nacionales, así como los terrenos reducidos a dominio particular que adquiera el Estado, comprendidos por la anterior demarcación, son inalienables y no susceptibles de inscripción mediante información posesoría, según lo establecido por los artículo 25 y 76 de la Ley Forestal y el artículo 13 de la ley número 6084 del 24 de agosto de 1977.
