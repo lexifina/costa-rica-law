@@ -1,0 +1,1 @@
+Artículo 3°—Disponibilidad presupuestaria. No se podrá autorizar ningún egreso por concepto de gastos de presentación, sin el previo visto bueno del Departamento Contable, donde se haga constar la existencia de contenido presupuestario para tal efecto.
