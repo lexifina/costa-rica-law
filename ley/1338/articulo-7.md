@@ -1,0 +1,1 @@
+Artículo 7°- El derecho de vía de los caminos públicos y los vecinales será el que indiquen los Departamentos Técnicos del Ministerio de Obras Públicas, sin que pueda ser menor de veinte metros para los primeros y catorce metros para los segundos, Si los anchos de los actuales caminos fuesen mayores, se mantendrán así.
