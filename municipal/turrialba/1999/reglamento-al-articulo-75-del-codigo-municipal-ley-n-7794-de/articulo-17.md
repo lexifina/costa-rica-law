@@ -1,0 +1,1 @@
+Artículo 17.—En todo lo concerniente a la construcción de aceras el propietario del bien inmueble seguirá las instrucciones emanadas de los funcionarios municipales correspondiente. En el diseño de las aceras la Municipalidad tendrá en cuenta el ornato y la seguridad y comodidad de transeúntes.

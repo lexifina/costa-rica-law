@@ -1,0 +1,1 @@
+Artículo 3°—Cuando la propiedad se encuentre inmediata a caliese camino público y servidumbres, son deberes del propietario mantener los desagües limpios en perfecto estado de servicio, libre de todo obstáculo.

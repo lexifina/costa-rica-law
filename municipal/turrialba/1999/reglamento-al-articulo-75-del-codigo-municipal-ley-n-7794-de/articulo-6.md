@@ -1,0 +1,1 @@
+Artículo 6°—Queda prohibido romper los caminos públicos, o para efectuar cualquier tipo de obra, sin autorización de la Municipalidad. previo depósito de dinero efectivo, monto, producto de la estimación de la reparación correspondiente, realizada por funcionarios municipales.

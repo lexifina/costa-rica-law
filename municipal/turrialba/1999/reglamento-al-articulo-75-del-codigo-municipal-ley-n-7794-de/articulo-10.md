@@ -1,0 +1,1 @@
+Artículo 10.—Exclusivamente frente a la propiedad en donde se ejecute una obra, será permitido dejar escombros, hacer excavaciones, o en alguna forma poner obstáculos al libre tránsito o en la vía en forma provisional, para la cual es obligatorio obtener de previo la autorización escrita de la Municipalidad, según lo indicado en la Ley de Construcciones y su Reglamento.

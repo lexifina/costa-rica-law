@@ -1,0 +1,1 @@
+Artículo 21.—Transcurrido el tiempo señalado en el Artículo tenor el Departamento Municipal a que corresponda realizará la obra, concluida, remitirá un informe escrito al Departamento de Rentas y tranzas para la realización de los cálculos del costo efectivo de la obra.

@@ -1,0 +1,1 @@
+Artículo 24.—Una vez finalizada la obra el Departamento de Cobranzas y Rentas realizará los cálculos del costo efectivo de la obra más multa y procederá a notificar al propietario omiso de su adeudo con 1 Municipalidad.

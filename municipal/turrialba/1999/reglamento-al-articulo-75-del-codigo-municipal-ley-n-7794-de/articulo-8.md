@@ -1,0 +1,1 @@
+Artículo 8°—Los propietarios de terrenos sin construir que linden con vías públicas, en que la Municipalidad juzgue necesario, deberán aislar de dichas propiedades de la vía pública con una acera y cerrar con tapia hasta una altura mínima de dos metros elaborada con cualquier tipo de material, láminas o baldosas sólidas o cerca de alambre de púa.
