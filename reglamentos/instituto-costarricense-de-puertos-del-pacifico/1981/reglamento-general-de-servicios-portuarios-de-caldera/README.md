@@ -19,3 +19,4 @@ Reglamento General de Servicios Portuarios de Caldera
 | 5 | 2001-09-26 | Reglamento 3038 (2001-09-26) |
 | 6 | 2002-06-27 | Reglamento 0 (2002-06-27) |
 | 7 | 2002-06-27 | Ley 8 |
+| 8 | 2002-09-26 | Reglamento 3115 (2002-09-26) |
