@@ -1,0 +1,1 @@
+Art. 5. El Intendente general por sì à por comision practicarà Corte general en las cuentas de la Aduana y remitirá originales los libros á la Contaduria mayor, disponiendo que se abran los convenientes en la Receptoria.
