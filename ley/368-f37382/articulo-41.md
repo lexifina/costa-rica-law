@@ -1,0 +1,1 @@
+Artículo 41.-Caso de primera reincidencia en delito de la misma especie, la pena de la tentativa se disminuirá sólo hasta en un tercio; y en la segunda y demás reincidencias, aunque no sean específicas, la tentativa se estimará como delito consumado.

@@ -1,0 +1,3 @@
+Artículo 94.-La suspensión será motivada, con expresión de las razones legales y de moralidad en que se fundare. Se especificarán también las condiciones a que se subordina, entre las cuales podrán figurar, la fijación de residencia en determinado lugar, la abstención de bebidas alcohólicas y la sujeción a las medidas de vigilancia que se determinen.
+Una vez firme la sentencia, el juez de la causa hará al reo personalmente, las advertencias necesarias acerca de la naturaleza del beneficio otorgado y de los motivos que pueden producir su cesación, y lo hará constar en el expediente por acta.
+Cuando la suspensión fuere solicitada, la denegación deberá también motivarse.

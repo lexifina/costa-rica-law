@@ -1,0 +1,8 @@
+Artículo 130.-El pago de las pensiones alimenticias periódicas a que se refieren los artículos 127 y 128, se garantizará debidamente y el juez fijará el modo y forma de satisfacerlas.
+Si así conviniere a los intereses de los reclamantes, el juez podrá conmutar las pensiones futuras en una o varias cantidades totales que correspondan, hasta donde la previsión alcance, al resultado que produciría a la larga el sistema de la renta. En caso de muerte del ofendido se observarán las reglas siguientes:
+1°-Si el reclamante fuere el cónyuge supérstite, sin hijos menores, la conmutación se hará a base del resto probable de vida del cónyuge de mayor edad en la fecha de la infracción.
+2°-Si los reclamantes fueren el cónyuge sobreviviente y los hijos menores del interfecto, se seguirá el criterio de la regla anterior, o bien se tomará como base lo que falte al menor de los hijos para llegar a la mayoridad, según resulte más equitativo.
+3°-Si se tratare sólo de hijos menores, la conmutación se operará a base de lo que falte al menor de los hijos para cumplir la mayoridad en relación con la vida probable del difunto.
+4°-Si entre los alimentarios figurare un inhábil, la conmutación se hará por el resto de vida probable de éste o por el resto de vida probable del occiso, a base de la edad del mayor de ellos.
+5°-Si entre las personas que recibían alimentos figurare los padres del difunto, la vida del menor de éstos servirá para el cálculo de la conmutación.
+6°-En cualesquiera otros casos de alimentarios, no previstos en las reglas anteriores, se aplicará, si fuere posible, la que guarde mayor analogía dentro de un criterio de equidad, y, a falta de esa analogía, los jueces harán prudencialmente la conmutación.

@@ -1,0 +1,4 @@
+Artículo 316.-Será reprimido con prisión de seis meses a dos años o multa de trescientos sesenta a mil quinientos colones, el que por imprudencia o negligencia, o por impericia en su arte u oficio, o por inobservancia de las ordenanzas o reglamentos, causare un incendio u otro estrago.
+Si del suceso resultar en lesiones de las previstas en los artículos 201, 202, ó 203, o la muerte de alguna persona, la pena será de año y medio a cuatro años de prisión o multa de mil ochenta a cinco mil colones.
+Se impondrá, además, en todo caso, inhabilitación de uno a cuatro años para el ejercicio del arte, comercio, industria, profesión, oficio o cargo en que se ocasionó el hecho, aunque no lo tenga el culpado como medio de subsistencia.
+En caso de reincidencia específica, no se aplicará la pena de multa.

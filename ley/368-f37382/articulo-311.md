@@ -1,0 +1,5 @@
+Artículo 311.-Los extremos mayor y menor de las penas establecidas en el artículo anterior se duplicarán, sin exceder de treinta años:
+1.-Si el edificio o la construcción fuere la morada de una persona o una familia, o estuviere destinado a oficina o servicios que exijan en el momento del incendio la permanencia de uno o más individuos.
+2.-Si al cometerse el siniestro se encontrare en el lugar incendiado alguna persona cuya presencia conocía o pudo prever el delincuente.
+3.-Si el incendio se cometiere dentro de poblado, con riesgo para las personas o con peligro de propagación, o en lugar despoblado, si se comunicare a otras propiedades, siempre que este evento, atendidas las circunstancias, haya podido preverlo el delincuente.
+4.-Si el incendio se produjere en archivos, registros, bibliotecas, museos, templos, arsenal, cuartel o almacén militar u otro edificio público o destinado al uso público, o en fábrica o depósito de explosivos o líquidos inflamables o si no produciéndose en ellos los pusiere en inmediato peligro.

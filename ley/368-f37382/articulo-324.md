@@ -1,0 +1,1 @@
+Artículo 324.-Si en los actos de violencia u hostilidad mencionados en el artículo anterior, se produjere alguna de las lesiones indicadas en los artículos 201, 202 Y 203, o si fueren causa de la muerte de alguna persona dentro o fuera del buque atacado, la pena aplicable será prisión de quince a treinta años.

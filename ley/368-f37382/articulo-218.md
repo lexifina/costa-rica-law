@@ -1,0 +1,1 @@
+Artículo 218.-Si en los casos del artículo 216, resultaré un grave daño en la salud de la víctima o se cometiere el hecho por un ascendiente o descendiente consanguíneo o afín, o por un hermano, o por un sacerdote, o por un encargado de la educación o de la guarda del ofei1dido u ofendida, o con el concurso de dos o más personas, se impondrá prisión de siete a doce años.

@@ -1,0 +1,2 @@
+Artículo 318.-El que ocasione un accidente en los medios de transportes terrestres, aéreos o navales, será sancionado con prisión de tres a seis años.
+Si a consecuencia del accidente sobrevienen, a una o más personas, lesiones de las comprendidas en los artículos 203 ó 204, la pena será de cuatro a diez años de prisión, y de seis a doce, si se hallan comprendidas en los artículos 201 ó 202. Si sobreviene la muerte de una o más personas, la sanción será prisión de doce a veinticuatro años.

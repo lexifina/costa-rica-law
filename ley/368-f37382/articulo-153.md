@@ -1,0 +1,1 @@
+Artículo 153.-El perdón del agraviado no dará derecho a la restitución de las sumas pagadas como multa, y en cuanto a terceros, respecto de los delitos a que se refiere el inciso 4° del artículo 149, las cosas volverán al mismo estado que tenían antes de la iniciación del proceso criminal, sin perjuicio de lo que la ley civil disponga.

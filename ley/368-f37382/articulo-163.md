@@ -1,0 +1,1 @@
+Artículo 163.-Después de descontada la mitad de la condena de interdicción de derechos, se podrá otorgar la rehabilitación, siempre que esa pena no haya sido impuesta como consecuencia de la de prisión, y que el penado hubiere demostrado enmienda con su buena conducta.

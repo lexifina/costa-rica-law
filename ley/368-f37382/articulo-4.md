@@ -1,0 +1,6 @@
+Artículo 4.-Se aplicará también la ley costarricense:
+1.-A los Agentes Diplomáticos de la República y demás funcionarios de la misma que gozaren del privilegio de extraterritorialidad, por las infracciones punibles que cometan en el extranjero.
+2.-A los funcionarios y empleados al servicio de la República que delincan en el exterior con motivo y en el desempeño de sus cargos.
+3.-A los nacionales y a los extranjeros que, fuera del territorio de la República, cometan un hecho punible contra los intereses políticos o económicos de la Nación.
+4.-A las infracciones consumadas en el extranjero, cualquiera que sea la nacionalidad del delincuente, cuando alguno de los actos de ejecución se haya efectuado en Costa Rica, o cuando sus efectos, en todo o en parte se produzcan en el territorio nacional.
+5.-A los nacionales por los hechos punibles de cualquier clase perpetrados en el exterior, y a los extranjeros por los cometidos fuera del territorio de la República en perjuicio del Estado o de un costarricense, siempre que, en uno u otro caso, el hecho esté reprimido con una pena privativa de la libertad no menor de un año, de acuerdo con la ley costarricense, y que la infracción sea punible en el país en que se ejecutó.

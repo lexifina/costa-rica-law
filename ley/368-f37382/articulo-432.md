@@ -1,0 +1,1 @@
+Artículo 432.-Para los efectos de este capítulo, quedan equiparados a los documentos públicos, los testamentos ológrafos o cerrados, las letras de cambio y los títulos de crédito trasmisibles por endoso o al portador, no comprendidos en el artículo 418.

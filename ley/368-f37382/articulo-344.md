@@ -1,0 +1,1 @@
+Artículo 344.-El ciudadano o súbdito de una nación con la cual Costa Rica esté en guerra, que viole las medidas de internación o expulsión del territorio nacional, decretadas por el Gobierno contra ciudadanos o súbditos de la potencia enemiga, sufrirá prisión de seis meses a dos años.

@@ -1,0 +1,1 @@
+Artículo 339.-El extranjero residente en Costa Rica a quien se inculpe uno de los delitos previstos en el artículo 333, será castigado con prisión de seis a dieciocho años, excepto si el hecho fuere uno de los indicados en los incisos 15° y 16°, pues entonces se sancionará con la pena de extrañamiento de cuatro a diez años.

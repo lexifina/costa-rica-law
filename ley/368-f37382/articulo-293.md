@@ -1,0 +1,1 @@
+Artículo 293.-El que fuere declarado en quiebra culpable con arreglo al artículo 36 de la Ley de Quiebras, será reprimido con prisión de seis meses a cuatro años e inhabilitación para el ejercicio del comercio o de la industria de uno a cinco años.

@@ -1,0 +1,1 @@
+Artículo 377.-Se impondrá multa de cien a setecientos veinte colones e inhabilitación para el ejercicio de cargos y oficios públicos de seis meses a dos años, al funcionario o empleado público que, sin habérsele admitido la renuncia de su destino, lo abandonare con daño del servicio oficial.

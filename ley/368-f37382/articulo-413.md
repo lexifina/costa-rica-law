@@ -1,0 +1,1 @@
+Artículo 413.-El extranjero que infrinja la expulsión que se le hubiere impuesto en virtud de lo establecido en este Código o conforme el las leyes de extranjería, será de nuevo expulsado del territorio nacional, después de haber sido castigado con la pena de prisión de seis meses a dos años.

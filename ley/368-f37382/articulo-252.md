@@ -1,0 +1,1 @@
+Artículo 252.-Las disposiciones de los artículos anteriores no son aplicables al que entrare en la morada de otro para evitarse a sí mismo un mal grave o para evitárselo a los moradores o a un tercero, ni al que lo hiciere para cumplir un deber de humanidad o prestar auxilio a la justicia.

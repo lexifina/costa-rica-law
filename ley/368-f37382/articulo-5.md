@@ -1,0 +1,1 @@
+Artículo 5.-En los casos previstos en el artículo anterior, no se procederá sino mediante acusación del ofendido o a instancia del Procurador General de la República, y en los indicados en los incisos 4° y 5°, para proceder contra el delincuente se requiere además que se halle en el territorio nacional.

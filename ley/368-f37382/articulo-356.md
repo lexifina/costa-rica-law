@@ -1,0 +1,2 @@
+Artículo 356.-El que, con fines políticos y con actos directos, atentare contra la vida, la integridad personal o la libertad del Presidente de la República, de los Ministros de Estado o de cualquier otro miembro de los Poderes Públicos, será castigado con prisión de tres a diez años, y si el delito contra la vida se consumase, sufrirá la pena de prisión de quince a treinta años.
+La proposición y la conspiración para cometer los delitos dichos serán reprimidas con prisión de seis meses a tres años.

@@ -1,0 +1,1 @@
+Artículo 59.-No podrá aplicarse a los penados como medida correctiva la flagelación, ni ningún otro maltratamiento o tortura personal; pero sí podrá rec1uírseles en la celda destinada a castigo y sometérseles a otros tratamientos disciplinarios, compatibles con los sentimientos de humanidad.

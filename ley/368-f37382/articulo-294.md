@@ -1,0 +1,1 @@
+Artículo 294.-La pena de prisión señalada en el artículo anterior se aplicará al fallido, que, después de .declarada la quiebra, ejecute alguna de las acciones o incurra en alguna de las omisiones a que se refiere el artículo 38 de la Ley de Quiebras.

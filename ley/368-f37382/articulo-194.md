@@ -1,0 +1,1 @@
+Artículo 194.-EI que con anuencia de la mujer y sin seguirse la muerte de ésta, causare un aborto, será castigado con prisión de uno a tres años, y si se siguiere la muerte, con prisión de dos a cinco años.

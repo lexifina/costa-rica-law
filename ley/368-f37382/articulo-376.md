@@ -1,0 +1,1 @@
+Artículo 376.-Se reprimirá con prisión de seis meses a tres años al funcionario o empleado público que requiriere la asistencia de la fuerza pública, para impedir la ejecución de órdenes legales de la autoridad o de sentencias o mandatos de los tribunales.

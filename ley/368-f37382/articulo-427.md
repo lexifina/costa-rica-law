@@ -1,0 +1,1 @@
+Artículo 427.-EI que insertare o hiciere insertar en un instrumento público o en un documento público declaraciones falsas concernientes a un hecho que el documento deba probar, de modo que pueda resultar perjuicio, será condenado a prisión de uno a seis años.

@@ -1,0 +1,1 @@
+Artículo 172.-El Poder Ejecutivo concederá o denegará la gracia por acuerdo formal, que expresará las razones en que se funda y hará mención del parecer emitido por la Corte Suprema de Justicia. Tal acuerdo no surtirá efectos antes de que se le dé publicidad en La Gaceta

@@ -1,0 +1,1 @@
+Artículo 45.-AI cómplice de delito consumado se le impondrá la pena ordinaria disminuida de uno o dos tercios; y al de tentativa se le aplicará una pena no mayor de la mitad de la ordinaria ni menor de una sexta parte de la misma, habida cuenta, en ambos casos, de la importancia de la participación del agente y de las circunstancias modificativas de la responsabilidad.

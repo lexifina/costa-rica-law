@@ -1,0 +1,1 @@
+Artículo 135.-Es solidaria la obligación de los partícipes en un hecho punible en cuanto a la reparación civil; pero entre ellos cada uno responderá por la cuota que le señale el juez, según su participación.

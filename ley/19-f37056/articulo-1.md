@@ -1,4 +1,7 @@
+(Derogado)
 N° 19
+(Esta norma fue deroga por el artículo 434 del Código Penal de 1941, ley N° 368 del 21 de agosto de 1941)
+(Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
 El Congreso Constitucional de la República de Costa Rica
 Decreta
 Artículo único. - Restablécese la vigencia del artículo 287 del Código Penal, el cual se leerá en la forma siguiente:

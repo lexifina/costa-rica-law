@@ -1,0 +1,1 @@
+Artículo 205.-Si concurriere alguna de las circunstancias enumeradas en los artículos 184 y 185, la pena será; en el caso del artículo 201, de dos a quince años; en el caso del artículo 202 de seis a doce años; en el caso del artículo 203, de tres a nueve años; y en el caso del artículo 204, de año y medio a cuatro años.

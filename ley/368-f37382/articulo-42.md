@@ -1,0 +1,1 @@
+Artículo 42.-Cuando por la ineficacia del medio empleado, o por la inexistencia del objeto, fuere imposible la realización del delito y el sujeto obró persuadido de la existencia del objeto o de la eficacia del medio, podrá disminuirse discrecionalmente la pena ordinaria y hasta eximirse de ella, según la peligrosidad revelada por el agente.

@@ -1,0 +1,2 @@
+Artículo 256.-Se impondrá la pena del artículo anterior y, además, la de inhabilitación para el ejercicio de cargos y oficios públicos, o de profesiones titulares, en su caso, de seis meses a dos años, al que teniendo noticia por razón de su estado, de oficio, empleo, profesión o arte, de un secreto cuya divulgación pueda causar daño y que no consista en un plan o conspiración para delinquir, lo revele sin causa que justifique su conducta.
+En las mismas penas incurrirá el que divulgare actuaciones o procedimientos, que por ley deben quedar secretos.

@@ -1,0 +1,1 @@
+Artículo 342.-En los casos de los artículos anteriores, la tentativa se castigará como delito consumado; la conspiración, con la pena disminuída en una mitad, y la proposición, con la pena rebajada en dos tercios.

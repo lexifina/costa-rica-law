@@ -1,0 +1,1 @@
+Artículo 409.-Si el preso fugado se presentare luego voluntariamente a la autoridad, no incurrirá en pena alguna por el quebrantamiento, pero será siempre responsable de las violencias que hubiere empleado, si fueren constitutivas de delito por sí mismas.

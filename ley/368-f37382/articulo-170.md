@@ -1,0 +1,1 @@
+Artículo 170.-Una vez en forma el expediente, y sin perjuicio de las. ampliaciones de informe o de pruebas que el Ministro creyere conveniente ordenar, mandará necesariamente pasar las diligencias a informe de la Corte Suprema de Justicia, salvo que se trate de indulto recomendado por el tribunal sentenciador.

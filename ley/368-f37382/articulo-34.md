@@ -1,0 +1,1 @@
+Artículo 34.-Fijada la pena que corresponda en el caso, según la naturaleza del hecho, la participación del agente y las circunstancias modificativas de responsabilidad, esa pena, por la primera reincidencia se aumentará en un tercio, y por la segunda y demás, en dos tercios.

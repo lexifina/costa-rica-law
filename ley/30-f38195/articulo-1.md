@@ -1,4 +1,7 @@
+(Derogado)
 N° 30
+(Esta norma fue deroga por el artículo 434 del Código Penal de 1941, ley N° 368 del 21 de agosto de 1941)
+(Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
 El Congreso Constitucional de la República de Costa Rica
 Con el propósito de hacer más rápida la Administración de la Justicia en lo criminal y más efectiva la sanción penal en el castigo de las faltas,
 DECRETA:

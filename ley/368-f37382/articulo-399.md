@@ -1,0 +1,2 @@
+Artículo 399.-El que, como parte en asunto civil de cualquier clase, o como acusador particular al absolver posiciones en un juicio criminal, faltare a la verdad bajo juramento, incurrirá en prisión de un mes a un año.
+Para la persecución de este delito es necesario que el juez que conoció del negocio en donde fue prestada la confesión, aprecie como falsa ésta al dictar la sentencia o la resolución que ponga término al asunto.
