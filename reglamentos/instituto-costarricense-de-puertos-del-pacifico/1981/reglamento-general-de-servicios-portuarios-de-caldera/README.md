@@ -15,3 +15,4 @@ Reglamento General de Servicios Portuarios de Caldera
 | 1 | 1981-07-29 | la propia norma |
 | 2 | 2000-10-18 | Reglamento 2966 (2000-10-18) |
 | 3 | 2001-02-01 | Reglamento 2990 (2001-02-01) |
+| 4 | 2001-08-08 | Reglamento 3026 (2001-08-08) |
