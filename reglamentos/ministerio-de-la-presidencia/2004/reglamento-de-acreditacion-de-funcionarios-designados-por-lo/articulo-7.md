@@ -1,0 +1,1 @@
+Artículo 7º—Uso exclusivo, responsabilidad de la custodia y conservación del carné de acreditación. A las personas acreditadas se les asignará un carné que será de uso exclusivo y tendrán la responsabilidad sobre la custodia y conservación del mismo. En caso de extravío el periodista o medio de comunicación respectivo deberá reponerlo cancelando el valor del mismo.

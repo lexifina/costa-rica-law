@@ -1,0 +1,1 @@
+Artículo 4º—Supervisión de cumplimiento. La Dirección General del Ministerio de la Presidencia en conjunto con los Oficiales de Seguridad serán los responsables de velar por el debido cumplimiento de lo estipulado en el presente Reglamento.
