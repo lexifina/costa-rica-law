@@ -1,0 +1,1 @@
+Artículo 28.—A partir del acto de notificación de aprobación de una solicitud de donación por parte de la Presidencia Ejecutiva, el beneficiario tendrá un plazo de treinta días naturales para realizar la formalización de la escritura. Si transcurrido ese plazo, el beneficiario no se presenta a realizar la formalización, el acto de donación se tendrá por desestimado.

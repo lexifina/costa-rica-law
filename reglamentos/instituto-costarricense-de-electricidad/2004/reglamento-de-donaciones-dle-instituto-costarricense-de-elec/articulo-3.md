@@ -1,0 +1,1 @@
+Artículo 3º—Debe entenderse como donación aquel contrato mediante el cual, el donante transfiere en favor de otra persona física o jurídica y de manera gratuita, la propiedad del bien objeto de donación.

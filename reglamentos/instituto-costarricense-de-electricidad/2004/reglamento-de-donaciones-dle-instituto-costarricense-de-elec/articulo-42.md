@@ -1,0 +1,1 @@
+Artículo 42.—En todos los casos que suponga la administración de recursos públicos, la entidad beneficiaria deberá cumplir con lo dispuesto en la Ley de la Administración Financiera y Presupuestos Públicos y la Ley de la Contratación Administrativa y su Reglamento.

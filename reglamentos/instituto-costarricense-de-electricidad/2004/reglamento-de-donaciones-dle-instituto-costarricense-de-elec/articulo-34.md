@@ -1,0 +1,1 @@
+Artículo 34.—Cuando la donación verse sobre bienes obsoletos, cada dependencia técnica será la responsable de recomendar a la Dirección de Proveeduría, la declaratoria de obsolescencia de los materiales, equipos y repuestos que utilice o administre.

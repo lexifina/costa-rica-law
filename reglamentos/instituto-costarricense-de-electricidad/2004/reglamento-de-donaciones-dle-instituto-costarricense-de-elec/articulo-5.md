@@ -1,0 +1,1 @@
+Artículo 5º—La solicitud de donación será tramitada por la Dirección de Proveeduría, la cual procederá a confeccionar un expediente administrativo y a realizar el estudio correspondiente, previa solicitud de los criterios legales, técnicos y el avalúo, que serán utilizados como sustento de su recomendación.

@@ -1,0 +1,1 @@
+Artículo 15.—La aceptación de las donaciones de bienes, no debe implicar gastos por reparaciones, operación y mantenimiento, mayores a los que requieren los bienes similares propiedad de la institución o los que normalmente arriendan.

@@ -1,0 +1,1 @@
+Artículo 20.—La Presidencia Ejecutiva no tramitará ninguna solicitud de donación de dinero, si el ICE no cuenta con el contenido presupuestario debidamente aprobado por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 40.—Cuando por su naturaleza la aprobación de una solicitud de donación requiera la elaboración de contratos, y otros documentos legales, será responsabilidad de la Dirección Jurídica Institucional, la elaboración de estos documentos, previa coordinación con la Dirección de Proveeduría, Presidencia Ejecutiva, Gerencia General, Subgerencias respectivas, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 41.—En los casos que corresponda, la entidad beneficiaria será la responsable del trámite y obtención de refrendo y aprobación presupuestaria de la donación por parte de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 29.—En la escritura pública descrita en el artículo 12 de este reglamento, se deberá consignar el estado del bien donado, características esenciales, avalúo y el número de registro institucional.
