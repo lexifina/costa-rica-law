@@ -1,7 +1,4 @@
 ARTICULO 45
 Revisión
-1. Todo Estado Contratante podrá en cualquier momento, mediante
-notificación dirigida al Secretario General de las Naciones Unidas, pedir
-la revisión de esta Convención.
-2. La Asamblea General de las Naciones Unidas recomendará las medidas
-que eventualmente hayan de adoptarse respecto de tal petición.
+1. Todo Estado Contratante podrá en cualquier momento, mediante notificación dirigida al Secretario General de las Naciones Unidas, pedir la revisión de esta Convención.
+2. La Asamblea General de las Naciones Unidas recomendará las medidas que eventualmente hayan de adoptarse respecto de tal petición.

@@ -1,10 +1,3 @@
 ARTICULO 14
 Derechos de Propiedad Intelectual e Industrial
-En cuanto a la protección a la propiedad industrial, y en particular
-a inventos, dibujos o modelos industriales, marcas de fábrica, nombres
-comerciales y derechos de autor sobre obras literarias, científicas o
-artísticas, se concederá a todo refugiado, en el pa'si en que resida
-habitualmente, la misma protección concedida a los nacionales de tal país.
-En el territorio de cualquier otro Estado Contratante se le concederá la
-misma protección concedida en él a los nacionales del país en que resida
-habitualmente.
+En cuanto a la protección a la propiedad industrial, y en particular a inventos, dibujos o modelos industriales, marcas de fábrica, nombres comerciales y derechos de autor sobre obras literarias, científicas o artísticas, se concederá a todo refugiado, en el país en que resida habitualmente, la misma protección concedida a los nacionales de tal país. En el territorio de cualquier otro Estado Contratante se le concederá la misma protección concedida en él a los nacionales del país en que resida habitualmente.

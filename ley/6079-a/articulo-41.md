@@ -1,22 +1,6 @@
 ARTICULO 41
 Cláusula Federal
-Con respecto a los Estados federales o no unitarios, se aplicarán las
-disposiciones siguientes:
-a) En lo concerniente a los artículos de esta Convención cuya
-aplicación dependa de la acción legislativa del Poder Legislativo Federal,
-las obligaciones del gobierno Federal serán, en esta medida, las mismas
-que las de las Partes que no son Estados federales;
-b) En lo concerniente a los artículos de esta Convención cuya
-aplicación dependa de la acción legislativa de cada uno de los Estados,
-provincias o cantones constituyentes que, en virtud del régimen
-constitucional de la federación, no estén obligados a adoptar medidas
-legislativas, el gobierno federal, a la mayor brevedad posible y con su
-recomendación favorable, comunicará el texto de dichos artículos a las
-autoridades competentes de los Estados, provincias o cantones.
-c) Todo Estado federal que sea Parte en esta Convención
-proporcionará, a petición de cualquiera otro Estado contratante que le
-haya sido transmitida por el Secretario General de las Naciones Unidas,
-una exposición de la legislación y de las prácticas vigentes en la
-Federación y en sus unidades constituyentes, en lo concerniente a
-determinada disposición de la Convención, indicando en qué medida, por
-acción legislativa o de otra índole, se ha dado efecto a tal disposición.
+Con respecto a los Estados federales o no unitarios, se aplicarán las disposiciones siguientes:
+a) En lo concerniente a los artículos de esta Convención cuya aplicación dependa de la acción legislativa del Poder Legislativo Federal, las obligaciones del gobierno Federal serán, en esta medida, las mismas que las de las Partes que no son Estados federales;
+b) En lo concerniente a los artículos de esta Convención cuya aplicación dependa de la acción legislativa de cada uno de los Estados, provincias o cantones constituyentes que, en virtud del régimen constitucional de la federación, no estén obligados a adoptar medidas legislativas, el gobierno federal, a la mayor brevedad posible y con su recomendación favorable, comunicará el texto de dichos artículos a las autoridades competentes de los Estados, provincias o cantones.
+c) Todo Estado federal que sea Parte en esta Convención proporcionará, a petición de cualquiera otro Estado contratante que le haya sido transmitida por el Secretario General de las Naciones Unidas, una exposición de la legislación y de las prácticas vigentes en la Federación y en sus unidades constituyentes, en lo concerniente a determinada disposición de la Convención, indicando en qué medida, por acción legislativa o de otra índole, se ha dado efecto a tal disposición.
