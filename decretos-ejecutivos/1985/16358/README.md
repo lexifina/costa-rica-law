@@ -14,3 +14,4 @@ Declara Refugio Nacional de Fauna Silvestre Barra del Colorado
 | --- | --- | --- |
 | 1 | 1985-07-26 | la propia norma |
 | 2 | 1985-07-26 | SINALEVI (sin norma nombrada) |
+| 3 | 2004-05-04 | Decreto Ejecutivo 31804 (2004-05-04) |
