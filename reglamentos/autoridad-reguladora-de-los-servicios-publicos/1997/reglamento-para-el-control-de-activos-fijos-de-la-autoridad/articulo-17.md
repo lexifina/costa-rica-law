@@ -1,0 +1,1 @@
+Artículo 17.—Obligación de practicar recuentos físicos: La Oficina de Contabilidad, cuando lo estime conveniente y al menos una vez al año, realizará recuentos físicos en las diferentes unidades funcionales de la Institución.
