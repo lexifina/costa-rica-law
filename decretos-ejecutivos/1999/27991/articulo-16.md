@@ -1,0 +1,1 @@
+Artículo 16.- El bailarín tendrá derecho a dos días de descanso absoluto por semana, pero si, por circunstancias derivadas de la presentación de un espectáculo, se suprimen días de descanso, estos se repondrán en las siguientes semanas. Estos días podrán ser consecutivos o no, según programación de la Dirección.

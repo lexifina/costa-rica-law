@@ -1,0 +1,1 @@
+Artículo 11.- El lugar de trabajo será la sede de la Compañía Nacional de Danza y los teatros, salas de ensayo y otros lugares que indique la Dirección, con giras dentro y fuera del país como parte ordinaria de la labor, de conformidad con el plan anual de trabajo aprobado por la Junta Directiva del Teatro.

@@ -1,0 +1,1 @@
+Artículo 12.- Los roles escénicos que cada bailarín deba desempeñar queda a juicio del Director, atendiendo al criterio del coreógrafo. El Directos estará facultado para hacer los cambios en los roles que considere necesarios.

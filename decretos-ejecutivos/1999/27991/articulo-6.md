@@ -1,0 +1,3 @@
+Artículo 6°.- El personal administrativo será nombrado de acuerdo con las disposiciones vigentes para la Administración Pública.
+Los bailarines serán nombrados por medio de concursos por oposición, para los cuales se efectuarán audiciones al menos una vez al año, en las que deberá participar todo bailarín de la Compañía, además de los aspirantes a ingresar. Un jurado designado por la Junta Directiva del Teatro recomendado por el Consejo Asesor, de cual formará parte el Director de la Compañía, escogerá a los bailarines que formarán parte del elenco del año siguiente.
+Los maestros de danza y el asistente técnico serán designado por el Director.
