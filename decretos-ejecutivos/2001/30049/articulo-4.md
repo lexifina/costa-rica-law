@@ -1,0 +1,1 @@
+Artículo 4º—La comisión estipulada en el artículo 92 del Reglamento a la Ley de Loterías, analizará y recomienda las solicitudes que cumplan con los requisitos, para la aprobación en el seno de la Junta Directiva.

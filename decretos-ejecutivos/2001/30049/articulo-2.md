@@ -1,0 +1,1 @@
+Artículo 2º—Las organizaciones interesadas en Proyectos Específicos, deben retirar las solicitudes en el Departamento de Acción Social de la Junta y presentarlas con toda la documentación que se solicite, de conformidad con lo establecido en la Ley Nº 7997, el Reglamento a la Ley de Loterías y otras a juicio de la Comisión Institucional.

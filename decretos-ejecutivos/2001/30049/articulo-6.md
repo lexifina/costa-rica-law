@@ -1,0 +1,1 @@
+Artículo 6º—La liquidación de las donaciones por compra de equipo, así como los proyectos de infraestructura, deben ser presentadas ante el Departamento de Revisión y Control de la Junta de Protección Social, conforme lo establecido por ésta.
