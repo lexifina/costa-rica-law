@@ -2,43 +2,4 @@ ARTICULO 8.- Adición del artículo 14
 Adiciónase a la Ley de Sociedades Anónimas Laborales, No. 7407, un
 artículo 14. En consecuencia, se corre la numeración de los artículos
 subsiguientes. El texto dirá:
-"Artículo 14.- Los procesos de transferencia de servicios
-regulados por esta ley, observarán, en materia laboral, los
-siguientes principios:
-a) Cuando en la aplicación de la presente ley se
-establezcan procesos de transformación institucional,
-previamente deberán definirse los plazos y medios que aseguren
-la resolución oportuna de la pensión o jubilación de los
-trabajadores que tengan derecho a una u otra o bien a ambas.
-b) Se faculta a la Caja Costarricense de Seguro Social para
-celebrar, con las instituciones y los demás órganos de la
-Administración Pública, convenios conducentes a establecer un
-compromiso de pago a plazo de las contribuciones a los regímenes
-de invalidez, vejez y muerte, tanto a cargo de los trabajadores
-como de los patronos del sector público, en relación con
-trabajadores que, según se demuestre, han trabajado para una
-entidad descentralizada o un órgano del Poder Central, pero no
-han cotizado por causas ajenas a la voluntad del trabajador.
-c) En cuanto a los trabajadores que no hayan alcanzado el
-derecho de pensionarse o jubilarse, la sociedad anónima laboral
-deberá garantizar que las cotizaciones a los regímenes de
-seguridad social serán respetadas.
-d) Cuando, por la transferencia de servicios, se afecte a
-trabajadores por la supresión de puestos, la Administración
-deberá apoyar las acciones individuales y colectivas de las
-personas afectadas, a fin de compensarlas económicamente y
-apoyarlas mediante cursos de adiestramiento y capacitación, que
-correrán por cuenta de la Administración, para lograr la
-reinserción efectiva de estas personas en otras fuentes de
-trabajo del sector privado, en especial en las áreas
-económicamente débiles y deprimidas con tasas de desempleo
-relativamente más elevadas, según los criterios empleados por el
-Ministerio de Planificación y Política Económica, con base en
-información de la Dirección Nacional de Estadística y Censos. En
-todo caso, no podrán impulsarse acciones ni programas que
-incrementen, a largo plazo, la tasa neta de desempleo de la
-respectiva zona del país.
-e) Mientras el proceso esté en curso, no se aplicará la
-movilidad laboral forzosa ni inducida mediante procedimientos,
-acciones o artificios, de hecho o de derecho, que afecten los
-derechos adquiridos de los trabajadores."
+... ... ...
