@@ -1,0 +1,1 @@
+Artículo 13.-Juramentación de los miembros: Una vez constituida la nómina completa de nombramiento de la Secretaría Técnica, las personas designadas serán juramentadas por el Ministro de Trabajo y Seguridad Social.

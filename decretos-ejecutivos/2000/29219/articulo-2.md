@@ -1,0 +1,4 @@
+CAPÍTULO II
+Creación, integración, principios y objetivos
+Artículo 2°-Creación:
+Créase el Consejo Nacional de Intermediación de Empleo, como órgano de política superior; el cual estará constituido por los Sectores Trabajo y Seguridad Social y Educación y Formación Profesional, representados respectivamente por el Ministro(a) de Trabajo y Seguridad Social o su representante, quien lo presidirá; por el Ministro(a) de Educación Pública o su representante; la Ministra de la Condición de la Mujer o la Presidencia Ejecutiva del Instituto Nacional de las Mujeres o su representante; el Presidente(a) Ejecutivo(a) del Instituto Nacional de Aprendizaje o su representante; un representante del Consejo Nacional de Rectores; el sector patronal, representado por el Presidente(a) de la Unión de Cámaras y Asociaciones de la Empresa Privada o su representante y el sector laboral, que estará representado por una persona delegada de las organizaciones sindicales.
