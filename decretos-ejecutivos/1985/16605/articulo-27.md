@@ -1,0 +1,6 @@
+Artículo 27 .-Transporte acuático de turistas. Las empresas dedicadas a dicha actividad, tendrán a través del contrato, los siguientes beneficios fiscales:
+a) Exoneración de todo tributo y sobretasa, en la importación o compra local de naves acuáticas y sus avíos, destinados exclusivamente al transporte de turistas, para lo cual deberán contar con instalaciones propias, comunes, de servicio público o facilidades de atraque, embarque y desembarque de pasajeros.
+b) Exoneración de todo tributo y sobretasa, en la importación o compra local de los bienes indispensables para: la construcción, ampliación o remodelación de muelles y de otros lugares destinados al embarque o desembarque de turistas, la construcción y mantenimiento de marinas, balnearios y acuarios, para la atención del turismo.
+c) Exención total del impuesto sobre la Renta, sobre las utilidades no distribuidas, hasta por un período de doce años, contados a partir de la firma del respectivo contrato.
+Para los efectos de esta exención, se tendrán como no distribuidas, las utilidades repartidas a los socios, en acciones de la propia empresa que los paga.
+Ch) Depreciación acelerada de los bienes que por su uso y naturaleza se extingan con mayor rapidez, para lo cual se procederá conforme con lo establecido en el artículo 17, inciso e) .

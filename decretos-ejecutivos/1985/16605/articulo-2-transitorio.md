@@ -1,0 +1,2 @@
+Transitorio II.-Las agencias de viajes que a la fecha de vigencia de la Ley, estuvieren dedicadas al turismo receptivo y emisor, tienen derecho a solicitar el contrato, en cuanto a la actividad de turismo receptivo únicamente, siempre que separen administrativa y contablemente esta última actividad, de manera que funcione como una unidad independiente y cumpla con las demás disposiciones de la Ley y este Reglamento.
+Dado en la Presidencia de la República .-San José, al primer día del mes de octubre de mil novecientos ochenta y cinco.

@@ -1,0 +1,1 @@
+Artículo 8°- Notificado al Instituto el dictamen favorable de la Comisión referente a una solicitud de contrato, éste deberá tramitarlo dentro de los ocho días siguientes a la fecha en que recibió el mencionado dictamen.

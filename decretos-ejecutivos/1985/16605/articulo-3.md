@@ -1,0 +1,1 @@
+Artículo 3°-Los miembros de la Comisión, deberán ser juramentados por el Presidente de la República previo al inicio de sus funciones comprometiéndose a cumplir con eficiencia y plena responsabilidad las obligaciones que les asignan la Ley y este Reglamento.

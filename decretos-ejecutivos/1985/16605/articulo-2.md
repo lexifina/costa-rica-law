@@ -1,0 +1,4 @@
+CAPITULO II
+De la Comisión Reguladora de Turismo
+Artículo 2°-La Comisión integrada conforme con lo estipulado en el artículo 4° de la Ley será presidida por el representante del Instituto. Estos miembros serán nombrados por la Presidencia de la República por periodos de dos años, renovables por periodos iguales. Los representantes de las entidades públicas serán propuestos por los ministros respectivos y por el Presidente Ejecutivo del Instituto, quienes los elegirán de entre los funcionarios de alto nivel técnico y jerárquico con capacidad de decisión.
+Los representantes del sector privado serán escogidos de las ternas presentadas por las cámaras y asociaciones empresariales a nivel nacional, del sector turismo, a que se refiere el artículo 39 de la Ley, deberán acompañarse los respectivos currículums.

@@ -1,0 +1,2 @@
+Artículo 25.-Las tarifas de arrendamiento de los vehículos exonerados conforme con la Ley y este Reglamento, deben ser aprobadas por el Instituto a las empresas respectivas, lo mismo que cualquier cambio posterior que sufrieren.
+El Instituto está facultado para modificar dichas tarifas, cuando se aparten de los precios competitivos; dichas modificaciones comenzarán a regir a partir de la fecha en que sean notificadas a la empresa respectiva.

@@ -1,0 +1,1 @@
+Transitorio l.-Las empresas turísticas que a la fecha de vigencia de la Ley tuvieren contrato industrial, pueden solicitar a la Comisión, la suscripción del contrato turístico previo cumplimiento de los requisitos adicionales establecidos por la Ley y este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 4°-La Comisión tendrá su sede en el Instituto, el cual pondrá a su disposición los medios económicos, materiales, técnicos y humanos, necesarios para el adecuado cumplimiento de sus funciones. Los miembros de la Comisión devengarán dietas por cada sesión, por un monto de ochocientos colones (¢ 800,00) pudiendo modificarse cada año.

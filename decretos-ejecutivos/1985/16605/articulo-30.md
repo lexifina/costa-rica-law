@@ -1,0 +1,2 @@
+Artículo 30.-El Instituto, presentará al Ministerio de Industria, Energía y Minas anualmente un estudio sobre las necesidades de financiamiento del sector turismo, desglosado por actividades y regiones prioritarias de acuerdo con las metas propuestas en el Plan Nacional de Desarrollo Turístico y los planes operativos anuales para el sector.
+Con base en el estudio mencionado, solicitará al Banco Central de Costa Rica, establecer la fijación de intereses y montos de crédito para dicho sector conforme lo ordena el artículo 10 de la Ley.

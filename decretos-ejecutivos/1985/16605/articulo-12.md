@@ -1,0 +1,1 @@
+Artículo 12.-Una vez aprobada la solicitud del contrato por la Comisión, el Instituto y la empresa respectiva suscribirán el contrato, a través del cual se otorgarán a esta última los beneficios que procedan de conformidad con el artículo 7° de la Ley, para la correspondiente actividad.

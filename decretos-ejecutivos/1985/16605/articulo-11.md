@@ -1,0 +1,1 @@
+Artículo 11.-La Comisión contará con un plazo de treinta días para la aprobación de las solicitudes de contrato con todos estos a partir de la fecha de recibo de los documentos y el debido cumplimiento de los requisitos.
