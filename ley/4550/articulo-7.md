@@ -1,9 +1,9 @@
-Artículo sétimo.-a) Los técnicos contratados con fines especiales para
-prestar servicios en el país, que no sean de nacionalidad costarricense,
-podrán asimismo importar y exportar sus muebles y efectos en las
-condiciones acordadas para los funcionarios permantes y, cuando el plazo
-del contrato fuere de un año o más, podrán importar igualmente el vehículo
-de uso personal.
+Artículo sétimo.- a) Los técnicos contratados con fines especiales
+para prestar servicios en el país, que no sean de nacionalidad
+costarricense, podrán asimismo importar y exportar sus muebles y efectos en
+las condiciones acordadas para los funcionarios permantes y, cuando el
+plazo del contrato fuere de un año o más, podrán importar igualmente el
+vehículo de uso personal.
 b) Los técnicos de nacionalidad costarricense contratados para prestar
 servicios en relación con operaciones del Banco fuera de Costa Rica,
 tendrán derecho, a su regreso al país, a importar sus muebles y efectos

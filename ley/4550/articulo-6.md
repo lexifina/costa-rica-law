@@ -1,4 +1,4 @@
-Artículo sexto.-a) El personal permanente del Banco, que preste
+Artículo sexto.- a) El personal permanente del Banco, que preste
 servicios en el país y que no sea de nacionalidad costarricense, podrá
 importar, libre de derechos consulares, aduaneros y de otros gravámenes,
 prohibiciones y restricciones, en uno o varios embarques, sus muebles y
