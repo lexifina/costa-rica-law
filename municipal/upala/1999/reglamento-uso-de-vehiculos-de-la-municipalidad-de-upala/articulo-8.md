@@ -1,0 +1,1 @@
+Artículo 8º—Mejor aprovechamiento de los vehículos: La prestación de servicios de transporte debe organizarse de tal manera que en un mismo vehículo puedan viajar funcionarios que lleven el mismo rumbo, con el fin de aprovechar al máximo la prestación del servicio.
