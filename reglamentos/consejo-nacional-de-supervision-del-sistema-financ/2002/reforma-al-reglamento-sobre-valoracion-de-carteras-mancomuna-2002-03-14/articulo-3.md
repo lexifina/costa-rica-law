@@ -1,0 +1,1 @@
+III. Aclarar el Transitorio III del "Reglamento General sobre Sociedades Administradoras y Fondos de Inversión", de modo que se entienda que el plazo de un año con que contarán los fondos de corto plazo se refiere únicamente al cumplimiento de los requisitos de plazo de los valores que pueden conformar su cartera.
