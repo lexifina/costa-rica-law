@@ -1,1 +1,0 @@
-ARTICULO 82.- Cuando la resolución fuere sobre contribuciones de cualquier clase que sean, y el senado rehusare sancionarla se necesita el acuerdo de las tres cuartas partes del Congreso para su ratificación. Ratificada que sea, se observará en los demás lo prevenido en el artículo anterior.

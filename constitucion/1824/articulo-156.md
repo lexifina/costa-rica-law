@@ -1,1 +1,0 @@
-ARTICULO 156.- No podrá librarse esta orden sin que proceda justificación de que se ha cometido un delito que merezca pena más que correccional, y sin que resulte al menos por el dicho de un testigo quien es el delincuente.

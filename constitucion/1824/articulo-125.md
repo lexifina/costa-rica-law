@@ -1,1 +1,0 @@
-ARTICULO 125.- En caso que los informes sean necesarios para exigir la responsabilidad al Presidente, no podrán rehusarse por ningún motivo, ni reservarse los documentos después que se haya declarado haber lugar a la formación de causa.

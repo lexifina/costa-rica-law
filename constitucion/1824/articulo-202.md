@@ -1,1 +1,0 @@
-ARTICULO 202.- Acordada la reforma o adición, debe para ser válida y tenida por constitucional, aceptarse por la mayoría absoluta de los Estados con las dos terceras partes de la votación de sus Asambleas.

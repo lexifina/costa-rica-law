@@ -1,1 +1,0 @@
-ARTICULO 10.- Cada uno de los estados que la componen es libre e independiente en su gobierno y administración interior; y les corresponde todo el poder que por la constitución no estuviere conferido a las autoridades federales.

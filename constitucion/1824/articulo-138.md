@@ -1,1 +1,0 @@
-ARTICULO 138.- Conocerá originariamente con el arreglo a las leyes en las causas civiles de los ministros diplomáticos y consulares; y en las criminales de todos los funcionarios en que declara el senado según el art. 103 haber lugar a la formación de causa.

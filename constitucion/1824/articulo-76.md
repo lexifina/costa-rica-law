@@ -1,1 +1,0 @@
-ARTICULO 76.- Si se adoptare el proyecto, se extenderá por triplicado en forma de ley: se leerá en el Congreso; y firmados los tres originales por el presidente y dos secretarios se remitirá al senado.

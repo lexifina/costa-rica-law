@@ -1,1 +1,0 @@
-ARTICULO 157.- Pueden ser detenidos: 1º, el delincuente cuya fuga se tema con fundamento; 2º, el que sea encontrado en el acto de delinquir; y en este caso todos pueden aprenderle para llevarle al juez.

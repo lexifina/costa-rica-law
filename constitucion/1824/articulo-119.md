@@ -1,1 +1,0 @@
-ARTICULO 119.- Dirigirá toda la fuerza armada de la Federación; podrá reunir la cívica y disponer de ella cuando se halle en servicio activo de la República, y mandar en persona el ejercicio con aprobación del senado, en cuyo caso recaerá el Gobierno en el Vice-Presidente.

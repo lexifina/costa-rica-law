@@ -1,1 +1,0 @@
-ARTICULO 50.- En caso de que un mismo ciudadano obtenga dos o más elecciones, preferirá la que se haya efectuado con mayor número de votos populares, y siendo iguales se determinará por voluntad del electo.
