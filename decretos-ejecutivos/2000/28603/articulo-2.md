@@ -1,0 +1,2 @@
+Articulo 2°—Adiciónese un párrafo segundo al artículo 4° del Reglamento, el cual se leerá así:
+"Aquellas personas físicas o jurídicas que han participado en anteriores asignaciones de contingentes de exportación deberán cerciorarse que los montos solicitados se ajustan a lo señalado en el artículo 15 del presente Reglamento. Si una persona física o jurídica realiza una solicitud sin tomar en cuenta lo señalado en dicho articulo, COMEX procederá a realizar el ajuste necesario con el fin de dar cumplimiento a lo indicado en ese artículo".
