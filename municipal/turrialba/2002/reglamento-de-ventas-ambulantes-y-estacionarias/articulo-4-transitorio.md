@@ -1,0 +1,1 @@
+4º—Mientras la Ley de Patentes Municipales del Cantón de Turrialba no disponga lo contrario, se fija el pago de patentes en la suma de mil colones mensuales a los vendedores estacionarios y de quinientos colones mensuales a los vendedores ambulantes, ambos por adelantado.

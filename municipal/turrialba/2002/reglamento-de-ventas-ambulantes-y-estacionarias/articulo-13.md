@@ -1,0 +1,1 @@
+Artículo 13.—Únicamente se permitirá ejercer la actividad en los puestos, de los siguientes productos: frutas nacionales, hortalizas, verduras, golosinas, artesanía nacional, juguetes nacionales, periódicos y revistas, lotería y chances, helados, flores, alimentos rápidos con acatamiento de las órdenes sanitarias dadas por el Ministerio del ramo.

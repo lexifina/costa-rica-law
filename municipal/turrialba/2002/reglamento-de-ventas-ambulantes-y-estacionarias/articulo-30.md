@@ -1,0 +1,1 @@
+Artículo 30.—El no pago de impuestos de patentes en los términos fijados en la Ley y este Reglamento, generará multas del 2% por cada mes o fracción, de atraso, sin que pueda exceder del 24% del monto adeudado; conjuntamente con el tributo y la multa se calcularán intereses al 2% mensual.

@@ -1,0 +1,1 @@
+Artículo 17.—La ubicación de los puestos estacionarios será de un máximo de ocho por manzana, o sea dos puestos por cuadra, siempre y las condiciones lo permitan a juicio de la Municipalidad y del presente Reglamento

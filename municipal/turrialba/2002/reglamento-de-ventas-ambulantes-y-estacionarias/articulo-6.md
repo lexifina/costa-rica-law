@@ -1,0 +1,1 @@
+Artículo 6º—Se concederá únicamente una licencia para este tipo de actividad por familia. En caso de muerte o incapacidad permanente del concesionario, deberá solicitarse una nueva licencia dentro del mes del fallecimiento y tendrá prioridad el cónyuge sobreviviente o compañera(o), o algún hijo mayor, siempre y cuando reúnan las condiciones del artículo 4º.

@@ -1,0 +1,2 @@
+3º—Se extenderá una licencia hasta por seis meses a partir de la publicación del presente Reglamento, siempre y cuando hayan cumplido con los requisitos del mismo, que vencerá, automáticamente si a esa fecha el vendedor no tiene adquirido el vehículo expresamente diseñado para estos fines por el ICT.
+Durante estos seis meses el vendedor podrá usar su propio puesto o vehículo, debidamente pintado a rayas color naranja y blanco, de un ancho de veinte centímetros cada raya y de acuerdo a las dimensiones establecidas en el artículo 14 de este Reglamento.
