@@ -1,0 +1,1 @@
+Artículo 2º—La moratoria establecida lo será por un plazo de seis meses calendario contados a partir de la publicación del Decreto Ejecutivo Nº 30866-MP, con posibilidad de prórroga por períodos iguales o similares, de mantenerse las condiciones que han dado origen a la misma.
