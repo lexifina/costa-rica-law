@@ -1,0 +1,1 @@
+Artículo 144.-Los Ministros de Gobierno presentarán a la Asamblea Legislativa cada año, dentro de los primeros quince días del primer período de sesiones ordinarias, una memoria sobre los asuntos de su dependencia.

@@ -1,0 +1,3 @@
+Articulo 24.--Son inviolables los documentos privados y las comunicaciones escritas u orales de los habitantes de la República. Sin embargo, la ley fijará los casos en que los Tribunales de Justicia podrán ordenar el secuestro, registro o examen de documentos privados, cuando ello sea absolutamente indispensable para esclarecer asuntos sometidos a su conocimiento.
+Igualmente la ley fijará los casos en que los funcionarios competentes podrán revisar los libros de contabilidad y sus anexos, como medida indispensable para fines fiscales.
+La correspondencia que fuere sustraída, de cualquier clase que sea, no producirá efecto legal.

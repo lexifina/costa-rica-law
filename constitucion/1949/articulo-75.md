@@ -1,0 +1,1 @@
+Articulo 75.--El legislador podrá establecer excepciones a lo dispuesto en el presente Capítulo a favor de instituciones dedicadas exclusivamente a fines beneficencia pública y protección social. Esta disposición no comprende el principio de libertad de sindicalización.

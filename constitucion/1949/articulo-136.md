@@ -1,0 +1,1 @@
+Artículo 136.-EI Presidente y los Vicepresidentes de la República tomarán posesión de sus cargos el día ocho de mayo; y terminado el periodo constitucional cesarán por el mismo hecho en el ejercicio de los mismos.

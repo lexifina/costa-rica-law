@@ -1,0 +1,3 @@
+Artículo 117.--La Asamblea no podrá efectuar sus sesiones sin la concurrencia de dos tercios del total de sus miembros.
+Si en el día señalado fuere imposible iniciar las sesiones, o si abiertas no pudieren continuarse por falta de quórum, los miembros presentes conminarán a los ausentes, bajo las sanciones que establezca el Reglamento, para que concurran, y la Asamblea abrirá o continuará las sesiones cuando se reúna; número requerido.
+Las sesiones serán públicas salvo que por razones muy calificadas y de conveniencia general se acuerde que sean secretas por votación no menor de las, dos terceras partes de los Diputados presentes.

@@ -1,0 +1,1 @@
+Artículo 175.-Las Municipalidades dictarán sus presupuestos ordinarios extraordinarios, los cuales necesitarán, para entrar en vigencia, la aprobación la Contraloría General que fiscalizará su ejecución.

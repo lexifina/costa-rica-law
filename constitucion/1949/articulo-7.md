@@ -1,0 +1,2 @@
+Artículo 7°-- Ninguna autoridad puede celebrar pactos, tratados o convenios que se opongan a la soberanía e independencia de la República. Quien lo haga será juzgado por traición a la Patria.
+Cualquier tratado o convención que tramite el Poder Ejecutivo, referente a la integridad territorial o a la organización política del país, requerirá la aprobación de la Asamblea Legislativa, por votación no menor de las tres cuarta partes de la totalidad de sus miembros y la de los dos tercios de votos de una Asamblea Constituyente convocada al efecto.

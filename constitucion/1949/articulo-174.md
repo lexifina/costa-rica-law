@@ -1,0 +1,1 @@
+Artículo 174.-La ley indicará en qué casos necesitarán las Municipalidades autorización legislativa para contratar empréstitos, dar en garantía sus bienes o rentas, o enajenar bienes muebles o inmuebles.

@@ -1,0 +1,1 @@
+Artículo 88.--Para la discusión y aprobación de proyectos de ley relativos a las materias puestas bajo la competencia de la Universidad de Costa Rica, o relacionadas directamente con ellas, la Asamblea Legislativa deberá oír previamente al Consejo Universitario. .

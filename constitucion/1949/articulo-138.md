@@ -1,0 +1,6 @@
+Artículo 138.-El Presidente y los Vicepresidentes serán elegidos simultáneamente y por una mayoría de votos que exceda del cuarenta por ciento del número total de sufragios válidamente emitidos.
+Los candidatos a Presidente y Vicepresidentes de un partido, deben figurar para su elección en una misma nómina, con exclusión de cualquier otro funcionario a elegir.
+Si ninguna de las nóminas alcanzare la indicada mayoría, se practicará una segunda elección popular el primer domingo de abril del mismo año entre las dos nóminas que hubieran recibido más votos, quedando elegidos los que figuren en la que obtenga el mayor número de sufragios.
+Si en cualquiera de las elecciones dos nóminas resultaren con igual número de sufragios suficientes, se tendrá por elegido para Presidente al candidato de mayor edad, y para Vicepresidentes a los respectivos candidatos de la misma nómina.
+No pueden renunciar la candidatura para la Presidencia o Vicepresidencias los ciudadanos incluidos en una nómina ya inscrita conforme a la ley, ni tampoco podrán abstenerse de figurar en la segunda elección los candidatos de las dos nóminas que hubieran obtenido mayor número de votos en la primera. (*)
+(*) Ver artículos transitorios.

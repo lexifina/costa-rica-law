@@ -1,0 +1,1 @@
+Artículo 6°-- EI Estado ejerce la soberanía completa y exclusiva en el espacio aéreo de su territorio y en sus aguas territoriales y plataforma continente, de acuerdo con los principios de Derecho Internacional y con los tratados vigentes.

@@ -1,0 +1,1 @@
+Artículo 17.-- La pérdida de la calidad de costarricense no trasciende al cónyuge ni a los hijos. La adquisición de la nacionalidad trasciende a los hijos menores, conforme a la reglamentación que establezca la ley.

@@ -1,0 +1,2 @@
+Artículo 45.-- La propiedad es inviolable; a nadie puede privarse de la suya si no es por interés público legalmente comprobado, previa indemnización conforme a la ley. En caso de guerra o conmoción interior, no es indispensable que la indemnización sea previa. Sin embargo, el pago correspondiente se hará a más tardar dos años después de concluido el estado de emergencia.
+Por motivos de necesidad pública podrá la Asamblea Legislativa, mediante el voto de los dos tercios de la totalidad de sus miembros, imponer a la propiedad limitaciones de interés social.

@@ -1,0 +1,1 @@
+Artículo 55.--La protección especial de la madre y del menor estará a cargo de una institución autónoma denominada Patronato Nacional de la Infancia, con la colaboración de las otras instituciones del Estado.

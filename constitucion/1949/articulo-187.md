@@ -1,0 +1,2 @@
+Artículo 187.-Todo gasto a cargo del Tesoro Nacional que no se refiera a sueldos del personal permanente de la Administración Pública consignado en el presupuesto, deberá ser publicado en el Diario Oficial.
+Quedan exceptuados, de la formalidad de publicación aquellos gastos que por circunstancias muy especiales, considere el Consejo de Gobierno que no deben publicarse, pero en este caso lo informará, confidencial e inmediatamente. la Asamblea Legislativa y a la Contraloría.
