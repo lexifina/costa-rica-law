@@ -1,0 +1,1 @@
+Artículo 15. Los postulantes que, de conformidad con las normas anteriores, quedaren improbados en una o varias disciplinas, tendrán derecho a postularse, por una sola vez, en la convocatoria inmediata siguiente que se administre, según lo dispuesto en los artículos 18 y 19 siguientes.

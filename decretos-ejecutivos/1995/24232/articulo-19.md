@@ -1,0 +1,1 @@
+Artículo 19. La segunda convocatoria se realizará en las fechas que al efecto se definan entre las últimas tres semanas del mes de marzo de cada año. En esta convocatoria sólo podrán postularse quienes hubieren aprobado su último año en las pruebas de aplazados del sistema formal regular y los que se postulen por segunda vez por haber improbado en la ocasión anterior.

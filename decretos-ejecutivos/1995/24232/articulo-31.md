@@ -1,0 +1,1 @@
+Artículo 31. Los postulantes tendrán derecho a revisar la hoja de respuestas o el examen calificado y si estuvieren disconformes, podrán plantear la apelación que juzguen pertinente para ante la Comisión Nacional de Bachillerato.

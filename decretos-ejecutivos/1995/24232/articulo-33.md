@@ -1,0 +1,1 @@
+Artículo 33. El Director de la Institución remitirá a la Comisión Nacional de Bachillerato, dentro de las veinticuatro horas siguientes al vencimiento del plazo para interponer apelaciones, la totalidad de las recibidas, por la vía más rápida posible y sin perjuicio de la utilización de medios electrónicos.

@@ -1,0 +1,1 @@
+Artículo 24. Los Delegados Ejecutivos y los Delegados Especialistas serán educadores activos o pensionados con la suficiente solvencia moral y profesional para el adecuado cumplimiento de sus funciones.

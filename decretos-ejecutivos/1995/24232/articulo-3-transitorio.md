@@ -1,0 +1,1 @@
+III. Para las convocatorias de noviembre de 1995 y marzo de 1996, queda autorizado el Ministerio de Educación Pública para que adopte y ejecute las disposiciones técnicas y administrativas necesarias, según se requiera para las diversas ramas y modalidades del sistema educativo nacional, para una adecuada transición del temario diferenciado al temario único.

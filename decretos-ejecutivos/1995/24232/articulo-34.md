@@ -1,0 +1,1 @@
+Artículo 34. La Comisión Nacional de Bachillerato dictará la resolución final dentro de los tres días siguientes a su recibo, plazo que, en casos complejos, se extenderá por otro igual. A los efectos de dictar su resolución la Comisión Nacional podrá hacerse asesorar por los especialistas que estime conveniente.

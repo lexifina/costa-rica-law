@@ -1,0 +1,1 @@
+Artículo 43. Si durante el desarrollo del examen se sorprendiere in fraganti a uno o varios postulantes en la comisión de fraude, se suspenderá de inmediato el desarrollo del examen a él o a los infractores, precediéndose a levantar un acta suscinta del hecho, que será firmada por el Delegado Ejecutivo y por el Delegado Especialista.

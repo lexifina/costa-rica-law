@@ -1,0 +1,1 @@
+Artículo 40. Los estudiantes que hicieren su solicitud conforme a las disposiciones de los artículos 8 y 9 anteriores, y que al concluir el año escolar quedaren aplazados, automáticamente serán empadronados para la convocatoria de marzo, al igual que los postulantes que improbaren una o varias disciplinas en la primera convocatoria.

@@ -1,0 +1,1 @@
+Artículo 9. En la solicitud a que se refiere el artículo anterior, el postulante deberá expresar en cuál disciplina científica y en cuál idioma extranjero va a rendir su examen de Bachillerato. Esta solicitud deberá ser entregada a la administración institucional a más tardar el último día hábil del mes de marzo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 11. El promedio general a que se refiere el artículo anterior tendrá un valor equivalente al cuarenta por ciento y la calificación del respectivo examen de Bachillerato un valor equivalente al sesenta por ciento.

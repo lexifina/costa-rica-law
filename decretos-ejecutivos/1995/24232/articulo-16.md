@@ -1,0 +1,1 @@
+Artículo 16. Los postulantes que, por segunda vez, quedaren improbados en una o varias disciplinas, podrán rendir los exámenes correspondientes en alguno de los sistemas abiertos que administra el Ministerio de Educación Pública. En este caso, se tendrán por aprobadas las disciplinas que así lo hubieren sido conforme a las normas anteriores.

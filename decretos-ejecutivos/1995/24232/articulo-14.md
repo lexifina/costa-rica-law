@@ -1,0 +1,1 @@
+Artículo 14. Los postulantes que aprobaren la totalidad de exámenes de conformidad con el artículo anterior, se harán acreedores al título de Bachiller en Educación Media, el que se hará acompañar de la mención Bachiller con Excelencia cuando hubiere obtenido una calificación final igual o superior a ochenta en cada uno de los exámenes.

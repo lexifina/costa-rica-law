@@ -1,0 +1,1 @@
+Artículo 32. La correspondiente apelación deberá interponerse dentro de los tres días hábiles siguientes a la entrega de resultados, dirigida a la Comisión Nacional de Bachillerato, con expreso señalamiento de los aspectos que se objetan y debidamente razonada y fundada. La apelación se entregará al Director de la Institución.
