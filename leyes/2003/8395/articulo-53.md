@@ -1,0 +1,1 @@
+Artículo 53.—Delito. Será reprimido con prisión de tres meses a dos años quien preste alguno de los servicios regulados en esta Ley, pese a que su autorización, o la de la empresa que representa, esté suspendida o haya sido cancelada.

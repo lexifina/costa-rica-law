@@ -1,0 +1,4 @@
+Artículo 36.—Autorización. Con el fin de ser autorizadas para ejercer la investigación privada, las personas físicas o jurídicas no cumplirán los requisitos dispuestos en el inciso e) del artículo 13 de la presente Ley. Las personas físicas deberán cumplir los requisitos indicados en los incisos a), d) y e) del artículo 14, así como las siguientes condiciones:
+a) Ser bachiller en Educación Secundaria o, si no ha alcanzado ese grado, demostrar idoneidad en el campo de la investigación privada y haber aprobado el tercer ciclo de educación diversificada.
+b) Aprobar el curso que, para esta actividad, imparta la Escuela Nacional de Policía o cualquier otra entidad autorizada. El costo del curso correrá a cargo de la persona física o jurídica que preste el servicio.
+Cumplidos los requisitos, la Dirección de los Servicios de Seguridad Privados extenderá un carné que tendrá vigencia de dos años al detective privado para su identificación en el desempeño de sus funciones.

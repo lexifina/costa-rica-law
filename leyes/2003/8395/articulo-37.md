@@ -1,0 +1,2 @@
+Artículo 37.—Obligación de informar sobre la comisión de
+hechos delictivos. Las personas físicas o jurídicas autorizadas para desempeñarse como investigadores privados, deberán comunicar inmediatamente a la autoridad judicial correspondiente la comisión de hechos delictivos perseguibles de oficio, que lleguen a conocer en el desempeño de sus funciones. Asimismo, comunicarán el resultado de sus pesquisas sobre estos cuando dicha autoridad lo requiera.

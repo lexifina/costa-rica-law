@@ -1,0 +1,1 @@
+Artículo 50.—Suspensión agravada. Será sancionada con suspensión de la autorización por seis meses, la persona física o jurídica que incumpla lo dispuesto en el inciso c) del artículo 16, así como lo estipulado en el inciso e) del artículo 17, ambos de esta Ley.

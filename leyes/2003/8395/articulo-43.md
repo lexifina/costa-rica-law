@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Seguridad patrimonial
+Artículo 43.—Objeto. Toda persona física o jurídica podrá tener su propio servicio de seguridad para proteger sus bienes muebles y los bienes inmuebles contenidos en ellos, así como para transportar sus valores. Las personas físicas y jurídicas que tengan más de cinco vigilantes para la protección de sus bienes muebles y de los bienes inmuebles contenidos en ellos, estarán sujetas a las disposiciones de la presente Ley. Las personas físicas o jurídicas deberán cumplir los requisitos establecidos en los incisos a), d) y g) del artículo 13 y en los incisos a), c), d) y e) del artículo 14, ambos de esta Ley, con el fin de ser autorizadas para formar servicios particulares de protección patrimonial y disponer de ellos.

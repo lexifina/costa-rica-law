@@ -1,0 +1,5 @@
+Artículo 7º—Competencia registral. Para efectos del artículo 2º de esta Ley, la Dirección de los Servicios de Seguridad Privados llevará registros de lo siguiente:
+a) Las personas físicas o jurídicas reguladas en el artículo 2º de esta Ley.
+b) El personal de seguridad y administrativo de las entidades mencionadas. Este registro comprenderá los datos personales, una fotografía reciente, las huellas dactilares, los antecedentes y el detalle de la capacitación de que dispone para ejecutar las labores; con este fin, las entidades obligadas deberán comunicar toda modificación de la nómina, por admisión o exclusión de personal, en un plazo máximo de treinta días hábiles.
+c) La ubicación de las instalaciones y el inventario del armamento, las municiones y demás equipo requerido para las labores de seguridad establecidas en el Reglamento de esta Ley. Esta información deberá actualizarse semestralmente; para ello, la entidad obligada remitirá a la Dirección el respectivo informe actualizado.
+d) Los programas de capacitación y sus contenidos.

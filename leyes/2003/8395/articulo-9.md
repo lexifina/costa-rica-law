@@ -1,0 +1,1 @@
+Artículo 9º—Subsanación. Cuando la Dirección determine que la solicitud de autorización presentada no cumple los requisitos estipulados en la presente Ley, prevendrá al solicitante para que subsane las anomalías en el plazo perentorio de treinta días hábiles.

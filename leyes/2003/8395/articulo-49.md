@@ -1,0 +1,1 @@
+Artículo 49.—Suspensión. Será sancionada con suspensión de la autorización por tres meses, la persona física o jurídica que incumpla lo dispuesto en el inciso e) del artículo 16, así como lo estipulado en los incisos a), d) y f) del artículo 17, ambos de esta Ley.

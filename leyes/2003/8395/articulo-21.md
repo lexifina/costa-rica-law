@@ -1,0 +1,3 @@
+Artículo 21.—Inspección de instalaciones. Antes de autorizar a las personas físicas o jurídicas para que presten servicios de seguridad privados, la Dirección de los Servicios de Seguridad Privados deberá inspeccionarles las instalaciones u oficinas.
+Una vez al año, como mínimo, la Dirección realizará inspecciones para determinar el cumplimiento de las labores, los requisitos y las demás obligaciones previstas en esta Ley, por parte de las personas físicas o jurídicas autorizadas.
+Para estos fines, las personas físicas o jurídicas sujetas a la presente Ley deberán brindar toda la información y colaboración a los agentes de la Dirección.
