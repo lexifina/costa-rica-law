@@ -1,0 +1,1 @@
+Artículo 37.-Es obligación del chofer o funcionario que sufriere un accidente, reportado a la oficina del Ejecutivo Municipal, valiéndose del medio de comunicación más rápido. Luego deberá apersonarse a tal oficina para presentar el reporte respectivo.

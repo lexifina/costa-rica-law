@@ -1,0 +1,1 @@
+Artículo 35.-Cuando un vehículo de la Municipalidad sufra un accidente el chofer no podrá mover el vehículo hasta tanto la autoridad de tránsito no emita el parte correspondiente. El que incumpla esta disposición se hará acreedor a las sanciones correspondientes. En caso de lugares apartados se recurrirá a la Guardia Rural.

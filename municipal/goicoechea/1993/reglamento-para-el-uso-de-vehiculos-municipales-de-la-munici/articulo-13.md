@@ -1,0 +1,3 @@
+Artículo 13.-Ningún vehículo podrá usarse en funciones diferentes a las que competen a la Municipalidad. Una vez cumplidas las labores de que se trate deberá permanecer en el estacionamiento o lugar al cual está asignado.
+Cuando el vehículo -por circunstancias muy especiales- debe ser guardado fuera del edificio o plantel respectivo, tal hecho deberá ser autorizado en forma escrita por el Ejecutivo Municipal, quien en forma solidaria asumirá los eventuales daños y perjuicios que se le causen al vehículo o a terceras personas y sus bienes, sin perjuicio de las sanciones administrativas que se le puedan imputar.
+La violación de este artículo se considerará falta grave a las obligaciones cargo.

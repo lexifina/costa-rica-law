@@ -1,0 +1,1 @@
+Artículo 43.-Toda modificación al presente Reglamento debe ser aprobada por el Concejo Municipal y posteriormente por la Contraloría General de la República, la cual ordenará su publicación en "La Gaceta".

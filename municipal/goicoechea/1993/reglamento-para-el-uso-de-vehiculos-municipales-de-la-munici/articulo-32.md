@@ -1,0 +1,1 @@
+Artículo 32°.- La Municipalidad cancelará inmediatamente por tiempo indefinido el permiso interno para conducir vehículos de la Institución, a aquellos funcionarios que por dolo o culpa, ocasionen un accidente grave de tránsito.

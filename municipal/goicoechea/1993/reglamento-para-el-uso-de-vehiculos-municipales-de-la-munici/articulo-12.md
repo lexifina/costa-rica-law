@@ -1,0 +1,1 @@
+Artículo 12.-Es terminantemente prohibido la utilización de vehículos de la Institución para aprender a conducir; el funcionario que dé su consentimiento o que teniendo conocimiento del hecho no lo reporta al Ejecutivo Municipal, se hará acreedor a las sanciones disciplinarias correspondientes.

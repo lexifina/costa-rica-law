@@ -1,0 +1,1 @@
+Artículo 38.-En caso de ocurrir un accidente en el que resulten lesionados particulares no autorizados previamente a viajar en vehículos de la Institución, el responsable del servicio se hará acreedor a sanciones que pueden llegar hasta el despido, dependiendo de la gravedad de las lesiones.

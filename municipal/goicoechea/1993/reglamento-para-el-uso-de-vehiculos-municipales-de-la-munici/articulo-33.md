@@ -1,0 +1,1 @@
+Artículo 33.-:-EI chofer o funcionario que bajo los efectos del alcohol o drogas alucinógenas, ocasionen un accidente de tránsito conduciendo un vehículo de la Municipalidad, deberá pagar los daños causados de conformidad con el artículo 31 de este Reglamento y será despedido sin responsabilidad patronal.

@@ -1,0 +1,3 @@
+CAPITULO III
+Responsabilidad en caso de accidente
+Artículo 31.-El chofer o funcionario autorizado que, al conducir un vehículo, se le impute responsabilidad. en un accidente de tránsito a título de dolo, culpa o inobservancia de las disposiciones de tránsito, deberá pagar el monto del deducible de acuerdo con la póliza del Instituto Nacional de Seguros, sin perjuicio de las sanciones estipuladas en el presente Reglamento. Para tal efecto, deberá mediar resolución de la autoridad judicial correspondiente, que establezca la responsabilidad del caso sobre el funcionario de la Municipalidad de Goicoechea. Si el valor de las reparaciones es menor que el deducible, el funcionario solo pagará las reparaciones.
