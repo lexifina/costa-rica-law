@@ -1,0 +1,1 @@
+Artículo 31.—Otros acuerdos. Los acuerdos que no sean declarados firmes con base en lo estipulado en este Reglamento, quedarán firmes al aprobarse el acta correspondiente, a menos que se le interponga y prospere el recurso de revisión conforme lo que dispone el artículo siguiente.

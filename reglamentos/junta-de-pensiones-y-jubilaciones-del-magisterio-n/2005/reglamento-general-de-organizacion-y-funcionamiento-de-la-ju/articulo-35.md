@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De las comisiones permanentes y especiales
+Artículo 35.—De su constitución y sus informes. Cuando algún asunto, por su complejidad e importancia no pueda estudiarse o decidirse en sesión ordinaria del plenario, la Junta Directiva lo trasladará a la comisión permanente o especial que se designe. Para el caso de las comisiones especiales, deberá necesariamente fijarse el término dentro del cual deberá presentar el informe a partir de la fecha en que se le entregue el expediente respectivo o la documentación requerida, el cual podrá ser prorrogado por la Junta Directiva por circunstancias especiales.

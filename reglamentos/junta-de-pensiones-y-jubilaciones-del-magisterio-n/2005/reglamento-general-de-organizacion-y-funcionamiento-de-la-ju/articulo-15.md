@@ -1,0 +1,5 @@
+Artículo 15.—Del procedimiento para la elección del Directorio. Para la elección del Directorio en la primera sesión del año, la votación, será secreta y por puesto, mediante boletas en las que cada Director escribirá el nombre de su candidato, y la presidirá AD-HOC el Director de mayor edad.
+El escrutinio lo practicará el Director Ejecutivo en asocio con el Auditor de la institución; se declararán electos para los cargos indicados, los candidatos que obtengan mayoría simple de los presentes.
+En los casos de empate se realizará una nueva elección entre los candidatos que hayan obtenido el mayor número de votos, de persistir el empate, la elección se definirá mediante un mecanismo aleatorio, escogido por la presidencia Ad-Hoc.
+Igual procedimiento se observará para las elecciones de Directorio, que se realicen en las demás sesiones, las que presidirá su titular, salvo que se trate de este cargo.
+Los acuerdos que se deriven de estas elecciones carecerán de los recursos previstos en el presente Reglamento y en la Ley General de la Administración Pública.

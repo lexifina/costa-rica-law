@@ -1,0 +1,2 @@
+Artículo 20.—De la asistencia a sesiones. Asistirán en forma el Director Ejecutivo, el Auditor Interno y un asesor del Departamento Legal y con carácter excepcional otros funcionarios o asesores previamente convocados por Junta Directiva, concediéndoles el derecho de participar en las deliberaciones con voz pero sin voto.
+De igual forma, cuando así lo estimen conveniente, estos participantes, podrán solicitar que conste en el acta su intervención.

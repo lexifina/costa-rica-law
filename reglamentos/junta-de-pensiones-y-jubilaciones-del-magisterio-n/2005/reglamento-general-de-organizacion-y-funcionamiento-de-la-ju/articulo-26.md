@@ -1,0 +1,1 @@
+Artículo 26.—De los documentos. Con el propósito de facilitar los debates o discusiones en el curso de las sesiones de plenario y comisiones y a fin de procurar analizar y resolver todos los puntos del orden del día, la Dirección Ejecutiva deberá presentar todos los antecedentes y documentos relativos a aquellos.

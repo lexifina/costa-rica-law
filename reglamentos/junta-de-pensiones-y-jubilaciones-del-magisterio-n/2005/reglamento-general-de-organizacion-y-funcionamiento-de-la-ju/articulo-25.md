@@ -1,0 +1,1 @@
+Artículo 25.—Del lugar de sesiones. El Presidente de la Junta Directiva podrá convocar a sesiones de la Junta Directiva en lugares distintos del domicilio legal de la Junta, con el objeto que los Directores puedan conocer los diferentes asuntos que le conciernen.

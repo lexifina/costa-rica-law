@@ -1,0 +1,2 @@
+Artículo 38.—De la delegación y el debate. Por votación conforme los términos de este reglamento, podrá el plenario delegar en las comisiones permanentes asuntos propios de su competencia, siempre y cuando se encuentren en el orden del día y no hayan sido aprobados.
+Los mismos términos desarrollados por este reglamento para el debate en plenario, será utilizado para las comisiones permanentes y especiales.

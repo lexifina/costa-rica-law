@@ -1,0 +1,1 @@
+Artículo 12.—Del presidente. En caso de ausencia o de enfermedad y en general cuando concurra alguna causa justificada, el presidente de la Junta Directiva será sustituido por el vicepresidente en el ejercicio de sus atribuciones y deberes. Cuando se encuentren ausentes el presidente y el vicepresidente, la Presidencia será asumida por el primer vocal o subsiguientes.

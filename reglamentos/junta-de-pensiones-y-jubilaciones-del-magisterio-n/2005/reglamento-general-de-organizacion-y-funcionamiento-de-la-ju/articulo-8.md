@@ -1,0 +1,1 @@
+Artículo 8º—Participación en instituciones del Magisterio Nacional. De igual forma, le compete participar en las juntas directivas de las instituciones magisteriales donde la Junta tenga participación accionaria, o sea la Operadora Vida Plena O.P.C., y la Corporación de Servicios Múltiples del Magisterio Nacional, así como cualquier otra que en el futuro se llegue a crear.

@@ -1,0 +1,1 @@
+Artículo 29.—Del voto y sus reservas. Los miembros de la Junta Directiva podrán hacer constar en el acta su voto a favor o en contrario al acuerdo adoptado y los motivos que los justifiquen, quedando así exentos de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.

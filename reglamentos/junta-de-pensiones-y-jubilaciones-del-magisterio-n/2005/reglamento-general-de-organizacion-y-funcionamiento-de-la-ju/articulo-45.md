@@ -1,0 +1,1 @@
+Artículo 45.—Póliza de fidelidad. Los Directores de la Junta, el Director Ejecutivo, los jefes de los departamentos Contable-Financiero y Auditoría Interna, al asumir responsabilidades, deberán rendir con recursos propios, una caución mediante una póliza de fidelidad contratada con el Instituto Nacional de Seguros.
