@@ -1,0 +1,1 @@
+Artículo 2°—La Tesorería cantonal de Enseñanza Primaria abrirá cuenta especial á cada uno de los distritos escolares acreditándoles con los ingresos y debitándoles con los giros ú órdenes de pago que contra ella expidan los Presidentes de las respectivas Juntas de Educación.
