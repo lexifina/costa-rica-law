@@ -1,0 +1,1 @@
+Artículo 51.—La Junta Directiva del Comité Cantonal determinará, las zonas donde existirán comités comunales, estos durarán en vigencia un periodo de dos años y su nombramiento se llevará a cabo en los tres primeros meses del año, según lo disponga el Comité Cantonal.

@@ -1,0 +1,1 @@
+Artículo 2º—El Comité Cantonal de Deportes y Recreación de Garabito, es un organismo adscrito a la municipalidad de Garabito, con personería jurídica únicamente rara el cumplimiento de los fines que la ley y sus reglamentos le otorguen.

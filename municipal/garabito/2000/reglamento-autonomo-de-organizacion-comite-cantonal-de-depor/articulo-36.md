@@ -1,0 +1,2 @@
+Artículo 36.—De las resoluciones: las resoluciones que tome el Comité Cantonal en las sesiones, se dividirán en: firmes y ordinarias. Son firmes todos aquellos que su implementación se realice de manera inmediata sin perjuicio de alguna parte y que así conste en actas y aquellas resoluciones ordinarias ratificadas por medio de la aprobación del acta en la sesión siguiente. Son resoluciones ordinarias todas las demás.
+Todas las resoluciones deben ser comunicadas por la Secretaría del Comité Cantonal a los interesados.

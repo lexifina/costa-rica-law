@@ -1,0 +1,1 @@
+Artículo 30.—El quórum para sesionar está integrado por la mitad más uno de los miembros del órgano. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este reglamento u otra norma conexa señala un mayor número de votos, en caso de empate en una votación, el presidente tendrá voto calificado.

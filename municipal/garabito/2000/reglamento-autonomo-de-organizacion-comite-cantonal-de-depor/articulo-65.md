@@ -1,0 +1,1 @@
+Artículo 65.—Otras obligaciones y facultades del Comité Cantonal serán determinadas por Comité Cantonal siempre que no contradigan este reglamento, las leyes o decretos vigentes, relacionados con esta materia.

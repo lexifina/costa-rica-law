@@ -1,0 +1,1 @@
+Artículo 14.—La Junta Directiva estará integrada por cinco residentes en el cantón y en la siguiente forma: dos miembros de nombramiento directo del Concejo Municipal; dos miembros de nombramiento de las organizaciones deportivas y recreativas del cantón, de una asamblea para tal efecto; y uno de las ternas que envíen las organizaciones comunales restantes del cantón.

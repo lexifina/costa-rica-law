@@ -1,0 +1,1 @@
+Artículo 27.—En la primera sesión mediante votación secreta se designarán los cargos de presidente, vicepresidente, secretario de actas y correspondencia, tesorero y vocal, quienes desempeñarán el cargo en forma ad-honórem, por un período de dos años, pudiendo ser reelectos, salvo en el supuesto del numeral 11 de este reglamente in fine.

@@ -1,0 +1,1 @@
+Artículo 33.—Todo miembro en forma escrita deberá comunicar cuando proceda, las razones de su inasistencia a más tardar dentro de las veinticuatro horas siguientes a su ausencia, caso contrario será catalogada la inasistencia como injustificada y sancionable.

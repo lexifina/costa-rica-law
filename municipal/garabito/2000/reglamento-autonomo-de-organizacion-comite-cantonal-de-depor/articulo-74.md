@@ -1,0 +1,1 @@
+Artículo 74.—Las instalaciones deportivas serán clasificadas por el Comité Cantonal en categorías de acuerdo con la infraestructura de estas, también ordenará el uso de estas por los usuarios, de acuerdo con el tipo de actividad que realicen. Con sustento en el ordenamiento se definirán las tarifas por derecho de uso de instalaciones y el período que abarca dicha cuota.

@@ -1,0 +1,1 @@
+Artículo 39.—El proyecto de acta de cada sesión deberá entregarse a los miembros del Comité Cantonal o comités comunales según se trate, a mas tardar veinticuatro horas antes de la sesión en que serán discutidas y aprobadas.
