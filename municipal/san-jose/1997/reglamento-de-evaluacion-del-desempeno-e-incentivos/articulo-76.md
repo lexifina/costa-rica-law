@@ -1,2 +1,3 @@
-Artículo 76.-De la verificación de las visitas
-Para la verificación de las visitas a los contribuyentes, la Jefatura realizará llamadas telefónicas al azar, para determinar la certeza de la Información que el Agente presente, además para establecer por otra vía, la factibilidad del sistema implementado, recogiendo sugerencias, quejas, opiniones, etc.
+Artículo 76.-De Visitas a los Contribuyentes.
+Los Agentes de Cuenta deberán cumplir con un mínimo de veinticinco visitas a los contribuyentes dentro de cada trimestre, las cuales deberá ser contempladas dentro del Plan de Trabajo en el detalle de estrategias de visita. Las visitas programadas por los Agentes en su Plan de Trabajo pueden ser negociadas con la Jefatura del Departamento atendiendo circunstancias propias del trimestre en cobro.
+(Así adicionado mediante sesión N° 131 del 30 de mayo del 2000)

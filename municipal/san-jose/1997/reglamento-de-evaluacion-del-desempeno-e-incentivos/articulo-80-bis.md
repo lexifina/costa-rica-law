@@ -1,0 +1,5 @@
+Artículo 80 bis de la responsabilidad de los agentes en la prescripción de los tributos.
+Al tenor de lo que establece el Código Municipal en su artículo 73, los agentes deberán mantener un control estricto de sus cuentas y deberán en forma oportuna notificar a los contribuyentes cuyas cuentas estén en peligro de prescripción. Las cuentas que estén en peligro de prescripción y que no haya sido posible localizarlas, deberán ser enviadas para el respectivo cobro.
+En los casos de cuenta en que se haya agotado la gestión de localización tanto interna como externa y aún no haya sido posible su localización, éstas deberán ser reportadas a la Jefatura de Departamento para publicación en el Diario Oficial La Gaceta.
+A efecto de sentar las responsabilidades establecidas en el artículo 73 del Código Municipal el Agente de Cuenta deberá abrírsele un procedimiento administrativo, dicho proceso será responsabilidad del Departamento de Cobranza, que determine el grado de responsabilidad en cuanto a una cuenta prescrita partiendo de la fecha en que le fue entregada la cuenta (s).
+(Así adicionado mediante sesión N° 131 del 30 de mayo del 2000)

@@ -21,6 +21,10 @@ Porcentaje de cuentas al día porcentaje del beneficio
 96.1 al 97 25.5
 97.1 al 98 27.0
 98.1 al 99 28.5
-99.1 al 100 30.0
+99.1al 100 30.0
+(*)Se introducen los arreglos de pago y pago fraccionados como una gestión de cobro válida para efectos del incentivo.
+· Todo arreglo de pago en Servicios Urbanos y Bienes Inmuebles se conocerá por un periodo de seis meses después de haberse formalizado. Igualmente los pagos fraccionados en patentes serán reconocidos por un periodo de treinta días naturales (30) después de haberse formalizado. Para que esto tenga validez en el momento de la evaluación el arreglo y/o pago fraccionado tiene que estar al día en la cuota correspondiente al cierre del trimestre que se evalúa.
+· Los arreglos de pago y pagos fraccionados autorizados en plazos mayores a los estipulados por la Jefatura o la Dirección Financiera según corresponda serán considerados como una gestión válida para efectos de la evaluación trimestral e igualmente tienen que estar al día con la cuota correspondiente al cierre del trimestre evaluado.
+(*) (Así adicionado el párrafo anterior mediante sesión N° 131 del 30 de mayo del 2000)
 Acuerdo firme N° 20, artículo VI, sesión ordinaria 483 del 24 de setiembre de 1997.
 San José, 22 de octubre de 1997.
