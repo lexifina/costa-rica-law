@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE SARAPIQUÍ
+REGLAMENTO DE KARAOKES, DISCOMÓVILES, MÚSICA
+EN VIVO Y SIMILARES
+Artículo 1º—Objetivo: El cantón de Sarapiquí ha experimentado en los últimos años un crecimiento acelerado de las actividades comerciales, entre las que se destacan las de diversión en bares y salones. Esta situación ha traído consigo una actividad que a pesar de su antigüedad en el medio es novedosa en el comercio: Los denominados Karaokes, instalados en cantinas, restaurantes, salones de bailes y otros centros de diversión. La actividad no ha sido regulada por la Municipalidad, por lo que en los lugares que ha proliferado, realizan la misma sin ningún control de horario ni límite de sonoridad, lo que ocasiona molestias a los vecinos en sus horas de descanso, este Reglamento se emite con el fin de regular todas las actuaciones relacionadas con las actividades citadas.
