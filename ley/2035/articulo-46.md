@@ -1,0 +1,1 @@
+Artículo 46.- El Consejo podrá adquirir hasta el 30% de las acciones de sociedades cooperativas, siempre que se determine previamente que la operación de tales sociedades pudiere contribuir al buen éxito de un plan aprobado por el Consejo.

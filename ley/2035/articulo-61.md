@@ -1,0 +1,3 @@
+Artículo 61.- Al entrar en vigencia la presente ley, el Consejo de Gobierno designará los cinco miembros que indica el artículo 14, dentro de los ocho días siguientes a la promulgación de la misma.
+Para los efectos de renovación de miembros electivos a que se refiere el artículo 20, la Junta Directiva, en el penúltimo mes de cada uno de los tres primeros años de vigencia de esta ley, procederá a determinar por sorteo entre sus miembros a cuáles les vencerá su período en el primero, el segundo, el tercero o el cuarto año.
+En la sesión de instalación se procederá a nombrar su Presidente, Vicepresidente, lo mismo que al Gerente, Subgerente, Auditor y Subauditor del Consejo, todo de acuerdo con las disposiciones de esta ley.
