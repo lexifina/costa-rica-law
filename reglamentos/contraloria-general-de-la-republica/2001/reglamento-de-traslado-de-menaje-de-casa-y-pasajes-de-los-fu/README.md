@@ -14,3 +14,4 @@ Reglamento de Traslado de Menaje de Casa y Pasajes de los Funcionarios Acreditad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-19 | la propia norma |
+| 2 | 2002-08-12 | Reglamento 0 (2002-08-12) |
