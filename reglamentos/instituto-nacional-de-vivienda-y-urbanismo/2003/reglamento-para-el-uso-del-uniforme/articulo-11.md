@@ -1,0 +1,1 @@
+Artículo 11.—Se autoriza a la Jefatura del Área de Ahorro y Préstamo, autorizar el uso de uniformes a funcionarios que no tengan nombramiento en propiedad, a partir del plazo del nombramiento y de la relación directa que se tenga con los clientes del Sistema.

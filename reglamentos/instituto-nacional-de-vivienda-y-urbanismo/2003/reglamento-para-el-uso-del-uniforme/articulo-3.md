@@ -1,0 +1,2 @@
+Artículo 3º—El Área de Ahorro y Préstamo, facilitará de manera gratuita el uniforme a los funcionarios indicados, consistiendo en la entrega de cinco blusas, dos faldas, un pantalón, o dos pantalones y una falda, para el personal femenino. Para el personal masculino se entregarán cinco camisas, dos corbatas y dos pantalones.
+Tanto los colores como el día en que debe usarse cada uno, serán regidos mediante circular previamente, emitida por la Jefatura del Área de Ahorro y Préstamo.
