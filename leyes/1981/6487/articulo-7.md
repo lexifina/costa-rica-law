@@ -1,1 +1,1 @@
-Artículo 7º.- Rige a partir de su publicación.
+Artículo 7º.-Rige a partir de su publicación.
