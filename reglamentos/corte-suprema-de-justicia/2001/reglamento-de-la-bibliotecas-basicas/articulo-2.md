@@ -1,0 +1,1 @@
+Artículo 2°—Se establecen Bibliotecas Básicas en todos los circuitos judiciales del país, salvo en aquellos con asiento en la ciudad de San José. Las bibliotecas básicas estarán sujetas a la supervisión y dirección por parte de la Biblioteca del Poder Judicial.

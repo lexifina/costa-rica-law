@@ -1,0 +1,1 @@
+Artículo 7°—El servidor judicial que desee hacer uso de los servicios de la biblioteca básica, deberá presentar al encargado de la biblioteca algún documento de identificación personal. Solo podrá facilitarse material directamente a la persona identificada.

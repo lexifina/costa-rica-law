@@ -1,0 +1,1 @@
+Artículo 13.—Dentro del plazo de quince días, el usuario deberá depositar en la cuenta corriente del Departamento Financiero Contable la suma correspondiente al pago por el deterioro o pérdida del material bibliográfico, cuya constancia o recibo correspondiente al depósito, deberá entregarse al encargado, para que proceda a levantar la suspensión impuesta.

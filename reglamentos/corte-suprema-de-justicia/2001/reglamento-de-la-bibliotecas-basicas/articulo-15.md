@@ -1,0 +1,1 @@
+Artículo 15.—El usuario reincidente en el deterioro o pérdida de materiales o en ambos, sin que medie caso fortuito o fuerza mayor, además de cubrir el valor estipulado en los términos del artículo 10, se le aplicará sanción de suspensión del préstamo mera del recinto bibliotecario, según el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 14.—El usuario que deje los materiales bibliográficos que tenga en préstamo, en otro sitio fuera del edificio en donde se encuentra la biblioteca, se hará acreedor a una suspensión del préstamo fuera del recinto bibliotecario, por un período de tres meses. En caso de reincidencia, la suspensión será por seis meses o más, según la reiteración del incumplimiento.

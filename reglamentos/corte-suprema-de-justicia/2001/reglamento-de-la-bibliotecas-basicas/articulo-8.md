@@ -1,0 +1,1 @@
+Articulo 8°—Al solicitar el material bibliográfico, es requisito indispensable que el usuario, llene la boleta de préstamo, una vez, devuelto el material por parte del lector, se le entregará la copia con el sello de recibido.

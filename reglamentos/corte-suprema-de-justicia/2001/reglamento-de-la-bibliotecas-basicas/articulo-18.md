@@ -1,0 +1,1 @@
+Artículo 18.—Corresponderá al jefe de la Biblioteca del Poder Judicial o al funcionario que él designe, visitar las bibliotecas básicas, con el objeto de verificar el inventario, examinar el estado de las obras y atender cualquier asunto relacionado con la materia.
