@@ -1,1 +1,1 @@
-Transitorio IV.-Las personas que durante los próximos cinco años a partir de la vigencia de esta ley completaren los veinticinco años de servicios, de los cuales diez hayan sido prestados en zonas insalubres o incómodas, aunque no hayan sido consecutivos, tendrán derecho a acogerse a una pensión ordinaria.
+Transitorio IV.- Los actuales miembros de la Junta de Jubilaciones del Magisterio Nacional, propietarios y suplentes, continuarán en sus cargos hasta el término del período para el que fueron nombrados.

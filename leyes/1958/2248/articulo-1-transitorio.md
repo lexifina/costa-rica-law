@@ -1,1 +1,2 @@
-Transitorio I.- Dentro de los cinco años siguientes a la fecha en que entre en vigencia esta ley, se realizará un estudio actuarial completo, por el Ministerio de Economía y Hacienda, del que habrán de salir las recomendaciones necesarias para ajustar esta ley a la realidad nacional.
+Disposiciones Transitorias
+Transitorio I.- Reajústanse las pensiones actuales del Magisterio, inferiores a mil quinientos colones (¢ 1,500.00) y hasta por ese monto. Para dicho reajute se aplicará la siguiente escala: Hasta ¢600.00 el 15% de aumento; sobre el exceso de ¢ 600.00 hasta ¢ 700.00 el 10% de aumento; sobre el exceso de ¢ 700.00 hasta ¢ 800.00 el 7% de aumento; y sobre el exceso de ¢ 800.00 hasta ¢ 1,500.00 el 5% de aumento.
