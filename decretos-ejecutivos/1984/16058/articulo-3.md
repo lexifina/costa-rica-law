@@ -1,0 +1,1 @@
+Artículo 3°.-La Reserva Indígena Cabécar de Tayni incluye también la finca del indígena Alejo Leiva, situada en la margen oriental del río Cerere (Serere), cerca de la entrada de la Reserva Biológica de Hitoy.

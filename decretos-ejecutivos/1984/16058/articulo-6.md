@@ -1,0 +1,1 @@
+Artículo 6°.-Todos los artículos de decretos anteriores relativos a los estatutos de la Reserva Indígena Cabécar de Tayni quedan vigentes. En particular, se ratifican los artículos 4°, 5° y 6° del Decreto Ejecutivo N° 12233-C.
