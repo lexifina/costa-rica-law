@@ -1,0 +1,1 @@
+Artículo 9°—Los contratos de concesión, permisos, o permisos de uso precario que estén vigentes, mantendrán su status quo hasta su vencimiento, procediendo la DGAC o quien esta designe, a modificar los mismos de acuerdo con las nuevas tarifas.

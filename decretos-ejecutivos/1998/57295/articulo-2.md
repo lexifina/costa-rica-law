@@ -1,0 +1,1 @@
+Artículo 2°- El objeto del presente Decreto es el de reglamentar las tarifas, tasas y derechos del Aeropuerto Internacional Juan Santamaría, que no son regulados por la Autoridad Reguladora de los Servicios Públicos.
