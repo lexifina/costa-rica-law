@@ -14,3 +14,4 @@ Declara Interés Público Combate Nacional Anemia Infecciosa Equina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-23 | la propia norma |
+| 2 | 1994-02-23 | SINALEVI (sin norma nombrada) |
