@@ -1,0 +1,1 @@
+Art 4°.- La Asamblea suspende sus sesiones para continuar y tener las que le faltaban del presente periodo, cuando el Gobierno avise al Presidente o Secretarios hallarse reunidos los pliegos de elecciones que se mandan reponer,
