@@ -1,0 +1,1 @@
+Artículo 30.—Los acuerdos tomados por el Consejo Directivo, quedarán firmes al aprobarse el acta respectiva. En casos especiales de suma urgencia y oportunidad, el Consejo Directivo, por votación de las dos terceras partes de la totalidad de sus miembros, podrá declarar firmes sus acuerdos.

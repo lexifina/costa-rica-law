@@ -1,0 +1,1 @@
+Artículo 10.—El quórum de las sesiones será la mitad más uno de los miembros del Consejo Directivo (mayoría simple), quienes deberán encontrarse en el salón de sesiones, ocupando el espacio correspondiente de acuerdo a su puesto al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

@@ -1,0 +1,1 @@
+Artículo 78.—Los directivos propietarios perderán las dietas cuando no se presenten dentro de los treinta minutos inmediatos posteriores a la hora fijada para el inicio de la sesión o en caso que se retiren antes de la finalización de la sesión (sin el respectivo permiso de la presidencia).

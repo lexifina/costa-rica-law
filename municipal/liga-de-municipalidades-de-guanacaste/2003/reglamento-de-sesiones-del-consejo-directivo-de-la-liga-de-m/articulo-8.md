@@ -1,0 +1,1 @@
+Artículo 8º—Toda convocatoria se notificará por teléfono o fax en el lugar que cada directivo indique y a la municipalidad correspondiente, quedando constancia de recibida de ambas. La notificación se hace desde la oficina de la Liga, dejando constancia de quién llamó y quién contestó o recibió la llamada.

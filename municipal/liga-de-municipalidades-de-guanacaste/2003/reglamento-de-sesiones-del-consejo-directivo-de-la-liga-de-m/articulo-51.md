@@ -1,0 +1,1 @@
+Artículo 51.—Cuando el objeto de la audiencia fuere de competencia de El/La Director/a Ejecutivo/a, El/La Presidente/a ordenará a La/El Secretaria/o Administrativa/o remitir el memorial presentado a dicho funcionario para que éste le dé el trámite correspondiente. La/El Secretaría/o Administrativa/o lo hará del conocimiento de los interesados.

@@ -1,0 +1,1 @@
+Artículo 88.—Se pagará: desayuno cuando por representar a la Liga haya que salir antes de las seis de la mañana; por almuerzo, cuando haya que salir antes de las doce medio día, y cena, cuando tenga que regresar después de las dieciocho horas.

@@ -1,0 +1,1 @@
+Artículo 23.—El/La Presidente/a de la Liga no dará curso y declarará fuera de orden las proposiciones o mociones que evidentemente resulten improcedentes o que simplemente vayan a dilatar u obstaculizar el curso normal del debate o la resolución de un asunto. Para ello deberá El/La Presidente/a dar un razonamiento por escrito de su decisión.

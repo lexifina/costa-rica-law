@@ -1,0 +1,1 @@
+Artículo 14.—El/La directivo/a suplente que sustituye a un propietario, tendrá derecho a permanecer durante toda la sesión como miembro del Consejo Directivo con voz, voto y el derecho a devengar la dieta como propietario, si la sustitución se hubiere efectuado después de los treinta minutos a que se refiere el artículo anterior, o si, se hubiere efectuado con anterioridad.

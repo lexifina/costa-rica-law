@@ -1,0 +1,1 @@
+Artículo 52.—La/El Secretaría/o Administrativa remitirá al Consejo Directivo, en orden de presentación, las solicitudes que presenten los particulares. El Consejo Directivo decidirá si acepta o no la petición formulada, tomando en cuenta el interés de la Liga, la oportunidad y cualquier otro elemento que se considere pertinente.

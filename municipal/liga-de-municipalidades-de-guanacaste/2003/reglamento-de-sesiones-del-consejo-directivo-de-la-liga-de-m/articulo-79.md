@@ -1,0 +1,1 @@
+Artículo 79.—Los directivos suplentes devengarán dieta que corresponde al cincuenta por ciento de la dieta del propietario; cuando sustituye al mismo, ganará dieta del propietario, en sustitución de un propietario en una sesión remunerable.

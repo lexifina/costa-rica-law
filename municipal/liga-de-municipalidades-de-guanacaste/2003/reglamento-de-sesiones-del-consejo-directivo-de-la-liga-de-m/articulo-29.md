@@ -1,0 +1,1 @@
+Artículo 29.—Todo acuerdo se tomará previo dictamen de una comisión del Consejo Directivo y después de considerarse suficientemente discutido el asunto. El dictamen de Comisión podrá dispensarse en casos urgentes, si el Consejo Directivo lo acuerda por simple mayoría de votos.

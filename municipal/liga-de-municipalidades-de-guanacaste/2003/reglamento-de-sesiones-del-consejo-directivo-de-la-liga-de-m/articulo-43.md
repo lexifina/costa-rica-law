@@ -1,0 +1,1 @@
+Artículo 43.—Una vez designadas las comisiones por El/La Presidente/a del Consejo Directivo, sus miembros en la sesión de instalación, que se deberá celebrar en la próxima sesión, nombrarán de su seno a un coordinador y un secretario.

@@ -1,0 +1,1 @@
+Artículo 41.—Podrá el Consejo Directivo, por medio de acuerdo, crear cuantas Comisiones de Trabajo Especiales estime convenientes para la atención de asuntos específicos de interés provincial, o propios de la Liga.

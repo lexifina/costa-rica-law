@@ -1,0 +1,1 @@
+Artículo 22.—En el capítulo de directivos, éstos presentarán las mociones y proposiciones por escrito y firmadas. El/La Secretario/a del Consejo anotará la hora y fecha en que fueron presentados y serán conocidas en estricto orden de presentación, salvo cuando se trate de mociones de orden.

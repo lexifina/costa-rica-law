@@ -1,0 +1,1 @@
+Artículo 44.—Las comisiones despacharán los asuntos a su cargo con la mayor brevedad posible. Salvo los casos especiales en que El/La Presidente/a del Consejo Directivo, en forma expresa, fije un término menor o superior, las comisiones deberán rendir sus dictámenes en un plazo no mayor de un mes a juicio de El/La Presidente/a.

@@ -1,0 +1,1 @@
+Artículo 70.—De los directivos suplentes: Estarán sometidos a las mismas disposiciones que regulan a los directivos propietarios. Sustituirán a los propietarios/as según el orden, en los casos de ausencias temporales u ocasionales, y serán llamados por El/La Presidente/a.

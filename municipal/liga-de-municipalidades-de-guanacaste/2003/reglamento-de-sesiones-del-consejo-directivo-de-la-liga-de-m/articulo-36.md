@@ -1,0 +1,1 @@
+Artículo 36.—Presentada una moción de orden, se concederá el uso de la palabra en primer término al proponente y luego a los directivos que la solicitan, no podrá dársele la palabra a más de cuatro directivos, y no podrá exceder de cinco minutos cada intervención.

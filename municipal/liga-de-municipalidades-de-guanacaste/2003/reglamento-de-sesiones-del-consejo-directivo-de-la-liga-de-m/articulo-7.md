@@ -1,0 +1,1 @@
+Artículo 7º—A las sesiones extraordinarias, se convocará, a los directivos tanto propietarios como suplentes. En sesión extraordinaria se conocerán exclusivamente los asuntos indicados en la convocatoria.

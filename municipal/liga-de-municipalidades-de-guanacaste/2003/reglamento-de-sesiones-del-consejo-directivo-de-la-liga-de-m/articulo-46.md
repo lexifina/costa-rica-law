@@ -1,0 +1,1 @@
+Artículo 46.—El Consejo Directivo podrá pasar los dictámenes de comisión a conocimiento de otra comisión o a alguna designada especialmente por El/La Presidente/a, para que se pronuncie, sobre un caso concreto del informe.

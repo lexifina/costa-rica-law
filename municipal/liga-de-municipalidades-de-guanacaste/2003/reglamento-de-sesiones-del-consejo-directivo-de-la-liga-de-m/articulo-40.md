@@ -1,0 +1,1 @@
+Artículo 40.—En la sesión del Consejo Directivo inmediatamente posterior a la elección anual de El/La Presidente/a, éste designará a los miembros de las comisiones de trabajo, quienes durarán en sus funciones un año. Habrá al menos las siguientes comisiones permanentes, de Capacitación, de Divulgación e Información, Hacienda y Finanzas, Asuntos Jurídicos.

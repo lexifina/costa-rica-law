@@ -1,0 +1,1 @@
+Artículo 85.—Podrá ser recusado por cualquier interesado el directivo que no se excuse de intervenir en la discusión a la que se refiere el del inciso a) anterior. El Consejo decidirá si la recusación procede, y buscará más datos para resolver.

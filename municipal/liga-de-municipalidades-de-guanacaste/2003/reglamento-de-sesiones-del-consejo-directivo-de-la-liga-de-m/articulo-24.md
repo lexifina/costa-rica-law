@@ -1,0 +1,1 @@
+Artículo 24.—Cuando concurrieren al Consejo Directivo miembros de los supremos poderes o invitados especiales, representantes de organismos oficiales o extranjeros, representantes de instituciones autónomas o semiautónomas, se les recibirá en el lugar indicado a la hora fijada al efecto e inmediatamente después del saludo de rigor se les concederá la palabra.

@@ -1,0 +1,1 @@
+Artículo 54.—Si se presentaren memoriales que dirijan los particulares al Consejo Directivo, La/El Secretaria/o Administrativa los examinará, y si resulta que lo solicitado es de competencia de El/La Director/a Ejecutivo/a, lo enviará a dicho funcionario para que le dé el trámite que le corresponda y se informará a los firmantes.

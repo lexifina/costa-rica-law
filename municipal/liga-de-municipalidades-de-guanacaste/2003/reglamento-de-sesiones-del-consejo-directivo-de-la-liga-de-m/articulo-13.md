@@ -1,0 +1,1 @@
+Artículo 13.—El/La directivo/a propietario/a que llegase después de transcurridos los treinta minutos contados a partir de la hora señalada para iniciar la sesión, perderá el derecho de devengar la dieta.

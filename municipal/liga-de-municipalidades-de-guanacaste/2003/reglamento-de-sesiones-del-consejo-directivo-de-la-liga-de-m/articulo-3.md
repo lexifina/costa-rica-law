@@ -1,0 +1,1 @@
+Artículo 3º—El Consejo Directivo de la Liga de Municipalidades de Guanacaste, estará integrado por catorce miembros, siete miembros propietarios y siete suplentes, elegidos en el seno de la Asamblea que durará un ano en sus funciones pudiendo ser reelectos.

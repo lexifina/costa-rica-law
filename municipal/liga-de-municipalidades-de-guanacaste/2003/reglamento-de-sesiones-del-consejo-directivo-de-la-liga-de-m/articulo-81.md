@@ -1,0 +1,1 @@
+Artículo 81.—En caso que los directivos suplentes, no hayan sustituido a los propietarios en una sesión remunerable, pero estén presentes durante toda la sesión, serán acreedores de un cincuenta por ciento de la dieta correspondiente del directivo propietario.

@@ -1,0 +1,1 @@
+Artículo 12.—Si en el transcurso de una sesión se rompiere el quórum, El/La Presidente/a instará a los señores directivos que se hubieren retirado sin permiso, para que ocupen sus curules. Transcurridos diez minutos sin que se pueda restablecerse el quórum, se levantará la sesión. Los directivos remisos perderán el derecho a la dieta correspondiente.

@@ -1,0 +1,1 @@
+Artículo 76.—Las dietas de los directivos se pueden aumentar anualmente hasta en un veinte por ciento, si la asamblea lo acuerda y si el presupuesto de la Liga aumenta, con relación al del año anterior, en una proporción igual o superior al porcentaje que se fije.

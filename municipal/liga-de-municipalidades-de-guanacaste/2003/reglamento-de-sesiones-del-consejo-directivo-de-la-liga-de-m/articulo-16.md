@@ -1,0 +1,1 @@
+Artículo 16.—Las sesiones del Consejo Directivo se desarrollarán conforme al orden previamente elaborado, el cual podrá ser modificado o alterado mediante acuerdo del Consejo Directivo por dos terceras partes de los miembros presentes

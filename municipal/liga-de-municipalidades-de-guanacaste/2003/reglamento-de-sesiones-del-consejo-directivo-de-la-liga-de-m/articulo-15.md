@@ -1,0 +1,1 @@
+Artículo 15.—Las sesiones del Consejo Directivo serán públicas, sin perjuicio de que en una moción especial, determinada sesión o parte de ella sea declarada secreta, por al menos dos tercios de los votos del Consejo Directivo.

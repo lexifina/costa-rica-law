@@ -1,0 +1,1 @@
+Artículo 32.—Toda iniciativa tendiente a adoptar, reformar, suspender o derogar las disposiciones reglamentarias, debe ser presentada o acogida para su trámite por algún director y enviada a comisión para el estudio y dictamen.

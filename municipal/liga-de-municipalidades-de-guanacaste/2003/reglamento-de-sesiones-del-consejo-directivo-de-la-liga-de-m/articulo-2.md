@@ -1,0 +1,1 @@
+Artículo 2º—Este reglamento regulará la organización y funcionamiento de las sesiones del Consejo Directivo de la Liga de Municipalidades de Guanacaste, deberes del Presidente, Secretario, Tesorero y Directivos.

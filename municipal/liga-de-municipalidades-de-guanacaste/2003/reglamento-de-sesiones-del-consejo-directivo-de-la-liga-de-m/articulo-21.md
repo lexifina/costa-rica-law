@@ -1,0 +1,1 @@
+Artículo 21.—El/La Presidente/a de la Liga, calificará los asuntos de trámite urgente y enviará a La/El Secretaría/o Administrativa/o para incluirlos en el orden del día. En sesión podrán incluirse los de trámite urgente por iniciativa del/La Presidente/a o de uno o más directivos, por acuerdo de dos terceras partes.

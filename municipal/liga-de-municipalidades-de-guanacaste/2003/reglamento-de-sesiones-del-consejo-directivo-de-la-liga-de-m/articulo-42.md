@@ -1,0 +1,1 @@
+Artículo 42.—Toda Comisión estará integrada al menos por tres miembros, éstos deberán escogerse equitativamente de los directivos propietarios y suplentes, representantes de las fracciones políticas que tienen representación en la Liga. Los funcionarios municipales y los particulares podrán participar en las comisiones con carácter de asesores.

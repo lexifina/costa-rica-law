@@ -1,0 +1,1 @@
+Artículo 80.—Para devengar dieta, el directivo suplente debe haber sustituido antes o inmediatamente después de los treinta minutos de gracia contemplados en el párrafo anterior y se extienda hasta el final de la sesión.

@@ -1,0 +1,1 @@
+Artículo 48.—Los miembros de las comisiones servirán en sus cargos sin recibir dietas ni remuneración alguna, pudiendo ser designados de nuevo, una vez vencido el plazo por el cual se les designó, para un nuevo período.
