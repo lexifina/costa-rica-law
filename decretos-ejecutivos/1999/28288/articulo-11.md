@@ -1,0 +1,1 @@
+Artículo 11.—Devolución de lo entregado. En caso de que al finalizar el proceso, la Procuraduría General de la República hubiera obtenido sentencia a favor, ésta deberá solicitar a la autoridad judicial respectiva la devolución del título entregado como garantía y procederá a devolverlo a la Tesorería Nacional en un plazo máximo de ocho días hábiles, para su respectiva custodia.

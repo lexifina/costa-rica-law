@@ -1,0 +1,1 @@
+Artículo 2º—Tipo de título. La Tesorería Nacional emitirá, para tales efectos, Títulos de Propiedad del Gobierno denominados "Cero Cupón" los cuales son una especie de título estandarizado sin cupones, negociado por descuento.

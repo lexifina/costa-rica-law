@@ -1,0 +1,1 @@
+Artículo 6º—Emisión. La emisión física de los títulos será individual, a la orden de la Procuraduría General de la República. Se emitirá un Título de Propiedad Cero Cupón por cada auto judicial que ordene el rendimiento de la garantía para el pago de daños y perjuicios, según el artículo 273 del Código Procesal Civil
