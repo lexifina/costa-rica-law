@@ -13,3 +13,4 @@ Modifica Ley Presupuesto Ordinario y Extraordinario del 2000
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-03 | la propia norma |
+| 2 | 2000-11-21 | Decreto Ejecutivo 29127 (2000-11-21) |
