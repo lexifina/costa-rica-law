@@ -1,5 +1,0 @@
-Artículo 5°-La autoridad superior de cada institución procederá a integrar un comité cuando no exista uno establecido por convención colectiva, cuya función principal será estudiar y determinar las clases de puestos que podrán acogerse al régimen de dedicación exclusiva y determinar los niveles de porcentajes, hasta un máximo de tres categorías, cuando no se escoja un porcentaje general, en cuyo caso los servidores del grupo inferior, conforme con la catalogación anterior, no podrán devengar mayor porcentaje que los del grupo superior.
-En cualquier caso, la institución decide acoger el sistema de dedicación exclusiva deberá reconocer, prioritariamente y en su orden, a los siguientes servidores:
-a) Aquellos que, reuniendo los requisitos a que se refiere el artículo 3°, tengan prohibición, por ley orgánica o leyes especiales, para ejercer su profesión en forma privada.
-b) Aquellos servidores que, reuniendo los requisitos del artículo 3°, estén cubiertos por lo dispuesto en el artículo 143 del Código de Trabajo.
-c) El resto de los servidores en quienes concurran los requisitos del artículo 3°.
