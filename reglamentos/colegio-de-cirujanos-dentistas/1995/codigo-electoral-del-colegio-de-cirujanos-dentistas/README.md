@@ -13,3 +13,4 @@ Código Electoral del Colegio de Cirujanos Dentistas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-02-02 | la propia norma |
+| 2 | 2001-03-15 | Reglamento 0 (2001-03-15) |
