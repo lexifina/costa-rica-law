@@ -29,13 +29,13 @@ Hasta 14,00 m 3,50 m 11,00 m2 2,70 m 8,00 m2
 En el caso de alturas mayores de catorce metros (14,00 m), la dimensión mínima del patio deberá ser de un cuarto (1/4) de la altura total del parámetro
 de muros.
 VI. 3.8. Retiros mínimos: Salvo que el Plan Regulador lo indique de manera distinta o porque los retiros no sea exigibles por tratarse de obras que estén expresamente exentas de ellos, se exigirán los siguientes retiros mínimos:
-VI.3.8.1. Retiro frontal (antejardín): Dos metros (2,00 m).
-VI. 3.8.2. Retiro posterior (patio): Tres metros (3,00 m). Estos patios pueden sustituirse por un espacio abierto interior si las paredes de la vivienda en la colindancia posterior son de material incombustible. Para viviendas de un piso y siempre que se contemple la construcción de la tapia, esta dimensión puede reducirse hasta un metro y medio (1,50 m). Si la edificación es de dos pisos o más, se aumentará el retiro posterior un metro por piso, pudiendo construirse los pisos en forma escalonada.
+VI.3.8.1. Retiro frontal (antejardín): Dos metros (2,00 m). VI. 3.8.2. Retiro posterior (patio): Tres metros (3,00 m). Estos patios pueden sustituirse por un espacio abierto interior si las paredes de la vivienda en la colindancia posterior son de material incombustible. Para viviendas de un piso y siempre que se contemple la construcción de la tapia, esta dimensión puede reducirse hasta un metro y medio (1,50 m). Si la edificación es de dos pisos o más, se aumentará el retiro posterior un metro por piso, pudiendo construirse los pisos en forma escalonada.
 VI. 3.8.3. Retido lateral: No se exigirá cuando el material de la pared en la respectiva colindancia sea incombustible y no tenga ventana o linternilla. En caso contrario se exigirá:
 — Uno y medio metros (1,50 m) para unidades habitacionales de un piso.
 — Tres metros (3,00 m) para las de dos pisos.
 — Por cada piso adicional deberá agregarse un metro (1,00 m) de retiro lateral.
-Artículo VI. 4.—Número máximo de viviendas por lote. El número de viviendas que puede admitir un lote depende de que éste se encuentre en una urbanización tradicional, o en un conjunto habitacional; y de que, en cualquiera de ambos casos, haya o no servicio de cloaca. El número máximo es el cociente de dividir el área total del terreno entre el área tributaria asignada a cada vivienda según el número de dormitorios.
+Artículo VI. 4.—Si no hubiere colector de aguas negras en funcionamiento, el número máximo de viviendas que se podrá construir en un lote estará sujeto al área libre requerida para ubicar el sistema de drenaje en la longitud y área que resulten de la prueba de infiltración, la cual deberá realizarse de conformidad con el instructivo que al respecto tiene el A y A En todo caso el área resultante no podrá ser inferior a seis metros cuadrados por persona. Para definir el número de habitantes por vivienda se considerarán dos personas por dormitorio. En caso de existir duda sobre el uso indicado para un aposento se presumirá que éste puede tener carácter de dormitorio a los efectos del cálculo del área de drenaje.
+(Reformado mediante sesión ordinaria N° 3822, celebrada el 4 de mayo de 1987)
 URBANIZACIÓN TRADICIONAL CONJUNTO HABITACIONAL
 ________________________________ __________________________________
 Área Tributaria en m2 Área Tributaria en m2
