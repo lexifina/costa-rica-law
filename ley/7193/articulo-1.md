@@ -1,7 +1,7 @@
 LEY DE IMPUESTOS MUNICIPALES DEL CANTON DE
 LEON CORTES
-ARTICULO 1.- Establécense los siguientes impuestos municipales
-del Cantón de León Cortés:
+ARTICULO 1.- Establécense los siguientes impuestos municipales del
+Cantón de León Cortés:
 IMPUESTO TRIMESTRAL
 POR CATEGORIAS
 1ra. o 2da.
