@@ -14,3 +14,4 @@ Reglamento para la Asignación, Uso y Control de Equipos de Telefonía Móvil (C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-05 | la propia norma |
+| 2 | 2002-02-19 | Reglamento 3963 (2002-02-19) |
