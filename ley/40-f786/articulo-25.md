@@ -1,0 +1,1 @@
+Artículo 25.-A excepción de los depósitos que los Bancos mantengan en el exterior para atender su giro normal de letras, este impuesto será doble para los contribuyentes que mantengan en el exterior más del 25 % de sus ingresos o de sus capitales. Tal circunstancia deberá ser declarada y comprobada de acuerdo con las disposiciones respectivas de la presente ley.

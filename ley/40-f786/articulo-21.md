@@ -1,0 +1,1 @@
+Artículo 21.-Como datos para comprobar la entrada o ingreso de los contribuyentes la Administración de la Tributación Directa tendrá los siguientes: los bienes muebles o inmuebles que pertenezcan al interesado; la realización anual cuando se trate de casas de comercio o industrias y el volumen de los negocios cuando se refiera a casas de banca, comisiones o cualquier otro.

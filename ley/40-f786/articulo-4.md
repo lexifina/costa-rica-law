@@ -1,0 +1,1 @@
+Artículo 4°-La cédula es un documento de identificación y como tal deberá presentarse en los tribunales, en las oficinas públicas, en las mesas electorales y en los actos notariales o de carácter político, civil o comercial. Tanto las autoridades como los particulares interesados tienen derecho a exigir la presentación de la cédula.

@@ -1,0 +1,1 @@
+Artículo 6°-Al ejercitarse el derecho del sufragio en las elecciones generales para Presidente de la República, Diputados y Munícipes, el elector exhibirá su cédula al Presidente de la Mesa y éste anotará en la cédula la palabra "votó", con su firma y la fecha del día.
