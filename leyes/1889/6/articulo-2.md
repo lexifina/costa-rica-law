@@ -1,0 +1,2 @@
+Art. 2°.-La Secretaría de Instrucción Pública procederá á adjudicar á cada distrito escolar la parte proporcional que le corresponda en el empréstito, de acuerdo con su renta de destace; determinar, con vista de los informes que recabe de las autoridades respectivas, los distritos que, conforme á la ley, requieran mayor auxilio; y ordenar la construcción de edificios en los lugares en que, de acuerdo con la misma ley, corren por cuenta del Tesoro Público.
+El cupo de cada distrito se publicará en el periódico oficial, para conocimiento de las Juntas.

@@ -1,0 +1,1 @@
+Art. 14.-La Dirección de Obras Públicas queda encargada de formar los planos de los edificios escolares, de acuerdo con las instrucciones que reciba del Ministerio, y de ordenar periódicamente la inspección de las construcciones, á fin de lograr la mejor ejecución de las obras.

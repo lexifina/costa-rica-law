@@ -1,0 +1,1 @@
+Art. 13.-Los Tesoreros devengarán por honorarios á un cinco por ciento sobre las cantidades que se inviertan en los trabajos; llevarán la contabilidad en debida forma, según las instrucciones que les dé la oficina general del ramo, y rendirán cuenta mensual la Junta de los gastos hechos. La cuenta final deber á ser aprobada por la misma Junta.

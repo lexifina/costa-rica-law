@@ -1,0 +1,1 @@
+Art. 12.-Para el manejo de los caudales destinados á la construcción de los edificios escolares, las Juntas nombrar n un Tesorero, que rendirá fianza en garantía de la buena administración de los fondos.
