@@ -1,0 +1,14 @@
+Nº 31772-G
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA
+De conformidad con lo dispuesto en el artículo 140, incisos 3) y 18) de la Constitución Política de Costa Rica y la ley 4366 del 19 de agosto de 1969.
+Considerando:
+1º—Que de conformidad con la Ley N° 4366 del 19 de agosto de 1969, corresponde al Poder Ejecutivo declarar la creación de los distritos indicando su cabecera, poblados que lo conforman y sus límites detallados; así como el estudio de la división territorial administrativa para promover la adecuada organización administrativa del país.
+2º—Que las organizaciones del área de Puerto Viejo del distrito Cahuita por razones geográficas, sociales y económicas solicitaron a la Comisión Nacional de División Territorial Administrativa, la creación de esta área como una nueva unidad territorial administrativa en el cantón Talamanca.
+3º—Que el Comité Técnico de División Territorial Administrativa después de realizar un estudio del área de Puerto Viejo y Manzanillo, donde se consultó a las organizaciones y a la Municipalidad de Talamanca sobre la solicitud de creación de dicha área como una nueva unidad distrital, consideró la necesidad de realizar un Estudio Integral de la División Territorial Administrativa Distrital del cantón Talamanca.
+4º—Que como parte del Estudio Integral de la División Territorial Administrativa del cantón Talamanca, el 26 de setiembre de 2002, se realizó un taller de trabajo con las organizaciones, instituciones públicas y la Municipalidad del cantón Talamanca, donde se concluyó en la importancia de establecer una nueva unidad administrativa en el área de Alta Talamanca y modificar los límites distritales de los distritos en los sectores de Olivia y Manzanillo.
+5º—Que el Comité Técnico de División Territorial Administrativa, notificó sobre la propuesta de creación de la nueva unidad distrital al Concejo Municipal del cantón Talamanca; y dicha corporación Municipal, en acuerdo tomado en la sesión ordinaria Nº 82 del 17 de diciembre del 2003, acogió la recomendación dada.
+6º—Que la Comisión Nacional de División Territorial Administrativa, por recomendación del Comité Técnico, en sesión N° 89 del 13 de mayo del 2003; aprobó la creación del distrito cuarto, Telire y la modificación de los límites de los distritos Bratsi, Sixaola y Cahuita del
+cantón Talamanca. Por tanto,
+DECRETAN:
+Artículo 1º—Créase el distrito Telire, cuarto del cantón Talamanca, segregado del distrito Bratsi, el cual tendrá a la villa Amubri como cabecera, contando con los siguientes poblados: Alto Urén, Alto Lari, Bambú, Boca Urén, Bris, Cachabri, Coroma, Croriña, Dururpe, Fields, Gavilán, Guachalava, Katsi, Kivut, Kichuguecha, Mojoncito, Ourut, Purisquí, Purita, Rancho Grande, Rangalle, San José Cabécar, Sepeque, Shewab, Sibujú, Sipurio, Soky, Sorókicha, Sukut, Surayo, Telire, Turubokicha, Urén.

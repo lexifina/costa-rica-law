@@ -1,0 +1,1 @@
+Artículo 5º—Modifícanse los límites del distrito Sixaola, segundo del cantón Talamanca, el cual tendrá a la villa Sixaola como cabecera, contando con los siguientes poblados Ania, Boca Sixaola, Catarina, Celia, Daytonia, Gandoca, Margarita, Mata de Limón, Noventa y Seis, Palma, Paraíso, San Miguel, San Miguelito, Virginia y Zavala.

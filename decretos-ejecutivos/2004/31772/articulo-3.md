@@ -1,0 +1,1 @@
+Artículo 3º—Modifícanse los límites del distrito Bratsi, primero del cantón Talamanca, el cual tendrá a Bribrí como cabecera (ciudad), contando con los siguientes poblados Cuabre, Chase, Olivia, Shiroles, Suretka y Uatsi.

@@ -1,0 +1,1 @@
+Artículo 9º—Se faculta al Instituto Geográfico Nacional para que interprete los límites señalados en los artículos 2º, 4º, 6º y 8º, y se declara oficial el mapa de estos distritos que el mismo prepare.
