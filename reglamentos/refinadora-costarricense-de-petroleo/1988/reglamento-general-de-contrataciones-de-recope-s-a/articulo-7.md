@@ -1,0 +1,1 @@
+Artículo 7°—Régimen jurídico de los contratos: Las contrataciones de RECOPE se regirán por el Decreto Ejecutivo No 7927-H del 12 de enero de 1978 y sus reformas, por este Reglamento y por la legislación común.

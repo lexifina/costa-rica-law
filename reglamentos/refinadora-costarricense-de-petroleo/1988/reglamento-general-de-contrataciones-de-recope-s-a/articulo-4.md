@@ -1,0 +1,1 @@
+Artículo 4°—Uso del télex o facsímil: RECOPE podrá solicitar cotizaciones a proveedores por télex, facsímil o cualquier otro medio similar, y recibir las cotizaciones por los mismos medios, las cuales se usarán como referencia en caso de compras mayores, y válido como proceso de compra para las de menor cuantía, como el caso de compras directas no publicadas.

@@ -1,0 +1,1 @@
+Artículo 45.—Fiscalización: Sin perjuicio de la fiscalización superior y general que corresponde a la Contraloría General de la República, la Auditoría Interna de RECOPE velará a posteriori por el fiel cumplimiento de este Reglamento.
