@@ -1,0 +1,4 @@
+Artículo 17
+Procesamiento
+1. La Parte en cuyo territorio se comprobase la presencia del presunto autor de una de las infracciones enunciadas en los apartados a) a c) del párrafo 1 del artículo 15, si no extradita a esa persona, someterá su caso sin excepción alguna ni tardanza excesiva a las autoridades competentes para que la procesen con arreglo a un procedimiento conforme a su derecho nacional o, si procede, a las normas pertinentes del derecho internacional.
+2. Sin perjuicio, llegado el caso, de las normas pertinentes del derecho internacional, a toda persona contra la que se instruya un procedimiento en virtud de la Convención o del presente Protocolo se le garantizará un tratamiento equitativo y un proceso imparcial en todas las etapas del procedimiento con arreglo al derecho nacional e internacional, y en ningún caso se le proporcionarán menos garantías de las que reconoce el derecho internacional.
