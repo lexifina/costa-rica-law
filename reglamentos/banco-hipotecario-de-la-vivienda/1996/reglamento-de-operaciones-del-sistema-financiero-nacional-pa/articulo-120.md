@@ -1,5 +1,1 @@
-Artículo 120.—Cálculo del monto máximo del crédito (accesibilidad): Para calcular el monto máximo de crédito a que puede tener acceso una familia beneficiaría se utilizarán los siguientes parámetros.
-a) La cuota de partida máxima calculada de acuerdo con alguno de los criterios establecidos en el artículo 4.
-b) Un plazo máximo de 15 años.
-c) Una tasa de interés activa correspondiente al promedio simple de las tasas cobradas por la Entidad Autorizada durante los últimos 36 meses. El beneficiario debe estar consciente que ello puede dar por resultado periodos de amortización negativa, y que en casos extraordinarios podría implicar un mecanismo de prórroga o reducción del plazo originalmente pactado. Para esto último la Entidad Autorizada deberá explicar al beneficiario los alcances de este hecho, y en fe de ello el beneficiario debe firmar un documento en que se haga constar que tal explicación se dio.
-d) Cualquier otro parámetro que la Entidad Autorizada considere necesario y que sea compatible con los fines del presente programa.
+Artículo 120.—Este artículo fue DEROGADO en sesión N° 73 del 7 de diciembre del 2004.

@@ -1,2 +1,2 @@
-Artículo 118.—Ámbito de aplicación: El sistema de cuota real a que se refiere las presentes normas podrá ser aplicado en forma discrecional por las Entidades Autorizadas a todo tipo de operaciones de crédito habitacional con tasa de interés ajustable, con base en las presentes disposiciones.
-Las operaciones de crédito que se formalicen a partir de la vigencia del presente reglamento, y que de inmediato no se acogieren al sistema de cuota real podrán incluir en las escrituras públicas una cláusula que permita la aplicación de este sistema. Las operaciones que se encontraran formalizadas a esa fecha, las Entidades Autorizadas y los deudores acordarán la forma en que se pueda aplicar este sistema.
+Artículo 118.—Ámbito de aplicación: El sistema de cuota real a que se refieren las presentes normas está dirigido a familias con ingresos que superen el tercer estrato salarial.
+(Así reformado en sesión N° 73 del 7 de diciembre del 2004)
