@@ -1,0 +1,1 @@
+Artículo 26.—Si el Presidente Protempore, por cualquier causa, cesa definitivamente en sus funciones, el Vicepresidente Protempore lo sustituirá hasta que el país, dentro de su período de nombramiento, designe al sustituto y lo comunique por escrito a las instituciones correspondientes.

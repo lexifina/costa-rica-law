@@ -1,0 +1,1 @@
+Artículo 19.—El Presidente Protempore dirigirá los debates sobre los asuntos que se traten, vigilará que se respete la libertad de expresión de los que tengan voz y que se mantenga el orden entre los asistentes a las sesiones. Los comisionados y aquellos a quienes se haya invitado para participar en las sesiones, harán uso de la palabra por un máximo de treinta minutos cada vez.

@@ -1,0 +1,2 @@
+Artículo 13.—Para la realización de las sesiones ordinarias de la Junta de Comisionados, la convocatoria correspondiente, deberá contener como mínimo el lugar, la fecha y la hora de la sesión, se anexará el proyecto de agenda.
+Las sesiones ordinarias y extraordinarias serán convocadas con quince días de anticipación y el proyecto de agenda, enumerará limitativamente los asuntos que se considerarán en la sesión. No habrá lugar a asuntos generales en las sesiones extraordinarias.

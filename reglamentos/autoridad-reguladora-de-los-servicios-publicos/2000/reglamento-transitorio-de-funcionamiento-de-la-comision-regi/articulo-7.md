@@ -1,0 +1,1 @@
+Artículo 7°—Cuando fuere necesario, la CRIE podrá readecuar su organización, actualizando su estructura técnico, administrativa y financiera, así como sus Reglamentos y Manuales, para lograr el cumplimiento de sus Objetivos y garantizar la eficacia de sus facultades.

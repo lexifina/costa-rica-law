@@ -1,0 +1,1 @@
+Artículo 22.—Las sesiones ordinarias y extraordinarias de la Junta de Comisionados, serán financiadas por el país sede donde se celebre la reunión y los gastos de cada comisionado y los funcionarios que lo acompañen, deberán ser cubiertos por la entidad de cada país que representa.
