@@ -1,0 +1,1 @@
+Artículo 13.—Para el préstamo de documentos a las oficinas productoras se llenará una boleta de solicitud y traslado de documentos, el funcionario que retire dichos documentos firmará y quedará como responsable hasta ser devueltos al Archivo Central.

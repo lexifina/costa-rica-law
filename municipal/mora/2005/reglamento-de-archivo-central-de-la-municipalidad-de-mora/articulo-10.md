@@ -1,0 +1,1 @@
+Artículo 10.—El Encargado del Archivo definirá los plazos o fechas en que se realizará la transferencia de documentos de cada oficina y deberá comunicarlo por escrito a los encargados de archivos de gestión, asimismo establecerá la metodología a aplicar para la recepción de los documentos.

@@ -1,0 +1,1 @@
+Artículo 15.—Todos los usuarios del Archivo que soliciten documentos no deberán rayarlos y deberán devolverlos en optimo estado de conservación, además se prohíbe comer o fumar en las instalaciones del archivo.

@@ -1,0 +1,1 @@
+Artículo 14.—En caso de ser un particular quien solicite un documento deberá hacer la solicitud por escrito, llenará una boleta de solicitud de documentos, deberá de identificarse debidamente y se le facilitará una copia del documento solicitado, en un plazo de diez días hábiles.

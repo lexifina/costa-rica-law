@@ -1,0 +1,2 @@
+Artículo 7º—Los diferentes departamentos enviarán al Archivo Central la documentación debidamente organizados, numerados y descritos por medio de listas de remisión.
+La lista de remisión debe llenarse correctamente y con una copia, una es firmada y sellada como recibida, se devolverá a la oficina productora una vez que se haya comprobado que lo escrito en ella es lo que ingresó al Archivo Central, en caso contrario la documentación será devuelta para que se corrija la lista de remisión.

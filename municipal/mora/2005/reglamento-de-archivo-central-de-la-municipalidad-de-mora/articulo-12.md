@@ -1,0 +1,1 @@
+Artículo 12.—Los documentos no podrán salir de la institución salvo en casos de exposición, solicitados por los Tribunales de Justicia y de la Contraloría General de la República, para lo cual se dejará copia en el Archivo Central.
