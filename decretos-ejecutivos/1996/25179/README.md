@@ -13,3 +13,4 @@ De Interés Nacional Actividades Celebración Centenario Teatro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-11 | la propia norma |
+| 2 | 1996-06-11 | SINALEVI (sin norma nombrada) |
