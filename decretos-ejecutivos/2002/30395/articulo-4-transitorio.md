@@ -1,0 +1,2 @@
+Transitorio IV.—Todo profesional que haya trabajado por más de 10 años en un Hospital Clase A, certificado por el Director del Hospital, como responsable de la consulta especializada de Pediatría del Desarrollo, se le reconocerá como especialista en Pediatría del Desarrollo.
+Este transitorio tendrá vigencia de dos meses a partir de la publicación del presente Decreto en el Diario Oficial La Gaceta.

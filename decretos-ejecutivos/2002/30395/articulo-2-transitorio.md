@@ -1,0 +1,2 @@
+Transitorio II.—Todo profesional que posea un título de postgrado de especialista en Cirugía General y que haya trabajado por más de 10 años en un Hospital Clase A, certificado por el Director del Hospital, en los servicios especializados de Cirugía General y Gastroenterológica, se le reconocerá como especialista en Cirugía Gastroenterológica.
+Este transitorio tendrá vigencia de dos meses a partir de la publicación del presente Decreto en el Diario Oficial La Gaceta.

@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I.—Todo profesional que posea un título de postgrado de especialista en Ginecología Endocrinológica que haya trabajado por más de 10 años en un Hospital Clase A, como responsable de la consulta especializada de Ginecología Endocrinológica, se le reconocerá como especialista en Ginecología Endocrinológica. Este transitorio tendrá una vigencia de dos meses a partir de la publicación del presente Decreto en el Diario Oficial La Gaceta.
