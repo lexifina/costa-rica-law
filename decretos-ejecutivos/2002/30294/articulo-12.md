@@ -1,0 +1,1 @@
+Artículo 12.—De la bitácora. En toda granja porcina se deberá abrir un "Libro Bitácora", donde se anotarán los valores de operación del sistema de tratamiento de aguas residuales (caudal, temperatura, pH y sólidos sedimentables) de acuerdo al decreto de vertido y reuso de aguas residuales.

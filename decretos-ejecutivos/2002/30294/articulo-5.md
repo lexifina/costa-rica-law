@@ -1,0 +1,1 @@
+Artículo 5º—De la ubicación. Las Granjas Porcinas solo podrán ubicarse, construirse o ampliar sus instalaciones en zonas o sitios previamente aprobados por la Dirección del Área de Salud respectiva del MS.
