@@ -1,0 +1,2 @@
+Artículo 16.—Adiciónase el artículo 25 del Código Penal en los siguientes términos:
+"Toda sentencia en que se declare contra el reo la responsabilidad penal proveniente de injuria ó de calumnia, cometidas por medio de la prensa, condenará siempre al injuriador ó calumniador á pagar al agraviado una indemnización de doscientos á cinco mil colones, que se fijará en relación con la naturaleza del hecho, la posición social, política, profesional y demás condiciones del ofendido, y con el caudal y facultades del culpable."
