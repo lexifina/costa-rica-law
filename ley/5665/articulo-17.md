@@ -9,4 +9,4 @@ d) Promover bienes y servicios con base en declaraciones falsas, concernientes a
 e) Incumplir, en cualquiera de sus condiciones, con la oferta de regalos, premios, muestras gratis y otras cosas gratuitas, hechas para inducir al público a la compra de otros bienes o servicios;
 f) Ofrecer rebajas sin indicar el precio anterior al de la oferta;
 g) Ofrecer garantías sobre bienes y servicios, sin estar en capacidad de respaldarlas; y
-h) Cualesquiera otras prácticas publicitarias o de mercadeo de similar naturaleza, que impliquen dolo.
+h) (Anulado por Resolución de la Sala Constitucional Nº 578-95 de las 16:12 horas del 1º de febrero de 1995).
