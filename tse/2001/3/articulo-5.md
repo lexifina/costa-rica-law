@@ -1,0 +1,1 @@
+Artículo 5º—El pago del beneficio creado por este Reglamento rige a partir de la publicación de éste en el Diario Oficial y se hará efectivo en cuanto se disponga de los recursos presupuestarios pertinentes.

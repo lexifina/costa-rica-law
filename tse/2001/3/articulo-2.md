@@ -1,0 +1,1 @@
+Artículo 2º—La Secretaría del Tribunal gestionará ante el Ministerio de Hacienda su inclusión en el próximo presupuesto extraordinario que se tramite, con un monto de 14.0 millones de colones, suma que se rebajará de la actual coletilla 97 "Retribución por carrera profesional".
