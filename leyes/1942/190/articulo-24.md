@@ -1,0 +1,1 @@
+Artículo 24.-Los fondos de este impuesto no podrán destinarse a otros fines y gastos que no sean los fijados en la presente ley, y contra ellos solamente podrá girarse previa acuerdo firme de la Directiva, el cual deberá llevar, además, la aprobación de la Junta Nacional de la Habitación.

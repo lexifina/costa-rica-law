@@ -1,0 +1,1 @@
+Artículo 21.-La Junta Nacional de la Habitación contratará el empréstito a que se refiere el artículo 20, el cual no será menor de cuatrocientos mil colones con un tipo de interés no mayor del seis por ciento anual.

@@ -1,0 +1,1 @@
+Artículo 5°-La Junta Directiva de la Cooperativa someterá a la Junta Nacional de la Habitación, para su aprobación, el tipo o tipos de casas a construir, cuyo costo en ningún caso podrá ser mayor de cuatro mil colones para cada una, incluyendo el valor del terreno y de la construcción.

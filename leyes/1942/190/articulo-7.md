@@ -1,0 +1,1 @@
+Artículo 7°-La construcción de las casas y la selección del personal estará a cargo de la Cooperativa, previa aprobación de la Junta Nacional de la Habitación. La vigilancia e inspección de las obras corresponderá a la Dirección General de Obras Publicas.

@@ -1,0 +1,1 @@
+Artículo 11°-El atraso no justificado de tres cuotas mensuales consecutivas será causa suficiente para la rescisión del contrato y para pedir el desahucio. El adquirente no tendrá derecho a la devolución de las sumas pagadas por concepto de amortización.
