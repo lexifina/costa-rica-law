@@ -1,0 +1,8 @@
+4. Algunas consideraciones sobre el régimen de responsabilidad
+El incumplimiento de las disposiciones indicadas en los puntos anteriores, así como de los restantes mecanismos de control que garanticen el ajuste de los gastos con cargo al Presupuesto de la República al bloque de legalidad y el correcto funcionamiento del Sistema de Visado, dará lugar, previa observancia del debido proceso, al establecimiento de la responsabilidad de los funcionarios públicos involucrados de conformidad con las disposiciones jurídicas aplicables.
+4.1 Responsabilidad disciplinaria
+Se encuentran referidos a la responsabilidad disciplinaria los artículos 211 y 213 de la Ley General de la Administración Pública; 68 y 73 de la Ley Orgánica de la Contraloría General de la República; 107 y 113 de la Ley de Administración Financiera de la República y Presupuestos Públicos; 93 y 102 de la Ley de Contratación Administrativa; 103 y 108 del Reglamento General de la Contratación Administrativa; 39 y 43 de la Ley General de Control Interno y las restantes disposiciones especiales sobre la materia.
+4.2 Responsabilidad Civil
+Son disposiciones atinentes a la responsabilidad civil los artículos 704, 1045 y 1047 del Código civil; 190, 196, 199, 201, 203 y 210 de la Ley General de la Administración Pública; 110, 114, 115 y 118 de la Ley de Administración Financiera de la República y Presupuestos Públicos, 68 y 76 de la Ley Orgánica de la Contraloría General de la República y las regulaciones conexas y concordantes.
+4.3 Responsabilidad Penal
+Las disposiciones referidas a la responsabilidad penal se encuentran principalmente en el Código Penal y el Código Procesal Penal, sin perjuicio de otras disposiciones legales aplicables.
