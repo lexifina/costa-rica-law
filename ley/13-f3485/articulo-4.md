@@ -1,1 +1,0 @@
-Artículo 4°—Cualquier derecho percibido sin la constancia del timbre consular, cuando éste fuere exigible, dará lugar a la imposición de una multa igual a cinco veces el valor omitido. Esa multa deberá ser impuesta por el Jefe de la Oficina responsable y se destinará al fondo del Servicio Exterior al cual hace referencia el artículo siguiente.
