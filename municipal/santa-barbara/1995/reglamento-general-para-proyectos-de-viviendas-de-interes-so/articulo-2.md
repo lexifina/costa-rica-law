@@ -1,0 +1,11 @@
+CAPITULO II
+De los beneficiarios
+Artículo 2°—Podrán ser beneficiarios y adjudicatarios de los lotes del proyecto o proyectos de interés social que desarrolle la municipalidad de Santa Bárbara las personas que por su condición económica demuestre que son de escasos recursos económicos y que por su nivel de ingresos no les permita adquirir bienes inmuebles para solucionar su problema de vivienda previo estudio socioeconómico y aprobación de la Contraloría General de la República. Los requisitos que deberán cumplir son:
+a) Presentar completamente lleno el formulario que la Municipalidad de Santa Bárbara confeccione al efecto para el estudio socioeconómico. Para ello podrá pedir asesoría al Ministerio de Vivienda o bien utilizar los formularios que este Ministerio recomiende.
+b) Constancia de salario en caso de ser asalariado o constancia de contador privado incorporado en caso de realizar actividades propias.
+c) Certificación del Registro Público que demuestre que no tienen bienes inmuebles inscritos a su nombre o de su cónyuge o sus hijos, salvo caso de aquellos que utilicen vehículos como herramienta de trabajo.
+d) Certificación del estado civil de los cónyuges o jefes de familia.
+e) Copia de la cédula de identidad por ambos lados de los beneficiarios e hijos mayores de 18 anos.
+f) Certificación de nacimiento de los hijos menores de edad.
+g) Cuando la Comisión de Vivienda Municipal así lo considere podrá pedir al beneficiario constancia del Delegado Distrital de la Guardia de Asistencia Rural donde indique que el beneficiario es vecino del cantón de Santa Bárbara con no menos de cinco años de residir en el cantón y de buena conducía. Esta comisión podrá hacer una excepción en aquellos casos comprobados de personas que no habitan en el cantón pero que si laboran en alguna institución dentro del mismo cantón y que se han identificado con el pueblo por su buena conducta, relaciones y aporte al desarrollo comunal en los últimos 5 años.
+A cada núcleo familiar se le confeccionará un expediente debidamente numerado el cual será remitido oportunamente a la Contraloría General de la República en el caso de que dicha entidad lo solicite para los efectos del artículo 4 del Código Municipal.

@@ -1,0 +1,3 @@
+CAPITULO IX
+De la elaboración del proyecto
+Artículo 9°—El Departamento de Ingeniería Municipal podrá elaborar el anteproyecto de los planos de lotificación, a fin de abaratar los costos. Dicho Departamento tendrá bajo su completa vigilancia la ejecución de las obras y que estas sean acordes al proyecto, sea o no finalizado por la Municipalidad de Santa Bárbara. Para la ejecución del proyecto en lo referente a obras de infraestructura esta Municipalidad podrá eventualmente aceptar- la ayuda técnica y asesora de empresa particular reconocida en el campo de la construcción de urbanizaciones. En dado caso el Departamento de Ingeniería de la Municipalidad deberá hacer las recomendaciones pertinentes.
