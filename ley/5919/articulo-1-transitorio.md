@@ -1,2 +1,2 @@
-Transitorio.-Los sueldos de los servidores que ingresen a la Asamblea Legislativa, a partir de la vigencia de esta ley, se regularán por la escala de la Ley de Salarios de la Administración Pública.
+Transitorio.-(Derogado por el artículo 4° de la ley N° 6776 del 26 de julio de 1982)
 Casa Presidencial.-San José, al os treinta días del mes de julio de mil novecientos setenta y seis.
