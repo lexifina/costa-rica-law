@@ -1,0 +1,1 @@
+Artículo 8°-Una vez concluida la discusión de todos los temas a tratar, quien dirija la sesión dará por finalizada la misma. El Secretario de Actas se encargará de notificar a quien corresponda, los acuerdos tomados durante la sesión.

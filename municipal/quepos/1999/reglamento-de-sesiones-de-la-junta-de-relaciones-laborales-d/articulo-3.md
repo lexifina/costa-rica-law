@@ -1,0 +1,1 @@
+Artículo 3°-La Junta tomará sus acuerdos por mayoría simple de votos. Cuando un miembro no esté de acuerdo con el acuerdo tomado, debe firmar la resolución de mayoría, y por aparte, y como voto salvado, expresará las razones de su inconformidad.

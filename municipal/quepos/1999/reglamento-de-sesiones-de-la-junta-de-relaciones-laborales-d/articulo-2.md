@@ -1,0 +1,1 @@
+Artículo 2°-Las sesiones de la Junta serán dirigidas por el Presidente de la misma, o quien le sustituya en caso de ausencia, ya sea el vocal o el Secretario. Quien dirige otorgará la palabra según corresponda, y realizará el orden de los asuntos a conocer.
