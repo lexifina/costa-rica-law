@@ -1,0 +1,1 @@
+Artículo 32.—La utilización de botes inflables, y/o pangas, solo podrán ser utilizados por las embarcaciones para el transporte de personas a los sitios de buceo autorizados, visitar las oficinas administrativas y/o puestos de control del Parque Nacional Isla del Coco y los sitios que la Administración del Área, autorice previa solicitud oral o escrita.

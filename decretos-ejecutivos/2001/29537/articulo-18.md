@@ -1,0 +1,1 @@
+Artículo 18.—El Ministerio del Ambiente y Energía, o el Área de Conservación Marina Isla del Coco, no asumirán bajo ninguna circunstancia, la responsabilidad por accidentes que puedan sufrir los visitantes de la Isla del Coco, como producto de actividades de buceo, natación, snorkel, caminatas por senderos y otros servicios que ofrezca el Área.

@@ -1,0 +1,1 @@
+Artículo 30.—Queda totalmente prohibido la introducción en la Isla del Coco, de cualquier especie exótica animal o vegetal, sin la debida autorización de la Dirección del Área y solamente podrá darse esta situación, con fines científicos debidamente justificados.

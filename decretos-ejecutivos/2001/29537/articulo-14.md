@@ -1,0 +1,1 @@
+Artículo 14.—La operación de arribo a las zonas de buceo, deberá llevarse a cabo con el apoyo de un bote debidamente identificado con la bandera de buceo, debiendo ser éste adecuado al número de integrantes del grupo.

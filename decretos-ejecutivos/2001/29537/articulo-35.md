@@ -1,0 +1,1 @@
+Artículo 35.—El acatamiento del presente Reglamento y las indicaciones que emitan los funcionarios del Parque debidamente identificados, a los visitantes del Área, serán de carácter obligatorio. Quien las incumpla podrá ser acreedor de las sanciones legales en los tribunales correspondientes.

@@ -1,0 +1,1 @@
+Artículo 3º—Corresponderá a la Dirección del Área, aprobar o denegar las solicitudes de visita al Parque Nacional Isla del Coco, las cuales deberá resolver dentro de los ocho días hábiles siguientes a la fecha de su recibo, en caso de rechazo, esta deberá hacerse mediante resolución debidamente razonada.

@@ -1,0 +1,1 @@
+Artículo 12.—El buceo se permitirá únicamente en las zonas y/o sitios autorizados en el presente Reglamento. Para tal efecto, se entregará a las empresas turísticas y grupos organizados de buzos, un mapa que indicará la ubicación de los sitios y sus principales características, al momento de cancelar el derecho de buceo y obtener el permiso correspondiente.
