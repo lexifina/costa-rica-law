@@ -1,2 +1,0 @@
-Artículo 2º.-El precio que pagará el Estado por los lotes anteriores descritos, es la suma de treinta y cinco millones quinientos ochenta mil colones, que incluye sólo el valor de la tierra, no así la madera, y se hace con fundamento en el avalúo número mil setecientos cuarenta y una, (1741) realizado por la Sección de Avalúos del Instituto de Desarrollo Agrario.
-Del precio antes indicado se harán las reservas de dinero necesarias para cancelar que pesan sobre el inmueble.
