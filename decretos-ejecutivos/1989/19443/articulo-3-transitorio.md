@@ -1,0 +1,2 @@
+Transitorio III.- La importación del Arseniato de Plomo se permitirá mediante el trámite de permiso temporal especial de conformidad con el artículo 28 de la Ley de Sanidad Vegetal con el procedimiento y cantidad que determine el Departamento de Abonos y Plaguicidas de la Dirección General de Sanidad Vegetal.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 20384 del 20 de marzo de 1991)

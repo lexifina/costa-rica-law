@@ -13,3 +13,4 @@ Prohíbe el registro, importación, formulación, tránsito, almacenamiento, ven
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-12-12 | la propia norma |
+| 2 | 1991-03-20 | Decreto Ejecutivo 20384 (1991-03-20) |
