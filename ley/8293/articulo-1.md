@@ -1,0 +1,7 @@
+LEYES
+Nº 8293 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DENOMINACIÓN DE LA CLÍNICA SEDE DE ÁREA DE SALUD
+DE SAN RAFAEL DE OREAMUNO COMO CLÍNICA SEDE
+ÁREA DE SALUD RAFAEL SANABRIA SOLANO
+Artículo 1º—Denomínase la Clínica Sede de Área de Salud de San Rafael de Oreamuno como Clínica Sede Área de Salud Rafael Sanabria Solano.
