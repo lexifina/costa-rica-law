@@ -15,3 +15,4 @@ Reglamento para el Uso de los Vehículos Municipales
 | --- | --- | --- |
 | 1 | 1990-10-25 | la propia norma |
 | 2 | 1991-04-02 | Reglamento municipal 64 (1991-04-02) |
+| 3 | 1998-05-26 | Reglamento municipal 292 (1998-05-26) |
