@@ -1,0 +1,2 @@
+Artículo 2°—Se adiciona un párrafo segundo al artículo 42 del Reglamento General de Cementerios, Decreto Ejecutivo No 22183-S del 6 de mayo de 1993, que dirá:
+"En casos excepcionales en que se demuestre con estudios hidrogeológicos que el terreno en el lugar no es apto para la inhumación por debajo del nivel del suelo y el sitio propuesto presente condiciones seguras por inhumación, sismo u otro, podría permitirse la inhumación sobre el terreno a una altura máxima de 70 centímetros, con la autorización previa del Departamento de Ingeniería Sanitaria del Ministerio de Salud."
