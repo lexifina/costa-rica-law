@@ -1,0 +1,2 @@
+Artículo 11.- Los programas de las trasmisoras deben contribuir a elevar el nivel cultural de la Nación. Las radioemisoras comerciales estarán obligadas a ceder gratuitamente al Ministerio de Educación Pública un espacio mínimo de media hora por semana para fines de divulgación científica o cultural. Cada estación indicará al Ministerio citado el espacio que pueda cederle dentro de sus horarios de trabajo.
+Queda prohibida la radiodifusión de anuncios comerciales grabados en el extranjero.
