@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-La Junta Directiva de JAPDEVA confirmará los nombres de los representantes de las instituciones y elegirá los representantes de los sectores sindicales y comunales basada en los temas que cada una presentará a su seno.
