@@ -1,0 +1,1 @@
+Artículo 4°.- Autorízase al Banco Nacional de Costa Rica para que, por medio de sus Departamentos correspondientes, efectúe adelantos a la Sección de Fomento de la Producción con garantía de la renta creada por el artículo anterior y de los aceites y grasas que importe en cumplimiento de la presente ley.

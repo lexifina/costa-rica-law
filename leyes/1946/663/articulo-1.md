@@ -1,0 +1,5 @@
+N° 663
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+Artículo 1°.-Facúltase al Consejo Nacional de la Producción para que, por medio de la Sección de Fomento de la Producción lleve a cabo importaciones de aceites y grasas para suplir las necesidades del país durante el resto del presente año de acuerdo con las estadísticas y demás datos a su alcance.
+Autorízase asimismo al Consejo para que, si lo cree del caso, lleve a cabo arreglos con los comerciantes importadores de esos artículos, a fin de que efectúen ellos las importaciones en todo o en parte, siempre que otorguen garantías suficientes a juicio del Consejo, para que éste pueda asegurarse tanto el arribo de la mercadería como su ordenada distribución. En estos casos, el Consejo determinará el precio para la venta, tomando en cuenta como máximo hasta un 5% para gastos y administración y 3 ½ % de utilidad. Igualmente queda autorizado el Consejo para entrar en arreglos, caso que lo considere conveniente, con los fabricantes de aceites y grasas a fin de hacer posible la importación de la materia prima que requiera la fabricación de esos productos.
