@@ -14,3 +14,4 @@ Crea Comisión Coordinadora para estudios de Riego y Drenaje aprovechando las ag
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1973-07-17 | la propia norma |
+| 2 | 1974-03-08 | Decreto Ejecutivo 3574 (1974-03-08) |
