@@ -1,4 +1,5 @@
 Artículo 37.—Sanciones a contratistas
-Corresponderá a la Presidencia, a instancia de la Dirección de Suministros, la instauración de un procedimiento administrativo que determine la verdad real respecto a las razones que mediaron en el incumplimiento del contrato y establecer las eventuales sanciones que pudiesen acreditarse al contratista incumpliente.
-La Presidencia designará el órgano director del procedimiento, el cual, estará conformado por tres miembros: un representante de la Dirección de Asesoría Legal, otro de la Dirección de Suministros y otro de la gerencia o gerencias involucradas en el proceso de la contratación, para lo que, se aplicará las disposiciones del procedimiento ordinario del Libro Segundo de la Ley General de la Administración Pública.
-El órgano director del procedimiento instaurado trasladará a la Presidencia para su resolución, la recomendación que emanare del procedimiento seguido.
+Corresponderá a la Junta Directiva aprobar el sistema para la evaluación de proveedores que permita calificar su comportamiento y cumplimiento en los diferentes procesos de contratación administrativa, según parámetros objetivos que para tal fin se establezcan. Este sistema dará sustento a la aplicación de las sanciones a los contratistas que así se hagan acreedores, como resultado del proceso de evaluación.
+La Presidencia, a instancia de la Dirección de Suministros, establecerá la aplicación de cualquier otra sanción por causales que no se hayan previsto en dicho procedimiento de evaluación.
+De previo a la imposición de cualquier sanción a un proveedor, se debe llevar a cabo un procedimiento administrativo que garantice el cumplimiento de las normas del debido proceso.
+(Así reformado por Acuerdo de Sesión Nº 3454 del 15 de mayo del 2000)
