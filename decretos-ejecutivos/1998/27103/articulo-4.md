@@ -1,0 +1,1 @@
+Artículo 4°—Las entidades públicas presentarán a la STAP , a más ' tardar el 16 de febrero de cada año, copia de la liquidación del presupuesto del año anterior, de conformidad con el artículo 13° de la Ley No 6821 y el 19° de la Ley No 7428-

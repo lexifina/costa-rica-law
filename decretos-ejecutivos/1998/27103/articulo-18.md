@@ -1,0 +1,1 @@
+Artículo 18.—Los recursos locales que se requieran en adición a los provenientes de fuentes externas y en caso de proyectos financiados parcialmente con empréstitos del exterior, deberán ser aportados por el ente que tenga a cargo la ejecución del proyecto.

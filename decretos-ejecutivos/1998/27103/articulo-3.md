@@ -1,0 +1,1 @@
+Artículo 3°—En relación con las partidas superfinas y no prioritarias, la Autoridad Presupuestaria (AP) actuará de conformidad con lo establecido en el artículo 4°, capítulo IH de la Ley No 6955 del 24 de febrero de 1984.

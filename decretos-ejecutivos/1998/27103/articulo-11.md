@@ -1,0 +1,1 @@
+Artículo 11.—A más tardar el 31 de julio de cada año, la STAP presentará ante la AP , los estudios de los proyectos de presupuesto con las recomendaciones sobre el cumplimiento de las directrices del año correspondiente.

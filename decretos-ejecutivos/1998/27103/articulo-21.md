@@ -1,0 +1,2 @@
+Artículo 21.—Los ministerios y las entidades públicas presentarán a MIDEPLAN. a más tardar el 31 de julio de cada año, el informe de avance sobre la ejecución de las acciones estratégicas definidas para ese año, a efecto de dar seguimiento al Plan Nacional de Desarrollo.
+No obstante lo anterior, los ministerios y entidades públicas presentarán a MIDEPLAN avances sobre la ejecución de las acciones estratégicas cuando éste lo requiera.

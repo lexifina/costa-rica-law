@@ -1,0 +1,2 @@
+Articulo 2°—Los Presupuestos Ordinarios, Extraordinarios, Modificaciones Internas y Externas, se presentarán a la STAP para su información, verificación del cumplimiento de las directrices vigentes y la emisión del respectivo dictamen cuando corresponda.
+La STAP cuando considere necesario solicitará adicionalmente a las entidades públicas el desglose y justificación de las partidas que así se requiera.

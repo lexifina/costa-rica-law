@@ -1,0 +1,1 @@
+Artículo 20.—Los ministerios y las entidades públicas presentarán á MIDEPLAN junto con la programación de las acciones estratégicas, los programas y proyectos de inversión en los respectivos formularios, que incluyen proyectos en etapa de preinversión, inicio de ejecución y ejecución.

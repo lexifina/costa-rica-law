@@ -1,0 +1,1 @@
+Artículo 5°—Los informes trimestrales de ejecución presupuestaria serán presentados durante la tercera semana siguiente a la finalización de cada trimestre y cuando la STAP lo requiera, según lo dispuesto en los artículos 12° y 13° de la Ley No 6821. Se acompañará una justificación del comportamiento de las subpartidas que muestran una variación significativa.

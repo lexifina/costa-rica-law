@@ -1,0 +1,1 @@
+Artículo 10.—Las entidades públicas deberán presentar a la STAP , antes del 1° de julio de cada año, los proyectos de presupuesto para el año siguiente con el desglose y justificación que éstos requieran.

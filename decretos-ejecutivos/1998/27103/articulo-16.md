@@ -1,0 +1,5 @@
+Artículo 16.—Cuando los ministerios, demás órganos y entidades públicas requieran créditos externos, remitirán al Consejo Nacional de Financiamiento Externo (CONAFE) lo siguiente:
+a) Autorización por parte de MIDEPLAN del inicio de negociación y del proyecto de inversión.
+b) Capacidad legal del ente para contratar créditos; borrador del contrato de préstamo; términos y condiciones financieras del crédito (tipo de operación, monto y moneda a contratar, tasa de interés, períodos de gracia y desembolso, tipo de garantía, comisiones y otros); capacidad de repago del préstamo; flujo de caja proyectado durante el período de amortización del mismo y estudio de rentabilidad del proyecto.
+CONAFE solicitará al BCCR el dictamen a que hacen referencia los artículos 7° de la Ley No 7010 y 106° de la Ley No 7558 y lo enviará a la STAP acompañado de la recomendación y la documentación señalada en los incisos a) y b) anteriores.
+La STAP preparará un informe técnico que se elevará para resolución de la AP , quien resolverá a la luz de lo dispuesto en los artículos t0° de la Ley No 6821.y 7° de la Ley No 7010.
