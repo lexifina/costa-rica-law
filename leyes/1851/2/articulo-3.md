@@ -1,0 +1,1 @@
+Art. 3. La sociedad compañia que se organice en virtud de lo dispuesto en los artículos que preceden, lo verificará dentro de cuatro meses de la publicacion de este decreto, debiendo dar principio á los trabajos en los dos meses siguientes, para que el camino pueda estar abierto en año y medio despues de comenzado.
