@@ -1,0 +1,1 @@
+Artículo 5º—De la hora límite: Sin excepción, ninguna actividad con karaoke podrá extenderse más allá de las veintitrés horas (11,00 p. m.).

@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE HEREDIA
+En sesión ordinaria Nº 4-2002, celebrada el día 13 de mayo del 2002, se acordó aprobar el punto e., donde se autoriza a la administración a realizar los trámites para la publicación definitiva del Reglamento para Karaokes, en vista de que no se ha presentado ninguna objeción. En la publicación efectuada en La Gaceta Nº 68 del día 9 de abril del 2002.
+REGLAMENTO PARA KARAOKES
+El Concejo Municipal del Cantón Central de Heredia facultado por el artículo 13 inciso c) del Código Municipal acuerda decretar el presente Reglamento de Karaoke que rige para todo el Cantón Central de Heredia.
+Artículo 1º—Objetivo: El presente Reglamento tiene como objetivo primordial regular la actividad de karaoke desarrollada en locales comerciales donde se presente este tipo de actividad, tales como salones de baile, bares, restaurantes y otros, así como en actividades privadas, que se den dentro del Cantón Central de Heredia. Siendo de acatamiento obligatorio para todas las actividades de este tipo que se realicen en el Cantón Central de Heredia.

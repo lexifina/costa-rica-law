@@ -1,0 +1,5 @@
+Artículo 4º—De las solicitudes de permiso para desarrollar actividades con karaokes: Las solicitudes deberán presentarse con no menos de ocho días hábiles de anticipación a la realización de la actividad, lo cual debe hacerse ante el Departamento de Rentas y Cobranzas de la Municipalidad, las solicitudes deberán ajustarse a los siguientes requisitos:
+a. Solicitud formal escrita a máquina o computadora, la que debe contener nombre completo, número de cédula, firma del solicitante la cual debe ser autenticada por un notario público, lugar en el que se realizará la actividad fecha y hora. En el caso de locales comerciales, la solicitud deberá de hacerla el patentado. En los casos de locales comerciales que desarrollen esta actividad en forma permanente, están obligados a realizar el trámite cada tres meses, presentando los requisitos solicitados.
+b. Autorización del Ministerio de Salud, para dicha actividad.
+c. Estar al día en el pago de impuestos municipales.
+d. Estar al día en el pago de la patente comercial.
