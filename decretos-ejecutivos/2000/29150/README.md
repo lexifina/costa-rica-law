@@ -14,3 +14,4 @@ Fija salarios mínimos que regirán en todo el país a partir del 1° de enero d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-01 | la propia norma |
+| 2 | 2001-06-27 | Decreto Ejecutivo 29633 (2001-06-27) |
