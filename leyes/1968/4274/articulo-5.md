@@ -1,0 +1,1 @@
+Artículo 5°.- Banco Nacional de Costa Rica por medio de su sucursal en la ciudad de Grecia, a cuyo cargo esta la recaudación del pago de los servicios impuestos municipales, retendrá mensualmente de esa recaudación una cantidad igual a un dozavo de la suma que la Contraloría fije como necesaria para el servicio de los bonos.
