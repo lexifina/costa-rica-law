@@ -1,0 +1,1 @@
+Artículo 2°-Los valores de las coordenadas suministradas de los linderos según el Artículo 1 antes indicado, corresponden a valores aproximados, por lo que en el campo deberán ser respetados los linderos descritos por los planos P-589925-85 y P-585415-85, que en cada caso fueron citados.

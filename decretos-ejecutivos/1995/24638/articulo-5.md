@@ -1,0 +1,1 @@
+Artículo 5°-Dichas propiedades estarán sometidos a la categoría de Refugio de Vida Silvestre durante un período de cinco años prorrogables por períodos iguales para lo cual los propietarios deberán solicitarlo con un mes de antelación a la finalización de dicho período.
