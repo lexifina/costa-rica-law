@@ -1,0 +1,1 @@
+Artículo 6°.- La supervisión y ejecución del Servicio de Fax-CORTEL estará a cargo de la Dirección de Telecomunicaciones en coordinación con la Dirección de Comercialización, ambas de la Dirección Nacional de Comunicaciones

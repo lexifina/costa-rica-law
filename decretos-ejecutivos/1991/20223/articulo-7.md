@@ -1,0 +1,1 @@
+Artículo 7°.- Unicamente se aceptarán envíos en las administraciones de la Dirección Nacional de Comunicaciones que cuenten con el equipo necesario y que aparezcan en la Guía de Servicio de Fax-CORTEL que para tal efecto publicará y mantendrá actualizada la Dirección de Comercialización.

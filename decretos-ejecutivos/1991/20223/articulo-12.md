@@ -1,0 +1,1 @@
+Artículo 12.- Para la ejecución del Servicio de Fax-CORTEL se cumplirá con las disposiciones contenidas en el presente reglamento y en las que en el futuro dicte la Dirección Nacional de Comunicaciones.

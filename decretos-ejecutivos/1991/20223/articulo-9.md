@@ -1,0 +1,1 @@
+Artículo 9°.- Queda prohibido circular por medio del Servicio Fax-CORTEL, documentos o gráficos, anónimos o no, que contenga insultos, dibujos o expresiones contrarias a la moral y buenas costumbres o que dañen la reputación de las personas. En envío circulado en otros idiomas quedará bajo exclusiva responsabilidad del remitente.

@@ -1,0 +1,1 @@
+Artículo 10.- Ninguna persona física o jurídica o de derecho público, gozará de franquicia total o parcial por la utilización del Servicio Fax-CORTEL, salvo las oficinas de CORTEL bajo las directrices que en ese sentido emita la Dirección Nacional de Comunicaciones.
