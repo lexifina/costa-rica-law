@@ -1,0 +1,3 @@
+2°- La primera reunión ordinaria de Ministros de Relaciones Exteriores será Convocada por el Gobierno de la República de Guatemala, dentro del año siguiente a la fecha en que la presente Carta entre en vigor.
+En fe de lo cual, los Ministros de Relaciones Exteriores de las Repúblicas Centroamericanas firman este documento en la ciudad de San Salvador, a los catorce días del mes de octubre de mil novecientos cincuenta y uno.
+Por Costa Rica: Mario Echandi.- Por El Salvador: Roberto E. Canessa.- Por Guatemala: Manuel Galich.- Por Honduras: J. Edgardo Valenzuela.- Por Nicaragua: Oscar Sevilla Sacasa.- Es copa fiel del original

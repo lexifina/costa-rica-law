@@ -1,0 +1,2 @@
+Disposiciones Generales
+Artículo 18.- Ninguna de las disposiciones de la presente Carta afectará el respeto y cumplimiento de las normas constitucionales de cada República, ni podrá interpretarse en el sentido de menoscabar los derechos y obligaciones de las Repúblicas Centroamericanas como miembros de las Naciones Unidas y de la Organización de Estados Americanos, ni las posiciones particulares que cualquiera de ellas hubiere asumido por medio de reservas específicas en tratados o convenios vigentes.

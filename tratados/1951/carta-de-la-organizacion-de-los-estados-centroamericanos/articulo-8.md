@@ -1,0 +1,1 @@
+Artículo 8º.- La Reunión de Ministros de Relaciones Exteriores tendrá sede rotativa, de conformidad con el siguiente orden: Guatemala, Nicaragua, El Salvador, Honduras y Costa Rica; y se celebrará en la ciudad que el Gobierno respectivo designe.
