@@ -1,0 +1,1 @@
+Artículo 2º.-El retiro de esos órganos y materiales y su utilización sólo podrán ser efectuadas por el personal especializado para practicar esas operaciones, con los medios adecuados y en los establecimientos hospitalarios o clínicos que determine el Reglamento de esta ley. El Poder Ejecutivo hará esa determinación conforme lo establece el artículo 23 de la Ley General de Salud.
