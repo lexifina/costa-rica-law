@@ -1,0 +1,6 @@
+Artículo 23.- Una vez que los presentes hayan manifestado, de manera
+libre, voluntaria y clara, su decisión de formar la asociación, se
+discutirá el proyecto de estatuto, confeccionado de conformidad con lo
+que establecen los artículo 17 de la ley, así como el 20, inciso b) y el
+30 del reglamento. Luego será sometido a votación y, para ser aprobado
+deberá serlo por mayoría de votos.

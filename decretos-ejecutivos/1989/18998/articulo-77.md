@@ -1,0 +1,5 @@
+Artículo 77.- Las asociaciones de desarrollo integral requieren la
+autorización de una Asamblea General para formar parte de una unión
+cantonal o zonal. La misma norma es aplicable a las uniones cantonales o
+zonales cuando deseen formar parte de una Federación, y para las
+federaciones cuando deseen formar parte de la Confederación Nacional.

@@ -1,0 +1,5 @@
+Artículo 96.- Corresponde también a la Dirección coordinar el
+funcionamiento de las asociaciones dentro del Plan Nacional de Desarrollo
+de la Comunidad, lo mismo que la acción de los organismos gubernamentales
+con dichas asociaciones, como un medio necesario para impulsar el
+desarrollo comunal, regional o nacional.

@@ -1,0 +1,1 @@
+Artículo 104.- Este reglamento rige a partir de su publicación.

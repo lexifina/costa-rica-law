@@ -1,0 +1,4 @@
+Artículo 70.- Es obligación del fiscal, en coordinación con el
+tesorero, presentar un inventario del patrimonio, al finalizar el período
+de la junta directiva, a fin de determinar los bienes muebles e inmuebles
+de la organización.
