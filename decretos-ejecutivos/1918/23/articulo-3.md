@@ -1,0 +1,1 @@
+Artículo 3°- Los valores de las boletas municipales serán de (¢ 4.00) cuatro colones y de (¢ 1.00) un colón, según sean aplicables al destace de ganado vacuno o cerdoso. En toda boleta municipal, al ser expedida, se indicarán el número y fecha de la nacional correspondiente.
