@@ -1,0 +1,1 @@
+Artículo 26.- Autorízase al Comité Provincial de la Cruz Roja Costarricense de Alajuela, para comprar, exenta de todo tipo de impuestos, tasas, sobretasas, remesas, derechos de inscripción, impuestos consulares y de muellaje, una unidad para el servicio el cantón central de Alajuela.

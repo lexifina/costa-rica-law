@@ -1,0 +1,1 @@
+Artículo 58.- Autorízase a Fertilizantes de Centro América, S. A., para traspasar a título gratuito u oneroso, la finca Nº 149.408, tomo 2177. folio 253, asiento 1 a favor únicamente de la Cooperativa de Caficultores de Palmares R.L. El traspaso lo hará la Notaría del Estado libre de todo tributo nacional y municipal y de gastos notariales.

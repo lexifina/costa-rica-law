@@ -1,0 +1,1 @@
+Artículo 68.- Declárase de utilidad pública, con todas las prerrogativas que tal declaratoria confiere, a la Asociación "Federación de Organizaciones Voluntarias, (F.O.V), cédula jurídica número 3-00204567-02".

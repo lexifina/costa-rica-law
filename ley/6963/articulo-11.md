@@ -1,0 +1,1 @@
+Artículo 11.- Se autoriza al Ministerio de Educación Pública para el pago de lo establecido en el artículo 118 del Código de Educación, al personal administrativo y de servicio de las instituciones educativas.

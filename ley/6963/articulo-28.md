@@ -1,0 +1,1 @@
+Artículo 28.- Autorízase al Banco Nacional de Costa Rica para otorgar un crédito a la Cooperativa Aragón R. L., para la compra del Ingenio Atirro de Turrialba, el cual excederá el seis por ciento de su capital y reservas, de conformidad con lo dispuesto en el artículo 85, inciso b) de la Ley Orgánica del Banco Central de Costa Rica.
