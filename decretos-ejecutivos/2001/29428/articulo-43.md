@@ -1,0 +1,1 @@
+Artículo 43.—Del aviso previo. El Ministerio deberá comunicar al funcionario con al menos dos meses de anticipación el acto administrativo que acuerde la rotación. El comunicado deberá indicar el puesto que ocupará.

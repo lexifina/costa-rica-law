@@ -1,0 +1,1 @@
+Artículo 34.—Designación. Las designaciones de Cónsul Honorario se harán en estricta conformidad con el ordenamiento jurídico nacional e internacional vigente. Los Cónsules Honorarios no tendrán derecho a beneficiarse de los privilegios que eventualmente le reconozca el Estado receptor a esta clase de funcionarios.

@@ -1,0 +1,1 @@
+Artículo 75.—De los ascensos de acuerdo al escalafón. El escalafón será utilizado para decidir cuáles funcionarios en cada categoría tendrán derecho a ascensos una vez que se produzcan puestos vacantes en la categoría inmediata superior, los cuales deberán llenarse de conformidad con lo dispuesto en el artículo 18 del Estatuto.

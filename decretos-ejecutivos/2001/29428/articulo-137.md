@@ -1,0 +1,1 @@
+Artículo 137.—Régimen Jurídico supletorio. En todo aquello que no se encuentre reglamentado se observará supletoriamente el procedimiento administrativo establecido en la Ley General de Administración Pública.

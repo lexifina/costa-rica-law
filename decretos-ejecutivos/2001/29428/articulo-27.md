@@ -1,0 +1,1 @@
+Artículo 27.—De los traductores oficiales y agregados al protocolo. Las personas que brindan servicios al Ministerio en forma ocasional y sin remuneración, tales como los traductores oficiales y agregados al protocolo, se regirán por disposiciones especiales y no forman parte del Servicio Exterior.

@@ -1,0 +1,2 @@
+Artículo 88.—Del programa para pruebas de ascensos. El Instituto del Servicio Exterior de Costa Rica "Manuel María de Peralta" determinará el programa básico de las materias sobre las cuales se harán las pruebas para los ascensos, en coordinación con la Comisión Calificadora. Asimismo, desarrollará y programará para cada categoría los cursos de capacitación y actualización sobre las materias.
+De igual forma establecerá y administrará sistemas de educación e información a distancia para los funcionarios que presten sus servicios en el exterior.

@@ -1,0 +1,1 @@
+Artículo 49.—De los servidores con más de treinta años de servicio. Cuando un funcionario sea rotado al servicio interno después de treinta años de servicio, el Ministerio no podrá volverlo a destinar en el exterior sin su consentimiento antes de ocho años.

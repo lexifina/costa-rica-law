@@ -1,0 +1,1 @@
+Articulo 135.—Del Procedimiento. En caso de aplicarse las sanciones de suspensión y destitución, previamente deberá concederse al funcionario que se trate, un plazo prudencial que fijara la Comisión Calificadora, a fin de que exprese lo que tenga que decir en su descargo, ofrezca sus pruebas y las haga evacuar. Ese no excederá de tres meses.

@@ -1,0 +1,1 @@
+Artículo 38.—Del nombramiento. El Director General del Servicio Exterior evaluará a los candidatos con fundamento a los requisitos anteriores y recomendará al Ministro la designación de los nuevos cónsules honorarios una vez verificada su idoneidad.

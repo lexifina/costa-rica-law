@@ -1,0 +1,2 @@
+Artículo 8º—De las directrices. Los funcionarios del Servicio Exterior sólo podrán solicitar o recibir instrucciones o directrices del Ministerio.
+Toda instrucción del Ministerio a las Misiones en el exterior será dirigida al jefe de la Misión, el cual será el responsable ante éste por su ejecución y cumplimiento. Las instituciones publicas que requieran de la asistencia y/o cooperación de algún funcionario del Servicio Exterior deberá solicitarlo por medio del Ministerio.

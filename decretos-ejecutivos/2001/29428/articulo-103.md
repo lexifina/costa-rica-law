@@ -1,0 +1,1 @@
+Artículo 103.—De las vacaciones en servicio interno. Los funcionarios del servicio interno tendrán derecho, según establece el artículo 24 del Estatuto, a un periodo de vacaciones anual de acuerdo con el tiempo servido, de acuerdo a lo dispuesto en el Estatuto del Servicio Civil.

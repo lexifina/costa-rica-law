@@ -1,0 +1,1 @@
+Artículo 132.—Del Despido. El despido sin responsabilidad patronal procede cuando los funcionarios del Servicio Exterior incurran en alguna de las causales previstas en el Código de Trabajo o en el Estatuto del Servicio Exterior y su Reglamento, la Ley de la Administración Financiera de la República y demás normativa que regula la materia.

@@ -1,0 +1,1 @@
+Artículo 81.—De los informes para el ascenso. Para la valoración de la conducta, la importancia de sus servicios y el lugar y condiciones en que éstos fueron prestados, se deberán valorar los dos últimos informes anuales sobre sus labores que ha rendido su superior inmediato.

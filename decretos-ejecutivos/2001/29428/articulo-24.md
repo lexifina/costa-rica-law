@@ -1,0 +1,1 @@
+Artículo 24.—Del promedio en los exámenes. No podrá efectuarse el nombramiento en comisión de ningún aspirante que no logre obtener al menos 65 puntos sobre 100 en el promedio de los exámenes mencionados en los artículos 21 y 23 de este Reglamento.

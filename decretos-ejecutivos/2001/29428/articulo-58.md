@@ -1,0 +1,1 @@
+Articulo 58.—Remisión a la Comisión Calificadora. La Dirección del Servicio Exterior remitirá a la Comisión Calificadora del Servicio Exterior la evaluación anual de funcionarios de carrera para lo que corresponda.

@@ -1,0 +1,2 @@
+Artículo 13.—De las ausencias. Los Jefes de Misiones Diplomáticas no podrán ausentarse del Estado receptor, sin la previa autorización del Ministro. Deberá informar al Ministerio, en toda ocasión, el nombre del funcionario que actuará como encargado de negocios a.i. durante su ausencia.
+Los Jefes de Misión podrán autorizar a los funcionarios bajo sus órdenes a ausentarse del Estado receptor, justificando inmediatamente al Ministerio sobre estas licencias.

@@ -1,0 +1,1 @@
+Artículo 53.—De los gastos. El Ministerio otorgará un monto por gastos de traslado a los funcionarios que sean trasladados de una misión u oficina consular en el exterior, a otra misión u oficina consular en el exterior, siempre que éste implique un cambio de domicilio. Este monto será equivalente a un mes de sueldo del que recibirá el funcionario en el nuevo destino.

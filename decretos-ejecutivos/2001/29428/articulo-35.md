@@ -1,0 +1,1 @@
+Artículo 35.—Del requisito de honorabilidad e idoneidad. Para el nombramiento de funcionarios consulares deberá demostrarse previamente su honorabilidad y su idoneidad para el ejercicio de la función consular, de acuerdo con lo dispuesto en los siguientes artículos.

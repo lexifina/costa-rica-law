@@ -1,0 +1,1 @@
+Artículo 70.—De la interrupción. El período de prueba no podrá ser interrumpido salvo por lo establecido en los artículos 11 y 42 del Estatuto del Servicio Exterior de la República. Los funcionarios en período de prueba tendrán los mismos derechos y deberes establecidos en el Estatuto para los funcionarios de la carrera del Servicio Exterior.

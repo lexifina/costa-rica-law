@@ -1,0 +1,2 @@
+Artículo 44.—Rotación a cargos en la Sede. Los funcionarios de la carrera diplomática nombrados en cargos en el exterior, no podrán ser rotados a la planta interna sin su consentimiento antes de cumplir dos años de servicio en el exterior, o a otro cargo en el exterior que implique cambio de ciudad, antes de cumplir un año en la sede respectiva.
+En el caso de funcionarias en estado de embarazo, la rotación que implique cambio de ciudad o de país no podrá ejecutarse sin su consentimiento, después del sexto mes de embarazo y antes de que el niño cumpla cinco meses de edad.

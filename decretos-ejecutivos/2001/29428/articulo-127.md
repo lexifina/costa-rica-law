@@ -1,0 +1,1 @@
+Artículo 127.—De la sanción por acoso u hostigamiento sexual. Las faltas por acoso u hostigamiento sexual cometidas por funcionarios, se sancionarán de conformidad con la Ley Nº 7476 "Ley contra el Hostigamiento Sexual en el Empleo y la Docencia" y su reglamento, en concordancia con lo dispuesto en los artículos subsiguientes.

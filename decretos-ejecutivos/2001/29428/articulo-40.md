@@ -1,0 +1,1 @@
+Artículo 40.—De la evaluación del desempeño. El Ministerio estudiará y evaluará periódicamente el desempeño de los funcionarios consulares honorarios del Servicio Exterior. El Poder Ejecutivo podrá hacer reordenamientos en el servicio consular honorario, de conformidad con las necesidades del Servicio.

@@ -1,0 +1,1 @@
+Artículo 42.—Del cuadro anual de rotación. La Dirección General del Servicio Exterior formulará el cuadro anual de rotación, según los plazos contemplados en el Estatuto, el escalafón de la carrera del Servicio Exterior y el presente reglamento.

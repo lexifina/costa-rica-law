@@ -1,0 +1,1 @@
+Artículo 17.—Prohibición de conceder rango diplomático. En ningún caso podrá atribuirse carácter o rango diplomático al personal auxiliar, administrativo o de servicio de la Sede Central del Ministerio ni de las misiones diplomáticas u oficinas consulares en el exterior.

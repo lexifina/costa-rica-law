@@ -1,0 +1,2 @@
+Artículo 57.—Competencia. La evaluación de los Embajadores será realizada por el Ministro, previa recomendación de cada uno de los Directores del Ministerio, debiendo remitir informe al interesado y al Consejo de Gobierno.
+Los demás funcionarios serán evaluados por los superiores inmediatos según la estructura jerárquica establecida, debiendo remitirse esta evaluación a la Dirección del Servicio Exterior.

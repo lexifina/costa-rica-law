@@ -1,0 +1,1 @@
+Transitorio.—El pago de los gastos de traslado, mencionado en los artículos 50 y 53 de este Reglamento, entrará en vigencia una vez incorporadas las partidas correspondientes en el Presupuesto del Ministerio.

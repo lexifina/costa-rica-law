@@ -1,0 +1,1 @@
+Artículo 136.—Del fallo. El Ministro de Relaciones exteriores con base en el fallo de la Comisión Calificadora, impondrá la sanción que corresponda o la levantara en caso de que la sentencia condenatoria fuera revocada.

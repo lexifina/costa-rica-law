@@ -1,0 +1,1 @@
+Artículo 63.—Del nombramiento consular. Los funcionarios de carrera pertenecientes a la primera categoría diplomática podrán ser nombrados Cónsules Generales de Primera Clase, con su consentimiento expreso.

@@ -1,0 +1,1 @@
+Artículo 100.—Normas supletorias. En lo no previsto por el Estatuto del Servicio Exterior y el presente Reglamento, el funcionamiento de la Comisión se regirá por las disposiciones de la Ley General de Administración Pública relativas a los órganos colegiados.

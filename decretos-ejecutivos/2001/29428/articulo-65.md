@@ -1,0 +1,1 @@
+Artículo 65.—De la asignación de labores. Los funcionarios de carrera servirán indistintamente en el servicio interno, en el servicio diplomático y en el consular. Para asignarles sus destinos, el Ministro deberá tomar en consideración el perfil académico-profesional de los funcionarios, su desempeño y las calificaciones anuales que reciban.

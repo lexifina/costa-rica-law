@@ -1,0 +1,1 @@
+Artículo 124.—De la sanción por incumplimiento. Los funcionarios del servicio exterior serán sancionados por el incumplimiento de las normas legales y administrativas en el ejercicio de sus funciones, sin perjuicio de la responsabilidad civil y/o penal en la que pudieran incurrir.

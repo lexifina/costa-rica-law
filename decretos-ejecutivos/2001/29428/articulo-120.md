@@ -1,0 +1,1 @@
+Artículo 120.—De los gastos por incapacidad permanente. Cuando un funcionario del servicio exterior resultare incapacitado permanente-mente, el Ministerio sufragará los costos de traslado del funcionario, de los parientes establecidos en el artículo 27 del Estatuto y del menaje. Lo anterior según el reglamento que emita al respecto la Contraloría General de la República.

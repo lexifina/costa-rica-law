@@ -1,0 +1,4 @@
+Artículo 79.—De los requisitos para el ascenso. Los funcionarios solamente podrán ascender en la carrera a la categoría inmediata superior y una vez cumplidos los siguientes requisitos:
+a) Haber estado en servicio activo y continuo por lo menos dos años en la categoría a la que se pertenece al momento de solicitar el ascenso, o tres años en casos de servicios no continuos; y
+b) Estar en el desempeño de un cargo en alguno de los servicios de la carrera.
+La valoración de los otros criterios estipulados en el párrafo segundo del artículo 17 del Estatuto, tales como la conducta, capacidad, méritos y antigüedad del aspirante en su categoría, la importancia de sus servicios y el lugar y condiciones en que éstos fueron prestados, se regirá de acuerdo con las reglas que se establecen en los artículos siguientes.

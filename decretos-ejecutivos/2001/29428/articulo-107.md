@@ -1,0 +1,6 @@
+Artículo 107.—De las licencias ordinarias. Previa aprobación de la Dirección General del Ministerio, y del superior inmediato del funcionario, la Dirección General del Servicio Exterior podrá otorgar licencias con goce de salario de media jornada o de jornada completa, para que los funcionarios del Servicio Diplomático o Consular asistan a seminarios, becas, programas de capacitación u otras actividades académicas, cuya duración no exceda de tres meses. En el caso de funcionarios del Servicio Interno la autorización debe estar firmada por el superior inmediato y por el Viceministro.
+En casos excepcionales, cuando se trate de cursos de aprendizaje o perfeccionamiento de idiomas, que resulten indispensables para el buen desempeño del funcionario, la licencia de media jornada podrá ser concedida hasta por seis meses. En todo caso, la concesión de la licencia requerirá:
+a) Que a juicio de su superior inmediato, el funcionario merece, por su buen desempeño y conducta, la oportunidad de mejorar profesional y/o académicamente.
+b) Que los estudios capaciten al funcionario para desempeñar mejor su cargo o para otros cargos del servicio.
+c) Que la conducta del funcionario dé motivo para esperar de él un buen aprovechamiento de sus estudios.
+d) Que no se afecte el buen funcionamiento de la oficina.
