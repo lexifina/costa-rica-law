@@ -14,3 +14,4 @@ Crea Refugio Nacional de Vida Silvestre Gandoca-Manzanillo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-10-29 | la propia norma |
+| 2 | 1994-03-21 | Decreto Ejecutivo 23069 (1994-03-21) |
