@@ -1,0 +1,1 @@
+Art. 2°-Las Municipalidades de todos los cantones de la República procurarán que éstos estén dignamente representados, y, al efecto, exhortarán á sus habitantes para que cooperen al mayor éxito de su cantón.

@@ -1,0 +1,2 @@
+Art. 8°-Nómbrase para componer la enunciada comisión á los señores don Mariano Montealegre, don Manuel Carazo, don Manuel Aragón, don José C. Zeledón, don Leopoldo Montealegre, don Juan Cooper, don Juan Rojas, don Lesmes Jiménez, don Juan Francisco Echeverría, don Enrique Villavicencio y don Anastasio Alfaro.
+Dado en el Palacio Presidencial, en San José, á los quince días del mes de setiembre de mil ochocientos ochenta cinco. BERNARDO SOTO. -El Secretario de Estado en el despacho de Fomento, C. DURÁN.
