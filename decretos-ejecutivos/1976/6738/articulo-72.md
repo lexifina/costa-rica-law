@@ -1,0 +1,1 @@
+Artículo 72.—Cuando se trate de visitas especiales al Centro, tales como grupos de estudiantes, periodistas, entidades de bienestar o filantropía y otros semejantes, deberá contarse con un permiso escrito que se gestionará ante el Director del Centro. En dicha licencia se hará constar la lista e identidad de las personas que efectuarán la visita, el día y la hora de la misma.

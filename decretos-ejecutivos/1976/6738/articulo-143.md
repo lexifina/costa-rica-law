@@ -1,0 +1,1 @@
+Artículo 143.—Los Servicios Auxiliares comprenderán las Unidades de Economato, Mantenimiento y Bodega, las que se subdividirán en distintas secciones. Será titular de cada una de las Unidades un encargado el cual dependerá directamente del Administrador y dará cuenta ante él de sus gestiones.

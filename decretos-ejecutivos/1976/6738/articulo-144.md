@@ -1,0 +1,1 @@
+Articulo 144.—Cada uno de estos Servicios Auxiliares contará con el trabajo de un grupo de internos, además del personal de planta, que será remunerado con la misma escala de salarios que la de los demás internos.

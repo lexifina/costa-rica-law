@@ -1,0 +1,1 @@
+Artículo 36.- (Derogado por el artículo 45 del Reglamento Valores Custodia Fondo Ayuda Internos Sistema PeninteciarioNacional, aprobado medinate decreto ejecutivo N° 18706 del 13 de diciembre de 1988)

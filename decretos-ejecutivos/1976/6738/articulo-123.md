@@ -1,0 +1,1 @@
+Artículo 123.—El Director o los Coordinadores de Etapa, en su caso, notificarán al interno de la falta leve que se le atribuye y le oirán en defensa. Comprobada la falta, le impondrán la sanción correspondiente.

@@ -1,0 +1,1 @@
+Articulo 84.—En caso de enfermedad grave del interno, de su traslado a una institución de salud o de fallecimiento, el Centro informará de inmediato a la esposa o concubina, al pariente más cercano o a cualquier otra persona designada previamente por el interno.

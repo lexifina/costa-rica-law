@@ -1,0 +1,3 @@
+CAPITULO VII
+De las Relaciones con el Exterior
+Artículo 61.—Con el propósito de contribuir al mantenimiento de los vínculos que unen al interno con la comunidad, a la estabilidad y desarrollo de su núcleo familiar y a su reincorporación a la sociedad, los internos podrán comunicarse periódicamente, y con intensidad progresiva a medida que avance su tratamiento, con su familia y con amigos de buena reputación, tanto por correspondencia como mediante visita. El régimen general de relaciones con el exterior queda sujeto al control de los Servicios de Trabajo Social, de Orientación y Seguridad, conforme a las atribuciones de los mismos.

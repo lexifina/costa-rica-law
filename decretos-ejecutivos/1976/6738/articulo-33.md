@@ -1,0 +1,1 @@
+Articulo 33.—La organización del trabajo penitenciario, sus métodos, modalidades, jornadas de labor, horarios, medidas preventivas de seguridad e higiene, cumplirán las exigencias técnicas y las normas establecidas en el Código de Trabajo y Leyes Sociales.

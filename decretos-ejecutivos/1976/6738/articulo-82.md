@@ -1,0 +1,1 @@
+Artículo 82.—La correspondencia oficial y no oficial será cursada hacia y desde el exterior, exclusivamente, a través de la Secretaría del Centro. Ningún otro funcionario ni visitante está autorizado para expedir cartas o paquetes de los internos.

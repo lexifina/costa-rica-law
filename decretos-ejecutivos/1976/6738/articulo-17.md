@@ -1,0 +1,1 @@
+Artículo 17.—Como norma general, no se realizará el estudio de los Contraventores en el Centro de Diagnóstico. Estos ingresarán directamente al Régimen Especial de Contraventores. Sólo en casos de reincidencia frecuente se llevará a cabo el Diagnóstico, con el objeto de establecer pautas de tratamiento que permitan asegurar la adaptación social del Contraventor reincidente.

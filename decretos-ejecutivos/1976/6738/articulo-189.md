@@ -1,0 +1,1 @@
+Artículo 189.—El informe de cada una de las reuniones del área será sometido a conocimiento de la Dirección, a más tardar, cuarenta y ocho horas después de efectuada la reunión. También, deberá confeccionarse el libro de actas respectivo, que permanecerá en la Secretaría Administrativa a disposición del Director.

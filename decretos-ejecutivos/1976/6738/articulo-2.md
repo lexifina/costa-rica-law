@@ -1,0 +1,1 @@
+Articulo 2°—La ejecución de las sanciones y medidas privativas de libertad tienen por objeto promover la rehabilitación del interno dentro de la sociedad. El tratamiento está orientado, desde el principio, a preparar al interno para las condiciones existentes fuera de los Centros de Adaptación Social, sin perjuicio de la seguridad pública.

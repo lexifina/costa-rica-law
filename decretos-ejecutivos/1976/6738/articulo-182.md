@@ -1,0 +1,1 @@
+Artículo 182.—El Consejo de Evaluación conocerá de las solicitudes de remisión de penas y se pronunciará sobre ellas, por mayoría absoluta de los miembros presentes. Elevará su decisión en términos de recomendación, a la Dirección del Centro para el trámite correspondiente.

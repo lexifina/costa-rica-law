@@ -1,0 +1,1 @@
+Artículo 103.—Los internos tienen la responsabilidad de comunicar a las autoridades del Centro, las irregularidades que se presenten, respetando los horarios de audiencia y comportándose en la debida forma durante las mismas.

@@ -1,0 +1,1 @@
+Artículo 21.—Toda persona que ingrese al Centro de Adaptación Social La Reforma, recibirá el tratamiento educacional que corresponda, de acuerdo a la evaluación pedagógica que se le realice. Dicho tratamiento abarcará tanto la educación académica como la vocacional y los demás aspectos enunciados en el artículo anterior.

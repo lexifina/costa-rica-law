@@ -1,0 +1,3 @@
+Articulo 48.—Para facilitar la comunicación de los internos con las autoridades, éstos eligirán en cada una de las Etapas del Sistema Progresivo, a partir de la Etapa Cerrada de Mediana Seguridad, a un Delegado y a un Subdelegado. Los internos propondrán una terna para cada uno de los cargos al Consejo de Evaluación del Tratamiento quien escogerá al Delegado y Subdelegado.
+El Consejo tiene la potestad de rechazar las ternas presentadas por los internos. La determinación de la terna que deben enviar los internos se realizará mediante votación directa y secreta organizada y supervisada por el Coordinador de Etapa.
+El Delegado y Subdelegado de los internos serán elegidos por un período de tres meses sin posibilidad de reelección.

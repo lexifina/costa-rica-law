@@ -1,0 +1,1 @@
+Articulo 89.—Los internos tienen derecho a ser informados de los reglamentos, procedimientos, horarios y del régimen general de la vida en el Centro. A este fin, recibirán un instructivo general y un instructivo de Etapa, que les serán debidamente comentados. Si el interno es analfabeto se le proporcionará verbalmente la información contenida en los instructivos.

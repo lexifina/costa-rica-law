@@ -1,0 +1,2 @@
+Artículo 47.—Los internos procurarán convertirse en factores de adaptación social para sus compañeros observando, en todo momento, una conducta ejemplar. Considerarán como obligación importante estimular el buen comportamiento de sus compañeros en el trabajo, la educación y la convivencia.
+En las ocasiones en que se presenten dificultades para el avance del tratamiento de alguno de los internos, sus compañeros deberán comunicarse con el Coordinador de Etapa para recabar el apoyo de la Institución.

@@ -1,0 +1,1 @@
+Articulo 93.—Los internos tienen derecho a comunicarse por correspondencia, confidencialmente y sin restricciones con los Tribunales de Justicia sobre asuntos tales como la legalidad de su condena, cuestiones civiles, casos penales pendientes y condiciones de su tratamiento.

@@ -1,0 +1,1 @@
+Artículo 139.—Para ser Administrador del Centro se requiere tener experiencia en organización y administración de personal. De preferencia, deberá poseer un título universitario que lo habilite en ese campo.

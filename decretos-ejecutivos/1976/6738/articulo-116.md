@@ -1,0 +1,1 @@
+Artículo 116.—Se considera reiteración de falta grave cuando en una misma Etapa un interno comete más de una falta grave. Esta reiteración transforma la falta grave en falta de extrema gravedad con la consecuente regresión.

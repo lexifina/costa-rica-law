@@ -1,0 +1,1 @@
+Articulo 54.—Ningún local destinado al alojamiento de los internos podrá ser ocupado por un número superior a su capacidad. Las camas serán para uso individual y la ropa de cama será mantenida convenientemente y mudada con regularidad a fin de asegurar su limpieza.

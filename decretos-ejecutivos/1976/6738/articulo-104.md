@@ -1,0 +1,1 @@
+Artículo 104.—Los internos tienen la responsabilidad de presentar a las autoridades del Centro sus peticiones y quejas antes de recurrir a las autoridades leí exterior, manteniendo así el respeto a la línea jerárquica establecida.
