@@ -1,0 +1,1 @@
+Art 8° El auto motivado de prisión, el de sobreseimiento y cualquiera otra resolución que haya de fundarse en resultancias del proceso, los hechos y circunstancias que para el efecto se tengan por probados, y en general, toda resolución sujeta a recurso debe ser motivado en la forma establecida por el artículo 86 del Código de Procedimientos Civiles.

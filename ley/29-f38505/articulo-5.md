@@ -1,0 +1,1 @@
+Art 5° El auto motivado de prisión se transcribirá íntegramente al superior inmediato. Si no fuere apelado podrá el Tribunal reverlo de oficio y con este fin pedirá enseguida, si fuere el caso, la revocatoria que proceda.

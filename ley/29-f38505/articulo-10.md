@@ -1,0 +1,1 @@
+Art 10° Si la causa seguida contra una persona por denuncia o acusación concluyere por sobreseimiento o sentencia absolutoria, el tribunal en el auto o sentencia, mandará abrir proceso por denuncia o acusación calumniosa, si los autos dieren mérito para ello.

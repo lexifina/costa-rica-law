@@ -1,0 +1,1 @@
+Art 15° Quedará cancelada la fianza cuando el fiador presente al Juez certificación de haber ingresado el reo en la cárcel respectiva. Para ese fin, a solicitud del fiador, dará orden de captura del reo.
