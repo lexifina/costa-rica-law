@@ -1,0 +1,1 @@
+Art. 20. -Copia de ese inventario, y nota de las entregas de especies hechas durante el curso del presente año económico a los administradores de cotos del final del artículo 1S. Igual conocimiento pasará el Contador Mayor al mismo Jefe de la Contabilidad, del saldo por existencia en especies, acreditado en el último año económico en las cuentas de aquellos empleados

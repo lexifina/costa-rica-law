@@ -1,0 +1,1 @@
+Art. 16. -Cuando de la visita resultare un alcance de más de cien pesos contra el empleado, el visitador lo suspenderá en el acto, nombrando interinamente al que deba subrogarle, y dando cuenta en seguida al Secretario de Hacienda, para lo que haya lugar.

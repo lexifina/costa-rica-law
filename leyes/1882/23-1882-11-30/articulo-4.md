@@ -1,0 +1,1 @@
+Art. 4°-De cada una de las entregas de valores hechas al Jefe de Sección, el Subsecretario y el Fiscal de Hacienda darán conocimiento al Tenedor de Libros del Gobierno, para que las anote en la cuenta respectiva.

@@ -1,0 +1,1 @@
+Art. 18,-Para los efectos del artículo 12, el Tenedor de Libros de la Contabilidad Nacional llevará cuenta separada á cada uno de los empleados de que habla el artículo 9°, como también al Jefe de Sección de la Secretaria de Hacienda, y pasará al Inspector General nota de aquellas cuentas en que se note alcance, atendida la existencia certificada.

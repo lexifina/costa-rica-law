@@ -1,0 +1,1 @@
+Art. 13.-La visita se hará constar en un libro especial que debe llevar el visitador, quien dará informe del resultado de ella al Secretario de Hacienda, y copia del acta respectiva al empleado, si la pidiere.
