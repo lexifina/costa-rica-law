@@ -1,1 +1,0 @@
-Artículo 4°—La Comisión Calificadora a que se refiere el artículo 8° del presente Reglamento recomendará al Poder Ejecutivo las modificaciones a la lista de artículos contenida en el artículo 3°, anexo 5 de la ley.
