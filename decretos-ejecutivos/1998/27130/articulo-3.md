@@ -1,0 +1,1 @@
+Artículo 3°-El pago del beneficio que aquí se establece estará condicionado a que el funcionario desempeñe sus labores al servicio efectivo de los programas señalados y sus plazas estén cubiertas por el presupuesto de los mismos.
