@@ -1,0 +1,1 @@
+TransitorioVI.- Los pagos realizados por el Instituto de Tierras y Colonización, de conformidad con lo que autoriza el artículo 5º de la ley Nº 6574 del 9 de abril de 1981, no podrán ser transferidos a los beneficiarios del proyecto denominado La Fuente.
