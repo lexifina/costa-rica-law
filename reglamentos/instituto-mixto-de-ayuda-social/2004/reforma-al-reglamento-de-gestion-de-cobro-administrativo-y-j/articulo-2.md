@@ -1,0 +1,1 @@
+Artículo 2º—Se adiciona el artículo N° 6 del Reglamento en el punto N° 10 para que se incluyan las siguientes funciones: “proponer al Consejo Directivo las políticas sobre administración, percepción y fiscalización de tributos que deberá implementar el Instituto Mixto de Ayuda Social”.
