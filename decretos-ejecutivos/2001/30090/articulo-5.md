@@ -250,38 +250,39 @@ Problemas de erosión.
 Abastecimiento de agua para poblados.
 Control biológico de plagas.
 Zonas propensas a sufrir desastres naturales.
-5.2. ÁREA DE CONSERVACIÓN LA AMISTAD PACÍFICO
-5.2.1. SUBREGIÓN BUENOS AIRES
-5.2.1.1. CRITERIOS DE PROTECCIÓN
-a. SECTOR: Fila Brunqueña (Colinas, Pilas, Jalisco, Cedral), Reservas indígenas Boruca, Térraba y Rey Curré, Changuena (Congo, Paraíso, Cantú). OBSERVACIONES: Se debe excluir las áreas que cubrirán posible represa de Boruca.
-CRITERIO:
+5.2. Área de conservación La Amistad Pacífico
+5.2.1. Subregión Buenos Aires
+5.2.1.1. Criterios de Protección
+a. Sector: Fila Brunqueña (Colinas, Pilas, Jalisco, Cedral), Reservas indígenas Boruca, Térraba y Rey Curré, Changuena (Congo, Paraíso, Cantú).
+Criterio:
 Establecimiento de corredores biológicos. Conexión Fila Costeña a Cerro Paraguas.
-b. SECTOR: Cuenca de los ríos: Sonador, Volcán. Convento, Cacao, Angel, Cañas, Ceibo, Singri, Sarai, Platanares, Mosca, Cabagra, Piedra, Guineal, Platanillal, Limoncito. OBSERVACIONES: Se debe excluir las áreas que cubrirán posible represa de Boruca.
-CRITERIO:
+b. Sector: Cuenca de los ríos: Sonador, Volcán. Convento, Cacao, Angel, Cañas, Ceibo, Singri, Sarai, Platanares, Mosca, Cabagra, Piedra, Guineal, Platanillal, Limoncito.
+Criterio:
 Protección del recurso agua.
-c. SECTOR: Reservas Indígenas Ujarrás, Salitre, Cabagra, Térraba, Boruca, Rey Curré. OBSERVACIONES: Se debe excluir las áreas que cubrirán posible represa de Boruca.
-CRITERIO:
-Biodiversidad y Reservas Indígenas
-d. SECTOR: Sectores de áreas de amortiguamiento del Pila (parte del distrito Biolley, Buenos Aires, Volcán. Incluye la Reserva Indígena de Ujarrás,Salitre y Cabagra, distrito de Potrero Grande. OBSERVACIONES: Se debe excluir las áreas que cubrirán posible represa de Boruca.
-CRITERIO:
+c. Sector: Reservas Indígenas Ujarrás, Salitre, Cabagra, Térraba, Boruca, Rey Curré.
+Criterio:
+Biodiversidad y Reservas Indígenas.
+d. Sector: Sectores de áreas de amortiguamiento del Pila (parte del distrito Biolley, Buenos Aires, Volcán). Incluye la Reserva Indígena de Ujarrás, Salitre y Cabagra, distrito de Potrero Grande.
+Criterio:
 Terrenos de propiedad privada, ubicados dentro de áreas silvestres protegidas y áreas colindantes.
-e. SECTOR: Sector del área de amortiguamiento del parque Internacional La Amistada, parte alta de Cordoncillo de Talamanca, Reserva Indígena Cabagra y Salitre.
-CRITERIO:
+e. Sector: Sector del área de amortiguamiento del parque Internacional La Amistada, parte alta de Cordoncillo de Talamanca, Reserva Indígena Cabagra y Salitre.
+Criterio:
 Terrenos de aptitud forestal de alto riego de incendios forestales.
-f. SECTOR: Reserva Indígena de Ujarrás, Salitre y Cabagra,Tres Colinas, Buenos Aires, parte alta de Volcán, Changuena.
-CRITERIO:
+f. Sector: Reserva Indígena de Ujarrás, Salitre y Cabagra, Tres Colinas, Buenos Aires, parte alta de Volcán, Changuena.
+Criterio:
 Capacidad de uso de suelo VI, VII y VIII, con signos evidentes de degradación.
-g. SECTOR: Parte alta de área del Río Ceibo, Río Volcán
-CRITERIO:
+g. Sector: Parte alta de área del Río Ceibo, Río Volcán.
+Criterio:
 Zonas de interés arqueológico contra amenazas hidrometeorológicas.
-5.2.1.2. CRITERIOS DE REFORESTACIÓN
-a. SECTOR: A) Potrero Grande (Los Angeles, La Puna, Pueblo Nuevo, El Jorón, Javillo y Potrero Grande). B) Buenos Aires (Bolas, Ceibo Buenos Aires). C) Volcán (Cordoncillo, Santa Marta y San Rafael, Volcán). OBSERVACIONES: Se debe excluir las áreas que cubrirán posible represa de Boruca.
-CRITERIO:
+5.2.1.2. Criterios de reforestación
+a. Sector: A) Potrero Grande (Los Angeles, La Puna, Pueblo Nuevo, El Jorón, Javillo y Potrero Grande). B) Buenos Aires (Bolas, Ceibo Buenos Aires). C) Volcán (Cordoncillo, Santa Marta y San Rafael, Volcán).
+Criterio:
 Concentración de bloques de reforestación.
-b. SECTOR: Potrero Grande, Changuena, Volcán Buenos Aires, Pilas y Colinas. OBSERVACIONES: Se debe excluir las áreas que cubrirán posible represa de Boruca.
-CRITERIO:
-Áreas desprovistas de bosque.
-Terrenos con potencial forestal.
+b. Sector: Potrero Grande, Changuena, Volcán Buenos Aires, Pilas y Colinas.
+Criterio:
+· Áreas desprovistas de bosque.
+· Terrenos con potencial forestal
+(Así reformados los puntos 5.2, 5.2.1, 5.2.1.1. y 5.2.1.2, por el artículo 1 del Decreto Ejecutivo N° 30322 de 3 de abril del 2002)
 5.2.2. SUBREGIÓN CARTAGO
 5.2.2.1. CRITERIOS DE PROTECCIÓN
 a. SECTOR: Zona Protectora Río Sombrero y Navarro, y otras ubicadas en el cantón de El Guarco que influyen dentro de las cuencas. OBSERVACIONES: Toma de agua potable y producción de energía eléctrica.

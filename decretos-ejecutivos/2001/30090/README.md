@@ -14,3 +14,4 @@ Determina la distribución del dinero que el Estado asignó para el pago de serv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-02-14 | la propia norma |
+| 2 | 2002-04-03 | Decreto Ejecutivo 30322 (2002-04-03) |
