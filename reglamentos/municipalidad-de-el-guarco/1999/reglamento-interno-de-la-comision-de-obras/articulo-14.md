@@ -1,0 +1,1 @@
+Artículo 14.—En todo dictamen de la comisión de obras deberán indicarse las sesiones de comisión en que se trató el asunto, así como el dictamen aprobado si es unánime o por mayoría y, en su caso, el dictamen de minoría, con una exposición sucinta de los razonamientos que motivan cada dictamen.

@@ -1,0 +1,1 @@
+Artículo 11.—Si en algún momento surgieren conflictos de competencia, entre la Comisión de Obras y otra u otras comisiones, el Presidente de la Comisión elevará el asunto al Presidente Municipal, quien decidirá cuál comisión deberá rendir el dictamen respectivo.

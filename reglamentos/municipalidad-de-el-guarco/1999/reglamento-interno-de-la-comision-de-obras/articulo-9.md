@@ -1,0 +1,1 @@
+Artículo 9º—El plazo que tendrá la Comisión de Obras para rendir sus dictámenes o resolver las solicitudes que se les planteen, será de diez días hábiles contados a partir de la fecha del acuerdo en que se les remita el asunto o a partir de la presentación de la respectiva solicitud. Sin embargo, este plazo podrá ser prorrogado diez días más en asuntos de compleja resolución.

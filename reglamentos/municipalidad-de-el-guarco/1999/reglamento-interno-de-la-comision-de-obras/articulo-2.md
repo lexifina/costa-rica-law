@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión permanente de obras se reunirá ordinariamente, una vez por semana, el día, el lugar y a la hora que sus miembros determinen en acuerdo que se tomará al efecto. Las sesiones en ningún caso serán remuneradas.

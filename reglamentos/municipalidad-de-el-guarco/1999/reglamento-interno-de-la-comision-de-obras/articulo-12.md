@@ -1,0 +1,1 @@
+Artículo 12.—Para facilitar su trabajo, la Comisión de Obras queda autorizada para conformar subcomisiones de trabajo. Estas serán reguladas internamente por la Comisión en lo que concierne a integración, trabajo, reuniones, etc.

@@ -1,0 +1,1 @@
+Artículo 10.—Cuando se trate de asuntos cuya magnitud tenga trascendencia cantonal, la Comisión de Obras se inhibirá del conocimiento del asunto y lo pasará al Concejo Municipal para que sea este el que resuelva en definitiva.
