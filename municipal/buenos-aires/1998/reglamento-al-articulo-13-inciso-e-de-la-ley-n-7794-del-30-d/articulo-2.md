@@ -1,0 +1,1 @@
+Artículo 2°—Los egresos de la Municipalidad de Buenos Aires, se rigen por las estipulaciones del artículo 3° del Código Municipal, que dice: las municipalidades no podrán efectuar nombramientos, ni adquirir compromisos económicos, si no existiere subpartida presupuestaria que ampare el egreso o cuando la subpartida de egresos que corresponda a otra.
