@@ -1,0 +1,1 @@
+Artículo 2°—Los inmuebles —estatales y privados— comprendidos dentro de los linderos señalados en el artículo anterior quedan sometidos obligatoriamente al Régimen Forestal. En consecuencia, toda labor a realizar deberá de previo contar con la autorización de la Dirección General Forestal.
