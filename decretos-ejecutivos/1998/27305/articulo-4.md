@@ -1,0 +1,1 @@
+Artículo 4°—Quedan a salvo las competencias del Ministerio de Agricultura y Ganadería para supervisar dichos registros y para lo cual podrá accesarlos en cualquier momento y requerir los informes necesarios, los cuales estará obligada la asociación a proporcionar y diligenciar en el menor plazo posible.

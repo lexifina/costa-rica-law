@@ -1,0 +1,13 @@
+N°27305-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA,
+Con fundamento en las facultades que les confiere el artículo 140 incisos 3) y 18) de la Constitución Política, artículo 4 de la Ley No 1693 del 26 de noviembre de 1953 y el artículo 3 inciso 17 de la Ley N° 7060 del 25 de mayo de 1987 y la Ley N° 7064 del 29 de abril de 1987, y,
+Considerando:
+1°—Que mediante decreto ejecutivo N° 19400-MAG del 29 de noviembre de 1989, publicado en "La Gaceta" N° 11 del 16 de enero de 1990, se traspasó el Registro Genealógico de Ganado de este Ministerio, con la totalidad de sus registros de las diferentes especies y razas a las diferentes asociaciones de productores y criadores de ganado, debidamente inscritas.
+2°—Que el citado decreto estableció que si alguna asociación de productores o criadores de ganado decide hacer la inscripción de su raza de ganado, separándose de la asociación inscriptora original, deberá solicitar la autorización correspondiente al Ministerio de Agricultura y Ganadería y demostrar la idoneidad para realizar esa actividad.
+3°—Que el decreto ejecutivo N° 23685-MAG del 16 de setiembre de 1994, publicado en "La Gaceta" N° -194 del 13 de octubre de 1994, modificó el artículo 4 del decreto ejecutivo N° 19400 antes citado, estableciendo que las asociaciones de productores y criadores, debidamente inscritos y que acepten el traslado del Registro Genealógico de Ganado, tendrán las facultades necesarias para organizar y promulgar sus propios procedimientos de inscripción, así como establecer las tarifas de inscripción de conformidad con los costos que razonablemente se determinen.
+4°—Que el ganado Simbrah y Simmental están en la actualidad siendo registrados por la Asociación de Criadores de Ganado Cebú de Costa Rica.
+5°—Que el día 3 de junio de 1996 se fundó la Asociación de Criadores de Ganado Simbrah y Simmental de Costa Rica y tiene por cédula jurídica N° 3-002-193958.
+6°—Que dicha asociación tiene como propósito entre otros el coadyuvar a la cría, multiplicación, mejora y depuración del ganado vacuno de la raza Simmental y Simbrah, así como colaborar en la erradicación de zoonosis que pudiera afectar dicha raza. Por tanto,
+DECRETAN:
+Artículo 1°—Autorizar a la Asociación de Criadores de Ganado Simbrah y Simmental de Costa Rica, cédula de persona jurídica N° 3-002- 193958, para que en adelante, bajo su responsabilidad, se haga cargo del funcionamiento del Registro Genealógico de Ganado Simbrah y Simmental de Costa Rica, de conformidad con lo establecido en el decreto ejecutivo N° 19400-MAG del 29 de noviembre de 1989 y sus reformas.

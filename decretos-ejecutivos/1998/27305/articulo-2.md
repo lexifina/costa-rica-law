@@ -1,0 +1,1 @@
+Artículo 2°—Conforme a la autorización otorgada, la asociación indicada deberá dictar los reglamentos respectivos que regulen en forma clara e idónea, los procedimientos generales de inscripción, así como definirá las tarifas de cobro por los servicios de registro, en un término perentorio no mayor a noventa días hábiles, contados a partir de la publicación del presente decreto.
