@@ -1,0 +1,1 @@
+Art 2° Esa misma libertad no autoriza a los productores para vender por menor, sin patente, ni en otros lugares que en los que expresamente permita el Gobernador en cumplimiento de lo prevenido en el decreto LVIII de 12 de diciembre de 1872 y el artículo 1° del Reglamento sobre administración y recaudación de rentas de la Comarca de 18 de noviembre de 1874.
