@@ -1,0 +1,2 @@
+Artículo 11.—Cualquier auxilio o subsidio no previsto en esta reglamentación podrá ser acordado por la Junta Directiva del Colegio, para ser pagado de sus otros fondos y recursos o bien, con carácter de contribución extraordinaria por los miembros del Colegio, si en uno y otro casos hubiere autorización legal o reglamentaria para disponerlos.
+Dado en la Casa Presidencial.—San José, a los veintiocho días del mes de febrero de mil novecientos cincuenta y tres.

@@ -1,0 +1,1 @@
+Artículo 3°—La totalidad de los aportes a que se refiere el artículo 1° de este Reglamento, deberá ser invertida en valores de fácil realización a un tipo de interés no menor del seis por ciento anual.

@@ -1,0 +1,1 @@
+Artículo 6°—Tiene por objeto el Fondo de Mutualidad y Subsidios, auxiliar por una sola vez con la suma de un mil colones a la familia del miembro que fallezca, quedando autorizada la Junta Directiva para que, si los recursos lo permiten, le pague sin trámite alguno, inmediatamente después del deceso del miembro.

@@ -1,0 +1,1 @@
+Artículo 10.—En adición al auxilio ya mencionado de un mil colones, se establece, a cargo de todos los miembros del Colegio, una cuota extraordinaria obligatoria, de diez colones, que se pagará a la muerte de cualquiera de los miembros del Colegio, destinada a ser entregada, conforme se vaya cobrando, a los familiares del miembro fallecido.

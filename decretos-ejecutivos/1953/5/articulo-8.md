@@ -1,0 +1,1 @@
+Artículo 8°—El monto del Fondo de Mutualidad y Subsidios deberá ser revisado cada cinco años para verificar, con vista de los resultados de la revisión del período precedente, que los recursos del mismo serán suficientes para el pago del auxilio aquí establecido, tomando como base una vida promedio de setenta años.

@@ -1,0 +1,1 @@
+Artículo 5°—Los miembros de la Junta Directiva del Colegio responderán personalmente y solidariamente de las pérdidas ocasionadas por su negligencia o falta de prudencia en la administración de estos fondos. No incurrirán en esta responsabilidad aquellos miembros que no hubieren aprobado la operación que causó la pérdida.
