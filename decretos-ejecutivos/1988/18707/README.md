@@ -14,3 +14,4 @@ Crea comisión para el Fortalecimiento del Sector Cooperativo (FOSECOOP)
 | --- | --- | --- |
 | 1 | 1988-12-12 | la propia norma |
 | 2 | 1989-04-17 | Decreto Ejecutivo 18939 (1989-04-17) |
+| 3 | 1989-06-20 | Decreto Ejecutivo 19068 (1989-06-20) |
