@@ -1,1 +1,1 @@
-Artículo 5°—La documentación originada en el trámite de incorporación llevará el sello del Colegio respectivo.
+Artículo 5º—La documentación requerida para el trámite de incorporación será sellada y foliada por el Colegio miembro respectivo.
