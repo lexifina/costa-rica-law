@@ -1,6 +1,7 @@
 De las Prestaciones en Dinero
 Artículo 35°.El Seguro de Enfermedad comprende el pago de subsidios en dinero que se otorgarán de acuerdo con las siguientes clausulas:
-1) El subsidio en dinero se pagará únicamente cuando la enfermedad produzca incapacidad para el trabajo, debidamente declarada por los médicos de la Caja o por los Médicos del Sistema Médico de Empresa, durante la jornada laboral. El dicho o constancia del trabajador, del patrono o del médico que haya atendido al paciente en forma privada, carecen de valor para la determinación del número de días de incapacidad.
+1) El subsidio en dinero se pagará únicamente cuando la enfermedad produzca incapacidad para el trabajo, debidamente declarada por los médicos de la Caja, por los médicos del Sistema Médico de Empresa o de otros sistemas o proyectos especiales aprobados por la Junta Directiva, durante la jornada laboral. El dicho o constancia del trabajador, del patrono o del médico que haya atendido al paciente en forma privada, carecen de valor para la determinación del número de días de incapacidad.
+(Así reformado el inciso anterior en sesión N° 6241 del 11 de agosto de 1988)
 2) El subsidio se cubrirá durante todo el periodo de la contingencia.
 3) No se pagará el subsidio durante los tres primeros días primeros días de incapacidad.
 Cuando se trate de incapacidades sucesivas y continuas provenientes de enfermedades diversas, sólo se impondrá el no pago de los tres primeros días correspondientes a la primera incapacidad.
