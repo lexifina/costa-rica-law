@@ -1,0 +1,1 @@
+Artículo 10.- Para agilizar el suministro de bienes y servicios y demás programas de trabajo, la Tesorería Nacional ampliará a un monto mínimo de quinientos mil colones (¢ 500,000.00) los fondos disponibles para operar la Caja Chica del Ministerio de Obras Públicas y Transportes.

@@ -1,0 +1,1 @@
+Artículo 11.- Las labores de construcción que realice el Ministerio de Obras Públicas y Transportes se harán preferentemente por el sistema de contrato por licitación, o concurso de antecedentes, procurando que los contratos se otorguen al mayor número de personas o de empresas nacionales dedicadas a la construcción o prestación de servicios profesionales.

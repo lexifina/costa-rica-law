@@ -1,5 +1,11 @@
-Articulo 2°-EI Ministerio de Transportes tiene por objeto:
-a) Construir, mantener y mejorar las redes de carreteras y caminos del país y regular y controlar el transporte por carretera;
-b) Construir, mantener y mejorar los aeropuertos nacionales. y regular y controlar el transporte aéreo, por medio de la Junta de Aviación Civil, a que se refiere la Parte III, Sección I del Decreto-Ley N° 762 de 18 de octubre de 1949;
-c) Controlar y regular el transporte ferroviario; y
-d) Construir, mantener y mejorar los puertos de altura, los puertos de cabotaje y vías fluviales. La administración de vías de aguas interiores estará a cargo de entidades locales y en el caso de existir instituciones especializadas en construcción y administración portuaria, el Ministerio de Transportes únicamente colaborará con tales instituciones en el cumplimiento de sus fines. En los puertos de Limón y Puntarenas se mantiene la situación jurídica existente en relación con los muelles; sin embargo, el Ministerio de Transportes se interesará en el estudio y solución de los problemas portuarios de ambos lugares.
+Artículo 2º.- El Ministerio de Obras Públicas y Transportes tiene por objeto:
+a) Planificar, construir y mejorar las carreteras y caminos. Mantener las carreteras y colaborar con las Municipalidades en la conservación de los caminos vecinales. Regular y controlar los derechos de vía de las carreteras y caminos existentes o en proyecto. Regular, controlar y vigilar el tránsito y el transporte por los caminos públicos.
+b) Planificar, construir, mejorar, mantener, operar y administrar los aeropuertos nacionales y sus anexidades. Regular y controlar el transporte y el tránsito aéreo y sus derivaciones por medio de una Junta de Aviación Civil y por las dependencias administrativas que se estimen convenientes.
+c) Planificar, construir, mejorar y mantener los puertos de altura y cabotaje, las vías y terminales de navegación interior, los sistemas de transbordadores y similares. Regular y controlar el transporte marítimo internacional, de cabotaje y por vías de navegación interior.
+d) Regular, controlar y vigilar los transportes por ferrocarriles y tranvías.
+e) Regular y controlar el transporte continuo de mercaderías a granel,
+f) Planificar, regular, controlar y vigilar cualquier otra modalidad de transporte no mencionada en este artículo.
+g) Construir, mejorar y mantener las edificaciones y demás obras públicas no sujetas a disposiciones legales especiales y vigilar que se les dé el uso adecuado. La planificación de estas obras se hará conjuntamente con los organismos a los cuales incumbe su funcionamiento, operación y administración.
+h) Planificar, construir, mejorar y conservar obras de defensa civil, para controlar inundaciones y otras calamidades públicas.
+i) Planificar y efectuar cartas geográficas, hidrográficas y mapas de la República. Estudiar, investigar y laborar sobre aspectos geográficos, hidrográficos, geofísicos y de otra índole que sean complemento de esas funciones.
+j) Planificar, regular, controlar y prestar los servicios técnicos de catastro.

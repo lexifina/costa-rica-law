@@ -1,1 +1,2 @@
-Articulo 5°-Esta ley rige a partir de su publicación.
+Artículo 5º.- Para los efectos de la presente ley, se considerará que las edificaciones para la enseñanza primaria, media o vocacional comprende, además de la planta física y demás obras complementarias, lo bienes muebles accesorios que la complementan.
+Ninguna persona o entidad pública o privada podrá construir edificaciones de esta naturaleza sin la previa aprobación del Ministerio de Obras Públicas y Transportes.
