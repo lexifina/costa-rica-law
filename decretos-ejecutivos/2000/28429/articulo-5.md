@@ -1,0 +1,1 @@
+Artículo 5º—Deróguese el Decreto Ejecutivo Nº 7 del 22 de abril de 1954, modificado por el Decreto Ejecutivo Nº 17 del 4 de agosto de 1955, el Nº 9 del 30 de setiembre de 1957, el Nº 2 del 29 de enero de 1958 y el Decreto Nº 27053-MAG-MEIC del 10 de setiembre de 1998.
