@@ -1,0 +1,11 @@
+ARTICULO 96.- Si hubiere omisión de procedimiento en el presente
+capítulo, la Dirección General estará autorizada para aplicar por analogía
+las normas del Código de Trabajo y del Código de Procedimientos Civiles y
+para idear el que sea más conveniente al caso, a fin de que pueda
+obtenerse sumariamente la mejor información de los hechos. Las actas que
+levante el Oficial Encargado de Despidos de la Dirección General y los
+informes que rinda en materia de sus atribuciones, tendrán el valor de
+pruebas muy calificadas y sólo se prescindirá de ellas si hubiese otras
+que de modo evidente revelen la inexactitud, falsedad o parcialidad del
+acta o informe. Dicho Oficial tendrá las mismas facultades de un Juez
+Instructor para hacer comparecer testigos, juramentarlos e interrogarlos.

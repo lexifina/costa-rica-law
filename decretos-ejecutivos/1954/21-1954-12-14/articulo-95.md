@@ -1,0 +1,5 @@
+ARTICULO 95.- Todos los Directores y Jefes de la Administración
+Pública están obligados a atender con la debida presteza las
+comunicaciones por medio de las cuales el Tribunal o la Dirección General
+requiera información de las dependencias públicas o el suministro de datos
+precisos.

@@ -1,0 +1,5 @@
+ARTICULO 13.- Para todos los efectos legales, se entenderá que los
+contratos que celebre el Poder Ejecutivo con los servidores interinos o de
+emergencia, de conformidad con lo dispuesto en este capítulo, serán por
+tiempo determinado o a plazo fijo, y que los mismos terminarán sin ninguna
+responsabilidad para el Estado al cesar en sus funciones.
