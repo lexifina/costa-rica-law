@@ -1,3 +1,91 @@
 ARTICULO 21.- Reglamento
 El Poder Ejecutivo reglamentará esta ley en un plazo máximo de dos
 meses, contados a partir de su entrada en vigencia.
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I.- El aporte del Instituto Costarricense de Puertos del
+Pacífico, aludido en el inciso a) del artículo 14 de esta ley, cesará
+cuando el capital semilla del Fondo ascienda a la suma de dos mil
+millones de colones (¢2.000.000.000,00), calculados en moneda constante
+hacia el futuro, según determinación de la Contraloría General de la
+República, tomando como punto de partida la fecha de entrada en vigencia
+de la presente ley.
+TRANSITORIO II.- Durante los primeros diez años de vigencia de la
+presente ley, contados a partir del 1° de enero del año inmediato
+siguiente a su entrada en vigor, Asignaciones Familiares girará
+directamente el uno por ciento (1%) del presupuesto de caja del Fondo de
+Desarrollo Social y Asignaciones Familiares, con estricto apego a la Ley
+No. 5662, de 23 de diciembre de 1974, para el financiamiento de becas y
+otros programas de estudios universitarios, técnicos y de posgrado de
+estudiantes de los veinticuatro distritos con población más vulnerable o
+pobre de todo el país. Estos distritos serán definidos, en forma bianual,
+por el Ministerio de Planificación y Política Económica, de conformidad
+con la metodología y los parámetros objetivos que se publicarán mediante
+Decreto en La Gaceta, previa consulta con todas las municipalidades del
+país.
+Las sumas correspondientes a los distritos de la provincia de
+Puntarenas, por la aplicación de lo establecido en el párrafo anterior,
+serán trasladadas directamente por Asignaciones Familiares al Fondo a fin
+de cumplir con lo establecido en esta ley. Para estos propósitos, se le
+trasladará al Fondo una suma equivalente al porcentaje que represente el
+número de habitantes de los distritos de esta provincia, calculado en
+proporción con el total de habitantes de los citados veinticuatro
+distritos más pobres del país, determinado por la Dirección General de
+Estadística y Censos.
+Los restantes recursos, correspondientes a los distritos más pobres
+o vulnerables del resto del país, serán transferidos por Asignaciones
+Familiares al fondo especial que por esta ley se crea, denominado Fondo
+Nacional de Becas de Solidaridad Social, que se abreviará Fondo de Becas
+Solidaridad. Este será una persona de derecho público, adscrita al
+Ministerio de Educación Pública, como órgano de máxima desconcentración,
+tendrá su sede en uno de los distritos beneficiarios del Fondo, según lo
+establezca el Poder Ejecutivo mediante reglamento.
+En todo lo no regulado de modo expreso en este transitorio, se
+aplicará íntegramente lo dispuesto por la presente ley en sus artículos
+8, 13, 19, 21 y lo relativo a la vigencia. Asimismo, se aplicarán
+referidos al Fondo de Becas Solidaridad y a su carácter nacional, los
+artículos 1, 3, 7, 10, 11, 12, 15 y 18. A su vez, serán aplicables los
+artículos 4 y 17. En todo caso, las disposiciones de los artículos 6, 12,
+20 y el transitorio I de esta ley no se aplicarán a lo dispuesto en el
+presente transitorio.
+El Consejo Directivo del Fondo de Becas Solidaridad estará integrado
+por siete miembros, quienes deberán residir de manera permanente en uno
+de los distritos vulnerables y deberán mantener esta situación mientras
+ejerzan el cargo, en los términos definidos por el reglamento de esta ley
+y de conformidad con la siguiente distribución:
+a) Tres representantes municipales, quienes deberán ser educadores,
+activos o pensionados, con diez años de experiencia docente como
+mínimo. Se elegirá un representante por cada distrito vulnerable.
+b) Un representante de la educación técnica parauniversitaria,
+escogido entre los directores de los colegios universitarios de
+los cantones donde existan distritos vulnerables.
+c) Un representante del Ministerio de Educación Pública,
+seleccionado entre los directores regionales de los distritos
+vulnerables.
+d) Un representante del Instituto Nacional de Aprendizaje, escogido
+entre los directores de sedes regionales de los distritos
+vulnerables.
+e) Un representante designado por el Consejo Nacional de Rectores,
+entre los jerarcas de cada una de las sedes regionales de los
+centros universitarios de los distritos vulnerables.
+En la elección de los representantes mencionados en los incisos b),
+c), d) y e), el órgano elector conocerá de las ternas que enviarán el
+Consejo Directivo de los colegios universitarios, el Ministro de
+Educación, el Presidente Ejecutivo del Instituto Nacional de Aprendizaje
+y el Consejo Nacional de Rectores, según el caso, para escoger al
+representante respectivo.
+El Consejo Directivo será nombrado por las municipalidades de los
+distritos vulnerables. Para tal efecto, cada Concejo Municipal escogerá
+un representante a quien deberá instruir sobre el procedimiento de
+designación. Los representantes conformarán el órgano elector del Consejo
+Directivo del Fondo, que deberá cumplir con su cometido según lo
+establezca el reglamento. Igual procedimiento deberá seguirse para llenar
+las vacantes.
+En concordancia con lo prescrito en este transitorio, el Poder
+Ejecutivo, por medio de los Ministerios de Planificación y Política
+Económica, Educación Pública y Trabajo y Seguridad Social, mediante
+reglamento, publicará un texto, armónico y consolidado, de las normas
+regentes de la organización y el funcionamiento del Fondo Nacional de
+Becas de Solidaridad Social. En particular, dispondrá las normas
+financieras que se requieran para garantizar a los becarios, hasta el
+final de sus estudios, el mantenimiento del beneficio otorgado.
+Rige a partir de su publicación.
