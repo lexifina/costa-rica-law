@@ -1,0 +1,1 @@
+Artículo 4º—Para los efectos de determinar los componentes salariales adicionales al salario base al que se refieren los artículos 1 y 2 anteriores, la Autoridad Presupuestaria deberá aplicar los mismos componentes salariales autorizados por el Poder Judicial, para quienes ocupen puestos clasificados en las clases homólogas del Tribunal Registral Administrativo.
