@@ -12,3 +12,4 @@ Reforma Relación de Puestos Docentes en Centros Educativos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-05-13 | la propia norma |
+| 2 | 1980-05-13 | SINALEVI (sin norma nombrada) |
