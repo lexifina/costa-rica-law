@@ -1,0 +1,1 @@
+Artículo 26.—De la vigencia. Este Reglamento rige a partir de su publicación. No obstante, la Autoridad Reguladora concertará con los prestadores del servicio de acueducto y alcantarillado el plazo en el cual entrarán a regir las normas de este Reglamento que dependan para su aplicación de la aprobación del Modelo de Regulación Tarifaria.

@@ -1,0 +1,1 @@
+Artículo 18.—Control técnico. El control técnico lo realizará la Autoridad Reguladora mediante un autocontrol del prestador y un monitoreo secundario independiente, correspondiéndole a éstos recopilar los datos de los parámetros seleccionados, y probar la veracidad, confíabilidad y razonabilidad de esos datos, mediante la certificación previa de una firma de auditoría.

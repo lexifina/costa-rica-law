@@ -1,0 +1,1 @@
+Artículo 7º—Indicadores de cumplimiento. Para medir los resultados con respecto a los parámetros y metas previstas, se utilizan indicadores de cumplimiento, cuyos valores serán definidos en el Modelo de Regulación Sectorial y estarán sujetos a la política económica del país.
