@@ -1,0 +1,43 @@
+MUNICIPALIDAD DE TIBAS
+REGLAMENTO PARA LA CREACIÓN DE LA POLICÍA
+MUNICIPAL EN EL CANTÓN DE TIBAS Y EL CÓDIGO DE
+CONDUCTA
+NOTA DE SINALEVI: Por tener articulado propio, diferente del reglamento que lo emite, se ha creado una subnorma de este reglamento, el cual contiene el texto del Código de Conducta de la Municipalidad de Tibás, con la debida separación de sus artículos, para verlo debe buscar bajo el número RM- 0 del 07/10/1998, y entre los resultados seleccionar el que se distingue con RM-0-A del 07/10/1998
+La Policía Municipal
+La seguridad ciudadana es obra de todos, y por ello los gobiernos locales deben dedicarse al tema de la seguridad, uno de los más directos intereses vecinales, ya que las Municipalidades en el pasado han contribuido al logro de los derechos y libertades individuales y colectivas, las que están recogidas en nuestra Constitución.
+Hablamos hoy de la Policía Municipal, en el pasado mediante acuerdo Ejecutivo N° 44 del 9 de setiembre de 1924, Título II, Capítulo III, se creó y denominó la Agencia Principal de Policía Municipal. Se habla hoy de control y regulación de tránsito, en el pasado esta misma Ley en el Capítulo II, artículo XIII decía:
+“Es competencia de la Municipalidad vigilar el uso vecinal de las vías públicas y dictar las medidas necesarias tendientes a lograr que el tránsito de vehículos y peatones fuera fácil, cómodo y seguro.”
+Dado lo antes mencionado podemos ver claramente que la Municipalidad no busca la administración de lo que no ha tenido, sino la autonomía de su gestión para poder ofrecer, justa, eficiente y eficazmente un servicio de Policía cercana al cuidado en labores fundamentalmente preventivas.
+Polivalencia:
+El acercamiento profundo y permanente a la población, el estrecho contacto con ella y el trato amable y respetuoso que ha de proporcionar a la misma, engendrar en sí todo tipo de servicios, de los que esta Policía no podrá inhibirse, bajo ningún concepto, de cuantas anomalías, peticiones de auxilio, de información, etc., se originen o demanden los ciudadanos en el normal desarrollo de sus vivencias es función de la Policía Municipal.
+El policía municipal debe ser un trabajador social práctico que aliente al ciudadano cuando acuda a él en busca de ayuda o consejo, conducta que le facilitará la cooperación de éste cuando sea necesario.
+Fundamento Legal para su Creación
+El Código Municipal en su artículo 4, inciso c), dice que uno de los cometidos de las Municipalidades es la de administrar y prestar los servicios públicos municipales, debiendo entenderse que esto debe hacerse mediante una acción coordinada con las autoridades y entidades nacionales.
+En este sentido por mandato Constitucional es llamado el municipio, preferentemente, a prestar los servicios de interés local. Los artículos 6 y 7 del Código Municipal establecen que, mediante el debido concierto con las demás administraciones estatales, podrán las municipalidades asumir conjuntamente o exclusivamente, las atribuciones sobre la administración de servicios o realizaciones de obras de interés público local. Esta actividad local se dirigirá a la consecución de cualesquiera obras y servicios que tengan por objeto el fomento de los intereses y la satisfacción de los ideales de la comunidad. La razón de ser de una Policía Municipal en Tibás consiste en el mantenimiento de la ley y el orden, la regulación de actividades lícitas y lo que es más importante prestar ayuda a todo el que la necesite.
+Así las cosas la creación de la Policía Municipal en Tibás quedaría legítimamente constituida por cuenta del Gobierno Local.
+Concepto de Seguridad Ciudadana
+Implica prevención y auxilio, bajo una función particular, lo que se denomina prevención y disuación primaria, en cuyo desarrollo la policía tiene un papel fundamental.
+En este nivel de seguridad ciudadana que afecta de manera muy particular a la función de auxilio al ciudadano, es donde la policía tiene o debe tener un campo, sino exclusivo enormemente amplio de competencias específicas.
+En el pasado, la asistencia de seguridad al ciudadano era un cometido del Municipio, aún para las postrimerías del siglo XIX, dicha actividad se encontraba a cargo de los ayuntamientos y pasó a ser controlada por el Estado por falta de recursos económicos en la Municipalidad.
+Esta visión del pasado nos sintetiza la capacidad de los ayuntamientos en la integración de los intereses de las comunidades, aspecto que es de trascendental importancia para los efectos del anteproyecto de la creación de un Cuerpo Policial a cargo de la Municipalidad de Tibás.
+Tibás no es un cantón descendente ni estacionario, crece desde diferentes factores, sociales, culturales, económicos, etc., transformándose en una región donde desde el campo de la seguridad se necesitan cambios para el mantenimiento de comunidades ordenadas y pacíficas.
+La razón de ser de los Municipios es la de prestar servicios, y como auténtica empresa al servicio de los intereses de las comunidades debe funcionar para el bienestar común de sus representados.
+La Constitución Política vigente en su artículo 169 señala que la administración de los intereses y servicios locales en cada cantón estará a cargo del Gobierno Municipal. En ningún momento la Municipalidad desea relegar a un segundo plano las labores tan importantes que ejecutan, a saber, los entes estatales encargados de velar por la seguridad y el orden público, caso contrario, apegada a la legislación vigente hoy la Municipalidad de Tibás desea asumir atribuciones en debido concierto con las encargadas autoridades en esa materia.
+Con base en los anteriores conceptos, y
+Considerando:
+I.—Que el Concejo Municipal trasladó a esta Comisión moción que pretende la creación de una Policía Municipal para el cantón de Tibás.
+II.—Que luego de estudiar el asunto por varias semanas, y tras las necesarias deliberaciones la Comisión llego a la conclusión que ante el grave problema de la inseguridad ciudadana en el país, y en particular en este cantón, es necesaria la creación de esta policía, bajo los lineamientos que se indicarán en los considerandos siguientes.
+III.—Que la policía que se crea es de eminente corte civilista.
+IV.—Que esta policía iniciará sus funciones, una vez que se hayan efectuado los estudios financieros y de factibilidad necesarios, en el distrito de San Juan, y siguiendo el cronograma que elaborará el Alcalde se extenderá a Llorente, Cuatro Reinas, Colima, Cinco Esquinas y León Trece, en ese orden, debiendo operar en todo el cantón a la mayor brevedad posible.
+V.—La policía se financiará mediante una tasa que este Concejo fijará dentro de los tres meses siguientes a la aprobación de este dictamen, y a propuesta del Alcalde, para lo cual tomará en cuenta 1 as diferencias propias de las casas de interés social, las demás viviendas, el comercio y la industria, según su volumen. Dentro de los próximos dos meses a la aprobación de este acuerdo el Alcalde someterá la tasa a imponer a la Comisión ahora dictaminadora, la cual dará su informe dentro de las tres semanas siguientes al Concejo, el cual tendrá dos semanas para votar el asunto.
+VI.—Para el inicio de la Policía se autoriza al Alcalde el hacer los estudios y negociar un préstamo adreferendum, el cual sólo podrá ser aprobado en definitiva por el Concejo de conformidad con la ley.
+VII.—La policía será: Preventiva, de Tránsito, de Vialidad y cualquiera otra que en el futuro el Alcalde y el Concejo conjuntamente decidan implementar. Para lo anterior se establecerán los departamentos policiales necesarios de conformidad con los reglamentos.
+VIII.—Esta policía que ahora se crea deberá coordinar su acción con los entes policiales de los poderes Ejecutivo y Judicial, y otras policías municipales.
+I..—La Dirección Administrativa de la Municipalidad y los jerarcas de la policía municipal coordinarán con otros entes policiales la capacitación de los policías y demás personal afín. Por tanto,
+SE ACUERDA:
+Crear la Policía Municipal de Tibás conforme a lo indicado en los nueve considerandos de este acuerdo. Así mismo se aprueba el reglamento adjunto.
+REGALMENTO DEL DEPARTAMENTO
+.. DE LA POLICÍA MUNICIPAL
+: CAPITULO NUMERO 1
+Fines y funciones
+Artículo 1°—Con fundamento en los artículos 4 inciso c), 6,7 y 74 del Código Municipal, y los artículos 169 y 170 de la Constitución Política, la Municipalidad de Tibás promulga el presente reglamento de la Policía Municipal de Tibás, a través del cual el Departamento de Policía Municipal (DPM), también conocido como Policía Municipal (PM), es un cuerpo especial de vigilancia y seguridad que, con carácter esencialmente civil, contribuye a mantener el orden público en el cantón de Tibás.

@@ -1,0 +1,1 @@
+Artículo 38°—La integración de dichos comités será efectuada por el Concejo Municipal de ternas que propongan conjuntamente el Jefe del Departamento y el Alcalde, y luego de escuchar el criterio del respectivo Concejo de Distrito. Su funcionamiento será acordado por el Concejo Municipal.

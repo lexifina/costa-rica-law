@@ -1,0 +1,1 @@
+Artículo 32°—Las vacaciones, permisos, licencias se regirán por lo establecido en el Código Municipal y Reglamento Autónomo de Servicio. Estos días habrán de solicitarse con un plazo mínimo de cuatro días de antelación y se concederán siempre que el servicio no se halle en mínimo riesgo o se encuentre en una situación especial, por riguroso orden de petición.

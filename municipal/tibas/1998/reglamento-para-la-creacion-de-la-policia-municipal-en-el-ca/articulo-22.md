@@ -1,0 +1,1 @@
+Artículo 22°—El policía procurará evitar la comisión de delitos, faltas e infracciones y denunciará cuantas vea cometer. Informará de cuantas deficiencias observe en el funcionamiento o conservación de los bienes y servicios municipales.

@@ -1,0 +1,1 @@
+Artículos 35°—Los Policías Municipales tendrán derecho a que la Municipalidad suscriba una póliza de riesgos profesionales que cubra los riegos de invalidez permanente o muerte. Estos derechos serán transmitidos a los causahabientes en litigio sucesorio o por designación de beneficiarios.

@@ -1,0 +1,1 @@
+Artículo 41°—En todo aquello no previsto en el presente reglamento se aplicará, supletoriamente, La Ley de Policía, el Código Municipal, la Ley General de Administración Pública, el Reglamento Autónomo de Servicio de la Municipalidad de Tibás y el Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 34°—Los Policías Municipales tendrán derecho a que su defensa, en asuntos judiciales surgidos a raíz del cargo, les sea provista gratuitamente por la Municipalidad de Tibás, ya sea en servicio profesionales internos o externos.
