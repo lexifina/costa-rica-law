@@ -1,0 +1,1 @@
+Art 9° Son responsables por todos los instrumentos, materiales, etc., que han sido confiados a su cuidado y por lo mismo has de remitir mensualmente por medio del Ingeniero de acción o de asistencia, a la Dirección general, un inventario de todas aquellas propiedades.
