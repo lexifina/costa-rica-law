@@ -806,7 +806,8 @@ S 77 28 W | 460.98 | 204 400 | 590 000
 Se sigue aguas abajo por la Quebrada Jamari hasta su unión con el río Pacuare en coordenadas N 204 840, E 588 900. Se continúa aguas abajo por el río Pacuare hasta el punto de origen de la presente descripción en coordenadas N 207 E 589 000.
 Área de la Reserva: 7 439 Ha. 6 875 m2.
 (Así adicionada la Reserva Indígena de Nimari-Bukeri anterior por el artículo 2° del decreto ejecutivo N° 7267 del 9 de agosto de 1977. Posteriormente mediante el numeral 5° del decreto ejecutivo antes indicado, se estableció que la Reserva Indígena de Nimari-Bukeri es parte integrante de la Reserva Indígena de Chirripó y sus representantes serán integrados a la admiración de dicha Reserva; la Reserva será inscrita en el Registro de la Propiedad nombre de la misma comunidad indígena cabecar de Chirripó, pero como finca distinta (finca 2 Chirripó).
-RESERVA INDÍGENA DE-COCLES
+RESERVA INDÍGENA DE-COCLES(*)
+(*) (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 16568 del 25 de setiembre de 1985, se estableció que la Reserva Indígena de Cocles constituye en adelante una reserva independiente de la Reserva Indígena Bribrí de Talamanca, con el nombre oficial de "Reserva Indígena de Cocles".)
 La Reserva Indígena de Cocles se encuentra en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Amubri 36 44 IV y Sixaola 36 44 I.
 (Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 7736 del 20 de setiembre de 1977)
 La Reserva se localiza como sigue:
