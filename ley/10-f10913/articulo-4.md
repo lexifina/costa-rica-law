@@ -1,0 +1,1 @@
+Art 4° El Poder Judicial continuará bajo la organización que actualmente tiene, y los empleados de este ramo funcionarán, en consecuencia, con arreglo a las leyes vigentes hasta que se dé dicho Poder una nueva organización.

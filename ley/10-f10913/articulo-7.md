@@ -1,0 +1,1 @@
+Art 7° La fuerza pública quedará a cargo del Comandante General de la República bajo las instrucciones que le sean comunicadas por el Secretario de la Guerra. Aquel empleado organizará militarmente los diferentes cuerpos de la guardia nacional.
