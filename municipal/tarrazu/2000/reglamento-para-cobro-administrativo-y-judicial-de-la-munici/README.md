@@ -14,3 +14,4 @@ Reglamento para Cobro Administrativo y Judicial de la Municipalidad de Tarrazú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-29 | la propia norma |
+| 2 | 2000-08-29 | Ley 8 |
