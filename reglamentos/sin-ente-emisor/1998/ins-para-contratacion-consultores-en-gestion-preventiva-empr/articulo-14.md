@@ -1,0 +1,1 @@
+Artículo 14.—En concordancia con el articulo 1 y 4 de este Reglamento, el Instituto establecerá las bases del concurso, los requisitos mínimos y la ponderación de los parámetros considerados para la selección y autorización de los Consultores del Contratista, todo lo cual formará parte del contrato administrativo correspondiente.

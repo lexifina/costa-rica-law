@@ -1,0 +1,1 @@
+Artículo 3°- Los Consultores que prestan servicios a los contratistas adjudicados, serán autorizados y acreditados por el Instituto Nacional de Seguros, para promover y asesorar en el desarrollo de sistemas de gestión de prevención da los riesgos laborales, a los patronos o empresarios.

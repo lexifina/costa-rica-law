@@ -1,0 +1,1 @@
+Articulo 17.—El Instituto estará facultado para dar por terminado unilateralmente la relación contractual, cuando el contratista haga abandono de los programas objeto del contrato, en perjuicio del Instituto y ¡a empresa.
