@@ -1,0 +1,1 @@
+Art 29°. - El Regente pedirá su voto sobre los negocios que se hayan discutido, a cada Magistrado en particular, comenzando por el más moderno y por último dará el suyo y declarará que es lo que se ha acordado para que el Secretario lo ponga en la minuta.

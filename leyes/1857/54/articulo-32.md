@@ -1,0 +1,1 @@
+Art 32°. - Siempre que la Corte crea conveniente oír a alguno de sus funcionarios subalternos sobre alguno de sus funcionarios subalternos sobre algún asunto, podrá llamarlos y estos se presentarán y darán los informes que se les pidan, pero no podrán tomar asiento entre los Magistrados, ni se les permitirá hablar sentados, sino en pié.

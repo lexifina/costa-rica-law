@@ -1,0 +1,1 @@
+Art 39°.- Mientras hay colejio de Abogados constituido especialmente, todos los profesores que hayan recibido sus licencias del Tribunal formarán un cuerpo de quien el Regente de la Corte será Decano.

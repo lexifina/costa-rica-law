@@ -1,0 +1,1 @@
+Art 17°.- El Magistrado Fiscal asistirá diariamente a la oficina, pero no podrá discutir con los Magistrados, los decretos y sentencias en asuntos en que haya ejercido su Ministerio. Sólo tendrá voto en los acuerdos de Corte plena en el ramo económico, mas no en el judicial.

@@ -1,0 +1,1 @@
+Art 35°. - Si las partes se presentasen a alegar en estrados, se oirá primero al actor, apelante o suplicantes, y después a su contrario y demás partes que tengan derecho a alegar, no permitiéndose tomar la palabra a cada parte más que dos, veces. En las causas criminales y civiles en que el Fiscal sea parte, se le oirá en último lugar, si concurriere y quisiese tomar la palabra.

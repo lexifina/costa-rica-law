@@ -1,0 +1,1 @@
+Art 18°.- A las peticiones fiscales no se proveerá con las fórmulas de ha lugar o venga en forma, sino que se le concederá o negará fundada y terminantemente lo que pida, y no podrán negárselo los testimonios y certificaciones que pida para el desempeño de sus funciones.

@@ -1,0 +1,1 @@
+Art 37°.- Para que haya Tribunal en 2° Instancia es necesario la concurrencia de los tres Jueces y de cinco en la 3° Instancia, más para que haya sentencia hasta la mayoría absoluta de los Jueces que concurren a la vista en una y otra Instancia.

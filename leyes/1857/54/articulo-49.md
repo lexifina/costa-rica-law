@@ -1,0 +1,3 @@
+SECCIÓN ULTIMA
+Del Portero
+Art 49°.- Son obligaciones del Portero, cuidar del edificio, manteniéndolo aseado en todos sus departamentos, cuidar la puerta, a fin de que ningún litigante, ni otra persona interrumpa el despacho, ni hable en estrados sin que sea llamando, u obtenga licencia, hacer los apremios a las partes para la exhibición de autos: repartir la partes para la exhibición de autos, repartir la correspondencia dentro de la Capital; traer o llevar los procesos a casa de los Magistrados cumplir las órdenes que éstos o los Secretarios le den, concernientes a su oficio; y finalmente asistir al edificio diariamente, por mañana y tarde, debiendo abrir la puerta una hora antes de las señaladas para el despacho.

@@ -1,0 +1,1 @@
+Art 4°. - Cuando se hayan de llamar suplentes, para reponer algún Magistrado o para completar la Sala de 3° Instancia se sortearán en sesión de Corte Plena, de entre los cinco conjueces electos por el Congreso. También se hará en Corte plena la elección de específicos fuera de los suplentes en los casos de específicos fuera de los suplentes.
