@@ -1,1 +1,0 @@
-Artículo 8º.- Este decreto deroga los decretos números 15076-PLAN-S y el 17167-PLAN-S de diecinueve de octubre de mil novecientos ochenta y tres y el del veintisiete de agosto de mil novecientos ochenta y seis respectivamente.
