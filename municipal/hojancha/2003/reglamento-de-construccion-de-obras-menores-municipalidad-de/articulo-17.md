@@ -1,0 +1,1 @@
+Artículo 17.—En caso que el solicitante cumpla con todos los requisitos establecidos en este reglamento se le girará el permiso en un plazo máximo de ocho días hábiles, previa inspección e informe de visita de campo, efectuada por el Ingeniero de la Unidad de Planificación Urbana y Control Constructivo de la Municipalidad.

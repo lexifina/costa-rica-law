@@ -1,0 +1,1 @@
+Artículo 18.—Una vez otorgado el permiso, la unidad de Planificación Urbana y Control Constructivo, trasladará el permiso de construcción al inspector de construcción, a quién le corresponde realizar las visitas de inspección al cumplimiento de las condiciones del permiso otorgado.

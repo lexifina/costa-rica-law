@@ -1,0 +1,1 @@
+Artículo 19.—Una vez concluido el proceso constructivo de la obra, el Inspector de Construcción de la Municipalidad emitirá una boleta, certificando que lo construido fue lo autorizado en el permiso, y remitirá el mismo al Ingeniero de la Unidad de Planificación Urbana y Control Constructivo para su archivo y custodia en el expediente correspondiente.

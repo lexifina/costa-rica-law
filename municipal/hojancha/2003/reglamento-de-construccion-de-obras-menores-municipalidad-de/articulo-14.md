@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del permiso de construcción menor
+Artículo 14.—El propietario puede revocar la autorización dada en el artículo anterior y solicitar un cambio de responsable, adjuntando la nueva autorización, y el nuevo responsable quien debe cumplir con los requisitos de registro establecidos en el artículo 5 de este reglamento. El propietario puede presentar denuncias o quejas sobre un responsable autorizado, así mismo puede solicitar el inicio de un procedimiento administrativo de anulación de la autorización concedida, debiendo al efecto aportar por escrito la petición y adjuntar las pruebas pertinentes, todo dentro del marco del debido proceso.

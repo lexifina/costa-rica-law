@@ -1,0 +1,1 @@
+Artículo 22.—El funcionario municipal que incumpla con este reglamento será sancionado acorde con lo que estipula el Código Municipal, el reglamento de trabajo, supletoriamente se aplicará el Código de Trabajo y otra normativa conexa.
