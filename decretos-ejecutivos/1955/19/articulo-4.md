@@ -4,7 +4,7 @@ Las condiciones que regulen la los contratos de ahorro y préstamo serán las mi
 Sin perjuicio de los topes de aplicación para cada unidad de vivienda, no habrá limitación alguna para la suscripción de contratos, en cuanto a la cantidad que cada persona desea suscribir.
 Se toman las siguientes disposiciones generales:
 1a—Se señala como monto máximo de cada contrato la suma de doscientos cincuenta mil colones y se permite la suscripción sin límite de números de contratos por persona; se permite asimismo la aplicación sin límite de contratos por persona física o jurídica, pero se establece un límite de un millón de colones por unidad habitacional.
-2a—El suscritor que obtenga un crédito a través de los planes 2-4 y 3-6, está facultado para que se amplíe el plazo de cancelación de su préstamo hasta por tres años más, siempre que por cada año adicional de ampliación se aumente en el 1% del tipo de interés anual.
+2a—DEROGADO por el Acuerdo N° 3829 de 01 de junio de 1987, publicado en la Colección de Leyes y Decretos de 1987, II Semestre, Tomo II, página 2.
 3a—Es facultativo para el Instituto autorizar el cambio de contratos, en su período de ahorro, de planes largos a planes cortos hasta por el monto suscrito, condicionado a que:
 a) La fecha de madurez del contrato no sea menor a la mitad del período de ahorro del plan -corto al que se hace el cambio.
 b) Que se cubra, cuando proceda, la diferencia en cuotas entre el plan largo y el plan corto.
