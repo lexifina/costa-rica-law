@@ -1,4 +1,1 @@
-ARTICULO 31.- El presente Convenio será registrado en la Secretaría
-General de la Organización de las Naciones Unidas y de la Organización de
-Estados Americanos, por conducto de la Secretaría General del Sistema de
-Integración Centroamericana.
+ARTICULO 31.- El presente Convenio será registrado en la Secretaría General de la Organización de las Naciones Unidas y de la Organización de Estados Americanos, por conducto de la Secretaría General del Sistema de Integración Centroamericana.

@@ -1,9 +1,1 @@
-ARTICULO 26.- El depositario del presente Convenio y de los
-instrumentos de ratificación o adhesión, será la Secretaría General del
-Sistema de Integración Centroamericana, la cual hará las comunicaciones y
-notificaciones correspondientes. La Secretaría General del Sistema de
-Integración Centroamericana enviará copia auténtica de su texto, para su
-registro y publicación, a la Secretaría General de las Naciones Unidas, de
-conformidad con el artículo 102 de su Carta Constitutiva y para los mismos
-fines a la Secretaría General de la Organización de los Estados
-Americanos.
+ARTICULO 26.- El depositario del presente Convenio y de los instrumentos de ratificación o adhesión, será la Secretaría General del Sistema de Integración Centroamericana, la cual hará las comunicaciones y notificaciones correspondientes. La Secretaría General del Sistema de Integración Centroamericana enviará copia auténtica de su texto, para su registro y publicación, a la Secretaría General de las Naciones Unidas, de conformidad con el artículo 102 de su Carta Constitutiva y para los mismos fines a la Secretaría General de la Organización de los Estados Americanos.
