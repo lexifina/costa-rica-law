@@ -1,0 +1,1 @@
+Artículo 3°─ Este distrito tendrá por cabecera el poblado de Villafranca, y contará además con los siguientes caseríos: Esperanza, Pueblo nuevo, Limbo, Zancudo, Fruto de Pan, San Francisco, Carambolas. Fincas: San Cristóbal, Barzone, Uno (Norte), Dos (Norte), Inglaterra, Rincón.

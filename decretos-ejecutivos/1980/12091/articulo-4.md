@@ -1,0 +1,1 @@
+Artículo 4°─ Autorizar al Instituto Geográfico Nacional para interpretar los límites señalados y se declara oficial el mapa que del distrito prepare en su oportunidad esta institución, con su respectiva toponimia.
