@@ -14,3 +14,4 @@ Reglamento para la Administración y Operación de los Sistemas de Estacionómet
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-06-03 | la propia norma |
+| 2 | 1996-06-21 | Reglamento municipal 237 (1996-06-21) |
