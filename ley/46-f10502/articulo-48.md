@@ -1,0 +1,1 @@
+48.-Al liquidarse las pólizas de aduana se liquidar como queda dicho la suma que el interesado debe satisfacer al Fisco por impuesto consular, la cual ser enterada por los importadores en la Administración General de las Rentas Públicas juntamente con los derechos de aduana y muellaje.
