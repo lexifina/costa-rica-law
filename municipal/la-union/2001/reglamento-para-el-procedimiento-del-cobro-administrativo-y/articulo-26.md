@@ -1,1 +1,2 @@
-Articulo 26.—No se contratará nuevamente para realizar funciones de cobro judicial aquellos abogados que por cualquier motivo, se hayan retirado del ejercicio de sus funciones como abogados externos para el cobro judicial, por un periodo de cinco años posteriores a su retiro. Con excepción de aquellos casos que se retiren en función de cargos públicos o incompatibilidad de sus funciones, por problemas de salud, o cambio de domicilio a otro lugar que no sea el distrito primero de este cantón.
+Artículo 26.—No se contratará a los Abogados que hayan sido negligentes en el cobro de las cuentas, y no hayan rendido los informes solicitados.
+(Así reformado por acuerdo del Concejo Municipal, en su sesión N° 158 del 15 de abril de 2004)
