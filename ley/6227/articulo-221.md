@@ -1,0 +1,5 @@
+Artículo 221.- En el procedimiento administrativo se deberán verificar
+los hechos que sirven de motivo al acto final en la forma más fiel y
+completa posible, para lo cual el órgano que lo dirige deberá adoptar todas
+las medidas probatorias pertinentes o necesarias, aún si no han sido
+propuestas por las partes y aún en contra de la voluntad de éstas últimas.

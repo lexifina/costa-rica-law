@@ -1,0 +1,4 @@
+Artículo 8º.-El ordenamiento administrativo se entenderá integrado por
+las normas no escritas necesarias para garantizar un equilibrio entre la
+eficiencia de la Administración y la dignidad, la libertad y los otros
+derechos fundamentales del individuo.

@@ -1,0 +1,4 @@
+Artículo 276.- Será coadyuvante todo el que esté indirectamente
+interesado en el acto final, o en su denegación o reforma, aunque su
+interés sea derivado, o no actual, en relación con el que es propio de la
+parte a la que coadyuva.

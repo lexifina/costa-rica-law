@@ -1,0 +1,4 @@
+Artículo 186.- El órgano que declare la nulidad de actuaciones
+dispondrá siempre la conservación de aquellos actos y trámites cuyo
+contenido hubiera permanecido el mismo de no haberse realizado la
+infracción origen de la nulidad.

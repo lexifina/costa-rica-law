@@ -1,0 +1,4 @@
+Artículo 217.- Las partes tendrán derecho a conocer el expediente con
+las limitaciones de esta Ley y a alegar sobre lo actuado para hacer valer
+sus derechos o intereses, antes de la decisión final, de conformidad con
+la ley.

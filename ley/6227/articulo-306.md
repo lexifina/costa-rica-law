@@ -1,0 +1,4 @@
+Artículo 306.- La Administración podrá introducir antes del acto final
+nuevos hechos relacionados con los inicialmente conocidos o invocados, pero
+en el caso del procedimiento ordinario tendrá que observar el trámite de
+comparecencia oral para probarlos.
