@@ -15,3 +15,4 @@ Reglamento Valores Custodia Fondo Ayuda Internos Sistema PeninteciarioNacional
 | 1 | 1988-12-23 | la propia norma |
 | 2 | 1991-09-10 | Decreto Ejecutivo 20716 (1991-09-10) |
 | 3 | 1991-10-02 | Decreto Ejecutivo 20797 (1991-10-02) |
+| 4 | 1997-02-20 | Decreto Ejecutivo 25882 (1997-02-20) |
