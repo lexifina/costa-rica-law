@@ -1,1 +1,6 @@
-Artículo 31.—El presente reglamento deja sin efecto el Reglamento de Becas y Auxilios Especiales, aprobado por la Junta Directiva de la Institución, en el artículo 6° de la sesión No 2909, celebrada el día viernes 21 de diciembre de 1962 y sus reformas, el reglamento de beneficios e . incentivos económicos para la participación de los profesionales de la Caja Costarricense de Seguro Social, en actividades científicas a realizarse en el exterior, aprobado por la Junta Directiva en las sesiones No 5851, artículo 1° y No 5852, artículo 6° del 30 de agosto y 6 de setiembre de 1984, así como cualquier disposición anterior que se le opusiere.
+Capítulo V
+DE LOS AUXILIOS ECONÓMICOS NO REEMBOLSARLES
+Articulo 31.—Los auxilios económicos no reembolsables se otorgarán bajo las siguientes condiciones:
+a) El monto diario en ningún caso será más del máximo que establece la tabla de viáticos de la Contraloría General de la República, según la categoría que corresponda al beneficiario,
+b) El período máximo será de 8 días naturales.
+(Reformado mediante el artículo 17 de la sesión 7352, celebrada el 29 de julio de 1999)

@@ -1,5 +1,4 @@
-Artículo 13.—El beneficiario quedará obligado a prestar sus servicios a la Institución una vez finalizados los estudios, en los lugares o centros que se le indiquen, por un lapso igual al triple del tiempo que duró el disfrute de beneficio.
-Lo anterior será cumplido por todos los beneficiarios: propietarios, interinos y los que por inopia recibieron el beneficio no siendo empleados de la institución, de acuerdo con la legislación vigente.
-La Caja tendrá un plazo igual al tiempo del compromiso contado a partir de la fecha de terminación de la beca para requerir los servicios del beneficiario que no sea empleado de la Institución.
-El tiempo transcurrido desde la fecha en que el beneficiario esté legalmente autorizado para ejercer su profesión o especialidad y la fecha en que la Caja requiera de sus servicios se computará como parte del período que está obligado a trabajar con la Institución.
-Además deberá el beneficiario participar en actividades docentes, con el propósito de que otros servidores se favorezcan con sus conocimientos.
+Artículo 13.—El beneficiario quedará obligado a prestar sus servicios a la Institución una vez finalizados los estudios en los lugares o centros que le indiquen, por un lapso igual al triple del tiempo que duró el disfrute de beneficio.
+Además, tendrá el beneficiario la obligación de participar en actividades docentes, con el propósito de que otros servidores se favorezcan con sus conocimientos.
+El incumplimiento de lo anterior hará exigible las garantías (pagaré) ofrecidas para obtener la beca.
+(Reformado mediante el artículo 17 de la sesión 7352, celebrada el 29 de julio de 1999)

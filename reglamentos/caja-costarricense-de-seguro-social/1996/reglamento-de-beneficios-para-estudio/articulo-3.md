@@ -1,4 +1,2 @@
-Artículo 3°—Podrán otorgarse los beneficios aquí previstos a los servidores de la Caja nombrados en propiedad con seis meses de antigüedad en la Institución o interinamente que hayan trabajado dos años con la Caja.
-En situaciones de excepción, por inopia de personal técnico y profesional, podrán otorgarse los beneficios aquí previstos a quienes no sean servidores de la Institución o a quienes siéndolo solicitan estudio, en áreas diferentes al de su desempeño laboral.
-La resolución en que se declare la inopia, deberá ser motivada y fundamentada en acuerdo con las políticas institucionales, y los estudios elaborados por el CENDEISSS en coordinación con la Dirección de Recursos Humanos y la Gerencia respectiva.
-(Reformado mediante el artículo 29° de la sesión 7261, celebrada el 24 de setiembre de 1998)
+Artículo 3°—Podrán otorgarse los beneficios aquí previstos a los servidores de la CCSS, nombrados en propiedad o interinamente en plaza vacante y a estudiantes destacados de bajos recursos económicos, aunque no sean empleados de CCSS, que se hayan distinguido en el desempeño de sus funciones o estudios.
+(Reformado mediante el artículo 17 de la sesión 7352, celebrada el 29 de julio de 1999)

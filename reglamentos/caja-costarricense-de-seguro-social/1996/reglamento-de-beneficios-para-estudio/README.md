@@ -16,3 +16,4 @@ Reglamento de Beneficios para Estudio
 | 1 | 1996-06-20 | la propia norma |
 | 2 | 1998-06-23 | Reglamento 7235 (1998-06-23) |
 | 3 | 1998-09-24 | Reglamento 7261 (1998-09-24) |
+| 4 | 1999-07-29 | Reglamento 7352 (1999-07-29) |
