@@ -1,0 +1,10 @@
+ARTICULO 4º.- Cuando el interesado considere que la categoría
+correspondiente a la actividad solicitada es muy alta y que, por
+consiguiente, también lo que es el monto del impuesto respectivo, podrá
+solicitar por escrito su recalificación, ante una comisión que para tal
+efecto estará integrada por el ejecutivo municipal, el contador municipal y
+un miembro de la Comisión de Hacienda y Presupuesto. Esta comisión tendrá
+hasta quince días para resolver la solicitud planteada, y su resolución
+tendrá recurso de revisión ante el Concejo. Tal recurso deberá
+interponerse dentro de los ocho días hábiles siguientes al día de la
+notificación al interesado.
