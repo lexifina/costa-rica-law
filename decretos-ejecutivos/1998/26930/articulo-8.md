@@ -1,0 +1,1 @@
+Artículo 8°—El Centro solicitará en la primera semana de junio de cada año a las entidades señaladas en el artículo anterior, la designación de dos personas representantes (propietario(a) y suplente) que formarán parte del jurado encargado de otorgar el premio.

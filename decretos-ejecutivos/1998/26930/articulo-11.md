@@ -1,0 +1,1 @@
+Artículo 11.—El Ministerio y el Centro convocarán oficialmente a las personas interesadas a participar en el Premio, en la primera quincena del mes de agosto de ,cada ano, a través de los diferentes medios de comunicación colectiva.

@@ -1,0 +1,1 @@
+Artículo 9°-El Ministro juramentará a los/as representantes de las entidades señaladas en el artículo 6° de este Reglamento, durante la segunda quincena del mes de julio de cada año. Como órgano colegiado, los miembros del jurado se regirán por lo estipulado en el título segundo, capítulo tercero de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 17-—La designación de los ganadores se hará mediante votación secreta, por mayoría simple. Si después de tres votaciones no se alcanzaran los votos requeridos para esta mayoría, el premio se declarará desierto.

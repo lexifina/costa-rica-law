@@ -1,0 +1,1 @@
+Artículo 14.—La recepción de solicitudes vence a las 17,00 horas de ultimo día laborable del mes de octubre de cada año, y la sola participación implica la aceptación del interesado de lo dispuesto en este Reglamento.

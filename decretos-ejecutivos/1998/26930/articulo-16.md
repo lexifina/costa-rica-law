@@ -1,0 +1,1 @@
+Artículo 16.—El jurado emitirá el fallo en el mes de diciembre de cada año y lo remitirá al Ministro de Cultura, Juventud y Deportes, quien, junto con el Centro, dará a conocer la adjudicación mediante publicación en el Diario Oficial y otros medios de comunicación en la segunda quincena del mes de enero.

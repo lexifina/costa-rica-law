@@ -1,0 +1,5 @@
+Artículo 6°—El Premio consistirá en:
+a) Cinco salarios base de la clase profesional uno en la escala de sueldos y salarios de la Administración Publica y una réplica de la estatuilla en bronce, donada por la artista nacional Marisel Jiménez al Centro Nacional para el Desarrollo de la Mujer y la Familia , para la(as) personas productora-autoras(s) del mejor programa de televisión.
+b) Cinco salarios base de la clase profesional uno en la escala de sueldos y salarios de la Administración Pública y una réplica de la estatuilla en bronce, donada por la artista nacional Marisel Jiménez al Centro Nacional para el Desarrollo de la Mujer y la Familia , para las persona(s) productora-autora(s)del mejor programa de radio.
+c) Cinco salarios base de la clase profesional uno en la escala de sueldos y salarios de la Administración Pública y una réplica de la estatuilla en bronce, donada por la artista nacional Marisel Jiménez al Centro Nacional para el Desarrollo de la Mujer .y la Familia , para la persona(s) autora(s) de la mejor publicación escrita.
+d) Se otorgarán las menciones honoríficas que el jurado considere pertinentes.

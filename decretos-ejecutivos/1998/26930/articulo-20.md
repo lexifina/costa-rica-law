@@ -1,0 +1,1 @@
+Artículo 20.—Se hará entrega del Premio y las menciones que el jurado considere pertinentes en la Ceremonia de Entrega de los Premios Nacionales de Cultura, en mayo o abril de cada año, según determine el Ministerio de Cultura, Juventud y Deportes, principal organizador de este evento.
