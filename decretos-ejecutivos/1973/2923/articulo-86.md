@@ -1,1 +1,2 @@
-Artículo 86.- La Dirección General Forestal está facultada para separar fincas del Régimen Forestal, cuando no cumplan los requisitos estipulados por la ley o este Reglamento.
+Artículo 86.—Cumplidos los requisitos del artículo anterior, realizada la inspección de rigor y siendo el informe favorable, la Dirección General Forestal los inscribirá en el libro de registros que llevará a ese efecto, debiendo comunicar la respectiva resolución a la Dirección General de la Tributación Directa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 10974 del 30 de noviembre de 1979)

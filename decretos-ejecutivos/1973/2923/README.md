@@ -19,3 +19,4 @@ Reglamento Ley Forestal
 | 4 | 1978-11-22 | Decreto Ejecutivo 9338 (1978-11-22) |
 | 5 | 1979-01-12 | Decreto Ejecutivo 9495 (1979-01-12) |
 | 6 | 1979-09-13 | Decreto Ejecutivo 10531 (1979-09-13) |
+| 7 | 1979-11-30 | Decreto Ejecutivo 10974 (1979-11-30) |

@@ -1,1 +1,2 @@
-Artículo 91.- Cualquier actividad que se relacione con el Bosque sometido al Régimen Forestal, debe ser sometido a consideración de la Dirección General Forestal.
+Artículo 91.—Cualquier actividad que se quiera realizar en los bosques y terrenos forestales sometidos voluntariamente al Régimen Forestal, deberá ser considerada por la Dirección General Forestal para su respectiva aprobación, estando obligados sus propietarios a acatar las recomendaciones técnicas dadas por ella en cada caso.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 10974 del 30 de noviembre de 1979)
