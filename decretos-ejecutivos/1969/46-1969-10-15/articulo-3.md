@@ -1,2 +1,2 @@
-Artículo 3°-El Viceministro de Economía, Industria y Comercio será el Presidente de la Comisión, en su ausencia será sustituido en esta función por el Asesor Económico con rango de Viceministro encargado de los programas de Economía y Comercio, quien será el Vicepresidente. En defecto de ambos se nombrará un Presidente ad-hoc.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 13653 del 24 de mayo de 1982).
+Artículo 3°-EI Viceministro de Industria, Energía y Minas, será el Presidente de la Comisión. En su ausencia se nombrará un Presidente ad hoc.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 14015 del 08 de noviembre de 1982).

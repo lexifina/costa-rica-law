@@ -30,3 +30,4 @@ Establece Comisión Asesora Nacional de los Incentivos Fiscales al Desarrollo In
 | 15 | 1979-11-01 | Decreto Ejecutivo 10743 (1979-11-01) |
 | 16 | 1982-05-24 | Decreto Ejecutivo 13653 (1982-05-24) |
 | 17 | 1982-10-04 | Decreto Ejecutivo 14205 (1982-10-04) |
+| 18 | 1982-11-08 | Decreto Ejecutivo 14015 (1982-11-08) |
