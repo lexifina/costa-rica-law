@@ -1,0 +1,1 @@
+Artículo 34.-El alumno contará con tres días hábiles, a partir del día en que se reincorpore a las lecciones, para presentarse ante el respectivo profesor, o ante el Ejecutivo Institucional, con el fin de que se le señale una fecha para realizar un examen extraordinario. Deberá proceder de igual forma cuando se trate de ausencias a trabajos de investigación.

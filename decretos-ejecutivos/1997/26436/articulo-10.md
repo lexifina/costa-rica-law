@@ -1,0 +1,1 @@
+Artículo 10.-El curso lectivo de los Colegios Humanísticos se iniciará el primero de febrero y finalizará el día viernes de la segunda semanal de diciembre. Su duración constará, como mínimo, de doscientos días lectivos por año, con una jornada diaria de once lecciones.

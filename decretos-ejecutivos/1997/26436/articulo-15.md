@@ -1,0 +1,1 @@
+Artículo 15.-Los estudiantes de los Colegios Humanísticos tendrán derecho a asistencia económica para atender sus estudios, en aquellos casos en los que se pruebe que las condiciones socioeconómicas de la familia así lo justifiquen.

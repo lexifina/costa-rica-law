@@ -1,0 +1,1 @@
+Artículo 22.-Las autoridades institucionales, y en particular el personal docente, fijarán procedimientos ágiles de participación de los padres de familia o encargados, para la atención del proceso educativo de sus hijos, en especial en la atención de problemas específicos.

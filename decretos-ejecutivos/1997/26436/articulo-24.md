@@ -1,0 +1,1 @@
+Artículo 24.-La valoración del aprendizaje considerará aspectos formativos y de dominio cognitivo de cada una de las asignaturas. Por tanto, contemplará actividades que fomenten la crítica, el análisis, el desarrollo de habilidades y destrezas, y la aplicación del conocimiento para solucionar problemas.

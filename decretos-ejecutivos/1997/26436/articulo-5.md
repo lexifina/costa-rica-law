@@ -1,0 +1,1 @@
+Artículo 5°-Estos Colegios se impulsarán como una opción eficaz para el mejoramiento de la enseñanza de las Ciencias Sociales y las Humanidades, sin menoscabo de otras opciones que puedan desarrollarse.

@@ -1,0 +1,1 @@
+Artículo 31.-Las pruebas escritas, una vez calificados y conocidos los errores, deben entregarse a los interesados y analizarse en forma conjunta con ellos, dentro de los diez días hábiles posteriores a su aplicación.

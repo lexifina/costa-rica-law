@@ -1,0 +1,1 @@
+Artículo 51.-Por comunicación personal (entrevista) se entenderá el acto en cuya virtud el educador o los funcionarios competentes de la Institución, intercambian con los padres de familia o encargados información relacionada con el estudiante, con el propósito de aunar esfuerzos entre la Institución y la familia.

@@ -1,0 +1,1 @@
+Artículo 29.-Una vez expuestas a los estudiantes, las normas de evaluación -que estarán en estricto apego a la normativa del presente decreto- no podrán modificarse sin el consentimiento escrito de la mayoría de los padres o encargados de los estudiantes y la aprobación del Ejecutivo Institucional.

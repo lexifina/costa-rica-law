@@ -1,0 +1,1 @@
+Artículo 12.-Como requisito de su graduación los estudiantes de undécimo año realizarán un trabajo comunal estudiantil de no menos de treinta horas, labor que se regirá conforme a las normas establecidas por el Ministerio de Educación Pública en esta materia.

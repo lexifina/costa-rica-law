@@ -1,0 +1,1 @@
+Artículo 44.-El alumno aplazado en más de tres asignaturas, quedará en condición de REPROBADO y deberá repetir el respectivo año escolar en otra institución no perteneciente al Sistema de Colegios Humanísticos Costarricenses.

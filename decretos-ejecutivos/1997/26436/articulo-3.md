@@ -1,0 +1,1 @@
+Artículo 3°-Por lo anterior, los Colegios Humanísticos constituyen una modalidad educativa del Ciclo Diversificado -la humanística- , diferente de las otras, con énfasis en los estudios sobre Comunicación, Cultura y Sociedad.
