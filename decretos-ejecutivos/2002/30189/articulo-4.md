@@ -1,0 +1,6 @@
+Artículo 4º—Materiales.
+4.1 Generalidades. Los plásticos de PVC empleados en la elaboración de tubos que cumplan los requisitos de este reglamento, se clasifican por medio de dos criterios: (1) pruebas de resistencia a corto plazo y (2) pruebas de resistencia a largo plazo.
+Nota 4. La idoneidad del tubo PVC destinada al transporte de agua potable debe ser evaluada y certificada por una entidad reconocida internacionalmente, según constancia de la Oficina Nacional de Normas y Unidades de Medida. La evaluación debe estar de acuerdo con los criterios establecidos en la Norma NSF (National Sanitation Foundation) Standard 14. El sello o marca de esta certificación se puede colocar sobre el tubo, pero el fabricante siempre debe tener la certificación correspondiente.
+4.2 Materiales básicos. Este reglamento contempla los tubos elaborados en plástico de PVC que tienen las propiedades físico-químicas indicadas en la norma ASTM D 1784.
+4.3 Compuestos. Los compuestos de PVC empleados para estos tubos deben ser iguales o superiores a una de las siguientes clases descritas en la norma ASTM D 1784: PVC 12454-B, 12454-C, ó 14333-D.
+4.4 Material recuperado. Se permite el uso de material recuperado, limpio, proveniente de la elaboración de tubos de la misma fábrica, siempre y cuando el tubo producido satisfaga los requisitos establecidos en este reglamento.

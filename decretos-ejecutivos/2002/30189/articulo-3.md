@@ -1,0 +1,6 @@
+Artículo 3º—Clasificación.
+3.1 Generalidades. Este reglamento contempla los tubos de PVC elaborados y rotulados de acuerdo con una de las seis designaciones de Tipo/Grado/Esfuerzo de Diseño (ver el apéndice X1.2) correspondientes a diez relaciones dimensionales estándar.
+3.2 Relaciones dimensionales estándar para la tubería termoplástica (SDR). Este reglamento contempla los tubos de PVC en diez relaciones dimensionales estándar, a saber 9, 11, 13.5, 17, 21, 26, 32.5, 41, 51 y 64 las cuales son uniformes para todos los diámetros nominales de los tubos para cada material y presión de trabajo. Estas relaciones se denominan SDR9, SDR11, SDR13.5, SDR21, SDR17, SDR26, SDR32.5, SDR41, SDR51 Y SDR64 respectivamente. La presión de trabajo es uniforme para todos los diámetros nominales de tubos para un material de PVC y SDR dados. (Ver la tabla X1. 1).
+3.3 Esfuerzos hidrostáticos de diseño. Este Reglamento contempla tubos elaborados con plásticos de PVC definidos mediante cuatro valores de los esfuerzos hidrostáticos de diseño desarrollados con base en pruebas a largo plazo. (Ver el apéndice).
+1 Ver la norma ISO 161-1 Thermoplastic Pipes for the Transport of Fluids. Nominal outside diameters and nominal pressures - Part 1 - Metric Series.
+2 Se utiliza en este caso las unidades del Sistema Inglés para no contravenir el código estándar establecido para esta tubería.
