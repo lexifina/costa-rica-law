@@ -1,0 +1,1 @@
+Artículo 14.—El funcionario que disfrute del Beneficio de Dedicación Exclusiva puede renunciar a dicho régimen, comunicándolo por escrito al Departamento de Personal, con un mes de anticipación como mínimo y no podrá suscribir un nuevo contrato antes de dos años después de haber presentado su renuncia. Si renunciara por segunda vez, no podrá volverse a acoger a dicho régimen.

@@ -1,0 +1,1 @@
+Artículo 17.—El Departamento de Personal debe velar por el cumplimiento de las disposiciones establecidas en el presente Reglamento y en los contratos suscritos, sin perjuicio de las regulaciones establecidas en el ordenamiento jurídico respecto a materia profesional o municipal.

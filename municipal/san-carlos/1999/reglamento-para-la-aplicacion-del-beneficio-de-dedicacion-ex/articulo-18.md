@@ -1,0 +1,1 @@
+Artículo 18.—El contrato a suscribir entre la Municipalidad y el funcionario, para normar la Dedicación Exclusiva, debe contener como mínimo: las calidades del Alcalde Municipal o su representante y del funcionario interesado, monto de compensación, vigencia y firmas de las dos partes.

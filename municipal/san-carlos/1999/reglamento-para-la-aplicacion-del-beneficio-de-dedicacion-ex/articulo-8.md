@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión deberá aprobar el contrato en un plazo de treinta días hábiles a partir de la fecha de presentación, en caso contrario, el referido contrato será devuelto al Departamento de Personal, argumentando las razones por las cuales se rechaza el mismo.

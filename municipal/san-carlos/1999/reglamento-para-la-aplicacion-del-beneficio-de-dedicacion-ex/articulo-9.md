@@ -1,0 +1,1 @@
+Artículo 9º—Una vez que se encuentre en vigencia el contrato, el funcionario no podrá ejercer la profesión comprendida en dicha exclusividad, ni actividades relacionadas con ésta y con su cargo y lo hará solamente para la Municipalidad, salvo en las excepciones que se especifican en este Reglamento.

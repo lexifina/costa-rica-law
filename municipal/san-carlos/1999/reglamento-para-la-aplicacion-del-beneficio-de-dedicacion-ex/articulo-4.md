@@ -1,0 +1,2 @@
+Artículo 4º—La Municipalidad podrá otorgar la compensación económica definida en el párrafo siguiente, a aquellos funcionarios cuya naturaleza del puesto que desempeñan, así lo amerite. Para tales efectos se otorgarán porcentajes sobre el salario base de: un 35 % para los que poseen el grado académico de Bachiller Universitario, y un 55% para los que ostentan el grado de Licenciatura o superior.
+(NOTA: Corregido mediante Fe de Erratas publicada en La Gaceta N° 49 de 11 de marzo del 2002)

@@ -1,0 +1,1 @@
+Artículo 3º—La Dedicación Exclusiva es el ejercicio profesional del funcionario únicamente para la Municipalidad, por lo que no podrá ejercer de manera particular remunerado o ad honorem, la profesión que sirve como requisito para desempeñar el puesto que ostenta, ni actividades relacionadas con ellas, con las excepciones que se señalan en este Reglamento.
