@@ -1,0 +1,11 @@
+Artículo 8º—De la constitución del Consejo. Dentro de los primeros cinco días hábiles después de publicado este decreto se procederá de la siguiente forma:
+1. El Ministro de Ambiente y Energía debe proceder a designar al representante que asistirá al Consejo, en caso de ausencia.
+2. La Universidad Nacional, el Instituto Nacional de Aprendizaje, y el Instituto Nacional de Biodiversidad, deberán comunicar formalmente al Coordinador General las calidades completas del rector, presidente y director respectivamente, y el nombre y calidades de quienes han sido designados como representantes en el Consejo en caso de ausencia de los titulares.
+3. El Coordinador General convocará a las organizaciones, públicas y privadas del cantón central de Puntarenas a una Asamblea para constituir la terna dentro de la cual el Poder Ejecutivo nombrará al representante indicado en el inciso e) del artículo 6to de la ley.
+La Asamblea antes indicada será convocada mediante publicación en el Diario Oficial La Gaceta y al menos dos diarios de circulación nacional o regional, con al menos cinco días hábiles de anterioridad a la fecha de la sesión.
+A la Asamblea podrán acudir todas las organizaciones, públicas y privadas que cumplan todos los siguientes requisitos:
+· Tener mas de tres años de constituidas oficialmente.
+· Tener su domicilio legal en el cantón central de la provincia de Puntarenas.
+· Contar con personería jurídica y cédula jurídica vigente al momento de realizarse la Asamblea.
+La Asamblea será presidida por el coordinador General del Consejo Directivo Interinstitucional y tendrá como único punto de agenda la constitución de una terna que será puesta a conocimiento del Poder Ejecutivo. Será responsabilidad del Coordinador General, dentro de los tres días hábiles posteriores a la realización de la Asamblea, comunicar al Poder Ejecutivo la terna debidamente conformada. El Poder Ejecutivo procederá a designar al representante, se hayan o no remitido la terna, dentro de los cinco días hábiles siguientes a la conclusión del plazo para comunicar los resultados de la Asamblea.
+Finalmente, corresponderá al Coordinador General publicar en La Gaceta Oficial la constitución oficial del Consejo Directivo.

@@ -1,0 +1,1 @@
+Artículo 16.—Control financiero. El Ministerio del Ambiente y Energía ejercerá todos los controles necesarios que garanticen la correcta administración de los recursos de todo origen que se le asignen al Parque Marino del Pacífico, sin perjuicio de los controles que competen a la Contraloría General de la República.
