@@ -1,0 +1,1 @@
+Art 2° De cualquiera de las pretensiones del ejecutante, se conferirá traslado al ejecutado por el término de la ley, para que manifieste su conformidad o exponga las razones que en contrario tuviese.
