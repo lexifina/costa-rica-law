@@ -1,0 +1,1 @@
+Artículo 20.—Recepción y estudio de ofertas. Adjudicación. Todos los trámites relacionados con la apertura, recepción, estudio de ofertas y la adjudicación de los concursos serán llevados a cabo de conformidad con lo estipulado en el Reglamento de Proveeduría de la CNE.

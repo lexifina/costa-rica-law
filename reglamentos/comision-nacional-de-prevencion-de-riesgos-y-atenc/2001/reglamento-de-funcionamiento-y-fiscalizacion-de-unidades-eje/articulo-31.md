@@ -1,0 +1,1 @@
+Artículo 31.—Ampliación de información. La Unidad Ejecutora está obligada a remitir cualquier informe, documento o aclaración adiciona! que la CUE estime conveniente para continuar con el tramite respectivo.

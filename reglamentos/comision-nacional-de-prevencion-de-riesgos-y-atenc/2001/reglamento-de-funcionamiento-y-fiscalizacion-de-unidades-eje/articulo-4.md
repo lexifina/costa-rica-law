@@ -1,0 +1,2 @@
+Artículo 4°—Fiscalización y Control de las Unidades Ejecutoras. La Contraloría de Unidades Ejecutoras de la CNE (CUE) será la unidad encargada del control y fiscalización de las mismas.
+Toda unidad ejecutora debe coordinar la totalidad de sus acciones con la Contraloría de Unidades Ejecutoras de la Comisión. Además deberán rendir los informes necesarios sobre la ejecución de los proyectos; así como sobre el avance físico y financiero de los mismos de acuerdo a los cronogramas establecidos.

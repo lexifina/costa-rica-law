@@ -1,0 +1,2 @@
+Procedimientos dé Contratación
+Artículo 16.—Procedimientos de Contratación. Todas las contrataciones de bienes y servicios que requieran las Unidades Ejecutoras se realizarán con estricto apego a lo contenido en la Ley Nacional de Emergencia, su Reglamento, y el Reglamento de Proveeduría de la CNE , en cuanto a los procedimientos de contratación. Subsidiariamente en lo que sea pertinente la Ley de Contratación Administrativa y su Reglamento.

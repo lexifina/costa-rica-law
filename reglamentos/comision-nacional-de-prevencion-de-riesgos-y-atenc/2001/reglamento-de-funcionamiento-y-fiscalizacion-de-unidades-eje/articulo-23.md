@@ -1,0 +1,1 @@
+Articulo 23.—Normas de Construcción. En trabajos u obras viales, se aplicarán las especificaciones contenidas en el cartel, subsidiariamente, se aplicarán las Especificaciones Generales para la Construcción de Caminos, Carreteras y Puentes CR -77.

@@ -1,0 +1,1 @@
+Articulo 34. —Entrega de Expediente. Una vez concretado el finiquito, la Unidad Ejecutora deberá entregar a la Contraloría de Unidades Ejecutoras una copia del expediente completo del proyecto. A su vez la remitirá copia del mismo a la Proveeduría Institucional ,

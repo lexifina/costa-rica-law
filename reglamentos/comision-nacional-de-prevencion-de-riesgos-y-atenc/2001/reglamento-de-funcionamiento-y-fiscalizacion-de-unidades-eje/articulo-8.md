@@ -1,0 +1,1 @@
+Articulo 8°—Control de fondos. Cada Unidad Ejecutora deberá llevar por separado el control financiero de los fondos asignados por la CNE , para la ejecución de los proyectos y un registro detallado de la ejecución de los egresos y presentar un informe mensual de los mismos a la CUE de la CNE , donde indique el porcentaje estimado de avance y su calidad.
