@@ -5,12 +5,12 @@ En la primera etapa, se han elaborado y aprobado siete boletines, los cuales se 
 Boletín Local | Boletín del IMCP que sustituye
 Código | Nombre | Código | Nombre
 S/N | Comisión de Normas y Procedimientos de Auditoría | |
-1015 | Normas de Auditoría | 1010 | Normas de Auditoría
-1020 | Objetivo y naturaleza de la auditoría de estados financieros | 1020 | Declaraciones normativas de carácter general sobre el objetivo y naturaleza de la auditoría de estados financieros
-2005 | Pronunciamientos sobre las normas Personales | 2010 | Pronunciamiento sobre las normas personales
-3100 | Planeación y supervisión del trabajo de auditoría | 3040 | Planeación y supervisión del trabajo de auditoría
-3105 | Importancia relativa y riesgo fe auditoría | 3030 | Importancia relativa y riesgo de la auditoría
-3300 | Documentación de la auditoría | 3010 | Documentación de la auditoría
+1015 | (Derogado mediante sesión ordinaria N° 34 del 24 de noviembre de 1998 "Adopta las Normas técnicas Internacionales de Auditoría") | 1010 | Normas de Auditoría
+1020 | (Derogado mediante sesión ordinaria N° 34 del 24 de noviembre de 1998 "Adopta las Normas técnicas Internacionales de Auditoría") | 1020 | Declaraciones normativas de carácter general sobre el objetivo y naturaleza de la auditoría de estados financieros
+2005 | (Derogado mediante sesión ordinaria N° 34 del 24 de noviembre de 1998 "Adopta las Normas técnicas Internacionales de Auditoría") | 2010 | Pronunciamiento sobre las normas personales
+3100 | (Derogado mediante sesión ordinaria N° 34 del 24 de noviembre de 1998 "Adopta las Normas técnicas Internacionales de Auditoría") | 3040 | Planeación y supervisión del trabajo de auditoría
+3105 | (Derogado mediante sesión ordinaria N° 34 del 24 de noviembre de 1998 "Adopta las Normas técnicas Internacionales de Auditoría") | 3030 | Importancia relativa y riesgo de la auditoría
+3300 | (Derogado mediante sesión ordinaria N° 34 del 24 de noviembre de 1998 "Adopta las Normas técnicas Internacionales de Auditoría") | 3010 | Documentación de la auditoría
 El boletín introductorio denominado "Comisión de Normas y Procedimientos de Auditoría", pretende servir de guía a los contadores públicos en general, proporcionándoles, entre otros, el detalle del procedimiento que lleva implícito la edición de cualquier boletín y un índice con la clasificación y codificación que será utilizada, en adelante, para identificar normativa local.
 Una vez más agradecemos a todos aquellos colegas que de una u otra manera han contribuido en este proceso y deseamos enriquecer aún más los documentos que continuarán editándose, para lo cual requerimos el compromiso de todos ustedes, contadores públicos, de participar en una forma activa en el proceso de auscultación que efectúa el Colegio, de los documentos en borrador, haciendo llegar sus observaciones en el plazo que para esos efectos se otorga.
 Cordialmente,

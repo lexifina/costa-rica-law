@@ -15,3 +15,4 @@ Normas de Auditoría de Observancia Obligatoria
 | --- | --- | --- |
 | 1 | 1998-02-05 | la propia norma |
 | 2 | 1998-02-05 | Ley 8 |
+| 3 | 1998-11-25 | Acuerdo 3 (1998-11-24) |
