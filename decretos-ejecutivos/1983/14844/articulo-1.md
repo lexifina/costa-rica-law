@@ -1,5 +1,6 @@
 (Derogado)
 N° 14844-C
+(Derogado por el artículo 6 del Decreto Ejecutivo N° 26919, del 9 de marzo de 1998)
 EL PRESIDENTE DE LA REPUBLICA Y EL MINISTRO DE CULTURA, JUVENTUD Y DEPORTES,
 En uso de las facultades conferidas en los artículos 140, incisos 3) y 18) de la Constitución Poltica y 28 2.b) de la Ley General de la Administración Pública.
 Considerando:

@@ -14,3 +14,4 @@ Crea la Dirección General de Museos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-09-29 | la propia norma |
+| 2 | 1998-03-09 | Decreto Ejecutivo 26919 (1998-03-09) |
