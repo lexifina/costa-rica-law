@@ -1,0 +1,2 @@
+Artículo 4°—La Administración de este Monumento le corresponde a la Municipalidad de Liberia.
+En su administración el Gobierno Local deberá guardar los principios legales y técnicos para este tipo de áreas. El MINAE deben brindarle a la Municipalidad, dentro de sus posibilidades, la asesoría técnica necesaria para desarrollar el área protegida, no pudiendo utilizarse para vivienda, comercio o industria en general.

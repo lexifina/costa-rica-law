@@ -1,0 +1,1 @@
+Artículo 5°—De conformidad con el 6° de la ley Orgánica de Ambiente N° 7554 del 4 del octubre de 1995, la Municipalidad de Liberia; deberá fomentar por medio de organizaciones comunales, la participación activa de los habitantes en la toma de decisiones sobre el manejo de este Parque Ecológico.
