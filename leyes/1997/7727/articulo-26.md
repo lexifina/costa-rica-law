@@ -1,17 +1,2 @@
-ARTÍCULO 26.- Tribunal unipersonal
-Si ha de nombrarse un tribunal unipersonal, cada una de las partes
-propondrá a la otra el nombre de una o más personas que puedan ejercer las
-funciones de árbitro. Cuando alguien sea propuesto como árbitro, deberá
-indicarse su nombre, domicilio y dirección exactos, nacionalidad; así como
-una descripción de los méritos o las credenciales que posee para ser
-nombrado árbitro en el caso concreto.
-Si las partes no llegaren a un acuerdo sobre el nombramiento del
-árbitro dentro del plazo de quince días, contados a partir de la fecha en
-que una de las partes hubiere requerido a la otra someter la controversia
-a arbitraje, cualquiera de ellas podrá requerir el nombramiento del
-árbitro a la Secretaría General de la Corte Suprema de Justicia, de la
-lista que para ese efecto disponga la Corte Plena; al Colegio de Abogados
-o cualquier entidad debidamente autorizada para administrar arbitrajes,
-según las reglas de esa entidad. En caso de conflicto, la Secretaría
-General de la Corte dentro de un plazo de ocho días, deberá nombrar al
-árbitro, en riguroso turno de la lista que se llevará con ese propósito.
+ARTÍCULO 26.- Tribunal unipersonal. Si ha de nombrarse un tribunal unipersonal, cada una de las partes propondrá a la otra el nombre de una o más personas que puedan ejercer las funciones de árbitro. Cuando alguien sea propuesto como árbitro, deberá indicarse su nombre, domicilio y dirección exactos, nacionalidad; así como una descripción de los méritos o las credenciales que posee para ser nombrado árbitro en el caso concreto.
+Si las partes no llegaren a un acuerdo sobre el nombramiento del árbitro dentro del plazo de quince días, contados a partir de la fecha en que una de las partes hubiere requerido a la otra someter la controversia a arbitraje, cualquiera de ellas podrá requerir el nombramiento del árbitro a la Secretaría General de la Corte Suprema de Justicia, de la lista que para ese efecto disponga la Corte Plena; al Colegio de Abogados o cualquier entidad debidamente autorizada para administrar arbitrajes, según las reglas de esa entidad. En caso de conflicto, la Secretaría General de la Corte dentro de un plazo de ocho días, deberá nombrar al árbitro, en riguroso turno de la lista que se llevará con ese propósito.

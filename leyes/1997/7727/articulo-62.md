@@ -1,7 +1,1 @@
-ARTÍCULO 62.- Adiciones y correcciones
-Las partes podrán pedir, dentro de los tres días siguientes a la
-notificación, adiciones o aclaraciones al laudo o la corrección de errores
-en el texto. Si procediere, los árbitros deberán adicionar, aclarar o
-corregir los errores, dentro de los diez días siguientes a la presentación
-de la solicitud. La falta de pronunciamiento del tribunal dentro del plazo
-indicado, hará presumir la improcedencia de lo que se solicita.
+ARTÍCULO 62.- Adiciones y correcciones. Las partes podrán pedir, dentro de los tres días siguientes a la notificación, adiciones o aclaraciones al laudo o la corrección de errores en el texto. Si procediere, los árbitros deberán adicionar, aclarar o corregir los errores, dentro de los diez días siguientes a la presentación de la solicitud. La falta de pronunciamiento del tribunal dentro del plazo indicado, hará presumir la improcedencia de lo que se solicita.

@@ -1,6 +1,6 @@
 # Declara Zona Recreo y Turismo Franja entre Portete y 12 Millas Limón
 
-Ley N° 2906 del 1961-11-24. SINALEVI, ficha 35639: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35639&param2=64040&param3=1>.
+Ley N° 2906 del 1961-11-24. SINALEVI, ficha 35639: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35639&param2=37581&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1961-11-24 | Ley 2906 | 1961-11-24 |
 | 2 de 3 | 1961-11-24 | SINALEVI | 1961-11-24 |
+| 3 de 3 | 2001-06-30 | Ley 7 | 2001-01-15 |

@@ -1,9 +1,1 @@
-ARTÍCULO 48.- Contenido de la contestación
-En su contestación o en una etapa posterior, si el tribunal arbitral
-decidiere que las circunstancias lo justifican, la parte también podrá
-formular, en el mismo acuerdo arbitral, pretensiones fundadas, a las
-cuales se aplicarán los mismos requisitos que rigen para la presentación
-de las iniciales. Si el tribunal considerare oportunas las
-contrapretensiones, conferirá a la otra parte un plazo no menor de quince
-días, para que se refiera a ella en los mismos términos y las condiciones
-establecidos en el artículo 47.
+ARTÍCULO 48.- Contenido de la contestación. En su contestación o en una etapa posterior, si el tribunal arbitral decidiere que las circunstancias lo justifican, la parte también podrá formular, en el mismo acuerdo arbitral, pretensiones fundadas, a las cuales se aplicarán los mismos requisitos que rigen para la presentación de las iniciales. Si el tribunal considerare oportunas las contrapretensiones, conferirá a la otra parte un plazo no menor de quince días, para que se refiera a ella en los mismos términos y las condicionesestablecidos en el artículo 47.

@@ -1,4 +1,1 @@
-ARTÍCULO 9.- Acuerdos judiciales y extrajudiciales
-Los acuerdos de conciliación judiciales una vez homologados por el
-juez, y los extrajudiciales, tendrán autoridad y eficacia de cosa juzgada
-material y serán ejecutorios en forma inmediata.
+ARTÍCULO 9.- Acuerdos judiciales y extrajudiciales. Los acuerdos de conciliación judiciales una vez homologados por el juez, y los extrajudiciales, tendrán autoridad y eficacia de cosa juzgada material y serán ejecutorios en forma inmediata.

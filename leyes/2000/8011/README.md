@@ -1,6 +1,6 @@
 # Autoriza a INCOP Donar Derechos Posesión Inquilinos Suyos Puntarenas
 
-Ley N° 8011 del 2000-08-18. SINALEVI, ficha 44855: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44855&param2=64198&param3=1>.
+Ley N° 8011 del 2000-08-18. SINALEVI, ficha 44855: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=44855&param2=47304&param3=1>.
 
 Publicada en La Gaceta N° 170 del 2000-09-05.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 2000-09-05 | Ley 8011 | 2000-08-18 |
 | 2 de 3 | 2000-09-05 | SINALEVI | 2000-08-18 |
+| 3 de 3 | 2001-06-30 | Ley 7 | 2001-01-15 |

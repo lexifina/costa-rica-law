@@ -1,4 +1,1 @@
-ARTÍCULO 45.- Representación o asesoramiento a las partes
-Las partes deberán estar representadas o asesoradas por abogados, a
-quienes podrá otorgárseles un poder especial, en los mismos términos y
-condiciones que rigen para un poder especial judicial.
+ARTÍCULO 45.- Representación o asesoramiento a las partes. Las partes deberán estar representadas o asesoradas por abogados, a quienes podrá otorgárseles un poder especial, en los mismos términos y condiciones que rigen para un poder especial judicial.
