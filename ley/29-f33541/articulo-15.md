@@ -1,0 +1,5 @@
+Artículo 15º.- Los derechos cobrados conforme al Arancel Consular y a la presente ley, serán de propiedad del Tesoro Público, derogándose el Nº 42 del artículo 101 del Arancel Consular establecido por ley Nº 46 de 30 de junio de 1925.
+Artículos Transitorios
+Artículo 1º.- Durante el año 1946, las Secretarías de Relaciones Exteriores y de Hacienda, quedan facultadas para otorgar, de común acuerdo, a los Cónsules ad-honórem, las sumas que estimen apropiadas, de acuerdo con los servicios prestados y las entradas percibidas por la respectiva oficina Consular. A partir del 1º de enero de 1947, estos sueldos o asignaciones para gastos deberán incluirse en el Presupuesto General de Gastos.
+Artículo 2º.- Mientras se fabrican los timbres consulares definitivos establecidos por la presente ley, la Secretaría de Hacienda queda facultada para habilitar para el servicio consular, con el valor correspondiente en moneda americana, cualquier clase apropiada de timbres fiscales o sellos de correo.
+Esta ley regirá desde el día de su publicación.

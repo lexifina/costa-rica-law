@@ -1,0 +1,2 @@
+Artículo 12º.- Las cantidades percibidas por concepto de derechos consulares en virtud de lo dispuesto en el párrafo 2º del artículo 10 de esta ley, se aplicarán al pago de sueldos y gastos de oficina de los respectivos Consulados, de acuerdo con lo establecido es esta misma ley o en la de Presupuesto de Gastos de la Nación.
+(Derogado tácitamente mediante Ley N°1272 del 08 de Marzo de 1951 publicada en la Colección de Leyes y Decretos de 1951, Semestre I, Tomo 1, página N°118).

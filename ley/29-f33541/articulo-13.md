@@ -1,0 +1,2 @@
+Artículo 13º.- Las cantidades percibidas por concepto de venta de timbres consulares, de acuerdo con el párrafo 1º del artículo 10, se mantendrán en depósito en moneda americana, en el banco designado por contrato y su producto se destinará al pago de los servicios diplomáticos y consulares de la República.
+(Derogado tácitamente mediante Ley N°1272 del 08 de Marzo de 1951 publicada en la Colección de Leyes y Decretos de 1951, Semestre I, Tomo 1, página N°118).
