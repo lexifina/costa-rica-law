@@ -1,0 +1,1 @@
+Art. 2. Las personas que en virtud de lo dispuesto en dicha providencia se crean con derecho á reclamar del Gobierno los perjuicios que se les hayan ocasionado, lo harán por medio de los Jefes Políticos de sus respectivos Departamentos, quienes con el informe que demanda cada caso particular, elevarán sus solicitudes al Gobierno para acordar lo conveniente.
