@@ -1,0 +1,3 @@
+Artículo 18.—La Comisión de Becas cada año asignará según el presupuesto municipal la cantidad de becas a cada distrito del cantón a fin de que sean los Concejos de Distritos quienes hagan entrega y recomendación de los beneficiarios según consta en el artículo 57, inciso a) del Código Municipal.
+Los concejos de distrito deben indicarles a los beneficiados de las becas que deben llevar los formularios y los documentos correspondientes a la secretaría del Concejo Municipal a fin de abrir un expediente por distrito para que la Comisión de Becas analice, apruebe o impruebe las becas.
+Cada formulario, para tener validez, debe traer la firma del presidente del consejo de distrito y el sello.
