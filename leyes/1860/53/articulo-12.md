@@ -1,0 +1,1 @@
+Art 12° Las multas que le impongan en virtual del presente decreto, serán exigidas por los respectivos Gobernadores de las Provincias a pedimento de parte interesada o del Agente Fiscal y aplicadas a los fondos de Policía.

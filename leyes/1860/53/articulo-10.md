@@ -1,0 +1,1 @@
+Art 10° El conductor que perdiere o a quien de cualquiera manera se le extraviare la patente, es obligado a dar aviso, dentro de tercero día, al Gobernador de la Provincia, bajo la multa de diez pesos si no lo verificare, más en ningún caso, se perjudicarán los intereses de tercero cuando se probarse malicia o negligencia de parte del conductor.

@@ -1,0 +1,1 @@
+Art 9° La persona que, sin previo avenimiento con el dueño y legal autorización de este, hiciere uso de las patentes ajenas, incurrirá en una multa de veintiocho pesos, por la primera vez, y seis meses de obras públicas por la segunda, a más de ser, en ambos casos, responsables a los daños y perjuicios que ocasionen.

@@ -1,0 +1,1 @@
+Art 11°. - Tan luego como el Gobernador reciba aviso de la pérdida de alguna patente, debe bajo su responsabilidad, hacerlo publicar en el periódico oficial, para inteligente del comercio, reponiendo aquel documento, si el interesado lo pidiere, con la nota duplicado.
