@@ -1,7 +1,7 @@
 ARTICULO IX
 Enriquecimiento ilícito
-Con sujeción a su Constitución y a los principios fundamentales de su
-ordenamiento jurídico, los Estados Partes que aún no lo hayan hecho
+Con sujeción a su Constitución y a los principios fundamentales de
+su ordenamiento jurídico, los Estados Partes que aún no lo hayan hecho
 adoptarán las medidas necesarias para tipificar en su legislación como
 delito, el incremento del patrimonio de un funcionario público con
 significativo exceso respecto de sus ingresos legítimos durante el
