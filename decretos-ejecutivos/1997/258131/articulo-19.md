@@ -1,0 +1,1 @@
+Artículo 19.—Únicamente se podrán disfrutar vacaciones proporcionales cuando al no cumplir las cincuenta semanas de servicio continuo, deviene la terminación de la relación de servicio, o ante vacaciones colectivas que deba dar la Dirección General.

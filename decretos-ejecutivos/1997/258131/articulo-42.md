@@ -1,0 +1,1 @@
+Artículo 42.—Todo servidor deberá comunicar, en las primeras horas de la jornada correspondiente, por el medio que considere más idóneo, a su director de núcleo inmediato, que durante esa jornada va a estar ausente de sus labores, sin que tal aviso signifique la justificación de su inasistencia.
