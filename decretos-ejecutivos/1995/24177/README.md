@@ -14,3 +14,4 @@ Requisitos Ex-Administradores Aduanas para Fungir como Agentes Aduana
 | --- | --- | --- |
 | 1 | 1995-04-20 | la propia norma |
 | 2 | 1996-06-14 | Decreto Ejecutivo 25270 (1996-06-14) |
+| 3 | 1996-06-14 | Ley 8 |
