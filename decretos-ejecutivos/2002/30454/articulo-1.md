@@ -7,4 +7,5 @@ Considerando:
 2º—Que el Sistema Nacional de Radio y Televisión Cultural, tiene además la tarea de contribuir en el desarrollo del Sistema Educativo Nacional y promover una información integradora del contexto social e histórico.
 3º—Que en cumplimiento con las disposiciones dictadas por el Decreto Nº 26916-MP, es atribución del Poder Ejecutivo nombrar al Director General Sistema Nacional de Radio y Televisión Cultural. Por tanto,
 Decretan:
-Artículo 1º—Nómbrese al señor Miguel Zúñiga Díaz, cédula de identidad 1-225-518, en el cargo de Director General del Sistema Nacional de Radio y Televisión Cultural.
+Artículo 1º—Nómbrese al señor Miguel Zúñiga Díaz, conocido como Miguel Salguero Zúñiga, cédula de identidad Nº 1-225-518, en el cargo de Director General del Sistema Nacional de Radio y Televisión Cultural, en forma Ad Honorem.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 30458 de 10 de mayo del 2002)
