@@ -1,0 +1,1 @@
+Art 2° Los Secretarios de las Salas que constituyen el Supremo Tribunal y los Jueces de 1° Instancia, remitirán, respectivamente, para el efecto del artículo anterior, al Secretario de Estado en el Despacho de justicia, copia legalizada de las referidas sentencias y votos en discordia.
