@@ -14,3 +14,4 @@ Reglamento para la Administración de Vehículos propiedad del Banco Popular y d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-04 | la propia norma |
+| 2 | 2001-12-18 | Reglamento 0 (2001-12-18) |

@@ -1,3 +1,4 @@
-Articulo 4°—Salvo en el caso de los vehículos asignados al área de seguridad, los de uso administrativo deberán rotularse de manera visible.de forma no removible en sus costados con el logotipo de! Banco y con leyenda "Uso Oficial" y deberá portar placas de matricula oficial.
-Cuando por razones de trabajo deban circular en horas y días inhábiles, deberán portar, además, una autorización especial, suscrita por los jerarcas de la Dependencia de Transportes y de la unidad solicitante.
-Dicha autorización deberá contar con el visto bueno de la Gerencia Genera! o Subgerencias.
+Artículo 4°—Salvo en el caso de los vehículos asignados al área de seguridad , los de uso administrativo deberán rotularse de manera visible, y de forma no removible en sus costados con el logotipo del Banco y con la leyenda "Uso Oficial" y deberá portar placas de matrícula oficial.
+Cuando por razones de trabajo deban circular en horas y días inhábiles, deberán portar, además, una autorización especial, suscrita por los jerarcas de la Dependencia de Transportes y de la unidad solicitante. Dicha autorización deberá contar con el visto de la Gerencia General o Sugerencias.
+En el caso de los vehículos de uso administrativo de la Auditoría Interna, únicamente se requerirá autorización de parte del AuditorGeneral o del Subauditor.
+(Así reformado mediante sesión de fecha 18 de diciembre del 2001)
