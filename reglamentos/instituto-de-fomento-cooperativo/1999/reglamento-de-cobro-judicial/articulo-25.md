@@ -1,1 +1,1 @@
-Artículo 25.—El presente reglamento rige a partir de su publicación en el Diario Oficial "La Gaceta" y podrá ser interpretado o modificado por la Junta Directiva del INFOCOOP, con la aprobación de por lo menos cinco de sus miembros.
+Artículo 25.—Para realizar un embargo sobre bienes muebles o inmuebles, el abogado director del proceso deberá coordinar con el proceso de operaciones, a fin de solicitar al juzgado la entrega de dicho bien en depósito judicial a favor del INFOCOOP, así como el nombre del funcionario que fungirá como depositario judicial.

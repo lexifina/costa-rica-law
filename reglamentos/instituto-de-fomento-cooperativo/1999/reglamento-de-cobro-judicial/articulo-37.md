@@ -1,0 +1,1 @@
+Artículo 37.—Cuando el bien fuere adjudicado al INFOCOOP en remate, el abogado director pedirá al Tribunal, tan pronto venzan los plazos fijados por la ley, la aprobación del mismo y una vez que se encuentre firme la resolución respectiva, la comunicará de inmediato y por escrito al proceso de operaciones, solicitando se asigne notario para la protocolización respectiva.

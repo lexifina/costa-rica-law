@@ -1,0 +1,1 @@
+Artículo 46.—El abogado deberá brindar asesoría oportuna al INFOCOOP con respecto a los asuntos bajo su dirección, sugerir alternativas mejores, o manifestar oportunamente y por escrito al proceso de operaciones si considera inconveniente o riesgosa alguna instrucción que se le gire.

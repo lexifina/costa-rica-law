@@ -1,1 +1,1 @@
-Artículo 24.—Todos los abogados encargados de la atención y tramitación de juicios tendrán una copia de este reglamento y firmarán contra la entrega del mismo por parte de la Dirección Ejecutiva, haciendo constar tal circunstancia, así como su conformidad con todas las estipulaciones del mismo.
+Artículo 24.—Todo embargo de bienes debe contar de previo con un estudio registral que determine la conveniencia de practicar el embargo, salvo que sea indispensable proceder inmediatamente para que la gestión no se malogre.

@@ -1,4 +1,1 @@
-Artículo 4°—Las gestiones de cobro administrativo cumplen una secuencia de acciones bien determinadas, que se extienden desde el primer día de atraso a los treinta y ocho días naturales de atraso.
-a) Con el primer día hábil de atraso en el pago de la amortización, intereses o ambos, se envía aviso sólo al deudor comunicando el atraso y previniéndolo a regularizar la operación.
-b) Con quince días naturales de atraso se envía carta certificada tanto al deudor como a los demás obligados, en los mismos términos del inciso anterior.
-c) A los treinta días naturales de atraso, se envía carta de abogado al deudor con copia a los demás obligados, solicitándoles con amabilidad pero enérgicamente la regularización del crédito dentro del plazo improrrogable de ocho días naturales, contados a partir del momento en que se envíe la carta referida por correo certificado.
+Artículo 4º—La gestión de cobro se divide en dos etapas: cobro administrativo y el cobro judicial.

@@ -1,0 +1,1 @@
+Artículo 30.—En caso de arreglos extrajudiciales, deberán ser refrendados por la comisión de crédito y resueltos por junta directiva, donde el respectivo informe técnico valorará los aspectos de capacidad de pago y garantías respectivas. La metodología de análisis aplicada será la utilizada por el sistema financiero.

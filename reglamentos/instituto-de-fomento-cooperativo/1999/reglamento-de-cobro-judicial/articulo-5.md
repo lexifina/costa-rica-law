@@ -1,2 +1,3 @@
-Artículo 5°—El plazo concedido en el artículo anterior fija el límite de las gestiones de cobro administrativo; a partir de este momento el Departamento de Crédito preparará todo el legajo de documentación para remitirlo al Departamento Legal o al abogado externo, previo visto bueno de la Dirección Ejecutiva, con el propósito de que inicie el cobro judicial.
-El Jefe del Departamento de Crédito, cuando lo considere conveniente para los intereses del INFOCOOP, como la anuencia de la Dirección Ejecutiva, podrá iniciar el trámite de la acción cobratoria por la vía judicial en un periodo inferior a los treinta días naturales.
+CAPÍTULO II
+Del procedimiento de cobro administrativo
+Artículo 5º—El cobro administrativo es toda acción cobratoria que realice el INFOCOOP para normalizar situaciones irregulares que presentan las operaciones de crédito, antes de recurrir al cobro por la vía judicial.

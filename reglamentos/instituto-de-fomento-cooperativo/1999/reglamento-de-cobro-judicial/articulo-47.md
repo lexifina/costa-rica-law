@@ -1,0 +1,1 @@
+Artículo 47.—El abogado debe cumplir en forma pronta y eficaz con todos los trámites que el cobro judicial demanda, efectuando todas las acciones necesarias para lograr al menor tiempo posible, la recuperación de la deuda.

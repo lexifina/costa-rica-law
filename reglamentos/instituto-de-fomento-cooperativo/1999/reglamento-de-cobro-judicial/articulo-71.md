@@ -1,0 +1,1 @@
+Artículo 71.—El INFOCOOP se reserva el derecho de modificar, reformar, adicionar y aún derogar o sustituir el presente reglamento, con la aprobación, de por lo menos cinco miembros de su junta directiva. Todo ello lo aceptan expresamente los señores abogados, sin que puedan alegar derechos adquiridos de ninguna especie al amparo de él.

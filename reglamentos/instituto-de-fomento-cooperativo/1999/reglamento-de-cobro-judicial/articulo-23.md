@@ -1,1 +1,4 @@
-Artículo 23.—En caso de un juicio con sentencia, en el cual se compruebe la falta de bienes embargables o ausencia de posibilidades de pago, el abogado director deberá comunicar esta circunstancia a la Dirección Ejecutiva para que proceda de inmediato de conformidad con el artículo 86 y siguientes de la Ley de Asociaciones Cooperativas.
+CAPÍTULO V
+De los embargos
+Artículo 23.—En los juicios ejecutivos hipotecarios y prendarios se solicitará el embargo previamente al remate cuando así convenga a los intereses del INFOCOOP.
+En los juicios ejecutivos simples el INFOCOOP procederá a practicar el embargo de los bienes correspondientes a fin de tener el control pleno sobre ellos antes de que se realice el remate, y poder así tomar las medidas necesarias para su protección y conservación.

@@ -1,0 +1,1 @@
+Artículo 26.—Si se comprueba en la inspección ocular que los bienes están sumamente deteriorados, el abogado director informará por escrito sobre la posibilidad de no efectuar el remate, y perseguir otros bienes en vía ejecutiva, de conformidad con el Código Procesal Civil.

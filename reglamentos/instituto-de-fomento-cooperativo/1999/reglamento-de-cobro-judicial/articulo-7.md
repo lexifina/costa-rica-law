@@ -1,6 +1,5 @@
-CAPITULO TERCERO
-Del procedimiento de cobro judicial
-Artículo 7°—El cobro judicial será entendido como las gestiones cobratorias que se realicen por la vía judicial.
-Una vez concluido el periodo de cobro administrativo, tratándose de las operaciones en estado irregular por atraso en amortizaciones y/o intereses, el Departamento de Crédito previa anuencia de la Dirección Ejecutiva hará el traspaso y entrega del legajo de documentación a quien corresponda.
-Una vez que la demanda respectiva haya sido presentada ante la Autoridad competente, se deberá contabilizar en forma separada de los demás créditos ordinarios del INFOCOOP, en una cuenta con nombre apropiado, la cual podrá tener las subcuentas que se consideren necesarias. Los abogados directores deberán presentar en un plazo máximo de 10 días, copia del legajo de documentos al Departamento de Finanzas con copia al Departamento de Crédito.
-Cada tres meses el Departamento Legal presentará un informe individualizado en cada caso a la Dirección Ejecutiva sobre el estado de las operaciones en cobro judicial con el propósito de medir el resultado de las acciones cobratorias, copia de este informe se hará llegar al Departamento de Crédito.
+Artículo 7º—Las gestiones de cobro administrativo cumplen una secuencia de acciones determinadas que se extienden desde que el Organismo cooperativo incurra en mora en sus operaciones, según el siguiente detalle:
+a) Dentro de los primeros cinco días de morosidad se realizarán llamadas telefónicas y se enviará aviso por escrito sólo al deudor, comunicando el incumplimiento, y previniéndolo para regularizar la operación.
+b) Dentro de los quince días de morosidad se enviará carta certificada, tanto al deudor como a los demás obligados, en los mismos términos del inciso anterior.
+c) Al cumplirse un mes de morosidad, se enviará carta de abogado al deudor con copia a los demás obligados, solicitándoles la regularización del crédito dentro del plazo improrrogable de ocho días, contados a partir del momento en que se envíe esta carta por correo certificada.
+d) Previo al inicio de cobro se realizará un proceso de diagnóstico de la empresa y de negociación a fin de determinar la naturaleza, la causa de la morosidad y establecer mecanismos para la normalización del crédito. En caso de no viabilidad se iniciará la solicitud de cobro judicial.
