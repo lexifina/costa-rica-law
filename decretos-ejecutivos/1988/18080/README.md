@@ -15,3 +15,4 @@ Reglamento de Esterilizaciones
 | --- | --- | --- |
 | 1 | 1988-05-18 | la propia norma |
 | 2 | 1997-01-22 | Decreto Ejecutivo 25805 (1997-01-22) |
+| 3 | 1997-04-01 | Decreto Ejecutivo 25962 (1997-04-01) |
