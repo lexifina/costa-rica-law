@@ -1,0 +1,1 @@
+Artículo 4°.-Cada fin de semestre las Juntas Administrativas de los planteles favorecidos por este impuesto enviarán a la Subsecretaría de Educación Pública un cuadro detallado, y con los respectivos comprobantes, de los ingresos que hayan tenido durante dicho semestre.

@@ -1,0 +1,1 @@
+Artículo 3°.-A partir del año 1934 deberá aparecer en el Presupuesto anual de cada uno de los establecimientos citados, una partida equivalente a la suma de las doce mensualidades anteriores que, por concepto del impuesto de espectáculos públicos, haya correspondido a cada uno de dichos establecimientos. Esa misma norma se observar en los años siguientes.
