@@ -1,0 +1,1 @@
+Artículo 10.—De la evaluación y seguimiento de las actividades de capacitación. Toda actividad de capacitación debe estar sometida a evaluación y seguimiento por parte del Subproceso respectivo. El cumplimiento del Plan Anual de Capacitación será evaluado por el Consejo Nacional del Deporte y la Recreación, sobre el informe que al efecto presente la Directora Nacional del ICODER.

@@ -1,0 +1,1 @@
+Artículo 16.—Las sesiones de la Comisión serán privadas, no obstante ésta podrá solicitar la comparecencia de algún funcionario cuando lo estime conveniente igualmente podrá conceder audiencia al funcionario que así lo solicite.

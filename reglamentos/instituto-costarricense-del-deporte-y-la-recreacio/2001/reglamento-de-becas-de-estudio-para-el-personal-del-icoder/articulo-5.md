@@ -1,0 +1,1 @@
+Artículo 5º—Subproceso de Capacitación. El Subproceso de capacitación es una dependencia del Proceso de Recursos Humanos, responsable del desarrollo adecuando de las actividades de capacitación a nivel nacional y de la administración de recursos técnicos, tecnológicos y materiales destinados a estas actividades en el ICODER.

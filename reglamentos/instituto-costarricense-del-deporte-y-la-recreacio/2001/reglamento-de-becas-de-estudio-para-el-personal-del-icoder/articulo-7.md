@@ -1,0 +1,1 @@
+Artículo 7º—De la Partida presupuestaria de capacitación y becas. Para ejecutar las actividades programadas en cuanto a becas y capacitación, la Comisión de Becas velará por la adecuada ejecución de las partidas 603 y 604 de becas y capacitación respectivamente. Lo anterior a efectos de que monto presupuestado sea ejecutado para las actividades indicadas.

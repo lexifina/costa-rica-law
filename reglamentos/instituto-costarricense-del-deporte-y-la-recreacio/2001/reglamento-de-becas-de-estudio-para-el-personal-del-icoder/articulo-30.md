@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Disposiciones finales
+Artículo 30.—Situaciones no previstas. Los casos no contemplados en el presente Reglamento serán resueltos conforme a la Ley de Licencias para adiestramiento de Servidores Públicos, así como las leyes y reglamentos conexos y en cuanto a los asuntos procedimentales de la Comisión de Becas, se regirán según lo dispuesto en el Reglamento Interno de Trabajo del ICODER vigente. En el caso de licencias para estudio en Costa Rica, éstas se regirán estrictamente por lo que sobre la materia establece el Código de Trabajo. En ningún caso podrán exceder los límites que al efecto señala la mencionada normativa.

@@ -1,0 +1,1 @@
+Artículo 29.—De la liberación de las obligaciones. Transcurrido un año desde que adquirió la condición de graduado sin que el ICODER lo ubique en un puesto de nivel profesional, el becario queda liberado de la obligación señalada en el artículo 26 inciso h) de este Reglamento.
