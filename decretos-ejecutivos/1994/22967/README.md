@@ -14,3 +14,4 @@ Créase " Zona Protectora Nosara" (Actualmente Zona Protectora Monte Alto )
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-03-10 | la propia norma |
+| 2 | 2005-03-08 | Decreto Ejecutivo 32755 (2005-03-08) |

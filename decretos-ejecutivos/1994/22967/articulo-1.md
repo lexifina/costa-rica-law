@@ -9,7 +9,8 @@ Que es deber del estado asegurar la preservación de las Áreas de protección p
 -Que el deterioro de la cuenca ha generado la pérdida de calidad y distribución del agua, afectando directamente la principal población de esta cuenca.
 -Que existen estudios técnicos realizados por la Dirección General Forestal y el CATIE que demuestran la necesidad de proteger la cuenca superior del Río Nosara mediante medidas apropiadas que garanticen bajo el concepto de desarrollo sostenible. Por tanto,
 DECRETAN:
-Artículo 1°—Créase la Zona Protectora Nosara, cuyos límites se describirán y estarán comprendidos en las Hojas Cartográficas Matambú N° 3146-III Escala 1:50.000 del I.G.N., partiendo de un punto ubicado en el camino que une los poblados de Maravilla y Hojancha, coordenadas 224100 N 380200 E (punto 1), continua con una serie de líneas rectas pasando por los puntos
+Artículo 1°—Créase la *Zona Protectora Monte Alto, cuyos límites se describirán y estarán comprendidos en las Hojas Cartográficas Matambú N° 3146-III Escala 1:50.000 del I.G.N., partiendo de un punto ubicado en el camino que une los poblados de Maravilla y Hojancha, coordenadas 224100 N 380200 E (punto 1), continua con una serie de líneas rectas pasando por los puntos
+(*Así modificada su denominación por el artículo 1° del decreto ejecutivo N° 32755 del 8 de marzo del 2005)
 224080 | N | 380680 | E | (2) | Sobre camino a fincas
 223650 | N | 380940 | E | (3) |
 223650 | N | 381360 | E | (4) | Sobre camino
