@@ -1,0 +1,3 @@
+CAPÍTULO III
+Disposiciones finales
+Artículo 10.—Procedimientos de cooperación: El Banco Hipotecario de la Vivienda y el Instituto Mixto de Ayuda Social podrán establecer en forma conjunta, mediante convenios de cooperación, los instrumentos que fueren necesarios para la mejor implementación de las medidas tendientes al cumplimiento de las anteriores disposiciones. Para tales efectos se autoriza a la Administración del Banco Hipotecario de la Vivienda para firmar los convenios correspondientes, especialmente aquellos que coadyuven con mecanismos expeditos para la emisión y remisión de las certificaciones para acreditar la condición de Adulto Mayor Solo a que se refieren las presentes normas.

@@ -1,0 +1,1 @@
+Artículo 4º—Planes de inversión: La aplicación del bono familiar de vivienda para Personas Adultas Mayores Solas se podrá hacer para los siguientes planes de inversión: compra de lote y construcción inmediata, construcción en lote propio, compra de vivienda existente, reparaciones, ampliaciones y mejoras. No se aplicará el citado beneficio para el programa de compra de lote.

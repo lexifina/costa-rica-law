@@ -1,0 +1,1 @@
+Artículo 12.—Derogatoria: Se deroga el reglamento de "Normas para el otorgamiento de donaciones destinadas a la construcción, reparación o ampliación de viviendas de interés social para personas de tercera edad sin núcleo familiar y sin vivienda propia" publicado en La Gaceta del 20 de agosto de 1992.
