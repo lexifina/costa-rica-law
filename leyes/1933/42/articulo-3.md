@@ -1,0 +1,1 @@
+Artículo 3°.- El atraso en los pagos parciales de la obligación renovada de acuerdo con las respectivas escrituras, así como el abandono de las fincas dadas en garantía, a juicio de la Directiva del Banco, harán incurrir a los deudores en la pérdida de los beneficios que les concede esta ley y en las demás sanciones estipuladas.
