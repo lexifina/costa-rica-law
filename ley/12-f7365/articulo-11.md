@@ -1,0 +1,1 @@
+Art. 11.-En cada uno de los pasos de los ríos Pacuare y Reventazón serán refrendadas las guías dadas en Matina, poniendo los canoeros una razón en cada una de ellas, de la fecha en que pasaron, y marchamando cada bulto en el lado opuesto a la marca del dueño, con una letra de que les proveer la Administración, la cual será la inicial del nombre de cada río.
