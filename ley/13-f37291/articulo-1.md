@@ -1,6 +1,5 @@
-(Derogado)
 N° 13.
-(Esta norma fue derogada por el artículo 17 de la ley N° 22 del 28 de agosto de 1917)
+(La presente norma había sido derogada por el artículo 17 de la ley Nº 22 de 28 de agosto de 1917 pero ésta, a la vez, fue declarada nula por ley Nº 41 de 21 de agosto de 1920, restableciéndose la vigencia de la presente ley.).
 EL CONGRESO CONSTITUCIONAL
 DE LA REPÚBLICA DE COSTA RICA
 Atendiendo á que es de cardinal importancia para el bienestar social prevenir por cuantos medios estén á su alcance el incremento del vicio y de la delincuencia y las perturbaciones de la paz pública,

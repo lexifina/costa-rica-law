@@ -1,3 +1,5 @@
+(Derogado)
+(Esta ley fue derogada por el artículo 1° de la ley N° 41 del 21 de agosto de 1920 "Ley de Nulidades contra Normativa Emitida en Régimen de Tinoco")
 El Presidente Constitucional de la República de Costa Rica
 Por cuanto la Cámara de Diputados ha decretado lo siguiente:
 N°. 10

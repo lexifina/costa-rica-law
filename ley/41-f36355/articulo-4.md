@@ -1,0 +1,1 @@
+Artículo 4°.-Encargase a la Corte Suprema de Justicia la revisión del Código Penal de 1918. La Corte indicará al Congreso, tan pronto como le sea posible, las modificaciones que a su juicio convenga introducir a dicho Código, así como al de Procedimientos Penales y a la Ley Orgánica de Tribunales, a fin de que todos guarden debida armonía.
