@@ -1,0 +1,1 @@
+Artículo 3°—Se entenderá como salario total la suma de todos los conceptos que reciba él Profesional, tales como salario base, anualidades, carrera profesional, bonificación adicional, los incentivos creados en la Ley y todas aquellas sumas que legalmente se tengan como salario.

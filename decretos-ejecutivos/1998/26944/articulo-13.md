@@ -1,0 +1,1 @@
+Artículo 13. — El presente Decreto rige para todos los entes empleadores de Profesionales en Ciencias Médicas del Sector Público, de conformidad con lo dispuesto por el Artículo 22 de la Ley 836 del veintidós de diciembre de mil novecientos ochenta y dos.

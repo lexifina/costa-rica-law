@@ -1,0 +1,2 @@
+Artículo 7°—El salario ordinario de los testigos estará constituido por todos los montos salariales ordinarios, sea cual fuere su denominación, que devengue el empleado o funcionario durante el transcurso de las jornadas ordinarias que lo identifican como un empleado p funcionario a tiempo completo. Tratándose de incentivos a la productividad, por su naturaleza, no se tomarán en cuenta como salario ordinario.
+En el caso de los profesores que laboran bajo la modalidad de lecciones, se toma como tiempo completo una carga laboral de treinta lecciones semanales.

@@ -1,0 +1,1 @@
+Artículo 10.—La vigencia de este ajuste será a partir de la misma fecha del aumento general. Si el aumento general no se produjera durante un año, la Dirección revisará y aplicará el porcentaje que establezca de nuevo la relación vigente, si esta hubiera disminuido y regirá a partir del momento de la revisión.

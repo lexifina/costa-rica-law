@@ -1,0 +1,1 @@
+Transitorio 5.—El Factor de Equilibrio se pagará a partir del primero de julio de mil novecientos noventa y ocho y el retroactivo en referencia se cancelará el 56%, en julio de mil novecientos noventa y ocho, y el 44% restante en febrero de mil novecientos noventa y nueve.

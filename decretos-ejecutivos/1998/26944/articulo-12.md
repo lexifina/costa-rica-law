@@ -1,0 +1,1 @@
+Artículo 12.—Si al ejecutarse este Reglamento surgiere alguna discrepancia sobre porcentajes, cifras y en general sobre sus alcances, la parte que se considere afectada podrá comunicarlo por escrito al Ministerio de Trabajo, quien convocará a las partes interesadas a fin de resolver el diferendo surgido.
