@@ -1,0 +1,1 @@
+Artículo 9º—Los Ministerios en coordinación con sus órganos desconcentrados, deberán de realizar un diagnóstico y un plan de acción con el fin de que se elabore en un plazo de dos años a partir del 2004, una EBPAO que incluya lo correspondiente tanto al ministerio como a sus órganos desconcentrados.
