@@ -1,0 +1,2 @@
+Artículo 3°—La Autoridad Presupuestaria solicitará a la Comisión de de Recursos Humanos, el estudio correspondiente para evacuar la consulta a que se refiere el inciso a) del artículo anterior. Asimismo esta Comisión estudiará y resolverá lo relacionado con las horas extraordinarias laboradas por los servidores públicos.
+(La Sala Constitucional mediante resolución N° 835 del 10 de febrero de 1998, estableció que este artículo no es inconstitucional, en tanto por "servidores públicos" se entienda solamente a los que forman parte de la Administración Central.)
