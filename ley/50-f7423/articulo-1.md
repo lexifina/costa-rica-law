@@ -1,0 +1,6 @@
+DECRETO L.
+Dispone la venta de polvora por cuenta del Estado, en las Receptorias de alcabalas (1)
+(I) Refundido en el Capit. XV seccion 2a Cap. IX seccion 3a del nuevo Reglamento de hacienda.
+"El Sepador encargado del Supremo Poder Ejecutivo del Estado libre de Costa Rica-_Por cuanto las Càmaras han decretado y sancionado lo siguiente.
+La Cámara de Senadores del Estado libre de Costa Rica, considerando: que la pólvora que existe en los almacenes del Estado en razon de la decadencia en que ha estado y está aun, la industria minera que forma su principal consumo, el ramo se mantiene estacionario: que esta especie, aunque en algunos casos se emplea en objetos de puro lujo, es tambien elemento necesario para diversasélases de industria; que la polvora se deteriora en los almacenes á consecuencia de la humedad del clima; y finalmente que su consumo se impulsará moderando los precios del estanco, y los contrabandistas perderán el estimulo de una excesiva ganancia, decreta.
+Art. 1° De la pólvora que existe en los almacenes del Estado, se venderá en las Receptorias de alcabalas de cada ciudad, la porcion que á juicio del Ejecutivo convenga hacerlo, dando á seis rea-les la mas fina o de primera calidad, á cinco la entrefina, y á cuatro la ordinaria o de cañon.
