@@ -60,6 +60,7 @@ articulo-59.md
 articulo-60.md
 articulo-61.md
 articulo-62.md
+articulo-62-bis.md
 articulo-63.md
 articulo-64.md
 articulo-65.md
@@ -78,11 +79,13 @@ articulo-77.md
 articulo-78.md
 articulo-79.md
 articulo-80.md
+articulo-80-bis.md
 articulo-81.md
 articulo-82.md
 articulo-83.md
 articulo-84.md
 articulo-85.md
+articulo-85-bis.md
 articulo-86.md
 articulo-87.md
 articulo-88.md

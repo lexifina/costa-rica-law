@@ -1,0 +1,2 @@
+Artículo 85 bis.-En caso de escrituras otorgadas ante dos o más notarios, cualquiera de ellos podrá, separadamente, expedir los testimonios y certificaciones de las escrituras que hubieran autorizado, hacer al pie de los testimonios las correcciones que autoriza el artículo 62 bis a), dejar la constancia marginal en el protocolo respectivo y hacer las correcciones de casilla.
+(Así adicionado por el artículo 1° de la ley N° 6145 del 18 de noviembre de 1977)
