@@ -1,0 +1,1 @@
+Artículo 28.—Los servidores de CONAPE disfrutarán de dos días fijos de descanso absoluto por cada remana o cada cinco días de servicio continuo, de acuerdo con PUS funciones. Preferentemente esos días coincidirán con los días sábado y domingo, siempre que así sea cosible, de acuerdo con las necesidades de producción y administración de CONAPE.

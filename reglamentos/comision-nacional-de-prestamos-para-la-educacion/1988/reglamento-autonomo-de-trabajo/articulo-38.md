@@ -1,0 +1,3 @@
+Artículo 38.—La suspensión del servidor se aplicará hasta por ocho días hábiles y sin goce de salario, una vez que se haya oído al interesado y a los compañeros de trabajo que él indique, en consulta del superior inmediato del trabajador con la Secretaría Ejecutiva, o por la persona que ésta designe, en los siguientes casos:
+a) Cuando el servidor viole alguna de las prohibiciones del artículo 33 después de haber sido amonestado verbalmente o por escrito, salvo que la falta diere mérito para el despido o estuviere sancionada por otra disposición de este Reglamento.
+b) Cuando el servidor cometa alguna falta de cierta gravedad que no dé mérito al despido, excepto si estuviere sancionado de manera especial por otra disposición de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 22.—Al acordarse recargo de funciones el empleado sustituto tiene derecho a recibir el sueldo base del puesto de la categoría superior, si fuera mayor, la diferencia en el monto de cada anualidad de acuerdo con sus años de servicio y la diferencia por dedicación exclusiva, cuando así corresponda en todos los aspectos.

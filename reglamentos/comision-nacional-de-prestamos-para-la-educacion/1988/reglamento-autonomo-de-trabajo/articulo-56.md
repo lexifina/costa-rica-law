@@ -1,0 +1,1 @@
+Artículo 56.—CONAPE se reserva el derecho de ampliar y modificar en cualquier momento las disposiciones del presente Reglamento, con sujeción en cada caso a las disposiciones legales vigentes que fueren aplicables. Dichas modificaciones deberán ser de conocimiento de los servidores, al menos quince días antes de su vigencia.

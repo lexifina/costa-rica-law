@@ -1,0 +1,1 @@
+Artículo 5°—Pese a lo dispuesto en los artículos anteriores, se presume la existencia del contrato y de la relación de servicio entre CONAPE y quienes presten sus servicios personales, en forma subordinada, y a cambio de una retribución o salario de cualquier clase o forma.

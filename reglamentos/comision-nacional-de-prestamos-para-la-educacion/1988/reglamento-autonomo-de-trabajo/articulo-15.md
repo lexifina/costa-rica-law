@@ -1,0 +1,1 @@
+Articulo 15.—El Consejo Directivo o la Secretaría Ejecutiva podrán modificar transitoriamente los horarios de trabajo anteriores, siempre que circunstancias especiales así lo exijan y no se cause perjuicio a los servidores afectados. En este caso, el cambio de horario deberá ser comunicado a los servidores afectados con un mínimo de tres días de anticipación.

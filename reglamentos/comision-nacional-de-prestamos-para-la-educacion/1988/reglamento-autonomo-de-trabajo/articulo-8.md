@@ -1,0 +1,1 @@
+Artículo 8°—El período de prueba menor de seis meses se aplicará también en los casos de ascensos o traslados de manera tal que el servidor ascendido o trasladado podrá ser reintegrado a su anterior ocupación, cuando CONAPE estime que no reúne satisfactoriamente los requisitos requeridos para la normal ejecución del empleo en cuestión.

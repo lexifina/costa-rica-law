@@ -1,0 +1,1 @@
+Artículo 7°—En todo contrato o relación de servicio indeterminado habrá un período de prueba de seis meses, salvo en aquellos en que se convenga un plazo menor. Durante este período y sin previa aviso, cualquiera de las partes podrá dar por terminado el contrato laboral que los une, sin responsabilidad.

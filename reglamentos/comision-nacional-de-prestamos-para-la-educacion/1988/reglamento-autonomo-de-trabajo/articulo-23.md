@@ -1,0 +1,1 @@
+Artículo 23.—Los incentivos concedidos por la institución tales como becas o cualquier servicio a precio reducido y estímulos económicos o sociales de cualquier clase, no serán considerados como salario en especie, teniendo por lo tanto carácter de simples regalías.

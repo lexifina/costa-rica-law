@@ -1,0 +1,1 @@
+Artículo 9°—Todo servidor podrá ser requerido por sus superiores para realizar temporal o indefinidamente, cualquier otro trabajo adicional o diferente, compatible con sus fuerzas, habilidades, estado o condición, siempre que sea del mismo género que los que forman el objeto de la actividad a que se dedica CONAPE y que la medida no implique grave perjuicio en su contra.

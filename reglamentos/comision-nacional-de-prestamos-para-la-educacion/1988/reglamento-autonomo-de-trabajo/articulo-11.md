@@ -1,0 +1,1 @@
+Artículo 11.—La jornada de servicio efectiva será la siguiente: por semana en forma acumulativa, regulada por los horarios que en los artículos siguientes se establecen, salvo en aquellos casos en que expresa o tácitamente se haya pactado o convenido una menor. En todo caso la jornada máxima ordinaria será de cuarenta y ocho horas por semana.

@@ -1,0 +1,2 @@
+Artículo 49.—En CONAPE se establecerán las comisiones de seguridad que sean necesarias, las cuales se integrarán con igual número de representantes del patrono y de los servidores. Dichas comisiones tienen por finalidad investigar las causas de los riesgos profesionales, proponer las medidas para prevenirlos y vigilar que se cumplan.
+Los miembros de estas comisiones desempeñan, sus cargos gratuitamente de acuerdo con la ley, dentro de la relación de servicio y sin rebaja de salario.

@@ -1,0 +1,3 @@
+CAPITULO III
+Jornada de prestación de servicio
+Artículo 10.—La jornada de servicio se desarrollará en las instalaciones de CONAPE, situadas en la provincia de San José, o en las instalaciones donde CONAPE ubique sucursales o agencias. El cambio de lugar deberá ser puesto en conocimiento de los servidores con suficiente antelación. Es entendido que en el caso de abrirse otras agencias o sucursales, los servidores deberán ejecutar sus labores en el lugar donde se han establecido estas sucursales, sin perjuicio de que alguno o algunos de los servidores, en razón de su categoría o experiencia, puedan ser trasladados de una sucursal a otra.

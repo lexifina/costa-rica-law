@@ -1,0 +1,1 @@
+Artículo 17.—Para los efectos del artículo anterior, no se considerará servicio extraordinario el que el servidor ocupe en subsanar los errores imputables sólo a él. durante la jornada ordinaria de trabajo.
