@@ -14,3 +14,4 @@ Concede beneficios a "Carlos Federspiel & Cía. Sociedad Anónima" para su plant
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-03-13 | la propia norma |
+| 2 | 1970-06-19 | Decreto Ejecutivo 1048 (1970-06-19) |

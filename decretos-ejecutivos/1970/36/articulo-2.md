@@ -1,5 +1,6 @@
 Artículo 2°-Para disfrutar de los beneficios enumerados en el artículo 1° este decreto "Carlos Federspiel & Compañía Sociedad Anónima" debe cumplir con las siguientes obligaciones:
-a) Mantener instalada la planta industrial en San José, con una inversión mínima de ¢ 2.400.000 (dos millones cuatrocientos mil colones) en maquinaria y equipo.
+a) Mantener instalada la planta industrial en San José, con una inversión mínima de ¢1.500,000,00 (un millón quinientos mil colones). en maquinaria y equipo.
+(Así reformado el inciso anterior por el artículo único del decreto ejecutivo N° 1048 del 19 de junio de 1970)
 b) Producir con las materias primas que importe con los beneficios que por este decreto se le conceden, únicamente trabajos litográficos.
 c) Solicitar oportunamente la aprobación del Gobierno a cualquier modificación de los planes o proyectos iniciales. que se proponga llevar a cabo durante el período en que disfrute de los beneficios que se le han concedido.
 d) Suministrar cualesquiera informaciones que soliciten el Ministerio de Industria y Comercio o la Comisión Consultiva y de Coordinación para el Fomento Industrial, sin perjuicio de rendir al Ministerio citado, dentro de los tres meses siguientes al vencimiento de cada año fiscal, un informe global sobre el desarrollo, producción y situación financiera de la empresa, para ejercer el régimen de control que establece el Convenio y su Reglamento. La información así suministrada será tratada por el Ministerio con carácter confidencial.
