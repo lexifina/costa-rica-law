@@ -1,0 +1,1 @@
+2°—Derogar los Capítulos VII "De la Dirección General de Auditoría", XI "De la Dirección General de Control de Obras Públicas", del Reglamento Orgánico de la Contraloría General de la República, dictado mediante resolución de las ocho horas del doce mayo de mil novecientos noventa y nueve, publicado en "La Gaceta" N° 103 del veintiocho de mayo de mil novecientos noventa y nueve.
