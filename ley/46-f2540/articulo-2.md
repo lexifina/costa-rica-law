@@ -1,0 +1,1 @@
+Art. 2°-Una de las Salas del Tribunal, por el turno que le corresponde, conocerá de la recusación, y si la causa en que se fundare no fuere legal, en tabla será declarada sin lugar, y se impondrá al recusante la multa de veinticinco pesos y el pago de las costas.
