@@ -1,0 +1,40 @@
+ACUERDO SUGEF 27-00
+CONSEJO NACIONAL DE SUPERVISIÓN DEL SISTEMA FINANCIERO
+ACUERDO SUGEF 27-00
+REGLAMENTO PARA JUZGAR LA SITUACIÓN ECONÓMICA-FINANCIERA DE LAS ASOCIACIONES
+MUTUALISTAS DE AHORRO Y PRÉSTAMO PARA LA VIVIENDA
+APROBADO POR EL CONSEJO DIRECTIVO DE LA SUPERINTENDENCIA GENERAL DE ENTIDADES
+FINANCIERAS, MEDIANTE ARTÍCULO 6, DEL ACTA DE LA SESIÓN 207-2001, CELEBRADA EL
+12 DE FEBRERO DEL 2001.
+RIGE A PARTIR DEL MES DE JULIO DEL 2001, ANTES CONTINUARÁ RIGIENDO EL Acuerdo
+SUGEF 21-99
+Acuerdo SUGEF 27-00
+REGLAMENTO PARA JUZGAR LA SITUACIÓN ECONÓMICA-FINANCIERA DE LAS
+ASOCIACIONES MUTUALISTAS DE AHORRO
+Y PRÉSTAMO PARA LA VIVIENDA
+DISPOSICIONES GENERALES
+El presente reglamento contiene las normas generales para que la Superintendencia General de Entidades Financieras, en adelante Superintendencia, juzgue la situación económica - financiera de las Asociaciones Mutualistas de Ahorro y Préstamo, con el fin de velar por la estabilidad y la eficiencia del sistema financiero; de conformidad con lo establecido en los Artículos 136, 137 y 139 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558 del 3 de noviembre de 1995.
+DEFINICIÓN DE LOS RIESGOS
+La Superintendencia, para juzgar la situación económica - financiera de las entidades supervisadas, incluye los siguientes riesgos: el riesgo de solvencia, riesgo de liquidez, riesgo por variaciones en las tasas de interés, riesgo cambiario, riesgo de crédito y riesgo operacional.
+Riesgo de solvencia: Se presenta cuando el nivel de capital contable (Patrimonio) de una entidad es insuficiente para cubrir las pérdidas no protegidas por las estimaciones, erosionando su base patrimonial. La determinación de las pérdidas estimadas se basa en la calidad y estructura de los activos de los intermediarios financieros, por lo tanto el riesgo de solvencia incluye el riesgo de los activos.
+Riesgo de liquidez: se origina cuando la entidad financiera no posee los recursos líquidos necesarios para atender sus exigibilidades u obligaciones con terceros en el corto plazo.
+Riesgo por variaciones en las tasas de interés: es la exposición a pérdidas debido a fluctuaciones en las tasas cuando se presentan descalces en los plazos de las carteras activas y pasivas, sin contarse con la flexibilidad para un ajuste oportuno.
+Riesgo cambiario: Una entidad se enfrenta a este tipo de riesgo cuando el valor de sus activos y pasivos en moneda extranjera se ven afectados por las variaciones en el tipo de cambio y los montos correspondientes se encuentran descalzados.
+Riesgo de crédito: Surge de la posibilidad de que un deudor no pague.
+Riesgo operacional o de funcionamiento Se origina cuando los sistemas de información gerencial son inadecuados, cuando existen problemas operacionales, debilidades en el control interno, fraude, etc.
+CAPÍTULO I
+NORMAS PARA JUZGAR LA SITUACIÓN ECONÓMICA-FINANCIERA DE LAS ASOCIACIONES MUTUALISTAS DE AHORRO Y PRÉSTAMO PARA LA VIVIENDA
+SECCIÓN I
+ELEMENTOS OBJETO DE EVALUACIÓN
+Artículo 1.
+La Superintendencia emitirá una calificación global para cada fiscalizado compuesta por una calificación cuantitativa y por una cualitativa. La calificación cuantitativa consta de seis elementos sujetos a análisis denominados CAMELS y su conformación se detalla en el anexo 1 de este reglamento.
+Capital contable (Patrimonio)
+Activos
+Manejo
+Evaluación de rendimientos
+Liquidez
+Sensibilidad a riesgos de mercadoEl elemento de Capital Contable (Patrimonio) será evaluado con un indicador; el elemento de Activos será valorado con dos indicadores, Manejo será evaluado con tres indicadores, Evaluación de rendimientos con dos indicadores, Liquidez con tres indicadores y Sensibilidad a riesgos de mercado será evaluado con dos indicadores.
+Los numeradores y denominadores de cada indicador de la calificación cuantitativa estarán compuestos por las cuentas, sub-cuentas y datos adicionales detallados en el anexo 2 de este reglamento.
+Para cada indicador se establecen rangos, según los cuales un intermediario financiero asume menor o mayor riesgo, y se le ubica según sea el caso en: nivel normal, nivel 1, nivel 2 o nivel 3.
+La integración de las calificaciones de los seis elementos mencionados dará por resultado una calificación cuantitativa.
+La calificación cualitativa resultará de una evaluación "in situ" en la forma en que se señala en la Sección III del Capítulo I. La combinación de la calificación cuantitativa y de la calificación "in situ" dará por resultado una calificación global.
