@@ -14,3 +14,4 @@ Zonificación Parcial Areas Industriales de Puntarenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-11-01 | la propia norma |
+| 2 | 2002-11-13 | Reglamento municipal 5229 (2002-11-13) |
