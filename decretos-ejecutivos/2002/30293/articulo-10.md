@@ -1,0 +1,1 @@
+Artículo 10.—Clasificación de la actividad. De acuerdo con el Reglamento sobre Higiene Industrial, Decreto Ejecutivo Nº 11492-S del 22 de abril de 1980 y su reforma Decreto Nº 18209-5 del 23 de junio de 1988, las granjas avícolas se clasifican como actividad incómoda.

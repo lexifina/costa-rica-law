@@ -1,0 +1,1 @@
+Artículo 13.—Los propietarios, administradores o encargados de una granja avícola quedan obligados a cumplir con las disposiciones y directrices consignadas en el presente reglamento y en la legislación vigente sobre el manejo y control de la pollinaza y gallinaza.

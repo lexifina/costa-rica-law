@@ -1,0 +1,1 @@
+Artículo 4º—De la idoineidad para el manejo de granjas avícolas y afines. Todo propietario, empleado o trabajador de granjas avícolas está obligado a recibir la capacitación que lo faculte para el manejo de este tipo de actividad.

@@ -1,0 +1,1 @@
+Artículo 22.—Para los efectos de aplicación del presente reglamento se tomarán en consideración los aspectos relacionados con la protección aviar, de la salud humana, el ambiente, así como los derechos del avicultor.

@@ -1,0 +1,2 @@
+Artículo 23.—Derogatorias. El presente reglamento deroga el Decreto Ejecutivo Nº 22814-S "Reglamento de Granjas Avícolas" del 10 de enero de 1994 y cualquier otro reglamento, norma o disposición de igual o inferior rango que se le oponga.
+Deróguese el último párrafo del artículo 17 del Decreto Nº 29145-MAG-S-MINAE, "Reglamento sobre el Manejo y Control de Gallinaza y Pollinaza" publicado en La Gaceta Nº 242 del 18 de diciembre del 2000.
