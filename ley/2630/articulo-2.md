@@ -1,0 +1,1 @@
+Articulo 2 º —Para el pago de la primera cuota, fijada en el Contrato para enero de 1960, se tomara del Presupuesto Ordinario vigente, Ministerio de Economía y Hacienda, Capitulo Oficina de Administración Financiera, Articulo 37, Gastos de Capital, ¢ 300,000.00.
