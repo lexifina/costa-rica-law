@@ -1,1 +1,0 @@
-Artículo 4°—El Director o Directora del Centro de Investigación y Conservación del Patrimonio Cultural, será el responsable técnico y administrativo de las funciones, que en el presente Decreto Ejecutivo se le asignan a la "Dirección General de Museos".

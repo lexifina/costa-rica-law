@@ -1,1 +1,0 @@
-Artículo 6°—Deróganse los decretos ejecutivos N° 14844-C del 14 de setiembre de 1983, publicado en "La Gaceta" N° 184 del 29 de setiembre de ese mismo año y N° 22121-C del 24 de marzo de 1993, publicado en "La Gaceta" N° 89 del 11 de mayo de ese mismo año.
