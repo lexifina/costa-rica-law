@@ -1,0 +1,1 @@
+Art. 3. Siempre que a juicio de la misma Junta sea necesario aumentar el capital de la empresa mas allá de los veinticinco mil pesos de que pabla el artículo 3° del referido decreto podrá esta recibir nuevos socios. Una vez que los primeros no quieran tomar más señaladas en la lista de nuevamente inscritos tendrán el deber de nivelarse con pagos con os antiguos.
