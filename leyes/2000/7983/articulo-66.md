@@ -1,0 +1,1 @@
+ARTÍCULO 66.- Custodia de los valores y las cuentas corrientes. Los títulos valores deberán estar depositados en una central de valores autorizada, de acuerdo con la Ley Reguladora del Mercado de Valores. La Superintendencia deberá aprobar los contratos entre los entes supervisados y las entidades de custodia o la central de valores.

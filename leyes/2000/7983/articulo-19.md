@@ -1,0 +1,1 @@
+ARTÍCULO 19.- Prohibición de cotizar. Prohíbese al Estado, las instituciones autónomas, las instituciones semiautónomas y los demás entes descentralizados del sector público, así como a las sociedades establecidas con base en el Código de Comercio, en las que el Estado tenga mayoría accionaria, cotizar como patronos al Régimen Voluntario de Pensiones Complementarias.

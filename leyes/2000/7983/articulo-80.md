@@ -1,0 +1,1 @@
+ARTÍCULO 80.- Fortalecimiento del Régimen de riesgos del trabajo. Establécese una contribución del diez por ciento (10%) de las utilidades del Instituto Nacional de Seguros para financiar el Régimen de riesgos del trabajo.

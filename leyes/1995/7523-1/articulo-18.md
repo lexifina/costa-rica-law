@@ -1,2 +1,1 @@
-Artículo 18.- Establecimiento de la reserva para pérdidas
-Cada operadora deberá constituir una reserva para pérdidas de capital, de conformidad con lo establecido en el inciso k) del artículo 2 de la presente Ley, para responder en los casos en que, por razones extraordinarias, calificadas así por el ente regulador, se presente una pérdida de capital por las inversiones del fondo o los fondos que la operadora administre. El ente regulador establecerá la normativa para la constitución de la reserva, el origen de los recursos, su administración, su inversión y su utilización.
+Artículo 18.- (Derogado mediante el inciso a) del artículo 90 de la ley N° 7983 del 16 de febrero del 2000).

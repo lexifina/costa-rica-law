@@ -1,0 +1,1 @@
+ARTÍCULO 55.- Administración del fondo. La administración de los fondos estará a cargo de los entes autorizados respectivos; quedará prohibida la administración por medio de otra entidad, salvo en los casos excepcionales que la Superintendencia pueda permitir transitoriamente en interés de los afiliados.

@@ -1,0 +1,16 @@
+ARTÍCULO 2.- Definiciones. Para los efectos de esta ley, se definen los siguientes términos:
+a) Fondos de capitalización laboral. Los constituidos con las contribuciones de los patronos y los rendimientos o productos de las inversiones, una vez deducidas las comisiones por administración, para crear un ahorro laboral y establecer una contribución al Régimen de Pensiones Complementarias.
+b) Fondos de pensiones complementarias. Los constituidos con las contribuciones de los afiliados y los cotizantes de los diversos planes de pensiones y con los rendimientos o los productos de las inversiones, una vez deducidas las comisiones.
+c) Régimen de Pensiones Complementarias. Conjunto de regímenes de pensiones complementarias al Régimen de Invalidez, Vejez y Muerte de la CCSS o de los regímenes públicos sustitutos.
+d) Régimen Obligatorio de Pensiones Complementarias. Sistema de capitalización individual, cuyos aportes serán registrados y controlados por medio del Sistema Centralizado de Recaudación de la CCSS y administrado por medio de las operadoras elegidas por los trabajadores.
+e) Régimen Voluntario de Pensiones Complementarias. Sistema voluntario de capitalización individual, cuyos aportes serán registrados y controlados por medio del Sistema Centralizado de Recaudación de la CCSS o directamente por la operadora de pensiones.
+f) Entidades autorizadas. Organizaciones sociales autorizadas para administrar los fondos de capitalización laboral y las operadoras de pensiones.
+g) Entidades supervisadas. Todas las entidades autorizadas, la CCSS en lo relativo al Régimen de Invalidez, Vejez y Muerte y todas las entidades administradoras de regímenes de pensiones creados por leyes o convenciones colectivas, antes de la vigencia de esta ley.
+h) Entidades reguladas. Entidades supervisadas, con excepción de la CCSS.
+i) Operadoras de pensiones. Entidades encargadas de administrar los aportes, constituir y administrar fondos de capitalización laboral y fondos de pensiones correspondientes al Régimen Complementario de Pensiones y los beneficios correspondientes, conforme a las normas de esta ley. Denominadas en adelante operadoras.
+j) Organizaciones sociales autorizadas. Entidades encargadas de administrar los fondos de capitalización laboral, conforme a las normas establecidas en esta ley.
+k) Planes de pensiones. Conjunto de condiciones y beneficios complementarios a los ofrecidos por el Régimen de Invalidez, Vejez y Muerte de la CCSS y los regímenes públicos sustitutos de pensiones, de conformidad con la presente ley, denominados en adelante planes o planes de pensiones.
+l) Cotizante o aportante. Persona física o jurídica que contribuye a un plan determinado, con la intención de fortalecerlo y ampliar los beneficios en favor de los afiliados.
+m) Libre transferencia. Derecho del afiliado de transferir los recursos capitalizados en su cuenta a otra entidad autorizada o al fondo de su elección.
+n) Superintendencia. Superintendencia de Pensiones, órgano de máxima desconcentración del Banco Central de Costa Rica.
+o) Régimen público sustituto. Regímenes establecidos por ley, ensustitución del Régimen de Invalidez, Vejez y Muerte de la CCSS, a la entrada en vigencia de esta ley.

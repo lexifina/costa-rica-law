@@ -1,3 +1,1 @@
-Artículo 23.- Disposición de recursos
-Los planes de pensión se sujetarán a los requerimientos de edad y cotización que establezcan, libremente, el afiliado, la operadora y, en su caso, el cotizante. Cumplidos los requisitos pactados, el afiliado podrá disponer de los recursos acumulados en su cuenta individual, de acuerdo con alguna de las siguientes formas, sin que por ello deba cancelar ninguna comisión: a) retiro total, b) retiro parcial, con derecho de mantener su cotización mensual y c) compra de una pensión vitalicia, aportando lo acumulado total o parcialmente.
-Cuando exista aporte de un cotizante, el afiliado podrá transferir libremente sus fondos, siempre que se mantengan en la nueva operadora los mismos beneficios y condiciones establecidos originalmente entre afiliado y cotizante.
+Artículo 23.-(Derogado mediante el inciso a) del artículo 90 de la ley N° 7983 del 16 de febrero del 2000).

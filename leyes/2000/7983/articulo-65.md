@@ -1,0 +1,1 @@
+ARTÍCULO 65.- Contabilización. Si se contraviene lo previsto en este título, la inversión así realizada deberá ser contabilizada en una cuenta especial y la entidad autorizada no podrá realizar nuevas inversiones en los mismos instrumentos, mientras no se corrija dicha situación; sin perjuicio de las sanciones que imponga la Superintendencia de conformidad con la ley.

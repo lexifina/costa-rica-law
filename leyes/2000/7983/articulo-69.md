@@ -1,0 +1,1 @@
+ARTÍCULO 69.- Requisitos para obtener los incentivos fiscales. Los aportes voluntarios para gozar de los incentivos fiscales otorgados en esta ley, deberán cumplir todas las disposiciones de esta ley y ser contratados con una operadora.

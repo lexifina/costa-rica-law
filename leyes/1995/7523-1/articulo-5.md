@@ -1,4 +1,1 @@
-Artículo 5.- Capital mínimo de constitución
-El capital mínimo necesario para la formación de una operadora de fondos de pensiones no podrá ser inferior a setenta y cinco millones de colones, y deberá estar íntegramente suscrito y pagado en el momento de su autorización. Las entidades citadas en el párrafo segundo del artículo 3 deberán constituir una provisión de reserva patrimonial por el mismo monto.
-Si, a juicio del ente regulador, las inversiones de alguna operadora reportan un crecimiento acelerado y significativo o una mayor exposición al riesgo, podrá ordenar un aumento del capital, según los lineamientos de aplicación general que ese ente regulador deberá dictar. Si el capital de la operadora se redujera de hecho a una cantidad inferior al mínimo exigido, deberá completarlo dentro de un plazo máximo de tres meses, de conformidad con el procedimiento que, para tal efecto, establecerá el ente regulador.
-(Así reformado mediante el artículo 191 de la ley N° 7732 del 17 de diciembre de 1997).
+Artículo 5.- (Derogado mediante el inciso a) del artículo 90 de la ley N° 7983 del 16 de febrero del 2000).

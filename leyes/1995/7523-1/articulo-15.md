@@ -1,2 +1,1 @@
-Artículo 15.- Prohibición para invertir
-Los recursos del fondo no podrán invertirse en títulos de empresas o sociedades en las que los miembros de la Junta Directiva, los apoderados y los gerentes de las operadoras tengan participación accionaria o un control efectivo mayor al cinco por ciento (5%).
+Artículo 15.- (Derogado mediante el inciso a) del artículo 90 de la ley N° 7983 del 16 de febrero del 2000).

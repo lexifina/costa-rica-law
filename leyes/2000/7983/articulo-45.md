@@ -1,0 +1,1 @@
+ARTÍCULO 45.- Principio de no discriminación entre afiliados. Las operadoras y las organizaciones sociales autorizadas, no podrán realizar discriminación alguna entre sus afiliados, salvo las excepciones previstas en esta ley. La misma prohibición tendrán las operadoras respecto a los contratos de pensión vitalicia que lleven a cabo con las empresas aseguradoras.

@@ -1,0 +1,2 @@
+Artículo 50.- Infracciones leves. Constituirán infracciones leves los actos o las omisiones de los entes regulados, que violen las disposiciones de la Ley de protección al trabajador y las directrices emitidas por la Superintendencia y que no estén tipificadas como infracciones graves o muy graves, según los artículos anteriores.
+(Así adicionado mediante el artículo 79 de la ley N° 7983 del 16 de febrero del 2000).

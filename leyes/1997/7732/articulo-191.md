@@ -32,3 +32,4 @@ la operadora se redujera de hecho a una cantidad inferior al mínimo
 exigido, deberá completarlo dentro de un plazo máximo de tres meses, de
 conformidad con el procedimiento que, para tal efecto, establecerá el ente
 regulador."
+(Interpretado auténticamente por el artículo 82 de la Ley N° 7983 del 16 de febrero del 2000, en el sentido que las dispociciones aquí contenidas se apliquen a todos los actos y contratos inscribibles en el Registro Nacional)

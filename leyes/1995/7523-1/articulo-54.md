@@ -1,0 +1,2 @@
+Artículo 54.- Prohibición para subejecutar el presupuesto. Quien ordene subejecutar un presupuesto público en relación con el porcentaje creado por la Ley de protección al trabajador, o proceda a subejecutarlo incurrirá en falta grave, sancionada con el despido sin responsabilidad patronal o la remoción del cargo.
+(Así adicionado mediante el artículo 79 de la ley N° 7983 del 16 de febrero del 2000).

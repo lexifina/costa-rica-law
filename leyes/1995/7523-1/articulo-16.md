@@ -1,3 +1,1 @@
-Artículo 16.- Condiciones para transar
-Las operadoras únicamente podrán transar instrumentos financieros por medio de las bolsas de valores o en las ventanillas de las entidades financieras reguladas y a precios de mercado. Para las situaciones de plazo, de tipo de título, monto u otra condición, que dificulten establecer un precio de mercado, el ente regulador definirá el procedimiento para determinar la razonabilidad del precio establecido.
-En caso de infracción, así calificada por el ente regulador, o de dolo o negligencia, establecidos mediante sentencia firme de los tribunales de justicia, la diferencia que se produzca deberá ser reintegrada al fondo por la operadora, de acuerdo con las disposiciones que establezca el ente regulador.
+Artículo 16.- (Derogado mediante el inciso a) del artículo 90 de la ley N° 7983 del 16 de febrero del 2000).

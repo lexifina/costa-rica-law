@@ -1,0 +1,1 @@
+ARTÍCULO 25.- Renta permanente. Las operadoras podrán ofrecer a los afiliados planes de renta permanente en los cuales se entregue a estos (sic) el producto de los rendimientos de la inversión del monto acumulado en su cuenta individual y el saldo se entregará a los beneficiarios a la muerte del afiliado.

@@ -1,0 +1,3 @@
+ARTÍCULO 34.- Prohibiciones de la Junta Directiva. No podrán ser miembros de la Junta Directiva de la operadora:
+a) Las personas contra quienes en los últimos cinco años haya recaído sentencia judicial penal condenatoria por la comisión de un delito doloso.
+b) Las personas que en los últimos cinco años hayan sido inhabilitadas para ejercer un cargo de administración o dirección en entidades reguladas por la Superintendencia General de Entidades Financieras, la Superintendencia General de Valores, la Superintendencia de Pensiones o cualquier otro órgano similar de regulación y supervisión que se cree en el futuro.
