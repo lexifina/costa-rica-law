@@ -1,0 +1,1 @@
+Artículo 19.—Las infracciones al presente Reglamento serán sancionadas de acuerdo a los capítulos 1° y 11, título y libro III de la Ley General de Salud y el artículo 33 de la Ley General de Salud Animal.

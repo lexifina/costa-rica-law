@@ -1,0 +1,1 @@
+Artículo 18.—Todo animal bovino que se traslade sin importar los fines de esa movilización, deberá ser acompañado de una guía de movilización, en la cual se especificará claramente su situación sanitaria frente a la brucelosis.

@@ -1,0 +1,1 @@
+Artículo 4°—Las terneras vacunadas serán claramente identificadas con un tatuaje en la oreja derecha con un distintivo especial del Ministerio de Agricultura y Ganadería y cifras que indiquen la región, el trimestre y el año en que fueron vacunadas.
