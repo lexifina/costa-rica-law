@@ -1,0 +1,1 @@
+Artículo 3°-Exonérase de toda clase de impuestos la adquisición, por parte de la Asociación de desarrollo específico de Calle Siles de Lourdes de Montes de Oca, de un automóvil que será rifado con el propósito de cubrir gastos de la construcción del centro comunal de Calle Siles.

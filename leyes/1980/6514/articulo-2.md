@@ -1,0 +1,1 @@
+Artículo 2°-Exonérase de toda clase de impuestos la adquisición, por parte de la Junta Parroquial de Calle Blancos, Goicoechea, de un automóvil modelo 1980, que será rifado con el propósito de cubrir gastos de la construcción del centro de recreación juvenil en esa comunidad.
