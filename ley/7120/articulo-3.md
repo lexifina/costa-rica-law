@@ -1,1 +1,0 @@
-Artículo 3º.- Cuando se estime o exista prueba fehaciente de que han variado las características de la actividad lucrativa original, ésta deberá reubicarse en otra categoría o en un nuevo tipo de actividad, previo estudio del caso.
