@@ -1,0 +1,10 @@
+DECRETO XXII
+Aprueba el contrato celebrado entre el Ministro de Hacienda y Don Esteban Huard, para el establecimiento de un Banco Rural Hipotecario.
+El Congreso Constitucional de la República de Costa Rica, decreta:
+Art único: Apruebase el contrato celebrado en entre el Honorable Señor Secretario de Estado en el Despacho de Hacienda, Don Salvador González, con autorización del Supremo Gobierno de la República, por una parte, y don Esteban Huard, ciudadano francés, residente en este capital, por otra, a los veintisiete días del mes de junio último, para el establecimiento de un Banco Rural de crédito Hipotecario de Costa Rica, en los términos siguientes:
+CAPITULO I
+De la institución del Banco Rural de Crédito Hipotecario de Costa Rica.
+& 1° El Señor Esteban Huard se obliga a fundar en Costa Rica, bajo la denominación de “Banco Rural de Crédito Hipotecario de Costa Rica” una sociedad cuya duración será de cincuenta años, y cuyo capital se fija en cinco millones de pesos, divididos en cincuenta mil acciones de cien pesos cada una.
+&2° La sociedad tiene por objeto hacer préstamo hipotecario a los dueños de fincas, con facultad para estos de pagar por medio de anualidades.
+&3° Durante los tres meses que se seguirán a la instalación de la sociedad y principio de las operaciones, se reserva el Supremo Gobierno de Costa Rica, el derecho de suscribir el número de acciones que juzgue conveniente hasta por cantidad de treinta mil, excedente de las veinte mil acciones que se reservan los fundadores. En caso de no usar de este derecho el Supremo Gobierno, durante el plazo estipulado, podrá la sociedad completar su capital colocando estas acciones en Costa Rica, o en el exterior.
+&4° Los Estatutos del establecimiento serán sometidos a la aprobación del Poder Ejecutivo de la República, sin cuyo requisito de aprobación aquel no podrá dar principio a sus operaciones, expresamente en dichos Estatutos la manera en que se ejercerá la intervención que el Gobierno tendrá en las operaciones del Banco.
