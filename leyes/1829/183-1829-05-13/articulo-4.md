@@ -1,0 +1,1 @@
+4°.- Solo se exigirán derechos de fábrica, sepultara o entierro de aquellas personas que debiendo pagarlos tengan un capital que no baje de cincuenta pesos con tal que este no exista en su casa de habitación.

@@ -1,0 +1,1 @@
+3°.- Al efecto los ismos Curas acordarán con las Municipalidades el número de Coadjutores necesarios y los pondrán sin perjuicio de que puedan recurrir al Gefe Político Superior en caso que sea excesivo el número que se señale.

@@ -1,0 +1,1 @@
+7°.- La pena establecida cer la disposición del artículo inmediato se hará efectiva en juicio verval bien a instancia de parte o procedimiento el Jues de oficio, en cuyo caso citará al Sindico del Pueblo para que con él se ventile la acción.
