@@ -1,2 +1,0 @@
-Transitorio II.—Las sociedades administradoras deberán ajustar los prospectos de los fondos de inversión que administren a las nuevas guíias que emita el Superintendente y presentarlos para su aprobación a la Superintendencia en el plazo de tres meses contados a partir de su entrada en vigencia. No existirá obligación de actualizar los prospectos cuando los cambios que deban realizarse se relacionen únicamente con el orden de presentación de la información".
-Lic. Jorge Monge Bonilla, Secretario del Consejo.

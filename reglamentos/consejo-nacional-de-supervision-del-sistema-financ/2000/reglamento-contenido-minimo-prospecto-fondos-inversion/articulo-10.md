@@ -1,1 +1,0 @@
-Artículo 10.—Contenido mínimo de la contracarátula. Deberán incorporarse las advertencias que establezca el Superintendente correspondientes a la responsabilidad de la sociedad administradora y de la Superintendencia en relación con la información brindada en el prospecto.

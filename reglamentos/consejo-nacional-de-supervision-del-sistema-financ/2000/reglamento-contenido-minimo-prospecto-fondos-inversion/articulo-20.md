@@ -1,2 +1,0 @@
-Artículo 20.—Información sobre la custodia del fondo. Deberá brindarse información sobre la entidad de custodia de los valores propiedad del fondo. En el caso del manejo del efectivo, deberá indicarse expresamente si éste se ha encargado a una entidad de custodia o si será realizado directamente por la sociedad administradora. En este último caso el prospecto deberá incorporar las advertencias de riesgos que disponga el Superintendente.
-Así mismo deberán indicarse los mecanismos para la sustitución de la entidad de custodia.

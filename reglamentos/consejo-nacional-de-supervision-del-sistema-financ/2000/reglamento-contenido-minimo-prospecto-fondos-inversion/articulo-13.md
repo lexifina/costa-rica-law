@@ -1,1 +1,0 @@
-Artículo 13.—Política de inversión. Deberá explicarse la política que seguirá la sociedad administradora para la selección de los activos en que invertirá el fondo. La explicación abarcará tanto los activos elegibles como las restricciones a que esté sujeto el fondo en materia de inversión.

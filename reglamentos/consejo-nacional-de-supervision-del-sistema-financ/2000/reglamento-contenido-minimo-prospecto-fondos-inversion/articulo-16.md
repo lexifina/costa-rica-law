@@ -1,1 +1,0 @@
-Artículo 16.—Valoración de la participación. Deberá indicarse la metodología utilizada para valorar la participación. Especial énfasis deberá darse a la metodología y procedimientos a seguir en el caso de suspensión de pagos de valores que formen parte de la cartera del fondo.
