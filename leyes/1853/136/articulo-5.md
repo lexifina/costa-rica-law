@@ -1,0 +1,1 @@
+Art 5°.- Por el despacho en todos los negocios de que hablan los artículos 2 y 3 de este decreto, y de los más que el Gobierno le encomienda, el Asesor gozará de la mensualidad de cien pesos que pagará el Tesorero de la Nación.
