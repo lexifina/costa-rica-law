@@ -1,0 +1,5 @@
+ARTICULO 20
+Aplicación territorial
+1.- Cualquier Estado puede al momento de la firma o cuando deposite su instrumento de ratificación, aceptación, aprobación o acceso, especificar el territorio o territorios a las cuales aplicará esta Convención.
+2.- Cualquier Estado puede en fecha posterior, por medio de declaración dirigida al Secretario General del Consejo de Europa, extender la aplicación de esta Convención a cualquier otro territorio especificado en la declaración. Con respecto a tal territorio la Convención entrará en vigencia el primer día del mes siguiente a la expiración de un período de tres meses después de la fecha de recibo de dicha declaración por el Secretario General.
+3.- Cualquier declaración hecha bajo los dos párrafos anteriores puede, con respecto a cualquier territorio especificado en dicha declaración, ser retirada por una notificación dirigida al Secretario General. El retiro será efectivo el primer día del mes siguiente a la expiración de un período de tres meses después de la fecha de recibo de dicha notificación por el Secretario General.
