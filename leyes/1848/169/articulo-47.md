@@ -1,0 +1,1 @@
+Art. 47. Si aun pasado el cuarto dia, y ántes de concluir el escrutinio de una eleccion, se recibiere algun registro perteneciente à ella, se examinarà y los votos válidos contenidos en el se incluiràn en el escrutinio.

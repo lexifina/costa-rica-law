@@ -1,0 +1,1 @@
+Art. 22. Cada sufragante que se presente á dar voto lo emitirà ante el Presidente y sus dos asociados, anunciando el nombre y apellido de cada uno de los individuos por quienes vota; y en su presencia se sentará dicho voto en un registro, hecho en papel del sello 4° 1a clase que se llevarà por duplicado, conforme al modelo que bajo el número 1° se acompaña à esta ley.

@@ -1,0 +1,1 @@
+Art. 21. En cada uno de los ocho dias que se señalan para las elecciones parroquiales, el Presidente Municipal y los dos vecinos de quienes debe asociarse, concurrirán al lugar señalado para recibir los votos de los sufragantes desde las nueve hasta las doce del dia, y desde las cuatro hasta las seis de la tarde.

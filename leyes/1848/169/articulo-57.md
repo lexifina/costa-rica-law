@@ -1,0 +1,1 @@
+Art. 57. Si no hubiere proposicion sobre declarar que no hay eleccion en el que reuna la pluralidad absoluta, ò si dicha proposicion fuese resuelta negativamente, se declarará por el Congreso electo Presidente ò Vice-Presidente de la República al que haya reunido dicha pluralidad absoluta de votos.

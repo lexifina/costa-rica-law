@@ -1,0 +1,3 @@
+TITULO IV.
+De las elecciones que corresponden al Congreso.
+Art. 53. Cuando se abra y lea alguno de los registros de las Asambleas electorales, con el objeto de perfeccionar la eleccion de Presidente y Vice-Presidente de la Repùblica, cualquier miembro del Congreso puede pedir que se declare nula la votacion contenida en él, si juzga que se ha cometido alguna de las nulidades que se expresan en esta ley. Si su proposicion fuere apoyada por dos Representantes mas, el Presidente la pondrá en consideracion del Congreso, y se dicidirá por pluralidad absoluta, de votos de sus miembros presentes. Si la votacion fuere declarada nula, no se contaràn en el escrutinio los votos contenidos en el registro.

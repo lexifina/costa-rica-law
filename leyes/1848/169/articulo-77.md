@@ -1,0 +1,1 @@
+Art. 77. El Secretario de la Cámara avisará á los Gobernadores de las Provincias el número de Representantes principales y suplentes que deban elegirse en la reunion próxima de las Asambleas electorales.

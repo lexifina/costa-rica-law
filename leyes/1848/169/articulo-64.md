@@ -1,0 +1,1 @@
+Art. 64. Por pluralidad absoluta se entiende el nùmero que, exediendo al de la mitad de los individuos que concurren á una votacion, se aproxima mas al de dicha mitad; pero en el caso del artìculo 54 solo se entiende haber concurrido à votar los electores que lo hayan hecho en las votaciones que no hayan sido declaradas nulas.

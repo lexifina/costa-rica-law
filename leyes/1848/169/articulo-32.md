@@ -1,0 +1,1 @@
+Art. 32. Esta Asamblea presidida por el Jefe Polìtico y asistida de un Secretario cuyo nombramiento debe hacer el mismo Jefe Político en un ciudadano de dentro ó fuera de la Asamblea, procederá à elegir por escrutadores à dos individuos de su seno para formar el directorio. Cuando la Asamblea no se componga mas que de dos electores, estos serán escrutadores de ella por derecho.

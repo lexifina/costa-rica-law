@@ -1,0 +1,1 @@
+Art. 70. Las elecciones hechas no pueden declararse nulas sinò por las razones que se establecen en la Constitucion y en esta ley. Las demas faltas que se cometan hacen responsables á los que las cometan; pero no anulan las elecciones en que se hayan cometido.

@@ -1,0 +1,1 @@
+Art. 42. Si las vacantes que resulten en el Congreso no pudieren llenarse alguna vez con los respectivos suplentes, por faltar esto, el Gobernador de la Provincia lo avisarà oportunamente à las Asambleas electorales de Canton, á fin de que estas nombren el nùmero de suplentes necesarios para llenar dichas vacantes.

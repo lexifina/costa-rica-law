@@ -1,0 +1,2 @@
+Art. 45. Despues que se hayan recibido todos los registros de las Asambleas de Canton para la eleccion de Representantes, se abriràn en presencia de la Junta y ésta procederá á examinarlos, y á decidir sobre las nulidades que se le hayan denunciado, ó que note en las votaciones contenidas en ellos.
+Único. Si llegado el cuarto dia de la reunion de la Junta, no hubiese todavía recibido ésta algunos de dichos registros, procederà, no obstante, à examinar los que haya recibido, y á practicar el escrutinio y regulacion de los votos contenidos en ellos.

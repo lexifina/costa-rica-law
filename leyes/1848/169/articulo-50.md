@@ -1,0 +1,2 @@
+Art. 50. El Presidente de la Junta remitirá tambien al Ministro del interior, cópia de los registros ó actas practicadas para hacer el escrutinio de las elecciones de Representantes; y lo avisará à los que hayan sido electos, à fin de que concurran al Congreso el dia señalado por la Constitucion.
+Ùnico. El aviso de que habla el artìculo anterior debe hacerse el veinticinco de abril, ò antes si fuere posible.

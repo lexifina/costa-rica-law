@@ -1,0 +1,1 @@
+Art. 69. En las votaciones que se hacen por escritos, despues de recogidos los votos, se anunciará por el Presidente que và á cerrarse la votacion, y pasado un corto intérvalo la cerrarà , despues de los cual no podrà admitirse ninguna papeleta.
