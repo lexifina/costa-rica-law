@@ -7,8 +7,8 @@ Médicos y Cirujanos, por medio de sus tribunales examinadores, el que tome
 las pruebas de incorporación, con arreglo a las disposiciones de la ley Nº
 16 de 25 de octubre de 1940.
 Transitorio II.- La primera Junta de Gobierno que se elija después de
-entrar en vigencia esta ley, sorteará los tres miembros que hayan de
-actuar solamente un año.
+entrar en vigencia esta ley, sorteará los tres miembros que hayan de actuar
+solamente un año.
 Transitorio III.- Las disposiciones del artículo 32 no tendrán
 vigencia para los médicos que actualmente sirven más de dos cargos, sino
 hasta seis meses después de la publicación de esta ley.
