@@ -1,0 +1,1 @@
+Artículo 6º—El propietario de la finca señalada, gozará de los beneficios e incentivos establecidos en la Ley de Conservación de la Vida Silvestre, para lo cual el Área de Conservación Osa, y las dependencias ministeriales involucradas, emitirán los documentos pertinentes.
