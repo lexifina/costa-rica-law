@@ -1,0 +1,1 @@
+Art. 2°-Se fija el término improrrogable de tres meses, para que sean presentadas ante la Junta liquidadora las reclamaciones á que se refiere el artículo anterior. El término correrá desde el día en que se instale dicha Junta.
