@@ -17,3 +17,4 @@ Relación de puestos de sueldos para cargos fijos del gobierno central, para el 
 (Modificado respecto la relación de puestos cargos fijos del Ministerio de Relaciones exteriores y Culto por el artículo 1 del Decreto Ejecutivo N° 30617 de 6 de agosto del 2002)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30614 de 17 de julio del 2002)
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 30619 de 5 de agosto del 2002)
+(Modificado respecto la relación de puestos de cargos fijos de la Defensoría de los Habitantes de la República, por el artículo 1 del Decreto Ejecutivo N° 30649 de 7 de agosto del 2002)
