@@ -1,1 +1,0 @@
-Artículo 25.-El Tribunal de Elecciones Estudiantiles será nombrado por el Consejo de Profesores del colegio de las temas, una por cada nivel, que presente la Asamblea de Representantes. Su integración se hará 30 días hábiles antes de la Semana de Formación Cívica del Estudiante.

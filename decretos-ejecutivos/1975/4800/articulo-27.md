@@ -1,4 +1,0 @@
-Artículo 27.-Integrado el Tribunal Electoral, éste será juramentado por el Director del plantel, ante el Consejo de Profesores y la Asamblea de Representantes, en acto público solemne. Luego se procederá a designar los cargos directivos por votación secreta de los miembros del mismo Tribunal.
-a) El Tribunal, en sus primeras sesiones, procederá a confeccionar las reglamentaciones específicas de todo el proceso electoral. Tales reglamentaciones tienen carácter permanente, aunque pueden ser modificadas cuando las circunstancias así lo exijan;
-b) El Tribunal Electoral tendrá vigencia mínima de un año y puede ser reelecto, total o parcialmente;
-c) Para coadyuvar al financiamiento del proceso electoral y de la Semana de Formación Cívica del Estudiante, el Tribunal podrá solicitar la ayuda económica de la Junta Administrativa y de la Asociación de Profesores y Padres de Familia.

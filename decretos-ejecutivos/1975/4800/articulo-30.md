@@ -1,1 +1,0 @@
-Artículo 30 . -Los dictámenes de las Comisiones Especiales serán presentados en un plazo no mayor de quince días a la reunión de la Asamblea en pleno, para su debate y aprobación, modificación o rechazo. La votación, en estos casos, se resolverá por simple mayoría.

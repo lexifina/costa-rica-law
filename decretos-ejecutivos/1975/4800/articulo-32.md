@@ -1,1 +1,0 @@
-Artículo 32.- La Asamblea deberá presentar al Consejo de Profesores, 30 días hábiles antes de la Semana de Formación Cívica del Estudiante, las ternas para la integración del Tribunal Electoral. Las temas deben llevar la representación de los diferentes niveles de! centro educativo.

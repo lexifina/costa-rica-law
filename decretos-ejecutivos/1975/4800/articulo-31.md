@@ -1,1 +1,0 @@
-Artículo 31.- La Asamblea trasladará sus acuerdos al Comité Ejecutivo para su ejecución inmediata. No obstante, si el Comité vetará un acuerdo, lo devolverá a la Asamblea , que podrá acordar el resello por votación de los 2/3 del total de sus miembros.

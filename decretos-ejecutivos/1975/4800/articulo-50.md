@@ -1,1 +1,0 @@
-Artículo 50.-Este Gran Comité será convocado por el Director del plantel, los órganos superiores del Ministerio de Educación Pública o por los dos tercios de los integrantes de este mismo Comité, previa solicitud, en este último caso, ante el Director de la institución.

@@ -1,2 +1,0 @@
-Artículo 40.-Las Directivas de sección integrarán comités para organizar y realizar actividades adecuadas a los intereses y necesidades de los alumnos de la sección.
-Cada Comité de sección tendrá un Coordinador y un Secretario. Cuando las actividades de cualquiera de estos Comités correspondan a toda la Comunidad Estudiantil , los proyectos serán presentados por el Presidente de la sección ante la Asamblea de Representantes para su correspondiente estudio.

@@ -1,1 +1,0 @@
-Artículo 38. -La elección de la Directiva se hará en cada sección, durante la primera quincena de abril, por voto directo y secreto de los alumnos de la misma, una vez que hayan sido instruidos y motivados por su Profesor Consejero y por el Departamento de Orientación.

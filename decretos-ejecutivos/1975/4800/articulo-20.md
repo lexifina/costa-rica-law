@@ -1,1 +1,0 @@
-Artículo 20.-Las banderas de los partidos estudiantiles y sus nombres no deben ser iguales al de los partidos políticos con vigencia nacional e internacional, ni utilizar los símbolos patrios como emblemas. Corresponderá al Tribunal de Elecciones Estudiantiles velar por el cumplimiento de esta disposición.

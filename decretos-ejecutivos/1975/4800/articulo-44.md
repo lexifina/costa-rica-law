@@ -1,1 +1,0 @@
-Artículo 44.-Todos los alumnos integrantes de los organismos mencionados en el articulo anterior están sujetos a los mismos procedimientos y normas que las leyes y reglamentos contemplan para todos los alumnos regulares de la Educación General Básica y Enseñanza Diversificada, tanto oficial como particular.
