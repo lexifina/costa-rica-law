@@ -1,0 +1,6 @@
+Artículo tercero.—Modifícanse los artículos 32, en su inciso noveno; 186 y 548, en sus incisos segundos, y 469 y 485, en sus incisos primeros, todos del referido Código Penal, así;
+«Artículo 32.—Inciso 9°— El que al efectuar una acción ejerciere un derecho legítimo o procediere en virtud de obediencia excusable.
+Artículo 186.—Inciso 2°—Las de presidio temporal, prisión, arresto, extrañamiento, confinamiento, destierro y caución, cuando haya trascurrido un tiempo igual al máximum del grado penal impuesto en el fallo, más un tercio, no pudiendo exceder de veinticinco años.
+Artículo 469.—Inciso 1°—Al que sin título o nombramiento expedido por autoridad competente, o sin haber prestado el juramento de ley, asumiere o ejerciere funciones públicas.
+Artículo 485.—Inciso 1°—El que sin título de dueño o sin derecho de posesión constituido conforme a la ley, detentare suelo o espacio correspondiente a calles, caminos, jardines, parques, paseos u otros lugares de dominio público, o terrenos baldíos o cualquiera otra propiedad raíz del Estado, de las Municipalidades o los vecindarios,
+Artículo 548.—Inciso 2°—El que se hiciere culpable de hurto de uso, cuando el valor de éste no exceda de veinticinco colones».
