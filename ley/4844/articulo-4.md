@@ -1,8 +1,1 @@
-Artículo 4º.- Se establece un impuesto de ¢ 0.10 (diez céntimos)
-sobre cada fórmula de Totogol que se venda en el territorio nacional, que
-se distribuirá así: a) un 75% para el Sanatorio Nacional de Las Mercedes;
-y b) Un 25% para acondicionar escuelas de Enseñanza Especial en todo el
-país. La Administración del Totogol girará directamente a dicho Sanatorio
-la parte que le corresponda del producto de ese impuesto, y depositará en
-el Banco Tesorero del Estado lo correspondiente al aparte b), para ser
-usado únicamente en tales fines en cualquier presupuesto.
+Artículo 4º.- Se establece un impuesto de ¢ 0.10 (diez céntimos) sobre cada fórmula de Totogol que se venda en el territorio nacional, que se distribuirá así: a) un 75% para el Sanatorio Nacional de Las Mercedes; y b) Un 25% para acondicionar escuelas de Enseñanza Especial en todo el país. La Administración del Totogol girará directamente a dicho Sanatorio la parte que le corresponda del producto de ese impuesto, y depositará en el Banco Tesorero del Estado lo correspondiente al aparte b), para ser usado únicamente en tales fines en cualquier presupuesto.
