@@ -1,0 +1,1 @@
+Artículo 26.—Normas supletorias en materia de sanciones. En caso de sanciones, apelaciones relativas a éstas o cualquier asunto relacionado, se aplicarán los procedimientos establecidos en los Reglamentos Autónomos de Trabajo de las Municipalidades de Curridabat y de La Unión.

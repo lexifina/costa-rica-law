@@ -1,0 +1,5 @@
+Artículo 4°—Control de vehículos.
+a) Controles de los vehículos de uso administrativo asignados a unidades o dependencias administrativas:
+Los vehículos asignados a unidades o dependencias administrativas de la Federación , estarán bajo la responsabilidad de los encargados de éstas y sujetos a los controles establecidos para el resto de la flotilla.
+b) Controles sobre vehículos de uso discrecional:
+El funcionario federativo que tenga asignado un vehículo de uso discrecional, responderá por su custodia, uso, conservación y mantenimiento, sin embargo, la Administración aplicará controles mínimos como los establecidos para otros activos de la institución

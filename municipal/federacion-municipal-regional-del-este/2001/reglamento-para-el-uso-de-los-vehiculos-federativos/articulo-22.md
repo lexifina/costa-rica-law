@@ -1,0 +1,1 @@
+Artículo 22.—Aprovechamiento del transporte. La prestación del servicio de transporte debe organizarse de tal manera que en un mismo vehículo puedan viajar personas que lleven el mismo rumbo, con el fin de aprovechar al máximo la prestación del servicio.

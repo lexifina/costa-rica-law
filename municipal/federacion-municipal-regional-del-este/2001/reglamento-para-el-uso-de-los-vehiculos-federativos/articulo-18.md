@@ -1,0 +1,5 @@
+Artículo 18.—Facultades. Es facultad de los conductores de los vehículos federativos negarse a conducir un vehículo o realizar un servicio en los siguientes casos:
+1. Cuando considere y compruebe que el vehículo asignado no reúne las condicionen mínimas de seguridad que requiere.
+2. Cuando compruebe que el vehículo no cumple con los requisitos mínimos que exige la legislación de tránsito para circular.
+En los casos anteriores, el conductor que se niegue a conducir o hacer un servicio, deberá hacer del conocimiento inmediato de la Unidad encargada y/o de la Dirección Ejecutiva las" rayones que tenga para asumir tal actitud y una vez resuelto el impedimento habrá de cumplir en la labor asignada. Mientras no se verifique por una persona calificada que la objeción planteada mi tiene fundamento, el vehículo cuestionado no podrá ser utilizado.
+El conductor que, con dolo, se niegue a hacer un servicio sabiendo que no es cierto que el vehículo esté en malas condiciones incurrirá en taita grave.

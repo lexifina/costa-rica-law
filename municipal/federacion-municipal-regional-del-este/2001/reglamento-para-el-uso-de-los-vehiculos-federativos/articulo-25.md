@@ -1,0 +1,1 @@
+Artículo 25.—Sanción de faltas. Tanto las faltas leves como las graves, y el incumplimiento injustificado de las obligaciones estipuladas en el presente Reglamento para los funcionarios federativos, serán sancionadas en los términos que prescriba la Legislación Laboral y el Código Municipal.
