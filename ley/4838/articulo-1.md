@@ -1,0 +1,16 @@
+N° 4838
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
+DECRETA:
+Artículo 1º.- Refórmanse los artículos 1º, 50, 52 y transitorios IX inciso d) de la parte primera y párrafo final, y X de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, Nº 4351 de 11 de julio de 1969, para que en lo sucesivo se lean así:
+"Artículo 1º.-Créase el Banco Popular y de Desarrollo Comunal, el que se regirá por la presente ley y su Reglamento, al cual se incorporará, en los término y condiciones señalados por los respectivos artículos transitorios, el Monte Nacional de Piedad establecido por la ley Nº 4 de 15 de enero de 1901, reformada por las leyes Nº 24 de 8 de diciembre de 1906, Nº 42 de 3 de agosto de 1916, Nº 2 de 15 de julio de 1931, Nº 686 de 24 de agosto de 1946 y Nº 1972 de 27 de octubre de 1955.
+El Banco es propiedad de los trabajadores por partes iguales y el derecho a la copropiedad estará sujeto a que hayan tenido una cuenta de ahorro obligatorio durante un año continuo o en períodos alternos. Todos los ahorrantes obligatorios participarán en la designación de sus Directores y en las utilidades.
+Los derechos que establece el párrafo anterior se ejercerán exclusivamente en la forma que dispone esta ley y sus reglamentos".
+Artículo 50.-Las utilidades anuales del Banco se distribuirán de la siguiente manera:
+a) Un 50% para bonificar el ahorro obligatorio de los trabajadores;
+b) Un 10% para financiar campañas de promoción del ahorro; y
+c) Un 40% para formar un patrimonio de hasta 50 millones de colones.
+Una vez completado éste, la Junta Directiva Nacional podrá, por el voto de seis de sus miembros, de los cuales por lo menos dos deberán ser representantes de los trabajadores, decidir si continúan aumentando el patrimonio o se aumenta el porcentaje de bonificación de los ahorros".
+"Artículo 52.-La disolución del Banco sólo podrá declararse por la vía judicial, previa una ley especial que establezca las bases de dicha disolución, cuando la Auditoría General de Bancos y la Contraloría General de la República determinen, por resolución razonada que debe procederse a la misma por causas financieras que hagan imposible el cumplimiento de los fines para los cuales fue creado el Banco".
+"Transitorio IX - Inciso d) - Parte primera.-El Consejo de Gobierno designará cuatro representantes de las Confederaciones de Trabajadores debidamente nscritas, con base en ternas que aquéllas le remitirán en un plazo no mayor de cinco días a partir de la vigencia de esta ley. El consejo de Gobierno hará los nuevos nombramientos en un plazo no mayor de diez días a partir de la vigencia de esta ley.
+Párrafo final.-La Junta Directiva Nacional Provisional, cesará en sus funciones a los dos años y seis meses de ser nombrada, salvo los miembros indicados en el inciso d) cuyo nombramiento se hará de conformidad con lo establecido en ese inciso".
+"Transitorio X.-Durante los cinco primeros años de operación del Banco, las bonificaciones al ahorro obligatorio, a que hace referencia el artículo 5º, así como la bonificación y el interés al ahorro voluntario a que se refieren los artículo 5º y 10, no podrán ser superiores, para cada ahorrante, a un equivalente al 12% anual sobre el saldo promedio de cada cuenta. El saldo del aporte patronal se destinará a la formación de patrimonio del Banco, mencionado en el artículo 50".
