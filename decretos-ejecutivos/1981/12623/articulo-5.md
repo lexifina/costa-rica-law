@@ -1,0 +1,2 @@
+Artículo 5°-Aquellos ministerios que hubieren cumplido plenamente con dichas cuotas de economía, quedarán exentos del control de dicha Comisión y solamente estarán obligados a seguir el trámite prescrito en el Estatuto de Servicio Civil y su respectivo Reglamento.
+Asimismo, hasta tanto no hubieren completado dichas cuotas, en los términos del artículo 3° de este decreto, únicamente podrán hacer los nombramientos o movimientos de personal que previamente y en casos muy calificados les autorice la Comisión de Recursos Humanos.

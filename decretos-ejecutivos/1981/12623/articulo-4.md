@@ -1,0 +1,1 @@
+Artículo 4°-Cumplido el trámite anterior, la Comisión de Recursos Humanos, procederá a comunicarlo así a la institución interesada, a la Dirección General de Servicio Civil y a la Oficina Técnica Mecanizada, con el propósito de que éstas lleven un estricto control de cada una de las plazas que no podrán ocuparse durante el presente año, en los plazos señalados.

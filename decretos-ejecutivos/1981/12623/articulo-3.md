@@ -1,0 +1,1 @@
+Artículo 3°-Para tal efecto, cada uno de los ministerios deberá presentar a la Comisión de Recursos Humanos una lista de puestos con sus respectivos títulos, códigos, claves, números, salarios y períodos del año en que se mantendrán vacantes, hasta completar el monto total de economía, que les fue asignado.
