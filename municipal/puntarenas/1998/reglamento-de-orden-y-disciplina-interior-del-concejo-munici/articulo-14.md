@@ -1,0 +1,2 @@
+Artículo 14.—Conocido un asunto en la Sesión y pasado algún tiempo sin que ningún Regidor pida o haga uso de la palabra el Presidente preguntará:
+“Se da por discutido el (informe, dictamen, proyecto o moción)”. Si ningún Regidor solicita la palabra el Presidente dará por discutido el asunto y procederá a recibir la votación declarando de acuerdo con el resultado de la votación, su aprobación o su rechazo.

@@ -1,0 +1,1 @@
+Artículo 16.—El Presidente no le dará curso o ninguna moción en la que vaya implícita o expresamente incluida una inversión de los fondos municipales, bienes o servicios, si la misma no señala correctamente de que partida específica se debe tomar para cumplir con lo solicitado en la moción.

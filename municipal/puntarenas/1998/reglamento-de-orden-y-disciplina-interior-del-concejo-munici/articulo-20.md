@@ -1,0 +1,1 @@
+Artículo 20.—Toda moción debe ser presentada para su trámite a la Secretaría del Concejo antes del inicio de la Sesión. Cada Regidor tendrá derecho a presentar dos mociones en el Capítulo correspondiente del primero y cuarto lunes.

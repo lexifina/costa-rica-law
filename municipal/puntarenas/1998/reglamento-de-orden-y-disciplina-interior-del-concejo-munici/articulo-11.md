@@ -1,0 +1,1 @@
+Artículo 11.—El Presidente con la debida anticipación seleccionará la correspondencia recibida, separada aquella que sea simple trámite administrativo a su juicio, la que será trasladada al Alcance Municipal para su atención, llevando únicamente a las sesiones la que por su origen y materia, sea de trámite del Concejo.

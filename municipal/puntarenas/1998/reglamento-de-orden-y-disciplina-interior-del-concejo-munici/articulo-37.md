@@ -1,0 +1,1 @@
+Artículo 37.—Durante las audiencias después de escuchar al expositor, cada Fracción representada en este Concejo contará con diez minutos (10’) de tiempo para realizar las exposiciones que crean conveniente, a excepción del Presidente Municipal, quien tiene la responsabilidad de atender a quienes se encuentran en audiencias.

@@ -1,0 +1,1 @@
+Artículo 12.—El Regidor tiene derecho a hacer uso de la palabra en las Sesiones del Concejo, solicitándola al Presidente. Ningún regidor podrá hablar más de dos veces sobre un mismo asunto, salvo en los informes de comisión.

@@ -1,0 +1,1 @@
+Artículo 25.—La posposición de un asunto incluido en el Orden del Día, salvo los casos impostergables señalados por el Código Municipal, podrán hacerse en virtud de moción de orden aprobada por dos terceras partes de los miembros presentes.

@@ -1,0 +1,1 @@
+Artículo 38.—Durante el “Capítulo Audiencias”, el Concejo Municipal únicamente se limitará a escuchar la exposición de los señores visitantes y de ninguna manera se tomará alguna clase de acuerdo salvo casos de emergencia por lo que el Presidente Municipal, en las sesiones siguientes tendrá la obligación de incluir en la agenda la solicitud recibida por escrito.

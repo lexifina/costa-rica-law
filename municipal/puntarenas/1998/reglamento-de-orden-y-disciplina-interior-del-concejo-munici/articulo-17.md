@@ -1,0 +1,1 @@
+Artículo 17.—El Presidente queda autorizado para retirarle el uso de la palabra a quien hiciera uso de ella sin permiso, se aporta el tema en discusión o se exceda en sus expresiones. Tendrá la potestad de retirar la persona del Recinto el Presidente.

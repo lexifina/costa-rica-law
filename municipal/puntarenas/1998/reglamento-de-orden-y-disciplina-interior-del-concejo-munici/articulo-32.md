@@ -1,0 +1,1 @@
+Artículo 32.—Solamente se consederán audiencias para tratar asuntos oficiales o de carácter comunal, no se podrán conceder para asuntos particulares o personales o aquellos que siendo conflictivos con la Municipalidad, debe conocerlos el Concejo por escrito.

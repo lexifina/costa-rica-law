@@ -1,0 +1,1 @@
+Artículo 33.—Cuando el objetivo de la audiencia fuere un asunto de competencia del Alcalde Municipal, el Presidente comunicará a la Secretaría, remitir el memorial presentado a dicho funcionario, para que este le de el trámite correspondiente.

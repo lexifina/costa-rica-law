@@ -1,0 +1,1 @@
+Artículo 27.—En la sesión del Concejo inmediata posterior a la elección de su Presidente y Vice-Presidente; el primero designará los miembros de las Comisiones Municipales Permanentes, quienes durarán en sus funciones un año.

@@ -1,0 +1,1 @@
+Artículo 19.—Cuando se solicita que a una moción se le aplique la dispensa de trámite de Comisión (artículo 44 párrafo segundo del Código Municipal), el Regidor proponente tiene derecho a hacer uso de la palabra por una sola vez, para justificar la solicitud.

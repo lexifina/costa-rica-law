@@ -1,0 +1,1 @@
+Artículo 39.—En el lugar más visible del Salón de Sesiones, se pondrá un rótulo de tamaño regular que exprese: “Audiencia, término máximo de duración: quince minutos”. Solamente el tercer lunes de cada mes.

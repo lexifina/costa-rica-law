@@ -1,0 +1,1 @@
+Artículo 8°—El Regidor Propietario que no se presentare dentro de los quince minutos (15’) posterior de la hora fijada para iniciar la Sesión o cuando se retire antes que finalice la Sesión, perderá la dieta.
