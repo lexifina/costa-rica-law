@@ -26,3 +26,8 @@ subproductos de ganado bovino.
 e) Velar por el cumplimiento de los acuerdos existentes sobre ganado
 bovino y carne, as¡ como acuerdos sobre cuotas de exportaci¢n o
 importaci¢n que se le otorguen al pa¡s.
+f) En materia de Comercio Exterior se coordinar n acciones con el
+Ministerio de Comercio Exterior (COMEX) para los fines
+procedentes.
+(Adicionado este inciso por Decreto N§ 23930 de 3 de enero de
+1995, art¡culo 2§)

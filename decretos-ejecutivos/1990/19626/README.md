@@ -13,3 +13,4 @@ Crea la Corporación de Fomento Ganadero (CORFOGA)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-04-05 | la propia norma |
+| 2 | 1990-04-05 | SINALEVI (sin norma nombrada) |
