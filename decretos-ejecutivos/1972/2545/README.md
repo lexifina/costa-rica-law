@@ -14,3 +14,4 @@ Reglamento para el trámite y resolución de solicitudes de los Residentes Pensi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1972-10-04 | la propia norma |
+| 2 | 1975-10-28 | Decreto Ejecutivo 5361 (1975-10-28) |

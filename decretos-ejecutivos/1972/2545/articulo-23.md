@@ -1,2 +1,2 @@
-Disposiciones Generales
-Artículo 23.-Las personas que se aconjan a la ley N° 4812, en ningún caso pagarán impuestos migratorios. También estarán exentas del pago del impuesto sobre la renta respecto a los ingresos que perciban del extranjero.
+Artículo 23.-La salida del país de los vehículos con placa de Residente Pensionado o Residente Rentista, estará sujeta a la autorización de la Dirección general de Transporte Automotor, a efecto de lo cual, los interesados se proveerán de certificaciones en el Registro Público de la Propiedad de Vehículos y en el Registro General de Prendas, a efecto de comprobar la propiedad del vehículo y la existencias o no de gravámenes.
+(Corrida su numeración por el artículo 1° del decreto ejecutivo N° 5361 del 28 de octubre de 1975, que lo traspasó del antiguo artículo 22 al 23)

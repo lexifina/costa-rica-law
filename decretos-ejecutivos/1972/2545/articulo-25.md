@@ -1,1 +1,2 @@
-Artículo 25.-Las personas amparadas por la ley aquí reglamentada, viajarán al exterior siempre en condición de turistas.
+Artículo 25.-En caso de fallecimiento del beneficiario, una vez adjudicado legalmente a los dependientes, el beneficio de la renta original, podrán éstos solicitar al Instituto Costarricense de Turismo que recomiende al Ministerio de Hacienda la continuidad de su estado como Residente Pensionado o Residente Rentista, lo cual será comunicado a las Autoridades de Migración que correspondan.
+(Corrida su numeración por el artículo 1° del decreto ejecutivo N° 5361 del 28 de octubre de 1975, que lo traspasó del antiguo artículo 24 al 25)
