@@ -13,3 +13,4 @@ Reglamento Emisión Bonos Forestales 8% 1968
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-05-01 | la propia norma |
+| 2 | 1970-05-01 | SINALEVI (sin norma nombrada) |
