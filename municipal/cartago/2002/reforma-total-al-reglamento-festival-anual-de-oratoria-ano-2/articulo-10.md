@@ -1,0 +1,1 @@
+Artículo 10.—El orador concursante, en sus participaciones debe guardar la compostura y moderación que el acto exige; de no hacerlo será descalificado por el jurado. Será descalificado también cuando use cualquier otra técnica que no se ajuste a la oratoria.

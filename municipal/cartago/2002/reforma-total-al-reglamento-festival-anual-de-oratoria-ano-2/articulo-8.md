@@ -1,0 +1,1 @@
+Artículo 8º—El tiempo que se da para los participantes para la exposición de su discurso a nivel de kínder será de mínimo dos minutos y máximo tres, para primaria será de tres minutos mínimo y cuatro máximo y para secundaria el tiempo será de cinco minutos mínimo y siete máximo.

@@ -1,0 +1,1 @@
+Artículo 9º—El estudiante participante del Festival de Oratoria deberá acatar los ordenamientos del presente Reglamento, cumplir las indicaciones que el jurado indique, Dichos ordenamientos e indicaciones no serán objeto de recursos ordinarios.

@@ -1,0 +1,1 @@
+Artículo 11.—El orador tiene como derecho a no ser interrumpido durante el transcurso de su discurso, a menos que contravenga lo prescrito en él articulo anterior, o que se extralimite en el tiempo que estable este Reglamento.
