@@ -1,1 +1,2 @@
-Artículo 8°.- El Consejo determinará, con base en las recomendaciones del Comité Técnico de la Dirección, las funciones que han de corresponder a cada departamento, las secciones de que cada uno ha de constar, lo mismo que las oficinas dependientes de cada sección, con indicación de la funciones de aquéllas y éstas. Las regulaciones que dicte el Consejo conforme a este artículo, deben entenderse incorporadas al presente Reglamento.
+Artículo 8°.—El Consejo determinará, con base en las recomendaciones del Comité Técnico, las funciones generales de la Dirección y sus dependencias.
+(Así reformado por el artículo único del decreto ejecutivo N° 2348 del 8 de mayo de 1972)
