@@ -1,0 +1,1 @@
+Artículo 2º—Los directores y los funcionarios de los establecimientos de salud y los médicos en el ejercicio privado de la profesión están obligados a remitir a la Unidad de Genética, toda la información de los nacimientos cuyas características indiquen alguna alteración congénita, para su estadio y seguimiento.

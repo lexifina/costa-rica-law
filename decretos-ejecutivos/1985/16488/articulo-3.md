@@ -1,0 +1,1 @@
+Artículo 3º—La Unidad de Genética deberá informar en forma periódica al señor Ministro de Salud sobre los estudios realizados y para el mejor desempeño de sus funciones podrá recibir toda la ayuda nacional y de organismos médicos extranjeros que requiera.
