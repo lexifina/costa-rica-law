@@ -1,0 +1,1 @@
+Artículo 35.—El Consejo Nacional tendrá un presidente, quien será el mismo funcionario que ostente el cargo de Coordinador del Área de Protección del Patronato; así como un secretario, quien será electo por y entre los demás miembros del Consejo. Las funciones de estos miembros serán las mismas establecidas para el Presidente y Secretario de los Consejos Regionales.

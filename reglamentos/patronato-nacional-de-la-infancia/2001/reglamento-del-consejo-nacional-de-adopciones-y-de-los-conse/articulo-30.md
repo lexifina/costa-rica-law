@@ -1,0 +1,1 @@
+Artículo 30.—El Consejo Nacional de Adopciones dependerá jerárquicamente de la Junta Directiva institucional y dispondrá de autonomía en los aspectos técnicos - decisorios que se sometan a su consideración.

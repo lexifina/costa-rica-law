@@ -1,0 +1,1 @@
+Artículo 38.—Los integrantes del Consejo Nacional tendrán derecho a voz y voto y no podrán representar, directa ni indirectamente a los promoventes de adopción. Se computará como válido el voto emitido por cada uno de los miembros, para lo cual los acuerdos se adoptarán por mayoría simple de votos. En caso de empate, el presidente decidirá la votación mediante voto de calidad.

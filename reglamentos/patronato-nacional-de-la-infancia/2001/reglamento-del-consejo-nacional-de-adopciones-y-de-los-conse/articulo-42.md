@@ -1,0 +1,1 @@
+Artículo 42.—Una vez finalizada cada sesión de trabajo del Consejo Nacional, su secretario levantará un acta detallada de los asuntos discutidos y los acuerdos adoptados, la que suscribirán todos los miembros presentes, con indicación expresa de la disconformidad de alguno de ellos en los puntos debatidos, si la hubiere, y las razones y fundamentos de la misma.

@@ -1,0 +1,1 @@
+Artículo 2°—El presente Reglamento regulará lo atinente a la existencia, contenido y funcionamiento de las diversas instancias institucionales que participan en la estructura organizativa de la temática de adopción de personas menores de edad.
