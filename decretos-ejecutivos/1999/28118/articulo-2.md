@@ -1,0 +1,1 @@
+Artículo 2°—Refórmese en términos generales el decreto ejecutivo No 26932-S de 14 de abril de 1998, "Reglamento del Sistema Nacional de Análisis de la Mortalidad Infantil", para que en los artículos donde dice "Comisión Nacional de Análisis de la Mortalidad Infantil se lea correctamente " Comisión Nacional para la Prevención de la Mortalidad infantil"
