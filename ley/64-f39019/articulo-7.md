@@ -1,0 +1,1 @@
+Artículo 7°-En cuanto no fueren incompatibles con las disposiciones de la presente ley, quedará obligado el arrendatario a cumplir y observar las establecidas por el decreto N° 37 de 5 de julio de 1902 y su reglamento de 25 de agosto del mismo año, y por los decretos de igual índole de 16 de noviembre de 1905 y 14 de julio de 1906.

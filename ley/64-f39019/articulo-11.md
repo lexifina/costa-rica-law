@@ -1,0 +1,1 @@
+Artículo 11.-Los exportadores de concha perla estarán obligados a vender a los industriales nacionales la materia prima que éstos ocupen con un diez por ciento de rebaja sobre el precio que obtenga en los mercados extranjeros, deducidos los gastos de exportación o trasporte hasta el mercado de venta y en proporción a la cantidad que en cada caso se exporte.

@@ -1,0 +1,1 @@
+Artículo 6°-El arrendatario rendirá garantía por el monto de la anualidad media que resulte de las cinco que comprende el arriendo. La garantía se hará depositando la suma respectiva en efectivo o depositando bonos del estado por igual suma.
