@@ -1,0 +1,7 @@
+ARTICULO 16.- Cuando la Municipalidad tenga duda sobre la
+veracidad de la declaración jurada, puede exigir a las personas físicas
+o jurídicas, declarantes o no declarantes del impuesto sobre la renta,
+una certificación sobre el volumen de los ingresos brutos, extendida
+por un contador público autorizado.
+Si encuentra que efectivamente existen inexactitudes, la
+Municipalidad puede realizar la determinación de oficio.
