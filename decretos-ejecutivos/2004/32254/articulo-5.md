@@ -1,0 +1,1 @@
+Artículo 5º—El registro tendrá una vigencia de dos años. Finalizado el plazo de vigencia, el interesado deberá solicitar su renovación automática, presentando la información actualizada, con al menos un mes de anticipación al vencimiento.

@@ -1,0 +1,1 @@
+Artículo 7º—La Unidad de Estudios Económicos, podrá cancelar la inscripción del registro, en caso que el interesado incumpla los reglamentos técnicos aplicables al producto, previo procedimiento administrativo en donde se observe plenamente la garantía constitucional del debido proceso y los principios que la conforman.
