@@ -1,0 +1,2 @@
+Artículo 50 bis.—Legalización de actas. El requisito legalmente establecido de autorización mediante razón de apertura por parte de la Auditoría Interna, para los libros de contabilidad, los libros de actas y otros, no será de aplicación para las actas del Plenario Legislativo; tampoco para las de todas las Comisiones Legislativas.
+(Así adicionado por acuerdo N° 6088 publicado en La Gaceta N° 233 del 3 de diciembre del 2002)

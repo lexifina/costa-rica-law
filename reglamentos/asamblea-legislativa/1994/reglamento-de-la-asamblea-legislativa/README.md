@@ -21,3 +21,4 @@ Reglamento de la Asamblea Legislativa
 | 6 | 1999-11-09 | SINALEVI (sin norma nombrada) |
 | 7 | 2001-02-14 | Reglamento 5085 (2001-02-14) |
 | 8 | 2001-12-10 | Reglamento 0 (2001-12-10) |
+| 9 | 2002-11-28 | Reglamento 0 (2002-11-28) |
