@@ -23,3 +23,4 @@ Código SAC Descripción
 1006.10.90 Arroz granza (con cáscara), otros
 1006.20.00 Arroz descascarillado
 1006.30.00 Semiblanqueado o pulido
+(Prorrogado por el artículo 1 del Decreto Ejecutivo Nº 30068 del 20 de Noviembre del 2001)
