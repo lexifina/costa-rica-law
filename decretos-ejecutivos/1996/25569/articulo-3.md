@@ -1,0 +1,1 @@
+Artículo 3°-El permiso otorgado por la Gobernación deberá renovarse cada año, y cualquier cambio en el domicilio del local, taller o recinto deberá ser comunicado a la Gobernación de la provincia, aún antes del vencimiento anual del permiso.
