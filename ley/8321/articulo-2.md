@@ -1,0 +1,1 @@
+Artículo 2º—La personalidad jurídica que se otorga en el artículo 1º de esta Ley tendrá carácter transitorio, pues se extinguirá cuando se liquide el contrato de préstamo Nº 1010/OC-CR, y sus anexos, entre la República de Costa Rica y el Banco Interamericano de Desarrollo: Proyecto de Educación Preescolar y Tercer Ciclo, Ley Nº 7731, del 6 de enero de 1998.
