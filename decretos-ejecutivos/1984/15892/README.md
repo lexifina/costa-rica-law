@@ -14,3 +14,4 @@ Declara Emergencia Nacional Construcción de Viviendas Populares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-12-12 | la propia norma |
+| 2 | 1984-12-12 | Decreto Ejecutivo 16647 (1985-10-21) |
