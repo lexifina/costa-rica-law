@@ -1,0 +1,1 @@
+Artículo 11°─ Esta emisión de “Bonos Deuda Interna 8%,1980 (Segunda Emisión)” por ₡ 672.126.000,00 es parte del monto autorizado en la ley N°6406 del 17 de diciembre de 1979. El resto de ₡ 1.500.000.00 se emitió en “Bonos de Deuda Interna 8%,1980 (Primera Emisión)”.
