@@ -1,0 +1,1 @@
+Artículo 2°-Se reforma el inciso f) del artículo 27 del decreto ejecutivo N° 14082-H del 29 de noviembre de 1982, y sus reformas, para que donde dice “ni para la compra de plantas eléctricas” se lea “ni para la compra de plantas eléctricas de hasta 2500 kw, requeridas para atender emergencias o corte de picos”.
