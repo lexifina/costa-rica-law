@@ -1,0 +1,1 @@
+Artículo 52.—Las diferencias de criterio que en la aplicación de este Reglamento surjan con la Unidad de Servicios Auxiliares, serán resueltos por la Viceministra y en su ausencia por el Oficial Mayor.

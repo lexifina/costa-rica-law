@@ -1,0 +1,1 @@
+Artículo 28.—Para lograr el mejor aprovechamiento de las unidades disponibles, la Unidad encargada de Transpones deberá agrupar en un solo viaje varias solicitudes de transporte que se dirijan hacia un mismo sitio o ruta, dando una adecuada coordinación del viaje.

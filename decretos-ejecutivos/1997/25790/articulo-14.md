@@ -1,0 +1,1 @@
+Artículo 14.—Se deberá mantener al día un registro de daños, averías y reparaciones que permita dar a conocer en todo momento el estado de los vehículos, así como un detalle exacto de las herramientas de que dispone el vehículo en el momento en que es prestado y en el momento en que regresa.

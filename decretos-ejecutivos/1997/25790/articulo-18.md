@@ -1,0 +1,1 @@
+Artículo 18.—Cada vehículo contará con un expediente en el que se incluya toda la documentación referente al Registro, derechos de circulación y pólizas, así como información sobre el plan de mantenimiento preventivo y las reparaciones y los servicios de mantenimiento realizadas.
