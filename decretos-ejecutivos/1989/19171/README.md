@@ -13,3 +13,4 @@ Reglamenta Importación Temporal Materiales Ingresados por Periodistas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-09-19 | la propia norma |
+| 2 | 1996-06-14 | Decreto Ejecutivo 25270 (1996-06-14) |
