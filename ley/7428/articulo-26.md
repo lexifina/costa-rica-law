@@ -1,4 +1,4 @@
-ARTICULO 26.- POTESTAD SOBRE AUDITORIAS INTERNAS
-La Contraloría General de la República fiscalizará que los auditores
-internos cumplan, adecuadamente, con las funciones que les señala esta
-Ley.
+Artículo 26.—Potestad sobre auditorías internas. La Contraloría General de la República fiscalizará que la auditoría interna de los entes y órganos sujetos a su competencia institucional, cumpla adecuadamente las funciones que le señala el ordenamiento jurídico que la regula; coordinará, como mínimo, una actividad anual para fortalecer su gestión. El resultado de dichas fiscalizaciones deberá ser informado directamente al jerarca de la institución y al auditor interno, quienes estarán obligados a tomar las medidas necesarias para su acatamiento o, en su defecto, a plantear su oposición, dentro de un plazo máximo de quince días hábiles.
+Presentada la oposición, la auditoría interna dispondrá de un plazo máximo de treinta días hábiles, contados a partir del recibo del informe de la Contraloría, para fundamentar debidamente su oposición.
+Recibida la fundamentación de la oposición, la Contraloría General de la República tendrá un plazo máximo de treinta días hábiles para resolver el conflicto planteado y deberá notificar, de inmediato, al ente u órgano discrepante, lo resuelto en este asunto.
+(Así reformado por el inciso a) del artículo 45 de la Ley de Control Interno, N° 8292 de 31 de julio del 2002)
