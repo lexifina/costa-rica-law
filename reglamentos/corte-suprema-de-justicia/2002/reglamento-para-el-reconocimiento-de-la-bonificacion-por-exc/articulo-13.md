@@ -1,1 +1,0 @@
-Artículo 13.—Irrenunciabilidad del beneficio. Por la naturaleza de la función policial y del concepto mismo de bonificación, el BEP es irrenunciable y de cumplimiento obligatorio las condiciones que establece.

@@ -1,1 +1,0 @@
-Artículo 12.—Incumplimiento al compromiso de exclusividad policial. El incumplimiento por parte del beneficiario de lo establecido en este reglamento o en el contrato de exclusividad policial, se considerará como una falta grave a la relación de servicio y faculta al Poder Judicial para dar por concluida cualquier tipo de relación laboral sin responsabilidad para el patrono.

@@ -1,2 +1,0 @@
-Artículo 14.—Condiciones del beneficio. El BEP tiene fundamento en las condiciones particulares de la actividad policial de la investigación criminal, por lo tanto no se constituye en derecho adquirido, ya que se establece a cambio de una prestación con características singulares las cuales al desaparecer eliminan la necesidad del reconocimiento económico.
-La única excepción se constituye durante la realización del curso básico o aquella otra actividad a juicio de la Dirección General del OIJ.
