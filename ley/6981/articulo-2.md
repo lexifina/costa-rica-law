@@ -1,1 +1,0 @@
-Artículo 2º.- Las disposiciones del Artículo anterior estarán en vigencia hasta el 30 de junio de 1985, pero cesarán en su vigencia de inmediato si antes de esa fecha entrare a regir un nuevo arancel de aduanas.
