@@ -10,7 +10,8 @@ Inicio de Operaciones: Proceso de instalación, producción, reexportación y/o 
 Maquinaria y Equipo: Aquellos bienes utilizados para elaborar o transformar otros productos, o servicios.
 Manual de Procedimientos: Conjunto de normas internas dictadas por PROCOMER y la Dirección.
 Materia Prima: Bienes que van a estar incorporados al producto final por medio de un proceso productivo.
-Mercado local: Serán ventas a mercado local todas aquellas que se realicen a territorio costarricense o a Centroamérica.
+Mercado local: Serán ventas a mercado local todas aquéllas que se realicen a territorio costarricense.
+(Así Reformado por el artículo 1° del Decreto Ejecutivo 29055, del 31 de Octubre de 2000)
 Módulo de Producción: El conjunto de operaciones que se desarrolla para la elaboración de un producto determinado o para el mantenimiento, reparación, montaje, reconstrucción o ensamblaje de mercancías.
 Montaje: Proceso de unión de piezas o partes para conformar subconjuntos.
 Piezas o partes: Producto elaborado, no compuesto a su vez por otras partes o piezas.
