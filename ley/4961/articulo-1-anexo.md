@@ -38,7 +38,15 @@ Lista de mercancías gravadas con el impuesto selectivo de consumo
 8527 Aparatos receptores de radiotelefonía, radiotelegrafía o radiodifusión, incluso combinación en la misma envoltura (gabinete) con grabador o reproductor de sonido o con reloj.
 8528 Aparatos receptores de televisión, incluso con aparato receptor de radiodifusión o con grabador o reproductor de sonido o imagen incorporado; videomonitores y videoproyectores.
 8702 Vehículos automóviles para transporte de diez o más personas, incluido el conductor.
-8703 Coches de turismo y demás vehículos automóviles concebidos principalmente para transporte de personas.
+8703 .COCHE DE TURISMO Y DEMÁS VEHÍCULOS AUTOMOVILES CONCEBIDOS PRINCIPALMENTE PARA TRASNPORTE DE PERSONAS (EXCEPTO LO DE LAS PARTIDAS N° 87.02), INCLUIDOS LOS VEHÍCULOS DEL TIPO FAMILIAR (“BREAK” O “STATION WAGON”)Y LOS DE CARRERAS
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
+8703.90-Los demás
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
+8703.90.10 -Movidos por energía eléctrica
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
+8703.90.90 -Los demás
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 26163 del 4 de julio de 1997)
+(Corregido la numeración anterior mediante Fe de Erratas y publicada en La Gaceta N° 186 del 29 de setiembre de 1997. Anteriormente se indicaba: 8703.90.19)
 8704 Vehículos automóviles para transporte de mercancías.
 8706 Chasis de vehículos automóviles de las partidas Nº 87.01 a 87.05, equipados con su motor.
 8707 Carrocerías de vehículos automóviles de las partidas Nº 87.01 a 87.05, incluidas las cabinas.
