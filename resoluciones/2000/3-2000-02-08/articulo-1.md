@@ -11,12 +11,12 @@ RESUELVE:
 Artículo 1°—Se modifica los incisos 1, 3 y 4 del artículo 9 de la Resolución N°-013-98 para que se lean así:
 Artículo 9°—Administración Tributaria de San José.
 1. Esta Administración contará con una Subgerencia de Recaudación y Atención al Contribuyente, una Subgerencia de Fiscalización y una Subgerencia Técnica y Jurídica, a cargo de cada una de las cuales existirá un subgerente.
-3. Dentro de la Subgerencia de Fiscalización, se constituirán las áreas que a continuación se indican, en cada una de las cuales se nombrará un coordinador:
-Grandes Empresas Regionales
-Auditoría A
-Auditoría B
-Auditoría C
-Auditoría D
+3. Dentro de la Subgerencia de Fiscalización, se constituirán las áreas que a continuación se indican, en cada una de las cuales se nombrará a un coordinador:
+a) Grandes Empresas Territoriales de Fiscalización (GETES de Fiscalización)
+b) Auditoría A
+c) Auditoría B
+d) Auditoría C
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 3 de la Resolución No. 7 del 12 de febrero del 2003, publicado en La Gaceta No. 56 de 20 de marzo del 2003)
 4. Dentro de la Subgerencia Técnica y Jurídica se constituirán las áreas funcionales que a continuación se indican, cada una de las cuales estará a cargo de un Coordinador Tributario.
 Área de Determinaciones
 Área de Devoluciones

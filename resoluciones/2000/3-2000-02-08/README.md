@@ -14,3 +14,4 @@ Reforma la Estructura y la División Interna de la Dirección General de Tributa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-28 | la propia norma |
+| 2 | 2003-02-12 | Resolución 7 (2003-02-12) |
