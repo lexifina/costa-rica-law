@@ -1,0 +1,1 @@
+Art. 3. El presente decreto se pondrá en conocimiento de la Asamblea, tan luego como se reuna. –Dado en San José á catorce de Abril de mil ochocientos cuarenta y dos. – Francisco Morazan. – Al Ministerio general del Departamento Sr. General José Miguel Saravia.
