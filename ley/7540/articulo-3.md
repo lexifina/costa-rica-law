@@ -10,7 +10,7 @@ países como consecuencia de su participación en uniones aduaneras o zonas
 de libre comercio, así como en otros acuerdos económicos internacionales
 incluso los regionales, subregionales o interregionales.
 c) Las ventajas y facilidades que cualquiera de las Partes
-Contratantes haya concedido o concederá a las mercancías importadas dentro
-de programas de ayuda proporcionada a dicha Parte por terceros países o
-instituciones, organismos y cualesquiera otras organizaciones
+Contratantes haya concedido o concederá a las mercancías importadas
+dentro de programas de ayuda proporcionada a dicha Parte por terceros
+países o instituciones, organismos y cualesquiera otras organizaciones
 internacionales.
