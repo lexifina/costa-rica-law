@@ -1,0 +1,3 @@
+Artículo 34: Cobranzas
+El beneficiario deberá mantener un nivel de cobranza por los servicios que presta líos usuarios, no inferior al ochenta y cinco por ciento (85%) de los saldos exigibles.
+Para estos efectos se considera que son saldos exigibles las cuentas pendientes de pago cuyos vencimientos hayan ocurrido durante el respectivo ejercicio fiscal, más las cuentas pendientes de los ejercicios anteriores. El beneficiario deberá presentar anualmente, dentro de los ciento veinte (120) días siguientes al cierre de cada ejercicio fiscal y durante la vigencia del contrato de préstamo, comenzando con el correspondiente al año en que se haya iniciado la ejecución del proyecto, la evidencia de haber alcanzado este porcentaje de eficiencia de cobranzas.

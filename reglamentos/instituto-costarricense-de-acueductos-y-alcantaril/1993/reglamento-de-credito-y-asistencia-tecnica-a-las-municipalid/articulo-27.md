@@ -1,0 +1,2 @@
+Artículo 27: Modificaciones al Proyecto
+Las modificaciones significativas al proyecto original deberán contar con la autorización del beneficiario. AyA trasladará las posibles modificaciones al beneficiario, el que dispondrá de un plazo de quince (15) días naturales para pronunciarse. En caso de que el beneficiario no se manifieste dentro de dicho plazo, AyA tomará la decisión idónea, con base en criterios técnicos y económicos.

@@ -1,0 +1,2 @@
+Artículo 25: Procedimientos de contratación
+Los contratos de construcción y adquisición de bienes y servicios para la ejecución de las obras, se harán de conformidad con las normas legales y reglamentarias vigentes y lo dispuesto en los Convenios de Préstamo entre el Gobierno de Costa Rica y el BID, ratificados por la Asamblea Legislativa mediante Ley No. 7296 del 11 de abril de 1992, publicada en el Alcance No. 4 a la Gaceta No. 88 del 8 de mayo de 1992 y Fe de Erratas publicada en la Gaceta No. 98 del 22 de mayo de 1992.

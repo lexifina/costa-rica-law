@@ -1,0 +1,2 @@
+Artículo 11: Recurso hídrico.
+Se deberá demostrar mediante aforo o prueba de bombeo que las fuentes de abastecimiento propuestas para los proyectos deberán disponer de la capacidad requerida y que la calidad física, química y bacteriológica del agua, según las guías de la Organización Mundial de la Salud, permite su utilización directa o, en su defecto, que existe o se propone un nivel de tratamiento aceptable de acuerdo con las guías citadas. Asimismo, se deberá presentar evidencia del derecho de uso de las fuentes de agua.

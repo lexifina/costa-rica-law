@@ -1,0 +1,2 @@
+Artículo 39: Informes a los beneficiarios
+AyA brindará a los beneficiarios toda la información sobre el desarrollo del programa y del proyecto, mediante informes específicos y sistemáticos bimestrales. Estos informes contendrán información del estado del programa, cumplimiento de requisitos previos, trámites, avances de las obras, costos y desembolsos y toda la información que se considere pertinente.

@@ -1,0 +1,3 @@
+Artículo 19: Intereses
+El crédito en colones se otorgará a un tipo de interés corriente, igual a la tasa básica pasiva vigente a seis (6) meses, a la fecha prevista de pago, más un uno por ciento por administración del préstamo.
+El interés moratorio será el cincuenta por ciento del interés corriente. Los créditos correspondientes al fínanciamiento del BID en dólares de los Estados Unidos de América, se otorgarán con los mismos intereses corrientes y moratorios establecidos en los términos del contrato de préstamo No 637/OC-CR suscrito entre el Gobierno y el BID; tasas de interés que son actualizadas semestralmente por el BID, más veinticinco centésimas del uno por ciento por administración del préstamo.
