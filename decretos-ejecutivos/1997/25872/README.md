@@ -13,3 +13,4 @@ Declara Interés Público Decimoséptimo Congreso Iberoamericano Turismo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-03-14 | la propia norma |
+| 2 | 1997-03-14 | SINALEVI (sin norma nombrada) |
