@@ -37,5 +37,8 @@ ARTÍCULO 7: REQUERIMIENTOS DE PERSONAL PARA EL EJERCICIO ECONÓMICO DEL 2003 (.
 (Así MODIFICADO por el artículo 2° del Decreto Ejecutivo N° 31482 de 13 de noviembre de 2003, publicado en La Gaceta N° 227 de 25 de noviembre de 2003.)
 (Así MODIFICADO por el artículo 2° del Decreto Ejecutivo N° 31475 de 14 de noviembre de 2003, publicado en el Alcance N° 56 a La Gaceta N° 225 de 21 de noviembre de 2003.)
 (Modificado el inciso a) por el artículo 2° del Decreto Ejecutivo N° 31495 de 21 de noviembre de 2003, publicado en el Alcance N° 57 a La Gaceta N° 230 de 28 de noviembre de 2003.)
+(MODIFICADO por artículo 1° del Decreto Ejecutivo N° 31523 de 26 de noviembre de 2003, publicado en La Gaceta N° 240 de 12 de diciembre de 2003, el cual modificó el inciso a) del presente artículo.)
+(MODIFICADO por artículo 2° del Decreto Ejecutivo N° 31544 de 27 de noviembre de 2003, publicado en La Gaceta N° 244 de 18 de diciembre de 2003, el cual modificó el inciso a) del presente artículo.)
 (MODIFICADOS los incisoa a) y b) de este artículo por el artículo 2° del Decreto Ejecutivo N°31507 de 02 de diciembre de 2003, publicado en La Gaceta N° 239 de 11 de diciembre de 2003.)
 (REFORMADO por artículo 3° de la Ley N° 8397 de 3 de diciembre de 2003, publicada en La Gaceta N° 238 de 10 de diciembre de 2003)
+(MODIFICADOS los incisos a) y b) de este artículo, por el artículo 2° del Decreto Ejecutivo N° 31539 de 8 de diciembre de 2003, publicado en el Alcance N° 61 a La Gaceta N° 240 de 12 de diciembre de 2003).
