@@ -13,3 +13,4 @@ Reglamento del Fondo de Garantías y Jubilaciones de lo empleados del Banco Cent
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-11-10 | la propia norma |
+| 2 | 2001-09-24 | Reglamento 5091 (2001-09-24) |
