@@ -1,0 +1,1 @@
+Artículo 8°-El jurado se reunirá en forma ordinaria, dos veces por semana como mínimo y de manera extraordinaria cuando lo convoque el Presidente u otro de sus miembros. En su primera reunión deberá nombrar a su Presidente y a su Secretario de Actas. El quórum para sesionar será de tres integrantes.
