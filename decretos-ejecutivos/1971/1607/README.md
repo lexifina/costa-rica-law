@@ -14,3 +14,4 @@ Reglamenta Oficina Control de Presupuesto del Ministerio de Hacienda
 | --- | --- | --- |
 | 1 | 1971-04-14 | la propia norma |
 | 2 | 1997-10-06 | Decreto Ejecutivo 26402 (1997-10-06) |
+| 3 | 1997-10-06 | Ley 8 |
