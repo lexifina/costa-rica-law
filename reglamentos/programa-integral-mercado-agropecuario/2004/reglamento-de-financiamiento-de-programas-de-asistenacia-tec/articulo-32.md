@@ -1,0 +1,2 @@
+Artículo 32.—Arreglos de pago. Cuando una organización entre en mora, podrá solicitar el beneficio de arreglo de pago, en el cual se contemplarán las multas, intereses de mora, principal, gestiones de cobro y otras que ameriten el arreglo de pago.
+Para gozar de dicho beneficio deberá dirigir una misiva al Consejo Directivo por medio de la Gerencia para su debido conocimiento. En todos los casos deberá haber un informe de la naturaleza de la garantía y un informe técnico de la Unidad Ejecutora sobre la viabilidad de la propuesta.

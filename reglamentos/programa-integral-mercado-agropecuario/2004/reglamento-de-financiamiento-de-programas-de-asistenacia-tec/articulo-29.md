@@ -1,0 +1,1 @@
+Artículo 29.—De los cobros administrativos. Los beneficiarios que se encuentren atrasados en la cancelación de dos cuotas consecutivas al PIMA, serán sujetas de cobro administrativo mediante trámite que realizará la Dirección Administrativa Financiera.

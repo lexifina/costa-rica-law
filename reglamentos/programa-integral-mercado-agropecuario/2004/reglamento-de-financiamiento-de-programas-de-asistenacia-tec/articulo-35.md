@@ -1,0 +1,1 @@
+Artículo 35.—De la interpretación del Reglamento y las modificaciones a los Convenios. La aprobación de cualquier modificación al Convenio de Asignación de Recursos, así como toda interpretación al Reglamento corresponde al Consejo Directivo de PIMA.

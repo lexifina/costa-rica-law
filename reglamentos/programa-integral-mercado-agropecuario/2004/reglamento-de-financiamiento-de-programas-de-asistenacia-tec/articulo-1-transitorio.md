@@ -1,0 +1,1 @@
+Transitorio único: Este Reglamento deroga el Reglamento de Financiamiento para Pequeños y Medianos Productores Agropecuarios e Hidrobiológicos debidamente Organizados con fundamento en los alcances de la Ley Nº 7656 y su reforma a través de la Ley Nº 7959 publicada en La Gaceta Nº 4 del 7 de enero del 2002.

@@ -1,0 +1,1 @@
+Artículo 15.—Del período de gracia. El período de gracia máximo para la cancelación de la amortización será de tres meses para inversión y seis meses para capital de trabajo. En ambos casos el período de gracia empieza a partir de la firma del Convenio de Asignación de Recursos.

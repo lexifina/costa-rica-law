@@ -1,0 +1,1 @@
+Artículo 31.—Las prórrogas. El Consejo Directivo podrá conceder prórrogas a solicitud de los deudores. Para que éstas se den deberá mediar una solicitud por escrito de la organización, indicando las razones que ameriten dicho beneficio, a dicha solicitud se le incorporará la recomendación de la Unidad Ejecutora.

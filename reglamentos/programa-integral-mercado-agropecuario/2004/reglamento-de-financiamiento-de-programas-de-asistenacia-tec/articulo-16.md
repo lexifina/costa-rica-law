@@ -1,0 +1,1 @@
+Artículo 16.—De los plazos. Para inversión cuyos montos son de hasta cinco millones de colones, un plazo máximo de 60 meses, para montos de hasta 10 millones de colones, un plazo máximo de 84 meses y montos de quince millones o más, un plazo máximo de 120 meses. Para capital de trabajo un máximo de dos años.
