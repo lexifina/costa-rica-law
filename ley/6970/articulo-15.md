@@ -1,4 +1,4 @@
-Artículo 15.-Se considerarán asociados los que suscriban la escritura
+ARTICULO 15.-Se considerarán asociados los que suscriban la escritura
 constitutiva y los que sean admitidos posteriormente de acuerdo con los
 estatutos. Sus nombres deberán figurar en un libro de registro de miembros
 que llevará el nombre de la asociación.

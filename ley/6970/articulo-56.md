@@ -1,6 +1,6 @@
 CAPITULO V
 De la disolución y la liquidación
-Artículo 56.-Las asociaciones solidaristas se disolverán:
+ARTICULO 56.-Las asociaciones solidaristas se disolverán:
 a) Por acuerdo de más del setenta y cinco por ciento del total de los
 asociados.
 b) Cuando el número de asociados elegibles sea inferior al necesario para

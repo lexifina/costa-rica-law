@@ -1,6 +1,6 @@
 CAPITULO II
 Patrimonio y recursos económicos
-Artículo 18.-Las asociaciones solidaristas contarán con los siguientes
+ARTICULO 18.-Las asociaciones solidaristas contarán con los siguientes
 recursos económicos:
 a) El ahorro mensual mínimo de los asociados, cuyo porcentaje será fijado
 por la asamblea general. En ningún caso este porcentaje será menor del
