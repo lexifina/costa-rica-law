@@ -1,0 +1,1 @@
+Artículo 3°-El Servicio de Parques Nacionales establecerá las prohibiciones y regulaciones que regirán para el Área Recreativa Nacional Cariari, las cuales tendrán como objeto la protección de los recursos naturales de la misma y la seguridad de los visitantes de la misma.

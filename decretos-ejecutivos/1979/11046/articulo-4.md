@@ -1,0 +1,1 @@
+Artículo 4°-El Servicio de Parques Nacionales queda facultado para establecer acuerdos con otras instituciones nacionales, para el establecimiento de instalaciones y servicios recreativos, educativos y culturales, siempre y cuando no perjudiquen los recursos naturales del área.
