@@ -1,3 +1,4 @@
+(NOTA: Mediante el decreto ejecutivo N° 28676 del 16 de mayo de 2000, se establecen las regulaciones específicas relacionadas con la aplicación del derogado artículo 11 de la Ley de Incentivos para el desarrollo turístico N° 6990 de 15 de julio de 1985, con respecto a los contratos turísticos aprobados antes de su derogatoria, complementando así este decreto a efecto de regular adecuadamente la actuación de los órganos de la Administración Pública que intervienen en su aplicación)
 Nº 24863-H-TUR
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE HACIENDA Y TURISMO,

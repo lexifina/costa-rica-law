@@ -14,3 +14,4 @@ Reglamento Ley de Incentivos para el Desarrollo Turístico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-01-31 | la propia norma |
+| 2 | 1996-01-31 | SINALEVI (sin norma nombrada) |
