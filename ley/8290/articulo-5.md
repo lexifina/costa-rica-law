@@ -1,0 +1,1 @@
+Artículo 5º—El Teatro Nacional contará con un director general, quien será la máxima autoridad administrativa del órgano, ejecutará los acuerdos del Consejo y lo representará, judicial y extrajudicialmente. Será un funcionario de confianza, de libre nombramiento y remoción del Ministro de Cultura, Juventud y Deportes.
