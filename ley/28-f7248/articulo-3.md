@@ -1,0 +1,3 @@
+Art 3°.- Los Administradores de dichos fondos, no entregarán cantidad alguna sin que previamente se les hayan presentado por el interesado todas las seguridades prevenidas por la ley, comprobándose con una información de dos testigos abonados y contestes que la finca o fincas que se han hipotecado existen y que son propias del que las presentan libres de todo gravamen, y que su valor es el doble de la cantidad que se ha tomados y que esta constancia sea robustecida con la papeleta del Administrador de hipotecas que acredite no estar dichas fincas gravadas a otra deuda, más que a la presente.
+Dado en San José a los doce días del mes de octubre de mil ochocientos cincuenta y siete.
+Por tanto: Ejecútese: San José octubre quince de mil ochocientos cincuenta y siete.
