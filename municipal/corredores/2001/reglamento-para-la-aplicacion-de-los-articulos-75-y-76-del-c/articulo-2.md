@@ -1,0 +1,1 @@
+Artículo 2°—Alcance: este reglamento incluye todo lote o área pública o privada, ubicada dentro de toda el área del cantón de Corredores que se preste para incurrir en las omisiones detalladas en el artículo primero del presente reglamento.

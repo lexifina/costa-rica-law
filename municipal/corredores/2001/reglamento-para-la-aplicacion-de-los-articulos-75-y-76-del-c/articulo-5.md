@@ -1,0 +1,1 @@
+Artículo 5°—Responsable de la revisión del procedimiento: el responsable de la revisión de este procedimiento será el Área de Ingeniería conjuntamente con la Sección Legal y la Dirección Administrativa y Financiera de la Institución.
