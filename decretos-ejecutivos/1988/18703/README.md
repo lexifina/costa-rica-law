@@ -14,3 +14,4 @@ Nombra Comisión para establecer la necesidad actual de aprobación de los proye
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-12-13 | la propia norma |
+| 2 | 1989-01-31 | Decreto Ejecutivo 18826 (1989-01-31) |
