@@ -14,3 +14,4 @@ Reglamento a la Ley de Tránsito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1973-12-13 | la propia norma |
+| 2 | 1975-09-23 | Decreto Ejecutivo 5236 (1975-09-23) |
