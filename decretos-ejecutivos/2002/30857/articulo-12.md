@@ -1,0 +1,1 @@
+Artículo 12.—El Consejo Asesor, se regirá por lo establecido en los artículos 49 y siguientes de la Ley General de la Administración Pública, que norma lo relativo al funcionamiento de los órganos colegiados.
