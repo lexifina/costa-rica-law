@@ -14,3 +14,4 @@ Establece Reserva Forestal de Río Macho
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1964-02-04 | la propia norma |
+| 2 | 1967-07-31 | Decreto Ejecutivo 19 (1967-07-31) |
