@@ -1,0 +1,1 @@
+Art. 4°-El día quince del citado julio se reunirá la Asamblea Electoral del cantón, previas las formalidades legales, y elegirá los tres regidores principales y los dos suplentes, y los alcaldes propietarios y suplente que corresponden a dicho cantón.
