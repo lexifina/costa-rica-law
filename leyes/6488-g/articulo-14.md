@@ -1,0 +1,2 @@
+Articulo XIV - Condiciones especiales de tránsito por Afganistán.
+Por derogación del articulo 52. párrafo 19, la administración postal de Afganistán estará provisionalmente autorizada, debido a las dificultades especiales que encuentra en materia de medios de transporte y de comunicación, a efectuar el tránsito de los despachos cerrados y de correspondencia al descubierto a través de su país en las condiciones especialmente convenidas entre ella y las administraciones postales interesadas.

@@ -1,0 +1,4 @@
+Artículo XIX - Condiciones de aprobación de las proposiciones del Consejo Ejecutivo relativas a las normas de pago.
+Por derogación del artículo 77, párrafo 2°, letra a), las proposiciones del Consejo Ejecutivo tendientes a adaptar el artículo 103 del Reglamento del Convenio a una modificación fundamental de la práctica general de los pagos internacionales, para tener validez deberán reunir los dos tercios de los sufragios.
+En fe de lo cual, los infrascritos Plenipotenciarios han redactado el presente Protocolo, que tendrá la misma fuerza y el mismo valor que si sus disposiciones estuvieran insertas en el texto mismo del Convenio, y lo firman en un ejemplar que quedará depositado en los Archivos del Gobierno del país sede de la Unión. El Gobierno del país sede del Congreso entregará una copia a cada parte.
+Firmado en Lausana, el 5 de julio de 1974.

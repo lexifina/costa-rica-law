@@ -1,0 +1,2 @@
+Articulo XVI - Sobretasa aérea excepcional.
+Debido a la situación geográfica especial de la Unión de Repúblicas Socialistas Soviéticas, la administración postal de este país se reservará el derecho de aplicar una sobretasa uniforme en todo su territorio, para todos los países del mundo. Esta sobretasa no excederá de los gastos reales originados por el transporte, por vía aérea, de los envíos de correspondencia.

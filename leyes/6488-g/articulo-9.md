@@ -1,0 +1,4 @@
+Articulo IX - Cupones respuesta internacionales.
+1. Independientemente de la fecha de entrada en vigor de las Actas de Lausana 1974, el cupón respuesta internacional emitido conforme al articulo 28, párrafo 19, se pondrá en circulación a partir del 19 de enero de 1975.
+2. Durante un periodo de cuatro años, los cupones respuesta internacionales de un tipo anterior emitidos antes del 19 de enero de 1975 se liquidarán directamente entre las administraciones interesadas conforme a las disposiciones del Convenio de Tokio 1969. Ya no podrán ser objeto de la cuenta general de cupones respuesta internacionales establecida por la Oficina Internacional.
+3. Después de este período transitorio, los cupones respuesta internacionales de un tipo anterior ya no darán lugar a una liquidación entre administraciones, salvo acuerdo especial.

@@ -1,0 +1,3 @@
+Articulo XVII - Encaminamiento obligatorio indicado por el país de origen.
+1. La República Federativa Socialista de Yugoslavia no reconocerá más que los gastos del transporte efectuado de conformidad con la disposición relativa a la línea indicada en las etiquetas de las sacas (AV 8) del despacho-avión.
+2. Las administraciones postales de la República Socialista Soviética de Bielorrusia, de la República Socialista de Rumania, de la República Socialista Soviética de Ucrania y de la Unión de Repúblicas Socialistas Soviéticas sólo reconocerán los gastos del transporte efectuado de conformidad con la disposición relativa a la línea indicada en las etiquetas de las sacas (AV 8) del despacho-avión y en las facturas de entrega AV 7.

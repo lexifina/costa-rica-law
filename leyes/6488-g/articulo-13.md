@@ -1,0 +1,3 @@
+Articulo XIII - Gastos especiales de tránsito por el Transiberiano y el lago Nasser.
+1. La administración postal de la Unión de Repúblicas Socialistas Soviéticas estará autorizada a cobrar un suplemento de 1,50 franco además de los gastos de tránsito mencionados en el articulo 52, párrafo 1, 1° recorridos territoriales. por cada kilogramo de envíos de correspondencia transportado en tránsito por el Transiberiano.
+2. Las administraciones postales de la República Árabe de Egipto y de la República Democrática de Sudán estarán autorizadas a cobrar un suplemento de 50 céntimos sobre los gastos de tránsito mencionados en el articulo 52, párrafo 1°, por cada saca de correspondencia en tránsito por el lago Nasser entre el Shallal (Egipto) y Wadi Halfa (Sudán).

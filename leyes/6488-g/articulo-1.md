@@ -1,0 +1,6 @@
+PROTOCOLO FINAL DEL CONVENIO
+POSTAL UNIVERSAL
+Al proceder a la firma del Convenio Postal Universal celebrado en el día de la fecha, los Plenipotenciarios que suscriben han convenido lo siguiente:
+Articulo I - Pertenencia de los envíos postales.
+1. El articulo 5° no se aplicará a la República de Sudáfrica, a Australia, al Estado de Bahrein, a Barbados, al Reino de Bután, a la República de Botswana, a Canadá, a la República de Chipre, a la República Árabe de Egipto, a las Fidji, a Ghana, al Reino Unido de Gran Bretaña e Irlanda del Norte, a Guyana, a Irlanda, a Jamaica, a la República de Kenia, a Kuwait, al Reino de Lesotho, a Malasia, a Malawi, a Malta, a Mauricio, a la República de Nauru, a la República Federal de Nigeria, a Nueva Zelandia, a Uganda, al Estado de Qatar, a la República de Sierra Leona, a'" Singapur, al Reino de Suazilandia, a la República Unida de Tanzania, a Trinidad y Tobago, a la República Árabe de Yemen, a la República Democrática Popular de Yemen ya la República de Zambia.
+2. Este articulo tampoco se aplicará al Reino de Dinamarca, cuya legislación no permite la devolución o la modificación de dirección de los envíos de correspondencia a petición del expedidor, una vez que el destinatario ha sido informado de la llegada del envío a él dirigido.
