@@ -1,0 +1,7 @@
+ARTICULO 15.- En el momento de retirar el giro, las entidades
+públicas o privadas, beneficiadas con partidas específicas, deben
+comprobar, ante el Ministerio de Hacienda, que están constituidas
+legalmente.
+Si la partida no puede utilizarse en el período fiscal para el que
+fue asignada y el dinero se invierte a un plazo corto, los intereses que
+se generen se agregarán al principal con el mismo destino.
