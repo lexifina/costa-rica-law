@@ -1,0 +1,1 @@
+Artículo 2º—Los y las profesionales en Física han de ser leales, veraces y deben actuar de buena fe, por tanto, no aconsejarán ningún acto fraudulento, ni aplicarán sus conocimientos para fines ilegítimos que desvíen los objetivos fundamentales de la profesión o impidan la correcta aplicación de esta ciencia.

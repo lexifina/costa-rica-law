@@ -1,0 +1,1 @@
+Artículo 18.—Deben los y las profesionales en Física al impartir cursos en instituciones educativas, realizar la evaluación del aprovechamiento de sus estudiantes de un modo imparcial y objetivo, y siguiendo, dentro de lo razonable y lo que estipule la libertad de cátedra, los lineamientos y estudiando los temas establecidos por el programa del curso.

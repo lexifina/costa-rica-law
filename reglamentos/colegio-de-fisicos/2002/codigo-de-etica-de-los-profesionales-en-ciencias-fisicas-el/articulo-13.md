@@ -1,0 +1,1 @@
+Artículo 13.—Los y las profesionales en Física pueden prestar sus servicios ante instituciones privadas o estatales. En todos los casos debe ajustarse a las mismas reglas de ética que gobiernan su actuación.

@@ -1,0 +1,1 @@
+Artículo 5º—En caso de tener conocimiento de algún peligro que aceche a la comunidad, deben los y las profesionales en Física advertir a la misma y a los órganos estatales y privados pertinentes sobre la situación, así como colaborar en la solución del problema en la medida que su sabiduría y facultades lo permitan.

@@ -1,0 +1,1 @@
+Artículo 10.—Los y las profesionales en Física deben respetar las disposiciones legales que establecen las incompatibilidades para ejercer la profesión y abstenerse de desempeñar cargos u ocupaciones incompatibles con el espíritu de la misma.

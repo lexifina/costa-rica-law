@@ -1,0 +1,1 @@
+Artículo 27.—Si la sanción de suspensión se indica dentro de límites que señalan sus extremos mínimo y máximo, el Tribunal de Honor determinará a su albedrío la corrección dentro de los extremos señalados, tomando en cuenta las circunstancias del caso y los antecedentes y condiciones personales del o la profesional acusado.

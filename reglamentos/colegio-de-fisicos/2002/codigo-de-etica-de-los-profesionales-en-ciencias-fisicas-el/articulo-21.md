@@ -1,0 +1,1 @@
+Artículo 21.—En toda publicación que realice, deben los y las profesionales en Física mencionar las fuentes originales de informaciones que utilizó para lograr esa publicación. En caso de que hubiese tenido colaboradores al realizar la publicación, debe darles el crédito que se merezcan.

@@ -1,0 +1,1 @@
+Artículo 11.—Los y las profesionales en Física deben reconocer su responsabilidad cuando resultara de negligencia, error inexcusable o dolo, allanándose a indemnizar los daños y perjuicios ocasionados.

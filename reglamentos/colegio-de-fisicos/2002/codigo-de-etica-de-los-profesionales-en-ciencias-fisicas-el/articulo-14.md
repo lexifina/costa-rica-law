@@ -1,0 +1,1 @@
+Artículo 14.—Deben los y las profesionales en Física mantener una posición de independencia durante el desempeño de sus funciones, de manera que sus actuaciones se ajusten a los intereses generales y la búsqueda del bienestar común.

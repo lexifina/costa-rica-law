@@ -1,0 +1,1 @@
+Artículo 7º—Los y las profesionales en Física deben esforzarse por actualizar y ampliar sus conocimientos en Física constantemente, del modo que su docencia y su investigación reflejen en lo posible el estado del conocimiento humano.

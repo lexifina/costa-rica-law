@@ -1,0 +1,3 @@
+TERCERA PARTE
+De la aplicación de las sanciones disciplinarias
+Artículo 24.—Las correcciones disciplinarias a que alude este Código se impondrán sin perjuicio de las responsabilidades penales y civiles en que hayan incurrido los y las profesionales en Física. En consecuencia, no será obstáculo para imponerlas el hecho de que esté pendiente de tramitación ante los tribunales queja, juicio, o causa sobre motivo que sirva de fundamento a la corrección ni tampoco el que haya recaído sobreseimiento o sentencia absolutoria. De igual manera, el pronunciamiento que hiciere el Tribunal de Honor, por referirse a cuestiones del régimen interno del Colegio, no podrá hacerse valer como elemento de prueba en el juicio, causa o pena pendiente ante los tribunales comunes.
