@@ -1,0 +1,3 @@
+Artículo 5°.-Las disposiciones penales referentes al contrabando aduanero contenidas en la Ley número 6 de 19 de Setiembre del año próximo pasado, serán aplicadas á la introducción de artículos de comercio prohibido ó especies fiscales estancadas, con las siguientes diferencias:
+1 ͣ.-La multa será de ¢ 2,000-00 para el introductor de sustancias explosivas ó de armas y municiones de guerra; de ¢ 1,500-00 para el de alcohol, y de ¢1,000-00 para el de alguna de las otras especies enumeradas en el artículo 9° del Código Fiscal.
+2 ͣ -El empleado que de algún modo favoreciere la importación, será condenado á una multa de ¢ 1,000-00, sin perjuicio de la pena corporal ‚ inhabilitaciones consignadas en el artículo 6° de la citada ley.

@@ -1,0 +1,10 @@
+Artículo 7°.-Modifícanse los artículos 721 y 722 del Código Fiscal, en los términos siguientes:
+Artículo 721.-La ley tiene por responsables del delito de contrabando:
+1°.-Al dueño ó poseedor del aparato destilatorio ó de las especies aprehendidas, y en su defecto al jefe de la casa ó patio donde se encuentren.
+2°.-En el tráfico de artículos monopolizados de ilícita procedencia ¢ de comercio prohibido, al vendedor ó negociante, aunque sólo intervenga en la operación como mandatario ó comisionista.
+3°.-En la extracción artificiosa de la Aduana, de bultos que contengan objetos de ilícito comercio, al dueño de ellos, y faltando prueba de quién sea, al que firmare el pedimento de desalmacenaje.
+4°.-En la simulación que se cometiere en la importación ó exportación de mercaderías con el fin de sustraerse en todo ó en parte al pago del impuesto respectivo, al importador ó exportador.
+5°.-En la conducción ilegal de mercaderías, al conductor.
+6°.-En la adulteración de productos estancados y en su venta en medidas falsas ó á precios distintos de los de tarifa, al que apareciere ser dueño del establecimiento según el registro de patentes, y si ocurriere estar extendida la autorización á favor de persona distinta del propietario del puesto de expendio, á uno y otro conjuntamente.
+Artículo 722.-El hecho de la posesión por cualquier título ó la mera detentación de un campo donde se encuentren aparatos ó útiles destinados á la elaboración de licores-conforme á las previsiones de los artículos 469 y 470 de este Código, -ó en que fuere aprehendida alguna cantidad de especies fiscales de ilícita procedencia ó de comercio prohibido, indiciará eficazmente al poseedor ó detentador para decretar el auto de enjuiciamiento; pero no podrá ser detenido preventivamente ni condenado, sin que se haga prueba efectiva de su responsabilidad, ó sin que á falta de eso, se demuestre que el hecho pasaba con su tolerancia.
+Aunque no pueda averiguarse quien sea el autor del delito, los aparatos, útiles ó especies serán decomisados.

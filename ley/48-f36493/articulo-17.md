@@ -1,0 +1,1 @@
+Artículo 17.-Excepto para el Ministerio Público, la sumaria de causas contra la Hacienda Pública es secreta y en ella no caben recursos de ninguna especie, ni otras diligencias que las necesarias para establecer el cuerpo del delito y averiguar á quien deba él atribuirse para los efectos del enjuiciamiento.

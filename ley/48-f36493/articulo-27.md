@@ -1,0 +1,2 @@
+Artículo 27.-No habrá lugar a ninguna solicitud de ratificación de testigos de la sumaria si el auto motivado de prisión no hubiere sido apelado por alguna de las partes, y de haberlo sido sólo tendrá derecho á pedirla la parte que hubiere ocurrido en grado.
+Esta disposición no restringe la facultad de los Jueces para decretar cualesquiera averiguaciones tendientes al esclarecimiento de los hechos.

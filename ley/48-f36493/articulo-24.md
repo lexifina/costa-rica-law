@@ -1,0 +1,1 @@
+Artículo 24.-Cuando lo aprehendido fueren útiles de fabricación ó alambiques armados ó especies secas, el depósito de ellos se hará en la Fábrica Nacional de Licores; en los almacenes militares si consistiere en explosivos, armas ú otros elementos de guerra, y en la Aduana si consistiere en otros artículos.
