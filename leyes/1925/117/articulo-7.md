@@ -1,0 +1,1 @@
+Artículo 7°-El Departamento de Agricultura proporcionará a precio de costo, los aparatos y materiales necesarios para la destrucción de los hormigueros y asimismo los pondrá a disposición de las autoridades de policía para el cumplimiento de los artículos anteriores, debiendo ser reintegrado el valor de los materiales gastados, en cuanto tal valor sea pagado por los propietarios.
