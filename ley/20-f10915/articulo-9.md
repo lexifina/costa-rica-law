@@ -1,0 +1,2 @@
+Art 9° Quedan derogados los artículos 5° y 6° de la ley de 4 de marzo del corriente año sobre reformas judiciales; y la tramitación de los recursos a que se refiere el artículo 5° citado, se arreglará a las leyes anteriores a dichas disposición. También que de la deroga todas las leyes que sean contrarias a este decreto.
+Comuníquese y publíquese en la Gaceta Oficial, dado en el Palacio Nacional, San José a dieciocho de mayo de mil ochocientos setenta.

@@ -1,0 +1,1 @@
+Art 6° La Procuraduría de reos será desempeñada por dos pasantes de la clase de Derecho designados para el servicio de un año, por la Corte Suprema de justicia en Sala plena, cuyo cargado es oneroso para los designados.
