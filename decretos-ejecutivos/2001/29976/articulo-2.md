@@ -1,0 +1,5 @@
+Artículo 2º—Adiciónase el artículo 55 al Decreto Ejecutivo Nº 21896-MEP del 25 de enero de 1993, sobre la Organización Administrativa de las Oficinas Centrales del Ministerio de Educación Pública, reformado por el Decreto Ejecutivo Nº 23489-MEP del 11 de julio de 1994, y córrase su numeración a partir de este artículo; el que se leerá como sigue:
+a) Velar por la oportuna y adecuada ejecución de las políticas y determinaciones que adopte el Consejo Superior de Educación en materia de educación integral de la sexualidad humana.
+b) Impulsar lineamientos, acciones, estrategias, materiales didácticos y procesos educativos que fomenten la educación integral de la sexualidad humana en la población estudiantil de todos los niveles, ciclos y modalidades con la mediación pedagógica de los docentes.
+c) Generar estrategias para la capacitación del personal docente y la búsqueda de recursos adecuados para la implementación de dicha capacitación.
+d) Elaborar estrategias y acciones que permitan la evaluación de los procesos técnicos en la educación de la sexualidad y desarrollar estrategias innovadoras, que puedan ser implementadas en los diferentes centros educativos.
