@@ -1,0 +1,1 @@
+Artículo 7°.-En cualquiera otro caso de los que quedan especificados en los dos artículos anteriores, los impresores no ser responsables, más que al dueño o Director de la Imprenta por los delitos que, con abuso de ella, se cometan.

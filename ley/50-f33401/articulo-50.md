@@ -1,0 +1,1 @@
+Artículo 50.-Los impresos comprendidos en el artículo 39, solo podrán ser acusados por las personas ofendidas o perjudicadas, y en su ausencia o incapacidad de ejercitar la acción, por el consorte o sus parientes consanguíneos dentro del tercer grado inclusive, o a fines dentro del segundo grado.

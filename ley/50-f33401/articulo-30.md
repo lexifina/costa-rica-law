@@ -1,0 +1,1 @@
+Artículo 30.-Delinque contra el orden público: el que publica máximas o doctrinas encaminadas manifiestamente a turbar la tranquilidad pública: el que provoque la desobediencia a las leyes o a la autoridad legítima, y el que publica noticias falsas con relación a los negocios públicos.

@@ -1,0 +1,1 @@
+Articulo 45.-Siempre que por publicarse un escrito que el Jurado califique de abusivo, se cometa otro delito, el responsable quedar sujeto a las penas que conforme a las leyes comunes merezca por este, sin perjuicio de la que se le imponga por el abuso de la prensa.

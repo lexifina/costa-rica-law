@@ -1,0 +1,1 @@
+Artículo 32.-Delinque contra la moral pública: el que publique escritos obscenos, o que contengan hechos o principios que ofendan directamente las buenas costumbres, y el que provoque a cometer hechos que la decencia y la moral repugnan.

@@ -1,0 +1,1 @@
+Artículo 9°. -El que vendiere, circulase expendiese algún ejemplar de libro, folleto, periódico, hoja suelta cualquiera otro impreso, después de publicada la orden en que se mande suspender su circulación, incurrir en la multa de veinticinco a cien pesos, y en caso de insolvencia sufrir un arresto de uno a diez meses.
