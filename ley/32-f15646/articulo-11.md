@@ -1,0 +1,1 @@
+Art. 11. –Los honorarios que pueden cobrar los tasadores, son los siguientes: cincuenta centavos, si el valor de lo tasado no excede de diez pesos: un peso si no pasa de veinticinco pesos; y dos pesos veinticinco centavos, de esa suma en adelante. Mas si el expediente fuese muy voluminoso, y contuviere más de cuarenta fojas, cobrarán además dos centavos por cada foja útil.

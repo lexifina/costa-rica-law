@@ -1,0 +1,1 @@
+Art. 7°-El Juez acreedor remitirá el expediente original, a la autoridad que debe conocer del cobro para que ésta certifique en papel de oficio, la tasación de costas, la diligencia de notificación, y el resultado del recurso, si lo hubiere, debiendo servir ese documento como cabeza de la cobranza ejecutiva.

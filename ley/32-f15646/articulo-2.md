@@ -1,0 +1,1 @@
+Art. 2°-Cuando alguno de los interesados encontrare motivo para objetar una tasación de costas, puede usar contra ella el recurso de revisión para ante la Suprema Corte de Justicia. La revisión se hará por uno de los Magistrados de 3a instancia por turno, quien oyendo á los interesados y al Juez, resolverá en la siguiente audiencia, aprobando, modificando ó revocando la tasación.
