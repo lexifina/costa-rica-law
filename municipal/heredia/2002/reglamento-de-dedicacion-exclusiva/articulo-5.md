@@ -1,0 +1,2 @@
+Artículo 5º—Corresponde al Alcalde Municipal como máximo jerarca de la Institución, determinar la clase de puestos desempeñados por profesionales que reúnan los requisitos contenidos en este reglamento que pueden acogerse en forma voluntaria al régimen de Dedicación Exclusiva caso ante el cual conocerá las solicitudes que le planten los profesionales de la Municipalidad de Heredia y se procederá a la firma del respectivo contrato.
+Para tales efectos el Alcalde Municipal podría solicitar los servicios de la Oficina de Recursos Humanos.
