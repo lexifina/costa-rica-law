@@ -1,0 +1,5 @@
+DECRETOIII.
+Declara la elección de Presidente y Fiscal de la Suprema Corte de Justicia.
+“El Senador encargado del Supremo Poder Ejecutivo del Estado Libre de Costa Rica. Por cuanto la Cámara de Representantes ha decretado lo siguiente.
+La Cámara de Representantes del Estado libre de Costa Rica: en cumplimiento del art. 147 de la Constitución, y estando electos legítima y constitucionalmente los Magistrados de la Suprema Corte de Justicia, ha venido en decretar y decreta.
+Art. único. –Se ha por Presidente de la Suprema Corte de Justicia al Señor Magistrado Santos Velasquez; y por Fiscal de la misma, al Sr. Joaquin Bernardo Calvo. Comuníquese al Poder Ejecutivo para que se imprima, circule, publíque y cumpla. –Dado en la ciudad de San José a los diez días del mes de enero de mil ochocientos cuarenta y cinco. –Rafael Ramírez, Representante Presidente. –José María Castro, Representante primer Secretario. –Juan Bautista Bonilla, Representante segundo Secretario. –Por tanto: EJECUTESE. San José, enero once de mil ochocientos cuarenta y cinco –Rafael Moya. –Al Ministro de gobernación y relaciones.”
