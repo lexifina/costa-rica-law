@@ -1,0 +1,1 @@
+Artículo 6º—El SINAES aplicará un sistema uniforme y normalizado de conceptos, definiciones, clasificaciones, atributos, criterios, nomenclatura y códigos que posibiliten la comparación, la integración y el análisis de los datos y resultados obtenidos mediante una base de datos. Para ello, el Consejo Nacional de Acreditación emitirá el reglamento correspondiente.
