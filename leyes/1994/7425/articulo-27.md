@@ -1,0 +1,3 @@
+ARTÍCULO 27.- Contenido de las actas.
+Las actas que deban levantarse al aplicar las medidas previstas en esta Ley, deben contener la fecha, la hora y el lugar de la diligencia; el nombre y los apellidos de las personas que actúan y el cargo que ostentan, así como la indicación de las diligencias realizadas, sin perjuicio de otra circunstancia que amerite incluirse.
+Las actas deben ir firmadas por el Juez y por el Secretario respectivo o, en su caso, por el Juez y dos testigos de la actuación. En los casos de excepción en que el Juez no haya realizado personalmente la diligencia, deberá firmar el acta la persona delegada, siempre con el Secretario o los dos testigos de actuación.
