@@ -1,0 +1,3 @@
+Artículo 8º.-Contestadas negativamente la demanda y la reconvención, y resueltas por el alcalde las excepciones de forma y las cuestiones incidentales que se hubieren incoado, dicho funcionario convocará al tribunal y señalará día y hora para la audiencia oral y pública.
+El tribunal estará integrado por un juez y un alcalde de trabajo de San José, escogidos por turno, y por el propio alcalde que ha tramitado el proceso. El juez tendrá las funciones de presidente del tribunal.
+Tanto el juez como el alcalde escogido, pueden ser recusados por las partes dentro del término de veinticuatro horas, contado a partir de la notificación de la resolución en que se integra el tribunal.
