@@ -1,0 +1,1 @@
+Artículo II.- Autorizase al Poder Ejecutivo para invertir en la acuñación de la nueva moneda de oro, y del excedente de las Rentas Públicas, una vez satisfechos los gastos ordinarios de la Administración, la cantidad que estime necesario, además de la convenida en le contrato de que se ha hecho mérito.
