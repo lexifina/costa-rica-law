@@ -6,3 +6,4 @@ artículo 1 de la Ley No.7375 del 17 de diciembre de 1993, en la forma
 que se indica a continuación:
 (Por lo extenso de su contenido, véase el Alcance No.30 a
 La Gaceta No.217 del 15 de noviembre de 1994)
+(Así reformado por el artículo 10 inciso 31 de La Ley N° 8424 del 30 de setiembre del 2004)

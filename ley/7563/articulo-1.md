@@ -6,3 +6,4 @@ Ejercicio Económico de 1996.
 (...)
 (Por lo extenso de su artículado, véase el Alcance No.60 a La Gaceta
 No.244 del 26 de diciembre de 1995)
+(Así reformado por el artículo 10 incisos 21 y 23 de La Ley N° 8424 del 30 de setiembre del 2004)
