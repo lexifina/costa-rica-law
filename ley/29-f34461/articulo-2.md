@@ -1,0 +1,2 @@
+Art. 2°. -Señálanse las doce del día de mañana para recibir al nombrado el juramento prevenido por la ley.
+AL PODER EJECUTIVO. Dado en el Salón de Sesiones -Palacio Nacional. -San José, á veintisiete de julio de mil ochocientos ochenta y uno. -BRUNO CARRANZA, Presidente, -JESÚS SOLAÑO, Secretario. Por tanto, publíquese. -Palacio Presidencial. -San José, á veintisiete de julio de mil ochocientos ochenta y uno. SALVADOR LARA,-El Secretario de Estado en el Despacho de Justicia-MANUEL ARGÜELLO.
