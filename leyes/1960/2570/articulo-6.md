@@ -1,0 +1,1 @@
+Artículo 6°-Cuando la Municipalidad admita en la licitación plazo para el pago del precio, el servicio de la deuda se hará trimestralmente dentro de un plazo no mayor de diez años, y la satisfacción oportuna de la deuda se garantizará con hipoteca de primer grado sobre el lote de que se trata.
