@@ -1,0 +1,1 @@
+Artículo 97.- No podrá servir su cargo en los organismos electorales el que se presente armado o en estado de embriaguez notoria al local donde funciona el respectivo organismo. Inmediatamente después de desaparecido el impedimento, entrara a servirlo sin obstáculo alguno.

@@ -1,0 +1,4 @@
+Artículo 226.- Serán considerados reos de prevaricato y sancionados con la pena de prisión establecida en el artículo 388 del Código Penal:
+a)Los miembros de los organismos electorales y los de aquellos llamados a colaborar con los primeros, así como los jueces y funcionarios o empleados que en las actividades de carácter electoral que les son propias, se conduzcan con malicia o con interés personal o político, realizando actos o dictando resoluciones evidentemente parciales o injustas
+b) Las autoridades, funcionarios y empleados de cualquier categoría que contra las disposiciones de este código, impidan cualquiera de los actos de propaganda admitidos en los artículos 126 a 135, o que, directa o indirectamente, tergiversen con parcialidad su contenido.
+c) El Director del Registro Electoral que incluya más de una vez a un elector en el Padrón Nacional; que el excluya o lo traslade sin motivo justo, o que en el incluya a quien no debe ser incluido.

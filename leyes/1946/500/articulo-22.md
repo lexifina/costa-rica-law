@@ -1,0 +1,1 @@
+Articulo 22.-Todo documento comprobatorio de hechos que den origen a un asiento o nota marginal, permanecerá en el Archivo del Registro y llevara el número correspondiente. En el asiento se indicara el número de cada documento.

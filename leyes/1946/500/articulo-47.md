@@ -1,0 +1,2 @@
+Artículo 47.- Abiertos los paquetes se constatará si esta complete la documentación y los materiales electorales, levantándose al efecto un acta que firmaran los miembros presentes de la Junta y los fiscales de los partidos que hubieren asistido.
+Telegráficamente comunicará la junta al Registro Electoral, sin pérdida de tiempo, el material o documentos que no se hubieren recibido a efectos de que se llene la omisión. Si hubiere resultado complete el envío lo comunicara en igual forma.

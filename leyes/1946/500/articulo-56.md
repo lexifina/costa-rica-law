@@ -1,0 +1,2 @@
+Artículo 56.- Recibido el expediente el juez deberá resolver, sin otro tramite, dentro del término de tres días, aun cuando ordene recibir o practicar alguna prueba para mayor proveer, bajo pena de incurrir en la sanción señalada en el artículo 53.
+La resolución del juez no se notificara a las partes; e inmediatamente después de firmada se devolverá al Registro, dejando copia literal de lo resuelto para el archive.

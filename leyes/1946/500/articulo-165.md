@@ -1,0 +1,1 @@
+Articulo 165.-Al votante que inutilizare una papeleta sin malicia evidente, el Presidente de la Junta le suministrara una segunda; pero en ningún caso le será suministrada una tercera, ni se renovaran las inutilizadas cuando se haya agotado el diez por ciento excedente enviado con ese fin.

@@ -1,0 +1,1 @@
+Artículo 137.- Los Fiscales presenciaran las sesiones sin estorbar el trabajo de dichos organismos. Se les proporcionara todas las facilidades necesarias al buen cumplimento de su función, pero no se les será permitido inmiscuirse en el trabajo ni participar en las deliberaciones.

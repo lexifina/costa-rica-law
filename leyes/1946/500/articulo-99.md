@@ -1,0 +1,1 @@
+Artículo 99.-La asistencia a las sesiones de los organismos electorales es obligatoria: el que fuere remiso, será conducido por la fuerza pública a petición de cualquiera de sus compañeros, a llenar sus funciones.

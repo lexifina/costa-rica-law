@@ -1,0 +1,1 @@
+Artículo 158.-Los miembros de las Juntas Receptoras tienen la obligación de presentarse al local designado para la votación, el día de las elecciones, a las cinco horas, con el objeto de que la votación pueda iniciarse a las seis horas.

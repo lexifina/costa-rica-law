@@ -1,0 +1,1 @@
+Artículo 128.- La autoridad a petición de interesados, retirara a toda persona o grupo que intente perturbar la reunión que celebre un Partido, hasta una distancia de doscientos metros; y hará cerrar, durante la reunión, los clubes de partidos contrarios y que se encuentren dentro de la distancia dicha, a fin de evitar provocaciones y disturbios públicos.

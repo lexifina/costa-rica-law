@@ -1,0 +1,1 @@
+Artículo 132.- El artículo anterior rige también para las imprentas de servicios públicos y periódicos que no sean órganos oficiales de un partido político determinado en cuanto les es aplicable por la naturaleza diferente de sus servicios.

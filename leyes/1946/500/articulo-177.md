@@ -1,0 +1,1 @@
+Articulo 177.- Al día siguiente, segundo posterior al de la votación, las Juntas Provinciales harán entrega de las valijas nacionales recibidas por ellas al tribunal nacional electoral con la formalidad dicha en el citado inciso o).

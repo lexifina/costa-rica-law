@@ -1,0 +1,2 @@
+Artículo 231.- el elector que sin justa causa, omitiere votar en cualquier elección, será sancionado con multa de ₵10.00 a favor de los fondos de educación del distrito en donde debió emitirse el voto, o su equivalente arresto en la proporción legal.
+La acción penal, como la pena en este caso, prescribe al celebrarse, la elección inmediata siguiente; y la reincidencia no se tomara en cuenta para ningún efecto.

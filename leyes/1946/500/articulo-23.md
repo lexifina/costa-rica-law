@@ -1,0 +1,1 @@
+Artículo 23.- Unos de los libros a los que se refiere el artículo 15, se destinara a la inscripción de los Partidos que, conforme a esta ley, pueden participar en las elecciones. Se denominará Registro de Partidos Políticos.

@@ -1,0 +1,1 @@
+Artículo 138.- El Presidente del Comité Ejecutivo de la asamblea de Cantón de cada partido hará el nombramiento de un fiscal propietario y su respectivo suplente para cada Junta Receptora de Votos del respectivo cantón.

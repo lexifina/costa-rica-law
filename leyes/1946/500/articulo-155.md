@@ -1,0 +1,1 @@
+Artículo 155.- Por ningún motivo se interrumpirá la votación ni se cambiara de local, ni se extraerán las papeletas depositas en la urna, ni se retirara de la mesa el material que ha de servir para la votación, durante el lapso a que se refiere el artículo 148.

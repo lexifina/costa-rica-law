@@ -1,0 +1,3 @@
+Articulo 18.- Los asientos de inscripción se extenderán sucesivamente y bajo numeración corrida.
+En cada uno se consignaran la cedula de identidad, todos los nombres de Registro o de pila y el nombre usual del ciudadano; sus apellidos; fecha y lugar de nacimiento; los nombres y apellidos de su padre y de su madre; si sabe leer y escribir; y su estado civil, si es casado, viudo o divorciado cuando se trate de un menor de veinte años.
+Se expresará también si el lector es costarricense por nacimiento o por naturalización; y en caso de ser naturalizado, la anterior nacionalidad y la fecha en que se produjo la Naturalización, así como el decreto, resolución o acto que le haya producido, con todos los datos necesarios para evitar error o confusión.

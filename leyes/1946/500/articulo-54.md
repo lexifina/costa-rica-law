@@ -1,0 +1,1 @@
+Artículo 54.- De toda resolución del Registro Electoral se podrá apelar para ante uno de los jueces civiles de San José dentro del término de cuarenta y ocho horas posteriores a la notificación que se haga mediante publicación.

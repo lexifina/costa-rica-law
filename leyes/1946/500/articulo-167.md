@@ -1,0 +1,1 @@
+Articulo 167.- Cuando un su fragante, después de haber, después de haber votado, mostrare su papeleta haciendo publico el voto, el presidente de la Junta le decomisara las papeletas y las apartara con la razón correspondiente, impidiéndoles depositarlas en la urna electoral.

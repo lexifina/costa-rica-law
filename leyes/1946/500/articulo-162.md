@@ -1,0 +1,2 @@
+Articulo 162.- El elector pasara al local secreto y marcara cada una de las papeletas con la impresión digital del pulgar de su mano derecho en la columna de candidatos del partido de su simpatía.
+Practicado esta operación el volante doblara separadamente cada papeleta en cuatro tantos de modo que las firmas de los miembros de la Junta queden visibles; tornando de Nuevo a presencia de la Junta, mostrara en estas las firmas introducirá inmediatamente ambas papeletas en la urna electoral.
