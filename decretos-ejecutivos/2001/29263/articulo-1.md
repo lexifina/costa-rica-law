@@ -1,0 +1,13 @@
+Nº 29263-H-MEIC
+LA PRIMERA VICEPRESIDENTA
+EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
+Y LOS MINISTROS DE ECONOMÍA, INDUSTRIA
+Y COMERCIO Y DE HACIENDA
+De conformidad con las atribuciones que les conceden los incisos 3 y 18 del artículo 140 de la Constitución Política, el artículo 28, 2b) de la Ley General de la Administración Pública Nº 6227 de 2 de mayo de 1978, y sus reformas, artículo 12 de la Ley 4961 de 10 de marzo de 1972, reformado por el artículo 5 de la Ley Nº 6820, de 10 de noviembre de 1982 y el artículo 26 del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano, Ley Nº 6986 de 3 de mayo de 1985.
+Considerando:
+1. Que el artículo 19 del Decreto Ejecutivo Nº 27464-H-MEIC del 30 de noviembre de 1998, condiciona la vigencia de lo dispuesto en los Capítulos II y III, a la aplicación íntegra de lo regulado en el capítulo I del citado Decreto, de lo contrario se aplicarían las disposiciones y tarifas vigentes antes de la publicación del mismo.
+2. Que el artículo 12 de la Ley Nº 4961, de 10 de marzo de 1972, reformado por el artículo 5 de la Ley Nº 6820, de 10 de noviembre de 1982, "Reformas a la Ley de Consolidación de Impuestos Selectivos de Consumo a que se refiere el título II de la Ley Nº 4961, de 10 de marzo de 1972", faculta al Ministerio de Hacienda, reducir o restituir total o parcialmente las tarifas ad valórem.
+3. Que la aprobación tanto de la Ley Nº 7984, publicada en el Alcance Nº 12 a La Gaceta Nº 36 del 21 de febrero de 2000, que aprueba el Protocolo que deroga el Convenio Legislación Centroamericana sobre el Valor Aduanero de las Mercancías, Anexo B del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano; como la ley Nº 8013 publicada, en el Alcance Nº 57-A a La Gaceta Nº 170 del 05 de setiembre de 2000, ambas inciden en la aplicación integra del capítulo I, del Decreto Nº 27464-H-MEIC, referente a la valoración de vehículos usados y nuevos.
+4. Que en virtud de lo dispuesto en el considerando anterior se deben restablecer las tarifas de los Derechos Arancelarios e Impuesto Selectivo de Consumo, vigentes antes de la publicación del decreto de previa cita. Sin embargo, el poder ejecutivo en uso de sus facultades considera conveniente mantener los Derechos Arancelarios a las Importaciones y las tarifas del Impuesto Selectivo de Consumo contemplados en el Decreto Nº 27464-H-MEIC, con la finalidad de mantener el esquema integral de racionalización de la carga tributaria a los vehículos. Por tanto,
+DECRETAN:
+Artículo 1º—Deróguese el Capítulo I y el artículo 19 del Decreto Nº 27464-H-MEIC del 30 de noviembre de 1998. Los capítulos II y III y el artículo 18 del citado decreto se mantienen vigentes.
