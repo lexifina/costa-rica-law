@@ -1,0 +1,3 @@
+ANEXO
+LÍMITES DE CONTRATACIÓN ADMINISTRATIVA PROPUESTO PARA EL AÑO 2004
+NOTA: Ver tabla de límites en Gaceta No. 43 de 02 de marzo de 2004, pág. 26).
