@@ -20,3 +20,4 @@ Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricense de Se
 | 5 | 1997-01-21 | Reglamento 7096 (1997-01-21) |
 | 6 | 1997-08-05 | SINALEVI (sin norma nombrada) |
 | 7 | 1997-09-23 | SINALEVI (sin norma nombrada) |
+| 8 | 1998-08-27 | SINALEVI (sin norma nombrada) |
