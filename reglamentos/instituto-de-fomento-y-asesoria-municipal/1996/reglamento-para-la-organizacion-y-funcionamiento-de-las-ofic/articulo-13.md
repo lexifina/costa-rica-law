@@ -1,0 +1,1 @@
+Artículo 13.-Para los efectos de la aplicación del Capítulo XX (Régimen Disciplinario) del Reglamento Autónomo de Organización y Servicio del IFAM, el funcionario a cargo de la Oficina Regional coordinará lo pertinente con la Dirección de Desarrollo Municipal del IFAM.

@@ -1,0 +1,1 @@
+Artículo 14.-De preferencia los funcionarios de las Oficinas Regionales que se contraten, deberán ser residentes de la zona donde se ubique la Oficina Regional, en cuyo caso no procede el pago de zonaje.

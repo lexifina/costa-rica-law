@@ -1,0 +1,1 @@
+Artículo 15.-Cuando en este Reglamento no haya norma expresa para resolver un determinado asunto, complementariamente se aplicará en el caso concreto o situación genérica la demás reglamentación interna vigente en el Instituto, en la forma que mejor garantice la realización del fin público.
