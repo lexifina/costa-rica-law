@@ -1,1 +1,2 @@
-Artículo 51.- Los empleados de confianza tienen derecho a participar en los concursos externos que se hagan para llenar las vacantes que dejen los empleados regulares; y sus años de servicio, así como su experiencia, serán tomados en cuenta, conforme a los dispuesto en la presente ley.
+Artículo 51.-Los empleados de confianza, con más de doce meses de laborar en la Asamblea Legislativa, tienen derecho a participar en los concursos internos que se efectúen para llenar vacantes que dejen los empleados regulares; sus años de servicio, así como su experiencia, serán tomados en cuenta conforme lo dispuesto en la presente ley.
+(Así reformado por el artículo 9° aparte 95 de la Ley de Presupuesto para el año 1982, N° 6700 del 23 de diciembre de 1981)
