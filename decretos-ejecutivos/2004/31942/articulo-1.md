@@ -1,0 +1,14 @@
+Nº 31942*
+*NOTA DE SINALEVI: en la publicación de este decreto, se consigna como No. 39142, sin embargo, por la numeración que se lleva a la fecha de los decretos y por la anotación que se realiza al pie del mismo entre paréntesis, donde se acostumbra indicar el N° del decreto, se deduce que la numeración correcta es 31192.
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En ejercicio de las competencias establecidas en los artículos 140, incisos 8) y 18), y 146 de la Constitución Política, y los artículos 25 inciso 1°, 27 inciso 1°, y 28 inciso 2 acápite b) de la Ley 6227 o Ley General de Administración Pública del 2 de mayo de 1978, la Ley N° 4755, o Código de Normas y Procedimientos Tributarios del 3 de mayo de 1971 y sus reformas, y el Decreto Ejecutivo N° 29264-H del 24 de enero del 2001, “Reglamento General de Gestión, Fiscalización y Recaudación Tributaria”.
+Considerando:
+1°—Que el Código de Normas y Procedimientos Tributarios Ley N° 4755 del 3 de mayo de 1971 y sus reformas para su mejor aplicación requiere de normas reglamentarias que precisen y desarrollen el sentido de sus disposiciones.
+2°—Que el artículo 126 del Código de Normas y Procedimientos Tributarios y el artículo 44 del Reglamento de Gestión, Fiscalización y Recaudación Tributaria publicado en La Gaceta N° 27 del 7 de febrero del 2001, establecen el procedimiento de liquidación previa.
+3°—Que para un eficiente y eficaz cumplimiento del procedimiento de liquidaciones previas establecido en el artículo 46 del citado Reglamento, se hace necesario regular ciertos aspectos relacionados con la presentación de declaraciones rectificativas por parte de los contribuyentes, con las cuales pretenden eliminar el efecto de la comprobación abreviada en estudio. Por tanto,
+DECRETAN:
+Artículo 1º—Agrégase un párrafo final al artículo 46 del Reglamento General de Gestión, Fiscalización y Recaudación Tributaria, Decreto Nº 29264-H de 24 de enero del 2001 publicado en La Gaceta N° 27 del 7 de febrero del 2001, y sus reformas, para que en lo sucesivo se lea así:
+“Artículo 46: Iniciación del procedimiento.
+(…)
+No obstante lo que establece el artículo 44 del Reglamento General de Gestión, Fiscalización y Recaudación Tributaria, cuando en el procedimiento de comprobación abreviada, el contribuyente pretenda eliminar el efecto de la comprobación, sea cuando mediante una declaración rectificativa, aumente el rubro de deducciones (costos y gastos), el funcionario encargado de la comprobación abreviada, podrá solicitar que se le aporten los registros y justificantes necesarios para verificar dicho aumento. Emitido el acto que corresponda, los hechos y elementos de prueba o justificantes tomados en cuenta en la comprobación, tendrán los efectos que establece el artículo 126 del Código de Normas y Procedimientos Tributarios.”
