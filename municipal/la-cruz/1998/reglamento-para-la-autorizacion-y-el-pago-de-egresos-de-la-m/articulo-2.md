@@ -1,0 +1,1 @@
+Artículo N° 2°—Autorícese al Alcalde Municipal, girar sin que medie acuerdo del Concejo Municipal, todos los gastos fijos de la Municipalidad y la adquisición de bienes y servicios, hasta el 0.43% del presupuesto anual.
