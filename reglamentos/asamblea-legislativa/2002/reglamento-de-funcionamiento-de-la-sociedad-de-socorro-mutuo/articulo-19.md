@@ -1,0 +1,1 @@
+Artículo 19.—El quórum de la asamblea general lo constituyen dos tercios de los mutualistas. Si en la primera convocatoria no se alcanzara ese número, se convocará a una nueva reunión una hora después de la fecha y hora convenida para esa primera convocatoria, la cual se reunirá válidamente con los mutualistas presentes.

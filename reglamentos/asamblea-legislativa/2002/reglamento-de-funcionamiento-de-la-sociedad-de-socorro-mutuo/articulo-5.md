@@ -1,0 +1,1 @@
+Artículo 5º—El mutualista que dejare de ser empleado de la Asamblea Legislativa perderá su condición de tal, sin derecho a reclamación alguna por las cuotas pagadas, excepto que haya manifestado por escrito su deseo de seguir perteneciendo ala Sociedad.

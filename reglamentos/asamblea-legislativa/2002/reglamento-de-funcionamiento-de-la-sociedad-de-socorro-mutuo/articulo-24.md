@@ -1,0 +1,1 @@
+Artículo 24.—La junta directiva se reunirá ordinariamente al menos una vez al mes; y extraordinariamente cuando sea necesario, a juicio del presidente, o a solicitud de cuando menos el 25% de los mutualistas.

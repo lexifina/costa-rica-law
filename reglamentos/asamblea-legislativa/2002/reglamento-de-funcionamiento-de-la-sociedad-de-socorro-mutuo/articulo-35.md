@@ -1,0 +1,1 @@
+Artículo 35.—Queda autorizada la Sociedad para adquirir o solicitar ante las juntas administrativas de los cementerios nacionales, el traspaso gratuito o por donación, de un mausoleo para sus afiliados.

@@ -1,0 +1,1 @@
+Artículo 10.—En casos muy urgentes, comprobado el fallecimiento de un mutualista o de alguno de los beneficiarios debidamente registrados y comprobado el derecho correspondiente, el Presidente y el Tesorero podrán girar hasta el cincuenta por ciento (50%) de la suma que corresponda.

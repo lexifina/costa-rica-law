@@ -1,0 +1,1 @@
+Artículo 25.—Si posterior a su nombramiento, un miembro directivo perdiere su condición de mutualista, o renunciare al cargo, éste será llenado ascendiendo automáticamente al candidato que obtuvo mayor número de votos luego del último que resultó electo. El mismo procedimiento se seguirá cuando un directivo se ausente de su cargo por más de dos meses.

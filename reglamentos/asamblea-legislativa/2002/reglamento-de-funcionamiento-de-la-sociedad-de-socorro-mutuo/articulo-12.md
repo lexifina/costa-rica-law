@@ -1,0 +1,1 @@
+Artículo 12.—Ocurrido el deceso del asociado directo, la Sociedad estará obligada a notificar por escrito a los causahabientes el derecho correspondiente. El término para solicitar los beneficios que otorga la Sociedad prescribe tres meses después de haber ocurrido el respectivo fallecimiento.

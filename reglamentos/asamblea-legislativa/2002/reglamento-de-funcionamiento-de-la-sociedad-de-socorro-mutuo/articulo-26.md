@@ -1,0 +1,1 @@
+Artículo 26.—Los miembros de la junta directiva desempeñarán sus cargos en forma ad honórem. Para efectos de responsabilidad civil o penal, se entenderá que en todo lo relacionado con la Sociedad actúan como servidores públicos.

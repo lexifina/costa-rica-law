@@ -1,0 +1,1 @@
+Artículo 20.—Los acuerdos de la asamblea general de mutualistas serán tomados en votación pública y por simple mayoría. Cuando se trate de nombramientos para cargos de la junta directiva, la votación será secreta y directa.

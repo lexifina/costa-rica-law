@@ -1,0 +1,1 @@
+Artículo 32.—Quien pertenezca a la Sociedad podrá desafiliarse y reintegrarse cuando lo desee; sin embargo, la junta directiva podrá improbar la nueva solicitud, si a su juicio resulta inconveniente. Excepto en casos comprobados de deducción hecha a quien no hubiere solicitado su ingreso a la Sociedad, los dineros por cuotas pagadas no serán devueltos.

@@ -1,0 +1,1 @@
+Artículo 9º—Comprobado por los medios legales el fallecimiento de un mutualista o de alguno de los parientes precitados, el presidente y el tesorero, o los otros miembros de junta directiva que los representen en sus ausencias y previa solicitud al respecto, acordarán girarla suma correspondiente a favor de quien deba recibirla.
