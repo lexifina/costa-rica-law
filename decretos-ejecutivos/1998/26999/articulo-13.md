@@ -1,0 +1,1 @@
+Artículo 13.—Procedimiento para imponer sanciones. Cuando la imposición de las sanciones que sean procedentes, corresponda a la autoridad aduanera, se aplicará el procedimiento establecido por la Ley General de Aduanas y su Reglamentó, según el caso.

@@ -1,0 +1,2 @@
+Artículo 46.—El concesionario no podrá cobrar un precio distinto del .declarado ante el Puesto, excepto que se trate del descuento señalado en el artículo 39 anterior. Para reducir o incrementar su utilidad bruta, deberá comunicar los nuevos precios al Puesto.
+Si en cualquier momento el Puesto determinare un cálculo defectuoso del precio en perjuicio del comprador, levantara un acta en que se haga constar tal circunstancia para efecto de la aplicación de las sanciones conforme con la legislación vigente.

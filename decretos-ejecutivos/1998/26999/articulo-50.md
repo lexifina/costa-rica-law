@@ -1,0 +1,1 @@
+Artículo 50.—Si por cualquier motivo, no funciona de manera adecuada, total o parcialmente, el sistema de Cómputo de Control Central del Depósito, el Puesto adaptará la operación del Depósito, al "Sistema Manual", sin menoscabo del permanente control fiscal sobre las operaciones comerciales del Depósito, según los manuales de procedimientos que al efecto emita la Dirección.

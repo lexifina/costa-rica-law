@@ -1,0 +1,1 @@
+Artículo 38.—Cualquier autoridad aduanera o tributaria, de conformidad con sus facultades, podrá efectuar inventarios físicos en los locales de los concesionarios, en la hora y fecha que estimen convenientes, pudiendo cerrar el local para tal efecto.

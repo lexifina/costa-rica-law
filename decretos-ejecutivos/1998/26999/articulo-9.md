@@ -1,0 +1,9 @@
+CAPITULO III
+Atribuciones del Puesto
+Artículo 9°—Atribuciones del Puesto. Además de las facultades que la legislación aduanera otorga a las autoridades aduaneras, corresponden al Puesto las siguientes:
+a) Ejercer el control sobre el ingreso, depósito, custodia y salida de mercancías en el Depósito, una vez cumplidos los trámites y requisitos pertinentes.
+b) Administrar, dirigir y operar los equipos de cómputo del Control Central que le asigne la Junta , conforme lo disponga la Dirección.
+c) Velar porque las mercancías contenidas en las unidades de transporte que ingresan al Depósito, sean depositadas totalmente dentro de los locales, una vez cumplidos con todos los trámites de desalmacenaje.
+e) Autorizar el ingreso de muestras sin valor comercial para que sean obsequiadas a los compradores.
+f) Fijar y publicar, con 10 días .naturales de anticipación, el día y hora en que se efectuarán los remates de mercancías de difícil comercialización que le hayan solicitado los concesionarios. Dichos remates se realizarán con la frecuencia que estime oportuna la Dirección. También autorizará, dentro de un plazo no mayor a 60 días, la destrucción de las mercancías que considere sin valor comercial, en mal estado o inservibles, cuando así lo crea conveniente, se -lo soliciten los concesionarios o lo ordenen otras autoridades competentes. En cada casó emitirá las actas correspondientes y efectuará los ajustes pertinentes en los inventarios oficiales. Igualmente y mediante la suscripción de las respectivas actas, podrá aceptar la donación de las mercancías declaradas sin valor comercial por obsolescencia o por otras razones que impidan su comercialización, las que a su vez y por el mismo procedimiento podrá donar a instituciones de beneficencia domiciliadas en la Región Brunca siempre que ello no implique un riesgo de salud para los beneficiarios.
+g) Las demás que establezca la ley y el presente Reglamento.

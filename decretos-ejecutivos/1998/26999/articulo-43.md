@@ -1,0 +1,1 @@
+Artículo 43.—El concesionario, de previo a concretar la compraventa, debe consultar al Control Central todos los datos señalados en el artículo 40 anterior, solicitando a su vez al comprador, su cédula de identidad o documentos pertinentes y cualquier otro dato necesario.

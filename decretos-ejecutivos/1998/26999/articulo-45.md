@@ -1,0 +1,1 @@
+Artículo 45.—El concesionario entregará al adquirente la mercancía vendida debidamente empacada o embalada y la respectiva factura. En el bulto o envoltura se debe indicar que la mercancía que contiene ha sido comprada en el Depósito Libre Comercial de Golfito, para uso no comercial y que no se puede consumir o usar dentro del recinto del Depósito.

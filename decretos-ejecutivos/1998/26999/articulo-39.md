@@ -1,0 +1,1 @@
+Artículo 39.—La comprobación de cualquier diferencia sin justificación, entre los registros de inventario permanente y las existencias, producto del inventario físico realizado, ocasionará que la autoridad competente ejecute las acciones y sanciones previstas en la legislación vigente.

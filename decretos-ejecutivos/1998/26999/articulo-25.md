@@ -1,0 +1,1 @@
+Artículo 25.—Obligación de consignar leyenda. Todas las mercancías importadas destinadas al Depósito deberán llevar en su empaque o embalaje un sello permanente con la leyenda "Depósito Libre Comercial de Golfito". Las autoridades del país podrán decomisar las mercancías que se transporten sin tal identificación, cuando el interesado declare que tienen ese destino.

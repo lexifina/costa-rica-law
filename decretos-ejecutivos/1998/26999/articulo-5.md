@@ -1,0 +1,1 @@
+Artículo 5°—Limitaciones cuantitativas. El Poder Ejecutivo podrá establecer, por decreto, limitaciones cuantitativas en cuanto a la compraventa en el Depósito e importación con destino al mismo, de las mercancías cuyo grado de comercialización se estime que incide negativamente en el desarrollo de industrias nacionales, en la balanza de pagos o en la recaudación fiscal.
