@@ -14,3 +14,4 @@ Reglamento de Contratación de Correos de Costa Rica, S.A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-24 | la propia norma |
+| 2 | 2003-12-08 | Reglamento 461 (2003-12-08) |

@@ -6,3 +6,5 @@ b. Las personas jurídicas cuyo capital social participe alguno de los funcionar
 c. Los parientes, por consanguinidad o afinidad hasta el segundo grado inclusive, de las personas cubiertas por la prohibición.
 d. Las personas físicas o jurídicas que hayan sido contratadas por Correos, como asesoras en algunas de las etapas de cualquier clase del procedimiento de contratación.
 Se exceptúan de las prohibiciones anteriores cuando se trate de un proveedor único o exclusivo. En dicho supuesto se requerirá la emisión de una resolución motivada en la cual conste tal circunstancia, resolución que deberá ser aprobada por la Junta Directiva del Correo. En cado de que dicho proveedor tenga relación con algún miembro de la Junta Directiva, dicho miembro deberá abstenerse de conocer el asunto.
+e) En los procedimientos de contratación que promueva la empresa, todos los trabajadores de Correos de Costa Rica S. A., están inhibidos a participar como oferentes, ya sea en forma directa o indirecta.
+(Ampliado mediante Sesión Ordinaria N° 461 de 08 de diciembre de 2003, publicada en La Gaceta N° 23 de 03 de febrero de 2004.)
