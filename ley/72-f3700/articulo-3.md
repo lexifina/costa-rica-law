@@ -1,0 +1,1 @@
+Artículo 3°.-El impuesto será sobre el valor común del terreno, de las construcciones fijas y permanentes y de las plantaciones estables que en él se encuentren formando parte integrante del inmueble.

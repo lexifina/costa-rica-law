@@ -1,0 +1,2 @@
+Artículo 31.-El producto del impuesto creado aquí¡ se llevará por la Tesorería Nacional, en cuenta separada, que se denominará “Fondo Territorial de Caminos”
+De los productos netos, deducidos los gastos de recaudación del “Fondo Territorial de Caminos”, sólo la Secretaría de Fomento podrá disponer y con la aplicación exclusiva a los gastos que demande la hechura, mejora, reparación y conservación de caminos y otras vías de comunicación, de acuerdo con el Reglamento que el Poder Ejecutivo dicte.

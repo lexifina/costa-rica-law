@@ -1,0 +1,1 @@
+Artículo 8° .-Las declaraciones serán revisadas por la Administración y sujetas a rectificación, conforme al Reglamento respectivo. La rectificación se hará con intervención de la parte interesada, siendo a cargo de ésta, la obligación de prueba en caso de divergencia.

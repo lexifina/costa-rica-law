@@ -1,0 +1,1 @@
+Artículo 30.-Queda a cargo del Poder Ejecutivo la mejora y composición de los caminos públicos, así de las carreteras nacionales como de los caminos cantonales y de distrito, debiendo procederse de conformidad con el Reglamento que al efecto se dicte.

@@ -1,0 +1,1 @@
+Artículo 20.-Cada cuota trimestral constituye para los efectos de la prescripción, una deuda distinta. La deuda se prescribe por diez años. El adquirente de buena fe, de un inmueble, responde por los impuestos de los dos años anteriores a la adquisición.
