@@ -1,0 +1,10 @@
+Artículo 66.- La sustitución de garantía procederá, dentro del
+género establecido en el artículo 61, de este Reglamento en casos muy
+calificados, a juicio de la Administración, la cual fundamentalmente
+deberá asegurarse de que la nueva garantía no desmejore en relación con
+la originalmente rendida, en razón de su monto y de su confiabilidad,
+tanto como en cuanto al trámite de su ejecución.
+La sustitución de garantía de participación no podrá subsanar los
+vicios de que adolezca la originalmente presentada, frente al principio
+de igualdad de oportunidades para fines de adjudicación en relación con
+los requisitos del concurso que pudieran causar su exclusión.

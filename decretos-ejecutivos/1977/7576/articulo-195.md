@@ -1,0 +1,9 @@
+Artículo 195.- La concesión de obra pública, sea aquélla respecto a
+la cual el concesionario se compromete a construir una obra, a darle
+mantenimiento y a explotarla, cobrando normalmente a los usuarios un
+estipendio por un tiempo determinado, en vez de demandar un precio alzado
+directamente de la Administración, requiere de ley especial que la
+autorice. En el evento de que la ley respecto a trámites, que autoriza
+tal procedimiento resulte omisa y en cuanto pertinentes, se aplicarán
+supletoriamente las disposiciones del presente Reglamento, relativas a la
+licitación pública y a contratos de obra.

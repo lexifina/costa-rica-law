@@ -1,0 +1,10 @@
+Artículo 131.- Tomado el acuerdo de adjudicación o el que declara
+desierto el concurso, el mismo puede ser revocado o anulado por la
+Administración interesada por razones de oportunidad o legalidad,
+mediante resolución debidamente razonada; dicha revocatoria o anulación,
+sin embargo, sólo procederá en tanto el acuerdo se tome a más tardar tres
+días después de publicado el aviso de adjudicación en "La Gaceta", o
+antes de la publicación del acto que declara desierto el procedimiento.
+No obstante lo anterior, por razones de nulidad absoluta, podrá la
+Administración dejar sin efecto el acuerdo de adjudicación, aún antes de
+transcurrido el plazo a que se refiere el párrafo anterior.

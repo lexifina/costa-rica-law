@@ -1,0 +1,10 @@
+Artículo 72.- Cuando no hubiere otro incumplimiento que el atraso en
+la ejecución, se sancionará al contratista exclusivamente conforme a la
+cláusula penal establecida, sin que pueda, en consecuencia, imponerse
+doble sanción, sea la de la indicada cláusula y la de ejecución de la
+garantía. Sin embargo, en tal caso podrá aplicarse el importe de la
+garantía de cumplimiento y de las retenciones que se hubieren dispuesto
+conforme al artículo 65 de este Reglamento, tanto como los saldos de pago
+pendientes, para hacer efectiva la sanción determinada por la cláusula
+penal. Cualquier diferencia que quedare en descubierto podrá ser
+reclamada por las vías legales correspondientes.

@@ -1,0 +1,3 @@
+Artículo 106.- Las ofertas, inmediatamente después de recibidas en
+la oficina correspondiente serán debidamente conservadas y custodiadas y
+permanecerán cerradas hasta el momento del acto de apertura.

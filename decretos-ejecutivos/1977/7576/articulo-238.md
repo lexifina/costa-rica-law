@@ -1,0 +1,19 @@
+Artículo 238.- Cuando la interrupción de la ejecución del contrato
+se deba a disposición de la Administración fundada en el interés público
+o a fuerza mayor, se cubrirá al contratista el pago correspondiente a la
+parte ejecutada tanto como los gastos razonables que para su ejecución
+total haya efectuado hasta el momento en que se le notifique la decisión
+administrativa, o hasta que la fuerza mayor le impidió seguir cumpliendo;
+más allá de ese momento sólo se reconocerán gastos absolutamente
+ineludibles.
+El lucro cesante correspondiente a la parte no ejecutada del
+contrato podrá reconocerse, en tales casos, hasta en un 50%, si la
+interrupción fuere en interés del ente administrativo y hasta en un 20%
+si se tratare de fuerza mayor que impide la prosecución de aquél. Los
+convenios sobre el particular deberán er sometidos a estudio y aprobación
+de la Contraloría General, conforme al artículo 250.
+Sin embargo, si se tratare de muerte, interdicción o incapacidad
+física o legal del contratista en circunstancias que exijan se le
+sustituya para continuar en la ejecución, la liquidación se efectuará
+hasta el momento en que ocurrió el impedimento, estándose entonces a lo
+dispuesto en los artículos 249 y conexos de este Reglamento.

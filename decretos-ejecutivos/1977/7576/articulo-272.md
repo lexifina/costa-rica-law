@@ -1,0 +1,11 @@
+Artículo 272.- Independientemente de las penas y responsabilidades
+que conforme a la Ley y al presente Reglamento alcanzan a los
+particulares, a quien se hubiere obligado con un ente público sin que se
+hayan seguido los procedimientos o extendido las autorizaciones
+correspondientes, no podrá serle reconocida compensación pecuniaria
+alguna, salvo en casos muy calificados, en que proceda con arreglo a
+principios generales de Derecho, respecto a suministros, obras, servicios
+u otros objetos, efectivamente ejecutados y de buena fe, con evidente
+provecho para la Administración, mas en tal caso el pago no comprenderá
+el lucro; si éste fuere de difícil determinación, se rebajará a título
+del mismo un 10% del monto de la operación.

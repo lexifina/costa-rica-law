@@ -1,0 +1,8 @@
+Artículo 191.- Respecto al remate de semovientes, la Administración
+puede publicar el edicto con sólo cinco días de antelación y omitir en el
+mismo precios de base.
+Sin embargo, si las posturas recibidas no alcanzaren un nivel
+satisfactorio según los precios de mercado a la fecha del acto, a juicio
+de la presidencia, ésta podrá optar por no efectuar la venta del
+semoviente o del lote correspondiente, haciéndolo saber así con ocasión
+de la última postura.

@@ -1,0 +1,5 @@
+Artículo 293.- Las normas a que se refiere el artículo 285, emitidas
+antes de la fecha de publicación del presente Reglamento, continuarán
+vigentes, en cuanto no contravengan sus disposiciones ni las de la Ley,
+hasta por el término de seis meses, lapso dentro del cual deberá ponerse
+a derecho la situación mediante la consulta oportuna al órgano contralor.

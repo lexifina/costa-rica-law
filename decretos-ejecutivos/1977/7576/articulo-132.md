@@ -1,0 +1,6 @@
+Artículo 132.- Una vez firme al acuerdo que adjudica el concurso o
+publicado el que lo declara desierto, los oferentes no adjudicatarios
+quedan obligados al retiro dentro de los dos meses siguientes de las
+muestras que no se hubieren inutilizado en pruebas efectuadas. Las
+muestras que no fueren retiradas dentro del indicado plazo, pasarán a
+propiedad de la entidad que las tenga en custodia.

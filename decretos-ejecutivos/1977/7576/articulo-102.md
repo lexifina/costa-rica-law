@@ -1,0 +1,4 @@
+Artículo 102.- La oferta deberá presentarse por duplicado, salvo que
+el cartel exija mayor número de copias; redactada claramente, sin
+manchas, tachaduras, borrones u otros defectos que la pueden hacer de
+difícil interpretación; las correcciones deberán salvarse por nota.

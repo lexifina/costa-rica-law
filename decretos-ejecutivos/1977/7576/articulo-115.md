@@ -1,0 +1,10 @@
+Artículo 115.- De todo lo actuado se tomará nota en el libro general
+de actas del ente o, en su defecto, en un libro especial de actas
+legalizado por la Contraloría General, que para la apertura de ofertas y
+adjudicaciones ha de utilizar la Administración. Se dejará constancia
+fundamentalmente del nombre de los concursantes y del monto de las
+cotizaciones y de las observaciones que los interesados que las formulan
+pidan que consten en el acta, tanto como de anomalías graves observadas a
+través de este ligero examen, tales como la falta de garantía de una
+propuesta, la falta de firma, la falta de plazos de entrega o ejecución,
+etc.

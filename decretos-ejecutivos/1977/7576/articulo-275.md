@@ -1,0 +1,8 @@
+Artículo 275.- El servidor público que tenga como atribución o por
+encargo la custodia, recepción, manejo o pago de dineros, valores o
+bienes públicos, será responsable de cualquier pérdida, abuso, menoscabo,
+empleo o pago contrario a las normas legales, a las disposiciones
+impartidas o a los principios de buen gobierno. Las irregularidades
+graves que se comprueben al respecto, acarrearán la destitución del
+servidor involucrado sin perjuicio de lo dispuesto en el capítulo
+siguiente.

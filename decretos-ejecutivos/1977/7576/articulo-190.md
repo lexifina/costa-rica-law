@@ -1,0 +1,4 @@
+Artículo 190.- Concluido el remate, el presidente, su secretario y
+el pregonero suscribirán el acta respectiva, dando fe de los bienes
+rematados, determinados por su nombre y por su número distintivo, así
+como de las incidencias del acto.

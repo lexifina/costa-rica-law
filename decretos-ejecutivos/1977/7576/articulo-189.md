@@ -1,0 +1,5 @@
+Artículo 189.- Respecto a un lote sobre el cual no se hubiere
+recibido propuesta alguna, la presidencia puede fraccionarlo a efecto de
+sacarlo a remate en el mismo procedimiento, una vez vendidos los demás
+renglones, con precios de base proporcionales, correspondientes al
+desglose del lote.

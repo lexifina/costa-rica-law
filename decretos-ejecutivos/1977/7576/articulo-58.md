@@ -1,0 +1,4 @@
+Artículo 58.- Si la Administración omitiere indicar en el cartel el
+porcentaje correspondiente a la garantía de participación que debe
+exigir, tanto como la de cumplimiento, regirá para la primera el 1% y
+para la segunda el 5% sobre el monto de la cotización respectiva.

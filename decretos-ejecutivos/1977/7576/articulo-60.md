@@ -1,0 +1,5 @@
+Artículo 60.- Dispuesta la ejecución de la garantía de participación
+y excluido el adjudicatario del negocio por no comparecer a la
+formalización del contrato en los términos previstos, queda facultada la
+Administración para readjudicar en los casos y conforme a los trámites
+que establece el artículo 157.

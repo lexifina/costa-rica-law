@@ -1,0 +1,5 @@
+Artículo 222.- La orden de compra, provisión o venta, deberá
+contener las estipulaciones básicas de la contratación; sin embargo, en
+caso de contradicción entre aquélla y las previsiones contractuales,
+prevalecerán éstas, sin perjuicio de las aclaraciones que deberá hacer la
+Administración tan pronto lo advierta.

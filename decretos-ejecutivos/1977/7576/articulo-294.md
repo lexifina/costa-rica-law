@@ -1,0 +1,7 @@
+Artículo 294.- Sin perjuicio de los procedimientos y autorizaciones
+regulados por los artículos 25 y conexos del presente Reglamento, la
+autorización a que se refiere el artículo 39 de la Ley Orgánica del
+Ministerio de Salud será extendida exclusivamente por dicho Ministerio,
+salvo respecto a donaciones que excedan los límites del artículo 208,
+otorgamiento de garantías o condonación de impuestos, en que la
+autorización legislativa será necesaria.

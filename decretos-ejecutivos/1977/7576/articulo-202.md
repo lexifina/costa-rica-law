@@ -1,0 +1,11 @@
+Artículo 202.- Como quinta excepción a los procedimientos de
+concurso se permite la contratación directa entre entidades o personas de
+Derecho Público, sin otros límites que los determinados por su
+competencia; sin embargo, salvo lo dispuesto en el artículo 208, no se
+podrán realizar operaciones entre las mismas que signifiquen condonación
+de un 10% o más del valor de las obras, bienes muebles o servicios
+envueltos en el negocio, según el estudio económico o peritaje
+respectivos, quedando a salvo las autorizaciones legislativas en
+contrario.
+Respecto al precio de venta de bienes inmuebles entre personas de
+Derecho Público, se estará a lo dispuesto en el artículo 26.

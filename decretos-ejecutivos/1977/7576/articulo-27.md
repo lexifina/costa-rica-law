@@ -1,0 +1,4 @@
+Artículo 27.- Se exceptúa del requisito de avalúo y autorización o
+aprobación previstos en los artículos precedentes, la enajenación de
+bienes inmuebles cuando constituye actividad ordinaria del ente, de
+conformidad con lo dispuesto en el artículo 199 del presente Reglamento.

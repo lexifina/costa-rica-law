@@ -1,0 +1,6 @@
+Artículo 112.- Las ofertas, piezas o documentos conexos que no se
+hubieren depositado en la oficina respectiva hasta la hora prevista en el
+pliego como límite de tiempo para su recepción, no podrán entrar al
+concurso, careciendo de valor en cuanto impliquen, modifiquen, o dejen
+sin efecto la oferta o responsabilidad o compromisos atinentes a la
+licitación.

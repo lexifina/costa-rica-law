@@ -1,0 +1,4 @@
+Artículo 218.- Durante la época preelectoral, la Contraloría General
+queda autorizada para facilitar los procedimientos de contratación que
+requiera el Tribunal Supremo de Elecciones para el cumplimiento de sus
+funciones constitucionales a cabalidad.

@@ -1,0 +1,5 @@
+Artículo 49.- Podrá el cartel autorizar ofertas con cláusula de
+reajuste, con sujeción a una fórmula matemática determinada, a base de
+factores económicos, a fin de reconocer diferencias de precio que excedan
+el 5% de lo cotizado, respecto a contratos continuados de servicio, de
+suministros y de arrendamiento no referido a edificios.

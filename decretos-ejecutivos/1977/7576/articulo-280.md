@@ -1,0 +1,4 @@
+Artículo 280.- Los términos de vigencia de las ofertas y garantías,
+tanto como los plazos de entrega, ejecución, embarque, despacho y
+similares en cuanto dispuesto en días, se entenderán, a falta de
+calificación en los respectivos documentos, como naturales.

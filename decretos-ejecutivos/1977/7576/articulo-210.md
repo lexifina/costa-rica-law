@@ -1,0 +1,17 @@
+Artículo 210.- Las fajas de terrenos nacionales o municipales que
+existan a orillas de una vía pública y que se disponga vender, no afectas
+a un fin público ni a futuras ampliaciones de la vía, serán ofrecidas al
+propietario del inmueble colindante con ellas, por el precio del avalúo
+que al efecto realice la oficina especializada de la Dirección General de
+la Tributación Directa. Sólo en caso de que dicho propietario no
+manifieste interés por la oferta dentro del término de los treinta días
+siguientes a la notificación formal del respectivo acuerdo, se estará a
+los procedimientos de licitación o de remate, entendido de que si el
+colindante participare en éstos, tendrá derecho de preferencia en
+igualdad de condiciones. La Administración respectiva podrá, en casos
+especiales respecto de la situación económica del propietario del
+inmueble colindante, brindar facilidades de pago, concediendo plazo hasta
+de 5 años, con garantía hipotecaria y sin perjuicio de los
+correspondientes intereses, una vez que éste manifieste por escrito su
+interés en la compra de la faja de terreno de que se trate, o resulte
+adjudicatario en el respectivo concurso.

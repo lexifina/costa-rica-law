@@ -1,0 +1,5 @@
+Artículo 196.- Otros tipos de concesión no regulados por el presente
+capítulo (transportes, correos, locales en mercados municipales, etc.) se
+continuarán rigiendo por sus respectivos regímenes legales, aplicándose a
+los mismos las disposiciones del presente Reglamento sólo de carácter
+supletorio.

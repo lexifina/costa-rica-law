@@ -1,0 +1,8 @@
+Artículo 52.- El Poder Ejecutivo emitirá, mediante decreto, a
+solicitud de la Proveeduría Nacional, con ajuste a lo dispuesto en el
+artículo 284, las normas técnicas que estime convenientes para la
+ejecución de obras o para la adquisición de materiales o equipo, a las
+cuales deben adecuar sus ofertas los participantes en concurso público
+(carteles tipo). Tales normas pueden ser utilizados en lo pertinente o
+adoptados por otros entes públicos, haciendo referencia en cada caso a
+las mismas y a la respectiva publicación en "La Gaceta".

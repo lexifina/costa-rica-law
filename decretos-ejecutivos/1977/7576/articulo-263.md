@@ -1,0 +1,5 @@
+Artículo 263.- El apercibimiento será notificado personalmente a
+quienes alcance, tanto como a la Contraloría General y no tendrá otro
+recurso que el de revocatoria, el cual deberá interponerse ante la
+Administración que lo dictó, dentro de las cuarenta y ocho horas
+siguientes, debiendo ser resuelto en un plazo de cinco días hábiles.

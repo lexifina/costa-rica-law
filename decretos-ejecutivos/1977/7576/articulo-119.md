@@ -1,0 +1,4 @@
+Artículo 119.- Posteriormente a la apertura de las ofertas no se
+admitirá retiro ni modificación de las mismas, aunque sí las aclaraciones
+que, sin alterar su contenido, tengan a bien presentar los participantes
+o solicitárselas la Administración.

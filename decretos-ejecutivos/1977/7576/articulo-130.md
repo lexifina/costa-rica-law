@@ -1,0 +1,4 @@
+Artículo 130.- De existir error u omisión alguna en la publicación,
+deberá subsanarse mediante aviso referido al sólo aspecto que se enmienda
+o a la totalidad del originalmente publicado, según convenga a su debida
+comprensión.

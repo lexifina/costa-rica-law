@@ -1,0 +1,7 @@
+Artículo 268.- Las sanciones acordadas alcanzan a la persona o firma
+respectiva, tanto como individualmente a su presidente, gerente,
+subgerente y directores y sólo tendrán efecto en relación con actos
+posteriores a la fecha de la firmeza de la resolución correspondiente. En
+casos graves la resolución de la Contraloría General puede extender sus
+efectos inhibitorios respecto a la contratación con todos los entes
+públicos.

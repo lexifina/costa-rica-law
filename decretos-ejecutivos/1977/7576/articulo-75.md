@@ -1,0 +1,11 @@
+CAPITULO QUINTO
+Del Recurso de Objeción al Cartel
+Artículo 75.- Quien tenga interés en ello puede objetar, ante la
+Contraloría General de la República, el cartel de licitación publicado en
+el Diario Oficial, por supuestos vicios en el procedimiento o por estimar
+que condiciones o especificaciones suyas limitan ilegalmente y en su
+perjuicio la libertad de concurrencia o violan el principio de igualdad
+de oportunidades. A los efectos de este artículo se entiende por
+interesado en el concurso todo oferente potencial en la clase de negocio
+de que se trate y, asimismo, los representantes legales de éstos y los
+representantes de casas extranjeras.

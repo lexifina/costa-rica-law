@@ -1,0 +1,9 @@
+Artículo 21.- Respecto a contrataciones que no impliquen erogación,
+fundamentalmente la venta de bienes, se cumplirá con lo ordenado por los
+incisos b), c) y e) (en lo pertinente) y f) todos del artículo 15,
+incluyendo, en cuanto a este último inciso, el remate como una de las
+posibles alternativas, a tenor de lo dispuesto por el Título VI. Debe
+tenerse presente que en todo caso el importe de la venta de bienes
+promovida por la Proveeduría Nacional entrará sin deducciones al Tesoro
+Público y el de la venta de bienes de los demás entes públicos a los
+respectivos fondos, de igual modo.

@@ -1,0 +1,4 @@
+Artículo 146.- Cuando procediere recurso de revocatoria y no de
+apelación se interpondrá aquél ante la Administración licitante,
+siguiendo en lo aplicable los procedimientos que establece el artículo
+171 de este Reglamento y las disposiciones conexas.

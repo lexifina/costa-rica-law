@@ -1,0 +1,6 @@
+Artículo 217.- La Administración, o la Contraloría General, al
+disponer o autorizar, podrán exigir, cuando lo estimen conveniente y
+posible, una garantía de cumplimiento por el 5% del monto de la
+contratación directa en que intervenga; asimismo, podrán requerir
+cotizaciones originales, catálogos de precios, facturas y demás
+documentación o información que estimen pertinente.

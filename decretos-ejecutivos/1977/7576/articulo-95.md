@@ -1,0 +1,4 @@
+Artículo 95.- Debe igualmente el oferente, cuando fuere propuesta de
+origen nacional, hacer declaración jurada de no encontrarse en ninguno de
+los casos de imposibilidad legal para contratar con la Administración a
+que se refiere el Capítulo Unico del Título X de este Reglamento.

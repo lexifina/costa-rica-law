@@ -1,0 +1,7 @@
+Artículo 26.- La estimación del precio de base para la venta de
+inmuebles del dominio público o privado del Estado o de sus
+Instituciones, se hará por medio de avalúo reciente de la Oficina
+especializada de la Dirección General de la Tributación Directa. Dicha
+base sólo podrá ser rebajada con autorización de la Contraloría General,
+en nuevo procedimiento de concurso, hasta en un 20%, en caso de
+licitación infructuosa.

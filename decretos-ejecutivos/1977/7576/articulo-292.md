@@ -1,0 +1,5 @@
+Artículo 292.- Los contratos administrativos regidos por este
+Reglamento, a tramitar al amparo de regímenes de empréstitos aprobados
+por la Asamblea Legislativa, se ajustarán a las disposiciones del
+presente decreto, salvo respecto a situaciones incongruentes, a juicio
+de la Contraloría General.
