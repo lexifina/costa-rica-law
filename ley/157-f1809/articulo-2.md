@@ -1,0 +1,1 @@
+Artículo 2°-Los trabajos por ajuste serán calculados en forma en que un trabajador de condiciones normales pueda devengar un sueldo proporcional al que se fija por hora en el artículo primero de esta ley.
