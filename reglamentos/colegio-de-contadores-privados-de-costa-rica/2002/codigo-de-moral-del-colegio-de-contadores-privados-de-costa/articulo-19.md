@@ -1,0 +1,1 @@
+Artículo 19.—El Contador Privado, deberá ajustar el cobro de sus honorarios profesionales a los aranceles que estipula el Colegio. El Contador Privado, deberá convenir con el cliente la forma de pago de estos aranceles, antes de aceptar el trabajo.

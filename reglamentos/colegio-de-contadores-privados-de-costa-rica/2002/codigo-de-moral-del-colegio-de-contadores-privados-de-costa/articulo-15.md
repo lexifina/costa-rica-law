@@ -1,0 +1,1 @@
+Artículo 15.—Cuando un Contador Privado Independiente, acepte llevar una contabilidad, deberá rendir el informe de la situación financiera de la empresa, por lo menos una vez cada tres meses o cuando su cliente así lo solicite, asimismo, deberá mantener los libros legales al día.

@@ -1,0 +1,1 @@
+Artículo 29.—La suspensión en el ejercicio de la profesión apareja la suspensión en el cargo que exija para su ejercicio la profesión de Contador Privado Incorporado. El Colegio comunicará la sanción a quien corresponda.

@@ -1,0 +1,1 @@
+Artículo 8º—Es deber del Contador Privado, dedicarse con diligencia a los asuntos de sus clientes y poner a su disposición sus esfuerzos y conocimientos, con estricto apego a las normas contables, legales y morales.

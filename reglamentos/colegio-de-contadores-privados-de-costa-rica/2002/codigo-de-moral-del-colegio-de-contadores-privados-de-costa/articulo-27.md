@@ -1,0 +1,1 @@
+Artículo 27.—El Contador Privado resguardará, celosamente la buena reputación e imagen de la Institución, de igual manera, velará por el cuidado de los bienes, muebles e inmuebles, propiedad del Colegio de Contadores Privados de Costa Rica y denunciará cualquier situación anómala que se presente al órgano que corresponda.

@@ -1,0 +1,1 @@
+Artículo 2º—Los Contadores Privados en el ejercicio de la profesión deben acatar y cumplir la Ley constitutiva y los Reglamentos del Colegio de Contadores Privados de Costa Rica y demás leyes de la República en cuanto se relacionen con el desempeño de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 30.—Las sanciones disciplinarias que impongo el Colegio de Contadores Privados de Costa Rica se harán constar en el expediente personal de cada Contador Privado y se comunicarán conforme lo dispongan las leyes y reglamentos.

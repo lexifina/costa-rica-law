@@ -1,0 +1,1 @@
+Artículo 11.—Es deber del Contador Privado, actuar con responsabilidad y libertad de criterio en su vida profesional y rechazar todo asunto que comprometa su independencia en el correcto cumplimiento de las labores contables.

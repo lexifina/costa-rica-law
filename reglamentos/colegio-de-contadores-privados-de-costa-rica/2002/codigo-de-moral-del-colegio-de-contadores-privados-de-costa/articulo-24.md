@@ -1,0 +1,1 @@
+Artículo 24.—El Contador que acepta estudiantes de Contabilidad en su oficina en calidad de colaboradores, debe proveerles de un ámbito de trabajo adecuado y decoroso para su preparación profesional. Deberá retribuir su colaboración proporcionalmente a los aranceles vigentes, estipulados por el Colegio.
