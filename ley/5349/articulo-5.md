@@ -1,0 +1,1 @@
+Artículo 5º.- Tanto el Ministerio de Salubridad Pública como la Caja Costarricense de Seguro Social quedan autorizados para preparar los instrumentos legales correspondientes para el traspaso de los bienes muebles e inmuebles, que esta ley faculta.
