@@ -1,0 +1,1 @@
+Artículo 2º.- Todos los bienes e inmuebles de propiedad del Sanatorio Nacional de Las Mercedes, así como las ventas y subvenciones que percibe serán traspasadas al Estado para ser administrados por la Dirección General de Asistencia con destino al tratamiento de la enfermedad y rehabilitación de los enfermos, así como la prevención de la misma.

@@ -1,0 +1,2 @@
+Transitorio.- El personal que labora en el Sanatorio Nacional de las Mercedes, al producirse el traspaso al Consejo Técnico de Asistencia Médico Social de conformidad con los términos de esta ley, mantendrán sus puestos conservando todos los derechos que el Código de Trabajo y la Ley del Servicio Civil establecen.
+Casa Presidencial.- San José, a los trece días del mes de octubre de ml novecientos setenta y dos.
