@@ -1,11 +1,4 @@
-Artículo 101.- Pena. El incumplimiento de los deberes formales debe
-ser penado con multa de cien a cinco mil colones, excepto cuando se trate
-de la infracción por falta de presentación de declaraciones juradas o
-presentación tardía de las mismas, que se debe sancionar de acuerdo con las
-normas estipuladas en la Sección Segunda de este Capítulo.
-No puede sancionarse de nuevo a un mismo infractor por alguna de las
-infracciones a que se refiere el inciso b) del artículo anterior o por el
-incumplimiento de la obligación de llevar los libros o registros a que
-alude dicha norma, por el mismo tipo de infracción, mientras no haya
-transcurrido un plazo de tres meses a contar de la fecha de comprobación de
-la infracción anterior.
+Artículo 101.- Publicidad de las normas y jurisprudencia tributarias.
+Sin perjuicio de la publicidad de las leyes, reglamentaciones y demás disposiciones de carácter general dictadas por la Administración Tributaria en uso de sus facultades legales, la dependencia que tenga a su cargo la aplicación de los tributos debe dar a conocer de inmediato, por medio del Diario Oficial y de otros medios publicitarios adecuados a las circunstancias, las resoluciones o sentencias recaídas en casos particulares que a su juicio ofrezcan interés general, omitiendo las referencias que puedan lesionar intereses particulares o la garantía del carácter confidencial de las informaciones que instituye el artículo 117 (*) de este Código.
+(Así modificado por el artículo 3 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que derogó el contenido del antiguo artículo 101 y traspasó el antiguo mumeral 107 a la posición actual)
+(*) (Así reformado tácitamente por el artículo 6 de la indicada Ley de Justicia Tributaria, que corrió la numeración del antiguo artículo 112, siendo ahora 117)

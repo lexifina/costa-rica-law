@@ -1,6 +1,3 @@
 Sección Quinta: Condonación o remisión
-Artículo 50.- Procedimiento. La obligación de pago de los tributos
-sólo puede ser condonada o remitida por ley dictada con alcance general.
-Las demás obligaciones, así como los intereses, recargos y multas, sólo
-pueden ser condonados por resolución administrativa dictada en la forma
-y condiciones que la ley establezca.
+Artículo 50.- Procedimientos. La obligación de pagar los tributos solamente puede ser condonada o remitida por ley dictada con alcance general. Las obligaciones accesorias, como intereses, recargos y multas, solo pueden ser condonadas por resolución administrativa, dictada en la forma y las condiciones que se establezcan en la Ley.
+(Así reformado por el artículo 1 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995)

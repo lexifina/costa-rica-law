@@ -1,9 +1,3 @@
-Artículo 72.- Extinción de la acción y de la sanción. La acción
-para imponer sanciones por infracciones tributarias y de la sanción ya
-impuesta se extingue:
-a) Por muerte del infractor, sin que esto importe la extinción de la
-acción y de la sanción contra los coautores, cómplices y
-encubridores. No obstante, subsiste la responsabilidad por las
-multas aplicadas en resoluciones firmes:
-b) Por amnistía dispuesta por ley; y
-c) Por prescripción.
+Artículo 72.- Elemento subjetivo en las infracciones de las personas jurídicas y que constituyan unidad económica o patrimonio afectado
+Los sujetos pasivos indicados en los incisos b) y c) del artículo 17 de este Código serán responsables en el tanto se compruebe que, dentro de su organización interna, se ha faltado al deber de cuidado que habría impedido la infracción, sin necesidad de determinar las responsabilidades personales concretas de sus administradores, directores, albaceas, curadores, fiduciarios y demás personas físicas involucradas y sin perjuicio de ellas.
+(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)

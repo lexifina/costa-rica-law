@@ -1,4 +1,5 @@
-Artículo 129.- Constitución de domicilio. Los interesados están
-obligados a indicar su domicilio fiscal en el primer escrito o audiencia,
-siempre que no lo tengan registrado en la oficina correspondiente de la
-Administración Tributaria.
+Artículo 129.- Entes colectivos. Los deberes formales de los entes colectivos han de ser cumplidos:
+a) En el caso de personas jurídicas, por sus representantes legales o convencionales;
+b) En el caso de entidades previstas en el artículo 17, inciso c), de este Código, por la persona que administre los bienes o, en su defecto, por cualquiera de los integrantes de la entidad; y
+c) En el caso de sucesiones y fideicomisos, por sus albaceas y fiduciarios o, en su defecto, por cualquiera de los interesados.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 124 al actual)

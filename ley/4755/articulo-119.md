@@ -1,21 +1,6 @@
-Artículo 119.- Determinación de oficio. Cuando no se hayan presentado
-declaraciones juradas, o cuando las presentadas sean objetadas por la
-Administración Tributarias por considerarlas falsas, ilegales o
-incompletas, dicha Administración puede determinar de oficio la obligación
-tributaria del contribuyente o responsable, sea en forma directa, por el
-conocimiento cierto de la materia imponible, o mediante estimación, si los
-elementos conocidos sólo permiten presumir la existencia y magnitud de
-aquélla.
-Asimismo, aunque se haya presentado la declaración jurada, la
-Administración Tributaria puede proceder a la estimación de oficio si
-ocurre alguna de las circunstancias siguientes:
-a) Que el contribuyente no lleve los libros de contabilidad y
-registros a que alude el inciso a) del artículo 110 de este Código;
-b) Que no se presenten los documentos justificativos de las
-operaciones contables, o no se proporcionen los datos e
-informaciones que se soliciten; y
-c) Que la contabilidad sea llevada en forma irregular o defectuosa,
-o que los libros tengan un atraso mayor de seis meses.
-Para los efectos de las disposiciones anteriores, se consideran
-indicios reveladores de la existencia y cuantía de la obligación
-tributaria, los señalados en el inciso b) del artículo 111 de este Código.
+Artículo 119.- Consultas. Quien tenga un interés personal y directo, puede consultar a la Administración Tributaria sobre la aplicación del derecho a una situación de hecho concreta y actual. A ese efecto, el consultante debe exponer en escrito especial, con claridad y precisión, todos los elementos constitutivos de la situación que motiva la consulta y puede asimismo expresar su opinión fundada. La nota o escrito en que se formule la consulta debe ser presentada con copia fiel de su original, la que debidamente sellada y con indicación de la fecha de su presentación, debe ser devuelta como constancia al interesado.
+La consulta presentada antes del vencimiento del plazo para la presentación de la declaración jurada o, en su caso, dentro del término para el pago del tributo, exime de sanciones al consultante por el excedente que resulte de la resolución administrativa, si es pagado dicho excedente dentro de los treinta días siguientes a la fecha de notificada la respectiva resolución.
+Para evacuar la consulta la Administración dispone de cuarenta y cinco días y si al vencimiento de dicho término, no dicta resolución, se debe entender aprobada la interpretación del consultante, si éste la ha expuesto.
+Dicha aprobación se limita al caso concreto consultado y no afecta a los hechos generadores que ocurran con posterioridad a la notificación de la resolución que en el futuro dicte la Administración.
+Es nula la consulta evacuada sobre la base de datos inexactos proporcionados por el consultante.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 114 al actual)

@@ -1,22 +1,12 @@
-Sección Sexta: Incumplimiento de los deberes por los funcionarios
-de la Administración Tributaria
-Artículo 103.- Incumplimiento de obligaciones en general. Penas. El
-funcionario o empleado de la Administración Tributaria que incumpla las
-obligaciones establecidas en este Código, o que permita o facilite a
-cualquier persona burlar el pago de los tributos o infringir las
-disposiciones de aquél o de éstos, o que teniendo conocimiento de este tipo
-de transgresiones, no efectúe la denuncia respectiva ante sus superiores
-jerárquicos, debe ser sancionado de acuerdo con la gravedad de la falta,
-llegando incluso al despido y condenado al pago de una multa de cien a
-cinco mil colones. Para la aplicación de esta multa, la Administración
-Tributaria debe hacer la denuncia correspondiente al Juzgado de lo
-Contencioso Administrativo y Civil de Hacienda, con vista en la resolución
-firme de la gestión de despido tramitada conforme al Estatuto de Servicio
-Civil.
-No obstante, cuando se incurriere en una infracción que no amerite el
-despido, la Administración Tributaria debe efectuar la denuncia a que se
-refiere el párrafo anterior, si a juicio de su titular se justifica.
-Si el incumplimiento de los deberes y obligaciones constituye un
-delito o una infracción más grave, previstos en este Código o en otras
-leyes, se deben aplicar las sanciones que determinen los cuerpos legales
-respectivos.
+Artículo 103.- Fiscalización.
+La Administración Tributaria está facultada para verificar el correcto cumplimiento de las obligaciones tributarias por todos los medios y procedimientos legales.
+A ese efecto dicha Administración queda específicamente autorizada para:
+a) Requerir a cualquier persona natural o jurídica, esté o no inscrita para el pago de los tributos, que declare sus obligaciones tributarias dentro del plazo que al efecto le señale;
+b) Cerciorarse de la veracidad del contenido de las declaraciones juradas por los medios y procedimientos de análisis e investigación legales que estime convenientes, a efecto de determinar la verdadera magnitud del hecho imponible y el tributo correspondiente;
+c) Requerir el pago y percibir de los contribuyentes y los responsables los tributos adeudados y, en su caso, el interés, los recargos y las multas previstos en este Código y las leyes tributarias respectivas. El titular de la Dirección General de Tributación está facultado para fijar mediante resolución con carácter general, los límites para disponer el archivo de deudas tributarias en gestión administrativa o judicial, las cuales en razón de su bajo monto o incobrabilidad no impliquen créditos de cierta, oportuna o económica concreción.
+Decretado el archivo por incobrabilidad, en caso de pago voluntario o cuando se ubiquen bienes suficientes del deudor sobre los cuales se pueda hacer efectivo el cobro, se emitirá una resolución del titular de la Administración que revalidará la deuda.
+Los titulares de las administraciones territoriales y de grandes contribuyentes ordenarán archivar las deudas y, en casos concretos, revalidarlas.
+(Así reformado este inciso por el artículo 1º de la ley No.7900 de 3 de agosto de 1999)
+d) Organizar y gestionar el cobro administrativo de los tributos, intereses y recargos que aplique y para solicitar la intervención de la dependencia que tenga a su cargo el cobro de los créditos a favor del Estado; y
+e) Interpretar administrativamente las disposiciones de este Código, las de las leyes tributarias y sus respectivos reglamentos, y para evacuar consultas en los casos particulares fijando en cada caso la posición de la Administración, sin perjuicio de la interpretación auténtica que la Contitución Política le otorga a la Asamblea Legislativa y la de los organismos jurisdiccionales competentes.
+(Así modificado por el artículo 3 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que derogó el contenido del antiguo artículo 103 -sobre Incumplimiento de los deberes por los funcionarios de la Administración Tributaria- y traspasó el antiguo mumeral 109 al actual)

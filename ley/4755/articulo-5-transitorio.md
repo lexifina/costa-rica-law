@@ -1,0 +1,2 @@
+Transitorio V.- Sanciones. Las sanciones que establecen los artículos 91, 94, 96, 98 y 101 (*), y la que corresponda por aplicación de lo dispuesto en el artículo 103 (*) de este Código, se deben aplicar con relación a las infracciones cometidas a partir de la fecha de vigencia del mismo.
+(**) (NOTA: los artículos 101 y 103 originales fueron derogados por el artículo 3 de la Ley de Justicia Tributaria No. 7535 del 1 de agosto de 1995. Su contenido actual es otro, al igual que el artículo 98 en mención)

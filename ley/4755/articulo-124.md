@@ -1,9 +1,8 @@
-Artículo 124.- Entes colectivos. Los deberes formales de los entes
-colectivos han de ser cumplidos:
-a) En el caso de personas jurídicas, por sus representantes legales
-o convencionales;
-b) En el caso de entidades previstas en el artículo 17, inciso c), de
-este Código, por la persona que administre los bienes o, en su
-defecto, por cualquiera de los integrantes de la entidad; y
-c) En el caso de sucesiones y fideicomisos, por sus albaceas y
-fiduciarios o, en su defecto, por cualquiera de los interesados.
+Artículo 124.- Determinación de oficio. Cuando no se hayan presentado declaraciones juradas, o cuando las presentadas sean objetadas por la Administración Tributarias por considerarlas falsas, ilegales o incompletas, dicha Administración puede determinar de oficio la obligación tributaria del contribuyente o responsable, sea en forma directa, por el conocimiento cierto de la materia imponible, o mediante estimación, si los elementos conocidos sólo permiten presumir la existencia y magnitud de aquélla.
+Asimismo, aunque se haya presentado la declaración jurada, la Administración Tributaria puede proceder a la estimación de oficio si ocurre alguna de las circunstancias siguientes:
+a) Que el contribuyente no lleve los libros de contabilidad y registros a que alude el inciso a) del artículo 104 (*) de este Código;
+b) Que no se presenten los documentos justificativos de las operaciones contables, o no se proporcionen los datos e informaciones que se soliciten; y
+c) Que la contabilidad sea llevada en forma irregular o defectuosa, o que los libros tengan un atraso mayor de seis meses.
+Para los efectos de las disposiciones anteriores, se consideran indicios reveladores de la existencia y cuantía de la obligación tributaria, los señalados en el inciso b) del artículo 116 (*) de este Código.
+(Así corregida su numeración por el artículo 6 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 119 al actual)
+(*) (Así reformado tácitamente por el artículo 3 de la indicada Ley de Justicia Tributaria, que corrió la numeración del antiguo artículo 110, que es ahora 104. Igualmente, el numeral 6 modificó el orden del antiguo artículo 111, que es ahora 116)

@@ -1,0 +1,11 @@
+CAPITULO II
+Medidas Cautelares
+Artículo 173.- Casos en que proceden. Con anterioridad a la interposición de la demanda, la Oficina de Cobros puede decretar las medidas cautelares que se indican en los artículos 174 y 175 (*) siguientes para la percepción de los créditos a favor del Poder Central originados en tributos regulados por el presente Código, sus intereses, recargos y multas, en los casos siguientes:
+a) Cuando transcurre el plazo señalado en el artículo 171 (*) de este Código, si el deudor no ha cancelado totalmente el crédito fiscal, cuya certificación se hubiere emitido con base en documentos emanados del mismo deudor o en resolución que agote la vía administrativa;
+b) Cuando exista, en caso de multas, sentencia ejecutoria, y si transcurrido el plazo a que alude el inciso anterior no se hubiere pagado el importe de la multa correspondiente;
+c) Cuando lo pida el propio interesado, para garantizar su deuda fiscal; y
+d) Cuando esté en vías de determinación un crédito fiscal y, a juicio de la autoridad administrativa competente, exista peligro de que el obligado se ausente, enajene o oculte sus bienes o realice qualquier maniobra tendiente a dejar insoluto el crédito. En estos casos, dicha autoridad debe solicitar a la Oficina de Cobros que decrete la correspondiente medida cautelar, e iniciar seguidamente el procedimiento necesario para determinar y liquidar el crédito fiscal en un plazo que no debe exceder de treinta días. Si el crédito fiscal se cubre dentro del término de quince días siguientes a la notificación de dicha liquidación, el deudor no está obligado a pagar gastos de ejecución.
+Si pasados treinta días de practicado el embargo, no se ha notificado la determinación y liquidación del crédito fiscal, la Oficina de Cobros debe proceder a levantar dicho embargo.
+Cuando se trate de créditos fiscales no regulados por el presente Código, estas medidas cautelares deben solicitarse a los órganos jurisdiccionales competentes.
+(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 164 al actual)
+(*) (Así reformado tácitamente por el artículo 10 de la indicada Ley de Justicia Tributaria, que corrió la numeración del antiguo artículo 162, 165 y 66, siendo ahora 171, 174 y 175, respectivamente)
