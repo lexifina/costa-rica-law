@@ -1,0 +1,1 @@
+Art. 5. Tambien está obligado el Inspector à visitar con frecuencia las tercenas de tabaco, particularmente cuando se les dén quejas sobre estarse expendiendo en alguna de ellas talaco de mala calidad, sobre cualesquiera otros abusos que se cometan contra el público contra la renta.

@@ -1,0 +1,6 @@
+DECRETO XXXVI
+Crea el destino de Inspector de Tesorerias subalternas y reglamenta sus funciones. Contiene ademas varias disposiciones respecto a la administracion y manejo de las rentas y a la responsabilldad de los empleados de la misma (1)
+"Juan Rafael Mora Presidente de la República de Costa Rica.
+Considerando: 1° Que el Administrador principal por sus muchas ocupaciones, no puede practicar por si y mensualmente en las tesorerias subalternas los cortes prevenidos por el articulo 10 §3 Seccion 1° del Reglamento de Hacienda de I0 de diciembre de 839. 2° Que es indispensable que entren cada fin de mes, en las administraciones generales respectivas, todos los productos de las Receptorias y Tercenas para subvenir con ellos, con la oportunidad debida, a los gastos de la Administracion pública; y 3° Que se vé, por esperiencia, que algunos empleados en rentas retienen indebidamente, y con grave perjuicio del Tesoro que administran, sumas considerables por todo el tiempo que permanecen sus cuentas sin examinar, esperando devolver dichas sumas hasta que se les sentencie a ello por el superior Tribunal de cuentas, decreto.
+SECCION I
+Art. 1. Habrá en la República un Inspector de tesorerias subalternas, de nombramiento del Gobierno, y con el sueldo de seiscientos pesos anuales.
