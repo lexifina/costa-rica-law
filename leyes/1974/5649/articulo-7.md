@@ -1,5 +1,7 @@
-Artículo 7º.- El timbre, que ha de emitirse para el cumplimiento de
-lo dispuesto en esta ley, llevará una leyenda que diga: "Timbre Cruz Roja
-Costarricense: un colón". Será emitido y vendido por el Banco Central de
-Costa Rica, quien girará trimestralmente lo recaudado a la Cruz Roja
-Costarricense.
+ARTICULO 7º.- El timbre que se emitirá para cumplir con lo dispuesto
+en esta ley, llevará la siguiente leyenda: "Timbre Cruz Roja
+Costarricense: doscientos colones (¢200,00)". El Banco Central de Costa
+Rica, lo emitirá, lo venderá y trimestralmente girará lo recaudado a la
+Cruz Roja Costarricense.
+(Así reformado por el artículo 1º de la ley No.7591 de 10 de abril
+de 1996)
