@@ -1,2 +1,3 @@
-Artículo 4º—Las suplencias solo podrán autorizarse cuando se trate de suplir personal con permiso sin goce de salario superior a 6 meses.
-(NOTA: Mediante la Directriz Presidencial N° 4 de 24 de junio del 2002 se exceptúa al Patronato Nacional de la Infancia de la aplicación de éste artículo, en lo que se refiere al personal profesional, técnico y de servicio dedicado a la atención de la población que está bajo la responsabilidad del Patronato Nacional de la Infancia, así como puestos de confianza de la Presidencia Ejecutiva.)
+Artículo 4º—Las suplencias solo podrán autorizarse cuando se trate de sustituir personal con permiso sin goce de salario por seis meses o más en los casos de incapacidades superiores a un mes y licencias por maternidad.
+(Así reformado por el artículo 1 de la directriz presidencial N° 12 de 4 de octubre del 2002)
+(Mediante directriz N° 13 de 1 de octubre del 2002, se exceptúa a la Refinadora Costarricense de Petróleo, S. A., de la aplicación de este artículo)
