@@ -1,0 +1,2 @@
+Artículo 2°—Agregar un inciso 2.4 al artículo 2° del "Reglamento de Operación del Comité y Subcomités Licitaciones", que dirá:
+"2.4 Corresponderá al Proveedor de Casa Matriz o del Banco Regional respectivo, con prescindencia del monto de la adjudicación, el celebrar y adjudicar los remates y subastas a la baja que se celebren de acuerdo a lo previsto en la Ley de Contratación Administrativa y su Reglamento General".
