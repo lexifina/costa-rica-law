@@ -1,0 +1,1 @@
+ARTÍCULO 29.-Los sargentos mayores usar n el mismo uniforme, y llevarán dos charreteras de canelón grueso y pala lisa, un galón de oro de cinco hilos en cada botamanga de la casaca, sombrero apuntado con la escarapela nacional y espada corta.
