@@ -1,0 +1,1 @@
+Artículo 13.—El detalle de programas informáticos que hayan sido instalados en las computadoras propiedad de la Municipalidad de Tibás, será actualizado conforme se adquieran otros nuevos, lo cual se comunicará a las distintas oficinas.

@@ -1,0 +1,1 @@
+Artículo 10.—Las ampliaciones, modificaciones o adquisiciones de equipo de cómputo, así como la actualización y compra de programas informáticos, se hará con la asistencia técnica de la Unidad de Cómputo.

@@ -1,0 +1,1 @@
+Artículo 9º—En el caso de fallas técnicas del equipo de cómputo, la Unidad de Cómputo realizará un diagnostico preliminar, con el objeto de procurar la solución, o en su defecto, girar las instrucciones del procedimiento a seguir para su reparación.

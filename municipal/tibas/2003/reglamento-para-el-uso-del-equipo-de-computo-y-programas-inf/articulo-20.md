@@ -1,0 +1,1 @@
+Artículo 20.—El Jefe de cada oficina será el responsable de velar porque estas disposiciones se cumplan y reportará a la mayor brevedad a la Unidad de Cómputo, cualquier anomalía que se presente. Asimismo podrá solicitar a la Unidad de Cómputo una revisión técnica del equipo informático de aquellos donde existan indicios de la utilización de programas informáticos ilegales.

@@ -1,0 +1,1 @@
+Artículo 3º—Los recursos informáticos son herramientas fundamentales de trabajo que deben ser solicitadas por el Jefe directo y aprobado por la Unidad de Cómputo, quién coordinará a través del Jefe la instalación del mismo.

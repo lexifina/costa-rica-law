@@ -1,0 +1,1 @@
+Artículo 15.—Con el fin de evitar la contaminación de virus informáticos en los equipos, no deben introducirse diskettes de desconocida procedencia, sino solamente aquellos utilizados para las labores propias de la Institución. Asimismo periódicamente es necesario comprobar con la ayuda de programas antivirus, la existencia de éstos tanto en los diskettes como en el disco duro.

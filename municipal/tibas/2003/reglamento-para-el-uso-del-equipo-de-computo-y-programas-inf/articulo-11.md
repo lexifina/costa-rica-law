@@ -1,0 +1,1 @@
+Artículo 11.—Los equipos de cómputo no podrán ser desmantelados, cambiados, abiertos ni reparados por los funcionarios de las oficinas. Asimismo sus componentes (entiéndase mouse, disco duro, teclado, memoria, fuente de poder, tarjeta madre, etc.) no podrán ser removidos por personal no autorizado por la Unidad de Cómputo.

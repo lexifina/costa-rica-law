@@ -1,0 +1,1 @@
+Artículo 16.—La Unidad de Cómputo, sin previo aviso, podrá en cualquier momento realizar inspección de los equipos y programas que estén almacenados en los discos e informar al Superior el resultado obtenido.
