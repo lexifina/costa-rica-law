@@ -1,0 +1,1 @@
+Artículo 3°-Este decreto se comunicar a los Gobiernos Centroamericanos y a la Secretaría de Integración Económica Centroamericana (SIECA), a efectos de dar cumplimiento con lo dispuesto en el Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.
