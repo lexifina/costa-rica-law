@@ -1,0 +1,1 @@
+Artículo 10.—El Fiscal no podrá aceptar la representación o asesoramiento de contribuyentes del Poder Central, en casos sujetos a la vía judicial, personalmente o por participación en sociedades o agrupaciones que así lo hagan.

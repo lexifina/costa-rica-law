@@ -1,0 +1,1 @@
+Artículo 11.—Bajo ningún concepto, el Fiscal podrá dar por terminado un proceso judicial, sin que medie orden expresa y por escrito del Jefe de la Oficina de Cobros Judiciales. Una vez recibida la notificación, en donde se ordena la terminación del proceso, el Fiscal deberá remitir el expediente a la Unidad de Control.

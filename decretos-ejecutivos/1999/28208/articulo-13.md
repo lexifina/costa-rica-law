@@ -1,0 +1,1 @@
+Artículo 13.—En caso de ocurrir circunstancias que imposibiliten al Fiscal, para atender los casos asignados, deberá informar, con al menos cinco días hábiles de antelación, de esta situación al Jefe de la Oficina de Cobros Judiciales, así como el término durante el cual persistirá la imposibilidad.

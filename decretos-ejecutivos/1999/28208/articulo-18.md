@@ -1,0 +1,1 @@
+Artículo 18.-La Oficina de Cobros Judiciales por medio de la Unidad de Control realizará muestreos de los expedientes, así como cualquier actividad tendente a velar por el fiel cumplimiento de este reglamento, fiscalizando los informes presentados. Para este efecto, el Fiscal deberá proporcionar la información requerida y permitir el acceso a la base de datos.

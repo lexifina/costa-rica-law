@@ -1,0 +1,1 @@
+Artículo 23.—El Fiscal sólo podrá dar por terminada su intervención en un juicio, una vez que sea protocolizada e inscrita en el respectivo Registro la adjudicación del bien a favor del Estado, siempre y cuando no haya quedado saldo descubierto, o una vez recuperada la totalidad del adeudo cuando cuente con la autorización por escrito del Jefe de la Oficina de Cobros Judiciales.
