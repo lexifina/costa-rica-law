@@ -1,3 +1,4 @@
+(NOTA: Mediante decreto ejecutivo N° 24729 del 9 de octubre de 1995, la República de Costa Rica se adhiere a la presente Convención)
 APROBACION DE LA CONVENCION SOBRE LAS MEDIDAS QUE DEBEN
 ADOPTARSE PARA PROHIBIR E IMPEDIR LA IMPORTACION,
 LA EXPORTACION Y LA TRANSFERENCIA DE PROPIEDAD
