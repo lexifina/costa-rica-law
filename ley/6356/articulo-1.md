@@ -1,0 +1,3 @@
+(Anulada esta ley mediante resolución de la Sala Constitucional N° 15058-10 del 8 de setiembre de 2010, misma que anuló por inconstitucionales “los artículos 14 y 15 de la Ley General de Pensiones, Nº 14 de 2 de diciembre de 1935 y sus reformas…” -el destacado es nuestro-).
+Artículo 1º.- Refórmase el inciso c) del artículo 15 de la Ley General de Pensiones Nº 14 del 2 de diciembre de 1935, anteriormente reformado mediante octubre de 1975. Su texto dirá:
+"c) Que se trate de pensiones que no estando contempladas en los incisos anteriores, ores, no excedan en total de tres mil colones mensuales".
