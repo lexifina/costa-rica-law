@@ -1,0 +1,1 @@
+Artículo 2°— La Unidad Ejecutora de cada Proyecto será responsable de establecer en su estructura un ambiente de control, que genere orden, disciplina y defina el carácter de la organización en la ejecución del Proyecto correspondiente.

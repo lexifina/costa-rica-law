@@ -1,0 +1,1 @@
+Artículo 3°—En todo Proyecto se deberán establecer instrumentos de control para evaluar las áreas técnicas, administrativas y contables, los cuales serán definidos en concordancia con las características de cada Proyecto. Estos controles deberán ser ejercidos por la Unidad Ejecutora correspondiente.

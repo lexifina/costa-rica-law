@@ -1,0 +1,1 @@
+Artículo 5°—Los sistemas de control interno que cada Unidad Ejecutora establezca en conformidad con este Reglamento deberán ser evaluados por las unidades de monitoreo y de Auditoria Interna de las dependencias gubernamentales que correspondan, o bien, por auditores independientes, todo ello definido en concordancia con las características de cada Proyecto.

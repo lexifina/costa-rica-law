@@ -1,0 +1,4 @@
+Artículo 7°—Las Unidades Ejecutoras de los Proyectos de Desarrollo Social deberán:
+a) Mantener debidamente informados a sus beneficiarios, sobre el desarrollo y la ejecución de sus actividades. Para ello establecerán las instancias de comunicación que resulten convenientes, de acuerdo con las características de cada proyecto.
+b) Promover la democracia participativa mediante la incorporación de sus beneficiarios, en los mecanismos consultivos de carácter no técnicos, que se definan para apoyar la toma de decisiones relativas a las actividades de ejecución; y
+c) Realizar, de previo a la conclusión de sus actividades, una evaluación sobre el impacto social alcanzado con su ejecución. También, podrán realizar evaluaciones periódicas sobre su impacto social, durante el plazo de ejecución de cada Proyecto.

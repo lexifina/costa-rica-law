@@ -1,0 +1,1 @@
+Artículo 6°—Cuando los Proyectos contemplen la constitución de órganos colegiados para la ejecución de sus funciones deberán aplicar las regulaciones estipuladas en el Título Segundo, Capítulo Tercero de la Ley General de la Administración Pública.
