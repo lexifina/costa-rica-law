@@ -1,0 +1,1 @@
+Artículo 2° De conformidad con el artículo transitorio de la reforma constitucional de 26 de mayo de 1898, los señores Magistrados electos duraran dos años en el desempeño de sus cargos, sea del 8 de mayo de 1904.
