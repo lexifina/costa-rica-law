@@ -13,3 +13,4 @@ Reglamenta Artículo 69 de Ley de Notariado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1971-12-17 | la propia norma |
+| 2 | 1971-12-17 | SINALEVI (sin norma nombrada) |
