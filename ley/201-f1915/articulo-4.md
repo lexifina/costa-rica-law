@@ -1,1 +1,0 @@
-Artículo 4°.- La Tesorería Nacional, de acuerdo con el Centro de Control, determinará los métodos de contabilidad que correspondan a las asignaciones del Presupuesto o leyes especiales, con la debida separación.
