@@ -1,1 +1,1 @@
-Artículo 89.- Las certificaciones de escrituras se extenderán en la forma común de toda certificación e irán firmadas por el Notario y los testigos que presencien su confrontación con el original y en el papel correspondiente.
+Artículo 89.- Las certificaciones de escritura se extenderán en la forma común de toda certificación e irán firmadas por el Notario y los testigos que presencien su confrontación con el original y en el papel correspondiente.
