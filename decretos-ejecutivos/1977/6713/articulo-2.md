@@ -1,0 +1,1 @@
+Artículo 2°.- La estimación del lote de terreno y de la construcción es de ¢626.539.05 (seiscientos veintiséis mil quinientos treinta y nueve colones, cinco céntimos) que corresponde al total de la suma a pagar de conformidad con el Avalúo N° 12.810 Av.E de la Seción de Avalúos Especiales de la Tributación Directa.
