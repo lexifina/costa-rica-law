@@ -1,4 +1,2 @@
-Artículo décimo tercero: De la prestación de los servicios:
-Cualquier dependencia que requiera servicios de transporte para el cumplimiento de sus funciones deberá cursar la respectiva solicitud a la Secretaría del Tribunal, la cual la canalizará de conformidad con lo que dispone este Reglamento.
-Dicha solicitud de servicios se resolverá dependiendo de los recursos con que se cuente para su atención.
-(Así reformado por Decreto del Tribunal Supremo de Elecciones N° 1 de 17 de enero de 1995).
+Artículo decimo tercero.-De la Prestación de los Servicios: cualquier dependencia que requiera los servicios de transporte para el cumplimiento de sus funciones deberá cursar la respectiva solicitud por escrito, a la Unidad de Transportes, mediante fórmula diseñada al efecto. Las solicitudes de transporte serán presentadas a la unidad encargada con la debida antelación, con el fin de que se puedan coordinar de la mejor forma posible los recursos disponibles y se lleve a cabo la programación, en donde tales solicitudes serán atendidas en estricto orden cronológico de presentación, salvo los casos de urgencia establecidos por la Secretaría del Tribunal o por la Dirección del Registro Civil.
+(Así reformado por Decreto del Tribunal Supremo de Elecciones N° 2, publicado en La Gaceta N ° 140 del 23 de julio de 1996)
