@@ -1,4 +1,5 @@
 N° 5869
+(Esta Ley fue interpretada por la Ley N° 6196 de 16 de marzo de 1978)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA :
 Artículo 1°—Fijado por el Tribunal Fiscal Administrativo el monto del avalúo de los bienes que el Instituto Costarricense de Electricidad requiera para la realización del proyecto hidroeléctrico de Arenal, al inicio de las diligencias judiciales de expropiación de esos bienes, el Instituto depositará el monto total de ese avalúo a la orden del Juzgado de lo Contencioso Administrativo y Civil de Hacienda que corresponda.
