@@ -1,0 +1,2 @@
+Artículo 5°-Los penados que sin perjuicio de la disciplina, orden y seguridad de la cárcel puedan dentro de ella ejercer un oficio, industria, arte ó profesión, cuyo rendimiento diario no sea menor que el jornal de que habla el artículo 12, no serán obligados á trabajar en distintas clases de obras durante aquellos días en que tengan trabajo remunerado, propio del oficio, arte ó profesión á que se dediquen.
+La contrata para tales trabajos, así como también el cobro del respectivo precio y su depósito en el Tesorero Municipal se hará por conducto del Alcaide de la cárcel.
