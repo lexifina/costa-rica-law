@@ -1,0 +1,2 @@
+Transitorio único.—Hasta tanto no esté en funcionamiento la Auditoría de Servicios de Salud del Ministerio de Salud, creada según Ley Nº 8239 del 2 de abril del 2002, publicada en La Gaceta Nº 75 del 19 de abril del 2002, el Ministro hará la designación de su representante ante CONIS de igual forma que los otros miembros.
+Dado en la Presidencia de la República.—San José, a los cinco días del mes de marzo del dos mil tres.
