@@ -1,0 +1,1 @@
+Artículo 58.—La Contabilidad en base a la información que suministre las órdenes de personal, órdenes judiciales, solicitudes de los interesados o instituciones afectadas a retenciones legalmente obligatorias, pasará la información básica a la oficina mecanizada como máximo seis días hábiles anteriores al pago.

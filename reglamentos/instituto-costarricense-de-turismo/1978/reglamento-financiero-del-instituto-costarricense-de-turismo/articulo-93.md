@@ -1,0 +1,1 @@
+Articulo 93.— No obstante lo establecido en el articulo 88, las liquidaciones de los pagos hechos con estos fondos, deberán hacerse semanalmente o cuando hubiere agotado el cincuenta por ciento de los fondos. Estas liquidaciones deberán contar con la aprobación del Director Financiero.

@@ -1,0 +1,1 @@
+Artículo 42.—La Sección de Proveeduría o de Servicios Generales, según corresponda, entregará a los proveedores externos de materiales y servicios él original de la orden de compra, que haya cumplido todos los trámites establecidos junto con un formulario oficial del ICT para la confección de la factura correspondiente.

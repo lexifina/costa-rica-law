@@ -1,0 +1,1 @@
+Artículo 56.—En caso de devolución de depósitos de garantía por préstamo de artículos o bien depósitos sobre licitaciones, la factura será confeccionada y firmada por Proveeduría o Servicios Generales, según corresponda, refrendada por la unidad solicitante. La Contabilidad completará el trámite subsiguiente.

@@ -1,0 +1,1 @@
+Artículo 45.—Los documentos referidos en el artículo precedente deberán ser sellados y fechados en el momento del recibo. Debe indicarse la fecha de pago tanto en el original de la factura como en la copia que se entrega al proveedor externo.

@@ -1,0 +1,1 @@
+Artículo 44.—Las facturas y el original de la orden de compra respectiva serán recibidas por la Proveeduría o Servicios Generales, según corresponda al momento de recibirse la mercadería o de haberse completado el servicio a satisfacción.

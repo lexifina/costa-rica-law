@@ -1,0 +1,1 @@
+Artículo 46.—Los documentos referidos en los artículos precedentes deben ser enviados a Contabilidad por Proveeduría o Servicios Generales, según corresponda para la numeración y codificación de la factura y para la confección del cheque.

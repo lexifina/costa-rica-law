@@ -1,0 +1,1 @@
+Artículo 105.—El cuidado y manejo de estos fondos estará a cargo de la de esa oficina, quien será responsable directa de su correcto manejo en apego a las disposiciones generales del presente Reglamento.

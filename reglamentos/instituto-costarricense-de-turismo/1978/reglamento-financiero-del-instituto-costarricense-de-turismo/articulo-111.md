@@ -1,0 +1,1 @@
+Articulo 111.Únicamente podrán tramitarse mediante estos fondos, los reintegros del 5% sobre pasajes internacionales no utilizados en su totalidad que no sobrepasen la suma de C300.00 (trescientos colones), en cada caso, con la aprobación de la Oficina de Ingresos.

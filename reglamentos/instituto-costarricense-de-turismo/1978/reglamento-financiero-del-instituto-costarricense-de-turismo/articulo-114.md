@@ -1,0 +1,1 @@
+Articulo 114.—Las disposiciones generales contenidas en los artículos 81, 82, 83, 84, 85 y 86 del presente Reglamento, no son aplicables a este fondo. La liquidación de estos fondos los refrenderá el Director Financiero.

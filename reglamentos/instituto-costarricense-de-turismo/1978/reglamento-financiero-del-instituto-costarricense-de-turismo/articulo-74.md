@@ -1,0 +1,1 @@
+Articulo 74.—La Auditoria dará la aprobación final a las liquidaciones de gastos de viaje y de transporte, tanto de giras dentro como fuera del país, cuando éstas no se ajusten a las disposiciones de este Reglamento. No las aprobará indicando las razones del caso.

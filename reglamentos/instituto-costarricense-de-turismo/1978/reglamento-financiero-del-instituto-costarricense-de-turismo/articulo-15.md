@@ -1,0 +1,2 @@
+Artículo 15.—La adquisición de materiales o servicios quedará firme hasta el momento en que la orden de compra que emita la Proveeduría, o Servicios Generales, según sea el caso, sufra todos los trámites y sea refrendada por la Auditoría de acuerdo a su reglamento.
+Las compras de materiales para mantenerse en existencia, deberán de sufrir el trámite de cotización cuando su monto sea inferior a diez mil colones y de licitación pública y privada según sea el caso, cuando sobrepasen este limite.

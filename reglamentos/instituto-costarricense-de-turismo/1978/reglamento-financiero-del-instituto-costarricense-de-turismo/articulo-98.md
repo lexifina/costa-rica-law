@@ -1,0 +1,1 @@
+Articulo 98.—Se exceptúa de este fondo, cuando las circunstancias lo ameriten a criterio del Jefe Administrativo, la prohibición establecida en el inciso articulo 82 de este Reglamento. Tampoco se requerirá la autorización previa de la Oficina de Presupuesto.

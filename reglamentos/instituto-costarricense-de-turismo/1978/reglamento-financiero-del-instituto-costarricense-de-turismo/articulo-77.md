@@ -1,0 +1,1 @@
+Artículo 77.—Salvo los casos de "gastos de representación" asignados en el presupuesto con carácter de suma mensual fija, todos los demás deberán indicar el nombre del o las personas atendidas, cargo que desempeñan y razón de la atención.
