@@ -1,6 +1,6 @@
-Artículo 25.- Todos los bienes y derechos, muebles e inmuebles, que
-en virtud de su creación pasan al poder de la Junta para que los
-administre en la forma que antes se expone, así como todas las mejoras y
-aumentos de que llegue a ser susceptible bajo la administración de la
-Junta, pertenecen y seguirán perteneciendo a la Corporación Municipal de
-Alajuela.
+ARTICULO 25.- Vencido el término indicado en el artículo 3º de esta
+ley, o la prórroga en su caso, todos los bienes y derechos, muebles e
+inmuebles, que constituyan el patrimonio de la Junta, serán traspasados
+a las municipalidades dueñas de las empresas que ésta administra.
+(Así reformado por el artículo 1º de la ley No.5097 de 3 de
+noviembre de 1972)

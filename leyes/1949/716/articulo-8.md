@@ -1,4 +1,4 @@
-Artículo 8º.- Los miembros de la Junta durarán en sus funciones seis
+ARTICULO 8º.- Los miembros de la Junta durarán en sus funciones seis
 años, pudiendo ser reelectos. No podrán ser removidos durante su período,
 salvo el caso de que llegare a declararse contra ellos alguna
 responsabilidad legal. Cesará también en sus funciones el miembro de la

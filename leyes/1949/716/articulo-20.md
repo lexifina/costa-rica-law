@@ -1,4 +1,4 @@
-Artículo 20.- La Junta suministrará los servicios eléctricos de la
+ARTICULO 20.- La Junta suministrará los servicios eléctricos de la
 empresa municipal sujetándose al principio de precio al costo, debiendo
 organizar técnicamente su contabilidad con base en inventarios y avalúos
 exactos y periódicos y acatando en forma rigurosa las normas legales y

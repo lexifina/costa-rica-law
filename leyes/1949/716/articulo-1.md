@@ -1,11 +1,13 @@
-13-feb-97
-Nº 716
-de 14 de setiembre de 1949
-LA JUNTA FUNDADORA DE LA SEGUNDA REPUBLICA
-DECRETA:
-Artículo 1º.- Créase un organismo de carácter semi-autónomo que con
-el nombre de Junta Administrativa del Servicio Eléctrico Municipal y con
-domicilio en la ciudad de Alajuela tendrá a su cargo, en forma exclusiva,
-la administración de la empresa eléctrica perteneciente a la Municipalidad
-del cantón central de esa provincia, con las atribuciones, facultades y
-deberes que este decreto determina.
+ARTICULO 1º.- Créase un organismo de carácter semiautónomo con
+personería jurídica propia que, con el nombre de Junta Administrativa de
+Servicios Eléctricos de Alajuela (JASEMA), y con domicilio en la ciudad de
+Alajuela, tendrá a su cargo la administración de la reserva eléctrica
+perteneciente a la Municipalidad del cantón central de Alajuela y de las
+empresas de aquellas otras municipalidades de la provincia que así lo
+desearen, previo el convenio respectivo, con las autoridades, facultades
+y deberes que esta ley determina.
+Esos convenios de administración de otras empresas eléctricas
+municipales, no necesitarán aprobación legislativa ni más trámite que la
+suscripción del respectivo contrato.
+(Así reformado por el artículo 1º de la ley No.5097 de 3 de
+noviembre de 1972)
