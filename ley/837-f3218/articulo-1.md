@@ -1,4 +1,6 @@
+(Derogado)
 N° 837
+(Esta norma fue derogada por el artículo 67 (actual 82) de la Ley de Impuesto sobre la Renta, N° 7092 del 21 de abril de 1988)
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 PARTE PRIMERA
