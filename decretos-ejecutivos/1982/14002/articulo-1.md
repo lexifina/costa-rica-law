@@ -47,19 +47,20 @@ Nota: Los precios correspondientes a cualquier presentación o peso del pan, deb
 | A mayorista ¢ | De mayorista a detallista ¢ | De detallista a consumidor ¢
 Granos básicos | | |
 (*)Arroz: | | |
-PRECIOS MAXIMOS DE VENTA
-| A mayorista | De mayorista a detallista | De detallista a consumidor
-| | |
-Arroz pilado | Anterior al presente decreto ¢ | Vigente a partir de este decreto ¢ | Anterior al presente decreto ¢ | Anterior al presente decreto ¢ | Anterior al presente decreto ¢ | Vigente a partir de este decreto ¢
-En sacos de 46 kilogramos | 795,50 | 795,50 | 835,25 | 835,25 | 20,35 | 20,35
-Con no más de 40% grano quebrado | 870,40 | 870.40 | 913.90 | 913.90 | 22.25 | 22.25
-Con no más de 20% grano quebrado | 895.44 | 847.60 | 940.20 | 1.033.95 | 22.90 | 25.15
-Empacado en bultos de 24 bolsas de 2 kilogramos netos cada una | | | | | |
-De 31 a 40% grano quebrado | 847.60 | 847.60 | 890.00 | 890.00 | 41.50 | 41.50
-De 26 a 30% grano quebrado | 900.50 | 900.50 | 945.50 | 945.50 | 44.10 | 44.10
-De 21 a 25% grano quebrado | 926.90 | 926.90 | 973.25 | 973.25 | 45.40 | 45.40
-De 11 a 20% grano quebrado | 953.60 | 1.090.60 | 1.001.30 | 1.145.15 | 46.70 | 53.45
-(*) (Así reformado lo correspondiente al arroz por el artículo 1° del decreto ejecutivo N° 14503 del 3 de mayo de 1983)
+PRECIOS MÁXIMOS DE VENTA
+| A mayorista | De Mayorista a detallista | De detallista consumidor | E expendidos del CNP solo consumidor
+| ¢ | ¢ | ¢ | ¢
+ARROZ | | | |
+Arroz pilado en sacos de 46 kilogramos cada uno | | | |
+Con no más de 40% grano quebrado | 818.25 | 851.00 | 20.35kg |
+Con no más de 25% grano quebrado | | | | 22.25
+Con no más de 22.5% grano quebrado | 1.011.30 | 1.051.70 | 22.15 kg |
+Empacado en bultos de 24 bolsas de 2 kilogramos cada una | | | |
+De 31 a 40% grano quebrado | 870.60 | 905.45 | 41.50 | Bolsa
+De 26 a 30% grano quebrado | 925.20 | 962.20 | 44.10 | Bolsa
+De 21 a 25% grano quebrado | 952.45 | 990.55 | 45.40 | Bolsa
+De 11 a 20% grano quebrado | 1.121.35 | 1.166.20 | 53.45 | Bolsa
+(*) (Así reformado lo correspondiente al arroz por el artículo 1° del decreto ejecutivo N° 14772 del 18 de agosto de 1983)
 NOTA: Los industriales y distribuidores deberán indicar en la factura, la mezcla correspondiente a la venta que se realice inciso d) artículo 21 de la ley N° 5665.
 Las bolsas de arroz empacado, tanto para las mezclas que se fijen en este decreto, como las que se regulen por margen de utilidad (de 10 a 0% de grano quebrado), deberán llevar impreso en el empaque el tipo de mezcla, la marca, la empresa empacadora y el peso neto correspondiente, para esto, el Ministerio otorga un plazo no mayor a los 2 meses para que los industriales y empacadores acaten esta disposición y puedan agotar las existencias actuales del empaque.
 | | PRECIOS MAXIMOS DE VENTA

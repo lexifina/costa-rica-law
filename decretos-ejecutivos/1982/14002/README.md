@@ -17,3 +17,4 @@ Fija precios de productos de consumo básico
 | 3 | 1983-03-23 | Decreto Ejecutivo 14409 (1983-03-23) |
 | 4 | 1983-05-03 | Decreto Ejecutivo 14503 (1983-05-03) |
 | 5 | 1983-05-23 | Decreto Ejecutivo 14566 (1983-05-23) |
+| 6 | 1983-08-18 | Decreto Ejecutivo 14772 (1983-08-18) |
