@@ -1,0 +1,1 @@
+ARTICULO 19: No se autorizará la integración en una delegación o representación oficial a aquel diputado o funcionario que no haya realizado en el cumplimiento de sus tareas las obligaciones de liquidar los gastos de representación y viáticos o rendido el informe respectivo al cumplimiento de sus tareas en la misión anterior.
