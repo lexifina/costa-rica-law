@@ -1,7 +1,0 @@
-Artículo 3°-Modifíquese el artículo primero del decreto ejecutivo N° 23101-MIRENEM, publicado en "La Gaceta" ° 74 del 19 de abril de 1994, modificado mediante Decreto Ejecutivo N° 2484l-MAE-H, publicado en "La Gaceta" N° 12 del 17 de enero de 1996, para que en adelante se lea:
-"Artículo 1°-Se financiarán proyecto de manejo de bosque natural cuyo objetivo fundamental sea la obtención de productos forestales en terrenos cubiertos por bosque, en donde el diagnóstico de regeneración demuestre la factibilidad técnica para efectuar su manejo. Dicho financiamiento se realizará a través de los (CAF) y cubrirá las siguientes actividades:
-a) Presentar el levantamiento topográfico realizado por un topógrafo inscrito en el Colegio respectivo.
-b) Presentar el Contrato de Regencia Forestal.
-Para la entrega del CAF correspondiente al segundo porcentaje, el beneficiario deberá solicitarlo por escrito una vez transcurridos doce meses después de la firma del contrato, además debe demostrar mediante informe regencial la aplicación de los tratamientos silviculturales.
-Para la entrega del tercero y cuarto porcentaje, el interesado deberá solicitarlos a los 24 y 36 meses después de la firma del contrato respectivo, adjuntando además los informes regenciales correspondientes.
-Para el desembolso correspondiente al quinto porcentaje, el interesado deberá solicitarlo a los 48 meses de la firma del contrato, presentando como requisito un muestreo diagnóstico e informe regencial.
