@@ -22,3 +22,4 @@ articulo-21.md
 articulo-22.md
 articulo-23.md
 articulo-1-anexo.md
+articulo-4-bis.md
