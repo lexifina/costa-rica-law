@@ -1,0 +1,1 @@
+Artículo 21.—La Comisión de la Galería Costarricense del Deporte seleccionará, de entre la terna presentada, el o los candidatos que pasan a formar parte de la Galería Costarricense del Deporte. En casos especiales habrá hasta un tercer designado.

@@ -1,0 +1,1 @@
+Artículo 23.—Se podrá declarar desierta la designación del nuevo miembro de la Galería Costarricense del Deporte en aquellos casos en que la Comisión considere que los candidatos no cuentan con los requisitos de relevancia y excelencia que deben tener los integrantes de esta Institución Deportiva, o cuando no se presente ningún candidato a concurso.

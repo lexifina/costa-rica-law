@@ -1,0 +1,1 @@
+Artículo 8º—Cuando un integrante de la Comisión incurra en más de tres ausencias no justificadas, el Presidente puede solicitar al Consejo Nacional del Deporte y la Recreación su sustitución, de acuerdo a su representatividad.

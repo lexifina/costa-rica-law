@@ -1,0 +1,2 @@
+Artículo 10.—Esta sesionará de acuerdo con el Reglamento de sesiones y debates del Consejo Nacional del Deporte y la Recreación, con la frecuencia que ella misma determine y se regirá por las normas parlamentarias usuales.
+El quórum legal es de tres miembros y las decisiones se tomarán por mayoría simple. En aquellos casos en que se diera un empate, funcionará el doble voto del Presidente de la Comisión.

@@ -1,0 +1,1 @@
+Artículo 9º—El Instituto Costarricense del Deporte y la Recreación brindará los servicios logísticos para el funcionamiento de la Comisión, a través del Departamento de Prensa y Relaciones Públicas, que será el ente encargado de la coordinación interna y externa de todos los asuntos relacionados con la Comisión y con la Galería Costarricense del Deporte.
