@@ -1,2 +1,5 @@
-ARTÍCULO 34.- Pago por consultas
-No causarán derechos las consultas que los Poderes del Estado formulen al Colegio. En los demás casos, por los dictámenes técnicos que el Colegio emita se pagarán los derechos indicados en la tarifa elaborada por la Junta Directiva. Los derechos de consulta ingresarán a los fondos generales del Colegio, sin perjuicio de que, en casos cuya investigación y decisión haya implicado una labor dilatada, completa y dificultosa, la Junta separe el setenta y cinco por ciento (75%) de los derechos y lo gire, por partes iguales, a los miembros del comité consultivo.
+CAPÍTULO VII
+COMITÉ CONSULTIVO
+ARTÍCULO 34.- Funciones
+La Asamblea General designará cada año un comité consultivo, compuesto por cinco colegiados profesionales en quiropráctica, para que asesore en los asuntos especialmente complejos sometidos a la consideración de la Junta Directiva del Colegio.
+(Así modificada su numeración por el artículo 2 de la Ley N° 8139 de 1 de octubre del 2001, que lo pasó del 33 al 34)

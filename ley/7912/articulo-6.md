@@ -1,4 +1,3 @@
-ARTÍCULO 6.- Miembros activos
-Con las obligaciones y los derechos señalados en la ley, podrán ser miembros activos:
-a) Los profesionales en quiropráctica que posean el grado académico de licenciatura en quiropráctica otorgado por una universidad cuya carrera haya sido debidamente acreditada por el Consejo Superior de Educación.
-b) Los profesionales incorporados mediante el reconocimiento, la convalidación y equiparación de su título, de acuerdo con la normativa de CONARE.
+ARTÍCULO 6.- Inscripción
+La Junta Directiva del Colegio reglamentará la inscripción de los profesionales en quiropráctica como miembros del Colegio. A solicitud del interesado, la Junta Directiva del Colegio también resolverá sobre las inscripciones adicionales correspondientes a los miembros activos del Colegio que hayan obtenido otras especialidades mediante estudios universitarios.
+(Así modificada su numeración por el artículo 2 de la Ley N° 8139 de 1 de octubre del 2001, que lo pasó del 5 al 6)
