@@ -1,0 +1,1 @@
+Art 3.- La plana mayor de cada Batallon constará del comandante que no podrá ser menos de Teniente Coronel, un Sargento mayor, un ayudante , un Alféres de Bandera, un Capellan, un Tambor mayor en el primer Batallon, otro de ordenes y doce Gastadores.

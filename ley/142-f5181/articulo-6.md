@@ -1,0 +1,1 @@
+Art 6.- La brigada de artillería conocida hasta hoy con ese nombre, se llamará Lejion de carabineros de honor y constará de un Capitán, dos tenientes, un Sargento 1°, seis segundos, cinco tambores, seis cabos primeros y ciento veinte carabineros de los que serán Zarpadores.
