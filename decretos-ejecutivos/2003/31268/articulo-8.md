@@ -1,0 +1,2 @@
+Artículo 8°—El aumento general aquí decretado no será devengado por aquellos funcionarios y funcionarias públicos que devenguen salarios brutos iguales o superiores a un millón de colones mensuales, (¢1.000.000,00).
+Por salario bruto se entiende la suma del salario base y demás rubros tales como carrera profesional, antigüedades, salario escolar, gastos de representación y demás renglones adicionales del salario base, según lo establece la Ley de Contingencia Fiscal N° 8343.
