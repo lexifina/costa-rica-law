@@ -18,3 +18,7 @@ En caso de extractos o tinturas debe indicarse el solvente utilizado y la propor
 11) Carta del representante legal en caso de fabricación a terceros.
 12) Recibo de pago por concepto de inscripción. Fijase la tasa prevista en el artículo 112 de la Ley General de Salud en la suma de US $250 (doscientos cincuenta dólares americanos) o su equivalente en moneda nacional, para las tisanas en presentación de tes. El resto de Productos con base en Recursos Naturales industrializados que tienen presentaciones farmacéuticas y que son promocionados con cualidades terapéuticas el monto de inscripción será de US $ 500 (quinientos dólares americanos)
 (Así reformado por el decreto ejecutivo N° 31000 de 10 de febrero de 2003)
+Los ingresos por concepto de registro de productos naturales industrializados y con cualidades medicinales, deberán ser depositados por los interesados en las cuentas corrientes del Fideicomiso 872, Ministerio de Salud- CTAMS Banco Nacional de Costa Rica que se citan a continuación:
+1) Cuenta en colones: 000-213715-6-Fideicomiso 872-Ministerio de Salud-CTAMS- B.N.C.R.
+2) Cuenta en dólares estadounidenses: 000-6174777-5 Fideicomiso 872-Ministerio de Salud-CTAMS-B.N.C.R.
+(AMPLIADO por el artículo 1 del Decreto Ejecutivo 31207 de 15 de mayo de 2003, publicado en La Gaceta No. 117 de 19 de junio de 2003, que adicionó un párrafo segundo al inciso 12.)
