@@ -1,0 +1,12 @@
+ANEXO 1
+Nombre del sujeto privado______________________
+PLAN DE TRABAJO
+Nombre del programa o proyecto a ejecutar con fondos provenientes de la Hacienda Pública: ________________________________________________________________________________
+Objetivos generales del programa o proyecto: |
+|
+|
+|
+|
+Objetivos específicos por lograr con los recursos incluidos en el presupuesto | Metas | Responsable
+_____________________________________________________________________________________________________________________________________________________________________ | ________________________________________________ ________________________________________________________________________ | ____________________________________________________________________________________________________
+| |
