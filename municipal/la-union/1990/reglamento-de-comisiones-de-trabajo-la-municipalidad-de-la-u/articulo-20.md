@@ -1,0 +1,1 @@
+Artículo 20.-En todo dictamen de las Comisiones de Trabajo deberá indicarse las sesiones de Comisión en que se trató el asunto. así como el dictamen aprobado. si este es unánime o por mayoría, y, en su caso, el dictamen de minoría, con una exposición sucinta de los razonamientos que motivan cada dictamen.

@@ -1,0 +1,1 @@
+Artículo 3°-EI número de integrantes de las Comisiones .de Trabajo no tendrá más límite, que el que a su juicio defina el Presidente Municipal, que garantice la agilidad y eficiencia del trabajo interno.

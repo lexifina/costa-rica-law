@@ -1,0 +1,1 @@
+Artículo 21.-Los dictámenes serán entregados a la Secretaría Municipal dentro del plazo previsto en este reglamento o fijado por el Presidente Municipal firmado por el Presidente y el Secretario de la Comisión.

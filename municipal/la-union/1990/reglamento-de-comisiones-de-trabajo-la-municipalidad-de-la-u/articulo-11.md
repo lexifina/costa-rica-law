@@ -1,0 +1,1 @@
+Artículo 11.-Todo Regidor. propietario o suplente, deberá integrarse al menos en una de I~s Comisiones de Trabajo Ordinarias de la Municipalidad, excepto que motivos de salud o cualquier otro, muy calificado, impidan a un Regidor formar parte de alguna de estas Comisiones. De igual manera, no podrá pertenecer a más de dos de las Comisiones Ordinarias.

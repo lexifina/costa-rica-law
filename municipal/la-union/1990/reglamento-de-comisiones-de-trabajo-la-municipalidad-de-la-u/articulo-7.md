@@ -1,0 +1,8 @@
+Artículo 7°-En términos generales, las anteriores Comisiones Ordinarias de Trabajo tendrán las siguientes funciones:
+a) Hacienda y Presupuesto: todo lo relativo a los bienes muebles e inmuebles y recursos económicos municipales y su disposición.
+b) Obras Públicas: todo lo que respecta a la construcción, reparación y mejoramiento de obras en el cantón. principalmente de vías y caminos, así como a disposición de materiales en poder de la Municipalidad.
+c) Promoción Humana: atenderá todas aquellas fundamentales en la promoción y realización del hombre: área de la educación y la cultura y el área del deporte y la recreación. Asimismo tendrá a su cargo el campo de la-acción social.
+ch) Servicios Públicos y Saneamiento Ambiental: todo lo relativo a servicios públicos en el cantón, como transporte. acueductos, alumbrado, recolección de-basura, etc. Asimismo todo lo relacionado con el campo de la salud y la protección ambiental.
+d) Vivienda y Planificación Urbana: está dentro de la competencia de esta Comisión todo lo relacionado con permisos de construcción para vivienda, relación con Comités de Vivienda, delineamiento de los puntos básicos de planeamiento urbano por seguirse en el cantón, y los asuntos conexos a estos.
+e) Seguridad: tendrá a su cargo todo lo concerniente a la seguridad ciudadana en el cantón de La Unión, debiendo para ello coordinar con las fuerzas de orden público destacadas en el cantón y con los vecinos organizados para coadyuvar en las labores de seguridad.
+f) Asuntos varios: esta Comisión se abocará al conocimiento de todos aquellos. asuntos que no sean competencia exclusiva de otra Comisión Ordinaria de Trabajo, como asuntos jurídicos, nombramientos, etc.

@@ -1,0 +1,1 @@
+Artículo 8°-Si en algún momento surgieran conflictos de competencia entre dos o más Comisiones de Trabajo, el Presidente Municipal decidirá cuál Comisión rendirá el dictamen respectivo. Asimismo, podrá determinar que dos o más Comisiones dictaminen sobre un asunto en particular, que involucre las áreas de acción de una o más Comisiones.
