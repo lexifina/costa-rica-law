@@ -1,4 +1,5 @@
-Artículo 86.- Integración. La Comisión de Honores, la de Redacción, la de la Mujer y la de la Juventud estarán integradas por cinco diputados cada uno. La Comisión de Nombramientos estará integrada por siete diputados. La Comisión de Ambiente y la de Relaciones Internacionales y de Comercio Exterior por nueve diputados.
+Artículo 86.- Integración.
+La Comisión de Honores, la de Redacción, la de la Mujer estarán integradas por cinco diputados. La Comisión de Nombramientos y de la Juventud, Niñez y Adolescencia estarán integradas por siete diputados. La Comisión de Ambiente y la de Relaciones Internacionales y Comercio Exterior por nueve diputados.
+(Así reformado el párrafo anterior por acuerdo No. 6114 de 17 de junio de 2003, publicado en La Gaceta No. 130 de 08 de julio de 2003.)
 Estas Comisiones serán nombradas cada año por el Presidente de la Asamblea, en el curso del mes que se inicie una legislatura.
-Los diputados que las integren deberán formar parte de las Comisiones Permanentes Ordinarias
-(Modificado mediante acuerdo N° 6109, del 15-05-2003)
+Los diputados que las integren deberán formar parte de las Comisiones Permanentes Ordinarias.
