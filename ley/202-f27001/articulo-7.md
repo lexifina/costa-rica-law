@@ -1,0 +1,1 @@
+Art 7°.- Todo solar queda fuera de la disposición de esta ley, con tal que esté con casa ó con destino para hacerla, siendo único y no pase de cincuenta varas en cuadro, cualesquiera que sea la distancia a que se haye, y el exceso se tendrá como tierra vendible.

@@ -1,0 +1,1 @@
+10.- El dinero proveniente de las enajenaciones, se empleará con preferencia en concluir la casa municipal, y el resto se destinará al aumento de los fondos de la de Santo Tomás; entregándose al Rector para que lo pongan a usura convencional.
