@@ -1,0 +1,1 @@
+Artículo 11 ,-Independientemente de los aportes establecidos en el presente decreto, las entidades participantes pondrán a disposición del Proyecto los recursos humanos, económicos -y materiales que estén a su alcance para lograr su implementación y puesta en marcha.

@@ -1,0 +1,2 @@
+Artículo 2°-El Proyecto crea la modalidad de Hogares Grupales para brindar servicios sustitutivos de cuido familiar a personas con discapacidad adultas en situación de abandono y/o riesgo social provenientes de albergues del Patronato Nacional de la Infancia.
+Asimismo brindará servicios .de asesoría, apoyo económico y seguimiento a personas adultas con discapacidad en situación de abandono ubicadas en Hogares de Acogimiento Familiar.

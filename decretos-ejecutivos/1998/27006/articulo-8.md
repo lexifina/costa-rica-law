@@ -1,0 +1,1 @@
+Artículo 8°-Corresponderá a la Caja Costarricense de Seguro Social otorgar a cada una de las personas con discapacidad beneficiarias del proyecto, una pensión del Régimen No Contributivo por Monto Básico.

@@ -1,0 +1,1 @@
+Artículo 3° Forman parte del Proyecto las siguientes entidades: la Presidencia de la Republica, la Caja Costarricense de Seguro Social, el Instituto Mixto de Ayuda Social, el Patronato Nacional de la Infancia, la Junta de Protección Social de San José y el Consejo Nacional de Rehabilitación y Educación Especial, como ente rector y coordinador del Proyecto.
