@@ -1,0 +1,12 @@
+Nº 32241
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que le confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 25 inciso l), 27 inciso l) y 28 inciso 2) acápite b) de la Ley Nº 6227, Ley General de la Administración Pública de 2 de mayo de 1978; Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001 y su Reglamento, Decreto Ejecutivo Nº 30058-H-MP-PLAN de 19 de diciembre de 2001; la Ley Nº 5, Ley Orgánica del Museo Nacional de 28 de enero de 1888 y sus reformas y el Decreto Ejecutivo Nº 31708-H del 16 de marzo del 2004.
+Considerando:
+1º—Que mediante la Ley Nº 5, Ley Orgánica del Museo Nacional de 28 de enero de 1888, y sus reformas, se creó el Museo Nacional como un órgano desconcentrado, con personalidad y capacidad jurídicas instrumentales, adscrito al Ministerio de Cultura, Juventud y Deportes encargado de recoger, estudiar y conservar debidamente ejemplares representativos de la flora y fauna del país, y de los minerales de su suelo, así como de sus reliquias históricas y arqueológicas, y servirá como centro de exposición y estudio.
+2º—Que el Museo requiere incorporar recursos para la readecuación y construcción de las instalaciones de Pavas, el reemplazo de varios vehículos y la compra de licencias de programas de computación.
+3º—Que mediante el Decreto Ejecutivo Nº 31708-H publicado en La Gaceta Nº 62 del 29 de marzo del 2004, la Autoridad Presupuestaria formuló las Directrices de Política Presupuestaria del 2005, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo en el artículo 1º del citado decreto, el gasto presupuestario máximo para el año 2005, de las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+4º—Que mediante oficio STAP-0411-04 del 13 de abril de 2004, se comunicó al Museo Nacional el gasto presupuestario máximo fijado para el año 2005.
+5º—Que por lo anterior, se hace necesario modificar el gasto presupuestario máximo fijado al Museo Nacional para el año 2005. Por tanto:
+DECRETAN:
+Artículo 1º—Modificase al Museo Nacional el gasto presupuestario máximo fijado para el año 2005, establecido según el artículo 1° del Decreto Ejecutivo Nº 31708 y sus reformas, publicado en La Gaceta Nº 62 del 29 de marzo del 2004, de manera que éste no podrá exceder la suma de ¢967.48 millones.
