@@ -1,0 +1,32 @@
+NORMAS DE EJECUCIÓN
+ARTICULO 10.-
+1.- Autorizase a la Municipalidad de Buenos Aires para que varíe el destino de la partida aprobada mediante la Ley N.° 7952, código presupuestario 130 906 730 347 1 242 47, por un monto de un millón de colones (¢ 1.000.000,00) o el saldo que exista, destinada a “Lastreo de camino San Rafael Zapotal, Distrito Volcán”, a fin de que se utilice para la reparación del camino de Zapotal a quebrada Dubondy.
+2.- Autorizase a la Municipalidad de Buenos Aires para que varíe el destino de la partida aprobada mediante la Ley N.° 7952, código presupuestario 130 906 730 390 1 242 4, por un monto de un millón de colones (¢ 1.000.000,00) o el saldo que exista, destinada a “Proyecto de electrificación Monte limar, Distrito Potrero Grande”, a fin de que se utilice para el mantenimiento del camino Monte limar de Potrero Grande.
+3.- Autorizase a la Municipalidad de Buenos Aires para que varíe el destino de la partida aprobada mediante la Ley N.° 7962, código presupuestario 130 906 730 389 1 242 44, por un monto de un millón de colones (¢ 1.000.000,00) o el saldo que exista, destinada a “Proyecto de electrificación San Carlos, Distrito Potrero Grande”, a fin de que se utilice para el mantenimiento del camino San Carios de Potrero Grande.
+4.- Autorizase a la Municipalidad de Pococí para que varíe el destino de la partida aprobada mediante la Ley N.° 8050, código presupuestario 106-054-03 730 27 242 23 308, por un monto de dos millones quinientos mil colones (¢ 2.500.000,00) o el saldo que exista, destinada a la “Compra de vehículos Asociación de bomberos voluntarios de Batan”, a fin de que se utilice en la compra de equipo de rescate para el Cuerpo de Bomberos del cantón de Matina.
+5.- Autorizase a la Municipalidad de Abangares para que varíe el destino de la partida específica aprobada en la Ley de Presupuesto N.° 8050, código presupuestario 123 815 00 730 27 242 25 207, por un monto de cinco millones de colones (¢ 5.000.000,00) o el saldo que exista, destinados para Compra de terreno para proyecto de vivienda de interés social en Colorado de Abangares, a fin de que sea utilizada para obras de urbanización de terreno para proyecto de vivienda de interés social en Colorado de Abangares (apertura de calle, construcción de acera, cordón y caño).
+6.- Autorizase a la Asociación Juegos Deportivos Nacionales Cartago 98, cédula de persona jurídica N.° 3-002-204261-37, para que varíe el destino de la partida aprobada mediante la Ley N.° 7652, código presupuestario 117 -750-00-637-01-131-236-30, por el saldo de cuarenta y cinco millones cuatrocientos cuarenta y ocho mil ciento cuarenta y cinco colones con noventa y tres céntimos ( ¢ 45.448.145,93), a fin de que se giren al Comité Cantonal de Deportes y Recreación del cantón Central de Cartago, cédula de persona jurídica N.° 3-007-087562; estos dineros serán utilizados para las instalaciones deportivas del Centro de Formación Cultural y Deportivo - Polideportivo del cantón Central de la provincia de Cartago, de la siguiente manera:
+FINIQUITOS |
+Productos de Concreto (devolución de retención) | ¢ 5.940.963,32
+MECO (devolución de retención) | ¢ 1.400.000,00
+GARANTÍAS |
+Consejo Nacional de Producción | ¢ 300.000,00
+AMPLIACIONES |
+Construcción techo de cancha de tenis | ¢ 18.307.182,61
+Construcción graderías áreas canchas de tenis | ¢ 5.000.000,00
+Construcción cancha sjntética fútbol 5 | ¢ 10.000.000,00
+ADICIONES |
+Iluminación general del polideportivo | ¢ 2.000.000,00
+MEJORAS |
+Piso de piscina olímpica | ¢ 2.000.000,00
+Marcación canchas de gimnasio | ¢ 500.000,00
+TOTAL | ¢ 45.448.145,93
+Igualmente, los intereses ganados a la fecha serán repartidos en forma proporcional al anterior desglose.
+7.- Autorízase a la Municipalidad de Esparza para que varíe el destino de la partida aprobada mediante la Ley N.° 8050, código presupuestario 112-332-00-730-27-242-47-201, por un monto de un millón de colones (¢ 1.000.000,00) o el saldo que exista, destinada “Para cementado del camino al Centro de Nutrición de Esparza C.A.I.”, a fin de que se utilice para la reparación de calles en cindadela Los Laureles.
+8.- Autorízase a la Municipalidad de Esparza para que varíe el destino de la partida aprobada mediante la Ley N.° 8180, código presupuestario 106-054-03-730-27-242-27-227, por un monto de un millón de colones (¢ 1.000.000,00) o el saldo que exista, destinada “Para acondicionar el salón comunal de Sabana Bonita”, a fin de que se utilice para la construcción del salón comunal en Sabana Bonita.
+9. Autorízase a la Municipalidad de Esparza para que varíe el destino de la partida aprobada mediante la Ley N.° 8180, código presupuestario 106-054-03-730-27-242-27-236, por un monto de trescientos setenta y cinco mil colones (¢ 375.000,00) o el saldo que exista, destinada “Para la Asociación de Desarrollo Integral de Mojón y Mojoncito de Esparza, construcción y reparación de aceras peatonales de Mojón y Mojoncillo”, a fin de que se utilice para la construcción de la acera peatonal en Mojón-Mojoncito.
+10.- Autorízase a la Municipalidad de Esparza para que varíe el destino de la partida aprobada mediante la Ley N.° 8180, código presupuestario 106-054-03-730-27-242-27-235, por un monto de trescientos mil colones (¢ 300.000,00) o el saldo que exista, destinada “Para la Asociación de Desarrollo Integral de Mojón y Mojoncito de Esparza, reparación del salón comunal de Mojón”, a fin de que se utilice en el acondicionamiento de la Calle Humo-Artieda (Chumical).
+11.- Autorízase a la Municipalidad de Esparza para que varíe el destino de la partida aprobada mediante la Ley N.° 8050, código presupuestario 130-906-00-730-304-1-242-27, por un monto de dos millones de colones (¢ 2.000.000,00) o el saldo que exista, destinada al “Acondicionamiento Salón Comunal de Artieda, Distrito Espíritu Santo”, a fin de que se utilice en el acondicionamiento de la calle Humo-Artieda (Chumical).
+12.- Autorízase a la Municipalidad de Turrialba para que varíe el destino de la partida aprobada mediante la Ley N.° 7867, código presupuestario 130 902 730 495 27 242 45, por un monto de diez millones de colones (¢ 10.000.000,00), destinada a “Compra de tajo las Quebradas, Tayutic”, a fin de que del saldo disponible se utilicen doce millones de colones (012.000.000,00) para la compra del salón comunal Tayutic, y la diferencia se utilice para el arreglo de caminos vecinales del distrito de Tayutic.
+Rige a partir de su publicación.
+San José, a los diez días del mes de diciembre del dos mil cuatro.
