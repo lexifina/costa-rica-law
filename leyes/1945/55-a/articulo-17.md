@@ -1,7 +1,12 @@
-ARTICULO XVII. ENMIENDAS
-a) Toda iniciativa para modificar este acuerdo, ya sea que emane de un país asociado, de un gobernador o del Consejo Directivo, será comunicada al Presidente de la Junta de Gobierno, quien la someterá a ésta. Si la Junta aprueba la enmienda propuesta, el Fondo se dirigirá a todos los países asociados, por carta o telegrama circular, para conocer si la aceptan. Cuando la hayan aceptado las tres quintas partes de los asociados, que representen cuatro quintas partes de los votos, el Fondo lo certificará mediante una comunicación oficial a los asociados.
-b) No obstante lo dispuesto en el inciso a anterior, se requiere aprobación unánime en el caso de cualquier enmienda de:
-I) el derecho de separarse del Fondo (artículo XV, párrafo 1);
-II) la disposición en que se prevé que no se modificará la participación de un asociado sin su consentimiento (artículo III, párrafo 2);
-III) la disposición en que se prevé que no podrá modificarse la paridad de la moneda de un país salvo si lo propone ese país (artículo IV, párrafo 5, inciso b.)
-c) Las enmiendas entrarán en vigor para todos los asociados tres meses después de la fecha en que se comuniquen oficialmente, a menos que en la carta o telegrama circular se estipule un plazo más corto.
+ARTICULO XVII
+Países Participantes y Otros Tenedores de Derechos Especiales de Giro
+Sección 1.- Países participantes
+Todo país miembro del Fondo que deposite en éste un instrumento en el que declare que, de conformidad con sus propias leyes, asume todas las obligaciones que entraña su participación en el Departamento de Derechos Especiales de Giro, y que ha tomado todas las medidas pertinentes para poder cumplir todas esas obligaciones, pasará a ser participante en el Departamento de Derechos Especiales de Giro en la fecha en que deposite dicho instrumento; no obstante, ningún país miembro podrá ser participante antes de que hayan entrado en vigor las disposiciones de este Convenio sobre asuntos relacionados exclusivamente en el Departamento de Derechos Especiales y de que los países miembros a los que corresponda por lo menos el setenta y cinco por ciento del total de las cuotas hayan depositado los instrumentos a que se refiere esta Sección.
+Sección 2.- El Fondo como tenedor
+El Fondo podrá mantener derechos especiales de giro en la Cuenta de Recursos Generales y aceptarlos y usarlos en operaciones y transacciones con los países participantes, efectuadas por conducto de esa cuenta de conformidad con las disposiciones de este Convenio, o con tenedores designados con arreglo a los términos y condiciones establecidos en virtud de la Sección 3 de este Artículo.
+Sección 3.- Otros tenedores
+El Fondo podrá decidir:
+i) La designación como tenedores de derechos especiales de giro de países no miembros, países miembros que no sean participantes, instituciones que desempeñen funciones de banco central para más de un país miembro y otras entidades oficiales:
+ii) Los términos y condiciones en que se podrá permitir que los tenedores designados mantengan derechos especiales de giro y los acepten o usen en operaciones y transacciones con los países participantes y otros tenedores designados, y
+iii) Los términos y condiciones en que los países participantes y el Fondo, por conducto de la Cuenta de Recursos Generales, puedan efectuar operaciones y transacciones en derechos especiales de giro con tenedores designados.
+Se requerirá una mayoría del ochenta y cinco por ciento de la totalidad de los votos para las designaciones que se hagan con arreglo al inciso i). Los términos y condiciones que el Fondo establezca deberán ajustarse a las disposiciones de este Convenio y ser compatibles con el funcionamiento eficaz del Departamento de Derechos Especiales de Giro.

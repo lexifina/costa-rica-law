@@ -1,6 +1,9 @@
-ARTICULO XI. RELACION CON PAISES NO ASOCIADOS
-1. Obligaciones respecto a las relaciones con países no asociados.-Cada asociado se compromete:
-I) a no efectuar, ni permitir que sus agencias fiscales a las que se refiere el artículo V, párrafo 1, efectúen operaciones con países no asociados o con personas situadas en territorio de países no asociados, que sean contrarias a lo dispuesto en este Convenio o a los fines del Fondo;
-II) a no participar con países no asociados o con personas situadas en el territorio de países no asociados, en prácticas que sean contrarias a lo dispuesto en este Convenio o a los fines del Fondo;
-III) a cooperar con el Fondo a fin de dar efecto en su territorio a medidas adecuadas para impedir las operaciones con países no asociados o con personas situadas en el territorio de los mismos que sean contrarias a lo dispuesto en este Convenio o a los fines del Fondo.
-2. Limitación de operaciones con países no asociados.- Ninguna disposición de este Convenio afectará el derecho de los asociados a imponer restricciones a las operaciones cambiarias con los países no asociados o con personas situadas en territorio de los mismos, a menos que el Fondo juzgue que dichas restricciones perjudican los intereses de los asociados y son contrarias a los fines del Fondo.
+CAPITULO XI
+Relaciones con Países no Miembros
+Sección 1.- Obligaciones que han de observarse en las relaciones con países no miembros
+Los países miembros se comprometen a:
+i) No participar ni permitir que ninguno de sus organismos fiscales mencionados en la Sección 1 del artículo V participe en transacciones de ninguna clase con países no miembros o con personas que se hallen en los territorios de éstos cuando dichas transacciones sean contrarias a las disposiciones de este Convenio o a los fines del Fondo;
+ii) No cooperar con países no miembros ni con personas que se hallen en los territorios de éstos en prácticas que sean contrarias a las disposiciones de este Convenio o a los fines del Fondo, y
+iii) Cooperar con el Fondo con vista a que se apliquen en sus territorios medidas adecuadas para impedir transacciones con países no miembros o con personas que se hallen en los territorios de éstos cuando dichas transacciones sean contrarias a las disposiciones de este Convenio o a los fines del Fondo.
+Sección 2.- Restricciones a las transacciones con países no miembros.
+Nada de lo dispuesto en este Convenio afectará al derecho de los países miembros a imponer restricciones a las transacciones cambiarias con países no miembros o con personas que se hallen en los territorios de éstos, a no ser que el Fondo juzgue que tales restricciones son perjudiciales a los intereses de los países miembros y contrarias a los fines del Fondo.
