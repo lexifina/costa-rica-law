@@ -1,4 +1,7 @@
+(Derogado)
 Ley Nº 6821
+La presente norma ha sido DEROGADA EN SU TOTALIDAD por el inciso c) del artículo 127 de la Ley N° 8131 de 18 de septiembre de 2001,
+Ley de Administración Financiera de la República y Presupuestos Públicos.
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 La siguiente
@@ -7,4 +10,3 @@ Artículo 1º.- Créase una comisión denominada Autoridad Presupuestaria, cuyas
 a) Formular las directrices de la política presupuestaria del Sector Público, incluso en los aspectos relativos a inversión, endeudamiento y salarios.
 b) Velar por la ejecución de las políticas formuladas, una vez que hayan sido aprobadas por el Presidente de la República, en consulta con el Consejo de Gobierno.
 c) Controlar la eficacia en la ejecución de los presupuestos de las instituciones del Sector Público.
-(La Sala Constitucional mediante resolución N° 6345 del 06 de octubre de 1997, estableció respecto a este artículo que: “…sólo puede y debe interpretarse y aplicarse de conformidad con la sentencia de esta Sala # 330994 de las 15:00 horas del 5 de julio de 1994, con la advertencia de que las potestades de dirección y de coordinación allí previstas deben entenderse en todo caso reservadas al Poder Ejecutivo -Presidente de la República y Ministro del ramo…”. En sentido similar véase resolución de la Sala Constitucional N° 3309 del 05 de julio de 1994, que hace hincapié en lo que respecta a la sujeción de las entidades autónomas y descentralizadas, en lo que a materia de gobierno respecta.)
