@@ -1,0 +1,1 @@
+Artículo 19.-El funcionario que dejare pasar una situación como la anterior se hará acreedor de una sanción disciplinaria tal y como lo establece el Reglamento Autónomo de Trabajo en su artículo 57 y en lo que a esta materia se refiera la Convención Colectiva de Trabajo.

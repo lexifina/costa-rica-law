@@ -1,0 +1,1 @@
+Artículo 5º-El fondo se mantendrá en dinero efectivo y servirá para atender exclusivamente la adquisición de bienes y servicios en situaciones de verdadera urgencia y aquellos que por su naturaleza y monto se exceptúen de los trámites de la orden de compra.
