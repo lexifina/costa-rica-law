@@ -1,0 +1,1 @@
+Transitorio I.—Formatos de reportes de carteras de los fondos de inversión. Hasta el envío de la información con corte al 30 de marzo, los fondos de inversión deberán remitir en paralelo el reporte de carteras vigente y la plantilla de cartera del Anexo 17.

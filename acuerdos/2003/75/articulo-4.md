@@ -1,0 +1,2 @@
+Artículo 4. Prórroga para el suministro de información. Únicamente por circunstancias de fuerza mayor o caso fortuito se concederán prórrogas para el suministro de información. La solicitud deberá presentarse con anterioridad al vencimiento del plazo. La solicitud de la prórroga deberá indicar las circunstancias que motivaron la prórroga, deberá además realizarse por escrito al Superintendente y ser firmada por el representante legal de la entidad.
+(Artículo adicionado por el acuerdo del Superintendente SGV-A-85 el 3 de febrero del 2004)
