@@ -1,0 +1,1 @@
+Artículo 2°—Es sujeto activo de este impuesto, la Municipalidad de Nicoya, la cual para los efectos de la relación jurídico tributaria hará uso de las facultades y perrogativas que contempla el Código de Normas y Procedimientos Tributarios en su condición de Administración Tributaria de este impuesto.

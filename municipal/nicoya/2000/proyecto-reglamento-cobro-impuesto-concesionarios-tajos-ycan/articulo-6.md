@@ -1,0 +1,2 @@
+Artículo 6°—Los contribuyentes a que se refiere este Reglamento deberán presentar trimestralmente una declaración jurada que contenga la siguiente información: a) cantidad de metros cúbicos de arena, piedra, lastre y sus derivados vendidos durante el trimestre anterior, b) precio de venta de cada metro cúbico de los citados minerales y sus derivado; durante el trimestre anterior, c) montos del impuesto a pagar a Municipalidad de Nicoya.
+La declaración deberá presentarse en los primeros diez días hábiles después de cada trimestre declarado.

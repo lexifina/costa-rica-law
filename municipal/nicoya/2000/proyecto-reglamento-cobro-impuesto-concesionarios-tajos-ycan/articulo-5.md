@@ -1,0 +1,1 @@
+Artículo 5°—El valor de mercado de los productos antes descritos y sus derivados se determinará por el precio de venta final del producto el cual será estimado por el contribuyente o por la Municipalidad de Nicoya. El impuesto a pagar a la Municipalidad será del 10% de dicho valor.
