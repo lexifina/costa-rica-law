@@ -1,0 +1,1 @@
+Artículo 2º—Los fondos de caja chica serán confiados al Tesorero Municipal y éstos se mantendrán en la oficina de la persona a que le fueron confiados y en ningún momento podrán mezclarse con otros dineros.

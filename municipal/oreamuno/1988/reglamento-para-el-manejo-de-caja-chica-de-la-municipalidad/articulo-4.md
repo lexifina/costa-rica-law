@@ -1,0 +1,1 @@
+Artículo 4º—En caso de ausencia Prevista del encargado de la caja chica éste deberá entregar las existencias de dinero y justificantes en caja, mediante arqueo, el cual deberá ser fiscalizado por el Auditor Municipal, ya sea a la persona que sustituirá al cajero o en su defecto al Ejecutivo Municipal

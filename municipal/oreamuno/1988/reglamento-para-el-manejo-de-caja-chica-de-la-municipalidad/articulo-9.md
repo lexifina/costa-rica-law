@@ -1,0 +1,1 @@
+Artículo 9°—Todo adelanto de caja chica deberá de contener la autorización del Ejecutivo Municipal, la respectiva codificación presupuestaria que da fe de su ; contenido, y por ninguna circunstancia se aceptará adelanto o facturas que tengan Fecha anterior al último reintegro.
