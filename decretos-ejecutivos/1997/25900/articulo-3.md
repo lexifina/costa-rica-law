@@ -1,0 +1,1 @@
+Articulo 3°—Por la naturaleza de su actividad, la nomina de instituciones privadas cuya actividad corresponde a la educación abierta se publicará por separado para los efectos del articulo 26 del Reglamento sobre Centres Docentes Privados.

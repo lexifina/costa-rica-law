@@ -1,0 +1,1 @@
+Articulo 2°—Sin perjuicio de lo dispuesto en el articulo precedente, ratificanse las “autorizaciones” otorgadas por el Poder Ejecutivo o por Consejo Superior de Educación previas a la Sentencia Constitucional numero 3550 del 24 de noviembre de 1992.
