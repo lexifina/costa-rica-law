@@ -1,0 +1,1 @@
+Artículo 2°.- Esta obligación devengará un interés anual del seis por ciento (6%) y será a un plazo de cinco años, en amortizaciones de cuarenta mil colones (¢40,000.00), más los intereses correspondientes, y quedará garantizada con las entradas generales de la Municipalidad.
