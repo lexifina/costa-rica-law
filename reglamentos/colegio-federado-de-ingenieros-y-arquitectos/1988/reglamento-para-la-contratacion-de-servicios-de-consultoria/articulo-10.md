@@ -1,0 +1,1 @@
+Artículo 10—Normas de conducta profesional: El ejercicio profesional de consultoría implica un estricto apego a normas de conducta para con la profesión, para con los colegas y para con el cliente, establecidas en el Código de Etica Profesional.

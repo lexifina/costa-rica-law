@@ -1,0 +1,1 @@
+Artículo 9° - Cliente: Se define como cliente a toda persona física o jurídica. de carácter publico o privado, que requiera y solicite los servicios de consultoría a un profesional o empresa consultora en ingeniería o arquitectura
