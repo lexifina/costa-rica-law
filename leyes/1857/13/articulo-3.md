@@ -1,0 +1,1 @@
+Art 3°. - El Jefe de Policía de esta capital y los Gobernadores en las otras Provincias, son especialmente encargados de la ejecución del presente decreto, y obligados a dar cuenta a este Despacho, para ulteriores providenciales, de las personas que se ocupan del juego.
