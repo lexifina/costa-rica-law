@@ -1,1 +1,0 @@
-Artículo 2º.-La Comisión Nacional de Emergencia podrá solicitar cuando lo juzgue pertinente al Poder Ejecutivo la inclusión de otras zonas de desastre, sin perjuicio de las atribuciones que le confiere el artículo 14 del Reglamento de Emergencia Nacional, Nº 4020-T del 13 de agosto de 1974.

@@ -1,1 +1,0 @@
-Artículo 4º.-Se autoriza a las instituciones, entidades autónomas y empresas del Estado, así como a todo otro ente u órgano público, a prestar toda la ayuda y colaboración necesaria para la atención de esta emergencia nacional; debiendo coordinar la Comisión Nacional de Emergencia todas las actividades y acciones correspondientes.
