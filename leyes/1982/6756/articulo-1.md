@@ -177,6 +177,7 @@ Artículo 53.- La cooperativa deberá pagar una póliza de fidelidad que cubra a
 Artículo 54.- Los miembros del consejo de administración, de los comités y el gerente serán salvo en los casos de las cooperativas escolares, legalmente capaces conforme a las leyes y a los respectivos estatutos, que deberán exigir condiciones de solvencia moral para desempeñar tales puestos.
 Artículo 55.- Ni los miembros del consejo de administración, ni el gerente, ni los asociados y trabajadores al servicio de una cooperativa, podrán dedicarse por cuenta propia o ajena, a ninguna labor o negocio similar que tenga relación con el giro principal de la cooperativa y de actividades conexas o afines con ésta. Si lo hicieren, el comité de vigilancia, previa comprobación de los hechos, exigirá al culpable abandonar inmediatamente el cargo y si es un asociado, ordenará la suspensión provisional del mismo, mientras la asamblea resuelve en definitiva el caso.
 En las cooperativas deautogestión, la producción en huertas familiares que se destine al consumo directo de la familia del asociado, no tiene la calificación de competitiva. Sí lo son, en cambio, aquellos cultivos o actividades individuales que tengan por destino su venta o trueque a juicio de la asamblea general.
+(Nota de Sinalevi: De acuerdo con el dictamen C-081-1986 de 18 de abril de 1986, se concluyó que el artículo 55 de la N° 6756 del 05 de mayo de 1982, que es una reforma integral a la Ley de Asociaciones Cooperativas, está parcial e implícitamente derogado por la Ley de Asociaciones Solidaristas, N° 6970 del 7° de noviembre de 1984. Se precisa que el indicado numeral 55 fue derogado tácitamente, pero tan solo en lo tocante al punto de que los trabajadores de una cooperativa bien pueden afiliarse libremente a una asociación solidarista)
 CAPITULO V
 De los asociados
 Artículo 56.- Para ser miembro de una cooperativa se requiere poseer los requisitos o condiciones exigidos por los estatutos.
@@ -596,4 +597,6 @@ Artículo 184.- El Poder Ejecutivo estará obligado a incluir en el Presupuesto 
 La Contraloría General de la Repúblicafiscalizará el cumplimiento de la presente disposición.
 Artículo 185.- El Instituto Nacional de fomento Cooperativo deberá girar al Consejo Nacional de Cooperativas el monto correspondiente al 1.5% de su presupuesto de capital y operaciones, y un monto similar al Centro de Estudios y Capacitación Cooperativa, como apoyo a los programas de educación, capacitación y transferencia de tecnología al movimiento cooperativo.
 Durante 1986 el aporte citado será de un 2 %.
+El porcentaje respectivo deberá calcularse también sobre las modificaciones presupuestarias y cualquier otro ingreso extraordinario que se produzca.
+(Así adicionado el párrafo anterior por el artículo 188 de la ley N° 7083 del 25 de agosto de 1987, "Ley de Presupuesto Extraordinario")
 (Así adicionado por el artículo 40 de la ley N° 7040 del 25 de abril de 1986, "Ley de Presupuesto Extraordinario")
