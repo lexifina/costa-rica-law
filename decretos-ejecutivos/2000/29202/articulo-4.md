@@ -1,0 +1,1 @@
+Artículo 4°-El Ministerio de Hacienda girar el servicio correspondiente para el pago de los intereses sobre el saldo impagado de la deuda en colones de ½568.983.303,62 a partir del 1° de enero de 1999, para estos efectos se estar a lo dispuesto en el artículo 4° del Decreto Ejecutivo N° 28110-H.
