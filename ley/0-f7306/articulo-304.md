@@ -1,0 +1,3 @@
+Artículo 304.
+Los que habiendo obtenido autorización no llevaren libros con la debida formalidad, asentando en ellos, sin claros y entre renglones, las cantidades prestadas, los plazos é intereses, los nombres y domicilio de los que las reciben, la naturaleza, calidad y valórele los objetos dados en prenda y las demas circunstancias que exijan los reglamentos que deberán dictarse sobre la materia, incurrirán en las penas de multa de ciento uno á quinientos pesos y comiso basta cien pesos de las cantidades prestadas.
+Las mismas penas se impondrán á los que hagan la enajenación de las prendas sin ajustarse á lo que dispongan las leyes y reglamentos.

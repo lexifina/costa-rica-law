@@ -1,0 +1,6 @@
+Artículo 109.
+Las penas de deportación y presidio en San Lúcas pueden ser conmutadas por la de presidio interior mayor, y ésta y la de presidio interior menor, por las de reclusión mayor ó menor respectivamente, siempre que el Poder, á quien la ley confiere esta facultad, con conocimiento de causa, lo juzgare conveniente.
+Podrá también el mismo, conmutar cualquiera de las penas corporales, con las de extrañamiento ó confinamiento, en casos muy excepcionales, basados en motivos muy calificados. En este caso, el conmutado sufrirá doble tiempo de extrañamiento ó confinamiento del que se le designó en la pena primitiva.
+Por iguales razones podrá conmutarse cualquiera pena de crimen ó simple delito con multa.—En este caso, la cuantía para los crímenes será de mil uno á cinco mil pesos, y para los simples delitos, de ciento uno á mil pesos. El Poder, á quien la ley otorga esta facultad, graduará la suma atendiendo á la naturaleza del delito y principalmente á los recursos pecuniarios del solicitante.
+Para toda conmutación se pedirá informe á la Corte Suprema de Justicia, y cuando se verificare en multa, el agraciado estará sujeto á las prescripciones del artículo 108.
+No se comprenden en la conmutación las penas de inhabilitacion y suspensión.

@@ -1,0 +1,2 @@
+Artículo 410.
+El guardador que, en contravención de lo que dispone el Código Civil, antes dé la aprobación legal de sus cuentas, contrajere matrimonio ó prestare su consentimiento para que lo contraigan sus hijos ó descendientes con la persona que tuviere ó hubiere tenido en guarda, será castigado con reclusión menor en su grado medio ó multa de doscientos treinta y cuatro á trescientos sesenta y siete pesos.

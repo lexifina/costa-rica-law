@@ -1,0 +1,3 @@
+Artículo 249
+En las mismas penas del artículo anterior incurrirán cuando no cumplan las órdenes que legalmente se les comuniquen por las autoridades superiores competentes, á menos de ser evidentemente contrarias á las leyes, ó que haya motivo fundado para dudar de su autenticidad, ó que aparezca que se han obtenido por engaño ó se tema con razón que de su ejecución resulten males graves que el superior no pudo prever.
+En estos casos el tribunal, suspendiendo el cumplimiento de la órden, representará inmediatamente á la autoridad superior las razones de la suspensión; y si esta insistiere, le dará cumplimiento, librándose así de responsabilidad, que recaerá sobre el que la mandó cumplir.

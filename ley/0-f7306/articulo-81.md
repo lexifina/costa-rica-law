@@ -1,0 +1,3 @@
+Artículo 81.
+Al culpable de dos ó más delitos se le impondrá todas las penas correspondientes á las diversas infracciones.
+El sentenciado cumplirá todas sus condenas simultáneamente, siendo posible.-Si al ejecutarlas hubieren de resultar ilusorias algunas de las penas, las sufrirá en órden sucesivo, principiando por las más graves, ó sea las más altas en las escalas respectivas, excepto las de extrañamiento, confinamiento y destierro, las cuales se ejecutarán después de haber cumplido cualquiera otra pena de las comprendidas en las cuatro primeras del número I de la escala general ó en las tres primeras del número II de dicha escala.

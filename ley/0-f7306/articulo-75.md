@@ -1,0 +1,5 @@
+Artículo 75.
+Cuando la pena señalada por la ley consta de dos ó más grados, bien sea que los formen una ó dos penas indivisibles y uno ó más grados de otra divisible, ó diversos grados de penas divisibles, el tribunal al aplicarla podrá recorrer toda su extensión, si no concurren en el hecho circunstancias atenuantes ni agravantes.
+Habiendo una sola circunstancia atenuante ó una sola circunstancia agravante, no aplicará en el primer caso el grado máximo ni en el segundo el mínimo.
+Si son dos ó más las circunstancias atenuantes y no hay ninguna agravante, el tribunal podrá imponer la pena inferior en uno, dos ó tres grados al mínimum de los señalados por la ley, según sea el número y entidad de dichas circunstancias.-Cuando no concurriendo circunstancias atenuantes hay dos ó más agravantes, podrá imponer la inmediatamente superior en grado al máximum de los designados por la ley.-Si el grado máximo de los designados lo formare en tal caso la pena de deportación, se aplicará ésta precisamente.
+Concurriendo circunstancias atenuantes y agravanates, se observará lo prescrito en los artículos anteriores para casos análogos.

@@ -1,0 +1,3 @@
+Artículo 470.
+El que hallándose una especie mueble, al parecer perdida, cuyo valor exceda de diez pesos, no la entregare dentro de cuarenta y ocho horas á la autoridad ó á su dueño, siempre que le conste quién sea éste por hechos coexis- tentes ó posteriores al hallazgo, será considerado reo de hurto y castigado con presidio interior menor en su grado mínimo.
+También será considerado como reo de hurto y castillado con igual pena el que se hallare especies, al parecer perdidas o abandonadas á consecuencia-de naufragio, inundación, incendio, terremoto, accidente en ferro-carril ú otra causa análoga, y no las entregare á los dueños ó á la autoridad en su defecto.

@@ -1,0 +1,2 @@
+Artículo 212.
+El que hiciere desaparecer de estampillas de correos ú otras adhesivas, ó de boletas para el trasporte de personas ó cosas, la marca que indica que ya han servido, con el fin de utilizarlas; y el que á sabiendas expendiere ó usare estampillas ó boletas de las cuales se ha hecho desaparecer dicha marca, siempre que en uno ú otro caso el valor de tales estampillas ó boletas exceda de diez pesos, será castigado con reclusión menor en su grado mínimo.

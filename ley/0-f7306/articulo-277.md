@@ -1,0 +1,5 @@
+Artículo 277.
+El empleado que sin previa licencia ó sin haberle sido admitida la renuncia de su destino, lo abandonare, sufrirá las penas de suspensión en su grado mínimo á inhabilitación especial temporal para el cargo ú oficio en su grado medio y multa de ciento uno á doscientos treinta y tres pesos.
+Si renunciando el destino y antes de trascurrir un plazo prudencial en que haya podido ser reemplazado por el superior respectivo, lo abandonare con daño de la causa pública, las penas serán multa de ciento uno á doscientos treinta y tres pesos e inhabilitación especial temporal para el cargo ú oficio en su grado medio.
+La pena pecuniaria establecida en los dos incisos anteriores, se aplicará respectivamente al que abandonare un cargo concejil sin alegar excusa legítima; y al que después de haber alegado tal excusa, pero ántes de trascurrir un plazo prudencial en que haya podido ser reemplazado, hace el abandono ocasionando daño á la causa pública; todo sin perjuicio de apremiarlo corporalmente, hasta que se preste á desempeñar su encargo.
+Las disposiciones de este artículo han de entenderse sin perjuicio de lo establecido en el artículo 157.

@@ -1,0 +1,2 @@
+Artículo 145.
+Los que tocaren ó mandaren tocar campanas ú otro instrumento cualquiera para excitar al pueblo al alzamiento, y los que, con igual fin, dirigieren discursos á la muchedumbre ó le repartieren impresos, si la sublevación llega á consumarse, serán castigados con la pena de reclusión menor ó de extrañamiento menor en sus grados medios, á no ser que merezcan la calificación de promovedores.
