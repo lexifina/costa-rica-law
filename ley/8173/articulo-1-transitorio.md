@@ -1,0 +1,2 @@
+Transitorio I.—Los concejos municipales de distrito de Cervantes, Tucurrique, Colorado, San Isidro de Peñas Blancas, Lepante, Cóbano, Paquera y Monteverde, continuarán funcionando hasta el 31 de diciembre del 2002.
+Autorízase, a las municipalidades respectivas, la creación de concejos municipales de distrito en los distritos en los cuales han venido fungiendo dichos concejos, por simple acuerdo del concejo municipal.
