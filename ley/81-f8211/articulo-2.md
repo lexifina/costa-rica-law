@@ -1,0 +1,1 @@
+Art 2° Las apelaciones en los juicios verbales de Hacienda Municipal, serán del conocimiento de los Jueces de 1° Instancia civiles de las Provincias, y las de los juicios escritos compete al Tribunal Supremo de Justicia conforme a las leyes.

@@ -1,0 +1,1 @@
+Art 4° En los casos de enfermedad, licencia, escusa o recusación del Alcalde 2. Propietario, para los negocios de Hacienda Municipal, le subrogará el Alcalde 3. Propietario, y por impedimento de este uno de los Alcaldes suplentes.
