@@ -1,1 +1,2 @@
 Artículo 49.—De la consulta popular. De conformidad con el artículo 43 del Código Municipal se ordena la publicación en el Diario Oficial La Gaceta, para que dentro del término improrrogable de diez días se realice la consulta correspondiente, con el fin de que aquella persona que tenga algún interés se manifieste por escrito e indique las razones de la inconformidad, en la Secretaria del Palacio Municipal. Una vez transcurrido el citado plazo, se proceder a su publicación definitiva.
+(Así reformado por acuerdo tomado en Sesión N° 158 de 22 de agosto del 2000)

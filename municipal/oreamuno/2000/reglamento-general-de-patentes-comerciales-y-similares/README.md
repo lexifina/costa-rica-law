@@ -14,3 +14,4 @@ Reglamento general de patentes comerciales y similares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-06 | la propia norma |
+| 2 | 2000-08-22 | Reglamento municipal 158 (2000-08-22) |
