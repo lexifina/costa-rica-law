@@ -13,3 +13,4 @@ Reglamento Importación y Exportación de Perros y Gatos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1972-06-29 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
