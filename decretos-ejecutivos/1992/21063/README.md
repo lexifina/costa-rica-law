@@ -14,3 +14,4 @@ Reforma Tarifas Trasbordo Puntarenas-Playa Naranjo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-03-12 | la propia norma |
+| 2 | 1992-08-26 | Decreto Ejecutivo 21531 (1992-08-26) |
