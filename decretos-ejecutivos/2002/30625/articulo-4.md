@@ -1,1 +1,0 @@
-Artículo 4º—Dentro del marco de lo dispuesto en los artículos 1 y 2, la Comisión dictará los instructivos que sean necesarios para cumplir idóneamente su cometido, dentro del marco de presente Decreto.
