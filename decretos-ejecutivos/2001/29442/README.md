@@ -14,3 +14,4 @@ Pone en vigencia Resolución N° 73-2001 (COMEICO), Modificación al Arancel Cen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-04-01 | la propia norma |
+| 2 | 2001-11-01 | Decreto Ejecutivo 29954 (2001-11-01) |

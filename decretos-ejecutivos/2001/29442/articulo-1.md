@@ -582,5 +582,4 @@ de construcción inferior o igual a 75 m² II 15 15 10 0
 6/ Aperturas de Honduras, Nicaragua y Costa Rica.
 7/ DAI. meta.
 II.—Notas complementarias centroamericanas.
-Agregar el siguiente párrafo a la Nota A del Capítulo 63:
-"En el caso de El Salvador, la ropa usada comprendida en la subpartida no 6309.00.90 deberá estar debidamente lavada, planchada y será inspeccionada y fumigada previo a su desaduanaje, conforme a los procedimientos respectivos."
+(Mediante Decreto Ejecutivo N° 29954 de 1 de noviembre del 2001, se deja sin efecto lo relativo a notas complementarias centroamericanas)
