@@ -14,3 +14,4 @@ Reglamento de Cementerios de Pacayas y Capellades
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-12-27 | la propia norma |
+| 2 | 1978-02-28 | Reglamento municipal 185 (1978-02-28) |
