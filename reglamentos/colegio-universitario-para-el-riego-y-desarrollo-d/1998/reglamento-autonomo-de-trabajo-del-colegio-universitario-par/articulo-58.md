@@ -1,0 +1,1 @@
+Artículo 58.—Las ausencias al trabajo por enfermedad deberá justificarlas el empleado incapacitado ante su jefe inmediato mediante un certificado médico extendido por la Caja Costarricense de Seguro Social.

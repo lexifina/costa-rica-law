@@ -1,0 +1,1 @@
+Artículo 66.—El abandono podrá ser justificado, en casos muy calificados por el jefe inmediato, quien hará constar las razones que motiven la justificación en la tarjeta de asistencia o por medio del control que se establezca.

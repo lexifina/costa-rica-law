@@ -1,0 +1,3 @@
+Artículo 17.—No será considerado en ningún caso, el trabajo extraordinario ejecutado sin la autorización del Director Administrativo, a solicitud del jefe inmediato.
+En aquellos casos en que una jornada extraordinaria fuere autorizada, pero el servidor excediere en tiempo la misma, el exceso será reconocido previa comprobación del tiempo total por el jefe respectivo.
+Cuando una emergencia o la naturaleza del puesto así lo exijan, a juicio del patrono, todo servidor, salvo negativa justificada, está obligado a prestar sus servicios en cualquier parte del país, siempre que se le reconozcan los gastos de transporte, permanencia o viáticos y la jornada extraordinaria de servicio.

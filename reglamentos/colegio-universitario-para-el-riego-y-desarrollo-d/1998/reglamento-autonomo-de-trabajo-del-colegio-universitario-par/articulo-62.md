@@ -1,0 +1,1 @@
+Artículo 62.—Solo en casos muy calificados, a juicio del jefe inmediato con la aprobación del Jefe de Personal, y para efectos de no aplicar la sanción disciplinaria correspondiente, se justificarán las llegadas tardías.

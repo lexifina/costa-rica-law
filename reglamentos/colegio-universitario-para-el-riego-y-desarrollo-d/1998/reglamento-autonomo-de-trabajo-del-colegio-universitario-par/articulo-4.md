@@ -1,0 +1,1 @@
+Artículo 4°—Corresponde a la Dirección Administrativa la dirección superior de la administración del personal comprendido en este Reglamento, así como las específicas que el mismo determine. El servicio de personal es el encargado de la aplicación general de sus disposiciones y de asesorar a los representantes laborales en la materia.

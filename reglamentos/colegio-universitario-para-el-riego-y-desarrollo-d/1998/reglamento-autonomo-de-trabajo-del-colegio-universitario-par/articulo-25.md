@@ -1,0 +1,1 @@
+Artículo 25.—Los trabajadores gozarán sin interrupción del período de vacaciones, Estas pudran dividirse en tres períodos colectivos, como mínimo, lunes y martes Santo, vacaciones de medio período lectivo, vacaciones de principio y fin de año.

@@ -1,0 +1,1 @@
+Artículo 63.—La llegada tardía que exceda de 30 minutos a partir de la hora estipulada y que, ha juicio del jefe inmediato carezca de justificación, acarreará al trabajador la pérdida de la media jornada, equiparándose esta falta a la mitad de una ausencia para efectos de sanción y no pago de salario.

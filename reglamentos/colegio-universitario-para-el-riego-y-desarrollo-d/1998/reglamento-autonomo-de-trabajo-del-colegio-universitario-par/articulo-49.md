@@ -1,0 +1,1 @@
+Artículo 49.—Corresponde a los jefes inmediatos sancionar a sus subalternos cuando se hagan acreedores a una amonestación verbal o escrita, y enviar una copia al Servicio de Personal, y que se incluya en su expediente cuando la amonestación fuere escrita, o informar a tal Servicio cuando fuere verbal, según lo establece el Código de Trabajo.

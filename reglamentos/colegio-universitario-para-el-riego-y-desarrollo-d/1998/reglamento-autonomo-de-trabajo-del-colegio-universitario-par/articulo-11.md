@@ -1,0 +1,1 @@
+Artículo 11.—Quedarán excluidos de la limitación de la jornada que se establezca el artículo 10: el Decano, el Director Administrativo, el Director Académico, y todos aquellos servidores que se encuentren dentro de las situaciones previstas en el artículo 143 del Código de Trabajo, para quienes regirá una jornada de hasta 12 horas diarias y hora y media de descanso.

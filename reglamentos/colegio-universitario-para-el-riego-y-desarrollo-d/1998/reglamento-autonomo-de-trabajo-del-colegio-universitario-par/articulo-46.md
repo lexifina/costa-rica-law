@@ -1,0 +1,1 @@
+Artículo 46. — No obstante lo dispuesto en el artículo anterior, se dejará de imponer la sanción disciplinaria si el trabajador que por error marcó la tarjeta o registro de aquél a quien le marcaron la suya, informe del hecho al Servicio de Personal, a más lardar en el curso de la jornada de trabajo siguiente a aquella en que sucedió.

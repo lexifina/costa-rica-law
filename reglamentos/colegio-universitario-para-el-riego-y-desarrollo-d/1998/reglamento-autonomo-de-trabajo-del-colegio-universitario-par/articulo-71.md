@@ -1,0 +1,2 @@
+Artículo 71.—Cuando un trabajador considere que sus funciones han variado sustancialmente de manera permanente, podrá solicitar al Servicio de Personal la reasignación correspondiente, siempre y cuando cumplan con los requisitos del nuevo puesto.
+Transcurridos dos meses sin que el trabajador sea notificado, o en su caso si la resolución fuera desfavorable a sus pretensiones, podrá el interesado someter el caso a conocimiento del Director Administrativo o del Decano quienes deben de resolver en un plazo de un mes, la solicitud planteada por el interesado.

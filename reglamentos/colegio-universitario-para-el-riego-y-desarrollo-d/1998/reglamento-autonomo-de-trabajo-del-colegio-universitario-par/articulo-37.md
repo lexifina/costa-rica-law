@@ -1,0 +1,12 @@
+Artículo 37.—Además de lo estipulado en los artículos 69 y 70 del Código de Trabajo y las disposiciones que al efecto establezca el Colegio Universitario para el Riego y el Desarrollo del Trópico Seco son obligaciones del patrono:
+a. Adoptar las precauciones necesarias para proteger eficazmente la vida, la salud y la moralidad de sus trabajadores, conforme al Reglamento General da Seguridad e Higiene del Trabajo.
+b. Ofrecer facilidades y velar porque las labores de los trabajadores se realicen de acuerdo con los programas de actividades, sin dilaciones ni despilfarros.
+c. Disponer el local y comodidades mínimas para comidas, refrigerios de sus trabajadores.
+d. Proveer a los trabajadores de los útiles, materiales y equipo necesarios para el cumplimiento de sus labores.
+e. Dar los preavisos que este Reglamento establece en cuanto a medidas administrativas sobre cambios en el horario, labores en tiempo extraordinario, suspensión o supresión de recesos o, en general, aquellas que afecten el status o las condiciones tradicionales del trabajo.
+f. Retener quincenalmente, del salario del trabajador, las sumas que ordenan las autoridades competentes como resultados de sentencias. las cooperativas por concepto de ahorros y amortizaciones y el pago adelantado del impuesto sobre la Renta, cu atención a la respectiva manifestación de retenciones, igualmente las sumas correspondientes a lo establecido por las leyes sociales. Se excluye el décimo tercer mes salvo en cuanto a pensiones alimenticias.
+g. Pagar todo trábalo extra realizado por los trabajadores y reconocido como tal de acuerdo con las disposiciones contenidas en este Reglamento.
+h. Elaborar un calendario de pagos, conforme el artículo 29 del presente Reglamento y ceñirse al mismo.
+i. Girar por adelantado las sumas de dinero correspondientes por concepto de viáticos y/o transporte, a aquellos funcionarios que por la índole de sus funciones deban realizar giras.
+j. Mientras el Colegio Universitario para el Riego y el Desarrollo del Trópico Seco no cuente con medios de transporte adecuados, reconocer el kilometraje correspondiente a los funcionarios que deban realizar giras en asuntos propios de su labor y que para tal efecto utilicen su vehículo particular, previa autorización de la Dirección Administrativa.
+k. Suministrarle el uniforme al personal que por la índole de su trabajo deba usar esa indumentaria, vigilancia, chofer, conserjes, otros.

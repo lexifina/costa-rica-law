@@ -1,0 +1,1 @@
+Artículo 29.—Los pagos de sueldos se harán quincenal mente en la Sede del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco los días 14 y 28 de cada mes, al final de la primera jornada del día, excepto cuando estos días sean sábados, domingo o feriados, en cuyas circunstancias el pago se adelantará al día hábil inmediato anterior.

@@ -1,0 +1,1 @@
+Articulo 56.—Será causa de despido, además de las previstas en el artículo 81 del Código de Trabajo, y las previstas en este Reglamento, hacer del conocimiento en terceras personas, por culpa o negligencia absolutamente inexcusable, cualquiera de los informes o datos considerados de carácter confidencial del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco,

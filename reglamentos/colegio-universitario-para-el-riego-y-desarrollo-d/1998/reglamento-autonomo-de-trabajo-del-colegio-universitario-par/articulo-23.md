@@ -1,0 +1,1 @@
+Artículo 23.—El pago de las vacaciones se hará con base en el promedio de los sueldos ordinarios y extraordinarios devengados por el trabajador durante las cincuenta semanas de trabajo o por el tiempo proporcional que le diere derecho a las mismas, cuando el trabajador haya dejado de laborar y tenga a su favor algún saldo por ese concepto.

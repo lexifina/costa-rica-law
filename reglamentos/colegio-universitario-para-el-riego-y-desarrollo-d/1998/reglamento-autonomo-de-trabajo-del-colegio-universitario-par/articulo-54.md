@@ -1,0 +1,1 @@
+Artículo 54.—Las amonestaciones verbales o escritas deberán imponerse dentro de los ocho rifas posteriores a aquel en que se cometió la falta o que los representantes patronales la conocieron, así también las suspensiones o despido, en el transcurso del mes posterior al día en que se cometió la talla o los representantes patronales la conocieron.

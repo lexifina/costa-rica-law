@@ -1,0 +1,3 @@
+Articulo 8°—En toda contratación por tiempo indefinido, habrá un período de prueba hasta de tres meses, salvo que se convenga en un plazo menor. Durante este período y sin previo aviso cualquiera de las partes podrá dar por terminado el contrato o relación que los une.
+El período de prueba de tres meses se aplicará también en los casos de ascenso o traslado, de tal manera que el servidor ascendido o trasladado podrá ser reintegrado a su anterior ocupación o puesto cuando el representante patronal respectivo estime que no reúne satisfactoriamente las condiciones requeridas para el cabal desempeño del puesto en cuestión.
+La persona ascendida o trasladada gozará de permiso automático en el anterior puesto, por el tiempo que dure el período de prueba.

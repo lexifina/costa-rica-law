@@ -1,0 +1,1 @@
+Artículo 83.—Todas las licencias que se concedan a los trabajadores serán sin goce de salario, salvo a aquellos casos previstos por la Ley, este Reglamento y el Reglamento de capacitación y desarrollo de recurso humano.

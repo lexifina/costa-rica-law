@@ -1,0 +1,1 @@
+Articulo 26.—Para los efectos de vacaciones, no interrumpirán la continuidad del trabajo, los descansos otorgados legalmente las enfermedades justificadas, la prórroga o renovación inmediata del contrato de trabajo y otra causa análoga que no termine con éste.

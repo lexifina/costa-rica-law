@@ -1,0 +1,5 @@
+Artículo 2°—Para electos de este Reglamento, se entienden por:
+a) PATRONO: El Colegio Universitario para el Riego y el Desarrollo del Trópico Seco, con Sede en la Ciudad de Cañas y cuyas actividades principales las establece la ley 7403, el Decreto N° 23776 y demás reglamentos.
+b) REPRESENTANTE PATRONAL: El Decano, el Director Administrativo y toda aquella persona que debidamente autorizada, ejerza dentro del Colegio Universitario para el Riego y Desarrollo del Trópico Seco, íunciones de dirección administrativa, administración o mando.
+Los representantes patronales obligan al patrono en las relaciones que tengan con los trabajadores de la Institución como si éste personalmente hubiera realizado el acto o actos de que se trate.
+c) TRABAJADORES: Las personas físicas que presten a la Institución sus servicios materiales, intelectuales, o de ambos géneros, en forma subordinada y a cambio de una retribución o salario, sea en forma permanente o transitoria, y como consecuencia de una relación laboral o de un contrato de trabajo, verbal ü escrito, expreso o tácito, individual o colectivo.

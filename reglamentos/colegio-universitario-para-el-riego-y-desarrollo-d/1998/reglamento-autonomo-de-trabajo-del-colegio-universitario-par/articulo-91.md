@@ -1,0 +1,2 @@
+Artículo 91.El presente Reglamento, no perjudica los derechos jurídicamente adquiridos por los trabajadores de la Institución. Se presumirá de conocimiento de estos y será de observancia obligatoria para todos desde el día de su vigencia, inclusive para los que en el futuro trabajen para ella.
+La Institución se reserva el derecho de adicionar, o modificar en cualquier momento, las disposiciones de este Reglamento.

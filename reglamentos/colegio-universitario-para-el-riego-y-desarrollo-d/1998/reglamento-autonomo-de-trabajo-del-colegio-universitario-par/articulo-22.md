@@ -1,0 +1,1 @@
+Artículo 22.—El Servicio de Personal, con la colaboración de los jefes de Servicios, señalará la época y fecha en que los trabajadores disfrutarán de sus vacaciones, tal fijación se hace siguiendo lo estipulado por el artículo 155 del Código de Trabajo.

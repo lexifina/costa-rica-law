@@ -1,0 +1,1 @@
+Articulo 80.—El servicio de Personal del Colegio Universitario para el Riego y Desarrollo del trópico Seco está en la obligación de instruir a los trabajadores en el sentido indicado en el artículo anterior, según se determina en el párrafo segundo del articulo 255 del Código de Trabajo.

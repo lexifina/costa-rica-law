@@ -1,0 +1,3 @@
+Artículo 52. —Corresponde a la Jefatura del Servicio de Personal sancionar a los trabajadores, cuando se hagan acreedores a una suspensión de hasta ocho días sin goce de sueldo, una vez que se haya oído al Interesado y a los compañeros que el indique, en los siguientes casos:
+a. Cuando el trabajador, después de haber sido amonestado por escrito, incurra de nuevo en la falla que motivó la amonestación.
+b. Cuando el trabajador viole las prohibiciones establecidas en el artículo 40 de este Reglamento, después de haber sido advertido verbalmente o por escrito, salvo que la falta diere mérito para el despido por sí sola o estuviese sancionada de manera especial por otra disposición de este Reglamento y,

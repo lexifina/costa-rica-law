@@ -1,0 +1,1 @@
+Artículo 31.—Al acordarse recargo total de funciones, el trabajador sustituto, licué derecho a recibir el sueldo de base del puesto de categoría superior, si fuere mayor, de acuerdo con la norma vigente.

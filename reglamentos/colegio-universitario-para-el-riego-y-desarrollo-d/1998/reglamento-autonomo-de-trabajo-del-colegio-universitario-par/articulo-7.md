@@ -1,0 +1,4 @@
+Artículo 7°—Los Contratos de Trabajo serán:
+a. Por tiempo indefinido', que se llevarán a cabo con aquellos trabajadores indispensables para satisfacer las necesidades propias y permanentes de la Institución.
+b. Por tiempo determinado: que se celebrarán con aquellos servidores que se deban emplear temporalmente para ejecutar labores de quien o quienes se encuentren en vacaciones, incapacidades prolongadas, licencias, otras situaciones similares, así como en aquellos casos excepcionales en que su celebración resulte procedente conforme a la naturaleza de los servicios que se van a prestar.
+c. Por obra determinada: que se puedan celebrar para satisfacer necesidades que eventualmente se presenten en el Colegio Universitario para el Riego y Desarrollo del Trópico Seco y en el cual, sin previa fijación de tiempo, el objeto de la prestación personal del servicio subordinado será la misma obra producida.

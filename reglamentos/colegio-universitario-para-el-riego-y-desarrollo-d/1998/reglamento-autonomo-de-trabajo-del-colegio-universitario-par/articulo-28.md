@@ -1,0 +1,1 @@
+Artículo 28.—El presupuesto anual del Colegio Universitario para el Riego y el Desarrollo del Trópico Seco, incorporará la correspondiente relación de puestos, conforme las reglas fijadas en el artículo anterior.

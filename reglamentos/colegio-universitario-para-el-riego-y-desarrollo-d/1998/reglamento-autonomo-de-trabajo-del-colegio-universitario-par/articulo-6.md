@@ -1,0 +1,1 @@
+Artículo 6°—Los contratos de trabajo se harán en dos tantos: uno para la Institución, y el otro que se entregará al trabajador interesado, quien contará con un plazo de cinco días hábiles para su estudio y firma. Pasado ese período y si existiere negativa injustificada del trabajador para firmarlo, la institución queda facultada para proceder a la contratación de otro candidato.

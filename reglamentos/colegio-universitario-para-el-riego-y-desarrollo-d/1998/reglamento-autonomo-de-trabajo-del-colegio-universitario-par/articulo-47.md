@@ -1,0 +1,1 @@
+Artículo 47.—Las asistencias al Seguro Social, cuando sea en horas laborales, se concederán como licencias con goce de salario y deberán ser marcadas en el reloj contralor usando la tarjeta correspondiente o el respectivo registro de control de asistencia.

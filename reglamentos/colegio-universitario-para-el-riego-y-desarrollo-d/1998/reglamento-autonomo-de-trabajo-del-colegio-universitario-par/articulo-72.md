@@ -1,0 +1,1 @@
+Artículo 72.—Cuando un trabajador solicite el reconocimiento de la Carrera Profesional y la Dedicación Exclusiva, la resolución dictada por la instancia correspondiente, estará enmarcada en un intervalo de un mes a partir del momento que se presentó a petición.

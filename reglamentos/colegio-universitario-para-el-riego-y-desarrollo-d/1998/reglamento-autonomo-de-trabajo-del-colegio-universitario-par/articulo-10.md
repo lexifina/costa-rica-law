@@ -1,0 +1,1 @@
+Artículo 10.—El horario de la Institución será ajustado de acuerdo con las labores que desarrollará la Institución y la Dirección Administrativa, en acuerdo con el superior inmediato fijará los horarios de trabajo según lo señala el Código de Trabajo en cada caso.

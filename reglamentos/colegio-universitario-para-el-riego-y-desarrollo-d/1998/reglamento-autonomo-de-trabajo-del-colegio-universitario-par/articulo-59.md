@@ -1,0 +1,1 @@
+Artículo 59.—En casos calificados, previa justificación por escrito del trabajador, queda a juicio del jefe inmediato justificar ausencias que no sean por enfermedad comprobada, para efectos de evitar sanción disciplinaria, sin que ello signifique obligación al pago de salario.
