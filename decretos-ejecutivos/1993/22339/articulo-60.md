@@ -1,2 +1,4 @@
-Contratación alternativa o complementaria
-Artículo 60.-Las comisiones ejecutoras de CEMPASA y de FERTICA, alternativa o complementariamente a lo dispuesto en los artículos 58 y 59, ambos del presente Reglamento, pueden ejecutar, hacer cumplir o apoyarse técnica o administrativamente, en uno o más contratos de administración y servicios, con una o más empresas, a las cuales puede confiar algunas o todas las funciones del Director Ejecutivo, a que se hace mención en el artículo anterior y el artículo 57 de este Reglamento.
+Capítulo VII: Disposiciones Finales
+Normas supletorias
+Artículo 60.-La Ley de Administración Financiera de la República, la Ley General de la Administración Pública y el Reglamento de la Contratación Administrativa, se aplicarán en forma supletoria en todo lo no dispuesto expresamente por este Reglamento.
+(NOTA DE SINALEVI: Mediante el artículo 2° del decreto ejecutivo N° 22600 del 11 de octubre de 1993, se elimina el anterior artículo 60 del presente decreto ejecutivo y artículo 3° indica que de conformidad con lo establecido en el artículo 2° del decreto ejecutivo N° 22600, debe corregirse la numeración, por lo que el antiguo artículo 61 pasó al artículo 60 actual).
