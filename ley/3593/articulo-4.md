@@ -1,0 +1,2 @@
+Artículo 4º.- El costo de mejoras, inversiones y servicios que el Consejo Nacional de Producción realice en fincas cuyos propietarios sean los beneficiarios de las obras, se reembolsará al Consejo Nacional de Producción por los intersados a través de un plan de crédito a mediano o largo plazo, que será reglamentado por esa Institución.
+Autorízase al Consejo Nacional de Producción para que venda las maquinarias, equipos y accesorios que adquiera de acuerdo con lo que dispone esta ley, una vez satisfechas las necesidades para las cuales los obtuvo.
