@@ -1,0 +1,1 @@
+Artículo 27.—No se deberán dejar los conductores en el suelo, especialmente en lugares de paso, y se impedirá que tengan contacto con agua, aceites o grasas que deterioren la goma, o al menos deberán protegerse con una banda de hule que evite su maltrato por el tránsito de personas.

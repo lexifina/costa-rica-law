@@ -1,0 +1,1 @@
+Artículo 26.—Se evitará la instalación de empalmes expuestos o dentro de tuberías; asimismo, los existentes se asegurarán y revisarán al máximo, a fin de evitar que produzcan cortocircuitos que puedan ocasionar accidentes o hasta un incendio.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Electricidad
+Artículo 24.—Todas las líneas conductoras de energía eléctrica dentro de los lugares de trabajo, deberán estar protegidas, aisladas y en condiciones de ofrecer la mayor seguridad. Las líneas conductoras de energía deben estar colocadas fuera del alcance o contacto inmediato del personal, maquinaria o cualquier artefacto, y deberán conservarse completamente protegidas, según las normas de seguridad y los detalles constructivos establecidos en el Código Eléctrico Nacional vigente a la fecha, aprobado por el CFIA y reconocido por la INTECO Nº 31-08-06-97, publicada en La Gaceta de 28 de octubre de 1998, Alcance Nº 68, "Compendio de normas técnicas para la prevención de riesgos laborales".

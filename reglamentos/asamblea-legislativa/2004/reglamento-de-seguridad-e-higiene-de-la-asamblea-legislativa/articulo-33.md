@@ -1,0 +1,1 @@
+Artículo 33.—El traje o uniforme de trabajo para los electricistas, deberá estar confeccionado de tal forma que les permita flexibilidad y seguridad, tanto en el material como el diseño, y deberá incluir el uso de guantes y zapatos.

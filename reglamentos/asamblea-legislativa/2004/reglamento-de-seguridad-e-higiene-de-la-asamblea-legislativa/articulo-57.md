@@ -1,0 +1,1 @@
+Artículo 57.—En los lugares de trabajo donde laboren hombres y mujeres deberán existir servicios sanitarios independientes y separados, los cuales deberán mantenerse protegidos del ingreso de vectores de interés sanitario, y en buen estado de funcionamiento y limpieza.

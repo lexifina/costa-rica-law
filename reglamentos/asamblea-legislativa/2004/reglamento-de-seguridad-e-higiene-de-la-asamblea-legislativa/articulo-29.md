@@ -1,0 +1,1 @@
+Artículo 29.—No debe efectuarse ningún trabajo en las líneas conductoras de energía, sin la seguridad de que han sido totalmente desconectadas. Simultáneamente, deben aislarse las secciones donde se trabaje y tomarse las medidas necesarias para que no se efectúe de nuevo la conexión, en tanto no se hayan concluido los trabajos.

@@ -1,0 +1,1 @@
+Artículo 31.—Es conveniente que las instalaciones eléctricas estén siempre limpias y posean los medios de protección correspondientes. En los tableros de distribución, todos los elementos con voltaje estarán en un compartimiento cerrado con llave. El piso situado inmediatamente debajo de los cuadros eléctricos, estará provisto de plataformas o alfombras de material aislante.

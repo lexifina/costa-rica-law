@@ -1,0 +1,1 @@
+Artículo 19.—Se realizará una limpieza periódica y la renovación, en caso necesario, de lámparas, difusores y focos que iluminen los diferentes lugares de trabajo, para asegurar su constante transparencia.

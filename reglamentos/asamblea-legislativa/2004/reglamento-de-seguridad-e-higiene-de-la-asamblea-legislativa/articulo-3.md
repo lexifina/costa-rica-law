@@ -1,0 +1,1 @@
+Artículo 3º—Las normas aquí contenidas abarcan los requisitos más importantes que se deben cumplir en materia de seguridad ocupacional e higiene, para proteger tanto a funcionarios y terceras personas, como las instalaciones de la Institución. Su aplicación es obligatoria para todos los funcionarios de la Asamblea Legislativa.

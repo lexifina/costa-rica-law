@@ -1,0 +1,1 @@
+Artículo 41.—Deberá contarse con un sistema de alarma acústica con sonido diferente de los demás sonidos acústicos y con luz piloto para las personas sordas, u otro método que se utilice para personas con discapacidad, con el propósito de que se pueda identificar plenamente, además de que sea posible escucharlo en toda la Institución.

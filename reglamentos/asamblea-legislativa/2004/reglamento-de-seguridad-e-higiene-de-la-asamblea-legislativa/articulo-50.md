@@ -1,0 +1,1 @@
+Artículo 50.—Se prohíbe el ingreso de comidas o bebidas en los locales donde se encuentran sustancias químicas, así como fumar en dichos lugares y omitir el uso del equipo de protección cuando sea necesario.

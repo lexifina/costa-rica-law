@@ -1,0 +1,1 @@
+Artículo 28.—Los interruptores deben mantenerse en buen estado y siempre serán colocados sobre material aislante; nunca se ubicarán directamente sobre madera, metales o muros. Debe existir el debido cuidado de no accionar los interruptores con las manos o pies húmedos, a fin de evitar una descarga.

@@ -1,0 +1,1 @@
+Artículo 11.—Se deben mantener los pasillos y corredores libres de ceras, grasas u otras materias resbaladizas; además, deberán estar libres de objetos que puedan obstruir el paso y provocar algún tipo de accidente. La superficie de los pisos debe ser llana para que permita la circulación y el acarreo de materiales con seguridad.

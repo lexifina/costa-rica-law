@@ -1,0 +1,1 @@
+Transitorio IV.—La Unidad de Mantenimiento definirá el tipo de traje que deberán utilizar sus funcionarios para el desarrollo de su trabajo, conforme a las necesidades institucionales; con tal fin, el costo correspondiente se presupuestará para el año siguiente a la aprobación del presente Reglamento.

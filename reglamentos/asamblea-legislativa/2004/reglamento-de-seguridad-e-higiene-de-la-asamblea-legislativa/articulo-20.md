@@ -1,0 +1,1 @@
+Artículo 20.—Para la relación entre los valores mínimos y máximos de iluminación media de luz, se utilizará la Norma INTECO Nº 31-08-06-97, publicada en La Gaceta de 28 de octubre de 1998, Alcance Nº 68, "Compendio de normas técnicas para la prevención de riesgos laborales".

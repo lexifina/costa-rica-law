@@ -1,0 +1,1 @@
+Artículo 52.—Cuando trabajen hombres y mujeres, los vestidores deberán ser independientes y separados. En este recinto deberán disponerse los casilleros guardarropas, que deberán estar en buenas condiciones, ventilados y en número igual o superior al total de trabajadores ocupados en el trabajo o faena.

@@ -1,0 +1,1 @@
+Artículo 44.—Las escaleras de tijeras (de abrir) estarán provistas de cadenas o cables que impidan su abertura total al momento de utilizarlas, y de topes en su extremo superior. Las escaleras defectuosas deberán repararse inmediatamente o en su defecto eliminarse, a fin de evitar accidentes.

@@ -1,0 +1,1 @@
+Artículo 34.—Toda herramienta que se utilice para la reparación o cualquier otro trabajo en electricidad, deberá contar con un mango aislante eficaz. Asimismo, se incluirá siempre una prueba de circuitos dentro de las herramientas de trabajo.

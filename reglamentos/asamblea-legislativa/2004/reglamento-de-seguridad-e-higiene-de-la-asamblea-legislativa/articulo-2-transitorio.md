@@ -1,0 +1,1 @@
+Transitorio II.—La Administración capacitará o inducirá en procesos de información a todo el personal, para hacer de conocimiento este Reglamento, su aplicación y cualquier otra normativa relacionada; con tales propósitos, establecerá dentro de sus programas anuales de capacitación, temas de motivación para el uso y la aplicación de este Reglamento.

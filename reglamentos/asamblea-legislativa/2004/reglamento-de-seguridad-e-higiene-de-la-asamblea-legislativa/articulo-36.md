@@ -1,0 +1,1 @@
+Artículo 36.—Los extintores deberán distribuirse convenientemente según los puestos de trabajo con mayor riesgo de incendio, además de colocarse en sitios de fácil acceso y clara identificación, libres de cualquier obstáculo, y estarán en condiciones de funcionamiento máximo.

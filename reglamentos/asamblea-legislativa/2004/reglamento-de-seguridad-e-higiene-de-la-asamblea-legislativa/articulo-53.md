@@ -1,0 +1,1 @@
+Artículo 53.—Cuando por la naturaleza o modalidad del trabajo que se realice los trabajadores requieran consumir alimentos en el sitio de trabajo, se dispondrá de un comedor para este propósito, el cual estará completamente aislado de las áreas de trabajo y de cualquier fuente de contaminación ambiental, y deberá mantenerse en condiciones higiénicas adecuadas.

@@ -1,0 +1,1 @@
+Artículo 18.—La iluminación complementaria se dispondrá de tal modo que evite el deslumbramiento, además de intensificarse en lugares peligrosos de tránsito con riesgo de caídas, escaleras y salidas de emergencia.

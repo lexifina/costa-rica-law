@@ -1,0 +1,1 @@
+Artículo 22.—Se prohíbe el empleo de fuentes de luz que produzcan oscilaciones en la emisión del flujo luminoso, en aquellos sitios estratégicos y de mayor peligro o difícil acceso, en áreas de seguridad y zonas de uso para personas con discapacidad.
