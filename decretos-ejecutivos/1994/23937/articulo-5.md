@@ -1,0 +1,3 @@
+Artículo 5º.-Recodifícase los artículos 2º y 3º de la Ley Nº 7439 de
+4 de octubre de 1994, publicado en "La Gaceta" Nº 201 del 24 de octubre
+de 1994, en la forma que se indica a continuación: ...
