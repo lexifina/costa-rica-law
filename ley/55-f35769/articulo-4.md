@@ -1,0 +1,3 @@
+Art. 4-Siendo diferente el sistema que va á emplear el señor Volio al observado en este país, es entendido que su privilegio no impide en manera al- guna la explotación ó laboreo de sal marina por los procedimientos que en la actualidad se emplean, ni por otros que difieran de los señalados en el pliego que debe depositarse.
+AL PODER EJECUTIVO.
+Dado en el Palacio Nacional, en San José, á los nueve días del mes de julio de mil ochocientos ochenta y nueve.-MANL. ARAGÓN.-F. AGUILAR B., Secretario.-FÉLIX GONZÁLEZ, Secretario: Palacio Presidencial.-San José, diez y nueve de julio de mil ochocientos ochenta y nueve.-Ejecútese.-ASCENSIÓN ESQUIVEL. El Secretario de Estado en el despacho de Fomento.-TOBÍAS ZÚÑIGA.
