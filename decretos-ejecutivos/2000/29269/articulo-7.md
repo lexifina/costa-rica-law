@@ -1,0 +1,2 @@
+Artículo 7º—Para la evaluación de las solicitudes, a los efectos de definir la asignación de las respectivas cuotas, el Ministerio de Agricultura y Ganadería se basará en el estudio técnico del Instituto Costarricense de Pesca y Acuacultura.
+El Ministerio de Agricultura y Ganadería y el INCOPESCA podrán requerir a las empresas participantes toda la información que razonablemente sea necesaria para evaluar las solicitudes.

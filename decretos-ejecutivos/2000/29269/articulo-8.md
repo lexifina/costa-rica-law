@@ -1,0 +1,1 @@
+Artículo 8º—La cuota que se asigne a las empresas industrializadoras de atún no constituirá derecho adquirido alguno y estará sujeta a revisión anual por parte del Poder Ejecutivo, en atención a la cuota global a que tenga derecho el país y al número de empresas industrializadoras que puedan tener derecho a participar en la cuota.
