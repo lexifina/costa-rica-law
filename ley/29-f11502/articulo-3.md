@@ -1,0 +1,3 @@
+Art 3° Se prohíbe a los directores, escribientes y porteros de los Juzgados, bajo la misma pena, gestionar por cualquiera de las partes que litiguen, y aconsejarlas o dirigirlas en los asuntos que se ventilen ante el Juez que dirijan, o de quien son dependientes- A la Cámara de Representantes. Dado en el Salón de Sesiones. Palacio Nacional, San José, julio veintiocho de mil ochocientos sesenta y seis.
+Poder Ejecutivo. – Sala de la Cámara de Representantes, Palacio Nacional, San José a los veintinueve de julio de mil ochocientos sesenta y seis.
+Palacio Nacional. - San José, julio treinta y uno de mil ochocientos sesenta y seis.
