@@ -1,0 +1,3 @@
+Artículo 176.- Derogatorias
+Deróguense los siguientes decretos ejecutivos Nº 14330-S del 23 de febrero de 1983, Nº 22980-SP-G del 1º de marzo de 1994, Reglamento Autónomo de la Academia de la Fuerza Pública, Nº 22204-SP del 21 de abril de 1993. Reglamento para la Adjudicación de Becas y otras facilidades de Adiestramiento para los miembros de la Fuerza Pública, Nº 15985-SP del 23 de enero de 1985, Nº 161-88-MSP del 2 I de abril de 1988, Nº 12757 del 15 de junio de 1981, Reglamento Autónomo de Servicio de la Guardia de Asistencia Rural y demás disposiciones que se le opongan.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 24538 del 31 de julio de 1995, que lo pasó del anterior artículo 167 al 176 actual)
