@@ -14,3 +14,4 @@ Reglamento de los Comités de Nutrición y de la Participación Comunal en los C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-08-05 | la propia norma |
+| 2 | 1988-07-11 | Decreto Ejecutivo 18321 (1988-07-11) |
