@@ -19,3 +19,4 @@ Adiciona artículo a la reforma del decreto que establece el monto de dietas a l
 | 4 | 1998-03-11 | Decreto Ejecutivo 26872 (1998-03-11) |
 | 5 | 1999-03-10 | Decreto Ejecutivo 27761 (1999-03-10) |
 | 6 | 1999-10-01 | Decreto Ejecutivo 28234 (1999-10-01) |
+| 7 | 2000-05-03 | Decreto Ejecutivo 28661 (2000-05-03) |
