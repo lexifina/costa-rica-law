@@ -1,0 +1,1 @@
+Artículo 18.—Aplicación irrestricta de esta Ley. Los procedimientos establecidos en esta Ley para cobrar el impuesto de patentes, no excluirán las actividades sujetas a licencias que, por características especiales, sean objeto de gravámenes impositivos creados por leyes específicas de alcance nacional.

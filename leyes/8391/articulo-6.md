@@ -1,0 +1,1 @@
+Artículo 6º—Copia de la declaración de la renta. Los patentados declarantes del impuesto sobre la renta deberán presentar ante la Municipalidad, junto con la declaración jurada municipal, copia de la declaración de la renta, sellada por la Dirección General de Tributación.

@@ -1,0 +1,2 @@
+Artículo 8º—Documentos requeridos para la declaración jurada
+municipal. Los patentados que no sean declarantes del impuesto de renta para realizar la declaración jurada municipal deberán presentar una fotocopia del último recibo del pago de planilla de la Caja Costarricense de Seguro Social (CCSS), o una constancia de la agencia respectiva de esa Institución, sobre el total de salarios declarados o, en su defecto, una nota donde expliquen las razones que los eximen de cotizar para la CCSS.

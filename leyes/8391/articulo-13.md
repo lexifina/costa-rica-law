@@ -1,0 +1,1 @@
+Artículo 13.—Impuesto determinado de oficio. La calificación de oficio efectuada por la Municipalidad, se realizará tomando como referencia actividades similares de otros patentados; dicha calificación deberá ser notificada al contribuyente por medio de la oficina encargada, con las observaciones o los cargos que se le formulen y las infracciones que estime haya cometido.
