@@ -16,3 +16,4 @@ Directrices de política presupuestaria del 2005 para los ministerios, demás ó
 | 1 | 2004-03-29 | la propia norma |
 | 2 | 2004-05-06 | Decreto Ejecutivo 31851 (2004-05-06) |
 | 3 | 2004-06-03 | Decreto Ejecutivo 31861 (2004-06-03) |
+| 4 | 2004-07-13 | Decreto Ejecutivo 31995 (2004-07-13) |

@@ -28,7 +28,7 @@ Consejo Nacional de Producción | Materias Primas y Mercaderías del Programa Ab
 Consejo Técnico Asistencia Médico Social | Transferencia al Inciensa según Ley N° 5412 y sus reformas. Transferencia a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, según Ley N° 5412, Ley Orgánica del Ministerio de Salud.
 Correos de Costa Rica | Canon de la ARESEP
 Dirección General de Aviación Civil | Transferencia al Instituto Meteorológico Nacional según Ley N° 5222
-Editorial Costa Rica | Impresión y encuadernación Derechos de autor en el Programa Producción y Difusión.
+Editorial Costa Rica | Impresión y encuadernación Derechos de Autor en el Programa Producción y Difusión Pago de Comisiones (Así adicionado por el artículo 2° del decreto ejecutivo N° 31995 del 13 de julio de 2004.)
 Fábrica Nacional de Licores (FANAL) | Materia Prima . Impuesto IDA Impuesto IFAM. Transferencia al IAFA según Ley N° 7035. Transferencia al CNP, por Margen de Comercialización según Ley N° 6050. Transferencia al CNP, por Utilidad Neta y Ventas Proyectadas según Ley N° 6050.
 Fondo Forestal | Transferencias al Fondo Nacional de Financiamiento Forestal (Así adicionado por el artículo 1° del decreto ejecutivo N° 31861 del 3 de junio de 2004)
 Fondo de Parques Nacionales | Transferencias al Convenio MINAE-Municipalidad de Aguirre y a la Comisión Nacional de Gestión para la Biodiversidad (Así adicionado por el artículo 1° del decreto ejecutivo N° 31861 del 3 de junio de 2004)
