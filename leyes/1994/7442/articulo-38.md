@@ -1,10 +1,12 @@
-ARTICULO 38.- De los alcaldes penales que actúan como agentes
-fiscales. Los alcaldes penales que actuaren en funciones de agente
-fiscal, de conformidad con la ley, se considerarán siempre delegados de
-éste y le deberán comunicar, de inmediato, la iniciación de las
-diligencias que no podrán retener una vez cumplido el plazo legal.
-La agencia fiscal correspondiente deberá llevar un registro de esas
-informaciones, a fin de velar porque se cumpla con su remisión
-inmediatamente después de vencido el plazo de ley.
-En cualquier momento, el agente fiscal puede continuar
-personalmente las diligencias.
+Artículo 38.- Funciones del administrador. Corresponde al
+administrador realizar las tareas de administración y organización que le
+encomiende su superior, así como asesorarlo en los aspectos
+administrativos y presupuestarios.
+Además de lo indicado, tendrá a su cargo el archivo general, la
+organización y supervisión de las unidades o secciones administrativas y
+expedirá certificaciones.
+Será también el enlace entre la jefatura y los demás órganos,
+oficinas y servidores del Ministerio Público.
+A su cargo estará la recepción y distribución de documentos y
+comunicaciones, así como la atención del público en la sede de la
+Fiscalía General.

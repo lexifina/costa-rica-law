@@ -1,6 +1,10 @@
-ARTICULO 21.- Organos asesores. EL Fiscal General podrá convocar a
-fiscales y agentes fiscales para consultarles sobre la política general
-que debe seguir el Ministerio Público, recomendar modificaciones o
-rectificaciones o estudiar asuntos de interés, con respecto a las
-funciones que les son propias y para uniformar las actuaciones del
-Ministerio Público.
+Artículo 21.- Estructura básica. El Ministerio Público se organizará
+en fiscalías adjuntas, que actuarán en un determinado territorio o por
+especialización, según se requiera para un buen servicio público. Serán
+creadas por la Corte Plena a propuesta del Fiscal General y podrán ser
+permanentes o temporales.
+A las fiscalías adjuntas se adscribirán las fiscalías y las
+fiscalías auxiliares necesarias, según la actividad o el territorio en
+que deban cumplir sus funciones.
+Estas oficinas tendrán el personal de apoyo indispensable para
+desempeñar, adecuadamente, su función.

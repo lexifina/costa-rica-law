@@ -1,6 +1,7 @@
-ARTICULO 44.- Trámite de la recusación. La recusación deberá ser
-presentada ante el tribunal en que está actuando el funcionario; pero,
-si se tratare del agente fiscal en la práctica de la información sumaria
-de citación directa, la recusación será presentada ante el juez de
-instrucción correspondiente.
-Aceptada la recusación, el Fiscal General designará el sustituto.
+CAPÍTULO IX
+DISPOSICIONES VARIAS
+Artículo 44.- De los recursos. El Poder Judicial proveerá las
+necesidades materiales del Ministerio Público; para dicho efecto este le
+presentará, a la Comisión de Presupuesto, un anteproyecto de presupuesto
+para el ejercicio fiscal siguiente, en el que se garanticen los recursos
+necesarios para un eficiente servicio.

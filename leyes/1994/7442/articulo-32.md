@@ -1,14 +1,8 @@
-ARTICULO 32.- Convocatoria del agente fiscal. Los fiscales del
-tribunal de juicio podrán llamar al agente fiscal que formuló el
-requerimiento de elevación a juicio, para que intervenga en el juicio, a
-tenor de lo dispuesto en el artículo 40 del Código de Procedimientos
-Penales, dando cuenta de ello al Fiscal General.
-También podrán llamarlo por imposibilidad justificada de actuar,
-por impedimento no previsto o porque tengan tareas impostergables que
-cumplir de su propia función el mismo día fijado para el debate.
-Los fiscales no podrán llamar al agente fiscal en caso de
-desacuerdo con su requerimiento, fuera del plazo de citación a juicio ni
-tampoco después del ofrecimiento de pruebas.
-Si los fiscales han solicitado, dentro del plazo señalado, que se
-llame al agente fiscal, el tribunal reservará para este funcionario la
-audiencia respectiva.
+Artículo 32.- Unidades especializadas. El Fiscal General podrá crear
+unidades especializadas que actuarán, temporalmente, en parte o en todo
+el territorio nacional, en forma conjunta o separada con las fiscalías de
+la circunscripción correspondiente.
+Dichas unidades podrán ser designadas en relación con uno o varios
+casos, o para funciones específicas.
+A estas unidades podrán adscribirse los investigadores policiales
+que designe el Fiscal General.

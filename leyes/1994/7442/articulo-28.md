@@ -1,10 +1,6 @@
-ARTICULO 28.- Nombramiento. Corresponde al Fiscal General el
-nombramiento de los fiscales y agentes fiscales. Cuando se produzca una
-vacante o se conceda licencia por más de seis meses, la plaza se sacará
-a concurso, salvo que se proceda al ascenso de otro servidor conforme al
-inciso r) del artículo 24.
-En todo caso, deben aplicarse las reglas que sobre preferencia
-señala el Estatuto de Servicio Judicial. Además, el funcionario por
-nombrar no debe ser cónyuge ni estar ligado por parentesco de
-consanguinidad o afinidad, en línea directa o colateral hasta el tercer
-grado inclusive, con ningún funcionario que administre justicia.
+Artículo 28.- Del régimen disciplinario. Los funcionarios y
+empleados del Ministerio Público estarán sometidos al régimen
+disciplinario y laboral que establece la ley Orgánica del Poder Judicial.
+Sin embargo, corresponde al Fiscal General conocer del recurso de
+apelación de la resolución del Tribunal de la Inspección Judicial que
+revoque el nombramiento a un fiscal adjunto, fiscal o fiscal auxiliar.

@@ -1,13 +1,12 @@
-CAPITULO VII
-DE LAS RECUSACIONES E INHIBICIONES
-ARTICULO 43.- Causales y excepciones. Los funcionarios del
-Ministerio Público deberán inhibirse y podrán ser recusados por las
-mismas causales que enumera la Ley Orgánica del Poder Judicial y el
-artículo 29 del Código de Procedimientos Penales, con excepción de los
-motivos previstos en los incisos 7, primera parte, y 8.
-No será motivo de inhibición ni de recusación el haber intervenido
-en el proceso como funcionario del Ministerio Público. Sí lo será para
-el fiscal de juicio, el haber denegado el tribunal la nulidad del
-requerimiento de elevación a juicio o de citación directa solicitada por
-ese funcionario, y para el agente fiscal, cuando él no sea el autor del
-requerimiento cuestionado.
+Artículo 43.- Recusación. Cuando se estime que procede la recusación
+de un fiscal, cualquiera de las partes podrá solicitarle, mediante
+petición fundada, que se inhiba de conocer el asunto. Si el fiscal la
+acoge procederá conforme a lo dispuesto para la excusa.
+Si el fiscal no acogiere la recusación inmediatamente, procederá a
+remitirla al tribunal en que esté actuando, junto con las razones por las
+que no la aceptó. El tribunal, sin mayor trámite, procederá a resolver lo
+pertinente. Si el asunto se encuentra en investigación fiscal, la
+recusación será presentada ante el tribunal de la etapa preparatoria.
+Si el tribunal admitiere la recusación lo comunicará al superior
+inmediato del recusado, para que lo sustituya y, si es necesario, proceda
+conforme establece el régimen disciplinario.

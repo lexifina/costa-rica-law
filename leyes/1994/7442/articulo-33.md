@@ -1,15 +1,9 @@
-ARTICULO 33.- Deberes y atribuciones de los fiscales de tribunal de
-apelaciones. Son deberes y atribuciones de los fiscales de tribunal de
-apelaciones:
-a) Intervenir, en representación del Ministerio Público, ante los
-tribunales de alzada, con todas las atribuciones que señala el Código de
-Procedimientos Penales. También podrán actuar, durante la instrucción,
-asumiendo las funciones que correspondan al agente fiscal, cuando así lo
-disponga el Fiscal General.
-b) Interponer, cuando proceda, recursos de casación contra los
-autos y sentencias del tribunal de apelaciones.
-c) Supervisar la labor realizada por los agentes fiscales e
-impartirles las instrucciones que permitan mejorar el desempeño de sus
-funciones.
-ch) Las demás que la ley o el Reglamento de la presente Ley les
-atribuyan.
+CAPÍTULO VI
+DE LA OFICINA DE DEFENSA CIVIL DE LAS VÍCTIMAS
+Artículo 33.- Funciones. La oficina de defensa civil de las víctimas
+estará adscrita al Ministerio Público y a cargo de un abogado con
+categoría de fiscal adjunto. Además de ejercer la acción civil
+resarcitoria, este abogado, velará en general por el respeto de los
+derechos de las víctimas, derivados de delitos de acción pública, para lo
+que podrá ejercer las actuaciones y gestiones que resulten necesarias,
+inclusive fuera del proceso penal.
