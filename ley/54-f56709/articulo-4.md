@@ -1,0 +1,2 @@
+Artículo 4°
+Los ciudadanos de Costa-Rica en Italia y los ciudadanos italianos en Costa-Rica á quienes se hubiese concedido el beneficio de pobreza, estarán dispensados, de pleno derecho, de toda caución ó depósito fianza de actor extranjero que la legislación del país en donde tiene lugar el proceso, requiera bajo cualquiera denominación de los extranjeros que intenten una acción contra los nacionales.

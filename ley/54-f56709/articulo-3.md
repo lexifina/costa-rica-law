@@ -1,0 +1,2 @@
+Artículo 3°
+En todo caso el certificado de pobreza será dado al ciudadano extranjero que solicita el beneficio por la autoridad de su residencia habitual. Si no reside en el país en donde se ha establecido la demanda el certificado de pobreza será aprobado y legalizado por el Agente Diplomático ó Consular en el cual debe presentarse el certificado. Si el ciudadano extranjero reside, al contrario, en el país en donde se establece la demanda, podrán, además, pedirse informes á las autoridades de la Nación á quien él pertenece.
