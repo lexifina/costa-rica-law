@@ -1184,4 +1184,239 @@ más deberes de conformidad con los términos de esta carta.
 Como contraprestación por su aceptación de este nombramiento, por
 este medio les adjuntamos un cheque de gerencia por un monto de US$
 _______________, en pago de sus servicios conforme a lo aquí descrito por
-un período de dieciséis (16) añ
+un período de dieciséis (16) años, a partir de _____________ de 1997, y al
+momento de expiración de tal período, se les pagará un monto adicional por
+adelantado anualmente por los servicios de cada año que ustedes presten de
+conformidad con esta carta, hasta que todas nuestras obligaciones bajo el
+Contrato de Préstamo y dichos Pagarés hayan sido satisfechas, pagadas y
+cumplidas a cabalidad.
+Ya que debemos suministrarle al Acreedor un documento que muestre que
+ustedes han aceptado el nombramiento como nuestro Agente de
+Notificaciones, les rogamos enviarnos su consentimiento por escrito lo más
+pronto que les sea posible, a fin de poder enviar una copia de tal
+consentimiento por escrito al Acreedor para su aprobación.
+Sinceramente,
+República de Costa Rica
+Por:
+Nombre:
+Junta de Administración Portuaria
+de la Vertiente Atlántica
+actuando en representación de la
+República de Costa Rica
+República de Costa Rica
+Ministerio de Hacienda
+Por:
+Nombre:
+========================================================================
+APÉNDICE G
+ACEPTACIÓN DEL NOMBRAMIENTO
+Fecha:
+(Dirigida a la Prestataria)
+Asunto: Aceptación de Nombramiento como Agente de Notificaciones, de
+conformidad con Contrato de Préstamo de fecha _______ de 1997, por un
+monto de US$15.000.000,00, celebrado entre la República de Costa Rica,
+como la Prestataria, y International Cooperation and Development Fund,
+como el Acreedor. Caballeros:
+Por este medio acusamos recibo de su carta de fecha _____ de 1997.
+Conforme a lo solicitado, aceptamos su nombramiento como su agente en la
+ciudad de Nueva York, Estado de Nueva York, E.U.A., para recibir y aceptar
+a nombre suyo notificaciones de todos los procedimientos en cualquier
+proceso o acción legal que se haya entablado en el Estado de Nueva York,
+E.U.A., en relación con dicho Contrato de Préstamo, el pagaré dado de
+conformidad con este Contrato por ustedes al Acreedor o ambos.
+También acusamos recibo del monto de
+US$ _______________ en pago de nuestros servicios como agente durante un
+período de dieciséis (16) años, a partir de ____________. Por este medio
+se envía copia de esta aceptación por escrito a International Cooperation
+and Development Fund, 1st Floor, 185 SEC. 2, Hsin Hai Road, Taipei,
+República de China, para su referencia y registro.
+A menos que recibamos notificación en contrario, nuestros servicios
+como agente se darán por terminados el día ________ del 20__.
+Atentamente,
+(Nombre del Agente de Notificaciones)
+Por:
+Nombre:
+Puesto:
+cc: International Cooperation and Development Fund, 1st Floor, 185 SEC.
+2, Hsin Hai Road, Taipei, República de China, Atención:
+Yo, __________________ , certifico que este documento es copia fiel del
+original. *
+Por:
+Nombre:
+Puesto:
+* Se requiere certificación en la copia del Acreedor.
+========================================================================
+APÉNDICE H
+OPINIÓN LEGAL
+Fecha:
+International Cooperation
+and Development Fund
+1st Floor, 185 SEC. 2, Hsin Hai Road
+Taipei, Taiwan,
+R.O.C.
+Contrato de Préstamo de fecha _______________ de 1997, por un monto
+US$15.000.000,00, celebrado entre la República de Costa Rica, como la
+Prestataria, e International Cooperation and Development Fund, como el
+Acreedor
+Estimados señores:
+Se nos ha pedido a nosotros, la Procuraduría General de la República
+de Costa Rica, que demos una opinión legal en relación con el Contrato de
+Préstamo (el "Contrato") de fecha _________ de 1997, entre la República de
+Costa Rica, actuando a través de la Junta de Administración Portuaria de
+la Vertiente Atlántica ("JAPDEVA") (la "Prestataria"), la República de
+Costa Rica, Ministerio de Hacienda (el "Garante") e International
+Cooperation and Development Fund (el "Acreedor"), para un préstamo a la
+Prestataria que no supera US$15.000.000,00.
+Todos los términos usados aquí tienen los significados definidos en
+el Contrato a menos que el contexto requiera otra cosa. En relación con
+ello, hemos revisado los siguientes documentos:
+a) Copia otorgada del Contrato, con el formato de Pagaré que se
+adjunta;
+b) Copia certificada de resoluciones del Congreso de la República de
+Costa Rica, adoptadas el día _____ de 199__ (con el número de referencia
+______), autorizando a la Prestataria a otorgar, entrar y cumplir el
+Contrato y el Pagaré;
+c) Certificado de firmas de muestra, dado por un personero autorizado
+de la Prestataria, certificando las facultades y las firmas de muestra de
+los representantes autorizados por la Prestataria, para otorgar y
+entregar, en representación de la Prestataria, el Contrato, el Pagaré y
+tales certificados, declaraciones, instrumentos y otros documentos
+conexos; y
+d) Todas las aprobaciones gubernamentales en relación con el
+otorgamiento, la entrega y el cumplimiento del Contrato y el Pagaré.
+Hemos también revisado los demás aspectos de ley y examinado
+originales y copias certificadas, confirmadas o fotográficas de los demás
+documentos, registros, convenios y certificados que hemos considerado
+relevantes en este sentido.
+Basados en lo anterior, y atendiendo a las consideraciones legales
+que consideramos relevantes, la siguiente es nuestra opinión:
+(1) Obligación vinculante de la Prestataria. La Prestataria tiene
+plenas facultades, autorización y derechos legales para celebrar y cumplir
+el Contrato y el Pagaré. Este Contrato y el Pagaré, una vez que sean
+debidamente otorgados y entregados por la Prestataria, constituirán
+obligaciones legales, válidas y vinculantes de la Prestataria de
+conformidad con sus términos respectivos.
+(2) Autorización Debida; Ausencia de Conflictos. La celebración y el
+cumplimiento por parte de la Prestataria, actuando por medio de la Junta
+de Administración Portuaria de la Vertiente Atlántica ("JAPDEVA"), del
+Contrato y el Pagaré han sido debidamente autorizados por el Congreso de
+la República de Costa Rica y se han tomado todas las medidas legales,
+gubernamentales o de otro tipo requeridas de conformidad con las leyes de
+la República de Costa Rica, y no violarán ninguna disposición
+constitucional aplicable o de cualquier tratado, ley, decreto o regulación
+de la República de Costa Rica o de la Constitución de la Prestataria, y no
+provocarán ni producirán el incumplimiento de cualquier contrato o
+instrumento del que la Prestataria sea parte o que obligue a la
+Prestataria o sus activos.
+(3) Autorización Gubernamental. Todas las autorizaciones,
+aprobaciones, consentimientos y licencias de todos los organismos de
+gobierno, ministerios, agencias, autoridades de control de cambio u otras
+autoridades, si es del caso, que sean exigidos por las leyes de la
+República de Costa Rica en relación con todos los aspectos aquí
+contemplados han sido debidamente obtenidos por la Prestataria.
+(4) Orden de Preferencia. Las obligaciones de la Prestataria de
+conformidad con el Contrato y el Pagaré tendrán la misma preferencia que
+todo otro Endeudamiento Externo u obligaciones externas similares a la
+Prestataria (sean directas o contingentes) que estén pendientes de pago de
+tiempo en tiempo, denominadas en una moneda que no es la de la República
+de Costa Rica, y que deba pagarse a cualquier parte que sea residente o
+esté constituida fuera de la República de Costa Rica, excepto al grado en
+que el Acreedor consienta a lo contrario por escrito.
+(5) Obligaciones Comerciales. (a) La Prestataria está sujeta a las
+leyes civiles y comerciales con respecto a sus obligaciones de conformidad
+con el Contrato y el Pagaré; (b) la obtención del préstamo por parte de la
+Prestataria constituirá una acto privado y comercial, totalmente
+independiente y diferente de cualquier acto gubernamental o público de la
+República de Costa Rica (esté o no relacionado el Contrato, cualquier
+parte suya o el objetivo de cualquier Adelanto con un acto gubernamental
+o público del Gobierno de la República de Costa Rica); (c) con respecto a
+las obligaciones de la Prestataria de conformidad con el Contrato o el
+Pagaré, ni esta ni sus propiedades disfrutan de ningún derecho a
+inmunidad, fundamentada en su soberanía u otra razón, en relación con
+juicios, embargo (sea preventivo o para ejecución de sentencia) o
+compensación; y (d) la renuncia por parte de la Prestataria a tal derecho
+de inmunidad, dada de conformidad con el contrato por sí misma y con
+respecto a todas sus propiedades y activos, es válida, efectiva y
+vinculante para la Prestataria, de conformidad con las leyes de la
+República de Costa Rica.
+(6) Impuestos. No hay impuestos sobre la renta o cargos o impuestos
+de otro tipo de la República de Costa Rica o de cualquier subdivisión
+política o autoridad tributaria suya, mediante retención, o aplicables de
+otra manera a cualquier pago hecho por la Prestataria de conformidad con
+los términos del Contrato o el Pagaré, o que vayan a ser establecidos
+sobre el otorgamiento y la entrega del Contrato o del Pagaré o en virtud
+de ellos.
+(7) Firmante Autorizado. __________________ está plenamente facultado
+y autorizado para otorgar el Contrato y el Pagaré en representación de la
+República de Costa Rica, y a tomar otras medidas en relación con el
+Contrato.
+Procurador General
+de la República de Costa Rica
+Por:
+Nombre:
+* Esta Carta de Opinión debe ser autenticada por la Embajada de la
+República de China en la República de Costa Rica.
+========================================================================
+APÉNDICE I
+ESTIMADO DE COSTOS
+Categoría Monto del Préstamo Asignado Fondo Local
+(si lo hay)
+(1) [obras]
+(2) [productos]
+(3) [servicios de consultores]
+(4) monto no asignado (por ejem-
+plo, imprevistos)
+TOTAL
+===================================================================
+APÉNDICE J
+ESTADO DE GASTOS
+Fecha:
+No. de Préstamo:
+* Categoría:
+No. de Serie de la Solicitud:
+No. de Referencia
+Fecha de Entrega
+Descripción de Obras, Bienes y Servicios
+No. y Fecha del Contrato/Orden de Compra
+Monto del Contrato
+Nombre y Dirección del Proveedor
+Fecha de Pago
+Monto Pagado US$ / Moneda Local
+Observaciones
+Total: A. _______ US$ / ** B= ______ = ________ US$
+Monto solicitado para restaurar el monto
+Montos Acumulados
+(Prestataria)
+Por: (Representante autorizado)
+Se certifica por este medio que los montos indicados arriba han sido
+pagados para la debida ejecución de las actividades del proyecto dentro de
+los términos y condiciones del Contrato de Préstamo. Todos los documentos
+que autentican estos gastos han sido conservados en (lugar) y serán
+puestos a disposición para su revisión si así lo solicitan misiones
+visitantes.
+Certificado por:
+Nombre:
+Puesto:
+* Un estado de gastos deberá registrar los gastos de solamente una
+categoría.
+** Se aplica el tipo de cambio a la fecha de la Solicitud de Desembolso.
+=======================================================================
+APÉNDICE K
+CERTIFICADO DE PROGRESO
+Por este medio se certifica que al (fecha)
+1.- el progreso acumulado en la obra en relación con (Nombre del
+Proyecto) era de ____ por ciento.
+2.- el trabajo de construcción concluido es satisfactorio en vista
+del monto utilizado para concluir tal trabajo.
+Firma*:
+Nombre:
+Puesto o Designación:
+Firma*: (Compañía Consultora)
+Nombre:
+Puesto:
+* Debe ser un representante autorizado de la Prestataria o de la
+compañía consultora independiente.
+EN FE DE LO CUAL, expido la presente traducción oficial, del inglés al
+español, cuyo original comprende cincuenta y cinco páginas, y firmo en San
+José, a los veintiún días del mes de noviembre de mil novecientos noventa
+y siete. Agrego y cancelo los timbres de ley."
