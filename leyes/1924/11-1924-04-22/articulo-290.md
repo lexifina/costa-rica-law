@@ -1,3 +1,3 @@
 Artículo 290
 Prueba de imputación
-El acusado de calumnia será siempre admitido a probar la verdad del delito o falta imputados, y quedará exento de toda responsabilidad, si efectivamente hiciere tal demostración.
+(Derogado por el artículo 2° de la ley N° 19 del 2 de octubre de 1925)
