@@ -1,3 +1,3 @@
-Artículo 88.-El desistimiento deberá presentarse ante la Dirección Ejecutiva o ante el MEIC, si la solicitud se encontrare ya ante éste. Deberá presentarse por escrito y la firma que lo ampare deberá ser autenticada por un abogado, o en su caso, debidamente legalizado el documento en que conste.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 11014 del 12 de diciembre de 1979, que lo traspaso del antiguo artículo 83 al 87 actual)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 87 al 88 actual)
+Artículo 88-Podrán solicitar los beneficios del CAT Simplificado para Productos Agropecuarios y Agroindustriales, los productos, sean estos personas físicas costarricenses o extranjeras con cinco años o más de residencia permanente en el país; o personas jurídicas cuyo capital sea costarricense en más de un 60% del total.
+El requisito de la composición del capital podrá ser obviado con la recomendación del Ministerio de Hacienda, previa solicitud del CENTRO.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 13555 del 28 de abril de 1982)

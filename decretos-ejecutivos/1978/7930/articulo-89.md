@@ -1,3 +1,2 @@
-Artículo 89.-La resolución que admita e! desistimiento dará por terminadas las gestiones que tenga el solicitante, dejando la situación en el estado en que se hallaban antes de presentarse el escrito de desistimiento.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 11014 del 12 de diciembre de 1979, que lo traspaso del antiguo artículo 84 al 88 actual)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 88 al 89 actual)
+Artículo 89.-Los solicitantes podrán gozar de los beneficios de este capítulo, siempre y cuando sus productos están amparados en las listas de productos que periódicamente serán publicadas con este fin por el Poder Ejecutivo, mediante recomendación del CENTRO. Esta Institución preparará dicha lista, en razón de existir en su poder información en materia de competitividad y Valor Agregado Nacional, de casos procedentes que permitan equiparar nuevas solicitudes a recomendaciones anteriormente aprobadas para esos productos.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 13555 del 28 de abril de 1982)

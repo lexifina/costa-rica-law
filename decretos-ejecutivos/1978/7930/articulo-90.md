@@ -1,6 +1,2 @@
-(*) CAPITULO XIV
-Disposiciones Finales
-(Corrida la numeración del capítulo anterior por el artículo 1° del decreto ejecutivo N° 11014 del 12 de diciembre de 1979, que lo traspaso del antiguo capítulo XIII al capítulo XIV actual)
-Artículo 90.- Todos los informes y datos que suministren las empresas al Centro, al MEIC, o al Ministerio de Hacienda, tendrán carácter confidencial y sólo podrán ser usados para el fin para el cual fueron solicitados o suministrados, o para propósitos de investigación estadística al tenor de lo que disponen los artículos 3° y 4° de la Ley N° 1565 de 20 de mayo de 1953.
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 11014 del 12 de diciembre de 1979, que lo traspaso del antiguo artículo 85 al 89 actual)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 12606 del 12 de mayo de 1981, que lo traspaso del antiguo artículo 89 al 90 actual)
+Artículo 90.-Para gozar de los beneficios del CAT, al amparo de este capítulo, los interesados deberán presentar su solicitud ante el CENTRO en el formulario respectivo. El CENTRO podrá demandar el suministro de información complementaria, en los casos que lo juzgue conveniente. Una vez verificado el cumplimiento de requisitos establecidos en este capítulo, la Dirección Ejecutiva del CENTRO presentar su recomendación al Ministerio de Economía, Industria y Comercio para que se resuelva en definitiva.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 13555 del 28 de abril de 1982)
