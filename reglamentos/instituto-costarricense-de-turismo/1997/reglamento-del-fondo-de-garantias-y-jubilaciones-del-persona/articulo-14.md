@@ -1,0 +1,2 @@
+Artículo 14°
+El aporte al Fondo de Mutualidad se girará a un ente administrador con suficiente experiencia en el manejo de fideicomisos de alto rendimiento y preferiblemente con el mismo que se suscriba el Fondo de Jubilación Complementaria. Le corresponderá a dicho ente administrador brindar informes mensuales a la Junta Administrativa del Fondo sobre las inversiones realizadas con un suficiente detalle de los rendimientos obtenidos y el capital financiero acumulado.

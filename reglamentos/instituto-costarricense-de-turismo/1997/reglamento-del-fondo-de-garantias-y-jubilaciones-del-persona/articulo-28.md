@@ -1,0 +1,2 @@
+Artículo 28°
+La Junta Administradora debe reunirse cuando lo indiquen sus reglamentos o cuando sea convocada por su Presidente o el delegado de la Gerencia para resolver asuntos relacionados con sus atribuciones. La asistencia de cuatro miembros constituye quórum y las resoluciones deben tomarse por mayoría de votos de los presentes en la respectiva sesión. Caso de empate el Presidente tiene doble voto; en su ausencia presidirá el que se designe por los miembros restantes.

@@ -1,0 +1,2 @@
+Artículo 10°
+Los dineros de este fondo de garantías serán administrados según lo definido en la Asamblea General, como una cuenta paralela al Fondo de Jubilación, por un ente bancario o financiero con trayectoria en la administración de fondos bajo la modalidad de fideicomisos, el que deberá brindar garantía absoluta de inversión en títulos respaldados por el Estado con una razonable maximización de los recursos en cuanto a rendimiento y plazo.

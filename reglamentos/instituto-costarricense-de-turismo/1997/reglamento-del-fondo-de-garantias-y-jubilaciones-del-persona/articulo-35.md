@@ -1,0 +1,2 @@
+Artículo 35°
+El Fondo de Garantías constituye una cuenta de capitalización para cada miembro en donde se depositarán el remanente del aporte del Instituto luego de deducir el monto correspondiente al Fondo de Jubilación así como el aporte laboral y las otras sumas referidas a la amortización e intereses no utilizadas en el Fondo de Mutualidad y el Seguro Colectivo de Vida de conformidad con lo que defina cada funcionario y de acuerdo a lo establecido en el Artículo 6°, 9 y 39° del Reglamento.

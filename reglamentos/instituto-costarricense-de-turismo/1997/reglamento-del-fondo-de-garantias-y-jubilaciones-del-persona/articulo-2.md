@@ -1,0 +1,2 @@
+Artículo 2°
+El Fondo de Garantías y Jubilaciones, tiene como objetivos otorgar beneficios a sus miembros, tanto durante su permanencia en el Instituto, así como en caso de retiro del servicio por causa de vejez, invalidez total permanente y muerte. Asimismo, constituir dentro del ámbito legal, una garantía para el Instituto, que responda por la incorrecta actuación de sus miembros en el desempeño de su trabajo.
