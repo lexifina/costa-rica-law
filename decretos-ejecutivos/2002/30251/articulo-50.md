@@ -1,0 +1,1 @@
+Artículo 50.—De las demás obligaciones de los adjudicatarios. Los postores que resulten adjudicatarios deberán cumplir con los demás requisitos y suscribir los contratos que se señalan en el presente Reglamento.

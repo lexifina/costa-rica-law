@@ -1,0 +1,1 @@
+Artículo 48.—Notificación de la selección. JUDESUR notificará en forma individual, a cada solicitante, el resultado de la selección realizada. Los que resultaren calificados serán también notificados de la fecha de cierre para recepción de las garantías de participación. Esta notificación se efectuará con 10 días hábiles de anticipación a la fecha del remate.

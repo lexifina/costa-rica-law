@@ -1,0 +1,1 @@
+Artículo 30.—Firmeza de los acuerdos. Los acuerdos tomados por la Junta Directiva quedarán firmes al aprobarse el acta en la siguiente sesión ordinaria, a menos que se interponga y prospere el recurso de revisión conforme a lo establecido en la Ley General de Administración Pública.

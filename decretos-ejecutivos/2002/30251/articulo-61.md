@@ -1,0 +1,6 @@
+Artículo 61.—De la asignación de los recursos. Para la asignación de recursos por parte de JUDESUR se dará prioridad a las siguientes situaciones:
+A. Aquellos proyectos y programas que cuenten con contrapartidas de las comunidades o de las Municipalidades y para todos estos casos deberá cumplirse con los requisitos establecidos por JUDESUR.
+B. Proyectos que tengan impacto importante en la Zona Sur y los cuales podrían estar involucrando varios cantones.
+C. Proyectos que a criterio de JUDESUR y por su impacto en la zona sea importante llevarlos a cabo.
+D. Proyectos presentados por Asociaciones Privadas de Desarrollo, sin fines de lucro y cuyo propósito sea incrementar la productividad, mejorar el empleo en la zona, mejorar la calidad de los productos, y por ende mejorar el ingreso de los grupos sociales de escasos recursos. A la vez estas Asociaciones podrían otorgar asistencia financiera a los pequeños productores o empresarios, para lo cual JUDESUR podría establecer líneas de crédito rotativas, bajo las estipulaciones que establezca la Junta Directiva de JUDESUR.
+Para ser sujetos de crédito por parte de JUDESUR estas Asociaciones No Gubernamentales deberán tener no menos de dos años de estar operando en cualesquiera de los cantones de la Zona Sur, y cumplir con el resto de los requisitos que al respecto establezca JUDESUR.

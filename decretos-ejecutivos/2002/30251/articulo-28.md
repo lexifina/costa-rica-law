@@ -1,0 +1,1 @@
+Artículo 28.—Recursos. Cualquier recurso que se presente contra los acuerdos o actuaciones de la Junta Directiva de JUDESUR, se regirá por lo que dispone al respecto la Ley General de la Administración Pública.

@@ -1,0 +1,7 @@
+Artículo 22.—De la revisión de los acuerdos.
+1. En caso de que alguno de los miembros de la Junta interponga recurso de revisión contra un acuerdo, el mismo será resuelto al conocerse el acta de esa sesión, a menos que, por tratarse de un asunto que el presidente juzgue urgente, prefiera conocerlo en sesión extraordinaria.
+2. El recurso de la revisión deberá ser planteado a más tardar al discutirse el acta, recurso que deberá resolverse en la misma sesión.
+3. Las simples observaciones de forma, relativas a la redacción de los acuerdos, no serán consideradas para efectos del inciso anterior, como recurso.
+4. Los miembros de la Junta Directiva votarán afirmativa o negativamente, sin que les sea permitido abstenerse de emitir el voto.
+5. Con el propósito de facilitar los debates o discusiones en el curso de las sesiones, y a fin de procurar resolver todos los puntos de la orden del día, la Dirección Ejecutiva estará obligada a presentar todos los antecedentes y documentos relativos a aquellos. Cuando dichos antecedentes y documentos no se acompañen con los asuntos que figuren en el orden del día, la Junta podrá no conocer de ellos hasta tanto no se cumpla con lo ordenado en este artículo.
+6. El presidente de la Junta Directiva podrá convocar periódicamente a sesiones extraordinarias de Junta Directiva en lugares distintos de las Oficinas Centrales, con el objeto de que los directores puedan conocer los diferentes asuntos que conciernen a la institución.

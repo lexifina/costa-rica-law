@@ -1,0 +1,1 @@
+Artículo 49.—Participación en el remate. En el remate participarán únicamente los interesados calificados como postores por JUDESUR, que hayan presentado a tiempo sus respectivas garantías de participación ante ésta.

@@ -1,0 +1,1 @@
+Artículo 23.—De las comisiones. La Junta Directiva nombrará las Comisiones Especiales que considere convenientes, para el estudio, examen o investigación de cualquier asunto relativo a la institución.

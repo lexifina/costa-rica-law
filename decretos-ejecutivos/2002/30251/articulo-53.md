@@ -1,0 +1,1 @@
+Artículo 53.—De los derechos sobre las concesiones. Para aquellos locales que expire el plazo de las correspondientes concesiones, se regirá de acuerdo a lo estipulado en el artículo 2, adición, artículo 14 bis de la Ley 7730 del 20 de diciembre de 1997.

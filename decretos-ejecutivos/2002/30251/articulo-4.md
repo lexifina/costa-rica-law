@@ -1,0 +1,1 @@
+Artículo 4º—Sustituciones. En caso de ausencia o enfermedad y en general cuando concurra alguna causa justa, el presidente y el secretario de la Junta Directiva de JUDESUR serán sustituidos por el vicepresidente, o un presidente ad-hoc y un secretario suplente respectivamente.

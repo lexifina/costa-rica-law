@@ -1,0 +1,2 @@
+Artículo 60.—Del financiamiento. Cualquier tipo de financiamiento u obras a realizar estará sujeto a la disponibilidad presupuestaria y de recursos efectivos por parte de JUDESUR.
+JUDESUR también podrá financiar proyectos en forma conjunta con otras instituciones que administren fondos públicos, siempre y cuando no se aparte de las metas y objetivos señalados por la Ley 7730 y los proyectos generen empleo, sean rentables y exista garantía absoluta del éxito del proyecto y su supervivencia.

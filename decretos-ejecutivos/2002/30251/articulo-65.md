@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Disposiciones finales y derogatorias
+Artículo 65.—Disposiciones finales. Los compradores, visitantes y terceros solo tendrán acceso a las áreas habilitadas para la venta de mercancías. En ningún caso tendrán posibilidades de ingresar a las áreas de uso restringido si no es con la autorización de JUDESUR y portando en lugar visible el carné que para tal efecto emita ésta. Por ser el Depósito Zona Primaria será prohibido el ejercicio de cualquier tipo de actividades de venta, dentro de las instalaciones del Depósito, salvo las autorizadas para los Concesionarios del Depósito por parte de JUDESUR.

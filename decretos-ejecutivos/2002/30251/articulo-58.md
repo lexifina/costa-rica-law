@@ -1,0 +1,3 @@
+Artículo 58.—De las reglamentaciones internas.
+1. JUDESUR elaborará todas las reglamentaciones internas para el otorgamiento y financiamiento de proyectos, así como para el otorgamiento de becas, las que tendrán vigencia una vez aprobadas por la Junta Directiva de JUDESUR, y se haya cumplido con su publicación en el Diario Oficial La Gaceta, para aquellas que así lo ameriten.
+2. Se financiarán proyectos productivos y de servicios, obras de infraestructura, proyectos de interés social, proyectos turísticos, programas de salud, educación y capacitación técnica, y becas para estudiantes pobres, a favor de los grupos más vulnerables de la Zona Sur de los cantones de Golfito, Osa, Corredores, Coto Brus y Buenos Aires.

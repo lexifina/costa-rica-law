@@ -1,0 +1,2 @@
+Artículo 55.—Utilización de los fondos. Aquellos cantones que no utilicen la totalidad de la suma asignada para cada año, el monto sobrante no será acumulable sino que pasará como superávit específico a ser distribuido nuevamente como parte de los recursos disponibles para el año siguiente.
+Se hace la excepción para aquellos proyectos cuyo plan de desembolsos incluya un período mayor a un año o bien, que para completar sus desembolsos requieran ser incorporados en dos presupuestos anuales de JUDESUR.

@@ -1,0 +1,3 @@
+Artículo 42.—Del Auditor Interno. JUDESUR contará con un Auditor Interno, cuyo nombramiento será por parte de la Junta Directiva. Será Contador Público Autorizado e incorporado al Colegio Profesional correspondiente.
+Será responsable de la fiscalización y el control interno de todas las operaciones de JUDESUR y dependerá administrativamente y para el ejercicio de su cargo de la Junta Directiva de JUDESUR.
+Sus demás requisitos y las funciones y responsabilidades para el ejercicio de su cargo se establecerán de acuerdo con lo dispuesto por la Contraloría General de la República para este tipo de cargo.

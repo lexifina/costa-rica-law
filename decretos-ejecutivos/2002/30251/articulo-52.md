@@ -1,0 +1,3 @@
+Artículo 52.—Del pago de los derechos. Efectuado el remate, los adjudicatarios dispondrán de los tres días hábiles siguientes para hacer el pago del precio del derecho adjudicado. Asimismo, dentro de los quince días naturales siguientes al remate, deberán aportar la garantía de cumplimiento exigida y suscribir los respectivos contratos de concesión, y de arrendamiento y de otros servicios, en sus distintas modalidades.
+El incumplimiento de esta disposición producirá la caducidad de la adjudicación y la pérdida de las garantías aportadas.
+En los demás, se aplicarán en lo conducente las disposiciones del título VI del Reglamento de la Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 32.—Del libro de actas. Una vez aprobada el acta correspondiente, se transcribirá dentro de los 8 días hábiles al Libro de Actas de la Junta Directiva, a fin de presentarla para ser firmada por el presidente y el secretario o quien los sustituya y por aquellos miembros que hayan hecho constar con su voto negativo.
