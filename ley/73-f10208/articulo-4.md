@@ -1,0 +1,1 @@
+Art. 4. Ningún gasto extraordinario de los que habla el artículo anterior que carezca de toma de razón, será pasado en data por el Tribunal, y los empleados serán responsables de los pagos que hicieren sin este requisito.

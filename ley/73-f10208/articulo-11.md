@@ -1,0 +1,1 @@
+Art. 11. El Tribunal impuesto de ellas y de las leyes y órdenes del caso, fallará su aprobación ó responsabilidad á que haya legar: el lugar: el Gobierno en las de Hacienda pública; y los jefes Políticos en las de propios, árbitros y fondos pios de los Pueblos, harán ejecutar lo fallado por el Tribunal.
