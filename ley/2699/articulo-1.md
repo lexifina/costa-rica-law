@@ -1,0 +1,7 @@
+Nº 2699
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
+DECRETA:
+Artículo 1º—Apruébase el Contrato Nº 360 de 30 de junio de 1960, que prorroga el Programa Cooperativo de Agricultura en nuestro país, celebrado entre el Gobierno de Costa Rica, representado por el Ministerio de Agricultura e Industrias y la Administración Internacional de Cooperación, que es una Agencia del Gobierno de los Estados Unidos de América dependiente del Departamento de Estado y que literalmente dice:
+"Nº 360.-1º—Entre el Ministerio de Agricultura e Industrias del Gobierno de Costa Rica, representado por el Ministro, señor Adriano Urbina Gutiérrez, debidamente autorizado por el señor Presidente Constitucional de la República, y la Administración de Cooperación Internacional, una Agencia del Gobierno de los Estados Unidos de América representada por el señor Wyman Stone, Director de la Misión de Operaciones en Costa Rica, se ha convenido prorrogar por cinco años el acuerdo básico para un programa cooperativo de agricultura firmado el 31 de diciembre de 1950, aprobado por ley Nº 1270 de 5 de marzo de 1951, prorrogado y modificado a su vez por el acuerdo suplementario de fecha 22 de abril de 1955 y aprobado por ley N° 1897 de 7 de julio de 1955.
+2º—El acuerdo por este medio prorrogado puede ser terminado en cualquier momento, mediante aviso por escrito de una de las partes a la otra, con tres meses de anticipación.
+3º—El presente acuerdo de prórroga se firma en San José, a los treinta días del mes de junio de mil novecientos sesenta".
