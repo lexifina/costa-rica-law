@@ -1,0 +1,1 @@
+Artículo 11.-La autoridad máxima de cada institución participante deberá acreditarse ante el Ministerio de Industria, Energía y Minas, a su representante oficial en la comisión que corresponda, así como a su suplente. Dichos representantes fungirán en sus cargos por un período de un año.

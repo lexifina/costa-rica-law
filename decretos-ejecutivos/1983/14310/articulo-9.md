@@ -1,0 +1,1 @@
+Artículo 9°-EI Ministerio de Industria, Energía y Minas establecerá, mediante reglamento, los procedimientos y normas específicas de trabajo para ambas comisiones. Asimismo, establecerá cualquier reforma a dicho reglamento.
