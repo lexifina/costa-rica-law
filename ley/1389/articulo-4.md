@@ -1,0 +1,14 @@
+Artículo 4°.- Que el Banco Crédito Agrícola de Cartago es la institución llamada, por el mejor conocimiento del medio, al otorgamiento de dichos créditos.
+Por tanto,
+Decreta:
+Artículo 1°.- Refórmase el artículo 37 de la ley N°1351 del 29 de setiembre de 1951, el cual se leerá de la siguiente manera:
+“Artículo 37.- Las utilidades en firme obtenidas por el Banco Central en sus intervenciones en el mercado libre se distribuirán del siguiente modo:
+a) Una suma equivalente a la diferencia entre los tipos de compra y de venta establecidos para el mercado oficial, se destinará a los fines previstos en el inciso a) del artículo 3° de la ley N°318 de 29 de diciembre de 1948;
+b) Una suma prudencial para formar un fondo especial con el cual poder cubrir posibles pérdidas del Banco Central en sus futuras intervenciones en el mercado libre;
+c) La suma de un millón de colones, que entregará el Banco Central Crédito Agrícola de Cartago como parte del aumento de su capital contemplado en el último párrafo de este mismo artículo; y
+d) El remanente se destinará a la compra de Bonos del Sistema Bancario Nacional, el poder del Banco Nacional de Costa Rica. Terminada la existencia de esta clase de Bonos en poder del Banco Nacional de Costa Rica, el remanente deberá dedicarse a la compra de Bonos comerciales nacionales. El producto obtenido por los otros Bancos rurales de Crédito Agrícola. El producto obtenido por los otros Bancos Rurales de Crédito Agrícola. El producto obtenido por los otros Bancos nacionales por la venta de sus bonos al Banco Central, deberá ser aplicado a la concesión de créditos de carácter agrícola e industrial a mediano plazo. A estas disposiciones sólo podrán acogerse aquellos Bancos que ejecuten operaciones con las características de las que realizan los Bancos que tuvieren Secciones de Crédito Agrícola e Industrial.
+Los Bonos comprados por el Banco Central se mantendrán perforados, considerándose en forma definitiva fuera de circulación, excepto en lo que hace a su sorteo y cobro de intereses.
+Los importes recibidos por el Banco Central en concepto de amortización e intereses de dichos Bonos, serán destinados por éste a aumentar el capital del Banco Crédito Agrícola de Cartago hasta que el mismo alcance la suma de seis millones de colones (¢6,000.000.00). Cuando el capital del Banco Crédito Agrícola de Cartago haya alcanzado dicha suma, las amortizaciones e intereses de los Bonos adquiridos por el Banco Central se dedicaran a incrementar los fondos de reserva de todos los Bancos comerciales nacionales, en proporción a sus respectivos capitales”
+Artículo 2°.- Esta ley rige desde su publicación.
+Dado en San José, a los veintiún días del mes de noviembre de mil novecientos cincuenta y uno.
+Casa Presidencial.- San José, a los veintitrés días del mes de noviembre de mil novecientos cincuenta y uno.
