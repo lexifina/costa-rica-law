@@ -1,0 +1,3 @@
+Artículo 5º—Los gastos y honorarios del notario público deben ser cubiertos por la parte proponente, quien no podrá liquidar suma alguna por ese concepto a la contraria. En todo caso, se establece un pago mínimo de diez mil colones para cada notificación. Si la notificación no se pudiera realizar, por cualquiera de las circunstancias previstas en la ley, el notario público pondrá la constancia respectiva y devolverá dentro de los tres días siguientes a aquél en que se dictó la respectiva resolución, la cédula y copias. El pago se reduce al cincuenta por ciento de la suma anterior.
+Rige a partir de su publicación en el Boletín Judicial.
+San José, 4 de noviembre de 2003.

@@ -1,0 +1,1 @@
+Artículo 4º—Una vez efectuada la notificación, el notario público debe confeccionar el acta con las formalidades impuestas en la ley de notificaciones y consignar razón en su protocolo. Dentro del segundo día hábil posterior a la notificación, deberá entregar al despacho judicial la respectiva documentación.

@@ -1,0 +1,1 @@
+Artículo 2º—El notario público debe estar debidamente habilitado para el ejercicio del notariado y deberá contar con un mínimo de diez años de experiencia en el ejercicio, además, le son aplicables las limitaciones contenidas en el Código Notarial.
