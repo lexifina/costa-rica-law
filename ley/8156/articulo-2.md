@@ -1,0 +1,1 @@
+Artículo 2º—La escritura de traspaso se otorgará ante la Notaría del Estado y estará exenta del pago de toda clase de impuestos, nacionales y municipales, timbres, especies fiscales, derechos de inscripción y honorarios de profesionales.
