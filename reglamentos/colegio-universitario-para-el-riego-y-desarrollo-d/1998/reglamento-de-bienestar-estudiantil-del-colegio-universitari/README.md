@@ -14,3 +14,4 @@ Reglamento de bienestar estudiantil del Colegio Universitario para el Riego y De
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-26 | la propia norma |
+| 2 | 2002-12-17 | Reglamento 10 (2002-12-17) |

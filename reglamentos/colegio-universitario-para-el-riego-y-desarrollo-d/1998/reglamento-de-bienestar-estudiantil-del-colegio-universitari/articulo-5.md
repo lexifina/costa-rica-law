@@ -1,1 +1,2 @@
-Artículo 5°—Funcionará una Comisión de Beneficios Estudiantiles, integrada por el Director Académico, Director Administrativo, quien la presidirá, hasta que se cree la plaza de Bienestar Estudiantil, el jefe de Contabilidad - presupuesto y un representante estudiantil nombrado por la Federación de Estudiantes, el cual durará un año en su cargo. El quórum será de tres miembros, pudiendo ser reelectos.
+Artículo 5°—Complemento a la Unidad de Vida Estudiantil, se creará una comisión integrada por el Director Administrativo, Director Académico, un represente de la FECURDTS y el representante de la Unidad de Vida Estudiantil quien la presidirá.
+(Así reformado por acuerdo tomado en sesión N° 10 y publicado en La Gaceta N° 5 de 08 de enero de 2003).

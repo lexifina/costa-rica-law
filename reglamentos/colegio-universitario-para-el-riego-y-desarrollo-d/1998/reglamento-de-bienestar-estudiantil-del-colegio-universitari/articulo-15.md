@@ -1,1 +1,2 @@
-Artículo 15.—Todo estudiante está obligado a comunicar al Servicio de Bienestar Estudiantil o a la Comisión de Beneficios Estudiantiles, cualquier cambio favorable que se registre en su situación socioeconómica, en el momento en que se produzca, de lo contrario se aplicará pago 10 durante un año.
+Artículo 15.—Léase correctamente. Todo estudiante está obligado a comunicar al servicio de Vida Estudiantil, cualquier cambio favorable o desfavorable que se registre en su situación económica, de lo contrario se le adjudicará automáticamente categoría de beca 4, durante el siguiente cuatrimestre.
+(Así reformado por acuerdo tomado en sesión N° 10 y publicado en La Gaceta N° 5 de 8 de enero de 2003).
