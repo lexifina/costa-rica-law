@@ -14,3 +14,4 @@ Reglamento de Compensación Económica por Disponibilidad, para el personal con 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-03 | la propia norma |
+| 2 | 1999-03-01 | Reglamento 17 (1999-03-01) |
