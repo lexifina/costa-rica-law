@@ -1,0 +1,1 @@
+Artículo 2°-Derogánse los Decretos Ejecutivos números 22088-MOPT del 24 de febrero de 1995, publicado en el Diario Oficial "La Gaceta" N° 45 de viernes 3 de marzo de 1995 y 24144-MOPT del 27 de marzo de 1995, publicado en el Diario Oficial "La Gaceta" No. 69 del jueves 6 de abril.
