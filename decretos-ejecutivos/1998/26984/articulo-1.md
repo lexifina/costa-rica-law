@@ -9,4 +9,6 @@ Considerando:
 4°—Que una Comisión Ad Hoc designada por la Dirección General de Salud, integrada por funcionarios de este Ministerio, de la Caja Costarricense de Seguro Social, del Colegio de Médicos y Cirujanos de Costa Rica y del Colegio de Farmacéuticos de Costa Rica, recomendó al Despacho del Ministro de Salud prohibir la venta de antibióticos sin receta médica.
 5°—Que el Ministerio de Salud ha considerado conveniente y oportuno, en beneficio de la salud de la población, decretar la prohibición para el expendio de antibióticos sin receta médica. Por tanto,
 DECRETAN:
-Artículo 1°—Se prohíbe el expendio de antibióticos sin receta médica.
+Artículo 1°—Se prohíbe el expendio de antibióticos sin receta médica, excepto los de uso tópico que contengan oxitetraciclina, neomicina, bacitracina, o polimixina.
+Asimismo, se prohíben las muestras médicas de productos que contengan antibióticos con excepción de las presentaciones para uso tópico que contengan oxitetraciclina, neomicina, bacitracina, o polimixina.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 27407 del 14 de octubre de 1998)
