@@ -1,0 +1,3 @@
+Artículo 9º—El plazo para iniciar el proceso de formalización del financiamiento aprobado, será de 45 días naturales contados a partir del recibo del acuerdo de Junta Directiva respectivo. Este plazo también es aplicable para los desembolsos, adecuaciones, readecuaciones y novaciones de deudor.
+Los Organismos Cooperativos que sin motivos plenamente justificados ante el departamento técnico correspondiente, no hubieren cumplido con lo anterior, perderán su derecho a formalizar el financiamiento, salvo que el plan de desembolsos aprobado así lo contemple.
+En caso de que con posterioridad al plazo establecido se interesen por formalizar el financiamiento, deberán presentar una nueva solicitud y justificar debidamente el no haber hecho uso del mismo.
