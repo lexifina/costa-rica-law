@@ -1,0 +1,1 @@
+Artículo 4°—Los propietarios-de dicho inmueble se comprometen a no desarrollar ninguna actividad que comprometa la existencia de la flora y fauna y darán toda la colaboración necesaria a investigadores y funcionarios del Ministerio del Ambiente y Energía que visiten dicha área en labores oficiales a su cargo.

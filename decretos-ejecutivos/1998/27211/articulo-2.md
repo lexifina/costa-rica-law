@@ -1,0 +1,1 @@
+Artículo 2°—El manejo y aprovechamiento de la vida silvestre estará sujeto a un Plan de Manejo aprobado por el Ministerio del Ambiente y Energía; quien supervisará además su ejecución y podrá emitir disposiciones técnicas y científicas que deberán seguir los propietarios para el manejo del bosque y la prevención de incendios.
