@@ -1,0 +1,2 @@
+2º—Adiciónese al Reglamento de Capacitación y becas para el desarrollo del Recurso Humano del Instituto Nacional de las Mujeres, un Artículo Transitorio que dice:
+"Transitorio.—suspéndase la resolución de solicitudes de becas y capacitación que impliquen erogación presupuestaria del personal del instituto, por parte de la CAD y de las superioras jerárquicas, por un período improrrogable de 3 meses a partir de la publicación de este transitorio en el Diario Oficial".
