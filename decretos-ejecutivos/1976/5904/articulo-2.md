@@ -1,6 +1,9 @@
 Artículo 2°—A efecto de reconocer y respetar los derechos de las comunidades indígenas de Costa Rica se ubican de la siguiente manera en las demarcaciones territoriales señaladas en el artículo anterior:
-1) CHIRRIPÓ: Reserva de los indígenas Cabeceras de Chirripó.
-2) ESTRELLA: Reserva de los indígenas Cabecera de Estrella.
+1) CHIRRIPÓ: Reserva de los Indígenas Cabécares de Chirripó.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 6036 del 26 de mayo de 1976. Anteriormente se indicaba: “CHIRRIPÓ: Reserva de los indígenas Cabeceras de Chirripó”)
+2) ESTRELLA: Reserva de los indígenas Cabécares de Estrella.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 6036 del 26 de mayo de 1976. Anteriormente se indicaba: “ESTRELLA: Reserva de los indígenas Cabecera de Estrella.”)
 3) GUATUSO: Reserva de los indígenas Guatusos (Malekus) de Guatuso.
 4) GUAYMI: Reserva de los indígenas Guaymies de Coto Brus.
-5) TALAMANCA: Reserva de los indígenas Bribís y Cabecera de Talamanca.
+5) TALAMANCA: Reserva de los indígenas Bribris y Cabécares de Talamanca.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 6036 del 26 de mayo de 1976. Anteriormente se indicaba: ”TALAMANCA: Reserva de los indígenas Bribís y Cabecera de Talamanca.”)
