@@ -1,0 +1,1 @@
+Artículo 8°-En caso de que los adelantos de dinero por cada fanega de café entregada, hechos por el beneficiador al productor sean mayores que los precios fijados por la Junta , no podrá el primero exigir al segundo la devolución del exceso de dinero recibido.
