@@ -1,0 +1,1 @@
+Artículo 5°—Si el premio obtenido por su monto requiere convalidación computarizada, deberá hacerse efectivo en las Oficinas Centrales de la Institución. Si el premio es igual o mayor a cinco mil colones (₡5.000,00) requiere convalidación.

@@ -1,0 +1,1 @@
+Artículo 4°--E1 jugador podrá hacer efectivos los premios obtenidos con la lotería Instantánea en las Oficinas Centrales de la JPSSJ ; en las agencias del Banco de Costa Rica en Alajuela, Cartago. Limón. Ciudad Nelly, Liberia, Pérez Zeledón y Ciudad Quesada, u otras que en el futuro establezca la Institución ; inmediatamente después que haya obtenido dicho premio.
