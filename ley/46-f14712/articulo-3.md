@@ -1,0 +1,2 @@
+Art. 3. Con el presente decreto se dará cuenta al Congreso en su proxima reunion ordinaria.
+-Al Poder Ejecutivo. -Dado en el Salon de sesiones. San José, once de Setiembre de mil ochocientos setenta y tres. —Manuel A. Bonilla, Presidente. -Juan Rafael Mata, Secretario.-Palacio Nacional. San José, Setiembre once de mil ochocientos setenta y tres.- EJECUTESE.-Tomas Guardia.-El Secretario de Estado en el Despacho de Hacienda, Ramon Aguilar

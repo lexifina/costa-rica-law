@@ -1,0 +1,1 @@
+Art. 2 Toda carta del Esterior sin constancia por viñeta ó sello del lugar de su procedencia, estará sujeta á pagar el porte que conforme á la tarifa le corresponda aun cuando venga de cualquiera de los paises con quienes la República por tratados postales haga disminuir el porte.
