@@ -1,0 +1,1 @@
+Artículo 3º.- La Escuela coordinará sus planes y programas con los que en el mismo ámbito desarrolla la Universidad de Costa Rica, con el objeto de estimular y mantener la correlación educativa que establece el artículo 77 de la Constitución Política.
