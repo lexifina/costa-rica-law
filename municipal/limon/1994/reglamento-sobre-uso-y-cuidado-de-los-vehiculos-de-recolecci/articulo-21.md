@@ -1,0 +1,1 @@
+Artículo 21.—Los conductores de equipo y vehículos de recolección además de su licencia de conducir, deben poseer un certificado de haber pasado un curso elemental de mecánica general y deben pasar por cursos de reconocimiento del equipo especializado, cada vez que la institución los adquiera.

@@ -1,0 +1,1 @@
+Artículo 27.—Los conductores velarán porque los vehículos municipales se usen de acuerdo con su capacidad o tonelaje establecido y es prohibido el recargo de los mismos, así como el llevar basura en la tolva- Dicha capacidad será marcada claramente en los vehículos.

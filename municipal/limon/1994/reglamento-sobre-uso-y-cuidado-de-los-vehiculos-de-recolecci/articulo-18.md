@@ -1,0 +1,2 @@
+Artículo 18.—El conductor es el responsable directo del vehículo, de su equipo y herramientas o del cumplimiento del servicio asignado. Es el responsable de mantenerlo en buen estado de conservación y limpieza, y responderá por los daños que le suceda o si se llegara a comprobar descuido o infracciones a las leyes de tránsito.
+Por ninguna razón permitirá que una persona ajena a la institución o peón lo conduzca.

@@ -1,0 +1,1 @@
+Artículo 11.—Los chóferes y peones no deberán llevar materiales en el espacio entre la cabina y el cajón compactador o en oirás partes del vehículo en donde puedan producirse daños al mismo. Lo mismo que dentro de la cabina y colgados en alguna parte del carro. El incumplimiento a lo anterior será sancionado según este reglamento.

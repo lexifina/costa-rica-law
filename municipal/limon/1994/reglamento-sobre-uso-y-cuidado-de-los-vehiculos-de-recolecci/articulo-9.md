@@ -1,0 +1,1 @@
+Artículo 9°—Es obligación de todos los chóferes y peones usar los uniformes, guantes, capas, así como mantenerlos debidamente limpios. El no cumplimiento de los requisitos de seguridad laboral e higiene puede ser sancionado según normas establecidas.

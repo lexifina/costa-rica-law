@@ -1,0 +1,1 @@
+Artículo 7°—Es responsabilidad de la Jefatura de Recolección y Aseo de Vías coordinar con la Jefatura del Taller Mecánico la compra de repuestos y órdenes por servicio requeridas para el buen funcionamiento del equipo.
