@@ -1,0 +1,1 @@
+Art. 3. Es prohibida la importacion: 1° de tabaco en rama, ó labrado en cigarros, polvo ete: 2° de aguardiente de caña, y mixtelas de cualquiera clase: 3, sin permiso expreso del Gobierno no se podràn introducir pólvora ni armas de fuego, y estos artículos, asi como el aguardiente de uva, pagarán un treinta por ciento.

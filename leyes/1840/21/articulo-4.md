@@ -1,0 +1,1 @@
+Art. 4. Se suprime la gracia concedida à los negociantes en la segunda parte del art. 77 del arancel citado, por la extraccion de frutos y producciones del pais; pero se estiende á un seis por ciento la que comprende el art. 2°, por la introduccion de oro y plata acuñada: entendiendose ésta á favor de los que importen dichos metales en pasta.
