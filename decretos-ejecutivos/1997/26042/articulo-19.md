@@ -1,0 +1,1 @@
+Artículo 19.—Para la vigilancia de los efluentes de sistemas de tratamiento de aguas residuales de tipo ordinario, las frecuencias mínimas de muestreo y análisis serán las establecidas en la Tabla 2 del presente Reglamento.
