@@ -1,0 +1,1 @@
+Artículo 3°.- Esta declaratoria prohíbe la demolición de las edificaciones antes mencionadas e igualmente su demolición total o parcial sin la autorización previa del Departamento de Patrimonio Histórico del Ministerio de Cultura, Juventud y Deportes.

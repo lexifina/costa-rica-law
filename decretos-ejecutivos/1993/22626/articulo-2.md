@@ -1,0 +1,1 @@
+Artículo 2°.- Declárese de interés histórico-arquitectónico las edificaciones que forman parte del inmueble que albergara a la Fábrica Nacional de Licores que se hayan realizado en el siglo XIX y hasta hace 50 años, propiedad del Estado e inscrito en el Registro Público de la Propiedad al tomo 1029, folio 352, asiento 002, N° 075531, partida de San José.
