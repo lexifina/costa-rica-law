@@ -13,3 +13,4 @@ Crea Oficina de Prácticas Comercio Desleal y Medidas de Salvaguardia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-12-05 | la propia norma |
+| 2 | 1995-12-05 | Decreto Ejecutivo 29117 (2000-11-21) |
