@@ -1,0 +1,7 @@
+III. DISPOSICIONES FINALES
+ARTÍCULO 16
+Solución de controversias
+1) Los Estados Parte procurarán solucionar toda controversia relacionada con la interpretación o aplicación del presente Protocolo mediante la negociación.
+2) Toda controversia entre dos o más Estados Parte acerca de la interpretación o la aplicación del presente Protocolo que no pueda resolverse mediante la negociación dentro de un plazo razonable deberá, a solicitud de uno de esos Estados Parte, someterse a arbitraje. Si, seis meses después de la fecha de la solicitud de arbitraje, esos Estados Parte no han podido ponerse de acuerdo sobre la organización del arbitraje, cualquiera de esas Partes podrá remitir la controversia a la Corte Internacional de Justicia mediante solicitud conforme al Estatuto de la Corte.
+3) Cada Estado Parte podrá, en el momento de la firma, ratificación, aceptación o aprobación del presente Protocolo o de la adhesión a él, declarar que no se considera vinculado por el párrafo 2 del presente artículo. Los demás Estados Parte no quedarán vinculados por el párrafo 2 del presente artículo respecto de todo Estado Parte que haya hecho esa reserva.
+4) El Estado Parte que haya hecho una reserva de conformidad con el párrafo 3 del presente artículo podrá en cualquier momento retirar esa reserva notificándolo al Secretario General de las Naciones Unidas.

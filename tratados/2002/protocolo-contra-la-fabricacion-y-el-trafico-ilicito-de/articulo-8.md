@@ -1,0 +1,7 @@
+ARTÍCULO 8
+Marcación de las armas de fuego
+1) A los efectos de identificar y localizar cada arma de fuego, los Estados Parte:
+a. En el momento de la fabricación de cada arma de fuego exigirán que ésta sea marcada con una marca distintiva que indique el nombre del fabricante, el país o lugar de fabricación y el número de serie, o mantendrán cualquier otra marca distintiva y fácil de emplear que ostente símbolos geométricos sencillos, junto con un código numérico y/o alfanumérico, y que permita a todos los Estados Parte identificar sin dificultad el país de fabricación;
+b. Exigirán que se aplique a toda arma de fuego importada una marca sencilla y apropiada que permita identificar el país de importación y, de ser posible, el año de ésta, y permita asimismo a las autoridades competentes de ese país localizar el arma de fuego, así como una marca distintiva, si el arma de fuego no la lleva. Los requisitos del presente apartado no tendrán que aplicarse a la importación temporal de armas de fuego con fines lícitos verificables;
+c. Velarán por que, en el momento en que se transfiera un arma de fuego de las existencias estatales a la utilización civil con carácter permanente, se aplique a dicha arma la marca distintiva apropiada que permita a todos los Estados Parte identificar el país que realiza la transferencia.
+2) Los Estados Parte alentarán a la industria de fabricación de armas de fuego a formular medidas contra la supresión o la alteración de las marcas.
