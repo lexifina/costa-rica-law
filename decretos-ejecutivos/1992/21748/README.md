@@ -14,3 +14,4 @@ Reglamento Pago Viáticos y Zonaje Servidores Consejo Técnico AviaciónCivil
 | --- | --- | --- |
 | 1 | 1993-01-06 | la propia norma |
 | 2 | 2002-06-18 | Decreto Ejecutivo 30601 (2002-06-18) |
+| 3 | 2002-06-18 | Ley 8 |
