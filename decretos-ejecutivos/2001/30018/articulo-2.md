@@ -1,0 +1,1 @@
+Artículo 2°—En consecuencia, dicho Centro Educativo podrá en el Certificado de Asistencia al únicamente los certificados de asistencia Ciclo Materno infantil y al ciclo de Transición de la Educación Preescolar los cuales se equiparan con los del sistema Educativo Estatal.
