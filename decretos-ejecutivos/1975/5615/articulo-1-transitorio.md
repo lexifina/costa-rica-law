@@ -1,0 +1,2 @@
+Transitorio I. ─ Toda actividad relacionada con la Industria y Comercio en general contemplada en el presente decreto, que por la índole de sus funciones no pudiere incorporarse a los horarios propuestos , deberá justificarlo ante la cámara respectiva y obtener la aprobación de las autoridades de tránsito y transporte que señala la ley N° 5322 del 27 de agosto de 1973.
+Dado en la Casa Presidencial.─ San José, a los veintitrés días del mes de diciembre de mil novecientos setenta y cinco.
