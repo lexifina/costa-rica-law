@@ -1,1 +1,0 @@
-Artículo 23.- El Banco podrá autorizar la apertura de cartas de créditos y pagos anticipados siguiendo un orden cronológico de solicitudes de acuerdo con la facultad que le da el artículo 21. Para autorizar pagos anticipados, el Banco podrá pedir las garantías que estime necesarias.
