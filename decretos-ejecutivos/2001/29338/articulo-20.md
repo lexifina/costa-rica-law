@@ -1,0 +1,1 @@
+Artículo 20.—Cuando por razones especiales no haya sido posible programar el servicio de transporte y el mismo se requiera en horas y día no hábiles; solo podrá ser autorizado por el Director Ejecutivo.

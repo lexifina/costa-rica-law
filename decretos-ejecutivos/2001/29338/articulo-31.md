@@ -1,0 +1,1 @@
+Artículo 31.—La circulación de vehículos administrativos de JUDESUR en horas y días no hábiles estarán restringidas estrictamente a la realización de labores no postérgales o a la atención de urgencias relacionadas con funciones inherentes a la institución.

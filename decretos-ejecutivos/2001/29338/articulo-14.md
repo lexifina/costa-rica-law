@@ -1,0 +1,1 @@
+Artículo 14.—Todos los vehículos, deberán cumplir con los programas de mantenimiento preventivo y correctivo; así como el control de abastecimiento de combustible y lubricantes, kilometraje y diligencias en caso de accidentes de tránsito.

@@ -1,0 +1,1 @@
+Artículo 34.—El Área Administrativa deberá informar al Director Ejecutivo o al jefe de área según corresponda, sobre la aplicación de las sanciones que consideren pertinentes a los funcionarios que hayan incumplido el programa de mantenimiento.

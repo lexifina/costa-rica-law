@@ -1,0 +1,2 @@
+Artículo 5º—Uso de emblema en vehículos: Todos los vehículos sin excepción deberán portar permanentemente el distintivo que los identifique con el emblema de JUDESUR en las dos puertas laterales y la leyenda USO OFICIAL.
+(Nota de Sinalevi: Mediante sesión N° 531 del 12 de febrero de 2010, se reformó este numeral. No obstante, mediante sesión N° 585 del 7 de abril de 2011, se ordena derogar la sesión N° 531 antes mencionada, por lo que este artículo vuelve a su estado anterior antes de dicha reforma)

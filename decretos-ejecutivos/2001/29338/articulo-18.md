@@ -1,0 +1,2 @@
+Artículo 18.—Corresponderá al Área Administrativa, la Jefatura del Área de Desarrollo o a la Dirección Ejecutiva según corresponda, determinar de acuerdo a la solicitud presentada, el tipo de vehículo que mejor se adapte a las condiciones de servicios solicitados.
+(Nota de Sinalevi: Mediante sesión N° 531 del 12 de febrero de 2010, se reformó este numeral. No obstante, mediante sesión N° 585 del 7 de abril de 2011, se ordena derogar la sesión N° 531 antes mencionada, por lo que este artículo vuelve a su estado anterior antes de dicha reforma)

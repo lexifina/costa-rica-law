@@ -1,0 +1,2 @@
+Artículo 25.—Los vehículos propios o alquilados por JUDESUR tendrán prioridad de los aparcamientos en los estacionamientos de la institución, sobre aquellos propiedad de los empleados.
+Para lograr el mayor aprovechamiento de los vehículos disponibles, se deberán agrupar en un solo viaje, varias solicitudes de transporte que se generen en un mismo sitio o ruta, siempre que las circunstancias dando aviso oportuno a los interesados para lograr una adecuada coordinación de un viaje.

@@ -1,0 +1,1 @@
+Artículo 43.—Los funcionarios autorizados para conducir vehículos de JUDESUR no podrán en ningún caso ceder la conducción de los mismos a personas particulares, salvo por razones muy calificadas en cuyo caso, una vez finalizado el viaje debe informar los motivos que lo indujeron a entregar el vehículo.

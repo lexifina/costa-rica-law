@@ -1,0 +1,1 @@
+Artículo 21.—En caso de urgencia comprobada podrá autorizar la salida del vehículo el jefe administrativo, quien deberá informar y dar las justificaciones necesarias; el primer día hábil posterior a la fecha de urgencia al Director Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 42.—Los conductores no deben permitir que personas no autorizadas para la función o el servicio que se propone brindar, viajen en los vehículos salvo en ocasiones especiales en que medie autorización escrita del superior o en caso de urgencias comprobadas.

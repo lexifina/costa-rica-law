@@ -1,0 +1,1 @@
+Artículo 50.—El conductor no deberá manifestar disconformidad con las determinaciones de las autoridades en el momento del accidente, únicamente deberá informar sobre los pormenores de éste y comportarse cortésmente.

@@ -1,0 +1,1 @@
+Artículo 24.—Únicamente en caso de excepción calificada, un vehículo de uso administrativo podrá ser guardado en casa de habitación de funcionarios o particulares previa aprobación del presidente, el Director Ejecutivo, o el jefe del Área Administrativa.

@@ -1,0 +1,1 @@
+Artículo 19.—El formulario "Solicitud y Control de Servicios de Transporte", deberá ser autorizado por los jefes de área o cualquier otro jerarca superior cuando corresponda, quienes podrán delegar por escrito, esa autorización cuando la naturaleza de las funciones así lo requieran.

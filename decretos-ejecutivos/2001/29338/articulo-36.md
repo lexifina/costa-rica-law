@@ -1,0 +1,3 @@
+CAPÍTULO X
+De la autorización para conducir vehículos
+Artículo 36.—Se autoriza la conducción de vehículo de JUDESUR a aquellos funcionarios que así lo requieran para el adecuado desempeño de sus labores. Esta autorización se formalizará mediante copia del documento de autorización de uso de vehículo de JUDESUR que debe portar obligatoriamente todo trabajador mientras conduce un vehículo afecto al presente reglamento, para los miembros de la Junta Directiva, se requerirá acuerdo de la Junta Directiva al respecto, salvo que previamente haya sido autorizado por la Junta para reuniones de JUDESUR.

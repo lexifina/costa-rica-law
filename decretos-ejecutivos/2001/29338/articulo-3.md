@@ -1,0 +1,3 @@
+Artículo 3º—Clasificación de los vehículos: Los vehículos propiedad de JUDESUR se clasifican en:
+a) De uso administrativo general: Los destinados para atender los servicios regulares de transporte de materiales, equipos o mercancías de JUDESUR y de los funcionarios en el desempeño normal de su relación de servicio.
+(Nota de Sinalevi: Mediante sesión N° 531 del 12 de febrero de 2010, se adicionó a este numeral el inciso b). No obstante, mediante sesión N° 585 del 7 de abril de 2011, se ordena derogar la sesión N° 531 antes mencionada, por lo que este artículo vuelve a su estado anterior antes de dicha reforma)

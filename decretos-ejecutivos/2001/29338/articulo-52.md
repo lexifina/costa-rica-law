@@ -1,0 +1,2 @@
+Artículo 52.—El Área Administrativa analizará todo accidente de tránsito en que participe un vehículo de JUDESUR. Como resultado del análisis rendirá un informe con la recomendación respectiva dirigido al Director Ejecutivo ó al Jefe de Área, según corresponda.
+Compete al Director Ejecutivo conforme al mérito de cada caso, adoptar las medidas disciplinarias correspondientes o someter lo ocurrido a la Junta Directiva cuando sea pertinente.

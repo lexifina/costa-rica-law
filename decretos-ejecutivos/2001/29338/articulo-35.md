@@ -1,0 +1,1 @@
+Artículo 35.—El Área Administrativa en coordinación con las jefaturas de área deberán recomendar la venta o canje de unidades, que por alguna circunstancia han dejado de ser útiles para JUDESUR, la dirección final a respecto corresponderá a la Junta Directiva de JUDESUR.
