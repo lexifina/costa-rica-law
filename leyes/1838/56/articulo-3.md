@@ -1,0 +1,1 @@
+3°El Ministro General del Despacho celebrará el contrato de que habla la primera disposición y cuidará de que se estienda en forma. –Dado en la Ciudad de San José á los veinte días del mes de Febrero de mil ochocientos treinta y ocho. –Manuel Aguilar. –Al Ministro General del Despacho.”
