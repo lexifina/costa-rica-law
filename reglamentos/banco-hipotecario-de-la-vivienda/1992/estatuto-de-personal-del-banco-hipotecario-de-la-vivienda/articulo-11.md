@@ -1,0 +1,1 @@
+Artículo 11.—Nombramientos: El nombramiento y remoción del Gerente, Sub-gerentes. Auditor y Subauditor se regularán por lo que establezca la Ley. Todos los demás cargos serán de nombramiento de la Gerencia.

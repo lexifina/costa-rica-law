@@ -1,0 +1,2 @@
+Artículo 23.—Aumentos por antigüedad: Los servidores tendrán derecho a aumentos anuales por antigüedad del 3% (tres por ciento) sobre el sueldo base.
+En relación con los años previos de servicio dentro de la Administración Pública incluidas las empresas públicas y las entidades del Sistema Financiero Nacional para la Vivienda, el porcentaje de aumento que se reconocerá al servidor será de 1.75% (uno punto setenta y cinco por ciento) por cada año completo, siempre que los servicios se hallan prestado en jornadas no menores de medio tiempo.

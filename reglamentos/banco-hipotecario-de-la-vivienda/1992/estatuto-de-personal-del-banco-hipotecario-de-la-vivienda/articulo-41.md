@@ -1,0 +1,1 @@
+Artículo 41.—Capacitación: El Banco de acuerdo con sus posibilidades procurará promover v financiar la capacitación de sus servidores, al amparo del Reglamento de Capacitación y las reglas que fije la Junta Directiva.

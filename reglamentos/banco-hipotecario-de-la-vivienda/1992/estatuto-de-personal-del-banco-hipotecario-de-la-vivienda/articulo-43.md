@@ -1,0 +1,1 @@
+Artículo 43.—Préstamos: El Banco, de acuerdo con sus posibilidades, podrá mantener para sus servidores, programas de préstamo para vivienda, de conformidad con las reglas que dicte la Junta Directiva.

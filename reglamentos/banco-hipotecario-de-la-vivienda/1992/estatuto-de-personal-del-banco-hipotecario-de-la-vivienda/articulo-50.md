@@ -1,0 +1,1 @@
+Artículo 50.—Evaluación de la falta: La aplicación de cualquiera de las sanciones previstas en el presente Estatuto, se llevará a cabo de acuerdo con la gravedad de la falta, la reincidencia, los antecedentes disciplinarios del servidor y otros elementos similares, que serán evaluados discrecionalmente por el superior jerárquico respectivo.
