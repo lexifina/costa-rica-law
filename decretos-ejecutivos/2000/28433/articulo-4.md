@@ -1,1 +1,0 @@
-Articulo 4°—Se permitirá la reclasificación de cebolla seca únicamente para su comercialización en el mercado local, a los efectos de que la misma se ajuste a las categorías y condiciones establecidas en el presente Reglamento Técnico.

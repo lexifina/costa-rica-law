@@ -1,1 +1,0 @@
-Artículo 6°—A toda persona que haciendo uso de este reglamento, encuentra razón sustentada para pedir su revisión, se le solicita notificarlo al Ministerio de Agricultura o al Ministerio de Salud, sin demora, aportando, de ser posible, la información correspondiente para hacer las investigaciones necesarias y tomar las previsiones del caso.

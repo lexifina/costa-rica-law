@@ -1,1 +1,0 @@
-Articulo 3°—No se podrá restringir la comercialización e internamiento al país, de cebolla seca que no cumpla con las características relativas a la calidad y o calibre, salvo en lo relativo a la podredumbre.
