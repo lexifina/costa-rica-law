@@ -1,0 +1,1 @@
+ARTÍCULO 3°. -Los vapores, en cuanto a su conservación, vigilancia sobre ellos y en todo lo que toque al servicio marítimo, pertenecen a la Secretaría de Marina; y en cuanto al servicio especial a que están destinados, a las respectivas de Hacienda y Gobernación, ó de Guerra cuando se ocupen del trasporte de tropas ó en cualquiera otro servicio perteneciente a este ramo.

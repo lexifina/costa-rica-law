@@ -1,0 +1,1 @@
+ARTÍCULO 19.-El departamento mecánico se compone de un Jefe mecánico y de los oficiales que el Gobierno determine. Este departamento se considerará como anexo al servicio de los vapores y sujeto, por consiguiente, al Capitán de Puerto y a los demás Jefes superiores que tengan intervención en la conservación y reparaciones de los vapores.

@@ -1,0 +1,1 @@
+ARTÍCULO 9°. -El maquinista es responsable por la parte técnica que le corresponde en el manejo de la máquina, y le están subordinados los fogoneros y demás empleados en el servicio de la misma máquina. El, por su parte, está subordinado al timonel en todo lo que toque al andar y dirección del vapor.

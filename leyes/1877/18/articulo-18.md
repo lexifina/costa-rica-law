@@ -1,0 +1,1 @@
+ARTÍCULO 18.-El Administrador de correos de Puntarenas girará por los sueldos y demás gastos ordinarios del vapor-correo, y el Administrador de la Aduana, por los del vapor guarda-costa. Respecto a los gastos extraordinarios, el Gobierno, al ordenarlos, designará el empleado ó la persona a quien encargue su inspección y ésta girará por ellos.
