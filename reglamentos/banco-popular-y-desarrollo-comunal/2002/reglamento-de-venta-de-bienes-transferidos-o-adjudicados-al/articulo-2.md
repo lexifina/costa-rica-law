@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El objeto de este Reglamento es regular la administración y venta de los bienes y valores que fueron transferidos al Banco en pago de obligaciones a su favor, o que le fueran adjudicados en remate judicial.

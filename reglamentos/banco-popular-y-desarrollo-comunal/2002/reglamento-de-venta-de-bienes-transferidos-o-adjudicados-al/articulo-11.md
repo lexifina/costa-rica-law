@@ -1,0 +1,2 @@
+Artículo 11.—Dependencia encargada. Todos los trámites relativos a la venta de bienes contemplados por este Reglamento serán realizados por el Proceso de Bienes y Servicios en Oficinas Centrales, o por la Sucursal respectiva, cuando se trate de bienes ubicados dentro del ámbito de su competencia.
+El Proceso de Bienes y Servicios ejercerá un control fiscalizador de los procesos de venta realizados en las Sucursales.

@@ -1,0 +1,2 @@
+Artículo 8º—Venta a instituciones públicas y organizaciones sociales. Los bienes que contempla este Reglamento podrán ser vendidos en forma directa, sin que medie trámite de publicación, a cualquier institución pública u organización social sin fines de lucro, para el cumplimento de sus objetivos.
+De igual forma, cuando medie interés social y conveniencia institucional, el Banco podrá venderles directamente conjuntos de inmuebles destinados a uso habitacional, para lo cual se requerirá un criterio debidamente razonado de la Comisión Gerencial de Venta de Bienes.

@@ -1,0 +1,1 @@
+Artículo 10.—Sanciones por incumplimiento. El rechazo, desistimiento o caducidad de la solicitud para acogerse a lo dispuesto en los artículos 6 y 8 de este Reglamento impide reiterarla, salvo que tal rechazo, desistimiento o caducidad, a juicio del nivel resolutivo, se justifique en virtud de que haya sido por caso fortuito o fuerza mayor.

@@ -1,0 +1,2 @@
+Artículo 9º—Prelación. Las personas incluidas en el artículo 6 tendrán prelación para adquirir los bienes sobre el Banco Popular y las entidades contempladas en el artículo 8. En el caso de que existan distintos oferentes con el mismo nivel de prioridad, el nivel resolutivo decidirá a quien se adjudica, de acuerdo con lo dispuesto en el artículo 18 de este Reglamento. Se dará preferencia al ex propietario sobre el ex poseedor y a éste sobre el poseedor.
+El plazo para ejercer la prelación vence el día que se ordena la publicación de la venta.

@@ -1,0 +1,3 @@
+Artículo 17.—Recepción de ofertas. Las ofertas de compra deberán remitirse en sobre cerrado ante la unidad administrativa que gestione la venta, indicando el precio de compra, forma de pago, el nombre, número de documento de identidad o cédula jurídica del oferente y el lugar o medio para las notificaciones. Al recibir las propuestas se consignará la fecha y hora de recepción y la firma del funcionario que las recibe.
+La oferta que incumpla con tales requisitos no se tomará en cuenta.
+El plazo para la recepción de ofertas será de un mínimo de ocho días y de un máximo de quince días hábiles a partir de la primera publicación que del respectivo concurso realice el Banco en un diario de circulación nacional. La fecha y hora de vencimiento se indicará en dicha publicación.

@@ -1,0 +1,2 @@
+Artículo 12.—Precio de venta. El precio de venta de los bienes no podrá ser inferior al de su avalúo, el cual deberá realizarse por un perito designado por el Banco. Su vigencia máxima será de un año, sin perjuicio de establecer un plazo menor tomando en cuenta la naturaleza del bien.
+Cuando el monto del avalúo sea inferior al utilizado para el remate judicial, o al considerado en la formalización del crédito, deberá razonarse la causa de esa diferencia.

@@ -1,0 +1,6 @@
+Artículo 15.—Bienes no vendidos. Fracasados los intentos de venta indicados en el artículo 13, se podrá proceder de la siguiente manera:
+a) Ofrecer el bien en remate al mejor postor, con un descuento de un 40% del último valor del avalúo.
+Si en el primer remate no se lograre vender el bien, se ofrecerá un segundo remate con un descuento de un 60% del último valor del avalúo y si en ese segundo remate tampoco fuere posible la venta, el bien se ofrecerá en un tercer remate sin sujeción a base.
+b) Encargar su administración a una Sociedad subsidiaria del Banco, en los términos que indica el artículo 73 inciso 3) de la Ley Orgánica del Sistema Bancario Nacional.
+c) Colocar el bien en un fideicomiso y en el caso de viviendas de interés social se podrá proceder de conformidad con lo establecido en el artículo 170 de la Ley del Sistema Financiero Nacional para la Vivienda.
+d) Mediante resolución fundada y por conveniencia institucional, contratar una o varias personas, sean físicas o jurídicas, que se encarguen de la venta de los bienes adjudicados y recibidos en dación en pago, mediante una comisión negociada. Dicha venta nunca podrá ser inferior hasta en un sesenta por ciento (60%) del último valor del avalúo.

@@ -1,0 +1,4 @@
+Artículo 13.—Publicación de ventas. La venta de los bienes contemplados por este Reglamento se promoverá mediante publicación en un periódico de circulación nacional. De estimarse conveniente, podrá publicarse también en cualquier otro medio idóneo.
+Cuando un bien no se vendiere luego de haberse ofertado, se promoverá nuevamente su venta, la cual deberá realizarse dentro de los 30 días naturales luego de fracasada la misma.
+Acaecido el anterior supuesto, se podrá rebajar el precio de venta hasta en un 10% del valor del avalúo y publicar la oferta dentro de los 30 días naturales posteriores al fracaso de la segunda oferta. Si ésta también fracasa, se podrá rebajar su precio hasta en un 20% con respecto al avalúo y deberá publicarse de nuevo dentro de los 30 días naturales posteriores al fracaso de la tercera oferta.
+El rebajo porcentual sólo procede cuando no se hayan recibido ofertas de compra en alguna de las publicaciones de venta.

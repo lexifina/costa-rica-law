@@ -1,0 +1,2 @@
+Artículo 22.—Liquidación del precio de venta. Una vez percibido el precio de venta de un bien, el Proceso de Gestión de Bienes y Servicios hará la respectiva liquidación contable conforme al procedimiento que haya elaborado al efecto.
+Hecha la liquidación trasladará el expediente al Proceso de Gestión de Cobro para que éste lleve a cabo los trámites indicados en la Ley Nº 4631 del 18 de agosto de 1970.

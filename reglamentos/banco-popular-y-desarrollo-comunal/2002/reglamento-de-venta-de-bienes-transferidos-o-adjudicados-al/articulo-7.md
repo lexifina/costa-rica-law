@@ -1,0 +1,1 @@
+Artículo 7º—Traspaso al patrimonio del banco. Por razones de conveniencia institucional, previa justificación de la unidad respectiva con el aporte de un criterio técnico debidamente razonado el Comité Gerencial de Venta de Bienes podrá autorizar que un bien adjudicado o recibido en pago se traspase en firme como un activo del Banco.
