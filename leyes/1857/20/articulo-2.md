@@ -1,0 +1,1 @@
+Art 2°. - El Gobierno hará traer por cuenta del Fisco todas las clases de aguardientes extranjero del uso común, para que se expenda en los puestos públicos que al efecto se crearan, pudiendo los dueños de Hoteles y Restaurantes comprar en ellos por mayor para el consumo de sus establecimientos.
