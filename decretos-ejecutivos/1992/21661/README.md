@@ -14,3 +14,4 @@ Reglamento de Creación de la Dirección Nacional de Control de Drogas.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-10-29 | la propia norma |
+| 2 | 1992-10-29 | Ley 8 |
