@@ -1,4 +1,6 @@
-LEY Nº 7383
+(Derogado)
+Nº 7383
+(Esta norma fue derogado por el artículo 143 de la Ley de Justicia Penal Juvenil, ley N° 7576 del 08 de marzo de 1996)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 REFORMA A LA LEY ORGÁNICA DE LA JURISDICCIÓN TUTELAR DE MENORES, N° 3260 del 21 DE DICIEMBRE DE 1963 Y SUS REFORMAS

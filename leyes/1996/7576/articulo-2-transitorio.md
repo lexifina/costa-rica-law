@@ -1,0 +1,2 @@
+TRANSITORIO II.- Las instituciones públicas especializadas, encargadas del tratamiento para la desintoxicación de menores con problemas de adición a drogas, a que se refiere esta ley, deberán ser creadas en un plazo no mayor de seis meses después de la promulgación de esta ley.
+Para lo anterior, el Ministerio de Hacienda deberá tomar previsiones necesarias en el momento de preparar la Ley de Presupuesto Nacional
