@@ -1,0 +1,1 @@
+Artículo 18°.-Los problemas que se sometan a la consideración de la Comisión deberán resolverse con absoluta imparcialidad y objetividad, sin supeditarlos a la solución de otras cuestiones pendientes, o al cumplimiento de compromisos anteriores.

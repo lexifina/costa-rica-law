@@ -1,0 +1,1 @@
+Articulo 12°.-En ningún caso la solicitud de revisión de un acuerdo adoptado en cualesquiera de las instancias previstas en este Reglamento, podrá dejar en suspenso la ejecución de la resolución respectiva.

@@ -1,0 +1,1 @@
+Artículo 25°.-El Consejo deberá reunirse en un plazo máximo de 15 días calendario a partir de la fecha de la referida convocatoria y dictar fallo dentro de los 15 días calendario siguientes al inicio de la primera reunión.

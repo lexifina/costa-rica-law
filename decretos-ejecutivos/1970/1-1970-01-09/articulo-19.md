@@ -1,0 +1,1 @@
+Artículo 19°.-En las reuniones que celebre podrán participar los asesores que las Partes estimen conveniente, así como los industriales o comerciantes debidamente acreditados que estén afectados por los problemas objeto de consideración.

@@ -1,0 +1,1 @@
+Artículo 23°.-Para efecto de lo dispuesto en los artículos 17, 21 Y 22 anteriores, las resoluciones se tomarán con el voto coincidente de por lo menos cuatro de los seis miembros y entrarán en vigor en la forma y fecha que en las mismas se estipule. El quórum estará formado por cinco miembros.

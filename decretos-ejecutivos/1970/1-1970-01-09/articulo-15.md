@@ -1,0 +1,1 @@
+Articulo 15°.-Los acuerdos que se produzcan como consecuencia del arreglo directo y las discrepancias que quedaren pendientes de solución, así como los puntos de vista de cada una de las Partes, deberán hacerse constar por escrito.

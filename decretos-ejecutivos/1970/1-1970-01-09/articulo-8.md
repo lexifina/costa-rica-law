@@ -1,0 +1,1 @@
+Artículo 8°-Sí la Comisión no llega a solución alguna sobre el o los problemas planteados, el asunto pasará a la consideración del Consejo de Ministros, integrado por el señor Ministro de Industria y Comercio de Costa Rica y el señor Ministro de Comercio e Industrias de Panamá, o en su defecto, por las personas designadas por los Señores Ministros para tal fin. .

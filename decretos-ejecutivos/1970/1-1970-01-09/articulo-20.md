@@ -1,0 +1,1 @@
+Articulo 20°.-Para la consecución de las mejores soluciones y de un mayor entendimiento de los problemas que surjan, la Comisión podrá practicar cualquier reconocimiento, inspección, análisis, valoración y otra investigación que estime necesaria.

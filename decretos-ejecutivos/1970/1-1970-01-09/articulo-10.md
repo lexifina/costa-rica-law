@@ -1,0 +1,3 @@
+Artículo 10°.-Las personas naturales o jurídicas que tengan interés en la resolución de un problema, deberán ponerlo en conocimiento de la Autoridad Administrativa de su país para los efectos conducentes.
+Las Autoridades Administrativas no darán curso a pretensión alguna en tanto no verifiquen, con la mayor exactitud posible, la existencia de los hechos en que aquella se fundamenta.
+Si los resultados de la investigación lo ameritan, la Autoridad Administrativa planteará el asunto en la forma que determina este Reglamento. Cuando la solicitud fuera declarada sin lugar por la Autoridad Administrativa , podrán interponerse los recursos legales que procedan conforme al Derecho interno de cada país.

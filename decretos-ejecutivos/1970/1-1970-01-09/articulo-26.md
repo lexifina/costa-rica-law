@@ -1,0 +1,1 @@
+Artículo 26°.-Para la mejor y más pronta solución de cualquier problema, el Consejo procurará la documentación y pruebas que crea convenientes. Además, podrá ordenar que se practique cualquier reconocimiento, inspección, análisis, evaluación u otra investigación que estime necesaria.

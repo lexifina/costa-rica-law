@@ -1,0 +1,1 @@
+Artículo 5°-Con el propósito de facilitar la determinación del origen de las mercaderías, los artículos que sé comercien entre ambos países al amparo del Tratado, deberán ostentar una leyenda, en lugar visible, que diga "Hecho en... (país de origen)" o "Producido en.., (país de origen)".

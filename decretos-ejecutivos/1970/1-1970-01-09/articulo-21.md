@@ -1,0 +1,1 @@
+Artículo 21°.-Los acuerdos a que se llegue deberán versar únicamente sobre los puntos planteados ante la Comisión y solamente tendrán valor para el o los casos que los hubieren motivado. Esto último, sin embargo, no será obstáculo para que la Comisión pueda fundar sus acuerdos en precedentes que existan.

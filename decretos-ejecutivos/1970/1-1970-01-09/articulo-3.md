@@ -1,0 +1,1 @@
+Articulo 3°-En la aplicación de las normas para resolver los problemas que se originen con motivo de la interpretación o aplicación del Tratado, se introducirá el mayor grado de flexibilidad posible, con el propósito de no entorpecer el intercambio comercial entre ambos países.
