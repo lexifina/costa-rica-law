@@ -1,0 +1,1 @@
+Artículo 3°—La función de la Comisión será la compra de fincas, que tienda a recuperar los terrenos de las Reservas Indígenas en posesión de ocupantes no indígenas e indemnizar éstos a la mayor brevedad, tomando en cuenta el perjuicio causado por la demora de los trámites.

@@ -1,0 +1,1 @@
+Artículo 6°—Los fondos necesarios serán incluidos en el Presupuesto de la República y adicionalmente podrán aportar recursos otras instituciones autónomas o semiautónomas del Estado, así como entes privados.

@@ -1,0 +1,1 @@
+Artículo 2°—Se integrará una "Comisión de Emergencia Nacional- Reservas Indígenas" que debe tomar las medidas necesarias o la resolución rápida de los problemas y casos pendientes y proceder a los pagos atrasados.

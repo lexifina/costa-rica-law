@@ -1,0 +1,2 @@
+Artículo 4°—La Comisión de Emergencia Nacional será constituida por las mismas personas que integraron la Comisión establecida por el decreto número 7182-G del 23 de julio de 1977.
+El ingeniero Rodolfo Navas Al varado seguirá como Presidente de la Comisión, a la cual se unirá también el ingeniero Rafael Ángel Ocampo Sánchez, en calidad de Perito Evaluador con facultad de realizar análisis de fincas cuando sea necesario.

@@ -1,0 +1,1 @@
+Artículo 5°—La Comisión de Emergencia Nacional será la responsable directa del manejo de los fondos destinados a la compra de fincas y utilizará la misma cuenta bancaria de la Comisión establecida por el decreto No 7182-G del 23 de julio de 1977.
