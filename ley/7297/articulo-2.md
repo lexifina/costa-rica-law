@@ -1,6 +1,2 @@
-ARTICULO 2.- Los terrenos privados y de aptitud forestal,
-comprendidos en la anterior delimitación, serán susceptibles de
-expropiación y se considerarán parte del Parque Nacional Juan Castro
-Blanco, hasta que sean adquiridos por el Estado, por compra, mediante
-donaciones o por expropiaciones. Mientras tanto, los propietarios gozarán
-del ejercicio pleno de todos los atributos de dominio.
+ARTICULO 2.- Los terrenos privados y de aptitud forestal, comprendidos en la anterior delimitación, serán susceptibles de expropiación y se considerarán parte del Parque Nacional del Agua Juan Castro Blanco, hasta que sean adquiridos por el Estado, por compra, mediante donaciones o por expropiaciones. Mientras tanto, los propietarios gozarán del ejercicio pleno de todos los atributos de dominio.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Ley 8392 del 29 de octubre de 2003, publicada en La Gaceta N° 232 del 02 de diciembre de 2003.)
