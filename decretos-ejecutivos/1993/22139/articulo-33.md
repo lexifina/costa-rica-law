@@ -11,4 +11,6 @@ h) Ingresar o egresar del Centro fuera del horario establecido para ello.
 i) Ingresar al Centro oloroso a licor.
 j) Realizar ventas no autorizadas por la Administración o Dirección del Cene
 k) Realizar apuestas y otras transacciones económicas prohibidas.
-1) Poseer animales.
+l) Poseer animales.
+m) Mantener en su poder joyas u otros objetos de valor análogo, o más dinero del monto superior que se pague como incentivo económico quincenal a la población privada de libertad, por parte de la administración Penitenciaria.
+(Así ampliado mediante el artículo 33 del Decreto Ejecutivo No. 25882, del 20 de febrero de 1997).

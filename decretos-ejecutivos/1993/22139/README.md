@@ -14,3 +14,4 @@ Reglamento sobre Derechos y Deberes de los Privados y Privadas de Libertad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-05-31 | la propia norma |
+| 2 | 1997-02-20 | Decreto Ejecutivo 25882 (1997-02-20) |

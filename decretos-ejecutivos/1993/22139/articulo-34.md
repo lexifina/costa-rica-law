@@ -17,4 +17,5 @@ m) Violar la correspondencia ajena.
 n) Brindar información falsa al personal de la institución o inducir a otros a que lo hagan.
 ñ) Violar las disposiciones referentes a la visita o inducir a otros a que lo hagan.
 o) Incumplir con las pautas establecidas en su ubicación laboral, ya sea porque hizo abandono del trabajo o porque ejecutó cambio laboral sin comunicación previa al personal del Centro u oficina.
-p) Resistirse u obstaculizar las requizas que se realizan en el Centro.
+p) Resistirse u obstaculizar la requisa de personas y las inspecciones de bienes que se realicen en el Centro.
+(Así reformado el inciso p) de este artículo mediante el artículo 33 del Decreto Ejecutivo No. 25882, del 20 de febrero de 1997).
