@@ -1,1 +1,0 @@
-Artículo 4°—Las solicitudes de permisos de exportación de especies de flora y fauna silvestres nacidas en viveros o zoocriaderos, acuarios y zoológicos bajo supervisión del Sistema Nacional de Áreas Protegidas y las Autoridades Científicas podrán ser autorizados por la Autoridad Administrativa sin la recomendación técnica de las Autoridades Científicas.

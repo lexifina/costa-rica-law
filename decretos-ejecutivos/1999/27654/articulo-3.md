@@ -1,5 +1,0 @@
-Artículo 3°—Quienes soliciten permiso de importación de especies de vida silvestre incluidas en los Apéndices de la Convención sobre el Comercio Internacional de Especies Amenazadas de Flora y Fauna silvestres, deberán cumplir los siguientes requisitos:
-a) Comprar y completar el formulario de solicitud de importación.
-b) Adjuntar copia de permiso de exportación del país de origen.
-c) Presentar 3 copias de la evaluación de impacto ambiental, establecido en el artículo 26 de la Ley No 7317, Ley de Conservación de la Vida Silvestre, necesarias para el otorgamiento del visto bueno de las autoridades científicas.
-d) Cancelar la suma respectiva mediante entero a favor del Gobierno, según lo establece el artículo 26 de la Ley No 7317, de acuerdo con los animales y plantas autorizados, dichos montos se establecen en un diez por ciento (10%) del valor CIF para animales y un cinco por ciento (5%) del valor CIF para plantas y un dos por ciento (2%) del valor CIF para plantas y animales de laboratorio.
