@@ -14,3 +14,4 @@ Reglamento de Especialidades Odontológicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1970-05-20 | la propia norma |
+| 2 | 1970-09-24 | Decreto Ejecutivo 1246 (1970-09-24) |
