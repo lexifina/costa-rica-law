@@ -1,0 +1,1 @@
+Artículo 5°.- Autorízase a la Secretaría de Hacienda y Comercio para que, a solicitud del Consejo Nacional de la Producción y de acuerdo con las estadísticas y precios de los productos en el exterior, rebaje o suprima los derechos de aduana que pesan sobre los aceites y grasas.

@@ -1,0 +1,1 @@
+Artículo 2°.- El Consejo deberá mantener, mientras dure la presente emergencia y en la forma que considere conveniente, una cantidad de aceites y grasas suficiente para que llene las funciones de fondo estabilizador. De permitirlo las ofertas extranjeras, el valor de esta reserva no será inferior a un millón de colones.
