@@ -14,3 +14,4 @@ Refugio Vida Silvestre Propiedad mixta finca Barú del Pacífico Saveegre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-10-06 | la propia norma |
+| 2 | 2000-07-12 | Decreto Ejecutivo 28979 (2000-07-12) |

@@ -1,3 +1,4 @@
+(Prorrogada la Vigencia del presente reglamento por el artículo 1° del Decreto Ejecutivo N° 28979 del 12 de julio del 2000 en los siguiente términos: "Prorrógase la Declaratoria del Refugio de Vida Silvestre Propiedad Mixto, Finca Barú Del Pacífico, por un período de cinco años, prorrogable en periodos iguales, a partir de su vencimiento y previa solicitud de los propietarios.")
 No 24639-MIRENEM
 EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE RECURSOS NATURALES, ENERGÍA Y MINAS,
 En el ejercicio de las facultades conferidas por el artículo 140, incisos 3 y 18 de la Constitución Política y con fundamento en lo dispuesto en los artículos 82 y 87 de la Ley 7317, Ley de Conservación de la Vida Silvestre publicada en "La Gaceta" No 235 del 7 de diciembre de 1992, y los artículos 6, 11 y 27 de la Ley General de la Administración Pública.
