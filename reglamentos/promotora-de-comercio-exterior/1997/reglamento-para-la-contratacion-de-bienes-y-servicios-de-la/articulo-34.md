@@ -1,1 +1,0 @@
-Artículo 34.—Legitimación y supuestos. Podrá interponer el recurso de objeción todo oferente potencial o su representante, cuando se considere que ha habido vicios de procedimiento o se considere que se ha incurrido en alguna violación de este reglamento o de los principios generales de contratación aplicables.

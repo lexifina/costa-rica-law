@@ -1,1 +1,0 @@
-Artículo 38.—Plazo. El recurso de apelación será resuelto por la Junta Directiva en la siguiente sesión posterior a la presentación del mismo. Si fuere presentado con una anticipación de dos días o menos de celebrarse la sesión de la Junta Directiva, el mismo podrá no ser conocido en esa sesión sino hasta en la subsiguiente.

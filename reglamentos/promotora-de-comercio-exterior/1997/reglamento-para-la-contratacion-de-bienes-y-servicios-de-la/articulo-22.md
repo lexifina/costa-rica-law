@@ -1,1 +1,0 @@
-Artículo 22.—Precio de la oferta: El precio de la oferta siempre será firme. Se indicará en el cartel la moneda en la cual se puede hacer la respectiva cotización. Si hubiere divergencia entre lo consignado en letras y números, prevalecerá lo consignado en letras.

@@ -1,1 +1,0 @@
-Artículo 35.—Resolución. El recurso de objección deberá resolverse dentro de los diez días hábiles siguientes a su presentación. Si no se resuelve dentro de este plazo, la objeción se tendrá como acogida favorablemente.

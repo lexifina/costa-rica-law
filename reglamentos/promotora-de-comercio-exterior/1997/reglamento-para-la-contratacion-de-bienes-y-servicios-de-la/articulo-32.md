@@ -1,9 +1,0 @@
-Artículo 32.—Otros supuestos: Además del caso señalado en el artículo anterior, independientemente de su monto procederá la contratación directa en los siguientes supuestos:
-a) En caso de contratación de servicios profesionales, técnicos, consultorías o asesorías relacionadas con la actividad de PROCOMER. Este tipo de contratación no originará relación de empleo entre PROCOMER y el contratista y en ella el precio no constituye el único factor determinante para comparar ofertas.
-b) Contratos que tengan por objeto prestaciones que sólo una persona puede cumplir tales como venta de repuestos genuinos, bienes o servicios de carácter artístico o literario, provisión de artículos fabricados o distribuidos en el país por un solo proveedor, o servicios que solo pueden ser brindados por una única persona, física o jurídica.
-c) Cuando la prestación objeto del contrato se relacione con materias que requieran seguridades calificadas por lo que no convenga interesar sino a persona o personas determinadas.
-d) Contratos con personas físicas, organizaciones no gubernamentales o entidades privadas que evidencien ayuda desinteresada a PROCOMER y su ausencia de ánimo de lucro en la operación respectiva.
-e) Compra o arrendamiento de bienes que en razón de su ubicación, naturaleza, condiciones y situación se configuren como los únicos propios para la finalidad propuesta.
-f) Contrataciones necesarias para enfrentar situaciones imprevistas, de urgencia administrativa, que afecten o puedan afectar la continuidad normal de los servicios a cargo de PROCOMER.
-g) Arrendamiento de vehículos propiedad de funcionarios de la entidad, cuando resulte más económico y razonable para PROCOMER pagar un precio por la utilización de dichos vehículos si tales funcionarios deben desplazarse en el cumplimiento de sus funciones.
-h) Contrataciones ocasionales para: avisos o publicaciones en los medios de comunicación, servicios médicos, correduría de comercio, avalúos y peritajes.

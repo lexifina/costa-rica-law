@@ -1,2 +1,0 @@
-Artículo 16.—Garantía de participación y de cumplimiento:
-Facultativamente PROCOMER podrá exigir a los oferentes una garantía de participación, una garantía de cumplimiento, o ambas, cuando así lo amerite la complejidad y el monto de la contratación y la necesidad de respaldar los daños que pueda ocasionar un incumplimiento contractual de parte del oferente. Las garantías, cuando así se requiere, serán de entre un uno por ciento y un diez por ciento de la propuesta. También se podrá fijar un monto fijo de garantía de acuerdo a las circunstancias.
