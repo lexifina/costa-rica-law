@@ -1,0 +1,2 @@
+Artículo 3º—Adiciónase un nuevo Artículo 25 a la Ley de Incentivos a los Profesionales en Ciencias Médicas, N° 6836, del 22 de diciembre de 1982. El texto dirá:
+“Artículo 25.—La anualidad en un tres coma cinco por ciento (3,5%), calculada sobre el salario base, se reconocerá para las personas profesionales en Enfermería, con grado académico de Licenciatura o uno superior. Además podrán acogerse al beneficio de la dedicación exclusiva, el cual se calculará como el cincuenta y cinco por ciento (55%) adicional sobre el salario base”.
