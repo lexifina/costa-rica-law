@@ -14,3 +14,4 @@ Reglamento para la Formación y Control del Sistema Sorteante de Venta de Bienes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-10-14 | la propia norma |
+| 2 | 1989-10-05 | Decreto Ejecutivo 19257 (1989-10-05) |
