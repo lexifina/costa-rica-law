@@ -1,1 +1,0 @@
-Artículo 22.-Los informes que respecto a los exámenes y análisis expresados en el artículo anterior, rindieren los Médicos Oficiales o el Químico Oficial en su caso, tendrán el valor que las leyes atribuyen a la declaración uniforme de expertos.
