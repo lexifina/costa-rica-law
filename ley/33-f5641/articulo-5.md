@@ -1,0 +1,1 @@
+Art. 5. El Administrador general dará cuenta al Comandante de esta Plaza de cualquiera falta en el servicio, ó de disciplina, que cometa el resguardo ó algun individuo de él, para que sea castigado con arreglo á ordenanza y destituido del destinó, si así pareciese conveniente.

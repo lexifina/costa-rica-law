@@ -1,0 +1,1 @@
+Art. 4. Dicho resguardo estará bajo las órdenes del Administrador general de licores, quien dividiendolo en dos secciones, de un cabo y tres soldados; señalará á cada una de ellas el servicio que debe hacer.

@@ -1,0 +1,1 @@
+Art. 9. Si el Administrador de tabacos necesitare del referido resguardo, ó de una seccion de él, para tomar ó perseguir algun contrabando, ó para destrozar alguna siembra clandestina de este fruto, podrá ocuparlo con anuencia de su inmediato jefe.Dado en el Palacio Nacional en San José, á los once dias del mes de setiembre de mil ochocientos cincuenta y uno.-

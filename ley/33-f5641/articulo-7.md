@@ -1,0 +1,1 @@
+Art. 7. Siendo obligacion del mismo resguardo pesar los licores de las taquillas establecidas en los puntos por donde transite, el Administrador general proveerá á cada uno de los cabos de un pesalicores para el efecto: debiendo estos dar cuenta de cualquier desórden que hayan notado para que se remedie inmediatamente.
