@@ -1,0 +1,1 @@
+Artículo 2°-A toda persona que haciendo uso de este reglamento técnico, encuentre errores tipográficos, ortográficos, inexactitudes o ambigüedades, se le solicita notificarlo a la OFICINA NACIONAL DE NORMAS Y UNIDADES DE MEDIDA, sin demora, aportando, si es posible, la información correspondiente, para hacer las investigaciones necesarias y tomar las previsiones del caso.
