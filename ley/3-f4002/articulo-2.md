@@ -1,0 +1,1 @@
+Artículo 2° Queda asimismo permitida la introducción al país del tabaco breva y en rama, y ambos artículos pagarán como derechos de aduana, además de los de muellaje y de teatro establecidos, el de un peso diez centavos por kilogramo, el primero, y un peso setenta y cinco centavos por kilogramo, el segundo.
