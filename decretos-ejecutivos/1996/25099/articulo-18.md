@@ -1,0 +1,1 @@
+Artículo 18.—Todas las Unidades Asesoras y Funcionales definidas en este Decreto, se conformarán en equipos de trabajo por procesos, que permitan la flexibilidad y movilización de los recursos, de conformidad con las necesidades específicas.

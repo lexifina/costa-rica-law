@@ -1,0 +1,1 @@
+Artículo 4°—El Nivel Gerencial es el encargado de ejecutar las políticas y directrices en el nivel del Poder Ejecutivo y del Ministro rector del Sector Transportes, en lo referente a la Aviación Civil y Aeronavegación.

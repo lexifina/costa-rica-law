@@ -1,0 +1,1 @@
+Artículo 12.—Cada una de las unidades asesoras (Asesoría Legal, Auditoría Operativa y Planificación) contará con un responsable, y en aquellos casos en que se determine la necesidad, podrá designarse un colaborador inmediato de éste. en cuyo caso ambos serán responsables por los resultados de la gestión en la respectiva unidad.

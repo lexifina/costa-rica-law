@@ -1,0 +1,1 @@
+Artículo 14.—La Unidad de Aeropuertos e Infraestructura contara con un responsable y un colaborador inmediato, y ambos sean responsables por los resultados de la gestión. Asimismo, cada uno de los aeropuertos estará a cargo de un responsable que actuará desconcentradamente.

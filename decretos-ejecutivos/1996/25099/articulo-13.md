@@ -1,0 +1,1 @@
+Artículo 13.—Las Unidades de Servicios Aeronáuticos y la de Servicios de Apoyo contarán con un responsable y un colaborador inmediato, y ambos serán responsables por los resultados de la gestión en cada una de las unidades correspondientes.
