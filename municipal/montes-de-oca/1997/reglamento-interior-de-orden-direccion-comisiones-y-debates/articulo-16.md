@@ -1,10 +1,19 @@
-ARTICULO 16.- El Orden del Día será elaborado por la Secretaría con instrucciones de la Presidencia Municipal y se tratará en lo posible de confeccionarlo con los siguientes artículos seleccionados por la Presidencia en cuando a su orden se refiere:
-CAPÍTULO I- Comprobación de Quórum.
-CAPÍTULO II- Atención al Público.
-CAPÍTULO III- Actas.
-CAPÍTULO IV- Asuntos del Señor Ejecutivo Municipal.
-CAPÍTULO V- Asuntos de los señores Concejales.
-CAPÍTULO VI- Asuntos señor(a) Presidente y Vicepresidente Municipal.
-CAPÍTULO VII- Informes de Comisiones y Administración.
-CAPÍTULO VIII- Correspondencia. *
-*Así reformado por acuerdo en Sesión Ordinaria N°01/98, Artículo N°6.3 del día 04 de abril de 1998.
+Artículo 16.—El Orden del Día será elaborado por la Secretaría con instrucciones de la Presidencia Municipal y tratará en lo posible de confeccionarlo con los siguientes artículos seleccionados por la Presidencia en cuanto a su orden se refiere:
+CAPÍTULO I
+Comprobación de quórum
+CAPÍTULO II
+Atención al público
+CAPÍTULO III
+Actas
+CAPÍTULO IV
+Correspondencia
+CAPÍTULO V
+Informes
+CAPÍTULO VI
+Asuntos de la Presidencia Municipal
+CAPÍTULO VII
+Asuntos de los señores Concejales
+CAPÍTULO VIII
+Asuntos del señor Alcalde Municipal
+Aquella correspondencia que no se tramite en ese plazo, se incluirá en la sesión siguiente
+*Así reformado por acuerdo en Sesión Ordinaria N°24/2002, del 14 de octubre del 2002.
