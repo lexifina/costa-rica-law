@@ -1,0 +1,6 @@
+ARTICULO 25
+Los Estados Partes reconocen el derecho del niño que ha sido
+internado en un establecimiento por las autoridades competentes para los
+fines de atención, protección o tratamiento de su salud física o mental a
+un examen periódico del tratamiento a que esté sometido y de todas las
+demás circunstancias propias de su internación.
