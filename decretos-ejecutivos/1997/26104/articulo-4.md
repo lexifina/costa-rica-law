@@ -1,0 +1,1 @@
+Artículo 4°— Las estadísticas vitales que se emitan, serán puestas en conocimiento del Ministerio de Obras Públicas y Transportes a fin de recomendar a las autoridades respectivas las medidas ordinarias y extraordinarias que se requieren a nivel nacional, para evitar una incidencia mayor de los accidentes de tránsito.
