@@ -1,2 +1,4 @@
-Artículo 9º—Comisiones de Trabajo. La Junta podrá crear Comisiones de Trabajo para que atiendan los asuntos, materias o trámites que señale el acuerdo por el que se crean. Dichas comisiones podrán celebrar reuniones no presenciales, conforme a lo dispuesto en el párrafo segundo del artículo 2° de este Reglamento.
+Artículo 9º—Comisiones de Trabajo. La Junta podrá crear Comisiones de Trabajo para que atiendan los asuntos, materias o trámites que señale el acuerdo por el que se crean. Dichas comisiones podrán celebrar reuniones no presenciales, conforme a lo dispuesto en el párrafo segundo del artículo 2° de este reglamento.
 Las Comisiones de Trabajo deberán rendir informe escrito en el plazo que señale la ley, los reglamentos o el acuerdo que las crea, en este último caso, podrá ser prorrogado el plazo, a juicio de la Junta, en razón de la complejidad del asunto encomendado a la comisión o de la imposibilidad de cumplirlo.
+El incumplimiento no justificado oportunamente de los acuerdos de Junta Directiva, será considerado como falta grave en el cumplimiento de deberes.
+(Así reformado en sesión N° 18 del 29 de marzo del 2005)
