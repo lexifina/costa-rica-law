@@ -1,0 +1,1 @@
+Artículo 4°─ El centro autorizado mediante el presente decreto, quedará sujeto a la inspección del Estado, la cual será ejercida por el Ministerio de Educación Pública, de conformidad con el artículo 79 de la Constitución Política.
