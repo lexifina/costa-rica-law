@@ -1,0 +1,1 @@
+Artículo 5º—El MEP y las instituciones de educación superior universitaria, públicas y privadas, y parauniversitaria, mediante sus programas aprobados de educación ambiental, promoverán la protección y la conservación de nuestros recursos naturales, con especial énfasis en la protección de tortugas marinas.

@@ -1,0 +1,1 @@
+Artículo 8º—Corresponderá al MINAE, en coordinación con los Ministerios de Seguridad Pública y de Salud, el Instituto Costarricense de Pesca y Acuicultura y la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica, velar por el cumplimiento de las disposiciones de esta Ley, dentro del ámbito de sus competencias

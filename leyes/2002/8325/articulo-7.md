@@ -1,0 +1,1 @@
+Artículo 7º—Todos los bienes, instrumentos e implementos utilizados en la comisión de los delitos contemplados en el artículo anterior, pasarán a ser propiedad del Estado, según lo que señala el Código Penal.

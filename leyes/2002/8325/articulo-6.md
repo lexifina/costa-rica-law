@@ -1,0 +1,2 @@
+Artículo 6º—Quien mate, cace, capture, destace, trasiegue o comercie tortugas marinas, será penado con prisión de uno a tres años. La pena será de tres meses a dos años de prisión para quien retenga con fines comerciales tortugas marinas, o comercie productos o subproductos de estas especies.
+No será punible la recolección de huevos de tortuga lora en el Refugio de Vida Silvestre de Ostional, siempre que se realice con apego a las disposiciones reglamentarias que emita el MINAE.
