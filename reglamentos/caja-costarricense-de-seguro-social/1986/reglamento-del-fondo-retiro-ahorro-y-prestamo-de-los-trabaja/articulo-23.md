@@ -1,0 +1,2 @@
+Régimen contable y de control
+Artículo 23.—El Fondo de Retiro y el Fondo de Ahorro y Préstamo llevarán contabilidades separadas, ambas como parte de la gestión contable del FRAP, La Unidad de Contabilidad del FRAP deberá presentar a la Junta Administrativa, en el transcurso de los dos primeros meses del respectivo año, los balances o situación y los estados de ingresos y gastos de cada uno de los Fondos, corres pendientes al período comprendido entre el 1° de enero y el 31 de diciembre de año anterior.

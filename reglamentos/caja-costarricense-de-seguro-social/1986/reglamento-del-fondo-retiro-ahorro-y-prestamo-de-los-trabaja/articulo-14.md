@@ -1,0 +1,1 @@
+Artículo 14.—Con base en las proyecciones de los resultados de los ejercicios económicos anuales, la Junta Administrativa del FRAP determinará los tipos de interés que se reconocerán cada año sobre los ahorros de los afiliados,

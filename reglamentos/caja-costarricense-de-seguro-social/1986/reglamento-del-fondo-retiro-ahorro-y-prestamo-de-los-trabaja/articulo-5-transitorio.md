@@ -1,0 +1,1 @@
+Transitorio V.—La disposición contenida en el inciso e) del artículo 5°, se aplicará en lo procedente a los trabajadores de la Caja, que se hayan acogido beneficio de retiro en el período de julio a diciembre de 1983.

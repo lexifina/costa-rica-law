@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I.—Para calcular el beneficio de retiro al 31 de diciembre de 1959 de los trabajadores que a esa fecha tenían más de cinco años de laborar con la Caja, se multiplicará el número de años y meses cumplidos de trabajo por el promedio de salarios de esos últimos cinco años. Para el cálculo de dicho promedio se tomará el salario ordinario en dinero del mes de diciembre de cada uno de los años comprendidos entre 1955 y 1959. El beneficio de retiro aquí expresado, no podrá ser en ningún caso mayor de veinte mil colones.

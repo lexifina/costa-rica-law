@@ -1,0 +1,1 @@
+Artículo 30.—El trabajador que desee aplicar los ahorros e intereses personales, puede solicitarlo ante la Junta Administrativa del FRAP, siempre y cuando el monto total sea suficiente para cancelar el saldo del respectivo préstamo.

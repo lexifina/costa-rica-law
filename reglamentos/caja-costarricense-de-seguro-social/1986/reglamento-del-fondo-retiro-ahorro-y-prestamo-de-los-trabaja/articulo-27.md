@@ -1,0 +1,1 @@
+Artículo 27.—En el transcurso del mes de marzo de cada año, la Administrativa presentará a la Junta Directiva de la Caja, Gerencias, Auditor y cotizantes del Fondo, un informe anual de las labores realizadas.

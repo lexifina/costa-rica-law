@@ -1,0 +1,1 @@
+Artículo 29.—Antes de hacer efectivo el beneficio a que se refieren el inciso h) artículo 59, el 28 y la disposición transitoria VII , se deducirán las deudas contraídas por el trabajador con el FRAP.

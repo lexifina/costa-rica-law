@@ -1,0 +1,1 @@
+Transitorio III .—Para financiar el beneficio de retiro de los trabajadores ue se acojan a pensión por vejez, la Caja destinará a partir del 1° de enero de 1983 el aporte equivalente al 3% (tres por ciento) de los salarios ordinarios en dinero, correspondiente al primer semestre de este año. El aporte debe efectuarse quincenal o mensualmente, según el período de pago.

@@ -1,0 +1,1 @@
+Artículo 24.—La custodia de valores, el régimen contable y de control, los cálculos financieros y los otros aspectos de orden legal y administrativo de te Fondos, estará a cargo de las respectivas unidades de la Caja.

@@ -1,0 +1,2 @@
+Artículo 7°—Los préstamos se otorgarán sobre la base del sueldo ordinario mensual devengado el año anterior a la fecha de la presentación de la solicitud y siempre que se encuentre como ahorrante activo a ese momento.
+Si la persona tiene préstamo anterior, debe tener amortizado al menos el 25% de esa operación y también debe haber transcurrido por lo menos un año desde el otorgamiento de dicho préstamo.

@@ -1,0 +1,5 @@
+Artículo 4°—Los beneficios que otorga el FRAP son los siguientes:
+a) Un beneficio de retiro en reconocimiento de los años de servicio a la Institución, en las condiciones que determina el presente Reglamento.
+b) Un sistema de ahorro y préstamo para atender las necesidades de crédito de sus miembros, según las condiciones que determina el presente Reglamento, en el que no puede dejar de ahorrar el trabajador que tenga saldo de préstamo.
+En cuanto al reingreso, el ahorrante que se retire de este fondo podrá reintegrarse como miembro activo, una vez transcurrido seis meses a partir de su retiro.
+(Nota de Sinalevi: La Sala Constitucional, mediante resolución N° 890 del 26 de enero de 2000, se anuló la frase final del artículo 4 del presente Reglamento del Fondo de Retiro de los Trabajadores de la Caja Costarricense del Seguro Social, la cual indicaba "con el seguro de Invalidez, Vejez y Muerte". No obstante, este Reglamento ya había sido dejado sin efecto en todo lo referente al Fondo de Retiro, por el transitorio 2 del Reglamento del Fondo de Retiro de los Trabajadores de la Caja Costarricense de Seguro Social, aprobado en sesión N° 7035 del 18 de junio de 1996)
