@@ -1,0 +1,1 @@
+Artículo 5º—El límite máximo para la compra de bienes y servicios se establece en ¢8.000,00, sin que se requiera orden de compra. En casos excepcionales, la jefatura o el jefe de departamento podrá autorizar compras y pagos de facturas mayores de ¢8.000,00 hasta un máximo de ¢12.000,00.

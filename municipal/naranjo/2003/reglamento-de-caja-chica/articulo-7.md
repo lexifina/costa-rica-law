@@ -1,0 +1,1 @@
+Artículo 7º—No se permitirá el cambio de cheques personales y de contribuyentes con fondos de caja chica, ni se permitirán préstamos como pueden ser vales a favor de un funcionario Municipal, con cargo a la planilla, ni de otra índole.

@@ -1,0 +1,2 @@
+Artículo 17.—Rige a partir de su publicación en el Diario Oficial La Gaceta o en la página Web.
+Este Reglamento fue aprobado por el Concejo Municipal de Naranjo, por Acuerdo quinto Ch de la sesión ordinaria Nº 21 del 2 de junio del 2003.
