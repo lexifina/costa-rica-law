@@ -1,0 +1,1 @@
+Artículo 4°.- La creación de un derecho de concesión no implica que los apartados sean propiedad de los abonados. Estos pertenecen a la Dirección General de Correos y el traspaso directo de los mismos entre particulares queda terminantemente prohibido.
