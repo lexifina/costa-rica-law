@@ -1,1 +1,0 @@
-Artículo 29.—Aunque el espectáculo sea gratuito, cada asistente tiene la obligación de presentar su entrada numerada, sólo valdrán los talonarios suplidos por el Teatro Nacional los cuales serán sellados y fechados por el empresario.

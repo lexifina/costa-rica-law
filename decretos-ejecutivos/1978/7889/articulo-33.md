@@ -1,1 +1,0 @@
-Articulo 33.—La Junta Directiva podrá revocar en cualquier momento la concesión otorgada, sin incurrir en responsabilidades, e interrumpir una temporada, cuando a su juicio la calidad del espectáculo no haya respondido a lo que se ofreció.

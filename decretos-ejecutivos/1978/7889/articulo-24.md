@@ -1,1 +1,0 @@
-Articulo 24.—Los empleados realizarán las labores que les indique su jefe inmediato. Este superior Jerárquico vigilará la eficiencia de trabajo realizado y el estricto cumplimiento de las obligaciones di: cada empleado, debiendo informar sobre cualquier anomalía al Director.
