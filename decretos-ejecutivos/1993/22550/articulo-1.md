@@ -12,4 +12,5 @@ Considerando:
 7°—Que los humedales estuarinos físicamente constituyen el hábitat de especies de fauna y flora silvestre, algunas de las cuales se encuentra en vías de extinción o con poblaciones reducidas.
 8°—Que de conformidad con la definición de la Convención Relativa a los Humedales de Importancia Internacional (Ramsar), son Humedales las extensiones de marismas, pantanos y turberas o superficies cubiertas de aguas, sean éstas de régimen natural o artificial, permanentes o temporales, estancadas o corrientes, dulces, salobres o saladas, incluidas las extensiones de agua marina cuya profundidad en marea baja no exceda de seis metros; por lo que las áreas de manglar se constituyen en áreas de Humedales que es necesario conservar. Por tanto,
 DECRETAN:
-Artículo 1°—Declárese Humedales a las áreas de manglares adyacentes a los litorales continentales e insulares del país, cualesquiera que sea su extensión.
+Artículo 1°—Declárese Humedales a las áreas de manglares adyacentes a los litorales continentales e insulares, cualesquiera que sea su extensión, los cuales se tendrán como una nueva categoría de uso, por ser un área de usos múltiples.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 23247 del 20 de abril de 1994)

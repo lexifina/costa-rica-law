@@ -14,3 +14,4 @@ Declara humedales a las áreas de manglares adyacentes a los litorales continent
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-10-08 | la propia norma |
+| 2 | 1994-04-20 | Decreto Ejecutivo 23247 (1994-04-20) |
