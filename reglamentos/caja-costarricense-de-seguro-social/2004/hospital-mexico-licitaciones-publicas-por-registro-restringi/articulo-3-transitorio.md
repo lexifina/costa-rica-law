@@ -1,0 +1,2 @@
+III.—Estas condiciones generales regulan la materia de contratación administrativa, para la adquisición de bienes y servicios del Hospital México, excepto en el caso de la adquisición de medicamentos; los cuales se regirán por las condiciones generales, publicadas en La Gaceta Nº 210 del 31 de octubre del 2003.
+Las presentes Nuevas Notas de Condiciones Generales, rigen a partir de la publicación en el Diario Oficial La Gaceta. San José, 6 de febrero del 2004

@@ -1,0 +1,1 @@
+7º—En cuanto al adelanto de entrega en las compras, éstas deberán ser autorizadas previamente por la Proveeduría, debiendo valorar la necesidad de obtener el producto y su capacidad de almacenaje, no será sujeto de sanción. Excepto en los casos en que la Proveeduría indique lo contrario, o sea que el adelanto le cause daño comprobado a la administración.

@@ -1,0 +1,1 @@
+12.—Indicar el monto y la naturaleza de los impuestos que afectan al producto, si se omite esta referencia se tendrán por incluidos en el precio cotizado, según lo indica el artículo 52.7 del Reglamento General de la Contratación Administrativa.
