@@ -1,0 +1,3 @@
+Artículo 7º.- Modifícase el artículo 2 del Decrerto Nº 24155-H
+publicado en "La Gaceta" Nº 91 del 12 de mayo de 1995, en la forma que
+se indica a continuación : ...
