@@ -1,0 +1,1 @@
+Art. 11.-Para la elección de Presidente y en general para la elección de los demás oficios; y para conocer en las renuncias que ocurran, deber n estar presentes por lo menos seis miembros de la Sociedad. –En caso de empate se proceder a nueva votación hasta que resulte una mayoría.
