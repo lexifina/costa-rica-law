@@ -11,3 +11,4 @@ ARTÍCULO 7: REQUERIMIENTOS DE PERSONAL PARA EL EJERCICIO ECONÓMICO DEL 2003 (.
 (Modificado por el artículo 2° del Decreto Ejecutivo N° 31229 de 04 de junio de 2003, publicado en La Gaceta No. 130 de 08 de julio de 2003)
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 3° del Decreto Ejecutivo N° 31262 de 23 de junio de 2003, publicado en La Gaceta No. 138 de 18 de julio de 2003, Alcance 39.)
 (Así MODIFICADO por el artículo 2° de la Ley N° 8363 de 01 de julio de 2003, publicado en La Gaceta No. 135 de 15 de julio de 2003.)
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 2° del Decreto Ejecutivo N° 31291 de 3 de julio de 2003, publicado en La Gaceta No. 143 de 28 de julio de 2003.)
