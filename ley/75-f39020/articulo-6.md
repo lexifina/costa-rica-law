@@ -1,0 +1,1 @@
+Artículo 6°.- Queda prohibida la explotación y usufructo, cualquiera que sea su forma, de los terrenos nacionales ya sean baldíos o de propiedad del Estado o situados en la Milla Marítima, a no ser en virtud de título expreso emanado del Estado, en conformidad con las leyes.
