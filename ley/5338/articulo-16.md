@@ -1,13 +1,2 @@
-Artículo 16.- Si la Junta Administrativa considera que la fundación
-no puede ser administrada de acuerdo con sus preceptos constitutivos o
-reglamentarios, solicitará al Juez Civil de su jurisdicción que disponga
-la forma en que deberá ser administrada o que ordene subsanar las
-deficiencias que en ella ocurran, siempre con el propósito de que se
-mantengan los fines para los que fue creada. A la solicitud se
-acompañará un informe de la Contraloría General de la República.
-Esas diligencias se seguirán por los trámites de jurisdicción
-voluntaria, con intervención de la Procuraduría General de la República.
-Igual procedimiento se seguirá para remover los administradores
-cuando no cumplan debidamente sus obligaciones. Acordada la remoción, el
-Juez comunicará lo conducente a fin de que se reponga el cargo de acuerdo
-con el artículo 11.
+Artículo 16.- Si la Junta Administrativa considera que la fundación no puede ser administrada de acuerdo con sus preceptos constitutivos o reglamentarios, solicitará al Juez Civil de su jurisdicción que disponga la forma en que deberá ser administrada o que ordene subsanar las deficiencias que en ella ocurran, siempre con el propósito de que se mantengan los fines para los que fue creada. A la solicitud se acompañará un informe de la Contraloría General de la República. Esas diligencias se seguirán por los trámites de jurisdicción voluntaria, con intervención de la Procuraduría General de la República. Igual procedimiento se seguirá para remover los administradores cuando no cumplan debidamente sus obligaciones. Acordada la remoción, el Juez comunicará lo conducente a fin de que se reponga el cargo de acuerdo con el artículo 11.
+(Nota de Sinalevi: De acuerdo con el artículo 219, párrafos 1, 3, 4, 5 incisos c) y d), del Código Procesal Contencioso Administrativo, N° 8508 de 28 de abril de 2006, se elimina la participación de la Procuraduría General de la República en actividades judiciales no contenciosas)
