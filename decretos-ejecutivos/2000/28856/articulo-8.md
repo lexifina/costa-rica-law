@@ -1,0 +1,1 @@
+Artículo 8°—El Departamento Disciplinario Legal, contará con los recursos y el personal necesario para el desempeño de sus funciones. Se autoriza el traslado de los activos y del personal del Proceso de Relaciones Laborales de la Dirección de Recursos Humanos, así como de la Sección de Colisiones del Departamento de Transportes, al Departamento Disciplinario Legal.

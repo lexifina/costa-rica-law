@@ -1,0 +1,1 @@
+Artículo 7°—Las faltas disciplinarias o irregularidades de los servidores que se desempeñen en el Departamento Disciplinario Legal, en cuanto a su instrucción y recomendación, serán tramitadas por la Dirección de Asuntos Legales del Ministerio de Seguridad Pública, la cual quedará constituida para tales efectos, como Órgano Director de Procedimientos.

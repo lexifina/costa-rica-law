@@ -1,0 +1,15 @@
+Artículo 9°—Modificaciones. Se disponen las siguientes disposiciones:
+a. Modifiqúese el decreto ejecutivo No 25947-SP de 18 de marzo de 1997, publicado en el Alcance No 19 a La Gaceta No 74 de 18 de abril de 1997, de la siguiente forma:
+i. Se elimina el último párrafo del artículo 2.
+ii. Se modifica el inciso d) del artículo 3, para que en adelante se lea:
+“d) Subsistema de Evaluación y Control. Agrupa los procesos relacionados con la verificación del cumplimiento de la normativa legal y administrativa en materia de administración de recursos humanos, determinar tendencias que sustenten la toma decisiones por parte de los jerarcas y funcionarios responsables de unidades sustantivas; el manejo y suministro de información pormenorizado necesaria como insumo de los procesos del sistema.
+Los procesos que conforman este subsistema son: Inventario para control de puestos y personal, verificación de cumplimiento de normas, información gerencial, evaluación del desempeño y control de asistencia.”
+iii. Se modifica el artículo 5, para que en adelante se lea:
+“Corresponde al coordinador dirigir, controlar y velar por el cumplimiento de los objetivos del Sistema de Recursos Humanos mediante la dirección de los subsistemas, la formulación de políticas y la adopción de planes, programas y proyectos para su ejecución.
+A los responsables de los subsistemas corresponde desarrollar y dirigir las actividades propias de sus competencias por medio de la coordinación y supervisión del cumplimiento de normas, técnicas y procedimientos establecidos por la institución y las entidades competentes, así como aquellas que de alguna forma regulen los procesos, a fin de salvaguardar el recurso humano y las condiciones necesarias para la apropiada dotación, desarrollo y bienestar de los mismos, así como el debido control, seguimiento y evaluación de dichos procesos.”
+b. Modifiqúese el Decreto No 26112-SP de 09 de mayo de 1997, publicado en La Gaceta No 125 del 1° de julio de 1997, de la siguiente forma:
+i. Se modifica el párrafo segundo del articuló 16, para que en adelante se lea:
+“Para una mayor eficiencia y eficacia en el desempeño de sus funciones, el Departamento de Transportes contará al menos con dos secciones, a saber: Sección de Registro y Control y Sección de Servicios Policiales.”
+ii. Se derogan: El inciso L) del artículo 17 y el artículo 29.
+c. Modifiqúese el último párrafo del inciso 5 del artículo 7, del Decreto Ejecutivo No 3658-S “Reglamento a la Ley Orgánica del Ministerio de Seguridad Pública”, que fuera adicionado y modificado mediante decretos: No 19495, de 22 de septiembre de 1989; No 23071-SP de 21 de marzo de 1994, publicado en La Gaceta No 65 de 5 de abril de 1994, para que en adelante se lea:
+“ Podrá el Viceministro, sin perjuicio de las facultades del Ministro para ese efecto, ordenar suspender provisionalmente con goce de salario al servidor sujeto de investigación o de proceso disciplinario, por el lapso que se estime necesario y con posibilidad de prórroga, mientras se realizan las diligencias de investigación o de instrucción disciplinarias correspondientes.”
