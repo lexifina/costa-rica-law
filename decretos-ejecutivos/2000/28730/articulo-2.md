@@ -1,0 +1,1 @@
+Articulo 2.- ° Las dependencias del Ssector púPublico y del Ssector pPrivado, dentro del marco legal respectivo, podráanm contribuir con recursos económicos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de las actividades indicadas.
