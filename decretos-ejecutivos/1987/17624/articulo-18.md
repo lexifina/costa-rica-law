@@ -1,1 +1,2 @@
 Articulo 18.-Todo marinero y personal de los barcos que atraquen en los puertos nacionales, deberán portar certificación emitida por autoridad competente en donde conste que están libres de anticuerpos al Virus del SIDA. Los que no cumplan con este requisito, no podrán bajar a puerto y quedarán sujetos a las ordenanzas de cuarentena.
+(Nota de Sinalevi: De conformidad con el artículo 1° del decreto ejecutivo N° 17970 del 4 de febrero de 1988, se estableció que lo dispuesto en el presente artículo, empezará a regir a partir del 15 de junio de 1988.)
