@@ -1,2 +1,1 @@
-La Municipalidad de Goicoechea de conformidad con el Transitorio II.
 Artículo 1c—De conformidad con los artículos 4°, incisos 1 y 2 y 69 del Código Municipal, el Concejo Municipal de Goicoechea otorgará becas para la realización de estudios exclusivamente en el Cantón y necesariamente a nivel de secundaria, así como para integrantes de su Banda Municipal.
