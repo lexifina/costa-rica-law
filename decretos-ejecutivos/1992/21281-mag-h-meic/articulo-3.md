@@ -281,7 +281,8 @@ Sarán.
 Segadoras.
 Semen.
 Semillas de toda clase y todo tipo de material de reproducción.
-Silos de hasta 10 tm para la actividad agropecuaria.
+*Silos de hasta 600 TM para la actividad agropecuaria.
+*(Así reformado parcialmente mediante el Decreto Ejecutivo No. 21782, de fecha 12 de mayo de 1992.)
 Sistemas de levante hidráulico de tractores agrícolas.
 Sondas uterinas.
 Sondas esofágicas.
