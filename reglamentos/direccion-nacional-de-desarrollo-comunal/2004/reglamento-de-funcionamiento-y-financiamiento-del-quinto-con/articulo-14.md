@@ -1,0 +1,1 @@
+Articulo 14.—La sesión plenaria del Congreso Nacional, contara con una mesa principal integrada por la junta directiva de la Confederación Nacional, la directora nacional de DINADECO y el presidente del Consejo Nacional de Desarrollo de la Comunidad. El presidente de la Confederación Nacional actuara como presidente del Congreso Nacional.

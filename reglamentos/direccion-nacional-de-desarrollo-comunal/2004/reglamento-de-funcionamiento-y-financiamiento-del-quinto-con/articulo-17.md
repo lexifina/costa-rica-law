@@ -1,0 +1,1 @@
+Articulo 17.—La organización comunal que canalice los recursos económicos para el Congreso Nacional, deberá asumir la responsabilidad de liquidar dichos recursos ante el departamento de Economía Comunitaria de Dinadeco, treinta días hábiles después de la fecha de finalización del Congreso.

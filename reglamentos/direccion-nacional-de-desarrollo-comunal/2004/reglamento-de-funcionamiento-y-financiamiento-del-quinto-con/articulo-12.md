@@ -1,0 +1,1 @@
+Articulo 12.—El quórum necesario para la sesión plenaria del Congreso Nacional y aprobación de los acuerdos y resoluciones estará constituido por la mayoría simple de los delegados que hayan sido registrados al inicio del evento.

@@ -1,0 +1,1 @@
+Articulo 7°—Podrán participar, en calidad de invitados especiales, representantes de otros sectores o movimientos afines y de organismos nacionales e intencionales que colaboren con el movimiento de desarrollo comunal, por recomendación del Consejo Nacional de Desarrollo de la Comunidad, la Dirección Nacional de Dinadeco y la Confederación Nacional de Asociaciones.

@@ -1,0 +1,1 @@
+Articulo 2°—Conforme a lo señalado en los artículos 75, 76, 77, 78 y 79 del Reglamento a la Ley 3859, a la Confederación Nacional de Asociaciones de Desarrollo Ie corresponde la convocatoria y organización del Congreso Nacional de Asociaciones de Desarrollo.

@@ -1,0 +1,1 @@
+Articulo 4°—La Dirección Nacional de Desarrollo de la Comunidad, en la medida de sus posibilidades, brindara la colaboración técnica, operativa y de apoyo organizativo para la celebración del Congreso Nacional de Asociaciones.
