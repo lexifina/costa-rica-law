@@ -7,6 +7,8 @@ Los programas a que se refiere este inciso se ejecutarán primeramente en aquell
 c) Construir viviendas higiénicas, de tipo individual o colectivo, al alcance de familias de escasos recursos económicos, a base de programas de conjunto y aun individuales, que tiendan al ordenamiento de zonas de vivienda;
 ch) Eliminar gradualmente de las áreas urbanas las construcciones y viviendas insalubres o peligrosas, mediante planes adecuados de reconstrucción o de readaptación de la mismas, que el Instituto elaborará dentro de las mejores normas de seguridad para sus inversiones, tomando en cuenta, desde luego, el aspecto social que el problema presente.
 Para los fines indicados en el párrafo anterior, el Instituto pedirá al Ministerio de Salubridad que haga la calificación de la vivienda insalubres o peligrosas y podrá requerir de los propietarios la ejecución de las medidas que estime indispensables, todo dentro de las normas reglamentarias que oportunamente dicte el Poder Ejecutivo, a petición de la Junta Directiva del Instituto;
+Para estos efectos, el Ministerio de Salubridad Pública y el Instituto Nacional de Vivienda y Urbanismo procederán, conjunta o separadamente, de acuerdo con los artículos 282 y 283 del Código Sanitario.
+(Así adicionado el párrafo anterior por el artículo 31 de la Ley de Erradicación de Tugurios y Defensa de sus Arrendatarios, N° 2760 del 16 de junio de 1961)
 d) Fomentar la construcción, higienización, reparación o ampliación de viviendas y estimular la ejecución de obras de urbanización y saneamiento urbano por parte de personas o entidades privadas o pública, siempre que se ajusten a las normas técnicas que dicte el Instituto;
 e) Ejecutar, dentro de sus programas de construcción de viviendas, las obras de urbanización y saneamiento urbano. Y construir los centros para los servicios comunales necesarios;
 f) Promover la coordinación de las actividades relativa a viviendas y urbanismo de todas las dependencias del Estado y sus Instituciones y Corporaciones autónomas que se ocupen de estos asuntos;
@@ -20,11 +22,9 @@ k) Establecer sistemas de ahorro o de préstamos que se destinarán exclusivamen
 2º.- Compra, ampliación o reparación de la vivienda;
 3º.- Cancelación de gravámenes que pesen sobre la casa propia; y
 4º.- Compra del terreno por el dueño de la vivienda; cuando ésta hubiere sido construída en la propiedad ajena;
-(Reglamentado mediante artículo 1 del Decreto Ejecutivo N° 19 de 16 de julio del 1955)
 l) Ceder descontar o dar garantía los títulos que procedan de los créditos otorgados;
 m) Emitir bonos y obtener empréstitos o créditos para llevar a cabo los fines de la presente ley, previo dictamen que deberá acatarse y será solicitado al Banco Central, de acuerdo con el artículo 122 y demás disposiciones afines de la Ley Orgánica de dicha Institución;
 n) Adquirir, conforme al derecho común o mediante expropiación, de acuerdo con la ley correspondiente, bienes muebles o inmuebles. Las expropiaciones las decretará el Poder Ejecutivo ante gestión expresa y motivada del Instituto y determinado las necesidades y condiciones de las mismas.
 Fuera de los determinados en las leyes vigentes, son motivo de utilidad pública o interés social para decretar la expropiación; la necesidad de efectuar obras de crecimiento o ensanche de ciudades o conglomerados urbanos; de seguridad; de saneamiento; de ornato; de embellecimiento; de construcción o modernización de barrios; de apertura o ampliación de calles, plazas, parques y jardines públicos;
-(Nota: véase además la Ley de Expropiaciones del INVU No.1882 de 7 de junio de 1955).
 ñ) Celebrar todos los contratos y realizar todos los actos administrativos, civiles industriales o comerciales que sean convenientes o necesarios para el mejor cumplimiento de sus fines, de acuerdo con lo que las leyes permiten a entidades civiles o mercantiles, sin reserva ni limitación alguna. No podrá el Instituto hacer donaciones de ninguna especie; y
 o) Dar información y ayuda técnica a las personas de pocos recursos, a fin de que puedan construir viviendas propias y debidamente planeadas, todo de acuerdo con el Reglamento que sobre el particular sea dictado.
