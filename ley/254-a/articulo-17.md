@@ -1,0 +1,1 @@
+Artículo 17.—Las filiales debidamente constituidas administrarán y darán destino a los fondos según se establece en el artículo cuarto, aparte c), para cumplir los fines de la Asociación en cuanto se relaciona con ella. Anualmente, por medio de la Directiva Gente deben rendir cuenta de sus actividades al Congreso Nacional de Educadores.
