@@ -1,0 +1,1 @@
+2°.- Se establecerá en el Puerto de Punta-Arenas un Guarda mayor dependiente de ella que coadyuve sus operaciones, visite los cargamentos y reciba los manifiestos y registros y de cuenta llevando para todo un libro de acientos.
