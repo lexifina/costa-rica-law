@@ -1,0 +1,1 @@
+Art 14°. – El número de Diputados será a razón de un propietario por cada cinco mil individuos de población y un suplente por cada diez mil, y si hubiese exceso de población en más de la mitad del número fijado se elegirá un propietario más.
