@@ -14,3 +14,4 @@ Reglamento Uso Control y Mantenimiento Vehículos Ministerio de Cultura y sus Or
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-12-02 | la propia norma |
+| 2 | 2002-07-17 | Decreto Ejecutivo 30666 (2002-07-17) |

@@ -1,6 +1,6 @@
 DE-28250
 EL PRESIDENTE DE LA REPÚBLICA Y LA MINISTRA DE CULTURA, JUVENTUD Y DEPORTES
-Con fundamento en los artículos 140 inciso 3 de la Constitución Política, 25.1 de la Ley General de la Administración Pública, y 221 de la Ley N° 6739, Ley de Tránsito por Vías Públicas Terrestres y,
+Con fundamento en los artículos 140 inciso 3 de la Constitución Política, 25.1 de la Ley General de la Administración Pública, y 221 de la Ley N° 7131, Ley de Tránsito por Vías Públicas Terrestres y,
 Considerando:
 1°—Que constituye una necesidad primordial para el Estado, la existencia de mecanismos que regulen la adecuada utilización de los vehículos asignados a sus instituciones.
 2°—Que para dar cabal cumplimiento a esos mecanismos, resulta indispensable la existencia de reglamentaciones a nivel interno de cada institución, que permitan regular lo relativo al uso, manejo, control, mantenimiento y gastos de los vehículos oficiales del Estado, que se encuentren bajo su dominio, conforme sus objetivos, metas y necesidades.

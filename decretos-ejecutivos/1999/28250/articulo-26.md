@@ -1,5 +1,6 @@
-Artículo 26.—De las obligaciones de los choferes. El funcionario debidamente autorizado para conducir vehículos del Ministerio, o asignado para su custodia deberá:
-a) Portar y tener actualizada la licencia de conducir y la cédula de identidad, la cual debe ser acorde con el tipo de vehículo que conduce, y la cédula de identidad.
+Artículo 26.—De las obligaciones de los choferes. El funcionario debidamente autorizado para conducir vehículos del Ministerio o de sus órganos desconcentrados, deberá con ocasión de su custodia, observar lo siguiente:
+a) Portar y tener actualizada tanto la cédula de identidad, como la licencia de conducir, la cual debe ser acorde con el tipo de vehículo que conduce
+(Así reformado por el artículo 3 del Decreto Ejecutivo N° 30666 de 17 de julio del 2002)
 b) Conocer y cumplir estrictamente la Ley de Tránsito, así como las disposiciones estipuladas en el presente reglamento.
 c) Revisar el vehículo, a efecto de verificar que se encuentre en condiciones aptas, con el propósito de garantizar tanto su propia seguridad como el de las personas, materiales, y equipo transportados, y reportar oportunamente las necesidades y requerimientos a su jefe inmediato y al Departamento de Servicios Generales, o unidad encargada en cada órgano desconcentrado,
 d) Cumplir estrictamente los programas de mantenimiento establecidos para cada vehículo.
@@ -8,7 +9,8 @@ f) Conducir en forma responsable, prudente y con total observancia de las dispos
 g) Cumplir a cabalidad con la ruta establecida entre los puntos de salida y destino de cada servicio.
 h) Asumir el pago de las multas por infracción a la Ley de Tránsito, cuando ésta sea impuesta por actos atribuibles al conductor del vehículo.
 i) Guardar la más estricta discreción de los asuntos oficiales o privados que se discutan en su presencia.
-j) En caso de accidente dar aviso inmediato a las autoridades de tránsito, y al Instituto Nacional de Seguros debiendo informar con posterioridad y detalladamente, al Departamento de Servicios Generales o a la unidad correspondiente en cada desconcentrada sobre lo ocurrido.
+j) En caso de accidente, dar aviso inmediato a las autoridades de tránsito y al Instituto Nacional de Seguros, debiendo informar dentro de las veinticuatro horas siguientes, al Departamento de Servicios Generales o a la unidad correspondiente en cada desconcentrada, sobre lo ocurrido.
+(Así reformado por el artículo 3 del Decreto Ejecutivo N° 30666 de 17 de julio del 2002)
 k) Velar por la conservación y custodia de los vehículos que se les asignen.
 l) Velar por el aseo y limpieza de los vehículos en general.
 m) Verificar el buen estado de los vehículos, sus herramientas y demás accesorios, así como usar las placas oficiales.
