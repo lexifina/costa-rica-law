@@ -1,0 +1,1 @@
+Artículo 14.—La fecha del vencimiento del préstamo podrá ser prorrogada, siempre y cuando el material no haya sido solicitado por otros/as usuarias/os. Es indispensable la presentación del documento o del material audiovisual dentro del plazo establecido para su devolución, y llenar una nueva boleta de préstamo para hacer efectiva la prórroga.

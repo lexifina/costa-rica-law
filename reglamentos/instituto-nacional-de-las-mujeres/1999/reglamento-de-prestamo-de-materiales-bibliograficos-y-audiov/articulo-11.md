@@ -1,0 +1,1 @@
+Artículo 11.—Se excluirán del préstamo a domicilio las revistas, las obras de referencia: enciclopedias, diccionarios, anuarios, y ediciones únicas. Asimismo, solo podrán usarse dentro de la Unidad los materiales obtenidos en préstamo interbibliotecario.

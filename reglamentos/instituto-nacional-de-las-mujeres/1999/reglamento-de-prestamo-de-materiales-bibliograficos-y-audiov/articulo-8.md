@@ -1,0 +1,1 @@
+Artículo 8º—Para utilizar documentos de la Unidad dentro de las instalaciones, deberá igualmente llenarse la boleta y presentar la identificación correspondiente, según lo estipulado en el artículo 6.

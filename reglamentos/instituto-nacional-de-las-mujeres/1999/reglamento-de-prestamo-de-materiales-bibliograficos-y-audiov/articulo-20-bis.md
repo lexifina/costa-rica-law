@@ -1,0 +1,2 @@
+Artículo 20 Bis.—Corresponde a la Unidad de Documentación autorizar la adquisición de todo el material bibliográfico y audiovisual que requieran las distintas instancias institucionales con el propósito de llevar el inventario y la custodia de los activos documentales y audiovisuales de la institución. (4)
+(4) Modificado por acuerdo del Acta Nº 25-02 de la sesión ordinaria de la Junta Directiva del 30 de setiembre del 2002.

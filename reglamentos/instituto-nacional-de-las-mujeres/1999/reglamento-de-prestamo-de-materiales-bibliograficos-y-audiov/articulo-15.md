@@ -1,0 +1,3 @@
+Artículo 15.—Las bibliotecas, centros de documentación, Oficinas Municipales de la Mujer, y Unidades para la Equidad de Género de instituciones que necesiten material bibliográfico (préstamos interbibliotecarios e interinstitucionales) harán la solicitud correspondiente por escrito a la Unidad, y deberán llenar las boletas respectivas. El período de préstamo en estos casos será de cinco días naturales. Se prestará hasta un máximo de cinco libros. (2)
+(2) Modificación realizada según acuerdo N° 4 del Acta Nº 15-06, Sesión ordinaria de la Junta Directiva del 27 de marzo del 2006.
+La fecha del vencimiento del préstamo podrá ser prorrogada, siempre y cuando el material no haya sido solicitado por otros/as usuarias/os.
