@@ -1,0 +1,1 @@
+Artículo 2º—El Departamento de Recursos Humanos de la Dirección General realizará un estudio sobre las circunstancias de peligrosidad que impliquen algún riesgo para la integridad física del servidor, debiéndose constatar además, el cumplimiento de los supuestos que se detallan en el presente Reglamento a efectos de que la Dirección General autorice el pago del sobresueldo.

@@ -1,0 +1,1 @@
+Artículo 8º—Se autoriza el pago retroactivo del riesgo policial para aquellos funcionarios que cumpliendo con las condiciones establecidas en el presente reglamento, no se les había reconocido oportunamente.

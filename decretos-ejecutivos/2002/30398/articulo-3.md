@@ -1,0 +1,1 @@
+Artículo 3º—El sobresueldo riesgo policial se reconocerá a los funcionarios de la Dirección General de Migración que desempeñen funciones policiales, independientemente de la clasificación de su puesto.

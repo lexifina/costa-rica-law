@@ -1,0 +1,1 @@
+Artículo 5º—La asignación y desempeño de funciones técnicas o administrativas entendidas derivadas de la función policial serán consideradas de carácter circunstancial temporal y secundario en relación con las funciones policiales propiamente dichas.
