@@ -1,7 +1,0 @@
-ARTICULO 65.- Los derechos y beneficios a que esta Sección se refiere
-son irrenunciables. Su enumeración no excluye otros que se deriven del
-principio cristiano de Justicia Social, serán aplicables por igual a todos
-los factores concurrentes al proceso de producción y reglamentados en un
-Código Social y de Trabajo, a fin de procurar una política permanente de
-solidaridad nacional.
-(Así reformado por ley Nº 24 de 2 de julio de 1943)

@@ -1,8 +1,0 @@
-ARTICULO 133.- El Congreso, al elegir los Magistrados de la Corte
-Suprema, nombrará además, por el mismo período, quince Magistrados
-suplentes para los efectos del artículo 132. Cuando uno de los nombrados
-muriere o se inhabilitare, la Corte Suprema de Justicia dará cuenta al
-Congreso a fin de que se proceda a su reposición. Los Magistrados
-suplentes deben reunir las mismas condiciones exigidas para los
-propietarios.
-(Así reformado por ley Nº 5 de 19 de mayo de 1933)
