@@ -13,3 +13,4 @@ Prohíbe Venta Herbicidas con Dioxinas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-04-22 | la propia norma |
+| 2 | 1987-04-22 | SINALEVI (sin norma nombrada) |
