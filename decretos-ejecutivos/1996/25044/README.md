@@ -13,3 +13,4 @@ Conforma la Comisión de Calidad en el Sector Turístico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-01 | la propia norma |
+| 2 | 1996-04-01 | SINALEVI (sin norma nombrada) |
