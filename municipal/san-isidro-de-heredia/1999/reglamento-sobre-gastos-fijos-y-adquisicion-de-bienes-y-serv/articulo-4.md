@@ -1,0 +1,1 @@
+Artículo Cuarto.-Cuando el bien servicio o convenio a contratar supere el monto señalado en el numeral anterior, será necesario que el alcalde municipal obtenga la respectiva autorización por parte del concejo, para lo cual dirigirá solicitud debidamente fundamentada, así como expresa mención de la partida presupuestaria con la que se cubrirá dicha adquisición.

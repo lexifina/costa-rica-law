@@ -1,0 +1,1 @@
+Artículo Segundo.-Se autoriza al alcalde municipal para realizar compra o adquisiciones de bienes y servicios, así como para suscribir gastos fijos, convenios en los cuales la Municipalidad de San Isidro Heredia actúe como parte, hasta por la suma de ¢300.000,00 (trescientos mil colones netos).
