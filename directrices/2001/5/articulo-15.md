@@ -1,0 +1,1 @@
+ARTÍCULO 15.- Protocolización de piezas: Las protocolizaciones de piezas del expediente tramitado en actividad judicial no contenciosa, podrán ser llevadas a cabo por el notario tramitador del expediente, u otro a elección de las partes intervinientes. Los honorarios por dichas actuaciones, serán independientes de los generados por el trámite del proceso a que se refieren.
