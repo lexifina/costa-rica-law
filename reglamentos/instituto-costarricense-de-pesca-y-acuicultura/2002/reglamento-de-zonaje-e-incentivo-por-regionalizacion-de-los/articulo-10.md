@@ -1,0 +1,1 @@
+Artículo 10.—En Toda Acción de Personal deberá indicarse el monto del zonaje o incentivo por regionalización asignado y el lugar donde presta o prestará sus servicios el funcionario en caso de traslado.

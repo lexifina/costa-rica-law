@@ -1,0 +1,1 @@
+Artículo 7º—Queda totalmente prohibido el uso de cualquier oficina o instalación del INCOPESCA, en donde se prestan servicios, como apartamento o casa de habitación por parte de los funcionarios, salvo autorización expresa de Junta Directiva.

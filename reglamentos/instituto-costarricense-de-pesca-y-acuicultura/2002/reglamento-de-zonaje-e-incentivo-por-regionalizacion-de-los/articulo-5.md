@@ -1,0 +1,1 @@
+Artículo 5º—Todo funcionario que reciba el reconocimiento de Zonaje o Incentivo por Regionalización deberá poner en conocimiento de la administración cualquier modificación o cambio que opere en su domicilio legal a más tardar dentro de los 30 días naturales a su acaecimiento.

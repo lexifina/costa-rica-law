@@ -1,0 +1,1 @@
+Artículo 9º—Solo se podrá reconocer a cada funcionario uno de los beneficios establecidos en el presente Reglamento. El reconocimiento del pago de zonaje e incentivo por regionalización y cualquier cambio que se diera en el pago de esos beneficios, se hará constar mediante Acción de Personal por la Sección de Recursos Humanos del INCOPESCA.

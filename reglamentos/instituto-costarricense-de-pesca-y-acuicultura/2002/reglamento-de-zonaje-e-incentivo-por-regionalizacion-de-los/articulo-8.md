@@ -1,0 +1,1 @@
+Artículo 8º—El pago de zonaje e inclusión del nombre de un funcionario dentro de la planilla respectiva de la Institución, no implica por parte del INCOPESCA obligatoriedad alguna para mantenerlo en determinada oficina o zona geográfica.

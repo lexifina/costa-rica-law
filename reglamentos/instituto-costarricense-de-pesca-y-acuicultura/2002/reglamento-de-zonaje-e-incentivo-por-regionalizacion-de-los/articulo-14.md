@@ -1,0 +1,1 @@
+Artículo 14.—Mientras dure la prestación del servicio, por parte de un funcionario en las condiciones que generan a la Institución el pago de zonaje o incentivo por regionalización, las sumas devengadas por este concepto serán tomadas en cuenta para el cálculo de sus prestaciones legales y su aguinaldo.
