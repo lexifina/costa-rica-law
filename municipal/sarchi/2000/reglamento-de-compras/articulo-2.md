@@ -1,0 +1,1 @@
+Artículo 2°—Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y/o servicios, así como para suscribir convenios en los cuales la Municipalidad de Valverde Vega actúe como parte hasta por la suma de ¢ 500.000,00 (quinientos mil colones).
