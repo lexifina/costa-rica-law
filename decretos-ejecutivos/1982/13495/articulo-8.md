@@ -1,4 +1,1 @@
-Artículo 8°-Dentro de la demarcación de la zona protectora queda prohibido:
-a) Derribar árboles y extraer productos forestales de cualquier especie.
-b) La caza de animales silvestres o su captura, recolectar o extraer cualquiera de sus productos o despojos.
-c) La práctica de quemas.
+Artículo 8°-(Derogado por el artículo 5° del decreto ejecutivo N° 17003 del 13 de abril de 1986)

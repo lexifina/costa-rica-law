@@ -14,3 +14,4 @@ Establece Zona Protectora "La Selva"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-04-28 | la propia norma |
+| 2 | 1986-04-13 | Decreto Ejecutivo 17003 (1986-04-13) |
