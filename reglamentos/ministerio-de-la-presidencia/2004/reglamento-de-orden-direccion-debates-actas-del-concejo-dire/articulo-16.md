@@ -1,0 +1,1 @@
+Artículo 16.—Cuando la Presidencia levante la sesión estando en discusión un asunto, éste mantendrá su prioridad en la siguiente sesión, debiendo ser incluido en el capítulo de trámite urgente, en el orden correspondiente.

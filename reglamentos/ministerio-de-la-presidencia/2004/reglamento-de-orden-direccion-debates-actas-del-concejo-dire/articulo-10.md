@@ -1,0 +1,1 @@
+Artículo 10.—Pasados los quince minutos de ley, si no concurre el quórum necesario para sesionar, el presidente encargará al secretario del Concejo para que deje constancia de tal circunstancia en el libro de actas y se tomará la nómina de los presentes.

@@ -1,0 +1,4 @@
+Artículo 35.—Reportado el daño o extravío de hojas no utilizadas, el Concejo Directivo ordenará reponerlas. Le comunicará a la Auditoria del ICD para que se proceda a la reposición. La reposición se hará constar mediante razón que consignará en el volumen, el cual se le devolverá al
+Secretario (a). Si la reposición fuere de hojas utilizadas, el (la) Secretario (a) debe presentar, junto con la solicitud firmada por el Presidente, las copias de esos folios, firmadas por él y hará constar que son fieles a los originales.
+Se repondrán cronológicamente los folios, con base en las copias aportadas por el (la) Secretario (a). En la razón inicial del tomo que se reponga totalmente o al iniciarse la reposición parcial, deberá dejarse constancia de que se trata de una reposición e identificarse debidamente
+el material utilizado para el fin. Para estos efectos, el (la) Secretario (a), deberá aportar el archivo de referencia y las copias de las actas.

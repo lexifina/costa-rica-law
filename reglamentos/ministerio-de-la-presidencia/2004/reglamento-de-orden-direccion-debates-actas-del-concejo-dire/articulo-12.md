@@ -1,0 +1,1 @@
+Artículo 12.—Las sesiones del Concejo serán siempre privadas. La participación e intervención de terceros en la sesión del Concejo la podrá acordar el mismo Concejo por unanimidad de los miembros presentes concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.

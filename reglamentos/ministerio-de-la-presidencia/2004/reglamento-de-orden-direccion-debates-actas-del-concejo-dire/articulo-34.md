@@ -1,0 +1,2 @@
+Artículo 34.—Cuando el tomo de un Libro de Actas se extravíe, destruya, inutilice, sea sustraído o se deteriore, total o parcialmente, la Dirección General debe dar cuenta inmediata, por escrito, al Concejo Directivo y detallará los hechos en un plazo máximo de tres días. El Concejo Directivo ordenará la reposición correspondiente y, de sospechar un delito, lo denunciará al Ministerio Público para que proceda conforme a la ley.
+Si el daño fuere únicamente parcial, las partes deterioradas se acompañarán con la solicitud de reposición.

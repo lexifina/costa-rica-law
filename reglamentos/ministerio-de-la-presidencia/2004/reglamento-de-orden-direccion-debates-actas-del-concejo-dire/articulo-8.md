@@ -1,0 +1,1 @@
+Artículo 8º—Las sesiones del Concejo Directivo se celebrarán en el Despacho del Ministro o Viceministro de la Presidencia o en cualquier otro lugar cuando así lo decidiera el Presidente del Concejo o por unanimidad de los miembros del Órgano Colegiado.

@@ -1,0 +1,1 @@
+Artículo 26.—Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, salvo que los miembros presentes acuerden su firmeza por mayoría calificada de los miembros del Concejo Directivo.

@@ -1,0 +1,1 @@
+Artículo 31.—Los acuerdos se numerarán en forma consecutiva separada para tipo de sesión debiendo indicar el número de acuerdo, número de sesión, año y en el caso de los acuerdos de sesión extraordinaria se agregará las siglas EXT para distinguirlos de los acuerdos de sesiones ordinarias.

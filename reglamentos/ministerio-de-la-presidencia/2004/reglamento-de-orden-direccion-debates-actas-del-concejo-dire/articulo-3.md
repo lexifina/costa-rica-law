@@ -1,0 +1,1 @@
+Artículo 3º—Además de las facultades y atribuciones que la Ley General de la Administración Pública y la Ley 8204 le confieren al Presidente del Concejo, éste podrá delegar las instrucciones de la ejecución de los acuerdos en el (la) Secretario (a) de sesiones que establece el presente reglamento.

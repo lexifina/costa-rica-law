@@ -1,0 +1,1 @@
+Artículo 9º—El Concejo sesionará en forma ordinaria el día y la hora que se determine. Las sesiones ordinarias podrán ser realizadas cualquier otro día siempre y cuando así lo decidiere el Presidente o el Concejo por mayoría simple.
