@@ -1,0 +1,1 @@
+Artículo 2°.- El Banco Internacional de Costa Rica hará sus emisiones retirando de la circulación cantidades iguales de billetes de la emisión actual o bien sujetando cualquier exceso de emisión a la dicha Ley de Bancos, de modo que todo billete que en lo futuro emita tenga como mínimun de respaldo el 40% en oro, al igual de las demás instituciones bancarias del país.

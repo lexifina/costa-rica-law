@@ -1,0 +1,1 @@
+Artículo 6°.- Quedan así reformados y adicionados el artículo 24 de la Ley de Bancos de 25 de abril de 1900, el artículo 2° del decreto N° 31 de 10 de julio de 1902 sobre certificados de plata; el decreto N° 16 del 9 de octubre de 1914, y demás leyes que se relacionen con las presentes disposiciones.
