@@ -14,3 +14,4 @@ Reforma Reglamento a la Ley Forestal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-11-10 | la propia norma |
+| 2 | 1999-01-13 | Decreto Ejecutivo 27694 (1999-01-13) |
