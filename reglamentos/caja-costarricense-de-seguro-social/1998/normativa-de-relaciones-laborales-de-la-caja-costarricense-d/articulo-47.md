@@ -1,0 +1,3 @@
+Artículo 47.—Descanso pre y post-natal
+Las trabajadoras de la Caja en estado de gravidez gozarán obligatoriamente de un descanso remunerado durante el mes anterior y los tres meses posteriores al parto; la remuneración durante este período se hará conforme lo establece el Código dé Trabajo en su artículo 95, o de acuerdo al Reglamento de Beneficios Especiales para los Empleados(as) de la CCSS, según corresponda.
+En casos de partos múltiples, el descanso se incrementará en un mes por cada niño(a) adicional. Cuándo se trate de adopciones legales de menores de edad, se estará a la recomendación psicológica especificada por el Patronato Nacional de la Infancia, en la respectiva adopción, sin qué pueda exceder de tres meses.

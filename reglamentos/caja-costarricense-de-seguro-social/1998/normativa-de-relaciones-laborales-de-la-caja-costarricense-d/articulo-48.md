@@ -1,0 +1,2 @@
+Artículo 48. Compensación de la cuota de enfermedad y maternidad.Para los efectos que establecen los artículos 21 y 22 de la Ley Constitutiva de la Caja Costarricense de Seguro Social, los trabajadores(as) de ésta cotización mensualmente para el Régimen de Enfermedad y Maternidad, con el cincuenta por ciento de la tarifa porcentual que está vigente para los trabajadores (as) de la empresa privada y demás entes del Estado.
+.

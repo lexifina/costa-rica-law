@@ -1,0 +1,3 @@
+Transitorio 2°—Los actos administrativos ejecutados antes de entrar en vigencia las presentes regulaciones surtirán efectos por única vez de acuerdo con la normativa anterior. Tratándose de procedimientos se atenderá la normativa vigente en la fase que se trate.
+VIGENCIA
+Las presentes disposiciones rigen a partir de su aprobación por parte de la Junta Directiva y tres meses posteriores a su publicación en el Diario Oficial "La Gaceta" y derogan cualquier otra que se le opongan, particularmente las "Normas que regulan las relaciones entre la Caja Costarricense de Seguro Social y sus trabajadores(as), a partir de enero de 1994" sin perjuicio de lo señalado en el artículo 3 sobre la "Naturaleza, derechos adquiridos y fuentes."

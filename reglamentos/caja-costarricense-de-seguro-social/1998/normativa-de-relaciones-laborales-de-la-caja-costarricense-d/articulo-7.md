@@ -1,0 +1,3 @@
+Artículo 7°—Jornada extraordinaria
+El tiempo laborado fuera de los límites máximos señalados como jornada ordinaria, previamente autorizado por la jefatura competente en cada unidad de trabajo, se considerará jornada extraordinaria y deberá remunerarse con el 50% adicional del salario ordinario devengado por el trabajador. Las horas extraordinarias laboradas durante un día feriado, libre o de asueto se remunerará con el doble del salario ordinario.
+El tiempo extraordinario laborado se pagará exclusivamente en dinero y se cancelará dentro de los dos meses siguientes a aquel en que fue elaborado.

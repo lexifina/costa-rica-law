@@ -1,0 +1,5 @@
+Artículo 66.—Interinos
+Ninguna plaza que se encuentre vacante, podrá mantenerse en esta situación por más de tres meses, salvo que se trate de una plaza que requiera concurso internó o externo y que éste supere el plazo mencionado, o bien sean objeto de demandas o reclamaciones judiciales.
+Para el nombramiento interino o en propiedad en determinada plaza, no podrá aplicarse a los trabajadores(as) regulaciones sobre requisitos con carácter retroactivo, que no se exigían al momento de ingresar al puesto, salvo que exista disposición legal en contrario, que se haya incurrido en un ingreso fraudulento o que no se cumpliera con los requisitos que se exigían en ese momento.
+Todos los nombramientos se basarán en los siguientes aspectos:
+idoneidad, antigüedad y récord laboral. No se efectuará en ningún caso, nombramientos a nuevo personal interino, sin tomar en cuenta prioritariamente a quienes hayan venido laborando bajo estas condiciones, en un mismo Centro de Trabajo es decir en forma interina.

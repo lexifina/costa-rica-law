@@ -1,0 +1,3 @@
+Artículo 22.—Uniformes y útiles de trabajo
+Los uniformes de uso obligatorio para el personal, estarán a cargo de la Caja y serán entregados a razón de tres por año. Se programará la entrega de éstos para los meses de enero, mayo y setiembre, salvo situaciones de fuerza mayor o de caso fortuito. La Institución suplirá un cuarto uniforme en los casos extraordinarios que a juicio de la Administración así lo ameriten.
+Asimismo se podrá entregar al trabajador(a) en efectivo, el costo del uniforme. Todo de acuerdo a las posibilidades de la CCSS en razón del costo de oportunidad y la reglamentación existente. De así preferirlo el trabajador(a), la Caja podrá entregarle la tela necesaria para la confección de sus uniformes, por su cuenta.

@@ -1,0 +1,2 @@
+Artículo 49.—Facilidad de préstamos para vivienda
+El trámite de estos créditos deberá ser expedito y con carácter de preferencia. Para formalizar el respectivo crédito, la Caja dará facilidades. En el caso de que el empleado(a) al que se le haya aprobado un préstamo no pueda utilizarlo de inmediato, podrá solicitar una prórroga del mismo hasta por tres meses. El empleado(a) no perderá el derecho al préstamo hasta después de seis meses de habérsele adjudicado.

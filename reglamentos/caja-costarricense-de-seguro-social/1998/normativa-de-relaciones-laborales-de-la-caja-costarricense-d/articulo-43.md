@@ -1,0 +1,2 @@
+Artículo 43,—Examen médico anual
+La Caja hará anualmente un examen médico, a aquellos empleados(as) que laboren con materia tóxica y patógena, y otras de alto riesgo para la salud. Dicho examen ^también se hará a los trabajadores(as) que por la índole de sus funciones estén expuestos a contraer enfermedades profesionales. Estos exámenes se realizarán por decisión institucional o por sugerencia de la Comisión Nacional de Salud Ocupacional;

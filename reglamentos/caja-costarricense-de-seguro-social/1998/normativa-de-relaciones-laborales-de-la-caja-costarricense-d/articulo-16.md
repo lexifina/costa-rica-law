@@ -1,0 +1,3 @@
+Artículo 16.—Salario en especie
+Todo empleado(a) hospitalario de jornada continua, tendrá derecho al suministro de la alimentación durante su horario de trabajo. De no ser posible ofrecer la alimentación, se le pagará salario en especie, de acuerdo con los montos fijados al efecto.
+El patrono ofrecerá a sus trabajadores(as), que tengan derecho a ella, una alimentación que llene las necesidades calóricas, debiendo seguir para ello el criterio de profesionales en nutrición. La Caja siguiendo el criterio de los citados profesionales, establecerá el "menú" que reúna los requisitos de buena calidad y presentación.

@@ -1,0 +1,2 @@
+Artículo 27.—Despido por reducción de servicios
+Los servidores(as) podrán ser separados de sus puestos por reducción forzosa de servicios o por razones presupuestarias o de índole técnico, tales como avances tecnológicos, insubsistencia de las causas que justificaron la creación del servicio u otros igualmente calificados. La necesidad de reducción por falta de fondos deberá ser puesta previamente en conocimiento de la Junta Nacional de Relaciones Laborales.

@@ -1,0 +1,2 @@
+Artículo 56.—Derecho a celebrar reuniones:
+La Caja garantiza el derecho a cada sindicato, para celebrar reuniones en los centros de trabajo, así como el permiso para los trabajadores(as) que deseen asistir. El uso de las instalaciones (Auditorio, Aulas y Otros), se otorgará previa solicitud verbal o escrita, de acuerdo con las posibilidades del respectivo Centro de Trabajo. En todo caso, el permiso lo determinará el jefe de la Unidad correspondiente.
