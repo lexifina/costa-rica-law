@@ -5,20 +5,19 @@ En uso de las potestades que les confiere el artículo 140, incisos 3) y 18) de 
 DECRETAN:
 Artículo 1°—Se reforma la tabla 1 del decreto N° 18825-MEIC, publicado en "La Gaceta" N° 42 del 28 de febrero de 1989 para que en adelante se lea de la manera siguiente:
 Tabla 1. Grados de calidad del frijol en grano
-Factores de calidad | % de tolerancias máximas en % masa, según grados de calidad
-. | 1° | 2° | 3°
-Humedad 1/ | 13 | 13 | 13
+Factores de calidad | Tolerancias máximas en % masa, según grados de calidad
+. | 1º | 2º | 3º
 Impurezas 1/ | 0,5 | 2 | 3
 Tipo contrastante 2/ | 1 | 3 | 5
-Aflatoxinas microgramos/kilogramo máx. | 50 | 50 | 50
 Grano dañado total 3/ | 1 | 3 | 5
-Grano quebrado | 0,5 | 0,75 | 1,0
+Grano Quebrado | 0,5 | 0,75 | 1,0
 Grano partido | 0,5 | 3 | 5
 Infestado | | NO SE ACEPTA |
-Otros granos | 0 | 0,5 | 1,0
-Dudosamente infestado | | SE ACEPTA |
-Tiempo cocción (minutos) máx. | 90 | 120 | 150
+Otros granos | 0 | 0,5 | 1
+Dudosamente infestado | . | SE ACEPTA | .
+*ppb = microgramos/kilogramo.
 1/ | En transacciones a granel este factor es un indicador, pudiéndose aplicar castigos mediante negociación entre las partes, en el caso de que el porcentaje sea superior, o bonificación en el caso de ser inferior. En caso de venta directa al consumidor, este debe cumplirse.
-2/ | Si únicamente el porcentaje de granos contrastantes es superior al máximo de tolerancia, la clase de frijol se clasificará como mezclado, en cualesquiera de las tres categorías, indicándose el porcentaje de la clase prevaleciente.
-3/ | Dentro de estas tolerancias máximas no se aceptará más del 1% de grano picado por insectos.
-NOTA: La calidad está determinada por el factor que se encuentre en condiciones más desfavorables conforme con la tabla de tolerancias máximas.
+2/ | Si únicamente el porcentaje de granos contrastantes es superior al máximo de tolerancia, la clase de frijol se clasificaría como MEZCLADO, en cualesquiera de las tres categorías, indicándose el porcentaje de la clase prevaleciente.
+3/ | Dentro de estas tolerancias máximas no se aceptaría más del 1% de grano picado por insectos.
+NOTA: La calidad está determinada por el factor que se encuentre en condiciones más desfavorables conforme a la tabla de tolerancias máximas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 29487 del 23 de abril de 2001)
