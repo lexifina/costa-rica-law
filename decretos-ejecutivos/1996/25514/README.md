@@ -17,3 +17,4 @@ Régimen de Tributación Simplificada para Comerciantes Minoristas y Bares.
 | 2 | 1997-06-20 | Decreto Ejecutivo 26199 (1997-06-20) |
 | 3 | 1999-08-19 | Decreto Ejecutivo 28104 (1999-08-19) |
 | 4 | 2001-07-10 | Decreto Ejecutivo 29643 (2001-07-10) |
+| 5 | 2002-04-15 | Decreto Ejecutivo 30368 (2002-04-15) |

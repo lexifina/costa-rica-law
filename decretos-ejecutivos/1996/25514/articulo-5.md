@@ -10,5 +10,8 @@ g) Fabricación de productos metálicos estructurales | 0,01 | 0,052
 h) Floristerías | 0,01 | 0,058
 i) Panaderías | 0,01 | 0,020
 j) Restaurantes, cafés, sodas y otros establecimientos de venta de comidas, bebidas o ambos | 0,02 | 0,040
+k) Pescadores Artesanales en Pequeña Escala | 0.025 |
+l) Pescadores Artesanales Medios | 0.033 |
+(Así ampliado por el artículo 4° del Decreto Ejecutivo N° 30368, del 15 de abril del 2002)
 (Así reformado por el artículo 1° del Decreto Ejecutivo N° 26199 del 20 de junio de 1997)
 (Reformado parcialmente por el artículo 9° del Decreto Ejecutivo N° 29643, del 10 de julio de 2001)

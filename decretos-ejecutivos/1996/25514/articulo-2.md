@@ -10,5 +10,8 @@ g) Fabricación de productos metálicos estructurales: Confección de estructura
 h) Floristerías: Elaboración de arreglos, ofrendas florales y similares, a partir de flores naturales, artificiales o de ambos tipos".
 i) Panaderías: Elaboración de pan, pastelería y repostería, de cualquier tipo.
 j) Restaurantes, cafés, sodas y otros establecimientos que vendan comidas, bebidas o ambos: Servicio de expendio de comidas, bebidas o ambos.
+k) Pescadores Artesanales en Pequeña Escala: Son aquellos que cuentan con una embarcación autorizada por el Ministerio de Obras Públicas y Transportes, para operar a una distancia de la costa no superior a las tres millas náuticas.
+l) Pescadores Artesanales Medios: Son aquellos que cuentan con una embarcación pesquera autorizada por el Ministerio de Obras Públicas y Transportes, para operar hasta una distancia de la costa menor o igual a cuarenta millas náuticas.
+(Así ampliado por el artículo 2° del Decreto Ejecutivo N° 30368, del 15 de abril del 2002)
 (Así reformado por el artículo 1° del Decreto Ejecutivo N° 26199 del 20 de junio de 1997)
 (Reformado parcialmente por el artículo 9° del Decreto Ejecutivo N° 29643, del 10 de julio de 2001)
