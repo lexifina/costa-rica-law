@@ -1,0 +1,1 @@
+Art. 3°-Comprobados los hechos que sirven de fundamento a la pretensión, se declara la gracia, otorgándose á favor del interesado la certificación correspondiente, sin perjuicio de derechos de tercero.

@@ -1,0 +1,1 @@
+Art. 4° -El interesado en la adquisición de la gracia, se presentará con la certificación de la declaratoria á denunciar el terreno agraciado, y observadas todas las reglas establecidas para la enajenación de las tierras baldías, con excepción de la puja y el pago del precio, se expedirá á favor del denunciante del título de propiedad.
