@@ -14,3 +14,4 @@ Reglamento de licencias para el personal técnico aeronáutico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-04-16 | la propia norma |
+| 2 | 1975-07-23 | Decreto Ejecutivo 5053 (1975-07-23) |
