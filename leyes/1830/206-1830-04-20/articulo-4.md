@@ -1,0 +1,1 @@
+ARTÍCULO 4° Cesar n en la Corte de Justicia los suplentes, y las faltas de cualesquiera de sus individuos se llenarán por el Abogado; por lo menos Bachiller en derecho civil que nombre la misma; sin perjuicio de que cuando sean perpetuas se de‚ cuenta a la Asamblea para su reposición.

@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-La Corte de Justicia se renovar por tercios cada dos años, y la suerte en cada periodo designar al Magistrado que deba cesar de los tres que primeramente la compongan, y en lo sucesivo saldrán los más antiguos.
