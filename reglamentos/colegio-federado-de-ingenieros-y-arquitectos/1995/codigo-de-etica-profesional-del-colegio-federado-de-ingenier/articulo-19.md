@@ -1,1 +1,1 @@
-Artículo 19.- Los miembros incorporados al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, mediante razón fundada, notificarán a sus empleadores y clientes cuando estimen que el trabajo encomendado no tendrá el éxito esperado por aquellos.
+Artículo 19.—Los miembros incorporados al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, mediante razón fundada, notificarán a sus empleadores y clientes cuando estimen que el trabajo encomendado no tendrá el éxito esperado por aquellos.

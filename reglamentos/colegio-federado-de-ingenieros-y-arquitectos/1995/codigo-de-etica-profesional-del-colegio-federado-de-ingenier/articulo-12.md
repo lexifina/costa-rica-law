@@ -1,1 +1,1 @@
-Artículo 12.- Los miembros incorporados al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica no participarán en la diseminación de conceptos falsos, injustos o exagerados en relación a la ingeniería y arquitectura.
+Artículo 12.—Los miembros incorporados al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica no participarán en la diseminación de conceptos falsos, injustos o exagerados en relación a la ingeniería y arquitectura.

@@ -1,2 +1,1 @@
-Artículo 34.—Se impondrá suspensión de tres hasta veinticuatro meses al miembro del Colegio Federado de Ingenieros y de Arquitectos que sin estar autorizado para ello, ejerza funciones propias de otra profesión del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Asamblea N° 03-02/03, realizada el 19 de junio de 2003, acuerdos N° 21 y 22, publicados en La Gaceta N° 146 de 31 de julio de 2003.)
+Artículo 34.—Se impondrá suspensión de tres hasta veinticuatro meses al miembro del Colegio Federado de Ingenieros y de Arquitectos que sin estar autorizado para ello, ejerza funciones propias de otra profesión del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica. (*)

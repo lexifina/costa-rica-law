@@ -1,1 +1,1 @@
-Artículo 5.- Los miembros incorporados al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica cuidarán que los recursos humanos, económicos, naturales y transformados, sean adecuadamente utilizados haciendo los estudios necesarios para evitar su uso abusivo o dispendioso.
+Artículo 5º—Los miembros incorporados al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica cuidarán que los recursos humanos, económicos, naturales y transformados, sean adecuadamente utilizados haciendo los estudios necesarios para evitar su uso abusivo o dispendioso.

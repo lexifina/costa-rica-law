@@ -1,1 +1,1 @@
-Artículo 14.- Los miembros incorporados al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica podrán hacer promoción de sus servicios profesionales sólo cuando ella no contenga lenguaje jactancioso o engañoso o en cualquier forma denigrante para la dignidad de la profesión.
+Artículo 14.—Los miembros incorporados al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica podrán hacer promoción de sus servicios profesionales sólo cuando ella no contenga lenguaje jactancioso o engañoso o en cualquier forma denigrante para la dignidad de la profesión.
