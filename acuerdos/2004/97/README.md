@@ -14,3 +14,4 @@ SGV-A-97 Acuerdo sobre Estado de Cuenta e Informe trimestral de Fondos de Invers
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-12-31 | la propia norma |
+| 2 | 2004-12-31 | Acuerdo 99 (2004-12-16) |

@@ -10,7 +10,8 @@ f. Identificación del cliente.
 i. Nombre completo.
 ii. Dirección o apartado postal.
 iii. Código del cliente.
-g. Nombre del ejecutivo de cuenta.
+g. Nombre del ejecutivo de cuenta (facultativo) (...)
+(Reformado mediante acuerdo SGV-A-99 del 16 de diciembre del 2004)
 h. Moneda de suscripción y reembolso de participaciones.
 i. Movimiento de participaciones.
 i. Fecha, monto monetario, cantidad de participaciones y valor de participación al inicio del período a reportar.
