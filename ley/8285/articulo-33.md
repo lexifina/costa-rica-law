@@ -1,0 +1,8 @@
+Artículo 33.—El agroindustrial no podrá negarse a recibir entregas de arroz, excepto en los siguientes casos:
+a) Cuando el arroz no llene los requisitos que ordena el Reglamento de esta Ley, en cuanto a humedad, impurezas, grano quebrado, semillas objetables, mancha y yeso.
+b) Cuando los silos de almacenamiento estén llenos, circunstancia que deberá ser declarada oportunamente por la misma Corporación.
+c) Cuando se trate de organizaciones que beneficien únicamente el arroz de sus asociados.
+d) Cuando se trate de plantas que beneficien únicamente su propia producción.
+e) Cuando el consumo del mercado interno se satisfaga con la cantidad de producción que se encuentre en las plantas. Para ello, antes de la época de siembra del arroz, la Corporación deberá haber informado, con base en los datos enviados por los productores, que la producción nacional será mayor que el consumo del mercado interno.
+En este caso, la Corporación deberá conservar en los silos de su propiedad o de terceros la cantidad de arroz que sobrepase el consumo interno, así como realizar las exportaciones correspondientes para que al productor le sea liquidado oportunamente el pago.
+f) Cuando el arroz granza corresponda a una variedad no incluida en el Registro de Variedades Comerciales de acuerdo con la Ley de Semillas y, por sus características industriales y organolépticas, pueda afectar los índices nacionales de calidad; o bien, cuando corresponda a variedades de origen desconocido o cuyo ingreso al país se haya realizado en forma clandestina, poniendo en peligro la actividad arrocera por factores fitosanitarios y de calidad.

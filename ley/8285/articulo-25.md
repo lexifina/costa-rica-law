@@ -1,0 +1,1 @@
+Artículo 25.—Para realizar los procesos de elección antes descritos, las Juntas Regionales, con recursos presupuestados por la Corporación, deberán convocar a los productores a las Asambleas Regionales, con suficiente antelación a la realización de la Asamblea General y a la elección de la Junta Directiva de la Corporación.

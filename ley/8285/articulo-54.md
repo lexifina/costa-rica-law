@@ -1,0 +1,1 @@
+Artículo 54.—El Congreso tendrá carácter permanente; se reunirá, ordinariamente, una vez al año y, extraordinariamente, cuando sea convocado por su presidente, el cual será elegido de su seno anualmente.

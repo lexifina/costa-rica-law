@@ -1,0 +1,1 @@
+Artículo 40.—El encargado de realizar las importaciones del desabasto de arroz en granza, será el CNP o, en su defecto, la Corporación Arrocera. Para efecto de la comercialización del producto en el país, se dará prioridad a las plantas industrializadoras en proporción al grano que hayan adquirido de la producción de arroz nacional.

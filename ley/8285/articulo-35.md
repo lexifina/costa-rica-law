@@ -1,0 +1,2 @@
+Artículo 35.—El arroz en poder del agroindustrial y no pagado al productor, será inembargable por parte de los acreedores del beneficiario o del productor. Este privilegio comprende tanto la participación individual de cada productor independiente como la colectiva de todos los que hayan entregado arroz.
+En caso de quiebra de un agroindustrial o de una persona física o jurídica, que de cualquier modo afecte el capital de un agroindustrial, el crédito de los productores se considerará privilegiado, según el artículo 993 del Código Civil.

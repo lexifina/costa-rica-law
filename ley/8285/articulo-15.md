@@ -1,0 +1,1 @@
+Artículo 15.—La Junta Directiva elegirá de entre sus miembros a un presidente, un vicepresidente y un secretario; los demás miembros fungirán como vocales. Los miembros de la Junta Directiva referidos en los incisos c), d) y e) del artículo anterior, durarán en sus cargos dos años y podrán ser reelegidos.

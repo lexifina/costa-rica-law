@@ -1,0 +1,1 @@
+Artículo 28.—Cualquier alteración u omisión en cuanto a la veracidad de los informes que deberán rendir los agroindustriales sobre cantidades de compra, recibo, existencias y ventas o entregas, acarreará la sanción establecida en esta Ley, sin menoscabo de las acciones penales que puedan emprenderse.

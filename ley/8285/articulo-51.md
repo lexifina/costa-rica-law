@@ -1,0 +1,1 @@
+Artículo 51.—El producto de las multas impuestas deberá depositarse en la Corporación, la cual destinará el cincuenta por ciento (50%) a desarrollar, en la zona de influencia, programas de investigación y transferencia de tecnología en arroz.

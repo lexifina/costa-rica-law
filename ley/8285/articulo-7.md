@@ -1,0 +1,1 @@
+Artículo 7º—La Corporación, con base en estudios técnicos, sugerirá al MEIC el precio del arroz en granza y sus subproductos con valor económico que pagará el agroindustrial al productor, así como el precio al consumidor del arroz pilado.
