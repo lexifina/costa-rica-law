@@ -10,7 +10,7 @@ Artículo 1°.- -Modifíquese el artículo 76 del Reglamento a la Ley Forestal, 
 "Artículo 76.-Las personas físicas o jurídicas, que soliciten concesione o permiso de uso en terrenos del Patrimonio Forestal del Estado, deberán pedir al Fondo Forestal los siguientes derechos:
 a) El valor de la madera en pie o el valor de los productos forestales de que se trate, para lo cual se considerará el valor del metro cúbico de la madera dispuesto de conformidad con el artículo 19 de la Ley Forestal.
 b) Un canon superficial por cada hectárea dada en permiso el cual será el siguiente para la actividad solicitada:
-i) Se trata de permisos para la instalación de torres para comunicación, el canon será de cinco colones por metro cuadrado por año.
+i) (Derogado este inciso por el artículo 1° del decreto ejecutivo N° 26187 del 22 de mayo de 1997)
 ii) Si se trata de permisos para la producción de sal, el canon será de dos mil colones por hectárea por año.
 iii) Si se trata de permisos en áreas donde se efectuarán explotaciones mineras se cobrará un canon de cincuenta mil colones anuales para aquellas áreas menores a cien hectáreas.
 iv) Si se trata de permisos en áreas donde se efectuarán exploraciones mineras se cobrará un canon anual de doscientos cincuenta colones por hectárea.
