@@ -1,0 +1,1 @@
+Artículo 6°—Cada junta de Caridad elegirá un abogado ó representante que vigile y gestione el cobro del impuesto. Este representante será parte en los juicios de sucesión, y para justificar su personería, bastará que su nombramiento se publique en el periódico oficial. No ganará sueldo, sino el tanto por ciento sobre las entradas, que le asigne la Junta.
