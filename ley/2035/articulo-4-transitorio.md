@@ -1,0 +1,1 @@
+TRANSITORIO IV.- Mientras no haya sido aprobado el Proyecto de Ley Reguladora del Monopolio de licores y Constitutiva de la Destilería Nacional (Expediente de la Asamblea Legislativa Nº 7321), no se podrán dar nuevas concesiones o contratos para la fabricación de cualquier tipo de licor.
