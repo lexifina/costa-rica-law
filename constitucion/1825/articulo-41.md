@@ -1,1 +1,0 @@
-ARTICULO 41.- Para la instalación de cada Congreso, se requiere la concurrencia de las dos terceras partes de los Diputados de que deba componerse, pero un número menor podrá competer y apremiar a los demás a que concurran en el tiempo de las sesiones.

@@ -1,1 +1,0 @@
-ARTICULO 51.- El Congreso se renovará todos los años por mitad debiendo reemplazarse en la primera Legislatura los Diputados que designe la suerte y en las siguientes la renovación tendrá lugar en los más antiguos.

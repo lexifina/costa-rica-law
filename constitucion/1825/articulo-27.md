@@ -1,1 +1,0 @@
-ARTICULO 27.- Las juntas Populares se compondrán de todos los Ciudadanos en ejercicio de sus derechos, y se celebrarán el Domingo primero del mes de Enero con el objeto de sufragar por los electores de Parroquia que les correspondan.

@@ -1,1 +1,0 @@
-ARTICULO 28.- Las juntas de Parroquia, se compondrán de electores nombrados por populares, y se celebrarán el Domingo tercero del mismo mes de Enero, con el objeto de elegir los electores de partido que les correspondan.
