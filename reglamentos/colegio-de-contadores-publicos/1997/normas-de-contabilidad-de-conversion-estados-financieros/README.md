@@ -15,3 +15,4 @@ Normas de Contabilidad de Conversión Estados Financieros
 | --- | --- | --- |
 | 1 | 1997-09-18 | la propia norma |
 | 2 | 1998-08-18 | Reglamento 27 (1998-08-18) |
+| 3 | 1998-08-18 | Ley 8 |
