@@ -14,3 +14,4 @@ Reglamento Orgánico de los Consejos Municipales de Distrito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-01-07 | la propia norma |
+| 2 | 1994-10-14 | SINALEVI (sin norma nombrada) |
