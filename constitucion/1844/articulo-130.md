@@ -1,0 +1,1 @@
+Artículo 130.- En caso de muerte, imposibilidad física ó moral, falta temporal del Jefe Supremo del Estado ó en el de estar impedido al tiempo de tomar posesión de su destino, sus funciones serán suplidas interinamente por el Presidente del Senado, ó en defecto de éste, por el que le suceda en el orden de su nombramiento o antigüedad.

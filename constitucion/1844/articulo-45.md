@@ -1,0 +1,1 @@
+Artículo 45.- El Estado es uno de los que componen la República de Centro América y concurrirá con sus Representantes electos popularmente a formar el nuevo pacto de asociación general cuando en este respecto estén de acuerdo los demás Estados.

@@ -1,0 +1,1 @@
+Artículo 66.- Las juntas populares se compondrán de todos los ciudadanos que tienen derecho a votar, y tendrán por objeto elegir Representantes, y sufragar por Jefe, Senadores y Magistrados para la Suprema Corte de Justicia.

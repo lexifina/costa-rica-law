@@ -1,0 +1,1 @@
+Artículo 73.- Se prohíbe la reunión de fuerza armada en los días y lugares de elecciones de individuos de los Supremos Poderes, y municipales, a excepción de los casos de invasión exterior ó convulsiones intestinas que la exijan.

@@ -1,0 +1,1 @@
+Artículo 165.- La detención de que habla el artículo anterior no podrá durar mas que cuarenta y ocho horas, y durante este término deberá la autoridad que la haya ordenado justificar el cuerpo del delito por el cual se le haya detenido, y en este caso librar por escrito la orden de prisión ó ponerlo en libertad.
