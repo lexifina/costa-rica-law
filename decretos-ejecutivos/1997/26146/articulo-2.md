@@ -1,0 +1,1 @@
+Artículo 2°-El Ministerio de Agricultura y Ganadería a través de los Departamentos de Cuarentena Agropecuaria y el de Inscripción, Constatación de Calidad y Fiscalización de Medicamentos Veterinarios aplicará las disposiciones legales relativas a la retención, decomiso, destrucción o disposición de todos aquellos productos que contengan cloranfenicol.
