@@ -1,0 +1,1 @@
+Artículo 26.—La hora en que deba abrirse la venta de. billetes se anunciará con un día de anticipación por lo menos; y al verificarse la apertura, la Empresa tendrá á la disposición y vista del público todas las localidades que no estuvieren abonadas ó reservadas.

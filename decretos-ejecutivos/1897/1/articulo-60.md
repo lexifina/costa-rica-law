@@ -1,0 +1,1 @@
+Artículo 60.—El empresario de la cantina está obligado á tener el personal suficiente para el servicio del público. Todos los que presten servicio en la cantina deberán estar decentemente uniformados.

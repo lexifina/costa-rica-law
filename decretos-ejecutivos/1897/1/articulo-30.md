@@ -1,0 +1,1 @@
+Artículo 30.—En el caso de hallarse duplicado el número de una localidad, el primer ocupante conservará el asiento, y la Empresa estará obligada á devolver al portador del otro billete la suma pagada ó á proporcionarle otra localidad de igual categoría, si la hubiere y así lo prefiriese aquél.

@@ -1,0 +1,1 @@
+Artículo 22.—La Empresa está obligada á dar estricto cumplimiento al programa anunciado, salvo caso de muerte ó enfermedad de alguno de los artistas que deban tomar parte en la representación. En este último caso, la Empresa presentará al Gobernador el certificado de que trata el articulo 63.

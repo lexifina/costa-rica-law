@@ -1,0 +1,1 @@
+Artículo 16.—No podrá ninguna Empresa abrir abonos ni fijar precios de entradas, sin el correspondiente permiso de la Secretaría de Fomento, que se publicará en el diario oficial, y sin que haya depositado en la Gobernación de la provincia el elenco firmado por todas las partes de la Compañía.

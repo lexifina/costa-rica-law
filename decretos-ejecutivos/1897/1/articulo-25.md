@@ -1,0 +1,1 @@
+Artículo 25.—Para la venta de localidades, la Empresa colocará en la Contaduría del Teatro y á la vista del público el plano oficia! De la sala, en el que se expondrán de manera clara el número y situación de los asientos.
