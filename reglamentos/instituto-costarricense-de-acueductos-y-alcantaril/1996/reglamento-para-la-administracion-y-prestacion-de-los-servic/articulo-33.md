@@ -1,0 +1,1 @@
+Artículo 33.-EI Proceso de Bienes y Servicios, podrá suspender la licencia del AyA, de cualquier conductor de la Institución que contravenga reiteradamente lo dispuesto en la Ley de Tránsito, en otras leyes vigentes en a materia, en este Reglamento o los procedimientos establecidos. Ver inciso "1" del artículo 7.

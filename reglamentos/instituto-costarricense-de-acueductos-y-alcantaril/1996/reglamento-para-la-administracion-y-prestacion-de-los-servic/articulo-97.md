@@ -1,0 +1,1 @@
+Artículo 97.-EI conductor que utilice indebidamente combustible, lubricantes, pulidores o cualquier otro artículo destinado al funcionamiento, .conservación y limpieza de los vehículos, se hace acreedor a las sanciones que se deriven del debido proceso.

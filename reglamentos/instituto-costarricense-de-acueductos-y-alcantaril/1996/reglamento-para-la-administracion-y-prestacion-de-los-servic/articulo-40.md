@@ -1,0 +1,1 @@
+Artículo 40.-Quienes están autorizados para conducir vehículos del AyA, no podrán en ningún caso, ceder la conducción de los mismos a personas particulares y sólo en casos de fuerza mayor a funcionarios de la Institución que no cuenten con la licencia del AyA, pero bajo ninguna circunstancias a funcionarios que no tengan licencia extendida por el MOPT.

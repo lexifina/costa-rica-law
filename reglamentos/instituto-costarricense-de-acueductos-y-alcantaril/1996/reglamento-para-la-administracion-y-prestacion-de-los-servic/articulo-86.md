@@ -1,0 +1,3 @@
+Artículo 86.-El Encargado del Combustible debe responder en forma escrita por los cupones de combustible que le ha entregad
+Fiscalizador, mediante oficio; para ello procede a realizar la liquidació conjunto de cupones que corresponden a cada Reporte de Artícu os Despachados.
+La liquidación ante el fiscalizador la realiza cuando todos los cupones correspondientes a un Reporte de Artículos Despachados hayan sido consumidos y liquidados. Consiste en presentar al Fiscalizador, el conjunto de las fórmulas de "Control de Uso y Rendimiento de Combustible", y facturas correspondientes de un Reporte de Artículos Despachados, de manera que se compruebe su consumo total. Para ello se utiliza la fórmula "Liquidación por Reporte de Artículos Despachados". .

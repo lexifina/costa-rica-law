@@ -1,0 +1,1 @@
+Artículo 49.-En caso de robo de un vehículo de AyA, el. conductor debe acudir ante el Organismo de Investigación Judicial (011) a interponer la respectiva denuncia del robo y remitir copia de esta denuncia a Asunto Legales, junto con un informe pormenorizado de las circunstancias en que ocurrió el hecho. De estos documentos enviar copia al Proceso de Bienes y Servicios.

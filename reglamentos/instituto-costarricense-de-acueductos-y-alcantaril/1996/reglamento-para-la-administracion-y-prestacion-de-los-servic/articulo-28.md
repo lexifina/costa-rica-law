@@ -1,0 +1,1 @@
+Artículo 28.-Queda prohibido que un funcionario no autorizado conduzca vehículos del AyA. Casos especiales o emergentes deberán ser analizados y aprobados por el Coordinador del Proceso correspondiente.

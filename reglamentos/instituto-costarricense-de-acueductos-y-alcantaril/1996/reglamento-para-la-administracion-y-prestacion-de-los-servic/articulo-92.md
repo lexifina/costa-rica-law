@@ -1,0 +1,1 @@
+Artículo 92.-El conductor debe cumplir con las citas de mantenimiento preventivo fijadas por los procesos. El proceso de Bienes y Servicios asesorará sobre cuales son los recorridos y lapsos más adecuados para las citas de mantenimiento preventivo.

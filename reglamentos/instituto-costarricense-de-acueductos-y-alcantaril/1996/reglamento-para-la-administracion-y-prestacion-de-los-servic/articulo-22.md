@@ -1,0 +1,3 @@
+Artículo 22.-La circulación de vehículos del Ay A en horas y días no hábiles estará estrictamente supeditado a la realización de labores o funciones impostergables inherentes a la Institución. La responsabilidad en el cumplimiento de esta disposición recaerá sobre el Coordinador del Proceso a cuyo cargo se encuentra el vehículo, quien para ello autorizará un PERMISO DE CIRCULACION FUERA DE HORAS NO HABILES. Este permiso tendrá validez siempre y cuando la firma del
+Coordinador del Proceso esté autorizada para tal efecto ante la Dirección General de Tránsito, Sección Control de Vehículos Oficiales.
+Cada Coordinador del Proceso definirá ante la Dirección correspondiente el procedimiento apropiado para la atención de emergencias.

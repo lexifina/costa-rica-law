@@ -1,0 +1,1 @@
+Artículo 77.-EI usuario debe presentar las facturas de combustible, expedidas por las Distribuidoras de combustible, en buenas condiciones y libre de tachones. En caso de que no se encuentren en la condiciones establecidas y el proceso responsable decida aceptarlas, deberá justificar la acción y asumir la responsabilidad del estado del documento.
