@@ -15,3 +15,4 @@ Reglamento autónomo de servicios de la Dirección General de Migración y Extra
 | --- | --- | --- |
 | 1 | 1993-05-10 | la propia norma |
 | 2 | 1994-05-05 | Decreto Ejecutivo 23183 (1994-05-05) |
+| 3 | 1997-01-31 | Decreto Ejecutivo 25873 (1997-01-31) |
