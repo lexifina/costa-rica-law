@@ -1,2 +1,4 @@
 Artículo 2: Apruébanse los siguientes egresos ordinarios y extraordinarios para el ejercicio económico de 2002 ....
 (Por lo extenso de su contenido, véase el Alcance No.89 a La Gaceta No.249 de 28 de diciembre del 2001)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 30119 de 18 de enero del 2002)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 30121 de 18 de enero del 2002)
