@@ -1,0 +1,1 @@
+Artículo 10.- El Poder Ejecutivo reglamentará esta ley dentro de los quince días posteriores a su publicación, previa consulta al Consejo Nacional de Cooperativas y al Instituto de Fomento Cooperativo.

@@ -1,0 +1,2 @@
+Artículo 2º.- El Centro de Estudios y Capacitación Cooperativa (CENECOOP) hará uso de esos dineros en programas de inversión y en la compra de mobiliario y equipo para sus instalaciones, así como para sus programas de educación y capacitación cooperativa.
+La Comisión destinará los recursos que le correspondan a la construcción y reparación de viviendas para los damnificados, con motivo de los sismos ocurridos en 1983 en el cantón de Pérez Zeledón, en coordinación con el Instituto Mixto de Ayuda Social.
