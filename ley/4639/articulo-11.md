@@ -1,1 +1,0 @@
-Artículo 11.- La Dirección General de la Guardia de Asistencia Rural podrá contratar directamente con la Dirección General de Defensa Social la confección de uniformes, zapatos, botas, capas, aperos, cartucheras, fajas de cuero y todo aquello que pueda ser elaborado en sus dependencias.

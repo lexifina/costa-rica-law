@@ -1,1 +1,0 @@
-Artículo 5º.- En cada provincia, la fuerza de la Guardia de Asistencia Rural estará a disposición del respectivo Gobernador, para el cumplimiento de los deberes y atribuciones que a él le corresponda.

@@ -1,1 +1,0 @@
-Artículo 2º.- El Cuerpo de la Guardia de Asistencia Rural tendrá jurisdicción en toda la República. A la Guardia de Asistencia Rural se incorporará el Resguardo Fiscal y la Policía de Villas y Pueblos.
