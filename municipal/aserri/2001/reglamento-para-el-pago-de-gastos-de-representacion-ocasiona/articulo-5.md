@@ -1,0 +1,1 @@
+Artículo 5°—Facultades de verificación. La Dirección Financiera de la Municipalidad de Aserri queda facultada para verificar cualquier dato relacionado con el gasto de representación que esté en trámite de pago.
