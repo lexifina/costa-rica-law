@@ -1,0 +1,1 @@
+Artículo 2°—Los recaudadores de la Dirección de Peaje del Consejo de Seguridad Vial, están obligados a entregar al final de su respectivo turno de trabajo, la totalidad del dinero recaudado, sin rebajas ni deducciones de ninguna naturaleza.

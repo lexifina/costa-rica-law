@@ -1,0 +1,1 @@
+Artículo 9°—Por la índole de sus funciones, tanto los supervisores como los coordinadores no deben tener faltantes de ningún tipo, dinero y/o tiquetes. Caso de que los tuvieren, se les sancionará conforme con las disposiciones del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 7°—Si el funcionario no cancela el faltante respectivo, la Dirección de Peajes remitirá el monto a cobrar a la Asesoría Legal a fin de que ésta proceda con fundamento en lo estipulado en el artículo 210 inciso 3) de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 4°—Realizado este procedimiento el Coordinador entregará en un plazo máximo de 3 días hábiles, a la persona designada por la Dirección General de Peajes, las liquidaciones en sus formularios y los respectivos comprobantes de los depósitos.

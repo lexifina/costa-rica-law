@@ -1,0 +1,1 @@
+Articulo 5°—A partir del recibo de los documentos relativos a las liquidaciones en el cierre de tumo el supervisor procederá a realizar una revisión de los mismos a fin de determinar si existe faltante en la recaudación, lo cual lo hará del conocimiento del recaudador en ese preciso momento, de conformidad con el formulario (E-3).

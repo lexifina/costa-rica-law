@@ -1,0 +1,1 @@
+Articulo 8°—Sin perjuicio de las sanciones ya mencionadas, cuando hubiere algún indicio de mal manejo o utilización indebida de fondos que pudiere configurar alguno de los delitos o contravenciones tipificados en el Código Penal, deberá formularse la respectiva denuncia.
