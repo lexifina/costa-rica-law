@@ -1,0 +1,4 @@
+Artículo 6º
+Entrada en vigor
+1. Este Acuerdo entrará en vigor treinta días después de la fecha en que 40 Estados hayan manifestado su consentimiento en obligarse de conformidad con los artículos 4º y 5º, siempre que entre ellos figuren al menos siete de los Estados mencionados en el apartado a) del párrafo 1 de la resolución II de la Tercera Conferencia de las Naciones Unidas sobre el Derecho del Mar (en adelante, la "resolución II"), de los cuales al menos cinco deberán ser Estados desarrollados. Si las condiciones para la entrada en vigor se cumplen antes del 16 de noviembre de 1994, este Acuerdo entrará en vigor el 16 de noviembre de 1994.
+2. Respecto de cada Estado o entidad que manifieste su consentimiento en obligarse por este Acuerdo después de que se hayan cumplido los requisitos establecidos en el párrafo 1, este Acuerdo entrará en vigor al trigésimo día siguiente a la fecha en que haya manifestado su consentimiento en obligarse.

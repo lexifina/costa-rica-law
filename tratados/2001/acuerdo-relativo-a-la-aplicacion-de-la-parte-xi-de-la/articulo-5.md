@@ -1,0 +1,4 @@
+Artículo 5º
+Procedimiento simplificado
+1. Se considerará que los Estados o entidades que hayan depositado, antes de la fecha de adopción de este Acuerdo, un instrumento de ratificación o confirmación formal de la Convención o de adhesión a ella y que hayan firmado este Acuerdo de conformidad con lo dispuesto en el apartado c) del párrafo 3 del artículo 4º, han manifestado su consentimiento en obligarse por este Acuerdo doce meses después de la fecha de su adopción, a menos que tales Estados o entidades notifiquen al depositario por escrito antes de esa fecha que no se acogerán al procedimiento simplificado establecido en este artículo.
+2. En el caso de tal notificación, se manifestará el consentimiento en obligarse por este Acuerdo con arreglo a lo dispuesto en el apartado b) del párrafo 3 del artículo 4º.
