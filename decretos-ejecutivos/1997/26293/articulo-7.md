@@ -1,1 +1,0 @@
-Artículo 7°—En concordancia con el artículo 99 del Código de Normas y Procedimientos Tributarios y en lo que se refiere al cobro del Impuesto forestal, la Administración Forestal del Estado fungirá como Administración Tributaria y como tal deberá denunciar los delitos

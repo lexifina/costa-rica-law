@@ -1,1 +1,0 @@
-Artículo 6°—Los demás recursos, estipulados en el artículo 39 de la Ley Forestal, deberán depositarse en la misma cuenta bancaria, que la Administración Forestal dispondrá para el pago del impuesto forestal. Para tal fin la Administración Forestal del Estado publicará y distribuirá la documentación pertinente.

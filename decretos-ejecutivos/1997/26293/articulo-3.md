@@ -1,1 +1,0 @@
-Artículo 3°—La Administración Forestal del Estado, dispondrá de 30 días hábiles a partir del último día de cada mes, para hacer la transferencia a caja única del Estado, mediante entero de Gobierno, del monto recaudado por concepto de impuesto forestal correspondiente al mes inmediato anterior.
