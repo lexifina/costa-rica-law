@@ -1,0 +1,1 @@
+Artículo 4°-Para integrar el Comité, el Ministerio de Hacienda se dirigirá a cada una de las entidades que no dependan del mismo, solicitándoles que sugieran quienes pueden ser sus representantes propietario y suplentes.

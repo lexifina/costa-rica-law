@@ -1,0 +1,1 @@
+Artículo 29.-Tanto el Comité como sus miembros individualmente, el razón de su investidura, están facultad os para ingresar al recinto aduanero de las aduanas del país, las cuales están obligadas a brindarles la mayor colaboración.

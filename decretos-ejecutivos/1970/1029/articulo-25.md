@@ -1,0 +1,4 @@
+CAPITULO VI
+Disposiciones Generales
+Artículo 25.-Para el mejor cumplimiento de sus funciones, el Comité deberá tomar en cuenta en sus estudios y consideraciones, las repercusiones que los aforos existentes o propuestos, puedan tener en las actividades comerciales, industriales o agrícolas del país, así como en el aspecto socio-económico y fiscal en general.
+Con igual fin el Comité podrá solicitar asesoramiento de personas versadas en la materia objeto de discusión y pedir a todas las entidades, públicas o privadas, informes estadísticos de toda clase sobre producción, comercio interior y exterior, consumo, calidades, precios de materia prima, proceso y costos de elaboración, maquinaria empleada, inversiones, riesgos, precios de venta, trabajadores ocupados y todos los demás informes o datos que considere necesario para su estudio.

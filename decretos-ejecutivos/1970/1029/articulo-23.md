@@ -1,0 +1,1 @@
+Artículo 23.-Toda reclamación que sea sometida a consideración del Comité, de acuerdo con el inciso a) del artículo 1° de este reglamento, estará sometida al procedimiento establecido en el artículo 176 del CA UCA.

@@ -1,0 +1,1 @@
+Artículo 17. -Las actas de las sesiones serán llevadas en un libro abierto al efecto por el Ministerio de Hacienda. Una vez aprobada el acta, será firmada al pie por todos los miembros que asistieron a la sesión correspondiente. Las actas serán llevadas por el Secretario del Comité.

@@ -1,0 +1,1 @@
+Artículo 28. -Las oficinas y dependencias del Estado están obligadas a prestar su asistencia al Comité, con el objeto de que pueda cumplir eficientemente con sus funciones, para lo cual deberán proporcionarle a la mayor brevedad posible, los datos, informes y estudios solicitados.

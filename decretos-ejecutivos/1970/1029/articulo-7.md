@@ -1,0 +1,1 @@
+Artículo 7°-Una vez designados quienes fueren a desempeñar el cargo como propietarios y suplente y antes de prestar sus servicios al Comité deberán prestar el juramento de ley ante el Ministro de Hacienda, quien declarará integrado el Comité.

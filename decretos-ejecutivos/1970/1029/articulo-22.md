@@ -1,0 +1,1 @@
+Artículo 22. -Cualquiera de los miembros del Comité podrá solicitar revisión de los acuerdos adoptados en la sesión anterior. Este decidirá si procede o no reabrir discusión sobre el particular. Si se aprobare la revisión, el asunto volverá al estado en que se encontraba antes de votarse la cuestión que dio motivo a ella.

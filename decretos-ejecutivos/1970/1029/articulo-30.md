@@ -1,0 +1,1 @@
+Artículo 30.-El presente decreto rige desde el día de su publicación el el Diario Oficial y a partir de esa fecha deroga el Decreto Ejecutivo N° 112 de 23 de diciembre de 1965, así como todos los que se le opongan o que se refieran a la misma materia.

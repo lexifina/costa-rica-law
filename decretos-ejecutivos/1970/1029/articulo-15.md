@@ -1,0 +1,1 @@
+Artículo 15. -Cada representación tendrá en conjunto un voto. Los miembros propietarios tendrán voz y voto; los suplentes podrán asistir a las sesiones con voz ilustrativa, salvo cuando actúen en vez del miembro propietario, en cuyo caso, también tendrán derecho a voto.

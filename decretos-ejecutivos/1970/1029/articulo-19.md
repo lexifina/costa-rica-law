@@ -1,0 +1,2 @@
+Artículo 19.-El Comité en su sesión procurará ajustarse al orden del día.
+Sin embargo, cualquiera de sus miembros puede solicitar su alteración cuando lo juzgue pertinente, siempre que ello no implique inclusión de un nuevo asunto cuando se trate de sesiones extraordinarias. En éstas el orden del día estará formado únicamente por los asuntos que hayan sido objeto de la convocatoria.
