@@ -1,0 +1,1 @@
+Artículo 3º—Queda vigente y numérese como artículo 3º, el artículo 2º del Decreto Nº 22202-G, publicado en La Gaceta Nº 108 del 7 de junio de 1993, que textualmente dice: "La Reserva Indígena Guaymí de Osa constituye una zona de amortiguamiento al Parque Nacional…".
