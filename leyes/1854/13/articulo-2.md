@@ -1,0 +1,10 @@
+Art 2°.- Las modificaciones de que habla el artículo precedente son:
+1° El artículo de la contrata se entenderá así:
+“ El artículo de la contrata se entenderá así:
+“ El Gobierno de Costa Rica concede a los Señores Guillermo P Kirkland, Guillermo B. Geering y sus asociados, el privilegio exclusivo de navegación por vapor del río de Sapoa, para el objeto de establecer una línea de tránsito desde el golfo de las Salinas de Bolaños hasta el Lago de Nicaragua, por el término de veinte años, que se comenzará a contar desde la fecha, quedando desde luego incorporados en sociedad los referidos Guillermo P. Kirkland, Guillermo B. Geering y sus asociados, formando así una corporación o Sociedad que desde hoy se denominará:
+Compañía de tránsito de Costa Rica. Para llevar a cabo la empresa, dicha Compañía puede usar libremente de las aguas del Lago de Nicaragua y ríos de San Juan y Colorado en la parte que corresponde a dicha República de Costa Rica.”
+2°.- La nueva via no impedirá el libre pasaje que siempre se ha hecho de esta República a las demás de Centro América.
+3°.- El artículo 10 de la expresada contratada se entenderá así.- Los empleados y trabajadores de la Compañía, mientras permanezcan como tales, estarán libres de todo servicio civil o militar, pero en casos urgentes prestarán los que el Gobierno les exija.
+4°.- Se pondrá un artículo adicional a la expresada contratada de estos términos:- “ Si dentro de seis meses de esta fecha, la Compañía no hubiese dado principio a los trabajos que requiere la empresa; y si el tránsito no estuviere establecido dentro de dieciocho meses, por el mismo hecho la contrata quedará nula y de ningún valor, y la República en plena libertad de disponer como lo estime conveniente de las gracias concedidas a dicha Compañía.-
+Al Poder Ejecutivo.- Dado en el Salón de sesiones, en San José, a los veintidós días del mes de mayo de mil ochocientos cincuenta y cuatro.
+Por tanto: Ejecútese:- Palacio Nacional, San José mayo veintitrés de mil ochocientos cincuenta y cuatro.
