@@ -13,3 +13,4 @@ Crea Comisión Ejecutiva Proyecto Transporte Urbano Area Metropolitanade San Jos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-01-20 | la propia norma |
+| 2 | 1978-01-20 | Decreto Ejecutivo 10151 (1979-06-18) |

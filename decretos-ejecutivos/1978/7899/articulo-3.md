@@ -1,9 +1,9 @@
 Artículo 3º.- La Comisión será integrada por el Ministerio de Obras
 Públicas y Transportes en la siguiente forma:
-a) El Director General de Vialidad.
-b) Un representante de la Dirección General de Transporte
-Automotor.
-c) Un representante de la Dirección General de Planificación.
-d) Un representante de la Dirección General de Tránsito.
-e) Un representante de Transportes Metropolitanos S.A. (TRANSMESA).
-Cada miembro de la Comisión tendrá su respectivo suplente.
+a) El Director General de la División de Obras Públicas;
+b) El Director General de la División de Transporte;
+c) El Director General de Ingeniería de Tránsito;
+d) El Director General de Trasnporte Automotor;
+e) El Director General de la Policía de Tránsito; y
+f) El Director General de Planificación.
+(Así reformado por Decreto Nº 10151 de 18 de junio de 1979, artículo 1º)
