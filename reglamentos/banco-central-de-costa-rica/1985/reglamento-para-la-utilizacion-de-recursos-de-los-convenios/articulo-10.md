@@ -1,0 +1,1 @@
+Artículo 10.—Al formalizar el crédito solicitado, las solicitudes de reembolso serán presentadas por los bancos estatales y los bancos privados y cooperativos al Departamento Financiero del Banco Central, adjuntando el pagaré respectivo y los documentos comprobatorios del desembolso efectuado al prestatario.

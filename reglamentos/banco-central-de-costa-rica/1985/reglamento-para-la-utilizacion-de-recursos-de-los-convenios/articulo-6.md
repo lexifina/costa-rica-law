@@ -1,0 +1,11 @@
+Artículo 6°—Los créditos que se concedan al amparo de este Reglamento, a regirán únicamente por las siguientes condiciones crediticias:
+a) El porcentaje de financiamiento para el usuario final del crédito será del 100 por ciento de la solicitud, quedando a juicio del banco prestamista el porcentaje a financiar del proyecto de conformidad con lo que al respecto establezca el Banco Central de Costa Rica.
+b) Interés al empresario: tasa básica pasiva más 3.5 porcentuales. e) La tasa de interés que cobrará el Banco Central a los bancos estatales para las operaciones efectuadas directamente por estos a las empresas privadas, será la tasa básica pasiva, menos 2.0 porcentuales. La tasa de interés que cobrará el Banco Central a los bancos privados y cooperativos bajo este programa, será la tasa básica pasiva, menos 6.0 porcentuales.
+Las tasas de interés deben ajustarse trimestralmente para los usuarios finales de los préstamos y para los bancos intermediarios, según la variación de la tasa básica pasiva y el interés al empresario que en cada caso fije el Banco Central. Todos los contratos de préstamos de los bancos con las empresas privadas deben tener una provisión, permitiendo el ajuste de los intereses según la variación de la tasa básica pasiva del Banco Central. El Banco Central avisará la fecha exacta cuando se aplica el cambio de los intereses.
+d) Plazo:
+i. Para financiar capital de trabajo: hasta un máximo de veinticuatro
+meses, con un período de gracia máximo de doce meses.
+ii. Para financiar el resto de las actividades permitidas en el artículo 2°, anterior: hasta un máximo de siete años con un período de gracia máximo de doce años.
+Los plazos que conceda el Banco Central a los bancos intermediarios, serán los mismos que los que estos concedan al usuario final del crédito.
+e) El Banco Central cobrará a los bancos intermediarios y estos últimos a sus clientes, una comisión conforme con las disposiciones adoptadas al respecto por el Directorio del Instituto Emisor, con el propósito de constituir el "Fondo de Pérdidas Cambiarías". Los bancos intermediarios no deberán cobrar otros cargos o comisiones bajo este programa.
+En todos los casos los plazos involucrados en estas transacciones serán iguales a los concedidos a los empresarios y las operaciones se formalizarán en colones.
