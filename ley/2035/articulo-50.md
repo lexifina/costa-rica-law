@@ -1,0 +1,1 @@
+Artículo 50.- Con la garantía del Estado, el Consejo podrá solicitar y obtener los empréstitos que su buen funcionamiento demande, en fuentes financieras nacionales o extranjeras, y en este último caso, con aprobación de la Asamblea Legislativa.

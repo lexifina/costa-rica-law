@@ -1,0 +1,1 @@
+Artículo 6º.- El Consejo, de acuerdo con el artículo 88 de la ley Nº 1644 de 26 de setiembre de 1953 y sin demérito de la autonomía funcional y administrativa del Sistema Bancario Nacional, presentará planes de crédito agrícola para ser ejecutados de común acuerdo con los bancos.

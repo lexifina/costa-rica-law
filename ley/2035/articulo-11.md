@@ -1,0 +1,1 @@
+Artículo 11.- El Consejo estará exento de la obligación de pagar toda clase de impuestos, ya sean nacionales o municipales, ordinarios o extraordinarios, presentes o futuros. Esta exención no comprende las tasas municipales ni el impuesto de venta de licores.

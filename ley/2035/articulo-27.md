@@ -1,0 +1,2 @@
+Artículo 27.- Ningún miembro de la Junta Directiva podrá estar presente, cuando se vayan a resolver operaciones en que esté interesado algún pariente suyo hasta el tercer grado por consanguinidad o primero por afinidad, ambos inclusive, o que interesen a sociedades en que él o sus parientes dichos, sean socios colectivos, comanditarios, directores o gerentes.
+Igual prohibición existirá cuando la Junta Directiva tenga que conocer de reclamación o conflicto en que figure como parte, alguna de las personas mencionadas en este artículo.

@@ -1,0 +1,1 @@
+Artículo 60.- La Institución que por la presente ley se crea reemplazará en sus funciones, servicios y obligaciones al Consejo Nacional de Producción que venía operando hasta la fecha, y asumirá los créditos pendientes y bienes muebles e inmuebles, mediante inventario, de los cuales podrá disponer como sustituto para todos los efectos legales correspondientes.

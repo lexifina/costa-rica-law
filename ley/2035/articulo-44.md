@@ -1,0 +1,1 @@
+Artículo 44.- Dentro de los primeros seis meses de cada año financiero, el Consejo publicará una memoria anual en la que dará a conocer su situación económica y las operaciones que hubiere efectuado en el curso del año anterior.

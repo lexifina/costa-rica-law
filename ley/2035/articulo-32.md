@@ -1,0 +1,1 @@
+Artículo 32.- El Gerente y el Subgerente tendrán indistintamente la representación judicial y extrajudicial del Consejo con las facultades que para los apoderados generalísimos determina el Código Civil.

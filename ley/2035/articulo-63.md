@@ -1,0 +1,1 @@
+Artículo 63.- Inmediatamente que esta ley sea aprobada se planeará la construcción de silos, bodegas y secadoras en los cantones donde no existan y su necesidad fuere evidente, todo a juicio de la Junta Directiva.

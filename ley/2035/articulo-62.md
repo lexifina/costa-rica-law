@@ -1,0 +1,5 @@
+Artículo 62.- A partir de la vigencia de esta ley, los importes que perciba el Banco Central de Costa Rica en concepto de amortización e intereses de los títulos de deuda pública retirados de la circulación, de acuerdo con lo dispuesto en el artículo 121 de su Ley Orgánica Nº 1552 de 23 de abril de 1953, serán destinados por el Banco al pago de los créditos congelados que el Consejo Nacional de Producción tiene con los Bancos del Estado, por total de ¢ 7.772,495.78, según detalle siguiente:
+Banco Anglo Costarricense .. .. .. .. .. .. .. .. .¢ 819,489.70
+Banco de Costa Rica .. .. .. .. .. .. .. .. .. .. .. 1.008,858.92
+Banco Nacional de Costa Rica .. .. .. .. .. .. .. .. 5.944,147.16
+El Banco Central y el Consejo Nacional de Producción decidirán de común acuerdo la forma en que se distribuirán entre los Bancos acreedores las sumas que paulatinamente se vayan recaudando, y una vez cancelada la suma total de ¢ 7.772,495.78 los fondos mencionados tendrán nuevamente el mismo destino que les señala el artículo 121 de la ley Nº 1552 de 23 de abril de 1953.

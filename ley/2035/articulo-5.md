@@ -1,0 +1,23 @@
+Artículo 5º.- Para el cumplimiento de sus fines, el Consejo tendrá las siguientes atribuciones:
+a) Comprar artículos básicos de consumo popular y materias primas para la industria nacional a precios que garanticen utilidades justas a los productores nacionales, contribuyendo así a fomentar la producción de dichos artículos;
+b) Facilitar el establecimiento, arrendar y operar silos, secadoras, bodegas, cámaras de refrigeración, plantas de transformación de productos agrícolas o pecuarios y cualquier medio de almacenamiento, movilización y transporte de los artículos que pueden ser adquiridos conforme a la presente ley y establecerlos por su cuenta únicamente a fin de no entorpecer su buen funcionamiento en aquellos lugares donde la iniciativa particular no los haya establecido o que las instalaciones industriales existentes no estén en capacidad de prestar este servicio en forma eficiente y a precios convenientes a juicio de la Junta Directiva. Para su pronunciamiento, la Junta Directiva recabará el criterio del Comité Técnico Coordinador a que se refiere el artículo 52 de esta ley;
+c) Adquirir semillas, fertilizantes, insecticidas, fungicidas, herbicidas, medicinas y vacunas para uso veterinario y otros productos similares de utilidad para la agricultura y ganadería;
+d) Adquirir y elaborar alimentos concentrados para ganado y aves;
+e) Adquirir animales seleccionados para mejorar la ganadería nacional;
+f) Adquirir, arrendar y operar maquinaria, equipo y herramientas agrícolas e industriales, así como equipos para la pesca;
+g) Los bienes y servicios a que se refieren los incisos c), d), e) y
+f) serán suministrados a los agricultores, industriales y pescadores a precios convenientes;
+h) Fomentar la mecanización agrícola siguiendo planes tendientes a obtener mayor eficiencia y rendimiento en la producción. Los planes antes dichos deben ser complementados con programas de conservación de sueldos, los cuales se elaborarán y ejecutarán conjuntamente con el Ministerio de Agricultura;
+i) Llevar a cabo trabajos de preparación de suelos que requieran maquinaria pesada, tales como arranque de troncos, hechura de canales y terrazas.
+Estos trabajos se ejecutarán a mitad de su costo, como un estímulo a la producción nacional y de conformidad con los planes a que se refiere el inciso anterior;
+j) Impulsar y fomentar la actividad privada hacia la industrialización agrícola, pecuaria y pesquera, en las zonas cuya posibilidad de producción así lo amerite;
+k) Estimular la formación y funcionamiento de cooperativas de mercadeo, producción y mecanización en actividades agrícolas y pecuarias, así como las de consumo, en las zonas que previamente determine el Consejo;
+l) Coordinar las actividades del Consejo con organismos o instituciones estatales que coadyuven al fomento de la producción nacional;
+m) Coadyuvar con el Ministerio de Agricultura e Industrias en el control de las plagas de la agricultura y la ganadería. Para tal efecto, deberá mantener existencia adecuada de los productos y equipos necesarios;
+n) Otorgar garantía fiduciaria a personas físicas o jurídicas ante las Instituciones bancarias del Estado, en los casos especiales que esta ley determina;
+ñ) Vender los artículos adquiridos en cumplimiento de los dispuesto en el inciso a) de este artículo a precios adecuados a los intereses del consumidor y demás fuerzas económicas que intervienen en el proceso de la producción;
+o) Exportar o importar, previo estudio económico, los artículos a que se refiere el inciso a), para mantener una oferta adecuada al consumo nacional. En el caso de las exportaciones, atenderá la necesidad de mantener una reserva prudencial a fin de evitar la escasez y estabilizar los precios;
+p) Establecer almacenes de distribución en las cabeceras de provincias o lugares que lo ameriten, con el objeto de proveer al comercio minorista que lo necesite, los artículos de consumo popular con que trabaja el Consejo;
+q) Establecer, cuando sea necesario, expendios o mercados para la venta al detalle de los artículos básicos de consumo popular, independientemente o en colaboración con las Municipalidades;
+r) Adquirir valores del Estado, o de las Instituciones Autónomas, y suscribir acciones de sociedades cooperativas cuyas actividades estén directamente relacionadas con los planes del Consejo; y
+s) Cualquier otra atribución que por ley especial se encomiende al Consejo.

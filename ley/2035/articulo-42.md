@@ -1,0 +1,1 @@
+Artículo 42.- Los balances y estados del Consejo deberán ser firmados por el Jefe de la Contabilidad, el Gerente, y refrendados por el Auditor del Consejo, siendo todos ellos solidariamente responsables por la exactitud y corrección de esos documentos.
