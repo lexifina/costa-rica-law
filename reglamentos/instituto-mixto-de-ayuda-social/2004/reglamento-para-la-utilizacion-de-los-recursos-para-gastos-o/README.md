@@ -14,3 +14,4 @@ Reglamento para la utilización de los recursos para gastos operativos (Fideicom
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-19 | la propia norma |
+| 2 | 2004-06-16 | Reglamento 10 (2004-06-16) |
