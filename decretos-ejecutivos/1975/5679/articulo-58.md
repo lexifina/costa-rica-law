@@ -1,0 +1,3 @@
+Artículo 58°─ Todos los servidores del Archivo podrán disfrutar de licencia ocasional de excepción en las circunstancias que a continuación se indican:
+a) El Director General podrá conceder licencias hasta por una semana con goce de salario en caso de matrimonio del servidor, de fallecimiento de cualesquiera de sus padres, hijos, hermanos o cónyuge; y
+b) Todos los demás permisos con goce de sueldo que conforme a este Reglamento sean procedentes, podrá otorgárselos el Director General, restándolo del período de vacaciones sin que el número de días de la licencia pueda exdeder del número de días de vacaciones que corresponde al servidor en el momento de otorgarse el permiso

@@ -1,0 +1,2 @@
+Artículo 30°─ El servidor que marcare tarjetas que no le correspondan, se hará acreedor, por primera vez, a una suspensión de hasta por dos días y en la segunda hasta por ocho días. Por la tercera, despido. La misma sanción se le aplicará al servidor que se compruebe haber consentido que otro le marcara su tarjeta.
+No obstante lo dispuesto en los dos párrafos anteriores, no se considerará como falta si el servidor que marcó la tarjeta de otro por error evidente, informe el hecho ante el Director General, a más tardar en la jornada siguiente en que se cometió el error.

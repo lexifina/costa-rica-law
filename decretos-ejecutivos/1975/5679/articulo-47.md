@@ -1,0 +1,1 @@
+Artículo 47°─ Las llegadas tardías que excedan de 20 minutos, contados a partir de la hora de ingreso señalada en el artículo 8° y que a juicio del Director carezca de justificación, acarreará al servidor la pérdida del salario de la jornada correspondiente.

@@ -1,0 +1,1 @@
+Artículo 66°─ Las gestiones de los servidores de acuerdo con el artículo 64 de este Reglamento deberán hacerse por escrito, pero podrán serlo en forma verbal cuando así lo exija la urgencia de la resolución, o cuando la menor importancia del asunto indique este procedimiento.

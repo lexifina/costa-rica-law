@@ -1,0 +1,1 @@
+Artículo 40°─ Además de considerarse sin efecto todas aquellas gestiones que no se adapten a los términos previstos en el artículo 66 de este Reglamento, se podrá imponer una amonestación escrita cuando el servidor no haya seguido el orden jerárquico.

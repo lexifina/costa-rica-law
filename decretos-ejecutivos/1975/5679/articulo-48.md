@@ -1,0 +1,1 @@
+Artículo 48°─Las llegadas tardías injustificadas se estimarán como faltas leves y se computaran al final de cada mes calendario a efecto de aplicar las sanciones establecidas en el artículo 37 de este Reglamento.

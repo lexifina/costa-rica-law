@@ -1,0 +1,1 @@
+Artículo 9°─ Los servidores tendrán derecho a un descanso de 15 y 10 minutos por la mañana y por la tarde, respectivamente y de 40 minutos para la hora del almuerzo; la Dirección General hará la distribución de las horas y del personal en dos grupos con el objeto de no interrumpir la buena marcha de las oficinas.

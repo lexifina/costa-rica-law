@@ -1,0 +1,4 @@
+CAPITULO XVII
+Condiciones de Higiene y seguridad en el Trabajo
+Artículo 51°─ De conformidad con el artículo 208 del Código de Trabajo, en el Archivo se establecerán las Comisiones de seguridad que sean necesarias, las cuales se integrarán con igual número de representantes del patrono y de los trabajadores. Dichas comisiones tienen por finalidad investigar las causas de los riesgos profesionales, proponer medidas para prevenirlas y vigilar que las mismas se cumplan.
+La constitución de las mismas, se pondrá en conocimiento de la Oficina de Seguridad e Higiene de Trabajo en el Ministerio de Trabajo y Seguridad Social, a la cual se sujetará en lo relativo a asesoramiento. Los miembros de las comisiones desempeñarán de conformidad con la ley, sus cargos gratuitamente y dentro de la jornada de trabajo, sin rebaja de salario.

@@ -1,0 +1,1 @@
+Artículo 4°─ El Director General, por delegación hecha por éste en el Subdirector, será quien tenga a su cargo todo lo relacionado con la aplicación de este Reglamento, así como también lo concerniente al personal y las relaciones del mismo con la Dirección General de Servicio Civil y el Ministerio de Gobernación.

@@ -1,0 +1,6 @@
+CAPITULO XX
+De las incapacidades
+Artículo 64°─ Los subsidios que el Ministerio reconocerá a los servidores incapacitados para trabajar, por enfermedad o riesgo profesional, con sujeción al artículo 34 del Reglamento del Estatuto de Servicio Civil, se regirán por las siguientes reglas:
+a) El servidor incapacitado por enfermedad, asegurado en la Caja Costarricense de Seguro Social, le pagará durante los primeros treinta días, la diferencia que exista entre el 80% del total de su salario y lo que le pague la mencionada Institución; después de los primeros treinta días y hasta completar seis meses, pagará la diferencias que exista entre el total de su salario y lo que pague la Caja;
+b) El servidor incapacitado por enfermedad que no esté asegurado en la Caja , el total de le pagará el ochenta por ciento del total de su salario durante los primeros treinta días y el total del salario después de ese período y hasta completar seis meses;
+c) A la servidora incapacitada por maternidad le pagará durante los dos meses que señala el artículo 95 del Código de Trabajo, la diferencia que exista entre el total de su salario y lo que le pague la Caja Costarricense de Seguro Social y si no esta asegurada le pagará el total de su salario durante esos dos meses;

@@ -1,0 +1,1 @@
+Artículo 68°─ A falta de disposiciones en este Reglamento aplicables a un caso determinado, deben tenerse como normas supletorias al Estatuto de Servicio Civil y su Reglamento, el Código de Trabajo y demás leyes y Reglamentos supletorios conexos.

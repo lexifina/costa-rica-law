@@ -1,0 +1,1 @@
+Artículo 45°─ Para casos muy calificados no contemplados en este Reglamento ni en el Estatuto de Servicio Civil y su Reglamento, queda a juicio del Director y el jefe respectivo de Sección justificar ausencias que no sean por enfermedad comprobada, sin que ello signifique obligación al pago de salario.

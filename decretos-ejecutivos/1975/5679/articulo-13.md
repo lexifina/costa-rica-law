@@ -1,0 +1,1 @@
+Artículo 13°─Todo trabajo realizado fuera de las jornadas señaladas en el artículo 8° de este Reglamento, o durante los días hábiles, será considerado como extraordinario y se remunerará conforme a la ley. Sin embargo podrá trabajar en tales días, siempre y cuanto ello fuere posible al tenor de las excepciones contenidas en los artículos 150 y 151 del Código de Trabajo.

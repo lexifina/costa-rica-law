@@ -1,0 +1,1 @@
+Artículo 67°─ La Dirección General levará un expediente para cada servidor, en el que se anotarán las calificaciones periódicas, las ausencias y llegadas tardías, correcciones disciplinarias y cualesquiera otros datos de acciones de personal que se estimen de importancia.
