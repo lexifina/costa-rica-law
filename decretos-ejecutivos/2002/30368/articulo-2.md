@@ -1,0 +1,3 @@
+Artículo 2º—Adiciónense los incisos k) y L) al artículo 2, del Decreto en referencia para que se incluyan las siguientes definiciones:
+k) Pescadores Artesanales en Pequeña Escala: Son aquellos que cuentan con una embarcación autorizada por el Ministerio de Obras Públicas y Transportes, para operar a una distancia de la costa no superior a las tres millas náuticas.
+l) Pescadores Artesanales Medios: Son aquellos que cuentan con una embarcación pesquera autorizada por el Ministerio de Obras Públicas y Transportes, para operar hasta una distancia de la costa menor o igual a cuarenta millas náuticas.
