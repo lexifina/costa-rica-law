@@ -1,0 +1,2 @@
+ARTÍCULO 3
+Salvo lo establecido en el artículo 2 del presente Acuerdo, la exención de visa no otorga el derecho de trabajar a los nacionales de las Partes Contratantes. Los nacionales que ingresen al territorio de la otra Parte Contratante con el propósito de trabajar, desempeñar una profesión, estudiar o para permanecer por un lapso que exceda los noventa (90) días por un período de seis meses, a partir de la fecha del primer ingreso, deberán obtener visa con anticipación.

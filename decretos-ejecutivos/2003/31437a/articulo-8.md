@@ -1,0 +1,3 @@
+ARTÍCULO 8
+1º—Las Partes Contratantes se transmitirán, por la vía diplomática, los ejemplares de sus documentos de viaje válidos, indicados en el artículo 1 del presente Acuerdo, en un plazo máximo de treinta (30) días antes de la entrada en vigencia del presente Acuerdo.
+2º—Si cualquiera de las Partes Contratantes modificara los documentos de viaje señalados en el artículo 1 del presente Acuerdo, o introdujera nuevos documentos de viaje posteriormente a la entrada en vigencia del presente Acuerdo, deberá suministrar a la otra Parte Contratante los ejemplares de dichos documentos, por la vía diplomática, al menos treinta (30) días antes de su entrada en servicio.

@@ -1,0 +1,2 @@
+ARTÍCULO 4
+Los nacionales de cualesquiera de las Partes Contratantes podrán ingresar y salir del territorio de la otra Parte Contratante en el respectivo puesto fronterizo habilitado para el tráfico internacional de pasajeros, siempre y cuando cumplan con las condiciones establecidas por la legislación nacional de la otra Parte Contratante relativas al ingreso, tránsito o estadía de extranjeros, de conformidad con el principio de reciprocidad.
