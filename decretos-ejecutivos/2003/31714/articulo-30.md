@@ -1,0 +1,1 @@
+Artículo 30.—Disposiciones finales. Deróguese el Decreto Ejecutivo N° 17073-S del 16 de junio de 1986: Reglamento de Funcionamiento de la Secretaría de la Política Nacional de Alimentación y Nutrición, así como sus reformas contenidas en los Decretos Ejecutivos números 24602-S y 24603-S, publicados en La Gaceta N° 176 del 18 de septiembre de 1995.

@@ -1,0 +1,1 @@
+Artículo 27.—Le corresponderá a la SEPAN, a través de su Dirección Técnica, coordinar con el Sector Agropecuario y el Sector Económico, la promoción y creación de los Consejos Cantonales de Seguridad Alimentaria Nutricional, así como darle seguimiento a sus planes de acción.

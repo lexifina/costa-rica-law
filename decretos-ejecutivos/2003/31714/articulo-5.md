@@ -1,0 +1,1 @@
+Artículo 5°—Organización de la SEPAN. La Secretaría de la Política Nacional de Alimentación y Nutrición se compone de una Dirección Técnica, apoyada por un equipo técnico, administrativo y profesional, de acuerdo con las funciones que le competen por ley, que trabaja en forma coordinada para cumplir con el objetivo general de ésta.

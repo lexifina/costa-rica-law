@@ -1,0 +1,1 @@
+Artículo 10.—Consejo Ministerial de la SEPAN. Créase un Consejo Ministerial de la SEPAN, conformado por los Ministros de Salud, Agricultura y Ganadería, y de Economía, Industria y Comercio, presidido por el Ministro de Salud, como un mecanismo necesario de integración.

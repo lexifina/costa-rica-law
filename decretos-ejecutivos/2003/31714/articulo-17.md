@@ -1,0 +1,1 @@
+Artículo 17.—El Consejo Técnico Intersectorial de la SEPAN podrá contar además con la participación en calidad de observadores, con voz pero sin voto, de un representante de la FAO, un representante de INCAP/OPS, un representante de UNICEF, un representante del IICA, así como uno de la Unión Nacional de Gobiernos Locales.

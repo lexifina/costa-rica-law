@@ -1,0 +1,1 @@
+Artículo 28.—Los Consejos Cantonales de Seguridad Alimentaria Nutricional contarán con un Coordinador, elegido entre los integrantes del Consejo. Tendrá como función primordial, servir de enlace entre el Consejo respectivo y el Director Técnico de la SEPAN.

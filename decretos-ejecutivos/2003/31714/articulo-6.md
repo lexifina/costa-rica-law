@@ -1,0 +1,1 @@
+Artículo 6°—Función de la Dirección Técnica. Corresponderá a la Dirección Técnica de la Secretaría de la Política Nacional de Alimentación Nutrición, facilitar los procesos derivados de las instancias que la integran y velar por el cumplimiento de las políticas, planes, programas y proyectos tendientes a contribuir con la seguridad alimentaria y nutricional del país.

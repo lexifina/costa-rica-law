@@ -1,0 +1,1 @@
+Artículo 25.—De cada sesión del Consejo se levantará un acta que incluirá el nombre de las personas asistentes, el lugar y el tiempo en que se celebró la reunión, los puntos principales de la deliberación, los resultados de la votación y el contenido de los acuerdos.

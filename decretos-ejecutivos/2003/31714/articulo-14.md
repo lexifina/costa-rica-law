@@ -1,0 +1,1 @@
+Artículo 14.—Consejo Técnico Intersectorial. Se crea el Consejo Técnico Intersectorial de la SEPAN, conformado por representantes de los Ministerios de Salud, Agricultura y Ganadería y Economía, Industria y Comercio, así como por representantes de la sociedad civil en cada uno de los tres sectores.

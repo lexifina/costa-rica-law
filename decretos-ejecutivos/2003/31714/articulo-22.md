@@ -1,0 +1,1 @@
+Artículo 22.—El Consejo Técnico Intersectorial de la SEPAN se reunirá ordinariamente cada dos meses y extraordinariamente por solicitud de la Secretaría de la Política Nacional de Alimentación y Nutrición.

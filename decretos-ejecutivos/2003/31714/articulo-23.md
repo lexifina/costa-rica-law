@@ -1,0 +1,1 @@
+Artículo 23.—El Consejo Técnico Intersectorial de la SEPAN podrá sesionar, válidamente, con la mitad más uno del total de sus integrantes. Si no hubiera quórum, podrá sesionar después de media hora con la tercera parte de sus miembros.

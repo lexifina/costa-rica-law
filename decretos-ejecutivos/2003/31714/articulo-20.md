@@ -1,0 +1,1 @@
+Artículo 20.—Los miembros integrantes del Consejo Técnico Intersectorial de la SEPAN, iniciarán su labor, después de ser juramentados por el Ministro de Salud y desempeñarán sus funciones en forma ad honóren.
