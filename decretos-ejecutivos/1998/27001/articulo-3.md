@@ -1,0 +1,3 @@
+Artículo 3°—Para efectos del presente reglamento se establece las siguientes definiciones:
+DOSIS LETAL MEDIA (LD 50) = Dosis de un agente químico necesaria para producir la muerte del 50% de los animales de experimentación expuestos. Es un calculo estadístico del número de miligramos de un agente químico por kilogramo de peso corporal necesarios, para matar el 50% de una población de animales de experimentación expuestos.
+CONCENTRACIÓN LETAL MEDIA \CL 50) = Concentración del agente químico en la atmósfera, el cual al ser inhalados produce la muerte del 50% de los animales de experimentación expuesto Se expresa como partes por millón, por espacio de 1 hora de inhalación.

@@ -1,0 +1,69 @@
+Artículo 9°—De las limitaciones cuantitativas y condiciones de almacenaje de los embalajes y envases
+Las cantidades máximas permitidas por envase interior usados para contener los diferentes desechos peligrosos usados son las siguientes:
+Cuadro No 1: Cantidades máximas permitidas por envase
+Característica Peligrosa del Desecho Desechos que Reaccionan Espontáneamente Desechos que pueden experimentar combustión espontanea Desechos de peróxidos orgánicas | Grupo de envase o embalaje II III II III II III | Estado físico del desecho Líquido Líquido Sólido Líquido Líquido o sólido Líquido o sólido Líquido o sólido | Cantidad máxima de desecho por envase interior (metal) 500 mi (plástico o vidrio) 51 100 o 500 g 25 mi 1 kg 500 g 1 kg
+9.2 A continuación se detallan las condiciones generales para el almacenaje de desechos peligrosos.
+a) Todos los embalajes/envases deben estar limpios y libres de materiales ajenos a los que se van a introducir.
+b) Los materiales del embalaje o envase debe ser apropiado para la naturaleza de su contenido.
+c) El embalaje debe ser eficazmente protegido, mientras que el envase debe ser eficazmente cerrado.
+d) El embalaje debe ser resistente a choques, golpes, fricción, humedad.
+e) El tamaño v volumen de las estibas deben ser diferentes según las diversa propiedades de los desechos peligrosos.
+f) El espacio de estiba debe estar limpio, seco y bien ventilado.
+9.2.1 Explosivos:
+a) Los envases destinados a contener desechos con características explosivas deben ser lo bastante resistentes como para no dejar escapar su contenido en las condiciones normales de transpone y almacenaje.
+b) Las partes de los envases que estén en contacto directo con los desechos peligrosos no deberían ser afectados por la acción química de otra índole de dichos desechos.
+Cuando sea necesario, dichas partes deberán estar provistas de un revestimiento interior adecuado o haber sido objeto de un tratamiento apropiado. Dichas panes de los envares no deberán incluir componentes que puedan reaccionar peligrosamente con el desecho contenido de manera que se formen productos potencialmente peligrosos o se debiliten considerablemente.
+c) El material amortiguador y absorbente será inerte y adecuado para la naturaleza del contenido del recipiente.
+d) Los recipientes, las panes de recipientes y los cierres de materias plásticas que puedan entrar en contacto directo con un desecho peligroso deberán ser resistentes a su acción y no tendrán incorporados materiales que puedan reaccionar peligrosamente, formar compuestos peligrosos o ablandar, debilitar o inutilizar los recipientes o sus cierres.
+e) Los embalajes o envases de materias plásticas deben ser lo suficientemente resistentes al envejecimiento y a la degradación causados por la sustancias contenidos en ellos o por la radiación ultravioleta. La permeación de la sustancia contenida no deberá constituir un peligro en las condiciones normales de transpone.
+Estibas:
+Para estibar desechos peligrosos con características explosivas deberán hacerse de acuerdo a las siguientes características de estibado:
+a) Categoría de estiba A (ordinaria): Todos los desechos con características de explosivos, deberán estibarse en una zona donde la temperatura sea menor a 20 °C y alejado de fuentes de calor, como chispas, llaman tuberías de vapor, serpentines de calefacción.
+b) Categoría de estiba B (desecho pirotécnicos): Para los desechos pirotécnicos se usarán las mismas disposiciones que la categoría de estiba A con la salvedad de no sobrestimar (es decir no se estibara directamente sobre los bultos ninguna carga diferente).
+c) Categoría de estiba C (tipos de desechos especiales): Los desechos para los que se prescribe esta modalidad consisten en desechos que contienen explosivos y agentes químicos de tipo fumígeno, lacrimógeno o tóxico. El principal problema radica en el riesgo de incendio o de combustión espontánea con desprendimiento de humos densos o de vapores lacrimógenos o tóxicos, en caso de que se produzca alguna fuga del contenido de los bultos. Se sigue la estibación de la categoría A. En el caso de desechos con características tóxicas, deberán ser estibarse en un espacio herméticamente cerrado.
+Las estibas de categoría A no se podrán colocar a distancias menores a los 6 m de distancia de cualquier factor que desencadene fuego (llama cenizas, chispas), un eyector de cenizas o cualquier otro factor que permita desencadenar fuego. Asimismo deberán estar apartadas de lugares transitables, así como de las bocas contra incendios, tuberías de vapor, vías de acceso, y a no menos de 8 m de distancia de dispositivos de seguridad y de oficinas.
+9.2.2 De los líquidos inflamables.
+Los líquidos inflamables se dividirán en 3 categorías según su grupo de embalaje o envasado, de acuerdo al grado de peligrosidad que entraña cada uno de ellos:
+Alta peligrosidad (Grupo embalaje o envase I), Punto de ebullición inicial menor o igual a 35 °C
+Peligrosidad media (Grupo envase o embalaje II). Punto de ebullición inicial mayor o igual a 35 °C: punto inflamación en copa cerrada de 23 °C
+Baja peligrosidad (Grupo envase o embalaje III). Punto de ebullición inicial mayor a 35 °C: punto inflamación en copa cerrada mayor o igual a 23 y menor o igual a 61 °C.
+Para su envase o embalaje se seguirán las siguientes disposiciones
+a) Dada la facilidad con que pueden inflamarse estos desechos, el embalaje o el envase debe ser protegido contra las fuentes de inflamación extremas.
+b) Los envases que están en contacto directo con desechos líquidos inflamables deberán estar herméticamente cerrados.
+c) Las partes de todo envase que estén en contacto directo con los desechos peligrosos no deben ser afectadas por la acción química o de otra índole de los desechos. Cuando sea necesario, dichas panes irán provistas de un revestimiento menor o serán objeto de un tratamiento adecuado. Las mencionadas panes de los envases no deberán incluir componentes capaces de reaccionar peligrosamente con el contenido de manera que lleguen a formarse productos potencialmente peligrosos o que dichas partes se debiliten considerablemente.
+d) Cuando exista la posibilidad de que la emanación de gases (ya sea por elevación de la temperatura o por otras causas) produzca una presión apreciable en el interior de un bulto. podrá dotarse a este de un dispositivo de respiración a condición de que el gas así emitido no cause un peligro, consideradas la toxicidad, inflamabilidad, corrosividad, y cantidad emitida del gas. El dispositivo de respiración estará construido de manera que no pueda escapar líquido alguno estando el bulto en posición vertical. El envase exterior o embalaje estará dispuesto de manera que no interfiera con el buen funcionamiento del dispositivo de respiración.
+9.2.3 De los sólidos inflamables:
+a) Dada la facilidad con que pueden inflamarse estos desechos, el embalaje o envase debe de proteger el contenido contra las fuentes de inflamación extremas.
+b) Para el transporte de este tipo de desechos, se deberá poder humedecer los mismos con agua o con algún otro líquido dentro de recipientes totalmente impermeables. El cierre será en todos los casos eficaz para evitar perdidas de líquido y se podrá exigir en ciertos casos que sea un cierre hermético.
+c) Antes de estibar bultos que contengan este tipo de sustancia se llevará a cabo una inspección a fin de comprobar que no hay en ellos nada que indique que se esta produciendo una fuga o que se ha producido con anterioridad una fuga que pueda haber reducido la cantidad de líquido indicada en el punto anterior, haciéndola inferior a la especificada.
+9.2.4 De las sustancias corrosivas:
+a) Los desechos corrosivos deberán mantenerse lo más secos posibles.
+b) Todos los desechos de la presente clase para las que se permita un embalaje o envases de plástico sin elemento de protección exterior, deberán mantenerse, de ser posible, a temperaturas cercanas a 20 °C \a que la resistencia de la mayorías de los materiales plásticos disminuye a temperaturas elevadas.
+9.2.5 De las sustancias venenosas:
+A efectos de embalaje o envasado se han divido las sustancias tóxicas en 3 categorías de acuerdo al grado de peligrosidad que entrañan:
+Grupo embalajes o envases I: Sustancias y preparados que entrañan muy grave riesgo de envenenamiento. (LD50 para ingestión menor o igual 5 mg/kg: LD50 por contacto con la piel menor o igual a 40 mg/kg; CL50 por inhalación menor o igual a 0.5 mg/1)
+Grupo embalajes o envases II: Sustancias y preparados que entrañan un serio riesgo de envenenamiento. (LD50 por ingestión mayor a 5 mg/kg menor o igual 50 mg/kg:
+LD50 por contacto con la piel mayor a 40 menor o igual a 200 mg/kg: CL50 por inhalación mayor a 0.5 mg/1 menor o igual a 2 mg/1)
+Grupo embalajes o envases III: Sustancias y preparados que entrañan un riesgo de envenenamiento relativamente leve. (LD50 por ingestión mayor a 50 mg/kg y menor o igual a mg/kg: LD50 por contacto con la piel mayor a 200 mg/kg y menor o igual a 1000 mg/kg: CL50 por inhalación mayor a 2 mg/1 y menor o igual 10 mg/1)
+Para su envase o embalaje se -seguirán las siguientes disposiciones:
+a) Todos los envases estarán como mínimo eficazmente cerrados. Sin embargo, en el caso de desechos peligrosos que de acuerdo a los criterios de toxicidad por inhalación quedan adscritas a los grupos de embalaje o envase I o II. deberán ser contenidas en sus envases herméticamente cerrados.
+b) Las panes de todo envase que estén en contacto directo con el desecho peligroso no deben ser afectadas por la acción química o de otra índole de dicho desecho. Las mencionadas panes de los envases no deberán incluir componentes capaces de reaccionar peligrosamente con el contenido, de manera que lleguen a formar productos potencialmente peligrosos o que dichas panes se debiliten consideradamente.
+c^ Cuando exista la posibilidad de que la emanación de gases (ya sea por elevación de temperatura u otras causas) produzca una presión apreciable en el interior de un bulto, podrá dotarse a este de un dispositivo de respiración. como ya se ha mencionado anteriormente.
+d) Dado que la presión de vapor de los líquidos de bajo punto de ebullición suele ser alta, los envases destinados a contener esos líquidos deberán ser suficientemente resistentes para soportar. con un amplio coeficiente de seguridad, las presiones interiores que probablemente se desarrollarán en ellos.
+e) Cuando se llenen los envases con líquidos se dejarán un espacio vacío suficiente para tener la seguridad de que no se produzcan fugas ni deformaciones permanentes en los envases como consecuencia de una expansión del líquido causada por las temperaturas que probablemente se producirán durante su almacenaje.
+9.3 De la descontaminación
+En caso de derrame de sustancias tóxicas en cualquier etapa de manejo y particularmente si se trata de plaguicidas líquidos, se tomarán medidas adecuadas para la descontaminación bajo la supervisión de una persona competente. Si hay algún motivo para sospechar que se ha producido una fuga de algún desecho de la presente clase, no se permitirá la entrada en la bodega ni en el compartimento hasta que el encargado haya tomado en consideración todos los aspectos relacionados con la seguridad de los trabajadores y del medio ambiente y que se garantice esta seguridad.
+9.4 En otras situaciones de emergencia únicamente se autorizara la entrada en la bodega a personal debidamente capacitado y en esos casos llevando aparato respiratorio autónomo e indumentaria protectora.
+Condiciones de bodega de almacenaje.
+Se debe guardar las mismas condiciones de seguridad indicadas en la etapa de acumulación, reforzando el hecho de que los pisos de las bodegas de almacenamiento deben ser totalmente impermeables y contar con muros de protección. Asimismo se debe tener un adecuado sistema de ventilación (siempre y cuando el desecho almacenado lo permita). En la mayoría de los casos las bodegas deberán permanecer cerradas y el acceso será restringido únicamente para personal capacitado. La bodega usada para el almacenamiento de desechos peligrosos deberá ser oirá diferente a las bodegas de materia prima.
+9.6 Precauciones contra incendios.
+Las precauciones exigidas contra incendios en las zonas de acumulación o en las bodegas de almacenamiento son:
+a) Mantener toda materia combustible a distancia de fuentes de ignición.
+b) Proteger las sustancias inflamables mediante embalajes/envases adecuados.
+c) Rechazar y rectificar los bultos en que se observen deteriorados o con fugas.
+d) Estibar los bultos de modo que estén protegidos contra la posibilidad de que accidentalmente sufran deterioro o calentamiento.
+e) Segregar los bultos de las sustancias que puedan provocar o propagar un incendio.
+f) Hacer respetar la prohibición de fumar en las zonas peligrosas y colocar letreros o símbolos fácilmente reconocibles que indiquen "PROHIBIDO FUMAR".
+g) Tener presente el peligro que entraña los cortocircuitos. L perdidas a tierra y las chispas. En atención a esto se debe mantener en buen estado los cables eléctricos de los circuitos de alumbrado y energía, así como los accesorios. Desconectar los cables o el equipo que no ofrece seguridad. Cuando se prescriba un mamparo adecuado para fines de segregación, obturar las perforaciones de las cubiertas y de los mamparos que dan paso a los cables y a las tuberías porta cables de manera que se impida la entrada de gases y vapores.
+h) Se recomienda la inclusión de las precauciones contra incendios en la ficha correspondiente de los desechos peligrosos, siempre y cuando sea aplicable.
+i) Dado que los humos que emiten ciertas sustancias cuando un . incendio las afecta ponen en grave riesgo de intoxicación al personal si no esta protegido contra ellos, habrá que llevar siempre indumentaria protectora de aparatos respiratorios autónomos al tratar de combatir en incendios.
