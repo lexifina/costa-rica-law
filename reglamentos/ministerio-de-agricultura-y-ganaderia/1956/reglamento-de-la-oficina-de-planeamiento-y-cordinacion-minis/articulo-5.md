@@ -1,0 +1,1 @@
+Artículo 5°─Las actividades citadas en el artículo anterior se irán desarrollando en forma gradual, bajo un régimen de prioridades y de conformidad con las posibilidades del elemento técnico con que se cuente.
