@@ -1,0 +1,1 @@
+Artículo 3°—Además de los honorarios correspondientes por la actividad regericial, se le deberán pagar al profesional los gastos por concepto de transporte, hospedaje y viáticos requeridos para la prestación del servicio, tomando como base mínima las tablas que para estos efectos emite la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 4°—Los profesionales de planta que laboren para las personas físicas o jurídicas que sean objeto de las regencias establecidas en este reglamento, podrán optar al ejercicio de la regencia correspondiente, en cuyo caso deberán convenir con el regentado honorarios profesionales sobre su salario mensual por las responsabilidades que asume en la actividad regencial.

@@ -1,0 +1,1 @@
+Artículo 2°—Para los efectos del artículo anterior, se entiende por visita el tiempo requerido por el profesional, para la ejecución y cumplimiento de las funciones regenciales correspondientes, en la totalidad del proyecto que está regentando.
