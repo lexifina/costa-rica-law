@@ -1,0 +1,10 @@
+Artículo 24.- En ejercicio del derecho a que se refiere el
+literal e) del artículo 14 de la Ley, el autor, aún después de la
+divulgación de la obra, tiene frente al cesionario de sus derechos
+o ante quien haya autorizado para utilizar la obra, el derecho de
+revocar la cesión, enajenación o autorización de uso, según los
+casos, y exigir el retiro de la obra del comercio, pero no puede
+ejercer ese derecho sin indemnizarle al tercero los daños y
+perjuicios que con ello le cause.
+El derecho consagrado en este artículo se extingue a la muerte
+del autor.

@@ -1,0 +1,5 @@
+Artículo 25.- Las obras de dominio público podrán ser
+utilizadas por cualquiera, siempre que se respete la paternidad del
+autor y la integridad de la obra, en los términos previstos en los
+literales b), c) y d) del artículo 14 y del artículo 15 de la Ley,
+en concordancia con los artículos 22 y 23 de este Reglamento.

@@ -1,0 +1,5 @@
+Artículo 21.- Conforme al literal b) del artículo 14 de la
+Ley, el autor tiene el derecho a ser reconocido como tal,
+determinando que la obra lleve las indicaciones correspondientes,
+y de resolver si la divulgación ha de hacerse con su nombre bajo
+seudónimo o signo, en forma anónima.
