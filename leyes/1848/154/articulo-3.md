@@ -1,0 +1,1 @@
+Art. 3. Los restos mortales del General Morazan serán oportunamente entragados con solemnidad al Gobierno del Salvador. -Dado en la ciudad de San José á los seis dias del mes de noviembre de mil ochocientos cuarenta y ocho -José Maria Castro. -El Ministro de relaciones y gobernacion, Joaquin Bernardo Calvo,
