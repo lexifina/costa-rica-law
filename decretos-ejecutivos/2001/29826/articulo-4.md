@@ -1,0 +1,1 @@
+Artículo 4º—Las instituciones operadoras de sistemas de acueductos, así como las de salud, deberán brindar toda ayuda y colaboración posible para el mejor desempeño de las responsabilidades de la comisión.
