@@ -1,0 +1,2 @@
+Art. 4°-El sobrante, que asciende à la suma de $ 1.892,879-06 y que aparece a favor del Presupuesto de Ingresos, se aplicará a los gastos que demanda la continuación de la Obra del Ferro-carril.
+Dado en San José, en el Palacio Presidencial, à veintitrés días del mes de junio de mil ochocientos setenta y nueve.-T. GUARDIA. El Secretario de Estado en el Despacho de Hacienda y Comercio. SALVADOR LARA.
