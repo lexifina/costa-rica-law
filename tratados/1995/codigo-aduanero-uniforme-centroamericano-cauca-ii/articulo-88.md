@@ -1,5 +1,2 @@
-TITULO SEXTO
-DE LOS RECURSOS ADUANEROS
-CAPITULO XIV
-DE LOS RECURSOS ADMINISTRATIVOS Y DE LAS AUTORIDADES QUE CONOCEN DE ELLOS
-ARTICULO 88.- Toda persona que se considere agraviada por las resoluciones o actuaciones de las autoridades aduaneras, podrá reclamar contra ellas en la forma y tiempo que señalen este Código, su Reglamento y la legislación nacional.
+Artículo 88.—Equipaje de viajeros. Constituyen equipaje, los efectos personales nuevos o usados que el viajero pueda necesitar razonablemente, para su uso personal o ejercicio de su profesión u oficio en el transcurso de su viaje, conforme lo disponga el Reglamento y la legislación nacional.
+No se considerará parte del equipaje del viajero, el menaje de casa.

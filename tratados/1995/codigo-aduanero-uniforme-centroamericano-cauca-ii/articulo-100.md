@@ -1,1 +1,1 @@
-ARTICULO 100.- Los Agentes de Transporte, para ejercer sus funciones, estarán sujetos a lo que disponen este Código y demás leyes nacionales de los países suscriptores.
+Artículo 100.—Infracción aduanera penal. Será infracción aduanera penal toda acción u omisión que signifique transgresión o tentativa de transgresión de la legislación aduanera, constitutiva de delito.

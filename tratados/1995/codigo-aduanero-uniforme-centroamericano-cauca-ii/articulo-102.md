@@ -1,3 +1,3 @@
-DISPOSICIONES FINALES
-ARTICULO 102.- El presente Código es parte integrante del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano y será sometido a ratificación en cada Estado signatario, de conformidad con las respectivas normas constitucionales o legales. Entrará en vigencia ocho días después de la fecha en que se deposite el tercer instrumento de ratificación para los tres primeros depositantes y, para los subsiguientes, en la fecha de depósito de sus respectivos instrumentos de ratificación.
-(NOTA: Costa Rica fue el tercer país en depositar el instrumento de ratificación del presente Convenio, el día 22 de junio de 1996. El Convenio entró en vigor el 1º de julio de 1996)
+CAPÍTULO II
+De las reclamaciones y los recursos aduaneros
+Artículo 102.—Impugnación de resoluciones y actos. Toda persona que se considere agraviada por las resoluciones o actos de las autoridades del servicio aduanero, podrá impugnarlas en la forma y tiempo que señale la legislación nacional.

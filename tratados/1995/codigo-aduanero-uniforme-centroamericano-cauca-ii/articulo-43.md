@@ -1,1 +1,2 @@
-ARTICULO 43.- La importación temporal de vehículos de turistas o de empresas dedicadas al transporte de turistas se sujetará a lo dispuesto en los Convenios Internacionales en la materia suscritos por los Estados Contratantes y en su caso a la legislación nacional.
+Artículo 43.—Transbordo. El transbordo es el traslado de las mercancías bajo control aduanero, del medio de transporte en el cual arribaron, a otro en el que continuarán a su destino.
+El procedimiento y requisitos para que el transbordo sea autorizado, serán establecidos por el Reglamento.

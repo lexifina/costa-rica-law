@@ -1,2 +1,1 @@
-ARTICULO 41.- Los declarantes de este régimen constituirán garantía por una suma equivalente al total de los tributos a la importación, a fin de responder por la reexportación de las mercancías dentro del plazo concedido, así como por el cumplimiento de las demás obligaciones contraídas con la Aduana.
-La garantía no será obligatoria en aquellos casos estipulados en la legislación nacional.
+Artículo 41.—Mercancías peligrosas. No se permitirá el ingreso al territorio nacional de mercancías explosivas, inflamables, corrosivas, contaminantes, radiactivas y otras mercancías peligrosas, que no cuenten con el permiso previo de la autoridad competente. Autorizado su ingreso, se almacenarán en los lugares que para ese efecto legalmente se establezcan.

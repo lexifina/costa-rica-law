@@ -1,1 +1,1 @@
-ARTICULO 63.- Se entiende por envíos de socorro, todas las mercancías tales como vehículos u otros medios de transporte, géneros alimenticios, medicamentos, ropa de vestir, tiendas, casas prefabricadas u otras mercancías de primera necesidad, expedidas para ayudar a las víctimas de catástrofes naturales o de siniestros análogos.
+Artículo 63.—Plazo para reclamar. El declarante podrá reclamar lo pagado en exceso o indebidamente cobrado por concepto de derechos, impuestos, intereses, recargos y multas dentro de un plazo de cuatro años a partir de la fecha de dicho pago.

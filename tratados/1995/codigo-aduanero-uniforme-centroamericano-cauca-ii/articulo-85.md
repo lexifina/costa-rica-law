@@ -1,1 +1,1 @@
-ARTICULO 85.- Se aceptarán como garantías para los efectos de esta ley, los documentos de crédito fiscal, bancarios, comerciales y otros que establezca la legislación nacional, que aseguren a satisfacción de la Aduana el cumplimiento de las obligaciones contraídas con ella.
+Artículo 85.—Envíos postales. Se entenderá por envíos postales, los de correspondencia y paquetes postales designados como tales en el Convenio de la Unión Postal Universal y sus Actas.

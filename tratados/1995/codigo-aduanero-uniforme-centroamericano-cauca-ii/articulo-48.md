@@ -1,1 +1,2 @@
-ARTICULO 48.- Las mercancías durante el plazo de su depósito podrán ser sometidas a las mismas operaciones, manipulaciones y reconocimientos usuales, para su conservación, acondicionamiento, declaración y otros conforme al procedimiento que establezca cada parte internamente.
+Artículo 48.—Depósito temporal de mercancías. La autoridad aduanera podrá permitir que las mercancías descargadas del medio de transporte, se almacenen temporalmente en los lugares habilitados para esos efectos, bajo las condiciones y plazos que establezca el Reglamento. 3
+3 Con reserva de Costa Rica.

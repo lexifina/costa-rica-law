@@ -1,5 +1,4 @@
-TITULO SEGUNDO
-DE LA RECEPCION LEGAL DE LAS MERCANCIAS Y DEMAS FORMALIDADES A LA LLEGADA Y SALIDA DE LOS MEDIOS DE TRANSPORTE
-CAPITULO III
-DEL PASO DE LAS PERSONAS, MERCANCIAS Y MEDIOS DE TRANSPORTE POR LAS FRONTERAS ADUANERAS
-ARTICULO 16.- El paso de personas, mercancías y medios de transporte sólo podrá efectuarse por los lugares habilitados por la legislación aduanera nacional.
+Artículo 16.—Agente aduanero. El agente aduanero es el Auxiliar autorizado para actuar habitualmente, en nombre de terceros en los trámites, regímenes y operaciones aduaneras, en su carácter de persona natural, con las condiciones y requisitos establecidos en este Código, Reglamento y la legislación nacional.
+También podrán ser autorizadas como Agentes Aduaneros las personas jurídicas, siempre que esté establecido en la legislación nacional .2
+2 Con reserva de Costa Rica.
+La intervención del agente aduanero en los trámites, regímenes y operaciones aduaneras, será regulada por la legislación nacional de cada país signatario.

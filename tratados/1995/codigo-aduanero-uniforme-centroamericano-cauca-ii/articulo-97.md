@@ -1,2 +1,5 @@
-ARTICULO 97.- El Agente de Aduanas, es responsable solidario junto a su mandante por el pago del adeudo.
-También es responsable patrimonialmente frente al Fisco por las infracciones en que incurran sus empleados registrados ante la Aduana.
+TÍTULO VIII
+De las infracciones y recursos aduaneros
+CAPÍTULO I
+De las infracciones aduaneras y sus sanciones
+Artículo 97.—Infracción aduanera. Constituye infracción aduanera toda transgresión o tentativa de transgresión de la legislación aduanera. Las infracciones aduaneras pueden ser: Administrativas, Tributarias o Penales.

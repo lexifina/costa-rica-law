@@ -1,1 +1,1 @@
-ARTICULO 66.- La importación o exportación de efectos personales acompañados se sujetará a los trámites de declaración oral o escrita y para el menaje de casa, la declaración será por escrito.
+Artículo 66.—Cumplimiento de requisitos y formalidades para los regímenes aduaneros. La sujeción a los regímenes aduaneros y las modalidades de importación y exportación definitivas, estará condicionada al cumplimiento de los requisitos y formalidades aduaneras y las de otro carácter que sean exigibles en cada caso.

@@ -1,1 +1,1 @@
-ARTICULO 81.- La acción para exigir el cumplimiento de la obligación tributaria aduanera se extinguirá por prescripción al vencimiento del plazo señalado para ello en la ley nacional.
+Artículo 81.—Reimportación. Reimportación es el régimen que permite el ingreso al territorio aduanero, de mercancías nacionales o nacionalizadas, que se exportaron definitivamente y que regresan en el mismo estado, con liberación de derechos e impuestos.

@@ -1,3 +1,11 @@
-CAPITULO XI
-DE LA ENTREGA MATERIAL DE LAS MERCANCIAS Y DE LAS GARANTIAS ADUANERAS
-ARTICULO 84.- La entrega de las mercancías sólo procederá previa comprobación por parte del depositario o concesionario de las mismas, de que se ha pagado, o garantizado, según el caso, la totalidad del adeudo y se han cumplido las demás formalidades aduaneras exigidas según el régimen aduanero de que se trate.
+CAPÍTULO III
+De las modalidades especiales de importación
+y exportación definitivas
+Artículo 84.—Modalidades especiales de importación y exportación definitiva. Constituyen modalidades especiales de importación y exportación definitiva, las siguientes:
+a) envíos postales;
+b) envíos urgentes;
+c) tráfico fronterizo;
+d) equipaje de viajeros;
+e) menaje de casa;
+f) pequeños envíos sin carácter comercial; y,
+g) otras que establezca la legislación nacional.

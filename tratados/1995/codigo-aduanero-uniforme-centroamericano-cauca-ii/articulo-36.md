@@ -1,1 +1,1 @@
-ARTICULO 36.- La exportación, es el envío legal de mercancías que se encuentran en libre circulación, para su uso o consumo definitivo en el exterior, previo cumplimiento de todas las formalidades aduaneras.
+Artículo 36.—Sujeto pasivo de las obligaciones no tributarias. En el caso de las obligaciones aduaneras no tributarias, el sujeto obligado a su cumplimiento, será el declarante o su representante.

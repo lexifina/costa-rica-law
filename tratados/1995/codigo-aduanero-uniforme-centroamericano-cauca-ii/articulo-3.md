@@ -1,2 +1,1 @@
-ARTICULO 3.- Este Código regirá todas las actividades aduaneras que se efectúen dentro de la región y sus normas y las disposiciones legales de cada país que se deriven de ellas serán aplicables a toda persona, mercancía y medio de transporte que cruce las fronteras aduaneras de los países signatarios sin importar su origen o procedencia.
-Mientras se emite un reglamento uniforme al presente Código, cada estado emitirá su reglamento conforme los principios que lo configuran.
+Artículo 3º—Cómputo de plazos. Los plazos establecidos en este Código y su Reglamento se entienden referidos a días hábiles, salvo disposición expresa en contrario. Cuando un plazo venza en día inhábil, se entiende prorrogado hasta el primer día hábil siguiente.

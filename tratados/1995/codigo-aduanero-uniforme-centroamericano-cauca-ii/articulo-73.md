@@ -1,6 +1,1 @@
-ARTICULO 73.- La determinación de la obligación tributaria aduanera o acto único del Aforo comprenderá, entre otras operaciones, las siguientes:
-Examen de la documentación acompañada a la declaración de mercancías.
-Reconocimiento físico de las mercancías en su caso.
-Valoración aduanera de las mercancías.
-Clasificación de las mercancías en una determinada Partida o Subpartida del Arancel Aduanero. Y
-Liquidación de los gravámenes adeudados.
+Artículo 73.—Importación temporal con reexportación en el mismo estado. Importación temporal con reexportación en el mismo estado, es el régimen que permite ingresar al territorio aduanero por un plazo determinado, con suspensión de derechos e impuestos a la importación, mercancías con un fin específico, las que serán reexportadas dentro de ese plazo, sin haber sufrido otra modificación que la normal depreciación como consecuencia de su uso.

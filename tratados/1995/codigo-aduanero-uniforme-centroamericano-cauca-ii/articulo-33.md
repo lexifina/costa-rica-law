@@ -1,2 +1,1 @@
-ARTICULO 33.- Los trámites comunes a toda declaración de mercancías cuando proceda son los siguientes: aceptación de la declaración; aforo; confirmación y aprobación.
-La fiscalización de las operaciones contenidas en la declaración será realizada por la Dirección General de Aduanas.
+Artículo 33.—Prenda aduanera. Con las mercancías se responderá directa y preferentemente al Fisco, con privilegio de prenda aduanera en favor de éste, por los derechos e impuestos, multas y demás cargos que causen y que no hayan sido cubiertos total o parcialmente por el sujeto pasivo como resultado de su actuación dolosa, culposa o de mala fe. La autoridad aduanera debe retener o aprehender las mercancías previa orden judicial si esta acción implica un allanamiento domiciliario.

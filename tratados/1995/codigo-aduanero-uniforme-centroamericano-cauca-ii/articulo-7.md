@@ -1,1 +1,1 @@
-ARTICULO 7.- El ámbito de aplicación de las normas contenidas en este Código y las disposiciones legales de cada país será el territorio aduanero nacional.
+Artículo 7º—Potestad aduanera. La Potestad Aduanera es el conjunto de derechos, facultades y competencias que este Código, su Reglamento conceden en forma privativa al Servicio Aduanero y que se ejercitan a través de sus autoridades.

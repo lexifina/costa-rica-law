@@ -1,1 +1,1 @@
-ARTICULO 89.- Cuando la reclamación se origine por discrepancias en la determinación de la Obligación Tributaria Aduanera, podrá otorgarse el levante de las mercancías previo pago o garantía por el total de los tributos, sin perjuicio de lo que disponga la ley nacional.
+Artículo 89.—Exención del pago de derechos e impuestos por el equipaje. Toda persona que arribe a los puertos, aeropuertos o lugares fronterizos habilitados, podrá introducir al país su equipaje con exención de derechos e impuestos.

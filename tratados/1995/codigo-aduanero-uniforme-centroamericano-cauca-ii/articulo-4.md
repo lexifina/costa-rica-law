@@ -1,25 +1,16 @@
-ARTICULO 4.- Para los efectos de este Código y la respectiva legislación nacional, se adoptan las siguientes definiciones:
-ACEPTACION DE LA DECLARACION: Es el acto de numerar, firmar, sellar, fechar y registrar el formulario de declaración por la autoridad aduanera competente.
-ADEUDO: Monto a que asciende la obligación tributaria aduanera.
-AFORO: El acto por el cual conforme el procedimiento señalado en este Código y en la legislación nacional se determina la obligación
-tributaria.
-CONFIRMACION Y APROBACION: El acto mediante el cual el funcionario designado al efecto ratifica y aprueba el adeudo.
-CONSIGNATARIO: Es la persona que el documento de Transporte establece como destinatario de la mercancía o aquel que adquiere esta calidad por endoso.
-CONTROL DE LA ADUANA: Conjunto de medidas tomadas para asegurar el cumplimiento de las leyes y reglamentos que la Aduana está obligada a aplicar.
-DECLARACION DE MERCANCIAS: El acto efectuado en la forma prevista por este Código, mediante el cual el declarante indica el régimen aduanero que ha de aplicarse a las mercancías.
-DECLARACION CERTIFICADA DEL ORIGEN: Declaración de Origen certificada por una autoridad o un organismo habilitado.
-DECLARANTE: La persona que firma o en nombre de la cual se firma una declaración de mercancías de conformidad con este Código.
-FRANQUICIA: Exención total o parcial de los derechos e impuestos de importación que se otorga a las mercancías cuando estas se importan en determinadas condiciones, o por señaladas personas, o para un fin determinado.
-GARANTIA: Caución que asegure a satisfacción de la Aduana, el cumplimiento de una obligación contraída con esta.
-INFRACCION ADUANERA: Cualquier transgresión o tentativa de vulneración de la legislación aduanera.
-LEGISLACION ADUANERA: El conjunto de normas legales y reglamentarias aplicables a los medios de transporte y a las mercancías objeto de comercio internacional, así como a las personas que intervienen en la gestión aduanera.
-PEQUEÑOS ENVIOS: Se consideran como pequeños envíos sin carácter comercial, aquellas mercancías que están exentas de derechos, impuestos, tasas y otras, siempre que reúnan las condiciones y requisitos que establezca el reglamento.
-PERSONA: Comprende tanto la persona natural como la persona jurídica, salvo que disposiciones específicas la limiten a una de ellas.
-PRODUCTOS COMPENSADORES: Los productos obtenidos en el curso o como consecuencia de la transformación, de la elaboración o de la reparación de mercancías acogidas a los regímenes aduaneros de la admisión y exportación temporal.
-REGIMEN ADUANERO: Tratamiento legal aplicable a las mercancías que se encuentran bajo la potestad aduanera.
-RUTAS LEGALES: Unicas vías autorizadas para el transporte de mercancías que se importan, exportan o circulan en tránsito
-SUBASTA ADUANERA: Es la venta pública de mercancías declaradas en abandono o en comiso, efectuada por las autoridades aduaneras de acuerdo con el procedimiento establecido en la legislación nacional.
-TERRITORIO ADUANERO: El territorio en que son plenamente aplicables las disposiciones de la legislación aduanera de un Estado.
-TRANSPORTISTA: La persona que transporta las mercancías o que tiene la responsabilidad del medio de transporte.
-LEVANTE: Acto por el cual la Aduana permite a los interesados disponer de las mercancías que son objeto de un despacho.
-MERCANCIA EN LIBRE CIRCULACION: Mercancías de las que se puede disponer libremente, previo cumplimiento de todas las formalidades aduaneras y las de otro carácter que sean necesarias.
+Artículo 4º—Definiciones. Para los efectos de este Código y su Reglamento, se adoptan las siguientes definiciones y abreviaturas:
+ACEPTACIÓN DE LA DECLARACIÓN: Es el acto de registrar para su trámite la declaración de mercancías.
+AUTODETERMINACIÓN: Es la determinación de las obligaciones aduaneras efectuada por el declarante por las que se fijan y pagan los tributos exigibles y se cumplen las demás obligaciones necesarias para la autorización de un régimen aduanero.
+AUTORIDAD ADUANERA: El funcionario del Servicio Aduanero que, en razón de su cargo y en virtud de la competencia otorgada, comprueba la correcta aplicación de la normativa aduanera, la cumple y la hace cumplir.
+AUXILIARES: Auxiliares de la función pública aduanera.
+CONSIGNANTE: Es la persona que remite mercancías al exterior.
+CONSIGNATARIO: Es la persona que el contrato de Transporte establece como destinatario de la mercancía.
+DECLARACIÓN DE MERCANCÍAS: El acto efectuado en la forma prescrita por el Servicio Aduanero, mediante el cual los interesados expresan libre y voluntariamente el régimen al cual se someten las mercancías y se aceptan las obligaciones que éste impone.
+DECLARANTE: Es la persona que efectúa o en nombre de la cual se efectúa una declaración de mercancías de conformidad con éste Código y su Reglamento.
+DEPÓSITO TEMPORAL: El almacenamiento temporal de mercancías bajo control del Servicio Aduanero en locales o en lugares cercados o no, habilitados al efecto, en espera de que se presente la declaración de mercancías correspondiente.1
+1 Con reserva de Costa Rica.
+LEGISLACIÓN NACIONAL: Ordenamiento jurídico de cada Estado Parte.
+MEDIO DE TRANSPORTE: Nave, aeronave, vagón ferroviario, vehículo automotor, o cualquier otro medio utilizado para el transporte de personas o mercancías.
+EL REGLAMENTO: El Reglamento de este Código.
+RUTAS LEGALES: Vías autorizadas para el transporte de mercancías sujetas al control aduanero.
+TERRITORIO ADUANERO: El ámbito terrestre, acuático y aéreo de los países signatarios, con las excepciones legalmente establecidas.

@@ -1,1 +1,1 @@
-ARTICULO 31.- La declaración aduanera de las mercancías deberá presentarse en el respectivo formulario o medio aprobado por la autoridad competente, a la cual se adjuntarán los documentos y autorizaciones exigidas por la ley cuando sea procedente.
+Artículo 31.—Determinación de la obligación tributaria aduanera. La determinación de la obligación tributaria aduanera, es el acto por el cual se fija la cuantía de los derechos e impuestos exigibles.

@@ -1,1 +1,1 @@
-ARTICULO 50.- La legislación nacional establecerá la responsabilidad y sus límites, de toda pérdida o daño que sufran las mercancías durante su depósito, tanto en recintos públicos como privados, así como frente a los consignatarios de la mercancía dañada o perdida.
+Artículo 50.—Requisitos y procedimientos. Los requisitos y procedimientos para efectuar el examen previo, se regularán en la legislación nacional.

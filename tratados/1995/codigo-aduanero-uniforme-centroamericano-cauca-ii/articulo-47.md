@@ -1,1 +1,1 @@
-ARTICULO 47.- Los depósitos de aduana serán públicos o privados.
+Artículo 47.—Sobrantes de mercancías. En caso de sobrantes se permitirá su despacho siempre que se justifique tal circunstancia y la diferencia con lo manifestado no exceda del porcentaje permitido en la legislación nacional. Cuando dichos sobrantes excedan del porcentaje permitido, éstos serán objeto de comiso administrativo y subastados por el Servicio Aduanero.

@@ -1,0 +1,1 @@
+Artículo 107.—Nuevos procedimientos. Los países signatarios podrán desarrollar procedimientos que impliquen mayores grados de facilitación dentro del marco de los principios de este Código y su Reglamento.

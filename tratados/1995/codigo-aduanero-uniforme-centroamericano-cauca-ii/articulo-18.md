@@ -1,1 +1,2 @@
-ARTICULO 18.- La autoridad aduanera, con anterioridad a la recepción legal o con posterioridad a ella, podrá adoptar las medidas de control que considere pertinente, debiendo informar a las autoridades competentes sobre toda mercancía que atente contra la salud, la moral o el orden público.
+Artículo 18.—Transportista aduanero. Transportista es el auxiliar encargado de las operaciones y los trámites aduaneros relacionados con la presentación ante el Servicio Aduanero, del medio de transporte y carga, a fin de gestionar su ingreso, tránsito o salida de las mercancías.
+El transportista será responsable directo ante el Servicio Aduanero, por el traslado o transporte de las mercancías objeto de control aduanero.

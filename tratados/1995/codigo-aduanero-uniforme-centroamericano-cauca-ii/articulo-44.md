@@ -1,3 +1,2 @@
-ARTICULO 44.- La admisión temporal permite recibir dentro del territorio aduanero, en suspensión de tributos de importación, mercancías procedentes del exterior y destinadas a ser exportadas dentro del plazo autorizado, después de haber sufrido una transformación, elaboración o reparación.
-En la misma calidad podrán ingresar insumos que se utilizan para la obtención de productos compensadores y que desaparecen total o parcialmente en el curso de su utilización, sin estar efectivamente contenidos en estos productos. Esta suspensión no se extiende a los elementos que no juegan más que un papel auxiliar en la fabricación.
-Los requisitos, modalidades y demás formalidades relacionadas con el régimen serán reguladas por la legislación nacional.
+Artículo 44.—Reembarque. Reembarque es el retorno al exterior de mercancías extranjeras desembarcadas por error.
+El reembarque solamente será autorizado cuando las mercancías no se hubieran destinado a un régimen aduanero, no se encuentren en abandono o no se haya configurado respecto de ellas presunción fundada de infracción penal.

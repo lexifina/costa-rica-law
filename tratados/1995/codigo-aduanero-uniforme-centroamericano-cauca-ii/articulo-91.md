@@ -1,2 +1,1 @@
-ARTICULO 91.- Los países signatarios podrán crear el Tribunal Aduanero Nacional con las atribuciones y principios, que la legislación nacional le otorgue. El Tribunal Aduanero podrá sustituir o complementar las funciones y competencias del Comité Arancelario y del Comité de Valoración enunciados en los artículos anteriores de este Código.
-Cuando en cualquiera de los países signatarios funcione algún Tribunal Fiscal Administrativo o similar, el Tribunal Aduanero Nacional podrá constituirse en parte de su organización, adecuándose este hecho a la legislación interna.
+Artículo 91.—Condiciones para gozar de la exención. Las condiciones para gozar de la exención a que se refiere el artículo anterior, serán establecidas por la legislación nacional.

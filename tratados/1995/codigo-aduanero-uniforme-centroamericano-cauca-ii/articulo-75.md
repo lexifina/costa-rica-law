@@ -1,1 +1,3 @@
-ARTICULO 75.- El Aforo de las mercancías podrá efectuarse por los Agentes de Aduanas bajo la modalidad de la autodeterminación y liquidación de los tributos aduaneros y otros cargos fiscales, pagándose la cantidad autoliquidada en las Instituciones autorizadas y cumpliendo con las demás formalidades que para este efecto señale la legislación nacional.
+Artículo 75.—Depósito de aduanas o depósito aduanero. Depósito de aduanas o depósito aduanero es el régimen mediante el cual, las mercancías son almacenadas por un plazo determinado, en un lugar habilitado al efecto, bajo potestad de la Aduana, con suspensión de derechos e impuestos que correspondan.
+Las mercancías en depósito de aduanas, estarán bajo custodia, conservación y responsabilidad del depositario.
+Los depósitos de aduana podrán ser públicos o privados.

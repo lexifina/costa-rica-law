@@ -1,1 +1,5 @@
-ARTICULO 49.- La declaración para que una mercancía pueda acogerse a este régimen la conocerá la Aduana con jurisdicción en la zona donde se encuentra el depósito y lo concederá por el plazo que señale la legislación nacional.
+TÍTULO V
+Del despacho aduanero y de sus actos previos
+CAPÍTULO I
+Actos previos
+Artículo 49.—Examen previo. El declarante o su representante, podrán efectuar el examen previo de la mercancía por despachar, para reconocerlas, a efecto de declararlas correctamente, autodeterminar las obligaciones tributarias y cumplir con las no tributarias.

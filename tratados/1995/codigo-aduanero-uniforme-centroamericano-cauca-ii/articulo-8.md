@@ -1,1 +1,2 @@
-ARTICULO 8.- La circunscripción territorial sometida a la jurisdicción de cada Aduana será conforme a lo que establezca la ley nacional.
+Artículo 8º—Coordinación para aplicar controles. Las funciones que otras instituciones deban ejercer relacionadas con mercancías sujetas a control aduanero, deberán ser coordinadas con la autoridad aduanera competente.
+Los funcionarios pertenecientes a instituciones distintas al servicio aduanero, que se atribuyan y ejerzan funciones que por ley le competen a este servicio, incurrirán en las responsabilidades administrativas, civiles y penales que correspondan.

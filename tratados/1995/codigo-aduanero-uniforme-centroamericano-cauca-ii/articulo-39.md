@@ -1,1 +1,1 @@
-ARTICULO 39.- Toda mercancía que hubiese llegado manifestada en tránsito podrá ser destinada a cualquier otro régimen dentro del país, siempre que se cumplan todos los requisitos y formalidades legales y reglamentarias para dicho régimen.
+Artículo 39.—Arribo forzoso. Cuando un medio de transporte por caso fortuito o fuerza mayor arribe a un lugar habilitado o no, el responsable de dicho medio deberá dar aviso inmediato a la autoridad aduanera competente más cercana al lugar del arribo.

@@ -1,2 +1,2 @@
-ARTICULO 28.- Las mercancías que consten en el Manifiesto de Carga y que no sean descargadas se considerarán faltantes, y sobrantes los que excedan a la cantidad señalada, sujetando al responsable a las sanciones previstas por la infracción cometida.
-La legislación nacional respectiva señalará sanciones, plazos y procedimientos para justificar a la Aduana las faltas o excesos de mercancías en relación al Manifiesto de Carga.
+Artículo 28.—Derechos e impuestos aplicables para determinar el monto de la garantía en los regímenes temporales o suspensivos. En los regímenes temporales o suspensivos, el momento de la aceptación de la declaración al régimen, determinará los derechos e impuestos aplicables a efecto de establecer el monto de la garantía, cuando ésta corresponda.
+En caso de cambio de un régimen temporal o suspensivo a uno definitivo, se estará a lo dispuesto en el numeral 1°) del artículo anterior.

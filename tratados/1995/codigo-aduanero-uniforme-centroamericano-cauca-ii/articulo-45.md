@@ -1,1 +1,1 @@
-ARTICULO 45.- Los residuos o desperdicios resultantes de los procesos de perfeccionamiento que no sean reexportados como tales, podrán ser importados para el consumo según su clasificación arancelaria propia, previo cumplimiento de todas las formalidades y requisitos exigidos para el régimen.
+Artículo 45.—Mercancías faltantes o sobrantes. Si en el proceso de descarga se detectaren faltantes o sobrantes respecto de lo manifestado, el transportista deberá justificar tal circunstancia en el plazo que establezca el Reglamento.

@@ -1,7 +1,2 @@
-ARTICULO 78.- La obligación tributaria se podrá extinguir por alguno de los siguientes modos:
-Pago efectivo.
-Compensación.
-Prescripción.
-Aceptación del abandono voluntario de mercancías.
-Pérdida o destrucción total de las mercancías en los depósitos fiscales por caso fortuito o de fuerza mayor.
-Otros permitidos por la legislación nacional.
+Artículo 78.—Exportación temporal con reimportación en el mismo estado. La exportación temporal con reimportación en el mismo estado, es el régimen aduanero mediante el cual, con suspensión del pago de derechos e impuestos a la exportación en su caso, se permite la salida temporal del territorio aduanero, de mercancías nacionales o nacionalizadas, con un fin específico y por un tiempo determinado, con la condición que sean reimportadas sin que hayan sufrido en el exterior ninguna transformación, elaboración o reparación, en cuyo caso a su retorno serán admitidas con liberación total de derechos e impuestos a la importación.
+El plazo para la reimportación será el que establezca el Reglamento.

@@ -1,1 +1,2 @@
-ARTICULO 77.- Se tendrá por concluido el Aforo cuando haya sido notificado al declarante. Los tributos son exigibles a partir del día siguiente que el Aforo se notifique.
+Artículo 77.—Zonas francas. Zona franca, es el régimen que permite ingresar a una parte delimitada del territorio de un Estado signatario, mercancías que se consideran generalmente como si no estuviésen en el territorio aduanero con respecto a los derechos e impuestos de importación, para ser destinadas según su naturaleza, a las operaciones o procesos que establezca la legislación nacional.
+Las zonas francas podrán ser entre otras, comerciales, industriales o mixtas.

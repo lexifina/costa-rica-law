@@ -1,3 +1,2 @@
-ARTICULO 96.- Son derechos y prerrogativas especiales de los Agentes de Aduanas:
-a) La facultad de designar empleados suyos para que colaboren y le representen en los trámites necesarios para el despacho aduanero.
-b) La subrogación legal en los derechos privilegiados del Fisco cuando hubieren pagado a este, por cuenta de sus mandantes, sumas adeudadas por concepto de derechos e impuestos aduaneros.
+Artículo 96.—Rescate de mercancías tácitamente abandonadas. El consignatario o el que comprobare derecho sobre las mercancías tácitamente abandonadas, podrá rescatarlas pagando previamente las cantidades que se adeuden, de conformidad con el numeral 2 del artículo 27 de este Código, salvo en aquellos casos en los que ya se hubiere presentado una declaración de importación definitiva, en cuyo caso se estará a lo dispuesto en el numeral 1 del mismo artículo.
+Dicho rescate deberá efectuarse a más tardar el día hábil anterior a la fecha de celebración de la subasta.

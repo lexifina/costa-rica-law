@@ -1,3 +1,1 @@
-ARTICULO 90.- Se crean a nivel nacional un Comité Arancelario y un Comité de Valoración dependientes del poder u organismo ejecutivo, en el Ramo de Hacienda o Finanzas.
-La legislación nacional establecerá la forma de organización y funcionamiento del Comité Arancelario.
-En cuanto al Comité de Valor Aduanero, se estará a lo dispuesto en la Legislación Centroamericana sobre el Valor Aduanero de las Mercancías.
+Artículo 90.—Exención del pago de derechos e impuestos para mercancías distintas del equipaje. El viajero podrá introducir con exención de derechos e impuestos, mercancías que traiga consigo, distintas del equipaje, cuyo valor total en aduana no sea superior al equivalente a quinientos pesos centroamericanos, salvo que la legislación nacional establezca un monto mayor.

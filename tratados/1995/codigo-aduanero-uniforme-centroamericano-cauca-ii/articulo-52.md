@@ -1,3 +1,2 @@
-ARTICULO 52.- Las Zonas Francas serán comerciales e industriales.
-Son comerciales aquellas en que las mercancías admitidas sólo pueden someterse a las manipulaciones necesarias para asegurar su conservación, acondicionamiento y presentación, pudiéndose además, exhibirlas, ofrecerlas a la venta y enajenarlas en las formas autorizadas por la legislación nacional.
-Son industriales aquellas en que las mercancías son admitidas para someterse a las operaciones de perfeccionamiento que hayan sido autorizadas.
+Artículo 52.—Declaración de mercancías. Con la declaración de mercancías se expresa libre y voluntariamente el régimen al cual se someten las mercancías y se aceptan las obligaciones que este impone.
+La declaración de mercancías se entenderá efectuada bajo fe de juramento.
