@@ -13,3 +13,4 @@ Reglamento a la Ley de Licencias Adiestramiento Servidores Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-12-15 | la propia norma |
+| 2 | 1986-12-15 | SINALEVI (sin norma nombrada) |
