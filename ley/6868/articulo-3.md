@@ -1,27 +1,28 @@
 Artículo 3º.- Para lograr su fines, el Instituto tendrá las
 siguientes atribuciones:
-a) Organizar y coordinar el sistema nacional de capacitación y formación
-profesional de todos los sectores de la actividad económica, de conformidad
-con las directrices del Poder Ejecutivo y con las disposiciones legales
-correspondientes.
-b) Diseñar y ejecutar programas de capacitación y formación profesional,
-en todas sus modalidades, o convenir en su ejecución con otros antes
-públicos o privados, tanto para futuros trabajadores y trabajadores por
-cuenta propia, como para personas empleadas, subempleadas o desempleadas,
-así como promover la constitución de empresas.
+a) Organizar y coordinar el sistema nacional de capacitación y
+formación profesional de todos los sectores de la actividad económica, de
+conformidad con las directrices del Poder Ejecutivo y con las
+disposiciones legales correspondientes.
+b) Diseñar y ejecutar programas de capacitación y formación
+profesional, en todas sus modalidades, o convenir en su ejecución con
+otros antes públicos o privados, tanto para futuros trabajadores y
+trabajadores por cuenta propia, como para personas empleadas,
+subempleadas o desempleadas, así como promover la constitución de
+empresas.
 c) Prestar asistencia técnica a instituciones y empresas para la
 creación, estructuración y funcionamiento de servicios de formación
 profesional.
 ch) Establecer empresas didácticas y centros de formación-producción, o
-apoyar la creación y funcionamiento de estos últimos , en coordinación con
+apoyar la creación y funcionamiento de estos últimos, en coordinación con
 otras entidades públicas o privadas, nacionales o internacionales.
 d) Desarrollar un sistema para certificar oficialmente el nivel de
 conocimientos y destrezas de los trabajadores que se sometan a las
-evaluaciones, en las áreas que imparta el Instituto, independientemente de
-la forma en que esos conocimientos y destrezas hayan sido adquiridos.
-e) Diseñar y ejecutar programas de capacitación y formación profesional,
-que tiendan a aumentar el ingreso familiar de los grupos de población de
-menores recursos.
+evaluaciones, en las áreas que imparta el Instituto, independientemente
+de la forma en que esos conocimientos y destrezas hayan sido adquiridos.
+e) Diseñar y ejecutar programas de capacitación y formación
+profesional, que tiendan a aumentar el ingreso familiar de los grupos de
+población de menores recursos.
 f) Dictar, cuando sea necesario y no corresponda a otras instituciones
 públicas, normas técnicas-metodológicas que regulen los servicios de
 capacitación y formación profesional, que ofrezcan entidades privadas a
@@ -34,3 +35,10 @@ Instituto, y suscribir con ellas acuerdos de intercambio y cooperación
 cuando fuere conveniente.
 i) Las demás que sean necesarias para alcanzar el objetivo previsto en
 el artículo 2º de esta ley.
+(Adicionado tácitamente por el artículo 4º. inciso a), de la Ley de
+Creación del Programa de Reconversión Productiva del Sector Agropecuario,
+al señalar que el Instituto Nacional de Aprendizaje deberá incluir en sus
+programas actividades de capacitación en el sector agropecuario; para
+esto, deberá destinar una suma mínima del quince por ciento (15%) de sus
+presupuestos ordinarios y extraordinarios. Estos programas se ejecutarán
+en coordinación con las instituciones del sector agropecuario)
