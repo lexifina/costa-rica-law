@@ -1,0 +1,1 @@
+Artículo 38.-Salvo casos previstos en este Reglamento, la omisión de una marca a cualquiera de las horas de entrada o salida, hará presumir la inasistencia a la fracción de la jornada correspondiente, excepto si se justifica dentro del mismo mes calendario.

@@ -1,0 +1,1 @@
+Artículo 14°—Los servidores nombrados en propiedad, podrán solicitar a la Dirección de Recursos Humanos, el trámite ante la Dirección General de Servicio Civil, de reasignación siempre que se considere que las funciones del mismo han variado sustancialmente y esté conforme con la normativa vigente.

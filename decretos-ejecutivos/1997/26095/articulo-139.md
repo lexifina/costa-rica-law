@@ -1,0 +1,1 @@
+Artículo 139°—Si el involucrado no ejerce su defensa en el término establecido, se continuará con el procedimiento hasta su conclusión, debiendo notificársele la resolución final en forma personal en su domicilio o lugar de trabajo.

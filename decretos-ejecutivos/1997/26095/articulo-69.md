@@ -1,0 +1,1 @@
+Artículo 69°—Los servidores que hayan participado en actividades y/o cursos de capacitación, estarán obligados, a solicitud del Departamento de Capacitación y del Centro Nacional de Capacitación Criminológico Penitenciario y/o la Escuela Nacional de Policía Penitenciaria, a impartir los conocimientos adquiridos.

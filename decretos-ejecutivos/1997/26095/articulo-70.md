@@ -1,0 +1,1 @@
+Artículo 70°—Para efectos de reconocimiento de títulos ante la Dirección General de Servicio Civil, el Centro Nacional de Capacitación Criminológico Penitenciario deberá coordinar lo que corresponda con el Departamento de Capacitación del Ministerio de Justicia.

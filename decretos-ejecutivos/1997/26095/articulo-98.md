@@ -1,0 +1,1 @@
+Artículo 98°—La Dirección de Recursos Humanos deberá velar por la confidencialidad de los expedientes, a los cuales tendrán acceso únicamente el interesado, así como el Despacho Ministerial, la Dirección Jurídica y Dirección General de Auditoría, previa autorización del Jefe respectivo.

@@ -1,0 +1,1 @@
+Artículo 11°—Se establece la prohibición de mantener laborando en una misma oficina o departamento, a servidores que se encuentren ligados por parentesco de consanguinidad o afinidad hasta el tercer grado inclusive y que entre ellos exista relación jerárquica inmediata.

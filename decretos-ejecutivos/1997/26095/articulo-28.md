@@ -1,0 +1,1 @@
+Artículo 28°—Los servidores del Ministerio deberán laborar todos los días hábiles del año durante las horas reglamentarias establecidas podrán concederse privilegios ni prerrogativas o licencia alguna autorice una asistencia irregular, con excepción de lo dispuesto por Reglamento, el Reglamento al Estatuto de Servicio Civil o en su caso, en los contratos especiales de servicio.

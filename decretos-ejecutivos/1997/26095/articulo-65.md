@@ -1,0 +1,1 @@
+Artículo 65°—Las licencias sin goce de salario menores de un mes podrá concederlas el jefe inmediato por escrito, debiendo comunicarlo con antelación al disfrute de la licencia, a la Dirección de Recursos Humanos.

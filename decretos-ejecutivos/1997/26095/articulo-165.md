@@ -1,0 +1,1 @@
+Artículo 165°—El Recurso de Revocatoria deberá interponerse ante el Órgano que dictó el acto en un plazo de cinco días hábiles contados a partir del momento en que tuvo conocimiento de la disposición o resolución.

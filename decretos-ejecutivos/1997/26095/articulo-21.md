@@ -1,0 +1,1 @@
+Artículo 21°—Los servidores del Ministerio tendrán derecho a disfrutar de un día al año para celebrar el día del trabajador penitenciario, así como aquel que se efectúe para la integración y convivió de los funcionarios al final de cada año.

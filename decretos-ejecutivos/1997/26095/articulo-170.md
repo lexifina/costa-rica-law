@@ -1,0 +1,1 @@
+Artículo 170°—El Recurso de Apelación deberá resolverse dentro de los quince días naturales posteriores al recibo del expediente. De ser admisible, se confirmará, modificará o revocará el acto impugnado.

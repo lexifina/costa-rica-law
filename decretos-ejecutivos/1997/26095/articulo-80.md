@@ -1,0 +1,2 @@
+Artículo 80°—La Comisión de becas designará al beneficiario de la o facilidad y comunicará la decisión a la Dirección de Recursos Humanos de la Institución, para que se cumpla con los requisitos pertinentes y se elabore el respectivo contrato.
+Si el beneficiario es un servidor amparado al Régimen de Servicio Civil, se cumplirán con las disposiciones que establezca la Dirección General de Servicio Civil. En el caso de los servidores interinos o excluidos de dicho Régimen, se procederá a la confección de un Contrato Interno entre el Ministerio y el beneficiario.

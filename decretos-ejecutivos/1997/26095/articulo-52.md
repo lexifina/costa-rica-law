@@ -1,0 +1,2 @@
+Del abandono de labores
+Artículo 52°—Se considerara abandono de labores el hacer la dejación sin causa justificada, dentro de su jornada de trabajo, de la labor lo del contrato o relación de servicio. Para efectos de calificar el abandono de labores, no es preciso que el servidor salga del lugar donde presta sus servicios, sino que bastará que de modo evidente abandone la que le ha sido encomendada.

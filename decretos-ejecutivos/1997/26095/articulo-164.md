@@ -1,0 +1,1 @@
+Artículo 164°—Los recursos serán ordinarios y extraordinarios. Se consideran ordinarios el de Revocatoria, de Reposición cuando el acto impugnado sea emitido por el máximo jerarca y de Apelación; y Extraordinario el de revisión.

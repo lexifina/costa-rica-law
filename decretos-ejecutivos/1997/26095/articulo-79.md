@@ -1,0 +1,1 @@
+Artículo 79°—Los servidores que disfruten de becas nacionales o extranjeras, quedaran obligados a impartir los conocimientos adquiridos, mediante el trabajo práctico y la enseñanza teórica a otros servidores, según lo requiera la Institución. La Dirección de Recursos Humanos por medio del departamento que corresponda velara por su cumplimiento.

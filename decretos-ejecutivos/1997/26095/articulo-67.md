@@ -1,0 +1,1 @@
+Artículo 67°—Las actividades de capacitación dirigidas a los servidores de este Ministerio deberán ser coordinadas por el Departamento de Capacitación de la Institución, salvo para el personal penitenciario, cuyas actividades de capacitación serán desarrolladas por el Centro Nacional de Capacitación Criminológico Penitenciario y/o la E Nacional de Policía Penitenciaria.

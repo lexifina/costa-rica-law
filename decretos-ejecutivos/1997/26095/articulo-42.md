@@ -1,0 +1,3 @@
+Artículo 42°—En caso de que por irregularidades en la asistencia proceda el despido sin responsabilidad patronal, la Dirección de Recursos Humanos remitirá todos los atestados a la Dirección Jurídica, a efecto de se proceda con el trámite de la gestión de despido ante el Tribunal de Servicio Civil, instancia que dará el debido proceso al servidor afectado.
+Tratándose de servidores excluidos del Régimen de Servicio Civil, Dirección de Recursos Humanos dará audiencia al servidor por el término de tres días hábiles, pasado dicho plazo remitirá todos los atestados al máximo superior que corresponda con la respectiva recomendación, para que este resuelva lo que en derecho proceda.
+Contra lo anterior cabrán los recursos que establece el presente nto.

@@ -1,0 +1,2 @@
+Artículo 131°—Los despidos de los funcionarios amparados al Régimen de Servicio Civil, se tramitaran conforme lo dispuesto en el Estatuto de Servicio Civil, su Reglamento y las disposiciones contenidas en el presente Reglamento.
+Los despidos de los servidores excluidos del Régimen de Servicio Civil, se regirán por lo que al efecto dispone la Ley General de Policía, el Reglamento General de Policía Penitenciaria, el Código de Trabajo, la Ley General de la Administración Pública y el presente Reglamento.

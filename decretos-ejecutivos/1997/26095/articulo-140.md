@@ -1,0 +1,1 @@
+Artículo 140°—El Órgano Director deberá averiguar la verdad real de los hechos y ordenará y practicará todas las diligencias de pruebas necesarias para ello, de oficio o a petición de parte. El ofrecimiento y admisión de pruebas de la parte se hará con las limitaciones que señala la Ley. Las pruebas que no fuese posible recibir por culpa de la parte se declararan inevacuables.

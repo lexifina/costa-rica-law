@@ -1,0 +1,1 @@
+Artículo 166°—El Recurso de Apelación procede ante el Superior Jerárquico del Órgano que dictó el acto objeto de impugnación, el cual deberá interponerse en un plazo de tres días hábiles a partir del momento en que tuvo conocimiento de éste.

@@ -1,0 +1,1 @@
+Artículo 161°—La resolución deberá contener una especificación del lugar, hora y fecha en que se emite, un Resultando donde se especificarán los elementos relevantes del reclamo, un Considerando donde se consignarán los hechos probados y el fondo del asunto, y un Por tanto que indicará la parte resolutiva de la decisión final.

@@ -1,0 +1,1 @@
+Artículo 82°—El servidor que omita la suscripción del contrato respectivo a que está obligado, deberá asumir la responsabilidad civil de pago de la derogación incurrida en perjuicio de los fondos del Estado.

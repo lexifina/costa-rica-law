@@ -1,0 +1,1 @@
+Artículo 72°—Para la concesión de las licencias de estudio, el interesado deberá presentar la documentación completa en las unidades de coordinación de capacitación de cada Dependencia, que la remitirán al Departamento de Capacitación del Ministerio de Justicia y Gracia, previa valoración del cumplimiento de los requisitos formales que éste señala.

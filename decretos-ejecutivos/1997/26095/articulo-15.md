@@ -1,0 +1,1 @@
+Artículo 15°—Las servidoras del Ministerio podrán gozar de una hora diaria de lactancia. Para tal efecto, el jefe de la coordinación del área de salud extenderá los dictámenes correspondientes hasta por un término máximo de quince meses de edad del lactante. Pasado este período el dictamen sólo podrá ser extendido por la Caja Costarricense de Seguro Social.

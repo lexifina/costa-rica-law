@@ -1,0 +1,1 @@
+Artículo 54°—Para obtener derecho a la vacación anual, es necesario que el servidor haya prestado sus servicios durante cincuenta semanas continuas. Sin embargo, si por cualquier causa, el servidor termina su relación laboral antes de las cincuenta semanas tendrá derecho al pago de vacaciones proporcionales, conforme con lo estipulado en el artículo 56 de este reglamento.
