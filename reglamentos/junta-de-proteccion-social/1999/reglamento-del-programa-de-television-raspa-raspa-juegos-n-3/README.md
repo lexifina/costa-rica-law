@@ -14,3 +14,4 @@ Reglamento del Programa de Televisión "Raspa-Raspa" Juegos N° 39 y E-2 de Lote
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-15 | la propia norma |
+| 2 | 1999-04-20 | Reglamento 0 (1999-04-20) |
