@@ -14,3 +14,4 @@ Reglamento del Sistema Financiero Nacional para la Vivienda sobre las Garantías
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-03 | la propia norma |
+| 2 | 2001-09-25 | Reglamento 69 (2001-09-25) |
