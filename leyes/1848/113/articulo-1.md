@@ -1,0 +1,5 @@
+DECRETO CXII.
+Establece un Juez en el Mineral del “Aguacate”
+El General Presidente del Estado de Costa Rica.
+Considerando: 1° que en el mineral del Aguacate existen muchas familias radicadas, y que de otra parte por los trabajos de minas hay constantemente una concurrencia numerosa de operarios: 2° que por este motivo y por la gran distancia á que dicho mineral está de todos los lugares en que residen Alcaldes constitucionales, es necesario establecer en él una autoridad que administre justicia como se hizo por decreto de 16 de marzo de 1840; y 3° que por falta de personas capaces no puede esta necesidad remediarse de otra manera, que Ajando en el mineral un Juez dotado; en uso de la facultad que le confieren la fracción 26 artículo 110 de la Constitucion y art. 2° del decreto de 22 de junio del año próximo pasado, decreta:
+Art. 1° Se establece en el mineral del Aguacate un Juez con las facultades y obligaciones que el capitulo 2° titulo 2º del reglamento de 4 de noviembre de 1845 señala á los Alcaldes constitucionales.

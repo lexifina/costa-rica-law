@@ -1,0 +1,1 @@
+Art. 2. Dicho Juez serà nombrado por el Ejecutivo y gozará el sueldo anual de trescientos pesos que se le pagarà del tesoro público. (1.) -Dado en la ciudad de San José á los diez dias del mes de julio de mil ochocientos cuarenta y ocho. -José Maria Castro. -Al Ministro de relaciones y gobernacion Señor Don Joaquin Bernardo Calvo.”
