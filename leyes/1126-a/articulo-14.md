@@ -1,0 +1,2 @@
+XIV
+Las Compañías se obligan a traspasar al Estado, gratuitamente, no menos de tres mil hectáreas de los terrenos de su propiedad, situados en la región de Línea Vieja de la provincia de Limón, incluyendo entre ellos la finca denominada Anita Grande. El traspaso se hará una vez ratificado este contrato, y el Estado recibirá esas tierras tal corno actualmente se encuentran, sin responsabilidad alguna por parte de las Compañías por la existencia de parásitos. renunciando el Estado a su vez al derecho de evicción y saneamiento que conforme a las leyes pudiera corresponderle.

@@ -1,0 +1,2 @@
+X
+La Chiriquí Land Company continuará durante el término de este contrato, gozando de las franquicias y ventajas y cumpliendo las obligaciones establecidas en los decretos N° 2 y N° 3 de 4 de setiembre de 1930, en el artículo 6° del decreto N° 133 de 23 de julio de 1938, y en las resoluciones N° 29 de las diecisiete horas del 31 de julio de 1945 y N° 68 de 23 de octubre del mismo año, de las Secretarías de Fomento y Hacienda, respectivamente.
