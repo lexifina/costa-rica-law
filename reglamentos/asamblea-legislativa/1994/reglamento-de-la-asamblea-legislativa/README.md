@@ -15,3 +15,4 @@ Reglamento de la Asamblea Legislativa
 | --- | --- | --- |
 | 1 | 1982-05-01 | la propia norma |
 | 2 | 1996-09-09 | Reglamento 3047 (1996-09-09) |
+| 3 | 1997-03-19 | Reglamento 3073 (1997-03-19) |
