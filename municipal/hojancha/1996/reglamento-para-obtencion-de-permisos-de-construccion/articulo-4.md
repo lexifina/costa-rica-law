@@ -1,0 +1,1 @@
+Artículo 4°-Las obras de construcción, reparación, remodelación, ampliación o demolición de edificios que se pretendan realizar dentro del ámbito territorial de la municipalidad deberá contar con el permiso o autorización correspondiente extendido por ésta.

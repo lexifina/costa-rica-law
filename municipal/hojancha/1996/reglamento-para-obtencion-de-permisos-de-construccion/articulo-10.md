@@ -1,0 +1,1 @@
+Artículo 10.-El propietario y el ingeniero o arquitecto responsable del diseño de la edificación responderá de los datos que se indiquen en el proyecto o diseño. La Municipalidad será responsable únicamente por los datos que se refieren a alineamientos y niveles.

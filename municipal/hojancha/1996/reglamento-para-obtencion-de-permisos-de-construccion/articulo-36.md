@@ -1,0 +1,1 @@
+Artículo 36.-En todo permiso de construcción, reparación, ampliación o remodelación se reservará 1,75 mtrs., hacia adentro del cordón y caño, para que en dicha área sea construida la acera, dicha acera será complemento exigido de la obra la cual se dio permiso.

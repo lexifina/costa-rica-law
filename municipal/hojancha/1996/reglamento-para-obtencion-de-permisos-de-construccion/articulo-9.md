@@ -1,0 +1,1 @@
+Artículo 9°-Las construcciones ubicadas en zonas de interés especial, en calles o plazas donde existen construcciones declaradas monumentos nacionales, de valor excepcional, histórico o arquitectónico, deben armonizar con el ambiente general del lugar.

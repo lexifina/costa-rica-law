@@ -1,0 +1,1 @@
+Artículo 33.-No se permitirá abrir ventanas ni balcones que den vista, a menos que intervenga una distancia de dos metros y medio (2,50 . m), medida entre el plano vertical de la línea más sobresaliente de la ventana o balcón, y el plano vertical de la línea divisoria de los predios, en el punto en que dichas líneas se estrechen más, si no son paralelas.

@@ -1,0 +1,1 @@
+Artículo 31.- Todo terreno o solar que se encuentre dentro del cuadrante de la ciudad deberá deslindarse por medio de una tapia con una altura no menor de 2, 10m, la Municipalidad podrá permitir el cierre de los mismos por medio de alambre deberán colocarse a una distancia máxima de treinta centímetros y estar debidamente tensos.

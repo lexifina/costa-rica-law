@@ -1,0 +1,1 @@
+Artículo 42.-A partir de la vigencia de este reglamento, en toda segregación que se efectúe en las áreas urbanas, los frentes de los lotes deben tener como mínimo ocho metros y en áreas rurales un mínimo de seis metros.

@@ -1,0 +1,1 @@
+Artículo 19.-Firme la resolución que indica el alineamiento y nivel respectivos se procederá a extender el permiso correspondiente, el que deberá ser firmado por el Inspector de Rentas Municipal, el Ejecutivo y por el funcionario encargado de la supervisión de la obra, el Inspector de construcciones.
