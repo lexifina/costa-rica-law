@@ -1,0 +1,3 @@
+ARTICULO 12
+Ambos Gobiernos propiciarán el establecimiento de un contacto más estrecho entre los Institutos de Investigaciones históricas de ambos países, particularmente entre la Sociedad Chilena de Historia y Geografía y la Academia Chilena de la Historia con la Academia Costarricense de la Historia, a fin de que los esfuerzos de investigación realizados en un país sean conocidos en el otro.
+Dentro de este mismo propósito se estimulará el contacto directo y el intercambio de estudios e informaciones y de los resultados y soluciones a que se haya llegado, entre los Institutos de carácter científico, literario, artístico, económico y social de ambos países.

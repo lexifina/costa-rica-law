@@ -1,0 +1,2 @@
+ARTICULO 11
+Ambos Gobiernos se comprometen a favorecer el intercambio de discos, películas, noticiarios cinematográficos costarricenses y chilenos y música impresa propia de cada país. Este intercambio será patrocinado y controlado por los Institutos Culturales a que se refiere el artículo 9 y los productos referidos gozarán de la exoneración de toda clase de derechos e impuestos, una vez establecida su exclusiva finalidad cultural.
