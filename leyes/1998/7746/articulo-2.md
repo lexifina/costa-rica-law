@@ -1,0 +1,1 @@
+Artículo 2°- Los Estados contratantes adoptarán todas las medidas apropiadas para garantizar que se cumplan en sus territorios respectivos los objetivos del Convenio. Para ello deberán recurrir a los procedimientos de urgencia de que dispongan.

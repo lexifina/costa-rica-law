@@ -1,0 +1,1 @@
+Artículo 36°- Nada de lo dispuesto en el presente Convenio impedirá que dos o más Estados contratantes, con el fin de limitar las restricciones a las que podría estar sometida la restitución del menor, acuerden mutuamente la derogación de algunas de las disposiciones del presente Convenio que podrían originar esas restricciones.

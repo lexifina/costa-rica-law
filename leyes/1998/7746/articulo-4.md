@@ -1,0 +1,1 @@
+Artículo 4°- El Convenio se aplicará a todo menor que tuviera su residencia habitual en un Estado contratante inmediatamente antes de la infracción de los derechos de custodia o de visita. El Convenio dejará de aplicarse cuando el menor alcance la edad de dieciséis años.

@@ -1,0 +1,3 @@
+Artículo 11°- Las autoridades judiciales o administrativas de los Estados contratantes actuarán con urgencia en los procedimientos para la restitución de los menores.
+Si la autoridad judicial o administrativa competente no hubiera llegado a una decisión en el plazo de seis semanas a partir de la fecha de iniciación de los procedimientos, el solicitante o la Autoridad Central del Estado requerido, por iniciativa propia o a instancia de la Autoridad Central del Estado requirente tendrá derecho a pedir una declaración sobre las razones de la demora.
+Si la Autoridad Central del Estado requerido recibiera una respuesta, dicha Autoridad la transmitirá a la Autoridad Central del Estado requirente o, en su caso, al solicitante.

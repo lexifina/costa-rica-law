@@ -1,0 +1,2 @@
+Artículo 35°- El presente Convenio sólo se aplicará entre los Estados contratantes en los casos de traslados o retenciones ilícitos ocurridos después de su entrada en vigor en esos Estados.
+Si se hubiera formulado una declaración conforme a lo dispuesto en los artículos 39 ó 40, la referencia a un Estado contratante que figura en el párrafo precedente se entenderá que se refiere a la unidad o unidades territoriales a las que se aplica el presente Convenio.

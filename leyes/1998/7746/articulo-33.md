@@ -1,0 +1,1 @@
+Artículo 33°- Un Estado en el que las diferentes unidades territoriales tengan sus propias normas jurídicas respecto a la custodia de menores, no estará obligado a aplicar el presente Convenio cuando no esté obligado a aplicarlo un Estado que tenga un sistema unificado de derecho.
