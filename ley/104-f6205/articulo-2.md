@@ -1,0 +1,1 @@
+Art. 2. Se faculta al Supremo Gobierno para que nombre una comision de personas idóneas, á fin de que esta redacte el proyecto de organización provisional de Tribunales de Comercio; verificandolo con economía de personas, atendida la inopia de estas, y con la prontitud que demanda la necesidad de arreglar tan importante ramo.
