@@ -1,4 +1,1 @@
-ARTICULO 10.- Se modifica la ley de Justicia Tributaria en la
-siguiente forma: En el Transitorio VI, para que después de donde dice
-"...sentencia firme", se incluya la oración "o se hubiera operado alguna
-causa interruptora de la prescripción."
+Artículo 10.- Anulado. (Anulado este artículo mediante resolución de la Sala Constitucional N° 1703-00 del 18 de febrero de 2000).
