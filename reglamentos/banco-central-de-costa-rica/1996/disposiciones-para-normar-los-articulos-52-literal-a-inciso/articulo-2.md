@@ -1,0 +1,1 @@
+2) Para controlar el cumplimiento de los requisitos establecidos en los Artículos 52, literal a), inciso i), de la Ley Orgánica del Banco Central de Costa Rica y 59 de la Ley Orgánica del Sistema Bancario Nacional, se tomarán en cuenta las captaciones de exigibilidad inmediata y aquéllas a plazos de treinta días o menos sujetas a requerimiento de encaje mínimo legal.
