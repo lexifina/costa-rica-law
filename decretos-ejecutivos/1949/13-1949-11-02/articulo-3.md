@@ -1,0 +1,1 @@
+Artículo 3°.- Esta comisión permanente formulará las guías que sean necesarias, así como programas, tests, cuestionarios, etc., para el cumplimiento efectivo de los propósitos del examen de Bachillerato de Madurez Suficiente, y podrá asesorarse para ello, de la Sección Psico-pedagógica del Ministerio de Educación.

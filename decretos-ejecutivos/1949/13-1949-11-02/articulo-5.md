@@ -1,0 +1,1 @@
+Artículo 5°: Las cuotas de examen se cancelarán ante el Secretario de la Comisión Permanente, a razón de quince colones por cada materia examinada, y se emplearán en el pago de honorarios de la misma.
