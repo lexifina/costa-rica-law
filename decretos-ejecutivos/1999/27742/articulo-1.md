@@ -11,5 +11,12 @@ Decretan:
 Artículo 1°- Modificar los derechos arancelarios la importación contemplados en el Arancel Centroamericano de Importación al rubro que detalla a continuación:
 SAC | DESCRIPCION | DAI % SOBRE EL VALOR CIF
 1006 | ARROZ |
-1006.10 | Arroz con cáscara (arroz “paddy”): |
+1006.10 | Arroz con cáscara (arroz "paddy"): |
 1006.10.90 | Otros | 35
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 27958 del 23 de junio de 1999, se acordó pprorrogar la modificación realizada en el presente decreto ejecutivo sobre los Derechos Arancelarios a la importación contemplados en el Arancel Centroamericano de Importación contemplados en el Arancel Centroamericano de Importación, en los rubros que detallan a continuación:
+SAC DESCRIPCIÓN DAI%
+Sobre valor
+1006 ARROZ
+1006.10 Arroz con cáscara (arroz "paddy"):
+1006.10.90 otros 35
+De conformidad con el numeral 3° del decreto ejecutivo antes referido está prórroga tendrá una vigencia del 1° de julio al 31 de octubre de 1999. Vencido dicho plazo, regirán de nuevo los derechos arancelarios vigentes antes de la modificación realizada en el decreto 27742-MEIC-COMEX-MAG, sin perjuicio de la potestad del Poder Ejecutivo de modificar este decreto antes de dicho plazo si lo estima pertinente)
