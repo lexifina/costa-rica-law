@@ -1,0 +1,1 @@
+Artículo 46.—Para demostrar la infracción de destrucción o alteración de sellos establecida en la normativa penal, se levantará un acta que deberá contener un detalle de todo lo ocurrido y constatado, así como de la información recabada respecto de posibles testigos de lo sucedido.

@@ -1,0 +1,1 @@
+Artículo 18.—El contribuyente que solicite un aplazamiento o fraccionamiento de su deuda, lo deberá hacer por escrito, en el formulario que al efecto facilite la administración. La municipalidad deberá resolver las solicitudes de aplazamiento o fraccionamiento de pago en un plazo máximo de quince días naturales, contados a partir de su presentación.

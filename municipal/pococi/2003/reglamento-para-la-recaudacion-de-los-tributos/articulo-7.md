@@ -1,0 +1,2 @@
+Artículo 7º—El pago de las deudas tributarias deberá hacerse en las agencias o sucursales de las entidades recaudadoras autorizadas por la Municipalidad conforme con la normativa legal aplicable, o en las cajas dispuestas al efecto por la Municipalidad.
+Los pagos realizados a órganos o entidades públicas o privadas no autorizados para recibir pago, no liberan al deudor de su obligación de pago ni del cómputo de los intereses respectivos, sin perjuicio de las responsabilidades de todo orden en que incurra quien reciba indebidamente esos pagos.

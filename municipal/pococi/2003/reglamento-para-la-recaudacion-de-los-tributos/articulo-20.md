@@ -1,0 +1,1 @@
+Artículo 20.—Las facilidades de pago pueden solicitarse en cualquier momento, pero sólo se concederán si a juicio de la Municipalidad han sobrevenido circunstancias que tornen difícil el cumplimiento normal de la obligación, o que puedan dañar seriamente la economía del deudor si dicho cumplimiento se produce.

@@ -1,0 +1,1 @@
+Artículo 6º—El pago de las deudas tributarias podrá efectuarse mediante moneda de curso legal, por medio de cheque, tarjeta de crédito o débito o cualquiera otro medio electrónico autorizado legalmente.

@@ -1,0 +1,1 @@
+Artículo 19.—Cuando el arreglo de pago tenga como origen una deuda por concepto de impuesto de patente, deberá ser garantizado con fianza solidaria de una persona con bienes inscritos o con un empleo fijo con más de un año de antigüedad.

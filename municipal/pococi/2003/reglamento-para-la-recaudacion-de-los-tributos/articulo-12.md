@@ -1,0 +1,2 @@
+Artículo 12.—Ante la falta de pago por parte del sujeto pasivo dentro de los términos legales correspondientes, la Municipalidad le notificará los saldos adeudados, confiriéndole un plazo de cinco días hábiles para su cancelación.
+Vencido este término sin que haya realizado el pago, la Administración Tributaria certificará el adeudo e iniciará la etapa de cobro ejecutivo, incrementándose con las obligaciones accesorias y costas que en cada caso sean exigibles, sin perjuicio de las sanciones establecidas en el artículo 81 Bis del Código Municipal y el 32 de este reglamento.

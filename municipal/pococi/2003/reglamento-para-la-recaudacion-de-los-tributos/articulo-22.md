@@ -1,0 +1,1 @@
+Artículo 22.—Corresponderá al interesado adjuntar con su solicitud de aplazamiento o facilidades de pago, los elementos probatorios necesarios y suficientes que justifiquen el otorgamiento de lo solicitado.

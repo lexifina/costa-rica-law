@@ -1,0 +1,1 @@
+Artículo 25.—Sin perjuicio de lo establecido en el artículo 19, la Municipalidad deberá valorar los casos en que la concesión de aplazamientos o facilidades de pago conlleve la rendición de una garantía.
