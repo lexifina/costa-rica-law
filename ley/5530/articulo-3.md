@@ -1,0 +1,1 @@
+Artículo 3°.- La Comisión Nacional de Conmemoraciones Históricas, reconocerá y coordinará los programas de todos los actos cívicos y populares que propaganda la Comisión Provincial Especial Organizadora que tal efecto nombrará la Municipalidad de Nicoya.
