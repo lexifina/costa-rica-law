@@ -13,3 +13,4 @@ Disposiciones Reglamentarias Pensiones de Hacienda
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-11-21 | la propia norma |
+| 2 | 1988-11-21 | Decreto Ejecutivo 23014 (1994-03-09) |
