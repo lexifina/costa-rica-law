@@ -1,0 +1,1 @@
+Artículo 8°—En su funcionamiento regular, el Colegio dependerá directamente del Ministro de Cultura. Juventud v Deportes, quien actuará en él por medio del Director Ejecutivo, de su libre nombramiento.

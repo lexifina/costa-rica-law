@@ -1,0 +1,1 @@
+Artículo 9°—El Colegio de Costa Rica tendrá su propia revista, en la que se publicarán sinopsis de las conferencias más importantes, así como otras colaboraciones de intelectuales nacionales y extranjeros. La revista será distribuida por la Dirección General de Artes y Letras, que dedicará lo recaudado por este concepto a pagar gastos de publicidad del Colegio de Costa Rica.
