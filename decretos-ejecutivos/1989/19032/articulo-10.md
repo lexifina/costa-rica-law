@@ -1,0 +1,1 @@
+Artículo 10-Se derogan todas las disposiciones reglamentarias que se oponen al presente decreto y se deroga especialmente los decretos N°17165-S del 26 de agosto de 1986 y el N° 17695-S del 4 de agosto de 1987.
