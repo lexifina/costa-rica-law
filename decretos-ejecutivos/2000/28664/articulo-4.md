@@ -1,0 +1,1 @@
+Artículo 4º—Las instituciones, grupos artísticos, organizaciones culturales y personas individuales podrán proponer candidatos al homenaje, los que deberán tener una amplia trayectoria y/o aporte cultural significativo a nivel nacional o regional.

@@ -1,0 +1,1 @@
+Artículo 5º—Las postulaciones de los promotores (as), investigadores (as) se recibirán hasta el último día hábil del mes de abril de cada año el envío de propuestas no determina en modo alguno su selección.

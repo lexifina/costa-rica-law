@@ -1,0 +1,1 @@
+Artículo 6º—Los órganos del Ministerio de Cultura, Juventud y Deportes y sus adscritas, a solicitud del Ministro o Viceministro darán, en la medida de sus posibilidades, apoyo logístico y administrativo a la Comisión y, de ser posible, incluirán en su programación las obras y publicaciones de los homenajeados.

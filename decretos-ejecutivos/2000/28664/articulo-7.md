@@ -1,0 +1,1 @@
+Artículo 7º—La ceremonia oficial para el homenaje será coordinada por la Dirección General de Cultura y se celebrará en conjunto con el aniversario de la creación del Ministerio de Cultura, Juventud y Deportes el 17 de julio, ocasión en la que las personas homenajeadas recibirán la Medalla Conmemorativa del Ministerio.
