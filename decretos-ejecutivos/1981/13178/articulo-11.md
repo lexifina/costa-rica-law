@@ -16,3 +16,8 @@ j) Avisos;
 k) Notificaciones;
 l) Citaciones; y
 m) Fe de Erratas.
+Las divulgaciones que autorice la Junta Administrativa de la
+Imprenta Nacional, descritas en el párrafo segundo del artículo 4º, se
+ubicarán en la forma que la Dirección de la Imprenta Nacional determine".
+(Así reformado por el artículo 2º del decreto Nº 20052 de 31 de octubre
+de 1990).
