@@ -14,3 +14,4 @@ Reglamento para la Operación y Administración del Acueducto Municipal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-04-26 | la propia norma |
+| 2 | 2004-07-26 | Reglamento municipal 118 (2004-07-26) |
