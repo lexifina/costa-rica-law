@@ -1,0 +1,1 @@
+Artículo 7° El Juez de Policía y los Jueces Preventivos podrán imponer multas desde uno hasta veinticinco pesos, en las causas que les corresponden seg£n la gravedad de las faltas y recursos de los culpables; si la falta mereciese pena mayor, ser remitido el asunto al Jefe Pol¡tico respectivo o al Gobernador.

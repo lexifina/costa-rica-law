@@ -1,0 +1,1 @@
+Artículo 11. El distintivo del Juez de Policía Rural ser una vara de dieciocho pulgadas de largo con borlas de seda azul a fin de que pueda llevarla fácilmente cabalgando, y el de los jueces preventivos ser una medalla con las armas de la República colocada al lado izquierdo del pecho.
