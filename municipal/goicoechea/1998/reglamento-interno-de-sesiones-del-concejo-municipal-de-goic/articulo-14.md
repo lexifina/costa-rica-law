@@ -1,1 +1,0 @@
-Artículo 14.—Los regidores suplentes, síndicos y cualquier vecino puede presentar cualquier iniciativa que tienda a adoptar, reformar, suspender o derogar disposiciones reglamentarias, pero deberá ser presentada o acogida para su trámite por el Alcalde Municipal o algún regidor.

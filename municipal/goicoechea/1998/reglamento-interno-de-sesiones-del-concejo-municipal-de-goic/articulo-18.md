@@ -1,2 +1,0 @@
-Artículo 18.—Corresponde al secretario (a), llevar también el control de asistencia de los miembros del Concejo los cuales deben firmar una formula donde se haga constar su presencia, los que no firmen no tienen derecho al pago de dieta y se informará a la oficina de Personal para lo de su cargo.
-Ningún regidor que falte a sesión o la abandone tiene derecho al pago de dieta, excepto cuando la ausencia, sea por el cumplimiento de una comisión o encargo del Concejo Municipal, o en su representación.

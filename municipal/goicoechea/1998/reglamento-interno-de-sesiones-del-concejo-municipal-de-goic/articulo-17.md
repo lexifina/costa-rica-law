@@ -1,1 +1,0 @@
-Artículo 17.—Finalizada la sesión, y disponiéndose el secretario (a) a confeccionar el acta respectiva será exclusivamente de su responsabilidad su redacción y no permitirá bajo ninguna circunstancia que posteriormente se agreguen documentos o se saquen documentos al acuerdo, o se modifique el contenido del acta. El incumplimiento de lo anterior constituirá falta grave.
