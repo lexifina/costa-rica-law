@@ -1,0 +1,5 @@
+ARTICULO 7.- La CCP celebrará sus reuniones ordinarias en el País
+Miembro escogido por el orden alfabético inverso de los Estados que la
+integran u otro mecanismo establecido por la misma. Cada reunión será
+presidida por un delegado escogido entre los Jefes de Delegación, por el
+voto mayoritario de las delegaciones.
