@@ -1,0 +1,2 @@
+Artículo 8º—Integración. Estará integrado por el Gerente, quien lo presidirá; el Jefe del Departamento de Planificación, el Director Administrativo Financiero, el Jefe de la División Financiera y el Director de Ingeniería y Operaciones Portuarias. Cuatro de sus miembros formarán quórum y las decisiones se tomarán por simple mayoría de votos.
+La Auditoría General y el Departamento Legal actuarán como una instancia asesora. El Comité podrá convocar a otras jefaturas o funcionarios, en consideración a los asuntos por tratar.

@@ -1,0 +1,1 @@
+Artículo 9º—Reuniones. El Comité Gerencial de Control Interno se reunirá ordinariamente en el lugar, día y hora que se fije y extraordinariamente cuando sea convocado por el Gerente; convocatoria realizada a través de la secretaria por medio de carta circular con tres días de anticipación.

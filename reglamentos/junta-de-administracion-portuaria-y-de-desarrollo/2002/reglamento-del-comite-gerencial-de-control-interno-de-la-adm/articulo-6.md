@@ -1,0 +1,4 @@
+Artículo 6º—Los objetivos del Comité Gerencial de Control Interno son:
+a) Definir, mantener y perfeccionar los mecanismos de control interno que garanticen la mayor seguridad posible del accionar institucional hacia el logro de los planes, metas y objetivos fijados, en concordancia y apego a la normativa legal vigente; en particular la contenida en el Manual de Normas Generales de Control Interno de la Contraloría General de la República.
+b) Establecer mecanismos de control que permitan a la jerarquía, ejercer un monitoreo constante de las acciones desarrolladas en procura del logro de las metas y objetivos fijados.
+c) Evaluar periódicamente la suficiencia y adecuidad del sistema de control interno vigente, procurando que funcione como elemento preventivo de la ocurrencia de riesgos en el alcance de las metas, objetivos y de la eficiencia y eficacia en el manejo de los recursos.

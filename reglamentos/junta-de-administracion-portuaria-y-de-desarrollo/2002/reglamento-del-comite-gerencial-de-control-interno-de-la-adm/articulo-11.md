@@ -1,0 +1,1 @@
+Artículo 11.—Todas las dependencias de la Institución, formarán parte del Sistema y están obligadas a facilitar la labor del Comité Gerencial de Control Interno, mediante el trabajo conjunto en la consolidación y activación del Sistema; así como brindar en tiempo, suficiencia, certeza y claridad; todo tipo de información que le sea requerido por el CGCI.
