@@ -1,0 +1,1 @@
+Artículo 17.—Controles periódicos y bitácora. Estos establecimientos serán controlados periódicamente por las autoridades competentes del Ministerio de Salud. Las granjas avícolas deben contar con una bitácora para llevar el control sanitario del ciclo productivo y del manejo de los desechos.

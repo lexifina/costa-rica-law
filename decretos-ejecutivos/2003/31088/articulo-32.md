@@ -1,0 +1,1 @@
+Artículo 32.—Control, seguimiento y asesoría técnica. Para efectos de verificar el adecuado cumplimiento del presente Reglamento, la Dirección de Protección al Ambiente Humano, ejercerá funciones de control, evaluación y asesoría técnica a las Direcciones de Áreas Rectoras de Salud y a las Direcciones Regionales, para la aplicación del presente reglamento.

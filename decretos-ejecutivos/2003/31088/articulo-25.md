@@ -1,0 +1,1 @@
+Artículo 25.—Los bebederos para suministro de agua deben estar construidos de material resistentes al uso, en buen estado de funcionamiento, limpios, sin fisuras o desperfectos que puedan ocasionar derrames o goteos que humedezcan las camas.

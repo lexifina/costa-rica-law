@@ -1,0 +1,1 @@
+Artículo 16.—Los propietarios, administradores o encargados de una granja avícola quedan obligados a cumplir con las disposiciones y directrices consignadas en el presente reglamento y la legislación vigente aplicable en este tipo de actividad.

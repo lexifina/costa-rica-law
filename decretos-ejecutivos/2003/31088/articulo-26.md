@@ -1,0 +1,1 @@
+Artículo 26.—Los animales muertos se recolectarán diariamente en un recipiente con tapa para luego depositarse en una fosa construida en la tierra con tapa hermética y respiradero. De contarse con otro mecanismo para la eliminación debe tener la aprobación previa del MS, quedando prohibido la quema de aves a cielo abierto en unidades no aprobadas por este Ministerio.

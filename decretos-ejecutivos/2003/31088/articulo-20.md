@@ -1,0 +1,1 @@
+Artículo 20.—Las áreas de acceso a los patios para carga y descarga deberán ser compactos y recubiertos con una buena base de grava o piedra, concreto o asfalto, libres de vegetación, desechos y estancamiento de agua.

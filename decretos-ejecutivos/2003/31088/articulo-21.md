@@ -1,0 +1,5 @@
+Artículo 21.—Las instalaciones de granjas avícolas nuevas deberán contar con los siguientes requisitos sanitarios:
+a. Pisos de concreto construidos con una elevación mínima de quince centímetros sobre el nivel del terreno; cuando no se cuenta con aceras de concreto, debe existir un área compacta de tierra; que permita esta función de forma que independice los galpones de la caída de las aguas pluviales, para proteger las camas de la humedad. Excepto las granjas de subsistencia.
+b. Paredes construidas con materiales apropiados para la actividad, como cedazo o malla, a excepción de las instalaciones para aves en batería o jaulas.
+c. Los techos de estructura resistente, con cubierta de material impermeable, en buen estado, sin goteras o escurrimientos de agua pluvial.
+d. Disponer las aguas pluviales mediante drenajes perimetrales con el propósito de proteger los suelos y disminuir la humedad de las camas, dicha agua debe conducirse mediante sistemas adecuados y debidamente aprobados por el Ministerio de Salud (Alcantarillado pluvial, ríos, acequias, canales). Esto debe ser cumplido tanto por las granjas nuevas como las existentes.

@@ -1,0 +1,5 @@
+Artículo 10.—De la construcción. Toda construcción o ampliación en las instalaciones de las granjas avícolas, a las que se refieren los artículos 6°, 7°, 8° y 9°, deberán contar para su aprobación con los requisitos siguientes:
+a) Permiso de ubicación extendido por la Dirección del Área Rectora del Ministerio de Salud o la Dirección Regional del MS, según el área geográfica respectiva y donde se encuentre la granja.
+b) Copia plano catastro de la propiedad, finca o lote donde se ubicarán las instalaciones.
+c) Planos constructivos de las instalaciones y de los sistemas sanitarios que se requieren. Los planos deberán ajustarse a lo señalado en el Decreto Ejecutivo N° 27967-MP-MIVAH-S-MEIC del 6 de julio de 1999, publicado en el Alcance N° 49 a La Gaceta Nº 130 del 6 de julio de 1999, considerando que son construcciones avícolas.
+d) Certificado de uso de suelo, otorgado por la Municipalidad respectiva o por el Instituto Nacional de Vivienda y Urbanismo cuando no exista plan regulador en el cantón.

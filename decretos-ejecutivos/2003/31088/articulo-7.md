@@ -1,0 +1,1 @@
+Artículo 7º—Clasificación de la actividad. De conformidad con el Reglamento Sobre Higiene Industrial y el Reglamento General para el Otorgamiento de Permisos de Funcionamiento por parte del Ministerio de Salud, las granjas avícolas se clasifican como actividades incómodas.

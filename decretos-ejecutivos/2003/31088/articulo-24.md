@@ -1,0 +1,1 @@
+Artículo 24.—Las bodegas para almacenar alimento deberán contar con piso de concreto y paredes de material impermeable, libre de humedad y que impidan el ingreso de insectos y roedores. Cuando no se cuente con bodega para almacenar alimento, el mismo puede almacenarse en tarimas dentro de los galpones.

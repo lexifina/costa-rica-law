@@ -1,0 +1,1 @@
+Artículo 33.—Derogatorias. El presente reglamento deroga el Decreto Ejecutivo N° 30293-S "Reglamento de Granjas Avícolas", publicado en La Gaceta Nº 79 del 25 de abril del 2002 y cualquier otro reglamento, norma o disposición de igual o inferior rango que se le oponga.

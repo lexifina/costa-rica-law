@@ -1,0 +1,1 @@
+Artículo 22.—Las granjas avícolas con instalaciones, cuyo sistema productivo, requiera de un tipo de infraestructura diferente al indicado en el artículo anterior, deberán presentar el proyecto ante la Dirección del Área Rectora de Salud, para su respectivo estudio y aprobación, conforme lo indique este reglamento en cuanto a granjas nuevas y ampliaciones.
