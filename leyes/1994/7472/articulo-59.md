@@ -1,0 +1,2 @@
+Artículo 59.- Pago de gastos.
+Los gastos que origine el congelamiento, el decomiso, el análisis, las pruebas, el transporte y la destrucción de los bienes mencionados en los artículos anteriores, corren por cuenta del infractor. Si no los cubre voluntariamente, la Comisión nacional del consumidor debe certificar el adeudo. Esa certificación constituye título ejecutivo para el cobro coactivo correspondiente.

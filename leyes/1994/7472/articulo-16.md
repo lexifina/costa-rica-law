@@ -1,0 +1,3 @@
+Artículo 16°.-Concentraciones.
+Se entiende por concentración la fusión, la adquisición del control o cualquier otro acto en virtud del cual se concentren las sociedades, las asociaciones, las acciones, el capital social, los fideicomisos o los activos en general, que se realicen entre competidores, proveedores, clientes u otros agentes económicos, con el objeto o efecto de disminuir, dañar o impedir la competencia o la libre concurrencia, respecto de bienes o servicios iguales, similares o sustancialmente relacionados.
+En la investigación de las concentraciones, deben seguirse los criterios de medición de poder sustancial en el mercado relevante, establecidos en esta Ley, en relación con las prácticas monopolísticas relativas.

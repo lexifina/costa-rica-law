@@ -1,0 +1,4 @@
+Artículo 42°.-Verificación en el mercado.
+La Administración Pública debe revisar, periódica y aleatoriamente, los productos y los servicios ofrecidos en el mercado, para constatar que cumplan con las normas y reglamentaciones relativas a la salud, el medio ambiente, la seguridad y la calidad. En las importaciones, la revisión puede realizarse antes de la nacionalización del producto, pero de manera excepcional, a fin de que la revisión no se convierta en un obstáculo no arancelario a las importaciones.
+La Administración Pública puede impedir la importación y la comercialización de productos por razones de seguridad, salud, calidad o conservación del medio ambiente, cuando exista evidencia comprobada de que los bienes no cumplen con los reglamentos técnicos respectivos ni con los estándares de calidad correspondientes.
+Estas labores pueden realizarlas las personas o los organismos acreditados en los términos establecidos en el artículo 8 de esta Ley.

@@ -1,0 +1,2 @@
+Artículo 66°.-Transferencias de recursos.
+Se autoriza a los entes y los órganos de la Administración Pública, cuyas competencias se relacionen con la defensa del consumidor, para transferir fondos de sus presupuestos al Ministerio de Economía, Industria y Comercio, el cual, en coordinación con los Ministerios de Justicia y Gracia y Educación Pública, debe realizar campañas para informar y educar a los consumidores y promover su organización en todo el territorio nacional.

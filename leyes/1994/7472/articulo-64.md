@@ -1,0 +1,7 @@
+Artículo 64°.-Documentos e información.
+Los comerciantes, a requerimiento de la Comisión para promover la competencia, de la Comisión nacional del consumidor y del Ministerio de Economía, Industria y Comercio, están obligados a:
+a) Entregar, con carácter de declaración jurada, los informes y los documentos que se consideren necesarios para garantizar el ejercicio de sus funciones. La información suministrada es confidencial y el funcionario que viole el secreto de los datos confidenciales incurre en falta grave en el ejercicio de sus funciones.
+b) Permitir, en forma gratuita, la toma de muestras de los productos para verificar la calidad o la exactitud de la información suministrada al consumidor.
+La negativa de entrega, la falsedad o la inclusión de datos inexactos o incompletos, en los documentos requeridos, debe ser sancionada como falta grave por las respectivas comisiones, según proceda. Cuando las faltas se cometan en virtud de la solicitud formulada por el Ministerio de Economía, Industria y Comercio, este remitirá esos documentos a la comisión competente para la sanción.
+Las facturas de las ventas a mayoristas deben consignar el nombre del vendedor y del comprador, sus respectivos números de cédula, de persona física o jurídica, así como la identificación de los productos o los servicios transados.
+Los órganos y los entes de la Administración Pública deben suministrar la información que les solicite la Comisión para promover la competencia y la Comisión nacional del consumidor, para el ejercicio de sus funciones.

@@ -1,0 +1,2 @@
+Transitorio IV.- El Ministerio de Educación Pública, dentro del plazo de un año desde la promulgación de esta Ley, debe adecuar los planes de estudio en el primero, segundo y tercer ciclos, incluyendo como contenido el tema: "Los derechos del consumidor", estipulados en el Capítulo V de esta misma Ley.
+Dado en la Presidencia de la República.-San José, a los veinte días del mes de diciembre de mil novecientos noventa y cuatro.
