@@ -14,3 +14,4 @@ Reglamento de Arrendamiento para Locales Comerciales del Instituto Nacional de V
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1955-07-27 | la propia norma |
+| 2 | 1959-03-05 | Decreto Ejecutivo 1 (1959-03-05) |

@@ -1,1 +1,2 @@
-Articulo 3°—La publicación indicará el área, descripción, situación, precio de arriendo y todo otro detalle concerniente al local destinado a comercio.
+Artículo 3°—Con la única salvedad de articulo anterior, para efectuar tales arriendos, el Instituto solicitará las ofertas públicamente y las recibirá durante un plazo mínimo de quince días. La publicación indicará el al descripción, situación, precio de arriendo y todo otro detalle concerniente al local destinado a comercio.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 5° del Decreto Ejecutivo N° 1 de 05 de marzo de 1959, publicado en La Gaceta N° 70 de 31 de marzo de 1959.)
