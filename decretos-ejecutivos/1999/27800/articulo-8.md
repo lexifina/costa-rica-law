@@ -1,0 +1,1 @@
+Artículo 8°—Incentivos. En las áreas ubicadas dentro de los territorios indígenas en la medida de sus posibilidades se otorgarán los incentivos establecidos en la Ley Forestal, previa solicitud de la Asociación de Desarrollo Indígena, cumpliendo para ello con los requisitos legales y técnicos establecidos.
