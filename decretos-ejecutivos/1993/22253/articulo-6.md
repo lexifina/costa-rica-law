@@ -1,0 +1,1 @@
+6°-La Junta Liquidadora de TRANSMESA deberá ordenar la actividad estableciendo las políticas más adecuadas, plazos, términos, medios e instrumentos jurídicos y materiales con el fin de que efectivamente se lleve a cabo el proceso de liquidación.

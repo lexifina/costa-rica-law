@@ -1,0 +1,1 @@
+3°-Los miembros de esta Junta permanecerán en sus cargos hasta la fecha de traslado del proceso de liquidación a manos del Consejo de Seguridad Vial, debiendo concretarse dicho traspaso a más tardar el día treinta y uno de diciembre de mil novecientos noventa y tres, solventándose para tal objeto, cualquier situación no prevista en el presente decreto, mediante simple acuerdo.

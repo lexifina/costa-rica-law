@@ -1,0 +1,1 @@
+11.-Deróguense expresamente los decretos 17120-MOPT del 29 de julio de 1986, 17404-MOPT del 2 de febrero de 1987, 20076-MOPT del 26 de noviembre de 1990, 21711-MOPT del 29 de octubre de 1992 y cualquier otra disposición en lo que se les oponga.

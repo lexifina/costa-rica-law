@@ -1,0 +1,1 @@
+9°-Se incluyen dentro de los gastos de funcionamiento de la empresa Transportes Metropolitanos, Sociedad Anónima (TRANSMESA), el pago de servicios y honorarios profesionales, a las personas o entes jurídicos que trabajaran para la misma en este período de liquidación.

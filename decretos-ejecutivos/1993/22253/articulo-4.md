@@ -1,0 +1,1 @@
+4°-La Junta Liquidadora para el correcto ejercicio y desempeño de sus funciones gozará de amplias facultades legales y podrá requerir el concurso y colaboración tanto de cualquier dependencia pública como de las empresas estatales y sus órganos para el mejor resultado y logro de sus objetivos.
