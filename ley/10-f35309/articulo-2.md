@@ -1,0 +1,1 @@
+Art. 2°-Son atribuciones de la Tesorería General del Ejército, recibir y custodiar los valores que reciba del Tesoro Nacional ó de cualquiera otra fuente, y cubrir las órdenes de pago, expedidas por autoridad competente, de acuerdo con este Reglamento.

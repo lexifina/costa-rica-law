@@ -1,0 +1,1 @@
+Art. 6-La contabilidad se llevará en partida doble, cuando fuere posible, y en caso contrario, se anotarán en un libro, con la debida claridad, las operaciones de entrada y salida, efectuadas en cada cuerpo.
