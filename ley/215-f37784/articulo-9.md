@@ -1,0 +1,2 @@
+Artículo 9°.- La Junta de Control resolverá todas las cuestiones que ocurran en el despacho de los asuntos en que deba concoer, de acuerdo con las prescripciones de esta ley y de la reglamentación que de ella haga el Poder Ejecutivo. Contra la resolución de la Junta de Control cabrá el recurso de apelación ante el Ministerio de Economía y Hacienda, cuya resolución será definitiva.
+La Junta de Control mantendrá absoluta reserva respecto de todas las operaciones que se registren en sus libros.
