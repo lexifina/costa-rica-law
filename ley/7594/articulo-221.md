@@ -1,0 +1,11 @@
+ARTICULO 221.- Peritajes especiales
+Cuando deban realizarse diferentes pruebas periciales, como las
+psicológicas y las médico legales, a mujeres y a menores agredidos, o a
+personas agredidas sexualmente, deberá integrarse, en un plazo breve, un
+equipo interdisciplinario, con el fin de concentrar en una misma sesión
+las entrevistas que requiera la víctima. Antes de la entrevista, el equipo
+de profesionales deberá elaborar un protocolo de ella y designará, cuando
+lo estime conveniente, a uno de sus miembros para que se encargue de
+plantear las preguntas.
+Salvo que exista un impedimento insuperable, en la misma sesión
+deberá realizarse el examen físico de la víctima.

@@ -1,0 +1,13 @@
+ARTICULO 300.- Intervención de la víctima
+Cuando el Ministerio Público decida solicitar la aplicación de un
+criterio de oportunidad o el sobreseimiento, deberá ponerlo en
+conocimiento de la víctima de domicilio conocido que haya pedido ser
+informada de los resultados del procedimiento, para que esta manifieste si
+pretende constituirse en querellante; en este caso, deberá indicarlo por
+escrito dentro de los tres días siguientes.
+La querella deberá presentarse ante el Ministerio Público dentro de
+los diez días siguientes al vencimiento del plazo anterior.
+Recibida la querella, el Ministerio Público la trasladará al tribunal
+del procedimiento intermedio si el imputado hubiera tenido ya oportunidad
+para rendir su declaración; en caso contrario, de previo, le brindará esa
+posibilidad. También trasladará las actuaciones y adjuntará su solicitud.

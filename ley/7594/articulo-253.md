@@ -1,0 +1,17 @@
+ARTICULO 253.- Revisión de la prisión preventiva
+Durante los primeros tres meses de acordada la prisión preventiva su
+revisión sólo procederá cuando el tribunal estime que han variado las
+circunstancias por las cuales se decretó.
+Vencido ese plazo, el tribunal examinará de oficio, por lo menos cada
+tres meses, los presupuestos de la prisión o internación y, según el caso,
+ordenará su continuación, modificación, sustitución por otra medida o la
+libertad del imputado. El incumplimiento del deber de revisión periódica
+sólo producirá la aplicación del régimen disciplinario cuando corresponda.
+Después de transcurrir tres meses de haberse decretado la prisión
+preventiva, el imputado podrá solicitar su revisión cuando estime que no
+subsisten las circunstancias por las cuales se acordó. Sus solicitudes
+interrumpen el plazo señalado en el párrafo anterior.
+Al revisarse la prisión preventiva el tribunal tomará en
+consideración, especialmente, la peligrosidad del imputado y la
+suficiencia de los elementos probatorios para sostener razonablemente que
+es autor de un hecho punible o partícipe en él.

@@ -1,0 +1,17 @@
+ARTICULO 343.- Declaración del imputado
+Después de la apertura de la audiencia o de resueltos los incidentes,
+se recibirá declaración al imputado, explicándole, de ser necesario, con
+palabras claras y sencillas el hecho que se le imputa, con la advertencia
+de que podrá abstenerse de declarar, sin que su silencio le perjudique o
+le afecte en nada y que el juicio continuará aunque él no declare.
+Podrá manifestar cuanto tenga por conveniente, y luego será
+interrogado por el fiscal, el querellante, las partes civiles, la defensa
+y los miembros del tribunal, en ese orden.
+Si incurre en contradicciones respecto de declaraciones anteriores,
+las que se le harán notar, quien preside podrá ordenar la lectura de
+aquellas, siempre que se hayan observado en su recepción las reglas
+previstas en este Código. La declaración en juicio prevalece sobre las
+anteriores, salvo que no dé ninguna explicación razonable sobre la
+existencia de esas contradicciones.
+Durante el transcurso del juicio, las partes y el tribunal podrán
+formularle preguntas destinadas a aclarar sus manifestaciones.
