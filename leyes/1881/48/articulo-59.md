@@ -1,0 +1,1 @@
+Art. 59. – El día en que los Telegrafistas hagan su entrega, acompañarán las listas que correspondan al tiempo que abraza la entrega, debiendo ir sumada la columna que expresa el valor en las listas de telegramas despachados.

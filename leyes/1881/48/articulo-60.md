@@ -1,0 +1,1 @@
+Art. 60. -Para el contraste de los partes que digan “Contestación pagada”, el Telegrafista que los tramita, mandará el día de la entrega a la Dirección General, un giro contra el Telegrafista que tenga estos fondos, debiendo aquel remitir también en cuenta separada, el día de entrega, el valor de los expresados giros.

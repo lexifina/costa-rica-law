@@ -1,0 +1,1 @@
+Art. 36. -Los telegrafistas no trasmitirán los telegramas particulares que contengan noticias de hechos subversivos ó conatos de sedición. En este caso, trasmitirán dichas noticias al Director en Jefe, quien, con conocimiento del telegrama, le mandará dar curso ó lo enviará á la autoridad que corresponda.

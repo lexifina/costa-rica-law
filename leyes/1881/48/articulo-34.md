@@ -1,0 +1,1 @@
+Art.34. –Los particulares tienen derecho á pedir respuesta libre de porte, advirtiendo esto en el tenor del parte; pero depositando en la oficina telegráfica un peso para responder por el valor de la contestación.

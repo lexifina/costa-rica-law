@@ -1,0 +1,1 @@
+Art. 35. -No se trasmitirán los telegramas que contengan insultos, palabras obscenas ó contrarias á las leyes y buenas costumbres. Los telegrafistas manifestarán al interesado el fundamento de su negativa y, para su resguardo, conservarán el original del telegrama.
