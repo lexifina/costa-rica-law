@@ -1,0 +1,1 @@
+Art. 24.-Un Subteniente llevará un galón en la teresiana, de siete milímetros de ancho, y uno igual en el filo de la costura de la bocamanga, bajando en ángulo recto á ocultarse bajo el final de la manga, y una estrella de seis puntas y de trece milímetros de radio, colocada en dicha bocamanga y á treinta milímetros del galón.

@@ -1,0 +1,1 @@
+Art. 28.-El Teniente Coronel llevará dos galones de oro sobre la teresiana y otros dos iguales sobre la manga, y tres estrellas, dos de oro y una de plata, iguales en tamaño á las del Sargento Mayor y colocadas dentro del ángulo de la cartera, ocupando la de plata el último lugar.

@@ -1,0 +1,1 @@
+Art. 22.-Los lutos oficiales se marcarán con una escarapela negra de tres centímetros de diámetro que debe colocarse en el brazo izquierdo á un centímetro de distancia de la hombrera, y los de familia con un crespón negro de cinco centímetros de anchura atado al rededor del mismo brazo y á diez centímetros de la hombrera.

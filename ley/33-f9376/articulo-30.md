@@ -1,0 +1,1 @@
+Art. 30.-Los galones y estrellas de que se habla en los artículos 27, 28 y 29 deben colocarse, los primeros guardando entre sí una distancia de cuatro milímetros, y las segundas distantes treinta milímetros tanto del galón de la manga como entre sí.
