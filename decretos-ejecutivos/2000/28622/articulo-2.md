@@ -1,0 +1,1 @@
+Artículo 2º—Las presentes Especificaciones Técnicas derogan cualquier otra disposición de igual o menor rango, que regule el proyecto de diseño, construcción y operación segura de plantas de almacenamiento y envasado de GLP., excepto las del REGLAMENTO PARA LA REGULACIÓN DEL SISTEMA DE COMERCIALIZACIÓN DE HIDROCARBUROS.

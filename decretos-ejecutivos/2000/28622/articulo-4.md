@@ -1,0 +1,4 @@
+Disposiciones Transitorias
+Artículo 4º—Las plantas de almacenamiento y envasado de GLP que hayan sido construidas antes de la promulgación de este Reglamento, deberán ajustarse a lo aquí estipulado de acuerdo con los siguientes plazos:
+4.1 Ficha técnica de los recipientes de almacenamiento: Las empresas que en la fecha de publicación de este reglamento tengan recipientes que no cuentan con una ficha técnica emitida por el fabricante, tendrán un período de gracia de hasta un año para obtenerla o reconstruirla, la cual debe ser refrendada por un inspector autorizado. Los tanques que no cumplan con los requisitos establecidos anteriormente deberán salir de operación.
+4.2 Readecuación de las instalaciones: las plantas que no cumplan con las presentes especificaciones técnicas, parcial o totalmente, deberán readecuar sus instalaciones en un plazo no mayor de tres años, de conformidad con lo que se señala en el artículo primero.
