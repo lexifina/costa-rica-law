@@ -1,3 +1,3 @@
 CLAUSULA IV
-El Servicio Técnico Especial conocido como STICA continuará funcionando como una entidad dentro del Ministerio de Agricultura e Industrias y subordinado a él desarrollando las actividades de su Departamento de Extensión Agrícola.
-El Chief of Field Party continuará siendo Director de STICA (en lo sucesivo llamado el "Director''). Los miembros del Field Party pueden servir como funcionarios o empleados de STICA en la forma y condiciones que acuerden el Ministro y el Chief of Field Party.
+STICA continuará funcionando como una entidad dentro de y subordinada al Ministerio y continuará siendo-responsable de la administración del programa cooperativo de agricultura. El Chief of Party continuará actuando como Director de STICA (que en adelante se le llamará "Director"). Los miembros del Field Party podrán servir como oficiales o empleados de STICA, según los términos y condiciones que acuerden el Ministerio y el Director
+(Así reformado por el numeral 2 b) del artículo 1° de la Ley N° 1897 del 7 de julio de 1955)
