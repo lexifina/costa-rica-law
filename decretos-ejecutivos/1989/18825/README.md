@@ -14,3 +14,4 @@ Norma Oficial de Calidad para Frijol en Grano.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-02-28 | la propia norma |
+| 2 | 1992-02-12 | Decreto Ejecutivo 21061 (1992-02-12) |

@@ -29,26 +29,25 @@ Esta Norma tiene por objeto establecer las características y calidades que debe
 3.1.1 Clase negro: se entiende por frijol negro todo lote de grano que presente dicho color en una tonalidad uniforme, éste no puede contener más de 5% de frijol de otras clases.
 3.1.2 Clase rojo: se entiende por fríjol rojo todo lote de grano que presente dicho color en una tonalidad uniforme, éste no puede contener más de 5% de frijol de otras clases.
 3.1.3 Clase blanco: se entiende por frijol blanco todo lote de grano que presente dicho color en una tonalidad uniforme, éste no puede contener más de 5% de frijol de otras clases.
-Cuadro N° 1 Grados de calidad del frijol en grano
-Factores de Calidad | % de tolerancias máximas en % masa Según grados de calidad
-| 1° | 2° | 3°
-Humedad(1) | | 13 | 13 | 13
-Impurezas(1) | | 1 | 2 | 3
-Tipo contrastante (2) | | 1 | 3 | 5
-Aflatoxinas (en ppb) * máx. | | 50 | 50 | 58
-Grano dañado (3) | | 1 | 3 | 5
-Grano quebrado | | 0,5 | 0,75 | 1,0
-Grano partido | | 1 | 3 | 5
+Tabla 1. Grados de calidad del frijol en grano
+Factores de calidad | % de tolerancias máximas en % masa, según grados de calidad
+. | 1° | 2° | 3°
+Humedad 1/ | 13 | 13 | 13
+Impurezas 1/ | 0,5 | 2 | 3
+Tipo contrastante 2/ | 1 | 3 | 5
+Aflatoxinas microgramos/kilogramo máx. | 50 | 50 | 50
+Grano dañado total 3/ | 1 | 3 | 5
+Grano quebrado | 0,5 | 0,75 | 1,0
+Grano partido | 0,5 | 3 | 5
 Infestado | | NO SE ACEPTA |
-Otros granos | | 0 | 0,5 | 1,0
+Otros granos | 0 | 0,5 | 1,0
 Dudosamente infestado | | SE ACEPTA |
-Tiempo cocción (minutos) máx. | | 90 | 120 | 150
-*ppb = microgramos/kilogramo.
-0) | En transacciones a granel este factor es un indicador, pudiéndose aplicar castigos mediante negociación entre las partes, en el caso de que el porcentaje sea superior, o bonificación en el caso de ser inferior. En caso de venta directa al consumidor, éste debe cumplirse.
-(2) | Si únicamente el porcentaje de granos contrastantes es superior al máximo de tolerancia, la clase de frijol se clasificará como MEZCLADO, en cualesquiera de las tres categorías, indicándose el porcentaje de la clase prevaleciente.
-(3) | Dentro de estas tolerancias máximas no se aceptará más del 1% de grano picado por insectos.
-NOTA: | La calidad está determinada por el factor que se encuentre en condiciones más desfavorables conforme con la tabla de tolerancias máximas.
-3.1.4 Clase mezclada: esta clase comprende la mezcla de grano de frijol de diversos colores, que contenga más de un 5% de una clase dentro de otras, que no permita ser clasificado como frijol negro, rojo o blanco.
+Tiempo cocción (minutos) máx. | 90 | 120 | 150
+1/ | En transacciones a granel este factor es un indicador, pudiéndose aplicar castigos mediante negociación entre las partes, en el caso de que el porcentaje sea superior, o bonificación en el caso de ser inferior. En caso de venta directa al consumidor, este debe cumplirse.
+2/ | Si únicamente el porcentaje de granos contrastantes es superior al máximo de tolerancia, la clase de frijol se clasificará como mezclado, en cualesquiera de las tres categorías, indicándose el porcentaje de la clase prevaleciente.
+3/ | Dentro de estas tolerancias máximas no se aceptará más del 1% de grano picado por insectos.
+NOTA: La calidad está determinada por el factor que se encuentre en condiciones más desfavorables conforme con la tabla de tolerancias máximas.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 21061 del 12 de febrero de 1992)
 3.2 Por calidad: los factores que se tienen en cuenta para la determinación de las calidades y los factores de clasificación, se presentan en el cuadro N° 1, en el cual se han establecido grados o categorías con las tolerancias porcentuales para cada caso.
 4 Características
 4.1 Características generales: los lotes de granos de frijol que deben ser propios para el consumo humano, deben provenir de variedades legítimas y sanas. Son enteros, limpios, exentos en particular de residuos de abonos, plaguicidas, cualquier cuerpo extraño y deberán corresponder a las indicaciones de calidad.
