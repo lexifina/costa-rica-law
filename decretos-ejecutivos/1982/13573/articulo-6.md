@@ -19,6 +19,4 @@ Grupos étnicos | Reservas Indígenas
 7. Maleku (Guatuso) | Guatuso
 8. Chorotega (Nicoya) | Matambú
 Por tanto, se reconocen así oficialmente 17 reservas indígenas, y 17 comunidades indígenas.
-(NOTAS DE SINALEVI:
-(1. Mediante el artículo 1° del decreto ejecutivo N° 16057 del 3 de diciembre de 1984, se divide la Reserva Indígena Cabécar de Chirripó en dos reservas distintas con los nombres oficiales de Reserva Indígena Cabécar de Chirripó (Chirripó Alto) y Reserva Indígena Cabécar de Bajo Chirripó y artículo 3° modifica el presente artículo de manera a tomar en cuenta lo establecido por el artículo 1° del decreto ejecutivo N° 16057).
-(2. Mediante el artículo 1° del decreto ejecutivo N° 16310 del 16 de mayo de 1985, se establece la Reserva Indígena Guaymí de Osa y artículo 4° modifica el presente artículo de manera a tomar en cuenta lo establecido por el artículo 1° del decreto ejecutivo N° 16310).
+(NOTA DE SINALEVI: Mediante el artículo 1° del decreto ejecutivo N° 16568 del 25 de setiembre de 1985, se constituye la Reserva Indígena de Cocles en una reserva independiente de la Reserva Indígena Bribrí de Talamanca, con el nombre oficial de "Reserva Indígena de Cocles" y artículo 2° modifica el presente decreto de manera a tomar en cuenta lo establecido en el artículo 1° del decreto ejecutivo N° 16568).
