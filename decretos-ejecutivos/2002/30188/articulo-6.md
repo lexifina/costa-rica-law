@@ -1,0 +1,4 @@
+Artículo 6º—Fabricación.
+6.1 Acabado. Tanto el acabado empleado en la fabricación como el montaje de las válvulas contempladas en esta norma, deben ser de primera calidad en todos los aspectos. Una vez ensambladas, las válvulas fabricadas de acuerdo con esta norma deben ser bien terminadas y operar en forma suave.
+6.1.1 Partes intercambiables. Las partes de las válvulas deben diseñarse, y las tolerancias de fabricación deben establecerse de modo que exista intercambiabilidad de los productos de cualquier fabricante, entre unidades del mismo tamaño y tipo, con excepción del ajuste individual de la cuña en el cuerpo.
+6.1.2 Fundiciones. Todas las piezas fundidas deben encontrarse limpias y ser de una calidad adecuada, sin que se presenten defectos que vayan en detrimento de sus condiciones de servicio. No se permitirá el taponamiento, soldadura o reparación de tales defectos.
