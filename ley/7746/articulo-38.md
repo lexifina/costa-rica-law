@@ -1,0 +1,5 @@
+Artículo 38°- Cualquier otro Estado podrá adherirse al Convenio.
+El instrumento de adhesión será depositado en el Ministerio de Asuntos Exteriores del Reino de los Países Bajos.
+Para el Estado que se adhiera al Convenio, este entrará en vigor el día uno del tercer mes siguiente al depósito de su instrumento de adhesión.
+La adhesión tendrá efecto sólo para las relaciones entre el Estado que se adhiera y aquellos Estados contratantes que hayan declarado aceptar esta adhesión. Esta declaración habrá de ser formulada asimismo por cualquier Estado miembro que ratifique, acepte o apruebe el Convenio después de una adhesión. Dicha declaración será depositada en el Ministerio de Asuntos Exteriores del Reino de los Países Bajos; este Ministerio enviará por vía diplomática una copia auténtica a cada uno de los Estados contratantes.
+El Convenio entrará en vigor entre el Estado que se adhiere y el Estado que haya declarado que acepta esa adhesión el día uno del tercer mes siguiente al depósito de la declaración de aceptación.

@@ -1,0 +1,2 @@
+Artículo 39°- Todo Estado, en el momento de la firma, ratificación, aceptación, aprobación o adhesión, podrá declarar que el Convenio se extenderá al conjunto de los territorios a los que representa en el plano internacional, o a uno o a varios de ellos. Esta declaración surtirá efecto en el momento en que el convenio entre en vigor para dicho Estado.
+Esa declaración, así como toda extensión posterior, será notificada al Ministerio de Asuntos Exteriores de los Países Bajos.

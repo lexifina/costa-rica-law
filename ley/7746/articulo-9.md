@@ -1,0 +1,1 @@
+Artículo 9°- Si la Autoridad Central que recibe una solicitud en virtud de lo dispuesto en el artículo 8 tiene razones para creer que el menor se encuentra en otro Estado contratante, trasmitirá la solicitud directamente y sin demora a la Autoridad Central de ese Estado contratante e informará a la Autoridad Central requirente o; en su caso, al solicitante.
