@@ -1,9 +1,3 @@
-ARTICULO 4º.- CONSULTAS:
-Los órganos de la Administración Pública, por medio de los jerarcas
-de los diferentes niveles administrativos, podrán consultar el criterio
-técnico-jurídico de la Procuraduría, debiendo, en cada caso, acompañar la
-opinión de la asesoría legal respectiva.
-La consulta será obligada para el Poder Central, cuando se trate de
-reclamaciones administrativas cuya resolución final pueda ocasionar
-considerables egresos, de acuerdo con la determinación que al efecto se
-hará en el reglamento.
+ARTÍCULO 4º.—CONSULTAS:
+Los órganos de la Administración Pública, por medio de los jerarcas de los diferentes niveles administrativos, podrán consultar el criterio técnico-jurídico de la Procuraduría; en cada caso, deberán acompañar la opinión de la asesoría legal respectiva, salvo el caso de los auditores internos, quienes podrán realizar la consulta directamente.
+(Así reformado por el inciso c) del artículo 45 de la Ley N° 8292 de 31 de julio del 2002, Ley de Control Interno)

@@ -1,19 +1,7 @@
-ARTICULO 71.- PRESCRIPCION DE LA RESPONSABILIDAD DISCIPLINARIA
-La responsabilidad disciplinaria del servidor de la Hacienda Pública
-prescribirá en el plazo de dos años, contados a partir del conocimiento
-comprobado de la falta por parte del órgano competente, para iniciar el
-respectivo procedimiento sancionatorio. Para estos efectos, quedan
-reformados, respecto de los funcionarios o de los servidores públicos, el
-artículo 603 del Código de Trabajo y cualesquiera otras disposiciones
-jurídicas que se le opongan.
-La comprobación del conocimiento de la falta podrá efectuarse por
-cualquier medio de prueba, con el valor que esta tenga, de acuerdo con la
-Ley General de la Administración Pública y, supletoriamente, de acuerdo
-con el derecho común.
-Cuando el autor de la falta sea el jerarca, el plazo empezará a
-correr a partir de la fecha en que él termine su relación de servicio con
-el ente, la empresa o el órgano respectivo.
-Se reputará como falta grave del funcionario competente, para iniciar
-el procedimiento sancionatorio, el no darle inicio a este oportunamente o
-el dejar prescribir la responsabilidad del infractor, sin causa
-justificada.
+Artículo 71.—Prescripción de la responsabilidad disciplinaria. La responsabilidad administrativa del funcionario público por las infracciones previstas en esta Ley y en el ordenamiento de control y fiscalización superiores, prescribirá de acuerdo con las siguientes reglas:
+a) En los casos en que el hecho irregular sea notorio, la responsabilidad prescribirá en cinco años, contados a partir del acaecimiento del hecho.
+b) En los casos en que el hecho irregular no sea notorio –entendido este como aquel hecho que requiere una indagación o un estudio de auditoría para informar de su posible irregularidad- la responsabilidad prescribirá en cinco años, contados a partir de la fecha en que el informe sobre la indagación o la auditoría respectiva se ponga en conocimiento del jerarca o el funcionario competente para dar inicio al procedimiento respectivo.
+La prescripción se interrumpirá, con efectos continuados, por la notificación al presunto responsable del acto que acuerde el inicio del procedimiento administrativo.
+Cuando el autor de la falta sea el jerarca, el plazo empezará a correr a partir de la fecha en que él termine su relación de servicio con el ente, la empresa o el órgano respectivo.
+Se reputará como falta grave del funcionario competente para iniciar el procedimiento sancionatorio, el no darle inicio a este oportunamente o el dejar que la responsabilidad del infractor prescriba, sin causa justificada.
+(Así reformado por el inciso a) del artículo 45 de la Ley de Control Interno, N° 8292 de 31 de julio del 2002)

@@ -1,5 +1,3 @@
 CAPITULO IV
-DEL ORDENAMIENTO DE CONTROL INTERNO
-ARTICULO 59.- DEFINICION
-El ordenamiento de control interno es el conjunto de normas que
-regulan el control dentro de un ente, empresa u órgano públicos.
+Del Ordenamiento de Control Interno
+Artículo 59.- (Derogado por el artículo 46 de la Ley de Control Interno, N° 8292 de 31 de julio del 2002)

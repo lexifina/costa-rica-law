@@ -1,0 +1,3 @@
+Artículo 27.—Asignación de recursos. El jerarca de los entes y órganos sujetos a esta Ley deberá asignar los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que la auditoría interna pueda cumplir su gestión.
+Para efectos presupuestarios, se dará a la auditoría interna una categoría programática; para la asignación y disposición de sus recursos, se tomarán en cuenta el criterio del auditor interno y las instrucciones que emita al respecto la Contraloría General de la República.
+La auditoría interna ejecutará su presupuesto, conforme lo determinen sus necesidades para cumplir su plan de trabajo.

@@ -1,0 +1,3 @@
+Artículo 30.—Jornada laboral. La jornada laboral del auditor y subauditor internos será de tiempo completo. En casos muy calificados, el jerarca podrá solicitar a la Contraloría General de la República una reducción de la jornada, la cual no podrá ser inferior a medio tiempo.
+Las municipalidades cuyo presupuesto ordinario sea igual o inferior a doscientos millones de colones (¢200.000.000,00), podrán contratar, sin la autorización de la Contraloría General de la República, al auditor y al subauditor internos únicamente por medio tiempo.
+Para reducir la jornada laboral de la plaza del auditor o del subauditor internos, el jerarca ordenará un estudio técnico, que deberá presentarse a la Contraloría General de la República, la que resolverá en definitiva lo que proceda.

@@ -1,0 +1,1 @@
+Artículo 10.—Responsabilidad por el sistema de control interno. Serán responsabilidad del jerarca y del titular subordinado establecer, mantener, perfeccionar y evaluar el sistema de control interno institucional. Asimismo, será responsabilidad de la administración activa realizar las acciones necesarias para garantizar su efectivo funcionamiento.

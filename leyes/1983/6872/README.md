@@ -1,6 +1,6 @@
 # Ley sobre el Enriquecimiento Ilícito de los Servidores Públicos
 
-Ley N° 6872 del 1983-06-17. SINALEVI, ficha 7336: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7336&param2=7861&param3=1>.
+Ley N° 6872 del 1983-06-17. SINALEVI, ficha 7336: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7336&param2=7862&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 5 | 1983-06-17 | Ley 6872 | 1983-06-17 |
 | 2 de 5 | 1983-06-17 | SINALEVI | 1983-06-17 |
 | 3 de 5 | 2001-03-07 | SINALEVI | 2001-03-07 |
+| 4 de 5 | 2002-09-04 | Ley 8292 | 2002-07-31 |

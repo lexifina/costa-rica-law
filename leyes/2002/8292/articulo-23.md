@@ -1,0 +1,2 @@
+Artículo 23.—Organización. La auditoría interna se organizará y funcionará conforme lo disponga el auditor interno, de conformidad con las disposiciones, normas, políticas y directrices que emita la Contraloría General de la República, las cuales serán de acatamiento obligatorio.
+Cada auditoría interna dispondrá de un reglamento de organización y funcionamiento, acorde con la normativa que rige su actividad. Dicho reglamento deberá ser aprobado por la Contraloría General de la República, publicarse en el diario oficial y divulgarse en el ámbito institucional.

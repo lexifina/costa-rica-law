@@ -1,0 +1,2 @@
+Artículo 43.—Prescripción de la responsabilidad administrativa. La responsabilidad administrativa del funcionario público por las infracciones previstas en esta Ley, prescribirá según el artículo 71 de la Ley Orgánica de la Contraloría General de la República, Nº 7428, de 7 de setiembre de 1994.
+Se reputará como falta grave del funcionario competente para iniciar el procedimiento sancionatorio, el no darle inicio a este oportunamente o el dejar prescribir la responsabilidad del infractor, sin causa justificada.
