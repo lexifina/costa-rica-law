@@ -1,0 +1,1 @@
+Articulo 3.—Si por su monto el premio obtenido requiere convalidación computarizada, deberá hacerse efectivo en las oficinas centrales de la Junta de Protección Social de San .lose. Si el premio es mayor o igual a un millón de colones (1.000.000) requiere convalidación computarizada.
