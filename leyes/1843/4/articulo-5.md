@@ -1,0 +1,1 @@
+ARTICULO 5°.-Cada compa¤¡a de las que constan los mencionados cuerpos, tendrá un Capitán, dos Tenientes, dos Subtenientes, un Sargento primero, cuatro segundos, cinco Tambores, cornetas o clarines respectivamente, cuatro Cabos primeros, cuatro id. segundos y cien soldados.
