@@ -1,3 +1,4 @@
+(NOTA: Mediante decreto ejecutivo N° 27707 del 15 de febrero de 1999, la República de Costa Rica se adhiere al presente Tratado)
 TRATADO DE COOPERACIÓN EN MATERIA DE
 PATENTES (PCT) Y REGLAMENTO DEL PCT
 ARTÍCULO ÚNICO.- Apruébase, en cada una de sus partes, la adhesión de
