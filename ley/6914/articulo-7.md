@@ -1,0 +1,1 @@
+Artículo 7º.- En lo no contradicho o reformado por esta ley, en cuanto a la Caja Costarricense de Seguro Social, quedan vigentes las leyes Nº 5597 del 19 de abril de 1974 y Nº 4646 del 20 de octubre de 1970.

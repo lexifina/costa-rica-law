@@ -1,0 +1,1 @@
+Artículo 6º.- La sección octava de la Ley Constitutiva de la Caja Costarricense de Seguro Social, denominada "Disposiciones Finales". Pasa a ser, con el mismo nombre, la sección novena, integrada por sus cuatro artículos, cuya numeración se adecuará a las reformas contenidas en el artículo sexto anterior.
