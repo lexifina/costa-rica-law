@@ -1,0 +1,1 @@
+Art.3. Debiendo ser electos para Magistrados de la Corte Superior de Justicia, aquellos individuos de mejores conocimientos y probidad política, á mas de otras circunstancias que la ley exige, pueden las juntas Electorales elegir indistintamente á Ciudadanos de otros partidos, quienes en tal caso no podrán alegar como escusa legítima el no pertenecer al partido que los nombró
