@@ -1,0 +1,2 @@
+Artículo 4°-Apruébanse los siguientes egresos ordinarios, y extraordinarios para el ejercicio fiscal de 1977:
+(Nota de Sinalevi: Por lo extenso de su contenido, consultar el Alcance N° 237 A, a La Gaceta N° 248 del 28 de diciembre de 1976)
