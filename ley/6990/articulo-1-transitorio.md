@@ -1,0 +1,1 @@
+Transitorio I.- Las empresas turísticas que tengan contratos industriales vigentes podrán acogerse a los beneficios de esta ley, en los aspectos no contemplados en su contrato actual, previa firma del contrato público.

@@ -1,0 +1,2 @@
+Transitorio II.- Se autoriza al Instituto Costarricense de Turismo para que, por una sola vez, canjee los vehículos automotores de su propiedad, siempre y cuando tales operaciones no signifiquen gasto adicional para la institución, y siempre que dichos vehículos no tengan una cilindrada mayor de dos mil cc.
+Presidencia de la República.-San José, a los quince días del mes de julio de mil novecientos ochenta y cinco.
