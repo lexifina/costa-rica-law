@@ -1,0 +1,1 @@
+Art. 4. La devolucion de que habla el art. anterior se hará en vales por los ministros de la tesoreria general con presencia de las listas que existen en esta y de los documentos con que se presenten los interesados dentro del preciso término de tres mesas, pasado el cual no se hará ninguna indemnizacion ni admitir ningun reclamo respecto de la contribucion indicada.
