@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-La disposición anterior comprende también las ventas de terrenos baldíos situados dentro de una zona de dos leguas de ancho, paralela a la milla reservada, a orillas de los esteros y ríos navegables que desagüen en cualquiera de los Océanos mencionados.
