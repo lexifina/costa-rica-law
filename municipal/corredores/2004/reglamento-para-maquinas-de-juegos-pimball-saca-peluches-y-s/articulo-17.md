@@ -1,0 +1,1 @@
+Artículo 17.—Las licencias para máquinas de juegos según este reglamento tendrán de vigencia un año, las cuales cumplido el plazo, podrán ser renovadas presentando con antelación los requisitos que solicite el Departamento de Rentas.

@@ -1,0 +1,1 @@
+Artículo 11.—Queda prohibida la ubicación de estas máquinas de juego en lugares situados a menos de cien metros de templos religiosos o de centros de salud y de enseñanza, la medida se tomará a partir de donde se encuentra el local de juegos hasta la esquina más cercana del inmueble que interesa.

@@ -1,0 +1,1 @@
+Artículo 3º—Son absolutamente prohibidos los juegos y diversiones que se realicen en máquinas en que la ganancia del jugador depende, únicamente de un mecanismo automático incontrolable o de la suerte, y no dependa en algún grado de la habilidad o destreza del jugador.

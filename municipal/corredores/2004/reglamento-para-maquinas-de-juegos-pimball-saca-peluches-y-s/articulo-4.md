@@ -1,0 +1,1 @@
+Artículo 4º—Son permitidas en forma totalmente restringidas, las máquinas que simulen juegos deportivos o de destreza, en las que el jugador participe con su habilidad y mediante el pago de monedas o fichas.

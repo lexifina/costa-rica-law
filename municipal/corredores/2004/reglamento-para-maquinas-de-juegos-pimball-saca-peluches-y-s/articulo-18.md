@@ -1,0 +1,1 @@
+Artículo 18.—Cumplido el plazo dado a la licencia, sin haberse renovado el mismo, el Departamento de Rentas procederá a la clausura del local sin responsabilidad, por infracción al artículo 79 del Código Municipal

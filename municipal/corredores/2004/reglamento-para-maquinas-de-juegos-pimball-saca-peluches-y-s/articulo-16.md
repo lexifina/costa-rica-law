@@ -1,0 +1,1 @@
+Artículo16.—Las patentes que se otorguen para la explotación de las máquinas de juegos mencionadas en este Reglamento, serán exclusivas, y no se permitirá, so pena de clausura inmediata, de que en el mismo local donde se encuentren, se otorgue o haya otra clase de patente comercial.
