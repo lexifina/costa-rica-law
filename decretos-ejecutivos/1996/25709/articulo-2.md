@@ -1,0 +1,1 @@
+Artículo 2°-El Ministerio de Educación Pública y la Caja Costarricense de Seguro Social tendrán a su cargo la coordinación e implementación de las actividades pertinentes para la respectiva celebración.
