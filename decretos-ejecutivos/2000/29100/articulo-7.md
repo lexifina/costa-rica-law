@@ -1,0 +1,1 @@
+Artículo 7°-El Laboratorio Nacional de Aguas de A y A deberá realizar los controles de calidad permanentes en los sistemas comunales y ordenar las correcciones que procedan, conforme con lo dispuesto en el Decreto N° 26066-S, publicado en La Gaceta N° 109 del 9 de junio de 1997.

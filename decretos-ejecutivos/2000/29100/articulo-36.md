@@ -1,0 +1,1 @@
+Artículo 36.-La Asamblea General podrá acordar el pago de dietas a los miembros de la Junta Directiva y Fiscal, no obstante los montos deberán ser previamente aprobados o modificados por la Junta Directiva de A y A.

@@ -1,0 +1,1 @@
+Artículo 34.-La Asociación deber proceder con sus trabajadores de conformidad con las normativas y garantías laborales vigentes. La relación laboral se establecer entre el trabajador y la Asociación, sin ningún vínculo con A y A.

@@ -1,0 +1,1 @@
+Artículo 49.-Se deroga el Reglamento de los Comités Administradores de Acueductos Rurales número 6387-G, publicado en La Gaceta N° 235 del 8 de diciembre de 1977, así mismo se deja sin ningún valor ni efecto legal el Reglamento emitido por la Junta Directiva de A y A, publicado en La Gaceta N° 28 del 10 de febrero de 1997.

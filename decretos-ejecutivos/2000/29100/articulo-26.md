@@ -1,0 +1,1 @@
+Artículo 26.-La deuda proveniente del servicio de acueducto y alcantarillado sanitario impone hipoteca legal sobre el bien o bienes en que recae la obligación de pagarlo, de conformidad con el artículo 12 de la Ley General de Agua Potable N° 1634 de 18/09/1953 y artículo 4° de la Ley 5595 del 17 de octubre de 1974.

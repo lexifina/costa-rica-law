@@ -1,0 +1,1 @@
+Artículo 14.-A y A establecer los principios fundamentales y obligatorios a los que se someter n las Asociaciones para poder aspirar a la administración del sistema, los cuales deberán estar contenidas en los estatutos para poder delegar la administración del respectivo sistema y, en esa forma, garantizar el cumplimiento de las normas técnicas para la prestación del servicio.

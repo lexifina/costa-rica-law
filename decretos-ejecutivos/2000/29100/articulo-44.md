@@ -1,0 +1,1 @@
+Artículo 44.-Los miembros del ente operador trabajarán en paz y armonía para lograr el mayor progreso y bienestar de la comunidad de conformidad con la presente normativa y de acuerdo con los principios de un servicio público eficiente y continuo.

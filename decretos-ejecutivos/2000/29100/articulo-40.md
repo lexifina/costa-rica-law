@@ -1,0 +1,1 @@
+Artículo 40.-Todo usuario o interesado, podrá formular peticiones a la Junta Directiva de la Asociación, la cual debe resolver y contestar dentro de los plazos que al efecto determina la Ley General de Administración Pública.

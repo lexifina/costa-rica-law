@@ -1,0 +1,1 @@
+Artículo 16.-Para constituir la Asociación, se convocar a todos los vecinos usuarios de los sistemas, para que en Asamblea la constituyan conforme con las leyes, nombren su Junta Directiva y adopten el respectivo acuerdo de solicitar al A y A que delegue en ella, la administración, operación y financiamiento de los sistemas.

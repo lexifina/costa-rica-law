@@ -1,0 +1,1 @@
+Artículo 10.-No se permite construir edificaciones permanentes ni sembrar árboles encima de las tuberías de los sistemas de acueductos y alcantarillados, a efectos de evitar riesgos a la seguridad de las personas y bienes, y en ese sentido deberán disponerlo las respectivas Municipalidades del país.

@@ -1,0 +1,1 @@
+Artículo 19.-Corresponde a la Dirección Regional de A y A donde se encuentre el sistema delegado, realizar todos los estudios, presupuestos, gestiones, actividades, asesorías, intervenciones y controles que establece este reglamento, para lo cual contar con el apoyo de todas las unidades institucionales.

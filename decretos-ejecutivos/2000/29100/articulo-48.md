@@ -1,0 +1,1 @@
+Artículo 48.-El A y A firmar un Convenio con las Asociaciones Administradoras de acueductos y alcantarillados, en el cual se especificar n las contraprestaciones de ambos, las cuales estarán sujetas al presente Reglamento, y derogar los convenios firmados con la Asociación de Desarrollo Comunal de cada lugar.

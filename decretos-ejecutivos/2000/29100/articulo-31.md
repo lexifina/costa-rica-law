@@ -1,0 +1,1 @@
+Artículo 31.-La contratación de personal para los servicios administrativos de los entes operadores se realizar con base en el n£mero de clientes que posea el sistema, de acuerdo a la siguiente tabla: Cantidad de clientesTiempo a contratar Menos de 51 6 horas semanales 51 a 151 12 horas semanales 151 a 300 24 horas semanales Más de 300 Tiempo completo semanal

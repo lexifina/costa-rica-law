@@ -1,0 +1,1 @@
+Artículo 18.-La Asociación Administradora deber tener como único y específico fin, la administración del sistema por delegación de A y A. Por lo tanto no podrá dedicarse a fines distintos a la administración de sistemas de acueductos y /o alcantarillados. Lo anterior incluye el uso de recursos financieros generados por el sistema en cuestión.

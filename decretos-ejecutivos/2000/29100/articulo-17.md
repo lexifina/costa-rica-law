@@ -1,0 +1,1 @@
+Artículo 17.-La constitución, organización, plazo de vigencia, personería de la Asociación se regirá por la Ley de Asociaciones N° 218, sus modificaciones y reglamento. Corresponde al Registro Nacional del Registro Público inscribe las Asociaciones Administradoras, acreditar su personería y vigencia, debiendo presentar ante esta entidad los estatutos y sus modificaciones.

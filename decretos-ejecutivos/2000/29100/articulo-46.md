@@ -1,0 +1,1 @@
+Artículo 46.-Los servicios que brinden las Asociaciones Administradoras de Acueductos se regirán de conformidad con el Reglamento de Prestación de Servicios a los Clientes de A y A vigente y se aplicar en lo pertinente a los entes operadores regulados por la presente normativa.

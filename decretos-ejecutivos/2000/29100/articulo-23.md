@@ -1,0 +1,1 @@
+Artículo 23.-A y A unilateralmente podrá rescindir en cualquier momento el convenio de Delegación de la Administración y asumir de pleno derecho la administración del sistema, para lo cual proceder de conformidad con lo establecido en el artículo 4 de este Reglamento.
