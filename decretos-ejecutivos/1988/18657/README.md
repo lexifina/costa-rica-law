@@ -14,3 +14,4 @@ Norma Oficial de Nomenclatura de Frutos y Productos Hortícolas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-01-04 | la propia norma |
+| 2 | 1990-10-03 | Decreto Ejecutivo 19980 (1990-10-03) |

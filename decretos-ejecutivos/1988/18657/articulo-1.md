@@ -173,7 +173,7 @@ La presente norma tiene por objeto fijar la nomenclatura costarricense de los fr
 2.157 | Mangostán | Garcinia mangostana | Mangosteen | Mangoustan
 2.158 | Madi | Arachis hypogaea | Pelanut | Cacahuete
 2.159 | Manzana | Malus pumila | Apple | Pomdle
-2.160 | Manzana de agua | Syzygium aqueum | Water apple |
+2.160 (Así reformado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 19980 del 03 de octubre de 1990). | Manzana de agua | Syzyglum aqueum | Water apple | Jambo ayer
 2.161 | Manzana rosa | Syzygium jambos | Rose Apple | Pomme-rose
 2.162 | Marañón | Anacardium occidentale | Cashew | Cajou, anacarde
 2.163 | Manzanilla | Matricaria chamomilla | Camomile | Camomille
@@ -187,7 +187,7 @@ La presente norma tiene por objeto fijar la nomenclatura costarricense de los fr
 2.170 | Mimbro bilimbi | Averrohoa bilimbi | Bilimbi | Bilimbi
 2.171 | Mora | Rubus frutticosus | Blackberry | Mure
 2.172 | Mostaza | Brassica spp. | Mustard | Moutarde
-2.173 | Nabo | Brassica napus var. napobrassica | Rutabaga | Rutabaga
+2.173 (Así reformado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 19980 del 03 de octubre de 1990). | Nabo | Brasicca napus var. napo brassica | Turnip | Rutabaga
 2.174 | Nance | Byrsonima crassifolia | Yellow Spoon | Maurissi
 2.175 | Naranja | Citros sinensis | Orange | Orange
 2.176 | Naranja agda | Citrus aurantium | Bitter orange, sour orange | Bigarade
@@ -220,10 +220,10 @@ La presente norma tiene por objeto fijar la nomenclatura costarricense de los fr
 2.203 | Piñón | Pinus pinea | Pine seed, stone pine | Pignon
 | Nombre español | Nombre latín | Nombre inglés | Nombre francés
 2.204 | Pistacho | Pistacia vera | Pistachio | Pistache
-2.205 | Pitanga | Eugenia uniflora | Surinam cherry |
+2.205 (Así reformado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 19980 del 03 de octubre de 1990). | Pitanga | Eugenia uniflora | Surinam cherry | Cérise de cayenne, cérise carre
 2.206 | Plátano | Musa AAB | Platan(e), platain | Pla(ta)ne, platain
-2.207 | Puerro | Allium porro | Leek | Poireau
-2.208 | Pulasán | Nephelium mutabile | Pulasan |
+2.207 (Así reformado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 19980 del 03 de octubre de 1990) | Puerro | Allium porrum | Leek | Poireau
+2.208 (Así reformado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 19980 del 03 de octubre de 1990). | Pulasán | Nephelium mutabile | Pulasan | Kapulusan
 2.209 | Quina | Cinchona oficinalis | Quinine | Quine
 2.210 | Rábano | Raphanus sativus | Radish | Radis
 2.211 | Rabisa | Vigna unguiculata | Cowpea | Pois a voache
@@ -248,7 +248,7 @@ La presente norma tiene por objeto fijar la nomenclatura costarricense de los fr
 2.230 | Tomate de palo | Cyphomoandrabetace.a | Tree tomato | Tomate en arbre
 2.231 | Tomillo | Thymus vulgaris | Thyme | Thym
 2.232 | Toronja pomelo | Citrus paradisi | Grapefruit | Pomelo
-2.233 | Toronja criolla | Citros grandis | |
+2.233 (Así reformado el numeral anterior mediante el artículo 1° del decreto ejecutivo N° 19980 del 03 de octubre de 1990). | Toronja cr iolla | Citrus grandis | Pummelo, shaddock | Pampelmousse
 2.234 | Toronjillo | Melissa officinalis | Balm, lemon balm | Mélisse
 2.235 | Trigo | Triticum spp. | Wheat | Blé
 2.236 | Tuna, nopal | Opuntia ficus indica | Prickly pear | Figue de Barbarie
@@ -259,47 +259,6 @@ La presente norma tiene por objeto fijar la nomenclatura costarricense de los fr
 2.241 | Verdolaga | PortuIaca oLarecea | Purslane |
 2.242 | Yerba buena | Lamiceae mentboa | Mint | Menthe
 2.243 | Yuca | Manihot esculenta | Oassava | Yucca
-| Nombre español | Nombre latín | Nombre inglés | Nombre francés
-2.204 | Pistacho | Pistacia vera | Pistachio | Pistache
-2.205 | Pitanga | Eugenia uniflora | Surinoam che. |
-2.206 | Plátano | Musa AAB | Plat.aD.(e), platain | Pla(ta)ne. platain
-2.207 | Puerro | Allium porro | Leek | Poireeu
-2.208 | Pulasán | Nephelium mutabile | Pulasan |
-2.209 | Quina | Cinchona officinalis | Quinine | Quine
-2.210 | Rábano | Rapbanus sativus | Radish | Radis
-2.211 | Rabisa | Vigna unguiculata | Cowpea | Pois a vache
-2.212 | Remolacha | Beta vulgaris | Beet | Betterave
-2.213 | Repollo | Brassica oleracea var. capitata | Cabbage, ole | Chou.vert
-2.214 | Romero | Rosmarinus officinalis | Rosemary | Romarin
-2.215 | Ruibarbo | Rheum rhabarbarum | Rhubarb | Rhubarbe
-2.216 | Salvia | Salvia officin.alis | Sage | Sauge
-2.217 | Sandía | Citrullus vulgaris | Watermelon | Pastéque
-2.218 | Seso vegetal | Blighia Eapida | Akee | Akee
-2.219 | Soncoyoa | Annon.a purpurea | Soncoya |
-2.220 | Sorrel | Hibiscus sabdariffa | Roselle |
-2.221 | Sorgo | Sorghum vulgare | Sorgbum | Sorgho
-2.222 | Soya. soja | GIycine max. | Soybean | Soja
-2.223 | Súrtuba | Geonoma spp. | Surtuba . |
-2.224 | Tabaco | Polaltowskia taceco | |
-2.225 | Tamarindo | Toamarindus indice | Tamarind | Tamarin
-2.226 | Té | Thea sinensis | Tea | Thé
-2.227 | Tiquisque blanco | Xanthosoma agittifolium | Dasheen | Taro
-2.228 | Tiquisque lila, rojo | Xantbosoma violaccum | Cocoyan |
-2.229 | Tomate | Lycopersicon scwentum | Tomato | Tomate
-2.230 | Tomate de palo | Cypbomoandra betacee | Tree tomato | Tomate en arbre
-2.231 | Tomillo | Thymus vulgaris | Thyme | Thym
-2.232 | Toronja, pomelo | Citrus paradisi | Grapefruit | Pomelo
-2.233 | Toronja criolla | Citrus grandis | |
-2.234 | Toronjil | Melissa officinalis | Balm. Lemon balm | Mélisse
-2.235 | Trigo | Triticum spp. | Wheat | Blé
-2.236 | Tuna. nopal | Opuntia ficus índice | Prickly peoar | Figue de Barbarie
-2.237 | Uva | Vitis vinifera | Grape | Raisin
-2.238 | Uvilla | Pouroma cecropiaefolia | |
-2.239 | Vainicas | Pbaseolus vulgaris | Snap beoan | Haricots
-2.240 | Vainilla | Vanilla tragaos | Vanilla | Vanille
-2.241 | Verdolaga | Portulaca olarecea | Purslane |
-2.242 | Yerbabuena | Lamiceae mentba | Mint | Menthe
-2.243 | Yuca | Manihot escuIenta | Cassava | Yucca
 | Nombre español | Nombre latín | Nombre inglés | Nombre francés
 2.244 | Yumplón, yuplón | Spondia citaedera | Golden apple |
 2.245 | Zanahoria | Daucus carota | Carrot | Carotte
