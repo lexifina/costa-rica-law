@@ -1,0 +1,1 @@
+Artículo 3º—La presente indemnización se fija en la suma de ¢150.000,00 exactos, con base en lo establecido por el perito nombrado por parte del estado, así como el pago efectuado por Jagus, S. A. Por medio de depósito Nº 04506268 el día 22 de octubre del 2001 en el Banco Nacional de Costa Rica, por la cantidad indicada lo cual consta en el expediente.
