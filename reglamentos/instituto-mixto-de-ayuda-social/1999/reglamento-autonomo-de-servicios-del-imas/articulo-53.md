@@ -1,0 +1,1 @@
+Artículo 53.—Quedan excluidos de la jornada ordinaria establecida en el presente reglamento, todos aquellos servidores que puedan considerarse incluidos dentro de los casos previstos en el artículo 143 del Código de Trabajo.

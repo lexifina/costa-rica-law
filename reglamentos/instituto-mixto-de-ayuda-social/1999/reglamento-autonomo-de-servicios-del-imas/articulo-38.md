@@ -1,0 +1,1 @@
+Artículo 38.—De la remuneración total deben hacerse las deducciones obligadas por la ley y cualesquiera otras autorizadas por el funcionario, o por una autoridad judicial, según la disponibilidad del sistema de pagos vigente en la institución y hasta un máximo de un cincuenta por ciento de su salario total.

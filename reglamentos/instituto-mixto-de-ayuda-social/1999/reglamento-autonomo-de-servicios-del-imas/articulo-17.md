@@ -1,0 +1,1 @@
+Artículo 17.—Todos los funcionarios de la Institución, se verán sometidos a la evaluación del desempeño de sus labores de conformidad con los instrumentos y técnicas que defina Recursos Humanos y al Reglamento de la Evaluación del Desempeño del IMAS.

@@ -1,0 +1,1 @@
+Artículo 144.—La administración podrá fijar incentivos complementarios al salario para los servidores de las Tiendas Libres de Derechos que tiendan a estimular un mayor nivel de ventas y a garantizar una mayor eficiencia en la prestación del servicio, previa autorización de la Autoridad Presupuestaria.

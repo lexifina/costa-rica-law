@@ -1,0 +1,1 @@
+Artículo 82.—El lapso de incapacidad por enfermedad o riesgo de trabajo y en los casos de licencias por maternidad, no se tomará en cuenta para deducirlo del período de vacaciones que le corresponde a los servidores.

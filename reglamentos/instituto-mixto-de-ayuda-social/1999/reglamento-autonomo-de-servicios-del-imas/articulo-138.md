@@ -1,0 +1,2 @@
+Artículo 138.—En defecto de lugar señalado para notificaciones por parte del funcionario, se entenderá por bien realizada toda notificación que se haga en la sede de trabajo del servidor o en el último domicilio indicado por él en su expediente personal.
+Solamente deberá notificarse en forma personal o mediante correo certificado la resolución que dé inicio o finalice el procedimiento administrativo. En caso de imposibilidad de notificar al servidor por dichos medios, el acto se comunicará mediante publicación en el Diario Oficial.

@@ -1,0 +1,1 @@
+Artículo 30.—El IMAS de conformidad con sus posibilidades presupuestarias, brindará a sus servidores los servicios de atención médica y psicosocial que se consideren necesarias para la Institución y sus trabajadores.

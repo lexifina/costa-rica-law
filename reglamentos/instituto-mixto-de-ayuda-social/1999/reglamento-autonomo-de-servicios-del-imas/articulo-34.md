@@ -1,0 +1,1 @@
+Artículo 34.—Los expedientes médicos, psicológicos y sociales de los funcionarios que al efecto llevará Recursos Humanos están protegidos por la confidencialidad que establece la ética de cada profesión.

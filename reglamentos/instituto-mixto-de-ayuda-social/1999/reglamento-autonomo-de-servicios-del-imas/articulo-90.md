@@ -1,0 +1,1 @@
+Artículo 90.—En caso de que se amerite prorrogar incapacidades, para efectos del subsidio ante la Caja Costarricense del Seguro Social, el Instituto Nacional de Seguros o las Instituciones competentes, el funcionario deberá realizar los trámites necesarios para ello.

@@ -1,0 +1,1 @@
+Artículo 16.—La descripción de las labores correspondientes a cada cargo no deberá considerarse taxativa sino tan sólo representativa del cargo que se desempeña, por lo que cualquier aplicación de la misma será válida en la medida que guarde relación con las labores descritas y con la capacidad, nivel de clasificación, preparación y requisitos del servidor que las desempeñará.

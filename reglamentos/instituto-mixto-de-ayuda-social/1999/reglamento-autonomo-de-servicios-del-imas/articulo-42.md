@@ -1,0 +1,1 @@
+Artículo 42.—El IMAS fijará los medios de pago de salarios de su personal, con arreglo a los métodos más económicos y eficientes que procedan, y a lo dispuesto en el ordenamiento jurídico de esta materia.

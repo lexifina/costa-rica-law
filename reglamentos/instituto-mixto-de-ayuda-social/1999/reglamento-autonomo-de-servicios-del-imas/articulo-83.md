@@ -1,0 +1,1 @@
+Artículo 83.—Las vacaciones son incompensables en dinero, y solo podrán ser suspendidas por necesidad institucional solamente una vez, cuando exista grave amenaza al servicio público y no exista otro funcionario que pueda cumplir las labores del servidor.

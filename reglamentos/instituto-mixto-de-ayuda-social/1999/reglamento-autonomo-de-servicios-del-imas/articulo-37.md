@@ -1,0 +1,1 @@
+Artículo 37.—Salvo norma expresa en contrario, y en el tanto se reúna los requisitos necesarios para el mismo, la fecha para conceder cualquier derecho laboral será a partir de la fecha de presentación de la solicitud por parte del servidor, ante la unidad administrativa competente para su resolución.

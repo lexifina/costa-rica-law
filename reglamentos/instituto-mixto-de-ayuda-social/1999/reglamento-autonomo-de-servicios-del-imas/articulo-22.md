@@ -1,0 +1,1 @@
+Artículo 22.—La carrera administrativa de los funcionarios de la Institución, se regirá de conformidad con lo estipulado por el reglamento de reclutamiento y selección del Recurso Humano de los servidores del IMAS, el Manual de Clases y de Cargos Institucional, el Reglamento de Capacitación y cualesquiera otros que la Institución necesite y pueda aplicar.

@@ -1,0 +1,1 @@
+Artículo 142.—El agotamiento de la vía administrativa deberá contar, de previo, con el dictamen de Asesoría Jurídica, la cual deberá emitirlo dentro de los seis días hábiles siguientes al recibido de la solicitud de criterio.

@@ -1,0 +1,2 @@
+Artículo 71.—Se considerarán días feriados aquellos que sean indicados por la ley y los que el Poder Ejecutivo declare de asueto. Se exceptúan del disfrute de estos días, aquellos servidores que por la naturaleza de sus funciones deban laborarlos, en cuyo caso tendrán derecho al pago de tiempo extraordinario de acuerdo con la normativa vigente.
+Podrá trabajarse en los días no hábiles, siempre y cuando ello fuere necesario y según lo regulado en el artículo 151 del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 46.—El IMAS cancelará, en el caso de los trabajadores que queden cesantes, la liquidación de sus extremos laborales que correspondan, como máximo al mes siguiente de su retiro o a la finalización de la prestación de servicios.

@@ -1,0 +1,3 @@
+Artículo 57.—La asistencia y puntualidad de los funcionarios del IMAS será registrada personalmente por éstos y por cualquier medio manual, electromagnético u otro, que la Institución establezca al efecto.
+No obstante, en aquellas unidades administrativas o en situaciones en que no pueda ser empleado dicho sistema de control, Recursos Humanos podrá autorizar el emplear otros sistemas de fiscalización que garanticen al servidor objetividad y veracidad en su control.
+Salvo desperfecto del reloj o del sistema que se utilice, según el caso, el registro defectuoso o confuso de la asistencia a labores se tendrá por no realizado, para los efectos legales correspondientes.

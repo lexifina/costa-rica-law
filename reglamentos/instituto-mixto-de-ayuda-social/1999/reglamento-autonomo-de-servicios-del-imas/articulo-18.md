@@ -1,0 +1,2 @@
+Artículo 18.—El resultado de la evaluación del desempeño durante el período respectivo se dará en orden de mérito de cada uno de los funcionarios, como: sobresaliente, muy bueno, satisfactorio, insuficiente e inaceptable.
+Los factores que conforman la evaluación del desempeño podrán ser modificados o cambiados por Recursos Humanos previa aprobación de la Administración, con el fin de que los mismos se adecuen a las circunstancias propias de la Institución.

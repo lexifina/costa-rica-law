@@ -1,0 +1,1 @@
+Artículo 69.—El servidor deberá notificar por cualquier medio a su superior jerárquico o en su defecto al sustituto de este, la causa de su ausencia al trabajo en el mismo día en que esta ocurra. Sólo en casos de fuerza mayor debidamente demostradas, podrá el servidor notificar con posterioridad su ausencia.

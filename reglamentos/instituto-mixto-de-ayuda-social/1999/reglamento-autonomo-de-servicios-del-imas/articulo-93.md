@@ -1,0 +1,1 @@
+Artículo 93.—En todos los casos de licencia, con o sin goce de salario, la autorización y comprobantes respectivos, deberán ser remitidos a Recursos Humanos, por parte del superior jerárquico, para su valoración y control respectivo, y previo a su disfrute.

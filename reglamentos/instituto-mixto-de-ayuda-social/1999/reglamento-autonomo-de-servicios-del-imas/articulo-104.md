@@ -1,0 +1,1 @@
+Artículo 104.—En caso de incumplimiento del respectivo contrato de estudios el servidor deberá responder ante la Administración por todos los daños y perjuicios que se hayan originado por dicho incumplimiento, y se procederá a la aplicación del procedimiento que señala la Ley General de la Administración Pública.

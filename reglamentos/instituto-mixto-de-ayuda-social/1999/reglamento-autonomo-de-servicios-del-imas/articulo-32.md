@@ -1,0 +1,1 @@
+Artículo 32.—Todos los servidores están obligados a suministrar la información que se les solicite en forma verídica, rápida y actualizada. Incurrirá en causal de despido según lo previsto en el Art. 81, incisos j y l del Código de Trabajo quien alterase documentos o información contenida en los mismos.

@@ -1,0 +1,1 @@
+Artículo 120.—Los servidores del IMAS tendrán derecho de un día al año para participar en la celebración del día del funcionario u de otros, así como aquel que se efectúe para la integración y convivio de los funcionarios al final de cada año.

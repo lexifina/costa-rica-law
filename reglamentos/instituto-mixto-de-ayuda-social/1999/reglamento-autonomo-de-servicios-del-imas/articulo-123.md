@@ -1,0 +1,1 @@
+Artículo 123.—El IMAS conforme a las posibilidades financieras y limitaciones en materia presupuestaria, mantendrá su política para el financiamiento de actividades de formación cultural para sus trabajadores, de acuerdo a los programas formalmente establecidos.

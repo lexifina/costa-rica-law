@@ -1,0 +1,2 @@
+Artículo 27.—El equipo técnico de Recursos Humanos, deberá elaborar un plan de acción tendiente a realizar actividades de formación humanística, intelectual y recreativa, que les permita a los trabajadores, el desarrollo de sus aptitudes, actitudes y a la problemática social de éstos.
+La Administración otorgará los recursos necesarios para el desarrollo de tales actividades, de conformidad con su disponibilidad presupuestaria.

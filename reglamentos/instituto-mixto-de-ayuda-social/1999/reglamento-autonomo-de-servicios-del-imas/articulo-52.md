@@ -1,0 +1,6 @@
+Artículo 52.—Las labores realizadas fuera de la jornada ordinaria sólo podrán ser remuneradas en situaciones excepcionales por la administración, de conformidad con las siguientes consideraciones:
+a. Que se encuentren debidamente autorizadas por la jefatura inmediata, siguiendo el procedimiento establecido al efecto, y de conformidad con los lineamientos de política salarial emitidos por el Poder Ejecutivo.
+b. Que el tiempo laborado no sea utilizado para subsanar errores del servidor.
+c. Que el reporte de la jefatura de las horas extras laboradas, sea remitido a la unidad administrativa correspondiente dentro de los cinco días hábiles siguientes al mes en que se realizaron.
+d. Que en el reporte de la jefatura se motive o explique detalladamente en qué fueron o serán empleadas las horas extras.
+En casos muy calificados, previa anuencia del servidor y en coordinación con la jefatura correspondiente, el equipo técnico de recursos humanos podrá compensar las labores realizadas en horas extraordinarias o en días no hábiles por tiempo de descanso en días hábiles proporcional a las horas laboradas. Para tal efecto, se aplicará el mecanismo de cálculo utilizado para definir el número de horas extraordinarias, bajo el procedimiento que Recursos Humanos determine.

@@ -1,0 +1,1 @@
+Artículo 12.—Los superiores jerárquicos de las unidades administrativas a que pertenezca el puesto, previo cumplimiento del procedimiento correspondiente, serán los responsables de la selección final de los candidatos sometidos a su conocimiento por parte de Recursos Humanos, a ser funcionarios del IMAS a tiempo indeterminado o a plazo fijo.

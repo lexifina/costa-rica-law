@@ -1,0 +1,1 @@
+Artículo 2º—Las normas, disposiciones y procedimientos contenidos en el presente reglamento, son de aplicación obligatoria en todas las acciones que se relacionen con los derechos, beneficios y obligaciones de los servidores del IMAS.

@@ -1,0 +1,2 @@
+Artículo 141.—La sanción impuesta al servidor será eficaz a partir del momento en que se comunique al servidor la resolución en firme de la administración y contra ésta no cabrá ningún recurso.
+El recurso de reposición no impedirá la ejecución del acto, pero dará derecho a la indemnización de los daños y perjuicios causados en caso de ser declarado con lugar. Lo anterior, sin perjuicio de la posibilidad que tiene la administración de oficio o a petición de parte, para suspender interlocutoriamente los efectos del acto impugnado.

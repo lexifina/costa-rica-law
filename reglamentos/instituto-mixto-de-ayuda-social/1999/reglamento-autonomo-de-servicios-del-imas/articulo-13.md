@@ -1,0 +1,1 @@
+Artículo 13.—El nombramiento y remoción de los servidores del IMAS será responsabilidad de la Gerencia Administrativa Financiera. Los puestos de Dirección Superior, Auditor Interno, Subauditor y empleados de confianza se regularán por lo que establezcan las leyes o decretos correspondientes.

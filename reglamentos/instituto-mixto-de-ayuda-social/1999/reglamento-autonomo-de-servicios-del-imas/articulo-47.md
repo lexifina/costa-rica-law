@@ -1,0 +1,1 @@
+Artículo 47.—En el caso de que por un error demostrado, se de un pago de más por concepto de salario, este se deducirá en las cuotas que recursos humanos determine de conformidad con la legislación vigente, previa comunicación que al respecto se le realizará al servidor.

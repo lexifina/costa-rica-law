@@ -1,0 +1,1 @@
+Artículo 39.—El IMAS reconocerá a los servidores las revalorizaciones salariales a sus cargos por incrementos en el costo de la vida, o las que se deriven de estudios técnicos realizados por el Equipo de Recursos Humanos y autorizados por las instancias competentes.

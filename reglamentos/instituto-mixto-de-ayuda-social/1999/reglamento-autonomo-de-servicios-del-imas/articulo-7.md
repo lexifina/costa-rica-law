@@ -1,0 +1,1 @@
+Artículo 7º—El equipo técnico de recursos humanos llevará a cabo la articulación y promoción de las actividades de estimulo e incentivos al personal, también el control de la aplicación de las sanciones disciplinarias que se establezcan en el presente reglamento, así como otras actividades que en razón de su quehacer pueda y deba realizar.

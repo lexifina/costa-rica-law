@@ -1,0 +1,1 @@
+Artículo 50.—Cuando las necesidades del servicio público así lo requieran, la administración podrá modificar transitoriamente las jornadas de trabajo establecidas en el presente Reglamento, siempre que circunstancias especiales así lo exijan y no se cause perjuicio a los trabajadores, el cambio deberá ser comunicado a los funcionarios como mínimo con tres días de anticipación.

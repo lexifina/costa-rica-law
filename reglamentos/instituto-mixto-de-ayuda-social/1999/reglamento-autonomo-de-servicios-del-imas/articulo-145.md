@@ -1,0 +1,1 @@
+Artículo 145.—La Administración podrá fijar jornadas y horarios especiales de servicios para los servidores de las Tiendas Libres de derechos, a fin de garantizar la continuidad y eficiencia en las ventas.

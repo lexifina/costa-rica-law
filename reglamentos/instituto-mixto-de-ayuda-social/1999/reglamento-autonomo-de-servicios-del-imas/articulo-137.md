@@ -1,0 +1,1 @@
+Artículo 137.—Las vacaciones, permisos o suspensiones que goce el servidor no suspenderán el curso del procedimiento. Este sólo podrá ser suspendido mediante resolución debidamente motivada del órgano director o durante el término de las incapacidades del servidor que imposibiliten el ejercicio del derecho de defensa.

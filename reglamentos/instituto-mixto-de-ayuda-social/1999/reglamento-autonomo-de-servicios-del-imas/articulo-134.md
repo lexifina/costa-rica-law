@@ -1,0 +1,2 @@
+Artículo 134.—Todo órgano director del procedimiento estará integrado por al menos un Abogado de Asesoría Jurídica del IMAS, excepto en aquellos casos en que sea parte un funcionario de dicha unidad administrativa. En tal caso, la administración podrá contratar un asesor legal para el órgano.
+En casos especiales las unidades o instancias competentes, podrán integrar órganos directores de procedimiento, cuyos integrantes no sean funcionarios de la Institución.

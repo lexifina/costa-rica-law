@@ -1,0 +1,1 @@
+Artículo 23.—El IMAS de acuerdo con sus posibilidades procurará promover y financiar la capacitación de sus servidores, al amparo del Reglamento de Capacitación y las políticas que fije la Administración en coordinación con Recursos Humanos.

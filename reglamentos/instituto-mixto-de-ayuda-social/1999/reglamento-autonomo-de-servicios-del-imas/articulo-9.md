@@ -1,0 +1,1 @@
+Artículo 9º—Todo oferente para poder ingresar a la Institución, deberá cumplir y aprobar el proceso de selección de recurso humano que posea el IMAS, de conformidad con el Reglamento y procedimiento correspondiente, a excepción de los puestos de Dirección Superior, Auditor Interno, Subauditor y empleados de confianza.

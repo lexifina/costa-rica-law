@@ -1,0 +1,1 @@
+Artículo 84.—En aquellos casos que a juicio de la Administración sea necesario por motivos de interés público o salud del servidor, ésta podrá dar las vacaciones al servidor, aunque éste no las haya solicitado, siempre y cuando sea en proporción a los días que el funcionario tenga derecho a disfrutar.

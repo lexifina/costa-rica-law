@@ -1,0 +1,1 @@
+Artículo 44.—El pago de gastos de viaje y transporte, cuando proceda, se cancelará de conformidad con el Reglamento de Gastos de Viaje y Transporte para Funcionarios o Empleados del Estado, que se encuentre vigente. Estos pagos no se consideran parte del salario.

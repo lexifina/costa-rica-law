@@ -1,0 +1,1 @@
+Artículo 40.—Los servidores del IMAS podrán acogerse al pago por concepto de dedicación exclusiva, a la carrera profesional, zonaje u otros que la Institución adopte, todos de conformidad con la normativa aplicable al efecto.

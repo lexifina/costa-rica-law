@@ -1,0 +1,1 @@
+Artículo 95.—Cuando un servidor se encuentre disfrutando de una licencia y ocurran hechos que motivan la concesión de otra, se dejará sin efecto la primera licencia y empezará a regir la segunda, salvo que de la segunda licencia se derive una cantidad menor de días a disfrutar por el trabajador, o la licencia sea sin goce de salario, en cuyo caso permanecería vigente la primera.

@@ -1,0 +1,3 @@
+Artículo 75.—Previo disfrute de las vacaciones el superior jerárquico del servidor deberá hacer llegar a Recursos Humanos la boleta correspondiente, con no menos de tres días hábiles.
+Para efectos de cómputo de vacaciones, no se tomarán en cuenta como hábiles los sábados, los días de descanso, los feriados, ni los días de asueto que disponga el Poder Ejecutivo, salvo los casos en que los servidores deban laborarlos.
+Como regla general, la remuneración de las vacaciones cuando estas sean disfrutadas será de acuerdo con el salario vigente a la fecha en que el servidor disfruta del descanso anual.

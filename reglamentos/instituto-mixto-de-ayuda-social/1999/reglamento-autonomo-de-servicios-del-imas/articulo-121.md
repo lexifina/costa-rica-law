@@ -1,0 +1,1 @@
+Artículo 121.—La administración podrá fijar incentivos complementarios al salario para los servidores del IMAS, que tiendan a estimular y a garantizar una mayor eficiencia en la prestación del servicio, previa autorización de la Autoridad Presupuestaria.
