@@ -1,0 +1,2 @@
+Artículo 3°—Para la amortización del respectivo préstamo, la Mun icipalidad deberá cobrar a los beneficiarios directos de su aplicación, una contribución especial conforme con lo dispuesto en el artículo 90 del Código Municipal.
+La Contraloría General de la República no aprobará el o los presupuestos ordinarios de la Municipalidad de Pérez Zeledón, si ésta no incluye las partidas necesarias a efecto de cancelar el empréstituo que por esta ley se autoriza avalar.
