@@ -18,8 +18,9 @@ Programa | Puesto | Código | Clave
 Asesoría y control en materia hacendaria | | |
 Unidad de economía y control hacendario | | |
 Departamento de economía y control hacendario “) | | |
-(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 7912 del 13 de enero de 1978, se acordó ampliar la lista de los empleados y funcionarios del personal de la administración tributaria. No obstante al no venir dicho listado en la publicación original del decreto ejecutivo N° 6237 del 6 de agosto de 1976, se transcribe la reforma: “ Artículo 1°-Se amplía la lista anexa al Decreto Ejecutivo N° 6237-H de 7 de diciembre de 1976, en la siguiente forma:
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 7912 del 13 de enero de 1978, se acordó ampliar la lista de los empleados y funcionarios del personal de la administración tributaria. No obstante al no venir dicho listado en la publicación original del decreto ejecutivo N° 6237 del 6 de agosto de 1976, se transcribe la reforma: “Artículo 1°-Se amplía la lista anexa al Decreto Ejecutivo N° 6237-H de 7 de diciembre de 1976, en la siguiente forma:
 Programa | Puesto | Código | Clave
 Asesoría y Control de Materia Hacendaria | | |
 Unidad de Economía y Control Hacendario | | |
 Departamento de Economía y Control Hacendario | Economista 3 | 09-09-005 | 15331”)
+(Nota de Sinalevi: Mediante el artículo único del decreto ejecutivo N° 7942 del 26 de enero de 1978, se acordó modificar la lista anexa al Decreto Ejecutivo N° 6237-H de 7 de diciembre de 1976, en el sentido de que la clave correcta del puesto de Asistente Fiscal 1, Código 09-47-255-5, del Programa Administración del Impuesto Directos, Unidad de auditoría Fiscal Interna, es la número 6090 y no 06009 como erróneamente se había apuntado.)
