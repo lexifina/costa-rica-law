@@ -1,0 +1,1 @@
+Artículo 18.- Las personas que infringieren la presente ley, mediante exportación ilegal de documentos de carácter histórico, serán penados con multa de cien a quinientos colones, si el hecho no configurase delito sancionado con pena mayor.

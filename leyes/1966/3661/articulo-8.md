@@ -1,0 +1,1 @@
+Artículo 8º.- Conforme a la Ley Orgánica del Notariado, deben los notarios presentar cada quince días los índices de sus escrituras al Archivo Nacional; con base en los índices se formará el Registro de Testamentos.
