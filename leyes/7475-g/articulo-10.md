@@ -1,0 +1,9 @@
+Anexo
+Lista ilustrativa
+1.- Las MIC incompatibles con la obligación de trato nacional establecida en el párrafo 4 del artículo III del GATT de 1994 comprenden las que sean obligatorias o exigibles en virtud de la legislación nacional o de resoluciones administrativas, o cuyo cumplimiento sea necesario para obtener una ventaja, y que prescriban:
+a) la compra o la utilización por una empresa de productos de origen nacional o de fuentes nacionales, ya se especifiquen en términos de productos determinados, en términos de volumen o valor de los productos, o como proporción del volumen o del valor de su producción local; o
+b) que las compras o la utilización de productos de importación por una empresa se limite a una cantidad relacionada con el volumen o el valor de los productos locales que la empresa exporte.
+2.- Las MIC incompatibles con la obligación de eliminación general de las restricciones cuantitativas establecida en el párrafo 1 del artículo XI del GATT de 1994, comprenden las que sean obligatorias o exigibles en virtud de la legislación nacional o de resoluciones administrativas, o cuyo cumplimiento sea necesario para obtener una ventaja, y que restrinjan:
+a) la importación por una empresa de los productos utilizados en su producción local o relacionados con esta, en general o a una cantidad relacionada con el volumen o el valor de la producción local que la empresa exporte;
+b) la importación por una empresa de productos utilizados en su producción local o relacionados con esta, limitando el acceso de la empresa a las divisas, a una cantidad relacionada con las entradas de divisas atribuibles a esa empresa; o
+c) la exportación o la venta para la exportación de productos por una empresa, ya se especifiquen en términos de productos determinados, en términos de volumen o valor de los productos o como proporción del volumen o valor de su producción local.
