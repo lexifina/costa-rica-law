@@ -20,3 +20,4 @@ Reglamento para el trámite y resolución de solicitudes de los Residentes Pensi
 | 5 | 1980-10-30 | Decreto Ejecutivo 11981 (1980-10-30) |
 | 6 | 1981-07-23 | Decreto Ejecutivo 12819 (1981-07-23) |
 | 7 | 1981-09-18 | Decreto Ejecutivo 12941 (1981-09-18) |
+| 8 | 1981-09-30 | Decreto Ejecutivo 13014 (1981-09-30) |
