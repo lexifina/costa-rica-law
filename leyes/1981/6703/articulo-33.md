@@ -1,4 +1,1 @@
-Artículo 33.- Las colecciones arqueológicas que ingresen al país, con
-carácter temporal, para fines de exhibición o de estudio, no se inscribirán
-en el citado Registro y estarán exentas de todo impuesto, siempre que así
-lo recomiende el Museo Nacional.
+Artículo 33.- Las colecciones arqueológicas que ingresen al país, con carácter temporal, para fines de exhibición o de estudio, no se inscribirán en el citado Registro y estarán exentas de todo impuesto, siempre que así lo recomiende el Museo Nacional.

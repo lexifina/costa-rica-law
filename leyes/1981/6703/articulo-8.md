@@ -1,5 +1,1 @@
-Artículo 8º.- Se prohíbe el comercio y la exportación de objetos
-arqueológicos, por parte de particulares e instituciones privadas o
-estatales. La única entidad facultada para exportar objetos arqueológicos,
-con fines de intercambio o de investigación, será el Museo Nacional, previa
-autorización de la Comisión Arqueológicas Nacional.
+Artículo 8º.- Se prohíbe el comercio y la exportación de objetos arqueológicos, por parte de particulares e instituciones privadas o estatales. La única entidad facultada para exportar objetos arqueológicos, con fines de intercambio o de investigación, será el Museo Nacional, previa autorización de la Comisión Arqueológica Nacional.

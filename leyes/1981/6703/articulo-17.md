@@ -1,21 +1,10 @@
-Artículo 17.- Todos los poseedores de objetos arqueológicos están
-obligados a presentarlos al Registro Público del Patrimonio Nacional
-Arqueológico, para su inscripción, de acuerdo con el plazo que señala el
-artículo 6º de esta ley, so pena de perder su calidad de depositarios. Es
-facultar del Registro Público del Patrimonio Nacional Arqueológico revisar
-de oficio los objetos inscritos para su comprobación, por medio propio o
-por medio de la autoridad que juzgue conveniente.
-La inscripción de los objetos, a que se refiere, este artículo, entre
-otras cosas contendrá:
+Artículo 17.- Todos los poseedores de objetos arqueológicos están obligados a presentarlos al Registro Público del Patrimonio Nacional Arqueológico, para su inscripción, de acuerdo con el plazo que señala el artículo 6º de esta ley, so pena de perder su calidad de depositarios. Es facultad del Registro Público del Patrimonio Nacional Arqueológico revisar de oficio los objetos inscritos para su comprobación, por medio propio o por medio de la autoridad que juzgue conveniente.
+La inscripción de los objetos, a que se refiere, este artículo, entre otras cosas contendrá:
 a) La naturaleza y dimensión de cada uno de los objetos.
 b) Su procedencia.
-c) el lugar donde se hallan actualmente.
+c) El lugar donde se hallan actualmente.
 ch) Fotografías de los objetos.
 d) Nombre y domicilio de quien los tiene en custodia.
-Todos los gastos que ocasione la inscripción del Registro correrán a
-cargo de quien presente el bien para que sea debidamente registrado. El
-Registro está facultado para usar, en la identificación de las piezas, los
-materiales que sean apropiados para ello. Las marcas de registro que se
-hagan no podrán ser alteradas. Los objetos arqueológicos que no sean
-presentados al Registro Público del Patrimonio Nacional Arqueológico,
-pasarán a manos del Museo Nacional.
+Todos los gastos que ocasione la inscripción del Registro correrán a cargo de quien presente el bien para que sea debidamente registrado. El Registro está facultado para usar, en la identificación de las piezas, los materiales que sean apropiados para ello. Las marcas de registro que se hagan no podrán ser alteradas. Los objetos arqueológicos que no sean presentados al Registro Público del Patrimonio Nacional Arqueológico, pasarán a manos del Museo Nacional.
+(La Corte Suprema de Justicia mediante resolución de las 10:00 horas del 14 de abril de 1983 (expediente N° 0047-82) declaró parcialmente inaplicable este artículo, en cuanto, al referirse en forma general a “todos los poseedores de bienes arqueológicos” a quienes atribuye el carácter de simples depositarios, está incluyendo bienes arqueológicos de propiedad particular, respecto de los cuales la propiedad no puede convertirse en custodia ni pasar al Estado sin previa indemnización. En este sentido, indica la Sala Constitucional mediante resoluciones N° 4350-97, considerando sétimo, y 5245-02 del 29 de mayo de 2002, considerando X, que, si bien la Corte Plena en funciones del Tribunal Constitucional declaró inaplicable este artículo, mediante resolución N° 19, del 25 de marzo de 1983 “…esto lo fue ‘tan sólo en cuanto’ vulneraban los derechos adquiridos y reconocidos por la Ley N° 7 de 6 de octubre, 1938. En otras palabras, porque se interpretaban dándoseles efecto retroactivo…” Así mismo, la Procuraduría General de la República al respecto dispuso que: “…si bien por sentencia constitucional (de Corte Plena N° 19, de las 9 hrs. del 25 de marzo de 1983; Corte Suprema de Justicia, resolución de las 10 hrs. del 14 de abril de 1983) se declararon inaplicables ciertas reglas de la ley 6703, lo fue únicamente en tanto comprendían bienes arqueológicos precolombinos reducidos a dominio privado en el momento de sancionarse la Ley Nº 7 de 1938 (y todos los coloniales). Lo cual significa que para las restantes situaciones mantienen validez”.)
+(Ver también, resolución de la Corte Plena , sesión extraordinaria N° 34 de las 14:00 horas del 28 de abril de 1989.)

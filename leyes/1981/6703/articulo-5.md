@@ -1,3 +1,3 @@
-Artículo 5º.- Se concede, a los actuales coleccionistas y tenedores
-particulares de objetos arqueológicos, la custodia de las piezas
-arqueológicas que hayan adquirido antes de la promulgación de esta ley.
+Artículo 5º.- Se concede, a los actuales coleccionistas y tenedores particulares de objetos arqueológicos, la custodia de las piezas arqueológicas que hayan adquirido antes de la promulgación de esta ley.
+(La Corte Suprema de Justicia mediante resolución de las 10:00 horas del 14 de abril de 1983 (expediente N° 0047-82, promovido por Rogelio Alfaro Quesada) declaró parcialmente inaplicable este artículo, en cuanto -al ser de carácter general y conceder a los actuales coleccionistas y tenedores particulares de objetos arqueológicos la simple custodia de las piezas que hayan adquirido antes de la promulgación de esta ley”- está incluyendo bienes arqueológicos de propiedad particular, sin que, su dominio pueda convertirse en custodia.)
+(Ver también resolución de la Corte Plena, sesión extraordinaria N° 34 de las 14:00 horas del 28 de abril de 1989).

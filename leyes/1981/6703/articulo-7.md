@@ -1,6 +1,3 @@
-Artículo 7º.- La custodia de los bienes arqueológicos podrá ser
-transferida a herederos, por un período de treinta años, siempre que estos
-garanticen la óptima conservación e integridad de los objetos puestos bajo
-su responsabilidad. Esta transferencia deberá notificarse al Registro
-Público de Patrimonio Nacional Arqueológico. Si no se llenan los anteriores
-requisitos, los bienes pasarán a manos del Museo Nacional.
+Artículo 7º.- La custodia de los bienes arqueológicos podrá ser transferida a herederos, por un período de treinta años, siempre que estos garanticen la óptima conservación e integridad de los objetos puestos bajo su responsabilidad. Esta transferencia deberá notificarse al Registro Público de Patrimonio Nacional Arqueológico. Si no se llenaran los anteriores requisitos, los bienes pasarán a manos del Museo Nacional.
+(La Corte Suprema de Justicia mediante resolución de las 10:00 horas del 14 de abril de 1983 (expediente N° 0047-82, promovido por Rogelio Alfaro Quesada) declaró parcialmente inaplicable este artículo, en cuanto incluye -en la custodia que se transfiere por herencia- bienes arqueológicos de propiedad privada.)
+(Ver también, resolución de la Corte Plena, sesión extraordinaria N° 34 de las 14:00 horas del 28 de abril de 1989.)

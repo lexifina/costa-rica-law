@@ -1,4 +1,1 @@
-Artículo 14.- Los monumentos arqueológicos muebles podrán ser
-trasladados dentro del país, siempre que se notifique de previo al Registro
-Público del Patrimonio Nacional Arqueológico, el que comunicará
-inmediatamente el caso a la Comisión Arqueológica Nacional.
+Artículo 14.- Los monumentos arqueológicos muebles podrán ser trasladados dentro del país, siempre que se notifique de previo al Registro Público del Patrimonio Nacional Arqueológico, el que comunicará inmediatamente el caso a la Comisión Arqueológica Nacional.
