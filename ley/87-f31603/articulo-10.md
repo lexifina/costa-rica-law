@@ -1,0 +1,1 @@
+Art 10° Los Gobernadores, harán publicar por bando en dos días festivos inmediatos al 27 de noviembre en todas las ciudades, villas y pueblos que se va a proceder a levantar el censo, y que todos los habitantes deben suministrar datos detallados y exactos a los comisionados, conforme a las preguntas que contengan los formularios expedidos por la oficina de estadística.
