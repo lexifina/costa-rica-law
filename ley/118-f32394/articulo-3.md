@@ -1,1 +1,0 @@
-Artículo 3°— Para ser miembro de estas Corporaciones se requiere: Ser mayor de edad, de reconocida buena conducta, de capacidad para el cargo, contar con una renta anual mayor de dos mil colones y ser residente en el lugar desde seis meses antes de su nombramiento

@@ -1,3 +1,0 @@
-Artículo 5° -1) Un mes antes, por lo menos, del día señalado para elegir regidores del proximo periodo, deberá el Ejecutivo publicar un decreto que señale el número de regidores, tanto propietarios como suplentes, que ha de elegir la asamblea electoral de cada uno de los cantones.
-2) Servirá de base para todo cómputo de población el último anuario ó informe anual de la Oficina Nacional de Estadística.
-3) Cuando una Municipalidad alegare tener más habitantes que los que acusan los datos de la Estadística, podrá el Director de esta oficina, por medio de empleados ó comisionados suyos, levantar un censo parcial, pero los gastos que ocasione este trabajo extraordinario serán de cuenta del Municipio.

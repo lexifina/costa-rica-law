@@ -1,2 +1,0 @@
-Artículo 4°.-Los acuerdos y resoluciones que dicten las Municipalidades serán firmes y ejecutivos por sí solos, salvo que, por disposición expresa de una ley, requieran la aprobación del Poder Legislativo o del Ejecutivo, o que se interponga contra ellos algún recurso establecido por la ley.
-Contra los acuerdos o actos municipales, agotada que sea la vía administrativa, sólo cabe el recurso contencioso-administrativo de conformidad con la Ley Orgánica de Tribunales.

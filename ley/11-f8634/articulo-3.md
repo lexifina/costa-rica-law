@@ -1,2 +1,0 @@
-Artículo 3°-Las Municipalidades, como Corporaciones económico-administrativas, no podrán dictar ningún acuerdo, cuyo objeto no entre en sus atribuciones legales.
-No podrán dirigir manifestaciones políticas a ningún Poder, autoridad o corporación; ni podrán tampoco, por sí, ni por medio de los jefes de servicio, remover a ningún empleado subalterno, sino por causa justificada y con formación de expediente.
