@@ -1,0 +1,2 @@
+Apertura y examen de correspondencia
+Artículo 220.- Recibida la correspondencia o los efectos interceptados, el juez procederá a su apertura, haciéndolo constar en acta. Examinará los objetos y leerá por sí el contenido de la correspondencia. Si tuvieran relación con el proceso, ordenará el secuestro; en caso contrario, mantendrá en reserva su contenido y dispondrá la entrega al destinatario, a sus representantes o parientes próximos, bajo constancia.

@@ -1,0 +1,3 @@
+Denuncia ante el Juez de Instrucción
+Artículo 158.- El Juez de Instrucción que reciba una denuncia la pondrá inmediatamente en conocimiento del Agente Fiscal. Dentro del término de 24 horas, salvo que por urgencia del caso aquél fije uno menor, el Agente Fiscal formulará requerimiento conforme al artículo 170, ó pedirá que se desestime o remita la denuncia a otra jurisdicción.
+Será desestimada cuando los hechos en que se funda no constituyen delito o no se pueda proceder. Si el Agente Fiscal pidiere que la denuncia sea desestimada y el Juez no estuviere conforme, se procederá como dispone el artículo 347.

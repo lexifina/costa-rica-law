@@ -1,0 +1,6 @@
+Forma de la declaración
+Artículo 234.- Antes de comenzar la declaración, los testigos serán instruidos acerca de las penas de falso testimonio y prestarán juramento, bajo pena de nulidad, con excepción de los menores de diecisiete años, y de los que en el primer momento de la investigación aparezcan como sospechosos o partícipes del delito que se investiga o de otro conexo.
+(La Sala Constitucional mediante resolución N° 5630 del 28 de setiembre de 1994, declaró que el presente artículo no resulta inconstitucional, en tanto se interprete que: “…el testigo sospechoso no puede ser obligado a declarar en su contra y que los medios de coerción que prevé la legislación para la obtención de la prueba testimonial, por disposición expresa del artículo 36 constitucional, no le son aplicables.”)
+En seguida, el juez interrogará separadamente a cada testigo, requiriendo su nombre, apellidos, edad, estado, nombre del cónyuge, profesión, domicilio, vínculos de parentesco y de interés con las partes, y cualquier circunstancia que sirva para apreciar su veracidad.
+Si el testigo pudiere abstenerse de declarar (227) se le deberá advertir bajo pena de nulidad, que goza de dicha facultad, lo que se hará constar.
+A continuación se le interrogará sobre el hecho, si corresponde, de acuerdo con el artículo 95.

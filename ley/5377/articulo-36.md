@@ -1,0 +1,2 @@
+Recusación no admitida
+Artículo 36.- Si el Juez de Instrucción fuere recusado y no admitiere la existencia del motivo que se invoca, continuará la investigación aún durante el trámite del incidente; pero si se hiciere lugar a la recusación, los actos serán declarados nulos siempre que el recusante lo pidiere en el término de 24 horas a contar desde que el expediente llegó al juzgado que deba actuar.

@@ -1,0 +1,2 @@
+Objetos no reclamados
+Artículo 538.- Cuando después de un año de concluido el proceso, nadie se presentare a reclamar las cosas secuestradas, se sacarán a remate y su producto será depositado en la cuenta del Patronato de Construcciones, Instalaciones y Adquisición de Bienes de la Dirección General de Adaptación Social. Para el remate, se aplicarán las disposiciones del Código de Procedimientos Civiles.

@@ -1,0 +1,2 @@
+Desistimiento
+Artículo 69.- El actor civil podrá desistir de su demanda en cualquier estado del proceso, quedando obligado al pago de las costas que su intervención hubiera ocasionado. Se considerará desistida la acción cuando el actor civil, regularmente citado, no comparezca a la primera audiencia del debate, o no presente conclusiones, o se aleje de la audiencia sin haberlas formulado oportunamente (389).

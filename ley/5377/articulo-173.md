@@ -1,0 +1,2 @@
+Información sumaria
+Artículo 173.- Cuando se formule requerimiento fiscal, acusación de una persona o querella del ofendido por el presunto delito contra alguna de las personas privilegiadas, la Asamblea Legislativa podrá nombrar de su seno, una comisión especial que practicará una información sumaria que no vulnere la inmunidad del imputado, quien podrá elegir defensor o defenderse personalmente desde el primer momento.
