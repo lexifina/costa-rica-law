@@ -1,0 +1,3 @@
+ACUERDO LXVI.
+Cede $ 400 a favor del Hospital de Liberia.
+SECRETARIA DE JUSTICIA Y BENEFICENCIA. -Palacio Nacional. San José,9 de Noviembre de 1877.- El Presidente de la República, en uso de sus ámplias facultades y en auxilio del anhelo altamente humanitario, con que la Ciudad de Liberia pretende construir en su seno un edificio para Hospital de Caridad, obra sobre manera necesaria en aquella poblacion, acuerda; donar para tal objeto, por una sola vez, la cantidad de cuatrocientos pesos, la que se pondrá desde luego á la órden del Gobernador de aquella Provincia, -Comuníquese.-Rubricado S. E. el Presidente de la República.—Castro.
