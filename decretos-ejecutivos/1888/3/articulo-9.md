@@ -1,0 +1,1 @@
+Art. 9°-Las aspirantes al diploma de maestras de enseñanza primaria, terminarán sus estudios en el primer año de la División Superior, con un curso de Pedagogía y Ejercicios prácticos en la escuela de aplicación.

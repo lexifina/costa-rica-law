@@ -1,0 +1,1 @@
+Art. 15°.-Son aplicables á los colegios de segunda enseñanza de señoritas en cuanto á la disciplina, régimen y organización interiores, las disposiciones del Reglamento n° XVIII de 17 de diciembre del año próximo pasado

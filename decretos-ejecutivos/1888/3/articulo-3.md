@@ -1,0 +1,2 @@
+Art. 3°-Las alumnas que hubieren terminado sus estudios y sufrido examen satisfactorio en las asignaturas del IV grado de las escuelas comunes, serán admitidas en los colegios, previa presentación de certificado expedido por la Directora de la escuela y el Inspector provincial respectivo.
+Las jóvenes que no hubiesen cursado en los establecimientos públicos, sufrirán un examen de admisión sobre las materias y en las condiciones que se indiquen en el Reglamento.

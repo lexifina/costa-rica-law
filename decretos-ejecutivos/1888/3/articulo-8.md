@@ -1,0 +1,1 @@
+Art. 8°-Las alumnas de la Sección pedagógica que aspiren al diploma de maestras de enseñanza primaria superior, recibirán un curso de Algebra elemental, de Psicología y de Pedagogía teórica y práctica.

@@ -1,0 +1,1 @@
+Art. 10°.-El Estado costeará un número determinado de becas, que se distribuirán por provincias, tomando por base la población. Las alumnas cuyas familias residan en la capital, no disfrutarán de pensión alguna.

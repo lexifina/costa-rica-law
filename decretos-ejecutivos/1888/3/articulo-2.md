@@ -1,0 +1,1 @@
+Art. 2°-Iguales colegios se establecerán en las demás capitales de provincia, cuando lo soliciten las Municipalidades y concurran á los gastos de fundación y entretenimiento, en la proporción que determine la ley.
