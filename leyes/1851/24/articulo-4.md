@@ -1,0 +1,1 @@
+Art. 4. En las poblaciones donde no exista profesor alguno de medicina, el juez llamara a declarar, en observancia del articulo 179 de la 3ª parte del Código a dos empiricos 6 peritos; pero en tal caso, sè verificara el juicio de estos oyendo el informe de médico de pobres, o profesor mas inmediato, cuando la causa pase al estado de plenario.
