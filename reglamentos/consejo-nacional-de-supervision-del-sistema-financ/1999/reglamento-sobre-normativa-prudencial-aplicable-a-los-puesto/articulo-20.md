@@ -1,0 +1,3 @@
+Artículo 20. Coeficiente de liquidez
+Con el fin de asegurar su liquidez, los Puestos de Bolsa deberán mantener en todo momento un volumen de inversiones en activos de bajo riesgo y elevada liquidez que como porcentaje de sus pasivos exigibles con plazo residual inferior a un año, represente un 10%. El Superintendente General de Valores establecerá las cuentas que deben ser consideradas tanto del activo como del pasivo, con el propósito de atender este requerimiento.
+Los activos anteriores deberán estar disponibles, es decir, no cedidos en recompra, ni prestados ni haber sido dados como garantía propia o de terceros. Dichos activos se computarán a su valor contable, deduciendo las estimaciones y cuentas de valuación.

@@ -1,0 +1,3 @@
+Transitorio II.
+A partir del 1° de abril del 2000, los puestos deberán contar con los recursos necesarios para gestionar los restantes riesgos, de manera que a partir de esta fecha, se implementen en su totalidad las disposiciones establecidas en este Reglamento.
+No obstante lo anterior, a partir del 1° de enero y hasta el 31 de marzo del 2000, los puestos de bolsa prepararán y enviarán a la Superintendencia General de Valores, con carácter informativo, los reportes que muestran el monto de los recursos propios necesarios para gestionar los riesgos que deberán aportar a partir del 1° de abril del 2000. Los reportes serán enviados con la periodicidad y en el plazo que determine el Superintendente General de Valores.

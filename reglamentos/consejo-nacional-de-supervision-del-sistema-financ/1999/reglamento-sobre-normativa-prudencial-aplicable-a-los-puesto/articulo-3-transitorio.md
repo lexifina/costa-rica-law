@@ -1,0 +1,3 @@
+Transitorio III.
+Los puestos de bolsa que a la entrada en vigencia de esta reforma tuvieran líneas de crédito aprobadas para efectos de la determinación de los recursos propios exigibles, contarán con un plazo de tres meses contados a partir de la entrada en vigencia de esta reforma para ajustar sus recursos propios de conformidad con lo establecido en el Artículo 3 de este Reglamento.
+Adicionado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante Artículo 5, numeral 2, del Acta de la Sesión 234-2001, celebrada el 18 de junio del 2001. Publicado en el Diario Oficial "La Gaceta" 129, del 5 de julio del 2001.

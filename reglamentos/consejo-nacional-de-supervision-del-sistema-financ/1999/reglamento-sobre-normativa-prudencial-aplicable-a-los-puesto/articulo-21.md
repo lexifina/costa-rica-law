@@ -1,0 +1,2 @@
+Artículo 21. Presentación de estados sobre el nivel exigido de recursos propios, créditos con grupos de interés económico y personas individuales coeficiente de liquidez
+Los Puestos de Bolsa deberán suministrar a la Superintendencia General de Valores, bajo la forma y oportunidad que ésta establezca, los estados sobre el nivel exigido de recursos propios y grandes riesgos, el de liquidez y cualquier otro que ésta estime necesario.
