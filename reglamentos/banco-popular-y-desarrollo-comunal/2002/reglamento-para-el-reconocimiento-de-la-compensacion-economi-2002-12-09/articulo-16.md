@@ -1,0 +1,1 @@
+Artículo 16.—Derogatorias. Este Reglamento deroga el reglamento aprobado por la Junta Directiva Nacional en las sesiones 3458 y 3459, celebradas el 3 y el 10 de marzo de 1998, respectivamente, debidamente publicado en el diario oficial La Gaceta número 95, del 19 de mayo de 1998.

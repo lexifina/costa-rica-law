@@ -1,0 +1,5 @@
+Artículo 3º—Objetivos del régimen de reconocimiento de compensación económica por dedicación exclusiva. El régimen de reconocimiento de compensación económica por dedicación exclusiva tiene como objetivos fundamentales:
+a) Obtener del trabajador de nivel profesional que desempeñe cualesquiera de los puestos sujetos al pago de dedicación exclusiva, de conformidad con el "Sistema de Calificación de Clases y Puestos", su completa dedicación al servicio de la Institución en aquella profesión para la cual ha sido contratado, de manera tal que los conocimientos y experiencia que deriven del ejercicio de ella sean aportados al Banco en forma exclusiva.
+b) Mantener al servicio de la Institución, profesionales idóneos y capaces.
+c) Motivar al trabajador para que busque el más alto nivel académico, de forma tal que realice con mayor eficiencia las tareas que se le encomiendan.
+d) Elevar el nivel de mística, pertenencia, compromiso y calidad en el servicio al cliente, de los profesionales del Banco Popular.

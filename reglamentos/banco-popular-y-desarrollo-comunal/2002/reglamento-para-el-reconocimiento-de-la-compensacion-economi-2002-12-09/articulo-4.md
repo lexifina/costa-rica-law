@@ -1,0 +1,11 @@
+Artículo 4º—Requisitos para acogerse al régimen de reconocimiento de compensación económica por dedicación exclusiva. Para acogerse al régimen de reconocimiento de compensación económica por dedicación exclusiva establecido en este Reglamento, el trabajador deberá dirigir su solicitud al Proceso de Desarrollo Humano y cumplir con los siguientes requisitos:
+a) Poseer como mínimo el grado académico de Licenciatura en una carrera debidamente autorizada por el ente público costarricense competente para ello, o de Bachillerato en Informática, igualmente autorizado.
+b) Que el grado académico de Licenciatura en una carrera de interés institucional o de Bachillerato en Informática sea extendido por una universidad costarricense o extranjera; en este último caso, siempre y cuando ese título haya sido debidamente reconocido y equiparado por la institución pública costarricense que sea competente para ello.
+c) Estar debidamente incorporado y mantenerse al día en el pago de sus obligaciones con el Colegio Profesional al que se encuentre incorporado.
+d) Desempeñar un puesto para el que se requiera como mínimo el grado académico señalado en el inciso "a)" de este artículo, y que esté desarrollando labores acordes con la profesión y ese grado académico.
+e) Laborar jornada completa en un puesto y estar en alguna de las siguientes condiciones de nombramiento:
+i. En propiedad;
+ii. Por tiempo determinado en una misma plaza vacante, siempre que el nombramiento sea mayor a un mes y menor a seis meses;
+iii. Por tiempo determinado en una misma plaza no vacante, siempre que el nombramiento sea mayor a un mes y menor a doce meses.
+f) Firmar el correspondiente contrato de reconocimiento de compensación económica por dedicación exclusiva con el Banco, según el cual el trabajador queda obligado a no ejercer de manera alguna la profesión que sirve como requisito para desempeñar el puesto que ostenta, así como las actividades relacionadas con ésta, salvo las excepciones establecidas en el presente Reglamento.
+Ningún trabajador podrá acogerse al régimen de reconocimiento de compensación económica por dedicación exclusiva si se encuentra regido por la Ley de Incentivos a los Profesionales en Ciencias Médicas o goza de compensación económica por prohibición.

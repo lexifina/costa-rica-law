@@ -1,0 +1,5 @@
+Artículo 10.—Aplicación y suspensión del régimen de reconocimiento de compensación económica por dedicación exclusiva. El trabajador acogido al régimen de dedicación exclusiva mantiene la retribución y obligaciones que establece este Reglamento y su correspondiente contrato cuando:
+a) Disfrute de vacaciones.
+b) Disfrute de permiso con goce de salario total o parcial. Si el permiso es para capacitación o profesionalización, el contrato para el reconocimiento de la compensación por dedicación exclusiva debe haber sido firmado por las partes al menos 6 meses antes de la fecha a partir de la cual rige el permiso para capacitación o profesionalización.
+c) Tenga permiso con goce de salario para brindar servicios en la materia objeto del contrato de dedicación exclusiva, como colaboración con otras entidades afines a los intereses del Banco Popular dentro del país o en el extranjero, siempre que haya base legal para ello.
+Los efectos derivados de la aplicación del régimen de reconocimiento de compensación económica por dedicación exclusiva se suspenden temporalmente y hasta su regreso, cuando el trabajador disfruta de permiso sin goce de salario.

@@ -1,0 +1,3 @@
+La Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal, en sesión extraordinaria Nº 4070, celebrada el 9 de diciembre del 2002, acordó por unanimidad:
+"1. Aprobar, con las modificaciones señaladas, el Reglamento para el Reconocimiento de la Compensación Económica por Dedicación Exclusiva del Banco Popular y de Desarrollo Comunal.
+Artículo 1º—Fundamento. Este Reglamento se dicta de conformidad con lo establecido en el inciso "b)" del artículo 24 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, con el fin de regular el reconocimiento de la compensación económica por dedicación exclusiva a los trabajadores de la Institución no contratados bajo el Régimen de Salario Único.
