@@ -1,0 +1,1 @@
+Artículo 6° Todo negocio del resorte del Poder Ejecutivo trascendental para los intereses generales ser propuesto y discutido, y su resolución acordada, en el Consejo de Estado. Es responsable el Ministro que autorice en asuntos graves sin aquel previo acuerdo contra el sentido de la mayoría de los Consejeros, como lo son solidariamente los que hayan dado el acuerdo.

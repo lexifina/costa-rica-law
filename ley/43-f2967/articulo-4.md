@@ -1,0 +1,1 @@
+Artículo 4° Los Secretarios de Estado forman un Consejo de Estado para discutir y deliberar sobre los negocios que el Presidente Provisorio le someta. - El dictamen acordado por la mayoría, y los votos particulares, se consignar n en un libro que le llevar n al efecto.

@@ -1,0 +1,1 @@
+Artículo 9° Mientras no se haya dado la nueva ley fundamental, se restablece también en su vigor y fuerza el título 4° de la citada Constitución Política de 26 de Diciembre de mil ochocientos cincuenta y nueve que declara las garantías nacionales e individuales; y por tanto, se tendrán y guardar como ley de la República.
