@@ -1,0 +1,21 @@
+2. CRITERIOS DE PRIORIZACIÓN DE PROYECTOS
+Las áreas prioritarias para el Pago de Servicios Ambientales (PSA), serán las establecidas mediante el Decreto Ejecutivo Nº 31081-MINAE publicado en La Gaceta Nº 61 del 27 de marzo del 2003, en las modalidades de protección, reforestación, y plantación de árboles forestales en sistemas agroforestales, los cuales serán aplicados para la selección de los proyectos que se considerarán en el programa de PSA. Solamente en aquellos casos cuando la demanda nacional de las áreas prioritarias ha sido satisfecha se aceptarán proyectos en otras áreas que oportunamente el FONAFIFO dará a conocer.
+Para inmuebles que se encuentren sobre el límite de las áreas prioritarias se considerarán para efectos del programa de PSA aquellas que al menos tengan un 30% dentro de dichas áreas.
+Las solicitudes de PSA se regirán por los siguientes criterios de priorización:
+2.1. Proyectos de reforestación:
+a) Se dará prioridad a los sitios que presenten un alto potencial productivo para el desarrollo de plantaciones forestales (clases de capacidad de uso III, IV, V y VI de la metodología oficial establecida en el Decreto Ejecutivo correspondiente).
+b) Sitios donde haya un alto potencial productivo de bloques de plantación. Además estas áreas deben ubicarse en las Áreas de Conservación Tortuguero, en la zona de influencia de la Cooperación Financiera Oficial del Gobierno de Alemania KfW (Área de Conservación Huetar Norte y subregión Sarapiquí del Área de Conservación Cordillera Volcánica Central), Área de Conservación Tempisque, Área de Conservación Pacífico Central, la subregión central del Área de Conservación Amistad Pacífico y el Área de Conservación Osa.
+c) Inmuebles con proyectos de reforestación con contratos vencidos que cumplieron satisfactoriamente a criterio del SINAC el plan de manejo.
+d) Para los proyectos de reforestación con especies, contenidas en los decretos de vedas y especies amenazadas o en peligro de extinción, (Decreto Nº 25663-MINAE y Decreto Nº 25700-MINAE), se establece como prioritario todo el país. Para proyectos de reforestación establecidas en las áreas de protección según el artículo 33, de la Ley Forestal Nº 7575, se considerará como prioritario todo el país.
+e) Otras áreas definidas según las políticas del Ministerio de Ambiente y Energía.
+2.2. Proyectos de Protección de Bosques:
+a) Para el trámite de proyectos de protección se dará prioridad a los ubicados en corredores biológicos reconocidos oficialmente por el SINAC en el ámbito nacional, especialmente los prioritarios del proyecto Ecomercados (Tortuguero, Barbilla, Fila Costeña y Piedras Blancas-Corcovado), en la zona de influencia de la Cooperación Financiera Oficial del Gobierno de Alemania KfW (Área de Conservación Huetar Norte y subregión Sarapiquí del Área de Conservación Cordillera Volcánica Central), y las áreas de corredores Grúas en todo el país.
+b) Proyectos de protección que cumplan con lo establecido en el punto anterior y tengan contratos vencidos de años anteriores y que cumplan con los demás requisitos establecidos en este manual y el Decreto Ejecutivo Nº 31081-MINAE, en igualdad de condiciones se dará prioridad a las presolicitudes de proyectos vencidos que hayan documentado estudios biológicos de flora y fauna, para las áreas de bosque.
+c) Áreas de bosque que tengan como función la protección de las fuentes de agua en general y en especial aquellas destinadas al consumo humano, consideradas de interés para acueductos rurales, proyectos de Acueductos y Alcantarillados y las empresas de servicios públicos.
+d) Inmuebles de propiedad privada dentro de las áreas silvestres protegidas y que aun no han sido compradas o expropiadas por el Estado.
+2.3. Proyectos de establecimiento de árboles forestales en sistemas agroforestales:
+a) Se dará prioridad a proyectos tramitados por organizaciones ubicados en las siguientes Áreas de Conservación: Amistad Pacífico y Pacífico Central.
+b) Tierras con capacidad de uso VI, V, IV, III en su orden de prioridad.1
+c) Áreas privadas ubicadas en corredores biológicos.
+d) Áreas con alto riesgo o problemas de degradación de los recursos suelo, agua o biodiversidad
+e) Organizaciones o productores (as) con capacidad comprobada en gestión de proyectos de establecimiento de árboles forestales en sistemas agroforestales.

@@ -1,0 +1,2 @@
+13. DEVOLUCIONES
+Las devoluciones que al efecto realice los administrados por conceptos como: incumplimiento de contrato, retiros voluntarios, etc., serán realizados mediante depósito al Fideicomiso Proyecto Ecomercados a la cuenta Nº 213188-6, del Banco Nacional de Costa Rica o en cualquiera de sus sucursales; debiendo consignar el cajero como mínimo la siguiente información: nombre del beneficiario, número de cédula del beneficiario y de ser posible el número de contrato y la modalidad.

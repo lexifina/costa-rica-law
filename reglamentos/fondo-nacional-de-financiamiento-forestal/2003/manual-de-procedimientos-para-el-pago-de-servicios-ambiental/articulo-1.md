@@ -1,0 +1,12 @@
+AMBIENTE Y ENERGÍA
+FONDO NACIONAL DE FINANCIAMIENTO FORESTAL
+Nº 1.—San José, a las nueve horas del día veintiuno de abril del dos mil tres.
+Considerando:
+1º—Según dispone la Constitución Política, en su artículo 50, y numerosos Convenios y Tratados suscritos y aprobados por Costa Rica, es deber del Estado garantizar un medio ambiente ecológicamente equilibrado, creando mecanismos internos para asegurar el uso y disfrute de los recursos naturales vitales, para el ser humano, recursos contenidos en los diversos ecosistemas y procesos de regeneración.
+2º—La Ley Forestal, Nº 7575 publicada en La Gaceta Nº 72 del 16 de abril de 1996, establece como una función esencial del Estado, velar por la conservación, aprovechamiento, protección, administración y fomento de los recursos forestales del país, de acuerdo con el principio de uso racional de los recursos naturales renovables.
+3º—El Fondo Nacional de Financiamiento Forestal denominado FONAFIFO, creado en la citada Ley Nº 7575 tiene como obligación primordial establecer diversos mecanismos de fomento a pequeños y medianos productores forestales, entre ellos el Pago de Servicios Ambientales que generan los bosques y las plantaciones forestales en sus diversas modalidades, según dispone el artículo tres inciso k de la ley forestal, su reglamento y los Decretos Ejecutivos Nº 30762-MINAE, publicado en La Gaceta Nº 194 del 9 de octubre del 2002 y Nº 31081-MINAE, publicado en La Gaceta Nº 61 del jueves 27 de marzo del 2003, es el responsable de la selección, trámite y Pago de Servicios Ambientales. En virtud de lo anterior, se hace necesario contar con un documento técnico - administrativo que regule y disponga los procedimientos y mecanismos para llevar a cabo estos importantes procesos. Por tanto,
+La Junta Directiva del Fondo Nacional de Financiamiento Forestal, según acuerdo 1º, celebrado en la sesión ordinaria del día miércoles primero de abril del dos mil tres, emite el siguiente:
+MANUAL DE PROCEDIMIENTOS PARA EL PAGO
+DE SERVICIOS AMBIENTALES
+1. OBJETIVO
+Establecer los procedimientos que se aplicarán en el Pago de los Servicios Ambientales generados por los bosques y plantaciones forestales del país, mediante el fomento de las actividades de reforestación, protección de la cobertura boscosa y plantación de árboles forestales en sistemas agroforestales (SAF), pagados con recursos provenientes del Presupuesto Nacional, del Proyecto ECOMERCADOS y de cualquier otro donante o inversionista que no establezca condiciones diferentes, a las establecidas en este manual.
