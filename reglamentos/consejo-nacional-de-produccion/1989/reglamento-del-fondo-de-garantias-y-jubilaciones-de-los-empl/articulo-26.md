@@ -1,0 +1,1 @@
+Artículo 26—Este reglamento fue aprobado por la Junta Directiva del Consejo Nacional de Producción en sesión N° 1404, articulo 3°, de fecha 2 de mayo de 1989 y aprobado por el Ministerio de Trabajo y Seguridad Social, según oficio sin número del 30 de junio de 1989.

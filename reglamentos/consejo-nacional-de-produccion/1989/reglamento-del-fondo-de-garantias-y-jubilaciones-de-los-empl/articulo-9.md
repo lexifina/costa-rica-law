@@ -1,0 +1,1 @@
+Artículo 9°—El quórum se formará con cuatro miembros (mínimo dos de la administración y dos del sindicato) y los acuerdos se tomaran por la mayoría de los presentes. En caso de empate, elevarán el asunto que corresponda a la Administración Superior y a la Secretaría General del Sindicato para que en definitiva resuelvan.

@@ -1,0 +1,1 @@
+Artículo 25—Los funcionarios del Consejo relacionados con la aplicación de este reglamento, estarán sujetos a las sanciones disciplinarias que establece la Legislación Laboral, en caso de falta o incumplimiento de sus obligaciones.
