@@ -1,0 +1,2 @@
+Artículo V.-Personas Discapacitadas: Las personas discapacitadas podrán abrir Cuentas de Ahorros en dólares, para lo cual deberán actuar mediante su representante legal debidamente acreditado de acuerdo con la legislación vigente.
+En el caso de los ahorrantes analfabetos se deberá abrir la cuenta ante dos testigos en presencia de los cuales se le leerá el Reglamento y en caso de no saber firmar estampará su huella digital. De tal situación se dejará constancia en la tarjeta poder.
