@@ -1,14 +1,15 @@
-Artículo 45.—Atribuciones.
-a) Asesorar y velar por el cumplimiento de las estrategias y políticas para la administración del recurso humano y brindar asesoría en esta materia a los responsables de su ejecución.
-b) Fungir como agente de transformación continua, moldeando la cultura y los procesos que mejoren la capacidad de la Organización para el cambio.
-c) Elaborar y revisar periódicamente el perfil de competencias del recurso humano que se requiere para cumplir con los objetivos estratégicos de la Contraloría General de la República, como insumo indispensable para el proceso integrado de administración del recurso humano.
-d) Incrementar la contribución de los funcionarios a la Organización mediante un aumento del compromiso de éstos y de su capacidad para producir resultados, en coordinación con el Centro de Capacitación.
-e) Mantener una vinculación efectiva del recurso humano mediante actividades de promoción, bienestar social, recreativas, culturales y deportivas, que resulten en incrementos de su bienestar y productividad.
-f) Velar por la salud integral de los funcionarios e implementar mecanismos preventivos en materia de salud ocupacional.
-g) Reclutar el recurso humano que requiere la Institución para el logro de sus objetivos.
-h) Velar por el adecuado desarrollo de los procedimientos administrativos tendentes a señalar responsabilidades por actuaciones irregulares de los funcionarios de la Contraloría General de la República.
-i) Efectuar el trámite de despidos y sanciones disciplinarias del personal de la Institución.
-j) Administrar en forma efectiva los recursos financieros, materiales, humanos y tecnológicos de la unidad en función de los objetivos estratégicos.
-k) Elaborar el plan anual operativo, de acuerdo con las prioridades y objetivos definidos, para que sea integrado en un sólo plan del Área.
-l) Rendir cuentas por el desempeño de las funciones a su cargo
-m) Ejecutar cualesquiera otras labores que le asigne el Contralor General o el Gerente del Área.
+Artículo 45.—Coordinación.
+1. Con su superior jerárquico y con las gerencias de división.
+a. En las sesiones del Consejo Consultivo.
+b. Por medio de comunicación formal por medios escritos y electrónicos.
+c. A través del personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos; el enlace puede ser realizado por un funcionario o por equipos de trabajo constituidos por titulares de las unidades, coordinadores, o miembros de los equipos.
+2. Con las unidades de apoyo y asesoría y el Despacho del Contralor y Subcontralor Generales:
+a. Por medio de comunicación formal por medios escritos o electrónicos.
+b. Mediante nexos de cooperación mutua.
+c. A través del personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos; el enlace puede ser realizado por un funcionario, o equipos de trabajo constituidos por titulares de las unidades, coordinadores u otros funcionarios.
+3. Con las unidades a su cargo:
+a. Comunicación formal por medios escritos o electrónicos.
+b. Reuniones con las jefaturas o la creación temporal de equipos de trabajo para la toma de decisiones sobre asuntos específicos.
+c. Personal de enlace, asignado temporal o permanentemente, para la coordinación de asuntos específicos: el enlace puede ser realizado por un funcionario o por equipos de trabajo constituidos por funcionarios de diversos niveles de mando según se requiera.
+Los anteriores mecanismos de coordinación se complementan y apoyan con la estandarización de los métodos y procedimientos de trabajo, la especificación de los resultados esperados de las tareas que se ejecutan y de la especificación de las competencias de gestión, de conocimiento, afectivas y de aquellas otras que sean necesarias para administrar eficientemente el recurso humano.
+(Modificada la numeración de este artículo, mediante Resolución 0 del 26 de febrero del 2003, de la Contraloría General de la República, que subió la numeración de los artículos 44 y 45 de la anterior Sección Segunda del Capítulo VII de este Reglamento, que fue reemplazada por una nueva sección "Sección Sétima del Capítulo III, compuesta ahora por un nuevo artículo 17 y 18", corriendose así en dos tantos la numeración de los artículos preexistentes, con lo que el presente pasó de ser el N° 43 a ser el N° 45).

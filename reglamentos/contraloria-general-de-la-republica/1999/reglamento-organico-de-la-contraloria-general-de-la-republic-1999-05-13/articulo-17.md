@@ -1,7 +1,6 @@
-* CAPÍTULO IV
-División de Asesoría y Gestión Jurídica
-Artículo 17.- Objetivo; relación jerárquica.
-1. Actuar en procura de la aplicabilidad y perfeccionamiento del ordenamiento jurídico relacionado con la Hacienda Pública, velando porque las actuaciones de la Contraloría General de la República sean conformes con dicho ordenamiento, particularmente en los asuntos estratégicos relacionados con el control y la fiscalización superior de la Hacienda Pública. Llevará a cabo los procedimientos administrativos atinentes para verificar la responsabilidad administrativa y civil de los funcionarios públicos, la declaratoria de nulidad absoluta de los actos y contratos administrativos, y los que corresponda en materia de contratación administrativa. Asímismo tendrá a su cargo la atención de los procesos judiciales relacionados con la Hacienda Pública de acuerdo con la legitimación que la ley conceda a la Contraloría General de la República.
-2. Depende del Contralor General y está a caergo de un Gerente de División.
-* NOTA DEL SINALEVI: El presente Capítulo IV cuenta con vigencia atribuida mediante Resolución 0 del 20 de setiembre de 1999, de la Contraloría General de la República.)
-(Modificada la numeración de este artículo, mediante Resolución 0 del 16 de diciembre de 1999, de la Contraloría General de la República, que subió la numeración de los artículos 39 y 40 de la anterior Sección Sétima del Capítulo VI de este Reglamento, que fue reemplazada por una nueva sección "Sección Sexta del Capítulo III, compuesta ahora por un nuevo artículo 15 y 16", corriendose así en dos tantos la numeración de los artículos preexistentes, con lo que el presente pasó de ser el N° 15 a ser el N° 17).
+SECCIÓN SÉTIMA
+Recursos Humanos
+Artículo 17.—Objetivo; Relación jerárquica.
+1. Apoyar la gestión efectiva e integrada del recurso humano para dotar, desarrollar y retener el capital humano con las competencias requeridas para que la Contraloría General de la República lleve a cabo la fiscalización de la Hacienda Pública y la rectoría del Sistema Nacional de Fiscalización con apego a las ideas rectoras y a las estrategias institucionales y mediante acciones integradas de parte de la comunidad de recursos humanos, que conduzcan al logro de un desempeño organizacional superior.
+2. Depende del Contralor General.
+(Así refomado parcialmente este artículo -anterior artículo 44- mediante Resolución 0 del 26 de febrero del 2003, de la Contraloría General de la República, la cual a su vez en forma tácita sube la numeración del mismo al ahora artículo 17, corriendo así la numeración del restante articulado de este Reglamento.)
