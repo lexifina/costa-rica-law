@@ -1,0 +1,1 @@
+Art. 2° -No obstante lo dispuesto en el artículo anterior, de las rentas que produzcan los fondos incorporados se deducirán, de preferencia, las cantidades indispensables para atender á las necesidades públicas de dicho pueblo.
