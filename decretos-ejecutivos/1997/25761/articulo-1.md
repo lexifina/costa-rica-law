@@ -1,9 +1,0 @@
-N°25761-S
-EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE SALUD
-En uso de las atribuciones que les confieren los artículos 140 incisos 3) y 18) de la Constitución Política, 28 inciso b) de la Ley No 6227 de 2 de mayo de 1978 "Ley General de la Administración Pública"; 2° y 6° de la Ley No 5412 de 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud"; 2° del decreto ejecutivo No 27 del 20 mayo de 1941, reformado mediante decreto ejecutivo No 6981-SPPS del 13 de abril de 1977, Reglamento General de Patronatos y Juntas Directivas de Juntas de Protección Social; y 8° y 9° del decreto ejecutivo No 22183-S del 6 de mayo de 1993, "Reglamento General de Cementerios".
-Considerando:
-I.—Que mediante decreto ejecutivo No 25693-S de 18 de noviembre de 1996, publicado en "La Gaceta" No 5 de 8 de enero de 1997, el Poder Ejecutivo disolvió la Junta de Protección de Cartago, encomendando la administración del cementerio a la Municipalidad de Cartago y la administración de los demás bienes, derechos y obligaciones a la Dirección General de Salud.
-II.—Que se considera oportuno y conveniente establecer un periodo de transición para que la Junta de Protección Social de Cartago efectúe su liquidación, como para que la Municipalidad de Cartago y la Dirección General de Salud asuman sus administraciones. Por tanto,
-decretan:
-Artículo 1°—Adicionar el decreto ejecutivo No 25693-S de 18 de noviembre de 1996, publicado en "La Gaceta" No 5 de 8 de enero de 1997, con un artículo transitorio que se leerá así:
-"Transitorio.—Se establece un período de dos meses contados a partir de la publicación del presente decreto ejecutivo, para que la Junta de Protección Social de Cartago presente su liquidación, y para que la Municipalidad de Cartago y la Dirección General de Salud coordinen lo necesario para asumir sus administraciones."
