@@ -1,2 +1,2 @@
-49. —una refundición del préstamo cuando el prestatario solicite una ampliación al monto original, con el fin de obtener un grado académico superior, por incrementos de los costos de estudios, por problemas curriculares anteriores u otras causas justificadas ajuicio del Departamento de Crédito. El prestatario debe cumplir con los requisitos académicos reglamentarios y estar al día con las obligaciones contractuales, en las etapas de ejecución o cobro, según corresponda.
-(Así reformado por acuerdo del Consejo Directivo en su sesión N° 10 del 2 de marzo de 1995)
+49. —Todas refundiciones de préstamo serán aprobadas por el Consejo Directivo de CONAPE.
+(Así corrida su numeración por acuerdo del Consejo Directivo, en su sesión N° 47 de 18 de noviembre de 1999, el cual pasó el anterior artículo 48 al 49 actual)

@@ -18,3 +18,4 @@ Reglamento General de Crédito de la Comisión Nacional de Préstamos para la Ed
 | 3 | 1995-08-24 | Reglamento 36 (1995-08-24) |
 | 4 | 1996-06-13 | Reglamento 22 (1996-06-13) |
 | 5 | 1998-03-05 | Reglamento 10 (1998-03-05) |
+| 6 | 1999-11-18 | Reglamento 47 (1999-11-18) |

@@ -1,1 +1,2 @@
-40. —El prestatario que realice estudios en el exterior, debe apersonarse a CONAPE a más tardar treinta días después de finalizar los estudios, o comunicar al Departamento de Crédito cualquiera circunstancia que le impida regresar a Costa Rica en ese lapso.
+40. —El Departamento de Crédito puede suspender los desembolsos y someter a un prestatario a una fase de observación académica, durante un ciclo lectivo, o mantenerlo así durante un período mayor, para que actualice el programa de estudios aprobado.
+(Así corrida su numeración por acuerdo del Consejo Directivo, en su sesión N° 47 de 18 de noviembre de 1999, el cual pasó el anterior artículo 39 al 40 actual)

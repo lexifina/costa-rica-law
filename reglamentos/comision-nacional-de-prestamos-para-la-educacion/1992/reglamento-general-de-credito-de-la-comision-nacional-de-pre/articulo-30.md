@@ -1,3 +1,2 @@
-CAPÍTULO VI
-EJECUCIÓN DEL PROYECTO ACADÉMICO
-30. —El prestatario debe cursar los estudios financiados en la entidad educativa estipulada en el Contrato de Crédito para Estudios, la cual podrá cambiar previa autorización del Departamento de Crédito.
+30. —Uno o más desembolsos suspendidos pueden ser girados a posteriori o distribuidos entre los restantes, si el Prestatario recupera el atraso de uno o más ciclos lectivos o normaliza su situación a criterio del Departamento de Crédito.
+(Así corrida su numeración por acuerdo del Consejo Directivo, en su sesión N° 47 de 18 de noviembre de 1999, el cual pasó el anterior artículo 29 al 30 actual)

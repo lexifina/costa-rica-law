@@ -1,3 +1,2 @@
-CAPÍTULO VIII
-RECUPERACIÓN DEL PRÉSTAMO
-50. —El prestatario puede ser beneficiado en el período de pago con una refundición crediticia para financiar otros estudios, cuando su operación sea trasladada a la fase de Cobro en calidad de cumplimiento y se encuentre al día en los pagos.
+50. —una refundición del préstamo cuando el prestatario solicite una ampliación al monto original, con el fin de obtener un grado académico superior, por incrementos de los costos de estudios, por problemas curriculares anteriores u otras causas justificadas ajuicio del Departamento de Crédito. El prestatario debe cumplir con los requisitos académicos reglamentarios y estar al día con las obligaciones contractuales, en las etapas de ejecución o cobro, según corresponda.
+(Así corrida su numeración por acuerdo del Consejo Directivo, en su sesión N° 47 de 18 de noviembre de 1999, el cual pasó el anterior artículo 49 al 50 actual)

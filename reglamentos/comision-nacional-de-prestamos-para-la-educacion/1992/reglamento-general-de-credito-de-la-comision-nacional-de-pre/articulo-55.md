@@ -1,1 +1,2 @@
-55. —El préstamo trasladado a la Fase de Cobro en condición de "Incumplimiento" del Contrato de Crédito para Estudios, tendrán un cargo adicional al principal del 10% sobre el monto adeudado.
+55. —El atraso en el pago de las amortizaciones, es penalizado con el pago de interés moratorio no menor de la tasa más alta que cobren los bancos en sus operaciones activas, aplicable sobre el monto de las amortizaciones atrasadas hasta su efectivo pago.
+(Así corrida su numeración por acuerdo del Consejo Directivo, en su sesión N° 47 de 18 de noviembre de 1999, el cual pasó el anterior artículo 54 al 55 actual)
