@@ -14,3 +14,4 @@ Reglamento Orgánico del Consejo Técnico de Defensa Social
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1962-02-17 | la propia norma |
+| 2 | 1971-01-29 | Decreto Ejecutivo 1465 (1971-01-29) |
