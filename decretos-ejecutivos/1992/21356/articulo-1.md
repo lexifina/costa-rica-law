@@ -1,3 +1,6 @@
+(Derogado)
+La presente norma ha sido DEROGADA EN SU TOTALIDAD por el artículo 18 del decreto ejecutivo N° 31596 de 13 de marzo de 2003,
+Reglamento Orgánico del Centro de Formación de Formadores y de Personal Técnico para el Desarrollo Industrial de Centro América.
 No 21356-MEP
 EL PRIMER VICEPRESIDENTE
 EN EJERCICIO DE LA PRESIDENCIA DE LA REPÚBLICA
