@@ -14,3 +14,4 @@ Reglamento Sobre Estudios de Impacto Ambiental
 | --- | --- | --- |
 | 1 | 1994-11-30 | la propia norma |
 | 2 | 1994-11-30 | SINALEVI (sin norma nombrada) |
+| 3 | 1996-10-08 | SINALEVI (sin norma nombrada) |
