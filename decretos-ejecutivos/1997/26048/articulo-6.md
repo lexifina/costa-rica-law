@@ -1,0 +1,1 @@
+Artículo 6°-Las entidades recaudadoras únicamente deberán recibir los pagos y declaraciones correspondientes a obligaciones tributarias en los formularios autorizados por la Dirección General de la Tributación Directa, mediante resolución general. .

@@ -1,0 +1,2 @@
+Transitorio 1°-Mientras que no entren en vigencia las resoluciones generales determinando las características de los formularios, los sujetos pasivos deberán cumplir sus obligaciones tributarias en los formularios que para tal efecto se han utilizado y que serán suministrados por la Dirección General de la Tributación Directa.
+Dado en la Presidencia de la República.-San José, a los veintiocho días del mes de abril de mil novecientos noventa y siete.

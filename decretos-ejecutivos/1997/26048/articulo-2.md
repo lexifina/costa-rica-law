@@ -1,0 +1,2 @@
+Artículo 2°-La Dirección General de la Tributación Directa podrá adoptar los convenios con las entidades públicas para los efectos de la emisión y distribución de tales formularios.
+Las entidades autorizadas para la emisión de las declaraciones deberán cumplir con las condiciones y requisitos establecidos en los instructivos dictados por la Dirección General de Tributación Directa, de manera que se garantice el control tributario y la correcta distribución de los formularios.

@@ -1,0 +1,1 @@
+Artículo 5°-Los sujetos pasivos deberán efectuar el cumplimiento de sus obligaciones tributarias únicamente en los formularios originales autorizados por la Dirección General de la Tributación Directa.

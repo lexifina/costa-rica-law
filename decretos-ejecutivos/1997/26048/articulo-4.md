@@ -1,0 +1,1 @@
+Artículo 4°-La Dirección General de la Tributación Directa mediante resolución de alcance general determinará las características de los formatos y elaborará los instructivos necesarios de procedimiento y formas de control pertinentes para la correcta aplicación de los formularios, así como sus fechas de vigencia.
