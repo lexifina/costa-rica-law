@@ -1,6 +1,0 @@
-Artículo 6º—Adicionar un nuevo inciso al artículo 21, para obtener su conformidad con lo establecido en el artículo 8 del Código de Comercio, con el fin de que se lea;
-"Artículo 21: Requisitos: Para obtener una Licencia comercial de venta estacionaria, se requiere, además de los requisitos que sean procedentes, establecidos en el artículo 11 de este Reglamento, los siguientes requisitos;
-a) Ser costarricense por nacimiento o por naturalización, o residente con más de diez años de haber adquirido tal condición.
-b) Presentará el solicitante un croquis del cubículo comercial en donde se instalará la venta estacionaria, el cual deberá contar con el visto bueno del Departamento de Desarrollo Urbano de esta Institución. El área que sea autorizada no podrá ampliarse de ninguna forma; ni siquiera con toldos o plásticos o cualquier otro objeto que tienda a la protección del mismo contra la lluvia o luz solar.
-c) En los puestos que expendan alimentos de consumo directo se exigirá la presentación del Certificado de funcionamiento sanitario expedido por el Ministerio de Salud y los vendedores deberán portar un carne de salud.
-No se podrá otorgar más de una licencia comercial para venta estacionaria por cada cuadrante".

@@ -1,1 +1,0 @@
-Artículo 10.—Se modifica la denominación del "Capítulo V. Disposiciones Finales" a "Título III. Disposiciones Finales." Y en consecuencia se traslada su lectura íntegra a dicho Título, y se modifica la numeración de sus artículos, respectivamente.

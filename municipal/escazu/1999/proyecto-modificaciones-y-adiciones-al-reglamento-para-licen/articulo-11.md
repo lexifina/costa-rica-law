@@ -1,2 +1,0 @@
-Artículo 11.—Se modifica el Transitorio I, para que se lea de la siguiente forma;
-"Transitorio I.—Hasta tanto no se adopte el Plan Regulador del Cantón de Escazú, corresponde a la Dirección de Urbanismo del Instituto de Vivienda y Urbanismo emitir las certificaciones respectivas sobre uso del suelo y zonificación; de conformidad con el uso del suelo predominante de la zona; con planos mosaicos y/o con el GAM."
