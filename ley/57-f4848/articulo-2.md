@@ -1,0 +1,1 @@
+Art 2° El Fiscal de Hacienda y los Agentes Fiscales formarán un legajo de los conocimientos de que habla el artículo precedente, cada quince días, lo más tarde, averiguaran en la Receptoría si se han hecho los enteros. En caso negativo intentará la demanda ejecutiva sin pérdida de tiempo.
