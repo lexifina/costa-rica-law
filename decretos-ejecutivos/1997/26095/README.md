@@ -16,3 +16,4 @@ Reglamento Autónomo de Servicio del Ministerio de Justicia y Paz
 | 1 | 1997-07-02 | la propia norma |
 | 2 | 1999-09-09 | Decreto Ejecutivo 28213 (1999-09-09) |
 | 3 | 2000-06-05 | Decreto Ejecutivo 28825 (2000-06-05) |
+| 4 | 2001-10-30 | Decreto Ejecutivo 29935 (2001-10-30) |

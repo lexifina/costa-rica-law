@@ -4,6 +4,9 @@ Artículo 9°—Además de lo dispuesto en los artículos 72 del Código de Trab
 1 Ocupar tiempo dentro de las horas de trabajo para asuntos ajenos a las labores asignadas.
 2 Atender visitas o hacer uso del teléfono para asuntos personales en horas de trabajo, salvo en casos de marcada excepción.
 3 Recibir dádivas o gratificaciones, de cualquier naturaleza, por servicios prestados como trabajadores del Ministerio o que emanen de su condición de tales.
+3.2. Utilizar durante la jornada de trabajo o fuera de ella el equipo electrónico del Estado para observar o reproducir pornografía.
+3.3. Exhibir el material pornográfico dentro de los edificios donde funcionen instituciones públicas.
+(Decreto Ejecutivo No. 29935 de 30 de octubre de 2001 adicionó inciso 3.2 y 3.3 de modo expreso)
 4 Visitar otras oficinas que no sean aquellas en donde deben prestar sus servicios, a no ser que lo exija la naturaleza del trabajo, así como mantener conversaciones telefónicas o personales innecesarias con compañeros de trabajo o con terceras personas.
 5 Valerse de la función que desempeñan en la dependencia o invocarla para obtener ventajas ajenas a sus funciones.
 6 Servir otros cargos remunerados o no, como empleados regulares de la Administración Pública, de las instituciones autónomas o semiautónomas, excepto los autorizados por ley.
