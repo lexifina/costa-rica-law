@@ -289,7 +289,7 @@ De este punto, al punto de origen de la presente descripción, vértice Angucian
 (*) (Así adicionado los caseríos anteriores por el artículo 4° del decreto ejecutivo N° 12232 del 26 de enero de 1981)
 (Así reformado por el artículo 2° del decreto ejecutivo N° 12232 del 26 de enero de 1981)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se acordó modificar los linderos de la Reserva Indígena Guaymí de Coto Brus, a fin de incluir en ella al grupo indígena de Paraíso y excluir los Altos del Cerro Paraguas)
-(Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se indicó qie la Reserva Indígena Guaymí de Coto Brus, en referencia a la División Político - Administrativa, tendrá en adelante calidad de "Barrio" del cantón de Coto Brus)
+(Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se indicó que la Reserva Indígena Guaymí de Coto Brus, en referencia a la División Político - Administrativa, tendrá en adelante calidad de "Barrio" del cantón de Coto Brus)
 RESERVA INDÍGENA GUAYMÍ DE CONTE-BURICA(*)
 (Mediante el artículo 1° del decreto ejecutivo N° 8514 del 2 de mayo de 1978, se indicó que la Reserva Indígena de Burica se llamará en adelante: "Reserva Indígena Guaymí de Conteburica")
 La Reserva Indígena Guaymí de Conte-Burica se encuentra localizada en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541 - II, Río Caña Blanca 3540 - I, Laurel 3641 III, Puerto Armuelles 3640 - IV.
@@ -343,40 +343,75 @@ N 288950 | E 588150
 (*) (Así adicionada la Reserva Indígena de Abrojo de Montezuma anterior por el artículo 3° del decreto ejecutivo N° 8514 del 2 de mayo de 1978)
 (Así reformada la la Reserva Indígena de Abrojo de Montezuma anterior por el artículo 1° del decreto ejecutivo N° 12115 del 9 de diciembre de 1980)
 RESERVA INDÍGENA DE LA ESTRELLA
-La Reserva Indígena de la Estrella, se encuentra en las hojas del Instituto Geográfico Nacional, Estrella 3545-11 y Telire 3544-1, - escala 1: 50.000.
-Se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
-| | 192 350 | 628 200
-N 60 31 E | 1 320 m | 193 000 | 629 350
-N 55 05 E | 3 230 | 194 850 | 632 000
-E Franco | 1 750 | 194 850 | 633 750
-N 77 39 E | 5 375 | 196 000 | 639 000
-S 40 09 E | 2 095 | 194 400 | 640 350
-S 20 40 E | 1 415 | 193 075 | 640 850
-S 34 23 W | 1 725 | 191 650 | 639 875
-S 08 08 W | 885 | 190 775 | 639 750
-S 69 52 W | 800 | 190 500 | 639 000
-S 08 52 E | 2 758 | 187 775 | 639 425
-E Franco | 2 875 | 187 775 | 642 300
-De este punto se sigue aguas arriba por el río Cerere, hasta la unión con la quebrada Barrera, en el punto de coordenada N 184 575 y E 643 200, continúa aguas arriba por la quebrada Barrera hasta el punto de coordenadas N184 600 y K 643 500. A partir de este punto se continúa con los siguientes rumbos, distancias v coordenadas:
-S 58 24 E | 765 m | 184 200 | 644 150
-S 12 32 E | 460 | 183 750 | 644 250
-W Franco | 850 | 183 750 | 643 400
-S 84 17 W | 1 005 | 183 750 | 642 400
-N 36 29 W | 2 270 | 185 475 | 641 050
-N 65 16 W | 2 090 | 186 350 | 639 150
-S 01 49 E | 1 575 | 184 300 | 634 150
-S 15 57 W | 182 | 184 125 | 634 200
-S 85 29 W | 950 | 184 050 | 633 150
-N 87 34 W | 1 175 | 184 100 | 632 025
-S 35 32 W | 645 | 183 575 | 631 650
-S 40 32 W | 2 270 | 181 850 | 630 175
-S 10 53 W | 1 325 | 180 550 | 629 925
-W Franco | 1 075 | 180 550 | 628 850
-N 25 28 W | 1 165 | 181 600 | 628 350
-N 04 43 E | 2 380 | 183 950 | 629 275
-De este punto se sigue aguas arriba por la quebrada Sarpueri hasta el punto de origen de la presente descripción en coordenadas N 192 350 y E 628 200.
-ÁREA DE LA RESERVA: 12 477 Ha, 2 688 metros cuadrados.
-(Así reformado los linderos de la Reserva Indígena de la Estrella anterior, por el artículo 3° del decreto ejecutivo N° 6036 del 26 de mayo de 1976)
+Establécese la "Reserva Indígena Cabécar de Tayni, Estrella". La Reserva Indígena Cabécar de Tayni, Estrella, se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Estrella 3545 II y Telire 3544 I.
+Se localiza por los puntos cuyas coordenadas son:
+198 107 | 636 403 | (Vértice Muchilla, ÍGN)
+196 850 | 638 600 |
+195 925 | 639 125 |
+195 325 | 639 400 |
+195 100 | 639 325 |
+194 900 | 639 125 |
+194 675 | 639 150 |
+194 425 | 639 600 |
+194 000 | 639 750 |
+191 650 | 639 875 | (Brazo río Suruy) .
+190 425 | 639 650 | (Río Estrella o Tay )
+190 225 | 639 200 |
+189 425 | 639 200 |
+189 125 | 639 100 | (Río Abuy o Jabuy)
+De este punto se sigue aguas arriba por el río Jabuy, hasta el punto de coordenadas N188 700, E 638 650. A partir de este punto se continúa con las siguientes coordenadas:
+188 875 | 639 450 |
+188 825 | 639 775 |
+188 500 | 640 400 |
+188 450 | 640 900 |
+188 625 | 641 525 |
+1800 500 | 641 650 | (Brazo río Cerere)
+De este punto se continúa aguas arriba por el brazo del río Cerero, hasta el punto de coordenadas-N 188 000, E 641 750.
+De aquí al río Cerere, en el punto de coordenadas N 188 175, E 642 300. Se sigue aguas arriba por el río Cerere, hasta el punto de coordenadas N 183 700, E 642 400. A partir de este punto, se continúa con las siguientes coordenadas:
+185 500 | 641 050 | (Quebrada Jarbrady o Jacbarari)
+186 350 | 639 150 |
+185 900 | 634 150 |
+185 300 | 634 400 |
+184 150 | 634 150 | (Río Moi o Moy)
+184 075 | 633 250 | (Quebrada Jarbradi)
+184 100 | 632 025 | (Quebrada Janaveri)
+183 575 | 631 275 | (Río Congo )
+De este punto se sigue aguas arriba por el brazo del río Congo, hasta el punto de coordenadas N 183 100, E 630 950. De este punto se continúa con las siguientes coordenadas:
+181 850 | 630 200 | (Quebrada Shamei o Xamey)
+180 600 | 630 000 |
+180 650 | 628 850 |
+181 550 | 628 325 | (Brazo río Cuén)
+De este punto continúa aguas abajo por el brazo del río Cuén, hasta el punto de coordenadas N 183 400, E 628 700.
+De este punto se sigue con las siguientes coordenadas:
+184 150 | 627 700 |
+185 250 | 627 700 | (Quebrada Sivori)
+185 300 | 627 800 | (Quebrada Sivori)
+186 675 | 628 950 |
+189 125 | 629 150 |
+190 600 | 629 075 | (Río Estrella o Tay )
+De este punto se sigue aguas arriba por la quebrada Sarpueri, hasta el punto de coordenadas N 192 550, E 628 000.
+Se continúa con las siguientes coordenadas:
+195 525 | 633 150
+196 750 | 631 850
+197 325 | 632 200
+197 450 | 632 500
+197 850 | 632 825
+198 050 | 633 425
+197 500 | 634 900
+197 600 | 635 400
+De este punto al punto inicial de la presente descripción en coordenadas N 198 107, E 636 403 (vértice Muchilla, IGN).
+Área aproximada 13 616 hectáreas.
+Caseríos:
+1) | Cuén | (Cuén, Alto Cuén, Moy) ;
+2) | Boca Cuén | (Isla de Cuén, Boca Cuén, Tsiricbri) ;
+3) | Calveri | (Calven, Cariey, Tay, Cuxey, Cerros Bueco y Bucúac) ;
+4) | Xicalar | (Xicalar Bata, Mome) ;
+5) | Jabuy | (Alto Jabuy, Jabuy, Suéwari) ;
+6) | Cerere | (Cerere, Cuágri) ; y
+7) | Suruy | (Suruy, Alto Suruy) .
+(Así adicionados los caseríos anteriores por el artículo 3° del decreto ejecutivo N° 12233 del 26 de enero de 1981)
+(Así reformado los linderos de la Reserva Indígena de la Estrella anterior, por el artículo 1° del decreto ejecutivo N° 12233 del 26 de enero de 1981)
+(Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 12233 del 26 de enero de 1981 se indicó que La Reserva Indígena Cabécar de Tayni, Estrella, en referencia a la División Político- Administrativa, tendrá en adelante calidad de "Barrio" del cantón central, distrito único, de Limón.)
 RESERVA INDÍGENA DE GUATUSO
 La Reserva Indígena de Guatuso se encuentra localizada en las hojas del Instituto Geográfico Nacional, escala 1: 50.000, Guatuso 3248 III y Arenal S 247 IV.
 La Reserva se localiza por los siguientes rumbos, distancias y coordenadas:
