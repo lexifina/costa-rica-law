@@ -1,0 +1,1 @@
+Artículo 3°- A efecto de garantizar los trabajos de impresión y las medidas de seguridad correspondiente, la emisión de especies se considera como una actividad ordinaria del Banco Central y no estará sujeta a licitación, de acuerdo con lo que establece el artículo 110 de la Ley de Administración Financiera de la República.
