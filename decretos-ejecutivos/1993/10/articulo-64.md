@@ -1,0 +1,1 @@
+Artículo 64.-La DGVS establecerá en la resolución administrativa, el porcentaje de animales nacidos en cautiverio que el permisionario deberá liberar al medio natural; así como el área donde se realizará la liberación.
