@@ -1,0 +1,1 @@
+Artículo 8º—La concesión de becas, solo se realizará cuando los estudios profesionales de formación técnica o administrativa, se realicen en Centro Educacionales que sean reconocidos por el Ministerio de Educación y el CONESUP.

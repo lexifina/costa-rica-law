@@ -1,0 +1,1 @@
+Artículo 5º—El becario que en el disfrute de una beca abandone los estudios por causas injustificadas, perderá el derecho de participar en nuevo concurso, y deberá cancelar todos los gastos en que haya incurrido la Municipalidad al momento de producirse el abandono.

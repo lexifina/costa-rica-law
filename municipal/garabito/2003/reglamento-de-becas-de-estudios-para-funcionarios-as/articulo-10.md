@@ -1,0 +1,1 @@
+Artículo 10.—En caso de ser suspendida la beca por las causas establecidas en el Artículo 9, el beneficiario deberá reintegrar a la Municipalidad todo lo que ésta ha pagado al momento de eliminar el beneficio y no se le volverá a tomar en cuenta como candidato a una beca municipal.

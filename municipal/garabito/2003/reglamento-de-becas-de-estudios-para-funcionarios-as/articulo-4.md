@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad, podrá aprovechar las facilidades que el Gobierno de la República, otros Gobiernos, organizaciones internacionales o la empresa privada, ofrezcan para la formación de su personal.
