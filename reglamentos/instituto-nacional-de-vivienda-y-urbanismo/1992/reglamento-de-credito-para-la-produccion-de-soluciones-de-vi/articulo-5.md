@@ -1,0 +1,1 @@
+Artículo 5°—Durante el trámite de precalificación y análisis de proyectos el INVU no adquiere obligación de otorgar el financiamiento, la cual se establece a partir de la firma del contrato respectivo.

@@ -1,0 +1,1 @@
+Artículo 4°—Cuando el INVU lo considere conveniente, para promover proyectos en determinadas zonas del país, podrá publicar los concursos correspondientes para precalificar a los interesados y analizar los proyectos ofrecidos.

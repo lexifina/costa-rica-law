@@ -1,0 +1,1 @@
+Artículo 11.—El Instituto desembolsará los fondos contra obra efectuada, según Ios elementos presupuestos. En casos excepcionales podrá aprobarse anticipos para capital de trabajo, previa aceptación de la Junta Directiva.

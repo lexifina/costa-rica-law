@@ -1,0 +1,1 @@
+Artículo 10.—El INVU financiará hasta el 90% del valor de las obras incluyendo adicionales y aumento de costos, pero podrá hacer desembolsos hasta por el 100% de acuerdo con la disponibilidad de recursos financieros, en el momento en que esté terminado el proyecto, para lo cual el INVU podrá exigir garantías adicionales.

@@ -1,0 +1,1 @@
+Artículo 6°— De aceptarse el oferente como sujeto de crédito, el INVU procederá a realizar la evaluación del proyecto y a hacer los estudios para analizar el avalúo del inmueble, los planos, presupuestos y las normas y especificaciones constructivas que debe presentar el interesado.
