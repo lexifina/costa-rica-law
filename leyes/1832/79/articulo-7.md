@@ -1,0 +1,1 @@
+ARTÍCULO 7°.-Quedan reformados los artículos 42, 15, 16, 20 y 18 de la Ordenanza del Estado, vigorizado el 6§. de la Ley adicional de 3 de Julio de 830, y vigente la antigua Ordenanza en lo que no se oponga a la del Estado, y a esta presente declaratoria.
