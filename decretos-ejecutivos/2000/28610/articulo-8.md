@@ -1,0 +1,1 @@
+Articulo 8°- La afectación de los inmuebles en el Registro Público a la que hace referencia el artículo anterior se establece únicamente sobre el área en la que se ejecuta el proyecto, indicada en el contrato forestal.

@@ -1,0 +1,1 @@
+Articulo 5°- Se faculta al fondo Nacional de financiamiento forestal (FONAFIFO) a emitir el pago de los servicios ambientales en sus diferentes categorías por las cantidades máximas autorizadas por este de cr eto.

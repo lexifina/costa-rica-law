@@ -1,0 +1,1 @@
+Articulo 11. Los contratos para la ejecución de los planes de manejo forestal que se financien con los recursos autorizados en este de cr eto deben firmarse a más tardar el treinta y uno de diciembre del año dos mil.
