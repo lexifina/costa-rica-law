@@ -1,0 +1,1 @@
+Art, 8. El presente decreto tendrá efecto desde el primero de Noviembre próximo en adelante.—Dado en el Palacio Nacional, en San José, a los veinticuatro dias del mes de julio de mil ochocientos cincuenta y cinco.—Juan Rafael Mora.—El Ministro de Estado en el Despacho de Hacienda, Manuel José Carazo."

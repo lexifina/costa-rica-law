@@ -1,0 +1,1 @@
+Art. 4. A los licores que salgan de los límites de la franquicia con direccion al interior de la República y procedentes de los almacenes de la Aduana de Puntarenas, en donde deben haber satisfecho el derecho de franquicia, se les abonará este en la Aduana del Rio Grande por cuenta de los derechos que respectivamente deben pagar, segun la tarifa vigente.
