@@ -1,0 +1,1 @@
+Art. 14-Cuando se trate de dos ó más delitos conexos, complejos ó independientes, cada delito tendrá precisamente su respectiva serie de cuestiones; y cuando sean dos ó más los reos, cada uno tendrá su serie particular.

@@ -1,0 +1,1 @@
+Art. 3°-Las funciones de jurado son incompatibles con las de Presidente de la República, Secretario ó Subsecretario de Estado, Diputado, Magistrado de la Corte Suprema de Justicia ó Secretario de alguna de sus Salas, Gobernador, Jefe Politico, Juez de 1a Instancia, Alcalde, empleado del Juzgado del Crimen, Agente Fiscal ó de Policía, ó Militar en servicio activo.

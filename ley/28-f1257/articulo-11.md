@@ -1,0 +1,2 @@
+Art. 11-Los jurados sorteados se citarán por circular, y los suplentes serán llamados aunque los propietarios no estén ausentes.
+El jurado que después de citado se ausentare ó que sin justa causa, dejare de concurrir á la reunión, á juicio del Juez, incurrirá en multa de diez á cincuenta pesos, sin perjuicio de castigarse conforme al Código Penal y de ser apremiado con arresto, si por su no asistencia dejare de constituirse el tribunal.

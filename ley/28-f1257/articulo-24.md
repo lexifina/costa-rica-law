@@ -1,0 +1,1 @@
+Art. 24.-Redactado y firmado el veredicto y devuelto por el Juez sin objeción, se abrirán las puertas, y á presencia de las partes y demás concurrentes, el Secretario lo leerá en voz alta, é incontinenti entregará el proceso al Juez del Crimen, dándose por terminada la audiencia.

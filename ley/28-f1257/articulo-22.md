@@ -1,0 +1,1 @@
+Art. 22.-Los jurados, al emitir sus votos, no atenderán más que al dictamen de su conciencia, concretándose á los puntos de hecho sometidos, sin mezclarse en cuestión alguna de derecho. No son responsables por los votos emitidos.
