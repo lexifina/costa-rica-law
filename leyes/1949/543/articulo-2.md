@@ -1,0 +1,1 @@
+Artículo 2°- Se crea una Alcaldía para los cantones de Coronado y Moravia, y una segunda para el cantón de Nicoya, quedando en consecuencia la jurisdicción de la Alcaldía de Guadalupe reducida a los cantones de Goicochea y Tibás.
