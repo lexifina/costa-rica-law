@@ -1,0 +1,1 @@
+Art. 5° -Los títulos supletorios y posesorios levantados por razón de los terrenos á que se refiere el presente decreto, son nulos; y á solicitud fiscal deberán cancelarse las inscripciones que de ellos se hubieren hecho en el Registro de la Propiedad. Para pretenderlo, deberá primero justificarse, en juicio ordinario, que el título se refiero á terrenos agraciados.

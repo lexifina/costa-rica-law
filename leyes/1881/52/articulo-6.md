@@ -1,0 +1,1 @@
+Art. 6° - Transcurrido el término de dos años, que comenzará á correr desde el día primero de enero de 1882, se tendrá por renunciada la gracia, y por perjudicado el derecho del que no hubiere acudido á cumplir con las disposiciones del presente decreto. Mientras corre el plazo, los terrenos de que se trata son indenunciables.
