@@ -1,0 +1,1 @@
+Art. 12.-La persona á cuyo nombre se expida un giro postal podrá endosarlo á una segunda, que adquiere para su cobro los derechos de aquella; pero nunca se admitirá más que un endoso, de manera que otro que se haga, contraviniéndose á esta disposición será completamente ineficaz.
