@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE POCOCÍ
+Le transcribo acuerdo tomado por el Concejo Municipal de Pococí en sesión ordinaria N° 26 del 17-4-2002, dice:
+Acta N° 26, artículo II, Acuerdo 195, inciso N° 6: Se presenta ante este Concejo la Asociación de Desarrollo el Indio, dice:
+El Señor Presidente de la Asociación Marvin Rodríguez de Desarrollo el Indio presenta Convenio el mismo como sigue:
+CONVENIO COOPERACIÓN ENTRE LA MUNICIPALIDAD DE POCOCÍ Y LA ASOCIACIÓN DE DESARROLLO INTEGRAL DEL ASENTAMIENTO CAMPESINO EL INDIO
+Entre nosotros, Manuel Hernández Rivera, mayor, casado, Abogado, con cédula de identidad número siete-cero ochenta y seis-ochocientos cincuenta, vecino de Barrio los Pinares, 400 al sur y 80 al oeste del Mas por Menos, Cantón de Pococí, en mi condición de Alcalde Municipal de Pococí, según nombramiento con fecha 27 de agosto de 1998, mediante Sesión Ordinaria Nº 78, acuerdo 335, del Concejo Municipal de Pococí, celebrada el 27 de agosto de 1998, nombramiento publicado en La Gaceta Nº 193 del lunes 5 de octubre de 1998 y Marvin Rodríguez Cordero, mayor, casado, profesor, cédula seis-ciento cincuenta y cinco-cuatrocientos cuarenta y tres, vecino de El Indio de la Rita, en su condición de Presidente de la Asociación de Desarrollo Integral del Asentamiento Campesino El Indio, Guápiles, Pococí, cédula jurídica 3-002-126077, personería que se encuentra inscrita en el Ministerio de Gobernación y Policía, Dirección Nacional de Desarrollo de la Comunidad, al tomo: 25, folio: 117, asiento: 1670, misma que se encuentra vigente hasta el día 23 de abril del año 2003, con fundamento en el artículo 4 inciso f) del Código Municipal, hemos convenido en celebrar el presente Convenio Cooperación, el cual se regirá por las siguiente cláusulas:
+I.—Definiciones: En el presente documento, se entenderá por:
+MUNICIPALIDAD: La Municipalidad del Cantón de Pococí.
+ASOCIACIÓN: La Asociación de Desarrollo Integral del Asentamiento Campesino El Indio.
+CONVENIO: El presente Convenio para la utilización de material del Río Sucio.

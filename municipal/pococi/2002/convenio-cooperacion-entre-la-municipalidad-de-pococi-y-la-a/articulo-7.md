@@ -1,0 +1,1 @@
+VII.—Informe Mensual: La Asociación se compromete a presentar ante el Concejo Municipal un informe mensual, indicando en el mismo la cantidad de material que ha acarreado la Municipalidad, los días en que se acarreó, la persona que autorizó y la placa del vehículo en que se utilizó para el acarreo.
