@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-17 | la propia norma |
+| 2 | 2004-09-27 | Resolución 26 (2004-09-27) |
