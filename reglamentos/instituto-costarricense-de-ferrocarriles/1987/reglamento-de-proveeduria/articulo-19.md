@@ -1,2 +1,0 @@
-Artículo 19.—Si el oferente deseare dejar sin efecto la oferta presentada o introducirle alguna modificación, deberá hacerlo por escrito, en sobre cerrado que entregará a la Proveeduría. Este sobre de modificaciones será abierto en el mismo acto de apertura de los otros y se agregará a la oferta original.
-Las ofertas extemporáneas que se reciban por correo o cualquier otro medio, no se tomarán en cuenta.

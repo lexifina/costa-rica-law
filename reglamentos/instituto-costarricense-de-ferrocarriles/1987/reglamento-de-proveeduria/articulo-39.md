@@ -1,1 +1,0 @@
-Artículo 39.—Cuando el precio u honorarios correspondientes estuvieren regulados taxativamente por tarifas obligatorias (no el máximo ni el mínimo se entenderá la oferta, en cuanto a compensación económica se refiere, regida por las mismas. Si estuvieren regulados por aranceles mínimos, regirá como, precio u honorario el mínimo de la tarifa correspondiente.

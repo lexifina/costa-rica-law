@@ -1,1 +1,0 @@
-Artículo 45.—Además de todas las regulaciones anteriores, también redirán para los concursos de antecedentes otras disposiciones del Reglamento de la Contratación Administrativa y las señaladas en los artículos Nos. 19, 21, 22, 23 24, 25, 26, 27, 29, 30 y 35 del presente Reglamento.

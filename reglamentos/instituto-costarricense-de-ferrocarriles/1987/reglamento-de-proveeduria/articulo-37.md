@@ -1,4 +1,0 @@
-CAPITULO IX
-Del concurso de antecedentes
-Artículo 37.—El concurso de antecedentes es el procedimiento a seguir para la celebración —salvedad hecha de lo dispuesto por el artículo 198 del Reglamento de la Contratación Administrativa— de todos aquellos contratos administrativos que tengan por objeto la prestación de servicios técnicos o profesionales sin relación de subordinación jurídica laboral y en donde para adjudicar, el precio no constituye factor primordial.
-Tiene carácter público el cual se inicia con la publicación en "La Gaceta" de las condiciones o bases del mismo y la correspondiente invitación a concursar para lo cual la Proveeduría procederá a redactar el cartel respectivo, en consulta con el departamento interesado y cuyo contenido deberá previamente ser aprobado por el Consejo Directivo, quien lo adjudicará. La resolución al Concurso de Antecedentes deberá también ser publicada en el Diario Oficial.

@@ -1,2 +1,0 @@
-Artículo 16.—La modificación a las condiciones o especificaciones del cartel deberá publicarse en el Diario Oficial, con un mínimo de ocho días hábiles contados entre la fecha de tal publicación y la de vencimiento para el recibo de las ofertas.
-Las prórrogas al plazo para el recibo de ofertas, deben estar publicadas en "La Gaceta" a más tardar el día anterior al que previamente se hubiere señalado como límite para la presentación de aquellas.

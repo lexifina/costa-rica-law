@@ -1,1 +1,0 @@
-Artículo 46.—Tanto en las licitaciones públicas como en concursos de antecedentes, la adjudicación quedará firme tres días hábiles después de su publicación en el Diario Oficial, en caso de no haber apelación.

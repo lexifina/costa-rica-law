@@ -1,1 +1,0 @@
-Artículo 35.—Cuando se trate de ofertas de origen nacional, el participante deberá hacer declaración jurada de no encontrarse en ninguno de los casos de imposibilidad legal para contratar con este Instituto, a que se refiere el artículo 252 y siguientes del Título X del Reglamento de la Contratación Administrativa.

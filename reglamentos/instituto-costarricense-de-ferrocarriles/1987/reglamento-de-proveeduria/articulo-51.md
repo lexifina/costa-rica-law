@@ -1,4 +1,0 @@
-CAPITULO XI
-De las ventas
-Artículo 51.—La Proveeduría procederá a la venta de bienes o servicios no ordinarios en forma directa o por medio de licitación privada o pública, según corresponda, de acuerdo con los montos establecidos en el artículo 11 del presente Reglamento y lo dispuesto en el artículo 16, inciso b) de la Ley Orgánica del Instituto No 7001 de 19 de setiembre de 1985, de los bienes que ya no utilice o bien de las mercancías que por causas imputables al mismo Instituto se deterioren en su transporte y por ello se deba asumir su pago.
-Asimismo podrá el Instituto cuando lo considere conveniente a sus intereses, promover la venta o el arrendamiento de sus bienes, por medio del procedimiento de remate. Para ello el departamento de Proveeduría deberá regirse por lo que establece el Título VI, Capítulo Único del Reglamento de la Contratación Administrativa, en sus artículos 184, 185, 186, 187, 188, 189, 190, 191, 192.
