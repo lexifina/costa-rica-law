@@ -1,0 +1,2 @@
+Casos de urgencias.
+Artículo 5°- En casos de urgencias, vista la recomendación de por lo menos un médico Jefe de Servicio y de la Gerencia de División Médica, la Presidencia Ejecutiva autorizará un adelanto de la ayuda hasta por un monto de $1.000 (mil dólares), suma que ha de justificar el paciente, a su regreso, ante la Tesorería General, con la presentación de factura u otros documentos probatorios, a satisfacción de la Institución.

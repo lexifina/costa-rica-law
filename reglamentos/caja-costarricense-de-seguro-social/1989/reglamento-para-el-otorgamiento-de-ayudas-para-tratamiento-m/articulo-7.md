@@ -1,0 +1,1 @@
+Artículo 7°- En casos muy especiales, cuando de la evaluación o del tratamiento médico en el exterior puede depender la vida del paciente, la Institución podrá, por acuerdo expreso y fundamentado ante la Junta Directiva, ampliar el monto de la ayuda económica aquí contemplada, excluidos siempre los honorarios profesionales.
