@@ -1,0 +1,2 @@
+Artículo 10.-Le corresponde a la Administración de Grandes Contribuyentes la fiscalización y revisión de las obligaciones tributarias de aquellos contribuyentes calificados y notificados de esa condición, a partir de la notificación a que se refiere el artículo 70 del presente reglamento. En consecuencia, la Administración Regional Tributaria correspondiente deberá declararse incompetente para conocer desde ese momento y en su caso trasladar el expediente al órgano competente.
+Igual disposición regirá cuando se pierda la condición de gran contribuyente.

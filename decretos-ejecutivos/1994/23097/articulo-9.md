@@ -1,0 +1,1 @@
+Artículo 9°-Las Administraciones Regionales Tributarias y la de Grandes Contribuyentes, estarán compuestas por el Despacho del Administrador Tributario y las Unidades Administrativas convenientes y necesarias.
