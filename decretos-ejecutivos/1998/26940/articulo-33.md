@@ -11,7 +11,7 @@ i) Ejercer la representación legal del Instituto, de conformidad con la ley y c
 j) Dar seguimiento a la ejecución, o ejecutar según corresponda, los acuerdos aprobados por el Consejo Directivo relacionados con el área a su cargo;
 k) Presentar los informes de ejecución presupuestaria y los estados financieros que reflejen los resultados del accionar del Instituto requeridos por entes internos y externos;
 l) Preparar y procesar información sobre la materia de su competencia y presentarla a la Presidencia Ejecutiva cuando se le requiera para la toma de decisiones y presentación de informes al Consejo Directivo.
-ll) Constituir el órgano director de los procedimientos administrativos y disciplinarios y dar por agotada la vía administrativa.
+ll) (Derogado por el artículo 1° del Decreto Ejecutivo 28807 del 17 de julio del 2000)
 m) Ejecutar las acciones necesarias para lograr el adecuado desarrollo de los recursos humanos a través del Proceso Estratégico respectivo.
 n) Supervisar, controlar y evaluar la gestión de la administración de las Empresas Comerciales, procurando que el equipo responsable de las mismas y la actividad misma operen y se desarrollen de manera oportuna, eficiente y eficaz.
 ñ) Ejecutar aquéllas otras funciones que el Presidente Ejecutivo o el Consejo Directivo le asignen de manera específica además de las que la marcha operativa de la Institución demande;
