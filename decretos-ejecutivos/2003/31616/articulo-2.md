@@ -1,0 +1,5 @@
+Artículo 2º—Definiciones: Para los efectos del presente reglamento se establecen las siguientes definiciones:
+a) Evento promocional: Actividad realizada con el objeto de auspiciar directa o indirectamente una marca de un producto de tabaco.
+b) Patrocinio: Aporte público o privado, indistintamente del tipo de aporte económico, a un tercero en relación con un evento o una actividad, con el objeto de que, a través de estos, se auspicie directa o indirectamente una marca de un producto de tabaco.
+c) Material de apoyo al punto de venta: Cualquier artículo que es entregado al punto de venta con el fin de que sea utilizado como apoyo a una marca de un producto de tabaco, incluyendo pero no limitado a encendedores, removedores, servilleteros, ceniceros, posa-vasos.
+d) Material publicitario de punto de venta: Cualquier material publicitario que se coloca en el punto de venta con el fin de comunicar mensajes publicitarios de las marcas de un producto de tabaco, incluyendo pero no limitado a afiches, banderolas, dispensadores, exhibidores, rótulos luminosos internos.

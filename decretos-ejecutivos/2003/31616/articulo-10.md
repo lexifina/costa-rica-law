@@ -1,0 +1,1 @@
+Artículo 10.—Venta y distribución: Con el fin de limitar el acceso de menores de 18 años a productos elaborados con tabaco y sus derivados, solamente se podrán comercializar cajetillas de cigarrillos o paquetes de diez o más unidades.
