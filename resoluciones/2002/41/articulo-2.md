@@ -1,0 +1,1 @@
+Artículo 2°—Se deja sin efecto la Resolución No 50-01 de las ocho horas del día veintitrés de noviembre del dos mil uno, dictada por la Dirección General, publicada en el Diario Oficial La Gaceta No 230 de 29 de noviembre del 2001.
