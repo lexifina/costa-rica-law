@@ -1,0 +1,1 @@
+Artículo 32.—Para los efectos del artículo anterior, el Contador Municipal realizará estudios contables y de aplicación de recursos, debiendo informar al Concejo y a la Contraloría General de la República.

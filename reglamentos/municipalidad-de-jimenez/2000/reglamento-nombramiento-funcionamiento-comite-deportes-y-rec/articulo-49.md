@@ -1,0 +1,1 @@
+Artículo 49.—Las organizaciones deportivas adscritas al comité cantonal tendrán derecho al uso de las instalaciones deportivas y a participar en los proyectos y programas del comité cantonal. Deberán someterse a la programación del uso de las instalaciones deportivas elaborado por el comité cantonal.

@@ -1,0 +1,1 @@
+Artículo 43.—Cada Comité comunal llevará un libro de actas de junta directiva y un libro de tesorería que tenga folios numerados los cuales deberán ser presentados al Comité Cantonal, quien los autorizará sellando cada folio de los libros.

@@ -1,0 +1,1 @@
+Artículo 4º—Los concejales, el alcalde, el alcalde suplente el tesorero, el auditor y el contador, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado están inhibidos para integrar el Comité.

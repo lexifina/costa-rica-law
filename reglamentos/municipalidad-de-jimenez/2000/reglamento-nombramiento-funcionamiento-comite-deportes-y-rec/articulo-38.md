@@ -1,0 +1,1 @@
+Artículo 38.—Los Comités comunales serán los responsables de organizar dirigir, promover y divulgar toda la actividad deportiva de su comunidad Asimismo, promoverán la construcción y administrarán y mantendrán las instalaciones deportivas de la comunidad otorgadas en administración.

@@ -1,0 +1,1 @@
+Artículo 42.—Los Comités Comunales se reunirán como mínimo dos veces al mes. Los miembros que no asistan a cuatro sesiones sin causa justificada perderán su credencial como miembro. Su sustituto será escogido por el comité cantonal de una terna que presenten los restantes miembros.

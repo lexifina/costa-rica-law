@@ -1,0 +1,1 @@
+Artículo 16.—Las sesiones del Comité Cantonal de Deportes y Recreación serán convocadas por el presidente de la Junta directiva y deberán reunirse como mínimo dos veces al mes. Asimismo cualquier iniciativa debe ser presentada por escrito a modo de moción y debidamente firmada.

@@ -1,0 +1,1 @@
+Artículo 24.—En el caso de que una institución o persona presente la apelación y esta no sea acogida por el comité ya sea por extemporánea o porque las razones aducidas no sean lo suficientemente satisfactorias éste podrá dar por agotada la vía administrativa.

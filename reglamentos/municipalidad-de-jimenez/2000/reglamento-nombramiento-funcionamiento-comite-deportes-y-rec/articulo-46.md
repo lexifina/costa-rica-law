@@ -1,0 +1,1 @@
+Artículo 46.—Los campos deportivos administrados por los Comités Comunales no podrán cerrarse por turnos, ni ferias sin permiso o autoridad del comité cantonal, dicha solicitud deberá hacerse con treinta días de anticipación.

@@ -1,0 +1,1 @@
+Artículo 30.—A través de los convenios el Comité Cantonal de Deportes podrá subvencionar instituciones deportivas debidamente inscritas ante el Registro de Asociaciones Deportivas para el desarrollo de las ligas menores y la promoción del deporte de élite, profesional o de primera división.
