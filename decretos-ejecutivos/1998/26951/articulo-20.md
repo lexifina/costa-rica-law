@@ -14,7 +14,8 @@ g. En caso de ser deudor alimentario, haber cumplido con los requisitos legales 
 h. En caso de incapacidad física o mental, la misma deberá acreditarse mediante dictamen médico correspondiente que detalle la incapacidad padecida y que la misma le impide atender sus propios intereses.
 i. En caso de extravío, sustracción o pérdida del pasaporte, la copia de la denuncia ante el Órgano Judicial correspondiente del extravío o sustracción del documento migratorio.
 j. Cualquier otro documento que a juicio del titular del Departamento de Pasaportes sea necesario para garantizar la idoneidad del solicitante.
-k. Los pasaportes de servicio para los funcionarios de las instituciones descentralizadas de la administración pública, el acuerdo de MIDEPLAN conforme al inciso 4 del artículo 21 de la Ley 7411.
+k) Tratándose de Pasaportes de Servicio a nombre de funcionarios de la Administración Centralizada, la autorización del viaje otorgada por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN); según lo dispuesto en inciso 4) del artículo 2° de la Ley N° 7411. Para dicha autorización, los interesados deberán brindar la información solicitada en el formulario que para tales efectos proporcionara MIDEPLAN.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 27335 de 6 de octubre de 1998).
 l. A los miembros del Gobierno Municipal y los Gobernadores de las provincias, el acuerdo correspondiente y la justificación del viaje en ejercicio de sus funciones.
 m. En el caso de los hijos y cónyuges, los documentos expedidos por el Registro Civil que demuestren dicha filiación. En lo que respecta a matrimonio la certificación no podrá tener más de un mes de expedida.
 n. La entrega del pasaporte agotado en el Departamento de Pasaportes para la expedición de uno nuevo conforme al artículo veinticuatro del presente reglamento.

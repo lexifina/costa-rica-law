@@ -13,3 +13,4 @@ Reglamento para Otorgamiento de Pasaportes Diplomáticos y de Servicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-26 | la propia norma |
+| 2 | 1998-06-19 | Decreto Ejecutivo 27335 (1998-06-19) |
