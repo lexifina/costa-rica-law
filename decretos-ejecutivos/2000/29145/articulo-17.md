@@ -6,4 +6,4 @@ Permiso de funcionamiento: Toda persona física o jurídica propietaria de la ac
 · Procesador tipo B1: - deberá solicitar el permiso de funcionamiento ante el área de salud correspondiente. El permiso será otorgado por tiempo indefinido.
 · Procesador tipo B2: - deberá solicitar el permiso de funcionamiento ante el área de Salud local correspondiente. El permiso será otorgado por tiempo indefinido.
 · Procesador tipo C: - se le otorga el permiso de funcionamiento sin necesidad de realizar trámite alguno de solicitud ante el MS.
-No obstante lo anterior, las granjas avícolas que procesan la pollinaza o gallinaza, y que por reglamento les corresponde solicitar el permiso de funcionamiento ante la Unidad de Permisos y Controles, deberán solicitar igualmente el permiso para procesar la pollinaza o gallinaza, ante esta Unidad.
+(Último párrafo derogado por el artículo 23 del Decreto Ejecutivo N° 30293 de 2 de abril del 2002)
