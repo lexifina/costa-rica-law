@@ -1,0 +1,1 @@
+9) La Municipalidad podrá con fondos propios producir block y donarlo a familias de escasos recursos o venderlos a un precio menor del precio de mercado. Este precio será fijado de acuerdo al costo de producción previo acuerdo del Concejo Municipal.

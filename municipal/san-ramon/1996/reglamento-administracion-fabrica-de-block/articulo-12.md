@@ -1,0 +1,1 @@
+12) Las cláusulas contempladas en este Reglamento serán revisadas seis meses después de su publicación por una comisión nombrada por este Concejo donde necesariamente estará un miembro de la Unión Cantonal de Asociaciones.

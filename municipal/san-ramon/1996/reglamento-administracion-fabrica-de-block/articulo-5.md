@@ -1,0 +1,1 @@
+5) La Municipalidad por medio del Administrador solicitará los materiales necesarios para la elaboración del producto. Cada asociación o grupo donará a la Municipalidad una cantidad proporcional a lo producido.

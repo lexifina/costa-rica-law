@@ -1,0 +1,1 @@
+8) La Dirección Ejecutiva brindará un informe trimestral al Concejo Municipal en el cual detallará: grupos favorecidos, cantidad producida. cantidad donada. Este informe llevará copia para la Unión Cantonal de Asociaciones.
