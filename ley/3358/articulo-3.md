@@ -1,0 +1,1 @@
+Artículo 3°—Los recursos originados en el préstamo a que se refiere esta ley, se destinarán a la financiación del programa de Catastro Fiscal y Cartografía preparado por la Oficina de Planificación de la Presidencia de la República.
