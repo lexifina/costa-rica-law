@@ -14,3 +14,4 @@ De Interés Público la XI Edición de la Maratón Maxi Malta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-22 | la propia norma |
+| 2 | 1999-08-22 | Ley 7 |
