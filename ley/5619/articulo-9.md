@@ -1,5 +1,5 @@
-Artículo 9º.- Autorízase a las Municipalidades de la provincia de
-Alajuela y a todas las instituciones autónomas y semiautónomas del Estado,
-para dar subvenciones y hacer donaciones al Museo, así como a la Junta
-Administrativa de éste, para recibirlas de aquellas instituciones y de
-particulares.
+Artículo 9º.- El Ministerio de Cultura, Juventud y Deportes, con la
+mayor brevedad, recobrará los objetos y documentos relacionados con la
+Campaña Nacional de 1856-1857. Establecerá la propiedad de ellos y
+aplicará, en cada caso, el procedimiento legal para incorporarlos al
+patrimonio del Museo".
