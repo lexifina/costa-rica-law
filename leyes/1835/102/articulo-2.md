@@ -1,0 +1,1 @@
+Art 2°.- Estas multas se harán efectivas por los Alcaldes segundos Presidentes: 1° cuando bajo esta pena hayan publicado Bandos de buen gobierno en uso de sus atribuciones, y algun vecino o vecinos se resistan al cumplimiento de las disposiciones que contengan, el 2° cuando previa moción, desobedezcan infundadamente las órdenes de la Municipalidad sus inmediatos agentes.
