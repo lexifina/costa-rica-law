@@ -1,0 +1,14 @@
+Nº 28406-H
+EL PRESIDENTE DE LA REPUBLICA
+Y LA MINISTRA DE HACIENDA
+En uso de las facultades que les confieren los artículos 140 incisos 3 y 18, 26 y 27 de la Ley General de la Administración Pública, 80 de la Ley N° 7097 y la Ley N° 6821 y su Reglamento,
+Considerando:
+1º—Que el Gobierno de la República tiene como propósito, en la medida de lo posible, contener el gasto público, tanto en el sector público centralizado como en el descentralizado.
+2º—Que uno de los factores necesarios para evitar el crecimiento del gasto público es mantener el nivel de empleo público.
+3º—Que los órganos y entidades públicas pueden reubicar y reorganizar su personal sin necesidad de aumentar su nivel de empleo, para la mejor prestación del servicio público, así como para el cumplimiento del fin público encomendado.
+4º—Que la ley N° 7097 en su artículo 80, faculta a la Autoridad Presupuestaria para autorizar la Creación de plazas en el sector público.
+5º—Que es necesario que la Autoridad Presupuestaria no autorice la creación de plazas durante el año económico del 2000.
+6º—Que en acuerdo N° 5715 de la Sesión Ordinaria N° 01-2000 celebrada el 6 de enero del 2000, la Autoridad Presupuestaria formuló la presente directriz.
+7º—Que el Consejo de Gobierno en la Sesión N° 086 celebrada el 18 de enero del 2000, en su artículo cuarto conoció esta directriz. Por tanto,
+Decretan:
+Artículo 1º—La Autoridad Presupuestaria no considerará solicitudes para la creación de plazas durante el periodo presupuestario del 2000. Por lo tanto los órganos y entidades públicas se abstendrán de solicitar la creación de nuevas plazas durante este período.
