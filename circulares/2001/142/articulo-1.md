@@ -1,5 +1,6 @@
 SECRETARÍA GENERAL
 CIRCULAR No 142-2001
+(Mediante circular N° 162 del 3 de febrero del 2005, se reitera la presente circular, y se le hace una ampliación a la misma)
 Asunto: Obligación de los Juzgados que tramitan Pensiones Alimentarias de cumplir con requisitos en la expedición de salidas del país, ante el Registro y Archivo Judicial.
 A TODOS LOS JUZGADOS DEL PAÍS QUE TRAMITAN PENSIONES ALIMENTARIAS SE LES HACE SABER QUE:
 El Consejo Superior, en sesión No 93-2001, celebrada el 20 de noviembre del 2001, artículo LXVI, a solicitud de la jefatura del Registro y Archivo Judicial, acordó recordarles la obligación de atender los siguientes requisitos:
@@ -22,5 +23,15 @@ a.En aplicación de lo dispuesto en el principio constitucional que ampara la li
 5) Se les recuerda la aplicación de lo publicado en el Boletín Judicial No 184 del 22 de setiembre de 1999 en cuanto dispone; que cada Juzgado debe llevar su propio registro para la búsqueda de expedientes, siendo improcedente llamar al Registro Judicial yaque este tiene asignadas otras funciones.
 6) Se reitera la obligación y responsabilidad de cada despacho de aplicar las instrucciones que se indican en esta circular, para lo cual se promoverá el conocimiento en el personal encargado de la materia, haciendo énfasis en que se debe cumplir con los requisitos que aquí se contemplan.
 7) El Registro Judicial no tramitará las comunicaciones que incumplan con los requisitos anteriores, tampoco aquellas que estén fuera de la estructura de la fórmula No 168 o machotes que se usan en los despachos para esos fines, hasta tanto no se evacúen las aclaraciones necesarias que por la vía más expedita les realice el Registro Judicial.
+A.—Nada impide que se otorgue a los demandados(as) alimentarios(as) varias salidas del país por un período determinado, siempre que haya una solicitud expresa en ese sentido y se haya cumplido con lo dispuesto en el artículo 14 de la Ley de Pensiones Alimentarias, siendo facultad del Juez la admisión del tipo de garantía.
+B.—El obligado debe estar al día en el pago alimentario cada vez que sale del país. Si la garantía se vuelve insuficiente, debe informarse al Registro y Archivo Judicial, pues mientras no haya orden contraria, se continúan otorgando las salidas con fundamento en la nota original.
+C.—Como se indica en la circular N° 142-2001, aparte c) del punto 2, debe tenerse presente que si existen dos demandas entre las mismas partes del mismo juzgado o distinto despacho, independientemente de los benefíciarios(as), se debe mantener un solo impedimento de salida del país, (voto Nº 2869-94 de la Sala Constitucional). En consecuencia, surgiría otro impedimento solamente en los casos que se trata de otra parte actora.
+D.—El impedimento de salida del país, surge con sustento en el artículo 15 de la ley de Pensiones Alimentarias, únicamente cuando existe una resolución que establece una cuota de alimentos provisional o definitiva.
+E.—Si los expedientes no existen, debe levantarse el impedimento de salida, comunicándole lo pertinente al Registro Judicial.
+F.—En la revisión permanente que debe realizarse, si se determina que los beneficiarios son mayores de veinticinco años, deberá levantarse el impedimento de salida con sustento en lo dispuesto en el artículo 173 del Código de Familia, salvo que la actora sea beneficiaria o haya algún caso de excepción.
+G.—Cada despacho debe hacer la depuración pertinente al menos dos veces al año. Si no se cuenta con la identificación que respalde el impedimento, el mismo deberá dejarse sin efecto. Para esos fines puede solicitarse el listado al Departamento de Tecnología de la Información.
+H.—Por lo delicado de la materia, solamente se admitirán comunicaciones que vengan firmadas por el Juez (a), en materia de salidas del país.
+I.—El impedimento se comunica conforme lo dispuesto en el artículo 15 de la ley específica, en consecuencia, debe respetarse la facultad de la parte actora en cuanto a la no comunicación del impedimento de salida del país, atendiendo siempre el interés superior de las personas menores de edad.
+J.—Con el fin de proteger el derecho a la intimidad de las personas, se debe conformar y mantener actualizado un índice de obligados alimentarios en cada despacho, el que estará bajo la responsabilidad del Juez/a coordinador.
+(Así ampliado mediante circular N° 162 del 3 de febrero del 2005)
 San José, 19 de diciembre del 2001.
-Silvia Navarro Romanini,

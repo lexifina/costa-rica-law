@@ -13,3 +13,4 @@ Obligación de los juzgados que tramitan pensiones alimentarias de cumplir con r
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-09 | la propia norma |
+| 2 | 2005-02-03 | Circular 162 (2005-02-03) |
