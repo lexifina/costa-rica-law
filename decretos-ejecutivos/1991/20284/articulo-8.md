@@ -1,2 +1,0 @@
-Artículo 8°.- La sede de la comisión institucional, será la oficina de personal de cada institución pública. Sesionará un vez al mes en forma ordinaria, siempre y cuando haya algún asunto a tratar y extraordinariamente, cuando dos de sus miembros la convoquen. Los asuntos tratados serán resueltos, por simple mayoría.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 20553 del 2 de julio del 1991)

@@ -1,2 +1,0 @@
-Articulo 33.-Una vez definido el monto del incentivo, de acuerdo con los factores evaluados, la comisión trasladará al jerarca ejecutivo, el formulario en que conste la decisión tomada y los documentos probatorios.
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 35 al 33 actual, toda vez que se derogó el artículo 18 y 25 original)

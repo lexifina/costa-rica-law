@@ -1,2 +1,0 @@
-Artículo 47.- La experiencia que adquiera el docente, en el desempeño de sus funciones en instituciones de enseñanza de nivel universitario o para universitario, se reconocerá como experiencia profesional en instituciones del Estado, siempre y cuando cumpla con los literales a), b) y c) del artículo 19 del presente reglamento. En cuanto a su valoración, se aplicará lo dispuesto en el inciso d) del artículo 10 del presente reglamento.
-(Así adicionado por el artículo 4° del decreto ejecutivo N° 20553 del 2 de julio de 1991)

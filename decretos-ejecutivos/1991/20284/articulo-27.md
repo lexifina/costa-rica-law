@@ -1,2 +1,0 @@
-Artículo 27.-La obtención de una calificación inferior a muy bueno, será motivo para no otorgar el ajuste que se solicita. El año de experiencia respectivo, no será tomado en cuenta por lo tanto en estudios posteriores.
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 29 al 27 actual, toda vez que se derogó el artículo 18 y 25 original)

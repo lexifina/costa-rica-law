@@ -1,3 +1,0 @@
-Artículo 50.-Será aceptado el ingreso a la carrera profesional a aquellos funcionarios de nivel profesional que ocupen un puesto en forma interina, a plazo fijo, si tales nombramientos han sido ininterrumpidos y han tenido una duración en forma acumulativa, de seis meses como mínimo o si hacia el futuro, el nombramiento no es inferior de seis meses.
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 46 al 44 actual, toda vez que se derogó el artículo 18 y 25 original)
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 44 al 50 actual, toda vez que se derogó el artículo 18 y 25 original)

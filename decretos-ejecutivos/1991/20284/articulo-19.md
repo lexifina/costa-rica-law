@@ -1,3 +1,0 @@
-Artículo 19.- La experiencia obtenida al servicio de otras instituciones del Estado, se reconocerá para efectos de este beneficio, siempre que se cumplan las condiciones de los literales s), b) y c) del artículo anterior y se haga constar en un documento avalado por el jefe de personal o por el máximo jerarca de la dependencia donde fue obtenida.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 20553 del 2 de julio de 1991)
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 20 al 19 actual, toda vez que se derogó el artículo 18 original)

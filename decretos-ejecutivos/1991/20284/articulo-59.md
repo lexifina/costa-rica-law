@@ -1,3 +1,0 @@
-Articulo 59.-(Nota de Sinalevi: El texto del presente artículo se puede leer en el artículo 57, toda vez que mediante el artículo 2° del decreto ejecutivo N° 20553 del 2 de julio de 1991 se deroga el artículo 18 y 25 original del presente texto corriendose la numeración de los siguientes)
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 52 al 58 actual, toda vez que se derogó el artículo 18 y 25 original)
-(Así corrida su numeración por el artículo único del decreto ejecutivo N° 22519 del 16 de setiembre de 1993 que lo traspasó del antiguo 58 al 59 actual)

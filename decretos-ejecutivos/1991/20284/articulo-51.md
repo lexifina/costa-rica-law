@@ -1,3 +1,0 @@
-Artículo 51.-Los servidores que estuvieren disfrutando del incentivo por concepto de carrera profesional y que por alguna razón se trasladasen a otra institución o empresa pública, mantendrán el derecho a que se actualice el incentivo siempre y cuando continúen ocupando un puesto de nivel profesional y aporten los documentos probatorios de tal situación.
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 47 al 45 actual, toda vez que se derogó el artículo 18 y 25 original)
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 20553 del 2 de julio del 1991 que lo traspasó del antiguo 45 al 51 actual, toda vez que se derogó el artículo 18 y 25 original)
