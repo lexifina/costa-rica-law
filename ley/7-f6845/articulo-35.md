@@ -1,0 +1,1 @@
+Artículo 35. — Los Bonos sorteados para su amortización, serán llamados al pago por medio de aviso en la Gaceta Oficial y en los periódicos de noticias que el Consejo elija. Los avisos se publicarán tres veces en el mes que sigue al sorteo, y tres veces en el mes en que se ha de verificar la amortización.

@@ -1,0 +1,2 @@
+Artículo 44.—-Los Bonos que no hubieren sido presentados para su cobro en los diez años siguientes a la fecha fijada para su redención, se anotarán en los troncos correspondientes y en el registro de la. emisión, como prescritos, y su valor se abonará a ganancias, para entrar en el fondo de reserva.
+Igualmente se considerará como ganancia el valor de los cupones de intereses, que no hayan sido presentados al pago dentro de los tres años siguientes a su vencimiento. Con ellos no se llenará formalidad alguna, sino que serán rechazados, caso que se presenten para su cobro.

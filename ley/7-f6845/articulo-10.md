@@ -1,0 +1,1 @@
+Artículo 10.—Los edificios que formen parte del valor de una finca, para el efecto de fijar el límite del préstamo, deberán estar asegurados contra incendio en una compañía responsable, por la suma en que han sido calculados en el avalúo. Caso contrario, no se tomarán en cuenta.

@@ -1,0 +1,1 @@
+Artículo 16.—El Banco no podrá en ningún caso conceder plazo para el pago de alguna o algunas de las cuotas que se le adeuden, ni perdonar los intereses penales estipulados por la ley en caso de mora.

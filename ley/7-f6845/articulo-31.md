@@ -1,0 +1,2 @@
+Artículo 31.—Cuando se emitan Bonos nominales, deberán llevar cada uno de ellos, así como los troncos correspondientes, el nombre de la persona a cuyo favor se extienden.
+Los cupones pertenecientes a Bonos nominales pueden quedar pagaderos al portador, o pueden hacerse nominales también, en cuyo caso no serán pagados sino al dueño del Bono a su presentación. Para este fin se les imprimirá un sello claramente visible que diga «nominal».

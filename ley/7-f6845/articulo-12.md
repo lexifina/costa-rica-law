@@ -1,0 +1,1 @@
+Artículo 12.—El Banco podrá negar préstamos nuevos a aquellos deudores a los cuales se haya visto en el caso de requerir judicialmente más de una vez para el pago de anualidades que se adeuden por negociaciones anteriores, aunque se ofrezcan en garantía inmuebles diferentes del ya hipotecado.

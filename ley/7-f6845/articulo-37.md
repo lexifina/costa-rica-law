@@ -1,0 +1,1 @@
+Artículo 37. — El sorteo de bonos que ha de amortizarse se hará en sesión especial del Consejo del Banco, con asistencia del Director, del Sub-Jefede la Sección Hipotecaria y de un Notario Público que tomará nota del acto en su protocolo. De todo esto se dejará constancia también en el registro especial de emisiones que se llevará conforme expresa el artículo 26.
