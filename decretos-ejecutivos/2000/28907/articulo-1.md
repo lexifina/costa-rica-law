@@ -19,4 +19,5 @@ f) La labor realizada por este Ministerio en las diferentes zonas del país, ha 
 12.-Que es deber del Ministerio de Econom¡a, Industria y Comercio garantizar el adecuado abastecimiento del arroz para el consumo nacional, con precios justos en todos los niveles de comercialización.
 13.-Para esta fijación se han considerado los documentos y propuestas presentadas por los interesados a trav‚s de la Oficina del Arroz, valoradas a la luz de las condiciones de mercado antes indicadas.
 Por tanto, Decretan:
-Artículo 1°-De acuerdo con los estudios de costos, de mercado y económicos, realizados por el área de Comercio y Apoyo al Consumidor, que se elaboraron para la actividad, se establece el siguiente precio mínimo para el arroz en granza: Arroz en granza, precio mínimo de compra al productor agrícola, saco de 73,6 kilogramos, con 13% de humedad y 1,5% de impurezas (incluye transporte hasta la arrocera) ½6.240,00
+Artículo 1º—Se establece como precio mínimo de compra del industrial al productor de arroz en $ 210 (dólares estadounidenses) por tonelada métrica, equivalente en colones al tipo de cambio del día. Este equivale al precio del arroz en granza puesto en planta, con 13% de humedad y 1,5% de impurezas.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 30868 de 3 de diciembre de 2002. Esta reforma rige a partir del 01 de enero de 2003).

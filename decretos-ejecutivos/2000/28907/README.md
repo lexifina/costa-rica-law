@@ -14,3 +14,4 @@ Establece Aumento precio Mínimo para el Arroz en Granza y Pilado Establece Aume
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-09-08 | la propia norma |
+| 2 | 2002-12-03 | Decreto Ejecutivo 30868 (2002-12-03) |

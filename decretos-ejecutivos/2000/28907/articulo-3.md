@@ -1,1 +1,2 @@
-Artículo 3°-Esta regulación se aplicar a todo el ciclo de cosecha 2000-2001, que va del 1° de julio de este año hasta el 30 de junio del 2001 y se mantendrá vigente mientras subsistan las condiciones de mercado que dieron origen a esta medida, de conformidad con lo establecido en el artículo 5° de la Ley N° 7472. Dado en la Presidencia de la República.-San José, a los veintiocho días del mes de agosto del dos mil.
+Artículo 3º—Esta regulación se mantendrá vigente mientras subsistan las condiciones de mercado que dieron origen a esta medida.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 30868 de 3 de diciembre de 2002. Esta reforma rige a partir del 01 de enero de 2003).
