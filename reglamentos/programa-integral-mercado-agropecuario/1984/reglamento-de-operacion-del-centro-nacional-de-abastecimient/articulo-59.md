@@ -1,3 +1,0 @@
-Artículo 59.—Pérdida del tiquete:
-Para el caso de que algún conductor extravíe su tiquete de entrada; la Gerencia está facultada para establecer el sistema más adecuado para determinar el tiempo permanecido por el vehículo en el CENADA y su correspondiente cobro.
-La reposición del tiquete tendrá un recargo de dos horas adicionales a la tarifa establecida.

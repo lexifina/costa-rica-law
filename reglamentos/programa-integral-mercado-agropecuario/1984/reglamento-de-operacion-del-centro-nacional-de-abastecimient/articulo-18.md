@@ -1,3 +1,0 @@
-Artículo 18.—Aprobación y firma del contrato:
-En caso de conformidad de la solicitud de concesión, el Administrador asignará unilateralmente el local o puesto y su espacio de conformidad con la sectorización vigente y remitirá la solicitud y al usuario admitido a la Unidad de Asesoría Legal del PIMA para la formalización del contrato de derecho de uso, el cual firmará el Gerente.
-Una vez suscrito el contrato y después del pago de la primera mensualidad y de reportado el personal según el artículo 23: el Administrador entregará al usuario una credencial de usuario permanente que le permitirá utilizar el área, puesto o local contratado. En caso de personas jurídicas, la credencial se otorgará a la persona acreditada en el CENADA.

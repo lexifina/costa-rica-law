@@ -1,2 +1,0 @@
-Articulo 36.—Reparaciones e inspecciones:
-Los usuarios están obligados a permitir la entrada en el área. local o espacio contratado; de los funcionarios del PIMA y cualquier otro personal autorizado que deba realizar reparaciones o inspecciones.

@@ -1,2 +1,0 @@
-Artículo 60.—Sanciones de tránsito:
-Sin perjuicio de lo establecido en el artículo 49, las trasgresiones a las normas de circulación y estacionamiento pueden ser sancionadas con el parte de tránsito que corresponda, elaborado por autoridad competente que se encuentre en el CENADA o por funcionarios del PIMA autorizados por la Dirección General de Tránsito.

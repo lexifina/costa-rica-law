@@ -1,2 +1,0 @@
-Artículo 53.—Circulación:
-La circulación de vehículos dentro del CENADA se hará de acuerdo con la demarcación de vías existente y con acatamiento de las instrucciones que especialmente indiquen los Inspectores del CENADA.

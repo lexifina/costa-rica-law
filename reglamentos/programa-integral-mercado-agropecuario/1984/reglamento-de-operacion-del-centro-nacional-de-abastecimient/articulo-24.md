@@ -1,3 +1,0 @@
-Artículo 24.—Cesión y abandono de contratos:
-Se considera que el usuario permanente ha cedido o abandonado el local, puesto o área contratada cuando no atienda su negocio personalmente o mediante su personal acreditado por un lapso de quince días hábiles. Se considera abandono del usuario la ausencia de actividad comercial en el área contratada por el mismo término.
-En estos casos, el Administrador dispondrá la cancelación del contrato y ordenar el cierre del local y la liquidación de los enseres y productos que se encuentren en el área. local o puesto fin perjuicio de lo indicado en el artículo siguiente.

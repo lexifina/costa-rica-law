@@ -1,3 +1,0 @@
-Articulo 39.—Publicidad:
-En las áreas, puestos y locales contratados; el usuario podrá colocar rótulos con su nombre o el de los productos con que trabaja. El Administrador dispondrá en forma general lo relativo a redacción, tipo y tamaño de los rótulos con el propósito de que haya uniformidad.
-Se prohibe el empleo de cualquier upo de propaganda o publicidad en áreas consideradas de uso común, pasillos, andenes de tránsito y calles de circulación.

@@ -1,2 +1,0 @@
-Artículo 57.—Tarifas de estacionamiento:
-Las tarifas de estacionamiento son fijadas por el Consejo Directivo, por hora y por tipo de vehículo. Se establecen además tarifas de estacionamiento de pago mensual para usuarios permanentes.

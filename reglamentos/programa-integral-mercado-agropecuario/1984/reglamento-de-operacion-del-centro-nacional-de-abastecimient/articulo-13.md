@@ -1,2 +1,0 @@
-Artículo 13.—Patentes:
-El PIMA recaudará y cobrará a los usuarios que utilicen puestos comerciales permanentes u ocasionales un recargo del diez por ciento sobre las tarifas y cánones establecidos por concepto de patente a favor de la Municipalidad de Heredia conforme lo establece la ley N° 6650 del 4 de setiembre de 1981.

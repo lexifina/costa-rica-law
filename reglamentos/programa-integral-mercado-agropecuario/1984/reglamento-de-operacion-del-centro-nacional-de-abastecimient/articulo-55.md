@@ -1,3 +1,0 @@
-Artículo 55.—Estacionamiento reservado:
-La Administración está facultada para asignar por escrito a los usuarios permanentes espacios de estacionamiento frente a las bodegas o locales, para ser utilizados con exclusividad. La custodia de esos espacios queda a cargo del usuario.
-Es prohibida la comercialización en estos espacios que se destinarán exclusivamente para la carga y descarga de productos.

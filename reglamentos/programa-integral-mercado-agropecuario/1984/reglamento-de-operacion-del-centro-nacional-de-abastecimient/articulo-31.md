@@ -1,2 +1,0 @@
-Artículo 31.—Mejoras o adiciones transitorias: concepto:
-Se entenderá por mejoras o adiciones transitorias todas aquellas realizadas por los usuarios, que a la vez puedan ser transportadas de un lugar a otro, sin que se altere su sustancia, asimismo que no produzcan deterioro alguno o afecten las estructuras de las instalaciones existentes, tales como techos, paredes, pisos, puertas, columnas, etc.

@@ -1,3 +1,0 @@
-Artículo 19.—Ampliación de áreas, locales y puestos:
-Si un usuario permanente solicita más espacio para sus operaciones, se podrá tramitar, según las disponibilidades, un addendum al contrato con el mismo procedimiento establecido.
-El Administrador dispondrá la asignación adicional de modo que el conjunto original y el nuevo puesto, local o área contratada constituyan una sola unidad física; siempre y cuando se trate de la comercialización de productos de igual naturaleza de conformidad con la sectorización vigente del CENADA.

@@ -1,3 +1,0 @@
-Articulo 26.—Cambio de uso del área contratada:
-Los cambios en el uso y destino de áreas, locales o espacios contratados que el usuario desee hacer, deben contar con autorización previa y escrita del Administrador.
-El usuario no podrá destinar el área, local o espacio asignado para usos distintos de los estipulados en el respectivo contrato de derecho de uso o los autorizados. Si lo hiciere, el Administrador procederá a sancionarlo conforme con el artículo 51; arreglará la situación contractual y podrá disponer la reubicación del usuario según la sectorización del mercado.

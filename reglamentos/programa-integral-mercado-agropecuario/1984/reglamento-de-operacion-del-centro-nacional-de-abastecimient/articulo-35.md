@@ -1,2 +1,0 @@
-Articulo 35.—Mejoras o adiciones: casos especiales:
-En casos de situaciones especiales en que por la naturaleza de la mejora o adición, se crea incertidumbre para determinar si se trata de una mejora o adición permanente y/o transitoria, el Consejo Directivo definirá la situación.

@@ -1,2 +1,0 @@
-Artículo 61.—Fuga:
-Los vehículos que se fuguen sin cancelar los derechos de estacionamiento serán reportados por los Recaudadores para que les sea impedido el ingreso al CENADA hasta tanto quede cancelada la deuda; sin perjuicio de las sanciones a que se haga acreedor el conductor.

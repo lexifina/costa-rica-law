@@ -1,4 +1,0 @@
-Artículo 34.—Mejoras o adiciones: propiedad y retiro:
-Las mejoras o adiciones permanentes por su naturaleza serán propiedad de la Institución desde el momento en que se realicen.
-Las mejoras y adiciones transitorias son en principio propiedad del usuario. En caso de retiro, deberán dejarse las instalaciones y estructuras existentes, en la misma forma en que fueron recibidas por el usuario.
-Si en el momento de proceder al retiro de una mejora o adición transitoria se produce algún daño en las instalaciones o estructuras existentes; el usuario deberá pagar a la Institución el perjuicio producido, más un 25% del valor del daño por concepto de indemnización. La valoración del daño producido lo definirá la Administración, previo análisis del mismo. A la vez facultada la Administración para retener los bienes que se encuentren en el local arrendado por el usuario, sin que éste pueda ejercer reclamo o derecho alguno, hasta tanto no cancele el valor del daño más el 25%.

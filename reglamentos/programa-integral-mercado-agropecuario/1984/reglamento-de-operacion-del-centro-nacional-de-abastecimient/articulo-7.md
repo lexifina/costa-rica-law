@@ -1,2 +1,0 @@
-Artículo 7°Actividades de apoyo, asesoría y control del CENADA:
-El Departamento Administrativo-Financiero, el Departamento Técnico y la Unidad de Asesoría Legal del PIMA brindarán las actividades de apoyo y asesoría al CENADA de acuerdo con las funciones que les corresponden según la organización administrativa del PIMA. La Auditoria del PIMA ejercerá la fiscalización del CENADA, según las leyes, reglamentos y disposiciones aplicables.

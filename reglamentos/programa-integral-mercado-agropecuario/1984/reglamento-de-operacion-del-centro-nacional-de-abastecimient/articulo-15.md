@@ -1,2 +1,0 @@
-Artículo 15.—Limitación dé áreas para concesiones;
-En el caso de que el área disponible para concesiones de derecho de uso estuviere limitada se procederá con el orden de prelación establecido en el articulo 3°. En caso de excepción o por disposición del Consejo Directivo se convocará a un remate de locales o puestos a la hora y fecha y que señale el Administrador y que se anunciará a los usuarios potenciales y permanentes.

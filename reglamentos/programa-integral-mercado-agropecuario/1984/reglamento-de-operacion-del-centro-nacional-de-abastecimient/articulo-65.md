@@ -1,3 +1,0 @@
-Artículo 65.—Directiva:
-La Directiva es el órgano ejecutivo y representante de la Junta ante la Gerencia y la Administración. Estará integrada por siete miembros de la asamblea general con igual derecho a voz y voto, elegidos anualmente conforme los procedimientos que establezca la asamblea. Entre sus puestos se elegirá un Presidente y un Secretario.
-El Administrador del CENADA es un miembro adicional de la Junta y deberá asistir a sus sesiones donde contará con voz pero sin voto.

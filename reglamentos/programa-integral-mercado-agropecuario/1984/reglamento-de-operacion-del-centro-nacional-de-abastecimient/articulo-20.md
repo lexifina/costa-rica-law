@@ -1,2 +1,0 @@
-Artículo 20.—Registro de usuarios permanentes:
-El Administrador llevará un registro de usuarios permanentes donde conste su nombre, lugar de ubicación en las instalaciones, local contratado, referencia al contrato de derecho de uso. Asimismo registrará el nombre de los ayudantes o empleados del usuario de acuerdo con el artículo 23. Además establecerá un expediente para cada usuario y la representación gráfica de la ocupación del CENADA.
