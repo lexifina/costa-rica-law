@@ -1,6 +1,0 @@
-CAPÍTULO IV
-De la Asamblea de Propietarios y de la Administración del Edificio
-Artículo 35.- Las resoluciones sobre asuntos de interés común no comprendidas dentro de las facultades y obligaciones del Administrador, serán de competencia de la Asamblea de Propietarios. Esta asamblea se celebrará de acuerdo con lo dispuesto en el Reglamento de Condominio y Administración; deberá realizarse cuando menos una vez al año.
-Los acuerdos de la asamblea se tomarán por mayoría de votos presentes conforme a las normas de cómputo que aquí se establecen, excepto los casos en que esta ley o el reglamento, exijan una mayoría especial.
-El quórum para la Asamblea de Propietarios lo formarán los votos que representen no menos de dos tercios del valor del edificio. En la segunda convocatoria para una misma asamblea, los votos que representen el cincuenta por ciento de ese valor formarán quórum, y en tercera convocatoria éste quedará formado con cualquier número de asistentes.
-Cada propietario tendrá derecho a un número de votos igual al porcentaje que el valor de su propiedad represente en el total del edificio. Pero cuando un solo propietario represente más del 50% de ese valor, se requerirá además del 33% de los votos restantes para la validez de los acuerdos.

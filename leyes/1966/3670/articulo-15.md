@@ -1,1 +1,0 @@
-Artículo 15.- El régimen establecido aquí sólo se extingue por acuerdo unánime de los propietarios, o en los casos previstos en esta ley. En todo caso, quedarán a salvo los derechos adquiridos e inscritos con anterioridad a favor de terceros.

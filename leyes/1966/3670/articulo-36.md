@@ -1,1 +1,0 @@
-Artículo 36.- El Administrador del edificio convocará a la Asamblea de Propietarios. También podrán convocar a asamblea, los propietarios que representen por lo menos un tercio del valor del edificio.

@@ -1,0 +1,20 @@
+CAPÍTULO III
+Derechos y obligaciones de los propietarios
+ARTÍCULO 15.- Los propietarios de fincas filiales podrán establecer
+a su costa servicios para su uso exclusivo, siempre que no perjudiquen ni
+estorben a los demás. Usarán su propiedad de acuerdo con su destino
+conforme a la escritura constitutiva. Podrán segregarlas siempre que las
+partes segregadas cumplan todos los requisitos dispuestos en esta ley para
+las fincas filiales. No podrán destinarla a usos contrarios a la ley, la
+moral o las buenas costumbres, ni hacerla servir a otro objeto que el
+convenido expresamente. No podrán efectuar acto ni incurrir en omisión que
+perturbe la tranquilidad de los demás propietarios o comprometa la
+solidez, seguridad, salubridad o comodidad del condominio.
+A petición del administrador del condominio o de un propietario, la
+autoridad judicial aplicará, al infractor de lo dispuesto en este
+artículo, una multa equivalente a un salario base, conforme se define en
+la Ley No. 7337, de 5 de mayo de 1993. Las sumas se destinarán a mejoras
+del condominio; todo sin perjuicio de las indemnizaciones que en derecho
+correspondan.
+La reclamación se sustanciará mediante el procedimiento sumario
+estatuido en el Código Procesal Civil.

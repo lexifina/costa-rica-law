@@ -1,1 +1,0 @@
-Artículo 12.- En la escritura de compra-venta de cada piso, apartamento o local, se hará referencia a la inscripción en que constan los datos que exige el artículo 7º, y se hará constar que el comprador conoce el Reglamento de Condominio y Administración del edificio.
