@@ -14,3 +14,4 @@ Reglamento para el Trámite de Declaratoria de Prescripción en sede Administrat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-05 | la propia norma |
+| 2 | 2004-04-29 | Reglamento municipal 105 (2004-04-29) |
