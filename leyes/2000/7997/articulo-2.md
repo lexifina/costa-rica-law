@@ -1,0 +1,2 @@
+Artículo 2°- Los recursos que se entreguen a las asociaciones y fundaciones pro hospitales, no podrán afectar los programas de ayuda social establecidos por la Junta de Protección Social.
+Las organizaciones y los programas o proyectos beneficiados, serán designados previa presentación por parte de aquellas, de los proyectos específicos por ejecutar, que deberán ser aprobados por la Junta Directiva de la institución donante.
