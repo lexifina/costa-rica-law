@@ -1,0 +1,1 @@
+Artículo 2°—Se le reconocerá un 40 por ciento sobre el salario base, como incentivo por regionalización a los profesionales del Ministerio de Obras Públicas y Transporte que se mantengan prestando servicios fuera de la “Gran Área Metropolitana.”

@@ -1,0 +1,1 @@
+Artículo 4°—Los profesionales que soliciten dicho beneficio deberán demostrar ante la Dirección General de Personal del Ministerio que se encuentra dentro de los supuestos requeridos por este reglamento.

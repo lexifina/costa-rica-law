@@ -1,0 +1,1 @@
+Artículo 3°—Tendrán derecho a tal incentivo los profesionales destacados fuera de la “Gran Área Metropolitana” por un lapso mayor de tres meses y que se mantengan en tal lugar por lo menos cuatro días durante la semana.
