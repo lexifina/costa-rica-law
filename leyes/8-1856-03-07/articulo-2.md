@@ -1,0 +1,1 @@
+Art 2°. - En consecuencia, el Presidente de la República de la República se separa desde mañana del ejercicio del Supremo Poder Ejecutivo Nacional y lo encarga a S.E. el Vicepresidente Don Francisco María Oreamuno.
