@@ -1,0 +1,1 @@
+Artículo 2º—En el área por donar referida en el artículo anterior, la Municipalidad desarrollará un proyecto de vivienda de interés social con doce lotes: ocho lotes con un área de 143,28 m²; dos lotes de 186,14 m²; un lote de 135,40 m², y un lote de 120,82 m².
