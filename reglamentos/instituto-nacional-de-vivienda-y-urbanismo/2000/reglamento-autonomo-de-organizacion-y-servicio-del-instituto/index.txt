@@ -98,6 +98,7 @@ articulo-97.md
 articulo-98.md
 articulo-99.md
 articulo-100.md
+articulo-100-bis.md
 articulo-101.md
 articulo-102.md
 articulo-103.md
@@ -114,4 +115,3 @@ articulo-113.md
 articulo-114.md
 articulo-115.md
 articulo-116.md
-articulo-100-bis.md
