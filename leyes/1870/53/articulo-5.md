@@ -1,0 +1,1 @@
+Art 5° Son Conjueces natos de la Suprema Corte de Justicia todos los Abogados que no residan a más de cuatro leguas de la capital y que tengan treinta años, sin distinción de nacionales o extranjeros naturalizados.

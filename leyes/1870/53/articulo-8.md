@@ -1,0 +1,1 @@
+Art 8° Cada una de las Salas ven que se divide la Corte Suprema de Justicia tendrá para su despacho un Secretario y cuatro escribientes. El Secretario de la Sala 1° lo será también de la Corte en ejercicio mayores de veinticinco años y de notoria honradez y capacidad para el oficio. El de la Sala 1° debe además ser Abogado o por lo menos pasante de Derecho.
