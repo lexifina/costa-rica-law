@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad del Cantó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-12-12 | la propia norma |
+| 2 | 2000-08-01 | Reglamento municipal 140 (2000-08-01) |
