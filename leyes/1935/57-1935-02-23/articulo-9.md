@@ -1,0 +1,1 @@
+Artículo 9°.-El indiciado que negare el delito que se le atribuye, puede, en el mismo acto de la confesión o dentro de las veinticuatro horas siguientes, proponer, de palabra o por escrito, las pruebas de descargo que se recibirán sin demora en juicio oral y público, siempre que sean pertinentes y no entorpezcan el curso regular del proceso.
