@@ -9,3 +9,4 @@ enero de 1970, artículo 9º (suprime franquicia telegráfica y
 radiográfica); 7088 de 30 de noviembre de 1987, artículo 16 (importación
 de vehículos) y 7293 de 31 de marzo de 1992, artículos 50 y 55 (pago de
 futuros impuestos).
+(Derogado parcialmente, en lo referente a las excenciones del impuesto sobre las ventas, por el artículo 17 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).

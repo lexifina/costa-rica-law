@@ -55,3 +55,4 @@ empresa de servicio público de electricidad, la Junta estará sujeta a
 todas las disposiciones legales y reglamentarias que rigen esa materia en
 el país, estará exenta de impuestos nacionales y municipales y gozará de
 franquicia postal y telegráfica.
+(Derogado parcialmente, en cuanto a las exenciones sobre el impuesto sobre las ventas, por el artículo 17 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001)

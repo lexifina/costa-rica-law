@@ -1,39 +1,7 @@
 ARTÍCULO 20.- Créase el Fondo para la atención de la red vial
 nacional, que estará constituido por los siguientes tributos, ingresos y
 bienes:
-a) Una contribución especial sobre la distribución nacional o
-internacional de combustibles y energéticos derivados del petróleo, para
-financiar adecuadamente el Fondo y, por ende, compensar el desgaste de las
-vías nacionales provocadas por la flota vehicular que utiliza dichos
-insumos y producir un beneficio por su buen mantenimiento. Este tributo
-será administrado por la Dirección General de la Tributación Directa y se
-regirá por las siguientes normas.
-1.- El contribuyente será el distribuidor de las mercancías arriba
-señaladas.
-2.- El hecho generador de esta tasa será la transferencia de dominio
-de dichas mercancías, sea enajenación a título oneroso o gratuito,
-consignación o el apartado de alguna de estas mercancías por parte del
-distribuidor.
-3.- La base imponible será el valor superior entre el valor de
-mercado de estas mercancías, determinado por el reglamento de esta ley, y
-el valor de transferencia de mercancías al minorista o detallista.
-4.- La tarifa será de un quince por ciento (15%).
-5.- El período fiscal será mensual.
-6.- Declaración y pago. Esta contribución especial será determinada
-por el contribuyente mediante una declaración jurada, y será cancelada
-dentro de los cinco días siguientes al cierre del período fiscal
-correspondiente.
-7.- Régimen sancionatorio. El incumplimiento de las normas de este
-tributo acarreará la aplicación del título III del Código de Normas y
-Procedimientos Tributarios, excepto los delitos y contravenciones penales
-tributarias.
-8.- La recaudación de este tributo, conforme al artículo 4 del Código
-de Normas y Procedimientos Tributarios, no podrá aplicarse a ningún otro
-destino diferente del financiamiento del Fondo, el cual constituye la
-razón de ser de esta obligación tributaria. El incumplimiento de esta
-prohibición acarreará responsabilidad personal del funcionario encargado.
-9.- Este artículo será reglamentado conjuntamente por el Ministerio
-de Hacienda y por el Ministerio de Obras Públicas y Transportes.
+a) DEROGADO por el artículo 8 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria, de 4 de julio del 2001.
 b) El monto equivalente al cincuenta por ciento (50%) de los ingresos
 recaudados por el impuesto a la propiedad de vehículos, previsto en el
 artículo 9 de la Ley 7088. Esta disposición será reglamentada en conjunto

@@ -1,9 +1,3 @@
-ARTÍCULO 8º.- Las personas físicas o jurídicas que, previamente
-autorizadas por el Instituto Costarricense de Turismo, destinen recursos
-al pago de programas vacacionales de turismo, dentro del territorio
-nacional, en beneficio de sus empleados, podrán deducir esos gastos del
-monto imponible del impuesto sobre la Renta.
-Los gastos que se originen en programas vacacionales no estarán
-sujetos a deducción por concepto de cuotas obrero-patronales de la Caja
-Costarricense de Seguro Social, del Banco Popular, del Instituto Nacional
-de Aprendizaje, o por cualquier otro tipo de carga social.
+ARTÍCULO 8º.- Las personas físicas o jurídicas que, previamente autorizadas por el Instituto Costarricense de Turismo, destinen recursos al pago de programas vacacionales de turismo, dentro del territorio nacional, en beneficio de sus empleados, podrán deducir esos gastos del monto imponible del impuesto sobre la Renta.
+Los gastos que se originen en programas vacacionales no estarán sujetos a deducción por concepto de cuotas obrero-patronales de la Caja Costarricense de Seguro Social, del Banco Popular, del Instituto Nacional de Aprendizaje, o por cualquier otro tipo de carga social.
+(Nota de Sinalevi: Derogado parcialmente respecto de la exención al pago del impuesto sobre la renta por el inciso c) del artículo 22 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001)

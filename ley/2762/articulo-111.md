@@ -1,7 +1,2 @@
-Artículo 111.- A más tardar el treinta de setiembre de cada año, las
-instituciones y organizaciones mencionadas en el artículo anterior
-comunicarán al Instituto del Café de Costa Rica sus listas de delegados.
-No obstante, en cualquier momento, antes de celebrarse el Congreso, podrán
-comunicar la sustitución de las personas designadas.
-(Así reformado por el artículo 1º de la ley No.7736 de 19 de
-diciembre de 1997)
+Artículo 111.—El Instituto del Café de Costa Rica, por medio de la Dirección Ejecutiva, será el responsable de convocar a las Asambleas Regionales Electorales de Productores y a las Asambleas Electorales Nacionales de los demás sectores cafetaleros, en los meses establecidos por la presente Ley, por correo certificado o algún otro medio idóneo para hacer constar que efectivamente se realizó la convocatoria, en la cual se señalará el lugar, la fecha y la hora de la celebración de la Asamblea correspondiente. El único punto de la agenda será el nombramiento de los representantes ante el Congreso Nacional Cafetalero. El Director Ejecutivo del ICAFE y los funcionarios que este designe, operarán como facilitadores con el propósito de celebrar las elecciones correspondientes".
+(Así reformado por el artículo único de la Ley N° 8109 de 4 de julio del 2001)

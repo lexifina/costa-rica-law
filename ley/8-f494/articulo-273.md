@@ -15,8 +15,7 @@ Artículo 273.- En la aplicación del impuesto de timbre se observarán las regl
 (*)Los vales o pagarés estarán exentos de impuestos.
 (*) (Así adicionado el párrafo anterior por el artículo 190 de la Ley Reguladora del Mercado de valores, N° 7732 del 17 de diciembre de 1997)
 (Así reformado el inciso anterior por el artículo 48 de la Ley para el Equilibrio Financiero del Sector Público, N° 6955 del 24 de febrero de 1984)
-13) Por las fórmulas de cheques de cuentas corrientes de cualquiera de los bancos establecidos en en país, se pagará un impuesto de treinta céntimos de colón, el cual será cobrado por el banco respectivo en el momento de entregar los talonario. Del monto recaudado se girará a la Junta Administrativa del Archivo Nacional, lo indicado en los artículos 7º y 8º de la ley Nº 5574 del 17 de setiembre de 1974, según ahí se señala.
-(Así reformado el inciso anterior por el artículo 9 de la Ley de Presupuesto Extraordinario, N° 6962 del 26 de julio de 1989)
+13) (Derogado por el inciso z) del artículo 31 de la Ley de Simplificación y Eficacia Tributaria, N° 8114 del 4 de julio de 20011)
 14) Los poderes para negocios, que excedan de un mil colones (¢1.000,00) y sus sustituciones, pagarán cien colones (¢ 100,00) de timbres; los poderes y sustituciones para negocios de menor cuantía y las cartas poderes pagarán cinco colones (¢ 5,00) de timbre.
 (Así reformado el inciso anterior por el artículo 1° de la ley N° 6450 del 15 de julio de 1980)
 15) Por pasaportes, salvoconductos de cualquier índole y documentos de identidad que se expidan para viajes, se pagará dos mil colones de timbres. Por las visas de salida a cualquier parte del exterior del país, se pagarán quinientos colones.
