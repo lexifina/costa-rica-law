@@ -1,0 +1,2 @@
+Transitorio: en un plazo de noventa días a partir de la publicación de este Decreto, se establecerán comisiones de informática en las principales instituciones del Sector Agropecuario (MAG IDA CNP) integradas por funcionarios de alto nivel responsable de las áreas de planificación institucional, ejecución presupuestaria y desarrollo de la informática.
+Dado en la Presidencia de la República.—San José. a los siete días del mes de febrero de mil novecientos noventa y dos.
