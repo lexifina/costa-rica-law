@@ -1,0 +1,5 @@
+Artículo 2°—Adiciones. Se adicionan un articulo 9 y un Transitorio al Acuerdo, los cuales se leerán así;
+"Artículo 9°—Comunicación de la metodología seleccionada
+Cada Grupo o Administrador de Carteras deberá comunicar a la Superintendencia General de Valores, por oficio dirigido al Superintendente, la metodología seleccionada para valorar sus cartera de forma previa al inicio de su utilización. En el caso de que una sola metodología no abarcara todos los instrumentos que deban valorarse, el administrador deberá indicar en forma clara la metodología que utilizará para los instrumentos restantes. En tal caso, dicha metodología deberá haber sido inscrita previamente, de conformidad con el procedimiento de inscripción establecido en los artículos 1 a 3 de este Acuerdo".
+"Transitorio
+Los Grupos Financieros o los Administradores de Carteras que cuenten con carteras mancomunadas en operación que queden sujetas a la valoración a precios de mercado deberán realizar la comunicación que se refiere el articulo 9 de este Acuerdo a más tardar el 22 de marzo del 2002".
