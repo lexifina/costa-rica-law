@@ -14,3 +14,4 @@ Declara Interés Nacional y Público el Concurso sobre Aportes al Mejoramiento d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-31 | la propia norma |
+| 2 | 1998-03-31 | Ley 8 |
