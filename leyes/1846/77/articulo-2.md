@@ -1,0 +1,1 @@
+Art. 2. Al propio tiempo, cada una de las secciones mencionadas elegirá un Diputado propietario y un suplente, en la forma que se ha hecho la eleccion de Representantes, debiendo aquellos tener las cualidades que la Constitucion exigia para estos.

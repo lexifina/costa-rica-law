@@ -1,0 +1,1 @@
+Art. 3. Dichos Diputados compondràn la Asamblea Constituyente, cuya solemne instalacion se verificara en esta capital con los dos tercios por lo ménos de sus miembros, á las diez de la mañana del 15 de setiembre próximo, aniversario de la independencia de Centro-América y gran dia de la pátria.
