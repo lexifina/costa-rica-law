@@ -1,4 +1,6 @@
+(Derogado)
 N° 1535
+(Esta norma fue derogada por el artículo 113 (actual 115) de la Ley Orgánica del Tribunal Supremo de Elecciones TSE y del Registro Civil, N° 3504 del 10 de mayo de 1965)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETAN:
 LEY ORGANICA DEL REGISTRO CIVIL

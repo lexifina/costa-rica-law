@@ -1,1 +1,0 @@
-Artículo 6°-Esta ley regirá a partir del 1° de marzo de 1960, y al entrar en vigencia quedarán derogados los artículos 64, 69 y 70 de la Ley Orgánica del registro Civil, N° 1535 de 10 de diciembre de 1952.
