@@ -1,0 +1,1 @@
+Artículo 13.—Cuando el destino de la utilización de la gallinaza o pollinaza no sea el de insumo para otra actividad productiva, será permitido depositarla en un relleno sanitario, previa aprobación del MS, fin de evitar la diseminación de enfermedades virales aviares, zoonosis o el desarrollo de especies de moscas dañinas para la salud humana y animal.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Estas disposiciones reglamentarias se aplicarán al tratamiento, transporte, uso, comercialización y control de la gallinaza y pollinaza derivados de la actividad de granjas avícolas.

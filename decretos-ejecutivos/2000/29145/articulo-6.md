@@ -1,0 +1,1 @@
+Artículo 6º—El productor cuya gallinaza esté destinada a un Procesador externo a su granja, estará obligado a darle tratamiento a la misma en un plazo no mayor a 30 días si es gallina de jaula y si es gallina de piso, 30 días después de que se evacuen las aves. En caso de prórroga del plazo anterior deberán los productores solicitarlo al MAG, Dirección de Salud Animal.

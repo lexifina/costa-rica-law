@@ -1,0 +1,1 @@
+Artículo 15.—Cuando el destino de la utilización o disposición de la gallinaza o pollinaza sea uno diferente a los expuestos en los artículos 9, 10 y 13 del presente Reglamento, el tratamiento permitido deberá ser autorizado por los Ministerios de Salud o de Agricultura y Ganadería según su competencia.

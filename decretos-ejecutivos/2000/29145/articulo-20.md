@@ -1,0 +1,1 @@
+Artículo 20.—La aplicación de la presente normativa corresponderá a los Ministerios de Salud y de Agricultura y Ganadería, en el ámbito de sus respectivas atribuciones y competencias, sin perjuicio de las atribuciones de vigilancia en materia ambiental que correspondan a la Setena.

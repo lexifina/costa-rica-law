@@ -1,0 +1,5 @@
+Artículo 16.—Del transporte. Para el transporte de la gallinaza, pollinaza y productos de éstos, se deberá cumplir con los siguientes requisitos:
+a) El transporte será vigilado y regulado en lo pertinente por el Ministerio de Agricultura y Ganadería y el Ministerio de Seguridad Pública. El transporte podrá realizarse a granel, cuando el medio de transporte esté cubierto y no tenga posibilidad de que este material se derrame durante el tránsito. Si no se cumple este requisito deberá empacarse en sacos o empaques apropiados para evitar derrames.
+b) Los procedimientos para realizar el transporte de gallinaza o pollinaza estarán bajo la responsabilidad de los transportistas.
+c) Tanto los Procesadores y los transportistas deberán llevar un registro que indique el origen, destino y volumen transportado, así como las respectivas fechas y horas de entrada y salida de gallinaza, pollinaza o del producto elaborados con base en éstos.
+d) Los camiones de transporte deberán lavarse y desinfectarse, evitando posibles riesgos de contaminación.

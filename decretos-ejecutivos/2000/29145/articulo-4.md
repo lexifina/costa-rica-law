@@ -1,0 +1,1 @@
+Artículo 4º—De los productores. Las granjas y empresas avícolas serán responsables de destinar su gallinaza o pollinaza, dándole tratamiento ya sea en sus propias granjas o por algún otro Procesador debidamente inscrito en el MS.
