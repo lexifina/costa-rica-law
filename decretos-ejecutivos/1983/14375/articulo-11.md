@@ -1,4 +1,4 @@
-Artículo 11.- Serán funciones del Director Ejecutivo:
+ARTICULO 11.- Serán funciones del Director Ejecutivo:
 1) Dirigir y coordinar las labores de la Secretaría Técnica.
 2) Fungir como Secretario en las sesiones de la Autoridad
 Presupuestaria.

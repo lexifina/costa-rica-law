@@ -1,7 +1,7 @@
 CAPITULO III
 Del funcionamiento de la Secretaría Técnica
 de la Autoridad Presupuestaria
-Artículo 8º.- Son funciones y responsabilidades de la Secretaría
+ARTICULO 8º.- Son funciones y responsabilidades de la Secretaría
 Técnica de la Autoridad Presupuestaria:
 1) Asesorar a las instituciones y empresas del Sector Público en la
 formulación de sus presupuestos y sus modificaciones.
@@ -9,6 +9,15 @@ formulación de sus presupuestos y sus modificaciones.
 del Sector Público se ajusten a los sistemas prescritos conforme con el
 inciso 5) del artículo 1º de este Reglamento y a las directrices y
 lineamientos específicos emitidos por la Autoridad Presupuestaria.
+Previa aprobación por parte de la Contraloría General de la
+República, y con el fin de lograr el cumplimiento de las metas y
+objetivos propuestos, por el Gobierno, la Secretaría Técnica de la
+Autoridad Presupuestaria deberá extender una constancia o certificación
+en el sentido de que los presupuestos y modificaciones, se encuentran
+ajustados a lo fijado con los jerarcas de las instituciones y empresas
+del sector público reducido.
+(Así adicionado este párrafo por el artículo 1º del decreto
+ejecutivo No.18480 del 27 de setiembre de 1988)
 3) Confeccionar estadística fiscales del Sector Público.
 4) Asesorar a las instituciones y empresas del Sector Público en las
 tareas tendientes a racionalizar las compras de bienes y servicios y

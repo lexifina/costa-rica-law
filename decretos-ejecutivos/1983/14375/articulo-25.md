@@ -1,16 +1,16 @@
 CAPITULO VII
 Disposiciones finales
-Artículo 25.- Este Reglamento deroga cualquier otro que se le oponga
+ARTICULO 25.- Este Reglamento deroga cualquier otro que se le oponga
 y rige a partir de su publicación.
 CAPITULO VIII
 Disposiciones finales
-Transitorio I.- Antes de los primeros quince días posteriores a la
+TRANSITORIO I.- Antes de los primeros quince días posteriores a la
 publicación de este Reglamento, todas las instituciones que se mencionan
 en los artículos 2º y 15 de la Ley de Creación de la Autoridad
 Presupuestaria deberán enviar a la Secretaría Técnica los nombres de los
 funcionarios titulares y suplentes mencionados en el artículo 21 de este
 Reglamento.
-Transitorio II- A más tardar treinta días naturales después de la
+TRANSITORIO II.- A más tardar treinta días naturales después de la
 publicación del presente Reglamento, las instituciones del Sector Pública
 sujetas a los lineamientos específicos que no hayan enviado a la
 Secretaría Técnica sus presupuestos para el año 1983, deberán hacerlo.

@@ -1,3 +1,4 @@
+NOTA: la Ley de Creación de la Autoridad Presupuestaria, Nº 6821 del 19 de octubre de 1982, que se reglamenta en este decreto fue derogada por el inciso c) del artículo 127 de la Ley N° 8131 de 18 de septiembre de 2001.
 En uso de las facultades que les confiere el artículo 140, incisos
 3) y 18) de la Constitución Política de la República, y
 Considerando:
@@ -11,7 +12,7 @@ El siguiente
 Reglamento a la Ley de Creación
 de la Autoridad Presupuestaria
 Funciones de la Autoridad Presupuestaria
-Artículo 1º.- La Autoridad Presupuestaria tendrá las siguientes
+ARTICULO 1º.- La Autoridad Presupuestaria tendrá las siguientes
 funciones:
 1) Elaborar las directrices globales, sectoriales e institucionales
 de la política de ingresos y egresos del Sector Público, incluidas las

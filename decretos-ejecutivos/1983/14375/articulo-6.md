@@ -1,4 +1,4 @@
-Artículo 6º.- Para escoger el representante de las organizaciones
+ARTICULO 6º.- Para escoger el representante de las organizaciones
 sindicales que se incorporará a la Autoridad Presupuestaria cuando
 formulen directrices de política salarial según el artículo 5º de la Ley
 de Creación de la Autoridad Presupuestaria, el Ministerio de Trabajo

@@ -1,4 +1,4 @@
-Artículo 15.- Las instituciones, organismos y empresas del Sector
+ARTICULO 15.- Las instituciones, organismos y empresas del Sector
 Público observarán las siguientes fechas límites:
 1) Antes del 1º de marzo de cada año, la Secretaría Técnica de la
 Autoridad Presupuestaria dará a conocer las proyecciones económicas y

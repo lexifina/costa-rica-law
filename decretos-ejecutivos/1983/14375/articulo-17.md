@@ -1,4 +1,4 @@
-Artículo 17.- La vigencia de los presupuestos será del 1º de enero
+ARTICULO 17.- La vigencia de los presupuestos será del 1º de enero
 al 31 de diciembre de cada año. A más tardar el 28 de febrero, las
 instituciones deberán entregar a la Contraloría General de la República,
 con copia a la Secretaría Técnica de la Autoridad Presupuestaria, la

@@ -1,4 +1,4 @@
-Artículo 20.- De conformidad con el artículo 15 de la Ley de
+ARTICULO 20.- De conformidad con el artículo 15 de la Ley de
 Creación de la Autoridad Presupuestaria, las instituciones de Educación
 Superior y los gobiernos locales remitirán a la Secretaría Técnica, con
 carácter informativo.

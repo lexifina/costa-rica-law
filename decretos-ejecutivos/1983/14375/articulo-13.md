@@ -1,6 +1,6 @@
 CAPITULO V
 De los procedimientos y disposiciones generales
-Artículo 13.- Las instituciones y empresas del Sector Público
+ARTICULO 13.- Las instituciones y empresas del Sector Público
 designarán a dos de sus funcionarios, uno titular y otro alterno, para
 que sean responsables de los anexos de trabajo e información con la
 Secretaría Técnica. Las instituciones podrán cambiar a estos
