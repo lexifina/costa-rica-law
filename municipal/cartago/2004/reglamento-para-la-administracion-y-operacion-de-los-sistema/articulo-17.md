@@ -1,0 +1,1 @@
+Artículo 17.—El Departamento de Estacionómetros y Terminales (Parquímetros), por medio de los inspectores, tendrá a su cargo el ordenamiento, regulación y vigilancia para el cantón Central de Cartago, los que están obligados a velar por la aplicación de este reglamento y a reportar los vehículos que infrinjan la ley de estacionómetros y este reglamento.

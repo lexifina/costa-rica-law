@@ -1,0 +1,4 @@
+Artículo 4º—En las zonas Céntricas y No céntricas se cobrará el impuesto de estacionamiento en todas aquellas áreas que por sus medidas y condiciones sean aptas para el estacionamiento de vehículos; mediante el sistema de estacionómetros, por medio de libretas, boletas o cupones para el uso indiscriminado de tiempo de estacionamiento o por arrendamiento
+de zonas, a tarifas fijas; por hora, mensual o anual.
+En la zona No céntrica, se cobrará por el uso permanente de espacios a tarifa fija mensual o anual, o por los otros métodos que establece el párrafo anterior de éste mismo artículo.
+En el resto de las vías el estacionamiento será gratuito, en el tanto que no esté prohibido por las regulaciones de tránsito.

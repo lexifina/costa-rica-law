@@ -1,0 +1,2 @@
+Artículo 19.—Si no hiciere la cancelación dentro del plazo dicho, el Departamento de Estacionómetros impondrá el recargo del 2% mensual, que establece la ley, el cual no podrá exceder, ningún caso, del 24% del monto adeudado.
+La multa o acumulación de multas no canceladas, durante un periodo de un año o más, constituirá un gravamen sobre el vehículo con el cual se cometió la infracción, el que responderá además por los gastos que demande la eventual acción judicial.

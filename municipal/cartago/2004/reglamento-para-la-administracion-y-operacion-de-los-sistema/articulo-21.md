@@ -1,0 +1,1 @@
+Artículo 21.—Quedarán sujetos a las correspondientes sanciones que indica la normativa penal, aquellos propietarios de vehículos que cometan alteraciones o fraudes en las tarjetas de estacionamiento. Los inspectores que detecten dichas anomalías, deberán ponerlas en conocimiento de su superior y coordinar con el Departamento Legal las acciones penales que correspondan.
