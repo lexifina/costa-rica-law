@@ -1,0 +1,1 @@
+Art 3.- El Ejecutivo tomará las providencias que convengan para el cumplimiento del presente decreto, haciéndolo imprimir, publicar y circular, Comuníquese al Gefe Supremo.- Dado en San José a los veintinueve días del mes de Setiembre de mil ochocientos treinta y dos. Por tanto Ejecutase.- San José Octubre primero de mil ochocientos treinta y dos.
