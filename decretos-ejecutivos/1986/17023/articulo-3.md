@@ -1,0 +1,1 @@
+Artículo 3°-Las actividades forestales, agrícolas o ganaderas que se fueran a realizar en la Zona Protectora, deberán contar con la respectiva autorización extendida por la Dirección General Forestal, en coordinación con el Comité Interinstitucional que se menciona en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 2°-La administración y manejo de la Zona Protectora Tivives estará a cargo de la Dirección General Forestal, en coordinación con el Centro Agrícola Regional Pacífico Central, Centro Agrícola Cantonal de Esparza y la Municipalidad de Esparza.
