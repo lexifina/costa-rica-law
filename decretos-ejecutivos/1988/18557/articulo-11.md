@@ -1,0 +1,1 @@
+Artículo 11.- Los directores, de común acuerdo con los servidores, podrán modificar la jornada ordinaria de trabajo, siempre y cuando no se cause perjuicio al Servicio Público, ni a la duración de la misma, previa notificación a quien corresponda.

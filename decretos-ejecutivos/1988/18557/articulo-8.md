@@ -1,0 +1,1 @@
+Artículo 8º.- Los servidores que el Ministerio nombre en plazas de confianza, estarán al servicio del Ministerio, regulados de conformidad con lo que establezca el Código de Trabajo y leyes conexas y por las disposiciones de este Reglamento.

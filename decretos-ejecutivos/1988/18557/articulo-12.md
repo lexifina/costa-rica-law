@@ -1,0 +1,1 @@
+Artículo 12.- El Ministerio podrá modificar transitoriamente los horarios establecidos en este Reglamento, siempre que circunstancias excepcionales así lo justifiquen y no cause perjuicio al servicio público o a los servidores.
