@@ -1,1 +1,0 @@
-Art 3°.- Los trabajadores que hayan ingresado al Seguro de Enfermedad y Maternidad devengando mil colones o menos de salario al mes que posteriormente llegaren a ganar mas de mil colones mensuales, podrán solicitar su exclusión de este Seguro, siempre que lo hagan dentro del mes inmediato posterior a la fecha pedir la exclusión debiendo continuar obligatoriamente en el Régimen.

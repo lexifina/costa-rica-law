@@ -1,2 +1,0 @@
-Artículo 46°. - Se suspenderá los subsidios en dinero cuando la asegurada se niegue a cumplir las prescripciones médicas que se le impartan o a concurrir a los consultorios de maternidad o de lactancia señalados por la Institución con la periodicidad indicada por el médico tratante o cuando sea requerida para ello.
-Igualmente, se les suspenderá el subsidio cuando se den los casos y condiciones señaladas por los artículos 36 y 37 de este Reglamento, en cuanto les sean aplicables atendiendo a la distancia modalidad del riesgo.

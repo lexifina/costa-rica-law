@@ -1,1 +1,0 @@
-Artículo 11°. - No se recibirán planillas ni se aceptarán pagos, sin que ello releve al patrono de las consecuencias de su morosidad, cuando en las primeras no se llenen todos los requisitos de que habla el artículo anterior.

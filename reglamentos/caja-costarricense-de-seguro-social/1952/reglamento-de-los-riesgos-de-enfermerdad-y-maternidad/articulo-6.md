@@ -1,2 +1,0 @@
-De las Exclusiones y Devolución de las cuotas
-Artículo 6°. - Salvo los casos en que la Caja puede practicar de oficio la exclusión los trabajadores que, de acuerdo con la disposición anteriores se consideren exceptuados de la obligatoriedad del Seguro, deberán dirigirse a la Caja por escrito, y en papel común, solicitado su exclusión e indicando sus nombres completos, calidades dirección personal, lugar de trabajo, nombre y número patronal y causal en la cual apoyan su gestión. Además, deberán acompañar la libreta respectiva o carnet de identificación

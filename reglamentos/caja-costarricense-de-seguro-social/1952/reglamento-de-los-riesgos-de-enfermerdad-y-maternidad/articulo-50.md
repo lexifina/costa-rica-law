@@ -1,1 +1,0 @@
-Artículo 50°.- La fecha que la asegurada señale para el parto tendrá únicamente el carácter de una presunción que no obliga a la Caja. Solamente la fecha indicada por los médicos de la Caja que hayan comprobado el embarazo, podrá servir de base para el ajuste de los beneficios.

@@ -1,2 +1,0 @@
-Artículo 26°- Los que dejen de ser asegurados activos, así como los parientes que disfrutan del beneficio familiar, conservarán todos los derechos señalados es este Reglamento, excepto el pago de prestaciones en dinero, durante los seis meses naturales posteriores a la fecha en que dejó de ser asegurado activo, siempre y cuando hubiera cotizado por lo menos durante tres meses en los cuatro anteriores a la fecha en que dejó de cotizar, y así conste en las planillas mensuales previamente presentadas en la Caja.
-(Así reformado en sesión N° 6113 del 30 de abril de 1987)

@@ -1,2 +1,0 @@
-Artículo 40°. - Las prestaciones indicadas en el artículo anterior se otorgarán a las trabajadoras, aseguradas, activas, que hayan cotizado por lo menos durante seis meses, en los doce meses anteriores al parto, si están comprendidas en el primer párrafo del artículo 32, o con la suma de catorce colones con cuarenta céntimos, distribuida en un periodo no menor de seis meses, también dentro de los doce anteriores al parto, cuando estén en el caso del párrafo primero del artículo 34.
-(Reformado así en sesión de Junta Directiva N° 1722 del 6 de julio de 1956)

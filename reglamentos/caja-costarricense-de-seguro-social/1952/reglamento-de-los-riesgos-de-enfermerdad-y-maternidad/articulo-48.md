@@ -1,1 +1,0 @@
-Artículo 48°.- Los médicos de la Caja, de acuerdo con el resultado de los exámenes prenatales, resolverán acerca de la clase de asistencia que corresponda, sea ésta domiciliaria hospitalaria o de cualquier otro género.
