@@ -1,0 +1,2 @@
+Art. 17-Practicado el examen de testigos y examinadas las pruebas que se presenten, se oirá de nuevo al acusador ó Fiscal y en seguida al reo y su defensor.
+Tanto en este acto como en cualquiera de los que constituyen la audiencia, los jurados, por medio del Presidente, podrán hacer á las partes y á los abogados ó defensores las preguntas que crean necesarias para la debida claridad. El Secretario, durante la audiencia, sentará una acta de todo lo sustancial que ocurra, extractando las declaraciones de testigos y demás pruebas que se aduzcan.
