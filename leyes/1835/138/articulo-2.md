@@ -1,0 +1,1 @@
+Art 2°.- El Estado reconocerá el servicio que se les ecsije a estos ciudadanos y la Asamblea interpone sus respetos para la admisión de la comisión que les confiere, fiando en sus luces y patriotismo, que la desempeñaran y que los resultados serán los mejores.
