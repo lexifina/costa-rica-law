@@ -1,0 +1,3 @@
+La Junta Directiva del Instituto de Fomento .y Asesoría Municipal, mediante acuerdo primero, artículo tres de la sesión extraordinaria Nº 3277, celebrada a las 9:00 horas del día 24 de abril del 2003, que fue declarado firme por acuerdo cuarto de la sesión extraordinaria 3283 del día 22 de mayo en curso, resolvió:
+Reformar el artículo 6º de dicho Reglamento así:
+"Artículo 6º—La aplicación del procedimiento regulado en este Reglamento, la elaboración y el traslado de cargos y observaciones, corresponderá a la Sección de Contabilidad y Finanzas del Instituto, en un plazo máximo de quince días naturales a partir de la fecha en que ésta lo recibió".
