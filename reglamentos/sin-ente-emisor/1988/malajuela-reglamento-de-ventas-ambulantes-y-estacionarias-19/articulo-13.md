@@ -1,0 +1,1 @@
+Artículo 13.—El diseño de los puestos serán único y definido por la Municipalidad tomando en cuenta los productos a expender. El área fijada para un puesto no podrá ampliarse de ninguna forma, ni siquiera con toldos o plásticos, bajo pena de declarar la caducidad de la licencia.
