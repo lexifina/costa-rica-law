@@ -1,0 +1,1 @@
+Artículo 21.—Inhibición de la persona representante de la docencia. Cuando al Comité Local de Evaluación se le presenten apelaciones que atañen directamente al docente, integrante del mismo, éste debe abstenerse y ceder la participación a su suplente en la sesión de que se trate.

@@ -1,0 +1,3 @@
+Artículo 13.—Sesiones del Comité Institucional de Evaluación. Este Comité debe sesionar ordinariamente como mínimo una vez al mes y extraordinariamente cuando se presente algún asunto de su competencia que requiera atención de acuerdo con lo estipulado en el presente Reglamento; para lo cual será convocado por la Subgerencia Técnica quien debe presidir.
+La convocatoria debe ser emitida junto con su agenda u orden del día por lo menos con 3 días hábiles de antelación a la sesión.
+La primera sesión ordinaria debe realizarse en febrero de cada año y tiene como objetivo la elaboración del Plan de Trabajo anual de esta Comisión.

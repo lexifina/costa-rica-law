@@ -1,0 +1,1 @@
+Artículo 22.—Asesoramiento. El Comité Local de Evaluación tiene la facultad para convocar a las personas que considere conveniente, para asesorarse en materia de evaluación de los aprendizajes y solicitar información que le permita a sus integrantes formar criterio para la toma de decisiones, sin apartarse de los planteamientos sustantivos de este Reglamento

@@ -1,0 +1,1 @@
+Artículo 44.—Repitencia de módulos. El estudiante que repruebe un módulo tiene derecho a repetirlo, siempre y cuando lo autorice el Encargado del Centro de Formación, quien corrobora, previo estudio, que existe la posibilidad de espacio y tiempo para su autorización.

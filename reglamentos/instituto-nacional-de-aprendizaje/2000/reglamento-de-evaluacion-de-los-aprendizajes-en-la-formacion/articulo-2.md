@@ -1,0 +1,1 @@
+Artículo 2°—Objetivo. El presente Reglamento tiene como fin establecer la regulación de la evaluación de los procesos educativos en las acciones de Formación Profesional que se imparten en el Instituto.

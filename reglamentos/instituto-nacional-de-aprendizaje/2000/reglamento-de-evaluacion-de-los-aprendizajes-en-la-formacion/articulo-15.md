@@ -1,0 +1,1 @@
+Artículo 15.—Asesoría. El Comité Institucional de Evaluación tiene la facultad de convocar a las personas que considere conveniente para asesorarse en materia de evaluación educativa u otras materias que le permitan a sus integrantes formar criterio para la toma de decisiones

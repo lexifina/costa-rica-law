@@ -1,0 +1,1 @@
+Artículo 39.—Duración de las pruebas. La duración de las pruebas escritas no debe ser superior a los 120 minutos. Para las pruebas prácticas y las que se realizan a personas aplazadas, la duración puede ser mayor, pero no superior a los 240 minutos.

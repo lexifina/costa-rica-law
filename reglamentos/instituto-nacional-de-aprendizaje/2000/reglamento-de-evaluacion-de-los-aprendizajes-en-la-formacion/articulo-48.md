@@ -1,0 +1,1 @@
+Artículo 48.—Entrega de pruebas. Las pruebas pertenecen a cada participante, por lo tanto, quien imparte la formación debe tener evidencia de su entrega a los mismos y toda calificación debe constar en el Registro Final de sus Calificaciones.

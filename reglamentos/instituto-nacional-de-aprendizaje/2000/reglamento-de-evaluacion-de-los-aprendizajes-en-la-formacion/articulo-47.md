@@ -1,0 +1,1 @@
+Artículo 47.—Momento de aplicación de las pruebas. Preferiblemente las pruebas deben ser aplicadas al inicio de las lecciones, para evitar la angustia de la persona evaluada. Quien administre la prueba debe propiciar un clima agradable que disminuya la tensión y ansiedad de los participantes

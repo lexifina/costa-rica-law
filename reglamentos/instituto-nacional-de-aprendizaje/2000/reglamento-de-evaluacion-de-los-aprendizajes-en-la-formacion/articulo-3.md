@@ -1,0 +1,2 @@
+Artículo 3°—Concepto de evaluación. Proceso orientado hacia la determinación, búsqueda y obtención de evidencias acerca del grado y nivel de calidad del aprendizaje de cada participante, a fin de fundamentar los juicios que orienten la toma de decisiones. Es una interpretación de una medida o medidas en relación con una norma establecida.
+La evaluación tiene dos componentes: la medición y la valoración

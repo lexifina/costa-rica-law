@@ -1,0 +1,1 @@
+Artículo 45.—Modificación de convocatoria a pruebas. Para administrar una prueba que modifique las fechas determinadas y divulgadas el primer día de lecciones, la persona que imparte la formación debe comunicar a los participantes con al menos dos días hábiles de anticipación.

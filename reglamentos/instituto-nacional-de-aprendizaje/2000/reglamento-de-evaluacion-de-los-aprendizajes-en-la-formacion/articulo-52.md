@@ -1,0 +1,1 @@
+Artículo 52.—Instancia para la apelación. La apelación es conocida por el Comité Local de Evaluación, que debe resolver en definitiva dentro de los tres días hábiles posteriores al recibo de los documentos.

@@ -1,0 +1,1 @@
+Artículo 37.—Condiciones de la preparación de la prueba. Las pruebas deben prepararse en situaciones similares a las desarrolladas durante las situaciones de aprendizaje del módulo. Su elaboración debe contar con las normas mínimas de calidad técnica (confiabilidad y validez).

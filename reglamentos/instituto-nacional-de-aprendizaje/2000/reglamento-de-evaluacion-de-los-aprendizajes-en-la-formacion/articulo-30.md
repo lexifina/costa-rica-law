@@ -1,0 +1,3 @@
+Artículo 30.—Valoración del área socioafectiva. Para valorar el área socjoafectiva se puede emplear la observación directa, entrevistas, cuestionarios, auto informes, composiciones o ensayos, inventarios de intereses y actitudes, entre otros. Sin embargo, se privilegia la observación directa, pues mediante ella se puede obtener información de la conducta real que se manifiesta en situaciones naturales y que permite corroborar o desvirtuar los datos obtenidos mediante otros instrumentos.
+Cuanto más variables y múltiples sean las situaciones que se observen, más o mejores son las posibilidades para lograr mayor exactitud del rasgo observado.
+El porcentaje para esta área está determinado por el proceso de Planeamiento y Evaluación, entre un 10% y hasta un máximo de 15%.

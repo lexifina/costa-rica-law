@@ -1,0 +1,1 @@
+Artículo 10.—Capacitación en evaluación. A la persona encargada del Proceso de Planeamiento y Evaluación del Núcleo, le corresponde garantizar que el equipo docente cuente con la capacitación oportuna en evaluación, de manera que le permita el planeamiento, la elaboración y la administración de los instrumentos de evaluación.

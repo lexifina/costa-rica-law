@@ -1,0 +1,1 @@
+Artículo 31.—Registro de calificaciones. Las calificaciones obtenidas en las pruebas y valoraciones realizadas en cada módulo, deben constar en el "Registro de Calificaciones", en números enteros en una escala de 1 a 100. En caso de decimales se redondea al número entero más cercano.
