@@ -1,2 +1,4 @@
-Artículo 41.—COBERTURA. Se define como la proyección horizontal de una estructura o el área de terreno cubierta por tal estructura.
-La cobertura de construcción será establecida para cada una de las zonas, de acuerdo con la intensidad del uso del suelo que se quiera lograr en cada una de ellas, lo cual estará determinado por la infraestructura y servicios que haya en cada una de las zonas, así como por el upo de uso del suelo a que se desune el terreno de que se trate.
+Articulo 41.—COBERTURA. Se define como la proyección horizontal de una estructura o el área de terreno cubierto por tal estructura.
+Se excluyen de estas áreas los palios, patios de luz y retiros, no así la parte del retiro que se utilizará para la futura ampliación vial. la situación que obligatoriamente se reflejará en los alineamientos emitidos por el MOPT y la Municipalidad.
+La cobertura de construcción está establecida para cada una de las zonas de acuerdo con la intensidad del uso del suelo que se quiera lograr en cada una de ellas, lo cual estará determinado por la infraestructura y servicios que haya en cada una de las zonas, así como por el tipo de uso del suelo a que se destine el terreno de que se trate.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.)

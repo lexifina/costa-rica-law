@@ -1,1 +1,1 @@
-Artículo 240.—Se promoverá la declaratoria de edificios como Patrimonio Nacional, y en algunos casos la declaratoria de sitios de valor histórico, cultural, paisajístico y urbanístico protegiendo así el entorno que los rodea. Esto se hará mediante estudios específicos y planes parciales.
+Articulo 240.— DEROGADO por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.

@@ -1,1 +1,1 @@
-Artículo 22.—El suelo no programado es aquel suelo urbanizado o urbanizable que no se tiene reservado a proyectos específicos, y en el que puede desarrollarse cualquier proyecto que sea conforme con las disposiciones de las zonificaciones respectivas.
+Artículo 22.—DEROGADO por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.

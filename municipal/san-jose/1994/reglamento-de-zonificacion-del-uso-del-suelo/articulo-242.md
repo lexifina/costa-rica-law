@@ -1,1 +1,1 @@
-Artículo 242.—Para dar la protección adecuada a algunos de estos sirios el presente P-D.U- declara Zonas de Control Especial. (Ver Mapa de Zonificación del Uso del Suelo).
+Artículo 242.— DEROGADO por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.

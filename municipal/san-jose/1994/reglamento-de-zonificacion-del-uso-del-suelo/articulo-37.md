@@ -1,7 +1,10 @@
-Artículo 37.—Cuando no se prevé la ampliación vial, el retiro frontal es equivalente al antejardín.
+Articulo 37.—Cuando no se prevé la ampliación vial, el retiro frontal es equivalente al antejardín.
 El antejardín implica una restricción para construir, sin que por ello está porción de terreno pierda su condición de propiedad privada. Por lo menos un tercio del área de antejardín debe mantenerse como área verde.
-En el caso de ampliación vial prevista, el retiro frontal comprenderá una franja de terreno adicional. A esta se le puede dar el uso provisional como antejardines y estacionamiento restringido, de acuerdo a lo estipulado en el reglamento de Vialidad y Transporte del P.D.U.. En ningún caso estos usos provisionales podrán implicar obstáculos para el tránsito peatonal por aceras u otros espacios públicos.
-El uso provisional subsistirá en tanto no se usen dichas franjas de terreno para llevar a cabo la ampliación vial. De llevarse a cabo éste proyecto, por parte de la Municipalidad u otra institución pública se cumplirá que:
+Podrá construirse cocheras para un automóvil (hasta 20 m2) en antejardín siempre y cuando que los elementos estructurales de apoyo del techo o columnas guarden el retiro mínimo de dos metros respecto a la línea de propiedad; sólo la cubierta podrá sobresalir hasta la línea de propiedad envoladizo. En antejardín no se permitirá o sea de piso impermeable, o en su defecto solamente las esteras de concreto para el paso de vehículos. Por los costados laterales y frontal en zona de antejardín no se podrán construir vallas sólidas con altura de más de un metro (I mt) permitiendo hasta un 80% de visibilidad. Además ver artículo 48 Reglamento de Espacios Públicos, Vialidad y Transporte.
+En el caso de ampliación vial. prevista, el retiro Frontal comprenderá una franja de terreno adicional. A esta se le puede dar el uso provisional como antejardines y estacionamiento restringido, de acuerdo a lo estipulado en el reglamento de Espacios Públicos, Vialidad y Transporte del P.D.U. En ningún caso estos usos provisionales podrán implicar obstáculos para el tránsito peatonal por aceras u otros espacios públicos.
+Las puertas de acceso batirán en la propiedad.
+El uso provisional subsistirá en tanto no se usen dichas franjas de terreno para llegar a cabo la ampliación vial. De llevarse a cabo éste proyecto por parte de la Municipalidad u otra institución pública se cumplirá que:
 a) Cesarán el uso temporal y provisional.
-b) La Municipalidad o la institución que corresponda negociará con el dueño del terreno, el traspaso de las franjas en cuestión al dominio público.
-c) De no haber acuerdo entre las partes, se procederá a la expropiación.
+b) La Municipalidad o la institución que corresponda negociará con el dueño del terreno, el traspaso de las franjas en cuestión al dominio publico.
+c) De no haber acuerdo entre las, partes, se proceder a la expropiación.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.)

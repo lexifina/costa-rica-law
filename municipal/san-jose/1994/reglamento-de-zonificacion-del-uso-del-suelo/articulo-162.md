@@ -1,9 +1,12 @@
 Artículo 162.—ZONAS DE CONTROL ESPECIAL
-1. Centro antiguo
-2. Centro cívico nacional
-3. Hospital
-4. Centro cívico municipal
-5. Pacífico.
-6. Museo del Niño.
-7. Barrios Amón Otoya Aranjuez.
-8. San Francisco - San Bosco - Pitahaya.
+1. CENTRO ANTIGUO (CASCO URBANO)
+2. CENTRO CÍVICO NACIONAL
+3. HOSPITAL
+4. CENTRO CÍVICO MUNICIPAL
+5. PACIFICO.
+6. MUSEO DEL NIÑO.
+7. BARRIOS AMON - OTOYA - ARANJUEZ.
+8. SAN FRANCISCO - SAN ROSCO - PITAHAYA.
+9. BARRIO LUJAN - B° FRANCISCO PERALTA
+10. CORREDOR UNIVERSITARIO (usos y requisitos ver artículos 141 - 145).
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.)

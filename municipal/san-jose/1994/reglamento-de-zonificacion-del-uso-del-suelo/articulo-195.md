@@ -1,1 +1,1 @@
-Artículo 195.—CONDICIONES ESPECIALES. Las mismas que se exigen para la Zona de Control Especial Museo del Niño.
+Articulo 195.— DEROGADO por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.

@@ -14,3 +14,4 @@ Reglamento de Zonificación del Uso del Suelo.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-01-24 | la propia norma |
+| 2 | 1996-02-21 | Reglamento municipal 256 (1996-02-21) |

@@ -1,4 +1,3 @@
-Artículo 147.—PROPOSITO. Estimular el cambio de la industria existente en estas zonas, hacia una más moderna, compatible con el ambiente urbano y vinculada a los servicios, favorecer el desarrollo de actividades complementarias de comercio y servicios.
-No obstante, las actividades comerciales que se deseen desarrollar en estas zonas, solo podrán autorizarse como usos condicionales, previo estudio presentado por el interesado.
-El objetivo del estudio es evitar el surgimiento de conflictos entre las diferentes actividades que se realicen en la zona.
-La Municipalidad resolverá las solicitudes con base en el estudio presentado, el cual será sometido a verificación.
+Artículo 147.—PROPOSITO. Estimular el cambio de la industria existente en estas zonas, hacia una más moderna, compatible con ambiente urbano y vinculada a los servicios, favorecer el desarrollo actividades complementarias de comercio y servicios.
+No obstante, las actividades comerciales que se deseen desarrollar en estas zonas, solo podrán autorizarse como usos condicionales. Con la salvedad de que deben soportar molestias más altas que en las zonas comerciales.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.)

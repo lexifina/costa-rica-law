@@ -1,1 +1,1 @@
-Artículo 168.—INCENTIVO DE ALTURA. En todas las zonas de control especial se permitirá como incentivo, aumentar la altura de las construcciones en 3,5 metros, por cada 5 metros de retiro frontal adicional.
+Artículo 168.— DEROGADO por la Sesión Ordinaria N° 256, celebrada el 21 de febrero de 1996, publicada en La Gaceta N° 52 de 13 de marzo de 1996.
