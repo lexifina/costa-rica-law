@@ -14,3 +14,4 @@ Convoca a todos los electores a concurrir a las Juntas de Votación el 1° de di
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-12 | la propia norma |
+| 2 | 2002-08-14 | Resolución 9 (2002-08-14) |
