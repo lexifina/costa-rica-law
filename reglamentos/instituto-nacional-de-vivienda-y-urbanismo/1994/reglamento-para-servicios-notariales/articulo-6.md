@@ -1,2 +1,0 @@
-Artículo 6°—Una vez que la Junta Directiva, nombre un notario para que brinde servicios a la institución, este deberá presentarse a los subprocesos de notariado de las áreas de Ahorro y Préstamo y de Vivienda de Interés Social, en donde se le recopilará la información de interés para el instituto y se le informará sobre el funcionamiento de los sistemas, proporcionándole copia de todos los reglamentos, resoluciones y acuerdos que sean necesarios para el buen desempeño de su labor notarial.
-(Así reformado mediante la sesión N° 4954, celebrada el 26 de enero del 2000)

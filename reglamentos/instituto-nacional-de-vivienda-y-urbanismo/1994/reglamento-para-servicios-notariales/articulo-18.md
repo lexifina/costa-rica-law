@@ -1,1 +1,0 @@
-Artículo 18.—El ingreso de Notarios nuevos al rol, se hará previo el concurso respectivo y el nombramiento, por parte de la Junta Directiva, en la distribución siguiente a la formalización del contrato; se le asignará el trabajo de acuerdo con el orden alfabético que le corresponda y con el ajuste al fondo acumulado de honorarios por Notario.

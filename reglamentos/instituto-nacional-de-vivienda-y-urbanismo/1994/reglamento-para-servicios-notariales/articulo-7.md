@@ -1,2 +1,0 @@
-Artículo 7°—Corresponderá a cada área orientar y suplir a los notarios de las cláusulas comunes, establecidas en el INVU y que los deudores deben aceptar, así como los modelos de redacción de las escrituras, que por diversos actos se deban otorgar. En esta se insertarán las condiciones individuales de cada caso y servirán de base a los funcionarios de las dependencias del instituto, que efectúen la revisión de la escritura, en la oportunidad en que se les devuelva el caso.
-(Así reformado mediante la sesión N° 4954, celebrada el 26 de enero del 2000)

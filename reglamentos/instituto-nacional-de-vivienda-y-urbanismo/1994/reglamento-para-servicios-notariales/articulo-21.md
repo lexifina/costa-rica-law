@@ -1,2 +1,0 @@
-Artículo 21.—Cuando se determine que algún notario, no presta atención a los casos que se le encargan, ni muestra diligencia y efectividad en los trámites de formalización, descargo e inscripción, produciendo quejas, por parte de los clientes o atrasos en el cumplimiento de otros trámites en el INVU, la Comisión de Notariado solicitará a la gerencia la apertura del procedimiento respectivo para la resolución del caso.
-(Así reformado mediante la sesión N° 4954, celebrada el 26 de enero del 2000)

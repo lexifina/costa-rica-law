@@ -1,2 +1,0 @@
-Artículo 14.—Para cumplir con lo dispuesto en el artículo anterior, la Comisión dicha, a través de los procedimientos correspondientes, mediante riguroso turno, asignará las escrituras a los notarios, con base en el sistema de distribución mecanizado. El orden establecido no podrá ser alterado en ningún modo, salvo excepciones muy calificadas ajuicio de la Comisión de Notariado, o cuando medie algún proyecto de interés institucional ajuicio de la Presidencia Ejecutiva o de la Gerencia General.
-(Así reformado mediante la sesión N° 4954, celebrada el 26 de enero del 2000)

@@ -1,1 +1,0 @@
-Artículo 19.—Cuando un Notario se vea imposibilitado para realizar un trabajo que se le asignó, salvo por fuerza mayor, la Gerencia, conjuntamente con la Comisión de Notariado, analizará el caso y determinará si se sustituye la operación por otro del mismo grupo, o si pierde el turno respectivo.

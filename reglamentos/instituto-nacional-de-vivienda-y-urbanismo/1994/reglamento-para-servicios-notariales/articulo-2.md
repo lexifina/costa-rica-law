@@ -1,1 +1,0 @@
-Artículo 2°—Cuando se trate de Concurso de Antecedentes, corresponderá a la Administración la convocatoria, previa autorización de Junta Directiva y el análisis de las ofertas, la Junta Directiva será la única encargada de la escogencia definitiva, de acuerdo con lo que dispone la Ley Orgánica del INVU No 1788 del 24 de agosto de 1954 y sus reformas.

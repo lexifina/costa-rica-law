@@ -1,1 +1,0 @@
-Artículo 15.—La Comisión de Notariado, debe informar a la Gerencia del incumplimiento de lo establecido en este Reglamento por parte de los Notarios en la confección, descargo e inscripción de escrituras, así como en la calidad del trabajo que realicen, adicionando dicho informe con la recomendación del procedimiento para seguir, según la normativa vigente.

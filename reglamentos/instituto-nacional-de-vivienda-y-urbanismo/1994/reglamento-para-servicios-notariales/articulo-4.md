@@ -1,2 +1,0 @@
-Artículo 4°—Los Abogados internos del INVU, que fungen como Notarios, deben efectuar las labores notariales fuera de su jornada ordinaria en el INVU y de las oficinas de la Institución, con las excepciones que fijará la Comisión de Notariado en su oportunidad.
-El incumplimiento de esta disposición, una vez apercibido el infractor si no cesa en su falta, será causal de revocatoria de su nombramiento.
