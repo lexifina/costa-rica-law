@@ -13,3 +13,4 @@ Oficializa Biblioteca Pùblica del Distrito de Rincón Zaragoza Palmares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-31 | la propia norma |
+| 2 | 1996-05-31 | SINALEVI (sin norma nombrada) |
