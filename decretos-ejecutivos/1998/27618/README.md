@@ -13,3 +13,4 @@ Reglamento para el Uso Control y Mantenimiento de Vehículos del MEP
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-05 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
