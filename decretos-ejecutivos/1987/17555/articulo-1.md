@@ -1,0 +1,14 @@
+N° 17555-RE-P
+EL PRESIDENTE DE LA REPUBLICA
+Y LOS MINISTROS DE RELACIONES EXTERIORES Y CULTO
+Y DE LA PRESIDENCIA,
+Considerando:
+1°-Que el 28 de julio de 1986 el Gobierno de la República de Nicaragua interpuso una infundada demanda contra la República de Costa Rica ante la Corte Internacional de Justicia.
+2°-Que el Gobierno de la República, mediante Decreto Ejecutivo N° 17334- RE de 24 de noviembre de 1986, nombró una comisión encargada de la defensa de Costa Rica en el citado juicio planteado por Nicaragua.
+3°-Que es necesario que esa comisión, denominada Comisión Nacional de Juristas, tenga a su alcance toda la información existente para el debido cumplimiento de sus altas obligaciones, información que en muchos casos se encuentra archivada en distintas oficinas del Estado que, en una u otra forma, han intervenido en los incidentes provocados por la guerra civil que ensangrienta Nicaragua, o por violaciones que contra la soberanía nacional han cometido sus gobernantes.
+4°-Que la Constitución Política vigente exceptúa los Secretos de Estado del derecho de libre acceso a las oficinas públicas que tiene todo ciudadano para informarse de la marcha de los asuntos de su Gobierno.
+5°-Que de acuerdo con jurisprudencia sentada por la Corte Suprema de Justicia, especialmente por medio de la sentencia dictada por su Sala Primera, el día 9 de marzo de 1984, al resolver el recurso de amparo planteado por el entonces diputado Aguilar Bulgarelli, son Secretos de Estado, todo documento o acto de un órgano estatal relativo a los medios de defensa del país o a la conducción de las relaciones exteriores, cuya divulgación podría causar perjuicio al óptimo uso de los medios de defensa de Costa Rica, o a la mejor conducción de la política exterior costarricense.
+6-Que dentro de ese criterio sustentado en la jurisprudencia de la Corte Suprema de Justicia, es evidente que todos los documentos que puedan constituir prueba a utilizar por Costa Rica en su defensa frente a la demanda de Nicaragua ante la Corte de La Haya, así como todos aquellos que reflejen o puedan revelar la estrategia a seguir por la representación de Costa Rica en el referido juicio, son Secretos de Estado. También tienen esa característica los documentos que sobre seguridad nacional mantengan en sus oficinas el Ministerio de Seguridad Pública y la Dirección de Inteligencia y Seguridad, (DIS).
+Por tanto,
+DECRETAN:
+Artículo 1-Por constituir Secretos de Estado, son confidenciales todos los documentos que para la defensa de Costa Rica en el juicio que le ha planteado Nicaragua ante la Corte Internacional de Justicia, se encuentren en poder de la Comisión Nacional de Juristas, o los que, encontrándose en oficinas públicas, por ser necesarios para el mismo fin de la defensa de Costa Rica en el citado juicio de La Haya, sean requeridos o llegaren a ser requeridos por la misma Comisión Nacional de Juristas.
