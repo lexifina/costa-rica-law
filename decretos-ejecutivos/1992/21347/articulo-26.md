@@ -4,4 +4,5 @@ Todo cambio y permuta de automotores, livianos y pesados, sólo se efectuará cu
 Cuando proceda a los intereses de la Administración, se aprobara la venta de vehículos.
 Toda donación de vehículos la respaldará la Institución beneficiada con documentos que así lo demuestren, además del avalúo de la Dirección General de la Tributación Directa.
 Toda operación relacionada con este artículo, sin excepción contará con la recomendación previa de la Comisión de Vehículos del Sector Público, la que la analizará tic acuerdo con los procedimientos existentes, y la elevará a la Autoridad Presupuestaria.
-La Autoridad Presupuestaria sólo tramitará un máximo de dos solicitudes anuales por Institución. Títulos valores
+La Autoridad Presupuestaria sólo tramitará un máximo de dos solicitudes anuales por Institución. Títulos valores.
+(NOTA: Mediante el decreto ejecutivo N° 21696 del 3 de noviembre de 1992, se modifica lo dispuesto en el presente artículo, "en el sentido de que la Autoridad Presupuestaria podrá autorizar, excepcionalmente, la compra, y la sustitución de vehículos cuyo modelo sea superior a 1987 o 1988, cuando existan razones especiales y sumamente justificadas").
