@@ -1,0 +1,1 @@
+Artículo 40.—Información confidencial. Los recursos informáticos que almacenen información confidencial, deben disponer de una clave de acceso (password), y es responsabilidad de los encargados de soporte informático de cada dependencia, elaborar dicha clave siguiendo las normas definidas por Tecnologías de Información para estos propósitos.

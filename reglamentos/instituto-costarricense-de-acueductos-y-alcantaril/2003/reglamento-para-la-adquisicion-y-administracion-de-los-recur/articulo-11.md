@@ -1,0 +1,1 @@
+Artículo 11.—Información oficial. Los funcionarios usuarios, deberán conservar y resguardar bajo su más estricta responsabilidad la información oficial que contenga en sus archivos electrónicos, estando obligados a ponerla a disposición de su superior inmediato en el momento que le sea indicado por éste.

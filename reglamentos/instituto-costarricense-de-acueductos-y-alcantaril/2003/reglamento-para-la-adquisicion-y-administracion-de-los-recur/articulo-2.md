@@ -1,0 +1,20 @@
+Artículo 2.—Definiciones. Abandonware. Es el software que se ha eliminado de los catálogos de productos para la venta, normalmente de más de cinco años o de compañías ya desaparecidas. Los derechos reservados de éstos, siguen teniendo vigencia, por lo que está totalmente prohibido venderlos o utilizarlos con fines lucrativos.
+Antivirus. Es un programa que detecta, de alguna manera, la presencia o el accionar de un virus informático en una computadora y tiene la opción de erradicar un virus informático de una entidad infectada.
+Clave de acceso. Combinación de signos que sirven para acceder y utilizar las funcionalidades de algunos recursos informáticos.
+Configuración. Es el conjunto de los elementos externos e internos que conforman un recurso informático y hacen que tenga las características que tiene.
+Correo electrónico. Es el nombre genérico para toda comunicación no interactiva de texto, datos, imágenes o mensajes de voz, que tiene lugar entre un origen y los destinatarios designados, y que se desarrolla en sistemas que utilizan enlaces de telecomunicación.
+Dependencia. Se refiere a cada una de las oficinas incluidas en la estructura organizacional de la Institución.
+Freeware y Postcard. Software que especifique en su licencia ser totalmente libre.
+Hardware. Incluye todos los componentes físicos de la computadora y sus periféricos.
+Internet. El Internet, es un sistema mundial de redes de computadoras, un conjunto integrado por las diferentes redes de cada país del mundo, por medio del cual un usuario en cualquier computadora puede, en caso de contar con los permisos apropiados, acceder información de otra computadora y poder tener inclusive comunicación directa con otros usuarios en otras computadoras.
+Lineamiento informático. Complemento emitido por Tecnologías de Información de lo estipulado en este reglamento.
+Liteware. Es el término utilizado para el software que se distribuye en forma gratuita, en una versión con menos capacidad que la versión completa que se encuentra en el mercado. Es diseñada principalmente para proveer a los clientes potenciales de una muestra para ver y manipular. Liteware puede ser considerado como un tipo de Shareware.
+Órgano disciplinario. Es el grupo de personas conformado por la Administración Superior, para que verifique la verdad real de los hechos a través del procedimiento previsto por la ley. En este Órgano debe participar al menos un representante de la Dirección Jurídica
+Personal de soporte informático. Es el grupo de personas que se encargan de atender los asuntos informáticos. Pueden pertenecer organizacionalmente a Tecnologías de Información o a otras oficinas, pero deben seguir los lineamientos y normas emanados de Tecnologías de Información.
+Recurso crítico. Entiéndase por recurso crítico, todo recurso informático que presta un servicio a nivel Institucional.
+Recurso informático. Se entiende por recurso informático los accesorios, repuestos y equipos de cómputo, así como, los equipos de telecomunicaciones, software, aplicaciones, servicios y licencias adquiridas por la institución.
+Servicio técnico y profesional. Se refiere a los servicios contratados para desarrollar o apoyar proyectos informáticos.
+Shareware. Es el software que es distribuido libremente para su uso parcial y temporal. Comúnmente, se tiene la oportunidad de registrarlo y adquirir la versión completa.
+Software. Término general que designa los diversos tipos de programas usados en computación. Es el conjunto de instrucciones que las computadoras emplean para manipular datos; se puede clasificar en cuatro diferentes categorías: lenguajes de programación, de uso general, de aplicación y sistemas operativos.
+Usuario. Es el funcionario que usa los recursos informáticos de la institución por derecho o concesión.
+Virus. Programa que se introduce a un computador a través de sistemas de comunicación o interfaces, y que se ejecuta automáticamente en determinados momentos modificando o destruyendo los datos contenidos en el computador.

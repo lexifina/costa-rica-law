@@ -1,0 +1,3 @@
+CAPÍTULO X
+Sustitución de recursos
+Artículo 50.—Solicitud. Es imperioso que se realice una solicitud formal (por escrito), donde se justifique lo requerido. Todas las solicitudes para sustitución de equipo o software deben ser canalizadas a través de los encargados de soporte y con visto bueno de las jefaturas correspondientes. Dichas solicitudes deben ser remitidas a Tecnologías de Información para su estudio. La solicitud debe incluir una descripción detallada del recurso informático que se reemplazará, así como, la utilidad que se le dará al nuevo, esto, de acuerdo a lo estipulado en el artículo 46 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 20.—Seguridad. Es obligatorio acatar las medidas de seguridad implantadas con el fin de proteger los recursos informáticos de accesos no autorizados, modificaciones a la red, servicios, equipos o configuraciones en general.

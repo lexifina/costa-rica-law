@@ -1,0 +1,1 @@
+Artículo 10.—Pertenencia de equipos, software y servicios. Los equipos, software y derecho de uso de servicios (web, correo electrónico) asignados a cada empleado para el desarrollo de sus labores son propiedad de AyA.

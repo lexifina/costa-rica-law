@@ -1,0 +1,1 @@
+Artículo 13.—Resguardo de manuales y licencias. Tecnologías de Información será la encargada del resguardo y distribución de manuales originales técnicos y de usuario, así como de los medios físicos y las licencias de sistemas de software que sean propiedad de AyA.

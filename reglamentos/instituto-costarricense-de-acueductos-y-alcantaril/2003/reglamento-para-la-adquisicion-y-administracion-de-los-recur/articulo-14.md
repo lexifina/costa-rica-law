@@ -1,0 +1,1 @@
+Artículo 14.—Administración de servicios técnicos y profesionales. Las dependencias que contraten servicios, serán las responsables de velar por el cumplimiento de los servicios contratados. Cuando así se requiera, Tecnologías de Información supervisará los trabajos realizados.

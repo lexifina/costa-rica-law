@@ -1,0 +1,1 @@
+Artículo 53.—Presupuesto. Es responsabilidad de cada una de las dependencias asegurar el contenido presupuestario para la adquisición de sus equipos de cómputo (computadores, impresoras, switches, concentradores, etc.)

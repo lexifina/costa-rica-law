@@ -1,0 +1,1 @@
+Artículo 5º—Desecho de recursos. Para desechar un recurso se deberá solicitar el dictamen técnico correspondiente a Tecnologías de Información. Cuando no proceda la exclusión, Tecnologías de Información o la dependencia autorizada para ese propósito elaborará una propuesta de reutilización o reasignación.

@@ -1,0 +1,3 @@
+CAPÍTULO XI
+Actualización de recursos informáticos
+Artículo 54.—Solicitud. Para que se le dé trámite a una solicitud de este tipo, es necesario que el requerimiento se formule por escrito y con la justificación correspondiente. Todas las solicitudes para actualización deben ser canalizadas a través de los encargados de soporte informático y con el visto bueno de las jefaturas correspondientes. Esta solicitud debe ser remitida a Tecnologías de Información para su estudio y debe incluir una descripción detallada del equipo que se actualizará, así como, la utilidad que se le dará, esto, de acuerdo a lo estipulado en el artículo 46 de este reglamento.

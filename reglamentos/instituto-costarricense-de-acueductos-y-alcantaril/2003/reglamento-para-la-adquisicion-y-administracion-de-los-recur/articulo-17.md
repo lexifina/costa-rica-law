@@ -1,0 +1,1 @@
+Artículo 17.—Software sin licencia. Los funcionarios de AyA pueden utilizar software sin la licencia, siempre que se trate del tipo denominado SHAREWARE, ABANDONWARE y LITEWARE o que especifique en su licencia ser totalmente libre (FREEWARE y POSTCARD), respetando las condiciones establecidas dentro de la licencia para su uso, previa autorización de Tecnologías de Información.

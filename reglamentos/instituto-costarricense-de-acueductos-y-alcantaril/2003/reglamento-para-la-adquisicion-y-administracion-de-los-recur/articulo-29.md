@@ -1,0 +1,1 @@
+Artículo 29.—Evaluación de sistemas. Tecnologías de Información, tendrá la facultad de supervisar y revisar cualquier sistema de información desarrollado en la Institución, para asegurar el uso racional de los recursos de cómputo.

@@ -1,0 +1,1 @@
+Artículo 7º—Distribución y redistribución de recursos. Será responsabilidad de Tecnologías de Información con el apoyo del personal de soporte informático, realizar la distribución de los nuevos activos, así como, de la redistribución de aquellos activos que se sustituirán, para lo cual, las dependencias interesadas deberán justificar sus solicitudes.

@@ -1,0 +1,1 @@
+Artículo 6º—Asignación temporal de recursos. Las dependencias que conforman la Institución, podrán solicitar la asignación temporal de recursos, para lo cual, Tecnologías de Información, definirá los requerimientos, estableciendo entre otros, los períodos de concesión, condiciones para su devolución y las condiciones para su custodia y devolución.

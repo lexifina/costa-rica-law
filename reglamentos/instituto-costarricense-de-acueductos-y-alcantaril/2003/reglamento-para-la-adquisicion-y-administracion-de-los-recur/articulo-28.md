@@ -1,0 +1,1 @@
+Artículo 28.—Plataforma y ambiente de operación. La plataforma y ambiente de operación sobre la cual operarán los sistemas de información será dictaminada y aprobada por Tecnologías de Información, así como su configuración; esto con el fin de conservar los estándares, el rendimiento y los tiempos de respuesta de los servidores de datos y de las redes de telecomunicaciones.

@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Adquisición de accesorios y suministros
+Artículo 58.—Solicitud. Para que se le dé trámite a una solicitud de este tipo, es necesario que el requerimiento se formule por escrito y con la justificación correspondiente. Todas las solicitudes para adquisición de accesorios y suministros que no existan en Almacenes, deben ser canalizadas a través de los encargados de soporte informático y con el visto bueno de las jefaturas correspondientes. Esta solicitud debe ser remitida a Tecnologías de Información para su estudio y debe incluir una descripción detallada de la utilidad que se le dará a los accesorios y suministros, esto, de acuerdo a lo estipulado en el artículo 46 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 27.—Mantenimiento de sistemas. El mantenimiento de los sistemas de información deberá ser documentado y realizado por personas autorizadas para ello y mediante visto bueno de, o solicitud por escrito a Tecnologías de Información o a través del personal de soporte informático haciendo uso de los procedimientos establecidos por TI.

@@ -1,0 +1,1 @@
+Artículo 25.—Aprobación de sistemas desarrollados. Le corresponde a Tecnologías de Información liberar los sistemas (desarrollado internamente o por terceros), lo que se realizará únicamente, cuando exista la aprobación expresa y por escrito del titular de la dependencia interesada.

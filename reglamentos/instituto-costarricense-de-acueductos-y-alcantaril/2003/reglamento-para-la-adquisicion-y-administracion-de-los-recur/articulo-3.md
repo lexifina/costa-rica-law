@@ -1,0 +1,1 @@
+Artículo 3º—Régimen jurídico. La actividad de administración y adquisición de recursos y servicios informáticos se rige por las normas y principios del ordenamiento jurídico administrativo costarricense y las directrices y aprobaciones de la Gerencia.

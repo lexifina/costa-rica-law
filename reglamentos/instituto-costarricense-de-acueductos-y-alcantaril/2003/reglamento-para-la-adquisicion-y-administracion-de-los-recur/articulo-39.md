@@ -1,0 +1,1 @@
+Artículo 39.—Respaldo de información. Es responsabilidad de los jefes de cada dependencia, así como de los funcionarios usuarios de recursos informáticos y encargados del soporte técnico, velar por que se cumplan las políticas para respaldar la información en medios magnéticos para su restauración en caso de destrucción parcial o total.
