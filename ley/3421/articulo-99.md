@@ -1,2 +1,0 @@
-Artículo 99.- El consignatario o su representante tendrá derecho a presenciar la inspección y examen de las mercancías. Si concurriere, podrá hacer en este acto las observaciones que juzgue necesarias para la correcta clasificación arancelaria de las mismas, presentando prospectos, catálogos o listas del contenido.
-Una vez terminado el aforo, si el interesado lo impugnare, procederá conforme a lo establecido en el Título XIV del presente Código.

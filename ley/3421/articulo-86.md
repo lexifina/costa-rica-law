@@ -1,1 +1,0 @@
-Artículo 86.- Toda póliza de importación deberá presentarse acompañada del conocimiento de embarque, de la factura comercial y de los demás documentos que exija la ley, todos originales, con los requisitos y el número de copias que se indique en los reglamentos.

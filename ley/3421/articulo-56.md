@@ -1,1 +1,0 @@
-Artículo 56.- Las mercancías que ingresen al país, por la vía postal, deberán ser entregadas a la custodia a la Aduana para su aforo. Los bultos postales recibirán el mismo tratamiento que los que ingresen por otra vía, con las excepciones y limitaciones establecidas en las convenciones postales.

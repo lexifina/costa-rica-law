@@ -1,1 +1,0 @@
-Artículo 156.- La personas que se presuma responsables de las infracciones investigadas serán detenidas provisionalmente y las mercancías aprehendidas deberán ser depositadas en la Aduana. Tanto unas como otras deberán ser puestas inmediatamente a disposición de la autoridad competente.

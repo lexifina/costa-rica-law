@@ -1,1 +1,0 @@
-Artículo 77.- La póliza deberá formularse en el idioma de los Estados signatarios, con los datos y demás requisitos que establece este Código y los que se indiquen en los reglamentos. Deberá firmarse y presentarse a la Aduana donde se encuentre la mercancía por el agente aduanero autorizado por el consignatario, o por éste en los casos del artículo 130.

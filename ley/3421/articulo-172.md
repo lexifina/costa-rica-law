@@ -1,1 +1,0 @@
-Artículo 172.- Sin perjuicio de los dispuesto en el artículo 175, contra las resoluciones pronunciadas por la Dirección General de Aduanas cabrá recurso ante los Tribunales de lo Contencioso Administrativo en los Estados donde existan estos Tribunales, y en los demás ante los organismos administrativos que determine su ley nacional.

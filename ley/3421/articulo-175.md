@@ -1,1 +1,0 @@
-Artículo 175.- Contra las resoluciones del Director General y solamente en los casos a que se refiere el artículo 22 de este Código, cabrá el recurso de apelación ante el Comité Arancelario, que deberá interponerse por escrito ante el Director General de Aduanas, dentro del término de tres días contados a partir de la notificación respectiva.

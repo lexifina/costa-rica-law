@@ -1,1 +1,0 @@
-Artículo 81.- En la póliza se declara, en una unidad monetaria común equivalente al dólar de los Estados Unidos de América, el valor CIF de las mercancías, establecido de conformidad con la legislación arancelaria uniforme centroamericana, el cual deberá coincidir con el de la factura comercial.

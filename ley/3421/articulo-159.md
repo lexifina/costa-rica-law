@@ -1,1 +1,0 @@
-Artículo 159.- Las autoridades judiciales o de policía prestarán inmediatamente ayuda a los funcionarios de Aduana tan pronto como sean requeridos y estarán obligados a proporcionar el persona necesario para cumplir la misión de la Aduana.

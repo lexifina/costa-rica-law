@@ -1,3 +1,0 @@
-Artículo 129.- Podrán ejercer la actividad de agente aduanero las personas naturales que sean autorizadas para tal fin, por el Ministerio de Hacienda.
-También podrán dedicarse a esta actividad las personas jurídicas, autorizadas por el Ministerio de Hacienda, que acrediten a satisfacción del mismo, a los agentes aduaneros a cuyo cargo estarán las actuaciones.
-Los reglamentos a este Código señalarán los procedimientos y requisitos para obtener la autorización correspondiente, debiendo en todo caso el beneficiario, caucionar por separado sus responsabilidades para con el Fisco y para con sus comitentes.

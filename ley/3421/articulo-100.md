@@ -1,2 +1,0 @@
-Artículo 100.- Las autoridades aduaneras, cuando lo consideren necesario, podrán pedir a los consignatarios que comparezcan a dar las indicaciones que se requieran para establecer la naturaleza de los artículos cuyo aforo se esté practicando.
-En caso de no comparecer, la Aduana procederá directamente al examen de la mercancía por sus propios medios, y serán por cuenta del consignatario los riesgos y gastos en que se incurra.

@@ -1,3 +1,0 @@
-Artículo 169.- Contra las resoluciones que emita el Administrador de Aduana cabrá el recurso de revisión jerárquica para ante el Director General de Aduanas, que deberá interponerse por escrito en el momento de la notificación o dentro de los tres días hábiles siguientes a dicha notificación.
-El Administrador de Aduana admitirá el recurso y remitirá los antecedentes a la Dirección General el día siguiente al de la última notificación.
-El recurrente deberá apersonarse y expresar agravios dentro del término que le señale el Administrador. El apersonamiento y expresión de agravios se hará en un solo escrito.

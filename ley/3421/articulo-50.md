@@ -1,1 +1,0 @@
-Artículo 50.- En el tráfico aéreo se exigirán los siguientes documentos; declaración general (salida-entrada) comprendido itinerarios y manifiesto de carga y listas de tripulación y pasajeros, así como los demás documentos exigibles por leyes especiales y los reglamentos de este Código.

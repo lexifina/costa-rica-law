@@ -1,2 +1,0 @@
-Artículo 123.- Las mercancías depositadas en los almacenes generales no podrán ser objeto de cambio o modificación alguna, salvo el reacondicionamiento del embalaje de los bultos, el reconocimiento o extracción de muestras y el repintado de las marcas que estando borrosas, puedan todavía identificarse.
-Estas operaciones serán vigiladas por funcionarios aduaneros y se efectuarán por cuenta y riesgo del depositante.
