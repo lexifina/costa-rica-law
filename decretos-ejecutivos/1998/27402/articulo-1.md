@@ -10,3 +10,4 @@ Considerando:
 4°-Que en razón de lo expuesto se hace necesaria la promulgación de un marco jurídico para tomar todas las medidas de excepción indispensables para hacerle frente a los efectos de este desastre natural y mitigar las consecuencias que pueda tener su impacto sobre los bienes y las personas. Por tanto,
 DECRETAN:
 Artículo 1°-Declárese estado de necesidad y urgencia por calamidad pública, la situación provocada por el Huracán Mitch en toda la Vertiente del Pacífico del territorio nacional.
+( Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 28009 del 14 de julio de 1999, se amplia el estado de necesidad y urgencia por calamidad pública establecido en este artículo para que se incluya además: "... la provincia de Cartago y los cantones de Guatuso, Upala y los Chiles.")

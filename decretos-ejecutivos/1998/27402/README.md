@@ -14,3 +14,4 @@ Declara estado de necesidad y urgencia por calamidad pública la situación prov
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-28 | la propia norma |
+| 2 | 1999-07-14 | Decreto Ejecutivo 28009 (1999-07-14) |
