@@ -1,0 +1,1 @@
+Artículo 10.—El extranjero a quien se le haya reconocido la condición de refugiado, podrá solicitar un documento de viaje cuando así lo requiera, previa solicitud así como la visa de salida y reingreso, según corresponda.

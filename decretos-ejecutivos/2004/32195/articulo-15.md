@@ -1,0 +1,1 @@
+Artículo 15.—En caso de denegatoria de la solicitud de refugio, el interesado podrá interponer los recursos ordinarios de revocatoria o apelación, de conformidad con lo que al efecto establece la Ley General de Migración y Extranjería. El ACNUR estará legitimado para interponer los recursos precitados, por sí o como coadyuvante del propio interesado.

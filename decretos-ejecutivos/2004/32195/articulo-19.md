@@ -1,0 +1,1 @@
+Artículo 19.—En caso de flujos masivos de extranjeros que pretendan el reconocimiento de la condición de refugiado, la Dirección General de Migración y Extranjería establecerá el procedimiento especial de calificación.
