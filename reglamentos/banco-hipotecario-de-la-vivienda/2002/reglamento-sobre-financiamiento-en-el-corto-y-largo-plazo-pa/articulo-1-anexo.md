@@ -23,4 +23,9 @@ Cerro Verde | Paraíso
 Emergencia Turrialba | Turrialba
 La Sole | Pococí
 San Pablo | Acosta
+Calle Ronda (APROCARO) | Santo Domingo
+Potrerillos | San Rafael
+Nuevo Milenio (San Josecito) | Heredia
+La Florencia | Vázquez de Coronado
+(Así reformado mediante acuerdo tomado por la Junta Directiva, en su sesión 15-2003 del 27 de marzo de 2003).
 Acuerdo unánime y firme".
