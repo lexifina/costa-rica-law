@@ -13,3 +13,4 @@ Reglamento Zonaje Funcionarios MIRENEM
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-02-04 | la propia norma |
+| 2 | 1993-02-15 | Decreto Ejecutivo 22016 (1993-02-15) |
