@@ -1,0 +1,3 @@
+Artículo 19.—Del pago por kilometraje mensual.
+19.1 El pago de kilometraje mensual se efectuará por parte de la Subárea Oficialía Presupuestal y Financiero Contable del MOPT o del Consejo de Seguridad Vial, según corresponda, cuando así previamente se haya establecido y el funcionario propietario lo hubiere aceptado.
+19.2 En este caso Control de Transportes del MOPT o la dependencia del Consejo que fuere competente, mantendrán un sistema de “Boletas de Autorización”, debidamente custodiadas y que se aportarán conjuntamente con el Formulario, dentro de los cinco días hábiles siguientes a la conclusión del mes.

@@ -1,0 +1,1 @@
+Artículo 23.—Conducción. La conducción del vehículo deberá correr exclusivamente a cargo del funcionario propietario del mismo. Queda entendido que en ningún caso el MOPT o el Consejo asignarán chofer a tales vehículos.

@@ -1,0 +1,1 @@
+Artículo 38.—Reformas al Reglamento. Toda reforma al presente Reglamento requerirá del refrendo por parte de la Contraloría General de la República, y deberá tramitarse mediante Decreto que al efecto se establezca.

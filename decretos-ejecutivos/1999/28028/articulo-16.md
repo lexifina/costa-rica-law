@@ -1,0 +1,4 @@
+Artículo 16.—Cálculo del kilometraje. Para el cálculo del kilometraje recorrido se tomarán en cuenta los siguientes elementos y Factores:
+16.1 La tabla de distancias elaborada por el MOPT o el Consejo, si el recorrido estuviere contemplado en dicha tabla.
+16.2 Lectura del odómetro, conforme a Registro que al efecto utilice Control de Transportes, donde queden establecidas las anotaciones pertinentes.
+16.3 Criterio del jefe inmediato, respecto a la distancia recorrida. Únicamente se aceptarán distancias mayores o recorridos por rutas distintas a la prevista, cuando se demuestre de manera fehaciente que tal situación se produjo como consecuencia del cierre de vías, desvíos ordenados por autoridad competente u otros imprevistos ocasionados por la naturaleza o derivados de causas análogas, ajenas a la voluntad del funcionario propietario;

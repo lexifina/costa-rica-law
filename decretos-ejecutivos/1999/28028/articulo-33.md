@@ -1,0 +1,1 @@
+Artículo 33.—No obligatoriedad para la Administración de garantizar un mínimo de kilómetros. En ningún caso el MOPT o el Consejo estarán obligados a garantizar un mínimo de kilómetros por recorrer o remunerar a los efectos del presente Reglamento.

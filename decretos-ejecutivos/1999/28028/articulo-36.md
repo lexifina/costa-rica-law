@@ -1,0 +1,1 @@
+Artículo 36.—Sanciones. Las infracciones e incumplimientos a lo dispuesto por el presente Reglamento determinarán las aplicaciones de las sanciones que correspondan, de conformidad con lo dispuesto por el ordenamiento jurídico y previo cumplimiento del debido proceso.

@@ -1,0 +1,1 @@
+Artículo 31.—Resolución. Cuando ocurriere un incumplimiento imputable al funcionario propietario, el MOPT o el Consejo, según su caso, podrán resolver sus relaciones contractuales, según lo establecido en el Reglamento de la Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 35.—Posibilidad de uso de vehículos de la Administración. En todo momento quedará abierta la posibilidad de que el MOPT o el Consejo, según corresponda, si contare con vehículos apropiados, haga uso preferente de dichos vehículos respecto a los que son propiedad de los funcionarios, sin que ello implique pago indemnizatorio alguno.

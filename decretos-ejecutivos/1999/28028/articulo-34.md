@@ -1,0 +1,3 @@
+Artículo 34.—Situaciones no contempladas dentro del sistema.
+34.1 Es-entendido que el sistema a que se refiere este Reglamento comprende únicamente el kilometraje requerido para los propósitos de la contratación y, consecuentemente, dentro del más estricto ejercicio y desarrollo de las actividades del funcionario público propietario del vehículo.
+34.2 En consecuencia, no se podrán estimar como parte del sistema ni incluirse dentro del kilometraje los traslados del funcionario de su casa de habitación al lugar habitual de trabajo, ni su asistencia a sesiones de Junta Directiva o a eventos de capacitación.

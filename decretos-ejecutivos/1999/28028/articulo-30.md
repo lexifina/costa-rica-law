@@ -1,0 +1,1 @@
+Artículo 30.—Rescisión. El MOPT o el Consejo, según corresponda, estarán facultados para dar por terminadas, unilateralmente, las relaciones contractuales surgidas con base en este Reglamento por motivos de interés público, caso fortuito o fuerza mayor, conforme lo dispone el Reglamento de la Contratación Administrativa.

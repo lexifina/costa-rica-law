@@ -1,0 +1,1 @@
+Artículo 15.—Cálculo del recorrido o gira. Para determinar el “recorrido de la gira y su respectivo kilometraje, deberá tomarse en cuenta partiendo del sitio donde se origina el viaje, el lugar de destino y viceversa, por la ruta que resulte más corta y adecuada, dentro de las condiciones normales de seguridad y tránsito vehicular.

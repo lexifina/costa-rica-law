@@ -1,0 +1,3 @@
+Artículo 18.—Del pago por gira.
+18.1 La liquidación o pago por gira se efectuará en aquellos casos en que así previamente lo haya establecido el MOPT o el Consejo, lo acepte expresamente el funcionario propietario, y siempre y cuando el Formulario a que se refiere el presente Reglamento se hubiere presentado dentro del plazo o término improrrogable de los cinco días hábiles siguientes a la conclusión de la gira, y en tal evento se consignará en el Formulario correspondiente a que se refiere el presente Reglamento, el número de kilómetros realmente recorridos, así como los restantes datos requeridos al efecto.
+18.2 Si la liquidación no se realizare dentro de dicho plazo, las subsiguientes giras no serán autorizadas.

@@ -1,0 +1,1 @@
+Artículo 13.—No calificación como salario en especie. Las sumas que los funcionarios propietarios percibieren por concepto de arrendamiento de sus vehículos al MOPT o al Consejo, según se establece en el presente Reglamento, en ningún caso constituirán “salario en especie”, por lo cual no podrán considerarse para el cálculo de sus respectivos derechos laborales.

@@ -1,0 +1,1 @@
+Artículo 37.—Emisión de normas y disposiciones complementarias. Las dependencias administrativas competentes del MOPT y del Consejo podrán emitir, para el debido cumplimiento del presente Reglamento, las normas y disposiciones internas que, de manera complementaria, faciliten el mejor control del sistema que por este acto se autoriza.

@@ -1,0 +1,1 @@
+Artículo 41.—Eficacia Jurídica. El presente Reglamento para su eficacia jurídica requirió del refrendo previo por parte de la Contraloría General de la República mediante Oficio No DAJ-0482 del 9 de marzo de 1999.

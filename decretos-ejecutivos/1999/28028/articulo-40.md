@@ -1,0 +1,2 @@
+Artículo 40.—Derogatoria. Este Reglamento deroga el Decreto Ejecutivo No 28337-MOPT* del 29 de agosto de 1997, publicado en “La Gaceta” No 191 del 6 de octubre de 1997 y cualquier norma de igual o inferior rango o jerarquía en lo que se le oponga.
+*NOTA DE SINALEVI: Del análisis realizado y por los datos indicados en cuanto a fecha, publicación y por la materia de que trata, el Decreto Derogado es el N° 26337.
