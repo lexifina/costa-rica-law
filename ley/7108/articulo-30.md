@@ -1,0 +1,1 @@
+ARTICULO 30.- El Instituto Costarricense de Puertos del Pacífico (INCOOP) aportará la suma de cincuenta millones de colones (50.000.000), de sus propios recursos, para la restauración y la remodelación del muelle principal de la ciudad de Puntarenas, con fines turísticos y para el trasiego de carga.

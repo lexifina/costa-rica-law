@@ -1,0 +1,2 @@
+ARTICULO 19.- Mediante decreto ejecutivo, se incorporarán al Presupuesto Nacional los recursos provenientes del Convenio de Donación al Exterior de Productos Agrícolas del Gobierno de los Estados Unidos de América, sección 416, firmado en diciembre de 1987, una vez depositados en la caja única del Gobierno, y conforme sean firmados los convenios de cooperación interinstitucional.
+A solicitud del Ministerio de Planificación Nacional, la Tesorería Nacional girará los montos que correspondan.
