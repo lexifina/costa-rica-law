@@ -1,1 +1,0 @@
-Artículo 11.-EI estudiante que goce del beneficio de beca deberá entregar a la Tesorería Municipal trimestralmente, tratándose de estudiantes de secundaria, o en forma semestral siendo estudiantes universitarios, constancia de que son alumnos de la respectiva Institución donde estudia.
