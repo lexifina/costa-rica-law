@@ -1,0 +1,19 @@
+6. MEDIDORES EN EDIFICIOS DE OCUPACIÓN MÚLTIPLE.
+6.1. Acometida única.
+En edificios de ocupación múltiple que tengan dos o más abonados o usuarios independientes, los medidores deben estar agrupados y servidos por una sola acometida. Cuando dos, tres, cuatro, cinco
+o seis medios de desconexión en locales o viviendas individuales, se agrupen en un solo lugar y alimenten cargas separadas, éstos podrán alimentarse desde un único juego de conductores de acometida y a través de conductores de entrada independientes (Ver figuras Nos. 18 y 20); o bien, alimentarse desde un único juego de conductores de acometida y a través de solo un juego de conductores de entrada(Ver figura Nº 19)
+6.2. Ubicación del equipo de medición.
+Los grupos de medidores deben colocarse en un lugar de fácil acceso para su lectura, reemplazo e inspección. La cantidad de medidores debe estar de acuerdo con el número de servicios eléctricos a medir, asimismo, el espacio donde se ubiquen, debe tener suficiente iluminación y área para que trabaje el personal de la empresa eléctrica. (Ver figuras Nos. 21 y 22)
+Los grupos de medidores deben estar ubicados en el primer piso o en el sótano cuando se coloquen en edificios de ocupación múltiple. (Ver figuras Nos. 23, 24 y 25) No obstante, a criterio de la empresa, se podrá efectuar también, una distribución de grupos de medidores por piso.
+Los grupos que se coloquen en áreas externas a los edificios deben estar protegidos contra la intemperie.
+6.3. Separación vertical desde el suelo.
+Cuando se instale más de un grupo de medidores sobre la pared, la altura mínima sobre el suelo de los medidores colocados en la parte inferior debe ser de 0,80 m. y la altura máxima de los medidores colocados en la parte superior debe ser de 2,00 m. (Ver figura Nº 26)
+6.4. Marcación.
+Cada servicio eléctrico deberá ser identificado con números o letras que permitan asociarlo con su medidor e interruptor principal correspondiente. De la misma manera, los conductores activos, el neutro y la tierra para la alimentación y para cada servicio deben ser identificados; para ello, se procurará que el neutro sea de color blanco o gris y la tierra de color verde.
+6.5. Interruptor principal.
+Cuando se instalen más de seis medidores en un inmueble, debe instalarse en la acometida un interruptor principal que sirva como medio de desconexión bajo carga, de los servicios alimentados (Ver figuras Nos. 26 y 27). La palanca de desconexión de este dispositivo deberá estar a una altura de 1,8 metros sobre el nivel del suelo.
+6.6. Otras Consideraciones.
+Cualquier modificación o traslado de grupos o paneles para medidores en uso, deberá acogerse a lo indicado en esta norma u otras que sobre el particular, la Autoridad Reguladora, llegaré a dictar.
+Cuando se requiera la construcción de una bóveda para transformadores con el fin de alimentar el inmueble, ésta deberá cumplir con lo que se establece en los apartados 10, 11, 12 y 13 de esta norma. (Ver figuras Nos. 23, 24 y 25)
+Las bases para medidores deben ser conectadas mediante tubo metálico EMT al grupo o panel para medidores, debiendo ser el tubo adecuado para la base y de materiales resistentes a la corrosión, según el medio ambiente en el cual se va a instalar. (Ver figuras Nos. 28 y 29). El trayecto de la alimentación eléctrica al grupo o panel para medidores no podrá tener cajas de registro a lo largo de él, caso necesario, deberán ser autorizadas y contar con el sello respectivo de la empresa eléctrica.
+Se permitirá el uso de otras opciones de agrupamiento de medidores como paneles modulares para uso interior y exterior, subestaciones modulares con paneles de medidores integrados y gabinetes de medidores para distribución subterránea, los cuales deben estar de acuerdo con lo establecido en esta norma y contar con el visto bueno de la empresa.

@@ -1,0 +1,15 @@
+4. ACOMETIDA SUBTERRÁNEA EN BAJA TENSIÓN.
+4.1. Calibre de los conductores.
+El calibre de los conductores de entrada de la acometida, no debe ser inferior al Nº 6, AWG para cobre o al Nº 4, AWG para aluminio, o sus equivalentes en mm2. Cuando se conecten instalaciones que alimenten cargas limitadas a un único circuito de iluminación o tomas de uso general, se podrá usar calibres menores, pero nunca inferiores al Nº 12 de cobre sólido o equivalente.
+4.2. Requerimientos de instalación.
+Los conductores de entrada de acometidas subterráneas que se instalen directamente soterrados, en tubos o en otro tipo de canalización, deben cumplir con los requisitos siguientes:
+• En tubería metálica rígida, instalarse a una profundidad mínima de 15 cm. del nivel del suelo.
+• En tubería rígida no metálica, instalarse como mínimo a 45 cm. de profundidad del nivel del piso terminado (Ver figura Nº 7A), instalando a lo largo del trayecto de la tubería, un medio de señalización de la existencia de peligro por conductores eléctricos energizados.
+• En las áreas donde haya circulación de vehículos intensa tales como: calles, autopistas, caminos, alamedas, entrada de autos y parqueos, la profundidad mínima debe ser de 60 cm. (Ver figura Nº 7B)
+• Los conductores directamente soterrados deben tener las características técnicas requeridas para este tipo de instalación y deben colocarse a una profundidad mínima de 60 cm. (Ver figura Nº 7D)
+• En las pistas de aeropuertos, incluyendo las áreas definidas como adyacentes, en las cuales el paso esté prohibido, se permitirá enterrar los conductores a una profundidad no menor de 45 cm. y sin el uso de canalizaciones, revestimiento de concreto u otros requisitos similares, (Ver figura Nº 7E)
+• Donde las acometidas subterráneas bajen desde un poste se proveerá protección mecánica hasta un punto no menor que 3,0 metros del nivel del suelo. La conduleta de entrada no estará a una distancia menor de 0,5 metros de las líneas de la empresa eléctrica, en cuyo caso el sobrante de los cables de la acometida será de una longitud tal, que permita la conexión con las líneas secundarias sin empalmes de por medio. (Ver figuras Nos. 10 y 11)
+• En ambientes altamente corrosivos, la tubería expuesta debe ser resistente a esos tipos de ambientes.
+• De ser necesario construir cajas de registro, la empresa distribuidora determinará sus características y los puntos de ubicación de manera que cumplan con los requisitos de profundidad de ubicación de los conductores establecidos en esta norma.
+Se permitirá reducir en 15 cm. los valores mínimos de profundidad para instalaciones donde se coloque en la zanja un recubrimiento de concreto de un espesor mínimo de 5 cm, por encima de la instalación subterránea. (Ver figura Nº 7C)
+Estos requisitos no se aplicarán a tubos u otras canalizaciones localizadas debajo de edificios o losas de concreto externas de no menos de 10 cm de espesor y que cubran no menos de 15 cm más allá de donde se halle la instalación subterránea.
