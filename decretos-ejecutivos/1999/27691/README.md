@@ -13,3 +13,4 @@ Declara Interés Nacional Activ. Asoc. Medicina Interna de C.R. y OtrasTambién 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-12 | la propia norma |
+| 2 | 1999-03-12 | SINALEVI (sin norma nombrada) |
