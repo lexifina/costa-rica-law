@@ -14,3 +14,4 @@ Reforma Reglamento de Capacitación de Funcionarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-29 | la propia norma |
+| 2 | 2000-06-29 | Ley 8 |
