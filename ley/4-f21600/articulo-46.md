@@ -1,1 +1,0 @@
-Artículo 46.-Llevarán un Libro Cuentas Corrientes, en el cual abrir n cuenta a cada uno de los miembros de la Subinspección, cargando al Debe las armas, equipos e implementos que reciben del Estado para el ejercicio de su cargo, y abonando al Haber la devolución respectiva.

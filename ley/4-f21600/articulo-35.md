@@ -1,1 +1,0 @@
-Artículo 35.-El guarda procesado por hechos verificados en cumplimiento de su deber, tiene derecho a que el Estado le suministre defensor, y al pago de su sueldos, durante todo el tiempo de su suspensión o prisión, si fuere absuelto.
