@@ -1,0 +1,1 @@
+Art. 4° -Tampoco procederá la separación del abogado ó procurador, sino que habrá causa para excusa ó recusación, cuando el Juez éntre á conocer del negocio después de que su pariente haya estado interviniendo en él como procurador ó como abogado.

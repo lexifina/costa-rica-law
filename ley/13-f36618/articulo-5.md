@@ -1,0 +1,1 @@
+Art. 5-Se hace extensiva á los Jueces de 1a instancia y Alcaldes Constitucionales, la declaratoria de la Honorable Comisión Permanente de 25 de octubre de 1852, cuando los primeros sean acreedores ó deudores de alguna de las partes en más de cien pesos, y los segundos en más de cincuenta.
