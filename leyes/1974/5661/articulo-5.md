@@ -1,6 +1,6 @@
-ARTICULO 5º.- Refórmanse los artículo 3º párrafo final, y 15 de la Ley General de Pensiones, Nº 14 de 2 de diciembre de 1935, para que se lean así:
+ARTICULO 5º.- Refórmanse los artículos 3º párrafo final, y 15 de la Ley General de Pensiones, Nº 14 de 2 de diciembre de 1935, para que se lean así:
 "Artículo 3º.- Cuando ocurriere el fallecimiento de quien prestó los servicios a la nación, sólo se concederá pensión de gracia a las siguientes personas, en su orden:
-a) A la viuda y a los hijos menores o incapacitados o a los que,aunque mayores de dieciocho y menores de veinticinco, sean estudiantes enuna institución de Educación Superior. A falta de viuda, se le concederá a la compañera que hubiese convividoen el beneficiario por un mínimo de cinco años, sino hubiese hijos comunes, o un mínimo de dos años, si hubiese hijos comunes.
+a) A la viuda y a los hijos menores o incapacitados o a los que, aunque mayores de dieciocho y menores de veinticinco, sean estudiantes en una institución de Educación Superior. A falta de viuda, se le concederá a la compañera que hubiese convivido en el beneficiario por un mínimo de cinco años, sino hubiese hijos comunes, o un mínimo de dos años, si hubiese hijos comunes.
 b) A los padres.
 "Artículo 15.-Nadie podrá recibir más de una pensión del Estado, excepto en los siguientes casos:
 a) Que se trate de pensiones provenientes de regímenes de cotización obligatoria, y por servicios diferentes, siempre que entre las dos no excedan de tres mil colones;
@@ -18,3 +18,4 @@ Las personas que llegaren a recibir por cualquier razón, más de una pensión, 
 Aquellos que, a partir de la vigencia de esta ley, llegaren a adquirir derecho para recibir más de una pensión, y no estuvieren en en los casos de excepción indicados, tendrán derecho a percibir la mayor de ellas.
 Los giros correspondientes al pago de pensiones solamente podrán entregarse a los beneficiarios, personalmente. En caso de impedimento físico, que los inhiba para retirar sus giros, o que residan en el exterior, lo harán constar así a satisfacción de la Pagaduría Nacional, en cuyas oficinas se tomarán las providencias indispensables para que los giros lleguen a manos del beneficiario.
 No podrá acordarse nombramiento de empleado o funcionario del Estado, sus instituciones y organismos, sin que, previamente, el aspirante demuestre que no está en el disfrute de pensión alguna.
+(Anulado parcialmente este artículo, mediante resolución de la Sala Constitucional N° 15058-10 del 8 de setiembre de 2010, misma que anuló por inconstitucionales “los artículos 14 y 15 de la Ley General de Pensiones, Nº 14 de 2 de diciembre de 1935 y sus reformas…” -el destacado es nuestro-).
