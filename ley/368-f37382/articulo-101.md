@@ -1,1 +1,6 @@
-Artículo 101.-Trascurrido el término de. la condena, sin que la libertad condicional haya sido revocada, la pena quedará extinguida.
+Artículo 101.-Habrá una Sección de Prueba, a cargo del Departamento Nacional de Prisiones, integrada por oficiales preparados técnicamente para sus labores, que tendrá a su cargo:
+1°-El mantenimiento de las relaciones entre el reo y su familia durante el período de reclusión;
+2°-La vigilancia y auxilio del reo durante el periodo de libertad condicional; y
+3°-EI control social del liberado, la constatación de su posible readaptación al medio y finalización de la vigilancia y auxilio.
+Trascurrido el tiempo de la condena sin que la libertad condicional haya sido revocada, la pena quedará extinguida, pero siempre deberá mediar, tanto en el caso de revocatoria como en el de extinción, informe detallado de la Sección de Prueba acerca de la actitud social del liberado y del proceso de su readaptación o falta de adaptación al medio.
+(La reforma practicada a este artículo por el artículo 2° de la ley N° 825 del 16 de diciembre de 1946, posteriormente fue derogada por el artículo 6° de la ley N° 619 del 20 de julio de 1949. Se advierte que dicha derogación no se ha aplicado a este numeral, debido a que el ente no indica expresamente que como consecuencia, debe volver éste artículo al estado anterior a dicha reforma)
