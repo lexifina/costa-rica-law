@@ -1,0 +1,1 @@
+Artículo 2º.- La ley Nº 3971 de 11 de octubre de 1967, será aplicable en el área de concesión a que se refiere la Cláusula II y el Anexo A del Contrato transcrito en el artículo anterior, sin ninguna limitación en cuanto la cabida que puede ser titulada por los poseedores para su correspondiente inscripción en el Registro Público.
