@@ -24,9 +24,9 @@ esto último, para que designe al respectivo sustituto, en cuyo caso el
 nombramiento será hasta por el resto del período legal, y se hará dentro
 del término de treinta días naturales contados a partir del recibo de la
 comunicación.
-La separación de los miembros de la Junta Directiva por cualquiera de
-las causales indicadas, no los libera de las responsabilidades en que hayan
-podido incurrir.
+La separación de los miembros de la Junta Directiva por cualquiera
+de las causales indicadas, no los libera de las responsabilidades en que
+hayan podido incurrir.
 En el caso de fallecimiento de un miembro de la Junta Directiva, se
 procederá a nombrar al sustituto por el resto del período legal, de
 acuerdo con los lineamientos señalados en los artículos 13 y 14.

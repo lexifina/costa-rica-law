@@ -1,17 +1,19 @@
-Artículo 5º.- El Banco Hipotecario de la Vivienda tendrá los siguientes
-objetivos principales:
+Artículo 5º.- El Banco Hipotecario de la Vivienda tendrá los
+siguientes objetivos principales:
 a) Obtener recursos, coordinar la adecuada distribución de los que
 recauden las entidades autorizadas, y destinarlos exclusivamente a los
 fines que señala esta ley.
-b) Promover, financiar, orientar y supervisar las entidades autorizadas.
+b) Promover y financiar a las entidades autorizadas.
+(Así reformado por el artículo 165 de la Ley Orgánica del Banco
+Central de Costa Rica No.7558 del 3 de noviembre de 1995)
 c) Garantizar las operaciones de las entidades autorizadas, en los
 términos de la presente ley y de sus reglamentos.
-ch) Promover, desarrollar y estabilizar el mercado secundario de títulos
-valores en el campo de la vivienda.
-d) Velar permanentemente por el correcto funcionamiento de las entidades
-autorizadas y hacer los estudios necesarios para la evaluación y
-perfeccionamiento de sus operaciones.
-Dentro de marco legal, el Banco Hipotecario de la Vivienda tendrá la
-más amplia libertad de acción para cumplir eficazmente con los objetivos
-precedentes, y plena capacidad jurídica para adquirir derechos y contraer
-obligaciones.
+ch) Promover, desarrollar y estabilizar el mercado secundario de
+títulos valores en el campo de la vivienda.
+d) DEROGADO.
+(Derogado por el artículo 164 de la Ley Orgánica del Banco Central
+de Costa Rica, Nº 7558 de 3 de noviembre de 1995)
+Dentro del marco legal, el Banco Hipotecario de la Vivienda tendrá
+la más amplia libertad de acción para cumplir eficazmente con los
+objetivos precedentes, y plena capacidad jurídica para adquirir derechos
+y contraer obligaciones.
