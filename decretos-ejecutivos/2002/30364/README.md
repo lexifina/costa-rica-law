@@ -14,3 +14,4 @@ Fija Nuevas Tarifas de Multas para Delitos y Contravenciones contra la Flora y F
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-15 | la propia norma |
+| 2 | 2005-03-07 | Decreto Ejecutivo 32732 (2005-03-07) |
