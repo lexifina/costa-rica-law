@@ -1,0 +1,1 @@
+Artículo 5°.- El Ministerio de Educación Pública podrá realizar traslados, ascensos y descensos l grado inmediato, del personal propiamente docente en el nivel de enseñanza primaria, siempre y cuando se efectúen dentro de la misma Zona Escolar y previo consentimiento del interesado.

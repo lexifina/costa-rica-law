@@ -1,0 +1,1 @@
+Artículo 3°.- Al mismo personal técnico-docente, le son aplicables las normas del Capítulo VI del Título Primero del Estatuto (Carrera Administrativa), sobre promociones y traslados, así como la disposición especial que contiene el párrafo final del artículo 101 ibídem.
