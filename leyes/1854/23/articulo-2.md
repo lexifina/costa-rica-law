@@ -1,0 +1,1 @@
+Art 2°.- El interesado en el terreno que se prepara para sembrar, debe dar aviso anticipado, ante testigos, a los vecinos o colindantes del día y hora en que va a dar fuego para que presencien esta operación y se satisfagan de que la ronda es conforme con lo prevenido en el artículo anterior.

@@ -1,0 +1,1 @@
+Art 4°.- En los terrenos donde los encierros inmediatos son de pastos, la ronda que debe abrirse y barrerse para dar fuego, ha de ser de veinticinco varas de ancho desde la cerca medianera, observándose en los demás lo prevenido en los artículos anteriores.

@@ -1,0 +1,1 @@
+Art 5°.- Los contraventores quedan sujetos a las penas que establece el artículo citado 664 de la 2° parte del Código y el terreno en que se da fuego sin las formalidades que se establecen por el presente decreto, hipotecado especialmente a la indemnización de perjuicios, sea el dueño o algún arrendatario el que lo haya quemado.

@@ -1,0 +1,1 @@
+Art 3°.- El que practique la quema es obligado a no hacerla en día de viento, y además a preparar agua, si hubiese comodidad, para apagar el incendio en caso de que por una desgracia se comunicase a las sementeras inmediatas, teniendo también obligación de no retirarse del terreno hasta que en todo el que de bien apagado el fuego.
