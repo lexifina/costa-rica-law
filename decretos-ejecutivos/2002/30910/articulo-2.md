@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Obras Públicas y Transportes podrá otorgar la administración, operación y mantenimiento de las instalaciones portuarias ubicadas en Paquera a quien estuviere prestando el servicio de cabotaje entre Puntarenas y Paquera.
