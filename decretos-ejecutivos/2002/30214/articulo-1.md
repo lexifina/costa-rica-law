@@ -29,7 +29,7 @@ Centro Univ. Para el Desarrollo del Trópico Seco 154,8
 Colegio de San Luis Gonzaga 97,4
 Colegio Universitario de Alajuela 917,7
 Colegio Universitario de Cartago 660,4
-Colegio Universitario de Puntarenas 392,8
+Colegio Universitario de Puntarenas ¢446.2
 Comisión de Energía Atómica 33,0
 Comisión Nacional de Asuntos Indígenas 153,7
 Comisión Nacional de Gestión para la Biodiversidad 96,5
@@ -45,7 +45,6 @@ Consejo Nacional de Producción 8.607,6
 Consejo Nacional de Rehabilitación 666,0
 Consejo Nacional Persona Adulto Mayor 1.213,0
 Consejo Técnico de Asistencia Médico Social CTAMS 1.116.3
-(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
 Consejo Transporte Público 628,5
 Direc. Serv. de Protec. Fitosanitaria 868,4
 Direc. Salud y Produc. Pecuaria 637,0
@@ -110,8 +109,9 @@ Radiográfica Costarricense .S.A. 4.152,9
 Refinadora Costarricense de Petróleo 25.483,3
 Secret. Eject. De Planificación Sector Agropecuario 22,3
 Servicio Nacional de Aguas Subterráneas Riego y A. 1.501,4
-Sistema Nacional de Radio y Televisión SINART 675.1
+Sistema Nacional de Radio y Televisión SINART 782.10
 (Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
+(Así modificado por el artículo 1 del Decreto ejecutivo N° 30920 de 28 de noviembre de 2002)
 Teatro Nacional 322.3
 (Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
 Teatro Popular Melico Salazar 570,6
@@ -122,3 +122,4 @@ Unidad Ejecutora PPZN MIDEPLAN 10,3
 (Mediante Decreto Ejecutivo N° 30822 de 24 de octubre del 2002 se modifica para RECOPE los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30832 de 7 de octubre del 2002 se modifica para Consejo Nacional para Investigaciones Científicas y Tecnológicas los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30889 de 12 de noviembre del 2002 se modifica para la Junta Administrativa del Registro Nacional los límites de gasto presupuestario y de gasto efectivo para el año 2003)
+(Mediante Decreto Ejecutivo N° 30907 de 9 de diciembre 2002 se modifica para el Colegio Universitario de Puntarenas los límites de gasto presupuestario y de gasto efectivo para el año 2003)
