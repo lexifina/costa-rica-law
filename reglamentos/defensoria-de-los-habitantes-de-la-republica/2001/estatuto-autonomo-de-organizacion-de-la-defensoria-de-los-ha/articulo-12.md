@@ -1,0 +1,2 @@
+Artículo 12.—Oficinas Regionales. Son los órganos encargados de recibir las quejas y atender las consultas que se les formulen en las regiones a su cargo. Asimismo, deberán colaborar con las Direcciones de Defensa en las investigaciones que éstas tramitan. En coordinación con la Dirección de Promoción y Divulgación estarán encargadas de realizar actividades de esta naturaleza en su respectiva región.
+Corresponde al Defensor (a) de tos Habitantes determinar las sedes de operación de las Oficinas Regionales.

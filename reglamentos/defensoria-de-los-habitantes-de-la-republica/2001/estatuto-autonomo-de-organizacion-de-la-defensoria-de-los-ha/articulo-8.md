@@ -1,0 +1,1 @@
+Artículo 8°—Del Director del Despacho. Corresponde al Director velar por el cumplimiento de las funciones establecidas en el artículo anterior, así como coordinar las relaciones con el personal asignado al despacho y con las diferentes Direcciones de la Defensoría.

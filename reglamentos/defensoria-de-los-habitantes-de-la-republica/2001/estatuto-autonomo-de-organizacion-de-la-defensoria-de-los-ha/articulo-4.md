@@ -1,0 +1,3 @@
+Artículo 4°—Delegación de funciones. Para el mejor funcionamiento de la institución, el Defensor(a) de los Habitantes, podrá delegar en el Defensor (a) Adjunto (a) y en los órganos y funcionarios (as) de la institución el cumplimiento de sus atribuciones y competencias.
+Las atribuciones que el presente Estatuto le asigna a los órganos de la institución constituirán, para todo efecto, una delegación de funciones del Defensor (a) de los Habitantes de la República.
+Los órganos y funcionarios (as) delegados (as) no podrán actuar fuera de las competencias que este Estatuto les asigna, salvo que expresamente lo determine el Defensor (a) de los Habitantes de la República.

@@ -1,0 +1,1 @@
+Artículo 3°—Autoridades responsables. Es responsabilidad del Defensor(a) de los Habitantes, del Defensor (a) Adjunto (a) de los Habitantes y de los Directores(as) de la Institución velar porque se cumplan las disposiciones del presente Estatuto.

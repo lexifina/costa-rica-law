@@ -1,0 +1,1 @@
+Artículo 2°—Observancia general. Este Estatuto es de observancia para todos (as) los funcionarios (as) de la Defensoría de los Habitantes de la República, quienes deberán ejercer sus funciones y atribuciones atendiendo a las disposiciones de éste.
