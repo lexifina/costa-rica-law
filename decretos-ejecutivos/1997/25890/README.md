@@ -14,3 +14,4 @@ Crea Comité Directivo Nacional para la Prevención y Eliminación Progresiva de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-03-31 | la propia norma |
+| 2 | 1998-12-09 | Decreto Ejecutivo 27517 (1998-12-09) |

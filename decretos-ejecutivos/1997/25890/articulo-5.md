@@ -1,10 +1,5 @@
-Artículo 5°—El Comité tendrá las siguientes funciones:
-a) Analizar las variables socioeconómicas, culturales, ideológicas que provocan el trabajo infantil en Costa Rica.
-b) Proponer, elaborar y supervisar el Plan Nacional de Acción para la eliminación progresiva del trabajo infantil y la protección del menor trabajador.
-c) Fortalecer la concertación y coordinación entre instituciones públicas y privadas, nacionales e internacionales relacionadas con el menor trabajador a fin de definir alternativas y estrategias que reduzcan o eliminen progresivamente las causas básicas que generan el trabajo infantil.
-d) Articular los proyectos concretos de lucha contra el trabajo infantil emprendidos en el marco del Memorándum de Entendimiento Costa Rica - OIT, con otros planes y proyectos que se estén desarrollando a nivel regional o nacional en el marco de la problemática del trabajo infantil.
-e) Planificar, presupuestar y coordinar el aporte de recursos humanos, materiales y financieros al Plan Nacional de Acción para la Eliminación Progresiva del Trabajo Infantil. Las instituciones del Estado involucradas en este Plan deben incluir las partidas necesarias para la ejecución de sus objetivos dentro de sus respectivos presupuestos.
-Los fondos que sean aportados por instituciones de carácter internacional u otras para los fines consiguientes, serán administrados a discreción del Comité, por éste mismo, por una Fundación sin fines de lucro elegida de común acuerdo o por una de las instituciones que conforman dicho Comité. La entidad responsable deberá contar con una infraestructura adecuada para realizar una eficiente distribución de estos fondos.
-f) Aprobar las propuestas de programas de acción en materia de trabajo infantil, presentadas por entidades públicas o privadas, nacionales o internacionales, de conformidad con las políticas nacionales de eliminación progresiva del trabajo infantil.
-g) Ofrecer asesoramiento a cualquier ente público o privado, nacional o internacional, persona física o jurídica, en materia de trabajo infantil.
-h) Las demás que determine el Comité.
+Artículo 5°—El Comité contará con un grupo técnico asesor de carácter permanente integrado por:
+a) Un representante del programa internacional para la erradicación del trabajo infantil de la Organización Internacional del Trabajo (IPEC)
+b) Un representante del Fondo de Naciones Unidas para la Infancia (UNICEF).
+c) Un representante de la Agencia Española de Cooperación Internacional.
+d) Un representante de la Defensoría de los Habitantes de la República de Costa Rica.
