@@ -398,6 +398,9 @@ CAPITULO 36:
 3601-3605 - Un cambio a la partida 3601 a 3605 desde cualquier otra
 partida
 3606 - Un cambio a la partida 3606 desde cualquier otra partida
+3916-3919 Un cambio a la partida 3916 a 3919 desde cualquier otra partida fuera
+del grupo.
+(Así aprobada por el artículo 1 del decreto ejecutivo N° 29052 de 23 de octubre del 2000)
 CAPITULO 37:
 3701-3703 - Un cambio a la partida 3701 a 3703 desde cualquier otra
 partida fuera del grupo
@@ -433,6 +436,10 @@ partida
 3915 - Un cambio a la partida 3915 desde cualquier otra partida
 3916-3921 - Un cambio a la partida 3916 a 3921 desde cualquier otra
 partida fuera del grupo
+3920-3921 Un cambio a la partida 3920 a 3921 desde cualquier otra partida. La
+elaboración de láminas, hojas, placas y tiras estratificadas o laminadas
+con materias plásticas de esta partida, confiere origen.
+(Así aprobada por el artículo 1 del decreto ejecutivo N° 29052 de 23 de octubre del 2000)
 3922-3926 - Un cambio a la partida 3922 a 3926 desde cualquier otra
 partida
 CAPITULO 40:
