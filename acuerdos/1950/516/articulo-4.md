@@ -1,0 +1,1 @@
+Artículo 4º-Los Presidentes de las Juntas de Protección Social de Cabeceras de provincia, cuando estén en la imposibilidad de concurrir personalmente a la elección de los Delegados de esas Juntas ante el Consejo, podrán hacerse representar individualmente por cualquiera de los miembros de la Junta que presidan.

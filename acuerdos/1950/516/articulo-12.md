@@ -1,0 +1,1 @@
+Artículo 12.-Perderá su cargo el miembro propietario que, sin previo permiso o licencia, dejare de concurrir a cuatro sesiones ordinarias consecutivas; en este, corno en cualquier otro caso de ausencia definitiva, el Organismo correspondiente procederá a nombrar un nuevo Propietario.

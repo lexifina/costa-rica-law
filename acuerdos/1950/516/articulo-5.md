@@ -1,0 +1,1 @@
+Artículo 5º-Los miembros propietarios y suplentes Delegados de las Juntas de Protección Social ante el Consejo, deberán ser escogidos necesariamente entre personas que integren las referidas Juntas, o entre aquellas que, teniendo conocimiento de técnica de administración de hospitales, estén vinculados por su trabajo a las Instituciones que las Juntas representan.

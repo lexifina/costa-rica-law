@@ -1,0 +1,1 @@
+Articulo 2º-Los miembros del Consejo -con excepción de su Presidente- durarán en sus funciones dos años, pudiendo ser reelectos, y desempeñarán sus funciones ad" honórem. Su nombramiento deberá hacerse en los primeros quince días del mes de mayo del año correspondiente, y dentro de los ocho días siguientes debe quedar instalado el Consejo.

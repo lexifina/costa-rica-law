@@ -1,0 +1,1 @@
+Artículo 10.-Las actas deberán ser trascritas íntegramente al Ministro de Salubridad. Las objeciones que éste estimare del caso deberá hacerlas dentro de las veinticuatro horas siguientes al recibo del acta.

@@ -1,0 +1,1 @@
+Artículo 6º-El Consejo sesionará ordinariamente dos veces al mes. Las sesiones se celebrarán en los días y hora que fije el Consejo el día de su instalación, o en acuerdo posterior; cualquier cambio en este sentido deberá ser comunicado a todos los miembros Propietarios y Suplentes.
