@@ -13,3 +13,4 @@ Reglamento General del Patronato y Junta Directiva de Protección Social de San 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1949-09-13 | la propia norma |
+| 2 | 1950-06-16 | Acuerdo 385 (1950-06-16) |
