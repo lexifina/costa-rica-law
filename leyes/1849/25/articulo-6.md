@@ -1,0 +1,1 @@
+Art. 6. El capitan, sobrecargo, piloto ó contramestre de algun buque que contravenga á lo dispuesto en los artículos anteriores, sufrirá la pena de detención del buque hasta haber satisfecho mil pesos de multa.
