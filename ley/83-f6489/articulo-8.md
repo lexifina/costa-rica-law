@@ -1,0 +1,2 @@
+Art 8°.- Las Juntas Electorales del Estado sufragarán por dos Consejeros propietarios que deben reponer a los Ciudadanos Manuel García Escalante y Felix Bonilla, y un suplente en lugar del Ciudadano Presbítero Joaquín Flores.- Comuníquese al Supremo Poder Ejecutivo para su cumplimiento, publicación y circulación.
+Por tanto Ejecutese: Alajuela setiembre dieziseis de mil ochocientos treinta y cuatro.
