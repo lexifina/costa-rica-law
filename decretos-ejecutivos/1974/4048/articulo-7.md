@@ -1,0 +1,1 @@
+Artículo 7°—Para los efectos indicados en el artículo anterior, los interesados deberán presentar para su previa aprobación el material de propaganda o los proyectos de dicho material a la oficina respectiva del Instituto.

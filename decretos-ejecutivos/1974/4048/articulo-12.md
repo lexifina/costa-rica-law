@@ -1,0 +1,1 @@
+Artículo 12.—Habrá un Consejo Asesor de Propaganda integrado representante del Instituto, un representante de la Cámara de Comercio, un presentante de la Asociación Consejo Nacional de la Publicidad y uno de la Asesoría Legal del Ministerio de Salud.
