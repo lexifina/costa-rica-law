@@ -1,0 +1,1 @@
+Artículo 2°—Desaféctese como Refugio de Vida Silvestre Categoría Privada Finantica, la finca inscrita en el Registro de la Propiedad, Sistema de folio Real Matrícula No 217331-000, que comprende un área de aproximadamente 15 hectáreas, propiedad de Sociedad Eco Residencial Villa Real S.A.
