@@ -1,0 +1,1 @@
+Artículo 3º—Para dar cumplimiento a su cometido, el Comité tendrá facultades para gestionar los trámites necesarios, a efecto de que se elaboren los estudios requeridos para el Proyecto de Construcción del Centro de Convenciones y Ferial.
