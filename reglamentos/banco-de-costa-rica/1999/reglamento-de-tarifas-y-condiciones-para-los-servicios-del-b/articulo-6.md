@@ -1,0 +1,1 @@
+VI.- ADMINISTRACION DE FONDOS 9.- SIMPE Sistema Interbancario de Negociación y Pagos Electrónicos, desarrollado por el B.C.C.R.. Afecta en tiempo real la Cuenta de Reserva de dicho organismo, TCR Transferencias entre Cuentas de Reserva. | TRANSFERENCIAS ENTRANTES Y SALIENTES Comisión del 0.175% sobre el monto de la transferencia. MÍNIMO $ 20.00 MÁXIMO $ 360.00
