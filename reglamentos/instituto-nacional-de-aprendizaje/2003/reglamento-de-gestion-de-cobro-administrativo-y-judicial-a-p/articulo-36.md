@@ -1,0 +1,1 @@
+Artículo 36.—De la continuación de los procesos en caso de suspensión. Dado el caso de que resulte suspendido en la asignación de nuevos procesos, el abogado deberá continuar con la misma diligencia los procesos asignados con anterioridad a la suspensión y que se encuentren presentados ante el correspondiente órgano jurisdiccional antes de la firmeza de la suspensión.

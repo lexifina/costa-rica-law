@@ -1,0 +1,1 @@
+Artículo 12.—De la emisión de la certificación de lo adeudado. Una vez resueltos los recursos correspondientes y firme la resolución administrativa, o si la empresa no se opusiere en el término establecido, el proceso de inspección y cobros procederá a emitir certificación de lo adeudado a efecto de proceder al cobro judicial.

@@ -1,0 +1,1 @@
+Artículo 17.—De los poderes. Los representantes legales del INA podrán otorgar poder especial a los abogados para la mejor dirección de los procesos. Para dichos efectos deberán suscribir el documento respectivo.

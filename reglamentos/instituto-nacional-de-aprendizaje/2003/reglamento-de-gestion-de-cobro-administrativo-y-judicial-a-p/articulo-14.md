@@ -1,0 +1,1 @@
+Artículo 14.—De la contratación de los abogados. El INA contratará a los abogados externos encargados de incoar y dirigir los procesos para el cobro judicial, de conformidad con los mecanismos y procedimientos establecidos para la contratación de servicios profesionales previstos en la Ley de Contratación Administrativa.

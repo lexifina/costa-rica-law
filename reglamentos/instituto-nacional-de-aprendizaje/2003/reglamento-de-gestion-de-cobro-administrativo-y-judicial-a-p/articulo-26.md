@@ -1,0 +1,1 @@
+Artículo 26.—De la suspensión del remate. El abogado sólo podrá proceder a solicitar la suspensión del remate cuando exista autorización expresa y por escrito del responsable del proceso de inspección y cobros.

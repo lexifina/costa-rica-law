@@ -1,0 +1,1 @@
+Artículo 43.—De la actuación del abogado en los procesos sucesorios y de quiebra o insolvencia. El proceso de inspección y cobros deberá remitir las instrucciones respecto de la actuación general del abogado en el proceso, junto con la garantía y otra documentación anexa, en procura de la debida tutela de los intereses institucionales.

@@ -1,0 +1,3 @@
+Artículo 39.—De la responsabilidad de los abogados. Los abogados serán responsables de cualquier daño o perjuicio que causen a los intereses institucionales o de terceros por una actuación u omisión realizada con dolo, culpa, negligencia, imprudencia o impericia con motivo de la dirección de un proceso de cobro asignado por el INA.
+Para determinar el daño se aplicará el procedimiento ordinario establecido en la Ley General de la Administración Pública.
+El proceso de inspección y cobros deberá comunicar al Colegio de Abogados de toda sanción aplicada igual o superior a la suspensión, con el fin de que se aplique la respectiva sanción disciplinaria.

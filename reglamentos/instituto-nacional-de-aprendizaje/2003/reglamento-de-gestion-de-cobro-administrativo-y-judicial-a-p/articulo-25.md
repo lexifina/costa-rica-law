@@ -1,0 +1,1 @@
+Artículo 25.—De la información del resultado del remate. El abogado deberá informar el resultado del remate al responsable del proceso de inspección y cobros, dentro de los cinco días hábiles siguientes a la fecha prevista para su realización. En caso de que no se efectuare el remate deberá solicitar por escrito a dicho Proceso que se le indique la gestión que debe realizar.

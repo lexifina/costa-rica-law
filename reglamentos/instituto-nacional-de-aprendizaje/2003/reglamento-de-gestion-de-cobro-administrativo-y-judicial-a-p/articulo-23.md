@@ -1,0 +1,2 @@
+Artículo 23.—De la fijación de la fecha de remate. El abogado deberá remitir una nota al Proceso de Inspección y Cobros informando de la resolución mediante la cual se fijó la fecha para remate del bien, en un plazo no mayor de una semana posterior a su notificación.
+El abogado será el responsable de gestionar la publicación del edicto en el Diario Oficial, así como cotejar la información del edicto a efecto de verificar su contenido para gestionar cualquier rectificación que sea necesaria, con el propósito de evitar nulidades y dilaciones procesales.

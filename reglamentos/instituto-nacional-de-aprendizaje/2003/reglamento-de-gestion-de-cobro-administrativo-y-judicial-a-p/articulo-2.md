@@ -1,0 +1,16 @@
+Artículo 2º—De las definiciones. Para los efectos del presente Reglamento se entenderá por:
+- INA: Instituto Nacional de Aprendizaje.
+- CCSS: Caja Costarricense del Seguro Social.
+- SICERE: Sistema Central de Recaudación.
+- Junta Directiva: Órgano colegiado que, como jerarca superior, ejerce la máxima autoridad dentro del INA.
+- Gerencia: Órgano que comprende la Gerencia, Subgerencia Administrativa y Subgerencia Técnica. Para los efectos de aplicación del presente Reglamento, la junta directiva autorizará mediante acuerdo tomado al efecto a cual de las tres le corresponderá la responsabilidad asignada en el presente Reglamento.
+- Unidad de Recursos Financieros: Unidad administrativa de jerarquía superior responsable del funcionamiento eficiente y oportuno del proceso de inspección y cobros.
+- Proceso de inspección y cobros: Proceso responsable de la administración de todas las funciones y tareas relacionadas con la fiscalización y recuperación de los tributos morosos que debe recibir el INA de conformidad con lo que al respecto establece su Ley Orgánica.
+- Cobro administrativo: Acción destinada a recuperar los tributos determinados como pendientes de pago que realice el INA por medio del proceso de inspección y cobros.
+- Cobro judicial: La acción de cobro realizada por profesionales en derecho contratados por el INA, para la gestión y recuperación de las deudas pendientes de pago por parte de los patronos morosos y certificadas o documentadas en títulos ejecutivos por parte del proceso de inspección y cobros.
+- Contribuyentes: Personas físicas y/o jurídicas, privadas o públicas que estén sujetos al pago del tributo establecido en el artículo 15 de la Ley Orgánica del INA.
+- Domicilio fiscal, legal o social: Domicilio declarado ante la CCSS por el patrono o representante legal, lugar en que desarrolle su actividad el patrono o el que se determine mediante el respectivo estudio.
+- Tributo moroso: Toda aquella obligación tributaria que habiéndose cumplido su hecho generador, no sea pagada por su obligado o por su responsable en los términos establecidos en la Ley Orgánica del Instituto Nacional de Aprendizaje Nº 6868/83/, dentro del mes siguiente al reporte de la planilla de la CCSS.
+- Patrono moroso: El patrono obligado al pago del tributo establecido en la Ley Nº 6868/83 que se encuentre en situación de mora.
+- Planillas ordinarias: Información sobre salarios pagados declarada ante la Caja Costarricense de Seguro Social por los mismos patronos obligados.
+- Planillas adicionales: Información sobre salarios pagados por los patronos, levantada de oficio por la Caja Costarricense de Seguro Social o por el INA, luego de una investigación desplegada por sus inspectores.

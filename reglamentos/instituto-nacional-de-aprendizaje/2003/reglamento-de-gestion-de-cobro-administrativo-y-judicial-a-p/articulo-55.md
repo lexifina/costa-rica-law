@@ -1,0 +1,2 @@
+Artículo 55.—De los gastos incurridos. En el caso de aquellos créditos tributarios que se determinen como incobrables y cuando no exista posibilidad de que el patrono moroso cancele cualquiera de los gastos originados por concepto del cobro administrativo o judicial, correrá por cuenta del INA cubrir lo correspondiente a su costo y el de los honorarios respectivos.
+Igual situación sucederá cuando se haya incurrido en dichos gastos y el respectivo patrono demuestre encontrarse al día en el pago del tributo ante el proceso de inspección y cobros.

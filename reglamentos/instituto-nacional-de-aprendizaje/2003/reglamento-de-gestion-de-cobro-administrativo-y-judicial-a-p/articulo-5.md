@@ -1,0 +1,2 @@
+Artículo 5º—De la contratación de localizadores y notificadores. El Proceso de Inspección y Cobros, previo visto bueno de la Jefatura de la Unidad de Recursos Financieros, podrá gestionar la contratación de localizadores y notificadores con el fin de hacer más eficaz y eficiente el proceso de localización de los patronos morosos, todo de acuerdo con los procedimientos y la normativa vigentes y aplicables.
+Todas las Unidades Regionales del INA están obligadas a cooperar con el Proceso de Inspección y Cobros en la localización y notificación de los patronos.

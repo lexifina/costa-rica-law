@@ -1,0 +1,9 @@
+Artículo 46.—De los requisitos para el arreglo de pago. Procederá el arreglo de pago si se cumplen los siguientes requisitos:
+a)
+- Cancelar al momento de formalizar el arreglo al menos un 25% del total de la deuda y obligarse al pago del saldo en un plazo que no exceda los 12 meses. Este tipo de arreglos podrán ser autorizados por el proceso de inspección y cobros. Su autorización deberá estar debidamente razonada y motivada.
+- La Gerencia debidamente autorizada por la junta directiva, a solicitud del patrono moroso, podrá autorizar el pago de un porcentaje no menor al 20% del total de la deuda y la cancelación del saldo a un plazo no mayor de 24 meses. Su autorización deberá estar debidamente razonada y motivada.
+Asimismo serán de conocimiento y aprobación de la gerencia autorizada por la junta directiva, aquellos casos en los cuales se propongan condiciones de arreglo distintas a las mencionadas anteriormente siempre y cuando su monto no sea mayor a trescientos mil colones.
+Las solicitudes de arreglo de pago que propongan una cancelación menor al 20% y un plazo que exceda los 24 meses deberán ser autorizadas por la junta directiva mediante un acuerdo debidamente fundamentado y motivado, siempre y cuando el monto total del arreglo sea mayor a trescientos mil colones, caso contrario será resuelto por la Gerencia.
+b) Presentar una o más garantías reales o personales. Las garantías personales se documentarán mediante constancias que demuestren un ingreso neto que cubra al menos el 40% del total de la deuda. En el caso de que se presenten sólo garantías reales o una combinación de ambos tipos, se deberá cubrir al menos el 80% del total de la deuda.
+c) Cancelar junto a la prima respectiva por concepto de arreglo de pago, los honorarios y las costas personales y procesales de la ejecución si las hubiere.
+d) Haber entregado los documentos solicitados para el arreglo de pago.

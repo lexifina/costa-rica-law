@@ -1,0 +1,10 @@
+Artículo 15.—De las obligaciones generales de los abogados. Serán obligaciones generales de los abogados externos encargados de la dirección de los procesos de cobro judicial de la institución:
+a) Suscribir un contrato de servicios profesionales con la administración, en el cual se estipulen las obligaciones y derechos de las partes y el compromiso del profesional de cumplir con las disposiciones y procedimientos del presente Reglamento.
+b) Dirigir con la mayor diligencia y celeridad los procesos ejecutivos que le sean asignados.
+c) Cumplir las disposiciones del presente Reglamento.
+d) Remitir en los términos establecidos, de acuerdo con el artículo 20 del presente Reglamento, los informes que detallen las gestiones realizadas en cada cobro que al efecto le sean solicitados por parte del proceso de inspección y cobros.
+e) Devolver dentro de los cinco días hábiles, todo aquel documento en su poder que ya no le sea necesario para la dirección de un proceso ejecutivo.
+f) Informar al proceso de inspección y cobros cuando se traslade de oficinas o se vaya a ausentar de ellas por un término superior a cinco días hábiles. Dado el caso que un abogado se ausente por un período superior a los cinco días hábiles, deberá indicar por escrito el profesional en derecho que queda temporalmente a cargo de los juicios que le hayan sido asignados, quien acepta el control y seguimiento del proceso de inspección y cobros en idénticos términos del titular a quien temporalmente sustituye.
+g) Informar al proceso de inspección y cobros si se presentara alguna circunstancia de hecho o derecho que le imposibilitare para la dirección de uno o varios de los juicios sometidos a su cargo.
+h) En caso de que el patrono moroso quisiera un arreglo extrajudicial, el abogado debe de enviar al deudor al proceso de inspección y cobros para la formalización del arreglo respectivo.
+i) Todo abogado deberá, como mínimo, contar en su oficina con teléfono, facsímil, correo electrónico y casillero en el circuito judicial segundo de San José.

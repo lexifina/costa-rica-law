@@ -1,0 +1,2 @@
+Artículo 22.—De la inexistencia de bienes. El abogado deberá comunicar al proceso de inspección y cobros la inexistencia de bienes y derechos embargables a efecto de que este proceso resuelva si procede declarar la obligación como incobrable o iniciar los procesos de quiebra o insolvencia ante el correspondiente órgano jurisdiccional.
+A la comunicación el abogado adjuntará las certificaciones correspondientes que demuestren la inexistencia de bienes muebles e inmuebles registrables y embargables.
