@@ -13,3 +13,4 @@ Creación de Aduana Multimodal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-05-26 | la propia norma |
+| 2 | 1993-05-26 | SINALEVI (sin norma nombrada) |
