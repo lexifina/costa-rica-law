@@ -1,0 +1,9 @@
+ARTICULO 7.- El Instituto Costarricense de Electricidad podrá declarar
+elegible un proyecto para la explotación de una central de limitada
+capacidad, siempre y cuando la potencia, por concepto de generación
+paralela, no llegue a constituir más del quince por ciento (15%) de la
+potencia del conjunto de centrales eléctricas que conforman el sistema
+eléctrico nacional.
+El Instituto Costarricense de Electricidad rechazará las solicitudes
+que interfieran con un proyecto o concesión anterior, en trámite u
+otorgada.
