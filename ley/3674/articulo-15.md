@@ -1,0 +1,1 @@
+Artículo 15.- Se autoriza a las Municipalidades e instituciones del Estado, a contribuir para la realización de los programas del Movimiento. Este podrá hacer gestiones financieras ante los organismos internacionales, previa autorización del Ministerio de la Presidencia.
