@@ -1,7 +1,0 @@
-Artículo 9º.- Por vía de nota expedida por la autoridad judicial correspondiente pueden inscribirse en el Registro:
-1º.- Las demandas sobre propiedad de determinados vehículos y cualesquiera otras que versen sobre constitución, declaración, modificación o extinción de cualquier derecho real sobre vehículos inscritos.
-2º.- Las demandas sobre cancelación o rectificación de asientos del Registro.
-3º.- El decreto de embargo sobre vehículos inscritos. Esta inscripción dura tres meses; si dentro de ese término no se presentare el embargo hecho para su inscripción, queda cancelado sin necesidad de declaratoria ni de asiento.
-Las autoridades judiciales podrán auxiliarse, para la práctica de embargos ordenados sobre vehículos, de las autoridades del Tránsito, a cuya Dirección pedirán en ese caso la detención del vehículo de que se trate. Una vez practicada la detención, la Dirección del Tránsito lo comunicará a la autoridad judicial que la haya solicitado, a efecto de que ésta realice la traba del secuestro, dentro de los diez días siguientes a aquél en que haya recibido la comunicación. De no hacerse el embargo en el plazo dicho, el vehículo podrá ser devuelto al interesado.
-4º.- El embargo practicado y secuestro sobre vehículos inscritos.
-5º.- El gravamen proveniente de accidentes de tránsito. La inscripción de prenda sobre vehículos inscritos podrá también practicarse por vía de nota en que el Registrador General de Prendas comunique la constitución del gravamen.
