@@ -8,3 +8,4 @@ f) Cuando en el establecimiento farmacéutico se realicen actos que contravengan
 g) Cuando se infrinjan las disposiciones del Código de Ética del Colegio de Farmacéuticos.
 h)Cuando se incumplan las especificaciones del contrato entre el Colegio y el dueño del establecimiento.
 i) Cuando a juicio de la Junta Directiva del Colegio, se realicen prácticas promocionales que induzcan al uso irracional de medicamentos o constituyen competencia desleal.
+(La Sala Constitucional mediante resolución N° 3477-96, de las 14: 51 horas, del 10 de julio de 1996, anuló de este artículo los incisos a) y d), en cuanto se refieren al impuesto creado para los establecimientos farmaceuticos.)

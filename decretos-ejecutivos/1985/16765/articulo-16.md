@@ -1,2 +1,1 @@
-ARTICULO 16.- La patente del establecimiento farmacéutico privado deberá ser pagada en la Tesorería del Colegio, por trimestre adelantado dentro de los primeros quince días hábiles de los meses de enero, abril, julio y octubre, pasado este plazo la Junta Directiva podrá imponer una multa de 25% sobre el monto a los patentados morosos.
-La falta de pago de más de dos trimestres dará lugar al cobro judicial o a la clausura del establecimiento por medio de las autoridades competentes a solicitud del Fiscal, previo acuerdo de la Junta Directiva.
+ARTICULO 16.- Anulado. (Anulado mediante resolución de la Sala Constitucional N° 3477-96, de las 14: 51 horas, del 10 de julio de 1996.)

@@ -22,3 +22,4 @@ Reglamento de Establecimientos Farmacéuticos Privados
 | 7 | 1991-06-25 | SINALEVI (sin norma nombrada) |
 | 8 | 1993-12-24 | SINALEVI (sin norma nombrada) |
 | 9 | 1995-01-16 | Decreto Ejecutivo 24028 (1995-01-16) |
+| 10 | 1996-07-10 | SINALEVI (sin norma nombrada) |
