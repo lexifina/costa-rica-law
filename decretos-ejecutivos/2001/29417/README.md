@@ -14,3 +14,4 @@ Autoriza al Gobierno a someter a Procedimiento de Arbitraje de Derecho, las Pret
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-04-16 | la propia norma |
+| 2 | 2001-06-14 | Decreto Ejecutivo 29617 (2001-06-14) |
