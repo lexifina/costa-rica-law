@@ -1,2 +1,0 @@
-Artículo 8°—El Secretario, o en su ausencia, la persona que designe la Comisión, levantará el acta de cada sesión, la cual deberá ser leída y aprobada en la sesión siguiente. El acta deberá ser firmada por el Presidente y por el Secretario en la sesión en que fue leída y aprobada.
-Cuando haya acuerdos tomados por votación, el acta consignará el resultado de la misma así como los votos salvados, si los hubiere.
