@@ -1,0 +1,1 @@
+Artículo 15.—Todo estudiante está obligado a comunicar al Servicio de Bienestar Estudiantil o a la Comisión de Beneficios Estudiantiles, cualquier cambio favorable que se registre en su situación socioeconómica, en el momento en que se produzca, de lo contrario se aplicará pago 10 durante un año.

@@ -1,0 +1,1 @@
+Artículo 27.—La aplicación del artículo 26 corresponde a la Comisión de Beneficios Estudiantiles, con base en el informe que presenta el responsable oficial de cada grupo organizado en materia deportiva, cultural o estudiantil.

@@ -1,0 +1,1 @@
+Artículo 6° bis—Se entiende para efectos de esta reglamentación por beca toda ayuda de cualquier tipo que se le brinde a un estudiante, y ciclo lectivo aquel período lectivo de 16 semanas o su equivalencia como los cursos de verano.

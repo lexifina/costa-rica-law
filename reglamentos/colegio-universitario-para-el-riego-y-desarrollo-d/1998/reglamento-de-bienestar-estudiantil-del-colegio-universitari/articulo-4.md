@@ -1,0 +1,1 @@
+Artículo 4°—La codificación de formularios de solicitud de categoría de pago y los trámites administrativos para el otorgamiento de beneficios corresponde al Servicio de Bienestar Estudiantil, sin embargo mientras se consolida este servicio, lo asume la Dirección Administrativa.

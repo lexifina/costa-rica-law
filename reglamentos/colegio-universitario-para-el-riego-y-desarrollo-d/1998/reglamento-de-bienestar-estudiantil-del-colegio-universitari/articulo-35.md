@@ -1,0 +1,1 @@
+Artículo 35.—Corresponde al Servicio de Bienestar Estudiantil o en su defecto a la Dirección Administrativa, la dirección, coordinación y control de todo lo relativo al sistema de residencias estudiantiles.

@@ -1,0 +1,1 @@
+Artículo 41.—El préstamo de mobiliario en las residencias del Colegio Universitario, es el servicio mediante el cual la institución cede, en calidad de préstamo, mobiliario y equipo, para ser utilizados en el lugar donde reside el estudiante en tiempo lectivo. El préstamo incluye: camones, escritorios, mesas, otros que la institución este en posibilidades de facilitar.

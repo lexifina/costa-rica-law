@@ -1,0 +1,2 @@
+Artículo 40.—El servicio de residencia renumerada consiste en el otorgamiento de residencia, mediante el pago de una cuota mensual por parte del estudiante, la que se fijará de acuerdo con el estudio socioeconómico de cada caso. Este servicio incluye además el préstamo del mobiliario.
+Esta cuota deberá cancelarse por adelantado, mensualmente, en oficina de recaudación de la Dirección Administrativa.

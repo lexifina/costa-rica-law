@@ -1,0 +1,1 @@
+Artículo 33.—La amortización de la deuda queda liberada del pago de interés, siempre y cuando se realice en el plazo estipulado. En caso contrario, el estudiante debe pagar un interés del 1% (uno por ciento) mensual, por concepto de morosidad.

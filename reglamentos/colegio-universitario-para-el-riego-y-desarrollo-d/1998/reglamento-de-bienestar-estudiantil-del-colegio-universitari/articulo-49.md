@@ -1,0 +1,1 @@
+Artículo 49.—Sin perjuicio de la sanción aplicable, todo daño al mobiliario, equipo o a la residencia deberá ser reparado y resarcido, por el o los responsables. La reparación o el resarcimiento, según sea el caso, deberá estar lista quince días después de que se le ha notificado al estudiante responsable en el auto correspondiente.

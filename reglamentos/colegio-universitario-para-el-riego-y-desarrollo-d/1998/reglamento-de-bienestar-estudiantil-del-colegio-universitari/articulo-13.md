@@ -1,0 +1,1 @@
+Artículo 13.—Al estudiante que no presente el formulario de categoría de pago con la documentación solicitada, y en las fechas estipuladas, se le asigna categoría de pago cuatro (P-4). Lo mismo rige para el estudiante que suministrare información incorrecta o la brindara incompleta. El formulario tendrá validez durante un año.

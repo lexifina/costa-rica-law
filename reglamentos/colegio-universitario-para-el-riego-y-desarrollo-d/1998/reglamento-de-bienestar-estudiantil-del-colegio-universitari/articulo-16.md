@@ -1,0 +1,1 @@
+Artículo 16.—Los alumnos regulares que aprueban el 80% o más de los créditos matriculados, conservan la categoría de pago adjudicada. En caso contrario, pasan a la categoría de pago inmediata superior. Al finalizar cada año lectivo, el Servicio de Registro, debe presentar al de Bienestar Estudiantil, la lista de estudiantes que aprueban menos del 80% de los créditos matriculados.

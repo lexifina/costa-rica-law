@@ -1,0 +1,1 @@
+Artículo 53.—Los estudiantes beneficiarios del programa de residencias estudiantiles deberán comunicar en forma inmediata al Servicio de Bienestar Estudiantil o Dirección Académica, cualquier cambio favorable que se produzca en los ingresos económicos de su familia.

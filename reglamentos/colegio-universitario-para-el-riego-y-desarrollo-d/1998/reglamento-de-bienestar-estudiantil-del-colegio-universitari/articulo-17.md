@@ -1,0 +1,1 @@
+Artículo 17.—La aplicación del artículo 16 rige por un año y no implica la permanencia indefinida en una determinada categoría de pago. La superación del rendimiento académico (aprobación del 80% o más de los créditos matriculados) durante el año de aplicación del artículo 16, será tomada en consideración para efectos de asignarle una categoría de pago favorable a su situación.

@@ -1,0 +1,1 @@
+Artículo 37.—Cuando la demanda de servicios, cualquiera de las opciones del programa de residencias estudiantiles, resultare superior la oferta, se dará prioridad a estudiantes que residan en lugares más alejados, que cuentan con menos recursos económicos y con mayor promedio académico.

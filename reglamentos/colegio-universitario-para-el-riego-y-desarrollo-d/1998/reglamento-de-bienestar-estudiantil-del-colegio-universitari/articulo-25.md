@@ -1,0 +1,1 @@
+Artículo 25.—Los estudiantes acreedores a Mención de Honor serán comunicados de oficio (por ciclo y año lectivo, respectivamente) por parte del Servicio de Registro al del Bienestar Estudiantil, para que éste tramite

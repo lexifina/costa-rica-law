@@ -1,0 +1,1 @@
+Artículo 31.—El servicio de Bienestar Estudiantil es el encargado de revisar, para cada solicitante, el cumplimiento de los requisitos del artículo 30 y rendir un informe al Servicio de Contabilidad y Presupuesto para que éste proceda al otorgamiento del préstamo respectivo.

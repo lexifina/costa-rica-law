@@ -1,0 +1,2 @@
+Artículo 21.—Tomando en cuenta la experiencia laboral, estudios, aprendizaje previo de oficios, interés personal y necesidades de la Institución, el Servicio de Bienestar Estudiantil o en su defecto la Dirección Administrativa en coordinación con la Comisión de Beneficios Estudiantiles, realizarán la ubicación de los estudiantes en las dependencias del Colegio Universitario.
+El jefe o encargado de cada dependencia llevará el registro de asistencia de cada estudiante que se le asigne, en cumplimiento del artículo 20.
