@@ -10,3 +10,6 @@ Dicho crédito hipotecario de cédulas no devengará intereses y tendrá
 un vencimiento de diez años a partir de su constitución, y las cédulas,
 al ser entregadas a la Cooperativa, sólo podrán ser negociadas con
 instituciones del Sistema Bancario Nacional.
+(NOTA: véanse la observaciones de la ley sobre las sucesivas
+ampliaciones efectuadas al presente artículo por normas
+posteriores que elevan el monto de participación del Estado)
