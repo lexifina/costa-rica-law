@@ -1,6 +1,5 @@
-TITULO IV
-Del servicio privado de seguridad
-CAPITULO I
-De la naturaleza
-Artículo 78°—Objeto
-El servicio privado de seguridad tiene por objeto proteger la integridad de las personas contratantes del servicio y de sus bienes y de los que se encuentren en la zona en la cual se preste el servicio, de conformidad con esta Ley y su Reglamento.
+Artículo 78°—Procedimiento en investigación disciplinaria
+El departamento legal del ministerio respectivo se encargará de investigar preliminarmente toda acusación que implique la suspensión temporal o el despido del servidor amparado por este Estatuto.
+Preparado el informe correspondiente, el departamento citado recomendará alguna medida y trasladará el asunto al Consejo de Personal para que lo resuelva en primera instancia. El afectado por una medida disciplinaria de este tipo tendrá derecho a recurrir al ministro del ramo, dentro de los tres días siguientes al de la notificación. Si no se apela, el asunto se remitirá al ministro quien resolverá definitivamente y dará por agotada la vía administrativa.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 68 al 71 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 71 al 78 actual)

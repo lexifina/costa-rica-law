@@ -1,0 +1,1 @@
+TRANSITORIO II.- La entrada en vigencia del escalafón de oficiales superiores se hará efectiva a partir de la vigencia de esta Ley, para todos los funcionarios que cumplan con los requisitos dispuestos al efecto.

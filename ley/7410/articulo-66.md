@@ -1,2 +1,4 @@
-Artículo 66°—Suspensión provisional y sus alcances
-Autorízase la inmediata suspensión provisional del servidor, como medida cautelar, ante la presunta comisión de una falta grave. En ningún caso, esta medida implicará que el servidor afectado deje de percibir el salario a que por ley tiene derecho. Para suspenderlo, es necesario que la administración haya acordado en firme el procedimiento y el pronunciamiento previos.
+Artículo 66°—Reglas para permutas
+El Consejo de Personal podrá autorizar las permutas, previa solicitud de los interesados, con el visto bueno de los jerarcas respectivos. Si se trata de puestos de la misma clase, bastará con la autorización del Consejo; pero si se refiere a puestos de confianza, solo prevalecerá el criterio del jerarca correspondiente.
+(Así corrida su numeración por el artículo 1° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 56 al 59 actual)
+(Así corrida su numeración por el artículo 2° de la Ley de Fortalecimiento de la Policía Civilista N° 8096 del 15 de marzo de 2001, que lo traspaso del antiguo artículo 59 al 66 actual)
