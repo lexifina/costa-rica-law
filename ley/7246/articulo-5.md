@@ -1,10 +1,2 @@
-ARTICULO 5.- Cada año, a más tardar el 30 de noviembre, las personas a
-las que se refiere el artículo 1 de esta Ley, presentarán a la Municipalidad
-una declaración jurada de sus ventas brutas y de su renta líquida gravable,
-en los casos que esta última existiera. La Municipalidad enviará los
-formularios correspondientes a cada contribuyente.
-En casos especiales, en que las empresas tengan autorización de la
-Tributación Directa para presentar la declaración posteriormente a la fecha
-establecida en la ley, estas empresas podrán presentar la declaración a la
-Municipalidad hasta treinta días después de la fecha autorizada por la
-Tributación Directa.
+Artículo 5°—Cada año, a más tardar el 30 de noviembre, las personas a las que se refiere el artículo 1 de esta Ley, presentarán a la Municipalidad una declaración jurada de sus ventas brutas y de su renta líquida gravable. en los casos que ésta última existiera. La Municipalidad enviará los formularios correspondientes a cada contribuyente.
+En casos especiales, en que las empresas tengan autorización de la Tributación Directa para presentar la declaración posteriormente a la fecha establecida en la ley, estas empresas podrán presentar la declaración a la Municipalidad hasta treinta días después de la fecha autorizada por la Tributación Directa.
