@@ -1,0 +1,8 @@
+ARTICULO VII
+La acción penal derivada de la desaparición forzada de personas y la
+pena que se imponga judicialmente al responsable de la misma no estarán
+sujetas a prescripción.
+Sin embargo, cuando existiera una norma de carácter fundamental que
+impidiera la aplicación de lo estipulado en el párrafo anterior, el
+período de prescripción deberá ser igual al del delito más grave en la
+legislación interna del respectivo Estado Parte.

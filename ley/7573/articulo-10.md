@@ -1,0 +1,15 @@
+ARTICULO X
+En ningún caso podrán invocarse circunstancias excepcionales, tales
+como estado de guerra o amenaza de guerra, inestabilidad política interna
+o cualquier otra emergencia pública, como justificación de la desaparición
+forzada de personas. En tales casos, el derecho a procedimientos o
+recursos judiciales rápidos eficaces se conservará como medio para
+determinar el paradero de las personas privadas de libertad o su estado de
+salud o para individualizar a la autoridad que ordenó la privación de
+libertad o la hizo efectiva.
+En la tramitación de dichos procedimientos o recursos y conforme al
+derecho interno respectivo, las autoridades judiciales competentes tendrán
+libre e inmediato acceso a todo centro de detención y a cada una de sus
+dependencias, así como a todo lugar donde haya motivos para creer que se
+puede encontrar a la persona desaparecida, incluso lugares sujetos a la
+jurisdicción militar.
