@@ -18,3 +18,4 @@ Reglamento de Organización de los Cuerpos Policiales Adscritos al Ministerio de
 | 3 | 1996-01-16 | Decreto Ejecutivo 24928 (1996-01-16) |
 | 4 | 1998-02-26 | Decreto Ejecutivo 26839 (1998-02-26) |
 | 5 | 2000-12-05 | Decreto Ejecutivo 29293 (2000-12-05) |
+| 6 | 2004-02-05 | Decreto Ejecutivo 31682 (2004-02-05) |
