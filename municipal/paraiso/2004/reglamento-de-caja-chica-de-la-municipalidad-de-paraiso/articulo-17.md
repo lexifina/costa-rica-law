@@ -1,0 +1,1 @@
+Artículo 17.—El monto de lo gastado no podrá exceder el monto autorizado en el vale. De presentarse esta situación la Municipalidad no asumirá el gasto diferencial y no queda en la obligación de reintegrarle esa suma.

@@ -1,0 +1,4 @@
+Artículo 16.—Los comprobantes (facturas) de adquisiciones que se hacen con fondos de caja chica que justifiquen el egreso, deberán cumplir los siguientes requisitos:
+- Ser documentos originales, estar autorizados o dispensados del mismo por la Dirección General de Tributación Directa del Ministerio de Hacienda y estar emitidos a favor de la Municipalidad de Paraíso.
+- Especificar claramente el detalle de la compra o servicio recibido, la cual deberá ser igual o posterior a la fecha de emisión del vale, coincidir con lo estipulado en el vale, traer impreso el sello de cancelado o tiquete de caja y por ningún motivo deben contener tachaduras ni borrones.
+- Si la factura no tiene logotipo deberá indicar como requisito indispensable el nombre, número de cédula de la persona física o jurídica que suministra el bien o servicio.

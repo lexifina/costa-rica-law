@@ -1,0 +1,1 @@
+Artículo 27.—Periódicamente y sin previo aviso la Auditoría Interna procederá a realizar arqueos en forma sorpresiva al fondo de caja chica, con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de auditoría vigentes.

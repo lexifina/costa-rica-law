@@ -1,0 +1,1 @@
+Artículo 15.—Cuando por algún motivo la compra no se lleve a cabo, el funcionario que ha recibido el dinero del vale, deberá hacer el reintegro de inmediato del dinero entregado para esos efectos a más tardar el día hábil siguiente al de su recibo. Para tal efecto, deberá el funcionario aportar una justificación escrita avalada con la firma de su superior.

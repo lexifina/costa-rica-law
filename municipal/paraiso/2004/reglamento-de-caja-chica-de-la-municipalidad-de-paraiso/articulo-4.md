@@ -1,0 +1,1 @@
+Artículo 4º—Cuando es necesario trasladar la custodia del fondo a otra persona, debe informar al superior inmediato y al departamento respectivo, se deberá realizar un arqueo previo al traspaso de estos fondos.

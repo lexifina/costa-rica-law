@@ -1,0 +1,1 @@
+Artículo 20.—Es responsabilidad del Tesorero Municipal en su condición de encargado de la caja chica, diseñar y mantener un adecuado sistema de control del fondo autorizado en concordancia con las prácticas de control interno, Manual de Normas Generales de Control Interno y el Código Municipal.

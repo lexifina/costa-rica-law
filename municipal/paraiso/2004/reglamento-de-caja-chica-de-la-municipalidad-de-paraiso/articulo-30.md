@@ -1,0 +1,1 @@
+Artículo 30.—El Tesorero Municipal debe procurar tramitar con la diligencia y frecuencia debida los reintegros de las sumas pagadas, pero que mantenga una adecuada rotación y el fondo no llegue a agotarse. El monto mínimo que debe mantener el fondo para la solicitud de reintegro debe ser de un 50% a un 65%.

@@ -1,0 +1,1 @@
+Artículo 36.—El fondo de la Caja Chica no podrá ser utilizado para el cambio de cheques personales ni usarse para otros fines distintos para el que fue creado ni disponerse para actuaciones distintas a las autorizadas por la ley y el presente Reglamento.
