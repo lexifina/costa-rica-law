@@ -5,3 +5,5 @@ c. Colaborar con los organismos nacionales e internacionales existentes en el pa
 d. Facilitar la formulación y ejecución de proyectos de rehabilitación, recuperación y prevención de degradación de tierras.
 e. Solicitar el apoyo y colaboración logística de entes públicos y privados.
 f. Proponer la firma de acuerdos de cooperación para la realización de proyectos relativos a las metas de la Convención.
+g-Promover y facilitar la investigación científica en el país sobre esta temática.
+(Así adicionado su inciso g) por el Decreto Ejecutivo N° 30231 de 6 de febrero del 2002)

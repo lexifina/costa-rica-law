@@ -14,3 +14,4 @@ Crea la Comisón Asesora sore Degradación de Tierras (CEDETI)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-12 | la propia norma |
+| 2 | 2002-02-06 | Decreto Ejecutivo 30231 (2002-02-06) |
