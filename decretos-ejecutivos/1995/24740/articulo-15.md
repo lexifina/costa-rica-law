@@ -1,0 +1,1 @@
+Artículo 15.. Deróguense los artículos 140, 143, 144 y 153 del Decreto Ejecutivo N° 19886-MIRENEM, el artículo 5 del Decreto Ejecutivo N° 21445- MIRENEM, el artículo 33 del Decreto Ejecutivo Nº 20618-MIRENEM, el artículo 2 del Decreto Ejecutivo N° 20099-MIRENEM y eliminar del artículo 1 del Decreto Ejecutivo N° 20618-MIRENEM las definiciones de madera en block.
