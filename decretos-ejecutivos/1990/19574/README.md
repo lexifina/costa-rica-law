@@ -13,3 +13,4 @@ Crea la Delegación de la Mujer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-04-10 | la propia norma |
+| 2 | 1990-04-10 | SINALEVI (sin norma nombrada) |
