@@ -1,0 +1,1 @@
+Artículo 70.- Los acuarios, zoológicos o zoocriaderos mantendrán condiciones de seguridad para impedir el ingreso o salida accidental de animales y deberá establecer áreas delimitadas para la exhibición, reproducción y cuarentena.
