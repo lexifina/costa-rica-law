@@ -13,3 +13,4 @@ Aprueba los Estatutos de la Cruz Roja Costarricense
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1942-01-22 | la propia norma |
+| 2 | 1951-12-06 | Decreto Ejecutivo 16 (1951-12-06) |
