@@ -1,0 +1,1 @@
+Artículo 6°—La Reserva Indígena de Cocles es parte integrante de la Reserva Indígena de Talamanca y sus representantes serán integrados a la administración de dicha Reserva; la Reserva será inscrita en el Registro de la Propiedad a nombre de la misma comunidad indígena de Talamanca, pero como finca distinta (finca 2 Talamanca).

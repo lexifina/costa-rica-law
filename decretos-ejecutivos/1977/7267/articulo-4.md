@@ -1,0 +1,1 @@
+Artículo 4°—Las Reservas Indígenas de Nimari-Bukeri y de Cocles tendrán a mismo estatuto que las otras Reservas Indígenas establecidas por los decretos N°5904-G y 6036-G, o sea, que todas las disposiciones establecidas en los mencionados decretos les son íntegramente aplicables.

@@ -1,0 +1,1 @@
+Artículo 5°—La Reserva Indígena de Nimari-Bukeri es parte integrante de la Reserva Indígena de Chirripó y sus representantes serán integrados a la admiración de dicha Reserva; la Reserva será inscrita en el Registro de la Propiedad nombre de la misma comunidad indígena cabecar de Chirripó, pero como finca distinta (finca 2 Chirripó).
