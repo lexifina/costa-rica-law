@@ -1,1 +1,7 @@
-Artículo 44.—Supervisión. A efecto de lo que dispone la Ley y este Reglamento, en el artículo tercero de la Ley, la Comisión con apoyo de la Dirección, tendrá la posibilidad de realizar supervisiones, sin aviso previo, en los establecimientos dedicados a la exhibición, distribución, venta o alquiler de cualquier tipo de material.
+De la valoración y calificación del material
+Artículo 44.—De la solicitud y plazos para valorar. Todas las empresas o personas físicas que pretendan hacer presentaciones en vivo, o de teatro, de televisión, radio, cine, o por otros medios, harán llegar por escrito a la Dirección, una solicitud de revisión y valoración del material, con ocho días hábiles de anticipación a la fecha en que se pretende transmitir o difundir el material. La solicitud deberá incluir la autocalificación otorgada por el empresario en los términos del artículo 40 bis de este reglamento.
+(Así reformado por el artículo 6° del decreto ejecutivo N° 31805 del 12 de mayo de 2004)
+Deberán también sujetarse a las disposiciones de éste capítulo las embajadas, centros culturales, organizaciones nacionales o internacionales, personas físicas o jurídicas que pretendan llevar a cabo festivales culturales de cine o teatro.
+La presentación de la solicitud y la autocalificación no autorizan la exhibición o transmisión del material, sino hasta que la Comisión rinda por escrito su calificación y autorice su exhibición o haya vencido el plazo contemplado en el artículo 46.
+(Así reformado por el artículo 22 del decreto ejecutivo N° 27373 de 28 de setiembre de 1998)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 31805 del 12 de mayo de 2004, que adicionó los artículos 31, 32 y 33, pasando el anterior artículo 41 al 44 actual )

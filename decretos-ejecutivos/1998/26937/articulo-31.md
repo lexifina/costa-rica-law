@@ -1,5 +1,7 @@
 CAPÍTULO III
-De los Materiales Audiovisuales.
-Artículo 31—Del material regulado. La Comisión valorará y calificará, de conformidad con los criterios establecidos en el artículo 45 de este Reglamento, todo material audiovisual destinado a la distribución, alquiler, venta, exhibición, o reproducción de películas transferidas a cintas de vídeo en cualquier formato, los juegos de vídeo, cualquiera que sea el aparato reproductor y la tecnología empleada, y el material para ordenadores u otros mecanismos de reproducción, tales como juegos o programas para computadoras en cualesquiera de sus formas de presentación, pudiendo establecer procedimientos de muestreo para ello.
-Los empresarios deberán colocar en el material la calificación emitida por la Comisión y además en toda factura de alquiler o venta deberá consignarse el nombre y número de cédula de la persona, si es material que por su contenido, de conformidad con la Ley y este Reglamento, deba ser exhibido únicamente a los adultos.
-(Así reformado por el artículo 16 del decreto ejecutivo N° 27373 de 28 de setiembre de 1998)
+De la Transmisión por televisión vía señal de Cable o satélite
+Artículo 31.—De la Transmisión. Los empresarios de televisión vía señal de cable o satélite, deberán:
+a. Entregar a la Comisión la programación y la autocalificación de ésta, con al menos ocho días hábiles de antelación a la respectiva transmisión. Las variaciones a la programación deberán ser comunicadas a la Comisión en el momento en que éstas sean de conocimiento de la empresa.
+b. Informar al público, de previo a la transmisión y en forma permanente durante ésta, sobre los criterios de calificación en concordancia con lo establecido en el artículo 27 de este Reglamento. El empresario puede recurrir al uso de simbología u otros, para brindar la información.
+c. Informar al público, de previo a la transmisión de cada programa, la calificación específica asignada a ese programa.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 31805 de 12 de mayo de 2004)

@@ -1,4 +1,2 @@
-CAPÍTULO V
-Del Material Cinematográfico
-Artículo 37.—De la advertencia al público sobre la calificación otorgada. Al promocionarse las películas mediante pictogramas o de otro modo en televisión o por otro medio, los empresarios o distribuidores deberán informar al público sobre la calificación otorgada por la Comisión, Esta calificación también se exhibirá en las boleterías y los anches promocionales.
-(Así reformado por el artículo 18 del decreto ejecutivo N° 27373 de 28 de setiembre de 1998)
+Artículo 37.—De la difusión de anuncios o avances de otros materiales. En las películas de vídeo, cine y televisión calificadas para menores de edad. se autorizara la presentación de avances, anuncios o atracciones de otros materiales que no hayan sido calificados para ese grupo etáreo, siempre que no contengan escenas no aptas para el grupo al que se dirigen en ese momento.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 31805 del 12 de mayo de 2004, que adicionó los artículos 31, 32 y 33, pasando el anterior artículo 34 al 37 actual )

@@ -1,2 +1,8 @@
-Artículo 8.—De la integración. La Comisión estará compuesta por cinco miembros electos por el Ministro de Justicia y Gracia, previo estudio de sus atestados personales y académicos. Su nombramiento se hará por Acuerdo Ejecutivo que se publicara en d Diario Oficial "La Gaceta". Durarán en su cargo cuatro años que podrán ser prorrogables por períodos iguales.
-El Ministro de Justicia y Gracia podrá remover de su cargo a los miembros de la Comisión que no asistan sin justa causa a cuatro o más sesiones consecutivas.
+Artículo 8.—De la integración. La Comisión estará integrada por el Director Ejecutivo del Consejo, quien la presidirá y por diez profesionales en: Psicología o Psiquiatría, Educación, Sociología y Derecho, nombrados en la siguiente forma:
+a. Cuatro representantes del Ministerio de Justicia y Gracia.
+b. Dos representantes del Ministerio de Cultura, Juventud y Deportes.
+c. Dos representantes del Patronato Nacional de la Infancia.
+d. Un representante del Ministerio de Educación Pública.
+e. Un representante del Instituto Nacional de las Mujeres.
+En caso de que un miembro se ausente a cuatro o más sesiones consecutivas, la Comisión podrá solicitar su destitución y reemplazo al titular que aquel representa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 31805 de 12 de mayo de 2004)

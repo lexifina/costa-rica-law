@@ -1,6 +1,2 @@
-De la valoración y calificación del material
-Artículo 41.—De la solicitud y plazos para valorar. Todas las empresas o personas físicas que pretendan hacer presentaciones en vivo, o de teatro, de televisión, radio, cine y televisión por cable, o por otros medios, harán llegar por escrito a la Dirección, una solicitud de revisión y valoración del material, con ocho días hábiles de anticipación a la fecha en que se pretende transmitir o difundir el material. La solicitud deberá incluir la autocalificación otorgada por el empresario en los términos del artículo 40 bis de este reglamento.
-(Así reformado por el artículo 22 del decreto ejecutivo N° 27373 de 28 de setiembre de 1998)
-Deberán también sujetarse a las disposiciones de éste capítulo las embajadas, centros culturales, organizaciones nacionales o internacionales, personas físicas o jurídicas que pretendan llevar a cabo festivales culturales de cine o teatro.
-La presentación de la solicitud y la autocalificación no autorizan la exhibición o transmisión del material, sino hasta que la Comisión rinda por escrito su calificación y autorice su exhibición o haya vencido el plazo contemplado en el artículo 46.
-(Así reformado por el artículo 22 del decreto ejecutivo N° 27373 de 28 de setiembre de 1998)
+Artículo 41.—De la de propaganda dirigida a adultos. El Consejo y la Comisión vigilarán que en la exhibición de una obra calificada para todo público y toda aquella en donde se permita el acceso a menores, la propaganda que se presente contenga escenas aptas para el grupo al que se dirige.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 31805 del 12 de mayo de 2004, que adicionó los artículos 31, 32 y 33, pasando el anterior artículo 37 al 41 actual)

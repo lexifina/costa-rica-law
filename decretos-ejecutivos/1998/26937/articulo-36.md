@@ -1,4 +1,2 @@
-Artículo 36-—De las restricciones. Toda persona física o jurídica que se proponga editar, distribuir, vender, alquilar o canjear material impreso dirigido a adultos según la clasificación definida por la Ley y por este Reglamento, deberá cumplir estos requisitos:
-a) Indicar expresa y visiblemente que su contenido está dirigido exclusivamente a adultos, para lo que se colocará una advertencia en la portada y contraportada, y el tipo de material que contiene.
-b) Deberá estar empacado de manera que no pueda verse su contenido y deberá estar sellado.
-c) Como este tipo de material no puede venderse a menores, deberá consignarse en la factura de venta, el nombre de la persona y su cédula de identidad.
+Artículo 36.—De la relación con el Ministerio de Hacienda. La Dirección Ejecutiva solicitará a la Dirección General de Aduanas del Ministerio de Hacienda, toda aquella información necesaria para ejecutar las labores de control y regulación de las actividades descritas en los incisos d) e) y f) del artículo 3° de la Ley.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 31805 del 12 de mayo de 2004, que adicionó los artículos 31, 32 y 33, pasando el anterior artículo 33 al 36 actual )

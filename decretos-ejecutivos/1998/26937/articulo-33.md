@@ -1,1 +1,2 @@
-Artículo 33.—De la relación con el Ministerio de Hacienda. La Dirección Ejecutiva solicitará a la Dirección General de Aduanas del Ministerio de Hacienda, toda aquella información necesaria para ejecutar las labores de control y regulación de las actividades descritas en los incisos d) e) y f) del artículo 3° de la Ley.
+Artículo 33.—Los empresarios podrán proporcionar a la Comisión de Control y Calificación un espacio para la promoción y divulgación de contenidos de reflexión y de opinión para la protección de la infancia y la adolescencia.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 31805 de 12 de mayo de 2004)

@@ -1,2 +1,5 @@
-Artículo 38.—De la de propaganda dirigida a adultos. El Consejo y la Comisión vigilarán que en la exhibición de una obra calificada para todo público y toda aquella en donde se permita el acceso a menores, la propaganda que se presente contenga escenas aptas para el grupo al que se dirige.
-(Así reformado por el artículo 19 del decreto ejecutivo N° 27373 de 28 de setiembre de 1998)
+CAPÍTULO IV
+Del Material Impreso
+Artículo 38.—De la regulación de material impreso. El Consejo y la Comisión regularán la distribución o venta y acceso de las personas menores al material impreso, según los criterios de calificación establecidos en el artículo 45 de este Reglamento y en la Ley.
+Los empresarios deberán colocar en el material la calificación emitida por la Comisión y además en toda factura de alquiler o venta deberá consignarse el nombre y número de cédula de la persona, si es material para adultos.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 31805 del 12 de mayo de 2004, que adicionó los artículos 31, 32 y 33, pasando el anterior artículo 35 al 38 actual)

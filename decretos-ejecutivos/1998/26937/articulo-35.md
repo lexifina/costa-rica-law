@@ -1,4 +1,4 @@
-CAPÍTULO IV
-Del Material Impreso
-Artículo 35.—De la regulación de material impreso. El Consejo y la Comisión regularán la distribución o venta y acceso de las personas menores al material impreso, según los criterios de calificación establecidos en el artículo 45 de este Reglamento y en la Ley.
-Los empresarios deberán colocar en el material la calificación emitida por la Comisión y además en toda factura de alquiler o venta deberá consignarse el nombre y número de cédula de la persona, si es material para adultos.
+Artículo 35.—De las condiciones que deben cumplir los importadores. Toda persona física o jurídica que importe material audiovisual, películas, juegos de vídeo o material impreso sujeto a revisión, deberá presentar a la Dirección una solicitud de calificación que cumpla los requisitos del artículo 45 de este Reglamento, y además una copia del material acompañada de los documentos aduaneros, todo dentro de las tres semanas posteriores a la importación del material.
+Los importadores no podrán poner el material a disposición de los distribuidores o del público en general, hasta tanto éste no haya sido revisado y calificado por la Comisión.
+La Comisión extenderá al importador un acuerdo donde se indique la clasificación etárea y temática, y las restricciones a las que queda sujeto el materia!, así como la obligatoriedad de etiquetar el material revisado con la calificación acordada.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 31805 del 12 de mayo de 2004, que adicionó los artículos 31, 32 y 33, pasando el anterior artículo 32 al 35 actual)
