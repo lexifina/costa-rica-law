@@ -1,2 +1,2 @@
-Articulo 6°—El Presidente del Congreso Nacional Cafetalero entregará oficialmente la Medalla al Mérito Cafetalero, durante la celebración del Congreso Nacional Cafetalero ordinario del año que corresponda.
-(Así REFORMADO PARCIAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo 27590 del 16 de noviembre de 1998, publicado en La Gaceta N°14 del 21 de enero de 1999.)
+Articulo 6°—El Presidente del Congreso Nacional Cafetalero, entregará oficialmente la Medalla al Mérito Cafetalero en Sesión Extraordinaria del Congreso, que se celebrará el segundo viernes del mes de setiembre de cada año.
+(Así REFORMADO PARCIAL y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo 31343-MAG-MEIC del 04 de agosto de 2003, publicado en La Gaceta N°168 del 02 de setiembre de 2003.)
