@@ -14,3 +14,4 @@ Normas operativas sobre la preparación, redacción, comunicación, ejecución y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-03-07 | la propia norma |
+| 2 | 2004-04-29 | Reglamento 25 (2004-04-29) |
