@@ -1,0 +1,1 @@
+Artículo 17.- En toda filmación que se realice dentro de parques nacionales y reservas biológicas, independientemente de su carácter, deberán respetarse las disposiciones legales y administrativas vigentes para estas áreas; los principios morales y religiosos y las buenas costumbres, lo mismo que la imagen de las áreas silvestres y del Servicio de Parques Nacionales.
