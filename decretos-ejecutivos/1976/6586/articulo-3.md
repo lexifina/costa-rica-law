@@ -1,0 +1,1 @@
+Artículo 3°─ Los puestos de vigilancia deberán ser instalados en lugares estratégicos, de manera que el transito no sea interrumpido más de lo normal en estas circunstancias, visibles y fácilmente identificables al conductor.
