@@ -1,5 +1,6 @@
 (Derogado)
-N§ 13574-RE-E-C
+N° 13574-RE-E-C
+(Este decreto ejecutivo fue derogado por el transitorio del Reglamento de la Comisión Costarricense de Cooperación con la UNESCO, aprobado mediante decreto ejecutivo N° 20984 del 10 de enero de 1992)
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE RELACIONES EXTERIORES
 Y CULTO,

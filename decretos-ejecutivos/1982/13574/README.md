@@ -12,3 +12,4 @@ Reglamento Comisión Costarricense de Cooperación con la UNESCO
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-05-04 | la propia norma |
+| 2 | 1992-01-10 | Decreto Ejecutivo 20984 (1992-01-10) |
