@@ -1,6 +1,2 @@
-Artículo 5º.- El candidato sólo podrá ser designado funcionario
-consular honorario, previo informe favorable del jefe de la misión de
-Costa Rica en el país donde aspira ser nombrado. Donde exista un cónsul
-remunerado, sólo se podrá designar un funcionario consular honorario en
-casos muy calificados, si el movimiento consular lo amerita y previa
-recomendación del cónsul remunerado.
+Artículo 5º.- El Ministerio de Relaciones Exteriores y Culto evaluará a los candidatos con fundamento en los requisitos anteriores y decidirá la designación de los nuevos cónsules honorarios una vez verificada su idoneidad.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1 del Decreto Nº 27448 de 18 de setiembre de 1998, publicado en La Gaceta N° 232 del 30 de noviembre de 1998)

@@ -14,3 +14,4 @@ Regula el Nombramiento de los Funcionarios Consulares Honorarios
 | --- | --- | --- |
 | 1 | 1996-05-22 | la propia norma |
 | 2 | 1996-05-22 | SINALEVI (sin norma nombrada) |
+| 3 | 1998-09-18 | Decreto Ejecutivo 27448 (1998-09-18) |
