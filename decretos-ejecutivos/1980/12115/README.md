@@ -14,3 +14,4 @@ Reforma Reserva Indígena de Abrojos- Montezuma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-01-09 | la propia norma |
+| 2 | 2001-10-26 | Decreto Ejecutivo 29960 (2001-10-26) |
