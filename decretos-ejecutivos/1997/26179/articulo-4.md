@@ -1,0 +1,1 @@
+Artículo 4°-Para los fines de apoyar a COPRE en reducción de la deuda interna, créase un Órgano Asesor del Comité Directivo, adscrito al Ministerio de Hacienda. El Órgano Asesor del Comité Directivo, deberá formular, redactar y proponer al Comité Directivo las acciones y las políticas pertinentes para la venta de activos del Estado con el propósito de reducir la deuda interna.
