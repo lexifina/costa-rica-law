@@ -1,0 +1,1 @@
+Artículo 2°—Todo profesional en medicina deberá presentarse en forma personal ante la imprenta que confeccionará los recetarios debiendo identificarse con el carné del Colegio de Médicos y Cirujanos que lo acredite como tal.

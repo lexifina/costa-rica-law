@@ -1,0 +1,1 @@
+Artículo 5°—Las personas que incumplan lo establecido por las normas anteriores, serán sancionadas de acuerdo con lo establecido por la Ley General de Salud, sin perjuicio de otras sanciones que pudieren ser aplicadas con base en las leyes vigentes.
