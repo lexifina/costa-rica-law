@@ -54,3 +54,4 @@ Directrices Generales de Política Presupuestaria del 2002 para los Ministerios,
 | 39 | 2002-05-24 | Decreto Ejecutivo 30488 (2002-05-24) |
 | 40 | 2002-06-17 | Decreto Ejecutivo 30563 (2002-06-17) |
 | 41 | 2002-07-19 | Decreto Ejecutivo 30590 (2002-07-19) |
+| 42 | 2002-07-30 | Decreto Ejecutivo 30642 (2002-07-30) |

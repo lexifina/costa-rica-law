@@ -147,3 +147,6 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificados los límites de gasto presupuestario y efectivo para el 2002 del Instituto Costarricense de Turismo, por el artículo 1 del decreto ejecutivo N° 30590 de 19 de julio del 2002)
 (Modificados los límites de gasto presupuestario y efectivo para el 2002 del Teatro Nacional, por el artículo 1 del decreto ejecutivo N° 30606 de 27 de junio del 2002)
 (Modificados los límites de gasto presupuestario y efectivo para el 2002 de la Junta Directiva de la Imprenta Nacional, por el artículo 1 del decreto ejecutivo N° 30618 de 17 de julio del 2002)
+(Modificados los límites de gasto para el 2002 de la Dirección de Servicios Fitosanitarios del Estado, por el artículo 1 del decreto ejecutivo N° 30642 de 31 de julio del 2002)
+(Modificados los límites de gasto para el 2002 del Instituto de Alcoholismo y Farmacodependencia, por el artículo 1 del decreto ejecutivo N° 30641 de 30 de julio del 2002)
+(Modificados los límites de gasto para el 2002 del Fondo de Parques Nacionales, por el artículo 1 del decreto ejecutivo N° 30643 de 30 de julio del 2002)
