@@ -1,0 +1,2 @@
+Artículo 62.-
+Quienes se propusieren ceder o comerciar con los documentos a que se refiere el artículo anterior, y los que participaren en las respectivas transacciones, notificarán a la Dirección General del Archivo Nacional el nombre y el domicilio del futuro tenedor o propietario, y dentro de los treinta días siguientes de efectuado el contrato, si es que se realiza, lo harán de conocimiento de la misma Dirección General del Archivo Nacional.

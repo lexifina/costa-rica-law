@@ -1,0 +1,2 @@
+Artículo 10.-
+Se garantiza el libre acceso a todos los documentos que produzcan o custodien las instituciones a las que se refiere el artículo 2 de esta ley. Cuando se trate de documentos declarados secreto de Estado o de acceso restringido, perderán esa condición después de treinta años de haber sido producidos, y podrán facilitarse para investigaciones de carácter científico-cultural, debidamente comprobadas, siempre que no se irrespeten otros derechos constitucionales.

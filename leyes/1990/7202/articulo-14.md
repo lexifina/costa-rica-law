@@ -1,0 +1,3 @@
+Artículo 14.-
+Una vez instalada, la Junta Administrativa del Archivo Nacional integrará su directorio y acordará el día, la hora y el lugar para sesionar. El Directorio estará compuesto por: un presidente, que será el Ministro de Cultura, Juventud y Deportes o su representante, un vicepresidente, un secretario, un tesorero, un fiscal y un vocal. La elección se hará por mayoría absoluta en votación de los directores.
+La ausencia del presidente será suplida por el vicepresidente y, en su defecto, por los otros directores, de preferencia por el vocal. El quórum para todas las sesiones será de cuatro directores; las resoluciones serán tomadas por mayoría absoluta de los votos presentes, y en caso de empate decidirá quien preside.
