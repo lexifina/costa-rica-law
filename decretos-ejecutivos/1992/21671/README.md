@@ -13,3 +13,4 @@ Reglamento Para Publicidad Exterior Frente a Vía Pública (1992)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-11-25 | la propia norma |
+| 2 | 1992-11-25 | Decreto Ejecutivo 26213 (1997-07-17) |
