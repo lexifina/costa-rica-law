@@ -14,3 +14,4 @@ Modifica Límite de Gasto Presupuestario y Efectivo para el año 2001, del Conse
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-01 | la propia norma |
+| 2 | 2001-04-16 | Decreto Ejecutivo 29481 (2001-04-16) |

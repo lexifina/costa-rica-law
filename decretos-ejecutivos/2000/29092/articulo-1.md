@@ -11,3 +11,4 @@ Considerando:
 4º—Que para poder brindar los recursos y mecanismos necesarios en el desarrollo científico y tecnológico de las pequeñas y medianas empresas del país, es necesario ampliar al CONICIT los límites de gasto Presupuestario y Efectivo del 2001. Por tanto,
 Decretan:
 Artículo 1º—Modifícanse para el Consejo Nacional para Investigaciones Científicas y Tecnológicas, los límites de gasto presupuestario y efectivo para el año 2001, establecidos en el Decreto Ejecutivo Nº 28639-H, de manera que el gasto presupuestario y el gasto efectivo total no excedan la suma de ¢797.8 millones, en ese período.
+( Este decreto fue reformado por el Decreto Ejecutivo N° 29481- H del 16 de abril del 2001.)
