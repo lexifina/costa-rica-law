@@ -1,0 +1,1 @@
+Artículo 15.—Para sesionar extraordinariamente, la convocatoria en forma expresa, con por lo menos un día de anticipación, salvo los casos de urgencia. Dicha convocatoria deberá acompañarse de una copia agenda.

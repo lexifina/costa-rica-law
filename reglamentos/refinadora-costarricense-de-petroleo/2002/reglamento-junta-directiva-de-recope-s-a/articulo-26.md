@@ -1,0 +1,1 @@
+Artículo 26.—Las actas se aprobarán en la siguiente sesión ordinaria a excepción de aquellas que adquieran firmeza en la misma sesión o bien de aquellas que por acuerdo de los miembros se posponga la firmaza para la próxima sesión.

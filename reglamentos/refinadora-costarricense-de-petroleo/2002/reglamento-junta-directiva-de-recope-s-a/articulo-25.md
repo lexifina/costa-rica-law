@@ -1,0 +1,1 @@
+Artículo 25.—Cada acta levantada de las sesiones que celebre la Junta Directiva debe llevar su respectivo expediente, el cual estará firmado por los documentos originales, copias o antecedentes de los asuntos que se ha conocido en cada sesión.

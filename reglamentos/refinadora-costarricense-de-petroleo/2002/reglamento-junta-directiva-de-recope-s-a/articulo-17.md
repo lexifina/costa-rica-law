@@ -1,0 +1,1 @@
+Artículo 17.—Las sesiones de la Junta Directiva serán públicas o privadas según lo decida esa Junta. La Junta Directiva podrá autorizar acordándolo así por unanimidad de sus miembros presentes, que tengan acceso a las sesiones personas ajenas a ella; asimismo podrá concederles el derecho a participar en las deliberaciones con voz pero sin voto.

@@ -1,0 +1,2 @@
+Articulo 2°—La Junta Directiva estará integrada por siete miembros a saber: Presidente, Vicepresidente, Secretario, Tesorero y Vocales:
+Primero, Segundo y Tercero; quienes durarán en sus cargos cuatro años. A excepción del Vicepresidente quien será el Ministro de Ambiente y Energía, los restantes miembros de la Junta serán nombrados por el Consejo de Gobierno como Asamblea de Accionistas de RECOPE.

@@ -1,0 +1,1 @@
+Artículo 23.—La comunicación de los acuerdos que involucran dependencias internas e instituciones externas así como personas físicas y jurídicas, le corresponde a la Secretaría de Actas. Sin excepción deberá enviarse copia de todos los acuerdos de la Junta Directiva a la Auditoría Interna y a la Dirección General de Asesoría Legal.
