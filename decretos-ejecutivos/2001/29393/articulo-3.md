@@ -1,0 +1,1 @@
+Artículo 3.- Para los efectos de precisión de escala y mejor detalle de los mapas y el documento en general, el Plan de Ordenamiento Ambiental y, los mapas correspondientes está disponible en todas las oficinas subregionales del Sistema Nacional de Áreas de Conservación del Ministerio del Ambiente y Energía.
