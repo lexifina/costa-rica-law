@@ -1,0 +1,1 @@
+TRANSITORIO I.- Los dineros y otros valores que, al entrar en vigencia esta ley, se encuentren depositados en calidad de garantía a favor de la Dirección General, pasarán a formar parte del fondo especial establecido en esta ley.

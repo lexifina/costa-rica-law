@@ -1,0 +1,1 @@
+TRANSITORIO II.- A aquellos funcionarios que a la fecha de entrada en vigencia de esta ley se encuentren nombrados como oficiales de migración, se les reconocerá el tiempo servido para efectos de su nombramiento en propiedad y se les eximirá del requisito académico a que se refiere el artículo 12 de la misma ley.
