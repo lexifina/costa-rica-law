@@ -1,0 +1,1 @@
+Art. 21. Cuidarà de que se ejecuten puntualmente las sentencias ejecutoriadas de la Corte, y demas Tribunales y Juzgados Eclesiasticos, Civiles, y Militares conforme al art° 82 de la Constitucion §.3°

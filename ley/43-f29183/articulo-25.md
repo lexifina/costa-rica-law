@@ -1,0 +1,1 @@
+Art. 25. A ningun Funcionario y Agente de su nombramiento podrà deponerlo sin causa legalmente justificada y sentenciada; pero si suspenderlos hasta por dos meses sin formacion previa de causa, instruirles expediente por faltas y defectos etc. y pasarlo al Tribunal que corresponda.

@@ -1,0 +1,2 @@
+Ar. 16 Igualmente harà publicar y circular las resoluciones de las Supremas Autoridades Federales, con quienes mantendrà las relaciones convenientes, asi como con los demas Gobiernos de la Union. ( 2 )
+(2) Habiendose disuelto de hecho la federacion Centro-Americana, desde el año de 1838; y constituido Costa-Rica en República independiente por su declaratoria de 30 de Agosto de 1848, las prevenciones de este art. han quedado sin efecto.

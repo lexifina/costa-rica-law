@@ -1,0 +1,3 @@
+Seccion Tercera
+Obligaciones del Ejecutivo respecto de la Legislatura.
+Art. 32. Al abrir cada año la Asambléa sus sesiones ordinarias, presentarà por medio del Ministro General un discurso proponiendola cuanto crea conveniente al bien del Estado, y hará una relación circunstanciada del en que se halle la Administracion pùblica, à la que acompanará un estado general de gastos en el año anterior con el presupuesto de los venideros en el siguiente, agregando otro de la Fuerza armada, y una nota de los Empleados en ejercicio, suspensos, ó ausentes. En tiempo de Sesiones de la Asamblèa le pasará cada mes un estado de entradas y salidas de la Hacienda Pública y otro de la fuerza armada.

@@ -1,0 +1,1 @@
+Art. 33. Asistirà à la apertura de Sesiones ordinarias de la Asambléa acompañado del Ministro General del Despacho, y demas Autoridades Eclesiásticas, Civiles y Militares. Otro tanto deberá hacer al cerrar sus sesiones la misma Asambléa sin perjuicio de pasar à ella en cualquiera ocasión que lo juzgue necesario, avisando por escrito si desea hacerlo en público, ó en secreto.
