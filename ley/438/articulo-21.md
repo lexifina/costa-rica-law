@@ -1,0 +1,2 @@
+Pago de gastos.-Caja Chica
+Artículo 21.- Todo gasto que efectúe la Corporación, deberá cubrirse exclusivamente por medio de cheques a la orden expresa de los acreedores. En el tronco de dichos cheques se anotará el número del acuerdo y la fecha en que la Corporación autorizó el pago. Sin embargo se mantendrá un fondo de Caja Chica para atender al pago de planillas y otros, cuyo monto, de acuerdo con las necesidades, será fijado por la Corporación.
