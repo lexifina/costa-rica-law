@@ -1,0 +1,1 @@
+Art 2°.- Para ser Jefe Político se requiere 1° ser Costarricense en ejercicio de los derechos de ciudadano 2° saber leer y escribir con la perfección posible; 3° tener la edad de veinticinco años; y 4° poseer una propiedad raíz que no baje de quinientos pesos.

@@ -1,0 +1,1 @@
+Art 17°.- Las cuentas de propios que deban contarse en los Cantones por fin del presente año, serán examinadas por los Jefes Políticos nombrando al efecto una comisión, y observándose por lo demás lo dispuesto en circular número compete a la Ilustre Representación Provincial el examen de dichas cuentas, de conformidad con la expresada circular.

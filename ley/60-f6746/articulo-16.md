@@ -1,0 +1,1 @@
+Art.16°.- El Tesorero de Cantón afianzará en responsabilidad en cantidad de quinientos pesos, tendrá el seis por ciento de recaudación de intereses y demás ramos que pertenecen al fondo municipal, rendirá en cuenta al Tesorero provincial y su duración será la de su buen desempeño.

@@ -1,0 +1,1 @@
+Art 19°.- El Juez civil y miliar de Esparza ejercerá allí las funciones de Jefe Político con sujeción al Gobernador de Puntarenas, y por lo demás, aquel Cantón dependerá de la Ilustre Representaciones de la Comarca.
