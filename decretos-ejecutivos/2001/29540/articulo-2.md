@@ -1,0 +1,8 @@
+Artículo 2º—Organización: El Centro Nacional de Información Geoambiental contará con la siguiente estructura:
+a. Un (a) Coordinador (a) Administrativo (a) responsable del manejo de todos los asuntos administrativos del Centro y las relaciones con otras instituciones.
+b. Un (a) Coordinador (a) Técnico (a) responsable de coordinar el grupo de técnicos a cargo de las labores propias del Centro.
+c. Un equipo de funcionarios técnicos en sistemas de información geográfica, geodesia, topografía, cartografía, geología , ingenierías correlacionadas y otras ramas afines a los objetivos del Centro, los cuales podrán ser solicitados en calidad de préstamo al Instituto Geográfico Nacional del Ministerio de Obras Públicas y Transportes; a la Dirección del Catastro Nacional del Ministerio de Justicia y Gracia y a otras instituciones afines con los objetivos del Centro. Además, puede contar con el apoyo de consultorías que se estimen relevantes para la consecución de sus fines.
+d. Un (a) Coordinador (a) legal, quien tendrá a cargo la elaboración de los diferentes convenios y otros documentos legales propios del Centro, además de otros asuntos en ese orden que se le sometan de acuerdo a las necesidades del Centro.
+e. Un secretario (a) ejecutivo (a) encargado de atender las diversas necesidades del Comité Coordinador.
+Las tres coordinaciones en conjunto con el Director General de Hidrocarburos conforman el Comité Coordinador del CENIGA quien estará sujeto en todo a las potestades del Ministro (a) de Ambiente y Energía.
+El Comité Coordinador deberá elegir a un Presidente, el cual será el enlace con el Ministro (a) del Ambiente y Energía. Asimismo, será el encargado de rendir al Ministro (a) un informe cada trimestre acerca de la labor del Centro.

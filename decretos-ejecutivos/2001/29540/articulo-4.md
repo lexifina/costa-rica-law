@@ -1,0 +1,1 @@
+Artículo 4º—Para el logro de sus objetivos, el CENIGA propondrá al Ministro del Ambiente y Energía la suscripción de convenios de cooperación intersinstitucional y de cualquiera otra índole en apoyo a las labores del CENIGA, tanto con el sector publico como el privado, para el mejor desempeño de sus funciones.
