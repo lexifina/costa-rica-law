@@ -1,0 +1,1 @@
+ARTÍCULO 17.-No se cubrirá orden alguna de pago a plazo contra el Tesoro si no tuviere la correspondiente toma de razón de la Contabilidad Nacional. El plazo se entenderá que empieza a correr desde la toma de razón, aun cuando la aceptación de la Secretaria de Hacienda, sea de fecha anterior.

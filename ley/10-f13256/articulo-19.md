@@ -1,0 +1,1 @@
+ARTÍCULO 19.-La Secretaría de Hacienda cerrará sus operaciones, para el público, todos los días hábiles a las dos de la tarde, y a las tres pasará al Tenedor de Libros un memorandum detallado de todas las operaciones practicadas al mismo día.
