@@ -1,0 +1,1 @@
+Artículo 3°—Para efectos de lo dispuesto en las Cartas Contrato que por esta ley se ratifican, el Ministro de Economía y Hacienda, en representación del Gobierno de la Republica, y el Banco Central de Costa Rica, fijarán en un convenio especial los términos y condiciones relativos al pago de intereses sobre el préstamo.

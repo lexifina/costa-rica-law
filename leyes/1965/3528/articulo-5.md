@@ -1,0 +1,1 @@
+Artículo 5°—Mientras no haya sido cancelado totalmente el préstamo a que se hace mención en el artículo 1° de esta ley, el Banco Central de Costa Rica, no obstante lo dispuesto en los artículos 112 y 113, incisos 1) y 2) de la Ley N° 1552 de 23 de abril de 1953, podrá invertir las reservas monetarias internacionales de la nación en depósitos a plazos renovables.
