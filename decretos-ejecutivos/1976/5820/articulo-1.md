@@ -1,0 +1,9 @@
+Nº 5820-G
+DANIEL ODUBER QUIROS
+PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE GOBERNACION, POLICIA, JUSTICIA Y GRACIA,
+Considerando :
+1º-Que recientemente se ha podido comprobar la comisión de ciertas irregularidades en la inscripción en el Registro Público de títulos de propiedad, supuestamente expedidos al amparo de la Ley de Informaciones Posesorias Administrativas, en perjuicio directo del dominio público y de la fe notarial, y registral, dando lugar además esos hechos, entre otras cosas, a serias perturbaciones de las labores de tan importante dependencia oficial con motivo de las minuciosas investigaciones que han debido realizarse en resguardo de los derechos de los propietarios de bienes inmuebles y de los titulares de toda clase de derechos reales sobre inmuebles, y de la seguridad jurídica y económica de la colectividad en general.
+2º-Que los hechos en comentario han puesto de manifiesto la necesidad de adoptar rigurosas medidas en el orden administrativo que hagan imposible que situaciones como la comentada puedan repetirse en el futuro, todo ello, sin perjuicio de las acciones legales de diversa índole, dirigidas a dejar sin efecto las inscripciones fraudulentas practicadas; a sancionar a quienes por acción u omisión resulten ser los responsables de tales actos y a la reparación del daño causado, las cuales ya se encuentran en trámite ante los tribunales competentes. Por tanto,
+DECRETAN
+Artículo 1º- Toda inscripción en el Registro Público, de títulos de propiedad otorgadas con fundamento en las disposiciones de las leyes números 4545 de 20 de marzo de 1970; 5064, de 22 de agosto de 1972, al igual que los que se otorguen dentro de los programas de dotación de tierras que con fundamento enla ley Nº 2825 de 14 de octubre de 1961 y sus reformas -u otras disposiciones conexas- que extienda el Instituto de Tierras y Colonización, se regirán por las normas reglamentarias que señalan los artículos siguientes:
