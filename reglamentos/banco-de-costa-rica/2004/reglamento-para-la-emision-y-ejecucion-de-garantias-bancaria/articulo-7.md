@@ -1,0 +1,1 @@
+Artículo 7º—Vigencia. Una garantía entra en vigencia en la fecha de su emisión, salvo que esté expresamente estipulado que ello ocurrirá en fecha posterior o que la vigencia quede sujeta a condiciones que deberán ser especificadas en la garantía.

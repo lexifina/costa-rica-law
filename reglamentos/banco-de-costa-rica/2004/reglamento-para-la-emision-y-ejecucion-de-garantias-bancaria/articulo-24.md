@@ -1,0 +1,1 @@
+Artículo 24.—Extinción de la garantía. Cuando una garantía se ha extinguido por vencimiento o expiración del plazo no confiere ningún derecho al beneficiario aun cuando éste la exhiba junto con sus eventuales enmiendas.

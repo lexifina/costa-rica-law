@@ -1,0 +1,1 @@
+Artículo 12.—Obligaciones del beneficiario. En caso de requerir la ejecución de la garantía, el beneficiario está obligado a presentarla junto con sus enmiendas y demás documentos que en ella se hubieren especificado dentro del plazo de vigencia, y a formular el requerimiento respectivo.

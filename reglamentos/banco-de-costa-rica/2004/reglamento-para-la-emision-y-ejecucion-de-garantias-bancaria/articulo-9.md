@@ -1,0 +1,1 @@
+Artículo 9º—Intransferibilidad de las garantías. Los certificados de garantía y sus enmiendas no son transferibles salvo que tal facultad se hubiere estipulado en las mismas. No obstante, el beneficiario podrá transferir a favor de un tercero el pago de la suma a que tenga o llegue a tener derecho en virtud de la garantía.

@@ -1,0 +1,1 @@
+Artículo 31.—Trámite. Las enmiendas deberán hacerse constar en documento adicional a la garantía, identificando plenamente la misma y la modificación efectuada. En lo sucesivo deberá ser exhibida conjuntamente con la garantía originaria para todos los efectos.

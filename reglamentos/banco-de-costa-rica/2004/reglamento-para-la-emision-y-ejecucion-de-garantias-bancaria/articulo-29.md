@@ -1,0 +1,3 @@
+Artículo 29.—Cancelación o resolución de la garantía. Cuando la garantía no haya sido ejecutada por haber perdido su utilidad, y aun no haya expirado el plazo y se solicite al Banco su cancelación, deberá acreditarse fehacientemente que el beneficiario no tiene interés en la vigencia del documento, y que el Banco queda liberado de las obligaciones consignadas en la misma. Para ello deberá aportar la garantía original, sus eventuales enmiendas y cualquiera de los siguientes documentos:
+• Solicitud expresa del beneficiario de su cancelación sin responsabilidad para el Banco, que debe venir debidamente autenticada.
+• Copia del acuerdo de adjudicación en firme.

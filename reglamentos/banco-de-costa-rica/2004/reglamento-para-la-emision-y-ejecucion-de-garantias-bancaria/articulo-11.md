@@ -1,0 +1,1 @@
+Artículo 11.—Obligaciones del Banco. El Banco como garante está obligado ante el beneficiario a pagar la garantía a su requerimiento, pero dicha obligación se restringe a los términos especificados en la garantía y sus enmiendas y hasta una cantidad que no exceda del monto de la misma.

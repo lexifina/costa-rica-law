@@ -1,0 +1,2 @@
+Artículo 25.—Efectos de la ejecución. Toda garantía cuyo pago ha sido requerido al Banco antes del vencimiento del plazo o dentro del término de las prórrogas que éste haya sufrido, deberá ser pagada a su requerimiento siempre que apareje la presentación de la documentación acordada y trámites establecidos.
+La omisión de parte del beneficiario de cumplir con las anteriores exigencias, no genera ninguna obligación adicional para el Banco si este demorare su pago en espera del cumplimiento de esos requisitos.
