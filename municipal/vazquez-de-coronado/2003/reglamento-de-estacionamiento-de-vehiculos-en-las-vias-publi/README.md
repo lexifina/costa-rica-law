@@ -14,3 +14,4 @@ Reglamento de estacionamiento de vehículos en las vías públicas del Cantón d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-12 | la propia norma |
+| 2 | 2005-02-07 | Reglamento municipal 145 (2005-02-07) |
