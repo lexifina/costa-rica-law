@@ -1,0 +1,1 @@
+Transitorio II.—Los establecimientos comerciales dedicados a este tipo de actividades deben de garantizar, la seguridad, el respecto a la ley, la moral y las buenas costumbres para el sano desarrollo de este tipo de espectáculos.
