@@ -1,0 +1,1 @@
+ARTÍCULO 3°. -El tabaco de 1a y 2a clase se pagar los cosecheros á razon de cinco pesos arroba, y tres pesos el de 3; pero ni ellos ni los cuadrilleros tienen derecho á las raciones de tabaco que les conceden los artículos 9° y 11 del citado, y 2° de la ley de 25 de noviembre de 1844.
