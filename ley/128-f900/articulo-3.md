@@ -1,0 +1,1 @@
+Art. 3. El presente decreto se imprimirá, ejecutará y publicarà para su cumplimiento. -Dado en la ciudad de San José á los once dias del mes de agosto de mil ochocientos cuarenta y ocho. –José Maria Castro .-Al Ministro de relaciones y gobernacion Señor Don Joaquin Bernardo Calvo.”
