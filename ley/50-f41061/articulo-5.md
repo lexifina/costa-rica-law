@@ -1,0 +1,1 @@
+Art° 5° Si aun no se huviese completado el numero de distribuirá el deficit proporsionalmente entre los Pueblos cuidando de que los que se alisten y obliguen en este caso sean solteros y con las demas consideraciones legales y acostumbradas.
