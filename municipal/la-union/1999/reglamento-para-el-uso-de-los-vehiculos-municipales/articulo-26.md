@@ -1,0 +1,1 @@
+Artículo 26.—Sanción de faltas: Tanto las faltas leves como las graves, y el incumplimiento injustificado de las obligaciones estipuladas en el presente Reglamento para los funcionarios municipales, serán sancionadas en los términos que prescriba el Reglamento Autónomo de Trabajo, la Convención Colectiva, la Legislación Laboral y el Código Municipal.

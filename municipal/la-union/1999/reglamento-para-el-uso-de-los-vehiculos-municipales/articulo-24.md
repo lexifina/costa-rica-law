@@ -1,0 +1,1 @@
+Artículo 24.—Normas supletorias en materia de sanciones: En caso de sanciones, apelaciones relativas a éstas o cualquier asunto relacionado, se aplicarán los procedimientos establecidos en el Reglamento Autónomo de Trabajo de la Municipalidad.

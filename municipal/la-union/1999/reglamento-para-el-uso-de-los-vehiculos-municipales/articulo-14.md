@@ -1,0 +1,15 @@
+Artículo 14.—Grado de autoridad y deberes de la unidad responsable:
+a) Se definirán por escrito las líneas de autoridad y responsabilidad en la organización de la Unidad encargada del uso, control y mantenimiento de vehículos.
+b) Se definirán claramente y en forma escrita los deberes y responsabilidades relacionados con el uso, control y mantenimiento de vehículos. Tal definición será competencia del Alcalde Municipal.
+c) Se definirán y asignarán claramente y por escrito, las diferentes funciones relacionadas con el uso, control y mantenimiento de vehículos.
+d) Se ejercerá una adecuada supervisión en todas las actividades relacionadas con el uso, control y mantenimiento de los vehículos por parte de la Unidad.
+e) La Unidad encargada dispondrá del personal con la capacidad, formación y experiencia necesarios para el desempeño eficiente de las labores que le han sido asignadas.
+f) La Unidad encargada de prestar el servicio de transportes, coordinará necesariamente sus actividades con los usuarios de este servicio.
+g) Será responsabilidad de la Unidad encargada o de quien haga las funciones de ésta, establecer la coordinación que se requiera con los usuarios, en cuanto al uso, control y mantenimiento de vehículos.
+h) Se establecerá el uso permanente de formularios numerados en forma consecutiva para toda aquella información generada por las actividades relativas al uso, control y mantenimiento de vehículos. Dicha función la realizará la Unidad encargada.
+i) La Unidad encargada deberá establecer registros apropiados y confiables que permitan la correcta clasificación de los vehículos y el oportuno control de su uso.
+j) La Unidad encargada deberá establecer registros adecuados para el control de las diferentes actividades relativas al uso, control y mantenimiento de vehículos y los documentos que se generen deberán ser archivados convenientemente mediante los mecanismos que al efecto se establezcan.
+k) La Unidad encargada deberá establecer registros de firmas de los funcionarios encargados de autorizar y solicitar servicios y operaciones relativos al uso, control y mantenimiento de vehículos.
+l) La Unidad deberá informar periódicamente de su actuación y ejercicio al Alcalde Municipal, así como sobre las medidas de control y supervisión establecidas y cualquier asunto que se considere importante relativo a su competencia.
+m) Será responsabilidad del Alcalde Municipal velar porque la Unidad encargada del uso, control y mantenimiento de vehículos conductores y usuarios, observen las normas de control interno. Se deberá establecer, de acuerdo con el criterio de la Unidad encargada del uso, control y mantenimiento preventivo de todos los vehículos y se velará por su cumplimiento.
+n) La Unidad encargada del uso, control y mantenimiento de vehículos, investigará todo accidente de tránsito, percance, robo, hurto o malversación en que se involucre un vehículo propiedad de la Institución y rendirá un informe con recomendaciones a las autoridades de la Municipalidad.

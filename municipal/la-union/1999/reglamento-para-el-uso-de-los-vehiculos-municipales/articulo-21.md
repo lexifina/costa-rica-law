@@ -1,0 +1,1 @@
+Artículo 21.—Planificación de trabajo: Los Jefes de Departamento y de Sección deberán planificar adecuadamente el uso de los vehículos, con el fin de que los que estén en servicio sean aprovechados de la manera más eficiente y puedan utilizarse a partir de la hora reglamentaria.
