@@ -1,0 +1,1 @@
+Artículo 6°-Se autoriza al Catastro Nacional a dotar al IDA de la información catastral existente y dar asesoramiento a este en la ejecución de la labor, asimismo a dar el mantenimiento o la información catastral generada por el Proyecto.
