@@ -1,0 +1,1 @@
+Art 2° Si de los informes de los comisionados al efecto y planos que deben acompañar, resultare que el mismo Poder Ejecutivo queda autorizado para invertir en su apertura hasta la suma de tres mil pesos anuales, durante el término de ocho años a contar desde 1867 en adelante.
