@@ -1,0 +1,1 @@
+Artículo 15.-EI derecho y el diseño será el que la Municipalidad apruebe, será de carácter obligatorio, cuyas dimensiones las estipulará la Municipalidad, el área que ocupe un puesto estacionario no podrá ampliarse de ninguna forma, ni siquiera con toldos o plásticos o cualquier otro objeto que tienda a la protección del mismo contra la lluvia o luz solar.

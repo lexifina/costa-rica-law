@@ -1,0 +1,1 @@
+Artículo 24.-La Municipalidad se reserva el derecho de re ubicar los puestos cuando las condiciones del tránsito o de los peatones lo ameriten; la construcción de las obras nuevas lo requieran y cualquier otra causa a juicio de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 29.-EI no pago del impuesto de patentes ambulantes y estacionarias en los términos fijados en la ley y este Reglamento, generará multas del 2% de intereses mensuales, sin que puedan exceder las multas del 50% del monto adecuado.
