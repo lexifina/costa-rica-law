@@ -1,0 +1,1 @@
+Artículo 2°—Separar administrativamente a la Unidad Especial de Intervención de la Dirección de Inteligencia y Seguridad Nacional, de conformidad con lo dispuesto por la Ley General de Policía, ley No 7410 publicada en el Alcance No 16 a "La Gaceta" No 103 del treinta de mayo de mil novecientos noventa y cuatro.
