@@ -14,3 +14,4 @@ Reglamento Organización Registro Público de la Propiedad Mueble
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-13 | la propia norma |
+| 2 | 1999-04-05 | Decreto Ejecutivo 27904 (1999-04-05) |
