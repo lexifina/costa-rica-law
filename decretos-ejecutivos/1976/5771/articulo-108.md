@@ -1,2 +1,2 @@
 Artículo 108.—En un plazo irrevocable de veinticuatro horas siguientes a la denuncia, el director general de personal procederá a integrar el Órgano Director, que tendrá bajo su responsabilidad el procedimiento sumario administrativo.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 25673 del 11 de septiembre de 1996)
+(Así derogado tácitamente por el artículo 34 del decreto ejecutivo N° 26180 del 4 de julio de 1997, Reglamento para prevenir, investigar y sancionar el Hostigamiento Sexual en el Ministerio de Educación Pública)

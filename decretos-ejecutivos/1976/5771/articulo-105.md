@@ -5,4 +5,4 @@ b) Amenazas explícitas o implícitas, físicas o morales, de daños o castigos 
 c) Exigencia de una conducta cuya sujeción o rechazo sea, en forma explícita o implícita, condición para el empleo o estudio.
 2. Uso de palabras de naturaleza sexual, escrita u orales, que resulten hostiles, humillantes y ofensivas para quien las reciba.
 3. Acercamientos corporales u otras conductas físicas de naturaleza sexual, indeseados y ofensivos para quien los reciba.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 25673 del 11 de septiembre de 1996)
+(Así derogado tácitamente por el artículo 34 del decreto ejecutivo N° 26180 del 4 de julio de 1997, Reglamento para prevenir, investigar y sancionar el Hostigamiento Sexual en el Ministerio de Educación Pública)

@@ -1,2 +1,2 @@
 Artículo 113.—La resolución final tendrá recurso de revocatoria ante el director general de personal, que será interpuesto en un plazo de tres días hábiles a la notificación de ésta y deberá resolver el recurso dentro de los ocho días posteriores a su presentación. Tendrá también recursos de apelación ante el Ministerio de Educación, agotando la vía administrativa.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 25673 del 11 de septiembre de 1996)
+(DEROGADO, tácitamente por el artículo 34 del decreto ejecutivo N° 26180 del 4 de julio de 1997, Reglamento para prevenir, investigar y sancionar el Hostigamiento Sexual en el Ministerio de Educación Pública)

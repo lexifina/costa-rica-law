@@ -4,4 +4,4 @@ a) Condiciones naturales de empleo o de docencia.
 b) Desempeño y cumplimiento laboral o educativo y,
 c) Estado general de bienestar personal.
 También se considera acoso sexual la conducta grave que, habiendo ocurrido una sola vez, perjudique a la víctima en cualquiera de los aspectos indicados.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 25673 del 11 de septiembre de 1996)
+(Así derogado tácitamente por el artículo 34 del decreto ejecutivo N° 26180 del 4 de julio de 1997, Reglamento para prevenir, investigar y sancionar el Hostigamiento Sexual en el Ministerio de Educación Pública)
