@@ -1,0 +1,1 @@
+Artículo 29.—Los Concejales de Distrito podrían realizar asambleas cantonales ordinarias o extraordinarias para tratar asuntos de interés de los distritos y del cantón. En estas asambleas deberán nombrar representantes ante la junta vial y otras instancias cantonales.

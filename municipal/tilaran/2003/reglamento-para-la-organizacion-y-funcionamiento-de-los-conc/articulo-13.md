@@ -1,0 +1,1 @@
+Artículo 13.—los acuerdo y resoluciones del concejo de distrito serán ejecutados de conformidad con los planes de desarrollo distrital elaborados con participación de los vecinos y organizaciones de los distritos.

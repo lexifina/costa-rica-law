@@ -1,0 +1,4 @@
+El Concejo Municipal de Tilarán, en la sesión ordinaria número setenta y uno, celebrada el diez de setiembre del dos mil tres, capítulo de asunto de trámite urgente para la presidencia y regidores, artículo diecinueve, inciso nueve, acuerdo número trescientos veintiocho, acordó por unanimidad y en firme:
+REGLAMENTO PARA LA ORGANIZACIÓN Y FUNCIONAMIENTO DE LOS CONCEJOS DE DISTRITO
+Disposiciones generales
+Artículo 1º—Los Concejos de Distrito están integrados por cinco miembros, vecinos del distrito a quienes se denominará concejales, de los cuales uno será necesariamente el síndico de la circunscripción de que se trate y el otro su suplente si se encontrara presente en la sesión; el primero ejercerá la Presidencia del Concejo de Distrito y en su ausencia será sustituido por el Síndico Suplente, si este se encuentra presente, la Presidencia corresponderá al Vicepresidente.

@@ -1,0 +1,1 @@
+Artículo 2º—Los miembros de los Concejos de Distrito serán nombrados en el mismo día en que se nombre al alcalde municipal, por un período de 4 años, podrían ser reelegidos y desempeñarán sus cargos gratuitamente.
