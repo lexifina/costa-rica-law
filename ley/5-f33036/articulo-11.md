@@ -1,0 +1,1 @@
+Art. 11°.-El Ministerio de Instrucción Pública hará preparar el local, mueblaje y material escolar para la inmediata apertura del establecimiento, el cual, mientras se emiten los reglamentos de régimen general y orden interior, estará sujeto á los de la Escuela Normal en cuanto le sean aplicables.

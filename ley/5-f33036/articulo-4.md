@@ -1,0 +1,1 @@
+Art. 4° .-En la división inferior del Colegio, que abraza tres años de estudios, se enseñarán con el desenvolvimiento necesario las materias que comprende la instrucción elemental complementaria, de acuerdo con los programas que al efecto se formen, y además el latín y el inglés ó el francés;

@@ -1,0 +1,1 @@
+Art. 5°.-El Gimnasio, ó división superior del Colegio, abraza cuatro años de estudios, y en él se enseñarán las asignaturas generales de segunda enseñanza según el plan de la Ley fundamental de instrucción pública y disposiciones que la modifiquen, y las especiales de las secciones clásica, técnica, comercial y pedagógica.
