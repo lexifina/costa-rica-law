@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Traspasos, traslados y ampliación de actividad
+Artículo 27.- Traspaso o traslado de licencias. La solicitud de traspaso, o el traslado de las licencias, deberá ser tramitada con las formalidades o requisitos establecidos en los artículos 12 y 13 de este Reglamento. En todos los casos será necesario el cumplimiento de todos los requisitos señalados para el otorgamiento de la patente o licencia en el nuevo lugar señalado. La Municipalidad podrá suministrar al interesado fórmula para ese fin y se guardará el derecho de solicitar la autenticación del documento por un profesional en derecho.

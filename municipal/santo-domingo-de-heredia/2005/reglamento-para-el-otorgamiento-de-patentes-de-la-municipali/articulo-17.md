@@ -1,0 +1,10 @@
+Artículo 17.- Cancelación de la licencia. La licencia se cancelará tres meses después de que se abandone la actividad así sea comunicado a la Municipalidad por el interesado en formula diseñada para ese fin o nota debidamente firmada por el patentado o representante legal que contenga la información requerida; cuando haya evidencia de que la actividad no está siendo ejercida, o se haya suspendido por más de tres meses. Igualmente, la Municipalidad iniciará los trámites para la cancelación de la licencia cuando el patentado se encuenre moroso en un plazo de al menos dos trimestres o según lo definido en el artículo 21 del presente Reglamento. La Unidad de Gestión de Cobros o Patentes, deberá seguir el siguiente procedimiento para la cancelación de las patentes, que deberá constar en el expediente respectivo (dentro del procedimiento se podrá contar con la colaboración de los miembros del Consejo de Distrito en lo que competa a sus cargos:)
+a) Acta de inspección preparada por funcionario competente de la Municipalidad, donde constar la situación de cierre o abandono de la actividad o lugar utilizado hasta la fecha.
+b) en caso de negocio abierto procedimiento de notificación.
+c) para ningún caso el plazo concedido mediante notificación para que el patentado actualice o subsane los problemas detectados podrá exceder de ocho días.
+d) Actas de notificación de procedimiento de cobro de ser factible la localización del patentado en el domicilio fiscal definido.
+e) Acta de cierre de negocio fundamentada en resolución y colocación de sellos, casos de morosidad o ejercicio ilegal, cambios en la patente.
+f) Resolución fundamentada de cancelación de licencia o patente en caso de imposibilitarse el cierre del establecimiento comercial.
+g) Definición de montos a eliminar del expediente de cobro registrado en los sistemas de información utilizados en la Municipalidad.
+h) Comunicación a la Dirección y Auditoría de la resolución tomada donde consten los montos a eliminar del pendiente de cobro.
+i) cualquier otro elemento que fundamente la resolución.

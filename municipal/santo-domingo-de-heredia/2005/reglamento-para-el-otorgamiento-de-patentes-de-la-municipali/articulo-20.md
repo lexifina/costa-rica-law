@@ -1,0 +1,5 @@
+Artículo 20.- De la declaración jurada. Los patentados o sus representantes deberán presentar a la Municipalidad, una declaración jurada en la que indicarán el monto de los ingresos brutos anuales, y copia sellada por la Dirección General de Tributación o entidad autorizada de la Declaración del Impuesto sobre la Renta, a más tardar:
+a. El 10 de enero, los que realicen su cierre fiscal el 30 de setiembre.
+b. El 30 de enero, los que realicen su cierre fiscal el 31 de diciembre.
+c. El quinto día hábil, siguiente a la fecha autorizada por la citada Dirección, aquellos, patentados que hayan recibido esta aprobación.
+Para los casos señalados en los incisos b) y c) del presente artículo la Municipalidad cobrará los trimestres correspondientes de impuesto conforme al calendario establecido, esto de previo a la declaración y sujeto a reajuste una vez entregada la declaración correspondiente y deberá cancelarse el importe que corresponda al ajuste en un plazo máximo de quince días posteriores a la determinación del mismo.

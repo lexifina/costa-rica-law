@@ -1,0 +1,1 @@
+Artículo 38.- Denuncia ante los órganos jurisdiccionales. La Municipalidad procederá a denunciar ante los órganos jurisdiccionales competentes en los casos contemplados en los artículos 25 y 32 de este Reglamento.

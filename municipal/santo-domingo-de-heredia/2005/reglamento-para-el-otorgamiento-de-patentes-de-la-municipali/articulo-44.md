@@ -1,0 +1,3 @@
+Artículo 44.-De los requisitos de las licencias o patentes temporales. Para efectos de la aprobación de patentes temporales o de temporada se establecen los siguientes requisitos mínimos.
+a. Llenar el formulario establecido por la Municipalidad, donde consten los datos y cumplimiento de los requerimientos establecidos en el artículo 12 del presente Reglamento, así, como la autorización expresa del dueño de la propiedad donde se pretenda establecer la actividad y la determinación del plazo a realizar la actividad.
+b. Bajo ninguna circunstancia se aprobarán patentes temporales en sitios de uso público o áreas comunes a respetar en las propiedades, salvo lo establecido en normativa conexa para ferias, turnos, espectáculos públicos u otros.

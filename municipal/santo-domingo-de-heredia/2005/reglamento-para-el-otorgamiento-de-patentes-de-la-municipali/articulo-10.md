@@ -1,0 +1,1 @@
+Artículo 10°- Excepción a la aplicación. La licencia de venta el licores, ley regulará por ley especial, salvo aquellas Disposiciones de tipo administrativo que sean aplicables, en cuanto a la solicitud, traspaso, traslado, y cancelación de las misma ( artículo 47 del presente Reglamento).

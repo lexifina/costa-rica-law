@@ -1,0 +1,1 @@
+Artículo 46.- Del pago de impuesto por patentes temporales o de temporada. Se determina la cancelación del impuesto correspondiente en un único pago, previo a la apertura del local correspondiente o inicio de la actividad, el pago deberá estimarse de acuerdo a la actividad a realizar, conforme a lo establecido en el presente Reglamento y leyes respectivas
