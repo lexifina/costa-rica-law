@@ -1,0 +1,5 @@
+DECRETO LXXXIX.
+La Asamblea Constituyente designa cuales de las disposiciones emitidas por la Administración Carrillo, deben continuar observándose provisionalmente.
+El General Jefe Supremo Provisorio del Estado de Costa Rica. Por cuanto la Asamblea Constituyente ha decretado lo siguiente.
+La Asamblea Constituyente del Estado de Costa Rica, considerando: que por Decreto del 24 del presente mes se declaran nulos todos los actos del Gobierno intruso en ejercicio del Poder Ejecutivo, del Legislativo y del Constituyente, y nulos sus Decretos, reglamentos, órdenes y resoluciones; y que la conveniencia pública demanda la observancia de éstos en todo ó en parte, decreta.
+Art. 1° Continuarán observándose: 1° el Decreto de 24 de setiembre de 841 para que los médicos puedan tener boticas abiertas con las restricciones que expresa; 2° el de 11 de Enero de 842 sobre premio concedido á Sr. Benito Dengo por la invención de una máquina para limpiar café; y 3° el de 12 de Marzo de 842 sobre ocupación de los reos rematados mientras se remiten á sus destinos.
