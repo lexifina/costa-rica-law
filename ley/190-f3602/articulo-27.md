@@ -5,9 +5,9 @@ hábil de explotación;
 b) Capturar peces, reptiles, crustáceos, cetáceos, zoofitos y demás
 especies de pesca, sujetándose a las dimensiones y pesos permitidos por el
 reglamento de esta ley;
-c) Comprobar la procedencia legal, en los términos del Reglamento
-y demás disposiciones relativas, de los productos de la pesca vedados que
-se posean;
+c) Comprobar la procedencia legal, en los términos del Reglamento y
+demás disposiciones relativas, de los productos de la pesca vedados que se
+posean;
 d) Devolver el despacho "Vía la Pesca", a que se refiere esta ley,
 dentro del plano que se fije;
 e) Devolver a los bancos y criaderos, al efectuar la selección, las
@@ -26,11 +26,11 @@ j) Registrar previamente para su uso, las artes de pesca y las
 embarcaciones extranjeras que se utilicen;
 k) Rendir en los plazos fijados los informes sobre la explotación y
 trabajos que ejecuten al amparo de sus contratos, concesiones o permisos;
-l) Dar las informaciones que solicite el Departamento de Pesca y
-las autoridades fiscales sobre la procedencia de los productos de pesca
-y caza marítima;
-m) Llevar un libro de registro en donde se anoten las explotaciones
-y exportaciones; y
+l) Dar las informaciones que solicite el Departamento de Pesca y las
+autoridades fiscales sobre la procedencia de los productos de pesca y
+caza marítima;
+m) Llevar un libro de registro en donde se anoten las explotaciones y
+exportaciones; y
 n) Cumplir con todas las disposiciones relativas a esta ley y sus
-reglamentos, independientemente de dar cumplimiento a las estipulaciones
-de los contratos o permisos.
+reglamentos, independientemente de dar cumplimiento a las estipulaciones de
+los contratos o permisos.
