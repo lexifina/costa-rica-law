@@ -14,3 +14,4 @@ Crea en la Dirección General del Servicio Civil el Centro de Capacitación y De
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-09-03 | la propia norma |
+| 2 | 1998-03-12 | Decreto Ejecutivo 26786 (1998-03-12) |

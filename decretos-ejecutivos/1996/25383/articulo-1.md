@@ -10,4 +10,5 @@ Considerando:
 decretan:
 CAPITULO I
 De la naturaleza, objetivos y atribuciones
-Artículo 1°—Créase en la Dirección General de Servicio Civil, el Centro de Capacitación y Desarrollo, que en lo sucesivo se denominará CECADES, como órgano central de Subsistencia de Capacitación Personal.
+Artículo 1°—Créase en la Dirección General de Servicio Civil, el Centro de Capacitación y Desarrollo, que en lo sucesivo se denominará CECADES, como órgano central del Subsistema de Capacitación y Desarrollo del Régimen de Servicio Civil.
+(Así reformado mediante artículo 4 del decreto ejecutivo N° 26786 del 12 de marzo de 1998).
