@@ -1,0 +1,1 @@
+Artículo 19.—Valor del metro cuadrado de acera en adoquín: El valor del metro cuadrado por construcción de aceras en adoquín, es de trece mil ciento setenta y cinco colones con setenta y ocho céntimos.

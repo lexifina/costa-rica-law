@@ -1,0 +1,1 @@
+Artículo 10.—Plazo para cumplimiento: La Municipalidad otorgará al contribuyente un plazo de tres a treinta días hábiles para realizar las obras, sin perjuicio de la obligación de obtener el respectivo permiso de construcción, si fuere necesario.
