@@ -1,0 +1,12 @@
+N°25818-MTSS
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
+En uso de las atribuciones que les confieren los incisos 3) y 18) del artículo 140 de la Constitución Política y 25.1 de la Ley General de la Administración Pública, ley No 5867 del 27 de diciembre de 1975,
+Considerando
+lo—Que mediante la ley No 5867 publicada en "La Gaceta" del 27 de diciembre de 1975, se estableció la compensación económica sobre el salario base de la Escala de Sueldos y Salarios de la Administración Pública, para el personal de la Administración Tributaria que se encuentra sujeto, en razón de sus cargos a la prohibición contenida en el numeral 118 del Código de Normas y Procedimientos Tributarios.
+2° Que de conformidad con los dictámenes de la Procuraduría General de la República, N° C.-130 del 24 de junio de 1981, C-06 del 6 de enero de 1986 y c-77 del 10 de abril de 198, se estableció que la Dirección General de Desarrollo Social y Asignaciones Familiares constituye una Administración Tributaria.
+3°—Que de acuerdo con el artículo 16 del decreto ejecutivo 22614-H del 2 de noviembre de 1993, Reglamento a la ley No 5867, la Institución que conforma la Administración Tributaria, recomendará cuáles de sus puestos deben ser atestados, todo bajo el control de la Dirección General de Servicio Civil, según lo establecido en el artículo 02 de la Ley citada.
+4°—Que la Dirección General de Servicio Civil realizó el estudio correspondiente, emitiendo el dictamen N° SI-062-96 que dictaminó favorablemente respecto del puesto que se Índica a continuación: 020910-Profesional 2. Por tanto,
+decretan:
+Artículo lo—Que de conformidad con lo dispuesto en la ley No 5867 del 27 de diciembre de 1975, en sus porcentajes y condiciones establecidas, y para los efectos del derecho de compensación económica en virtud de la prohibición para ejercer otros cargos de conformidad con el artículo 118 del Código de Normas y Procedimientos Tributarios, de conformidad con pronunciamiento de la Procuraduría General de la República No C-130 del 24 de junio de 1981, el Voto de la Sala Constitucional No 1590-90 del 11 de setiembre de 1990 y en ejecución de lo dispuesto en el decreto No 22614-H del 2 de noviembre de 1993, se amplían los puestos afectados por_ la citada prohibición, incluyéndose el siguiente de la Dirección General de Desarrollo Social y Asignaciones Familiares:
+No de puesto | Clasificación
+020910 | Profesional 2
