@@ -1,0 +1,2 @@
+Artículo único.- Adiciónase con un transitorio la Ley General de Pensiones Nº 14 de 2 de diciembre de 1935, el cual dirá:
+"Transitorio.- No obstante lo establecido por el párrafo segundo del artículo 5º de la ley Nº 14 de 2 de diciembre de 1935, la Junta Nacional de Pensiones se reunirá durante el presente año por un período de tres meses a partir de la vigencia de esta ley, a fin de que conozca de las gestiones de pensión de gracia debidamente tramitadas."
