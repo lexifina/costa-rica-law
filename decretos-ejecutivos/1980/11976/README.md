@@ -13,3 +13,4 @@ Crea Comisión de Asistencia al Minusválido
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-11-07 | la propia norma |
+| 2 | 1980-11-07 | SINALEVI (sin norma nombrada) |
