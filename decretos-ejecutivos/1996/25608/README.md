@@ -15,3 +15,4 @@ Insta a las Juntas Directivas de la Junta Administrativa Portuaria y de Desarrol
 | --- | --- | --- |
 | 1 | 1996-10-01 | la propia norma |
 | 2 | 1997-06-09 | Decreto Ejecutivo 26024 (1997-06-09) |
+| 3 | 1998-10-05 | Decreto Ejecutivo 27339 (1998-10-05) |

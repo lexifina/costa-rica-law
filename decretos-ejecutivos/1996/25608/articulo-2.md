@@ -7,6 +7,10 @@ c) La capacitación y reconversión de la mano de obra: Consiste en la asignaci�
 d) Subsidio al trabajador desempleado o subocupado: Se define como un auxilio económico pagadero por una sola vez, de acuerdo a la categoría que establece el estudio socioeconómico que el Ministerio de Trabajo hará a cada uno de los estibadores beneficiados.
 Este beneficio se extenderá a los exestibadores y estibadores, aún cuando hayan recibido prestaciones de su anterior patrono. El monto del subsidio será por la suma de cien mil colones, y por una única vez.
 (Así adicionado el párrafo anterior mediante el artículo 1° del decreto ejecutivo N° 26024 del 09 de junio de 1997).
+e) La Unidad Coordinadora del Plan de Reactivación Económica y Laboral para la Provincia de Limón, tomando en cuenta las necesidades imperantes en la Provincia de Limón, podrá aprobar proyectos en otras áreas fundamentales que vengan a solucionar esas necesidades.
+(Así adicionado el inciso anterior mediante el artículo 13 del decreto ejecutivo N° 27339, publicado en La Gaceta N° 193 del 5 de octubre de 1998).
+f) El Plan de Reactivación Económica y Laboral de la Provincia de Limón podrá ser ampliado a aquellas áreas fundamentales que tengan extrema necesidad y aquellas actividades que tiendan a la solución de las mismas. Siendo en este caso la Unidad Coordinadora del Plan de Reactivación Económica y Laboral la que fije los requisitos de los beneficiarios del citado plan.
+(Así adicionado el inciso anterior mediante el artículo 14 del decreto ejecutivo N° 27339, publicado en La Gaceta N° 193 del 5 de octubre de 1998).
 2. Será obligación de JAPDEVA:
 a) Aportar los recursos financieros para el plan, los cuales provendrá de una recalificación a las tarifas, así como otros fondos que provengan del sector público o privado.
 b) Girar los incentivos económicos a los trabajadores de acuerdo alas indicaciones que tanto el Ministerio de Trabajo como el INA, le estén formulando en este sentido.
