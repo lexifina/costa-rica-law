@@ -1,2 +1,3 @@
 Artículo 3º.- De las exclusiones.
-Los cotizantes voluntarios, incluidos los de convenios de aseguramiento colectivo, sujetos al Reglamento del Seguro Voluntario, no tienen derecho al beneficio de extensión de incapacidades. Este beneficio es exclusivo para los asegurados directos asalariados.
+Las personas sin actividad propia generadora de ingresos, sean cotizantes individuales o por medio de convenio, que contribuyan a este seguro en calidad de asegurados voluntarios, quedan excluidas del beneficio de extensión de incapacidades.
+(Así reformado mediante sesión N° 7393 de 25 de octubre del 2001)
