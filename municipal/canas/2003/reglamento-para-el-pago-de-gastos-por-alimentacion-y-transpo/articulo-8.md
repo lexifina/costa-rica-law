@@ -1,0 +1,1 @@
+Artículo 8º—Cuando al regidor o síndico le asista el derecho al reconocimiento por gastos de transporte y/o alimentación por asistir a una sesión, deberá presentar la liquidación de viáticos correspondiente, en el formulario establecido para tales fines. Por cada sesión asistida realizará una liquidación y su pago será efectivo al presentarse las facturas correspondientes.
