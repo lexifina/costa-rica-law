@@ -14,3 +14,4 @@ Reglamento para la utilización de vehículos del Estado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-08-25 | la propia norma |
+| 2 | 1989-08-25 | Decreto Ejecutivo 19947 (1990-09-17) |
