@@ -1,0 +1,1 @@
+Artículo 2° La Compañía constructora contratará con propietarios de terrenos que se hallen libres de gravámenes, la construcción de casas, pagaderas con intereses de seis por ciento al año y dos por ciento de amortización, o sea ocho por ciento al año sobre costo inicial.
