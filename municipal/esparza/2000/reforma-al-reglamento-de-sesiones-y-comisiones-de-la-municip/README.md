@@ -14,3 +14,4 @@ Reforma al Reglamento de Sesiones y Comisiones de la Municipalidad de Esparza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-09 | la propia norma |
+| 2 | 2000-06-09 | Ley 8 |
