@@ -1,0 +1,1 @@
+Artículo 2°- Dicho empréstito será reintegrable dentro de un plazo de 5 años, y tendrá como garantía la de prenda de primer grado sobre el mismo tractor, y además, la totalidad de las rentas de dicha Municipalidad.
