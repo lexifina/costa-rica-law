@@ -1,0 +1,1 @@
+Artículo 2º.-Deróguense los decretos ejecutivos números 19566-MAG del 7 de febrero de 1990, publicado en "La Gaceta" Nº 82 del 2 de mayo de 1990 y el Nº 22933-MAG del 16 de enero de 1994, publicado en "La Gaceta" Nº 44 del 3 de marzo de 1994.
