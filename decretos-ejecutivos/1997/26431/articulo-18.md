@@ -1,1 +1,1 @@
-Artículo 18—La Dirección de Servicios de Protección Fitosanitaria para el cumplimiento de sus funciones estará conformada por un (a) Director (a), un (a) Subdirector (a) y los departamentos de : Servicios Fitosanitarios Internacionales, Servicios Fitosanitarios Nacionales y Control de Insumos Agrícolas, cada uno de estos departamentos contará con un Jefe que dependerá directamente de la Dirección de Servicios de Protección Fitosanitaria.
+Artículo 18—(Derogado por el artículo 54 del Decreto Ejecutivo N° 30111, del 14 de enero del 2002)
