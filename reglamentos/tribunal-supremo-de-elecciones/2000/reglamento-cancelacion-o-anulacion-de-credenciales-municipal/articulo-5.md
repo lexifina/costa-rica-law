@@ -1,0 +1,1 @@
+Artículo 5º—En cualquier caso, el Tribunal rechazará prima facie la solicitud de cancelación o anulación de credenciales si de los elementos de juicio que obran en su poder se desprende que tal solicitud es manifiestamente improcedente.

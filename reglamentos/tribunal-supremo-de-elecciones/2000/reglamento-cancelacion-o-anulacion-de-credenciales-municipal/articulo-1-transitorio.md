@@ -1,0 +1,1 @@
+Transitorio único: La cancelación o anulación de credenciales de los alcaldes municipales y de los miembros de los Consejos de Distrito sólo competerá al Tribunal a partir de que éstos sean de elección popular, lo que acontecerá en las elecciones del año 2002.

@@ -1,0 +1,2 @@
+Artículo 4º—Cuando se denuncien los hechos contemplados en el artículo 63 de la Ley sobre la Zona Marítima Terrestre, el Tribunal lo comunicará a la Procuraduría General de la República, a fin de que ésta investigue preliminarmente el asunto y ejerza eventualmente la respectiva acción penal.
+El Tribunal resolverá cuando los tribunales penales dicten el respectivo pronunciamiento, teniendo siempre como parte del procedimiento administrativo a la Procuraduría.

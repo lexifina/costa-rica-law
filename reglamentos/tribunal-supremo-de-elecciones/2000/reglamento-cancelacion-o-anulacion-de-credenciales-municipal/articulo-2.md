@@ -1,0 +1,2 @@
+Artículo 2º—Si la solicitud de cancelación de credenciales se sustenta en la ausencia injustificada del funcionario por más de dos meses, el Tribunal pedirá la respectiva certificación municipal y dará audiencia por el término de ocho días, a fin de que el funcionario justifique la ausencia o manifieste lo que considere conveniente a sus intereses.
+El Tribunal decretará la apertura del procedimiento administrativo sólo en caso que dicho funcionario manifieste en esa oportunidad su oposición fundada.
