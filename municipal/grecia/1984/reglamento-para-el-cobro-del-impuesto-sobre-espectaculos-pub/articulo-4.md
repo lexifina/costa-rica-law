@@ -1,0 +1,2 @@
+Pago adelantado
+Artículo 4°— El impuesto podrá ser cancelado por adelantado, este pago puede ser por una vez, semanal, mensual, para este efecto quien promueva el espectáculo público presentará una declaración jurada anticipada precediéndose a hacer la liquidación definitiva cada quince días si es un espectáculo permanente y al día siguiente si es espectáculo ocasional, con base en el número real de asistentes, lo que se comprobará con las entradas (según artículo 2° de la ley No 6844 del 26 de enero de 1983).

@@ -1,0 +1,1 @@
+Artículo 13.—Los informes sobre las personas físicas o jurídicas que se hagan acreedoras a la sanción del artículo 15, serán presentadas por los inspectores de espectáculos públicos, Guardia Rural y canalizados por el departamento del Ejecutivo Municipal.

@@ -1,0 +1,1 @@
+Artículo 12.—Los funcionarios municipales responsables de la efectiva recaudación del impuesto, coordinarán con la Guardia Civil de la localidad, a fin de obtener la colaboración de esta en la aplicación de este Reglamento.

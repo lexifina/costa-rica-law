@@ -1,0 +1,1 @@
+Artículo 9°—Al cliente se le proporcionará la boleta, la cual deberá ser entregada al encargado de la puerta, una vez finalizada la labor del funcionario procederá a recoger las entradas utilizadas con su respectivo sobrante si lo hubiera.

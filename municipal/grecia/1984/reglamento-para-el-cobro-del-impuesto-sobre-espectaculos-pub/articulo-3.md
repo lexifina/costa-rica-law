@@ -1,0 +1,1 @@
+Articulo 3°— Quedan obligadas las personas físicas o jurídicas afectas al impuesto a emitir las boletas de entrada debidamente numeradas en secuencia por serie para lo cual la Municipalidad les proporcionará los talonarios, sellados por la Tesorería Municipal, cuyo valor será precio de costo.

@@ -1,0 +1,1 @@
+Articulo 6°—- Las personas físicas o jurídicas interesadas en obtener la exención a que se refiere el artículo 5° de este Reglamento deberán previamente y en un término de ocho días antes de la actividad, hacer la solicitud correspondiente en la fórmula que para tales efectos acordará la Municipalidad.
