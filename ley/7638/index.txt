@@ -1,5 +1,10 @@
 articulo-1.md
 articulo-2.md
+articulo-2-bis.md
+articulo-2-ter.md
+articulo-2-quater.md
+articulo-2-quinquies.md
+articulo-2-sexies.md
 articulo-3.md
 articulo-4.md
 articulo-5.md

@@ -1,27 +1,14 @@
-ARTICULO 4.- Consejo Consultivo de Comercio Exterior
-Establécese un Consejo Consultivo de Comercio Exterior, que
-asesorará al Poder Ejecutivo en la definición de las políticas de
-comercio exterior e inversión extranjera, y para promover mecanismos de
-coordinación y cooperación con el sector privado, a fin de ejecutar esas
-políticas y las negociaciones comerciales internacionales. Estará
-integrado por los siguientes miembros:
-a) El Ministro de Comercio Exterior, quien lo presidirá y, en su
-ausencia, será sustituido por su Viceministro.
-b) El Ministro de Economía, Industria y Comercio o, en su ausencia,
-el Viceministro.
-c) El Ministro de Agricultura y Ganadería o, en su ausencia, el
-Viceministro.
-d) El Ministro de Relaciones Exteriores y Culto o un representante
-suyo especialmente designado al efecto.
-e) El Presidente o, en su ausencia, el Vicepresidente designado al
-efecto, de cada uno de los siguientes organismos: Unión
-Costarricense de Cámaras y Asociaciones de la Empresa Privada,
-Cámara de Industrias, Cámara de Comercio, Cámara de Exportadores
-y Cámara de Agricultura, quienes no devengarán dietas.
-f) Dos representantes de pequeños y medianos productores y
-empresarios, designados por organizaciones legitimadas.
-El Ministro de Comercio Exterior podrá invitar a participar en las
-sesiones de este Consejo a los Ministros de otras carteras, los
-representantes de otras organizaciones públicas y privadas cuya actividad
-incida sobre las políticas de comercio exterior e inversión, o a otras
-personas relacionadas con el tema.
+Artículo 4.-Consejo Consultivo de Comercio Exterior
+Establecese el Consejo Consultivo de Comercio Exterior para que asesore al Poder Ejecutivo en materia de políticas de comercio exterior e inversión extranjera y vele por el cumplimiento de tales políticas. Asimismo, a este Consejo le corresponder promover mecanismos de coordinación y cooperación entre el sector público y el sector privado, para la debida ejecución de las políticas y las negociaciones internacionales sobre la materia. El Consejo Consultivo podrá promover y revisar, periódicamente, los programas de reconversión productiva que se ejecuten, producto de las políticas comerciales desarrolladas por el país. Además, al Consejo Consultivo le corresponderá conocer los informes de la Dirección de Aplicación de Acuerdos Comerciales Internacionales y analizarlos. Dichos informes podrán servir de base para la suscripción de futuros tratados. El Consejo estar integrado por los siguientes miembros, quienes no devengaran dietas:
+a) El Ministro de Comercio Exterior, quien lo presidir y, en su ausencia, ser sustituido por el Viceministro.
+b) El Ministro de Economía, Industria y Comercio o, en su ausencia, el Viceministro.
+c) El Ministro de Agricultura y Ganadería o, en su ausencia, el Viceministro.
+d) El Ministro de Relaciones Exteriores y Culto o un representante suyo especialmente designado.
+e) El Presidente o, en su ausencia, el Vicepresidente designado al efecto, por cada uno de los siguientes organismos: Unión Costarricense de Cámaras y Asociaciones de la Empresa Privada, Cámara de Industrias, Cámara de Comercio, Cámara de Exportadores, Cámara de Agricultura, Cámara de Representantes de Casas Extranjeras, Distribuidores e Importadores de Costa Rica y Cámara Costarricense de la Industria Alimentaria.
+f) Un representante de la Unión Nacional de Pequeños y Medianos Productores Agropecuarios Costarricenses (UPANACIONAL).
+g) Dos representantes de organizaciones de pequeños y medianos productores y empresarios, designados por organizaciones legitimadas.
+h) Un representante de la Federación Nacional de Asociaciones de Consumidores (FENASCO).
+i) Dos representantes de las organizaciones de consumidores, designados por organizaciones legitimadas.
+j) El Presidente o un representante de CINDE.
+k) El Gerente General o un representante de la Promotora de Comercio Exterior (PROCOMER). El Ministro de Comercio Exterior podrá invitar a participar en las sesiones de este Consejo a los ministros de otras carteras, los representantes de otras organizaciones, públicas o privadas, cuya actividad incida sobre las políticas de comercio exterior e inversión, o a otras personas relacionadas con el tema. En el ejercicio de esta atribución, el número de invitados del Ministro no podrá exceder de uno por sesión. El Ministro de Comercio Exterior podrá convocar a los ex Ministros de Comercio Exterior a las sesiones del Consejo. El Consejo se reunir en sesión ordinaria al menos una vez cada dos meses y, en sesión extraordinaria, las veces que sea necesario para cumplir su cometido. Las sesiones ser n convocadas por el Ministro de Comercio Exterior. Con el propósito de mantener una mejor coordinación con los miembros de los Poderes Legislativo y Ejecutivo, el Ministro de Comercio Exterior podrá convocar a diputados y ministros, en calidad de invitados. Cuando el tema lo amerite, el Ministro de Comercio Exterior podrá convocar, a un foro de discusión especial, a los representantes de otras organizaciones públicas o privadas, cuya actividad incida sobre las políticas de comercio exterior o inversión, o a otras personas relacionadas con el tema. De cada sesión del Consejo Consultivo se levantar una minuta donde se consignaran los temas tratados y las posiciones expresadas por los integrantes. La Dirección General de Comercio Exterior actuar como secretaria técnica del Consejo Consultivo, con el fin de darles seguimiento a las recomendaciones emanadas de dicho Consejo."
+(Así reformado por el artículo 10 de la Ley para las Negociones Comerciales y la Administración de los Tratados de Libre Comercio, Acuerdos e Instrumentos de Comercio Exterior, N° 8056 del 21 de diciembre del 2000)
