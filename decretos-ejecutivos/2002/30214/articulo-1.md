@@ -44,6 +44,8 @@ Consejo Nacional de Investigaciones Científicas y T. 344,1
 Consejo Nacional de Producción 8.607,6
 Consejo Nacional de Rehabilitación 666,0
 Consejo Nacional Persona Adulto Mayor 1.213,0
+Consejo Técnico de Asistencia Médico Social CTAMS 1.116.3
+(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
 Consejo Transporte Público 628,5
 Direc. Serv. de Protec. Fitosanitaria 868,4
 Direc. Salud y Produc. Pecuaria 637,0
@@ -75,8 +77,12 @@ Instituto Nacional de Estadística y Censos 924,4
 Instituto Nacional de Fomento Cooperativo 1.012,5
 Instituto Nacional de las Mujeres 904,3
 Instituto Nacional de Vivienda y Urbanismo 6.102,0
+Instituto sobre Alcoholismo y Farmacodependencia IAFA 945.3
+(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
 Junta de Administración Portuaria y de
 Desarrollo Económico de la Vertiente Atlántica 12.984,7
+Junta Administrativa de la Imprenta Nacional 623.9
+(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
 Junta Administrativa del Registro Nacional 3.923,3
 Junta de Desarrollo Portuario del Muelle de Golfito 99,1
 Junta de Desarrollo Regional de la Zona Sur 2.156,8
@@ -88,7 +94,11 @@ Museo Histórico Juan Santa María 89,1
 Museo Nacional 571,5
 Museo Rafael A. Calderón Guardia 57,6
 Oficina del Arroz 140,6
+Oficina de Cooperación Internacional de la Salud OCIS 2.930.0
+(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
 Oficina Nacional de Semillas 136,0
+Patronato de Construcciones, Instalaciones y Adquisición de Bienes 2.685.5
+(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
 Patronato Nacional de Ciegos 27,0
 Patronato Nacional de la Infancia 6.115,5
 Patronato Nacional de Rehabilitación 153,3
@@ -100,9 +110,12 @@ Radiográfica Costarricense .S.A. 4.152,9
 Refinadora Costarricense de Petróleo 25.483,3
 Secret. Eject. De Planificación Sector Agropecuario 22,3
 Servicio Nacional de Aguas Subterráneas Riego y A. 1.501,4
+Sistema Nacional de Radio y Televisión SINART 675.1
+(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
+Teatro Nacional 322.3
+(Así adicionado por el artículo 1 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
 Teatro Popular Melico Salazar 570,6
 Unidad Ejecutora PPZN MIDEPLAN 10,3
 (Interpretado por el artículo 1 del Decreto Ejecutivo N° 30401 de 15 de abril del 2002, en el sentido de que para la Oficina del Arroz, el límite de gasto presupuestario y el límite de gasto efectivo señalados en el DE N° 29511-H comprende el período que va del 1° de julio del 2002 al 30 de junio del 2003 y el porcentaje de crecimiento del gasto presupuestario que señala el DE N° 30214-H, se establece para el período que va del 1° de julio del 2003 al 30 de junio del 2004, de acuerdo con el ejercicio económico de la entidad.)
 (Mediante Decreto Ejecutivo N° 30693 de 27 de agosto del 2002 se modificapara el Instituto Costarricense del Deporte y la Recreación los límites de gasto presupuestario y de gasto efectivo para el año 2003)
 (Mediante Decreto Ejecutivo N° 30784 de 2 de octubre del 2002 se modifica para RECOPE los límites de gasto presupuestario y de gasto efectivo para el año 2003)
-(Mediante Decreto Ejecutivo N° 30831 de 12 de noviembre del 2002 se modifica para el Consejo Nacional para Investigaciones Científicas y Tecnológicas los límites de gasto presupuestario y de gasto efectivo para el año 2003)

@@ -14,6 +14,8 @@ a) Para todas las entidades, según corresponda:
 - Aporte patronal a la CCSS para el Fondo de Capitalización Laboral, Ley Nº 7983.
 - Aporte patronal al Banco Popular y de Desarrollo Comunal, inciso b) art. 13 Ley Nº 7983.
 - Otros aportes patronales, Ley Nº 7983.
+- Recursos que transfieran las entidades públicas a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, de conformidad con lo que establece el párrafo segundo artículo 37 de la Ley N° 7914.
+(Así adicionado por el artículo 2 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
 - Reintegros vía transferencia al FODESAF.
 - Montos asignados para la atención de lo dispuesto en
 Ley Nº 7972.
@@ -108,3 +110,13 @@ Canon Aviación Civil
 Comisión sobre tarjetas de crédito.
 Servicio Nacional de Aguas Subterráneas, Transferencia a SEPSA según Ley Nº 6064.
 Riego y Avenamiento (SENARA)
+Consejo Técnico de Asistencia Médico Social (CTAMS): Transferencias al Inciensa según Ley Nº 5412 y sus reformas.
+(Así adicionado por artículo 2 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
+Transferencia a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, según Ley N° 5412, Ley Orgánica del Ministerio de Salud.
+(Así adicionado por artículo 2 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
+Junta Administrativa de la Imprenta Nacional: Compras de papel, tinta y planchas de imprenta.
+(Así adicionado por artículo 2 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
+Teatro Nacional: Transferencia a Compañía Nacional de Teatro, Museo de Arte Costarricense y Orquesta Sinfónica Nacional.
+(Así adicionado por artículo 2 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
+Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (CNE): Recursos destinados a la atención de emergencias nacionales declaradas por el Poder Ejecutivo.
+(Así adicionado por artículo 2 del decreto ejecutivo N° 30824 de 22 de octubre del 2002)
