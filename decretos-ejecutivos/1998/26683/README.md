@@ -14,3 +14,4 @@ Reglamento interno de la Comisión de Tecnología y Seguridad de la Información
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-26 | la propia norma |
+| 2 | 1998-02-26 | Ley 8 |
