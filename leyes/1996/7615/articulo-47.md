@@ -1,0 +1,2 @@
+ARTICULO 47.- Restricción específica de los poderes para manifestar el consentimiento de un Estado.
+Si los poderes de un representante para manifestar el consentimiento de un Estado en obligarse por un tratado determinado han sido objeto de una restricción específica, la inobservancia de esa restricción por tal representante no podrá alegarse como vicio del consentimiento manifestado por él, a menos que la restricción haya sido notificada, con anterioridad a la manifestación de ese consentimiento, a los demás Estados negociadores.

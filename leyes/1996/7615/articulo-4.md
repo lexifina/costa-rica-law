@@ -1,0 +1,2 @@
+ARTICULO 4.- Irretroactividad de la presente convención.
+Sin perjuicio de la aplicación de cualesquiera normas enunciadas en la presente Convención a las que los tratados estén sometidos en virtud del derecho internacional independientemente de la Convención, esta sólo se aplicará a los tratados que sean celebrados por Estados después de la entrada en vigor de la presente Convención con respecto a tales Estados.
