@@ -1,1 +1,1 @@
-Artículo 2§.- Esta ley rige a partir de su publicación.
+Artículo 2º.- (ANULADO por Resolución de la Sala Constitucional Nº 969-90 de las 16:30 horas del 20 de agosto de 1990).
