@@ -1,0 +1,6 @@
+Artículo 3°—La Comisión Coordinadora someterá sus actuaciones a los siguientes requisitos generales:
+a) Para realizar elección se requiere la presencia de un número mayor de la mitad de los Directores Provinciales e Inspectores Escolares de Educación Primaria, de los Directores de los Colegios y escuelas oficiales de Educación Secundaria y Normal, y de los Miembros de las Directivas de las Asociaciones de Educadores, según sea el caso, y tomando cada sector representativo en su conjunto.
+b) Los votos de los Directores Provinciales e Inspectores Escolares de Educación Primaria, y de los Directores de los Colegios y Escuelas Oficiales de Educación Secundaria y Normal, en cada caso, serán individuales y su representación es de carácter nacional.
+c) Las Directivas de las Asociaciones de Educadores inscritas conforme a la Ley, tendrán derecho a tantos votos cuantos sean sus asociados a razón de un voto por cada quinientos afiliados o fracción. Pero cada una de ellas postulará un solo candidato.
+d) Se considerará electo en cualquier caso, quien obtenga simple mayoría de votos.
+e) Si por falta de asistencia o por cualquier otro motivo una elección no se realizare en la primera convocatoria, la comisión coordinadora convocará hasta dos veces más; y en la última oportunidad realizará la elección de acuerdo con el número de concurrentes.
