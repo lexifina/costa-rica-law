@@ -1,0 +1,1 @@
+Artículo 3°─ Con arreglo a lo que la Ley de Administración Financiera de la República dispone, y atendiendo las indicaciones que haga la Contraloría General de la República, el Comité administrará los recursos económicos que reciba del sector público o privado como aportes para la consecución del fin para el cual se constituye.

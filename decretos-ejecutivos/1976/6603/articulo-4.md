@@ -1,0 +1,1 @@
+Artículo 4°─ Para el manejo y control de sus dineros, el comité abrirá una cuenta corriente, en uno de los bancos del sistema Bancario Nacional, en donde los depositará. El giro contra esa cuenta, se hará con la firma del Presidente y Vicepresidente del Comité.
