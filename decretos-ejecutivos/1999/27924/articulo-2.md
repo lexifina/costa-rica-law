@@ -1,0 +1,1 @@
+Artículo 2°—La administración del Refugio, así como las recomendaciones técnicas y las políticas de manejo serán emanadas por el Sistema Nacional de Áreas de Conservación, del Ministerio del Ambiente y Energía y serán ejecutadas por el Área de Conservación de Osa.
