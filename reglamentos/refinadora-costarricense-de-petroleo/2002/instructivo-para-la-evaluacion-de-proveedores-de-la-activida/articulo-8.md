@@ -1,0 +1,2 @@
+8.—Elaboración. Thalía Zúñiga Rivera
+Nota La Junta Directiva de RECOPE, en el artículo Nº 3 del acta de la sesión ordinaria Nº 3666-27, celebrada el viernes 16 de agosto de 2002, autorizó la publicación de ajustes al "Instructivo para la evaluación de proveedores de la actividad contractual no ordinaria", código AF-03-03-002. La incorporación de estos ajustes da lugar a la versión 2 de este instructivo.
