@@ -1,0 +1,1 @@
+Artículo 9º—Etiquetado. Todos los productos peligrosos deberán ser manipulados en envases con sus respectivas etiquetas en idioma español, adheridas o impresas en su envase, o en papelería adjunta, de acuerdo a las indicaciones establecidas en los anexos 4 y 5.

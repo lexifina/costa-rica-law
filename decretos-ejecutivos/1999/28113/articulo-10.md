@@ -1,0 +1,1 @@
+Artículo 10.—Certificados de registro y venta en el país. El Ministerio emitirá certificados de registro y venta en el país, a toda persona física o jurídica que manipule productos peligrosos, cuando el producto esté registrado ante el Ministerio.
