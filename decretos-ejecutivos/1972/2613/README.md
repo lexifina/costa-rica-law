@@ -14,3 +14,4 @@ Reglamento General para autorizar el ejercicio a Profesionales de ramas de las C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1972-11-14 | la propia norma |
+| 2 | 1998-01-09 | SINALEVI (sin norma nombrada) |
