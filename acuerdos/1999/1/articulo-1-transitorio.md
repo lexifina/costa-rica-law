@@ -1,0 +1,2 @@
+Transitorios
+I°—Los puestos de bolsa que ya informaron a la Superintendencia la intención de cerrar dichas carteras, estarán excluidos de la solicitud de autorización por parte de esta Superintendencia. Sin embargo, para la liquidación de los saldos de carteras que tengan al momento de recibida la presente comunicación, deberán cumplir con las demás disposiciones establecidas en el presente acuerdo.

@@ -1,0 +1,1 @@
+II.—Los puestos de bolsa que ya concluyeron con la liquidación de la cartera respectiva, deberán presentar a la Superintendencia a más tardar diez días hábiles después de recibida esta comunicación, un informe que detalle el procedimiento seguido para dicha liquidación.
