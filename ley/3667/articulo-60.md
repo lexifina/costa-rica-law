@@ -11,5 +11,6 @@ Tribunal;
 e) Que los escritos de interposición de la acción o de formalización
 de la demanda se hubieren presentado fuera de los plazos respectivos;
 y
-f) Que dichos escritos adolecieron de defectos formales que impidan
+(*) f) Que dichos escritos adolecieron de defectos formales que impidan
 verter pronunciamiento en cuanto al fondo.
+(*) (Por resolución de la Sala Constitucional N° 3481-2003 de las 14:03 hrs. de 2 de mayo de 2003, se declara inconstitucional, la interpretación judicial que hace la Sala Primera de Casación sobre este inciso).

@@ -17,12 +17,12 @@ d) Copia del acto o traslado del acto o de la disposición impugnados,
 o, cuandomenos, indicación del expediente en que haya recaído o
 del periódico oficialen que se haya publicado.
 3. Si no se acompañaren tales documentos o los presentados fueren
-incompletos y, en general, siempre que el Tribunal estime que no
-concurren los requisitos necesarios para la validez de la comparecencia,
-señalará un plazo de diez días para que el demandante ssubsane el
-defecto, y si no lo hiciere, ordenará archivar las actuaciones.
+incompletos y, en general, siempre que el Tribunal estime que no concurren
+los requisitos necesarios para la validez de la comparecencia, señalará un
+plazo de diez días para que el demandante ssubsane el defecto, y si no lo
+hiciere, ordenará archivar las actuaciones.
 4. El juicio formulado por la Administración autora de algún acto
-declarado lesivo, se iniciará con la presentación de la demanda a que
-se refiere el artículo 46, a la que se acompañará el expediente
-administrativo y también una copia certificada de la declaración de
-lesividad, cuando ésta no constare en aquél.
+declarado lesivo, se iniciará con la presentación de la demanda a que se
+refiere el artículo 46, a la que se acompañará el expediente administrativo
+y también una copia certificada de la declaración de lesividad, cuando ésta
+no constare en aquél.
