@@ -1,0 +1,1 @@
+Artículo 7º—La Municipalidad creará una Comisión para Atender en Forma Exclusiva los asuntos que le remitan los Concejos de Distrito. Esta Comisión será integrada en la forma y términos que establece el Código Municipal y deberá acatar lo señalado en el artículo 59.

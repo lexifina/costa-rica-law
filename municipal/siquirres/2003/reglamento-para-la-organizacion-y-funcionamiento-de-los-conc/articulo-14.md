@@ -1,0 +1,1 @@
+Artículo 14.—El Concejo de Distrito deberá reunirse ordinariamente al menos dos veces al mes, debiendo comunicar a la Municipalidad: el día, la hora y lugar que designen para tal efecto. Pudiendo celebrar sesiones extraordinarias previa Convocatoria o cuando así lo convoquen tres de sus miembros.

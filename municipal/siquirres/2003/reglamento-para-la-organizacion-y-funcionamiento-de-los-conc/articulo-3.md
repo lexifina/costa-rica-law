@@ -1,0 +1,1 @@
+Artículo 3º—Los concejales de distrito se preocuparán por fomentar la participación activa, consciente y democrática de los vecinos en las decisiones del Gobierno Local, a fin de promover el desarrollo local.
