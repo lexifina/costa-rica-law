@@ -1,0 +1,1 @@
+Artículo 10.—El Auditor Interno deberá proponer al Concejo, con la debida justificación la creación de plazas y servicios que considere indispensable para el cumplimiento de su Plan Anual de Trabajo y en general para el buen funcionamiento de su unidad.

@@ -1,0 +1,1 @@
+Artículo 17. — Es estrictamente confidencial la información que el Auditor Interno obtenga en el ejercicio de sus funciones. Sin embargo, esta confidencialidad no se aplicará a los requisitos de la Contraloría General de la República en el ejercicio de su competencia fiscalizadora, ni al Concejo como máxima autoridad, ni cuando haya solicitud expresa de carácter judicial.
