@@ -1,3 +1,5 @@
-Artículo 104.—El monto máximo de los préstamos hipotecarios agrícolas que el Departamento podrá conceder a una persona natural o jurídica, será de cuarenta mil colones ( ¢40,000.00).
+Artículo 104.—El monto máximo de los préstamos hipotecarios agrícolas que el Departamento podrá conceder a una persona natural o jurídica, será de doscientos cincuenta mil colones( ¢ 250.000.00)(*)
+(*)(Así reformado el monto anterior por el artículo 16 de la ley N° 218 del 13 de octubre de 1948)
 Los préstamos de esta clase que no excedan de veinticinco mil colones (¢ 5 25,000.00), necesitarán la aprobación de la Juntaron voto favorable de cuatro directores, por lo menos. Los préstamos que excedan de veinticinco mil colones (¢ 25,000.00) y hasta el máximo de cuarenta mil colones (¢ 40.000.00), deberán ser acordados con voto unánime.
-Los préstamos que el Departamento conceda para la adquisición o construcción de edificios, no podrán exceder de veinte mil colones (¢ 20,000.00), como máximo para cada persona natural o jurídica, y deberán ser acordados con voto favorable de cuatro directores, por lo menos.
+Los préstamos que el Departamento conceda para la adquisición o construcción de edificios, no podrán exceder de cincuenta mil colones (¢50.000.00)(*), como máximo para cada persona natural o jurídica, y deberán ser acordados con voto favorable de cuatro directores, por lo menos.
+(*)(Así reformado el monto anterior por el artículo 16 de la ley N° 218 del 13 de octubre de 1948)
