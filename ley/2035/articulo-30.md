@@ -1,0 +1,1 @@
+Artículo 30.- El Gerente y el Subgerente quedarán sujetos a las mismas disposiciones que para los miembros de la Junta establecen los artículos 17 a 27 inclusive, de la presente ley, en cuanto les fuere racionalmente aplicable. La remoción del Gerente y el Subgerente sólo podrá acordarse con el mismo número de votos requeridos para su nombramiento.

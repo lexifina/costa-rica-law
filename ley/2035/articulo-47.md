@@ -1,0 +1,1 @@
+Artículo 47.- La inversión a que se refiere el artículo anterior no podrá ser superior al cinco por ciento del capital y reservas del Consejo y en ningún caso el total de inversiones de esta clase podrá ser superior al 15% del capital y reservas del Consejo. Para estas inversiones se requerirá el voto favorable de no menos de cuatro de los miembros de la Junta Directiva.

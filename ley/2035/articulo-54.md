@@ -1,0 +1,1 @@
+Artículo 54.- La Fábrica dirigirá su producción procurando darle una mayor importancia a la elaboración de productos de mayor contenido alcohólico y de mínima toxicidad y conducirá su propaganda dando preferencia a los productos a que se refiere este artículo.

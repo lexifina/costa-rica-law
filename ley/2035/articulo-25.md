@@ -1,0 +1,1 @@
+Artículo 25.- El quórum de las sesiones se formará con tres miembros. El Gerente o el Subgerente y el Auditor deben asistir a las sesiones de la Junta, así como los Jefes de Departamento cuando fueren llamados, y todos ellos tendrán voz pero no voto.

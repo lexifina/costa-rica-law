@@ -1,0 +1,1 @@
+Artículo 10.- El patrimonio del Consejo estará constituído, además del capital inicial a que se refiere el artículo anterior, por los siguientes conceptos que se contabilizarán en cuentas separadas: nuevas aportaciones de capital, reservas patrimoniales que acordare la Junta y utilidades netas provenientes de las liquidaciones anuales.
