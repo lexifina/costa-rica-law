@@ -1,0 +1,19 @@
+ARTICULO XI
+1.- El estado de salud de los trabajadores expuestos o que puedan
+estar expuestos a los riesgos profesionales debidos a la contaminación del
+aire, el ruido y las vibraciones en el lugar de trabajo deberá ser objeto
+de vigilancia, a intervalos apropiados, según las modalidades y en las
+circunstancias que fije la autoridad competente. Esta vigilancia deberá
+comprender un examen médico previo al empleo y exámenes periódicos, según
+determine la autoridad competente.
+2.- La vigilancia prevista en el párrafo 1 del presente artículo no
+deberá ocasionar gasto alguno al trabajador.
+3.-Cuando por razones médicas sea desaconsejable la permanencia de un
+trabajador en un puesto que entrañe exposición a la contaminación del aire,
+el ruido o las vibraciones, deberán adoptarse todas las medidas compatibles
+con la práctica y las condiciones nacionales para trasladarlo a otro empleo
+adecuado o para asegurarle el mantenimiento de sus ingresos mediante
+prestaciones de seguridad social o por cualquier otro método.
+4.- Las medidas tomadas para dar efecto al presente Convenio no
+deberán afectar desfavorablemente los derechos de los trabajadores
+previstos en la legislación sobre seguridad social o seguros sociales.
