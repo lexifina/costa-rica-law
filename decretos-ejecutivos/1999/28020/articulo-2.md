@@ -1,0 +1,1 @@
+Artículo 2°—Este decreto se comunicará a los Gobiernos Centroamericanos y a la SIECA, a efecto de dar cumplimiento con lo dispuesto en el Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.
