@@ -1,0 +1,1 @@
+Artículo 13° Los empresarios presentarán mensualmente al Gobernador de Puntarenas una lista que contenga los nombres de sus empleados y exprese los cambios, supresiones o defunciones que hayan ocurrido en el personal de la empresa.
