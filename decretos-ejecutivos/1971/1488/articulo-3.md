@@ -1,0 +1,1 @@
+Artículo 3°.- La Dirección General de la Tributación Directa y las Municipalidades de llos cantones de Cartago y de El Guarco tomarán razón de las propiedades afectadas por este decreto, para efectos de la condonación de deudas que establece el artículo 8° de la citada ley.

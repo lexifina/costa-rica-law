@@ -1,0 +1,3 @@
+Artículo 2°.- Los propietarios interesados incluidos en este reserva , deberán presentar los títulos de propiedad y los planos en su poder al Ministerio de transportes, para los efectos de la expropiación que establece el artículo 2° de la mencionada ley.
+El derecho de propiedad se demostrará mediante título fehaciente y en caso de que hubiere necesidad de obtener certificación del Registro de la Propiedad o de la Tributación Directa, éstas se expedirán libres de todo derecho o tasa.
+Igualmente estará libre de todo impuesto, derecho u honorario, la escritura de traspaso del terreno expropiado que deberá hacer la Procuraduría General de la República.
