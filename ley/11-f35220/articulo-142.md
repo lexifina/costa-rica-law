@@ -1,3 +1,4 @@
 Artículo 142
 Abono de la prisión preventiva
-Para practicar el abono previsto en el artículo 140, se estimará que un día de detención preventiva vale por uno de arresto o caución; por medio día de confinamiento, destierro o suspensión; por un tercio de día de extrañamiento o inhabilitación; por un cuarto de día de prisión; por un quinto de día de presidio y por dos colones de multa.
+Artículo 142.- Para practicar el abono previsto ene le artículo 140, se estimará que un día de detención preventiva, vale por un día de arresto o caución, de confinamiento, destierro o suspensión, extrañamiento, inhabilitación y prisión; por medio día de presidio y por dos colones de multa.
+(Así reformado por el artículo 1° de la ley N° 38 del 11 de diciembre de 1926)
