@@ -1,0 +1,1 @@
+Artículo 3º—Se destinan los inmuebles y edificios de la antigua Penitenciaria Central en San José a la ejecución del "Centro Costarricense de la Ciencia y la Cultura"; proyecto perteneciente a la Fundación Ayúdenos para Ayudar, cédula jurídica número 3-006-109117-31.

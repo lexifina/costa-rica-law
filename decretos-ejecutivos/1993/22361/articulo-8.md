@@ -1,0 +1,1 @@
+Artículo 8º Los Ministerios de Ciencia y Tecnología y de cultura Juventud y Deportes en conjunto con la Fundación Ayúdenos para ayudar definirán los términos del Convenio por medio del cual esta ultima administrara las edificaciones donde se desarrollara el proyecto “Centro Costarricense de la Ciencia y la Cultura”.

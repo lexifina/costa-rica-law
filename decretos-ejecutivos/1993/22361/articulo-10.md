@@ -1,0 +1,1 @@
+Artículo 10.- Se derogan los decretos ejecutivos números 4177-C del 23 de setiembre de 1974, 11004-J de Diciembre de 1979, 13688 C-J- del 11 de junio de 1982, 2075 C-J-MICIT del 20 de agosto de1991, 21462 C-J-MICIT del 3 agosto del1992 y 21723 del 2 de noviembre de 1992.
