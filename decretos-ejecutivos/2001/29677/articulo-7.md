@@ -1,0 +1,1 @@
+Artículo 7º—Modifíquese el artículo 9, inciso h) para que se lea: "Certificación del SINAC de que el área de interés no se encuentra dentro de un área silvestre protegida. Si ya existe un permiso de exploración a la misma persona física o jurídica sobre la misma área que se pretende explotar, este requisito se tendrá por ya cumplido".

@@ -1,0 +1,4 @@
+Artículo 16.—Modifíquese el artículo 135 para que se lea:
+"Casos de Emergencia:
+En casos de emergencia nacional debidamente declarada y mientras dure la Fase Inicial o I Fase de la emergencia, conforme a la Ley Nº 7914 y su reglamento, y el interesado comunique de tal hecho por escrito a la DGM , este podrá, posterior a esa comunicación, iniciar la extracción que se requiere para atender la fase de la emergencia indicada y tendrá un plazo de 6 meses para presentar copia del Plan Regulador de la Emergencia y del nombramiento al solicitante como Unidad Ejecutora por parte de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.
+La comunicación aludida deberá contener al menos : las labores a realizar, el volumen y la fuente de material a utilizar, el sitio donde se realizarán las obras y el plazo necesario para atender la necesidad".

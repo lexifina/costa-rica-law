@@ -1,0 +1,1 @@
+Artículo 18.—Adiciónese el artículo 170, para que se incluya el Decreto Ejecutivo N° 26110-MINAE, de las nueve horas del 18 de diciembre de 1996, publicado en el Alcance N° 31 del 17 de junio de 1997 y sus reformas.
