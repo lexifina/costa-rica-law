@@ -1,0 +1,1 @@
+Artículo 4°.-La Delegación Costarricense no podrá conocer, en el seno de la Comisión Mixta, de ningún asunto relacionado con los indiscutibles y perpetuos derechos costarricenses de libre navegación por el río San Juan, consagrados por el Tratado de Límites Cañas-Jerez de 1958 y reiterados por el Laudo Cleveland de 1888.
