@@ -1,0 +1,5 @@
+ARTÍCULO 10- Responsabilidad de recuperación
+Será responsable de la recuperación de artes de pesca abandonadas, perdidas y/o descartadas, encontradas en el mar o río, todo operador marino que dentro de sus capacidades pueda efectuar la recuperación del arte de pesca, siempre y cuando cuente con los medios para realizarla y no se ponga en riesgo la embarcación o sus ocupantes.
+La recuperación de artes de pesca abandonadas, perdidas y/o descartadas, encontradas dentro de áreas silvestres protegidas, se realizará bajo la supervisión del Sistema Nacional de Áreas de Conservación (Sinac).
+El Instituto Costarricense de Pesca y Acuicultura deberá definir en conjunto con el Ministerio de Ambiente y Energía (Minae), por medio de reglamento, el procedimiento para la recuperación y el debido tratamiento de las artes de pesca abandonadas, perdidas y/o descartadas. La recuperación de artes de pesca abandonadas, perdidas y/o descartadas, encontradas dentro de áreas silvestres protegidas, se realizará bajo la supervisión del Sistema Nacional de Áreas de Conservación .
+Asimismo, deberá coordinar el debido tratamiento de las artes con la institución estatal que corresponda.
