@@ -14,3 +14,4 @@ Declara Emergencia Nacional en Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-11-29 | la propia norma |
+| 2 | 1985-11-29 | SINALEVI (sin norma nombrada) |
