@@ -13,3 +13,4 @@ Reglamento de la Bolsa de Café
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1948-09-10 | la propia norma |
+| 2 | 1956-03-08 | Decreto Ejecutivo 11 (1956-03-08) |
