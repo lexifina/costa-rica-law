@@ -1,0 +1,1 @@
+Artículo 19.—Una vez cumplido el transporte encontrándose las bolsas en la oficina encargada del control del depósito, éste se realizará de conformidad con las normas establecidas por los depósitos especiales del Banco de Costa Rica.

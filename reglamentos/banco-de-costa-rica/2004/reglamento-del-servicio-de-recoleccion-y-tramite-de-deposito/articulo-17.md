@@ -1,0 +1,1 @@
+Artículo 17.—El Banco o la empresa transportadora asumirán la responsabilidad por la integridad del depósito consignado exclusivamente en lo que se refiere a la cantidad de las bolsas recibidas. El monto de los depósitos queda sujeto a que la oficina encargada compruebe la veracidad del contenido, cotejándolo con lo consignado en los documentos respectivos.

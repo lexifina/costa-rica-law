@@ -1,0 +1,1 @@
+Artículo 4º—Para poder contar con este servicio el cliente deberá solicitarlo por escrito, cumplir con todos los requisitos exigidos y suministrar toda la información que el Banco requiera al efecto; para que éste por medio de aquellos funcionarios que estén expresamente facultados, apruebe su implementación, suscribiéndose sucesivamente el contrato respectivo.

@@ -1,0 +1,1 @@
+Artículo 6º—El Banco, o la empresa transportadora de valores, previo depósito del costo respectivo, suministrarán al cliente las bolsas de seguridad que éste requiera de acuerdo a sus necesidades, acompañándolas con el respectivo marchamo de identificación.

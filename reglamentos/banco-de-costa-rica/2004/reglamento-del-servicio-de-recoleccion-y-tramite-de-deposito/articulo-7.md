@@ -1,0 +1,1 @@
+Artículo 7º—Por cada una de las bolsas que tenga en uso el Cliente existirán dos llaves: una que conservará el cliente y otra que guardará el Banco. El cliente deberá tener el debido cuidado con dichas bolsas a efecto de evitar su destrucción, deterioro injustificado o pérdida.

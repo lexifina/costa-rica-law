@@ -1,0 +1,1 @@
+Artículo 5º—Este servicio es aplicable únicamente para depósitos en cuenta corriente y en relación con las cuentas que hayan sido autorizadas previamente, de modo que no aplica para otra clase de operaciones o cuentas. El Banco se reserva el derecho de devolver aquellas transacciones que no cumplan con lo aquí indicado.

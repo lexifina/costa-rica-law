@@ -1,0 +1,1 @@
+Artículo 16.—Es responsabilidad del Cliente exigir la identificación al funcionario del Banco o de la Empresa transportadora previo a la entrega de las bolsas de seguridad, asegurándose de que éste le extienda el respectivo acuse de recibo.

@@ -1,0 +1,1 @@
+Artículo 24.—Disposiciones finales. Todo lo que no estuviese contemplado en este Reglamento, se regirá y resolverá conforme las disposiciones vigentes en el ordenamiento que fueran compatibles con el mismo, las regulaciones reglamentarias y circulares que establezca el Banco sobre esta materia, las cuales serán comunicadas oportunamente al Cliente por parte del Banco.

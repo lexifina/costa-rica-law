@@ -1,0 +1,1 @@
+Artículo 9º—La oficina asignada para atender el servicio será la responsable de la atención directa del mismo y la encargada de recibir las solicitudes, revisar y validar los depósitos en cuenta corriente y de ejecutar los trámites de aprobación respectivos. Deberá llevar un registro debidamente actualizado donde se haga constar los clientes que estén recibiendo el servicio.

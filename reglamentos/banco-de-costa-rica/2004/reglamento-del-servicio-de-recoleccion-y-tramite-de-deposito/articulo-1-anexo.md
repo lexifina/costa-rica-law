@@ -1,0 +1,20 @@
+ANEXO (Carta de solicitud)
+Carta para la solicitud del servicio
+N° _____________________
+San José, ________________________________
+Señores
+Banco de Costa Rica
+San José,
+Muy estimados señores:
+Teniendo interés en utilizar el servicio de Recolección de Depósitos en Cuenta Corriente que ustedes suministran, les ruego considerar mi solicitud para que dicho servicio me sea otorgado.
+Desde luego, acepto las condiciones del Reglamento correspondiente, el cual he leído cuidadosamente, Atentos y seguros servidores,
+________________________________
+Firma Autorizada
+__________________________________________________________
+PARA USO DEL BANCO EXCLUSIVAMENTE
+Autorizado por: ________________________________________________________________________________
+Entregada la bolsa de Seguridad N° __________________________________ el ___________________________
+Observaciones: ________________________________________________________________________________
+______________________________________________________________________________________________ ______________________________________________________________________________________________
+__________________________________________________________
+San José, 3 de enero del 2005.

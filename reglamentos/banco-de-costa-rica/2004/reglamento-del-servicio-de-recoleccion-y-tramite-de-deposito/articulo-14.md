@@ -1,0 +1,1 @@
+Artículo 14.—El Banco o la empresa transportadora recogerán las bolsas de seguridad, y el funcionario encargado, conjuntamente con el Cliente, o la persona por él autorizada, deberán verificar que estén intactas y que sus marchamos no muestran ninguna anomalía, firmando ambos la guía que constituirá para ambas partes, la constancia de recibo del depósito.

@@ -1,0 +1,1 @@
+Artículo 11.—Por la prestación de este servicio, el Banco cobrará la comisión que se encuentra establecida en el Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica la cual podrá ser variada conforme las modificaciones que experimente el citado Reglamento.

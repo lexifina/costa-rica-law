@@ -1,0 +1,1 @@
+Artículo 8º—Al finalizar el contrato o suspenderse el servicio, el cliente deberá reintegrar las bolsas de seguridad al Banco indistintamente si las recibió de éste o de la empresa transportadora de valores, y deberá asumir su costo si las mismas hubieren sido objeto de destrucción, deterioro, o pérdida.
