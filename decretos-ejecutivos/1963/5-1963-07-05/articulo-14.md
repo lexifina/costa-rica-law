@@ -1,0 +1,1 @@
+Articulo 14.—El contador público procurará evitar toda controversia con sus clientes acerca de honorarios. En caso de surgir desacuerdo podrá preponer que se someta al arbitraje inapelable del Tribunal de Honor del Colegio.

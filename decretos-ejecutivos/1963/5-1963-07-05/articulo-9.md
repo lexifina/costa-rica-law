@@ -1,0 +1,1 @@
+Artículo 9°—Los dictámenes, opiniones o informes que emita el contador público con su firma, deberán ser necesariamente fruto de una revisión practicada por él, con su supervisión o la de algún miembro o empleado de su firma. Podrá suscribir aquellos informes, dictámenes u opiniones que se deriven de trabajos en colaboración con otro miembro del colegio.
