@@ -15,13 +15,17 @@ navegación relativo a un buque de alta mar y que sea susceptible de
 impocar responsabilidad penal o disciplinaria del capitán o de cualquiera
 otra persona en el servicio del barco, ninguna acción podrá ser entablado
 si no es ante las autoridades judiciales o administrativas bajo cuya
-bandera se encontraba el buque en el momento de l abordaje o del
+bandera se encontraba el buque en el momento del abordaje o del
 incidente de navegación.
+(NOTA: el Gobierno de Costa Rica se reserva el derecho de no aplicar
+el presente artículo)
 ARTICULO 2º
 En el caso de previsto en el artículo anterior, ningún embargo o
 detención del buque podrá ser ordenado, ni siquiera para medidas de
 investigación, por autoridades que no sean las del país bajo cuya bandera
 viajaba el buque.
+(NOTA: el Gobierno de Costa Rica se reserva el derecho de no aplicar
+el presente artículo)
 ARTICULO 3º
 Ninguna de las disposiciones del presente Convenio se opones a que
 un Estado, en caso de abordaje o de cualquier otro incidente de
