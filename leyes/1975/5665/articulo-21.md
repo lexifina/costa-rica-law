@@ -1,2 +1,0 @@
-Artículo 21.- El incumplimiento por parte de funcionarios públicos, de cualquiera de las disposiciones de esta ley, en lo que les obliga estará sujeto a las responsabilidades consiguientes.
-Sin perjuicio de las acciones penales y civiles, a que hubiere lugar, los funcionarios que violaren el secreto de los datos confidenciales, suministrados por personas o empresas serán destituidos de sus cargos y no podrán ser empleados del Estado durante un plazo de doce meses.

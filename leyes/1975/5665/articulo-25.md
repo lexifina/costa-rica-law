@@ -1,2 +1,0 @@
-Artículo 25.- La acción para acusar es pública y cualquiera podrá denunciar los hechos penados en esta ley, exento de fianza de calumnia; pero queda sujeto el denunciante a la inculpación temeraria o calumniosa.
-Toda persona mayor de edad, con la sola presentación de documento que la identifique, gozará de franquicia telegráfica para dirigirse a las autoridades correspondientes, denunciando cualquier hecho penado por esta ley.

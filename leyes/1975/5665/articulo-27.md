@@ -1,1 +1,0 @@
-Artículo 27.- En los casos en que se probara que en la aplicación de los preceptos de esta ley, por parte de autoridades o funcionarios administrativos, se cometieran arbitrariedades, los perjudicados podrán accionar contra el Estado, ante los tribunales competentes, reclamando los perjuicios ocasionados.

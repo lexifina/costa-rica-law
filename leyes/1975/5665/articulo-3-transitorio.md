@@ -1,1 +1,0 @@
-TRANSITORIO III.- Con el objeto de que la presente ley tenga aplicación inmediata, el Ministerio de Economía, Industria y Comercio pondrá en vigencia, como primera lista oficial de precios y porcentajes máximos de utilidad, una lista que contemplará un porcentaje bruto máximo igual al que está vigente por decreto ejecutivo en la fecha en que esta ley tome vigencia.
