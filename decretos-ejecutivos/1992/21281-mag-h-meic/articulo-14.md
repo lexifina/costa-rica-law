@@ -1,1 +1,0 @@
-Artículo 14.—Contra las resoluciones emitidas, el interesado podrá interponer los recursos ordinarios y extraordinarios, de conformidad con las disposiciones vigentes de la Ley General de la Administración Pública.
