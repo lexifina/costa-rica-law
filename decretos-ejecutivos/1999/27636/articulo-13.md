@@ -1,1 +1,0 @@
-Artículo 13.- Se deroga, quedando sin efecto ni valor alguno, todo acto o acuerdo de similar naturaleza, rango o jerarquía, que se oponga al presente Decreto Ejecutivo, en el entendido que los actuales derechos de los operadores quedan incólumes hasta el vencimiento de la concesión o permiso vigente.
