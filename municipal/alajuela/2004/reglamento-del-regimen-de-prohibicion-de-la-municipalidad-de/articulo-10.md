@@ -1,0 +1,1 @@
+Artículo 10.—Sanciones. La infracción al régimen de prohibición constituirá falta grave a las obligaciones del cargo y faculta a la Municipalidad para despedir sin responsabilidad laboral al funcionario infractor.

@@ -1,0 +1,1 @@
+Artículo 12.—Derogación. El presente Reglamento deroga el Reglamento del Régimen de Prohibición de la Municipalidad de Alajuela, aprobado en el artículo 2.2, capítulo II, de la Sesión extraordinaria 1-99 del 14 de enero de 1999 y publicado en La Gaceta Nº 33 de 17 de febrero de 1999.

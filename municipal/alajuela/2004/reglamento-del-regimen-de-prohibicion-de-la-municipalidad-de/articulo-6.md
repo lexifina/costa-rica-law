@@ -1,0 +1,5 @@
+Artículo 6º—Monto de la compensación: Para los efectos del artículo anterior y conforme lo indicado en el artículo 1º de la Ley 5867, se establecen los siguientes porcentajes:
+a) Un 65% para los funcionarios que ostenten el grado académico de licenciatura o uno superior en una carrera universitaria afín al campo específico de su actividad.
+b) Un 45% para los funcionarios que ostenten la condición de egresados a nivel de licenciatura en una carrera universitaria afín al campo específico de su actividad.
+c) Un 30% para los funcionarios que ostenten un grado académico de bachillerato en una carrera universitaria afín al campo específico de su actividad.
+d) Un 25% para los funcionarios que hayan aprobado el tercer año universitario en una disciplina afín al campo específico de su actividad; o una preparación académica equivalente a esa condición. En este último caso, el reconocimiento se hará previa resolución razonada del Departamento de Recursos Humanos en la que se acredite esa preparación.

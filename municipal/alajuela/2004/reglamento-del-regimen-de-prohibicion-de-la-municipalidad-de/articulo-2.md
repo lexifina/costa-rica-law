@@ -1,0 +1,2 @@
+Artículo 2º—Consejo de prohibición: Se entenderá por prohibición el impedimento legal que tienen los funcionarios municipales para ejercer simultáneamente puestos en otras dependencias públicas o privadas y en general para ejercer actividades relativas al ejercicio de su profesión de manera particular.
+Los funcionarios sujetos al régimen de prohibición no podrán ligarse a la Municipalidad mediante un contrato de dedicación exclusiva, ni recibir pago alguno por ese concepto; y se prohíbe el pago simultáneo de ambos sobresueldos.

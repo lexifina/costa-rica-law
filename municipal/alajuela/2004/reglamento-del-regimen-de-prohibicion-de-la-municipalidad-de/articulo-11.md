@@ -1,0 +1,1 @@
+Artículo 11.—Reintegro de la compensación. Independientemente de las sanción disciplinaria prevista en el artículo anterior, el funcionario que infrinja el régimen de prohibición estará obligado a reintegrar a la Municipalidad, la totalidad de las sumas recibidas por concepto de la respectiva compensación.
