@@ -1,3 +1,4 @@
 CAPÍTULO V
-Disposiciones generales
-Artículo 42.—Cuando la índole de algún asunto lo amerite, previo acuerdo al respecto, podrá el Concejo Municipal invitar a personas particulares para que asistan a sesiones. Corresponde a la secretaria notificar oportunamente este tipo de invitaciones.
+Audiencias
+Artículo 42.—Las audiencias se concederán para la segunda sesión extraordinaria de cada mes, salvo que circunstancias especiales requieran que el Concejo atienda otro día.
+(Adicionado mediante Sesión N° 141 del 24 de enero del 2005 )

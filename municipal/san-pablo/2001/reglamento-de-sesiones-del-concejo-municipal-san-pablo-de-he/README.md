@@ -14,3 +14,4 @@ Reglamento de Sesiones del Concejo Municipal San Pablo de Heredia.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-16 | la propia norma |
+| 2 | 2005-01-24 | Reglamento municipal 141 (2005-01-24) |
