@@ -1,0 +1,1 @@
+Artículo 6°—Adscripción. El I.C.C.J. estará adscrito a la Presidencia del Colegio de Ahogados, quien fijará a propuesta del Director del Instituto, las políticas y metas del Instituto, la normativa interna, las áreas de interés y los planes anuales de trabajo.

@@ -1,0 +1,1 @@
+Artículo 2°—Definición. El I.C.C.J. es una estructura del Colegio de Abogados, cuyo propósito fundamental es contribuir al avance de las ciencias jurídicas. En cumplimiento de su misión realizará acciones de administración académica, educación continua, investigación y extensión.

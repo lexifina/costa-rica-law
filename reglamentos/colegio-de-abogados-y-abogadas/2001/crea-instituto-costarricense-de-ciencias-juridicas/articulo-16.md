@@ -1,0 +1,1 @@
+Artículo 16.—Vigencia y derogatoria. Este reglamento rige a partir de su publicación en el diario oficial La Gaceta y deroga cualquier disposición que en la materia aquí regulada, se le oponga. El I.C.C.J. para todos los efectos sustituye a la actual Dirección Académica.

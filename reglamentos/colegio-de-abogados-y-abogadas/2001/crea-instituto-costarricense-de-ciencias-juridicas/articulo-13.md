@@ -1,0 +1,3 @@
+CAPÍTULO TERCERO
+Presupuesto y Administración Financiera
+Artículo 13—Presupuesto I.C.C.J. fuentes: El I.C.C.J. cumplirá sus objetivos y realizará sus labores con el presupuesto constituido por los recursos financieros miemos del presupuesto general del Colegio de Ahogados, así como los que el Estado u otras instituciones públicas o privadas, nacionales o internacionales le concedan para el cumplimiento de sus objetivos. Incorporará en su presupuesto los ingresos que generen sus propias actividades. El instituto administrara sus recursos por medio de la administración general del Colegio. Operará bajo el principio de caja única del Colegio, no pudiendo poseer cuentas que maneje directamente.

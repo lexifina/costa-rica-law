@@ -1,0 +1,1 @@
+Artículo 14. Funcionamiento presupuesto. En la formulación y aprobación del presupuesto anual del Colegio de Abogados se tomará en cuenta la propuesta del Instituto, en cuanto a su presupuesto, por parte de las instancias a las que les corresponda diseñar y aprobar el presupuesto. El presupuesto se ejecutará en el marco de la normativa interna de la institución.

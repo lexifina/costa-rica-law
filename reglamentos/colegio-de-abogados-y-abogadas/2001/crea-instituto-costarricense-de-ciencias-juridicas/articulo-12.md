@@ -1,0 +1,2 @@
+Artículo 12.—Comisión asesora. La Comisión de Avance de las Ciencias Jurídicas actuará como órgano asesor del Instituto y coadyuvará con sus funciones dando las recomendaciones que considere pertinentes y ejecutando sus propios planes, que no deberán estar en contradicción con los del Instituto. La Comisión será integrada por el Presidente conforme al Artículo 23 de la Ley Orgánica del Colegio de Abogados, más los integrantes que este asigne.
+El presidente de la junta directiva podrá integrar otras comisiones que considere necesarias para apoyar el trabajo del Instituto.
