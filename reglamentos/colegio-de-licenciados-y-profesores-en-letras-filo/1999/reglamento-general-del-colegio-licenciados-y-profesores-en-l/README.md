@@ -18,3 +18,4 @@ Reglamento General del Colegio Licenciados y Profesores en Letras, Filosofía Ci
 | 3 | 2001-12-01 | Reglamento 95 (2001-12-01) |
 | 4 | 2001-12-15 | Reglamento 96 (2001-12-15) |
 | 5 | 2002-03-23 | Reglamento 94 (2002-03-23) |
+| 6 | 2003-02-08 | Reglamento 97 (2003-02-08) |

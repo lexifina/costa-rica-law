@@ -1,2 +1,2 @@
-Artículo 49.—Libros de Contabilidad. Los libros de contabilidad de "El Colegio" serán foliados y legalizados por el Fiscal, mediante razones de apertura y de cierre.
-No se harán enmiendas a los libros, raspaduras, cambios de folio, ni ninguna otra alteración. Los errores y omisiones se llevarán en los contra-asientos que procedan.
+Artículo 49.—Libros de Contabilidad. Los libros de contabilidad de "El Colegio" serán foliados y legalizados por el Tesorero de Junta Directiva, mediante razones de apertura y de cierre.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)
