@@ -1,0 +1,1 @@
+Artículo 5º—Esta importación queda exenta del mecanismo de Salvaguardia Especial Agrícola por la Vía del Precio, establecida mediante el Decreto N° 27843-MAG-COMEX, prorrogado por el Decreto N° 28363-MAG-COMEX.

@@ -1,0 +1,1 @@
+Artículo 3º—La cuota de importación indicada en el artículo anterior deberá negociarse en tractos de hasta doscientos quince toneladas métricas (215 TM), durante los meses de agosto, setiembre, octubre y noviembre del año 2000, hasta que se agote la cuota establecida.
