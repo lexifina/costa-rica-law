@@ -1,0 +1,1 @@
+Artículo 30.—Los acuerdos mas comunes de la Junta Directiva del Comité se decidirán por simple mayoría. En lo que respecta al presupuesto, este se acuerda por simple mayoría calificada. Queda a criterio de algún (os) miembros si se acordará por mayoría calificada

@@ -1,0 +1,1 @@
+Artículo 76.—Los miembros de la Junta Directiva de cada Comité Comunal serán juramentados por la junta Directiva del Comité Cantonal, después de que en aquella se haya establecido el puesto de cada directivo.

@@ -1,0 +1,1 @@
+Artículo 25.—Las sesiones extraordinarias de la Junta Directiva del Comité serán convocadas por iniciativa del presidente o a solicitud de por lo menos, dos miembros. La comunicación será por escrito a los demás directivos, con veinticuatro horas de antelación, y deberá indicar el día, la hora de la sesión y los asuntos por tratar.
