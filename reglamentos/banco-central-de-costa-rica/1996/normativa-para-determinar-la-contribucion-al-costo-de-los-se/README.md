@@ -14,3 +14,4 @@ Normativa para determinar la contribución al costo de los servicios de supervis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-11-18 | la propia norma |
+| 2 | 1996-11-27 | Reglamento 4899 (1996-11-27) |
