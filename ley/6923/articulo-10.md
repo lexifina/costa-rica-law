@@ -1,3 +1,0 @@
-Artículo 10.- Si el patentado no presentara la declaración jurada en el término indicado en el artículo sétimo de esta ley, la Municipalidad le aplicará la calificación del año anterior. Si posteriormente se presenta la declaración, se hará la calificación del impuesto correspondiente según el artículo 14.
-Si la categoría imponible es inferior a la determinada de oficio, la Municipalidad deberá acreditar a cuenta del patentado las sumas pagadas de más; en caso contrario, se procederá conforme con el artículo noveno anterior.
-La declaración jurada que deben presentar los patentados ante la Municipalidad, queda sujeta a las disposiciones especiales de los artículos 88, 89, y 91 del Código de Normas y Procedimientos Tributarios, así como al artículo 309 del Código Penal.

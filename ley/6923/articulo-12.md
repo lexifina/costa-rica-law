@@ -1,1 +1,0 @@
-Artículo 12.- A las personas físicas o jurídicas que no hayan presentado la declaración sobre la renta, teniendo la obligación de hacerlo, o a las que estén excluidas de tal obligación, se les aplicarán las tarifas que establece el artículo 17 de esta ley.

@@ -1,2 +1,0 @@
-Artículo 13.- La Municipalidad aplicará la tarifa que establece el artículo 17, para gravar toda actividad lucrativa nueva que no pueda sujetarse al procedimiento impositivo del artículo 5º, por falta de declaración sobre la renta para el primer período.
-Esta imposición tendrá el carácter de provisional. La Municipalidad deberá recalificar el impuesto para el segundo año, de acuerdo con la declaración sobre la renta del primer ejercicio económico.
