@@ -15,3 +15,4 @@ Reglamento a la Ley N° 7688 sobre Tarjeta de Identidad para los Costarricenses 
 | --- | --- | --- |
 | 1 | 1998-05-15 | la propia norma |
 | 2 | 2000-12-12 | Decreto Ejecutivo 29227 (2000-12-12) |
+| 3 | 2004-07-18 | Decreto Ejecutivo 31974 (2004-07-18) |
