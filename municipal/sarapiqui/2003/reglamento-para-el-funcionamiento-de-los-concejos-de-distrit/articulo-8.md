@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión a que se refiere el artículo anterior, funcionará como órgano de coordinación de los Concejos de Distrito, para darles la asistencia que proceda en los proyectos de interés para el distrito o grupo de ellos aislada o conjuntamente.
