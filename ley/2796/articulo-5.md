@@ -1,0 +1,1 @@
+Artículo 5°—Los Bancos del Estado mantendrán la validez y vigencia de pensiones concedidas hasta la promulgación de esta ley, en la misma forma que fueron otorgadas, haciendo los ajustes que para ese efecto fueren necesarios al distribuir el aporte del 10% sobre los sueldos con que debe el Banco contribuir.

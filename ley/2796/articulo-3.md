@@ -1,0 +1,8 @@
+Artículo 3°—El artículo 13 de la Ley Orgánica del Banco Central de Costa Rica, N° 1552 de 23 de abril de 1953, se leerá así :
+"Articulo 13.—Las utilidades netas del Banco Central se distribuir'" de la siguiente manera:
+1°—E1 50% para incrementar la Reserva Legal, mientras ésta no haya alcanzado un monto igual al doble de su capital ;
+2°—El 25% para abonar a la cuenta de Amortizaciones de la Moneda Acuñada;
+3°—Una suma equivalente al 10% del total de los sueldos de los empleados del Banco, para el mantenimiento del Fondo de Garantías y Jubilaciones de dichos empleados y que pertenecerá a éstos en la proporción correspondiente de sus sueldos, debiendo serles entregada, bajo las condiciones que el Reglamento de Jubilaciones determine, si dejaren el servicio antes de haber alcanzado el derecho a una pensión de invalidez. Ese aporte del Banco será único, para toda clase de beneficios sociales, pudiendo establecerse en el Reglamento las sumas adicionales con que los empleados deberán contribuir para el fortalecimiento del Fondo, a fin de que ellos puedan obtener una pensión adecuada, de acuerdo con su sueldo, edad y tiempo de servicio.
+El sistema que así se crea se considera complementario del establecido por la Caja Costarricense de Seguro Social v sin perjuicio de las obligaciones de sus beneficiarios para con la Caja.
+En las juntas Administrativas del Fondo de Garantías y Jubilaciones de cada Banco se le dará representación a los empleados bancarios, en número de dos miembros, de su propia elección; y
+4°—El remanente para amortización v depreciación de activos, para constitución de otras reservas y para amortización de deuda pública con propósitos de saneamiento monetario".
