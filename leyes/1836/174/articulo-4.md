@@ -1,0 +1,1 @@
+Art 4.- En caso de impedimento de ambos, el Juez podrá consultar con otro letrado hábil, y no habiéndolo, deberá asociarse con dos hombres buenos nombrados uno por cada parte en las civiles, y en las criminales con dos Colegas que nombrará: el Juez conformándose o no con el dictamen de los socios, fallará bajos se responsabilidad
