@@ -1,0 +1,9 @@
+Artículo 33.—En todos los préstamos que otorgue el INFOCOOP, éste deberá incluir, entre las condiciones a exigir a las prestatarias en sus documentos de crédito, por lo menos, las siguientes:
+a) El derecho del INFOCOOP a examinar los registros contables, libros de actas y documentos de la prestataria, las veces que estime conveniente, así como a solicitar toda la información que se considere necesaria respecto a su situación administrativa, económica y financiera.
+b) El derecho del INFOCOOP a revisar todos los antecedentes y documentos que tengan relación con el proyecto antes, durante y con posteridad a su ejecución, así como inspeccionar las obras en ejecución.
+c) El compromiso de la prestataria de que los bienes y servicios que financie con el producto del préstamo, se utilizarán exclusivamente en la ejecución del respectivo proyecto.
+d) El derecho del INFOCOOP de suspender los desembolsos del producto del crédito y de tener por vencida la obligación, si la prestataria no cumple con sus obligaciones.
+e) 'El compromiso de la prestataria de que tomará las disposiciones necesarias para asegurar que los contratos de construcción, prestación de servicios y compras de bienes para el proyecto, se harán a un costo razonable, qué será generalmente el precio más bajo del mercado, tomando en cuenta factores de calidad, eficiencia y otros que sean del caso.
+f) La constitución por parte de la prestataria, de garantías específicas suficientes a favor del INFOCOOP y la conservación en buen estado de las mismas.
+g) Asegurar y mantener asegurados los bienes entregados en garantía por la suma y el tiempo que el INFOCOOP le indique, y entregarle las pólizas respectivas debidamente endosadas.
+h) Comprobar que cuenta con el seguro de fidelidad que establece el artículo 53 de la Ley de Asociaciones Cooperativas No 5185.

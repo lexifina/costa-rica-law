@@ -1,0 +1,1 @@
+Artículo 3°—La tramitación y estudio de las solicitudes no implica compromiso alguno para el INFOCOOP, que podrá conceder una suma inferior a la solicitada o desechar la propuesta, aun cuando se hubieren satisfecho todos los requisitos reglamentarios.

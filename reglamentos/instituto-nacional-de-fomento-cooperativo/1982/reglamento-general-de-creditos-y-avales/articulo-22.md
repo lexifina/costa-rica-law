@@ -1,0 +1,1 @@
+Artículo 22.—Si el INFOCOOP recibe fondos de fuentes externas que tengan condiciones limitantes sobre la tasa de interés que se puede cobrar sobre el uso de esos fondos, la junta directiva lo reglamentará en cada caso.

@@ -1,0 +1,2 @@
+Artículo 13.—Sin perjuicio de lo establecido en el art. 12, los préstamos que otorgue el INFOCOOP para inversiones, no podrán ser superiores, en conjunto a 10 veces el patrimonio de cada cooperativa, y el financiamiento de inversiones no podrá sobrepasar el 80% del valor de las mismas, debiendo acreditar en cada caso la solicitante, que cuenta con los recursos necesarios para cubrir la diferencia.
+Estos límites podrán ser sobrepasados con el acuerdo de por lo menos 5 miembros de la junta directiva.

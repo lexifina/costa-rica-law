@@ -1,0 +1,1 @@
+Artículo 14.—Para las cooperativas integradas por asociados de bajos ingresos, la relación entre crédito para inversiones y patrimonio, podrá elevarse hasta 15 veces, a juicio de la junta directiva, debiendo estar el proyectó, en todo caso, respaldado por un estudio de factibilidad que demuestre que la rentabilidad del mismo permite reintegrar el crédito.

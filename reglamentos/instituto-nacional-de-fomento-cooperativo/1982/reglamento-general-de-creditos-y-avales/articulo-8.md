@@ -1,0 +1,1 @@
+Artículo 8°— Todos los créditos deberán otorgarse con la correspondiente garantía, en el siguiente orden, entendiéndose como tales: hipotecas y cédulas hipotecarias, prendas, avales, letras de cambio, pagarés, giros, cuotas de inversión u otros documentos negociables, o cualquier otra que sea aceptable a juicio del INFOCOOP.

@@ -1,0 +1,2 @@
+Prórrogas y sanciones
+Artículo 23.—Las cooperativas perderán su derecho a ser sujeto de crédito desde el momento en que se encuentren morosas en el cumplimiento de cualquiera de sus compromisos u obligaciones directas o indirectas con el INFOCOOP, salvo en el caso de que dichos incumplimientos hubieren sido expresamente autorizados. El derecho se recuperará en forma automática cuando la cooperativa morosa regularice su situación.

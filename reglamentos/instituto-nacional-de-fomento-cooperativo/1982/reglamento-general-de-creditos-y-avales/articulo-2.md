@@ -1,0 +1,1 @@
+Artículo 2°—Serán sujeto de crédito todas las asociaciones cooperativas que tengan su personalidad jurídica vigente, que estén ajustadas a derecho y que cumplan con los requisitos establecidos en este reglamento para solicitar préstamos.
