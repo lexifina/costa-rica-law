@@ -1,0 +1,1 @@
+Artículo 38.—El AGENTE AUTORIZADO deberá cancelar cualquier excedente de tráfico generado en la cuenta de servicio de Internet conmutado asignada por RACSA y en la totalidad del tráfico de la cuenta especial para la programación de logines como consecuencia del retraso presentado en la entrega de contratos a RACSA.

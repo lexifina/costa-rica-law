@@ -1,0 +1,1 @@
+Artículo 15.—RACSA asignará una cuenta de Internet conmutada al agente autorizado con la finalidad de que éste realice la programación de las cuentas del servicio de Internet conmutado a los clientes. Además, se asignará una cuenta especial para la programación de logines.

@@ -1,0 +1,1 @@
+Artículo 11.—RACSA deducirá de los honorarios del agente autorizado aquellos montos que se ajusten a lo indicado en el artículo 35 del capítulo III, titulado Obligaciones y responsabilidades del agente autorizado.

@@ -1,0 +1,1 @@
+Artículo 8º—RACSA desconectará al noveno día natural la opción de programación de cuentas de Internet conmutado al agente autorizado, para todos aquellos casos en que el agente autorizado tenga contratos pendientes de entregar a RACSA con más de ocho días naturales de haber programado las cuentas.

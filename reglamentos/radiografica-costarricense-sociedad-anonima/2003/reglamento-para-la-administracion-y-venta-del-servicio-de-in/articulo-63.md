@@ -1,0 +1,1 @@
+Artículo 63.—RACSA emitirá las fechas de pago por concepto de comisiones, las cuales estarán cancelándose a partir de la segunda quincena de cada mes. Sin embargo esto es variable, ya sea por días feriados o fines de semana que interfieran con estas fechas, o por otros inconvenientes de última hora, que se encuentran fuera de nuestro control.

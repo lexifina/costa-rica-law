@@ -1,0 +1,1 @@
+Artículo 35.—Las solicitudes de programación o desprogramación de cuentas de Internet conmutado se remitirán a RACSA dentro de los tres días hábiles contados a partir del día hábil siguiente de la firma del respectivo contrato por parte del cliente y deberán hacerse por escrito y dirigido al coordinador de agentes autorizados.

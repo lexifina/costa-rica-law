@@ -1,0 +1,1 @@
+Artículo 48.—RACSA no se hará responsable del uso indebido de la cuenta de Internet asignada al agente autorizado para la programación de las cuentas del servicio de Internet Conmutado a los clientes.

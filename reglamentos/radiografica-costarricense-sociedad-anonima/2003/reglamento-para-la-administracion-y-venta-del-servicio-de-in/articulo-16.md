@@ -1,0 +1,1 @@
+Artículo 16.—RACSA fiscalizará y evaluará la cuenta de Internet conmutada asignada al agente autorizado, según lo dispuesto en el capítulo IV del presente Reglamento y en las cláusulas de solicitud de servicio para el Internet comercial.

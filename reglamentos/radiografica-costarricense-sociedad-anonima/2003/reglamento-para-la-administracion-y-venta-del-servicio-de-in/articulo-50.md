@@ -1,0 +1,1 @@
+Artículo 50.—Con base en el artículo anterior, RACSA asignará el paquete número uno a la nueva fuerza de ventas, y en el caso de los Agentes Autorizados activos, se hará un estudio trimestral de las cuentas vendidas.
