@@ -1,0 +1,1 @@
+Art 2. En recompensa de esta concesión, debe en el mismo término enseñar diez jóvenes nombrados por el ejecutivo y bajo la inspección de este, tomando dos de cada uno de los cinco departamentos. Sala de la Cámara de Senadores. San José setiembre diezinueve de mil novecientos cuarenta y cinco.
