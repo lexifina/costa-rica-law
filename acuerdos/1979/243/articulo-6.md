@@ -1,0 +1,1 @@
+Artículo 6°.-Para el otorgamiento de becas al personal nuevo de los servicios de tránsito aéreo así como para aquéllas que se otorguen para cursos de refrescamiento se observará lo señalado en el “Reglamento de Becas y Otras Facilidades para el Adiestramiento de Empleados del Ministerio de Obras Públicas y Transportes “

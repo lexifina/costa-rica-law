@@ -1,0 +1,1 @@
+Artículo 8°.- El Ministerio de Obras Públicas y Transportes a través de la Dirección General de Aviación Civil consultará el Departamento de Aeronavegación cuando proyecte o intente hacer cambios o tomar medidas que en alguna forma afecten las funciones de Control de Tránsito Aéreo.-

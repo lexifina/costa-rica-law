@@ -1,0 +1,1 @@
+Artículo 3°.- El Ministerio de Obras Públicas y Transportes gestionará ante el Servicio Civil, a partir de la fecha de promulgación de este acuerdo, la carrera profesional y administrativa del Controlador de Tránsito Aéreo.

@@ -1,0 +1,1 @@
+Artículo 2°.- Todo Controlador del Tránsito Aéreo deberá someterse a los exámenes médicos exigidos para el desempeño de su cargo y renovación de su licencia. En todo caso los gastos y honorarios correspondientes correrán de cuenta del Ministerio de Obras Públicas y Transportes.

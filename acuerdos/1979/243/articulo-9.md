@@ -1,0 +1,1 @@
+Artículo 9.- El Ministerio de Obras Públicas y Transportes se compromete a dar asistencia legal a los Controladores cuando fueren detenidos o procesados por actos ejecutados con motivo del desempeño de sus funciones.
