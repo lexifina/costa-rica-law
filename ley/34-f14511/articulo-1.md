@@ -1,0 +1,7 @@
+DECRETO XXXIV
+Da fuerza ejecutiva a las certificaciones sobre adeudo a favor del 'Tesoro Publico, libradas por el Tenedor de Libros de Hacienda Nacional y visadas por el Contador Mayor.
+Tomas Guardia, General en Jefe del Ejército de la República y Encargado del Poder Ejecutivo.
+Considerando: Que el Fiscal de Hacienda Nacional consulta si las certificaciones sobre adeudo de censo por tierras baldías, libradas por el Tenedor de Libros de Hacienda Nacional, visadas por el Contador Mayor y mandadas cobrar de órden suprema, deben considerarse documentos ejecutivos, sin necesidad de otra diligencia preparatoria.
+Que el inciso 6°, articulo 423 del Código de Procedimientos, establece que tienen fuerza ejecutiva los despachos ó títulos expedidos por el Gobierno y sus principales empleados con el sello del Estado.
+Que las certificaciones de que se trata tienen á su favor la presuncion de ser exactas y en el caso de no serlo, el deudor, en el término del encargado, podría hacer uso de sus derechos legales; decreto:
+Art. único. Tienen fuerza ejecutiva todas lasncertificaciones sobre adeudo á favor del Tesoro Público libradas por el Tenedor de Libros de Hacienda Nacional, visadas por el Contador Mayor y mandadas cobrar de 6órden suprema. - Dado en el Palacio Nacional, en San José, à seis de Octubre de mil ochocientos setenta y siete. - T. Guardia.- EI Secretario de Estado en el Despacho de Hacienda y Comercio, Rafael Barroeta.
