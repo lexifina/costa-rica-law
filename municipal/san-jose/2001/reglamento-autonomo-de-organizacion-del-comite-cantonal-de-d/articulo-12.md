@@ -1,0 +1,1 @@
+Artículo 12.-Los Comités Comunales deberán entregar en el mes de mayo de cada año, los planes de trabajo y su respectivo presupuesto, para el año inmediato posterior, al Comité Cantonal quien los analizará y en coordinación con la Municipalidad determinará su aplicabilidad.

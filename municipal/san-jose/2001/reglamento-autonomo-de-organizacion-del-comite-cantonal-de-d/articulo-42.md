@@ -1,0 +1,1 @@
+Artículo 42.-EI presidente del órgano será el encargado de nombrar los miembros de las comisiones y estos permanecerán ahí hasta que venza su período o se dé una de las causales que contiene el artículo 18.

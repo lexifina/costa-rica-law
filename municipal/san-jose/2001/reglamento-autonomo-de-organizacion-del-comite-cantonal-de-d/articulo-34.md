@@ -1,0 +1,1 @@
+Artículo 34.-Corresponde al Comité conocer en sus sesiones, los proyectos, planes, estudios y conflictos relacionados con el mismo. Los miembros pueden acoger mociones de particulares que se relacionen con el deporte y la recreación, para que sean conocidas por el Comité en las sesiones que éste celebre.

@@ -1,0 +1,1 @@
+Artículo 43.-Cada comisión deberá elaborar un plan de trabajo y rendirá un informe escrito al organismo u órgano respectivo, sobre las actividades realizadas y resultados obtenidos, sobre los fines para los que fueron nombrados.

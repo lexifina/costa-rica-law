@@ -1,0 +1,1 @@
+Artículo 2°-El Comité Cantonal de Deportes y Recreación de San José, es un organismo adscrito a la Municipalidad de San José, con personería jurídica Únicamente para el cumplimiento de los fines que la Ley y sus reglamentos le otorguen.

@@ -1,0 +1,1 @@
+Artículo 65.-Los miembros de los comités comunales se juramentarán ante el Comité Cantonal, quien extenderá además el carné que los acredita como tales e informará del nombramiento al Concejo Municipal.

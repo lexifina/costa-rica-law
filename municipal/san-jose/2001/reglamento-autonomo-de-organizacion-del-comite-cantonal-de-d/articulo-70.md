@@ -1,0 +1,1 @@
+Artículo 70.-Otras obligaciones y facultades del Comité Comunal serán determinadas por el Comité Cantonal siempre que no contradigan este Reglamento, las Leyes o decretos vigentes, relacionados con esta materia.

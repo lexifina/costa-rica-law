@@ -1,0 +1,1 @@
+Artículo 52.-Los ingresos del Comité Cantonal solamente se podrán invertir en obras de interés deportivo y recreativo ubicadas dentro de los límites del Cantón Central de San José, para ello necesariamente se invertirá el 45% de los recursos en las comunidades y de los recursos que gira la Municipalidad se utilizará como máximo un 10% en gastos administrativos.

@@ -1,0 +1,2 @@
+Artículo 19.-Cuando algún miembro del Comité Cantonal incurra
+en cualquiera de las causal es indicadas en el artículo anterior, la Junta Directiva deberá comunicarlo por escrito al Concejo Municipal, remitiendo las pruebas documentales idóneas certificadas por un Notario Público, en donde se acredite que el miembro a sustituir efectivamente incurrió en las causales que señala el artículo anterior. El Concejo procederá de inmediato a reponer el miembro separado del cargo de manera directa, si se confirman los hechos por los cuales se solicita su inhabilitación.
