@@ -1,0 +1,1 @@
+Artículo 2° ─ La Administración de Rentas, Banco Central, separará de esta emisión, 25.000 ejemplares de cada una de las doce variedades enumeradas en el artículo 1°, a fin de que durante el término de 15 días contados a la fecha de circulación, sean vendidos en la forma de series completas.

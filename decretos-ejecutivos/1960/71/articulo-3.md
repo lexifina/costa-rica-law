@@ -1,0 +1,1 @@
+Artículo 3° ─ A fin de facilitar el expendio de valores de uno, dos, tres, cuatro y cinco céntimos, serán vendidos únicamente en serie de las cinco denominaciones indicadas. El resto de los valores se venderán libremente.
