@@ -1,0 +1,1 @@
+Artículo 11.—Todos lo miembros del Concejo que fueron designados por el Presidente del Concejo están obligados a participar; de existir alguna imposibilidad para participar en la misma, solicitarán por escrito su exclusión al Presidente, dando las razones del caso. La Presidencia tomará la determinación sobre la permanencia o no del miembro que renuncia.
