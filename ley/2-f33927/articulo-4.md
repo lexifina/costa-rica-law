@@ -1,0 +1,1 @@
+Art. 4°-El despacho de mercaderías de Puntarenas á San José, de Limón á Carrillo y de Carrillo á la Aduana General de registro, se hará de acuerdo con las leyes vigentes y disposiciones del presente decreto.

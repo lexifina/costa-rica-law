@@ -1,0 +1,1 @@
+Art. 17.-Cuando por ser hora incompetente no pudiere hacerse la descarga en seguida, quedarán los carros cerrados y marchamados, y el jefe del depósito tomará las disposiciones necesarias para su seguridad.
