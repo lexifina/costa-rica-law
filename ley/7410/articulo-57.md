@@ -1,0 +1,2 @@
+Artículo 57°—Descensos
+El Consejo de Personal autorizará los descensos de los funcionarios. Estos descensos solo procederán por impericia, imprudencia, negligencia o deficiencia en el servicio, siempre que no constituyan causales de despido, previa valoración del expediente que se levante. Al servidor afectado se le conferirá audiencia previa y podrá apelar ante el ministro quien resolverá en última instancia.

@@ -1,0 +1,2 @@
+Artículo 66°—Suspensión provisional y sus alcances
+Autorízase la inmediata suspensión provisional del servidor, como medida cautelar, ante la presunta comisión de una falta grave. En ningún caso, esta medida implicará que el servidor afectado deje de percibir el salario a que por ley tiene derecho. Para suspenderlo, es necesario que la administración haya acordado en firme el procedimiento y el pronunciamiento previos.
