@@ -19,3 +19,4 @@ Reglamento de Prestación de Servicios al Abonado
 | 4 | 1999-08-18 | Reglamento 185 (1999-08-18) |
 | 5 | 2002-02-20 | Reglamento 14 (2002-02-20) |
 | 6 | 2002-09-10 | Reglamento 324 (2002-09-10) |
+| 7 | 2004-02-13 | Reglamento 442 (2004-02-13) |

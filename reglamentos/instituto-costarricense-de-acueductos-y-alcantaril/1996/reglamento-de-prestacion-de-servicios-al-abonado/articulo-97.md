@@ -1,3 +1,2 @@
-Artículo 97.—En los servicios con tarifa domiciliar, de no existir registros que permitan establecer el consumo promedio normal, se aplicará un volumen de consumo 30 m3 por mes por unidad habitacional.
-En los servicios con tarifa ordinaria, reproductiva, preferencia! y de gobierno, de no existir registros que permitan establecer el consumo promedio normal, AyA lo estimará con base en las características del servicio en cuestión.
-(Modificada su numeración en sesión ordinaria N° 176 del 17 de julio de 1997, que adicionó los artículo 95 y 96, ordenando correr la numeración, por lo que este artículo pasó del N° 95 al N° 97).
+Artículo 97.—En los servicios en que no se cuente con registros, o no sea posible establecer que permitan calcular el consumo promedio normal, se aplicará un volumen por mes por servicio igual al "consumo promedio normal", utilizado en el estudio tarifario que haya servido de base a la resolución que sustenta las tarifas vigentes, para cada una de las categorías.
+(Así reformado mediante sesión ordinaria N° 442 del 13 de febrero de 2004.)
