@@ -1,4 +1,4 @@
-Artículo 10.- El Ministerio de Agricultura y Ganadería asignará los
+ARTÍCULO 10.- El Ministerio de Agricultura y Ganadería asignará los
 inspectores oficiales, quienes portarán credenciales y por lo tanto
 quedan autorizados por esta ley para lo siguiente:
 a) Ingresar durante las horas laborables a las fábricas de
