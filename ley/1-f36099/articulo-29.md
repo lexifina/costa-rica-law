@@ -1,0 +1,4 @@
+Sección VII
+Disposiciones varias.
+Art 29° El Director Médico a quien se le pruebe haber extendido boleta de sanidad en favor de mujer enferma de mal venéreo, será destituido de su cargo.
+Cuando algún médico haya librado certificación de estar sana a favor de una prostituta que se demuestre padecer la enfermedad venérea, el Director Médico local lo pondrá en conocimiento del Director General, quien podrá ordenar con vista de la información respectiva, que se rehacen por los Médicos Directores y por término de un año, todos los certificados extendidos por dicho médico a favor de cualquiera de las mujeres comprendidas en este reglamento. Tal resolución admite revisión ante el Tribunal del Protomedicato, mientras no se hubiere organizado la Facultad Médica de Costa Rica a la Directiva de la cual corresponderá en su caso conocer del recurso.
