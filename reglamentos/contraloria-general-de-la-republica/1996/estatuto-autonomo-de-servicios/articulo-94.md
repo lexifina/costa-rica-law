@@ -1,3 +1,3 @@
 Artículo 93.—La reincidencia para efectos de aplicar las sanciones se computará en un período de tres meses; salvo los casos de reincidencia previstos en los artículos 98 y 101, referentes a la sanción impuesta por hacer la marca en el registro de asistencia y puntualidad de otro servidor y la no comunicación por parte de un servidor ante una ausencia. La reincidencia será contada a partir del mes en que se le impuso una sanción por la misma causa. En este caso. el servidor responsable se hará acreedor de la sanción inmediata superior, respecto de la que se le había impuesto.
 Las sanciones por una misma causa que se presenten en un mismo mes calendario serán acumulativas.
-(Así reformado por acuerdo tomado en sesión N° 19 de 16 de octubre de 1996)
+(Así reformado por acuerdo tomado en sesión N° 19 de 16 de octubre de 1996, y posteriormente modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 94 al 93)

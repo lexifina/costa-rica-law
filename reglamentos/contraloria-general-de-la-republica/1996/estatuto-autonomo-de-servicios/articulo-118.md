@@ -1,1 +1,2 @@
 Artículo 117.—De conformidad con lo dispuesto por el artículo 25 de la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, y según la gravedad de la falta cometida o la reincidencia del infractor, se impondrán a éste las siguientes sanciones: la amonestación escrita, la suspensión sin goce de salario y el despido sin responsabilidad patronal.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 118 al 117)

@@ -8,3 +8,4 @@ iv. la supresión de la plaza por reorganización será emitida mediante
 resolución razonada del Contralor General;
 v. el funcionario que cese su relación de servicio por la supresión de su plaza, será indemnizado en los términos que establece el Estatuto de Servicio Civil y su Reglamento.
 (Así adicionado por acuerdo tomado en sesión de fecha 7 de junio de 1999)
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 123 al 122)

@@ -1,1 +1,2 @@
 Artículo 113.—La persona afectada por hostigamiento sexual podrá plantear la denuncia sea en forma verbal o escrita ante el Contralor o Subcontralor Generales de la República. De lo manifestado por la persona denunciante se levantará un acta con la colaboración de la Dirección General de Asuntos Jurídicos.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 114 al 113)

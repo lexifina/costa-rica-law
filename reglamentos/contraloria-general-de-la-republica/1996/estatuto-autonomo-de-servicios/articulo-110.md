@@ -1,1 +1,2 @@
 Artículo 109.—Será eficaz la sanción impuesta hasta tanto haya sido válidamente comunicada al servidor. Los recursos administrativos no impedirán su ejecución, pero darán derecho a la indemnización de los daños y perjuicios causados en caso de ser declarados con lugar. Lo anterior sin perjuicio de la posibilidad que tiene quien tramita el recurso de suspender interlocutoriamente los efectos del acto impugnado.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 110 al 109)

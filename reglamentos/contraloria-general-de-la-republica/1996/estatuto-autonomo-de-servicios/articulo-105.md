@@ -4,3 +4,4 @@ b) Que podrá ejercer su defensa personalmente o por medio de un abogado a su ex
 c) El lugar donde el interesado o su abogado, podrán consultar el expediente administrativo, el cual se pondrá a su disposición y se le garantizará la posibilidad de examinar, leer y copiar cualquier pieza del mismo, así como pedir certificaciones sobre aquellos actos y documentos cuyo acceso no está vedado.
 d) La confidencialidad hacia terceros de la investigación y
 e) La solicitud de señalar casa u oficina para atender notificaciones futuras bajo el apercibimiento, de que de no hacerse así. de no ser exacto o tomarse incierto el sitio indicado, se le tendrán por notificados los actos de procedimiento que se dicten con el sólo transcurso de veinticuatro horas.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 105 al 104)

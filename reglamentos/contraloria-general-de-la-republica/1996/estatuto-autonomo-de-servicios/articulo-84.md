@@ -18,3 +18,4 @@ m) Extralimitarse en las funciones o deberes encomendados y tomarse atribuciones
 n) Emitir recomendaciones en favor de interesados en ingresar al servicio de la Contraloría General.
 ñ) Ubicar comunicados de cualquier índole en las pizarras informativas de los distintos pisos de la Contraloría, sin contar con la autorización de la Unidad de Recursos Humanos.
 o) Además de las prohibiciones consignadas en este Reglamento, los servidores de la Contraloría General están sujetos también a las demás que establezcan la Ley Orgánica de la Contraloría. Su Reglamento y otras leyes.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 84 al 83)

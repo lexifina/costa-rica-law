@@ -12,3 +12,4 @@ j) Brindar especial atención a los servidores nuevos, tanto en los aspectos pro
 k) Cumplir sus funciones sin sujeción a los límites de la jornada establecida por este Estatuto, cuando sea necesario.
 I) Motivar a sus subalternos para que estos brinden eficientemente sus servicios.
 II) Cumplir con todas las demás obligaciones propias de su cargo.
+(Así modificada su numeración por acuerdo tomado en sesión de fecha 29 de noviembre del 2001 que lo pasó del 82 al 81)

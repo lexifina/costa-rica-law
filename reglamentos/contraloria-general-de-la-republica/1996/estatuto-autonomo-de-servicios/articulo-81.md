@@ -1,6 +1,6 @@
 CAPITULO XI
 De las obligaciones
-Artículo 81.—Son obligaciones de los servidores:
+Artículo 80.—Son obligaciones de los servidores:
 a) Cumplir con la jomada de trabajo que este Estatuto establece.
 b) Asistir puntualmente a su trabajo todos los días hábiles.
 c) Registrar la entrada y la salida las veces que sea necesario para garantizar la seguridad institucional y un adecuado control de asistencia y puntualidad.
@@ -9,8 +9,8 @@ e) Desempeñar los servicios propios de su cargo con toda diligencia, así como 
 f) Tratar con respeto y cortesía a sus jefes, compañeros y público visitante.
 g) Asistir a laborar con una adecuada presentación personal.
 h) Portar el gafete de identificación como funcionario de la Contraloría. cuando se encuentre en instalaciones de la Institución.
-i) Cuidar el equipo, mobiliario y útiles propiedad o al servicio de la Contraloría y no usarlos para trabajos ajenos a los propios de ésta, salvo lo dispuesto en el Reglamento sobre los Trabajos Finales de Graduación en Centros de Enseñanza Superior Nacionales.
-Asimismo, deberá informar de cualquier desperfecto en el equipo mencionado.
+i) Cuidar el equipo, mobiliario y útiles de la propiedad o al servicio de la Contraloría y no usarlos para trabajos ajenos a los propios de ésta, e informar de cualquier desperfecto en el equipo y mobiliario mencionado.
+(Así reformado por acuerdo tomado en sesión de fecha 29 de noviembre del 2001)
 j) Observar disciplina y buenas costumbres dentro y fuera del local de la Institución.
 k) Reportar a su superior sin demora cualquier irregularidad de la que se dieran cuenta o de la que fueran informados para la correcta marcha de esta Contraloría General, o de las atribuciones de ella.
 l) Guardar absoluta discreción y confidencialidad sobre los asuntos relacionados con su trabajo.
