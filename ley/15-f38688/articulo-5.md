@@ -1,0 +1,1 @@
+Artículo 5º.- La falta de pago de más de dos trimestres dará lugar al cobro judicial o a la clausura del establecimiento por medio de las autoridades competentes a solicitud del Fiscal, previo acuerdo de la Junta Directiva.
