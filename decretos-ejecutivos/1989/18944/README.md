@@ -14,3 +14,4 @@ Reglamenta la Recolección de Huevos de Tortuga Lora por la Asociación de Desar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-05-02 | la propia norma |
+| 2 | 1989-09-21 | Decreto Ejecutivo 19246 (1989-09-21) |
