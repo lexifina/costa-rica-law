@@ -1,0 +1,1 @@
+Art 8°.- Los Administradores sentarán en libro de cargo de especies las partidas de licor que despache el vigilante, de la cantidad que resulte medida en las oficinas, anotando en la guía la diferencia que se advierta, firmando y haciendo firmar al conductor la nota que se ponga, cuyo documento servirá de comprobante para el cargo.

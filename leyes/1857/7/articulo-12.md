@@ -1,0 +1,1 @@
+Art 12°.- Los proveedores para cobrar el valor del aguardiente en la Administración de Puntarenas, lo harán presentado los recibos de las dos Administraciones y estos serán el comprobante de la partida.

@@ -1,0 +1,1 @@
+Art 9°.- En las Administraciones se abonará a los taquilleros en dinero un seis por ciento de honorarios de venta y el flete en que convengan del licor despachado a las taquillas situadas fuera del pueblo, en que está radicada la Administración, sujetándolo a la aprobación de la Intendencia.
