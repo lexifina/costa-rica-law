@@ -1,1 +1,0 @@
-Artículo 146.- En ningún caso ni el Jefe ó Senador en ejercicio del Poder Ejecutivo, ni los Ministros, comunicarán orden alguna de palabra, sino que debe hacerse precisamente por escrito quedando antes rubricada por aquel en el libro correspondiente.

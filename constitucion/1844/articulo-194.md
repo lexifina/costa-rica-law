@@ -1,1 +1,0 @@
-Artículo 194.- En caso de ser admitido el proyecto, que no podrá serlo sino es por los dos tercios de votos de la Cámara de Representantes y de la de Senadores reunidos, se convocará una Asamblea Constituyente para que haga efectivas las reformas.

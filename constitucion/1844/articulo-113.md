@@ -1,1 +1,0 @@
-Artículo 113.- Mientras pende cualquiera disposición de una Cámara de la sanción de la otra, debe precisamente oírse entro de diez días el informe del Poder Ejecutivo, y si es posible imprimirse aquella para la censura pública.

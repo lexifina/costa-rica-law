@@ -1,1 +1,0 @@
-Artículo 158.- La facultad de nombrar árbitros en las acciones civiles y en cualquier estado del pleito, es inherente a toda persona: la sentencia que los árbitros dieren es inapelable si las partes comprometidas no se reservasen este derecho. La misma facultad es extensiva a las testamentarias del modo que establezca la ley.

@@ -1,1 +1,0 @@
-Artículo 38.- Solo en los delitos de traición se pueden ocupar los papeles de los habitantes del Estado, y únicamente podrá practicarse su examen por autoridad competente cuando sea indispensable para la averiguación de la verdad, y a presencia del interesado, devolviéndosele en el acto, cuantos no tengan relación con lo que se indaga.

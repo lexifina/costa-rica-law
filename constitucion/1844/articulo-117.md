@@ -1,1 +1,0 @@
-Artículo 117.- Para el escrutinio, elección y calificación de que habla el articulo anterior, formar los reglamentos interiores, prorrogar las sesiones, trasladarse y declarar responsabilidades del Ejecutivo, Magistrados Senadores, las dos Cámaras se reunirán en una, a excepción de los individuos acusados, y en la votación se tendrá por mayoría la del número que compongan.

@@ -1,1 +1,0 @@
-Artículo 24.- El orden de procedimientos en las causas civiles y criminales deber ser el mas pronto y eficaz para su terminación, y las leyes que lo arreglan deben ser estrictamente justas y razonables para que no peligren la vida, el honor y los bienes del inocente, y para que el crimen jamás quede impune.

@@ -1,1 +1,0 @@
-Artículo 193.- Si fuese admitido a discusión por los dos tercios de votos de las Cámaras que para el caso concurrirán a formar un solo cuerpo, se pasará a una comisión que dentro de tres días presente su dictamen, el cual sufrirá los trámites que establezca el reglamento interior.

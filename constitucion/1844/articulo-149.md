@@ -1,1 +1,0 @@
-Artículo 149.- La Corte Suprema de Justicia se dividirá en dos Salas para que indistintamente conozcan en 2ª instancia de los civil y criminal, quedando para la 3ª los que no hubiesen conocido en la 2ª con los conjueces que se nombren hasta completar el número de cinco.

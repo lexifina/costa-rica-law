@@ -1,1 +1,0 @@
-Artículo 142.- Las faltas accidentales del un Ministro, serán suplidas por el otro, y cuando por algún evento hayan de faltar los dos, el Senado propondrá para proveer el ministerio interina ó propietariamente.

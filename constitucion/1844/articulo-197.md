@@ -1,1 +1,0 @@
-Artículo 197.- Todo costarricense puede exigir ante la Cámara de Representantes ó la de Senadores, ante el Poder Ejecutivo ó ante el Judicial, la observancia de las leyes, y reclamar fundadamente las infracciones que advirtiere.

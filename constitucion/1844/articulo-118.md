@@ -1,1 +1,0 @@
-Artículo 118.- Dada la sanción con la fórmula respectiva, el Ejecutivo debe circularla dentro de diez días, a los Jefes respectivos, eclesiásticos, civiles y militares: estos dentro de 3º día a sus subalternos para que se publiquen en el inmediato día festivo y bajo la responsabilidad de cada uno por su omisión.

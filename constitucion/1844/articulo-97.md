@@ -1,1 +1,0 @@
-Artículo 97.- Para ser Representante se requiere: 1º ser natural del Estado ó americano naturalizado en él: 2º ser ciudadano en el ejercicio de sus derechos, mayor de veinticinco años, del estado seglar ó del eclesiástico secular: 3º saber leer y escribir; y 4º poseer en el Estado una propiedad raíz que no baje de quinientos pesos ó una renta de cien pesos anuales.

@@ -1,1 +1,0 @@
-Artículo 114.- Cuando la una Cámara niegue la sanción, devolverá a la otra uno de los tres ejemplares con el expediente en que consten los fundamentos de su negativa: archivará otro y remitirá el 3º al Poder Ejecutivo. Igual distribución hará cuando dé la sanción ó se obtenga de hecho por el transcurso del tiempo.
