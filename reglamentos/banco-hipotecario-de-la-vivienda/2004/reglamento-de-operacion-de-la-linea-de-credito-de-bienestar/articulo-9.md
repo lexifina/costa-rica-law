@@ -1,0 +1,1 @@
+Artículo 9º—Derogatoria: Se deroga el “Reglamento Línea de Crédito de Bienestar Familiar en las Asociaciones Mutualistas de Ahorro y Préstamo”, publicado en La Gaceta Nº 83 del martes 2 de mayo del 2000.

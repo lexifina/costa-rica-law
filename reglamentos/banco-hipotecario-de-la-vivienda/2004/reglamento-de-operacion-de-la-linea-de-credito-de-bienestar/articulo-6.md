@@ -1,0 +1,2 @@
+Artículo 6º—Sobre la fiscalización: El BANHVI, por medio de la Dirección de Supervisión evaluará la calidad de los créditos de Bienestar Familiar y exigirá los niveles de estimación correspondientes según la normativa para evaluación de carteras de crédito dictada por la SUGEF. De igual manera la Dirección de Supervisión revisará el cumplimiento de las disposiciones de las presentes normas de manera semestral.
+Todo lo anterior sin perjuicio de las competencias propias de la SUGEF y de otras autoridades financieras.
