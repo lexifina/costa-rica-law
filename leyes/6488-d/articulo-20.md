@@ -1,0 +1,3 @@
+Artículo 120.- Notificación de las resoluciones adoptadas entre dos Congresos.
+1. Las modificaciones que se introduzcan en el Convenio, en los Acuerdos y en los Protocolos Finales de esas Actas se sancionarán por una declaración diplomática que el Gobierno de la Confederación Suiza se encargará de formular y transmitir, a petición de la Oficina Internacional, a los gobiernos de los Países miembros.
+2. La Oficina Internacional constatará y notificará las modificaciones introducidas en los reglamentos y en sus Protocolos finales a las Administraciones postales. Igualmente se procederá con las interpretaciones mencionadas en el artículo 77, párrafo 2, letra c), punto 2º del Convenio y en las disposiciones correspondientes de los Acuerdos.
