@@ -1,0 +1,1 @@
+Art. 6. Las faltas absolutas de los Magistrados, como ausencia, enfermedad, etc. serán llenadas por los suplentes de que habla el artículo 2° que podràn ser compelidos por cualquiera número de Magistrados.

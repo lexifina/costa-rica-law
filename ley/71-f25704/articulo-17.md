@@ -1,0 +1,1 @@
+Art. 17. Serán Jueces de 1ª Instancia los Alcaldes primeros de las cabeceras de Partido, y sus faltas se suplirán con arreglo à la ley de 25 de Agosto de 831, con la excepcion del partido de las Cañas, conforme à la ley de 14 de Abril del mismo año.
