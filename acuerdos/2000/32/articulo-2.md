@@ -1,0 +1,1 @@
+Artículo 2°—Utilización conjunta. El emisor podrá utilizar ambos mecanismos para representar los valores comprendidos en una misma emisión; no obstante, deberá utilizar un único medio de representación para los valores colocados por un mismo procedimiento de colocación (ventanilla o subasta).

@@ -1,0 +1,3 @@
+Artículo 13.—Inscripción de los valores en cuentas individuales. Cada valor deberá inscribirse en una cuenta a nombre de su propietario que deberá estar debidamente individualizada y que el puesto de bolsa depositario mantendrá en la Central de Valores. La Central de Valores deberá velar por la clara identificación del titular de cada cuenta individual.
+Estas cuentas se manejarán por medio de códigos que establecerá la Central de Valores, con base en el principio de que a cada persona física o jurídica corresponderá un código único en el sistema.
+La inscripción la realizará el puesto de bolsa depositario el mismo día de la colocación de los valores, con base en la información que le remita el emisor o que él mismo posea, de conformidad con el artículo 9 de este Acuerdo.

@@ -1,0 +1,1 @@
+Artículo 20.—Deberes de los puestos depositarios. Los puestos de bolsa depositarios deberán guardar absoluta reserva de la información que conozcan en virtud de sus funciones de depositarios y les estará prohibido utilizar dicha información para obtener beneficios propios o de terceros.
