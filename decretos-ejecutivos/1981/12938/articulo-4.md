@@ -1,0 +1,26 @@
+Artículo 4°—Formarán parte del Subsistema, las siguientes instituciones y órganos de la Administración Pública:
+-El Ministerio de Economía, Industria y Comerció;
+-El Ministerio de Agricultura y Ganadería;
+-El Ministerio de Educación Pública;
+-El Ministerio de Trabajo y Seguridad Social;
+- La Oficina de Planificación Nacional y Política Económica;
+-El Banco Central de Costa Rica;
+-El Banco Nacional de Costa Rica;
+-El Banco Anglo Costarricense;
+-El Banco de Costa Rica;
+-El Banco Popular y de Desarrollo Comunal;
+-El Banco Crédito Agrícola de Cartago;
+-El Instituto de Tierras y Colonización;
+-El Instituto Nacional de Seguros;
+-El Instituto Nacional de Aprendizaje;
+-El Instituto Tecnológico de Costa Rica;
+-El instituto Mixto de Ayuda Social;
+-El Instituto Nacional de Fomento Cooperativo;
+-El Consejo Nacional de Investigaciones Científicas y Tecnológicas;
+- La Dirección Nacional dé Desarrollo Comunal;
+- La Dirección General de Asignaciones Familiares;
+- La Secretaría Ejecutiva de Planificación Sectorial Agropecuaria;
+- La Secretaria Ejecutiva de Planificación Sectorial de Economía, Industria y Comercio;
+-El Centro de Investigaciones Tecnológicas y Alimenticias;
+-El Centro para la promoción de las Exportaciones y de las Inversiones; y
+-El Centro Nacional de Abastecimientos (a través del Instituto de Fomento y Asesoría Municipal).
