@@ -1,0 +1,1 @@
+Art 9°.- Solo habrá lugar a súplica cuando la sentencia de vista no sea en todo conforme con la de 1° Instancia, y el interés efectivo del pleito exceda de mil pesos o sea incalculable; y en materias criminales, cuando la pena hubiese sido capital de confinación o destierro.

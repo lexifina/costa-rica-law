@@ -1,0 +1,1 @@
+Art 7.- Hecha la citación para sentencia, deberá pronunciarse dentro de ocho días, previa la vista de autos por los individuos que hayan de votar; no se disolverá la Sala, mientras no se hubiese acordado la sentencia; y el Ministro que disienta puede salvar su voto, puntualizado en el libro de reservas.

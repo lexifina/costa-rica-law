@@ -1,0 +1,1 @@
+Art 6°.- El despacho será diario desde las nueve de la mañana hasta las doce del día, exceptuado los feriados, siendo la substanciación a cargo del Ministro Letrado, quién podrá cometer a cualquiera de los otros dos, las cosas que no sean muy difíciles como examen de testigo, vista de ojos etc (2).

@@ -1,0 +1,1 @@
+Art 11°.- Las causas que se instruyan contra el Ministro del Despacho, Comandante General, Jefe Político Superior, Intendente, y contra los jefes de las rentas principales, admiten igualmente súplica, siendo interpuesta por el Fiscal o acusado.
