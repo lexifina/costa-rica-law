@@ -1,0 +1,3 @@
+ARTÍCULO 46
+1. Las acciones, las obligaciones y las omisiones en relación con un año-cuota que, de conformidad con el Convenio Internacional del Azúcar de 1953, modificado por el Protocolo de 1956, y en relación con la aplicación de dicho Convenio, debían tener consecuencias en un año-cuota posterior, producirán las mismas consecuencias durante el primer año-cuota del presente Convenio, como si continuaran en vigor a este efecto las disposiciones del Convenio de 1953, modificado por el Protocolo de 1956.
+2. Sin perjuicio de las disposiciones de los párrafos 1 y 2 del artículo 18 y del párrafo 1 del presente artículo, el Consejo asignará las cuotas iniciales provisionales de exportación para el año-cuota de 1959 durante el riles de enero de 1959.

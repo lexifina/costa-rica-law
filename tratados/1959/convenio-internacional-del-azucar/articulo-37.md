@@ -1,0 +1,6 @@
+ARTÍCULO 37
+1. El Consejo establecerá un Comité Ejecutivo que estará compuesto por delegados de los Gobiernos de siete países exportadores participantes, que serán elegidos por un año-cuota por mayoría de los votos de los países exportadores, y por representantes de los Gobiernos de siete países importadores participantes, que serán elegidos por un ano-cuota por mayoría de los votos de los países importadores.
+2. El Comité Ejecutivo tendrá y ejercerá las facultades y funciones del Consejo que este le haya delegado.
+3. El Director Ejecutivo del Consejo será Presidente ex officio del Comité sin vote. El Comité podrá elegir un Vicepresidente y establecerá su reglamento sujeto a la aprobación del Consejo.
+4. Cada miembro del Comité tendrá un voto. En el Comité Ejecutivo las decisiones se tomaran por mayoría de los votos emitidos por los países exportadores y mayoría de los votos emitidos por los países importadores.
+5. Cualquier Gobierno participante tendrá derecho de apelación ante el Consejo, en las condiciones que este prescriba, contra cualquier decisión del Comité Ejecutivo. En la medida en que la decisión del Consejo no concuerde con la decisión del Comité Ejecutivo esta Última será modificada a contar de la fecha en que el Consejo tome su decisión.

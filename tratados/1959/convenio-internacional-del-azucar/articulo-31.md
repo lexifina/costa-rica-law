@@ -1,0 +1,2 @@
+ARTÍCULO 31
+La presencia de delegados con un 75% del total de los votes de los Gobiernos participantes será necesaria para constituir quórum en cualquier reunión en el Consejo; pero si no se obtiene tal quórum en el día fijado para la reunión del Consejo convocada de acuerdo con el artículo 30, tal reunión se celebrara, siete días después, y la presencia de delegados con un 50% del total de votes de los Gobiernos participantes constituirá quórum.
