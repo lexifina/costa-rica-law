@@ -1,0 +1,1 @@
+Artículo 6°—El Ministro de Economía y Hacienda y el Tesorero Nacional darán al Banco Central las instrucciones pertinentes a fin de que esa institución retenga, de los fondos que el Gobierno tiene depositados a su haber en el Banco, las cantidades necesarias para cumplir debidamente con los pagos de amortización e intereses del préstamo.

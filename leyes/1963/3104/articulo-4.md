@@ -1,0 +1,2 @@
+Artículo 4°—Para efectos de lo dispuesto en la Carta Contrato que por esta ley se ratifica, el Gobierno de la República, por medio del Ministerio de Economía y Hacienda, y el Banco Central de Costa Rica, fijarán, en un convenio especial, los términos y condiciones relativos al pago de intereses sobre el préstamo.
+En dicho convenio especial se fijarán también las condiciones en que se harán las posibles amortizaciones extraordinarias al empréstito.
