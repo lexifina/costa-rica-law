@@ -1,0 +1,1 @@
+Artículo 4°—Se autoriza al Instituto Costarricense de Turismo para que coordine la realización de los estudios técnicos requeridos que comprenden un inventario de recursos turísticos y un plan de acción a corto y mediano plazo que comprenda las acciones a ejecutar para consolidar este circuito turístico. Éstos estudios se realizarán en el transcurso del año 1985.
