@@ -1,0 +1,1 @@
+Transitorio l.-Dentro de los 45 días hábiles posteriores a la publicación de este decreto MIDEPLAN, levantará a nivel regional la lista de los representantes de las organizaciones de base y productivas que podrán formar parte del Consejo de Desarrollo.

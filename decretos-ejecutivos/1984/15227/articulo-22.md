@@ -1,0 +1,1 @@
+Artículo 22.-El funcionamiento de los Consejas Regionales de Desarrollo se ajustará a lo establecida en los artículos del 49 al 58 inclusive de la Ley de la Administración Pública, que regulan los órganos colegiados.

@@ -1,0 +1,8 @@
+Artículo 14.-Los Consejos Regionales de Desarrollo son órganos del Subsistema de Dirección y Planificación Regional, con potestades para:
+a) Contribuir en la realización de los diferentes estudios regionales, así como en la preparación de los respectivos planes de su jurisdicción.
+b) Aprobar y promover el Plan de Desarrollo de la región y sus modificaciones y remitirlo a MIDEPLAN para su adecuada valoración con los planes nacionales y demás planes de otras regiones; el Consejo Regional lo remitirá posteriormente al Consejo Nacional de Desarrollo Regional en forma directa, adjuntando el dictamen de MIDEPLAN.
+c) Acordar, dentro de los lineamientos del Plan Nacional de Desarrollo y del Consejo Nacional de Desarrollo Regional, políticas, objetivos, planes, programas y proyectos de desarrollo en sus respectivos ámbitos territoriales y cuando proceda, elevarlas al conocimiento del Consejo Nacional de Desarrollo Regional; además urgir su adopción y ejecución por parte de los organismos u organizaciones en cada región.
+ch) Promover, coordinar y evaluar la ejecución de los proyectos públicos y promover la ejecución y evaluación de los proyectos privados en las regiones de su jurisdicción.
+d) Establecer mecanismos para la coordinación de las actividades de la administración pública a nivel regional.
+e) Negociar y coordinar con las diferentes autoridades nacionales y regionales públicas y privadas la puesta en marcha de diferentes programas y proyectos, así como gestionar recursos para el desarrollo de la región o para un espacio determinado de ella.
+f) Solicitar a las instituciones los recursos necesarios, para el debido funcionamiento de la estructura de planificación regional .

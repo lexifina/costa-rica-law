@@ -1,0 +1,7 @@
+Artículo 17.-La Asamblea General es la máxima autoridad del Consejo de Desarrollo y le corresponden las siguientes funciones:
+a) Promover y aprobar el Plan Regional de Desarrollo y sus modificaciones y remitirlos a MIDEPLAN para su adecuada valoración con los planes nacionales y demás planes de otras regiones dentro de las normas, métodos y diseños básicos que MIDEPLAN comunique formalmente para la formulación de planes regionales de desarrollo; el Consejo Regional lo remitirá posteriormente al Consejo Nacional de Desarrollo Regional en forma directa adjuntando el dictamen de MID E PLAN .
+b) Acordar, dentro de los lineamientos del Plan Nacional de Desarrollo y del Consejo Nacional de Desarrollo Regional, políticas, objetivos, planes, programas y proyectos de desarrollo en sus respectivos ámbitos territoriales y cuando proceda, elevarlas al conocimiento del Consejo Nacional de Desarrollo Regional; en su defecto urgir su adopción y ejecución por parte de los organismos y organizaciones en cada región.
+c) Deliberar y acordar los términos en que deberá cumplirse con las restantes funciones del Consejo enmarcados en el articulo 14 anterior, y pedir cuando lo considere necesario, los informes necesarios a la Junta Directiva sobre su desempeño.
+d) Acordar la constitución de comisiones de trabajo para la realización de tareas especiales.
+e) Analizar y aprobar el programa anual de trabajo del Consejo de Desarrollo.
+f) Cualquier otro que se le asigne posteriormente.

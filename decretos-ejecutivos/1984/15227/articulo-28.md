@@ -1,0 +1,1 @@
+Artículo 28.-En los casos que se requiera y por iniciativa del Ministro de Planificación Nacional y Política Económica se podrá autorizar la creación de Consejos Subregionales de Desarrollo de acuerdo con lo que al efecto disponga ese Ministerio según las características de cada subregión.

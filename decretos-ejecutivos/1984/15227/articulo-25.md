@@ -1,0 +1,1 @@
+Artículo 25.-Aquellos funcionarios que forman parte de los Consejos Regionales de Desarrollo, deberán de asistir a las reuniones correspondientes y cumplir con las demás funciones propias de su condición de miembros del Consejo Regional de Desarrollo o
