@@ -1,0 +1,1 @@
+Artículo 2°.-Los impuestos correspondientes a los barcos pesqueros, por concepto de matrícula anual y por trasbordo de pescado de un barco a otro, establecidos por el Decreto-Ley N°739 de 4 de octubre de 1949, deben cancelarse en dólares de los Estados Unidos de Norteamérica.
