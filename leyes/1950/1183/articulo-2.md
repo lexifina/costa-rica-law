@@ -1,0 +1,1 @@
+Artículo 2°.- La suma emprestada devengará un interés no mayor de seis por ciento anual y la obligación se cancelará mediante abonos mensuales de dos mil colones, que cubrirán intereses y amortización, y el saldo se pagará a un año de plazo; se faculta a la Municipalidad para obtener prórrogas con la mencionada Institución Bancaria.
