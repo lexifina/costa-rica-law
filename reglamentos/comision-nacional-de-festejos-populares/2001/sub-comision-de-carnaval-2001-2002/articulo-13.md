@@ -1,0 +1,1 @@
+Artículo 13.—Todos los concursantes irán numerados por una identificación que se diseñará oportunamente, y que permitirá al Jurado hacer las clasificaciones del caso para establecer los ganadores del evento.

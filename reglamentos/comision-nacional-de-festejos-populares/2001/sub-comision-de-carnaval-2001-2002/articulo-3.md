@@ -1,0 +1,1 @@
+Artículo 3°—El presidente de la subcomisión establecerá la fecha, hora local y periocidad de las sesiones ordinarias, así como la convocatoria a reuniones extraordinarias cuando así lo considere conveniente.

@@ -1,0 +1,1 @@
+Artículo 14.—Los formularios de inscripción de concursantes, deben consignar el nombre del representante respectivo, su número de cédula, dirección, teléfono, lugar de trabajo y otras informaciones básicas, nombre del grupo, entidad u organización que representa y denominación del espectáculo que ofrece presentar.

@@ -1,0 +1,1 @@
+Artículo 29.-Las personas, grupos, entidades, que deseen participar en el desfile de Carnaval, NO CONCURSANTES, podrán hacerlo previa aceptación por parte de la Subcomisión de Carnaval y deberán acogerse a la Reglamentación exigida a los concursantes.

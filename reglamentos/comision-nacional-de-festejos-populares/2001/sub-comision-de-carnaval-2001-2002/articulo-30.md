@@ -1,0 +1,1 @@
+Artículo 30.-De presentarse al desfile participantes en disciplinas no inscritas oficialmente, podrán hacerlo previa autorización del presidente de la Subcomisión, pero no tendrán derecho a premiación.

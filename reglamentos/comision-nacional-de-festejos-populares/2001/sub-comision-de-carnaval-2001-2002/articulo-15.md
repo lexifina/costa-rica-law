@@ -1,0 +1,1 @@
+Artículo 15.—Los concursantes si así lo desearan, podrán hacer alusión a empresas o entidades patrocinadoras, una vez que se obtenga el permiso de la Subcomisión de Carnaval y de la Comisión de Festejos Populares.

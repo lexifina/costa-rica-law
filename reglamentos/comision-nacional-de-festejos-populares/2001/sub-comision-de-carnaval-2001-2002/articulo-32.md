@@ -1,0 +1,1 @@
+Artículo 32.-Ningún participante o concursante en el Carnaval, podrá alegar desconocimiento de este Reglamento. A cada uno de ellos, se le hará entrega de un instructivo y un Reglamento con las disposiciones a seguir.

@@ -1,0 +1,3 @@
+Artículo 12.—Los concursos se regirán por las siguientes bases generales:
+a) Podrán participar en el Carnaval de fin de año, todas las personas físicas y jurídicas, organizaciones populares, entidades públicas o privadas, que así lo soliciten en la respectiva boleta de inscripción a la Subcomisión de Carnaval, una vez que esta proceda a dar la aceptación correspondiente.
+b) Todos los participantes y concursantes, lo harán por su propia cuenta y riesgo. La Comisión de Festejos Populares y la Subcomisión de Carnaval, no responderán por ningún daño, perjuicio o accidente que sufrieran, lo mismo que sus vehículos, o los que pudieran ocasionar a terceros durante el desarrollo del Carnaval .

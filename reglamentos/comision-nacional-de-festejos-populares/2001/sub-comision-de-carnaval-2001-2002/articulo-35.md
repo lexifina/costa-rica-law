@@ -1,0 +1,1 @@
+Artículo 35.-Los participantes no podrán portar en su vestimenta, gorras o numeración, publicidad, que no sea autorizada de previo por la Subcomisión del Carnaval. Esta última se reserva el derecho de descalificar a todo participante que incumpla la presente cláusula.
