@@ -1,0 +1,1 @@
+Art.20. Todos los funcionarios y empleados del Estado estarán obligados á facilitar á la Comisión directora los auxilios legales que les pidan hasta donde alcancen sus facultades. Los cobros y ejecuciones de los fondos pertenecientes á la sociedad, en los casos que acuerde la Comisión, se harán por medio del Juzgado de hacienda, y tendrán todos los privilegios de deudas fiscales.

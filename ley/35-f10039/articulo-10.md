@@ -1,0 +1,3 @@
+Art. 10. Los fondos de caminos son por ahora: el derecho de exportación impuesto al café, y que bajo el nombre de peaje pagan los efectos que se impongan del exterior (1). Los candales que dichos fondos existan en arcas públicas, serán entregados sucesivamente a disposición de la Comisión, y esta misma arreglará para el futuro el modo y forma de recaudar tales rentas directamente y con absoluta independencia para que en ningún tiempo se distraigan de su destinacion. También pone al Gobierno á su disposición el Presidio urbano y todos sus elementos bajo los recursos y reglamentos establecidos.(2)
+(1) Véase sobre esto el decreto n°18 de Agosto de 1848.
+(2) Véase sobre lo relativo á fondos el decreto n°29 de Julio de 1845

@@ -1,0 +1,1 @@
+Art. 18. El gobierno con vista de las circunstancias, podrá mandar en adelante que otras clases de agricultores o comerciantes se agreguen a los que especulan en café, cuando la importancia de otro cultivo floreciente merezca esta consideración.

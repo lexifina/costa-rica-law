@@ -1,0 +1,1 @@
+Art 13. También podrá hacer los desembolsos necesarios para comprar carretas de fierro ú otras máquinas de transporte que mejor se adapten á la naturaleza de nuestro suelo, y para introducir al Estado buenas razas de animales de tiro ó de carga.
