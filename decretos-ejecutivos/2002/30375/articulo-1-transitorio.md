@@ -1,0 +1,1 @@
+Transitorio único: el sobresueldo fijado mediante la adición del artículo 7° del Decreto Ejecutivo N° 20611-J, de 30 de julio de 1991, queda sujeto a la existencia del contenido presupuestario para tal propósito.
