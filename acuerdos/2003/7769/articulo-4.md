@@ -1,0 +1,1 @@
+4°—Establecer la base mínima contributiva del Seguro de Invalidez, Vejez y Muerte en un monto igual al ingreso mínimo de referencia existente de conformidad con la escala contributiva de los trabajadores independientes.
