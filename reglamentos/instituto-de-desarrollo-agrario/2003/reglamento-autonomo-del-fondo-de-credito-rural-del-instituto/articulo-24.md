@@ -1,0 +1,1 @@
+Artículo 24.—De la garantía prendaria. Se podrá autorizar la garantía prendaria en el tanto el bien mueble que se ofrezca para dicho fin cumpla con los requerimientos que para tal efecto establezca el Manual de Procedimientos.

@@ -1,0 +1,1 @@
+Artículo 39.—Realizadas todas las acciones administrativas y judiciales pertinentes, sin que se haya podido lograr la recuperación de la cuenta, la Dirección de Formación y Desarrollo de Asentamientos remitirá a la Dirección Administrativa Financiera los estados financieros del Fondo, reflejando en los mismos la estimación de cuentas incobrables.

@@ -1,0 +1,8 @@
+Artículo 14.—Requisitos de las solicitudes de crédito para personas físicas. Las solicitudes de crédito serán presentadas en la Oficina Subregional correspondiente, adjuntando la siguiente información, que conformará el expediente respectivo:
+a) Fotocopias legibles, por ambos lados, de la cédula de identidad vigente del o la solicitante y su cónyuge.
+b) En el caso de créditos fiduciarios, fotocopias legibles de la cédula de identidad vigente del fiador(es) o fiadora(s). Si es asalariado(a), deberá presentar constancia de salario con un máximo de un mes de extendida y fotocopia de la orden patronal al día. El salario neto a comprometer debe ser igual o superior a la cuota del crédito avalado. En casos de no asalariados, presentar una certificación de ingresos extendida por un Contador Privado Autorizado.
+c) Para aquellos casos en que la garantía sea hipotecaria y la propiedad a hipotecar no sea la parcela o no esté a nombre del deudor, deberá presentar el avalúo correspondiente, realizado por un profesional debidamente autorizada por el Colegio respectivo, así como un estudio registral de la propiedad.
+d) Aportar el plan de inversión a financiar con los recursos del préstamo que se solicita, con indicación detallada del tipo, cantidad, valor unitario y total de los rubros y/o elementos a ser financiados, su plan de entrega y amortización y plan de pago respectivo debidamente firmado por el solicitante y el técnico responsable del análisis.
+e) Carta de intención de compra-venta del producto, en caso de que fuera necesario.
+f) Certificación registral del bien a ofrecer en garantía.
+g) Llenar el formulario de solicitud de crédito.

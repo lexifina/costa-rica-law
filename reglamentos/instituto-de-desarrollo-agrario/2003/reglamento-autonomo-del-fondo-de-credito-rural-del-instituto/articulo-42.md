@@ -1,0 +1,1 @@
+Artículo 42.—El Área de Crédito Rural de conformidad a las facultades que le confiere este Reglamento, recomendará positiva o negativamente ante la Junta Directiva los créditos avalados por las direcciones regionales, con base en la reglamentación vigente.

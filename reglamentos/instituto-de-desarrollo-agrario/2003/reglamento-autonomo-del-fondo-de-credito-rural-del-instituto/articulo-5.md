@@ -1,0 +1,1 @@
+Artículo 5º—De las inversiones. Los recursos disponibles del Fondo de Crédito Rural podrán invertirse en títulos valores de acuerdo a las regulaciones que sobre el particular emita el Ministerio de Hacienda, siempre y cuando dichas inversiones, no afecten la operacionalidad del Fondo.

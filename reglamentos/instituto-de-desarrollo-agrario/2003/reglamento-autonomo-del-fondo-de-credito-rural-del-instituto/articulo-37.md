@@ -1,0 +1,1 @@
+Artículo 37.—Las operaciones calificadas por las Oficinas Subregionales en la categoría de cobro judicial serán remitidas al Área de Crédito Rural, para que esta unidad eleve los documentos a la Junta Directiva para su conocimiento y trámite legal respectivo.

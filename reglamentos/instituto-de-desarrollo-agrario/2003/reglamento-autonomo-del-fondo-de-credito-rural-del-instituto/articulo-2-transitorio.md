@@ -1,0 +1,1 @@
+Transitorio 2.—En un plazo no mayor a tres meses de la aprobación del presente Reglamento, el Área de Crédito Rural deberá promulgar el respectivo manual de procedimientos, a que hace referencia el presente Reglamento.

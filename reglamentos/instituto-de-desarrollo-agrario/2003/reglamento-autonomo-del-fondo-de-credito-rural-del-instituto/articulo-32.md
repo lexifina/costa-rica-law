@@ -1,0 +1,1 @@
+Artículo 32.—Si la persona deudora, al momento de realizar un arreglo de pago con el Instituto cuenta con la respectiva escritura pública sobre su parcela, no se le aceptará otra garantía que no sea la hipotecaria como respaldo al arreglo solicitado.

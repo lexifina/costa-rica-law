@@ -1,0 +1,1 @@
+Artículo 20.—De los montos. El monto del préstamo que se autorizará depende del estudio técnico que presenten los Comités; condicionado en cada caso a los requerimientos de efectivo, tipo de garantía del crédito y la disponibilidad presupuestaria del Área de Crédito Rural.

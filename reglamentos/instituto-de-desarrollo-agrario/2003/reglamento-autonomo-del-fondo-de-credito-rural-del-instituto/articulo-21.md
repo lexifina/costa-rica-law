@@ -1,0 +1,1 @@
+Artículo 21.—El monto de cada operación podrá alcanzar hasta un 100% del costo del proyecto a ser financiado, siempre y cuando el requerimiento de efectivo y el estudio del proyecto así lo requiera, con base en la recomendación del Comité.
