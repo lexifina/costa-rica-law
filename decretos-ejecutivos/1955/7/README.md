@@ -14,3 +14,4 @@ Reglamento para Préstamos Hipotecarios del Instituto Nacional de Vivienda y Urb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1955-02-24 | la propia norma |
+| 2 | 1958-10-17 | Decreto Ejecutivo 16 (1958-10-17) |
