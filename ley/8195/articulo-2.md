@@ -1,0 +1,1 @@
+Artículo 2°—Autorízase al MEP para celebrar y divulgar en todas las escuelas del país el Día Internacional de la Tolerancia, el 16 de noviembre de cada año, así declarado por la Organización de las Naciones Unidas (ONU).
