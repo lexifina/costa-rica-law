@@ -1,0 +1,1 @@
+Artículo 10.—No se podrá cubrir gastos de transporte y hospedaje a los Regidores y Síndicos propietarios y suplentes y Empleados Municipales que residan a una distancia no menor de cinco kilómetros de la sede de la Municipalidad.

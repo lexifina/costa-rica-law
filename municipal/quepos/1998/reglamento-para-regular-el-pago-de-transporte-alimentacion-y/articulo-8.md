@@ -1,0 +1,1 @@
+Artículo 8°—Bajo ningún concepto se aceptará pagos de transporte, alimentación y hospedaje, si estos no están debidamente respaldados por el informe mensual de la Secretaría Municipal a la Tesorería Municipal que indica el punto 5 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 11.—Los gastos a que se refiere este Reglamento solo podrán ser si existe partida presupuestaria con contenido económico debidamente aprobado por la Contraloría General de la República.
