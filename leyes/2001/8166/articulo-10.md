@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros de la Junta Directiva podrán ser removidos de sus cargos cuando medie justa causa, por pérdida de confianza, incapacidad profesional, negligencia o ausencia a tres sesiones consecutivas, sean estas ordinarias o extraordinarias, o cuando se demuestre indiferencia o falta de interés manifiesto; en todos los casos deberá aplicarse el debido proceso.

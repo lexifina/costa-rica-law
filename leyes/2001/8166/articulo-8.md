@@ -1,0 +1,1 @@
+Artículo 8°—El presidente de la Junta Directiva tendría l representación legal del Instituto, con facultades de apoderado general estará sujeto a la normativa y disposiciones legales y reglamentaria vigentes, según el artículo 1255 del Código Civil.
