@@ -13,3 +13,4 @@ Crea Comité Nacional de Transportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-01-15 | la propia norma |
+| 2 | 1980-01-15 | SINALEVI (sin norma nombrada) |
