@@ -1,0 +1,3 @@
+Artículo 66,-Procedimientos para imponer sanciones.—En el caso de servidores del Régimen de Servicio Civil, las sanciones serán impuestas conforme a los procedimientos sancionados en dicho régimen. A falta de ellos, o en el caso de servidores no sujetos a dicho régimen toda sanción, excepto la amonestación verbal, será impuesta previa audiencia y oportunidad de defensa al interesado.
+La oportunidad de defensa implicará el acceso al expediente respectivo y la posibilidad de presentar pruebas y alegatos.
+En todo caso, cuando la falta amerite amonestación escrita, suspensión o desunirse el procedimiento señalado en los artículos siguientes.

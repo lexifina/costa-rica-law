@@ -1,0 +1,1 @@
+Artículo 67, -Presentación de denuncia.—Toda queja o denuncia contra un servidor del INA deberá ser presentada ante el jefe inmediato, quien deberá cumplir con el procedimiento que se indica en los subsiguientes artículos, lo mismo harán los superiores que por cualquier motivo o medio se informaren de la comisión del delito o falta de uno de sus subalternos.

@@ -1,0 +1,16 @@
+# Reglamento (1982-01-28)
+
+Reglamento Autónomo de servicio del Instituto Nacional de Aprendizaje
+
+- Tipo: Reglamento
+- Número: 0
+- Fecha: 1982-01-28
+- Ente emisor: Instituto Nacional de Aprendizaje
+- Publicación: La Gaceta N° 35 del 1982-02-19
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=55557&param2=60871&param3=1 (ficha 55557)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1982-02-27 | la propia norma |

@@ -1,0 +1,6 @@
+Artículo 37-Otras licencias.—Por vía de excepción, todos los servidores podrán disfrutar de licencia conforme a las siguientes disposiciones:
+a) Los jefes inmediatos podrán otorgar permisos a sus subalternos para ausentarse no más de media jornada diaria, en casos justificados, sin rebaja de salario y hasta un máximo de cuatro medias jornadas por mes, con la debida aprobación;
+b) Los jefes inmediatos concederán licencias hasta por cinco días hábiles con k de sueldo, en casos de matrimonio del servidor, por fallecimiento de alguno de sus padres, hijos, hermanos o cónyuge;
+c) Todos los demás permisos con goce de sueldo que conforme a disposiciones internas sean procedentes, deberán ser deducidos del período de vacaciones sin que el número de días de licencia pueda exceder del número de días de vacaciones que correspondan al servidor en el momento de otorgarse el permiso;
+ch) Las licencias sin goce de salario podrán ser otorgadas hasta por un año, en casos muy calificados y hasta por dos años a instancia de un gobierno extranjero, un organismo internacional, de otra entidad pública, o cuando se trate del cónyuge de un becario que deba acompañarlo al exterior; y
+d) Las licencias sin goce de sueldo que excedan de una semana deberán ser otorgadas por la gerencia, las demás por los jefes inmediatos-

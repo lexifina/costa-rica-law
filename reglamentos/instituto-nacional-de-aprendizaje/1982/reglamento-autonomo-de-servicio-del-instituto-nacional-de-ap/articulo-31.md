@@ -1,0 +1,1 @@
+Artículo 31.—Acumulación.—Las vacaciones podrán acumularse por una sola vez, mediante acuerdo razonado de la gerencia, dentro de los términos del artículo 159 del Código de Trabajo. Será nula la acumulación de vacaciones antes de completar el periodo, en proporción al tiempo trabajado.

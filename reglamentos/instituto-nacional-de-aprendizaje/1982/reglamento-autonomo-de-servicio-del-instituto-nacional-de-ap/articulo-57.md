@@ -1,0 +1,1 @@
+Artículo 57.—Error de marca.—No obstante lo dispuesto en el articulo anterior dejará de imponerse la sanción disciplinaria si el trabajador que por error marcó la tarjeta de otro funcionario, o aquél a quien le marcaron la suya, informa del hecho en el curso de la jornada de trabajo siguiente al Departamento de Relaciones con el Personal.

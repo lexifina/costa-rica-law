@@ -1,0 +1,2 @@
+Artículo 69..- Resolución del asunto.—Presentada la oposición, el jefe del Departamento de Relaciones con el Personal deberá evacuar la prueba ofrecida, en un término que no exceda los siete días hábiles.
+Evacuada ésta, se tendrá por concluida la investigación y deberá dictarse la resolución de fondo la cual deberá ser notificada personalmente o por carta certificada al servidor, a efecto de que pueda ejercer los recursos estipulados en el artículo 70. Si los hechos probados ameritan despido se pasará el asunto a la gerencia.
