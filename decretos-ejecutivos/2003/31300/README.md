@@ -14,3 +14,4 @@ Convoca a la Asamblea Legislativa a Sesiones Extraordinarias.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-13 | la propia norma |
+| 2 | 2003-08-13 | Decreto Ejecutivo 31310 (2003-08-04) |

@@ -69,3 +69,5 @@ Artículo 1º—Convócase a la Asamblea Legislativa a Sesiones Extraordinarias,
 - EXPEDIENTE N° 15.319, Comisión Especial que conocerá y dictaminará el Expediente N° 15.278.
 - EXPEDIENTE N° 15.278, Ley Reguladora de la Actividad Portuaria de la Costa del Pacífico.
 - EXPEDIENTE N° 15.331, Proyecto de ley para la reforma del inciso c) del artículo 2 y el artículo 13, se derogan los artículos 11 y 12 de la Ley N° 8130 a la que se le incluye un artículo transitorio.
+Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 31310 de 04 de agosto de 2003, publicado en La Gaceta N° 155 de 13 de agosto de 2003, en el siguiente sentido:
+Expediente Nº 14.862, Comisión Especial dictaminadora que rendirá un nuevo dictamen sobre el proyecto "Ley de Servicios Privados de Seguridad", expediente 12.877.
