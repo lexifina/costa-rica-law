@@ -1,0 +1,1 @@
+Artículo 2º—Deróguense los Decretos Ejecutivos N° 21481-MEIC-S publicado en La Gaceta N° 247 del 24 de diciembre de 1992 y el N° 22646-MEIC-S publicado en La Gaceta N° 216 del 11 de noviembre de 1993.
