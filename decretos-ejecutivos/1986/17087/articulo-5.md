@@ -1,0 +1,1 @@
+Artículo 5°-Le corresponderá al Director Ejecutivo la supervisión y dirección de los proyectos que se realicen en la zona de su jurisdicción, con sus respectivas jefaturas, bajo la supervisión del Coordinador General del Programa, tomando en cuenta en lo que corresponda la estrategia y prioridades del Plan Maestro de la Región Brunca.

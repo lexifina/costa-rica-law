@@ -1,0 +1,1 @@
+Artículo 4°-El Consejo Coordinador nombrará un Director Ejecutivo, quien gozará de las facultades necesarias para el desempeño de sus funciones y cometidos y se vinculará periódicamente para los efectos de coordinación con el Equipo Técnico de MIDEPLAN en la Región Brunca, quienes le brindarán todo tipo de apoyo y asesoría.
