@@ -1,0 +1,1 @@
+Artículo 8°—Con la aprobación previa del Señor Ministro, la Unidad podrá delegar parcialmente en otra dependencia institucional la ejecución de las funciones indicadas en el artículo anterior, toda vez que con ello se logre una mayor oportunidad y eficiencia en la prestación del servicio, sin que esto implique la pérdida en el control administrativo sobre los vehículos.

@@ -1,0 +1,1 @@
+Artículo 19.—La Unidad es la encargada de administrar el servicio de mantenimiento que reciben los vehículos del Ministerio de Salud, y velará porque en todo momento exista un sistema de mantenimiento a nivel nacional, que permita a todos los usuarios hacer uso del mismo, en forma ágil y eficiente.

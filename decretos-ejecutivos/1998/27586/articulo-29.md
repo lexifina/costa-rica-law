@@ -1,0 +1,1 @@
+Artículo 29.—Los Operadores de Equipo Móvil no deben permitir personas no autorizadas para la función o el servicio que se propone brindar, viajen en los vehículos del Ministerio de Salud; de conformidad con lo dispuesto en el artículo 234 inciso e) de la Ley de Tránsito, para lo cual requerirán autorización previa de la Oficialía Mayor, salvo casos de emergencia comprobada.

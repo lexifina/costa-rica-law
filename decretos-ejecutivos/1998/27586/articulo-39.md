@@ -1,0 +1,1 @@
+Artículo 39.—Ningún operador de equipo móvil está autorizado para efectuar arreglos extrajudiciales en caso de accidentes con vehículos del Ministerio de Salud, únicamente deben indicarle al particular que se apersone o comunique a la Unidad Interna de Transportes para efectuar las gestiones correspondientes.

@@ -1,0 +1,1 @@
+Artículo 5°—Los vehículos de uso administrativo son todas aquellas unidades no contempladas en el artículo anterior, utilizadas en la Institución como medio de transporte de personas, materiales y equipos inscritos a nombre del Ministerio o cedidos en calidad de préstamo a la Institución.

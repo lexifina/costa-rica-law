@@ -1,0 +1,1 @@
+Artículo 22.—Es prohibido que los funcionarios no autorizados conduzcan vehículos del Ministerio, salvo casos muy calificados en que las circunstancias sean especiales a grado tal que ameriten que dichos vehículos sean conducidos transitoriamente
