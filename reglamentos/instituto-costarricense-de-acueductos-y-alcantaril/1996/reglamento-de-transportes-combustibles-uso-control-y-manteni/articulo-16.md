@@ -1,0 +1,1 @@
+Artículo 16.—Para lograr el mejor aprovechamiento de las unidades disponibles, el Proceso de Bienes y Servicios y los que poseen vehículos a su servicio, deberán agrupar en un solo viaje, varias solicitudes de transporte que se generen hacia un mismo sitio o ruta, dando una adecuada coordinación del viaje.

@@ -1,0 +1,1 @@
+Artículo 35.—Todo conductor con responsabilidad de uno o varios vehículos, debe tenerlos inscritos a su nombre por medio de Vales por equipo y Mobiliario de conformidad con los artículos 165 y 166 del Reglamento de Activos Fijos de AyA.
