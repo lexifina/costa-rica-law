@@ -1,1 +1,2 @@
-Artículo 53.-No se practicará ningún sorteo sin que el Inspector Delegado del Poder Ejecutivo, publique constancia de encontrarse depositado en la Tesorería de la Junta el dinero necesario para cubrir los premios. La Tesorería no podrá por ningún motivo emplear esa suma para otros fines.
+Artículo 53.-En representación de la Junta Directiva asistirán a los sorteos: EI Presidente o el miembro de la misma que el designe; también concurrirá el Jefe del Departamento de Loterías o un delegado suyo, y en calidad de Inspector, uno de los Alcaldes Penales del Cantón Central de San José. Todos deberán firmar el acta conteniendo la relación de las operaciones y resultados del sorteo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12 del 13 de agosto de 1962)

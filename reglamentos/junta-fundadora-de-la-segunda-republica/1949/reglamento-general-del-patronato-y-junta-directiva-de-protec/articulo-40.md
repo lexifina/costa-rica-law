@@ -1,2 +1,4 @@
-Artículo 40.-EI Departamento de Loterías tendrá a su cargo la administración y manejo de las loterías autorizadas por la ley. Al frente habrá un Jefe de Departamento.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 7 del 26 de marzo de 1956)
+CAPITULO OCTAVO
+Del Departamento de Loterías
+Artículo 40.-El Jefe del Departamento de Loterías tendrá a su cargo todas las operaciones concernientes a la administración de Loterías, excepto la venta de billetes y el pago de premios, que corresponden a la Tesorería.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12 del 13 de agosto de 1962)

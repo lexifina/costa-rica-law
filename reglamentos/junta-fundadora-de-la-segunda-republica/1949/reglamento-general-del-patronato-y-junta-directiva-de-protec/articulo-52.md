@@ -1,1 +1,2 @@
-Artículo 52.-Además del Presidente de la Junta, o del Vocal que él designe como representante, asistirán a los sorteos, el Administrador de las Loterías o un Delegado suyo, y en calidad de Inspectores, uno de los Alcaldes Penales del cantón de San José (llamados por su orden de numeración) y un Delegado del Poder Ejecutivo.
+Artículo 52.-Los sorteos se efectuarán en lugar que ofrezca acceso fácil al público a fin de que quien lo desee pueda vigilar las operaciones. Los aparatos mecánicos o los sistemas que se usen para efectuar los sorteos deberán ser reconocidos como de absoluta confianza para garantizar que únicamente el azar determina los números y sus correspondientes premios.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12 del 13 de agosto de 1962)

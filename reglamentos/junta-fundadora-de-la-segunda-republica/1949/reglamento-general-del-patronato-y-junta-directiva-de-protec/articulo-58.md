@@ -1,1 +1,2 @@
-Artículo 58-El Administrador de Loterías llevará los libros, formularios u otros registros que fueren necesarios para su trabajo.
+Artículo 58.-La Tesorería y la Contabilidad deberán llevar cuenta individual de cada sorteo, en la que se asentara la suma de premios a pagar, la de premios pagados diariamente, y el saldo que confrontarán entre si semanalmente, ambas dependencias. La Tesorería llevara además el control por fracciones numeradas de los premios principales, a medida que se vayan pagando.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12 del 13 de agosto de 1962)

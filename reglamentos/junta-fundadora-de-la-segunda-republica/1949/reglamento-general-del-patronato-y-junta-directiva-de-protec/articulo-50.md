@@ -1,1 +1,2 @@
-Artículo 50.-Los sorteos se harán en lugar espacioso y público, para que todo el que lo desee pueda vigilar las operaciones. Cada número premiado se consignará inmediatamente en pizarras que los concurrentes puedan ver con toda claridad.
+Articulo 50.-La Junta podrá suprimir totalmente uno o más sorteos siempre que no haya vendido billetes correspondientes a los mismos, o que pueda recoger los vendidos devolviendo su valor, cuando razones especiales lo justifiquen. En tal caso deberá avisarlo por los medios que considere adecuados, con no menos de tres días de la fecha que se había estipulado para realizar el sorteo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12 del 13 de agosto de 1962)

@@ -1,2 +1,2 @@
-Artículo 56.-No podrá distribuirse en premios menos del 60 % como promedio en un solo plan de lotería y chances sobre el total de billetes emitidos. La combinación de los premios será determinada por la Junta.
-(Así reformado por acuerdo N° 24 del 21 de enero de 1957)
+Artículo 56.-EI pago de billetes premiados, solamente se detendrá cuando así lo ordene autoridad Judicial competente. En tal caso la Tesorería conservará suma correspondiente a la orden de los Tribunales de Justicia hasta que el caso sea resuelto en última instancia.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12 del 13 de agosto de 1962)
