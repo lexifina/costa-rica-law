@@ -14,3 +14,4 @@ Modifica los Derechos Arancelarios a Importación de Productos Lista 85 de C.R.A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-06 | la propia norma |
+| 2 | 2000-01-06 | Ley 8 |
