@@ -14,3 +14,4 @@ Reglamento de Organización y Funciones de la Dirección General de Tributación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-15 | la propia norma |
+| 2 | 1998-07-21 | Decreto Ejecutivo 27278 (1998-07-21) |
