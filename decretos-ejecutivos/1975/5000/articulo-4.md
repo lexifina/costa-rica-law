@@ -1,4 +1,5 @@
-Artículo 4°-En el desempeño de su cometido, la Dirección General de Comercio Interior Y la Dirección de Hidrocarburos en materia de su competencia, podrán:
+Artículo 4°-En el desempeño de su cometido, la Dirección General de Comercio (*) Y la Dirección de Hidrocarburos en materia de su competencia, podrán:
+(*)(Modificada su denominación por el artículo 5° del decreto ejecutivo N° 19883 del 28 de agosto de 1990. Anteriormente indicaba “Dirección General de Comercio Interior”)
 a) Requerir de las personas físicas o jurídicas, con carácter de declaración jurada informes de costos de producción, de insumos, de ventas y de inventarios. A los anteriores informes deberá acompañar se los documentos complementarios que se soliciten.
 Para el cumplimiento de lo aquí dispuesto, cada Dirección ordenará mediante nota escrita. los informes Y documentos que requiere, indicándolos expresamente, y suministrará cuando lo estime necesario los formularios correspondientes.
 La anterior comunicación será remitida por correo certificado a la persona de que se trate o al representante de la misma e indicando la forma de presentación de los informes Y documentos;
