@@ -14,3 +14,4 @@ Crea Comisión de la Actividad Lechera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-09-23 | la propia norma |
+| 2 | 1982-03-18 | Decreto Ejecutivo 13468 (1982-03-18) |
