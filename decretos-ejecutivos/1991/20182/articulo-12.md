@@ -1,0 +1,2 @@
+Artículo 12.-La Dirección General de Servicio Civil, por medio de su Departamento de Operaciones Desconcentradas, aprobará o improbará los contratos de dedicación exclusiva en un plazo no mayor de diez días hábiles contados a partir de la fecha de presentación.
+Una vez aprobado el contrato en referencia, la institución o empresa pública, procederá a confeccionar la acción de personal respectiva, que deberá seguir el trámite usual que rige en esta materia.
