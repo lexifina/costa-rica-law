@@ -1,0 +1,1 @@
+Artículo 3°-La Comisión podrá organizarse internamente en subcomisiones, y formar grupos de trabajo con otras personas, más directamente interesadas o relacionadas con actividades específicas bajo su responsabilidad. Asimismo, podrá consultar el criterio de organizaciones empresariales, profesionales, sindicales y otras. .
