@@ -1,0 +1,3 @@
+Artículo 2°—Modifiqúese los artículos 4 y 8 del Decreto Ejecutivo N° 25833-H-TUR, del diez de febrero de mil novecientos noventa y siete, para que digan:
+“Artículo 4°—Las empresas que se dediquen a la actividad aquí regulada, deberán llevar a bordo y en perfecto estado de funcionamiento los elementos de seguridad para el rango de autonomía asignado a la embarcación y para el caso de botes, balsas, motos acuáticas y Kayacs los pasajeros deberán llevar en todo momento los chalecos salvavidas. “
+“Artículo 8°—Las empresas que utilicen embarcaciones de las descritas en el artículo 2, incisos a), b), f) y g) deberán operar con un mínimo de cinco embarcaciones de las allí mencionadas. “
