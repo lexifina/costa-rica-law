@@ -1,0 +1,1 @@
+Artículo 2º—Se entenderá por gasto de representación aquella erogación en que incurre la Presidencia Ejecutiva o funcionarios a quien esta autorice, con ocasión del ejercicio de su cargo, con el objeto de brindar atención de carácter oficial a personas o instituciones ajenas a la entidad que otorga la atención.

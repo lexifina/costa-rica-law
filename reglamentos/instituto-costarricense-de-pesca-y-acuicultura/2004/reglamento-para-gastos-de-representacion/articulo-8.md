@@ -1,0 +1,1 @@
+Artículo 8º—Los funcionarios expresamente autorizados por la Presidencia Ejecutiva para incurrir en gastos de representación, deberán hacer uso de dichos fondos en estricto apego a lo dispuesto en los artículos 2º y 3º de este Reglamento y siempre dentro de los límites de racionalidad y hasta por el disponible en la partida presupuestaria asignada para ese concepto.

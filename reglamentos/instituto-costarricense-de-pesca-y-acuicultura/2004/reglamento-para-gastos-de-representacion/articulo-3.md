@@ -1,0 +1,2 @@
+Artículo 3º—Procederá el pago de gastos de representación cuando la Presidencia Ejecutiva o el funcionario autorizado por esta, atienda en actividades relacionadas directamente con el ejercicio del cargo, a Miembros de los Supremos Poderes de la República, Presidente de la República, Ministros de Gobierno, Diputados, Magistrados o representantes de Cámaras, Asociaciones, Cooperativas o Colopes del sector pesquero y acuícola, así como a representantes de organismos internacionales.
+En ningún caso, el gasto de representación cubrirá pagos por consumo de bebidas alcohólicas.

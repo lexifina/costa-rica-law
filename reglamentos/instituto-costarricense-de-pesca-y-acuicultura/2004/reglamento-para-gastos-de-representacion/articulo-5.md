@@ -1,0 +1,1 @@
+Artículo 5º—Una vez realizada la actividad, el funcionario contará con tres días hábiles posteriores a la realización del evento para presentar al Departamento Financiero la respectiva liquidación de gastos de representación.

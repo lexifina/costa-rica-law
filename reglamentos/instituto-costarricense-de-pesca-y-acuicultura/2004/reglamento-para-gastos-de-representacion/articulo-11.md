@@ -1,0 +1,1 @@
+Artículo 11.—Cuando un servidor haya retirado un adelanto para gastos de representación y la reunión o evento fue cancelado o pospuesto, el funcionario deberá reintegrar el dinero adelantado a más tardar al día hábil siguiente de haber recibido la comunicación verbal o escrita correspondiente.

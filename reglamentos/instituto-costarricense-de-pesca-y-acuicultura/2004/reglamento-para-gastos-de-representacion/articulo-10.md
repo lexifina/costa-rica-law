@@ -1,0 +1,1 @@
+Artículo 10.—El incumplimiento en la presentación de la liquidación de gastos dentro del plazo establecido obligará a la Administración Superior a aplicar las sanciones disciplinarias que establezcan las leyes, reglamentos u otras disposiciones internas del Instituto.
