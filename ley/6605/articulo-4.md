@@ -1,0 +1,1 @@
+Artículo 4º.- Autorízase al Poder Ejecutivo para conceder un aval del Estado a favor de Coopeguaria y Coopeirazú hasta por la suma de cinco millones de colones (¢ 5.000.000,00) a favor de cada una, para que atiendan sus necesidades básicas de funcionamiento.

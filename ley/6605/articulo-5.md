@@ -1,0 +1,1 @@
+Artículo 5º.- Durante cuatro años, el Ministerio de Obras Públicas y Transportes no concederá ninguna nueva explotación de placas de taxi, para el transporte de personas, en el área metropolitana y cabeceras de provincia.
