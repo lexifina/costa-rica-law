@@ -14,3 +14,4 @@ Reglamento Requisitos Graduación Optar Título Técnico Nivel MedioEspecialidad
 | --- | --- | --- |
 | 1 | 1993-11-02 | la propia norma |
 | 2 | 2002-04-09 | Decreto Ejecutivo 30366 (2002-04-09) |
+| 3 | 2002-04-09 | Ley 8 |
