@@ -1,0 +1,1 @@
+Artículo 4°-Los organismos del Subsistema constituyen una unidad de trabajo adscrita al Ministerio de Economía, Industria y Comercio, la cual actuará ron autonomía administrativa y contará con personal y presupuesto propios. El presupuesto deberá estar identificado como un Programa y será administrado de acuerdo a las normas trazadas por el Consejo Industrial Nacional.

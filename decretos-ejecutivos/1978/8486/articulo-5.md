@@ -1,0 +1,1 @@
+Artículo 5°-Las funciones que se desempeñan en el Subsistema Sectorial de Planificación Industrial, deberán estar en estrecha vinculación con el Ministerio de Economía, Industria y Comercio y la Oficina de Planificación Nacional y Política Económica de la Presidencia de la República.
