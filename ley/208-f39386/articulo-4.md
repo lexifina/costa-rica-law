@@ -1,0 +1,1 @@
+Art 4.- La Corte, prévia calificación de la injuria, admitida o no la demanda y admitida ésta procederá a la inquisición de la verdad verbalmente o de oficio por el modo más breve, hasta pronunciar el fallo é imponer las penas convenientes antes dedicadas.
