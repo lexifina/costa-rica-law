@@ -1,4 +1,6 @@
+(Derogado)
 N° 36
+(Esta norma fue derogada por el artículo 6 de la ley N° 58 del 9 de agosto de 1920, "Regula los traspaso de tumbas y parcelas")
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
 FRANCISCO AGUILAR BARQUERO
 PRESIDENTE PROVISIONAL DE LA REPÚBLICA
