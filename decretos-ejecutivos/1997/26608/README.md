@@ -14,3 +14,4 @@ Declara estado de necesidad y urgencia por calamidad pública la situación prov
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-01 | la propia norma |
+| 2 | 1998-05-13 | Decreto Ejecutivo 27075 (1998-05-13) |

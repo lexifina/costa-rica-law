@@ -14,3 +14,4 @@ Considerando:
 8°-Que se hace necesaria la promulgación del marco jurídico indispensable para tomar las medidas de excepción para hacer frente a este fenómeno natural para mitigar las consecuencias que pueda tener su impacto sobre las personas y los bienes. Por lo tanto,
 DECRETAN:
 Artículo 1°-Declárase estado de necesidad y urgencia por calamidad pública, la situación provocada por el fenómeno El Niño Oscilación del Sur (ENOS), en los cantones de Pococí, Guácimo, Siquirres, Limón, Sarapiquí, Alfaro Ruiz, Río Cuartó, Guatuso, Upala, Alvarado, Oreamuno, Cartago, El Guarco, Paraíso y la Ruta treinta y dos que corresponde al tramo San José-Guápiles, Sarchí Norte, Upala, los cuales se decretan en estado de emergencia.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 27075 del 13 de mayo de 1998, se incorpora al estado de emergencia establecido en este artículo los siguientes cantones: "... San Carlos y los Chiles.")
