@@ -1,1 +1,1 @@
-Artículo l0.- Mensualmenie o cuando la Dirección de Servicios Generales lo solicite, la central telefónica le remitirá un informe de las llamadas internacionales realizadas hasta esa fecha, junio con las copias de las boletas de autorización De estos documentos se deberá enviar copia a la Dirección Ejecutiva.
+ARTICULO 9.- Concluida la llamada, el operador de la central telefónica completará la segunda parte de la respectiva boleta y la archivará bajo llave, para evitar la alteración de los datos.

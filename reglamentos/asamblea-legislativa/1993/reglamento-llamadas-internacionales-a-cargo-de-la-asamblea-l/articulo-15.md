@@ -1,2 +1,3 @@
-Artículo 15.—Rige a partir de su publicación. Publíquese
-Asamblea Legislativa.—San José, a los diez días del mes de agosto de mil novecientos noventa y tres.—Dunilo Chaverri Soto. Presidente.—Manuel Antonio Bolanos Salas. Primer Secretario.—Emanuel Ajoy Chan. Segundo Secretario
+CAPITULO TERCERO
+DE LAS LLAMADAS INTERNACIONALES DESDE EL DESPACHO DE LOS DIPUTADOS
+ARTICULO 15.- El Directorio de la Asamblea Legislativa podrá autorizar, previa solicitud del diputado respectivo y cuando por conveniencia institucional lo considere oportuno, la conexión del teléfono del despacho de los diputados al Servicio de Telecomunicaciones Internacionales del Instituto Costarricense de Electricidad.

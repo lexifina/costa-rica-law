@@ -14,3 +14,4 @@ Reglamento Llamadas Internacionales a Cargo de la Asamblea Legislativa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-09-28 | la propia norma |
+| 2 | 1995-03-08 | Reglamento 0 (1995-03-08) |

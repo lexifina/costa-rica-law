@@ -1,0 +1,1 @@
+ARTICULO 18.- En cualquier momento que lo considere oportuno y sin mayor trámite el Directorio Legislativo podrá disponer la desconexión del teléfono del despacho de los diputados del Servicio Internacional de Telecomunicaciones.
