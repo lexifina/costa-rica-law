@@ -14,3 +14,4 @@ Demarca la zona pública en las playas Bejuco, Esterillos Este, Esterillos Oeste
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-03-13 | la propia norma |
+| 2 | 1994-08-08 | Acuerdo 12 (1994-08-08) |
