@@ -1,0 +1,1 @@
+Artículo 3°.- Los fondos provenientes del peaje, serán recaudados por el Ministerio de Obras Públicas y Transportes como unidad ejecutora de la emergencia declarada en el decreto ejecutivo N° 18441-MOPT, a través de la dependencia u órgano que éste designe. Tales fondos formarán parte del Fondo Especial de Emergencia y se aplicarán a los fines de la citada emergencia.
