@@ -1,1 +1,1 @@
-Artículo 3§.-Derógase cualquier disposición legal que se oponga a la presente ley.
+Artículo 3º- Las propiedades que pertenezcan a las iglesias y organizaciones religiosas, que se dediquen al culto o servicio social, estarán exentas del pago del impuesto territorial.
