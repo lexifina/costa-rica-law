@@ -13,3 +13,4 @@ Admisión Temporal para Transporte Comercial Mercancías y Personas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-23 | la propia norma |
+| 2 | 1996-06-14 | Decreto Ejecutivo 25270 (1996-06-14) |
