@@ -1,1 +1,1 @@
-Artículo 56.-Servirá de base, para el remate, el avalúo que tuvieren los bienes para los efectos del impuesto territorial.
+Artículo 56.- (Derogado por el artículo 169 (actual 205) del Código de Normas y Procedimientos Tributarios, N° 4755 del 3 de mayo de 1971)
