@@ -26,7 +26,8 @@ NCR 40:1990 Cementos hidráulicos.
 4.4 número de aceptación: es el número que indica la cantidad máxima de unidades defectuosas que puede contener la muestra de un producto dado, para que pueda considerarse que el lote satisface los requisitos de la norma de especificaciones correspondiente.
 4.5 cuerpo negro: se designa como cuerpo negro a un cuerpo que absorbe completamente todas las radiaciones que inciden sobre él, cualquiera que sean su naturaleza y dirección; absorbedor perfecto de toda la energía radiante incidente. Un cuerpo de esta clase irradia energía únicamente en función de su temperatura.
 5 Clasificación y designación
-5.1 Clasificación. Las láminas planas de fibro-cemento se clasificarán de acuerdo con su uso en dos tipos y a su vez, cada tipo se clasificará de acuerdo con su módulo de ruptura, en cuatro grados.
+(*) 5.1 Clasificación. Las láminas planas de fibro-cemento se clasificarán de acuerdo con su uso en dos tipos y a su vez, cada tipo se clasificará de acuerdo con su módulo de ruptura, en dos grados.
+(*)(Así reformado el punto 1 de este numeral anterior por el artículo 1° del decreto ejecutivo N° 23390 del 3 de junio de 1994, y a su vez corregido mediante Fe de Erratas publicada en La Gaceta N ° 134 del 14 de julio de 1994).
 5.1.1 Clasificación según su uso:
 a) Tipo A (para intemperie), láminas con o sin revestimiento destinadas a uso externo donde estarán expuestas a la acción directa del sol y la lluvia.
 b) Tipo B (para uso interior o con alero), láminas destinadas a uso interno o bien, a uso externo pero sin ser expuestas a la acción directa del sol y la lluvia, al estar protegidas por un alero o similar.
@@ -47,10 +48,9 @@ Nota: Las tolerancias para los valores nominales mayores de 3 000 mm, deberán s
 6.1.2 Espesor. Las láminas planas de fibro-cemento deberán fabricarse con espesores nominales desde 3 mm hasta 30 mm; sin embargo, podrán proveerse láminas con espesores mayores de 30 mm, si así se establece de común acuerdo, entre el comprador y el fabricante de las láminas.
 6.1.2.1 Tolerancias
 Las tolerancias para los espesores de hasta 30 mm serán las indicadas en la Tabla 2.
-Tabla 2. Tolerancias para el espesor
-Espesor, en milímetros | Tolerancias
-Hasta 8 | + ó – (10% ó 0,1 mm)
-Mayor de 610 hasta 1250 | + ó - 4 mm
+(*) Tabla 2. Tolerancias para el espesor
+La tolerancia para espesores “hasta 8 mm” debe ser ± 10%.
+(*)(Así reformada la tabla anterior por el artículo 1° del decreto ejecutivo N° 23390 del 3 de junio de 1994, y a su vez corregida mediante Fe de Erratas publicada en La Gaceta N ° 134 del 14 de julio de 1994).
 Nota: Las tolerancias para valores nominales mayores de 30 mm, deberán ser establecidas de común acuerdo entre el comprador y el fabricante de las láminas.
 6.1.3 Tolerancias para la forma.
 6.1.3.1 Rectitud de los bordes. Cuando una lámina de fibro-cemento sea sometida al ensayo descrito en 8.1.4, cualquier desviación de los bordes de la lámina con la línea recta que une las esquinas correspondientes de la misma, no deberá exceder un valor de 3 mm/m para la longitud y el ancho de la lámina.
@@ -58,11 +58,12 @@ Nota: Las tolerancias para valores nominales mayores de 30 mm, deberán ser esta
 6.2 Características mecánicas y físicas
 6.2.1 Resistencia a la flexión. Cuando se verifique la resistencia a la flexión como se indica en 8.2.1, el valor promedio del módulo de ruptura de los especímenes ensayados no deberá ser menor del valor correspondiente especificado en la Tabla 3. Adicionalmente, las láminas del tipo A deberán tener un módulo de ruptura bajo condiciones húmedas, no menor del 50% del módulo de ruptura obtenido bajo condiciones de equilibrio; (véase 8.2.3).
 6.2.2 Densidad aparente. Los valores nominales y las tolerancias para la densidad serán los declarados por el fabricante de los productos, para cada tipo y grado de lámina.
-Tabla 3. Resistencia a la flexión
-Grados | Tipo A | Tipo B
-Resistencia a la flexión, determinada en húmedo, en megapascales (1) | Resistencia a la flexión, determinada en condiciones de equilibrio, en megapascales
-1 (NORMAL) | ≥ 4 hasta ≥ 7 | ≥ 4 hasta ≥ 10
-2 (ALTA) | ≥ hasta ≥ 14 | ≥ 4 hasta ≥ 17
+(*) Tabla 3. Resistencia a la flexión:
+Grado 1, Tipo A ≥ 4 hasta <Φ 255 7
+Grado 2, Tipo A ≥ 7 hasta <Φ 255 14
+Grado 1, Tipo B ≥ 4 hasta <Φ 255 10
+Grado 2, Tipo B ≥ 10 hasta <Φ 255 7
+(*)(Así reformada la tabla anterior por el artículo 1° del decreto ejecutivo N° 23390 del 3 de junio de 1994, y a su vez corregida mediante Fe de Erratas publicada en La Gaceta N ° 134 del 14 de julio de 1994).
 Notas:
 1 Cuando la muestra se tome en la fábrica, el ensayo de resistencia a la flexión puede realizarse previo al revestimiento de la lámina base siempre y cuando se pueda demostrar que hay una correlación entre los resultados obtenidos con o sin revestimiento.
 2 Cuando la muestra se tome en la fábrica, los ensayos pueden ser realizados sobre especímenes secos o saturados, siempre que pueda ser establecida una relación entre los valores de resistencia en equilibrio y los de resistencia de especímenes secos o saturados.
@@ -191,9 +192,10 @@ b) Un lote se considera aceptable para esta característica, si el número de l�
 a) Marcos, de 450 mm x 550 mm x 50 mm, mínimo, de un material resistente al agua y que pueda ser sellado a la cara superior de la probeta; véase la Figura 5.
 8.2.4.3. Acondicionamientos de las probetas. Las probetas deben colocarse durante por lo menos 5 días en un ambiente controlado, a una temperatura ambiente mayor de 5° C.
 8.2.4.4 Procedimiento. Se coloca y se sella el marco a la cara superior de la probeta, empleando para tal efecto un sellador resistente a la acción del agua; se llena con agua el marco hasta una altura de 20 mm por encima de la cara superior de la probeta y se coloca durante 24 h en un ambiente controlado, regulado a 23 ± 2°C y 50± 5% de humedad relativa. Concluida la prueba, se verifica si se cumplen o no los requisitos establecidos en 6.2.3.
-8.2.4.5 Expresión de los resultados.
+(*) 8.2.4.5 Expresión de los resultados.
 a) El resultado se registra como “cumple” o “no cumple”, según corresponda.
-b) El lote se considera aceptable para esta característica, si el número de láminas que no cumplen con el requisito especificado en 6.2.3 es igual o inferior al número de aceptación que indica el cuadro 4 para el correspondiente tamaño de muestra.
+b) El lote se considera aceptable para esta característica si todas las probetas cumplen con la condición específica en 6.2.3.
+(*)(Así reformado el punto b) del numeral anterior por el artículo 1° del decreto ejecutivo N° 23390 del 3 de junio de 1994, y a su vez corregido mediante Fe de Erratas publicada en La Gaceta N ° 134 del 14 de julio de 1994).
 8.2.5 Resistencia a la acción del agua caliente.
 8.2.5.1 Obtención de las probetas. Se deben obtener 20 probetas de por lo menos 5 láminas de la muestra, pudiendo emplearse las mismas láminas de las cuales se han obtenido probetas para los otros ensayos; las dimensiones de las probetas serán las que se indican en 8.2.1.1; las probetas deben separarse al azar en 2 grupos de 10 especímenes cada uno.
 8.2.5.2 Aparatos.
@@ -201,8 +203,9 @@ a) Cuarto de acondicionamiento, regulado a 23 ± 2°C y 50± 5% de humedad relat
 b) Baño de agua saturada con cal, regulado a 60 ± 2°C;
 c) Flexómetro, con las características indicadas en 8.2.1.3 a;
 d) Calibrador de espesor, con las características indicadas en 8.2.1.3 b.
-8.2.5.3 Procedimiento.
-a) Se somete el primer grupo de 10 probetas al ensayo de flexión de acuerdo con 8.2.1.4 y paralelamente se sumergen las otras 10 probetas en agua saturada con un exceso de cal y se mantienen a 60 ± 2°C durante 56 ± 2 días.
+(*) 8.2.5.3 Procedimiento.
+a) Se somete el primer grupo de 10 probetas al ensayo de flexión de acuerdo con 8.2.1.4. habiéndolas acondicionado previamente según 8.2.1.2.b; y paralelamente se sumergen las otras 10 probetas en agua saturada con un exceso de cal y se mantienen a 60 ± 2°C durante 56 ± 2 días.
+(*)(Así reformado el punto a) del numeral anterior por el artículo 1° del decreto ejecutivo N° 23390 del 3 de junio de 1994, y a su vez corregido mediante Fe de Erratas publicada en La Gaceta N ° 134 del 14 de julio de 1994).
 b) Al final de este período se colocan las probetas en el cuarto de acondicionamiento regulado a 23 ± 2 °C y 50 ± 5% de humedad relativa, durante 48 ± 2 h y después se examinan las probetas en orden y a simple vista, para detectar posibles grietas, separación en capas u otros defectos y se registra cualquier alteración observada.
 c) Se lleva a cabo el ensayo de flexión sobre el segundo grupo de probetas como se especifica en 8.2.1.4 después de acondicionarlas en húmedo como se indica en 8.2.1.2 b).
 8.2.5.4 Expresión de los resultados.
