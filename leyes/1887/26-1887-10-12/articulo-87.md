@@ -1,1 +1,0 @@
-Art. 87.-EI segundo ó ulteriores testimonios sólo podrán extenderse cuando la autoridad judicial lo ordene, con citación de interesados, ó cuando todos los que lo sean lo soliciten verbalmente ante el Notario ó funcionario encargado del protocolo.

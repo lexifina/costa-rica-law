@@ -1,1 +1,0 @@
-Art. 9°- Encontrando en forma la solicitud, el Presidente del Colegio comisionará á uno de los vocales de la Junta Directiva para que reciba información de tres testigos fidedignos que él mismo designe, sobre la conducta del postulante.

@@ -1,2 +1,0 @@
-Art. 44.-En los casos de ausencia ó imposibilidad de cartular que exceda de ocho días debe el Notario depositar su protocolo en la oficina de otro Notario del mismo lugar, haciéndolo saber al público por el periódico oficial.
-Si no hubiere otro Notario el depósito se hará en la oficina del funcionario llamado á cartular. Este pondrá el hecho del depósito en conocimiento del Tribunal y seguirá cartulando en el mismo protocolo sin necesidad de autorización expresa.

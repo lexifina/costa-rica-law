@@ -1,1 +1,0 @@
-Art. 24.-El Secretario del Supremo Tribunal de Justicia debe hacer publicar oportunamente en el periódico oficial, las autorizaciones que se concedan para ejercer el Notariado y los casos en que el Notario haya cesado en sus funciones.

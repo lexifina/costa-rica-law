@@ -1,1 +1,0 @@
-Art. 73.-Cuando hubiere necesidad de intérprete ó intérpretes, se consignará quién de los interesados no comprende el idioma español; cuál es el idioma que habla, si el Cartulario comprende este idioma, y el nombre, apellido y generales del intérprete ó intérpretes y se dará además fe de la capacidad de éstos para desempeñar el cargo.

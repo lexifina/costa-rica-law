@@ -1,4 +1,0 @@
-CAPÍTULO II
-De la conservación y guarda de los protocolos.
-Artículo 39.-Los Notarios son depositarios de sus protocolos, y coma tales, responsables de su guarda y conservación. Sólo podrán tener un protocolo en curso, y les esta prohibido principiar un protocolo sin haber terminado el anterior. El Notario a quien se le probare a prohibición, o que descuida su protocolo y lo confía para el otorgamiento de escrituras a persona que no lo es, o a otro Notario sin sujeción a las formalidades legales, o que autoriza con su firma escrituras no otorgadas en su presencia, o escrituras cuyo otorgamiento no han presenciado los testigos o alguno de los testigos, o su colega, mencionados en ella, le será cancelada su licencia para ejercer la profesión, por el Tribunal y con las formalidades que el artículo 28 indica, sin perjuicio de las responsabilidades en que incurra.
-(Así reformado por la ley N° 25 del 18 de junio de 1915).

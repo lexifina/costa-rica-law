@@ -1,1 +1,0 @@
-Art. 83.-Al extenderse la escritura matriz en el protocolo, se escribirá en el centro únicamente, fuera del margen, que debe ir á la izquierda, y se comenzará poniendo en letra el número que le corresponda á la escritura; á continuación irá ésta sin dejar blanco alguno desde el número hasta la firma del Cartulario, uno y otro inclusive.

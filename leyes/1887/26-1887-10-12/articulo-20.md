@@ -1,1 +1,0 @@
-Art. 20.-Si el Tribunal encontrare en debida forma la solicitud, concederá, por acuerdo, la autorización pedida; en tal caso el Presidente extenderá al pie del título de Notario, la constancia respectiva, citando en ella el acuerdo que la concede. Esta constancia será firmada por el mismo Presidente y el Secretario.
