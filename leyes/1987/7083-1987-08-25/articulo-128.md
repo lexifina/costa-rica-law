@@ -1,0 +1,1 @@
+Artículo 128.- Autorízase a la Tesorería Nacional para que varíe el destino de los giros números 861923686, 862196431, 862196430, 862196427, 862196428 y 862196433, a fin de que se trasladen a la Asociación Integral de Desarrollo de Las Mesas de Chirraca, para mantenimiento y construcción de caminos vecinales.

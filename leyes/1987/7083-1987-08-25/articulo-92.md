@@ -1,0 +1,7 @@
+Artículo 92.- Refórmase el numeral 34 del artículo 38 de la ley Nº 7040 del 25 de abril de 1986, cuyo texto dirá:
+"Artículo 38.- ...
+34) Autorízase a la Junta de Protección Social de Cartago para que venda por un precio no inferior al fijado por la Oficina de Avalúos de la Tributación Directa, las fincas inscritas en el partido de Cartago, matrículas Folio Real Nos. 3-104.775-000; 3-022.404-000; 3-020.926-000; 3-009.044-000 y 3-019.702-000. Asimismo, se autoriza a la junta para que destine de la siguiente manera los fondos obtenidos por la venta de esos bienes:
+a) En la compra de los terrenos que estime necesarios para la ampliación del cementerio general de Cartago, y en el mejoramiento de las instalaciones de éste.
+b) En la construcción de un edificio en la finca de su propiedad, para ubicar sus propias oficinas y, además, en la construcción de locales comerciales que produzcan o mejoren las rentas actuales de la institución.
+c) Del producto de la rentabilidad del capital sobrante, se harán inversiones que permitan ingresos que se destinarán, en parte a la atención de los gastos ordinarios propios de la junta, y en parte para efectuar donaciones, a juicio de la misma junta, en favor de las instituciones de beneficencia y otras entidades de servicio comunal de Cartago, según un porcentaje que se fijará para esos fines y que se incluirá en cada presupuesto anual de los gastos de la junta.
+Todo lo anterior se hará de acuerdo con la Ley de Administración Financiera de la República y con el Reglamento de la Contratación Administrativa."

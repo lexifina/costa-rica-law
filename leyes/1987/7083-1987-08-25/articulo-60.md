@@ -1,0 +1,1 @@
+Artículo 60.- Se autoriza al Instituto de Desarrollo Agrario para que, en coordinación con la Municipalidad de Orotina, desarrolle proyectos industriales, comerciales y turísticos, en áreas destinadas para ese propósito en el asentamiento Coyolar del cantón de Orotina.

@@ -1,0 +1,1 @@
+Artículo 29.- Autorízase al Instituto Nacional de Vivienda y Urbanismo (INVU) para que venda a la Municipalidad de Coronado dos lotes de su propiedad ubicados en el cantón de Coronado, para que establezca centros de atención y de beneficencia.

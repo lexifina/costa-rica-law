@@ -1,0 +1,2 @@
+Artículo 48.- Se autoriza al Ministerio de Obras Públicas y Transportes y a las empresas del Estado para que colaboren, en la medida de sus posibilidades, en la construcción de las instalaciones de la ciudad deportiva destinada a los Juegos Nacionales de Heredia 1989.
+Asimismo, se autoriza al Sistema Bancario Nacional, al Banco Popular y de Desarrollo Comunal, a las entidades autónomas y semiautónomas, y a las empresas estatales, a fin de que hagan donaciones para estos juegos nacionales.

@@ -1,0 +1,1 @@
+Artículo 41.- Se autoriza al Ministerio de Relaciones Exteriores para que utilice las partidas de gastos de Cancillería destinadas al pago de alquileres de sedes diplomáticas en el exterior, al pago de créditos que se adquieran para la compra de inmuebles destinados a las oficinas permanentes de Costa Rica en el exterior.

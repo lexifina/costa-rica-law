@@ -1,0 +1,1 @@
+Artículo 160.- La Municipalidad de Escazú podrá variar el destino de la partida específica contenida en el presupuesto ordinario para 1984, I.P. 614 y usar esos recursos en la reparación de la calle El Boguerón, ubicada en Guachipelín de Escazú.

@@ -1,0 +1,1 @@
+Artículo 76.- Autorízase al Comité Organizador de los Juegos Nacionales Heredia 89, para que le done siete millones de colones (¢ 7.000.000) al Club Sport Herediano, para la construcción de graderías, instalaciones y mejoras del estadio Eladio Rosabal Cordero, escenario de esos juegos nacionales.

@@ -1,0 +1,2 @@
+Artículo 27.- Autorízase a la Municipalidad del cantón de Goicoechea para que de la finca de su propiedad ubicada en el distrito de Guadalupe, inscrita en el partido de San José, tomo 1055, folio 175, Nº 75289, asiento 5, traspase terrenos a la Cooperativa de Vivienda COOPECASA, con el fin de que ésta construya multifamiliares para darle solución al problema de la falta de vivienda de vecinos del cantón de Goicoechea.
+La Cooperativa deberá contar con la debida personería jurídica.

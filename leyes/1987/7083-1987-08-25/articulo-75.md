@@ -1,0 +1,2 @@
+Artículo 75.- Se traspasarán a la Fundación Nacional de Clubes 4-S todos los fondos sobrantes que provengan del Convenio de Cooperación del Plan Agroindustrial de Investigación y Desarrollo de Productos Alimenticios, girados según el Presupuesto Nacional para 1984, tanto en efectivo como en valores y bienes que procedan del citado programa, a fin de que constituyan parte del patrimonio requerido para el financiamiento de la Fundación Nacional de Clubes 4-S.
+Rige a partir de su publicación.

@@ -1,0 +1,1 @@
+Artículo 62.- Se exime al Instituto Costarricense de Puertos del Pacífico de los alcances del artículo 17 de la ley Nº 7055 del 11 de diciembre de 1986, en lo concerniente a la partida de jornales dedicados a la actividad de carga o descarga -o de ambas- de mercancías en los puertos que administra.

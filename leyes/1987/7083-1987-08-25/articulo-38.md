@@ -1,0 +1,1 @@
+Artículo 38.- Exonérase del pago de todo tipo de impuestos, tasas, sobretasas y derechos de inscripción a la Empresa Tecnomotores, S. A., para la adquisición de un vehículo "pick-up" Hyundai Pony, donado por esa empresa al ganador de la "Vuelta Ciclística a Costa Rica" del año 1986.

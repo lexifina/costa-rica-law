@@ -1,0 +1,1 @@
+Artículo 91.- Refórmase el artículo 48 de la ley Nº 7040 del 25 de abril de 1986, a fin de que donde dice: "El dinero recaudado por lo dispuesto en el inciso b)", diga: "El dinero recaudado por lo dispuesto en el inciso o)."

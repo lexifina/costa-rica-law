@@ -1,0 +1,1 @@
+Artículo 131.- Autorízase al Instituto de Desarrollo Agrario para que traslade, a la Dirección General Forestal, Fondo Forestal, la partida consignada en la ley Nº 6975 del 30 de noviembre de 1984, según el código 731-281-01-242-42, a fin de que se cancele la expropiación de la finca Nº 117427, folio 239, tomo 1366, asiento 10 del partido de San José.

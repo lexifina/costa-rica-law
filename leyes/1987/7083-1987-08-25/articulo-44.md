@@ -1,0 +1,1 @@
+Artículo 44.- Se autoriza a la Asociación de Desarrollo Integral de Sabanilla de Alajuela para que deposite en su cuenta los giros de Gobierno Nos. 860457797 y 860457972, los cuales, para este efecto, se considerarán renovados. Estos fondos serán utilizados en el asfaltado de cuadrantes de Sabanilla.

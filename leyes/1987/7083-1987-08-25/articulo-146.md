@@ -1,0 +1,1 @@
+Artículo 146.- Modifícase el destino de la partida específica contenida en la ley Nº 7055, código 663-652-1-132-21, a nombre de la Municipalidad de Naranjo, para el Comité Centro de Salud, para compra de medicamentos, ¢ 75.000, a fin de que se invierta en mejoras de la planta física del Centro de Salud de Naranjo.

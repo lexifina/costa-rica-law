@@ -1,0 +1,1 @@
+Artículo 145.- Modifícase el destino de la partida específica a nombre de la Junta de Educación Escuela República de Colombia, código 731-734-1-242-20, ley Nº 7055, cantón de Naranjo, para compra de pintura para zinc, ¢ 250.000, a fin de que se utilice en la compra de zinc, ¢ 150.000, y en la compra de pintura, ¢ 100.000.

@@ -1,0 +1,1 @@
+Artículo 124.- Se autoriza a la Asociación de Desarrollo Integral de Loma Larga de Corralillo, San Juan Sur, para que utilice el giro Nº 5812, por ¢ 135.000, para obras varias en la Clínica de San Juan Sur, en obras varias del salón comunal de Loma Larga.

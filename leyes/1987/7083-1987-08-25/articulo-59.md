@@ -1,0 +1,1 @@
+Artículo 59.- Autorízase a la Municipalidad de San José para que done al Instituto Andrea Jiménez, para la construcción de su edificio escolar, el terreno sito en Urbanización La Cabaña, San Francisco de Dos Ríos, cantón Central de San José, Folio Real Nº 1259968-000, con un área de 9 670,03 m². Inscrito en el Registro Nacional bajo el número SJ-626752-86.

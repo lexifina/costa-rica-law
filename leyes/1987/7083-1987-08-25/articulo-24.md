@@ -1,0 +1,1 @@
+Artículo 24.- Se autoriza a la Municipalidad de Oreamuno para que segregue y le done al Centro Diurno de la Tercera Edad de Oreamuno, un lote de 1 709 m², de la finca matrícula folio real 105.393.000, partido de Cartago, para que construya el hogar de ancianos.

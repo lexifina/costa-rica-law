@@ -1,0 +1,1 @@
+Artículo 116.- Se autoriza a la Municipalidad de Poás para que varíe el destino de la partida de ¢ 121.500, compra de una moto para DINADECO, según el giro Nº 870666000, depositado en la cuenta corriente de esa Municipalidad, a fin de que la destine a la compra de un vehículo para la misma institución.

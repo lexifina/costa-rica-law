@@ -1,0 +1,1 @@
+Artículo 153.- Modifícase el destino de la partida código 669-530-1-132-14, destinada al Ministerio de Seguridad Pública (Comandancia de Liberia), ley Nº 7055, por ¢ 15.000,00 a fin de que sea utilizada por la Asociación de Esposas de Funcionarios del Ministerio de Seguridad Pública en la compra de materiales de construcción para un programa de vivienda.

@@ -1,0 +1,1 @@
+Artículo 122.- Se autoriza el cambio de destino de la partida específica para compra de un terreno para la plaza de deportes de Guatuso, cantón de Poás, ley Nº 7018, giro Nº 860458340, por la suma de ¢ 100.000, para que sea utilizada en la construcción de la ermita de Guatuso, cantón de Poás.

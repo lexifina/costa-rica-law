@@ -1,0 +1,1 @@
+Artículo 19.- Se autoriza al Instituto Nacional de Vivienda y Urbanismo para que traspase a la Municipalidad de Montes de Oro el terreno inscrito en el folio Nº 6-43029000. La Municipalidad desarrollará en dicho terreno un programa de vivienda, en coordinación con las instituciones del Estado creadas para ese fin.

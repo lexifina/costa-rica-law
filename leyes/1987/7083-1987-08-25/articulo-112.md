@@ -1,0 +1,1 @@
+Artículo 112.- Autorízase a la Municipalidad de Oreamuno para que varíe el destino de las partidas, o del saldo que hubiere, contempladas a su favor en las leyes Nos. 6831 y 6305, a fin de que se destinen para el arreglo del polígrafo municipal.

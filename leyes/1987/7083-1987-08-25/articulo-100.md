@@ -1,0 +1,1 @@
+Artículo 100.- Autorízase a la Junta Administrativa de Servicios Eléctricos de Cartago (JASEC), para que cree un fondo de retiro, ahorro y garantías, que se constituirá de acuerdo con la ley Nº 3625 del 16 de diciembre de 1965.

@@ -1,0 +1,3 @@
+Artículo 102.- Modifícase el numeral 47 del artículo 13 de la ley Nº 7018 del 20 de diciembre de 1985, para que diga:
+"Artículo 13.- ...
+47) Se autoriza a la Fundación Integral Campesina (FINCA) para que compre un vehículo automotor tipo "pick up", modelo 1986 ó 1987, exento de todo tipo de impuestos."

@@ -1,0 +1,1 @@
+Artículo 63.- Autorízase a la Caja Costarricense de Seguro Social para que le done a la Municipalidad de Montes de Oro, las antiguas instalaciones y terrenos que ocupa la clínica de consulta externa. El acto se producirá una vez que la Caja concluya la nueva edificación en que se instalarán los servicios integrados de salud para el cantón de Montes de Oro.

@@ -1,0 +1,1 @@
+Artículo 57.- Se autoriza al instituto de Fomento y Asesoría Municipal (IFAM) para que gire, a la Liga de Municipalidades de Heredia, la partida de cinco millones de colones (¢ 5.000.000,00) consignada en la ley Nº 7018 del 20 de diciembre de 1985, título 06, programa 060, código 733-505-01-242-31, a fin de que sea utilizada en caminos vecinales y obras.

@@ -1,0 +1,1 @@
+Artículo 151.- Modifícase el destino de la partida código 701-258-1-241-20, destinada al Cuerpo de Paz, para cursos de capacitación, a fin de que sea utilizada por la Municipalidad de Tilarán en la compra de equipo de oficina (máquinas de escribir).

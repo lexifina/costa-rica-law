@@ -1,0 +1,1 @@
+Artículo 84.- Autorízase a la Municipalidad de Heredia para que traspase el lote inscrito en el tomo 1497, folios 551, 127, número 50210, asientos 6, 11 y 12, a la Asociación de Servicios Funerarios de Mercedes Sur de Heredia (ASEFUMESH), para la construcción de la capilla de velación y de las oficinas de la asociación.

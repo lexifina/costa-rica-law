@@ -1,0 +1,1 @@
+Artículo 45.- Autorízase al Instituto Costarricense de Electricidad para que traspase, a las cooperativas de electrificación, las redes construidas por la institución, en aquellas áreas servidas por entidades cooperativas, para que sean administradas por éstas.

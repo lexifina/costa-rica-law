@@ -1,0 +1,1 @@
+Artículo 83.- De los recursos que las instituciones del Estado destinan anualmente para adquirir obras de arte, el treinta por ciento (30%) deberá asignarse al Museo de Arte Costarricense. Asimismo, se autoriza a las mismas instituciones para que donen obras nacionales a la Junta Administrativa del Museo de Arte Costarricense.

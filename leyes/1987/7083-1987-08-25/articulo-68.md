@@ -1,0 +1,1 @@
+Artículo 68.- Autorízase al Instituto Costarricense de Electricidad para que financie, en condiciones preferenciales, la ampliación de las subestaciones de las cooperativas de electrificación rural, y para que realice aportes de capital para esa obra.

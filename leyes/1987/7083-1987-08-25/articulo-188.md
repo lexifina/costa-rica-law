@@ -1,0 +1,2 @@
+Artículo 188.- Agrégase el siguiente párrafo al artículo 185 de la Ley de Asociaciones Cooperativas y Creación del Instituto de Fomento Cooperativo, Nº 6756 del5 de mayo de 1982, modificado por el artículo 40, inciso 1, de la ley Nº 7040 del 25 de abril de 1986.
+"El porcentaje respectivo deberá calcularse también sobre las modificaciones presupuestarias y cualquier otro ingreso extraordinario que se produzca".

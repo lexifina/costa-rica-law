@@ -1,0 +1,1 @@
+Artículo 147.- Se autoriza a la Asociación Integral de Desarrollo Comunal de San Jerónimo de Naranjo, para que deposite en su cuenta el giro de Gobierno Nº 860457849, por un monto de cincuenta mil colones, y destine esos fondos para arreglos en la iglesia del mismo lugar.

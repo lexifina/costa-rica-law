@@ -1,0 +1,1 @@
+Artículo 157.- Autorízase a la Tesorería Nacional para que varíe el destino del giro Nº 860459758, de la Junta de Educación de la escuela de Paraíso de Esparza, para cañería de Paraíso, a fin de que sea endosado a la Unión Cantonal de Asociaciones de Esparza, para el mismo fin.

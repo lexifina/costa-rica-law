@@ -1,0 +1,3 @@
+Artículo 103.- El Instituto Costarricense de Turismo podrá contratar, en forma directa, los servicios, compras y otros, necesarios para la instalación del Depósito Libre Comercial de Golfito, creado por la ley Nº 7012 del 24 de noviembre de 1985. Estas contrataciones deberán ser aprobadas por las dos terceras partes de los miembros de la Comisión Asesora del Depósito y la Junta Directiva del Instituto Costarricense de Turismo.
+El Instituto estará obligado a solicitar tres ofertas, como mínimo, y a realizar un estudio técnico previo de las contrataciones autorizadas,
+La Contraloría General de la República verificará el cumplimiento de esta disposición.

@@ -1,0 +1,1 @@
+Artículo 64.- Se autoriza al Instituto Nacional de Seguros para que le traspase a la Caja Costarricense de Seguro Social, el terreno de su propiedad sito en Miramar de Montes de Oca, inscrito en el Folio Real Nº 44099000, para que construya el centro integrado de salud.

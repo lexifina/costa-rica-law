@@ -1,0 +1,1 @@
+Artículo 148.- Se autoriza a la Municipalidad de Naranjo para que utilice, en la compra de combustible, los remanentes de la partida destinada a la compra de terreno para la plaza de deportes, ley Nº 5696, por ¢ 20.000. así como la partida asignada para becas a estudiantes pobres, ley Nº 6831, por ¢ 3.000.

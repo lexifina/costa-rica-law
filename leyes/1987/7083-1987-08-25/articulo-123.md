@@ -1,0 +1,1 @@
+Artículo 123.- Se autoriza a la Asociación de Desarrollo Integral de Calle San José, distrito San José de Grecia, para que deposite en su cuenta corriente del Banco de Costa Rica, Nº 202, el giro Nº 300457988, por ¢ 30.000, para obras varias en la escuela de Santa Gertrudes Norte Calle San José. La Asociación no podrá cambiarle el destino a estos fondos.

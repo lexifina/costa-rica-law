@@ -1,0 +1,1 @@
+Artículo 126.- La Junta de Educación de la Escuela Eugenio Corrales Bianchini podrá depositar en su cuenta corriente los giros de Gobierno números 850921889 y 850707661, y utilizar estos recursos en mejoras de la planta física de la escuela, y en la compra de material didáctico y de muebles escolares.

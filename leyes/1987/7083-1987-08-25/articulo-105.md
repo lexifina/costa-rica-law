@@ -1,0 +1,2 @@
+Artículo 105.- Modifícase el párrafo primero del artículo 16 de la ley Nº 7055 del 18 de diciembre de 1986, cuyo texto dirá:
+"Artículo 16.- (Párrafo primero) El cobro y la administración de las tasas por concepto de peaje, a cargo del Estado, en las carreteras y en las vías nacionales, pasarán al Consejo de Seguridad Vial, el cual destinará esos recursos a programas de mantenimiento de las vías objeto del peaje y a programas de mantenimiento y construcción de caminos vecinales ubicados en la zona de influencia de dicha carretera."

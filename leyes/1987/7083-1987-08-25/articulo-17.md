@@ -1,0 +1,2 @@
+Artículo 17.- Autorízase a la Municipalidad del cantón de Desamparados para que done, a las Temporalidades de la Iglesia Católica, mil metros cuadrados (1 000 m²) de su propiedad sita en la Urbanización La Fortuna, de la esquina sureste del templo católico doscientos metros al este y doscientos al sur. Dicha finca está inscrita en el tomo 1981, folio 203, Nº 192431, asiento 7, distrito I, cantón III.
+El terreno donado se destinará al desarrollo de un programa de asistencia social y promoción humana.

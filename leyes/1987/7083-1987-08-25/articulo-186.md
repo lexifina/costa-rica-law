@@ -1,0 +1,1 @@
+Artículo 186.- Los fondos depositados por la Asociación Naranjeña de Vivienda, pro concepto de la partida específica de novecientos mil colones, compra de terrenos para proyecto de vivienda social, se utilice de la siguiente manera: compra de terrenos para proyectos de vivienda social, ¢ 250.000; compra de materiales para proyecto de vivienda social, ¢ 650.000.

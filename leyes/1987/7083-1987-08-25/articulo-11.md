@@ -1,0 +1,3 @@
+Artículo 11.- Modifícase el artículo 11, inciso 16.b), de la Ley de Presupuesto Nacional para 1987, Nº 7055 del 18 de diciembre de 1986, en la forma que se indica a continuación:
+"Artículo 16.- ...
+16.b) Trasladar sobrantes de servicios personales de todos los programas presupuestarios al servicio de la deuda pública, a las partidas contempladas para el pago de pensiones y prestaciones legales a cargo del Gobierno central, con el propósito de cubrir faltantes, y a las Partidas de servicios personales y transferencias, para hacer frente a las resoluciones salariales emitidas por la Dirección General de Servicio Civil".

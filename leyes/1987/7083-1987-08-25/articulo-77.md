@@ -1,0 +1,1 @@
+Artículo 77.- Autorízase a la Autoridad Presupuestaria para que exima, a la Empresa de Servicios Públicos de Heredia y a la Junta Administrativa de Servicios Eléctricos de Cartago, del cumplimiento de lo dispuesto en el artículo 17 de la ley número 7055 del 18 de diciembre de 1986.

@@ -1,0 +1,2 @@
+Artículo 169.- Amplíase por sesenta (60) días calendario, el plazo para que los deudores amparados a la Ley de Fomento para la Producción Agropecuaria, Nº 7064 del 29 de abril de 1987, puedan tramitar sus solicitudes de adecuación o readecuación ante el Sistema Bancario Nacional, de acuerdo con lo que establece el artículo 21 de dicha ley.
+Por el mismo término, se amplía el plazo de los bancos para resolver dichas solicitudes.

@@ -1,0 +1,1 @@
+Artículo 125.- La Asociación de Desarrollo Integral de San Diego de La Unión podrá depositar en su cuenta corriente el giro de Gobierno Nº 860458558, y utilizar esos recursos para el arreglo del parque infantil de la Asociación de vecinos residentes de la urbanización San Juan de San Diego de Tres Ríos.
