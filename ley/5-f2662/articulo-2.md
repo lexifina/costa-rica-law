@@ -1,0 +1,1 @@
+Art. 2°-El Ministro de Hacienda formulará inmediatamente el presupuesto de entradas y salidas, de manera que pueda hacerse frente á los gastos de la Administración Pública y á la amortización de los billetes del Tesoro.
