@@ -14,3 +14,4 @@ Reforma al Reglamento Cobro de Préstamos.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-22 | la propia norma |
+| 2 | 2000-03-22 | Ley 7 |
