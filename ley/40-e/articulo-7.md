@@ -1,0 +1,4 @@
+Artículo VII
+DEPOSITO Y CANJE DE RATIFICACIONES
+Los instrumentos de ratificación de los tratados, convenciones, protocolos y otros documentos diplomáticos suscritos en las Conferencias Internacionales Americanas, serán depositados en la Unión Panamericana por el respectivo representante en el Consejo Directivo, obrando en nombre de su Gobierno, sin necesidad de plenos poderes especiales para el depósito de la ratificación. Del depósito de la ratificación se dejará constancia en un acta suscrita, por el representante en el Consejo del país que ratifica, por el Director General de la Unión Panamericana y por el Secretario del Consejo Directivo.
+La Unión Panamericana , comunicará a todos los Estados miembros de la Unión , por órganos de sus representantes en el Consejo, el depósito de las ratificaciones.

@@ -1,0 +1,11 @@
+Artículo VI
+FUNCIONES DE LA UN ION PANAMERICANA
+El Consejo Directivo, como la Unión Panamericana , tendrán las funciones que le atribuye la presente Convención, bajo la reserva de que no tengan funciones de carácter político.
+Las atribuciones de la Unión Panamericana son:
+1°-Compilar y distribuir informaciones y folletos referentes al desarrollo comercial, industrial, agrícola, social y educacional, así como al progreso en general de los países Americanos.
+2°-Compilar y clasificar informaciones referentes a Convenciones y Tratados firmados entre las Repúblicas Americanas y entre éstas y otros Estados, así como las referentes a la legislación de las primeras.
+3°-Cooperar al desarrollo de las relaciones comerciales, industriales, agrícolas, sociales y culturales, al estudio de los problemas del trabajo y a un conocimiento mutuo más íntimo entre las Repúblicas Americanas.
+4°-Actuar como Comisión Permanente de las Conferencias Internacionales Americanas, guardar sus informes y archivos; cooperar a obtener la ratificación de los Tratados y Convenciones, ejecutar y facilitar la ejecución de las resoluciones adoptadas por las Conferencias Internacionales Americanas, dentro de sus atribuciones; y preparar, de acuerdo con los Gobiernos, el programa de las Conferencias Internacionales Americanas y proponer a éstas un Proyecto de Reglamento.
+5°-Desempeñar aquellas funciones que le sean conferidas por la Conferencia o por el Consejo Directivo, en uso de las facultades que le acuerda esta Convención. Cuando un Estado entendiese que sus intereses vitales están envueltos en una cuestión o que de esta última resulta una obligación para él, podrá exigir que la resolución del Consejo sea tomada por unanimidad.
+6°-EI Consejo Directivo podrá promover la reunión de Conferencias Internacionales de Expertos para el estudio de problemas de carácter técnico de interés común para los países miembros de la Unión , y a este efecto podrá solicitar de los respectivos Gobiernos el nombramiento de expertos que lo representen en dichas Conferencias, que se reunirán en los lugares y en las fechas que determine el Consejo.
+Para la consecución de los fines perseguidos al organizar esta Institución, el Consejo Directivo procederá a establecer dentro de la Unión Panamericana , las Secciones o departamentos administrativos que considere necesarios.
