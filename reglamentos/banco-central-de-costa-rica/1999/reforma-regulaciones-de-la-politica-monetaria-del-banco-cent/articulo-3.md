@@ -1,0 +1,1 @@
+3. Sustituir, en el resto del inciso D al cual se hace referencia en el numeral anterior, las frases “Superintendencia General de Entidades Financieras” y “SUGEF” por “Superintendencia que corresponda”.
