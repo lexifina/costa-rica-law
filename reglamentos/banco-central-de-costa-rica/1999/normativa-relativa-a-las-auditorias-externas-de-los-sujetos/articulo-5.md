@@ -1,0 +1,2 @@
+Artículo 5. Comunicación del nombramiento
+La entidad auditada comunicará a la Superintendencia respectiva el nombre del profesional o firma de auditores que dictaminará o certificará los estados financieros en el plazo que establezca el Superintendente. Igualmente deberá comunicar la sustitución del profesional o la firma auditora con una explicación de las causas de dicha sustitución, en el plazo que disponga el Superintendente
