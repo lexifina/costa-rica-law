@@ -1,0 +1,1 @@
+Artículo 2°- El producto que se obtenga con la venta de especies, una vez deducidos los costos de emisión y la tasa de administración que convengan el Banco y el Gobierno, se depositará periódicamente en la cuenta corriente del Gobierno.
