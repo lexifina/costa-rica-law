@@ -1,0 +1,1 @@
+Artículo 9°-El juego absolutamente prohibido será castigado con multa de cincuenta pesos ó arresto de tres meses, y el relativamente prohibido, con la cuarta parte de una ú otra pena y en esta última quedarán los reincidentes sujetos á la calificación de vagos y á las disposiciones referentes á la vagancia, sin perjuicio de satisfacer la pena correspondiente al juego.

@@ -1,0 +1,1 @@
+Artículo 11°- El hurto que no exceda de diez pesos será castigado con multa de cinco á cincuenta pesos, y arresto de quince á sesenta días ó con solo arresto de uno á doce meses; debiendo aplicarse el máximo respectivo cuando el hurto fuere cometido en lugar habitado, omitiéndose en este caso el aumento prescrito en el art. 624 parte 2a del Cód. general.
