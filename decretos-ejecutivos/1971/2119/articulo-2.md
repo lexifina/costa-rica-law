@@ -1,1 +1,0 @@
-Artículo 2°- El fin de la Compañía Nacional de Teatro es difundir el arte teatral por todo el territorio del país. Con ese fin, programarpa sus actividades tomando en cuenta todos los cantones de la República y visitando cada uno por lo menos una ves al año.

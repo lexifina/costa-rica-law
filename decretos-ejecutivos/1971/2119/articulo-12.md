@@ -1,1 +1,0 @@
-Artículo 12.- El personal de la Compañía estará compuesto por el Director Administrativo, los actores y demás funcionarios incluidos en el presupuesto nacional y por el personal adicional que el Consejo decida nombrar.
