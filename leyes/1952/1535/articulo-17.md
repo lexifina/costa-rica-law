@@ -1,1 +1,1 @@
-Artículo 17.- Este recurso debe interponerse dentro de tercero día y sólo será admisible cuando se refiere al fondo del negocio.
+Artículo 17.- (Derogado por el artículo 1° de la ley N° 1582 del 5 de junio de 1953)
