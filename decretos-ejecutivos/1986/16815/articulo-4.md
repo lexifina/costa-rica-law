@@ -1,0 +1,1 @@
+Artículo 4°-Las reservas nacionales y demás terrenos del Estado afectados por la zona protectora creada por el presente Decreto, según lo dispone el artículo 25 de la Ley Forestal son inalienables y no susceptibles de inscripción en el Registro Público por trámite alguno y la acción reinvidicatoria del Estado respecto a ellos es imprescriptible.

@@ -1,0 +1,1 @@
+Artículo 7°-Se establece en 10 hectáreas el área de la parcela mínimo productivo. Por lo tanto no pueden autorizarse segregaciones cuyas parcelas resultantes sean inferiores a esa unidad mínimo productivo.

@@ -1,0 +1,2 @@
+Artículo 5°-La administración de esta zona protectora estará a cargo de la Dirección General Forestal, con la colaboración de una comisión integrada por un representante de la Municipalidad de Siquirres, uno del Instituto de Desarrollo Agrario, uno de la Comisión Nacional de Asuntos Indígenas y uno del Instituto Costarricense de Turismo, y de las empresas turísticas que trabajan en el área.
+La instalación de esta Comisión le corresponderá a la Dirección General Forestal quien la presidirá.
