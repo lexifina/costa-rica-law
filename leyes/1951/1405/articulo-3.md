@@ -1,0 +1,1 @@
+Artículo 3°.- Se autoriza al Poder Ejecutivo para invertir los excedentes que resultaren al cerrar el ejercicio fiscal de 1951, de las partidas a que se refieren los artículos 1° y 2° de la ley N°1218 de 15 de noviembre de 1950 y el artículo 1°de la ley N°1356 de 5 de octubre de 1951
