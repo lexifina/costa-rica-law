@@ -1,0 +1,3 @@
+Artículo 6°— La Proveeduría Municipal llevará un control exacto de las herramientas y repuestos con que cuenta cada unidad, control que se debe mantener actualizado mediante una lista registro. Dicho control se coordinara con los chóferes y funcionarios autorizados.
+Este control tiene como objetivo el evitar la pérdida o mal uso de tales implementos así como su recuperación oportuna en caso de extravío.
+La Proveeduría Municipal deberá reportar al Ejecutivo Municipal mensualmente el consumo de combustible, lubricantes, repuestos y otros accesorios de todos los vehículos a fin de evaluar su rendimiento en los formularios que al efecto se crearen.

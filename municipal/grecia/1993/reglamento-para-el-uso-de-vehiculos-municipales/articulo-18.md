@@ -1,0 +1,1 @@
+Artículo 18.—La aplicación de estas sanciones quedará bajo la responsabilidad de la Dirección Ejecutiva , tomando en consideración la gravedad del caso. De acuerdo con lo que establecen las leyes laborales conexas, sin perjuicio de lo dispuesto en la ley de tránsito.
