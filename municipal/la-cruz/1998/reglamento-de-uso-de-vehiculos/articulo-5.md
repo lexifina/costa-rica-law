@@ -1,0 +1,7 @@
+Artículo 5°—Funciones de la Proveeduría: En el control del uso y mantenimiento de vehículos, la proveeduría realizará las siguientes funciones:
+A. Llevar un Registro detallado de cada uno de los vehículos, el expediente de cada vehículo incluirá un historial que refiera documentalmente su adquisición, las medidas de conservación y mantenimiento que se la hayan aplicado y las que deban aplicarse al régimen de aseguramiento que lo protege, las acciones de aseguramiento que se hayan ejecutado y cualquier otra información de importancia que se considere contribuya a demostrar la propiedad la tendencia el uso y la conservación del vehículo.
+B. Utilizar controles individuales cada vez que los vehículos de uso administrativo sean utilizados. Ello comprenderá el uso de “Boletas de entrega” donde se hará constar las condiciones, los implementos, el combustible y las herramientas que acompañan a cada vehículo. Asimismo existirán registros foliados y sellados, donde se hará constar cada ingreso y salida de los vehículos.
+C. Controlar el kilometraje de recorrido y de combustible para cada servicio de transporte y las autorizaciones que justifiquen el uso de vehículos de uso administrativo.
+D. Rendir informes anuales al Concejo Municipal sobre el uso, mantenimiento y situaciones especiales de los vehículos.
+E. Informar al Ejecutivo Municipal previa instrucción sumaria, sobre accidentes de tránsito y cualquier otra irregularidad acaecida con respecto a los vehículos a su cargo
+F. Recibir y tramitar los informes sobre daños o desperfectos en vehículos.

@@ -1,0 +1,14 @@
+Artículo 9°—Obligaciones del conductor: Son obligaciones de los conductores y choferes de los vehículos.
+A. Acatar los encargos y las órdenes para conducir un vehículo.
+B. Conducir los vehículos en conformidad con las leyes y los reglamentos respectivos,
+C. Velar por la conservación y custodia de los vehículos que se les asignen.
+D. Velar por el aseo y la limpieza de los vehículos, tanto interna como externamente
+E. Verificar el buen estado de los vehículos, las herramientas completas, los accesorios necesarios y las placas oficiales, cada vez que hagan uso de los mismos.
+F. Informar ante la proveeduría sobre cualquier accidente de tránsito ocasionado por motivo del uso de los vehículos a sus cargos. La información deberá ser detallada, suministrando datos completos sobre el accidente, las características del mismo, los daños sufridos y los daños ocasionados y las gestiones requeridas y asumidas por parte de las autoridades de tránsito.
+G. Cancelar, cuando sean declarados responsables de accidentes de tránsito por los tribunales de justicia, las sumas de dinero correspondientes a los deducibles que deban cubrirse según las condiciones de las pólizas de seguros, o bien cancelar las indemnizaciones que deban practicarse cuando los costos de los daños sean inferiores a los montos establecidos por concepto de deducibles.
+H. Informar ante la Proveeduría sobre cualquier situación irregular, anormal, especial o extraordinaria que ocurra con relación a los vehículos a sus cargos.
+I. No transportar a personas ajenas al servicio de transporte o particulares que no tengan que ver con los intereses y compromisos municipales.
+J. Trasladar y depositar los vehículos cuando no estén siendo utilizados, en los estacionamientos previamente establecidos por la Municipalidad. Cuando se utilicen vehículos para realizar giras en el territorio nacional, deberán depositarlos en lugares seguros.
+K. Utilizar los vehículos para trasladar únicamente a los lugares que haya sido autorizado visitar. Cuando por motivos de emergencia o necesidad para el interés municipal se deban utilizar los vehículos para trasladarse a lugares previamente no establecidos, se deberá presentar un informe que justifique el uso bajo esas condiciones.
+L. Acatar las disposiciones de la Proveeduría en cuanto a las horas de salida y de regreso de los vehículos, así como en cuanto a los encargados de las mismas dispondrán de las detenciones y paradas que deba practicarse y en general de cualquier uso imprevisto que deba darse a los vehículos; sin embargo, los choferes o conductores deberán negarse enfáticamente a atender un uso abiertamente anormal o simplemente ajeno a los objetivos de las giras autorizadas.
+M. Rendir informes mensuales sobre el uso de los vehículos en giras en el Territorio Nacional. Estos informes deberán presentarse dentro de los siete días hábiles siguientes a la conclusión del mes considerado.
