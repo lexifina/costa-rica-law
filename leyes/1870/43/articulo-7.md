@@ -1,0 +1,1 @@
+Artículo 7° Para los efectos del artículo 6° se declaran asuntos graves los que versa sobre cualquiera innovación cambio de la Administración de los intereses generales, cualquiera que sea su naturaleza, sobre reglamentos administrativos y sobre todo cuanta tienda a la seguridad de la República y a la conservación del orden.
