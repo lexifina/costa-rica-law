@@ -1,0 +1,10 @@
+Artículo 104.- Los fondos recaudados por la Confederación por concepto
+del pago del uno por ciento de los presupuestos de los Centros Agrícolas
+Cantonales, deberán ser utilizados y destinados al cumplimiento.
+a) Brindar asistencia en materia administrativa contable a los Centros
+Agrícolas Cantonales.
+b) Brindar asistencia y capacitación, en materia organizativa, así como
+en la elaboración y ejecución de proyectos que desarrollen los Centros
+Agrícolas Cantonales.
+c) El cumplimiento de aquellos fines que tiendan al fortalecimiento y
+desarrollo de los Centros Agrícolas Cantonales y sus Federaciones.

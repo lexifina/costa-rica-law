@@ -1,0 +1,5 @@
+Artículo 24.- Para la administración de los recursos financieros de
+los incisos b), c) y ch) del artículo anterior, se autoriza a SEPSA a abrir
+una cuenta especial en un Banco del Sistema Bancario Nacional. La
+programación presupuestaria de estos recursos será revisada y aprobada por
+la Contraloría General de la República.
