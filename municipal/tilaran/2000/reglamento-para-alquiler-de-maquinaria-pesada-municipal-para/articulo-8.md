@@ -1,0 +1,1 @@
+Articulo 8°—El Concejo Municipal autoriza al Alcalde Municipal a formalizar contratos de alquiler de maquinaria pesada; pero deberá rendir informe al Concejo en la siguiente sesión después de la firma.

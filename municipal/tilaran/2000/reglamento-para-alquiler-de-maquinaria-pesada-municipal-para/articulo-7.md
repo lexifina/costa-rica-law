@@ -1,0 +1,1 @@
+Articulo 7°—Los particulares y asociaciones que soliciten la reparación de sus caminos privados, cancelaran la tarifa fijada por el Concejo para estos casos, conforme a los articules 4 y 5 de este reglamento.

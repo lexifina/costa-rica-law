@@ -1,0 +1,1 @@
+Articulo 11.—Cuando hubiere varias solicitudes a la vez, se dará preferencia a aquellos trábalos relativos a caminos de penetración y en fincas donde es indispensable sacar productos agrícolas y ganaderos.
