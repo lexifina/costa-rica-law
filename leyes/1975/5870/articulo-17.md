@@ -1,0 +1,1 @@
+Artículo 17.- El Banco Central otorgará un descuento del 10% al público, en las ventas de sellos postales o servicios de otras modalidades de franqueo, que excedan del monto de cincuenta colones (¢ 50.00).
