@@ -1,0 +1,1 @@
+Artículo 19.- Los bienes adquiridos, de acuerdo con el beneficio de la exoneración que otorga la presente ley, serán exclusivamente para uso personal. El incumplimiento de esta disposición implicará la aplicación del artículo 20 de esta ley.

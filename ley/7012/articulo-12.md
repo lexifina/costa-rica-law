@@ -1,0 +1,1 @@
+Artículo 12.- La Comisión asesora recomendará al Ministerio de Hacienda las prioridades para la utilización de los fondos, a que serefiere el artículo anterior, para lo cual considerará los proyectos presentados por instituciones del Estado y organizaciones locales y regionales, para el desarrollo de los cantones de Golfito, Osa y Corredores.

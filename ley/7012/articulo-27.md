@@ -1,0 +1,1 @@
+Artículo 27.- La persona interesada en obtener el crédito, a que se refiere esta ley, deberá aportar al Instituto Costarricense de Turismo el respectivo estudio de factibilidad y, en su caso, un certificado extendido por un notario o por el Registro Público, en el cual conste que el capital social no está representado, total ni parcialmente, por título al portador.

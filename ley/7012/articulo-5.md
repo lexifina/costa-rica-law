@@ -1,0 +1,1 @@
+Artículo 5º.- Las mercancías extranjeras ingresarán al depósito libre exoneradas de todo tributo y quedarán sujetas al control aduanero y a los trámites que establezcan las leyes y los reglamentos correspondientes.
