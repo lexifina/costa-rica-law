@@ -1,0 +1,2 @@
+Artículo 22.- El caso de adjudicación en remate por parte del Estado, los abogados encargados del juicio deberá informar, de la respectiva adjudicación, para proceder a tomar posesión de los bienes adjudicados, función que será responsabilidad de la Contabilidad Nacional o de la dependencia competente.
+En caso de los bienes inmuebles, el fiscal deberá proceder a notificar a la Oficina de Cobros para que esta coordine con la Notaría del Estado lo relacionado con la protocolización de piezas y su correspondiente inscripción en el Registro Nacional.

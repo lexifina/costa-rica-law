@@ -1,0 +1,1 @@
+Artículo 5°- Los fiscales específicos tendrán como lugar de trabajo sus bufetes particulares; el cual deben comunicar al Jefe de la Oficina de Cobros antes de entrar en posesión de sus cargos y mantenerlo actualizado ante cualquier variación.

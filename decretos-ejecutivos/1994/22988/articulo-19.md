@@ -1,0 +1,1 @@
+Artículo 19.- El fiscal específico encargado del juicio informará sobre las órdenes de giro aprobadas al Jefe de la Oficina de Cobros, quien deberá hacer el retiro de los cheques respectivos en la Tesorería de la Corte u otra dependencia que corresponda. Una vez retirados los cheques se deberá proceder a su aplicación, mediante entero de Gobierno.

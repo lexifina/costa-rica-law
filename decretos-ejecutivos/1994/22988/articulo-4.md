@@ -1,0 +1,1 @@
+Artículo 4°- Los fiscales específicos deberán manifestar por escrito que tienen conocimiento de este Reglamento, así como, su conformidad con el mismo, en forma previa a la asignación de "Títulos Ejecutivos" para su cobro.

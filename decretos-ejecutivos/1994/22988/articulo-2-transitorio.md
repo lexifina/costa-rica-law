@@ -1,0 +1,2 @@
+TRANSITORIO II
+Los abogados que actualmente presten sus servicios a la Oficina de Cobros, seguirán haciéndolo como hasta ahora lo han hecho, siempre y cuando cumplan con lo dispuesto en este Reglamento, y gozarán de un plazo de 60 días, contados a partir de la vigencia del mismo, para poner al día, mediante las gestiones judiciales y administrativas que estimen convenientes, los juicios que se encuentran a su cargo.

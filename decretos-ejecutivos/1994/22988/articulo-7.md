@@ -1,0 +1,5 @@
+CAPITULO II
+Del Control y Distribución de Casos
+Artículo 7°- La Jefatura de la Oficina de Cobros designará la unidad administrativa que se encargará de llevar un control permanente de los casos asignados a los fiscales específicos. Para estos efectos, deberá mantenerse actualizado el registro de entregas y e expediente de cada caso y deberá contarse con los informes señalados en este Reglamento.
+Si la "Unidad" indicada considera que existe atraso, procederá a informarlo al fiscal específico, quien contará con un plazo de ocho días a partir de la notificación respectiva, para explicar o justificar la situación. Un mes después, si el cobro judicial encomendado no se ha puesto al día, la Jefatura de la Oficina de Cobros procederá a informarlo por escrito a su superior jerárquico, debiendo señalar los hechos relevantes del asunto y acompañar el expediente respectivo.
+El superior inmediato de la Oficina de Cobros procederá con el trámite para la revocatoria del nombramiento del fiscal específico.

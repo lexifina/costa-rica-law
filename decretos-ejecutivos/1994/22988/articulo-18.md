@@ -1,0 +1,1 @@
+Artículo 18.- En los casos en que los patronos se negaren a hacer las retenciones por embargos recaídos a los empleados, el Jefe de la Oficina de Cobros, deberá instruir al fiscal específico, encargado de los juicios, para que de inmediato entable la acción correspondiente.
