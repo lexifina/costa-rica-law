@@ -1,0 +1,1 @@
+5°—Organizar conjuntamente con representantes del Instituto Nacional de las Mujeres, el funcionamiento de una Red de Apoyo Interinstitucional del que impulsa los programas y acciones de la OFIM en el cantón.
