@@ -27,4 +27,4 @@ Concesión comercial | 85,00 | ________ | ________
 f. Por utilización del área de rampa en despacho aéreo y suministro de alimentos y bebidas ¢31.695,00 por mes.
 g. Por el derecho de uso de área para expendio de combustible a vehículos automotores en los aeropuertos internacionales del país, se cobrará una tarifa mensual de 114,00 por metro cuadrado
 h. las empresas de transporte aéreo deberán cancelar la suma de US $ 2,00 por cada mostrador utilizado en la atención de cada vuelo despachado.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 22861 de 4 de febrero de 1994).
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 22861 de 4 de febrero de 1994, posteriormente mediante el artículo 1° del Decreto Ejecutivo N° 23007 de 07/03/1994, que reforma al N° 22861 se indica que la reforma del inciso h) rige a partir del 1° de octubre de 1993).
