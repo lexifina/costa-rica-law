@@ -1,0 +1,1 @@
+Artículo 17.- La Junta de Expertos tendrá dos sesiones ordinarias cada año, como Comisión Preparatoria de la Reunión de Ministros, y sesiones extraordinarias cuando fueren convocadas por la Secretaría Permanente, a petición de, por lo menos, un tercio de los Estados Miembros.

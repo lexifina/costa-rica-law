@@ -1,0 +1,1 @@
+Artículo 7º.- En caso de que un Estado que haya dejado de ser Miembro de la Organización pida su readmisión, ésta será posible si la solicitud correspondiente obtuviere la aprobación de la Reunión de Ministros, haciéndose efectivo su reingreso cuando deposite en la Secretaría Permanente el instrumento de adhesión y cumpla con las obligaciones emanadas del presente Convenio.

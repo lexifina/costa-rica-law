@@ -1,0 +1,1 @@
+Artículo 35.- Las modificaciones al presente Convenio serán adoptadas en una Reunión de Ministros convocada para tal objeto y entrarán en vigor una vez que hayan sido ratificadas por todos los Estados Miembros.

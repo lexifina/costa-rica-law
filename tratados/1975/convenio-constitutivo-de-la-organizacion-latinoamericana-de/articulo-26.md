@@ -1,0 +1,1 @@
+Artículo 26.- Los recursos de la Organización se integran con las contribuciones anuales ordinarias y las contribuciones extraordinarias aprobadas por la Reunión de Ministros de conformidad con lo dispuesto en el literal d) del artículo 10 y con las donaciones, legados y demás aportes que reciba de conformidad con las disposiciones reglamentarias pertinentes.

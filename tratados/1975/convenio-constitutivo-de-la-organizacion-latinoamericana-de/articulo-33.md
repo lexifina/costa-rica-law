@@ -1,0 +1,1 @@
+Artículo 33.- El presente Convenio estará sujeto a ratificación por los Estados Signatarios y los instrumentos respectivos serán depositados en el Ministerio de Relaciones Exteriores del Gobierno de la República del Ecuador el que notificará dicha circunstancia, en cada caso a las Cancillerías de los otros Estados Miembros.

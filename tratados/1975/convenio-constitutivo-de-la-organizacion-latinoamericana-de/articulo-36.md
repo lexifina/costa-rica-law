@@ -1,0 +1,3 @@
+Artículo 36.- El presente Convenio entrará en vigor entre los Estados que lo ratifiquen, treinta días después de que haya sido depositado el duodécimo instrumento de ratificación.
+El presente Convenio se denominará Convenio de Lima.
+En fe de lo cual los Plenipotenciarios, en nombre de sus respectivos Gobiernos, suscriben el presente Convenio, en la ciudad de Lima, a los dos días del mes de noviembre de mil novecientos setenta y tres, en cuatro ejemplares en los idiomas Castellano, Inglés, Portugués, y Francés, siendo los cuatro textos igualmente válidos. El Gobierno de la República del Perú será el depositario del presente convenio y enviará copias auténticas del mismo a los Gobierno de los Países Signatarios y Adherentes”.

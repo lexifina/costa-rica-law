@@ -1,0 +1,1 @@
+Artículo 6º.- Cualquier Estado Miembro de la Organización podrá en todo tiempo denunciar el presente Convenio. Sus derechos y obligaciones con la Organización cesarán treinta días después de presentado el documento de denuncia a la Secretaría Permanente.

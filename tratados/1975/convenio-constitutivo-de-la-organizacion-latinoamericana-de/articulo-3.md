@@ -1,0 +1,18 @@
+CAPITULO SEGUNDO
+Objetivos y Funciones
+Artículo 3º.- La Organización tendrá los siguientes objetivos y funciones:
+a) Promover la solidaridad de acciones entre los Países Miembros para el aprovechamiento y defensa de los recursos naturales de sus respectivos países y de la región en su conjunto, utilizándolos en la forma en que cada uno -en ejercicio de sus indiscutibles derechos de soberanía- lo estime más apropiado a sus intereses nacionales; y para la defensa individual y colectiva ante todo género de acciones, sanciones y coerciones que puedan producirse contra cualquiera de ellos, por razón de medidas que hayan adoptado para preservar y aprovechar esos recursos y ponerlos al servicio de sus planes de desarrollo económico y social;
+b) Unir esfuerzos para propiciar un desarrollo independiente de los recursos y capacidades energéticas de los Estados Miembros;
+c) Promover una política efectiva y racional para la exploración, explotación, transformación y comercialización de los recursos energéticos de los Estados Miembros;
+d) Propiciar la adecuada preservación de los recursos energéticos de la Región, mediante su racional utilización;
+e) Promover y coordinar la realización de negociaciones directas entre los Estados Miembros, tendientes a asegurar el suministro estable y suficiente de la energía necesaria para el desarrollo integral de los mismos;
+f) Propugnar la industrialización de los recursos energéticos y la expansión de las industrias que hagan posible la producción de la energía;
+g) Estimular entre los Miembros la ejecución de proyectos energéticos de interés común;
+h) Contribuir a petición de todas las partes directamente involucradas, al entendimiento y la cooperación entre los Estados Miembros para facilitar un adecuado aprovechamiento de sus recursos naturales energéticos compartidos y evitar perjuicios sensibles;
+i) Promover la creación de un organismo financiero para la realización de proyectos energéticos y proyectos relacionados con la energía en la Región;
+j) Propiciar las formas que permitan asegurar y facilitar a los países mediterráneos del área, en situaciones no reguladas por tratados y convenios, el libre tránsito y uso de los diferentes medios de transporte de recursos energéticos así como de las facilidades conexas, a través de los territorios de los Estados Miembros;
+k) Fomentar el desarrollo de medios de transporte marítimo, fluvial y terrestre y transmisión de recursos energéticos, pertenecientes a países de la Región, propiciando su coordinación y complementación, de tal manera que se traduzca en su óptimo aprovechamiento;
+l) Promover la creación de un mercado latinoamericano de energía, iniciando este esfuerzo con el fomento de una política de precios que contribuya a asegurar una justa participación de los Países Miembros en las ventajas que se deriven del desarrollo del sector energético;
+m) Propiciar la formación y el desarrollo de políticas energéticas comunes como factor de integración regional;
+n) Fomentar entre los Estados Miembros la cooperación técnica, el intercambio y divulgación de la información científica, legal y contractual y propiciar el desarrollo y difusión de tecnologías en las actividades relacionadas con la energía; y
+o) Promover entre los Estados Miembros la adopción de medidas eficaces con el fin de impedir la contaminación ambiental con ocasión de la explotación, transporte, almacenamiento y utilización de los recursos energéticos de la Región, y recomendar las medidas que se consideren necesarias para evitar la contaminación ambiental causada por la explotación, transporte, almacenamiento y utilización de recursos energéticos dentro de la Región, en áreas no dependientes de los Estados Miembros.

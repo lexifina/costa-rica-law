@@ -1,0 +1,1 @@
+Artículo 19.- La Secretaría Permanente es el Organo Ejecutivo de la Organización, estará dirigida por un Secretario Ejecutivo y contará con el personal técnico y administrativo necesario, de acuerdo con el presupuesto que apruebe la Reunión de Ministros.

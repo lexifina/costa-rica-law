@@ -1,0 +1,1 @@
+Artículo 29.- Los Ministros y Delegados de los Estados Miembros y los Funcionarios y Asesores, gozarán en el ejercicio de sus funciones, de las inmunidades y privilegios diplomáticos acordados a los Organismos Internacionales.

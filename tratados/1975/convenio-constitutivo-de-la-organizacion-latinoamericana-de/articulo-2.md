@@ -1,0 +1,1 @@
+Artículo 2º.- La Organización es un organismo de cooperación, coordinación y asesoría, con personería jurídica propia, que tiene como propósito fundamental la integración, protección, conservación, racional aprovechamiento, comercialización y defensa de los recursos energéticos de la Región.
