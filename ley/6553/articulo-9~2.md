@@ -11,8 +11,8 @@ inclusive, y el artículo 21; y
 b) el 1 de julio de 1979, con respecto a los Artículos 3 al 9, ambos
 inclusive, y el Artículo 21 del Convenio, siempre que se hayan depositado
 tales instrumentos de ratificación, aceptación, aprobación, conclusión o
-adhesión o declaraciones de aplicación provisional, no más tarde del 22 de
-junio de 1979, en nombre de Gobiernos que representen a miembros
+adhesión o declaraciones de aplicación provisional, no más tarde del
+22 de junio de 1979, en nombre de Gobiernos que representen a miembros
 exportadores que poseen por lo menos el 60 por ciento de los votos
 indicados en el Anexo A y los miembros importadores que poseen por lo menos
 el 50 por ciento de los votos indicados en el Anexo B, o que hubiesen
