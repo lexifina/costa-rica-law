@@ -14,3 +14,4 @@ Autoriza al Instituto Mixto de Ayuda Social para otorgar subsidios a Deudores Su
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-22 | la propia norma |
+| 2 | 2001-10-03 | Decreto Ejecutivo 29928 (2001-10-03) |
