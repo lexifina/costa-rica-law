@@ -1,0 +1,1 @@
+Artículo 3°-Quedan adscritos en cuanto a sus funciones dependiendo técnica y administrativamente de la Sección Docente del Servicio Civil, todos los funcionarios del Ministerio dedicados a la confección de acciones de Personal Docente y Docente-Administrativo, así como aquellos de nivel técnico y de secretariado que sean indispensables para la buena marcha de la Sección.

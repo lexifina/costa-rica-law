@@ -1,0 +1,1 @@
+Artículo 4°-Para cumplir con sus finalidades, la Sección Docente dispondrá el equipo, mobiliario y servicios de que actualmente disfruta, en lo correspondiente, el Departamento de Personal del Ministerio.

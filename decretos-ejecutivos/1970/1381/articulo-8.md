@@ -1,0 +1,1 @@
+Artículo 8°-Las acciones de personal confeccionadas en las Administraciones Regionales, Liceos, Colegios o Escuelas, por movimiento de personal de los indicados en el artículo anterior, requerirán la aprobación del Director del Departamento de Personal del Ministerio de Educación Pública previa al visto bueno de la Sección Docente de Servicio Civil.
