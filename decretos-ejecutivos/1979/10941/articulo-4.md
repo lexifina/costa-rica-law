@@ -1,0 +1,1 @@
+Artículo 4° El uso de la aeronave por funcionarios que no sean de la Dirección General de Aviación Civil, deberán contar con la aprobación previa y por escrito del Ministerio de Obras Públicas y Transportes.

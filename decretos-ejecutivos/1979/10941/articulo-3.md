@@ -1,0 +1,1 @@
+Articulo 3° Podrá la aeronave utilizarse para el traslado de personal ejecutivo de la Dirección General de Aviación Civil, Consejo Técnico de Aviación o funcionarios de otras dependencias del Ministerio de Obras Públicas y Transportes, cuando no se presenten circunstancias o motivos que indiquen que se está dentro de las prioridades del artículo 2° del presente decreto.

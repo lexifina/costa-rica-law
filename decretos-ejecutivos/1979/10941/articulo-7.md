@@ -1,0 +1,1 @@
+Artículo 7° El piloto de aeronave será responsable ante el Subdirector General de Aviación Civil, por el debido cumplimiento de los servicios a los cuales ha sido asignada la aeronave, así como el llenado correcto del libro a bordo y del libro de operación de la aeronave.
