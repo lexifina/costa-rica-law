@@ -1,0 +1,5 @@
+Artículo 8: El uso de la gramilla tendrá la siguiente regulación:
+A) Se autorizarán partidos en los que participen representativos cantonales en torneos oficiales, entendiéndose como tales los patrocinadores por la Dirección General de Deportes, el Ministerio de Educación Pública, y la Federación Costarricense de Fútbol, siempre y cuando no interfieran con los partidos del campeonato en que participa la Asociación Deportiva Municipal Puriscal.
+B) Como cancha alterna puede concederse para equipos de Primera y Segunda División.
+C) La Junta podrá alquilar el Estadio a otras agrupaciones Deportivas que estén regidas por al Federación de Fútbol u otros organismos deportivos, lo anterior en casos muy calificados a criterio de la Junta.
+D) No serán permitidos más de dos partidos por fecha, siempre y cuando las condiciones climatológicas y el estado de la gramilla lo permitan. E) Queda prohibido todo entrenamiento con balón en presencia de lluvia o si por las condiciones de la gramilla no resultaren conveniente.

@@ -1,0 +1,1 @@
+Artículo 6°—La Junta Administrativa del Estadio sesionará ordinariamente dos veces por mes y extraordinariamente a criterio del Presidente o cuando lo soliciten dos de sus miembros. El quórum para sesionar válidamente será por tres de sus miembros y los acuerdos se adoptarán por simple mayoría.

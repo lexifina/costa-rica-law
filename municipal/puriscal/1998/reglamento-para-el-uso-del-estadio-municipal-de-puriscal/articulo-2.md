@@ -1,0 +1,1 @@
+Artículo 2°—Su conservación y mejoramiento han de ser concordantes con la jerarquía futbolística que nuestro cantón mantiene en el ámbito nacional, y como homenaje a todos aquellos que a través de los años y desde su fundación han contribuido a su funcionamiento.

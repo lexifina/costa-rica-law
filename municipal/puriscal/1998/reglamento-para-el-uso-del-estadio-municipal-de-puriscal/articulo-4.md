@@ -1,0 +1,1 @@
+Artículo 4°—La Junta durará en sus funciones dos años, será de nombramiento del Concejo, y estará integrada por cinco miembros, uno de los cuales será escogido de una terna que enviará la Junta Directiva de la Asociación Deportiva Municipal Puriscal.
