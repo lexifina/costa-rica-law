@@ -1,0 +1,3 @@
+Art 2°.- En la distribución del dinero no se comprenden los haberes de los Ministros de la Corte Superior de Justicia, por la preferencia que ha dado á estos la ley de 16 de diciembre del año de 1826, en virtud de la cual han percibido medio sueldo en dinero, mensualmente, según se demuestra en las listas de distribución de caudales practicadas en la Tesorería; y en consecuencia sólo se les indemnizará sus alcances en tabaco.
+Al Consejo Representativo:-Dado en San José, á los veintiséis días del mes de mayo de mil ochocientos treinta.
+Por tanto: Ejecútese: San José, junio diez y nueve de mil ochocientos treinta.
