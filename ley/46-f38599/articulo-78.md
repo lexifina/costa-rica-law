@@ -1,0 +1,2 @@
+Art. 78. —Cualquiera miembro del Congreso podrá entonces pedir que se declare que no hay elección, si creyere que el que ha reunido la expresada mayoría de votos no tiene las calidades requeridas por la Constitución. (*) En este caso se procederá como queda dispuesto en el art. 74.º
+(*) Art. 96 de la Constitución. —Para ser Presidente de la República se requiere: —Ser Costarricense por nacimiento. —Haber estado en el ejercicio de la ciudadanía por lo menos cinco años. —Haber cumplido la edad de treinta años. —Reunir las calidades que se exigen para ser elector.

@@ -1,0 +1,1 @@
+Art. 5°. —Para fijar el número de electores que corresponde á un distrito, ó el de Diputados que toque elegir á una provincia ó comarca, se tomará por base la población que asigne al distrito, provincia ó comarca el censo último que se haya practicado, con las modificaciones que contenga el último anuario estadístico.

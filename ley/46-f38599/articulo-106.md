@@ -1,0 +1,1 @@
+Art. 106. —Los actos ejecutados en contravención de lo dispuesto en esta ley, serán nulos en los casos que en ella expresamente se dispone; en los demás casos habrá lugar á responsabilidad contra el que haya ejecutado el acto ó sea culpable de la omisión.

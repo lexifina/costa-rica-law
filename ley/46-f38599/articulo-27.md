@@ -1,0 +1,1 @@
+Art. 27. —En vista de las resoluciones que en apelación dictaren las Juntas cantonales, procederán las de distrito á hacer y fijar en lugares públicos listas adicionales de los ciudadanos nuevamente inscritos, y á anotar en las principales las bajas ocurrieren.

@@ -1,0 +1,1 @@
+Art. 25. —Contra las resoluciones de las Juntas de distrito podrá cualquier ciudadano presentarse apelando ante la Junta cantonal. Con ese fin, las Juntas de distrito otorgarán sin dilación, á quien lo pida, copia certificada de la resolución que hubieren dictado.

@@ -1,0 +1,1 @@
+Art. 17. —Los miembros de todas estas Juntas gozarán de inmunidades durante los días señalados para el desempeño de sus funciones. Tales inmunidades consisten en no poder ser dichos miembros demandados, presos ni detenidos, sino por delito infraganti.

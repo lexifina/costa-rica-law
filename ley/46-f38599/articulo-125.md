@@ -1,0 +1,1 @@
+Art. 125. —El que se presentare armado en el lugar de las votaciones, incurrirá en la pena de diez días de arresto, será inmediatamente desarmado y perderá el arma que portare, la cual pasará al almacén nacional. Si las personas que concurrieren armadas constituyeren una asonada ó motín, sufrirán reclusión menor en su grado medio á máximo.

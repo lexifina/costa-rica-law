@@ -1,0 +1,2 @@
+Art. 56. —La elección de segundo grado se practicará ó por el sistema de mayoría absoluta de votos ó por el sistema proporcional numérico.
+Para que haya elección con arreglo al primer sistema, bastará que el candidato obtenga más de la mitad de los votos presentes; para que la haya con arreglo al segundo es preciso que obtenga un número de sufragios igual al cociente que resulte de dividir el número de electores que hubieren votado, por el de funcionarios que se trate de elegir, sin tomar en cuenta las fracciones.

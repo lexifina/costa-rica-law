@@ -1,0 +1,1 @@
+Art. 39. —Los empleados de Policía del distrito estarán á la disposición del Presidente de la Junta, durante la votación, para hacer que se cumplan las disposiciones de esta ley, y para impedir todo desorden que pudiera contrariar la libertad de los sufragantes y de las Juntas.

@@ -1,0 +1,1 @@
+Art. 29. —Cuatro días antes del primero de los señalados par votaciones, el Presidente de la Junta de distrito anunciará por medio de carteles, fijados en lugares públicos, el número de electores que toca á cada distrito, los locales señalados por dicha Junta y las auxiliares para recibir los votos, que serán los más públicos y cómodos de cada lugar.

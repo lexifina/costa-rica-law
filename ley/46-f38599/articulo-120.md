@@ -1,0 +1,1 @@
+Art. 120. —El miembro de una Junta de elecciones que no asistiere ó que habiendo asistido abandonare su puesto el día de las votaciones ó se negare á firmar los registros, incurrirá en la multa de cien pesos.
