@@ -49,6 +49,7 @@ articulo-48.md
 articulo-49.md
 articulo-50.md
 articulo-51.md
+articulo-51-bis.md
 articulo-52.md
 articulo-53.md
 articulo-54.md
@@ -59,4 +60,3 @@ articulo-58.md
 articulo-59.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
-articulo-51-bis.md

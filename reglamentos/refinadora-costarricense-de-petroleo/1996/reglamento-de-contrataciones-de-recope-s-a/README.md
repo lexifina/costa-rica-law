@@ -19,3 +19,4 @@ Reglamento de Contrataciones de RECOPE S.A.
 | 4 | 1997-04-23 | Reglamento 3158 (1997-04-23) |
 | 5 | 2000-05-15 | Reglamento 3454 (2000-05-15) |
 | 6 | 2000-10-02 | Reglamento 3488 (2000-10-02) |
+| 7 | 2002-05-10 | Reglamento 3636 (2002-05-10) |
