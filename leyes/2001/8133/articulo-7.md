@@ -1,0 +1,1 @@
+Artículo 7º—Las operaciones que realice el fideicomiso se eximen de todo pago por concepto de avalúos, timbres, impuestos de inscripción de la constitución, endoso, cancelación de hipotecas e impuestos de contratos de prenda, así como del pago de derechos de registro.

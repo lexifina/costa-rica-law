@@ -1,0 +1,5 @@
+Artículo 11.—Modifícase el primer párrafo del inciso q) del artículo 8º de la Ley del Impuesto sobre la Renta, Nº 7092, cuyo texto dirá:
+"Artículo 8º—
+[...]
+q) Las donaciones debidamente comprobadas que hayan sido entregadas, durante el período tributario respectivo, al Estado, a sus instituciones autónomas y semi-autónomas, a las corporaciones municipales, a las universidades estatales, a las Juntas de Protección Social, a las Juntas de Educación, a las instituciones docentes del Estado, a la Cruz Roja Costarricense y a otras instituciones, como asociaciones o fundaciones para obras de bien social, científicas o culturales, así como las donaciones realizadas en favor de la Junta Directiva del Parque Recreativo Nacional Playas de Manuel Antonio, de las asociaciones civiles y deportivas declaradas de utilidad pública por el Poder Ejecutivo al amparo del artículo 32 de la Ley de Asociaciones, o de los comités nombrados oficialmente por la Dirección General de Deportes, en las zonas definidas como rurales según el Reglamento de esta Ley, durante el período tributario respectivo.
+[...]"

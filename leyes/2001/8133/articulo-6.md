@@ -1,0 +1,1 @@
+Artículo 6º—La Junta Directiva sesionará en forma ordinaria una vez al mes y, en forma extraordinaria, cuando se requiera; en cuyo caso, el presidente hará la convocatoria. Para sesionar, requerirá la mayoría más uno de sus miembros y los acuerdos serán tomados por mayoría simple de los miembros presentes.

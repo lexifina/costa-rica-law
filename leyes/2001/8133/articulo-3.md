@@ -1,0 +1,1 @@
+Artículo 3º—La Junta Directiva estará conformada por siete miembros propietarios, con derecho a voz y voto. Cada uno contará con el respectivo suplente, quien lo sustituirá durante la ausencia definitiva o las temporales.
