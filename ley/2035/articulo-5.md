@@ -1,4 +1,5 @@
-Artículo 5º.- Para el cumplimiento de sus fines, el Consejo tendrá las siguientes atribuciones:
+Artículo 5º.-Para el cumplimiento de sus fines, el Consejo tendrá las siguientes atribuciones y deberes:
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 6786 del 9 de agosto de 1982)
 a) Comprar directa y exclusivamente a los productores nacionales los artículos básicos de consumo popular a precios que les garanticen utilidades justas, contribuyendo así a fomentar esa producción. Solamente en casos excepcionales, por acuerdo razonado tomado por dos tercios o más del total de miembros de la Junta Directiva, podrá comprar a los intermediarios:
 b) Establecer y operar silos, secadoras, bodegas, cámaras de refrigeración, plantas de transformación e industrialización de productos agrícolas, pecuarios y marinos y cualquier otro medio de almacenamiento, movilización y transporte de los artículos que puedan ser adquiridos conforme a la presente ley.
 Solamente en casos excepcionales, por acuerdo razonado tomado por dos tercios o más del total de miembros de la Junta Directiva, podrá el Consejo tomar en arrendamiento de los particulares tales instalaciones o servicios;
@@ -11,7 +12,10 @@ Las herramientas agrícolas y pecuarias manuales deberán ponerse a la venta en 
 g) Fomentar la mecanización agrícola siguiendo planes tendientes a obtener mayor eficiencia y rendimiento en la producción. Estos planes deben ser complementados con programas de conservación de suelos, que se elaborarán conjuntamente con el Ministerio de Agricultura y Ganadería;
 h) Llevar a cabo trabajos de preparación de suelos y construir caminos de penetración que requieran maquinaria pesada. Estos trabajos los cobrará al costo de operación a los pequeños o medianos productores del sector agropecuario;
 i) Impulsar y fomentar la industrialización agrícola, pecuaria y pesquera, en las zonas cuya posibilidad de producción así lo amerite;
-j) Estimular la formación y funcionamiento de cooperativas de mercadeo, producción y mecanización en actividades agrícolas, pecuarias y pesqueras, así como las de consumo, en las zonas que previamente determine el Consejo;
+j) Estimular, en coordinación con el Instituto de Fomento Cooperativo (INFOCOOP), la formación y el funcionamiento de cooperativas de mercadeo, producción y mecanización, en actividades agrícolas, pecuarias y pesqueras, así como de cooperativas de consumo.
+En el cumplimiento de estos fines, y como estímulo específico a las cooperativas de consumo, o con secciones de consumo, el Consejo Nacional de Producción, de común acuerdo con el INFOCOOP, promoverá y facilitará el traspaso gradual de sus estancos a estas cooperativas.
+En todo caso, el Consejo Nacional de Producción deberá vender a tales cooperativas, a precio de costo, todos los productos que expenda, y otorgarles los créditos necesarios.
+(Así reformado el inciso j) anterior por el artículo 1° de la ley N° 6786 del 9 de agosto de 1982)
 k) Coordinar las actividades del Consejo con organismos o instituciones estatales que coadyuven al fomento de la producción nacional;
 l) Coadyuvar con el Ministerio de Agricultura y Ganadería en el control de plagas. Para tal efecto, deberá mantener existencia de los productos y equipos necesarios;
 m) Otorgar garantía fiduciaria a personas físicas o jurídicas ante las instituciones bancarias del Estado. En ningún caso se otorgará este aval a personas físicas o jurídicas que estén en capacidad económica de garantizarse por sus propios medios, a juicio del Consejo, a sociedades anónimas con acciones al portador o a quienes tuvieren en mora operaciones de créditos en el Consejo, o atrasos de más de un año en los bancos, o estuvieren intervenidos por éstos. Los créditos que se otorguen con la fianza del Consejo serán fiscalizados por éste y por el banco que los concedió;
@@ -22,4 +26,4 @@ Sólo en casos excepcionales, a juicio de la Junta Directiva por el voto de dos 
 o) Establecer almacenes de distribución en los lugares que lo ameriten, con el objeto de proveer al comercio minorista los artículos de consumo popular del tráfico del Consejo;
 p) Establecer, cuando sea necesario, expendios o mercados para la venta al detalle de los artículos básicos de consumo popular independientemente o en colaboración con las municipalidades, asociaciones de desarrollo comunal y cooperativas agropecuarias y de explotación de productos del mar; y
 q) Suscribir certificado de aportación de asociaciones cooperativas y participar en empresas comunitarias de autogestión campesina, cuyas actividades están directamente relacionadas con los planes del Consejo.
-Los bienes y servicios, a que se refieren los incisos c), d), e) y f), serán suministrados a los pequeños o mediano s productores del sector agropecuario a precio de costo.
+Los bienes y servicios, a que se refieren los incisos c), d), e) y f), serán suministrados a los pequeños o medianos productores del sector agropecuario a precio de costo.
