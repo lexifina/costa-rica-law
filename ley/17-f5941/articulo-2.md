@@ -1,0 +1,2 @@
+Art. 2°-Queda derogada en todas sus partes la precitada ley de 4 de julio de 1874, y todos los acuerdos subsiguientes que se opongan á esta ley.
+AL PODER EJECUTIVO-Dado en el salón de sesiones del Palacio Nacional, en San José, à once de junio de mil ochocientos ochenta y tres.-JN. M. CARAZO, Presidente.-VICENTE C. SEGREDA, Secretario- A. SANTOS, 1er Pro-secretario.-Palacio Presidencial, á doce de junio de mil ochocientos ochenta y tres. Ejecútese.~P. FERNÁNDEZ.-El Secretario de Estado en el Despacho de Instrucción Pública.-EUSEBIO FIGUEROA.
