@@ -1,0 +1,1 @@
+Art 4° El Poder Ejecutivo dispondrá la construcción de cuarteles en las Ciudades de San José, Heredia y Alajuela invirtiendo las cantidades necesarias, suministrando los recursos que demanden el que actualmente se construye en la Ciudad de Cartago.
