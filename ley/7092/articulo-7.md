@@ -1,0 +1,3 @@
+Artículo 7º.- Renta Neta.
+La renta neta es el resultado de deducir de la renta bruta los costos y gastos útiles, necesarios y pertinentes para producir la utilidad o beneficio, y las otras erogaciones expresamente autorizadas por esta ley, debidamente respaldadas por comprobantes y registradas en la contabilidad. En el reglamento de esta ley se fijarán las condiciones en que se deben presentar estos documentos.
+Cuando los costos, gastos o erogaciones autorizados se efectúen para producir indistintamente rentas gravadas o exentas, se deberá deducir solamente la proporción que corresponda a las rentas gravadas.
