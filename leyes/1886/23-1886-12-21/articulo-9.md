@@ -1,0 +1,2 @@
+Artículo 9°.- No se concederá carta de naturalización a los ciudadanos o súbditos de nación con que la República se halle en estado de guerra; ni a los declarados judicialmente en otros países, piratas, traficantes en esclavos, incendiarios, monederos falsos, o falsificadores de billetes de banco o de otros documentos de crédito público, ni a los asesinos, plagiarios y ladrones .
+Es nula de pleno derecho la naturalización que fraudulentamente haya obtenido el extranjero en violación de la ley.

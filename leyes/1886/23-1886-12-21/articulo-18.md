@@ -1,0 +1,1 @@
+Artículo 18.- Los extranjeros están exentos del servicio militar; los domiciliados, sin embargo, tienen obligación de hacer el de policía, cuando se trate de la seguridad de los propietarios y de la conservación del orden de la misma población en que estén radicados.

@@ -1,0 +1,6 @@
+Artículo 5°.- El costarricense que hubiere perdido su nacionalidad puede recobrarla:
+1°.- Si se halla en el caso 1° del artículo anterior, volviendo al territorio de la República si se encuentra fuera, y declarando ante la Secretaría de Relaciones Exteriores que quiere fijarse en Costa Rica y que renuncia a la nacionalidad extranjera;
+2°.- Si se halla en el caso 2°, declarando expresamente ante la Secretaría de Relaciones Exteriores que quiere fijarse en Costa Rica y que ha renunciado al cargo, título o condecoración que le fue conferido por gobierno extranjero;
+3°.- Si se halla en el caso 3° del mismo artículo, solicitando del Gobierno permiso para volver al territorio de la República, y si éste lo concede, volviendo a Costa Rica para llenar los requisitos exigidos a un extranjero que trata de naturalizarse;
+4°.- Si se halla en el caso 4°, declarando, al ser mayor de edad, ante la Secretaría de Relaciones Exteriores, que opta por la nacionalidad costarricense o inscribiéndose el padre en el registros cívico, antes de esa edad;
+5°.- En el caso 5°, la viuda, disuelto el matrimonio puede volverse al territorio de la República y declarar ante la Secretaría de Relaciones Exteriores, que desea fijarse en la República y que renuncia a la nacionalidad extranjera.

@@ -1,0 +1,2 @@
+Artículo 13°.- Los ciudadanos naturalizados tienen el mismo derecho que los naturales a la protección del Gobierno de la República.- Sin embargo, si regresara a su país de origen, quedan sujetos a las responsabilidades en que hubieren incurrido antes de su naturalización.
+Tienen los mismos derechos y obligaciones que los ciudadanos de origen, pero serán inhábiles para desempeñar aquellos cargos o empleos para los que, conforme a la ley, se exige la nacionalidad por nacimiento.

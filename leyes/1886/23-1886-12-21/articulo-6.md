@@ -1,0 +1,1 @@
+Artículo 6°.- El cambio de nacionalidad del marido, ocurrido durante el matrimonio, hace que cambie la nacionalidad de la mujer, si según las leyes del país cuya nacionalidad adoptase el marido, la mujer sigue la condición de éste.
