@@ -1,0 +1,2 @@
+Art. 2° -A las doce del dia de mañana, prestarán los nombrados el juramento de ley.
+Al Poder Ejecutivo. –Dado en el Salon de Sesiones.-Palacio Nacional. San José, Octubre quince de mil ochocientos setenta y siete.-Bruno Carranza, Presidente.- Jesus Solano, Secretario.-Por tanto: Ejecútese. -Palacio Nacional. San José, Octubre diez y seis de mil ochocientos setenta y siete.--T. Guardia.-El Secretario de Estado en el Despacho de Justicia, José Ma Castro.
