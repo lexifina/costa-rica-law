@@ -1,0 +1,1 @@
+Artículo 2º.- Adiciónese un Capítulo XXI al Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Seguridad Publica el titulado como "De las disposiciones finales" corriendo la numeración de los artículos 166, 167 y 168 que pasan a ser 175, 176 y 177 respectivamente.
