@@ -1,0 +1,1 @@
+Art. 2°-El Ejecutivo reglamentará todo lo relativo á la explotación del artículo, así como el mínimum de siembra y matrícula de cultivadores, y comprará, si lo estimare conveniente, la cantidad de él que quisiere poner á la venta, bajo el sistema actual de monopolio, dejando en todo caso libre la exportación de tal producto.
