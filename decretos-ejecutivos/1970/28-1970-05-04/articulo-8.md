@@ -1,0 +1,1 @@
+Artículo 8°-El Poder Ejecutivo, oyendo el parecer del Instituto Geográfico Nacional, adscribirá por decreto los caseríos que correspondan a los nuevos distritos conforme avance la cartografía, y podrá variarles el nombre si se presentarán conflictos toponímicos, previo informe de la Comisión creada por ley N° 3535 de 3 de agosto de 1965.

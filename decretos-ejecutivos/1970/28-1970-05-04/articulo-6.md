@@ -1,0 +1,1 @@
+Artículo 6°-El distrito 5° Delicias, contará con el barrio del mismo nombre como cabecera y con la siguiente descripción para sus límites: Norte, frontera con la República de Nicaragua; Este y Sur, distrito 1° Upala; y Oeste, distrito 3° San José.

@@ -1,0 +1,1 @@
+Artículo 5°-El distrito 4° Bijagua, tendrá por cabecera el barrio de igual nombre y los límites siguientes: Norte, distrito 1° Upala; Oeste, distrito 2° Aguas Claras; Sur, límite provincial Alajuela-Guanacaste; y Este, cantón de Guatuso.

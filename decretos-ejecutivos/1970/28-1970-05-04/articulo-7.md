@@ -1,0 +1,1 @@
+Artículo 7°-El distrito 6° Dos Ríos, tendrá por cabecera el barrio de igual nombre, con los límites siguientes: Norte, Oeste y Sur, límite provincial Alajuela-Guanacaste; Este, distrito 2° Aguas Claras.
