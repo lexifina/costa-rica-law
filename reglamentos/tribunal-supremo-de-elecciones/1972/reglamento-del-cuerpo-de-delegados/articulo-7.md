@@ -1,0 +1,8 @@
+Artículo 7°—Sin perjuicio de las demás funciones que acuerde el Tribunal Supremo de Elecciones, corresponde a los Delegados:
+a) Velar por el cabal cumplimiento de las órdenes y medidas que acuerde el Tribunal Supremo de Elecciones tendientes a que los procesos electorales se desarrollen en condiciones de garantía y libertad irrestrictas,
+b) Servir como representantes directos del Tribunal Supremo de Elecciones ante los Gobernadores, Jefes de la Guardia Civil, de la Guardia de Asistencia Rural y demás autoridades de policía o de cualquier otro orden en todo lo relativo' a la dirección y vigilancia del sufragio.
+c) Disponer lo que estimen oportuno o conveniente para que las reuniones o mítines políticos y manifestaciones o desfiles que organicen los partidos políticos, previa la autorización de las autoridades competentes, se celebren sin ser perturbadas por personas o grupos adversos, evitando choques que puedan ser causa de desórdenes públicos.
+d). Asistir a las reuniones y manifestaciones políticas, vigilar el desarrollo de las mismas y ordenar a las autoridades que tomen las precauciones pertinentes para evitar perturbaciones, e inclusive ordenar la detención de los perturbadores.
+e) Cumplir con las órdenes e instrucciones que les imparta el Tribunal Supremo de Elecciones para que en la fecha que señala el artículo 98 del Código Electoral las elecciones se, verifiquen en un clima de óptima libertad.
+f) Comunicar al Tribunal Supremo de Elecciones los casos de desobediencia de alguna autoridad a sus instrucciones, con indicación de la prueba en su poder, para que previa la información respectiva se tomen las disposiciones pertinentes.
+g) Las demás funciones que por ley o por acuerdo del Tribunal Supremo Elecciones les corresponda.
