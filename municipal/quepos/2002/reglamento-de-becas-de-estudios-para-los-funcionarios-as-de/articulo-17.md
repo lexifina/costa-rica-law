@@ -1,0 +1,1 @@
+Artículo 17.—La Comisión de Becas, estará integrada por el Alcalde Municipal, el Encargado de Recursos Humanos, el Encargado Administrativo, un Regidor y un funcionario de la Municipalidad, en representación de los empleados, nombrado por La Asociación Solidarista.

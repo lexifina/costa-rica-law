@@ -1,0 +1,1 @@
+Artículo 24.—Créase la Comisión de Becas, que será la encargada de aprobar las becas y controlar la aplicación de este reglamento, así como el aprovechamiento de la becas otorgadas por la Corporación a los empleados que deseen realizar estudios técnicos ó profesionales, de conformidad con el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 3º—Los candidatos seleccionados para ser partícipes del beneficio de una beca, será decisión de la Comisión de becas y contra lo que ella decida, cabrá recuro de reconsideración ante el concejo Municipal.

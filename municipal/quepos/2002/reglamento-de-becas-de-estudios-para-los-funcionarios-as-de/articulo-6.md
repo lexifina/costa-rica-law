@@ -1,0 +1,1 @@
+Artículo 6º—El otorgamiento de una beca, no será obstáculo, para que la corporación apruebe los aumentos saláriales de ley, a que tiene derecho tal trabajador o cualesquiera otros incentivos económicos que se concedan a nivel general.
