@@ -1,0 +1,1 @@
+Artículo 8º- Cada institución o empresa pública cancelará el auxilio de cesantía que legalmente le corresponda, con cargo a su presupuesto, salvo que el Ministerio de Hacienda o la Autoridad Presupuestaria autorice el empleo de otros fondos conforme la ley.

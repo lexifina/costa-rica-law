@@ -1,0 +1,1 @@
+Artículo 7º- En el caso de instituciones que estén obligadas por convención colectiva u otra norma con rango de ley, a reconocer un tope de auxilio de cesantía superior a ocho años, FUCE únicamente pagará en concepto de incentivo de cesantía la diferencia que sea necesaria para completar doce salarios, y el incentivo adicional de cuatro meses de salario.

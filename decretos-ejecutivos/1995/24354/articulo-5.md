@@ -1,0 +1,1 @@
+Artículo 5º- Para el pago del auxilio de cesantía se reconocerá los años de servicio laborados en forma continua e ininterrumpida para el Estado, hasta un máximo de doce. En aquellos casos en que se sobrepase el límite de ocho años permitidos por ley, el exceso será reconocido por FUCE como incentivo de cesantía.

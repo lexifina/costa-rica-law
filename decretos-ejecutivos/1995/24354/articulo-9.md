@@ -1,0 +1,1 @@
+Artículo 9º- Al momento de dictar la resolución de reconocimiento del pago, las Administraciones respectivas deberán identificar qué monto corresponde reconocer con cargo al Erario y cuál con cargo a FUCE de conformidad con lo anteriormente establecido.

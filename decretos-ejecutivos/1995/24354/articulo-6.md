@@ -1,0 +1,1 @@
+Artículo 6º- Adicionalmente al reconocimiento que se realizare por años de servicio, FUCE otorgará a cada servidor cuatro mensualidades de salario promedio de los últimos seis meses efectivamente laborados, sin incluir las horas extras, como incentivo adicional.
