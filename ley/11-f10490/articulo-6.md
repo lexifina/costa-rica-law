@@ -1,0 +1,2 @@
+Art. 6°-No quedan comprendidos en el artículo 1° del presente Decreto, los terrenos que se encuentran en la parte en que el Ferro-carril atraviesa el -Río Jiménez," dentro del radio de una milla de frente y dos millas de largo, á una y otra orilla del río, y á uno y otro lado de la línea férrea.
+Dado en el Palacio Presidencial, en San José, á veinte de julio de mil ochocientos ochenta. –T. GUARDIA. El secretario de Estado en el Despacho de Hacienda y Comercio. –SALVADOR LARA.

@@ -1,0 +1,1 @@
+Art. 3°-Los denunciantes que ingresen en el Tesoro Público en «Bonos del Tesoro" el precio del lote denunciado, en el acto de hacer el denuncio, tienen derecho à que se les adjudique en propiedad dicho lote, por su precio legal y sin lugar á subasta pública.
