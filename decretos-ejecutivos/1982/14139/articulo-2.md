@@ -1,0 +1,1 @@
+Artículo 2°-Queda prohibida la importación de máquinas para escribir cuyo teclado no se ajuste a las especificaciones de la presente Norma. Sin embargo, si se presentare algún caso especial, el Ministerio de Economía y Comercio efectuará el estudio pertinente y resolverá lo que corresponda.
