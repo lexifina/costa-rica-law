@@ -1,0 +1,4 @@
+Decreto LIII
+Destina en favor de los actuales pobladores y de los demás que allí se avecinden, las ciento cuarenta manzanas seis mil doscientas cincuenta varas cuadradas comprendidas entre los sitios “Cerro de Poas” y “Naranjo” y dicta otras disposiciones relativas a la distribución.
+El Senado y la Cámara de Representantes de Costa Rica, reunidos en Congreso. - Con presencia del memorial dirigido al Poder Ejecutivo por un considerable número de vecinos de la población del Naranjo, jurisdicción de Alajuela, y pasado al Congreso para su resolución, y consideración bastante las razones alegadas por dichos vecinos para concederles la gracia que solicitan. – Decretan:
+Art 1° Las ciento cuarenta manzanas seis mil doscientas cincuenta varas cuadradas de terreno baldío comprendido entre los sitios “Cerro de Poas” y “Naranjo” en que está hoy situada la población de este mismo nombre, se destinan en favor, a razón de diez pesos por manzana.
