@@ -1,0 +1,1 @@
+Artículo 8°—Las unidades de informática se integrarán a su vez en los Sistemas Sectoriales de Informática según las necesidades del Sistema Nacional y de Planificación que señale la Oficina de Planificación Nacional y Política Económica, y en concordancia con los sectores indicados en el Decreto Ejecutivo N° 9644-P-OP, de 20 de febrerote 1979.

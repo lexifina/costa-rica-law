@@ -1,0 +1,1 @@
+Artículo 3°— La Comisión Nacional de Informática establecerá sus propios procedimientos y normas de trabajo y llevara a cabo sus actividades de acuerdo con el programa que apruebe el Presidente de la República y el Ministro-Director de la Oficina de Planificación Nacional y Política Económica.

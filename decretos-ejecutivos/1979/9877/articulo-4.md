@@ -1,0 +1,2 @@
+Articulo 4°—Las instituciones públicas suministrarán a la Comisión Nacional de Informática los estudios, datos e informaciones que ésta les solicite.
+Se exceptúa de lo .anterior, aquella información que por ley tenga carácter confidencial o restringido. Asimismo, la Comisión podrá consultar y solicitar la colaboración de las instituciones del sector privado que han venido trabajando en materias que tengan interés para la Comisión.

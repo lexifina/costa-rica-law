@@ -1,0 +1,2 @@
+Articulo 5°—Créase el Comité de Informática con el objeto de asesorar a la Comisión Nacional de Informática. Dicho Comité estará integrado por un representante de la Oficina de Planificación Nacional y Política Económica, quien lo presidirá; un representante del Ministerio de Hacienda, un' representante de la Oficina de Información de la Presidencia de la República , quien actuará como secretario, y un representante del Instituto Tecnológico de Costa Rica.
+Además, la Comisión podrá conformar otros grupos especializados de trabajo a fin de asesorarse en aspectos específicos.
