@@ -1,0 +1,1 @@
+Artículo 14.-Para el año 1981 se mantienen vigentes las disposiciones establecidas en el Decreto Ejecutivo N° 10855 de 14 de noviembre de 1979, y las disposiciones de este decreto regirán para todos aquellos documentos que inicien su trámite en el presente año y que tengan relación con los presupuestos para los años siguientes.

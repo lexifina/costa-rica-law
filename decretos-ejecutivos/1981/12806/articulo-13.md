@@ -1,0 +1,1 @@
+Artículo 13.-Se mantienen vigentes los acuerdos de la Autoridad Presupuestaria tomados con fundamento en el artículo 11 del Decreto Ejecutivo N° 10855-H de 19 de noviembre de 1979 y en el artículo 1° del Decreto Ejecutivo N° 11693-H de 18 de julio de 1980.

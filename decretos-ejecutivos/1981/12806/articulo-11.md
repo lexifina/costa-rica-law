@@ -1,0 +1,1 @@
+Articulo 11.-Se exceptúan de lo dispuesto en los artículos 7°, 8°, 9°, y 10 del presente decreto, los recursos que la Administración Central maneja a través del Presupuesto Nacional y que en consecuencia están a cargo de la Tesorería Nacional.

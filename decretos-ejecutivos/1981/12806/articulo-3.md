@@ -1,0 +1,1 @@
+Articulo 3°-En cuanto al sector público financiero la Autoridad Presupues taria no intervendrá en las políticas crediticias y monetarias que competen al Banco Central de Costa Rica, pero si en lo que respecta a ingresos y egresos que deben figurar en los presupuestos de estos organismos.

@@ -1,0 +1,1 @@
+Articulo 7°-En el Fondo de Compensación Financiera, creado en el Banco Central de Costa Rica, mediante Decreto Ejecutivo N° 10855 de 19 de noviembre de 1979, se depositarán todos los recursos financieros, excepto títulos y valores, de las instituciones del sector público no financiero, que se citan en el Decreto Ejecutivo N° 11693-H de 18 de julio de 1980 y sus modificaciones.
