@@ -9,3 +9,4 @@ Artículo 2: Apruébanse los siguientes egresos ordinarios y extraordinarios par
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30290 de 10 de abril del 2002)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30273 de 17 de abril del 2002)
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30448 de 18 de abril del 2002)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 30472 de 21 de mayo del 2002)

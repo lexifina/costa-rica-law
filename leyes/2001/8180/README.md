@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario para el Ejercicio Económico del 2002
 
-Ley N° 8180 del 2001-12-06. SINALEVI, ficha 47699: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=47699&param2=64247&param3=1>.
+Ley N° 8180 del 2001-12-06. SINALEVI, ficha 47699: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=47699&param2=50641&param3=1>.
 
 Publicada en La Gaceta N° 249 del 2001-12-28.
 
@@ -25,3 +25,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 15 de 49 | 2002-05-14 | Decreto Ejecutivo 30306 (2002-04-29) | 2002-04-29 |
 | 16-17 de 49 | 2002-05-14 | SINALEVI | 2002-04-24 |
 | 18 de 49 | 2002-05-14 | Decreto Ejecutivo 30425 (2002-04-24) | 2002-04-24 |
+| 19 de 49 | 2002-06-03 | Decreto Ejecutivo 30472 (2002-05-21) | 2002-05-21 |
