@@ -1,0 +1,1 @@
+Artículo 4°—De acuerdo con lo dispuesto en el Artículo 3, inciso 2), de la Ley General de Administración Pública, artículo 5. inciso A), de la Ley Orgánica del INVU N° 1788 de 24 de agosto de 1954, la relación entre el instituto y los Entes Comercializadores, será estrictamente de carácter mercantil, regida por el Código de Comercio, sobre la materia que lo estipula.

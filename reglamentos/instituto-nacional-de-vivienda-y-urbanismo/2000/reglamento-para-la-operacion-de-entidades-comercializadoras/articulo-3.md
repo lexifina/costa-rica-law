@@ -1,0 +1,1 @@
+Artículo 3°—Los entes comercializadores de contratos de ahorro y préstamo, deberán operar como sociedades mercantiles de capital, de acuerdo con el código de comercio. Sociedades anónimas laborales, la Ley ?7407 de Sociedades Anónimas Laborales y el Reglamento que la norma y demás leyes vigentes.

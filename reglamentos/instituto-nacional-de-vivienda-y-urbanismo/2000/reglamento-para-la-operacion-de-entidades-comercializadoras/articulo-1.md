@@ -1,0 +1,5 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+La Junta Directiva en sesión ordinaria N° 4970, Artículo IV, Inc.1. Punto a), celebrada el día 15 de marzo del año en curso, acuerda: Autorizar la publicación del Reglamento para la operación de entidades comercializadoras del Sistema de Ahorro y Préstamo, el cual fue aprobado en la Sesión Ordinaria número 4956 Art. IV, Incisos 3)y4), respectivamente del 28 de enero 2000.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1°—Este Reglamento regula las relaciones comerciales entre el Instituto Nacional de Vivienda y Urbanismo y las personas jurídicas que se autoricen previo procedimiento concursal y o la aplicación de la Ley de Sociedades Anónimas Laborales, como intermediarios en la venta de contratos del Sistem89a de Ahorro y Préstamo del INVU. con los que de conformidad con la Ley Orgánica del Instituto Nacional de Vivienda y Urbanismo. Ley N° 1788, del 24 de agosto de 1954 y el Decreto Ejecutivo N° 19 del 16 de julio de 1955 creación del Sistema de Ahorro y Préstamo, contrate la comercialización de su producto y que suscriban el respectivo contrato mercantil.
