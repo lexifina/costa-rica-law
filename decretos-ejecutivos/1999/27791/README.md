@@ -14,3 +14,4 @@ Reglamento a la Ley de Creación de la Corporación Ganadera, Ley Nº 7837 del 0
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-21 | la propia norma |
+| 2 | 2000-09-14 | Decreto Ejecutivo 28997 (2000-09-14) |
