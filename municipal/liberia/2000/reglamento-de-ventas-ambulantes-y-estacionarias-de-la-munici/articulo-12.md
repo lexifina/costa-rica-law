@@ -1,0 +1,1 @@
+Artículo 12.—No podrán ubicarse puestos obstruyendo ventas, entradas a otros negocios comerciales, esquinas donde converjan las zonas de seguridad peatonal, frente a monumentos nacionales a una distancia no menor a un metro veinticinco centímetros de la línea de la pared. En la línea de ascenso en la parada de autobuses, bajo las normas establecidas en este Reglamento.

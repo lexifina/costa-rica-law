@@ -1,0 +1,1 @@
+Artículo 10.—Se prohíben las ventas frente a las entradas de las iglesias oficialmente reconocidas, centros educativos, hospital, Oficina del Seguro Social, parques y centros de salud, aquí la distancia no será menor de los cincuenta metros de las entradas principales de dichos edificios, en caso de los parques la distancia será de cincuenta metros de sus aceras.

@@ -1,0 +1,1 @@
+Artículo 25.—Las Municipalidad se reserva el derecho de reubicar los puestos, cuando las condiciones de tránsito o necesidades de los peatones lo ameriten, o cuando la construcción de obra nueva lo requiera y con base en cualquier otra causa que necesita cumplir la corporación para el fiel cumplimiento de algún fin de interés público de la Municipalidad.

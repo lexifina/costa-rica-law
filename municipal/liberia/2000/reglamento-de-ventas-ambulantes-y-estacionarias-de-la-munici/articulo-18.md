@@ -1,0 +1,1 @@
+Artículo 18.—La ubicación de los puestos estacionarios, será de un máximo de ocho metros por manzana o dos puestos por cuadra siempre y cuando las condiciones lo permitan a juicio de la Municipalidad con base en el presente Reglamento, sin considerar a los vendedores de lotería, chances, flores, periódicos, revistas.

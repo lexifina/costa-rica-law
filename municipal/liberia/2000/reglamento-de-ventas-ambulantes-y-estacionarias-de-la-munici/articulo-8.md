@@ -1,0 +1,1 @@
+Artículo 8º—No se podrán ubicar los vendedores ambulantes ni estacionarios, en el espacio comprendido de quince metros antes de las esquinas a criterio de la Municipalidad y con la finalidad de no obstruir entradas a comercios establecidos.

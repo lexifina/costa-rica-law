@@ -1,0 +1,1 @@
+Artículo 33.—Las personas que no cuentan con título alguno para dedicarlos a las ventas ambulantes, contraviniendo este Reglamento, obligan a la Municipalidad a cancelar esa actividad sin necesidad de cumplir con procedimiento alguno.

@@ -1,0 +1,1 @@
+Artículo 15.—Únicamente se permitirá ejercer la actividad en los puestos de los siguientes productos: frutas, golosinas, artesanía nacional, juguetes, bisutería, periódicos y revistas, lotería y chances de la Junta de Protección Social, pipas, helados, flores y bazar.

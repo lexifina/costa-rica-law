@@ -1,0 +1,1 @@
+Artículo 28.—Contra las resoluciones municipales que ordene la suspensión o cese de la licencia municipal por falta de pago de un trimestre de dicha patente o licencia municipal solo cabrá la excepción de pago. Las demás resoluciones se regirán por lo que establece el Código Municipal en materia de recursos.

@@ -1,0 +1,1 @@
+Artículo 11.—Tanto en los puestos estacionarios como en los ambulantes, el horario de funcionamiento será de las 6,00 a las 18,00 horas. De las 18,00 horas en adelante el funcionamiento será con licencia para actividades especiales y por tiempo específicamente determinado.
