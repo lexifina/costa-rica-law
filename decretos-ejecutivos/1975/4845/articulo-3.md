@@ -1,1 +1,0 @@
-Artículo 3°-Es obligatorio, en los meses permisibles, para todos los usuarios de estos fungicidas, mezclarlos con productos a base de Zinc con el objeto de neutralizar la disponibilidad y absorción del arsénico y del plomo.
