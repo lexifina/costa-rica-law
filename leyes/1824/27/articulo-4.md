@@ -1,0 +1,1 @@
+4°.- Los Cursantes en ellas podrán recibir los grados de Bachilleres que les conferirá el Rector de la Casa con arreglo a la Constitución de la Universidad de Guatemala y resoluciones de la Legislatura de la Federación.
