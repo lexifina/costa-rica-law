@@ -1,5 +1,13 @@
-Artículo 2º.- El monto del impuesto que se crea en el artículo 1º
-será igual, por día, al treinta por ciento (30%) del valor de la tarifa
-fijada por un uso por cada habitación. El impuesto se pagará
-mensualmente, con base en un mes de treinta días y de acuerdo con el
-número de habitaciones de cada establecimiento.
+Artículo 2º.- El monto del impuesto que se crea en el artículo
+anterior será igual al treinta por ciento (30%) del valor de la tarifa
+fijada para cada uso de cada habitación, pero en ningún caso se pagará un
+monto menor al equivalente a un uso diario por habitación, excepto en el
+caso de los negocios no clasificados en la categoría A por el Ministerio de
+Gobernación y el IMAS.
+El impuesto se pagará mensualmente, con base en meses de treinta
+días, y de acuerdo con el número de habitaciones de cada establecimiento.
+El Poder Ejecutivo, por la vía de reglamento, establecerá los medios
+de control necesarios para garantizar la eficiente recaudación de este
+impuesto".
+(Así reformado por el artículo 1 de la Ley Nº 6790 de 14 de octubre
+de 1982).
