@@ -14,3 +14,4 @@ Reglamento para el Reconocimiento de la Carrera Profesional de la Municipalidad 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-26 | la propia norma |
+| 2 | 2005-01-31 | Reglamento municipal 217 (2005-01-31) |
