@@ -1,0 +1,1 @@
+Art.4. Para la calificación de las credenciales de los Diputados se observará lo prevenido en el artículo 4° del decreto de 11 de junio de 1842. -Dado en la ciudad de San José, a los 5 días del mes de abril de 1843. -José maría Alfaro. Al Ministro general del Despacho Señor Dr. José maría Castro.

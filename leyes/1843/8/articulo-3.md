@@ -1,0 +1,1 @@
+Aat.3. En todos los puntos donde hubieren de hacerse las citadas elecciones; comenzarán las primarias el Domingo 30 del presente mes: las de partido se tendrán el Domingo 14 del próximo Mayo y las de diputados el domingo 21 del mismo.
