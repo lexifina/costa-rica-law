@@ -13,3 +13,4 @@ Reglamento a la ley que establece un impuesto a la presentación de artistas ext
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-04-30 | la propia norma |
+| 2 | 1994-09-12 | Decreto Ejecutivo 23642 (1994-09-12) |
