@@ -1,1 +1,0 @@
-Artículo 36.—Para efectos de control administrativo y de liquidación del fondo, corresponde al Administrador presentar la documentación (recibos, facturas y otros), ante la Dirección Administrativa, lo anterior en un plazo de cinco días hábiles contados a partir del retiro de la ayuda por parte del beneficiario.

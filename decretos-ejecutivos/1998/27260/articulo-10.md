@@ -1,1 +1,0 @@
-Artículo 10.—Los valores en custodia no deben confundirse con otros bienes o dineros, que por diversos conceptos ingresen a la Administración del Centro, por lo que deben habilitarse los espacios físicos pertinentes.

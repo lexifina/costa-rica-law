@@ -1,1 +1,0 @@
-Artículo 34.—Corresponde al Administrador del Centro, en coordinación con el Director, efectuar las acciones pertinentes a fin de entregar la ayuda, esto en los cinco días hábiles siguientes al retiro del cheque en la Dirección Administrativa.

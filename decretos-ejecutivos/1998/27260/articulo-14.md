@@ -1,2 +1,0 @@
-Artículo 14.—El retiro de los bienes debe hacerse en el momento del egreso definitivo y la Administración en coordinación con la Dirección del Centro debe ejercer los controles para que así se cumpla.
-En caso de fuga de la persona privada de libertad, los bienes serán entregados a la persona que éste haya autorizado para retirarlos. Si no existe un particular autorizado que retire los valores en custodia, se procederá conforme lo indicado en el capítulo siguiente.

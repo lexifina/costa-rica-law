@@ -1,1 +1,0 @@
-Artículo 8°—En lo correspondiente a la custodia de los dineros de Comités de las personas privadas de libertad, se aplicarán en lo conducente las disposiciones del presente reglamento y las directrices que al efecto emitan las instancias respectivas.

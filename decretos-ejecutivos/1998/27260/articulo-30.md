@@ -1,1 +1,0 @@
-Artículo 30.—En lo no expresamente regulado en este reglamento, la actividad de la Comisión se regirá por lo estipulado en el artículo 49 y siguientes de la Ley General de la Administración Pública, respecto a los Órganos Colegiados.

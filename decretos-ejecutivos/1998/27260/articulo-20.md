@@ -1,1 +1,0 @@
-Artículo 20.—El egresado o la persona autorizada que no hubiera retirado los valores en custodia y que estos hayan sido rematados, tendrá el derecho de solicitar le sea reconocido el valor por el monto en que fue rematado, lo anterior en concordancia con el artículo 869 del Código Civil.

@@ -1,1 +1,0 @@
-Artículo 27.—La comisión se reunirá ordinariamente una vez por quincena o extraordinariamente si las circunstancias lo ameritan previa convocatoria por escrito del presidente con al menos un día hábil de anticipación.

@@ -1,1 +1,0 @@
-Artículo 17.—Cuando el valor no retirado sea dinero en efectivo, o giros al portador, el mismo pasará a ser utilizado por parte del Patronato de Construcciones, Instalación y Adquisición de Bienes de la Dirección General de Adaptación Social para el pago de jornales.
