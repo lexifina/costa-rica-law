@@ -1,3 +1,4 @@
+(Nota de Sinalevi Mediante decreto ejecutivo N° 28332 del 25 de noviembre de 1999, Costa Rica ratifica el presente Acuerdo)
 APROBACIÓN DEL ACUERDO DE COOPERACIÓN TURÍSTICA ENTRE
 EL GOBIERNO DE LA REPÚBLICA DE COSTA RICA
 Y EL GOBIERNO DE LA REPÚBLICA ORIENTAL DEL URUGUAY
