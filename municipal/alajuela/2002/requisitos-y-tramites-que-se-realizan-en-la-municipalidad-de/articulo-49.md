@@ -1,0 +1,1 @@
+Artículo 49.—Proceso de reclamos. Los reclamos referidos a materias no reguladas expresamente en esta resolución, se regirán por los procedimientos y requisitos establecidos en el título segundo de la Ley General de la Administración Pública.

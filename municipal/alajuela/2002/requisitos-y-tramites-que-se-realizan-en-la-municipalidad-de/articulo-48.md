@@ -1,0 +1,1 @@
+Artículo 48.—Proceso de contratación administrativa. La contratación administrativa se regirá por los procedimientos y requisitos establecidos en la Ley de Contratación Administrativa y su Reglamento.
