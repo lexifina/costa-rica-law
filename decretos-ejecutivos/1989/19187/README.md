@@ -13,3 +13,4 @@ Crea Comisión Técnica Estudio Pensiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-09-21 | la propia norma |
+| 2 | 1990-05-31 | Decreto Ejecutivo 19780 (1990-05-31) |
