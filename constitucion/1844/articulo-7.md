@@ -1,1 +1,0 @@
-Artículo 7º.- Todo hombre puede libremente comunicar sus pensamientos por la palabra, por la escritura y por la imprenta, sin previa censura; pero siendo responsable por la contravención de una ley preexistente.

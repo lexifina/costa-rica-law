@@ -1,1 +1,0 @@
-Artículo 75.- Ninguna junta electoral podrá deliberar sobre otros asuntos que los señalados por la ley. Son por consecuencia nulos y sin efecto todos los actos que ejerzan fuera del circulo de sus atribuciones.

@@ -1,1 +1,0 @@
-Artículo 21.- Toda ley ex post facto ó retroactiva, es esencialmente injusta y tiránica, y todos y cada uno de los habitantes tiene derecho a oponerse a su ejecución, cualquiera que sea el Poder que la haya emitido.

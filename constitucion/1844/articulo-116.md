@@ -1,1 +1,0 @@
-Artículo 116.- Se exceptúan de la necesidad de sanción: 1º el escrutinio y la calificación de elecciones de individuos para las Supremas Autoridades del Estado: 2º el Reglamento interior de cada Cámara: 3º el acuerdo de prorrogar sus sesiones: 4º las declaratorias de responsabilidad; y 5º la admisión de renuncias y aplicación de sus reglamentos interiores a los casos que ocurran.

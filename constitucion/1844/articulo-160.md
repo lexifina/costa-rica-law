@@ -1,1 +1,0 @@
-Artículo 160.- En todos los negocios comunes, civiles y criminales conocerán en 1ª instancia los respectivos Jueces; pero en apelación de las sentencias escritas solo conocerá el Tribunal Supremo de Justicia y los Magistrados en las de las verbales, según disponga la ley.

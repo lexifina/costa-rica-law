@@ -1,1 +1,0 @@
-Artículo 192.- Si se juzgare necesaria la reforma de la Constitución ó de alguno de sus artículo, el proyecto se presentará por escrito firmado a lo menos por seis Representantes, y se leerá dos veces con la intermisión de seis días.

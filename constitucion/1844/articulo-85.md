@@ -1,1 +1,0 @@
-Artículo 85.- Instalada la Cámara de Representantes con los dos tercios por lo menos del número de sus individuos, abre los pliegos de votaciones, y oído el voto de una comisión, califica las elecciones y computa los sufragios.

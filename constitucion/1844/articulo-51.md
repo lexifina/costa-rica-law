@@ -1,1 +1,0 @@
-Artículo 51.- El Poder Legislativo se confiere a dos Cámaras con la iniciativa y sanción recíprocas; la una compuesta de Representantes electos directamente por los pueblos, y la otra de Senadores cuyo número no podrá bajar de cinco electos por sufragios directos de todos los pueblos.
