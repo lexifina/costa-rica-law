@@ -1,0 +1,1 @@
+Art. 3. El presente decreto se imprimirá, circulará y publicarà para su cumplimiento. Dado en la ciudad de San José à los veinte dias del mes de agosto de mil ochocientos cuarenta y cinco, -José Rafael de Gallegos. –Al Ministro de relaciones y gobernación”
