@@ -1,0 +1,2 @@
+Artículo 9§.-Propiedad de los inmuebles con fuentes de captación actuales.
+La Municipalidad del cantón central de Heredia, conservará la propiedad de las fincas inscritas actualmente a su nombre en donde se encuentran las fuentes de captación del acueducto de la ciudad de Heredia, estar obligado a ceder sin costo alguno a la "Empresa" todos los derechos necesarios para que ésta pueda cumplir a cabalidad su fines. La "Empresa", mantendrá y conservará los bienes que reciba en la mejor forma.

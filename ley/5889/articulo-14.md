@@ -1,0 +1,2 @@
+Artículo 14.-Impedimento específico.
+Ningún miembro de la Junta Directiva podrá asistir a la sesión en que se resuelvan asuntos en que él mismo esté interesado o lo esté cualquier pariente suyo, hasta el cuarto grado inclusive por consanguinidad o afinidad, o que interesen a la sociedad, asociación o cooperativa en que él o sus parientes en los grados dichos sean socios, asociados, directores, funcionarios o empleados.
