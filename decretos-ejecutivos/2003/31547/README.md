@@ -14,3 +14,4 @@ Reglamento para el registro, importación y etiquetadode preservantes de uso ind
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-07 | la propia norma |
+| 2 | 2004-02-11 | Decreto Ejecutivo 31770 (2004-02-11) |
