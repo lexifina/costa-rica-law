@@ -1,0 +1,2 @@
+Art. 3°-Los Gobernadores de las provincias y comarca expresadas darán curso á las solicitudes de oposición, é informarán á la Secretaría de Instrucción Pública del resultado de los exámenes.
+Dado en el Palacio Presidencial, en San José, á los diez y seis días del mes de enero de mil ochocientos ochenta y seis. -Publíquese. -BERNARDO SOTO. El Secretario de Estado en el despacho de Instrucción Pública. -MAURO FERNÁNDEZ.
