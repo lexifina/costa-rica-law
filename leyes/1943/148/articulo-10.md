@@ -1,0 +1,1 @@
+Artículo 10.- Como contribución forzosa que ha de entrar al Tesoro Nacional para el pago de las pensiones, se hará una deducción mensual del 5% en cada sueldo del personal de los Departamentos favorecidos con la presente ley; también los sueldos y servicios extraordinarios y las pensiones soportarán la deducción expresada.
