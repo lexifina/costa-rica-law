@@ -14,3 +14,4 @@ Reglamento de Construcciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-03-22 | la propia norma |
+| 2 | 1987-05-04 | Reglamento 3822 (1987-05-04) |

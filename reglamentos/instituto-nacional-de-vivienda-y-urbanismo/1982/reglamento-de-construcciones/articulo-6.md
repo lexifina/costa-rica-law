@@ -1,40 +1,66 @@
 CAPITULO VI
-EDIFICIOS PARA COMERCIOS Y OFICINAS
-Artículo VI. 1.—Ubicación.
-La ubicación de los edificios destinados a comercio estará sometida a la previa aprobación de la municipalidad, de acuerdo con el Reglamento de Zonificación del Plan Regulador o en su defecto a la aprobación que en conjunto den el Ministerio de Salud y el INVU.
-Artículo VI. 2.-—Patios y retiros.
-Los patios que sirvan para dar iluminación y ventilación a edificios para comercios y oficinas tendrán las mismas dimensiones mínimas que los destinados a habitación, considerándose como piezas habitables las oficinas y áreas de expendio.
-Sin embargo en las zonas comerciales, en edificios para comercio, en los primeros pisos podrá prescindirse de patios, proveyéndose la iluminación y ventilación por medios artificiales aprobados por el Ministerio de Salud.
-En sitios comerciales, regirán los retiros exigidos para el uso predominante (viviendas, industrias, etc.) en la zona.
-Artículo VI. 3.—Pasillos y corredores.
-Las oficinas y locales comerciales de un edificio deberán tener salida directa a la calle o a pasillos y corredores que conduzcan directamente a las escaleras o a la salida a la calle. La anchura de los pasillos y corredores nunca será menor de un metro veinte centímetros (1,20 m) o igual a la de las escaleras que desemboquen a ellos.
-Artículo VI. 4—Materiales.
-En paredes interiores y en cielo raso, se usarán materiales que tengan un coeficiente retardatorio al fuego no menor de una hora
-Artículo VI. 5.—Separación entre locales comerciales y residenciales ubicados en un mismo edificio.
-En los edificios que no sean de construcción a prueba de fuego o prote-jida contra el fuego, las partes destinadas al uso comercial estarán separadas de las destinadas a uso residencial por tabiques y cielos rasos construidos con materiales cuyo coeficiente retardatorio al fuego sea de por lo menos una hora a menos que la parte de uso comercial esté dotada de rociadores.
-Artículo VI. 6.—Escaleras.
-Los edificios para comercios y oficinas de más de un piso tendrán siempre escaleras que comuniquen todos los niveles, aun cuando cuenten con ascensores. La anchura mínima de las escaleras será de un metro veinte centímetros (1,20 m). Las huellas tendrán un mínimo de veintiséis centímetros (0,26 m) y las contrahuellas un máximo de dieciocho centímetros (0,18 m).
-Las escaleras deberán construirse con materiales que tengan un coeficiente retardatorio al fuego no menor de una hora y tener pasamanos o barandales con una altura mínima de noventa centímetros (0,90 m).
-Por cada nivel una escalera dará servicio a un máximo de mil cuatrocientos metros cuadrados (1 400 m2) de piso y sus anchuras variarán en la forma siguiente:
-Hasta 700 m2 ... ... ... ... ... ... ... ... ... …………………….. ... anchura 1,20 m
-De 700 a 1 003 m2 ... ... ... ... ... ... ... ... …………………. ... anchura 1,80 m
-De 1 000 a 1 400 m2 ... ... ... ... ...... ... ………………....... ... anchura 2,40 m
-Artículo VI. 7—Salidas.
-Serán aplicables los artículos IV. 3 y IV. 9 de este Reglamento, en lo pertinente.
-Artículo VI. 8.-—Servicios sanitarios.
-VI. 8.1 Los edificios para comercios y oficinas deberán tener, como mínimo, dos locales para servicios sanitarios por piso, uno destinado al servicio de hombres y otro al de mujeres, ubicados en tal forma que no sea necesario subir o bajar de un piso para tener acceso a cualquiera de ellos.
-Estarán diseñados de tal forma que permitan una adecuada independencia en caso de que estén inmediatos.
-VI.8.2 Por cada cuatrocientos metros cuadrados (400 m2) o fracción de una superficie construida, se instalará un inodoro, un mingitorio y un lavabo para hombres.
-VI.8.3 Por cada trescientos metros cuadrados (300 m2) o fracción de superficie construida, se instalará un inodoro y un lavabo para mujeres, como mínimo.
-VI. 8.4 En los edificios comerciales se proveerán además servicios separados para el público tanto para hombres como para mujeres, por lo menos uno por piso.
-VI. 8.5 En todas las zonas de servicios sanitarios de uso público el acceso a por lo menos un mueble de cada clase (inodoro, mingitorio, lavamanos y ducha sí es del caso), tendrá como mínimo noventa centímetros de ancho de entrada. En caso de que se coloquen puertas en los cubículos éstas deberán abrir hacia afuera.
-En las zonas de servicios sanitarios de uso público se diseñará por lo menos un servicio sanitario especial bajo las normas siguientes:
-VI. 8.5.1 Las dimensiones para el cubículo del inodoro serán de ciento cincuenta y cinco centímetros de anchura por doscientos veinticinco centímetros de profundidad, caso de que el mueble se coloque a un lado del cubículo y de doscientos veinticinco centímetros de anchura por doscientos veinticinco centímetros de profundidad si el mueble se coloca en el centro del cubículo.
-VI. 8.5.2 La altura máxima del inodoro será de cincuenta centímetros. Se colocarán agarraderas a ambos lados del mueble sanitario, a una altura de noventa centímetros. .
-VI. 8.5.3 Los lavabos estarán a ochenta centímetros de altura.
-VI. 8.5.4 La ducha tendrá ciento cincuenta centímetros de anchura por ciento setenta y cinco centímetros de profundidad y se instalarán agarraderas en todo el contorno a una altura de noventa centímetros.
-VI. 8.5.5 Los muebles complementarios como toalleras y papeleras, se colocarán a una altura mínima de setenta y cinco centímetros y máxima de noventa centímetros. El espejo se iniciará a una altura máxima de ochenta centímetros.
-VI. 8.5.6 Estos servicios sanitarios contarán con un sistema de alarma que se pueda accionar fácilmente con controles colocados a altura de sesenta centímetros.
-Artículo VI. 9.—-Ventilación e iluminación.
-La ventilación e iluminación de los edificios para comercios y oficinas podrá ser natural o artificial; cuando sea natural se observarán las reglas del capítulo referente a edificios de habitación y cuando sean artificiales se deberán satisfacer las condiciones necesarias para que haya suficiente ventilación e iluminación, mediante sistemas aprobados por el Ministerio de Salud. Si no existe iluminación natural deberá contarse con instalaciones de emergencia.
-Artículo VI.10. En lo previsto por este capítulo, se aplicarán las normas del capítulo V.
+Edificios para habitación unifamiliar y multifamiliar
+Artículo VI. 1.—Superficie libre. En todo edificio destinado a habitación deberán quedar libres las superficies destinadas a patios que sirvan para dar iluminación y ventilación a las distintas dependencias; dichas superficies no pueden ser cubiertas con voladizos, corredores, pasillos o escaleras; los aleros podrán cubrir un 25% de la superficie libre como máximo.
+Artículo VI. 2.—Piezas habitables y no habitables Se consideran piezas habitables los locales que se destinen a sala, despacho, estudio, comedor y dormitorio; no habitables, las destinadas a cocina, cuarto de baño, lavandería, bodega, garaje y pasillo. Para los efectos de este Reglamento, el Ministerio de Salud y el Municipio podrán considerar piezas habitables, aquellas cuyo uso por ubicación y dimensiones, pueda presumirse razonablemente, aun cuando no aparezca así declarado en los planos.
+Artículo VI. 3.— Dimensiones mínimas. A toda unidad de habitación, con la sola excepción de las viviendas de interés social regidas por disposiciones especiales, se aplicarán las siguientes dimensiones mínimas:
+VI. 3.1. Área por vivienda: Treinta metros cuadrados (30 m2) para unidades de un dormitorio (hasta dos personas) y diez metros cuadrados (10 m2) sobre los treinta mínimos, por cada dormitorio adicional.
+VI. 3.2. Ancho de la entrada: En todos los proyectos de más de una vivienda por lote, sean en uno o más pisos, en forma aislada, o como edificio de apartamientos, la entrada al interior del lote deberá tener un ancho mínimo, libre de obstáculos, de tres metros (3,00 m). Cuando se trate de cuatro o cinco viviendas en el interior, el ancho de la entrada deberá aumentarse a cinco metros (5,00 m); para seis viviendas o más, el ancho será de seis metros (6,00 m).
+VI. 3.3. Área por pieza:
+VI. 3.3.1. Dormitorios: Un dormitorio medirá como mínimo nueve metros cuadrados (9,00 m2); los demás podrán medir siete y medio metros cuadrados (7,50 m2), de área como mínimo, con un ancho no menor de dos y medio metros (2,50 m2).
+VI. 3.3.2. Cocinas: Tendrán cinco metros cuadrados (5,00 m2) de área y dos metros (2,00 m2) de ancho como mínimo, salvo si se utiliza para preparar o cocer alimentos un espacio integrado a la sala o comedor, caso en que puede ser menor.
+VI. 3.3.3. Sala-comedor: Medirá diez metros cuadrados (10,00 m2) de área mínima y dos y medio metros (2,50 m) de dimensión menor.
+Si se proyectan sala y comedor independientes, tendrán una superficie no menor de seis y medio metros cuadrados (6,50 m2) y siete y medio metros cuadrados (7,50 m2) respectivamente.
+VI. 3.4. Altura de piso a cielo: La altura mínima de piso a cielo será de dos metros, cuarenta centímetros (2,40 m), siempre que exista cielo raso. Si no existiere y además el material de techo no fuere suficientemente aislante desde el punto de vista térmico, la altura debe aumentarse a un mínimo de dos metros, sesenta centímetros (2,60 m).
+VI. 3.5. Tamaño de las puertas: La altura mínima de puerta es de dos metros (2,00 m); el ancho, de noventa centímetros (0,90 m), salvo para piezas no habitables en cuyo caso podrá ser de ochenta centímetros (0,80 m).
+VI. 3.6. Área de ventana: Las ventanas deberán tener un área no inferior a los porcentajes que a continuación se indican, calculados en relación con la superficie de cada pieza o con el área de piso correspondiente:
+— Piezas habitables y cocina ... ... ... ... ... ...... 15%
+— Cuartos de baño ... ....... ... ... ... ... ,,. ... ...... 10%
+— Escaleras y corredores ... ... ... ... ... ... ... ... 15%
+De las áreas de ventana indicadas, por lo menos la mitad deberá abrirse para efectos de ventilación. La profundidad de cualquier pieza habitable no podrá exceder del doble de la altura de piso a cargador de ventanas. Por cada metro o fracción superior a medio metro de profundidad adicional, se deberá aumentar el porcentaje total mínimo requerido de área de ventana, en un 1%. La dimensión menor de cada ventana, para efectos de ventilación e iluminación, no podrá ser inferior a treinta centímetros (0,30 m).
+VI. 3.7. Dimensiones de los patios: Los patios que sirvan para dar iluminación y ventilación, tendrán las siguientes dimensiones mínimas en relación con el tipo de piezas y la altura de los muros que los limiten.
+PIEZAS HABITABLES PIEZAS NO HABITABLES
+Dimensión Dimensión
+Menor Area Mínima Menor Area Mínima
+Hasta 3,50 m 1,50 m 3,00 m2 1,50 m 2,50 m2
+Hasta 5,50 m 2,00 m 5,00 m2 1,80 m 3,50 m2
+Hasta 8,00 m 2,50 m 7,00 m2 2,10 m 4.50 m2
+Hasta 11,00 m 3,00 m 9,00 m2 2,40 m 6,00 m2
+Hasta 14,00 m 3,50 m 11,00 m2 2,70 m 8,00 m2
+En el caso de alturas mayores de catorce metros (14,00 m), la dimensión mínima del patio deberá ser de un cuarto (1/4) de la altura total del parámetro
+de muros.
+VI. 3.8. Retiros mínimos: Salvo que el Plan Regulador lo indique de manera distinta o porque los retiros no sea exigibles por tratarse de obras que estén expresamente exentas de ellos, se exigirán los siguientes retiros mínimos:
+VI.3.8.1. Retiro frontal (antejardín): Dos metros (2,00 m).
+VI. 3.8.2. Retiro posterior (patio): Tres metros (3,00 m). Estos patios pueden sustituirse por un espacio abierto interior si las paredes de la vivienda en la colindancia posterior son de material incombustible. Para viviendas de un piso y siempre que se contemple la construcción de la tapia, esta dimensión puede reducirse hasta un metro y medio (1,50 m). Si la edificación es de dos pisos o más, se aumentará el retiro posterior un metro por piso, pudiendo construirse los pisos en forma escalonada.
+VI. 3.8.3. Retido lateral: No se exigirá cuando el material de la pared en la respectiva colindancia sea incombustible y no tenga ventana o linternilla. En caso contrario se exigirá:
+— Uno y medio metros (1,50 m) para unidades habitacionales de un piso.
+— Tres metros (3,00 m) para las de dos pisos.
+— Por cada piso adicional deberá agregarse un metro (1,00 m) de retiro lateral.
+Artículo VI. 4.—Número máximo de viviendas por lote. El número de viviendas que puede admitir un lote depende de que éste se encuentre en una urbanización tradicional, o en un conjunto habitacional; y de que, en cualquiera de ambos casos, haya o no servicio de cloaca. El número máximo es el cociente de dividir el área total del terreno entre el área tributaria asignada a cada vivienda según el número de dormitorios.
+URBANIZACIÓN TRADICIONAL CONJUNTO HABITACIONAL
+________________________________ __________________________________
+Área Tributaria en m2 Área Tributaria en m2
+Número de
+dormitorios Sin cloaca Con cloaca Sin cloaca Con cloaca
+3 150 96 120 60
+2 125 80 105 45
+1 120 65 90 30
+Artículo VI. 5.—Iluminación y ventilación naturales. Las piezas habitables, las cocinas y los baños deberán tener iluminación y ventilación por medio de ventanas, linternillas o tragaluces abiertos directamente a patios o al espacio público. Esta norma se exigirá también en escaleras, vestíbulos y pasillos de uso público, en caso de edificios de tres o más viviendas.
+Artículo VI. 6.—Iluminación artificial. En cada pieza deberá diseñarse iluminación con la intensidad luminosa que fija el Código Eléctrico Nacional.
+En pasillos y escaleras que den salida a más de diez viviendas, deberá contarse con iluminación de emergencia.
+Artículo VI.7.—Espacio comunes de circulación. Todas las viviendas de un edificio multifamiliar deberán tener acceso a pasillos o corredores que conduzcan directamente a las puertas de salida o a las escaleras.
+El ancho de pasillos o corredores no será menor de un metro, veinte centímetros (1,20 m); los barandales deberán tener cuando menos, noventa centímetros de altura (0,90 m).
+Artículo VI. 8.—Paredes comunes. Los tabiques que separen unos apartamientos de otros, o que separen los apartamientos de los pasillos comunes, o de secciones destinadas a otros usos, deberán ser de material con coeficiente retardatorio al fuego de un mínimo de una hora, hasta la altura de la cubierta de techo.
+Artículo VI. 9.—Escaleras de uso común.
+VI. 9.1. Los edificios de más de un piso tendrán escaleras que comuniquen todos los niveles, aunque se disponga de ascensores.
+VI.9.2. Cada escalera podrá servir a veinte viviendas, como máximo, en cada piso. VI. 9.3. Las escaleras interiores tendrán una anchura mínima libre de noventa centímetros (0,90 m) y de un metro, veinte centímetros (1,20 m) las de servicio general. VI.9.4. La huella no será menor de veintiséis centímetros (0,26 m), ni la contrahuella mayor de dieciocho centímetros (0,18 m) debiendo construirse con materiales retardatorios al fuego un mínimo de una hora; también deben proteger se con barandales de una altura mínima de noventa centímetros (0,90 m).
+Artículo VI. 10.—Escaleras y salidas de emergencia. Todos los edificios multifamillares con pisos a más de ocho metros medidos sobre el nivel de la acera, deberán contar con escalera de emergencia que desemboque a espacio público, con arreglo a las normas del artículo IV. 26.
+Las diferencias de niveles de piso en las salidas de emergencia deberán ser salvadas por rampa.
+Artículo VI. 11.—Instalaciones de agua. Todos los edificios destinados a vivienda estarán provistos de instalaciones de agua potable que tengan capacidad suficiente para abastecer ciento cincuenta (150 1) litros por habitante, por día.
+Los tanques de almacenamiento deberán ser construidos de tal forma que se evite la contaminación y el derrame de agua. Tendrán acceso fácil para su limpieza interior.
+Artículo VI. 12.—Fosas sépticas. Cuando no fuere posible conducir las aguas negras a un alcantarillado sanitario, será obligatorio disponer de ellas por medio de un tanque séptico con sus drenajes, o por algún otro sistema sanitario aprobado por el Ministerio de Salud.
+Artículo VI. 13.—Servicios sanitarios. Cada vivienda deberá contar con su propio servicio de baño, lavabo, inodoro, fregadero y pila de ropa.
+En zonas rurales en donde el Ministerio de Salud acepte la construcción de letrina, ésta deberá estar alejada de la vivienda ocho metros (8,00 m) como mínimo; si existiera pozo o tanque de almacenamiento de agua potable subterráneo, la letrina estará por lo menos a treinta metros (30,00 m) de aquéllos.
+Artículo VI. 14.—Desagües pluviales. Las aguas pluviales de techos, terrazas y patios, deberán ser conducidas a sistemas de alcantarillado pluvial o a cursos de aguas naturales.
+Artículo VI. 15.—Calderas. Las instalaciones de calderas, calentadores de agua y aparatos singlares, se harán de manera que no causen molestias ni pongan en peligro a los habitantes, de acuerdo con las normas establecidas por el Reglamento de Calderas, del Ministerio de Trabajo y Seguridad Social.
+Artículo VI. 16.—Chimeneas. Las chimeneas deberán construirse de acuerdo con las normas especificadas en el artículo X.10 de este Reglamento.
+( Reformado mediante sesión ordinaria N° 3822, celebrada el 4 de mayo de 1987)
