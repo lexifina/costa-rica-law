@@ -1,94 +1,51 @@
 (*) TITULO III
 Disposiciones sobre encaje mínimo legal
-CAPITULO I
-Requisitos de encaje
-(*) A. Tasas de encaje mínimo legal.
-1. El 15% de los depósitos y obligaciones en moneda nacional de los entes financieros que a la entrada en vigencia de la Ley 7558 del 27 de noviembre, 1995, se encontraban sujetas al requerimiento de encaje mínimo legal incluidos los depósitos en cuenta corriente, sean los exigibles a simple requerimiento del depositante o acreedor, mediante la libranza de cheques; los depósitos constituidos por medio del sistema de ahorro por libreta; los cheques certificados y los cheques de gerencia; los depósitos y obligaciones a plazo vencido, los pasivos originados en las operaciones de venta de títulos con pacto de retrocompra a la vista, las obligaciones por cheques presentados al cobro por otras entidades mediante la Cámara de Compensación, así como otras obligaciones de exigibilidad inmediata y los depósitos y obligaciones exigibles a plazo, incluidos los pasivos originados en las operaciones de venta de títulos con pacto de retrocompra a plazo.
-2. El 5% de los depósitos y obligaciones en moneda extranjera de los entes financieros que, a la entrada en vigencia de la Ley 7558, del 27 de noviembre, 1995, se encontraban sujetos al requisito de encaje mínimo legal. Incluidos los depósitos en cuenta corriente, sean los exigibles a simple requerimiento del depositante o acreedor mediante la libranza de cheques; los depósitos constituidos por medio del sistema de ahorro por libreta; los depósitos y obligaciones a plazo vencido, los depósitos y obligaciones a plazos inferiores a los treinta días; los cheques certificados y los cheques de gerencia; los cheques presentados al cobro por otras entidades mediante la Cámara de Compensación y toda obligación de exigibilidad inmediata o a la vista y los depósitos u obligaciones a plazo, incluidos pasivos originados en las operaciones de venta de títulos con pacto de retrocompra a plazo.
-3. Las Mutuales de Ahorro y Crédito y el Banco Hipotecario de la Vivienda estarán obligadas a cumplir con los requerimientos de encaje que se indican a continuación:
-a) El 15% de todas las captaciones en moneda nacional. La gradualidad para ajustarse a dicho porcentaje es la siguiente.
+(**)CAPITULO I
+Requisito de encaje mínimo legal
+A. Entidades sujetas al requisito de encaje
+Estarán sujetas al requisito de encaje mínimo legal las siguientes entidades:
+1- Las instituciones financieras supervisadas por la Superintendencia General de Entidades Financieras, salvo las que expresamente exima la Junta Directiva del Banco Central de Costa Rica. Particularmente deben cumplir con este requisito:
+i. Los bancos comerciales del Sistema Bancario Nacional.
+ii. Las empresas financieras no bancarias.
+iii. Las mutuales de ahorro y préstamo.
+iv. El Banco Hipotecario de la Vivienda (BANHVI).
+v. Las Cooperativas de Vivienda que realizan operaciones de intermediación financiera al amparo de la Ley del Sistema Financiero para la Vivienda.
+vi. Las Cooperativas de Ahorro y Crédito que realizan operaciones financieras con no asociados y cuyo nivel de activos netos era al 31 de diciembre de 1995 igual o superior a los ¢200 millones.
+vii. Cualquier otra entidad sujeta a la supervisión de la Superintendencia General de Entidades Financieras y que no haya sido expresamente eximida del encaje por la Junta Directiva del Banco Central.
+2- Los puestos de bolsa que utilicen mecanismos de administración de carteras de títulos, tales como los denominados OPAB, CAV, OMED o similares.
+B. Operaciones sujetas al requisito de encaje
+Estarán sujetas al requisito de encaje mínimo legal el saldo de todos aquellos depósitos y obligaciones, en moneda nacional y en moneda extranjera, que constituyan las entidades mencionadas en el literal A de este capítulo. Lo anterior comprende los siguientes instrumentos o similares:
+1- Los depósitos y obligaciones de exigibilidad inmediata o a la vista, incluidos los depósitos en cuenta corriente, los constituidos por medio del sistema de ahorro por libreta, los cheques certificados, los cheques de gerencia, los depósitos y obligaciones a plazo vencido, los pasivos originados en operaciones de venta de títulos con pacto de retrocompra a la vista, las obligaciones por cheques presentados al cobro por otras entidades por medio de la Cámara de Compensación, así como cualesquiera otra obligación de exigibilidad inmediata.
+2- Los depósitos y obligaciones exigibles a plazo, incluidos aquellos originados en operaciones de venta de títulos con pacto de retrocompra a plazo.
+3- Las operaciones de captación de recursos realizadas habitualmente mediante fideicomiso o contratos de administración, específicamente:
+i. Las comisiones de confianza, los fideicomisos y cualquier contrato de administración de cartera constituido por los intermediarios financieros, mediante los que se reciben recursos del público en forma habitual y abierta.
+ii. Los fideicomisos y contratos de administración que emiten algún tipo de pasivo, mediante los cuales los intermediarios obtienen recursos del público, empleando como respaldo el patrimonio del fideicomiso (letras de cambio, hipotecas, prendas, cuentas por cobrar u otros).
+iii. Los mecanismos de administración de carteras de títulos que mantienen los puestos de bolsa, tales como los denominados OPAB, CAV, OMED o similares.
+C. Tasas de encaje
+Las tasas de encaje mínimo legal que aplicarán sobre las operaciones indicadas en el literal anterior son las siguientes:
+1- El 10% sobre el total de los depósitos y obligaciones en moneda nacional, así como de las operaciones de captación de recursos en moneda nacional realizadas mediante fideicomisos o contratos de administración. Dicha tasa se aplicará con la siguiente gradualidad:
 Fecha | Tasa
-A partir del |
-01 de octubre, 1998 | 11,5%
-01 de noviembre, 1998 | 12,0%
-01 de diciembre, 1998 | 12,5%
-01 de enero, 1999 | 13,0%
-01 de febrero, 1999 | 13,5%
-01 de marzo, 1999 | 14,0%
-01 de abril, 1999 | 14,5%
-01 de mayo, 1999 | 15,0%
-b) El 5% sobre todas las captaciones en moneda extranjera exigibles a la vista, a plazo vencido y a plazo.
-4. Las Cooperativas de Vivienda, que realizan operaciones de intermediación financiera al amparo de la Ley del Sistema Financiero para la Vivienda, así como aquellas otras Cooperativas de Ahorro y Crédito que realizan operaciones financieras con no asociados y cuyo nivel de activos netos sea igual o superior a los ¢200,0 millones estarán obligadas a cumplir con los requerimientos de encaje que se indican a continuación:
-a) El 15% de todas las captaciones en moneda nacional. Las Cooperativas deberán ajustarse a dicha tasa con la gradualidad que se detalla a continuación:
-Fecha | Tasa
-A partir del |
-01 de octubre, 1998 | 5,5%
-01 de noviembre, 1998 | 6,0%
-01 de diciembre, 1998 | 6,5%
-01 de enero, 1999 | 7,0%
-01 de febrero, 1999 | 7,5%
-01 de marzo, 1999 | 8,0%
-01 de abril, 1999 | 8,5%
-01 de mayo, 1999 | 9,0%
-01 de junio, 1999 | 10,0%
-01 de julio, 1999 | 11,0%
-01 de agosto. 1999 | 12,0%
-01 de setiembre, 1999 | 13,0%
-01 de octubre, 1999 | 14,0%
-01 de noviembre. 1999 | 15,0%
-b) El 5% sobre todas las captaciones en moneda extranjera exigibles a la vista, a plazo vencido y a plazo.
-5. Las operaciones de captación de recursos en moneda nacional realizadas habitualmente mediante fideicomisos o contratos de administración, según se indica en el siguiente numeral, estarán obligadas a cumplir un requerimiento de encaje del 15% sobre la totalidad de los recursos captados del público, una vez que se hayan deducido de los mismos los depósitos o inversiones que se mantengan en otros instrumentos sujetos a requerimiento de encaje.
-Las operaciones mencionadas se ajustarán al requerimiento de encaje con la gradualidad que se detalla a continuación:
-Fecha | Tasa
-A partir del |
-01 de octubre, 1998 | 5,5%
-01 de noviembre, 1998 | 6,0%
-01 de diciembre, 1998 | 6,5%
-01 de enero, 1999 | 7,0%
-01 de febrero, 1999 | 7,5%
-01 de marzo, 1999 | 8,0%
-01 de abril, 1999 | 8,5%
-01 de mayo, 1999 | 9,0%
-01 de junio, 1999 | 10,0%
-01 de julio, 1999 | 11,0%
-01 de agosto, 1999 | 12,0%
-01 de setiembre, 1999 | 13,0%
-01 de octubre, 1999 | 14,0%
-01 de noviembre, 1999 | 15,0%
-6. Las operaciones de captación de recursos en moneda extranjera realizadas habitualmente mediante fideicomisos o contratos de administración, según se indica en el siguiente numeral, estarán obligadas a cumplir un requerimiento de encaje del 5% sobre la totalidad de los recursos captados del público, una vez que se hayan deducido de los mismos los depósitos o inversiones que se mantengan en otros instrumentos sujetos a requerimiento de encaje.
-Las operaciones a las que se refieren los numerales 5 y 6 anteriores son las siguientes:
-a. Las Comisiones de Confianza, los Fideicomisos y cualquier contrato de administración de cartera constituido por los intermediarios financieros, mediante los que se reciben recursos del público en forma habitual y abierta.
-b. Los fideicomisos y contratos de administración que emiten algún tipo de pasivo, mediante los cuales obtienen recursos del público, empleando como respaldo el patrimonio del fideicomiso (letras de cambio, hipotecas, prendas, cuentas por cobrar u otros).
-c. Los mecanismos de administración de carteras de títulos que mantienen los puestos de bolsa, tales como los denominados OPAB, CAV y OMED.
-(*) (Así reformado el literal A anterior en sesión N° 4971 del 23 de setiembre de 1998)
-B.—Excepciones y deducciones
-(*) 1. Se exceptúan del requerimiento de encaje mínimo legal las operaciones originadas en empréstitos externos y los. recursos recibidos por la banca estatal de entidades financieras privadas en cumplimiento de las condiciones establecidas, para estas últimas, para tener acceso al redescuento o poder captar . depósitos en cuenta corriente, según lo estipulado en los Artículos 52 de la Ley Orgánica del Banco Centra! de Costa Rica y 59 de la Ley Orgánica del Sistema Bancario Nacional.
-(*) (Así reformado el numeral anterior en sesión N° 4951 del 22 de abril de 1998)
-(*)2. Las entidades sujetas a control de la Superintendencia General de Entidades Financieras podrán deducir de sus obligaciones sujetas a encaje los depósitos e inversiones que hagan en instrumentos financieros o bursátiles sujetos al requerimiento de encaje mínimo legal. En el caso de las Entidades Financieras Privadas no pueden deducir los fondos mantenidos en Jos bancos estatales en cumplimiento de las condiciones para poder captar depósitos en cuenta corriente o tener acceso al redescuento. Los instrumentos financieros o bursátiles pueden ser deducidos en el tanto la entidad financiera sea la propietaria de los contratos y los títulos y sean contabilizados en sus balances como parte de sus activos (no en cuentas de orden). Si los instrumentos son vendidos, en firme o a plazo, o traspasados a otra entidad, no se aplica dicha rebaja.
-(Así reformado el párrafo anterior en sesión N° 4951 del 22 de abril de 1998)
+A partir del: |
+15 de octubre, 1999 | 14%
+1º de abril, 2000 | 13%
+1º de octubre, 2000 | 12%
+1º de abril, 2001 | 11%
+1º de octubre, 2001 | 10%
+2- El 5% sobre el total de los depósitos y obligaciones en moneda extranjera, así como de las operaciones de captación de recursos en moneda extranjera realizadas mediante fideicomisos o contratos de administración.
+D. Excepciones y deducciones
+1- Se exceptúan del requerimiento de encaje mínimo legal las operaciones originadas en empréstitos externos y los recursos recibidos por la banca estatal de entidades financieras privadas en cumplimiento de las condiciones establecidas, para estas últimas, para tener acceso al redescuento o poder captar depósitos en cuenta corriente, según lo estipulado en los artículos 52 de la Ley Orgánica del Banco Central de Costa Rica y 59 de la Ley Orgánica del Sistema Bancario Nacional.
+2- Las entidades sujetas a control de la Superintendencia General de Entidades Financieras podrán deducir de sus obligaciones sujetas a encaje los depósitos e inversiones que hagan en instrumentos financieros o bursátiles sujetos al requerimiento de encaje mínimo legal. En el caso de las Entidades Financieras Privadas no pueden deducir los fondos mantenidos en los bancos estatales en cumplimiento de las condiciones establecidas para poder captar depósitos en cuenta corriente o tener acceso al redescuento. Los instrumentos financieros o bursátiles pueden ser deducidos en el tanto la entidad financiera sea la propietaria de los contratos y los títulos y sean contabilizados en sus balances como parte de sus activos (no en cuentas de orden). Si los instrumentos son vendidos, en firme o a plazo, o traspasados a otra entidad, no se aplica dicha rebaja.
 La deducción se hará por el importe pagado excluyendo los intereses devengados acumulados por el título y no pagados por el emisor y las comisiones pagadas, esto último siempre y cuando esos intereses y comisiones estén incorporados en el precio pagado por el comprador.
-Un título en circulación solo podrá ser deducido cuando sea negociado en un mercado organizado y fiscalizado por algún ente del Banco Central de Costa Rica.
-La deducción a que se refiere este numeral la harán los intermediarios financieros sujetos a la fiscalización de la Superintendencia General de Entidades Financieras de la siguiente forma:
-a) Las inversiones y depósitos a plazo emitidos antes del 1° de enero de 1998 serán deducidos en la situación de encaje del intermediario financiero emisor de los mismos, en el tanto el propietario de esas inversiones y depósitos sea otro intermediario financiero sujeto a encaje. La rebaja se hará por el período en que éste lo mantenga.
-b) Las inversiones y depósitos a plazo emitidos después del 1° de enero de 1998, inclusive, serán deducidos en la situación de encaje- del intermediario financiero tenedor de los mismos durante el período de su tenencia.
-c) Para los depósitos en cuenta corriente y de exigibilidad inmediata aplicará la siguiente gradualidad:
-A partir de: | Porcentaje deducido por la entidad emisora de la obligación | Porcentaje deducido por la entidad inversora
-1 de enero, 1998 | 80% | 20%
-16 de enero, 1998 | 60% | 40%
-1 de febrero, 1998 | 40% | 60%
-16 de febrero, 1998 | 20% | 80%
-1 de marzo, 1998 | 0% | 100%
-(*)(Así reformado el numeral anterior en sesión N° 4938 del 17 de diciembre de 1997)
-3.- En el caso de los fideicomisos, comisiones de confianza y los contratos de administración, para calcular el monto de operaciones sujetas al encaje, se deducirán de la totalidad de los recursos captados, los depósitos o inversiones que mantengan en otros instrumentos financieros o bursátiles sujetos a requerimiento de encaje, en el tanto los mantengan dentro de la cartera inversiones. Si los instrumentos son vendidos, en firme o a plazo, o traspasados a otra entidad, no se aplica dicha rebaja. La deducción se hará por e! valor transado de la operación excluyendo el monto correspondiente a los intereses devengados y acumulados por el título y no pagados por el emisor, en caso de que existieran, tampoco se considerarán las comisiones pagadas. Esto último en el tanto esos intereses y comisiones estén incorporadas en el precio pagado por el comprador.
-Un título en circulación solo podrá ser deducido cuando sea negociado en un mercado organizado y fiscalizado por algún ente del Banco Central de Costa Rica.
-(Así reformado el numeral anterior en sesión N° 4938 del 17 de diciembre de 1997)
-(*)4.- Se exceptúa del requerimiento de encaje las siguientes figuras.
-a) Los fideicomisos o contratos de administración que se constituyen exclusivamente y en forma limitada para administrar un patrimonio, cuyos fines solo se consiguen después de transcurrido cierto tiempo, por lo que los recursos fideicometidos no se pueden transformar en efectivo hasta que dichas condiciones se cumplan.
-b) La captación de recursos para capital de trabajo o para e! financiamiento de proyectos de inversión de carácter no financiero de las empresas emisoras o subsidiarias registradas ante la Comisión Nacional de Valores, según lo dispuesto en el artículo 116 de la Ley Orgánica del Banco Central de Costa Rica.
-(*)(Así adicionado el numeral anterior en sesión N° 4938 del 17 de diciembre de 1997)
-(*) 5. Estarán exceptuadas de los requisitos de encaje mínimo legal mencionados en el literal A anterior, las entidades que entren en un proceso de liquidación de conformidad con las leyes pertinentes y que al mismo tiempo hayan cesado de realizar intermediación financiera, según lo haga constar ante la Gerencia del Banco Central de Costa Rica el Órgano Supervisor competente, así como constancias de que se han adoptado las medidas necesarias para asegurar la correcta liquidación de la entidad en beneficio de los intereses de los ahorrantes relacionados.
-Asimismo, la Gerencia del Banco Central de Costa Rica podrá eximir del requisito de encaje mínimo legal, previa recomendación del interventor y del Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF), a aquellas entidades sometidas a procesos de intervención derivados de problemas de liquidez extremos, para que con los recursos del encaje mejore las condiciones y se protejan los intereses de los ahorrantes. Los procedimientos que se seguirán para tales efectos se indican en el Capítulo IV de este título.
-(*) (Así reformado el numeral anterior en sesión N° 4994 del 5 de mayo de 1999)
+Un título en circulación solo podrá ser deducido cuando sea negociado en un mercado organizado y fiscalizado por alguna de las superintendencias adscritas al Banco Central de Costa Rica.
+La deducción de las operaciones interfinancieras se hará en la situación de encaje del intermediario financiero tenedor de las mismas durante el período de su tenencia.
+3- En el caso de los fideicomisos, comisiones de confianza y los contratos de administración, para calcular el monto de operaciones sujetas al encaje, se deducirán de la totalidad de los recursos captados, los depósitos o inversiones que mantengan en otros instrumentos financieros o bursátiles sujetos a requerimiento de encaje, en el tanto los mantenga dentro de la cartera inversiones. Si los instrumentos son vendidos, en firme o a plazo, o traspasados a otra entidad, no se aplica dicha rebaja. La deducción se hará por el valor transado de la operación excluyendo el monto correspondiente a los intereses devengados y acumulados por el título y no pagados por el emisor, en caso de que existieran, tampoco se considerarán las comisiones pagadas. Esto último en el tanto esos intereses y comisiones estén incorporadas en el precio pagado por el comprador.
+Un título en circulación solo podrá ser deducido cuando sea negociado en un mercado organizado y fiscalizado por alguna de las superintendencias adscritas al Banco Central de Costa Rica.
+4- Se exceptúan del requerimiento de encaje las siguientes figuras:
+a) Los fideicomisos o contratos de administración que se constituyen exclusivamente y en forma limitada para administrar un patrimonio, cuyos fines sólo se consiguen después de transcurrido cierto tiempo, por lo que los recursos fideicometidos no se pueden transformar en efectivo hasta que dichas condiciones se cumplan.
+b) La captación de recursos para capital de trabajo o para el financiamiento de proyectos de inversión de carácter no financiero de las empresas emisoras o subsidiarias registradas ante la Superintendencia General de Valores, según lo dispuesto en el Artículo 116 de la Ley Orgánica del Banco Central de Costa Rica.
+5- Estarán exceptuadas de los requisitos de encaje mínimo legal mencionados en el numeral 1 anterior, las entidades que entren en un proceso de liquidación de conformidad con las leyes pertinentes y que al mismo tiempo hayan cesado de realizar intermediación financiera, según lo haga constar ante la Gerencia del Banco Central de Costa Rica el Organo Supervisor competente, así como constancias de que se han adoptado las medidas necesarias para asegurar la correcta liquidación de la entidad en beneficio de los intereses de los ahorrantes relacionados.
+Asimismo, la Gerencia del Banco Central de Costa Rica podrá eximir del requisito de encaje mínimo legal, previa recomendación del interventor y del Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF), a aquellas entidades sometidas a procesos de intervención derivados de problemas de liquidez extremos, para que con los recursos del encaje mejore las condiciones y se protejan los intereses de los ahorrantes. Los procedimientos que se seguirán para tales efectos se indican en el Capítulo IV de este Título.
+(**) (Así sustituído este capítulo en sesión N° 5007 del 16 de setiembre de 1999)
 (*) CAPITULO II
 CONTROL DE LA SITUACIÓN DE ENCAJE
 A. El cálculo del requerimiento del encaje se realizará sobre el promedio de saldos diarios de las operaciones sujetas a este requisito, de una quincena natural, esto es, del 1 al 15 y del 16 al 30 ó 31 de cada mes. En el cálculo intervendrán todos los días de la quincena, para los fines de semana y días feriados se repite la información del último día hábil anterior.
