@@ -1,1 +1,2 @@
-ARTICULO 3.- Rige a partir de su publicación.
+Artículo 3°.- Rige a partir de su publicación
+Presidencia de la República.- San José, a los diez días del mes de setiembre de mil novecientos noventa.
