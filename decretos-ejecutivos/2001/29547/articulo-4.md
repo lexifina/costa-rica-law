@@ -1,0 +1,1 @@
+Artículo 4º—Vigencia, modificación y derogación. Rige a partir de su debida y correcta publicación y modifica parcialmente el Decreto Ejecutivo Nº 27917-MOPT, publicado en La Gaceta Nº 112 del 10 de junio de 1999, en sus artículos 38, 39, 40, 41 y 43; asimismo deroga a cualquier otra disposición de igual o inferior rango jerárquico, en lo que se oponga.
