@@ -1,13 +1,9 @@
-APROBACIÓN DEL TRATADO MARCO DEL
-MERCADO ELÉCTRICO DE AMÉRICA
-CENTRAL Y SU PROTOCOLO
-ARTÍCULO 1.- Apruébase, en cada una de sus partes, el Tratado Marco
-del Mercado Eléctrico de América Central, suscrito en la Ciudad de
-Guatemala, el 30 de diciembre de 1996; asimismo, su Protocolo, suscrito en
-la Ciudad de Panamá, el 11 de julio de 1997. Los textos son los
-siguientes:
 "TRATADO MARCO DEL MERCADO ELÉCTRICO
 DE AMÉRICA CENTRAL
+(NOTA: En este texto se incluyen las reformas practicadas por su
+Protocolo, elaborado en la Ciudad de Panamá el 11 de julio de 1997. El
+contenido de dicho protocolo puede verse infra, al final del Convenio
+principal, o bien, en la ley No.7848-A de 20 de noviembre de 1998)
 Los Gobiernos de las Repúblicas de Costa Rica, El Salvador,
 Guatemala, Honduras, Nicaragua y Panamá, que en adelante se denominarán
 "las Partes",
