@@ -1,0 +1,1 @@
+Artículo 6º—Una vez firmado el contrato el servidor no podrá ni de manera remunerada ni ad honorem la profesión comprometida con dicha exclusividad, ni realizar actividades relacionadas con esta o con su cargo si no es con la institución con la que firmó dicho contrato salvo las excepciones que en adelante se dirán.
