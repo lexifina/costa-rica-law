@@ -1,0 +1,8 @@
+Artículo 9
+Luces y señales en los vehículos
+1. Desde el oscurecer hasta el amanecer, y de día cuando las circunstancias lo requieran, especialmente cuando haya niebla o lluvia, los conductores de vehículos que circulen por una carretera, provista o no de alumbrado público, deberán encender las luces previstas por los Artículos 18, 31, 40. 49 ó 57, según el caso.
+En los encuentros de vehículos se cambiarán las luces altas por las bajas a fin de no deslumhrar a los conductores y demás usuarios.
+2. Los vehículos no utilizarán luz roja delante ni luz blanca detrás, con excepción de luces de retroceso y para placas; tampoco deberán llevar dispositivos reflectantes rojos delante, ni blancos detrás.
+3. Desde el oscurecer al amanecer, y de día siempre que las circunstancias lo requieran, especialmente con niebla o lluvia, todo vehículo que se estaciono en una carretera, esté o no provista do alumbrado publico, debe tener visible una luz en el lado opuesto a la acera o a la cuneta, bien sea luz de posición ,con luz roja detrás o una luz de estacionamiento.
+Un vehículo automotor o una combinación de vehículos de un largo de más de 6 metros o una anchura mayor de 2 metros, cuando esté parado deberá señalarlo por dos luces de posición y dos luces rojas.
+4. Si, por fuerza mayor, un vehículo queda inmovilizado en la calzada, o si toda la carga o parte de ella cae a la calzada sin que pueda ser recogida inmediatamente, el conductor debe, en caso de visibilidad insuficiente y sobre todo al oscurecer, avisar del obstáculo por todos los medios posibles colocando señales a suficiente distancia antes del mismo.

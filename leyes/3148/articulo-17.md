@@ -1,0 +1,18 @@
+Artículo 17
+Frenos
+1. Todo vehículo automotor deberá estar provisto de frenos capaces de moderar y detener su movimiento de modo seguro, rápido y eficaz, cualquiera que sea la carga que lleve y el declive ascendente o descendente en que se halle.
+Los frenos deberán ser accionados por dos dispositivos construidos de tal modo que en caso de fallar uno de ellos, pueda el otro detener el vehículo dentro de una distancia razonable.
+En el presente texto se denominará "freno de servicio" a uno de estos dispositivos v "freno de estacionamiento" al otro.
+El freno de estacionamiento deberá poder quedar asegurado aún en ausencia del conductor, por un dispositivo de acción mecánica directa,
+Cualquiera de los dos medios de accionamiento deberá poder aplicar una fuerza capaz de frenar las ruedas situadas simétricamente a ambos lados del eje longitudinal de simetría del vehículo.
+Las superficies de fricción deben hallarse constantemente conectadas a las ruedas del vehículo, de tal modo que no sea posible separarlas de éstas sino momentáneamente, y por medio de un embrague, caja de velocidad o rueda libre.
+Por lo menos uno de los dispositivos de freno debe ser capaz de accionar sobre superficies de fricción unidas a las ruedas del vehículo directamente o por medio de piezas no expuestas a rotura.
+2. Todo remolque cuyo peso máximo autorizado exceda de 750 kg. (1650 Ibs.) deberá estar provisto por lo menos de un dispositivo de freno que accione sobre las ruedas situadas simétricamente a ambos lados del plano longitudinal de simetría del vehículo y por lo menos sobre la mitad del total de ellas.
+Lo que se dispone en el párrafo anterior será también aplicable a los remolques cuyo peso máximo autorizado, aunque no pase de 750 kg. (1650 Ibs.), sobrepase a la mitad de la tara del vehículo al que vaya enganchado.
+El dispositivo de freno de los remolques cuyo peso autorizado pase de 3500 kg. (7700 Ibs.) deberá ser accionado por medio del freno de servicio del vehículo tractor. Si el peso máximo autorizado del remolque no es mayor de 3500 (7700Ibs ), su dispositivo de freno podrá ser accionado al producirse un determinado acercamiento al vehículo tractor (freno de inercia).
+El dispositivo de freno deberá poder impedir la rotación de las ruedas cuando el remolque esté desenganchado.
+Todo remolque provisto de frenos deberá llevar un dispositivo capaz de detener automáticamente el remolque si éste quedara suelto en plena marcha. «Esta disposición no se aplicará a los remolques de excursiones de dos ruedas ni a los remolques ligeros de equipaje cuyo peso no exceda de 750 kg. (1650 Ibs.), siempre que dispongan además del enganche principal, de un enganche secundario que pueda ser una cadena o un cable.
+3. Las disposiciones del párrafo 1 de este Artículo serán aplicables a todos los vehículos articulados. El semi-remolque que tenga un peso máxime autorizado mayor de 750 kg. (1650 Ibs.), deberá estar provisto por lo menos de un dispositivo de freno que pueda ser accionado al aplicar el freno de servicio del vehículo remolcador.
+El dispositivo de freno del semi-remolque deberá además ser capaz de impedir la rotación de las ruedas cuando el semi-remolque se halle desenganchado.
+Todo semi-remolque provisto de frenos deberá tener un dispositivo de freno que lo detenga automáticamente si se desengancha estando en marcha.
+4. Toda combinación de un vehículo automotor y uno o más remolques deberá tener frenos capaces de moderar y detener el movimiento de la combinación de un modo seguro, rápido y eficaz, cualquiera que sea la carga que lleve y el declive ascendente en que se halle.
