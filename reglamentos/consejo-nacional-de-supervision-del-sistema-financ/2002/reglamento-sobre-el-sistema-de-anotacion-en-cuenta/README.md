@@ -15,3 +15,4 @@ Reglamento sobre el Sistema de Anotación en Cuenta.
 | --- | --- | --- |
 | 1 | 2002-07-13 | la propia norma |
 | 2 | 2003-09-09 | Reglamento 391 (2003-09-09) |
+| 3 | 2003-11-04 | Reglamento 402 (2003-11-04) |

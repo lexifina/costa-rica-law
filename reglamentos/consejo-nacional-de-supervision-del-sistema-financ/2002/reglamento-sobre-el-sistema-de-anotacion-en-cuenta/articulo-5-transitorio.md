@@ -1,0 +1,4 @@
+Transitorio V
+La Bolsa Nacional de Valores podrá establecer como requisito de negociación y la Central de Valores como requisito de ingreso en depósito para negociación, que los valores fungibles ya colocados, sean agrupados y representados por medio de un solo macrotítulo. De igual forma, podrán establecer el fraccionamiento de valores individuales ya colocados de un emisor y su representación por medio de macrotítulo. En ambos casos, a partir de la representación mediante macrotítulo aplicarán a esos valores las reglas de los valores anotados en cuenta.
+En ambos casos el nominal que se establezca deberá respetar el derecho del inversionista de negociar esos valores en bolsa.
+(Así ADICIONADO por Sesión No 402-2003 celebrada el 4 de noviembre de 2003, publicada en La Gaceta No 227 de 25 de noviembre de 2003.)
