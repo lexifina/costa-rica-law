@@ -1,0 +1,3 @@
+SECCIÓN III
+De la no concesión de la licencia comercial
+Artículo 3º—La Municipalidad no concederá la licencia comercial, en el caso previsto en el inciso e) del artículo 1) de este instrumento.
