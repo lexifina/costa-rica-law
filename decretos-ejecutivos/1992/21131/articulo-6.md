@@ -1,2 +1,2 @@
-Articulo 6°.-Los premios consistirán en una dotación económica de dinero efectivo equivalente a seis salarios mínimos de un profesional 1 de la Administración Pública.
-(Así reformado por el artículo 1° del Decreto Ejecutivo N° 23554 de 6 de julio de 1994).
+Artículo 6°_ - Los premios consistirán en una dotación de dinero equivalente a 6 salarios mínimos de Profesional de la Administración Pública y una estatuilla".
+(Así reformado por el artículo 1° del Decreto Ejecutivo N° 25918 de 07 de marzo de 1997).

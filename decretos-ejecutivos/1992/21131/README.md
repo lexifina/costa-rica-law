@@ -15,3 +15,4 @@ Crea Premio Nacional de Danza
 | --- | --- | --- |
 | 1 | 1992-04-02 | la propia norma |
 | 2 | 1994-07-06 | Decreto Ejecutivo 23554 (1994-07-06) |
+| 3 | 1997-03-07 | Decreto Ejecutivo 25918 (1997-03-07) |
