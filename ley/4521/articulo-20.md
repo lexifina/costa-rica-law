@@ -1,3 +1,3 @@
-Artículo 20.-Rige desde el día de su publicación.
-(Corrida su numeración por el artículo 1° de la ley N° 5320 del 17 de agosto de 1973, que lo traspaso del antiguo artículo 19 al 20)
-Casa Presidencial.-San José, a los veintiséis días del mes de diciembre de mil novecientos sesenta y nueve.
+Artículo 20.-Deróganse los Decretos Ejecutivos Nº 3 de 2 de diciembre de 1907, Nº 7 de 13 de diciembre de 1920, el Decreto-Ley Nº 383 de 15 de febrero de 1949, el Reglamento de Centros Agrícolas Cantonales y Agrónomos Regionales publicado en "La Gaceta" Nº 158 del 16 de julio de 1949 y el Decreto Ejecutivo Nº 5 de 17 de julio de 1960.
+(Corrida su numeración por el artículo 1° de la ley N° 5320 del 17 de agosto de 1973, que lo traspaso del antiguo artículo 18 al 19)
+(Corrida su numeración por el artículo 1° de la ley N° 6331 del 8 de junio de 1979, que lo traspaso del antiguo artículo 19 al 20)
