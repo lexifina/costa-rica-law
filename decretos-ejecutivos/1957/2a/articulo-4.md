@@ -1,0 +1,1 @@
+Artículo 4°-Cada zona lateral afectada se dividirá en franjas paralelas a la carretera de 20 metros en la zona urbana y de 100 en la rural, a efecto de que se imponga más contribución a las franjas más cercanas y menor a las distantes.

@@ -1,0 +1,1 @@
+Artículo 8°-La Tributación Directa resolverá en cada caso si mantiene o modifica la inclusión o fijación objetada, y de su resolución podrá apelar el interesado ante el Tribunal de Avalúos de la misma Tributación, dentro de los ocho días subsiguientes. La apelación se decidirá dentro del mes siguiente.

@@ -1,0 +1,1 @@
+Artículo 6°-La contribución se fijará en proporción no menor del 25 % ni mayor del 50% del aumento del valor territorial entre el primero y segundo avalúos. Dentro de los límites indicados serán tomados en consideración los factores enumerados en los incisos a), b), c) y d ), del artículo 14 de la Ley General de Caminos Públicos, número 1851 de 28 de febrero de 1955.

@@ -1,0 +1,1 @@
+Artículo 3°- Para el censo y avalúo expresados, se tomarán en cuenta los fundos ubicados a uno y otro lados de la mencionada carretera, hasta una distancia de 100 metros en las áreas urbanas y de 500 metros en las rurales.

@@ -1,0 +1,1 @@
+Artículo 7°-Durante los 30 días siguiente a la fecha de publicación en la "La Gaceta" del detalle respectivo, los contribuyentes podrán objetar su inclusión en la lista o la cantidad que se les haya asignado, debido a cualquier infracción incurrida a las disposiciones de la ley N° 74 de 18 de diciembre de 1916 o las de presente Reglamento.

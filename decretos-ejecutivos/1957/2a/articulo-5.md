@@ -1,0 +1,1 @@
+Artículo 5°-Dentro del segundo año siguiente al establecimiento de tránsito permanente en cualquiera sección de la Carretera Interamericana, la Tributación Directa, con la misma ayuda de la Junta Especial Tasadora, efectuará nuevo avalúo de los inmuebles que figuren en el censo correspondiente a esa sección.

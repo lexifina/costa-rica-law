@@ -1,0 +1,1 @@
+Artículo 2°- La Tributación Directa, con el auxilio de la Junta Especial Tasadora que se designa en acuerdo aparte, levantará de inmediato el censo de las propiedades correspondientes, fijando el valor de éstas en el momento de iniciarse las obras.

@@ -1,0 +1,1 @@
+Artículo 10.-Serán eximidas del pago de la contribución a que se refiere el presente Reglamento aquellas personas que hagan donación de las fajas de terreno, incluyendo las mejoras existentes necesarias para el derecho de vía.
