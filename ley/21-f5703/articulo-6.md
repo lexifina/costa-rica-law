@@ -1,0 +1,1 @@
+Art 6°.- Cuando el Promotor Fiscal estuviere impedido para intervenir en un negocio, los sustutirá el Fiscal de Corte, quien á su vez, en caso de impedimento, será reemplazado por el primer Agente Fiscal de SAn José, sin perjuicio de los que dispone el artículo 8° de la Ley Orgánica del Minsiterio Público
