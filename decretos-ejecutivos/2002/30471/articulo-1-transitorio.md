@@ -1,1 +1,2 @@
-Transitorio: Los miembros de la Asamblea de los Trabajadores del Banco Popular y de Desarrollo Comunal cuyo período vence el presente año, podrán ser reelectos en forma sucesiva únicamente para el período del 2002 al 2006.
+Transitorio:
+(DEROGADO por el artículo 2 del Decreto Ejecutivo N° 30620 de 7 de agosto del 2002)

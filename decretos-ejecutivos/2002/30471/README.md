@@ -14,3 +14,4 @@ Reglamento para la integración de la asamblea de los trabajadores del Banco Pop
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-04 | la propia norma |
+| 2 | 2002-08-07 | Decreto Ejecutivo 30620 (2002-08-07) |
