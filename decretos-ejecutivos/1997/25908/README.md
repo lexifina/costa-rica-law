@@ -14,3 +14,4 @@ Otorga Desconcentración Máxima a la Dirección Nacional de Pensiones del Minis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-04-04 | la propia norma |
+| 2 | 1999-02-15 | Decreto Ejecutivo 27898 (1999-02-15) |
