@@ -1,0 +1,4 @@
+Artículo 29.- La gradación de las sanciones, a que se refiere esta
+ley, se hará teniendo en cuenta la educación, las costumbres y la conducta
+del sujeto, sus condiciones económicas y los motivos y circunstancias que
+lo impulsaron a delinquir.

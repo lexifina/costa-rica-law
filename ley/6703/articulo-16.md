@@ -1,0 +1,4 @@
+Artículo 16.- Créase el Registro Público del Patrimonio Nacional
+Arqueológico, dependiente del Museo Nacional y supervisado por la Comisión
+Arqueológica Nacional, el cual contará con el asesoramiento de cualquier
+otra institución pública que se considere del caso.

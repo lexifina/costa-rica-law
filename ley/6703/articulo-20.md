@@ -1,0 +1,4 @@
+Artículo 20.- La persona o personas que, de acuerdo con lo dispuesto
+en el artículo 3º de la presente ley, no dieren cuenta de un hallazgo de
+bienes arqueológicos, o no pusieren éstos en poder del Museo Nacional,
+serán sancionados con prisión inconmutable de tres a cinco años.

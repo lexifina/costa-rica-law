@@ -1,0 +1,5 @@
+Artículo 12.- La Comisión Arqueológica Nacional podrá autorizar
+excavaciones con autorización del propietario del terreno, y con la
+obligación de supervisar la excavación en forma directa y adecuada, y de
+adoptar las medidas correspondientes para evitar daños a la propiedad de
+que se trate.
