@@ -1,0 +1,1 @@
+Artículo 19.—Para la recuperación de las cuentas a cobro judicial, no se debe embargar el menaje de casa, excepto casos muy calificados siempre y cuando el juez respectivo considere que por su naturaleza sean suntuarios, lea, no de urgente necesidad.

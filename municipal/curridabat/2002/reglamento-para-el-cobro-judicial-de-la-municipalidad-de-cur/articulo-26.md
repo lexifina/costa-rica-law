@@ -1,0 +1,1 @@
+Artículo 26.—Todo gasto judicial y publicación de edictos en que se incurra en el trámite de un juicio, será suplido por el abogado y reintegrado por la Municipalidad, debiendo dicho profesional presentar en cada oportunidad el importe del gasto mediante la fórmula existente para ello.

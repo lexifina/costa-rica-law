@@ -1,0 +1,1 @@
+Artículo 9º—Los nombramientos serán comunicados a dichos profesionales por escrito y éstos, dentro de los cinco días hábiles siguientes, deberán manifestar por escrito su aceptación y su conformidad con las disposiciones del presente Reglamento.
