@@ -13,3 +13,4 @@ Medidas para la Aplicación del Transitorio XII de la Ley de Protección al Trab
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-13 | la propia norma |
+| 2 | 2005-01-03 | Acuerdo 7919 (2004-12-16) |
