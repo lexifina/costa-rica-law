@@ -1,0 +1,3 @@
+DECRETO XXIII.
+Fija el impuesto que deben pagar los licores fuertes extranjeros y sus compuestos que se introduzcan al país.
+EL SENADO Y LA CAMARA DE REPRESENTANTES de la República de Costa-Rica, reunidos en Congreso DECRETAN.-Art. 1°-Los licores fuertes extranjeros y sus compuestos que se introduzcan, pagarán como único impuesto de derecho marítimo, dieciocho centavos por libra, los que vinieren en cajas, y veinticinco centavos tambien por libra, los que vengan en cualquier otro envase.-Así mismo pagará el alcohol de treinta grados arriba de fortaleza, cuarenta centavos por libra en cualquier envase.
