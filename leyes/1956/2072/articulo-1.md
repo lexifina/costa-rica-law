@@ -1,3 +1,4 @@
+(Derogado)
 La siguiente
 Ley Reguladora de las Relaciones
 entre Productores e Industriales del Tabaco
