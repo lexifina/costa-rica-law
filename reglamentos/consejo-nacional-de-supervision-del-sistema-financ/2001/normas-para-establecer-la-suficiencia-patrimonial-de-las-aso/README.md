@@ -13,3 +13,4 @@ Normas para Establecer la Suficiencia Patrimonial de las Asociaciones Mutualista
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-03-22 | la propia norma |
+| 2 | 2001-06-11 | Reglamento 231 (2001-06-11) |
