@@ -61,6 +61,7 @@ Heredia | Central | Heredia Mercedes San Francisco Ulloa
 | Belén | San Antonio Ribera Asunción
 | Flores | San Joaquín Barrantes Llórente
 | San Pablo | San Pablo
+(NOTA: Por acuerdo tomado en sesión N° 3825, celebrada el 18 de mayo de 1987, se modifica el limite de contención urbana en el sector de Moravia, de acuerdo a plano que puede consultarse en la Dirección de Urbanismo del INVU).
 Artículo 2°— Establecer en el área anterior una "Zona Especial de Protección de conformidad con el artículo 25 de la Ley de Planificación Urbana y una "Zona de Crecimiento Urbano", según plano cuyo original puede ser consultado en el INVU, MIDEPLAN y municipalidades correspondientes. El límite indicado en dichos planos será ajustado por la Dirección de Urbanismo conforme con las características de la zona tomando en consideración, cuando menos, los aspectos geofísicos que incluyan entre otros, potencial y vocación del duelo y urbanísticos (accidentes naturales, pendientes, hidrografía, calle, luz, agua, etc.).
 (Así reformado por Acuerdo de Junta Directiva del INVU, publicado en La Gaceta N°74 de 20 de abril de 1983).
 Artículo 3°—Las fincas por cuyos terrenos se definió el límite de contención .urbana o que estén próximos con este a no más de 100 m podrán extender el uso urbano dentro del área de protección en un porcentaje no mayor del 50% del área total de la finca o hasta 200 m del límite, cualquiera que fuese menor".
