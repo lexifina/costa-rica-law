@@ -1,0 +1,1 @@
+Artículo XIX.—El atraso del pago de las amortizaciones generará multas e intereses moratorios que se calcularan según el Código de Normas y Procedimientos Tributarios (articulo 69 del Código Municipal).

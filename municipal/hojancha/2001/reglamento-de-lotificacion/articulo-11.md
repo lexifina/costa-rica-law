@@ -1,0 +1,1 @@
+Artículo XI—-Corresponde al Concejo Municipal fijar el monto de las amortizaciones conforme el plazo autorizado para el pago de los créditos, así como el valor porcentual de los gastos administrativos que implique la operación.

@@ -1,0 +1,1 @@
+Artículo VIII. —Corresponde al Alcalde Municipal, ejecutar los acuerdos del Concejo, en relación con el Plan de Lotificación y créditos ni es el caso, además deberá notificar a los interesados sobre el resultado de su gestión.
