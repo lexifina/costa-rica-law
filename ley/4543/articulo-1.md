@@ -1,5 +1,6 @@
+(Derogado)
 Ley Nº 4543
-La presente norma ha sido DEROGADA EN SU TOTALIDAD por la Ley N° 7982 de 14 de enero de 2000, Ley de Aprobación del Protocolo al Convenio Centroamericano para la Protección de la Propiedad Industrial (Marcas, Nombres Comerciales, y Expresiones o Señales de Propaganda).
+(Esta norma fue derogada por el artículo 1 del "Protocolo al Convenio Centroamericano para la Protección de la Propiedad Industrial (Marcas, Nombres Comerciales, y Expresiones o Señales de Propaganda)", aprobado mediante Tratado Internacional N° 7982 de 14 de enero de 2000)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1º.- Apruébase en todas y cada una de sus partes el "Convenio Centroamericano para la Protección de la Propiedad Industrial" (Marcas, nombres comerciales y expresiones o señales de propaganda), suscrito en San José el 1º de junio de 1968, cuyo texto es el siguiente:
