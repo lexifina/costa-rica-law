@@ -1,0 +1,1 @@
+Artículo 7º—Cuando por motivos de estar representando a la Municipalidad en otro lugar, no pueda asistir a la sesión, se les otorgará licencia con goce de dieta, previo comprobante de asistencia al lugar o evento y explicación del asunto tratado.
