@@ -1,0 +1,15 @@
+Nº 29517-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+En uso de las facultades conferidas en los incisos 3) y 18) del artículo 140° de la Constitución Política; el 1° de la Ley N° 6821 y el 2° de su Reglamento.
+Considerando:
+1º—Que la Constitución Política y el marco normativo que regula el cumplimiento de las órdenes judiciales por ejecución de sentencias firmes y por garantías en embargos preventivos, obliga a las instituciones y empresas públicas a disponer de una partida presupuestaria destinada para tales fines.
+2º—Que por disposición de las leyes, el cumplimiento en el pago ordenado en las sentencias judiciales y en las cauciones deben cumplirse en los términos judiciales señalados.
+3º—Que es impredecible determinar con antelación los montos que los Jueces de La República ordenan pagar, ocurriendo en la mayoría de los casos que no existe la partida presupuestaria correspondiente, o bien que la partida global asignada para tal efecto es insuficiente, no estando contemplado el total o el exceso en el límite de gasto presupuestario y efectivo asignado a las instituciones y empresas públicas.
+4º—Que en relación con las cauciones que deben rendirse en dinero efectivo o en valores de comercio en los despachos judiciales con motivo de las demandas que por diversas causas se interponen, resultan insuficientes debiendo completarse la garantía con dinero en efectivo.
+5º—Que los títulos valores y los bonos de deuda interna son considerados como inversiones, conforme lo establece el Capítulo II del D. E. N° 28639-H y los pagos y garantías ordenados por los estratos judiciales constituyen obligaciones que deben cumplir las instituciones y las empresas públicas.
+6º—Que en consecuencia, debe modificarse el D. E. N° 28639-H 2001", a fin de que a los ministerios y entidades públicas no se les considere los montos a pagar por concepto de resoluciones judiciales y cauciones como parte del límite del gasto total presupuestario y efectivo institucional, ni tampoco se considere como incumplimiento en las inversiones. Sujeto a que las entidades públicas informen trimestralmente sobre los montos pagados por esos conceptos a la Secretaría Técnica de la Autoridad Presupuestaria.
+7º—Que la Autoridad Presupuestaria formuló la modificación del Decreto N° 28639-H en el Acuerdo N° 6159, tomado en la sesión ordinaria N° 4-01, celebrada el seis de abril del dos mil uno.
+8º—Que el Consejo de Gobierno en el artículo 9º, de la Sesión N° 145, celebrada el 8 de mayo del 2001, conoció esta modificación. Por tanto,
+Decretan:
+Artículo 1º—Se modifica el D. E. N° 28639-H "Directrices Generales de Política Presupuestaria del 2001 para los Ministerios, demás órganos según corresponda y entidades públicas cubiertas por el ámbito de la Autoridad Presupuestaria" a fin excluir del límite de gasto presupuestario y efectivo total para el año 2001, asignado a los ministerios y entidades públicas, los montos ordenados por ejecución de sentencias judiciales en firme, así como el separar del cumplimiento de la materia de inversiones las cauciones que deben rendirse en los estrados judiciales.
