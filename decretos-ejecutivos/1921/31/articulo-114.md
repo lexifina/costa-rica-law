@@ -1,1 +1,1 @@
-Artículo 114.-Es terminantemente prohibido divulgar el nombre de la persona, o entidades que arrienden los apartados.
+Artículo 114.- (Derogado por el artículo 1° del decreto ejecutivo N° 37 del 28 de abril de 1950)
