@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE CARTAGO
+La Municipalidad del Cantón Central de Cartago, avisa que el Concejo Municipal del Cantón Central de Cartago, mediante artículo número 45 del acta número 116 de sesión ordinaria, celebrada el 11 de noviembre del 2003, acordó aprobar el Proyecto de Reglamento para el Mantenimiento de Lotes, Bajantes y Aceras de la Municipalidad del Cantón Central de Cartago, cuyo texto fuera publicado en el Diario Oficial La Gaceta N° 8 del pasado 13 de enero del 2004. En acatamiento de lo dispuesto en el artículo cuarenta y tres, párrafo segundo del Código Municipal, presentadas observaciones de interés, se ordena su publicación definitiva cuyo texto normativo rector de la actividad de Reglamento para el Mantenimiento de Lotes, Bajantes y Aceras de la Municipalidad del Cantón Central de Cartago, será el aprobado por el Concejo Municipal en el citado artículo 15 del acta 166 de sesión celebrada el 17 de agosto del 2004, a saber:
+REGLAMENTO PARA EL MANTENIMIENTO DE LOTES,
+BAJANTES Y ACERAS DE LA MUNICIPALIDAD
+DEL CANTÓN CENTRAL DE CARTAGO
+Publicación definitiva
+Artículo 1º—Finalidad. La Municipalidad está encargada de que las ciudades y demás poblaciones del cantón central de Cartago reúnan las condiciones necesarias de seguridad, salubridad, comodidad y belleza en sus vías públicas y en los edificios y construcciones que en terrenos de las mismas se levanten sin perjuicio de las facultades que las leyes conceden en estas materias a otros órganos administrativos.
