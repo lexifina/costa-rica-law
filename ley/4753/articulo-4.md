@@ -1,0 +1,1 @@
+Artículo 4º.- Se autoriza al Instituto Geográfico Nacional para interpretar y definir los límites de este cantón en los casos que ofrezcan duda, y se declara oficial el mapa que del cantón respectivo con su correspondiente toponimia o nomenclatura prepara el mismo Instituto.
