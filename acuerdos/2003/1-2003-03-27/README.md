@@ -14,3 +14,4 @@ Reforma Porcentajes Cobro por Recaudación a Operadoras de Pensiones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-19 | la propia norma |
+| 2 | 2003-05-22 | Acuerdo 0 (2003-05-22) |
