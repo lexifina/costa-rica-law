@@ -1,0 +1,4 @@
+Artículo 61.- Cuantía de la prestación. La cuantía de la prestación por viudez se determinará, teniendo como base de referencia, la pensión que devengaba o hubiera podido devengar el causante, y será equivalente al ochenta por ciento (80%) de ese monto.
+El total de las pensiones por viudez y orfandad que deban otorgarse con respecto al fallecimiento de un mismo funcionario, no podrá exceder el ciento por ciento (100%) de la pensión que le hubiera correspondido al difunto.
+Si el total de derechos excede el total del derecho de pensión que disfrutaba o hubiera podido disfrutar el causante, se prorrateará entre los beneficiarios.
+En el caso de que en las pensiones por supervivencia, correspondientes a un mismo funcionario causante, concurran pensiones por viudez y por orfandad, corresponderá a las pensiones por viudez un mínimo equivalente a la mitad del monto por prorratear; la mitad restante se distribuirá entre las pensiones por orfandad.

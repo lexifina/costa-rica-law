@@ -1,1 +1,3 @@
-Artículo 17.- La eventual promulgación de una Ley General de Pensiones y Jubilaciones del sector público, deberá respetar los derechos, beneficios y otras concesiones que se adquieren al amparo de esta Ley, según las disposiciones del Convenio Básico de Educación Centroamericana, ratificado por la Ley No. 3726 del 16 de agosto de 1966.
+SECCION II
+Réditos
+Artículo 17.- Ingresos por réditos. Los réditos, producto de la inversión del Fondo de Capitalización, ingresarán a ese mismo Fondo.

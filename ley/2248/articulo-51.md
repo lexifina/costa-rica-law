@@ -1,0 +1,3 @@
+Artículo 51.- Rehabilitación y restitución. En caso de que los exámenes de revisión indiquen que el funcionario ha recuperado su capacidad, será restablecido en su puesto original, si así lo solicita expresamente y si es posible.
+De no hacer efectiva esta opción, la relación de servicio se tendrá por resuelta, sin responsabilidad laboral por parte del Estado.
+Si es imposible restituir al funcionario en su puesto original, se reintegrará en una plaza de características similares. La restitución no originará, para el restituido, derecho a reclamar, por razón de antigüedad, los aumentos salariales correspondientes al período en que estuvo pensionado.

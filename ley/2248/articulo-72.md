@@ -1,0 +1,2 @@
+Artículo 72.- La determinación de las cotizaciones futuras. Las tasas de cotización establecidas en los artículos anteriores, entrarán en vigencia en la fecha de publicación de la presente ley y serán las mínimas necesarias aquí establecidas.
+El Poder Ejecutivo, por vía de decreto, podrá aumentar las cotizaciones hasta la tasa que corresponda, cuando los estudios actuariales así lo recomienden; todo de conformidad con lo indicado en tales estudios.

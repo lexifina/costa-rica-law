@@ -1,0 +1,1 @@
+Artículo 83.- Deber de certificar. Todas las oficinas y dependencias públicas y privadas estarán obligadas a certificar, con la mayor brevedad, lo que el órgano director les solicite, y bajo pena del delito de desobediencia, contemplado en el artículo 305 del Código Penal, en caso de negación injustificada.
