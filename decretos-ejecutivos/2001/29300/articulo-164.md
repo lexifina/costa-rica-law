@@ -1,0 +1,1 @@
+Artículo 164.—De la inscripción. Una vez notificada la resolución de otorgamiento de la autorización el Ministerio del Ambiente y Energía inscribirá de oficio la misma, en el libro de inscripciones del Registro Nacional Minero, a efecto de terceros.

@@ -1,0 +1,1 @@
+Artículo 154.—Del procedimiento. Inspección. Una vez recibida la información anterior, la Dirección de Geología y Minas, realizará una inspección al sitio, con el fin de verificar las obras a realizar. Los gastos de la inspección serán cubiertos por el órgano interesado.

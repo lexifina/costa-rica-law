@@ -1,0 +1,1 @@
+Artículo 122.—Del material a extraer. El ente autorizado está obligado a extraer únicamente el material que le ha sido aprobado por la DGM. En caso de que se requiera mayor cantidad de material o se desee aprovechar otro distinto del autorizado, deberá solicitar una nueva autorización con su correspondiente estudio técnico.

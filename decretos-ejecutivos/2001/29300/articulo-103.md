@@ -1,0 +1,4 @@
+CAPÍTULO III
+De las sanciones
+Artículo 103.—Suspensión de labores. Medida cautelar. A juicio de la DGM, y ante incumplimiento de las obligaciones a cargo del permisionario o concesionario, o de provocarse daño ambiental, la DGM podrá ordenar, como medida cautelar, la suspensión inmediata de las labores que se estén llevando a cabo.
+La Dirección de Geología y Minas, por medio del Registro Nacional Minero, mediante notificación otorgará un plazo para que cumpla sus obligaciones, el cual no podrá ser mayor de tres meses y cuya fijación se establecerá atendiendo a la gravedad de los incumplimientos. Si el permisionario no cumpliere dentro del plazo otorgado con lo prevenido o lo presentara en forma incorrecta o incompleta, la Dirección de Geología y Minas, procederá a declarar la cancelación del permiso o concesión.

@@ -1,0 +1,6 @@
+Artículo 7º—Registro Nacional Minero. Corresponderán al Registro Nacional Minero, además de las funciones contenidas en el Código de Minería, las siguientes funciones:
+1. Recibir y tramitar las solicitudes de permisos de exploración y concesión de explotación minera de materiales mineros, así como las solicitudes de autorización de traspasos, renuncias, nulidades, servidumbres, denuncias y en general todo aquello que se relacione con el trámite de permisos y concesiones, su ejercicio y extinción.
+2. Mantener actualizado el Catastro Minero, que consta de las Hojas Cartográficas del I.G.N. Este catastro podrá ser consultado por el público en general.
+3. Custodiar los libros de registro establecidos en el artículo 106 del Código de Minería, y mantenerlos a disposición de consulta pública.
+4. Emitir las certificaciones que se soliciten ante el RNM, para cuyo efecto se deberán adjuntar los timbres de Ley por parte del interesado. Una vez recibida la solicitud el RNM la expedirá dentro de los tres días hábiles siguientes.
+Los expedientes administrativos son de consulta pública, y podrán ser solicitados por cualquier persona debidamente identificada. Asimismo cualquier persona puede solicitar fotocopias de los expedientes y obtenerlas dentro de los horarios fijados por el RNM, corriendo con el costo de las mismas.

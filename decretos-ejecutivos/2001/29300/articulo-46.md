@@ -1,0 +1,1 @@
+Artículo 46.—De la ampliación de área. Todo permisionario o concesionario tiene derecho a solicitar ampliación del área otorgada en el permiso o concesión, siempre que ésta no exceda los límites establecidos en el Código de Minería.

@@ -1,0 +1,1 @@
+Artículo 131.—Del otorgamiento de la autorización. Cumplido este trámite, la D.G.M. remitirá el expediente ante el Ministro del Ambiente y Energía con el oficio de recomendación de otorgamiento de la autorización, la que contendrá las condiciones técnicas bajo las que se deberá realizar la explotación. El Poder Ejecutivo contará con 15 días para emitir el acto final.

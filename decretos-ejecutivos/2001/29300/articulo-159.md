@@ -1,0 +1,2 @@
+Artículo 159.—Casos de emergencia. En casos de emergencia nacional debidamente declarada, bastará con que el órgano solicitante comunique a la Dirección de Geología y Minas, las labores que deberá realizar y el sitio donde se realizarán.
+El órgano estará en la obligación de presentar copia del Plan Regulador de Emergencias dentro de los seis meses siguientes a la declaratoria de emergencia emitida por el Poder Ejecutivo.

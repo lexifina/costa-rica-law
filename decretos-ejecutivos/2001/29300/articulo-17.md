@@ -1,0 +1,1 @@
+Artículo 17.—Canteras. En el caso de canteras en que la unidad de medida del área podrá ser inferior a un kilómetro cuadrado, la concesión debe ajustarse a los limites programados por los planos catastrados de la propiedad.

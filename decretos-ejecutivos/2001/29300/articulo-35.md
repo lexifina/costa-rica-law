@@ -1,0 +1,1 @@
+Artículo 35.—De los edictos. Una vez cumplidos a cabalidad los requisitos enlistados en los artículos anteriores, dentro del plazo de ocho días, el RNM confeccionará los edictos correspondientes, conforme lo establece el artículo 76 del Código de Minería.

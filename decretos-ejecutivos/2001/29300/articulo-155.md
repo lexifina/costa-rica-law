@@ -1,0 +1,2 @@
+Artículo 155.—Del otorgamiento de la autorización. Cumplido este trámite, la D.G.M. remitirá, en un plazo máximo de ocho días, el expediente ante el Ministro del Ambiente y Energía con la resolución de recomendación de otorgamiento de la autorización, la que contendrá las condiciones técnicas bajo las que se deberá realizar la explotación.
+La resolución de autorización la que será firmada por el Presidente de la República y el Ministro del Ambiente y Energía.

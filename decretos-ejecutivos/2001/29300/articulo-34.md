@@ -1,0 +1,1 @@
+Artículo 34.—Remisión al Departamento de Aguas del MINAE. Solicitudes de concesión de explotación en cauces de dominio público. Tratándose de solicitudes de concesión de explotación en cauces de dominio público, de previo a la confección y publicación de los Edictos, el expediente administrativo será remitido en consulta al Departamento de Aguas del MINAE.

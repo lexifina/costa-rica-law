@@ -1,0 +1,1 @@
+Artículo 50.—Remisión al Departamento de Aguas del MINAE. Tratándose de solicitudes de ampliación de área en concesiones de explotación en cauces de dominio público, de previo a la confección y publicación del Edicto, el expediente administrativo será remitido en consulta al Departamento de Aguas del MINAE.

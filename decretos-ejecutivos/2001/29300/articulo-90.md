@@ -1,0 +1,3 @@
+Artículo 90.—Pago de la tasa del 10% artículo 36 código de minería. Conforme lo establece el artículo 36 del Código de Minería, todo concesionario de explotación de canteras, debe cancelar una tasa del 10% del valor en el mercado, por metro cúbico extraído de arena, piedra, lastre y derivados de éstos, a la Corporación Municipal, en cuya jurisdicción se encuentre la explotación.
+Cada seis meses, el concesionario deberá presentar al expediente administrativo, constancia extendida por la Municipalidad correspondiente indicando que se encuentra al día con el pago de la tasa indicada.
+El incumplimiento a lo anterior, será causal de cancelación de conformidad con el artículo 63 del Código de Minería.

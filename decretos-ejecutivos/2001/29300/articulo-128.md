@@ -1,0 +1,6 @@
+SECCIÓN VI
+Autorizaciones para proyectos menores y específicos
+de los requisitos y procedimiento
+Artículo 128.—Definición. Se consideran como proyectos menores y específicos todas aquellas obras o tareas que sean necesarias para atender situaciones ocasionadas por procesos geodinámicos, tales como: derrumbes, deslizamientos, procesos erosivos, colapsos de alcantarillas, colapso de puentes, rellenos de aproximación y otros que se consideren como tales por la DGM y así lo justifique el ente solicitante. También se consideran proyectos menores la reparación y mantenimiento de caminos y carreteras existentes.
+Será necesario que los trabajos sean puntuales, por un plazo máximo de cuatro meses, y con un volumen máximo a extraer o remover de 20.000 metros cúbicos.
+Queda excluido de este procedimiento las situaciones debidamente declaradas como emergencia nacional por el Poder Ejecutivo.
