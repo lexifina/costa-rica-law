@@ -1,0 +1,1 @@
+Artículo 8°-Los beneficios del régimen de dedicación exclusiva se suspenderán en el momento en que falte por lo menos uno de los requisitos establecidos en el artículo 3° de este reglamento. En tal evento, la institución respectiva deberá comunicarlo oficialmente a la Dirección General de Servicio Civil.

@@ -1,0 +1,1 @@
+Transitorio I-.En tanto no se cumpla con el acuerdo 9° de la sesión de la Autoridad Presupuestaria 1 del 24-1-83, cada Institución definirá el b) del artículo 3° de conformidad con su manual de clasificación de puestos. En caso de duda, previo al envió del contrato para su aprobación, podrá solicitar el criterio de la Dirección General de Servicio Civil.

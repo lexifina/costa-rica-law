@@ -1,0 +1,2 @@
+Artículo 13.-La Dirección General de Servicio Civil, por medio de su Departamento de Registro y Control, aprobará o improbará los contratos de dedicación exclusiva en un plazo no mayor de diez días hábiles contados a partir de la fecha de presentación.
+Una vez aprobado el contrato en referencia, las instituciones procederá a confeccionar la acción de personal, la cual deberá seguir el trámite usual que rige para cada institución.

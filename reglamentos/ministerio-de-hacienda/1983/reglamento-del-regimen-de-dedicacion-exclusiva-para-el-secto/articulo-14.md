@@ -1,0 +1,1 @@
+Artículo 14.-La Dirección General de Servicio Civil, por medio de su Departamento de Auditoría Administrativa verificará-cuando lo considere conveniente y de conformidad con los procedimientos que al respecto establezca- el fiel cumplimiento de todas las disposiciones contenidas en este reglamento.

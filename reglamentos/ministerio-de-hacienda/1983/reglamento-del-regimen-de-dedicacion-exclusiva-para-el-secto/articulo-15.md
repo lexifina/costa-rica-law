@@ -1,0 +1,1 @@
+Artículo 15.-El incumplimiento, por parte del beneficiario, de los establecido en el presente reglamento en cuanto a la dedicación exclusiva, se considerará como infracción grave a la relación de servicio y por tanto, será causal de despido sin responsabilidad patronal, sin prejuicio de la responsabilidad penal y administrativa que pudiere generarse con base en dicho reglamento.

@@ -1,0 +1,1 @@
+Artículo 6°-Los funcionarios designados para integrar el comité, a que se refiere el artículo anterior, deberán desempeñar puestos a tiempo completo y tener amplios conocimientos de la ley constitutiva, de reglamento interno de trabajo, de la estructura orgánica, de los sistemas de clasificación de puestos, así como de la administración de personal de la institución.
