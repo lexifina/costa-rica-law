@@ -1,0 +1,1 @@
+Artículo 2°.-Los sujetos que gozan de los beneficios otorgados al amparo del decreto N° 16924-MEC, conservarán esas condiciones siempre y cuando su contrato de exportación se encuentre vigente y cumplan, además con los requisitos exigidos en el momento de otorgarles el beneficio.
