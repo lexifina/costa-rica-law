@@ -1,0 +1,1 @@
+Art. 2. Se devuelve al pueblo la eleccion para que la repita en los dias I0, I1 y 12 del inmediato mes de mayo, por lo que mira á un Senador propietario y un suplente, y dos Magistrados propietarios; arreglandose para el caso á las disposiciones concernientes de la Constitucion y ley reglamentaria de elecciones de 14 de mayo de 1844.
