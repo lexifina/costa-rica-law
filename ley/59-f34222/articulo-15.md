@@ -1,6 +1,1 @@
-Artículo 15.- Solamente el Instituto Geográfico podrá publicar o
-reproducir con fines comerciales los trabajos de lenvatamiento o
-cartografía que se ejecuten dentro del territorio nacional. Si sus
-autores son personas o entidades particulares el Instituto, de acuerdo
-con ellos, fijará la indemnización correspondiente o su forma de
-explotación comercial.
+Artículo 15.- Solamente el Instituto Geográfico podrá publicar o reproducir con fines comerciales los trabajos de lenvatamiento o cartografía que se ejecuten dentro del territorio nacional. Si sus autores son personas o entidades particulares el Instituto, de acuerdo con ellos, fijará la indemnización correspondiente o su forma de explotación comercial.
