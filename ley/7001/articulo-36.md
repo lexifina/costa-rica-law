@@ -1,23 +1,23 @@
 CAPITULO XI
 Patrimonio
 Artículo 36.- Formarán parte del patrimonio del Instituto:
-a) Los terrenos, edificios, estructuras, equipos, material rodante y,
-en general, todos los bienes inmuebles que estén o hayan estado destinados
-a actividades ferroviarias o conexas con éstas, como patios ferroviarios,
-bodegas, casas y edificios que integraron o integren el patrimonio del
-Instituto Autónomo del Ferrocarril Eléctrico al Pacífico, a los
-Ferrocarriles del Atlántico o a cualquier otra institución pública que los
-tenga bajo su dominio o posesión por cualquier título. Estos bienes deberán
-ser traspasados en propiedad al Instituto, conforme con las previsiones
-establecidas en el transitorio I de esta ley.
+a) Los terrenos, edificios, estructuras, equipos, material rodante
+y, en general, todos los bienes inmuebles que estén o hayan estado
+destinados a actividades ferroviarias o conexas con éstas, como patios
+ferroviarios, bodegas, casas y edificios que integraron o integren el
+patrimonio del Instituto Autónomo del Ferrocarril Eléctrico al Pacífico,
+a los Ferrocarriles del Atlántico o a cualquier otra institución pública
+que los tenga bajo su dominio o posesión por cualquier título. Estos
+bienes deberán ser traspasados en propiedad al Instituto, conforme con
+las previsiones establecidas en el transitorio I de esta ley.
 b) Las utilidades que se obtengan de la explotación de los
 ferrocarriles y sus obras conexas y de la ejecución de los actos que le
 competan.
-c) Las regalías o derechos convencionales que corresponda pagar a las
-empresas particulares sujetas a contratos de concesión relacionados con la
-actividad ferroviaria.
-ch) Las sumas incluidas a su favor en los presupuestos ordinarios del
-Poder Ejecutivo o de cualquier otra institución del Estado.
+c) Las regalías o derechos convencionales que corresponda pagar a
+las empresas particulares sujetas a contratos de concesión relacionados
+con la actividad ferroviaria.
+ch) Las sumas incluidas a su favor en los presupuestos ordinarios
+del Poder Ejecutivo o de cualquier otra institución del Estado.
 d) Los aportes, subsidios o donaciones que sociedades o particulares
 le hagan para el cumplimiento de sus objetivos.
 e) Sus fondos y valores líquidos.
