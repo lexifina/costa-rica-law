@@ -15,3 +15,4 @@ Reglamento de las Juntas de Salud.
 | --- | --- | --- |
 | 1 | 1999-07-19 | la propia norma |
 | 2 | 2001-10-04 | Reglamento 7587 (2001-10-04) |
+| 3 | 2003-09-04 | Reglamento 7786 (2003-09-04) |
