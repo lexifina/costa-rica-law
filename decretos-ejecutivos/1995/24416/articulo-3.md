@@ -1,24 +1,2 @@
-Artículo 3º.- Los extranjeros no residentes, por el concepto anterior, pagarán las siguientes tarifas diarias:
-a. Quince dólares USA ($ 15,00) o su equivalente en colones, quienes adquieran el tiquete en la entrada de las áreas silvestres, el día de ingreso.
-b. Quienes adquieran el tiquete, en las oficinas centrales o en la entrada de las áreas silvestres, con un mínimo de 1 día de anticipación, pagarán la siguiente tarifa diaria:
-1.- Diez dólares USA ($ 10,00) o su equivalente en colones, en las siguientes áreas silvestres:
-Parque Nacional Manuel Antonio
-Parque Nacional Volcán Irazú
-Parque Nacional Santa Rosa
-Parque Nacional Volcán Poás
-Parque Nacional Chirripó
-Reserva Biológica Carara
-Reserva Biológica Isla del Caño
-2.- Siete dólares USA ($ 7,00) o su equivalente en colones, en las
-siguientes áreas silvestres:
-Parque Nacional Braulio Carrillo
-Parque Nacional Palo Verde
-Parque Nacional Tortuguero
-Parque Nacional Corcovado
-Sector Tapanti del Parque Nacional Talamanca
-Parque Nacional Cahuita
-Parque Nacional Volcán Arenal
-Parque Nacional Rincón de la Vieja
-Reserva Natural Absoluta Cabo Blanco
-Monumento Nacional Guayabo
-3.- Cinco dólares USA ($ 5,00) o su equivalente en colones, en las demás áreas silvestres bajo la administración del Servicio de Parques Nacionales.
+Artículo 3º.- Por derecho de ingreso a los parques nacionales y reservas biológicas, los visitantes extranjeros no residentes, pagarán por el concepto de ingreso a los mismos, un monto de seis dólares, moneda de los Estados Unidos de América (USD $ 6,00).
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo No. 25045 de 20 de marzo de 1996, publicado en La Gaceta 64 de 01 de abril de 1996.)

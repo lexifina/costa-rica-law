@@ -14,3 +14,4 @@ Tarifas de Ingreso a Áreas Silvestres Protegidas de Parques Nacionales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-12 | la propia norma |
+| 2 | 1996-03-20 | Decreto Ejecutivo 25045 (1996-03-20) |

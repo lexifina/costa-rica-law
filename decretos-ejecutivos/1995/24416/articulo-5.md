@@ -1,2 +1,1 @@
-Artículo 5º.- El Servicio de Parques Nacionales, podrá emitir y vender además un "pase especial", por un valor de veintinueve dólares USA ($ 29,00) o su equivalente en colones.
-Este "pase especial" tendrá una validez de treinta días naturales, contados a partir del ingreso a la primer área silvestre y da derecho para que una persona visite cuatro áreas silvestres diferentes y una adicional que se indicará expresamente en el "pase especial" o para que cuatro personas visiten a la vez cualquier área silvestre administrada por el Servicio de Parques Nacionales.
+Artículo 5º.- DEROGADO TOTAL Y EXPRESAMENTE por el artículo 2 del Decreto Ejecutivo 25045 de 20 de marzo de 1996, publicado en La Gaceta No 64 de 01 de abril de 1996.
