@@ -1,7 +1,4 @@
-ARTICULO 5.- Sanción por vender bebidas alcohólicas a menores
-Será sancionado con multa equivalente a diez salarios base, quien
-venda bebidas alcohólicas a menores de edad.
-Quien tolere la permanencia de menores dentro de un establecimiento
-cuya actividad principal sea la venta de bebidas alcohólicas, sea como
-propietario, administrador, responsable o dependientes, será sancionado
-con multa equivalente a cinco salarios base.
+ARTICULO 5.- Sanción por vender bebidas alcohólicas a menores.
+Será sancionado con multa equivalente a diez salarios base, quien venda bebidas alcohólicas a menores de edad.
+Quien tolere la permanencia de menores dentro de un establecimiento cuya actividad principal sea la venta de bebidas alcohólicas, sea como propietario, administrador, responsable o dependientes, será sancionado con multa equivalente a cinco salarios base.
+(Mediante resolución 3445-00 de las 15:18 horas del 26/04/2000, la sanción establecida en este artículo fue declarada inconstitucional, en cuanto dispone una multa fija por vender bebidas alcohólicas a menores, por lo que la Sala consideró que el legislador debería establecer una sanción con mínimos y máximos dentro de los cuales el juzgador pueda valorar la aplicación de la sanción para cada caso en particular)
