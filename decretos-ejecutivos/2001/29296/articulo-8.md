@@ -1,0 +1,1 @@
+Artículo 8º—Límite para el Campo Eléctrico. Las obras de transmisión deberán ser diseñadas y operadas de tal manera que la magnitud del campo eléctrico no exceda los 2 000 voltios/metro en el borde de las servidumbres.

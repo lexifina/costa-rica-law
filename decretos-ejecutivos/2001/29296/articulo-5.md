@@ -1,0 +1,1 @@
+Artículo 5º—Autoridad Reguladora de los Servicios Públicos. La Autoridad Reguladora de los Servicios Públicos (ARESEP), regulará los aspectos relacionados con la prestación de servicio público de transimión de energía eléctrica que la vinculen con este reglamento, en los términos establecidos en la Ley 7593 del ARESEP.

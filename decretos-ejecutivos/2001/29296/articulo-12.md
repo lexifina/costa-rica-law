@@ -1,0 +1,1 @@
+Artículo 12.—Ancho de Servidumbre. El ancho de la servidumbre se determinará en consideración a la seguridad de las personas y de las estructuras de soporte, así como a la distancia requerida para mantener la medición de los campos eléctrico y magnético para exposiciones permanentes.

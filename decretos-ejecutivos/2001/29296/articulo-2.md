@@ -1,0 +1,1 @@
+Artículo 2º—Obligatoriedad. La aplicación de este reglamento es obligatoria para el Instituto Costarricense de Electricidad y para cualquier otro prestador del servicio público de transporte de energía eléctrica a alta tensión.

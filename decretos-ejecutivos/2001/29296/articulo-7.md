@@ -1,0 +1,7 @@
+Artículo 7º—Obligaciones ambientales generales de los Prestatarios del Servicio Público de Transmisión de Energía Eléctrica. Los prestatarios del servicio público de transmisión de electricidad, deberán observar los siguientes lineamientos generales, en las etapas de planeamiento, diseño, construcción, operación y mantenimiento de las obras de transmisión de electricidad:
+a) A partir del momento en que se tenga el trazado preliminar de la línea, debe informarse e involucrase a las comunidades ubicadas en las zonas aledañas a las obras de transmisión.
+b) Ajustarse al Estudio de Impacto Ambiental (EIA) para cortar la menor cantidad de árboles posible y producir la mínima cantidad de desechos, vertidos, ruido y emisiones a la atmósfera.
+c) Aplicar las mejores prácticas de protección al ambiente conforme lo establezca el EIA, tanto para evitar los eventuales daños, como para restaurar en lo posible los daños que se produjeren.
+d) Colaborar con las instituciones estatales a cargo de la protección de los recursos naturales, en la mitigación y compensación de los impactos producidos por el proyecto de transmisión.
+e) Ejercer estrecha vigilancia sobre las empresas que contrate para el desarrollo, construcción o mantenimiento de las instalaciones de transmisión, a fin de que ellas apliquen en el desarrollo de sus actividades, las mejores prácticas de protección al ambiente.
+f) Tomar las previsiones para que se apliquen fielmente las medidas de seguridad e higiene laboral.

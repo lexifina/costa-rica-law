@@ -1,0 +1,1 @@
+Artículo 18.—Actividades de mantenimiento. Las actividades normales de mantenimiento deberán efectuarse de tal manera que se minimicen los daños al medio ambiente, así como las posibles molestias a los habitantes de zonas aledañas a las instalaciones.

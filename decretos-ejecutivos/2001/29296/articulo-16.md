@@ -1,0 +1,2 @@
+Artículo 16.—Señalización para la seguridad de las personas. Para efectos de seguridad de las personas, el prestatario del servicio de transmisión, deberá instalar claras señales que adviertan la presencia de instalaciones de transmisión, así como dispositivos "antiescalamiento" donde sea requerido o bien, sea recomendado en el estudio de impacto ambiental.
+En áreas cercanas a aeropuertos, campos de fumigación, etc. se deberá instalar señales de advertencia aérea y cumplir los requerimientos de la Dirección General de Aviación Civil.
