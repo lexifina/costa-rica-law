@@ -5,12 +5,13 @@ c) Se conceden para el desarrollo de programas privados que, por cualquier medio
 ch) Se conceden a las instituciones y empresas públicas o privadas que se dediquen, en el país, al abastecimiento de agua potable para usos domiciliario, industrial y para el consumo humano, así como a la recolección, tratamiento y disposición de aguas negras y pluviales o servidas, subterráneas y de cualquier otra clase y a las actividades colaterales y complementarias de estas.
 d) Se conceden en favor de instituciones, fundaciones y asociaciones sin actividades lucrativas, que se dediquen a la atención integral de menores de edad en estado de abandono, deambulación o en riesgo social y que estén debidamente inscritas en el Registro Público.
 e) Se conceden en favor de instituciones, empresas públicas y privadas, fundaciones y asociaciones sin actividades lucrativas que se dediquen a la recolección y tratamiento de basura y a la conservación de los recursos naturales y del ambiente, así como a cualquier otra actividad básica en el control de la higiene ambiental y de la salud pública.
-f) Se establecen en el artículo 141 de la Ley Nº 7033 del 4 de agosto de 1986 y sus reformas, así como en el artículo 46 bis de la Ley Nº 6955 del 24 de febrero de 1984 (Exención de Derechos Migratorios y Delegaciones Oficiales).
+f) Se establecen en el artículo 141 de la Ley Nº 7033 del 4 de agosto de 1986 y sus reformas, así como en el artículo 46 bis de la Ley Nº 6955 del 24 de febrero de 1984 (Exención de Derechos Migratorios yDelegaciones Oficiales).
 g) Se establecen en la Ley Nº 7167 de 13 de junio de 1990.
 h) Se indican en la Ley Forestal, Nº 7174 del 28 de junio de 1990, excepto las contenidas en el artículo 87 inciso ch), artículo 91 y artículo 98 inciso a).
 i) Se establecen en la Ley Nº 1411 del 19 de enero de 1952 y sus reformas.
 j) Se establecen en el artículo 3 de la Ley Nº 7017 del 16 de diciembre de 1985.
 k) Se otorguen mediante la Ley de Zonas Francas Nº 7210 del 23 de noviembre de 1990, excepto los beneficios para las empresas mencionadas en el inciso ch) del artículo 17.
+(TÁCITAMENTE modificado por el artículo 1, inciso e), de la ley No.7830 de 22 de setiembre de 1998, al indicar las exoneraciones que gozarán las empresas que allí se mencionan)
 l) Se hayan otorgado al Poder Ejecutivo, al Poder Judicial, al Poder Legislativo, al Tribunal Supremo de Elecciones, a las instituciones descentralizadas, a las municipalidades, a las empresas públicas estatales y municipales y a las universidades estatales.
 ll) Se establecen en la Ley Nº 7044 del 29 de setiembre de 1986 (Ley de Creación de la Escuela de Agricultura de la Región Tropical Húmeda).
 m) Se establecen en los incisos k) y l), del artículo 1, en el artículo 9 (reformado por esta Ley) y en el artículo 17 de la Ley Nº 6826 del 8 de noviembre de 1982 y sus reformas, Ley de Impuesto General sobre las Ventas.
@@ -21,3 +22,5 @@ p) Se establecen en la Ley Nº 3859 del 7 de abril de 1967 (Ley de Asociaciones 
 q) Se establecen en la Ley No. 7157 del 19 de junio de 1990 (Ley de Creación de la Ciudad de los Niños).
 r) Se otorgan en el artículo No. 23 de la Ley No. 4895 y sus reformas (Ley de la Corporación Bananera Nacional).
 s) Se establecen en la Ley Nº 4233 del 14 de noviembre de 1968 a favor de la Secretaría Ejecutiva del Consejo Monetario Centroamericano y sus funcionarios.
+t) Se establecen, en la Ley general de arrendamientos urbanos y suburbanos, bonos para el régimen de promoción de edificaciones destinadas al arrendamiento de viviendas de carácter social.
+(Inciso adicionado por el artículo 134 de la Ley de Arrendamientos Urbanos, Nº 7527 de 10 de julio de 1995)

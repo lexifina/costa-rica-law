@@ -1,2 +1,3 @@
 Artículo 25.- El Banco Popular y de Desarrollo Comunal pagará, por concepto del impuesto sobre la renta, un quince por ciento (15%) sobre la renta neta del Banco.
-Se autoriza al Poder Ejecutivo para que, por medio del Ministerio de Hacienda, pueda compensar las deudas recíprocas entre el Banco Popular yde Desarrollo Comunal y el Gobierno Central, por concepto del impuesto sobre la renta y de la cuota patronal.
+(NOTA DE SINALEVI: Según dictamen No. C-063-2004 de 24 de febrero de 2004, punto 3 de la conclusión, el párrafo anterior ha sido derogado en forma implícita por la Ley N° 7722 de 9 de diciembre de 1997).
+Se autoriza al Poder Ejecutivo para que, por medio del Ministerio de Hacienda, pueda compensar las deudas recíprocas entre el Banco Popular y de Desarrollo Comunal y el Gobierno Central, por concepto del impuesto sobre la renta y de la cuota patronal.
