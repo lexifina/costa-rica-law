@@ -1,0 +1,1 @@
+Artículo 35.- Exceptúanse de esta franquicia los impresos de la localidad para su distribución en la ciudad, Solamente los que vayan dirigidos a personas abonadas en la sección de apartados disfrutarán de libre porte.

@@ -1,0 +1,1 @@
+Artículo 55.-La correspondencia multada no le será entregada a su destinatario si éste no satisface antes la multa. El Administrador de Correos que reciba una pieza multada se apresurará a avisarlo a su destinatario, conforme al uso establecido.

@@ -1,0 +1,1 @@
+Artículo 58.-En ningún caso se les dejará de dar curso a las piezas de correspondencia insuficientemente franqueadas. Exceptúanse las que se encuentran en casos previstos por tratados internacionales vigentes .

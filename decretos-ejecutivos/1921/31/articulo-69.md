@@ -1,0 +1,1 @@
+Artículo 69.-Tados los empleados de Correos que manejen fondos o valores, rendirán ante el Ministerio Público fianza suficiente para responder de cualquier pérdida o irregularidad de los fondos del ramo por ellos manejados.

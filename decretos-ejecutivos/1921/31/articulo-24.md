@@ -1,0 +1,1 @@
+Artículo 24.- Se permite la circulación de tarjetas postales no oficiales siempre que sean convenientemente franqueadas por medio de sellos de correo y tengan la misma consistencia de las emitidas por el Gobierno.

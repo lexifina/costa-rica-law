@@ -1,0 +1,1 @@
+Artículo 125.- Todos los talonarios de arriendo de apartado y depósito de llaves deben ser llevados con claridad, y sus anotaciones hechas con tinta. Todos los recibos deben llevar el sello fechador de la oficina.

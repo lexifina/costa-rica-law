@@ -1,0 +1,1 @@
+Artículo 155.-En el sobre de los objetos que han de certificarse, debe escribirse el nombre y dirección con toda claridad: No se certificarán los objetos cuya dirección haya sido escrita con lápiz o muestre raspaduras.

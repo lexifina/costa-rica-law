@@ -1,0 +1,1 @@
+Artículo 94.- Los Administradores de Correos, al recibir la correspondencia de otra oficina postal, inmediatamente procederán a sellarla con el sello fechados, colocándolo en cada una de las cartas de modo que abarque de preferencia las junturas del sobre.

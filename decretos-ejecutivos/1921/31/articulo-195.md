@@ -1,0 +1,1 @@
+Artículo 195.-Si la Administración de Correos no hubiese hecho llegar por el primer correo el boletín de verificación de Ios errores por ella anotados en el despacho de la correspondencia, será de hecho responsable de tal irregularidad.

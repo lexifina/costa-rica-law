@@ -1,0 +1,1 @@
+Artículo 104.- De toda orden de detención dictada contra un empleado de correos, la autoridad respectiva dará de inmediato aviso a la Administración de Correos, indicando las causas que dieron lugar al arresto.

@@ -1,0 +1,1 @@
+Artículo 150.-Los Administradores de Correos guardarán en su poder esta clase de correspondencia hasta que su dueño se presente a reclamarla, siempre que tal reclamación se efectúe antes del término fijado para su devolución y rezago.

@@ -1,0 +1,1 @@
+Artículo 116.- Los precios de la tarifa de arriendo de apartados será exclusivamente fijada por la Dirección General, con la correspondiente aprobación de la Secretaría de Gobernación; sin este requisito, será nula.

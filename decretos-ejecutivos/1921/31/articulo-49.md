@@ -1,0 +1,1 @@
+Artículo 49.- Es correspondencia particular, y por lo tanto debe franquerarse, la de persona o personas que no tengan ningún carácter público, aunque vaya dirigida al Presidente de la República, los Secretarios de Estado, etc.
