@@ -1,0 +1,1 @@
+Artículo 21.-Las partidas englobadas o asignadas por año, deben considerarse formadas por doce cuotas iguales, con el fin de que los gastos de un mes no restrinjan el crédito disponible para los meses sucesivos. Podrá aprovecharse el remanente de meses anteriores del mismo año, pero nunca tomar las cuotas de meses por venir.

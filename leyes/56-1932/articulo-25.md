@@ -1,0 +1,1 @@
+Artículo 25.-Los pensionados a cargo del Erario no pueden cobrar del Tesorero Nacional otro giro por sueldos o retribución de servicios, a menos que suspendan su derecho a la pensión. Se exceptúan los que prestan servicios a la enseñanza nacional. Queda derogado el artículo 5° del decreto N° 33 del 17 de julio de 1912.
