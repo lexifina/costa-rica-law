@@ -1,1 +1,0 @@
-Artículo 5°-No podrán designarse como miembros de la Comisión a quienes estén ligados entre sí por parentesco consanguíneo directo o colateral hasta el tercer grado inclusive o por vínculo de afinidad hasta segundo grado inclusive.

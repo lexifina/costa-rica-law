@@ -1,1 +1,0 @@
-Artículo 11-Las resoluciones se tomarán por simple mayoría. Sin embargo cuando hubiere solamente tres miembros presentes, de acuerdo con el artículo 6°, deberá haber conformidad absoluta y si no se lograra, el asunto deberá votarse en la próxima sesión.

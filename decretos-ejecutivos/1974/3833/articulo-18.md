@@ -1,1 +1,0 @@
-Artículo 18-Los miembros de la Comisión, asesores, funcionarios públicos y los particulares que sean admitidos a sesión deberán guardar absoluta reserva acerca de las deliberaciones y votaciones que han dado motivo a la resolución de fondo.

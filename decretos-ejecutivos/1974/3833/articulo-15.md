@@ -1,1 +1,0 @@
-Artículo 15.-Cuando por justa causa un miembro de la Comisión no pudiere asistir a una sesión, deberá comunicarlo al Secretario del mismo con la anticipación debida, lo cual deberá ser del conocimiento de los demás miembros Comisión.

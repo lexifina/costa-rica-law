@@ -1,1 +1,0 @@
-Articulo 17.-Las sesiones serán privadas y a ellas concurrirá, aparte de los miembros de la Comisión, el Secretario de Actas. A requerimiento de la Comisión podrán asistir otras personas que por sus conocimientos técnicos o por su vinculación con el asunto en estudio, se encuentren en posibilidad de aportar mayores elementos de juicio para resolver.

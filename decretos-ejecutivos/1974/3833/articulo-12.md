@@ -1,1 +1,0 @@
-Artículo 12. -Los miembros de la Comisión no podrán estar presentes en las sesiones mientras se conozca algún asunto en que esté interesado un pariente suyo, hasta el cuarto grado inclusive, o que interesen a empresas o sociedades en que tengan relación o interés, o sean socios sus parientes
