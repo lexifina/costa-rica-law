@@ -1,0 +1,1 @@
+Artículo 3°—Período de la adjudicación. La adjudicación de los peritos, se hará por un período de 2 años, el cual puede ser renovable a opción exclusiva de CONAPE. Se deberá firmar un contrato entre el adjudicatario y CONAPE, en el cual se regularán las condiciones de la prestación de los servicios.

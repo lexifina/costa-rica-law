@@ -1,0 +1,1 @@
+Artículo 13.—Garantías. Los Adjudicatarios deberán presentar una Garantía de cumplimiento, por cualquiera de los medios establecidos en la Ley de Contratación Administrativa y su Reglamento, la cual tendrá vigencia por todo el período que el Adjudicatario preste sus servicios profesionales.

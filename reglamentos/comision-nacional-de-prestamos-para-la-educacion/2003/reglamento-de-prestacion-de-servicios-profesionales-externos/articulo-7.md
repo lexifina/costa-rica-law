@@ -1,0 +1,1 @@
+Artículo 7°—Rescisión del Contrato. De acuerdo con las potestades que le confiere el Artículo 13 del Reglamento General de la Contratación Administrativa, cuando CONAPE lo considere oportuno, podrá rescindir total o parcialmente la lista de Adjudicatarios, así como efectuar nuevos procedimientos de Contratación.

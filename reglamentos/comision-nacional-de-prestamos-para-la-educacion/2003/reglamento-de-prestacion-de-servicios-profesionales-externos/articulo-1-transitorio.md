@@ -1,0 +1,1 @@
+Transitorio 1º—Las firmas o personas que actualmente efectúan los avalúos a los solicitantes de créditos para estudio, seguirán en sus funciones hasta diez días hábiles posteriores a que el acto de adjudicación de cualquier nuevo concurso, se encuentre firme.

@@ -1,0 +1,1 @@
+Artículo 22.—Derogatoria. El presente Reglamento deroga el anterior Reglamento de Prestación de servicios profesionales externos para la elaboración de avalúos a bienes inmuebles ofrecidos en garantía de los créditos que otorga CONAPE.

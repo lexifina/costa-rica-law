@@ -1,0 +1,1 @@
+Artículo 14.—Imposibilidad de trámite. En la eventualidad de no poder establecerse contacto con el solicitante del crédito o de no poder ubicar el terreno por valorar, el Adjudicatario deberá comunicarlo por escrito al Departamento de Crédito en un plazo no mayor de cinco días hábiles posteriores al conocimiento de tal situación.

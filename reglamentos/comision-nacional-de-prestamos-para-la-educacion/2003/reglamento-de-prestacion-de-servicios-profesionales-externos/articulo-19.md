@@ -1,0 +1,3 @@
+Artículo 19.—Honorarios. El monto que por concepto de honorarios cobrarán los adjudicatarios a los prestatarios de CONAPE que soliciten sus servicios, no podrán ser superiores a los establecidos por los Colegios profesionales respectivos.
+Para efectos de desplazamientos que excedieren los veinte kilómetros del lugar de la oficina del adjudicatario, éste podrá cobrar kilometraje, de acuerdo con la tarifa para el pago de kilómetros recorridos, establecida por la Contraloría General de la República.
+No es procedente y se considerará falta grave del adjudicatario, el cobro de cualquier otra suma adicional a las indicadas en este artículo.
