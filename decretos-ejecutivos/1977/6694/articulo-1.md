@@ -1,0 +1,12 @@
+N° 6694-MEIC
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO,
+Resultando:
+1°.- Que la firma “Mecanizada Centroamericana Limitada”, se le concedió beneficios fiscales de conformidad con el Convenio Centroamericano de incentivos Fiscales de conformidad con el Convenio Centroamericano de Incentivos Fiscales al Desarrollo industrial, para la conversión de papel importado en bobinas en pequeños rollos para máquinas de oficina y registradoras de comercio, según Decreto Ejecutivo N° 1285-MIC, publicado en “La Gaceta” N° 240 del 27 de octubre de 1970, modificado por los decretos ejecutivo Nos 5274 publicado en “La Gaceta “ N° 201 del del 23 de octubre de 1976 y 5495, publicado en “La Gaceta” N° 9 del 15 de enero de 1976.
+2°.- Que en escrito presentado el 10 de junio de 1976, solicita que se modifique el citado Decreto Ejecutivo a fin de que se les autorice a importar libre de impuestos arancelarios las materias primas que se enumeran: papel sulfito; papel bond (80 gramos), papel blue White, papel telex comunication tape (varios grmaajes), papel satinado, cartulina superior, papel offset, papel manila, cartulina bristol dúplex, aglutinantes a tintas. Asimismo solicitan ampliación de los artículos a elaborar, con los siguientes productos: “Artículos derivados de papel y cartón a través de la conversión de rollos y láminas grandes en tamaño más pequeños y producción de rollos de papel para máquinas de oficina, registradas de comercio, fotocopiadoras, equipos para comunicación (telex comunication)”.
+Considerando:
+1°.- Que la comisión Asesora Nacional del Ministerio de economía, Industria y comercio en sesión N° 61/76 celebrada el 4 de noviembre de 976, acordó recomendar al señor Ministro de Economía, Industria y comercio que se conceda a la firma petente las ampliaciones solicitadas.
+2°.- Que la contraloría General de República según nota N° 3062-L-76 del 24 de diciembre de 1976, ha manifestado su conformidad con los beneficios estipulados en este decreto.
+Por tanto,
+Decretan:
+Artículo 1°.- Ampliar el inciso b) del artículo 1° del Decreto ejecutivo número 1285-MIC, publicado en “La Gaceta” N° 240 del 27 de octubre del 1970, modificado por los Decreto Ejecutivo Nos 5274-MEIC publicado en “La Gaceta” N° 201 del 23 de octubre de 1976 y 5495-MEIC, publicado en “La Gaceta” N° 9 del 15 de enero de 1976; con las siguiente materias primas: papel sulfito; papel blue White, pepel telex comunication; papel satinado; cartulina; papel offset y papel reforzado.
