@@ -1,0 +1,4 @@
+En cumplimiento de lo dispuesto por la asamblea general extraordinaria N° 51 del 22 de junio del año 2000, en su artículo 11, del Colegio de Profesionales en Ciencias Económicas de Costa Rica, de acuerdo con el inciso d) del artículo 10, inciso ch) de los artículos 12 y 14 de la Ley Orgánica 7105 y con el artículo 19 de su Reglamento, se somete a la consideración de la asamblea general extraordinaria N° 59 del 28 de julio del 2003, el siguiente Reglamento de Ética Profesional.
+CAPÍTULO I
+De los alcances e interpretación
+Artículo 1º—La mención al colegiado que se haga en el presente reglamento, se refiere a los miembros del Colegio de Profesionales en Ciencias Económicas de Costa Rica. Sus miembros tienen ineludible obligación de ajustar su conducta a las normas dictadas por este reglamento.

@@ -1,0 +1,1 @@
+Artículo 4º—Los casos en que exista duda acerca de la interpretación de este reglamento deberán someterse a la Junta Directiva, queda previo resolver, si se solicitará el dictamen correspondiente al Tribunal de Honor.

@@ -1,0 +1,1 @@
+Artículo 6º—Los informes que emita el Colegiado con su firma, deberán ser necesariamente fruto de un trabajo practicado por él o con su supervisión o la de algún miembro o empleado de su firma. Podrá suscribir aquellos informes que se deriven de trabajos en colaboración con uno o más miembros del colegio, personas físicas o jurídicas.

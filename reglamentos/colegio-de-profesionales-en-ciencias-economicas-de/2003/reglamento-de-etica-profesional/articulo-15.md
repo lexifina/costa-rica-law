@@ -1,0 +1,1 @@
+Artículo 15.—El colegiado deberá prescindir de toda competencia desleal con los colegas que ejerzan la profesión en cualquier forma. El colegiado que acepte la prestación de un servicio profesional en etapa intermedia de desarrollo, deberá previamente comunicarlo al Colegio, para evitar posibles responsabilidades éticas.

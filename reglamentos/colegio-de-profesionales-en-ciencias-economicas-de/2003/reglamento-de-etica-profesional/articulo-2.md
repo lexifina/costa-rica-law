@@ -1,0 +1,1 @@
+Artículo 2º—Este reglamento normará la conducta del Colegiado en el ejercicio profesional y sus relaciones con sus compañeros (as) de profesión, patrones, clientes y sus responsabilidades con la sociedad será aplicable, cualquiera que sea la forma que revista su actividad, especialidad que cultive o la naturaleza de la retribución que reciba por sus servicios.

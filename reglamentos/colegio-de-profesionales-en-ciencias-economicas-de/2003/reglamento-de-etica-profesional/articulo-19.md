@@ -1,0 +1,1 @@
+Artículo 19.—El Colegiado tiene el deber ineludible de cumplir con las normas legales vigentes. Igualmente deberá ajustar sus actividades Profesionales a las disposiciones y acuerdos que con carácter general y obligatorio dicten los organismos del colegio facultados para ello, siempre que se encuentren apegadas a derecho.

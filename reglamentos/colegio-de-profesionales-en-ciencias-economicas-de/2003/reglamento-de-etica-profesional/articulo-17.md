@@ -1,0 +1,1 @@
+Artículo 17.—El Colegio hará a su costa la propaganda de carácter impersonal que sea necesaria para la profesión. En los casos en que el propio Colegio lo considere necesario o conveniente, publicará por orden alfabético los nombres de todos los miembros, sin hacer mención especial de alguno de ellos.

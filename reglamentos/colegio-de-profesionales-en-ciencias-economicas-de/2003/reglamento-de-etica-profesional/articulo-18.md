@@ -1,0 +1,1 @@
+Artículo 18.—El Colegiado deberá cimentar su reputación en la integridad moral, honradez, laboriosidad y capacidad profesional, observando las normas de ética más elevada en todos sus actos, así como el debido decoro en su vida privada.
