@@ -1,0 +1,1 @@
+Artículo 3°- Transitorias: Las acciones de supresión de puestos, movilidad horizontal de funcionarios, modificaciones organizativas, estructurales y funcionales iniciadas antes de la entrada en vigencia de este Decreto se continuarán hasta su finalización.
