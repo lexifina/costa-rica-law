@@ -1,0 +1,1 @@
+Artículo 4°—Integración de comisiones. El Director Académico integrará las Comisiones que se establecen en este Reglamento, así como todas las otras que fueren necesarias. Es obligación de todos los funcionarios colaborar en la Comisión para la cual se le nombre.

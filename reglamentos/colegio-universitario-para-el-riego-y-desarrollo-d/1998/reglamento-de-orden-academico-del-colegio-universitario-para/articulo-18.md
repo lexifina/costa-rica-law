@@ -1,0 +1,1 @@
+Articulo 18.—De la nota final. La nota mínima de aprobación de cualquier materia en los diferentes niveles de carrera será siete (7) en una escala de uno a diez. redondeando siempre al número entero superior o a la fracción 0.5.

@@ -1,0 +1,1 @@
+Artículo 16.—De la evaluación. La evaluación de los alumnos se hará acorde con lo estipulado en los programas de cada curso a lo largo del ciclo lectivo correspondiente y los exámenes podrán ser colegiados, en los casos en que las asignaturas se puedan integrar en cátedras colegiadas.

@@ -1,0 +1,1 @@
+Artículo 25.—De la suficiencia. Los estudiamos que se sientan capacitados en una determinada asignatura, pueden solicitar a la Dirección Académica, una prueba de suficiencia, la cual, si es autorizada, será realizada por el profesor de la materia y valorada de acuerdo con las normas establecidas en este reglamento y en el programa del curso.

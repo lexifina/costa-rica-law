@@ -1,0 +1,3 @@
+Artículo 17.—Del numero de pruebas y valores. Todo alumno deberá ser evaluado al menos con tres pruebas por materia, de las cuales, al menos dos serán parciales y una final, siendo e! valor de cada una establecido al inicio de cada curso por el profesor, quien entregará por escrito a los estudiantes el programa, con las normas de evaluación donde se indicará la respectiva ponderación.
+Los laboratorios y (o) las practicas se calificarán con base en los informes, pruebas corlas y trabajo.
+La asistencia a los cursos regulares teóricos y a las prácticas del laboratorio no deberá ser menor de 85%, de las lecciones impartidas.

@@ -1,0 +1,1 @@
+Artículo 15.—Modalidades de cursos. Las asignaturas que se imparten en el CURDTS. estarán organizadas en sesiones de teoría y práctica o teoría y laboratorio o bien teoría laboratorio y práctica, y deberán aprobarse como un solo curso de acuerdo con las normas de evaluación establecidas en el plan de estudios de cada carrera.

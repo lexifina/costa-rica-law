@@ -1,0 +1,1 @@
+Artículo 47.—Del horario de las unidades académicas. Los horarios serán confeccionados según las necesidades académicas, las posibilidades financieras y físicas del Colegio. Para tal efecto, el Director de Carrera confeccionará los horarios respectivos de sus unidades académicas y los enviará a la Dirección Académica para su aprobación.

@@ -1,0 +1,1 @@
+Artículo 43.—De la juramentación. Cuando el estudiante haya obtenido la calificación final que lo acredita como graduado, el Colegio, por medio de la Decanatura en forma seria, comunicará al graduado la fecha de Juramentación como Diplomado de la Institución.
