@@ -1,0 +1,3 @@
+Artículo 2º.- Refórmase el artículo 2º del Reglamento del Registro Judicial de Delincuentes en la siguiente forma:
+"Artículo 2º.- El personal del Registro estará bajo la Dirección General de Prisiones y Reformatorios, habrá un Oficial Primero con el carácter de Certificador, quien firmará los resúmenes, certificaciones y además vigilará por el régimen disciplinario de la Oficina. Los escribientes y demás empleados se nombrarán de acuerdo con las necesidades que el servicio exija."
+Dado en el Salón de Sesiones de la Junta Fundadora de la Segunda República. San José, a los dos días del mes de junio de mil novecientos cuarenta y ocho.
