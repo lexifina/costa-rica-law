@@ -1,0 +1,1 @@
+Artículo 6º—El período de vigencia de la Comisión será por un año a partir de la vigencia del presente Decreto Ejecutivo, debiendo emplear un máximo de 6 meses para la formulación del Proyecto de Ley, de manera que el plazo restante lo destine para brindar el apoyo que el trámite legislativo del "Sistema Nacional de Museos" requiera.

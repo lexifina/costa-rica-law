@@ -1,0 +1,1 @@
+Artículo 5º—La Comisión sesionará al menos una vez por semana, y podrá invitar a personas que por sus conocimientos técnicos o experiencia en el tema, puedan realizar aportes importantes al trabajo de la misma. Estas personas podrán participar en las deliberaciones con voz pero sin voto.
