@@ -1,0 +1,5 @@
+DECRETO CIX.
+Contiene reglas y disposiciones para recoger las armas y elementos de guerra pertenecientes al Estado que se hallen en manos de particulares.
+“El Jefe Supremo Provisorio del Estado de Costa Rica.
+Considerando: que á consecuencia de la revolución estallada en Setiembre último, y de los movimientos ulteriores, hay una dispersión considerable de las armas del Estado, entregadas por aquellas circunstancias: que tanto por el arreglo que actualmente se hace de las milicias, como para evitar las pérdidas y males consiguientes, conviene se recojan, ó se tome razón de ellas, decreta.
+Art. 1° Todos los que tuvieren armas blancas ó de fuego, pertenecientes al Estado, sin que les sean dadas con noticia, en la organización de los cuerpos milicianos que al presente se verifica, se presentarán a los Comandantes de sus respectivos Departamentos en el perentorio término de quince días, contados desde la publicación de este decreto, á entregar los expresados elementos, ó á manifestar que quieren alistarse en las milicias del Estado, en cuyo caso, se les dejará en posesión del que corresponda, tomando de ella el debido conocimiento.
