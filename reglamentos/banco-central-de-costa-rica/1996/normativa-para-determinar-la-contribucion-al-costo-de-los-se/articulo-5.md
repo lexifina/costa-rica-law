@@ -1,0 +1,1 @@
+5. Los pagos de la contribución deberán efectuarse por trimestre vencido en los meses de abril, julio y octubre de cada año. Lo correspondiente al cuarto trimestre se cancelará en enero del año siguiente conforme a la liquidación final del presupuesto.

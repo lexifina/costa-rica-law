@@ -1,0 +1,1 @@
+7. Las entidades deberán efectuar los pagos en las oficinas del Banco Central de Costa Rica, dentro de los plazos antes indicados. Como mecanismo alterno, las entidades que mantengan cuentas corrientes en el Ente Emisor, podrán autorizar expresamente a éste para que deduzca de las mismas el monto correspondiente al pago.

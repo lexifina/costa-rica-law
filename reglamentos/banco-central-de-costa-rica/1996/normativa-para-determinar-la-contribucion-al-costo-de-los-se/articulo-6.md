@@ -1,0 +1,1 @@
+6. La Superintendencia General de Entidades Financieras comunicará, en los primeros cinco días hábiles al cierre de cada trimestre, a todos los intermediarios, el monto de la contribución que deben realizar conforme a la ejecución presupuestaria.

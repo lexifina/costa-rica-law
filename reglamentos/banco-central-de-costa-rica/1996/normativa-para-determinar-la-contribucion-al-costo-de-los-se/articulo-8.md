@@ -1,0 +1,1 @@
+8. Aquellas entidades contribuyentes que cesen voluntariamente en sus funciones durante el periodo para el cual se ha determinado el pago, deberán cumplir con la totalidad del mismo, a lo sumo una semana antes de dicha cesión.

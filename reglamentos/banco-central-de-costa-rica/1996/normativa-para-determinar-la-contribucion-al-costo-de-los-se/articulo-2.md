@@ -1,0 +1,1 @@
+2. La contribución referida en el numeral anterior, recaerá sobre todas aquellas entidades, legalmente constituidas, que al cierre del año anterior al período presupuestado sean sujetas a la fiscalización por parte de la Superintendencia, ya sea directamente o por medio de los supervisores auxiliares.

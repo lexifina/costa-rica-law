@@ -1,0 +1,1 @@
+4. Las cifras concernientes a los activos financieros serán aquellas que muestren los estados financieros anuales dictaminados por un Contador Público Autorizado independiente, correspondiente al cierre económico inmediato anterior al año representativo de cada presupuesto de la Superintendencia General de Entidades Financieras.
