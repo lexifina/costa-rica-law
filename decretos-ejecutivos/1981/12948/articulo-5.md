@@ -1,4 +1,0 @@
-Articulo 5°-Los miembros de la Comisión de los Granos Básicos durarán dos años en sus funciones y pueden ser reelectos por períodos sucesivos. Los representantes de la Administración Pública serán nombrados en forma directa por los Ministros respectivos y por el Presidente Ejecutivo en el caso del Consejo Nacional de Producción y dejarán de ser miembros al concluir sus servicios en la Institución u organismo al cual representan.
-Los representantes de los productores y de los industriales serán nombrados por el Poder Ejecutivo, escogiéndolos de ternas que deberán presentar aquéllos.
-La designación del representante del interés de los consumidores a que se refiere el inciso e) del artículo anterior, se hará de las ternas propuestas por las diferentes organizaciones gremiales de trabajadores.
-(Así adicionado el párrafo anterior mediante el artículo 2° del decreto ejecutivo N° 13468 del 18 de marzo de 1982).
