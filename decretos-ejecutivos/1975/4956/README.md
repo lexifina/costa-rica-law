@@ -14,3 +14,4 @@ Supremacía del MOPT en Materia de Transportes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-06-27 | la propia norma |
+| 2 | 1975-06-27 | SINALEVI (sin norma nombrada) |

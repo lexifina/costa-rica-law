@@ -1,0 +1,1 @@
+Transitorio.- Dentro del término de 30 días hábiles, todas las instituciones afectadas por este decreto, deberán informar a la Oficina Sectorial de Planificación del Ministerio de Obras Públicas y Transportes, de todos los planes y programas en elaboración y en ejecución, con copia a la Oficina de Planificación Nacional y Política Económica.
