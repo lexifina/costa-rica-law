@@ -14,3 +14,4 @@ Reglamento de Funcionamiento del Comité Gerencial de Informática del Tribunal 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-24 | la propia norma |
+| 2 | 2001-05-04 | Reglamento 5 (2001-05-04) |
