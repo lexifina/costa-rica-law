@@ -1,2 +1,1 @@
-(Derogado)
-Texto no disponible
+Artículo 1°:

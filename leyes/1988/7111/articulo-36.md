@@ -1,158 +1,63 @@
-15. Modifícase el inciso 14 del artículo 15 de la Ley de Modificación
-al Presupuesto Nacional para 1988, Nº.7108 del 8 de noviembre de 1988,
-para que diga de la siguiente manera:
-Artículo 15...
-14. Autorízase al Convenio Cooperativo Intermunicipal para el Tratamiento
-de los Desechos Sólidos en el Area Metropolitana y a la Municipalidad de
-San José, para que traspasen parte del terreno que actualmente ocupan
-familias en el precario denominado "La Ponderosa", inscrito en el
-Registro Público, partido de San José, sistema de folio real matrícula
-número 306950-000. Estos terrenos deberán donarse a los jefes de
-familia, con los requisitos, limitaciones y restricciones que señala la
-ley Nº. 5636 del 27 de noviembre de 1974, previo estudio social que se
-realice, mediante el cual se determinen que son personas de escasos
-recursos, y sin bienes inscritos a su nombre en el Registro Público.
-Queda autorizada la Notaría del Estado para efectuar los traspasos
-correspondientes. La donación estará exenta del pago de todo tipo de
-tributos, timbres y derechos de inscripción.
-ARTICULO 37.-Derogatoria a leyes:
-1. Derógase el inciso L) del artículo 1o. de la ley Nº. 6826 del 8 de noviembre de
-1978 y sus reformas, adicionado en el artículo 3o. de la Ley de Reajuste
-Tributario, Nº. 7088 del 30 de noviembre de 1987.
-2. Déjase sin efecto el inciso 31 del artículo 14, de la Ley de Modificación al
-Presupuesto Nacional para 1988, Nº. 7097 del 18 de agosto de 1988.
-3. Derógase el inciso 4) del artículo 19, de la Ley de Modificación al Presupuesto
-Nacional para 1988, Nº. 7097 de agosto de 1988.
-ARTICULO 38.-Se autorizan las emisiones de bonos que a continuación se señalan:
-1. Autorízase al Poder Ejecutivo para que emita bonos denominados "Bonos de
-Fideicomiso Agrario", por la suma de cinco mil millones de colones
-(¢5.000.000.000), en emisiones anuales de mil millones de colones
-(¢1.000.000.000). La primera de esta emisiones se hará en 1989. Esta emisión se
-traspasará al Banco Nacional de Costa Rica, el que capitalizará y destinará los
-fondos, mediante fideicomisos agrarios, para financiar la adquisición de
-tierras, en coordinación con el Instituto de Desarrollo Agrario.
-Los bonos correspondientes a esta emisión no serán negociables. El plazo, el
-tipo de interés y las otras características serán establecidas por el Ministerio
-de Hacienda mediante reglamento.
-Se autoriza al Instituto de Desarrollo Agrario para que invierta recursos en el
-Fideicomiso Agrario del Banco Nacional de Costa Rica. Los recursos de este
-fideicomiso no podrán ser utilizados en la compra de tierras invadidas.
-Los intereses que devenguen estos bonos estarán exentos del pago de todo tipo de
-impuestos.
-2. De la partida de bonos "Refundición de la deuda externa", el Ministerio de
-Hacienda destinará la suma de cuarenta millones de colones (¢40.000.000) para
-el pago de la reserva forestal Juan Castro Blanco, finca inscrita en el
-Registro Público, partido de Alajuela, matrícula folio real Nº. 171-492-000.
-Esta finca deberá ser adquirida por el Estado para salvar sus bosques y
-nacientes de agua, todo de conformidad con la ley que creó esta reserva.
-3. Autorízase al Ministerio de Hacienda para que emita bonos hasta por tres
-millones de colones (¢3.000.000) a favor de UNACOOP, para el desarrollo de los
-programas de cooperativas juveniles de producción.
-El Ministerio de Hacienda determinará el plazo y el tipo de interés que
-devengarán estos bonos.
-4. Exonéranse del impuesto de ocho por ciento (8%) establecido en el artículo 6 de
-la ley Nº. 7088 del 30 de noviembre de 1987, los intereses sobre los bonos de
-estabilización monetaria que el Banco Central de Costa Rica otorgue por medio
-del sistema de compra de deuda externa, para programas de conservación de
-recursos naturales por parte del Ministerio de Recursos Naturales Energía y
-Minas, con fondos provenientes de donación extranjera.
-5. Exonéranse del impuesto del ocho por ciento (8%) establecido en el artículo 6 de
-la ley Nº. 7088 del 30 de noviembre de 1987, los intereses sobre los
-certificados de inversión que el banco administrador de los fondos provenientes
-de donaciones extranjeras destine para programas de conservación de recursos
-naturales por parte del Ministerio de Recursos Naturales, Energía y Minas, que
-adquieran en los mercados primarios y secundarios, dentro o fuera de la Bolsa
-Nacional de Valores.
-ARTICULO 39.-Concesión de avales:
-1. Autorízase el aval del Estado a favor de la Cooperativa Agrícola, Industrial y
-de Servicios Múltiples de San Carlos (COOPESANCARLOS, R.L.), a fin de que pueda
-solicitar un crédito con el Instituto Nacional de Fomento Cooperativo
-(INFOCOOP), el Banco Cooperativo (BANCOOP), el Sistema Bancario nacional u otra
-entidad financiera pública, hasta por treinta y cinco millones de colones
-(¢35.000.000), con el objeto de que pueda adecuar sus obligaciones financieras
-actuales.
-2. Autorízase al Poder Ejecutivo para que le otorgue un aval de Estado a
-COOPECOMUN, R.L., hasta por cincuenta millones de colones (¢50.000.000).
-ARTICULO 40.-Déjase sin efecto la autorización contenida en el artículo 7 de la
-ley Nº. 7083 del 9 de setiembre de 1987, a fin de que la Junta de
-Educación de la Escuela Carmen Lyra pudiera variarle el destino a la partida
-específica código 780, programa 900, de la ley Nº. 6982 del 21 de diciembre de 1984.
-ARTICULO 41.-Déjase si efecto la autorización contenida en el artículo 7 de la
-ley Nº. 7083 del 9 de setiembre de 1987, a fin de que la Junta de
-Educación de la Escuela Carmen Lyra pudiera variarle el destino a la partida
-específica código 770, programa 900, de la ley Nº. 6831 del 24 de diciembre de 1982.
-ARTICULO 42.-Declárase de interés nacional la celebración del XII Simposio
-Latinoamericano de la Mediana Y Pequeña Industria, que se celebrará en
-San José en mayo de 1989. Se autoriza a las instituciones públicas y privadas,
-autónomas y semiautónomas, para que contribuyan con dicha celebración.
-ARTICULO 43.-Los organismos facultados para la ejecución del proyecto de desarrollo
-de la infraestructura de la zona norte, aprobado por la ley Nº. 6953
-des 21 de febrero de 1984, tendrán las mismas facultades para completar ese
-desarrollo mediante la ejecución del proyecto de consolidación de la zona norte y la
-aplicación de los recursos que fueren asignados a esta última etapa.
-ARTICULO 44.-Los funcionarios del Poder Ejecutivo y del Poder Legislativo,
-contratados a plazo fijo excluidos del Régimen de Servicio Civil, que
-no gocen de ninguna clase de sobresueldo o compensación económica por concepto de
-prohibición o de dedicación exclusiva, quedan excluidos de la prohibición establecida
-en el artículo 19, párrafo primero, de la ley Nº. 39 del 5 de enero de 1943 y sus
-reformas, siempre y cuando no exista superposición horaria, ni disposición en
-contrario en la ley orgánica del órgano o institución en la que presten sus
-servicios.
-ARTICULO 45.-Las donaciones en títulos de la deuda externa que realicen
-organizaciones conservacionistas sin fines de lucro o países amigos, a
-favor del Ministerio de Recursos Naturales, Energía y Minas, para el desarrollo de
-programas de conservación de recursos naturales que, por su naturaleza, deban ser
-colonizados por el Banco Central de Costa Rica en bonos de estabilización monetaria,
-gozarán de la exención de impuesto de ocho por ciento (8%) a que se refiere el
-artículo 6 de la ley Nº. 7088 del 30 de noviembre de 1987.
-ARTICULO 46.-Declárase de interés público la propiedad inscrita en el partido de
-Alajuela, tomo 1671, folio 208, Nº.120.725, con un área 144.18 m2,
-situada en el distrito primero del cantón de Naranjo.
-La finalidad de esta declaratoria es que el Cuerpo de Bomberos de Naranjo pueda
-ampliar sus instalaciones, ya que la propiedad mencionada colinda con la de esa
-institución.
-ARTICULO 47.-De las partidas no giradas en 1988, el Ministerio de Hacienda hará la
-reserva de crédito correspondiente al título 130 (Obras Específicas).
-ARTICULO 48.-Del producto de las exportaciones anuales de oro que lleva a cabo el
-Banco Central de Costa Rica, se trasladará un ocho por ciento (8%) a
-los organismos que a continuación se detallan, distribuido en la forma siguiente:
-Junta Administrativa del Teatro Nacional
-(exclusivamente para obras de mantenimiento
-y restauración) 20.0
-Compañía Nacional de Teatro 12.0
-Compañía Nacional de Danza 12.0
-Junta Administrativa del Teatro Melico
-Salazar (exclusivamente para obras de
-mantenimiento y restauración) 12.0
-Editorial Costa Rica 14.0
-Junta Administrativa del Museo Nacional
-(exclusivamente para obras de mantenimiento
-y remodelación) 12.0
-Museo de Arte Costarricense 12.0
-Orquesta Sinfónica Juvenil 6.0
-La Editorial Costa Rica invertirá los fondos que por este artículo se le autorizan
-para cancelar sus obligaciones financieras pendientes. Posteriormente, los utilizará
-en el desarrollo de sus labores editoriales, conforme con su ley constitutiva.
-Esta disposición deroga cualquier otra que se le oponga.
-ARTICULO 49.-Los recursos de Transporte Metropolitanos, S.A. (TRANSMESA) se
-destinarán a lo siguiente: El veinte por ciento (20%) a gastos
-administrativos y de operación de esta empresa, para su liquidación y el ochenta por
-ciento (80%), restante para establecer el programa de racionalización y modernización
-del transporte en el área metropolitana, y para cubrir las diferencias existentes
-entre la tarifa real, determinada técnicamente por el organismo competente, y la
-tarifa que se cobra a los usuarios en el área metropolitana, a juicio del Ministerio
-de Obras Públicas y Transportes.
-Una vez liquidada TRANSMESA, estos recursos se utilizarán, en su totalidad, para los
-diferenciales mencionados, por intermedio del Consejo de Seguridad Vial, el que los
-manejará en un cuenta independiente de sus otros recurso. Estos fondos serán
-supervisados por la Contraloría General de la República.
-Para acelerar la modernización del transporte masivo de pasajeros en el área
-metropolitana, se tendrá como concesión, por el plazo establecido por ley aquélla
-que se origine en la fusión de empresas concesionarias o permisionarias de empresas
-sectorizadas, o de ambas. Estas serán las titulares de la nueva concesión, a juicio
-del Ministerio de Obras Públicas y Transportes.
-ARTICULO 50.-El título 130 de la presente ley será subejecutado en un diez por
-ciento (10%). El monto de la subejecución se girará durante el mes de
-enero, a favor de la Comisión Nacional de Emergencias, para la atención de los daños
-ocasionados con motivo de las inundaciones causadas por los huracanes Gilberth y
-Juana.
+ARTÖCULO 36.-
+Modif¡canse las leyes a continuaci¢n se citan: 1.* Except£ase de la aplicaci¢n del art¡culo 16 de la ley N§.7088 del 30 de noviembre de 1987, y de la ley N§.3656 del 6 de enero de 196, todo veh¡culo o motocicleta para uso exclusivamente deportivo, el cual deber ser inscrito en el Registro P£blico, Secci¢n de Veh¡culos, a nombre de la Asociaci¢n y de la persona a quien se le consigne. Igualmente, el Registro P£blico, Secci¢n de Veh¡culos, deber extender una placa de identificaci¢n especial para los efectos del control de circulaci¢n. Los veh¡culos as¡ identificados £nicamente quedan autorizados para circular por v¡as p£blicas, cuando hubiere competencias oficiales y est‚ autorizada su circulaci¢n por la Direcci¢n General de Educaci¢n F¡sica y Deportes.
+*(Este inciso fue vetado por el Poder Ejecutivo).
+2. Modif¡case el art¡culo 105 del C¢digo Municipal, ley N§.
+4574 del 4 de mayo de 1970 y sus reformas, para que diga de la siguiente manera:
+"Art¡culo 105: Con autorizaci¢n de la Asamblea Legislativa, las municipalidades, los concejos municipales de distrito y las ligas de municipalidades podr n contraer empr‚stitos, cuando se trate de entidades extranjeras, o cuando se efect£en en el pa¡s con capital extranjero.
+Estos empr‚stitos requerir n autorizaci¢n de la Contralor¡a General de la Rep£blica, excepto los que se contraigan con el Instituto de Fomento y Asesor¡a Municipal, de los cuales solamente se deber informar a aqu‚lla.
+En los casos en que se requiera autorizaci¢n de la Contralor¡a General de la Rep£blica, ‚sta deber tramitarla en un plazo m ximo de sesenta d¡as.
+Junto con la solicitud de autorizaci¢n, deber remitirse a la Asamblea Legislativa, o a la Contralor¡a General de la Rep£blica, en su caso, un detalle de la inversi¢n que se proyecta con los fondos que se obtendr n.
+Tambi‚n deber remitirse una certificaci¢n del secretario municipal o de la liga de municipalidades, de que el acuerdo en que se dispuso requerir la autorizaci¢n fue aprobado por las dos terceras partes del total de los regidores, o de los miembros de la liga, en votaci¢n nominal, con indicaci¢n de la fecha de la sesi¢n y el n£mero de acuerdo.
+A la Asamblea Legislativa se remitir , adem s, un informe de la Contralor¡a General de la Rep£blica sobre las posibilidades econ¢micas de la municipalidad, del concejo municipal de distrito o de la liga de municipalidades.
+3. ANULADO por Resoluci¢n de la Sala Constitucional N§ 6223-96 de las 9:33 horas del 15 de noviembre de 1996.
+4. Ampl¡ase la vigencia del transitoria I de la Ley Org nica del Consejo Nacional de la Producci¢n, N§. 6050 del 14 de marzo de 1977 y sus reformas, a efecto de que cubra el per¡odo comprendido entre el 1 de enero y el 31 de diciembre de 1988.
+5. Modif¡case el inciso c) del art¡culo 51 del C¢digo de Miner¡a, ley N§.6797 del 4 de octubre de 1982, para que diga de la siguiente manera:
+"c): C nones de superficie 1) Permiso de exploraci¢n minera, tres mil colones por kil¢metro cuadrado.
+2) Concesi¢n de explotaci¢n, treinta mil colones por kil¢metro cuadrado.
+Este canon deber pagarse en el Banco Central de Costa Rica, por anualidades adelantadas, y ser aumentado cada dos da¤os conforme con el ¡ndice impl¡cito del producto interno bruto, calculado por este banco. Las sumas ser n giradas por el Banco Central a la Direcci¢n de Geolog¡a, Minas e Hidrocarburos, para el financiamiento de maquinaria, equipo de oficina y suministros varios, que garanticen el normal desenvolvimiento de las actividades de la Direcci¢n."
+6. Der¢gase el inciso c) del art¡culo 15, de la Ley Org nica del Instituto Nacional de Aprendizaje, N§. 6868 del 6 de mayo de 1983. A la fecha de entrada en vigencia de la presente ley, se consideran canceladas las deudas originadas en la aplicaci¢n de la mencionada disposici¢n legal.
+7.* Ot¢rgase el beneficio del art¡culo 46 de la ley N§. 7015 del 22 de noviembre de 1985, a los funcionarios contemplados en el inciso b) del art¡culo 1 de la ley N§. 5867 del 15 de diciembre de 1975 y sus reformas;
+asimismo a los se¤alados en el art¡culo 5 y a los cubiertos por el transitorio de esta misma ley.
+*(Este inciso fue vetado por el Poder Ejecutivo).
+8. Modif¡case el inciso c) del art¡culo 143 de la Ley General de Migraci¢n y Extranjer¡a, N§. 7033 del 4 de agosto de 1986, para que diga de la siguiente manera:
+"c): Gastos corrientes y de capital para satisfacer las necesidades de la Direcci¢n General de Migraci¢n y Extranjer¡a."
+9. Modif¡case el art¡culo 146 de la Ley General de Migraci¢n y Extranjer¡a, N§.
+7033 del 4 de agosto de 1986, para diga de la siguiente manera:
+"Art¡culo 146: Previa autorizaci¢n de la Contralor¡a General de la Rep£blica, la Direcci¢n General de Migraci¢n y Extranjer¡a podr hacer inversiones en t¡tulos valores del Sistema Bancario Nacional.
+Los intereses que devenguen dichos t¡tulos deber n ser utilizados de acuerdo con lo dispuesto en el inciso c) del art¡culo 143, para mejorar los servicios de la Direcci¢n General."
+10.* Agr‚gase un p rrafo segundo al art¡culo 104 de la ley N§.
+7083 del 25 de agosto de 1987, cuyo texto dir :
+"Art¡culo 104:
+...
+El pago de estas diferencias y el incremento realizado en su oportunidad a los pensionados de Comunicaciones, se sustentan en la aplicaci¢n de la resoluci¢n N§. D.G. -001-83
+del 4 de enero de 1983, a la Direcci¢n General de Servicio Civil. A estos pensionados no les ser aplicable ninguna disposici¢n que se le oponga a la presenta.
+Los beneficios de este art¡culo les ser n aplicados a todos los pensionados de Comunicaciones." *(Este inciso fue vetado por el Poder Ejecutivo).
+11.* Adici¢nase un numeral 7 al inciso e) del art¡culo 10, de la Ley de Ratificaci¢n de la Resoluci¢n N§. 18 del Concejo Arancelario Centroamericano, Reajuste Tributario, N§. 7088 del 30 de noviembre de 1987, que dir :
+"e=.-
+...
+7. Los veh¡culos importados al amparo de la ley N§. 3846 del 5 de enero de 1967." *(Este inciso fue vetado por el Poder Ejecutivo).
+12. Adici¢nase un inciso g) al art¡culo 61 de la Ley del Impuesto sobre la Renta, N§. 7092 del 21 de abril de 1988, y un nuevo art¡culo a esta misma ley, que llevar el numeral 61-b), cuyos textos dir n:
+"g): Exoneraci¢n de toda clase de tributos y de sobretasas que afecten la importaci¢n de maquinaria y equipo, lo mismo que sus accesorios y repuestos; as¡ como la importaci¢n de los veh¡culos automotores que autorice la Direcci¢n General de Hacienda, de acuerdo con las normas que fije el Poder Ejecutivo mediante decreto, con excepci¢n de los siguientes:
+Partida nauca Descripci¢n
+87-02-01-99 Autom¢viles (incluso los "jeeps" y "pick-ups" con doble cabina)
+87-02-03-03 Chasis con cabina de una a dos toneladas de capacidad de carga.
+87-02-03-04 "Pick-ups" de una a dos toneladas de capacidad de carga.
+87-02-03-99 P neles y "pick-ups" de una a dos toneladas de capacidad y carga, y chasis con cabina de hasta una tonelada de capacidad de carga.
+87-04-01-00 Chasis para camiones de una a dos toneladas de capacidad de carga.
+87-14-01-00 Remolques o semirremolques para recreaci¢n o vivienda.
+87-01-00-00 Aerostatos (excepto los de uso cient¡fico).
+88-02-00-00 Aerodinos (aviones, planeadores, helic¢pteros, hidroaviones y otros), deportivos o para otros usos que no sean de transporte renumerado de personas, de carga o para fumigaci¢n.
+89-01-02-00 Yates, veleros y dem s embarcaciones de recreo o para deportes.
+Esta disposici¢n rige a partir de la fecha de publicaci¢n de esta ley, excepto si fuere para beneficiar a las empresas con contrato de exportaci¢n o producci¢n, que hayan efectuado importaciones bajo cauci¢n al amparo del decreto ejecutivo N§. 18039-H del 29 de febrero de 1988, en cuyo caso rige a partir del 15 de marzo de 1988."
+"Art¡culo 61-b: En cuanto a su eficacia, las exoneraciones tributarias que se establecen la presente ley estar n condicionadas al pleno acatamiento de los preceptos aqu¡ establecidos, lo mismo que al cumplimiento de los que se estipulen en los contratos y programas de exportaci¢n que se suscriban. En virtud de lo anterior, para declarar la ineficacia, total o parcial, de las notas de exenci¢n por incumplimiento imputable al beneficiario, la Direcci¢n General de Hacienda, o el organismo en el que ‚sta delegue su funci¢n, deber seguir el procedimiento administrativo ordinario establecido en los art¡culos 308 y siguientes de la Ley General de la Administraci¢n P£blica.
+La resoluci¢n en la que se declare la ineficacia, total o parcial, de una nota de exenci¢n tributaria debidamente emitida por el Director General de Hacienda, notificada al afectado, agotar la v¡a administrativa y permitir el inmediato cobre de los tributos correspondientes, o bien, el comiso de las mercanc¡as exoneradas o el embargo de bienes propiedad del incumpliente, en cantidad suficiente para satisfacer plenamente el cr‚dito fiscal, as¡ como los otros cargos, las multas y los honorarios correspondientes.
+El Poder Ejecutivo reglamentar la presenta disposici¢n dentro de los dos meses siguientes a la fecha de publicaci¢n de esta ley.
+No obstante, tal disposici¢n no se dejar de aplicar por falta del reglamento."
+13. Adici¢nase el siguiente p rrafo al art¡culo 132 de la Ley de Modificaci¢n al Presupuesto Nacional para 1988, N§. 7097 del 18 de agosto de 1988:
+"Art¡culo 132: Estos recursos le ser n girados a la organizaci¢n cooperativa que designe el comit‚ interinstitucional para que ejecute los programas de trabajo."
+14. Prorr gase por el a¤o 1989, la vigencia de lo dispuesto en el numeral 37 del art¡culo 19, de la Ley de Modificaci¢n al Presupuesto Nacional para 1988, N§.
+7097 del 18. de agosto de 1988.
+15. Modif¡case el inciso 14 del art¡culo 15 de la Ley de Modificaci¢n al Presupuesto Nacional para 1988, N§.7108 del 8 de noviembre de 1988, para que diga de la siguiente manera:
+Art¡culo 15...
+(*)14. Autorízase al Convenio Cooperativo Intermunicipal para el Tratamiento de los Desechos Sólidos en el Área Metropolitana y a la Municipalidad de San José, para que traspasen parte del terreno que actualmente ocupan familias en el precario denominado "La Ponderosa", inscrito en el Registro Público, partido de San José, sistema de folio real matrícula número 306950-000. Estos terrenos deberán donarse a los jefes de familia, con los requisitos, limitaciones y restricciones que señala la ley N° 5636 del 27 de noviembre de 1974, previo estudio social que se realice, mediante el cual se determinen que son personas de escasos recursos, y sin bienes inscritos a su nombre en el Registro Público. Queda autorizada la Notaría del Estado para efectuar los traspasos correspondientes. La donación estar exenta del pago de todo tipo de tributos, timbres y derechos de inscripción.
+(*)(Nota: Véase el artículo 1° de la ley Reguladora de Exoneraciones Vigentes, Derogatorias y Excepciones, N° 7293 del marzo de 1992)

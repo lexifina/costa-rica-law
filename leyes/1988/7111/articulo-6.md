@@ -1,1 +1,1 @@
-Texto no disponible
+Artículo 6°:
