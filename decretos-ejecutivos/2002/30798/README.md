@@ -14,3 +14,4 @@ Designa los intergantes del Consejo de Transporte Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-30 | la propia norma |
+| 2 | 2005-04-06 | Decreto Ejecutivo 32385 (2005-04-06) |

@@ -12,7 +12,8 @@ Decretan:
 Artículo 1º—Se designan los integrantes del Consejo de Transporte Público, el cual queda integrado de la siguiente manera:
 a) Javier Chaves Bolaños, portador de la cédula de identidad número 1-623-488, en su condición de Ministro de Obras Públicas y Transportes o bien su delegado, quien lo presidirá.
 b) Rafael Chan Jaén, portador de la cédula de identidad número 5-134-539, en su condición de Director General de la División de Transportes del Ministerio de Obras Públicas y Transportes.
-c) Guillermo Porras Sandoval, portador de la cédula de identidad número 1-328-722, representante del Ministerio del Ambiente y Energía, designado por el Ministro del Ramo.
+c) Jorge Mario Rodríguez Zúñiga, portador de la cédula de identidad número 1-545-707, representante del Ministerio del Ambiente y Energía, designado por el Ministro del Ramo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 32385 del 6 de abril del 2005)
 d) Olman Bonilla Oconitrillo, portador de la cédula de identidad número 2-327-523, representante del Sector Empresarial del Transporte Remunerado de Personas en Vehículos Automotores, Buses, Microbuses o Busetas.
 e) Edwin Barboza Guzmán, portador de la cédula de identidad número 1-688-455, representante del Sector Empresarial del Transporte Remunerado de Personas en Vehículos Automotores en la Modalidad de Taxi.
 f) Olger Murillo Ramírez, portador de la cédula de identidad número 1-602-764, representante de la Unión Nacional de Gobiernos Locales.
