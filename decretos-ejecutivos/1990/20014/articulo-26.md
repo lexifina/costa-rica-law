@@ -1,5 +1,2 @@
-ARTICULO 26.- En la solicitud de inscripción, la empresa consultora
-debe indicar para cada una de las especialidades que solicite le sean
-reconocidas, el nombre del miembro activo del Colegio registrado en dicha
-especialidad, quien tendrá la responsabilidad profesional y ante el
-Colegio de las actuaciones de estas empresas.
+ARTICULO 26.- ANULADO por Resolución de la Sala Constitucional Nº
+6134-98 de las 17:24 horas del 26 de agosto de 1998.
