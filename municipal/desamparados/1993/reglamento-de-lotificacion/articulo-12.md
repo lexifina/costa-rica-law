@@ -1,0 +1,1 @@
+12.- La Municipalidad de Desamparados una vez que tenga los terrenos habilitados, definido el lote y casa a adquirir y aprobada la gestión del solicitante, autorizará el otorgamiento de la escritura ante el notario que designe la Municipalidad.

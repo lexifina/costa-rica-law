@@ -1,0 +1,1 @@
+3- El beneficiario deberá cumplir con el plan de pago estipulado por la Municipalidad, caso contrario, se tendrá por vencido el plazo establecido, exigiendo el pago inmediato de la totalidad de la obligación, según lo indique la escritura otorgada.
