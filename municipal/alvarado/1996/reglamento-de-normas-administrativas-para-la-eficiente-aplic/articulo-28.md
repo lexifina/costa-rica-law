@@ -1,0 +1,1 @@
+Artículo 28.-Los indicios establecidos en cualquier época para un patentado, podrán u.!jlizarse para revisar su siguiente declaración. Las recalificaciones son base en indicios externos, solo podrán ser aplicadas a partir del 10 de enero para surtir efecto al año siguiente.

@@ -1,0 +1,1 @@
+Artículo 30.-Los ajustes realizados por Tributación Directa en relación con las declaraciones de un patentado correspondientes a períodos vencidos, surtirán sus efectos en el pago del impuesto de patentes, dentro de los límites establecidos por el artículo 86 del Código Municipal.

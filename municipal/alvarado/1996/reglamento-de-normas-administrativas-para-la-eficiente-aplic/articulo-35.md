@@ -1,0 +1,2 @@
+Artículo 35.-Procederá el cierre del negocio para aquellas personas físicas o jurídicas que abran establecimientos dedicados a actividades lucrativas o realicen el comercio en forma ambulante sin contar con la respectiva licencia municipal.
+El cierre, a petición del Concejo Municipal, será ejecutado por las Gobernaciones, o por las Delegaciones Cantonales o Distritales de la Guardia de Asistencia Rural según el caso, en compañía de un inspector de patentes, con el respectivo acuerdo municipal y este será aplicable a las actividades y/o patentes ya existentes.

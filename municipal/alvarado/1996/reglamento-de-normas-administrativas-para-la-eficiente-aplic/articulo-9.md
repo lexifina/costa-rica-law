@@ -1,0 +1,1 @@
+Artículo 9°-La revocatoria del permiso de funcionamiento por parte de la autoridad competente producirá la cancelación automática de la licencia y la pérdida de la condición de patentado, ello sin perjuicio del cobro de los saldos pendientes de pago.

@@ -1,0 +1,1 @@
+Artículo 42.-Las resoluciones que ordenen el cierre del establecimiento en cumplimiento de órdenes emanadas por el Poder Ejecutivo o de instituciones de Derecho Público no admitirán recurso alguno para ante la Municipalidad. Entre tales órdenes se incluye el vencimiento o revocatoria de permisos de funcionamiento.

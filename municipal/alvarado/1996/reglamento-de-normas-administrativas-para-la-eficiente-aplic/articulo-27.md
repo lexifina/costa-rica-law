@@ -1,0 +1,1 @@
+Artículo 27.-La metodología o técnicas utilizadas para la aplicación de los procedimientos de estimaciones serán establecidos con base en los manuales elaborados por el Departamento de Asistencia Técnica del Instituto de Fomento y Asesoría Municipal (IFAM) sin perjuicio de otras debidamente aprobadas por el Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 37.-La revisión de las declaraciones y la correspondiente tasación, estará a cargo del Departamento de Rentas y los funcionarios asignados formalmente por el Ejecutivo Municipal, quienes serán los responsables de ejecutar lo establecido en la ley N° 7463.
