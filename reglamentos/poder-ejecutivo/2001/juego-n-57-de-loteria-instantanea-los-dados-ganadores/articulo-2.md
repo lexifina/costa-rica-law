@@ -1,0 +1,1 @@
+Articulo 2°—Reglas del juego: Raspe el área de juego. Si el número de "Tu dado" es mayor al número del "Dado rival'' en el mismo juego, gana el premio indicado para ese juego. Si aparece la palabra '"RASPA", participa directamente en el sorteo La Rueda de la Fortuna.
