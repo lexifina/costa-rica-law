@@ -14,3 +14,4 @@ Reglamento de Prestación de Servicios al Abonado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-10 | la propia norma |
+| 2 | 1997-02-26 | Reglamento 51 (1997-02-26) |
