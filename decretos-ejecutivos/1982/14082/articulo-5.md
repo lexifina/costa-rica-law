@@ -369,12 +369,18 @@ Aceite agrícola para el control de plagas y enfermedades
 Aditivos para nutrición animal
 Agujas hipodérmicas de uso pecuario
 Agujas de sutura de uso veterinario
+Agujas especiales para la extracción de larvas de abejas
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Aisladores para cerca eléctrica de uso pecuario
 Alambre (cable) de acero redondo de 4 alambres trenzados de 5 mm de diámetro con identación
 Alambre de acero según especificación AISI 1045 de 11.10 mm
 Alambre de púas
+Alambre de acero recubierto para marcos de colmenas
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Alicates diablo
 Alimentos preparados para animales criados por el hombre, para la alimentación, incluso las harinas de semillas oleaginosas de hueso o pescado
+Alimentos terminados medicados o no, para la producción acuícola
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Almácigos de árboles frutales o de reforestación
 Almohadillas para ponchar
 Ampollas en pasta para detección de semen
@@ -386,9 +392,13 @@ Arciales de inmovilización
 Aretes de identificación
 Argollas de nariz
 Armellas
+Arrancadora de granos
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Artes de pesca para la producción acuícola no deportiva
 Avionetas destinadas exclusivamente a la fumigación, atomización y espolvoreo
 Bandejas placas para el enraizamiento y almacenamiento de esquejes
+bandejas para la reproducción de plantas de uso agrícola
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Barra cardánica exclusiva para implementos agrícolas
 Barra portaherramientas para ser acoplada al sistema de enganche de los tractores agrícolas
 Barómetros
@@ -399,6 +409,8 @@ Block de sal mineral
 Bombas de agua de 0.75 KW (1 HP) o más
 (Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Bolsas plásticas para la protección y empaque del banano
+Bolsas plásticas estériles para la toma de muestra de leche
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Cabletractores para el transporte de fruta
 Calibradores para control y medición de frutas
 Canastos para congelación para huevo fértil
@@ -410,23 +422,39 @@ Carrete para extender y recoger mangueras de riego
 Cascos y caretas para la aplicación de agroquímicos
 Cauterizador eléctrico para cuernos
 Cartones de huevo. (artículos alveolares, para envase y transporte de huevos)
+Cascos blancos con ventilación para uso apícola
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Ceras antitranspirantes para frutas y vegetales
 Clavos para herrar
 Clavos de ferrocarril
+Cepillos especiales para la actividad apícola y pecuaria
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Coadyuvantes
 Conducímetro
 Conmutadores para riego
 Controles de riego (eléctricos o mecánicos)
+Concentrados a base de polen para alimentación de abejas
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
+Controles automáticos de humedad y temperatura, sus accesorios y repuestos para uso exclusivamente agropecuario
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Cortacolas eléctricos
 Cortadora de cascos
 Cortadores de pajillas
 Cortineros para granjas avícolas
+Cordel de fibra de coco para apuntalamiento de cultivos agrícolas
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Criadoras para granjas porcinas
+Criadoras de calentamiento con repuestos y accesorios
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Cuchillas para implementos agrícolas, hortícolas o forestales
 Cuchillas de toda clase para uso agropecuario
+Chapeadoras para acoplar a los tractores agrícolas
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Chicharras
 Chupones para terneros
 Chuzos eléctricos
+Chuchillos especiales para desopercular panales
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Descolmilladores
 Desmochadoras
 Detectores electrónicos de mastitis
@@ -436,6 +464,8 @@ Determinadores de humedad
 Dilatadores de tetas
 Dispositivos para ahuyentar o atrapar plagas de vertebrados
 Dosificadores orales
+Dosíficadores o medicadores de uso aícola
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Envases cilíndricos anticorrosivos con cierre hermético para transporte de leche
 Equipo de frío para mantenimiento de huevos fértiles
 Equipo para cercas eléctricas y solares
@@ -452,9 +482,23 @@ Equipo de progeccion -sic: debe ser protección- para la aplicación de agroquí
 Equipo de enfriamiento de leche, sus accesorios y repuestos
 Equipos de diagnóstico microbiológico
 Equipos de diagnóstico químico
+Equipo de cable vía, accesorios y repuestos para el cultivo hidropónico, accesorios y repuestos
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
+Equipo para laminar y estampar cera de abejas
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
+Equipo y sus repuestos paca vacunación avícola
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
+Equipos, accesorios y repuestos para la agricultura hidropónica
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
+Estroboscopio para clasificar especies
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Fieltro no manufacturado (litros) para tubería de riego y avenamiento
 Filohormonas
 Fitorreguladores de crecimiento
+Filtros para equipo de miel de abeja
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
+Fondos sintéticos para nidales
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Fórceps
 Fusibles para cerdas eléctricas
 Galvanómetros
@@ -463,6 +507,10 @@ Grapas para cerca
 Grava para filtros y elementos filtrantes
 (Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Guantes desechables para obstetricia veterinaria
+Guantas especiales que cubran los brazoz para uso apícola
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
+Guadañadoras con motores de combustión interna
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Guillotina para tallos
 Herbicidas, inhibidores de germinación y reguladores del crecimiento de las plantas
 Herraduras
@@ -479,13 +527,25 @@ Infiltrómetros
 Inhibidores de hongos (para aflotoxinas de maíz)
 Inmovilizadores para cerdos
 Instrumentos para manejo de animales
+Instrumentos, aparatos y accesorios para la actividad apícola
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
+Instrumentos y equipo para la actividad apícola y acuícola
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Jaulas para la actividad avícola
 Jaulas para parición para cerdos
+Jaulas para la actividad avícola y acuícola
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Jeringas de uso veterinario
 Láminas plásticas para invernadero elaboradas contra rayos ultravioleta
+Láminas metálicas perforadas para la recolección de polen (trampas para abejas)
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
+Láminas metálicas para trampas de polen y jaulas de reinas
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Lápices para marcar aretes
 Limas de filo
 Limas para cascos y dientes
+Lombrices o sus huevos para uso en agricultura orgánica
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Llantas y neumáticos para tractores agrícolas
 Llantas agrícolas de flotación tipo (L) para uso en eje delantero del tractor y transporte de productos agrícolas
 Mangas inmovilizadores
@@ -496,10 +556,14 @@ Máquinas eólicas (molinos de viento)
 Marcadores en pasta para detección de celo
 Medidores de humedad del suelo
 Miel de purga o melaza
+Microchips y lector de microchips para la identificación electrónica de animales de interés pecuario
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Motoazadas
 Motosierras del inciso arancelario 84678100
 (Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Niveladoras de arrastre para acoplar al sistema de 3 puntos de los tractores agrícolas
+Nidos para aves
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Palas frontal y trasera
 Paleta para prueba de mastitis
 Pasta para descornar
@@ -509,16 +573,22 @@ Penetrómetros
 materias colorantes utilizadas en la pigmentación de productos agrícolas
 (Así reformada la mercancía anterior por el artículo 1° a parte 2) del decreto ejecutivo N° 26263 del 18 de agosto de 1997)
 Pinzas para cascos
+Pinzas de acero para limpiar marcos de colmena
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Pipetas para inseminación
 Piso de acero para porcicultura desnudo y recubierto
 Pistolas de inseminación
 Plaguicidas
 Pluviómetro
+Plumas de levante de tres puntos para enganche de tractores agrícolas
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Polen para la actividad agropecuaria
 Potenciómetros
 Preservantes para flores
 Preservantes para frutas
 Preservantes para ornamentales
+Prensa manual para sujetar marcos de colmena
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Productos desinfectantes de piedra de leche
 Protectos -sic: debe ser protector- contra ruido para proyectos agrícolas
 Quemadores de azufre
@@ -546,12 +616,18 @@ Tensores para cable
 Termómetros
 Termos con nitrógeno líquido (envases criogénicos para semen)
 Tornamesa o unión para carretas agrícolas
+Toallas para desinfección de ubres
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Tractores agrícolas que reúnen las siguientes características:
 a) Ancho de trocha ajustable
 b) Sistema de levante hidráulico trasero o delantero, con enganche de 3 o 2 puntos para el montaje de instrumentos agrícolas y sistema hidráulico para el control remoto
 c) Toma de furza trasera, lateral o delantera para poner en acción distintos implementos
 d) Barra de tiro para el arrastre de implementos y carretas agrícolas y/o sistema de enganche (fijo o de levante automático) para halar implementos
-Tractores de oruga de aplicación especial, únicamente para proyectos agrícolas
+(Excluída la mercancía "Tractores de oruga de aplicación especial, únicamente para proyectos agrícolas", por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
+Trajes, velos y guantes para uso apícola
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
+Trampas y atrayentes para monitoreo y control de plagas de uso agropecuario
+(Así adicionada la mercancía anterior por el artículo 6° del decreto ejecutivo N° 28648 del 15 de mayo de 2000)
 Tubería corrugada para avenamiento
 Zanjeadoras rotativas hasta 51 KW
 Zetas de metal para transporte de banano
