@@ -1,3 +1,2 @@
-Artículo 81.-El área para permiso de aprovechamiento de palmito debe marcarse sobre linderos naturales en lo posible.
-El derecho a cobrar será de quince céntimos, por unidad.
-Todo palmito extraído pagará derecho de extracción.
+Artículo 81.—El área para permiso de aprovechamiento de palmito debe marcarse sobre linderos naturales en lo posible. El derecho a cobrar será de veinte colones por unidad. Todo palmito extraído pagará derecho de extracción. En caso de que exista otro subproducto del bosque, el derecho será definido por la Dirección Forestal en permiso otorgado con base en común acuerdo con el peticionario.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 16852 del 23 de enero de 1986)

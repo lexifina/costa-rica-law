@@ -1,1 +1,2 @@
-Artículo 82.-Los permisos para explotación de carbón se darán únicamente en áreas que hayan sido concedidas para explotación de la madera con el fin de que para la elaboración del carbón se utilice los residuos de la madera.
+Artículo 82.—Los permisos para explotación de carbón se darán únicamente en áreas que hayan sido concedidas para explotación de la madera con el fin de que para la elaboración del carbón se utilice los residuos de la madera. Cuando la explotación se va a realizar dentro de áreas de manglar, los criterios bajo los cuales se autorizará dicha actividad serán definidos por el Departamento de Reservas Forestales.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 16852 del 23 de enero de 1986)
