@@ -1,2 +1,4 @@
-Artículo 9º.- Los contratos que llegare a suscribir el Instituto Costarricense de Electricidad en materia de telecomunicaciones para la adquisición de materiales y equipos por medios del trámite de licitación pública, deberán ser refrendados por la Contraloría General de la República. La Contraloría gozará de un plazo no mayor de un mes para resolver sobre el refrendo, y si transcurriere ese término sin que se hubiere pronunciado, se tendrá por refrendado el contrato respectivo.
+Artículo 9º.- DEROGADO.-
+(Derogado por el artículo 111 de Ley de Contratación Administrativa
+Nº 7494 de 2 de mayo de 1995)
 CAPITULO IV
