@@ -1,0 +1,1 @@
+Artículo 3º—Se declara que para mantener el área libre de dicha plaga, las medidas de protección fitosanitaria, que procedan a evitar su reintroducción son de interés particular obligatorio y todas las medidas fitosanitarias que dicte el Servicio Fitosanitario del Estado son de orden público y de cumplimiento obligatorio.

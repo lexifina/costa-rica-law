@@ -1,0 +1,1 @@
+Artículo 4º—Todas las personas, físicas o jurídicas, públicas o privadas, en particular los agentes relacionados, directa o indirectamente en la producción, comercialización y movilización de frutas y hortalizas hacia esta área, que tenga conocimiento de la plaga deberán denunciarlo al Servicio Fitosanitario del Estado.
