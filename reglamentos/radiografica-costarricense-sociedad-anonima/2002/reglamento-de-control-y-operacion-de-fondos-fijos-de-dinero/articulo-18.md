@@ -1,5 +1,0 @@
-Artículo 18.—Solicitudes para la compra de bienes considerados como activos.
-18.1 Para la compra de activos el "vale de caja chica" que presente el solicitante al responsable del fondo fijo de caja chica, debe contener el visto bueno del gestor presupuestario de la Dirección.
-18.2 Una vez realizada la compra, el solicitante debe acudir al Departamento de Planificación Financiera, con el comprobante de liquidación de caja chica, para que el monto exacto de la adquisición sea aplicado en el presupuesto de inversiones y se le asigne el sello correspondiente.
-18.3 Toda compra de activos debe ser reportada por el solicitante al Departamento de Administración de Materiales para su respectivo registro y asignación de número de activo y firma del comprobante de asignación de responsabilidad.
-18.4 El cumplimiento del trámite anterior debe ser corroborado por el Responsable del fondo fijo de caja chica mediante la identificación del sello del Departamento de Administración de Materiales, en la factura y en el comprobante de liquidación de caja chica, mediante el cual se asignó el activo a un funcionario en particular.

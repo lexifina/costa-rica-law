@@ -1,5 +1,0 @@
-CAPÍTULO II
-Administración de cajas chicas
-Artículo 7º—Designación del administrador del fondo de caja chica.
-7.1 La Gerencia y las Direcciones correspondientes deben designar a un funcionario titular y a un suplente, denominados "responsables de fondo de caja chica", encargados de administrar el fondo de caja chica. Los nombres de estas personas deben ser reportados al Departamento de Tesorería para la actualización del registro de firmas correspondiente.
-7.2 El funcionario designado como suplente debe asumir la administración de la caja chica durante las ausencias temporales del titular por motivo de vacaciones, incapacidad o permisos, así como en caso de retiro definitivo de la Empresa. Antes de asumir el cargo el suplente se debe realizar un arqueo, del cual debe quedar constancia por escrito en el formulario respectivo, debidamente firmado por el titular y el suplente (formulario Nº 7, "Detalle de arqueo de caja chica y fondo especial y del formulario Nº 8, "Detalle de documentos de caja chica y fondo especial).

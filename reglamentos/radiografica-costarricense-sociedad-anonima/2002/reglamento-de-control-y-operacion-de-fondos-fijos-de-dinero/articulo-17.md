@@ -1,3 +1,0 @@
-Artículo 17.—Procedimiento para atender los asuntos en días y horas no hábiles.
-17.1 Los requerimientos de dinero en efectivo para atender necesidades urgentes e impostergables de la Empresa pueden efectuarse, excepcionalmente, por medio de las cajas recaudadoras de la Empresa (ubicadas en el Centro de Telecomunicaciones). En estos casos el funcionario deberá obtener posteriormente la autorización de la jefatura correspondiente.
-17.2 El funcionario solicitante será responsable de que el dinero recibido de esta forma sea liquidado y reintegrado a la caja general, a primera hora del día hábil siguiente.

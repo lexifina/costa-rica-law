@@ -1,3 +1,0 @@
-Artículo 9º—Responsabilidad del control de fondos.
-9.1 La adecuada utilización de los fondos de caja chica le compete a cada Director, quien será responsable directamente, o por delegación, de supervisar el uso adecuado de esos fondos ante la Gerencia General.
-9.2 Además, debe comunicar por escrito, a los responsables del fondo de caja chica, los deberes y responsabilidades establecidos en la presente normativa y velar porque reciban la capacitación necesaria para desempeñarse en el puesto, así como porque dispongan de los recursos mínimos que les permitan administrar los montos asignados en forma adecuada y en condiciones seguras.

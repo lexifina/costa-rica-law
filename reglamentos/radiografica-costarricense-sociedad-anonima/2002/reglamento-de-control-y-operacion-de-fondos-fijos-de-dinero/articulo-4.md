@@ -1,3 +1,0 @@
-Artículo 4º—Adquisiciones con fondos de caja chica.
-4.1 Los fondos de caja chica están provistos para adquisición de bienes y servicios menores, adelantos y liquidaciones de viáticos para viajes en el interior del país, devoluciones de dinero a clientes, compra de pasajes aéreos y aquellos otros gastos que por razón de costo–beneficio o por su escasa cuantía, no sea conveniente someter a los trámites normales de contratación, según sea necesario, como medida para evitar los gastos administrativos en que se incurriría al realizar esos trámites normales de adquisición.
-4.2 Los fondos de caja chica no pueden utilizarse para cubrir gastos diferentes a aquellos para los que fueron previamente autorizados.
