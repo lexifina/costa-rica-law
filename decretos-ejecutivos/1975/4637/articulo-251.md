@@ -1,0 +1,1 @@
+Artículo 251.-Todo solicitante que haya sufrido una operación quirúrgica importante en el sistema urinario, con extirpación total o parcial o desviación de cualquiera de sus órganos, debe considerarse como no apto hasta que la autoridad médica que conozca los detalles de la referida operación estime que no es probable que sus consecuencias causan incapacidad repentina en vuelo.

@@ -1,0 +1,4 @@
+Artículo 58.-La licencia para piloto comercial de avión conferirá a titular las siguientes atribuciones y limitaciones:
+a) Ejercer todas las atribuciones propias de un piloto privado de avión;
+b) Ejercer el mando en aquellos aviones de transporte aéreo comercial cuyo peso máximo de despegue certificado sea inferior a 5.700 kilogramos. En tal atribución no podrá llevar pasajeros durante el transcurso de la noche a menos que sea titular de una habilitación para vuelo por instrumentos)' que, dentro del período de seis meses inmediato anterior a la realización del vuelo en cuestión, haya efectuado un mínimo de diez despegues)' aterrizajes nocturnos; y
+c) Ejercer como copiloto, cuando así se exija, en cualquier avión dedicado al transporte aéreo comercial y con la condición establecida en el inciso anterior en relación a transporte aéreo comercial nocturno.

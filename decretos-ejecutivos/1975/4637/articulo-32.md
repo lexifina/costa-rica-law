@@ -1,0 +1,1 @@
+Artículo 32.-El titular de una licencia será suspendido en el ejercicio. De las atribuciones que le confiere su correspondiente licencia durante todo el período en que, por una causa cualquiera, su aptitud psicofísica haya sufrido menoscabo.

@@ -1,0 +1,2 @@
+Artículo 160.-La electrocardiografía formará parte del reconocimiento del corazón cuando se otorga por primera vez una licencia y se efectuará cada dos años en los reconocimientos sucesivos de solicitantes cuya edad esté comprendida entre 30 y 40 años y, a partir de esta última edad, anualmente.
+El objeto de utilizar periódicamente la electrocardiografía, es descubrir anomalías. No proporciona suficiente prueba para justificar descalificación sin un nuevo y detenido reconocimiento cardiovascular.

@@ -1,0 +1,1 @@
+Artículo 50.-El aspirante a una habilitación para vuelo por instrumentos tendrá que proporcionar además, para la prueba práctica correspondiente, el equipo y sistemas satisfactorios a juicio del examinador, de los que se excluirá cualquier referencia visual del aspirante hacia afuera de la aeronave.

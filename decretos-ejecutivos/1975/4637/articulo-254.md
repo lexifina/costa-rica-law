@@ -1,0 +1,2 @@
+Artículo 254.-Toda afección de los huesos, articulaciones, músculos o tendones y todas las secuelas funcionales graves de enfermedades congénitas o adquiridas, se considerarán como causa de incapacidad.
+Podrá considerarse que no son causa de incapacidad las consecuencias funcionales de lesiones en los huesos, articulaciones, músculos o tendones y ciertos defectos anatómicos compatibles con la operación segura de una aeronave en vuelo.

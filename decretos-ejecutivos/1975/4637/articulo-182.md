@@ -1,0 +1,2 @@
+Artículo 182.-Las solicitantes que tengan un historial de graves trastornos menstruales, que hayan demostrado ser refractarias al tratamiento y que es probable les impidan el manejo seguro de una aeronave, se considerarán incapacitadas. Toda gestación se considerará como caso de incapacidad temporal.
+Después del parto o aborto, no se permitirá que la solicitada ejerza las atribuciones correspondientes a su licencia, hasta que no se haya sometido a un reconocimiento y se le considere apta.

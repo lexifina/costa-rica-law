@@ -1,0 +1,1 @@
+Artículo 93.-La habilitación para vuelos agrícolas permtirá a su titular actuar como piloto al mando de una aeronave que descargue en vuelo simientes, abonos u otros productos que se utilicen en la agricultura tales como las sustancias químicas que se clasifican como insecticidas, hierbicidas, fungicidas, defoliantes, etc.

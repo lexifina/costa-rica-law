@@ -1,0 +1,1 @@
+Artículo 15.-Cuando un solicitante demuestre su pericia para la atención de una licencia de piloto se inscribirá en ella las correspondientes habilitaciones de categoría, clase y tipo otorgadas si así procediere.

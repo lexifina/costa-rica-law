@@ -1,0 +1,2 @@
+Artículo 264.-La electrocardiografía formará parte del reconocimiento cardíaco cuando se otorgue por primera vez una licencia, luego en el primer reconocimiento efectuado al titular de la licencia después de que haya cumplido los40 años de edad; a continuación por lo menos. cada cinco años y por último en los reconocimientos necesarios y sucesivos ante casos dudosos.
+El objeto de usar periódicamente la electrocardiografía es descubrir anomalías y no constituye suficiente prueba para justificar la descalificación sin un nuevo y detenido reconocimiento cardiovascular.

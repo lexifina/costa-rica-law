@@ -1,0 +1,1 @@
+Artículo 166.-Los casos de tuberculosis pulmonar activa, debidamente diagnosticados, se consideran como causa de incapacidad. Los casos de lesiones inactivas o cicatrizadas tuberculosas pueden considerarse admisibles a criterio del médico examinador.

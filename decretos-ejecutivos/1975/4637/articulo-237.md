@@ -1,0 +1,1 @@
+Artículo 237.-Toda mutilación extensa de la pared torácica y las secuelas de intervenciones quirúrgicas que ocasionen deficiencia respiratoria en altitud, serán causa de que se considere no apto al solicitante.

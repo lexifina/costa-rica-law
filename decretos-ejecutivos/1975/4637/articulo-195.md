@@ -1,0 +1,2 @@
+Artículo 195.-La electrocardiografía formará parte del reconocimiento del corazón cuando se otorgue por primera vez una licencia y se efectuará por lo menos cada dos años en los reconocimientos sucesivos de solicitantes cuya edad sea de 40 años o más.
+El objeto de utilizar periódicamente la electrocardiografía es descubrir anomalías y no constituye suficiente prueba para justificar la descalificación sin un nuevo y detenido reconocimiento cardiovascular.

@@ -1,0 +1,2 @@
+Artículo 159.-El solicitante no presentará ninguna anomalía del corazón, congénita o adquirida, que pueda impedirle el manejo seguro de una aeronave. Una historia de infarto del miocardio comprobada será motivo de descalificación.
+Algunas anomalías que se presentan corrientemente tales como la arritmia respiratoria, extrasístoles aislados que desaparecen con el ejercicio, taquicardia debido a la agitación o al ejercicio o bradicardia que no vaya acompañada de disociación auriculoventricular, pueden considerarse comprendidas dentro de los límites "normales".

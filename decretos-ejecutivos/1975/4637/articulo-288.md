@@ -1,0 +1,1 @@
+Artículo 288.-La agudeza visual deberá medirse por medio de una serie de optotipos de Landolt, o de un tipo similar, colocados a una distancia de seis o de cinco metros del solicitante según corresponda al método de prueba adoptada.

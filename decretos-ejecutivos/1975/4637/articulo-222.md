@@ -1,0 +1,1 @@
+Artículo 222.-Toda afección de los huesos, articulaciones, músculos o tendones y todas las secuelas funcionales graves de enfermedades congénitas o adquiridas, se considerarán como causa de incapacidad si a criterio del médico examinador impiden la operación segura de una aeronave a cualquier altitud.

@@ -1,0 +1,1 @@
+Artículo 250.-Toda secuela de enfermedad o de una intervención quirúrgica en los riñones y en las vías urinarias que pueda causar incapacidad repentina, especialmente los estrechamientos por compresión o constricción, será eliminatoria. Podrá considerarse que no es eliminatoria la nefrectomia, sin hipertensión ni uremia.

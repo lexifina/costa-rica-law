@@ -1,0 +1,2 @@
+Artículo 282.-Toda afección de los huesos, articulaciones, músculos o tendones y todas las secuelas funcionales graves de enfermedades congénitas o adquiridas, se considerarán como causa de incapacidad.
+Podrá considerarse que no son eliminatorias las consecuencias funcionales de lesiones en los huesos, articulaciones, músculos o tendones y ciertos defectos anatómicos compatibles con el buen desempeño de las obligaciones que competen al solicitante.

@@ -1,0 +1,2 @@
+Artículo 232.-La electrocardiografía formará parte del reconocimiento cardíaco cuando se otorgue por primera vez una licencia; luego en el primer reconocimiento efectuado al titular de la licencia después de los 40 años de edad; a continuación cada cinco años; por último en todos aquellos reconocimientos necesarios y sucesivo? ante casos dudosos.
+El objeto de utilizar periódicamente la electrocardiografía, es descubrir anomalías. Y no constituye suficiente prueba para justificar la descalificación sin un nuevo y detenido reconocimiento cardiovascular.

@@ -1,0 +1,2 @@
+Artículo 194.-El solicitante no presentará ninguna anomalía del corazón, congénita o adquirida, que pueda impedirle el buen desempeño de sus obligaciones. Una historia de infarto en el miocardio comprobada será motivo de descalificación.
+Algunas anomalías que se presentan corrientemente, tales como arritmia respiratoria, extrasístoles aislados que desaparecen con el ejercicio, taquicardia debido a la agitación o al ejercicio o braquicardia que no vaya acompañada de disociación auriculoventricular, pueden considerarse comprendidas dentro de los límites "normales" .

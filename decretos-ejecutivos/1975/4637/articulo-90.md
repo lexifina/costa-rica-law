@@ -1,0 +1,4 @@
+Artículo 90. -La revalidación de la habilitación para Instructor de Vuelo se efectuará al mismo tiempo que la de la licencia en que va inscrita y, para ello, además de los requisitos que a la licencia correspondan, será necesario demostrar ante la Dirección General de Aviación Civil que se posee la siguiente experiencia reciente:
+a) Haber entrenado, en el período de doce meses inmediato anterior a no menos de dos alumnos que hayan obtenido la licencia o habilitación correspondiente; y
+b) Haber efectuado, dentro del período de seis meses inmediato anterior no menos de seis horas de práctica de enseñanza de vuelo.
+Cuando no se hubiese cumplido los requisitos anteriores para revalidar la habilitación de Instructor de Vuelo, será necesario someter al solicitante a un examen de pericia y a las pruebas que la Dirección General de Aviación Civil, estime convenientes y pertinentes según las circunstancias del caso en particular.

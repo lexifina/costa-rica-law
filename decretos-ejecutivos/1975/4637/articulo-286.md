@@ -1,0 +1,1 @@
+Artículo 286.-Para las pruebas de agudeza visual realizados en un cuarto iluminado deberá adaptarse un nivel de iluminación de 50 lux aproximadamente, que corresponde normalmente a una brillantez de 30 candelas por metro cuadrado. El nivel de la luz del cuarto debería ser aproximadamente un quinto del nivel de iluminación de la prueba.

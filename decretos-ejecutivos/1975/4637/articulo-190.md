@@ -1,0 +1,2 @@
+Artículo 190.-El solicitante no deberá tener historia clínica comprobada ni diagnóstico clínico de cualquier anomalía mental, desorden de la personalidad o neurosis que, de acuerdo con dictamen médico acreditado, pudiere impedirle dentro de los dos años siguientes al examen ejercer con seguridad los privilegios de la licencia o habilitación solicitada.
+No se considerará como eliminatoria una historia de psicosis tóxica aguda, siempre que el solicitante no sufra de incapacidad permanente.

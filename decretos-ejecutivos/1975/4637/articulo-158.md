@@ -1,0 +1,1 @@
+Artículo 158.-Se considerarán como causa de incapacidad los casos de traumatismos craneoencefálicos cuyos efectos, según dictamen médico acreditado, puedan afectar la operación segura de una aeronave.

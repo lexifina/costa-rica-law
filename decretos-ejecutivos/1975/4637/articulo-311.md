@@ -1,0 +1,1 @@
+Artículo 311.-La licencia no excederá de 15 X 19 centímetros con el propósito de que el tamaño de la licencia sea lo más pequeño posible para que cuando esté plegada quepa en una cartera de bolsillo de uso corriente.

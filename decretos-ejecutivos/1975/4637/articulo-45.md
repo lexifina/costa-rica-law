@@ -1,0 +1,1 @@
+Articulo 45.-Si al realizar una prueba práctica el aspirante no aprueba alguna de las operaciones enumeradas en los incisos del artículo anterior, se considerará que ha fallado la prueba en total y no se le otorgará la licencia o habilitación que solicita hasta que logre efectuar con éxito otra prueba de pericia de conformidad con el artículo 35 de este Reglamento.

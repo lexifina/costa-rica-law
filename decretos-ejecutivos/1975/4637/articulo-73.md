@@ -1,0 +1,3 @@
+Artículo 73. -La licencia para piloto privado de helicóptero conferirá a su titular las siguientes atribuciones y limitaciones:
+a) Ejercer al mando de cualquier helicóptero que no se opere en forma comercial, sin que pueda percibir por ello remuneración. En tal atribución no podrá !levar pasajeros durante el transcurso de la noche a menos que sea titular de habilitación para vuelo por instrumentos y que, dentro del período de 90 días inmediato anterior a la realización del vuelo en cuestión, haya efectuado cuando menos 5 despegues y aterrizajes nocturnos; y
+b ) Ejercer como copiloto en cualquier helicóptero que no sea operado por remuneración.

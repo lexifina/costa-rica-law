@@ -1,0 +1,1 @@
+Artículo 21.-Para que el titular de una licencia de piloto actúe al mando de una aeronave dedicada a las operaciones de aviación agrícola, debe contar con autorización de la Dirección General de Aviación Civil extendida por escrito. La correspondiente habilitación para vuelos agrícolas se inscribirá en la licencia del titular.

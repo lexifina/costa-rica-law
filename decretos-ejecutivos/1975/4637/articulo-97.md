@@ -1,0 +1,1 @@
+Artículo 97.-El titular de una licencia de piloto comercial o de piloto comercial de primera clase, tendrá derecho a que se le acredite, a cuenta del tiempo exigido para una licencia de grado superior, el total de horas voladas ejerciendo como piloto al mando.

@@ -1,0 +1,1 @@
+Artículo 148.-El permiso perderá su validez cuando el instructor teórico terrestre haya dejado de ejercer las atribuciones que aquélla le confiere durante seis meses consecutivos. El permiso seguirá sin validez mientras no se haya comprobado nuevamente la aptitud del instructor teórico terrestre para ejercer las atribuciones correspondientes a su clase.

@@ -1,0 +1,1 @@
+Artículo 179.-Toda secuela de enfermedad o de intervención quirúrgica en los riñones y en las vías urinarias que puedan causar incapacidad repentina, especialmente los estrechamientos por compresión o constricción será eliminatoria. Podrá considerarse que no es eliminatoria la nefrectomía compensada si hipertensión ni uremia.

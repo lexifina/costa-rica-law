@@ -1,0 +1,1 @@
+Artículo 110. -Cuando los conocimientos y la pericia del solicitante en lo concerniente al equipo radiotelefónico no se juzguen satisfactorios, la Dirección General de Aviación Civil podrá extenderle la de radioperador de a bordo, con una anotación que limite sus atribuciones a la operación del equipo radiotelegráfico.

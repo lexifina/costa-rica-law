@@ -1,0 +1,1 @@
+Artículo 87.-Las atibuciones especificadas en los artículos 82 y 86 podrán conferirse mediante una sola habilitación para vuelo por instrumentos, siempre que se hayan satisfecho los requisitos para la expedición de ambas habilitaciones, según se especifica en los artículos 81 y 85 de este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 111.-Para la revalidación de la licencia de radioperador de a bordo el solicitante debe, además de presentar el correspondiente certificado médico, demostrar mediante certificación extendida por Autoridad competente y dirigida a la Dirección General de Aviación Civil que se posee, a lo menos, la siguiente experiencia reciente:
+a) Haber efectuado dentro del período de doce meses inmediato anterior vuelos como radioperador de a bordo con una duración total no inferior a veinte horas.

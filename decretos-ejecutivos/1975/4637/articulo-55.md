@@ -1,0 +1,3 @@
+Artículo 55.-La licencia para piloto privado de avión conferirá a su titular las siguientes atribuciones y limitaciones:
+a) Ejercer al mando de cualquier avión que no se opere en forma comercial sin que pueda percibir por ello remuneración. En tal atribución no podrá llevar pasajeros durante el transcurso de la noche a menos que sea titular de habilitación para vuelo por instrumentos y que, dentro del período de seis meses inmediato anterior a la realización del vuelo en cuestión, haya efectuado cuando menos, cinco despegues y aterrizajes nocturnos.
+b ) Ejercer como copiloto en cualquier avión que no sea operado en forma comercial, sin que pueda percibir por ello remuneración.

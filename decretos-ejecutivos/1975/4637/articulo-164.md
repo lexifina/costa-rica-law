@@ -1,0 +1,1 @@
+Artículo 164.-Toda mutilación extensa de la pared toráxica con hundimiento de caja torácica y las secuelas de intervenciones quirúrgicas que ocasionen deficiencia respiratoria descalificarán al solicitante.

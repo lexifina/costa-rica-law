@@ -1,0 +1,1 @@
+Artículo 284.-No existirá ninguna deformidad grave, ni afección aguda o crónica de la cavidad bucal o de los conductos respiratorios superiores. Los defectos de articulación del lenguaje y del tartamudeo se considerarán como eliminatorios.

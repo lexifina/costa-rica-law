@@ -1,0 +1,1 @@
+Artículo 184.- Toda afección de los huesos, articulaciones, músculos o tendones y todas las secuelas funcionales graves de enfermedades congénitas o adquiridas, se considerarán como causa de incapacidad cuando impidan la operación segura de una aeronave a cualquier altitud.

@@ -1,0 +1,1 @@
+Artículo 310.-Los datos que figuran en la licencia se citarán uniformemente con las letras del abecedario conforme se establecen en el artículo 307 de modo que en cualquier licencia la letra correspondiente se refiera siempre al mismo dato, cualquiera que sea la disposición de la licencia.

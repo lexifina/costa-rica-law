@@ -1,0 +1,1 @@
+Artículo 287.-Para las pruebas de agudeza visual realizadas en un cuarto oscurecido o semioscurecido deberá adoptarse un nivel de iluminación de 15 lux aproximadamente, que corresponda normalmente a una brillantez de 10 candelas por metro cuadrado.

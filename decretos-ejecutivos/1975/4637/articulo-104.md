@@ -1,0 +1,1 @@
+Artículo 104.-La licencia para navegante conferirá a su titular con sujeción al cumplimiento de los requisitos estipulados en los artículos 89 al 22 de este Reglamento, las atribuciones para actuar como tal en cualquier aeronave.

@@ -1,0 +1,1 @@
+Artículo 270.-Los casos de tuberculosis pulmonar activa, debidamente diagnosticada, se considerarán como causa de incapacidad. Los casos de lesiones inactivas o cicatrizadas, que se sabe o se presume tienen origen tuberculoso, pueden considerarse como admisibles.

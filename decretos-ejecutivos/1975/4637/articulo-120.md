@@ -1,0 +1,5 @@
+Artículo 120.-La licencia para mecánico de mantenimiento de aeronaves. tipo II, conferirá a su titular, con sujeción al cumplimiento de los requisitos estipulados en el artículo 121 de este Reglamento, las siguientes atribuciones:
+a) En cuanto a licencias que confieran atribuciones respecto a aeronaves en su totalidad podrá:
+1 . Certificar la aeronavegabilidad de una aeronave después de que se haya llevado a cabo una pequeña modificación autorizada, o la instalación de un sistema motopropulsor, un accesorio, instrumento y/o parte del equipo previamente aprobados.
+2. Firmar un visto bueno de mantenimiento certificado de seguridad para el vuelo después de efectuadas la inspección, las operaciones de mantenimiento y/o de servicio corriente.
+b) Respecto a licencias que confieran atribuciones limitadas de acuerdo con los incisos b) o c) del artículo 121 de este Reglamento podrá certificar como satisfactorias las partes de la aeronave que figuren en su licencia después de una inspección, una pequeña reparación o una pequeña modificación autorizada.

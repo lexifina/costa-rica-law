@@ -1,0 +1,1 @@
+Artículo 14.-En tratándose de operaciones de transporte comercial o de pasajeros será indispensable que la Dirección General de Aviación Civil haya dado autorización apropiada al titular de una licencia de piloto a efectos de que actúe como piloto al mando o como copiloto. Tal autorización apropiada sólo podrá ser una habilitación de categoría, de clase o de tipo.

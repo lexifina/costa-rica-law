@@ -1,0 +1,1 @@
+Artículo 235.-No existirá ninguna afección pulmonar aguda ni ninguna enfermedad activa en la estructura de los pulmones del mediastino o del pleura. La radiografía formará parte del reconocimiento médico en todos los casos clínicos dudosos.

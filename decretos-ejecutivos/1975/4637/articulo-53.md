@@ -1,0 +1,1 @@
+Artículo 53.-El permiso para estudiante de piloto no será exigido en los casos en que el aspirante lo sea para una licencia de mayor categoría, dentro de la clasificación establecida, de aquella que actualmente posea.

@@ -1,0 +1,1 @@
+Artículo 186. -Ambos conductos nasales deben permitir el libre paso del aire. lo existirá ninguna deformidad grave, ni afección aguda o crónica de la cavidad bucal o de los conductos 1espiratorios superiores. Los defectos de articulación del lenguaje y el tartamudeo, se considerarán como eliminatorios.

@@ -1,0 +1,1 @@
+Artículo 201.-Toda mutilación extensa de la pared torácica con hundimiento de la caja torácica y las secuelas de intervenciones quirúrgicas que ocasionen deficiencia respiratoria descalificarán al solicitante.

@@ -1,0 +1,1 @@
+Artículo 146.-Los titulares de los permisos de instructor teórico también podrán impartir instrucción en los entrenadores sintéticos o simulador es de vuelo siempre que demuestren, ante la Dirección General de Aviación Civil, la pericia satisfactoria en la operación de dichos entrenadores sintéticos.

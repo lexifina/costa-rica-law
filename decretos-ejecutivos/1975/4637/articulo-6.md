@@ -1,0 +1,1 @@
+Artículo 6°-Las licencias y permisos que presenten altreaciones físicas o químicas que hagan dudar de su legitimidad serán requisadas por la autoridad competente; si se llegase a comprobar que las alteraciones obedecen al accionar malicioso de su titular se estará a lo dispuesto en el régimen de sanciones.

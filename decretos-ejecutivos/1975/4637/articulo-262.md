@@ -1,0 +1,1 @@
+Artículo 262.-Se considerarán como causa de incapacidad los casos de traumatismos craneoencefálicos cuyos efectos, según dictamen médico acreditado, puedan afectar el buen desempeño de las obligaciones que competen al solicitante.

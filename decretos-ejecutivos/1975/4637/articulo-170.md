@@ -1,0 +1,1 @@
+Artículo 170.-Toda secuela de enfermedad o intervención quirúrgica en cualquier parte del conducto digestivo y sus anexos, que pueda causar incapacidad repentina. durante el vuelo, especialmente los estrechamiento s por retracción o compresión, se considerarán como causa de incapacidad.

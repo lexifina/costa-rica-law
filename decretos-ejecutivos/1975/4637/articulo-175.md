@@ -1,0 +1,1 @@
+Artículo 175.- Los casos de hipertrofia importante localizada o generalizada de las glándulas linfáticas y las enfermedades de la sangre, se considerarán como causa de incapacidad. Se efectuará un hemograma cada vez que se practique un reconocimiento médico.

@@ -1,0 +1,1 @@
+Artículo 38.-Las calificaciones necesarias para la aprobación de las pruebas teóricas serán establecidas por la Dirección General de Aviación Civil e indicada en las hojas o folletos de información correspondientes.

@@ -1,0 +1,4 @@
+Artículo 42.-Será elegible para la realización de cualquier prueba de pericia previa a la obtención de una licencia o habilitación de categoría, de tipo o de vuelo por instrumentos al aspirante que demuestre:
+a) Haber sido aprobado en la prueba teórica correspondiente dentro de los doce meses anteriores a la fecha en que solicita tal prueba de pericia o práctica; .
+b) Haber presentado certificado extendido por un instructor de vuelo habilitado en que conste que ha recibido, dentro de los últimos sesenta días anteriores a la fecha de la prueba, la instrucción y preparación necesarias para dicha prueba y que por lo tanto se encuentra apto para realizarla; y
+e) Haber presentado certificado médico válido en que conste haber rendido satisfactoriamente el examen de aptitud psicofísica correspondiente a la licencia o habilitación.

@@ -1,0 +1,3 @@
+Artículo 106.-La licencia para ingeniero de vuelo o mecánico de a bordo conferirá a su titular con sujeción al cumplimiento de los requisitos estipulados en los artículos 8° al 22 de este Reglamento las atribuciones para actuar como tal en cualquier aeronave, siempre que, durante el período de doce meses inmediato anterior haya:
+a) Demostrado bajo supervisión, competencia para asumir las funciones propias de ingeniero de vuelo o mecánico de a bordo en ese tipo de aeronave y estar al corriente de toda la información de actualidad relativa a los procedimientos correspondientes a la misma; y
+b) Adquirido experiencia adecuada como ingeniero de vuelo o mecánico de a bordo en ese tipo de aeronave.

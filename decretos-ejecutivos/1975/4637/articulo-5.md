@@ -1,0 +1,1 @@
+Artículo 5°-Es obligación de todo titular de una licencia, habilitación o permiso, portar el respectivo documento durante el ejercicio de la actividad aeronáutica para la cual se encuentra autorizado.

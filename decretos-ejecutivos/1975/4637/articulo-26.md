@@ -1,0 +1,1 @@
+Artículo 26.-La Dirección General de Aviación Civil podrá reconocer temporalmente las licencias concedidas en otros países a personal extranjero que desempeña funciones en Costa Rica siempre y cuando sean de asesoramiento y mientras no se cuente en el país con personal nacional calificado para el de empeño de las funciones mencionadas.

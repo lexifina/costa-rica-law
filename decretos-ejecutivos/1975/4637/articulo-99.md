@@ -1,0 +1,1 @@
+Artículo 99 .-El titular de una licencia de piloto de transporte de línea aérea tendrá derecho a que se le acredite el total de horas de vuelo realizadas ejerciendo como piloto al mando, o como copiloto, con tal de que haya recibido la debida autorización estipulada en el artículo 14 de este Reglamento.

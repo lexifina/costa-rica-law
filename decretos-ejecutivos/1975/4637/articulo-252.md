@@ -1,0 +1,1 @@
+Artículo 252.-A la persona que solicite por primera vez una licencia y cuyos antecedentes clínicos indiquen que ha estado afectada de sífilis, se le exigirá que presente pruebas que convenzan al médico examinador de que se ha sometido a un tratamiento adecuado.

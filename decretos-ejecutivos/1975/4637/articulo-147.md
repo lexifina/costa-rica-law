@@ -1,0 +1,1 @@
+Artículo 147.-Los titulares de los permisos de instructor teórico tendrán derecho a cobrar por sus servicios ajustándose a lo dispuesto por la Ley, los Reglamentos o las disposiciones tomadas por la Entidad competente.

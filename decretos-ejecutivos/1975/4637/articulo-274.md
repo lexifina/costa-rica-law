@@ -1,0 +1,1 @@
+Artículo 274.-Toda secuela de enfermedad o intervención quirúrgica en cualquier parte del conducto digestivo y sus anexos, que pueda causar incapacidad repentina durante el vuelo, especialmente los estrechamientos por retracción o compresión, se considerará como causa de incapacidad.

@@ -1,0 +1,1 @@
+Artículo 200.-Toda mutilación extensa de la pared torácica con hundimiento de la caja torácica y las secuelas de intervenciones quirúrgicas que ocasionen deficiencia respiratoria en altitud, será causa de que se considere al solicitante como no apto.

@@ -1,0 +1,1 @@
+Artículo 33.-La suspensión a que se refiera el artículo anterior se entenderá que opera en forma automática a partir del momento en que el titular de la licencia tenga conocimiento, por cualquier medio, del menoscabo en su aptitud psicofísica.

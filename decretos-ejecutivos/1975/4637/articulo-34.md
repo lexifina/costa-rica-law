@@ -1,0 +1,1 @@
+Artículo 34.-La Dirección General de Aviación Civil se reserva el derecho de verificar la idoneidad del titular de una licencia cuando sea justificable por indicios claros de irregularidad o cuando la seguridad aérea así lo exija. Para dicha verificación se podrá someter al titular mencionado a las comprobaciones o exámenes que la Dirección estime pertinentes y convenientes.

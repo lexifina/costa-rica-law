@@ -1,0 +1,2 @@
+Artículo 41.-El aspirante que infrinja cualquier disposición del artículo anterior será declarado inelegible para otorgarle licencia o habilitación por un período de veinticuatro meses contados a partir de la fecha de la infracción.
+La comisión de la infracción dará motivo suficiente a la Dirección General de Aviación Civil para que revoque o suspenda, por el término que considera prudente, cualquier clase de licencia o habilitación de la que sea titular el infractor sea este aspirante o examinador.

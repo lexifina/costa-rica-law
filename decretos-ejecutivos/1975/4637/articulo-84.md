@@ -1,0 +1,1 @@
+Artículo 84.-La experiencia reciente mínima que se fija para revalidar la habilitación es independiente de la demostración periódica de competencia que establece el Reglamento para la Operación de Aviones de Transporte Público, según las normas del Anexo 6 al Convenio de Aviación Civil Internacional (OACI).
