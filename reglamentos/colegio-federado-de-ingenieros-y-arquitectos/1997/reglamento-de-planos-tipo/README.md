@@ -14,3 +14,4 @@ Reglamento de Planos Tipo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-09-05 | la propia norma |
+| 2 | 1998-08-06 | Reglamento 27 (1998-08-06) |

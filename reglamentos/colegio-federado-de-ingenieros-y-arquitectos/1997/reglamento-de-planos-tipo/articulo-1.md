@@ -4,15 +4,15 @@ El Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, comunica que l
 “Dejar sin efecto el Reglamento Especial para Uso de Planos Tipo aprobado por la Junta Directiva en sesión N° 25-G.O. de fecha 3 de abril de 1990, quedando vigente el nuevo Reglamento de Planos Tipo y modificando su designación anterior como procedimiento, el cual fue aprobado por la Junta Directiva General en sesión N° 37-95/96-G.O. de fecha 4 de julio de 1996: Asimismo, se modifica el segundo párrafo de las Generalidades del Reglamento, el cual se transcribe textualmente:
 REGLAMENTO DE PLANOS TIPO
 El Colegio Federado de Ingenieros y de Arquitectos de Costa Rica inscribirá proyectos tipo cuando así se solicite, con el fin de tener un registro de los mismos para efectos de:
-Registro de propiedad intelectual
 Definición de Promotor y usuarios posibles autorizados
 Autorización para trámite especial en la Oficina de Registro de Planos y Contratos de Proyectos de Construcción.
+(Así reformado en sesión N° 27 del 6 de agosto de 1998)
 DEFINICION DE TERMINOS
 Proyecto Tipo: Proyecto realizado por un profesional o grupo de profesionales, el cual contiene características básicas, (arquitectónicas y estructurales), idénticas y puede ser ejecutado más de una vez.
 Profesional responsable: Un proyecto tipo será realizado por uno o varios profesionales, los cuales asumirán la responsabilidad del diseño del proyecto.
 Promotor del proyecto: Será aquella institución, pública o privada, que inscriba ante el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica un proyecto tipo para su posterior utilización en la ejecución de la obra diseñada.
 Usuarios del proyecto: Son el grupo de personas que se verán beneficiadas con la utilización del proyecto tipo para la ejecución de la obra que se diseñe.
-Propiedad intelectual: Se define conforme el artículo 8° del Reglamento para la Contratación de Servicios de Consultoría en Ingeniería y Arquitectura como “El resultado del ejercicio profesional del consultorio por ser una actividad creativa que integra ciencia, arte y técnica, es propiedad intelectual de su creador y, como tal, está protegido por las leyes que versan sobre la materia.”
+Propiedad intelectual: (Así Derogado en sesión N° 27 del 6 de agosto de 1998)
 GENERALIDADES
 La inscripción del Proyecto Tipo en el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, se realizará con el fin de registrar el o los profesionales responsables de la obra en su etapa de diseño. La inscripción de la responsabilidad profesional para la etapa de ejecución de estos proyectos se realizará conforme los procedimientos ya establecidos por el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.
 La vigencia del Proyecto Tipo será de cuatro años, al cabo de los cuales deberá renovarse la inscripción, como condición para que continúe teniendo vigencia, cumpliendo los requisitos originales del reglamento a solicitud del dueño de la propiedad intelectual, o del Promotor, siendo su aplicación única y exclusivamente para el proyecto específico que defina el diseñador y con las condiciones y especificaciones técnicas señaladas.
@@ -25,7 +25,8 @@ Solicitud por escrito dirigida a la Subdirección. de Fiscalía y Tasación para
 - Definición de los usuarios de los planos.
 - Profesionales responsables de la elaboración de los planos. (Cada profesional será responsable del diseño en la disciplina que le corresponde)
 II. Carta suscrita por los profesionales diseñadores del proyecto (en sus diferentes disciplinas), aceptando la responsabilidad del proyecto y autorizando el uso del mismo con definición del promotor y usuarios de los planos.
-III. Dos juegos de planos del proyecto tipo, debidamente firmados por los profesionales que intervienen en el diseño de los mismos, en sus respectivas disciplinas.
+III. Cuatro juegos de planos del proyecto tipo, debidamente firmados por los profesionales que intervienen en el diseño de los mismos, en sus respectivas disciplinas.
+(Así reformado el punto anterior en sesión N° 27 del 6 de agosto de 1998)
 IV. Los juegos de planos deberán tener las siguientes características:
 - Identificarse como Proyectos Tipo.
 - Deberá definirse con claridad en las laminas, aquellos aspectos técnicos y arquitectónicos que no pueden variarse, e incorporar una lamina modelo, o machote, para ser completada en el momento de la ejecución del proyecto, con aspectos que obligatoriamente debieran definirse según el sitio donde se ejecutara el proyecto. Como mínimo se establecen las siguientes:
