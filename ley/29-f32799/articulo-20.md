@@ -1,1 +1,0 @@
-Artículo 20-Se mantiene la indenunciabilidad a que se refieren las leyes siguientes que tuvieron en mira la protección de aguas: N° 68 de 16 de junio de 1923, N° 37 de 29 de julio de 1908. N° 44 de 21 de junio de 1913, N° 65 de 30 de julio de 1888.

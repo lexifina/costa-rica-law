@@ -1,2 +1,0 @@
-Artículo 14- El terreno debe tener una forma rectangular y si ésta contiguo a las vías de comunicación existentes, ya sean terrestres, marítimas o fluviales, o á las líneas de las que se proyecten, no podrán tener un frente mayor de la cuarta parte del fundo, salvo el caso de que se trate de terrenos rodeados de aguas fluviales o que la naturaleza de los mismos no lo permita.
-En cada esquina debe el solicitante fijar un mojón y unirlos por carriles de cuatro metros de ancho.
