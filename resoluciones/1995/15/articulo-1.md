@@ -1,0 +1,9 @@
+DIRECCIÓN GENERAL DE LA TRIBUTACIÓN DIRECTA
+N° 01595V. Dirección General de la Tributación Directa, San José, a las ocho horas, veinticinco minutos del diecisiete de febrero de mil novecientos noventa y cinco.
+Considerando:
+1. Que el artículo 105 del Código de Normas y Procedimeintos Tributarios faculta a la Administración Tributaria para dictar nosmas generales tendientes a la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+2. Que el párrafo final del artículo 11 de la Ley de Impuesto General sobre las Ventas faculta a la Administración Tributaria para recaudar dicho tributo a nivel de fábrica o aduana, sobre la base del precio de venta al consumidos final.
+3. Que de acuerdo con estudio efectuado por esta Dirección, se determinó que el valor agregado para establecer el precio de venta al consumidor final del fabricante o importador, considerando las etapas de mayorista y detallista en el caso del Durpanel, es de un 26% (veintiseis por cientos).
+4. Que esta Dirección considera necesario establecer el corbo en el caso de dicho producto a nivel de fábrica y aduanas, para garantizar su mejor fiscalización y cobro, razón por la cual, con fundamento en las disposiciones citadas, así como en los artículos 17 y 19 del Reglamento a la Ley de Impuesto General sobre las Ventas en lo conducente, y para tal efecto, estima razonable acoger el porcentaje citado en el artículo anterios. Por tanto,
+RESUELVE:
+Artíulo 1°- Se fija la base imponible del impuesto general sobre las ventas en las estapas de fabricación e importación del Durpanel, agregando un 26% (veintiseis por ciento) a la base establecida a esos niveles; este sistema, conduce al precio estimado de venta para el consumidor final, y en consecuencia, para efectos del cobro del impuesto, a nivel de aduans y de fabricante no deben efectuarse rebajas por descuentos, comisiones ni otros conceptos.
