@@ -1,2 +1,2 @@
-Artículo 22.- La Sala de Casación mirará como de preferencia el
-despacho que por esta ley se le encomienda.
+Artículo 22.- ( ANULADO por Resolución de la Sala Constitucional Nº
+1197 de las 16:30 hrs. del 25 de junio de 1991 ).

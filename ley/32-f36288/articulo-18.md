@@ -1,3 +1,2 @@
-Artículo 18.- La vista no podrá verificarse antes de seis días
-contados desde la fecha en que el señalamiento fuere notificado al
-procesado ó á su defensor.
+Artículo 18.- ( ANULADO por Resolución de la Sala Constitucional Nº
+1197 de las 16:30 hrs. del 25 de junio de 1991 ).

@@ -1,3 +1,2 @@
-Artículo 20.- El procesado por el delitode imprenta puede designar
-defensor en cualquiera estado de la causa si no prefiere defenderse por
-sí mismo.
+Artículo 20.- ( ANULADO por Resolución de la Sala Constitucional Nº
+1197 de las 16:30 hrs. del 25 de junio de 1991 ).

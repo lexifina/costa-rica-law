@@ -1,2 +1,3 @@
-Artículo 10.- Las penas que fija la presente ley serán
-inconmutables, excepto en el caso del artículo 56 del Código Penal.
+Artículo 10.- DEROGADO.
+( Derogado por el artículo 3º de la ley No. 37 de 18 de diciembre de
+1934 ).

@@ -1,3 +1,2 @@
-Artículo 21.- Sólo la Sala de Casación podrá ordenar en su caso el
-arresto de los responsables por delitos de imprenta de cualquier clase ó
-importancia, y admitirles ó no la fianza correspondiente.
+Artículo 21.- ( ANULADO por Resolución de la Sala Constitucional Nº
+1197 de las 16:30 hrs. del 25 de junio de 1991 ).
