@@ -1,0 +1,2 @@
+Artículo 11.—A fin de tener la mayor equidad posible, la Sección de Cobros hará la distribución de las cuentas que se asignan a cada abogado para el cobro judicial, tomando en consideración el avance del trabajo con respecto a los casos asignados a los abogados y el monto a ejecutar judicialmente.
+No se tomarán en cuenta aquellos abogados que se encuentren suspendidos por incumplimiento de las disposiciones de este Reglamento, hasta que cumplan el plazo de la Sanción de la respectiva ley.

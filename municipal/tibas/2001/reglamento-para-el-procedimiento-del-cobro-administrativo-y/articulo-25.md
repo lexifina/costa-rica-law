@@ -1,0 +1,1 @@
+Artículo 25.—El cálculo de los honorarios profesionales debe ser realizado únicamente por el profesional en derecho, tomando como base el decreto ejecutivo de honorarios para abogados que estuviera vigente, y los misinos serán cancelados por el deudor en la Oficina del Profesional a cargo.

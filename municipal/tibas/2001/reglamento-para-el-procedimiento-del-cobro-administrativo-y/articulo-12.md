@@ -1,0 +1,1 @@
+Artículo 12.—La Sección de Cobros deberá rendir informes bimensuales al Alcalde, sobre las gestiones de cobro realizadas, de las cuentas morosas y el estado en que se encuentren las acciones a la fecha.

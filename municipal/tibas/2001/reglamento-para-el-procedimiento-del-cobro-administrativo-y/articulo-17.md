@@ -1,0 +1,2 @@
+Artículo 17.—Los abogados nombrados no podrán aceptar casos de litigio en contra de la Municipalidad.
+El no cumplimiento de esa disposición hará que su nombramiento quede revocado automáticamente como abogado de la Municipalidad.

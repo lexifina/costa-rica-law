@@ -1,0 +1,1 @@
+Artículo 23.—La Municipalidad podrá realizar los trámites administrativos respectivos ante el Colegio de Abogados y Notarios de Costa Rica, en aquellos casos en que se demuestre negligencia o impericia de los abogados, en la tramitación judicial de los casos de cobro que se le han asignado.
