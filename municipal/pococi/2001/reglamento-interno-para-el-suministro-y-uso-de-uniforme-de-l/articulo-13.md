@@ -1,0 +1,1 @@
+Articulo 13.—Los empleados nombrados después de que se haya comprado los uniformes de cada año. Tendrán derecho a que se les ordene la confección de prendas para ellos en cualquier tiempo del ejercicio presupuestario, siempre que exista contenido económico.

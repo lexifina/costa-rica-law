@@ -1,0 +1,1 @@
+Artículo 8°—Cada empleado será responsable por el buen uso que se le dé a las prendas. Por lanío, queda prohibido el ingreso a bares y otros lugares de diversión portando el uniforme municipal, salvo en labores relativas al cargo.

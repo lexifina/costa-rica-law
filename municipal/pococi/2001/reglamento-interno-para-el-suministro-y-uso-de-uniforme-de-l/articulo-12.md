@@ -1,0 +1,1 @@
+Articulo 12.—No se permitirá a tus empleados cambiar a su libre albedrío, el tipo de zapato que la municipalidad disponga comprar. Con ese fin, la Proveeduría Municipal indicará el modelo a comprar, previa [indicación de la Comisión que señala el articulo 4° de este Reglamento.
