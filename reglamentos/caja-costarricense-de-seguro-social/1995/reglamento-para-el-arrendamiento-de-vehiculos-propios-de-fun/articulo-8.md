@@ -1,0 +1,2 @@
+Artículo 8°: La Jefatura de la Unidad respectiva es responsable por la autorización del pago, y de tramitar la gestión por los procedimientos establecidos al respecto en la Institución, así como la correcta aplicación de las normas establecidas.
+Debe existir el reintegro inmediato de los dineros pagados en caso de que no hubiese sido utilizado el vehículo o se haya desvirtuado el objeto por el que se autoriza el pago, independientemente de las sanciones disciplinarias a que se haga acreedor el funcionario por su actuación.

@@ -1,0 +1,1 @@
+Artículo 9°: La Gerencia informará a la Auditoria de sus resoluciones en cuanto a la autorización de Unidades para la aplicación de esta modalidad de contratación. La Auditoria realizará revisiones periódicas de la aplicación de este Reglamento, informando a la Gerencia lo procedente sobre los resultados”.

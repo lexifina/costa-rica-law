@@ -1,0 +1,1 @@
+Artículo 5°: La Caja no asume ninguna responsabilidad por infracciones a la Ley de Tránsito, responsabilidad civil o penal en que incurra el funcionario, daños al propio vehículo u otros, que se produzcan cuando el vehículo es ocupado bajo la modalidad de arrendamiento que regula el presente Reglamento.

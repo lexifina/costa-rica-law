@@ -1,0 +1,1 @@
+Artículo 7°: Con base en la autorización general que otorgue la Gerencia, según el artículo precedente, al Jefe de la Unidad determina los funcionarios subalternos que en virtud de la movilización que demande la prestación de sus servicios, acepten arrendar su propio vehículo.

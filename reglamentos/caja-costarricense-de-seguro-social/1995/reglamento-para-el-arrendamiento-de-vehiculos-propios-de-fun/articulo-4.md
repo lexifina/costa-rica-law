@@ -1,0 +1,1 @@
+Artículo 4°: El kilometraje se pagara de acuerdo con las distancias oficiales establecidas en la Tabla de Distancias de la Dirección General de Transporte Automotor del Ministerio de Obras Publicas y Transportes.

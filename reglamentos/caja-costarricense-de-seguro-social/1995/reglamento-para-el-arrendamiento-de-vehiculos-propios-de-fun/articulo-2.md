@@ -1,0 +1,1 @@
+Artículo 2°: El pago de arrendamiento del vehículo propio es independiente de la retribución salarial que el funcionario recibe por la prestación de sus servicios personales y no origina, en consecuencia, ningún derecho laboral.

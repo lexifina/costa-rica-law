@@ -1,0 +1,1 @@
+Artículo 6°: La Gerencia a gestión de la Jefatura de la Unidad respectiva, autorizará la aplicación de este tipo de contratación de vehículos cuando se origine en una necesidad administrativa y constituya un factor de economía al evitar gastos innecesarios en combustible, viáticos, servicios personales, pago de traslados, etc.
