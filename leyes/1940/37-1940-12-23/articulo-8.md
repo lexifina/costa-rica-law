@@ -1,0 +1,1 @@
+Artículo 8°.-El atraso no justificado de seis meses consecutivos en el pago de la cuota mensual, será causa para la rescisión del contrato. El adquirente solo tendrá derecho a la devolución de las sumas pagadas por concepto de amortización.

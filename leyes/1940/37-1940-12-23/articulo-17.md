@@ -1,0 +1,1 @@
+Artículo 17.-La Junta Nacional queda facultada para adquirir los terrenos necesarios, recibir donaciones y legados y administrar los fondos sin más obligación que la de publicar un estado semestral en el Diario Oficial y de rendir un informe anual a la Secretaria de Trabajo y Previsión Social.
