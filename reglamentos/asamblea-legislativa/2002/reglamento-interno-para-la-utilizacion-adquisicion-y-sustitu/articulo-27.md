@@ -1,0 +1,1 @@
+Artículo 27.—Denuncia ante los órganos competentes. La Jefatura de la Unidad de Transportes, en coordinación con el Departamento de Asesora Legal, deberán denunciar el accidente de transito ante las autoridades competentes.

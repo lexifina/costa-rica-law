@@ -1,0 +1,1 @@
+Artículo 14.—Programas de capacitación. El Departamento de Recursos Humanos en coordinación con la Unidad de Transportes establecerá un programa de capacitación para los funcionarios de esa Unidad, relacionado con los aspectos legales, reglamentarios y técnicos sobre la materia que considere oportunos y que contribuyan con el uso eficiente de los vehículos de la Institución.

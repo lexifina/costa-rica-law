@@ -1,0 +1,1 @@
+Artículo 19.—Uso de vehículos por parte de particulares. Los conductores de los vehículos no deben permitir que personas ajenas a la Institución o al servicio para el cual fue autorizado viajen en el vehículo, salvo fuerza mayor o caso fortuito. En todo caso, deberá mediar autorización previa de su superior inmediato.

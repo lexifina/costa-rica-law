@@ -1,0 +1,18 @@
+Artículo 17.—Deberes y responsabilidades de los conductores de los vehículos. Son deberes y responsabilidades de todo conductor y funcionario autorizado para conducir vehículos de uso administrativo, además de lo consignado en el ordenamiento legal vigente, los siguientes:
+Conocer y cumplir estrictamente la Ley de Tránsito, las disposiciones que establece el presente Reglamento, así como las funciones que establece el Manual Descriptivo de Puestos de la Institución.
+Portar la licencia de conducir oficial al día así como el carné de la Institución que lo acredite como conductor, además antes de brindar el servicio, deberá verificar que la información requerida para solicitar el servicio de transporte este completa en el respectivo formulario.
+Portar y custodiar en el vehículo la tarjeta de derechos de circulación, la tarjeta de ecomarchamo, la revisión técnica, la tarjeta de combustible, la autorización para operar vehículos de la Institución, si fuera el caso la autorización para operar fuera de la jornada ordinaria, asi como las herramientas y dispositivos de seguridad necesarios.
+Antes de conducir un vehículo deberá revisar frenos, dirección, luces, lubricantes, combustible, presión, estado de llantas y del repuesto, nivel de agua y todos aquellos aspectos que aseguren la prestación de un servicio seguro. Para tal efecto se utilizara un formulario impreso para dejar evidencia de la revisión, en el que conste el visto bueno del jefe inmediato.
+Velar porque el vehículo opere en condiciones mecánicas y de carrocería apropiadas y reportar oportunamente los danos que se detecten en el vehículo, así como mantenerlo en óptimas condiciones de limpieza.
+Conducir el vehículo bajo las condiciones establecidas en cuanto a capacidad de carga útil y cantidad nominal de pasajeros consignada en la tarjeta de circulación.
+Aplicar, mientras conduce, las mejores técnicas y conocimientos para el buen manejo, evitando daños o el desgaste acelerado de la unidad. Además, deberá mantener encendido el equipo de radiocomunicación asignado al vehículo.
+Conservar mientras conduce, la mayor compostura y la debida prudencia de manera que no ponga en peligro su seguridad y la de otras personas, la seguridad del vehículo que conduce y de otros vehículos o bienes.
+Seguir la ruta lógica establecida entre los puntos de salida y destino de cada servicio.
+Informar al superior inmediato de cualquier alteración que se presente en el transcurso de un viaje.
+Cuidar las herramientas, repuestos y otras piezas complementarias de que disponga la unidad móvil.
+Guardar el vehículo al finalizar la jornada laboral, en el estacionamiento que la Administración tenga destinado para dicho fin.
+Cubrir las multas por infracciones de tránsito y otras regulaciones que sean penalizadas por los inspectores de tránsito, cuando incurra en ellas.
+Estar a las órdenes, en cuanto al servicio de transporte se refiere, de la persona a la cual se autorizo el servicio durante el tiempo concedido e informar a su jefe inmediato de cualquier situación irregular, anormal, especial o extraordinaria que ocurra.
+Racionalizar el consumo de combustible, así como liquidar ante la Jefatura de la Unidad de Transportes inmediatamente después de brindado el servicio, los cupones que hubiera gastado por compra de combustible, presentando la o las facturas correspondientes.
+Informar a la Unidad de Transportes, cada quince días o cuando se amerite del funcionamiento del vehículo asignado.
+Presentar ante la Unidad de Transportes, en forma inmediata después de realizada la gira, un informe con los detalles relativos al servicio brindado.

@@ -1,0 +1,2 @@
+Artículo 5°—Uso discrecional. El vehículo de uso discrecional es el que esta destinado al servicio del Presidente de la Asamblea Legislativa, el cual no tiene restricciones en cuanto a combustible, horario de operación ni recorrido, podrá usar placas particulares y omitir marcas visibles que lo distingan como vehículo oficial de la Asamblea Legislativa.
+A excepción de este, todos los demás vehículos de la Institución deberán portar placas de matricula oficial en forma permanente.

@@ -1,0 +1,1 @@
+Transitorio II.—El Departamento de Proveeduría deberá establecer un proceso de selección de los proveedores, de acuerdo con lo indicado en el punto 3.5 del articulo 3° y el articulo 9° del presente Reglamento. La lista de proveedores deberá actualizarse de acuerdo con la variación de los precios de mercado.

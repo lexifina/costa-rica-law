@@ -1,0 +1,1 @@
+Transitorio III.—El Departamento de Recursos Humanos en coordinación con la Unidad de Transportes, en un plazo de treinta días a partir de la vigencia del presente Reglamento, presentara ante el Directorio Legislativo la propuesta de capacitación de los funcionarios de la Unidad de Transportes, según se establece en el articulo 14.
