@@ -1,0 +1,5 @@
+Artículo V.—Procedimiento autorización y pago ayuda económica:
+1) De acuerdo con lo resuelto por la Junta Directiva en el articulo 15 sesión 7509 del 14 de diciembre del 2000, se aprobará una ayuda económica hasta por la suma de $2.000 para tratamiento con Braquiterapia a realizarse en el Centro Médico que el paciente elija (libre elección), siempre y cuando dicho tratamiento haya sido aprobado previamente a su inicio por la Comisión Asesora de Oncología de la Gerencia División Medica.
+2) En los casos autorizados por la Comisión Asesora de Oncología, se enviará la respectiva comunicación directamente al paciente, quien deberá comunicar a la Gerencia División Médica, el Centro Médico de su elección y fecha de inicio del tratamiento.
+3) La ayuda económica se girará a nombre del paciente a quien se le aprobó. Para el pago de esta ayuda económica, el paciente deberá presentar una vez finalizado el tratamiento, epicrisis completa la cual debe Indicar fecha inicio, finalización y resultados".
+San José, 28 de febrero del año 2001.

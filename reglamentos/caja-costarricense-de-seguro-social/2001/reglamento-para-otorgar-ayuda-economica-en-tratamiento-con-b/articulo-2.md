@@ -1,0 +1,3 @@
+Artículo II.—Diagnóstico o condiciones para definir tipo de tratamiento. De acuerdo con los protocolos de tratamiento que se aplican en nuestro país, este tratamiento lo requieren las pacientes Neoplásicos, estableciendo que se requiere en los siguientes casos:
+- pacientes portadoras de cáncer de cuello uterino y/o de vagina que requieren la braquiterapia como tratamiento único o coadyuvante para su enfermedad y para consolidar otro tratamiento.
+Estas indicaciones podrían modificarse en el futuro, de acuerdo a las posibilidades técnicas de que disponga la Institución , para el tratamiento de estos casos.
