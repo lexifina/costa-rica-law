@@ -1,0 +1,1 @@
+Artículo 2º.- Para la obtención de la residencia los interesados deberán justificar y comprobar que pertenecen a cualquiera de las dos categorías a que se refiere el artículo 1º y que disfrutan de rentas estables permanentes, generadas en el exterior no menores de trescientos dólares mensuales, que usarán para su subsistencia en el país.

@@ -1,0 +1,1 @@
+Artículo 11.- La falsedad comprobada en los documentos o informes suministrados para el otorgamiento de los beneficios que esta ley confiere, se sancionará ordenando el pago inmediato de los impuestos exonerados más el 10% a título de multa y con cancelación de la credencialde inmigrante, por los organismos correspondientes.
