@@ -1,0 +1,1 @@
+Artículo 9°—Queda absolutamente prohibido prestar el equipo sin la autorización respectiva. Solamente la Alcalde o su Asistente pueden prestar el equipo de sonido a terceras personas, las cuales responderán conforme al Inciso f) del apartado Deberes y Responsabilidades.
