@@ -1,0 +1,1 @@
+7) Se prohíbe destinar los fondos de Caja Chica para efectuar préstamos de sueldos o cualquier operación diferente a su propia finalidad. Lo anterior será comprobado mediante arqueos que realicen funcionarios de la Sección de Auditoría.

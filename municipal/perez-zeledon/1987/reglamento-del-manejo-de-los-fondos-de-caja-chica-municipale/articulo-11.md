@@ -1,0 +1,2 @@
+11) Ninguna persona responsable de fondos de Caja Chica o empleado con funciones de cajero, podrá mantener en las cajas o donde se guarden los fondos y valores municipales, documentos, efectivo o cheques que sean propiedad de otras personas, excepto que sean de organizaciones afines a la Municipalidad, como tampoco deberán suplir dinero de su propiedad para realizar o completar pagos que corresponden a la Municipalidad.
+San Isidro de El General, febrero de 1988

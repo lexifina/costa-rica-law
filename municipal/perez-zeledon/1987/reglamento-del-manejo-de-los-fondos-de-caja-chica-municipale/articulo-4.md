@@ -1,0 +1,1 @@
+4) Todo egreso de Caja Chica deberá ser autorizado por el señor Ejecutivo Municipal, y se regirá por las normas que dicte la Contraloría General de la República (ver artículo 134 del Código Municipal).

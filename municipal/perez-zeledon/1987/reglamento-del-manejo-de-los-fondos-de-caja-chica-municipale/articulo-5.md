@@ -1,0 +1,1 @@
+5) El fraccionamiento del pago de una compra para tramitado por Caja Chica así como cualquier otra infracción al presente Reglamento será motivo de sanción. Asimismo no se pueden comprar servicios y suministros, si la partida presupuestaria a que corresponde no cuenta con contenido económico (ver artículo 127 del Código Municipal).
