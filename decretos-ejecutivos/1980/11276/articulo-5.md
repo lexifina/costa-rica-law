@@ -1,2 +1,0 @@
-Artículo 5°.-En todas las sesiones, el quórum lo formarán seis de los miembros. Sin embargo, si así lo dispusieren por unanimidad los miembros presentes, se podrá sesionar válidamente sesenta minutos después de la hora fijada para la reunión, con los asistentes que hubieren, siempre que éstos no sean menos de cuatro. Esta condición se deberá indicar expresamente en las convocatorias a sesiones extraordinarias.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 11743 del 29 de julio de 1980)

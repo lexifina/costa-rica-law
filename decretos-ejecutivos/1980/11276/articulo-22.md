@@ -1,2 +1,0 @@
-Artículo 22.- El Departamento de Imprenta y Litografía, tendrá a su cargo la impresión de los billetes de lotería y de la lista de premios, así como cualquier otro trabajo de su especialidad que requiera la Institución. Deberá llevar los controles que indiquen la Gerencia(*) y la Auditoría en cuanto a los materiales que reciba y utilice, especialmente en cuanto al papel de seguridad.
-(*)(Modificada su denominación por el artículo 2° del decreto ejecutivo N° 23412 del 9 de junio de 1994)

@@ -1,2 +1,0 @@
-Artículo 2º-La institución estará gobernada por una Junta Directiva, que será su máximo órgano jerárquico. Esta Junta será de nombramiento del Consejo de Gobierno y estará integrada por un Presidente, un Vicepresidente, un Secretario y siete vocales quienes durarán en sus cargos cuatro años, pudiendo ser reelectos. Deberán tomar posesión de sus cargos dentro de los diez días siguientes a sus nombramientos.
-(Así reformado por el artículo 1° del decreto ejecutivo Nº 23412 de 9 de junio de 1994)
