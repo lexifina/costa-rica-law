@@ -1,0 +1,1 @@
+Artículo 18.—De las sesiones. Los miembros de las Comisiones Auxiliares se reunirán de manera ordinaria dos veces al mes. en las instalaciones que designe la Municipalidad del cantón al cual pertenecen, y de manera extraordinaria cuando así lo requieran.

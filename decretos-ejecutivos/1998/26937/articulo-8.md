@@ -1,0 +1,2 @@
+Artículo 8.—De la integración. La Comisión estará compuesta por cinco miembros electos por el Ministro de Justicia y Gracia, previo estudio de sus atestados personales y académicos. Su nombramiento se hará por Acuerdo Ejecutivo que se publicara en d Diario Oficial "La Gaceta". Durarán en su cargo cuatro años que podrán ser prorrogables por períodos iguales.
+El Ministro de Justicia y Gracia podrá remover de su cargo a los miembros de la Comisión que no asistan sin justa causa a cuatro o más sesiones consecutivas.

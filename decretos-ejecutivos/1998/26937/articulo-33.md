@@ -1,0 +1,1 @@
+Artículo 33.—De la relación con el Ministerio de Hacienda. La Dirección Ejecutiva solicitará a la Dirección General de Aduanas del Ministerio de Hacienda, toda aquella información necesaria para ejecutar las labores de control y regulación de las actividades descritas en los incisos d) e) y f) del artículo 3° de la Ley.

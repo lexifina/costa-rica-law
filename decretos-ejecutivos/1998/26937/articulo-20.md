@@ -1,0 +1,1 @@
+Artículo 20.—De la remoción de sus miembros. El Ministro de Justicia y Gracia podrá solicitar a la respectiva Municipalidad, la remoción en el cargo del miembro de la Comisión Auxiliar que no asista sin justa causa a tres sesiones. La Municipalidad debe nombrar en forma inmediata al miembro sustituto.

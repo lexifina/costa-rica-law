@@ -1,0 +1,1 @@
+Transitorio Primero: Todo material que esté calificado a la fecha de publicación del presente Reglamento podrá ser difundido según la calificación otorgada. Toda retransmisión de este material deberá ser sometido a la Comisión para una nueva calificación de conformidad con este Reglamento.

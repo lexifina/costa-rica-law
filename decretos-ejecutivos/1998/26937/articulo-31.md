@@ -1,0 +1,4 @@
+CAPÍTULO III
+De los Materiales Audiovisuales.
+Artículo 31—Del material regulado. La Comisión y la Dirección valorarán y calificarán de conformidad con los criterios establecidos en el artículo 45 de este Reglamento, todo material audiovisual destinado a la distribución, alquiler, venta, exhibición, o reproducción, como las películas transferidas a cintas de vídeo en cualquier formato; los juegos de vídeo, cualquiera que sea el aparato reproductor y la tecnología empleada, y el material para ordenadores u otros mecanismos de reproducción, como juegos o programas para computadoras en cualesquiera de sus formas de presentación.
+Los empresarios deberán colocar en el material la calificación emitida por la Comisión y además en toda factura de alquiler o venta deberá consignarse el nombre y número de cédula de la persona, si es material para adultos.

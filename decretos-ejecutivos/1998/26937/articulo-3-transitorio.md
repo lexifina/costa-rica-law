@@ -1,0 +1,2 @@
+Transitorio Tercero: Para el cumplimiento de lo establecido en los artículos 24, 27, 31, 35 y 39 del presente Reglamento, de conformidad con la Ley No 7688 del 6 de agosto de 1997, a partir de febrero de 1999 los empresarios estarán obligados a exigir la tarjeta de identidad a los menores de edad.
+Dado en la Presidencia de la República, San José a los veintisiete días del mes de abril de mil novecientos noventa y ocho.

@@ -1,0 +1,2 @@
+Artículo 11.—Monto de las dietas. El monto que por concepto de dietas devengarán los miembros de la Comisión se regirá de conformidad con lo establecido por la normativa correspondiente.
+Se remuneraran hasta ocho sesiones por cada mes, incluyendo ordinarias y extraordinarias. La Dirección Ejecutiva remitirá mensualmente a las unidades administrativas respectivas un reporte de asistencia a las sesiones por parte de los miembros de la Comisión.

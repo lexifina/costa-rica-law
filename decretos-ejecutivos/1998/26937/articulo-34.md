@@ -1,0 +1,1 @@
+Artículo 34.—De la difusión de anuncios o avances de otros materiales. En las películas de vídeo, cine y televisión calificadas para menores de edad, solo se autorizará la presentación de avances, anuncios o atracciones de otros materiales que hayan sido calificadas para ese grupo etáreo.

@@ -1,0 +1,2 @@
+Artículo 42.—De los ensayos privados. Para la calificación del espectáculo deberá permitirse a los funcionarios de la Comisión debidamente acreditados, la asistencia a un ensayo privado del espectáculo.
+Los funcionarios que asistan al ensayo, llevarán un registro de verificación y dejarán una copia del mismo al encargado de la empresa, en el que consta un listado del material revisado y las firmas de los que estuvieron presentes.

@@ -1,0 +1,1 @@
+Artículo 14.—Del personal voluntario de la Dirección. En la Dirección podrán colaborar personas voluntarias. En el caso de los funcionarios que laboran en el Ministerio de Justicia, su colaboración será prestada fuera de horas laborales y no recibirán pago alguno por ello.

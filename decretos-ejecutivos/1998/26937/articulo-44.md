@@ -1,0 +1,1 @@
+Artículo 44.—Supervisión. A efecto de lo que dispone la Ley y este Reglamento, en el artículo tercero de la Ley, la Comisión con apoyo de la Dirección, tendrá la posibilidad de realizar supervisiones, sin aviso previo, en los establecimientos dedicados a la exhibición, distribución, venta o alquiler de cualquier tipo de material.

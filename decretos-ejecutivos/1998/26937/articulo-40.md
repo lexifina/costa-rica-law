@@ -1,0 +1,1 @@
+Artículo 40.—De la comprobación de la edad. Es responsabilidad de la empresa cinematográfica vigilar que no se produzca el acceso de menores de edad a aquellas películas cuyo contenido esté dirigido exclusivamente a adultos. Para esto se exigirá a toda persona la exhibición de su cédula de identidad.
