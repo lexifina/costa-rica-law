@@ -14,3 +14,4 @@ Cuotas Comercio Interno y para la Exportación de Animales Silvestres Nacidos en
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-01 | la propia norma |
+| 2 | 1999-02-26 | Decreto Ejecutivo 27848 (1999-02-26) |
