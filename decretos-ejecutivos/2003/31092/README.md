@@ -19,3 +19,4 @@ Directrices de política presupuestaria del 2004 para los ministerios, demás ó
 | 4 | 2003-09-16 | Decreto Ejecutivo 31385 (2003-09-16) |
 | 5 | 2003-09-26 | Decreto Ejecutivo 31405 (2003-09-26) |
 | 6 | 2003-10-22 | Decreto Ejecutivo 31438 (2003-10-22) |
+| 7 | 2003-10-27 | Decreto Ejecutivo 31471 (2003-10-27) |
