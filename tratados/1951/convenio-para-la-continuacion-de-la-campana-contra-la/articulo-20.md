@@ -1,0 +1,1 @@
+Vigésimo: Los países participantes concederán su aprobación a este Convenio mediante el canje de notas por la vía usual, el cual deberá llevarse a cabo en la ciudad de San Salvador, República de El Salvador, en un plazo que no excederá de treinta días a contar de la fecha de su firma.

@@ -1,0 +1,1 @@
+Décimo Octavo: Para facilitar el libre tránsito de las personas relacionadas con el Comité, los países participantes concederán pasaportes y visas especiales con validez mínima de un año para cruzar las fronteras tantas veces como sea necesario. Asimismo, se respetarán las placas de carácter internacional de los vehículos al servicio del Comité o de sus Representantes.

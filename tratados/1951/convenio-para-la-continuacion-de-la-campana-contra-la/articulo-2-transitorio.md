@@ -1,0 +1,1 @@
+Transitorio Segundo: Para los gastos del segundo semestre del presente año, los Gobiernos aportarán una cuota de $ 5,000.00 (cinco mil dólares), de acuerdo con un calendario de pagos que determinarán los Gobiernos respectivos.
