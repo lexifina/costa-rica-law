@@ -1,0 +1,1 @@
+2°- De conformidad con el artículo 28 de la Convención, el presente acuerdo debe remitirse a la Secretaría General de la Organización de los Estados Americanos, quien es la depositaria oficial del instrumento original.
