@@ -1,1 +1,0 @@
-Artículo 3°-Cualquier sobrante proveniente de las rentas detalladas en el artículo anterior, deberá aplicarse a la formación de un fondo de reserva para la realización de sorteos extraordinarios una vez que dicho fondo haya alcanzado, por lo menos, una suma igual a la cuota requerida para el servicio anual de los "Bonos Refundición Deuda Interna 6%, 1949".

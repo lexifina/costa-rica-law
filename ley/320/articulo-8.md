@@ -1,3 +1,0 @@
-Artículo 8°-El Ministerio de Obras Públicas empleará los valores que reciba del Ministerio de Economía, Hacienda y Comercio, en la construcción de nuevas obras o de mejoras en las ya existentes, dando preferencia a los edificios escolares y de sanidad y a las cañerías.
-En cualquiera de los casos se dará preferencia a las obras cuya realización se pida por entidades o por grupos de ciudadanos que suscriban, a la par, los bonos destinados al programa de obras públicas.
-El Ministerio de Obras Públicas no emprenderá ninguna obra sin antes recabar y obtener el parecer favorable de los Ministerios de Economía, Hacienda y Comercio y de Agricultura, a efecto de prevenir perturbaciones económicas.
