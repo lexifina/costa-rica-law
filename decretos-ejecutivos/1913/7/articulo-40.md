@@ -1,1 +1,2 @@
-Artículo 40.—La inscripción de matrimonio católico se verificará trascribiendo literalmente la partida certificada y haciendo constar además de las circunstancias exigidas por el artículo 28 de la Ley Orgánica del Registro Civil, la de no aparecer en el Registro antecedente alguno que impida la inscripción.
+Artículo 40.—La inscripción de matrimonio católico se verificará transcribiendo literalmente la partida certificada y haciendo constar además de las circunstancias exigidas por el artículo 58 de la Ley Orgánica del Tribunal Supremo de Elecciones y del Registro Civil, la de no aparecer en el Registro antecedente alguno que impida la inscripción.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 4 del 1° de setiembre de 1969)
