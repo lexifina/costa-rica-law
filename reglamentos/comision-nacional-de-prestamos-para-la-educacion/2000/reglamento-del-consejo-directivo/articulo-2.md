@@ -1,0 +1,1 @@
+Artículo 2°—El presente Reglamento constituye el ordenamiento básico que regirá el funcionamiento del Consejo Directivo de CONAPE, que en adelante se identificará como Consejo Directivo, de acuerdo con la legislación vigente y en especial la Ley 6041 y sus reformas.

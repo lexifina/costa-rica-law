@@ -1,0 +1,1 @@
+Artículo 9°—El Consejo Directivo podrá sesionar válidamente sin cumplir los requisitos de convocatoria y de orden del día, cuando asistan la totalidad de sus miembros y así lo acuerden por unanimidad.

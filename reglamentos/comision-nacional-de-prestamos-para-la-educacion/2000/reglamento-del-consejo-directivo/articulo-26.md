@@ -1,0 +1,1 @@
+Artículo 26.—Las resoluciones que tomare, quien ostenta la Presidencia del Consejo Directivo, en virtud de lo preceptuado en los incisos d, e y g del artículo 22 del presente Reglamento, podrán ser apeladas ante el pleno del Consejo Directivo; el recurso se interpondrá en el mismo acto y se definirá por mayoría de votos.

@@ -1,0 +1,1 @@
+Artículo 15.—Los miembros del Consejo Directivo están obligados a asistir puntualmente a las sesiones. Cuando un Director se incorpore a la sesión después de que ésta se ha iniciado, así se indicará en el acta. Cuando deba retirarse de la sesión antes de que la misma finalice, deberá contar con la venia del Consejo Directivo, indicándose en el acta la hora de retiro.
