@@ -1,1 +1,3 @@
-Artículo 3°— La póliza se expedirá por un año, -pero podrá ser renovada, de acuerdo con el Banco, de año en año. De renovarse la póliza, la renovación por ningún concepto se considerará con efectos acumulativos respecto al monto por el cual se expida la póliza.
+Artículo 3°—La póliza se expedirá por un año, pero podrá ser renovada de acuerdo con el Instituto, de año en año.
+De renovarse la póliza, la renovación por ningún concepto se considerará con efectos acumulativos respecto al monto por el cual se expida la póliza. No obstante, para los efectos del artículo 8° de la Ley Orgánica del Notariado, reformado por ley número 6145 de 18 de noviembre de 1977, el Instituto Nacional de Seguros, podrá extender la póliza por períodos de uno a cinco años, en cuyo caso tampoco se considerará con efecto acumulativo respecto al monto por el cual se expida.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 12426 del 18 de marzo de 1981)

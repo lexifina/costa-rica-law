@@ -13,3 +13,4 @@ Reglamento de la ley sobre Seguro de Fidelidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1931-05-09 | la propia norma |
+| 2 | 1981-03-18 | Decreto Ejecutivo 12426 (1981-03-18) |
