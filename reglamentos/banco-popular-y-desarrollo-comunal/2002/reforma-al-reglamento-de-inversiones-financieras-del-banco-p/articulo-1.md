@@ -1,0 +1,5 @@
+En sesión ordinaria Nº 3963 de fecha 19 de febrero del 2002, la Junta Directiva Nacional acordó modificar el artículo 11 del Reglamento de Inversiones, con el fin de que se lea de la siguiente manera:
+"Artículo 11.—El Banco podrá invertir en valores emitidos por las entidades del sector público y los integrantes del Sistema Bancario Nacional, por medio de ventanilla o a través de su puesto de Bolsa. En los demás casos, la transacción se realizará a través de su Puesto de Bolsa.
+Tratándose de entidades financieras privadas, además de las condiciones establecidas en el artículo 8 de este Reglamento, se deberá constatar, por medio del Comité de Inversiones, que dichas entidades poseen una situación media de riesgo normal, de acuerdo con los indicadores CAMELS establecidos por la Superintendencia General de Entidades Financieras.
+En el resto de las entidades del sector privado, se aplicará lo dispuesto en el inciso d) del artículo 8 del presente Reglamento".
+Los demás artículos se mantienen.
