@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto fue derogado por el artículo 2° del decreto ejecutivo N° 5524 del 12 de diciembre de 1975)
 N° 2133-MIC
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE INDUSTRIA Y COMERCIO,
