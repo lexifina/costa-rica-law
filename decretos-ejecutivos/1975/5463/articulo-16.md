@@ -1,0 +1,1 @@
+Articulo 16.—El Ministerio de Salud, podrá cancelar en cualquier tiempo los permisos otorgados cuando se determine que no se cumplen los requisitos establecidos o que los trabajos exceden la autorización concedida, o que ellos son perjudiciales o nocivos para la salud de las personas, todo a juicio del propio Ministerio, sin perjuicio de las sanciones que corresponda.

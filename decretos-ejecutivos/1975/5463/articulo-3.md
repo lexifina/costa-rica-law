@@ -1,0 +1,1 @@
+Artículo 3°—La investigación científica, clínica o terapéutica en seres humanos quedará sujeta a los mandatos de la ley y del presente Reglamento; deberá ajustarse además, a las normas del Código de Moral Médica, así como a las Declaraciones de Helsinski, a la de Ginebra Y a la de la Asociación Médica Mundial.

@@ -1,0 +1,2 @@
+Artículo 2°—El Comité deberá conocer y dictaminar sobre la ética y utilidad científica de los programas de investigación y experimentación en seres humanos que se sometan al Ministerio de Salud para su autorización.
+Los integrantes del Comité estarán impedidos para conocer de los programas en que ellos vayan a participar, directa o indirectamente. En tales casos, serán sustituidos por los suplentes o por un representante "ad-hoc".

@@ -1,0 +1,1 @@
+Artículo 12.—Las personas o instituciones internacionales o extranjeras que deseen realizar investigaciones o experimentaciones deben comprometerse a entrenar personal local en los procedimientos científicos y tecnológicos que se utilizan en la investigación, si éstos no son conocidos en el ámbito nacional.
