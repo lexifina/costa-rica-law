@@ -1,1 +1,1 @@
-Artículo 23°- Al administrador único se le aplicarán las disposiciones contenidas en el Código de Comercio, en sus artículos 182, 183 y del 186 hasta el 192.
+Artículo 23°- Los miembros de la junta directiva de una sociedad anónima laboral con más de cincuenta socios, no podrán ser parientes entre sí hasta el segundo grado de consanguinidad o afinidad, inclusive; tampoco podrán tener relación de parentesco con el gerente o con sus principales administradores y contralores, incluido el auditor.

@@ -1,1 +1,3 @@
-Artículo 18°- La asamblea de accionistas será convocada por la junta directiva o por el administrador, mediante aviso publicado en uno de los diarios de mayor circulación nacional.
+Artículo 18°- El cese, por cualquier causa, de la relación laboral del socio trabajador, lo obligará a enajenar sus acciones en la forma y condiciones establecidas en el artículo 11.
+Las acciones adquiridas por sucesión hereditaria confieren al adquirente, sea heredero o legatario del fallecido, derecho al valor de las acciones heredadas, las cuales se adjudicarán según el artículo 11 de esta ley.
+(Así reformado por el artículo 9 de la ley Nº 7668 de 9 de abril de 1997. Dicho artículo decía reformar el numeral 17, pero con la variación en el articulado que se indica supra en el artículo 14, pasó a ser 18)

@@ -19,3 +19,10 @@ a) Se consideran actividades auxiliares de apoyo o no consustanciales del servic
 17) Servicios de relaciones públicas.
 18) Servicios de bodegaje.
 19) Cualquier otro servicio que, de acuerdo con la administración o la institución de que se trate, califique como actividad auxiliar.
+b) Ninguna sociedad anónima laboral podrá contratar, en actividades auxiliares o sustanciales, la prestación de servicios que representen más del veinte por ciento (20%) del total del presupuesto anual de egresos de la institución.
+Será nulo cualquier contrato entre una sociedad anónima laboral y el Estado o sus instituciones, que no cumpla con esta disposición, sin perjuicio de las responsabilidades administrativas, civiles y penales de los funcionarios involucrados.
+(Así adicionado este inciso por el artículo 5º de la ley Nº 7668 de 9 de abril de 1997)
+c) Las Juntas Directivas de las instituciones descentralizadas, autónomas, semiautónomas y de las empresas públicas; los concejos municipales y los Ministros de Estado, deberán definir, previa consulta con la Contraloría General de la República, cuáles actividades o servicios son auxiliares y cuáles sustanciales o fundamentales del quehacer institucional.
+(Así adicionado este inciso por el artículo 5º de la ley Nº 7668 de 9 de abril de 1997)
+d) Los servidores públicos de los órganos o entes públicos, que dejen de laborar para estos, podrán asumir la prestación de los servicios contratados, como socios trabajadores de una sociedad anónima laboral.
+(Así adicionado este inciso por el artículo 5º de la ley Nº 7668 de 9 de abril de 1997)
