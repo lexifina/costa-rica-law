@@ -1,1 +1,1 @@
-Artículo 45.- La inversión a que se refiere el artículo anterior no podrá ser en cada caso superior al cinco por ciento del capital y reservas del Consejo, ni el total de inversiones de esta clase exceder del veinticinco por ciento de dicho capital y reservas. Para estas inversiones se requerirá el voto favorable de no menos de dos tercios del total de miembros de la Junta Directiva.
+Artículo 45.- (Derogado por el artículo 5° de la ley Crea Programa de Reconversión Productiva del Sector Agropecuario CNP, N° 7742 del 19 de diciembre de 1997)
