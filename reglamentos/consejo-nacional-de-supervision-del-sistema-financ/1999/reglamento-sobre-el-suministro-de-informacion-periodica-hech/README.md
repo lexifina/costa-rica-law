@@ -14,3 +14,4 @@ Reglamento sobre el Suministro de Información Periódica Hechos Relevantes y ot
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-18 | la propia norma |
+| 2 | 2000-08-21 | Reglamento 171 (2000-08-21) |
