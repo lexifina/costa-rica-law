@@ -1,12 +1,11 @@
-Artículo 5
-DEL PERSONAL:
-El Representante Regional y el personal extranjero de LA UNION, no
-residente en Costa Rica, a los cuales se ha hecho referencia en el
-artículo 4, gozarán de exención fiscal para la importación, una sola
-vez, del menaje de casa, bienes de familia y efectos personales traídos
-a Costa Rica. El personal mencionado en el artículo 4, podrá también
-importar un vehículo automotor libre de todo impuesto, el cual no podrá
-ser vendido en Costa Rica, hasta tanto no hayan transcurrido tres años
-desde su importación. Cuando el vehículo vaya a ser vendido, deberá
-pagar los impuestos correspondientes, siempre que no sea a personas o
-instituciones que gocen de iguales exoneraciones.
+ARTICULO 5
+FACILIDADES MIGRATORIAS Y LABORALES:
+EL GOBIERNO dará todas las facilidades migratorias y laborales a los
+funcionarios para el desempeño de su función. A su respectivo cónyuge y
+dependientes menores o mayores de edad con la debida justificación, se
+les darán todas las facilidades migratorias.
+(NOTA: El antiguo texto del artículo 5, que trataba del personal
+regional y extranjero, fue derogado por el artículo 5 del Acuerdo de
+Enmiendas a este Convenio, suscrito el día 19 de setiembre de 1991 y
+aprobado junto con el texto original del Acuerdo. Allí mismo, artículo
+6, se explica que el antiguo artículo 6 pasa a ser el actual 5)
