@@ -1,0 +1,3 @@
+Artículo 182.- Los intereses de los "Bonos Deuda Política" serán pagados por trimestres, que se contarán a partir de la fecha de su emisión. Se destinará una cuota fija trimestral para atender amortización e intereses. El plazo máximo de los bonos será de 4 años, pero el Estado se reservará el derecho de hacer amortizaciones extraordinarias por medio de sorteos, llamar al pago a la par del saldo de bonos en circulación, o de anticipar la amortización del trimestre siguiente, siempre por medio de sorteos.
+En tanto no sean retirados los intereses de los bonos, pertenecerán al partido político a que correspondan.
+(Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)

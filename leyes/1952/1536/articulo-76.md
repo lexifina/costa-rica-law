@@ -1,3 +1,3 @@
 Término para Inscribir las Candidaturas
-Artículo 76.- La presentación de candidaturas para su debida inscripción en el Registro Civil sólo podrá hacerse desde la convocatoria hasta dos meses y quince días naturales antes del día de una elección. Para efectos de la inscripción, el Presidente del Comité Ejecutivo del organismo superior del Partido, con la solicitud presentará certificación del acta o actas notariales del acuerdo de asamblea que hayan hecho la designación de candidatos.
-(Así reformado por el artículo 1° de la ley N° 2169 del 15 de octubre de 1957)
+Artículo 76.- La presentación de candidaturas para su debida inscripción en el Registro Civil, sólo podrá hacerse desde la convocatoria hasta tres meses y quince días naturales antes del día de una elección. Para efectos de la inscripción, el Presidente del Comité Ejecutivo del organismo superior del partido, agregará a la solicitud, una certificación del acta o actas notariales del acuerdo o acuerdos de asamblea, en que se hayan hecho designaciones de candidatos.
+(Así reformado por el artículo 1° de la ley N° 4341 del 3 de junio de 1969)

@@ -1,0 +1,4 @@
+Artículo 190.- Los bienes no fungibles que adquieran los partidos políticos para su campaña, deberán ser consignados en un inventario, del cual se enviará un estado mensual a la Contraloría General de la República , con todos los detalles de precio, marca, número de fábrica, cantidad, proveedor, número y fecha de factura y cuenta de presupuesto cargada.
+Finalizada la campaña y como acto previo a recibir el pago, dichos bienes deberán ser entregados a la Proveeduría Nacional como propiedad del Estado, salvo que el partido opte por deducirlos de su cobro, con los márgenes de depreciación aceptados por la Tributación Directa.
+La Contraloría General de de la República determinará cuáles de esos bienes no fungibles pueden ser considerados como gasto, y por lo tanto, no sujetos a estos trámites.
+(Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)
