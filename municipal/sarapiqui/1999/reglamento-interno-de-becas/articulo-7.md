@@ -1,0 +1,1 @@
+Artículo 7°-El becario deberá presentar semestralmente o cuatrimestral la tarjeta de calificaciones ante los miembros del Concejo de Distrito correspondiente, para que estos a sus vez informen al Concejo Municipal lo que corresponda.

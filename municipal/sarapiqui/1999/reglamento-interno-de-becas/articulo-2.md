@@ -1,0 +1,1 @@
+Artículo 2°-El presente reglamento regula la concesión de becas que la Municipalidad de Sarapiquí podrá otorgar a jóvenes de escasos recursos económicos que desean realizar una carrera académica, dentro de los colegios de enseñanza secundaria destacados en el cantón.

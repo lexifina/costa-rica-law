@@ -1,0 +1,1 @@
+Artículo 6°-La solicitud de becas debe hacerse en formulario especial. Dicho formulario será retirado por los interesados en la Secretaría Municipal o de los miembros del Concejo de distrito correspondiente. Se le deberá adjuntar una solicitud escrita por el interesado y una fotocopia de la nota del año anterior.
