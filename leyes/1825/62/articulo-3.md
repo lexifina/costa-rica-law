@@ -1,0 +1,1 @@
+Art 3°.- El Gobierno procederá desde luego a hacer que se midan y designar los terrenos donde los pida el Capitulante, conforme a la Ley citada y al artículo anterior y despachará con la brevedad posible los títulos de propiedad de los terrenos a los agraciados impresos y sin más gravamen que el costo de la impresión.
