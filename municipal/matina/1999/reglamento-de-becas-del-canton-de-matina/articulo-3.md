@@ -1,0 +1,1 @@
+Artículo 3°-Los estudiantes que soliciten las becas Municipales deben ser vecinos del Cantón de Matina, lo cual comprobaron mediante constancia por el Delegado Cantonal y Delegados Distritales de la Guardia de Asistencia Rural.
