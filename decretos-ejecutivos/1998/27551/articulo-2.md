@@ -1,0 +1,1 @@
+Artículo 2°—Ejecútese por parte del Ministerio de Educación Pública una campaña nacional de acciones que sustente el rescate, fortalecimiento y desarrollo de los valores y que desestimulen todo comportamiento de corrupción. Esta campaña deberá incluir un programa de capacitación dirigido particularmente a tos educadores.
