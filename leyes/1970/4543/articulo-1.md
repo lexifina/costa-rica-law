@@ -1,4 +1,5 @@
-Ley 4543
+Ley Nº 4543
+La presente norma ha sido DEROGADA EN SU TOTALIDAD por la Ley N° 7982 de 14 de enero de 2000, Ley de Aprobación del Protocolo al Convenio Centroamericano para la Protección de la Propiedad Industrial (Marcas, Nombres Comerciales, y Expresiones o Señales de Propaganda).
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1º.- Apruébase en todas y cada una de sus partes el "Convenio Centroamericano para la Protección de la Propiedad Industrial" (Marcas, nombres comerciales y expresiones o señales de propaganda), suscrito en San José el 1º de junio de 1968, cuyo texto es el siguiente:
@@ -21,7 +22,8 @@ CAPÍTULO ÚNICO
 Objeto y alcances del Convenio
 Artículo 1º.- Los Estados Contratantes adoptan el presente Convenio para establecer en sus territorios un régimen jurídico uniforme sobre marcas, nombres comerciales y expresiones o señales de propaganda, así como para la represión de la competencia desleal en tales materias
 Artículo 2º.- Las disposiciones del presente Convenio son aplicables a la marcas, nombres comerciales y expresiones o señales de propaganda que sean propiedad o en que tenga interés cualquier persona natural o jurídica que sea titular de un establecimiento comercial, o de una empresa o establecimiento industrial o de servicios en el territorio de alguno de los Estados Contratantes.
-Son también aplicables a las marcas, nombres comerciales y expresiones o señales de propaganda de propiedad de personas naturales o jurídicas que sean titulares de un establecimiento comercial, o de una empresa o establecimiento industrial o de servicios en cualquier Estado distinto de los Contratantes.
+Son también aplicables a las marcas, nombres comerciales y expresiones o señales de propaganda de propiedad de personas naturales o jurídicas que sean titulares de un establecimiento comercial, o de una empresa o establecimiento industrial o de servicios en cualquier Estado
+distinto de los Contratantes.
 Artículo 3º.- Para los efectos del presente Convenio, las personas a que se refiere el párrafo primero del artículo anterior, gozarán de tratamiento nacional en el territorio de cada Estado Contratante.
 Artículo 4º.- Ninguna condición de domicilio, establecimiento o empresa en el país donde la protección se reclama le será exigida a las personas a que alude el artículo 2º de este Convenio, para gozar de los derechos que reconoce.
 Artículo 5º.- Los propietarios de marcas, nombres comerciales y expresiones o señales de propaganda que los hubieran registrado conforme a este Convenio tendrán la facultad de usar, gozar y disponer de los mismos en forma exclusiva por el término que señala este instrumento.
@@ -36,7 +38,7 @@ Artículo 8º.- El empleo y registro de marcas es facultativo y sólo será obli
 Artículo 9º.- Las marcas se clasifican en Marcas Industriales o Marcas de Fábrica; Marcas de Comercio y Marcas de Servicios.
 Marcas Industriales o de Fábrica son las que distinguen las mercancías producidas o elaboradas por una determinada empresa fabril o industrial.
 Marcas de Comercio son las que distinguen las mercancías que expende o distribuye una empresa mercantil, no importa quien sea su productor.
-Marcas de Servicio son las que distinguen las actividades que realizan las empresas dedicadas a dar satisfacción a necesidades generales, por medios distintos de la manufactura, expendio o distribución de mercancías.
+Marcas de Servicios son las que distinguen las actividades que realizan las empresas dedicadas a dar satisfacción a necesidades generales, por medios distintos de la manufactura, expendio o distribución de mercancías.
 Artículo 10.- No podrán usarse ni registrarse como marcas ni como elementos de las mismas:
 a) Las banderas nacionales o sus colores si estos últimos aparecen en el mismo orden y posición que en aquellas; los escudos, insignias o distintivos de los Estados Contratantes, sus municipios u otras entidades públicas;
 b) Las banderas, escudos, insignias, distintivos o denominaciones de naciones extranjeras, salvo que se presente autorización del respectivo Gobierno;
@@ -79,10 +81,8 @@ Si la solicitud se presenta o el registro se hace antes del vencimiento del plaz
 El plazo a que se refiere el presente artículo se contará a partir del día siguiente a aquél en que se admitió la primera solicitud. Si el último día del plazo recayere en día inhábil en el país donde el registro se reclama, el plazo se entenderá prorrogado hasta el día hábil siguiente.
 Artículo 20.- El derecho de prioridad se acreditará por medio de una Constancia, que extenderá de oficio al interesado el Registrador de la Propiedad Industrial del país donde presentó la primera solicitud, la cual contendrá, básicamente, los siguientes datos:
 a) El nombre, razón social o denominación del solicitante, su nacionalidad y demás generales;
-b) La indicación expresa de que en el solicitante concurre alguna de las calidades señaladas en el artículo 2º de este Convenio, salvo lo dispuesto en el
-literal a) del artículo 35;
-c) La marca en cuyo registro tiene interés, con una descripción precisa de sus características, expresión de su Clase y los productos, mercancía o
-servicios a que se aplicará. Deberá, además, adherírsele o pegársele un modelo de la misma;
+b) La indicación expresa de que en el solicitante concurre alguna de las calidades señaladas en el artículo 2º de este Convenio, salvo lo dispuesto en el literal a) del artículo 35;
+c) La marca en cuyo registro tiene interés, con una descripción precisa de sus características, expresión de su Clase y los productos, mercancía o servicios a que se aplicará. Deberá, además, adherírsele o pegársele un modelo de la misma;
 d) La fecha de la solicitud de registro y la fecha y hora de su presentación, así como la fecha de la admisión; y
 e) El lugar y la fecha en que se extiende la Constancia y el sello y la firma del Registrador.
 La Constancia a que se refiere el presente artículo estará dispensada de toda legalización; pero las autoridades competentes, el los casos en que abrigaren dudas acerca de su autenticidad o tuvieren motivos para creer que ha sido alterada, podrán exigir al interesado la presentación de una copia de la primera solicitud de registro, extendida y certificada por la autoridad que la hubiera admitido, o cualquier otra prueba que, a su juicio, pueda servir para establecer la verdad.
@@ -122,7 +122,8 @@ De la marca colectiva
 Artículo 35.- Se consideran marcas colectivas:
 a) Las adoptadas por cooperativas, sindicatos, asociaciones gremiales y demás entidades públicas o privadas similares, aunque no tengan empresa o establecimiento, para distinguir los productos, mercancías o servicios de todos los individuos que forman parte de las mismas; y
 b) Las que adopten las empresas establecidas en una determinada demarcación político-territorial, para distinguir un determinado producto, mercancía o servicio peculiar de dicha demarcación.
-Artículo 36.- El registro de las marcas colectivas deberá ser solicitado por la persona o personas que ostenten la representación de la entidad según sus estatutos, o documento equivalente, de los cuales acompañará un ejemplar juntamente con la certificación del acta de la sesión en la que se acordó la adopción y el registro de la marca.
+Artículo 36.- El registro de las marcas colectivas deberá ser solicitado por la persona o personas que ostenten la representación de la entidad según sus estatutos, o documento equivalente, de los cuales acompañará un ejemplar juntamente con la certificación del acta de la
+sesión en la que se acordó la adopción y el registro de la marca.
 Con la solicitud se presentará, asimismo, un ejemplar del Reglamento de Empleo de la marca debidamente certificado por el representante de la entidad interesada, el cual entrará en vigencia una vez que haya sido aprobado por el Registrador.
 Las certificaciones a que se alude en este artículo estarán dispensadas de legalización cuando las marcas sean originarias de alguno de los Estados Miembros de este Convenio.
 Artículo 37.- El Reglamento mencionado en el artículo anterior deberá precisar las características comunes o las cualidades de los productos, mercancías o servicios que la marca habrá de distinguir, las condiciones en la que se utilizará y las personas que podrán usarla. Deberá, igualmente, garantizar un control efectivo sobre el empleo de la marca, estipular sanciones adecuadas para todo uso contrario a lo prescrito en el Reglamento y los motivos por los que se puede prohibir a un miembro de la agrupación el uso del distintivo adoptado.
@@ -145,7 +146,8 @@ c) Si el registro se realizó contraviniendo disposiciones del presente Convenio
 En el caso previsto en el literal a), la nulidad del registro sólo procederá si el interesado no hubiese hecho oposición en su oportunidad.
 En las situaciones contempladas en los literales a) y b), la nulidad sólo podrá promoverla el perjudicado. En el caso del literal c), la nulidad podrá ser promovida por el perjudicado o por el Ministerio Público.
 Artículo 45.- El Tribunal de Justicia respectivo, una vez que se halla firme la sentencia que declare la nulidad de un asiento librará comunicación o certificación de aquélla al Registro de la Propiedad Industrial.
-Artículo 46.- Las marcas cuyo dominio se hubiera extinguido por falta de renovación o que se hubiesen cancelado a petición de su propietario, podrán ser inscritas de nuevo, en cualquier tiempo, ya sea por el propietario o por cualquier otra persona, siempre que se cumplan los requisitos que para todo registro establece el presente Convenio. Se exceptúan de esta disposición únicamente las marcas colectivas, cuya nueva inscripción sólo podrá hacerse pasado el término que se señala en el párrafo siguiente.
+Artículo 46.- Las marcas cuyo dominio se hubiera extinguido por falta de renovación o que se hubiesen cancelado a petición de su propietario, podrán ser inscritas de nuevo, en cualquier tiempo, ya sea por el propietario o por cualquier otra persona, siempre que se cumplan los requisitos que para todo registro establece el presente Convenio. Se exceptúan de esta disposición únicamente las marcas colectivas, cuya nueva inscripción sólo podrá hacerse pasado el término que se señala en el
+párrafo siguiente.
 Las marcas cuyo registro haya sido declarado nulo por la causal que señala el literal c) del artículo 44, podrán ser inscritas de nuevo por cualquier persona pasados dos años desde la fecha en que la sentencia hubiera causado los efectos de cosa juzgada, siempre que con la nueva inscripción no se contravengan las disposiciones contenidas en el presente instrumento. Sin embargo, no será necesario que el demandante espere a que transcurra el plazo mencionado, si la nulidad se hubiera decretado por virtud de lo dispuesto en los literales a) o b) del artículo 44.
 TÍTULO III
 DE LOS NOMBRES COMERCIALES
@@ -181,7 +183,7 @@ b) Si aparece inscrito a nombre de quien sea o haya sido agente, mandatario o re
 c) Si el registro se realizó contraviniendo disposiciones del presente Convenio.
 En el caso previsto en el literal a), la nulidad del registro sólo procederá si el interesado no hubiese hecho oposición de su oportunidad.
 Artículo 57.- La extinción del derecho de propiedad de un nombre comercial en la situación contemplada en el literal b) del artículo 55, será declarada por el Registro de la Propiedad Industrial, a petición de parte interesada.
-En las situaciones previstas en los literales a) y b) del artículo 56, la nulidad sólo podrá promoverla el perjudicado. En el caso contemplado en el literal c), la nulidad podrá promoverla el perjudicado o el Ministerio Público.
+En las situaciones previstas en los literales a) y b) del artículo 56, la nulidad sólo podrá promoverla el perjudicado o el Ministerio Público.
 Artículo 58.- Salvo lo previsto en el presente Título, son aplicables a los nombres comerciales las normas sobre marcas contenidas en este Convenio, en lo que no sean incompatibles dada la naturaleza de ambas instituciones.
 TÍTULO IV
 DE LAS EXPRESIONES O SEÑALES DE PROPAGANDA
@@ -245,7 +247,8 @@ Artículo 79.- Las personas a que se refiere el artículo precedente podrán ges
 El mandatario deberá tener, en todo caso, poder bastante para comparecer en juicio, ante las autoridades administrativas o de lo contencioso-administrativo y para responder a todas las reclamaciones o demandas que se presenten por causa de la solicitud o del registro.
 Si nada en contrario se estipula, el mandatario se entenderá suficientemente autorizado por el poderdante para oponerse al registro de cualquier otra marca, nombre comercial, expresión o señal de propaganda igual o semejante a las que encuentran registradas a su nombre o en trámite de registro.
 Artículo 80.- En casos graves y urgentes, calificados por el Registrador de la Propiedad Industrial, podrá admitirse la representación de un gestor oficioso, que sea Abogado, con tal que dé garantía suficiente, que también calificará dicho funcionario, para responder a las resultas del asunto si el interesado no aprobara lo hecho en su nombre.
-Artículo 81.- Los poderes extendidos en el extranjero, deberán formalizarse de acuerdo con el Derecho interno del país en que se otorguen y legalizarse de conformidad con las leyes del Estado Contratante en el que han de surtir efecto. Los poderes que se extiendan en los Estados Miembros del presente Convenio se formalizarán también de acuerdo con el Derecho interno del país en que se otorguen, pero no requerirán de legalización alguna para surtir efecto en los demás.
+Artículo 81.- Los poderes extendidos en el extranjero, deberán formalizarse de acuerdo con el Derecho interno del país en que se otorguen y legalizarse de conformidad con las leyes del Estado Contratante en el que han de surtir efecto.
+Los poderes que se extiendan en los Estados Miembros del presente Convenio se formalizarán también de acuerdo con el Derecho interno del país en que se otorguen, pero no requerirán de legalización alguna para surtir efecto en los demás.
 Artículo 82.- Todas las solicitudes que se formulen de acuerdo con este Convenio deberán llenar los requisitos que exijan las leyes fiscales del Estado Contratante en que se presenten.
 CAPÍTULO II
 Del procedimiento para registrar marcas, nombres comerciales
@@ -268,7 +271,7 @@ c) La Constancia de haber obtenido el consentimiento a que se refiere el literal
 d) Cuando la marca sea centroamericana, una Certificación de que está inscrita en el Registro del país de origen de la misma. Dicha Certificación deberá tener adherido un modelo de aquélla;
 Si la marca no está inscrita en el país de origen, la Constancia a que se refiere el literal b), anterior, sustituirá la Certificación a que aquí se alude.
 La Certificación no requerirá legalización alguna, a menos que existan motivos para creer que la que se presenta ha sido alterada o no es auténtica. Tratándose de una marca extranjera, se estará a lo dispuesto en el artículo siguiente;
-e) El instrumento debidamente legalizado, que acredite la autorización extendida por el respectivo Gobierno, en el caso previsto en el literal b) el artículo 10;
+d) El instrumento debidamente legalizado, que acredite la autorización extendida por el respectivo Gobierno, en el caso previsto en el literal b) el artículo 10;
 f) En su caso, los documentos a que se refiere el artículo 36;
 g) Quince modelos o facsímiles de la marca en el país en que se presente la primera solicitud y seis en los demás, y cuando sea el medio de indentificarla, un clisé o electrotipo de la misma;
 Dichos modelos deberán reunir los requisitos establecidos en el artículo 190;
@@ -288,7 +291,8 @@ a) El poder legalmente otorgado, si la solicitud se hiciera por medio de mandata
 b) La Constancia a que alude el Artículo 20, en su caso;
 c) Cuando el nombre comercial sea centroamericano, una certificación de que está inscrito en el registro del país de origen del mismo. Dicha certificación deberá tener adherido un modelo de aquél.
 Si el nombre comercial no está inscrito en el país de origen, la Constancia a que se refiere el literal b), anterior, sustituirá la Certificación a que aquí se alude.
-La Certificación no requerirá legalización alguna, a menos que existan motivos para creer que la que se presenta ha sido alterada o no es auténtica. Tratándose de un nombre comercial extranjero, se estará, en lo conducente, a lo dispuesto en el artículo 85;
+La Certificación no requerirá legalización alguna, a menos que existan motivos para creer que la que se presenta ha sido alterada o no es auténtica.
+Tratándose de un nombre comercial extranjero, se estará, en lo conducente, a lo dispuesto en el artículo 85;
 d) Quince modelos o facsímiles del nombre comercial en el país en que se presente la primera solicitud, y seis en los demás y, si el nombre comercial está acomñado de signos que contribuyan a singularizarlo o escrito en un tipo de letra especial, un clisé o electrotipo. Los modelos mencionados deberán reunir los requisitos establecidos en el artículo 190; y
 e) Los demás documentos que sean exigibles conforme el Derecho interno del Estado Contratante en que se presenta la solicitud.
 Artículo 88.- La solicitud de registro de una expresión o señal de propaganda se hará en la forma prescrita en los artículos 86 y 87 de este instrumento.
@@ -300,7 +304,8 @@ Artículo 92.- Si la solicitud no fuere de las que justifican un rechazo de plan
 La providencia a que se refiere el párrafo anterior no extinguirá la fecha de presentación de la solicitud, si la corrección se hiciere dentro del plazo indicado.
 Artículo 93.- Si la solicitud no se encontrare en ninguno de los casos previstos en los dos artículos precedentes, el Registrador procederá sin tardanza a efectuar u examen de novedad de la marca, nombre comercial, expresión o señal de propaganda que trata de inscribirse, para lo cual hará las averiguaciones que sean necesarias para determinar si existe alguna de las causales indicadas en los literales o) y p) del artículo 10; b) y c) del artículo 49 o e), f) y g) del artículo 62, según el caso.
 Artículo 94.- Si al efectuar el examen de novedad de una manera el Registrador encontrare:
-a) Otra marca idéntica ya inscrita y vigente, que sirva para distinguir productos, mercancías o servicios comprendidos en una misma Clase, declarará sin lugar la solicitud indicando las razones en que se funda. Si la marca cuyo registro se solicita fuere idéntica a otra que se encuentre en trámite de inscripción, el Registrador dictará providencia dejándola en suspenso hasta que se resuelva si la que se halla en trámite debe o no inscribirse. Si la resolución que recayere fuera negativa, la solicitud declarada en suspenso se tramitará en la forma prevista en este Convenio y se entenderá protegida por el derecho de prioridad;
+a) Otra marca idéntica ya inscrita y vigente, que sirva para distinguir productos, mercancías o servicios comprendidos en una misma Clase, declarará sin lugar la solicitud indicando las razones en que se funda. Si la marca cuyo registro se solicita fuere idéntica a otra que se encuentre en trámite de inscripción, el Registrador dictará providencia dejándola en suspenso hasta que se resuelva si la que se halla en trámite debe o no inscribirse. Si la resolución que recayere fuera negativa, la
+solicitud declarada en suspenso se tramitará en la forma prevista en este Convenio y se entenderá protegida por el derecho de prioridad;
 b) Otra marca semejante ya inscrita y vigente, que sirva para distinguir productos, mercancías o servicios comprendidos en una misma Clase, siendo la semejanza de tal grado que la marca cuyo registro se solicita pueda confundirse con la anterior, declarará sin lugar la solicitud, indicando las razones en que se funda. Se exceptúa únicamente el caso en que el solicitante sea precisamente el propietario de la marca anterior con la cual la nueva podría confundirse, situación en la que el registro no podrá denegarse.
 Si la marca cuyo registro se solicita fuera semejante a otra que se encuentre en trámite de inscripción, el Registrador dictará providencia dejándola en suspenso hasta que se resuelva si la que se halla en trámite debe o no inscribirse. Si la resolución que recayere fuere negativa, la solicitud declarada en suspenso se tramitará en la forma prevista en este Convenio y se entenderá protegida por el derecho de prioridad.
 Las disposiciones precedentes se entenderán sin perjuicio de lo prescrito en el artículo 22 y son aplicables a los nombres comerciales y a las expresiones o señales de propaganda.
@@ -330,8 +335,7 @@ b) El nombre, razón social o denominación, nacionalidad, domicilio y demás ge
 c) El nombre, razón social o denominación de la persona contra la cual se entabla la oposición;
 d) Los hechos y los fundamentos de Derecho en que se apoya;
 e) La expresión clara y concreta de lo que se pide; y
-f) Lugar y fecha del escrito y firma autógrafa del opositor.
-Junto con cada escrito de oposición deberán acompañarse en papel simple tantas copias cuantas sean las personas a quienes debe notificarse el auto o resolución que en él recaiga.
+f) Lugar y fecha del escrito y firma autógrafa del opositor. Junto con cada escrito de oposición deberán acompañarse en papel simple tantas copias cuantas sean las personas a quienes debe notificarse el auto o resolución que en él recaiga.
 Artículo 99.- Lo dispuesto en el artículo 90 es aplicable a esta materia.
 Artículo 100.- El opositor debe acompañar con el escrito de oposición los documentos en que ésta se funde.
 Si no los tuviere a su disposición, deberá indicar expresamente cuáles son y presentarlos dentro de los treinta días calendarios siguientes a la fecha de presentación.
@@ -349,8 +353,7 @@ Artículo 106.- Vencido el plazo a que se refiere el artículo 97 sin que haya h
 Si dentro del mes siguiente a la fecha en que se hubiese notificado la resolución, el presentado no hubiere comprobado el pago relacionado, quedará sin efecto la resolución y se archivarán las diligencias.
 Artículo 107.- Sin perjuicio de lo dispuesto en el artículo 101, las resoluciones y autos que dicte el Registro de la Propiedad Industrial se notificarán a los interesados ya sea en forma personal, por medio de esquela o por medio de nota que deberá enviarse por correo certificado a la dirección que se hubiera indicado; corriendo los términos, salvo disposición expresa en contrario, desde el día hábil siguiente a la fecha en que se notifique personalmente al interesado, se le deje al esquela o se deposite la nota certificada en la oficina de correos.
 Artículo 108.- El registro de una marca, nombre comercial, señal o expresión de propaganda se hará sin perjuicio de mejor derecho de tercero y bajo la exclusiva responsabilidad del solicitante.
-Artículo 109.- Una vez realizada la inscripción de una marca, nombre comercial, expresión o señal de propaganda, el Registrador procederá enseguida a insertarla en el Indice de la Propiedad Industrial y a adherir o pegar el modelo correspondiente en el Libro de Inscripciones o en el Libro de Modelos, si lo hubiere.
-Cumplidas tales obligaciones, el Registrador extenderá el propietario de la marca, nombre comercial, expresión o señal de propaganda, un Certificado de Registro.
+Artículo 109.- Una vez realizada la inscripción de una marca, nombre comercial, expresión o señal de propaganda, el Registrador procederá enseguida a insertarla en el Indice de la Propiedad Industrial y a adherir o pegar el modelo correspondiente en el Libro de Inscripciones o en el Libro de Modelos, si lo hubiere. Cumplidas tales obligaciones, el Registrador extenderá el propietario de la marca, nombre comercial, expresión o señal de propaganda, un Certificado de Registro.
 Artículo 110.- El Certificado de Registro, a que se refiere el artículo anterior, se extenderá en el formulario que use el Registro de la Propiedad Industrial con ese objeto. Dicho formulario, en todo caso, deberá contener:
 a) Nombre completo del Registro de la Propiedad Industrial y del Estado contratante que corresponda;
 b) Nombre, razón social o denominación, nacionalidad y domicilio del titular de la marca, nombre comercial, señal o expresión de propaganda;
@@ -415,7 +418,8 @@ Artículo 125.- Con la solicitud a que se refiere el artículo anterior, se pres
 a) El poder legalmente otorgado, si la solicitud se hiciere por medio de mandatario, salvo que la personería de éste estuviera ya acreditada en el Registro de la Porpiedad Industrial, caso en el cual se indicará en la solicitud la fecha y el motivo de su presentación y el número del expediente en el cual consta. Cuando el interesado lo considere conveniente podrá pedir que el poder se razone en los autos y se le devuelva;
 b) Constancia de haber pagado los derechos que corresponden según el artículo 213;
 c) El documento por medio del cual se hubiera formalizado el traspaso, debidamente autenticado y legalizado, salvo que se hubiera otorgado en alguno de los Estados Contratantes, caso en el cual no requerirá legalización;
-d) Un clisé y tres facsímiles de la marca, nombre comercial, expresión o señal de propaganda que aparezca inserto en el Libro de Inscripciones respectivo o en el Libro de Modelos, si lo hubiere; y e) Los demás documentos que sean exigibles conforme el Derecho interno del Estado Contratante en que se presente la solicitud.
+d) Un clisé y tres facsímiles de la marca, nombre comercial, expresión o señal de propaganda que aparezca inserto en el Libro de Inscripciones respectivo o en el Libro de Modelos, si lo hubiere; y
+e) Los demás documentos que sean exigibles conforme el Derecho interno del Estado Contratante en que se presente la solicitud.
 Artículo 126.- En la solicitud prodrá pedirse el registro del traspaso de varias marcas, nombres comerciales, señales o expresiones de propaganda.
 Artículo 127.- En el momento de la entrega de una solicitud de inscripción de un traspaso, se procederá de acuerdo con lo prescrito en el artículo 90.
 Artículo 128.- Presentada una solicitud, el Registrador procederá en el acto a comprobar si reúne los requisitos indicados en los artículos 28, 29, 124 y 125 del presente Convenio. Si el resultado fuere negativo, rechazará de plano la solicitud indicando las razones en que se funda.
@@ -433,8 +437,7 @@ Artículo 133.- Para obtener la anotación a que alude el artículo precedente, 
 a) Designación precisa de la autoridad a quien se dirige;
 b) El nombre, razón social o denominación, nacionalidad y domicilio del solicitante y el nombre, profesión y domicilio del mandatario o representante legal en su caso;
 c) Indicación precisa de la marcas, nombres comerciales, y expresiones o señales de propaganda de que el interesado sea propietario, y el número, folio, tomo y Libro en que se hallan inscritos;
-d) Apartado postal o dirección exacta, en la ciudad en que está ubicado
-el Registro de la Propiedad Industrial, para recibir notificaciones;
+d) Apartado postal o dirección exacta, en la ciudad en que está ubicado el Registro de la Propiedad Industrial, para recibir notificaciones;
 e) Indicación precisa de lo que se pide; y
 f) Lugar y fecha de la solicitud y firma autógrafa del solicitante y del mandatario o representante legal, según el caso.
 Artículo 134.- La solicitud por medio de la cual se pida registro del cambio de un nombre, razón social o denominación, deberá acompañarse de los mismos documentos que señala el artículo 114 y, además, del documento o documentos auténticos en los cuales conste, de un modo indubitable, el cambio o modificación a que se refiere la solicitud.
@@ -457,8 +460,7 @@ a) Designación precisa de la autoridad a quien se dirige;
 b) El nombre, razón social o denominación, nacionalidad, domicilio y demás generales del propietario y del titular de la licencia, y el nombre, profesión y domicilio del mandatario o representante legal, en su caso;
 c) Indicación precisa de la marca que se da en uso y cita del número, folio y tomo en que aparece inscrita;
 d) El tipo de licencia, su duración y el territorio que cubre;
-e) Apartado postal o dir4ección exacta, en la ciudad en que está ubicado
-el Registro de la Propiedad Industrial, para recibir notificaciones;
+e) Apartado postal o dir4ección exacta, en la ciudad en que está ubicado el Registro de la Propiedad Industrial, para recibir notificaciones;
 f) Indicación concreta de lo que se pide; y
 g) Lugar y fecha de la solicitud y firma autógrafa del solicitante o del mandatario o representante legal, según el caso.
 La solicitud a que se refiere el presente artículo podrá ser hecha por el propietario de la marca y por el titular de la licencia simultáneamente, o por una sola de las partes.
@@ -487,7 +489,8 @@ Artículo 149.- El Registrador mandará, en la resolución correspondiente, que 
 a) El nombre, razón social o denominación, nacionalidad y domicilio del renunciante;
 b) indicación precisa de la marca, nombre comercial, expresión o señal de propaganda cuyo registro se canceló; y
 c) La causa de la cancelación y el modelo de la marca, nombre comercial, expresión o señal de propaganda.
-Artículo 150.- En la misma forma prevista en los tres artículos precedentes se procederá para obtener la cancelación del registro de una marca, nombre comercial, expresión o señal de propaganda cuando se haya decretado la nulidad de la inscripción por Tribunal de Justicia competente, caso en el cual se acompañará con la solicitud de cancelación una copia certificada de la sentencia respectiva. En los Estados Contratantes distintos de aquél en que se dictó la sentencia, la cancelación se efectuará previo el cumplimiento de lo dispuesto por el artículo 221.
+Artículo 150.- En la misma forma prevista en los tres artículos precedentes se procederá para obtener la cancelación del registro de una marca, nombre comercial, expresión o señal de propaganda cuando se haya decretado la nulidad de la inscripción por Tribunal de Justicia competente, caso en el cual se acompañará con la solicitud de cancelación una copia certificada de la sentencia respectiva. En los Estados Contratantes distintos de aquél en que se dictó la sentencia, la
+cancelación se efectuará previo el cumplimiento de lo dispuesto por el artículo 221.
 En este caso el aviso contendrá, además de los requisitos señalados en el artículo 149, indicación de lo previsto en el párrafo segundo del artículo 46.
 CAPÍTULO V
 Del desistimiento de solicitudes y oposiciones
@@ -498,51 +501,27 @@ Artículo 153.- Todo desistimiento deberá formularse por escrito y presentarse 
 CAPÍTULO VI
 De la clasificación de las mercancías y servicios
 Artículo 154.- Para la clasificación de la mercancías a que se refieren las marcas reguladas por este Convenio regirá en todos los Estados Contratantes la siguiente nomenclatura:
-Clase 1. Productos químicos destinados a la industria, la ciencia, la fotografía, la agricultura, la horticultura, la silvicultura; resinas artificiales y sintéticas, materias
-plásticas en bruto (en forma de polvo, líquido o pasta); abonos para las tierras (naturales y artificiales); composiciones para extintores; baños y preparaciones
-químicas para soldaduras; productos químicos destinados a conservar los alimentos;
-materias curtientes; sustancias adhesivas destinadas a la industria.
-Clase 2. Colores, barnices, lacas; preservativos antioxidantes y contra la deterioración de la madera; materias tintóreas; mordientes; resinas naturales, metales en
-hojas y en polvo para pintores y decoradores.
-Clase 3. Preparaciones para blanquear y otras sustancias para colar; preparaciones para limpiar, pulir, desengrasar y pulimentar; jabones; perfumería; aceites
-esenciales, cosméticos, lociones, capilares; dentífricos.
-Clase 4. Aceites y grasas industriales (que no sean aceites o grasas comestibles ni aceites esenciales); lubricantes; compuestos para eliminar el polvo; compuestos
-combustibles (incluidas las esencias para motores); y materias para alumbrado; velas, bujías, lamparillas y mechas.
-Clase 5. Productos farmacéuticos, veterinarios e higiénicos; productos dietéticos para niños y enfermos; emplastos, material para vendajes; materiales para empastar
-dientes y para improntas dentales; desinfectantes; preparaciones para destruir las malas hierbas y los animales dañinos.
-Clase 6. Metales comunes en bruto y semielaborados y sus aleaciones; anclas; yunques, campanas, materiales de construcción laminados y fundidos; raíles y otros
-materiales metálicos para vías férreas; cadenas (con excepción de las cadenas motrices para vehículos); cables e hilos metálicos no eléctricos; cerrajería; tubos
-metalicos; cajas de caudales grandes y portátiles; bolas de acero; herraduras; clavos y tornillos; otros productos de metal (no precioso) no incluidos en otras clases;
-minerales.
-Clase 7. Máquinas y máquinas herramientas; motores (excepto para vehículos terrestres); embragues y correas de transmisión (excepto para vehículos terrestres);
-instrumentos grandes para la agricultura; incubadoras.
+Clase 1. Productos químicos destinados a la industria, la ciencia, la fotografía, la agricultura, la horticultura, la silvicultura; resinas artificiales y sintéticas, materias plásticas en bruto (en forma de polvo, líquido o pasta); abonos para las tierras (naturales y artificiales); composiciones para extintores; baños y preparaciones químicas para soldaduras; productos químicos destinados a conservar los alimentos; materias curtientes; sustancias adhesivas destinadas a la industria.
+Clase 2. Colores, barnices, lacas; preservativos antioxidantes y contra la deterioración de la madera; materias tintóreas; mordientes; resinas naturales, metales en hojas y en polvo para pintores y decoradores.
+Clase 3. Preparaciones para blanquear y otras sustancias para colar; preparaciones para limpiar, pulir, desengrasar y pulimentar; jabones; perfumería; aceites esenciales, cosméticos, lociones, capilares; dentífricos.
+Clase 4. Aceites y grasas industriales (que no sean aceites o grasas comestibles ni aceites esenciales); lubricantes; compuestos para eliminar el polvo; compuestos combustibles (incluidas las esencias para motores); y materias para alumbrado; velas, bujías, lamparillas y mechas.
+Clase 5. Productos farmacéuticos, veterinarios e higiénicos; productos dietéticos para niños y enfermos; emplastos, material para vendajes; materiales para empastar dientes y para improntas dentales; desinfectantes; preparaciones para destruir las malas hierbas y los animales dañinos.
+Clase 6. Metales comunes en bruto y semielaborados y sus aleaciones; anclas; yunques, campanas, materiales de construcción laminados y fundidos; raíles y otros materiales metálicos para vías férreas; cadenas (con excepción de las cadenas motrices para vehículos); cables e hilos metálicos no eléctricos; cerrajería; tubos metalicos; cajas de caudales grandes y portátiles; bolas de acero; herraduras; clavos y tornillos; otros productos de metal (no precioso) no incluidos en otras clases; minerales.
+Clase 7. Máquinas y máquinas herramientas; motores (excepto para vehículos terrestres); embragues y correas de transmisión (excepto para vehículos terrestres); instrumentos grandes para la agricultura; incubadoras.
 Clase 8. Herramientas e instrumentos manuales; cuchillería, tenedores y cucharas; armas blancas.
-Clase 9. Aparatos e instrumento científicos, náuticos, geodésicos, eléctricos (incluso la radio), fotográficos, cinematográficos, ópticos, de pesar, de medir, de
-balizamiento, de control (inspección), de socorro (salvamiento) y de enseñanza; aparatos automáticos que se ponen en marcha mediante la introducción de una
-moneda o de una ficha; máquinas parlantes; cajas registradoras, máquinas de calcular; aparatos extintores.
+Clase 9. Aparatos e instrumento científicos, náuticos, geodésicos, eléctricos (incluso la radio), fotográficos, cinematográficos, ópticos, de pesar, de medir, de balizamiento, de control (inspección), de socorro (salvamiento) y de enseñanza; aparatos automáticos que se ponen en marcha mediante la introducción de una moneda o de una ficha; máquinas parlantes; cajas registradoras, máquinas de calcular; aparatos extintores.
 Clase 10. Instrumentos y aparatos quirúrgicos, médicos, odontológicos y veterinarios (incluidos los miembros, los ojos y los dientes artificiales).
-Clase 11. Instalaciones de alumbrado, de calefacción, de producción de vapor, de cocción, de refrigeración, de secado, de ventilación, de distribución de agua e
-instalaciones sanitarias.
-Clase 12. Vehículos; aparatos de locomoción terrestre, aérea o acuática.
+Clase 11. Instalaciones de alumbrado, de calefacción, de producción de vapor, de cocción, de refrigeración, de secado, de ventilación, de distribución de agua e instalaciones sanitarias. Clase 12. Vehículos; aparatos de locomoción terrestre, aérea o
+acuática.
 Clase 13. Armas de fuego; municiones y proyectiles; sustancias explosivas; fuegos artificiales.
-Clase 14. Metales preciosos y sus aleaciones y objetos de estas materias o chapeados (excepto cuchillería, tenedores y cucharas); joyería, piedras preciosas;
-relojería y otros instrumentos cronométricos.
+Clase 14. Metales preciosos y sus aleaciones y objetos de estas materias o chapeados (excepto cuchillería, tenedores y cucharas); joyería, piedras preciosas; relojería y otros instrumentos cronométricos.
 Clase 15. Instrumentos de música (excepto máquinas parlantes y aparatos de radio).
-Clase 16. Papel y artículos de papel, cartón y artículos de cartón; impresos, diarios y periódicos, libros; artículos de encuadernación; fotografías; papelería, materias
-adhesivas (para papelería); materiales para artistas; pinceles; máquinas de escribir y de oficina (excepto muebles); material de instrucción o de enseñanza (excepto
-aparatos); naipes; caracteres de imprenta; clisés.
-Clase 17. Gutapercha, goma elástica, balata y sucedáneos, objetos fabricados con estas materias que no estén comprendidos en otras clases; hojas, placas y varillas
-de materias plásticas (productos semielaborados); materias que sirven para calafatear, cerrar con estopa y aislar; amianto, mica y sus productos; tubos flexibles no
-metálicos.
-Clase 18. Cuero e imitaciones de cuero, artículos de estas materias no incluidos en otras clases; pieles; baúles y maletas; paraguas, sombrillas y bastones; fustas,
-faeces y guarnicionería.
-Clase 19. Materiales de construcción, piedras naturales y artificiales, cemento, cal, mortero, yeso y grava; tuberías de gres o de cemento; productos para la
-construcción de carreteras; asfalto, pez y betún; casas transportables; monumentos de piedra; chimeneas.
-Clase 20. Muebles, espejos, marcos; artículos (no incluidos en otras clases) de madera, corcho, caña, junco, mimbre, cuerno, hueso, marfil, ballena, concha, ámbar,
-nácar, espuma de mar, celuloides y sucedáneos de todas estas materias o de materias plásticas.
-Clase 21. Utensilios pequeños y recipientes portátiles para la casa y la cocina (que no sean de metales preciosos o chapeados); peines y esponjas; cepillos (con
-excepción de los pinceles); materiales para la fabricación de cepillos; instrumentos y materiales de limpieza; viruta de hierro; cristalería, porcelana y loza no incluidos
-en otras clases.
+Clase 16. Papel y artículos de papel, cartón y artículos de cartón; impresos, diarios y periódicos, libros; artículos de encuadernación; fotografías; papelería, materias adhesivas (para papelería); materiales para artistas; pinceles; máquinas de escribir y de oficina (excepto muebles); material de instrucción o de enseñanza (excepto aparatos); naipes; caracteres de imprenta; clisés.
+Clase 17. Gutapercha, goma elástica, balata y sucedáneos, objetos fabricados con estas materias que no estén comprendidos en otras clases; hojas, placas y varillas de materias plásticas (productos semielaborados); materias que sirven para calafatear, cerrar con estopa y aislar; amianto, mica y sus productos; tubos flexibles no metálicos.
+Clase 18. Cuero e imitaciones de cuero, artículos de estas materias no incluidos en otras clases; pieles; baúles y maletas; paraguas, sombrillas y bastones; fustas, faeces y guarnicionería.
+Clase 19. Materiales de construcción, piedras naturales y artificiales, cemento, cal, mortero, yeso y grava; tuberías de gres o de cemento; productos para la construcción de carreteras; asfalto, pez y betún; casas transportables; monumentos de piedra; chimeneas.
+Clase 20. Muebles, espejos, marcos; artículos (no incluidos en otras clases) de madera, corcho, caña, junco, mimbre, cuerno, hueso, marfil, ballena, concha, ámbar, nácar, espuma de mar, celuloides y sucedáneos de todas estas materias o de materias plásticas.
+Clase 21. Utensilios pequeños y recipientes portátiles para la casa y la cocina (que no sean de metales preciosos o chapeados); peines y esponjas; cepillos (con excepción de los pinceles); materiales para la fabricación de cepillos; instrumentos y materiales de limpieza; viruta de hierro; cristalería, porcelana y loza no incluidos en otras clases.
 Clase 22. Cuerdas, bramantes, redes, tiendas, toldos, velas, sacos; materiales de relleno (crín, capoc, plumas, algas marinas, etc.); materias fibrosas textiles en bruto.
 Clase 23. Hilos.
 Clase 24. Tejidos; colchas y tapetes; artículos textiles no incluidos en otras clases.
@@ -550,12 +529,9 @@ Clase 25. Vestidos, con inclusión de botas, zapatos y zapatillas.
 Clase 26. Puntillas y bordados, cintas y lazos; botones, automáticos, corchetes, ojetes, alfileres y agujas; flores artificiales.
 Clase 27. Alfombras, felpudos, esteras, linóleums y otros productos para recubrir los suelos; tapicería (que no sea de tela).
 Clase 28. Juegos, juguetes; artículos de gimnasia y deporte (excepto vestidos); ornamentos y decoración para los árboles de Navidad.
-Clase 29. Carne, pescado, aves y caza; extractos de carne; frutas y legumbres en conserva, secas y cocidas; jaleas, mermeladas; huevos, leche y otros productos
-lácteos; aceites y grasas comestibles; conservas, encurtidos.
-Clase 30. Café, té, cacao, azúcar, arroz, tapioca, sagú, sucedáneos del café; harinas y preparaciones hechas con cereales, pan, bizcochos, tortas, pastelería y
-confitería, helados comestibles; miel, jarabe de melaza; levadura, polvos para esponjar; sal, mostaza; pimienta, vinagre, salsas; especias; hielo.
-Clase 31. Productos agrícolas, hortícolas, forestales y granos no incluidos en otras clases; animales vivos; frutas y verduras frescas; semillas, plantas vivas y flores
-naturales; sustancias para la alimentación de animales, malta.
+Clase 29. Carne, pescado, aves y caza; extractos de carne; frutas y legumbres en conserva, secas y cocidas; jaleas, mermeladas; huevos, leche y otros productos lácteos; aceites y grasas comestibles; conservas, encurtidos.
+Clase 30. Café, té, cacao, azúcar, arroz, tapioca, sagú, sucedáneos del café; harinas y preparaciones hechas con cereales, pan, bizcochos, tortas, pastelería y confitería, helados comestibles; miel, jarabe de melaza; levadura, polvos para esponjar; sal, mostaza; pimienta, vinagre, salsas; especias; hielo.
+Clase 31. Productos agrícolas, hortícolas, forestales y granos no incluidos en otras clases; animales vivos; frutas y verduras frescas; semillas, plantas vivas y flores naturales; sustancias para la alimentación de animales, malta.
 Clase 32. Cerveza, ale y porter; aguas minerales y gaseosas y otras bebidas no alcohólicas; jarabes y otros preparados para hacer bebidas.
 Clase 33. Vinos, espirituosos y licores.
 Clase 34. Tabaco en bruto o manufacturado; artículos de fumador cerillas.
@@ -631,7 +607,7 @@ La contravención se sancionará de conformidad con las leyes internas del Estad
 Artículo 172.- El Registro de la Propiedad Industrial es público y puede ser consultado por cualquier persona durante las horas ordinarias de trabajo de la Oficina.
 Ni el Registrador, ni sus subalternos, podrán cobrar emolumento alguno por los servicios que presten a los interesados para darle cumplimiento a los dispuesto en el párrafo que antecede, ni por permitir que los solicitantes saquen las copias simples que deseen de las inscripciones, documentos, expedientes, actas o índices que existan en la Oficina.
 Tampoco podrán cobrar emolumento alguno distinto del sueldo que el Estado les haya asignado por ejecutar cualquier diligencia, trámite, averiguación o acto necesario para darle cumplimiento a los dispuesto en el presente Convenio.
-Artículo 173.- Los libros del Registro de la Propiedad Industrial no se sacarán por ningún motivo de la Oficina del Registro. Todas las diligencias judiciales, administrativas o de lo contencioso-administrativo o consultas que en ellos quieran hacer las autoridades o particulares, y que exijan la presentación de dichos libros, se ejecutarán precisamente en la misma Oficina, y bajo la vigilancia y responsabilidad del Registrador o del Secretario, en su caso.
+Artículo 173.- Los libros del Registro de la Propiedad Industrial no se sacarán por ningún motivo de la Oficina del Registro. Todas las iligencias judiciales, administrativas o de lo contencioso-administrativo o consultas que en ellos quieran hacer las autoridades o particulares, y que exijan la presentación de dichos libros, se ejecutarán precisamente en la misma Oficina, y bajo la vigilancia y responsabilidad del Registrador o del Secretario, en su caso.
 Artículo 174.- El Ministerio de Economía, u órgano equivalente, de cada Estado Contratante, adoptará las medidas necesarias para que un Comisionado visite anualmente el Registro de la Propiedad Industrial. El comisionario levantará un acta en la que hará constar el estado en que se encuentran los libros y todo lo que hubiese observado y practicado en el acto de la vista.
 De esta, acta mandará copia autorizada al respectivo Ministerio de Economía, u órgano equivalente, y al Registrador, para los fines consiguientes.
 Artículo 175.- Las solicitudes y toda clase de documentos que se presentaren al Registro, se archivarán en el mismo.
@@ -654,9 +630,12 @@ También se llevará un Indice del Registro de la Propiedad Industrial.
 No obstante lo anterior, el Libro de Modelos se llevará solamente en aquellos Estados Signatarios que lo consideren necesario.
 Artículo 178.- El Consejo Económico Centroamericano podrá, mediante resolución, establecer un sistema distinto de llevar el Registro. Tal resolución será puesta en vigencia en cada Estado Contratante por medio de acuerdo o decreto del Poder u Organismo Ejecutivo.
 Artículo 179.- Los libros a que se refiere el artículo 177 serán suministrados por el Ministerio de Economía, u órgano equivalente, de cada Estado Contratante.
-Tendrán en la carátula un rótulo que deberá expresar el nombre del libro y serán abiertos, foliados y clausurados por el Ministro o por el Subsecretario o Viceministro de la dependencia estatal mencionada, quien especificará en la nota de apertura, -que deberá figurar en la primera página-, el número de folios de que consta el libro y la circunstancia de hallarse todos ellos debidamente numerados, sellados y ninguno manchado, escrito o inutilizado, y en la de clausura, el número de folios utilizados durante el correspondiente período. Los libros, una vez agotados, se empastarán debidamente, si no lo estuvieren.
+Tendrán en la carátula un rótulo que deberá expresar el nombre del libro y serán abiertos, foliados y clausurados por el Ministro o por el Subsecretario o Viceministro de la dependencia estatal mencionada, quien especificará en la nota de apertura, -que deberá figurar en la primera página-, el número de folios de que consta el libro y la circunstancia de hallarse todos ellos debidamente numerados, sellados y ninguno manchado, escrito o inutilizado, y en la de clausura, el número de folios utilizados
+durante el correspondiente período.
+Los libros, una vez agotados, se empastarán debidamente, si no lo estuvieren.
 Artículo 180.- Los libros del Registro de la Propiedad Industrial serán numerados por orden de antigüedad y podrán llevarse varios tomos a la vez, de una misma clase, cuando la abundancia de trabajo lo exija.
-Artículo 181.- En los libros de inscripción de marcas, nombres comerciales, expresiones o señales de propaganda, se destinará al página izquierda para hacer la inscripción correspondiente y la página derecha para hacer las anotaciones que sean necesarias. Esta última página se dividirá mediante líneas perpendiculares con el fin de dejar los espacios en blanco necesarios para anotar en ellos todas las renovaciones, traspasos, licencias de uso, anotaciones preventivas y demás actos relacionados con la correspondiente marca, nombre comercial, expresión o señal de propaganda.
+Artículo 181.- En los libros de inscripción de marcas, nombres comerciales, expresiones o señales de propaganda, se destinará al página izquierda para hacer la inscripción correspondiente y la página derecha para hacer las anotaciones que sean necesarias. Esta última página se dividirá mediante líneas perpendiculares con el fin de dejar los espacios en blanco necesarios para anotar en ellos todas las renovaciones, traspasos, licencias de uso, anotaciones preventivas y demás actos
+relacionados con la correspondiente marca, nombre comercial, expresión o señal de propaganda.
 Al agotarse el margen destinado a las anotaciones, se pondrá razón indicativa del tomo y folio del Libro de Pases en que las mismas continúan, destinándose en éste una hoja para hacer las anotaciones que correspondan a cada marca, nombre comercial, expresión o señal de propaganda que motiva el pase.
 Las Partes Contratantes adoptarán, mediante Resolución del Consejo Ejecutivo del Tratado General, un sistema uniforme de Indice de todas las marcas, nombres comerciales, expresiones o señales de propaganda, el cual deberá asegurar la mayor exactitud y rapidez en la búsqueda de datos.
 Artículo 182.- Cada inscripción tendrá al principio el número que le corresponde en el libro respectivo y se extenderá sin dejar claros, líneas o espacios en blanco, de manera que no sea posible hacer intercalación alguna.
@@ -690,15 +669,24 @@ En cada inscripción solamente podrá asentarse un nombre comercial.
 Artículo 187.- La inscripción de las expresiones o señales de propaganda se hará en el Libro correspondiente y contendrá los datos siguientes:
 a) Número que corresponda a la inscripción;
 b) Lugar y fecha de la inscripción;
-c) Nombre, razón social o denominación del titular de la expresión o señal de propaganda, su nacionalidad y demás generales, y las de su mandatario o representante legal, en su caso;
-d) Descripción precisa de la expresión o señal de propaganda y país de origen de la misma;
-e) Las reservas que se hubieran hecho con respecto al tamaño, color o combinación de colores u otros signos que caractericen a la expresión de propaganda;
-f) Lugar y fecha de la resolución por medio de la cual se ordenó la inscripción, y las fechas y números del Diario Oficial en que se publicaron los correspondientes avisos;
+c) Nombre, razón social o denominación del titular de la expresión o
+señal de propaganda, su nacionalidad y demás generales, y las de su
+mandatario o representante legal, en su caso;
+d) Descripción precisa de la expresión o señal de propaganda y país de
+origen de la misma;
+e) Las reservas que se hubieran hecho con respecto al tamaño, color o
+combinación de colores u otros signos que caractericen a la expresión de
+propaganda;
+f) Lugar y fecha de la resolución por medio de la cual se ordenó la
+inscripción, y las fechas y números del Diario Oficial en que se
+publicaron los correspondientes avisos;
 g) Una sucinta relación de la oposición, si la hubo;
-h) Número del tomo y folio del Libro de Modelos en los que figura la correspondiente señal o expresión de propaganda, si la hubiere;
+h) Número del tomo y folio del Libro de Modelos en los que figura la
+correspondiente señal o expresión de propaganda, si la hubiere;
 i) El sello y la firma del registrador.
 En cada inscripción solamente podrá asentarse una expresión o señal de propaganda.
-Artículo 188.- En los estados donde hubiere Libro de Modelos, éste tendrá las dimensiones y características para adherir o pegar en cada uno de sus folios un modelo de cada marca, nombre comercial, expresión o señal de propaganda. Donde no lo hubiere, el modelo se adherirá o pegará en el mismo folio en que se haga la inscripción de la marca, nombre comercial, expresión o señal de propaganda.
+Artículo 188.- En los estados donde hubiere Libro de Modelos, éste tendrá las dimensiones y características para adherir o pegar en cada uno de sus folios un modelo de cada marca, nombre comercial, expresión o señal de propaganda.
+Donde no lo hubiere, el modelo se adherirá o pegará en el mismo folio en que se haga la inscripción de la marca, nombre comercial, expresión o señal de propaganda.
 Artículo 189.- Cada modelo que se adhiera o pegue bien sea en el Libro de Modelos o en el de Inscripciones, deberá corresponder al mismo número del asiento de la marca, nombre comercial, expresión o señal de propaganda que representa.
 Artículo 190.- Los modelos deberán ser grabados o impresos y de un tamaño que permita apreciar con claridad sus detalles.
 La Oficina de Registro no admitirá modelos con relieves, aunque la marca, nombre comercial, expresión o señal de propaganda los tenga, ni los que de cualquier otra manera puedan dañar el libro en que deban fijarse, ni los hechos a lápiz, ni los que no representen con fidelidad y claridad la marca, nombre comercial, expresión o señal de propaganda.
@@ -717,7 +705,7 @@ Artículo 195.- También podrá pedir anotación preventiva:
 a) El que demandare en juicio la nulidad de una inscripción o la propiedad o licencia de uso de una marca, o la propiedad de un nombre comercial, expresión o señal de propaganda. La autoridad judicial librará la correspondiente comunicación siempre que conste en autos el título con el que el demandante pretende justificar su derecho; y
 b) Aquél a cuyo favor se traspasa el dominio o se concede una licencia de uso de una marca, o se traspasa el dominio de un nombre comercial, expresión o señal de propaganda, si el instrumento por virtud del cual se realiza el traspaso o se concede licencia de uso, carece de alguna formalidad legal subsanable, que impida, sin embargo, la inscripción definitiva del derecho.
 En ambos casos, el Registrador pondrá al margen del asiento correspondiente, indicación del tomo y folio del Libro de Anotaciones Preventivas en que se encuentra la anotación.
-El Registrador, dentro de los tres días hábiles siguientes a la fecha en que haya recibido la comunicación a que se refiere el literal a), le enviará a los Registradores de los demás Estados Contratantes en que esté inscrita la marca, nombre comercial, expresión o señal de propaganda, a que la demanda se refiera, copia fotostática de la comunicación que le haya librado la autoridad judicial, para que, sin tardanza, procedan a hacer la correspondiente anotación. Al pie de dicha copia el Registrador pondrá razón de que la misma está conforme con el documento original y si constare de dos hojas, las sellará en forma correlativa, y le estampará a cada una su media firma.
+El Registrador, dentro de los tres días hábiles siguientes a la fechaen que haya recibido la comunicación a que se refiere el literal a), le enviará a los Registradores de los demás Estados Contratantes en que esté inscrita la marca, nombre comercial, expresión o señal de propaganda, a que la demanda se refiera, copia fotostática de la comunicación que le haya librado la autoridad judicial, para que, sin tardanza, procedan a hacer la correspondiente anotación. Al pie de dicha copia el Registrador pondrá razón de que la misma está conforme con el documento original y si constare de dos hojas, las sellará en forma correlativa, y le estampará a cada una su media firma.
 Artículo 196.- Los efectos de la anotación preventiva a que se refiere el artículo 194 consistirán en impedir el registro de la misma marca, nombre comercial, expresión o señal de propaganda en los otros Países Miembros del presente Convenio, en favor de persona distinta de aquélla en cuyo beneficio se hizo la anotación.
 Artículo 197.- La anotación preventiva de la demanda, en los casos contemplados en el literal a) del artículo 195, deja sin valor alguno la enajenación posterior a la anotación y duran sus efectos hasta que, por resolución o sentencia ejecutoria de autoridad competente, se ordene la cancelación.
 La enajenación que se haga en cualquiera de los Estados Contratantes despúes de la fecha de la primera anotación preventiva, no tendrá valor alguno si dentro de los dos meses siguientes a dicha fecha se hubiera anotado preventivamente la demanda en el país en que se efectuó la enajenación.
@@ -751,9 +739,9 @@ a) Por la inscripción de una marca en cada Clase de la nomenclatura $CA 50.00
 b) Por la inscripción de cada nombre comercial..................... $CA 50.00
 c) Por la inscripción de cada expresión o señal de propaganda...... $CA 25.00
 d) Por la renovación de cada marca................................. $CA 50.00
-e) Por el traspaso, licencia de uso o cancelación de cada marca en cada clase....................................................... $CA 10.00
-f) Por el traspaso, cambio de nombre o cancelación de cada nombre comercial, expresión o señal de propaganda..... $CA 10.00
-g) Por cada reposición o duplicado de un Certificado de Registro de Renovación o de cualquier otro documento semejante... $CA 5.00
+e) Por el traspaso, licencia de uso o cancelación de cada marca en cada clase.................................................................. $CA 10.00
+f) Por el traspaso, cambio de nombre o cancelación de cada nombre comercial, expresión o señal de propaganda................ $CA 10.00
+g) Por cada reposición o duplicado de un Certificado de Registro de Renovación o de cualquier otro documento semejante..... $CA 5.00
 CAPÍTULO VI
 De la cancelación del Registro
 Artículo 214.- Las inscripciones se extinguen por su cancelación, la cual procederá en cualquiera de los casos en que se extingue la propiedad de una marca, nombre comercial, expresión o señal de propaganda, de acuerdo con el presente Convenio.
@@ -765,7 +753,7 @@ d) El nombre, razón social o denominación de los interesados;
 e) El lugar y la fecha de su cancelación y el sello y la firma del Registrador.
 Artículo 216.- Será nula la cancelación:
 a) Cuando fuere falso o nulo el documento en virtud del cual se hubiese hecho;
-b) Cuando no aparezca en ella claramente la inscripción que se cancela;y
+b) Cuando no aparezca en ella claramente la inscripción que se cancela; y
 c) Cuando no se exprese en el documento, por cuya virtud se ha hecho la cancelación, el nombre, razón social o denominación de los interesados, o del tribunal, funcionario o notario.
 CAPÍTULO VII
 De los efectos del Registro
@@ -777,8 +765,7 @@ Artículo 221.- Las sentencias dictadas por los Tribunales de Justicia de cualqu
 1º.- Que la sentencia sea firme en el Estado Contratante en que se hubiera pronunciado;
 2º.- Que el titular de la marca, nombre comercial, expresión o señal de propaganda que fue vencido en el juicio, sea el mismo en el Estado o Estados en que la sentencia ha de ejecutarse. Se presume que la persona es la misma, no sólo cuando la inscripción aparezca a favor de quien fue vencido en juicio sino también cuando aparezca a favor de algún pariente suyo dentro del cuarto grado de consanguinidad o segundo de afinidad, a menos que dicho pariente demuestre que quien fue vencido en juicio no es copartícipe en su empresa o negociación y, además, que su derecho sobre la marca, nombre comercial, expresión o señal de propaganda no deriva de un contrato celebrado con aquél, directa o indirectamente. Tratándose de personas jurídicas, se presumirá lo anterior, sin lugar a prueba en contrario, cuando la empresa o negocio a cuyo favor aparezca la inscripción, sea una sucursal o agencia de la que fue vencida en juicio o cuando los socios de ésta sean los mismos o constituyan la mayoría de copartícipes de la empresa o negocio a cuyo favor aparezca el asiento;
 3º.- Que la marca, nombre comercial, expresión o señal de propaganda a que se refiere la sentencia, sea sustancialmente idéntica a la marca, nombre comercial, señal o expresión de propaganda inscrita en el Estado en que se pida la ejecución de la sentencia;
-4º.- Que la persona a cuyo favor se dictó la sentencia hubiera podido, o pueda, con base en el presente Convenio, ejercitar la acción que motivó el fallo en el Estado en que pida la ejecución; y
-5º.- Que el documento en que conste la sentencia sea auténtico. La autenticidad se refiere al hecho de haber sido realmente extendido o autorizado por las autoridades o funcionarios y de la manera que se expresa en el documento. Será prueba suficiente de la autenticidad del documento, si la firma del funcionario judicial que lo extiende está autorizada por el juez respectivo, la de éste por el Presidente de la Corte Suprema de Justicia y la de dicho Presidente, por la del Jefe de la omisión diplomática o consular del país en que habrá de ejecutarse la sentencia.
+4º.- Que la persona a cuyo favor se dictó la sentencia hubiera podido, o pueda, con base en el presente Convenio, ejercitar la acción que motivó el fallo en el Estado en que pida la ejecución; y 5º.- Que el documento en que conste la sentencia sea auténtico. La autenticidad se refiere al hecho de haber sido realmente extendido o autorizado por las autoridades o funcionarios y de la manera que se expresa en el documento. Será prueba suficiente de la autenticidad del documento, si la firma del funcionario judicial que lo extiende está autorizada por el juez respectivo, la de éste por el Presidente de la Corte Suprema de Justicia y la de dicho Presidente, por la del Jefe de la omisión diplomática o consular del país en que habrá de ejecutarse la sentencia.
 La sentencia se ejecutará conforme a los procedimientos que determine la legislación interna de cada Estado Contratante.
 TÍTULO FINAL
 DE LA OBSERVACIÓN DE ESTE CONVENIO
@@ -790,8 +777,10 @@ Artículo 223.- Si al efectuarse la renovación se encuentra que la marca ampara
 Artículo 224.- En los casos previstos en los dos artículos anteriores, el Registrador, antes de conceder la renovación del registro de una marca, mandará a publicar un aviso en el Diario Oficial, por tres veces durante un plazo de treinta días y a costa del interesado, para que cualquier persona que crea tener un mejor derecho, pueda dentro de los dos meses siguientes a la fecha de la primera publicación, objetar la concesión de dicha renovación.
 Se entenderá que tiene mejor derecho sobre la persona natural o jurídica que pruebe haber sido la que primero presentó solicitud de registro en cualquiera de los Estados Contratantes, salvo si quien solicitó con posterioridad la inscripción demuestra fehacientemente que es titular de la marca en un número mayor de Estados que el solicitante original, que ha producido y expedido en forma masiva los productos, mercancías o servicios protegidos por la marca y que sus derechos le habían sido reconocidos en tales Estados antes de la entrada en vigencia de este Convenio.
 Si se prueba el mejor derecho, se denegará la renovación del registro y, previa la solicitud y trámites correspondientes, se extenderá asiento en favor de quien haya probado el extremo aludido. En caso contrario, la persona que solicitó la renovación se entenderá que tiene mejor derecho sobre la marca aún en el país del primer solicitante, mejor derecho que podrá ejercitar y deberá serle reconocido al tiempo en que solicite la renovación del registro de aquélla.
-Sólo objeción, si la hubiere, se tramitará en juicio sumario ante la autoridad judicial competente.
-Artículo 225.- Las solicitudes de registro presentadas y que aún no hayan sido admitidas en el momento en que el presente Convenio entre en vigencia, se resolverán de acuerdo con lo dispuesto en los Títulos y Capítulos precendentes. Si por alguna circunstancia hubiere que hacerle cambios a la solicitud, esto no afectará el derecho de prioridad o cualquier otro que se derive de este instrumento, siempre que los cambios, enmiendas o adiciones se hagan dentro de los sesenta días siguientes a la fecha de la notificación del auto o resolución que hubiese ordenado su práctica.
+Sólo podrán objetar la renovación del registro las personas a que se refieren los artículos 2º y 35 de este Convenio.
+La objeción, si la hubiere, se tramitará en juicio sumario ante la autoridad judicial competente.
+Artículo 225.- Las solicitudes de registro presentadas y que aún no hayan sido admitidas en el momento en que el presente Convenio entre en vigencia, se resolverán de acuerdo con lo dispuesto en los Títulos y Capítulos precendentes. Si por alguna circunstancia hubiere que hacerle cambios a la solicitud, esto no afectará el derecho de prioridad o cualquier otro que se derive de este instrumento, siempre que los cambios, enmiendas o adiciones se hagan dentro de los sesenta días siguientes a la
+fecha de la notificación del auto o resolución que hubiese ordenado su práctica.
 Artículo 226.- Las solicitudes de registro que estuvieren tramitándose y las acciones que se hubieren deducido al entrar en vigor el presente Convenio, se proseguirán hasta su resolución conforme las disposiciones de las leyes internas bajo las cuales se iniciaron.
 Artículo 227.- Las acciones civiles provenientes del presente Convenio prescribirán a los tres años.
 Artículo 228.- La acción que el artículo 26 reconoce al propietario de una marca, relativa a hacer que las autoridades competentes prohiban la internación de una mercancía que la lleve ilícitamente, no se podrá ejercitar al establecerse la Unión Aduanera entre los territorios de los Estados Signatarios, si la mercancía es originaria de cualquiera de ellos.
@@ -804,13 +793,13 @@ Este organismo podrá introducirle a dicha lista las reformas que sean necesaria
 Artículo 232.- El Consejo Ejecutivo del Tratado General de Integración Económica podrá, mediante resolución, sustituir por otra la clasificación de las mercancías y servicios contenida en los artículos 154 y 155 de este instrumento.
 Artículo 233.- Las Partes Contratantes se obligan a no suscribir con otros Estados convenios relativos a marcas, nombres comerciales, expresiones o señales de propaganda, si no es actuando en forma conjunta.
 Artículo 234.- El presente instrumento al entrar en vigencia el Convenio Centroamericano sobre Patentes de Invención, Dibujos y Modelos Industriales, pasará a ser el Libro Primero del Código Centroamericano de la Propiedad Industrial y el mencionado Convenio el Libro Segundo.
-Artículo 235.- Los Estados Signatarios convienen en resolver, dentro del espíritu de este tratado, y por medio del Consejo Ejecutivo o del Consejo Económico Centroamericano, en su caso, las diferencias que surgieren sobre la interpretación de cualquiera de sus cláusulas. Si no pudieren ponerse de acuerdo, solucionarán la controversia por arbitraje.
-Para integrar el Tribunal Arbitral cada una de las Partes Contratantes propondrá a la Secretaría General de la Organización de Estados Centroamericanos los nombre de tres Magistrados de sus respectivas Cortes Supremas de Justicia. De la lista total de candidatos, el Secretario General de la Organización de Estados Centroamericanos y los representantes gubernamentales ante ese Organismo escogerán, por sorteo, a un árbitro por cada Parte Contratante, debiendo ser cada uno de ellos de diferente nacionalidad. El laudo del Tribunal Arbitral será pronunciado con los votos concurrentes de, por lo menos, tres miembros, y causará efectos de cosa juzgada para todas las Partes Contratantes por lo que hace a cualquier punto que se resuelva relativo a la interpretación de las cláusulas de este Convenio.
+Artículo 235.- Los Estados Signatarios convienen en resolver, dentro del espíritu de este tratado, y por medio del Consejo Ejecutivo o del Consejo Económico Centroamericano, en su caso, las diferencias que surgieren sobre la interpretación de cualquiera de sus cláusulas. Si no pudieren ponerse de acuerdo, solucionarán la controversia por arbitraje. Para integrar el Tribunal Arbitral cada una de las Partes Contratantes propondrá a la Secretaría General de la Organización de Estados Centroamericanos los nombre de tres Magistrados de sus respectivas Cortes Supremas de Justicia. De la lista total de candidatos, el Secretario General de la Organización de Estados Centroamericanos y los representantes gubernamentales ante ese Organismo escogerán, por sorteo, a un árbitro por cada Parte Contratante, debiendo ser cada uno de ellos de diferente nacionalidad. El laudo del Tribunal Arbitral será pronunciado con los votos concurrentes de, por lo menos, tres miembros, y causará efectos de cosa juzgada para todas las Partes Contratantes por lo que hace a cualquier punto que se resuelva relativo a la interpretación de las cláusulas de este Convenio.
 Artículo 236.- El presente Convenio queda abierto a la adhesión de la República de Panamá y su duración estará sujeta a la del Tratado General de Integración Económica Centroamericana.
 Artículo 237.- Este Convenio será sometido a ratificación en cada Estado Contratante, de conformidad con las respectivas normas constitucionales o legales.
 Los instrumentos de ratificación deberán depositarse en la Secretaría General de la Organización de Estados Centroamericanos.
 El Convenio entrará en vigor ocho días después de la fecha en que se deposite el tercer instrumento de ratificación, para los tres primeros depositantes, y para los subsiguientes, en la fecha de depósito de sus respectivos instrumentos.
-Artículo 238.- La Organización de Estados Centroamericanos enviará copias certificadas del mismo a las Cancillerías de cada uno de los Estados Contratantes y a la Secretaría Permanente del Tratado General de Integración Económica Centroamericana, a las cuales notificará inmediatamente del depósito de cada una de los instrumentos de ratificación, así como de cualquier denuncia que ocurriese. Al entrar en vigor el Convenio, procederá también a enviar copia certificada del mismo a la Secretaría General de la Organización de las Naciones Unidas para los fines de registro que señala el artículo 102 de la Carta de las Naciones Unidas.
+Artículo 238.- La Organización de Estados Centroamericanos enviará copias certificadas del mismo a las Cancillerías de cada uno de los Estados Contratantes y a la Secretaría Permanente del Tratado General de Integración Económica Centroamericana, a las cuales notificará inmediatamente del depósito de cada una de los instrumentos de ratificación, así como de cualquier denuncia que ocurriese. Al entrar en vigor el Convenio, procederá también a enviar copia certificada del mismo
+a la Secretaría General de la Organización de las Naciones Unidas para los fines de registro que señala el artículo 102 de la Carta de las Naciones Unidas.
 En testimonio de lo cual, los respectivos Plenipotenciarios firman el presente Convenio en la ciudad, de San José, República de Costa Rica, el primer día del mes de junio de mil novecientos sesenta y ocho.
 Por el Gobierno de Guatemala Por el Gobierno de Honduras
 José Luis Bouscayrol Valentín J. Mendoza A.
