@@ -1,0 +1,1 @@
+Artículo 14.-Los cuerpos colegiados, con existencia legal, servirán como medio de consulta al Ministro, en aquellos aspectos en que dicho funcionario estime conveniente solicitar su opinión, de previo a definir determinadas políticas. Igualmente podrán estimarse organismos colegiados, a los que ejecutan política' relativas a materias sociales.

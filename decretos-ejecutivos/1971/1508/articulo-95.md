@@ -1,0 +1,1 @@
+Artículo 95.-Es fórmula viable delegar atribuciones y funciones para realizar un trabajo de equipo, o para que los superiores ejerzan mejor su facultad coordinadora y de decisión sobre sus propias dependencias o para exigir mayor responsabilidad a cada una de las unidades que integran el Ministerio.

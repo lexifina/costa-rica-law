@@ -1,0 +1,2 @@
+Artículo 4°-El Ministerio de Trabajo y Bienestar Social cumple funciones de gobierno en los aspectos de administración y ejecución técnica de programas.
+Las funciones técnicas del Ministerio de Trabajo y Bienestar Social son de iniciativa libre y sus actos se desarrollan con sujeción a la Constitución Política de la República, Código de Trabajo y demás disposiciones supletorias o conexas. Las funciones de administración están sujetas al ordenamiento jurídico vigente a las normas de administración y organización que sean más eficaces.

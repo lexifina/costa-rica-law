@@ -1,0 +1,2 @@
+Artículo 106.-El Ministerio de Trabajo y Bienestar Social procederá dentro de los treinta días posteriores a la vigencia de este decreto, a hacer la distribución del personal según la reestructuración precedente, para lo cual podrá asignar a sus dependencias las funciones señaladas en la reorganización respectiva.
+Dado en la Casa Presidencial. -San José, a los dieciséis días del mes de febrero de mil novecientos setenta y uno.

@@ -1,0 +1,2 @@
+CENTRO DE DIAGNOSTICO SOCIAL DE MENORES.
+Artículo 64.-El Centro de Diagnóstico Social de Menores es la unidad técnica de la Dirección Nacional de Bienestar Social, destinada a establecer la Calificación y conocimiento integral de los problemas que afectan a los menores de ambos sexos, comprendidos entre los 7 y los 17 años de edad, principalmente en sus aspectos biológico, psicológico y social; además, determinar la influencia de uno y otro sobre el estado o la situación de las personas que estén sometidas a su campo de acción.

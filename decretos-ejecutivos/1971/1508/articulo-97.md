@@ -1,0 +1,1 @@
+Artículo 97.-Toda autoridad que dé órdenes o instrucciones para la aplicación de determinadas medidas exigirá su cumplimiento exclusivamente al Jefe inmediato inferior, como base esencial de la organización, la jerarquía y la disciplina.

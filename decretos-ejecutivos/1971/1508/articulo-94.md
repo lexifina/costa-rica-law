@@ -1,0 +1,1 @@
+Artículo 94 .-La delegación de funciones y atribuciones puede ser revocada en cualquier momento por la autoridad que la confiere, la cual no transfiere en ningún momento la responsabilidad otorgada, pero crea responsabilidades accesorias para las que la reciben.

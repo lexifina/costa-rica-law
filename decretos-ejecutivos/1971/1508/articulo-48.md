@@ -1,0 +1,2 @@
+De las Normas para el Inspector General de Trabajo.
+Artículo 48.-La Dirección Nacional de Inspección de Trabajo está a cargo de un funcionario que se denomina Director Nacional e Inspector General de Trabajo, nombrado conforme a ley, quien es responsable de la dirección y funcionamiento de todas sus dependencias, para lo cual cuenta con el cuerpo de Inspectores de Trabajo y el personal de oficina que requiere.

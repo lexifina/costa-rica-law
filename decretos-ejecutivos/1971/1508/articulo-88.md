@@ -1,0 +1,1 @@
+Artículo 88. -Todas las personas interesadas tienen los recursos que señalan las leyes y sus asuntos deben ser resueltos necesariamente en los términos legales indicados. La infracción a esas disposiciones se considera falta grave.

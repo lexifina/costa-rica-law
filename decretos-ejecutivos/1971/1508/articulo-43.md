@@ -1,0 +1,1 @@
+Artículo 43.-La Dirección Nacional de Inspección de Trabajo está exclusivamente destinada a asegurar, supervigilar y fiscalizar el cumplimiento de la legislación del trabajo y la protección de los trabajadores en el ejercicio de su profesión; asimismo, asesora y ayuda a los empleadores y trabajadores para la mejor observancia de la ley.

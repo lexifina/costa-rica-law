@@ -1,0 +1,1 @@
+Artículo 98.-Las autoridades del Ministerio de Trabajo y Bienestar Social, con excepción del Ministro, para el caso de ausencia temporal serán suplidos transitoriamente por su inmediato inferior; en caso de que hubiere varios inmediatos inferiores en un mismo nivel, lo suplirá el más antiguo o el de la unidad más importante, a juicio del Superior.

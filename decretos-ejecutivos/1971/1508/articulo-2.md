@@ -1,0 +1,3 @@
+CAPITULO SEGUNDO
+De las Normas Generales
+Artículo 2°-Este decreto tiene por objeto asegurar una distribución racional y técnica de todas las actividades del Ministerio de Trabajo y Bienestar Social en lo nacional, provincial, cantonal y distrital. Busca una clara distinción de las acciones de decisión, consultoría, asesoría, apoyo administrativo y adecua. das operaciones técnicas; asimismo una mejor coordinación en la ejecución de los planes y programas; la jerarquización de las funciones; la eficiencia administrativa; la simplificación de los procedimientos y un eficaz control administrativo.

@@ -1,0 +1,1 @@
+Artículo 77 .-EI Ministerio de Trabajo y Bienestar Social se desconcentra en función de los requerimientos y necesidades que tiene que atender, para lo que se podrá crear, combinar y suprimir unidades de desconcentración.

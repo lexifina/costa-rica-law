@@ -1,0 +1,3 @@
+CAPITULO QUINTO
+De la Dirección Nacional de Bienestar Social
+Articulo 57.-La Dirección Nacional de Bienestar Social desarrolla actividades que en conjunto están dirigidas a aplicar normas y medidas pina velar por la mejor situación social de las personas que no estén bajo el campo de aplicación del Código de Trabajo. Para tal efecto, debe determinarse la ejecución de normas técnicas adecuadas y oportunas, a fin de solucionar y aliviar la situación de las personas que tienen dificultades sociales, económicas y morales, que no pueden ser superadas por ellas mismas, esforzándose principalmente por disminuir la pobreza. la miseria y el pauperismo que se presenten en forma permanente o como emergencia de las causadas por elementos naturales imprevistos.

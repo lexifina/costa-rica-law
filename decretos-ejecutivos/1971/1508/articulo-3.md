@@ -1,0 +1,1 @@
+Articulo 3°-EI Ministerio de Trabajo y Bienestar Social es el órgano del Estado encargado de la administración pública en materia de trabajo y bienestar social y se ejerce por el Ministro de Gobierno designado como titular de la Cartera, el Oficial Mayor, los Directores Generales, los Directores de División y los Directores Nacionales respectivos.

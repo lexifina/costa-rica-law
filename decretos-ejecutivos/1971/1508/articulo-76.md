@@ -1,0 +1,1 @@
+Artículo 76.-La desconcentración es la acción administrativa mediante cual se cumplen funciones del Ministerio de Trabajo y Bienestar Social por medio de unidades administrativas localizadas en diversos puntos geográficos del país a fin de atender necesidades y servicios de carácter nacional, por delegación las unidades centrales.

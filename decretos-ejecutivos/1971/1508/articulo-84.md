@@ -1,0 +1,1 @@
+Artículo 84.-EI error en que se puede incurrir en la presentación de gestiones debe ser subsanado de oficio por el Ministerio de Trabajo y Bienestar Social, el que está obligado a encauzar la gestión por el conducto que corresponde y dentro de los trámites más breves posibles.

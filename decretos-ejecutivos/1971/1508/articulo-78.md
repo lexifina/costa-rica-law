@@ -1,0 +1,1 @@
+Artículo 78. -Las dependencias desconcentradas del Ministerio de Trabajo y Bienestar Social se denominan "Oficinas Regionales", para lo cual el territorio nacional se puede dividir en regiones de administración laboral y de bienestar social, que agrupen total o parcialmente a una o más provincias.

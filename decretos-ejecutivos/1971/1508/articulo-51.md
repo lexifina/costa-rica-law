@@ -1,0 +1,1 @@
+Artículo 51.-Para el mejor desempeño de sus funciones, los Inspectores de Trabajo pueden ser asesorados por expertos o peritos, ya sean médicos, ingenieros. mecánicos, electricistas y otros que se estime conveniente y necesario.

@@ -1,0 +1,1 @@
+Artículo 89.-Los pronunciamientos, resoluciones y demás cuestiones que se dicten, tanto del Ministro como de sus dependencias, se registrarán en libros especiales. Estos libros pueden ser sustituidos por cualquier otro sistema técnico que garantice la finalidad de esta disposición.

@@ -1,0 +1,2 @@
+De la Dirección Nacional de Seguridad Social
+Artículo 66.-La Dirección Nacional de Seguridad Social tiene a su cargo la programación, instrumentación y desarrollo de la acción política administrativa en materia de seguridad social, que como función del Estado le corresponde al Ministerio, asimismo, le competen el estudio y las propuestas destinadas a incrementar la seguridad social, ya sea desde el campo de cooperación a las instituciones de Seguridad Social, o el desarrollo de la previsión y los servicios sociales necesarios destinados a los trabajadores y sus familias.

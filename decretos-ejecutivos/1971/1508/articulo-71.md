@@ -1,0 +1,1 @@
+Artículo 71.-El Departamento de Medicina, Higiene y Seguridad ocupacionales actúa como órgano asesor de la Dirección Nacional de Inspección de Trabajo para la mejor vigilancia, aplicación y cumplimiento de las normas e instrucciones relativas a higiene y seguridad en el trabajo.
