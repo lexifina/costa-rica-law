@@ -18,3 +18,4 @@ Reglamento para el Sistema de Ahorro y Préstamo del Instituto Nacional de Vivie
 | 3 | 1958-09-11 | Decreto Ejecutivo 14 (1958-09-11) |
 | 4 | 1959-03-05 | Decreto Ejecutivo 1 (1959-03-05) |
 | 5 | 1959-07-21 | Decreto Ejecutivo 7 (1959-07-21) |
+| 6 | 1960-05-05 | Decreto Ejecutivo 6 (1960-05-05) |

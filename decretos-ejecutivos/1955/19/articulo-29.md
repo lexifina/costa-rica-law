@@ -1,1 +1,1 @@
-Artículo 29.—El suscriptor no podrá traspasar los derechos y obligaciones del contrato sino una vez transcurrido un año del otorgamiento del préstamo y con el consentimiento escrito de la Junta Directiva.
+Artículo 29.— (La derogación de este numeral realizada por el artículo 2° del decreto ejecutivo N° 6 del 5 de mayo de 1960, posteriormente fue derogada por el artículo 35 del Reglamento para el sistema de ahorro y préstamo del Instituto Nacional de Vivienda y Urbanismo, aprobado mediante sesión ordinaria N° 6495 del 6 de mayo del 2021.)
