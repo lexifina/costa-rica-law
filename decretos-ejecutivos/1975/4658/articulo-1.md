@@ -10,3 +10,4 @@ Considerando:
 Por tanto,
 DECRETAN :
 Artículo 1°—Traspásanse a la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica (JAPDEVA) los terrenos del Estado, comprendidos en el territorio de la provincia de Limón, ubicados dentro de la demarcación de la Reserva Forestal de Talamanca, creada por Decreto Ejecutivo N° 3788-A publicado en el Alcance N° 105 a "La Gaceta" N° 111 del 13 de junio de 1974.
+(Mediante el artículo 9° del decreto ejecutivo N° 5904 del 11 de marzo de 1976, a efecto de establecer la demarcación de los límites de las Reservas Indígenas de la Zona Atlántica, se reforma el artículo 1°, en el sentido de liberar, a favor de dichas reservas indígenas los terrenos que en este decreto se traspasan a JAPDEVA.)

@@ -14,3 +14,4 @@ Traspasa a la Junta de Administración Portuaria y de Desarrollo Económico de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-04-02 | la propia norma |
+| 2 | 1976-03-11 | Decreto Ejecutivo 5904 (1976-03-11) |
