@@ -1,0 +1,1 @@
+Art 4°.- La Electoral de la Ciudad de Alajuela nombrará de entre los vecinos del nuevo Pueblo un Alcalde Constitucional que administre justicia, y un Procurador Sindico que represente por las necesidades del mismo, haciendo este las veces de aquel en sus ausencias y enfermedades.
