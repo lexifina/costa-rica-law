@@ -1,1 +1,0 @@
-Artículo 5º—En ningún caso el pago del incentivo podrá considerarse como un derecho adquirido ni permanente, de forma que la Administración podrá rescindir el contrato en cualquier momento, sin responsabilidad para ésta, mediante resolución razonada.

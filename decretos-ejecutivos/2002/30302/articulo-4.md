@@ -1,1 +1,0 @@
-Artículo 4º—Los servidores a quienes se les otorgue el incentivo, asumen el compromiso de prestar el apoyo requerido por el tiempo y en el horario que la Administración lo necesite, para lo cual suscribirán un contrato en el que se especifiquen las condiciones en que prestarán el servicio y demás detalles que sean necesarios.
