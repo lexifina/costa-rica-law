@@ -134,3 +134,8 @@ articulo-133.md
 articulo-134.md
 articulo-135.md
 articulo-136.md
+articulo-137.md
+articulo-138.md
+articulo-139.md
+articulo-140.md
+articulo-141.md

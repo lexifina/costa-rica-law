@@ -1,3 +1,3 @@
-SECCION CUARTA
-De los Secretarios de Estado
-Artículo 105.- Para el despacho de los negocios que corresponden al Poder Ejecutivo, habrá las Secretarías de Estado que determine la ley.
+ARTICULO 105.- El Presidente de la República, tomará posesión de su
+destino, el día 8 de mayo; y terminado el período constitucional cesa por
+el mismo hecho en el ejercicio de sus funciones.

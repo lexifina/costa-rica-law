@@ -1,1 +1,6 @@
-Artículo 130.- Habrá en la capital de cada Provincia una Municipalidad, a quien corresponde la administración, cuidado y fomento en los intereses y establecimientos de la Provincia, la formación y custodia del registro cívico y del censo de población; y exclusivamente la administración e inversión de los fondos municipales, todo conforme a las leyes respectivas.
+ARTICULO 130.- El período de la Corte Suprema será de cuatro años,
+pudiendo sus individuos ser reelectos indefinidamente. La elección de
+Magistrados se hará en una de las tres primeras sesiones ordinarias que
+celebre el Congreso, dos años después de iniciado el período del
+Presidente de la República.
+(Así reformado por ley Nº 14 de 26 de mayo de 1898)

@@ -1,1 +1,2 @@
-Artículo 35.- El derecho de petición puede ejercerse individual ó colectivamente
+ARTICULO 35.- El derecho de petición puede ejercerse individual o
+colectivamente.

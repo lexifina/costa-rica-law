@@ -1,1 +1,6 @@
-Artículo 117.- Todos los Tribunales y Juzgados, en el ramo de justicia, que la ley establezca bajo cualquiera denominación dependen de la Corte Suprema.
+ARTICULO 117.- Los Secretarios de Estado presentarán al Congreso,
+cada año, dentro de los primeros quince días de sesiones ordinarias,
+memoria sobre el estado de sus respectivos ramos, y en cualquier tiempo
+los proyectos de ley que juzguen convenientes y los informes que se les
+pidan. El Secretario de Hacienda acompañará a su memoria la cuenta de
+gastos del año anterior y el presupuesto de los del siguientes.

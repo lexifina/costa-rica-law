@@ -1,5 +1,8 @@
-SECCION SEGUNDA
-Del Juramento Constitucional
-Artículo 133.- El juramento que deben prestar los funcionarios públicos según lo dispuesto en el artículo 21 Sección 1ª Título 3º de esta Constitución, será bajo la fórmula siguiente: ¿Jurais a Dios y prometeis a la Patria, observar y defender la Constitución y las leyes de la República, y cumplir fielmente los deberes de vuestro destino?
-- Sí Juro.
-- Si así lo hiciereis Dios os ayude, y sino el y la Patria os lo demanden.
+ARTICULO 133.- El Congreso, al elegir los Magistrados de la Corte
+Suprema, nombrará además, por el mismo período, quince Magistrados
+suplentes para los efectos del artículo 132. Cuando uno de los nombrados
+muriere o se inhabilitare, la Corte Suprema de Justicia dará cuenta al
+Congreso a fin de que se proceda a su reposición. Los Magistrados
+suplentes deben reunir las mismas condiciones exigidas para los
+propietarios.
+(Así reformado por ley Nº 5 de 19 de mayo de 1933)

@@ -1,3 +1,4 @@
-Artículo 72.- Para ser Diputado se requiere:
-1º.- Ser Costarricense por nacimiento ó naturalizado con una residencia de cuatro años después de haber adquirido la carta de naturaleza.
-2º.- Reunir las calidades que se exigen para ser elector excepto la 4ª.
+ARTICULO 72.- Una ley especial arreglará sobre estas bases la
+calificación de los ciudadanos y reglamentará las elecciones como mejor
+convenga a la legalidad, libertad y orden del sufragio.
+(Así reformado por ley Nº 7 de 17 de mayo de 1913)

@@ -1,1 +1,1 @@
-Artículo 26.- La ley no tiene efecto retroactivo.
+ARTICULO 26.- La ley no tiene efecto retroactivo.

@@ -1,1 +1,8 @@
-Artículo 98.- El Presidente de la República, tomará posesión de su destino el día ocho de Mayo: y terminado el periodo constitucional cesa por el mismo hecho en el ejercicio de sus funciones.
+ARTICULO 98.- Reconsiderado el proyecto por el Congreso, con las
+observaciones del Poder Ejecutivo, si el Congreso las desechare y el
+proyecto fuere nuevamente aprobado por dos terceras partes de votos,
+quedará sancionado y se mandará ejecutar como ley de la República. Si se
+adoptaren las modificaciones, se devolverá el proyecto al Poder Ejecutivo,
+quien no podrá ya negarle la sanción. En el caso de ser desechadas, y de
+no reunirse los dos tercios de votos para resellarlo, se archivará y no
+podrá ser considerado sino hasta la siguiente legislatura ordinaria.

@@ -1,1 +1,5 @@
-Artículo 69.- El Congreso se reunirá cada año el día 1º de Mayo, aun cuando no haya sido convocado; y sus sesiones ordinarias durarán sesenta días prorrogables hasta noventa en caso necesario.
+TITULO VI
+SECCION PRIMERA
+DEL SUFRAGIO
+ARTICULO 69.- El sufragio se ejerce en votación directa.
+(Así reformado por ley Nº 7 de 17 de mayo de 1913)

@@ -1,1 +1,3 @@
-Artículo 97.- El período del Presidente de la República será de cuatro años, y no podrá ser reelecto, sin que haya transcurrido otro periodo igual después de su separación del mando.
+ARTICULO 97.- El Poder Ejecutivo puede objetar cualquier proyecto de
+ley, bien sea porque lo juzgue del todo inconveniente, o bien porque crea
+necesario hacerle variaciones o reformas, y en este caso las propondrá.

@@ -1,1 +1,2 @@
-Artículo 46.- El delito de alta traición consiste en invadir el territorio de la República contra fuerza armada, ó en adherirse a los enemigos de ella, dándoles auxilio ó ayuda. Incurrirán en la pena señalada a este delito los costarricenses, ó los extranjeros al servicio de la nación, siempre que la invasión llegare a efectuarse; y de piratería en robar en alta mar, ejecutando actos depredatarios ó de violencia contra las personas ó cosas sin autorización legítima.
+ARTICULO 46.- DEROGADO.
+(Derogado por decreto ejecutivo Nº 4 de 26 de abril de 1882)
