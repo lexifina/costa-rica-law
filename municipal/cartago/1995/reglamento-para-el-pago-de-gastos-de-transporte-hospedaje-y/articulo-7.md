@@ -1,0 +1,1 @@
+Articulo 7°—Se les podrán pagar gastos de hospedaje, a los señores Regidores y Síndicos, que residan en los distritos de Llano Grande, Tierra Blanca, Quebradilla y Corralillo, a los cuales se les reconocerá también, el subsidio por concepto de desayuno.

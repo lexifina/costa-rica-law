@@ -1,0 +1,1 @@
+Artículo 11.—Si por decisión del Concejo o del Ejecutivo Municipal se le Brindará el transporte requerido para que los Regidores y Síndicos puedan asistir sin problemas a las reuniones ordinarias y extraordinarias del Concejo, estos, en ningún caso podrán solicitar los beneficios que se otorgan en el presente.

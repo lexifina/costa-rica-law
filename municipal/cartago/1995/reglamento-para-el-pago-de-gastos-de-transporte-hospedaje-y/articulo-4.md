@@ -1,0 +1,3 @@
+CAPITULO II
+Procedimiento para solicitar las liquidaciones por concepto de transporte, hospedaje y alimentación
+Artículo 4°—El Regidor o Síndico que desee solicitar el subsidio por concepto de transporte, hospedaje y alimentación, deberá llenar mensualmente la fórmula "Liquidación de gastos por concepto de transporte, hospedaje y alimentación, para Regidores y Síndicos", de la Municipalidad de Cartago indicando los montos adeudados y los conceptos de los mismos adjuntando en caso de hospedaje, la factura que compruebe su pernoctación. Esta fórmula debe estar correctamente llena para enviársela al Ejecutivo.

@@ -1,0 +1,1 @@
+Artículo 5°—El secretario de Actas del Concejo, al final del periodo de sesiones ordinarias y extraordinarias de cada mes, enviará al Ejecutivo la lista de asistencia de los Regidores y Síndicos, propietarios y suplentes que estuvieron presentes en esas sesiones, con el propósito de que coteje las solicitudes realizadas por los concejales, poder darles validez a las mismas.
