@@ -1,0 +1,1 @@
+Artículo 19— La Dirección establecerá los planes y programas requeridos para el desarrollo de sus funciones. Someterá a la Presidencia Ejecutiva un programa permanente de capacitación y desarrollo de su personal, un esquema de estímulos e incentivos para los profesionales, concordantes con la importancia de sus funciones y atribuciones en el desarrollo institucional.
