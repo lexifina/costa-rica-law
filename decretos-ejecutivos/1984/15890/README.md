@@ -14,3 +14,4 @@ Declara Emergencia Nacional Plan Desarrollo Infraestructura Zona Norte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-12-11 | la propia norma |
+| 2 | 1984-12-11 | Decreto Ejecutivo 16162 (1985-03-06) |
