@@ -1,1 +1,2 @@
 Artículo 360.-Cuando los rebeldes o sediciosos se disuelvan o se sometan a la autoridad legítima antes de que ésta les haga intimaciones o a consecuencia de ellas, sin haber causado otro mal que la perturbación momentánea, sólo serán reprimidos los promotores o directores, a quienes se impondrá la pena señalada para la especie, disminuidos en una mitad sus extremos mayor y menor.
+(Nota de Sinalevi: Mediante el artículo único de la ley N° 272 del 17 de noviembre de 1948, se indica que se suspende de forma indefinida este artículo)
