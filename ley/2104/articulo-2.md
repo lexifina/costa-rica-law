@@ -1,0 +1,1 @@
+Articulo 2º― Los prestamos que puedan ser hechos por el Sistema Bancario Nacional con las recuperaciones provenientes del empréstito a que se refiere esta ley, tendrán que .ser efectuados al mismo tipo de interés señalado en la ley Nº 2037 de 18 de Julio de 1956, 6 % anual.
