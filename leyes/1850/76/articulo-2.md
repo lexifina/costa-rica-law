@@ -1,0 +1,1 @@
+Art. 2. Se nombran en reposicion, para Regente al Benemérito D° Juan Mora, para Magistrados propietarios á los Licenciados D° Ramon Carranza y D° Lorenzo Montúfar, y para suplentes à D' Felix Matie y D° Alonso Gutierrez.
