@@ -1,0 +1,2 @@
+2º—Comunicar a todas las partes interesadas que los representantes de cada sector, deben estar nombrados de acuerdo al procedimiento establecido en el inciso b) del artículo 32 del Decreto Ejecutivo 31176-MINAE.
+*NOTA DEL SINALEVI: (En la publicación de esta resolución se duplica la numeración del punto No. 2, por lo que para poder ser incluido en el sistema sin afectar la numeración siguiente, se ha asignado como Por tanto No. 2 BIS).
