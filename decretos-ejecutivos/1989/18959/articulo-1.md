@@ -13,8 +13,10 @@ Se entiende por sal de calidad alimentaría el producto cristalino que consiste 
 3.1 Características Generales:
 La sal deberá presentarse en forma de cristales blancos. La granulación de la sal deberá ser uniforme.
 3.2 De acuerdo con su tipo será necesario que la sal contenga los aditivos requeridos por el Ministerio de Salud, en la proporción, de:
-3.2.1 Yodo de 33 a 50 mg/k de sal (expresado como 1) y
-3.2.2 Flúor de 225 a 275 mg/kg de sal (expresado como F)
+3.2. 1 Yodo de 30 a 60 mg/kg de sal (expresado como I)
+(Así reformado el apartado anterior mediante el artículo 1° del decreto ejecutivo N° 30032 del 3 de diciembre del 2001).
+3.2.2. Flúor de 175 a 225 mg kg de sal (expresado como F)
+(Así reformado el apartado anterior mediante el artículo 1° del decreto ejecutivo N° 30032 del 3 de diciembre del 2001).
 3.3. Características organolépticas
 Aspecto: cristales, de acuerdo con el tipo de sal.
 Color: blanco.
@@ -43,7 +45,7 @@ AntiagIútinantes | Dosis máxima en el producto final
 Cuadro N° 1
 CARACTERISTICAS FISICAS y QUIMICAS
 Tipo Característica | Común o gruesa | Molida | Refinada
-Granulación | Mínimo 90% pasa por un tamiz No. 8 (2,36 mm) | Mínimo 90% pasa por un tamiz No. 18 (1,00) | 100% pasa por un tamiz No. 20 (0,85 mm)
+Granulación | Mínimo 90% pasa por un tamiz No. 8 (2,36 mm) | Mínimo 95% (*) pasa por un tamiz No. 18 (1,00mm) (*) (Corregido mediante Fe de Erratas y publicada en La Gaceta N° 71 del 25 de abril de 2023) | 100% pasa por un tamiz No. 20 (0,85 mm)
 % humedad a1 150°C máximo | 3,0 | 1,0 | 0,5
 | | |
 % insolubles en agua1(1) máximo | 1,0 | 1,0 | 0,1
