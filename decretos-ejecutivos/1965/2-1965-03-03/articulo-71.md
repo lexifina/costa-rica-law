@@ -1,1 +1,1 @@
-Articulo 71.-El acuerdo de separación del alumno deberá ser aprobado por dos terceras partes de votos del Consejo.
+Articulo 71.--.(Así derogado por el artículo 1° del decreto ejecutivo N° 7 del 22 de setiembre de 1965).

@@ -14,3 +14,4 @@ Reglamento General Establecimientos Oficiales de Educación Media
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1965-03-07 | la propia norma |
+| 2 | 1965-09-22 | Decreto Ejecutivo 7 (1965-09-22) |
