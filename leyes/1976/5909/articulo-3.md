@@ -12,7 +12,13 @@ Artículo 4º.- Momento en que ocurre el hecho generador.
 Se considera que ocurre el hecho generador del impuesto, en la hora y fecha del otorgamiento de la escritura pública de traspaso del dominio pleno.
 Artículo 5º.- Exenciones.
 Están exentos del impuesto:
-a) Los traspasos de inmuebles a personas físicas, cuyo patrimonio inmobiliario, sumado al valor de la adquisición, no exceda de doscientos mil colones (¢ 200,000.00). Para determinar ese monto se atenderá el valor constante en los Registros de Tributación Directa o el que ésta establezca al efecto, salvo que el documento contuviere uno mayor, en cuyo caso regirá éste;
+(*)a) Los traspasos de inmuebles a personas físicas, cuyo patrimonio inmobiliario, sumado al valor de la adquisición, no exceda de doscientos mil colones (¢ 200,000.00). Para determinar ese monto se atenderá el valor constante en los Registros de Tributación Directa o el que ésta establezca al efecto, salvo que el documento contuviere uno mayor, en cuyo caso regirá éste;
+(*)(NOTA DE SINALEVI: interpretado auténticamente este inciso por el artículo 2 de la ley N° 6026 de 3 de enero de 1977, en el sentido de que la exención del impuesto establecida cubre por igual al adquirente y al enajenante en traspasos de inmuebles que se encuentren en las condiciones previstas por esa disposición. Para los traspasos no exonerados, la escala del impuesto será la siguiente:
+Tarifa
+Hasta ¢ 500,000.00 ... ... ... ... ... ... ... ... ... 1%
+Sobre el exceso de ¢ 500,000.00 hasta ¢ 1.000,000.00 .. 2
+Sobre el exceso de ¢ 1.000,000.00 hasta ¢ 2.000,000.00 3
+Sobre el exceso de ¢ 2.000,000.00 en adelante ... ... . 4)
 b) Los traspasos de inmuebles destinados a urbanizaciones populares, según constancia que deberá acompañarse al respectivo documento para el trámite del "anotado" en Tributación Directa, expedida por el Instituto Nacional de Vivienda y Urbanismo o por el Instituto Mixto de Ayuda Social o los organismos que lo llegaren a sustituir. Sin embargo, cuando la Administración Tributaria comprobare que tales bienes han sido utilizados para distinta finalidad a la indicada, o que no se han iniciado las respectivas obras de urbanización dentro de los tres años siguientes a la fecha de adquisición, procederá a cobrar el impuesto correspondiente sobre el valor que se determinare a la fecha de traspaso, salvo que el atraso se justifique a juicio de dicha Administración;
 c) Los traspasos de inmuebles para destinarlos a habitación familiar o el traspaso de la parcela rural que no exceda de diez mil metros cuadrados, que se destine a subsistencia de la familia, siempre, en estos casos, que no se sobrepase el límite de valor que señala el inciso a) anterior.
 Las exenciones de los incisos anteriores corresponden únicamente al adquirente;
