@@ -9,5 +9,5 @@ Artículo 236.- Para atender el pago de las jubilaciones y pensiones, créase un
 4.- Los intereses que produzcan los depósitos judiciales por concepto de gastos administrativos.
 El cincuenta por ciento (50%) de los intereses que generen esos depósitos, durante el tiempo en que el proceso estuvo activo, deberán ser girados a quien deba devolverse el depósito.
 El resto de los intereses los percibirá el Fondo por igual concepto.
-5.- Los intereses que generen la inversión de los depósitos judiciales, pertenecientes a juicios abandonados por más de cuatro años, según la distribución que se indica en el artículo siguiente.
+5.- Anulado. (Anulado este inciso mediante resolución de la Sala Constitucional N° 10817 del 24 de octubre de 2001.)
 6.- Los demás ingresos que determine la ley.
