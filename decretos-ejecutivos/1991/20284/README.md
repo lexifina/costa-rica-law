@@ -15,3 +15,4 @@ Normas Aplicación de la Carrera Profesional para las Instituciones Descentraliz
 | --- | --- | --- |
 | 1 | 1991-03-27 | la propia norma |
 | 2 | 1991-07-02 | Decreto Ejecutivo 20553 (1991-07-02) |
+| 3 | 1993-09-16 | Decreto Ejecutivo 22519 (1993-09-16) |
