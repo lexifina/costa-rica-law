@@ -1,1 +1,1 @@
-Artículo 3°.- Créase el área de Conservación Guanacaste , la cual estará integrada por el Parque Nacional Santa Rose, el Parque Nacional Rincón de la Vieja, el Parque Nacional Guanacaste, el Refugio de Vida Silvestre Isla Bolaños, el Área Recreativa Bahía Junquillal , la Estación Experimental Horizontes y la Zona Protectora Guanacaste.
+Artículo 3°.-(Dejado sin efecto por el artículo 4° del decreto ejecutivo N° 22998 del 21 de febrero de 1994 "Crea Área de Conservación y Desarrollo Sostenible Guanacaste")

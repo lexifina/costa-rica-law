@@ -14,3 +14,4 @@ Crea Parque Nacional Guanacaste y Área Conservación Guanacaste
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-07-09 | la propia norma |
+| 2 | 1994-02-21 | Decreto Ejecutivo 22998 (1994-02-21) |

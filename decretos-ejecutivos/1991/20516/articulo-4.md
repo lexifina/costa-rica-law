@@ -1,1 +1,1 @@
-Artículo 4°.- La zona de amortiguamiento del Área de Conservación Guanacaste será definida en la estrategia de manejo del Área de Conservación y las actividades a desarrollar dentro de ella, estarán identificadas en los planes operativos formales.
+Artículo 4°.-(Dejado sin efecto por el artículo 4° del decreto ejecutivo N° 22998 del 21 de febrero de 1994 "Crea Área de Conservación y Desarrollo Sostenible Guanacaste")

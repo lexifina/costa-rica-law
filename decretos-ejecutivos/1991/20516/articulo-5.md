@@ -1,1 +1,1 @@
-Artículo 5°.- Los directores y jefes de programas de las áreas silvestres que conforman esta área de conservación, integrarán una comisión técnica, con el fin de cumplir la estrategia de manejo de esta área.
+Artículo 5°.-(Dejado sin efecto por el artículo 4° del decreto ejecutivo N° 22998 del 21 de febrero de 1994 "Crea Área de Conservación y Desarrollo Sostenible Guanacaste")
