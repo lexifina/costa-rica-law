@@ -1,0 +1,1 @@
+Artículo 6°—El presente Reglamento fue aprobado en Sesión Ordinaria 36-96. celebrada el día 22 de abril 1996, Artículo 1° y la Sesión Ordinaria No 91-96, celebrada el día 8 de octubre 1996, Artículo 14° y rige a partir de su publicación en el Diario Oficial "La Gaceta.
