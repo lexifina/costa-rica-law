@@ -1,9 +1,3 @@
-ARTÖCULO 10
-Las disposiciones de los art¡culos anteriores se aplicar n
-tambi‚n a
-las facturas entre Estados Partes en cuyas legislaciones tengan el
-car cter de documentados negociables.
-Cada Estado Parte informar a la Secretar¡a General de la
-Organizaci¢n de los Estados Americanos, si, de acuerdo con su
-legislaci¢n,
-la factura constituye documento negociable.
+ARTICULO 10
+Las disposiciones de los artículos anteriores se aplicarán también a las facturas entre Estados Partes en cuyas legislaciones tengan el carácter de documentos negociables.
+Cada Estado Parte informará a la Secretaría General de la Organización de los Estados Americanos, si, de acuerdo con su legislación, la factura constituye documento negociable.
