@@ -1,0 +1,2 @@
+Artículo 26.—Fases del Programa de Juegos Deportivos Nacionales. El programa de Juegos Deportivos Nacionales comprende las fases eliminatorias por inscripción por deporte (Conjunto), torneos clasificatorios nacionales (individuales) y final nacional, las cuales se desarrollarán, para cada edición, dentro del calendario oficial incluido en la Convocatoria Nacional Oficial.
+Todos los eventos que comprenden cada una de las fases serán organizados por el Comisionado Técnico por Deporte dentro del período que establezca la Convocatoria Nacional Oficial.

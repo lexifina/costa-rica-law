@@ -1,0 +1,1 @@
+Artículo 43.—Atleta más destacado de la fase final. Al término de la fase final del programa de Juegos Deportivos Nacionales se premiará, de acuerdo con las normas y la forma que regule la Convocatoria Nacional Oficial, al atleta más destacado en cada una de las ramas y deportes que abarca el Programa.

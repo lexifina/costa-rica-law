@@ -1,0 +1,4 @@
+CAPÍTULO IX
+Reformas a este Reglamento
+Artículo 64.—Aprobación de reformas a este Reglamento. Las propuestas para la reforma de las normas contenidas en este reglamento podrán hacerlas cualquiera de las agrupaciones deportivas que estén o hayan participado en el Programa de Juegos Deportivos Nacionales, así como las Asociaciones o Federaciones Nacionales, Asociaciones o Comisiones de Arbitraje, órganos del Programa y cualquier otro persona con interés en él, debiendo ser dirigidas al Consejo Nacional del Deporte y la Recreación, órgano que lo remitirá para su estudio a la Comisión Permanente de estudio de reglamentos del programa, quién dará su informe al Consejo.
+El Consejo Nacional de Deportes y la Recreación, en su sesión ordinaria Nº 372, del 2 de junio del 2004, en su artículo 5, inciso 15). Aprueba el Reglamento General y Disciplinario de los Juegos Deportivos Nacionales.

@@ -1,0 +1,15 @@
+Artículo 59.—Sanción por la edición y la próxima edición. Serán descalificados de la edición en que está participando y hasta por una edición más, aquellos participantes que cometan alguna de las siguientes faltas:
+59.1 Agresión de palabra o con gestos, intentos de agresión física a otros participantes, árbitros, oficiales, organizadores, personal acreditado, miembros de los órganos de los Juegos Deportivos Nacionales antes, durante o después de la competencia o fuera de ella.
+59.2 Se retiren de la competencia como protesta al fallo emitido por los jueces de ésta.
+59.3 Los equipos, atletas y entrenadores, que no se presenten a una competencia sin motivo alguno. Deberán justificar dentro de los tres días siguientes a la fecha de la celebración de la competencia en las fases eliminatorias y dentro de las tres horas en la fase final.
+De tal manera que ello no implica la reprogramación del evento o partido, y se le aplica la sanción de pérdida por no-presentación o bien la expulsión del Equipo o atleta la edición en disputa y hasta otra edición.
+59.4 No cancelen los gastos acordados por el órgano competente por la no-presentación a una competencia, además con sanción de pérdida de puntos y expulsión del equipo.
+59.5 No cancelen los gastos por concepto de visorias, además con sanción de pérdida de puntos y expulsión del equipo.
+59.6 Alineación indebida de un atleta, además de la sanción de pérdida de los puntos en disputa, expulsión del atleta y entrenador, expulsión del equipo al que pertenece, sea deporte colectivo, o deportes individuales en los eventos de equipos dobles, mixtos, relevos, pruebas múltiples o individuales.
+59.7 Inscripción fraudulenta o falta de inscripción de un atleta, Entrenadores, Asistentes, Delegados, además de la sanción de pérdida de los puntos en disputa, expulsión del atleta y entrenador, Asistente, expulsión del equipo al que pertenece, sea deporte colectivo, o deportes individuales, en los eventos de equipos, dobles, dobles mixtos, equipos de relevos, pruebas múltiples o individuales.
+59.8 Incumpla con los términos señalados de residencia, además con sanción de pérdida de puntos, expulsión del atleta y del equipo a que pertenezca.
+59.9 No identificarse positiva y fehacientemente con documentos oficiales ante requerimiento hecho por las autoridades técnicas y administrativas en las diferentes fases.
+59.10 Insulten de hecho o de palabra a los competidores en un evento estando como espectador del mismo.
+59.11 Entrenadores y asistentes que de conformidad con el artículo 21 de este reglamento, no cumpla con presentar las constancias, documentos o títulos que lo acredite como tal, y que sea encontrado dirigiendo o entrenado alguna delegación deportiva en cualquiera de las fases del programa.
+59.12 Entrenadores, preparadores físicos, ayudantes o cualquier otra persona del cuerpo técnico, que insulten o maltraten de hecho a sus jugadores o a sus adversarios.
+59.13 El atleta y la agrupación deportiva al cual pertenece el atleta que luego de haber sido apercibido por orden o resolución de los órganos competentes, no devuelva las medallas.
