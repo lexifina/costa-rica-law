@@ -1,0 +1,1 @@
+Artículo 4º—Solicitud de informes o consultas. Para el cumplimiento de sus funciones, la Contraloría de Servicios puede solicitar informes, realizar consultas e indagar por su propia cuenta, según estime pertinente, en todas las dependencias del Tribunal, para lo cual se le brindará plena y oportuna colaboración por parte de todo el personal.

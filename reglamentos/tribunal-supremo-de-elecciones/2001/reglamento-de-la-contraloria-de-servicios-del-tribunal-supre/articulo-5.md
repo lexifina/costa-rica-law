@@ -1,0 +1,1 @@
+Artículo 5º—Deber de informar. Es obligación de todos los funcionarios del Tribunal contestar a la mayor brevedad posible, cualquier gestión que le formule la Contraloría de Servicios. En ningún caso este plazo podrá ser superior a tres días, salvo que a juicio del Contralor y mediante comunicación escrita, se extienda ese término hasta un máximo de ocho días hábiles.

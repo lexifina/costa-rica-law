@@ -1,0 +1,8 @@
+Artículo 3º—Atribuciones. Corresponde a la Contraloría de Servicios:
+a) Establecer un modelo de diagnóstico y evaluación de los servicios que brinda la institución, que prevea sistemas de seguimiento, resolución y respuesta oportuna de las gestiones de los usuarios y velar para que las unidades técnicas apliquen las acciones correctivas pertinentes.
+b) Establecer los mecanismos necesarios para facilitar al máximo la recepción de las sugerencias, reclamos, consultas, quejas y denuncias, a fin de determinar cuáles ameritan ser elevadas al jerarca o canalizadas por medio de la Inspección Electoral.
+c) Promover una cultura institucional que facilite el establecimiento de un canal de comunicación con el usuario que le proporcione herramientas adecuadas para demandar la satisfacción de sus derechos y crear indicadores de gestión que identifiquen las necesidades en los servicios prestados por la Institución y requeridos por los usuarios con el fin de ofrecerlos adecuadamente, y promover su modernización.
+d) Buscar la simplificación de los procedimientos institucionales, a fin de agilizar la prestación de los servicios, eliminando entrabamientos innecesarios.
+e) Identificar los obstáculos que impiden la prestación de un servicio de calidad mediante entrevistas formales e informales, y la aplicación de instrumentos de medición y sondeo con los usuarios y el personal que presta servicios dentro de la institución, con el propósito de buscar las soluciones pertinentes.
+f) Presentar recomendaciones al Tribunal para elevar la calidad de la prestación de servicios de la institución, proponiendo la adopción de políticas, normas y procedimientos para lograr ese fin.
+g) Servir de enlace y coordinación con instituciones relacionadas con su actividad.
