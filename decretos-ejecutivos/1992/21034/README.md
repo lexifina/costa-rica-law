@@ -16,3 +16,4 @@ Reglamento al Estatuto de Servicios Microbiología y Química Clínica
 | 1 | 1992-03-09 | la propia norma |
 | 2 | 1993-07-20 | SINALEVI (sin norma nombrada) |
 | 3 | 1993-08-12 | SINALEVI (sin norma nombrada) |
+| 4 | 1994-04-06 | SINALEVI (sin norma nombrada) |
