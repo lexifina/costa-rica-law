@@ -1,0 +1,5 @@
+Artículo 13.- La falta de cumplimiento en el nivel de calidad y
+precios de los servicios correspondientes a la categoría concedida por el
+Instituto Costarricense de Turismo, dará derecho a éste a cancelar los
+beneficios e incentivos otorgados, con las consecuentes implicaciones
+legales que conlleva dicha cancelación.
