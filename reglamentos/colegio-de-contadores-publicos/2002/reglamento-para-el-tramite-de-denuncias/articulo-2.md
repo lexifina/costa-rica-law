@@ -1,0 +1,1 @@
+Artículo 2º—El trámite de las denuncias será efectuado en concordancia con lo establecido en la Ley General de la Administración Pública, Nº 6227/78, y en la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Nº 8220/02.

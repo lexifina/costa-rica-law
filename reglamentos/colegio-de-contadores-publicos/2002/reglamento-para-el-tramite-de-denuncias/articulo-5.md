@@ -1,0 +1,2 @@
+Artículo 5º—Dentro de los siguientes quince días hábiles el Colegio comunicará al denunciante el curso dispuesto y, en su caso, le solicitará mayor información. El Colegio comunicará al denunciante el resultado del trámite de la denuncia una vez se concluya.
+El presente reglamento fue aprobado en acuerdo firme por la junta directiva del Colegio de Contadores Públicos de Costa Rica en sesión ordinaria Nº 22-2002, celebrada el 22 de julio del 2002. Rige a partir de su publicación y deroga cualquier otra norma reglamentaria anterior que se le oponga.

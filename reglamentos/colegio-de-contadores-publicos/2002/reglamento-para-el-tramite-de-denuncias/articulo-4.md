@@ -1,0 +1,1 @@
+Artículo 4º—Las denuncias se presentarán en la recepción del Colegio, en sus oficinas centrales. La atención de las denuncias será efectuada en orden cronológico, de conformidad con la normativa aplicable.
