@@ -1,9 +1,5 @@
-SECCIÓN III
-DE LA DIVISIÓN DE INFORMÁTICA
-Artículo 55: Corresponderá a la División de Informática orientar, promover y generar la transferencia y adaptación de las tecnologías de la informática y de las telecomunicaciones al sistema educativo nacional, tanto en el campo de la informática educativa, como en el de informática de gestión. Para estos efectos, atenderá las siguientes funciones:
-a) Dirigir, organizar y evaluar los planes, proyectos y actividades que desarrolle el Ministerio en el campo de la informática y las telecomunicaciones.
-b) Proponer los ajustes de organización que se requieran para la mejor adaptación de los servicios a la realidad nacional e internacional.
-c) Brindar la asesoría que requieran los funcionarios y dependencias del Ministerio en su campo de acción.
-ch) Desarrollar proyectos de investigación en áreas especificas de aplicación de las tecnologías de la informática y las telecomunicaciones.
-d) Coordinar, en su campo de actividad, con las diversas instancias, dentro o fuera del Ministerio, la ejecución de labores especializadas y el desarrollo de convenios, de acuerdo con las normas legales vigentes.
-(Así reformado tácitamente por el artículo 1 del Decreto Ejecutivo N° 23489 de 11 de julio de 1994)
+a) Velar por la oportuna y adecuada ejecución de las políticas y determinaciones que adopte el Consejo Superior de Educación en materia de educación integral de la sexualidad humana.
+b) Impulsar lineamientos, acciones, estrategias, materiales didácticos y procesos educativos que fomenten la educación integral de la sexualidad humana en la población estudiantil de todos los niveles, ciclos y modalidades con la mediación pedagógica de los docentes.
+c) Generar estrategias para la capacitación del personal docente y la búsqueda de recursos adecuados para la implementación de dicha capacitación.
+d) Elaborar estrategias y acciones que permitan la evaluación de los procesos técnicos en la educación de la sexualidad y desarrollar estrategias innovadoras, que puedan ser implementadas en los diferentes centros educativos.
+(Así adicionado por el artículo 2 del Decreto Ejecutivo N° 29976 de 2 de noviembre del 2001)

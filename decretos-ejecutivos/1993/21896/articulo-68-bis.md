@@ -1,0 +1,3 @@
+Artículo 68 bis; Dependiendo del viceministerio, funcionará la Oficina de la Mujer encargada de velar por la incorporación de los enfoques de género en la documentación y actividades del Ministerio, incluyendo los diversos aspectos del proceso educativo, así como para recibir denuncias por discriminación de la mujer o por acoso sexual y, cuando estuvieren bien fundadas, remitirlas a las autoridades superiores competentes para su tramitación.
+(Así adicionado tácitamente por el artículo 2 del Decreto Ejecutivo N° 23489 de 11 de julio de 1994)
+(Modificada su numeración por el artículo 2 del Decreto Ejecutivo N° 29976 de 2 de noviembre del 2001, que lo pasó del 67 bis al 68 bis)

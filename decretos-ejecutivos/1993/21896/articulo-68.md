@@ -1,4 +1,4 @@
-Artículo 69.—Además de las responsabilidades específicas de los distintos órganos del Ministerio de Educación Pública que se consignan en el presente decreto, serán de obligada observancia, para estos, las siguientes:
-En lo referente a nombramientos y traslados de los profesores de Educación Religiosa, tanto los funcionarios regionales como los de la sede central deberán atender las proposiciones que, en cada caso, haga el Asesor Regional de Educación Religiosa o el Director del Departamento de Educación Religiosa.
-Todo funcionario deberá remitir al Centro de Documentación de Información Educativa de la División de Planeamiento y Desarrollo Educativo, copia de los distintos documentos que produzca y que se ajusten a los criterios que oportunamente disponga el indicado centro, así como de las investigaciones que se realicen.
-Toda investigación educativa que realice cualquier dependencia del Ministerio de Educación Pública y en general, las investigaciones educativas en que se compromentan directa o indirectamente recursos del Ministerio, requerirán la aprobación previa del Departamento de Investigación Educativa de la División de Planeamiento y Desarrollo Educativo.
+CAPITULO VI
+Disposiciones finales
+Artículo 68.—Las decisiones y las acciones originadas en los órganos de las Oficinas Centrales, cuya ejecución deba cumplirse en los ámbitos regional o institucional serán canalizadas mediante la estructura regional.
+(Modificada su numeración por el artículo 2 del Decreto Ejecutivo N° 29976 de 2 de noviembre del 2001, que lo pasó del 67 al 68)
