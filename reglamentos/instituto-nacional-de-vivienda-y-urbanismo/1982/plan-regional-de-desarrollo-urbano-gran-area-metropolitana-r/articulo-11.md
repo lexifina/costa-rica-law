@@ -1,0 +1,1 @@
+Artículo 11.—No se permitirá el establecimiento ni el funcionamiento de fábricas u otras instalaciones que ocasionen contaminación química, biológica o física de las aguas de la zona de proyecto de riego del río Itiquís.

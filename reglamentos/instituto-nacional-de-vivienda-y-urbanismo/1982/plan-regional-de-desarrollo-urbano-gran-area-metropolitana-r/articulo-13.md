@@ -1,0 +1,1 @@
+Artículo 13.—Los permisos de construcción y de urbanización que se proyecten en esta zona deberán ser presentados a nivel de anteproyecto a la autoridad competente del proyecto de riego del río Itiquís para su aprobación.
