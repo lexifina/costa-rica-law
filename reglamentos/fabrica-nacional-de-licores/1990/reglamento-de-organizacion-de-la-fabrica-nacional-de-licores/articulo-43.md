@@ -2,7 +2,8 @@ Artículo N° 43: Corresponderá a la Unidad de Asesoría Legal:
 a) Brindar asesoría en asuntos legales al Administrador de FANAL.
 b) Confeccionar reglamentos, contratos y otra serie de documentos legales indispensables para el normal desarrollo de las funciones de FANAL.
 c) Prestar colaboración en la confección de carteles de licitación u otros concursos de ofertas y en el análisis de las ofertas.
-d) Brindar asesoría legal a otras dependencias de FANAL en la atención de asuntos propios de ese ramo.
+d) Emitir pronunciamientos y efectuar los trámites judiciales que correspondan, para lo cual se autoriza al Presidente Ejecutivo, al Gerente General o al Subgerente General en su condición de representantes legales y apoderados generalísimos del CNP, para que, en cada caso, le confiera al titular de la Unidad de Asesoría Legal Poder Especial Judicial, limitado a los asuntos propios de FANAL.
+(Así reformado mediante sesión No. 2498 de 28 de enero de 2004).
 e) Emitir pronunciamientos y efectuar los trámites judiciales que correspondan, para lo cual se autoriza al Presidente Ejecutivo para que le confiera al titular de la Unidad de Asesoría Legal Poder Especial Judicial, limitado a asuntos propios de FANAL.
 f) Ejecutar otras funciones propias de su competencia.
 El titular de la Unidad debe ser Abogado y Notario, debidamente incorporado al colegio respectivo.
