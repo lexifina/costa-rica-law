@@ -1,0 +1,1 @@
+Artículo 2°—En el área descrita por el artículo 1°, se declara de uso exclusivo para la pesca con cuerda, la sección, delimitado en su parte exterior por una línea recta imaginaria que va desde la parte noroeste de Puntarenitas, en el lado oriental del Golfo Dulce, hasta Punta Voladora (Golfito)
