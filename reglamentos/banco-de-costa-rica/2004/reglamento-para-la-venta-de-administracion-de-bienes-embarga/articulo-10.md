@@ -1,0 +1,1 @@
+Artículo 10.—Los avalúos que se utilizarán como base para la venta de bienes, serán realizados por la Gerencia de Ingeniería y Valuación, ya sea con peritos internos o peritos externos y deberán contar con el visto bueno de esa Gerencia.

@@ -1,0 +1,1 @@
+Artículo 7º—El arrendamiento de bienes adjudicados en pago de obligaciones debe considerarse como una contratación de excepción, por lo tanto cada caso en concreto debe ser analizado y aprobado por la Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones, previo criterio favorable de la Gerencia Legal.

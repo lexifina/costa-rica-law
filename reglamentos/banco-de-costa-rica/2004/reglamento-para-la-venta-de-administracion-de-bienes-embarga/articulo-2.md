@@ -1,0 +1,1 @@
+Artículo 2º—Las atribuciones aquí consignadas, así como cualquier otro monto a que se haga referencia están dadas en U.S. Dólares; para lo cual se aplicará su equivalente en colones al tipo de cambio vigente establecido por el Banco de Costa Rica para la compra.

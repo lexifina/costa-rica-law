@@ -1,0 +1,1 @@
+Artículo 28.—De cada una de las sesiones que celebre la Comisión, se deberá levantar un acta en la cual se detallen todos los asuntos conocidos y su resolución, los acuerdos quedarán en firme en la sesión en que se toman sí así lo disponen al menos tres de sus miembros con derecho a voto. En caso contrario quedarán en firme en la siguiente sesión.

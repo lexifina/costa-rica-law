@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Disposiciones finales
+Artículo 30.—Los empleados del Banco y sus subsidiarias, no podrán participar en los procedimientos de venta que se tramiten. No obstante, si un bien se ha publicado en diversas oportunidades y no se ha logrado su venta, la Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones podrá autorizar su venta entre los empleados del Banco y sus subsidiarias.
+Tendrán prohibición absoluta de adquisición de estos bienes, miembros de la Junta Directiva General el Gerente General, los Subgerentes, Directores de División, Gerente Administrativo, Auditor y Subauditor, Gerentes Regionales y Locales, los abogados y peritos que hayan participado en el proceso de adquisición y valoración de los bienes, el Gerente de Bienes de Adquiridos, los interventores de Bienes Adquiridos, los ejecutivos de Venta de Bienes, y cualquier otro funcionario que participe en la Comisión de Venta de Bienes Adquiridos en Pago de Obligaciones.

@@ -1,0 +1,1 @@
+Artículo 6º—El monto de las compras de bienes y servicios, que el Banco realice para la administración de los bienes embargados o adquiridos en pago de obligaciones, será cargado, a la obligación que originó esa administración.

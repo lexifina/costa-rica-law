@@ -1,0 +1,1 @@
+Artículo 11.—Independientemente de la base fijada para la venta, se podrá realizar la venta directa al expropietario de un bien, por la suma necesaria para cancelar las obligaciones exigibles con este Banco. Si el expropietario es el deudor, la venta deberá ser de contado.

@@ -1,0 +1,1 @@
+Artículo 5º—La compra de bienes y servicios necesarios para la administración de los bienes, se regirá, en lo que corresponda, por la Ley de Contratación Administrativa y su Reglamento, así como por el Reglamento de Atribuciones en materia de Contratación Administrativa de Bienes y Servicios.

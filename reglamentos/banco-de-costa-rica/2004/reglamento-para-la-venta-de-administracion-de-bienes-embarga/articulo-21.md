@@ -1,0 +1,1 @@
+Artículo 21.—Los niveles de atribuciones para la compra de bienes y servicios necesarios para la administración de los bienes embargados y de los bienes adjudicados y recibidos en dación de pago, se regirán conforme lo establecido en el Anexo número uno del presente reglamento.

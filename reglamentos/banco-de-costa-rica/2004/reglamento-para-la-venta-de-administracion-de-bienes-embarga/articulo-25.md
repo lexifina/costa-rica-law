@@ -1,0 +1,1 @@
+Artículo 25.—El quórum quedará válidamente constituido por tres de sus integrantes con derecho a voto. Las decisiones se tomarán por simple mayoría de los miembros asistentes. En caso de empate el Presidente tendrá doble voto.

@@ -1,0 +1,1 @@
+Artículo 31.—Estas disposiciones revocan todas las disposiciones anteriores sobre la materia, y se aplicarán sin perjuicio de normas específicas legales y reglamentarias, aplicables a los asuntos tratados
