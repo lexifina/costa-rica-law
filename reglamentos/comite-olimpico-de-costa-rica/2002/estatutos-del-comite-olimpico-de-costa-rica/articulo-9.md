@@ -1,0 +1,1 @@
+Artículo 9º—La Asamblea General estará compuesta por todas las Asociaciones o Federaciones debidamente reconocidas por el Comité Olímpico de Costa Rica y cada una representada para este fin por dos delegados: uno Titular y el otro Suplente. Además, por las personas mencionadas en los artículos cuatro y quinto y lo que al respecto indique la Carta Olímpica y de este Estatuto.

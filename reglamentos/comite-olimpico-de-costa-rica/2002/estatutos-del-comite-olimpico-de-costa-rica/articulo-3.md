@@ -1,0 +1,3 @@
+CAPÍTULO III
+De sus miembros
+Artículo 3º—Podrán ser miembros del Comité Olímpico Nacional de Costa Rica todas aquellas Asociaciones o Federaciones conocidas como tales ante los organismos internacionales respectivos Federaciones Internacionales, y cuyas disciplinas estén incluidas en programas Regionales de nuestra jurisdicción reconocidas por el COI. El Comité Olímpico de Costa Rica requiere para su vigencia de por lo menos cinco de sus Asociaciones o Federaciones estén afiliadas a las Federaciones Internacionales reconocidas por el COI, y que cinco de ellas representen un deporte olímpico y lo que al respecto establezca estos estatutos, reglamentos y la Carta Olímpica.

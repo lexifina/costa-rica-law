@@ -1,0 +1,1 @@
+Artículo 21.—El Comité Ejecutivo sesionará una vez al mes en forma ordinaria y cuantas veces sea necesario en extraordinaria, siempre y cuando así lo ordene el presidente. El quórum lo formarán cuatro miembros.

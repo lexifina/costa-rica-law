@@ -1,0 +1,5 @@
+Artículo 19.—Para ser miembros del Comité Ejecutivo, se requiere cumplir con al menos, algunos de los incisos siguientes:
+a. Haberse desempeñado como presidente activo por lo menos durante tres años o Directivo Activo por lo menos durante cinco años de cualquiera de las Juntas Directivas de una Federación Nacional de representación Internacional y ostentar la representación titular de su Federación Nacional.
+b. Ser exmiembro de Comités Ejecutivos anteriores, y haber cumplido a cabalidad las funciones del puesto a que fue nombrado, aunque al momento del nombramiento no representen a ninguna Asociación o Federación.
+c. Los miembros en cualquier caso deben ser mayores de edad y costarricenses por nacimiento o naturalización con 10 años de residencia.
+d. Ser miembro de la Asamblea General según lo establecido por la Carta Olímpica como miembro permanente, atleta en activo o lo que establece la Carta Olímpica en la norma 32, inciso 2.2. y ser representante titular o suplente de una Asociación o Federación miembro del Comité Olímpico de Costa Rica.

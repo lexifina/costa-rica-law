@@ -1,0 +1,1 @@
+Artículo 5º—Los costarricenses miembros del COI o miembros de una Organización Olímpica Continental o Mundial también serán parte del Comité Olímpico de Costa Rica. Ellos serán por derecho propio, miembros del Comité Ejecutivo y tendrán el derecho al voto tanto en la Asamblea General como en el Comité Ejecutivo.

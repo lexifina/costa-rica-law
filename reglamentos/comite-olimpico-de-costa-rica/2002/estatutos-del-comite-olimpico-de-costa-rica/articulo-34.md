@@ -1,0 +1,1 @@
+Artículo 34.—En ningún caso las donaciones de que habla el artículo anterior, podrán desviar los principios olímpicos o afectar la libertad y autonomía del Comité Olímpico de Costa Rica, en sus funciones.

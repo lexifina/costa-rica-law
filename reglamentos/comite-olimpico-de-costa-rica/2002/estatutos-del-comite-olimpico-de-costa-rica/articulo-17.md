@@ -1,0 +1,1 @@
+Artículo 17.—Todo asunto que se plantea al Comité Olímpico por alguno de los miembros para ser conocido en Asamblea General Ordinaria o Extraordinaria, deberá ser presentado ante el Comité Ejecutivo, por escrito por lo menos cuarenta y cinco días de anticipación, a la celebración de la misma.

@@ -1,0 +1,1 @@
+Artículo 12.—La convocatoria para la Asamblea General se hará por escrito con quince días naturales de anticipación de la misma y el órgano encargado de hacerla es el Comité Ejecutivo. La convocatoria deberá efectuarse dentro de los cuarenta y cinco días posteriores al recibo de la solicitud correspondiente.

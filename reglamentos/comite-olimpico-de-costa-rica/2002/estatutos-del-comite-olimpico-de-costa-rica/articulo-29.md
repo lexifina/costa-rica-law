@@ -1,0 +1,2 @@
+De los directores
+Artículo 29.—Son funciones de los Directores. Los tres directores del Comité Ejecutivo deben ser elegidos como primero, segundo y tercero, son los miembros del Comité Ejecutivo que reemplazarán en ese orden, al presidente, al Secretario, o al Tesorero, en ausencia de cualquiera de ellos. Además ellos ejecutarán labores específicas asignadas por el presidente del Comité Ejecutivo.
