@@ -1,0 +1,7 @@
+ARTICULO 23.- Cuota provisional y casos en que procede restitución
+Cuando se le fije una cuota provisional a quien no es el obligado
+preferente o se decida en sentencia que el acreedor alimentario no tiene
+derecho a los alimentos, quien haya pagado la cuota provisional, sus
+representantes o herederos podrán exigir la restitución del monto pagado.
+La suma por concepto de restitución constituirá título ejecutivo y se
+determinará por la vía incidental.

@@ -1,0 +1,15 @@
+ARTICULO 10.- Representación de menores e inhábiles
+Tendrán personería para demandar alimentos en favor de menores de
+edad declarados o no en estado de abandono, y de mayores inhábiles
+declarados o no en estado de interdicción, sus representantes legales
+cuando tengan a su cargo a esas personas y, en su defecto, sus simples
+guardadores, quienes podrán probar tal circunstancia por los medios a su
+alcance, junto con la demanda.
+En los casos de menores de edad que estén al cuidado del Patronato
+Nacional de la Infancia y de mayores inhábiles, podrán demandar alimentos
+los representantes legales de los establecimientos o instituciones que los
+tengan a su cargo. Estos representantes podrán efectuar cualquier gestión
+en favor de sus representados.
+La autoridad que conozca de los procesos alimentarios de menores
+abandonados o de mayores inhábiles, podrá actuar de oficio o a instancia
+de cualquier interesado.
