@@ -1,0 +1,13 @@
+ARTICULO 26.- La Corporación analizará la solicitud y la información
+suministrada, siempre y cuando estuviera completa y enviará un dictamen a
+la Junta Directiva, la que deberá resolver, a más tardar, en la sesión
+ordinaria subsiguiente a la recepción del dictamen o en una sesión
+extraordinaria, si así lo acuerdan cuatro de sus miembros.
+En caso de que la información esté incompleta, la Corporación deberá
+comunicar al interesado, las observaciones que considere oportunas en un
+plazo de ocho días hábiles a partir de la presentación de la solicitud.
+Satisfecho el requerimiento, se continuará con el procedimiento
+establecido.
+La Corporación solicitará, cuando lo estime conveniente, el dictamen
+especializado a las diferentes instituciones del Estado, para un mejor
+análisis de la solicitud de las empresas.
