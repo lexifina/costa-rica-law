@@ -1,0 +1,13 @@
+N°27659-MAG
+EL PRESIDENTE DE LA REPÚBLICA Y EL MINISTRO DE AGRICULTURA Y GANADERÍA,
+En ejercicio de las facultades establecidas en los incisos 3) y 18) del artículo 140 de la Constitución Política, la ley No 6227 del 2 de mayo de 1978, la ley No 7064 del 29 de abril de 1987, la ley No 7664 del 8 de abril de 1997 y el Reglamento sobre Registro, Uso y Control de Plaguicidas Agrícolas y Coadyuvantes
+Considerando:
+1°—Que mediante decreto ejecutivo No 27034-MAG del 5 de enero de 1998, publicado en "La Gaceta" No 174 del 7 de setiembre del mismo año, se emitieron regulaciones para el otorgamiento de permisos de operación para aquellas personas físicas o jurídicas que comercialicen o expendan sustancias químicas, biológicas o afines de uso en la agricultura, estableciéndose requisitos para la expedición de dichos permisos.
+2°—Que dentro de los requisitos fijados, se estableció un curso sobre manejo seguro, eficaz y racional de las sustancias químicas, biológicas o afines de uso en la agricultura, el cual por un error se indicó también para los regentes agrícolas incorporados al Colegio de Ingenieros Agrónomos de Cosía Rica, lo cual no es un requisito que esté fijado para estos por disposición de su Ley para el ejercicio de la actividad, existiendo ya un Reglamento sobre Regencias aplicable a estos y siendo el Colegio garante del ejercicio adecuado e idóneo de las mismas.
+3°—Por las razones anteriores, se hace necesario modificar según lo indicado, el decreto supracitado. Por tanto,
+decretan:
+Artículo 1°—Modifíquense los artículos 3°, punto 5 y 4 del decreto ejecutivo No 27034-MAG del 5 de enero de 1998, para que los mismos a partir del presente se lean de la siguiente manera:
+'Artículo 3°—...
+5. Comprometerse a que el personal de ventas o despacho del establecimiento comercial, reciba una vez por año el curso de refrescamiento sobre el manejo seguro, eficaz y racional de las sustancias químicas, biológicas o afines de uso en la agricultura."
+"Artículo 4°—El personal de ventas o despacho que comercialice o expenda las sustancias químicas, biológicas o afines de uso en la agricultura, deberá contar para el ejercicio de sus labores, con una licencia, la que obtendrá al realizar y aprobar un curso sobre el manejo seguro, eficaz y racional de dichas sustancias, que al efecto impartirá la Cámara Nacional de Importadores, Fabricantes y Distribuidores de Insumos Agropecuarios y el Ministerio de Agricultura y Ganadería, a través del Departamento de Insumos Agrícolas.
+Los trabajadores de ventas o despacho de estos establecimientos comerciales, recibirán con posterioridad a la realización del curso previsto en el artículo anterior, un curso anual de refrescamiento."
