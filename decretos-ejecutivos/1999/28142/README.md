@@ -14,3 +14,4 @@ Servicio Cabotaje Río Tempisque entre Puerto Alegre y Puerto Moreno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-20 | la propia norma |
+| 2 | 1999-12-20 | Decreto Ejecutivo 28364 (1999-12-20) |
