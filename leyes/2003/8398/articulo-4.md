@@ -4,3 +4,4 @@ ARTICULO 4°: PRESUPUESTO POR PROGRAMAS CONTRALORÍA GENERAL DE LA REPÚBLICA.
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 31725 del 16 de marzo de 2004)
 (Modificado por el artículo 2° del Decreto Ejecutivo N° 31725 del 16 de marzo de 2004)
 (Modificado por el artículo 1° del Decreto Ejecutivo N° 31814 del 10 de mayo de 2004)
+(Modificado por el artículo 1° del Decreto Ejecutivo N° 31854 del 2 de junio de 2004)
