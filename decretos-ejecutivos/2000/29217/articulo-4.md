@@ -1,0 +1,1 @@
+Artículo 4°-Los vehículos de uso técnico fitozoosanitario, podrán circular en horas y d¡as fuera de la jornada ordinaria, circulación autorizada única y exclusivamente para el desarrollo de funciones oficiales.

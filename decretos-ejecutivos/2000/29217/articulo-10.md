@@ -1,0 +1,1 @@
+Artículo 10.-Los Directores de las Dependencias indicadas, a través de las Unidades Administrativas Financieras, velarán porque los vehículos de uso técnico fitozoosanitario y administrativo, cumplan con las regulaciones aquí contempladas.

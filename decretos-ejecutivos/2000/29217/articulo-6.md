@@ -1,0 +1,1 @@
+Artículo 6°-Estos vehículos deberán utilizarse exclusivamente en asuntos oficiales y queda absolutamente prohibido su uso en asuntos particulares o distintos a los propios de la dependencia u oficina que los está utilizando.

@@ -1,0 +1,1 @@
+Artículo 14.-Finalizadas las labores los vehículos deberán ser guardados en lugares públicos o privados, los que deben reunir las condiciones de protección y seguridad requeridos, para evitar daños por vandalismo, robos u otros similares.

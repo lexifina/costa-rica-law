@@ -1,0 +1,1 @@
+Artículo 12.-Para efectos de regular el uso de estos vehículos, se deber contar con un sistema de control, en el cual se consigne la programación de giras y actividades técnicas, en donde el funcionario debe especificar: nombre del funcionario, lugar del recorrido, horario, justificación del uso.

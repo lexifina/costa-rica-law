@@ -1,0 +1,1 @@
+Artículo 5°-La autorización para que circulen los vehículos de uso técnico fitozoosanitario ser extendida, previa delegación del Ministro, por el Director o Superior Jer rquico de las dependencias indicadas, quien en la boleta de control de vehículos, indicar expresamente que el vehículo cumple funciones técnicas, indicando en la parte posterior la naturaleza de esas funciones.
