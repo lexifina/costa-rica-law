@@ -1,0 +1,1 @@
+Artículo 49.—Les honorarios por las escrituras de cancelación hipotecaria, novación de deudor e interrupción de la prescripción de créditos serán de un 50% de la tarifa fijada en el artículo anterior.

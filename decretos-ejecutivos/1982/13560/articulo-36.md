@@ -1,0 +1,1 @@
+Artículo 36.—Por la tramitación de asuntos judiciales o administrativos, no previstos expresamente en estas normas, el profesional podrá convenir sus honora con su cliente. A falta de convenio, el honorario mínimo, por asunto, será de ¢1.000,00.

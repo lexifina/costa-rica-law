@@ -1,0 +1,1 @@
+Artículo 52.—Cuando la e: entura contenga varias operaciones entre las mismas partes contratantes, se cobrarán los honorarios correspondientes a la operación de mayor valor y la mitad de los que correspondan a cada una de las otras, salvo que éstas tengan una tarifa especial, en cuyo caso se cobrarán los honorarios que correspondan, según esa tarifa.

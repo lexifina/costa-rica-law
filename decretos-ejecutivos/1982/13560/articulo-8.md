@@ -1,0 +1,1 @@
+Artículo 8°—Los honorarios fijados en el artículo anterior cubren la labor profesional hasta sentencia. El juez fijará, prudencialmente, los honorarios que correspondan por la ejecución de sentencia que, en ningún caso, podrán ser inferiores al 25% de los fijados en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 12.—En juicios sucesorios, los honorarios se cobrarán, también, conforme al artículo 10; sobre la totalidad del capital inventariado de la sucesión y de acuerdo con el avalúo definitivo de los bienes.

@@ -1,0 +1,1 @@
+Artículo 44.—Salvo convenio en contrario, los honorarios del notario los pagarán los contratantes por mitades, excepto en las constituciones y cancelaciones de hipotecas que correrán por cuenta del deudor.

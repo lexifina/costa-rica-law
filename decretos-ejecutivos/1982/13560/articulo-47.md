@@ -1,0 +1,1 @@
+Artículo 47.—Cuando las partes no cumplieren con los trámites que les corresponde, tales como pago de impuestos, confección de planos, obtención de visados o permisos y otros semejantes, el notario no tendrá responsabilidad alguna por el atraso que se presente en el trámite de los documentos.

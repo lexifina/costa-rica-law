@@ -1,0 +1,1 @@
+Artículo 13.—En los convenios preventivos, concursos y quiebras, los honorarios serán los que se fijan en el capítulo III del título VII del Código Civil y en el subcapítulo I, división lIa. del libro IV del Código de Comercio.

@@ -1,0 +1,1 @@
+Artículo 23.— Por confección de reglamentos interiores de trabajo, se fija una tarifa mínima de ¢10.000.00. A la hora de hacer el cobro, el profesional deberá tomar en cuenta el número de trabajadores de la empresa, la complejidad del reglamento y el tiempo empleado por él.

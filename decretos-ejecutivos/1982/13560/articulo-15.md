@@ -1,0 +1,1 @@
+Artículo 15.—En los actos prejudiciales, en los de jurisdicción voluntaria, localización de derechos indivisos, y en cualquier otro juicio, acto o diligencia no previsto en los artículos anteriores, regirá el convenio entre las partes, sin que los honorarios puedan ser inferiores a ¢1.00000.

@@ -1,0 +1,2 @@
+Artículo 60.—Cuando las oficinas administrativas, o los Tribunales de Justicia de cualquier instancia o grado, notaren que el timbre no ha sido agregado en todo o en parte, sin perjuicio de dar trámite a la gestión, o del curso dado a las anteriores, prevendrán el pago o reintegro correspondiente, dentro del plazo de diez días bajo el apercibimiento de no oír al omiso mientras no se cumpla lo ordenado, sin retroacción de términos.
+El Registro de Prendas no inscribirá el certificado hasta tanto no se agregue el timbre y tendrá el documento como defectuoso.

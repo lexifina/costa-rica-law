@@ -1,0 +1,1 @@
+Artículo 17.—Cuando el cliente perdiere tota1 mente el litigio u obtuviere resultados económicos inferiores al 50% o menos de sus pretensiones, los honorarios se reducirán proporcionalmente, por acuerdo de partes, pero en ningún caso serán inferiores a la tercera parte de lo que corresponda según la tarifa respectiva.

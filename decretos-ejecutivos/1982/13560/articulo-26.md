@@ -1,0 +1,1 @@
+Artículo 26.—En las causas que se tramiten por medio de instrucción formal, los honorarios por servicios profesionales no podrán ser inferiores a ¢6.000,00 si se llegare a debate, reduciéndose ese mínimo a la mitad, en los casos en que la causa se concluyere antes del debate.

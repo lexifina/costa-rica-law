@@ -1,0 +1,1 @@
+Artículo 50.—Por la constitución o transformación de sociedades y personas jurídicas de cualquier tipo, los honorarios se cobrarán sobre el capital conforme al artículo 48, pero no podrán ser inferiores a ¢ 3.000,00, salvo lo establecido en el artículo 32 anterior.

@@ -1,0 +1,1 @@
+Artículo 29.—En todos los casos el contrato debe ser firmado por el profesional y su cliente en el entendido de que, si no hubieren celebrado contrato por escrito no podrá cobrar suma superior a la mínima fijada.

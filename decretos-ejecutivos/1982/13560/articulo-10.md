@@ -1,0 +1,1 @@
+Artículo 10.—En los demás juicios contenciosos estimables y en las informaciones posesorias, los honorarios serán la mitad de los fijados en el artículo 7° con las excepciones que se establecen en los artículos siguientes.
