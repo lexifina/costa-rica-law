@@ -14,3 +14,4 @@ Reglamento de Junta Directiva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-12-13 | la propia norma |
+| 2 | 1990-03-06 | Reglamento 4042 (1990-03-06) |

@@ -1,1 +1,2 @@
-Artículo 35.—Los acuerdos tomados por la Junta quedarán firmes al aprobarse la respectiva, en la siguiente sesión ordinaria o al haberse declarado así por cinco votos, de conformidad con el requisito establecido al efecto.
+Artículo 35.—Los acuerdos tomados por la junta directiva quedarán firmes al aprobarse el acta respectiva, en la siguiente sesión ordinaria o haberse declarado así por cinco votos, de conformidad con el requisito establecido al efecto. Las actas oficiales deberán presentarse para su firma de parte de los Directores que de conformidad con este Reglamento deban hacerlos, en la siguiente sesión ordinaria a aquella en que quedó firme.
+(Así reformado por acuerdo tomado en sesión N° 4042 de 6 de marzo de 1990)
