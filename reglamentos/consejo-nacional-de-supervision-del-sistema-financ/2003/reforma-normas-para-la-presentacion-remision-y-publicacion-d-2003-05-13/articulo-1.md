@@ -1,0 +1,30 @@
+El Consejo Nacional de Supervisión del Sistema Financiero mediante artículo 7 del acta de la sesión 370-2003, celebrada el 13 de mayo del 2003,
+dispuso lo siguiente:
+I.- En lo tocante al Acuerdo 3-96 "Normas para la presentación, remisión y publicación de los estados financieros de las entidades fiscalizadas por la Superintendencia General de Entidades Financieras":
+Considerando:
+Que los modelos de estados financieros consolidados para remisión y publicación deben ajustarse de conformidad con las últimas modificaciones al Plan de Cuentas para Entidades Financieras, aprobadas por el CONASSIF mediante artículo 12, del acta de la sesión 342-2002, celebrada el 26 de noviembre del 2002.
+acordó:
+A. Ampliar hasta el 30 de mayo del 2003, y por esta única vez, el plazo para la remisión de la información financiera con fecha de corte al 31 de marzo del 2003, correspondiente al Capítulo II. del Acuerdo SUGEF 3-96.
+B. Modificar el Acuerdo SUGEF 3-96 "Normas para la presentación, remisión y publicación de los estados financieros consolidados e individuales de las entidades sujetas a la fiscalización de la Superintendencia General de Entidades Financieras", como sigue:
+1. Sustituir en todo el texto del Acuerdo SUGEF 3-96 y sus anexos el término "formato" por el de "modelo".
+2. Sustituir en todo el texto del Capítulo I. Estados Financieros Individuales, del Acuerdo SUGEF 3-96 y sus anexos el término "Balance de Situación" por el de "Balance General" y en el Capítulo II. Estados Financieros Consolidados y sus anexos el término "Balances de Situación Consolidados" por el de "Balance General Consolidado".
+3. Sustituir en todo el texto del Capítulo I. Estados Financieros Individuales del Acuerdo SUGEF 3-96 y sus anexos el término "Estado de Cambios en la posición financiera " o "Estado de Cambios en la situación financiera " por el de "Estado de Flujos de Efectivo" y en el Capítulo II. Estados Financieros Consolidados el término "Estados de Cambios en la posición financiera Consolidados" o "Estados de Cambios en la situación financiera Consolidados" por el de "Estado de Flujos de Efectivo Consolidado".
+4. Sustituir en todo el texto del Capítulo I. Estados Financieros Individuales del Acuerdo SUGEF 3-96 y sus anexos el término "Estado de Variaciones en el Patrimonio" o "Estado de Variaciones en el Capital" por el de "Estado de Cambios en el Patrimonio" y del Capítulo II. Estados Financieros Consolidados sustituir el término "Estados de Cambios en el Patrimonio Consolidado " por el de "Estado de Cambios en el Patrimonio Neto Consolidado ".
+5. Sustituir en todo el texto del Acuerdo SUGEF 3-96 y sus anexos el término "Resultado del Ejercicio" o "Utilidad o Pérdida del Periodo" por el de "Resultado del Periodo".
+6. Sustituir en todo el texto del Acuerdo SUGEF 3-96 y sus anexos el término "Resultados acumulados de ejercicios anteriores" por el de "Resultados Acumulados de periodos anteriores".
+7. Eliminar los anexos 14 Hoja de Consolidación, 15 Flujo de Efectivo Proyectado y 16 Calce de Plazos.
+8. Sustituir en todo el texto del Acuerdo SUGEF 3-96 y sus anexos la numeración de los Anexos 17, 18, 19 y 20 por la numeración de los Anexos 14, 15, 16 y 17, respectivamente.
+9. Modificar el literal C. del numeral 2. "Presentación" del Título II. "Normas de Carácter General" del Capítulo II. "Estados Financieros Consolidados ", de conformidad con el siguiente texto:
+"C. Estados financieros consolidados anuales auditados con sus notas, la hoja de trabajo de consolidación y los respectivos asientos de eliminación con su detalle, y el dictamen de los auditores externos.
+Los estados financieros consolidados anuales auditados deberán presentarse con base en los modelos contenidos en los siguientes anexos a este Acuerdo:
+Anexo 16 Dictamen de los auditores externos (para efectos de presentación)
+Anexo 10 Balance General Consolidado
+Anexo 11 Estado de Resultados Consolidado
+Anexo 12 Estado de Flujo de Efectivo Consolidado
+Anexo 13 Estado de Cambios en el Patrimonio Consolidado
+Los estados financieros u otra información que se envíe a la SUGEF deberán corresponder a documentos originales, confeccionados utilizando un tamaño de letra número 12 o mayor, tipo Times New Roman.
+Los estados financieros anuales dictaminados y los trimestrales de las empresas extranjeras sujetas a la supervisión individualizada de los órganos supervisores de la respectiva plaza, podrán prepararse y remitirse en inglés, en la moneda oficial y bajo los formatos y prácticas contables de aplicación en la plaza extranjera. La entidad fiscalizada deberá remitir dentro de los mismos plazos establecidos en este Acuerdo, esos estados financieros traducidos al idioma español y convertidos a colones. Además, deberá incluirse una nota a los estados financieros consolidados donde se indiquen las divergencias existentes entre las prácticas contables aplicables en la respectiva plaza extranjera y las aplicables para la entidad fiscalizada en la preparación de los estados financieros consolidados. Los modelos incluidos en los anexos de este Acuerdo muestran la revelación mínima que deberá efectuarse en el cuerpo de los estados financieros individuales y consolidados, tanto para efectos de remisión como de publicación. Las entidades fiscalizadas podrán presentar una mayor apertura de cuentas respecto a la indicada en el modelo, siempre que se mantenga el saldo total de la cuenta cuyo contenido desea revelarse con la mayor apertura.
+Las cuentas con saldos cero podrán omitirse. En el caso de los estados financieros comparativos, la omisión podrá efectuarse cuando el saldo cero se presente en la misma cuenta para ambos periodos.
+La hoja de trabajo de consolidación con sus correspondientes asientos de eliminación deberá prepararse y remitirse de conformidad con los contenidos y medios que defina el órgano supervisor.".
+10. Modificar los Anexos 10, 11, 12 y 13 de conformidad con los siguientes modelos:
+Ver Anexo 10, 11, 12 y 13 en La Gaceta 143de 28 de julio de 2003, páginas 25 y 26.
