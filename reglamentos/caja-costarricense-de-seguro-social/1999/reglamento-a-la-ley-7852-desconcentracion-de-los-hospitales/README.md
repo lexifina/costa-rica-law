@@ -14,3 +14,4 @@ Reglamento a la Ley 7852 Desconcentración de los Hospitales y Clínicas de la C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-05 | la propia norma |
+| 2 | 2000-01-05 | Reglamento 7399 (1999-12-16) |
