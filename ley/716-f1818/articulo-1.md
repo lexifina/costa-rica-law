@@ -1,3 +1,5 @@
+(Derogado)
+(Esta norma fue derogada por el artículo 9° de la ley N° 6396 del 26 de setiembre de 1979, al cumplirse las condiciones señaladas en el numeral 2° de aquélla, referente al traspaso de instalaciones eléctricas, generación, transmisión, distribución y alumbrado público que ejecutaba la Junta Administrativa de Servicios Eléctricos Municipales de Alajuela)
 ARTICULO 1º.- Créase un organismo de carácter semiautónomo con
 personería jurídica propia que, con el nombre de Junta Administrativa de
 Servicios Eléctricos de Alajuela (JASEMA), y con domicilio en la ciudad de
