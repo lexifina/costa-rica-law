@@ -1,0 +1,1 @@
+Articulo 8°—Tesorería es la unidad encargada de generar el reporte mensual acerca del estado de las inversiones financieras, enviando este informe a las Gerencias y Presidencia Ejecutiva así como a la Autoridad Presupuestaria y Contraloria General de la República. Dicho informe deberá contener a lo menos, lo indicado en los artículos 6° y 7° de este Reglamento.

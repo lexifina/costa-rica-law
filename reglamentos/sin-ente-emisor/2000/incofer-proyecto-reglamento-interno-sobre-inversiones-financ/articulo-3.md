@@ -1,0 +1,1 @@
+Artículo 3°—En las notas a los estados financieros debe revelarse la política sobre registro y valuación de las inversiones. Debe revelarse la existencia de inversiones en moneda extranjera indicando su monto, clase de moneda y el tipo de cambio utilizado para su conversión.

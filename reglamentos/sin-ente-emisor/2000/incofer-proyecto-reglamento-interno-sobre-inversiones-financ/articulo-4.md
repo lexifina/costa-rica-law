@@ -1,0 +1,1 @@
+Articulo 4°—Tesorería y Contabilidad deben mensualmente conciliar sus registros, ajustando sus diferencias e informando de ellas a la Gerencia Administrativa y a [a Auditoria. Dicho informe debe estar firmado por los funcionarios que participaron realizando la conciliación.

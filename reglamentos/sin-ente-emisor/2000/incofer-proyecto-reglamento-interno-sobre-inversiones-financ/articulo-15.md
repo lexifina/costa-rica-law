@@ -1,0 +1,1 @@
+Articulo 15.— La Gerencia Administrativa o en quien ella delegue, deberá realizar arqueos e inventarios periódicos de todos los títulos resguardados en la caja de seguridad dando fe de los mismos con un informe de estos firmado por los participantes. Dichos informes deberán entregarse a la Gerencia Administrativa con copia a la Presidencia Ejecutiva y a la Auditoria

@@ -1,0 +1,1 @@
+Articulo 5°—Tesorería y Contabilidad utilizarán para el registro y control de las inversiones, las notas de débito y crédito emitidas por el Banco Estatal custodio de los títulos así como fotocopia de estos últimos.

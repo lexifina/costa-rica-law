@@ -1,0 +1,1 @@
+Articulo 11.—En caso de que no se definan directrices por el Gobierno Central, será la Junta Directiva de la Institución la que defina las mismas, previa recomendación de las distintas opciones existentes en el mercado bursátil de títulos emitidos únicamente por el Gobierno o las Instituciones Autónomas.
