@@ -1,0 +1,1 @@
+Artículo 37.—El presente Reglamento no será aplicable a los funcionarios que antes de su publicación se encontraren disfrutando de licencias, becas o facilidades para realizar estudios. En todo caso, los becados actuales conservarán sus derechos.

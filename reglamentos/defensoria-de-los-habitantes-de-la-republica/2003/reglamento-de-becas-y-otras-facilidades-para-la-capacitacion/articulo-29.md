@@ -1,0 +1,1 @@
+Artículo 29.—Si el funcionario designado no puede disfrutar de la beca o facilidad, sea por caso fortuito o fuerza mayor, deberá comunicarlo al jerarca con la mayor brevedad posible, a fin de determinar la oportunidad de participación de otro candidato en igualdad de condición, en cuyo caso tendrán prioridad los elegibles.

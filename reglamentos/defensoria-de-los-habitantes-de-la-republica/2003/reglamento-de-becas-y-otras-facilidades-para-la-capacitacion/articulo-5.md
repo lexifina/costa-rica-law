@@ -1,0 +1,1 @@
+Artículo 5º—Las becas u otras facilidades de capacitación que de conformidad con el artículo primero de este Reglamento sean ofrecidas, deberán enviarse al Departamento de Recursos Humanos para que éste, previo estudio, las remita a la Comisión de Becas cuando proceda.

@@ -1,0 +1,1 @@
+Artículo 9º—La institución le garantiza al beneficiario la continuidad de su contrato de trabajo y eventualmente le concederá licencia cuando corresponda, por el tiempo que dure la beca o facilidad, con goce de sueldo total o parcial o sin goce de sueldo, a juicio del jerarca.

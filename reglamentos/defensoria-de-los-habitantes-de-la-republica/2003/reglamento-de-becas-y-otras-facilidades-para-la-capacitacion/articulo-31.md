@@ -1,0 +1,1 @@
+Artículo 31.—El financiamiento total o parcial de actividades de capacitación y la concesión de otras facilidades por parte de la Defensoría de los Habitantes, quedará sujeta a la existencia y disponibilidad de recursos presupuestarios.

@@ -1,0 +1,1 @@
+Artículo 36.—Los casos no contemplados en el presente Reglamento serán resueltos conforme a la Ley de Licencias para Adiestramiento de Servidores Públicos y su Reglamento, así como en las leyes y reglamentos conexos.

@@ -1,0 +1,1 @@
+Artículo 28.—La Comisión de Becas podrá prorrogar el plazo de recepción de solicitudes cuando lo estime conveniente y esté dentro de sus posibilidades, a fin de procurar una adecuada participación de candidaturas.

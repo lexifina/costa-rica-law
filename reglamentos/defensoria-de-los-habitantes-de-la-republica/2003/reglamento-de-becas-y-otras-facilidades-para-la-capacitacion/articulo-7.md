@@ -1,0 +1,1 @@
+Artículo 7º—La adjudicación de cada beca o facilidad de capacitación se hará mediante contrato que suscribirán el jerarca de la institución y el beneficiario; para lo cual, el Departamento de Recursos Humanos llevará un registro de los contratos y súper vigilará el fiel cumplimiento de los mismos.

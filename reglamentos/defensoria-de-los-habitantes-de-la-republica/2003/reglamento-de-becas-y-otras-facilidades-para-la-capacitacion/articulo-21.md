@@ -1,0 +1,1 @@
+Artículo 21.—Las sesiones serán privadas, no obstante la Comisión de Becas podrá solicitar la comparecencia de algún funcionario cuando lo estime conveniente. Igualmente, podrá conceder audiencia al funcionario que así lo solicite.

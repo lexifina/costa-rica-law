@@ -1,0 +1,1 @@
+Artículo 12.—El funcionario beneficiado con una beca o facilidad de capacitación, será incorporado por el Departamento de Recursos Humanos en un registro de instructores y estará obligado a impartir los conocimientos por él adquiridos, mediante el trabajo práctico y la enseñanza teórica a otros funcionarios públicos, según lo requiera la Defensoría de los Habitantes.

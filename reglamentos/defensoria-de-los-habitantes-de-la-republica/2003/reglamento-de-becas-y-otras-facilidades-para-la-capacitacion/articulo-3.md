@@ -1,0 +1,5 @@
+Artículo 3º—De los objetivos. Mediante la aplicación del presente Reglamento se pretende alcanzar los siguientes objetivos:
+a. Aprovechar las becas u otras facilidades de capacitación que otorguen gobiernos, instituciones u organismos nacionales e internacionales de reconocida solvencia moral y económica para la capacitación y desarrollo de los servidores de la Defensoría de los Habitantes.
+b. Garantizar la objetividad y transparencia en la selección y designación de los beneficiarios que eventualmente disfruten de las distintas becas o facilidades de capacitación a que tenga acceso la institución.
+c. Incentivar el mejoramiento de las condiciones laborales del personal y su identificación con los objetivos de la Defensoría de los Habitantes de la República.
+d. Ofrecer a los servidores oportunidades de capacitación con el fin de que la Defensoría de los Habitantes cuente con personal altamente calificado de forma tal que repercuta positivamente en las actividades encomendadas a la institución.

@@ -1,0 +1,1 @@
+Artículo 6º—Corresponderá al Departamento de Recursos Humanos, mediante estudio técnico, determinar si una ayuda reúne las características necesarias para que se le considere una beca o facilidad de capacitación.

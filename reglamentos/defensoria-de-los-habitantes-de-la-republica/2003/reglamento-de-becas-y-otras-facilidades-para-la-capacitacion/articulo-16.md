@@ -1,0 +1,1 @@
+Articulo 16.—La Comisión de Becas deberá de actuar con base en las disposiciones que se dictan en el presente Reglamento y de conformidad con los procedimientos que para ese efecto se establezcan. Además, velará por la correcta aplicación de las disposiciones técnicas y jurídicas contenidas en el presente cuerpo de normas.

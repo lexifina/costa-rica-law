@@ -1,0 +1,1 @@
+Artículo 19.—El representante de los funcionarios ejercerá su cargo por un período de un año con posibilidad de reelección, elegibles durante la primera sesión de enero del año correspondiente a la elección.

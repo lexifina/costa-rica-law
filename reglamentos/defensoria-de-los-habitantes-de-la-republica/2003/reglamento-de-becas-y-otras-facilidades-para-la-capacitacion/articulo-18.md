@@ -1,0 +1,1 @@
+Artículo 18.—Para garantizar el quórum, cada miembro de la Comisión de Becas tendrá un suplente quien le reemplazará en sus ausencias. El quórum para que pueda sesionar válidamente será el de la totalidad de sus miembros.
