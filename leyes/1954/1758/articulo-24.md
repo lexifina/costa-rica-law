@@ -1,0 +1,1 @@
+Artículo 24.- Serán competentes los Alcaldes de lo Penal para conocer y juzgar la violación de las prohibiciones contenidas en el artículo 17, y de sus sentencias conocerá en apelación el Juez Penal respectivo, todo conforme al Código de Procedimientos Penales.
