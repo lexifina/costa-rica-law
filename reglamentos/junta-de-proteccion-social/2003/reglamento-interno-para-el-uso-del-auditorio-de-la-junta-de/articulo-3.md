@@ -1,1 +1,2 @@
-Artículo 3º—Fuera de las actividades indicadas, se autorizará por parte de la Gerencia General el uso del auditorio solo para actividades con propósitos bien definidos sin fines de lucro, únicamente a solicitud de los máximos jerarcas de las organizaciones interesadas en su utilización.
+Artículo 3º—Fuera de las actividades indicadas, se autorizará por parte de la Gerencia General el uso del auditorio solo para actividades con propósitos bien definidos sin fines de lucro, únicamente a solicitud de los jerarcas de las organizaciones interesadas en su utilización.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 33-2003, celebrada el 09 de setiembre de 2003, publicada en La Gaceta N° 208 de 29 de octubre de 2003.)

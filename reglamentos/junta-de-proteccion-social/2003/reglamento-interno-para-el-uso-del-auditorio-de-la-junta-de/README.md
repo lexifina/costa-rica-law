@@ -14,3 +14,4 @@ Reglamento Interno para el Uso del Auditorio de la Junta de Protección Social d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-26 | la propia norma |
+| 2 | 2003-09-09 | Reglamento 33 (2003-09-09) |
