@@ -1,0 +1,1 @@
+Artículos 9°-La escogencia de los miembros de los Concejos de Distrito, la hará el Concejo Municipal de entre un listado de no menos de seis candidatos escogidos por los vecinos del respectivo distrito en asamblea, ésta será convocada por el Ejecutivo Municipal, por acuerdo del Concejo Municipal, dicha asamblea la presidirá el Ejecutivo Municipal.

@@ -1,0 +1,1 @@
+Artículo 6°-La Comisión de los Concejos de Distrito funcionará como órgano de coordinación entre los Concejos Municipales y los Concejos de Distrito, con el fin de brindarles a estos últimos la asistencia que proceda en los proyectos de interés para un distrito o grupo de ellos.

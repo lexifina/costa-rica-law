@@ -1,0 +1,2 @@
+Organización
+Artículo 13.-Los Concejos de Distrito están integrados por cinco miembros vecinos del distrito, a quienes se denominará concejales, de los cuales uno será necesariamente el síndico de la circunscripción de que se trate y el otro su suplente; el primero ejercerá la Presidencia del Concejo de Distrito y el segundo la Vicepresidencia. En caso de contravenir en el artículo 29, el Vicepresidente podrá ser electo por el Concejo-Municipal de entre cualquiera de los miembros restantes.
