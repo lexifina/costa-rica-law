@@ -1,0 +1,1 @@
+Articulo 13° Ningún Delegado puede dirigirse al Congreso sin haber obtenido previamente el permiso del presidente. El Presidente puede llamar la atención a un orador si sus observaciones no son pertinentes al asunto objeto del debate.

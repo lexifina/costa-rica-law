@@ -1,0 +1,1 @@
+Artículo 5° La Junta Directiva contará con un plazo máximo de 15 días naturales para hacer la convocatoria y esta deberá hacerse mediante uno de los diarios de mayor circulación nacional y mediante fax. La convocatoria para la celebración del Congreso se hará con un plazo máximo de treinta días naturales.

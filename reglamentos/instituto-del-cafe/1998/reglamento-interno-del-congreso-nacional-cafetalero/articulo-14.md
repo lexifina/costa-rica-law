@@ -1,0 +1,2 @@
+Artículo 14° Las mociones de cierre del debate y las mociones de procedimiento gozarán de prioridad sobre cualquier otra moción propuesta.
+Cualquier delegado podrá proponer una moción de clausura del debate que esté produciendo sin tener en cuenta el hecho de que otro delegado haya mostrado su intención de hacer uso de la palabra. El permiso para intervenir acerca de la clausura del debate será concedido únicamente al proponente de la clausura e inmediatamente después de la moción se someterá a votación requiriéndose para su aprobación un mínimo de las tres cuartas partes.

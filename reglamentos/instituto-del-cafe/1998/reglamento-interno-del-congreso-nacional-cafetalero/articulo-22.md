@@ -1,0 +1,2 @@
+Artículo 22° Dentro de los treinta días naturales siguientes a la realización de una sesión del Congreso, se enviará a todos los delegados una copia del acta respectiva la cual tendrá carácter provisional.
+Toda propuesta de enmienda al acta del Congreso deberá ser comunicada al presidente de la Junta Directiva del Instituto del Café de Costa Rica dentro de los treinta días naturales siguientes a la fecha de recibo del acta. La aprobación del acta se hará en la sesión inmediata siguiente sesión en que se apruebe el acta.
