@@ -14,3 +14,4 @@ Reglamento de promotores de ventas del CONASSIF
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-28 | la propia norma |
+| 2 | 2000-11-06 | Reglamento 187 (2000-11-06) |
