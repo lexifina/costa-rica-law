@@ -1,0 +1,1 @@
+Artículo 13.—El Ministerio de Instrucción Pública, por medio del Consejo Superior ejercerá la alta vigilancia de la enseñanza, pudiendo el Ministerio, cuando lo creyere conveniente, confiar funciones de inspección a los consejeros en particular.
