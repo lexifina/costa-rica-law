@@ -1,0 +1,1 @@
+Artículo 22.—Depósito de multas. Las multas que se impongan en virtud de lo dispuesto en el artículo 4º, inciso b), 40 y 69 de la Ley, se depositarán a favor de la Tesorería Nacional y su monto en ningún caso se podrá considerar como costo de operación.

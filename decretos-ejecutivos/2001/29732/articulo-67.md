@@ -1,0 +1,1 @@
+Artículo 67.—Multa. La ARESEP sancionará con multa de cinco a diez veces el valor del daño causado, conforme determinación que deberá efectuar la misma ARESEP con fundamento en criterios técnicos y la objetiva apreciación de la magnitud y trascendencia del daño, a quien incurriere en las causales señaladas en el artículo 38 de la ley.

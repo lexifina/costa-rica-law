@@ -1,0 +1,1 @@
+Artículo 6º—Obligaciones del prestador. El prestador brindará el servicio conforme a los principios de eficiencia, continuidad e igualdad, establecidos en la Ley, la Ley General de la Administración Pública, los reglamentos correspondientes y la concesión.

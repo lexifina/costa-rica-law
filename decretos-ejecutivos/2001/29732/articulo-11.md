@@ -1,0 +1,2 @@
+Artículo 11.—Evaluación de la prestación de los servicios. La ARESEP, cuando lo considere necesario, realizará o contratará evaluaciones de los servicios, para verificar que se presten de manera eficaz y eficiente, y conforme a las normas de calidad, las técnicas y las jurídicas aplicables.
+Además, la evaluación contemplará el uso que se haga de los recursos naturales, las mejoras y deficiencias en la prestación de los servicios. La ARESEP pondrá los resultados de dichas evaluaciones a disposición de quien los solicite.

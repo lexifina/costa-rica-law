@@ -1,0 +1,1 @@
+Artículo 14.—Incorporación de elementos técnicos y económicos a precios, tarifas y tasas. Las tarifas, precios y tasas de los servicios públicos regulados en la Ley, se fijarán de manera que se incorporen elementos de carácter técnico y económico, que propicien la inversión, permitan la continuidad, la estabilidad y el desarrollo de esos servicios.

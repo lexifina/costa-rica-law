@@ -1,0 +1,1 @@
+Artículo 15.—Uso de modelos para fijar precios, tarifas y tasas. Para fijar los precios, tarifas y tasas, la ARESEP utilizará modelos que consideren, como un todo, a la industria de que se trate. Esos modelos serán aprobados por la ARESEP de acuerdo con la ley.

@@ -1,0 +1,4 @@
+Artículo 32.—Suspensión del trámite de la concesión o el permiso. Independientemente de los plazos previstos en la normativa especial que regula el otorgamiento de las concesiones o permisos de que se trate, cuando surjan fundadas razones para pensar que se puede causar un perjuicio grave a los recursos naturales, podrá suspenderse la tramitación hasta por tres meses, previo criterio por escrito del Ministerio del Ambiente y Energía, con el propósito de que el solicitante de la concesión o el permiso, presente una propuesta alternativa, que sea compatible con las regulaciones de protección del medio ambiente vigentes.
+En caso que el solicitante no cumpla con la prevención dentro del plazo indicado, se tendrá por denegada su solicitud y se archivará el expediente.
+SECCIÓN TERCERA
+Atención al usuario, registro y trámite de controversias y quejas

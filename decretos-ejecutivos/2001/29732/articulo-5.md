@@ -1,0 +1,1 @@
+Artículo 5º—Cobro por prestación de servicios. La ARESEP, por la prestación de servicios tales como, asesorías, consultorías, capacitación y otros afines a sus funciones, cobrará un precio que le permita recuperar los costos incurridos.

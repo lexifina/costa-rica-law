@@ -1,0 +1,2 @@
+Artículo 34.—Registros y controles de trámites. La ARESEP llevará los registros y controles necesarios para una eficiente y eficaz tramitación de los asuntos que deba resolver.
+La información sobre consultas, controversias y quejas estará a disposición de cualquier interesado, sin importar el estado en que se encuentre el trámite de la controversia o la queja. Queda a salvo lo dispuesto en la Ley General, sobre el acceso a los expedientes.

@@ -1,0 +1,1 @@
+Artículo 49.—Lugar de la audiencia pública. El Regulador General decidirá la realización de las audiencias, o alguna de sus etapas, en el lugar o los lugares que indiquen la conveniencia y necesidad de los intereses públicos que se van a tratar.

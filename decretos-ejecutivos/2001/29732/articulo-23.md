@@ -1,0 +1,1 @@
+Artículo 23.—Autorización para levantar equipos e instalaciones. La autorización a que se refiere el artículo 18 de la Ley, se producirá en un plazo máximo de seis meses, contados a partir del momento en que el prestador comunique por escrito que renuncia a la concesión.

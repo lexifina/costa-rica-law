@@ -1,0 +1,1 @@
+Artículo 9º—Denuncias por discriminación. Los clientes, abonados y usuarios, actuales y potenciales, de los prestadores de los servicios públicos regulados por la Ley, podrán presentar denuncia fundada ante la ARESEP cuando hayan sido objeto de discriminación, en los términos establecidos en la Ley.

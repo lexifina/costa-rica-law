@@ -1,0 +1,1 @@
+Artículo 28.—Estudio de impacto ambiental. Antes de otorgar la concesión o el permiso, el concedente debe solicitar el estudio de impacto ambiental de conformidad con lo dispuesto en el artículo 16 de la Ley.

@@ -1,0 +1,2 @@
+Artículo 8º—Peritaje. El prestador podrá solicitar dictamen pericial, en lo que se refiere al artículo 26 de la Ley, cuando para prestar el servicio, deba construir nuevas obras de infraestructura, ampliar las existentes o prestar el servicio en una modalidad o bajo circunstancias que se salen de la prestación regular y normal en que lo presta y en que fue aprobada.
+Los peritos serán acreditados conforme al reglamento que al efecto dicte la Junta Directiva.

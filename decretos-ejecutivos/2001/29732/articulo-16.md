@@ -1,0 +1,2 @@
+Artículo 16.—Costos incurridos para prestar el servicio. Para la fijación de precios, tarifas y tasas, sólo se tomarán en cuenta ingresos y costos necesarios para prestar el servicio, de conformidad con lo dispuesto en los artículos 20, 31, 32 y 71 de la Ley, los reglamentos aplicables y las normas técnicas establecidas por la ARESEP.
+Los prestadores llevarán contabilidad separada para la actividad de explotación del servicio público que prestan.

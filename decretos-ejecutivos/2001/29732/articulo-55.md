@@ -1,0 +1,1 @@
+Artículo 55.—Adecuación de los medios de prueba. El Instructor adecuará los medios probatorios admitidos, a la importancia, generalidad, magnitud y complejidad del tema objeto de la misma, fijará la oportunidad para la producción de cada prueba en particular, decidirá prudencialmente el número de testigos en cada caso.

@@ -1,0 +1,2 @@
+Artículo 2º—Naturaleza jurídica de la Autoridad Reguladora. La ARESEP es una institución autónoma con personalidad Jurídica, patrimonio propio y presupuesto independiente, que goza de autonomía técnica y administrativa y se rige por su Ley constitutiva, sus reglamentos, así como por las demás normas jurídicas complementarias.
+En materia de fiscalización presupuestaria, la ARESEP estará sometida únicamente a las disposiciones de la Contraloría General de la República, con exclusión de todo otro órgano del Gobierno Central.

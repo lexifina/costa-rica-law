@@ -1,0 +1,3 @@
+Artículo 42.—Admisibilidad de solicitudes de carácter tarifario. La ARESEP dispondrá de cinco días hábiles para admitir o rechazar las gestiones que se le presenten. En el caso de que se prevenga al gestionante que cumpla algún requisito, se aplicará lo dispuesto en el artículo 264 de la Ley General. Si la prevención es para que subsane algún defecto, se aplicará lo dispuesto en el artículo 287.1 de dicha Ley.
+Cumplidos los requisitos y subsanados los defectos, se iniciará el cómputo del plazo en que deba resolverse el asunto, conforme a la ley.
+La tramitación de las solicitudes de fijaciones ordinarias de precios, tarifas y tasas no será impedimento para la fijación extraordinaria de aquéllas.

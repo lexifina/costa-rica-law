@@ -1,0 +1,1 @@
+Artículo 17.—Períodos de vigencia de los precios, tarifas y tasas. La ARESEP podrá fijar precios, tarifas y tasas para los períodos que considere necesarios, según la industria o el servicio de que se trate. El precio, la tarifa o la tasa serán revisados de conformidad con lo que establezcan los reglamentos, el contrato de concesión o el permiso.

@@ -1,0 +1,1 @@
+Artículo 71.—Derogatoria de reglamentos. Derógase el Decreto Ejecutivo 25903-MINAE-MOPT de 17 de febrero 1997, Reglamento a la Ley de la Autoridad Reguladora de los Servicios Públicos; y todos los demás reglamentos de igual o inferior rango, que se opongan a éste.
