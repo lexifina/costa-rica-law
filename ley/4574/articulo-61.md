@@ -1,1 +1,0 @@
-Artículo 61.- El Auditor o el Contador, cuando no hubiere Auditor, será nombrado por el Concejo y sólo podrá ser suspendido o removido con justa causa, por la mayoría de las dos terceras partes de los regidores.

@@ -1,8 +1,0 @@
-TÍTULO VIII
-Los Concejos Municipales de Distrito
-(Así adicionado este Título por el artículo 1º de la ley No.7564 del 11 de diciembre de 1995. El antiguo Título VIII pasó a ser el IX)
-Artículo 185.- Las municipalidades podrán constituir concejos municipales de distrito en los distritos de su cantón, como entes auxiliares de derecho público, con capacidad jurídica plena para realizar actos y contratos de toda clase que les permitan cumplir con sus objetivos, según las atribuciones y obligaciones expuestas en este título y en el respectivo acuerdo municipal de creación.
-El acuerdo de creación de un concejo municipal de distrito deberá ser aprobado por, al menos, las dos terceras partes de la integración total del concejo municipal del cantón.
-(Así reformado por el artículo 1º de la ley No.7620 de 3 de septiembre de 1996)
-NOTA: El presente artículo fue insertado por el numeral 1º de la ley No.7564 de 11 de diciembre de 1995, que ordenó correr la numeración subsiguiente. Por ello, el antiguo artículo 185 pasó a ser el 193)
-NOTA: En los distritos donde, de conformidad con la resolución de la Sala Constitucional de la Corte Suprema de Justicia, de las catorce horas del 20 de diciembre de 1994, funcionen Concejos municipales de distrito hasta el 15 de diciembre de 1995, el Concejo municipal del cantón respectivo podrá crear Concejos municipales de distrito manteniéndoles las mismas competencias y el mismo patrimonio de esos concejos; su integración se conservará hasta la nueva elección según, lo previsto en esta ley. Los servidores que a la vigencia de esta ley laboren para estos Concejos, se integrarán a los nuevos Concejos y conservarán los mismos derechos laborales.)

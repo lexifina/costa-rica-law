@@ -1,4 +1,0 @@
-CAPÍTULO II
-Regidores
-Artículo 22.- El número de regidores en cada municipalidad será de cinco propietarios y cinco suplentes en los cantones de veinticinco mil o menos habitantes; de siete propietarios y siete suplentes en los cantones que tengan más de veinticinco mil habitantes y no excedan de cincuenta mil; de nueve propietarios y nueve suplentes en los cantones que tengan más de cincuenta mil habitantes y no excedan de cien mil; de once propietarios y once suplentes en los cantones que tengan más de cien mil habitantes y no excedan de doscientos mil; y de trece propietarios y trece suplentes en los cantones que excedan de doscientos mil habitantes. No obstante lo dispuesto en el párrafo anterior, ninguna municipalidad del cantón central de provincia podrá tener menos de nueve regidores propietarios y nueve suplentes, aunque no llene el número de habitantes requerido para ello.
-(Así reformado por el artículo 1º de la ley Nº 5253 de 26 de julio de 1973).

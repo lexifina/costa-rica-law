@@ -1,1 +1,0 @@
-Artículo 78.- Las municipalidades podrán realizar toda clase de contrataciones con entidades reconocidas como ajenas al espíritu de lucro o cuyo único afán en el caso concreto sea ayudar a la municipalidad, previa anuencia de la Contraloría General de la República.

@@ -1,1 +1,0 @@
-Artículo 173.- La apelación de los actos que acuerden carteles o adjudicaciones de licitaciones públicas, serán de conocimiento de la Contraloría General de la República, conforme al ordenamiento vigente. Contra estos acuerdos no cabrá recurso de revocatoria.
