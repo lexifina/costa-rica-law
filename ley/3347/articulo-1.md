@@ -1,0 +1,1 @@
+Artículo 1º.- Exonérase en forma permanente del pago de derechos de aduana, la importación que hace el Instituto Nacional de Seguros de equipos para combatir el fuego, tales como bombas, tubos con válvula para aspiración e impulso piezas de recambio, materiales, etcétera, destinados al Cuerpo de Bomberos de Costa Rica.
