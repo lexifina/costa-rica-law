@@ -13,3 +13,4 @@ Reglamento de Aguardientes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1835-09-05 | la propia norma |
+| 2 | 1836-03-23 | Ordenanza 13 (1836-03-23) |
