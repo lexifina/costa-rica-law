@@ -14,3 +14,4 @@ Reforma al Reglamento Orgánico del Centro de Formación de Formadores y del Per
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-07-11 | la propia norma |
+| 2 | 2003-03-13 | Decreto Ejecutivo 31596 (2003-03-13) |

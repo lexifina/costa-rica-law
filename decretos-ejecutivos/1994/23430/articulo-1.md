@@ -1,3 +1,6 @@
+(Derogado)
+La presente norma ha sido DEROGADA EN SU TOTALIDAD por el artículo 18 del decreto ejecutivo N° 31596 de 13 de marzo de 2003,
+Reglamento Orgánico del Centro de Formación de Formadores y de Personal Técnico para el Desarrollo Industrial de Centro América.
 No 23430-MICIT-MEP
 EL PRESIDENTE DE LA REPÚBLICA Y LOS MINISTROS DE CIENCIA
 Y TECNOLOGÍA Y DE EDUCACIÓN PÚBLICA,
