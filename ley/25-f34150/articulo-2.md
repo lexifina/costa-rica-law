@@ -1,0 +1,1 @@
+Artículo 2° La obligación que impone el artículo anterior a los señores Magistrados, no comprende a los Conjueces que integren una Sala para un asunto determinado o por un término que no exceda de quince días.
