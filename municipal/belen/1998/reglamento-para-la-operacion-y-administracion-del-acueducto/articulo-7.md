@@ -1,6 +1,7 @@
 Artículo 7°—De los requisitos. Se establecen los siguientes requisitos para el otorgamiento del servicio de agua potable, por primera vez:
 a) Documento de solicitud del servicio de agua potable, debidamente lleno por el propietario del inmueble o persona autorizada por ésta, que comprobará mediante documento idóneo. En el cual deberá indicarse el destino que va a dar al servicio, para su respectiva calificación.
-b) Documento idóneo que demuestre ser propietario del inmueble en el cual ha de darse el servicio.
+b) Documento idóneo que demuestre ser propietario del inmueble en el cual ha de darse el servicio. En el caso de sociedades mercantiles documento idóneo que demuestre ser el representante legal de dicha sociedad.
+(Así reformado por acuerdo municipal de sesión N° 65 de 17 de setiembre del 2002)
 c) Certificación municipal que demuestre estar al día en el pago de tasas y tributos municipales.
 d) Que la finca cuente con las vías públicas de acceso directo o por servidumbre y en las cuales exista o pueda instalarse si fuere de caso la tubería de distribución.
 e) Deberá estar aprobado el permiso de construcción de una casa de habitación o un edificio. Deberá presentar copia del permiso de construcción y del recibo de pago cancelado.

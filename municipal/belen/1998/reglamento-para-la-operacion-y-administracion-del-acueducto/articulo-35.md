@@ -1,13 +1,4 @@
 CAPITULO QUINTO
 Del arreglo de pago
-Artículo 35.—Del arreglo de pago y de la constancia en el pago de tasas municipales. Se autoriza al Departamento de Facturación y Cobro en asocio con el Encargado de la Oficina de Servicio al Cliente a realizar arreglos de pago de acuerdo a la siguiente clasificación:
-Porcentaje a cancelar en el momento del arreglo
-Rango
-0-5000
-5001-15000
-15001 -en adelante
-Plazo para cubrir el saldo
-30%
-50%
-65%
-En el caso de que el abonado requiera una certificación del pago de servicios municipales, se emitirá la misma indicándose los montos adeudados, períodos y otros datos como multas e intereses.
+Artículo 35.—Del arreglo de pago. Para todo arreglo de pago se aplicará en lo que corresponde el Reglamento para el Procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de Belén.
+(Así reformado por acuerdo municipal tomado en sesión N° 65 de 17 de setiembre del 2002)
