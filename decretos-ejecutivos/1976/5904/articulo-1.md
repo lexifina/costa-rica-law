@@ -673,7 +673,9 @@ De allí una recta a la naciente del río Cavei, y sigue el río Cavei hasta enc
 (Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 13572 del 30 de abril de 1982, se acordó dividir la Reserva Indígena de Talamanca, decretada y delimitada por el decreto N° 6036-G, "La Gaceta" N° 114, de 15 de junio de 1976, en dos reservas distintas, con los nombres oficiales de:
 1. Reserva Indígena Cabécar de Talamanca (Talamanca Oeste).
 2. Reserva Indígena Bribrí de Talamanca (Talamanca Este).")
-(Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 13572 del 30 de abril de 1982, se indicó que la Reserva Indígena Cabécar de Talamanca incluye los caseríos y poblados de: San José Cabécar, Coén, Xcuy, Mojoncito, Cabey, Jamey, Gavilán, Canta y Sibuju y la Reserva Indígena Bribrí de Talamanca incluye los caseríos y poblados de Alto Urén, Alto Lari, Coroma, Sepecue, Amubri, Katsi, Boca Urén, Sheuab-Yorkin, Shiroles, Suretka, Bambú-Bratsi, Chase, Watsi y Cocles.)
+(Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 13572 del 30 de abril de 1982, se indicó que la Reserva Indígena Cabécar de Talamanca incluye los caseríos y poblados de: San José Cabécar, Coén, Xcuy, Mojoncito, Cabey, Jamey, Gavilán, Canta y Sibuju y la Reserva Indígena Bribrí de Talamanca incluye los caseríos y poblados de Alto Urén, Alto Lari, Coroma, Sepecue, Amubri, Katsi, Boca Urén, Sheuab-Yorkin, Shiroles, Suretka, Bratsi(*), Chase, Watsi y Cocles.)
+(*) (Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 16309 del 16 de mayo de 1985, se confirmó que el nombre oficial del caserío situado al sur del precedente es Bratsi, tal como lo indican los mapas del Instituto Geográfico Nacional, y no Bambú.)
+(Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 16309 del 16 de mayo de 1985, se confirmó que la ortografía oficial del caserío y del río situados al norte de la Reserva Indígena es Watsi, y no Uatsi.)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 13591 del 6 de mayo de 1982, se acordó excluyir de la Reserva Indígena de Talamanca los terrenos ocupados por no indígenas y situados en la zona de los ríos Bitey y Duruy, y de la cabecera norte de Watsi así como los terrenos del sureste de la Reserva de Cocles; el límite exacto de los terrenos segregados será presentado por la Sección de Asuntos Indígenas del IDA, para el trámite correspondiente ante el Poder Ejecutivo.)
 (*)Para los efectos de la división territorial administrativa de la República, la lista oficial de los caseríos que constituyen la Reserva Indígena Cabécar de Talamanca es la siguiente:
 1. Duruy (San Miguel de Duluy o Duruy), al norte del río Shiroles (Xiroles).
@@ -684,6 +686,7 @@ De allí una recta a la naciente del río Cavei, y sigue el río Cavei hasta enc
 6. San José Cabécar (Cabécar): la cuenca del Alto Coén.
 b) El caserío de Mojoncito no es parte de esta reserva, sino de la Reserva Indígena Bribri de Talamanca.
 (*) (Así adicionado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 16306 del 16 de mayo de 1985)
+(Nota de Sinalevi: Mediante el artículo 2° del decreto ejecutivo N° 16309 del 16 de mayo de 1985, se estableció que el sector de la Reserva Indígena Bribrí de Talamanca situado a la orilla del río Sixaola, al sur de Chase y al norte de la confluencia entre los ríos Telire y Yorkín se denominará en adelante Acberye (Piedra Grande) y es reconocido como uno de los caseríos indígenas de Talamanca.)
 RESERVA INDÍGENA DE CHASE
 Partiendo de un punto en el río Sixaola, coordenadas N 393 850 E 586 450, se continúa con los siguientes rumbos, distancias y coordenadas:
 N 37 18 W | 1 320.04 | 394 900 | 585 650
@@ -695,6 +698,7 @@ De este punto se sigue aguas arriba por el río Sixaola hasta el punto de origen
 Área de la Reserva: 190 Ha. 3 750 m2.
 (Así adicionada la Reserva Indígena de Chase (o finca 4 Talamanca) anterior, los terrenos situados en la hoja cartográfica 36 44 IV Amubri, a la Reserva Indígena de Talamanca, por el artículo 2° del decreto ejecutivo N° 7268 del 9 de agosto de 1977)
 (Mediante el artículo 3° del decreto ejecutivo N° 7268 del 9 de agosto de 1977, se estableció que la Reserva Indígena "Chase", son parte integrante de la Reserva Indígena de Talamanca, se inscribirán en el Registro de la Propiedad a nombre de la misma comunidad indígena de Talamanca, pero como fincas distintas (fincas 3 y 4 Talamanca).)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 16309 del 16 de mayo de 1985, se estableció que el nombre de "Chase" será reservado en adelante únicamente al territorio situado entre el río Sixaola (al este), el río Watsi (al norte) y el límite de la Reserva Indígena Bribrí de Talamanca (al oeste y al sur), quedando así este caserío fuera de dicha Reserva.)
 RESERVA INDÍGENA DE TELIRE
 La Reserva Indígena de Telire, se encuentra en las hojas del Instituto Geográfico Nacional, Telire 3544-1, y Matama 3544-IV, escala 1: 50.000.
 Se localiza por los puntos cuyos rumbos, distancias y coordenadas son:

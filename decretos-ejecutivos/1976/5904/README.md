@@ -41,3 +41,4 @@ Establece las Reservas Indígenas Chirripó, Guaymi de Coto Brus, La Estrella y 
 | 26 | 1984-12-03 | Decreto Ejecutivo 16058 (1984-12-03) |
 | 27 | 1984-12-03 | Decreto Ejecutivo 16059 (1984-12-03) |
 | 28 | 1985-05-16 | Decreto Ejecutivo 16306 (1985-05-16) |
+| 29 | 1985-05-16 | Decreto Ejecutivo 16309 (1985-05-16) |
