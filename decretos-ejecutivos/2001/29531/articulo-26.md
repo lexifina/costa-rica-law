@@ -1,0 +1,3 @@
+CAPÍTULO XI
+De las exenciones y la no afectación
+Artículo 26.—De la no afectación: El IMAS no esta afecto al pago de impuestos, tasas y otras contribuciones nacionales o municipales originadas en los inmuebles que actualmente estén adjudicados o titulados a favor de sus beneficiarios. En razón de lo anterior, se consideraran sujetos pasivos de dichas obligaciones tributarias a los ocupantes de los inmuebles y por lo tanto, el Estado y las Municipalidades deberán dirigir su cobro a dichas personas, siempre y cuando los beneficiarios estén afectos al pago del tributo, coordinando con el IMAS, la información necesaria para la determinación e individualización de los obligados.

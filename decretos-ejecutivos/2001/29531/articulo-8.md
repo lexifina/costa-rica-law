@@ -1,0 +1,2 @@
+Artículo 8º—Reconocimiento de mejoras: El beneficiario en su condición de adjudicatario podrá renunciar a esa adjudicación y solicitar al IMAS, cuando hubiere cancelado el monto de su vivienda, el pago de las mejoras necesarias que hubiere realizado en ésta, previa recomendación del Área de Titulación, de conformidad con lo establecido en el presente Reglamento y en el informe técnico.
+En tales casos el IMAS queda facultado para readjudicar la vivienda a otro beneficiario, adjudicación que deberá incluir el monto indemnizado por concepto de mejoras.

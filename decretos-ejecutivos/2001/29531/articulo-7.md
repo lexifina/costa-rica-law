@@ -1,0 +1,1 @@
+Artículo 7º—Determinación de mejor derecho: En caso de conflicto entre eventuales cesionarios, el IMAS aplicará un procedimiento administrativo que tutele debidamente los derechos de audiencia y defensa de las partes que presenten al menos un interés legítimo.

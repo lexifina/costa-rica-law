@@ -1,0 +1,5 @@
+Artículo 10.—Traspaso a título gratuito: El Consejo Directivo del IMAS podrá autorizar el traspaso del terreno y la vivienda a título gratuito a favor de los beneficiarios en los siguientes casos:
+a) Cuando así lo recomiende la Gerencia Regional respectiva, previo informe técnico.
+b) Cuando los inmuebles hayan sido adquiridos con recursos del Fondo de Desarrollo Social y Asignaciones Familiares, FODESAF.
+c) Cuando los inmuebles hayan sido donados al IMAS por particulares o terceros con el objeto de ser destinados a proyectos de vivienda de interés social.
+En caso de que el beneficiario posea deudas con la Institución por concepto de valor de infraestructura deberá cancelar el monto que le corresponda de previo al momento de la formalización o constituir garantía hipotecaria de primer grado a favor del IMAS, con un plazo máximo de pago de diez años y tasas de interés corriente y moratorio acorde con su situación socioeconómica, de conformidad con las directrices emitidas por el Consejo Directivo del IMAS.

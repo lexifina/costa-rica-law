@@ -1,0 +1,5 @@
+Artículo 14.—Levantamiento de limitaciones: Los propietarios de vivienda o lotes adquiridos de conformidad con las leyes Nº 4760 y sus reformas y Nº 7151 podrán solicitar la autorización al Consejo Directivo del IMAS para efectos de venta, hipoteca, enajenación, o arrendamiento de sus inmuebles a favor de terceros, previa recomendación técnica de la Gerencia Regional respectiva o el Área de Titulación que así lo recomiende, para lo cual deberán cumplir los siguientes requisitos:
+a) Solicitud formal al IMAS, debidamente justificada.
+b) Oficio de la entidad autorizada o acreedora, en el que conste la aprobación y las condiciones bajo las cuales se otorga el crédito.
+c) Visto bueno del Área de Titulación.
+En caso de que en un mismo proyecto habitacional existan solicitudes en forma simultánea para el levantamiento de limitaciones con un mismo acreedor, las Gerencias Regionales o el Área de Titulación podrán gestionar dicho levantamiento en forma colectiva a todo o parte del proyecto habitacional, mediante la emisión de una recomendación grupal.

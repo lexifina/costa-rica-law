@@ -1,0 +1,1 @@
+Artículo 12.—Revisión: Los expedientes completos, revisados o avalados por la Gerencia Regional respectiva serán examinados por el Área de Titulación, quien los enviará a la Subgerencia de Desarrollo Social para su posterior aprobación ante el Consejo Directivo.

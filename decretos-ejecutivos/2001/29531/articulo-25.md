@@ -1,0 +1,2 @@
+Artículo 25.—Otorgamiento de beneficios para compra de lotes con servicios a terceros: El IMAS otorgará beneficios para que las personas en condición de pobreza que califiquen de conformidad con los parámetros institucionales adquieran lotes debidamente urbanizados en proyectos habitacionales desarrollados para terceros.
+Para la recepción del beneficio, el beneficiario deberá consignar en la respectiva escritura de traspaso del inmueble, su anuencia a no gravarlo, traspasarlo o donarlo por el término de diez años contados a partir de la fecha de la respectiva escritura.

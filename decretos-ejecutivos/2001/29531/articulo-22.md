@@ -1,0 +1,1 @@
+Artículo 22.—Inmuebles no inscritos: Podrán contratarse los profesionales necesarios, por las vías ya establecidas en este reglamento, para lograr la inscripción de inmuebles a favor del Instituto o de sus beneficiarios.
