@@ -1,0 +1,2 @@
+ARTICULO X. RELACION CON OTROS ORGANISMOS INTERNACIONALES
+Conforme a lo dispuesto en este Convenio, el Fondo cooperará con cualquier organización internacional general y con cualquier organización internacional pública que tenga obligaciones especializadas en campos conexos. Si para llevar a cabo dicha cooperación es preciso modificar alguna disposición de este Convenio, sólo podrá efectuarse previa enmienda del mismo conforme al artículo XVII.
