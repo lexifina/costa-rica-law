@@ -1,2 +1,0 @@
-Artículo 31.-El Fondo de Garantía cubrirá las cuentas incobrables a favor del Banco, el cual deberá rendir un informe al Consejo sobre ellas con evidencia de haber agotado su gestión de cobro y cargará al Fondo de Garantías lo adedado por la Asociación correspondiente.
-El Fondo de Garantías resarcirá del cargo con las partidas siguientes que se giren a la Asociación, hasta la extinción de la deuda, sin intereses.

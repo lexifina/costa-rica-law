@@ -1,4 +1,0 @@
-Artículo 14.-Las Asociaciones, deberán solicitar anualmente los fondos al Consejo.
-a) Si transcurridos tres meses posteriores al cierre del período que fije DINADECO, la asociación no ha hecho la solicitud del caso para retirar los fondos que le corresponde, éstos pasarán a formar una cuenta especial para programas de información, divulgación y motivación a las comunidades, acordes con los lineamientos de la Promoción Humana.
-b) El banco girará a DINADECO contra la cuenta de Información y Divulgación, las órdenes de pago deberán ser aprobadas previamente por e! Consejo; DINADECO tramitará la entrega a quien el Consejo determine, el cual se encargará de ejecutar los programas de información y divulgación.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 10050 del 22 de mayo de 1979)

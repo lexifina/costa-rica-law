@@ -1,1 +1,0 @@
-Artículo 12.-El Banco suministrará al Consejo un informe semestral del movimiento que ha tenido la cuenta de fondos por girar a Asociaciones, en el cual se incluyan: depósitos, intereses devengados, retiros y saldos existentes.

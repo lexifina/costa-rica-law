@@ -1,1 +1,0 @@
-Artículo 38.-Cada amortización, en las operaciones garantizadas por el Fondo, liberará a éste en una proporción igual a su aporte inicial. Para estos efectos los cálculos y reintegros al Fondo de Garantías se harán anualmente.

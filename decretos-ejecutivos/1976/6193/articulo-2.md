@@ -1,1 +1,0 @@
-Artículo 2°-El Estado girará, a la orden del Consejo Nacional de Desarrollo de la Comunidad, los fondos asignados a las Asociaciones según el artículo 19 de la ley N° 3859 a efecto de que el Consejo los utilice según se determina en el presente reglamento.

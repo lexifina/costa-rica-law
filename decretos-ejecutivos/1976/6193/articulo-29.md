@@ -1,2 +1,0 @@
-Artículo 29-El Consejo Nacional de Desarrollo de la Comunidad dispondrá del total de los interesados ganados anualmente por el Fondo de Garantía y los devengados por el depósito para girar a asociaciones, los que ser n destinados exclusivamente a financiar los gastos necesarios de los proyectos que apruebe el Consejo y al mantenimiento o reposición del equipo necesario para su ejecución.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 14419 del 21 de marzo de 1983)
