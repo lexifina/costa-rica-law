@@ -1,0 +1,1 @@
+ARTÍCULO 30.-La junta general de sanidad se instalar desde el mismo día de la publicación de este decreto, y celebrar sus sesiones dos veces por semana en los días y en el local que la misma acuerde sin perjuicio de las demás sesiones que le convoque su Presidente, según la exijencia de las circunstancias.

@@ -1,0 +1,1 @@
+ARTÍCULO 52.-Es obligación de los Jefes políticos subalternos de los Pueblos calificar bajo su responsabilidad la indigencia de la persona personas que necesiten del auxilio del almacén; dándoles constancia para que puedan obtener el socorro.

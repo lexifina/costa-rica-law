@@ -1,0 +1,2 @@
+ARTÍCULO 7°.-Todo dueño de casa ¢ habitante en ella, sin excepción de persona alguna, ya sea en el interior de las poblaciones, en los barrios y aun en los extremos más recónditos, siempre que en ellos hayan habitantes, es obligado encalar una vez por lo menos cada mes, haciéndolo la primera en el
+presente, después de la publicación de este decreto: esta disposición comprehende las Parroquias Hermitas y casas públicas; siendo responsables por su no cumplimiento los Párrocos, Municipalidades y demás personas encargadas de su gobierno interior.

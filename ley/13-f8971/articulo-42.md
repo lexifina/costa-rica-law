@@ -1,0 +1,1 @@
+ARTÍCULO 42.-Para la asistencia de los convalecientes de los hospitales, se destinar n las casas de personas pudientes donde no haya invadido la epidemia; y el Ministro de policía librar la orden necesaria acompañada de la instrucción metódica que dar el inteligente para su asistencia hasta su perfecto restablecimiento.
