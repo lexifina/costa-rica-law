@@ -1,0 +1,2 @@
+Artículo 8º—De la liquidación de los Beneficios. Para todas
+las circunstancias establecidas en el artículo 6° de este Reglamento, la liquidación respectiva de la diferencia entre las sumas acumuladas por los aportes y el saldo de los préstamos, junto con sus rendimientos, serán reintegrados al afiliado o a sus beneficiarios, dentro de los 30 días hábiles posterior a la emisión de la orden de personal de cese de funciones.

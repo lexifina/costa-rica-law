@@ -1,0 +1,1 @@
+Artículo 27.—Informes anuales. La Junta Administradora rendirá, a más tardar el 30 de junio de cada año en Asamblea General Ordinaria, un informe con los resultados del periodo anterior y los Estados Financieros auditados al 31 de diciembre del año anterior, cuando corresponda.
