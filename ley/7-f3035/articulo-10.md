@@ -1,0 +1,1 @@
+Art. 10.-La espada será de puño dorado con las armas de Costa Rica, de realce, entre dos ramas de laurel; la hoja recta, de diez y ocho milímetros de anchura, en disminución, y setenta y ocho centímetros de largo, y la vaina con la contera y la embocadura de metal dorado: la primera de ciento quince milímetros de longitud, y la segunda de noventa y cinco milímetros.

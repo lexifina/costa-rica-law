@@ -1,0 +1,1 @@
+Art. 6°-El teniente usará el mismo uniforme común y de gala señalado para el Subteniente diferencia de que debe llevar dos trencillas en el cuello y bocamangas, á distancia de cuatro milímetros, y dos trencillas en el aro y costuras del kepis.
