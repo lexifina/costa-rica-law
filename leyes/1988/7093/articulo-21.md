@@ -1,3 +1,1 @@
-Artículo 21.- Se impondrá prisión de uno a tres años a quien facilitare
-un local, incluso a título gratuito, para que concurran a él personas con el
-fin de consumir sustancias estupefacientes, psicotrópicas o inhalantes.
+Artículo 21.- Se impondrá prisión de cuatro a ocho años a quien, estando legalmente autorizado, prescriba innecesariamente, las sustancias a las que se refiere esta Ley, en dosis mayores que las indispensables para la terapia, y a quien las expenda o las suministre sin receta médica o excediendo las cantidades señaladas en la receta. Además de la sanción establecida en el párrafo anterior, se le impondrá inhabilitación de cinco a doce años para ejercer la profesión u oficio o para realizar el acto o la actividad en la que se hubiera cometido el delito.

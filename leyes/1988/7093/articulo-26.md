@@ -1,17 +1,2 @@
-CAPITULO IV
-Del comiso, la ex carcelación y la disminución de la pena
-Artículo 26.- Los bienes muebles e inmuebles, los vehículos, los
-instrumentos y los demás objetos que se utilicen para almacenar, conservar,
-fabricar, elaborar, transportar, cultivar, vender o suministrar, a
-cualquier título, sustancias estupefacientes, psicotrópicas o inhalantes,
-lo mismo que los diversos bienes y valores provenientes de tales
-actividades, serán embargados o decomisados por la autoridad que conociere
-de la causa. Si se ordenare su comiso, deberán ponerse a la orden del
-Consejo Nacional de Drogas, el cual, por resolución fundamentada, podrá
-destinarlos definitivamente para el servicio oficial, donarlos a entidades
-de interés público o subastarlos públicamente. Los beneficios obtenidos se
-utilizarán en la prevención y en la represión del tráfico de drogas y en la
-rehabilitación de los farmacodependientes.
-Cuando se embargaren bienes inscritos en el Registro Nacional, el juez
-deberá ordenar inmediatamente la anotación respectiva y notificarlo al
-Consejo Nacional de Drogas.
+Artículo 26.- Se impondrá una multa de hasta el doble del costo del valor comercial del espacio no cedido, al Gerente, al Administrador, o al Director del medio de información colectiva que negara el espacio para la transmisión de los programas a los que se refiere el artículo 11 de la presente Ley.
+En el fallo, la autoridad judicial establecerá los días de prisión que deberá cumplir el condenado, en caso de que no pagara la multa dentro del término establecido en el Código Penal. En ningún caso, la pena será inferior a quince días de prisión. La conducta tipificada en el presente artículo constituye una contravención y será del conocimiento del alcalde en donde se encuentre ubicada la sede principal del medio. En caso de duda, lo conocerá un alcalde de San José.

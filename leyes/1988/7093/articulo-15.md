@@ -1,10 +1,1 @@
-Artículo 15.- (*) Se impondrá prisión de ocho a quince años a quien
-realice cualquier acto o contrato, real o simulado, de adquisición,
-posesión, transferencia o disposición de bienes, tendente a ocultar o a
-encubrir el origen de recursos económicos obtenidos por medio del tráfico
-ilícito de drogas o de delitos relacionados con esa actividad,
-independientemente del lugar en donde el acto ilícito se haya cometido.
-Cuando el hecho se hubiere cometido en el extranjero, su comisión podrá
-acreditarse por cualquier medio.
-( Interpretado por Resolución de la Sala Constitucional No. 1090-91 de
-las 16:15 horas del 11 de junio de 1991 ).
+Artículo 15.- Se autoriza al Poder Ejecutivo para instalar un centro de radar, que se ubicará en el territorio nacional como parte de la Red de Radares de la Cuenca del Caribe, el cual tendrá como objetivo mejorar la vigilancia del espacio aéreo y aumentar la capacidad de reprimir el tráfico internacional de estupefacientes, de sustancias psicotrópicas y de drogas de uso no autorizado. El mencionado centro de radar operará bajo la exclusiva responsabilidad del Gobierno de Costa Rica. Este, sin embargo, podrá prestar colaboración a otros gobiernos para el alcance de esos objetivos. Se exonera de toda clase de tasas e impuestos la importación del equipo de radar, sus accesorios y repuestos.

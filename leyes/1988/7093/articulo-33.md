@@ -1,8 +1,2 @@
-Artículo 33.- El Consejo Nacional de Drogas estará integrado por:
-a) El Ministro o Viceministro de Justicia y Gracia, quien lo presidirá.
-b) El Ministro o Viceministro de Trabajo y Seguridad Social.
-c) El Ministro o Viceministro de Salud.
-ch) El Ministro o Viceministro de Educación Pública.
-d) El Ministro o Viceministro de Seguridad Pública.
-e) El Ministro o Viceministro de Gobernación y Policía.
-f) El Director General del Instituto sobre Alcoholismo y Farmacodependencia.
+Artículo 33.- No será procedente la excarcelación de quien sea imputado como autor de los hechos delictivos tipificados en los artículos 16, 17, 18 párrafos primero, tercero y sexto y 19 párrafo primero de la presente Ley. Sí procederá la excarcelación para aquellos imputados de los hechos tipificados en el artículo 18, párrafos primero y tercero, si lo vendido, cultivado o poseído es en cantidades para uso personal. También será posible el beneficio de la excarcelación para los instigadores y cómplices y para quienes puedan resultar beneficiados con el perdón o con la disminución de la pena, conforme a esta Ley. En los casos en que no resulte procedente la excarcelación, según lo dispuesto en el párrafo anterior, la concesión de algún beneficio penitenciario que desinstitucionalice al interno, deberá ser consultada al Juez por el Instituto Nacional de Criminología.
+(ANULADO por Resolución de la Sala Constitucional Nº 193-92 de las 15-45 horas del 28 de enero de 1992.)

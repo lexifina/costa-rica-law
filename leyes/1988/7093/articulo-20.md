@@ -1,4 +1,1 @@
-Artículo 20.- Se impondrá prisión de cuatro a ocho años a quien, en
-forma no autorizada, tenga en su poder precursores, químicos, solventes u
-otras sustancias que sirvan para el procesamiento de las drogas a que se
-refiere la presente ley, o sus derivados.
+Artículo 20.- Siempre que la acción no esté más severamente penada, se impondrá prisión de cuatro a ocho años a quien, por cualquier medio, estimule o promueva el consumo no autorizado de las drogas y productos a los que se refiere esta Ley.

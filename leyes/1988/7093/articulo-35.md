@@ -1,8 +1,1 @@
-Artículo 35.- Adiciónase un inciso 12), al artículo 93 del Código
-Penal, que dirá:
-"Artículo 93.- ...
-12) A quien fuere sindicado por el Ministerio Público como
-intermediario en el tráfico de sustancias estupefacientes, psicotrópicas o
-inhalantes, y diere información correcta que permita acreditar participación
-de una o varias personas como autoras de delitos relacionados con el tráfico
-de drogas."
+Artículo 35.- El Ministerio Público podrá ofrecer, a los autores, coautores, instigadores y cómplices de los delitos contemplados en esta Ley que, en caso de que se solicite sentencia condenatoria en su contra, pedirá que se consideren, en su favor, el perdón judicial o la concesión del beneficio de la ejecución condicional de la pena, si fuera procedente: cuando proporcionaran, espontáneamente, información que contribuya esencialmente al esclarecimiento de delitos de los tipificados en los artículos 16, 17, 18, párrafos primero, tercero, sexto y 19 párrafo primero de esta Ley o de sus autores, más allá de su personal participación en ese delito o, cuando el autor pusiera, en conocimiento de la autoridad, lo que él supiera sobre los planes de comisión de los delitos ya mencionados, haciéndolo con tiempo suficiente para impedir su comisión.

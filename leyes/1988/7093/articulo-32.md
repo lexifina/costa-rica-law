@@ -1,18 +1,1 @@
-Artículo 32.- Son funciones del Consejo Nacional de Drogas:
-a) Establecer, para su adopción por el Gobierno de la República, las
-políticas, los planes y programas que las entidades públicas y privadas
-deben formular para reprimir la producción, el comercio y el uso de drogas
-que produzcan dependencia. Igualmente, el Consejo propondrá medidas para
-el control y el uso de tales drogas.
-b) Señalar a los distintos organismos oficiales, conforme con el inciso
-anterior, las campañas y las acciones específicas que cada uno de ellos
-debe formular.
-c) Coordinar la actividad de las entidades estatales y privadas que se
-ocupen de la educación, la prevención y la investigación científica
-relativa a las drogas que produzcan dependencia.
-ch) Supervisar la actividad policial de investigación en materia de las
-drogas mencionadas.
-d) Administrar los fondos específicos a que se refiere el artículo 26 de
-esta ley, con sujeción a lo dispuesto en la Ley de la Administración
-Financiera de la República.
-e) Cualesquiera otras que se determinaren por ley o por reglamento.
+Artículo 32.- Las penas establecidas en el Capítulo II de la presente Ley, podrán ser disminuidas hasta la mitad, por el juez o tribunal al dictar sentencia, cuando el condenado haya brindado la información correcta que permita acreditar la participación de una o varias personas en delitos tipificados en los artículos 16, 17, 18 párrafos primero, tercero y sexto y 19 párrafo primero, de la presente Ley o cuando haya aportado indicios suficientes que permitan la incautación o decomiso de cantidades considerables de drogas o sustancias y materias primas que se utilicen para su elaboración.

@@ -1,5 +1,6 @@
-Artículo 37.- Se derogan los artículos 265 y 267 del Código Penal, ley
-Nº 4573 del 4 de mayo de 1970, 372 y 387 de la Ley General de Salud, Nº
-5935 del 30 de octubre de 1983 y la Ley de Creación de la Comisión Nacional
-Coordinadora Contra el Uso no Autorizado de Drogas, Nº 5090 del 17 de
-octubre de 1972.
+Artículo 37.- El Consejo Nacional de Drogas contará con un fondo rotatorio para la consecución de sus fines, el que estará constituido por:
+a) Los recursos que anualmente se le asignen en los presupuestos ordinarios y extraordinarios de la República. Se autoriza al Consejo a gestionar, ante el Poder
+Ejecutivo, las partidas que considere necesarias para la consecución de sus fines.
+b) Los recursos y las asignaciones presupuestarias autorizados por esta Ley, para el cumplimiento de sus fines.
+c) Las donaciones internacionales que se reciban.
+ch) Cualquier otro recurso que se pueda percibir.
