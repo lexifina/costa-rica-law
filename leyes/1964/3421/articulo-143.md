@@ -1,2 +1,0 @@
-Artículo 143.- Los embargos judiciales que se decreten sobre mercancías abandonadas se aplicarán únicamente sobre el sobrante de las sumas provenientes de su venta en pública subasta, deducidos los adeudos enumerados en el artículo 139.
-En consecuencia, dichos embargos no podrán interrumpir el proceso de la subasta, ni el remate dar origen a reclamaciones contra el Fisco o los adquirientes de la mercancía.

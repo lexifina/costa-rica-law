@@ -1,2 +1,0 @@
-Artículo 115.- Las mercancías destinadas a otro país, y que por error hayan sido descargadas, podrán ser reexportadas en el vehículo que las trajo, de encontrarse éste aún en la zona primaria de la Aduana, debiéndose hacer las anotaciones respectivas que indiquen los reglamentos.
-Si el vehículo hubiere partido, las mercancías quedarán depositadas en la aduana a la orden del representante o agente del vehículo que las trajo al país, y si no fueren retiradas en tiempo, se considerarán en abonado, procediéndose de acuerdo con lo previsto en el artículo 137 y en los reglamentos.

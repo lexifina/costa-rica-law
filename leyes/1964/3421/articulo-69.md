@@ -1,1 +1,0 @@
-Artículo 69.- Las Aduanas u oficinas aduaneras llevarán controles de recepción y salida apropiados para cada tipo de tráfico, de los bultos que lleguen a sus recintos. Los registros y los sistemas de control se regirán por las normas que se dicten en los reglamentos.

@@ -1,1 +1,0 @@
-Artículo 6.- Las mercancías deben ser admitidas para la importación, exportación o para cualquier otra operación aduanera, salvo las prohibiciones, restricciones o condiciones prescritas en la leyes o reglamentos.

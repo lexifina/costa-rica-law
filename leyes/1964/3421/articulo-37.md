@@ -1,1 +1,0 @@
-Artículo 37.- El tráfico de cabotaje se sujetará a los requisitos y demás modalidades que se indican en los reglamentos, y en lo aplicable, a los tratados o convenios multilaterales de integración económica centroamericana.

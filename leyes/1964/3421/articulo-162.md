@@ -1,2 +1,0 @@
-Artículo 162.- Se presumirá que una mercancía se ha perdido en una dependencia aduanera cuando, habiendo sido recibida, no aparezca al ser requerida por el Vista u otro funcionario, para cualquier operación aduanera, después de treinta días de solicitada su destinación.
-Los consignatarios o propietarios recuperarán su derecho sobre las mercancías extraviadas cuando aparezcan siempre que restituyan al Fisco las sumas que hubieren recibido como indemnizaciones.

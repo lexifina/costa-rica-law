@@ -1,1 +1,0 @@
-Artículo 82.- No obstante lo dispuesto en el artículo anterior, si hubiere duda entre el valor declarado en la factura y el verdadero valor de la mercancía, la Aduana procederá a determinar el valor de conformidad con lo que disponga la legislación arancelaria uniforme centroamericana.

@@ -1,1 +1,0 @@
-Artículo 150.- Las sanciones por las infracciones aduaneras comprendidas en el artículo anterior serán aplicadas por el Administrador de la respectiva Aduana, de acuerdo con la naturaleza de las mismas y las circunstancias del caso, conforme a este Código, sus reglamentos y demás disposiciones legales aplicables.

@@ -1,1 +1,0 @@
-Artículo 32.- Las operaciones de tránsito se harán por las vías legalmente habilitadas para este efecto con sujeción a las disposiciones de este Código, sus reglamentos y las leyes de sanidad, policía y demás leyes aplicables en el territorio de paso.

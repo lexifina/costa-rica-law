@@ -1,1 +1,0 @@
-Artículo 46.- Si por fuerza mayor o caso fortuito una aeronave aterriza o acuatiza en una zona no habilitada, el conductor deberá dar parte inmediatamente a la autoridad más cercana, bajo cuya vigilancia quedará tanto la aeronave como los pasajeros y la carga, mientras no se presente la autoridad aduanera, que dispondrá lo siguiente al caso.

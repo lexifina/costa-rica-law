@@ -1,1 +1,0 @@
-Artículo 164.- Toda persona que por culpa o dolo, cause pérdida o deterioro a las mercancías que están bajo la custodia aduanera, será responsable de los daños causados, sin perjuicio de cualquier otra responsabilidad que se le pudiere atribuir.

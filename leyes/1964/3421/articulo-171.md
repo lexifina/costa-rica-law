@@ -1,3 +1,0 @@
-Artículo 171.- Si no se apersonare y expresare agravios oportunamente el recurrente, la Dirección General de Aduanas declarará desierta la revisión y devolverá los antecedentes a la Aduana de origen.
-Si el recurrente se apersonare y expresare agravios, y hubiere hechos que probar, la Dirección General de Aduanas le concederá el término de veinte días calendario, que serán comunes para proponer y ejecutar la prueba. Si ésta ha de rendirse fuera del territorio nacional, el término será de tres meses.
-Vencido el término probatorio, la Dirección General de Aduanas resolverá lo precedente dentro de quince días y, previa notificación al interesado, devolverá los antecedentes a la Aduana de origen, con certificación de su resolución.

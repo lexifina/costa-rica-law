@@ -1,1 +1,0 @@
-Artículo 153.- Las autoridades competentes emitirán la orden a que se refiere el artículo anterior, con la sola declaración de un testigo. Tal orden deberá indicar el lugar que deba registrarse, dentro de qué horas puede practicarse la diligencia y las personas que deban presenciarla como testigos.

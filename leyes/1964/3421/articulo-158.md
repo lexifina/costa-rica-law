@@ -1,1 +1,0 @@
-Artículo 158.- Los actos efectuados por las autoridades aduaneras en cumplimiento de las facultades señaladas en los artículos anteriores, no darán derecho a reclamar por los daños y perjuicios necesarios que originen, si se comprobasen las razones fundadas que se tuvieron en vista al realizarlos.

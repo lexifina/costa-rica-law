@@ -1,1 +1,0 @@
-Artículo 183.- Los países signatarios se comprometen a mantener la cláusula centroamericana la excepción para con terceros países en lo que se refiere a las facilidades aduaneras que se otorguen entre ellos.

@@ -1,1 +1,0 @@
-Artículo 92.- La inspección y examen de las mercancías se extenderá, según el criterio del Vista, a una parte de los bultos o a su totalidad de acuerdo con la forma y condiciones previstas en los reglamentos. El derecho de inspección y examen es también aplicable a los vehículos.

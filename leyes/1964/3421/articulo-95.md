@@ -1,1 +1,0 @@
-Artículo 95.- Las mercancías de tráfico prohibido encontradas durante el examen, serán decomisadas por la Aduana y puestas a la disposición de la autoridad competente, para los efectos legales consiguientes.

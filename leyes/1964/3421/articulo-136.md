@@ -1,1 +1,0 @@
-Artículo 136.- Toda persona que entregue mercancías procedentes de zozobra o naufragio, tiene derecho a que se le pague los gastos que hubiere causado su rescate y transporte a la Aduana, y a una recompensa equivalente a veinticinco por ciento del valor de venta de las mismas.

@@ -1,1 +1,0 @@
-Artículo 27.- Las operaciones temporales sólo deberán autorizarse cuando las mercancías puedan ser claramente identificables, ya sea por marcas, números, sellos, medidas u otras características especiales.

@@ -1,4 +1,0 @@
-Artículo 176.- Cuando la reclamación ser refiera a discrepancias de criterio, sobre clasificación mercancías, será indispensable para la tramitación del recurso que queden en poder de la Aduana, muestras de las mismas, certificadas por el Vista que aforó, extraídas antes de que la mercancía haya salido de la custodia aduanera.
-La forma y tiempo en que esta muestras deban ser extraídas, se regulará en los reglamentos. En los casos en que no sea posible extraer muestras, se atenderá a lo que indique el reglamento.
-El Director General de Aduanas remitirá lo actuado al Comité Arancelario, el cual tramitará el recurso de apelación conforme al mismo procedimiento indicado en los artículos 169, 170, 171, 172 y 173. El Comité Arancelario resolverá en definitiva a la mayor brevedad posible.
-No se admitirá este recurso sin la previa cancelación de la póliza respectiva.

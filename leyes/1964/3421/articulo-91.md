@@ -1,1 +1,0 @@
-Artículo 91.- Como operación previa al aforo, y de conformidad con lo que al respecto dispongan los reglamentos, todo consignatario podrá reconocer y pesar las mercancías y extraer muestras de las mismas para su correcta declaración. La Aduana autorizará esta operación que deberá ser efectuada bajo su vigilancia y los gastos que ocasione correrán por cuenta del consignatario.

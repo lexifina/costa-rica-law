@@ -1,1 +1,0 @@
-Artículo 135.- Si las mercancías rescatadas o recibidas fueren perecederas o de fácil descomposición, podrán ser vendidas inmediatamente en pública subasta, y al producto de las mismas se le dará el destino que corresponda.

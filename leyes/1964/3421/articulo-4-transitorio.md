@@ -1,2 +1,0 @@
-Transitorio Cuarto
-Dentro de un plazo no mayor de un año a partir de la fecha de vigencia del presente Código, las Partes Contratantes deberán suscribir un Convenio Uniforme Centroamericano sobre contrabando y defraudación fiscal en el ramo aduanero, que responda a los requerimientos del Mercado Común Centroamericano y a la constitución y funcionamiento de la Unión Aduanera a que se refiere el Artículo I del Tratado General de Integración Económica Centroamericana.

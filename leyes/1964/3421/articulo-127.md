@@ -1,1 +1,0 @@
-Artículo 127.- Las formalidades aduaneras que deberán cumplir los depositantes de las mercaderías y los concesionarios de los almacenes generales de depósito, para efectuar los trámites correspondientes, especialmente en lo que se refiere a traslados, depósito, vigilancia, plazos y retiro, serán determinadas por los reglamentos.

@@ -1,1 +1,0 @@
-Artículo 41.- Una vez recibidos los vehículos por las autoridades señaladas, podrá efectuarse el embarque o desembarque de pasajeros, y la carga o descarga de las mercancías, de acuerdo con los reglamentos.

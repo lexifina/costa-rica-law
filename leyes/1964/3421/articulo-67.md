@@ -1,1 +1,0 @@
-Artículo 67.- La mercancía recibida por la Aduana no podrá ser objeto de cambio o modificación alguna, salvo el reacondicionamiento del embalaje defectuoso de los bultos u otras medidas de precaución como el repintado de las marcas que, estando borrosas puedan todavía identificarse.

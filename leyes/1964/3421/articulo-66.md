@@ -1,1 +1,0 @@
-Artículo 66.- Cuando no se descargue bultos consignados en el manifiesto, el porteador tendrá un plazo de cuatro meses, contados a partir de la fecha de cancelación del manifiesto, para que dichos bultos sean entregados. Vencido este término, la administración de la Aduana impondrá la sanción que determine este Código y su reglamentos.

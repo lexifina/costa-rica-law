@@ -1,1 +1,0 @@
-Artículo 68.- La Aduana u oficina aduanera podrá exigir al porteador o a sus agentes que reembalen o tomen las medidas de precaución que a su juicio requiera una mercancía y, en caso de urgencia, que ello se efectúe de inmediato. Esta operación quedará siempre a cargo del consignatario o de sus representantes y se hará a sus expensas.

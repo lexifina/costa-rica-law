@@ -1,2 +1,0 @@
-Artículo 7.- La autoridad competente puede, por motivos especiales, ordenar que las operaciones aduaneras correspondientes a ciertas clases de mercancías sólo se efectúen en oficinas aduaneras determinadas.
-También podrán establecerse perímetros fronterizos de vigilancia especial, en los cuales la existencia y tráfico de mercancías extranjeras estarán sujetos a las prohibiciones y restricciones que establezcan los reglamentos.

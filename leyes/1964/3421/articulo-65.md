@@ -1,1 +1,0 @@
-Artículo 65.- Los bultos que presenten indicios de avería o de haber sido violados, se separarán de la carga en el momento de su recepción y serán recibidos por la Aduana, previa determinación del contenido y peso de cada uno. Los porteadores o su representante, si lo consideran necesario, podrán presenciar esta operación.

@@ -1,2 +1,0 @@
-Artículo 141.- Mientras no se haya verificado el remate, el consignatario o, en caso de mercancías procedentes de zozobra o naufragio, el que comprobare derecho a ellas, podrá recuperar las mercancías cancelando previamente las cantidades que se adeudan por los conceptos expresados en los artículos 139 y 140.
-En el caso de mercancías provenientes de zozobra o naufragio, cuando no exista acuerdo entre las partes, el pago de los gastos de rescate, traslado y de la recompensa, se determinarán con base en estimación pericial.

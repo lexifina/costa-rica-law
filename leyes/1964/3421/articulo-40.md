@@ -1,1 +1,0 @@
-Artículo 40.- Los vehículos serán visitados en el orden en que lleguen, pero tendrán prioridad los de pasajeros, los que transporten mercancías peligrosas, de fácil descomposición, o para hacer frente a situaciones de emergencia.

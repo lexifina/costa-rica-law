@@ -1,2 +1,0 @@
-Artículo 23.- El Comité Arancelario estará compuesto de cinco miembros propietarios y sus suplentes, entre los cuales habrá necesariamente un representante del ramo de Hacienda, un representante del Ramo de Economía vinculado con el programa de Integración Económica Centroamericana y un representante de la Dirección General de Aduanas.
-Un reglamento en cada país regulará el funcionamiento del Comité Arancelario.

@@ -1,2 +1,0 @@
-Artículo 177.- Las resoluciones del Comité Arancelario serán conocidas por el Consejo Ejecutivo del Tratado General de Integración Económica Centroamericana, de conformidad con lo estipulado en el literal b) del artículo 22.
-El Consejo Ejecutivo decidirá a la mayor brevedad posible respecto de las resoluciones del Comité Arancelario y dichas decisiones serán de aplicación obligatoria, en lo sucesivo, en todos los Estados signatarios en la forma y plazos que se señalen en el reglamento uniforme.

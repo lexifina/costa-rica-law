@@ -1,1 +1,0 @@
-Artículo 73.- También causarán almacenaje las mercancías que no fueren retiradas de las Aduana dentro de los cinco días calendario siguientes a la fecha de notificación de la liquidación de la póliza respectiva. En tal caso, el almacenamiento se computará desde dicha fecha hasta el día en que los bultos sean retirados de la Aduana, inclusive.
