@@ -4,11 +4,13 @@ CAPÍTULO I
 FALTA CONTRA LAS PERSONAS
 Artículo 544.
 Lesión
-Serán castigados con arresto o multa menor en cualquiera de sus
+Artículo 544.—Serán castigados con arresto o multa menor en cualquiera de sus grados:
 1.° El que causare a otro una lesión que pueda sanar en diez días o menos y que no produzca ninguna de las consecuencias expresadas en los artículos 258 y 259.
 Hurto menor.
-2.° El que cometiere hurto de cosa cuyo valor no pase de veinticinco colones, con tal que el hecho no esté comprendido en los términos de los artículos 362 y 364.
-3.° El que ejecutare cualquier fraude o estafa sobre un valor que no exceda de veinticinco colones.
+2°—El que cometiere hurto de cosa cuyo valor no pase de cincuenta colones, con tal que el hecho no esté comprendido en los términos de los artículos 362 y 364.
+(Así reformado el inciso anterior por el artículo único de la ley N° 30 del 8 de noviembre de 1932)
+3°.- El que ejecutare cualquier fraude o estafa sobre un valor que no exceda de cincuenta colones
+(Así reformado el inciso anterior por el artículo único de la ley N° 30 del 8 de noviembre de 1932)
 Ocultación de un mayor de diez años y menor de quince
 4.° El que ocultare a las investigaciones de la autoridad, a un niño mayor de diez años, pero menor de quince, que se hubiere sustraído a la potestad o guarda a que estaba legítimamente confiado.
 Abandono de hijos o pupilos
