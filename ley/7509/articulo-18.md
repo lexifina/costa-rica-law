@@ -1,3 +1,3 @@
-ARTICULO 18.- Impugnación de la resolución del Concejo. El contribuyente podrá impugnar la resolución del Concejo ante el Tribunal Fiscal Administrativo, en el término de quince días hábiles, de conformidad con el Código de Normas y Procedimientos Tributarios. El Tribunal Fiscal Administrativo deberá resolver en un plazo máximo de cuatro meses contados desde que se interpuso el recurso. Esta resolución podrá recurrirse ante el Tribunal Superior Contencioso-Administrativo, de acuerdo con lo dispuesto en el artículo 83 y siguientes de la Ley Reguladora de la Jurisdicción Contencioso-Administrativa.
-Mientras el Tribunal Fiscal Administrativo no se pronuncie sobre el fondo del asunto en resolución administrativa, continuará aplicándose el avalúo anterior y conforme a él se cobrará.
-En casos calificados por imposibilidad material de resolución, el Concejo o el Tribunal Fiscal Administrativo podrá ampliar los términos mencionados hasta por un mes adicional, únicamente.
+ARTÍCULO 18.- Referencias para peritajes.
+(Derogado por el artículo 3º, inciso b), de la ley No.7729 de 15 de diciembre de 1997)
+(Así modificada su numeración por el artículo 2, inciso c), de la ley No.7729 de 15 de diciembre de 1997, que lo trasladó del 16 al 18)

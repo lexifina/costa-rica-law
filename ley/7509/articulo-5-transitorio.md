@@ -1,0 +1,1 @@
+Transitorio V.- Durante los primeros seis meses de vigencia de esta Ley, a los sujetos pasivos del impuesto territorial se les exonera del pago de los intereses y las multas por los períodos vencidos, cuando paguen el impuesto dentro del plazo citado. En ese caso, la declaración de impuestos prescritos se efectuará de oficio.

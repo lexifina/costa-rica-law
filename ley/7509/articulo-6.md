@@ -1,6 +1,6 @@
-CAPITULO III
+CAPÍTULO III
 Sujetos pasivos del impuesto
-ARTICULO 6.- Sujetos pasivos. Son sujetos pasivos de este impuesto:
+ARTÍCULO 6.- Sujetos pasivos. Son sujetos pasivos de este impuesto:
 a) Los propietarios con título inscrito en el Registro Público de la Propiedad.
 b) Los propietarios de finca, que no estén inscritos en el Registro Público de la Propiedad.
 c) Los concesionarios, los permisionarios o los ocupantes de la franja fronteriza o de la zona marítimo terrestre, pero solo respecto de las instalaciones o las construcciones fijas mencionadas en el artículo 2 de la presente Ley, pues, para el terreno, regirá el canon municipal correspondiente.
