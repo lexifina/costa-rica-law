@@ -1,0 +1,2 @@
+Transitorio II.- El Banco Central reconocerá al Instituto Nacional de vivienda y Urbanismo (INVU) cualquier erogación que éste se vea obligado a hacer, para atender reclamos de terceros por motivo del traspaso de la propiedad que por esta ley se hace.
+Dado en el Salón de Sesiones de la Asamblra Legislativa. Palacio Nacional. San José a los veintiún días del mes de agosto de mil novecientos cincuenta y siete.
