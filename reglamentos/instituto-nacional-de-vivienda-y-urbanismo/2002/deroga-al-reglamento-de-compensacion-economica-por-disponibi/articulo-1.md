@@ -1,0 +1,1 @@
+La Junta Directiva del Instituto Nacional de Vivienda y Urbanismo, en Sesión Ordinaria Nº 5225, Artículo VI, inc. 1), punto a-ii) celebrada el día 30 de octubre del año en curso, acordó derogar el "Reglamento de Compensación Económica por Disponibilidad", aprobada por la Junta Directiva en Sesión Ordinaria Nº 3459, Artículo VII, celebrada el 22 de agosto de 1983 y sus reformas.
