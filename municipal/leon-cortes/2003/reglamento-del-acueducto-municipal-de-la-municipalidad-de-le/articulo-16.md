@@ -1,0 +1,1 @@
+Artículo 16.—Las solicitudes por un nuevo servicio de agua serán tramitadas por el departamento que para este fin nombre el Alcalde Municipal dentro de la Institución, previo estudio realizado por el fontanero o persona de la institución autorizado para ello por el Alcalde.

@@ -1,0 +1,1 @@
+Artículo 18.—La Municipalidad únicamente autorizará acometidas mayores a 12 milímetros de diámetro, cuando se trate de instituciones públicas o industrias que ameriten una acometida mayor para el normal funcionamiento de las mismas y por la actividad que realicen, en cuyo caso debe ser demostrada dicha situación por el interesado.

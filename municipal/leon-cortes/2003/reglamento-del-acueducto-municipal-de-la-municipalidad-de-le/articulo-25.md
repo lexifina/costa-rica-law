@@ -1,0 +1,1 @@
+Artículo 25.—La Municipalidad suspenderá el servicio temporal, concluido el tiempo por el que fue solicitado, sin perjuicio de que se haga una solicitud de prórroga por parte del interesado y que fuera acogida por el Alcalde, en cuyo caso deberá cancelar el nuevo importe respectivo.

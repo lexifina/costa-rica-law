@@ -1,0 +1,2 @@
+Artículo 31.—El servicio de agua se clasificará en categorías y para cada una de ellas corresponderá una tarifa determinada. Las categorías son las siguientes: domiciliaria, ordinaria, reproductiva, preferencial, gobierno y provisional.
+Las categorías preferencial y gobierno comprenden solamente a las instituciones indicadas. Cualquier otra instalación perteneciente a las mismas instituciones que sea dedicada a otras actividades, debe ser clasificada según corresponda al uso de los servicios.

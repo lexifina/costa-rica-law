@@ -1,0 +1,1 @@
+Artículo 8º—El servicio de agua será prestado en forma continua, salvo el caso de reparaciones, mantenimiento, caso fortuito u otra causa justificante, en cuyo caso la Municipalidad deberá comunicar por anticipado de las alteraciones o interrupciones del servicio a los usuarios.

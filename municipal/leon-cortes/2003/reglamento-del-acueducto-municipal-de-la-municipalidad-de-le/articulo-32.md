@@ -1,0 +1,1 @@
+Artículo 32.—Los ingresos que se perciban por la prestación del servicio de agua, se destinarán únicamente para la operación, mantenimiento y mejoramiento del sistema de abastecimiento de agua potable, quedando por ello obligada la Municipalidad a llevar cuentas separadas de dichos fondos.

@@ -1,0 +1,1 @@
+Artículo 37.—En ningún caso podrán los usuarios reconectar un servicio que haya sido suspendido. De hacerlo, se procederá a desconectarlo de nuevo y cobrados dichos trabajos; no será reconectado el servicio hasta tanto no cancelado el valor de dichos trabajos, además de la aplicación de lo prescrito en el artículo anterior.

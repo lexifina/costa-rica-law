@@ -1,0 +1,4 @@
+Artículo 45.—Prohibición al usuario. Se prohíbe al usuario realizar las siguientes acciones:
+Tomar de las tuberías intra domiciliarias o de tanques de almacenamiento, derivación alguna (ramal) para darle servicio a otra edificación o lote independiente, tales derivaciones solo se podrán hacer en casos muy especiales previa autorización escrita del Alcalde Municipal, con la recomendación del Fontanero de la Institución.
+Se prohíbe a los usuarios reconectar un servicio que había sido suspendido conforme a lo establecido en el presente Reglamento. Si esto sucediera, la Municipalidad procederá a desconectar de nuevo el servicio y aplicará lo dispuesto en el artículo 45 inciso 1.
+En los casos de instalarse fuentes públicas para servicios colectivos, se prohíbe derivar pajas de agua y conectar mangueras de ellas para servicios particulares.

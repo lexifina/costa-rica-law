@@ -1,0 +1,1 @@
+Artículo 6º—La Municipalidad prestará sus servicios en la forma más eficiente que sus recursos y circunstancias lo permitan, tomará las medidas necesarias para asegurar el sostenimiento, desarrollo y ampliación del servicio, mediante aforos que deberá llevar a cabo mínimo una vez al año tomando en cuenta la época más lluviosa y la época más seca del año.

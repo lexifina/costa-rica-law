@@ -1,0 +1,1 @@
+Artículo 40.—Del plazo de la reconexión. El Alcalde o jefe del departamento respectivo, autorizará por escrito en el formulario diseñado para ello, a quien corresponda, la reconexión del servicio de agua potable dentro del menor plazo posible, y dentro del plazo mínimo de 24 horas siguientes a la cancelación de lo adeudado, o bien de la suscripción del respectivo arreglo de pago.

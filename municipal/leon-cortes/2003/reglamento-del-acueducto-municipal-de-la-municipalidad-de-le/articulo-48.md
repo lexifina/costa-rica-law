@@ -1,0 +1,1 @@
+Artículo 48.—La Municipalidad podrá realizar convenios con otras instituciones, de conformidad con el Código Municipal para que se encarguen de realizar estudios sobre la calidad del agua por lo menos una vez al año, garantizando así la potabilidad del agua al usuario.
