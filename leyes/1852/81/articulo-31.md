@@ -1,0 +1,1 @@
+Artículo 31:-Tanto los retiros de los correos, como las pensiones de montepío e inválidos, se concederán previa instrucción de causa, en la cual conste que la persona o personas interesadas se hallan en el caso de gozar de la gracia que solicitan; y con méritos a los documentos, justificaciones e informe de sus superiores hará el Gobierno la declaratoria correspondiente.

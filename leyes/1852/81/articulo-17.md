@@ -1,0 +1,2 @@
+Porterías
+Art 17.- El portero del Gobierno gozará del sueldo de doscientos veinte pesos anuales. El id de la Administración Principal de igual dotación. El Id de la Administración de tabacos del de doscientos pesos. El id del Congreso del Congreso del de cincuenta pesos. El id del Juzgado de Hacienda del ciento veinticuatro pesos. El id de la Administración de correos, que será también cartero, del de noventa y seis pesos anuales. Todos los demás porteros del de noventa y seis pesos anuales. Todos los demás porteros del de ciento cuarenta pesos cada uno.

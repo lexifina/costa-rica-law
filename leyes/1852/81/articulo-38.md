@@ -1,0 +1,1 @@
+Artículo 38°.- Desde el día 1° de octubre próximo comenzará a tener efecto la presente tarifa, quedando desde igual fecha derogada la de 1° de junio de 841 y cualesquiera otras disposiciones que se opongan a la presente.- Dado en la ciudad de San José a los veintitrés días del mes de setiembre de mil ochocientos cincuenta y dos.

@@ -1,0 +1,1 @@
+Art 23°.-Cuando a un empleado, sirviendo su propio destino, le encargarse el Gobierno el desempeño de otro compatible se le abonará, sobre el sueldo de su propio destino, la cuarta parte de la dotación del que se le ha encargado.

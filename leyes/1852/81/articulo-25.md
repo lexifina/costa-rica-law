@@ -1,0 +1,2 @@
+Artículo 25.- No se abonará sueldo alguno al empleado del nombramiento del Gobierno, de cualquier clase que sea, mientras que no haya obtenido el competente despacho con las tomas de razón correspondientes, y prestados el juramento de la fidelidad al Gobierno y a las leyes de la República.
+Único. Cuando algún empleado sea trasladado de su destino a otro cualquiera bastará anotarlo asi en el despacho que tiene, tomándose razón de la traslación en las oficinas que corresponda.
