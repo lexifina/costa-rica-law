@@ -14,3 +14,4 @@ Regula la exportación de atún crudo refrigerado o congelado y atún procesado 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-01-31 | la propia norma |
+| 2 | 1981-10-02 | Decreto Ejecutivo 13007 (1981-10-02) |

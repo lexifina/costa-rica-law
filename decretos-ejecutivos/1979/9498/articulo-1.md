@@ -10,4 +10,4 @@ En uso de las facultades conferidas por los incisos 3) Y 18), artículo 140 de l
 DECRETAN:
 Artículo 1°-Regular la exportación de:
 a) Atún crudo, refrigerado o congelado, capturado por embarcaciones de bandera nacional, o las de bandera extranjera que tengan licencia costarricense , y
-b) Atún procesado envasado herméticamente, o en cualquier otra forma.
+b) (Este inciso fue derogado por el artículo 2° del decreto ejecutivo N° 13007 del 2 de octubre de 1981)
