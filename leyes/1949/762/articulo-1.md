@@ -1,3 +1,4 @@
+(Esta norma fue derogada por el artículo 310 (actual 316) de la ley N° 5150 del 14 de mayo de 1973, "Ley General de Aviación Civil")
 1º.- Que es necesario dotar al país de una legislación capaz de
 regular eficientemente y bajo condiciones de seguridad la aviación civil;
 2º.- Que la legislación aérea costarricense debe ser llevada a la

@@ -1,0 +1,18 @@
+Artículo 27.- En el Registro Aeronáutico Administrativo se inscribirán:
+I. Los comprobantes de aeronavegabilidad, la nacionalidad, matrícula
+de la aeronave y especificaciones adecuadas para identificarlas.
+II. Los certificados de explotación para servicios de transporte
+aéreo, las autorizaciones para ejercer servicios de transporte
+aéreo no regular; los permisos de vuelo transitorios, sus
+cancelaciones o modificaciones.
+Los certificados de explotación para aviación agrícola, escuelas
+de aviación, talleres de mantenimiento de aeronaves o de piezas
+o partes para las mismas.
+III. Las licencias del personal técnico aeronáutico y los certificados
+de capacidad otorgados al personal.
+IV. Las escrituras de constitución de las empresas costarricenses y
+extranjeras de transporte aéreo, así como los poderes de sus
+representantes legales, el nombre, domicilio, nacionalidad de los
+directores, apoderados y gerentes de dichas empresas.
+V. Los demás documentos de trascendencia administrativa que señalen
+esta ley o sus reglamentos.
