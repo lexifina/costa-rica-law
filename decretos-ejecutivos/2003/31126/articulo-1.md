@@ -1,0 +1,34 @@
+N° 31126-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AMBIENTE Y ENERGÍA
+En el uso de las facultades que les confiere los artículos 140, incisos 3) y 18), y 146 de la Constitución Política, Ley de Biodiversidad Nº 7788 del 30 de abril de 1998.
+Considerando:
+1º—Que la Ley de Biodiversidad Nº 7788 del 30 de abril de 1998, creó la Comisión Nacional para la Gestión de Biodiversidad como un órgano desconcentrado del Ministerio del Ambiente y Energía con personería jurídica instrumental.
+2º—Que la citada ley le asigna a esa Comisión, funciones referentes a la conservación, el uso ecológicamente sostenible y la restauración de la biodiversidad, que son de vital importancia para el desarrollo sostenible del país.
+3º—Que el artículo 15 de la Ley de Biodiversidad establece la obligación del Poder Ejecutivo de integrar la Comisión, según el nombramiento realizado por los entes y organizaciones que señala la ley, así como por los miembros suplentes que ellos nombren. Por tanto,
+Decretan:
+Artículo 1º—Se integra la Comisión Nacional para la Gestión de la Biodiversidad con los siguientes miembros:
+1. Miembros propietarios:
+a) Señor Manuel Antonio Bolaños Salas, representante del Ministro del Ambiente y Energía, quien será el Presidente de la Comisión y responsable de su adecuado funcionamiento.
+b) Señor Raúl Solórzano Soto, Director Superior del Sistema Nacional de Áreas de Conservación.
+c) Señor Alfredo Bolaños Herrera, representante del Ministerio de Agricultura y Ganadería.
+d) Señora Rosy Carballo Picado, representante de la Ministra de Salud.
+e) Señora Susana Vásquez Álvarez, representante del Ministro de Comercio Exterior.
+f) Señor Carlos Hernández Porras, representante de la Asociación Mesa Nacional Campesina.
+g) Señor Reynaldo González Segura, representante de la Asociación Mesa Nacional Indígena.
+h) Señor Berny Marín Alpízar, representante del Instituto Costarricense de Pesca y Acuacultura.
+i) Señora Ana María Fallas Quesada, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+j) Señor Daniel Briceño Lobo, representante de la Comisión Nacional de Rectores.
+k) Señor Isaac Rojas Ramírez, representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
+2. Miembros suplentes:
+a) Señora Laura Montero Ramírez, representante del Viceministro del Ambiente y Energía.
+b) Señora Lesbia Sevilla Estrada, representante del Director Superior del Sistema Nacional de Áreas de Conservación.
+c) Señor Nevio Bonilla Morales, representante del Ministro de Agricultura y Ganadería.
+d) Señor Jorge Mena Arce, representante del Ministro de Salud.
+e) Señora Tatiana Mora Rodríguez, representante del Ministro de Comercio Exterior.
+f) Señor Rafael Salazar Murillo, representante de la Asociación Mesa Nacional Campesina.
+g) Señor Donald Rojas Maroto, representante de la Asociación Mesa Nacional Indígena.
+h) Señora Ana Rita Vásquez Arias, representante del Instituto Costarricense de Pesca y Acuacultura.
+i) Señora Mariela Herrera Morera, representante de la Unión Costarricense de Cámaras de la Empresa Privada.
+j) Señor Ruperto Quesada Monge, representante de la Comisión Nacional de Rectores.
+k) Señor Carlos Luis Sandí Chinchilla representante de la Federación Costarricense de Organizaciones para la Conservación del Ambiente.
