@@ -1,62 +1,18 @@
 ARTICULO 2
 Sustancias sujetas a Fiscalización
-1.-Con excepción de las medidas de fiscalización que se limiten a
-estupefacientes determinados, los estupefacientes de la Lista 1 estarán
-sujetos a todas las medidas de fiscalización aplicables a los
-estupefacientes en virtud de la presente Convención y, en particular, a
-las previstas en los artículos: 4 c), 19, 20, 21, 29, 30, 31, 32, 33, 34 y
-37.
-2.-Los estupefacientes de la Lista 2 estarán sujetos a las mismas
-medidas de fiscalización que los de la Lista 1, salvo las medidas
-prescritas en el artículo 30, incisos 2 y 5, respecto del comercio al por
-menor.
-3.-Los preparados distintos de aquéllos de la Lista 3 estarán sujetos
-a las mismas medidas de fiscalización que los estupefacientes que
-contengan, pero con respecto a dichos preparados, no se exigirán las
-previsiones (artículo 19) ni las estadísticas (artículo 20) que no
-correspondan a los referidos estupefacientes, ni será necesario aplicar lo
-dispuesto por los artículos 29, inciso 2 c) y 30, inciso 1 b) ii).
-4.-Los preparados de la Lista 3 estarán sujetos a las mismas medidas
-de fiscalización que los que contengan estupefacientes de la Lista 2,
-excepto que no será necesario aplicar en su caso las disposiciones del
-artículo 31, inciso 1 b) y 3 a 15, y que, a los fines de las previsiones
-(artículo 19) y estadísticas (artículo 20), sólo se exigirá la información
-relativa a las cantidades de estupefacientes que se empleen en la
-fabricación de dichos preparados.
-5.-Los estupefacientes de la Lista 4 serán también incluidos en la
-Lista 1 y estarán sujetos a todas las medidas de fiscalización aplicables
-a los estupefacientes que figuren en esta última Lista y, además, a las
-siguientes:
-a) Las Partes adoptarán todas las medidas especiales de fiscalización
-que juzguen necesarias en vista de las propiedades particularmente
-peligrosas de los estupefacientes de que se trata; y
-b) Las Partes prohibirán la producción, fabricación, exportación e
-importación, comercio, posesión o uso de tales estupefacientes, si a su
-juicio las condiciones que prevalezcan en su país hacen que sea éste el
-medio más apropiado para proteger la salud y el bienestar público, con
-excepción de las cantidades necesarias únicamente para la investigación
-médica y científica, incluidos los experimentos clínicos con dichos
-estupefacientes que se realicen bajo la vigilancia y fiscalización de la
-Parte o estén sujetos a su vigilancia y fiscalización directas.
-6.-Además de las medidas de fiscalización aplicables a todos los
-estupefacientes de la Lista 1, el opio estará sometido a las disposiciones
-de los artículos 23 y 24, la hoja de coca a las de los artículos 26 y 27,
-y la cannabis a las del artículo 28.
-7.-La adormidera, el arbusto de coca, la planta de cannabis, la paja
-de la adormidera y las hojas de la cannabis estarán sujetas a las medidas
-de fiscalización prescritas en los artículos 22 a 24; 22, 26, y 27, 22 y
-28; 25; y 28 respectivamente.
-8.-Las partes harán todo lo posible para aplicar las medidas de
-fiscalización que sean factibles a las sustancias no sujetas a las
-disposiciones de esta Convención, pero que puedan ser utilizadas para la
-fabricación ilícita de estupefacientes.
-9.-Las Partes no estarán obligadas a aplicar las disposiciones de la
-presente Convención a los estupefacientes que se usan comúnmente en la
-industria para fines que no sean médicos o científicos, siempre que:
-a) Por los procedimientos de desnaturalización apropiados o por otros
-medios, logren impedir que los estupefacientes utilizados puedan prestarse
-a uso indebido o producir efectos nocivos (artículo 3, inciso 3) y que sea
-posible en la práctica recuperar las sustancias nocivas; y
-b) Incluyan en los datos estadísticos (artículo 20) que suministren
-las cifras correspondientes a la cantidad de cada estupefaciente utilizado
-de esta forma.
+1.-Con excepción de las medidas de fiscalización que se limiten a estupefacientes determinados, los estupefacientes de la Lista 1 estarán sujetos a todas las medidas de fiscalización aplicables a los estupefacientes en virtud de la presente Convención y, en particular, a las previstas en los artículos: 4 c), 19, 20, 21, 29, 30, 31, 32, 33, 34 y 37.
+2.-Los estupefacientes de la Lista 2 estarán sujetos a las mismas medidas de fiscalización que los de la Lista 1, salvo las medidas prescritas en el artículo 30, incisos 2 y 5, respecto del comercio al por menor.
+3.-Los preparados distintos de aquéllos de la Lista 3 estarán sujetos a las mismas medidas de fiscalización que los estupefacientes que contengan, pero con respecto a dichos preparados, no se exigirán las previsiones (artículo 19) ni las estadísticas (artículo 20) que no correspondan a los referidos estupefacientes, ni será necesario aplicar lo dispuesto por los artículos 29, inciso 2 c) y 30, inciso 1 b) ii).
+4.- Los preparados de la Lista III estarán sujetos a las mismas medidas de fiscalización que los que contengan estupefacientes de la Lista II, excepto que no será necesario aplicar en su caso las disposiciones del artículo 31, párrafos 1 b) y 3 a 15, ni en lo que respecta a su adquisición y su distribución al por menor, las del artículo 34, apartado b), y que, a los fines de las previsiones (artículo 19) y estadísticas (artículo 20), solo se exigirá la información relativa a las cantidades de estupefacientes que se empleen en la fabricación de dichos preparados.
+(Así reformado por el artículo 1 del Protocolo de Modificación al presente Convenio, ley No.5168 del 8 de enero de 1973)
+5.-Los estupefacientes de la Lista 4 serán también incluidos en la Lista 1 y estarán sujetos a todas las medidas de fiscalización aplicables a los estupefacientes que figuren en esta última Lista y, además, a las siguientes:
+Las Partes adoptarán todas las medidas especiales de fiscalización que juzguen necesarias en vista de las propiedades particularmente peligrosas de los estupefacientes de que se trata; y
+Las Partes prohibirán la producción, fabricación, exportación e importación, comercio, posesión o uso de tales estupefacientes, si a su juicio las condiciones que prevalezcan en su país hacen que sea éste el medio más apropiado para proteger la salud y el bienestar público, con excepción de las cantidades necesarias únicamente para la investigación médica y científica, incluidos los experimentos clínicos con dichos estupefacientes que se realicen bajo la vigilancia y fiscalización de la Parte o estén sujetos a su vigilancia y fiscalización directas.
+6.- Además de las medidas de fiscalización aplicables a todos los estupefacientes de la Lista I, el opio estará sometido a las disposiciones del apartado f) del párrafo 1 del artículo 19, y de los artículos 21 bis, 23 y 24, la hoja de coca a las de los artículos 26 y 27, y la cannabis a las del artículo 28.
+(Así reformado por el artículo 1 del Protocolo de Modificación al presente Convenio, ley No.5168 del 8 de enero de 1973)
+7.- La adormidera, el arbusto de coca, la planta de cannabis, la paja de la adormidera y las hojas de la cannabis estarán sujetos a las medidas de fiscalización prescritas en el apartado e) del párrafo 1 del artículo 19, en el apartado g) del párrafo 1 del artículo 20, y en los artículos 19, 20, 21 bis y 22 a 24; 22, 26 y 27; 22 y 28; 25; y 28, respectivamente.
+(Así reformado por el artículo 1 del Protocolo de Modificación al presente Convenio, ley No.5168 del 8 de enero de 1973)
+8.- Las partes harán todo lo posible para aplicar las medidas de fiscalización que sean factibles a las sustancias no sujetas a las disposiciones de esta Convención, pero que puedan ser utilizadas para la fabricación ilícita de estupefacientes.
+9.-Las Partes no estarán obligadas a aplicar las disposiciones de la presente Convención a los estupefacientes que se usan comúnmente en la industria para fines que no sean médicos o científicos, siempre que:
+Por los procedimientos de desnaturalización apropiados o por otros medios, logren impedir que los estupefacientes utilizados puedan prestarse a uso indebido o producir efectos nocivos (artículo 3, inciso 3) y que sea posible en la práctica recuperar las sustancias nocivas; y
+Incluyan en los datos estadísticos (artículo 20) que suministren las cifras correspondientes a la cantidad de cada estupefaciente utilizado de esta forma.
