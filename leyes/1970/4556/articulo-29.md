@@ -1,0 +1,3 @@
+CAPITULO IX
+La Acción de Personal
+Artículo 29.- Todo movimiento de personal que se efectúe por ingreso, promoción, traslado, aumento de sueldo, vacación, permiso mayor de ocho días, suspenso, regreso al trabajo, renucia, o cualquier otro acto, disposición o resolución que deba figurar en el respectivo expediente de personal del servidor, será tramitado mediante una fórmula que se denominará Acción de Personal, la que deberá se aprobada por el Director Administrativo y la Dirección General. El Tesorero Nacional no tramitará el pago de salarios a servidores que hayan sido nombrados o reinstalados a sus puestos, o cuyos sueldos hayan sido aumentados en cualquier otra forma, si no ha recibido previamente la respectiva Acción de Personal debidamente aprobada.

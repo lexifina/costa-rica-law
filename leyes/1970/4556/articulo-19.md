@@ -1,0 +1,3 @@
+Artículo 19.- Los nombramientos para sustituir temporalmente a servidores regulares, por cualquier causa de suspensión de la relación de trabajo, no excederán de un año. Cuando pasen de tres meses, deberán sujetarse a las disposiciones de los artículos 10, 11 y 12 de la presente ley.
+Los candidatos escogidos, quedarán sometidos al período de prueba, y de quedar vacante la plaza, adquirirán la condición de servidores regulares, desde el mismo día en que iniciaron sus labores.
+Dichos candidatos, caso de ser servidores regulares cubiertos por el Régimen de Servicio Civil, gozarán de permiso en sus puestos, mientras dure su interinidad.

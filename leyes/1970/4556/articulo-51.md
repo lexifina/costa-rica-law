@@ -1,0 +1,1 @@
+Artículo 51.- Los empleados de confianza tienen derecho a participar en los concursos externos que se hagan para llenar las vacantes que dejen los empleados regulares; y sus años de servicio, así como su experiencia, serán tomados en cuenta, conforme a los dispuesto en la presente ley.
