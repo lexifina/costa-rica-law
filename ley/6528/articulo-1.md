@@ -33,7 +33,7 @@ CUARTA: El presente Convenio entrará en vigor una vez que haya sido
 ratificado por la Asamblea Legislativa de la República de Costa Rica, para
 los efectos de las cláusulas segunda y tercera.
 Firmado en San José, a los treinta días del mes de julio de mil
-novecientos ochenta, en dos ejemplares en idioma español, siendo ambos
+novecientos ochenta, en dos ejemplares e idioma español, siendo ambos
 textos igualmente auténticos y válidos.
 Por el Gobierno de la República de Por la Corte
 Costa Rica Interamericana de
@@ -73,13 +73,14 @@ persiga fines y objetivos análogos o complementarios y que respete los
 principios del Instituto.
 7) Para alcanzar sus fines, el Instituto podrá realizar todos los actos
 jurídicos y actividades que para ello se requieran y, en especial:
-a) Organizar conferencias, coloquios, seminarios, cursos, encuentros,
-mesas redondas, y, en general, emplear cualquier otro método para la
-enseñanza, la investigación y la promoción de los derechos humanos;
-b) Organizar programas de investigación en materia de derechos humanos
-que podrán realizarse con la cooperación de otras instituciones nacionales,
-extranjeras o internacionales, que persigan fines análogos o
-complementarios y compartan los principios del Instituto;
+a) Organizar conferencias, coloquios, seminarios, cursos,
+encuentros, mesas redondas, y, en general, emplear cualquier otro método
+para la enseñanza, la investigación y la promoción de los derechos
+humanos;
+b) Organizar programas de investigación en materia de derechos
+humanos que podrán realizarse con la cooperación de otras instituciones
+nacionales, extranjeras o internacionales, que persigan fines análogos
+o complementarios y compartan los principios del Instituto;
 c) Fomentar la enseñanza, investigación y promoción de los derechos
 humanos en todas las formas y niveles de la educación;
 d) Desarrollar programas de publicaciones;
@@ -92,17 +93,17 @@ derechos humanos, con especial referencia a América;
 h) Formular proyectos para la creación de institutos nacionales de
 protección y promoción de los derechos humanos en América y asesorar a
 gobiernos y entidades públicas y privadas que lo soliciten; e
-i) Desarrollar cualquier otra actividad que sea útil o necesaria para
-el logro de sus fines.
+i) Desarrollar cualquier otra actividad que sea útil o necesaria
+para el logro de sus fines.
 8) El Instituto estará integrado por las siguientes categorías de
 miembros:
 a) Ex-Officio: Los jueces de la Corte Interamericana de Derechos
-Humanos en ejercicio. Al cesar en sus cargos pasarán automáticamente a la
-categoría b;
-b) Individuales: Expertos en derechos humanos y personas dedicadas a
-su defensa, promoción, enseñanza o investigación;
-c) Honorarios: Personas que se han distinguido por sus servicios a la
-causa de los derechos humanos;
+Humanos en ejercicio. Al cesar en sus cargos pasarán automáticamente
+a la categoría b;
+b) Individuales: Expertos en derechos humanos y personas dedicadas
+a su defensa, promoción, enseñanza o investigación;
+c) Honorarios: Personas que se han distinguido por sus servicios
+a la causa de los derechos humanos;
 d) Asociados: En la forma que se establezca en el Reglamento; y
 e) Patrocinadores: Personas físicas o colectivas, internacionales o
 nacionales, públicas o privadas, que se interesen y contribuyan
@@ -111,7 +112,8 @@ del Instituto.
 El Instituto podrá incorporar a sus actividades a cualquier persona
 física o colectiva, sin darle la categoría de miembro, cuando se considere
 útil para el logro de sus fines.
-9) Los miembros del Instituto, serán asignados por el Consejo Directivo.
+9) Los miembros del Instituto, serán asignados por el Consejo
+Directivo.
 10) Los órganos principales del Instituto serán la Asamblea General, el
 Consejo Directivo y el Director Ejecutivo. Los órganos funcionarán
 regularmente en la sede del Instituto, sin perjuicio de que la Asamblea
@@ -127,23 +129,23 @@ fecha de la reunión de la Asamblea General coincidirá con la fecha de
 reunión del Consejo Directivo.
 13) La Asamblea General se constituirá con los miembros presentes que
 tengan derecho de voz y voto. Para adoptar sus resoluciones, salvo
-disposición especial del Estatuto, se requerirá el voto afirmativo de la
-mayoría de los miembros presentes.
+disposición especial del Estatuto, se requerirá el voto afirmativo de
+la mayoría de los miembros presentes.
 14) La Asamblea General deberá:
-a) Conocer del informe de actividades realizadas, que presentará el
-Director Ejecutivo, previa consideración por el Consejo Directivo;
+a) Conocer del informe de actividades realizadas, que presentará
+el Director Ejecutivo, previa consideración por el Consejo Directivo;
 b) Considerar el programa de labores, aprobado por el Consejo
 Directivo, a propuesta del Director Ejecutivo;
 c) Aprobar el presupuesto bienal del Instituto, a propuesta del
 Consejo Directivo;
-d) Pronunciarse sobre la rendición de cuenta y el informe del Auditor
-Externo; y
+d) Pronunciarse sobre la rendición de cuenta y el informe del
+Auditor Externo; y
 e) Ejercer, a solicitud del Consejo Directivo, cualesquiera otras
 atribuciones no expresamente previstas y asignadas a otro órgano.
 Si la Asamblea General no se reuniere en la fecha señalada, o en los
 casos de urgencia, el Consejo Directivo ejercerá las atribuciones
 enumeradas en los párrafos a), b, c) y e). El Consejo Directivo
-determinará cuáles son los casos de urgencia.
+deter0minará cuáles son los casos de urgencia.
 15) El Consejo Directivo estará integrado por no menos de quince y no más
 de veintiún miembros y además lo integrarán, como miembros ex-officio, los
 jueces de la Corte Interamericana que se hagan presentes en sus sesiones.
@@ -155,9 +157,9 @@ Director Ejecutivo actuará como Secretario del Consejo.
 18) El Consejo Directivo se reunirá por lo menos una vez al año, sin
 necesidad de previa convocatoria. El Presidente fijará la fecha de la
 sesión.
-19) El quórum para sesionar será de la mayoría absoluta de sus miembros en
-ejercicio de sus cargos. Las decisiones se adoptarán por la mayoría de los
-miembros presentes. En caso de empate, el Presidente tendrá voto
+19) El quórum para sesionar será de la mayoría absoluta de sus miembros
+en ejercicio de sus cargos. Las decisiones se adoptarán por la mayoría
+de los miembros presentes. En caso de empate, el Presidente tendrá voto
 dirimente.
 20) El Consejo Directivo deberá:
 a) Nombrar a los miembros del Instituto;
@@ -166,19 +168,20 @@ c) Considerar el informe del Director Ejecutivo y elevarlo con sus
 comentarios a la Asamblea General;
 d) Aprobar el programa de labores que deberá ser proyectado por el
 Director General y elevarlo con sus comentarios a la Asamblea General;
-e) Proponer a la Asamblea General el proyecto de presupuesto bienal del
-Instituto, teniendo en cuenta el texto preparado por el Director Ejecutivo;
-f) Elegir a sus integrantes, en los términos previstos en el artículo
-16;
+e) Proponer a la Asamblea General el proyecto de presupuesto bienal
+del Instituto, teniendo en cuenta el texto preparado por el Director
+Ejecutivo;
+f) Elegir a sus integrantes, en los términos previstos en el
+artículo 16;
 g) Nombrar al Director Ejecutivo y en su caso el Director Ejecutivo
 Adjunto; y
 h) Ejercer las atribuciones de la Asamblea General en los casos
 previstos en el párrafo final del artículo 14.
 21) La designación de miembros del Instituto y el ejercicio de las
 atribuciones previstas en el artículo 20, párrafo g) serán decididas por
-mayoría de componentes del Consejo Directivo. Se requerirá también mayoría
-de componentes en los otros casos en que ello sea exigido en el presente
-Estatuto.
+mayoría de componentes del Consejo Directivo. Se requerirá también
+mayoría de componentes en los otros casos en que ello sea exigido en el
+presente Estatuto.
 22) El Director Ejecutivo y en su caso el Director Ejecutivo Adjunto,
 serán nombrados por un período de tres años. No podrán ser miembros del
 Consejo. Estos cargos son de particular confianza. El Consejo Directivo
@@ -187,8 +190,8 @@ Adjunto, en cualquier momento. Para decidir estas remociones se requerirá
 una decisión adoptada por mayoría de los componentes del Consejo Directivo.
 23) El Director Ejecutivo podrá participar en las deliberaciones del
 Consejo Directivo con derecho a voz pero sin voto.
-24) El Director Ejecutivo, que será el representante legal del
-Instituto, tendrá las siguientes atribuciones:
+24) El Director Ejecutivo, que será el representante legal del Instituto,
+tendrá las siguientes atribuciones:
 a) La preparación del informe de actividades, del programa de labores
 y del anteproyecto de presupuesto del Instituto, que deberá presentar al
 Consejo Directivo y a la Asamblea General;
@@ -216,3 +219,4 @@ Corte Interamericana de Derechos Humanos, en consulta con la Comisión
 Permanente de la misma.
 II) El Consejo Directivo designará al Director Ejecutivo en el más breve
 plazo posible.
+Artículo 2º.- Rige a partir de su publicación.
