@@ -1,0 +1,1 @@
+Artículo 20.-El nombramiento de Caminero Cantonal no será efectivo sino hasta que fuere ratificado por el Departamento de Caminos Vecinales. No podrá ser designada la persona que tenga parentesco, por consanguinidad o afinidad, dentro del tercer grado inclusive, con cualquiera de los miembros de la Junta Cantonal respectiva.

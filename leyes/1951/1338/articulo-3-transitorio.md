@@ -1,0 +1,1 @@
+Transitorio llI.-Las sumas percibidas por detalles .de caminos hasta la fecha de promulgación de esta ley, y que estén actualmente en caja, se destinarán por el Ministerio de Obras Públicas, a la compra de maquinaria que será usada exclusivamente en caminos vecinales.
