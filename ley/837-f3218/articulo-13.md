@@ -1,32 +1,10 @@
-Artículo 13.- Además de las rebajas autorizadas por los artículos 8º., 10 y 12 el declarante, siempre que se trate de persona física domiciliada en el país, deducirá:
-1) Diez mil colones (¢ 10,000.00), por su persona.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
-2) Cinco mil colones (¢ 5,000.00), por su cónyuge, cuando no exista separación judicial. En caso de tener rentas independientes, la rebaja podrá ser hecha por cualquiera de ellos o entre ambos. Si los cónyuges viven separados, sólo se permitirá esta deducción a aquél a cuyo cargo esté la manutención del otro.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
-3) Tres mil quinientos colones (¢ 3,500.00), por cada hijo; y mil quinientos colones (¢ 1,500.00) por cada personas, hasta un máximo de tres, cuando sean dependientes del declarante. Se entiende por dependiente, cualquier persona relacionada por parentesco de consanguinidad, afinidad o por adopción del declarante, si hubiere recibido de éste, durante el período de la deducción, más de la mitad de su sustento y mientras esté comprendida en alguno de los siguientes casos:
-a) Que sea menor de edad;
-b) Que no pueda proveerse su propio sustento debido a incapacidad física o mental;
-c) Que siga estudios universitarios, sin haberse graduado y siempre que no fuere mayor de treinta años; y
-d) Que sea ascendiente del declarante.
-(Así reformado el inciso 3) anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
-4) Por concepto de otras deducciones personales, el quince por ciento (15%) de la renta bruta obtenida en el año a que se refiere el impuesto, hasta un máximo de quince mil colones (¢ 15.000,00).
-Los montos podrán ser variados por el Poder Ejecutivo, mediante decreto, en cada período fiscal, de conformidad con las variantes que sufra el monto del índice implícito del producto interno bruto.
-Podrán incluirse, dentro de otras deducciones personales hasta alcanzar el máximo anteriormente señalado, las cuotas obreras a la Caja Costarricense de Seguro Social; las pensiones alimenticias por sentencia firme de autoridad competente; cuotas al Fondo de Pensiones creado por ley especial; mutualidad de colegios profesionales; impuesto territorial; impuestos municipales; intereses pagados por deudas propias; remesas a dependientes para estudios en el extranjero que no pueden realizarse en el país; primas pagadas por seguros de incendio; otras deducciones que, a juicio de la Administración Tributaria, se justifiquen.
-Las deducciones de intereses por deudas propias sólo procederán, si el declarante indica los nombres de los beneficiarios de esas rentas, y sus números de cédula de identidad, si se tratare de personas físicas.
-En caso de que el declarante estime que el total de otras deducciones personales, citadas en este inciso, supera el quince por ciento (15%) de su renta bruta, puede reclamar un monto superior a ese quince por ciento (15%), siempre que la suma reclamada no exceda de quince mil colones (¢ 15.000,00). En este caso está obligado a probar, a requerimiento de la Administración, las deducciones que permite el presente inciso.
-(Así reformado el inciso anterior por el artículo 2° de la ley N° 6450 del 15 de julio de 1980)
-5) Las donaciones que se hagan para los fines indicados en el inciso 9) del artículo 8º, con las limitaciones que para su aceptación establece dicho inciso;
-6) Primas de vida pagadas al Instituto Nacional de Seguros, primas sobre títulos de capitalización del Sistema Bancario Nacional y las cuotas de ahorro y préstamo pagadas al Instituto de Vivienda y Urbanismo, de acuerdo con la ley Nº 1901 de 9 de julio de 1955, que reformó la Ley Orgánica del INVU, hasta un máximo conjunto de ocho mil colones (¢ 8,000.00).
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 5610 del 20 de noviembre de 1974)
-7) Cada vez que el aumento en el costo de la vida, según informe de la Dirección General de Estadística y Censos, exceda de un diez por ciento (10%) al año, el Poder Ejecutivo, mediante decreto, podrá aumentar, en la proporción correspondiente a ese aumento, los deducibles a que se refieren los incisos 1), 2) y 3) de este artículo, los cuales regirán para el período fiscal siguiente.
-(Así adicionado el inciso anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
-(Así reformado el inciso anterior por el artículo 2° de la ley N° 6450 del 15 de julio de 1980)
-8) El veinticinco por ciento (25%) de lo pagado a profesionales residentes en el país y el veinte por ciento (20%) del alquiler anual pagado por la casa de habitación. Las deducciones de honorarios pagados a profesionales y de alquiler anual, sólo procederán, si el declarante indica los nombres de los beneficiarios de esas rentas, y aporta el número de cédula de identidad o el nombre o la razón social en los casos en que los beneficiarios sean sociedades de hecho, de derecho o cualquier tipo de persona jurídica.
-Las sumas pagadas a instituciones de enseñanza primaria, media y superior, por estudios que hayan realizado en el país, los hijos menores de veinticinco años, según los montos y porcentajes que serán fijados en el reglamento que dictará el Poder Ejecutivo.
-No obstante lo dispuesto en los incisos precedentes, toda persona física domiciliada en el país, podrá deducir de su renta bruta, sin necesidad de prueba, hasta cuarenta mil colones (¢ 40.000,00) en el año fiscal, como deducción única por todos los conceptos que autoriza este artículo.
-Es entendido que en todos los casos en que esta ley prevé la aplicación de las variantes del monto del índice implícito de producto interno bruto, el Poder Ejecutivo efectuará en forma simultánea y cubrirá por igual las diferentes situaciones contempladas en esta ley.
-(Así adicionado el inciso anterior por el artículo 2° de la ley N° 6450 del 15 de julio de 1980)
-No obstante los dispuesto en los incisos precedentes, toda persona física domiciliada en el país, podrá deducir de su renta bruta, sin necesidad de prueba, hasta veintiséis mil colones (¢ 26,000.00) en el año fiscal, como deducción única por todos los conceptos que autoriza este artículo.
-(Así reformado el párrafo anterior por el artículo 1° de la ley N° 5610 del 20 de noviembre de 1974)
-En caso de que el declarante estime que el total de deducciones, calculado conforme las normas de los incisos precedentes, supera la suma de quince mil colones... (¢ 15,000.00), puede reclamar un monto superior, en cuyo caso está obligado a probar, a requerimiento de la Administración, las deducciones que permite el presente artículo.
-(Así reformado por el artículo 20 de la ley N° 4961 del 11 de marzo de 1972)
+Artículo 13.- Además de las rebajas autorizadas en los artículo 8º, 10 y 12, el declarante, siempre que se trate de persona física domiciliada en el país deducirá:
+1) Las cuotas obreras pagadas a la Caja Costarricense de Seguro Social.
+2) Las pensiones alimenticias impuestas por sentencia firme de la autoridad competente.
+3) El cincuenta por ciento (50%) de lo pagado a profesionales liberales residentes en el país, y el treinta por ciento (30%) de los alquileres pagados por la casa de habitación. Las deducciones de honorarios pagados a profesionales y de alquiler sólo procederán si el declarante indica los nombres de los beneficiarios de esas rentas y aporta el número de cédula de identidad, o el nombre o razón social cuando los beneficiarios sean sociedades de hecho, de derecho o cualquier tipo de persona jurídica.
+4) Las primas pagadas al Instituto Nacional de Seguros por seguros obligatorios.
+5) El veinte por ciento (20%) de la renta neta por concepto de otras deducciones personales, hasta un máximo de cuarenta y cinco mil colones (¢45.000,00).
+Quedan comprendidas dentro de esas deducciones las cuotas de fondos de pensiones creados por leyes especiales, mutualidades de colegios profesionales, impuesto territorial, impuestos municipales, intereses por deudas propias y remesas a dependientes para estudios en el extranjero.
+El contribuyente podrá optar por hacer esta deducción de manera automática, o detallar las deducciones anteriores, en cuyo caso tendrá derecho a un importe mayor al veinte por ciento (20%) de su renta, pero sin exceder del tope fijado de cuarenta y cinco mil colones (¢ 45.000,00).
+El resultante de practicar las deducciones indicadas de la renta neta constituye la renta líquida.
+(Así reformado por el artículo 1° de la ley N° 6952 del 29 de febrero de 1984)
