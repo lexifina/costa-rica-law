@@ -1,0 +1,5 @@
+Artículo 2°-Queda derogada la ley número 256 de 19 de setiembre de 1943, que reforma los artículos 63 y 64 del Código Penal, así como cualquier otra que se oponga a la presente. El término "Consejo Nacional de Prisiones" quedará sustituido por el de "Consejo Superior de Prisiones" en todos los textos legales en que exista y así se hará al citarlos o reproducirlos. Las partidas del Presupuesto General vigente, consignadas en sus artículos 542 y 543. relativas a la Dirección General y al Consejo Nacional de Prisiones, pasarán a la Cartera de Seguridad Pública, donde seguirán figurando en lo sucesivo. La Tesorería Nacional tomará nota para el efecto de extender los giros correspondientes y demás formalidades de pago de servicios.
+Esta ley rige desde el día de su publicación.
+COMUNIQUESE AL PODER EJECUTIVO
+Dado en el Salón de Sesiones del Congreso.-Palacio Nacional.-San José, a los cuatro días del mes de diciembre de mil novecientos cuarenta y seis.
+Casa Presidencial.-San José. a los trece días del mes de diciembre de mil novecientos cuarenta y seis.-
