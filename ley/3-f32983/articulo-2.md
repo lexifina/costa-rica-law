@@ -1,0 +1,2 @@
+Art. 2°-Señálanse las doce del día nueve del mes en curso para recibir al nombrado el juramento de ley.
+AL PODER EJETIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los seis días del mes de mayo de mil ochocientos ochenta y siete.-A. ESQUIVEL, Presidente.-A. VENEGAS, Secretario.-MÁXIMO FERNÁNDEZ, Secretario.-Palacio Presidencial.-San José, seis de mayo de mil ochocientos ochenta y siete. -Publíquese.-BERNARDO SOTO. -El Secretario de Estado en el despacho de Justicia, -CLETO GONZÁLEZ VÍQUEZ.
