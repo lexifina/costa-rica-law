@@ -1,0 +1,1 @@
+Artículo 15.—Del periodo de prueba: Una vez nombrado el auditor o subauditor será sujeto a un periodo de prueba de tres meses, pasado este plazo, la Junta Administrativa del Archivo Nacional procederá a comunicar a la Contraloría General de la República su conformidad o disconformidad del desempeño del funcionario nombrado.
