@@ -10,9 +10,10 @@ c) 7% (siete por ciento) a la Junta Administrativa del Museo Histórica
 Juan Santamaría de la ciudad de Alajuela.
 ch) 8% (ocho por ciento) a la Asociación al Niño con Cariño, de la ciudad
 de Alajuela.
-d) 5% (cinco por ciento) a la Municipalidad de Alajuela, para los actos
-conmemorativos del sesquicentenario del nacimiento del Héroe Nacional
-Juan Santamaría.
+d) cinco por ciento (5%) a la Municipalidad de Alajuela, que serán destinado
+a obras urgentes de esa Municipalidad.
+(Así reformado por el artículo 16 de la ley Nº 6811 de 10 de setiembre de
+1982)
 e) 5% (cinco por ciento) para el Consejo Nacional de Rehabilitación y
 Educación Especial, el cual será'destinado al proyecto de taller social de
 la ciudad de Naranjo.
