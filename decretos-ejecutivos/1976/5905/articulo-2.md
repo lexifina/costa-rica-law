@@ -1,0 +1,1 @@
+Artículo 2° — La Comisión de Emergencia Nacional, así como el Poder Ejecutivo por medio de sus respectivos Ministros y otras entidades del Sector Público, deberán colaborar con la Comisión Nacional de Asuntos Indígenas (CONAI) para asegurar la protección de las citadas Reservas Indígenas y garantizar la seguridad de sus habitantes y de sus bienes.
