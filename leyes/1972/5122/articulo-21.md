@@ -1,0 +1,9 @@
+Artículo 21.- El Presidente Ejecutivo es responsable ante el Consejo de Administración por el desempeño de sus funciones y tendrá las atribuciones siguientes:
+a) Representar judicial y extrajudicialmente a la Corporación con las atribuciones de un apoderado generalísimo conforme al artículo 1253 del Código Civil y con las limitaciones que luego se dirán. Además podrá delegar total o parcialmente su mandato por un plazo definido o indefinido, revocar las delegaciones que hiciere y hacer otras de nuevo, conservando siempre sus poderes en toda su extensión. Previo acuerdo con el Consejo de Administración, podrá: otorgar poderes generalísimos, generales y especiales; enajenar o gravar los bienes inmuebles, muebles, valores o derechos de la Corporación; adquirir toda clase de bienes, sean inmuebles, muebles o derechos, bastando su dicho para que se tengan por buenas actuaciones. El Vicepresidente Ejecutivo tendrá exactamente las mismas facultades del Presidente Ejecutivo, pudiendo actuar conjunta o separadamente;
+b) Ejercer las funciones inherentes a su condición de administrador general de la Corporación, celebrando los convenios y ejecutando los actos que requiera la marcha ordinaria de ésta;
+c) Presentar al Consejo de Administración, para su conocimiento y aprobación, los presupuestos de la Corporación así como sus estados financieros;
+d) Ejecutar las resoluciones del Consejo de Administración;
+e) Autorizar con su firma, conjuntamente con el Vicepresidente Ejecutivo, los títulos valores que emita la Corporación.
+f) Organizar, con la aprobación del Consejo de Administración, los departamentos y secciones que sean necesarios para cumplir las funciones que por esta ley se le encomienden a la Corporación.
+g) Nombrar y remover al personal de la Corporación; y
+h) Ejercer las demás funciones y facultades que le correspondan, de conformidad con la ley y los reglamentos de la Corporación.

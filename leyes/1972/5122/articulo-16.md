@@ -1,0 +1,1 @@
+Artículo 16.- Los consejeros durarán en su cargo cuatro años; podrán ser reelectos y serán inamovibles durante el período para el que fueron designados a menos que incurran en acciones que sean punibles de acuerdo con las leyes vigentes y sus reglamentos.

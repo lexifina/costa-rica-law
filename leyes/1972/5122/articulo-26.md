@@ -1,0 +1,1 @@
+Artículo 26.- Las entidades en las que tenga participación o relación directa o indirecta cualquiera de los miembros del Consejo de Administración, no podrán efectuar ninguna operación de crédito con la Corporación.

@@ -1,0 +1,1 @@
+Artículo 20.- El Consejo de Administración queda autorizado para vender las acciones de la serie "A" a un precio mayor de su valor nominal cuando las utilidades acumuladas de la Corporación así lo ameriten.

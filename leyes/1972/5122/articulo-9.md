@@ -1,0 +1,1 @@
+Artículo 9º.- La Corporación llevará a cabo sus actividades en consulta y coordinación con la Oficina de Planificación, el Banco Central, el Ministerio de Economía, Industria y Comercio, el Ministerio de Hacienda y, cuando corresponda, con las entidades públicas que intervienen en los campos cubiertos por sus programas y proyectos específicos de fomento económico.

@@ -1,0 +1,1 @@
+Artículo 22.- El Consejo de Administración, a propuesta del Presidente Ejecutivo, podrá designar al gerente o gerentes que sean necesarios, quienes tendrán las atribuciones y poderes que expresamente le asignen el Consejo de Administración y el Presidente Ejecutivo.
