@@ -1,0 +1,1 @@
+Artículo 2º—En consecuencia dicho centro de educación podrá emitir el Certificado de Conclusión de Estudios de la Educación General Básica y el Diploma de Bachiller en Educación Media, los cuales se equiparan con los del Sistema Educativo Estatal.
