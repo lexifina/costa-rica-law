@@ -1,0 +1,1 @@
+Artículo 30.- Todas las situaciones que no estén previstas en la presente ley, se resolverán de acuerdo con lo que dispone la Ley Orgánica del Poder Judicial y los Códigos respectivos, en lo que fueren aplicables.

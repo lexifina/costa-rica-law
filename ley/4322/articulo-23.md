@@ -1,0 +1,1 @@
+Artículo 23.- El trámite del plenario y la decisión del juicio, son de competencia exclusiva del Jefe de la oficina, a quien también corresponde dictar la resolución de cierre de sumario, conocer de los incidentes promovidos después de ésta, y dictar las demás resoluciones no comprendidas en el artículo anterior.
