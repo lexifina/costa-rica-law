@@ -1,0 +1,1 @@
+Artículo 11.—El departamento encargado de la recepción y evaluación de las solicitudes de conexión de pajas de agua normadas por este reglamento contará con un plazo de treinta días para definir la procedencia de la solicitud.

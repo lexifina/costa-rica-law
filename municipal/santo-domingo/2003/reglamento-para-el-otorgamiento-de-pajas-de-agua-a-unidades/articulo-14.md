@@ -1,0 +1,1 @@
+Artículo 14.—El otorgamiento de pajas de agua bajo lo definido por el presente reglamento, no exime a los usuarios o abonados del cumplimiento de disposiciones emitidas de previo por la Dirección de Urbanismo y el cumplimiento de trámites ante permisos de construcción por nuevas edificaciones.

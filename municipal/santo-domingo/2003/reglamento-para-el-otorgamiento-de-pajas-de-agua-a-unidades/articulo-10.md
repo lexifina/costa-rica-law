@@ -1,0 +1,2 @@
+Artículo 10.—La Municipalidad se reserva el derecho de rechazar la solicitud de paja de agua cuando no existan las condiciones técnicas, legales y financieras necesarias para la instalación de la paja de agua.
+A juicio del área técnica de la municipalidad se podrá suspender o rechazar las solicitudes de pajas de agua de no contarse con la cantidad de agua o presiones necesarias en la tubería de distribución para suministrar el servicio de una forma adecuada.
