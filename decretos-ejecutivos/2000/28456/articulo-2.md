@@ -1,0 +1,1 @@
+Artículo 2º—El saldo en libros de la cuenta corriente número 142276-5 del Banco Nacional de Costa Rica, deberá trasladarse a la cuenta corriente número 118397-9 del Banco Nacional de Costa Rica, denominada “Apoyo al Sistema Penitenciario”.
