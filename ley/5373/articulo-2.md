@@ -1,0 +1,1 @@
+Artículo 2º.- El nuevo cantón contará con tres distritos administrativos a saber: Corredor, 1º; La Cuesta, 2º; y Canoas, 3º; cuyas cabeceras serán en su orden, Neily (Ciudad), La Cuesta y Canoas (Villas).

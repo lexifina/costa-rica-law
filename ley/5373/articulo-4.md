@@ -1,0 +1,1 @@
+Artículo 4º.- El Poder Ejecutivo, oyendo el parecer de la Comisión Nacional de División Territorial Administrativa, fijará los límites distritales y adscribirá por decreto los poblados que correspondan a cada unidad administrativa.

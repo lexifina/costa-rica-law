@@ -1,0 +1,1 @@
+Transitorio I.- Hasta tanto no se instale la Municipalidad que se elija en las elecciones a que se refiere el artículo 8º de esta ley, este cantón se seguirá rigiendo, en lo municipal, como territorio del cantón de Golfito.
