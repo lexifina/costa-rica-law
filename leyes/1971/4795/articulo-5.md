@@ -1,4 +1,1 @@
-Artículo 5º.- El Juez Penal competente solicitará la extradición por
-medio del Ministerio de Relaciones Exteriores a través de la Corte Suprema
-de Justicia, acompañando los mismos documentos y llenados los mismos
-trámites que exige esta ley para todo país que la solicite.
+Artículo 5º.- La facultad de pedir, conceder, ofrecer o negar la extradición corresponde al Poder Judicial, pero las decisiones que éste tome se pondrán en conocimiento del Estado requirente o requerido, por medio del Poder Ejecutivo. En este último caso, se acompañarán los mismos documentos y se llenarán los mismos trámites que exige esta ley para todo país que los solicite.

@@ -1,9 +1,13 @@
-Artículo 3º.- Si dos o más Estados reclamaren a un mismo individuo
-por razón de distintas infracciones, se dará preferencia al hecho más
-grave conforme a la ley costarricense; caso de igual gravedad; se atenderá
-a la prioridad de la demanda; pero siempre tendrán preferencia los Estados
-con los cuales existan convenios de extradición. Si las distintas
-reclamaciones si hicieren por el mismo hecho, será preferida la del país
-en donde se cometió el hecho y en todo caso la del país de que fuere
-súbdito o ciudadano el reo, sin perjuicio de la regla precedente relativa
-a convenios.
+Artículo 3º.- No se ofrecerá ni concederá la extradición:
+a) Cuando al cometer el hecho punible el reclamado fuera costarricense por nacimiento o por naturalización. En esos casos será juzgado por los tribunales nacionales. Si hubiera descontado en el exterior parte de la pena o de la medida de seguridad impuesta, ellas el serán abonadas por el juez.
+b) Cuando la solicitud de extradición se fundamente en delitos cometidos por personas que se estén juzgando o sancionando en Costa Rica por los mismos hechos, o cuando como consecuencia del proceso incoado a que se refiere este inciso, éstas hayan sido absueltas, indultadas o perdonadas o hayan cumplido la condena impuesta.
+c) Cuando el reclamado esté siendo juzgado o haya sido condenado por delito o delito culposo cometido en la República, con anterioridad al recibo de la solicitud de entrega; pero si se le absolviere o una vez extinguida la pena impuesta, podrá decretarse la extradición.
+d) Cuando el hecho imputado no fuere delito, según la ley costarricense, o siéndolo hubiera prescrito la acción penal o la pena.
+e) Cuando la pena asignada a los hechos imputados, según su calificación provisional o definitiva por el juez o tribunal competente del Estado que solicita la extradición, sea menor de un año de privación de libertad y que esté autorizada o acordada la prisión o detención preventiva del procesado, si no hubiere aún sentencia firme. Esta debe ser privativa de la libertad.
+f) Cuando el delito no se hubiera cometido en el territorio del Estado reclamante o no hubiere producido sus efectos en éste.
+g) Cuando el delito sea político o cuando, aunque común, fuere conexo con el delito político, según la ley costarricense.
+h) Cuando se trate del autor de un delito común, si el objeto de extradición se fundamenta en razones políticas.
+i) Cuando los delitos por los cuales se solicita la extradición fueren sancionados con privación de la vida, excepto cuando el Estado requirente se obliga a imponer la pena inmediata inferior a ésta. Caso de no obtener esta seguridad, el imputado será juzgado por nuestros tribunales con fundamento en la documentación que se remita.
+j) Cuando el inculpado hubiere de comparecer ante un tribunal o juzgado de excepción en el Estado requirente; y
+k) Cuando el inculpado se encuentre amparado a la condición de asilado político.
+(La Sala Constitucional mediante resolución N° 6780 del 22 de noviembre de 1994, estableció que la interpretación judicial dada al inciso a) del artículo 3 de la Ley de Extradición, en el sentido de conceder la extradición cuando se trate de un costarricense por naturalización con posterioridad a la comisión del hecho punible por el que se le reclama, es inconstitucional, “…debiendo interpretarse que tal posibilidad cabría únicamente cuando el extraditable pierda la nacionalidad costarricense….”)
