@@ -1,0 +1,9 @@
+# Donación de Tierras a Cultivadores Cacao Quebrada Honda a Turrialba
+
+Ley N° 24 del 1831-06-01. SINALEVI, ficha 11960: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=11960&param2=12852&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1831-06-01 | Ley 24 | 1831-06-01 |
