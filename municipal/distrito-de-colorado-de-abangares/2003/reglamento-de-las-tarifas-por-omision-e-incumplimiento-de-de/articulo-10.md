@@ -1,0 +1,1 @@
+Artículo 10.—Por los servicios que preste, la municipalidad cobrará tasas y precios, que se fijarán tomando en consideración el costo efectivo más un 10% de utilidad para desarrollarlos. Una vez fijados, entrará en vigencia treinta días después de su publicación en La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 8º—Si se trata de instituciones públicas la suma adeudada por concepto de multa se disminuirá en un veinticinco por ciento 25%, para la actividades agrícolas, ganaderas, industriales, comerciales y turísticas se aumenta en un cincuenta por ciento 50%.
