@@ -144,3 +144,6 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificados los límites de gasto presupuestario y efectivo para el 2002 del INFOCOOP, por el artículo 1 del decreto ejecutivo N° 30489 de 20 de mayo del 2002)
 (Modificados los límites de gasto total presupuestario y efectivo de Servicio Nacional de Aguas Subterráneas, Riego y Avenamiento, por el artículo 1 del decreto ejecutivo N° 30488 de 24 de mayo del 2002)
 (Mediante el artículo 1 del Decreto Ejecutivo N° 30563 de 17 de junio del 2002, se exeptúa del los límites de gasto presupuestario y efectivo, establecidos en este Decreto, los recursos que transfieran las entidades públicas a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, conforme a la Ley N° 7914)
+(Modificados los límites de gasto presupuestario y efectivo para el 2002 del Instituto Costarricense de Turismo, por el artículo 1 del decreto ejecutivo N° 30590 de 19 de julio del 2002)
+(Modificados los límites de gasto presupuestario y efectivo para el 2002 del Teatro Nacional, por el artículo 1 del decreto ejecutivo N° 30606 de 27 de junio del 2002)
+(Modificados los límites de gasto presupuestario y efectivo para el 2002 de la Junta Directiva de la Imprenta Nacional, por el artículo 1 del decreto ejecutivo N° 30618 de 17 de julio del 2002)
