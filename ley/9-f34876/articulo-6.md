@@ -1,0 +1,1 @@
+Artículo 6° El extranjero que violando esta ley se introdujere en el territorio de la República será expulsado de él, por resolución del Poder Ejecutivo, previa información administrativa y sumaria en que bastará establecer su calidad de extranjero, su ingreso al país con posterioridad a la presente ley, y la circunstancia de hallarse en uno de los casos antes enumerados.

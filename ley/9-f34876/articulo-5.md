@@ -1,0 +1,1 @@
+Artículo 5° Las autoridades de los puertos no permitirán el desembarque, aunque sea con promesa de volver al buque, a ningún extranjero, mientras no se cercioran de que él no se encuentra comprendido en alguno de los casos de prohibición de la presente ley.

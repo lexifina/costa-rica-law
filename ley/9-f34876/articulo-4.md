@@ -1,0 +1,1 @@
+Artículo 4° Los Gobernadores de los puertos y las autoridades de los lugares fronterizos harán bajo su responsabilidad la calificación de inmigrantes y transeúntes, para los efectos de los tres artículos anteriores, y en caso de duda, consultarán inmediatamente a su superior, por la vía rápida.
