@@ -1,2 +1,0 @@
-Artículo 3°-El gravamen que fija este ARANCEL se entiende: el ESPECIFICO, por kilogramo de PESO BRUTO (salvo en los casos que otra cosa se exprese) y el AD-VALOREM sobre el VALOR F.O.B. de la mercadería al tipo de venta de divisas del mercado oficial contralado. Los aforos ESPECIFICO Y AD-VALOREM indicados en las respectivas columnas, son complementarios por lo que se tasarán conjuntamente.
-Todo envase cuyo aforo sea mayor que el del contenido, se aforará por separado.
