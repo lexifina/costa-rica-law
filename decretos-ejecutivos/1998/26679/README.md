@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Ministerio de Economía, Industria y Comerc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-26 | la propia norma |
+| 2 | 2001-12-19 | Decreto Ejecutivo 30081 (2001-12-19) |
