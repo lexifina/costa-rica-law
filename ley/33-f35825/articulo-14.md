@@ -1,0 +1,2 @@
+Art 14° Para que la Administración abone dicho flete, es indispensable que el interesado presente a la misma Administración, en la guía o carta de porte que ésta le hubiere expendido en virtud del artículo 13 del Decreto de 5 de julio anterior.
+El conforme de la Autoridad principal del lugar para donde fueren despachos los artículos, a la cual deben estos manifestarse para que los examine y confronte con la guía. Es ineficaz la presentación de dicho documento después de quince días de salidos los artículos de la Administración General.

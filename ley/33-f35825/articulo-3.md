@@ -1,0 +1,1 @@
+Art 3° Se suprime el Resguardo que existe actualmente en la “Fábrica Nacional” debiendo hacerse en lo sucesivo el servicio que éste presta, por una guarnición compuesta de un cabo y cuatro soldados que la Comandancia General mandará sacer de la de esta Plaza, y que estará exclusivamente bajo las órdenes del Administrador General.

@@ -1,0 +1,1 @@
+Art 20° La prohibición de vender licores a otras horas que las señaladas en el artículo 9° del mismo Decreto de 5 de julio, es extensiva a las vinaterías, conforme lo dispone el Reglamento de Hacienda, más para el expendio de Tabaco no habrá limitación alguna de tiempo.
