@@ -1,0 +1,15 @@
+Nº 31433
+EL PRESIDENTE DE LA REPÚBLICA LA MINISTRA DE HACIENDA,
+EL MINISTRO DE LA PRESIDENCIA Y LA MINISTRA DE PLANIFICACIÓN NACIONAL Y POLÍTICA ECONÓMICA
+En ejercicio de las atribuciones que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, artículo 42 de la Ley Nº 8131 o Ley de la Administración Financiera de la República y Presupuestos Públicos de 18 de setiembre del 2001 y el Decreto Ejecutivo Nº 30058-H-MP-PLAN del 19 de diciembre del 2001 y sus reformas.
+Considerando:
+1º—Que el artículo 42 de la Ley Nº 8131 publicada en La Gaceta N° 198 del 16 de octubre del 2001, establece que la Dirección General de Presupuesto Nacional, en coordinación con la Tesorería Nacional, elaborará la programación financiera de la ejecución del presupuesto del Gobierno de la República, tomando como base la información presentada las dependencias gubernamentales incluidas en el Presupuesto Nacional.
+2º—Que mediante Decreto Ejecutivo Nº 30058-H-MP-PLAN publicado en La Gaceta N° 68 del 9 de abril del 2002, se reglamentó la Ley de la Administración Financiera de la República y Presupuestos Públicos.
+3º—Que mediante Decreto Ejecutivo Nº 30903-H-MP-PLAN publicado en el Alcance N° 94 a La Gaceta N° 251 del 30 de diciembre del 2002, se modificó el artículo 63 del Reglamento a la Ley Nº 8131, estableciendo las cuotas trimestrales a que se refiere el artículo 61 de dicho Reglamento.
+4º—Que se hace necesario modificar el artículo 63 incluido en el Decreto Ejecutivo Nº 30058-H-MP-PLAN y derogar su correspondiente reforma promulgada en el Decreto Ejecutivo Nº 30903-H-MP-PLAN, con el fin de lograr la prestación eficiente del servicio público. Por tanto:
+DECRETAN:
+Artículo 1º—Modifícase el artículo 63 del Decreto Ejecutivo Nº 30058-H-MP-PLAN publicado en La Gaceta N° 68 del 9 de abril del 2002, “Reglamento de la Ley de Administración Financiera de la República y Presupuestos Públicos” y sus reformas para que se lea así:
+“Artículo 63º—Cuotas de Presupuesto. Las cuotas a que se refiere el artículo 61 del presente Reglamento, serán establecidas por la Dirección General de Presupuesto Nacional en coordinación con la Tesorería Nacional y con base en la programación de la ejecución presupuestaria presentada por las entidades del Gobierno de la República.
+Las cuotas se asignarán en forma global por título presupuestario y le corresponderá a la institución competente desglosarla y asignarla a las subpartidas presupuestarias que de acuerdo a su programación deba ejecutar para cumplir con sus metas y objetivos, y permitirán solicitar y comprometer los créditos presupuestarios para la contratación de bienes y servicios.
+La Dirección General de Presupuesto Nacional definirá y comunicará mediante lineamiento técnico, la periodicidad en la fijación de las cuotas de presupuesto.
+Las cuotas no serán acumulativas; sin embargo los remanentes no utilizados de las mismas podrán ser reprogramadas en las cuotas siguientes. La reprogramación, así como toda solicitud de ampliación a las mismas, deberá ser solicitada a la Dirección General de Presupuesto Nacional, de conformidad con los criterios técnicos establecidos por ésta.”
