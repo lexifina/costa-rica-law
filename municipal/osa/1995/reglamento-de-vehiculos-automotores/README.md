@@ -14,3 +14,4 @@ Reglamento de Vehículos Automotores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-02-05 | la propia norma |
+| 2 | 1998-07-21 | Reglamento municipal 0 (1998-07-21) |

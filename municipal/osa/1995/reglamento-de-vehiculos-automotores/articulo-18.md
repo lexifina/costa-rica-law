@@ -1,2 +1,3 @@
-Artículo 18.—Los únicos funcionarios autorizados para retirar combustible, lubricantes y repuestos, son los que tienen asignados vehículos de uso administrativo- A cada uno de estos vehículos Ejecutivo Municipal les asignará la cuota de combustible necesaria para funcionamiento, de acuerdo con los programas de trabajo establecido.
+Artículo 18.—Los únicos funcionarios autorizados para retirar combustible, lubricantes y repuestos, son los que tienen asignados vehículos de uso administrativo. Y deberán utilizar la boleta de control, que el Departamento de Contabilidad designe, para este caso. A cada uno de estos vehículos Ejecutivo Municipal les asignará la cuota de combustible necesaria para funcionamiento, de acuerdo con los programas de trabajo establecido.
 En caso de que dicha cuota fuera insuficiente, el Ejecutivo podrá autorizar una cuota adicional, mediante los estudios previos del caso.
+(Así reformado y publicado en La Gaceta N° 152 del 6 de agosto de 1998)

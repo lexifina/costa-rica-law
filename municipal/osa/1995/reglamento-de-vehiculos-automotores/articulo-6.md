@@ -1,1 +1,3 @@
 Artículo 6°—Los vehículos de uso administrativo serán conducidos por las personas nombradas expresamente para esos efectos, siempre y cuando tengan al día los documentos correspondientes para conducir. En caso de excepción, podrán hacerlo otros empleados, autorizados por el Ejecutivo o Consejo según corresponda, siempre y cuando sea en funciones oficiales, y las circunstancias y necesidades de servicio así lo ameriten. La autorización deberá constar por escrito.
+Los vehículos Administrativos no podrán circular fuera del tiempo laboral, a no ser por autorización por escrito de parte del Ejecutivo, el cual informará al Concejo.
+(Así adicionado el párrafo anterior y publicado en La Gaceta N° 152 del 6 de agosto de 1998)
