@@ -1,0 +1,2 @@
+Artículo 4°-Modifícase el artículo 4° de la ley N° 4945 de 24/12/71, para que la Norma General Vigesimoctava se lea así:
+"Vigesimoctava: Se autoriza al Poder Ejecutivo para trasladar sobrantes de sueldos del Título 18 - Asignación Global, con el propósito de reconocer revaloraciones de puestos y realizar ajustes por concepto de aumentos anuales derivados de la Ley de Salarios de la Administración Pública".

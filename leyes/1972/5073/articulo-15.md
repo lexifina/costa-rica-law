@@ -1,0 +1,1 @@
+Artículo 15.- Los saldos no usados (ingresos y gastos) al 31 de diciembre de 1972 del presupuesto ordinario aprobado por la presente ley para el desarrollo y fortalecimiento de la educación técnica y profesional se considerarán revalidados para el ejercicio fiscal de 1973.
