@@ -14,3 +14,4 @@ Reglamento para el Cobro de Tarifas por Servicios brindados por la Omisión de l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-05 | la propia norma |
+| 2 | 2000-01-18 | Reglamento municipal 4 (2000-01-18) |

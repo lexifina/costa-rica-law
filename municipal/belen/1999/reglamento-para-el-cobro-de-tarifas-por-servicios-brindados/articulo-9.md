@@ -1,1 +1,1 @@
-Artículo 9° —Como excepción a la regla general establecida en este Reglamento, y únicamente para efectos de la limpieza de vías, será la Municipalidad quien se encargará de prestar este servicio, no pudiendo el administrado negarse a recibirlo y debiendo pagar la tarifa del mismo de conformidad con lo dispuesto por el artículo 74 del Código Municipal.
+Artículo 9° — (Derogado por acuerdo tomado en sesión N° 58 del 26 de octubre de 1999 y definitivamente aprobado en sesión N° 4 del 18 de enero de 2000)

@@ -1,1 +1,1 @@
-Artículo 10.—La tarifa se pagará en los períodos que defina la Municipalidad, se calculará tomando como base el metro lineal de frente a vía pública de cada propiedad, y será establecida por la Municipalidad, a través de un estudio tarifario que deberá ser aprobado por las dos terceras partes de los miembros del Concejo Municipal y publicado en el Diario Oficial “La Gaceta” para entrar en vigencia.
+Artículo 10.—(Derogado por acuerdo tomado en sesión N° 58 del 26 de octubre de 1999 y definitivamente aprobado en sesión N° 4 del 18 de enero de 2000)
