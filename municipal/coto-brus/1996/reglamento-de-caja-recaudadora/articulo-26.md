@@ -1,0 +1,1 @@
+Artículo 26.-EI horario de funcionamiento de la Caja Recaudadora será de las 7,00 a. m. a las 15,30 horas, a efecto de que entre las 15,30 horas a las 15,45 horas el tesorero y cajero municipal efectúen la correspondiente liquidación diaria de caja y preparen el respectivo depósito bancario.

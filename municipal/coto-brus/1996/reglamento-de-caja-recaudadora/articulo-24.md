@@ -1,0 +1,1 @@
+Artículo 24.-A todo recibo cancelado mediante cheque, debe consignársele la leyenda "La validez de este recibo está condicionada a que el cheque recibido en pago sea aceptado por el banco respectivo a su presentación" .

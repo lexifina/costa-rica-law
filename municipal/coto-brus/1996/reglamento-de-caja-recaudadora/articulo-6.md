@@ -1,0 +1,2 @@
+Artículo 6°-El cajero entrega el dinero al tesorero, el cual prepara el depósito bancario con lo recaudado durante el día (o parte del día) y entrega al tesorero lo correspondiente al fondo fijo para que lo guarde en la caja fuerte. El cajero hará subtotales cuando lo crea necesario para mantener una idea del dinero que ha recaudado en un determinado momento.
+Para efectuar los depósitos se utilizará el servicio del depósito diurno.

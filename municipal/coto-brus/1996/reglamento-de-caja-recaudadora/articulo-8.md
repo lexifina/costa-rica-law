@@ -1,0 +1,1 @@
+Artículo 8°-La contabilidad con las copias canceladas afecta el "Control Diario de recibos enviados a Caja" para dejar constancia de que fueron cancelados y luego practica el registro de ingreso en el comprobante de Diario, Diario General, Mayor Auxiliar de Ingresos. Posteriormente los devuelve a la Tesorería para su archivo.

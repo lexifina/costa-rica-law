@@ -1,0 +1,1 @@
+Artículo 4°-El cajero revisa la consecutividad numérica, las operaciones aritméticas, verifica la partida presupuestaria, recauda, sella, le pone la fecha de cancelación y entrega el original al contribuyente. La cual queda en la caja.

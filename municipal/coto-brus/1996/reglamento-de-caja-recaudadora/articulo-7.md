@@ -1,0 +1,1 @@
+Artículo 7°-Las copias de los comprobantes de ingreso las retiene el tesorero, se le adjunta el comprobante de depósito y registra el número del mismo en el "Diario de Caja" con un pequeño detalle que indique de que número a qué número de comprobante de ingreso abarca el depósito. Se utilizará de ser posible, talonarios de depósito con numeración consecutiva.

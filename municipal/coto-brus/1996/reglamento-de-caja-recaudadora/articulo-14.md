@@ -1,0 +1,1 @@
+Artículo 14.-todo cajero que labore como tal en la Municipalidad de Coto Brus, cerrará la caja al final del día, delante del Tesorero Municipal y este a su vez revisará el cierre de caja delante del cajero.
