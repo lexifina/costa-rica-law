@@ -14,3 +14,4 @@ Concede a la firma "Molinos de Costa Rica, Sociedad Anónima" beneficios fiscale
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-06-18 | la propia norma |
+| 2 | 1985-09-09 | Decreto Ejecutivo 16814 (1985-09-09) |

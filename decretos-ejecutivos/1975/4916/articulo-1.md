@@ -29,4 +29,6 @@ h ) La empresa deberá llevar un sistema de costos que permita determinar claram
 i) Emplear el personal de la planta industrial de acuerdo con las leyes laborales y de Colegios Profesionales legalmente reconocidos y adiestrar, o cooperar para el adiestramiento de mano de obra, técnicos nacionales y personal administrativo que se requieran para la adecuada fabricación y distribución de sus productos;
 j) Ocupar un Contador Público o Privado costarricense en la contabilidad, revisión y auditoría de los libros de la empresa; y
 k) Depositar a la orden y satisfacción del Ministerio de Economía, Industria y Comercio, dentro de los cuarenta y cinco días naturales contados a partir de la fecha en que se publique este decreto en "La Gaceta", un bono de cumplimiento del I.N.S., bonos del Estado o carta de garantía de una institución del Sistema Bancario Nacional, por la suma de ¢756,000.00 (setecientos cincuenta y seis mil colones).
+l) No menos del cincuenta por ciento del capital de la empresa será distribuido entre costarricenses.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 16814 del 9 de setiembre de 1985)
 El Ministerio podrá exigir que se amplíe o mejore la garantía, si considera que la misma llegare a ser insuficiente.
