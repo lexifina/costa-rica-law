@@ -1,0 +1,1 @@
+Artículo 9º—El Departamento de Patentes podrá rechazar la solicitud si ésta es contraria a las leyes, moral o buenas costumbres, cuando el establecimiento no haya llenado los requisitos legales y reglamentarios o cuando la actividad, en razón de su ubicación física, no esté permitida por las leyes o, en su defecto, por los reglamentos municipales vigentes.

@@ -1,0 +1,5 @@
+Artículo 12.—Las actividades con karaoke deberán respetar en todo momento la normativa que establece la Ley General de Salud y el Reglamento para el Control de Contaminación por Ruido Nº 28718-S del 15 de junio del 2000, referente a los niveles autorizados de sonido y confinamiento de ruido. En consecuencia, se prohíbe la instalación y uso de:
+1. Bocinas, sirenas o similares, excepto aquellas utilizadas como señal de peligro o emergencia.
+2. Altoparlantes exteriores, megáfonos y artefactos similares en posición fija o movible que sobrepasen los niveles de sonido que establece el artículo 20 del Reglamento para el Control de Contaminación por Ruido Nº 28718, así como aquellos que se pretendan utilizar de noche.
+3. Venta por pregoneo mediante el uso de sistemas de amplificación en áreas residenciales o comerciales.
+4. Cualquier artefacto que genere ruido innecesario, inesperado o inusitado cerca de la vecindad de un hospital, centro de educación, tribunales de justicia o áreas designadas por el Ministerio de Salud, como de "tranquilidad excepcional".

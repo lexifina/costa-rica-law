@@ -1,0 +1,1 @@
+Artículo 4º—Igualmente, las personas físicas o jurídicas que se dediquen a brindar servicio de karaoke a los patentados de negocios en éste cantón deberán contar con la patente comercial municipal de acuerdo con el art. 79 del Código Municipal y los requisitos establecidos por este municipio.

@@ -1,0 +1,1 @@
+Artículo 11.—En ningún momento y por ningún motivo se otorgará licencias para que funcionen los karaokes, en zonas meramente residenciales y no comerciales de acuerdo al plan regulador adoptado por este municipio y que oportunamente se publicará en el Diario Oficial La Gaceta.

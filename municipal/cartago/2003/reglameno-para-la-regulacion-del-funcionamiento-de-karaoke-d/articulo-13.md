@@ -1,0 +1,7 @@
+Artículo 13.—Quienes deseen ofrecer o brindar los servicios de karaokes en establecimientos comerciales, lugares públicos o eventos públicos, dentro de la jurisdicción del Cantón Central de Cartago, deberán estar al día en el pago de tributos municipales y deberán presentar ante el Departamento de Patentes, en defecto de la plataforma de servicios:
+1. Formulario original de solicitud de patente comercial dispuesto por la municipalidad, debidamente lleno, firmado y autenticado por notario público autorizado, además de cumplidos sus requisitos.
+2. Permiso sanitario de funcionamiento extendido por el Ministerio de Salud, donde conste que el local cuenta con las condiciones óptimas para garantizar la seguridad de los asistentes y la salud pública y el adecuado confinamiento de ruidos (contaminación sónica o ambiental), para realizar este tipo de actividad.
+3. Permiso de ACAM de conformidad con la Ley Nº 6683 sobre Derechos de Autor y Derechos Conexos y su reglamento.
+4. Indicación de la patente comercial autorizada, en caso de existir de forma previa a esta solicitud, en relación con el nombre del patentado, actividad autorizada, vigencia de la patente, demás consideraciones que realice el Departamento de Patentes.
+5. Certificación o constancia de encontrarse inscrito en Tributación Directa.
+6. Otros que estime la municipalidad, indicados por el funcionario en la ventanilla de recepción de documentos de patentes.
