@@ -1,0 +1,1 @@
+Artículo 15.— Los acuerdos de la Comisión Administradora podrán ser apelados por el interesado, subsidiariamente a la Junta Directiva dentro de los siguientes tres días hábiles después de recibida la comunicación.

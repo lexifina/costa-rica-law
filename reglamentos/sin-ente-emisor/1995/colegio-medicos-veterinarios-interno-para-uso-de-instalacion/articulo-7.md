@@ -1,0 +1,1 @@
+Artículo 7°—El Coordinador de la Comisión Administradora será nombrado en marzo del año que ocurra cambio de Presidente, por la Junta Directiva. Los demás integrantes de la Comisión Administradora durarán hasta que dejen de representar a las respectivas comisiones o cargos.

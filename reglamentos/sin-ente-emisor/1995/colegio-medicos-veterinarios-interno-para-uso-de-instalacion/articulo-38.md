@@ -1,0 +1,1 @@
+Artículo 38.—Los estudiantes de los dos últimos años de Medicina Veterinaria que quieran hacer uso de las instalaciones de la Sede en Ochomogo podrán solicitar el Carné Especial pagando la mitad de una Cuota Ordinaria.

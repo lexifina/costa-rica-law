@@ -1,0 +1,1 @@
+Artículo 18.— La Comisión Administradora por medio del Director Ejecutivo, podrá celebrar contratos de alquiler de las instalaciones, en las mejores condiciones rentables para el Colegio según lo estipulado en el presente Reglamento Interno, siempre y cuando no se interfiera con las actividades previamente programadas por el Colegio o sus miembros.

@@ -1,0 +1,2 @@
+Artículo 36.—El carné del Colegio será considerado como la autorización de los Miembros para hacer uso de las instalaciones de la Sede en Ochomogo.
+Las demás personas, con derecho para hacer uso de las instalaciones de la Sede en Ochomogo, que no cuentan con carné del Colegio, deberán obtener un Carné Especial, que les servirá de autorización para hacer uso de las instalaciones de la Sede en Ochomogo.

@@ -1,0 +1,1 @@
+Artículo 39.—Otros profesionales, miembros de su respectivo Colegio Profesional que quieran hacer uso de las instalaciones de la Sede en Ochomogo podrán solicitar el Carné Especial pagando el equivalente a una Cuota Ordinaria.

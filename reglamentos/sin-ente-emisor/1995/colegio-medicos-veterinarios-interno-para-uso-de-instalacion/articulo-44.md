@@ -1,0 +1,1 @@
+Artículo 44.—Se suspenderá la autorización al disfrute de las instalaciones de la sede en Ochomogo, a quienes no estén al día en el pago de sus obligaciones financieras con el Colegio; situación que afecta a los demás beneficiarios indirectos del moroso.

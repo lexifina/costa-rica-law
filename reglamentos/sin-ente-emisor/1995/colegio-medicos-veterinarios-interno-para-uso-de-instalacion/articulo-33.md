@@ -1,0 +1,1 @@
+Artículo 33.—El Colegio no se responsabiliza de accidentes y otros daños físicos a las personas durante el uso de las instalaciones, así como de la pérdida de objetos, equipos electrónicos o vehículos,

@@ -1,0 +1,1 @@
+Artículo 25.—Si por cualquier causa se cancela una actividad, deberá comunicarse de inmediato a la Comisión Administradora para que ésta disponga de la fecha correspondiente. De no comunicarse la cancelación de la actividad con por lo menos ocho días de anticipación, el depósito de garantía no se devolverá.

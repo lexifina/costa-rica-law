@@ -1,0 +1,1 @@
+Artículo 40.—Toda persona autorizada para hacer uso de las instalaciones de la Sede en Ochomogo podrá bajo su responsabilidad, llevar invitados. Cada visitante deberá pagar la cuota de ingreso que para esos efectos fije la Junta Directiva.

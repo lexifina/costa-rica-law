@@ -1,0 +1,1 @@
+Artículo 42.— La Comisión Administradora recomendará a la Junta Directiva imponer sanciones a quienes incurran en falta de orden, disciplina o moralidad en el uso y permanencia de las instalaciones de la Sede en Ochomogo.

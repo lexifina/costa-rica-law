@@ -1,0 +1,1 @@
+Artículo 10.— La Comisión Administradora trabajará con cierto grado de independencia,, sujeta a las disposiciones del presente Reglamento Interno, a la legislación vigente, así como a los acuerdos de Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 9°—Para que la Comisión Administradora pueda sesionar se necesita que concurran al menos dos de sus integrantes. Todo acuerdo o resolución se tomará por simple mayoría de los miembros presentes. En caso de empate, el Coordinador podrá ejercer doble voto.

@@ -1,0 +1,1 @@
+Artículo 37.—Los hijos de los Miembros, aún de los fallecidos, desde los dieciocho años hasta la edad de veinticinco años; podrán solicitar de cortesía el Carné Especial, después de cumplida esa edad, los que deseen conservar su derecho, deberán cancelar el equivalente a una Cuota Ordinaria.

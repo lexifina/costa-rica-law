@@ -1,0 +1,1 @@
+Artículo 24.—Los miembros, familiares y los particulares, deberán separar con por lo menos un mes de anticipación las instalaciones y cancelar el correspondiente depósito de garantía- La fecha asignada se respetará salvo por motivos de fuerza mayor o a petición del mismo solicitante.
