@@ -14,3 +14,4 @@ Crea Comisión Técnica Consultiva de Ordenamiento Territorial (Comisión Terra)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-07-10 | la propia norma |
+| 2 | 1997-10-08 | SINALEVI (sin norma nombrada) |
