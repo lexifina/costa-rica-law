@@ -1,0 +1,1 @@
+Artículo 5º—La recolección de los datos y la publicación de los resultados de los Censos Nacionales se basará en la División Territorial Administrativa del país, vigente a la fecha de publicación del presente Decreto. Cualquier modificación posterior no se tomará en cuenta para efectos de presentación y divulgación de los resultados censales.

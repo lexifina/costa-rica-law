@@ -1,0 +1,1 @@
+Artículo 4º—El Ministerio de Educación Pública designará a funcionarios regionales, maestros y profesores de primero y segundo ciclo de la Educación General Básica, para trabajar en la organización, recolección y supervisión del trabajo censal. Para estos efectos, los funcionarios trabajarán bajo la coordinación técnica del Instituto Nacional de Estadística y Censos.

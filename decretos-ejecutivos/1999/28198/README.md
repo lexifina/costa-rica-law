@@ -14,3 +14,4 @@ De Interés Público Censos Nacionales de Población y Vivienda Año 2000
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-05 | la propia norma |
+| 2 | 1999-11-05 | Ley 7 |
