@@ -1,0 +1,1 @@
+Artículo 2° En aquellos lugares en donde el Poder Ejecutivo creyere conveniente suprimir plazas de Agente Principal de Policía y Agente de Policía y hubiere puestos de licores, bastará para que éstos se mantengan, la autoridad de un juez de Paz para los efectos posteriores del artículo 12 ibidem, y en general para todo lo que según la Ley correspondiera al Agente de Policía.
