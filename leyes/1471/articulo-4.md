@@ -1,0 +1,1 @@
+Artículo 4°.- Recibida la prueba anteriormente indicada, y la que el Juzgado estime pertinente para mejor proveer, sin más trámite se procederá a dictar resolución en la cual el Tribunal se pronunciará sobre todos y cada uno de los puntos que resulten probados. Tal resolución tendrá los recursos que la ley determina para casos similares de jurisdicción voluntaria.
