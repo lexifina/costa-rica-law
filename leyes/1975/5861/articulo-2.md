@@ -1,0 +1,4 @@
+Artículo 2º.- Encárgase a la Oficina del Café la aplicación del Convenio Internacional del Café de 1968 Prorrogado, ratificado por ley Nº 5511 de 19 de abril de 1974 y el cual se mantiene en vigor hasta el 30 de setiembre de 1976, de acuerdo con la presente ley, para lo cual se le otorgan las siguientes facultades y atribuciones:
+a) Facúltase a la Oficina del Café para recibir y enviar las notificaciones y demás comunicaciones relacionadas con el Convenio Internacional del Café de 1968 Prorrogado;
+b) Facúltase a la Oficina del Café para representar al país en todo lo relacionado con el Convenio Internacional del Café de 1968 Prorrogado; y
+c) Encárgase a la Oficina del Café el pago de los aportes y contribuciones a la Organización Internacional del Café y se le faculta para integrar a su patrimonio cualquier remanente que corresponda a nuestro país como consecuencia de los pagos que haya realizado la Oficina del Café.
