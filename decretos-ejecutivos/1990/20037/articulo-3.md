@@ -1,0 +1,1 @@
+Artículo 3°—Las organizaciones de pequeños productores organizados enviarán las respectivas ternas al Ministro de Agricultura y Ganadería, quien designará a ambos representantes, tratando de que uno sea de los productores de hortalizas y el otro de los productores de frutas.
