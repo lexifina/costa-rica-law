@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión tendrá su sede en las instalaciones del Antiguo Cuartel de Alajuela, lugar donde debe estar funcionando el Museo Histórico Cultural Juan Santamaría, para la celebración del Sesquicentenario de la Campaña Nacional contra los Filibusteros.

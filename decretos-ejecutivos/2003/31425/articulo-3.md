@@ -1,0 +1,1 @@
+Artículo 3º—Con el fin de que dicha Comisión realice efectivamente sus funciones, podrá designar comisiones auxiliares, las cuales podrán abocarse a labores complementarias atinentes a los propósitos de ésta.
