@@ -1,0 +1,1 @@
+Artículo 6°—Cuando la notificación deba hacerla una Oficina Centralizada de Notificaciones, los despachos judiciales le deberán proveer los documentos y datos necesarios para realizar la comunicación, según lo dispuesto en el artículo 8° de la Ley 7637.
