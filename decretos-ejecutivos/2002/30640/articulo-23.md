@@ -1,4 +1,4 @@
-Artículo 23.—Comisión de Recomendación de Adjudicaciones. Quórum y carácter no vinculante de sus recomendaciones: El quórum para sesionar lo formarán tres personas y sus decisiones se tomarán por simple mayoría.
-En caso de empate, se remitirá el expediente con el resultado de la votación que conste en él a quien corresponda y que tenga competencia para dictar el acto final en el procedimiento de contratación.
-El Oficial Mayor y/o Director General Administrativo Financiero del Ministerio correspondiente presidirá las reuniones.
-Las recomendaciones que emita dicha Comisión no serán vinculantes, por su naturaleza asesora, pero para apartarse de ellas el órgano competente para adjudicar deberá fundamentar ampliamente las razones por las que no acepta la respectiva recomendación, asumiendo en tal caso la total y plena responsabilidad de dicho acto.
+Artículo 23.—Comisión de Recomendación de Adjudicaciones. Quórum y carácter no vinculante de sus decisiones. El quórum para sesionar será con la totalidad de sus miembros y sus decisiones se tomarán por simple mayoría.
+El Proveedor Institucional del Ministerio respectivo, o quién le represente durante sus ausencias, será quien presida las reuniones de la Comisión.
+Las recomendaciones que emita dicha Comisión no serán vinculantes, por su naturaleza asesora, pero para apartarse de ellas el órgano competente para adjudicar deberá fundamentar ampliamente las razones por las que no acepta la respectiva recomendación, asumiendo en tal caso total y plena responsabilidad de dicho acto.
+(REFORMADO por artículo 23 del Decreto Ejecutivo No 31483 de 19 de agosto de 2003, publicado en La Gaceta No 230 de 28 de noviembre de 2003.)

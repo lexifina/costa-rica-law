@@ -14,3 +14,4 @@ Reglamento para el Funcionamiento de las Proveedurías Institucionales de los Mi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-08-30 | la propia norma |
+| 2 | 2003-08-19 | Decreto Ejecutivo 31483 (2003-08-19) |
