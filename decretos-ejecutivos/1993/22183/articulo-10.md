@@ -1,0 +1,1 @@
+Artículo 10.— La Junta que aluden los numerales 8° y 9° anteriores, estará integrada por cinco miembros. Estos serán vecinos con no menos de tres años de vivir en el lugar y que hayan mostrado mayor interés de servicio a la comunidad. Durarán en funciones un año. Pudiendo ser reelegidos y desempeñarán el cargo ad honorem.

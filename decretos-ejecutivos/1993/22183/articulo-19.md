@@ -1,0 +1,1 @@
+Artículo 19._ Obtenido el permiso de ubicación, se presentará los planos constructivos y respectivos documentos a la Comisión Revisora de Permisos de construcción. Revisados éstos y construido el cementerio, deberá obtenerse el permiso de funcionamiento que expedirán conjuntamente, el Departamento de Ingeniería Sanitaria y la División de Epidemiología del Ministerio.

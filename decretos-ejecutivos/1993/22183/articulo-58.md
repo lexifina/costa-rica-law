@@ -1,0 +1,2 @@
+Artículo 58—Las autoridades administrativas del cementerio estarán obligadas en todo momento en condiciones normales a suministrarle al personal de campo encargado de ejecutar las inhumaciones y exhumaciones, el vestuario adecuado y el equipo indispensable para llevar a cabo sus labores higiénica y eficientemente.
+El incumplimiento de este requisito será considerado falta grave y ocasionará la suspensión o cancelación del Permiso Sanitario de Funcionamiento.

@@ -1,0 +1,1 @@
+Artículo 57.—Todos los cementerios nacionales Se considerarán patrimonio público, sujetos a sus leyes y reglamentos, inalienables, secularizados y no podrán ser suprimidos sino por razones de orden público previo criterio técnico y autorización del Ministerio de Salud. Específicamente de la División de Vigilancia Epidemiológica y del Departamento Ingeniería Sanitaria.

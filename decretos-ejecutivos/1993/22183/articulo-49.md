@@ -1,0 +1,1 @@
+Artículo 49— Los nichos sobre la superficie del suelo cuya construcción es anterior a la vigencia de Ley No 52 "Ley de Protección de la Salud Pública" del 12 de marzo de 1923, podrán ocuparse para inhumaciones mientras se encuentran en buen estado de uso y no muestren exteriormente exudaciones de los productos acuosos de la descomposición cadavérica.

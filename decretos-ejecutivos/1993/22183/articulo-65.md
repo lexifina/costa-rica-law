@@ -1,0 +1,1 @@
+Artículo 65.—Los propietarios y administradores del cementerio quedan obligados a facilitar las inspecciones de las autoridades administrativas y sanitarias. Asimismo, acatarán las disposiciones sobre policía mortuoria que establece la Ley General de Salud.

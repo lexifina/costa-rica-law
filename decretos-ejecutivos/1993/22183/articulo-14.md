@@ -1,0 +1,1 @@
+Artículo 14.—En zonas urbanas, el cementerio estará delimitado por pared o muro sólido de dos metros de altura (2 m) mínima. Frente a la vía pública deberá utilizarse muro, verjas o combinación de ambos. En áreas rurales donde no existan viviendas a menos de 30 metros del lindero más próximo al cementerio, podrá estar delimitado por cerca de alambre o verja.

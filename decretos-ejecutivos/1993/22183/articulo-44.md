@@ -1,0 +1,1 @@
+Artículo 44.—Las paredes perimetrales de los nichos para inhumaciones deben tener el espesor suficiente para resistir el empuje de la tierra adyacente y deben ser de un material permeable para facilitar la filtración de los productos acuosos de la descomposición cadavérica.

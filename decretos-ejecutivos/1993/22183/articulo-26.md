@@ -1,0 +1,1 @@
+Articulo 26.-— Los cadáveres que se sepulten en las parcelas de inhumación deberán presentarse en cajas cerradas. Queda prohibida la inhumación de más de un cadáver en la misma caja, salvo si se tratare de madre y recién nacido muertos en el acto del parto. Asimismo, las inhumaciones en las fosas comunes en féretros de metal u otro material de difícil y lenta descomposición.

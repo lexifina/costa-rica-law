@@ -1,0 +1,1 @@
+Artículo 6°.—Todos los cementerios nacionales, públicos y privados, deberán contar con un reglamento interno que contemple las normas técnicas y administrativas necesarias para su organización y funcionamiento, debiendo ajustarse a las disposiciones del presente Reglamento y ser previamente aprobado por el Departamento de Vigilancia Epidemiológica del Ministerio.

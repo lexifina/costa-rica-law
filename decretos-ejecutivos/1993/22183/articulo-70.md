@@ -1,0 +1,1 @@
+Artículo 70.—Las corporaciones municipales que en la actualidad tengan manejo de cementerios tales como la Municipalidad de San José, o bien las Juntas de Protección Social existentes, podrán seguir funcionando con la misma estructura técnica administrativa, financiero contable y cualquier otro tipo de controles propios de su organización.

@@ -1,0 +1,1 @@
+Artículo 33.—El permiso de exhumación extraordinaria extendido por la División de Epidemiología del Ministerio, especificará las precauciones sanitarias que en cada caso deberán observar tos encargados de ejecutarlas.

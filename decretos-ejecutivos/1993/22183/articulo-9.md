@@ -1,0 +1,1 @@
+Articulo 9°.— Donde no exista Junta de Protección Social o ésta hubiere sido disuelta, regirá una Junta Administradora de nombramiento de la Municipalidad respectiva con las atribuciones y exigencias que establece el artículo anterior para las Juntas de Protección Social y hasta tanto ésta, no sea integrada de nuevo.

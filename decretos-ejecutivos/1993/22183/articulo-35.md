@@ -1,0 +1,1 @@
+Artículo 35.—La exhumación de fallecidos por viruela, coccidioidomicosis o Fiebre del Valle de San Joaquín, escarlatina, tifo exantemático, difteria, cólera o peste bubónica, requiere permiso escrito de la División de Vigilancia Epidemiológica del Ministerio, en obligada consulta al Médico Director de la Región respectiva.

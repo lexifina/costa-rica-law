@@ -1,0 +1,1 @@
+Artículo 46. Los nichos se excavarán en el suelo y tendrán un revestimiento en las paredes de bloque o ladrillo con refuerzo: las tapas deben ser de concreto reforzado. En casos individuales especiales se podrá hacer la sepultura sin revestimiento siempre que se cuente con el plano previamente aprobado por las instituciones correspondientes.

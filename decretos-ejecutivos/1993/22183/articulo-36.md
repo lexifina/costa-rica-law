@@ -1,0 +1,1 @@
+Artículo 36.— El Director de todo hospital público o privado donde ocurra una defunción a consecuencia de una enfermedad contagiosa, en consulta con el Departamento de Vigilancia Epidemiológica del Ministerio, podrán autorizar el traslado directo deI cadáver al cementerio.

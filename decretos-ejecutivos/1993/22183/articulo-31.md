@@ -1,0 +1,1 @@
+Artículo 31.—Los huesos que se encuentren al hacer las exhumaciones ordinarias serán recogidos cuidadosamente y depositados en el osario común, siempre que los deudos interesados no los reclamen para depositarios en osarios privados que posean dentro del mismo cementerio. Los residuos de cajas, ropas y otros, serán recogidos aparte y deberán incinerarse.

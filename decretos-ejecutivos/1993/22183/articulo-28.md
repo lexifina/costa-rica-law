@@ -1,0 +1,1 @@
+Articulo 28.—En el área destinada a las fosas comunes, cada sepultura será marcada con una losa, cruz u otro distintivo que llevarán número progresivo y el año que fue hecha la inhumación. Deberán ser ubicadas frente a los pasillos y sus dimensiones serán definidas por la Junta respectiva.

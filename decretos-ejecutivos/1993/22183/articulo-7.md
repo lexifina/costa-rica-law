@@ -1,0 +1,1 @@
+Artículo 7°.—. Podrán dedicarse a esta actividad únicamente aquellas empresas y establecimientos debidamente registrados y autorizados por el Departamento de Vigilancia Epidemiológica del Ministerio que cuenten con las instalaciones adecuadas, personal idóneo, el equipo indispensable y el respectivo permiso sanitario de funcionamiento.

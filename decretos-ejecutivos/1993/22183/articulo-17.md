@@ -1,0 +1,1 @@
+Articulo 17.—La topografía del terreno tendrá pendientes menores de 10%. En caso de mayor pendiente, se deberá construir terrazas para las fosas que terminarán en taludes pronunciados no más de dos x uno, 2 en la horizontal y 1 en la vertical. Las terrazas tendrán contra pendiente mínima del 1%.
