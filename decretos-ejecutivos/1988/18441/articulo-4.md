@@ -1,1 +1,0 @@
-Artículo 4°.- El plan general de escrito en el artículo segundo anterior constituirá una labor prioritaria dentro de los programas del Ministerio de Obras Públicas y Transportes, hasta tanto el Poder Ejecutivo declare, por decreto, la cesación del estado de emergencia conforme lo dispone el artículo 3° de la Ley Nacional de Emergencias.
