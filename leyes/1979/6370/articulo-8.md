@@ -1,11 +1,2 @@
-Artículo 8º.- El Estado financiará inmediatamente y adecuadamente la
-compra y acondicionamiento de terrenos necesarios, su conservación y la
-dotación de la infraestructura primaria, para ejecutar el proyecto
-turístico en Bahía Culebra. Se autoriza al Instituto Costarricense de
-Turismo para coordinar con las instituciones y organismos estatales, la
-construcción de las obras requeridas.
-Asimismo el Estado proporcionará, en el menor tiempo posible y a
-través de sus instituciones, las facilidades básicas al costo, a aquellos
-vecinos que deseen reubicarse en el sitio o sitios de la zona adyacente al
-proyecto. Estos serán determinados de común acuerdo y sin menoscabo de la
-economía en la prestación de los servicios públicos.
+Artículo 8º.- El Estado financiará inmediatamente y adecuadamente la compra y acondicionamiento de terrenos necesarios, su conservación y la dotación de la infraestructura primaria, para ejecutar el proyecto turístico en Bahía Culebra. Se autoriza al Instituto Costarricense de Turismo para coordinar con las instituciones y organismos estatales, la construcción de las obras requeridas.
+Asimismo el Estado proporcionará, en el menor tiempo posible y a través de sus instituciones, las facilidades básicas al costo, a aquellos vecinos que deseen reubicarse en el sitio o sitios de la zona adyacente al proyecto. Estos serán determinados de común acuerdo y sin menoscabo de la economía en la prestación de los servicios públicos.
