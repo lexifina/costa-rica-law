@@ -1,1 +1,1 @@
-Artículo 21°-El marido que sin autorización legal para negar los alimentos á su esposa, dejare de suministrarle los que corresponden á sus facultades, será obligado á ello á tasación de la autoridad, y por cada vez que omitiere cumplir con lo ordenado por ésta, sufrirá la pena de diez á treinta pesos de multa ó arresto de uno á tres meses. En la misma pena incurre toda persona que igualmente obligada á proveer los alimentos de otra, dejare de verificarlo.
+Artículo 21°-(Derogado por el artículo 5 de la ley N° 10 del 6 de junio de 1916)
