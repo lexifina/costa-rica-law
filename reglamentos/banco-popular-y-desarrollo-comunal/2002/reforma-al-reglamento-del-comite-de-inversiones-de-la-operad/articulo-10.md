@@ -1,0 +1,11 @@
+Artículo 10.—Se establecen los siguientes parámetros de inversión:
+a. Inversiones en el Sector Privado Nacional.
+Podrán realizarse en valores calificados "AAA" y/o "AA" por una empresa calificadora aprobada por la SUGEVAL, y siempre y cuando el total de inversiones en valores "AA" no supere el 25% del total de inversiones en el sector privado nacional.
+Además, podrán realizarse inversiones en valores emitidos por bancos cuyo patrimonio supere el equivalente de diez millones de dólares de los Estados Unidos de América, según el tipo de cambio que haya fijado el Banco Popular y de Desarrollo Comunal para la venta de divisas, y siempre y cuando el emisor esté en una situación de riesgo normal según la calificación CAMELS otorgada por la SUGEF, que el Comité deberá analizar.
+Las inversiones en títulos emitidos en moneda extranjera diferente a los dólares de los Estados Unidos de América, deberán siempre ser autorizadas por el Comité, por lo que en estos casos no será aplicable lo dispuesto en el artículo 9 de este Reglamento.
+b. Inversiones en fondos de inversión de cualquier clase
+Para realizar esta clase de inversiones, el Comité deberá previamente analizar la información financiera de la respectiva Sociedad de Fondos de Inversión, y determinará qué fondos de inversión cumplen con los requerimientos de rentabilidad, plazo, seguridad y otros que estime importantes, todo de acuerdo con la última información disponible por la SUGEVAL y cualquier otra información que estime conveniente considerar, todo de conformidad con la normativa aplicable.
+c. Inversiones en el Sector Público Nacional.
+Las sumas por invertir estarán sujetas al porcentaje máximo definido por la SUPEN, y las inversiones se realizarán de acuerdo con los mecanismos y disposiciones que se establezcan para este tipo de inversiones.
+d. Inversiones en valores emitidos por residentes en el exterior, públicos o privados
+Toda inversión en valores emitidos por residentes en el exterior deberá cumplir con lo establecido en la Ley N° 7983 y su Reglamento, la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado y actividades conexas N° 8204, y, además, deberá ser aprobada por la Junta Directiva de la Operadora, previa recomendación del Comité.
