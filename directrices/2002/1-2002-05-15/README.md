@@ -14,3 +14,4 @@ Disposiciones de aplicación para las empresas públicas e instituciones del Sec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-05-15 | la propia norma |
+| 2 | 2002-06-12 | Directriz 3 (2002-06-12) |
