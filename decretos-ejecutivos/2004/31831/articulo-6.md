@@ -1,0 +1,2 @@
+Artículo 6º—Tarifas a reconocer. El Ministerio cubrirá el monto total de la facturación mensual, tanto al Ministro como al Viceministro, por el uso en funciones propias del cargo, del aparato celular y líneas telefónicas propiedad del Ministerio de Agricultura y Ganadería.
+En cuanto al Oficial Mayor, Director Administrativo Financiero, Auditor y Director de Operaciones, se les reconocerá una facturación mensual, equivalente a cuatro tarifas básicas, por lo que cualquier exceso deberá ser cubierto de su propio peculio.
