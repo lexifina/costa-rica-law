@@ -1,0 +1,1 @@
+Art. 4°.-El Poder Ejecutivo queda autorizado para dar, cuando lo estime conveniente, el carácter de registradores auxiliares, con el fin de recibir declaraciones de nacimiento, a los Agentes de Policía que nombre en distritos importantes de un cantón y para señalar a estos el territorio de su competencia.

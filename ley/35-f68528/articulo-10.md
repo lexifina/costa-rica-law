@@ -1,0 +1,1 @@
+Art. 10.-Al quedar completamente lleno cualquiera de los Iibros del Registro se cerrara poniendo al fin una razón en que se haga constar la época que comprende. Esta razón será firmada par el Registrador y por dos testigos de asistencia.

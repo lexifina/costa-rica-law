@@ -1,5 +1,6 @@
-(Suspendida)
+(Derogado)
 DECRETO N° LI
+(Esta ley fue derogada por el artículo final de la ley Orgánica y Reglamentaria del Registro del Estado Civil, N° 35 del 30 de diciembre de 1887)
 (Mediante ley N° 3 del del 16 de febrero de 1882, se suspenden los efectos de esta ley)
 (Nota: se respeta la ortografía y gramática del texto original)
 Establece el registro civil

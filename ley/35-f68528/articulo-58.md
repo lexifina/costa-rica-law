@@ -1,0 +1,2 @@
+Art. 58.-Cuando el titulo no exista en el despacho, podrá también el Registrador rectificar los errores ú omisiones cometidos en asientos secundarios, si la inscripción principal basta para darlos a conocer y es posible rectificarlos por ella.
+Caso de que la inscripción principal no baste para rectificar por ella los asientos secundarios, no podrá hacerse la rectificación sino de común acuerdo entre el Registrador y todos los interesados que en ella hubiere, siendo capaces de obligarse.

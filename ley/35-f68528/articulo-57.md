@@ -1,0 +1,1 @@
+Art. 57.-El Registrador podrá rectificar por sí bajo su responsabilidad, los errores puramente materiales que no afecten el contenido de la inscripción, cuando en el despacho exista aún el titulo respectivo.

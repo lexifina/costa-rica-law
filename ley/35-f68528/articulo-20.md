@@ -1,0 +1,1 @@
+Art. 20.-Los encargados de los Registros auxiliares llevaran un libro para asentar las actas de los matrimonios que celebren y dos libros talonarios, uno para tomar nota de los nacimientos que se declaren ante ellos y otro de recibos para las certificaciones de las matrimonios católicos que se celebren en su iurisdicción.
