@@ -1,0 +1,2 @@
+Artículo 4º—Modifíquese el transitorio único del Decreto Nº 29421-S-MEIC-TUR para que se lea como sigue.
+"Transitorio único.—Las empresas de turismo de aventura que operen antes de la promulgación del presente decreto, gozarán hasta el 1° de abril del 2003, para cumplir con el requisito referente a contar con la totalidad de guías de turismo con el registro y credencial provisional o definitiva otorgada por el Instituto Costarricense de Turismo".
