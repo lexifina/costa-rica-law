@@ -1,0 +1,1 @@
+Artículo 11.—Conservación. En caso que el Museo de Arte Costarricense, apruebe la compra de una obra con problemas de conservación, el costo de dicho trabajo deberá ser deducido del valor propuesto por el oferente.

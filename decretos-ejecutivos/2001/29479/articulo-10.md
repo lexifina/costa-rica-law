@@ -1,0 +1,2 @@
+Artículo 10.—Facultad de no aprobar la adquisición. La Junta Administrativa podrá pronunciarse sobre la calidad y el valor de la obra, y decidir por mayoría de votos la adquisición o no de una obra de arte por parte de las instituciones del Estado, aún y cuando éstas sean a título de donación, fideicomiso o similares.
+Los miembros de la Junta que así lo deseen, tendrán el derecho de razonar su voto y que sus argumentos sean incluidos en el acta de la sesión.

@@ -1,0 +1,1 @@
+Artículo 14.—Aplicación Supletoria. En lo no previsto en el presente reglamento, se aplicarán supletoriamente las disposiciones establecidas en la Ley Nº 6091, Ley de Creación del Museo de Arte Costarricense, Ley Nº 6750, Ley de Protección de las Artes Plásticas, y el Decreto Ejecutivo Nº 18215-C-H, Reglamento a la Ley de Protección de las Artes Plásticas.

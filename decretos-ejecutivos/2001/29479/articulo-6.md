@@ -1,0 +1,1 @@
+Artículo 6º—Dictamen Curatorial. El dictamen curatorial del curador del Museo, así como del curador externo, servirán de fundamento técnico a la Junta Administrativa. El dictamen de los curadores, no será vinculante para las decisiones que tome la Junta en la emisión de la resolución final, la cual deberá ser comunicada posteriormente a la institución interesada.

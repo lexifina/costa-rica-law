@@ -1,0 +1,1 @@
+Artículo 2º—Autorización. El Museo de Arte Costarricense, será la entidad encargada de estudiar y autorizar la adquisición de obras artísticas, que se realicen con fondos públicos, aspecto que la institución interesada deberá hacer de conocimiento de quien venda o done la obra.
