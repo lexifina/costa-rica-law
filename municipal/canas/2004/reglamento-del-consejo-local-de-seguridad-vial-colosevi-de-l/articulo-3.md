@@ -1,0 +1,1 @@
+Artículo 3º—Los Consejos Locales de Seguridad Vial se financiarán por medio de las sumas de dinero recaudado por las infracciones a la Ley de Tránsito, correspondiente a cada cantón. Estos dineros provendrán del 10% entregado por el Consejo de Seguridad Vial a la Municipalidad de Cañas.
