@@ -1,0 +1,11 @@
+N° 28762-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En ejercicio de las facultades prerrogativas conferidas por el artículo 140, inciso 3), 8) y 18) y 146 de la Constitución Política y con fundamento en lo establecido en la Ley Nacional de emergencia, N° 7914 del 28 de setiembre de 1999 y la Ley General de la Administración Pública, N° 6227 del 2 de mayo de 1978
+Considerando:
+1°- Que mediante la Ley Nacional de Emergencia, N° 7914 del 28 de setiembre de 1999, se crea la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, como un órgano de desconcentración máxima adscrito a la Presidencia de la República, con personalidad jurídica instrumental, patrimonio y presupuesto propios.
+2°- Que según se dispone en el inciso 8) del artículo 140 de la Constitución Política, en relación con los artículos 113 y 114 de la Ley General de la Administración Pública, es responsabilidad del Poder Ejecutivo velar por el correcto funcionamiento de las dependencias administrativas y la satisfacción del interés general.
+3°.- Que mediante acuerdo N° 406-2000, tomado por la Junta Directiva de la Comisión Nacional de Prevención de Riesgo y Atención de Emergencias, en Sesión Ordinaria N° 94-010, celebrada el 14 de julio del 2000 ; se insta al Ministerio de la Presidencia para que modifique el inciso b) del artículo 25 del Reglamento a la Ley N° 7914, con el fin de reglamentar la regularidad de las sesiones ordinarias de la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias. Por tanto,
+Decretan
+Artículo 1°- Modifíquese el inciso b) del artículo 25 del Decreto Ejecutivo N° 28445-MP, Reglamento de Prevención de Riesgo y Atención de Emergencias, del 3 de febrero del 2000, publicado en el Alcance N° 9 a La Gaceta N° 26 del 7 de febrero del 2000; para que señale lo siguiente:
+“… b)La Junta Directiva deberá reunirse en forma ordinaria, por lo menos una vez cada dos semanas. El día y la hora de las sesiones ordinarias serán acordados por mayoría absoluta de la totalidad de los miembros de la Junta Directiva al iniciarse el cuatrienio, sin perjuicio de que más adelante y por la misma mayoría, se disponga su modificación.
