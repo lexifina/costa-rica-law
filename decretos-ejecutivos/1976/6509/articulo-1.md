@@ -1,0 +1,15 @@
+N° 6509-C
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE CULTURA JUVENTUD Y DEPORTES
+Considerando
+1°─ Que el 19 de abril de 1970, por Decreto Ejecutivo se instauró la cuarta semana del mes de abril de cada año como “Semana de la Juventud”, dedicada especialmente a fomentar, promover y divulgar las actividades de la juventud en bien de la comunidad.
+2°─ Que se fundamentó dicho decreto en que el 19 de abril de 1965 inició formalmente sus actividades el Movimiento Nacional de Juventudes al inaugurar su primer curso para instructores Juveniles, en el que participan veintitrés jóvenes que al finalizar su adiestramiento fundaron los primeros ocho centros juveniles del Movimiento en otras tantas comunidades rurales y urbanas del país.
+3°─ Que tomó en consideración además que con ese curso comenzó la labor de una institución que, a lo largo de sus años de servicio, demostró que al brindársele a los jóvenes, dentro de marcos apropiados, la oportunidad de divertirse sanamente y a la vez prestar servicios al país, estos responden positivamente en beneficio de la nación.
+4°─ Que la Ley Orgánica del Movimiento Nacional de Juventudes fue aprobada por la Asamblea Legislativa y sancionada por el Poder Ejecutivo en abril de 1966, lo que institucionalizó y promovió con mayor fuerza las actividades juveniles.
+5°─ Que las razones que originaron el referido Decreto Ejecutivo mantienen plena vigencia, sea el notable incremento que desde la fundación del Movimiento Nacional de Juventudes se ha podido percibir en la participación de la juventud en el proceso de desarrollo del país; que los jóvenes han comprendido que su papel dentro de la sociedad no puede ser pasivo sino que tienen también su lugar dentro de la acción para el progreso de nuestro pueblo y ahora participan en la búsqueda de soluciones a los problemas del país y en las actividades de progreso y bienestar de todas las comunidades nacionales.
+6°─ Que el servicio voluntario de las agrupaciones juveniles se inició con el Movimiento Nacional de juventudes, incrementándose la con la creación del Ministerio que tiene a su cargo la Cartera de Juventud, de lo que aquella institución fue antecedente necesario.
+7°─ Que la celebración de la Semana de la Juventud se ha venido variando de fecha, año a año, cuando las razones expuestas aconsejan que se lleve a cabo en la cuarta semana del mes de abril de cada año, como se hizo en su creación, intensificando en ella la promoción de las actividades juveniles y su participación en proyectos de beneficio comunal y proyección social, junto con la conmemoración anual del inicio de las actividades a través del Movimiento Nacional de Juventudes.
+Por tanto,
+Decretan:
+Artículo único: La “Semana de la Juventud”, dedicada especialmente a fomentar, promover y divulgar las actividades de la juventud en bien de la comunidad, se seguirá celebrando la cuarta semana del mes de abril de cada año.
+Dado en la Casa Presidencial.─ San José, a los dos días del mes de noviembre de mil novecientos setenta y seis.
