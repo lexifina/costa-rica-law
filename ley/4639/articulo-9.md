@@ -1,0 +1,1 @@
+Artículo 9º.- La Guardia de Asistencia Rural contará con la reglamentada colaboración del Consejo Superior de Defensa Social, en cuanto a los servicios de talleres de mecánica, de sastrería, de zapatería y de caballerizas.
