@@ -1,0 +1,1 @@
+Art 5° El sobrante del presupuesto de ingresos sobre el de egreso, se aplicará a cubrir los gastos para que ha sido lo autorizado el Poder Ejecutivo el Poder Ejecutivo por disposiciones anteriores, y que hasta ahora no se le haya efectuado.
