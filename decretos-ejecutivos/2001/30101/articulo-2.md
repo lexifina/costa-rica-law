@@ -1,0 +1,1 @@
+Artículo 2°—Se constituye una Comisión Ejecutiva que en asocio con el Consejo Nacional de Vialidad brinde apoyo, seguimiento, control, supervisión e inspección del Proyecto "Construcción de la carretera a San Carlos (Naranjo - Florencia)", que permanecerá por el tiempo que se requiera, hasta la recepción satisfactoria del Proyecto.
