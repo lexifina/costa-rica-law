@@ -13,3 +13,4 @@ Reglamento Sobre Escaleras de Emergencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-04-27 | la propia norma |
+| 2 | 1993-04-27 | SINALEVI (sin norma nombrada) |
