@@ -1,0 +1,2 @@
+Art. 7°-Con el presente decreto se dará cuenta al Congreso Constitucional en la siguiente legislatura ordinaria.
+AL PODER EJECUTIVO.--Dado en el salón de sesiones del Palacio Nacional, en San José, á los veinticuatro días de octubre de mil ochocientos ochenta y tres.-A. DE JESÚS SOTO, Presidente.-LEOVIGILDO CASTRO S., Secretario.-Palacio Presidencial. - San José, veinticuatro de octubre de mil ochocientos ochenta y tres.-Ejecútese.-P. FERNÁNDEZ.-El Secretario de Estado en el Despacho de Gracia y Justicia.-VÍCTOR GUARDIA.

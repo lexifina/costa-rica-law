@@ -1,0 +1,1 @@
+Art. 6°-Cuando fuere necesario notificar fuera de los oficios, la notificación será firmada por el notificador público y el notificado; y si éste no supiere, no pudiere ó no quisiere firmar, lo hará también un testigo. Por lo demás, en cuanto á la forma de las notificaciones y citaciones se observarán las reglas prescritas en las leyes preexistentes.
