@@ -1,0 +1,1 @@
+Artículo 6°-Toda iniciativa que requiera asignación de fondos públicos, nacionales o internacionales, en el ámbito del manejo de desechos, deberá ser conocida por el Departamento de Control Ambiental de la División de Saneamiento Ambiental del Ministerio de Salud, quién podrá solicitar el criterio del grupo de apoyo interinstitucional.

@@ -1,0 +1,1 @@
+Artículo 2°-Declárese, el Plan Nacional de Manejo de Desechos, elaborado por el Gobierno de Costa Rica y la G .T .Z. en 1991, denominado en lo sucesivo, Plan, como el marco de referencia que rija las estrategias de solución integral de corto, mediano y largo plazo, para el manejo adecuado de los desechos del país.

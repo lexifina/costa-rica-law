@@ -1,0 +1,1 @@
+Artículo 5.º EI coordinador del Plan, podrá gestionar los recursos posibles para que tanto la División de Saneamiento Ambiental del Ministerio de Salud, como el grupo de apoyo interinstitucional, puedan velar por la ejecución adecuada del Plan.
