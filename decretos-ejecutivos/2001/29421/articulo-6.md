@@ -1,0 +1,1 @@
+Artículo 6º—El Instituto Costarricense de Turismo, deberá exigir el permiso de funcionamiento del Ministerio de Salud, a las empresas de turismo que realicen actividades de "Turismo Aventura", que opten por la Declaratoria Turística prevista en el Reglamento de Empresas y Actividades Turísticas.

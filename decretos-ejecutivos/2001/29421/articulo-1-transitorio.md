@@ -1,0 +1,1 @@
+Transitorio único.—Las empresas de turismo de aventura que operen antes de la promulgación del presente decreto, gozarán de un plazo de tres meses para ajustarse a las disposiciones del este reglamento, salvo en cuanto a la suscripción de la póliza de responsabilidad civil y riesgos de trabajo, requisito que deberán cumplirlo de forma inmediata.

@@ -1,0 +1,1 @@
+Artículo 7º—El Ministerio de Salud renovará los permisos de funcionamiento anualmente, para lo cual los empresarios deberán actualizar la información de las condiciones previstas en el artículo 2 de este reglamento.

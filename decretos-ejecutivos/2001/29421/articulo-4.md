@@ -1,0 +1,1 @@
+Artículo 4º—Las empresas cubiertas por la presente regulación, deberán cumplir en forma permanente, con las condiciones de operación establecidas en el artículo dos. Con este fin, el Instituto Costarricense de Turismo y el Ministerio de Salud, quedarán obligados a realizar en forma constante y aleatoria, inspecciones de verificación de lo antes señalado.
