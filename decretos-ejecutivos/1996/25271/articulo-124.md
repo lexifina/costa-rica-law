@@ -1,0 +1,1 @@
+Artículo 124.—Las gestiones de los funcionarios (as) deberán hacerse por escrito, pero también podrán hacerse en forma verbal, cuando así lo exija la urgencia del caso o la naturaleza del mismo. Siempre deberán hacerlo en forma respetuosa, objetiva y comedida.

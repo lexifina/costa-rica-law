@@ -1,0 +1,1 @@
+Artículo 20.—Deberán adoptarse las medidas necesarias para los trabajadores (as) cuya permanencia no sea aconsejable, por razones médicas, en un puesto que entrañe exposición a los riesgos de su trabajo, debiendo en este caso, proceder al traslado del funcionario(a) a un puesto más adecuado.

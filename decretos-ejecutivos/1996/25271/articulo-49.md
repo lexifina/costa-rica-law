@@ -1,0 +1,2 @@
+Articulo 49.—Del total que le corresponde, el servidora) deberá disfrutar al menos de dos semanas de vacaciones (doce días hábiles) cada año, periodo que es incompensable.
+Cuando el servidor(a) lo solicite, el Ministerio lo acepta por razones de conveniencia institucional y exista disponibilidad presupuestaria, se podrá compensar económicamente el exceso de vacaciones a que tiene derecho el servidor(a) en forma total o parcial.

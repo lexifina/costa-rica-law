@@ -1,0 +1,1 @@
+Artículo 77.—La Junta será de carácter consultivo y tendrá como propósito, el estudio armonioso de las situaciones de conflicto de índole laboral, sean estos de naturaleza individual o colectiva, o de las demandas de mejoramiento social en beneficio de los servidores.

@@ -1,0 +1,1 @@
+Artículo 87.—La llegada tardía que exceda de 15 minutos, contados a partir de la hora de ingreso establecida, acarreará la pérdida de media jornada, correspondiente esta falta a la mitad de una ausencia, para efectos de sanción, salvo que el (la) responsable de la dependencia, programa o equipo de trabajo avale la justificación, bajo su responsabilidad.

@@ -1,0 +1,1 @@
+Artículo 85.—Es responsabilidad del funcionario(a) justificar la irregularidad en su asistencia, dentro de la fracción de jornada siguiente de incurrida la misma, o cuando se utilice más tiempo luego del almuerzo o de cualquiera de los períodos para el refrigerio.

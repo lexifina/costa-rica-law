@@ -1,0 +1,1 @@
+Artículo 25.—Se considerará un acto de discriminación, cuando los mecanismos empleados para este proceso no estén adaptados a las condiciones del (la) aspirante, cuando se exijan requisitos adicionales a los establecidos para todos los (las) solicitantes o cuando no se emplee a un trabajador(a) idóneo en razón de su discapacidad.

@@ -1,0 +1,2 @@
+Artículo 113.—Tanto la amonestación oral como la advertencia escrita, relacionadas con aspectos disciplinarios ajenos a las faltas por inasistencia al trabajo, serán impuestas por quien funge como jefe inmediato del funcionario(a), previo cumplimiento del debido proceso.
+Las sanciones por inasistencia al trabajo corresponderá aplicarlas a los (las) jerarcas de las distintas dependencias del Ministerio, previo informe de la unidad administrativa respectiva.

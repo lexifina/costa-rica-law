@@ -1,0 +1,1 @@
+Artículo 21.—Las Comisiones de Salud Ocupacional; en coordinación con las autoridades superiores de cada dependencia, podrán realizar actividades de formación humanística, intelectual, estética, deportiva y recreativa que permiten el desarrollo de actitudes.

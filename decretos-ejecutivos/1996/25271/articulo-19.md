@@ -1,0 +1,1 @@
+Articulo 19.—El Ministerio promoverá la creación y funcionamiento oficial de Comisiones de Salud Ocupacional del Trabajo para que se capaciten en salud ocupacional, emergencias y riesgos del trabajo; que sirvan de retroalimentación al resto de los funcionarios (as) respecto a la difusión y práctica de métodos y sistemas técnicos de prevención en esta materia, en forma permanente.

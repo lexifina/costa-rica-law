@@ -1,0 +1,1 @@
+Artículo 40.—Tanto la persona denunciante de hostigamiento sexual como los testigos de las partes, gozarán de las garantías y derechos previstos en la Ley No. 7476 del 03 de febrero de 1995, en relación con su empleo y condiciones generales de trabajo.

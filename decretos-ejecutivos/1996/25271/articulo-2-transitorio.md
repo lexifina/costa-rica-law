@@ -1,0 +1,1 @@
+Transitorio II.—Respecto de lo establecido en los artículos 31 y 116 y siguientes del presente Reglamento, entrará en vigencia una vez publicado el Decreto de Reestructuración de la Oficialía Mayor y Dirección Administrativa del Ministerio.

@@ -1,0 +1,1 @@
+Artículo 62.—Los salarios del Ministro(a), Viceministro(a) y del (la) Oficial Mayor y Director(a) Administrativo(a), serán fijados por la Autoridad Presupuestaria, hasta tanto no se dicte una legislación especial sobre el particular.

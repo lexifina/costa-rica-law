@@ -1,0 +1,1 @@
+Artículo 127.—El Ministerio se reserva el derecho de adicionar o modificar en cualquier momento las disposiciones de este reglamento, cumpliendo con los dispuesto en el Artículo 136, inciso e) de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 100.—Deber de conducirse apropiadamente frente al público. Todo servidor(a) debe observar frente al público, en el servicio y fuera de él, una conducta correcta, digna y decorosa, acorde con su jerarquía y función, evitando conductas que puedan socavar la confianza del público en la integridad del funcionario(a) y del Ministerio.

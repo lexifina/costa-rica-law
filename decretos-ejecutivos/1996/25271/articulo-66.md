@@ -1,0 +1,1 @@
+Artículo 66.—Sólo se retribuirá el recargo de funciones cuando sea por periodos mayores de un mes y se pagará con fundamento en la diferencia existente entre el salario base del puesto que ocupa el funcionario (a) y el salario base del puesto en recargo.

@@ -1,0 +1,1 @@
+Artículo 22.—Todo funcionario, grupo u organización de trabajadores del Ministerio, tendrá derecho a presentar las quejas y propuestas tendientes a mejorar las condiciones laborales a la Comisión de Salud Ocupacional, la cual deberá pronunciarse en los plazos establecidos en la Ley General de Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 68.—El pago por concepto de zonaje se regulará por lo que dispongan las normas legales existentes y su monto será de acuerdo con las disposiciones que sobre el particular dicte la Contraloría General de la República.

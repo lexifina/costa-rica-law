@@ -1,0 +1,1 @@
+Artículo 83.—Salvo caso previstos en este reglamento, la omisión de registro de asistencia a cualquiera de las horas establecidas, se considerará como ausencia a la respectiva fracción de jornada. Sólo en casos muy calificados se justificará la omisión por asuntos que no sean estrictamente de trabajo.

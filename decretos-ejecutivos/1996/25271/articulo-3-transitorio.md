@@ -1,0 +1,2 @@
+Transitorio III.—En relación con el artículo 70 del presente Reglamento, los funcionarios de las diferentes dependencias, que cuenten con una jornada laboral inferior a la indicada en este artículo, mantendrán esa condición. Todos aquellos funcionarios que a partir de la vigencia de este Reglamento ingresen a laborar al Ministerio, a cualquiera de sus dependencias, estarán sujetos al nuevo horario establecido.
+Dado en la Presidencia de la República.—San José, a los catorce días del mes de junio de mil novecientos noventa y seis.
