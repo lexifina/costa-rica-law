@@ -1,0 +1,1 @@
+Artículo 19.-En el caso de que un enfermo considerado como pobre haya de presentar a la autoridad un certificado sobre el estado de su salud, bien sea para eximirse legalmente de un cargo público, del servicio militar o para cualquier otro objeto de requerimiento especial de la autoridad judicial o política, el Médico Oficial estará obligado a extender tal certificado.
