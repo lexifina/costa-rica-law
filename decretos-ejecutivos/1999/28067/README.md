@@ -13,3 +13,4 @@ Declara Interés Público Primer Congreso Americano Periodismo Internet(En Costa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-03 | la propia norma |
+| 2 | 1999-09-03 | SINALEVI (sin norma nombrada) |
