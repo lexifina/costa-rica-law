@@ -1,0 +1,1 @@
+Artículo 12.-EI fondo fijo que mantiene la Caja Recaudadora debe entregarse a la Tesorería para ser guardado el último día hábil de la semana. Cuando fuese feriado como el caso de fin de año y de Semana Santa o cualquier otro caso que se presente.
