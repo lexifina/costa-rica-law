@@ -1,0 +1,1 @@
+Artículo 6°—Para facilitar las labores de control y seguimiento en el transporte de los productos provenientes de árboles en terrenos de uso agropecuario, la Administración Forestal del Estado asignará placas de color amarillo.
