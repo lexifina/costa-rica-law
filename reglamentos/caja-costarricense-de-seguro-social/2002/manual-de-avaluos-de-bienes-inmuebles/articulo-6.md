@@ -1,0 +1,1 @@
+Artículo 6º—Formato: El Profesional debe cumplir con los formatos aprobados por la Caja Costarricense de Seguro Social, utilizando la información facilitada. Los informes de avalúos o de tasación se deberán presentar en original y una copia, debidamente firmados y con el número de registro profesional. No se recibirán aquellos realizados a mano

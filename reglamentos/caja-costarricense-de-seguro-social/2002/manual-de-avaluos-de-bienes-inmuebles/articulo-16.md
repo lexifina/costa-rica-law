@@ -1,0 +1,1 @@
+Artículo 16.—Aprobación del informe: Una vez presentado el informe, el Departamento de Crédito procederá a su revisión y aprobación de los casos que sean para compra. Los peritajes para construcción, ampliación o mejoras, serán revisados y aprobados por la Sección Supervisora de Construcciones.

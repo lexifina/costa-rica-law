@@ -1,0 +1,1 @@
+Artículo 12.—Declaración jurada e información adicional: El profesional deberá declarar bajo juramento en cada caso, no tener interés actual ni futuro en los bienes objeto del avalúo. Igualmente en su informe deberá incluir toda aquella información que considere pertinente, además de indicar si recomienda o no el bien valuado como garantía

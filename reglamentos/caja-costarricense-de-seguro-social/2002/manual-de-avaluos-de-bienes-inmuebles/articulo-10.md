@@ -1,0 +1,1 @@
+Artículo 10.—Responsabilidad: El perito asume toda la responsabilidad de las consecuencias profesionales, civiles y penales, que tuviera que afrontar la Caja Costarricense de Seguro Social, por la información contenida en su reporte.

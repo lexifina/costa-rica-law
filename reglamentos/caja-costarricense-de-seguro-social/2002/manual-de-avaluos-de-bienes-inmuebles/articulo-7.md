@@ -1,0 +1,1 @@
+Artículo 7º—Devolución de expedientes: Cuando el caso así lo amerite, será obligación del perito comunicarse con el solicitante. En la eventualidad de no poder establecerse contacto con el prestatario o de no poder ubicar el terreno a valorar, se debe devolver el expediente, con su debida justificación, en el mismo plazo establecido en el artículo 5° del capítulo II.

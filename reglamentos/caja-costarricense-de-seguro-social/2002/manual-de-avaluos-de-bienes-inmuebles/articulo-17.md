@@ -1,0 +1,1 @@
+Artículo 17.—Pago de facturas: Los honorarios profesionales de los peritos correrán por cuenta del interesado en obtener un crédito, por lo que no existe una relación obrero-patronal entre la CCSS y los peritos.
