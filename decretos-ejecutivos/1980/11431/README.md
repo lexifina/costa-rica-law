@@ -13,3 +13,4 @@ Mecanísmo Control Pensiones donde Estado sea Cotizante
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-05-12 | la propia norma |
+| 2 | 1980-05-12 | SINALEVI (sin norma nombrada) |
