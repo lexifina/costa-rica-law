@@ -1,0 +1,3 @@
+Art 2° La recisión se efectuará bajo las bases siguientes: 1° Se pagará al Sr D. Ricardo Fárrer la cantidad de veinticinco mil pesos en estos términos cinco mil pesos en dinero al contado: doce mil pesos en bonos del Crédito Público de 1° clase sin ningún interés y sin prerrogativa alguna, y los ocho mil restantes también en bonos de 2° El Sr Fárrer hará al Gobierno entregará formal del referido puente de hierro, conforme a las dimensiones expresadas en el contrato citado, y 3° Ambas partes deben renunciar cualesquiera reclamos, decretos y acciones que pudieran surgir del contrato ya referido de 12 de febrero de 1859.
+Dado en San José, Setiembre once de mil ochocientos sesenta y dos.
+Poder Ejecutivo, San José setiembre doce de mil ochocientos sesenta y dos.
