@@ -1,0 +1,1 @@
+Art. 4°-Trascurrido el término de diez años, podrá el ocupante continuar en el disfrute de las tierras, mientras no haya quien pretenda la propiedad de ellas. En el caso de haberlo, tendrá el primero el derecho de tanteo; antes de entrar este denunciante en posesión, habrá de indemnizar al anterior poseedor el valor de las mejoras que consistan en obra muerta.

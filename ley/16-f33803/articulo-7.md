@@ -1,0 +1,1 @@
+Art. 7°-Destínase del Tesoro público la suma de cinco mil pesos el primer año; y dos mil quinientos cada uno de los cuatro años siguientes, para el fomento del camino que ha de poner en comunicación expedita con el interior de la República los campos de Térraba y Cañas Gordas.
