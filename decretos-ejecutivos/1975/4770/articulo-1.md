@@ -29,12 +29,8 @@ bananeros nacionales, el cual es administrado por la Asociación Bananera
 Nacional (ASBANA).
 Por tanto,
 DECRETAN:
-Artículo 1º.- Se fija un precio mínimo de exportación de banano en
-fruta de primera calidad, F.O.B. puerto costarricense de US$ 2.15 por
-caja de 18.14 kilogramos netos. Se entiende por caja de 18.14 kilogramos
-netos la que en los mercados de consumo se anuncie con ese precio neto,
-aun cuando en el momento de empaque pueda pesar entre 19 y 21 kilogramos
-netos. Cuando el peso de las cajas sea inferior a los 18.14 o superior a
-los 21 kilogramos netos, el precio mínimo fijado se calculará
-proporcionalmente. Este precio mínimo no incluye los derechos e
-impuestos de exportación.
+"Artículo 1º—El precio mínimo del banano en fruta para la exportación, FOB puerto costarricense, por caja de primera calidad de 18,14 kilogramos netos, en adelante, será de U.S.$ 5.25 (cinco dólares con veinticinco centavos, dólares de los Estados Unidos de América).
+Para otras modalidades de venta de banano para la exportación que se ejecuten en territorio costarricense, que puedan ser o no denominadas con otros incoterms, el precio que deberá prevalecer será el indicado precio FOB, según sea el caso, menos los costos en que el productor no incurra.
+Se entiende por caja de 18.14 kilogramos netos la que en los mercados de consumo se anuncie con ese peso neto, aún cuando en el momento de empaque pueda pesar hasta 19 kilogramos netos. Cuando el peso de las cajas sea inferior a los 18.14 kilogramos netos o superior a los 19 kilogramos netos, el precio mínimo fijado se calculará proporcionalmente.
+Los precios establecidos en los párrafos anteriores, incluyen: a) U.S. $0,05, sobre cada una de las cajas exportadas, cuyo equivalente en colones al tipo de cambio del día de liquidación, de conformidad con el artículo 2° de la Ley Nº 7147, deben ser retenidos y traspasados a CORBANA por las compañías compradoras o comercializadoras de la fruta; b) El costo del control de la Sigatoka Negra o Amarilla. c) La parte del impuesto de exportación regulado por la Ley N° 5515 de 19 de abril de 1974 que mediante Decreto Ejecutivo se ha dispuesto que se incorpora al precio y que se tiene por pagada cuando este se cancela".
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 29355 del 27 de febrero del 2001)

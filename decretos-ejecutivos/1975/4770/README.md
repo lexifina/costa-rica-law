@@ -14,3 +14,4 @@ Fija Precio Mínimo Exportación Banano Fruta Primera Calidad FOB
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-04-25 | la propia norma |
+| 2 | 2001-02-27 | Decreto Ejecutivo 29355 (2001-02-27) |
