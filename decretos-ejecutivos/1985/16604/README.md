@@ -13,3 +13,4 @@ Reglamento Autónomo Servicio Ministerio de Agricultura y Ganadería
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-11-18 | la propia norma |
+| 2 | 1994-11-07 | Decreto Ejecutivo 23780 (1994-11-07) |
