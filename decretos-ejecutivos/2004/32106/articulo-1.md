@@ -1,0 +1,17 @@
+Nº 32106
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En ejercicio de las facultades y atribuciones conferidas por el artículo 140, incisos 3) y 18) de la Constitución Política; la Ley de Administración Vial, Nº 6324 del 24 de mayo del año 1979; y la denominada Ley de Licencias para el Adiestramiento de los Servidores Públicos, N° 1810 del 15 de octubre de 1954, reformada integralmente por la Ley de Licencias para Adiestramiento de Servidores Públicos N° 3009 y su reglamento.
+Considerando:
+1°—Que la capacitación y formación académica del recurso humano resulta una prioridad institucional dentro del Estado, dados los profundos y constantes cambios que produce el conocimiento en la realidad actual; de modo que de no otorgarse esas condiciones, la consecuencia paulatina sería que el personal podría encontrarse desactualizado para afrontar con eficiencia y eficacia los cometidos institucionales.
+2°—Que mediante Decreto Ejecutivo N° 29053-MOPT publicado en La Gaceta N° 214 del 8 de noviembre del año 2000, se publicó el Reglamento de Becas del Consejo de Seguridad Vial, a su vez reformado parcialmente mediante el Decreto Ejecutivo N° 31197-MOPT publicado en el Diario Oficial La Gaceta N° 112 del 12 de junio del año 2003, con el objetivo de llenar la inquietud detallada en el Considerando 1°.
+3°—Que de acuerdo al texto vigente, el otorgamiento de becas se encuentra restringido de manera irrestricta ante el evento de sanciones por aspectos disciplinarios a los servidores del Consejo de Seguridad Vial, lo que ha acarreado no pocos inconvenientes, por lo que se hace necesaria su reforma parcial para atenuar esa situación.
+4°—Que la reforma fue conocida y aprobada en el artículo III de la sesión 2261-04 del 3 de marzo del año 2004 de la Junta Directiva del Consejo de Seguridad Vial. Por lo tanto:
+DECRETAN:
+Artículo 1°—Refórmase el artículo 15 del Reglamento de Becas del Consejo de Seguridad Vial, Decreto Ejecutivo N° 29053-MOPT, para que en adelante se lea de la siguiente forma:
+“Artículo 15.—De los funcionarios excluidos de estos beneficios. No podrán disfrutar de los beneficios establecidos en este reglamento, aquellos servidores que hayan sido suspendidos de sus labores sin goce salarial por la comisión de faltas graves o sean reincidentes en ese tipo de hechos.
+La imposibilidad - salvo por lo que se establece en el párrafo último de este artículo - se mantendrá durante el año siguiente contado a partir del cumplimiento de una sanción de cinco o más días hábiles. En sanciones inferiores a los cinco días hábiles, la prohibición será de seis meses.
+Tampoco podrán disfrutar de los beneficios, quienes hayan obtenido en la última evaluación, una calificación igual o menor a regular o sus equivalentes.
+De manera excepcional, la Comisión de Capacitación podrá aprobar los beneficios en tanto concurran las siguientes situaciones:
+a. Que la capacitación forme parte de las políticas y programas de capacitación establecidos por la Institución y sea imperioso para ésta, que el funcionario afecta a una imposibilidad de las descritas en este artículo la reciba, para dar mejor beneficios al servicio público. Ello deberá quedar debidamente razonado por la Comisión.
+b. Que tanto el jefe inmediato del servidor y el superior de aquel, justifiquen de manera razonada e irrefutable, la necesidad de capacitar al servidor afectado por la imposibilidad, siempre en aras del beneficio del servicio público que se presta y de la eficiencia de la Administración. Ello deberá ser corroborado por la Comisión.
