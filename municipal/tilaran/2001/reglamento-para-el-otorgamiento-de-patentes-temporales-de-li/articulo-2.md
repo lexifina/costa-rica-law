@@ -1,1 +1,2 @@
-Texto no disponible
+Artículo 2º—El Concejo Municipal de Tilarán autorizará la explotación de patentes temporales de licores, durante la celebración de fiestas cívicas, patronales, turnos, ferias y otras actividades afines de acuerdo a los artículos 17 y 18 del Reglamento a la Ley de Licores, dentro de las limitaciones que imponga el Concejo Municipal conforme a las facultades que le otorga la Ley.
+(Así reformado por acuerdo tomado en sesión de fecha 19 de febrero del 2002)
