@@ -15,3 +15,4 @@ Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones.
 | --- | --- | --- |
 | 1 | 1982-12-13 | la propia norma |
 | 2 | 1984-04-09 | Reglamento 3522 (1984-04-09) |
+| 3 | 1984-06-13 | Reglamento 0 (1984-06-13) |
