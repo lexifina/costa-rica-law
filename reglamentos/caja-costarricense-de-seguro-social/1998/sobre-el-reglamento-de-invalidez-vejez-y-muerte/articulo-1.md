@@ -1,0 +1,3 @@
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 8°, acuerdo primero de la sesión número 7210, celebrada el 24 de marzo de 1998, dispuso:
+"Artículo 8° Por tanto, la Junta Directiva:
+Acuerdo Primero: con base en las consideraciones precedentes, teniendo a la vista el estudio realizado por la Dirección Actuarial y de Planificación Económica, una copia del cual se deja constando en forma anexa al borrador original de esta acta, dispone que todas las pensiones del Seguro de Invalidez. Vejez y Muerte que hayan perdido más de un 70% de su valor adquisitivo sean ajustadas de forma tal que a lo sumo pierdan ese 70%.
