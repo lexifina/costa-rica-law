@@ -1,0 +1,1 @@
+Artículo 25.- Se amplía la vigencia del Artículo Transitorio I de la Ley Orgánica del Consejo Nacional de Producción, Ley Nº 6050 del 14 de marzo de 1977, para cubrir asimismo el período del 1º de agosto de 1976 al 31 de julio de 1977.

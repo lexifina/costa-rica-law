@@ -1,0 +1,2 @@
+Artículo 14.- Se modifica el artículo 9º de la ley Nº 6025 de 20/12/76, con el propósito de que la siguiente Norma General se lea de la forma que a continuación se señala:
+"Decimosétima: El Ministerio de Hacienda podrá autorizar hasta tres dozavos de los gastos autorizados en la Ley de Presupuesto Nacional. Las reservas de Crédito Especial y las Solicitudes de Mercancías que impliquen ampliación de la cuota máxima de tres dozavos, requerirán además de las firmas señaladas en la Norma Segunda, la cual del Ministro de Hacienda".

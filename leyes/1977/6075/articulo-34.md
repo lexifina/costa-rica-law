@@ -1,0 +1,2 @@
+Artículo 34.- Modifícase la Norma General Quincuagesimocuarta, aprobada en el artículo 9º de la ley Nº 6025 de 20/12/76 Presupuestos Ordinario y Extraordinarios para 1977, para que se lea de la siguiente forma:
+"Se autoriza al Ministerio de Educación Pública, a pagar con cargo a la cuenta de Fondos de Terceros, artículo 09, inciso 01, las dietas correspondientes a los miembros de la Comisión Nacional de Bachillerato por Madurez. Las dietas no podrán ser mayores de ¢ 250.00 por sesión, con un máximo de ocho sesiones por mes".

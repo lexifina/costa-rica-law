@@ -1,0 +1,3 @@
+Artículo 19.- Se reforman los artículos 104 y 106 del Código Fiscal, Ley Nº 8 de 31 de octubre de 1885. (Reformados por leyes Nº 1396 de 30 de noviembre de 1951 y Nº 1432 de 17 de mayo de 1952), y en consecuencia, dichos artículos se leerán así:
+"Artículo 104.- Se faculta al Poder Ejecutivo para que por intermedios del Ministerio de Hacienda y de acuerdo a las conveniencias del país, fije las tasas a cobrar por concepto de servicio de almacenaje para todo tipo de mercaderías recibidas y depositadas en los recintos aduaneros".
+"Artículo 106.- Cuando se trate de artículos explosivos e inflamables el Poder Ejecutivo deberá fijar y mantener para los mismos, tasas mayores de bodegaje, esto en relación con las que se establezcan para el resto de mercaderías".

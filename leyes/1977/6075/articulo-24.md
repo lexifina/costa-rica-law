@@ -1,0 +1,2 @@
+Artículo 24.- Refórmase el párrafo segundo del artículo 15 de la Ley de Salarios de la Administración Pública, Ley Nº 2166 del 9 de octubre de 1957 y sus reformas para que se lea, así:
+"Los educadores no podrán impartir más de treinta y dos lecciones semanales en propiedad. Excepcionalmente podrán atender una cantidad mayor, cuando el servicio lo demande, pero el exceso se mantendrá como un recargo, por ende, de carácter temporal. La presente reforma rige a partir del primero de marzo de mil novecientos setenta y siete".

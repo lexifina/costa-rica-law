@@ -1,0 +1,2 @@
+Artículo 27.- Modifícase el inciso e) de la Norma General Vigesimoquinta del artículo 9º de la ley Nº 6025 de 20/12/76 para que se lea de la forma que a continuación se indica:
+"e) Trasladar sobrantes del Servicio de la Deuda Pública al Ministerio de Obras Públicas y Transportes para complementar las contrapartidas de préstamos externos, así como también para acelerar la Reforma Penitenciaria del Programa de Adaptación Social, en la medida que dichos sobrantes se produzcan al aplicarse la Refundición de la Deuda Pública Interna Bonificada del Gobierno".

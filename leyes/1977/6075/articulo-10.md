@@ -1,0 +1,2 @@
+Artículo 10°-Modificanse las leyes que a continuación se indican en la siguiente forma. Quedan autorizadas los beneficiarios que tuvieren giros en su poder de acuerdo al destino original a utilizarlos de conformidad a la presente ley y en los casos señalados están obligados a traspasarlos a los nuevos destinatarios.
+(Nota de Sinalevi: Por lo extenso de su contenido, consultar el Alcance N° 101, a La Gaceta N° 141 del 27 de julio de 1977)
