@@ -1,0 +1,1 @@
+Artículo 7°.-Si luego de revisada la embarcación se comprueba que cumple con los requisitos mínimos de seguridad, estanqueidad, estructural y otros establecidos por la Dirección General de Transporte Marítimo, se procederá a confeccionar el certificado de navegabilidad por un plazo máximo de un año.

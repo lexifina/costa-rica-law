@@ -1,0 +1,1 @@
+Artículo 20.-Los certificados de navegabilidad de las embarcaciones con un tonelaje de registro bruto igual o mayor de 50 TRB, serán extendidos por el Director General de Transporte Marítimo o su representante y los de embarcaciones menores de 50 toneladas de registro bruto, serán extendidas por el Capitán de Puerto de la jurisdicción donde se efectúo la inspección.

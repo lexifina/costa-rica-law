@@ -1,0 +1,1 @@
+Artículo 12.-De presentarse la embarcación nuevamente a revisión y prevalecer las condiciones de interferencia por parte de la tripulación, no se efectuará el reconocimiento y la embarcación podrá ser suspendida de navegar hasta por un mes.

@@ -1,0 +1,1 @@
+Artículo 19.-Toda embarcación que no se presente a revisión durante el período establecido y no renueve el certificado de navegabilidad por negligencia del propietario, no se le otorgará zarpe hasta tanto no se ponga a derecho y cumpla lo establecido en el artículo 17 anterior.

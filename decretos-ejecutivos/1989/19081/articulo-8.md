@@ -1,0 +1,1 @@
+Artículo 8°.-Las inspecciones o reconocimiento de embarcaciones con un tonelaje de registro bruto mayor de 100 (cien) TRB, se llevará a cabo de acuerdo con lo establecido en el presente reglamento, sin perjuicio de otras disposiciones que la regulen.

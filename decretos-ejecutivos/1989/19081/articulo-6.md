@@ -1,0 +1,1 @@
+Artículo 6°.-Todas las embarcaciones nacionales con un tonelaje de registro bruto igual o menor de 100 (cien) TRB, deberán ser inspeccionadas por funcionarios de la Dirección General de Transporte Marítimo o personal autorizado por esta, cuando menos una vez al año y tendrá como objeto extender o renovar el certificado de navegabilidad de la embarcación.

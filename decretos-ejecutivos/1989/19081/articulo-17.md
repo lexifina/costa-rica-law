@@ -1,0 +1,2 @@
+Artículo 17.-Cuando una embarcación no se presente a revisión durante el período establecido por la Dirección General de Transporte Marítimo o de acuerdo con lo establecido en el artículo 2° del presente reglamento, el armador deberá solicitar por escrito fecha y hora para la realización de una nueva inspección y a su vez tendrá que cubrir los gastos en que incurra la citada Dirección General para la realización de esta.
+Oportunamente, la Dirección General de Transporte Marítimo, comunicará al armador el monto de los gastos a cubrir, previa la realización de la inspección.

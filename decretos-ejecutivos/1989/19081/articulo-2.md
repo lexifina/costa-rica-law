@@ -1,0 +1,1 @@
+Artículo 2°.-Los reconocimientos, inspecciones o revisiones a que se refiere este reglamento tiene por objeto verificar las condiciones mínimas de conservación del buque, salvaguardar la vida humana en el mar, comprobar el estado de funcionamiento del equipo y cantidad según su autonomía.

@@ -1,0 +1,1 @@
+Artículo 22.-Toda embarcación nacional requiere para solicitar zarpe en la Capitanía de Puerto, tener en vigencia el certificado de navegabilidad, en caso contrario se le denegará el derecho a navegar.

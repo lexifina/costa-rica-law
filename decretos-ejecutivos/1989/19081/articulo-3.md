@@ -1,0 +1,1 @@
+Artículo 3°-Se entiende por reconocimiento o inspección de una embarcación, la verificación de las condiciones de la estructura, maquinaria, instrumentos y equipo de esta al ingresar al Registro Naval Costarricense, así como la revisión periódica de dichas condiciones cuando lo disponga la Dirección General de Transporte Marítimo.

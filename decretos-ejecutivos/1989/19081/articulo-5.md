@@ -1,0 +1,1 @@
+Artículo 5°-El reconocimiento anual de embarcaciones lo realizará la Dirección General de Transporte Marítimo, en los diversos puntos de costa del país, de acuerdo con el calendario que oportunamente se elabore y que se hará del conocimiento de los armadores de buques con un mes de anticipación, mediante la publicación de anuncios en un diario de circulación nacional.
