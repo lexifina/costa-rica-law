@@ -9,5 +9,7 @@ de policía, certificaciones de bancos, recomendaciones y plan de
 trabajo.
 d ) Completar los formularios preparados por la Dirección General de
 Servicio Exterior para ese propósito.
-e)Aprobar los cursos de adiestramiento que imparta el Instituto de
-Servicio Exterior Manuel María de Peralta.
+e))Aprobar los cursos de de adiestramiento que imparta el Instituto de
+Servicio Exterior Manuel de María Peralta cada vez que se considere
+necesario. El adiestramiento podrá hacerse por medios electrónicos o
+aquellos medios de comunicación idóneos para dichos fines.
