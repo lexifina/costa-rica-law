@@ -1,0 +1,1 @@
+Art. 2°-El cinco del presente mes se instalarán las Juntas Electorales que el Gobierno nombre para las provincias y comarca á que pertenecen los lugares de cuyas elecciones se trata y en ese mismo día procederán dichas Juntas á nombrar las de distrito que deben funcionar en tales lugares.

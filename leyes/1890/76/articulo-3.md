@@ -1,0 +1,2 @@
+Art. 3°-Las Juntas de distrito se instalarán el doce del mismo y procederán en seguida á formar las listas de sufragantes hábiles.
+Si resultare de las listas que el número de sufragantes excede de cuatrocientos, la Junta de distrito dará á la de provincia ó comarca respectiva, antes del diez y ocho de este mes, el conocimiento prevenido por el artículo 19 del decreto de 16 de Octubre dicho para los efectos consiguientes.
