@@ -150,3 +150,6 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificados los límites de gasto para el 2002 de la Dirección de Servicios Fitosanitarios del Estado, por el artículo 1 del decreto ejecutivo N° 30642 de 31 de julio del 2002)
 (Modificados los límites de gasto para el 2002 del Instituto de Alcoholismo y Farmacodependencia, por el artículo 1 del decreto ejecutivo N° 30641 de 30 de julio del 2002)
 (Modificados los límites de gasto para el 2002 del Fondo de Parques Nacionales, por el artículo 1 del decreto ejecutivo N° 30643 de 30 de julio del 2002)
+(Modificado el límite de gasto presupuestario y efectivo para el 2002, del Teatro Popular Melico Salazar, por el artículo 1 del Decreto Ejecutivo N° 30659 de 6 de agosto del 2002)
+(Modificado el límite de gasto presupuestario y efectivo para el 2002, del Centro Costarricense de producción Cinematográfica, por el artículo 1 del Decreto Ejecutivo N° 30660 de 6 de agosto del 2002)
+(Modificado el límite de gasto presupuestario y efectivo para el 2002, de la Orquesta Sinfónica Nacional, por el artículo 1 del Decreto Ejecutivo N° 30658 de 6 de agosto del 2002)
