@@ -1,1 +1,0 @@
-Artículo 7.- Cuando en un mismo establecimiento ejerzan actividades lucrativas conjuntamente varias sociedades o personas físicas o jurídicas, el monto del impuesto lo determinará la suma de los montos que le corresponda a cada una individualmente.
