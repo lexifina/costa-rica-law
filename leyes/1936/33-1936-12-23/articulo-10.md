@@ -1,5 +1,5 @@
-Artículo 10.- La presente ley reforma o deroga, en cuanto a ella
-se opongan, las disposiciones de la ley Nº 12 de 30 de octubre de 1924.
+Artículo 10.- La presente ley reforma o deroga, en cuanto a ella se
+opongan, las disposiciones de la ley Nº 12 de 30 de octubre de 1924.
 Artículos transitorios
 Artículo 1º.- El Presidente de la República nombrará la Junta
 Directiva del Banco, conforme a las prescripciones de esta ley, con la
