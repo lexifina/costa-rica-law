@@ -1,0 +1,1 @@
+Artículo 21.—Una vez que el bien se encuentre inscrito a nombre del INFOCOOP, el abogado debe remitir el documento de inscripción respectivo al Departamento de Control de Créditos, debiendo este último informar lo anterior a las instancias pertinentes.

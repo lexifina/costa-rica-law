@@ -1,0 +1,1 @@
+Artículo 2°—Con el propósito de que la Administración de Bienes pueda cumplir sus objetivos Control de Créditos estará en la obligación de enviar a esta: Actas de adjudiciación, documento base por ejecución, y liquidación. Asimismo, le indicará dónde se encuentran ubicados los bienes a recoger.

@@ -1,0 +1,1 @@
+Artículo 20.—La Asesoría Legal o los abogados directores deberán rendir un informe a la Dirección Ejecutiva y al Departamento de Control de Créditos periódicamente de los remates señalados en el transcurso del mes y por consiguiente, del resultado obtenido en cada uno de ellos.

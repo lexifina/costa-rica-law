@@ -1,0 +1,1 @@
+Artículo 19.—El Departamento de Control de Créditos tendrá un Sistema de Registro de Remates, el cual permitirá un control desde que se inició el primer remate hasta que la garantía ha sido adjudicada al INFOCOOP o a un tercero.
