@@ -1,0 +1,1 @@
+Art. 223.-Las compañías ó empresas de ferro- carriles tendrán su derecho á salvo para reclamar, del causante del contrabando ó defraudación, el resarcimiento de las cantidades que por el delito hubieren satisfecho á la Hacienda Pública.

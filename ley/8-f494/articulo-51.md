@@ -1,0 +1,1 @@
+Art 51.- El segundo guarda-almacén lo nombrará el Administrador dentro de la terna que le proponga el primero, por ser ambos solidariamente responsables, y á ninguna hora y en ningún caso pueden los dos ausentarse al mismo tiempo de los almacenes.

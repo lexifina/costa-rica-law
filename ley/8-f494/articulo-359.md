@@ -1,0 +1,1 @@
+Art 359.-Los objetos certificados no se repartirán a domicilio: se avisará al interesado su llegada para que los retire o autorice su retiro por escrito, firmando en ambos casos el recibo del certificado por duplicado. El recibo del título se devolverá a la oficina remitente, la cual lo entregará al certificador, previa devolución de la boleta de depósito.

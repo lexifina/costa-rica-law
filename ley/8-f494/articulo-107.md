@@ -1,0 +1,1 @@
+Art. 107.- Al expirar el término de un año de almacenados los efectos, sin que se haya satisfecho por el injeresado el bodegaje, ó concedídose la renovación del término, el jefe de la Aduana dispondrá la venta al martillo.

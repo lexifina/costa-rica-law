@@ -1,0 +1,1 @@
+Art 454- Los artículos estancados pueden transitar libremente por todo el territorio de la República, con el permiso del almacenista entregador. Cuando el ramo de aguardiente esté arrendado por particulares en alguna provincia o comarca, no podrá transitar por ella con la libertad que establece este artículo, el aguardiente vendido en la Fábrica Nacional de Licores.

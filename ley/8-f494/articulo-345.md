@@ -1,0 +1,1 @@
+Art 345.-Si entre las cartas que se conducen por correo se notare la existencia de objetos cuya circulación prohíbe el artículo anterior, serán decomisados junto con los objetos que contenga, y se dará cuenta al Juez de Hacienda Nacional, para que proceda conforme lo determina la ley.

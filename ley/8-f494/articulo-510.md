@@ -1,0 +1,1 @@
+Art 510.-La propiedad de los terrenos baldíos se adquiere también por prescripción positiva, siempre que se hubieren poseído por espacio de diez años y concurrieren los demás requisitos que el Código Civil exige para la prescripción de inmuebles.

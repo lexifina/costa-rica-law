@@ -1,0 +1,1 @@
+Art 488- La moneda de oro y plata llevará estampado en el anverso el escudo de armas de la Nación con la leyenda “República de Costa Rica” y el año de su acuñación. En el reverso llevará estampadas dos ramas de café entrelazadas, en el centro de ellas el valor, y alrededor América Central. La ley de la moneda y las iniciales del ensayador.

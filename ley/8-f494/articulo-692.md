@@ -1,0 +1,1 @@
+Art 692- Los libros originales, cuadernos de cuentas y comprobantes no saldrán de la oficina por pretexto alguno; pero el empleado, o el Juez que se quiera satisfacer, por razón de su oficio, o que en ellos consta, puede hacerlo a la vista del secretario.

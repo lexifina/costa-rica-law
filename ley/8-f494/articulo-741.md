@@ -1,0 +1,1 @@
+Art 741- Si no hubiere postura legalmente admisible, se dará cuenta al Secretario de Hacienda para que disponga, según convenga a los intereses del erario, nuevo señalamiento de día y rebajo del avalúo hasta de un veinticinco por ciento.

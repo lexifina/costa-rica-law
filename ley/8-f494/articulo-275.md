@@ -1,0 +1,1 @@
+Art. 275.-Para que surtan sus efectos en la República los documentos del exterior que contengan contratos y actos especificados en esta ley, deberán timbrarse con arreglo á la misma, por la persona que haya de hacer uso de ellos.

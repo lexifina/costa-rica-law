@@ -1,0 +1,1 @@
+Art 473- El depósito de menos de cinco kilogramos de tabaco, ó de menos de cinco litros de licor, que sean de ilícita procedencia, será castigado con multa de cincuenta a doscientos pesos, á la primera vez; de doscientos pesos á la segunda reincidencia;y con un año de confinamiento en Talamanca a la tercera ó demás reincidencias.

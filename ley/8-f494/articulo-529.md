@@ -1,0 +1,1 @@
+Art 529.-Aprobado el remate y pagado el precio, si la compra fuere al contado, o pagada la primera anualidad de intereses si la compra fuere a plazos, procederá el Juez previa aprobación del Poder Ejecutivo, a otorgar la correspondiente escritura de venta, que servirá de título de propiedad al rematario.

@@ -1,0 +1,1 @@
+Art 343.-No se dará curso a la correspondencia que contenga valores de cualquiera naturaleza, sin que éstos se manifiesten en la oficina encargada despacharla, a fin de certificarlos y exigir del interesado el correspondiente recibo.

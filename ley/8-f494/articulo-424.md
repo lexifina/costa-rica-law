@@ -1,0 +1,1 @@
+Art 424- Las cifras numéricas que contenga el cuerpo de un telegrama deberán expresarse también en letras, así: ¢ 0,20, veinte céntavos; ¢9,00, nueve pesos. Sólo se cobrará por el número necesario de palabras para expresar las cantidades, y no por las cifras.

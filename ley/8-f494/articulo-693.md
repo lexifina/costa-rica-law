@@ -1,0 +1,1 @@
+Art 693- Las providencias de la Contaduría Mayor, las sentencias y decretos de la misma, y las certificaciones que ésta diere, serán autorizadas por el secretario, con expresión de los derechos que establece la ley, pena de nulidad.

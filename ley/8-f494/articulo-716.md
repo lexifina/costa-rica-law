@@ -1,0 +1,2 @@
+Art 716.-Para la comprobación del cuerpo del delito en las causas sobre depósito de artículos monopolizados de ilícita procedencia, es precisa la aprehensión de los artículos.
+Si no pudiere aprehenderse el licor, por que el poseedor lo derrame ó voluntariamente rompiere el envase se presumirá que el licor era clandestino, si del envase y de los rastros resultare que había licor en el envase roto ó que ra licor derramado.

@@ -1,0 +1,1 @@
+Art. 58·.-El empleado de la Aduana que acompañe al Capitán de puerto en la visita de fondeo, permanecerá á bordo del buque, hasta que el capitán de éste le entregue el manifiesto por mayor de la carga que conduce.

@@ -1,0 +1,9 @@
+Art. 215.-Caerán en comiso en el comercio en general de mercaderías nacionales y extranjeras:
+1. Todas las mercaderías extranjeras, aunque sean libres en su internación; que, s estando, o no manifestadas extraigan de un buque y conduzcan á, tierra, oculta ó fraudulentamente, ó sean -desembarcadas en un punto distinto del señalado para. Verificarlo ó antes de haberse hecho la visita de ley.
+2. -Las mercaderíns extranjeras que habiendo sido extraídas de los almacenes de las Aduanas para volverlas al extranjero, se encontrasen á bordo de un buque con destino á cualquier puerto menor le la República.
+3. Los bultos que se extraigan de losalmacenes para embarcarlos con destino al extranjero, y cuyo contenido resultare distinto del que expresa la respectiva póliza.
+4. Las mercaderías que se embarquen ó desembarquen ó que se encuentren á bordo de cualquier buque que haya tocado ó fondeado en cualquier punto de las costas de la República donde no sea permitido verificarlo, salvo los casos fortuitos.
+5. Los efectos que, sin especial permiso del Administrador de la Aduana respectiva, se desembarquen en uno de los puertos menores ó no habilitados, aunque sean libres de derechos, y los bultos ó fardos que excedan del número para el cual se hubiere concedido la licencia de desembarque.
+6. Las mercaderías que se trasborden de un buque á otro, sin haberse practicado previamente las formalidades que previene esta ordenanza.
+7. Las mercaderías que después de expedidas de las Aduanas de tránsito á la de la capital de la República, fueren halladas en extravíos ó lugares- fuera de los caminos públicos, á menos que el extravío pro venga de caso fortuito.
+8. Las mercaderías que en el tránsito de una Aduana á otra fueren cambiadas, ó suplantadas por otra, en cuyo caso serán decomisados también los carros ó acémilas que los conduzcan.

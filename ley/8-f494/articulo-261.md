@@ -1,0 +1,1 @@
+Art. 261.-Cuando la parte que litiga con el fisco, con la iglesia, Con los municipios, con las corporaciones de caridad, beneficencia ó instrucciún pública, y con los pobres declarados de solemnidad, fuere condenada en costas, conforme á la ley, deberá reintegrar el papel invertido por aquéllas, atendida la cuantía del negocio.

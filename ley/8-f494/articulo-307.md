@@ -1,0 +1,1 @@
+Art 307.-El que destace una res sin satisfacer el impuesto de ley, incurrirá en una multa de veinticinco a cien pesos, no pudiendo después de la tercera falta obtener la licencia de que habla el artículo anterior.

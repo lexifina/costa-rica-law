@@ -1,0 +1,1 @@
+Art 485- Las barras de oro ó de plata que se compren en la Casa de Moneda, se reducirán á la ley de novescientos milésimos. El gobierno fijará el precio á que deba pagarse el kilogramo de oro y plata, y no podrá alterarlo sino con tres meses de anticipación.

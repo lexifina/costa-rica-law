@@ -1,0 +1,1 @@
+Art. 140.-El Alcaide designará el almacén donde deban depositarse los efectos, y los guarda-almacenes recibirán la carga dentro de los almacenes, cuidando de que los porteadores la estiven con separación de marcas que han de quedar del lado visible.

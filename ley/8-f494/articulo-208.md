@@ -1,0 +1,1 @@
+Art. 208.-Los Administradores de las Aduanas de tránsito remitirán mensualmente ú, la Dirección General de Aduanas, un estado demostrativo de las mercaderías que hubieren sido registradas, con expresión de su procedencia, del buque en que hubieren sido introducidas y de-los derechos cobrados.

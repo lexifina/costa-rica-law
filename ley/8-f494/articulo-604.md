@@ -1,0 +1,1 @@
+Art 604.-Las certificaciones que el Tenedor de Libros expedida en papel de oficio, para el cobro de las deudas a favor de la Nación, tendrán fuerza ejecutiva, y este empleado cobrará por ellas los derechos establecidos por la ley.

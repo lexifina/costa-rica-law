@@ -1,0 +1,1 @@
+Art. 141.-Los guarda-almacenes cuidarán también. de confrontar con las guías la marca, número y peso de cada bulto; y darán inmediato aviso al Administrador de las diferencias que observen en la carga'que reciban.

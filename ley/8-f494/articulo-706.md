@@ -1,0 +1,1 @@
+Art 706- El presupuesto general se dividirá en dos partes: una que detalle las rentas y entradas,, con indicación del producto bruto probable que se espere de cada una, y otra que contenga los gastos que deban hacerse en cada uno de los ramos del servicio público.

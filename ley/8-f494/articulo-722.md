@@ -1,0 +1,2 @@
+Art 722.- El pósedor de un campo donde se encuentren artículos estancados de ilícita procedencia, ó algún cultivo de tabaco, ó aparatos destilatorios, se presume autor del delito para iniciar el procedimiento: pero es preciso completar la prueba para que pueda imponérsele la pena de contrabandista, ó probar que la siembra, especies ó aparatos existían allí con conocimiento y tolerancia suya.
+Aunque no pueda averiguarse quién sea el autor del delito, las siembras serán destruidas y las especies ó fabricas decomisadas.

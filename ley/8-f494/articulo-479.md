@@ -1,0 +1,1 @@
+Art 479- Veinticinco gramos de plata, de ley de novescientos milésimos de fino, constituyen la unidad monetaria de la República. La unidad monetaria se llama peso, y el peso se divide en cien centavos.

@@ -1,0 +1,1 @@
+Art. 173.-EI porteador que llevare su carro, carros ú acémilas cargados, por otra calle ó camino que no fuere la carretera, que de cualquier modo infrinja las disposiciones de los artículos anteriores, responderá de las averías que sufra la carga; aunque sean por caso fortuito.

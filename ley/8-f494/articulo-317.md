@@ -1,0 +1,1 @@
+Art 317- La patente debe renovarse cada trimestre; y el expendedor patentado que no ocurra oportunamente a renovar su patente, incurrirá en la multa de un peso por cada día que deje transcurrir sin renovarla. Esta multa será satisfecha junto con los derechos de renovación.

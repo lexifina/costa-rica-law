@@ -1,0 +1,6 @@
+Art 570- Para emitir billetes del Tesoro, se observarán las siguientes formalidades:
+1º- La emisión de billetes deberá ser previamente autorizada y limitada por el Poder Legislativo, en la ley de presupuesto general, o en ley especial.
+2º- Decretada la emisión, el Secretario de Hacienda dará orden al jefe de sección para que le remita la suma acordada, con designación de clases de billetes y de su numeración.
+3º- Dichos billetes serán firmados por el Secretario de Hacienda y por el Tesorero Nacional, o la persona que lo represente, y sellados en el sello blanco de la Secretaría de Hacienda.
+4º- Una vez firmados y sellados los billetes, se entregarán a la Tesorería Nacional, cuando el Secretario de Hacienda lo ordene, y se pasará a la Contabilidad Nacional memorándum de las cantidades firmadas y de la clase y número de billetes entregados, para que esta oficina ponga en sus libros el asiento respectivo.
+5º- Los billetes inutilizados que lleguen a la Tesorería Nacional serán separados y no se pondrán más en circulación. Dichos billetes se entregarán al jefe de sección para ser incinerados. La incineración la presenciarán el Contador Mayor, el Fiscal de Hacienda, el Jefe de Contabilidad y el de sección; debiendo levantarse un acta que se publicará en el Diario Oficial, e inscribirse en la Contabilidad la correspondiente partida.

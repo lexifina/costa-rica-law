@@ -1,0 +1,1 @@
+Art. 262.-En materia. criminal. de oficio, cuando el reo, conforme á la ley, deba ser condenado en costas fiscales, se reducirán éstas al reintegro del papel sellado correspondiente, computando cada pliego .de papel común por uno de la clase novena.

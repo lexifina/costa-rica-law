@@ -1,0 +1,1 @@
+Art. 231.-Si el acusador ó el reo quisieron rendir pruebas, se concederá el término de ocho días, prorrogables hasta quince cuando fuere absolutamente necesario, y dentro de él se recibirán las pruebas ofrecidas por las partes, con las mismas formalidades y requisitos que se observan en los juicios comunes.

@@ -1,0 +1,1 @@
+Art 561- Al fin del año económico el Oficial Mayor rendirá cuenta comprobada al Ministerio de Hacienda, y a fin de cada mes le pasará un estado de los ingresos y egresos habidos en el establecimiento.

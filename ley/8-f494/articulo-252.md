@@ -1,0 +1,1 @@
+Art. 252.-Los testimonios de escrituras referenres al mandato en que el otorgante no haya fijado laextensión de lacuantía de aquél, no podrán usarse sino en negocios que correspondan con el valor del papel empleado en el primer pliego, salvo el caso figurando en el número 2 del artículo 244.

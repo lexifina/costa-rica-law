@@ -1,0 +1,1 @@
+Art 415- De ningún telegrama referente a cuestión judicial se dará certificación a nadie que no sea la persona que lo dirigió, o a la que lo hubiere recibido, sin que el juez del negocio lo solicite; en cuyo caso podrá dicha certificación librarse por el Director en Jefe, previa orden de la Secretaría de Gobernación.

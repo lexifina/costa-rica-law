@@ -1,0 +1,1 @@
+Art. 150-El guarda-almacenes deberá pesar los bultos que se desalmacenen, sentando en el libro de almacenes el número, marca y peso de cada bulto, el nombre del dueño ó consignatario, el del porteador y el número de carros ó acémilas.

@@ -1,0 +1,1 @@
+Art. 169.-Todas las averías que sobrevengan en las mercaderías durante su trasporte, son de cargo del porteador, salvo que dichas averías proviniesen de caso fortuito, fuerza mayor, ó de la naturaleza vicio propio de los géneros.

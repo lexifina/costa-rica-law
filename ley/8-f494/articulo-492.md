@@ -1,0 +1,1 @@
+Art 492- Tendrá la Casa de Moneda un Director, un ensayador, un grabador, un fundidor y un maquinista, de nombramiento del Secretario de Hacienda; tendrá además los otros empleados y operarios que sean precisos, y éstos serán nombrados por el Director.
