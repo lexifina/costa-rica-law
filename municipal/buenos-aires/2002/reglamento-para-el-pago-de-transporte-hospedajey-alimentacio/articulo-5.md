@@ -1,0 +1,1 @@
+Artículo 5º—La Secretaria del Concejo, al final del período de sesiones de cada mes, enviará al Alcalde, la lista de asistencia de los señores regidores y síndicos, que asistieron, con el propósito de que coteje las solicitudes presentadas por los concejales, para darles validez a las mismas.
