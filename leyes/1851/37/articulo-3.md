@@ -1,0 +1,1 @@
+Art. 3. El presente decreto se someterá a la aprobacion del Excelentísimo Congreso en sus próximas sesiones ordinarias.- Dado en el Palacio Nacional en San José, á los remitidos dias del mes de octubre de mil ochocientos cincuenta y uno.-Juan Rafael Mora.-El Ministro de Estado en el Despacho de Hacienda y Guerra, Manuel José Carazo"
