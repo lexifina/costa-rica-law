@@ -1,0 +1,1 @@
+TRANSITORIO TERCERO.—Los Asistentes de Procuraduría que estén en funciones, al entrar en vigencia la presente ley, conservarán el derecho que se les reconoce en el inciso c), aparte segundo, del artículo 4º de la ley Nº 3848 del 10 de enero de 1967.
