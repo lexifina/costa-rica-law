@@ -1,0 +1,1 @@
+Artículo 3º—Se establece un fondo de caja chica cuyo monto será aprobado anualmente por el Concejo Municipal mediante acuerdo municipal, previo estudio elaborado por la Tesorería y avalado por el Alcalde.

@@ -1,0 +1,2 @@
+Artículo 12.—Para el tramite de compra por el fondo de caja chica, el funcionario que lo gestione para la adquisición de bienes y servicios, deberá solicitar ante la Tesorería Municipal, un comprobante de exoneración del pago del impuesto de ventas.
+No se reconocerá el importe por concepto de impuesto de ventas, cuando este sea cancelado por el usuario del vale, ya que la Municipalidad de conformidad con lo establecido en el artículo 8 del Código Municipal, esta exenta del pago de toda clase de tributos.
