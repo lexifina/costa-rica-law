@@ -1,0 +1,1 @@
+Artículo 16.—El Instituto Costarricense de Electricidad (ICE) y el Instituto Costarricense de Acueductos y Alcantarillados, (ICAA), así como la Municipalidad y Asociaciones de Desarrollo, no podrán suministrarle fuerza eléctrica ni agua, a ningún puesto estacionario.
