@@ -1,0 +1,1 @@
+Artículo 2º—La donación a favor de la Junta Administrativa del Centro de Integración San Felipe Nery es, exclusivamente, para que se destine a la construcción de instalaciones de este centro educativo.
