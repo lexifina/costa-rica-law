@@ -1,0 +1,1 @@
+Artículo 2°-El producto de tal rifa se destinará a obras de bien social en la comunidad de Quepos y, en especial, al establecimiento de una biblioteca infantil, a la integración de una banda infantil y u un programa de reforestación en la mencionada localidad.
