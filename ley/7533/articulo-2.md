@@ -8,7 +8,8 @@ b) Concesión de becas de estudio y de especialización para
 profesionales y técnicos medios;
 c) Utilización de equipo e instalaciones;
 d) Intercambio de información, documentación y experiencias;
-e) Transferencia de conocimientos y prestación de asistencia técnica;
+e) Transferencia de conocimientos y prestación de asistencia
+técnica;
 f) Estudio, preparación y ejecución de proyectos técnicos;
 g) Instalación de centros de documentación técnico-pedagógica y de
 centros de perfeccionamiento profesional y laboral; y
