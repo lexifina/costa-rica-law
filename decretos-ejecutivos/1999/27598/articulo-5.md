@@ -1,0 +1,1 @@
+Artículo 5°—El Departamento de Servicios Generales del MIVAH será el encargado de ejecutar las medidas de conservación y control en cuanto al uso de los vehículos. El encargado de dicho departamento velará porque las disposiciones contenidas en el presente reglamento, el Reglamento Autónomo del MIVAH y la Ley de Tránsito, sean debidamente acatadas.

@@ -1,0 +1,1 @@
+Artículo 12.—Sanciones. Las infracciones de los funcionarios del MIVAH, a las disposiciones del presente reglamento, serán sancionadas según la gravedad de conformidad con las disposiciones contenidas en el Reglamento Autónomo de Servicio del MIVAH y las que en materia de empleo público correspondan.

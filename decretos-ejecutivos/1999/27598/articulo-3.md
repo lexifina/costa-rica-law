@@ -1,0 +1,1 @@
+Artículos 3°—Las clasificaciones de los vehículos: Para efectos del presente reglamento, los vehículos del MIVAH, serán utilizados bajo la siguiente clasificación: a) de Uso Discrecional (UD), exclusivamente aquellos destinados al uso personal del Ministro y Viceministro, y b) de Uso Administrativo (UA) todos lo demás vehículos.
