@@ -1,0 +1,1 @@
+Artículo 2° ─ Con tal objeto gozará de una pensión mensual de sesenta dólares ($60-00) y una anual de cien dólares ($100-00) y amplíase con dichas sumas el presupuesto del corriente año y del próximo venidero.
