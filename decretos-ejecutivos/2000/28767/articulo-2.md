@@ -1,0 +1,1 @@
+Artículo 2º—Este decreto rige a partir de su publicación y hasta el 9 de octubre del 2000, inclusive. Vencido este plazo, regirán de nuevo los Derechos Arancelarios a la Importación vigentes antes de este decreto, sin demérito de las facultades del Poder Ejecutivo para efectuar las modificaciones que se estimen convenientes.
