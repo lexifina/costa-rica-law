@@ -1,0 +1,1 @@
+Artículo 2° Para efectos de esta ley se entenderá que la palabra “representante” equivale también a “agente” o “distribuidor” y la palabra “casa matriz” a casa principal, casa exportadora, casa fabricante o a cualquier otro giro similar por su significado.
