@@ -1,0 +1,1 @@
+TRANSITORIO II.- La convocatoria y coordinación de la primera Asamblea General de Accionistas estará a cargo de la actual Junta Directiva de la Empresa. A esta le corresponderá preparar el proyecto de Pacto Constitutivo e invitar a los organismos encargados de proponer candidaturas para la Junta Directiva que hagan llegar sus propuestas.
