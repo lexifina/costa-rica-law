@@ -62,8 +62,9 @@ el establecimiento y mantenimiento de albergues para el tratamiento de las
 mujeres drogadictas en las provincias de Limón y Puntarenas.
 d) Un siete por ciento (7%) de los recursos será asignado al
 Instituto sobre Alcoholismo y Farmacodependencia para financiar, en
-coordinación con el Ministerio de Educación Pública y el Movimiento
-Nacional de Juventudes, programas de difusión, educación y prevención
+coordinación con el Ministerio de Educación Pública y el
+Consejo Nacional de Política Pública de la Persona Joven,
+programas de difusión, educación y prevención
 tendientes a evitar el fumado, la ingesta excesiva de bebidas alcohólicas,
 el uso de sustancias adictivas de uso no medicinal o el consumo abusivo de
 fármacos o medicamentos (psicofármacos), si tales programas son realizados
@@ -86,3 +87,6 @@ la Fundación Mundo de Oportunidades, titular de la cédula jurídica número
 No. 3-006-227840, para financiar el proyecto de creación, construcción y
 mantenimiento de un centro de recursos destinado a velar por las
 necesidades de la población discapacitada.
+(Mediante el artículo 34 de la Ley N° 8261 de 2 de mayodel 2002,
+Ley General de la Persona Joven, se sustituye el término MovimientoNacional de Juventudes,
+por el Consejo Nacional de Política Pública de la Persona Joven)

@@ -38,3 +38,4 @@ General de Valores. Todo lo anterior se realizará guardando las
 precauciones pertinentes para no afectar la liquidez de la cuenta
 respectiva y con el objetivo de repartir todos los recursos girados en
 virtud de esta ley.
+(De acuerdo con el dictamen C-118-2014 del 19 de abril de 2004, Conclusión 8va., las normas contenidas en los artículos 16 y 17 referentes a la recaudación y administración de fondos que señala la Ley de Impuestos sobre Cigarrillos y Licores para financiar el Plan de Protección Social, N° 7972 de 22 de diciembre de 1999, deben entenderse como modificadas tácitamente por lo establecido en el artículo 66 de la Ley de la Administración Financiera de la República y Presupuestos Públicos No.8131 de 18 de setiembre de 2001, en aplicación del Principio de Caja Única del Estado)

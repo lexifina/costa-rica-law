@@ -1,14 +1,6 @@
-ARTÍCULO 16.- Cada institución aludida en los incisos c), d), e) y f)
-del artículo 14 y en el artículo 15 de esta ley será responsable de
-administrar los recursos asignados. Con este fin, deberá abrir una cuenta
-especial por cada rubro asignado y llevar registros contables
-independientes.
-Aparte de los recursos señalados en los artículos 14 y 15 de esta
-ley, las cuentas especiales también podrán ser engrosadas por lo
-siguiente:
-a) Otras partidas incluidas en el presupuesto ordinario o los
-presupuestos extraordinarios de la República, así como en sus
-modificaciones.
+ARTÍCULO 16.- Cada institución aludida en los incisos c), d), e) y f) del artículo 14 y en el artículo 15 de esta ley será responsable de administrar los recursos asignados. Con este fin, deberá abrir una cuenta especial por cada rubro asignado y llevar registros contables independientes.
+Aparte de los recursos señalados en los artículos 14 y 15 de esta ley, las cuentas especiales también podrán ser engrosadas por lo siguiente:
+a) Otras partidas incluidas en el presupuesto ordinario o los presupuestos extraordinarios de la República, así como en sus modificaciones.
 b) Donaciones, legados o herencias que se les asignen.
-c) Ayudas económicas facilitadas por entidades o gobiernos
-extranjeros y organismos internacionales.
+c) Ayudas económicas facilitadas por entidades o gobiernos extranjeros y organismos internacionales.
+(De acuerdo con el dictamen C-118-2014 del 19 de abril de 2004, Conclusión 8va., las normas contenidas en los artículos 16 y 17 referentes a la recaudación y administración de fondos que señala la Ley de Impuestos sobre Cigarrillos y Licores para financiar el Plan de Protección Social, N° 7972 de 22 de diciembre de 1999, deben entenderse como modificadas tácitamente por lo establecido en el artículo 66 de la Ley de la Administración Financiera de la República y Presupuestos Públicos No.8131 de 18 de setiembre de 2001, en aplicación del Principio de Caja Única del Estado)
