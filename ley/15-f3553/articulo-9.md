@@ -1,3 +1,4 @@
-Artículo 9º.- Las viudas e hijos de los Directores o músicos de las Bandas Militares, que hubieren prestado servicios durante veinte años o más, a la época de su fallecimiento, y carecieran de otros medios de subsistencia, tendrán derecho a una pensión mensual conjunta equivalente al cincuenta por ciento (50 %), de la que pudo haber correspondido al fallecido a la fecha de su muerte. Si el Director o músico ya contaba con pensión de derecho conforme a esta ley, la viuda e hijos recibirán en conjunto el cincuenta por ciento (50 %), del monto de la correspondiente pensión.
-Tendrán derecho a la indicada pensión los padres de los Directores o músicos de las Bandas Militares que fallecieron después de haber prestado servicio en el número de años indicado en el párrafo primero de este artículo, si fué soltero y estuvo a su cargo la manutención de ellos.
-(Así reformado por el artículo 1° de la ley N° 1400 del 6 de diciembre de 1951)
+Artículo 9º.- Cuando falleciere un beneficiario de esta ley, su pensión pasará a su esposa e hijos menores.
+La misma norma se aplicará en el caso de los hijos menores del fallecido soltero, condición que se comprabará conforme a la Ley de Pensiones.
+También tendrán derecho a esta pensión, los padres del Director o Músico fallecido, si éste fuera soltero y tuviera a su cargo las expensas de su mantenimiento.
+(Así reformado por el artículo 1° de la ley N° 3802 del 22 de noviembre de 1966)
