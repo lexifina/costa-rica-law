@@ -1,0 +1,1 @@
+Artículo 3º—La transacción del servicio ambiental de la conservación de especies forestales estará garantizado por un sistema de norma y certificación ambiental, emitido y autorizado por la autoridad nacional de certificación.

@@ -1,0 +1,1 @@
+Artículo 4º—Para la comercialización del servicio ambiental de la conservación de especies forestales, BOLPRO utilizará un precio de referencia que será fijado por única vez al iniciar las transacciones. Luego el precio se regirá por las condiciones del mercado.

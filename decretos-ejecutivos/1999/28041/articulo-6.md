@@ -1,0 +1,4 @@
+Artículo 6º—Se autoriza a BOLPRO para que confeccione un logo ambiental que se entregará a las personas físicas o jurídicas que realicen inversiones para la conservación de especies forestales y que podrán utilizar para identificar su empresa, campañas publicitarias o los productos que fabrique.
+La utilización del logo ambiental quedará sujeto a las condiciones y duración del contrato que se firme al realizar la transacción del servicio ambiental. El logo ambiental tendrá las siguientes características:
+Distintivo redondo compuesto por dos círculos equidistantes entre los cuales se ubica la información. "PROTEGE ESPECIES FORESTALES-COSTA RICA-Año".
+En el centro se ubicará como símbolo una de las especies forestales declaradas en peligro de extinción, identificada mediante su nombre común y su nombre científico, coronado con "MINAE-BOLPRO". El logo será confeccionado todo en tinta negra y estará montado sobre un fondo del color que designe BOLPRO.

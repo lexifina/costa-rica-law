@@ -1,0 +1,1 @@
+Artículo 11.—Aplíquense el beneficio de protección contenido en el artículo 36 de la Ley Forestal Nº 7575, a los inmuebles que contengan especies forestales en bosque o fuera de éste que se negocien para la conservación a través de BOLPRO.

@@ -1,0 +1,1 @@
+Artículo 7º— Por los alcances comerciales que pueda significar la utilización del logo ambiental, BOLPRO podrá establecer una graduación del mismo para que identifique el monto de las inversiones realizadas por las personas físicas o jurídicas, que lo vayan a utilizar.

@@ -1,0 +1,2 @@
+Artículo 13.—Si el propietario del inmueble donde se ubican las especies forestales y que haya negociado el servicio ambiental para su conservación por medio de BOLPRO, decide vender la propiedad, deberá hacerlo con la anotación respectiva, sin que dicha negociación perjudique a quién adquirió el servicio ambiental de las especies.
+Dado en la Presidencia de la República.-San José, a los veintisiete días del mes de julio de mil novecientos noventa y nueve.

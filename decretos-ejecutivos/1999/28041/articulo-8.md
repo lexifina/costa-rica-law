@@ -1,0 +1,1 @@
+Artículo 8º—Formalizadas las transacciones, BOLPRO, entregará al interesado el correspondiente logo ambiental y procederá a inscribir ante el Registro Público de la Propiedad la garantía que se le otorgue al comprador por la inversión que realiza.
