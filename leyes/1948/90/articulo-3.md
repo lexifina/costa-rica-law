@@ -1,0 +1,1 @@
+Articulo 3°-Después del 31 de julio de 1948, no podrá ser removido ningún empleado de la Administración Publica, salvo por faltas o por incapacidad comprobadas en expediente que tramitara la Oficina de Selección de Personal.
