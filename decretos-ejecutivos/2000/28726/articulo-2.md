@@ -1,0 +1,1 @@
+Artículo 2º—Estos beneficios económicos se otorgarán a favor de los funcionarios de la Dirección General de Desarrollo Social y Asignaciones Familiares, que ocupen los puestos enumerados en el artículo anterior, que se encuentren desempeñando las funciones propias de su cargo.

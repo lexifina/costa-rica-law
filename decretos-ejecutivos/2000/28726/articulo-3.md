@@ -1,0 +1,1 @@
+Artículo 3º—Los funcionarios beneficiarios de esta compensación económica a que se refiere el presente Decreto, no deben ejercer sus profesiones liberales, similares a las que realiza en su cargo, esta limitación se hace extensiva en los casos de los no profesionales en provecho de terceras personas físicas o jurídicas.
