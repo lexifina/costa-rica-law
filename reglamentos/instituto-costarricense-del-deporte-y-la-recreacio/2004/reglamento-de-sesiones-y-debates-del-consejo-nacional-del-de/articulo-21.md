@@ -1,0 +1,1 @@
+Artículo 21.—Interrupciones: Por ningún motivo se podrá interrumpir al orador que estuviese en el uso de la palabra, salvo que él lo permita, en cuyo caso continuará con el uso de la palabra cuando termine la interrupción.

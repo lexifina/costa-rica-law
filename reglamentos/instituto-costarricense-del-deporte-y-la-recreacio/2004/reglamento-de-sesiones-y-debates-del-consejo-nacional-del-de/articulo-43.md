@@ -1,0 +1,1 @@
+Artículo 43.—Legitimación: No será necesario que el proponente del recurso de revisión haya estado presente en la sesión en discusión, ni que haya votado en contra del acuerdo que se solicita revisar.

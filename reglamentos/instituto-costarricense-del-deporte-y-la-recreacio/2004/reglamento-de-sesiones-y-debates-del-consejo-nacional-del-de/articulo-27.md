@@ -1,0 +1,1 @@
+Artículo 27.—Votación: Recibida una moción de orden, el Presidente esperará que el orador en turno termine de hacer uso de la palabra y otorgará dos minutos al proponente de la moción para que la fundamente. Finalizada la fundamentación, el Presidente ordenará la votación de la moción de orden sin discusión alguna.

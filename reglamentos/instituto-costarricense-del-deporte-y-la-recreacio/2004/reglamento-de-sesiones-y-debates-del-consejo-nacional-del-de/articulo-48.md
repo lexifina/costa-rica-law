@@ -1,0 +1,1 @@
+Artículo 48.—Facultades de revocatoria: Independientemente de que haya existido o no algún recurso de revisión contra un acuerdo del Consejo, éste órgano colegiado podrá revocar acuerdos anteriores siempre que cumpla con los requisitos establecidos por la normativa vigente.

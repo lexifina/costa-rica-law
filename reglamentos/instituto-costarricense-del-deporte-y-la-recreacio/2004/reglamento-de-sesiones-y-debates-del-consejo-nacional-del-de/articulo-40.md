@@ -1,0 +1,1 @@
+Artículo 40.—Aprobación: Finalizado el período de lectura y discusión del acta, el Presidente someterá a votación su aprobación. El Secretario incorporará al acta, al transcribirla en el libro de actas, las correcciones aprobadas.

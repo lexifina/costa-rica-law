@@ -1,0 +1,1 @@
+Artículo 37.—Trámite posterior a la votación: Votado un asunto, no se permitirán más discusiones al respecto en la misma sesión, salvo lo relativo a la forma en que se llevará a cabo lo acordado por la moción aprobada.

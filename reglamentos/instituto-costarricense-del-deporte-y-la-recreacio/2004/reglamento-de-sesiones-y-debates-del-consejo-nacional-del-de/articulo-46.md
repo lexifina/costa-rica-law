@@ -1,0 +1,1 @@
+Artículo 46.—Consignación: En el acta de la sesión en que se discute la aprobación del acta anterior, se consignará la existencia del recurso de revisión, se indicará contra cuál acuerdo se dirige, se hará una sinopsis de los argumentos expresados por su proponente, así como el resultado de la votación.

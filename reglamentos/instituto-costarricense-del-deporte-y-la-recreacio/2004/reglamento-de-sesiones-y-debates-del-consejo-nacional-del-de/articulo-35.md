@@ -1,0 +1,1 @@
+Artículo 35.—Empates: Si al votar un asunto se produce un empate, el Presidente dará oportunidad a los integrantes del Consejo para que se vuelvan a referir al tema. La nueva discusión no durará más de diez minutos. Finalizado ese lapso, el Presidente someterá el asunto nuevamente a votación. Si persiste el empate, el Presidente decidirá en aplicación del voto de calidad.

@@ -1,0 +1,1 @@
+Artículo 23.—Finalización del debate: Se considerará agotado el debate cuando ninguno de los presentes desee hacer uso de la palabra, cuando así se decida en una moción de orden o cuando el Presidente así lo considere, e inmediatamente se procederá a votar el asunto.

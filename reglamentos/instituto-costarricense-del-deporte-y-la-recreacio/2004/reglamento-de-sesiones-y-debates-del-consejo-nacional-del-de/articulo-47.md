@@ -1,0 +1,1 @@
+Artículo 47.—Firmeza: Ya sea que el acuerdo sometido a revisión resulte modificado o que el recurso sea declarado sin lugar, lo definitivamente resuelto se tendrá como firme, por corresponder a un tema discutido en una sesión anterior.
