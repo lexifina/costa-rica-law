@@ -1,0 +1,1 @@
+Artículo 109.—Con el visto bueno de sujete inmediato, el servidor podrá solicitar al Departamento de Recursos Humanos, un adelanto de sus vacaciones que, en ningún caso, podrá superar el número de días que proporcional mente corresponda a los meses laborados.

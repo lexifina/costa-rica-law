@@ -1,0 +1,3 @@
+TÍTULO IV
+El hostigamiento sexual en el empleo y la docencia municipal de Aguirre
+Artículo 72.—La Municipalidad de Aguirre, basada en los principios constitucionales del respeto por la libertad y la vida humana, el derecho al trabajo y el principio de igualdad ante la ley, y los enunciados contemplan en el artículo 4°, inciso a); artículo 13. inciso c); artículo 43 del Código Municipal, así como en el establecimiento de políticas para la eliminación de la discriminación contra la mujer, según la Convención de las Naciones Unidas sobre la eliminación de todas las formas de discriminación contra la mujer y la Convención Interamericana para prevenir, sancionar y erradicar la violencia contra la mujer.

@@ -1,0 +1,1 @@
+Artículo 94.—La Junta de Relaciones Laborales tiene como función primordial, el fomento de las relaciones obrero, patronales sobre la base de equidad, justicia y respeto, lo mismo que el estudio armonioso de las situaciones de conflicto de índole laboral, sean estos de naturaleza individual o colectiva, o de las demandas de mejoramiento social en beneficio de los funcionarios.

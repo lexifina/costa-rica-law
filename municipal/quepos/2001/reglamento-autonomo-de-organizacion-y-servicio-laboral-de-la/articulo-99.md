@@ -1,0 +1,1 @@
+Artículo 99.—El tiempo laborado que exceda las jornadas ordinarias antes señaladas constituye tiempo extraordinario, y debe ser remunerado atendiendo las siguientes aspectos y de acuerdo a las disposiciones enmarcadas en el reglamento sobre uso y control de horas extraordinarias.

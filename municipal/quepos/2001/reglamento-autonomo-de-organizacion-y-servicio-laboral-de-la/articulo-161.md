@@ -1,0 +1,1 @@
+Artículo 161.—Las sanciones descritas en este capitulo, serán aplicadas por la Alcaldía Municipal a través del Departamento de Recursos Humanos, conforme al procedimiento que establece el artículo 150 del Código Municipal y cualquier otra norma expresa, referente a la materia.

@@ -1,0 +1,2 @@
+Artículo 79.—Quien haya formulado una denuncia de hostigamiento sexual, sólo podrá ser despedido por causas justificadas, contempladas en los artículos 147, 148, y 149 del código Municipal, así como las señaladas en el artículo 81 del código de Trabajo, debiendo demostrar la existencia de la causa o causas justas para su despido.
+El incumplimiento de estas disposiciones constituirá por parte del funcionario o funcionaría, causa justa para terminar con responsabilidad patronal, el contrato laboral.

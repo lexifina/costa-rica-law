@@ -1,0 +1,1 @@
+Artículo 38.—La publicación de concurso interno deberá consignar los requisitos del puesto, características y salario. Se imprimirá en caracteres legibles y se colocara en los sitios más visibles de todos los centros de trabajo de la Municipalidad, donde se mantendrá por un plazo no inferior a quince días, anteriores a la fecha del cierre del concurso.

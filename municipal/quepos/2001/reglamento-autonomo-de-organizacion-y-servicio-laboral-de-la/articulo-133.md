@@ -1,0 +1,9 @@
+Artículo 133.—Quienes conduzcan vehículos de la Municipalidad tendrán las siguientes obligaciones:
+a. Velar por la limpieza, custodia y conservación del vehículo que se le asigna durante el desempeño de sus funciones.
+b. Velar por que el vehículo se encuentre en buen estado de funcionamiento y posea las herramientas y accesorios necesarios.
+c. Rehusar la operación de un vehículo que se encuentre en condiciones de poner en peligro la integridad física del servidor y de terceros, previo diagnóstico del funcionario competente, comunicándolo a sujete inmediato, al Departamento de Transportes y al Departamento de Recursos Humanos, por escrito de las razones que le asisten para negarse.
+d. Informar a la jefatura de transportes de todo accidente que le ocurra suministrando los nombres y apellidos de los ocupantes del vehículo y de las personas que resulten afectados con ocasión aquel, así como los daños que sufra el vehículo, el lugar y circunstancias en que se produjo el accidente. Este informe deberá rendirse a mas tardar un día después de acaecido el hecho.
+e. Utilizar los vehículos exclusivamente en las labores asignadas en administración municipal de conformidad con las siguientes disposiciones:
+a. Anotar en la bitácora de salida, el destino específico al que dirige y en ocasión del servicio que va aprestar.
+b. Ingresar los vehículos al predio municipal, a mas tardar a las horas v nunca retirarlos en días no hábiles, salvo autorización razonada ante el Alcalde y de acuerdo al reglamento de uso de vehículos municipales.
+c. El vehículo asignado al Alcalde es el único de uso discrecional con que cuenta este Municipio. Y su uso y disposición queda entera responsabilidad de dicho funcionario. Por lo que los anteriores regulaciones restrictivas no cubren su uso y más bien se regula por las normas que para efecto y guardando el grado de proporcionalidad utiliza la Presidencia de la República.

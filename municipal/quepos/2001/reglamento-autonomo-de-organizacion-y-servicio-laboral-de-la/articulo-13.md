@@ -1,0 +1,1 @@
+Artículo 13.—Deber de probidad. Todo servidor o servidora debe de actuar con honradez, en especial cuando haga uso de recursos públicos, que le son confiados para el cumplimiento de los fines Municipales, o cuando participe en actividades o negocios de la administración, que comprometen esos recursos.

@@ -1,0 +1,1 @@
+Artículo 120.—El salario será pagado por períodos mensuales, mediante tractos bisemanales los cuales se determinarán multiplicando por 12 el salario mensual dividido entre 52 semanas, la forma de pago se realizará empleando el sistema de tarjeta de débito en los cajeros automáticos del sistema bancario nacional.

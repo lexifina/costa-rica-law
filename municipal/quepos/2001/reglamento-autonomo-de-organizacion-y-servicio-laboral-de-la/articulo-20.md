@@ -1,0 +1,1 @@
+Artículo 20.—Deber de comportarse con decoro y respeto. Todo servidor o servidora debe ser justo, cuidadoso, respetuoso y cortés en el trato con los usuarios del servicio, sus jefes, colaboradores y compañeros o compañeras.

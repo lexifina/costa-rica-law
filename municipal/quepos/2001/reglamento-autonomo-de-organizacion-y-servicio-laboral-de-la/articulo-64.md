@@ -1,0 +1,1 @@
+Artículo 64.—Si el servidor estima que la calificación no es la que le corresponde podrá impugnarla por escrito exponiendo los motivos en que fundamenta su inconformidad ante sujete inmediato, dentro de los tres días hábiles siguientes al de la notificación, debiéndole ser también notificada la resolución de dicha impugnación en un plazo no mayor de cinco días hábiles.

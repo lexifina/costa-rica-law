@@ -1,0 +1,2 @@
+Transitorio.—A todos aquellos trabajadores que al momento de entrar en vigencia este Reglamento tengan más de dos períodos de vacaciones sin disfrutar, deberá el Departamento de Recursos Humanos otorgárselas en un plazo no mayor de seis meses.
+El Concejo acuerda: Aprobar el Reglamento y que el Alcalde proceda a realizar los cambios respectivos y ordenar su publicación en el Diario Oficial La Gaceta, una vez que sea corregido. Con dispensa de trámite. Votación Unánime. Acuerdo Firme. Al no haber más asuntos que tratar el Presidente concluye la sesión a las once horas.

@@ -1,0 +1,1 @@
+Artículo 166.—Se sancionará con amonestación escrita por primera vez a la jefatura que incumpla con lo dispuesto el articulo 104; y con ocho días de suspensión en caso de reincidencia; de repetirse nuevamente dicha situación se sancionará con el despido sin responsabilidad patronal.

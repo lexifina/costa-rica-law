@@ -1,0 +1,1 @@
+Artículo 14.—Deber de responsabilidad. Todo servidor o servidora debe de actuar con claro sentido del deber que le corresponde para el cumplimiento del fin público que compete a la Municipalidad y de las consecuencias que el cumplimiento o incumplimiento de ese deber tiene en relación con ese cometido institucional.

@@ -1,0 +1,3 @@
+CAPITULO V
+Principios y propósitos que inspiran este Reglamento
+Articulo 24.—Son principios que inspiran la maximización de los recursos, la excelencia, igualdad en este Reglamento y que deben orientar las labores de la Municipalidad y sus servidores, y el servicio al usuario, la harmonización y la in superación de los procedimientos, la simplificación, flexibilidad, eficacia, trabajo en equipo, la proporcionalidad y el apego a las más estrictas normas de ética en el ejercicio de la función pública, así como el respeto a la dignidad y a los derechos del trabajador, con acato riguroso del principio de legalidad.

@@ -1,0 +1,1 @@
+Artículo 60.—Para los efectos del otorgamiento de incentivos y beneficios que fomente el desarrollo y la promoción del personal, la Municipalidad a través del Departamento de Recursos Humanos y mediante un programa establecido, cumplirá con lo indicado en el artículo 134 del Código Municipal.

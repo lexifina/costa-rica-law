@@ -1,0 +1,1 @@
+Artículo 29.—La modificación de las condiciones de trabajo se efectuará mediante acción de personal expedida por el Departamento de Recursos Humanos, y autorizadas por el Alcalde Municipal y el funcionario que éste designe con la autoridad respectiva.

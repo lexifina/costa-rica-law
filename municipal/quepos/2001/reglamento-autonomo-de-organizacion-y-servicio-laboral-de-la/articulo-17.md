@@ -1,0 +1,1 @@
+Artículo 17.—Deber de conducirse apropiadamente frente al público. Todo servidor o servidora debe observar frente al público en el servicio y fuera de él una conducta correcta, digna v decorosa, acorde con su jerarquía y función, evitando conductas que puedan socavar la confianza del público y la integridad del funcionario (a) y de la Municipalidad.
