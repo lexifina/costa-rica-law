@@ -1,0 +1,1 @@
+Artículo 5.- La fauna silvestre en cautiverio y su reproducción "sostenida", así como la tenencia y la reproducción de la flora mantenida en viveros o sus productos no elimina su condición de silvestre.
