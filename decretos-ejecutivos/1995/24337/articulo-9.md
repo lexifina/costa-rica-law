@@ -21,6 +21,7 @@ declaradas, cuando proceda.
 11. Se exceptúa de la presentación de los requisitos exigidos
 en este inciso a) los productos que seran indicados mediante
 publicación en el Diario Oficial "La Gaceta".
+(Mediante el artículo 1° del Decreto Ejecutivo N° 27532 del 15 de diciembre de 1998 se indica la lista de productos exnerados de la presentación de los requisitos establecidos en este Artículo 9 inciso a)
 b) Características del producto técnico:
 1. Estado físico y color.
 2. Contenido mínimo y máximo del ingrediente activo, expresado
@@ -37,6 +38,7 @@ c) Métodos analíticos:
 1. Aportar el método de análisis químico aceptado para
 determinar el ingrediente (o los ingredientes) activo(s) en
 el producto técnico.
+(Mediante el artículo 2° del Decreto Ejecutivo N° 27532 del 15 de diciembre de 1998 se indica la lista de productos eonerados de la presentación de los requisitos establecidos en este Artícullo 9 inciso c° aparte 1° a) y asimismo mediante el artículo 3° del Decreto Ejecutivo N° 27532 del 15 de diciembre de 1998 se indica la lista de productos exonerados de la presentación de los requisitos establecidos en este Artículo 9 inciso c° aparte 1° b)
 2. Aportar el estándar analítico cuando el Ministerio así lo
 solicite. Deben aportarse las referencias bibliográficas de
 los métodos analíticos aceptados u otros correspondientes.

@@ -35,6 +35,7 @@ agrícola y otras sustancias.
 14. Otras propiedades pertinentes.
 15. Indicar si produce espuma.
 16. Período de vida media.
+(Mediante el artículo 1° del Decreto Ejecutivo N° 27532 del 15 de diciembre de 1998 se indica la lista de productos exnerados de la presentación de los requisitos establecidos en este Artículo 10 inciso a)
 b) Uso recomendado:
 1. Dosis recomendada.
 2. Métodos adecuados para preparar el material de
@@ -49,3 +50,4 @@ podrá ser requerida en cualquier momento por los Ministerios, y
 en caso de comprobarse incumplimiento de esta obligación los
 Departamentos podrán revocar el registro del producto cuya
 información no sea debidamente actualizada.
+(Mediante el artículo 2° del Decreto Ejecutivo N° 27532 del 15 de diciembre de 1998 se indica la lista de productos exnerados de la presentación de los requisitos establecidos en este Artículo 10 inciso c° aparte 1° a)

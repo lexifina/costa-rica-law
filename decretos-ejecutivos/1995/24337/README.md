@@ -13,3 +13,4 @@ Reglamento Registro Uso Control Plaguicidas Agrícolas y Coadyuvantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-06-16 | la propia norma |
+| 2 | 1995-06-16 | Decreto Ejecutivo 27532 (1998-12-15) |
