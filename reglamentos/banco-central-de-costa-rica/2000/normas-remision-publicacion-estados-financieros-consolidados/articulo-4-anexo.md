@@ -1,0 +1,457 @@
+ANEXO 4
+ENTIDAD FINANCIERA DOMICILIADA EN EL EXTERIOR
+ESTADOS FINANCIEROS
+ANEXO 4A: Balance de Situación
+ANEXO 4B: Estado de Resultados
+ANEXO 4C: Estado de Cambios en la Posición Financiera
+ANEXO 4D: Estado de Cambios en el Patrimonio
+ANEXO 4E: Flujo de Efectivo Real y Proyectado
+ANEXO 4F: Calce de Plazos
+ANEXO 4A
+ENTIDAD FINANCIERA DOMICILIADA EN EL EXTERIOR
+BALANCE GENERAL
+Al 31 de diciembre de 19XX (En colones sin céntimos)
+ACTIVOS Nota Período 2 Período 1
+Disponibilidades (110.00)
+Inversiones Temporales (120.00)
+Inversiones en BCCR y valores públicos (121.00)
+Inversiones en entidades financieras del país (122.00)
+Inversiones en entidades financieras del exterior (123.00)
+Otras Inversiones Temporales (124.00+125.00+126.00
++127.00)
+Productos por cobrar por inversiones temporales (128.00)
+Estimación para inversiones temporales (129.00)
+Cartera de Créditos (130.00)
+Créditos vigentes (131.00)
+Créditos vencidos (132.00)
+Créditos en Cobro Judicial (133.00)
+Productos por cobrar por cartera de créditos (138.00)
+Estimación para cartera de créditos (139.00)
+Otras cuentas por cobrar (140.00)
+Comisiones por cobrar (142.00)
+Otras cuentas por cobrar (141.00+143.00+147.00+148.00
++149.00)
+Bienes realizables (150.00)
+Inversiones Permanentes (160.00)
+Inversiones en BCCR y valores públicos (161.00)
+Inversiones en entidades financieras del país (162.00)
+Inversiones en entidades financieras del exterior (163.00)
+Otras inversiones permanentes (164.00+165.00+166.00
++167.00)
+Productos por cobrar por inversiones permanente (168.00)
+Estimación para inversiones permanentes (169.00)
+Bienes de Uso Neto (170.00)
+Otros Activos (180.00)
+______ ______
+TOTAL DE ACTIVOS ===== =====
+________________________ ______ ___________
+Gerente General de la Sociedad Contador Auditor Interno
+Controladora o Representante Legal
+Nota:
+1/ Los números de cuenta corresponden a los establecidos en el documento "Términos Uniformes para la Consolidación Contable de los Grupos Financieros" y no son necesarios para efecto de publicación.
+2/ Las notas son parte integrante de los estados financieros.
+ANEXO 4A
+ENTIDAD FINANCIERA DOMICILIADA EN EL EXTERIOR
+BALANCE GENERAL
+Al 31 de diciembre de 19XX (En colones sin céntimos)
+PASIVOS Y CAPITAL CONTABLE
+PASIVOS Nota Período 2 Período 1
+Obligaciones con el público (210.00)
+Captaciones a la vista (211.00)
+Otras Obligaciones con el público a la vista (212.00)
+Captaciones a plazo (213.00)
+Obligaciones por comisiones de confianza (216.01)
+Otras obligaciones con el público a plazo (214.00+
+215.00+218.00)
+Cargos por pagar por obligaciones con el público
+(219.00)
+Otras obligaciones financieras (230.00)
+Otras cuentas por pagar y provisiones (240.00)
+Comisiones por pagar 242.01
+Otras Cuentas por pagar diversas (241.00+242.00+
+243.00+249.00)
+Otros pasivos (250.00)
+Obligaciones subordinadas (260.00)
+Obligaciones convertibles en capital (270.00)
+______ ______
+TOTAL DE PASIVOS ===== =====
+PATRIMONIO
+Capital social (310.00)
+Capital pagado (311.00)
+Capital donado (312.00)
+Capital suscrito no integrado (313.00)
+Suscripciones de capital por integrar (314.00)
+Acciones en Tesorería (315.00)
+Aportes patrimoniales no capitalizados (320.00)
+Ajustes al patrimonio (330.00)
+Reservas patrimoniales (340.00)
+Resultados acumulados de períodos anteriores
+(350.00)
+Resultado del período (360.00)
+______ ______
+TOTAL DEL PATRIMONIO ______ ______
+TOTAL DEL PASIVO Y PATRIMONIO ===== =====
+CUENTAS CONTINGENTES (600.00)
+CUENTAS DE ADMINISTRACIÓN DE
+FIDEICOMISOS (700.00)
+OTRAS CUENTAS DE ORDEN (800.00)
+________________________ ______ ___________
+Gerente General de la Sociedad Contador Auditor Interno
+Controladora o Representante Legal
+Nota:
+1/ Los números de cuenta corresponden a los establecidos en el documento "Términos Uniformes para la Consolidación Contable de los Grupos Financieros" y no son necesarios para efecto de publicación.
+2/ Las notas son parte integrante de los estados financieros.
+ANEXO 4B
+ENTIDAD FINANCIERA DOMICILIADA EN EL EXTERIOR
+ESTADO DE RESULTADOS
+para el año terminado al 31 de diciembre de 19XX
+(En colones sin céntimos)
+Nota Período 2 Período 1
+Ingresos Financieros: (510.00)
+Por inversiones temporales (512.00)
+Por créditos vigentes (513.00)
+Por créditos vencidos y en Cobro Judicial (514.00)
+Por inversiones permanentes (516.00)
+Ganancias por fluctuaciones cambiarias (517.00)
+Otros ingresos financieros (511.00+515.00+519.00) ______ ______
+Total de ingresos financieros ______ ______
+Gastos financieros: (410.00)
+Por obligaciones (411.00+412.00+413.00+416.00+
+417.00+418.00)
+Pérdidas por fluctuaciones cambiarias (415.00)
+Otros gastos financieros (414.00+419.00) ______ ______
+Total de gastos financieros ______ ______
+RESULTADO FINANCIERO BRUTO (510-410) ______ ______
+Ingresos por recuperaciones de activos Financieros
+(520.00)
+Gastos por incobrables y desvalorización de activos
+fijos (420.00) ______ ______
+RESULTADO FINANCIERO NETO (510-410+520-420) ______ ______
+Ingresos operativos diversos (530.00)
+Comisiones por servicios (531.00)
+Otros ingresos operativos (532.00+533.00+539.00)
+Gastos operativos diversos (430.00)
+Comisiones por servicios (431.00)
+Otros gastos operativos (432.00+433.00+434.00+
+435.00+439.00)
+Gastos de Administración (440.00) ______ ______
+RESULTADO OPERATIVO BRUTO ((510-410) +
+(520-420) + (530-430)-440) ______ ______
+Ingresos extraordinarios (540.00)
+Ingresos de ejercicios anteriores (550.00)
+Gastos extraordinarios (460.00)
+Gastos de ejercicios anteriores (470.00) ______ ______
+RESULTADO ANTES DE IMPUESTOS Y
+PARTICIPACIONES ______ ______
+Impuestos y participaciones sobre la utilidad
+(450.00) ______ ______
+UTILIDAD O PERDIDA DEL PERIODO
+(360.00) ===== =====
+________________________ ______ ___________
+Gerente General de la Sociedad Contador Auditor Interno
+Controladora o Representante Legal
+Notas:
+1/ Los números de cuenta corresponden a los establecidos en el documento "Términos Uniformes para la Consolidación Contable de los Grupos Financieros" y no son necesarios para efecto de publicación.
+2/ Las notas son parte integrante de los estados financieros.
+ANEXO 4C
+ENTIDAD FINANCIERA DOMICILIADA EN EL EXTERIOR
+ESTADO DE CAMBIOS EN LA POSICIÓN FINANCIERA
+Por los períodos terminados el 31 de diciembre de 19XX y 19XX
+Cifras en colones
+Nota 19XX 19XX
+Recursos en las actividades de operación
+Resultados del período
+Partidas aplicadas a resultados que no requieren uso
+de recursos
+Ganancia o pérdida por venta de activos recibidos en
+dación de pago y activo fijo
+Estimación para créditos dudosos
+Estimación para desvalorización de activos
+Otras estimaciones
+Provisión para prestaciones sociales, neto de pagos
+Depreciaciones y amortizaciones
+Ingreso por novación de deuda
+Ajuste a períodos anteriores
+Variación neta en los activos (aumento), disminución
+Bienes realizables
+Otros activos
+Productos por cobrar
+Variación neta en los pasivos aumento, (disminución)
+Otras cuentas por pagar y provisiones
+Otros pasivos
+Productos por pagar
+______ ______
+Recursos provistos (usados) en las actividades de operación: ______ ______
+Recursos en las actividades de financiamiento
+Obligaciones con el público
+Obligaciones con el BCCR
+Otras obligaciones financieras
+Obligaciones subordinadas
+Obligaciones convertibles
+Pago de dividendos
+Aportes de capital
+______ ______
+Recursos provistos en las actividades de financiamiento ______ ______
+Recursos en las actividades de inversión
+Créditos otorgados y cobrados
+Incorporaciones de bienes de uso
+Venta de bienes de uso
+Variación neta de inversiones permanentes
+Recursos usados en las actividades de inversión ______ ______
+Efectos del cambio en el proceso de consolidación ______ ______
+de las compañías subsidiarias ______ ______
+Aumento neto en disponibilidades e inversiones
+temporales
+Disponibilidades e inversiones temporales al inicio
+del año ______ ______
+Disponibilidades e inversiones temporales al final
+del año ===== =====
+________________________ ______ ___________
+Gerente General de la Sociedad Contador Auditor Interno
+Controladora o Representante Legal
+NOTA:
+1/ Las notas son parte integrante de los estados financieros.
+Superintendencia General de Entidades Financieras
+Sociedad Controladora, S. A. y Subsidiarias
+Estado de origen y aplicación de fondos
+Cifras en colones
+Saldo Saldo Porcentaje Porcentaje
+Nombre cuenta Mes 1 Mes 2 Origen Aplicación de origen de aplicación
+ACTIVO TOTAL
+Activo Productivo
+Intermediación Financiera
+Cartera de creditos al dia
+y con atraso hasta 90 dias
+Inversiones en titulos y
+valores netos
+Activo Improductivo
+Activo Inmovilizado
+Bienes de uso netos
+Otros Activos
+Disponibilidades
+Productos y Comisiones
+ganadas por Cobrar
+Bienes Realizables Netos
+Cargos Diferidos Netos
+Cartera de creditos con
+atraso mayor a 90 dias
+Otros Activos Diversos Netos
+Estimaciones para Cartera
+Activos para actividades no
+comprendidas en Ley 7391
+PASIVO TOTAL MAS PATRI-
+MONIO AJUSTADO
+PASIVO TOTAL
+Pasivo con Costo
+Sobregiros en Cuenta Corriente
+Depositos de Ahorro a la Vista
+Captaciones a Plazo con el Publico
+Contratos de Capitalizacion
+Oblig.con BCCR a Plazo, Fin.de
+Org Int y Inst Ext de Coop.
+Dep.Cert.Inv. y Prest.a Plazo
+con Entid. Financ. del Pais
+Obligaciones con Entidades
+Financieras del Exterior
+Otras Obligaciones a Plazo
+con Entidades Financieras
+Obligaciones con Entidades
+no Financieras
+Depositos en cuenta corriente
+con costo financiero
+Pasivo sin Costo
+Captaciones a la Vista
+Otras Obligaciones con el
+Publico a la Vista
+Obligaciones por Aceptaciones
+Otras Obligaciones con el
+Publico
+Obligaciones con Entidades
+Financieras
+Cargos por Pagar
+Pasivos Diferidos
+Provisiones
+Otros Pasivos
+Obligaciones Convertibles
+en Capital
+Depositos en cuenta corriente
+sin costo financiero
+Pasivos para actividades no
+comprendidas en Ley 7391
+Estimaciones de Contingencias
+PATRIMONIO CONTABLE
+Capital Social
+Aportes Patrimoniales no
+Capitalizados
+Ajustes al Patrimonio
+Reservas Patrimoniales
+Resultados Acumulados de
+Ejercicios Anteriores
+Resultados del Periodo
+Diferencia entre cuentas
+acreedoras y deudoras
+de resultados
+Totales XXX XXX XXX XXX 100.00% 100.00%
+ANEXO 4D
+ENTIDAD FINANCIERA DOMICILIADA EN EL EXTERIOR
+ESTADO DE CAMBIOS EN EL PATRIMONIO
+Para los períodos terminados el 31 de diciembre 19XX y 19XX
+Cifras en colones
+Ajustes al patrimonio Resultados de períodos anteriores
+Por
+Aportes Por revaluación de
+Capital patrimoniales revaluación participación en Reservas Para Sin Resultado Total del
+Detalle Notas social no capitalizados de bienes otras empresas patrimoniales capitalizar afectar Total del período patrimonio
+Saldos al 31 de diciembre de 19X1
+Traslado a resultados de períodos
+anteriores
+Emisión de acciones
+Dividendos pagados
+Acciones en tesorería
+Capitalización de utilidades
+Revaluación del activo fijo
+Incremento en títulos de capital
+Asignación a reservas
+Utilidad del período
+Saldos al 31 de diciembre de 19X2
+____________________________ ____________ ________
+Gerente General de la Sociedad Auditor Interno Contador
+Controladora o Representante Legal
+NOTA:
+1/ Las notas son parte integrante de los estados financieros.
+Superintendencia General de Entidades Financieras
+Análisis de intermediarios financieros
+Sociedad Controladora, S. A. y Subsidiarias
+Estado de cambios en el patrimonio
+Cifras en colones
+Saldo Movimiento Saldo
+Nombre cuenta Mes 1 Debe Haber Mes 2
+Capital social
+Capital pagado
+Capital donado
+Capital suscrito no integrado
+Suscripciones de capital por integrar
+Acciones en tesorería
+Aportes patrimoniales no capitalizados
+Ajustes al patrimonio
+Reservas patrimoniales
+Resultados acumulados de períodos
+anteriores
+Resultado del período
+Interés minoritario
+ANEXO 4E
+ENTIDAD FINANCIERA DOMICILIADA EN EL EXTERIOR
+FLUJO REAL Y PROYECTADO
+Para los siguientes tres meses con base en el mes de XXXX
+(En miles de colones)
+Flujos proyectados
+Nombre Cuenta Flujo real Mes 1 Mes 2 Mes 3
+Disponibilidad al inicio del período
+Ingresos
+Recuperación de cartera de crédito
+Ingresos financieros sobre cartera de crédito
+Recuperación de inversiones
+Ingresos financieros sobre inversiones
+Ingresos por prestación de servicios
+Obligaciones con el público
+Obligaciones con el BCCR
+Fondos liberados por el concepto de encajes
+Obligaciones con entidades financieras
+Aportes por aumentos de capital
+Venta de activos
+Otros ingresos
+Total disponibilidades
+Egresos
+Créditos concedidos
+Colocaciones de inversiones
+Egresos por prestación de servicios
+Cancelación de obligaciones con el público
+Egresos financieros por obligaciones con
+el público
+Cancelación de obligaciones con el BCCR
+Egresos financieros por obligacioneds con
+el BCCR
+Fondos comprometidos pro concepto de encajes
+Fondos comprometidos pro concepto de adminis-
+tración de valores y fondos de terceros
+Cancelación de obligaciones con entidades
+financieras
+Egresos financieros por obligaciones con
+entidades financieras
+Erogaciones en bienes muebles e inmuebles
+Gastos de administración
+Otros egresos
+Disponibilidades al final de período
+________________________ ______ ___________
+Gerente General de la Sociedad Contador Auditor Interno
+Controladora o Representante Legal
+NOTA:
+1/ Las notas son parte integrante de los estados financieros.
+Superintendencia General de Entidades Financieras
+Análisis de Intermediarios Financieros
+Flujo real al mes de XXXX
+Sociedad Controladora, S. A. y Subsidiarias
+(En miles de colones)
+Nombre Cuenta Saldo cuenta
+Disponibilidad al inicio del período
+Ingresos
+Recuperación de cartera de crédito
+Ingresos financieros sobre cartera de crédito
+Recuperación de inversiones
+Ingresos financieros sobre inversiones
+Ingresos por prestación de servicios
+Obligaciones con el público
+Obligaciones con el BCCR
+Fondos liberados por el concepto de encaje legal
+Obligaciones con entidades financieras
+Aportes por aumentos de capital
+Venta de activos
+Otros ingresos
+Total disponibilidades
+Egresos
+Créditos concedidos
+Colocaciones de inversiones
+Egresos por prestación de servicios
+Cancelación de obligaciones con el público
+Egresos financieros por obligaciones con el público
+Cancelación de obligaciones con el BCCR
+Egresos financieros por obligaciones con el BCCR
+Fondos comprometidos por concepto de encaje legal
+Cancelación de obligaciones con entidades financieras
+Egresos financieros por obligaciones con entidades financieras
+Erogaciones en bienes muebles e inmuebles
+Gastos de administración
+Otros egresos
+Disponibilidades al final de período
+ANEXO 4F
+ENTIDAD FINANCIERA DOMICILIADA EN EL EXTERIOR
+INFORME DE CALCE DE PLAZOS
+Al mes de XXXXX (En miles de colones)
+A la vista De 1 a 30 días De 31 a 60 días Total
+ACTIVOS
+Disponibilidades
+Cuenta de encaje con el BCCR
+Inversiones
+Cartera de créditos
+______ ______ ______ ______
+Total recuperación de activos ===== ===== ===== =====
+______ ______ ______ ______
+Acumulado recuperación activos (A) ===== ===== ===== =====
+PASIVOS
+Obligaciones con el público
+Obligaciones con el BCCR
+Obligaciones con Entidades Financieras
+Obligaciones a la vista por administración
+de fondos de terceros
+Cargos por pagar
+______ ______ ______ ______
+Total vencimiento de pasivos ===== ===== ===== =====
+______ ______ ______ ______
+Acumulado vencimiento pasivos (B) ===== ===== ===== =====
+Diferencia en los acumulados (A-B)
+Relación porcentual (A/B)
+________________________ ______ ___________
+Gerente General de la Sociedad Contador Auditor Interno
+Controladora o Representante Legal
+NOTA:
+1/ Las notas son parte integrante de los estados financieros.
