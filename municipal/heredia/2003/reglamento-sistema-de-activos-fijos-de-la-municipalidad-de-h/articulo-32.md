@@ -1,0 +1,1 @@
+Artículo 32.—Cuando un funcionario cese sus funciones o sea trasladado a otro departamento tiene la obligación de devolver por escrito el inventario, lo que tiene a su cargo y por consiguiente es obligación de la jefatura, remitir dicho inventario individual, contra las boletas de traslado de bienes, a la Contabilidad.

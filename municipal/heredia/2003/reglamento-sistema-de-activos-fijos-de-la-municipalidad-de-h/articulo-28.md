@@ -1,0 +1,1 @@
+Artículo 28.—Es obligación de cada Jefatura, que cada uno de los bienes asignados a sus subalternos, cuente con un inventario individual, que conste de la cantidad de bienes, el número de activo y nombre del empleado.

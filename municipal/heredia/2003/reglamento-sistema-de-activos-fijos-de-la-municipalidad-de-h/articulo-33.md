@@ -1,0 +1,1 @@
+Artículo 33.—Queda bajo la total responsabilidad del Departamento de Recursos Humanos, si efectúa la liquidación al funcionario, sea cual sea su rango; sin el visto bueno del Departamento de Contabilidad, donde se de fe del recibo de los bienes a satisfacción de la Institución que estaban a cargo del funcionario a liquidar.

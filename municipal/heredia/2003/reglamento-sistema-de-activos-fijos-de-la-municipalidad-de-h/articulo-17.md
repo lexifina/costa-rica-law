@@ -1,0 +1,1 @@
+Artículo 17.—Para el Procedimiento de dar de baja un activo se procederá a levantar un acta por parte de la Dirección de Asuntos Jurídicos inmediatamente que suceda o se descubra el hecho que motiva la solicitud; la misma deberá ser firmada por los funcionarios que intervienen en la diligencia.

@@ -1,0 +1,1 @@
+Artículo 13.—El Departamento de Contabilidad, registrará las operaciones con base en los documentos, fuentes de información que se remitan, procedentes de la Proveeduría, para lo cual se mantendrá un auxiliar y/o un sistema de registro.

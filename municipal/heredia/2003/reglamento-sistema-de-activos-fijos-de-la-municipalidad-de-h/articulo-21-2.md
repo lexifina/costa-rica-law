@@ -1,0 +1,1 @@
+Artículo 21.—El Departamento de Contabilidad, será la responsable de la custodia y administración de los bienes, depositados en ambas cuentas; ya sea para su permanencia, remate o reubicación del bien a otra dependencia.

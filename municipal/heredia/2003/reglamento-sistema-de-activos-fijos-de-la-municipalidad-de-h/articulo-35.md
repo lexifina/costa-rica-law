@@ -1,0 +1,1 @@
+Artículo 35.—Cuando al elaborar los inventarios se encuentran faltantes, daños o deterioros que no se deba al dolo o culpa de la persona que los tiene a su cargo, podrán los encargados firmar los inventarios, dejando en ello constancia.
