@@ -1,0 +1,1 @@
+Art 2°.- En la margen izquierda del libro se fijará la marca o hierro en la misma posición que acostumbra el dueño; y dibujándose con un lápiz por su figura y tamaño, se llenará después con tinta para que no haya diferencia entre la estampa y el original.
