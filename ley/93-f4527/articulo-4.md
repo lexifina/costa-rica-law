@@ -1,0 +1,1 @@
+Art. 4. La libertad del comercio concedida al Departamento del Guanacaste debe entenderse circunscrita al territorio que comprenden los límites de dicho Departamento por la via de tierra. Por consecuencia todos los efectos que, sin las formalidades legales, traspasen dichos límites, caerán en irremisible decomiso.
