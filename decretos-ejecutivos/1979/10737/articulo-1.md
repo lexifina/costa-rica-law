@@ -17,3 +17,5 @@ g) Personal de la Comisión Nacional de Pesca;
 h) Asesores y asistentes personales del Ministro-Director;
 i) Secretaria del Ministro-Director; y
 j) Chófer del Ministro-Director.
+k) Secretaria del Viceministro.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 16098 del 13 de marzo de 1985)
