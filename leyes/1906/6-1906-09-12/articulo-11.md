@@ -1,0 +1,1 @@
+Artículo II.-De todo título de acción que se expida, tomará la debida nota el Administrador en el libro respectivo. La toma de razón, expresará el número de la acción y el nombre del dueño, con las calidades y demás circunstancias que expresa el artículo 9° si se tratare de acciones particulares.

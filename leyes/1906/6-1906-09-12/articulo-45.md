@@ -1,0 +1,1 @@
+Artículo 45.-Convenida una operación entre el Administrador y el interesado, recogerá aquél la prenda, extenderá por duplicado la constancia de la operación y entregará al deudor la boleta de empeño y un giro contra el Tesorero por la suma que corresponda.

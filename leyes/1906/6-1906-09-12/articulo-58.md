@@ -1,0 +1,1 @@
+Artículo 58.-Cuando el tamaño ó forma de la prenda ó el peligro de que se dañe impidan fijar en ella directamente el marbete, se atará aquella con un cordón fuerte sin añadidura ni remiendo, cuyos extremos se fijarán en un cartón sobre el cual y cubriendo tales extremos, se fijará el marbete con lacre ó goma.

@@ -1,0 +1,1 @@
+Artículo 63.-Toda venta de prendas se hará en remate público presidido por el Administrador, con asistencia del Secretario del Consejo, del Tesorero y de un pregonero en el local del establecimiento, previo anuncio por tres veces en el diario oficial, con ocho días de anticipación, cuando menos, contados desde el primer aviso, excluyendo el día de éste y el del remate.

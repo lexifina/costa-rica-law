@@ -1,0 +1,1 @@
+Artículo 6I.-El Monte Nacional de Piedad contrae para con los empeñantes y por lo que á la guardia y custodia de la prenda se refiere, las obligaciones que la ley impone á los acreedores ignoraticios,

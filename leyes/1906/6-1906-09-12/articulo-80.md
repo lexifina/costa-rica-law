@@ -1,0 +1,1 @@
+Artículo 80.-Mientras no se instale el Consejo de Gobierno que definitivamente se organice de acuerdo con el artículo 9 de la ley continuará desempeñando sus funciones el Consejo organizado por acuerdo número 71 de 16 de agosto último.

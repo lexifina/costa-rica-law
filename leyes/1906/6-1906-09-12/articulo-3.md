@@ -1,0 +1,1 @@
+Artículo 3°.-Acordado un aumento de capital, el Consejo de Gobierno pondrá á suscrición pública las tres cuartas partes del aumento, anunciándolo así por medio de avisos que se publicarán durante ocho días consecutivos en el periódico oficial.

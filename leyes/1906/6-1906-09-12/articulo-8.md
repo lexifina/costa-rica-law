@@ -1,0 +1,2 @@
+Acciones
+Artículo 8°.-Las acciones que con arreglo á la ley debe tomar el Estado, se denominarán Acciones del Estado y las otras Acciones de particulares. Unas y otras se dividirán en series que se distinguirán entre sí por medio de letras. Formarán la serie A, las acciones representativas del capital de cien mil colones (₡ I00,000-00) con que se funda la institución de acuerdo con el artículo 2° de la ley; y formarán las siguientes series, las acciones que representen cada uno de los aumentos de capital que en lo sucesivo se acuerden.

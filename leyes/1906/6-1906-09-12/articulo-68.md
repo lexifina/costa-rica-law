@@ -1,0 +1,1 @@
+Artículo 68.-Si el rematario no paga en el acto el precio de la compra, se tendrá por insubsistente la venta y se repetirá el remate en la misma sesión, sin tomar en cuenta las propuestas que pueda hacer el anterior remataría.

@@ -1,0 +1,1 @@
+Artículo 5I.-Convenida con el Administrador la renovación total ó parcial de una deuda y satisfechos en la Tesorería los intereses de la prórroga y en su caso la parte de capital que fuere, el Tesorero pondrá al dorso de la boleta de empeño, la constancia del pago hecho; y el Ad- ministrador procederá á extender nuevo asiento de préstamo y á otorgar otra boleta al deudor.
