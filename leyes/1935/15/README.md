@@ -1,6 +1,6 @@
 # Ley de Pensiones de Músicos de Bandas Militares
 
-Ley N° 15 del 1935-12-05. SINALEVI, ficha 3553: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3553&param2=108456&param3=1>.
+Ley N° 15 del 1935-12-05. SINALEVI, ficha 3553: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3553&param2=108458&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 11 | 1953-04-29 | Ley 1558 | 1953-04-29 |
 | 7 de 11 | 1966-11-22 | Ley 3802 | 1966-11-22 |
 | 8 de 11 | 1973-11-08 | Ley 5378 | 1973-10-26 |
+| 9 de 11 | 1977-10-31 | Ley 5986 | 1977-10-31 |
