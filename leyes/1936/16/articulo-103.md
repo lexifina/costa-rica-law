@@ -1,4 +1,2 @@
-Artículo 103.—El Departamento concederá, en primer término, los préstamos que se destinen al fomento de -la producción agrícola. Con este objeto, la Junta los distribuirá en la siguiente proporción:
-1) El 70 % para fines exclusivamente agrícolas, con garantía de propiedades de esta naturaleza; y
-2) El 30 % para adquisición o construcción de edificios, con garantía de propiedades urbanas o rurales.
-Si las hipotecas constituidas a favor del Departamento no guardaren, en cualquier momento, la proporción establecida en este artículo, se suspenderán los préstamos de la clase que se hubiere excedido, hasta que se restablezca la proporción señalada.
+Artículo 103.- La Junta directiva queda autorizada para distribuir el producto de la emisión de Bonos, en préstamos de carácter agrícola o urbano de largo plazo, en la proporción que lo juzgue más conveniente, y de acuerdo con la demanda que de esos créditos pueda presentarse.
+(Así reformado por el artículo único de la ley N° 35 del 17 de marzo de 1939)
