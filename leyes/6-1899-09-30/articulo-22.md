@@ -1,1 +1,0 @@
-ARTÍCULO 22.-En los libros gravados por esta ley con el impuesto de timbre, el Juez, al poner la nota de que habla el artículo 40 del Código de Comercio, hará en la primera hoja la fijación y cancelación de sellos.

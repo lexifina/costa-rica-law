@@ -1,1 +1,0 @@
-ARTICULO 13.-Todo funcionario público que autorice un documento sujeto al impuesto de timbre, dar fe del monto del valor del gravamen y del hecho de quedar adheridos los sellos correspondientes. Igual constancia extender al pie del documento el funcionario ante quien se haga la fijación de timbres de que habla el artículo anterior.

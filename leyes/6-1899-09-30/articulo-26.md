@@ -1,1 +1,0 @@
-ARTÍCULO 26.-Se tendrá por no timbrado, para los efectos del artículo anterior, el documento cuyos sellos resulten cancelados por persona ó en forma distintas de las determinadas en esta ley ó fueren de emisión diferente á la que estaba en uso al tiempo en que debió timbrarse el documento.

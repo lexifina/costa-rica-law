@@ -1,1 +1,0 @@
-ARTICULO 7°.-Cuando en la escritura matriz constare que no se otorgaron primeros testimonios, los segundos que se expidan y en defecto de éstos, las certificaciones, llevarán timbres por valor de la multa.
