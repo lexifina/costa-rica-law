@@ -1,6 +1,6 @@
-(Derogado)
+(Anulada)
 N° 22017 MIRENEM
-(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 23202 del 15 de diciembre de 1993)
+(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 23202 del 15 de diciembre de 1993. Posteriormente mediante resolución de la Sala Constitucional N° 00031 del 3 de enero de 1995, se declaró insconstitucional el presente decreto ejecutivo)
 EL PRESIDENTE DE LA REPUBLICA
 y EL MINISTRO DE RECURSOS NATURALES, ENERGIA Y MINAS,
 Con fundamento en lo dispuesto en el artículo 140, incisos 3) y 18) de la Constitución Política y la ley N° 7174 del 28 de junio de 1990.
