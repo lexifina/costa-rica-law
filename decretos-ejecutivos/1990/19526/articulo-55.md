@@ -1,4 +1,4 @@
-ARTÖCULO 55.-La autoridad fiscal del Dep¢sito autorizar el ingreso
+ARTÖCULO 55.- La autoridad fiscal del Dep¢sito autorizar el ingreso
 de las mercanc¡as destinadas al mismo, luego de la verificaci¢n de los
 documentos que las amparan y el cumplimiento de los dem s requisitos
 establecidos en la ley y el presente Reglamento. Desprender los

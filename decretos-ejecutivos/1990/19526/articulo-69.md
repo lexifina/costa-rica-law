@@ -1,4 +1,4 @@
-ARTÖCULO 69.-Cuando se trate de compras, con nota de exenci¢n
+ARTÖCULO 69.- Cuando se trate de compras, con nota de exenci¢n
 tributaria o efectuadas por turistas o personas jur¡dicas no domiciliadas
 en Costa Rica, de mercanc¡as destinadas al extranjero, el concesionario se
 obligar a depositarlas en el recinto. aduanero o almac‚n fiscal que

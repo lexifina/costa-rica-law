@@ -1,4 +1,4 @@
-ARTÖCULO 4§.-El Poder Ejecutivo, v¡a decreto ejecutivo, podr
+ARTÖCULO 4§.- El Poder Ejecutivo, v¡a decreto ejecutivo, podr
 incrementar o disminuir la tasa del impuesto del Dep¢sito, dentro de un
 rango de veinticinco puntos porcentuales. Tales variaciones podr n
 efectuarse en cualquier tiempo y podr n ser de car cter general afectar a

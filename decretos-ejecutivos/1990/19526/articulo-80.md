@@ -1,8 +1,7 @@
-ARTÖCULO 80.-Para desalmacenar mercanc¡as de importaci¢n restringida
-con destino al Dep¢sito, se requerir , adem s de la autorizaci¢n del
-Ministerio, el permiso de la autoridad competente. La Autoridad Fiscal
-podr impedir el ingreso de aquellas mercanc¡as que a su juicio
-representan potencial peligro o riesgos, de cualquier ¡ndole, para las
-personas o instalaciones del Dep¢sito y podr exigir la suscripci¢n de
-seguros adicionales que cubran los riesgos a que se expongan personas e
-instalaciones por su manipulaci¢n, custodia y almacenamiento.
+ARTÖCULO 80.- Durante el tiempo en que se apliquen las medidas de
+excepci¢n, los concesionarios £nicamente vender n a los portadores de las
+TAC, de previo a verificar la identidad del portador y cumplimiento de las
+dem s regulaciones especiales establecidas por la Direcci¢n para operar en
+la coyuntura se¤alada.
+(As¡ adicionado por el art¡culo 1§ del Decreto Ejecutivo N§ 19594 de 17 de
+abril de 1990).

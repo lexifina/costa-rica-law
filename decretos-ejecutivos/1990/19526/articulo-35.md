@@ -1,4 +1,4 @@
-ARTÖCULO 35.-Junto con la autorizaci¢n mencionada supra, el agente
+ARTÖCULO 35.- Junto con la autorizaci¢n mencionada supra, el agente
 aduanal, presentar , para su aceptaci¢n el formulario denominado "P¢liza
 de Desalmacenaje de Mercanc¡as con destino al Dep¢sito Libre Comercial de
 Golfito", el cual llevar tantas copias como requiera la aduana, m s una

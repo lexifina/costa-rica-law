@@ -1,4 +1,4 @@
-ARTÖCULO 14.-Para adjudicar las nuevas concesiones producto de
+ARTÖCULO 14.- Para adjudicar las nuevas concesiones producto de
 ampliaciones del Dep¢sito, o las concesiones vacantes, ya sea por
 expiraci¢n del plazo pactado por renuncia, caducidad por incumplimiento,
 muerte o inhabilitaci¢n de cualquier clase o bien disoluci¢n o quiebra del

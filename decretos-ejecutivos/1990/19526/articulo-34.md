@@ -1,4 +1,4 @@
-ARTÖCULO 34.-Para desalmacenar las precitadas mercanc¡as, el agente
+ARTÖCULO 34.- Para desalmacenar las precitadas mercanc¡as, el agente
 de aduana encargado presentar ante las autoridades de la aduana
 correspondiente, una autorizaci¢n emitida por la Direcci¢n en la que se
 har constar el nombre del concesionario consignatario, el peso,

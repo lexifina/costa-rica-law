@@ -1,4 +1,4 @@
-ARTÖCULO 13.-Las personas seleccionadas por la Direcci¢n para ser
+ARTÖCULO 13.- Las personas seleccionadas por la Direcci¢n para ser
 adjudicatarias de una concesi¢n del Dep¢sito, deben suscribir el
 respectivo contrato de concesi¢n con el Ministerio. Esta concesi¢n no es
 constitutiva de derecho de llave ni de ning£n otro derecho subjetivo en

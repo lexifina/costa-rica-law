@@ -1,4 +1,4 @@
-ARTÖCULO 40.-La autoridad aduanera remitir con el transportista
+ARTÖCULO 40.- La autoridad aduanera remitir con el transportista
 copias de la p¢liza de desalmacenaje, factura comercial y el conocimiento
 de embarque, las cuales deber n ser entregadas a las autoridades fiscales
 del Dep¢sito al momento de llegada de la mercanc¡a al recinto del

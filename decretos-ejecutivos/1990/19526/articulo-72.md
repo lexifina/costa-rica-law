@@ -1,4 +1,4 @@
-ARTÖCULO 72.-Los compradores que por cualquier motivo infrinjan las
+ARTÖCULO 72.- Los compradores que por cualquier motivo infrinjan las
 disposiciones contenidas en la ley y el presente Reglamento, as¡ como las
 que establezcan la Administraci¢n y la Autoridad Fiscal del Dep¢sito,
 ser n sancionados con la suspensi¢n de su derecho de comprar en el

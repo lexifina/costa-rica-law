@@ -1,4 +1,4 @@
-ARTÖCULO 59.-Para efectos de c lculo del impuesto del Dep¢sito,
+ARTÖCULO 59.- Para efectos de c lculo del impuesto del Dep¢sito,
 utilidad bruta y precios de las mercanc¡as nacionales, su costo se
 calcular por el m‚todo de promedios ponderados. Para efectos de c lculo
 de utilidad bruta y precios de las mercanc¡as centroamericanas y

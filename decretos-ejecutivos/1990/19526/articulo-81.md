@@ -1,10 +1,5 @@
-ARTÖCULO 81.-Salvo que por ley especial se establezca lo contrario,
-las mercanc¡as sujetas a registro sanitario podr n desalmacenarse con
-destino al Dep¢sito sin el correspondiente registro, pero requerir la
-autorizaci¢n previa del Ministerio de Salud, la que se har constar por
-medio de refrendo en las respectivas facturas. Para tal efecto, el
-concesionario deber acreditarse ante el Ministerio de Salud y presentar
-el Certificado de Origen y de Libre Venta de la mercanc¡a afectada, as¡
-como cualesquiera otra informaci¢n que ese Ministerio le requiera. Esta
-disposici¢n no cubre las mercanc¡as de venta prohibida o restringida en
-Costa Rica.
+ARTÖCULO 81.- Los compradores deber n aportar la TAC y presentarla a
+los funcionarios de la Autoridad Fiscal del Dep¢sito, al salir del recinto
+del Dep¢sito luego de efectuar sus compras.
+(As¡ adicionado por el art¡culo 1§ del Decreto Ejecutivo N§ 19594 de 17 de
+abril de 1990).
