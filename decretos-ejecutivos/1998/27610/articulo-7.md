@@ -1,1 +1,0 @@
-Artículo 7°—Para facilitar la operación de la Caja Chica y la ejecución de los arqueos, todos los valores relacionados con el fondo deben permanecer custodiados en un solo lugar. Se considerará falta grave para los efectos del reglamento interno, la custodia de valores en lugares dispersos de la Unidad.

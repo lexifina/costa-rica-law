@@ -1,1 +1,0 @@
-Artículo 8°—Es absolutamente prohibido e inaceptable bajo ningún concepto, que los fondos de Caja Chica sirvan para que funcionarios del Consejo o personas ajenas a él, realicen cambios monetarios, cambios de cheques u operaciones distintas a los que se destina dicho Fondo.

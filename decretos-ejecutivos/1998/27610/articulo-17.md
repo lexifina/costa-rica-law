@@ -1,1 +1,0 @@
-Artículo 17.—Aquellos aspectos que no se contemplen en el Reglamento y las presentes modificaciones, serán resueltos conjuntamente por el Director Ejecutivo y Coordinador del Área Administrativa Financiera o el Encargado del Proceso Financiero del Consejo de Seguridad Vial, haciéndolo posteriormente del conocimiento de la Auditoría Interna.

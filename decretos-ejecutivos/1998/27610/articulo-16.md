@@ -1,1 +1,0 @@
-Artículo 16.—Corresponderá al Proceso Financiero realizar los cambios a los procedimientos que se deriven de la aplicación del presente Reglamento, en un plazo no mayor de treinta días naturales posteriores a su publicación.
