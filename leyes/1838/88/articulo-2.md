@@ -1,0 +1,1 @@
+Art 2. Corresponderá a éste el conocimiento que por el Reglamento citado, tenían los tenían los ayudantes en materias civiles y criminales, con las apelaciones á los Sargentos Mayores de los respectivos cuerpos. Conocerá también en las demandas y causas de que hablan los artículos 5° y 6° del mismo reglamento.
