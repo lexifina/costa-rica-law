@@ -1,1 +1,2 @@
-Artículo 24.—Los documentos a que se refieran los asientos del Registro, deben conservarse en el archivo, y todos sus folios serán rubricados por el Registrador.
+Artículo 24.—Los documentos a que se refieran los asientos del Registro, deben conservarse en el archivo, y todos sus folios serán rubricados por el Registrador, excepto las ejecutorias de divorcio, separación de cuerpos e investigación de paternidad y las escrituras de reconocimiento, emancipación y adopción, que serán devueltas a los interesados.
+(Así reformado por el artículo único del decreto ejecutivo N° 59 del 30 de octubre de 1942)
