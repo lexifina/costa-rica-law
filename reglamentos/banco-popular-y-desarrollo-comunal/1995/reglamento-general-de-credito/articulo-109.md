@@ -1,0 +1,2 @@
+Artículo 109.—El respectivo departamento de crédito actualizará semestralmente el listado de asociados de las organizaciones afiliadas. La organización de primer piso deberá informar mensualmente de las operaciones de crédito formalizadas con recursos solicitados al Banco, saldo y estado de mora.
+(Así ADICIONADO por la Sesión Extraordinaria N° 3285, celebrada el 26 de noviembre de 1996, publicada en La Gaceta N° 23 de 03 de febrero de 1997.)

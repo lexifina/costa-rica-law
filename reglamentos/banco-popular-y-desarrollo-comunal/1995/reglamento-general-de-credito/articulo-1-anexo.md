@@ -65,8 +65,9 @@ E. Turismo Laboral: 12 meses
 F. Capital de Trabajo: 24 meses
 G. Capital Fijo: 48 meses
 H. Infraestructura: 120 meses
-L Financiamiento de cartera: 60 meses
-J. Compra o construcción de casa; 15 años
+I Financiamiento de cartera: 60 meses
+J) Compra o construcción de casa: 240 meses.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Extraordinaria N° 3285, celebrada el 26 de noviembre de 1996, publicada en La Gaceta N° 23 de 03 de febrero de 1997.)
 K. Compra o construcción con cuota escalonada: 12 años
 M. Compra de lote, remodelación, ampliación, mejoras: 8 arios
 N. Cancelación de gravámenes: Un plazo igual al plan de inversión que le dio origen.

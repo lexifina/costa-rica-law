@@ -1,0 +1,4 @@
+Artículo 106.—La tasa de interés al usuario final del crédito no podrá exceder la que corresponda de acuerdo con el artículo 8° de este Reglamento, con relación a la respectiva línea de crédito, sin perjuicio de lo estipulado en el párrafo tercero de este artículo.
+El Banco podrá fijar a la organización de primer piso, conforme al párrafo anterior, el pago de una tasa de interés menor en tres puntos porcentuales a la tasa que el Banco tenga vigente en la línea de crédito respectiva.
+El nivel resolutivo correspondiente podrá utilizar una tasa de interés al usuario final superior en dos puntos porcentuales a la que el Banco cobre a sus clientes cuando la organización demuestre que ofrece servicios complementarios como asistencia técnica pre y post crédito, capacitación, apoyo para la comercialización y otros.
+(Así ADICIONADO por la Sesión Extraordinaria N° 3285, celebrada el 26 de noviembre de 1996, publicada en La Gaceta N° 23 de 03 de febrero de 1997.)

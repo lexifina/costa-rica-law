@@ -1,6 +1,10 @@
-Articulo 24.—Se aceptará únicamente documentación contable y financiera expedida por Contador Público Autorizado, salvo en aquellas Oficinas Regionales donde se presente inopia de tales profesionales y en créditos inferiores a ¢ 1.000.000, donde se podrá aceptar documentación expedida por Contadores Privados Incorporados.
-La presentación de los listados Financieros se hará de la siguiente manera:
-1) Para créditos inferiores o iguales a ¢ 15.000.000 deben ser certificados.
-2) Para créditos superiores a ¢ 15.000.000 deben ser auditados.
-Sin embargo podrán aceptarse Estados Financieros únicamente certificados para períodos inferiores a seis meses luego de la finalización del periodo fiscal.
-Los Estados Financieros no deberán tener pérdidas operativas ni acumuladas. El Analista en caso de revaluación de activos para enjugar pérdidas, deberá valorarlo caso por caso.
+Articulo 24.—La documentación contable y financiera que se presente, deberá expedirla un profesional legalmente autorizado al efecto.
+A) En el caso de personas jurídicas, sus estados financieros se acreditarán de la siguiente manera:
+a) Para créditos iguales o inferiores a ó ¢ 500.000,00 no será necesario justificarlos o auditarlos, para lo que será suficiente una constancia expedida por un contador privado incorporado, una certificación de la última declaración del Impuesto sobre la Renta o declaración jurada ante el notario público.
+b) Para créditos superiores a ¢ 500.000,00 y hasta ¢ 15.000.000,00 mediante certificación expedida por el profesional legalmente autorizado.
+c) Para créditos planteados por las organizaciones sociales reguladas en la Sección F del capítulo III del presente Reglamento que sirvan de enlace o puente para desarrollar un proyecto de vivienda de sus afiliados cualquiera que sea el monto solicitado mediante certificación expedida por un profesional legalmente autorizado.
+d) Para créditos superiores a ¢ 15.000.000,00 deben ser auditados. Sin embargo podrán aceptarse estados financieros únicamente certificados, para períodos inferiores a seis meses contados desde la finalización del período fiscal. Los estados financieros no deberán tener pérdidas operativas. No obstante queda a criterio del nivel resolutivo correspondiente, valorar el origen de las pérdidas, a efecto de que se acepten estados financieros que muestren pérdidas, siempre que ello no implique un riesgo para el Banco. Lo dispuesto en el presente párrafo no es aplicable a los créditos indicados en el inciso c) anterior.
+B) En el caso de personas físicas, en cuanto a sus ingresos propios, éstos se acreditarán de la siguiente manera:
+a) Para créditos iguales o inferiores a ¢ 500.000,00 no será necesario certificarlos o auditarlos, para lo que será suficiente una constancia expedida por un contador privado incorporado, una certificación de la última declaración del impuesto sobre la Renta o declaración jurada ante el notario público.
+b) Para créditos superiores a ¢ 500.000,00 mediante certificación expedida por un profesional legalmente autorizado.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por la Sesión Extraordinaria N° 3285, celebrada el 26 de noviembre de 1996, publicada en La Gaceta N° 23 de 03 de febrero de 1997.)

@@ -16,3 +16,4 @@ Reglamento General de Crédito.
 | 1 | 1995-10-18 | la propia norma |
 | 2 | 1996-03-12 | Reglamento 3205 (1996-03-12) |
 | 3 | 1996-03-26 | Reglamento 3208 (1996-03-26) |
+| 4 | 1996-11-26 | Reglamento 3285 (1996-11-26) |

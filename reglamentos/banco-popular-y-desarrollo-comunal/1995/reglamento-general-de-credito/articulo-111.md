@@ -1,0 +1,2 @@
+Artículo 111.—Las operaciones serán garantizadas según lo dispuesto en el cuadro de porcentajes de Responsabilidad Máxima sobre Garantías de este Reglamento. Sin embargo, cuando se reciben pagarés o letras de cambio cuyo acreedor sea la organización social deudora del Banco, se tomará hasta el 50% del valor real que tengan esos documentos.
+(Así ADICIONADO por la Sesión Extraordinaria N° 3285, celebrada el 26 de noviembre de 1996, publicada en La Gaceta N° 23 de 03 de febrero de 1997.)
