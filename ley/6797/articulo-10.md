@@ -1,0 +1,1 @@
+Artículo 10.- Todos los titulares de derechos mineros quedan sometidos a la jurisdicción de las leyes y de las autoridades administrativas y judiciales de la República. Cuando se trate de extranjeros, éstos se someterán a lo dispuesto en el segundo párrafo del artículo 19 de la Constitución Política.

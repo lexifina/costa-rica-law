@@ -1,0 +1,1 @@
+Artículo 30.- La concesión de explotación se otorgará por un término no mayor de veinticinco años. Sin embargo, mediante negociación entre la Dirección de Geología, Minas e Hidrocarburos y el titular de la concesión se podrá dar una prórroga hasta por diez años, siempre que el titular haya cumplido con todas sus obligaciones durante el período de explotación.

@@ -1,0 +1,2 @@
+Artículo 70.- Tratándose de empresas de capital extranjero y de sociedades en que el capital nacional sea inferior al cincuenta por ciento, el Sistema Bancario Nacional no podrá otorgar financiación a tales empresas, por un monto superior al diez por ciento del total de la inversión realizada.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 66 al 70)

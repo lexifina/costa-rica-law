@@ -1,0 +1,2 @@
+Transitorio III.- Las personas físicas o jurídicas que actualmente desarrollen algún tipo de actividad minera, sin tener legalizada su situación, deberán cumplir con las disposiciones de esta ley, dentro del plazo de seis meses.
+Para ese efecto, la Dirección General hará la correspondiente notificación a los interesados, por medio de tres avisos que publicará cada ocho días, en el primer mes de vigencia de esta ley, en dos de los diarios de mayor circulación en el país.

@@ -1,0 +1,1 @@
+Artículo 5º.- Podrán otorgarse concesiones de explotación sobre desmontes, relaves, escorias y terrenos que no se encuentren incluidos en concesiones vigentes, según lo estipula el artículo 35 de esta ley.

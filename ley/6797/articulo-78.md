@@ -1,0 +1,2 @@
+Artículo 82.- Las oposiciones se presentarán ante el Registro Nacional Minero y se tramitarán, en lo no previsto en el artículo 79 de esta ley, mediante los mismos procedimientos que señala el Código de Procedimientos Civiles, en su título IV, capítulo único, para los incidentes. La oposición que no indicare o no acompañare los documentos que justifiquen la causal que se invoca, se tendrá por no presentada.
+(Así corrida su numeración por el artículo 2 de la Ley N° 8246 de 24 de abril del 2002, que lo traspaso del antiguo artículo 78 al 82)
