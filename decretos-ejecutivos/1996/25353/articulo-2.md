@@ -1,0 +1,1 @@
+Articulo 2°—Las guías serán extendidas en las diferentes zonas y regiones del país por los funcionarios acreditados del Ministerio de Agricultura y Ganadería en las Direcciones Regionales y Agencias de Extensión, así como por los Jefes de Sub-destacamentos, Destacamentos y Comandancias Regionales de la Fuerza Pública.
