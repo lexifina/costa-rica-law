@@ -14,3 +14,4 @@ Traspaso de Tierras al INDER bajo el Programa de Titulación Pascua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-07-07 | la propia norma |
+| 2 | 2000-07-07 | Ley 7 |
