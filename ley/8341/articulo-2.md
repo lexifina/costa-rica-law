@@ -52,5 +52,14 @@ ARTÍCULO 2: EGRESOS ORDINARIOS Y EXTRAORDINARIOS PARA EL 2003. (...)
 (Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31395 de 26 de setiembre de 2003, publicado en La Gaceta No. 198 de 15 de octubre de 2003.)
 (Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31386 de 29 de setiembre de 2003, publicado en La Gaceta No. 200 de 17 de octubre de 2003.)
 (Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31403 de 06 de octubre de 2003, publicado en La Gaceta No. 205 de 24 de octubre de 2003.)
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31445 de 10 de octubre de 2003, publicado en el Alcance No. 51-A a La Gaceta No. 215 de 7 de noviembre de 2003.)
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31457 de 10 de octubre de 2003, publicado en La Gaceta No. 224 de 20 de noviembre de 2003.)
 (Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31418 de 15 de octubre de 2003, publicado en La Gaceta No. 211 de 3 de noviembre de 2003.)
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31447 de 16 de octubre de 2003, publicado en La Gaceta No. 218 de 12 de noviembre de 2003.)
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31440 de 20 de octubre de 2003, publicado en el Alcance No. 51 a la Gaceta No. 213 de 5 de noviembre de 2003).
 (Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31427 de 21 de octubre de 2003, publicado en el Alcance No. 50, Gaceta No. 211 de 3 de noviembre de 2003).
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31446 de 23 de octubre de 2003, publicado en La Gaceta No. 218, de 12 noviembre de 2003.)
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31430 de 24 de octubre de 2003, publicado en el Alcance No. 50, Gaceta No. 211 de 3 de noviembre de 2003).
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31455 de 27 de octubre de 2003, publicado en La Gaceta No. 222 de 18 de noviembre de 2003.)
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31453 de 29 de octubre de 2003, publicado en La Gaceta No. 219 de 13 de noviembre de 2003.)
+(Así MODIFICADO por el artículo 1° del Decreto Ejecutivo N° 31456 de 29 de octubre de 2003, publicado en La Gaceta No. 224 de 20 de noviembre de 2003.)
