@@ -1,12 +1,13 @@
-Artículo 4º.- Son miembros de la Fuerza Pública:
-a) El personal de la Guardia Civil.
-b) Los Guardas Fiscales.
-c) Los Oficiales e Inspectores de la Dirección General del Tránsito.
-d) Los de la Guardia Presidencial.
-e) Los de la Policía Militar.
-f) EL personal de vigilancia de cárceles y prisiones, y
-g) Todos aquéllos que estén de alta en el servicio activo de las
-armas, por la índole de las labores o funciones que ejecuten, excepto el
-personal subalterno de la Dirección General de Detectives y de los
-Departamentos de Extranjeros y Cédulas de Residencia y de Migración y
-Pasaportes y el personal de las Bandas Militares.
+Artículo 4º.- Se considerará que sirven cargos de confianza:
+a) Los Jefes de Misiones Diplomáticas y los Diplomáticos en misión temporal.
+b) El Procurador General de la República.
+c) Los Gobernadores de Provincia.
+d) El Secretario y demás asistentes personales directamente subordinados al Presidente de la República.
+e) Los oficiales mayores de los Ministerios y los choferes de los Ministros.
+f) Los servidores directamente subordinados a los ministros y viceministros, hasta un número de diez (10). Tales servidores serán declarados de confianza, mediante resolución razonada de la Dirección General de Servicio Civil. No podrá afectarse a funcionarios incluidos actualmente dentro del Régimen de Servicio Civil.
+(Así reformado el inciso anterior por el artículo 1º de la Ley Nº 6440 de 16 de mayo de 1980).
+g) Los cargos de directores y directores generales de los Ministerios, así como los de las oficinas adscritas a ellos, las desconcentradas y descentralizadas dependientes de los Ministros o Viceministros. Queda entendido que estos funcionarios deberán cumplir con el requisito de idoneidad para el desempeño de un cargo, de carácter técnico.
+Transitorio al inciso g)
+Las personas citadas en el inciso anterior, que actualmente ocupen en propiedad tales cargos, conforme al artículo 20 del Estatuto de Servicio Civil seguirán en esa misma condición hasta el cese de la prestación de sus servicios. Cuando esto ocurra y el cargo quede vacante, la Dirección General de Servicio Civil elaborará la correspondiente resolución declarándolo de confianza.
+(Así adicionado el inciso anterior incluyendo su Transitorio, por la Ley No.7767 de 24 de abril de 1998)
+( NOTA: El artículo 7º de la Ley Nº 1918 de 5 de agosto de 1955, cambió la numeración de este artículo que originalmente era el 5)

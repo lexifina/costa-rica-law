@@ -1,0 +1,1 @@
+Artículo 179.-Los profesionales docentes al servicio de las instituciones autónomas y semiautónomas, y de las instituciones privadas, gozarán de las garantías estipuladas en los artículos 167, 168 y 173. En estos casos la institución patronal asumirá las obligaciones que en dichos textos corren a cargo del Ministerio de Educación.

@@ -1,0 +1,1 @@
+Artículo 67.-En casos y muy calificados y cuando, por la naturaleza de la presunta falta, se considerare perjudicial la permanencia del servidor en el puesto, el Director de Personal ordenará la suspensión en el cargo o su traslado temporal a otro puesto, mediante acción de personal.

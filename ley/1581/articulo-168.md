@@ -1,0 +1,1 @@
+Artículo 168.-DEROGADO.- (Derogado por el artículo 2º de la Ley de Reforma al Sistema de Pensiones del Magisterio Nacional No.7531 del 10 de julio de 1995. Véanse las Observaciones relativas al plazo para la transformación de las incapacidades otorgadas de acuerdo con el presente artículo).

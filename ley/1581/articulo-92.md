@@ -1,0 +1,1 @@
+Artículo 92.-Cuando en un concurso se contare solamente con un candidato que reúna los requisitos contenidos en el Manual Descriptivo de Puestos, la Dirección General omitirá el establecimiento de bases y lo declarará elegible a fin de que el Ministro, o el Jefe autorizado, efectúe el nombramiento.

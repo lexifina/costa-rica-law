@@ -1,0 +1,1 @@
+Artículo 143.-Todas las personas comprendidas en el grupo NAU-2 podrán además, concursar para plazas en propiedad y, una vez escogidos de la nómina respectiva, gozarán de los derechos que esta ley confiere a los servidores regulares. No obstante, los profesionales sin estudios pedagógicos mencionados en dicho grupo deberán, para ello, cumplir con el período de prueba.

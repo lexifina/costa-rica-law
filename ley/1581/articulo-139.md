@@ -1,0 +1,1 @@
+Artículo 139.-El profesor titulado en Enseñanza Especial que labore en una especial ajena a la suya será considerado, para los efectos de esta ley, dentro del grupo EAU-2; pero será ubicado en la otra especialidad, dentro del grupo de titulados al cual corresponda, por sus estudios o experiencia, una vez cumplido el quinto año de servicios bien calificados.

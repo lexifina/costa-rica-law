@@ -1,0 +1,1 @@
+Artículo 189.-Al Presidente corresponderá convocar a sesiones y presidirlas, someter a la consideración de los otros miembros las cuestiones a tratar en la respectiva sesión, y poner a votación los asuntos. Vigilar la ejecución de todas las medidas y disposiciones que establezca el Reglamento Interior, y ejercer las demás facultades y atribuciones que éste le señale.

@@ -1,0 +1,3 @@
+Artículo 142.-Los profesores autorizados de Enseñanza Normal se clasifican en dos grupos, denominados NAU-2 y NAU-1.
+a) El grupo NAU-2 comprende a quienes, a más del título de Profesor de Enseñanza Primaria, tengan una experiencia mínima de tres años en determinada asignatura de la Enseñanza Normal, cuya calificación no haya sido inferior de Muy Bueno. También comprende a quienes posea un título profesional, sin estudios pedagógicos, para impartir asignaturas de su competencia; y
+b) El grupo NAU-1 comprende que quienes, a más del título de Profesor de enseñanza Primaria, tengan una experiencia en ese nivel, no menor de 6 años, calificada con nota mínima de Muy Bueno.

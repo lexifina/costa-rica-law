@@ -1,0 +1,1 @@
+Artículo 85.-Con las excepciones previstas en esta ley, las plazas vacantes deberá llenarlas el Ministerio de Educación Pública, conforme a lo establecido en el inciso c) del artículo 83. Para ello dispondrá de las nóminas de elegibles para las diferentes clases de puestos, elaboradas en estricto orden de calificación, por la Dirección General de Servicio Civil.

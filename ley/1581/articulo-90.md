@@ -1,0 +1,1 @@
+Artículo 90.-Cualquier duda que se presentare al evaluar los atestados que han de ser objeto de calificación, como equivalencias, estudios, experiencia, etc., será resuelta por los miembros del Jurado.

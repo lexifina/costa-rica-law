@@ -1,0 +1,3 @@
+Artículo 93.-Cuando se proceda de acuerdo con el inciso b) del artículo 31 de esta ley, el Departamento de Personal del Ministerio de Educación Pública deberá levantar una información administrativa, de carácter sumarial, a fin de comprobar la incapacidad o deficiencia del servidor cuya cesación se solicita.
+Para la substanciación de estas diligencias se procederá, en lo posible, según los trámites que establece el Capítulo IV de este Título.
+Según la distancia a que el servidor labore, se le concederá un término no menor de cinco días hábiles, ni mayor de diez, a fin de que presente sus descargos. Evacuadas las pruebas que se hubieren ofrecido, se pasará el expediente al Ministro de Educación Pública, quien resolverá en única instancia.

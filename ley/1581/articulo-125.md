@@ -1,0 +1,1 @@
+Artículo 125.-Son profesores de Enseñanza Media aquellos que laboren en instituciones de ese nivel, desempeñando funciones docente-administrativas impartiendo lecciones sobre materias académicas del plan de estudios, no comprendidos en el campo técnico-profesional y especial.
