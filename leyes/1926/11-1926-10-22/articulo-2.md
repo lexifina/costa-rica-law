@@ -1,0 +1,1 @@
+Artículo 2°.- Los derechos a denunciar baldíos concedidos por leyes especiales como premio a particulares, y por razón de cultivo de ciertos productos u otra causa, se declaran caducos y de ningún valor ni efecto.
