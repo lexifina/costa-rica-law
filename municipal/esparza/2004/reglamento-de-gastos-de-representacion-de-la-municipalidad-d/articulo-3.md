@@ -1,0 +1,1 @@
+Artículo 3º—Alcances. A las disposiciones del presente Reglamento estarán sujetos el alcalde y miembros del Concejo Municipal y el funcionario en que formalmente y mediante oficio éste delegue su representación en cada ocasión concreta, el incumplimiento a sus disposiciones acarreará responsabilidad civil, penal o laboral, según sea el caso.

@@ -1,0 +1,1 @@
+Artículo 12.—Requisitos de los comprobantes. Las facturas para la justificación de gastos de representación, deberán cumplir con los requisitos establecidos para tales efectos por el Reglamento de Caja Chica, bajo el entendido de que los licores no se incluyen como gasto de representación.

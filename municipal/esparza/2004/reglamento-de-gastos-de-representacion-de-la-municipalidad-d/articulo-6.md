@@ -1,0 +1,5 @@
+Artículo 6º—Disponibilidad presupuestaria. Es requisito esencial para el reconocimiento de gastos de representación, que se haya incluido en le presupuesto institucional la suma correspondiente, la cual deberá reflejarse en la partida de servicios no personales. El Alcalde en ejercicio de sus funciones, podrá hacer uso de la partida presupuestaria de gastos de representación, las sumas mayores a $ 150 o su equivalente en colones requerirán acuerdo del Concejo, bajo la modalidad de reembolso liquidable en un 100% en todos los casos y autorizar los gastos anteriores a aquellos regidores que el Concejo Municipal apruebe y delegue algún tipo de función de representación en cumplimiento de sus funciones y que los requiera, en ambos casos bajo previa justificación escrita que indique al menos:
+a. El nombre de la persona (s) por atender, cargo que ostenta y entidad a la que representa.
+b. Motivo de la atención por brindar.
+c. El nombre y firma del ejecutable del gasto.
+En el caso de los regidores delegados por el Concejo la Justificación se extenderá mediante acuerdo.

@@ -1,0 +1,1 @@
+Artículo 9º—Gastos de representación en el exterior. Los gastos de representación que se realicen en viajes al exterior se regirán por lo dispuesto en le capítulo V del reglamento de Gastos de Viajes y de Transporte, emitido por la Contraloría General de la República para los funcionarios públicos en lo que resulte aplicable.

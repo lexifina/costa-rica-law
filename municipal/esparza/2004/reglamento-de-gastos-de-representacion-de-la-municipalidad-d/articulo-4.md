@@ -1,0 +1,2 @@
+Artículo 4º—De la fiscalización. Corresponde a la Dirección Administrativa y Financiera verificar el correcto cumplimiento de este Reglamento, dependiendo del origen de los recursos del gasto a cubrir, según se tramitó a través del sistema de caja chica en función del monto y en cuyo caso cumpliendo con su reglamento o mediante cheque institucional.
+En forma trimestral el Tesorero Municipal rendirá un informe de los gastos de representación realizados.
