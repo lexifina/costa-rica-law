@@ -1,0 +1,1 @@
+Artículo 8º—Forma de efectuar el adelanto. Cuando el Alcalde solicite un adelanto para gastos de representación, deberá solicitarlo mediante una nómina de pago, para confeccionarle un cheque por el monto solicitado a nombre del Alcalde Municipal, por la suma indicada en el artículo anterior, el cual estará sujeto a liquidación y a que esté liquidado el monto anterior girado.
