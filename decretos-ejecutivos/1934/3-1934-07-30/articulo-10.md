@@ -1,1 +1,0 @@
-Artículo 10.—Antes de efectuar cualquier préstamo, el Banco hará inspeccionar y valorar los bienes ofrecidos en garantía y calcular el valor probable de la cosecha, por medio de sus peritos valuadores o inspectores; y respecto de las garantías fiduciarias, solicitará todas las referencias e informaciones requeridas para formar un juicio exacto acerca de ellas.

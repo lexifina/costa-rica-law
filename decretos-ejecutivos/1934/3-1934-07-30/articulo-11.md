@@ -1,3 +1,0 @@
-Artículo 11.—Las solicitudes de préstamo se presentarán tramitarán únicamente en los formularios que gratuitamente suministrará el Banco a quienes los soliciten directamente en sus oficinas o por correo y contendrán todos los datos e informes necesarios para que el Banco pueda resolverlas oportunamente.
-A las solicitudes de préstamo por mayor cantidad de quinientos colones debrá acompañarse, si el Banco lo pidiere, una certificación del Registro Público en que consten los bienes del deudor o del fiador o de ambos, con especificación de los gravámenes.
-Ninguna solicitud de préstamo será atendida ni tramitada si se omite en el formulario alguno de los datos que han de suministrarse conforme al mismo.
