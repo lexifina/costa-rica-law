@@ -14,3 +14,4 @@ Autoriza Decomiso y Destrucción Productos de Artes de Pesca Prohibidas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-15 | la propia norma |
+| 2 | 1999-11-15 | Ley 7 |
