@@ -1,0 +1,11 @@
+ARTÍCULO 9.- Departamento de Operaciones.
+El Departamento de Operaciones estará sujeto a la dirección de un
+jefe, quien se encargará de dirigir las acciones concretas del Servicio en
+cumplimiento de sus fines legales y reglamentarios. Deberá poseer la
+licencia de capitán de guardacostas, debidamente acreditada ante el
+Departamento de Transporte Marítimo del Ministerio de Obras Públicas y
+Transportes y habrá de cumplir los requisitos de ingreso a las fuerzas de
+policía, contenidos en el artículo 49 de la Ley General de Policía, No.
+7410, de 26 de mayo de 1994, así como las exigencias para el cargo de
+subdirector según el Reglamento de Organización de los Cuerpos Policiales
+adscritos al Ministerio de Seguridad Pública.

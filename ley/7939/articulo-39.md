@@ -1,0 +1,7 @@
+ARTÍCULO 39.- Coordinación con las capitanías de puerto.
+Las capitanías de puerto reportarán, diariamente, a las estaciones
+del Servicio el listado de los zarpes otorgados. El incumplimiento de esta
+obligación hará incurrir al Capitán de Puerto en responsabilidad
+administrativa y le hará acreedor a sanciones disciplinarias de
+conformidad con la Ley General de la Administración Pública, No. 6227, de
+2 de mayo de 1978.

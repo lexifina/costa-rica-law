@@ -1,0 +1,9 @@
+ARTÍCULO 3.- Equiparación de competencias y facultades.
+El personal del Servicio, para desarrollar sus funciones, tendrá en
+tierra las mismas competencias y facultades policiales que los otros
+cuerpos definidos en la Ley General de Policía, No. 7410, de 26 de mayo de
+1994.
+Cuando este personal tenga que instalar estaciones fijas o móviles en
+parques nacionales o áreas silvestres protegidas, deberá acatar las
+disposiciones legales, reglamentarias y administrativas sobre la
+materia.

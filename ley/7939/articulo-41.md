@@ -1,0 +1,9 @@
+ARTÍCULO 41.- Coordinación con el Registro Naval.
+El Registro Naval remitirá al Servicio un informe sobre toda
+embarcación registrada en dicha dependencia. El informe deberá ser rendido
+dentro del plazo máximo de dos días hábiles, contados a partir de la
+autorización de la inscripción correspondiente. El Director del Registro
+Naval incurrirá en responsabilidad administrativa por el incumplimiento de
+esta obligación y se hará acreedor a las sanciones disciplinarias, según
+la Ley General de la Administración Pública, No. 6227, de 2 de mayo de
+1978.

@@ -1,0 +1,16 @@
+ARTÍCULO 37.- Decomiso de productos alimenticios o perecederos.
+Los productos alimenticios o perecederos decomisados por el
+Servicio pasarán a la orden de la autoridad judicial competente, en el
+menor tiempo posible. Esta autoridad dispondrá la venta inmediata del
+producto al precio del día en la plaza correspondiente. El producto de la
+venta será depositado en la cuenta del despacho judicial que conozca de la
+causa, el cual, en caso de sentencia absolutoria, dispondrá devolver
+dichos dineros a la persona absuelta. Si se demuestra la responsabilidad
+civil o penal del imputado, esas sumas serán giradas en un solo pago, una
+vez firme la sentencia, por los despachos judiciales correspondientes de
+esta manera: setenta y cinco por ciento (75%) al Servicio y veinticinco
+por ciento (25%) al INCOPESCA.
+Se excluye de lo normado en el párrafo anterior el producto de los
+comisos de perecederos, decomisados en virtud de transgresiones a la Ley
+No. 6267, de 29 de agosto de 1978, la distribución de ese producto está
+determinada por el artículo 8 de esta misma ley.
