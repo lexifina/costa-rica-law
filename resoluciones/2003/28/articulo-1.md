@@ -1,0 +1,8 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº 028-SC.—San José, 17 de octubre del 2003
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones.
+DG-424-2003, se avala la inclusión de la carrera de Bachillerato y Licenciatura en Derecho de la Universidad Latina de Costa Rica, como atinencia académica de las clases Coordinador de Área, Profesional de Investigación Fiscal 2, Profesional de Investigación Fiscal 1, Grupos A y B, y Técnico de Investigación Fiscal del Manual Institucional de Clases de la Policía de Control Fiscal.
+DG-426-2003, se deroga la resolución DG-122-2002, se modifica la descripción de la clase Profesional de Procesos 3 del Manual del Ministerio de Hacienda, se asigna el nivel salarial a la clase de puesto Coordinador de Procesos Jurídicos-STAP y se modifica la clase Profesional de Proceso STAP, del Manual Institucional de Clases de la Secretaría Técnica de la Autoridad Presupuestaria.
+DG-428-2003, se modifica el Manual Institucional de la Dirección General de Tributación del Ministerio de Hacienda, aprobado mediante Resolución DG-157-98, con el fin de que se declare atinente la Maestría en Asesoría Fiscal, a diversas clases del Manual de Clases Institucional de Tributación Directa.
+DG-429-2403, se adiciona al artículo 1° de su homóloga la DG-378- 2003 del 25 de agosto del 2003, el puesto número 91255, ubicado en el CEN de Finca 2 de Sarapiquí.
+DG-432-2003, se delega en la servidora María Julia Picado Blanco, cédula 1-550-601, Directora General de Personal del Ministerio de Educación Pública, la firma y aprobación de los actos administrativos que en su texto se dicen.
