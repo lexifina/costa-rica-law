@@ -1,0 +1,1 @@
+Artículo 2°.-Los beneficiadores, una vez terminada la entrega de café, informarán a las respectivas Tesorerías Municipales, para la liquidación del impuesto que la presente ley establece, la cantidad de fanegas recibidas, en sus patios, propias o ajenas.
