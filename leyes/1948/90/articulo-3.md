@@ -1,1 +1,3 @@
 Articulo 3°-Después del 31 de julio de 1948, no podrá ser removido ningún empleado de la Administración Publica, salvo por faltas o por incapacidad comprobadas en expediente que tramitara la Oficina de Selección de Personal.
+La anterior disposición comprende únicamente aquellos empleados que hayan obtenido sus puestos por exámenes hechos ante la Oficina de Selección de Personal y que hayan pasado un período de prueba de tres meses, y aquellos que en el futuro prueben ante dicha Oficina que llenan los requisitos que exigen los cargos que ocupan, o bien que hayan desempeñado sus funciones a satisfacción de de sus jefes por un período de un año o más.
+(Así adicionado el párrafo anterior, por el artículo 1° de la Ley N° 380 del 15 de febrero de 1949)
