@@ -13,3 +13,4 @@ Regula Exoneración Vehículos a Concesionarios Transporte Remuneradode Personas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1975-11-15 | la propia norma |
+| 2 | 1975-11-15 | SINALEVI (sin norma nombrada) |
