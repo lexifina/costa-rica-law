@@ -251,6 +251,7 @@ articulo-247.md
 articulo-248.md
 articulo-249.md
 articulo-250.md
+articulo-250-bis.md
 articulo-251.md
 articulo-252.md
 articulo-253.md

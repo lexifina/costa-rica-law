@@ -1,0 +1,3 @@
+Artículo 250 bis.—Compensación de la Obligación Tributaria Aduanera. En caso que se solicite la extinción de la obligación tributaria aduanera total o parcial mediante compensación de tributos con créditos de igual naturaleza administrados por la Dirección General de Tributación, la declaración aduanera se tramitará de oficio.
+La tramitación de oficio no exime a los interesados de asumir la responsabilidad por la información proporcionada ni perjudica la competencia del Servicio Nacional de Aduanas para el ejercicio de los controles inmediatos y a posteriori de acuerdo con el régimen jurídico aduanero.
+(Así adicionado por el artículo 1 del decreto ejecutivo N° 32006 del 13 de mayo del 2004)
