@@ -1,0 +1,2 @@
+Artículo 10°.- La Secretaría de la Junta Directiva llevará un libro para el registro de los miembros inscritos del Colegio. Todo asiento de inscripción contendrá el número de orden, las generales y nacionalidad del inscrito, las fechas del diploma o certificación, así como la del propio asiento, el cual será firmado por el Secretario y el interesado.
+Llevará también la Secretaría un índice de los Colegios inscritos, por orden alfabético de apellidos, con indicación del tomo, folio y número de la partida de inscripción de cada uno de ellos.

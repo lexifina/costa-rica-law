@@ -1,0 +1,1 @@
+Artículo 37.- La Junta Directiva hará el escrutinio y dará a conocer el resultado, Los electores, al término de escrutinio, podrán examinar las papeletas computadas mediante una comisión ad-hoc formada por los tres colegiados que designen.

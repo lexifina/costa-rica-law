@@ -1,0 +1,1 @@
+Artículo 104.- El Presidente y el Fiscal practicarán cortes de caja en los primeros tres días de los meses de abril, julio y octubre y dejará constancia en los libros. Del resultado de los arqueos dará informe a la Junta Directiva.

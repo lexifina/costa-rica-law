@@ -1,0 +1,1 @@
+Artículo 57°.- No podrá ningún miembro de la Junta Directiva excusarse de conocer y vitar los asuntos de conocimiento de ella, a menos que tenga impedimento para hacerlo (interés personal, parentesco hasta el tercer grado de consanguinidad o afinidad con la persona interesada en el asunto , enemistad con ella).

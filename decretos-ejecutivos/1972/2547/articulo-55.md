@@ -1,0 +1,1 @@
+Artículo 55° Las disposiciones relativas a las Asambleas Generales en lo que opongan al presente capítulo son aplicables a las sesiones de la Junta Directiva; pero las actas de las sesiones de ésta, sin otra formalidad , se leerán y aprobaran o modificaran en la sesión siguiente y serán firmadas por el Presidente y el Secretario.

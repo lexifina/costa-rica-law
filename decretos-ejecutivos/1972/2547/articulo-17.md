@@ -1,0 +1,1 @@
+Artículo 17°.- Con excepción del caso de fallecimiento, el Secretario hará publicar en el periódico oficial la suspensión o separación de un miembro del Colegio; y también hará la comunicación correspondiente al Tesorero para lo de su cargo.

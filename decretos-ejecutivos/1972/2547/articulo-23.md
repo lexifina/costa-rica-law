@@ -1,0 +1,1 @@
+Artículo 23°.- Las funciones públicas para las cuales La Ley o los Reglamentos exigen la calidad de Licenciado, sólo podrán ser desempeñadas por los miembros activos del Colegio, a quienes también se dará preferencia en los puestos que requieran conocimiento administrativo, económico, estadístico, de seguros y otras especialidades de las Ciencias Económicas.

@@ -1,0 +1,1 @@
+Artículo 109.- Será correspondencia oficial de la Corporación únicamente la que tenga estampada el sello del Colegio. Se considerará oficiales las publicaciones que el Colegio efectúe en el periódico “La Gaceta”.

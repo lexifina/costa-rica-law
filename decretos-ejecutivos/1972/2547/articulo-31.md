@@ -1,0 +1,1 @@
+Artículo 31°.- La Secretaría de la Junta Directiva llevará un Libro para el Registro de las especialidades profesionales de los miembros inscritos del Colegio y en el que se hará constar un detalle de los documentos y otras circunstancias en que se basó la inscripción.

@@ -1,0 +1,1 @@
+Artículo 102.- Cuando fuere preciso efectuar algún gasto no previsto en el presupuesto o cuando lo autorizado fuere insuficiente, la Junta Directiva podrá conceder un crédito extraordinario o un suplemento de crédito, según el caso.

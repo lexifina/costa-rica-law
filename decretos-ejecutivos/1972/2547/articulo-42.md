@@ -1,0 +1,1 @@
+Artículo 42.- Las sesiones serán públicas, siempre que la Asamblea no disponga lo contrario. Tendrán voz y voto todos los miembros del Colegio que se encuentren presentes, excepto los miembros honorarios que no pueden elegir ni ser electos.

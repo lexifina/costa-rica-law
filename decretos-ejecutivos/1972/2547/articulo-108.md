@@ -1,0 +1,1 @@
+Artículo 108.- En los escritos dirigidos al Colegio se usará papel sellado de un colón. Su presentación se hará ante el Secretario, quién podrá la razón de recibido al pie con constancia de la hora y fecha del recibo, así como de cualquier otro documento que acompañe al memorial.

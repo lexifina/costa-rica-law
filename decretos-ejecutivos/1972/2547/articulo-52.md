@@ -1,0 +1,3 @@
+Artículo 52°.- La Secretaría comunicará la toma de posesión a los Poderes Públicos, a la Universidad de Costa Rica, a las Juntas Directivas de los demás Colegios Profesionales, a la Federación de Colegios Profesionales y lo avisará en el periódico oficial.
+En la sesión inaugural, el Secretario y el Tesorero salientes, leerán respectivamente, la memorial de los trabajos del Colegio y el estado general de sus ingresos y egresos, informes que se ordenará publicar; y se señalará día y hora para las sesiones ordinarias de la Junta Directiva, a las cuales sus miembros queden obligados a concurrir sin convocatoria especial.
+Las cuentas del Tesorero serán examinadas en la oportunidad que indica este mismo Reglamento.

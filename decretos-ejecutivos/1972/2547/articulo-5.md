@@ -1,0 +1,1 @@
+Artículo 5°.- La representación judicial y extrajudicial del Colegio la ejerce el Presidente de la Junta Directiva, con carácter de apoderado general, dentro de las facultades que señala el artículo 1255 del Colegio Civil.
