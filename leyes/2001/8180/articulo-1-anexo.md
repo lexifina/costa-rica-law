@@ -18,3 +18,8 @@ Relación de puestos de sueldos para cargos fijos del gobierno central, para el 
 (Modificado por el artículo 1 del Decreto Ejecutivo N° 30614 de 17 de julio del 2002)
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 30619 de 5 de agosto del 2002)
 (Modificado respecto la relación de puestos de cargos fijos de la Defensoría de los Habitantes de la República, por el artículo 1 del Decreto Ejecutivo N° 30649 de 7 de agosto del 2002)
+(Modificado respecto la relación de puestos de cargos fijos del Ministerio de Gobernación y Policía, por el artículo 2 del Decreto Ejecutivo N° 30773 de 10 de octubre del 2002)
+(Modificado por el artículo 2 del Decreto Ejecutivo N° 30780 de 7 de octubre del 2002)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 30781 de 7 de octubre del 2002)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 30859 de 7 de noviembre del 2002)
+(Modificado por el artículo 2 del Decreto Ejecutivo N° 30891 de 13 de diciembre de 2002)
