@@ -1,0 +1,1 @@
+Artículo 2º—Previo al giro de los recursos, la Auditoría Interna del BANHVI deberá certificar tanto los beneficiarios como los montos correspondientes; además, el BANHVI deberá llevar un control estricto e individualizado para las fiscalizaciones posteriores.
