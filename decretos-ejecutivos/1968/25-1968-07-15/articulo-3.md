@@ -1,0 +1,1 @@
+Artículo 3º. - Toda aquella persona que ingrese al redondel después de haber sido requerido para que no lo haga, será sancionada de conformidad con lo que dispone el artículo 137 del Código de Policía.
