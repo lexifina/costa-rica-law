@@ -1,0 +1,4 @@
+CAPITULO II
+Sistema Aduanero y Control de trasiego de materiales y mercancías
+Artículo 6º—Sistema Aduanero. Debido a que las áreas donde se ubiquen las empresas acogidas al régimen de Zona Franca constituyen una Zona Aduanera Primaria, de acuerdo con el Artículo 13 de la Ley de Zonas Francas Nº 7210 y sus reformas, todas las Empresas beneficiarias deberán de someterse a los controles de entrada y salida de personas, vehículos y mercancías que este Régimen exige.
+Por lo tanto, las Empresas beneficiarias deberán cumplir con las obligaciones que la Ley de Aduanas N.7557 y su Reglamento y la Ley de Zonas Francas N.7210 y sus reformas y el Reglamento de Zonas Francas estipulan en esta materia incluyendo, sin que sea limitante, la obligatoriedad de mantener un inventario permanente, el suministro de información a las autoridades correspondientes, y la responsabilidad personal de cada Empresa en el cumplimiento de sus obligaciones fiscales.

@@ -1,0 +1,1 @@
+Artículo 27.—De la instalación de Fábricas de componentes electrónicos. Las fábricas de componentes electrónicos se ubicarán lejos de las líneas eléctricas de alta tensión, en conjunto con aquellas que requieren un ambiente controlado, libre de contaminación, tal como farmacéuticos y otras.

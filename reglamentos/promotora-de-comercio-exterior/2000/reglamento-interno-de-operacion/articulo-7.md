@@ -1,0 +1,1 @@
+Artículo 7º—Servicios de Personal Aduanero. Con el propósito de asegurar el cumplimiento de la normativa aduanera aplicable, el Parque cuenta con los servicios de Personal Aduanero establecidos por la Dirección General de Aduanas, quienes trabajan en unión y cooperación con los servicios de vigilancia y seguridad del Parque previstos por la Administración.

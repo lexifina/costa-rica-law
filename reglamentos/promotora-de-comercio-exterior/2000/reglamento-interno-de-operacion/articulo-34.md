@@ -1,0 +1,2 @@
+Artículo 34.—Utilización de calles, aceras o zonas verdes. En las zonas recreativas del Parque se instalarán áreas dedicadas al consumo de alimentos durante eventos, actividades o en horas de almuerzo.
+Con excepción de dichas áreas y en las ocasiones citadas, las demás áreas externas del Parque como las aceras, calles o zonas verdes no podrán ser usadas para ingerir alimentos. Los encargados de personal de cada Empresa deberán velar por el correcto acatamiento de esta norma por parte de los trabajadores.

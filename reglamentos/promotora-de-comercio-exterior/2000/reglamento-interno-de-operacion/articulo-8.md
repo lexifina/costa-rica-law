@@ -1,0 +1,4 @@
+CAPITULO III
+Del control de accesos, ingresos y salida de vehículos
+y personal al Parque
+Artículo 8º—Del Ingreso. El tránsito o trasiego de materias y mercancías que se realice desde y hacia la Zona Franca, debe realizarse de conformidad con los requerimientos de la Ley del Régimen de Zonas Francas N.7210 y sus reformas, la Ley General de Aduanas N.7557 sus respectivos reglamentos. El puesto de aduana tendrá entonces injerencia para autorizar el internamiento al Parque de toda materia y mercancías que se encuentren amparadas o no a una Declaración Aduanera de Zona Franca, así como registrar y controlar las materias y mercancías que entran y salen del Parque. Por lo tanto, el ingreso y salida al Parque de vehículos y personas sólo podrá hacerse por los lugares designados al efecto y de acuerdo a las disposiciones siguientes, debiendo las empresas prestar su asistencia para que las labores del personal del puesto de aduana sean eficientes y expeditas.
