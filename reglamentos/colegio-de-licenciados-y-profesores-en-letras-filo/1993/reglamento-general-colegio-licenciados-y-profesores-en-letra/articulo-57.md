@@ -1,0 +1,6 @@
+Artículo 57.- Impedimentos, recusaciones y excusas
+Cuando por impedimento, recusación o excusa, los miembros propietarios del Tribunal tuvieren que separarse del conocimiento de un asunto determinado, serán sustituidos en la forma indicada en el artículo 30 de este Reglamento.
+Está impedido para conocer de una causa que tramite el Tribunal de Honor, cuando exista interés directo en el asunto por parte de uno o varios de los integrantes del Tribunal, o cuando exista parentesco por consanguinidad o afinidad hasta tercer grado, con alguno de ellos.
+El miembro que se halle en estas circunstancias deberá excusarse de conocer dicho asunto, pero si no lo hiciere, el Tribunal podrá inhibirlo de su conocimiento y sin más trámite, procederá a su sustitución.
+La recusación de los miembros del Tribunal debe fundarse en las causales señaladas en este Reglamento. Se interpondrá dentro del día hábil siguiente a la notificación de la integración del Tribunal a las partes, aportando las pruebas de la existencia de causal. La excusa se hará por escrito con las razones que le den asidero.
+El Tribunal, examinará el caso y resolverá lo que corresponda. Contra lo resuelto no cabrá ulterior recurso y procederá a sustituir al impedido, al recusado o excusado en su caso.

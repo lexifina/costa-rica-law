@@ -1,0 +1,3 @@
+Artículo 51.- Auditoría
+La Junta Directiva contratará una auditoría externa cada 2 años, la que debe realizarse conforme a las normas y procedimientos que, para tal efecto, establece el Colegio de Contadores Públicos de Costa Rica. Incluirá para tal fin en el presupuesto anual la partida respectiva.
+Las recomendaciones de los auditores externos serán analizadas por la Junta Directiva, para la toma de decisiones pertinentes. El Fiscal velará por el cumplimiento de estas disposiciones.

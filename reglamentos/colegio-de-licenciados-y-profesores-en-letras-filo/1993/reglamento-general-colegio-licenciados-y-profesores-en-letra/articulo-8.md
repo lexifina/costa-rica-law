@@ -1,0 +1,3 @@
+Artículo 8.- Fecha y convocatoria a sesiones de la Asamblea
+La Asamblea se reunirá ordinariamente una vez al año, el último sábado de marzo. Si éste coincide con la Semana Santa, se realizará el sábado anterior, debidamente convocada por la Junta Directiva.
+La Junta Directiva convocará a sesiones extraordinarias a la Asamblea, cuando lo estime conveniente, y necesariamente deberá hacerlo a solicitud de por lo menos diez colegiados en pleno goce de sus derechos, siempre que se trate de conocer asuntos de la competencia de la Asamblea. Igualmente lo hará cuando la Asamblea lo determine.

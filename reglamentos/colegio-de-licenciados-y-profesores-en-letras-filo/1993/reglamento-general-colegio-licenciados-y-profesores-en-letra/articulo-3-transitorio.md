@@ -1,0 +1,3 @@
+TRANSITORIO 3: En un plazo no mayor de 3 meses, a partir de la aprobación de este Reglamento, los órganos mencionados en el Artículo 6, excepto lo enunciado en los incisos c) y h), deberán actualizar sus Reglamentos Internos, en concordancia con lo dispuesto en la presente normativa. Los mismos deberán ser aprobados por la Junta Directiva.
+Aprobado en Asamblea General Extraordinaria No.LXXXII del 08 de febrero de 1992, y sus reformas, en Asamblea General Ordinaria Nº LXXXV del 27 de marzo de 1993.
+(El primer Reglamento del Colegio fue aprobado en Asamblea General Extraordinaria 54-73 del 29 de setiembre de 1973, reformado el 6 de junio de 1977, derogado en la Asamblea Nº LXXXII del 8 de febrero de 1992).
