@@ -14,3 +14,4 @@ Declara Refugio Nacional de Vida Silvestre de Propiedad Privada
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-03-08 | la propia norma |
+| 2 | 1994-04-07 | Decreto Ejecutivo 23129 (1994-04-07) |

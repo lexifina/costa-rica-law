@@ -1,5 +1,6 @@
-DECRETOS
+(Derogado)
 N° 22955-MIRENEM
+(Este decreto fue derogado por el artículo 4° del decreto ejecutivo N° 23129 del 7 de abril de 1994)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE RECURSOS NATURALES, ENERGIA Y MINAS,
 En el ejercicio de las facultades conferidas en el artículo 140 inciso 3) y 18) de la Constitución Política y con fundamento en lo dispuesto en los artículos 82 y 87 de la Ley de Conservación de la Vida Silvestre N° 7317 del 30 de octubre de 1992 y su Reglamento.
