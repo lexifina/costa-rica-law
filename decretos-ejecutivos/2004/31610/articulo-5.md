@@ -1,0 +1,1 @@
+Artículo 5º—Las entidades públicas miembros de la Comisión Nacional BAE, deberán considerar el Programa dentro de sus planes de trabajo y de igual forma asignar los recursos que le darán contenido para su real ejecución.

@@ -1,0 +1,16 @@
+DECRETOS
+Nº 31610-S-MINAE-TUR
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE SALUD,
+EL MINISTRO DEL AMBIENTE Y ENERGÍA Y EL MINISTRO DE TURISMO
+En uso de las facultades que le confiere el artículo 140, incisos 3) y 18) de la Constitución Política y;
+Considerando:
+I.—Que por Decreto Ejecutivo Nº 25636-MINAE-S del 31 de octubre de 1996, publicado en el Diario Oficial, el jueves 28 de noviembre de 1996, se le dio fundamento legal al Programa Bandera Azul Ecológica.
+II.—Que mediante el Decreto Ejecutivo Nº 27010-MINAE-S del 21 de abril de 1998, publicado el jueves 4 de junio de 1998, se modificó el Decreto original con el objetivo de introducir la gradación de las estrellas o categorías “A”, “AA” y “AAA”, en el incentivo Bandera Azul Ecológica. III.—Que el Programa Bandera Azul Ecológica, nace como una respuesta al constante peligro de contaminación existente en nuestras costas, que atenta contra la salud pública y la industria del turismo.
+IV.—Que la Comisión Nacional del Programa Bandera Azul Ecológica, realizó, el 3 de mayo del 2001 un Plan Estratégico para el período 2001-2006, en el cual se modificó el objetivo general, se establecieron nuevas metas y se amplió el programa a comunidades; para lo cual se definen dos categorías de agrupaciones participantes:
+Organización comunal de playas y comunidades.
+V.—Que es de interés nacional promover la excelencia higiénicosanitaria de las playas y comunidades, con el objetivo de fortalecer la salud pública y el atractivo turístico del mayor número de comunidades y playas ubicadas en el territorio nacional. Por tanto,
+DECRETAN:
+Artículo 1º—El Programa BAE tiene por objetivo general establecer un incentivo para promover la organización de comités locales que involucren la participación de la ciudadanía, con el afán de desarrollar las playas y comunidades y mejorar las condiciones higiénico sanitarias, en concordancia con la protección de los recursos hídricos y ambiente en general.
+(NOTA: Mediante Decreto Ejecutivo No. 31648 de 9 de febrero de 2004, se amplían los alcances del Programa Bandera Azul Ecológica contenidos en este decreto, "como incentivo para organizar a los educadores, educandos y personal del área administrativa de los centros educativos públicos y privados (preescolar, escuelas y colegios), con el fin de promover la adopción de prácticas sostenibles y sustentables, amigables con el ambiente, mediante la mejora continua de las condiciones higiénico sanitarias de su infraestructura física, campañas de protección de los recursos naturales, programas de educación ambiental y la incorporación del centro estudiantil a la comunidad respectiva, entre otros").
+(NOTA: Mediante decreto ejecutivo N° 33604 del 31 de enero de 2007, se amplían los alcances del Programa Bandera Azul Ecológica,incluyendo, una nueva categoría denominada Espacios Naturales Protegidos (privados), con la finalidad de reconocer a los gestores de estos espacios los esfuerzos realizados en la promoción y adopción de prácticas, sostenibles y amigables con el ambiente, mediante conservación del bosque priario, ecoturismo y mixtos (zonas destinadas a conservación boscosa combinadas con actividades agropecuarias y turísticas)

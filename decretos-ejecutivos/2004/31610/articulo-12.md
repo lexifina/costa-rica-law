@@ -1,0 +1,1 @@
+Artículo 12.—Le corresponde a los comités de la categoría comunidad establecer un programa de trabajo, ejecutar las actividades planteadas en él, involucrando a la ciudadanía y presentar un informe final de autoevaluación; dicho informe será auditado por la CNPBAE en el mes de noviembre de cada año.

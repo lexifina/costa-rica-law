@@ -1,0 +1,1 @@
+Artículo 13.—El comité local PBAE en su categoría de Organización Comunal de Playa, deberá presentar un programa de trabajo a más tardar en el primer trimestre de cada año, el cual será evaluado en forma periódica (tres veces al año) por el equipo técnico de trabajo de la CNPBAE.
