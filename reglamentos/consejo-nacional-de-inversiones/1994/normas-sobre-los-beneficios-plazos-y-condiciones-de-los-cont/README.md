@@ -14,3 +14,4 @@ Normas sobre los Beneficios, Plazos y Condiciones de los Contratos de Exportaci√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-12-01 | la propia norma |
+| 2 | 1994-12-19 | Reglamento 310 (1994-12-19) |
