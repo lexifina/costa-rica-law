@@ -1,0 +1,5 @@
+DECRETO XVIII.
+Reune accidentalmente la Jefatura Política y la Comandancia del Guanacaste. (2)
+El Jefe Supremo del Estado Soberano de Costa Rica.
+Considerando que el período señalado que por la Ley al Jefe Político del Departamento del Guanacaste es concluido; pero que debiendo variarse la administración local de los pueblos, no es conveniente nombrar por ahora propietario para aquel destino; y que depositándose en el Alcalde 2° de la cabecera del Departamento, quedará sujeto á las alternativas de depósitos de dicha vara. –Atendiendo además, á que reunida la administración política á la militar en los pueblos fronterizos, se facilita la unidad de acción que es tan necesaria al buen orden público y á la seguridad del Estado, decreta,
+Art. Único. – Entre tanto se publica el nuevo arreglo de administración local de los Departamentos, el Comandante de las fronteras servirá la Jefatura Política del Departamento del Guanacaste, sin sobresueldo alguno: pero se le abonarán los gastos de oficina. –Dado en la Ciudad de San José, á los cuatro días del mes de Agosto de mil ochocientos cuarenta. –Braulio Carrillo. – Al Secretario General del Despacho.”
