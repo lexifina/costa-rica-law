@@ -1,4 +1,6 @@
+(Derogado)
 N° 578
+(Esta norma fue derogada por el artículo 76 de la Ley de Planificación Urbana, N° 4240 del 15 de noviembre de 1968)
 LA JUNTA FUNDADORA DE LA SEGUNDA REPÚBLICA
 Considerando:
 1°-Que la urbanización del área capitalina se ha desfavorecido en buena parte, a causa de faltar condiciones propicias para desarrollar las obras cuanto a la realización de tal empresa, deben adoptarse normas específicas de construcción y pavimentación de las calles o vías públicas.
