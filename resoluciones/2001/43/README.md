@@ -14,3 +14,4 @@ Prescinde del trámite de compensación para la emisión de las resoluciones que
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-08 | la propia norma |
+| 2 | 2001-11-21 | Resolución 48 (2001-11-21) |
