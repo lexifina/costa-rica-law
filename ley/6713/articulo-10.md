@@ -1,1 +1,0 @@
-Artículo 10.—El impuesto de patente se pagará durante todo el tiempo que se! haya tenido el establecimiento abierto, y durante el tiempo que se haya poseído licencia, aunque la actividad no se hubiera realizado.

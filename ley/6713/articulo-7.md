@@ -1,1 +1,0 @@
-Artículo 7°—En aquellos casos en que alguna actividad no estuviera comprendida en la clasificación que establece el artículo 12 de esta ley, a ésta se le podrá aplicar el rubro que tenga mayor similitud con ella. En caso de no existir esa similitud, se le aplicará el rubro de "no clasificados", correspondiente a la misma clase] de actividad.
