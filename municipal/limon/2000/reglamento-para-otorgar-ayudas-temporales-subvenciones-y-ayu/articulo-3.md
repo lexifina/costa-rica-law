@@ -1,0 +1,4 @@
+Artículo 3º—Responsabilidad Municipal
+a) La Municipalidad debe comprobar mediante visita al hogar y entrevistas que lo solicitado corresponde a una situación imprevista y tiene la responsabilidad de decidir si la ayuda se da en materiales, artículos de primera necesidad o cancelar directamente lo requerido, como medio de garantizar la satisfacción de la necesidad. Pudiendo la Municipalidad solicitar el criterio de instituciones de bienestar social.
+b) No obstante, para resolver favorablemente la solicitud la Municipalidad deberá disponer de recursos presupuestarios en la partida correspondiente, de lo contrario esta inhibida de conferir ayudas.
+c) La Municipalidad podrá disponer de otros recursos materiales y/o equipo y maquinaria para lograr el propósito de socorrer a los pobladores en situaciones de infortunio.
