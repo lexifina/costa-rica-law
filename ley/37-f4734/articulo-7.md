@@ -1,3 +1,4 @@
-Artículo 7°-El comprador no podrá alquilar, hipotecar, ni de ningún modo enajenar la propiedad, ni hacer, sin autorización previa escrita de la Junta, transformaciones en la construcción, mientras no haya recibido la escritura de propiedad.
+Artículo 7°-El comprador o su familia deberá vivir en la casa que se le adjudica y no podrá hipotecar, ni de ningún modo enajenar la propiedad, ni hacer, sin previa autorización escrita de la Junta, transformaciones en la construcción, mientras no haya recibido la escritura de propiedad.
+(Así reformado el párrafo anterior por el artículo 2° de la ley N° 113 del 17 de agosto de 1943, "El pago de la prima del seguro de vida lo hará la Junta Nacional de la Habitación")
 Queda terminantemente prohibido el expendio de bebidas alcohólicas dentro de los caseríos que se construyan de acuerdo con la presente ley y fuera de ellos dentro de un perímetro de doscientos metros.
 La contravención a esta reglas durante el período de amortización le hará perder por el hecho mismo sus derechos, no pudiendo reclamar ninguna indemnización y quedando esas sumas como pago del arriendo.
