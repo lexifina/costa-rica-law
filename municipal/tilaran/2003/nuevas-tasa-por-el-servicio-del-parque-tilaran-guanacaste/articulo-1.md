@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE TILARÁN
+El Concejo Municipal de Tilarán, en la sesión ordinaria número sesenta y tres, celebrada el dieciséis de julio del dos mil tres, Capítulo de Trámite Urgente para la Presidencia y Regidores, acordó por unanimidad y en firme: Aprobar la publicación de la Tasa de Parque por un monto trimestral de ¢ 54.08 por metro lineal, según aprobación de estudio por parte de la Contraloría General de la República mediante oficio DI-AA-1028 del 28 de abril del 2003.
