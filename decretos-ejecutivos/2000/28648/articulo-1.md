@@ -15,3 +15,4 @@ agropecuarias, acuícolas y pesqueras.
 DECRETAN:
 Articulo I- Modifíquese el inciso c) del articulo 1° del Decreto N° 21281-MAG-ll-MEIC de 12 de mayo de 1992, y su reforma, para que se lea de la siguiente manera:
 "c) Actividad agropecuaria: comprende todos aquellos procesos destinados a producir, extraer o cosechar cualquiera de las mercancías provenientes de las actividades acuícola. agrícola, apícola, avícola, pecuaria, porcícola. entre otras, incluyendo la silvicultura."
+(Así DEROGADO mediante el Decreto Ejecutivo N° 31939-MAG-H-MEIC, de fecha 20 de agosto del 2004)

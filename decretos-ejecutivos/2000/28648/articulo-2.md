@@ -310,3 +310,4 @@ Válvulas de todo tipo para la actividad agropecuaria
 Zanjeadoras rotativas hasta 51 KW
 Zetas de metal para transporte de banano
 Los importadores de las mercancías antes detalladas también podrán tramitar las exoneraciones bajo el procedimiento ordinario.
+( Así DEROGADO mediante el Decreto Ejecutivo N° 31939-MAG-H-MEIC, de fecha 20 de agosto del 2004)
