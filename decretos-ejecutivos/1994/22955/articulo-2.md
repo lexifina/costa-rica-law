@@ -1,0 +1,1 @@
+Articulo 2°-Las actividades que desarrolle el propietario dentro de este inmueble deberán cumplir con las normas legales, reglamentarias y técnicas que establezca la Dirección General de Vida Silvestre.
