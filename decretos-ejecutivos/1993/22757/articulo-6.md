@@ -1,0 +1,1 @@
+Artículo 6.—En todo lo no previsto en este procedimiento, será de aplicación supletoria la Ley General de la Administración Pública, la Ley de Administración Financiera de la República y el Reglamento de la Contratación Administrativa.
