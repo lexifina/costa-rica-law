@@ -1,14 +1,14 @@
 ARTÍCULO III
-1.- Las Partes designarán una Autoridad Central responsable, a través
-de la cual se tramitarán las solicitudes de devolución.
+1.- Las Partes designarán una Autoridad Central responsable, a
+través de la cual se tramitarán las solicitudes de devolución.
 Para la República de El Salvador, la Autoridad Central será el
 Ministerio de Seguridad Pública.
 Para la República de Costa Rica, la Autoridad Central será el
 Ministerio de Seguridad Pública.
 Para la República de Guatemala, la Autoridad Central será el
 Ministerio de Gobernación.
-Para la República de Honduras, la Autoridad Central será la Fuerza de
-Seguridad Pública, en tanto se concluye la organización de la Policía
+Para la República de Honduras, la Autoridad Central será la Fuerza
+de Seguridad Pública, en tanto se concluye la organización de la Policía
 Nacional Civil.
 Para la República de Nicaragua, la Autoridad Central será el
 Ministerio de Gobernación.
