@@ -1,0 +1,1 @@
+Artículo 5º—El 27 de setiembre del 2002, Día Mundial del Turismo, habrá acceso gratuito a todos los Parques Nacionales, Monumentos Históricos, así como a los museos del país que estén a cargo del Ministerio de Cultura.

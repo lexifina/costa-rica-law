@@ -1,0 +1,1 @@
+Artículo 3º—Los Ministerios del Estado y demás dependencias e instituciones públicas deberán realizar actividades tendientes a celebrar el Día Mundial de Turismo, que permitan a sus funcionarios conocer sobre el significado y relevancia del turismo para Costa Rica.

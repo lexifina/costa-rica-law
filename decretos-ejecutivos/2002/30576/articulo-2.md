@@ -1,0 +1,1 @@
+Artículo 2º—Todos los establecimientos educativos del país, deberán celebrar el Día Mundial del Turismo mediante actividades culturales y educativas que informen y enseñen a los estudiantes sobre el significado de esta celebración y de la importancia del turismo para nuestro país.

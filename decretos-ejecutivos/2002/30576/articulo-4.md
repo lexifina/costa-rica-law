@@ -1,0 +1,1 @@
+Artículo 4º—Para efectos de los artículos 2 y 3 del presente decreto, el Instituto Costarricense de Turismo preparará una guía de los temas que podrán exponerse en los centros educativos y entidades públicas, asimismo, elaborará un programa general de actividades del mes de setiembre para celebrar el Día Mundial del Turismo.
