@@ -1,0 +1,1 @@
+Art 4° Llevará un libro separado en que registre las denuncias que se hagan sobre contratos de fincas, respecto de las cuales no se haya satisfecho el derecho de alcabala, teniendo cuidado que aquella sean firmadas por el denunciante para los efectos señalados por el Reglamento de Hacienda.
