@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión creada trabajará en forma ad honórem, como un servicio para sus propios compañeros; manejará el fondo creado, pero los cheques que se aprueben serán girados por JAPDEVA para los efectos de fiscalización. El fondo creado será puesto en una cuenta especial bancaria a nombre de JAPDEVA (cuenta Nº 102440-5 del Banco Nacional de Costa Rica).

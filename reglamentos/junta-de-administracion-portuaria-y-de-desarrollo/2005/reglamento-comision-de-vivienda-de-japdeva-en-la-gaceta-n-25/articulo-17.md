@@ -1,0 +1,1 @@
+Artículo 17.—La Comisión de Vivienda podrá revocar la adjudicación del lote si ésta detecta que el trabajador ha obrado de mala fe, mediante una acción premeditada, en fraude de ley, guardando todas las normas legales que regulan la posesión de tierras o haya incumplido con lo establecido en los artículos 15 y 16 del presente reglamento.
