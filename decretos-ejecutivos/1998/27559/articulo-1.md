@@ -1,0 +1,8 @@
+N° 27559
+EL PRESIDENTE DE LA REPUBLICA Y LOS MINISTROS DE LA PRESIDENCIA Y DE TRABAJO Y SEGURIDAD SOCIAL,
+En ejercicio de las atribuciones que les confieren los incisos 3 y 18 del Artículo 140 de la Constitución Política y los artículos 26, 27 y 28 de .la Ley General de la Administración Pública.
+Considerando:
+1°-Que el proceso de apertura de los servicios de estiba y desestiba en los muelles de Limón-Moín, ocasionó desempleo o disminución salarial de muchos trabajadores estibadores, en cuyo beneficio se promulgó el Decreto Ejecutivo N° 25608, reformado por el Decreto N° 26024, que concedió a los trabajadores afectados entre otros beneficios, un incentivo económico por una única vez, con cargo al Fondo de Compensación de la Provincia de Limón regulado en las citadas normas.
+2°-Que los decretos ejecutivos señalados, excluyeron del referido incentivo a varias categorías de trabajadores administrativos de las empresas estibadoras afectadas por los procesos de apertura, ocasionando evidente discriminación en el otorgamiento y aplicación del estímulo económico. Por tanto,
+DECRETAN:
+Artículo 1°-Refórmase el punto 5 del artículo 2 del Decreto Ejecutivo 26024-MP-MTSS, publicado en el Diario Oficial "La Gaceta", el 23 de junio de 1997, para que se agregue un párrafo final que diga así: "También podrán ser beneficiarios del incentivo económico por una sola vez, los trabajadores administrativos de las empresas afectadas por los procesos de apertura de los muelles Limón-Moín, que cumplan además con los requisitos de nacionalidad, antigüedad laboral, desplazamiento a partir de octubre de 1995 y situación de desempleo, de acuerdo con los listados oficiales ya levantados al efecto.
