@@ -1,0 +1,1 @@
+Artículo 2º—El Poder Ejecutivo podrá solicitar una opinión jurídica a la Procuraduría General de la República sobre la procedencia de las solicitudes que le formulen esas empresas, al efecto de que determine si la controversia es susceptible de arbitraje, de conformidad con los requisitos legales que al respecto exige la ley.

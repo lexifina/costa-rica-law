@@ -1,0 +1,2 @@
+Artículo 3º—Para que el Estado sea parte en un proceso arbitral, además de la cláusula contractual que establece tal posibilidad, será requisito indispensable que, conjuntamente con la empresa interesada, suscriba el respectivo compromiso arbitral, en el cual se regulen los aspectos que sean necesarios para la constitución y desarrollo del proceso.
+El Poder Ejecutivo, de previo a la aprobación definitiva del referido compromiso, podrá solicitar una opinión jurídica a la Procuraduría General de la República.
