@@ -1,0 +1,7 @@
+ARTÍCULO 13
+{Posibilidad de limitar el derecho de grabar obras musicales y la letra
+respectiva: 1. Licencias obligatorias; 2. Medidas transitorias;3. Decomiso de la importación de ejemplares hechos sin la
+autorización del autor}
+1.- Cada país de la Unión podrá, por lo que le concierne, establecer reservas y condiciones en lo relativo al derecho exclusivo del autor de una obra musical y del autor de la letra, cuya grabación con la obra musical haya sido ya autorizada por este último, para autorizar la grabación sonora de dicha obra musical, con la letra, en su caso; pero todas las reservas y condiciones de esta naturaleza no tendrán más que un efecto estrictamente limitado al país que las haya establecido y no podrán, en ningún caso, atentar al derecho que corresponde al autor para obtener una remuneración equitativa fijada, en defecto de acuerdo amistoso, por la autoridad competente.
+2.- Las grabaciones de obras musicales que hayan sido realizadas en un país de la Unión conforme al Artículo 13.3) de los Convenios suscritos en Roma el 2 de junio de 1928 y en Bruselas el 26 de junio de 1948 podrán, en este país, ser objeto de reproducciones sin el consentimiento del autor de la obra musical, hasta la expiración de un período de dos años a contar de la fecha en que dicho país quede obligado por la presente Acta.
+3.- Las grabaciones hechas en virtud de los párrafos 1) y 2) del presente artículo e importadas, sin autorización de las partes interesadas, en un país en que estas grabaciones no sean lícitas, podrán ser decomisadas en este país.
