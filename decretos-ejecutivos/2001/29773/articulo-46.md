@@ -1,0 +1,1 @@
+Artículo 46.—El Ministerio de Educación Pública por medio de las Juntas de Educación y las Juntas Administrativas, acondicionarán en cada centro educativo, cuando su capacidad locativa lo permita, un lugar decente e higiénico donde los conserjes puedan consumir sus alimentos, cambiarse y guardar sus efectos personales, el que deberá contar con tomacorrientes.

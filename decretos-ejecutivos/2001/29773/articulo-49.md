@@ -1,0 +1,1 @@
+Artículo 49.—Los Directores de los centros educativos podrán otorgar a los conserjes, en los casos que se justifique, el tiempo razonable, para que puedan ir a los respectivos bancos a retirar su salario, el día oficial de pago.

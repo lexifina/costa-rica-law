@@ -1,0 +1,1 @@
+Artículo 35.—En materia de permisos sindicales, el Ministerio de Educación Pública, aplicará y respetará en todos sus extremos lo dispuesto en los Convenios Internacionales 87, 98 y 135 de la OIT y lo dispuesto en el Código de Trabajo.

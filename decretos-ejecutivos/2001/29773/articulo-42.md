@@ -1,0 +1,1 @@
+Artículo 42.—Para efectos del artículo anterior deberán tomarse en consideración los dictámenes y recomendaciones médicas y los criterios técnicos que procedan. Así mismo, tendrán igual validez los dictámenes o recomendaciones que otorguen los médicos del INS o de la CCSS.

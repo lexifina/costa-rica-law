@@ -1,0 +1,1 @@
+Artículo 50.—El Ministerio de Educación velará por la aplicabilidad de la Ley de Igualdad de Oportunidades para las Personas con Discapacidad, Ley 7600 del 18 de abril de 1996, especialmente, en cuanto al derecho al trabajo en el servicio de conserjería a las personas con discapacidad.

@@ -1,0 +1,1 @@
+Artículo 29.—Tratándose de la apertura y cierre del curso lectivo, los directores de los Centros Educativos que compartan edificio, garantizarán que los conserjes a su cargo, los dejen en óptimas condiciones de limpieza, previo al disfrute de las vacaciones.

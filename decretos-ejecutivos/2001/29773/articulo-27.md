@@ -1,0 +1,1 @@
+Artículo 27.—Los conserjes gozarán durante la jornada laboral de un tiempo de diez minutos en la mañana y diez minutos en la tarde, para tomar su refrigerio. Dicho tiempo será considerado como parte efectiva de la jornada.

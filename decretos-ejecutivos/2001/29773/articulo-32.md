@@ -1,0 +1,1 @@
+Artículo 32.—De conformidad con el artículo 144 del Código de Educación, se otorgará a los conserjes en estado de gravidez, licencia con goce de salario durante los tres meses anteriores y el mes posterior al alumbramiento.

@@ -1,0 +1,1 @@
+Artículo 12.—La llegada tardía que exceda de 20 minutos contados a partir de la hora de ingreso estipulada y que, a juicio del director carezca de justificación, acarrea al servidor la pérdida de la jornada. El tiempo que tiene el servidor para justificar, ante su Jefe Inmediato las llegadas tardías y ausencias al trabajo es de tres días hábiles.

@@ -1,0 +1,1 @@
+Artículo 34.—El Ministerio de Educación Pública concederá a los conserjes licencia con goce de salario para efectos de estudio, de conformidad con la Ley 1810 del 15 de octubre de 1954, Ley de Licencias para Adiestramiento de Servidores Públicos; así como por lo dispuesto en el artículo 37 y siguientes del Reglamento del Estatuto de Servicio Civil.

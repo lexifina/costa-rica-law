@@ -1,0 +1,1 @@
+Artículo 9º—En casos muy calificados que no se contemplen en este Reglamento, ni en el Estatuto del Servicio Civil y en su Reglamento, queda a juicio del Director justificar ausencias que no sean por enfermedad comprobada para efectos de evitar sanciones disciplinarias, sin que ello signifique derecho al pago del salario.

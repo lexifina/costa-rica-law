@@ -1,0 +1,1 @@
+Artículo 38.—Durante el período de vacaciones queda prohibido al Ministerio de Educación Pública convocar a los conserjes a trabajar; aquellos directores que incumplieren esta disposición se harán acreedores a las sanciones disciplinarias correspondientes.

@@ -1,0 +1,1 @@
+Artículo 51.—El Ministerio de Educación Pública establecerá una reunión trimestral con las Organizaciones y Sindicatos de Conserjes, para atender los asuntos que éstos le formulen, sin perjuicio de que puedan llevarse más reuniones cuando las circunstancias lo ameriten, y una de las partes lo solicitaran.

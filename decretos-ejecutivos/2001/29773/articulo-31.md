@@ -1,0 +1,1 @@
+Artículo 31.—Los conserjes de las instituciones educativas oficiales del país gozarán de las licencias y subsidios contemplados en la Ley 7756 del 25 de febrero de 1998, que regula los beneficios para los responsables de pacientes en fase terminal.

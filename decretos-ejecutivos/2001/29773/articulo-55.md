@@ -1,0 +1,1 @@
+Artículo 55.—El capítulo VIII anterior, tendrá vigencia hasta que el Ministerio de Educación promulgue el Código de Salud Ocupacional, en defensa de la salud de los alumnos, los docentes, administrativos y técnicos docentes de los centros educativos.

@@ -1,0 +1,3 @@
+Artículo 33.—Tanto en el caso de licencia por enfermedad, como en el de licencia por maternidad a que se refieren los artículos anteriores, por salario completo se entiende la parte a cargo de la Administración que reste para completarlo, descontando el subsidio que otorga la CCSS.
+Cuando no tuviere derecho al subsidio por parte de la institución aseguradora, la totalidad del salario la cubrirá la Administración.
+El Ministerio de Educación Pública está obligado a dar los permisos para asistir a consulta a la CCSS o al INS, y no aplicará deducción alguna en el salario del conserje, siempre y cuando éste demuestre a su satisfacción, la asistencia a la consulta.

@@ -1,0 +1,1 @@
+Artículo 15.—Serán absolutamente nulas las sanciones disciplinarias que obvien el procedimiento dispuesto en el artículo anterior y el incumplimiento al debido proceso y derecho de defensa del Conserje.

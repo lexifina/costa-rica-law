@@ -1,0 +1,1 @@
+Artículo 43.—Es obligación de los Directores de todos los centros Educativos extender a los conserjes, en el caso de accidentes laborales o riesgos del trabajo, la correspondiente boleta para ser atendida (o) en el INS.

@@ -1,0 +1,1 @@
+Artículo 8º—Las ausencias al trabajo por enfermedad deberá justificarlas el servidor incapacitado, mediante una constancia médica extendida por la CCSS, por el INS o en casos muy calificados por un médico particular.

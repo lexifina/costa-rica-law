@@ -1,0 +1,1 @@
+Artículo 44.—La dirección de la institución estará obligada a disponer de un lugar adecuado para guardar los instrumentos y utensilios de limpieza a efecto de conservar y preservar su buen estado, debiéndose llevar un inventario mensual de los implementos existentes, o del faltante de éstos para ser inmediatamente suplidos.
