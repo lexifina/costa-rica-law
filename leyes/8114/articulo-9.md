@@ -1,7 +1,7 @@
 CAPÍTULO II
 Impuesto específico sobre las bebidas envasadas sin contenido alcohólico, excepto la leche y los jabones de tocador
 Artículo 9º—Impuesto específico. Fíjase un impuesto específico por unidad de consumo para todas las bebidas envasadas sin contenido alcohólico, excepto la leche y todos los productos contemplados en el registro que, al efecto, llevan el Ministerio de Salud y la Caja Costarricense de Seguro Social, cuando se trata de bebidas terapéuticas y de uso médico, utilizadas en los establecimientos sanitarios y hospitalarios del país, como se detalla a continuación:
-Tipo de bebida | Impuesto en colones por unidad de consumo
+* Tipo de bebida | Impuesto en colones por unidad de consumo
 Bebidas gaseosas y concentrados de gaseosas | 6,20
 Otras bebidas líquidas envasadas (incluso agua) | 4,60
 Agua (envases de 18 litros o más) | 2,15
@@ -10,9 +10,9 @@ El hecho generador de los impuestos establecidos en este artículo ocurre en las
 En la producción nacional, será contribuyente de estos impuestos el fabricante o envasador de dichos productos; en la importación o internación, la persona natural o jurídica que introduzca los productos o a cuyo nombre se importen o internen.
 Para aplicar estos impuestos, se entenderá por venta cualquier acto que involucre o tenga por fin último la transferencia del dominio del producto, independientemente de su naturaleza jurídica, la designación y las condiciones pactadas por las partes. Asimismo, se entenderá por importación o internación el ingreso al territorio nacional, una vez cumplidos los trámites legales, de los productos sujetos a estos impuestos, provenientes tanto de Centroamérica como del resto del mundo.
 Exceptúase del pago de estos impuestos el producto destinado a la exportación.
-NOTA: Los montos del impuesto aquí especificado fueron actualizados por el Decreto Ejecutivo Nº 31850 del 3 de junio de 2004, de la siguiente manera:
+* NOTA: Los montos del impuesto aquí especificado fueron actualizados por el Decreto Ejecutivo Nº 31927del 3 de setiembre del 2004, de la siguiente manera:
 Tipo de bebida | Impuesto en colones por unidad de consumo
-Bebidas gaseosas y concentrados de gaseosas | 8.69
-Otras bebidas líquidas envasadas (incluso agua) | 6.44
-Agua (envases de 18 litros o más) | 3.01
-Impuesto por gramo de jabón de tocador | 0.110
+Bebidas gaseosas y concentrados de gaseosas | 8.95
+Otras bebidas líquidas envasadas (incluso agua) | 6.63
+Agua (envases de 18 litros o más) | 3.10
+Impuesto por gramo de jabón de tocador | 0.113
