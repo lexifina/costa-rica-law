@@ -1,0 +1,11 @@
+N° 6757-G
+PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN, POLICIA, JUSTICIA Y GRACIA,
+Considerando:
+1°.- El Instituto Costarricense de Electricidad necesita adquirir para que forme parte del nuevo Pueblo de Arenal del Proyecto Hidroeléctrico del mismo nombre, como su propiedad N° 36-E, un lote de terreno a segregar de un inmueble perteneciente a la forma “Hacienda La Rosita, Sociedad Anónima”.
+2°.- El citado terreno fue valorado por la Sala Segunda del Tribunal Fiscal Administrativo en resolución N° 63 de las 12:35 horas del 7 de abril de 1976, en la suma global de ¢ 144.750.00 (ciento cuarenta y cuatro mil, setecientos cincuenta colones), y se hace necesario recurrir a los trámites de expropiación forzosa en virtud de no haber sido aceptado ese peritazgo por la propietaria.
+3°.- La ley N° 2292 de 20 de noviembre de 1958, declara de utilidad pública la adquisición de inmuebles y la constitución de servidumbre de cualquier naturaleza, necesarios para los programas de electrificación del referido Instituto, remitiendo la misma en los casos de expropiación forzosa, al procedimiento prescrito por la ley N° 1371 de 10 de noviembre de 1951, de Expropiaciones para el Aeropuerto “El Coco” hoy Juan Santamaría.
+4°.- De acuerdo con los estudios técnicos realizados por el referido Instituto, está suficientemente demostrada la utilidad pública y la urgencia de la adquisición del lote citado, por lo que de conformidad con lo dispuesto por el artículo 45 de la Constitución Política y Leyes números 2292 y 1371 mencionadas, procede a decretar la expropiación correspondiente.
+Por tanto,
+Decretan:
+Artículo 1°.- Expropiase a “Hacienda La Rosita, Sociedad Anónima”, de su finca del Partido de Guanacaste N° 30038, tomo 2216, folio 369, asiento 1, que es terreno de potrero, sito en El Aguacate de Tilarán, distrito 4° del cantón 8° de Guanacaste, un lote que se describe así: “Terreno de pastos y bosques, sitio igual que la finca madre, con una cabida de 28 has, 9 500.00 m2, lindante: Norte, camino público Aguacate-Dos Bocas; Sur, resto de la finca general, todos en parte; y Oeste, Amado Alvarez Pérez. La expropiación se realizará de conformidad con el plano N° 119-4-89, levantado por el Instituto Costarricense de Electricidad en mayo de 1975.
