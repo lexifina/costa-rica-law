@@ -14,3 +14,4 @@ Modifica Límite Gasto Presupuestario al Museo Nacional de Costa Rica
 | --- | --- | --- |
 | 1 | 2000-06-16 | la propia norma |
 | 2 | 2000-07-21 | Decreto Ejecutivo 28837 (2000-07-21) |
+| 3 | 2000-07-21 | Ley 7 |
