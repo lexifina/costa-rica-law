@@ -15,3 +15,4 @@ Reglamento para el Uso, Custodia y Conservación de los Teléfonos Celulares del
 | --- | --- | --- |
 | 1 | 2002-02-08 | la propia norma |
 | 2 | 2002-05-09 | Decreto Ejecutivo 30492 (2002-05-09) |
+| 3 | 2002-09-16 | Decreto Ejecutivo 30844 (2002-09-16) |
