@@ -1,1 +1,1 @@
-Artículo 24.—Las embarcaciones pesqueras, turísticas y/o de cualquier otro tipo, podrán fondearse solamente en los sitios que el Área haya dispuesto para este fin, claramente identificados con boyas, quedando totalmente prohibido hacerlo en otros sitios.
+Artículo 24.—(DEROGADO, por artículo 8 del Decreto Ejecutivo N°30838 de 21 de noviembre de 2002).
