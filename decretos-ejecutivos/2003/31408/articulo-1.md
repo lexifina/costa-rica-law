@@ -1,0 +1,11 @@
+Nº 31408-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; artículos 26 y 27 de la Ley General de la Administración Pública, Ley Nº 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre de 2001 y Ley Nº 4964, Ley de creación del Instituto Costarricense de Puertos del Pacífico del 21 de marzo de 1972.
+Considerando:
+1º—Que mediante la Ley Nº 4964, publicada en La Gaceta Nº 61 del 25 de marzo de 1972, se le asignó al Instituto Costarricense de Puertos del Pacífico, la administración de los puertos del litoral del Pacífico, de conformidad con la planificación general y la política de desarrollo portuario que determine el Poder Ejecutivo.
+2º—Que en cumplimiento de su Ley Orgánica, la entidad tiene a cargo la ejecución de establecer los sistemas de trabajo y administración en todos los servicios en que intervenga así como recibir y trasladar dentro de los recintos portuarios las mercancías y otros bienes que se desembarquen o que estén destinados a embarcarse, dicha función se ha visto incrementada en el presente período, por una mayor afluencia de buques y mercaderías, lo que ha obligado a incrementar el tiempo de trabajo extraordinario.
+3º—Que mediante Decreto Ejecutivo N° 30214-H, del 5 de marzo del 2002, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2003, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo en el artículo 1° del citado Decreto, el límite de gasto presupuestario del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+4º—Que a los efectos de cumplir con las metas propuestas, es necesario ampliarle al INCOP el límite de gasto total presupuestario para el año 2003. Por tanto:
+DECRETAN:
+Artículo 1º—Modifícase para el Instituto Costarricense de Puertos del Pacífico, el límite de gasto presupuestario total del 2003, establecido en el Decreto Ejecutivo Nº 30214-H y sus reformas, de manera que el gasto presupuestario total del INCOP no podrá exceder la suma de ¢5.100.0 millones, en ese período.
