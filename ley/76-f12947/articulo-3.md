@@ -1,0 +1,1 @@
+Art. 3. El Estado de Costa Rica concurrirá con los demás Estados por medio de sus representantes electos directamente por el pueblo con ámplios poderes, á un gran Congreso ó Asamblea Constituyente, que se ocupará de la formación de un nuevo pacto bajo bases sólidas que hagan la prosperidad pública y dén una verdadera seguridad interior y exterior.
