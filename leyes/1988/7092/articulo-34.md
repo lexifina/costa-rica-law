@@ -47,3 +47,5 @@ administración del impuesto, los datos obtenidos serán redondeados a la
 decena más próxima."
 (Así adicionado el último párrafo por el inciso d) del artículo 21 de la Ley N° 8114 de 4
 de julio del 2001, Ley de Simplificación y Eficiencia Tributarias)
+(Modificados los créditos fiscales establecidos en los incisos i), ii) del presente artículo, por el artículo 2 del
+Decreto Ejecutivo N° 30724 de 11 de setiembre del 2002)

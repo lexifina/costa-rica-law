@@ -16,7 +16,8 @@ b) Sobre el exceso de ¢ 270.000,00 mensuales y hasta ¢405.800,00
 mensuales, se pagará el diez por ciento (10%).
 c) Sobre el exceso de ¢ 405.800,00 mensuales se pagará el quince por
 ciento (15%).
-(Así Modificado por artículo 1 del Decreto Ejecutivo N° 29809 del 10 de setiembre del 2001)
+(Modificado los tramos de renta establecidos en los incisos a), b) y c) por artículo 1 del Decreto Ejecutivo N° 29809 del 10 de setiembre del 2001)
+(Modificado los tramos de renta establecidos en los incisos a), b) y c) por artículo 1 del Decreto Ejecutivo N° 30724 del 11 de setiembre del 2002)
 ch) Las personas que obtengan rentas de las contempladas en los
 incisos b) y c) del artículo 32 pagarán sobre el ingreso
 bruto, sin deducción alguna, el quince por ciento (15%).
