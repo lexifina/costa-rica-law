@@ -15,3 +15,4 @@ Reglamento de la Oficina de Avalúos Administrativos de AYA
 | --- | --- | --- |
 | 1 | 1986-02-07 | la propia norma |
 | 2 | 1993-07-20 | Reglamento 93 (1993-07-20) |
+| 3 | 2001-12-17 | Reglamento 412 (2001-12-17) |
