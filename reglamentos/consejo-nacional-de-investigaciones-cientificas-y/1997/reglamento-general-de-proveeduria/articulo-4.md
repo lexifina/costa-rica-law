@@ -1,0 +1,1 @@
+Artículo 4°-El manejo y control de las garantías así como la custodia de los valores corresponden a la Tesorería. La Proveeduría será la encargada de supervisar la presentación oportuna, la vigencia de las garantías, así como autorizar su devolución una vez analizado el proceso y que se haya cumplido con lo requerido.

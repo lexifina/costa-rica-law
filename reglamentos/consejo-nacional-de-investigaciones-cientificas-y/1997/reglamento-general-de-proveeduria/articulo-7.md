@@ -1,0 +1,1 @@
+Artículo 7°—El perfeccionamiento y formalización contractual regirá de conformidad con el artículo 32 del Reglamento General Contratación Administrativa. La Asesoría Legal confeccionará un anteproyecto de contrato que será remitido a la Proveeduría para su análisis. La formalización del contrato será responsabilidad de la Asesoría Legal.
