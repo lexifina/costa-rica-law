@@ -1,0 +1,5 @@
+PODER LEGISLATIVO
+N°.13
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA,
+DECRETA:
+ARTÍCULO 1°. —Establécese el servicio de giros telegráficos.
