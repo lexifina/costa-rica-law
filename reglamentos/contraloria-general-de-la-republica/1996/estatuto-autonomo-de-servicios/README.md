@@ -16,3 +16,4 @@ Estatuto Autónomo de Servicios
 | 1 | 1996-05-17 | la propia norma |
 | 2 | 1996-10-16 | Reglamento 19 (1996-10-16) |
 | 3 | 1999-06-07 | Reglamento 0 (1999-06-07) |
+| 4 | 2000-01-20 | Reglamento 0 (2000-01-20) |
