@@ -15,3 +15,4 @@ Reglamento para el procedimiento del cobro administrativo judicial
 | --- | --- | --- |
 | 1 | 1999-07-19 | la propia norma |
 | 2 | 2001-05-08 | Reglamento municipal 126 (2001-05-08) |
+| 3 | 2005-01-31 | Reglamento municipal 5 (2005-01-31) |
