@@ -1,0 +1,1 @@
+Artículo 11. —La destitución consiste en la separación definitiva del servidor de la Oficina de Planificación Nacional y Política Económica, por motivos fundados, desposeyéndolo de todos los derechos y prerrogativas del cargo que desempeñe.

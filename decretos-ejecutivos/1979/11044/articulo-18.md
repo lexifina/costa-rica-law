@@ -1,0 +1,2 @@
+Artículo 18.—En aquellos casos en que, atendida la gravedad o la naturaleza de la infracción, un funcionario presuntamente hubiere incurrido en hechos que ameriten la suspensión o la destitución, el jefe inmediato, con aprobación del Ministro-Director, pasará la documentación al jefe del Departamento de Personal.
+El Departamento de Personal llevará a cabo la respectiva investigación administrativa, la cual deberá ajustarse al procedimiento ordinario que señalan los artículos 308 y siguientes de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Articulo 24.—El acto final que impone la sanción de suspensión y destitución deberá ser extendido y notificado por escrito al interesado, con indicación de los hechos y de la causal o causales en que se fundamenta la decisión, con copia al expediente personal.

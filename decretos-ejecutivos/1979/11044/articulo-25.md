@@ -1,0 +1,1 @@
+Artículo 25.—En contra de las decisiones atribuidas a los jefes inmediatos procederán los recursos de revocatoria y de apelación dentro del término de tres días hábiles. Contra las del Ministro-Director únicamente al recurso de reposición que establece la Ley Reguladora de la Jurisdicción Contencioso-Administrativa.

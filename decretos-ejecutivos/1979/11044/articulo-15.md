@@ -1,0 +1,1 @@
+Artículo 15.—El trámite de la acción disciplinaria se. iniciará de oficio, a solicitud o información de un funcionario de la Oficina o por queja debidamente fundamentada presentada por cualquier persona.

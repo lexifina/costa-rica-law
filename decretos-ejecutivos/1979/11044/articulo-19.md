@@ -1,0 +1,1 @@
+Artículo 19.—El Departamento de Personal elaborará un expediente foliado, que contendrá las actuaciones practicadas y, en general, todo el material probatorio para hacer constar los hechos, con todas las circunstancias que puedan influir en su calificación.
