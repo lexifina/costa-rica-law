@@ -1,0 +1,1 @@
+Artículo 5°—Refórmese el artículo 11° párrafo primero, monto de las dietas para que diga: el monto que por concepto de dieta devengaran los miembros de la comisión que no sean funcionarios del Poder Ejecutivo, se regirá de conformidad con lo establecido por la normativa correspondiente.

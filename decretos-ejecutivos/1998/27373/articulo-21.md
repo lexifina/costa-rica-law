@@ -1,0 +1,2 @@
+Artículo 21.—Agrégase el artículo 40 bis al Capítulo VI del Título II, cuyo encabezado será: "De la valoración y calificación de las actividades reguladas", que dirá:
+"Artículo 40 bis. De la Autocalificación. Previo a la realización de cualquiera de las actividades reguladas por los artículos 2° y 3° de la Ley. deberá el interesado presentar a la Comisión una descripción detallada (autocalificación) de la actividad en cuanto al contenido y mención del grupo etáreo al cual va dirigida".

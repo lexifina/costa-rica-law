@@ -1,0 +1,2 @@
+Artículo 7°—Refórmase el artículo 6° del Título I, Capítulo II "Del Consejo Nacional de Espectáculos Públicos", para que se lea así:
+"De las sesiones: El Consejo sesionara ordinariamente dos veces al mes. Será convocado por el Presidente con al menos veinticuatro horas de anticipación y sesionará de manera extraordinaria cuando el Presidente lo estime necesario. Además se regirá por lo dispuesto en los artículos 49 y siguientes de la Ley General de la Administración Pública".

@@ -1,0 +1,2 @@
+Artículo 3°—Refórmese el considerando número 11 como sigue:
+11. Que la Ley Contra la Violencia Doméstica define claramente las diferentes formas en que se puede ejercer la violencia, especialmente en lo que atañe a la familia como el "elemento natural y fundamental de la sociedad", en armonía con el artículo 51 de nuestra Constitución Política, de donde surge la obligación del Estado costarricense de impedir que se difundan materiales que describan o presenten actos contrarios a la salud, la moral, la paz y la integridad familiar.

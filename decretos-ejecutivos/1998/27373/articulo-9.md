@@ -1,0 +1,2 @@
+Artículo 9°—Refórmase el artículo 12 del Título I, Capítulo IV "De la Dirección Ejecutiva de Espectáculos Públicos" para que diga:
+"De la naturaleza jurídica e integración: La Dirección Ejecutiva es una unidad de apoyo técnico administrativo de la Comisión. Estará integrada por el Director Ejecutivo y por los funcionarios necesarios para su buen desempeño. Dependerá directamente del Ministro de Justicia y Gracia".

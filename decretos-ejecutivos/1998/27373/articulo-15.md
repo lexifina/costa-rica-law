@@ -1,0 +1,3 @@
+Artículo 15.—Refórmase el artículo 29 del Título II, Capítulo II "Del material transmitido por televisión", para que diga:
+"De las promociones de otros programas de televisión. Las promociones de otros programas de televisión, avances, propaganda o anuncios transmitidos por televisión podrán ser presentados en cualquiera de los horarios establecidos siempre que no contengan escenas no aptas para personas menores de edad.
+En caso de que la comisión detecte propaganda que incumpla la ley, procederá a denunciarlo ante la Oficina de control de Propaganda del Ministerio de Gobernación y Policía, de conformidad con la Ley del Control y Propaganda, N° 5811 del 10 de octubre de 1975".

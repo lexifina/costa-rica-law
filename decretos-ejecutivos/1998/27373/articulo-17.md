@@ -1,0 +1,2 @@
+Artículo 17.—Refórmase el artículo 34 del Título II. Capítulo II "De los Materiales Audiovisuales", para que diga:
+"De la difusión de anuncios o avances de otros materiales: En las películas de vídeo, cine y televisión calificadas para menores de edad. se autorizara la presentación de avances, anuncios o atracciones de otros materiales que no hayan sido calificados para ese grupo etáreo, siempre que no contengan escenas no aptas para el grupo al que se dirigen en ese momento."

@@ -1,0 +1,4 @@
+Artículo 2°—Adicionase los considerandos como sigue:
+15. Que el Código de la Niñez y la Adolescencia. Ley No 7739 de 6 de enero de 1998, constituye el marco jurídico mínimo para la protección integral de los derechos de las personas menores de edad.
+16. Que de conformidad con Ley General de la Administración Pública, artículo 90, inciso c), no podrán delegarse las competencias en forma total, ni tampoco aquellas que son esenciales del órgano, que le dan nombre o justifican su existencia.
+17. Que la Convención Internacional para prevenir, sancionar y erradicar la violencia contra la mujer, "Belem do Pará", en su artículo ocho, compele a los Estados a crear programas de educación formales e informales para la modificación de los patrones socio-culturales que promuevan las prácticas violentas que mediatizan las relaciones sociales y pide alentar a los medios de comunicación a elaborar directrices de difusión que contribuyan a erradicar la violencia contra la mujer.
