@@ -14,3 +14,4 @@ Reglamento de Asignación y Uso de los Teléfonos Celulares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-10 | la propia norma |
+| 2 | 2004-07-07 | Reglamento 378 (2004-07-07) |
