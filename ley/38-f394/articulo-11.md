@@ -1,0 +1,1 @@
+Art 11° El Ayudante Jefe de día, informará al Superintendente de toda novedad que haya ocurrido y en razón de las urgencias del caso e importancia de su servicio esta facultado para usar directamente de su autoridad sobre todos, con el objeto de dar entero cumplimiento al régimen establecido.

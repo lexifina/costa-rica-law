@@ -1,0 +1,1 @@
+Art 37° A seis varas de la línea de sus habitaciones tendrán las cuadrillas su cocina. El cuidado de estas quedará a cargo de los hombres designados por el Superintendente, exentos de todo otro trabajo. En caso de la posibilidad los alimentos de cada cuadrilla se conocerán en hollas separadas, pero siempre se calentarán al mismo fuego.
