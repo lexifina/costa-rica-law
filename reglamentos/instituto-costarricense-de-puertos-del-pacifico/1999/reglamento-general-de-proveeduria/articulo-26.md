@@ -1,1 +1,0 @@
-Artículo 26.—Recibida la documentación descrita en el articulo anterior, la Proveeduría la remitirá junto con la demás documentación de soporte al Departamento de Contabilidad para su registro y pago.
