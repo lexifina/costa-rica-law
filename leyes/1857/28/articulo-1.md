@@ -1,0 +1,5 @@
+DECRETO XXVIII
+Previniendo que ningún administrador de fondos públicos permita el traspaso de capitales dados a interés
+“Juan Rafael Mora, Presidente de la República de Costa Rica. - Por cuanto el Excelentísimo Congreso Nacional ha decretado lo siguiente:
+El Excelentísimo Congreso Constitucional de la República de Costa Rica. - Habiendo acreditado de la República de Costa Rica.- Habiendo acreditado la experiencia que la pérdida de muchos capitales de fondos públicos dados a interés, ha dependido en mucha parte de los traspasos de fondos públicos de unas a otras manos, cuyos traspasos han dado lugar a la omisión de muchas diligencias esenciales para la segura colocación de esos capitales, y que para darlas garantías es de absoluta necesidad cortar de raíz el origen de esos abusos, ha venido a decretar y decreta:
+Art 1°.- De la fecha de este Decreto en adelante ningún Administrador de fondos públicos de cualquier clase o corporación, permitirá el traspaso de los capitales dados a interés y que estén a su cargo.
