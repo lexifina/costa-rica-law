@@ -1,0 +1,1 @@
+Artículo 15.—Los servidores del Servicio Interno gozarán de un descanso de treinta minutos para el disfrute del almuerzo que podrán hacerlo efectivo desde las 11,00 a. m. hasta la 1,30 p. m., según lo adecúe la dirección respectiva, de modo que las oficinas en ningún momento permanecerán cerradas.
