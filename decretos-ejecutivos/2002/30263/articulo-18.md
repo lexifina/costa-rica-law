@@ -1,0 +1,3 @@
+CAPÍTULO V
+Criterios para la clasificación y constitución de la Red Vial Cantonal
+Artículo 18.—Registro vial. Créase el Registro Vial de Costa Rica, dependiente de la Dirección de Planificación Sectorial del Ministerio de Obras Públicas y Transportes, con carácter oficial nacional, en que se detallará la infraestructura de la Red Vial Cantonal y Nacional del país, su clasificación, nomenclatura, extensión, tipo de superficie, estado, señalización, censos de tránsito y condición socioeconómica, entre otros, con arreglo a los requisitos, formularios y procedimientos que se detallan en el presente reglamento y por medio del respectivo Manual. Los actos de éste registro no tienen carácter de afectación a dominio público.

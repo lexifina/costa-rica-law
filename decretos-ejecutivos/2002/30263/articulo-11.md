@@ -1,0 +1,5 @@
+Artículo 11.—Funcionamiento de la Junta Vial Cantonal.
+a) Los miembros se desempeñarán gratuitamente, por un período fijo de cuatro años y podrán ser reelectos, siempre y cuando ostenten la titularidad del puesto al cual representan. Si en algún caso venciera el período de alguno de los miembros, el sector nombrará al sustituto, en un plazo no mayor a un mes.
+b) La Junta Vial Cantonal sesionará una vez cada mes y extraordinariamente cuando ésta así lo acuerde, o la convoquen los órganos del Gobierno Municipal. Los acuerdos serán aprobados por mayoría simple de los miembros presentes, salvo los casos en que la legislación establezca una votación más calificada y en caso de empate, el presidente ejercerá el voto calidad.
+c) Dicha Junta sesionará válidamente con la presencia de la mayoría absoluta, es decir con mitad más uno del total de sus miembros.
+Lo no previsto en el presente reglamento, regirá en lo conducente por la Ley General de Administración Pública vigente para los órganos colegiados.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+Inversión pública en la Red Vial Cantonal
+Artículo 4º—Destino de los recursos. El Concejo a propuesta de la Junta Vial Cantonal destinarán los recursos provenientes de la Ley de Simplificación y Eficiencia Tributarias, exclusivamente a la conservación, mantenimiento rutinario, mantenimiento periódico, mejoramiento y rehabilitación; una vez cumplidos estos objetivos, los sobrantes se usarán para construir obras viales nuevas de la red vial cantonal, que se entenderá como los caminos vecinales, los no clasificados y las calles urbanas, según las bases de datos de la Dirección de Planificación del Ministerio de Obras Públicas y Transportes (MOPT).

@@ -1,0 +1,2 @@
+Artículo 28.—Actualización de la información. La Dirección de Planificación Sectorial del MOPT, a instancia de la Municipalidad correspondiente o de las Dependencias de la División de Obras Públicas, procederá en conjunto con los interesados a actualizar las bases de datos de los inventarios viales de un cantón, así como a dar trámite a las solicitudes de cambio de categoría de las vías públicas.
+Si la actualización del Registro Vial cantonal se realiza por iniciativa propia del MOPT, ésta deberá ser comunicada al Gobierno Local respectivo.

@@ -1,0 +1,2 @@
+Artículo 29.—Ingreso de información y comunicación a los interesados. La Dirección de Planificación Sectorial del MOPT preparará un corte y resumen anual, al 31 de mayo de cada año, para efectos de la comunicación de la información de las bases de datos del inventario vial a las municipalidades, instituciones del Gobierno Central y a otros interesados.
+La información a consignar en esa fecha considerará el inventario existente y las solicitudes de actualización que se reciban a más tardar el 31 de enero del año correspondiente.
