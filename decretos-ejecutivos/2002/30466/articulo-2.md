@@ -1,0 +1,1 @@
+Artículo 2º—Las funciones en materia de mejoramiento nutricional, genético e higiénico de los animales, que en virtud de la Ley Nº 6243 y sus reformas, competen al Ministerio de Agricultura y Ganadería, serán realizadas a través de la Dirección de Salud y Producción Pecuaria de este Ministerio.
