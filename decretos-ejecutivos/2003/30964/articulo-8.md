@@ -1,0 +1,2 @@
+Artículo 8º—El aumento general aquí decretado no será devengado por aquellos funcionarios y funcionarias públicos que devenguen salarios brutos iguales o superiores a un millón de colones mensuales, (¢1.000.000,00).
+Por salario bruto se entiende la suma del salario base y demás rubros tales como carrera profesional, antigüedades, salario escolar, gastos de representación y demás renglones por encima del salario base.
