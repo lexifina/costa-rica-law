@@ -14,3 +14,4 @@ Reglamento a Ley Nacional de Emergencia Prevención Riesgos y Atenciónde Emerge
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-07 | la propia norma |
+| 2 | 2000-06-30 | Decreto Ejecutivo 28762 (2000-06-30) |
