@@ -1,0 +1,1 @@
+Artículo 12.—Autorízase a los ministerios, las instituciones y empresas públicas del Estado, así como a las municipalidades, para que den contribuciones, patrocinios y donaciones que coadyuven con la realización de las actividades del Centro, de acuerdo con el ordenamiento vigente y según lo que la ley autorice expresamente.

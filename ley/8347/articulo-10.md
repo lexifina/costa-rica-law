@@ -1,0 +1,1 @@
+Artículo 10.—Se seguirán percibiendo, razonable y proporcionalmente, asignaciones de acuerdo con los gastos que históricamente ha tenido cada uno de los programas que en la presente Ley se integran como unidades técnicas especializadas en el Centro.
