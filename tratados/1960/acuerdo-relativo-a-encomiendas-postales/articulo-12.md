@@ -1,0 +1,3 @@
+ARTICULO 12
+Falsa Declaración
+En los casos comprobados de que los remitentes de una encomienda, declaren con falsedad el valor, la calidad, peso o medida del contenido o que, por otro medio cualquiera, se compruebe que intentan defraudar los intereses fiscales del país de destino, tratando de eludir o aminorar el pago de los derechos de importación, ocultando objetos o declarándolos en forma tal que evidencia la intención de suprimir o reducir el importe de esos derechos, la encomienda será tratada con arreglo a la legislación interior del país de destino, sin que ni el remitente ni el destinatario tengan derecho a indemnización.
