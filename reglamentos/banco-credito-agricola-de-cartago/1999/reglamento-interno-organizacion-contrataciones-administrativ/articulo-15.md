@@ -1,0 +1,1 @@
+15.—Para el resto de conceptos presupuestarios, podrá omitirse la formalización mediante contrato, si de la documentación originada por el respectivo procedimiento de contratación, resultan indubitables los alcances de los derechos y las obligaciones contraídas por las partes.

@@ -1,0 +1,1 @@
+18.—La Oficina de Tesorería no confeccionará ningún pago si éste no está autorizado por el funcionario responsable de verificar el cumplimiento del objeto contractual por parte del contratista. La Proveeduría no tramitará ningún pago que no se encuentre debidamente autorizado por el funcionario supervisor de la ejecución contractual.

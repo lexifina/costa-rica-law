@@ -1,0 +1,5 @@
+6.—En los casos que la Comisión conozca, la Proveeduría, una vez que haya dispuesto la evaluación técnica, legal y/o financiera de las ofertas y elaborado los cuadros comparativos, los pondrá a disposición de la Comisión para que proceda conforme corresponde. Asimismo, dará el soporte técnico que demande la Comisión para el cumplimiento de sus funciones.
+La comisión podrá solicitar la participación, tanto en los estudios y análisis, como en las sesiones, del personal técnico y administrativo que estime conveniente; personal que estará obligado a colaborar con la Comisión.
+Las decisiones de la Comisión se adoptarán por mayoría simple y en ella se consignarán todas las consideraciones técnicas, jurídicas o financieras que motiven la decisión tomada.
+El órgano competente para dictar el acto de adjudicación podrá apartarse, mediante acto debidamente razonado, de la recomendación que emita la Comisión de Contrataciones.
+La Comisión también deberá formular las recomendaciones que estime convenientes, con relación a aspectos de control interno, trámite u otros que advierta con ocasión de la aplicación de los procedimientos de contratación que promueva el Banco.
