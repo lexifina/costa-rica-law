@@ -1,0 +1,1 @@
+Artículo 4°—El establecimiento o supresión de agencias podrá hacerse por simple mayoría de votos de la Junta Directiva; el establecimiento o supresión de sucursales necesitará el acuerdo de las dos terceras partes de los votos de la Junta.

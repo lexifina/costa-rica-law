@@ -1,0 +1,1 @@
+Artículo 108.—Antes de aceptar un inmueble en garantía hipotecaria, su valor será estimado por los peritos del Banco. La estimación deberá basarse en el valor de venta y el rendimiento económico del inmueble.

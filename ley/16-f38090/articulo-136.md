@@ -1,0 +1,1 @@
+Artículo 136.—El Departamento procederá en la misma forma, comprando y amortizando bonos, en los casos de adjudicación de un inmueble, el cual, mientras esté en poder del Departamento, pasará a figurar como una inversión de su fondo de reserva.

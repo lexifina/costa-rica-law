@@ -1,0 +1,1 @@
+Artículo 59.—El Departamento Emisor tendrá el derecho exclusivo de la emisión de billetes y monedas fraccionarias. Ni el Estado u otra persona jurídica, ni ninguna persona natural, podrán emitir billetes u otros documentos o títulos, o monedas, que puedan circular como dinero.

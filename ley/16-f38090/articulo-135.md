@@ -1,0 +1,1 @@
+Artículo 135.—En los casos en que la liquidación de una hipoteca produzca pérdida al Departamento, éste la cubrirá comprando en plaza, con sus fondos de reserva, bonos por un monto que corresponda a dicha pérdida. Estos bonos serán amortizados.

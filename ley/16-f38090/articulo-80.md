@@ -1,0 +1,2 @@
+Artículo 80.—Todo el oro de producción nacional que en cualquier forma compre el Departamento Emisor, será analizado por la oficina designada al efecto por el Departamento. Sobre la base de este análisis se fijará el precio.
+Si los vendedores del oro desearen que el análisis se haga en el extranjero, el Departamento enviará el metal a la oficina de análisis que se acuerde. El resultado del análisis de dicha oficina será definitivo para la fijación del precio que pague el Departamento.

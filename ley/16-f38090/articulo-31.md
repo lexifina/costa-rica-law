@@ -1,0 +1,1 @@
+Artículo 31— Los balances generales y los estados de situación que el Banco deberá presentar al Superintendente de conformidad corv la Ley General de Bancos, se formularán de acuerdo con lo dispuesto en los artículos 25 y 26 de la presente ley.

@@ -1,0 +1,1 @@
+Artículo 186.—Todo atraso en el pago de intereses o amortizaciones, dará al Banco el derecho de aplicar multas, cuya tasa no podrá exceder del doble del tipo de interés del préstamo, calculadas sobre el monto de los pagos atrasados.

@@ -1,0 +1,1 @@
+Artículo 16.—Queda prohibido a los miembros de la Junta o del Consejo Directivo y al personal del Banco, tomar parte activa en asuntos políticos, sin perjuicio de que, con toda libertad, cumplan con sus deberes cívicos.

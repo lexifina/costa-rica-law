@@ -1,0 +1,1 @@
+Artículo 146.—Con la anotación de cualquier préstamo en el registro mencionado en el artículo anterior, la prenda que garantiza dicho préstamo se considerará como legalmente constituida en favor de los bonos, con carácter preferente a cualquiera otra prenda o gravamen que pudiera afectarla.

@@ -1,0 +1,1 @@
+Artículo 32.—Las faltas de cumplimiento de lo prescrito en este capítulo, o la alteración, a sabiendas, cíe cualquiera de los datos a que el mismo se refiere, harán incurrir al Banco en las sanciones que establece la Ley General de Bancos.

@@ -1,0 +1,1 @@
+Artículo 116.—Los deudores deben obligarse a pagar puntualmente en las fechas convenidas, y por el plazo del préstamo, las cuotas correspondientes, que comprenderán los intereses, la amortización y la comisión.

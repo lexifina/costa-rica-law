@@ -1,0 +1,1 @@
+Artículo 26.—El Banco, como unidad, no realizará ninguna operación activa o pasiva, ni presentará balances propios, sino sólo una cuenta de ganancias y pérdidas en la que se refundirán las de los tres departamentos.

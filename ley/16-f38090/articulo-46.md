@@ -1,0 +1,1 @@
+Artículo 46.—El representante de los bancos comerciales, y su suplente, serán elegidos por éstos, por mayoría de votos, con exclusión del Departamento Comercial del Banco Nacional. El suplente no podrá ser director, gerente, personero o empleado del mismo banco a que pertenezca el propietario.

@@ -1,0 +1,1 @@
+Artículo 164.—Se destinará a fondo de reserva legal de este Departamento, el remanente de los fondos a que se refiere el artículo 22 de esta ley, una vez deducidos los que se destinan al Departamento Emisor y al Departamento Hipotecario.

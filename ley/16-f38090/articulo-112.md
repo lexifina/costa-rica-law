@@ -1,0 +1,1 @@
+Artículo 112.—Cualquier información falsa que diere el solicitante, lo mismo que la omisión, a sabiendas, de circunstancias que signifiquen un gravamen, suspenderán la tramitación de la solicitud, perdiendo el interesado los gastos que hubiere hecho.

@@ -1,0 +1,1 @@
+Artículo 8°—Los miembros de la Junta desempeñarán su cometido con absoluta independencia del Poder Ejecutivo, y serán, por lo mismo, los únicos responsables de su gestión. Por igual razón pesará sobre ellos cualquier responsabilidad legal que pueda atribuírseles.

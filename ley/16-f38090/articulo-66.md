@@ -1,0 +1,1 @@
+Artículo 66.—Como institución emisora única, el Departamento Emisor tendrá a su cargo el control del circulante y del crédito, así como el del valor de la moneda, tanto en el interior como en su relación con monedas extranjeras, con arreglo a las disposiciones de esta ley.

@@ -1,0 +1,2 @@
+Artículo 185.—A excepción de los préstamos de avío pecuario a que se refiere el inciso 5) del artículo 169 de esta ley, el Banco no podrá otorgar prórrogas de los préstamos concedidos, salvo casos excepcionales, en que se necesita el acuerdo unánime de la Junta.
+Tampoco podrá otorgar nuevos préstamos a una misma persona natural o jurídica, sin que hayan sido canceladas o prorrogadas por la Junta las obligaciones vencidas del deudor por .concepto de préstamos anteriores.
