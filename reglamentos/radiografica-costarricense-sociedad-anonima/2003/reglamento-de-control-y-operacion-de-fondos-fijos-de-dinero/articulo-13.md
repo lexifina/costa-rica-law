@@ -4,7 +4,8 @@ Artículo 13.—Procedimiento para la solicitud de adelantos de dinero para la a
 13.3 Una vez obtenida la aprobación del nivel jerárquico correspondiente y previo a la entrega del dinero solicitado, el responsable del fondo de caja chica debe verificar los siguientes aspectos:
 13.3.1 Que el bien no sea un artículo normalizado. En caso de que se trate de un artículo de este tipo y de que no haya en bodega en ese momento, el solicitante debe aportar la autorización respectiva de parte de la Jefatura del Departamento de Administración de Materiales o de quien esté autorizado para ello.
 13.3.2 Que la autorización sea emitida por un funcionario habilitado para ello.
-13.3.3 Que se cuente con los sellos de contenido presupuestario del Departamento de Planificación Financiera en el caso de compra de activos y gastos mayores a ¢ 50.000,00.
+13.3.3 Que se cuente con los sellos de contenido presupuestario del Departamento de Presupuesto, en el caso de gastos mayores a ¢50.000,00.
+(Así reformado mediante acuerdo publicado en La Gaceta N° 49 de 10 de marzo de 2005).
 13.3.4 Que el solicitante no tenga un vale pendiente de liquidación.
 13.3.5 Cuando se trate de compras mayores a los ¢ 75.000,00, el solicitante debe presentar un mínimo de tres cotizaciones.
 13.3.6 Cuando se trate de compras sujetas a retención del 2% de renta (factura individual cuyo subtotal, exceda el salario base de un oficinista 1), se debe llenar "Comprobante Retención del 2% de impuesto sobre la renta". (Ver el anexo Nº 9). Además, antes de realizar la compra el solicitante debe verificar el proveedor está inscrito en el registro respectivo, caso contrario, debe solicitar al encargado la inscripción.

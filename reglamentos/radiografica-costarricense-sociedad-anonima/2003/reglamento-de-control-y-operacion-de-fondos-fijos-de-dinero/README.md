@@ -14,3 +14,4 @@ Reglamento de Control y Operación de Fondos Fijos de Dinero (Cajas Chicas).
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-25 | la propia norma |
+| 2 | 2005-03-01 | Reglamento 0 (2005-03-01) |
