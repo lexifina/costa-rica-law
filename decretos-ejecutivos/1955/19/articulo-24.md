@@ -1,1 +1,2 @@
-Artículo 24.—Serán sufragados por el suscriptor todos los gastos de tramitación de crédito, así como los que demande el contrato respectivo, las inspecciones y los avalúos.
+Artículo 24.—Serán sufragados por el suscritor todos los gastos de tramitación de crédito, así como los que demande el contrato respectivo, las inspecciones y los avalúos. En los contratos que estipulen el 6 % del monto suscrito para cuota de ingreso, podrá usarse para dichos gastos, lo que alcance de un 2 %, sin que el remanente pueda beneficiar a! suscritor
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 14 de 11 de setiembre de 1958, publicado en La Gaceta N° 216 de 26 de setiembre de 1958.)
