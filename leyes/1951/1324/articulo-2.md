@@ -1,0 +1,1 @@
+Artículo 2°.- De la suma emprestada se destinarán veinticuatro mil colones (¢24,000.00), para cancelar el saldo de la obligación que dicha Municipalidad tiene con la sucursal del Banco Nacional de Costa Rica en Heredia, y el resto lo invertirá totalmente en la compra de Bonos del Café.

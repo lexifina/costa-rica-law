@@ -1,0 +1,1 @@
+Artículo 3°.- Este empréstito será pagado en un plazo de cinco años, en cuotas mensuales de cinco mil colones (¢5,000.00), más los intereses correspondiente al 6% anual y el saldo al vencimiento. Extraordinariamente la Municipalidad hará abonos con el producto de los Bonos favorecidos en los sorteos verificados.
