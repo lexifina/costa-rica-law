@@ -1,4 +1,4 @@
-Artículo 21.- El impuesto sobre licencias que la presente ley
+ARTICULO 21.- El impuesto sobre licencias que la presente ley
 establece será destinado a la organización del Departamento de Control
 Nacional de Radio y a la ampliación de los servicios de Radios
 Nacionales, todo ello de conformidad con lo dispuesto en el artículo 51
