@@ -1,0 +1,1 @@
+Artículo 4º—Anotación en la Tarjeta de RTV. En todos los casos de aquellos vehículos que logren aprobar la prueba de emisión de gases con base en las disposiciones del artículo 2 de este Decreto, la empresa contratista que realiza la Revisión Técnica Vehicular deberá anotar expresa y claramente esta circunstancia en la Tarjeta de Revisión Técnica que se entrega a los usuarios.
