@@ -1,0 +1,6 @@
+Artículo 13.—De la capacitación de los Delegados de la Asamblea de los Trabajadores.
+a. El Banco, tomando en cuenta su disponibilidad presupuestaria, recursos humanos, físicos y financieros, podrá otorgar capacitación a los Delegados de la Asamblea Nacional de Trabajadores, sobre las funciones del Banco, su normativa, entorno económico, los productos y servicios que brinda, su modelo financiero y sus programas de crédito y captación de recursos.
+b. Los Delegados de la Asamblea de Trabajadores podrán participar en actividades de capacitación relacionadas con su función dentro del Banco, no así en los programas de profesionalización que conduzcan a obtener un grado académico o carrera universitaria.
+c. El Plan Anual de Capacitación de los Delegados forma parte del Plan Institucional de Capacitación y Profesionalización, el Área de Capacitación dará la última aprobación.
+d. El Directorio de la Asamblea Nacional de Trabajadores aprobará los requerimientos de capacitación de los Delegados y el presupuesto correspondiente a que hace referencia el artículo 5, párrafo 5.
+e. En el caso de personal de planilla, de acuerdo con los niveles de aprobación del artículo 12, se tramitará por el Área de Capacitación.

@@ -1,0 +1,6 @@
+Artículo 26.—De la licencia de tiempo para estudios con goce de salario.
+a. El Banco podrá conceder licencia de tiempo con goce de salario para elaborar trabajos finales de graduación, preparación para exámenes o pruebas de grado, siempre que se trate de carreras definidas como de interés institucional y que están vinculadas -según se indica en el Anexo N° 3, que forma parte de este Reglamento- y que permitan al servidor obtener un grado académico aún no alcanzado.
+b. Para elaboración y presentación de tesis, tesina o prueba de grado se otorgará hasta un máximo de tres días hábiles para optar por el grado académico respectivo.
+c. El servidor al que se le haya otorgado una licencia de tiempo con goce de salario y cuyo día de defensa del trabajo de graduación o convocatoria a pruebas de grado haya sido variado y no requiera de todos los días concedidos, deberá reintegrarse inmediatamente a sus labores.
+d. En todos los casos, el otorgamiento de licencias de tiempo requerirá el conocimiento previo de la Jefatura inmediata del solicitante y de la presentación de la solicitud ante el Área de Capacitación con ocho días hábiles de antelación al inicio del goce del beneficio.
+e. El solicitante deberá suscribir el contrato por licencia de tiempo utilizado en el Área de Capacitación.

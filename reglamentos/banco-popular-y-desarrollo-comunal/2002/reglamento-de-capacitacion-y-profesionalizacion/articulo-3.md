@@ -1,0 +1,5 @@
+Artículo 3º—De las actividades de capacitación.
+a. Cualquier actividad de capacitación impartida, autorizada y contratada o financiada por el Banco, deberá ser congruente y estará supeditada a los fines de este. Para tal efecto, se establecerán los medios de control y supervisión que se estime pertinentes.
+b. Cualquier actividad de capacitación y profesionalización autorizada, contratada o financiada por el Banco, deberá estar dirigida a servidores cuyo proceso en que participa esté estrechamente relacionado con el contenido de la actividad de capacitación.
+c. Toda actividad de capacitación que se realice para servidores del Banco debe ser coordinada y controlada por el Área de Capacitación, sin que ello sea obstáculo para que el área interesada en esa capacitación participe y colabore activamente en su preparación y desarrollo.
+d. Todas las dependencias del Banco estarán obligadas a otorgar las facilidades necesarias a aquellos servidores que hayan sido seleccionados para ser capacitados, de conformidad con este Reglamento, y a tomar las previsiones que correspondan, con el fin de no perjudicar el servicio que presta el Banco.

@@ -1,0 +1,8 @@
+CAPÍTULO IV
+De los niveles de aprobación para la capacitación en servicio
+Artículo 12.—De los niveles de aprobación de gastos para la capacitación en servicio. El nivel resolutivo correspondiente solicitará la inscripción de funcionarios en eventos de capacitación, cuando la especialidad de la actividad de capacitación por impartir sea estratégica y oportuna para el Banco.
+Los servicios de capacitación serán aprobados por los siguientes niveles:
+1. Área de Capacitación: Hasta por un 40% del monto fijado por la Contraloría General de la República al Banco Popular, para contrataciones directas, salvo cuando se trate de servidores que dependan de la Junta Directiva, el Directorio de la Asamblea de Trabajadores y la Auditoría Interna, caso en el cual el jerarca de esos órganos podrá aprobar la capacitación.
+2. El órgano indicado en el penúltimo párrafo en el artículo 10 inciso 4 del Reglamento Complementario de Contratación Administrativa del Banco Popular: Hasta por el tope máximo fijado por la Contraloría General de la República al Banco Popular, para contrataciones directas, salvo cuando se trate de servidores que dependan de la Junta Directiva, el Directorio de la Asamblea de Trabajadores y Auditoría Interna, caso en el cual el jerarca de esos órganos podrá aprobar la capacitación.
+3. En los casos en que no proceda la contratación directa, se aplicará lo dispuesto en el Reglamento Complementario de Contratación Administrativa del Banco.
+Cuando participen funcionarios de diversas instancias en un mismo evento, se consolidará el monto con el fin de determinar el nivel resolutivo.

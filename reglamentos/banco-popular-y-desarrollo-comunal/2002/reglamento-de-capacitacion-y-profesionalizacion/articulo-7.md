@@ -1,0 +1,1 @@
+Artículo 7º—De la capacitación en servicio y profesionalización. Las actividades de capacitación en servicio se impartirán para todo aquel servidor que lo necesite para el desarrollo óptimo de sus funciones, de acuerdo con necesidades específicas e intereses institucionales, lo cual debe ser debidamente justificado por el Coordinador del área respectiva.

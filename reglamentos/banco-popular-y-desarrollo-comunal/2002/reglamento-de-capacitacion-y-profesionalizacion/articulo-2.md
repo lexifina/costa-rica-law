@@ -1,0 +1,1 @@
+Artículo 2º—Aplicación e interpretación. Las normas de este Reglamento deberán aplicarse e interpretarse en forma tal que permita que, en igualdad de condiciones, el trato sea igual para todos los servidores.
