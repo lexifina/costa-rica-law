@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-Crease un impuesto de consumo sobre los fósforos, cerillas o fósforos de cera que se fabriquen en el país, equivalente, por unidad, a los aforos que están establecidos por la importación de esos artículos.
