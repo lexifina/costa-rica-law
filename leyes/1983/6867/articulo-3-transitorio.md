@@ -1,0 +1,1 @@
+III.- Los libros de registro se continuarán en la misma forma y orden existente, pero el Registro se proveerá de una serie nueva de libros destinados a la inscripción de modelos y dibujos industriales y modelos de utilidad, con numeración inicial únicamente para estas inscripciones.
