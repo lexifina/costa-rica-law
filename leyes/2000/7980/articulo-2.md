@@ -1,0 +1,5 @@
+ARTÍCULO 2.- Integración
+El grupo estará integrado por académicos de diferentes unidades de
+investigación de la Universidad de Costa Rica; no obstante, podrá
+solicitar la participación de investigadores de las otras universidades
+estatales.
