@@ -102,3 +102,19 @@ Su delimitación exacta será efectuada por el ITCO, en coordinación con la CON
 5. Urochico: al sur del río Telire hasta la divisoria de aguas del río Coén.
 6. San José Cabécar (Cabécar): la cuenca del Alto Coén.
 Y que el caserío de Mojoncito no es parte de esta reserva, sino de la Reserva Indígena Bribrí de Talamanca).
+(3. Mediante el artículo 1° del decreto ejecutivo N° 16307 del 16 de mayo de 1985, se establece la delimitación de la Reserva Indígena Bribrí de Talamanca, artículo 2° modifica en lo conducente el presente artículo, de manera que la Reserva Chase queda incluída en la demarcación de la Reserva Indígena Bribrí de Talamanca, artículo 3° establece la lista oficial de los caseríos que constityen la Resreva Indígena Bribrí de Talamanca, los cuales son:
+1. | Watsi.
+2. | Acberye.
+3. | Bratsi.
+4. | Suretka.
+5. | Shiroles (Xiroles este).
+6. | Yorkin (incluyendo Bris y Sheuabb).
+7. | Boca Urén.
+8. | Katsi (Catsi).
+9. | Soki (Soqi).
+10. | Alto Urén.
+11. | Alto Lari.
+12. | Amubri.
+13. | Coroma (incluyendo Bajo Coén).
+14. | Sepecue (Sepecwe).
+15. | Mojoncito).
