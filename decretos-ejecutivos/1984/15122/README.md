@@ -18,3 +18,4 @@ Reglamento Autónomo de Trabajo del Ministerio de Cultura, Juventud y Deportes
 | 3 | 1999-11-02 | Decreto Ejecutivo 28272 (1999-11-02) |
 | 4 | 2001-09-14 | Decreto Ejecutivo 29863 (2001-09-14) |
 | 5 | 2001-11-15 | Decreto Ejecutivo 29981 (2001-11-15) |
+| 6 | 2002-10-18 | Decreto Ejecutivo 30873 (2002-10-18) |
