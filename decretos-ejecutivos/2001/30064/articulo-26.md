@@ -1,0 +1,1 @@
+Artículo 26.—Procedimiento para la selección del Concesionario. Para la selección del Concesionario interesado, la Administración se sujetará a los principios y procedimientos de la licitación pública, de conformidad con las disposiciones de la Ley de Contratación Administrativa, su Reglamento y el respectivo cartel de licitación.

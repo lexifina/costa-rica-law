@@ -1,0 +1,1 @@
+Artículo 24.—Fijación de Tarifas. Las tarifas aplicables por los servicios portuarios serán fijadas de conformidad con los procedimientos legales establecidos. La Autoridad Reguladora de los Servicios Públicos regulará tales tarifas según los términos de la Ley Nº 7593 y su reglamento.
