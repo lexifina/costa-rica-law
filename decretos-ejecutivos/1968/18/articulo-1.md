@@ -1,4 +1,5 @@
 N° 18
+(Este decreto fue dejado sin efecto por el artículo 1° del decreto ejecutivo N° 45 del 10 de setiembre de 1969, con respecto a la licitación para la construcción de los puentes de la carretera Siquirres-Limón).
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE HACIENDA
 De conformidad con el inciso 3) del articulo 140 de la Constitución Política; según el tenor de las disposiciones correspondientes de la Ley de la Administración Financiera de la República y de acuerdo con la doctrina que rige la materia, a solicitud de la Contraloría General de la República,

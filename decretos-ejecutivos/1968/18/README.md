@@ -14,3 +14,4 @@ Establece Plazo para la Recepción de Ofertas para la Licitación Pública
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1968-05-29 | la propia norma |
+| 2 | 1969-09-10 | Decreto Ejecutivo 45 (1969-09-10) |
