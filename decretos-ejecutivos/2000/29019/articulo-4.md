@@ -1,0 +1,1 @@
+Artículo 4º—Tarifas. La visitación y demás actividades desarrolladas en el sector de playa y a la Laguna de Gandoca se regirá por las normas tarifarias que al efecto establezca el Sistema Nacional de Áreas de Conservación del Ministerio del Ambiente y Energía.
