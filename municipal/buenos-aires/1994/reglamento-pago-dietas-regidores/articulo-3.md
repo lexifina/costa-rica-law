@@ -1,0 +1,1 @@
+Artículo 3°—Las dietas de los regidores y de los síndicos municipales podrán aumentarse en un veinte por ciento (20%) anual, siempre y cuando el presupuesto municipal ordinario correspondiente haya aumentado, en una proporción igual o superior a ese porcentaje, en relación con el año anterior.

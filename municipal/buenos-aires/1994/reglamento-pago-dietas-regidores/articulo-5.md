@@ -1,0 +1,1 @@
+Artículo 5°—No podrá pagarse más de una dieta por regidor, por cada sesión remunerable a la que haya asistido, ni podrán devengar doble dieta si en un mismo día se sesionase dos veces, aunque no se haya excedido el número de sesiones remunerables.

@@ -1,0 +1,1 @@
+Artículo 7°—Perderá la dieta un regidor propietario que no se presentare dentro de los quince minutos inmediatos posteriores a la hora fijada para comenzar la sesión, o cuando se retirase antes de que esta finalice.

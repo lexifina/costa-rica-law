@@ -1,0 +1,1 @@
+Artículo 9°—Cuando un regidor suplente no sustituya a un propietario en una sesión remunerable y este presente durante toda la sesión, devengará el cincuenta por ciento de la dieta correspondiente a un regidor, de conformidad con lo indicado en el artículo No 76 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 2°—Corresponde a la municipalidad remunerar un máximo de ocho sesiones ordinarias o extraordinarias por mes, por contar esta municipalidad con siete regidores (ver articulado No 77 del Código Municipal).

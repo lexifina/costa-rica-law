@@ -1,0 +1,1 @@
+Artículo 8°—Devengará la dieta el regidor suplente que sustituyese a un propietario en una sesión remunerable, siempre que la sustitución comience antes o inmediatamente después de los 15 minutos de gracia contemplados en el artículo anterior y se extendiese hasta el final de la sesión.

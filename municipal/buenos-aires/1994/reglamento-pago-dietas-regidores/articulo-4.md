@@ -1,0 +1,1 @@
+Artículo 4°—En los casos en que la municipalidad celebre en un mes, más de las sesiones de las que se autoriza remunerar, se entenderán como remunerables las primeras que se efectúen, hasta alcanzar el máximo permitido en cada caso.
