@@ -1,0 +1,1 @@
+Artículo 9°—La Autoridad Presupuestaria velará por el cumplimiento de las disposiciones contenidas en el presente Decreto e informará al Presidente de la República del cumplimiento de las mismas y de los ahorros de gasto generados.
