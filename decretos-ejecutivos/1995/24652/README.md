@@ -13,3 +13,4 @@ Reglamento General Ministerio Recursos Naturales Energía y Minas MINAE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-10-03 | la propia norma |
+| 2 | 2001-12-21 | SINALEVI (sin norma nombrada) |
