@@ -14,3 +14,4 @@ Reglamento para la Administración del Fondo de Mutualidad y Subsidios del Coleg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1953-03-08 | la propia norma |
+| 2 | 1968-05-01 | Decreto Ejecutivo 18 (1968-05-01) |

@@ -1,1 +1,1 @@
-Artículo 3°—La totalidad de los aportes a que se refiere el artículo 1° de este Reglamento, deberá ser invertida en valores de fácil realización a un tipo de interés no menor del seis por ciento anual.
+Artículo 3°—Estarán exentos de contribuir para el Fondo de Mutualidad y Subsidios, conservando todos sus derechos, los miembros del Colegio mayores de setenta años; y temporalmente los miembros a quienes la Junta Directiva conceda esa gracia en atención a dificultades económicas (artículo 34 de la Ley Orgánica) .

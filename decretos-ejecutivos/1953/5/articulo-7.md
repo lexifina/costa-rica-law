@@ -1,1 +1,0 @@
-Artículo 7°—Para que el Colegio pueda pagar siempre el subsidio indicado, la Junta Directiva del Colegio podrá autorizar extraordinariamente y con carácter de transitorio, el uso de sus otros fondos y recursos para el pago del mismo, quedando obligado el Fondo a restituírselos a la mayor brevedad posible, sin ningún recargo o interés.

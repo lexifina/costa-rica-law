@@ -1,1 +1,1 @@
-Artículo 5°—Los miembros de la Junta Directiva del Colegio responderán personalmente y solidariamente de las pérdidas ocasionadas por su negligencia o falta de prudencia en la administración de estos fondos. No incurrirán en esta responsabilidad aquellos miembros que no hubieren aprobado la operación que causó la pérdida.
+Artículo 5°—El sistema de seguridad social que adopte el Colegio deberá ser revisado cada cinco años, para verificar con vista de los resultados del período precedente, que está cumpliendo cabalmente con su finalidad.
