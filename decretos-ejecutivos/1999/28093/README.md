@@ -13,3 +13,4 @@ Interés Cultural Exhibición Setenta Porcelanas Japonesas Dif. Autores(Noviembr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-09-23 | la propia norma |
+| 2 | 1999-09-23 | SINALEVI (sin norma nombrada) |
