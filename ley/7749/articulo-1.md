@@ -1,10 +1,10 @@
-APROBACIÓN DE LA ADHESIÓN AL CONVENIO
+APROBACION DE LA ADHESION AL CONVENIO
 SOBRE LA TRANSFERENCIA DE
 PERSONAS SENTENCIADAS
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
 Apruébase, en cada una de sus partes, la adhesión de la República de Costa Rica al Convenio sobre Transferencia de Personas Sentenciadas, hecho en Estrasburgo el 21 de marzo de 1983. El texto es el siguiente:
-"CONVENCIÓN SOBRE LA TRANSFERENCIA
+"CONVENCION SOBRE LA TRANSFERENCIA
 DE PERSONAS SENTENCIADAS
 ESTRASBURGO, 21 DE MARZO DE 1983
 Los Estados miembros del Consejo de Europa y los otros Estados, aquí firmantes,
