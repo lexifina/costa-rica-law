@@ -14,3 +14,4 @@ Autoriza al Ministerio Hacienda la emisión de títulos de propiedad en dólares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-03-01 | la propia norma |
+| 2 | 1995-07-17 | Decreto Ejecutivo 24465 (1995-07-17) |
