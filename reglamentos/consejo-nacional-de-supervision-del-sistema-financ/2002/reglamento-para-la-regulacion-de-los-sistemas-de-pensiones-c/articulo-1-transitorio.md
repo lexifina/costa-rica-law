@@ -1,0 +1,3 @@
+TRANSITORIOS
+Transitorio I.—Emisión y Modificación a los Reglamentos Internos de Operación. Los entes Administradores de los regímenes públicos sustitutos y sistemas de pensiones complementarios especiales deberán emitir o realizar las modificaciones a los Reglamentos Internos para ajustarlos a este Reglamento a más tardar 6 meses después de la entrada en vigencia del mismo.
+Se exceptúa el Fondo de Garantías y Jubilaciones del Banco Central de Costa Rica, el cual debido a su condición de fondo en liquidación continuará rigiéndose por el reglamento vigente debidamente aprobado por la Junta Directiva del Banco Central de Costa Rica, debiendo cumplir con los requerimientos de información que realice la Superintendencia de Pensiones en razón de su labor de supervisión.

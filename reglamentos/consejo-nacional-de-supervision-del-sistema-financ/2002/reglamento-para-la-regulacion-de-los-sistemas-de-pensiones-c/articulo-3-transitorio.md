@@ -1,0 +1,3 @@
+Transitorio III.—Gradualidad para el cumplimiento del límite máximo por emisor estipulado en el artículo 14. Los recursos bajo la responsabilidad de los entes administradores, provenientes de los regímenes básicos sustitutos y fondos de pensiones complementarios especiales, deberán adecuarse a lo dispuesto en el artículo 14 de estas Disposiciones de conformidad con la siguiente gradualidad:
+1) 6 meses después de la entrada en vigencia de este Reglamento deben cumplir con un límite máximo de 10%.
+2) 12 meses después de la entrada en vigencia de este Reglamento deben cumplir con un límite máximo de 5%.

@@ -1,0 +1,2 @@
+Artículo 28.—De la publicación. Los estados financieros se consideran información pública y deberán estar disponibles para su consulta por parte de los interesados.
+Los estados financieros auditados deberán publicarse en un medio de comunicación interno en la entidad en que se creó el fondo, una vez al año, en un plazo de cinco días hábiles contados a partir de la fecha de entrega de los estados financieros auditados a la Superintendencia.

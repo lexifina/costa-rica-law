@@ -1,0 +1,1 @@
+Artículo 38.—Del informe del Auditor Externo. El informe sobre los estados financieros deberá prepararse de acuerdo con lo que establecen las Normas de Auditoría Generalmente Aceptadas. El Superintendente establecerá los aspectos mínimos que deberán revelarse mediante notas específicas en los estados financieros, así como su presentación en cuanto a estructura y formato.

@@ -1,0 +1,3 @@
+Artículo 20.—Del uso de derivados para cobertura. Los entes administradores podrán utilizar operaciones con instrumentos derivados únicamente para realizar coberturas de tasa de interés o tipo de cambio de sus carteras, las cuales también deberán cumplir con los requerimientos señalados en el artículo 17 anterior. No se permitirán posiciones al descubierto en derivados.
+El uso de derivados para cobertura queda excluido del límite fijado en el artículo 17 de este Reglamento.
+La anterior disposición no será de aplicación a la Junta de Pensiones y Jubilaciones del Magisterio Nacional según párrafo segundo del artículo 21 de la Ley Nº 7531.

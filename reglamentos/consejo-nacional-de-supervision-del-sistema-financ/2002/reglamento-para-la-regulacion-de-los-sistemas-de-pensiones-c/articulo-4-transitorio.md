@@ -1,0 +1,1 @@
+Transitorio IV.—De la valoración del portafolio de inversiones. Los entes administradores de los fondos deberán adecuar sus sistemas de información para poder realizar la valoración de los portafolios de inversiones a partir de enero del 2004.

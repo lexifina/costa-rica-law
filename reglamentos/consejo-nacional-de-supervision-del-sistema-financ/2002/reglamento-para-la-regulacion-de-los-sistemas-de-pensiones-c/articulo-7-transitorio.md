@@ -1,0 +1,1 @@
+Transitorio VII.—De la remisión. Durante el primer cierre fiscal, luego de promulgado este Reglamento, los estados financieros dictaminados por auditores externos deberán ser remitidos a la Superintendencia en un plazo de 45 días hábiles, contados a partir de la fecha de cierre del período auditado.

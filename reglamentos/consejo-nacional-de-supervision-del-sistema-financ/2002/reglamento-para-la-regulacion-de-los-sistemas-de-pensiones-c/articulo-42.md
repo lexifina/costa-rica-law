@@ -1,0 +1,2 @@
+Artículo 42.—De los incumplimientos de los deberes de los auditores o profesionales en contaduría pública.
+Los incumplimientos de las firmas auditoras o profesionales independientes, en relación con las disposiciones de este Reglamento, serán comunicados, junto con un informe sumario y las pruebas respectivas, a la Fiscalía del Colegio de Contadores Públicos de Costa Rica o a su homólogo en el país extranjero de que se trate, para los efectos que correspondan.

@@ -1,0 +1,1 @@
+Transitorio V.—De los préstamos formalizados. Lo dispuesto en el artículo 24, literal a) no perjudica los préstamos, efectuados a los afiliados, que se encuentren debidamente formalizados y vigentes, las entidades deberán en esos casos respetar las condiciones establecidas hasta el final de la relación crediticia.

@@ -1,0 +1,1 @@
+Artículo 44.—De la cuota total mensual de los planes de pensiones. En aquellos planes de pensiones con beneficios definidos, la cuota pagada, considerará la sumatoria del conjunto de coberturas establecidas en el reglamento interno del fondo.

@@ -1,0 +1,2 @@
+Artículo 16.—Custodia de los valores. Los valores representativos de las inversiones de los Fondos administrados deberán depositarse en una entidad de custodia autorizada para tal efecto por la Ley Reguladora de Mercado de Valores y bajo las condiciones y plazo establecidas por la Superintendencia General de Valores.
+Los contratos entre los entes administradores y las entidades de custodia autorizadas o la Central de Valores deberán ser autorizados previamente por el Superintendente, quien determinará los requisitos mínimos requeridos.

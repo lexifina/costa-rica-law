@@ -1,0 +1,2 @@
+Artículo 35.—De la rotación. Las firmas de contadores públicos deberán cambiar el personal encargado de realizar la auditoría del fondo auditado (socio, gerente de auditoría, supervisor y encargado, según la estructura administrativa de la firma), al menos cada tres períodos económicos.
+La rotación podrá no ser simultánea para todos los miembros del equipo. En caso de que esta rotación no fuera posible, el ente administrador deberá cambiar sus auditores externos cada tres períodos y podrá contratarlos nuevamente después de una interrupción no menor de tres años.

@@ -1,0 +1,2 @@
+Artículo 18.—Límites de inversión por emisor. Se podrá invertir por emisor o fondo de inversión cerrado un máximo de un 5% del valor del Fondo. Por Sociedad Administradora de Fondos de Inversión se permitirá invertir hasta un máximo de un 10% del total del Fondo.
+La anterior disposición no será de aplicación a la Junta de Pensiones y Jubilaciones del Magisterio Nacional según párrafo segundo del artículo 21 de la Ley Nº 7531.

@@ -1,0 +1,1 @@
+Artículo 30.—De los informes. Anualmente, o con la frecuencia que indique el Superintendente, los auditores internos presentarán a la Superintendencia los informes que sobre evaluaciones del Fondo, hayan realizado.

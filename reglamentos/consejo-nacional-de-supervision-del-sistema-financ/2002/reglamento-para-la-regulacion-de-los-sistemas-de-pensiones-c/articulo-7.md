@@ -1,0 +1,1 @@
+Artículo 7º—Del reglamento interno del Fondo. Para su funcionamiento, el ente administrador de cada régimen público sustituto o sistema de pensión complementario, dictará un Reglamento para su operación, el cual, previo a su aplicación, deberá contar con la aprobación del Superintendente de Pensiones, así como sus posteriores reformas.

@@ -1,0 +1,2 @@
+Artículo 52.—De la información a los afiliados. Los entes administradores de los fondos de pensiones complementarios, cuyo modelo de financiamiento sea de capitalización individual deberán enviar, al menos cada 6 meses, un estado de cuenta a los afiliados, con la siguiente información: mes respectivo, aportación patronal, aportación personal y capitalización de rendimientos.
+No obstante lo anterior, esa información deberá estar siempre disponible para el afiliado.
