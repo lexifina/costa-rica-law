@@ -8,5 +8,5 @@ Definir el sistema, las normas de transmisión y acceso interinstitucional a los
 Definir las funciones de cada institución en lo que al objeto de este decreto se refiere.
 Definir las bases para la distribución de los beneficios de la cooperación nacional e internacional, que sean canalizadas a través del Gobierno Central.
 Velar por el respeto a la legislación vigente en el país, que regule las actividades aplicadas por este decreto.
-Definir las pautas en materia de investigación sismológica aplicada a: vigilancia, prevención, mitigación, pronósticos y predicción.
+Recomendar las pautas en materia de investigación sismológica aplicada a: vigilancia, prevención, mitigación, pronósticos y predicción. (Así reformado el inciso i) por Artículo 1° del Decreto Ejecutivo N° 22283 del 14 de febrero de 1994)
 Establecer un reglamento interno de operación que regule el modus operandi del Comité Sismológico Nacional.

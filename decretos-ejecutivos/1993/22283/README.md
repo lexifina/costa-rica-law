@@ -14,3 +14,4 @@ Crease el Sistema Sismológico Nacional Integrado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-07-15 | la propia norma |
+| 2 | 1994-02-14 | Decreto Ejecutivo 22936 (1994-02-14) |
