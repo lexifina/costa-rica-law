@@ -1,0 +1,1 @@
+Artículo 11.-Cualquier ciudadano interesado en solicitar un documento para su consulta, deberá hacer la solicitud por escrito indicando claramente el objetivo de su investigación, llenará la boleta de préstamo de documentos y además deberá identificarse con su cédula de identidad o carné de estudiante de ser el caso.

@@ -1,0 +1,1 @@
+Artículo 15.-Los Jefes de Departamento o Encargados de oficina serán los responsables de que en su oficina se ordenen y archiven correctamente los documentos siguiendo las normas de procedimientos establecidos por el Archivo Central, asimismo será el responsable de que se envíen correctamente las listas de remisión.

@@ -1,0 +1,1 @@
+Artículo 12.-En la Sala de Consulta estará prohibido tanto a ciudadanos como personal interno de la institución hablar en voz alta, rayar los documentos, comer, fumar, éste último se aplicará para cualquiera de las tres áreas establecidas en el Archivo.

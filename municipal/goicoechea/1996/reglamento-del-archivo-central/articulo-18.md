@@ -1,0 +1,1 @@
+Artículo 18.-Se debe garantizar que el local del Archivo reúna las condiciones necesarias para la conservación óptima de los documentos, tomando en cuenta el grado de humedad relativa del aire, temperatura, polución, luz e insectos o situaciones similares. Además deberá contar con las medidas técnicas para la extinción y prevención de incendios, inundaciones y robos.
