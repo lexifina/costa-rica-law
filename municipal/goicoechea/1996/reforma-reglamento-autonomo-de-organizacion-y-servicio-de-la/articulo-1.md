@@ -1,0 +1,25 @@
+MUNICIPALIDAD DE GOICOECHEA
+Con base al acuerdo de sesión ordinaria 107-95, artículo 5°, se hace del conocimiento el capítulo sobre Hostigamiento Sexual en el trabajo y la docencia que se incorpora al reglamento de Organización y Servicio de esta Corporación Municipal.
+CAPITULO XIX
+Trámite especial de denuncias por acoso sexual
+Artículo 78.—Denuncias por acoso sexual en el empleo.
+Las denuncias sobre hechos que impliquen acoso sexual, según lo previsto en la ley 7476-95, en la relación de empleo, serán instauradas directamente por el afectado ante la Dirección Administrativa.
+En caso de que la denuncia se dirija en contra de un funcionario de la Dirección Administrativa, esta será interpuesta directamente ante el Ejecutivo Municipal.
+El afectado deberá acompañar con su denuncia toda la prueba documental y testimonial y de cualquier otro tipo en que sustente los hechos. En caso de no disponer de prueba documental, indicará el archivo de la oficina en el cual pueden ser hallados.
+Artículo 79.—Trámite de la denuncia
+La instrucción del caso será sustanciada por el Departamento Legal y Dirección Administrativa conforme a las disposiciones legales vigentes.
+La resolución del asunto corresponderá a la Dirección Administrativa y el Departamento Legal, quién deberá acordar y comunicar el acto final en el mes siguiente a la conclusión de la instrucción. En el evento de que la denuncia se dirija contra un servidor de la Dirección Administrativa, la resolución será acordada por el Ejecutivo.
+Todos los funcionarios vinculados directa o indirectamente con el procedimiento de investigación estarán obligados a guardar la más absoluta y estricta confidencialidad, bajo apercibimiento de que en caso de incumplimiento serán sancionados, a título de culpa grave en su relación de empleo, por la infracción de este deber.
+Los documentos, proyectos de resolución y resoluciones vinculados con este tipo de procedimiento serán trasladados personalmente por el notificador encargado al efecto.
+En caso de que el afectado no adjunte prueba idónea para sustentar los hechos denunciados el Departamento Legal prevendrá al denunciante su presentación en el plazo de los cinco días siguientes. En caso de no aportarse, o bien, de resultar impertinente, recomendará en forma razonada el archivo del caso ante la Dirección Administrativa.
+Artículo 80.—Medidas cautelares
+En la fase instructiva, se podrán adoptar medidas cautelares a fin de cesar temporalmente los efectos de un hecho lesivo a los intereses del denunciante, y hasta tanto se resuelva en definitiva el procedimiento.
+Artículo 81.—Imposición de sanciones
+Las sanciones por hostigamiento sexual se aplicarán según la gravedad de los hechos y serán las siguientes: amonestación escrita, la suspensión de tres a quince días, el despido sin perjuicio de que se acuda a la vía correspondiente, cuando las conductas también constituyan hechos punibles, según lo previsto en el Código Penal.
+Artículo 82.—Garantía para el denunciante y los testigos
+Ninguna persona que haya denunciado ser víctima de hostigamiento sexual o haya comparecido como testigo de las partes, podrá sufrir por ello perjuicio personal en su empleo o en sus actividades docentes.
+Conforme a lo previsto en la ley 7476-95, quien haya formulado denuncia de hostigamiento sexual sólo podrá ser despedido por justa causa, previa intervención de la Dirección Nacional e Inspección General de Trabajo, donde la Municipalidad deberá acreditar la causal en la que fundamenta el despido, el incumplimiento de .esta disposición acarreará responsabilidad al funcionario que acuerde el despido, y para efectos del funcionario éste podrá dar por terminado su contrato de trabajo, con responsabilidad patronal.
+La citada garantía cubre el plazo durante el cual se sustancie la denuncia y hasta tres meses después de concluido el procedimiento.
+Artículo 83.—Aplicación directa de la ley contra el Hostigamiento Sexual en el empleo y la Docencia.
+En todo aquello no previsto, la ley contra el Hostigamiento Sexual en el Empleo y la Docencia N° 7476 del 3 de febrero de 1995, publicada en “La Gaceta” N° 45 del 3 de marzo de 1995, es de aplicación directa, conforme a lo preceptuado en el artículo 31.
+Los artículos del 78 al 82 del capítulo XIX actual, llevarán la numeración a partir del 84 y será el capítulo XX en lo que corresponda se hará la concordancia debida respecto al cambio de numeración en los capítulos.
