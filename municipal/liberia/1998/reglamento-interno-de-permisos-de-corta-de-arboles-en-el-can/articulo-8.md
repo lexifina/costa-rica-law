@@ -1,0 +1,1 @@
+Artículo 8°—La solicitud que no cumple con parte o la totalidad de los requisitos y por efectuada la prevención de rigor, si no se cumplen en el plazo de ocho días, la Municipalidad quedará facultada para archivar el expediente.

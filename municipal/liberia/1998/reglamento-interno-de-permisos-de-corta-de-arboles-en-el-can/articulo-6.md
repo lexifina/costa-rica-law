@@ -1,0 +1,1 @@
+Artículo 6°—Si a quien se autorice la explotación de madera no es el propietario del inmueble, el tercero deberá aportar autorización expresa de éste debidamente autenticada para esas labores así como cumplir con los procedimientos establecidos en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 13.—Los miembros de la comisión del medio ambiente deberán confeccionar un informe de los permisos otorgados durante el año ante el Concejo Municipal a más tardar el treinta de noviembre de cada año.
