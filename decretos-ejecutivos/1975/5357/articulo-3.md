@@ -1,0 +1,1 @@
+Artículo 3°—Durante la vigencia de este decreto, los particulares no podrán tramitar en los terrenos afectados, ninguna información posesoria, ni ejercer ningún acto de posesión dentro del Parque, de conformidad con los artículos 19 y 25 de la Ley Forestal.

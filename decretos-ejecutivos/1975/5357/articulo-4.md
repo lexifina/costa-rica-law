@@ -1,0 +1,1 @@
+Artículo 4°—Se encarga al Instituto Geográfico Nacional la interpretación de los límites descritos, de acuerdo con el avance cartográfico del mapa básico del país, la publicación de un mapa separado de este parque y la toma de nuevas fotos aéreas para la confección de un Mosaico Fotográfico actualizado.

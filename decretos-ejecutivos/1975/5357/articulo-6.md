@@ -1,0 +1,1 @@
+Artículo 6°—A fin de proteger el Parque creado por este decreto, los miembros de la Guardia de Asistencia Rural quedan investidos del carácter de guardabosques. Será responsabilidad suya ayudar al MAG en la protección del parque hasta tanto no se cree un cuerpo permanente de guardabosques residentes en el mismo.

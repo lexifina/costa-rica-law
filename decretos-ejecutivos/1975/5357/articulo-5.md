@@ -1,0 +1,1 @@
+Artículo 5°—La Procuraduría General de la República, dentro del mes siguiente a la publicación del presente decreto, levantará actas notariales de los actuales propietarios; ocupantes y precaristas de la zona.
