@@ -1,0 +1,1 @@
+Articulo 11.—Las personas que se nombren para integrar estos Concejos, así como el Intendente, durarán dos años en el desempeño de sus funciones, salvo que por negligencia, abandono del cargo u otro motivo calificado, considere el Poder Ejecutivo que procede su remoción. Los miembros de Concejo servirán el cargo ad-honórem.

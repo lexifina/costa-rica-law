@@ -1,0 +1,1 @@
+Artículo 6° — Los acuerdos y resoluciones que estos Concejos serán ejecutados, únicamente, por un funcionario de nombramiento del Poder Ejecutivo, el cual se llamará "Intendente", con los deberes y atribuciones que en materia municipal señalan las leyes a los Jefes Políticos
