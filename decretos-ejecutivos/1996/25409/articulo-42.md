@@ -1,0 +1,1 @@
+Artículo 42.- Siempre que en el presupuesto de las asociaciones figuren fondos provenientes de subvenciones, donaciones o contribuciones provenientes del Estado, de las instituciones públicas o de las municipalidades, la Contraloría General de la República puede ejercer las facultades de control y supervisión de conformidad con la Ley.

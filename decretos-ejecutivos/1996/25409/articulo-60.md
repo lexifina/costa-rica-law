@@ -1,0 +1,1 @@
+Artículo 60.- Corresponde a la Dirección determinar, por medio de su Área Legal y de Registro, de acuerdo con el artículo 31 de la Ley, cuáles asociaciones son representativas de la comunidad correspondiente. Hecha esa determinación, se deniega la inscripción en el Registro de cualquiera otra que solicite tal inscripción.

@@ -1,0 +1,3 @@
+CAPITULO VI
+De las uniones, federaciones y confederaciones
+Artículo 44.- Las asociaciones de desarrollo integral cuya área jurisdiccional está comprendida dentro del territorio que abarca una zona, pueden integrarse en Uniones Cantonales o de Zona, siempre que haya consenso por lo menos de la mitad de las asociaciones comprendidas dentro del mismo cantón o zona. La unión con otras asociaciones no hace perder a ninguna de ellas su propia individualidad y es nula toda cláusula que les coarte la libertad irrestricta de asociarse a la Unión. Los límites de las uniones lo conforman los límites de las asociaciones afiliadas.

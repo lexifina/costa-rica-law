@@ -1,0 +1,1 @@
+Artículo 47.- Las Uniones Cantonales o Zonales, las Federaciones y las Confederaciones, se rigen en lo aplicable por las normas relativas a las asociaciones de desarrollo integral, en cuanto a la constitución, funcionamiento y disolución.
