@@ -28,3 +28,4 @@ c) Que los cobros por utilizar obras o servicios concesionados se
 rijan por esta ley.
 d) Los demás derechos que estipula esta ley o los derivados del
 contrato de concesión.
+(NOTA DE SINALEVI: El artículo 1 aparte b) punto 8) de la Ley N° 8643 del 30 de junio de 2008, adicionará los incisos e) y f) a este numeral, a partir del día 17 de octubre de 2008, por lo que la respectiva adición será introducida a partir de la fecha indicada).

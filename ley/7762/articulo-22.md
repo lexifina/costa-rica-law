@@ -1,8 +1,2 @@
-ARTÍCULO 22.- Pago de los estudios
-La Secretaría Técnica o la Administración concedente, según
-corresponda, podrá cobrar el costo de los estudios que realice. En tal
-caso, deberá indicarse en el cartel respectivo y el adjudicatario de la
-concesión estará obligado a cancelar el costo de dichos estudios,
-juntamente con la garantía de cumplimiento. En caso de incumplimiento de
-esta obligación, el contrato se considerará resuelto y la Administración
-concedente podrá readjudicar la licitación.
+Artículo 22.- Pago de los estudios
+La Secretaría Técnica o la Administración concedente, según corresponda, podrá cobrar el costo de los estudios que realice. En tal caso, deberá indicarse en el cartel respectivo y el adjudicatario de la concesión estará obligado a cancelar el costo de dichos estudios, juntamente con la garantía de cumplimiento. En caso de incumplimiento de esta obligación, el contrato se considerará resuelto y la Administración concedente podrá readjudicar la licitación.
