@@ -50,7 +50,7 @@ Departamento Legal.
 De inmediato, el órgano instructor pondrá en conocimiento del
 concesionario, la causal de cancelación en que hubiera incurrido
 presuntamente y le otorgará un plazo que no podrá exceder de quince días
-naturales, a efecto de que ejerza su defensa y ofrezca la prueba que
+naturales , a efecto de que ejerza su defensa y ofrezca la prueba que
 estime pertinente.
 Ejercida la defensa o bien transcurrido el plazo fijado para ese
 efecto, se procederá a remitir el expediente al Consejo Técnico de
@@ -60,8 +60,8 @@ ordenar, en los casos en que se justifique, la evacuación de cualquier
 diligencia probatoria, con carácter de prueba para mejor proveer.
 Dictada la resolución de fondo, la parte afectada tendrá derecho a
 interponer recurso de apelación ante el Ministro de Transportes, dentro
-de los cinco días siguientes a su notificación. El expediente se remitirá
-inmediatamente al despacho del Ministro.
+de los cinco días siguientes a su notificación. El expediente se
+remitirá inmediatamente al despacho del Ministro.
 Recibido el expediente, se concederá una audiencia por cinco días a
 las partes, con el fin de que hagan las alegaciones que estimen
 pertinentes.
