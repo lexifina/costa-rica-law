@@ -14,3 +14,4 @@ Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-25 | la propia norma |
+| 2 | 2002-06-25 | Reglamento 4017 (2002-06-25) |
