@@ -1,0 +1,1 @@
+Artículo 104.—El tope de cemento de tubería de revestimiento intermedio o de producción, debe situarse a no menos de 200 m sobre la zona más superficial aislable o sobre el zapato de la tubería de revestimiento anterior.

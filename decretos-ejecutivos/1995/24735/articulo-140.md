@@ -1,0 +1,1 @@
+Artículo 140.—Las regulaciones para la instalación de campamentos permanentes en zonas endémicas, la asistencia médica y condiciones alimenticias del personal están comprendidas en el TITULO IX del presente Reglamento.

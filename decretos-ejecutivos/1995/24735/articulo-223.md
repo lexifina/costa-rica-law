@@ -1,0 +1,1 @@
+Artículo 223.—El MIRENEM aprobará la lista de bienes y servicios para exoneración del contratista, de conformidad con el artículo 49 de la Ley, que serán sometidos a la consideración del Ministerio de Hacienda para la respectiva exoneración de tributos generales y locales.

@@ -1,0 +1,2 @@
+Artículo 125.—Las pozas y sumideros, deberán taparse al término de la perforación para asegurar la protección del suelo y del agua freática y superficial. Las técnicas a utilizar, se seleccionarán en función de las condiciones geográficas de la ubicación y a la calidad de los fluidos y desechos que contengan.
+La técnica o técnicas seleccionadas para cada tipo de poza, deberán estar indicadas en el EIA y deberán garantizar la no degradación del suelo y del agua freática y superficial.

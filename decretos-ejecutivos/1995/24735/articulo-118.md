@@ -1,0 +1,1 @@
+Artículo 118.—Las zonas punzonadas, deben ser en lo posible cementadas a presión y aisladas con tapones mecánicos. Si no es posible la cementación, se deberá colocar un tapón de cemento cubriendo 50 m encima y debajo de la zona punzonada, o bajo el más cercano tapón si la distancia es menor de 50 m.

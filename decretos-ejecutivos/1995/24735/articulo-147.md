@@ -1,0 +1,1 @@
+Artículo 147.—Debe tenderse a la electrificación de las operaciones en los pozos e instalaciones de producción permanente. En forma preferente en las instalaciones temporales y de emergencia, se deberán usar motores eléctricos en lugar de los de combustión interna salvo que las condiciones no lo permitan.

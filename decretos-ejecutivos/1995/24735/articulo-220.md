@@ -1,0 +1,1 @@
+Artículo 220.—Cualquier otra infracción a las obligaciones legales y reglamentarias del Contratista se castigarán con multas mensuales, cuya suma podrá ser de hasta veinticinco mil ($ 25 000) dólares estadounidenses, sin perjuicio de lo establecido en el artículo 46 de la Ley.

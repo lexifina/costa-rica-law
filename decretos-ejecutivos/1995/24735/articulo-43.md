@@ -1,0 +1,1 @@
+Artículo 43.—El contratista deberá informarse debidamente sobre la posible existencia de H2S y C02 en la zona para desarrollar el Plan de Contingencia correspondiente que se indica en el artículo 65 del presente Reglamento.

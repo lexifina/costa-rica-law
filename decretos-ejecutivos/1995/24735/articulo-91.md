@@ -1,0 +1,1 @@
+Artículo 91.—Las instalaciones de superficie y subsuelo de un pozo completado deben ser tales que permitan la fácil medida de presión a través de las tuberías de revestimiento y de producción, presión de fondo y registros de producción del pozo.

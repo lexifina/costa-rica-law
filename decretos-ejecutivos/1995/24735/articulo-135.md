@@ -1,0 +1,1 @@
+Artículo 135.— El espaciamiento entre los pozos no debe ser más pequeño que el de la dimensión máxima área que puede ser eficientemente drenada por un pozo. Si durante el desarrollo del orden establecido de espaciamiento los pozos no producen al MEP, o existiera impedimento físico para su perforación, se podrá contemplar menor espaciamiento con la evaluación correspondiente.

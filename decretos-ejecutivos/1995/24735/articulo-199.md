@@ -1,0 +1,3 @@
+Artículo 199.—Si por alguna razón, el equipo de medición está fuera de servicio y/o imposibilitado de ser reparado, de manera que la cantidad de gas natural que se entregue no puede ser estimada o computada de las lecturas que se tengan hasta este momento, el gas natural entregado durante ese período, será estimado y aceptado por ambas partes, teniendo como base la mejor información disponible y usando uno de los siguientes métodos que sea factible:
+a) Usando el registro de cualquier equipo de control de medición, que estuviera instalado y que está registrando con suficiente exactitud.
+b) Estimando las cantidades que se entregan, por las entregadas durante períodos anteriores bajo condiciones similares, cuando el . equipo de medición estuvo registrando con exactitud.

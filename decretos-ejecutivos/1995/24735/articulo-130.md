@@ -1,0 +1,1 @@
+Artículo 130.—Si en algún momento durante la vigencia del contrato, la DGH considerara que un pozo o un grupo de pozos están siendo operados en condiciones que causan deterioro de sus reservas probadas, podrá ordenar el cierre de la producción de dichos pozos al contratista, hasta que este corrija o logre justificar la situación.

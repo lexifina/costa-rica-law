@@ -1,0 +1,1 @@
+Artículo 193.—Cuando se utilice sistemas de medición automática, el contratista deberá instalar dos medidores, uno de los cuales será el operativo y el otro será de reemplazo, estos deberán estar equipados con impresor de boletas de medición que proporcionará por escrito un registro diario del volumen de los hidrocarburos fiscalizados.

@@ -1,0 +1,1 @@
+Artículo 180.—Cuando se deba que reparar un pozo, servirlo, rehabilitarlo o acondicionarlo, se planeará el trabajo basado en el problema encontrado, condiciones que se quieren cambiar y comportamiento de los pozos vecinos y su influencia en el trabajo proyectado.

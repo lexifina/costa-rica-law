@@ -1,0 +1,2 @@
+Artículo 181.—En el cazo de que el contratista necesite efectuar trabajos de rehabilitación o reacondicionamiento a pozos que están ubicados dentro o sobre instalaciones de producción, deberá obtener la aprobación de la DGH para poder ejecutar dichas operaciones. La DGH deberá expedir su resolución dentro de los próximos 15 días de la recepción de la solicitud.
+La información que suministra el contratista para justificar la operación será como mínimo la contenida en los ítems "a" a "f" del artículo 49 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 121.—En caso de abandono permanente del pozo, se colocará un último tapón de 200 m hasta la superficie o por lo menos con el temporal podrá instalarse un tapón mecánico a 200 o 300 m del cabezal del pozo, en lugar del tapón de cemento.

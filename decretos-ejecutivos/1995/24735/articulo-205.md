@@ -1,0 +1,1 @@
+Artículo 205.—La información que sea requerida por el MIRENEM, para alimentar el banco de datos, deberá ser entregada por el contratista en los formularios cuyos modelos serán provistos por el MIRENEM.

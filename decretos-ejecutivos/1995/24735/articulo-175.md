@@ -1,0 +1,1 @@
+Artículo 175.—El contratista llevará un registro de la producción de hidrocarburos líquidos fiscalizados y de la producción de campo, con el fin de que su relación tienda a "I". Las desviaciones deberán ser explicadas en el informe mensual de producción.

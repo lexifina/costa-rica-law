@@ -1,0 +1,1 @@
+Artículo 279.—Todos los hidrocarburos que no puedan ser rehusados deberán ser quemados en una fosa de quema recubierta adecuadamente (si es necesario, se mezclarán con basura doméstica para asegurarse que ocurra una combustión completa).

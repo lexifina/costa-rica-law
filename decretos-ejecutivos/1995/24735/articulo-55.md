@@ -1,0 +1,1 @@
+Artículo 55.—Se prohibe fumar dentro de un radio de 50 m del pozo. Avisos en este sentido deben estar claramente visibles. Podrán hacerlo, de existir ambientes cerrados apropiados dentro de este radio, los que deben estar identificados con claridad.

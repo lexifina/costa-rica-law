@@ -1,0 +1,1 @@
+Artículo 69.—La supervisión de las operaciones de perforación, debe ser hecha en forma constante y permanente por personal experimentado en todos los niveles siguiendo al efecto un programa de turnos establecidos.

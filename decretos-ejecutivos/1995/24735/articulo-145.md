@@ -1,0 +1,1 @@
+Artículo 145.—Los equipos de producción artificial, deben tener la capacidad necesaria para producir el máximo volumen de fluido de los pozos, sin causar daño a las otras instalaciones, el reservorio o el propio pozo.

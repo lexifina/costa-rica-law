@@ -1,0 +1,1 @@
+Artículo 233.—El contratista deberá implementar un sistema de informes para accidentes laborales e incidentes. Mantendrá un informe mensual respecto al rendimiento en seguridad, donde se incluirán las estadísticas de accidentes e incidentes. Será responsable de mantener y promover la seguridad, ejecutará prácticas de emergencia y organizará reuniones de seguridad.

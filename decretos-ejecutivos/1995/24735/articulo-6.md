@@ -1,0 +1,1 @@
+Artículo 6°—El quórum para que pueda sesionar válidamente el Consejo, será como mínimo tres miembros, de los cuales uno deberá ser el Presidente o su suplente o el Vicepresidente, este último en ausencia de los dos primeros.

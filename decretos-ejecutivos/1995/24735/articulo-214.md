@@ -1,0 +1,1 @@
+Artículo 214.—Antes de que el contratista inicie la explotación de un pozo productivo, deberá solicitar a la Dirección General de Hidrocarburos la definición de la tasa máxima de eficiencia productiva (MEP) correspondiente.

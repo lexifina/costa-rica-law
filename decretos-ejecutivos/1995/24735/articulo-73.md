@@ -1,0 +1,1 @@
+Artículo 73.—Todos los equipos exhibirán un cuadro del programa de mantenimiento de sus componentes principales que indique los trabajos efectuados y pendientes hasta su reparación total ("overhaul"') o reemplazo.

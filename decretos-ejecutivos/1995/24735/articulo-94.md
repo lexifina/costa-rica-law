@@ -1,0 +1,1 @@
+Artículo 94.—La tubería de revestimiento, "casing", de superficie, debe ser instalada para proveer el soporte seguro a los BOP y al equipo que colgará del cabezal, y debe ser cementada en toda su longitud.

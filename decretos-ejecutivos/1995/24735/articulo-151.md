@@ -1,0 +1,1 @@
+Artículo 151.—Los separadores serán de presión adecuada a la de los fluidos que ingresen, tendrán elementos de control que eviten su inundación por líquidos, presión sorpresiva, alta temperatura. Su válvula de seguridad debe estar calibrada a la presión de diseño con disco de ruptura calibrado entre 1¼ a 1½ veces la presión de diseño.

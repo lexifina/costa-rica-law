@@ -1,0 +1,1 @@
+Artículo 54.—El equipo de perforación debe contar con unidades de primeros auxilios y de evacuación en el lugar de la perforación. De no ser esto posible, el equipo debe contar con personal especializado que permita la atención del personal, hasta que llegue la unidad de evacuación.

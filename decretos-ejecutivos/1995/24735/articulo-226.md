@@ -1,0 +1,1 @@
+Artículo 226.—Con base en el volumen bruto de la producción fiscalizada diariamente por campo de producción, se calculará la regalía correspondiente al Estado, utilizando la escala de regalías estipulada en la Ley.

@@ -1,0 +1,1 @@
+Artículo 100.—Toda cementación debe estar diseñada para permitir un tiempo adecuado de bombeo y de fraguado durante la operación y para proporcionar la necesaria resistencia a la tracción y compresión en el pozo.

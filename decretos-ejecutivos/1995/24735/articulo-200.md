@@ -1,0 +1,1 @@
+Artículo 200.—Con la finalidad de preservar la integridad, confiabilidad y seguridad de los equipos de fiscalización, el contratista deberá adoptar las acciones necesarias. Asimismo, la DGH se reserva el derecho de exigir la instalación de accesorios específicos para garantizar la inviolabilidad de los equipos de medición.

@@ -1,0 +1,1 @@
+Artículo 171.—Debe existir un programa de mantenimiento, de inspección y calibración de todos los instrumentos de la batería como: medidores, registradores, válvulas de control y de seguridad así como un programa de limpieza de los separadores y tanques.

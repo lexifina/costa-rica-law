@@ -1,0 +1,1 @@
+Artículo 188.—Basado en el informe indicado en el artículo anterior, el contratista mantendrá, para cada pozo, un registro de los servicios y reacondicionamientos efectuados en cada uno. En este registro, deberá mostrar al final la instalación y situación actualizada del pozo y deberá llevarse durante toda su vida productiva, hasta su abandono.

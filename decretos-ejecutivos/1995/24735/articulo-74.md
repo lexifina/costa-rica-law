@@ -1,0 +1,1 @@
+Artículo 74.—Deberá existir un registro de las inspecciones diarias, que incluye el informe a que se refiere el inciso e) del artículo 71, así como el registro de las inspecciones semanales y mensuales de los equipos involucrados.

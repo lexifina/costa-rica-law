@@ -1,0 +1,1 @@
+Artículo 168.—En caso de no haber obtenido todavía la aprobación para quemar gas, el contratista podrá hacerlo en los casos de evaluación de los pozos y de emergencia comprobada, sujeto a dar cuenta de este hecho en el tiempo más corto posible. En este caso se producirá la quema si hay flujo de gas por más de 10 minutos continuos.

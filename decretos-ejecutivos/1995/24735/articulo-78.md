@@ -1,0 +1,1 @@
+Artículo 78.—Cuando se atraviesen zonas que puedan resultar peligrosas son de aplicación las medidas contenidas en el Artículo 65 de este Reglamento, debiendo existir detectores de H2S cerca del pozo y en todo momento una válvula de cuadrante, "kelly valve", al alcance de la cuadrilla.

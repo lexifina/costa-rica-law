@@ -1,0 +1,1 @@
+Artículo 155.—Las baterías de producción deben tener un mínimo de dos tanques nivelados separados a una distancia mínima de 1 m, con capacidad mínima para un día de producción normal. Pueden tener incorporados controles de nivel para su vaciado automático.

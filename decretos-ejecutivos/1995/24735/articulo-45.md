@@ -1,0 +1,1 @@
+Artículo 45.—El contratista deberá utilizar el equipo de perforación adecuado para las condiciones operativas planeadas, el cual contará con capacidad en exceso para poder perforar y completar el pozo hasta su objetivo.

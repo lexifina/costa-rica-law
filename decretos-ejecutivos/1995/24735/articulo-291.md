@@ -1,0 +1,6 @@
+Artículo 291.—Son obligaciones de los beneficiarios de los cursos de capacitación:
+a) Suscribir formalmente un contrato de capacitación ante el Departamento de Asesoría Jurídica de la DGH, en el que se especificarán en detalle las obligaciones que ambas partes contraen. En el caso de modificaciones sustanciales, deberá firmarse un nuevo contrato o uno adicional al ya firmado con anterioridad.
+b) Adquirir un seguro de vida por el Instituto Nacional de Seguros por el período que dure la capacitación y por el monto de la misma, nombrando beneficiario del monto de la capacitación al MIRENEM.
+c) Rendir un informe escrito al COC en un plazo no mayor de 15 días hábiles, contados desde el momento de su regreso al país. Será responsabilidad del jefe inmediato velar por la correcta y oportuna remisión del mismo y queda facultado para imponer la sanción que crea del caso al empleado que no cumpla oportunamente con este requisito.
+d) Laborar para la Empresa a que pertenezca, o el Estado si fuere funcionario público, a tiempo completo o su equivalente en tiempo parcial, tres veces el lapso de tiempo de la capacitación. En caso de profesionales independientes deberán prestar servicio de asesoría gratuito al Estado por el lapso de tiempo antes indicado.
+e) No asistir a otra capacitación similar, hasta que transcurran seis meses de haber concluido la inmediata anterior.

@@ -1,0 +1,1 @@
+Artículo 111.—No deben iniciarse pruebas de producción en pozos exploratorios durante la noche. Tampoco deberán efectuarse de noche, operaciones de estimulación, fracturamiento hidráulico, acidificación, etc., que involucren equipos extras fuera de lo normal, en áreas restringidas.

@@ -1,0 +1,1 @@
+Artículo 244.—El uso, manejo y disposición de sustancias químicas, serán de acuerdo a los lineamientos del manejo seguro de sustancias químicas. Regularmente se realizará una revisión de la limpieza, la disposición de los desechos y los aspectos de salud del campamento.

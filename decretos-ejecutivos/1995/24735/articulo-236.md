@@ -1,0 +1,2 @@
+Artículo 236.—El contratista deberá implementar, normas y procedimientos para el uso del agua y otras operaciones relacionadas, como cruces de ríos. Estos procedimientos deberán incluir, como mínimo el siguiente equipo: proveer embarcaciones a motor, salvavidas y equipos de emergencia, incluido comunicaciones, luces de navegación y sistema de apagado de emergencia para motores fuera de borda.
+Deberán emitirse cartillas de instrucción con los procedimientos de seguridad.

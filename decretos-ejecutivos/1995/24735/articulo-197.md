@@ -1,0 +1,1 @@
+Artículo 197.—En caso de producirse gas natural en cantidades que ameriten su comercialización, las partes acordarán en el contrato el procedimiento para medición, fiscalización y control de calidad del gas natural.

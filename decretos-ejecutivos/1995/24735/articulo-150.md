@@ -1,0 +1,1 @@
+Artículo 150.—Las baterías de producción, deben estar diseñadas para soportar las características de la mezcla de fluidos que ingresen, ya sea previamente tratados o no, y a los volúmenes de gas y líquido de los pozos allí conectados.

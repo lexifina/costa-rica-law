@@ -1,0 +1,1 @@
+Artículo 131.—Completado el desarrollo de un yacimiento, el contratista presentará cada 6 meses un informe de evaluación respaldado por un estudio de simulación o técnico equivalente en que se demuestre que está siendo producido a niveles de MEP. Caso contrario, dará las indicaciones para que ésta se obtenga en el próximo período de evaluación.

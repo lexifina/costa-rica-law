@@ -1,0 +1,1 @@
+Artículo 143.—Todo pozo flotante en ubicación costa afuera o fluvial, debe tener una válvula de seguridad bajo los 30 m de superficie, que cierre en forma automática en el caso que ocurra descontrol en el cabezal del pozo.

@@ -1,0 +1,1 @@
+Artículo 225.—La medición diaria de los hidrocarburos provenientes del área de contrato se realizará en las terminales de fiscalización de cada campo de producción, para lo cual se llevará una contabilidad diaria por cada pozo perteneciente al campo respectivo.

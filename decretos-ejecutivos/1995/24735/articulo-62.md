@@ -1,0 +1,1 @@
+Artículo 62.—El control y panel maestro para operar los BOP deben estar ubicados a una distancia segura, lejos del pozo. Donde las condiciones lo garanticen, el perforador debe de tener un panel de control satélite a su alcance.

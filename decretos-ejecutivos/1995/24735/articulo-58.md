@@ -1,0 +1,1 @@
+Artículo 58.—El conjunto de BOP debe tener la capacidad adecuada al riesgo, la exposición y grado de protección necesarios para controlar la presión del pozo y proteger el ambiente. Sus bridas no pueden ser de menor rango que las especificadas por el API SPEC 6A, o la especificación que la reemplace o la ultima versión, y deben corresponder a las del cabezal del pozo.

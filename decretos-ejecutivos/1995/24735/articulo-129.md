@@ -1,0 +1,1 @@
+Artículo 129.—El contratista podrá explotar las sustancias asociadas a la exploración y explotación de los hidrocarburos, previa aprobación del MIRENEM y conforme con la legislación vigente en la materia.

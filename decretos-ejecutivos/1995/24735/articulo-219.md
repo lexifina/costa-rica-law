@@ -1,0 +1,1 @@
+Artículo 219.—Dentro del mismo plazo anterior, la persona jurídica multada, deberá hacer llegar al MIRENEM copia de la boleta (entero de Gobierno) de la multa correspondiente, en caso contrario se ejecutarán las acciones legales pertinentes.

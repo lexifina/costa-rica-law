@@ -1,0 +1,1 @@
+Artículo 23.—Una vez obtenido el informe de la Tributación, la Dirección General de Hidrocarburos requerirá al propietario o representante para que, dentro de diez días hábiles siguientes, manifieste si está dispuesto a vender, por el precio fijado, el bien que se necesita, a efecto de que comparezca al otorgamiento de la escritura de ley.

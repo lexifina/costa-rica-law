@@ -1,0 +1,1 @@
+Artículo 34.—En la medida de lo posible, la apertura de líneas sísmicas será de acuerdo a lo estipulado en el EIA y aprobado por el CONEIA. En esta actividad, deberá evitarse el corte de árboles, esto se podrá realizar únicamente con el permiso otorgado por la Dirección Forestal del MIRENEM, ajusfando la configuración del punto de disparo.

@@ -1,0 +1,1 @@
+Artículo 106.—Después de cementar la tubería de revestimiento de superficie o intermedia, debe efectuarse una prueba de calidad de la cementación si no han sido cementados en su longitud total. Después de cimentar la tubería de revestimiento de producción o liner, debe tomarse un registro de cementación o equivalente.

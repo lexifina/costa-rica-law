@@ -1,0 +1,1 @@
+Artículo 120.—En caso de que el tope del cemento no llegue a cubrir 100 m detrás de la tubería de revestimiento sobre la zona productiva en hueco abierto, la tubería de revestimiento será punzonada 100 m encima del zapato y cementada a presión con una columna que cubra 100 m adicionales en el espacio anular.

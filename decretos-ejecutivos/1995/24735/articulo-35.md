@@ -1,0 +1,1 @@
+Artículo 35.—Deberá efectuarse un reconocimiento previo al marcado de cada línea sísmica, para seleccionar la ruta que provoque el menor impacto dentro del corredor de flexibilidad en la ubicación de la línea sísmica.

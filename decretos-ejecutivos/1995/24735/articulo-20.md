@@ -1,0 +1,1 @@
+Artículo 20.—Se adjudicará la mejor oferta válida por acuerdo o por acto razonado con fundamento en el expediente administrativo. La adjudicación será notificada a todos los participantes por carta, télex, telegrama, facsímil o cualquier otro medio escrito que garantice el envío de la notificación.

@@ -1,0 +1,1 @@
+Artículo 163.—Las medidas de seguridad que debe adoptar el contratista en las plantas de gasolina y de gas natural se encuentran contenidas en los reglamentos de seguridad emitidas por el Ministerio de Trabajo y en el EIA aprobado por la CONEIA.

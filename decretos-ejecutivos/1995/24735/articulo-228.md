@@ -1,0 +1,1 @@
+Artículo 228.—Si la regalía se hace efectiva en dinero, su monto se calculará como el producto de los barriles correspondientes a la regalía, por el precio FOB promedio del crudo equivalente en grados API correspondiente a los días a los que se refiere la regalía. Este monto deberá ser depositado en el Ministerio de Hacienda.

@@ -1,0 +1,1 @@
+Artículo 231.—El contratista contará con asesor (es) de seguridad en las operaciones de campo. Las responsabilidades del asesor deberán incluir, como mínimo: mantenimiento, monitoreo, implementación de guías de seguridad y procedimientos en la brigada sísmica.

@@ -1,0 +1,1 @@
+Artículo 165.—Queda prohibido fumar a menos de 50 m del pozo, separadores, tanques y otras posibles fuentes de gas combustible no protegidas; así mismo queda prohibido el uso del fuego abierto a menos de 50 m de un pozo.

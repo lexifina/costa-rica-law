@@ -1,0 +1,1 @@
+Artículo 24.—Tratándose de servidumbre y de ser conforme el avalúo correspondiente, la Dirección General de Hidrocarburos concederá el derecho, la cual será inscrita de oficio en el Registro de Hidrocarburos.

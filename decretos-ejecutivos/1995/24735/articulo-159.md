@@ -1,0 +1,1 @@
+Artículo 159.—Las instalaciones de producción deben estar protegidas, por malla de alambre y puertas con candado si están ubicadas dentro de una distancia de 800 m de áreas habitadas, rurales o de esparcimiento. Si las baterías están más alejadas, por lo menos deberán tener valla de alambre y entrada de protección al ganado y fauna existente.

@@ -1,0 +1,1 @@
+Artículo 95.—En caso que el pozo atraviese algún acuífero dulce que sea o pueda ser utilizado en el futuro como fuente de agua, la tubería de revestimiento de superficie deberá instalarse cubriendo por lo menos 25 m bajo el acuífero.

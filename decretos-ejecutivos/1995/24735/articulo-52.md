@@ -1,0 +1,1 @@
+Artículo 52.—El sistema de iluminación, incluyendo cables eléctricos e interruptores deben ser del tipo a prueba de explosión siguiendo las normas API RP - 500 NFPA - 70 o las que las sustituyan en el futuro.

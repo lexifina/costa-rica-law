@@ -1,0 +1,1 @@
+Artículo 96. —Posteriormente que las tuberías de revestimiento han sido cementadas, deben ser probadas con presión igual a la presión interna que según los cálculos van a ser expuestas. La presión no debe exceder el 85% de la máxima presión interna de la tubería de revestimiento y debe ser mantenida por lo menos por 10 minutos.

@@ -1,0 +1,1 @@
+Artículo 77.—Debe existir un programa de entrenamiento para el personal que incluya simulacros semanales en el control de reventones. Todos los simulacros, incluyendo el indicado en el artículo 71 de este Reglamento, deben quedar registrados en el informe diario del perforador, al igual que cualquier actividad relacionada con el programa de seguridad.

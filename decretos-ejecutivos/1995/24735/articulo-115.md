@@ -1,0 +1,1 @@
+Artículo 115.—Cuando se proceda al abandono de un pozo, este deberá abandonarse con tapones de cemento o mecánicos, aislando aquellas partes en que no se haya puesto revestimiento o donde pudieran existir gases o fluidos.

@@ -1,0 +1,1 @@
+Artículo 123.— Si en el pozo por abandonar se hubiera encontrado la situación descrita en el artículo 93 de este Reglamento, el pozo se dejará habilitado para producir agua, taponado hasta el acuífero y éste, punzonado.

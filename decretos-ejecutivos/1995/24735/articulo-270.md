@@ -1,0 +1,1 @@
+Artículo 270.—Para las áreas contratadas mixtas con bloques tanto marinos como terrestres, el contratista deberá presentar 2 informes de EIA, uno para los bloques terrestres y otro para los bloques marinos, por separado.

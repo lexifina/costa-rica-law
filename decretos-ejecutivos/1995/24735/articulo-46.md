@@ -1,0 +1,1 @@
+Artículo 46.—El contratista deberá asegurarse que la empresa que ejecute la perforación tenga la experiencia, equipamiento y medios satisfactorios, para resolver los problemas previsibles en la perforación de pozos.

@@ -1,0 +1,1 @@
+Artículo 237.—El contratista deberá aplicar sus normas y procedimientos de seguridad para las operaciones con aeronaves. Incluirá tipos, logística, programa de vuelos, reporte de carga y monitoreo de operaciones. Publicará en todas la áreas de los campamentos, los procedimientos para casos de incendio.

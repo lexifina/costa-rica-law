@@ -1,0 +1,1 @@
+Artículo 136.—Se podrá perforar pozos a menos de 100 m de los linderos del área de contrato, si el yacimiento es común a dos contratistas vecinos y estos podrán celebrar un convenio para utilizar el desarrollo del campo común.

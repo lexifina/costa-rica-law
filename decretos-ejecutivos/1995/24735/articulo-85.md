@@ -1,0 +1,1 @@
+Artículo 85.—Los contratistas deberán establecer un plan de manejo de los desechos y desperdicios provenientes de sus operaciones sobre el mar, ríos o lagos, con el fin de evitar su contaminación, respetando lo dispuesto en el EIA y aprobado por la CONEIA.

@@ -1,0 +1,1 @@
+Artículo 173.—Los pozos se probarán en las baterías lo más seguido posible, de acuerdo con su importancia en el sistema. La prueba durará lo necesario para ser representativa de las características representativas del pozo. La norma mínima es de tres mediciones por pozo por mes.

@@ -1,0 +1,1 @@
+Artículo 275.—El personal será informado antes de iniciar la operación, sobre el significado de la región, lo que constituye un sitio arqueológico, cómo reconocer uno y el procedimiento adecuado para reportar un posible sitio arqueológico.

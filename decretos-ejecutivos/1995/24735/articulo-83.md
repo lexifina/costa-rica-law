@@ -1,0 +1,1 @@
+Artículo 83.—El contratista deberá cumplir también con las normas de seguridad para las actividades de hidrocarburos, en lo referente al uso de implementos de protección personal y en el manipuleo de equipos y herramientas.
