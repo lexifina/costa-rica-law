@@ -1,0 +1,1 @@
+Artículo 2°-Es igualmente obligatorio para las Instituciones Autónomas, Ministerios y Municipalidades que realicen obras o reparaciones en las vías públicas, poner señales día y noche con pintura reflectiva y faroles, a distancias adecuadas para evitar accidentes.
