@@ -1,1 +1,2 @@
-Artículo 13.—Solamente serán reconocidos como inquilinos permanentes aquellas personas favorecidas con las adjudicaciones, que hayan firmado el contrato respectivo y que se encuentren al día en el pago del valor del arrendamiento.
+Artículo 13.—Serán inquilinos de un mercado municipal aquellos favorecidos con la respectiva adjudicación que hayan firmado el contrato respectivo. En el evento de subarriendo no autorizado, para todos los efectos legales se tendrá por inquilino al subarrendatario.
+(Así reformado mediante sesión N° 230 del 11 de diciembre de 1975).
