@@ -1,0 +1,1 @@
+Artículo 18.—Para el cobro de indemnizaciones civiles provenientes de injuria ó calumnia cometidos por medio de la prensa, que hubiere de efectuarse contra el propietario de un establecimiento tipográfico, se tendrá la acreencia respectiva como privilegiada, respecto de cualquier clase de crédito contra el periódico, la imprenta, mobiliario y demás enseres de la empresa.

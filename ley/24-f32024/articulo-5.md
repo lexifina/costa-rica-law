@@ -1,0 +1,1 @@
+Artículo 5.—La responsabilidad penal ó civil consiguiente á una publicación anónima, ó que por tal deba tenerse, recae sobre el editor de la publicación, ó sobre el dueño del establecimiento tipográfico donde el escrito se hubiere impreso, solidariamente.
