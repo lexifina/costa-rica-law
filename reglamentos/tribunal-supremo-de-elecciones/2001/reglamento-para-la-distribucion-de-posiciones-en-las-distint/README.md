@@ -14,3 +14,4 @@ Reglamento para la distribución de posiciones en las distintas papeletas para l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-22 | la propia norma |
+| 2 | 2002-06-08 | Reglamento 7 (2002-06-08) |
