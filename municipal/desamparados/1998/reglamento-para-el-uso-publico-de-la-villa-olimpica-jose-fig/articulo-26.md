@@ -1,0 +1,1 @@
+Artículo 26.—Levantar las investigaciones correspondientes por los daños ocasionados en las instalaciones deportivas, sentar las responsabilidades que cupieren y realizar las gestiones, a través de la Junta Directiva, de los cobros correspondientes a las reparaciones debidas.

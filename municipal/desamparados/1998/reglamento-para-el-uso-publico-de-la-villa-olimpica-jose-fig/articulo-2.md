@@ -1,0 +1,1 @@
+Artículo 2°—El presente reglamento regula el uso público de la Villa Olímpica José Figueres Ferrer. Será obligatorio su uso y acatamiento tanto para visitantes como para funcionarios de la Asociación Deportiva Juegos Nacionales Desamparados Mil Novecientos Noventa y Siete.

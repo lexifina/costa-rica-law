@@ -1,0 +1,1 @@
+Artículo 31.—Portar el comprobante de pago, el cual deberá presentar cada vez que ingrese a las instalaciones o bien estar autorizado por la organización que promueve el programa debiendo aparacer su nombre en las listas correspondientes.

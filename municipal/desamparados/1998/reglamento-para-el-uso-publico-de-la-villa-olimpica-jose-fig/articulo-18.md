@@ -1,0 +1,1 @@
+Artículo 18.—Las personas a quienes se les descubra en actos de vandalismo serán remitidos directa e inmediatamente a las autoridades pertinentes, además se les prohibirá el ingreso a la villa e instalaciones deportivas.

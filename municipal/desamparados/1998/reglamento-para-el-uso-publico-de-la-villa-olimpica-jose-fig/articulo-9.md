@@ -1,0 +1,1 @@
+Artículo 9°—Los vehículos dentro de la villa no podrán exceder el límite de velocidad máxima permitida, la cual será de 20 kilómetros por hora. El conductor acatará las disposiciones de la Ley de Tránsito. Existen zonas de acceso restringido para el tránsito de vehículo dentro de la villa.

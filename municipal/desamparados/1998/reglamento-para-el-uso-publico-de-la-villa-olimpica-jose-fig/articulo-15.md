@@ -1,0 +1,1 @@
+Artículo 15.—Se permitirá el ingreso de animales domésticos dentro de la villa, siempre y cuando estén debidamente atados a una correa, siendo el dueño el único responsable en caso de algún accidente.

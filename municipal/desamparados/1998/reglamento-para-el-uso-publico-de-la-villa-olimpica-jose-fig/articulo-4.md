@@ -1,0 +1,1 @@
+Artículo 4°—Las organizaciones comunales, instituciones públicas o privadas deberán velar y acatar las disposiciones establecidas en este reglamento y además ser vigilantes para que los grupos a su cargo cumplan con las normas enmarcadas en este reglamento.

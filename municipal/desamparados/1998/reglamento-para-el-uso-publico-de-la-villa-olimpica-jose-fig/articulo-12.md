@@ -1,0 +1,1 @@
+Artículo 12.—No se permite dentro de la villa o cualquiera de sus instalaciones deportivas la venta de licores, cerveza, cigarros o drogas estupefacientes. Además no se permitirá el ingreso y permanencia de personas en estado de embriaguez o bajo el estímulo de drogas dentro de la villa, pudiendo ser expulsado por los miembros de seguridad interna o con la Fuerza Pública.

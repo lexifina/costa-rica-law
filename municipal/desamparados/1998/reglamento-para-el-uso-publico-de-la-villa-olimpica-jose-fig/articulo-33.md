@@ -1,0 +1,1 @@
+Artículo 33. — Guardar el debido respeto y acatamiento de las disposiciones dictadas en el presente instructivo, así como aquellos que en forma verbal o escrita se hagan de conocimiento por parte de los funcionarios autorizados por la administración.

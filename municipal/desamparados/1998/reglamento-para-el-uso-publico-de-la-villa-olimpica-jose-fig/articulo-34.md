@@ -1,0 +1,1 @@
+Artículo 34. — Todo usuario que ingrese y utilice las instalaciones de las piscinas, lo hará bajo su riesgo y responsabilidad por lo que la Asociación Deportiva Juegos Nacionales se libera de toda responsabilidad ante los daños o accidentes dentro y fuera de las instalaciones.

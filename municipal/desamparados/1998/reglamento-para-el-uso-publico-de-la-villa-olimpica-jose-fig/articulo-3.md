@@ -1,0 +1,1 @@
+Artículo 3°—El incumplimiento por parte del visitante del presente reglamento o de las directrices que emitan los funcionarios facultará a estos o a la administración de la Villa Olímpica a expulsar, detener o denunciar ante las autoridades pertinentes.

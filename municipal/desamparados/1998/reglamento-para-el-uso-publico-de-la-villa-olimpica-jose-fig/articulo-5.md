@@ -1,0 +1,1 @@
+Artículo 5°—La atención al público será de las 8,00 horas a las 16,00 horas, de lunes a viernes. El horario de funcionamiento de las instalaciones deportivas será de las 7,00 horas a las 18,00 horas. Fuera de estas horas no será permitido la estadía de ningún usuario, sin autorización previa de la administración.

@@ -1,0 +1,1 @@
+Artículo 8°—Toda basura o desecho que produzca el usuario durante su estadía en la Villa Olímpica, deberá ser depositada en los basureros ubicados en diferentes puntos estratégicos definidos por la Administración de la Villa, pudiendo ser expulsado el visitante que incumpla esta obligación.

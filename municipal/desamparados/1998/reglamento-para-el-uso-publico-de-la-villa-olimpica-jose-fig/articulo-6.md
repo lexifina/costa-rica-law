@@ -1,0 +1,1 @@
+Artículo 6°—No se permitirá en la Villa Olímpica actos o comportamientos que atenten contra la moral o las buenas costumbres de la sociedad, o que perturben la armonía que debe privar en las instalaciones deportivas.

@@ -1,0 +1,1 @@
+Artículo 30.—Todo participante deberá hacer el pago correspondiente de los derechos a cursos de natación. El pago se hará ante el contador o persona autorizada por la Administración y no será válido ningún pago efectuado en omisión de lo aquí dispuesto.
