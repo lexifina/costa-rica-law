@@ -1,0 +1,1 @@
+Artículo 3°—Las normas anteriores se aplicarán siempre y cuando las empresas comercializadoras de banano hayan adelantado la suma de dinero para hacer el pago de las indemnizaciones y derechos laborales totales a los mencionados trabajadores.

@@ -1,0 +1,1 @@
+Artículo 2°—El porcentaje de CEB que se destine de conformidad con el artículo anterior y para cada trimestre deberá ser igual al porcentaje de CEB que se hayan asignado a Tica Frutera, S. A., y a Compañía Bananera Finca Uno, S. A., en la última asignación trimestral en que estas empresas hayan participado.
