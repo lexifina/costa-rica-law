@@ -1,0 +1,2 @@
+Artículo 3º—Todos aquellos funcionarios de la anterior Comisión Técnica de Transportes y de la Dirección General de Transporte Público, que no pasaren a laborar al Consejo de Transporte Público, serán distribuidos en aquellos órganos del Ministerio de Obras Públicas y Transportes que requieran personal, para ejercer funciones acordes con las de sus puestos en propiedad. En aquellos casos donde no sea posible su reubicación, se procederá al pago de las indemnizaciones que correspondan.
+Rige a partir de su publicación.

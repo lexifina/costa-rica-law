@@ -1,0 +1,2 @@
+Artículo 2º—A partir de la vigencia del presente Decreto, la Comisión Técnica de Transportes cesará definitivamente en su funcionamiento.
+Con el cese de funciones de dicha comisión, su Secretaría Ejecutiva se avocará a enlistar los asuntos listos para resolver, y remitirlos sin mayor dilación al Consejo de Transporte Público. Para todos los efectos, se dispondrá de un plazo máximo de treinta días naturales, improrrogables.
