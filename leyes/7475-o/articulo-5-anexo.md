@@ -1,0 +1,4 @@
+SEGUNDO ANEXO SOBRE SERVICIOS FINANCIEROS
+1.- No obstante las disposiciones del artículo II del Acuerdo y de los párrafos 1 y 2 del Anexo sobre Exenciones de las Obligaciones del Artículo II, durante un período de 60 días que empezará cuatro meses después de la fecha de entrada en vigor del Acuerdo sobre la OMC un Miembro podrá enumerar en dicho Anexo las medidas relativas a los servicios financieros que sean incompatibles con el párrafo 1 del artículo II del Acuerdo.
+2.- No obstante las disposiciones del artículo XXI del Acuerdo, durante un período de 60 días que empezará cuatro meses después de la fecha de entrada en vigor del Acuerdo sobre la OMC un Miembro podrá mejorar, modificar o retirar la totalidad o parte de los compromisos específicos en materia de servicios financieros consignados en su Lista.
+3.- El Consejo del Comercio de Servicios establecerá el procedimiento necesario para la aplicación de los párrafos 1 y 2.

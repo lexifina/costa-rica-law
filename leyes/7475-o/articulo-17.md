@@ -1,0 +1,6 @@
+Artículo XVII
+Trato nacional
+1.- En los sectores inscritos en su Lista y con las condiciones y salvedades que en ella puedan consignarse, cada Miembro otorgará a los servicios y a los proveedores de servicios de cualquier otro Miembro, con respecto a todas la medidas que afecten al suministro de servicios, un trato no menos favorable que el que dispense a sus propios servicios similares o proveedores de servicios similares (10).
+* (10) No se interpretará que los compromisos específicos asumidos en virtud del presente artículo obligan a los Miembros a compensar desventajas competitivas intrínsicas que resulten del carácter extranjero de los servicios o proveedores de servicios pertinentes.
+2.- Todo Miembro podrá cumplir lo prescrito en el párrafo 1 otorgando a los servicios y proveedores de servicios de los demás Miembros un trato formalmente idéntico o formalmente diferente al que dispense a sus propios servicios similares y proveedores de servicios similares.
+3.- Se considerará que un trato formalmente idéntico o formalmente diferente es menos favorable si modifica las condiciones de competencia en favor de los servicios o proveedores de servicios del Miembro en comparación con los servicios similares o los proveedores de servicios similares de otro Miembro.

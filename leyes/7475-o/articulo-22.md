@@ -1,0 +1,8 @@
+PARTE V
+DISPOSICIONES INSTITUCIONALES
+Artículo XXII
+Consultas
+1.- Cada Miembro examinará con comprensión las representaciones que pueda formularle otro Miembro con respecto a toda cuestión que afecte al funcionamiento del presente Acuerdo y brindará oportunidades adecuadas para la celebración de consultas sobre dichas representaciones. Será aplicable a esas consultas el Entendimiento sobre Solución de Diferencias (ESD).
+2.- A petición de un Miembro, el Consejo del Comercio de Servicios o el Organo de Solución de Diferencias (OSD) podrá celebrar consultas con uno o más Miembros sobre toda cuestión para la que no haya sido posible hallar una solución satisfactoria por medio de las consultas previstas en el párrafo 1.
+3.- Ningún Miembro podrá invocar el artículo XVII en virtud del presente artículo o en virtud del artículo XXIII con respecto a una medida de otro Miembro que esté comprendida en el ámbito de un acuerdo internacional entre ellos destinado a evitar la doble imposición. En caso de desacuerdo entre los Miembros en cuanto a que la medida esté o no comprendida en el ámbito de tal acuerdo entre ambos, cualquiera de ellos podrá plantear esta cuestión ante el Consejo del Comercio de Servicios (11). El Consejo someterá la cuestión a arbitraje. La decisión del árbitro será definitiva y vinculante para los Miembros.
+* (11) Con respecto a los Acuerdos destinados a evitar la doble imposición vigentes en la fecha de entrada en vigor del Acuerdo sobre la OMC, esa cuestión únicamente podrá plantearse ante el Consejo del Comercio de Servicios con el consentimiento de ambas partes en tal acuerdo.

@@ -1,0 +1,6 @@
+ANEXO RELATIVO A LAS NEGOCIACIONES SOBRE SERVICIOS DE TRANSPORTE MARITIMO
+1.- El artículo II y el Anexo sobre Exenciones de las Obligaciones del Artículo II, incluida la prescripción de enumerar en el Anexo toda medida incompatible con el trato de la nación más favorecida que mantenga un Miembro, sólo entrarán en vigor con respecto al transporte marítimo internacional y servicios auxiliares y al acceso a las instalaciones portuarias y utilización de las mismas:
+a) en la fecha de aplicación que se ha de determinar en virtud del párrafo 4 de la Decisión Ministerial relativa a las negociaciones sobre servicios de transporte marítimo; o
+b) en caso de no tener éxito las negociaciones, en la fecha del informe final del Grupo de Negociación sobre Servicios de Transporte Marítimo previsto en dicha Decisión.
+2.- El párrafo 1 no será aplicable a ningún compromiso específico sobre servicios de transporte marítimo que esté consignado en la Lista de un Miembro.
+3.- No obstante las disposiciones del artículo XXI, después de la conclusión de las negociaciones a que se refiere el párrafo 1 y antes de la fecha de aplicación, cualquier Miembro podrá mejorar, modificar o retirar la totalidad o parte de sus compromisos específicos en este sector sin ofrecer compensación.
