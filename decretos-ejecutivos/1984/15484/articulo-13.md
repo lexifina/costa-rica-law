@@ -1,0 +1,1 @@
+Artículo 13°- La tabla del artículo anterior se revisará anualmente en el mes de abril por la Comisión de Zonaje e Incentivo por Regionalización del MAG para que sus recomendaciones, previa modificación del presente Reglamento, rijan a partir del primero de enero del año siguiente.
