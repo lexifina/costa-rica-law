@@ -15,3 +15,4 @@ Reglamento de Junta Directiva
 | 1 | 1984-03-21 | la propia norma |
 | 2 | 1998-05-25 | Reglamento 0 (1998-05-25) |
 | 3 | 2001-07-02 | Reglamento 3879 (2001-07-02) |
+| 4 | 2002-08-19 | Reglamento 3995 (2002-08-19) |
