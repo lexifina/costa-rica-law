@@ -1,0 +1,1 @@
+Art 11° Cada distrito tendrá un médico, y a falta de este un empírico autorizado, tendrá, además, un boticario y un hospital provisto de competentes medicamentos, sustancias alimenticias y abrigos de lana, todo destinado para el socorro gratuito de los pobres, y oneroso para aquellos que manifiestamente tuviesen medios de indemnizar su valor.
