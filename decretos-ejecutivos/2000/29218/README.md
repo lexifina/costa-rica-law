@@ -14,3 +14,4 @@ Declaratoria de Estado de Emergencia Nacional por la Plaga Cuarentenal Broca del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-12-28 | la propia norma |
+| 2 | 2001-02-27 | Decreto Ejecutivo 29356 (2001-02-27) |
