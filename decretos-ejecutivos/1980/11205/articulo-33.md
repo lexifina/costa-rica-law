@@ -1,0 +1,3 @@
+Artículo 33.—El servidor que por dolo o complacencia marque tarjetas que no le correspondan, se hará acreedor, por la primera vez, a una suspensión hasta por dos días y en la segunda hasta por ocho días. Por la tercera, despido. La misma sanción se le aplicará al servidor que se le compruebe haber consentido que otro le marcara su tarjeta.
+No obstante, lo dispuesto en los dos párrafos anteriores, no se considerará como falta si el servidor que marcó la tarjeta de otro por error evidente o aquel a quien le marcaron la suya, informe el hecho ante la Oficina de Personal a más tardar en la jornada siguiente a aquella en que se cometió el error.
+Estas faltas se computarán para efectos de reincidencia en un lapso de tres meses.

@@ -1,0 +1,2 @@
+Artículo 32.—Salvo los casos previstos de este Reglamento, la omisión de marcar en la tarjeta a cualquiera de las horas de entrada o de salida hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el trabajador no lo justifique a más tardar en la fracción de jornada siguiente a' aquella en la que el hecho sucedió.
+De la omisión de marca se podrá presentar excusa inmediata ante la Oficina de Personal quien la reclazará o aceptará según el caso.

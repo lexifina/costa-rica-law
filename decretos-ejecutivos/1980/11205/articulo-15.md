@@ -1,0 +1,3 @@
+CAPITULO IV
+Categoría y Salarios
+Artículo 15.—Los sueldos de los servidores, en ningún caso podrán ser inferiores a los mínimos legales establecidos por el Estado y serán los que correspondan según la Ley de Presupuesto Nacional, de conformidad con el sistema oficial de retribución que establece la Ley de Salarios de la Administración Pública o en si caso, según los presupuestos que autoricen leyes especiales. Los pagos se realizarán en las oficinas del Ministerio de Relaciones Exteriores y Culto, en las fechas que establezca la Pagaduría Nacional para los servidores pagados por medio de esas oficinas o en las fechas que determine la dependencia autorizada en los demás casos.

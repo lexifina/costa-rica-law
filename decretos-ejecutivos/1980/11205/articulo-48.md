@@ -1,0 +1,1 @@
+Artículo 48.—Para casos muy calificados no contemplados en este Reglamento ni en el Estatuto de Servicio Civil y su Reglamento, queda a juicio del Director y el respectivo jefe del departamento, justificar ausencias que no sean por enfermedad comprobada, sin que ello signifique obligación el pago del salario.

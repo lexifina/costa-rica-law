@@ -1,0 +1,2 @@
+Artículo 20.—Los servidores del Ministerio deberán gozar sin interrupción de su periodo anual de vacaciones y sólo podrán dividirse en dos o tres fracciones como máximo, cuando se trate de labores de índole especial que no permitan una ausencia prolongada del servidor.
+También las vacaciones podrán acumularse por una sola vez, mediante resolución razonada de la Dirección Administrativa, únicamente en caso de necesidad y que se produzcan dentro de las limitaciones contempladas en el artículo 159 del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 42.—El servidor que diera mérito para la aplicación de una cuarta suspensión, en un período de tres meses, contando a partir del día en que se impuso la primera de dichas sanciones, será despedido del trabajo, considerándosele la reincidencia como falta grave a sus obligaciones.

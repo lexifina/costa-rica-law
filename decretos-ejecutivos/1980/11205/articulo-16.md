@@ -1,0 +1,1 @@
+Artículo 16.—Al acordarse un recargo total de funciones el empleado sustituto tendrá derecho a recibir el sueldo de base del puesto de categoría superior si fuere mayor. Dentro de los supuestos de la Ley de Salarios de la Administración Pública.

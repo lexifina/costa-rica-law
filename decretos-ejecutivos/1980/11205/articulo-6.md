@@ -1,0 +1,4 @@
+Artículo 6°—En caso de los servidores excluidos de dicha relación estatutaria, sus contratos de trabajo podrán ser:
+a) Por tiempo indefinido, que se celebrarán con aquellos servidores indispensables para satisfacer necesidades propias y permanentes del Ministerio;
+b) Por tiempo determinado o a plazo fijo, que se celebrarán con los servidores contratados temporalmente en razón de la naturaleza del servicio que se va a prestar o por sustitución temporal de servidores regulares que se encuentren en disfrute de licencia o vacaciones, así como en aquellos casos excepcionales en que su celebración resulte procedente conforme a la naturaleza del servicio que se va a prestar.
+c) Por obra determinada, que se celebrarán para satisfacer necesidades que eventualmente se presentaren y, en el cual sin previa fijación de tiempo, el objeto de la prestación personal del servicio subordinado, será la misma obra producida.

@@ -1,0 +1,1 @@
+Artículo 9°—Los servidores gozarán de un descanso de cuarenta y cinco minutos para el disfrute del almuerzo, que podrán hacerlo efectivo desde las 11,00 a.m. hasta la 1,30 p.m., según lo adecúe la dirección respectiva
