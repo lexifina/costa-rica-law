@@ -1,0 +1,1 @@
+Artículo 7°—La Bitácora debe conservarse permanentemente en el sitio de la concesión, proyecto u obra. A ella tendrá acceso la Fiscalía del Colegio, y su no presencia constituirá un acto violatorio al ejercicio profesional.

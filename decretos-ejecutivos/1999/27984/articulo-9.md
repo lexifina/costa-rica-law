@@ -1,0 +1,2 @@
+Artículo 9°—Se establece el cupón de Registro de la Bitácora de actividades geológicas, el cual se cancelara al adquirir dicho documento. El valor de este cupón se establecerá por la Asamblea General del Colegio, considerando que el mismo pretende cubrir los costos que se deriven de su adquisición, legalización y administración.
+Para tal efecto la Junta directiva propondrá un monto a discutir a la Asamblea General, quién en última instancia decidirá si lo acepta o modifica.
