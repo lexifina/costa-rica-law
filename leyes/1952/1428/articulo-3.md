@@ -1,0 +1,1 @@
+Artículo 3º.- La Procuraduría General de la República, previa autorización del Ministerio de Economía y Hacienda, procederá a gestionar ante el Juzgado Civil de Hacienda, el remate de aquellos bienes muebles o inmuebles que habiendo pertenecido a personas intervenidas pasaron a poder del Estado, como consecuencia de los fallos del Tribunal de Probidad, y que no sean necesarios.
