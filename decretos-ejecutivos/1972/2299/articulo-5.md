@@ -1,0 +1,1 @@
+Artículo 5-El objetivo de los CERN y CEN es mejorar el estado nutricional de mujeres embarazadas, madres en período de lactancia, niños lactantes y preescolares, y cumplirán sus funciones de acuerdo a normas técnico-administrativas emanadas del Departamento de Nutrición y estarán administrados por el “Comité Local”.

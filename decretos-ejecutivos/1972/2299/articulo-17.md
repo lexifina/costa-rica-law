@@ -1,0 +1,2 @@
+Reuniones de los Comités
+Artículo 17.-El Comité Nacional, los Comités Regionales y los Comités Locales deberán reunirse ordinariamente, como mínimo una vez al mes en el local del CEN o CERN a la hora y día que señala el Presidente y extraordinariamente cuando así lo acuerde éste. El quórum lo formarán cuatro miembros y los acuerdos se tomarán por simple mayoría de los presentes. En caso de empate el Presidente tendrá doble voto.

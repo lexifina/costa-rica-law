@@ -1,0 +1,1 @@
+Artículo 27. -Los libros de actas y de tesorería que deben llevar los Comités, podrán ser revisados en cualquier momento por el personal técnico del Departamento de Nutrición, el Director de la Unidad Sanitaria o el de la Unidad Móvil ,correspondiente o en defecto el Jefe del Distrito Sanitario así como por auditores del Ministerio.

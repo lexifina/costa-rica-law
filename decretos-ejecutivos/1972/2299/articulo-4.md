@@ -1,0 +1,1 @@
+Artículo 4. -Con la finalidad de colaborar en los aspectos financieros y administrativos del “PROGRAMA”, se organizará a nivel central, regional y local, el “Comité Nacional”, los “Comités Regionales” y los “Comités Locales”, respectivamente.

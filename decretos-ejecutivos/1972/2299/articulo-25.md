@@ -1,0 +1,1 @@
+Artículo 25.-Es recomendable que todo niño que asista al Comedor de los Centros tenga control médico periódico en la Unidad Sanitaria correspondiente, para la evaluación de su estado nutricional, vacunación, desparasitación y control de otros padecimientos.
