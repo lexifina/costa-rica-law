@@ -17,3 +17,4 @@ Reglamento Para el Pago de la Contribución al Instituto Nacional de Aprendizaje
 | 2 | 1987-03-16 | Reglamento 2389 (1987-03-16) |
 | 3 | 1996-01-22 | Reglamento 3317 (1996-01-22) |
 | 4 | 1997-01-10 | Reglamento 0 (1997-01-10) |
+| 5 | 2003-05-07 | Reglamento 0 (2003-05-07) |
