@@ -1,0 +1,1 @@
+7) Todas las mociones, inclusive las de orden, serán conocidas en el orden de presentación y llevarán anotadas la hora y fecha en que se recibieron. Asimismo, la correspondencia y dictámenes de las comisiones.
