@@ -1,11 +1,7 @@
-Artículo 11.- La cabida de las fincas inscritas con anterioridad al
-23 de octubre de 1930 podrán ser rectificadas sin necesidad de expediente
-por la sola declaración hecha por el propietario en escritura pública,
-hasta en un 40% de la cabida primitiva, en las fincas no mayores de cinco
-hectáreas; hasta en un 25% de la cabida primitiva en las fincas mayores de
-cinco hectáreas pero no mayores de treinta; y hasta en un 10% de la cabida
-primitiva en las fincas de más de treinta hectáreas, siempre que el
-Notario o Cartulario dé fe de que la nueva medida es la que acusa un plano
-levantado y firmado por un ingeniero incorporado en el Colegio de
-Ingenieros y visado por la Oficina de Catastro. Esta rectificación en
-ningún caso perjudicará a terceros.
+ARTÍCULO 11.- El Juez podrá cuando lo crea conveniente, ordenar
+todas aquellas diligencias que estime necesarias para comprobar la
+veracidad de los hechos a que se refiere la información. Rechazará la
+misma si llegare a constatar que se pretende titular indebidamente
+baldíos nacionales o terrenos pertenecientes a cualquier institución del
+Estado, lo mismo que reservas forestales, parques nacionales o reservas
+biológicas.

@@ -1,15 +1,6 @@
-Artículo 7º.- Si algún interesado se opusiere, se suspenderá el
-curso del expediente y se remitirá a las partes al juicio declarativo.
-Según lo que decida la sentencia definitiva de ese juicio, se continuará
-el expediente de información posesoria o se sobreseerá en él.
-Pero si pasados treinta días desde que el Juez ordene la suspensión,
-no se presentare demanda alguna, el Juez, a petición de parte, continuará
-la tramitación del expediente en la forma establecida en esta ley. La
-demanda deberá presentarse ante el juez competente; y si éste no fuere el
-mismo ante quien se pidió la información, deberá comunicársele el hecho de
-la presentación de la demanda, para que se ordene la suspensión de los
-procedimientos respectivos.
-Tratándose de oposición formulada por el Estado, se suspenderá el
-curso del expediente, mientras en juicio ordinario, promovido por el
-particular interesado, no se declare el buen derecho de éste para promover
-la respectiva información posesoria.
+ARTÍCULO 7º.- Cuando el inmueble al que se refiera la información esté comprendido dentro de un área silvestre protegida, cualquiera que sea su categoría de manejo, el titulante deberá demostrar ser el titular de los derechos legales sobre la posesión decenal, ejercida por lo menos con diez años de antelación a la fecha de vigencia de la ley o decreto en que se creó esa área silvestre.
+Las fincas ubicadas fuera de esas áreas y que tengan bosques, sólo podrán ser tituladas si el promoviente demuestra ser el titular de los derechos legales de posesión decenal, ejercida por lo menos durante diez años y haber protegido ese recurso natural, en el entendido de que el inmueble tendrá que estar debidamente deslindado y con cercas o carriles limpios.
+(NOTA: Sobre titulación de tierras ubicadas en reservas nacionales, véase además el artículo 8º de la ley No.7599 de 29 de abril de 1996, el cual fue declarado inconstitucional por la Resolución No.2988-99 de 23 de abril de 1999)
+Sin excepción alguna, los planos catastrados que se aporten en diligencias de información posesoria, deberán ser certificados por el Ministerio del Ambiente y Energía, por medio del ente encargado, el cual dará fe de si el inmueble que se pretende titular se encuentra dentro o fuera de esas áreas silvestres protegidas.
+(Así reformado por el artículo 72, inciso c), de la Ley Forestal No.7575 del 13 de febrero de 1996).
+(La Sala Constitucional mediante resolución N° 4587 del 05 de agosto de 1997, declaró inconstitucional la interpretación de este artículo, según la que, “para titular terrenos comprendidos en parques nacionales, reservas biológicas, reservas forestales o zonas protectoras, se requiere posesión personal con diez años de antelación a la fecha de vigencia de la ley o el decreto que crea el área silvestre protegida, y que no favorece en estos casos la posesión transmitida por anteriores poseedores.”)

@@ -1,11 +1,9 @@
-Artículo 4º.- Recibido el escrito en que se promueva la justificación
-de la posesión, el Juez llamará por edictos, que se publicarán por tres
-veces en el diario oficial, a todos los que se crean con derecho al
-inmueble, y se señalará el término de treinta días a partir de la primera
-publicación del edicto para que se apersonen. El edicto contendrá todos
-los datos especificados en el escrito inicial.
-En el mismo auto ordenará citar personalmente a todos los colindantes
-del inmueble, y a los condueños del mismo si los hubiere, y les concederá
-el mismo término para que aleguen sus derechos. Mientras no transcurra ese
-término, no podrá ordenarse la inscripción de la finca a que se refiere el
-expediente.
+ARTÍCULO 4º.- Cuando el titulante demostrare su legítima adquisición
+por medio de documento público que no fuere apto para su inscripción en
+el Registro Público, no será necesario que ofrezca prueba testimonial, si
+hubieren transcurrido 10 ó más años de la respectiva adquisición. En tal
+caso bastará que presente el plano conforme de la finca y que en la
+inspección ocular se constate que está debidamente deslindada, que es
+objeto de posesión y que en ese momento está sometida a explotación
+racional. Si la finca es menor de 30 hectáreas, podrá presentar la prueba
+testimonial en vez de la inspección ocular.

@@ -1,6 +1,6 @@
-Artículo 15.- En cualquier tiempo en que, no habiendo transcurrido
-todavía la prescripción decenal, se mostrare que el título posesorio se ha
-levantado contra las leyes vigentes, podrá el Juez decretar en el
-expediente original y mediante los trámites de los incidentes, la nulidad
-absoluta del título y de la inscripción en el Registro y librará la
-ejecutoria correspondiente para que esta oficina cancele el asiento.
+ARTÍCULO 15.- Los títulos de propiedad que se otorguen con arreglo a
+las disposiciones de la presente ley, no podrán exceder de trescientas
+hectáreas.
+Las limitaciones establecidas en este artículo, constituyen el
+máximo de área a inscribir por el titulante, y éste no podrá evadir a
+aquéllas, mediante la formulación de solicitudes sucesivas.
