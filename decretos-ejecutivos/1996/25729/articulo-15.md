@@ -1,0 +1,1 @@
+Artículo 15.-Declárese una veda para la pesca del langostino o camarón de río (Macrobrachium sp.) en todos los ríos nacionales desde el 15 de mayo hasta el 31 de diciembre. En el período no vedado el límite de piezas a pescar por persona por día se establece en 15 piezas.
