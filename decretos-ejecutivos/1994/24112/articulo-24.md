@@ -1,1 +1,0 @@
-Artículo 24.- La Comisión puede examinar los registros aprobados de plaguicidas formulados, producto técnico y coadyuvntes que considere conveniente y elevará a conocimiento del Ministerio las observaciones que considere pertinentes.

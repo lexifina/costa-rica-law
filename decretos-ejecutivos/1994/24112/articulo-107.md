@@ -1,1 +1,0 @@
-Artículo 107.- El Ministerio en conjunto con el Ministerio de Salud podrán restringir sin prohibir el uso de un determinado plaguicida, cuando así se requiera por razones de protección a la salud humana, de los animales, la agricultura y del ambiente.

@@ -1,1 +1,0 @@
-Artículo 99.- En caso de que el investigador que le está dando seguimiento considere que el producto en evaluación no está dando resultado satisfactorio por causas ajenas, como por ejemplo: ausencia de la plaga, pérdida de plantas, factores ambientales, etc., el ensayo se dará por concluido, pudiendo repetirse si el interesado así lo desea.

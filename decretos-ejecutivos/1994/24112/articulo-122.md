@@ -1,1 +1,0 @@
-Artículo 122.- Toda persona natural o jurídica responsable de trabajadores que deban formular, reempacar, reenvasar, almacenar, transportar, mezclar y aplicar plaguicidas, está obligada a instruir a sus trabajadores en el manejo correcto de los plaguicidas y mantenerlos informados sobre los riesgos y precauciones que el uso de plaguicidas conlleva.

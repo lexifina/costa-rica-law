@@ -1,1 +1,0 @@
-Artículo 123.- Toda persona que participe en actividades de fabricación, formulación, reempaque, reenvase, almacenamiento, transporte, comercio; mezcla y aplicación de plaguicidas, debe someterse a un examen médico previo al ingreso a dichas actividades laborales y a exámenes médicos períodicos, de acuerdo con la normativa establecida al respecto por el Ministerio de Salud.

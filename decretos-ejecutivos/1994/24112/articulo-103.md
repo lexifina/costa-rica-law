@@ -1,1 +1,0 @@
-Artículo 103.- Las pruebas experimentales de campo y de laboratorio que se deseen realizar con plaguicidas en fase experimental, sólo podrán efectuarse después de obtener un permiso especial de experimentación otorgado por el Ministerio, de acuerdo con las normas específicas para tal fin.

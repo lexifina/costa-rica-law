@@ -1,1 +1,0 @@
-Artículo 102.- El Ministerio no otorgará nuevas autorizaciones para realizar investigaciones si el solicitante no ha cumplido con la presentación del informe final correspondiente, establecido en el artículo 101, sin causa justificada.

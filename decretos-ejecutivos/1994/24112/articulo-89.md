@@ -1,1 +1,0 @@
-Artículo 89.- El transporte de plaguicidas sólo podrá realizarse en vehículos que puedan limpiarse y descontaminarse adecuadamente. Además deben tener en un lugar visible, en la parte exterior, un rótolo que indique el producto o productos que se transporten.

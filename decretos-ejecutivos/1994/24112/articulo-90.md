@@ -1,1 +1,0 @@
-Artículo 90.- En transporte de plaguicidas, el conductor deberá llevar consigo una "hoja de seguridad" que especifique las medidas a tomar en caso de cualquier accidente como derrames, incendios y otros, de conformidad con lo establecido en la ley de tránsito vigente.
