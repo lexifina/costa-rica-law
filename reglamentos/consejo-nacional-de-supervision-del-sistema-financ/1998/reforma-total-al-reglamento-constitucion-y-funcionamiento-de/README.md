@@ -17,3 +17,4 @@ Reforma total al Reglamento Constitución y Funcionamiento de Grupos Financieros
 | 2 | 1998-11-04 | Reglamento 48 (1998-10-29) |
 | 3 | 1999-09-27 | Reglamento 114 (1999-09-27) |
 | 4 | 2000-05-23 | Reglamento 153 (2000-05-23) |
+| 5 | 2000-06-20 | Reglamento 157 (2000-06-20) |
