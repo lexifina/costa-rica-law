@@ -1,0 +1,2 @@
+Artículo 3°-La Junta Directiva del Banco Central determinará, en cada caso, la cantidad de monedas que deban acuñarse, el tipo, motivos a grabarse y leyendas correspondientes, el diámetro, el peso, el valor y la aleación metálica.
+Queda facultado el Banco central de Costa Rica para que, una vez establecidas todas las características de las monedas por acuerdo firme de su Junta Directiva, pueda acuñarse y emitirlas, poniéndolo en conocimiento del público antes de circularlas.
