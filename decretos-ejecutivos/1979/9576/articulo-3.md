@@ -1,0 +1,1 @@
+Artículo 3°-El traspaso del Estado al citado Instituto, como también el de éste a cada uno de los poseedores que acrediten su derecho, será a título gratuito, atendiendo a los fines sociales que motivan e! traspaso.

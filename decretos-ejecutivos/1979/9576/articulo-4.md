@@ -1,0 +1,1 @@
+Artículo 4°-Se autoriza a la Procuraduría General de la República para comparecer ante la Notaría del Estado y otorgar la escritura que formalice el traspaso a que se refiere e! artículo primero de este decreto.
