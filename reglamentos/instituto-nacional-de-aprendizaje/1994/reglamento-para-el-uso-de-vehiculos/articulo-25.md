@@ -1,2 +1,0 @@
-Artículo 25—Seguridad en el estacionamiento
-Los vehículos no deben dejarse estacionados en lugares donde se ponga en peligro la seguridad de los mismos, sus accesorios, materiales o equipos que transporta.

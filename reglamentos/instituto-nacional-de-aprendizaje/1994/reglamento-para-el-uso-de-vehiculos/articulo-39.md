@@ -1,1 +1,0 @@
-Artículo 39.—Definición de controles internosLa Dirección Administrativa definirá las normas y procedimientos de control interno adicionales que estime necesarias, tendientes a lograr un adecuado uso de los vehículos del INA.

@@ -1,3 +1,0 @@
-Artículo 14—Atención de solicitudes de transporte
-La atención de los servicios de transporte será tramitada de acuerdo con el orden de presentación de las solicitudes, salvo aquellos casos de urgencia en los que ajuicio de la Jefatura de Transportes podrá variarse tal orden.
-La solicitud de servicios de transporte se presentará durante las horas hábiles de oficina, con una anticipación de veinticuatro horas para servicios no mayores de un día de duración, cuarenta y ocho horas para servicios o giras que duren de uno a tres días, y de setenta y dos horas para servicios o giras que duren más de tres días. a efecto de que la Sección pueda programar y coordinar adecuadamente sus recursos.

@@ -1,2 +1,0 @@
-Artículo 26—Uniformidad de vehículos
-Para que los vehículos de la Institución circulen dentro de las normas apropiadas seguridad y ofrezcan una apariencia uniforme, se debe evitar colocar adornos, tanto en el interior como en el exterior de los mismos, o mantener objetos en el panel de instrumentos, que afecten la buena conducción del vehículo.

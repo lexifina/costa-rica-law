@@ -1,2 +1,0 @@
-Artículo 41.—Cumplimiento de normativa
-Es responsabilidad exclusiva de cada conductor y de la Administración en lo que corresponda a cada uno, el cumplimiento de lo establecido en el presente Reglamento, de ahí que si acata órdenes que contravengan dichas disposiciones, asumirá las consecuencias que esa acción origine.
