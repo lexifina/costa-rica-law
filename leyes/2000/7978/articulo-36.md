@@ -1,3 +1,4 @@
 CAPÍTULO VI
-Terminación del Registro de la Marca
-Artículo 36°- Control de calidad. Siempre que se respeten los principios del debido proceso, a pedido de cualquier persona con interés legítimo y previa audiencia del titular del registro de la marca, el Registro podrá cancelar la inscripción del contrato de licencia y prohibir que el licenciatario use la marca cuando, por defecto de un control de calidad adecuado o por algún abuso de la licencia, ocurra o pueda ocurrir confusión, engaño o perjuicio grave para el público consumidor. El reglamento de esta ley establecerá el procedimiento correspondiente, respetando el debido proceso.
+Terminación del registro de la marca
+Artículo 36°- Control de calidad. Siempre que se respeten los principios del debido proceso, a pedido de cualquier persona con interés legítimo y previa audiencia del titular del registro de la marca, el Registro podrá cancelar la inscripción del contrato de licencia y prohibir que el licenciatario use la marca cuando, por defecto de un control de calidad adecuado o por algún abuso de la licencia, ocurra o pueda ocurrir confusión, engaño o perjuicio grave para el público consumidor.
+El reglamento de esta ley establecerá el procedimiento correspondiente, respetando el debido proceso.

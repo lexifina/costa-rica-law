@@ -1,8 +1,1 @@
-ARTÍCULO 81.- Anulación del registro
-A pedido de cualquier sujeto con interés legítimo, el Registro
-declarará la nulidad del registro de una denominación de origen cuando se
-demuestre que está comprendida en alguna de las prohibiciones previstas en
-el artículo 75 de la presente ley, o bien, que la denominación se usa en
-el comercio de una manera que no corresponde a lo indicado en la
-inscripción respectiva, conforme al primer párrafo del artículo 78 de la
-presente ley.
+Artículo 81°- Anulación del registro. A pedido de cualquier sujeto con interés legítimo, el Registro declarará la nulidad del registro de una denominación de origen cuando se demuestre que está comprendida en alguna de las prohibiciones previstas en el artículo 75 de la presente ley, o bien, que la denominación se usa en el comercio de una manera que no corresponde a lo indicado en la inscripción respectiva, conforme al primer párrafo del artículo 78 de la presente ley.

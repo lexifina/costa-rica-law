@@ -1,7 +1,1 @@
-ARTÍCULO 73.- Indicaciones relativas al comerciante
-Todo comerciante podrá indicar su nombre o domicilio sobre los
-productos o servicios que venda, aun cuando provengan del exterior,
-siempre que el nombre o domicilio esté acompañado de la indicación
-precisa, con caracteres suficientemente destacados, del país o lugar de
-fabricación o producción de los productos u de otra indicación suficiente
-para evitar cualquier error sobre su verdadero origen.
+Artículo 73°- Indicaciones relativas al comerciante. Todo comerciante podrá indicar su nombre o domicilio sobre los productos o servicios que venda, aun cuando provengan del exterior, siempre que el nombre o domicilio esté acompañado de la indicación precisa, con caracteres suficientemente destacados, del país o lugar de fabricación o producción de los productos u de otra indicación suficiente para evitar cualquier error sobre su verdadero origen.

@@ -1,5 +1,1 @@
-ARTÍCULO 88.- Consulta de los expedientes
-Cualquier persona podrá consultar, en las oficinas del Registro de la
-Propiedad Industrial, el expediente de una solicitud de registro. Asimismo
-podrá obtener copias de los documentos contenidos en el expediente de una
-solicitud, mediante el pago de la tasa fijada.
+Artículo 88°- Consulta de los expedientes. Cualquier persona podrá consultar, en las oficinas del Registro de la Propiedad Industrial, el expediente de una solicitud de registro. Asimismo podrá obtener copias de los documentos contenidos en el expediente de una solicitud, mediante el pago de la tasa fijada.

@@ -1,8 +1,5 @@
 TÍTULO VII
-NOMBRES COMERCIALES Y EMBLEMAS
+Nombres comerciales y emblemas
 CAPÍTULO I
-NOMBRES COMERCIALES
-ARTÍCULO 64.- Adquisición del derecho sobre el nombre comercial
-El derecho exclusivo sobre un nombre comercial se adquiere por su
-primer uso en el comercio y termina con la extinción de la empresa o el
-establecimiento que lo usa.
+Nombres comerciales
+Artículo 64°- Adquisición del derecho sobre el nombre comercial. El derecho exclusivo sobre un nombre comercial se adquiere por su primer uso en el comercio y termina con la extinción de la empresa o el establecimiento que lo usa.

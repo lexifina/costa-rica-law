@@ -1,4 +1,1 @@
-ARTÍCULO 51.- Licencia de la marca colectiva
-Una marca colectiva no podrá ser objeto de licencia de uso en favor
-de personas distintas de las autorizadas para usar la marca de acuerdo con
-su reglamento de empleo.
+Artículo 51°- Licencia de la marca colectiva. Una marca colectiva no podrá ser objeto de licencia de uso en favor de personas distintas de las autorizadas para usar la marca de acuerdo con su reglamento de empleo.
