@@ -1,1 +1,2 @@
-Artículo 16.—Formarán quórum, en las Asambleas Generales, la mitad más uno de los miembros del Colegio. Caso de no reunirse el quórum requerido, la Junta Directiva hará, en el acto, una nueva convocatoria para una hora después de señalada y, entonces la Asamblea podrá sesionar válidamente con un diez por ciento de los colegiados.
+Artículo 16.—Formará quórum, en las asambleas generales, la mitad más uno de los miembros del Colegio. En caso de no reunirse el quórum requerido, la sesión se efectuará una hora después, cualquiera que fuere el número de los presentes.
+(Así reformado por el artículo 1° de la Ley N° 5825 de 29 de octubre de 1975).
