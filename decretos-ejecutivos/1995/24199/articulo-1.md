@@ -10,9 +10,12 @@ Considerando:
 2º.—Que en algunas Instituciones Públicas se ha acumulado una importante cantidad de títulos, sin traspasar a las familias costarricenses que habitan o poseen los mismos, como consecuencia de los programas regulares de las instituciones.
 3º.—Que el Plan Nacional de Combate a la Pobreza, contempla una acción gubernamental mediante un programa que facilite mecanismos interinstitucionales, que busquen una solución de la problemática de titulación a la mayor cantidad de familias. Por tanto,
 DECRETAN:
-Artículo 1º.—Créase el Programa Nacional de Titulación de Tierras, cuya ejecución estará a cargo del Instituto Mixto de Ayuda Social y mediante el cual se procura donar a los beneficiarios, que califiquen de acuerdo la Ley de Desarrollo Social y Asignaciones Familiares, los costos necesarios para dotarlos de un título de propiedad inscrito, todo con sujeción a las políticas que dicte el Poder Ejecutivo. Para el cumplimiento de los objetivos de este programa el Instituto Mixto de Ayuda Social contará con la ayuda y participación de las siguientes instituciones:
-a. Catastro Nacional.
-b. Registro Público de la Propiedad.
-c. Instituto de Vivienda y Urbanismo.
-d. Instituto de Desarrollo Agrario.
-e. Dirección General de Desarrollo Social y Asignaciones Familiares.
+Artículo 1º.—Créase el Programa Nacional de Titulación de Tierras, cuya ejecución estará a cargo de las Instituciones Públicas participantes del programa, mediante el cual se procura donar o suministrar a los beneficiarios que califiquen de acuerdo la Ley Desarrollo Social y Asignaciones Familiares, los costos necesarios para dotarlos de un título de propiedad inscrito, todo con sujeción a las políticas que dicte el Poder Ejecutivo. Para el cumplimiento de los objetivos de este programa se contará con la ayuda y participación de las siguientes instituciones;
+a) Instituto Mixto de Ayuda Social
+b) Instituto Nacional de Vivienda y Urbanismo
+c) Instituto de Desarrollo Agrario
+d) Ministerio de Vivienda y Asentamientos Humanos
+e) Dirección General de Desarrollo Social y Asignaciones Familiares
+f) Registro Público de la Propiedad
+g) Catastro Nacional
+(Así reformado por el artículo 1°, del Decreto Ejecutivo N° 24913 de 15 de enero de 1996).

@@ -14,3 +14,4 @@ Crea Programa Nacional de Titulación de Tierras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-04-24 | la propia norma |
+| 2 | 1996-01-15 | Decreto Ejecutivo 24913 (1996-01-15) |
