@@ -1,5 +1,2 @@
-Artículo 24.- El Director Ejecutivo tendrá a su cargo la ejecución de
-los acuerdos aprobados por el Consejo Directivo, las labores
-administrativas inherentes a su cargo, el nombramiento y remoción del
-personal administrativo y la presentación de un informe de labores al
-Consejo Directivo cada tres meses.
+ARTICULO 24.- El Director Ejecutivo tendrá a su cargo la ejecución de los acuerdos aprobados por el Consejo Directivo, las labores administrativas inherentes a su cargo, el nombramiento y remoción del personal administrativo y la presentación de un informe de labores al Consejo Directivo cada tres meses.
+(NOTA: De acuerdo con el artículo 28 del Decreto Ejecutivo N° 26940-MIVAH-MTSS de 28 de abril de 1998, según reforma del Decreto No.34196 de 2 de noviembre de 2007, las competencias señaladas en este artículo para el Director Ejecutivo, estarán a cargo de un Gerente General, término con el cual se le designará en el futuro. Allí mismo se indican los requisitos personales y profesionales que deberán cumplir).
