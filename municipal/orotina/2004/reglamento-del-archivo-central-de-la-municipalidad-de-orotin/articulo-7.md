@@ -1,0 +1,1 @@
+Artículo 7º—El Archivo Central de la Municipalidad de Orotina recibirá debidamente organizados los documentos que le remitan las diferentes Direcciones y Departamentos tomando en cuenta la vigencia administrativa establecida en la Tabla de Plazos de Conservación y Eliminación de Documentos.

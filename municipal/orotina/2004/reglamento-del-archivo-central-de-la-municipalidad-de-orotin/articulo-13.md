@@ -1,0 +1,1 @@
+Articulo 13.—Los usuarios deben hacer silencio en el local de consulta, no es permitido rayar los documentos, ni ingerir cualquier tipo de alimentos, de igual manera se prohíbe fumar en cualquier de los espacios físicos asignados para el Archivo Central.
