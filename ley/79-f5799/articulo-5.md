@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-Tanto los Diputados como los peritos que nombre la Diputación para llenar los objetos del artículo 15 de la Ordenanza ser n satisfechos por los dueños de las minas que se visitaren, con arreglo al Arancel aprobado de que habla el artículo 14 de la Ordenanza.

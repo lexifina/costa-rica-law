@@ -1,0 +1,1 @@
+ARTÍCULO 2°.-En lo contencioso cumplido lo que previenen los artículos 99 de la Constitución del Estado, y 18 de la Ley de 25 de Julio del año corriente, se entallar n los pleitos ante el Juez de 1¦. Instancia respectivo, debiéndose antes calcular prudentemente el interés, por la diputación en su distrito, y en los partidos por el respectivo Juez de 1° Instancia.
