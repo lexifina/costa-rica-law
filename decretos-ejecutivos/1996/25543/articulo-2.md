@@ -1,0 +1,1 @@
+Artículo 2°-Se deroga el artículo 52 del decreto ejecutivo N° 17032-MAG-MEC de 2 de mayo de 1986 Reglamento de la Ley de Creación de la Oficina del Arroz, publicado en “La Gaceta” N° 98 del 27 de mayo de 1986.
