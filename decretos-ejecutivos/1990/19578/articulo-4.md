@@ -1,0 +1,3 @@
+ARTÍCULO 4°.-Para el cumplimiento de sus funciones, la Unidad Ejecutora del Proyecto estar integrada por:
+Un Ingeniero Civil como Director Ejecutivo, un Ingeniero Civil como Experto en Construcción y Administración de Vías y un Ingeniero Civil como Experto en Estructuras y el personal de apoyo necesario para su operación.
+El Director Ejecutivo tiene la responsabilidad de dirigir, coordinar, planificar y supervisar las actividades de la Unidad Ejecutora y de representarla ante el MOPT y demás instituciones públicas vinculadas con la ejecución del proyecto. Le corresponde gestionar la contratación del personal regular y temporal de la Unidad Ejecutora.

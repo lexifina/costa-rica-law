@@ -1,0 +1,1 @@
+ARTÍCULO 1°.-Crear la Unidad Ejecutora para la Coordinación y Administración del Proyecto Ciudad Colón-Orotina de acuerdo con el artículo 11 de la ley N° 7123, publicada en el Alcance N° 5 del 15 de febrero de 1989.
