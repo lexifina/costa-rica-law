@@ -1,0 +1,1 @@
+Artículo 3º—Además de los honorarios correspondientes por la ejecución de un avalúo o un peritaje agropecuario o forestal, se le deberán pagar al profesional los gastos por estudios, análisis o trabajos especiales que se realicen, que sean estrictamente necesarios para emitir el informe final.
