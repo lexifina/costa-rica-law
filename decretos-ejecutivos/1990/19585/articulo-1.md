@@ -6,7 +6,8 @@ Nº 19585
 De conformidad con el artículo 140, inciso 3) de la Constitución Política, artículos 23 y 24 del Código de Normas y Procedimientos Tributarios, artículos 12, inciso b) y 23 de la ley Nº 5339 de 23 de agosto de 1973, "Reguladora de Agencias de Viajes", ley número 1917 de 30 de junio de 1955, reformada por leyes números 2723 de 20 de febrero de 1961 y 2763 de 22 de junio de 1961; y ley número 7015 de 22 de noviembre de 1985,
 DECRETAN:
 El siguiente
-Reglamento para el Control y Recaudación del Impuesto del 8% del Valor de los Pasajes Internacionales
+Reglamento para el Control y Recaudación del Impuesto del 5% del Valor de los Pasajes Internacionales
+(El texto de este Reglamento fue modificado tácitamente por Resolución de la Sala Constitucional Nº 3491-94 de las 14:45 horas del 12 de julio de 1994, que anuló la reforma que hacía al artículo 111 de la Ley Nº 7015 del 22 de noviembre de 1985 al artículo 46 de la Ley Nº 1917 del 30 de julio de 1955, fijando el impuesto del valor de los pasajes vendidos en Costa Rica para cualquier clase de viajes internacionales en 5%)
 Artículo 1º.- Definiciones. Para todos los efectos cuando la ley o este Reglamento utilicen los términos siguientes, debe dárseles las acepciones que a continuación se indica:
 a) "Arrendamiento de viaje". Se refiere a los viajes internacionales en los cuales un tercero arrienda un vehículo para realizar un viaje, quedando por su cuenta la colocación de los pasajes y las demás responsabilidades del viaje "charter".
 b) "Código Tributario". Se refiere al Código de Normas y Procedimientos Tributarios.

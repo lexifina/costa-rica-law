@@ -14,3 +14,4 @@ Reglamento Control e Impuesto Pasajes Internacionales
 | --- | --- | --- |
 | 1 | 1990-04-19 | la propia norma |
 | 2 | 1990-04-19 | SINALEVI (sin norma nombrada) |
+| 3 | 1994-07-12 | SINALEVI (sin norma nombrada) |
