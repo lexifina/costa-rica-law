@@ -1,0 +1,1 @@
+ARTÍCULO 3°.-Por lo demás, quedan vigentes los referidos artículos 45 y 46, 5§, sección 2 del Reglamento de 10 de diciembre de 1839, y los decretos y ¢órdenes posteriores que reglamentan las ventas de tierras baldías.
