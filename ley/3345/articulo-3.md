@@ -1,8 +1,2 @@
-Artículo 3º.- Concédese a los funcionarios y expertos de las
-Organizaciones participantes en el Acuerdo aprobado en el artículo 1º,
-franquicia aduanera para la importación de un automóvil para su uso
-personal al tiempo de su llegada al país. Esta franquicia podrá ser
-usada con intervalos de dos años contados a partir de la fecha en que
-sea otorgada por primera vez. Los funcionarios favorecidos con ella
-podrán vender sus vehículos dentro del régimen fijado para los
-funcionarios diplomáticos acreditados ante el Gobierno de Costa Rica.
+Artículo 3º.- Concédese a los funcionarios y expertos de las Organizaciones participantes en el Acuerdo aprobado en el artículo 1º, franquicia aduanera para la importación de un automóvil para su uso personal al tiempo de su llegada al país. Esta franquicia podrá ser usada con intervalos de dos años contados a partir de la fecha en que sea otorgada por primera vez. Los funcionarios favorecidos con ella podrán vender sus vehículos dentro del régimen fijado para los funcionarios diplomáticos acreditados ante el Gobierno de Costa Rica.
+(La Sala Constitucional mediante resolución N° 256-92 de las 16 horas del 4 de febrero de 1992, declaró que es inconstitucional la aplicación del presente artículo “…a los funcionarios del Consejo Monetario Centroamericano como consecuencia de conformidad con lo dispuesto en el artículo 89 de la Ley de la Jurisdicción Constitucional; además, mediante la resolución N° 1018 del 15 de abril de 1992, se interpreta que los derechos adquiridos que se reconocen en ella, incluyen tanto a los que ya los hubieran adquirido, como los que hubieran sido nombrados por el Consejo Monetario Centroamericano para servir en Costa Rica, antes de su notificación”.)
