@@ -14,3 +14,4 @@ Reglamento de Sesiones y Comisiones de la Municipalidad de Esparza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-13 | la propia norma |
+| 2 | 2000-05-08 | Reglamento municipal 53 (2000-05-08) |
