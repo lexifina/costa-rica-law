@@ -1,0 +1,1 @@
+Artículo 16.—La Oficina de Contabilidad de esta Municipalidad, efectuará las siguientes funciones relativas a la recaudación de este al Alcalde Municipal, donde indicará el tipo de actividad, nombre del negocio y del propietario, calidades, cantidad de tiquetes sellados, valor de éstos y recaudación del impuesto total.

@@ -1,0 +1,1 @@
+Artículo 12.—Todo buzón recolector en caso de ser dañado en forma tal que no garantice seguridad, deberá ser repuesto en un plazo máximo de veinticuatro horas por el propietario del establecimiento. Caso contrario se considerará la aplicación de la normativa establecida en el artículo 15 del presente Reglamento.

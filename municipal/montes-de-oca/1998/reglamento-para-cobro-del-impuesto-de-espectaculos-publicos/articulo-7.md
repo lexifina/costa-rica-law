@@ -1,0 +1,1 @@
+Artículo 7°—Quedan exentas del pago del impuesto, todos los espectáculos y actividades a que se refiere el artículo 2° de este reglamento, cuando el producto íntegro se destine a fines escolares, beneficencia, religiosos, sociales y deportivos, previa comunicación con la municipalidad para lo cual deberá suministrar toda la información requerida.

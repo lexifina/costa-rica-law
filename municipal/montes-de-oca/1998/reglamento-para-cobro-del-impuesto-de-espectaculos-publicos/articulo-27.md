@@ -1,0 +1,1 @@
+Artículo 27.—Se deroga el Reglamento de Espectáculos Público aprobado mediante el acuerdo tomado por el Concejo Municipal en sesión ordinaria N° 254/92, artículo 6° del 23 de noviembre de 1992, publicado en “La Gaceta” N° 59 del 23 de marzo de 1995.
