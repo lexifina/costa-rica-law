@@ -1,0 +1,1 @@
+Artículo 5º—Demarcación y señalización. Para los supuestos desarrollados en los artículos 1º, 2º, y 3º del presente Decreto, las zonas de carga y descarga deberán estar demarcadas horizontalmente y señalizadas verticalmente por la autoridad competente, indicando los espacios establecidos y el horario habilitado para dichas actividades.

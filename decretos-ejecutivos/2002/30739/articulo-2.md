@@ -1,0 +1,1 @@
+Artículo 2º—Carga y descarga los días domingos y feriados. Durante los domingos y días feriados se permitirán las actividades de carga y descarga sin restricción de horario, en el tanto no se produzcan situaciones de congestionamierito vial o se infrinjan estipulaciones establecidas en el artículo 95 y 100 de la Ley de Tránsito por Vías Públicas Terrestres N° 7331.

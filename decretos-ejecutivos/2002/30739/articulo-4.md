@@ -1,0 +1,1 @@
+Artículo 4º—Incumplimiento de las disposiciones del presente Reglamento. El incumplimiento de las anteriores disposiciones, faculta a la autoridad de tránsito para el retiro del vehículo mal estacionado, según lo establecido en el artículo 140 de la Ley de Tránsito por Vías Públicas Terrestres N° 7331, sin perjuicio de las multas respectivas cuando así proceda.
