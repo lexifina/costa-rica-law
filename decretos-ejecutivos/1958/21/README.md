@@ -13,3 +13,4 @@ Reglamento para la Operación de Radiodifusoras de Televisión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1958-10-02 | la propia norma |
+| 2 | 1958-10-02 | SINALEVI (sin norma nombrada) |
