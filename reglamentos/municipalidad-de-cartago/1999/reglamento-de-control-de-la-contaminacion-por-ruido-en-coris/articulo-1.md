@@ -1,0 +1,4 @@
+(Derogado)
+(NOTA DE SINALEVI: En publicación hecha en La Gaceta N° 120 de 22 de junio de 1999, La Municipalidad de Cartago mediante el acta número setenta y seis, artículo cuarenta y cuatro de sesión celebrada por el Concejo Municipal del Cantón Central de Cartago, el siete de junio de mil novecientos noventa y nueve, acordó por unanimidad en firme y en forma definitiva, lo siguiente:
+...Acuerda: dejar sin efecto jurídico alguno, los siete reglamentos publicados en el Diario Oficial La Gaceta el pasado 28 de abril de 1999, En su lugar, los textos de referencia se trasladan como propuestas a una comisión especial, constituida por miembros del Concejo Municipal y de la sociedad civil, para su estudio y recomendación sobre su contenido, ante dicho Concejo...
+Por lo tanto el presente Reglamento se dejó sin efecto).

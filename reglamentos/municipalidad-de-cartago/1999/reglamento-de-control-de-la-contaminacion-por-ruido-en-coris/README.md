@@ -14,3 +14,4 @@ Reglamento de Control de la Contaminación por Ruido en Coris En Distrito Indust
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-28 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
