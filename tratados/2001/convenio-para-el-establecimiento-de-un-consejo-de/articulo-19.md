@@ -1,0 +1,2 @@
+ARTÍCULO XIX
+El presente Convenio tiene una duración ilimitada, pero en cualquier momento después de cumplidos cinco años desde su puesta en vigor según el párrafo (a) del Artículo XVII, cualquier Parte Contratante podrá retirarse. El retiro será efectivo un año después de la fecha de recibo, por parte del Ministerio de Relaciones Exteriores de Bélgica, del aviso de retiro. El Ministerio belga de Relaciones Exteriores deberá notificar sobre cada retiro a todos los gobiernos firmantes y adherentes y al Secretario General.

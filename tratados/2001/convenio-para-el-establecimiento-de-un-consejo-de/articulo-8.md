@@ -1,0 +1,3 @@
+ARTÍCULO VIII
+(a) Cada miembro del Consejo tendrá derecho a un voto, excepto que un miembro no tenga derecho a voto en algún asunto relacionado con la interpretación, aplicación o enmienda de cualquiera de los Convenios referidos en el Artículo III (d) que esté en vigencia y que no se aplique a ese miembro.
+(b) Excepto según lo dispone el Artículo VI b), las decisiones del Consejo deberán ser tomadas por una mayoría de dos tercios de los miembros presentes y con derecho a voto. El Consejo no tomará decisión alguna sobre ningún asunto a menos que esté presente más de la mitad de los miembros con derecho a votar sobre ese asunto.

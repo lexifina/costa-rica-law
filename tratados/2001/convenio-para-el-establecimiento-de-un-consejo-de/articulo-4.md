@@ -1,0 +1,2 @@
+ARTÍCULO IV
+Los miembros del Consejo deberán brindar al Consejo cualquier información y documentación solicitada por éste, que sea necesaria para la ejecución de sus funciones, siempre que no se le solicite a ningún miembro divulgar información confidencial, cuya revelación impidiera la aplicación de sus leyes, o que de otra manera fuese contraria al interés público o perjudicara los legítimos intereses comerciales de cualquier empresa, pública o privada.
