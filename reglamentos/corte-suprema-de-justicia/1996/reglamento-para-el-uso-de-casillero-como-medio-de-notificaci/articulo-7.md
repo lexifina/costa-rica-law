@@ -1,0 +1,1 @@
+Artículo 7°-Si por error se depositare una notificación en el casillero que no corresponde, el adjudicatario del casillero, estará en la obligación de devolverla de inmediato, a las Oficina Centralizada de Notificaciones. Esta hará nuevamente el depósito en el casillero que corresponda. A partir de ese momento, se tendrá por efectuada la notificación.

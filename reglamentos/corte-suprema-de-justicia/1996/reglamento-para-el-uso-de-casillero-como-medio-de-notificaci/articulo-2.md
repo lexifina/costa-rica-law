@@ -1,0 +1,1 @@
+Artículo 2°-Podrán adscribirse al sistema de casillero, los abogados, empresas e instituciones públicas, los Bancos estatales y privados, así como las personas físicas o jurídicas que demuestren a la Administración que reciben importante cantidad de notificaciones. Al efecto, deberán dirigir la solicitud respectiva al Administrador del Edificio, a cuyo cargo está la adjudicación.
