@@ -14,3 +14,4 @@ Regula la Gestión del Fondo Circulante en manos de la Dirección General de Adm
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-11-20 | la propia norma |
+| 2 | 2002-02-15 | Decreto Ejecutivo 30388 (2002-02-15) |
