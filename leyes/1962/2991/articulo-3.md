@@ -1,0 +1,1 @@
+Artículo 3°-Se autoriza al Banco Central de Costa Rica para rendir su garantía, fianza o aval al Gobierno de la República en conexión con el empréstito que se negocie de conformidad con los términos de la presente ley.
