@@ -1,5 +1,6 @@
 Artículo 34.- Integración de la superintendencia
-La superintendencia estará compuesta por un superintendente y un intendente, quien suplirá al titular en sus ausencias temporales. Ambos nombrados por la Junta Directiva del Banco Central, con votación calificada y por un plazo de seis años. Además, contará con un Consejo Directivo, compuesto por cinco personas que serán:
+La superintendencia estará compuesta por un superintendente y un intendente, quien suplirá al titular en sus ausencias temporales. Ambos nombrados por la Junta Directiva del Banco Central, con votación calificada y por un plazo de seis años. Corresponderá a dicho funcionario ejercer, en nombre y por cuenta de la Superintendencia de Pensiones, la representación legal, judicial y extrajudicial únicamente para las funciones propias de su cargo, con las atribuciones de un apoderado generalísimo sin límite de suma. Además, contará con un Consejo Directivo, compuesto por cinco personas que serán:
+(Así reformado el párrafo anterior mediante el inciso l) del artículo 167 de la ley N° 7558 del 3 de noviembre de 1995).
 a) El Ministro de Hacienda, quien lo presidirá y podrá ser sustituido, en sus ausencias, por el Viceministro de esa cartera.
 b) El superintendente de pensiones.
 c) El Auditor General de Entidades Financieras.

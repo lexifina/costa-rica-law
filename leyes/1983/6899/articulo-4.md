@@ -1,1 +1,0 @@
-Artículo 4º.- El banco respectivo concederá, a cada comprador, un crédito para el desarrollo del inmueble adquirido, contemplado el costo de la asistencia técnica, cuando ésta proceda, en las condiciones más beneficiosas que establecen las regulaciones del Banco Central de Costa Rica, y de acuerdo con un plan de explotación que demuestre la factibilidad económica del mismo.

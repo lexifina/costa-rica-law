@@ -1,1 +1,0 @@
-Artículo 6º.- Cualquiera que sea la venta que haga el banco, de la finca o bien adjudicado a su favor, y vendido mediante el procedimiento que fija esta ley, el banco no podrá perseguir al exdeudor y al fiador por concepto de saldos al descubierto motivado por el remate.

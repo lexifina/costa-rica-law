@@ -1,1 +1,0 @@
-Artículo 43.- El Gerente y el Subgerente tendrán, indistintamente, la representación judicial y extrajudicial del Banco Central, con las facultades que para los apoderados generalísimos determina el artículo 1253 del Código Civil.

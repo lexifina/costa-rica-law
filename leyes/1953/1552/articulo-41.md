@@ -1,1 +1,0 @@
-Artículo 41.- El Gerente será el Jefe Superior de todas las dependencias del Banco Central y de su personal, excepto de la Auditoría General de Entidades Financieras, y el responsable, ante la Junta, del eficiente y correcto funcionamiento administrativo de la Institución. El Subgerente será el Subjefe Superior y actuará bajo la autoridad jerárquica de aquél.

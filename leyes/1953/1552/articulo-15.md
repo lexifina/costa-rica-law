@@ -1,2 +1,0 @@
-Artículo 15.- Con excepción de lo dispuesto en el artículo transitorio III, inciso 1) de esta ley, y sin perjuicio de lo establecido por la ley Nº 2151 del 13 de agosto de 1957 (supresión de las exenciones de derechos de aduana, muellaje y bodegaje a las instituciones autónomas, semiautónomas del Estado y a las municipalidades), el Banco Central de Costa Rica estará exento de cualquier contribución o impuesto presente o futuro en todo el territorio de la República.
-(Así reformado por el artículo 4º de la ley Nº 3020 de 16 de agosto de 1962.)

@@ -1,1 +1,0 @@
-Artículo 12.- Las personas físicas o jurídicas que se dediquen al desarrollo agroindustrial, tendrán los mismos derechos que establece esta ley para las que se dediquen al desarrollo agropecuario, de conformidad con el plan de desarrollo que presenten a los bancos.

@@ -1,2 +1,0 @@
-Artículo 102.- El Banco Central de Costa Rica podrá comprar, vender y conservar, como parte integrante de las reservas monetarias de la Nación, toda clase de divisas extranjeras, por sí mismo o por intermedio de los bancos comerciales autorizados por la Junta, conforme con las condiciones, los requisitos y las demás especificaciones que acordare. También podrá hacer uso de los mecanismos que le permitan proteger el valor de sus activos internacionales.
-(Así reformado por el artículo 1º de la ley No. 7107 de 4 de noviembre de 1988 )

@@ -1,2 +1,0 @@
-Artículo 119.- El Banco Central percibirá por los servicios que preste al Gobierno y sus dependencias, o a las Municipalidades o Instituciones Autónomas, en su caso, las tasas que de consuno convinieren, basadas en el cómputo del costo de operación que tenga el Banco por la ejecución de tales servicios.
-El Banco no pagará nunca intereses por los depósitos que mantengan esas entidades, y bajo ninguna circunstancia, permitirá sobregiros.

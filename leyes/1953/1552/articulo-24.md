@@ -1,4 +1,0 @@
-Artículo 24.- No podrán designarse como miembros de la Junta Directiva:
-1) Las personas que durante el año anterior a su nombramiento hayan sido demandadas en la vía ejecutiva por cualquiera de los bancos del Sistema Bancario Nacional, en cobro de créditos propios no satisfechos, o que hayan sido declaradas en estado de quiebra o insolvencia.
-2) Las que estén ligadas entre sí por parentesco o consanguinidad o afinidad hasta el tercer grado inclusive, o que pertenezcan a la misma sociedad en nombre colectivo o de responsabilidad limitada, o que formen parte del mismo directorio de una sociedad por acciones. Cuando con posterioridad a sus nombramientos se presentare una de estas incapacidades, caducará el nombramiento del miembro de menor edad.
-(Así reformado por el artículo 1º de la ley Nº 4646 de 20 de octubre de 1970)

@@ -1,2 +1,0 @@
-Artículo 8º.- Los bienes adquiridos al amparo de la presente ley no podrán ser vendidos, traspasados, arrendados, gravados ni de otro modo enajenados por el propietario; ni embargados por acreedores comunes durante un lapso de cinco años, a partir de la cancelación total de la financiación concedida para la adquisición de los respectivos inmuebles y para el capital inicial de trabajo.
-Se exceptúa de lo anterior los actos jurídicos necesarios para obtener los créditos que concedan los bancos comerciales del Estado para los fines de esta ley.

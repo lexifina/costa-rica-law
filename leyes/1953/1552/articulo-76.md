@@ -1,1 +1,0 @@
-Artículo 76.- Cuando la Junta acordare aumentar la proporción de los encajes sobre los depósitos que ya estuvieren constituidos en los bancos, deberá determinar los aumentos en forma gradual y progresiva, notificando de ello a los bancos con prudente anticipación a la fecha que señale para su vigencia.
