@@ -8,4 +8,5 @@ Artículo 6°-No forman parte de la renta bruta:
 (Así adicionado el inciso anterior por el artículo 20 de la ley N° 4961 del 11 de marzo de 1972)
 6) Todas las pensiones otorgadas por el Estado y sus instituciones autónomas y semiautónomas, hasta por un monto de dos mil colones mensuales, cuando tal pensión sea el único ingreso del contribuyente.
 (Así adicionado el inciso anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
+(Nota de Sinalevi: Mediante el artículo 1° de la ley N° 6026 del 3 de enero de 1977, se interpretó en forma auténtica la adición hecha del inciso anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976, en el sentido de que: “…tal inciso exonera del Impuesto de la Renta los primeros dos mil colones mensuales de toda clase de pensiones ordinarias o extraordinarias, que otorguen el Estado o sus instituciones, además de las otras exenciones que establece la ley”)
 (Así reformado por el artículo 1° de la ley N° 1789 del 18 de setiembre de 1954)
