@@ -15,3 +15,4 @@ Reglamento para regular el uso de vehículos del Poder Ejecutivo
 | --- | --- | --- |
 | 1 | 1974-06-22 | la propia norma |
 | 2 | 1981-07-06 | Decreto Ejecutivo 12770 (1981-07-06) |
+| 3 | 1984-04-16 | Decreto Ejecutivo 15392 (1984-04-16) |
