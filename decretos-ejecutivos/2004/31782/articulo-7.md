@@ -1,0 +1,1 @@
+Artículo 7º—De la renovación del permiso. Para renovar el permiso será necesario presentar solicitud expresa ante la Dirección General de Armamento, actualizando la información desde la última gestión. Recibidos los documentos, se procederá con la inspección respectiva, luego de lo cual se valorará integralmente la solicitud.

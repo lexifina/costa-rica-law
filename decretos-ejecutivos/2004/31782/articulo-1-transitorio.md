@@ -1,0 +1,2 @@
+Transitorio único.—Los polígonos existentes que no cumplan con las disposiciones del presente reglamento, tendrán un plazo máximo de nueve meses para ajustarse a los nuevos requerimientos. Para ello el interesado deberá presentar ante la Dirección General de Armamento, para su aprobación, un plan de ejecución que contemple la calendarización de las mejoras de acuerdo a las prioridades de seguridad.
+Dado en la Presidencia de la República.—San José, a los dos días del mes de febrero del dos mil cuatro.

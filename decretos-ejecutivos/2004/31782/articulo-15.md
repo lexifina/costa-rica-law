@@ -1,0 +1,2 @@
+Artículo 15.—El registro de usuarios. Todo polígono autorizado para funcionar, deberá tener un libro foliado en el que se indicará el nombre, número de cédula y firma del usuario así como las características del arma que será utilizada.
+Este libro deberá permanecer disponible para las autoridades competentes y el titular del permiso se encuentra obligado a conservarlo por un término de cinco años.
