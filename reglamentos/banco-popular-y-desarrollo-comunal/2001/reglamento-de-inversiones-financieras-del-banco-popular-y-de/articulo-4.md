@@ -1,0 +1,3 @@
+Artículo 4°- El objetivo prioritario de la política de inversiones temporales es definir montos globales y plazos de inversiones tales que le permitan al Banco mantener niveles de liquidez adecuados para cumplir con sus obligaciones de corto plazo, ubicándolo como una entidad de riesgo normal, según los indicadores de liquidez fijados por la SUGEF.
+El objetivo subordinado de la política de inversiones temporales es procurar la mayor rentabilidad, dentro de los parámetros definidos en el artículo 2° de este Reglamento.
+* NOTA: Según lo estipulado en el Acuerdo de Sesión Nº 3987 del 16 de abril del 2002, al derogarse el artículo 3 este artículo 4 pasa a ser 3.

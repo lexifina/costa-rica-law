@@ -1,0 +1,1 @@
+Artículo 13: El esquema de comisiones existente entre el Banco y su puesto de bolsa deberá establecerse entre el Gerente General del Banco y el Gerente del Puesto de bolsa. En ningún caso estas comisiones serán superiores a la mitad de las vigentes en los puestos de bolsa de las entidades públicas.

@@ -1,0 +1,1 @@
+Artículo 14º- En todo caso, para cada decisión de inversión deberá procurarse la mayor liquidez, rentabilidad, seguridad y beneficio en el nivel consolidado de todas las empresas propiedad del Banco Popular.

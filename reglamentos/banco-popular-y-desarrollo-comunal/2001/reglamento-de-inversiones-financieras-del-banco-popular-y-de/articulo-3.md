@@ -1,0 +1,1 @@
+Artículo 3: Las políticas de inversión del Banco serán ejecutadas por la Comisión Gerencial de Inversiones (CGI) conformada por el Gerente General en calidad de Presidente y los dos Subgerentes. Su potestad podrá ser delegada, total o parcialmente, en la Comisión de Inversiones que se indica en el artículo 15 y siguientes de este Reglamento.

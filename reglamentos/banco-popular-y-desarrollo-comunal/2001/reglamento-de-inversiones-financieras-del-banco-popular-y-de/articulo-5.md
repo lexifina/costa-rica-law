@@ -1,0 +1,3 @@
+Artículo 5°- La política de inversiones permanentes tiene como objetivo elevar la rentabilidad global del Banco, mejorar la calidad del activo productivo y cumplir con los indicadores de suficiencia patrimonial según los parámetros establecidos por la SUGEF. También deberá observar los criterios definidos en el articulo 2° de este Reglamento.
+Las decisiones de inversiones permanentes estarán subordinadas a que se cumpla con el objetivo de la política de inversiones temporales definido en el articulo 4° del presente Reglamento.
+* NOTA: Según lo estipulado en el Acuerdo de Sesión Nº 3987 del 16 de abril del 2002, al derogarse el artículo 3 este artículo 5 pasa a ser 4.
