@@ -1,0 +1,2 @@
+Artículo 27 .-La distribución de la cuota contingente se basará en las proyecciones de los exportadores para el período de que se trate.
+Si la cuota contingente en cualquier categoría resultara insuficiente para atender las proyecciones de los exportadores, el Consejo la distribuir usando el criterio de proporcionalidad o el de la generación neta de divisas, previa consulta con el Ministerio de Comercio Exterior.

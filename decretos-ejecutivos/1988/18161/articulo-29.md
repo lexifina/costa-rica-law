@@ -1,0 +1,1 @@
+Artículo 29.-Las solicitudes de cuotas contingentes de los exportadores, serán por cuatro meses y deberán incluir un programa de exportaciones mensuales, para el conocimiento de la Oficina. La Oficina revisar las exportaciones y las proyecciones de cada exportador cada cuatro meses.

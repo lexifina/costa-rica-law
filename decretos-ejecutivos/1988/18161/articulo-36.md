@@ -1,0 +1,1 @@
+Artículo 36.-El Consejo queda en potestad de administrar los recursos financieros que generen los permisos de exportación textil, otras fuentes de ingreso y de otra ¡índole que llegara a tener, en atención a los intereses del sector privado y del país.

@@ -1,0 +1,2 @@
+Artículo 5°.-La cuota como un todo pertenece al Estado Costarricense, que velar a través del Ministerio de Comercio Exterior para que la misma voz, pero sea distribuida lo más justamente entre los particulares y siempre teniendo en cuenta el interés nacional.
+Una vez negociado el monto de la cuota entre el Gobierno de Costa Rica y el gobierno con restricción de cuota, el Gobierno de Costa Rica hará del conocimiento de El Consejo, el monto establecido para su distribución y administración, de acuerdo con las normas que se fijan en este Decreto.

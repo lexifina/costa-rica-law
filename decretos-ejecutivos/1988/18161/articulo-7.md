@@ -1,0 +1,1 @@
+Artículo 7°-El Ministerio de Comercio Exterior solicitar a El Consejo integrar comités asesores especiales, para apoyar las negociaciones internacionales de cuotas a las exportaciones de productos textiles y ropa confeccionada nacional.

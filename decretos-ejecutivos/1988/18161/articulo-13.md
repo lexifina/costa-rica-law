@@ -1,0 +1,3 @@
+De las visas de exportación
+Artículo 13.-Toda empresa registrada que desee exportar productos de la industria textil y ropa confeccionada a los mercados de países con cuotas de importación a esta industria, deberá solicitar a la Oficina que le extienda el permiso de exportación textil. Asimismo, la correspondiente visa de exportación, siempre y cuando la visa sea regulada por acuerdo establecido entre los países.
+El permiso de exportación textil ser requisito obligatorio e indispensable para todas las exportaciones de productos de la industria textil y de ropa de confección, aún cuando el producto a exportar no se encuentre incluido en una cuota. Se excluye de esta obligatoriedad las exportaciones dirigidas al Mercado Común Centroamericano y Honduras.

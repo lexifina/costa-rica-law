@@ -1,0 +1,1 @@
+Artículo 4°.-En las sesiones de El Consejo, el Gobierno de Costa Rica, a través del Ministerio de Comercio Exterior, podrá participar con voz, pero sin voto, cuando El Consejo o el Ministerio de Comercio Exterior lo consideren necesario.

@@ -1,0 +1,7 @@
+Artículo 30.-Las penalizaciones que a continuación se describen, no aplicarán para las empresas que durante el cuatrimestre anterior hayan exportado el noventa y cinco por ciento (95%) de su cuota contingente asignada. Si la empresa exportadora no cumpliera con sus proyecciones durante un cuatrimestre la base de su cuota contingente se calcular , para el siguiente cuatrimestre, de la siguiente forma:
+a) Solo podrá arrastrar un diez por ciento (10%) de la cuota contingente no utilizada.
+b) Al monto real de exportaciones de cuota contingente se le restar el noventa por ciento (90%) de lo no exportado.
+c) Al resultado de esta resta se le sumar el diez por ciento (10%) del punto a. El resultado dar la base de cuota contingente de esa empresa, cuyo monto no puede ser superior al que se le otorgue vía el artículo 27.
+Una vez distribuida la cuota contingente, con base en los artículos 27 y 28, si quedara cuota contingente, estas empresas penalizadas podrán optar por un incremento de su cuota contingente utilizando el artículo 27.
+Si durante un cuatrimestre, la empresa sufriera algún evento de fuerza mayor, el Consejo podrá autorizar retorno de cuota contingente y las penalizaciones anteriores no se le aplicarán.
+Las cuotas contingentes penalizadas, conforme con lo descrito, se considerar n ingresadas a un fondo común y serán distribuidas por el Consejo para el cuatrimestre siguiente, conforme con los criterios expresados en el articulo 27.
