@@ -4,9 +4,8 @@ establezcan contra los colegiados, ya sea por parte de particulares,
 entidades privadas o poderes públicos, en relación con sus deberes y
 obligaciones profesionales;
 b) Conocer y resolver los conflictos que se presenten entre un colegiado
-y un organismo superior del Colegio, o entre dos o más colegiados, según
-lo acuerde la Junta Directiva, luego de estudiar la naturaleza de la
-denuncia;
+y un organismo superior del Colegio, o entre dos o más colegiados, según lo
+acuerde la Junta Directiva, luego de estudiar la naturaleza de la denuncia;
 c) Recomendar las penas, que irán, según el grado de la falta, desde la
 amonestación privada y amonestación escrita, hasta la inhabilitación
 temporal y la expulsión definitiva del colegiado; y

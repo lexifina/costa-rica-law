@@ -1,4 +1,7 @@
-Artículo 24.- Podrán ser Directores, Gerentes y Administradores de
-periódicos o de otros medios de información, aquellos que no sean miembros
-del Colegio, pero estarán obligados a cumplir con los deberes
-profesionales, éticos y morales que esta ley estatuye para los colegiados.
+Artículo 24.- Los cargos de director, subdirector, jefe de redacción o
+cualquiera otros netamente periodísticos, deberán ser ocupados únicamente
+por periodistas colegiados. Los cargos de director, jefe o encargado de
+las oficinas de relaciones públicas y divulgación o prensa de las
+instituciones públicas, también deberán ser desempeñados por periodistas
+colegiados.
+(Así reformado por artículo 2º de la ley Nº 5050 de 8 de agosto de 1972).
