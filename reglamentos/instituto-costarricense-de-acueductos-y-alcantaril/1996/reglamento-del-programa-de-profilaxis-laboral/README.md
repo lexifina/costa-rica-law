@@ -14,3 +14,4 @@ Reglamento del Programa de Profilaxis Laboral
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-08-21 | la propia norma |
+| 2 | 1997-01-24 | Reglamento 0 (1997-01-24) |
