@@ -1,1 +1,0 @@
-Artículo 59.- Las funciones, facultades y obligaciones del Banco Central con respecto a su emisión monetaria, se regirán por las disposiciones especiales de la Ley de la Moneda, de la presente ley y de los reglamentos de la Institución.

@@ -1,0 +1,5 @@
+Artículo 106.- Dictamen del Banco Central
+Siempre que el Gobierno de la República tenga el propósito de efectuar operaciones de crédito en el extranjero, el Ministerio de Hacienda solicitará un dictamen del Banco Central, previo a la realización de la operación en trámite. Igual dictamen deberán solicitar, también, las instituciones públicas, cuando traten de contratar créditos en el exterior.
+El dictamen del Banco deberá basarse en la situación del endeudamiento externo del país, así como en las repercusiones que pueda tener la operación en trámite en la balanza de pagos internacionales y en las variables monetarias.
+Cuando el Gobierno o las entidades mencionadas intenten contratar empréstitos en el interior del país, también deberán solicitar su dictamen al Banco, el cual lo emitirá con el propósito de dar a conocer su criterio sobre la situación de endeudamiento del sector público y de coordinar su política monetaria y crediticia, con la política financiera y fiscal de la República.
+El Banco publicará sus dictámenes en el diario oficial.

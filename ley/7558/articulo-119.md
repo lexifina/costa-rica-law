@@ -1,0 +1,5 @@
+Artículo 119.- Supervisión y fiscalización de la Superintendencia
+Con el propósito de velar por la estabilidad, la solidez y el eficiente funcionamiento del sistema financiero nacional, la Superintendencia ejercerá sus actividades de supervisión y fiscalización sobre todas las entidades que lleven a cabo intermediación financiera, con estricto apego a las disposiciones legales y reglamentarias, velando porque cumplan con los preceptos que les sean aplicables.
+En relación con la operación propia de las entidades fiscalizadas y el registro de sus transacciones, la Superintendencia estará facultada para dictar las normas generales que sean necesarias para el establecimiento de sanas prácticas bancarias, todo en salvaguarda del interés de la colectividad.
+Para efectos de dictar y aplicar las normas de su competencia, la Superintendencia podrá establecer categorías de intermediarios financieros, en función del tipo, tamaño y grado de riesgo de esos intermediarios.
+Las normas generales y directrices dictadas por la Superintendencia serán de observancia obligatoria para las entidades fiscalizadas.

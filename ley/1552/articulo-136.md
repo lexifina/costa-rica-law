@@ -1,3 +1,0 @@
-Artículo 136.- La Auditoría General de Entidades Financieras deberá tener una auditoría interna para la fiscalización preventiva de todas sus dependencias y para la que corresponda posteriormente.
-La auditoría interna funcionará bajo la responsabilidad y la dirección inmediata de un auditor, nombrado por la Junta Directiva del Banco Central como funcionario a tiempo completo y de dedicación exclusiva. Habrá también un subauditor, nombrado por la Junta Directiva del Banco Central. Los requisitos, la forma de remoción y las funciones del auditor y del subauditor serán los mismos que se señalan para tales funcionarios en los bancos comerciales del estado.
-(Adicionado por el artículo 2º de la Ley 7107 de 4 de noviembre de 1988)

@@ -1,1 +1,0 @@
-Artículo 91.- Los Bonos de Estabilización Monetaria adquiridos, amortizados o pagados por el Banco Central, ordinaria o extraordinariamente, no podrán ser considerados en ningún caso como activos de la Institución. Los intereses devengados y los bonos que no fueren cobrados dentro de los diez años siguientes a la fecha de su vencimiento, prescribirán en favor del Banco Central.

@@ -1,1 +1,0 @@
-Artículo 68.- Los créditos que se soliciten al Banco Central serán considerados y acordados por una Comisión de Crédito, integrada por el Gerente, el Subgerente y el Contador o sus respectivos delegados. La Junta determinará los límites y condiciones dentro de los cuales la Comisión resolverá la aceptación o improbación de los créditos solicitados.

@@ -1,0 +1,3 @@
+Artículo 4.- Acuerdo con los convenios
+El Banco Central deberá actuar en lo que sea pertinente, absolutamente de acuerdo con las prescripciones de los convenios monetarios y bancarios internacionales, suscritos y ratificados por la República.
+Podrá actuar como agente del Estado y en tal caso tendrá su representación legal y financiera en los trámites, las negociaciones, las operaciones y las decisiones resultantes de esos convenios. Podrá intervenir, en la forma en que prevean tales convenios, en la administración y el funcionamiento de las instituciones creadas y mantenidas por los mismos convenios.

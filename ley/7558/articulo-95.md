@@ -1,0 +1,2 @@
+Artículo 95.- Procedimientos para compra-venta de divisas
+El Banco Central de Costa Rica podrá comprar, vender y conservar, como parte integrante de sus reservas monetarias internacionales, toda clase de divisas, por sí mismo o por intermedio de los entes autorizados por la Junta, conforme a las condiciones, los requisitos y las demás especificaciones que esta acordare. También podrá hacer uso de todos los procedimientos financieros adecuados para proteger el valor de sus activos internacionales.

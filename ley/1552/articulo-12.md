@@ -1,1 +1,0 @@
-Artículo 12.- El ejercicio financiero del Banco será el año natural, pero al cierre de cada semestre se hará la liquidación completa de sus ganancias y pérdidas, que para su validez deberá ser aprobada por el Auditor General de Entidades Financieras.

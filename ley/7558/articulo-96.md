@@ -1,0 +1,2 @@
+Artículo 96.- Tipo de cambio
+El tipo de cambio estará expresado en relación con el dólar de los Estados Unidos de América. Sin embargo, la Junta podrá, con una votación de por lo menos cinco de sus miembros, expresar el tipo de cambio en derechos especiales de giro o en cualquier otro denominador o moneda, siempre y cuando no contravenga lo establecido en los convenios internacionales suscritos por el país.

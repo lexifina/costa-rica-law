@@ -1,0 +1,3 @@
+Artículo 65.- Requerimiento de encaje
+La Junta Directiva del Banco Central podrá someter a requerimiento de encaje, cualesquiera otras cuentas del pasivo de las entidades financieras que, a su juicio, fueren similares a las obligaciones constituidas como depósitos. También podrá fijar los encajes correspondientes, dentro de los límites establecidos en esta ley.
+Asimismo, la Junta Directiva podrá someter a encaje las operaciones de captación de recursos financieros del público, en forma habitual, realizadas mediante fideicomisos o contratos de administración cuando, por su magnitud y sus características, considere que son similares a las operaciones pasivas de los bancos.
