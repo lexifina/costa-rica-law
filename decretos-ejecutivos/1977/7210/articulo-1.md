@@ -13,4 +13,5 @@ Considerando:
 8°—Que el Bosque Salado constituye el habitat de especies de la fauna silvestre, algunas de las cuales se encuentran en vías de extinción.
 Por tanto,
 DECRETAN:
-Artículo 1°—Decláranse Reserva Forestal todos los manglares o bosques salados que existen en los litorales continentales e insulares y esteros del territorio nacional y que conforman la zona pública dentro de la zona marítimo-terrestre.
+NOTA DE SINALEVI: El texto de este Decreto fue reformado por el decreto ejecutivo N° 10005 de 8 de mayo de 1979, por lo que se reproduce a continuación:
+Artículo 1°—Decláranse Reserva Forestal las áreas de manglares adyacentes a los litorales continentales e insulares del país, cualesquiera que sea su extensión. Es decir, ya se encuentren únicamente dentro de la zona marítimo terrestre o bien se extiendan a terrenos —estatales o privados— colindantes con esa franja de 200 metros ancho, contados a partir de la pleamar ordinaria.

@@ -1,1 +1,1 @@
-Artículo 2°—La reserva forestal creada por este decreto será administrada por la Dirección General de Recursos Pesqueros y Vida Silvestre del Ministerio de Agricultura y Ganadería.
+Artículo 2°—La administración de esta reserva estará a cargo de la Dirección General Forestal, la cual, no obstante, deberá consultar con la Dirección General de Recursos Pesqueros y Vida Silvestre toda solicitud , presentada para aprovechar el mangle en esas áreas, coordinando así una acción conjunta para conservar e incrementar también la fauna silvestre y marina.
