@@ -1,0 +1,1 @@
+Artículo 20.—En lo que sea conducente el presente Reglamento es aplicable al uso de las motocicletas, con la excepción que los permisos y el control de dichos vehículos corresponden al coordinar de la Sucursal a la cual se le ha asignado.

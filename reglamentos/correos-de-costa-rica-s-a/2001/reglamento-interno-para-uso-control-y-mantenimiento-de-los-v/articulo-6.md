@@ -1,0 +1,2 @@
+Artículo 6°—Los vehículos de uso discrecional por la índole de su uso podrán circular fuera de la jornada de trabajo y cualquier día de la semana.
+Al finalizar la jornada de trabajo o gira, deberán pernoctar en las instalaciones de la empresa, salvo aquellos casos en que se encuentren en cumplimiento de giras y misiones especiales de trabajo, caso en el cual deberá tomar las precauciones del caso para la seguridad del vehículo. En los casos de vehículos de uso discrecional podrán pernoctar cuando así lo requieran en el domicilio del funcionario que lo tiene a su cargo.

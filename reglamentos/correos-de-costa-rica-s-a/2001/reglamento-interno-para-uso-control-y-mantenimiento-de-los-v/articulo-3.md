@@ -1,0 +1,1 @@
+Artículo 3.—Es obligación de todos los empleados de Correos, informar al Departamento de Transportes e Inspección toda irregularidad que se observe en la utilización de los vehículos, a fin de tomar las medidas correspondientes.

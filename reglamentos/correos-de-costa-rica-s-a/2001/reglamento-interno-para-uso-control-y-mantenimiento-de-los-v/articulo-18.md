@@ -1,0 +1,1 @@
+Artículo 18.—Con relación al artículo anterior el conductor al servicio de la Empresa puede solicitar por escrito, que se le rebaje de su salario en deducciones quincenales hasta completar el monto total.

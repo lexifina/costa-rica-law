@@ -1,0 +1,2 @@
+Artículo 2°—Es de acatamiento obligatorio para los conductores, así como de todos los trabajadores de Correos de Costa Rica, que por cualquier motivo deban utilizar el servicio de transportes, conocer y cumplir con las disposiciones de este Reglamento y la Ley de Tránsito por Vías Públicas Terrestres y demás disposiciones aplicables.
+Así también corresponde al Departamento de Transportes, ejercer las funciones relativas al control sobre el uso, asignación y mantenimiento de los vehículos.

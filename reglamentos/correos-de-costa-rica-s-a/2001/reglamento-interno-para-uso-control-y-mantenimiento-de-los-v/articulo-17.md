@@ -1,0 +1,2 @@
+Artículo 17.—Si con base en la sentencia o resolución del tribunal competente se demuestra la culpabilidad del conductor al servicio de la empresa, éste deberá pagar los costos no cubiertos por la póliza del Instituto Nacional de Seguros para este tipo de riesgos (deducibles, etc). Los otros costos en que incurra la empresa, o las indemnizaciones que haga Correos a terceros afectados mediante arreglos extrajudiciales, deberán ser cubiertos por el conductor responsable.
+Lo anterior sin perjuicio de las sanciones disciplinarias a que se haga acreedor el conductor.

@@ -1,0 +1,1 @@
+Artículo 21.—Este Reglamento no exime a los trabajadores que hacen uso de los vehículos de la empresa, de las responsabilidades civiles o penales en que pudieran incurrir por culpa o dolo, por conducir bajo efectos del alcohol, drogas o en desacato de las regulaciones de la Ley de Tránsito.

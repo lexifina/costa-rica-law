@@ -1,0 +1,1 @@
+Artículo 23.—Se integra al presente Reglamento como anexo uno, los Procedimientos para la Reparación de Vehículos y Motocicletas elaborado por la Dirección de Administración de Correos y aprobado por la Gerencia General según oficio GG-3-1750-2000.

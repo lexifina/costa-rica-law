@@ -1,0 +1,1 @@
+Artículo 11.—Las solicitudes para utilizar el vehículo con más de un día de duración, deben ser presentadas por lo menos con ocho días hábiles de anticipación, salvo en casos de urgencia comprobado. Las demás solicitudes, con la anticipación debida a juicio del Encargado de Transportes, de manera que no obstaculicen en el trabajo de preparación de las rutas de cada vehículo.

@@ -1,0 +1,1 @@
+Artículo 22.—Lo no regulado expresamente por este reglamento, se debe resolver conforme a lo dispuesto por el Manual sobre Normas Técnicas de control Interno relativas al Uso, control y mantenimiento de Vehículos de la Contraloría General de la República.
