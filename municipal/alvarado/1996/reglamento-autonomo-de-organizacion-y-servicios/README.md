@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-08-14 | la propia norma |
+| 2 | 1998-09-07 | Reglamento municipal 21 (1998-09-07) |
