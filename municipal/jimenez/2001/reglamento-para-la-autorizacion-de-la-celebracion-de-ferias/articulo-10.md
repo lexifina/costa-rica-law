@@ -1,0 +1,1 @@
+Artículo 10.—Cuando la actividad bailable sea organizada y sus beneficios totales sean para instituciones educativas, religiosas o de bien social, se exonerará el pago municipal por concepto de espectáculos públicos; no así lo correspondiente al pago por permiso de baile.

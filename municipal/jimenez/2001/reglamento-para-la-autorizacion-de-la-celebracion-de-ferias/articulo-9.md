@@ -1,0 +1,1 @@
+Artículo 9º—En el caso de las actividades bailables sea con conjunto o discomóvil, además de lo indicado en los artículos 5º y 8º del presente reglamento, se requerirá que los centros donde se realice la actividad bailable se encuentren al día con el pago de tributos municipales de cualquier tipo.

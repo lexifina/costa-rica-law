@@ -1,0 +1,1 @@
+Artículo 14.—Se deberá suscribir una póliza ante el Instituto Nacional de Seguros, que en ningún caso podrá ser inferior a diez millones de colones, con el fin de que responda por los daños y perjuicios, accidentes y responsabilidad civil en carreras de cinta, topes y motocross; siempre que las actividades se realicen en un lugar cerrado.

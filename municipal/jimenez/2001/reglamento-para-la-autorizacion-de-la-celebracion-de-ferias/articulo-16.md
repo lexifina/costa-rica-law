@@ -1,0 +1,1 @@
+Artículo 16.—Todas las pólizas que se exigen como requisito, de previo a autorizar las actividades especificadas en este reglamento, deberán solicitarse ante el INS para una cobertura por el evento completo.
