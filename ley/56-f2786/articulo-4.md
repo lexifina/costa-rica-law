@@ -1,0 +1,1 @@
+Art 4° Con este conocimiento el Conjuez sabrá si tiene o no motivo para excusarse, y teniéndolo lo hará dentro de veinticuatro horas de recibido el oficio, en la nota contestación que se agregará al proceso, y se tramitarán la excusa sin que obste hallarse consignada en papel común.

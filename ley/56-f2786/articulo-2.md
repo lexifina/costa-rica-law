@@ -1,0 +1,1 @@
+Art 2° Dicha relación servirá para que el Secretario de la respectiva Sala la manifieste y pregunte a cada uno de los miembros del Tribunal si tiene excusa. En caso afirmativo el Magistrado la presentará a lo más en la siguiente audiencia, y el Secretario pondrá en el proceso razón de las respuestas.
