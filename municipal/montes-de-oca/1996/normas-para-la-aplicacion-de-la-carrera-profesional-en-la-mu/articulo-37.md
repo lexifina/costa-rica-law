@@ -1,0 +1,1 @@
+Artículo 37.-Los ajustes a la carrera profesional podrán ser solicitados por una sola vez, en cada semestre del ano. Su aprobación se harás de conformidad con el procedimiento señalado en los artículos 27,28, 29,30,31,32 y 33. EI ajuste tendrá vigencia desde el momento en que la Comisión dictamine positivamente la solicitud.

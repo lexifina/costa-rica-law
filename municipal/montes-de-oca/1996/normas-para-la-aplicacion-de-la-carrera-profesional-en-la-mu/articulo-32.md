@@ -1,0 +1,1 @@
+Artículo 32.-La Comisión Municipal estudiara la solicitud y si la aprobare, determinará de acuerdo con el puntaje obtenido, el monto por reconocer y comunicará al petente el resultado de su gestión.

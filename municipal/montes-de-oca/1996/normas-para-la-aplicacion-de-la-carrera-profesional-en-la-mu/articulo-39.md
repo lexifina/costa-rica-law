@@ -1,0 +1,1 @@
+Artículo 39.-EI valor de punto se establece en ¢520,00 con un aumento anual del 20% que en ningún caso podrá ser menor del valor que establezca el Servicio Civil para cada punto, a partir de la publicaci6n de este Reglamento.

@@ -1,0 +1,3 @@
+Artículo 20.-La experiencia laboral acumulada por los , de nivel profesional, antes de la vigencia de este reglamento a partir de la obtención del grado de bachillerato universitario 0 con la posesión de la condición de egresado, podrá ser reconocida si el servidor reuniere una de las siguientes condiciones:
+a.Si por razón de inopia o por permitirlo el requisito de la clase, el servidor hubiera sido 'nombrado en puesto de nivel profesional; o
+b.EI servidor que hubiere ocupado un puesto de la clase inmediata inferior al puesto profesional, en que tiene opción al reconocimiento del beneficio. En este caso, se toman en cuenta una experiencia mínima de un año y hasta un máximo de cuatro, siempre que sea específica del puesto de nivel profesional .

@@ -1,0 +1,1 @@
+Artículo 29.-EI funcionario de nivel profesional podrá recuperar el de la carrera profesional que disfrutaba, si al año siguiente de la calificación de servicios que motivó la suspensión referida, obtuviera en la calificación de servicios una nota mínima de excelente.

@@ -1,0 +1,1 @@
+Artículo 36.-Las resoluciones referidas serán comunicadas a la Comisión, al interesado y al Jefe del Departamento de Personal, a fin de que se tramite la respectiva acción de personal en que se haga efectivo eI incentivo por carrera profesional.

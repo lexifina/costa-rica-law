@@ -1,0 +1,1 @@
+Artículo 35.-EI monto por reconocer se establecerá mediante una resolución que emane del Ejecutivo, quien dispondrá para emitirla de 30 días naturales, copia de la cual se acompañará en cada modificación presupuestaria. La fecha de vigencia de la concesión inicial será la que se señala en el articulo 37.
