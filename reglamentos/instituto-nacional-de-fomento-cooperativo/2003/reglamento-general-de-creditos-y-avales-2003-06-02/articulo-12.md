@@ -45,5 +45,6 @@ En aquellos casos donde el INFOCOOP financie actividades de producción agrícol
 Proporción de la garantía
 El INFOCOOP verificará la disponibilidad de garantías reales de los organismos cooperativos y se asegurará que las que estén disponibles, sean otorgadas como respaldo al financiamiento solicitado al INFOCOOP. En caso de no contar con garantías reales suficientes, podrá aceptar cualquier otro tipo de garantía a satisfacción del INFOCOOP.
 Garantía Colateral
-Para todos los casos el INFOCOOP exigirá la suscripción de un pagaré, como garantía colateral que tomado al 60% de su valor cubra el 100% del financiamiento otorgado.
-Esta garantía tiene como finalidad cubrir saldos al descubierto que se generaran en una eventual ejecución de la garantía principal.
+Para todos los casos el Infocoop exigirá la suscripción de un pagaré, como garantía colateral. Esta garantía tiene como finalidad cubrir saldos al descubierto que se generan en una eventual ejecución de la garantía principal.
+El referido pagaré deberá ser emitido por el organismo cooperativo y a criterio del Proceso de Operaciones se solicitará la fianza de gerente y miembros del Consejo de Administración. Dada la naturaleza colateral de esta garantía no serán exigibles para la misma las certificaciones y los estudios que se solicitan de los pagarés recibidos como garantía principal.
+(Así reformado, en cuanto a la Garantía Colatera, en sesión N° 3329 de 22 de marzo de 2004).
