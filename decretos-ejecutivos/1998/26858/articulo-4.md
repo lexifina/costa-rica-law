@@ -1,0 +1,1 @@
+Artículo 4°—Sujetos beneficiarios. Los gastos a que se refiere este Reglamento se cubrirán únicamente a los funcionarios que según el Registro de la Dirección de Recursos Humanos estén nombrados en una plaza de esta cartera, mediante un acto válido y eficaz de investidura.

@@ -1,0 +1,1 @@
+Artículo 32.—Gastos Financiados. Cuando los gastos sean financiados por el órgano o país auspiciador de la actividad y estos sean inferiores a los filiados por la tabla del Reglamento de Gastos, d Ministerio podrá considerar el otorgamiento de suma complementaria hasta completar la tarifa correspondiente, previa solicitud formal del funcionario.

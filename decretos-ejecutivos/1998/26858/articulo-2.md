@@ -1,0 +1,1 @@
+Artículo 2°—Concepto. Se entenderá como viático aquella v destinada a cubrir los gastos de transporte, alimentación, hospedaje y gastos menores en que deba incurrir un funcionario cuando en razón de funciones, se deba desplazar transitoriamente de su lugar de trabajo, u fin de cumplir con labores propias de su cargo.

@@ -1,0 +1,2 @@
+Artículo 34.—Fecha de reconocimiento de los gastos. Los gastos a reconocer, establecidos en la tabla del artículo 34 del Reglamento A Viáticos, se harán a partir de la fecha y hora de llegada al lugar de destino. Por concepto de hospedaje, se reconocerá hasta un 50% de la tarifa establecida en la tabla, por desayuno, hasta un 10%, por almuerzo y cena hasta un 15% cada uno, y por gastos menores, hasta un 10% de dicha tarifa.
+Cada concepto se aplicará tomando como base las horas de llegada y demás especificaciones del artículo 42 del Reglamento de Viáticos.

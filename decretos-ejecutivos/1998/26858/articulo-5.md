@@ -1,0 +1,6 @@
+Artículo 5°—Casos de excepción. Además de los beneficiarios contemplados en el artículo anterior, también podrán ser cubiertos por el pago de este concepto.
+a) Asesores de organismos internacionales que estén prestando sus servicios al Ministerio, siempre que así esté establecido en los convenios internacionales o programas de asistencia técnica vigentes.
+b) Los funcionarios o empleados del sector privado que presten temporalmente y en forma gratuita sus servicios en este Ministerio, siempre y cuando dicha situación se ampare en algún convenio suscrito por ambas partes y dicho convenio establezca, entre otros aspectos, el reconocimiento de pago de viáticos.
+c) Funcionarios que están prestando sus servicios 'al Ministerio, pero que perciben su salario de otro ente público, siempre y cuando haya un acuerdo entre los entes públicos involucrados para que el ente beneficiario sea el que asuma dichos gastos.
+d) Cualquier otro que esté comprendido dentro de los estipulados en el artículo 4° del Reglamento de Viáticos.
+En caso que se presente una situación excepcional, no contemplada en este Reglamento ni por el Reglamento de Gastos, se procederá de conformidad con el artículo 53 de este último, sometiendo el caso a criterio de la Contraloría, para que sea esta la que determine si procede o no la autorización respectiva.

@@ -1,0 +1,1 @@
+Artículo 36.—Gastos de representación ocasionales en el exterior. El pago de gastos de representación ocasionales en que incurras funcionarios de este Ministerio, en razón de su cargo y que deban brindar atenciones de carácter oficial a personas o Instituciones en el exterior,se regulará por las disposiciones previstas por el Reglamento de Viáticos en el Capítulo V.

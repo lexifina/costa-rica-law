@@ -1,0 +1,1 @@
+Artículo 6°—Procedencia del gasto. Para que proceda la autorización de los gastos de viaje, debe existir una relación directa entre el motivo del viaje y la naturaleza del cargo que desempeña cualquiera de las personas contempladas en los artículos 4° y 5° de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 18.—Monto aplicable con permanencia discontinua. En cuanto a la permanencia discontinua en el lugar de destino, se aplicará la regulación prevista por el Reglamento de Viáticos en el artículo 20.

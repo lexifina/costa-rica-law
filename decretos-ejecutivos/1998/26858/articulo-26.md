@@ -1,0 +1,2 @@
+Artículo 26.—Pago a becarios; casos de excepción. Se podrá establecer el pago de gastos en que hayan de incurrir los becarios o estudiantes, en cursos con una duración mayor a 30 días, los cuales serán contemplados en el contrato de estudio que se suscriba al efecto. En tal caso, dicho subsidio junto con la beca, no podrá exceder del 75% de los montos que se estipulan en el artículo 34 del Reglamento de Viáticos. Esto de conformidad con el artículo 30 de dicho Reglamento.
+La Administración podrá solicitar justificación de gastos al becario si lo estima conveniente.

@@ -1,0 +1,1 @@
+Artículo 22.—Gastos de hospedaje en lugar distinto al de destino. Cuando el funcionario deba hospedarse en un lugar de tránsito distinto del destino, siempre que sea necesario, se reconocerá la suma autorizada para ese lugar.

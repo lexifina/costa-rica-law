@@ -1,0 +1,1 @@
+Artículo 39.—Normas supletorias. En ausencia de disposiciones específicas en este Reglamento, supletoriamente se aplicará la Ley Reguladora de los Gastos de Viaje y Gastos por Concepto de Transportes para Todos los Funcionarios del Estado No 3462 y el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.

@@ -1,0 +1,1 @@
+Artículo 14.—Limitación territorial. El pago de gastos de viaje de los funcionarios de este Ministerio, deberá ajustarse a las tablas del Reglamento de Viáticos, por lo que solo se cubrirán los gastos de viaje realizados fuera del Área Metropolitana de San José, con las excepciones previstas por el artículo 16 del Reglamento de Viáticos.
