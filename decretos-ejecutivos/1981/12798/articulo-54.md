@@ -1,1 +1,0 @@
-Artículo 54.-Las ausencias justificadas, que no ameriten pago de salario o de subsidio por enfermedad, de acuerdo con las normas legales pertinentes, a solicitud del servidor podrán ser descontadas del período de vacaciones.

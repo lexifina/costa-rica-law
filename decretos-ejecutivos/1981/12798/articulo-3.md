@@ -1,1 +1,0 @@
-Artículo 3º.-El Estado es la persona jurídica responsable de las consecuencias resultantes de las relaciones entre la Dirección General y sus servidores, pero la representación inmediata estará delegada en el Director General.

@@ -1,3 +1,0 @@
-CAPITULO XI
-Del registro de asistencia
-Artículo 34.-El registro de asistencia y puntualidad se llevará por medio de tarjetas individuales que cada servidor deberá marcar personalmente, mediante un reloj marcador de control de asistencia. Quedan excluidos de la obligación de marcar los servidores autorizados por el Director General y aquéllos que por la naturaleza de sus funciones, les corresponda habitualmente ejercer su trabajo en lugar es fuera de la oficina, o que ocasionalmente permanezcan en giras como consecuencia del trabajo que realicen. Caso de no existir reloj marcador en alguno de los locales de trabajo, dicho control se llevará a cabo valiéndose de un libro en el cual se apuntarán las horas de entrada y salida, y en el cual el servidor debe firmar.

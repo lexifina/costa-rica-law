@@ -1,1 +1,0 @@
-Artículo17.-La Dirección General está facultada para asignar a sus servidores labores que considere necesarias, siempre que sean compatibles con sus aptitudes, fuerzas, estado o condición y cargo para el que fueron nombrados, aunque aquellas obliguen a viajar a diferentes zonas del país.

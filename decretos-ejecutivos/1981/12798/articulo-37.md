@@ -1,2 +1,0 @@
-Artículo 37.-El servidor que por dolo, o complacencia, marque tarjetas o registros de asistencia que no le corresponden, incurrirá en falta grave a sus obligaciones haciéndose acreedor, por primera vez a suspensión disciplinaria por ocho días y a despido en el caso de reincidencia.
-La misma sanción se aplicará al servidor al que otro le haya marcado la tarjeta o registro de asistencia del mutuo acuerdo.

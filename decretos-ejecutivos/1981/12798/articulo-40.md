@@ -1,1 +1,0 @@
-Artículo 40.-La advertencia, apercibimiento o amonestación en forma oral o escrita, corresponderá aplicarlas al jefe superior inmediato. La suspensión será impuesta por el Director General. El despido deberá autorizarlo el Ministro de la Presidencia, con observancia de los trámites establecidos por el Estatuto de Servicio Civil y su Reglamento.

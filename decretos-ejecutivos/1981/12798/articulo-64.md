@@ -1,1 +1,0 @@
-Artículo 64.-En casos muy especiales, no sujetos a las anteriores disposiciones, podrán concederse licencias sin goce de sueldo para realizar estudios, reservándose el Director General el derecho de cancelarlas en cualquier momento que lo estime necesario.

@@ -1,1 +1,0 @@
-Artículo 65.-Las licencias para asistir a cursos de adiestramiento mediante el otorgamiento de becas u otras facilidades, se regularán por las disposiciones de la ley Nº 1810 de 15 de octubre de 1954 y las normas internas que al efecto dicte la Dirección General.
