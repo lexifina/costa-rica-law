@@ -1,0 +1,1 @@
+Artículo 3º—Para la integración del jurado, las instituciones y organizaciones en él representadas, deben enviar el nombre de las personas designadas al Ministerio de Cultura Juventud y Deportes, a más tardar la tercera semana del mes de febrero de cada año.

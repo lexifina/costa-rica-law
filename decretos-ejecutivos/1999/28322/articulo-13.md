@@ -1,0 +1,1 @@
+Artículo 13.—Deróganse los Decretos Ejecutivos Nº 20314-C, del 6 del febrero de 1991, 23553-C, del 6 del julio de 1994, 25916-C, del 5 de marzo de 1997, Nº 20511-C, del 8 de abril de 1991 y 23564-C, del 9 de agosto de 1994.

@@ -1,0 +1,1 @@
+Artículo 10.—El premio será anual y consistirá en una suma de dinero, equivalente a cuatro salarios mínimos de un Profesional 1 de la Administración Pública y una estatuilla. La erogación presupuestaria para el presente premio, se realizará con cargo al Programa 753-Gestión y Desarrollo Cultural, subpartida 606-Premios Nacionales.

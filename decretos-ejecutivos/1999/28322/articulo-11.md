@@ -1,0 +1,1 @@
+Artículo 11.—La persona, grupo, institución, organismo o comunidad que haya sido ganador del Premio Nacional de Cultura Popular Tradicional, se integrará de forma automática a la Galería de Cultura Popular Costarricense.

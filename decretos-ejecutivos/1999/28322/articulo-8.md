@@ -1,0 +1,1 @@
+Artículo 8º—El fallo del jurado será inapelable. Los miembros del jurado harán entrega del fallo al Ministerio de Cultura, Juventud y Deportes, a más tardar la segunda semana del mes de enero de cada año, quien lo hará de conocimiento público. En la ceremonia de entrega del premio estarán los miembros del Jurado.

@@ -1,0 +1,1 @@
+Artículo 6º—En caso de que algún participante tenga parentesco de consanguinidad o afinidad, hasta segundo grado con algún miembro del jurado, éste último deberá renunciar y ser sustituido, siguiendo el mismo procedimiento por el que fue nombrado.

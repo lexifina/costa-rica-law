@@ -1,0 +1,1 @@
+Artículo 4º—En su primera sesión, el jurado eligirá en su seno, un presidente, un vicepresidente y un secretario. Una vez nombrado por acuerdo ejecutivo, el jurado se reunirá en forma ordinaria, por lo menos una vez al mes y extraordinariamente, cuando lo convoque su presidente. El quórum para sesionar será de tres miembros.
