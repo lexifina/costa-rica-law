@@ -1,0 +1,3 @@
+Artículo 12.—En caso de que no se hiciera la liquidación o reintegro dentro del plazo establecido, el área de presupuestación, lo informará a la Junta Directiva de la Sociedad Administradora de Fondos de Inversión, quien ordenará la retención de las dietas o salarios del funcionario infractor, de conformidad con el procedimiento establecido en el Código de Trabajo, hasta la debida cancelación del monto sin liquidar.
+Adicionalmente se aplicarían las medidas disciplinarias que correspondan. Lo anterior sin perjuicio de la aplicación de otras disposiciones relacionadas.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
