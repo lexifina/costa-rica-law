@@ -1,0 +1,8 @@
+Artículo 44
+Las disposiciones de la aplicación del presente Pacto se aplicarán
+sin perjuicio de los procedimientos previstos en materia de derechos
+humanos por los instrumentos constitutivos y las convenciones de las
+Naciones Unidas y de los organismos especializados o en virtud de los
+mismos, y no impedirán que los Estados Partes recurran a otros
+procedimientos para resolver una controversia, de conformidad con
+convenios internacionales generales o especiales vigentes entre ellos.

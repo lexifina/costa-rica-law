@@ -1,0 +1,12 @@
+PARTE IV
+Artículo 28
+1. Se establecerá un Comité de Derechos Humanos (en adelante
+denominado el Comité). Se compondrá de dieciocho miembros, y desempeñará
+las funciones que se señalan más adelante.
+2. El Comité estará compuesto de nacionales de los Estados Partes en
+el presente Pacto, que deberán ser personas de gran integridad moral, con
+reconocida competencia en materia de derechos humanos. Se tomará en
+consideración la utilidad de la participación de algunas personas que
+tengan experiencia jurídica.
+3. Los miembros del Comité serán elegidos y ejercerán sus funciones
+a título personal.

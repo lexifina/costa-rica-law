@@ -1,0 +1,26 @@
+PARTE III
+Artículo 6
+1. El derecho a la vida es inherente a la persona humana. Este
+derecho estará protegido por la ley. Nadie podrá ser privado de la vida
+arbitrariamente.
+2. En los países que no hayan abolido la pena capital sólo podrá
+imponerse la pena de muerte por los más graves delitos y de conformidad
+con leyes que estén en vigor en el momento de cometerse el delito y que no
+sean contrarias a las disposiciones del presente Pacto ni a la Convención
+para la prevención y la sanción del delito de genocidio. Esta pena sólo
+podrá imponerse en cumplimiento de sentencia definitiva de un tribunal
+competente.
+3. Cuando la privación de la vida constituya delito de genocidio se
+tendrá entendido que nada de los dispuesto en este artículo excusará en
+modo alguno a los Estados Partes del cumplimiento de ninguna de las
+obligaciones asumidas en virtud de las disposiciones de la Convención para
+la prevención y la sanción del delito de genocidio.
+4. Toda persona condenada a muerte tendrá derecho a solicitar el
+indulto o la conmutación de la pena. La amnistía, el indulto o la
+conmutación de la pena capital podrán ser concedidos en todos los casos.
+5. No se impondrá la pena de muerte por delitos cometidos por
+personas de menos de 18 años de edad, ni se la aplicará a las mujeres en
+estado de gravidez.
+6. Ninguna disposición de este artículo podrá ser invocada por un
+Estado Parte en el presente Pacto para demorar o impedir la abolición de
+la pena capital.
