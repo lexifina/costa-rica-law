@@ -1,0 +1,1 @@
+Artículo 92.—Si fuere el caso de investigar previamente la necesidad del socorro, la Junta Directiva comisionará al Secretario para que, con intervención del Fiscal, practique una información. A toda solicitud por causa de enfermedad, deberá acompañarse el dictamen del Médico Oficial correspondiente o del médico de cabecera.

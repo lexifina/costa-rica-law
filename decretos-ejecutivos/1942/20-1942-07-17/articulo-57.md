@@ -1,0 +1,1 @@
+Artículo 57.—En las Juntas de Gobierno no podrá conocerse de asunto alguno que no haya sido presentado al Secretario con veinticuatro horas de anticipación por lo menos, a efecto de que pueda incluirse en la orden del día, salvo que se trate de cuestiones urgentes que no admitan dilación, a juicio de la Junta.

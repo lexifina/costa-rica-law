@@ -1,0 +1,2 @@
+Artículo 7°—Toda partida de inscripción contendrá el número de orden, las generales y la nacionalidad del abogado, y las fechas del título y del asiento. Este será firmado por el Secretario y el abogado inscrito.
+La Secretaría llevará por separado un índice de los colegiados inscritos, por orden alfabético de apellidos, con indicación del número, tomo y folio en que se halla la partida de inscripción de cada uno de ellos.

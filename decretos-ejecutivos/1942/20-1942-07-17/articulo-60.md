@@ -1,0 +1,3 @@
+Artículo 60.—Son cargos remunerados, la Secretaría, la Tesorería y la Fiscalía; quienes los desempeñen devengarán el sueldo mensual que señale el presupuesto de gastos del Colegio.
+El Fiscal ganará también, por los asuntos en que represente judicialmente a la Corporación, los honorarios que fije el arancel que dicte la Junta de Gobierno.
+A los demás miembros de la Junta Directiva se les abonará la dieta que establezca el presupuesto, la cual no podrá exceder de tres colones por sesión ordinaria. Cuando por falta de quórum no haya reunión, los que asistan lo harán constar así bajo su responsabilidad en el libro de actas a fin de que se les abone la dieta respectiva.

@@ -1,0 +1,1 @@
+Artículo 85.—Podrá también la Junta de Gobierno subvencionar las publicaciones privadas que estime convenientes para el desarrollo y difusión de las ciencias jurídicas, económicas y sociales, dentro del renglón del presupuesto de gastos del Colegio, de acuerdo con las normas que al efecto establezca la Junta Directiva.

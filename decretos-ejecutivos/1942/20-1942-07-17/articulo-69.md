@@ -1,0 +1,1 @@
+Artículo 69. — Corresponde al Tribunal Conciliador mediar, a instancia del Presidente, en los conflictos capaces de originar un incidente personal, o en las diferencias profesionales graves que surjan entre dos abogados o entre un abogado y otra persona que no lo sea, de conformidad con las reglas establecidas en los artículos 36, 37 y 38 de la Ley Orgánica del Colegio.

@@ -1,0 +1,1 @@
+Artículo 56.—Todas las disposiciones relativas a las Juntas Generales, en lo que no se opongan a la Ley Orgánica del Colegio o al presente capítulo, son aplicables a las reuniones de la Junta de Gobierno; pero las actas de las sesiones de Directiva, sin otra formalidad, se leerán y aprobarán o se modificarán en la sesión siguiente, firmándolas el que preside y el Secretario.

@@ -1,0 +1,2 @@
+Artículo 91.—Presentada a la Junta Directiva solicitud escrita de auxilio a favor de un abogado residente en Costa Rica, sea por el interesado, por un pariente suyo o por cualquier colegiado, se procederá a celebrar sesión secreta con el objeto de resolver si se concede el subsidio o no, conforme a los artículos 25 y 28 de la Ley Orgánica del Colegio.
+La Junta no concederá el subsidio si en alguna forma pudiera cles-eciuilibrar el fondo necesario, conforme a las previsiones de la Directiva, para atender con normalidad los auxilios por defunciones.

@@ -1,0 +1,1 @@
+Articulo 115.—No le es permitido a la Junta General ni a la Junta de Gobierno aplicar los fondos pertenecientes a una de las cuentas a que se refiere el artículo 107 a satisfacer erogaciones imputables a otra de dichas cuentas.

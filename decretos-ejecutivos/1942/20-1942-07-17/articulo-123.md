@@ -1,0 +1,1 @@
+Artículo 123.—El estado general de los ingresos y gastos que presente el Tesorero saliente en la sesión inaugural de la Junta de Gobierno, conforme se establece en el artículo 54, será visado por el nuevo Tesorero en compañía del Fiscal; pero la glosa y aprobación de esas cuentas corresponde a la Junta Directiva.

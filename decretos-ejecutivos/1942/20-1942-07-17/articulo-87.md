@@ -1,0 +1,1 @@
+Artículo 87.—Las disposiciones sobre biblioteca, reuniones académicas del Colegio e intercambio intelectual entre los abogados nacionales y los de las demás naciones americanas, serán objeto de reglamentos separados que dictará la Junta de Gobierno.

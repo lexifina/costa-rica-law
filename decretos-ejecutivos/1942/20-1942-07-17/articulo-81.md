@@ -1,0 +1,1 @@
+Artículo 81.—En la apreciación de hechos y pruebas, cualquiera que sea la forma en que éstas se hayan practicado, el Consejo juzgará con amplitud de criterio, sin estar sujeto a las reglas positivas de la prueba. Bastará, en consecuencia, la convicción moral de que la falta ha sido cometida o no. para que pueda imponerse o denegarse la corrección disciplinaria.

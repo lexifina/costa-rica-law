@@ -1,0 +1,1 @@
+Artículo 13.—El ingreso, suspensión o separación de un abogado, salvo el caso de muerte, se avisará por el periódico oficial y se comunicará a la Corte Suprema de Justicia, y el Tesorero tomará nota de ello para los efectos de los artículos 100, 107 y 111.

@@ -1,0 +1,1 @@
+Artículo 52.—Cuando por la importancia de los asuntos de que va a conocer una asamblea, la Junta de Gobierno juzgare conveniente la mayor asistencia posible de abogados, podrá en la convocatoria señalar una sanción especial para los que no asistan estando obligados a ello.

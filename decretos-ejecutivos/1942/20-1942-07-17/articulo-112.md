@@ -1,0 +1,2 @@
+Artículo 112.—Todo egreso lo hará el Tesorero por medio de cheque contra el Banco, expedido nominalmente a favor del interesado, en virtud de una orden de pago.
+El cheque se extenderá en una fórmula especial que, además de las especificaciones usuales, contendrá el número y fecha de la respectiva orden de pago y el sello de la Tesorería. Como condición indispensable para su pago, el cheque necesita el visto bueno del Fiscal con el sello de la Fiscalía.

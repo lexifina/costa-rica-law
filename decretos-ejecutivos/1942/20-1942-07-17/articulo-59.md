@@ -1,0 +1,1 @@
+Artículo 59.—Cuando la votación sea secreta, se hará por el sistema de papeletas escritas a máquina o manuscritas, o por medio de balotas blancas o negras, sirviendo las blancas para indicar que el votante está por la afirmativa, v las negras por la negativa.

@@ -1,0 +1,1 @@
+Artículo 46.—Sobre el mismo punto no se concederá la palabra a cada abogado más de dos veces, salvo al autor o autores de una proposición o modificación, quienes para defenderla podrán usar de la palabra cuantas veces fuere necesario. En todo caso, el Presidente o quien lo sustituya, podrá limitar el tiempo en que cada abogado haga uso de la palabra.

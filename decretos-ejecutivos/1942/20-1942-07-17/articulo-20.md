@@ -1,0 +1,1 @@
+Articulo 20.—Los abogados al suscribir los pedimentos o escritos dirigidos a las autoridades judiciales o administrativas, deberán escribir en forma legible el nombre y apellidos debajo de la firma. Los infractores serán corregidos disciplinariamente por la Junta de Gobierno a solicitud de interesado o por queja de la respectiva autoridad.

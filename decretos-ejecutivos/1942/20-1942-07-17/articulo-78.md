@@ -1,0 +1,1 @@
+Artículo 78.—Los gastos de viático que al salir de la ciudad tuvieren que hacer el Secretario o el Fiscal, les serán indemnizados por la Junta de Gobierno. Tales gastos comprenden los de locomoción, alimentación y también diez colones diarios que se abonarán por todo el tiempo que sea preciso invertir desde la salida hasta el regreso.

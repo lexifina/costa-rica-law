@@ -1,0 +1,1 @@
+Artículo 39.—Las proposiciones que los abogados presenten para que se dé cuenta de ellas en la asamblea de junio, deberán formularse por escrito y ser entregadas a la Secretaría antes del primero de mayo inmediato anterior, para que la Junta Directiva las estudie e informe sobré ellas.

@@ -1,0 +1,1 @@
+Artículo 89.—El saldo o, en su caso, la cuota total cuando no se haya hecho el anticipo a que se refiere el artículo anterior, será entregado por la Junta de Gobierno, de conformidad con los artículos 25 y 28 de la Ley Orgánica del Colegio, al albacea de la sucesión del abogado fallecido, a solicitud escrita del albacea y previa comprobación del cargo debidamente registrado.

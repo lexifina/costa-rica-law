@@ -1,0 +1,1 @@
+Artículo 65. — El cargo de abogado consultor es obligatorio; pero en los casos en que, de ser juez, tendría motivo de impedimento o de recusación, o en que no pueda intervenir por su condición de ‘funcionario judicial, el designado podrá excusarse y la Junta de Gobierno lo repondrá a la mayor brevedad posible.

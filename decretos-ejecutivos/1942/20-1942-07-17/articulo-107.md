@@ -1,0 +1,1 @@
+Artículo 107.—El Tesorero llevará en sus libros, con la separación debida, tres cuentas distintas: “Mutualidad Antigua”, “Fondo de Mutualidad y Subsidios” y “Fondo Común del Colegio”. Llevará, además, un control de pago de cuotas de contribución ipor el sistema de tarjetas.

@@ -1,0 +1,1 @@
+Artículo 58.—Ningún miembro de la Junta podrá excusarse de votar en los asuntos de conocimiento de ella; pero no lo hará en los casos en que de ser juez, tendría motivo de impedimento o de recusación.

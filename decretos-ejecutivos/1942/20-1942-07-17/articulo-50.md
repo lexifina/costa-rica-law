@@ -1,0 +1,1 @@
+Artículo 50.—Los acuerdos o resoluciones se tomarán por mayoría relativa de votos. Estos serán nominales a menos que el Reglamento disponga lo contrario, para determinados casos. Si hubiere empate, decidirá el abogado que preside. No podrá votar quien, de ser juez, tendría motivo de impedimento o de recusación.

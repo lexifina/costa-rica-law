@@ -1,0 +1,1 @@
+Artículo 98.—Al expirar el término por el cual fue concedido un auxilio, el Tesorero deberá suspender el pago y dar cuenta de la suspensión a la Junta de Gobierno en la primera sesión ordinaria que ésta celebre después de esa fecha.

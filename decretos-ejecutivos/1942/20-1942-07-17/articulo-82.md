@@ -1,0 +1,1 @@
+Articulo 82.—La deliberación del Consejo será secreta, lo mismo que la votación, la cual se hará por el sistema de papeletas. Para que haya resolución es necesario el voto conforme de toda conformidad de la mayoría de todos los miembros del Tribunal; y la sesión no podrá por ningún motivo suspenderse ni levantarse mientras no exista resolución.

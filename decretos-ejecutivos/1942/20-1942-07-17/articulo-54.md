@@ -1,0 +1,2 @@
+Artículo 54.—En la sesión inaugural, el Secretario y el Tesorero salientes leerán, respectivamente, la memoria de los trabajos del Colegio y el estado general de sus ingresos y egresos, informes que se ordenará publicar; y se señalará hora, día y lugar para las sesiones ordinarias de la Junta Directiva, quedando todos sus miembros obligados a concurrir a éstas sin necesidad de especial convocatoria.
+Las cuentas del Tesorero serán examinadas en su oportunidad, conforme establece el artículo 123.

@@ -1,0 +1,1 @@
+Artículo 74.—El miembro del Consejo que se negare sin motivo legal a servir el cargo o que hiciere dificultades para que se conozca del asunto, será repuesto por la Junta Directiva como se establece en el artículo anterior. Al remiso se le aplicará suspensión para el ejercicio de la profesión de quince a treinta días por la primera vez y de tres meses por las siguientes.

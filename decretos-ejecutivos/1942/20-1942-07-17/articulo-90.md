@@ -1,0 +1,1 @@
+Artículo 90.—Si a la fecha del fallecimiento de un abogado, estuviere atrasado en el pago de sus cuotas o por cualquier otro concepto adeudare suma alguna al Colegio, lo debido se deducirá de la mutualidad.

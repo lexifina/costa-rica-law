@@ -1,0 +1,1 @@
+Artículo 77.—Los vocales que representan a la Junta de Gobierno en las cabeceras de provincia, están obligados a auxiliar al Fiscal velando sobre la conducta profesional y privada de los abogados, pasantes y (procuradores judiciales, domiciliados en su jurisdicción, y comunicarán al Fiscal cualquier falta o incorrección de que tuvieren noticia.

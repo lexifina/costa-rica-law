@@ -1,0 +1,1 @@
+Artículo 106.—Las responsabilidades del Tesorero serán garantizadas, por el monto que determine la Junta de Gobierno, con póliza de fidelidad emitida por el Banco Nacional de Seguros, y las primas correspondientes se pagarán del “Fondo Común del Colegio”. El Secretario vigilará por el estricto cumplimiento de esta disposición.

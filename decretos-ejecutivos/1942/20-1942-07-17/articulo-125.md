@@ -1,0 +1,1 @@
+Artículo 125.—Para su validez, la reforma o reformas deberán ser aprobadas por la Junta General, por dos tercios de votos presentes, en sesión a que concurran ¡por lo menos setenta y cinco miembros del Colegio.

@@ -1,0 +1,1 @@
+Artículo 109.—Los libros de contabilidad estarán foliados: en cada folio se estampará el sello del Colegio, y el Secretario en la primera plana certificará el número de folios que contiene el libro y el objeto a que se destina.

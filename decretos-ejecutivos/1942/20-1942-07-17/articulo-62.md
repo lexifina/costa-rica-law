@@ -1,0 +1,1 @@
+Artículo 62.—Interpuesta en tiempo y forma una apelación contra un acuerdo o resolución apelable del Presidente o de la Junta de Gobierno, según lo dispuesto en los artículos 12, inciso 4$, y 41 de la Ley Orgánica del Colegio, la Directiva admitirá el recurso en el efecto devolutivo y convocará a Junta General extraordinaria a la mayor brevedad posible.

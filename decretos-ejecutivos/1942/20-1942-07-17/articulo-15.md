@@ -1,0 +1,1 @@
+Articulo 15.—Corresponde a la Junta Directiva promulgar las reglas a que se refiere el artículo anterior, por acuerdo que para su validez requiere las tres cuartas partes de los votos de sus miembros.

@@ -1,0 +1,1 @@
+Artículo 99.—Caso de que hubiere varios pensionados y el fondo respectivo fuere insuficiente, se pagarán las pensiones a prorrata, salvo que la Junta General acuerde el aumento de las cuotas ordinarias de contribución en términos de poder atenderlas todas.

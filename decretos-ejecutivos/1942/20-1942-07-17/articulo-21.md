@@ -1,0 +1,1 @@
+Artículo 21.—Registrada una firma, no podrá ningún abogado usar otra igual o que por su semejanza pueda inducir a confusión, a menos que la distinga en forma clara con el agregado de otro nombre, apellido, inicial o aditamento.

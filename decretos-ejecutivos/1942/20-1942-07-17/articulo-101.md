@@ -1,0 +1,1 @@
+Artículo 101.—Contra las resoluciones de la Junta de Gobierno en materia de subsidios, salvo contra aquellas que impongan sanciones por el incumplimiento del deber de satisfacer las respectivas contribuciones, cabe el recurso de alzada para ante la Junta General, de acuerdo con las reglas comunes.

@@ -1,0 +1,1 @@
+Artículo 79.—Tan pronto como se inicie un caso de queja, el Secretario, quien actuará además como instructor, levantará con citación del Fiscal la información correspondiente, para justificar la certeza del cargo.

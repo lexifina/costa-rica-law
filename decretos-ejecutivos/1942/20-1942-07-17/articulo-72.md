@@ -1,0 +1,1 @@
+Artículo 72.—Los miembros del tribunal son irrecusables; pero deberán excusarse de conocer de aquellos asuntos en que, de ser jueces, tendrían motivo de impedimento o de recusación, o en que 110 puedan intervenir por su condición de funcionarios judiciales.

@@ -1,0 +1,1 @@
+Artículo 114.—Los pagos por dietas de cantidades tarifadas, se harán cada fin de mes en una orden de pago total; el Tesorero girará a su orden el cheque correspondiente y entregará a cada uno de los interesados lo que corresponda, recogiendo la firma de éstos al reverso de la orden de pago, en donde se hará el detalle respectivo.

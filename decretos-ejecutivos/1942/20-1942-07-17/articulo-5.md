@@ -1,0 +1,2 @@
+Artículo 5°—Los abogados graduados o incorporados por la Universidad de Costa Rica, para inscribirse en el Colegio, deberán presentar a la Secretaría el diploma correspondiente, la cédula de identidad y cuantos documentos consideren necesarios el Secretario o la Junta de Gobierno para acreditar, en caso de duda, si en el solicitante concurren los requisitos legales para el ejercicio de la abogacía.
+En el diploma se pondrá razón de haber sido registrado, una vez hecha la inscripción.

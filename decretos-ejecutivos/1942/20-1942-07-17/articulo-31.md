@@ -1,0 +1,1 @@
+Artículo 31.—Serán consideradas asimismo oficiales, para su publicación en “La Gaceta”, las piezas del Colegio que sean remitidas con ese fin a la Imprenta Nacional por el Secretario de la Junta Directiva.

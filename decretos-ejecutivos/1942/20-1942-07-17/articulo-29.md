@@ -1,0 +1,1 @@
+Artículo 29.—Para que un escrito sea admisible, es necesario que la firma del peticionario vaya autenticada por la de un abogado. Las firmas de los bachilleres en leyes y procuradores judiciales se consideran auténticas. Si el solicitante no supiere o no pudiere firmar, lo hará a su ruego, otra persona.

@@ -1,0 +1,1 @@
+Artículo 28.—En los memoriales o escritos dirigidos al Colegio, se usará papel sellado de cincuenta céntimos, y los pedimentos deberán presentarse por conducto del Secretario, el cual pondrá al pie una razón en que conste la hora y la fecha de su recibo.

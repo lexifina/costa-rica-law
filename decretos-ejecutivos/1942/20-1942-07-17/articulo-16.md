@@ -1,0 +1,1 @@
+Artículo 16.—El Código de Moral señalará como sanción, a cada una de las infracciones que contemple, una de las penas siguientes: amonestación confidencial, suspensión del ejercicio de la profesión de un mes a cinco años, o inhabilitación perpetua para el ejercicio de la misma.

@@ -1,0 +1,1 @@
+Artículo 61.—El miembro de la Junta que deje de asistir a una sesión ordinaria o extraordinaria, sin justa causa, podrá ser corregido por la Directiva en su próxima reunión con la pena de multa de uno a tres colones.

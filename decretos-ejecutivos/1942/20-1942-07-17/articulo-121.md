@@ -1,0 +1,1 @@
+Artículo 121.—Para los efectos del control previsto en los dos primeros incisos del artículo anterior, el Tesorero llevará en un libro cuenta separada a cada una de las distintas partidas del presupuesto de gastos del Colegio, en la cual tomará nota de las cantidades giradas a cargo del plan aprobado.
