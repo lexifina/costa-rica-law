@@ -1,0 +1,1 @@
+Artículo 4°.- Los barcos deberán contar con luces que produzcan un mínimo de 140.000 lúmenes que tendrán que ser utilizadas para liberar los delfines en la oscuridad. Los capitanes deberán completar la maniobra de retroceso y comenzar la izada de la red, no más tarde 30 minutos después de la puesta del sol.
