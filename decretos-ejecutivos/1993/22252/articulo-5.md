@@ -1,1 +1,0 @@
-Artículo 5°_ Corresponderá al Director General de la Policía de Tránsito efectuar el nombramiento de los Inspectores de Transito Ad Honorem, previa comprobación que en cada caso se cumplan los requisitos establecidos al efecto.

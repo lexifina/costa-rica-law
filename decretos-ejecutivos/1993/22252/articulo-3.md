@@ -1,1 +1,0 @@
-Artículo 3° _El Cuerpo de Inspectores Ad Honorem tendrá como jefe inmediato al funcionario que expresamente sea designado para ese cargo por el Director General de la Policía de Tránsito, quien a su vez será el responsable directo de la organización y funcionamiento del personal bajo su mando.
