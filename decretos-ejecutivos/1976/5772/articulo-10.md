@@ -1,12 +1,14 @@
 CAPITULO IV
 De la Apreciación del Rendimiento Escolares
-Artículo 10- En la apreciación del rendimiento escolar de un alumno se deben tomar en cuenta los aspectos intelectuales, afectivos y volitivos. Tal apreciación se hará mediante el análisis de los siguientes aspectos:
-a) Asignaciones;
-b) Trabajo en clase, taller, campo, laboratorio;
-c) Pruebas cortas. Pruebas parciales (teóricas o practicas);
-d) Una prueba trimestral comprensiva (teórica o práctica). El número de pruebas parciales por trimestre será de dos, sin perjuicio de las pruebas cortas que sean necesarias. Serán eximidos de la prueba trimestral en el tercer trimestre aquellos alumnos cuyo promedio de calificaciones obtenidas durante el año sea de 85 o mayor.
-Las normas de ponderación de los aspectos señalados en los incisos a), b) c) y d) son las siguientes para todos los núcleos de todas las ramas:
-a) Asignaciones……………20%
-b) Trabajo en clase, taller, campo o laboratorio…………20%
-c) Pruebas cortas y pruebas parciales (teóricas o prácticas) ………30%
-d) Una prueba trimestral comprensiva (teórica o práctica) …………30%
+Artículos 10°.- En la apreciación del rendimiento escolar de un alumno se deben tomar en cuenta los aspectos intelectuales efectivos y volitivos.
+Tal apreciación se hará mediante el análisis de los siguientes aspectos:
+a) Asignaciones.
+b) Trabajo en clase, taller, campo, laboratorio.
+c) Prueba parcial (teórica o de ejecución).
+d) Prueba Trimestral comprensiva (teórico o de ejecución).
+Serán eximidos de la prueba trimestral en el tercer trimestre aquellos alumnos cuyo promedio de calificaciones obtenidas durante el año sea 85 o mayor y su calificación final será en todos los casos superior a 90. Las normas de ponderación de los aspectos señalados en los incisos a), b), c) y d) son los siguientes, para todos los núcleos de todas las ramas:
+a) Asignaciones………………30%
+b) Trabajo en clase, taller, campo o laboratorio……20%
+c) Prueba parcial (teórico o de ejecución) …………20%
+d) Prueba trimestral comprensiva (teórica o de ejecución) ……30%
+(Así reformado por el artículo 1° del decreto ejecutivo N° 7061 del 26 de mayo de 1977)

@@ -1,5 +1,2 @@
-Artículo 6°. - Las asignaturas, actividades y cursos del Núcleo Complementario, en las ramas de la Educación Diversificada y el Núcleo de Tecnología de la rama Académica, se evaluarán mediante juicios que describan la actuación del alumno, de acuerdo con las disposiciones siguientes:
-a) Los resultados se registrarán sistemáticamente a través de técnicas de observación;
-b) Se apreciarán las aptitudes, intereses y demás rasgos que permitan una mejor exploración y afirmación de capacidades individuales;
-c) Igualmente se apreciará el grado de participación, ajuste social e iniciativa del alumno; y
-d) Estas asignaturas o cursos serán calificados trimestralmente, empleando la escala indicada en el artículo 8° del presente reglamento.
+Artículo 6°. - Las asignaturas, actividades y cursos del Núcleo Complementario, en las ramas de la Educación Diversificada y el Núcleo de la Tecnología de la rama Académica, se calificará también con la escala de 1 a 100 y en forma trimestral.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 7061 del 26 de mayo de 1977)
