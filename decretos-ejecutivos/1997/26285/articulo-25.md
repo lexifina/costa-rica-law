@@ -1,0 +1,1 @@
+Artículo 25.—Donaciones de mercancías. Los beneficiarios podrán donar las mercancías semielaboradas, residuos, desechos, productos de segunda calidad, muestras, repuestos y accesorios y bienes de capital a la Proveduría Nacional del Ministerio para los efectos pertinentes, de conformidad con el procedimiento que establezca la Dirección.

@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 26285
+
+Reglamento del Régimen Devolutivo de Derechos
+
+- Tipo: Decreto Ejecutivo
+- Número: 26285
+- Fecha: 1997-08-19
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 170 del 1997-09-04
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=54035&param2=59061&param3=1 (ficha 54035)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1997-09-04 | la propia norma |

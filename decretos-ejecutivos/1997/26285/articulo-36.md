@@ -1,0 +1,2 @@
+Artículo 36.—Vencimiento del plazo de permanencia de las mercancías dadas en prenda. El vencimiento del plazo de permanencia de las mercancías ingresadas al amparo del régimen, sin que hayan sido reexportadas o importadas definitivamente, obliga al beneficiario al pago de los tributos, multas, intereses y demás recargos de cualquier naturaleza, causados por su importación.
+Igual obligación tendrán los beneficiarios que hayan usado indebidamente o dado un uso distinto al autorizado, a las mercancías amparadas al régimen, sin perjuicio de las demás sanciones aplicables.

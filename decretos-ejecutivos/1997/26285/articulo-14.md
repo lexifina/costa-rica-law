@@ -1,0 +1,3 @@
+Artículo 14.—Plazo de permanencia. El plazo para la permanencia de las mercancías ingresadas al amparo de este régimen será el siguiente:
+a. Seis meses para las mercancías incluidas en el artículo anterior, excepto las contempladas en los incisos g y h. Dicho plazo podrá ser prorrogado por COMEX, previa solicitud del interesado por una única vez, hasta por un periodo igual. En todo caso, tal solicitud deberá realizarse antes del vencimiento del plazo original.
+b. Cinco años para las mercancías contempladas en los incisos g y h del artículo anterior. Este plazo se considerará prorrogado automáticamente por periodos iguales, sin perjuicio de las acciones que pueden tomar las autoridades competentes del régimen, en caso de incumplimiento del mismo.

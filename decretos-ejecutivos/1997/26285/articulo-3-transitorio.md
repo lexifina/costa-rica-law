@@ -1,0 +1,1 @@
+III.—Los beneficiarios contarán con un plazo de tres meses, a partir de que la Dirección emita el nuevo formato del título de prenda aduanera, para sustituir e inscribir ante el Registro de Prendas del Registro Público, las prendas sobre las mercancías que hayan ingresado hasta la fecha, bajo el régimen de admisión temporal.

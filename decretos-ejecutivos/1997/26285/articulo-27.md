@@ -1,0 +1,1 @@
+Artículo 27.—Subcontratación de servicios. También se autoriza a los beneficiarios del régimen, previa autorización de PROCOMER, a subcontratar los servicios productivos de terceros, siempre y cuando, el beneficiario realice operaciones de producción y no se convierta en sólo comercializadora.
