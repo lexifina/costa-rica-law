@@ -1,0 +1,5 @@
+Artículo 9º
+Salvo en los casos previstos por la ley respecto de todos los
+ciudadanos, se deberá prohibir, so pena de sanciones legales, la
+prestación obligatoria de servicios personales de cualquier índole,
+remunerados o no, impuesta a los miembros de las poblaciones en cuestión.
