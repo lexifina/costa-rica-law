@@ -1,0 +1,1 @@
+Artículo 23.-EI Concejo Municipal de Abangares elegirá el Concejo Municipal del Distrito de Colorado en una sesión extraordinaria solemne, convocada para tal fin a más tardar ocho días calendario después de haber recibido por parte de la Comisión Electoral el resultado de la consulta popular.

@@ -1,0 +1,1 @@
+Articulo 24.-EI Concejo Municipal del Distrito de Colorado estará integrado por siete miembros propietarios, seis de elección de la nómina y el Síndico del Distrito de Colorado elegido en las últimas elecciones nacionales, quien será el que presida el Concejo, bien sea el Síndico Propietario o en ausencia de él, lo hará el Síndico Suplente.

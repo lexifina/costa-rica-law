@@ -1,0 +1,1 @@
+Artículo 21.-La Comisión Electoral se encargará de confeccionar las papeletas y los materiales a utilizar en dicha elección, y deberán estar disponibles al momento de abrir la votación. La municipalidad del cantón financiará el costo del material didáctico que se utilice en esta única elección.

@@ -1,0 +1,1 @@
+Artículo 16.-La Comisión Electoral del Distrito de Colorado hace la convocatoria a los vecinos de su jurisdicción por medio de una publicación en un medio de información nacional o por los medios que estime más efectivos para cumplir con el propósito de que sus vecinos acudan a la elección dando la mayor participación posible a sus pobladores para elegir y ser elegidos.

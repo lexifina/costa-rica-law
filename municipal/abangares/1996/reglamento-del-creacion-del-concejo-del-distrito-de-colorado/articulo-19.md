@@ -1,0 +1,1 @@
+Artículo 19.-La inscripción de papeletas se hará en siete días calendario que cerrarán ocho días calendario, antes de la elección con el fin de que la Comisión Electoral tenga el tiempo suficiente para elaborar las papeletas y los materiales a usar en la elección.

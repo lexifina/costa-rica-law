@@ -1,0 +1,1 @@
+Artículo 14.-De acuerdo al articulo 186 en el último párrafo de las reformas aprobadas por la Asamblea Legislativa al Código Municipal, capítulo VIII, se emite el presente reglamento que regirá el procedimiento de la consulta popular y de escogencia de los nuevos miembros del Concejo Municipal del Distrito de Colorado, por parte del Concejo Municipal de Abangares.

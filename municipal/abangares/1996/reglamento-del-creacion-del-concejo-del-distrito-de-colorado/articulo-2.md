@@ -1,0 +1,3 @@
+Artículo 2°-Competencias: A partir de la creación del Concejo Municipal del Distrito de Colorado, los ingresos que se reciban por concepto de tributos sobre bienes, servicios y otros originados en el distrito de Colorado, se distribuirán así:
+a) El Concejo Municipal de Distrito de Colorado recibirá los primeros tres millones de colones;
+b) Sobre el exceso de esos tres millones de colones, el Concejo Municipal del Cantón de Abangares recibirá el 60% y el Concejo Municipal del Distrito de Colorado recibirá el restante 40%; montos que proporcionalmente deberán ser depositados por el contribuyente en las tesorerías de ambos concejos, o en las cuentas corrientes que para tal fin se indiquen.

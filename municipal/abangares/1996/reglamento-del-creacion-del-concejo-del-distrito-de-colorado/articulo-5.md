@@ -1,0 +1,1 @@
+Artículo 5°-Específicamente para la aprobación del presupuesto ordinario de cada afto del Concejo Municipal del Distrito de Colorado en lo sucesivo deberá ser presentado a la municipalidad del cantón, en el mes de agosto.

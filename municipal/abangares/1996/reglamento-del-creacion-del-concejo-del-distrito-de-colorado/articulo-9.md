@@ -1,0 +1,1 @@
+Artículo 9°-Igualmente presupuestará el salario de los nuevos trabajadores que deberá contratar para el buen funcionamiento en volver a brindarle los servicios que le venía prestando a su comunidad en el extinto Concejo Municipal de Distrito anterior. Quienes entrarán en funciones una vez aprobado dicho presupuesto por la Contraloría General de la República.

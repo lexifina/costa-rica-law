@@ -1,0 +1,1 @@
+Artículo 20.-Los habitantes del distrito de Colorado para votar lo harán únicamente presentando la cédula de identidad y deberán estar inscritos en el padrón electoral del distrito, usado en las últimas elecciones nacionales.

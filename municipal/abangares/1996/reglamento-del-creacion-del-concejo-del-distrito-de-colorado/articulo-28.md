@@ -1,0 +1,1 @@
+Artículo 28.-Las políticas de desarrollo que deberá adoptar el Concejo Municipal de Distrito de Colorado serán las mismas que las del Concejo Municipal del Cantón en cuanto al ancho de las vías, urbanizaciones, patentes, tasas y otros que vayan ligados ha dicho desarrollo.
