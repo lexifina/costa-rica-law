@@ -1,0 +1,1 @@
+Artículo 2°-Los beneficios que por este decreto se otorgan a "Molinos de Costa Rica, Sociedad Anónima", podrán ser modificados o regulados por el Ministerio de Economía, Industria y Comercio, en virtud de convenios protocolos, acuerdos, resoluciones o cualquier otra disposición de los organismos del Tratado General de Integración Económica Centroamericana.

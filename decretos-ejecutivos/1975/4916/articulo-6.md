@@ -1,0 +1,1 @@
+Artículo 6°-El Ministerio de Economía, Industria y Comercio, podrá autorizar modificaciones en los precios de las harinas producidas por "Molinos de Costa Rica, S. A", solamente cuando se presenten variaciones en los costos de producción. Asimismo podrá, cuando lo estime conveniente, fijar precio a los subproductos del trigo.
