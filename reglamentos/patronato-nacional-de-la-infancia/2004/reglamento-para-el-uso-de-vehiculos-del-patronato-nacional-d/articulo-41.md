@@ -1,0 +1,1 @@
+Artículo 41.—Los conductores no podrán emplear los materiales, implementos, herramientas, repuestos y accesorios del vehículo, para fines distintos a la limpieza, el mantenimiento y el funcionamiento del vehículo oficial.

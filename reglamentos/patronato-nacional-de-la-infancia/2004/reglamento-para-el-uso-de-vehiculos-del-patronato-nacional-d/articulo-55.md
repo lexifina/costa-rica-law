@@ -1,0 +1,5 @@
+Artículo 55.—Corresponderá a los coordinadores de las unidades ejecutoras, la administración del combustible de los vehículos asignados para uso permanente, para ello observarán lo siguiente:
+a) Custodiarán bajo su responsabilidad personal los cupones, establecerán medidas de control sobre los entregados y llevarán un control estricto del consumo de combustible, debiendo liquidar los cupones contra factura ante la Oficina de Servicios Generales.
+b) El conductor del vehículo que requiera de combustible, le solicitará al coordinador de la unidad ejecutora el cupón y luego de hacerse efectivo en las estaciones de servicio, lo liquidará ante dicho coordinador, entregándole para ese efecto las facturas correspondientes y las notas de crédito según corresponda, conforme las disposiciones de los artículos siguientes.
+c) Los cupones deberán destinarse únicamente para el abastecimiento de combustible y no será permitido canjearlos en todo o en parte por otro tipo de productos.
+d) Liquidar mensualmente los cupones para compra de combustible.

@@ -1,0 +1,1 @@
+Artículo 16.—Cuando las circunstancias y los motivos del viaje lo posibiliten, la Oficina de Servicios Generales podrá asignar un mismo vehículo, para cubrir simultáneamente el servicio requerido por dos o más unidades ejecutoras, si los pasajeros se dirigen a iguales destinos y dentro de los mismos horarios.

@@ -1,0 +1,1 @@
+Artículo 13.—La Oficina de Servicios Generales velará porque sean ampliamente divulgadas las leyes, reglamentos, políticas, procedimientos e instructivos relacionados con el uso, control y mantenimiento de los vehículos.

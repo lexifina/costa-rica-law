@@ -1,0 +1,1 @@
+Artículo 12.—Es responsabilidad de la Oficina de Servicios Generales, establecer una coordinación adecuada con las unidades ejecutoras, a fin de que el uso, control y mantenimiento de los vehículos, se lleve a cabo de forma racional y eficiente.

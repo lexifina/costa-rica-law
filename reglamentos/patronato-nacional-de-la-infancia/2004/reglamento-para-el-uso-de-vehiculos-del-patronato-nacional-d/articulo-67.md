@@ -1,0 +1,1 @@
+Artículo 67.—La Oficina de Servicios Generales adoptará las previsiones necesarias para que el presente Reglamento, sus reformas y sus interpretaciones auténticas, sean ampliamente divulgados. En cada unidad ejecutora existirá una carpeta en donde permanecerán los documentos a que se refiere este artículo a disposición y para consulta de los servidores y las servidoras.

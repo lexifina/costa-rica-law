@@ -1,0 +1,1 @@
+Artículo 52.—Quienes viajen en los vehículos institucionales deberán guardar la debida compostura absteniéndose de perturbar o distraer la atención y la concentración del conductor. No deberán promover o participar de situaciones escandalosas, ni de cualquier acto que ponga en peligro su seguridad o la de los otros ocupantes. Deberán utilizar siempre los cinturones de seguridad.

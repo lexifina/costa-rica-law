@@ -1,0 +1,1 @@
+Artículo 19.—Los coordinadores de las unidades ejecutoras, velarán porque los vehículos sean asignados para atender diligencias que justifiquen el uso de ese servicio, pudiendo dotar a los funcionarios y las funcionarias de otros medios de transporte, cuando las diligencias a realizar lo posibiliten.

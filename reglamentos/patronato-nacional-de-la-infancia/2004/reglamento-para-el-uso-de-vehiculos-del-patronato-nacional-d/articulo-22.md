@@ -1,0 +1,1 @@
+Artículo 22.—Los conductores deberán custodiar en todo momento el vehículo asignado a su cargo y cuando deban alejarse de éste por causa justificada, adoptarán las previsiones necesarias para garantizar su seguridad.

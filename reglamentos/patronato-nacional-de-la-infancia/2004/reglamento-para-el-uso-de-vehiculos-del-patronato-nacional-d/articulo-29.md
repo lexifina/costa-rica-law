@@ -1,0 +1,1 @@
+Artículo 29.—Los conductores de los vehículos mantendrán vigilancia permanente acerca de las condiciones de operación de las unidades, debiendo reportar oportunamente a sus superiores acerca de cualquier desperfecto o irregularidad que observen en su funcionamiento, a fin de que sean sometidos a revisión técnica.

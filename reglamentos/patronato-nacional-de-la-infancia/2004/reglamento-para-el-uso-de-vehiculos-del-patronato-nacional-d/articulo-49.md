@@ -1,0 +1,8 @@
+CAPÍTULO XI
+De los usuarios de los servicios de transporte
+Artículo 49.—Son usuarios y usuarias de los servicios de transporte institucional las siguientes personas:
+a) Los funcionarios y funcionarias de la institución con nombramientos en propiedad o interino en el ejercicio de sus cargos y con el carné que los acredite como tales.
+b) Los miembros de la Junta Directiva del Patronato, del Consejo Nacional de Adopciones, de los Consejos Regionales de Adopciones y de las Juntas de Protección a la Niñez y la Adolescencia, en el ejercicio de sus cargos y con el carné que los acredite como tales.
+c) Los funcionarios y funcionarias de otras instituciones públicas o privadas en el ejercicio de sus cargos, que se encuentren participando en virtud de convenios establecidos al efecto, dentro de los programas y servicios del Patronato o que requieran de medio de transporte para realizar diligencias oficiales de interés institucional, siempre y cuando porten carnet de identificación de la institución a la cual pertenecen o cualquier otro tipo de identificación, debidamente extendida para los efectos correspondientes. La autorización expresa para el uso del servicio será extendida por el coordinador de la unidad ejecutora.
+d) Los destinatarios y destinatarias de los servicios de la institución que requieran ser transportados en ocasión de asuntos oficiales del Patronato, siempre y cuando porten la autorización expresa extendida para cada caso por el coordinador de la unidad ejecutora.
+e) Los niños, niñas o adolescentes cuando deban ser rescatados como medida de protección de las vías públicas, de los hogares o de otros sitios, por orden judicial o administrativa y por una persona debidamente acreditada para esos fines.

@@ -1,0 +1,1 @@
+Artículo 11.—La Oficina de Servicios Generales garantizará que todas las personas que conduzcan vehículos del Patronato, hayan cumplido satisfactoriamente las pruebas teóricas y prácticas sobre manejo, así como los exámenes médicos que se requieran, con el fin de verificar que tendrán la capacidad física y mental, la pericia y la destreza necesarias para conducir adecuadamente.

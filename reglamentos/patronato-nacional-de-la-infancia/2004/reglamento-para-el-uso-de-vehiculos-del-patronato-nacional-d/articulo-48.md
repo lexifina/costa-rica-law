@@ -1,0 +1,1 @@
+Artículo 48.—Los coordinadores de las unidades ejecutoras podrán delegar total o parcialmente en los administradores de sus respectivas oficinas, las funciones que les son impuestas en el presente reglamento, pero en todo caso, serán solidariamente responsables del ejercicio eficiente de dichas funciones.

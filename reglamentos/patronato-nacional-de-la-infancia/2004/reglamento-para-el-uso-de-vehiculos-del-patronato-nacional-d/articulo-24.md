@@ -1,0 +1,3 @@
+CAPÍTULO V
+De la circulación de los vehículos
+Artículo 24.—Los vehículos de uso administrativo general, circularán dentro de los horarios de cada unidad ejecutora, los cuales serán establecidos por la Gerencia de Administración. Solamente en casos especiales, cuya situación lo amerite, podrán circular fuera de aquellos horarios, previa autorización del Coordinador del Area Administrativa, Coordinador de la Oficina de Servicios Generales, Gerente de Administración, Gerente Técnico, Coordinador Regional o del responsable de la unidad ejecutora donde el vehículo se encuentre asignado, debiendo portarse dicha autorización dentro del automotor.

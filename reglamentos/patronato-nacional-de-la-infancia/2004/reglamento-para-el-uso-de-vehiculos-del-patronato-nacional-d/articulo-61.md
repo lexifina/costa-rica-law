@@ -1,0 +1,1 @@
+Artículo 61.—Ningún conductor está autorizado para efectuar arreglos extrajudiciales en los casos de accidentes de tránsito; únicamente debe indicarle a la contraparte su derecho a contactar con la Oficina de Servicios Generales, para lo que corresponda.

@@ -1,0 +1,1 @@
+Artículo 38.—Corresponderá al coordinador de la unidad ejecutora, autorizar al funcionario o la funcionaria para el uso diario del vehículo propio, para atender asuntos oficiales, control que llevará mediante una boleta emitida al efecto y que deberá remitirse a la Oficina de Servicios Generales mensualmente, tanto para el registro correspondiente como para efectos de pagos.

@@ -1,0 +1,1 @@
+Artículo 68.—Las situaciones no previstas expresamente en el presente Reglamento, serán resueltas mediante la aplicación supletoria de la Ley de Tránsito por Vías Públicas Terrestres, Ley Reguladora de los Estacionamientos Públicos, de la Ley Orgánica del Patronato Nacional de la Infancia, la Ley General de la Administración Pública, otras leyes conexas y normas aplicables.

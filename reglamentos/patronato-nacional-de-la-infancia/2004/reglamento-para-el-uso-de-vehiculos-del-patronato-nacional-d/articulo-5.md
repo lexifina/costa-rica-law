@@ -1,0 +1,5 @@
+Artículo 5º—Los vehículos de uso discrecional no estarán sometidos a las regulaciones establecidas en el presente Reglamento y corresponderá a la Junta Directiva la fijación de las políticas y normas para su asignación, uso y mantenimiento, en armonía con los lineamientos técnicos emitidos para esos efectos por la Contraloría General de la República. Pero en todo caso se observarán las siguientes reglas:
+a) Serán asignados al funcionario(a) que por disposición de ley tenga derecho a ese beneficio, quien no podrá darle un uso arbitrario en provecho propio, ni de su familia.
+b) Será utilizado estrictamente para el cumplimiento de las funciones propias del cargo y en ningún caso podrá ser conducido por terceros no autorizados.
+c) Las ventajas o facilidades que se le deriven al funcionario(a) por la utilización de un vehículo de uso discrecional no formarán parte del contrato de trabajo ni constituirán salario en especie.
+d) Los controles básicos que se ejercerán sobre estos vehículos serán de asignación, kilometraje, seguros, consumo de combustibles y lubricantes, estado físico, reparación y mantenimiento.

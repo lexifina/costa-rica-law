@@ -1,0 +1,1 @@
+Artículo 44.—Los conductores no deberán colocar adornos o calcomanías, tanto en el interior como en el exterior de los vehículos, ni mantener objetos que generen reflejos innecesarios que dificulten la visibilidad o perturben el buen manejo.

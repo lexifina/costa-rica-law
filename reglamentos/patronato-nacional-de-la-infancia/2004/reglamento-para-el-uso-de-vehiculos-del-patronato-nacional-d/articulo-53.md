@@ -1,0 +1,1 @@
+Artículo 53.—Cuando sean trasladadas personas menores de edad, serán ubicados en los asientos traseros bajo la custodia de otro funcionario o funcionaria encargada de atenderlas, quién deberá velar en todo momento por la seguridad y por la disciplina de aquellas. Deberán utilizar siempre los cinturones de seguridad.

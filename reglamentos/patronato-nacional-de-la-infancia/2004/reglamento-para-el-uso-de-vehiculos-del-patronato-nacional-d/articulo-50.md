@@ -1,0 +1,1 @@
+Artículo 50.—Los conductores de los vehículos deberán requerirle a las usuarias y usuarios de previo a la realización del servicio de transporte la presentación del carné, o credencial que los identifique como tales. De no contarse con dichas credenciales deberá negársele la prestación del servicio y reportarse la situación al coordinador de la unidad ejecutora.
