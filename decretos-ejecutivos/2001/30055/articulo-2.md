@@ -1,0 +1,1 @@
+Artículo 2°—En consecuencia, dicho Centro Educativo podrá emitir el Certificado de Asistencia al Ciclo Materno Infantil Grupo Interactivo II y Ciclo de Transición de la Educación Preescolar y 1 y II Ciclos de la Educación General Básica los cuales se equiparan con los del Sistema Educativo Estatal.
