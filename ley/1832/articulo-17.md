@@ -1,2 +1,4 @@
-ARTICULO 17
-El Director nombrará el personal de la Administración de conformidad con el Reglamento del personal adoptado por el Consejo.
+CAPITULO VI
+LA ADMINISTRACION
+Artículo 17
+La Administración comprenderá un Director General, un Director General Adjunto y el personal que el Consejo determine.

@@ -1,2 +1,2 @@
-ARTICULO 32
-El Consejo podrá, mediante votación por mayoría de tres cuartos, decidir la disolución del Comité.
+Artículo 32
+A reserva de la aprobación por dos tercios de los miembros del Consejo, la Organización podrá hacerse cargo de las actividades, los recursos y obligaciones actuales de cualquier otra organización o institución internacional cuyos objetivos y actividades se hallen dentro de la esfera de la Organización, actividades, recursos y obligaciones que podrán ser fijados mediante un acuerdo internacional o un arreglo convenido entre las autoridades competentes de las organizaciones respectivas.

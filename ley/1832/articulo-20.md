@@ -1,2 +1,4 @@
-ARTICULO 20
-Con ocasión de la primera reunión ordinaria celebrada después del final de cada ejecución anual, el Director presentará al Consejo, por mediación del Comité Ejecutivo un informe donde se dé cuenta completa de las actividades del Comité durante el año transcurrido.
+Artículo 20
+1. En el cumplimiento de sus funciones, el Director General, el Director General Adjunto y el personal no deberán solicitar ni aceptar instrucciones de ningún Estado ni de ninguna autoridad ajena a la Organización, y deberán abstenerse de todo acto incompatible con su calidad de funcionarios internacionales.
+2. Cada Estado Miembro se comprometerá a respetar el carácter exclusivamente internacional de las funciones del Director General, del Director General Adjunto y del personal, y a no tratar de influirles en el cumplimiento de sus funciones.
+3. Para la contratación y empleo del personal, deberán ser consideradas como condiciones primordiales su eficiencia, competencia e integridad; excepto en circunstancias excepcionales, el personal deberá ser contratado entre los nacionales de los Estados Miembros de la Organización, teniéndose en cuenta el principio de la distribución geográfica equitativa.

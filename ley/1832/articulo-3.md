@@ -1,2 +1,2 @@
-ARTICULO 3
-Todo Miembro podrá notificar su retiro del Comité al final de un ejercicio anual. Esta notificación deberá ser hecha por escrito y llegar al Director del Comité por lo menos cuatro meses antes del final del ejercicio. Las obligaciones financieras totalidad del ejercicio durante el cual la notificación haya sido recibida.
+Artículo 3
+Todo Estado Miembro podrá notificar su retiro de la Organización al final de un ejercicio anual. Esta notificación deberá ser hecha por escrito y llegar al Director General de la Organización por lo menos cuatro meses antes del final del ejercicio. Las obligaciones financieras respecto a la Organización de un Estado Miembro que haya notificado su retiro se aplicarán a la totalidad del ejercicio durante el cual la notificación haya sido recibida.

@@ -1,3 +1,6 @@
-ARTICULO 29
-1. Los textos de las enmiendas propuestas a la presente Constitución serán comunicados por el Director a los Gobiernos Miembros, tres meses por lo menos, antes de que sean examinados por el Consejo.
-2. Las enmiendas entrarán en vigor cuando hayan sido adoptadas, por dos tercios de los miembros del Consejo y aceptadas por dos tercios de los Gobiernos Miembros, de acuerdo con sus respectivas reglas constitucionales, entendiéndose, no obstante, que las enmiendas que originen nuevas obligaciones para los miembros, no entrarán en vigor para cada uno de ellos sino aceptadas por él.
+CAPITULO X
+DISPOSICIONES DE INDOLE DIVERSA
+Artículo 29
+1. Salvo disposición en contrario en la presente Constitución o en los reglamentos establecidos por el Consejo o por el Comité Ejecutivo, todas las decisiones del Consejo, del Comité Ejecutivo y de todos los subcomités, serán tomadas por simple mayoría.
+2. Las mayorías previstas en las disposiciones de la presente Constitución o de los reglamentos establecidos por el Consejo o por el Comité Ejecutivo se refieren a los miembros presentes y votantes.
+3. Una votación será válida únicamente cuando la mayoría de los miembros del Consejo, del Comité Ejecutivo o del Subcomité interesado se halle presente.
