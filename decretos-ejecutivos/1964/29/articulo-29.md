@@ -1,0 +1,1 @@
+Articulo 29.—Los Directores. Gerentes y Empleados del Instituto que ejecutaren o permitieren operaciones contrarias a la? leyes o los reglamentos aplicables, responderán con sus bienes de las pérdidas que dichas operaciones irrogaren al Instituto, sin perjuicio de las demás responsabilidades señaladas por las leyes.

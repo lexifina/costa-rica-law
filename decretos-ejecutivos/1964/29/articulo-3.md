@@ -1,0 +1,1 @@
+Articulo 3°—El Instituto usará, para sus actos y documentos, un sello con el dibujo del árbol de Guanacaste que tenía la moneda de la Federación Centroamericana, con su leyenda "Libre Crezca Fecundo".

@@ -1,0 +1,1 @@
+Articulo 5°—Cada una de las Divisiones y Departamentos del Instituto tendrán un Jefe responsable ante la Gerencia, la cual, a su vez, responderá ante la Junta Directiva de la buena marca de la Institución.

@@ -1,0 +1,1 @@
+Artículo 26.—Cuando los negocios del Instituto lo exijan y la Junta Directiva lo crea oportuno, se establecerán también fuera del país, las Agencias Generales, Agencias, Subagencias y Agencias Viajeras que se juzgue convenientes.

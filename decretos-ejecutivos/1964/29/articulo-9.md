@@ -1,0 +1,1 @@
+Articulo 9°—Cabrá revisión de un acuerdo, una vez leída y antes de que sea aprobada el acta correspondiente. En esa oportunidad se conocerá también de la revisión que se hubiere planteado al dictarse el acuerdo.
