@@ -25,3 +25,7 @@ General de Asistencia Pública para las Juntas de Protección Social de la
 República, fijará prudencialmente cada año en rubro separado, la
 subvención mensual que a cada una de esas Juntas corresponda en el
 presupuesto nacional, en forma de compensación por derechos de aduana.
+Quedan así mismo exptuadas las importaciones que realice el Consejo Nacional de Crédito y Producción,
+a que se refiere la Ley N° 36 de 21 de diciembre de 1944, el Ferrocaril Eléctrico
+al Pacífico y las que verifique el Estado para satisfacer necesidades de la Administración Publica.
+(Así adicionado el párrafo último por Ley N° 174 de 21 de setiembre de 1948)
