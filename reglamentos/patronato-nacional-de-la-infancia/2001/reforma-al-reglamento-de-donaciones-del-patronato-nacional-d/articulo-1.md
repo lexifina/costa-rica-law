@@ -1,0 +1,11 @@
+PATRONATO NACIONAL DE LA INFANCIA
+PROVEEDURÍA INSTITUCIONAL
+La Junta Directiva del Patronato Nacional de la Infancia, en sesión ordinaria 2001-0091, celebrada el lunes 12 de noviembre del 2001, artículo 003) aparte 01).
+ACUERDA:
+Aprobar la modificación de los artículos 8, 10 y 11 del Reglamento de Donaciones del Patronato Nacional de la Infancia, de tal forma que se lean como se detalla a continuación:
+Artículo 8°—Todo funcionario de la Institución que requiera solicitar algún tipo de donación a otras organizaciones públicas o privadas, deberá obtener la debida autorización de la Presidencia o en su defecto de la Gerencia de Administración, lo cual se hará por medio del Coordinador del Área Administrativa.
+Artículo 10.—Cuando se trate de donaciones en dinero en efectivo, cheques u otros valores negociables, se seguirá el mismo procedimiento establecido en el presente capítulo, no obstante cuando se trate de dinero deberán depositarse en la cuenta corriente de la institución. Se exceptúa de dicha obligación aquellas donaciones que, siendo en dinero en efectivo no superen la suma de ^100.000,00 Cuando se trate de cheques u otros documentos mercantiles negociables deberán hacerse a favor del PANI.
+Artículo 11.—Las donaciones consideradas especiales o de urgencia por la naturaleza perecedera del bien donado o porque la suma de dinero donada no exceda del monto indicado en el artículo anterior, no requieren cumplir con el procedimiento establecido para las donaciones ordinarias, sin embargo, se deberá observar lo siguiente:
+a) Llenar el formato denominado "Donaciones consideradas de urgencia".
+b) El jefe de la oficina local dispondrá de inmediato su uso, cuando se trate de productos perecederos o suma de dinero para ser invertidas en una acción especifica de la oficina a su cargo, si fuera así solicitado por el donante y no sobrepasara la suma de 100.000,00 indicada anteriormente. En todos los casos, el funcionario que hizo la gestión deberá remitir copia del formato respectivo al Jefe del Área Administrativa, a la Oficina de Contabilidad y a la Auditoría Interna de la Institución.
+c) El ingreso así como el gasto del dinero deberá reflejarse en el control de Caja Chica y liquidación del Fondo de Trabajo respectivo.
