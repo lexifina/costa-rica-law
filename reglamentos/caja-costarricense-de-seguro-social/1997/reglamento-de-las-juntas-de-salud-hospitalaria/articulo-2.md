@@ -1,0 +1,1 @@
+Artículo 2°—La Junta de Salud estará integrada por siete personas, mayores de edad. domiciliadas permanentemente dentro del área de atracción del hospital. Serán personas de gran solvencia moral, prestigio, sensibilidad social y competencia, identificadas con los problemas de salud de la comunidad y con disponibilidad de tiempo para atender sus compromisos con la Junta de Salud.

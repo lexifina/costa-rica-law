@@ -1,0 +1,1 @@
+Artículo 9°—La administración del hospital está en la obligación de dar a la Junta de Salud, la información pertinente, dejando siempre a salvo el derecho a la intimidad y la obligación del secreto médico.

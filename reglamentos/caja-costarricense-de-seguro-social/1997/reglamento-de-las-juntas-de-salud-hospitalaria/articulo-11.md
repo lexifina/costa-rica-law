@@ -1,0 +1,1 @@
+Artículo 11.—El Director del hospital, deberá asistir a las sesiones de la Junta de Salud cuando ésta lo solicite. El representante de la Administración ante la Junta de Salud, tendrá voz pero no voto.
