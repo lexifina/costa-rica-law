@@ -47,6 +47,7 @@ articulo-46.md
 articulo-47.md
 articulo-48.md
 articulo-49.md
+articulo-49-bis.md
 articulo-50.md
 articulo-51.md
 articulo-52.md

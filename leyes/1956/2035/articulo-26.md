@@ -1,1 +1,2 @@
-Artículo 26.- El quórum de las sesiones se formará con cinco miembros de la Junta Directiva. Los gerentes, lo subgerentes y el auditor deben asistir a las sesiones de la Junta, así como los jefes de división o departamento cuando fueren llamados, y todos ellos tendrán voz, pero no voto.
+Artículo 26.- El quórum de las sesiones se formará con seis miembros de la Junta Directiva. El Gerente, el Subgerente y el Auditor deben asistir a las sesiones de Junta, así como los Jefes de las diferentes dependencias cuando sean llamados, y todos tendrán voz pero no voto.
+(Así reformado por el artículo 2° de la ley Crea Programa de Reconversión Productiva del Sector Agropecuario CNP, N° 7742 del 19 de diciembre de 1997)
