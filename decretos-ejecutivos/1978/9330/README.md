@@ -14,3 +14,4 @@ Contrato Administrativo celebrado entre la Compañía Bananera de Costa Rica con
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-12-05 | la propia norma |
+| 2 | 1987-10-20 | Decreto Ejecutivo 17792 (1987-10-20) |
