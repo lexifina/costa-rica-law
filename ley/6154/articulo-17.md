@@ -1,0 +1,2 @@
+Artículo 17.- Todas las actuaciones judiciales o administrativas, que haya de practicarse con arreglo a esta ley, se harán en papel común y con exención total, para el titulante, de honorarios, derechos, tasas y timbres de cualquier especie.
+Solamente el Instituto Nacional de Vivienda y Urbanismo, cuando se requieran sus servicios de agrimensura conforme al artículo 4º, estará facultado para cobrar a los interesados los gastos de desplazamiento de su personal que la prestación de esos servicios ocasionare. Esos gastos se calcularán del modo más modesto posible.

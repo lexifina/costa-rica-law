@@ -1,0 +1,2 @@
+Artículo 13.- Si la acción, a que se refieren los artículos 11 y 12 precedentes, prosperare en sentencia, el ganancioso deberá asumir todas las obligaciones hipotecarias que pesaren sobre el inmueble, a favor de las instituciones estatales, por créditos destinados a construcción o reparación de la vivienda que en él se hallare.
+Para ello, la sentencia que declare con lugar la demanda deberá notificarse a los acreedores hipotecarios mencionados, lo que operará, de pleno derecho y sin necesidad de ningún otro documento, la novación de deudor.
