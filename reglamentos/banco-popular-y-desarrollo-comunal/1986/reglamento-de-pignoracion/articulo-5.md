@@ -1,0 +1,1 @@
+Artículo 5°—Cuando se reciban lotes de alhajas o prendas en garantía de préstamos se deberá hacer una evaluación individual de cada uno de los artículos que lo componen, y esa información se consignará en un formulario confeccionado para tal efecto, debiendo quedar firmado por quien autorizó el crédito y por el deudor.

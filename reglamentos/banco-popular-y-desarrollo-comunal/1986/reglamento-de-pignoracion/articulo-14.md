@@ -1,0 +1,1 @@
+Artículo 14.—Los bienes recibidos en garantía de préstamos no podrán ser retirados, sin que se haya cubierto el capital e intereses del préstamo, así como los gastos en los que se haya incurrido con el bien dado en garantía.
