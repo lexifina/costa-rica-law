@@ -14,3 +14,4 @@ Reglamento sobre Oferta Pública de Adquisición
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-16 | la propia norma |
+| 2 | 1999-05-10 | Reglamento 91 (1999-05-10) |

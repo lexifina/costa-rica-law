@@ -1,3 +1,4 @@
 Artículo 22. Comunicación del resultado
 Transcurrido el plazo de aceptación, y en un plazo que no excederá de tres días hábiles, el oferente comunicará a la Superintendencia el número total de valores comprendidos en las declaraciones de aceptación presentadas, y en su caso, la propuesta de liquidación, realizada de conformidad con lo establecido en el Artículo siguiente.
 En el plazo máximo de tres días hábiles, la Superintendencia comunicará a las bolsas de valores en las que tales valores estén admitidos a negociación, al oferente y a la sociedad afectada el resultado positivo o negativo de la oferta, según se haya alcanzado o no el número mínimo de títulos señalados en la oferta. Las bolsas de valores comunicarán dicho resultado al día siguiente.
+(Así reformado mediante la sesión 91-99, celebrada el 10 de mayo de 1999)
