@@ -1,2 +1,3 @@
 Artículo 9°—El Banco pondrá en conocimiento de la Secretaría de Hacienda y Comercio las irregularidades e incumplimientos a la ley que resulten de los informes recibidos o de las inspecciones practicadas.
-La Secretaría podrá conceder un término prudencial al Almacén para que corrija aquellas irregularidades, y suspenderle o cancelarle definitivamente la autorización legal para funcionar si no acata su decisión en el término concedido.
+La Secretaría podrá conceder un término prudencial al Almacén para que corrija aquellas irregularidades, y suspenderle o (cancelarle definitivamente) la autorización legal para funcionar si no acata su decisión en el término concedido.
+(Anulado lo destacado entre paréntesis mediante resolución de la Sala Constitucional N° 5260 del 26 de setiembre de 1995, misma que anuló de este artículo “la posibilidad de “cancelación definitiva” de la licencia de funcionamiento a esos almacenes, por parte del Ministerio de Hacienda”.)

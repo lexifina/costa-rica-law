@@ -13,3 +13,4 @@ Reglamento a la Ley de Almacenes Generales de Depósito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1935-04-04 | la propia norma |
+| 2 | 1935-04-04 | SINALEVI (sin norma nombrada) |
