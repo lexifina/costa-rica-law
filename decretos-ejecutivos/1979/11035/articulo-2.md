@@ -1,0 +1,1 @@
+Artículo 2°—Para disfrutar de este beneficio la empresa petente deba cumplir con las obligaciones enumeradas en el Decreto Ejecutivo número 10585-MEIC y sus modificaciones, así como demostrar a satisfacción del Ministerio de Economía, Industria y Comercio, que los seguros que se suscriban sean a través del Instituto Nacional de Seguros.
