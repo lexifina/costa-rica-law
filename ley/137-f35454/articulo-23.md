@@ -1,1 +1,0 @@
-Artículo 23.—Los terrenos poseídos en virtud de esta ley, con autorización del Juez, no son susceptibles de adjudicación en ejercicio de derechos de denuncio, ni pueden adquirirse con aplicación de gracias, salvo el caso en que se decrete la caducidad del denuncio.

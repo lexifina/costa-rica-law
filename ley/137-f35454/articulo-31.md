@@ -1,1 +1,0 @@
-Artículo 31.—Si de la medida resultare que lo cultivado no es la mitad de la extensión total, el titulo se librará únicamente por el duplo de lo cultivado; y el Juez hará que el agrimensor señale en el plano total, el lote que queda coma tierras baldías. Hecha esta separación, el Juez hará la adjudicación y librará el título como se ha dicho.

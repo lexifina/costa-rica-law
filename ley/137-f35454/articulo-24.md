@@ -1,1 +1,0 @@
-Artículo 24.—En caso de muerte del denunciante ocurrida antes de obtener el título, pero después de haber dado comienzo a los trabajos, el derecho pasará a su viuda, o en su defecto su hijo mayor, quienes podrán tomar el lote y continuar llenando los requisitos para alcanzar el dominio.

@@ -1,1 +1,0 @@
-Artículo 2°—Si el ciudadano fuere naturalizado, es indispensable que viva en la Republica con su familia. Por «cabeza de familia» se entenderá: al hombre casado, al viudo o viuda que tengan hijos legítimos, o al soltero que tenga a su cargo el sostenimiento de sus padres o de sus hermanos menores huérfanos de padre y madre.

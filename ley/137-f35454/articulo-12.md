@@ -1,1 +1,0 @@
-Artículo 12. —Contestada la audiencia o si el Ministerio no hiciere uso de ese trámite, el Juez considerará el punto de si el denunciante tiene derecho a pedir el lote, así como el de si el terreno es denunciable o no, conforme a la ley.
