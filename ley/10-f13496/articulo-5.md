@@ -1,0 +1,1 @@
+Art. 5. Usarán la insignia de los Alcaldes Constitucionales, y como estos, serán respetados, considerados y obedecidos en todo su departamento respectivo: las autoridades les prestarán los auxilios que demanden en las funciones de su cargo, y á esto mismo son obligados, conforme á las leyes todos los habitantes del Estado.

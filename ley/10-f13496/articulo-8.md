@@ -1,0 +1,1 @@
+Art. 8. Los Jueces de la Policía gozarán del sueldo de treinta pesos mensuales, que se les pagará del Erario público. –Dado en la ciudad de san José á los veintinueve días del mes de Abril de mil ochocientos cuarenta y tres. -José María Alfaro –al Ministro General del Despacho Señor Doctor José María Castro”
