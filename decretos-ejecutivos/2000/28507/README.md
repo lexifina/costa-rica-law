@@ -14,3 +14,4 @@ Declara Patrimonio Histórico Black Star Line en la Provincia de Limón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-16 | la propia norma |
+| 2 | 2000-03-16 | Ley 7 |
