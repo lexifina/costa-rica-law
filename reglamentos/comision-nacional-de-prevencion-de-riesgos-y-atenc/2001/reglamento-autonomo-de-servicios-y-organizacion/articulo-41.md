@@ -1,0 +1,1 @@
+Artículo 41.—Salvo casos previstos en este Reglamento, la omisión de una marca en las horas de entrada o de salida, hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el servidor no la justifique dentro de los cinco días hábiles siguientes después de la omisión de la marca.

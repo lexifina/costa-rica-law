@@ -1,0 +1,1 @@
+Artículo 67.—- Las licencias para realizar estudios, incluyen las horas lectivas y el tiempo de traslado al centro de educación y deberán contar con la anuencia del superior inmediato y del director del área respectiva.

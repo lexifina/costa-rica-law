@@ -1,0 +1,1 @@
+Artículo 92.—Todo servidor trasladado por más de treinta días en forma continua a otro lugar diferente al que fue contratado inicialmente y que sea distinto al de su domicilio, tendrá derecho al pago de zonaje conforme a la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo 112.—El servidor que sufra un accidente o riesgo de trabajo y que esté en condiciones de hacerlo, deberá dar aviso de tal hecho, dentro de las cuarenta y ocho horas siguientes, al jefe inmediato o al superior de este.

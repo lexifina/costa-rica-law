@@ -1,0 +1,1 @@
+Artículo 132.—Las gestiones que no hayan sido formuladas de conformidad con lo dispuesto en este Capítulo, deberán también ser tramitadas si de ellas se puede desprender la intención del reclamante, caso contrario se deberán devolver para que sean planteadas en la forma debida.

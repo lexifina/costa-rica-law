@@ -1,0 +1,3 @@
+Artículo 78.—Los subsidios y licencias por razón de maternidad se regularán, conforme a las siguientes normas:
+a) Todas las servidoras en estado de gravidez tienen derecho a licencia por cuatro meses con goce de sueldo completo. Este periodo se distribuirá: un mes antes del parto y tres meses después. Si éste se retrasare no se alterará el término de tres meses de la licencia, pero si el alumbramiento se anticipare solo gozará de los tres meses posteriores al mismo.
+b) La servidora deberá tramitar su incapacidad por intermedio de su jefe inmediato, por lo menos con quince días de anticipación a su retiro efectivo, de acuerdo con la fecha previamente señalada por el médico, salvo casos de fuerza mayor.

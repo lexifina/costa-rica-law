@@ -1,0 +1,2 @@
+Artículo 42.—El funcionario que por dolo o complacencia firme el registro de asistencia que no le corresponde, o altere su propio registro, incurrirá en falta grave a sus obligaciones, haciéndose acreedor de las siguientes sanciones que se computarán para efectos de reincidencia en un lapso de un año .
+a) La primera vez, suspensión de hasta quince días b) La segunda vez, despido sin responsabilidad patronal Las medidas disciplinarias se aplicarán también al servidor que se beneficie con la marca de asistencia cuando se demuestre que hubo acuerdo entre ambos servidores.

@@ -1,0 +1,3 @@
+Artículo 114.—Constituyen riesgos de trabajo los accidentes y enfermedades que ocurran a los servidores con ocasión y como consecuencia del trabajo que desempeñan en forma subordinada y
+remunerada, así como la agravación que resulte como consecuencia directa, inmediata e ineludible, de esos accidentes y enfermedades.
+Por accidente de trabajo se entiende todo suceso que le ocurra al servidor como consecuencia de la labor que le ha sido asignada, durante el tiempo que permanezca bajo las órdenes de los representantes de la Comisión y que pueda producirle la muerte, pérdida o reducción temporal o permanente de la capacidad para el trabajo. También se calificarán como accidente de trabajo las situaciones reguladas por la Legislación de Riesgos de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 22.—Se establece como derecho de los servidores la Carrera Administrativa. En cada plaza vacante debe preferirse a los servidores que tengan las mejores condiciones y requisitos superiores a los mínimos establecidos y acordes a las necesidades del servicio que brinda la Institución.

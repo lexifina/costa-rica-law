@@ -1,0 +1,1 @@
+Artículo 81.—Los descensos podrán ser efectuados a cualquier clase de puesto siempre que el servidor, ajuicio de la Comisión reúna los requisitos de la clase a la que se propone y no se le ocasione ningún perjuicio de conformidad con el artículo 23 del Reglamento del Estatuto de Servicio Civil.

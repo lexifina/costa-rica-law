@@ -1,0 +1,1 @@
+Artículo 76.—El cálculo del porcentaje de los subsidios será efectuado utilizando como referencia el promedio de los salarios devengados en los tres meses inmediatos anteriores a la incapacidad de servidor.

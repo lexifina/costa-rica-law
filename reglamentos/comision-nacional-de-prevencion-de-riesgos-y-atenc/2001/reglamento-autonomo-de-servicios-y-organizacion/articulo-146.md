@@ -1,0 +1,3 @@
+Artículo 146.—Al Departamento de Planificación le corresponde el planeamiento, dirección, coordinación, supervisión y control de los programas y actividades que atañen a la Comisión en materia de planificación.
+Debe recomendar los cambios y ajustes en las políticas, planes y programas bajo su responsabilidad con relación a los objetivos y metas propuestos por la Comisión así como en la formulación de los planes reguladores de cada emergencia, correspondiéndole la coordinación con la Contraloría de Unidades Ejecutoras, de la evaluación del cumplimiento de los planes reguladores de cada emergencia.
+Está bajo la dirección de un jefe de departamento y contará con el personal necesario para atender las diferentes funciones asignadas.

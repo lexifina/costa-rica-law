@@ -1,0 +1,1 @@
+Artículo 162.—Cualquier modificación a este Reglamento deberá ser aprobada por la Junta Directiva de la Comisión y la Dirección General del Servicio Civil, y deberá ser publicada en el Diario Oficial La Gaceta y dado a conocer a los funcionarios en la misma forma que se tramitó este Reglamento.

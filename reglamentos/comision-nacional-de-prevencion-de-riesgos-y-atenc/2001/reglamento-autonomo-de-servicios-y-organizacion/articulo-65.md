@@ -1,0 +1,2 @@
+Artículo 65.—Las funciones de los servidores que se encuentren gozando de vacaciones, así como las de aquellos que no asistan a sus labores por enfermedad o licencia con goce de sueldo, serán
+encomendadas al resto del personal, sin derecho a remuneración adicional, siempre que fueren compatibles con las funciones propias de su cargo, sus aptitudes, estado o condición, y que no impliquen una disminución notable de jerarquía o un recargo excesivo del trabajo y no sean por un periodo mayor de un mes.

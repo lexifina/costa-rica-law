@@ -1,0 +1,2 @@
+Artículo 157.—A la Sección de Tesorería le corresponde la supervisión, coordinación, control y ejecución de las actividades relacionadas con la recepción, pago, custodia y control de valores, debiendo preparar el flujo de caja proyectado anual de la Comisión, y el flujo de caja real mensual.
+Es responsable de supervisar, coordinar y controlar el manejo y custodia del Fondo Nacional de Emergencias.

@@ -1,0 +1,1 @@
+Artículo 104.—Dentro del plazo establecido en la Ley dicha el Órgano Director emitirá el informe final a la Presidencia de la Comisión con las recomendaciones que considere aplicables, quien resolverá en definitiva, excepto que se trate de funcionarios que dependan directamente de la Junta Directiva, supuesto en el cual se deberá comunicar a esta las recomendaciones del Órgano.

@@ -1,0 +1,1 @@
+Artículo 40.—Los servidores que realicen giras, o cuando se destaquen temporalmente en un lugar distinto a su lugar habitual de trabajo, deberán justificar las omisiones de marca de asistencia en que incurran.

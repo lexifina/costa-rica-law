@@ -1,0 +1,1 @@
+Artículo 6°—Se establece la existencia de la relación de servicio entre la Comisión y sus servidores, cuando estos realizan tareas determinadas de tipo manual, intelectual o de ambos, en beneficio de la Comisión, a cambio de una retribución económica, en virtud de un acto válido y eficaz de nombramiento.

@@ -1,0 +1,1 @@
+Artículo 28.—Los servidores deberán ser atendidos por los Jerarcas de la Comisión en sus sugerencias y, en general, en todo aquello que estimule su iniciativa personal, su eficiencia y el mejoramiento de las condiciones laborales.

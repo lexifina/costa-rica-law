@@ -1,0 +1,2 @@
+Artículo 26.—A efecto de garantizar la libertad sindical y de asociación, la Comisión se compromete a guardar a los delegados y miembros ejecutivos de los sindicatos y asociaciones legalmente constituidos, las consideraciones y atenciones debidas, así como prestarles todas las comodidades necesarias para el desarrollo de sus actividades.
+Para tal efecto las organizaciones acreditarán ante la Dirección Ejecutiva a sus representantes.

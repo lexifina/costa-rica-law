@@ -1,0 +1,4 @@
+Artículo 141.—La Dirección Administrativo Financiera tiene bajo su responsabilidad los Departamentos Financiero-Contable-Gestión de Recursos, Informática, Proveeduría, Recursos Humanos, bajo la dirección de un Director cuyo nombramiento y remoción corresponde al Director
+Ejecutivo de quien depende en línea directa inmediata y su designación se hará en los términos que resuelva la Dirección General de Servicio Civil.
+Le corresponde planear, coordinar, dirigir, y supervisar todas las actividades que le son propias en el ámbito administrativo financiero, contable, informático, de apoyo y servicios que deben proporcionarse en la Institución.
+Debe velar por el cumplimiento de las regulaciones establecidas o las que en el futuro se implanten, así como procurar que los sistemas de presupuesto y contabilidad permitan proporcionar información oportuna y confiable.

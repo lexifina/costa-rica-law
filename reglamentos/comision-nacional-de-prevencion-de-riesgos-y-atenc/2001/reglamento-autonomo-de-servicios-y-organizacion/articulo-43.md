@@ -1,0 +1,1 @@
+Artículo 43.—No obstante lo dispuesto en el artículo anterior la sanción disciplinaria podrá atenuarse si el servidor que firmó el registro de asistencia o aquel a quien le marcaron el suyo, informará del hecho al Departamento de Recursos Humanos, a más tardar en el curso de la jornada de trabajo siguiente a aquella en que el hecho sucedió.

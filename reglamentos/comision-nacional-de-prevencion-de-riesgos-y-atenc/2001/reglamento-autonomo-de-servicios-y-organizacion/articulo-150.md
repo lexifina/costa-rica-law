@@ -1,0 +1,2 @@
+Artículo 150.—El Departamento de Recursos Humanos es el órgano encargado del planeamiento, dirección, organización, control, evaluación y ejecución de los procesos de Recursos Humanos de la Comisión, aplicando las políticas que en materia de Administración de Recursos Humanos emitan las autoridades de la Comisión y la Dirección General de Servicio Civil así como otras entidades que por ley tengan competencia afín.
+Está bajo la dirección de un jefe de departamento y contará con el personal necesario para atender las diferentes funciones asignadas.

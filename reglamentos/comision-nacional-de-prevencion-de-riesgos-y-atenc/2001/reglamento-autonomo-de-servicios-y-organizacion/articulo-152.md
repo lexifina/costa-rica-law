@@ -1,0 +1,2 @@
+Artículo 152.—Al Departamento de Informática le corresponde el planeamiento, dirección, coordinación, supervisión y control de actividades profesionales y técnicas que se realizan en materia de procesamiento electrónico de datos, análisis de sistemas, programación, mantenimiento de redes y de equipos.
+Está bajo la dirección de un jefe de departamento y contará con el personal necesario para atender las diferentes funciones asignadas.

@@ -1,0 +1,5 @@
+Artículo 144.—El Departamento de Comunicaciones es el responsable de los aspectos técnicos y de operación de los sistemas de radiocomunicación y similares que utiliza la Comisión.
+Le corresponde la dirección, diseño, organización, planificación, desarrollo, instalación, mantenimiento, distribución, integración, control, coordinación y asignación de los equipos y sistemas telefónicos y de radiocomunicación de acuerdo con las políticas definidas por la Institución. Su propósito es garantizar la eficiente y eficaz operación,
+coordinación y utilización de los equipos y sistemas tanto en la operación interna como entre instituciones, antes y después de las emergencias.
+Debe coordinar, dirigir y controlar las acciones relativas a la instalación, mantenimiento, distribución, integración, asignación de equipos y sistemas de radiocomunicación en el ámbito institucional y de los organismos integrantes de la Red Nacional de Comunicaciones, así como establecer y mantener los protocolos necesarios para la atención de los diversos desastres.
+Está bajo la dirección de un jefe de departamento y contará con el personal necesario para atender las diferentes funciones asignadas.

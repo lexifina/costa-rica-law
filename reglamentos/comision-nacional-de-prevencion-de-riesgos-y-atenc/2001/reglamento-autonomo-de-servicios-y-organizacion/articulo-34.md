@@ -1,0 +1,1 @@
+Artículo 34.—Los servidores de la Comisión están obligados al desempeño de sus cargos, durante todos los días hábiles y todas las horas reglamentarias y no podrán concederse privilegios, prerrogativas o concesiones que promuevan una asistencia irregular salvo los casos, expresamente autorizados por la Legislación.

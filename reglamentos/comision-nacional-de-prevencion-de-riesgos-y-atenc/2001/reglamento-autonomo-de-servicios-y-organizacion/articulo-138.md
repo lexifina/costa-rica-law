@@ -1,0 +1,2 @@
+Artículo 138.—El Presidente de la Comisión es el funcionario de mayor jerarquía dentro de la Institución y ostentará su representación judicial y extrajudicial, su designación corresponde al Poder Ejecutivo.
+De él dependen directamente el Director Ejecutivo, Relaciones Públicas, la asesoría jurídica de la Junta, y la secretaria de actas y de Presidencia. Sus atribuciones, deberes y derechos son los que están señalados en la Ley Nacional de Emergencias.

@@ -1,0 +1,1 @@
+Artículo 108.—De conformidad con el artículo 288 del Código de Trabajo se establece una Comisión de Salud Ocupacional la cual tendrá a su cargo todo lo relacionado con ese campo. Dicha Comisión contará con un manual interno de funcionamiento.

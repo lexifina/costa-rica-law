@@ -1,0 +1,1 @@
+Artículo 72.—El servidor que sin causa justificada pierda una o varias materias matriculadas quedará obligado a restituir a la Comisión los gastos en que incurrió en razón del tiempo concedido y no aprovechado.

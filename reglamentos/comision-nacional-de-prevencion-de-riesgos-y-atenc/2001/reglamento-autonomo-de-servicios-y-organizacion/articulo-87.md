@@ -1,0 +1,1 @@
+Artículo 87.—Todo servidor tendrá derecho a que se le reconozca, para efectos de aumentos anuales, el tiempo de servicio prestado en otras entidades y dependencias del sector público de acuerdo con las disposiciones legales existentes.

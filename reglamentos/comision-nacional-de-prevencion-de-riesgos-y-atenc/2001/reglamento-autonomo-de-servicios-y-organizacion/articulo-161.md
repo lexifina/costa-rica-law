@@ -1,0 +1,1 @@
+Artículo 161.—Ningún servidor puede alegar un derecho adquirido, cuando la Comisión lo haya otorgado por dolo o inducida a error por parte del funcionario beneficiado o del que le corresponde otorgar ese derecho.

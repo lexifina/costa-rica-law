@@ -1,0 +1,4 @@
+CAPÍTULO XXII
+Disposiciones finales
+Artículo 160.—El presente Reglamento no modifica los derechos adquiridos por los servidores de la Comisión que estén acordes a la normativa establecida. Los funcionarios mantendrán las condiciones de trabajo y remuneración a que se hicieron acreedores con el ingreso al Régimen de Servicio Civil, las que podrán variar en estricto apego a los procedimientos legalmente establecidos.
+Este Reglamento se presume de conocimiento de todos los funcionarios y será de observancia obligatoria para todos desde el día de su vigencia, inclusive para los que en el futuro trabajen para estos. Para estos efectos la Comisión mantendrá dos ejemplares en un sitio visible y una vez vigente entregará a cada funcionario una copia del Reglamento, así mismo deberá entregarse un ejemplar a cada funcionario que ingrese a laborar a la Comisión en el futuro.

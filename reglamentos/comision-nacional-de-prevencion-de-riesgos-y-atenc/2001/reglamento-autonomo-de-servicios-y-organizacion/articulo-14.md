@@ -1,0 +1,11 @@
+Artículo 14.—Además de lo contemplado en el artículo 12 de este Reglamento, los choferes y funcionarios a quienes se asignan vehículos al servicio de la Comisión tendrán las siguientes obligaciones:
+1. Contar con la autorización del funcionario responsable, previo a la salida y acatar las órdenes del jefe que se les asigne para servicios de zona urbana o rural y por el tiempo que las necesidades de trabajo así lo demanden.
+2. Velar por que el vehículo se encuentre en buen estado de funcionamiento y posea las herramientas y accesorios necesarios, en el caso de que el servidor se desempeñe como chofer.
+3. Rehusar la operación de un vehículo que se encuentre evidentemente en condiciones defectuosas de tal forma que ponga en peligro la integridad física del servidor o de terceros, o bien que medie de previo un diagnóstico de un funcionario competente.
+4. Informar en forma inmediata a su superior inmediato de los accidentes de tránsito en que estén involucrados, suministrando los nombres y apellidos de los ocupantes del vehículo y de las personas que resulten afectadas, así como de los daños que sufra el vehículo, el lugar y las circunstancias en que se produjo el accidente.
+5. Informar al responsable del control de equipo, en el reporte diario, de cualquier desperfecto que observe en el vehículo a su cuidado.
+La falta inexcusable del aviso oportuno, lo hará incurrir en responsabilidad.
+6. Guardar el vehículo al término de cada jornada laboral en el lugar que para tal efecto tenga designado la Comisión, excepto cuando se encuentre en giras o en misiones especiales de trabajo, en cuyo caso deberá procurar el mejor resguardo del automotor bajo la responsabilidad del conductor asignado.
+7. Mantener la licencia al día, así como conducir con prudencia, a velocidad reglamentaria y acatar las normas de tránsito respectivas.
+8. Presentar a su superior inmediato un informe mensual de la actividad diaria del vehículo, mediante las fórmulas que correspondan. Quien omitiere esta obligación será sancionado conforme a este Reglamento.
+9. Acatar las disposiciones de la Ley de Tránsito por Vías Públicas Terrestres y las normas estipuladas en el Reglamento de Transportes de la Comisión.

@@ -1,0 +1,2 @@
+Artículo 151.—El Departamento de Relaciones Públicas es el órgano encargado del planeamiento, dirección, coordinación, supervisión, asesoría y control de actividades profesionales relacionadas con la definición y establecimiento de las estrategias informativas de la Comisión, para dar a conocer sus actividades y mantener informada a la población sobre el desarrollo de los diferentes eventos que afectan al país.
+Está bajo la dirección de un jefe de departamento y contará con el personal necesario para atender las diferentes funciones asignadas.

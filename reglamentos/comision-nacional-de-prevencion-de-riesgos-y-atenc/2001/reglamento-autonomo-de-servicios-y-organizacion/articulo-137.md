@@ -1,0 +1,1 @@
+Artículo 137.—La Junta Directiva es el Órgano superior de la Comisión, cuyos miembros son designados por el Presidente de la República y el Ministro de la Presidencia, vía decreto ejecutivo. Sus atribuciones y composición son las que están expresamente señaladas en la Ley Nacional de Emergencias y contará además con una asesoría jurídica y una secretaria de actas.

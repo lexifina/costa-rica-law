@@ -1,0 +1,1 @@
+Artículo 44.—El Jefe responsable del reporte de la asistencia al que se le demuestre la inasistencia de un servidor no reportada por él, se hará acreedor a la sanción disciplinaria establecida en el artículo 42 de este Reglamento, excepto que esa omisión haya sido ocasionada por fuerza mayor o desconocimiento.

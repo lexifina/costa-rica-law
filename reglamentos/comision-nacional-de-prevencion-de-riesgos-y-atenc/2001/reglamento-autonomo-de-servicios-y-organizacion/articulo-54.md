@@ -1,0 +1,2 @@
+Artículo 54.—El servidor deberá notificar lo antes posible, por el medio mas idóneo, a su jefe inmediato las causas que le impiden asistir al trabajo
+En casos muy calificados, el Presidente, Director Ejecutivo, Director de área o jefe departamental, podrá justificar las ausencias del funcionario que no sean por enfermedad, hasta por dos días, sin que tal justificación signifique el pago del salario. Las ausencias superiores de dos días requerirán la aprobación del Director Ejecutivo o del Presidente

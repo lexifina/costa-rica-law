@@ -1,0 +1,1 @@
+Artículo 77.—De toda ausencia que se produzca por incapacidad, el servidor está obligado a dar aviso por cualquier medio idóneo a su superior inmediato, a más tardar el segundo día de ausencia, salvo casos de fuerza mayor.

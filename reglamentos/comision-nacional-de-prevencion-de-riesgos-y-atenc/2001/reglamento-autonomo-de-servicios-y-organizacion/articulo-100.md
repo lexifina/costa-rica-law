@@ -1,0 +1,1 @@
+Artículo 100.—La persona afectada por una conducta de acoso o de hostigamiento sexual deberá plantear la denuncia, en forma verbal o escrita, ante el Departamento de Recursos Humanos, quien deberá inmediatamente solicitar al Presidente de la Comisión la apertura de un expediente administrativo para determinar la verdad de los hechos denunciados.

@@ -1,0 +1,1 @@
+Artículo 113.—La Comisión por medio del Departamento de Recursos Humanos y de la Comisión de Salud Ocupacional, está en la obligación de instruir a los servidores en todo lo referente a la Ley Sobre Riesgos del Trabajo No 6727.

@@ -1,0 +1,1 @@
+Artículo 4°—El Presidente, el Director Ejecutivo, los Directores, los jefes de Departamento y en general todos aquellos funcionarios que tengan bajo su responsabilidad tareas de administración y de servicio de personal son responsables de velar por la correcta aplicación de las disposiciones de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 2°—El cumplimiento de este Reglamento es de acatamiento obligatorio para todos los funcionarios de la Comisión, a efecto de que las labores se lleven a cabo dentro de la armonía requerida y la mayor eficacia y eficiencia posible.

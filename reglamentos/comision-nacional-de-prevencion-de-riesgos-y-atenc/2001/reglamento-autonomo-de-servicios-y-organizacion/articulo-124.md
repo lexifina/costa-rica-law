@@ -1,0 +1,1 @@
+Artículo 124.—Además de las faltas y sanciones correspondientes contenidas en otros artículos del presente Reglamento se considerarán faltas graves las que establece el Estatuto de Servicio Civil y las señaladas en el artículo 81 del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 159.—La Sección de Servicios Generales es responsable de la supervisión, coordinación, control y ejecución de actividades relacionadas con el mantenimiento, limpieza, vigilancia, archivo institucional, recepción, administración y entrega de artículos y suministros varios. Tiene bajo su dirección las unidades de Transportes, Bodega y Archivo.

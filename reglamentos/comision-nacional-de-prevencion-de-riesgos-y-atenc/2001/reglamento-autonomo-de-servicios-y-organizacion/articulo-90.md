@@ -1,0 +1,1 @@
+Artículo 90.—Los empleados que deban viajar en el ejercicio de sus funciones tendrán derecho a que se les reconozcan los gastos de transporte y viáticos dentro o fuera del país, de conformidad con los reglamentos vigentes, siempre y cuando estos rubros no se les proporcione por otros medios. Los viáticos no se considerarán salario para ningún efecto.

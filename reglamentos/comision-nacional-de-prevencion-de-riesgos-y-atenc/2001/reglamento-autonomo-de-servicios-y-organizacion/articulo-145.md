@@ -1,0 +1,5 @@
+Artículo 145.—El Departamento de Operaciones es el responsable dé la coordinación de las acciones de preparación y respuesta de las diferentes instituciones para la atención de los desastres. Tiene bajo su cargo el equipo de trabajo compuesto por los oficiales de enlace.
+Es responsable de la información, seguimiento, consolidación y capacitación de los Comités de Emergencia Regionales, Locales y Comunales y de coordinar los Comités Asesores Técnicos con representación de instituciones vinculadas a la Comisión y relacionadas con las operaciones de emergencia.
+Le corresponde el diseño de los planes de contingencia y de ejecutar los planes de emergencia.
+Durante las situaciones de emergencia debe realizar las labores de coordinación, evaluación, información, logística y enlace tanto internamente como entre instituciones con el propósito de brindar una atención eficaz y coordinadora en el ámbito nacional, de las instituciones de respuesta, durante y después de un desastre.
+Está bajo la dirección de un jefe de departamento y contará con el personal necesario para atender las diferentes funciones asignadas.

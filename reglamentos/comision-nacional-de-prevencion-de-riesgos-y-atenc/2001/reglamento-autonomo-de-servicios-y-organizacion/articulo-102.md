@@ -1,0 +1,1 @@
+Artículo 102.—El procedimiento administrativo deberá ser llevado a cabo resguardando la imagen y confidencialidad de ambas partes y acatando los principios que rigen la actividad administrativa, so pena de incurrir en falta grave.

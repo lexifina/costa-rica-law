@@ -1,0 +1,1 @@
+Artículo 88.—La compensación económica por concepto de Prohibición del Ejercicio Particular de la Profesión, Dedicación Exclusiva, Disponibilidad y Carrera Profesional se regirán por las disposiciones vigentes sobre estas materias.

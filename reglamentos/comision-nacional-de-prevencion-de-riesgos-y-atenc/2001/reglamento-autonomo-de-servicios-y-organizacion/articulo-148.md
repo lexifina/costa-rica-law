@@ -1,0 +1,2 @@
+Artículo 148.—El Departamento de Proveeduría es el encargado del planeamiento, dirección, coordinación, supervisión y control de los procedimientos de compras, velando porque las licitaciones, contrataciones y en general los concursos se tramiten de conformidad con las disposiciones legales y reglamentarias vigentes, dando el debido seguimiento a todos ellos hasta llegar al finiquito correspondiente.
+Está bajo la dirección de un jefe de departamento y contará con el personal necesario para atender las diferentes funciones asignadas.

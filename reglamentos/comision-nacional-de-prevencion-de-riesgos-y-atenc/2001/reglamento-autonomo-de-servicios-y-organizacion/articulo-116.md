@@ -1,0 +1,1 @@
+Artículo 116.—Si el lugar donde ocurre el accidente queda distante de la ciudad capital o de la agencia regional del INS más cercana, imposibilitando que la denuncia llegue el mismo día o el inmediato siguiente, el responsable deberá dar aviso por el medio más ágil que tenga a su disposición.

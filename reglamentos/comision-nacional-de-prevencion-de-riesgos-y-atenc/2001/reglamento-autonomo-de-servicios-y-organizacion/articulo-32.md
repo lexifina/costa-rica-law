@@ -1,0 +1,1 @@
+Artículo 32.—Son hábiles para el trabajo todos los días del año, menos los feriados y los que el Poder Ejecutivo declare de asueto. Sin embargo, podrá trabajarse en dichos días, cuando la necesidad del trabajo así lo amerite, recibiendo por ello el pago, correspondiente a las horas extraordinarias trabajadas, o el reconocimiento del rubro de disponibilidad, según corresponda.

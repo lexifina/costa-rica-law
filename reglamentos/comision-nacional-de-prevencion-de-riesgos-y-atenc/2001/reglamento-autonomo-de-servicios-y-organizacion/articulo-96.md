@@ -1,0 +1,2 @@
+Artículo 96.—La calificación de servicios se hará según los méritos obtenidos durante el año respectivo, en una escala que comprenderá:
+deficiente, regular, bueno, muy bueno, excelente, o sus equivalentes. Si el funcionario estima que la calificación no es la que le corresponde podrá impugnarla por escrito, exponiendo los motivos que sustentan su inconformidad, ante quien emitió la calificación y de continuar su inconformidad ante el superior jerárquico. A esta impugnación se le deberá dar el trámite que corresponde a los reclamos.

@@ -1,0 +1,1 @@
+Artículo 53.—Las ausencias ocurridas por motivo de enfermedad deberán ser justificadas por el servidor mediante certificación médica expedida por la Caja Costarricense del Seguro Social, el médico de la Institución o el Instituto de Seguros. El certificado médico particular servirá sólo para justificar las ausencias por enfermedad que no excedan de cuatro días al mes.

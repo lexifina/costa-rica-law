@@ -1,0 +1,5 @@
+CAPÍTULO XII
+De las incapacidades para trabajar y subsidios
+Artículo 75.—Cuando un servidor fuere incapacitado médicamente para cumplir con sus labores, la Comisión observará las siguientes normas en cuanto al pago de los subsidios por incapacidad:
+a) Se reconocerá un subsidio durante los primeros tres días de un cien por cien del monto del salario ordinario que esté devengando el servidor; y de un cuarenta por ciento a partir del cuarto día hasta un máximo de doce meses. Estos subsidios sólo serán posibles cuando la incapacidad sea expedida por la Caja Costarricense de Seguro Social, el médico de la Institución un médico particular o el Instituto Nacional de Seguros, y se gozarán conforme durante las proporciones al tiempo servido establecido en el artículo 34 del Reglamento al Estatuto.
+b) El porcentaje de subsidio que reconozca la Comisión así como el porcentaje que por ese concepto reconozcan las instituciones aseguradoras, será considerado como sueldo para el cálculo de aguinaldo, vacaciones, prestaciones legales y otros rubros similares.

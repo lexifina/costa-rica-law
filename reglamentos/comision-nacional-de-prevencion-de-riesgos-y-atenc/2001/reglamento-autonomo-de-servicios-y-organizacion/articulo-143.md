@@ -1,0 +1,4 @@
+Artículo 143.—El Departamento de Prevención y Mitigación, es el responsable de la coordinación de los sectores técnicos y científicos de las diferentes instituciones nacionales.
+Le corresponde la planificación, dirección, coordinación, supervisión y dar recomendaciones técnicas sobre aspectos de ingeniería, sismología, vulcanología, hidrometereología, organización y otros que podrían causar desastres. Además realiza el monitoreo de las amenazas y realiza coordinadamente la evaluación de los daños.
+El Departamento estará bajo la dirección de un jefe que contará con equipos de trabajo para atender las secciones de Formación y Capacitación e Información para la Gestión en Desastres, y Sistema de Información para la Gestión en Desastres.
+El propósito del Departamento es lograr mediante estudios técnicos y científicos, la prevención y la mitigación de los desastres. Además de aportar los insumos de información y planificación que para su labor requiera la Institución.

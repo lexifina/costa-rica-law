@@ -1,0 +1,1 @@
+Artículo 39.—El Jefe de Sección o Departamento responsable del Libro de Control de Asistencia, deberá remitir, durante los primeros cinco días hábiles siguientes al vencimiento de cada mes, un reporte al Departamento de Recursos Humanos con el detalle de las ausencias y llegadas tardías injustificadas de los funcionarios.

@@ -1,0 +1,1 @@
+Artículo 69.—Las licencias concedidas, según el artículo anterior, lo serán únicamente por el tiempo necesario para concurrir a lecciones y los traslados correspondientes, debiendo el servidor asistir al trabajo durante los periodos y los días libres que se conceda en el correspondiente centro educacional.

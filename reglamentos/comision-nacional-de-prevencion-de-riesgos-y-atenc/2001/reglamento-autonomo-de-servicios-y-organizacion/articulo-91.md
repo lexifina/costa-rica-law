@@ -1,0 +1,1 @@
+Artículo 91.—Todo trabajo realizado después de la jornada ordinaria o durante los días no hábiles, será considerado como extraordinario y se remunerará conforme está dispuesto en el Ordenamiento Jurídico, salvo el caso de que el funcionario devengue el rubro de la disponibilidad. Para tales efectos deberá existir un registro del tiempo trabajado por ese concepto.

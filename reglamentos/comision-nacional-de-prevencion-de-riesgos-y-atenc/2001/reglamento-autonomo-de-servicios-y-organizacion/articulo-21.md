@@ -1,0 +1,1 @@
+Artículo 21.—Todo servidor tendrá derecho al reconocimiento de los años de antigüedad acumulados en la Comisión y en la Administración Pública para efecto de aumentos anuales. Esta antigüedad acumulada se computará también para efectos de los días de vacaciones a que tiene derecho.

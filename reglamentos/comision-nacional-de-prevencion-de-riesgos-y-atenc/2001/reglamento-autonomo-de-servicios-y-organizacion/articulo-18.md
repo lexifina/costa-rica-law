@@ -1,0 +1,1 @@
+Artículo 18.—Ningún servidor podrá alegar derechos cuando la circunstancia, razón o pretensión se origine en una violación a normas legales o se haya establecido por un error administrativo, pero para eliminarlos deberá cumplirse con el debido proceso y otorgarse la más amplia posibilidad de defensa.
