@@ -1,0 +1,1 @@
+Artículo 2°-De acuerdo con el contrato citado en el artículo 1o, se autoriza al Poder Ejecutivo para que en la licitación pública requerida para la ejecución del proyecto se use el sistema de precalificación de contratistas.
