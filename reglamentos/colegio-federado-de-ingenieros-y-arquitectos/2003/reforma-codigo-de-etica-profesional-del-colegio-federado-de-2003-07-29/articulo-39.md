@@ -1,0 +1,1 @@
+Artículo 39.—Se impondrá suspensión de tres hasta dieciocho meses, a quien injuriare, calumniare o difamare, directa o indirectamente, la reputación profesional, situación o negocio de otro miembro del Colegio Federado. Sin embargo, se podrá imponer una amonestación confidencial, cuando el colegiado se haya disculpado o se haya llegado a un arreglo o conciliación. (*)

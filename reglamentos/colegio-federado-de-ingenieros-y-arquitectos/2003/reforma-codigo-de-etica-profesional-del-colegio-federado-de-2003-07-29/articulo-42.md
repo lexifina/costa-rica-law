@@ -1,0 +1,1 @@
+Artículo 42.—Se impondrá suspensión de seis hasta veinticuatro meses a quien fijare o influenciare el establecimiento de honorarios o remuneraciones por servicios de ingeniería o arquitectura cuando tales honorarios o remuneraciones representaren evidentemente, una compensación inadecuada inferior a la tarifa mínima establecida por el Colegio Federado. (*)

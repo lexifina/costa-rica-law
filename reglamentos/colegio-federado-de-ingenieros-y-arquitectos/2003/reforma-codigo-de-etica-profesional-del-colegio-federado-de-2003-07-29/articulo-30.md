@@ -1,0 +1,1 @@
+Artículo 30.—Se impondrá suspensión de tres hasta veinticuatro meses, a quien recibiere o diere comisiones a otros beneficios para gestionar, obtener o acordar designaciones o trabajos de cualquier índole en el ejercicio profesional. (*)

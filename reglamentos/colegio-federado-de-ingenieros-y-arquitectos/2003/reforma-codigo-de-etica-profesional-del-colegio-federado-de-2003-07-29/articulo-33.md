@@ -1,0 +1,1 @@
+Artículo 33.—Se impondrá suspensión de uno hasta veinticuatro meses, al profesional cuya conducta tienda a desacreditar o desacredite el honor y la dignidad de la profesión de ingeniería y arquitectura. (*)

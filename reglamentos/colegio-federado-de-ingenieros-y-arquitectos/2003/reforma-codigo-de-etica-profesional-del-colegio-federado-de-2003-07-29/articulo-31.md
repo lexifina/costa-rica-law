@@ -1,0 +1,1 @@
+Artículo 31.—En todos aquellos casos en que se presente una conducta que no este expresamente tipificada en este Código y que implique una violación al ordenamiento jurídico relacionado con el ejercicio profesional, se impondrá una sanción que va desde una amonestación confidencial hasta una suspensión de veinticuatro meses. (*)

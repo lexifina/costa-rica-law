@@ -1,0 +1,1 @@
+Artículo 38.—Se impondrá suspensión de seis a dieciocho meses, a quien tratare de ocupar un puesto o conseguir un encargo profesional, a sabiendas qua otro miembro haya efectuado pasos definitivos para su ocupación.

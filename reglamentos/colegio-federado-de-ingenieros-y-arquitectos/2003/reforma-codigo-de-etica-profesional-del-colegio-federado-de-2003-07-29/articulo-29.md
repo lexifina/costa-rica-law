@@ -1,0 +1,1 @@
+Artículo 29.—Se impondrá amonestación confidencial o suspensión hasta de seis meses, a quien asociare su nombre en propaganda o actividades con personas y empresas qua se hagan pasar indebidamente como profesionales o usando su posición profesional, ensalzare en forma desmedida, personas o cosas con fines comerciales o políticos. (*)

@@ -1,0 +1,1 @@
+Artículo 28.—Se impondrá suspensión de seis a veinticuatro meses, a quien firmare planos, especificaciones, dictámenes, memorias o informes, que no hayan sido ejecutados, estudiados o visados personalmente; los documentos que por su condición de ser objeto de fe pública, deben ser ejecutados personalmente. (*)

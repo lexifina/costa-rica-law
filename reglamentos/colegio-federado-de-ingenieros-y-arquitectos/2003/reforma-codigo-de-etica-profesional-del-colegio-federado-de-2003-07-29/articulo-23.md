@@ -1,0 +1,1 @@
+Artículo 23.—En el caso de reincidencia, se le impondrá al infractor la sanción tipificada para el último hecho cometido, pudiendo aumentarse la misma a juicio de la Junta Directiva General, pero sin que pueda pasar del máximo fijado para esa falta.

@@ -1,0 +1,1 @@
+Artículo 45.—Se impondrá suspensión de seis a dieciocho meses, a quien actuare para con sus clientes o empleadores, en asuntos profesionales, en otra manera que no sea la de un agente leal y sin perjuicio, como depositario, experto o árbitro, en cualquier contrato a obra de ingeniería o arquitectura.

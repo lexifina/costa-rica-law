@@ -1,0 +1,1 @@
+Artículo 15.—Los miembros incorporados al Colegio Federado de Ingenieros y de Arquitectos de Costa Rica no aceptarán trabajos en condiciones de plazo, honorarios, forma de pago o cualquier otra circunstancia, que puedan afectar en forma negativa su criterio profesional o la calidad de sus servicios.
