@@ -1,0 +1,1 @@
+Art. 2. Queda asì reformada la parte final del art. 5º del decreto de 25 de noviembre de 1844. Dado en la ciudad de San José à primero de octubre de mil ochocientos cuarenta y seis. José Maria Alfaro.~-Al Ministro de relaciones y gobernación Sr. Dr. José Maria Castro.
