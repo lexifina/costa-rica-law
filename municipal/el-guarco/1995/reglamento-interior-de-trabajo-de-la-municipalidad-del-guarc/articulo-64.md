@@ -1,0 +1,1 @@
+Artículo 64.-En defecto de disposiciones propias de este Reglamento deberá tenerse como suplementarias al Código de Trabajo, Código Municipal y demás leyes. decretos y reglamentos conexos de las materias que estén en vigencia en el país.

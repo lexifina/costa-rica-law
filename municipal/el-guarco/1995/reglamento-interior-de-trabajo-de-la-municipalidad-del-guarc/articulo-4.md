@@ -1,0 +1,1 @@
+Artículo 4º-La aplicación del presente Reglamento, corresponde al Ejecutivo Municipal y/o al Jefe de Personal la facultad de interpretar y resolver las dudas que pudieran surgir en relación al mismo al Ministerio de Trabajo y Seguridad Social.

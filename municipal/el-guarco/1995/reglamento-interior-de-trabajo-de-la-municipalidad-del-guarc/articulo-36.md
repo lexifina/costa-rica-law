@@ -1,0 +1,2 @@
+Artículo 36.-EItrabajador que por solo o complacencia marque la tarjeta de otro trabajador, incurrirá en falla grave a sus obligaciones laborales y se hará acreedor a:
+Suspensión del trabajo hasta por quince días sin goce de salario la primera vez: Incurrir en la misma falta y se aplicará igual sanción al trabajador a quien se le compruebe haber consentido para que otra persona le marque su tarjeta de asistencia. Estas faltas se computarán, para efectos de reincidencia en un lapso de tres meses.

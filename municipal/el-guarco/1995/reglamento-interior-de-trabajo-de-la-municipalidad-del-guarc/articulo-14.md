@@ -1,0 +1,2 @@
+Artículo 14.-El Ejecutivo Municipal podrá modificar transitoriamente los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan y no se cause grave perjuicio a los trabajadores. ,
+El cambio deberá ser comunicado a los trabajadores afectados con un mínimo de veinticuatro horas de anticipación, pero la modificación definitiva de los m ismos deberá ser sometida al trámite de conocimientos y aprobación de la Dirección de Asuntos Jurídico del Ministerio de Trabajo y Seguridad Social.

@@ -1,0 +1,1 @@
+Artículo 26.-La Municipalidad, en virtud de tener modalidad de pago semanal, pagará todos los feriados a que se refiere el artículo 147 del Código de Trabajo, en los cuales quedan remunerados con el salario quincenal o mensual de manera que si se labora un día feriado se tendrá que abonar al servidor. mensual un salario adicional sencillo.

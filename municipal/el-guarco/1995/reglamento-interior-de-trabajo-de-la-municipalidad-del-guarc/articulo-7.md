@@ -1,0 +1,1 @@
+Artículo 7º--Pese a lo dispuesto en los artículos anteriores se presume la existencia del contrato de trabajo y de la relación del trabajo entre la Municipalidad. y quienes presten su servicios personales en forma subordinada y a cambio de una retribución o salario de cualquier clase o forma.

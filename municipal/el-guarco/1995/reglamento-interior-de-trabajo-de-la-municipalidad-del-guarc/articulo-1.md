@@ -1,0 +1,3 @@
+REGLAMENTO INTERIOR DE TRABAJO CAPITULO PRIMERO
+Disposiciones generales
+Artículo 1º-Se establece este Reglamento Interior de Trabajo que en lo sucesivo se denominará "Reglamento'' para normar las relaciones laborales internas entre la Municipalidad de El Guarco que en adelante se denominará "La Municipalidad” y sus trabajadores con ocasión por consecuencia de trabajo de conformidad con lo prescrito en los artículos 66, 67 y 68 del Código de Trabajo artículo 29, (Inciso E) y 31 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social y lo establecido en el decreto Nº 4 del 26 de abril ele 1966 ( Reglamento sobre las normas internas reguladas de las relaciones y condiciones laborales en los Centros de Trabajo). . .

@@ -1,0 +1,1 @@
+Artículo 3º-La Municipalidad está compuesta actual mente por las siguientes unidades administrativas. Dirección Ejecutiva, Departamento de Ingeniería, Secretaría Municipal, Departamento de Contabilidad, Departamento de Tesorería, Departamento de Rentas y Departamento de Servicios Básicos.

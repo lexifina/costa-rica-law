@@ -1,0 +1,4 @@
+Artículo 8º- -Los Contratos de Trabajo serán:
+a) Por tiempo indefinido: que se llevará a cabo con aquellos trabajadores necesarios para satisfacer las necesidades propias y permanentes de la Municipalidad.
+b) Por tiempo determinado: que se celebrarán con los trabajadores que vengan temporalmente a ejecutar las labores de quien o quienes se encuentran disfrutando de vacaciones o bajo licencia, así como a aquellos excepcionales en que su celebración resulte procedente a la naturaleza de los servicios que le van a prestar.
+c) Por obra determinada: que se podrán celebrar para la ejecución de obras y/o satisfacer las necesidades; que eventualmente se presten en la Municipalidad y en el cual sin previa fijación de tiempo, el objeto de prestación personal de servicio será la misma obra producida.

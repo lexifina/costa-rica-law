@@ -1,0 +1,1 @@
+Artículo 23.-Los trabajadores gozarán sin interrupción del periodo de sus vacaciones .Excepcionalmente podrán dividirse en dos periodos como máximo cuando exista convenio de las partes al respecto y se trate de labores de índole tan especial que no permita una ausencia prolongada del servidor. No podrán acumularse salvo por una sola vez.

@@ -1,0 +1,1 @@
+Artículo 17.-La Municipalidad pagará salarios semanales al Personal de Servicios Básicos los vien1es de cada semana. El Personal Administrativo se le pagará su salario quincenalmente, siendo para este efecto e1 catorce y veintiocho de cada mes y el día de pago coincide en día feriado se hará el día inmediato anterior. Este pago se hará siempre en efectivo.

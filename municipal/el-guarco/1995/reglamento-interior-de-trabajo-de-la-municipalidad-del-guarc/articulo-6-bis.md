@@ -1,0 +1,1 @@
+Artículo 6ºa.- Los contratos de trabajo o acciones de personal de nombramiento, se harán en tres tanto, uno para la Municipalidad, uno para el Ministerio de Trabajo y Seguridad Social y otro para el trabajador interesado, el cual contará con un plazo de cinco días hábiles para su estudio y firma, plazo que se prorrogará por tres días hábiles más.

@@ -1,0 +1,3 @@
+CAPITULO SETIMO
+Días feriados
+Artículo 25.-Son hábiles para el trabajo todos los días del año menos los feriados. Sin embargo, podrá trabajarse en tales días siempre y cuando ello fuere posible al tenor de las excepciones contenidas en los artículo 150 y 151 del Código de Trabajo. Para los efectos de pago únicamente se entenderán como feriados el 1º de enero 19 de marzo, 11 de abril, Jueves y Viernes Santo, l º de mayo, 10 de junio (Corpus Cristy), 29 de junio, 25 de julio, 2 de agosto, 15 de agosto, 15 de setiembre, 12 de octubre, 8 de diciembre, 25 de diciembre y aquellos que el Concejo Municipal declare como de asueto.
