@@ -1,2 +1,4 @@
-Artículo 57.—Cualquier modificación o derogatoria que se haga en el Decreto de Salarios Mínimos vigentes, entrará a regir diez (10) días naturales después de la publicación del Decreto correspondiente.
+Artículo 57.—Cualquier modificación o derogatoria que se haga al Decreto de Salarios Mínimos vigente, en aplicación de lo dispuesto en el párrafo segundo del artículo 19 del Decreto - Ley 832 del 4 de noviembre de 1949 y su reformas y 54 de este Reglamento, entrará a regir diez (10) días naturales después de la publicación del decreto correspondiente.
+No obstante, las nuevas fijaciones salariales que se realicen en virtud de revisiones generales de salarios empezarán a regir a partir del día que indique el respectivo Decreto que las contempla.
 (Corrida su numeración, por Decreto Ejecutivo N° 25922 de 30 de enero de 1987, al eliminar el anterior artículo 47 y ordenar correr la numeración, trasladó el antiguo artículo 58 al 57 actual).
+(Así reformado por artículo 1° del Decreto Ejecutivo N° 29630 de 21 de junio de 2001).
