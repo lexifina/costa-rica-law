@@ -1,1 +1,1 @@
-Artículo 4º.- Queda autorizada la Dirección General de Correos para administrar y dar en arriendo, los apartados postales en todo el territorio nacional.
+Artículo 4º.- (Derogado por el artículo 21 de la ley N° 5870 del 11 de diciembre de 1975 "Crea la Dirección Nacional de Comunicaciones")
