@@ -1,0 +1,1 @@
+Art 2° En esta escuela se dará enseñanza gratis a dieciséis jóvenes de la Provincia de San José, a ocho de cada una de las de Cartago, Heredia, Alajuela y Guanacaste y cuatro de la Comarca de Puntarenas.
