@@ -15,3 +15,4 @@ Reforma Integral Reglamento del Registro del Estado Civil
 | --- | --- | --- |
 | 1 | 1963-10-08 | la propia norma |
 | 2 | 1967-08-30 | Decreto TSE 34 (1967-08-30) |
+| 3 | 1968-03-25 | Decreto TSE 1 (1968-03-25) |
