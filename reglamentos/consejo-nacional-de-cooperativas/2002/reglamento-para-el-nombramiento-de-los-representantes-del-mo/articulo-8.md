@@ -1,0 +1,1 @@
+Artículo 8º—Los candidatos que propongan las cooperativas, las Asambleas Regionales y la Comisión Permanente de Cooperativas de Autogestión, así como los representantes que directamente nombre el CONACOOP, deberán ser mayores de edad, ser copropietarios del banco al momento de su elección y de su acreditación ante la Comisión para la Integración de la Asamblea.

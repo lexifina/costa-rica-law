@@ -1,0 +1,1 @@
+Artículo 7º—Los delegados correspondientes a las Cooperativas de Autogestión serán designados por el Plenario del CONACOOP mediante el procedimiento especial definido en el artículo 23 del Reglamento del Banco Popular y de Desarrollo Comunal.
