@@ -1,7 +1,2 @@
-Artículo 60.- Los diccionarios, enciclopedias y demás obras
-colectivas, a que se refiere el artículo 6º, serán protegidas por cincuenta
-años a partir de su publicación; pero, cuando se trate de obras compuestas
-de varios volúmenes -que no se hayan publicado en el mismo año- así como el
-caso de folletines o entregas periódicas, el plazo comenzará a contarse,
-respecto de cada volumen, folletín o entrega, desde la respectiva
-publicación.
+Artículo 60°.-Los diccionarios, las enciclopedias y demás obras colectivas referidas en el artículo 6 de esta ley, serán protegidos por setenta años a partir de su publicación. No obstante, cuando se trate de obras compuestas por varios volúmenes, que no se hayan publicado en el mismo año, así como de los folletines o las entregas periódicas, el plazo comenzará a contarse respecto de cada volumen, folletín o entrega, desde la publicación respectiva.
+(Así reformado por el artículo 1° inciso e) de la ley N° 7979 del 6 de enero del 2000)

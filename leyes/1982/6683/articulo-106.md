@@ -1,15 +1,3 @@
-Artículo 106.- Toda persona física o jurídica, pública o privada,
-responsable de la producción o reproducción de una obra, por medios
-impresos, magnéticos, electrónicos, electromagnéticos, o cualquier otro,
-deberá inscribirla en el Registro Nacional de Derechos de Autor y Derechos
-Conexos, y depositar, dentro de los ocho días siguientes a su publicación,
-un ejemplar de la reproducción en cada una de las siguientes instituciones:
-Biblioteca de la Universidad de Costa Rica, Biblioteca de la Universidad
-Nacional, Biblioteca de la Asamblea Legislativa, Biblioteca Nacional,
-Biblioteca del Ministerio de Justicia y Gracia, Dirección General del
-Archivo Nacional y Registro precitado. El ejemplar para el Registro deberá
-acompañarse de los documentos de recibo de las otras instituciones.
-El incumplimiento de cualquiera de estas obligaciones se sancionará
-con el secuestro de toda la producción de las obras, hasta tanto no se
-cumpla con ellas, o con una multa equivalente a su valor total. (Así
-reformado por el artículo 2 de la ley No.7202 del 24 de octubre de 1990)
+ARTÍCULO 106.-Toda persona física o jurídica, pública o privada responsable de reproducir una obra por medios impresos, magnéticos, electrónicos, electromagnéticos o cualquier otro, deberá depositar, durante los ocho días siguientes a la publicación, un ejemplar de tal reproducción en las: bibliotecas de la Universidad Estatal a Distancia, Universidad de Costa Rica, Universidad Nacional, Asamblea Legislativa, Biblioteca Nacional, del Ministerio de Justicia y Gracia, la Dirección General del Archivo Nacional, el Instituto Tecnológico de Costa Rica y el Registro Nacional de Derechos de Autor y Derechos Conexos. El ejemplar para el registro precitado deberá acompañarse con los documentos de recibo de las otras instituciones.
+El incumplimiento con cualquiera de estas organizaciones se sancionará con multa equivalente al valor total de la reproducción.
+(Así reformado por el artículo 1º de la ley Nº 7397 de 3 de mayo de 1994, y posteriormente reformado por Ley N° 7979 del 6 de enero del 2000)

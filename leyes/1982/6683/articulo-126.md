@@ -1,2 +1,1 @@
-Artículo 126.-La acción penal, que origina las infracciones a esta
-ley, es pública y puede ser indicada por denuncia o acusación.
+Artículo 126°-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)

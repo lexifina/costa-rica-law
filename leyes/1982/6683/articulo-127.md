@@ -1,4 +1,1 @@
-Artículo 127.- Transcurridos tres años, a partir del hecho que dé
-motivo al ejercicio de las acciones penales que consagra esta ley, no podrá
-entablarse procedimiento penal alguno contra los infractores, por haber
-prescrito la acción.
+Artículo 127° -(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)

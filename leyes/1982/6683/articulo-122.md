@@ -1,3 +1,1 @@
-Artículo 122.- Las sanciones establecidas en los artículos anteriores,
-serán aumentadas en un tercio, si las personas a quien se les aplica son
-reincidentes específicos.
+Artículo 122.°-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)

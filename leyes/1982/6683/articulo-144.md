@@ -1,3 +1,1 @@
-Artículo 144.- Todas las acciones civiles, previstas en esta ley, en
-favor de los titulares de los derechos de autor, podrán ser ejercidas durante
-los tres años posteriores al conocimiento de la infracción.
+Artículo 144°.-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)

@@ -1,5 +1,2 @@
-Artículo 40.- Cuando uno o varios autores se comprometen a componer
-una obra, según plan que les suministre el editor, no pueden pretender más
-que los honorarios convenidos. El comitente será el titular de los
-derechos patrimoniales sobre la obra, pero los comisarios conservarán sus
-derechos morales sobre la misma.
+Artículo 40°.- Cuando uno o varios autores se comprometen a componer una obra, según un plan suministrado por el editor, únicamente pueden pretender los honorarios convenidos. El comitente será el titular de los derechos patrimoniales sobre la obra, pero los comisarios conservarán sobre ella sus derechos morales; asimismo, cuando el autor sea un asalariado el titular de los derechos patrimoniales será el empleador.
+(Así reformado por el artículo 1º de la ley Nº 7397 de 3 de mayo de 1994)

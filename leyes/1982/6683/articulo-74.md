@@ -1,4 +1,2 @@
-Artículo 74.- También es libre la reproducción, en un solo ejemplar
-manuscrito o mecanografiado, efectuada personal y exclusivamente por el
-interesado, de una obra didáctica o científica, para su propio uso y sin
-ningún ánimo de lucro, directo o indirecto.
+Artículo 74°.- También es libre la reproducción de una obra didáctica o científica, efectuada personal y exclusivamente por el interesado para su propio uso y sin ánimo de lucro directo o indirecto. Esa reproducción deberá realizarse en un solo ejemplar, mecanografiado o manuscrito. Esta disposición no se aplicará a los programas de computación.
+(Así reformado por el artículo 1º de la ley Nº 7397 de 3 de mayo de 1994)

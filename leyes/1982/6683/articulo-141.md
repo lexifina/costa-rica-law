@@ -1,3 +1,1 @@
-Artículo 141.- En caso de que las partes se decidan por la vía
-arbitral, estarán sometidas a las disposiciones del título V del Código de
-Procedimientos Civiles.
+Artículo 141°.-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)

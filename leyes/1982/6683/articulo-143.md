@@ -1,3 +1,1 @@
-Artículo 143.- La sentencia definitiva, dictada en esta clase de
-juicios, puede revisarse por vía ordinaria; pero mientras no sea revisada
-tiene carácter de ejecución.
+Artículo 143°.-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)

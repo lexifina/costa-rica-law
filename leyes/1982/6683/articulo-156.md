@@ -1,5 +1,2 @@
-Artículo 156.- Todos los actos atribuidos al autor, al artista, al
-productor de fonogramas o al organismo de radiodifusión podrán ser
-practicados por sus mandatarios con poderes específicos, sus causahabientes
-y derechohabientes, o la sociedad recaudadora que lo represente
-legítimamente.
+Artículo 156°.-Todos los actos atribuidos al autor, al artista, al productor de fonogramas o al organismo de radiodifusión podrán ser practicados por sus mandatarios con poderes específicos, sus causahabientes y derechohabientes, o la sociedad recaudadora que lo represente legítimamente.
+(Nota de Sinalevi: Mediante el artículo único de la ley N°.7686 de 6 de agosto de 1997, se interpretó este numeral en el sentido de que: “…los términos "sociedad" y "sociedades" no se refieren exclusivamente a las sociedades mercantiles contempladas en la legislación costarricense y comprende las asociaciones inscritas conforme a la Ley de Asociaciones, No. 218, de 8 de agosto de 1939”)

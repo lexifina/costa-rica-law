@@ -1,4 +1,2 @@
-Artículo 8º.- El que adapta, traduce, modifica, refunde, compendia,
-parodia o extracta -de cualquier manera- la sustancia de una obra de
-dominio público, es titular exclusivo de su propio trabajo; pero no podrá
-oponerse a que otros hagan lo mismo con aquella obra.
+Artículo 8º.- Quien adapte, traduzca, modifique, refunda, compendie, parodie o extracte, de cualquier manera, la sustancia de una obra de dominio público, es el titular exclusivo de su propio trabajo; pero no podrá oponerse a que otros hagan lo mismo con esa obra de dominio público. Si esos actos se realizan con obras o producciones que estén en el dominio privado, será necesaria la autorización del titular del derecho. Las bases de datos están protegidas como compilaciones.
+(Así reformado por el artículo 1º de la ley Nº 7397 de 3 de mayo de 1994)

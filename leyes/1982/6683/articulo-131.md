@@ -1,6 +1,1 @@
-Artículo 131.- Las personas indicadas en el artículo anterior pueden
-pedir, a la autoridad judicial correspondiente, que vede, prohíba, o suspenda
-la representación, ejecución, audición o exhibición públicas de una obra
-teatral, musical, cinematográfica, fonogramas o cualquier otra semejante, que
-se haga sin la debida autorización del titular de los derechos de autor o
-derechos conexos.
+Artículo 131°-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)

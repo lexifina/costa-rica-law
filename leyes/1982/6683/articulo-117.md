@@ -2,11 +2,5 @@ TITULO V
 Sanciones y procedimientos penales y civiles
 CAPITULO I
 Sanciones y procedimientos penales
-Artículo 117.- Incurre en prisión de uno a tres meses:
-a) El responsable por la representación, ejecución o audición públicas, o
-la transmisión de obra literaria o artística, protegida, sin autorización
-de su autor.
-b) El responsable por la transmisión o la ejecución pública de fonogramas
-protegidos, sin la autorización de su productor.
-c) El que viole cualquier determinación de la presente ley, cuando el
-delito no sea penado específicamente con otra pena.
+Artículo 117°.-(Derogado por el artículo 73 de la Ley de Procedimientos de Observancia de los Derechos de Propiedad Intelectual, N° 8039 del 12 de octubre del 2000)
+(Nota:el inciso c había sido ANULADO por Resolución de la Sala Constitucional Nº 3004-92 de las 14:30 horas del 9 de octubre de 1992)
