@@ -1,0 +1,1 @@
+Articulo 22.— La Asamblea Nacional de Trabajadores, la Junta Directiva Nacional, la Gerencia General (en conjunto con las Subgerencias) y la Auditoria Interna contarán con un archivo de gestión centralizado. Podrán crearse otros archivos de gestión centralizados en concordancia con la estructura orgánica del Banco, previo criterio del Archivo Central.

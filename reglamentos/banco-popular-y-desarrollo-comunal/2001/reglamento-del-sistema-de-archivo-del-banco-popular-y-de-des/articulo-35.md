@@ -1,0 +1,1 @@
+Artículo 35. — El incumplimiento de cualquiera de los principios y normas especificas que los regulan será sancionado de conformidad con lo que al respecto dictan los reglamentos internos, la Lev No 7202 y su Reglamento, así como cualquier otra normativa vigente en relación con esta materia.

@@ -1,0 +1,2 @@
+Artículo 17.—Las originales de las micro películas, discos ópticos, magnéticos o cualquier otro soporte que se realicen en el Archivo Central.
+En los archivos de gestión de las diferentes unidades administrativas, en los archivos de gestión centralizados y en los archivos regionales serán custodiados por el Archivo Central. Cuando las circunstancias lo permitan, deberán custodiarse copias de los misinos en otro edificio para cualquier eventualidad. Estos originales no serán usados en consultas de rutina.

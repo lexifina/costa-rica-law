@@ -1,0 +1,6 @@
+Artículo 11. —En el Archivo Central se reunirán los documentos custodiados por los archivos de gestión de las diferentes unidades administrativas, los archivos de gestión centralizados y los archivos regionales, los cuales deberán remitirlos dentro del periodo que fija la Ley del Sistema y su Reglamento, o bien las tablas de plazas de conservación de documentos.
+La documentación por remitir al Archivo Central deberá estar preparada en los primeros 30 días naturales de cada año, según las siguientes especificaciones:
+a) El Archivo Central elaborará un cronograma de remisiones documentales para cada oficina, de modo que pueda planificarse este proceso y el personal del Archivo Central tenga tiempo de
+cotejar las remisiones.
+b) La remisión de los documentos de los archivos de gestión de las diferentes unidades administrativas, de los archivos de gestión centralizados y de los archivos regionales al Archivo Centra!, deberá hacerse de acuerdo con el procedimiento que establezca el Archivo Central.
+e) Si los documentos están microfílmados. digitalizados o en cualquier otro soporte que se considere adecuado, los mismos ingresarán al Archivo Central con las respectivas micropelículas o microfichas, discos ópticos, o cualquier otro soporte que se utilice.

@@ -1,0 +1,1 @@
+Articulo 10.—El responsable del Archivo Central será un profesional en Archivística a quien le corresponderá administrar las funciones archivísticas de su unidad y de lodos los archivos del sistema, así como servir de enlace con el Sistema Nacional de Archivos, de conformidad con lo que establece la Ley del Sistema Nacional de Archivos y su Reglamento.
