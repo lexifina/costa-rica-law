@@ -1,0 +1,1 @@
+Artículo 14.—En caso de ausencia temporal del presidente, será reemplazado por el Vicepresidente, quien tendrá las mismas facultades de aquel. Cuando faltaren ambos, éstos pueden ser sustituidos por los Vocales, en el orden de su nombramiento. Igualmente el Secretario puede ser sustituido por alguno de los Vocales que designará el Presidente.

@@ -1,0 +1,3 @@
+Artículo 20.—Los aportes del 1% a que se refiere el artículo Nº 26 de la Ley que se generen a partir de la vigencia del presente reglamento, serán asignados de la siguiente forma:
+a) El 25% será destinado a fortalecer el fondo de ahorro para pensiones individualizado por vendedor, cuyos rendimientos se capitalizarán a cada una de las cuentas individuales de manera proporcional al aporte hecho por ellos a ese fondo.
+b) El 75% restante, se destinará a engrosar el capital con cuyos rendimientos FOMUVEL opera los demás programas y sufraga los gastos propios de su operación. Este capital debe ser individualizado por vendedor.

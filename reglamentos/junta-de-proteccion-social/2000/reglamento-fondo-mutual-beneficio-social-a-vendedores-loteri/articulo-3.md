@@ -1,0 +1,1 @@
+Artículo 3º—FOMUVEL tiene la finalidad de beneficiar a todos los vendedores de loterías con programas y actividades de ayuda mutua para la promoción del bienestar socioeconómico y desarrollo integral de éstos y su núcleo familiar.
