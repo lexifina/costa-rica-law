@@ -1,0 +1,1 @@
+Artículo 2°—Designar en las Administraciones Tributarias de Alajuela, Cartago, Heredia, Guanacaste, Limón, Puntarenas, Zona Norte y Zona Sur un grupo de funcionarios para que se especialicen en ejercer un efectivo control de los contribuyentes denominados Grandes Empresas Territoriales; a partir de las funciones de gestión y recaudación tributaria.
