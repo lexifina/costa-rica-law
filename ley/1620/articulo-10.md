@@ -1,0 +1,2 @@
+Artículo 10°.-Tienen personería para demandar alimentos en favor de menores de edad, o de mayores incapacitados, tanto sus representantes legales como los simples guardadores. En el caso deberá probarse junto con la demanda, esa circunstancia.
+En el caso de menores tendrán también personería suficiente para ejercitar la acción, el Patronato Nacional de la Infancia, las Juntas Provinciales de Protección a la Infancia y los Jefes de los establecimientos a cuyo cargo están los referidos menores, quienes podrán hacer toda gestión en favor de sus representados.

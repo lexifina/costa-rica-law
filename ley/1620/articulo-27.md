@@ -1,0 +1,1 @@
+Articulo 27°.-Sólo en casos muy calificados se admitirá prueba para mejor proveer por la autoridad superior, que se recibirá en su despacho dentro de tercero día. Una vez recibida, el fallo se dictará dentro de los cinco días siguientes.

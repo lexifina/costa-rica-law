@@ -1,0 +1,1 @@
+Artículo 20°-En casos muy calificados de ocultación del deudor de alimentos, a fin de evitar el apremio, podrán ordenar el allanamiento, que se llevará a cabo con las formalidades que contiene el Código de Procedimientos Penales y previa resolución que lo acordare.
