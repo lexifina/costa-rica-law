@@ -1,1 +1,0 @@
-Artículo 5.-La entrega de la cédula de residencia se hará en forma personal, por medio de la correspondiente oficina regional de Migración y Extranjería. En ese acto el interesado deberá firmar un recibo; si no supiere firmar, a su ruego firmarán dos testigos.
