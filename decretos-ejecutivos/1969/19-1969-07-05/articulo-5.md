@@ -1,0 +1,1 @@
+Artículo 5°—El 10% restante que constituye una donación de la Organización de las Naciones Unidas para realizar mejoras en el Correo, se girará a la cuenta denominada “Fondo de Terceros” ubicada en el Banco Central a nombre del Ministerio de Gobernación para ser utilizada conforme la voluntad del donante.

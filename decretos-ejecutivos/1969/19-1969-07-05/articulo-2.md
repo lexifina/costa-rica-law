@@ -1,0 +1,1 @@
+Artículo 2°—Para el cumplimiento de esta actividad, la Dirección General de Correos abrirá una cuenta en el Banco Nacional, en donde deberá diariamente depositar el producto de la venta de esos sellos postales.
