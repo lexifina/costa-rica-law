@@ -1,6 +1,6 @@
 Artículo 2º.- Son atribuciones de la Caja Costarricense de Seguro Social:
-a)- Fomentar por los medios a su alcance, el estudio, planificación, construcción y saneamiento de viviendas populares
-destinadas a ser vendidas a personas de escasos recursos, en todas las localidades de la República:
+a)- Fomentar por los medios a su alcance, el estudio, planificación, construcción y saneamiento de viviendas populares, individuales o colectivas, para ser destinadas a la venta o al arrendamiento a personas de escasos recursos, en todas las localidades de la República.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 1496 del 9 de agosto de 1952)
 b)- Atender a la construcción de tales viviendas, por medio de su Departamento de la Habitación, o mediante contratos de obras, previa licitación pública; o a la refacción y saneamiento de las mismas, por arreglos con los propietarios interesados;
 c)- Vigilar la percepción de las rentas y dirigir y fiscalizar la inversión de los recursos dedicados a los propósitos de esta ley;
 d)- Adquirir los terrenos necesarios para el cumplimiento de tales fines, prefiriendo los nacionales o municipales que el Estado y los Ayuntamientos de la República cedan gratuitamente en propiedad a la Caja. Si tales terrenos donados no reúnen las condiciones indispensables, se autoriza a la Caja para disponer de ellos, vendiéndolos o permutándolos por otros adecuados, previo avalúo pericial. El Poder Ejecutivo, las Municipalidades y las Juntas de Educación de la República, quedan autorizados para donar a la Caja Costarricense de Seguro Social, los terrenos que a bien tengan, para los fines de esta ley;
