@@ -1,0 +1,1 @@
+Artículo 7°—Estos Bonos, así como sus cupones de intereses, estarán exentos de todo impuesto presente o futuro y serán recibidos a la par por cualquiera de los Departamentos del Banco, en cancelación de obligaciones a su favor.

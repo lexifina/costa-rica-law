@@ -1,0 +1,1 @@
+Artículo 11.—La calificación definitiva de "Crédito Congelado", quedará al cuidado del Banco Nacional y para el caso, sus peritos y demás funcionarios que deban intervenir, harán un estudio y rendirán un informe de cada operación. En el respectivo reglamento de esta ley, se le dará especial atención a este aspecto, para que quede lo más claro y justo posible.
