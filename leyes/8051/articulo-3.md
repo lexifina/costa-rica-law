@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Autorízase a la Contraloría General de la República para que tramite, durante el actual ejercicio económico, los presupuestos extraordinarios que incorporen los recursos autorizados en la presente Ley y que sean gestionados por ambas entidades. Rige a partir de su publicación.
