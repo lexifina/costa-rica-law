@@ -1,0 +1,1 @@
+Artículo 2°-La exoneración sólo podrá concederse mientras no exista producción centroamericana de papel para periódicos, y estará en un todo sujeto a lo que dispone el artículo IX del Tratado General de Integración Económica Centroamericana.
