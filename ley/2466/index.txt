@@ -68,3 +68,4 @@ articulo-7-transitorio.md
 articulo-8-transitorio.md
 articulo-9-transitorio.md
 articulo-10-transitorio.md
+articulo-11-transitorio.md
