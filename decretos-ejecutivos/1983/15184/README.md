@@ -14,3 +14,4 @@ Reforma Comisión Asesora Nacional de los Incentivos Fiscales al Desarrollo Indu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-03-06 | la propia norma |
+| 2 | 1984-03-06 | Decreto Ejecutivo 15378 (1984-03-02) |
