@@ -1,0 +1,1 @@
+Artículo 24.-Uso de vehículos fuera del territorio nacional: Los vehículos de CONAPE saldrán del territorio nacional solo en ocasiones de probada necesidad. Para tal fin, el conductor deberá tener la autorización expresa del Consejo Directivo.
