@@ -1,1 +1,2 @@
-Artículo 14.-Los beneficios que esta ley otorga no dan derecho a ejercitar acción alguna contra el Estado, ni se extiende a los servidores de los departamentos adscritos al Ferrocarril por disposiciones especiales.
+Artículo 14.-Al personal del Instituto Autónomo del Ferrocarril Eléctrico al Pacífico, y para los efectos de su régimen de pensiones y jubilaciones, no le será aplicable el impedimento a que se refiere el artículo 65 de la Ley Orgánica de la Ley Constitutiva de la Caja Costarricense de Seguro Social, si a la conclusión de sus servicios no están amparados por el régimen de Invalidez, Vejez y Muerte de esa última Institución.
+(Así reformado por el artículo 1° de la ley N° 4473 del 3 de dciembre de 1969)

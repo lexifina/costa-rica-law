@@ -1,1 +1,2 @@
-Artículo 11.-Para el cómputo del tiempo servido, no es preciso que los servicios hayan sido prestados consecutivamente: basta que lo hayan sido a la misma Empresa, aunque en diferentes cargos, destinos o trabajos.
+Artículo 11.-Para el cómputo del tiempo servido, no es preciso que los servicios hayan sido prestados consecutivamente; pues bastará que lo hayan sido a la misma Institución, aunque en diferentes cargos, destinos o trabajos. Cuando la modalidad del trabajo no exija labor permanente, para el cómputo del tiempo servido se tomarán en cuenta también los períodos en que no se haya devengado salario.
+(Así reformado por el artículo 1° de la ley N° 4473 del 3 de diciembre de 1969)
