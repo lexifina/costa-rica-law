@@ -1,0 +1,1 @@
+Artículo 4º.- Se autoriza al Poder Ejecutivo para efectuar traslado entre los gastos aprobados en el artículo 3º, anterior, así como para crear partidas y subpartidas que se requieran para la ejecución del Convenio de Préstamo, todo de acuerdo a la codificación vigente.
