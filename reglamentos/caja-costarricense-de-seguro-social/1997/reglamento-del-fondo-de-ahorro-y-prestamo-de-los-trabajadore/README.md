@@ -14,3 +14,4 @@ Reglamento del Fondo de Ahorro y Préstamo de los Trabajadores de la Caja Costar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-06-18 | la propia norma |
+| 2 | 1998-02-17 | Reglamento 7200 (1998-02-17) |
