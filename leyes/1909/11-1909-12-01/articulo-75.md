@@ -1,0 +1,1 @@
+Artículo 75.-En caso de que el Gobierno ordene la suspensión del servicio en interés de la defensa del país ó de la paz pública, podrá también disponer que todo el material rodante ó de otra especie, sean alejados. La Secretaría de Guerra señalará en este caso las localidades á las cuales será llevado ese material.

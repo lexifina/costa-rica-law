@@ -1,0 +1,2 @@
+Artículo 11.-En ningún caso podrá la Empresa traspasar, hipotecar, arrendar, ni en manera alguna enajenar la concesión ó alguno de los derechos en ella contenidos, el ferrocarril ó telégrafo ó teléfono ó alguno de los bienes ó propiedades anexos á éstos ó á aquél, á ningún Gobierno extranjero, siendo nula toda negociación que se hiciere contra esta prevención.
+Tampoco podrá la Empresa, en ningún caso, admitir como socio á un Gobierno ó Estado extranjero, siendo igualmente nula cualquier estipulación que se hiciere en este sentido.

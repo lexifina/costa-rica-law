@@ -1,0 +1,3 @@
+Artículo 38.-Los concesionarios de ferrocarriles están en la obligación de mantener la vía y sus dependencias en perfecto buen estado de servicio, y reemplazar oportunamente el material fijo ó rodante que vaya deteriorándose.
+Todo individuo puede denunciar al Gobierno ó á las autoridades locales cualquier defecto que note en la vía férrea ó cualquier peligro proveniente del mal estado del material, sin incurrir por ello en responsabilidad alguna.
+Si en la vía existiese algún inminente peligro para el público, es de estricta obligación para los particulares que lo noten, denunciar á las autoridades ó á los oficiales de la Empresa, á la mayor brevedad, bajo las responsabilidades establecidas por los artículos 16 y 60 del Código Penal.

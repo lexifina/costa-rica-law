@@ -1,0 +1,1 @@
+Artículo 42. - Los particulares no deben caminar por la vía férrea ó llevar animales á pastar á los lados de los rieles, bajo las penas establecidas por la ley ó reglamento y sin perjuicio de la responsabilidad civil que proceda.

@@ -1,0 +1,1 @@
+Artículo 7°-Los ferrocarriles son obras de utilidad pública y en consecuencia las Empresas tendrán el derecho de expropiar, con arreglo á la ley común, los terrenos y materiales de construcción de propiedad particular, necesarios para el establecimiento, reparación do las vías y sus dependencias, estaciones y demás accesorios.

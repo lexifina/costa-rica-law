@@ -1,0 +1,1 @@
+Artículo 72. - En los casos en que no haya lugar á la declaración de caducidad, pero que sea procedente la rescisión por haber faltado la Empresa al cumplimiento de sus obligaciones, la rescición produce la pérdida del depósito. y de los efectos aglomerados para la construcción y explotación del ferrocarril.

@@ -1,0 +1,2 @@
+Artículo 10. - En caso de que el ferrocarril sea puesto en venta judicial, no se admitirá ningún postor que no presente constancia de haber sido aprobado como tal por el Poder Ejecutivo; y que no garantice su postura con depósito previo, en el lugar que designe el juzgado, sea en efectivo ó en valores de comercio bien calificados, á razón de mil colones por cada kilómetro construído.
+El rematario perderá su depósito á favor del Fisco, si no cumpliere con su postura.

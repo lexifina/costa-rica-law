@@ -1,0 +1,3 @@
+Artículo 40.-El Gobierno cuidará de que las vías férreas no obstruyan el libre tránsito de los caminos públicos ó vecinales.
+Cuando para mayor ventaja de la vía férrea, hubiere de cambiarse una parte de un camino, ese cambio no podrá efectuarse sin previo acuerdo entre el Empresario y el Gobierno ó la Municipalidad ó los vecinos, según el caso, pero es trabajo será siempre á costa del Empresano.
+Temporalmente puede la Empresa de un ferrocarril cerrar una parte de la vía pública, si la necesidad de la construcción así lo exige, pero en tal caso establecer un paso á costa suya y á la menor distancia posible.

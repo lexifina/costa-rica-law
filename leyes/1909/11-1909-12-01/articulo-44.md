@@ -1,0 +1,1 @@
+Artículo 44.-Los conductores de trenes tienen el carácter y las prerrogativas de Agentes de Policía para el efecto de aprehender á los autores de faltas, delitos ó crímenes cometidos durante el viaje; pero deberán entregarlos para su juzgamiento á la autoridad de la próxima estación.

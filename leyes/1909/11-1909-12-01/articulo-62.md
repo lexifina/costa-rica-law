@@ -1,0 +1,1 @@
+Artículo 62. - En el punto en donde una línea férrea cruce á nivel un camino, deberá el concesionario colocar á su costa un guardián que cierre el camino con un portón, una vara ó cualquier otro obstáculo, cinco minutos antes del pase de cada tren.

@@ -1,0 +1,1 @@
+Artículo 39.- Ninguna línea de ferrocarril ó sección de ella podrá entregarse al servicio público sin que preceda la autorización del Gobierno, dada en virtud de las constancias ó informes técnicos que tenga á bien considerar para aquel efecto.

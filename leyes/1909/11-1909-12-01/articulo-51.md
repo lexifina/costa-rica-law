@@ -1,0 +1,2 @@
+Artículo 51.-Las Empresas ferrocarrileras tienen la obligación de hacer que los trenes salgan de su punto de partida á la hora precisa fijada en sus reglamentos, y de que la taquilla de expendio de billetes se abra al despacho público cuando menos media hora antes de la partida del tren.
+Por cada infracción á las disposiciones de este artículo, que no proceda de caso fortuito ó de fuerza mayor, pagará por vía de multa cien colones aparte de las responsabilidades de otro género en que por su tardanza pudiere incurrir.

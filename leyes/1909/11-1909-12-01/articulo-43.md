@@ -1,0 +1,1 @@
+Artículo 43.- Por ningún motivo y bajo el apercibimiento de la ley civil y penal, permitirá la Empresa de un ferrocarril que se trasporte en trenes de pasajeros ó mixtos, sustancias explosivas ó fácilmente inflamables. Tales sustancias deberán ir en el centro de los trenes de carga.

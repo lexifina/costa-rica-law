@@ -1,0 +1,1 @@
+Artículo 18.-Constituido el depósito se firmará el proyecto por la Secretaría de Fomento y el concesionario y se pasará al Congreso para los efectos del artículo 1° de la presente ley. Todos los términos referentes á la concesión se contarán desde la aprobación legislativa.

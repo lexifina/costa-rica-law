@@ -1,0 +1,1 @@
+Artículo 25.-La Empresa mantendrá en la Capital de la República, uno ó más apoderados amplia y suficientemente autorizados é instruidos para entenderse con el Gobierno, autoridades y particulares en todos los negocios que le puedan interesar.

@@ -1,0 +1,2 @@
+Artículo 68.- La Secretaría de Fomento, en vista del aviso de la Empresa, practicará las diligencias necesarias para el esclarecirniento de los hechos, y pedirá á los inspectores del Gobierno, así como á las autoridades que sobre el particular pudieran instruirla, los informes que estime convenientes y por último resolverá si el caso está comprendido en el artículo 66.
+Decidiendo afirmativamente, fijará el tiempo extraordinario que deba abonarse á la Empresa.
