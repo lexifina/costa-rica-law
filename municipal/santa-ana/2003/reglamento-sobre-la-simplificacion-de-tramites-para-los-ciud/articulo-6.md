@@ -1,0 +1,3 @@
+Artículo 6º—Para toda solicitud de condonación de recargos en los tributos municipales por errores atribuibles a la administración, el administrado sea este persona física o jurídica deberá llevar a cabo el siguiente trámite.
+1. Llenar el formulario "Solicitud de Condonación de Recargos en los Tributos Municipales por errores atribuibles a la administración".
+2. Si el interesado es persona física, copia de la cédula de identidad y si es una persona jurídica copia de cédula jurídica y original de la personería jurídica con no más de un mes de extendida, copia de la cédula del representante legal.

@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE SANTA ANA
+El Concejo Municipal de Santa Ana, en la sesión ordinaria Nº 45, celebrada el 11 de marzo del 2003, por unanimidad aprobó el Reglamento sobre la Simplificación de Trámites para los Ciudadanos del Cantón de Santa Ana, según Ley N° 8220.
+Que en la actualidad la administración central está compuesta por una cantidad de legislación, misma que conlleva a una serie de requerimientos y trámites que hacen que el administrado o usuario deba de cumplir en diferentes dependencias, con la obligación de aportar documentos y demás menesteres que las oficinas dentro del ámbito de sus facultades, deben de tener o al menos contar con más fácil acceso a otras dependencias del estado, lo que acarrearía una simplificación de trámites y procedimientos que harían tanto para la administración, sea esta del gobierno central como de las diferentes corporaciones municipales más ágil su tramitación.
+Que de acuerdo a lo avanzado de la tecnología, así como que, las dependencias tanto del gobierno central como municipales cuentan con los instrumentos generalmente necesarios para realizar su trabajo y así economizarle tanto a la administración como al administrado el tiempo y los recursos y tomando en cuenta que nos dirigimos a una época de globalización y economía administrativa.
+Que tomando en cuenta todo lo anterior el gobierno de la república de Costa Rica decidió aprobar la Ley Nº 8220, misma que tiene como objeto la agilización de trámites en las diferentes dependencias del estado, y que la Corporación Municipal del Cantón de Santa Ana fiel a la aplicación de la supraindicada ley y a su transitorio primero. ACUERDA:
+LA MUNICIPALIDAD DEL CANTÓN DE SANTA ANA, ACUERDA:
+REGLAMENTO SOBRE LA SIMPLIFICACIÓN DE TRÁMITES PARA LOS CIUDADANOS DEL CANTÓN DE SANTA ANA, SEGÚN LEY N° 8220
+CAPÍTULO PRIMERO
+Del pago de los tributos municipales
+Artículo 1º—Para realizar cualquier trámite en los diferentes departamentos de la corporación municipal del cantón de Santa Ana, deberá el usuario estar al día en el pago de todos los tributos municipales sin excepción.

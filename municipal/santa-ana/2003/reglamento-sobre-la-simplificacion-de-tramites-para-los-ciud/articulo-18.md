@@ -1,0 +1,16 @@
+Artículo 18.—Según sea el trámite para renovación o inscripción los proveedores deberán de llenar los datos que se solicitan en el formulario respectivo con la siguiente información:
+Nombre exacto o razón social:_________________________________
+Ubicación geográfica:_______________________________________
+Teléfono:________________ Fax:___________ Apdo._____________
+Domicilio legal:_____________________Dirección postal:__________
+Dirección electrónica:________________________________________
+Nombre de persona(s) autorizada(s) por la empresa para establecer relación comercial:
+a) ____________________________________________________
+b) ____________________________________________________
+c) ____________________________________________________
+Actividad (primaria): ________________________________________
+Otros servicios ofrecidos: _____________________________________
+_________________________________________________________
+Datos del representante legal:
+Nombre completo:________________________ Cédula: ____________
+Dirección:_________________________________________________
