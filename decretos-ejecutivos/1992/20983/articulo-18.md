@@ -1,0 +1,1 @@
+Artículo 18.- Cualquier diferencia o conflicto que surja en esta materia, durante su tramitación o con motivo de su ejercicio o extinción, será resuelta de conformidad con lo estipulado por el artículo 90 de la ley Nº 6797.

@@ -1,0 +1,2 @@
+Artículo 9.- Las actividades de explotación no deberán iniciarse hasta que la entidad concesionaria presente el estudio de impacto ambiental correspondiente y el mismo sea aprobado por la Comisión Gubernamental de Control y Evaluación de los Estudio de Impacto Ambiental.
+Dicho estudio deberá presentarse dentro de un plazo máximo de dos meses contados a partir de la notificación de la resolución de otorgamiento de la concesión, y será elaborado de conformidad con las normas que al efecto dicte la Dirección de Geología y Minas.

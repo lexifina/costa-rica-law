@@ -1,0 +1,1 @@
+Artículo 2.- De previo a extraer los recursos minerales existentes en el territorio nacional, las entidades públicas a las que se refiere el presente Reglamento, deberán solicitar la respectiva concesión ante la Dirección de Geología y Minas, por medio del procedimiento que aquí se establece.

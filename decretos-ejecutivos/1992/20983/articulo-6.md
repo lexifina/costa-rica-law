@@ -1,0 +1,1 @@
+Artículo 6.- Aprobada la solicitud y transcurrido el plazo para oposiciones sin que se hubieren presentado, o bien que habiéndose presentado hubieren sido desestimadas; la Dirección de Geología y Minas, dentro de un plazo de quince días elevará al Ministro de Recursos Naturales, Energía y Minas, su recomendación razonada sobre el particular.
