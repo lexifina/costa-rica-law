@@ -13,3 +13,4 @@ Deroga Anexo de Formulario Unico de Declaración Aduanera Importación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-12-20 | la propia norma |
+| 2 | 1996-06-14 | Decreto Ejecutivo 25270 (1996-06-14) |
