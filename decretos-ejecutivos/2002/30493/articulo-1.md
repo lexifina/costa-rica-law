@@ -25,7 +25,7 @@ Eficiencia y calidad. Los recursos públicos deben utilizarse de manera óptima,
 Organización programática. Cada entidad que integre el área social de gobierno deberá organizar su acción sustantiva en programas que respondan a su misión institucional, dando un aporte a la política social. Los programas se definirán en función de productos que permitan conocer su contribución operativa a la misión de la entidad. Esto será un pilar de la presupuestación por resultados.
 Asignación de recursos óptima. La asignación de recursos evitará la duplicidad y la dispersión de acciones, concentrando los recursos en lo relevante para la política social y la misión institucional. Para esto, los recursos se asignarán buscando el uso apropiado de los mismos, atendiendo a los principios de especialización, complementariedad, eficiencia y calidad, en el marco de las posibilidades económicas que permita la programación macroeconómica y fiscal. Por tanto,
 Decretan:
-Artículo 1º—Conformación del área social de gobierno. Conforman el área social de gobierno las siguientes entidades:
+Artículo 1º—Conformación del área social de gobierno: Conforman el área social de gobierno las siguientes entidades:
 • Ministerio de Salud
 • Ministerio de Educación Pública
 • Ministerio de Trabajo y Seguridad Social
@@ -33,8 +33,10 @@ Artículo 1º—Conformación del área social de gobierno. Conforman el área s
 • Ministerio de Cultura, Juventud y Deportes
 • Patronato Nacional de la Infancia
 • Instituto Mixto de Ayuda Social
-• Caja Costarricense de Seguro Social
+• Caja Costarricense del Seguro Social
 • Instituto Nacional de Aprendizaje
 • Instituto Nacional de la Mujer
 • Instituto de Desarrollo Agrario
 • Instituto Costarricense de Acueductos y Alcantarillados
+• Junta de Protección Social de San José.
+(Así reformado por el artículo 1 del Decreto Ejecutivo N° 30656 de 14 de agosto del 2002)
