@@ -12,3 +12,4 @@ Aprueba Convención Para Establecimiento del IICA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1944-05-23 | la propia norma |
+| 2 | 1944-05-23 | Ley 2527 |
