@@ -1,0 +1,1 @@
+Art 128.- Si alguna de las partes hubiere hecho o posición a la prueba en el Tribunal estimare que esta debe tener lugar, por un mismo auto declarará no haber lugar a la oposición y recibirá los autos a prueba, llevándose a efecto desde luego esta providencia.

@@ -1,0 +1,1 @@
+Art 86°.- No reuniéndose en la votación dos votos conformes de toda conformidad, que se requieren para hacer sentencia, conforme el art´1163 del Código de comercio, se declarará la discordia señalándose en el mismo acto día para la nueva a vista, ante los dos Vocales sustituidos que deben dirimirla.

@@ -1,0 +1,1 @@
+Art 93°.- La sentencia que contenga condenación de frutos, réditos o daños, fijará o bien la cantidad de la condenación, si resultare líquido o al menos las bases sobre que se haya de hacer la liquidación y cuando no haya méritos para lo uno ni para lo otro, se reservará para el juicio correspondiente la acción sobre los frutos, réditos o daños.

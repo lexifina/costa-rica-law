@@ -1,0 +1,1 @@
+Art 287°.- Hechas las diligencias que previene el artículo anterior si fueren necesarias, o sólo con las que hayan practicado en el término de la prueba, se tendrá el juicio por concluso, haciéndose así saber a las partes y citándolas para su determinación.

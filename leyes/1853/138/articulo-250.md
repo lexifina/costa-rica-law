@@ -1,0 +1,2 @@
+Art 250.- Los síndicos no harán gestión alguna bajo esta representación en la causa criminal que se siga al quebrado de cuarta o de quinta clase, ante la jurisdicción ordinaria, sino por acuerdo de la junta general de acreedores.
+El que de estos use en aquel juicio de las acciones que le competen con arreglo a las leyes criminales, lo hará a sus propias expensas, sin repetición en ningún caso contra la masa por las resueltas del juicio.

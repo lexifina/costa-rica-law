@@ -1,0 +1,1 @@
+Art 222°.- Las repeticiones de los acreedores o del quebrado contra los síndicos por los daños y perjuicios causados a la masa por fraude, mala versión o negligencia culpable, se deducirán y sustanciarán en ramo separado, dependiente de esta pieza de autos, siguiéndose en la sustentación los trámites legales del juicio ordinario.

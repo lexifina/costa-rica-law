@@ -1,0 +1,1 @@
+Art 288°.- La sentencia arbitral ha de ser conforme a derecho según lo alegado y probado en autos, y se dará y firmará por todos los árbitros en el lugar donde se haya seguido el juicio haciéndose saber a las partes antes de espirar el término del compromiso

@@ -1,0 +1,1 @@
+Art 112.- La cédula de citación será entregada por el alguacil del juzgado a la persona a quien vaya dirigida, y en efecto de hallarla la dejará en su domicilio a su muger, parientes criados o vecinos haciéndose relación ante el Juzgado de haberlo así practicado y del nombre y apellido de la persona que hubiere recibido la cédula.

@@ -1,0 +1,1 @@
+Art 279°.- Los árbitros no procederán a acto alduno de su encargo después de la revocación del compromiso o de la cesación de sus efectos por causa legal, bajo pena de nulidad de lo que actuaren y de responsabilidad a los perjuicios que ocacionen con sus procedimientos

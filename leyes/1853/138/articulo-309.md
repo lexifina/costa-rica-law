@@ -1,0 +1,1 @@
+Art 309.- Cuando la deuda consiste en efectos de comercio, se liquidará su equivalente en numerario por los precios del mercado de la plaza según certificación de los comerciantes acreditados, nombrados al efecto de oficio, quedando a salvo su derecho al deudor, para pedir la reducción si hubiere exceso, mediante su prueba en el término del encargado.

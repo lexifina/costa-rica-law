@@ -1,0 +1,2 @@
+Art 238.-Las demandas de los acreedores sobre que se le reconozcan los créditos que la junta hubiere desechado, se sustanciaron con los síndicos que estarán obligados a sostener lo acordado por aquella.
+En las que se instruyan por algún acreedor o por el quebrado contra el reconocimiento de algún crédito se entenderá la sustanciación con él en el crédito interesado impugnado en la demanda, y toda la responsabilidad del juicio será de cargo del demandante.

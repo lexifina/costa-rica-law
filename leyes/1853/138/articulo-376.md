@@ -1,0 +1,1 @@
+Art 376°.- Los efectos del embargo provisional, cesarán si en el término de treinta días no se trabase sobre ello la ejecución formal despachada con arreglo a derecho por el crédito de que procediere el embargo.

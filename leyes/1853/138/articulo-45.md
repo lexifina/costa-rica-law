@@ -1,0 +1,2 @@
+Art 45°.-No será permitido abultar y prolongar los escritos y alegatos con citas doctrinales de los autores que han escrito sobre jurisprudencia, ni de las leyes del Derecho romano o de países extrangeros, devolviéndome a las partes lo que presenten en contravención a esta ley, o desglozandose del proceso en cualquiera estado en que esta se advierta.
+Si estuviese suscrito de letrado, será este condenado a la restitución de los honorarios que haya devengado por la formación del escrito o alegato.

@@ -1,0 +1,2 @@
+Art 88°.- Resultando de la votación acuerdo que haga sentencia, se redactará en el acto con los fundamentos en se apoye, el tenor de lo prevenido en el art´1165 del Código de comercio, y se extenderá íntegramente en el libro de sentencias, firmándose por todos los Jueces, de donde se extenderá el testimonio literal para que obren en el proceso.
+Las Sentencias originales se extenderán originales en los autos.

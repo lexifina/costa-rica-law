@@ -1,0 +1,1 @@
+Art 25°.- Si la parte citada no concurriere a la comparecencia, en el día lugar señalados en la cédula de citación se pondrá en el libro de actas nota de no haber comparecido, que firmaran el Juez, Secretario y actor, al cual dará certificación donde se inserte a la letra la citación y dicha nota. Con este documento podrá ejercer sus acciones contra el citado, cuando lo acomode.

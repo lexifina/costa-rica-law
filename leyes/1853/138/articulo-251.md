@@ -1,0 +1,1 @@
+Art 251.- Las instancias de los quebrados para su rehablitación se instruirá concluso el juicio de calificación, en la misma pieza en que este se halla ventilado, procediéndose en ellas según está prescrito en el título 11 lib.4° del Código de comercio.

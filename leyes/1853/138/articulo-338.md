@@ -1,0 +1,1 @@
+Art 338°.- En el caso de que aunque aparezca legitima la excepción del ejecutado, no se hubiere probado ésta suficientemente en el término del encargado, se sentenciará también la causa de remate, sin darse lugar a nuevas pruebas en el procedimiento ejecutivo, quedando salvo el derecho del ejecutado para que use de él en el juicio ordinario.

@@ -1,0 +1,1 @@
+Art 406°.- Si el apelado presentare documentos con su contestación, se dará conocimiento al apelante. En su defecto se tendrá el pleito por concluso con aquella, mandándose traer para sentencia, citadas las partes.

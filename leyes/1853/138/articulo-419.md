@@ -1,0 +1,1 @@
+Art 419°.- Tiene lugar el recurso de nulidad contra las sentencias dadas con violación de la forma y solemnidad que prescriben las leyes o en virtud de un procedimiento en que se haya incurrido en algún defecto de los que por espresa disposicion de derecho anularen las actuaciones.

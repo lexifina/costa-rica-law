@@ -1,0 +1,1 @@
+Art 58°.- Los jueces de los Tribunales de comercio son siempre responsables de las providencias que den contra Derecho y Justicia, por conclusión, cohecho, parcialidad o error voluntario. Este se presume legalmente en todo fallo contra ley en que no haya exigido dictamen al letrado consultor sobre la cuestión de Derecho.

@@ -1,0 +1,1 @@
+Art 321°.- La traba será notificada al deudor en acto continuo de haberse hecho, citándose al mismo tiempo de remate en su persona o por medio de cédula sino pudiese ser habido en la primera diligencia.

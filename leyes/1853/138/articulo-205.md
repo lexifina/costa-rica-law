@@ -1,0 +1,1 @@
+Art 205.- Si en el término de la ley no se hiciere oposición al convenio a su vencimiento se pondrá nota en los autos que lo acredite así y el Tribunal con vista de la pieza de declaración de la quiebra y la de calificación resolverá lo que corresponda con arreglo a los artículos 1099 y 1101 del Código de comercio.

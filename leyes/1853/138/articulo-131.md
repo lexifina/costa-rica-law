@@ -1,0 +1,1 @@
+Art 131°.- El Tribunal fijará en el auto de prueba el término que crea suficiente según las circunstancias del negocio, prorrogándolo a petición de cualquiera de las partes hasta el cumplimiento de la ley.

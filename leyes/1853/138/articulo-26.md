@@ -1,0 +1,2 @@
+Art 26°.- Faltando a la comparecencia la parte que promovió, se tendrá la citación por no hecha, y se condenará en la multa de cinco pesos, y en la indemnización de cuatro reales por legua a favor de la parte citada que hubiese acudido la diferente población para celebrar la comparecencia o de los derechos causados en conferir poder a la persona que se hubiese presentado en su nombre.
+Sin hacer constar el pago de la multa e indemnización, no se proveerá nueva citación para comparecencia sobre el mismo negocio.

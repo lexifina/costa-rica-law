@@ -1,0 +1,2 @@
+Art 172.- El acreedor que solicite la declaración de quiebra de su deudor, estará obligado a acreditar ante todas cosas, su personalidad, con el testimonio de la ejecución despachada a su instancia, contra el mismo deudor, con cuyo previo requisito se le admitirá la prueba que presente sobre los estremos comprendidos en el artículo 965 del Código.
+Probados estos en forma suficiente, hará el Tribunal la declaración de quiebra, sin citación ni audiencia del quebrado acordando las demás disposiciones concernientes a ella.

@@ -1,0 +1,2 @@
+Art 412°.- Concluido el termino de prueba, se hará publicación de probanza a instancia de cualquiera de las partes que lo solicite, habiéndose el pleito por concluso con lo que hayan expuesto, y sin más sustanciación para sentencia definitiva previa su citación.
+Las partes podrán imponerse en la oficina de las pruebas presentadas, y hacer mérito de ellas en los correspondientes alegatos en estrados, si así les conviniere.

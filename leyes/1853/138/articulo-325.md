@@ -1,0 +1,1 @@
+Art 325°.- Si el deudor hiciere oposición se mandarán entregar los autos para que propongan su excepción, encargándose a ambas partes los seis días de la ley para que dentro de ellos aleguen ambas y prueben lo que respectivamente les convenga.

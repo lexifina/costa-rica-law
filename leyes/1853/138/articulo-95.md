@@ -1,0 +1,2 @@
+Art 95.- Las sentencias definitivas, se notificarán a las partes interesadas en persona, o por cédula no pudiendo ser habidas, si residieren en el lugar del juicio aun cuando tengan constituido procurador, y desde esta notificación comenzará a correr el término para los recursos legales.
+Estando ausentes, será suficiente la notificación a los procuradores, que producirá los mismos efectos que si hubiese hecho a los interesados.

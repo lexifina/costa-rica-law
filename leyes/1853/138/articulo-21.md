@@ -1,0 +1,1 @@
+Art 21°.- Cuando los intereses sobre que haya recaída la transacción pertenezca a menores, bienes comunes, establecimientos públicos, u otras propiedades cuyos administradores no pueden transigir por si la transacción serán nula hasta que se evacuén las diligencias prevenidas por Derecho, para la validación de lo transigido y su aprobación.

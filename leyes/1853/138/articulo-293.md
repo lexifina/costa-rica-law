@@ -1,0 +1,1 @@
+Art 293°.- El recurso de nulidad contra la sentencia arbitral se instruirá y seguirá ante el Tribunal de comercio del territorio donde se haya pronunciado, llevándose a efecto aquella, no obstante la interposición del recurso, previa fianza de la parte vencedora que asegure las resultas del nuevo juicio.

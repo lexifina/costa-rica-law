@@ -1,0 +1,1 @@
+Art 445°.- La interposición del recurso de injusticia notoria, no impedirá que se lleve a efecto la ejecutoria del Tribunal de apelación, bajo fianza idónea a juicio del mismo Tribunal, que asegure las resultas del recurrido.

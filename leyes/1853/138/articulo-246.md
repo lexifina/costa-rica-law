@@ -1,0 +1,1 @@
+Art 246.-Si el quebrado hiciere oposición a la pretensión de los síndicos, se recibirá la causa a prueba por el término que el Tribunal halle prudentemente necesario, según lo alegado por las partes, prorogandolo si estas lo pidiesen hasta el máximun de cuarenta días que señala el art 1082 del Código

@@ -1,0 +1,1 @@
+Art 228.- Las demandas de los síndicos sobre a la aplicación del art 987 del Código de comercio, se presentarán acompañadas de la prueba documental que acredite haberse hecho el pago en tiempo inhábil y que la obligación no había vencido hasta después de la declaración de la quiebra. En caso necesario podrán los síndicos preparar su acción con la confesión judicial del deudor.

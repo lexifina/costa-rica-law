@@ -1,0 +1,1 @@
+Art 91°.- La sentencia ha de contener decisión expresa, positiva y precisa, con arreglo a las acciones deducidas en el juicio condenando o absolviéndose en el todo o en parte, fijando la persona condenada o absuelta, y la cosa sobre que recae la absolución o condenación.

@@ -1,0 +1,1 @@
+Art 23°:-Las comparecencias, como actos extrajudiciales podrán celebrarse en días feriados después de los divinos oficios, mas no podrá hacerse en virtud de ellas acto alguno judicial en días festivos, a no ser que por causa suficiente se habiliten los feriados con arreglo a Derecho.

@@ -1,0 +1,2 @@
+Art 371°.- Los bienes embargados en casa o alma cenes del deudor, se constituirán el deposito o se sobrellevaran en el acto las piezas donde estuvieren, quedando la sobrellave en poder del Secretario. Exigiendo el acreedor se pondrá también un guarda de vista en la inmediación de las piezas sobrellevadas
+Los que se embarquen en poder de otra persona quedarán depositados en el mismo tenedor, siendo sugeto avecindado en el pueblo, y de abono.

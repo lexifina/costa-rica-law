@@ -1,0 +1,1 @@
+Art 11°.- Si la citación hubiere de ser fuera de la residencia del Juez avenidor ser remitirá la cédula al Alcalde del pueblo donde deba practicarse, para que disponga su entrega a la persona a quien se dirija, según lo prevenido en el artículo anterior, avisando de haberlo verificado, y remitiendo la relación original del Juez de paz que hubiese practicado la diligencia.

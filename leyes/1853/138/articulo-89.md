@@ -1,0 +1,1 @@
+Art 89°.- Concluida la segunda vista, a que podrán asistir los Jueces de la primera y reunirnos estos con los de la discordia, se procederán a nueva votación; en que será permitido reforma los votos dados en la anterior, procediéndose según se previene en el artículo precedente.

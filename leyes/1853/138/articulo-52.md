@@ -1,0 +1,2 @@
+Artículo 52°.- Para que sea consultado el letrado consultor será suficiente que se rubriquen: en los de los autos interlocutorios que causen estado, se pondrá media firma, y en las definitivas así como en los autos de cumplimiento a las providencias de los Tribunales Superiores, firma entera.
+El Secretario la pondrá también entera en todo género de providencias dando fe de lo proveído y de haberse rubricado o firmado por los Jueces

@@ -1,0 +1,1 @@
+Art 62.- Cuando las notificaciones se hagan por cédula, a causa de no haber podido ser habida la persona a quien se dirijan, se expresará en la diligencia el nombre, calidad y habitación de la persona a quien se entregue la cédula y esta firmará su recibo, o un testigo presencial por ella, sino supiere hacerlo.

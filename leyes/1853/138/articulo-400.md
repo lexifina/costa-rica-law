@@ -1,0 +1,1 @@
+Art 400°.- En las apelaciones sobre procedimientos de quiebras no se remitirá más pieza de autos que la respectiva a la providencia apelada, sin perjuicio de que el Tribunal Superior mande remitir testimonio de cualquier actuación que obre en las demás piezas de autos que se estime necesaria en el juicio de apelación.

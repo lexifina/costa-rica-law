@@ -1,0 +1,1 @@
+Art 219°.- Las providencias que el Juez comisario acuerde sobre la administración de la quiebra en desempeño de sus atribuciones podrán reformarse por el Tribunal de comercio a instancia de los síndicos, o de cualquiera de los interesados en ella, en lo cual se procederá de plano con vista de la reclamación que se presente, y lo que sobre ella informe el Juez comisario.

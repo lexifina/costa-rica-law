@@ -1,0 +1,2 @@
+Art 101.- Concluso el término de la prueba y sin otra sustanciación se dará cuenta en audiencia secreta de las probanzas hechas, formándose el Tribunal con los mismos Jueces que las hubieren mandando recibir, y en su vista se declarará si está o no probada la causa de la recusación, habiéndose o no por recusación el Juez contra quien se hubiere propuesto.
+No estándolo, se ordenará al recusante en la multa de cincuenta pesos.

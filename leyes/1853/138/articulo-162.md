@@ -1,0 +1,2 @@
+Art 162.- No obstará al demandado contumaz la declaración de haberse por contestada la demanda en que se haga publicación de provanzas, proponga y pruebe las excepciones perentorias que le competan, entediéndose desde entonces con la persona o el procurador que la represente, la sustanciación del proceso.
+Este continuara sus trámites según el estado que tenga, confiándose traslado al demandante de los expuesto por el demandado, y documentos que haya presentado.

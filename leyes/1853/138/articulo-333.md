@@ -1,0 +1,1 @@
+Art 333°.- También serán aplicables a las probanzas de los procedimientos ejecutivos las disposiciones de los artículos 139 al 152 de esta misma ley, sobre el orden de practicarse las diligencias de prueba en los juicios ordinarios.

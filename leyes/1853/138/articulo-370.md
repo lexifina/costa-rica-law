@@ -1,0 +1,1 @@
+Art 370°.- Si al tiempo de irse a practicar el embargo se hiciese el pago de la deuda, o el deudor diere fianza con persona de conocida responsabilidad por el importe de aquella, se sobreseerá en la diligencia.

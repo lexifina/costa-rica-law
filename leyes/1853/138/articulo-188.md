@@ -1,0 +1,1 @@
+Art 188°.- La solicitud del quebrado para su soltura, alzamiento de arresto o conceción de salvo conducto, no será admisible hasta que el juez comisario haya dado cuenta al Tribunal de haberse concluido la ocupación y el examen de todos los libros, documentos y papeles concernientes al tráfico del quebrado.

@@ -1,0 +1,1 @@
+Art 118.- Del escrito en que proponga la excepción dilatoria se conferirá traslado por tres días al demandante, con lo esté exponga se recibirá a prueba el artículo , en el caso de que por alguna de las partes se hayan propuesto hechos que la necesiten, ó en su defecto se desidirá desde luego si tiene o no lugar la excepción propuesta.

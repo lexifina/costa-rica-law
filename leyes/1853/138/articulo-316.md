@@ -1,0 +1,1 @@
+Art 316°.- No pudiendo ser habido el deudor para requerirle en persona con el mandamiento en tres diligencias hechas en su domicilio o habitación para encontrarle, se le dejará copia de aquel a su muger, hijos, dependientes u otras personas que habiten la misma casa, y se procederá en el acto a la ejecución.

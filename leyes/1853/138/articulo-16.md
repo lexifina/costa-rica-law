@@ -1,0 +1,1 @@
+Artículo 16°.- Las partes interesadas que estén desavenidas sobre cualquier negocio de comercio, podrán también presentarse voluntariamente al Juez avenidor para celebrar la comparecencia, sin que preceda la citación.

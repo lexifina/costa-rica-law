@@ -1,0 +1,1 @@
+Art 211°.- Del nombramiento de los síndicos su aceptación y juramento se pondrá testimonio en esta pieza, acordándose en seguida la formación del inventario general y entrega del haber, y papeles de la quiebra, a los mismos en la forma prevenida por los artículos 1019, 1020 y 1021 del Código.

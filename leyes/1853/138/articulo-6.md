@@ -1,0 +1,1 @@
+Art 6°.- En los establecimientos mercantiles o fabriles, dirigidos por factores constituidos conforme al art 71 del Código de comercio, deberán estos concurrir a la comparecencia sobre cuantos negocios pertenezcan a su administración.

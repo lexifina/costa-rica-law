@@ -1,0 +1,1 @@
+Art 78°.- Todos los pleitos conclusos para definitiva se inscribirán en una matrícula, y se irán viendo por el orden de su inscripción , el cual no se podrá variar sino por providencia del Tribunal, cuando por la urgencia de un negocio halle conveniente anteponer su vista y decisión.

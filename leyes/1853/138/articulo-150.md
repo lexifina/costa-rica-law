@@ -1,0 +1,1 @@
+Art 150.- Los testigos presentados por una parte podrán ser repreguntados a instancia de la contraria sobre las circunstancias de los mismos hechos contenidos en el interrogatorio de preguntas, bajo cuya regla el Tribunal desechará o admitirá en todo o en parte el interrogatorio de repreguntas. Este se tendrá reservado en la escribanía.

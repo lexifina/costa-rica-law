@@ -1,0 +1,1 @@
+Art 175.- Los acreedores que coadyuvaren la impugnación de la reposición del auto de quiebra, usaran de su derecho en el estado que tenga el artículo cuando salgan al expediente sin retardarse sus trámites legales.

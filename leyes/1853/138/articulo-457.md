@@ -1,0 +1,2 @@
+Art 457°.- De las providencias que se den en rebeldía podrá pedirse reposición por la parte condenada, en el término de ocho días cuando el interés del negocio exceda de veinticinco pesos, En virtud de esta reclamación que se hará por medio de memorial, se abrirá el juicio oyéndose de nuevo a las partes en una audiencia por el mismo orden prevenido en el art 451, y lo que se resuelva se ejecutará sin más recurso.
+Si este segundo fallo fuese conforme al anterior, será siempre condenado el demandado en las costas del nuevo juicio verbal.

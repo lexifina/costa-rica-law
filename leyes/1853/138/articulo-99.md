@@ -1,0 +1,2 @@
+Art 99°.- Propuesta la recusación, el Tribunal sin concurrencia del Juez recusado a quien reemplazara uno de los Vocales sustitutos, y con previo dictamen del letrado consultor, declarará si es o no suficiente la causa propuesta.
+Siéndolo, quedará suspenso en curso del pleito, y se mandará al recusante que lo apruebe por los medios de Derecho ante el mismo Tribunal, en el término preciso de seis días.

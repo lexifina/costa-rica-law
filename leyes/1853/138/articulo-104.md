@@ -1,0 +1,1 @@
+Art 104.En consecuencia de haberse admitido la recusación, queda el Juez recusado enteramente separado del conocimiento del pleito, y se abstendrá de concurrir a las vistas y deliberaciones que ocurran sobre él, o sus incidencias; completándose el número de Jueces que exije la ley para fallar con los vocales sustitutos.

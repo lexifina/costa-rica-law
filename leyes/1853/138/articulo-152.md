@@ -1,0 +1,1 @@
+Art 152.- Las partes litigantes podrán asistir por sí o por sus procuradores al juramento de los testigos que contra ellas se presenten, y para ello se hará expresión en la citación de esta prueba del lugar, día y hora en que se haya de proceder al examen.

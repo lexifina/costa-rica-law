@@ -1,0 +1,1 @@
+Art 33°.- Todas las personas que tengan capacidad para comerciar, conforme a las disposiciones de los artículos 3, 4 y 5 del Código puedan parecer en juicio sobre sus negocios y contratos de comercio.

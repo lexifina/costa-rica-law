@@ -1,0 +1,1 @@
+Art 177.- Concluido el término de prueba se pondrá nota en el expediente de estar concluido, y se entregará este a cada una de las partes por el término improrrogable do dos días, que serán comunes para todos los acreedores que impugnen en la reposición para el solo efecto de instruirse e informa en la audiencia.

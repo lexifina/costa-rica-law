@@ -1,0 +1,1 @@
+Art 208.- Para toda estracción que se haga de los almacenes sobre llevados o del arca de depósitos de efectos, dinero, letras, pagarees y demás documentos de crédito pertenecientes a la masa, procederá providencia formal del Juez comisario, cuya ejecución se hará constar por diligencias que firmará este el depositario y el escribano.

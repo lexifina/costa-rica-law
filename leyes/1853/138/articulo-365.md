@@ -1,0 +1,1 @@
+Art 365°.- Pueden ser también objeto de embargo provisional los efectos, bienes muebles o dinero de la pertenencia del deudor que se hallen en poder de otra persona, por comisión o depósito, o bajo otro cualquier título que no sea el de prenda, y las cantidades que alcance por cuenta corriente o por crédito, aunque estos no estén vencidos.

@@ -1,0 +1,1 @@
+Art 240.- La convocación de los acreedores de 2° 3° 4° clase para la junta de examen de la clasificación de créditos hecha por los síndicos, se acreditará en los autos en la forma establecida en el artículo 235 de esta ley.

@@ -1,0 +1,1 @@
+Art 15.- La parte actora y la citada, se presentará en persona a la comparecencia, residiendo en el mismo pueblo, pero estando ausentes o si tuvieren otro motivo para hacerlo, podrá representarlo un apoderado, con tal que en el mismo acto produzca la escritura de poder que acredite su personalidad

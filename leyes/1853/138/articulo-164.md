@@ -1,0 +1,1 @@
+Art 164.- Por el fallecimiento del demandado contumaz se hará saber el estado de los autos a herederos, para que salgan a su defensa si les conviniere, y de otro modo no les parará perjuicio la sentencia.

@@ -1,0 +1,1 @@
+Art 294°.-Teniendo lugar la apelación de la sentencia arbitral se admitirá para ante el Tribunal superior que corresponda, procediéndose en todo como en las apelaciones de las sentencias de los Tribunales de comercio.

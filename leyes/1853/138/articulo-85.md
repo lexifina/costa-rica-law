@@ -1,0 +1,1 @@
+Art 85°.- Si alguno de los Jueces hiciere voto particular, y lo exigiere, se extenderá este en la misma forma que lo dictaré o escribiere, en el libro reservado que se llevará para este solo objeto, y se conservará dentro del Tribunal bajo llave que tendrá el Presidente.

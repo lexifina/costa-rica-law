@@ -1,0 +1,1 @@
+Art 13.- Por urgencia manifiesta y grave a juicio del Juez avenidor, podrá celebrarse la comparecencia en el acto continuo de hecha la citación, siempre que se haya verificado en persona al citado o reducirse el plazo al número de horas que se crea suficiente, para que entregándose la cédula a sus familia o criado, pudiese llegar a su noticia.

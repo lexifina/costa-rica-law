@@ -1,0 +1,1 @@
+Artículo 127.- Habiéndolo pedido o consentido todos los litigantes o estimándolo el Tribunal necesario a petición de cualquiera de ellos para la justificación de los hechos pertenecientes a la cuestión del pleito se recibirá a prueba.

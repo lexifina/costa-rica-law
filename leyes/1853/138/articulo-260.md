@@ -1,0 +1,1 @@
+Art 260.- Si no se hubiere nombrado tercero para dirimir la discordia de los árbitros, ni persona que hubiere de hacer el nombramiento, recaerá la facultad de dirimirla en el juez avenidor del partido.

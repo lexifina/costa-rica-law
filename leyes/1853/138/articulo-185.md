@@ -1,0 +1,2 @@
+Art 185° La fijación de los edictos en que se publique la quiebra, se hará con asistencia de escribano, poniéndose en los autos diligencias que lo acredite con expresión del día y lugar en que se hubiesen fijado.
+Para que tenga efecto en los demás pueblos donde el quebrado tenga establecimientos mercantiles, se dirigirán los edictos con oficio a la autoridad judicial respectiva de cada uno de ellos, exigiéndolos testimonios de haberse fijado que se unirá a los autos.

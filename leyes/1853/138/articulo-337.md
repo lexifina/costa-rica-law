@@ -1,0 +1,1 @@
+Art 337.- El Tribunal concluida la vista o a mas tardar en la audiencia inmediata, pronunciará sentencia de remate, o si esta no procediese según lo expuesto y probado por el reo ejecutado, revocará la ejecución, absolviéndose de la acción ejecutiva, y mandando alzar los embargos hechos, y que los bienes embargados se le entregen libremente.

@@ -1,0 +1,1 @@
+Art 121.- Si conforme a lo decidido sobre la excepción dilatoria tuviere lugar la contestación de la demanda la dará el demandado en el término de seis días, y no haciéndolo se procederá según se ha prevenido en el artículo 15.

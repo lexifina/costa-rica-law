@@ -1,0 +1,1 @@
+Art 453°.- Concluida la instrucción en la forma que va prescrita, se fallará la demanda con arreglo a derecho en la misma audiencia, o a mas tardar en la inmediata, extendiose la providencia en seguida del acta de instrucción verbal, y haciéndose saber a las partes.

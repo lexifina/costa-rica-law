@@ -1,0 +1,1 @@
+Art 425°.- El Tribunal Superior, concluido el término del emplazamiento, mandará traer los autos para pronunciar sobre la nulidad, citándose las partes que se hayan personado ante él; y oyendo en voz el día de la vista a los defensores, fallara lo que halle arreglado a justicia, devolviendo los autos con certificación de su providencia al Tribunal inferior.

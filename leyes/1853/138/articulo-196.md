@@ -1,0 +1,1 @@
+Art 196°.-Cuando por abusos en el desempeño de las funciones de la sindicatura solicite un acreedor la separación de algún sindico, expondrá al Tribunal los hechos en que se funda, acompañado su justificación, o dándole en término preciso de ocho días.

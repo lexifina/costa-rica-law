@@ -1,0 +1,1 @@
+Art 345°.- Si los bienes ejecutados consistiesen en valores de comercio endosables, se hará su venta al cambio corriente por la persona que nombre el Tribunal, uniéndose a los autos nota de la negociación que presentará el comisionado con certificación al pie de ella, dada por dos comerciantes acreditados, por donde conste haberse hecho aquella al cambio corriente

@@ -1,0 +1,2 @@
+Art 438°.- Admitiéndose el recurso, se mandará en la misma providencia que la parte que lo hubiere interpuesto, haga el depósito de la cantidad de doscientos cincuenta pesos en el establecimiento público que esté señalado para los depósitos judiciales.
+Si al vencimiento de aquel término no se presentare en autos el documento que acredite estar constituido el referido depósito, se declarará por desierto el recurso a solicitud de la parte contraria, y no se admitirá nueva instancia sobre él.

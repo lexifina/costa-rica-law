@@ -1,0 +1,1 @@
+Art 2°:Son nulas cuantas diligencias judiciales se hayan obrado sobre demanda, á que no haya precedido la celebración de comparecencia. Y el demandante resarcirá las costas, daños y perjuicios causados a la parte contra quien se hubiere procedido, mas no se entiende esta con el procedimiento de embargo provisional en los casos en que tenga lugar, según Derecho.

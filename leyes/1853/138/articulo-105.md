@@ -1,0 +1,1 @@
+Art 105.- En las recusaciones de los Jueces ordinarios que conozcan de los negocios mercantiles, así como en la de los ministros de los Tribunales Superiores en la segunda y tercera instancia, se estará a lo previenen respectivamente sobre uno y otros las leyes comunes.

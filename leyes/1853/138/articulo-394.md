@@ -1,0 +1,1 @@
+Art 394°.- Procederá en ambos efectos la apelación de las sentencias sobre la calificación de la quiebra, en que se haya declarado de 1°, 2, ó 3 clases sin perjuicio de llevarse a efecto la libertad del quebrado en los dos primeros casos con arreglo al párrafo 2° del art 1083 del Código de comercio.

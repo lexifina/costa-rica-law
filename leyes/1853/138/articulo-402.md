@@ -1,0 +1,1 @@
+Art 402°.- Si el apelado no se presentase en la segunda instancia, se sustanciará esta con los estrados del Tribunal, sin perjuicio de que si lo hiciere posteriormente se le admitirá a hacer parte en el juicio, en el estado que tenga.

@@ -1,0 +1,1 @@
+Art 224°.- Si los acreedores observasen alguna omisión en esta parte, se dirigirán al Juez comisario, quien tomando conocimiento de los antecedentes dará las disposiciones necesarias para que se ejerciten las acciones de la masa, y si no lo hiciere podrá llevar el reclamante su queja al Tribunal de comercio.

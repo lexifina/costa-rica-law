@@ -1,0 +1,1 @@
+Art 54.- En negocios urgentes podrá el Tribunal llamar al letrado consultor para que asista a la audiencia, y resuelva en el acto las dudas que le proponga haciéndolo siempre por escrito, conforme a lo dispuesto en el art.1147 del Código de comercio. En estos casos como siempre que el consultor concurra al Tribunal ocupará el último lugar después del Vocal más moderno.

@@ -1,0 +1,2 @@
+Art 398°.- Si solo procediese la apelación en el efecto devolutivo se mandará sacar compulsa de los autos prefijando término para que esté concluida, y que se remita al Tribunal de apelación; o bien si alguna de las partes lo pidiere, se remitirán los autos originales al Tribunal Superior, quedando en el juzgado a quo testimonio de aquellas piezas que sean necesarias para que no se paralice el curso legal del expediente.
+Si estuviere ejecutada la providencia apelada o no hubiere que practicada diligencia alguna en su cumplimiento se remitirán los autos originales.

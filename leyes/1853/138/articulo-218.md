@@ -1,0 +1,1 @@
+Art 218°.- De las exposiciones que hagan los acreedores con vista de los estados mensuales que deberán presentar los síndicos sobre el estado de la administración de las quiebra, se dará conocimiento al Juez comisario y con su informe acordonará el Tribunal las providencias que halle convenientes en beneficio de la masa.

@@ -1,0 +1,1 @@
+Art 60.- Las notificaciones se harán leyéndose íntegramente la providencia a la persona a quien se ha haga y dándole en el acto copia literal de ella, aun cuando no la pida, y en la diligencia se hará expresión de haberse cumplido lo uno y lo otro.

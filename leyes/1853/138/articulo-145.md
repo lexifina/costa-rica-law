@@ -1,0 +1,1 @@
+Art 145.- El confesante que apercibido en juicio de satisfacer debidamente a una posición no lo hiciere, será declarado con eso sobre ella, si lo exigiese la parte que haya presentado las posiciones después que estas se hubieren publicado.

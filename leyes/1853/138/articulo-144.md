@@ -1,0 +1,1 @@
+Artículo 144.- No se admitirán en las confesiones judiciales respuestas ambiguas ni evasivas, sino que el confesante contestará directa y categóricamente a cada pregunta, confesando o negando con las explicaciones que le convengan; y en defecto de hacerlo, se la apercibirá en el acto que se le habrá por confeso, sobre la oposición a que no haya contestado en debida forma.

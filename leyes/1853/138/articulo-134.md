@@ -1,0 +1,1 @@
+Art 134.- Para concederse el término extraordinario de prueba ha de proceder audiencia de la parte contraria por el término de tres días y si esta lo impugnare, se oirá por igual término al que lo hubiese solicitado, y se decidirá el artículo, causando estado la providencia que se dé

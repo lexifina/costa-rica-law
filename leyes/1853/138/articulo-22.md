@@ -1,0 +1,1 @@
+Art 22°.-Si las partes comparecientes se comprometieren al juicio arbitrario del Juez avenidor, entonces el acta de comparecencia equivaldrá a un compromiso hecho en escritura pública y producirá los mismos efectos.

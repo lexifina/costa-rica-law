@@ -1,0 +1,1 @@
+Art 367°.- Si lo bienes que hayan de embargarse no estuviesen en poder del deudor o en sus casas y almacenes, designará el acreedor en su instancia los que fueren, con el nombre y apellido del tenedor, y el lugar en que estuvieren, quedando de su cuenta y riesgo las resultas del procedimiento, si este recayese sobre bienes que no fuesen de la pertenencia del deudor.

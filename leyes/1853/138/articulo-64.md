@@ -1,0 +1,1 @@
+Art 64°.- El Secretario que notificare una providencia ilegalmente incurrirá en la multa de veinticinco pesos, y será además responsables de los perjuicios que se sigan en las partes, si se declara nula.

@@ -1,0 +1,1 @@
+Art 232.- Para la reintegración a la masa de los bienes extraidos de ella, por contratos que hayan quedado ineficaces de Derecho en virtud de la disposición del art´979 del Código de comercio se procederá por el juicio posesorio sumario, justificando los síndicos por la escritura del mismo contrato hallarse este en el caso de la ley.

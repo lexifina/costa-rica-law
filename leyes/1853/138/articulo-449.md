@@ -1,0 +1,1 @@
+Art 449°.- El plazo de la citación para que el demandado acuda al juicio será ordinariamente de tres días, pero con justo, motivos de urgencia podrá el Juez reducirlo, con tal que siempre se verifique la citación la víspera del día señalado para el juicio.
