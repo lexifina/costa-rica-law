@@ -18,3 +18,4 @@ Reglamento Autónomo de Organización y Servicio de la Municipalidad de Goicoech
 | 3 | 1994-10-03 | Reglamento municipal 85 (1994-10-03) |
 | 4 | 1996-02-05 | Reglamento municipal 107 (1996-02-05) |
 | 5 | 2001-11-19 | Reglamento municipal 46 (2001-11-19) |
+| 6 | 2002-02-11 | Reglamento municipal 6 (2002-02-11) |
