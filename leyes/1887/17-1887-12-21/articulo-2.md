@@ -1,0 +1,2 @@
+Art. 2°-El Poder Ejecutivo dictará las disposiciones convenientes para que no pueda usarse indebididamente de la exención concedida en el artículo anterior.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintiún días del mes de diciembre de mil ochocientos ochenta siete.-AND. SÁENZ, Presidente. -J. M. SOTO Y ALFARO, Secretario.-Palacio Presidencial.-San José, á los veintiún días del mes de diciembre de mil ochocientos ochenta y siete.- Ejecútese.-BERNARDO SOTO.-El Secretario de Estado en el despacho de Justicia, ASCENSIÓN ESQUIVEL.
