@@ -1,0 +1,2 @@
+Artículo 28.—Metodología para el reajuste de tarifas. Para el reajuste futuro de las tarifas que garanticen el equilibrio económico financiero del Contrato, el MOPT definirá a la brevedad posible la metodología de cálculo que corresponde, para lo cual se considerarán los factores económicos y financieros que procedan.
+(Así adicionado por el artículo 1 del Decreto Ejecutivo N° 30572 de 9 de julio del 2002)

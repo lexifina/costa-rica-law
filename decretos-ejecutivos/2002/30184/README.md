@@ -14,3 +14,4 @@ Reglamento para la Revisión Técnica Integral de Vehículos Automotores que cir
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-06 | la propia norma |
+| 2 | 2002-07-09 | Decreto Ejecutivo 30572 (2002-07-09) |
