@@ -1,18 +1,3 @@
-ARTÍCULO 100.- Dentro de un mismo programa presupuestado, las
-modificaciones de los presupuestos vigentes procederán, cuando lo acuerde
-el Concejo. Se requerirá que el Concejo apruebe la modificación de un
-programa a otro, con la votación de las dos terceras partes de sus
-miembros.
-El presupuesto ordinario no podrá ser modificado para aumentar
-sueldos ni crear nuevas plazas, salvo cuando se trate de reajustes por
-aplicación del decreto de salarios mínimos o por convenciones o convenios
-colectivos de trabajo, en el primer caso que se requieran nuevos empleados
-con motivo de la ampliación de servicios o la prestación de uno nuevo, en
-el segundo caso.
-Los reajustes producidos por la concertación de convenciones o
-convenios colectivos de trabajo o cualesquiera otros que impliquen
-modificar los presupuestos ordinarios, sólo procederán cuando se pruebe,
-en el curso de la tramitación de los conflictos o en las gestiones
-pertinentes, que el costo de la vida ha aumentado sustancialmente según
-los índices de precios del Banco Central de Costa Rica y la Dirección
-General de Estadística y Censos.
+Artículo 100. — Dentro de un mismo programa presupuestado, las modificaciones de los presupuestos vigentes procederán, cuando lo acuerde el Concejo. Se requerirá que el Concejo apruebe la modificación de un programa a otro, con la votación de las dos terceras partes de sus miembros.
+El presupuesto ordinario no podrá ser modificado para aumentar sueldos ni crear nuevas plazas, salvo cuando se trate de reajustes por aplicación del decreto de salarios mínimos o por convenciones o convenios colectivos de trabajo, en el primer caso que se requieran nuevos empleados con motivo de la ampliación de servicios o la prestación de uno nuevo, en el segundo caso.
+Los reajustes producidos por la concertación de convenciones o convenios colectivos de trabajo o cualesquiera otros que impliquen modificar los presupuestos ordinarios, sólo procederán cuando se pruebe, en el curso de la tramitación de los conflictos o en las gestionespertinentes, que el costo de la vida ha aumentado sustancialmente segúnlos índices de precios del Banco Central de Costa Rica y la Dirección General de Estadística y Censos.

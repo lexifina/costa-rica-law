@@ -1,4 +1,1 @@
-ARTÍCULO 39.- Las sesiones del Concejo se desarrollarán conforme al
-orden del día previamente elaborado, el cual podrá modificarse o alterarse
-mediante acuerdo aprobado por dos terceras partes de los miembros
-presentes.
+Artículo 39. — Las sesiones del Concejo se desarrollarán conforme al orden del día previamente elaborado, el cual podrá modificarse o alterarse mediante acuerdo aprobado por dos terceras partes de los miembros presentes.

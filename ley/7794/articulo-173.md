@@ -1,8 +1,3 @@
 TÍTULO VIII
-DISPOSICIONES FINALES Y TRANSITORIAS
-CAPÍTULO I
-DISPOSICIONES FINALES
-ARTÍCULO 173.- Autorízase a las municipalidades para que los fondos
-provenientes de la Ley No. 6282 también puedan utilizarse en la
-construcción, mantenimiento, reparaciones, material y equipo de las
-bibliotecas municipales de su jurisdicción.
+Concejos municipales de distrito
+Artículo 173. —( Nota de Sinalevi: Este artículo fue adicionado mediante el inciso a) del artículo único de la Ley N° 7812 del 8 de julio de 1998. Posteriormente fue ANULADO por Resolución de la Sala Constitucional N° 5445-99 de las 14:30 horas del 14 de julio de 1999, adicionada por las sentencias números 06218-99, de las 15:21 horas del 10 de agosto de 1999, 09811 de las 15:21 horas del 14 de diciembre de 1999, 07728-00 de las 14:45 horas del 30 de agosto de 2000 y 8861-000 de las 14:30 horas del 11 de octubre de 2000. Por último la adición practicada por la Ley N° 7812 del 8 de julio de 1998, fue derogada por el artículo 13 de la Ley N° 8173 del 7 de diciembre del 2001, Ley General de Concejos Municipales de Distrito)

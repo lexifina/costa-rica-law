@@ -1,4 +1,1 @@
-ARTÍCULO 174.- Deróganse las siguientes leyes:
-a) Código Municipal, No. 4574, de 4 de mayo de 1970.
-(Corregido por Fe de Erratas, Gaceta 240 de 10 de diciembre 1998)
-b) Ordenanzas Municipales, No. 20, de 24 de julio de 1867.
+Artículo 174. —(Nota de Sinalevi: Este artículo fue adicionado mediante el inciso a) del artículo único de la Ley N° 7812 del 8 de julio de 1998. Posteriormente fue ANULADO por Resolución de la Sala Constitucional N° 5445-99 de las 14:30 horas del 14 de julio de 1999, adicionada por las sentencias números 06218-99, de las 15:21 horas del 10 de agosto de 1999, 09811 de las 15:21 horas del 14 de diciembre de 1999, 07728-00 de las 14:45 horas del 30 de agosto de 2000 y 8861-000 de las 14:30 horas del 11 de octubre de 2000. Por último la adición practicada por la Ley N° 7812 del 8 de julio de 1998, fue derogada por el artículo 13 de la Ley N° 8173 del 7 de diciembre del 2001, Ley General de Concejos Municipales de Distrito)

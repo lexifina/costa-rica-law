@@ -1,6 +1,5 @@
 TÍTULO IV
-HACIENDA MUNICIPAL
+Hacienda Municipal
 CAPÍTULO I
-DISPOSICIONES GENERALES
-ARTÍCULO 61.- El año económico municipal se iniciará cada 1° de
-enero.
+Disposiciones generales
+Artículo 61. — El año económico municipal se iniciará cada 1° de enero.

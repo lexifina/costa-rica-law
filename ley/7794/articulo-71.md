@@ -1,4 +1,1 @@
-ARTÍCULO 71.- Las certificaciones de los contadores o auditores
-municipales relativas a deudas por tributos municipales, constituirán
-título ejecutivo y en el proceso judicial correspondiente solo podrán
-oponerse las excepciones de pago o prescripción.
+Artículo 71. — Las certificaciones de los contadores o auditores municipales relativas a deudas por tributos municipales, constituirán título ejecutivo y en el proceso judicial correspondiente solo podrán oponerse las excepciones de pago o prescripción.

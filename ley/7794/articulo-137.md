@@ -1,7 +1,2 @@
-ARTÍCULO 137.- La evaluación y calificación de servicios será una
-apreciación del rendimiento del servidor en cada uno de los factores que
-influyen en su desempeño general. Las categorías que se utilizarán para la
-evaluación anual serán: Regular, Bueno, Muy bueno y Excelente.
-La evaluación y calificación de servicios se hará efectiva en la
-primera quincena del mes de junio de cada año. La Oficina de Recursos
-Humanos velará por que cada jefe cumpla esta disposición.
+Artículo 137. — La evaluación y calificación de servicios será una apreciación del rendimiento del servidor en cada uno de los factores que influyen en su desempeño general. Las categorías que se utilizarán para la evaluación anual serán: Regular, Bueno, Muy bueno y Excelente.
+La evaluación y calificación de servicios se hará efectiva en la primera quincena del mes de junio de cada año. La Oficina de Recursos Humanos velará por que cada jefe cumpla esta disposición.

@@ -1,5 +1,1 @@
-ARTÍCULO 99.- Una vez aprobado el presupuesto por la Contraloría
-General de la República, el original se enviará a la secretaría municipal,
-donde quedará en custodia, y se remitirá copia al alcalde municipal, al
-contador o auditor interno, a cada uno de los regidores propietarios, así
-como a los demás despachos que acuerde el Concejo o indique el reglamento.
+Artículo 99. — Una vez aprobado el presupuesto por la Contraloría General de la República, el original se enviará a la secretaría municipal, donde quedará en custodia, y se remitirá copia al alcalde municipal, alcontador o auditor interno, a cada uno de los regidores propietarios, así como a los demás despachos que acuerde el Concejo o indique el reglamento.
