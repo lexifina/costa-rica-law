@@ -1,0 +1,1 @@
+Transitorio II.- La inscripción a que se refiere el artículo 26, deberá efectuarse dentro de un plazo máximo de un año a partir de la promulgación de la presente ley, de conformidad con los dispuesto en el Decreto de la Comisión Permanente del Congreso Constitucional Nº 6 de 7 de octubre de 1887.

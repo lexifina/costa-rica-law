@@ -1,0 +1,4 @@
+Artículo 60.- La empresa no podrá, ni deberá permitir, levantar,
+dentro del derecho de vía del ferrocarril, construcción alguna ajena a la
+naturaleza del servicio, salvo con autorización escrita del Ministerio de
+Obras Públicas y Transportes.
