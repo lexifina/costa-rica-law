@@ -1,0 +1,1 @@
+Art 5° Todos los Abogados que dirijan negocios de partes, están obligados a poner su firma en los escritos, bajo pena de no oírles la excusa para ser Conjueces, no obstante, a quedar sujetos a la recusación, y de no tener a los honorarios de arancel, sino que solo podrán exigir una corta recompensa como directores no letrados, a juicio del Juez de la causa.

@@ -1,0 +1,1 @@
+Art 6° Se entenderán comprendidos en el Colegio de Abogados, para el objeto solo de poder ser llamados como Conjueces los costarricenses, que habiendo obtenido el título de Abogados fuera de la República, no lo presenten al Tribunal Supremo para obtener las licencias; y los cierren su estudio.
