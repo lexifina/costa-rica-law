@@ -1,0 +1,1 @@
+Art.3. Se prohíbe la publicación de impresos que directa o indirectamente ofendan la vida privada, y en la calificación y aplicación de las penas por los delitos de la libertad de imprenta, se tendrá presente la ley nacional de 17 de Mayo de 1832; y lo que dispone en los casos respectivos el Código general del Estado.
