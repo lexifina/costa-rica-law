@@ -1,0 +1,3 @@
+Artículo 3
+En atención a que el Gobierno mexicano decidió crear la Comisión Mexicana para la Cooperación con Centroamérica, con el propósito de facilitar la coordinación entre las diversas dependencias y entidades, públicas y privadas, en materia de cooperación con Centroamérica, ésta representará a México en todo lo relativo a la aplicación de este Acuerdo.
+Las dependencias y organismos de los diferentes Gobiernos podrán establecer cuantos instrumentos consideren necesarios para fortalecer la relación bilateral, previa consulta de la Cancillería de cada uno de los países centroamericanos o de la Comisión Mexicana por parte de México.

@@ -1,0 +1,2 @@
+Artículo 4
+En el ámbito de la perspectiva regional de este Acuerdo, las Partes convienen establecer una Comisión Mexicano-Centroamericana, conformada por representantes de alto nivel de las Cancillerías u otras dependencias que señale cada uno de los países centroamericanos y por parte de México, la Comisión Mexicana , la cual se reunirá cada año, con el objeto de dar seguimiento, evaluar y recomendar a los Gobiernos sobre los programas que se desarrollen dentro del marco del presente Acuerdo General de Cooperación.
