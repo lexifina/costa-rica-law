@@ -25,3 +25,4 @@ Reglamento de la Asamblea Legislativa
 | 10 | 2003-05-07 | Reglamento 0 (2003-05-07) |
 | 11 | 2003-05-15 | Reglamento 6108 (2003-05-15) |
 | 12 | 2003-05-15 | Reglamento 6109 (2003-05-15) |
+| 13 | 2003-06-04 | Reglamento 0 (2003-06-04) |
