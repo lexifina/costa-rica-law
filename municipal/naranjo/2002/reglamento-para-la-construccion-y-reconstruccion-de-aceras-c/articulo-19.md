@@ -1,0 +1,1 @@
+Artículo 19.—Toda mejora que en adelante se desee hacer a las aceras de la ciudad deberá contar con la autorización y aprobación correspondiente, entendiéndose que al producirse la mejora, deberá hacerse las variantes del caso.

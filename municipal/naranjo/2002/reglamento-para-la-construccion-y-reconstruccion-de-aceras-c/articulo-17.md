@@ -1,0 +1,1 @@
+Artículo 17.—Siendo el ancho total de las aceras con un mínimo de dos metros y en razón de las distintas variantes que se presentan en las entradas de cocheras y demás accesos, recomendamos que todo acceso cuente con un ancho máximo de dos metros y un largo máximo de cincuenta centímetros, quedando el resto de la acera con un mismo nivel.
