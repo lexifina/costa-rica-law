@@ -14,3 +14,4 @@ Modifica límite presupuestario y de gasto efectivo del 2001, para el Instituto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-07-18 | la propia norma |
+| 2 | 2001-10-29 | Decreto Ejecutivo 29958 (2001-10-29) |
