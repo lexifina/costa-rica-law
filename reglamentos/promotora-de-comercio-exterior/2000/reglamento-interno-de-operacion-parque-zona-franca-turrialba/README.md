@@ -14,3 +14,4 @@ Reglamento Interno de Operación Parque Zona Franca Turrialba
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-05 | la propia norma |
+| 2 | 2000-03-05 | Ley 7 |
