@@ -1,0 +1,1 @@
+Artículo 21.- Comunicación del Acto de Adjudicación Toda resolución emitida por la Comisión de Becas relacionadas con el Apoyo Oficial o adjudicación de beca para asistir a programas de capacitación o realizar estudios, dentro o fuera del país, será comunicada mediante trascripción del acuerdo correspondiente.

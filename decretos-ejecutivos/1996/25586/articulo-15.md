@@ -1,0 +1,3 @@
+Artículo 15.—Divulgación de los Concursos
+15.1 Capacitación comunicará a los responsables de Área, miembros de la Comisión de Becas y encargados administrativos de región para que los hagan de conocimiento de los trabajadores.
+15.2 La divulgación de los concursos debe darse con suficiente anterioridad a la fecha del cierre, establecida por la Unidad de Capacitación, también se publicarán en lugares visibles de las diferentes oficinas y planteles de la institución. Salvo casos de excepción de extrema conveniencia institucional la Comisión de Becas podrá aprobar en forma extraordinaria algún concurso, siempre y cuando haya habido una divulgación mínima de 48 horas de anticipación de las bases que rigen el concurso.

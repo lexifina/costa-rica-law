@@ -1,0 +1,1 @@
+Artículo 18.- Parámetros para la Selección de los Candidatos Los parámetros para la selección de candidatos para becas u otras facilidades, serán los establecidos por Capacitación y la Comisión de Becas, según el grupo ocupacional de que se trate.
