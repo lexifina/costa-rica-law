@@ -1,3 +1,5 @@
+(Otorgada la vigencia a este Reglamento a partir de publicación en el Diario Oficial La Gaceta Nº 60, del 29 de marzo del 2005 mediante sesión extraordinaria 74, del 4 de abril del 2005)
+(NOTA DE SINALEVI: La Municipalidad de San José, en sesión N° 75 del 2 de octubre del 2007, publicó en La Gaceta N° 202 del 22 de octubre de 2007, un Reglamento Autónomo de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de San José, el cual puede consultarse en el Sistema)
 REGLAMENTO AUTÓNOMO DE ORGANIZACIÓN
 Y FUNCIONAMIENTO DEL COMITÉ CANTONAL
 DE DEPORTES Y RECREACIÓN DE SAN JOSÉ
