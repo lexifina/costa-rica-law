@@ -13,3 +13,4 @@ Excluye de Límite Gasto Presupuestario Transferencia de IDA a SENARA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-01 | la propia norma |
+| 2 | 2000-01-01 | Ley 7 |
