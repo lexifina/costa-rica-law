@@ -1,0 +1,1 @@
+Artículo 5º—Una vez analizada la solicitud por la Comisión de Validación de Requisitos de Incorporación esta la elevará ante la Junta Directiva del Colegio de Contadores Privados de Costa Rica, previo al Acto Formal de Incorporación, de conformidad con lo señalado en el artículo No 32 de la Ley Nº 1269 y 39 del Reglamento para los efectos pertinentes.
