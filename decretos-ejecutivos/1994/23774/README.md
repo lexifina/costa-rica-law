@@ -14,3 +14,4 @@ Declara Parque Nacional Volcán Arenal.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-11-22 | la propia norma |
+| 2 | 1995-06-07 | Decreto Ejecutivo 24416 (1995-06-07) |
