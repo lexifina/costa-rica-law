@@ -1,0 +1,1 @@
+Artículo 6º—Las organizaciones comunales, cuando soliciten la maquinaria municipal para realizar obras de interés comunal en días no laborales aportarán el combustible que se requiere, así mismo correrán con el pago de horas extras del personal operativo municipal. La Municipalidad aportará en este caso lo que corresponde al costo por uso de la maquinaria.

@@ -1,0 +1,1 @@
+Artículo 5º—Para fijar el precio por hora se tomará en cuenta lo establecido en el artículo 4 de este Reglamento y las tarifas establecidas por el Ministerio de Obras Públicas y Transportes para maquinaria en condiciones o con características similares, o en su defecto, se aplicará la tarifa que para tal efecto tenga la empresa privada.

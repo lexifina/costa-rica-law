@@ -1,0 +1,1 @@
+Artículo 8º—Toda solicitud de alquiler de maquinaria debe realizarse por escrito ante el Alcalde Municipal, a quien le corresponderá resolverla y comunicarle al interesado. Cuando su solicitud sea aprobada, el interesado deberá cancelar ante la caja municipal el monto correspondiente, según sea el caso, conforme lo establecen los artículos 4 y 5 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 9º—Cuando al realizarse un trabajo con maquinaria municipal alquilada y las horas canceladas resultaren insuficientes para finalizar el mismo, el Alcalde Municipal podrá aprobar la ampliación del tiempo de alquiler, previa solicitud del interesado y en tal caso se procederá a continuar el trabajo cuando se haya efectuado el pago correspondiente por parte del solicitante.

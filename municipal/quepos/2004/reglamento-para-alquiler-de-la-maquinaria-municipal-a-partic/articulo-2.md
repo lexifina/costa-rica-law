@@ -1,0 +1,1 @@
+Artículo 2º—El fin de este servicio es el de brindar apoyo a organizaciones comunales, instituciones públicas, personas físicas y jurídicas del cantón, cuando requieren realizar algún trabajo, siempre que el mismo esté dentro de las posibilidades que tenga la maquinaria con que cuenta la Municipalidad.

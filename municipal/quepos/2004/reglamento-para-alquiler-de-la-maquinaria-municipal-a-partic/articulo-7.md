@@ -1,0 +1,1 @@
+Artículo 7º—Los particulares y asociaciones que sean de carácter comunal, que soliciten la reparación de sus caminos privados o cualquier otra labor que requiera la maquinaria municipal, cancelarán la tarifa establecida en los artículos 4 y 5 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—Cuando haya más de una solicitud a la vez, se le dará prioridad a aquellas presentadas por las organizaciones comunales, referentes a rehabilitación de caminos u otras obras que persigan restablecer el normal desarrollo de actividades productivas. Cuando las solicitudes sean de naturaleza similar se aplicará el principio de primero en tiempo primero en derecho.

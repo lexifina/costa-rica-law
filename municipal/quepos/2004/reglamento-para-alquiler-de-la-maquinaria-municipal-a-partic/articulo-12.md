@@ -1,0 +1,1 @@
+Artículo 12.—Ningún funcionario podrá realizar trabajos de carácter privado con la maquinaria municipal sin la debida autorización de parte del Alcalde Municipal, a quien por lo demás le corresponde velar por el fiel cumplimiento de las disposiciones establecidas en este Reglamento.
