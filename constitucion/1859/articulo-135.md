@@ -1,1 +1,0 @@
-Artículo 135.-Habrá en la capital de cada Provincia una Municipalidad a la cual corresponde la Administración, cuidado y fomento de los intereses y establecimientos de la Provincia, la formación y conservación del registro cívico y del censo de la población y exclusivamente la administración e inversión de los fondos municipales, todo conforme al respectivo Reglamento orgánico.

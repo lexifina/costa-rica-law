@@ -1,1 +1,0 @@
-Artículo 88.-Los Senadores y Representantes no son responsables en ningún tiempo ni ante autoridad alguna, por las opiniones que manifiesten y votos que dén en el ejercicio de sus funciones, a no ser en el caso de violación expresa de la Constitución.

@@ -1,1 +1,0 @@
-Artículo 123.-Ningún poder ni autoridad puede abocarse, si no es ad efectum videndi y en los caso de la ley, causas pendientes en otro tribunal ó juzgado, ni sustanciarlas, ni hacer revivir los procesos fenecidos.
