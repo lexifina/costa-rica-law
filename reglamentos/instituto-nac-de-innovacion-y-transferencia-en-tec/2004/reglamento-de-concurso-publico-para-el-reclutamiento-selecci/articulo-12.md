@@ -1,0 +1,1 @@
+Articulo 12.—De la conformación de la lista de elegibles: Se consideraran elegibles a quienes obtengan las cinco mejores calificaciones, conforme al resultado de la ponderación de las calificaciones obtenidas en los diferentes predictores utilizados para la evaluación de los candidatos.

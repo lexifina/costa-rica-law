@@ -1,0 +1,1 @@
+Articulo 17.—De la comunicación del nombramiento a la Contraloría General de la Republica: Conforme al articulo 31 de la Ley General de Control Interno, el jerarca comunicara a la Contraloría General de la Republica el nombramiento resultante, a mas tardar el primer día hábil del inicio de funciones en el respectivo cargo.

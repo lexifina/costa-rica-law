@@ -1,0 +1,1 @@
+Articulo 7°—Del plazo para la presentación de ofertas: El plazo para la presentación de ofertas, no podrá ser en ningún caso menor a ocho días naturales a partir de la fecha de publicación del aviso del concurso.

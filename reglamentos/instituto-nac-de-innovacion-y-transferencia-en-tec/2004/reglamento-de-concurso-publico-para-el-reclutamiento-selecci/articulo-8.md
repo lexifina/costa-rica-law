@@ -1,0 +1,1 @@
+Articulo 8°—De la recepción de ofertas: Se recibirán todas las ofertas presentadas en el lugar, fecha y hora establecidas, las mismas deben ser presentadas en forma personal y bajo ninguna circunstancia se recibirán mediante fax, correo ni correo electrónico. Asimismo, no se recibirán ofertas ni modificaciones a estas, después de vencida la fecha y hora fijada para la recepción.

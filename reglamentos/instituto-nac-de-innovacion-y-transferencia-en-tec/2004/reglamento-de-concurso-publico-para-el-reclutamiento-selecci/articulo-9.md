@@ -1,0 +1,1 @@
+Articulo 9°—Del estudio de ofertas: Las ofertas será estudiadas y analizadas por el titular subordinado responsable del proceso, quien en aras de facilitar el análisis, podar solicitar las aclaraciones que estime convenientes.

@@ -1,0 +1,1 @@
+Articulo 2°—De la naturaleza: El presente Reglamento regula el procedimiento a seguir a efectos de tramitar el Concurso Publico para la Selección y Nombramiento del Auditor Interno del INTA, de conformidad con lo estipulado en la Ley 8292, denominada Ley General de Control Interno

@@ -1,0 +1,2 @@
+Articulo 11.—De la convocatoria para el proceso de evaluación: Las personas que cumplan con los requisitos de la clase del puesto en concurso, según lo establecido en los artículos 4° y 9° del presente Reglamento, serán convocadas para cumplir con la fase de evaluación.
+La convocatoria o convocatorias respectivas deberán especificar el lugar y fecha en que se realizaran las pruebas o actividades previstas, así como también las horas de inicio y de termino de las mismas.

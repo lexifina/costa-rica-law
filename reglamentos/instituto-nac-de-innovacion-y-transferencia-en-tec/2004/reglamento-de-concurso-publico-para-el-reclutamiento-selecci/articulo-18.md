@@ -1,0 +1,1 @@
+Articulo 18.—Del periodo de prueba: El nombramiento definitivo del Auditor Interne escogido, estará sujeto a los resultados de su desempeño durante un periodo de prueba de tres meses, de acuerdo con la legislación vigente.
