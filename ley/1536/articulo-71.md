@@ -1,0 +1,2 @@
+Caso de que la Solicitud no Alcance el Número Legal de Firmas
+Artículo 71.- Si se comprobare en el juicio de impugnación que el número de firmas legítimas no alcanzó el requerido por el artículo 64, el Juez lo resolverá y lo comunicará al Registro Civil, para que su Director ordene la cancelación de la inscripción, la notifique en seguida al partido interesado, y haga la publicación en "La Gaceta".

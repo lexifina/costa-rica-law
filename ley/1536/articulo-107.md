@@ -1,0 +1,2 @@
+Prohibición de Agruparse Alrededor del Local
+Artículo 107.- Es prohibido agruparse alrededor de los locales de las Juntas Receptoras en un radio de cincuenta metros. Podrán hacerlo, sin embargo en fila y por orden de su llegada, solamente quienes esperen turno para entrar al local electoral a emitir su voto. Dentro del local, así como del edificio de que el mismo forme parte, no podrán estacionarse, por ningún motivo, sino las personas acreditadas ante la Junta, para cumplir ante ella alguna función que de esa ley se derive.

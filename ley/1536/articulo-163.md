@@ -1,0 +1,2 @@
+Forma de Contar los Términos
+Artículo 163.- En los términos por días no se contarán los inhábiles, y los términos por meses se contarán de fecha a fecha, conforme al calendario usual. En todo término el día del vencimiento se tendrá por concluido en el instante en que, según el reglamento respectivo, deba cerrarse el despacho ordinario del Registro Civil o del Tribunal Supremo de Elecciones, de acuerdo con el reloj de cada una de esas oficinas. Si el día final de un término fuere feriado, se tendrá por prorrogado hasta el día siguiente hábil.
