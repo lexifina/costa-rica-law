@@ -1,0 +1,1 @@
+Artículo 5º—Los proyectos de investigación y desarrollo experimental que se presenten al CONICIT, deberán incluir en el estudio técnico lo siguiente: título, antecedentes, objetivos, metodología, cronograma de actividades y presupuesto.

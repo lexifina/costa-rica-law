@@ -1,0 +1,6 @@
+Artículo 10.—El otorgamiento de los préstamos estará sujeto a las siguientes condiciones:
+a) El CONICIT financiará como máximo el setenta por ciento (70%) del costo total del proyecto. Si el monto solicitado es superior a los $100.000, el CONICIT deberá solicitar autorización al BID. La contrapartida deberá aparecer detallada en la solicitud de préstamo.
+b) El período máximo de amortización será hasta de 8 años, que incluye un período máximo de gracia de hasta 2 años en el principal, determinándose el plazo específico para amortización y gracia para cada, será de acuerdo con las recomendaciones emitidas por la Comisión Ejecutiva de Crédito del Fideicomiso.
+c) Tasa de interés: Será la establecida para industria del sistema bancario estatal, ajustable de acuerdo al criterio de la Superintendencia General de Entidades Financieras (SUGEF).
+d) Cualquier cuota que de acuerdo al plan de financiamiento no sea retirada por el usuario en los quince días posteriores a su vencimiento pagará una comisión del 1% mensual. Esta comisión será deducida del siguiente desembolso.
+e) Se cobrará un interés equivalente al definido en el inciso d) más un punto (1%) anual, por mora sobre la cuota vencida del principal.

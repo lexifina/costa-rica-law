@@ -1,0 +1,18 @@
+Artículo 15.—Los contratos establecerán lo siguiente:
+a) Que el monto total de los recursos se usará exclusivamente, para los propósitos descritos en el expediente respectivo, sin perjuicio de lo dispuesto en los incisos e) y f) de este artículo.
+b) Que el financiamiento otorgado por el CONICIT, se entregará mediante un desembolso inicial y desembolsos posteriores, que se fijarán de acuerdo a un plan establecido entre las partes.
+c) Que los desembolsos serán administrados en forma eficiente, empleando para ello los mecanismos que se consideren apropiados (cuenta corriente especial, u otros similares a entera satisfacción del CONICIT), los que en ningún caso serán depositados en fondos comunes.
+d) Para obtener los desembolsos posteriores, el usuario deberá presentar al CONICIT junto con un informe de los recursos gastados, la liquidación de al menos el 80% del desembolso anterior, con juego de todos los comprobantes de pago (facturas, cheques y otros) efectuados.
+e) Que el usuario acepta expresamente que cualquier circunstancia que afecte el desarrollo del proyecto deberá ser comunicada de inmediato al CONICIT. En caso de que no se hiciere, los desembolsos restantes le serán suspendidos y se gestionará el cobro de lo desembolsado a la fecha.
+f) En caso de incumplimiento de las condiciones estipuladas en el contrato, el usuario está obligado a devolver al fideicomiso, la totalidad de los recursos que haya recibido hasta ese momento. Además, deberá resarcir al CONICIT de los gastos adicionales que haya incurrido a la fecha.
+g) Que el usuario deberá presentar a satisfacción del CONICIT informes técnicos semestrales, a partir de la fecha de inicio del proyecto, así mismo debe presentar informes especiales cuando el CONICIT lo requiera sobre aspectos específicos del proyecto.
+h) En caso de que los informes presentados no sean satisfactorios para el CONICIT, ésta podrá suspender los desembolsos hasta tanto no se subsanen los defectos.
+i) Que el CONICIT y la Auditoría Interna del CONICIT, realizarán visitas de inspección y auditoría al proyecto durante su ejecución. Estas visitas se harán cuando el CONICIT y la Auditoría Interna del CONICIT lo considere oportuno y necesario.
+j) Que para garantizar el progreso del proyecto y el uso eficiente de los fondos desembolsados, deberán entregarse al CONICIT liquidaciones financieras periódicas, de acuerdo con las pautas que se fijen al respecto. Los informes citados (técnicos y financieros) deberán ser enviados al CONICIT en los plazos indicados en el contrato.
+k) Es compromiso del usuario asegurar y mantener el seguro de los bienes que garantizan el préstamo contra riesgos y en los valores que se acostumbran en el comercio.
+l) Que todos los resultados, derechos de autor, patentes, "Know how" como consecuencia de los proyectos financiados, serán propiedad del usuario.
+m) Una vez terminado el proyecto, el usuario presentará sendos informes finales (técnico y financiero), en que se detalle el trabajo realizado y los resultados obtenidos, dentro de un plazo no mayor de treinta días naturales, contados a partir de la fecha de finalización del contrato o de la prórroga que las partes hubieren acordado por escrito, de acuerdo al artículo 17, inciso d.
+n) Toda publicación que se origine en trabajos financiados por esta modalidad de financiamiento, deberá llevar la siguiente leyenda:
+"Este trabajo se realizó con el apoyo parcial del Consejo Nacional para Investigaciones Científicas y Tecnológicas (CONICIT)"
+o) Que el usuario será el único responsable por cualquier daño causado por la realización del proyecto a terceras personas o a sus propiedades.
+p) Que todo financiamiento otorgado por el CONICIT debe mantenerse libre de todo gravamen.

@@ -1,0 +1,1 @@
+Artículo 7º—Cuando a juicio del CONICIT, se considera que el grado de especialización de un determinado proyecto es complejo, está designará al menos dos especialistas, que preferentemente figuren en el Registro Científico y Tecnológico del CONICIT, para que analicen la solicitud, siempre asegurando la confidencialidad del proyecto a el usuario.

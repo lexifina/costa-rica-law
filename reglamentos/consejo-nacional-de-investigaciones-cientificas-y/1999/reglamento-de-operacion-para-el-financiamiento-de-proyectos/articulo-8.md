@@ -1,0 +1,1 @@
+Artículo 8º—Una vez analizada la solicitud por el CONICIT y se cuente con un dictamen positivo, se le indicará al usuario que deberá presentar al fideicomiso los recaudos financieros del proyecto y las garantías, dentro de un plazo no mayor de treinta días naturales.

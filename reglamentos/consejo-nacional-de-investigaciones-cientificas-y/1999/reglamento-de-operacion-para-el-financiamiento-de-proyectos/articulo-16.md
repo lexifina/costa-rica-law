@@ -1,0 +1,7 @@
+Artículo 16.—El usuario estará obligado a cumplir con las siguientes condiciones y obligaciones:
+a) El usuario podrá realizar modificaciones de partida presupuestaria, sin aprobación previa del CONICIT, siempre y cuando el aumento y disminución de cada rubro no sea superiores al 20% del monto original del renglón respectivo, informando oportunamente al CONICIT.
+b) Los préstamos otorgados por el CONICIT son intransferibles.
+c) Si al concluir el proyecto existieran recursos excedentes deberán ser reembolsados de inmediato al Fideicomiso. Para ello, el usuario contará con un plazo de treinta días naturales contados a partir de la fecha de finalización del contrato o de la prórroga que las partes hubieren acordado por escrito.
+d) El Consejo Director del CONICIT podrá conceder al usuario un plazo adicional en el período de ejecución del proyecto, acorde a la justificación presentada por este, hasta por un año. En casos especiales se podría ampliar por un período mayor a juicio del Consejo Director.
+e) El CONICIT no asume ninguna responsabilidad de carácter laboral con el personal que participe en el proyecto.
+f) Si tres meses después de haber girado el desembolso inicial, no se hubiera dado inicio al proyecto por causa atribuible al usuario, éste se considerará suspendido sin responsabilidad para el CONICIT, por lo que el usuario deberá reembolsar al fideicomiso el adelanto otorgado en su totalidad, así como cualquier otro gasto en que hubiere incurrido la Institución.
