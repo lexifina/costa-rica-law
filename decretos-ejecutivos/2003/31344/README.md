@@ -14,3 +14,4 @@ Declara de Interés Público el Desarrollo del Sistema de Información del Secto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-09-05 | la propia norma |
+| 2 | 2004-11-23 | Decreto Ejecutivo 32182 (2004-11-23) |
