@@ -1,0 +1,8 @@
+ARTICULO 19.- En el desempeño de su cometido, el Tribunal de la
+Carrera gozará de independencia funcional y sus miembros de libertad de
+criterio. Dos miembros formarán quórum y la votación se tomará por simple
+mayoría. Cuando se produjere empate, se pospondrá el asunto para nueva
+votación; si nuevamente lo hubiere, decidirá con doble voto el
+Presidente. La sede del citado Tribunal será las Oficinas Centrales del
+Ministerio, y contará con los servicios administrativos necesarios, a
+cargo del presupuesto del Ministerio.

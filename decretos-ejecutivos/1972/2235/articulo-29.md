@@ -1,0 +1,8 @@
+ARTICULO 29.- Las sentencias que dicte el Tribunal de la Carrera
+deberán llenar, en lo que sea dable, los requisitos formales que
+prescribe el artículo 84 del Código de Procedimientos Civiles, y de ellas
+se dará una copia fiel a las partes en el momento de hacer la
+correspondiente notificación. Los fallos respectivos deberá dictarlos en
+un plazo de ocho días hábiles, que podrá prorrogarse por otro período
+igual, como máximo, cuando así lo exija la naturaleza y complejidad de la
+causa.

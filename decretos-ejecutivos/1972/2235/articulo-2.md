@@ -1,0 +1,14 @@
+ARTICULO 2º.- Se consideran servidores docentes los comprendidos por
+el artículo 54 de la Ley de Carrera Docente y que, para los efectos que
+la presente reglamentación, se dividen en: a) Funcionarios propiamente
+docentes, que son los profesores que en el ejercicio de su profesión,
+imparten lecciones en cualquiera de los niveles de la enseñanza de
+acuerdo con los programas oficiales; b) Funcionarios técnico-docentes,
+que son los que realizan fundamentalmente labores de planificación,
+asesoramiento, orientación o cualquier otra actividad técnica,
+íntimamente vinculada con la formulación de la política en la educación
+pública nacional; y c) Funcionarios administrativo-docentes, que son los
+que realizan primordialmente labores de dirección, supervisión y otras de
+índole administrativa, relacionadas con el proceso educativo y para cuyo
+desempeño se requiere poseer título o certificado que faculte para la
+función docente. (Ley Nº 4889 del 17 de noviembre de 1971).

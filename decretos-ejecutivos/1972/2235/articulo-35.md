@@ -1,0 +1,9 @@
+ARTICULO 35.- El Departamento de Selección Docente de la Dirección
+General, calificará las ofertas de servicios y mantendrá actualizado el
+respectivo Registro de Elegibles, de conformidad con las bases y
+promedios establecidos por el Jurado y con sujeción a lo previsto en los
+artículo 89, 90 y 92 del Estatuto. A tal efecto el Departamento dictará
+las normas internas necesarias. El Director General podrá hacer la
+declaratoria de elegibles en forma nominal o general, de acuerdo con las
+calificaciones que el Departamento Docente asignare en orden ascendente a
+los oferentes.

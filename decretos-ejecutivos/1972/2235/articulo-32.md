@@ -1,0 +1,12 @@
+ARTICULO 32.- Si no hubiere personal titulado que se encontrare en
+las condiciones antes citadas, los profesores autorizados deberán
+nominarse siguiendo el mismo orden de prioridades.
+Los oferentes que ocuparen el primer lugar del Registro de Elegibles
+y no aceptaren alguno de los puestos para los cuales hubieren hecho
+oferta de servicios, se eliminarán del mencionado Registro por el resto
+del curso lectivo. Sin embargo, previo el visto bueno del Servicio Civil,
+podrá nombrárseles en propiedad en plazas para las cuales no hubiese
+oferta de profesionales calificados o bien, en forma interina, en plazas
+cuyos titulares gozaren de licencia o estuvieren suspendidos por alguna
+razón, siempre que los oferentes no ocuparen en propiedad puestos de
+igual clase.
