@@ -1,0 +1,2 @@
+Artículo 26.—Serán nulos los votos emitidos en papeletas en las cuales no se demuestre claramente alguna de las firmas correspondientes, o que presenten duda en la voluntad emitida por el votante, como puede ser la colocación de la equis en dos o más casillas de un mismo puesto. No será nula la papeleta que presentare alguna mancha, siempre y cuando se determine con claridad la voluntad del votante.
+Serán votos en blanco, los votos que en las papeletas correspondientes el votante no halla marcado con equis las casillas de los candidatos en cada uno de los puestos a elegir.

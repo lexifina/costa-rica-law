@@ -1,0 +1,1 @@
+Artículo 6º—En caso de renuncia o ausencia injustificada a tres sesiones del Tribunal, en forma consecutiva, de uno o varios de sus miembros, se harán acreedores a la destitución, de lo cual se informará a la Junta Directiva para efectos de lo establecido en el artículo 2º.

@@ -1,0 +1,2 @@
+Artículo 28.—Los resultados definitivos de la elección se darán el mismo día de las elecciones y de acuerdo con el conteo de votos.
+En caso de existir duda evidente en el conteo de los votos de algunos de los candidatos a elegir, se integrará una comisión por parte del Tribunal compuesta por un representante de cada uno de los afectados, un representante del Tribunal de Elecciones con el apoyo de la Asesoría Legal del Colegio que tendrá voz pero no voto en la decisión. Esta Comisión será la que emitirá el fallo definitivo.
