@@ -1,0 +1,1 @@
+Artículo 9°—Para la celebración de actividades con karaoke, se deberá pagar impuestos sobre espectáculos públicos, cuando aquellas se enmarquen en la definición de que el hecho generador de la obligación que hace el artículo I del Reglamento para la aplicación del Impuesto sobre Espectáculos Públicos N° 27762-HC.
