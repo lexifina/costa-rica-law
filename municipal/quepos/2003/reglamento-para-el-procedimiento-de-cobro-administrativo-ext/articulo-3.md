@@ -1,0 +1,11 @@
+Artículo 3º—Definiciones: Para los efectos del presente Reglamento se entiende por:
+a. Reglamento: El Reglamento para el Procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de Aguirre.
+b. Municipalidad: La Municipalidad de Aguirre.
+c. Departamento de Cobros Municipal: Corresponde a la Sección o Departamento de Cobros, encargada de la función de recaudación de la Municipalidad.
+d. Obligaciones vencidas: Las obligaciones dinerarias vencidas, o bien créditos exigibles de plazo vencido a favor de la Municipalidad. Obligaciones que pueden provenir tanto de obligaciones tributarias municipales o de administración municipal, así como de cánones, arrendamientos o cualquier crédito existente de plazo vencido a favor de la Municipalidad.
+e. Obligaciones Tributarias Municipales: Corresponderán a todas aquellas prestaciones de dinero por los contribuyentes o responsables a la Municipalidad, como consecuencia de impuestos o servicios municipales o de administración municipal, tasas o contribuciones especiales.
+f. Sujeto Pasivo: La persona obligada al cumplimiento del pago vencido, sea en calidad de contribuyente, responsable o deudor de la Municipalidad.
+g. Abogados Internos o Externos: Los licenciados en Derecho, debidamente incorporados al Colegio de Abogados de Costa Rica, que habiendo cumplido con los requisitos que la Municipalidad exige y concursado para ofrecer sus servicios profesionales a la Institución, bajo la normativa de este Reglamento, realicen la gestión de cobro extrajudicial y judicial respectiva para la recuperación de las obligaciones vencidas de esta última.
+h. Cobro Administrativo: Las acciones que se realizan administrativamente por parte de la Administración Tributaria Municipal para efecto de que las obligaciones vencidas sean canceladas por parte de los sujetos pasivos.
+i. Cobro Extrajudicial: Las acciones realizadas extrajudicialmente por los abogados internos o externos para la cancelación de las obligaciones vencidas trasladadas a estos para su respectivo cobro, previo a iniciar la gestión judicial correspondiente.
+j. Cobro Judicial: Las acciones que se realicen por parte de los abogados internos o externos vía judicial, en aras de obtener la recuperación de las obligaciones vencidas trasladadas a estos para su respectivo cobro.

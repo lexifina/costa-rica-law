@@ -1,0 +1,6 @@
+SECCIÓN II
+Sobre el cobro de honorarios profesionales
+Artículo 38.—Cobro de honorarios profesionales. El cobro de honorarios profesionales lo hará directamente el abogado externo, director del proceso al sujeto pasivo en caso de que este pretenda cancelar previo a la terminación del proceso judicial respectivo.
+Dicho cobro se realizará con base en la Tabla de Honorarios vigente del Colegio de Abogados.
+El abogado interno realizará todo trámite por su salario en ejercicio de sus funciones.
+El Departamento de Cobros de la Municipalidad únicamente podrá recibir la cancelación del monto adeudado por el sujeto pasivo mediante la presentación de nota del abogado interno o externo, director del proceso, en donde se indica que han sido cancelados de conformidad los honorarios de abogados y se aportará además copia de la factura emitida por el abogado correspondiente. Asimismo no se solicitará dar por terminado el proceso judicial respectivo, hasta tanto el Departamento de Cobros de la Municipalidad, le indique por escrito al abogado interno o externo director del proceso que se ha recibido de conformidad en las cajas municipales la totalidad de la obligación vencida adeudada por el sujeto pasivo.

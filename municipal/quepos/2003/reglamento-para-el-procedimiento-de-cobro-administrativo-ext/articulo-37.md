@@ -1,0 +1,1 @@
+Artículo 37.—Terminación o suspensión del proceso judicial. Una vez que el cobro judicial haya sido iniciado solo podrá darse por terminado el proceso judicial por el pago total de la suma adeudada a la Municipalidad, incluyendo los costos procesales, personales y cualquier otro gasto generado durante su tramitación o con ocasión del mismo.
