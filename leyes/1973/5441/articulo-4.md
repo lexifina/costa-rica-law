@@ -1,0 +1,1 @@
+Artículo 4º.- Queda autorizada dicha Junta para dar prioridad en la venta del ganado a las instituciones antes mencionadas, al precio que fije la Dirección General de la Tributación Directa y el resto deberá ser subastado.
