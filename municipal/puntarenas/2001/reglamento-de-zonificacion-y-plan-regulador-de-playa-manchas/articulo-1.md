@@ -1,0 +1,14 @@
+MUNICIPALIDAD DEL CANTÓN CENTRAL DE PUNTARENAS
+La Municipalidad de Puntarenas, comunica que en sesión extraordinaria número doscientos sesenta y siete, articulo 3°, inciso Q), acordó:
+La aprobación y puesta en ejecución del plan regulador de sector playa Manchas Azules en Montezuma de Cóbano, entre los mojones 30-A al 44, entre las coordenadas 418458 E- 180654N y 418800E- 181572N, una vez cumplidos todos los requisitos establecidos en la Ley N° 6043 y su reglamento. Además se publican las láminas de usos de suelos, vialidad y el reglamento.
+5.5. Reglamento de Zonificación
+A continuación presentamos el modelo de Reglamento de Zonificación que debe ser adoptado por la Municipalidad de Puntarenas.
+“La Municipalidad del Cantón de Puntarenas, avisa por este medio a los solicitantes de concesión del Sector Costero de Playa Las Manchas Montezuma, distrito de Cóbano y al público en general, la adopción del Reglamento de Zonificación para este sector costero, entre los mojones N°. 30.A y N° 44 que consta de los siguientes artículos":
+Artículo 1°—Establecimiento del Reglamento y objetivos: La Municipalidad del Cantón de Puntarenas, atendiendo a las disposiciones de la Ley N° 6043 sobre la Zona Marítimo Terrestre y reconociendo la necesidad de reglamentar el uso de terrenos en el Sector Costero Turístico de Playa las Manchas en Montezuma del Distrito de Cóbano, dicta el presente "Reglamento de Zonificación" y, que será aplicable a la Zona Marítimo Terrestre, específicamente entre los mojones N° 30A al N° 44 colocados por el Instituto Geográfico Nacional.
+Esta Zona Marítimo Terrestre del sector conocido Playa Montezuma, el cual se ubica entre las coordenadas 180.660N-418.485E/181.559N - 418.800E, de la proyección Lambert, Costa Rica Sur, hoja Cabuya, escala 1:50000. Forma parte de este Reglamento el mapa N° 23, Anexo N° 5, como documento de referencia, en el cual se localizan todas las zonas contempladas en el mismo.
+La Zonificación tiene como objetivo orientar el desarrollo físico del área en mención, con el fin de:
+a. Responder a las características del espacio investigado, las cuales indican una vocación particular para un desarrollo turístico sustentable y de mediana densidad.
+b. Favorecer la conservación y protección de todos aquellos terrenos que por sus condiciones no deban ser utilizados para el desarrollo y que son base para las actividades turísticas.
+c. Fomentar una política de desarrollo físico acorde con la vocación del área y que coadyuve a mejorar las condiciones paisajísticas del sitio.
+d. Contribuir al desarrollo económico regional y la calidad de vida de los habitantes en el entorno inmediato al área sujeto del Plan Regulador.
+e. Lograr el cumplimiento de las normas de la Ley N° 6043 y su reglamento, en lo relacionado al uso del suelo en el sector costero.
