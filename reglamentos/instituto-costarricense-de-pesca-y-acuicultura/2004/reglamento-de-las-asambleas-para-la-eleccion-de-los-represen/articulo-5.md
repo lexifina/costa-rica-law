@@ -1,0 +1,1 @@
+Artículo 5º—El Representante Suplente ejercerá como titular en las sesiones del Comité Director en ausencia del Representante Titular o cuando el Titular se apersone a la sesión transcurridos treinta minutos después de iniciada la misma.

@@ -1,0 +1,1 @@
+Artículo 16.—De no contarse con el quórum señalado en el artículo 15, se tendrá por convocada la misma, en segunda convocatoria, una hora después de la hora señalada para la primera convocatoria, celebrándose la Asamblea General con los miembros de las organizaciones presentes, siempre y cuando el número de organizaciones presentes no sea menor de 10.

@@ -1,0 +1,1 @@
+Artículo 11.—Los Representantes designados por las organizaciones descritas en el artículo 10, deberán aportar al momento de su registro ante la asamblea, el acuerdo de la organización representada, en el cual se consigne si asiste en calidad de propietario o de suplente.

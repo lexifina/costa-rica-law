@@ -1,0 +1,1 @@
+Artículo 21.—Dentro de los miembros de la asamblea se designará un tribunal de elección integrado por tres asambleístas, el cual tendrá bajo su responsabilidad el proceso de elección conforme a lo establecido en el presente Reglamento.

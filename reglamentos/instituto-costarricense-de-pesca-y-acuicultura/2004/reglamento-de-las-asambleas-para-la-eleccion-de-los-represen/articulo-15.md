@@ -1,0 +1,1 @@
+Artículo 15.—La asamblea dará inicio en la fecha y hora fijada en la convocatoria, siempre y cuando, se cuente con un quórum de al menos la mitad más una de las organizaciones registradas ante el Departamento de Extensión y Capacitación del INCOPESCA.
