@@ -1,0 +1,1 @@
+Artículo 6°-Aprobada la orden de pedido, el Departamento de Proveeduría debe realizar las gestiones de adquisición del activo, siguiendo los procedimientos establecidos para la compra de bienes y servicios, según las disposiciones de la institución.

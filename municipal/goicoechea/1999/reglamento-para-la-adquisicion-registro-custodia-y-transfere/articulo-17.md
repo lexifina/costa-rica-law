@@ -1,0 +1,1 @@
+Artículo 17.-Cada jefe de departamento y encargado de sección implantará-los mecanismos necesarios a fin de que pueda tener su propio control y hacer las observaciones que considere pertinentes al informe trimestral que enviará el departamento de Contabilidad.

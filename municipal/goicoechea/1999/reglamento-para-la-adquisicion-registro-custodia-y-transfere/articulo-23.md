@@ -1,0 +1,1 @@
+Artículo 23.-En los casos de activos que por su estado no estén sujetos de donación y tengan que ser desechados, el departamento de Contabilidad solicitará autorización comunicando a las dirección Financiera y Administrativa, para que sean retirados de sus registros.

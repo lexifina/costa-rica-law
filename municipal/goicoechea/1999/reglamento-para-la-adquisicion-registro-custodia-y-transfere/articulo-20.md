@@ -1,0 +1,1 @@
+Artículo 20.-Cuando un funcionario no haya reportado en el tiempo establecido la pérdida de un activo y este es detectado como faltante en un inventario se procederá de oficio al cobro según el valor de reposición.

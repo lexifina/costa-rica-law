@@ -1,0 +1,1 @@
+Artículo 18.-Una vez realizado el inventario físico y de encontrarse diferencias, el departamento de Contabilidad conjuntamente con las Direcciones, comunicará a las jefaturas respectivas las anomalías encontradas para que se proceda a hacer las aclaraciones del caso.

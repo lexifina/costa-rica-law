@@ -1,0 +1,1 @@
+Artículo 11.-EI departamento de Contabilidad contará con un sistema de registro que brindará un inventario permanente de los bienes asignados a cada departamento, sección y funcionario responsable, según la información suministrada por el departamento de Proveeduría.

@@ -1,0 +1,1 @@
+Artículo 5°-Antes de comprar un activo, la Dirección Administrativa deberá analizar la posibilidad de asignar mobiliario y equipo usado en otras dependencias. De ser este el caso, la asignación se tramitará mediante el formulario de "Traslado de Activos"; el cual solicitará al Departamento de Contabilidad.
