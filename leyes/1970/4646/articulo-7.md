@@ -1,0 +1,1 @@
+Artículo 7º.- No podrá ser electo gerente, subgerente o auditor del Banco Central de Costa Rica, de los Bancos Comerciales ni de las instituciones autónomas o semiautónomas, quien hubiere ocupado un cargo como miembro de la Junta Directiva de la respectiva institución durante todos o parte de los dos años anteriores.

@@ -1,0 +1,5 @@
+Artículo 3º.- Agrégase un nuevo artículo a la Ley Orgánica del Sistema Bancario Nacional, Nº 1644 de 26 de setiembre de 1953, Título VII, que diga así:
+"Artículo 178.- Cada Banco del Estado deberá tener un escalafón aprobado por la Auditoría General de Bancos, que venga a garantizar a carrera profesional a los funcionarios bancarios, su inamovilidad y sus ascensos. Debe necesariamente disponer la intercambiabilidad de funcionarios entre los bancos, sin la pérdida de los derechos que les otorgue el escalafón respectivo. En consecuencia, el tiempo servido por un empleado en Bancos del Estado se considerará como prestado en el banco en que se encuentre trabajando, para los efectos legales que puedan derivarse.
+Esta disposición rige para los empleados que en la actualidad estén en esa situación.
+Cualquier funcionario de los bancos que se sienta lesionado en sus intereses recurrirá a la Auditoría citada, que en definitiva dictará la resolución sobre el caso. Esta resolución deberá ser acatada por el respectivo banco".
+Los artículos 178 y 179 pasan a ser 179 y 180 de la ley Nº 1644 citada.
