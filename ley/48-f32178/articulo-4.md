@@ -1,0 +1,2 @@
+Artículo 4° El Estado será el único responsable de las obligaciones nacidas del empréstito en favor de los suscritores del mismo, y el Poder Ejecutivo señalará la renta nacional que deba efectuarse en garantía del pago anual de intereses y amortización del empréstito.
+Para el servicio de éste se dispone que el Tesoro Nacional soporte el pago de los intereses; y cada Junta Escolar que se beneficie con el empréstito aplique anualmente la suma de sus rentas que sea necesaria para la amortización del capítulo tomado por ella.
