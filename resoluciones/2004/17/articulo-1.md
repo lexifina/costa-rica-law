@@ -1,0 +1,7 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº 017-SC.—San José, 1º de julio del 2004
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+- DG-160-2004, se modifica su homóloga la DG-191-2001 correspondiente al Manual Institucional de Clases del Ministerio de Agricultura y Ganadería, con el fin de incluir la carrera de Administración de Empresas con énfasis en Recursos Humanos como atinencia académica de varias clases y cargos.
+- DG-161-2004, se modifica el artículo 1º de su homóloga la DG- 100-2001 del 27 de julio del 2001, mediante la cual se reproduce íntegramente el Manual Institucional de Clases del Ministerio de Salud, a fin de incluir en la misma el cargo Profesional en Administración de Recursos Materiales y Servicios en la clase Profesional Licenciado Administrativo 2 así como de varias atinencias académicas.
+- DG-162-2004, se modifica la Resolución DG-100-2001 del 27 de julio del 2001, mediante la cual se aprobó el Manual Institucional de Clases del Ministerio de Salud, para que se incluya en el apartado de Atinencias Académicas, la carrera de Administración de Compras y Control de Inventarios para la clase Técnico Administrativo, cargo Técnico en Administración de Recursos Materiales y Servicios.
+- DG-166-2004, se modifica el artículo 1º de la Resolución DG- 184-99 del 2 de diciembre de 1999, que crea el Manual Institucional de Clases de la Procuraduría General de la República y se valora varias clases institucionales de la Procuraduría General de la República.
