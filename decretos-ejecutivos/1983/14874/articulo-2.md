@@ -1,4 +1,5 @@
-Artículo 2°.- El precio de venta de los productos suministrados por RECOPE para consumo nacional, será determinado por el SNE de acuerdo con el siguiente procedimiento:
+Artículo 2°.- El precio de venta de los productos suministrados por RECOPE para consumo nacional, será determinado por el SNE de acuerdo con el siguiente procedimiento ordinario, el cual deberá aplicarse durante el primer trimestre de cada año, así como cuando la Refinadora Costarricense de Petróleo, lo estime necesario.
+(Así reformado el párrafo anterior por el artículo 2° del decreto ejecutivo N° 19870 del 23 de agosto de 1990)
 I) RECOPE presentará un estudio de revisión de precios completo, junto con la solicitud correspondiente, de los precios sugeridos para cada producto y brindará la información periódica que aquí¡ se señala o que en el futuro se considere necesario. Dicho estudio incluirá:
 En cuanto al mercado: Información que se enviará mensual y periódicamente.
 a) Ventas de combustibles por tipo de producto en volumen y colones, según destinatario; por meses.
@@ -63,4 +64,4 @@ a) Lista mensual de precios internacionales pagados por RECOPE, desde la última
 b) Gastos totales estimados por RECOPE, en su presupuesto anual vigente, lo mismo que el gasto total estimado correspondiente a la importación de petróleo crudo y derivados, previsto en su presupuesto anual vigente.”
 XIII-Analizada la información contenida en el artículo precedente, si se produseje el resultado previsto en el artículo 1° de este Decreto, el Servicio Nacional de Electricidad procederá, a solicitud de RECOPE, a ajustar los preciso internos de todos los productos que expende en el mercado local, conforme con la fórmula expuesta, para lo cual la Junta Directiva del citado ente tomará la respectiva resolución, que regirá a partir de su publicación en “La Gaceta”:
 XIV. El procedimiento contenido en el presente decreto ejecutivo no requiere la consulta previa al Ministerio de Recursos Naturales, Energía y Minas.
-(*)(Así reformado por el artículo 1° del decreto ejecutivo N° 19839 del 4 de julio de 1990)
+(*)(Así reformado por el artículo 1° del dcereto ejecutivo N° 19839 del 4 de julio de 1990)
