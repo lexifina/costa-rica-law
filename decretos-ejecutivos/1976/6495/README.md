@@ -14,3 +14,4 @@ Concede a los artesanos y pequeños industriales la exoneración del 100% de los
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-11-25 | la propia norma |
+| 2 | 1981-05-25 | Decreto Ejecutivo 12664 (1981-05-25) |
