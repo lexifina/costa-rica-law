@@ -1,0 +1,1 @@
+Art 2° Nombrase igualmente Magistrado propietario de la misma Corte a los Sres. Licdos Don Vicente Sáenz D. José Ana Herrera, D José Rodríguez D. José María Ugalde y D. Alejandro Alvarado y Fiscal al Sr. Licdos, D. Antonio Álvarez, El primero de los nombrados en este artículo presidirá la Sala 2°
