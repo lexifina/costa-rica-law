@@ -1,0 +1,1 @@
+Art 2.- Los Magistrados propietarios de que habla el artículo anterior, se presentaran en el edificio de la Asamblea el Miércoles próximo 3 del entraente a prestar el juramento correspondiente, y tomar posesión de sus respectivos destinos
