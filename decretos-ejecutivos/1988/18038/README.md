@@ -13,3 +13,4 @@ Reglamenta Pensiones de Guerra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-03-10 | la propia norma |
+| 2 | 1988-03-10 | Decreto Ejecutivo 18066 (1988-03-14) |
