@@ -1,8 +1,10 @@
+(Derogado)
 PODER EJECUTIVO
 DECRETOS
 Nº 29373-MEP
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE EDUCACIÓN PÚBLICA
+Este Decreto fue DEROGADO por el artículo 155 del Reglamento de Evaluación de los Aprendizajes, Decreto Ejecutivo N° 31635 de 4 de febrero de 2003, publicado en La Gaceta N° 30 de 12 de febrero de 2004.
 En ejercicio de las atribuciones que les confiere el artículo 140, incisos 8) y 18) de la Constitución Política y, lo dispuesto en el artículo 81 de la Constitución Política, en la Ley Orgánica del Consejo Superior de Educación, Ley Nº 1362 del 8 de octubre de 1951 y en el artículo 2º de la Ley Orgánica del Ministerio de Educación Pública, Ley N° 3481 del 13 de enero de 1965.
 Considerando:
 Que mediante Decreto Ejecutivo Nº 28.457-MEP del 2 de febrero de 2000, publicado en La Gaceta Nº 33 del 16 de febrero del 2000, reformado por el Decreto Ejecutivo Nº 28.729 del 24 de mayo del 2000, publicado en La Gaceta Nº 131 del 7 de julio del 2000, se promulgó el Reglamento de Evaluación Educativa.
