@@ -1,0 +1,2 @@
+Transitorio.—Una vez que este Reglamento haya sido publicado en el Diario Oficial La Gacela, e! equipo de telefonía móvil que ya había sido asignado, será revisado por el Coordinador del Área Administrativa- Financiera, quien de considerarlo necesario y por acto motivado, podrá revocarlo sin ninguna responsabilidad para la Institución.
+Este Reglamento rige a partir de su debida aprobación por el Consejo Nacional de Deportes y la Recreación y la publicación el Diario Oficial La Gaceta.
