@@ -1,0 +1,2 @@
+Artículo 5º—Inicio del Procedimiento. Firme el acto que aprueba la detección de la necesidad y el perfil del consultor, el Inspector General procederá a confeccionar un Expediente Administrativo de público acceso a los ciudadanos, en el cual se harán constar estos dos actos mencionados anteriormente.
+Este Expediente Administrativo será custodiado en el Órgano Fiscalizador y estará sujeto a todas las disposiciones legales usuales a los documentos públicos.

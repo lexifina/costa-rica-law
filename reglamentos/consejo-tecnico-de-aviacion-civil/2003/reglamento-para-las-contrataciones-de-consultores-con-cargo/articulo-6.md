@@ -1,0 +1,2 @@
+Artículo 6º—Invitaciones a participar. El Inspector General podrá invitar por escrito a presentar ofertas a todas aquellas personas o empresas que le hayan sido recomendadas y que se ajusten al perfil. Adicionalmente, se deberá utilizar el Registro de Proveedores de la Dirección General de Aviación Civil.
+En caso de inopia o falta de interés de los invitados, se podrá hacer una invitación en uno o dos diarios de circulación nacional, siendo el costo de dichas publicaciones a cargo del Consejo Técnico de Aviación Civil.

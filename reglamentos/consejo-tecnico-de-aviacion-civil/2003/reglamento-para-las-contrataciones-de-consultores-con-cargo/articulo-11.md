@@ -1,0 +1,1 @@
+Artículo 11.—Recursos. El acto de aprobación del informe del Inspector General tendrá los recursos ordinarios y extraordinarios que le confiere la Ley General de Aviación Civil y la Ley General de la Administración Pública a los actos del Consejo Técnico de Aviación Civil.

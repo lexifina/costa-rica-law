@@ -1,0 +1,2 @@
+Artículo 13.—Fiscalización. Corresponde al Inspector General la fiscalización de los contratos de consultoría que se celebren de conformidad con el fondo de fiscalización, de todo lo cual deberá mantener debidamente informado a este Consejo.
+La Auditoria Interna de la Administración o la Contraloría General tendrán facultades irrestrictas de investigación y control sobre estos contratos y el Banco de Costa Rica estará obligado a brindarles los datos que pidan referentes a este Fondo de Fiscalización, sin que para ello requieran de autorización expresa de ninguna clase.

@@ -1,0 +1,1 @@
+Artículo 2º—Desembolsos. El Fideicomiso únicamente podrá desembolsar estos fondos para la contratación de las personas físicas o jurídicas que se requieran para la prestación de servicios profesionales, especializados y no administrativos, relacionados con la fiscalización del Contrato.

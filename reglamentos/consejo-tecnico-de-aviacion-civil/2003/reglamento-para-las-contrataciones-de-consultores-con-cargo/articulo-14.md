@@ -1,0 +1,1 @@
+Artículo 14.—Aplicación analógica de normas. Cuando sea necesario para resolver situaciones o interpretar cláusulas contractuales, se recurrirá a la Ley de Contratación Administrativa y su Reglamento General de Contratación Administrativa, así como a la jurisprudencia de la Contraloría General emitida sobre contratos administrativos.

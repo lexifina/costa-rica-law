@@ -1,0 +1,1 @@
+Artículo 10.—Aprobación de la Recomendación. El Consejo Técnico de Aviación Civil aprobará la recomendación del Inspector General, si los motivos que la fundamentan son suficientes y adecuados. En caso de discrepar, podrán pedir las ampliaciones y justificaciones que sean necesarias.

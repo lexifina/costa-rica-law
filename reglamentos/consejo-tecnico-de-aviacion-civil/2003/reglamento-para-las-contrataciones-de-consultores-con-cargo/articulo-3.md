@@ -1,0 +1,2 @@
+Artículo 3º—Detección de la necesidad. Corresponde al Inspector General determinar y justificar la necesidad de una contratación de servicios profesionales con cargo al Fondo de Fiscalización, para lo cual deberá presentar al Consejo Técnico de Aviación Civil una motivación detallada, indicando la existencia de fondos para hacerle frente y los objetivos y plazo que se pretenden cubrir.
+El Consejo Técnico de Aviación Civil podrá aprobar o improbar esta solicitud, o requerir de información adicional que se estime conveniente.

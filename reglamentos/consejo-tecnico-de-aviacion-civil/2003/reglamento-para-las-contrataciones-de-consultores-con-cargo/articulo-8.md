@@ -1,0 +1,2 @@
+Artículo 8º—Plazo para presentar las ofertas. Los interesados en el llamado del Inspector General, deberán presentar su oferta en un sobre cerrado, a la hora y fecha indicadas en la invitación, para lo cual se les deberá dar un plazo razonable de acuerdo a la complejidad del objeto contractual, que en todo caso no podrá ser menor a tres días hábiles.
+Los defectos de las ofertas podrán ser subsanados cuando así sea necesario, de modo que se facilite su conservación.

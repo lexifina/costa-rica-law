@@ -1,0 +1,2 @@
+Artículo 12.—El contrato. Firme el acto donde se acuerda la contratación, se continuará con el procedimiento que establece el contrato de Gestión Interesada para la firma del contrato respectivo, del cual se deberá dejar una copia en el Expediente Administrativo.
+Este Expediente Administrativo deberá contener todos los documentos relacionados con los productos y servicios que brinde el consultor, tales como facturas, informes y otros, de modo que se facilite el control posterior de sus obligaciones.
