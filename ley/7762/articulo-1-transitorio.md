@@ -1,0 +1,1 @@
+Transitorio I.- Dentro de los treinta días hábiles siguientes a la entrada en vigor de la presente ley, mediante publicación en La Gaceta y dos diarios de circulación nacional, el Consejo de Gobierno convocará a las cámaras y organizaciones mencionadas en el artículo 6.2, para que presenten sus ternas y se proceda a instalar el Consejo Nacional de Concesiones.
