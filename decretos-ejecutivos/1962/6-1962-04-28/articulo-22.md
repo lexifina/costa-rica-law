@@ -1,0 +1,1 @@
+Artículo 22— Los ingresos que produzca los conciertos deberán destinarse, mientras las condiciones económicas lo permitan a juicio de la Junta Directiva, a un plan de sobresueldos proporcional al personal de la Orquesta y a un fondo de ahorro y préstamo regulado por reglamentación interna.

@@ -1,0 +1,1 @@
+Artículo 7°— Todos los acuerdos deberán tomarse por mayoría absoluta de los presentes y podrán ser revisados en la sesión siguiente a instancia de uno de los miembros de la Junta, con excepción de los acuerdos firmes.

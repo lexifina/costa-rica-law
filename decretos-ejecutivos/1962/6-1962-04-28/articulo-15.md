@@ -1,0 +1,5 @@
+Artículo 15— El Director de la Orquesta es la autoridad técnica superior de la misma y sus funciones serán:
+a) Elaborar los planes reguladores de la orquesta y los programas de cada concierto que a él corresponda dirigir y someterlos oportunamente a consideración de la Junta Directiva, para la aprobación necesaria por parte de ésta.
+b) Dirigir los conciertos que indique el contrato de trabajo respectivo y los ensayos correspondientes, de acuerdo con el plan de trabajo aprobado, no pudiendo faltar a ellos sino por razones justificadas, a juicio de la Junta Directiva. En esos casos la Junta, respetando la organización de la Orquesta, designará la persona que habrá de sustituirlo.
+c) Esforzarse porque la labor de la Orquesta sea la mejor posible y dictar las medidas técnicas y disciplinarias que juzgue convenientes. Para ello deberá informar a la Junta Directiva de las diferencias y necesidades que notare.
+d) Proponer a la Junta Directiva los nombres del personal ordinaria de la Orquesta, y asesorarla cuando ésta lo solicite, en asuntos técnicos o referentes al personal de la Orquesta.
