@@ -1,0 +1,1 @@
+6°—Todo beneficiario manifestará por escrito, su conformidad con las disposiciones de la Contraloría General de la República, las contenidas en el inciso 4) del artículo 4 del Código Municipal y el Reglamento de la Ley del Plan de Desarrollo Urbano, según D.E. N° 11284-G del 29 de febrero de 1980. El incumplimiento de lo anterior hará perder el beneficio otorgado.
