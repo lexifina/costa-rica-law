@@ -1,0 +1,4 @@
+LEY DE DEROGATORIA DE LOS ARTICULOS
+333 Y 334 DEL CODIGO PENAL
+ARTICULO 1.-Deróganse los artículos 333 y 334 del Código
+Penal.
