@@ -1,0 +1,1 @@
+Artículo 4°—Se autoriza al Banco Central de Costa Rica para hacer las aportaciones que correspondan al país en la Cámara de Compensación Centroamericana y a efectuar los pagos de conformidad con el Convenio.

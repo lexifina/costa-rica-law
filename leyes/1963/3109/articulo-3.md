@@ -1,0 +1,1 @@
+Artículo 3°—La Junta Directiva del Banco Central de Costa Rica designará al representante de la Institución ante la Cámara y determinará la política general que éste deberá seguir en las funciones que le competen en el citado organismo internacional.
