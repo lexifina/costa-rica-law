@@ -33,15 +33,28 @@ Punto | Coord. Vert. | Horizontal | Distancia M
 3 | 543000 | 214000 | 2.200
 4 | 541000 | 213000 | 2.000
 Cubre una área aproximada de 650 Has.
-Cerros de Escazú: Hoja Abra 3345 I en las siguientes coordenadas Lam.
-0 | 517000 | 202000 | 6.000
-1 | 517000 | 208000 | 6.000
-2 | 523000 | 208000 | 6.000
-3 | 523000 | 202000 | 6.000
-Abarca una extensión de 3.600 hectáreas
+(*)Cerros de Escazú: Hoja cartográfica Abra 3345 del Instituto Geográfico Nacional, definidos por las coordenadas que se indican a continuación:
+Punto | Coord. vertical | Coord. horizontal | Distancia metros
+0 | 517000 | 203000 | 1000 m.
+1 | 516000 | 203000 | 4350 m.
+2 | 513000 | 206000 | 350 m.
+3 | 513000 | 206550 | 5800 m.
+4 | 511000 | 212000 | 2450 m.
+5 | 513450 | 212000 | 1300 m.
+6 | 514550 | 211250 | 1250 m.
+7 | 514600 | 210000 | 14000 m.
+8 | 516000 | 210000 | 14000 m.
+9 | 517000 | 209000 | 14000 m.
+10 | 518000 | 210000 | 3600 m.
+11 | 521000 | 208000 | 2000 m.
+12 | 523000 | 208000 | 6000 m.
+13 | 523000 | 202000 | 6000 m.
+14 | 517000 | 202000 | 1000 m.
+Área aproximada: 7 060 hectáreas.
+(*) (Así reformado por el artículo 1° del decreto ejecutivo N° 14672 del 20 de junio de 1983)
 (*) El Rodeo: Hoja Abra 3345 I y Río Grande 3345 IV. El área cubierta por las siguientes coordenadas Lam
 (*)(Mediante decreto ejecutivo N° 12368 del 26 de febrero de 1981, se dejo sin efecto la Zona Protectora el Rodeo, posteriormente el decreto ejecutivo N° 12368 fue derogado por el artículo 4° del decreto ejecutivo N° 12608 del 12 de mayo de 1981. Se advierte que dicha derogación no se ha aplicado a esta zona, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver ésta al estado anterior a dicha derogación)
-Río Grande: Hoja Naranjo 3346 III . Ubicado dentro de las siguientes coordenadas Lambert.
+Río Grande: Hoja Naranjo 3346 III. Ubicado dentro de las siguientes coordenadas Lambert.
 0 | 491000 | 222000 | 5.100
 1 | 492000 | 227000 | 2.00
 2 | 494000 | 227000 | 5.100
