@@ -1,14 +1,2 @@
-Artículo 2°-La Comisión estará integrada por:
-El Ministro de Obras Públicas y Transportes o su delegado.
-El Director de la Oficina de Planificación o su delegado.
-El Director General de Aduanas.
-Dos asesores del Presidente de la República y representantes por cada una de las siguientes instituciones:
-Ministerio de Economía, Industria y Comercio.
-Junta de Administración Portuaria y. de Desarrollo Económico de la Vertiente Atlántica.
-Instituto Costarricense de Puertos del Pacífico.
-Junta Administrativa Portuaria de Quepos.
-Cámara Nacional de Bananeros o Cámara de Agentes de Aduana.
-Cámara Nacional de Armadores y Agentes de Vapores.
-Cámara de Industrias.
-Cámara de Comercio.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 3036 del 12 de junio de 1973)
+Artículo 2°-Dicha Comisión estará integrada por el Ministro o Viceministro de Obras Públicas y Transportes, el Director o Subdirector de la Oficina de Planificación, el Gerente del Banco Central o su Delegado, el Director General de Aduanas, por representantes de la Junta de Administración Portuaria y de Desarrollo de la Vertiente Atlántica, del. Ministerio de Agricultura, de la Cámara Nacional de Bananeros, del Instituto Costarricense de Puertos del Pacífico, de la Cámara de Agentes de Aduana de Costa Rica, de la Cámara Nacional de Armadores y Agentes de Vapores, de la Cámara de Industrias de Costa Rica, de la Cámara de Comercio de Costa Rica y por un Delegado personal del Presidente de la República
+(Así reformado por el artículo 1° del decreto ejecutivo N° 4542 del 6 de febrero de 1975)
