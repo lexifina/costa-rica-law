@@ -1,0 +1,2 @@
+Art. 2°-Quedan derogadas las leyes y disposiciones que declaran feriados los demás días no enumerados en el artículo anterior.
+AL PODER EJECUTIVO.-Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintiún días del mes de mayo de mil ochocientos ochenta y seis.-A. ESQUIVEL, Presidente.-A. VENEGAS, Secretario.-MÁXIMO FERNÁNDEZ, Secretario.-Palacio Presidencial.-San José, á veintiuno de mayo de mil ochocientos ochenta y seis. -Ejecútese.-BERNARDO Soto.-El Secretario de Estado en el despacho de Gobernación,-CARLOS DURÁN.
