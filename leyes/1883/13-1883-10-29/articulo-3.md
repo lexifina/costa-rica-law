@@ -1,0 +1,1 @@
+Art. 3° - En los negocios hoy en curso, no procederá la separación á que se refieren los artículos anteriores; pero será causa de excusa y de recusación para el juez, el hecho de que esté intervenido en el negocio como abogado ó procurador alguno de sus parientes dentro del tercer grado de consanguinidad ó segundo de afinidad.
