@@ -13,3 +13,4 @@ Crea Distritos Monte Romo Puerto Carrillo y Huacas del Cantón Hojancha
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-06 | la propia norma |
+| 2 | 1999-08-06 | SINALEVI (sin norma nombrada) |
