@@ -1,0 +1,1 @@
+Artículo 2°-Las dependencias del Estado y las instituciones y empresas públicas podrán contribuir con recursos humanos y materiales en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, para la exitosa realización de la actividad indicada.
