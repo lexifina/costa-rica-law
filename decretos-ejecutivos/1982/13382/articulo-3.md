@@ -1,0 +1,1 @@
+Artículo 3°.-Las entidades públicas que poseen terrenos en la zona afectada podrán continuar haciendo uso de éstos hasta tanto no sean requeridos por el Estado para los propósitos enumerados, y siempre que se ajusten al reglamento de usos del suelo a que se refiere el artículo 2° del presente decreto.
