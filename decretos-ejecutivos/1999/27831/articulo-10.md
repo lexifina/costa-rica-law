@@ -1,0 +1,1 @@
+Artículo 10.—El plazo máximo para la presentación de solicitudes para el pago de servicios ambientales para el año mil novecientos noventa y nueve, será hasta el treinta y uno de julio de mil novecientos noventa y nueve.

@@ -1,0 +1,1 @@
+Artículo 11.—Los contratos para la ejecución de los planes de manejo forestales que se financien con los recursos autorizados en este decreto deben firmarse a más tardar el treinta y uno de diciembre de mil novecientos noventa y nueve.
