@@ -1,0 +1,8 @@
+Artículo 2°-Las sociedades particulares que de acuerdo con su objeto puedan dedicarse a almacenes fiscales deberán formular la correspondiente solicitud ante dicho Ministerio, llenando los siguientes requisitos:
+a) Certificación expedida por el Registro Público de la existencia de la sociedad, indicando su objeto y capital pagado, que no podrá ser menor de un millón de colones;
+b) Señalar la ubicación de los edificios para almacenaje;
+c) Presentar los planos de los edificios de la sociedad, los que deberán ser preferentemente de cemento armado o de estructura mixta de ladrillo-concreto, armadura de hierro para techo y pisos de concreto y con las demás especificaciones que señala el Reglamento de la Ley de Almacenes Generales de Depósito de 4 de abril de 1935;
+d) Ofrecer garantía satisfactoria, a juicio del Ministerio de Economía y Hacienda, por suma no menor de cien mil colones por cada Aduana en que se opere, por el cumplimiento de los requisitos legales y por la responsabilidad de la empresa señaladas en el artículo 99 de la ley;
+e) Obligarse a aceptar la inspección y vigilancia que ejercerá el Ministerio de Economía y Hacienda directamente o por medio de la Contaduría Mayor y del Administrador de Aduana correspondiente, de conformidad como lo que expresa el artículo 6° de la ley;
+f) Comprometerse a suscribir y mantener una Póliza Flotante contra todo, los riesgos que puedan afectar las mercaderías depositadas y que concede el Instituto Nacional de Seguros. Las primas correspondientes serán cargadas proporcionalmente a los depositantes.
+g) Presentar las tarifas que se cobrarán por el manejo y bodegaje de las mercaderías .

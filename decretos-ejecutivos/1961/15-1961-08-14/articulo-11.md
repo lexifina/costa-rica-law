@@ -1,0 +1,1 @@
+Artículo 11.-Las mercaderías depositadas en los Almacenes de Depósito Fiscal podrán permanecer en ellos hasta por el período de dos ailos a partir de la fecha en que fueron recibidas por la aduana. Este plazo podrá ser prorrogado 'hasta por un año más a solicitud del interesado, siempre que así lo autorice la Contaduría Mayor o el Administrador de Aduana respectivo.

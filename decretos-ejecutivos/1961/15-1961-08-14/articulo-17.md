@@ -1,0 +1,1 @@
+Artículo 17 .-La Ley de Almacenes de Depósito Fiscal reforma las que traten sobre las mismas materias en cuanto sean contradictorias. En todo aquello que no esté previsto se aplicarán los principios generales que rigen la materia, el Código Fiscal, la Ley de Almacenes Generales de Depósito y las demás leyes que sean aplicables.

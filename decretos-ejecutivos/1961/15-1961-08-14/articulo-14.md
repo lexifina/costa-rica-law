@@ -1,0 +1,1 @@
+Artículo 14. -Cuando por las autoridades competentes fuere ordenada la destrucción de una mercadería depositada en un Almacén, dicha destrucción deberá hacerse de conformidad con las disposiciones legales en la materia y en presencia de los funcionarios de Aduana.
