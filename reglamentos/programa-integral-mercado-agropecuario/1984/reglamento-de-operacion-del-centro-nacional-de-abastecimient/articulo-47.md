@@ -18,3 +18,7 @@ m) Ejercer presión, amenazas o cualquier acto de deslealtad comercial para que 
 n) Establecer ventas ambulantes; excepto las autorizadas por el Consejo Directivo.
 o) Obstruirlos frentes de los puestos, locales o áreas; los andenes, corredores internos o externos, y calles de circulación con artículos, enseres o mostramos de cualquier género.
 p) Colocar tarimas, cajones, bultos o asientos en las calles del CENADA o en cualquier otra zona no destinada a la comercialización.
+q- Irrespetar la sectorización dispuesta por la administración.
+r- Realizar cualquier actividad o acción que atenté contra la salud, seguridad y buenas costumbres.
+s- Uso indebido de las facilidades y servicio que brinda el CENADA a los usuarios (se entenderán como facilidades y servicios, el marchamo de ingreso mensual, los accesos y salida de vehículos, la recolección de desechos, los servicios telefónicos públicos, las señales e indicaciones de sector, el tamaño y dimensiones de los toldos autorizados, y cualquier otra que se defina en el futuro y sea comunicado mediante circulares).
+(Así AMPLIADO por la Sesión N° 1865 de 09 de setiembre de 1998, publicada en La Gaceta N° 206 de 23 de octubre de 1998, la cual adicionó los incisos q), r) y s).)
