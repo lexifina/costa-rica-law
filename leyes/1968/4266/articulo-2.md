@@ -1,0 +1,1 @@
+Artículo 2°--Las tarifas para la energía eléctrica que la concesionaria deberá suministrar a las oficinas del Gobierno, conforme a la presente concesión, no podrán ser superiores a las que tiene establecidas el Instituto Costarricense de Electricidad, en la ciudad de Limon.
