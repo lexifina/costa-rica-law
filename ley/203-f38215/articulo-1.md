@@ -1,6 +1,6 @@
 (Derogado)
 N° 203
-(Esta norma fue derogada por el artículo 11 de la ley N° 2570 del 3 de junio de 1960, "Autoriza a la Municipalidad de Nicoya a vender lotes resultantes de la división de su finca")
+(Esta norma fue derogada por el artículo 11 de la ley N° 2570 del 3 de junio de 1960, "Autoriza a la Municipalidad de Nicoya a vender lotes resultantes de la división de su finca". Posteriormente por el numeral 7° de la ley N° 4862 del 7 de octubre de 1971, Autoriza a la Municipalidad del cantón de Nicoya para que el resto de la finca que le pertenece sea donada a familias que cumplen requisitos", se vuelve a derogar esta norma)
 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
 Tomando en consideración los reparos formulados por el Poder Ejecutivo al decreto N° 68 de 17 de junio próximo pasado, en acatamiento a lo dispuesto por el artículo 89 de la Constitución Política,
 DECRETA:
