@@ -1,0 +1,4 @@
+INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal, comunica para los efectos pertinentes, el acuerdo quinto, artículo cuatro de la sesión extraordinaria No 2529, celebrada el día 6 de setiembre del año en curso, mediante el cual se reforma el artículo 90 del Reglamento Autónomo de Organización y Servicio del Instituto, para que en lo sucesivo se lea:
+"Las vacaciones son absolutamente incompensables, pero si se tratare de labores que no sean pesadas, peligrosas ni insalubres y que exijan , continuidad por la índole de las necesidades que satisfacen, a solicitud de la Administración el trabajador podrá consentir en prestar sus servicios durante el periodo de vacaciones, dependiendo de las posibilidades financieras del IFAM".
+Moravia, 11 de setiembre de 1995.—
