@@ -13,3 +13,4 @@ Declara Provincia de Interés Turístico-Cultural a Guanacaste
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-08-17 | la propia norma |
+| 2 | 1990-08-17 | SINALEVI (sin norma nombrada) |
