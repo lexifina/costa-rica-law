@@ -1,0 +1,1 @@
+Art. 7. Es permitido a los actuales tenedores de patentes para venta de vino expenderlo por reales y medios hasta fines del presente año; pero desde el 1° de enero del año venidero en adelante no podrá menudearse éste, sino solo por cuenta del Estado en las ventas de licores extranjeros establecidas.

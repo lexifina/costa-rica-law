@@ -1,0 +1,1 @@
+Art. 5.-En la compra de licores solo al aguardiente de España se le exigirá el peso de veinticinco grados arriba; pero los otros de cualquier clase que sean deben tener precisamente de veintiuno a veintidos grados por lo menos, y que sean de buen gusto.

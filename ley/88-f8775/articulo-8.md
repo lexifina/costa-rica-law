@@ -1,0 +1,1 @@
+Art. 8.-Para la proveduria de licores extranjeros por uno á dos años, fijará el Intendente carteles en todos los puntos en donde deben establecerse ventas de estos, convocando postores; exigiendo de los rematarios que el embase de todos los licores de que han de proveer, sea en botellas del tamaño en que se menudea el aguardiente del país en las ventas del Estado.

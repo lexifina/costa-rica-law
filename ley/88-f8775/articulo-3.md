@@ -1,0 +1,1 @@
+Art. 3. Como las mistelas que se contraten para el abasto no pueden ser pesadas, sino que su valor depender de su finura y mejor calidad, se asociará el Intendente de dos inteligentes, al tiempo de contratarlas, para que con presencia de muestras las califiquen; mas para las introducidas ya, bastará atender al valor que conste en la certificación de que habla el art. anterior.

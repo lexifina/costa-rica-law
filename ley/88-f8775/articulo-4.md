@@ -1,0 +1,1 @@
+Art. 4. El valor de las mistelas que se dan a la venta pública dependerá del precio a que se compren éstas, y los gastos que hayan tenido debiendo fijarlo para el expendio el Intendente; encargándole el ciento sobre su importe total.
