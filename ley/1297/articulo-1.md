@@ -1,0 +1,2 @@
+Artículo 1º.- Reformase el artículo 189 del Código de Educación, en su párrafo primero, el que se leerá así:
+"Artículo 189.- No se acumularán dos o más pensiones en una persona, excepto, que la suma de ellas o exceda de ¢ 200.00 (doscientos colones) por mes. En el caso de un agraciado con varias pensiones, se limitará el monto de éstas a ¢ 200.00, siempre que ninguna de tales pensiones individualmente exceda de esa suma."
