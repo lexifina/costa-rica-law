@@ -14,3 +14,4 @@ Reglamento Autónomo de Trabajo de la Junta Administrativa de Servicio Eléctric
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-10-30 | la propia norma |
+| 2 | 1990-09-20 | Reglamento 2543 (1990-09-20) |
