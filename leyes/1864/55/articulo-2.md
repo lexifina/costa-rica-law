@@ -1,0 +1,1 @@
+Art. 2. Se señalan las doce del miércoles cuatro del presente mes, para que los nombrados presten el juramento constitucional. Al Poder Ejecutivo. Dado en el Salón de sesiones. - Palacio Nacional. -San José, mayo dos de mil ochocientos sesenta y cuatro Palacio Nacional. San José. Mayo tres de mil ochocientos sesenta y cuatro.
