@@ -5,9 +5,9 @@ siguientes normas:
 a) Si el servidor fuere trasladado, no habrá interrupción alguna en
 cuanto al cómputo del tiempo para el aumento de salario;
 b) Si el servidor fuere promovido, comenzará a percibir el mínimo de
-la nueva categoría; sin embargo, si en el antiguo puesto hubiere adquirido
-derecho a uno o más aumentos anuales, éstos se le computarán de acuerdo
-con la categoría del cargo al cual se le promueve;
+la nueva categoría; sin embargo, si en el antiguo puesto hubiere
+adquirido derecho a uno o más aumentos anuales, éstos se le computarán de
+acuerdo con la categoría del cargo al cual se le promueve;
 c) No interrumpirá el período requerido para el aumento de sueldo,
 las suspensiones legales por motivos de enfermedad, riesgo profesional,
 vacaciones, licencias para cursos de adiestramiento o capacitación,

@@ -13,5 +13,3 @@ político-electorales, o violación de cualquier otro derecho que concedan
 las leyes; y
 d) Aceptar dádivas o recompensas como retribución por actos
 inherentes a sus empleos.
-CAPITULO XII
-Correcciones Disciplinarias
