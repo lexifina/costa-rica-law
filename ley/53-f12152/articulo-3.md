@@ -1,0 +1,1 @@
+Art. 3 En consecuencia, los Presidentes municipales antedichos se presentarán en este Despacho el Sábado 13 del Corriente á las 10 de la mañana, á prestar en manos del Gobierno, el juramento de ley y tomar posesión del encargo que se les confiere.
