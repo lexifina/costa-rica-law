@@ -1,1 +1,0 @@
-Artículo 22.-Para asegurar la participación de la comunidad en la planificación regional y urbana, deben. considerarse como unidades de apoyo del Sistema creado por este reglamento las federaciones y las asociaciones de desarrollo de la comunidad existentes en las regiones o zonas correspondientes.

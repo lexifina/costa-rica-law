@@ -1,1 +1,0 @@
-Artículo 24.-Las normas, acuerdos o disposiciones del Consejo Nacional de Política Regional y Urbana, una vez publicados en forma de decreto por el Poder Ejecutivo y de acuerdo con las disposiciones legales vigentes, tienen fuerza obligatoria y son de acatamiento imperativo para todos los organismos e instituciones del sector público.

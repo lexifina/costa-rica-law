@@ -1,1 +1,0 @@
-Artículo 18-Las oficinas de planificación cantonales e intercantonales deben mantenerse vinculadas técnicamente de las Oficinas Integradas de Coordinación Regional yo funcionarán como Secretarías Ejecutivas de los Consejos de Desarrollo Local.

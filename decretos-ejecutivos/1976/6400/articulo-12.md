@@ -1,1 +1,0 @@
-Artículo 12.-Los Consejos Regionales o Locales de Desarrollo serán creados por decreto conforme a los procedimientos indicados en el artículo 9°. El Poder Ejecutivo indicará los organismos públicos o privados que tendrán representación en el Consejo, se fijará la sede para. sus actividades y se establecerán las normas generales para su funcionamiento.
