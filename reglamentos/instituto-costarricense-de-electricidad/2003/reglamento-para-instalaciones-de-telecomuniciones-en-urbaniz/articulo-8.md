@@ -1,0 +1,2 @@
+Artículo 8º—Materiales y equipos. El desarrollador/urbanizador deberá emplear materiales y/o equipos que cumplan con todas las normas y especificaciones técnicas establecidas por el ICE, las cuales serán suministradas conforme lo dispone el artículo 17 del presente reglamento.
+En el caso de materiales y/o equipos especializados cuya adquisición en el país resulte imposible para el desarrollador/urbanizador, serán suministrados por el ICE, previo depósito del costo respectivo por parte del interesado.

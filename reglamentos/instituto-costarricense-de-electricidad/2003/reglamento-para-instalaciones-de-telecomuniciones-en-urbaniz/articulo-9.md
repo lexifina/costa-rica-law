@@ -1,0 +1,4 @@
+Artículo 9º—Traspaso de la red. El ICE realizará las inspecciones que considere necesarias durante la construcción de la red dejando registro de cada una de ellas en la bitácora respectiva, comunicando los resultados tanto al desarrollador/urbanizador como a la empresa constructora.
+Una vez concluida la obra, el desarrollador/urbanizador lo comunicará al ICE para que realice la inspección final. El ICE dispondrá de diez (10) días hábiles para aceptar o rechazar la misma.
+Con la aceptación definitiva de la obra, la red y todos sus bienes pasarán a ser propiedad del ICE, quien en lo sucesivo será el encargado de operarla y mantenerla hasta el punto de interconexión con la red interna establecida por el RITE.
+El ICE será el encargado de la interconexión de dicha red con el resto de las redes del SNT, así como de la instalación de los futuros clientes.

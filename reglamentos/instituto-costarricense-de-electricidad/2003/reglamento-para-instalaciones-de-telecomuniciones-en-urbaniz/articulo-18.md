@@ -1,0 +1,1 @@
+Artículo 18.—Resolución de controversias: Toda controversia que se suscite entre el desarrollador/urbanizador y el ICE en la aplicación del presente reglamento, será tramitada, investigada y resuelta de acuerdo con los procedimientos administrativos establecidos en la Ley General de la Administración Pública.

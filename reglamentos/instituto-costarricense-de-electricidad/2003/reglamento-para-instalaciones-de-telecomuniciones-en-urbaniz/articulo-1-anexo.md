@@ -1,0 +1,45 @@
+ANEXO Nº 1
+Formulario A: Solicitud de diseño de la red de distribución y canalización de telecomunicaciones.
+Formulario B: Solicitud de demanda de telecomunicaciones.
+Formulario C: Entrega de copias de planos de la urbanización.
+Formulario D: Solicitud de inspección de obras canalizadas. Formulario E: Comunicación del resultado de la inspección de la canalización.
+Formulario F: Solicitud de inspección para la red de distribución de telecomunicaciones.
+Formulario G: Comunicación del resultado de la inspección de la red de distribución de telecomunicaciones.
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD PROCESO DE PLANTA EXTERNA UEN-DEP SOLICITUD DE DISEÑO DE RED DE DISTRIBUCIÓN Y CANALIZACIÓN DE TELECOMUNICACIONES
+| Ref. Solicitud N°: Formulario A
+NOMBRE DE LA URBANIZACIÓN
+UBICACIÓN
+PROPIETARIO TELÉFONO APARTADO
+DIRECCIÓN OFICINAS
+COMPAÑÍA URBANIZADORA TELÉFONO APARTADO
+PERFIL DE LOS CLIENTES POTENCIALES
+DATOS DE LA URBANIZACIÓN N° DE LOTES ÁREA PROMEDIO POR LOTE RESIDENCIALES ___________ _______________________ INDUSTRIALES ___________ _______________________ COMERCIALES ___________ _______________________ URBANIZACIONES PARA VENTA DE [ ] CASAS [ ] LOTES
+Adjunto dos (2) copias del diseño de sitio de la Urbanización y una copia del Diseño Eléctrico aprobado por la Compañía Nacional de Fuerza y Luz (C.N.F.L.) o empresa distribuidora de energía eléctrica de la localidad respectiva. El plano además incluye un diagrama de la localización Geográfica de la Urbanización. FECHA ________________ ______________________________ FIRMA DEL PROPIETARIO CÉDULA:
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD PROCESO DE PLANTA EXTERNA UEN-DEP | Ref. Solic. N°: Formulario B
+SOLICITUD DE DEMANDA DE TELECOMUNICACIONES
+Nombre de la Urbanización Etapa
+Provincia Cantón Distrito
+Propietario Teléfono Apartado
+Dirección de la Urbanización
+Compañía Urbanizadora Teléfono Apartado
+Dirección
+DATOS GENERALES DE LA URBANIZACIÓN
+Fecha probable inicio de construcción : Duración aproximada de la construcción : La urbanización tendrá otras etapas o ampliaciones : Si [ ] No [ ] N.S. [ ] Valor aproximado de las viviendas que se construyen : ¢
+Dedicación del terreno
+Etapa | Año Construcción | RESIDENCIALES | COMERCIALES | INDUSTRIALES
+N° de Lotes | Área Lote promedio | Valor m2 | N° de Lotes | Área Lote promedio | Valor m2 | N° de Lotes | Área Lote promedio | Valor m2
+I | . | . | . | . | . | . | . | . | . | .
+II | . | . | . | . | . | . | . | . | . | .
+III | . | . | . | . | . | . | . | . | . | .
+IV | . | . | . | . | . | . | . | . | . | .
+Datos de vivienda
+Si la urbanización incluye La venta de casas, llénese Este cuadro | Etapa | Año de Construcción | N° de viviendas | Área de construcción | Valor de la vivienda
+I | . | . | . | .
+II | . | . | . | .
+III | . | . | . | .
+IV | . | . | . | .
+ESPACIO PARA LA OFICINA
+LOCALIZACIÓN: Central …………………….. Distrito ………………. Manzana …………….. Cuenta ……………… Demanda telefónica de saturación …………………………………………………………Red Telefónica financiada por ICE [ ] Urbanizador [ ] Otro __________ [ ] Fecha ……………………...
+INSTITUTO COSTARRICENSE DE ELECTRICIDAD PROCESO DE PLANTA EXTERNA ENTREGA DE COPIAS DE PLANOS DE LA URBANIZACIÓN Formulario C Señor (a): Propietario de la Urbanización: _________________________________ Dirección: __________________________________________________ Solicitud Nº_________________________________________________ Adjunto sírvase encontrar 3 copias del diseño de la red de distribución de la Urbanización ____________________________________________ sita en _____________________________________________________ ___________________________________________________________ Durante el transcurso de la construcción de dicha instalación deberá solicitar inspección del ICE. Esta inspección será necesaria para evitar el rompimiento posterior por parte de la urbanizadora de calles o aceras. ________________________________ _______________________ Ing. Jefe Proceso Planta Externa UEN-DEP Jefe Inspector de Instalación San José __________________________________________________ COPIAS Interesado Inspector Archivo INSTITUTO COSTARRICENSE DE ELECTRICIDAD PROCESO PLANTA EXTERNA UEN-DEP SOLICITUD DE INSPECCIÓN DE OBRAS CANALIZADAS Formulario D Señores Instituto Costarricense de Electricidad Proceso Planta Externa UEN-DEP Para cumplir con lo solicitado en el RITU, les solicito la revisión de las obras de canalización; solicitud Nº _____________________________ Para la Urbanización ________________________________________ Situada en __________________________________________________ La empresa constructora de la obra es ___________________________ ___________________________________________________________ Atentamente, ____________________ Propietario COPIAS Interesado Inspector Archivo INSTITUTO COSTARRICENSE DE ELECTRICIDAD PROCESO PLANTA EXTERNA UEN-DEP COMUNICACIÓN DEL RESULTADO DE LA INSPECCIÓN DE LA CANALIZACIÓN Formulario E Señor (a): _________________________________________________ Propietario de la Urbanización _________________________________ Solicitud Nº ______________________________________________ Una vez realizada la inspección correspondiente a la canalización para la distribución telefónica a la Urbanización indicada se ha determinado que dicha canalización ___________________________________________; con el diseño efectuado y las normas de canalización del ICE . (Llénese solo en caso de que la canalización para la red de distribución telefónica sea necesario realizarle correcciones) Sírvase efectuar las siguientes correcciones en la canalización subterránea de la urbanización: ___________________________________________ ___________________________________________________________ ___________________________________________________________ ___________________________________________________________ Sírvase notificarnos cuando dichas correcciones estén realizadas, para efectuar una nueva inspección, sin la cual la obra no será recibida. La primera inspección por parte del ICE será gratuita, por lo que para la segunda inspección de la urbanización ___________________________ asciende a la suma de ¢ ______________________________________ Sírvase cancelar esta suma en nuestras oficinas presentando este comprobante. Sírvase mantener la copia de este comprobante en el sitio de la urbanización para la verificación por parte de nuestros inspectores del pago respectivo. Atentamente ________________________________ _______________________ Ing. Jefe Proceso Planta Externa UEN-DEP Jefe Inspector de Instalación San José __________________________________________________ COPIAS Interesado Inspector Archivo INSTITUTO COSTARRICENSE DE ELECTRICIDAD PROCESO PLANTA EXTERNA UEN-DEP SOLICITUD DE INSPECCIÓN PARA LA RED DE DISTRIBUCIÓN DE TELECOMUNICACIONES Formulario F Señores Instituto Costarricense de Electricidad Proceso Planta Externa UEN-DEP Para cumplir con lo solicitado en el RITU, les solicito la revisión de la Red de Distribución Telefónica; solicitud Nº _____________________ Para la Urbanización _________________________________________ Situada ____________________________________________________ La empresa constructora de la obra es____________________________ Atentamente, ____________________________________ Propietario COPIAS Interesado Inspector Archivo INSTITUTO COSTARRICENSE DE ELECTRICIDAD PROCESO PLANTA EXTERNA UEN-DEP COMUNICACIÓN DEL RESULTADO DE LA INSPECCIÓN DE LA RED DE DISTRIBUCIÓN DE TELECOMUNICACIONES Formulario G Señor (a): _________________________________________________ Propietario de la Urbanización _________________________________ Solicitud Nº ________________________________________________ Una vez realizada la inspección correspondiente a la Red de Distribución Telefónica de la Urbanización indicada se ha determinado que dicha canalización ________________________________________________; con el diseño efectuado y las normas aplicables por del ICE. (Llénese solo en caso de que la Red de Distribución Telefónica sea necesario realizarle correcciones) Sírvase efectuar las siguientes correcciones en la Red de distribución Telefónica urbanización: ______________________________________ ___________________________________________________________ ___________________________________________________________ Sírvase notificarnos cuando dichas correcciones estén realizadas, para efectuar una nueva inspección, sin la cual la obra no será recibida. La primera inspección por parte del ICE será gratuita, por lo que para la segunda inspección de la urbanización ___________________________ asciende a la suma de ¢ _______________________________________ Sírvase cancelar esta suma en nuestras oficinas presentando este Comprobante. Sírvase mantener la copia de este comprobante en el sitio de la Urbanización para la verificación por parte de nuestros inspectores del pago respectivo. Atentamente; ________________________________ _______________________ Ing. Jefe Proceso Planta Externa UEN-DEP Jefe Inspector de Instalación San José ___________________________________________________ COPIAS Interesado Inspector Archivo
+Rige a partir de su publicación.
+San José, 15 de julio del 2004.—

@@ -1,0 +1,4 @@
+Artículo 2º—Ámbito de aplicación: Todo desarrollo urbanístico que se construya para efectos residenciales, comerciales, industriales, educativos, turísticos, entre otros, para poder contar con los servicios de telecomunicaciones, deberá cumplir con lo dispuesto en el presente Reglamento.
+En razón de su acceso, las urbanizaciones pueden clasificarse como públicas o privadas. Serán urbanizaciones públicas de interés social, aquellas en que exista una declaratoria oficial por parte del ente respectivo.
+Los proyectos de vivienda constituidos por más de una edificación multifamiliar, estarán sujetos a lo dispuesto en este Reglamento, debiendo contar con toda la infraestructura externa que soporte la red de telecomunicaciones.
+Las redes internas de las edificaciones deben cumplir con lo dispuesto en el Reglamento para Instalaciones Telefónicas en Edificios (RITE).
