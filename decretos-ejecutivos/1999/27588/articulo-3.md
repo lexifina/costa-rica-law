@@ -1,0 +1,1 @@
+Artículo 3°—Durante el período de publicación del decreto y la fijación del nuevo límite de gasto presupuestario por parte de, la Autoridad Presupuestaria , la Dirección General de Migración y Extranjería regirá por el límite de gasto presupuestario establecido en el decreto ejecutivo N° 27323-H.
