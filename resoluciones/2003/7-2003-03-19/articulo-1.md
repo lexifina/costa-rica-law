@@ -1,0 +1,6 @@
+DiRECCION GENERAL DE SERVICIO CIVIL
+No 7-SC .—San José, 19 de marzo del 2003.
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-217-2003, mediante la cual, se modifica el articulo 1° de la Resolución DG-157-98, del 25 de noviembre de 1998, incluyendo las carreras de Dirección de Empresas y de Ciencias Económicas con especialidad en Comercio Interior como atinencias académicas de las clases Técnico Tributario y de las contiendas en la serie de Profesional Tributario y sus respectivos cargos.
+- DG-218-2003, por medio de la cual se modifica el artículo 1° de la Resolución DG-248-2002 del 19 de diciembre del 2002, de manera que se suprima la clase Asistente Administrativo y en su lugar, se incluya en el Manual Institucional de Clases del Tribunal Registral Administrativo, la clase Profesional Administrativo.
+- DG-220-2003, mediante la cual se excluye del Manual Institucional de Clases del Ministerio de Ambiente y Energía, en la clase Coordinador del MINAE las actividades que corresponden a las que actualmente están definidas para el cargo Coordinador del Departamento de Proveeduría del MINAE de conformidad con el Decreto Ejecutivo No 166 del 16 de junio de 1999.
