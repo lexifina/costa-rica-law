@@ -1,0 +1,2 @@
+Artículo 24.—El plazo de los contratos otorgados en condiciones prioritarias no excederá de cinco años. Ese plazo se prorrogará por un segundo período igual, conforme con lo establecido en el inciso b) del artículo 12 del Reglamento.
+A partir del vencimiento del plazo o la prórroga correspondiente, la contratación deberá ajustarse a lo dispuesto en la legislación administrativa vigente y deberá contar con el refrendo de la Contraloría General de la República.

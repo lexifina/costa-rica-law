@@ -1,0 +1,2 @@
+Artículo 12.—Para su inscripción en el Registro Mercantil, todos los nombramientos que se realicen, así como cualquier modificación del pacto social, deben obtener previamente la autorización de! Departamento.
+Es obligación del administrador o de la junta directiva de la sociedad, según se trate, comunicar al Departamento las citas fieles y exactas de inscripción en el Registro Mercantil, de los indicados nombramientos y modificaciones.

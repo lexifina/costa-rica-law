@@ -1,0 +1,1 @@
+Artículo 39.-Para fundar e integrar una federación, las sociedades anónimas laborales deberán aportar certificación ante el departamento, de la vigencia de su personería jurídica, expedida por el Registro Mercantil.

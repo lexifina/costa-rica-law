@@ -1,0 +1,1 @@
+Artículo 15.—Perderá su condición de sociedad anónima laboral la que, durante su funcionamiento, deje de cumplir los requisitos señalados en el artículo 26 de la Ley y en los incisos g), h), i) y k) del numeral 9 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 48.—Las federaciones y confederaciones que infrinjan las disposiciones establecidas en este Reglamento y Leyes conexas, sean apercibidos por el Departamento, para que se ajusten a derecho en los siguientes tres meses, de conformidad con lo establecido en el artículo 5° de este Reglamento.

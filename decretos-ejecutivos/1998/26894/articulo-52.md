@@ -1,0 +1,3 @@
+Artículo 52.—Del total del crédito mencionado en el artículo anterior de este Reglamento y 31 de la Ley, el Banco destinará un diez por ciento a la Universidad. Con esos recursos, dicho centro de enseñanza deberá fundar el I.S.A.L.
+El traslado del citado diez por ciento del Banco a la Universidad se regirá por las condiciones que mediante convenio acuerden ambas entidades, con la participación del Ministro de Trabajo y Seguridad Social.
+Es entendido que la Universidad deberá asumir el pago de principal y los respectivos intereses, en el caso de cierre del I.S.A.L., por incorrecta ejecución de sus actividades o por incorrecta administración de los recursos destinados, lo cual se regulará en el convenio interinstitucional a suscribir.

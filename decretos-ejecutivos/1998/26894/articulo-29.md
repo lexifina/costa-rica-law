@@ -1,0 +1,1 @@
+Artículo 29.—Las federaciones y confederaciones podrán realizar operaciones económicas, financieras, comerciales y culturales para aumentar su patrimonio y adquirir toda clase de bienes y realizar toda especie de operaciones lícitas encaminadas a la consecución de sus objetivos.

@@ -1,0 +1,1 @@
+Artículo 31.-Las federaciones podrán constituirse con al menos de diez sociedades anónimas laborales, cuya actividad empresarial se ubique en la misma rama (un dígito del CIIU) o subrama económica (dos dígitos del CIIU)

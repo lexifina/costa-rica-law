@@ -1,0 +1,1 @@
+Artículo 30.—Para los efectos de este reglamento, se considerará rama económica y subrama económica lo estipulado por la Clasificación Industrial Internacional Unificada (CIIU), para la Gran División (desglose de un dígito) y la División (desglose de dos dígitos), respectivamente, utilizada por el Banco Central para la estructuración de las Cuentas Nacionales (PIB).

@@ -1,0 +1,2 @@
+Artículo 2°—Las disposiciones de este Reglamento deberán interpretarse y aplicarse de forma tal que procuren el absoluto cumplimiento de los principios, fines y propósitos de la Ley.
+En caso de ausencia normativa se aplicarán las disposiciones pertinentes del Código de Comercio, en lo que se refiere a la constitución, organización, funcionamiento e inscripción de las Sociedades Anónimas Laborales y las del Código de Trabajo, tratándose de derechos de los trabajadores o de sus organizaciones.

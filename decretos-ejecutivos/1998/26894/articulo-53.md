@@ -1,0 +1,1 @@
+Artículo 53.—El contenido económico para constituir el Fondo Nacional de Avales, a que se refieren los artículos 32, inciso ch) de la Ley y 50, inciso d) de este Reglamento, se tomará de los réditos o dividendos que genere el crédito que contratará el Banco, al tenor de los numerales 31 de la Ley y 51 de este Reglamento.

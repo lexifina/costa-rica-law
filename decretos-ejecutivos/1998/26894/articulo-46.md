@@ -1,0 +1,1 @@
+Artículo 46.—El ejercicio administrativo y financiero de Ias federaciones y confederaciones durará un año. En la primera quincena de cada período, la asamblea se reunirá ordinariamente para conocer, aprobar o improbar los informes del Presidente, del tesorero y del Fiscal, acerca de las gestiones realizadas durante el ejercicio inmediato anterior.

@@ -1,0 +1,21 @@
+Artículo 21.—Bajo pena de nulidad por su omisión, todo contrato que se suscriba entre un órgano o ente público y una sociedad anónima laboral deberá contener cláusulas sobre los siguientes aspectos:
+a) Determinación clara de los servicios o actividades por prestarse.
+b) Monto del contrato, forma y plazo de pago.
+c) Plazo del contrato.
+d) Alquiler, fideicomiso o comodato, por parte de la Administración a la sociedad anónima laboral, de bienes, equipos y accesorios destinados a la prestación de los servicios o actividades que se contraten.
+e) Reajustes de precios de conformidad con la ley de Contratación Administrativa y su Reglamento.
+f) Mecanismos de control de calidad de todos los servicios o actividades que se contraten.
+g) Que la institución pública quedará relevada de toda responsabilidad laboral y patronal en relación con los trabajadores de la sociedad anónima laboral.
+h) Que la sociedad anónima será la responsable directa de cualquier daño que ocasione a los bienes e intereses de la institución o de terceros.
+i) Condiciones particulares y horarios, los cuates serán determinados por la institución.
+j) Que la institución contratante tendrá la potestad de realizar, periódicamente, auditorias sobre el grado de cumplimiento del contrato.
+Estas auditorías se realizarán con base en las normas legales y reglamentarias, así como en las de ejecución que establezca la Controlaría General de la República, aplicables a esta materia.
+k) Que la sociedad anónima laboral contratante debe suscribir con el Instituto Nacional de Seguros una póliza de responsabilidad civil total, contra accidentes y responsabilidad ante terceras personas, que cubra los daños a la propiedad y a las personas y otra de fidelidad por el desempeño de cargos de su personal. Asimismo, deberá suscribir una póliza contra riesgos del trabajo que cubra a los trabajadores de la sociedad anónima laboral en el ejercicio de los servicios y actividades contratados.
+l) Que la sociedad anónima laboral deberá asumir las obligaciones derivadas de la ejecución del contrato de prestación de servicios con la institución, tales como: cuotas del seguro social y de riesgos del trabajo, pago de salarios, vacaciones, aguinaldos, prestaciones sociales, incapacidades, jubilación y otras que determinan las leyes vigentes.
+m) Que la sociedad anónima laboral deberá contar con el personal y equipo disponible para cubrir imprevistos, tanto en la ejecución del servicio como para su supervisión.
+n) Garantía de continuidad y de eficiencia del servicio público y de adaptación de dicho servicio a todo cambio en el régimen legal o en la necesidad social que satisface, así como de igualdad en el trato de los destinatarios, usuarios o beneficiarios del servicio o actividades a su cargo.
+o) Garantía de que todos los usuarios del servicio al momento del contrato, continúen con acceso a él como mínimo en las mismas condiciones de calidad que regían antes de la contratación, las cuales deben mejorarse continuamente.
+p) Que el incumplimiento grave o la violación reiterada de las condiciones mínimas legales o reglamentarias o del contrato de prestación de servicios, facultará a la administración u órgano público responsable del servicio público, o a la Contraloría General de la República, a rescindir o poner fin al contrato vigente, previo desarrollo y aplicación del procedimiento administrativo; el cual deberá respetar, por lo menos, los derechos de audiencia y de defensa de los afectados.
+q) Que la administración u entidad pública responsable del servicio podrá intervenir, preventivamente, la sociedad anónima laboral, cuando la prestación del servicio no cumpla las condiciones mínimas de calidad, para garantizar la continuidad o la eficiencia del servicio o actividad a su cargo, sin perjuicio de otras medidas o sanciones aplicables conforme a la ley.
+r) Que el incumplimiento injustificado de las disposiciones reglamentarias o de las cláusulas contractuales, se considerará falta grave y dará lugar a' responsabilidad civil, sin perjuicio de las responsabilidades penales que pudieren existir.
+s) Que la prestación de servicios públicos fundamentales o auxiliares, por parte de los miembros de las sociedades anónimas laborales, es incompatible con el mantenimiento del Régimen de Empleo Público.

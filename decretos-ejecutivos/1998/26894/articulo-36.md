@@ -1,0 +1,1 @@
+Artículo 36.—Además de lo establecido en el artículo 28 de este Reglamento, cualquier Confederación Nacional de Sociedades Anónimas Laborales que se establezca coordinará con el I.S.A.L. las actividades que sea oportuno y tendrá un representante permanente ante ese Instituto, según lo establece el artículo 33 de la ley 7404, reformada por la ley N° 7668.

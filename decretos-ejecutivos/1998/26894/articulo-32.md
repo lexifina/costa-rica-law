@@ -1,0 +1,1 @@
+Artículo 32.-Podrán conformarse federaciones con al menos quince sociedades anónimas laborales, de distinta rama o subrama económica, cuando las condiciones económicas, territoriales o las propias del sector no lo permitan en una sola rama o subrama.

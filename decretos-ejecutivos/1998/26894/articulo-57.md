@@ -1,0 +1,2 @@
+Artículo 57.—Para el mejor desempeño de sus funciones, atribuciones y tareas, el I.S.A.L., y el Departamento coordinarán sus actividades mediante la suscripción de convenios de cooperación y colaboración.
+En dichos convenios se determinarán en detalle las actividades propias de cada uno, conforme la Ley y el Reglamento, y se establecerán los mecanismos y procedimientos específicos para su ejecución.

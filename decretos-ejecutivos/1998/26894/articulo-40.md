@@ -1,0 +1,1 @@
+Artículo 40.-Las federaciones y confederaciones deberán presentar ante el Departamento, conforme con el artículo 4° de la ley y sus reformas, la escritura constitutiva, elaborada por un notario público, para su aprobación.

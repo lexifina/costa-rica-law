@@ -1,0 +1,1 @@
+Artículo 17.—En todos los casos, el Departamento y el Registro Mercantil actuarán bajo los principios de coordinación y complementariedad, respecto de las sociedades anónimas laborales. realizando cada uno sus respectivas funciones, atribuciones y competencias, conforme a la Ley.

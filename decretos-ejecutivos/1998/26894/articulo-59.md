@@ -1,0 +1,1 @@
+Artículo 59.—Las sociedades anónimas laborales no estarán sujetas a las disposiciones o normas de la Ley de Regulación de la Publicidad de la Oferta Pública de Valores, N° 7091 del 10 de febrero de 1988.

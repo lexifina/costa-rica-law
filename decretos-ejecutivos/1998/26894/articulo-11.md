@@ -1,0 +1,1 @@
+Artículo 11.—Las sociedades mercantiles privadas que deseen transformarse en una sociedad anónima laboral, deberán reformar su escritura constitutiva y acatar los mismos procedimientos y disposiciones que se siguen para la constitución de una sociedad anónima laboral, señaladas por la Ley y este Reglamento.

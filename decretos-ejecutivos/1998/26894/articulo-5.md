@@ -1,0 +1,1 @@
+Artículo 5°—Las sociedades anónimas laborales ya inscritas tendrán igualmente un plazo de seis meses, a partir de la publicación de este Reglamento para efectuar los trámites indicados en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 7°—El Departamento fiscalizará el cumplimiento de las disposiciones del artículo 26 de la Ley y de las contenidas en los incisos g), h), i) y k), del numeral 9° de este Reglamento, con base en los documentos que obren en sus archivos o que lleguen a su poder por cualquier vía legal, o bien con base en los informes que al efecto le remita el I.S.A.L.

@@ -1,0 +1,1 @@
+Transitorio único.—Los recursos del empréstito a que se refiere el artículo transitorio de la Ley, serán destinados a financiar líneas de crédito para las sociedades anónimas laborales y sus programas.

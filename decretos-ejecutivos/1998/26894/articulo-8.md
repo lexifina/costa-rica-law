@@ -1,0 +1,1 @@
+Artículo 8°—Contra las resoluciones finales que dicte el Departamento proceden los recursos de revocatoria y apelación, en los términos y condiciones establecidos por la Ley General de la Administración Pública.
