@@ -1,0 +1,1 @@
+Artículo 3º—Modifíquese el gasto presupuestario establecido a la Refinadora Costarricense de Petróleo para el período 2003 en el Decreto Ejecutivo Nº 30214-H, publicado en La Gaceta Nº 54 del 18 de marzo del 2002, fijándolo en ¢25.196.5 millones, como producto de la adición de una nueva exclusión al gasto presupuestario.

@@ -1,0 +1,1 @@
+Artículo 2º—Modifíquese el límite de gasto presupuestario y efectivo establecido a la Refinadora Costarricense de Petróleo para el período 2002 en el Decreto Ejecutivo Nº 29511-H, publicado en La Gaceta Nº 98 del 23 de mayo del 2001, y sus reformas, fijándolo en ¢25.679.0 millones, como producto de la adición de una nueva exclusión al limite de gasto.
