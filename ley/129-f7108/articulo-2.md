@@ -1,0 +1,1 @@
+Art. 2. El individuo designado por la ley, se presentará en el salon de sesiones del Excelentisimo Congreso del Estado á tomar posesion de su destino á las 10 de la mañana del viérnes 25 del corriente, conforme lo prevenido en los artículos 101 y 102 de la ley fundamental.
