@@ -16,3 +16,4 @@ Declara Parque Nacional Santa Rosa
 | 1 | 1971-03-27 | la propia norma |
 | 2 | 1977-05-04 | Decreto Ejecutivo 7013 (1977-05-04) |
 | 3 | 1980-11-13 | Decreto Ejecutivo 12062 (1980-11-13) |
+| 4 | 1987-07-25 | Decreto Ejecutivo 17656 (1987-07-25) |
