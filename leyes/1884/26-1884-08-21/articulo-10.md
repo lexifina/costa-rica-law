@@ -1,0 +1,1 @@
+Art. 10.-El Administrador de Aduana de Limón remitirá al de la de Carrillo las facturas consulares que se le dirijan, reservándose las que correspondan á comerciantes establecidos en Limón. También le remitirá copia del manifiesto por mayor que allí se reciba por cada buque.

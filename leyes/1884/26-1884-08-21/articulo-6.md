@@ -1,0 +1,1 @@
+Art. 6°-Las mercaderías que deban enviarse á la Aduana de Carrillo pasarán desde luego del lugar de la descarga á los carros de los trenes destinados á su trasporte. Los empleados de la Aduana anotarán el número del carro en que se depositen, y una vez terminada la operación harán cerrar y marchamar el carro por el Administrador.
