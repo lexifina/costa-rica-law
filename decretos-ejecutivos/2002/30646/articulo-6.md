@@ -1,0 +1,1 @@
+Artículo 6º—Se exceptúa de la aplicación de este Decreto Ejecutivo, las solicitudes de autorización que presenten la Comisión Nacional de Emergencias, las Municipalidades y el Ministerio de Obras Públicas y Transportes, por tratarse de interés público.

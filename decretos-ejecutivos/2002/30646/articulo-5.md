@@ -1,0 +1,1 @@
+Artículo 5º—Los permisionarios y concesionarios mineros con títulos vigentes podrán continuar gestionando ante la Dirección de Geología y Minas en forma normal durante la implementación de este proceso, a efecto de no afectar los derechos consolidados y no provocar un desabastacimiento en el mercado nacional de material minero.

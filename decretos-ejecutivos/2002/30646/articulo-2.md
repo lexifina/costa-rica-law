@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión de Evaluación y Diagnóstico de las Actividades Geológicas y Mineras de la Dirección de Geología y Minas deberá de emitir el Informe ante el Jerarca Ministerial en un plazo máximo de 6 meses a partir de la vigencia de este Decreto Ejecutivo, salvo motivo razonado que justifique un plazo adicional.
