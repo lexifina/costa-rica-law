@@ -1,1 +1,2 @@
-Artículo 100.—A más tardar, dentro de los primeros seis meses de cada año. el Instituto del Café publicará una memoria anual en la que dará a conocer su situación económica y las operaciones y labores que hubiere efectuado en el curso del período anterior.
+Artículo 100.—La separación de cualquiera de los miembros de la Junta Directiva, no lo libra de las responsabilidades legales en que pudiere haber incurrido, durante la gestión, por incumplimiento de alguna de las disposiciones de las leyes, decretos o reglamentos aplicables al Instituto del Café.
+(Así corrida su numeración por el artículo 3º del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 77 al 100).

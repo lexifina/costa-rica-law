@@ -1,0 +1,3 @@
+Artículo 106.—El quorum de las sesiones se formará con cuatro miembros. El Director Ejecutivo o el Subdirector Ejecutivo y el Auditor o el Subauditor deberán asistir a las sesiones- con voz pero sin voto.
+De las sesiones de la Junta Directiva deberán levantarse actas, que se pasarán a un libro, para tal efecto legalizado por la Contraloría General de la República y que serán firmadas por los miembros que actúen como Presidente y Secretario de la sesión en que se aprueben las mismas.
+(Así corrida su numeración por el artículo 3º del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 83 al 106).

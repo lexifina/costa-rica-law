@@ -1,0 +1,2 @@
+Artículo 116.—El Auditor del Instituto del Café o en su defecto el Subauditor. podrán delegar sus funciones y atribuciones en otros servidores y empleados de la Unidad para su normal funcionamiento, salvo cuando su intervención personal fuere legalmente obligatoria.
+(Así corrida su numeración por el artículo 3º de Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 93 al 116.)

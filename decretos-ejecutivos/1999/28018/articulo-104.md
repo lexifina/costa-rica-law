@@ -1,1 +1,3 @@
-Artículo 104. Este decreto deroga el Decreto Ejecutivo N° 17013 MEIC de 5 de mayo de 1986 y todas aquellas disposiciones de igual o inferior rango que se le opongan.
+Artículo 104.—En caso de ausencia o impedimento temporal del Presidente, este será reemplazado por el Vicepresidente, quien en tal caso tendrá todas sus atribuciones, facultades y deberes. En caso de ausencia de ambos, la Junta Directiva nombrará a uno de sus miembros como Presidente ad hoc. En caso de ausencia del Secretario, la Junta nombrará a uno de sus miembros como Secretario ad hoc.
+Los acuerdos se tomarán por mayoría absoluta de los votos presentes salvo disposición en contrario. En caso de empate, el Presidente o quien actúe en su lugar, tendrá doble voto.
+(Así corrida su numeración por el artículo 3º del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 81 al 104).

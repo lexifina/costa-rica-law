@@ -1,0 +1,2 @@
+Artículo 120.—El Instituto del Café de Costa Rica publicará en el Diario Oficial, dentro de los treinta días siguientes al cierre del respectivo ejercicio financiero, un balance de su situación económica que comprenderá el estado de su activo, pasivo, patrimonio y reservas.
+(Así corrida su numeración por el artículo 3º de Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 97 al 120.)

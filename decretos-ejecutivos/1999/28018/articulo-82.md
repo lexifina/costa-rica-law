@@ -1,2 +1,2 @@
-Artículo 82.—La Junta Directiva se reunirá en sesión ordinaria una vez por semana y extraordinariamente cuando ella así lo acuerde o cada vez que sea convocada al efecto por el Director Ejecutivo, por sí o a petición del Presidente o de cuatro de los miembros de la Junta Directiva.
-Los miembros de la Junta Directiva, propietarios y suplentes. devengarán dietas, cuyo monto se determinará en los presupuestos anuales del Instituto.
+Artículo 82.—De la designación de delegados al congreso cafetalero. Quedarán nombrados como delegados propietarios, aquellos que obtuvieron mayor número de votos, de mayor a menor, hasta designar a los delegados suplentes. En caso de empate, se definirá a la suerte.
+(Adicionado por Art. 3° del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002)

@@ -1,0 +1,2 @@
+Artículo 107.—Estarán viciados de nulidad absoluta y se tendrán por inexistentes cualesquiera contratos u operaciones que directa o indirectamente celebre el Instituto del Café. con miembros de su Junta Directiva o de su Administración o con alguno de sus parientes hasta el tercer grado por consanguinidad o segundo por afinidad, ambos inclusive. Esta disposición no afecta las operaciones de compra-venta de café.
+(Así corrida su numeración por el artículo 3º del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 84 al 107).

@@ -1,2 +1,1 @@
-Artículo 88.—El Director Ejecutivo y el Subdirector Ejecutivo quedarán sujetos a las mismas disposiciones que para los miembros de la Junta Directh a establece este Reglamento.
-La remoción del Director Ejecutivo o del Subdirector Ejecutivo sólo podrá acordarse de la misma forma en que fueron nombrados.
+Artículo 88.—De la junta escrutadora. Se nombrará una Junta Escrutadora para cada una de las Asambleas indicadas, con dos representantes de los respectivos sectores, siendo uno de ellos uno de los secretarios, más un representante del ICAFE que podrá ser un abogado de la Unidad de Asuntos Jurídicos. (Adicionado por Art. 3° del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002)

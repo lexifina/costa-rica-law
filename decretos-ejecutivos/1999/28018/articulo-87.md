@@ -1,4 +1,4 @@
-CAPITULO IV
-De la Dirección Ejecutiva
-Artículo 87.—La Junta Directiva designará con el voto de no menos de cinco de sus miembros a un Director Ejecutivo, en quien delegara la administración del Instituto del Café. Designará también en la misma forma al Subdirector Ejecutivo.
-Estos funcionarios deberán reunir los mismos requisitos exigidos a los miembros de la Junta Directiva, en cuanto les fuere racionalmente aplicable.
+Artículo 87.—De la realización de la asamblea. Las Asambleas Nacionales Electorales darán inicio a la hora y fecha señalada en la convocatoria, con el número de representantes de beneficiadores, exportadores o torrefactores según corresponda que al momento se encuentren presentes. Estas Asambleas se llevarán a cabo en la Sede Central del ICAFE o en CICAFE.
+La Dirección Ejecutiva del ICAFE será la coordinadora de dichas asambleas y el Director Ejecutivo o la persona que él designe será su presidente. El representante del ICAFE nombrado al efecto por éste como el coordinador responsable en las mismas, las presidirá. Este declarará el inicio de la Asamblea y solicitará el nombramiento de dos secretarios dentro de los Asambleístas correspondientes, quienes apoyarán a la Presidencia en la conducción de la Asamblea.
+La Dirección Ejecutiva del ICAFE se apoyará a su vez en el personal de la institución necesario para una efectiva realización de las Asambleas y las respectivas elecciones.
+(Adicionado por Art. 3° del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002)

@@ -1,3 +1,2 @@
-CAPITULO SÉTIMO
-Del Congreso Nacional Cafetalero
-Artículo 101.—La organización y funcionamiento del Congreso se hará de conformidad con el Reglamento emitido al efecto, el que deberá ser aprobado en el seno del mismo.
+Artículo101.—Los miembros de la Junta Directiva desempeñarán su cometido con absoluta independencia y serán los únicos responsables de su gestión, sin perjuicio de las sanciones que les correspondan y responderán civilmente por la autorización de operaciones prohibidas por las leyes. decretos o reglamentos aplicables a la Institución, quedando exentos de cualquier responsabilidad únicamente quienes hubieren hecho constar su voto negativo.
+(Así corrida su numeración por el artículo 3º del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 78 al 101).

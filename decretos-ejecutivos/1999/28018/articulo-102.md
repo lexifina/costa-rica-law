@@ -1,3 +1,2 @@
-CAPITULO OCTAVO
-Otras disposiciones
-Artículo 102.—El Instituto del Café de Costa Rica, de oficio o a solicitud de pane, podra actuar como perito o arbitro, en una controversia surgida en cumplimiento de las disposiciones de la Ley o este Reglamento, relacionadas con la elaboración, mercadeo y calidad del café. Para tal efecto, se crea la Comisión de Peritos Catadores del Café del Instituto del Café de Costa Rica, compuesta por un mínimo de siete miembros independientes del ICAFE, nombrados para tal efecto por la Junta Directiva del Instituto.
+Artículo 102.—La Junta Directiva elegirá de su seno, por mayoría de votos, un Presidente, un Vicepresidente y un Secretario, que durarán un año en sus funciones, pudiendo ser reelectos.
+(Así corrida su numeración por el artículo 3º del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 79 al 102).

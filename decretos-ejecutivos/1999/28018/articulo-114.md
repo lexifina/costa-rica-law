@@ -1,0 +1,7 @@
+CAPITULO VIII*
+De la Auditoría
+*(Así corrida su numeración por el artículo 3º de Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del anterior capítulo V al VIII actual)
+Artículo 114.—El Instituto del Café tendrá una unidad de Auditoria que funcionará bajo la responsabilidad y dirección inmediata del auditor, o en su defecto o por delegación, del Subauditor. La remoción del Auditor o Subauditor sólo podrá acordarse de la misma manera en que fueron nombrados y en el caso del Auditor con previa autorización de la Contraloría General de la República según lo establece la Ley No 7428. dei 7 de setiembre de 1994.
+La Auditoría depende directamente de la Junta Directiva para ejercer en su nombre y representación, la vigilancia, inspección y fiscalización sistemática de la situación y marcha del Instituto y del sector cafetero en general.
+El Auditor y Subauditor deberán reunir los mismos requisitos exigidos al Director Ejecutivo y adicionalmente deberán ser contadores públicos autorizados debidamente incorporados al colegio respectivo. No podrán ser empleados de ningún otro departamento del Instituto del Café de Costa Rica. ni entidad vinculada al sector cafetalero, ni miembros de su Junta Directiva.
+(Así corrida su numeración por el artículo 3º de Decreto Ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 91 al 114.)

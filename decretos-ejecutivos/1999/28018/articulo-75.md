@@ -1,3 +1,2 @@
-Artículo 75.—Para ser parte de una tema será necesario:
-a) Tener relación directa con la actividad cafetalera que lo propone.
-b) Ser de reconocida solvencia moral.
+Artículo 75.—De la convocatoria. En el mes de junio del año en que corresponda la elección para miembros al Congreso Cafetalero, el ICAFE convocará con por lo menos quince días naturales de anticipación a su celebración, a las respectivas Asambleas Regionales, siendo su obligación hacerlo, a través de los medios de comunicación nacionales y regionales, así como los medios utilizados en las regiones para una divulgación efectiva. Podrán figurar carteles de convocatoria, en las firmas beneficiadoras y recibidores de la región. En la respectiva convocatoria se debe detallar como mínimo el lugar, la hora y fecha de realización de la Asamblea Regional.
+(Adicionado por Art. 3° del Decreto Ejecutivo N° 30197 del 12 de febrero del 2002)
