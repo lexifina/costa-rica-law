@@ -1,0 +1,6 @@
+DECRETO LXVII.
+Se nombra a Don Rafael Escalante para Representante de Costa Rica
+en la Dieta Centro-Americana.
+“El Senador encargado del Supremo Poder Ejecutivo del Estado Libre de Costa Rica. –Por cuanto las Cámaras han decretado y sancionado la resolución que sigue.
+La Cámara de Senadores del Estado Libre de Costa Rica: habiendo admitido por decreto número 1° de 3 del que rije la renuncia que hizo el Sr. Rafael Moya del cargo de representar á Costa Rica en la dieta Centro-Americana acordada por los Estados, y debiéndose proceder al nombramiento de otra persona que llene aquel objeto tan interesante al bien de la Nación, ha venido en decretar y decreta.
+Art. único. Nómbrese al Sr. Rafael Escalante para Representante á la dieta Centro-Americana que debe celebrarse en Sonsonate. –A la Cámara de Representantes. –Dado en la ciudad de San José, á los seis días del mes de febrero de mil ochocientos cuarenta y seis. – Al Poder Ejecutivo- Rafael Reyes, Representante Presidente, -Gordiano Fernández, Representante Secretario accidental. –Jesus Vargas, Representante Pro-Secretario –Por tanto: EJECUTESE. –San José, febrero dieciocho de mil ochocientos cuarenta y seis. –José Rafael de Gallegos. –Al Ministro de relaciones y gobernación.”
