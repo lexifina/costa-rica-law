@@ -1,0 +1,2 @@
+ARTICULO X
+Corresponderá a los respectivos organismos nacionales encargados de la cooperación técnica la concertación de los proyectos previstos en el Artículo II, así como encargase de toda la tramitación necesaria. En el caso de Costa Rica tales funciones corresponden al Ministerio de Relaciones Exteriores y Culto y a la Oficina de Planificación y Política Económica (OFIPLAN) y en el caso del Perú al Ministerio de Relaciones Exteriores e Instituto Nacional de Planificación.

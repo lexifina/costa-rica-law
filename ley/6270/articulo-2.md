@@ -1,0 +1,2 @@
+ARTICULO II
+Los proyectos con cooperación técnico contenidos en los programas a que se hace referencia en el artículo anterior, serán objeto de Acuerdos Complementarios que deberán especificar sus objetivos, el cronograma de trabajo, las obligaciones de cada una de las Partes, su financiamiento, los organismos nacionales responsables de la ejecución del proyecto, y el plazo en que éstos deberán elaborara y acordar el plan de operaciones del Proyecto.
