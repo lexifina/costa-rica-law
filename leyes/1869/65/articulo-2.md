@@ -1,0 +1,1 @@
+ARTICULO 2°. -Todos los incidentes y cuestiones preliminares que se presenten en el juzgado que tiendan directamente a formar la decisión definitiva, se resolverán por mayoría absoluta de votos, siempre que solo pertenezcan al dominio exclusivo del Juez que preside el Jurado.

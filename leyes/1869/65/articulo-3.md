@@ -1,0 +1,1 @@
+ARTÍCULO 3°. -La formación del jurado, tramitasen y demás funciones que la ley vigente encarga ja los alcaldes constitucionales se practicar n por los Jueces el crimen en 1° Instancia, los que presidirán también la audiencia pública hasta la conclusión de los alegatos, lo mismo que la elección de Presidente que los jurados deben hacer dentro de su seno.

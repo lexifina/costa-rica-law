@@ -1,0 +1,1 @@
+ARTíCULO 4°.-Terminada la audiencia y antes que las partes se retiren, el Juez con vista de lo alegado, y probado por ellas, consignar a continuación del expediente las preguntas sobre que debe recaer el veredicto del jurado, Hecho esto, se retirar con las partes, y los jurados a puerta cerrada y en sesión no interrumpida continuar n sus funciones hasta pronunciar su veredicto.
