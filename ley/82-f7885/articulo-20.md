@@ -1,0 +1,2 @@
+Artículo XX.
+Las diferencias que surgieren entre el Gobierno de Costa Rica y Morenas, sobre la inteligencia y cumplimiento de este contrato, serán decididas por medio de dos árbitros imparciales, nombrados uno por cada parte, y en caso de discordia por un tercero nombrado por aquéllos; su decisión será final y tendrá fuerza de sentencia emanada de una Corte de Justicia. Los árbitros deberán ser precisamente ciudadanos costarricenses.
