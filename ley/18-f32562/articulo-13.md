@@ -1,0 +1,2 @@
+Art. 13.-Todo desacuerdo que pueda surgir entre los secretarios de Estado acerca de sus respectivas atribuciones, será esclarecido mediante la discusión, en el Consejo de Ministros, y sometido después, con los resultados del debate, a la resolución del Jefe de Estado.
+Dado en el Palacio Presidencial, á los diez y siete días del mes de junio de mil ochocientos ochenta y uno. –S. Lara. –El Secretario de Estado en el Despacho de Gobernación. –S. Lizano.

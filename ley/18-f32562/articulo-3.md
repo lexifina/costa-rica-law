@@ -1,0 +1,1 @@
+Art. 3°-A la Cartera de Hacienda corresponde la creación, recaudación é inversión de los caudales penden de ella, en tal concepto, los establecimientos y servicios que en lo administrativo ó en lo judicial tocan á las rentas ordinarias y extraordinarias del Estado, en cuanto por sus actos debe entrar á los fondos públicos, ó salir de ellos cantidad alguna.
