@@ -1,0 +1,1 @@
+II.-En los lugares donde no estuviere funcionado el Organismo, seguirán atendiendo las cuestiones médico forenses los médicos oficiales. Respecto de esos lugares, la vigencia de esta ley quedará en suspenso, y se mantendrán en vigor las normas actuales sobre la materia, sin perjuicio de poder solicitar la colaboración a que se refiere el final del transitorio anterior.
