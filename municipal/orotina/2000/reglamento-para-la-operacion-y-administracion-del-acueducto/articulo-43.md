@@ -1,0 +1,1 @@
+Articulo 43.—De la capacitación de servidores municipales. La Municipalidad de Orotina procurara la capacitación de su personal para el mejoramiento del servicio de agua potable, en todos sus aspectos, para la cual realizara las gestiones necesarias para ello, en las instituciones especializadas, privadas o publicas, nacionales o extranjeras, para la consecución de este fin.

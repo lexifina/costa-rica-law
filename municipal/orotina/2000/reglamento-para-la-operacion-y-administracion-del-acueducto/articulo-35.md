@@ -1,0 +1,1 @@
+Articulo 35.—Del plazo de reconexión. La Municipalidad de Orotina reinstalara el servicio de agua potable dentro del plazo máximo de 24 horas hábiles a la cancelación de lo adeudado y de llegado el arreglo de pago.

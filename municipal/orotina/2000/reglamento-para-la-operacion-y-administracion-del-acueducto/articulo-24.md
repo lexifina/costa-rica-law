@@ -1,0 +1,1 @@
+Articulo 24.—De las fugas domiciliarias. En el caso de que por cualquier circunstancia se determinasen fugas no visibles dentro de la propiedad, previa inspección de funcionarios municipales, al abonado se Ie cobrara conforme lo establezca el medidor para lo cual se Ie otorgara el beneficio de arreglo de pago.
