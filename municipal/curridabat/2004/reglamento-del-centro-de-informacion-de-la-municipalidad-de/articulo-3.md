@@ -1,0 +1,1 @@
+Artículo 3º—El Centro de Información de la Municipalidad de Curridabat debe estar a cargo de un profesional en archivística o administrador de la información. El que dependerá del Alcalde y contará con los técnicos necesarios para el buen funcionamiento del sistema.

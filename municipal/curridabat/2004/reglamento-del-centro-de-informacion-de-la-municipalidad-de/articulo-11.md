@@ -1,0 +1,1 @@
+Artículo 11.—Toda documentación oficial será abierta y se verificará que venga firmada, con los anexos y otros documentos que se indiquen. Cuando venga incompleta esta será devuelta indicando tal situación. Este artículo no se aplica a la correspondencia de auditoría.

@@ -1,0 +1,1 @@
+Artículo 7º—En todos los documentos oficiales se imprimirá un sello con reloj marcador de recibido de la municipalidad en la parte superior derecha del documento. Se anotará la fecha, hora de recepción y un número de ingreso del documento.

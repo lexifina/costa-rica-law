@@ -1,0 +1,1 @@
+Artículo 16.—Diariamente el mensajero deberá visitar todos los departamentos para entregar la correspondencia recibida y retirar la que se va a despachar. Igual se procederá con la correspondencia externa conforme al horario, las rutas y roles establecidos.

@@ -1,0 +1,1 @@
+Artículo 8º—Toda correspondencia emitida por la municipalidad tanto interna como externa será emitida en original y dos copias, el original para el destinatario, una copia para el archivo y otra para el copiador del departamento que emitió el oficio. Si es necesario hacer otras copias para distribución interna, se les debe consignar un sello “para su información, no archivar”.

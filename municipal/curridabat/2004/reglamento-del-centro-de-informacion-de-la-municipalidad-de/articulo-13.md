@@ -1,0 +1,1 @@
+Artículo 13.—Para una mayor eficiencia con los teléfonos se contará con una guía telefónica interna y una guía externa telefónica codificada. Corresponderá al operador de la central guiar al usuario que no tenga conocimiento o necesite orientación para efectuar algún trámite.

@@ -1,0 +1,1 @@
+Artículo 26.—Los documentos que se custodian en archivo podrán prestarse a los funcionarios, para ser consultados en sus propias oficinas o vía red. El resto de los usuarios consultará los documentos en las instalaciones del Archivo.

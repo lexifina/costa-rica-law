@@ -1,0 +1,1 @@
+Artículo 21: La municipalidad contará con un Comité Institucional de Selección y Eliminación de Documentos, el cuál está integrado por la Alcaldesa o Alcalde de turno, el Asesor Legal y el Archivista Municipal.

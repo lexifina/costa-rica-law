@@ -1,0 +1,1 @@
+Artículo 17.—Los diferentes departamentos enviarán al Archivo Central la documentación debidamente ordenada y clasificada con las respectivas listas de remisión de manera que se puedan poner a disposición del usuario con la mayor brevedad, de acuerdo al cronograma establecido tomando en cuenta su vigencia administrativa y legal.

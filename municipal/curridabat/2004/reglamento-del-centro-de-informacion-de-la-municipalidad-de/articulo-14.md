@@ -1,0 +1,1 @@
+Artículo 14.—El Archivo Central dispondrá del mensajero para que distribuya la correspondencia que se recibe y despacha y cualquier otro documento que requiera trasladarse tanto interna como externamente de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 19.—El espacio físico deberá cumplir las condiciones necesarias que garanticen la conservación óptima de los documentos. Con medidas de seguridad e infraestructura adecuadas: local, estantería, materiales, mobiliario, equipo técnico, por cada una de las áreas definidas.

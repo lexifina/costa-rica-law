@@ -1,0 +1,1 @@
+Artículo 6º—Se considerará documentación oficial a toda la correspondencia interna como externa procedente por los diferentes medios: fax, correo electrónico, presencial y correo; será recibida por la plataforma para su registro y trámite municipal. La correspondencia oficial no podrá ser recibida en forma directa por los funcionarios de la municipalidad.
