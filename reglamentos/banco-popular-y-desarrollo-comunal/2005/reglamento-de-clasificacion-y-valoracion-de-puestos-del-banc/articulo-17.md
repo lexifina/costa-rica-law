@@ -1,0 +1,2 @@
+Artículo 17.—La política salarial del Banco se definirá mediante la comparación de las líneas de tendencia salarial del mercado o las del Banco, y deberá guardar un equilibrio salarial interno y externo que le permita al Banco mantener competitividad salarial razonable y en concordancia con los indicadores financieros del Banco.
+Las escalas salariales se modificarán semestralmente utilizando el comportamiento del mercado financiero nacional en instituciones afines al Banco y de manera sustituta los aumentos del costo de vida.

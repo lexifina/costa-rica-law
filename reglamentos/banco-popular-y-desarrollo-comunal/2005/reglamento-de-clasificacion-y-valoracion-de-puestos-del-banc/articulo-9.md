@@ -1,0 +1,1 @@
+Artículo 9º—Si una jefatura asignare permanentemente a un trabajador, sin haber mediado un estudio previo, funciones de mayor complejidad, responsabilidad y categoría, que las correspondientes al puesto en que está nombrado, aquella será la responsable de cancelar al trabajador las diferencias salariales que éste reclamare.

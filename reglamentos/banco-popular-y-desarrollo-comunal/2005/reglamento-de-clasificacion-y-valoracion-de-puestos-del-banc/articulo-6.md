@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la modificación del Manual Descriptivo de Clases de Puestos
+Artículo 6º—Las propuestas para modificar el Manual Descriptivo de Clases de Puestos, cuando se trate de la creación o modificación de las clases, en aspectos tales como variación de las tareas, los deberes, las responsabilidades, los requisitos y otros aspectos establecidos en ellas, así como de la creación y eliminación de otras, o de la modificación de la estructura de las clases y grupos ocupacionales, serán aprobadas por la Gerencia General y la Junta Directiva Nacional según corresponda, previa recomendación del Proceso de Desarrollo Humano.
