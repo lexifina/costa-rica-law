@@ -1,0 +1,1 @@
+Art. 4° Se instituye en la capital de la República una escuela normal donde se formen maestros que mas tarde deben difundir la instruccion primaria. Esta escuela queda bajo la dependencia inmediata del Poder Ejecutivo.

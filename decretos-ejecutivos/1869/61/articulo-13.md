@@ -1,0 +1,1 @@
+Art. 13. El Tesoro Nacional satisfará los sueldos de que habla el artículo anterior, de la misma manera como se hace respecto de los demas empleados; á cuyo efecto los Gobernadores pasarán, al Ministerio de Instruccion Pública cada primero de mes las listas del servicio correspondiente al mes que acabe de pasar debiendo contener el Visto Bueno del Presidente Municipal.

@@ -1,0 +1,1 @@
+Art. l2. Los sueldos de que deben gozar los directores de las escuelas superiores; los de los maestros, y los de los ayudantes serán señalados por las Municipalidades con aprobacion del Poder Ejecutivo.
