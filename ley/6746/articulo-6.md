@@ -1,4 +1,4 @@
-Artículo 6º.- El Departamento Financiero del Ministerio de Educación
+ARTICULO 6º.- El Departamento Financiero del Ministerio de Educación
 Pública, con la asesoría el Director de Planeamiento y Desarrollo Educativo
 del mismo Ministerio, distribuirá, anualmente, a más tardar en el mes de
 setiembre, el fondo a que se refiere el artículo 1º de esta ley, acatando
