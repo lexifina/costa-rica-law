@@ -1,1 +1,0 @@
-Art 9°- El Promotor Fiscal debe mensualmente dar un informe general al Secretario de Estado en el despacho de Justicia, sobre los trabajos del Ministerio Público, y otro detallado la Secretar¡a de Hacienda, respecto los asuntos de este ramo.
