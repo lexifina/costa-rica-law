@@ -1,0 +1,3 @@
+Artículo 70.—(Revisión de pensiones por invalidez) No procederá la revisión de prestaciones de los pensionados por invalidez.
+El funcionario que reingrese a las labores remuneradas en virtud de su rehabilitación deberá cumplir con los requisitos de la jubilación o pensión para volver a la pasividad laboral y la cuantía de las prestaciones ^e determinará de conformidad con la reglas contenidas en el artículo 23 de este Reglamento.
+Durante el período que duró la baja laboral por el disfrute de la pensión por invalidez, se computarán como salario de referencia cotizable, el monto de pensión recibido y las cuotas omitidas las asumirá el Fondo.

@@ -1,0 +1,1 @@
+Artículo 56.—(Deliberación del Tribunal Médico Calificador) El Tribunal Médico Calificador, podrá valorar separada o conjuntamente al funcionario interesado, pero en todo caso el certificado deberá firmarse en reunión deliberativa de los tres galenos, para lo cual realizarán tantas reuniones como sea necesario.

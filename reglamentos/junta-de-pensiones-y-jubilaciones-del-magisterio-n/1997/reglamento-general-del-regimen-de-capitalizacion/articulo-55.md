@@ -1,0 +1,1 @@
+Artículo 55.—(Otorgamiento de la cita con el Tribunal Médico Calificador) Una vez cumplido el tramite anterior, la Junta le comunicara el día, hora en que deberá presentarse a examen. Entre la admisión de los documentos y la realización de la valoración por parte del Tribunal Médico Calificador, no podrán mediar más de 15 días naturales.

@@ -1,0 +1,4 @@
+CAPITULO IV
+Procedimiento para el levantamiento del estado de invalidez
+Artículo 57.—(Revisión periódica del estado de invalidez) Todo funcionario que goce de una pensión por invalidez sobreviniente, deberá someterse cada veinticuatro meses a una nueva evaluación médica a efecto de determinar que las causas físicas o mentales que originaron la perdida de al menos dos terceras partes de la capacidad para el trabajo aún subsisten. La valoración la realizara el Tribunal Médico Calificador y el costo de los exámenes correrán por cuenta del beneficiario de pensión, conforme se dispone en el artículo 14 de este Reglamento.
+En caso que los médicos determinen en forma unánime que el funcionario se encuentra rehabilitado, certificarán el levantamiento del estado de invalidez y lo comunicarán a la Junta.

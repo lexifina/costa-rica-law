@@ -1,0 +1,1 @@
+Artículo 65.—(Información al interesado) En atención de los principios informadores del debido proceso. todas las actuaciones de la Junta deberán comunicarse al funcionario interesado, de acuerdo con los artículo 239 y siguientes y concordantes de la Ley General de la Administración Pública.

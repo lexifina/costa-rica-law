@@ -1,0 +1,4 @@
+Artículo 5.—(Magisterio Nacional) Para los efectos de este Régimen se entenderá que integran el Magisterio Nacional aquellos funcionarios que se desempeñen en alguna de las siguientes condiciones siempre y cuando haya sido nombrado con posterioridad al 14 de julio de 1992; o hayan nacido a partir del 1 de agosto de 1965.
+a) Cargos docentes tal y como lo define el artículo 54 de la Ley de Carrera Docente, en instituciones educativas públicas o privadas, de enseñanza preescolar, enseñanza general básica, educación diversificada o Universidades Estatales.
+b) El personal administrativo del Ministerio de Educación Pública y de los centros educativos que se encuentren en los supuestos del inciso anterior, siempre que su nombramiento se haya producido con anterioridad al 13 de julio de 1995.
+c) Los funcionarios del Instituto Nacional de Aprendizaje.

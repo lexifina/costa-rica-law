@@ -1,0 +1,1 @@
+Artículo 62.—(Intereses de las cotizaciones) Desde el nombramiento del funcionario hasta la fecha en que efectivamente se transfieran las cotizaciones del trabajador, éstas deberán devengar intereses iguales al índice tasa básica que determina el Banco Central, en caso de que el Ministerio de Hacienda utilice otro mecanismo para actualizar el valor de las cotizaciones.

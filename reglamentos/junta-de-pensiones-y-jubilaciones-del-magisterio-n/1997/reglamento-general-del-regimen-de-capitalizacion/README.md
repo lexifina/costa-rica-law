@@ -1,0 +1,16 @@
+# Reglamento (1997-04-15)
+
+Reglamento General del Régimen de Capitalización
+
+- Tipo: Reglamento
+- Número: 21
+- Fecha: 1997-04-15
+- Ente emisor: Junta de Pensiones y Jubilaciones del Magisterio Nacional
+- Publicación: La Gaceta N° 188 del 1997-10-01
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=56158&param2=61537&param3=1 (ficha 56158)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1997-10-01 | la propia norma |

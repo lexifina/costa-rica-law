@@ -1,0 +1,4 @@
+Artículo 24.—(Tasa de reemplazo para la pensión por invalidez) El monto mensual correspondiente a la pensión por invalidez de un trabajador se obtendrá de la siguiente forma:
+a) Un 60% del salario promedio de referencia indicado en el artículo 21 de este Reglamento, por las primeras doscientas cuarenta cotizaciones.
+b) El monto anterior se incrementara en un 0.0783% de ese salario promedio, por cada cuota adicional que registre la cuenta individual después de las primeras doscientas cuarenta cotizaciones.
+Si el trabajador se invalida antes de cumplir el mínimo de 36 cotizaciones la Junta procederá a la devolución de las cotizaciones enteradas al Fondo, más los productos financieros hasta la fecha de Efectivo pago, que las mismas hayan generado. De igual forma podrá solicitarse el traslado de las mismas a cualquier otro Régimen de cotización obligatoria.

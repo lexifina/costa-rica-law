@@ -1,0 +1,3 @@
+Artículo 17.—(Excepciones al derecho de pensión por sobrevivencia de viudez) No tendrá derecho a la pensión por sobrevivencia de viudez, el cónyuge supérstite que se encuentre en alguno de los siguientes casos:
+a) Se halle divorciado o separado judicialmente o de hecho y no esté disfrutando a la fecha del fallecimiento del causante de una pensión alimenticia declarada por sentencia firme, salvo que demuestre que recibía de hecho una ayuda económica por parte del cónyuge.
+b) Cuando el cónyuge supérstite haya sido declarado, por sentencia judicial firme, autor, instigador o cómplice de la muerte del causante. Los mismos impedimentos se aplicarán al compañero o compañera.

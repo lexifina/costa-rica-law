@@ -1,0 +1,1 @@
+Artículo 83.—(Superintendencia General de Pensiones) La gestión de la Junta referida al Régimen de Capitalización de Pensiones y Jubilaciones del Magisterio Nacional, se encontrará fiscalizada por la Superintendencia General de Pensiones.

@@ -1,0 +1,1 @@
+Artículo 67.—(Suspensión de prestaciones por jubilación) El jubilado que pase a la condición de funcionario activo, devengando un salario de las instituciones del Magisterio Nacional que obliguen a cotizar al Fondo, le será suspendida por la Junta la percepción de las prestaciones por vejez, durante el tiempo en que se encuentre en ese ejercicio.

@@ -1,0 +1,2 @@
+Artículo 13.—(Pensión por invalidez sobreviniente) Tendrá derecho a la pensión por invalidez el funcionario que haya perdido permanentemente al menos las dos terceras partes de su capacidad física o mental para el ejercicio de sus funciones, y su cuenta individual registre al menos treinta y seis cotizaciones.
+No obstante, para acceder a la prestación por invalidez, el estado del funcionario deberá ser declarado previamente por el Tribunal Médico Calificador.

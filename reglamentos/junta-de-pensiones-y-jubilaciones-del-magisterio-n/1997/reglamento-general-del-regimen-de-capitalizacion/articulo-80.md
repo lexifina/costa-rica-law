@@ -1,0 +1,1 @@
+Artículo 80.—(Liquidación anual) Anualmente se realizará una liquidación de ingresos y gastos para obtener un balance de situación, los estados financieros y los informes o estudios técnicos que la Junta crea oportuno.

@@ -1,0 +1,1 @@
+Artículo 61.—(Individualización de créditos) Una vez transferida por el Ministerio de Hacienda la suma correspondiente a las cotizaciones de los funcionarios que se encuentre en los supuestos de los artículos anteriores, la Junta individualizara el monto que le corresponde a cada uno de los miembros de ese colectivo y lo registrara contablemente en su cuenta individual.

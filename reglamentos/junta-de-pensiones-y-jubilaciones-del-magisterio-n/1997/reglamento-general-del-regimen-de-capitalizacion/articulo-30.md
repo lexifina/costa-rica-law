@@ -1,0 +1,1 @@
+Artículo 30.—(El Fondo de Capitalización) El Fondo de Capitalización estará constituido por todos los ingresos comentes y extraordinarios. Este será inembargable y separado física y contablemente tanto del propio patrimonio, como del Fondo Especial de Administración de la Junta.

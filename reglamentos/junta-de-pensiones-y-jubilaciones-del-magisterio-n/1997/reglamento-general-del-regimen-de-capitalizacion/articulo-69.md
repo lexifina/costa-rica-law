@@ -1,0 +1,3 @@
+Artículo 69.—(Tiempo mínimo de reingreso y cotización) El funcionario que reingrese en las condiciones indicadas y solicite la revisión de su monto jubilatorio deberá demostrar una alta laboral no inferior a veinticuatro meses.
+De igual forma se exigirá que durante el reingreso haya ingresado efectivamente a su cuenta individual los montos de cotización vigentes para el trabajador, empleador y el Estado, al momento de la prestación de servicios remunerada.
+El incumplimiento de esta obligación será causa suficiente para que la Junta pueda desestimar la solicitud de revisión de jubilación por reingreso.

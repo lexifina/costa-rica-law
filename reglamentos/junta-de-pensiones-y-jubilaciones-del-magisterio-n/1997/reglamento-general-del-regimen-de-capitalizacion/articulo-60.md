@@ -1,0 +1,1 @@
+Artículo 60.—(Transferencia en títulos indexables) La suma que determine el Ministerio de Hacienda se transferirá en diez tractos pagaderos anualmente, y en títulos indexables del Estado (TÜDES), según las condiciones de mercado en plazos de diez, quince y veinte años.

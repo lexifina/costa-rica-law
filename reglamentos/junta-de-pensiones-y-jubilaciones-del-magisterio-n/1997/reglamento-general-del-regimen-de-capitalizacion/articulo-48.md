@@ -1,0 +1,3 @@
+Artículo 48.—(Diferencia de la cuenta individual del funcionario) Cuando en razón del ejercicio del derecho de elección, la transferencia de cotizaciones quede un saldo a favor del funcionario cotizante, la Junta lo determinara y hará una transferencia a favor del interesado, el cual será depositado a su favor en el Plan de Privado de Pensiones Complementarias que haya indicado el gestionante.
+En caso de que no se indique la Operadora de Fondos Privados de Pensiones Complementarias, se procederá a direccionar la diferencia a la Operadora de Fondos de Pensión Complementaria Magister que administra la Junta.
+La transferencia del superávit de cotización se realizará en el mismo plazo de los tres meses indicado en el artículo anterior.

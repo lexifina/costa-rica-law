@@ -1,0 +1,2 @@
+Artículo 73.—(Estudiantes) Los mayores de dieciocho años y menores de veinticinco que se encuentren estudiando, perderán el derecho a la prestación actual si la promoción es inferior al 66% de cada período matriculado.
+Una vez acreditada esa información en el expediente, la Junta mediante resolución fundada declarará la caducidad de las prestaciones por sobrevivencia en favor del huérfano, la cual se notificará al interesado. En caso de oposición, se observara lo dispuesto en el último párrafo del artículo anterior.

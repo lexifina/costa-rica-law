@@ -1,0 +1,1 @@
+Artículo 82.—{Auditoría Externa) La Junta Directiva podrá ordenar la práctica de las auditorias externas que estime necesarias, sobre el Fondo del Régimen de Capitalización que administra la Junta, como complemento a las labores propias que desarrolla la Auditoría Interna de la Institución.
