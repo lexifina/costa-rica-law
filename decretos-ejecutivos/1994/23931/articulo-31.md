@@ -1,0 +1,7 @@
+Artículo 31.- Denegación del trato arancelario preferencial.
+La Dirección General ordenará que se deniegue trato arancelario preferencial en la importación de una mercancía, cuando:
+a) el exportador o productor no responda y devuelva el cuestionario en los términos solicitados dentro del plazo de treinta días contados a partir de la fecha de recepción de conformidad con el párrafo tercero del artículo 6-07 del Tratado.
+Sin perjuicio de la prórroga que establece el mismo párrafo, cuya solicitud deberá constar por escrito ante la Dirección General de previo al vencimiento de ese plazo.
+b) el exportador o productor no otorga su consentimiento por escrito para la realización de una visita de verificación dentro del plazo de treinta días contados a partir de la notificación, de previo al vencimiento de ese plazo.
+c) el exportador, el productor o, en su caso, el importador de la mercancía no conserven los documentos a que se refieren los artículos 17, 18 y 19 anteriores y artículo 6-06 del Tratado, o nieguen el acceso a esos documentos a los funcionarios aduaneros competentes expresamente autorizados para tal efecto por el Director General de Aduanas.
+d) de conformidad con lo establecido en el párrafo 12 del artículo 6-06 del Tratado, se establezca que el exportador o el productor ha certificado o declarado más de una vez de manera falsa o infundada que una mercancía califica como originaria, hasta que el interesado pruebe que esa mercancía cumple con las reglas de origen del Capítulo V del Tratado.

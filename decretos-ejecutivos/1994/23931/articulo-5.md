@@ -1,0 +1,2 @@
+Artículo 5º.- Emisión del certificado. El certificado de origen es llenado y firmado por el exportador de las mercancía. Si el exportador no es el productor de las mercancías, podrá llenar y firmar el certificado de origen con fundamento en la declaración de origen de esas mercancías, firmada y llenada por el productor. La declaración será proporcionada voluntariamente al exportador.
+El certificado y la declaración de origen deberán ser llenados de conformidad con los instructivos contenidos en los Anexos A y B de este Reglamento.

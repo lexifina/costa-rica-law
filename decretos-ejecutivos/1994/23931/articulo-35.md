@@ -1,0 +1,1 @@
+Artículo 35.- Plazo de emisión. La Dirección General emitirá el criterio anticipado dentro de un plazo de 120 días a partir de que haya obtenido toda la información necesaria del solicitante. De no emitirse el criterio dentro de este plazo la resolución se entenderá negativa para los efectos de los recursos administrativos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 25.- Solicitud de una visita de verificación. La Dirección General contará con un plazo de cuarenta y cinco días contando a partir de que reciba la respuesta del exportador o productor al cuestionario de verificación, para enviar la notificación por escrito de su intención de efectuar una visita de verificación si lo considera conveniente.

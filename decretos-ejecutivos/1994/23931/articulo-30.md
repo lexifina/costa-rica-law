@@ -1,0 +1,2 @@
+Artículo 30.- Resolución final del procedimiento de verificación. La Dirección General, mediante resolución escrita, determinará si las mercancías objeto de verificación califican o no como originarias, incluyendo las conclusiones de hecho y el fundamento jurídico de esa determinación.
+Esta resolución deberá emitirse en el plazo de 120 días contado a partir de la conclusión de la verificación y la notificará al exportador o productor cuyas mercancías hayan sido objeto de verificación, al importador y las otras partes interesadas.

@@ -1,0 +1,1 @@
+Artículo 6º.- Operaciones que ampara el certificado. De conformidad con lo que establece el párrafo 4 del artículo 6-02 del Tratado, el certificado de origen podrá amparar una sola importación o varias importaciones de mercancías idénticas. Un embarque de mercancías podrá desalmacenarse al amparo de un certificado de origen aunque se presenten varias declaraciones de importación.

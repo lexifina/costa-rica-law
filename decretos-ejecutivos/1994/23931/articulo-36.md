@@ -1,0 +1,1 @@
+Artículo 36.- Aplicación de los criterios. Los criterios anticipados serán aplicables a partir de la fecha de expedición o de la fecha posterior que en el mismo se indique y podrá ser modificado o revocado por la Dirección General de conformidad con los párrafos 6, 7 y 8 del Artículo 6-10 del Tratado.

@@ -1,0 +1,5 @@
+CAPITULO III
+Obligaciones respecto a las importaciones
+Artículo 10.- Declaración del importador. Con salvedad de lo establecido en el artículo 8, en aquellas operaciones de importación de mercancías a las cuales les sea aplicable el trato arancelario preferencial establecido en el Tratado, deberá indicarse en la declaración de importación que las mercancías califican como originaria utilizando el código 04 en la casilla correspondiente ("Convenio").
+El importador deberá tener el original del certificado de origen al momento de presentar a la Aduana respectiva la declaración de importación y, además, deberá adjuntar a esa declaración una copia del certificado de origen que ampara las mercancías.
+Cuando un certificado de origen ampare varias importaciones de mercancías idénticas, deberá indicarse en las declaraciones de importación posteriores a la primera en que se utilizó el certificado, el número de esa primera declaración. Este número se anotará en la casilla correspondiente a "Documentos Presentados".

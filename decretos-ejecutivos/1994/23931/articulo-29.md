@@ -1,0 +1,1 @@
+Artículo 29.- Designación de testigos. El exportador o productor que sea objeto de una visita de verificación podrá designar dos testigos para que estén presentes durante la visita, siempre que los testigos intervengan únicamente en esa calidad. La omisión del exportador o productor de designar testigos no tendrá por consecuencia la posposición de la visita.

@@ -1,0 +1,1 @@
+Artículo 23.- Plazo de respuesta. El exportador o productor responderá y devolverá el cuestionario con toda la información requerida en un plazo no mayor de treinta días contando a partir de la fecha de recepción del oficio de remisión.

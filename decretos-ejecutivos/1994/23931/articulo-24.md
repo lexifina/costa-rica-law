@@ -1,0 +1,1 @@
+Artículo 24.- Solicitud de prórroga. Durante el plazo del artículo anterior, el exportador o productor podrá solicitar por escrito a la Dirección General, una prórroga. Esta prórroga no podrá ser mayor de treinta días.

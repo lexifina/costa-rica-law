@@ -1,0 +1,3 @@
+CAPITULO VIII
+Recursos administrativos y judiciales
+Artículo 40.- Medios de revisión e impugnación. El importador y el productor o exportador que hubiere llenado y firmado un certificado de origen o una declaración de origen que ampare una mercancía que haya sido objeto de una determinación de origen de conformidad con el párrafo 11 del artículo 6-07 del Tratado o haya recibido un criterio anticipado de acuerdo al artículo 6-10 del Tratado, podrá interponer los recursos que correspondan contra la resolución que determina el origen o modifica o revoca el criterio anticipado de acuerdo a la legislación aduanera nacional y las disposiciones de la ley Nº 3667 del 12 de marzo de l966 (Ley Reguladora de la Jurisdicción Contencioso-Administrativa).
