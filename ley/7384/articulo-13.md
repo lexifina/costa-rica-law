@@ -1,0 +1,4 @@
+ARTICULO 13.- La Junta Directiva ejercerá sus funciones con absoluta
+independencia y bajo su exclusiva responsabilidad, dentro de las normas
+establecidas en la Constitución Política, las leyes, los reglamentos y los
+principios técnicos aplicables.
