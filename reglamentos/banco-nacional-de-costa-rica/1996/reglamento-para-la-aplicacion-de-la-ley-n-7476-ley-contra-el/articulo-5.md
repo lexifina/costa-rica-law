@@ -1,0 +1,8 @@
+Del procedimiento en sede administrativa
+Artículo 5°-A los fines de realizar el procedimiento administrativo de las denuncias que, por acoso u hostigamiento sexual, presenten los trabajadores del Banco Nacional de Costa Rica en sede administrativa, se seguirá el siguiente procedimiento, en concordancia con el artículo 68 de la Convención Colectiva:
+1. El empleado o empleada que se considere afectado por acoso u hostigamiento sexual podrá plantear la denuncia por escrito ante la Jefatura del Área de Recursos Humanos, ofreciendo toda la prueba que estime pertinente.
+2. Únicamente en casos de suma urgencia será admitida la denuncia en forma verbal, la cual deberá hacerse en presencia de dos testigos.
+3. Una vez recibida, la denuncia será trasladada a la Oficina de Relaciones Laborales, la que se encargará de darle el trámite correspondiente, siguiendo el procedimiento señalado en este Reglamento, en el artículo 68 de la Convención Colectiva y en la ley N° 7476.
+4. La Oficina de Relaciones Laborales dará audiencia a las partes implicadas a efecto de que lleguen a una conciliación; en caso de mantenerse la denuncia, se procederá de conformidad con los procedimientos siguientes.
+5. En audiencia oral y privada a la que podrán asistir únicamente las partes y sus abogados se recibirán las pruebas que se hayan ofrecido, levantándose un acta escrita de las declaraciones testimoniales que será firmada por los testigos y las partes presentes.
+6. Si la denuncia contuviere motivos totalmente infundados, la Jefatura del Area de Recursos Humanos podrá declararla inadmisible mediante resolución razonada, la que deberá hacerse del conocimiento, posteriormente, de la Junta de Relaciones de Trabajo.

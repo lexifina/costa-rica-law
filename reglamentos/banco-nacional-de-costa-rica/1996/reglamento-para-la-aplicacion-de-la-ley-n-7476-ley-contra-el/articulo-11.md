@@ -1,0 +1,1 @@
+Artículo 11.-En todo aquello no contemplado por el presente Reglamento, se aplicarán supletoriamente las disposiciones contenidas en la ley N° 7476, el Código de Trabajo, las Leyes Laborales Conexas, la Ley General de la Administración Pública y el Reglamento Interno de Trabajo. De la vigencia y de la publicidad

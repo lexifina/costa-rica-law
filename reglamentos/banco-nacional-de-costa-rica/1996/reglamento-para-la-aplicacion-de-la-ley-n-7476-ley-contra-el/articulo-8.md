@@ -1,0 +1,1 @@
+Artículo 8°-En caso de que se produzca empate para la resolución final, el caso será conocido en una sesión extraordinaria a celebrarse dentro de los ocho días hábiles siguientes; si persistiere el empate, el caso será resuelto por el Gerente General dentro del plazo de cinco días hábiles contado a partir del recibo del expediente.
