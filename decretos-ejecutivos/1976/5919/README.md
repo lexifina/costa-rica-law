@@ -14,3 +14,4 @@ Conceder a la firma "National Centroamericana, Sociedad Anónima" exoneración d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-04-22 | la propia norma |
+| 2 | 1977-02-18 | Decreto Ejecutivo 6803 (1977-02-18) |
