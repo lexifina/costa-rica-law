@@ -1,1 +1,0 @@
-Artículo 6°—La Comisión sesionará ordinariamente cada tres meses y extraordinariamente cuando el Ministro, el Presidente o a solicitud conjunta de tres de sus miembros la convoquen. Las convocatorias, serán notificadas a los miembros de la Comisión por lo menos con 48,00 horas de anticipación, indicándose el orden del día que será tratado en la sesión.
