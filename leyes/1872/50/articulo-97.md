@@ -1,0 +1,1 @@
+Articulo 97.-Cuando se declare haber nulidad por infracción de ley en los procedimientos, se indicar en la sentencia la parte o partes en que ella se encuentre citándose la ley quebrantada, se declarar nulo el proceso, desde el lugar en que se cometió la nulidad mandando reponerlo a costa del culpado.

@@ -1,0 +1,1 @@
+Artículo 66.-Recusados veinte Jurados por cada una de las partes, no podrán recusarse más si no es con expresión de causal justa, probándola sumariamente ante el mismo Juez del Crimen, quien, bajo su responsabilidad, decidir sobre ella sin lugar a apelación, ni otro recurso que el de queja o acusación por la parte agraviada.

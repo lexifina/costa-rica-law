@@ -1,0 +1,1 @@
+Artículo 61.-Ya sea que el impreso denunciado esta‚ suscrito o sea anónimo, en el auto de admisión se mandar citar al Editor del periódico, si fuese este o un artículo de ‚l el denunciado, o al dueño o Director de la Imprenta si fuese otra clase de impreso para que se apersone, si quisiere, en el juicio, designándoles el término en el cual deben presentarse.

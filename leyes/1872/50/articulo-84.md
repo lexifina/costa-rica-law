@@ -1,0 +1,1 @@
+Artículo 84.-Dentro de veinticuatro horas después de dictado el auto de prisión, el Juez pronunciar la sentencia que corresponda, imponiendo al culpable o responsable a pena a que se haya hecho acreedor por el abuso, en el grado que haya lugar.

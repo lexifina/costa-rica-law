@@ -1,0 +1,1 @@
+Artículo 2°.-En cada oficina donde haya una Imprenta establecida, se colocar por el dueño o Director, en la puerta exterior, una tabla en la que en letras inteligibles a distancia, se inscriba el nombre de la Imprenta y el de su dueño o administrador. La contravención a esta disposición, ser castigada con una multa de cinco a veinticinco pesos por cada vez.

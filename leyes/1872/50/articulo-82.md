@@ -1,0 +1,1 @@
+Artículo 82.-Si el Editor, dueño de Imprenta o Director de ella no presentase el original, o este no tuviese firmado por persona de quien pueda exigirse responsabilidad, se dictar el auto de prisión contra el Editor o dueño, según queda determinado en el artículo 16.

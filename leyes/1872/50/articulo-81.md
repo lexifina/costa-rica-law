@@ -1,0 +1,1 @@
+Artículo 81.-A este efecto, el Juez, recibido que sea el expediente, requerir al Editor, dueño o Director de la Imprenta, para que presente el original autorizado con la firma del autor. Presentado este, se practicar el reconocimiento de la firma, decretando en el acto la prisión, salvo la fianza de haz.

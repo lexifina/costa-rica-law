@@ -1,0 +1,1 @@
+Artículo 3°. -En todo libro, folleto, periódico, hoja suelta o impreso destinado a la circulación, se pondrá al principio o al fin el nombre de la Imprenta y la fecha en que se haya concluido la impresión; pero si la circulación se ha de hacer por varias entregas, el nombre de la Imprenta y el de su dueño o Director se pondrá siempre en la primera.

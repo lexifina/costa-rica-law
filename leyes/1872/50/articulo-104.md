@@ -1,0 +1,1 @@
+Artículo 104.-Todo papel abusivo de la libertad de Imprenta, impreso fuera de Costa Rica, pero publicado y circulado dentro de la República, puede ser acusado ante cualquiera de los Jurados de la misma, únicamente para el efecto de que se declare abusivo y se mande prohibir la circulación e inutilizarlo.

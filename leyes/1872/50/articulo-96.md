@@ -1,0 +1,1 @@
+Artículo 96.-El acto de la vista se reducir a imponerse del proceso, a oír en seguid a las partes en estrados, concediendo la palabra hasta dos veces a cada una, primero al recurrente y por último a la contraria, y terminados los alegatos, el Tribunal fallara lo que proceda en derecho.

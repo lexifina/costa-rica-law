@@ -1,0 +1,1 @@
+Articulo 91.-Del escrito en que se interponga el recurso dar el Juez trasladado a la parte contraria por el término improrrogable de tres días, pudiendo la parte recurrente acusar la rebeldía, si se dejase transcurrir el término sin sacar el proceso o devolverlo con la contestación en tiempo oportuno.

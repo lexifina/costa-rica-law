@@ -1,0 +1,1 @@
+Articulo 63.-Si trascurrido el término del emplazamiento, el citado no se presentase, o si la citación no hubiese podido hacerse en persona, por no ser hallado en el lugar, el Juez nombrar un defensor al papel acusado, y con ‚ continuarán los procedimientos, a no ser que se presente el responsable, quien deber tomar el juicio en el estado en que se halle.

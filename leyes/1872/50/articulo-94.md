@@ -1,0 +1,1 @@
+Artículo 94.-Si fuese la parte contraria al recurrente la que no compareciese, a petición de este, se declarar rebelde y se proceder sin su audiencia; pero se le admitir si se presenta a purgar la rebeldía.

@@ -1,0 +1,1 @@
+Artículo 85.-Si el culpable o responsable estuviese ausente, o se fugase antes de decretar la sentencia, se ejecutar la pena pecuniaria, reservando la de arresto para cuando el reo pudiera ser habido antes de trascurrido el término de la prescripción para la satisfacción de las penas.

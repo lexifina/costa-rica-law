@@ -1,0 +1,1 @@
+Artículo 79.-Pronunciado que sea el veredicto, el Presidente mandar abrir las puertas y continuando la audiencia pública, el Secretario lo leer en voz clara, e inteligible, junto con la nota de discordancia si la hubiere, y se dar por terminada la audiencia.

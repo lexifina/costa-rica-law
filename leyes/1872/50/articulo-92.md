@@ -1,0 +1,1 @@
+Artículo 92.-Contestado el escrito o declarada la rebeldía, sin otro trámite, ni dilación, elevar el Juez todo el expediente a la Corte Suprema de Justicia emplazando a las partes para que ocurran a usar de su derecho dentro de un término prudencial que no baje de tres días ni exceda de ocho, según la distancia.

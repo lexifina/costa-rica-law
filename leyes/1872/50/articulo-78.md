@@ -1,0 +1,1 @@
+Artículo 78.-Para que haya sentencia se necesitan los dos tercios de votos de los Jurados que componen el Tribunal. El veredicto ser firmado por todos los Jurados aun por los discordantes; pero se harán constar por medio de una razón puesta a continuación del veredicto, los votos de los Jueces discordantes, cuya razón ser firmada por estos y rubricada por los demás.

@@ -1,0 +1,1 @@
+Artículo 13.-Son folletos los impresos que excediendo de un pliego de papel de igual marca, no pasen de veinte y se publiquen ocasionalmente y no en periodos determinados, ya sea con un nombre adoptado de antemano o ya con nombres títulos distintos.

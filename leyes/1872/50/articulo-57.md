@@ -1,0 +1,1 @@
+Artículo 57.-El cargo de Jurado es forzoso; solo podrán excusarse los mayores de setenta años y los habitualmente enfermos, de enfermedad que, a juicio del Médico del Pueblo, o en su falta del de dos facultativos o empíricos conforme a las prescripciones de la ley, les impida el desempeñarlo.

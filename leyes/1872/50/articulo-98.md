@@ -1,0 +1,1 @@
+Artículo 98.-si la nulidad se hubiese cometido en la sentencia de aplicación de la pena por haberse fallado contra ley terminante, el Tribunal declarar la nulidad, aplicando la pea que corresponda y condenando al Juez en las costas del recurso.

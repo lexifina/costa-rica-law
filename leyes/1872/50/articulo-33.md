@@ -1,0 +1,1 @@
+Articulo 33.-Delinque contra la Religión, el que se mofe, burle o haga escarnio de la Religión del Estado, o de cualquiera de las ceremonias u objetos destinados al culto público religioso. También delinque el que comete iguales atentados respecto a cualquiera otro culto religioso público, admitido en Costa Rica.

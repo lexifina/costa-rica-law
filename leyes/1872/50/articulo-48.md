@@ -1,0 +1,3 @@
+CAPITULO 7°
+De la acusación de los delitos de Imprenta.
+Artículo 48.-La acción para acusar los impresos, comprendidos en los artículos 29, 30, 32, 33 y 35, es popular: sin perjuicio de eso, el Agente Fiscal de la Provincia donde se hubiese impreso el escrito, tiene obligación ya de oficio o por orden del Gobierno o sus Agentes o de la autoridad ofendida en el caso del artículo 35 de acusar y sostener la acusación hasta el fin. Si el Agente Fiscal a quien corresponda intentar la acusación, se excusase de promoverla por algún motivo legal, se nombrar un específico, cuyos honorarios pagar el propietario, siempre que el impreso sea declarado abusivo.

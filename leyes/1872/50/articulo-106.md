@@ -1,0 +1,1 @@
+Articulo 106.-Las composiciones dram ticas, impresas o manuscritas, no podrán representarse en los Teatros, sin previo examen y permiso de la autoridad política local del Tribunal de censura si lo hubiese establecido.

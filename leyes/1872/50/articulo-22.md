@@ -1,0 +1,1 @@
+Artículo 22.-Todo el que publique circule un periódico sin las formalidades prescritas en esta ley, ser condenado a una multa de doscientos pesos por solo ese hecho sin perjuicio de las demás responsabilidades a que puede hacerse acreedor por las publicaciones abusivas.

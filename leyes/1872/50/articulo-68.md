@@ -1,0 +1,1 @@
+Artículo 68, Sorteados los Jurados que deben componer el Tribunal, el Juez, dar , en el acto, copia autorizada del libelo de acusación al responsable, si se hubiese apersonado, o al defensor del impreso para que prepare la defensa.
