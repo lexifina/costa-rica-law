@@ -1,0 +1,1 @@
+Artículo 49.—Para el funcionamiento de la caja chica, la Tesorería o el jefe de la dependencia donde esta funciona, debe disponer de los medios de protección adecuados para la custodia del dinero y valores que en la misma se manejen.

@@ -1,0 +1,3 @@
+Articulo 11.—Los pagos por compra de bienes y servicios deberán estar respaldados por una factura comercial que contenga la información que, para efectos tributarios, exige la Dirección General de la Tributación. En caso de que en razón del servicio no existiere factura que justifique el gasto, se confeccionará un recibo o factura (comprobante de pago), señalando el nombre del proveedor, número de cédula, servicio prestado y monto cancelado.
+De previo a la adquisición de bienes por medio de caja chica deberá dejarse constancia de que el bien no existe en el Almacén de Materiales ni en la bodega de la respectiva oficina.
+Una vez adquiridos los bienes deberá reportarse al Almacén de Materiales mediante la fórmula de Certificado de Ingreso y Salida de Materiales.

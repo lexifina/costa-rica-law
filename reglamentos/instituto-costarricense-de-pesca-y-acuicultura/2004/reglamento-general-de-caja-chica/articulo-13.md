@@ -1,0 +1,1 @@
+Artículo 13.—Para el pago del servicio de limpieza debe solicitarse como máximo semanalmente, el adelanto de caja chica y la respectiva reserva presupuestaria. Una vez suministrado el servicio, debe liquidarse el adelanto en el plazo fijado en el artículo anterior.

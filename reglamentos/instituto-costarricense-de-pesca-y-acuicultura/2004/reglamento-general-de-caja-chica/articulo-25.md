@@ -1,0 +1,1 @@
+Artículo 25.—El funcionario que no ha solicitado adelanto para gira, contará con siete (7) días hábiles posteriores al regreso de la misma para solicitar al responsable de la caja, el reintegro de la totalidad de la liquidación de gastos de viaje y transporte, de conformidad con lo establecido en el artículo 24 supra.

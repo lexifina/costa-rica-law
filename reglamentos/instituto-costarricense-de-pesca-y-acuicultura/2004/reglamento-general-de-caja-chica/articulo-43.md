@@ -1,0 +1,1 @@
+Artículo 43.—La administración de los recursos del fondo es responsabilidad del encargado de caja chica. De igual manera el Tesorero o en su defecto, la Jefatura de la Dirección u Oficina Regional, Estación Experimental o dependencia donde éste funcione, será responsable de que se tomen las medidas necesarias destinadas a mantener un adecuado funcionamiento y control del mismo.

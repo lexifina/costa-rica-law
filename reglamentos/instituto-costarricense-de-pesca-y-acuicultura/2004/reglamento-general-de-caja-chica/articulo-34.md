@@ -1,0 +1,1 @@
+Artículo 34.—El funcionario responsable del manejo de caja chica debe solicitar el reembolso de fondos con la frecuencia que el volumen de gastos lo demande, pero como máximo, deberá remitir los reembolsos trimestralmente a efecto de que sean considerados en las liquidaciones presupuestaria y contable que realiza el Departamento Financiero.

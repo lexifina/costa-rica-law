@@ -1,0 +1,2 @@
+Artículo 36.—El encargado de la caja chica no podrá aceptar comprobantes con tachaduras, roturas, borrones u otras alteraciones de cualquier tipo que hagan dudar de su legitimidad.
+A las facturas y comprobantes de compras, no deben hacerse agregados o modificaciones de ninguna especie. En caso de requerirse, el funcionario que solicitó el adelanto deberá solicitar al proveedor la emisión de una nueva factura, consignado correctamente la información.

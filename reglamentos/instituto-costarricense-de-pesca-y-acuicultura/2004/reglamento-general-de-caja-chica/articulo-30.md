@@ -1,0 +1,1 @@
+Artículo 30.—Los sobrantes de dinero que se establezcan en los arqueos que se practiquen, se depositarán en la cuenta bancaria general del Instituto, mediante emisión del comprobante de ingreso respectivo.

@@ -1,0 +1,2 @@
+Artículo 39.—Aquellas liquidaciones de gastos que se presenten en forma extemporánea (casos de vacaciones o incapacidad del funcionario), serán recibidas siempre y cuando cuenten con la autorización y firma del jefe inmediato.
+Si el responsable de la caja chica recibe liquidaciones presentadas extemporáneamente y sin justificación, se hará acreedor a la sanción disciplinaria correspondiente, de acuerdo con lo establecido en el Reglamento Autónomo de Organización y Servicios del INCOPESCA.

@@ -1,0 +1,1 @@
+Artículo 31.—En caso de determinarse un faltante en Caja, éste deberá ser asumido y cancelado inmediatamente por el funcionario responsable de la custodia de los fondos, ello sin perjuicio de las medidas administrativas que se pudieran derivar.

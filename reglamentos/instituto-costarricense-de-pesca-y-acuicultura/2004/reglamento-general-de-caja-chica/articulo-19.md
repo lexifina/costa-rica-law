@@ -1,0 +1,2 @@
+Artículo 19.—Una vez efectuada la gira para la cual se solicitó el Adelanto de Viáticos, se deberá hacer la respectiva liquidación dentro de los siete (7) días hábiles posteriores al regreso.
+El incumplimiento en la presentación de la liquidación de gastos dentro del plazo establecido obligará a la Administración a aplicar las sanciones disciplinarias que establezcan las leyes, reglamentos u otras disposiciones internas del Instituto.

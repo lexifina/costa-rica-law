@@ -1,0 +1,2 @@
+Artículo 33.—La Tesorería será la responsable de realizar una revisión exhaustiva de los reembolsos de caja chica presentados por las diferentes dependencias que cuentan con Caja Chica. Además deberá velar porque los Adelantos, las Liquidaciones de Gastos, los comprobantes o facturas cumplan con los requisitos establecidos en el Manual de Procedimientos de Caja Chica.
+Las Liquidaciones de Caja Chica que no cumplan los requisitos establecidos en el Manual de Procedimientos de Caja Chica serán devueltas al responsable de caja chica para su corrección.

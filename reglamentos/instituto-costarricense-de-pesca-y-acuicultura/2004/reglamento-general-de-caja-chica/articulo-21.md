@@ -1,0 +1,1 @@
+Artículo 21.—Si la liquidación indica que el funcionario debe reintegrar alguna suma de dinero, ésta será recibida en el acto por el responsable de caja, sin embargo, no se tendrá por recibida una liquidación de viáticos si el funcionario no ha reintegrado el monto correspondiente.

@@ -1,0 +1,1 @@
+Artículo 37.—Bajo ninguna circunstancia se aceptarán facturas que estuvieran fechadas antes de la fecha de retiro del “Adelanto de Caja Chica” o donde no se consigne la fecha de compra del bien o servicio.

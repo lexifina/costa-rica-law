@@ -1,0 +1,1 @@
+Artículo 38.—El destino de los fondos para los cuales se solicita el adelanto de caja chica no deberá diferir de la compra efectuada. El funcionario que incumpla ésta disposición debe reintegrar la totalidad del adelanto de caja chica, previa intimación, de acuerdo con la ley.

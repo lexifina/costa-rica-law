@@ -1,0 +1,1 @@
+Artículo 7º—Todos los pagos que se realicen por medio de caja chica deben contar con la respectiva reserva presupuestaria dada por Presupuesto, previo a la adquisición de un compromiso con un proveedor que brinda un bien o un servicio, o con un funcionario que solicita un adelanto o liquidación de viáticos.

@@ -1,0 +1,1 @@
+Artículo 18.—Para otorgar un adelanto debe contarse con efectivo en la caja chica, por lo tanto no se permitirá el adelanto por un monto inferior al gasto real que va a realizar el funcionario durante la gira.

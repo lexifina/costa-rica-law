@@ -1,0 +1,1 @@
+Artículo 9º—Todos los adelantos de caja chica deben ser autorizados y firmados por el superior inmediato del funcionario, lo que también se aplica para el caso de los trámites que realiza la jefatura de la dependencia.

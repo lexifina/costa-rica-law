@@ -1,0 +1,1 @@
+Artículo 45.—El jefe del Departamento Financiero y la Auditoría Interna o sus representantes, podrán efectuar en cualquier momento y sin previo aviso, todas aquellas revisiones, arqueos o verificaciones de documentos que juzguen convenientes sobre las cajas chicas o sobre los procedimientos de control interno vigentes.

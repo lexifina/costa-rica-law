@@ -1,0 +1,4 @@
+Artículo 8º—Del fondo de caja chica se podrán realizar desembolsos únicamente de conformidad con el artículo 3º del presente Reglamento por los siguientes conceptos:
+a) Para cubrir gastos de viaje y transporte al interior del país para los funcionarios de la Institución con base en las tarifas estipuladas en el Reglamento de Gastos de Viaje y Transporte para los Funcionarios Públicos emitido por la Contraloría General de la República.
+b) Para compras de bienes y servicios, con cargo a las partidas servicios no personales y materiales y suministros, excepto lo indicado en el punto a.
+Para ambos casos, el Departamento Financiero será el que defina los montos autorizados para gastos por caja chica, definición que debe ser hecha en forma previa, genérica y formal y comunicada oportunamente a todas las dependencias de la Institución.
