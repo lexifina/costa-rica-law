@@ -13,3 +13,4 @@ Expropiación Inmuebles de Osa Productos Forestales S.A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-05-02 | la propia norma |
+| 2 | 1979-07-05 | Decreto Ejecutivo 10244 (1979-07-05) |
