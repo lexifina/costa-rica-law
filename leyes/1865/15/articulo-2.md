@@ -1,0 +1,1 @@
+Art 2° Merece el especial beneplácito del Congreso, la legación que el Poder Ejecutivo acreditó cerca del Gobierno de los Estado Unidos de Colombia, con el laudable intento de celebrar con esta República vecina y hermana, un tratado de límites, amistad y comercio, sobre cuya importante obra resolverán las Cámaras, cuando el mismo Poder Ejecutivo tenga a bien someterla.
