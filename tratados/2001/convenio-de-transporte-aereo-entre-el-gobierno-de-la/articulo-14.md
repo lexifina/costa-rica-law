@@ -1,0 +1,9 @@
+ARTÍCULO 14
+Solución de Controversias
+1.- Si surgiera alguna discrepancia entre las Partes Contratantes en relación con la interpretación o aplicación del presente Convenio, las Partes Contratantes en primer lugar tratarán de solucionarla mediante negociación entre ellas. Si las Partes Contratantes no llegaran a un arreglo mediante negociación, podrán acordar someter la discrepancia a la decisión de un tribunal arbitral.
+2.- El arbitraje deberá llevarse a efecto por un tribunal compuesto por tres árbitros que se constituirá de la siguiente manera:
+a) Dentro de los 30 días después de recibida la solicitud de arbitraje, cada Parte Contratante designará un árbitro. Dentro de los 60 días después que estos dos árbitros hayan sido nombrados, designarán mediante acuerdo un tercer árbitro, que actuará como Presidente del tribunal arbitral;
+b) Si cualquiera de las Partes Contratantes no designa un árbitro o si el tercer árbitro no se nombra de acuerdo al subpárrafo a) de este párrafo, cualquiera de las Partes Contratantes podrá requerir al Presidente del Consejo de la Organización de Aviación Civil Internacional que designe al árbitro o árbitros necesarios, dentro de 30 días. Si el Presidente del Consejo tiene la misma nacionalidad de una de las Partes Contratantes, hará el nombramiento el más antiguo Vice Presidente que no esté inhabilitado por la misma causa.
+3.- Las Partes Contratantes se comprometen a acatar cualquier decisión adoptada según el párrafo 2. de este Artículo.
+4.- Si cualquiera de las Partes Contratantes o las líneas aéreas de cualquiera de ellas dejaren de acatar la decisión de conformidad al párrafo 2. de este Artículo, la otra Parte Contratante podrá, mientras no se acate, limitar, impedir o revocar cualquier derecho o privilegio que haya sido otorgado en virtud de este Convenio a la Parte Contratante que no cumpla.
+5.- Los gastos del Tribunal Arbitral serán asumidos en montos iguales por las Partes.

@@ -1,0 +1,7 @@
+ARTÍCULO 11
+Competencia entre líneas aéreas
+1.- Cada una de las Partes Contratantes dará una oportunidad justa y equitativa a las líneas aéreas designadas de ambas Partes Contratantes, para competir en el transporte aéreo internacional a que se refiere el presente Convenio.
+2.- La capacidad de transporte ofrecida por las líneas aéreas designadas será determinada por cada una de ellas, sobre la base de las demandas del mercado.
+3.- Ninguna de las Partes Contratantes limitará unilateralmente el volumen de tráfico, la frecuencia o regularidad del servicio, o el tipo o los tipos de aeronaves explotadas por las líneas aéreas designadas de la otra Parte Contratante, salvo cuando sea necesario por razones aduaneras, técnicas, operacionales o ambientales, de acuerdo a condiciones uniformes compatibles con el Artículo 15 de la Convención.
+4.- Cada una de las Partes Contratantes adoptará todas las medidas apropiadas dentro de su jurisdicción para eliminar cualquier forma de discriminación o prácticas de competencia desleal que tengan un efecto adverso sobre la posición competitiva de las líneas aéreas de la otra Parte Contratante.
+5.- Cada Parte Contratante minimizará los trámites administrativos de los requisitos y procedimientos de presentación que deban cumplir las líneas aéreas designadas de la otra Parte Contratante y asegurará que tales requisitos y procedimientos se aplicarán sobre bases no discriminatorias.
