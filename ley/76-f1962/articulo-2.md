@@ -1,0 +1,1 @@
+Artículo II. —Las mercaderías que por su naturaleza no pudieren ser registradas en las Aduanas marítimas sin peligro de que se deterioren con el tránsito á esta capital, lo serán aquí, previo permiso de las Secretaria de hacienda, por la Contaduría Mayor. Las pólizas en tal caso se recargarán con un diez por ciento de su valor.
