@@ -1,0 +1,1 @@
+Artº 38.-Los escribientes harán una plana que ocupe la quarta parte del pliego á mañana y tarde: acabada esta se dedicarán al estudios de Ortografia y Aritmetica, si huviesen acabado los ramos anteriores, y sinó al de éstos.

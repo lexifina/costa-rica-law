@@ -1,0 +1,1 @@
+Artº 68.-Las listas de las puertas se refrendarán cada dos meses, y con la tercera se dará cuenta al Rector, debiendo este elevar las de las clases mayores al Gobierno en el tiempo que señala el artº 11.

@@ -1,0 +1,1 @@
+Artº 47.-Se usará del castigo de desenzo en el asiento, y nota en la lista, en los defectos de lecciones: en los de asistencia se dará aviso á los Padres, ó tutores de los niños, y en los demas como se extablese por el artº 23 Capitulo 4º.
