@@ -1,0 +1,1 @@
+Artículo 4º.- Del monto total recaudado por este impuesto, el Banco Central podrá deducir una comisión mínima a título de gastos administrativos, acorde con la que se cobra al Gobierno Central por servicios similares.

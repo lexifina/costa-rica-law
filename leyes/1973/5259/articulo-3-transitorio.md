@@ -1,0 +1,2 @@
+Transitorio III.- Una vez declarado oficial el Censo Agropecuario de 1973 por la Dirección General de Estadística y Censos, la distribución del 50% del impuesto a que se refiere el aparte a) del artículo 3º se hará en proporción al número de cabezas de ganado vacuno de engorde existente en cada cantón de la República, o distrito en su caso, según ese censo.
+Asamblea Legislativa.-San José, a los diecisiete días del mes de julio de mil novecientos setenta y tres.

@@ -1,0 +1,1 @@
+Artículo 7º.- La Contraloría General de la República deberá verificar periódicamente el exacto cumplimiento de esta ley, para cuya labor podrá solicitar la información pertinente a las empresas empacadoras y mataderos del país.

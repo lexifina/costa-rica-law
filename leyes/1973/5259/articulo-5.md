@@ -1,0 +1,1 @@
+Artículo 5º.- A través de sus presupuestos, las Municipalidades y Concejos Municipales de Distrito, deberán distribuir entre las Juntas de Educación de sus respectivas jurisdicciones un 30% del total de los ingresos obtenidos por concepto del impuesto a que esta ley se refiere, en cuyo prorrateo se tomarán en cuenta la matrícula de cada escuela y la prioridad de sus necesidades.
