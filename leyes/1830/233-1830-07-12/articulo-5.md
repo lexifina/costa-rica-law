@@ -1,0 +1,1 @@
+Art 5.- La Diputación de Minería designará, el día primero de Enero de cada año, el cupo de contribución, en proporción de los productos de ingenios ó rastras y con igualdad por cada haber establecida en las vetas Minerales.

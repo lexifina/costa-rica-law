@@ -1,0 +1,5 @@
+DECRETO 233
+El Jefe Supremo del Estado libre de Costa Rica.
+Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Constitucional del Estado libre de Costa Rica; considerando atentamente que si debe proteger de un modo particular el ramo de la minería, es asimismo importante hacer discreción entre los que son naturales de la República y los que no lo son, aunque unos y otros se ocupen en tal profesión; atendiéndose a que hasta la fecha se ha protegido cuanto es posible a los mineros relevándolos de las penalidades a que esta sujeto el resto de los ciudadanos, y que absolutamente se halla libre de todo gravámenes esta profesión, con presencia de que consultante el sostén del orden público y el bien particular de los mineros, no sería regular causar un déficit al exausta Erario del Estado en el ramo único que la sostiene, ha venido en decretar y decreta:
+Art 1°.- Los mineros no Ciudadanos del país, en las elecciones de la Diputación del Mineral tendrán tan sólo voz activa y no pasiva, y en los negociación sujetos a la inspección de la misma Diputación, únicamente tendrán voto consultívo.
