@@ -1,0 +1,2 @@
+ARTÍCULO 1°.-Modificase el decreto N° 16898-TSS, del 11 de febrero de 1986, al cual se le adiciona un artículo 28 bis cuyo texto dirá así:
+"Artículo 28 bis.-La falta de colaboración reiterada por parte de los funcionarios de la Dirección, así como de las instituciones, ministerios y demás entidades ejecutoras al ser requerida por la Auditoria durante el desarrollo de sus actividades propias, acorde con el artículo anterior, se considerar "falta grave" y se harán acreedores a las sanciones disciplinarias establecidas al efecto por la legislación vigente."
