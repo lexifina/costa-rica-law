@@ -1,0 +1,1 @@
+Artículo 7º—Los funcionarios del Ministerio de Salud pagados con fondos del Consejo Técnico de Asistencia Médico Social, (CTAMS), que ingresaron antes del 13 de diciembre de 1982, y cuyo presupuesto de gastos se incorpora al Presupuesto Nacional, conservarán todos los derechos laborales adquiridos al amparo del Convenio Colectivo de Trabajo del CTAMS denunciado en esa fecha.

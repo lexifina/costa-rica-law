@@ -1,0 +1,1 @@
+Artículo 4º—Las Oficinas de la Administración Financiera Básica del Estado, así como la Dirección General de Informática, coordinarán con las oficinas involucradas, a fin de realizar la correcta formulación y ejecución de estos gastos que se incorporaron en la Ley de Presupuesto Nacional del año 2001.

@@ -1,0 +1,1 @@
+Artículo 2º—La Unidad de Recursos Humanos del Ministerio de Salud, deberá suministrar a la Dirección de Presupuesto Nacional, las relaciones de puestos de los programas involucrados y coordinar con la Dirección General de Informática la inclusión de las mismas.

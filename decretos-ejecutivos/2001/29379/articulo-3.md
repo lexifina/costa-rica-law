@@ -1,0 +1,1 @@
+Artículo 3º—La Unidad de Recursos Financieros del Ministerio de Salud, incorporó el desglose de los gastos de los programas del Consejo Técnico de Asistencia Médico Social-CTAMS y del Programa de Atención a las Personas en Áreas Urbano Marginales (OCIS / DESAF) al Presupuesto Ordinario del Gobierno Central del año 2001.
