@@ -1,4 +1,4 @@
-Artículo 4º.- Los objetivos del Colegio de Cirujanos Dentistas son:
+ARTICULO 4º.- Los objetivos del Colegio de Cirujanos Dentistas son:
 a) Defender los derechos de sus miembros y hacer todas las gestiones
 que fueren necesarias, para facilitar y asegurar su labor profesional y
 su bienestar socio-económico;

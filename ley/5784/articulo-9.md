@@ -1,8 +1,11 @@
-Artículo 9º.- Los requisitos de inscripción en el Colegio de
+ARTICULO 9º.- Los requisitos de inscripción en el Colegio de
 Cirujanos Dentistas para los extranjeros son:
 a) Presentar ante la Secretaría del Colegio, solicitud escrita en
 idioma oficial en papel sellado de cincuenta céntimos, con diez colones
 de timbre odontológico;
+(NOTA: véase la ley No. 24 de 19 de noviembre de 1941, reformada
+por la ley 3752 del 4 de octubre de 1966, donde se crea y desglosa
+el valor de este timbre)
 b) Certificación del acta de nacimiento de su país de origen o algún
 otro documento probatorio de su identidad, debidamente autenticado;
 c) Certificación del Registro de Delincuentes de su país de origen o
@@ -16,6 +19,8 @@ d) Certificación de una universidad costarricense en que conste que la
 Facultad de Odontología respectiva convalidó el título del solicitante;
 e) Certificación de haber desempeñado durante un año el servicio social
 odontológico obligatorio de acuerdo con las leyes respectivas;
+(NOTA: sobre la forma como se debe desempeñar el servicio social
+obligatorio, véanse la observaciones de la ley)
 f) Satisfacer los derechos o requisitos complementarios que pudiera
 señalarle la junta directiva;
 g) Suministrar la información que le solicite la Secretaría del Colegio;

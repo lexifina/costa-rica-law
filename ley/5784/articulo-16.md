@@ -1,4 +1,4 @@
-Artículo 16.- Los cirujanos dentistas están obligados a:
+ARTICULO 16.- Los cirujanos dentistas están obligados a:
 a) Concurrir a las asambleas generales;
 b) Desempeñar los cargos y funciones que se les encomienden;
 c) Pagar las contribuciones que el Colegio imponga;
