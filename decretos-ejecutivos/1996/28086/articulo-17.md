@@ -1,0 +1,1 @@
+Artículo 17.—El Ministerio de Salud podrá ordenar la modificación de la composición de la premezcla, los niveles de fortificación o los tipos de fortificante, acorde con el perfil epidemiológico de la anemia en el país y con los avances de los conocimientos científicos y tecnológicos sobre el tema.

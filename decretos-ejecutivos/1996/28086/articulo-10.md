@@ -1,0 +1,1 @@
+Artículo 10.—El Ministerio podrá verificar los niveles de las vitaminas y minerales en la premezcla y en la harina de maíz, mediante análisis cuantitativos eventuales y establecerá los criterios técnicos de los procedimientos y técnicas de laboratorio para el análisis de las muestras de harina de maíz fortificada.

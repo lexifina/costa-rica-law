@@ -1,0 +1,1 @@
+Artículo 18.—El Ministerio de Salud coordinará con los demás entes públicos involucrados en la materia todas las acciones necesarias para asegurar la cabal aplicación y cumplimiento del presente reglamento.

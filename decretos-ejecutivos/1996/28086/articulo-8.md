@@ -1,0 +1,1 @@
+Artículo 8°.—En caso de establecerse que un lote de harina de maíz producida en el país o importada no esté debidamente fortificada, se procederá al decomiso de la cantidad total conforme a las disposiciones contenidas en la Ley General de Salud.

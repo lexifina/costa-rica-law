@@ -1,0 +1,1 @@
+Artículo 16.—En caso de incumplimiento comprobado de lo dispuesto en el presente Reglamento, las autoridades de salud procederán conforme a las medidas sanitarias especiales contenidas en la Ley General de Salud.

@@ -1,0 +1,1 @@
+Artículo 9°—La fiscalización y el monitoreo de la calidad de la fortificación de la harina de maíz en fábricas, sitios de expendio y otros son responsabilidad de las autoridades del Ministerio de Salud, quienes diseñarán y establecerán un sistema de control de calidad para la harina de maíz fortificada.

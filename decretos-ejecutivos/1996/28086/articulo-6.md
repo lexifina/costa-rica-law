@@ -1,0 +1,1 @@
+Artículo 6°—Para autorizar el desalmacenaje de la harina de maíz importada, el importador deberá demostrar en el certificado de calidad del país de origen o certificado de análisis realizado en un laboratorio acreditado, la conformidad del producto con la fortificación establecida en el presente reglamento, para cada partida de importaciones.

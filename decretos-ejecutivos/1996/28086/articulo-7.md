@@ -1,0 +1,1 @@
+Artículo 7°—El Ministerio de Salud se reserva el derecho de confirmar, mediante muestreo o análisis de muestras en el mercado o en las bodegas del importador, el cumplimiento de la harina de maíz importada con los niveles de fortificación establecidos en el presente reglamento. Los costos que esto ocasione serán asumidos por el importador.

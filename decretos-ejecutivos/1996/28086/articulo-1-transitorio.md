@@ -1,0 +1,1 @@
+Transitorio I.—Se otorga un plazo de seis meses a partir de la fecha de publicación del presente Reglamento a efecto de que los productores, importadores y distribuidores cumplan con las disposiciones del presente Reglamento.
