@@ -1,0 +1,2 @@
+Artículo 48.- Exámenes médicos. El solicitante de las prestaciones por invalidez deberá someterse a los exámenes, los tratamientos y los controles médicos que determine el procedimiento de declaratoria del estado de invalidez aludido en el párrafo segundo del artículo anterior.
+Igual deber tendrán los derechohabientes (viudas, viudos, compañeras, compañeros y huérfanos) que, por su condición de inválidos, soliciten pensión por supervivencia.

@@ -1,0 +1,2 @@
+Artículo 81.- Elementos probatorios. Las pruebas de los hechos alegados en la solicitud serán, necesariamente, documentales, salvo el caso de las circunstancias de la unión de hecho, sobre las cuales podrá recibirse prueba testimonial.
+El órgano director del procedimiento valorará la prueba de conformidad con las reglas de la sana crítica, salvo en lo referido a la capacidad y al estado civil de las personas, que se deberán demostrar con las certificaciones del Registro Civil.

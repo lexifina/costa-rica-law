@@ -1,1 +1,1 @@
-Artículo 15.- Con los fondos previstos para ese efecto, por medio de la Pagaduría Nacional, el Estado pagará todas las pensiones y jubilaciones a que se refiere esta Ley.
+Artículo 15.- Cotización estatal. El Estado, en su calidad de tal, cotizará un porcentaje de los salarios igual al establecido para el seguro obligatorio de Invalidez, vejez y muerte, administrado por la Caja Costarricense de Seguro Social.

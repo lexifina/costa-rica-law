@@ -1,0 +1,1 @@
+Artículo 65.- Filiación. La filiación se probará de conformidad con el derecho común. Cuando se trate de hijos extramatrimoniales no reconocidos ante el Registro Civil, se estará a la sentencia judicial firme que declare la paternidad.

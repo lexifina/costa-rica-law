@@ -1,0 +1,1 @@
+Artículo 102.- Responsabilidad genérica. Los miembros de la Junta Directiva, el Director Ejecutivo y los Jefes de los Departamentos Contable-Financiero y de Auditoría Interna, estarán sujetos a las disposiciones y deberes contemplados en la Ley de Enriquecimiento Ilícito, No. 6872, del 8 de julio de 1983.

@@ -1,0 +1,1 @@
+Artículo 109.- Deducciones por préstamos. Cuando se trate de préstamos para los jubilados o pensionados, la Junta podrá deducir mensualmente de los giros de la pensión las amortizaciones y los intereses respectivos.
