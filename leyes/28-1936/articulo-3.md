@@ -1,0 +1,2 @@
+Artículo 3°.- Adiciónase el artículo 196 del mismo Código, reformado por la ley de 19 de noviembre de 1934, así:
+"7a.- Cuando se trate de extranjeros, después de que hayan compurgado una parte prudencial de las penas de presidio indeterminado, o de presidio temporal o prisión, cualquiera que haya sido la conducta del reo en el establecimiento penal y haya habido o no, fuga o intento de efectuarla, el Poder Ejecutivo, sin necesidad de gestión de parte, y previa consulta de la Corte Suprema de Justicia, podrá cambiar la pena impuesta por extrañamiento indeterminado".
