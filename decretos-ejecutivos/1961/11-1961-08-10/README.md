@@ -14,3 +14,4 @@ Reglamento de la Ley Orgánica del Colegio de Enfermeras de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1961-08-22 | la propia norma |
+| 2 | 1971-12-27 | Decreto Ejecutivo 2115 (1971-12-27) |
