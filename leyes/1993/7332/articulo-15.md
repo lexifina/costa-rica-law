@@ -5,5 +5,5 @@ períodos de seis años, renovables.
 Listas, la autoridad que lo hubiere designado tendrá derecho a nombrar
 otra persona que le reemplace en sus funciones por el resto del período
 para el que aquél fue nombrado.
-3.- Los componentes de las Listas continuarán en las mismas hasta que
-sus sucesores hayan sido designados.
+3.- Los componentes de las Listas continuarán en las mismas hasta
+que sus sucesores hayan sido designados.

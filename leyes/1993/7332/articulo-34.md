@@ -10,7 +10,8 @@ recomendaciones, la máxima consideración.
 acta haciéndolo constar y anotando los puntos controvertidos. Si en
 cualquier estado del procedimiento la Comisión estima que no hay
 probabilidades de lograr un acuerdo entre las partes, declarará concluso
-el procedimiento y redactará un acta, haciendo constar que la controversia
-fue sometida a conciliación sin lograrse la avenencia. Si una parte no
-compareciere o no participare en el procedimiento, la Comisión lo hará
-constar así en el acta, declarando igualmente concluso el procedimiento.
+el procedimiento y redactará un acta, haciendo constar que la
+controversia fue sometida a conciliación sin lograrse la avenencia. Si
+una parte no compareciere o no participare en el procedimiento, la
+Comisión lo hará constar así en el acta, declarando igualmente concluso
+el procedimiento.

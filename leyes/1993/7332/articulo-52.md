@@ -13,21 +13,21 @@ funde.
 2.- Las solicitudes deberán presentarse dentro de los 120 días a
 contar desde la fecha de dictarse el laudo. Si la causa alegada fuese la
 prevista en la letra (c) del apartado (1) de este Artículo, el referido
-plazo de 120 días comenzará a computarse desde el descubrimiento del hecho
-pero, en todo caso, la solicitud deberá presentarse dentro de los tres
-años siguientes a la fecha de dictarse el laudo.
+plazo de 120 días comenzará a computarse desde el descubrimiento del
+hecho pero, en todo caso, la solicitud deberá presentarse dentro de los
+tres años siguientes a la fecha de dictarse el laudo.
 3.- Al recibo de la petición, el Presidente procederá a la inmediata
 constitución de una Comisión ad hoc integrada por tres personas
 seleccionadas de la Lista de Arbitros. Ninguno de los miembros de la
-Comisión podrá haber pertenecido al Tribunal que dictó el laudo, ni ser de
-la misma nacionalidad que cualquiera de los miembros de dicho Tribunal; no
-podrá tener la nacionalidad del Estado que sea parte en la diferencia ni
-la del Estado a que pertenezca el nacional que también sea parte en ella,
-ni haber sido designado para integrar la Lista de Arbitros por cualquiera
-de aquellos Estados ni haber actuado como conciliador en la misma
-diferencia. Esta Comisión tendrá facultad para resolver sobre la anulación
-total o parcial del laudo por alguna de las causas enumeradas en el
-apartado (1).
+Comisión podrá haber pertenecido al Tribunal que dictó el laudo, ni ser
+de la misma nacionalidad que cualquiera de los miembros de dicho
+Tribunal; no podrá tener la nacionalidad del Estado que sea parte en la
+diferencia ni la del Estado a que pertenezca el nacional que también sea
+parte en ella, ni haber sido designado para integrar la Lista de Arbitros
+por cualquiera de aquellos Estados ni haber actuado como conciliador en
+la misma diferencia. Esta Comisión tendrá facultad para resolver sobre la
+anulación total o parcial del laudo por alguna de las causas enumeradas
+en el apartado (1).
 4.- Las disposiciones de los Artículos 41-45, 48, 49, 53 y 54 y de
 los Capítulos VI y VII se aplicarán, mutatis mutandis, al procedimiento
 que se tramite ante la Comisión.

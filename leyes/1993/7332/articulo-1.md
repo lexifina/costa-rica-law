@@ -1,20 +1,18 @@
 CONVENIO SOBRE ARREGLO DE DIFERENCIAS RELATIVAS
 A INVERSIONES ENTRE ESTADOS
 Y NACIONALES DE OTROS ESTADOS
-ARTICULO 1.- Apruébase la ratificación por parte de Costa Rica del
+Artículo 1.- Apruébase la ratificación por parte de Costa Rica del
 Convenio sobre Arreglo de Diferencias Relativas a Inversiones entre
 Estados y Nacionales de otros Estados, cuyo texto es el siguiente:
 DECLARACION INTERPRETATIVA AL ARTICULO 26:
-Que solo se podrá recurrir al procedimiento de arbitraje
-dispuesto por el Convenio para la Solución de controversias
-relativas a inversiones, cuando previamente se haya hecho
-agotamiento de todos los medios locales existentes ya sean de
-tipo administrativo o judicial.
+Que solo se podrá recurrir al procedimiento de arbitraje dispuesto
+por el Convenio para la Solución de controversias relativas a
+inversiones, cuando previamente se haya hecho agotamiento de todos los
+medios locales existentes ya sean de tipo administrativo o judicial.
 RESERVA AL ARTICULO 42:
-Que el Tribunal Arbitral falle de acuerdo con la
-Legislación Nacional urgente al momento de la conclusión del
-Acuerdo que generó la inversión, a menos que las partes
-convengan otra cosa.
+Que el Tribunal Arbitral falle de acuerdo con la Legislación
+Nacional urgente al momento de la conclusión del Acuerdo que generó la
+inversión, a menos que las partes convengan otra cosa.
 "CONVENIO SOBRE ARREGLO DE DIFERENCIAS
 RELATIVAS A INVERSIONES ENTRE ESTADOS
 Y NACIONALES DE OTROS ESTADOS

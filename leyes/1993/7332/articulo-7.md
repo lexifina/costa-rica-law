@@ -11,5 +11,6 @@ esté presente la mayoría de sus miembros.
 4.- El Consejo Administrativo podrá establecer, por mayoría de dos
 tercios de sus miembros, un procedimiento mediante el cual el Presidente
 pueda pedir votación del Consejo sin convocar a una reunión del mismo.
-Sólo se considerará válida esta votación si la mayoría de los miembros del
-Consejo emiten el voto dentro del plazo fijado en dicho procedimiento.
+Sólo se considerará válida esta votación si la mayoría de los miembros
+del Consejo emiten el voto dentro del plazo fijado en dicho
+procedimiento.
