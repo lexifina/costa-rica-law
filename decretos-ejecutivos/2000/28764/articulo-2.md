@@ -1,0 +1,1 @@
+Artículo 2º—En el desarrollo de este proyecto la empresa deberá cumplir con lo dispuesto por la legislación forestal, el estudio de impacto ambiental aprobado y el oficio Nº 090-OSREO del 3 de febrero del 2000 emitido por la Oficina Subregional del Area de Conservación Pacífico Central.
