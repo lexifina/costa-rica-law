@@ -1,5 +1,0 @@
-INSTITUTO NACIONAL DE FOMENTO COOPERATIVO
-La Junta Directiva del Instituto Nacional de Fomento Cooperativo (Infoccop), en su sesión Nº 3.329, artículo 2°, inciso 3.4), del 22 de marzo del 2004, acordó:
-Se acuerda modificar el artículo 12, del Reglamento de Créditos del Infocoop, relacionado con garantía colateral, de modo tal que en adelante se lea de la siguiente forma:
-Artículo 12.—Para todos los casos el Infocoop exigirá la suscripción de un pagaré, como garantía colateral. Esta garantía tiene como finalidad cubrir saldos al descubierto que se generan en una eventual ejecución de la garantía principal. El referido pagaré deberá ser emitido por el organismo cooperativo y a criterio del Proceso de Operaciones se solicitará la fianza de gerente y miembros del Consejo de Administración. Dada la naturaleza colateral de esta garantía no serán exigibles para la misma las certificaciones y los estudios que se solicitan de los pagarés recibidos como garantía principal.
-Publíquese en el Diario Oficial. Acuerdo firme. San José, 30 de marzo del 2004.—
