@@ -1,3 +1,0 @@
-Artículo 277
-Atenuación
-Las penas señaladas en los artículos 275 y 276 se aplicarán con disminución de dos grados, a la mujer soltera y de buena fama que abandone a su propio hijo en lugar poblado, para ocultar su deshonra, o cuando obedeciendo al mismo móvil lo haga el padre o el hermano para salvar la honra de la hija o de la hermana, siempre que la madre haya ocultado a extraños su preñez, que la acción se perpetre en los tres días siguientes al nacimiento y que el niño no haya sido bautizado aún públicamente o mostrado a terceras personas, que no sean el médico o la obstétrica que hubieren intervenido prestando sus servicios profesionales.

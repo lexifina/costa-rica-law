@@ -1,4 +1,0 @@
-Artículo 110
-Inhabilitación para cargos y oficios públicos
-La inhabilitación para el ejercicio de cargos y oficios públicos, incapacita al penado para todo empleo, oficio, función o servicio público conferido mediante elección popular o por nombramiento de cualquiera de los Poderes del Estado, o de los Gobiernos locales, o de las instituciones sometidas a la tutela del Estado, o de las Municipalidades, y lo priva de todos los honores, emolumentos y prerrogativas de que gozare en virtud de los dichos cargos y oficios, y además, del derecho de obtener o continuar percibiendo pensiones o jubilaciones por empleos servidos.
-También le priva de la capacidad de ejercer el cargo de tutor o curador, salvo que deba serlo de sus descendientes; del de administrador de bienes de un insolvente o de una quiebra y del de depositario judicial o perito.

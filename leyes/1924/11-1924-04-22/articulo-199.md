@@ -1,5 +1,0 @@
-Artículo 199
-Traslado de reos enfermos.-La Corte Suprema podrá, por motivo de enfermedad grave suficientemente comprobada y cuando fuere indispensable para la curación o alivio del reo, decretar su traslado del establecimiento en que cumple su condena, al que posea mejores recursos para el tratamiento del caso, en donde sólo permanecerá el tiempo necesario para el fin indicado. Al efecto, el Médico de la Cárcel respectiva deberá avisar a la Corte Suprema de Justicia, bajo su más estricta responsabilidad, el hecho de estar ya curado, aliviado o examinado el reo, a fin de que sea devuelto al presidio con el próximo cordón
-Cuando se trate del traslado de un reo enfermo a un hospital o sanatorio, el Poder Ejecutivo aplicará lo dispuesto en el artículo 99 de este mismo Código, sin más trámite.
-Si ocurriese la muerte de un reo durante su permanencia fuera del presidio, el jefe del establecimiento penal o sanitario donde estuviere, lo comunicará en seguida al Presido de San Lucas, para la cancelación del asiento respectivo.
-(Así reformado por el artículo 1° de la ley N° 19 del 19 de noviembre de 1934)

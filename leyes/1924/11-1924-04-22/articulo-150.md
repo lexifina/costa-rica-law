@@ -1,2 +1,0 @@
-Artículo 150
-Fijado el grado en que la pena debe ser impuesta y, en su caso, el máximum o el mínimum de ese grado, según la calificación legal del hecho y la responsabilidad y mediante el cómputo de las circunstancias atenuantes o agravantes, el juzgador determinará a su arbitrio la cuantía de la punición, tomando en cuenta la extensión del mal causado. y la mayor o menor perversidad y temibilidad del delincuente.

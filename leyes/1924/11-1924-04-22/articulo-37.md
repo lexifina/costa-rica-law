@@ -1,4 +1,0 @@
-Artículo 37.
-Custodia de menores
-Los jueces y tribunales que decIaren la irresponsabilidad de un joven menor de quince años, deberán decretar su colocación en una casa de corrección de menores, hasta que cumpla diez y ocho años de edad, si fuere huérfano, o no siéndolo, si hubiere sido abandonado por sus padres o fueren éstos criminales o viciosos; y a falta de tal establecimiento, podrán entregarlo a un jefe de taller o a un agricultor, que sean capaces de custodiarlo y educarlo y que a ello se comprometan.
-La salida de la casa de corrección y, en su caso, del poder del guardador, se anticipará mediante resolución judicial, si se justifica la buena conducta del menor; y de igual manera podrá disponerse que éste sea entregado a sus padres, en cualquier momento en que ellos comprobaren que se han enmendado y llevan una vida honrada.
