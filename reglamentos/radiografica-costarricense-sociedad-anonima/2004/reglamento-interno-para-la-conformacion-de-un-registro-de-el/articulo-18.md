@@ -1,0 +1,1 @@
+Artículo 18.—Disponibilidad para la reparación de averías. Toda empresa que se inscriba en el Registro de Elegibles en las modalidades de reparación de averías, entiende y acepta que debe ofrecer una disponibilidad de 24 horas, 7 días a la semana, 365 días al año.

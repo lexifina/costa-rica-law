@@ -1,0 +1,3 @@
+Artículo 20.—Garantía de cumplimiento. Los proveedores que soliciten participar en el sistema de contratación de este Reglamento deben aportar una garantía de cumplimiento que permita ser ejecutable parcialmente, por un monto de quinientos mil colones, con una vigencia de doce meses.
+En caso de que RACSA requiera la ejecución parcial de la garantía de cumplimiento, el proveedor a quien garantice debe reponer el porcentaje ejecutado en un plazo de 3 meses, contados a partir de la ejecución de la misma, so pena de exclusión del Registro de Elegibles.
+La garantía deberá constituirse de acuerdo con lo establecido en el artículo 37 del Reglamento General de Contratación Administrativa.

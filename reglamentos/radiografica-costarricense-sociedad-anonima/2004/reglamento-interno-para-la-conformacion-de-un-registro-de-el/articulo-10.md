@@ -1,0 +1,6 @@
+Artículo 10.—Presentación de documentos. Todos los documentos y demás atestados necesarios para optar por la inscripción en el Registro deberán ser presentados en sobre cerrado, en original y dos copias, debidamente foliados, con la siguiente leyenda:
+RADIOGRÁFICA COSTARRICENSE S. A.
+DEPARTAMENTO DE PROVEEDURÍA
+SOLICITUD DE INSCRIPCIÓN REGISTRO DE ELEGIBLES AÑO ______
+Podrán participar proveedores a nivel nacional, las ofertas serán divididas según las 4 áreas geográficas señaladas, subdivididas en las categorías que se especifican en el artículo 4 de este Reglamento, por lo que los oferentes que soliciten su ingreso al Registro de Elegibles deben señalar en cual zona y en cual categoría participan, pudiendo presentar su solicitud en todas o en alguna de ellas.
+Se procederá a conformar un expediente para cada solicitud de inscripción, incorporando en él, todos los documentos técnicos y legales que se aporten, así como los estudios técnicos y legales que se lleven a cabo y todas las actuaciones internas o externas que tengan relación con la solicitud. A dicho expediente se le asignará un número consecutivo, respetando el orden en que se presenten las solicitudes y según la zona geográfica en el que se registren. No podrá postergarse la inclusión de documentos en el expediente.

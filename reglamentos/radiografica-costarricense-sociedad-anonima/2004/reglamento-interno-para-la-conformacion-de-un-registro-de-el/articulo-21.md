@@ -1,0 +1,1 @@
+Artículo 21.—Recursos. Contra todas las adjudicaciones realizadas por RACSA, en función del uso de este Reglamento, cabrá, según corresponda, los recursos de revocatoria o apelación, los cuales se regirán por las disposiciones de la Ley de Contratación Administrativa y del Reglamento General de Contratación Administrativa.

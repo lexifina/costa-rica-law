@@ -1,0 +1,3 @@
+CAPÍTULO III
+Registro de elegibles
+Artículo 8º—Convocatoria. La Proveeduría de RACSA, mediante una publicación anual en el diario oficial La Gaceta, invitará a los potenciales proveedores de servicios a formar parte del Registro de Elegibles. Sin embargo, los potenciales proveedores, en cualquier momento del año, podrán presentar su solicitud, la cual será valorada de conformidad con el artículo 9 y en caso de cumplir todos los requisitos, será aceptado e incorporado al Registro; no obstante, a quienes se registren de esta forma, le serán adjudicadas labores hasta que se hayan rotado todos los proveedores que se inscribieron en el Registro de Elegibles atendiendo la publicación anual.

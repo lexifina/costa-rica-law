@@ -1,0 +1,2 @@
+Artículo 23.—Origen y calidad de los materiales. Cuando la adjudicación incluya la provisión de materiales por parte del adjudicatario, éste deberá comprobar mediante factura debidamente timbrada, la procedencia de los mismos. Bajo ninguna circunstancia, RACSA aceptará materiales cuyo origen no pueda ser comprobado.
+RACSA definirá las características de los equipos necesarios que deberán tener los contratistas, así como de las particularidades de las labores de instalación y reparación de averías, condiciones que formarán parte de este Reglamento.

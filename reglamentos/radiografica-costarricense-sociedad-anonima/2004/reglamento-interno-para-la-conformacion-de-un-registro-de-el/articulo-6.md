@@ -1,0 +1,2 @@
+Artículo 6º—Administrador o administradores del contrato. Es el o los funcionario(s) a quienes el Departamento de Gestión y Control designe para administrar la contratación, de acuerdo con el "Manual para la Administración de Contratos de RACSA" vigente a la fecha.
+El Administrador del Contrato verificará la correcta ejecución del trabajo contratado, así como la calidad del mismo y emitirá un documento donde se avala la recepción del mismo para su posterior pago. Dicho documento será remitido a la Proveeduría, como constancia de la finalización del proceso.

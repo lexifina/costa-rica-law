@@ -1,0 +1,3 @@
+Artículo 19.—Notificación de adjudicación. RACSA notificará la adjudicación de un contrato vía fax y/o correo electrónico. Esta notificación incluirá la descripción y el detalle del trabajo a ejecutar, el plazo máximo en el que se debe realizar la obra y la estimación económica del servicio que deberá prestarse, indicando el monto establecido para la contratación, debiendo entenderse que RACSA determinará previamente el precio de los bienes y servicios a contratar.
+La notificación vía fax o correo electrónico deberá entenderse como el compromiso que asume RACSA de contratar el servicio, cuyo pago se hará mediante orden de compra.
+El Adjudicatario debe responder por cualquiera de los medios citados su aceptación o rechazo a la Adjudicación.

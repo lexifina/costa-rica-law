@@ -1,0 +1,1 @@
+Artículo 24.—Garantía sobre los bienes y servicios. Toda oferta deberá indicar una garantía sobre la mano de obra y los materiales utilizados, cuando el adjudicatario provea estos últimos. El período de garantía será de 12 meses mínimo, contados a partir de la fecha de aceptación del trabajo por parte de RACSA.

@@ -1,0 +1,1 @@
+Artículo 13.—Recurso contra el rechazo. Contra la decisión de rechazo de la solicitud de ingreso al Registro de Elegibles cabrá recurso de revocatoria por parte del proveedor afectado, ante la Gerencia General de RACSA, dentro de los tres días hábiles siguientes a su publicación. La resolución de dicho recurso dará por agotada la vía administrativa.
