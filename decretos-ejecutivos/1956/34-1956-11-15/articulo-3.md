@@ -1,0 +1,1 @@
+Artículo 3°.– El Poder Ejecutivo de acuerdo con los estudios realizados por el Ministerio de Agricultura e Industrias o el Instituto Geográfico Nacional o por la propia Junta de Protección de las Razas Aborígenes de la Nación, se reserva el derecho de variar la extensión de las Reservas Indígenas establecidas en este Decreto.

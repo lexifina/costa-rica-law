@@ -1,0 +1,26 @@
+N° 34
+EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA
+De conformidad con lo dispuesto por el artículo 4° del Decreto Ejecutivo N° 45 de fecha de 3 de diciembre de 1945, 7 y en uso de la facultad que le brinda el párrafo final del artículo 8° de la Ley General de Terrenos Baldíos N° 13 del 1° de enero de 1939,
+DECRETA:
+Artículo 1°.– Decláranse reservas indígenas, las zonas de terreno comprendidas dentro de las demarcaciones que luego se dirán:
+LOTE I
+Norte, río Grande de Térraba;
+Sur, río Chánguina en parte; en otra parte uno de los afluentes, situado a 3.5 Kms.; aproximadamente de su desembocadura en el río Grande de Térraba. Luego la Cordillera Grisera hasta un punto situado como a 4Km. Al Este de Palmar Norte;
+Este, río Grande de Térraba en parte; la Quebrada que desemboca en el río anterior en el lugar llamado San Lucas. Luego el afluente ya citado, del río Chánguina; y
+Oeste, Quebrada la Tinta hasta sus cabeceras; de ahí La Quebrada de Cacao hasta su desembocadura en La Quebrada de Maíz. Se continúa aguas arriba hasta tomada la Quebrada de Café, siempre aguas arriba, hasta sus cabeceras. De aquí, aguas debajo del Río Cañablancal hasta el río Grande de Térraba. De ahí se sigue la Quebrada situada al Este de Palmar Norte y que desemboca como a doscientos metros al Este del río Cañablancal, aguas arriba, hasta la Cordillera Grisera.
+El Lote antes descrito comprende: Kamankagua, San Andrés, Paso Real, San Lucas, La Vieja, Curres, Coyolar, Puerto Nuevo, Lagarto, Desiplina, Boruca, El Maíz, Bijagual, Barranco, Térraba y los Cerros de la Naranja, del Mayal, de Miramar y la Cordillera de las Cruces.
+Está situado en la Provincia de Puntarenas.
+LOTE II
+Este Lote está situado al Norte del LOTE I y a un kilómetro al Este de la población de Buenos Aires. Sus colindancias son las siguientes:
+Norte, los Cerros de Chin y las cabeceras de los ríos Chubugra, Cabagra, Cuyek, La Ceiba, Rori y Quebrada Shkra;
+Sur, Quebrada Cebros, Quebrada Pita, Río Brujo y Río Mosca;
+Este, Cerros de Chin, río Mosca; y
+Oeste, división de agua de los afluentes de los Ríos Ceibo y Volcán; luego, un afluente de este último, aguas abajo; camino de Buenos Aires a Salitre en parte; Quebrada Cebros y varios afluentes del río Brujo.
+Este Lote comprende: Ujarrás, Salitre y Cabagra; está situado en la Provincia de Puntarenas.
+LOTE III
+Este Lote está limitado al:
+Norte, por la Quebrada Golondrina en parte y Quebrada Pavas en otra pequeña parte;
+Sur, río Pejibabal;
+Este, río General; y
+Oeste, Quebrada La Bonia en parte, Quebrada Golondrina y Quebrada afluente del Río Platanares.
+Esta situado en la Provincia de San José.
