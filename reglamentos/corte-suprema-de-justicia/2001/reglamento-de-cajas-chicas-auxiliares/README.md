@@ -15,3 +15,4 @@ Reglamento de Cajas Chicas Auxiliares
 | 1 | 2001-08-01 | la propia norma |
 | 2 | 2002-04-08 | Reglamento 15 (2002-04-08) |
 | 3 | 2002-09-30 | Reglamento 44 (2002-09-30) |
+| 4 | 2004-02-23 | Reglamento 6 (2004-02-23) |

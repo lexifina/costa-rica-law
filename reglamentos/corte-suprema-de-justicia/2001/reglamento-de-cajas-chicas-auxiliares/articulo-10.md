@@ -1,3 +1,1 @@
-Articulo 10.—Emisión de cheques.
-Todo cheque que emita una Caja Chica Auxiliar, será girado a nombre de una persona física o jurídica determinada. Queda prohibido el giro de cheques "al portador" o "caja".
-El autorizado para girar contra la cuenta comente será el Jefe de Oficina, quien deberá registrar su firma en el Banco.
+Artículo 10.—Emisión de cheques. Todo cheque que emita una Caja Chica Auxiliar, será girado a nombre de una persona física o jurídica determinada. Queda prohibido el giro de cheques «al portador» o «caja». El autorizado para girar contra la cuenta corriente será el Jefe de Oficina, quien deberá registrar su firma en el Banco.
