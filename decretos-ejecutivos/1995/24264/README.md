@@ -1,0 +1,15 @@
+# Decreto Ejecutivo 24264
+
+Programa Remembranzas de Cartago en Radio Rumbo de Interés Cultural
+
+- Tipo: Decreto Ejecutivo
+- Número: 24264
+- Fecha: 1995-04-17
+- Publicación: La Gaceta N° 102 del 1995-05-29
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=20445&param2=21764&param3=1 (ficha 20445)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1995-05-29 | la propia norma |
