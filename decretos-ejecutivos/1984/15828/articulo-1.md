@@ -1,5 +1,6 @@
 N§ 15828-H
 (NOTA: Mediante el artículo 21 del decreto ejecutivo N° 16999 del 5 de mayo de 1986, se indica, que se deroga este decreto en lo conducente)
+(NOTA: Mediante el artículo 23 del decreto ejecutivo N° 18095 del 12 de abril de 1988, se indica que se deroga este decreto en lo conducente)
 (Este decreto fue derogado por el artículo 82 del decreto ejecutivo N° 19921 del 13 de setiembre de 1990)
 (NOTA: Se presenta el texto original de este decreto)
 EL PRESIDENTE DE LA REPUBLICA

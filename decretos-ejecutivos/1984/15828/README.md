@@ -13,3 +13,4 @@ Reglamento Contrato Exportación con Régimen Admisión Temporal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-11-26 | la propia norma |
+| 2 | 1988-04-12 | Decreto Ejecutivo 18095 (1988-04-12) |
