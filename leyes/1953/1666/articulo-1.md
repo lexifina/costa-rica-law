@@ -1,3 +1,4 @@
+(Derogada por el artículo 5° de la ley de Pago de Aguinaldo para los Servidores Públicos, N° 1835 del 11 de diciembre de 1954)
 Artículo único.- Se adiciona la Ley Orgánica del Poder Judicial Nº 8
 de 29 de noviembre de 1937, en la siguiente forma:
 "Artículo 245.- Los funcionarios y empleados del Poder Judicial
