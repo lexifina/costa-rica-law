@@ -14,3 +14,4 @@ Reforma al Reglamento de Consultas Populares de la Municipalidad de Sarapiquí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-11 | la propia norma |
+| 2 | 2000-06-11 | Ley 8 |
