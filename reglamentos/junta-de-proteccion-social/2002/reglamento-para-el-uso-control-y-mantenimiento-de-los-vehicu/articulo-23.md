@@ -1,0 +1,1 @@
+Artículo 23.—Responsabilidad del conductor. El conductor que en conocimiento de la existencia de un daño causado a un vehículo propiedad de la Junta lo oculte, asumirá la responsabilidad legal que por su conducta pueda imputársele.

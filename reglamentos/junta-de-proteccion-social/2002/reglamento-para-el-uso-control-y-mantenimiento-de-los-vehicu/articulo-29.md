@@ -1,0 +1,2 @@
+Artículo 29.—Aprobación. El presente Reglamento fue aprobado por la Junta Directiva de la (*) Junta de Protección Social, según acuerdo JD-147, artículo IV, inciso 9) de la sesión Nº 20-2002 del 31 de mayo del 2002.
+(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).

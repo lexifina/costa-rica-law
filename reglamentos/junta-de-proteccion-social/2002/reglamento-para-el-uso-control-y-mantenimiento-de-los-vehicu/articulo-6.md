@@ -1,0 +1,1 @@
+Artículo 6º—Control de los vehículos oficiales. Los vehículos oficiales clasificados en este Reglamento, estarán sometidos a los programas de mantenimiento, controles administrativos, abastecimientos, kilometraje, así como de las diligencias necesarias en casos de accidentes o cualquier otra infracción a la Ley de Tránsito.

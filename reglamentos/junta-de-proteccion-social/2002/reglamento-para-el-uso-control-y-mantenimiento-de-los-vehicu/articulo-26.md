@@ -1,0 +1,1 @@
+Artículo 26.—Infracción a la Ley de Tránsito. Las infracciones a la Ley de Tránsito que ameriten ser investigadas, a criterio de la Unidad de Transportes, serán remitidas a la Asesoría Legal para que inicie el procedimiento respectivo.

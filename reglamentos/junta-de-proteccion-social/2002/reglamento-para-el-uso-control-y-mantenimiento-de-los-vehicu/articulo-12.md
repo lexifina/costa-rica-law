@@ -1,0 +1,1 @@
+Artículo 12.—Solicitud de cupones de combustible. Para la solicitud de cupones de combustible será necesario presentar la fórmula debidamente suscrita, por parte el Jefe de la oficina requirente a la cual está asignado el vehículo oficial. No se otorgarán cupones de combustible solicitados hasta tanto no se hayan liquidado las facturas pendientes.
