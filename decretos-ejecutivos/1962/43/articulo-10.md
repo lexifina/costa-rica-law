@@ -1,0 +1,1 @@
+Artículo 10. - La Oficina del Café acreditará a los interesados las sumas recaudadas que corresponda devolverles como consecuencia de la tasa de ¢0.20 por cada quintal establecido por el Acuerdo Ejecutivo N° 101-H de 10 de setiembre de 1948, derogada por la ley que se reglamenta, las que podrán ser aplicadas al pago del nuevo impuesto.

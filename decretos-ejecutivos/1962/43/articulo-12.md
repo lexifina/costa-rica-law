@@ -1,0 +1,2 @@
+Artículo 12.-Por existir una compensación de hecho entre las sumas recaudadas por el Banco Central de Costa Rica y la suma por recaudarse con el producto del impuesto transitorio de US$ 0.10 previsto en el Artículo Transitorio III de la Ley N ° 3062 de 14 de noviembre de 1962, la Oficina del Café cobrará el impuesto mencionado.
+Dado en la Casa Presidencial. -San José, a los doce días del mes de diciembre de mil novecientos sesenta y dos.

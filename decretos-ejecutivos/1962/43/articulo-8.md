@@ -1,0 +1,1 @@
+Artículo 8°-.En todas las ventas de café de la cosecha 1962/1963 reportadas o inscritas en la Oficina del Café hasta el 15 de noviembre inclusive, y para todos los efectos de la Junta de Liquidaciones, se entenderá aumentado el precio en US$ 0.20 por cada quintal de 46 kilos o sus equivalencias.

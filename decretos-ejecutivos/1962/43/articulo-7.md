@@ -1,0 +1,1 @@
+Artículo 7°-Además de los impuestos anteriormente indicados y para las cosechas 1962/1963 y 1963/1964, se cobrará, en las mismas condiciones señaladas para el impuesto ordinario, un impuesto extraordinario de US$ 0.05 por cada quintal de 46 kilos o sus equivalencias.

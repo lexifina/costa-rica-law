@@ -1,0 +1,1 @@
+Artículo 6°-En el cálculo de la Liquidación Final al productor, se deducirá el pago efectuado por el beneficiador de los impuestos aquí reglamentados, previamente a calcular el impuesto ad-valórem establecido por la Ley N° 1411 de 19 de enero de 1952, modificada por la N° 2802 de 19 de setiembre de 1961.

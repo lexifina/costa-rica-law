@@ -1,0 +1,1 @@
+Artículo 2°-Para las exportaciones de café en otros estados que no sea café oro, regirán las siguientes equivalencias sobre la misma base de US$ 0.45: por cada 57.5 kilos de café en pergamino, por cada 38.61 kilos de café tostado, y por cada 15.3 kilos de café soluble.

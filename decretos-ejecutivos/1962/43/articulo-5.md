@@ -1,0 +1,1 @@
+Articulo 5°-En los contratos de café para exportación deberá consignarse el precio en rieles convenido por las partes, sin deducción por impuestos ni otro cargo alguno, y el exportador deducirá en su liquidación al beneficiador el pago que hubiere efectuado a su nombre.
