@@ -1,0 +1,1 @@
+Artículo 22.—Responsabilidad del Departamento Administrativo: Será responsabilidad del Departamento Administrativo, que los equipos de almacenamiento y suministro así como la planta física de la Bodega, presenten las condiciones de operación que garanticen el debido cumplimiento de las normas de seguridad establecidas para el manejo adecuado y seguro de los bienes adquiridos.

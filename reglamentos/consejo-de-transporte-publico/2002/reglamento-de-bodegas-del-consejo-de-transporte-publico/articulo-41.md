@@ -1,0 +1,1 @@
+Artículo 41.—Prohibición de préstamo o adelanto de bienes: Queda expresamente prohibido al jefe o encargado de bodega o a cualquiera de sus subalternos la entrega, en calidad de préstamo o adelanto, de bienes o materiales.

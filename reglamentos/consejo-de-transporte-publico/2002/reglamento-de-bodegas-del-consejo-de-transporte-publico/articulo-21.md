@@ -1,0 +1,1 @@
+Artículo 21.—Responsabilidad en la existencia de formularios: Será responsabilidad del Departamento Administrativo presupuestar los fondos necesarios para mantener una existencia adecuada de los formularios requeridos para el normal funcionamiento de la bodega.

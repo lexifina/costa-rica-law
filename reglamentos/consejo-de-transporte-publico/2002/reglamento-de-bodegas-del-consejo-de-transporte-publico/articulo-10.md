@@ -1,0 +1,1 @@
+Artículo 10.—Inventario a cargo de la bodega: El encargado de la Bodega practicará los inventarios de existencias con la mayor regularidad posible, y al menos una vez al año, independientemente de las revisiones selectivas que se efectuaren en el período, todo ello conforme a lo estipulado en el "Manual de Funciones y Procesos de la Proveeduría del Consejo de Transporte Público".

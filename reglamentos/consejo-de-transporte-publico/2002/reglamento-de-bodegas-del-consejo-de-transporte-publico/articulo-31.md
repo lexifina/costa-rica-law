@@ -1,0 +1,1 @@
+Artículo 31.—Situaciones de excepción: En casos excepcionales, a falta de factura, el encargado de la bodega, deberá realizar las diligencias del caso para que el bien quede debidamente registrado, consignando entre otros datos el nombre del donante, la naturaleza del bien, la cantidad y el precio.

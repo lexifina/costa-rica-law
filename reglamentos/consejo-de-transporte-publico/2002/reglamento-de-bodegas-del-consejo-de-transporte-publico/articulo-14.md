@@ -1,0 +1,3 @@
+Artículo 14.—La bodega será la responsable de:
+a) Recibir, almacenar y despachar bienes que adquiera el Consejo.
+b) Informar semestralmente, en la primera quincena de enero y la primera quincena de junio de cada año, a los ejecutores de programa, respecto del detalle de los bienes en existencia, así como aquellos que no experimentan movimientos, esto último con el fin de que se tomen las medidas del caso y, de ser necesario, se practiquen las gestiones para desecho o traspaso a otros programas presupuestarios que sí requieran tales bienes, todo ello conforme al procedimiento administrativo establecido al efecto.

@@ -1,0 +1,1 @@
+Artículo 45.—Situaciones anómalas: La Dirección de Administración y Finanzas por medio de su Departamento Administrativo controlará lo referente al consumo de combustibles y deberá informar, oportunamente, al Director Ejecutivo sobre las situaciones anómalas que llegaren a presentarse.

@@ -1,0 +1,2 @@
+Artículo 17.—Errores en la entrada o despacho de un artículo: El encargado de la Bodega hará inmediatamente que se realicen los ajustes administrativos necesarios, cuando se generaren errores al confeccionarse una entrada a bodega o por el mal despacho del bien.
+Asimismo, mediante nota explicativa, informará de ello a su superior jerárquico inmediato, a la contabilidad y al Departamento Administrativo del Consejo de Transporte Público.

@@ -1,0 +1,1 @@
+Artículo 5º—El planeamiento, coordinación y control: El planeamiento de actividades, la coordinación y el control de la labor de la bodega a que se refiere este Reglamento, será de entera responsabilidad de la Dirección de Administración y Finanzas y, por delegación, del Departamento de Proveeduría.

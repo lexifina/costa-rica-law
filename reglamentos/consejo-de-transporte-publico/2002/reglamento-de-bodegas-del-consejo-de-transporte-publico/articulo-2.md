@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: El presente "Reglamento de Bodegas del Consejo de Transporte Público" regula el funcionamiento de la bodega, perteneciente al Consejo de Transporte Público y sus normas son de cumplimiento obligatorio para los funcionarios y usuarios de sus servicios.

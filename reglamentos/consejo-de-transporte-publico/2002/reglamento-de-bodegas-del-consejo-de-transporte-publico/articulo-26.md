@@ -1,0 +1,1 @@
+Artículo 26.—Rechazo de bienes y equipo que no se ajuste a lo especificado: El bien o equipo que no se ajuste a lo especificado en la Orden de Compra o Reserva de Crédito deberá rechazarse, informando de inmediato a la Proveeduría para que se proceda con el reclamo que resulte pertinente.

@@ -1,0 +1,1 @@
+Artículo 27.—Requisitos para los Proveedores que suministren bienes al Consejo: Los proveedores que suministren bienes a este Consejo deberán presentar a la respectiva bodega, original de la Orden de Compra, Facturas de Gobierno y de Casa Comercial. Dichos documentos contendrán el sello con la leyenda "Entrada a Bodega" y el recibido conforme que respalda el trámite de pago.

@@ -1,0 +1,1 @@
+Artículo 34.—Requisitos para el retiro de bienes: La Requisición de Materiales deberá ser firmada por el funcionario público cuya firma se encuentre debidamente registrada para solicitar la salida de bienes, conforme al programa presupuestario a que pertenecieren dichos bienes, pudiendo ser retirados por el servidor de la dependencia que la Requisición indique.

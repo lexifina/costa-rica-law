@@ -1,0 +1,1 @@
+Artículo 36.—Plazo de validez de formulario de "Requisición de Materiales": El formulario de "Requisición de Materiales" tendrá una validez de treinta días a partir de su confección y transcurrido dicho lapso, sin que llegue efectivamente a utilizarse, deberá confeccionarse uno nuevo.

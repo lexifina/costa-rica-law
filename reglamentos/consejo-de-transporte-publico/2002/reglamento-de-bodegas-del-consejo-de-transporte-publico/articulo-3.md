@@ -1,0 +1,1 @@
+Artículo 3º—Técnicas de aplicación complementaria: Para los efectos correspondientes el Manual de Procedimientos o cualquier otro que en el futuro lo sustituya o complemente, deberá tenerse como de aplicación complementaria en esta materia.

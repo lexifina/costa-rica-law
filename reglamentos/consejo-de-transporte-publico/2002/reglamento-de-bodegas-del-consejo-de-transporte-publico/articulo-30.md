@@ -1,0 +1,1 @@
+Artículo 30.—Registros de bienes recibidos por aporte o donación: Los bienes recibidos mediante aporte o donación deberán registrarse en el sistema computarizado de la bodega, y si no existiere se hará uso de la tarjeta de inventario, conforme al trámite que regula las compras de bienes por parte del Consejo.

@@ -1,0 +1,1 @@
+Artículo 44.—Traspaso de cuotas de combustible: Será competencia del Director de cada Dirección o Departamento, la redistribución interna de las cuotas de combustible asignadas a sus respectivas unidades, acatando para ello las políticas de racionamiento y ahorro institucional que se establezcan.

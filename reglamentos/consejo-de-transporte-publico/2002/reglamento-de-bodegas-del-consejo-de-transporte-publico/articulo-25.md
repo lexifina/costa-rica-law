@@ -1,0 +1,1 @@
+Artículo 25.—Casos de recepción de equipo: Cuando se recibiere equipo, el "recibo" no se consignará en las "facturas" hasta tanto el Ejecutor dé visto bueno de lo que se compra y lo autorice, así como del encargado del control de dicho equipo.

@@ -1,0 +1,1 @@
+Artículo 16.—Responsabilidad de la bodega: El encargado de la bodega será el responsable de la planeación, coordinación, ejecución, control y supervisión de la entrada, almacenamiento y distribución de bienes adquiridos por el Consejo.

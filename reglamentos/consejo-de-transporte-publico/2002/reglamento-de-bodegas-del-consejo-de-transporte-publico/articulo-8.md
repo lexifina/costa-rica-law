@@ -1,0 +1,1 @@
+Artículo 8º—Obligatoriedad del informe de bodegas: El encargado de la Bodega, remitirá la documentación a la contabilidad sobre los movimientos de entradas, así como de las salidas de los artículos que se despacharon en el mes anterior.

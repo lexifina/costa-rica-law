@@ -1,0 +1,2 @@
+Artículo 40.—Requisitos para el despacho de equipo y mobiliario de oficina: Para el despacho de equipo y mobiliario de oficina, la dependencia que lo solicitare deberá, además de aportar el documento de "Requisición" respectivo, adjuntar la formula de asignación con el nombre, número de cédula y firma del funcionario que utilizará el activo.
+Todo equipo y mobiliario que se despache tendrá que estar debidamente patrimoniado con la placa o calcomanía correspondiente.

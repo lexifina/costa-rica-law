@@ -1,0 +1,1 @@
+Artículo 35.—Revisión de las firmas: Antes de efectuar el despacho de bienes, el Encargado de bodega deberá revisar las firmas consignadas en la solicitud respectiva, cotejándola con las contenidas en el "Registro de Nombres y Firmas", y exigirá la presentación de la cédula de identidad de todo servidor que se apersone a retirar los bienes.

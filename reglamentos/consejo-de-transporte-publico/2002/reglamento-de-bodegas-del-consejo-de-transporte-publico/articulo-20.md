@@ -1,0 +1,2 @@
+Artículo 20.—Prohibición de efectuar ajustes de oficio: Ni el encargado de la Bodega ni los funcionarios de Bodega, por ningún motivo, podrán, de oficio, hacer ajustes en las tarjetas de existencia ni desechos de materiales.
+Dichos ajustes sólo se podrán hacer mediante una "entrada" o "salida" de bodega debidamente suscrita, por la Proveeduría, quien será la responsable de asumir las acciones que deberán tomarse respecto de desechos y de faltantes o sobrantes del inventario.

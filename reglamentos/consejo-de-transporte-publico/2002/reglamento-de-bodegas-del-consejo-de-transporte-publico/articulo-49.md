@@ -1,0 +1,2 @@
+Artículo 49.—Casos en que procede el traspaso de cuotas: Será posible el traspaso de cuotas cuando se cumpliere con el siguiente requisito y condición:
+El Director o Jefe de Departamento tendrá la potestad de autorizar, por escrito, traspasos de cuotas de combustibles entre equipos asignados a su jurisdicción, utilizando para ello un procedimiento adecuado y suministrando los informes del caso a las dependencias administrativas correspondientes.

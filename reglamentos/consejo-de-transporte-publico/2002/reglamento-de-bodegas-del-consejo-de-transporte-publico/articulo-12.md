@@ -1,0 +1,1 @@
+Artículo 12.—De la supervisión de la bodega: La Proveeduría propiciará la contratación para la realización de inventarios de los cuales remitirá copia a contabilidad, auditoria y a Administración y Finanzas y deberá, además, remitir a Recursos Humanos denuncia en caso de detectar anomalías como faltantes o robos en Bodega.
