@@ -1,0 +1,1 @@
+Artículo 2°-Con tal propósito, los educadores deberán inducir a sus educandos, en los días previos a esta celebración, a la reflexión sobre la importancia del agua, tanto para la existencia de la vida, comprendida en ella la humana, como sobre la trascendencia de su conservación.
