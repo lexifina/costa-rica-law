@@ -14,3 +14,4 @@ Adiciona artículos 26 Bis y 26 Tertius a Estatuto de Personal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-02-08 | la propia norma |
+| 2 | 2000-02-08 | Ley 8 |
