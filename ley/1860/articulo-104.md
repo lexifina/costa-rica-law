@@ -1,12 +1,3 @@
-Artículo 104.- Dentro de la generalización anterior, el Consejo
-tendrá preferentemente las siguientes funciones:
-a) Realizar el estudio permanente del desenvolvimiento
-económico-industrial del país y de las condiciones de vida y labores de
-los trabajadores, mediante investigaciones y recolección de datos sobre
-la materia;
-b) Estudiar permanentemente la legislación social, procurando su
-perfeccionamiento en armonía con las necesidades nacionales y de acuerdo
-con las posibilidades del país; y
-c) Informar sobre los proyectos de la ley y reglamentos que determine
-el Ministerio de trabajo o sugerir la promulgación de leyes sobre
-materias económico-sociales.
+Artículo 104.-
+Dentro de la generalización anterior, el Consejo tendrá preferentemente las siguientes funciones: a) Realizar el estudio permanente del desenvolvimiento económico-industrial del país y de las condiciones de vida y labores de los trabajadores, mediante investigaciones y recolección de datos sobre la materia;
+b) Estudiar permanentemente la legislación social, procurando su perfeccionamiento en armonía con las necesidades nacionales y de acuerdo con las posibilidades del país; y c) Informar sobre los proyectos de la ley y reglamentos que determine el Ministerio de trabajo o sugerir la promulgación de leyes sobre materias económico-sociales.

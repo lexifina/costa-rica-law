@@ -1,5 +1,3 @@
-Artículo 44.- A cada parte se le entregará una copia debidamente
-autenticada del acta a que se refiere el artículo anterior.
-Las actas en referencia tendrán el valor de prueba muy calificada y
-sólo se prescindirá de ella si hubiere otras que de modo evidente
-revelen la inexactitud, falsedad o parcialidad del acta.
+Artículo 44.-
+Las partes involucradas en el reclamo indicado en el artículo anterior serán debidamente citadas a una comparecencia. Si alguna de ellas no concurre, a solicitud de la contraria, se dispondrá una segunda citación, pero de continuar su inasistencia, la Oficina dará por concluida su intervención, salvo que la parte que haya asistido solicite, expresamente, una tercera convocatoria. Las citaciones respecto del patrono se harán bajo el apercibimiento de que, si no concurre, de conformidad con el artículo siguiente, se presumirán como ciertos los hechos en que se fundamenta el reclamo; en cuanto al trabajador se procederá en igual sentido, en relación con los hechos de descargo que aduzca el patrono.
+(Así reformado por el artículo 5º de la ley No.7360 del 4 de noviembre de 1993)

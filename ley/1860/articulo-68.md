@@ -1,6 +1,3 @@
-Artículo 68.- Actuará además esta Oficina como auxiliar del Consejo
-de Seguridad e Higiene del Trabajo, suministrándole a éste todos los
-informes necesarios para su cometido y realizando los estudios que dicho
-Consejo le encomiende.
-El Jefe de la Oficina se considerará como miembro nato del Consejo,
-y actuará como presidente del mismo.
+Artículo 68.- Actuará además esta Oficina como auxiliar del Consejo de Seguridad e Higiene del Trabajo, suministrándole a éste todos los informes necesarios para su cometido y realizando los estudios que dicho Consejo le encomiende.
+El Jefe de la Oficina se considerará como miembro nato del Consejo, y actuará como presidente del mismo.
+(De acuerdo con el dictamen N° C-267-2009 del 02/10/2009, el último párrafo del artículo 68 de la Ley Orgánica del Ministerio de Trabajo y Seguridad Social N° 1860 de 21 de abril de 1955, el cual indica “El Jefe de la Oficina se considerará como miembro nato del Consejo, y actuará como presidente del mismo.”, quedó derogado implícitamente, habida cuenta que la nueva integración y forma de nombramientos del Consejo de Salud Ocupacional se regula en el artículo 275 del Código de Trabajo No.2 de 27 de agosto de 1943, de acuerdo con la reforma practicada por la ley No. 6727 de 9 de marzo de 1982)

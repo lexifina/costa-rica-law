@@ -1,8 +1,2 @@
-Artículo 37.- La Oficina de Estadística proporcionará a las demás
-Dependencias del Ministerio y organismos estatales, los datos
-estadísticos que confeccione y que aquéllos necesiten para realizar sus
-labores.
-Los datos que obtenga esta Oficina en el ejercicio de sus funciones
-propias, son estrictamente confidenciales, y sólo podrán ser
-suministrados y publicados en los términos que al efecto establece el
-artículo 4º de la Ley General de Estadística.
+Artículo 37.-
+La Oficina de Estadística proporcionará a las demás Dependencias del Ministerio y organismos estatales, los datos estadísticos que confeccione y que aquéllos necesiten para realizar sus labores. Los datos que obtenga esta Oficina en el ejercicio de sus funciones propias, son estrictamente confidenciales, y sólo podrán ser suministrados y publicados en los términos que al efecto establece el artículo 4º de la Ley General de Estadística.

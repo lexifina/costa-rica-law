@@ -1,10 +1,3 @@
-Artículo 43.- En los conflictos de trabajo que se presenten entre
-patronos y trabajadores, o entre éstos, podrá intervenir esta Oficina, a
-fin de prevenir su desarrollo o lograr la conciliación extrajudicial, si
-ya se hubieren suscitado, a requerimiento de cualquiera de las partes
-interesadas.
-Para tal efecto, citará a una comparecencia, en la cual solamente
-oirá a las partes en conflicto, proponiéndoles luego los medios de
-solución de acuerdo con las leyes de trabajo, de todo lo cual levantará
-en el mismo instante una acta, que será firmada por el funcionario
-presente y por los interesados que supieren y quisieren hacerlo.
+Artículo 43.-
+En los conflictos de trabajo que se presenten entre patronos y trabajadores, o entre éstos, podrá intervenir esta Oficina, a fin de prevenir su desarrollo o lograr la conciliación extrajudicial, si ya se hubieren suscitado, a requerimiento de cualquiera de las partes interesadas. Para tal efecto, citará a una comparecencia en la cual oirá a las partes en conflicto o bien a sus representantes con poderes legales suficientes, luego les propondrá medios de solución de acuerdo con las leyes de trabajo. De todo eso, en la misma comparecencia, se levantará un acta, que será firmada por los presentes. Si alguna de las partes no firma se dejará constancia de ello. En el caso de que los conflictos de trabajo sean individuales, también se levantará un acta cuando no comparezca alguna de las partes citadas.
+(Este segundo párrafo fue así reformado por el artículo 5º de la ley No.7360 del 4 de noviembre de 1993)

@@ -1,3 +1,2 @@
-Artículo 83.- Efectuará los estudios e investigaciones que le
-soliciten otras Dependencias del Ministerio de Trabajo y Previsión
-Social, con obligación de rendir los informes correspondientes.
+Artículo 83.-
+DEROGADO. ( Derogado por artículo 5º de Ley Nº 3095 de 18 de febrero de 1963).

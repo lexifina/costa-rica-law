@@ -1,0 +1,2 @@
+Artículo 127.-
+Con el objeto de coordinar los servicios públicos y particulares de bienestar social, la Oficina organizará un archivo de las instituciones de bienestar social de la República y un sistema de intercambio confidencial de información entre las mismas. A su vez las instituciones que quedan dentro de la órbita de la Dirección General de Bienestar Social, tendrán que remitir a esta Oficina los informes o datos que se les soliciten. ( Así reformado por artículo 2º de Ley Nº 4076 de 6 de febrero de 1968).

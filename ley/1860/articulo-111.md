@@ -1,5 +1,2 @@
-Artículo 111.- Toda gestión debe ser presentada ante la Oficina
-correspondiente para lo cual el Ministerio deberá instruir debidamente a
-patronos y trabajadores. Sin embargo, el error en que al respecto se
-incurra, no exonera al Ministerio de encauzar la actuación de que se
-trate, por el conducto que corresponda.
+Artículo 111.-
+El Director General de Bienestar Social actuará bajo la dependencia del Ministro, quien será su superior inmediato, y sus actuaciones y resoluciones pueden ser revisadas por éste. ( Así adicionado por artículo 2º de Ley Nº 3095 de 18 de febrero de 1963).

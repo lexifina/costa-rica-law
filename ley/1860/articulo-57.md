@@ -1,8 +1,2 @@
-Artículo 57.- Todo patrono que desee contratar aprendices, debe
-previamente obtener la autorización de esta Oficina, la que se dará una
-vez efectuado el estudio del caso. Los aprendices contratados sin este
-requisito, serán considerados como trabajadores corrientes para todos los
-efectos legales.
-La acción de fiscalización y ejecución de las normas reguladoras
-del contrato de aprendizaje, la realizará esta Oficina por medio de la
-Inspección General de Trabajo.
+Artículo 57.-
+Todo patrono que desee contratar aprendices, debe previamente obtener la autorización de esta Oficina, la que se dará una vez efectuado el estudio del caso. Los aprendices contratados sin este requisito, serán considerados como trabajadores corrientes para todos los efectos legales. La acción de fiscalización y ejecución de las normas reguladoras del contrato de aprendizaje, la realizará esta Oficina por medio de la Inspección General de Trabajo.
