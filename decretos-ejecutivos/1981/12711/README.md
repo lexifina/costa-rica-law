@@ -14,3 +14,4 @@ Reglamento de la Educación Superior Parauniversitaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1981-07-02 | la propia norma |
+| 2 | 1981-12-03 | Decreto Ejecutivo 13188 (1981-12-03) |
