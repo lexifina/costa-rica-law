@@ -1,0 +1,1 @@
+Artículo 17.—Ningún inquilino de puestos permanentes o transitorios está autorizado para vender artículos o mercadería diferentes a aquellas para las cuales le fue adjudicado al puesto otorgado el derecho. La infracción a esta disposición dará lugar a la terminación, caducidad o cancelación del contrato o derecho.

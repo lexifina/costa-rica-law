@@ -1,0 +1,1 @@
+Artículo 16.—Los puestos transitorios serán permitidos en el caso de que la Municipalidad acordare su funcionamiento, por razones de conveniencia y mejoramiento del servicio. El pago de los derechos de piso será diario y se hará mediante cancelación del recibo ante la administración del mercado.

@@ -1,0 +1,3 @@
+CAPITULO IV
+Del funcionamiento de los locales
+Artículo 15.—Los puestos que explotan en los mercados se dividen en permanentes y transitorios. Son permanentes los puestos ocupados en forma continua, por inquilinos que resultasen adjudicatarios de un local y tengan suscrito un contrato de arrendamiento con la Municipalidad de Aguirre. Son transitorios aquellos puestos comerciales denominados derecho de piso, que se otorgan provisionalmente en lugares habitados para tal efecto fuera del edificio del mercado y que constituyen derecho de uso, revocable unilateralmente ajuicio de la administración o del Ejecutivo Municipal, cuando lo estime conveniente a los intereses de la administración.

@@ -1,0 +1,1 @@
+Artículo 5°— La Municipalidad coordinara y resolverá todos los asuntos aquí regulados a través de la administración del mercado. En caso de desacuerdo entre las partes, resolverá el Ejecutivo Municipal.

@@ -1,0 +1,1 @@
+Artículo 19.—Queda terminantemente prohibido al inquilino introducir mejoras de cualquier clase en los locales comerciales del mercado, sin previo permiso del Concejo. Toda mejora que introduzca, se tendrá por incorporada al inmueble respectivo a la terminación del contrato, en cuyo caso la administración del mercado dispondrá de ellos en la forma que se estime conveniente.

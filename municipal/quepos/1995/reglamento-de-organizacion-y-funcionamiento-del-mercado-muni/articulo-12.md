@@ -1,0 +1,1 @@
+Artículo 12.—Se refuta como inquilinos permanentes, a quienes resulten adjudicatarios de algún local o derecho y los concesionarios o causahabientes del adjudicatario que haya firmado el contrato respectivo y que se encuentren al día en el pago previo por el arrendamiento.
