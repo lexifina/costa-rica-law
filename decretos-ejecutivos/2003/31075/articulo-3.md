@@ -1,0 +1,2 @@
+Artículo 3º—Refórmase el párrafo primero del artículo 12, del Capítulo III "De la Titularización" para que en adelante se lea:
+"Artículo 12.—De la estructura de la titularización. La estructura de la titularización será diseñada e implementada por un Ente Estructurador contratado para esos efectos, o en su defecto, por la unidad técnica del ICAFE, la cual será autorizada, en sus diferentes etapas por la Comisión de Aprobación. (...)"

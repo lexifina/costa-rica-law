@@ -1,0 +1,2 @@
+Artículo 2º—Refórmase el artículo 11, del Capítulo III "De la Titularización" agregándose una frase al final del texto, para que en adelante se lea:
+"Artículo 11.—Fines. La finalidad de la titularización es agrupar los créditos cafetaleros y readecuarlos a largo plazo, de conformidad con las características y condiciones que se definan en la estructura de la titularización, las cuales quedarán claramente descritas en el documento informativo que al efecto emitirá el ICAFE".
