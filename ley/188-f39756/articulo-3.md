@@ -1,0 +1,1 @@
+3°.-Queda suprimida la Secretaria del Mando Político Superior y se subsitituye en su lugar la plaza de un oficial mayor, con la dotación de ciento ochenta pesos anuales, y la de los dos Escribientes será en lo sucesivo la de ciento cinquenta pesos anuales.
