@@ -1,0 +1,1 @@
+Artículo 2º—En razón de la derogatoria indicada, la extracción y comercialización del molusco bivalvo conocido como piangua; queda comprendida dentro de la prohibición establecida por el Decreto Ejecutivo Nº 29184-MAG-S.
