@@ -1,0 +1,1 @@
+Artículo 57.—Se entenderá como salario mínimo para el personal docente y docente-administrativo de los institutos o escuelas de Educación Superior Parauniversitaria privados los que se establezcan para el personal docente y docente-administrativo de los colegios universitarios.

@@ -1,0 +1,3 @@
+Artículo 41.—Las Instituciones de Educación Parauniversitarias podrán:
+a) Reconocer programas o cursos específicos que puedan ser homologables e integrados con algunas de las carreras formales que se ofrecen, siempre que el estudiante cumpla con el requisito estipulado en el artículo 31. Para tales efectos, cada institución definirá la reglamentación y procedimientos internos correspondientes.
+b) Suscribir convenios de articulación con las instituciones de Educación Superior Universitarias públicas y privadas que permitan continuar con el proceso formativo integral del diplomado en las ofertas académicas que imparten las universidades para garantizar la continuidad de estudio en grados académicos superiores.

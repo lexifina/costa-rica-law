@@ -1,0 +1,1 @@
+Artículo 30.—Los colegios universitarios nombrarán el personal necesario para el desempeño de sus funciones de conformidad con las disposiciones legales, presupuestarias y reglamentarias correspondientes.

@@ -1,0 +1,1 @@
+Artículo 40.—Las instituciones parauniversitarias harán las respectivas modificaciones curriculares que serán presentadas al Consejo Superior de Educación para su conocimiento y aprobación deben tener una vigencia de tres años y haber sido evaluadas.

@@ -1,0 +1,1 @@
+Artículo 68.—Las instituciones de Educación Superior Parauniversitaria establecerán los procedimientos internos necesarios para el reconocimiento recíproco de estudios. Dicho reconocimiento no podrá exceder de un 40% del plan de estudios aprobado por el Consejo Superior de Educación.

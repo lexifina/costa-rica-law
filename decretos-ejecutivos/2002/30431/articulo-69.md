@@ -1,0 +1,1 @@
+Artículo 69.—El presente Reglamento rige a partir de su firma y deroga el Decreto Ejecutivo N° 12711-E del 10 de junio de 1981 y sus reformas, así como cualquier otra disposición que se le oponga o contraríe en sus términos. Se mantienen vigentes el D.E. Nº 21333-MEP, D.E. Nº 21356-MEP y el D.E. Nº 23430-MEP-MICIT.
