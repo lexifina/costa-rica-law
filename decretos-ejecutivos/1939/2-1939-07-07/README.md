@@ -1,0 +1,15 @@
+# Decreto Ejecutivo 2-1939-07-07
+
+Reglamento de Jubilaciones y Pensiones Judiciales
+
+- Tipo: Decreto Ejecutivo
+- Número: 2
+- Fecha: 1939-07-07
+- Ente emisor: Presidente Constitucional de la República
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=15509&param2=16623&param3=1 (ficha 15509)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1939-07-07 | la propia norma |
