@@ -1,1 +1,2 @@
-Artículo 3°-La pensión de retiro será igual al 95 % del promedio de sueldos de categoría que hubiera devengado el interesado en los últimos diez años de servicio efectivo.
+Artículo 3º.- La pensión de retiro será igual al promedio de los sueldos devengados durante los últimos cinco años.
+(Así reformado por el artículo 1° de la ley N° 3802 del 22 de noviembre de 1966)
