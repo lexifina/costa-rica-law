@@ -1,1 +1,0 @@
-Artículo 11.—Mensualmente publicará el Banco Internacional en el Diario Oficial el estado de la emisión de cédulas y de los billetes que hubiere sido necesario poner en circulación para readquirirlas.

@@ -1,1 +1,0 @@
-Artículo 40.—Los Bonos sorteados dejan de ganar interés desde el día fijado para su redención. Al presentarse los bonos redimibles, deben traer completos los cupones de intereses no vencidos; el importe de los cupones que falten, será rebajado del valor del Bono al pagarse éste.

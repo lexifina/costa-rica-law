@@ -1,1 +1,0 @@
-Artículo 33. — En las mismas fechas de 30 de junio y 31 de diciembre de cada año serán amortizados Bonos en cantidad igual a las amortizaciones satisfechas en el período correspondiente anterior, por los deudores que hayan recibido los Bonos de la misma serie en el año respectivo de emisión, según el artículo 34.

@@ -1,2 +1,0 @@
-Artículo 8°—El Banco Internacional estará obligado a readquirir en cualquier tiempo y a la simple presentación, por su valor nominal, las cédulas que se le ofrezcan, para lo cual, a la vez que las cédulas, emitirá billetes, que conservará en sus cajas exclusivamente con tal objeto, por suma igual en colones a la que emita en cédulas.
-Las cédulas readquiridas serán vendidas nuevamente a quien las solicitare, retirándose de la circulación una suma en billetes igual al valor de las cédulas que se revendan.

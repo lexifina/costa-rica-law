@@ -1,1 +1,0 @@
-Artículo 4°—El Banco Nacional de Seguros procederá a emplear parte de las reservas técnicas correspondientes a los seguros sobre la vida, en habilitaciones sobre cosechas de frutos del país, conforme lo establece el artículo 22 de su ley constitutiva N° 12 de 30 de octubre de 1924, a plazos no mayores de un año y con garantía de prenda agraria, u otra a su satisfacción.

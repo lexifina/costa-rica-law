@@ -1,1 +1,0 @@
-Artículo 48.—Los Bonos que el Banco Internacional adquiera en virtud del artículo 25 de la ley que se reglamenta, los podrá enajenar, siempre que el precio de venta sea igual o mayor al de adquisición. Los fondos realizados por esta venta se invertirán en nuevas compras de Bonos que provengan de operaciones que se ajusten a lo prescrito en dicho artículo.

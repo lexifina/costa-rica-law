@@ -1,1 +1,0 @@
-Artículo 25.—Los Bonos se imprimirán en forma de talonario, quedando en la oficina del Banco, los troncos para anotar en ellos todas las circunstancias de la emisión del Bono y las que sobrevengan después y deban ser inscritas según este reglamento.
