@@ -20,3 +20,4 @@ Reglamento a la Ley General de Aduanas
 | 5 | 2000-09-27 | Decreto Ejecutivo 28976 (2000-09-27) |
 | 6 | 2000-12-05 | Decreto Ejecutivo 29128 (2000-12-05) |
 | 7 | 2001-05-15 | Decreto Ejecutivo 29663 (2001-05-15) |
+| 8 | 2002-09-10 | Decreto Ejecutivo 30721 (2002-09-10) |
