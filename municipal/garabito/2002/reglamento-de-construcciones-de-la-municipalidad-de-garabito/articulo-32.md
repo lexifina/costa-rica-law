@@ -1,0 +1,1 @@
+Artículo 32.—Una vez aprobado el permiso y confeccionado el respectivo documento, se comunicará al propietario el monto a pagar por concepto del impuesto de construcción, fijándosele un plazo para el pago de este.

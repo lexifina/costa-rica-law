@@ -1,0 +1,1 @@
+Artículo 11.—En ningún caso podrá ser traspasada la línea de construcción establecida en el Plan Regulador si lo hubiere. El Ingeniero Municipal o el funcionario encargado de supervisar la construcción velará por que la anterior disposición se cumpla y por lo tanto de que no se altere la línea dada, ni se varíe la altura del nivel.

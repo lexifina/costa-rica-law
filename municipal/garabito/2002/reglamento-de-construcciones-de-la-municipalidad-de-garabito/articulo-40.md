@@ -1,0 +1,1 @@
+Artículo 40.—El visado de planos de lotes de urbanizaciones quedará sujeto a la entrega y traspaso de las calles, áreas comunales y zonas verdes a satisfacción de la Municipalidad, o en su defecto con la entrega de una Garantía Real acorde con el costo de las obras faltantes.

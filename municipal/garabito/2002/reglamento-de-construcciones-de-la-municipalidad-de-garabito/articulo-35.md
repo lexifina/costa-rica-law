@@ -1,0 +1,1 @@
+Artículo 35.—Finalizada la construcción, el propietario comunicará a la Municipalidad la finalización de esta, y se coordinará una inspección final conjunta para la entrega de la obra y la Bitácora Municipal. En la cual el Inspector Municipal levantará un informe de los acabados finales y el área de construcción definitiva, con copia para el Departamento de Bienes Inmuebles.

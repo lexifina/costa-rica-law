@@ -1,0 +1,1 @@
+Artículo 29.—Si la Oficina de Ingeniería, encontrare algún defecto o considerare que algún aspecto técnico o legal en los planos debe modificarse, lo comunicará al interesado a la dirección o fax que estableció en la solicitud respectiva, a efecto de que proceda a hacer las enmiendas señaladas

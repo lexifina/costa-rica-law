@@ -1,0 +1,1 @@
+Artículo 14.—Todo terreno no ocupado que linde con la vía pública, deberá cercarse a una altura no inferior a dos metros (2,00 m) con alambre colocado en postes, los hilos de alambre deberán colocarse a una distancia máxima de treinta (30 cm) centímetros debidamente tensos.

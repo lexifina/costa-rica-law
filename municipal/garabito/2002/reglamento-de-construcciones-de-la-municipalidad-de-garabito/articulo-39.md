@@ -1,0 +1,1 @@
+Artículo 39.—Todo proyecto urbanístico, de vivienda, condominio o que por sus características lo ameriten a criterio de la Municipalidad, deberá contar con planta de tratamiento para aguas residuales.

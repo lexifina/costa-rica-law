@@ -1,0 +1,1 @@
+Artículo 10.—Las construcciones dedicadas a locales comerciales, oficinas, apartamentos, condominios y otros similares, deberán proveer un espacio para construir paneles de casilleros o buzones destinados a los ocupantes o inquilinos del inmueble (Art. 14. Casilleros y buzones postales Ley de Correos).

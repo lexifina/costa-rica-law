@@ -1,0 +1,1 @@
+Artículo 17.—Toda construcción, remodelación o ampliación que se realice en condominios, deberá ser aprobada por la Asamblea de Socios quienes consignarán el respectivo acuerdo mediante acta certificada sobre el particular, la cual debe ser presentada a la Municipalidad para cualquier gestión al respecto.

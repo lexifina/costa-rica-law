@@ -1,0 +1,5 @@
+Artículo 43.—Por las infracciones a las reglas del Capítulo IV-Anuncios la Municipalidad impondrá multas de ¢5.000,00 (cinco mil colones) a ¢10.000,00 (diez mil colones) por las infracciones a las reglas de este Capítulo, y ordenará el desmantelamiento y retiro, a costa del propietario, de anuncios y estructuras que considere inconvenientes o peligrosas.
+a- El anuncio que haya sido retirado por la Municipalidad será depositado en las bodegas municipales y será entregado una vez que hayan sido cancelados al Ayuntamiento la multa correspondiente y los costos del retiro del mismo.
+b- Si pasados sesenta días naturales el rótulo o anuncio decomisado no ha sido retirado por su dueño, la Municipalidad dispondrá de él como más le convenga, sin que medie el pago de indemnización alguna por él.
+c- La Municipalidad no será responsable por los daños que sufran los rótulos o anuncios durante el operativo del retiro de estos, ni por su permanencia en las Bodegas Municipales.
+El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 15.—El profesional responsable del diseño y dirección de la obra responderá de los datos que se indiquen en los planos del proyecto. La Municipalidad será responsable únicamente por los retiros y niveles.

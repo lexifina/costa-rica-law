@@ -1,0 +1,1 @@
+Artículo 36.—Todo proyecto urbanístico o turístico que se pretenda desarrollar dentro de la jurisdicción territorial del Cantón de Garabito, podrá ejecutarse únicamente en virtud del permiso o autorización extendida por el Municipio.

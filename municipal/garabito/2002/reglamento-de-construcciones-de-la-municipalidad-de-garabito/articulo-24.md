@@ -1,0 +1,1 @@
+Artículo 24.—Dependiendo de la ubicación de la propiedad, se deberán aportar pruebas de infiltración del terreno y estudio de suelo, a solicitud del Ingeniero de la Municipalidad o a Criterio del Profesional Responsable.

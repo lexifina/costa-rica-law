@@ -1,0 +1,1 @@
+Artículo 28.—Si los planos constructivos, aprobados o rechazados no son retirados en el plazo de 30 días hábiles se archivarán. Luego de archivados los documentos, deberá traer el interesado una carta de solicitud para la entrega de los mismos y proceder a actualizar la solicitud de Permiso de Construcción.
