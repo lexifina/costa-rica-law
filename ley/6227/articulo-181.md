@@ -1,0 +1,4 @@
+Artículo 181.- El contralor no jerárquico podrá revisar sólo la
+legalidad del acto y en virtud de recurso administrativo, y decidirá dentro
+del límite de las pretensiones y cuestiones de hecho planteadas por el
+recurrente, pero podrá aplicar una norma no invocada en el recurso.
