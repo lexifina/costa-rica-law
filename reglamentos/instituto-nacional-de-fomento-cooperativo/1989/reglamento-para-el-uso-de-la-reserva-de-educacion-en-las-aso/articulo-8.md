@@ -1,1 +1,0 @@
-Artículo 8°.- Las cooperativas podrán contribuir con cargo a la Reserva de Educación, con celebraciones del Movimiento Cooperativo Costarricense, tal como congresos, Día Nacional de Cooperativismo o Día Internacional del Cooperativismo.
