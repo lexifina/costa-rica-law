@@ -1,0 +1,2 @@
+ARTICULO VI.
+Si el laudo arbitral decide la validez de tratado, la misma sentencia declarará si Costa Rica tiene derecho de navegar el río San Juan con naves de guerra ó destinadas al servicio fiscal. De igual modo decidirá, en caso de ser válida dicha convención, todos los demás puntos de dudosa interpretación que cualquiera de las partes encuentre en el tratado y que comunique á la otra dentro de treinta días, contados desde el canje de ratificaciones del presente.

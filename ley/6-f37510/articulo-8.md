@@ -1,0 +1,3 @@
+ARTICULO VIII.
+Si se llegare á declarar la nulidad del tratado, ambos Gobiernos, dentro de un año contado desde la notificación del laudo arbitral, se pondrán de acuerdo para fijar la línea divisoria de los territorios respectivos. Si ese acuerdo no fuere posible, celebrarán en el año siguiente una convención para someter á la decisión de un Gobierno amigo la cuestión de límites entre ambas Repúblicas.
+Desde que el tratado se declare nulo y mientras no haya acuerdo entre las partes ó no recaiga sentencia que fije los derechos definitivos de ambos países, se respetarán provisionalmente los que establece el tratado 15 de abril de 1858.
