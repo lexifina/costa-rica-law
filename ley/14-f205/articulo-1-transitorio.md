@@ -1,0 +1,2 @@
+Artículo transitorio.-Esta ley tendrá ejecución cuando el Poder Ejecutivo haya hecho los estudios indispensables y determinado de un modo definitivo las condiciones que tiene la Isla del Caño para el objeto a que esta ley la destina; sin embargo, en cuanto al artículo 3° regirá desde su publicación.
+Dado en la Casa Presidencial.-San José. a los treinta y un días del mes de agosto de mil novecientos diez y siete.

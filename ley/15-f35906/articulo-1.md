@@ -1,4 +1,5 @@
 N° 15
+(Nota de Sinalevi: De conformidad con el artículo 5° de la ley N° 14 del 31 de agosto de 1917, "Traslada presidio de San Lucas a la del Caño", queda así modificada la presente ley)
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
 EL CONGRESO CONSTITUCIONAL DE LA
 REPUBLICA DE COSTA RICA,

@@ -1,0 +1,1 @@
+Artículo 4°-La reclusión mayor se convertirá en presidio interior mayor con la rebaja de una cuarta parte de su duración; y será purgada en el presidio de San Lucas o el del Caño, cuando se hiciere el traslado del presidio.
