@@ -1,0 +1,1 @@
+3º—Formulario: El formulario oficial que será utilizado para el trámite de solicitud del permiso de vertido, será el que comprende el anexo 1 de esta resolución y que constituye parte integral de la misma.
