@@ -1,0 +1,1 @@
+Art. 2 El médico de la Provincia de San José desempeñará en lo sueesivo, las obligaciones que las leyes señalan al enunciado Inspector. –Dado en la ciudad de San José à los veintiséis dias del mes de diciembre de mil ochocientos cuarenta y ocho. -José Maria Castro. El Ministro de relaciones y gobernacion. -Joaquin Bernardo Calvo."
