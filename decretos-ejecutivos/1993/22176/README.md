@@ -15,3 +15,4 @@ Creación de Aduana Multimodal
 | 1 | 1993-05-26 | la propia norma |
 | 2 | 1993-05-26 | SINALEVI (sin norma nombrada) |
 | 3 | 1996-06-14 | SINALEVI (sin norma nombrada) |
+| 4 | 1996-06-14 | Ley 8 |
