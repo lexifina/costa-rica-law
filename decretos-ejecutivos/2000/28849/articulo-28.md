@@ -1,0 +1,1 @@
+Artículo 28.—Dependencias y sujetos que brindarán información. A efecto de lograr los objetivos del SEN planteados en la Ley y el respectivo reglamento, el INEC requerirá información de las entidades que conforman el Sistema, de las dependencias públicas que procesen información estadística y de personas jurídicas y físicas.

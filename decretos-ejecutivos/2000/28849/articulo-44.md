@@ -1,0 +1,1 @@
+Artículo 44.—Estudios de costos para la venta de los servicios. El INEC elaborará periódicamente estudios de costos que permitan actualizar el precio de los servicios y de los productos estadísticos. Estos servicios serán retribuidos mediante pago directo, sobre el cual se emitirán los comprobantes de ingreso.

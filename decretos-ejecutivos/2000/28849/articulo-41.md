@@ -1,0 +1,1 @@
+Artículo 41.—De los presupuestos ordinarios y extraordinarios. El presupuesto ordinario y los extraordinarios del INEC serán elaborados por la Gerencia en estricta conformidad con las directrices establecidas por el Consejo Directivo y con sujeción a los lineamientos presupuestarios emitidos por la Secretaría Técnica de la Autoridad Presupuestaria.

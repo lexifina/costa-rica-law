@@ -1,0 +1,1 @@
+Artículo 35.—Régimen de sanciones para los funcionarios del INEC. Los funcionarios del INEC que violenten las disposiciones establecidas en la Ley serán sancionados de conformidad con el artículo cuarenta y ocho de la misma, lo cual se tramitará bajo un procedimiento administrativo con observancia estricta del debido proceso.

@@ -1,0 +1,1 @@
+Artículo 33.—Obligación de guardar reserva sobre los datos que se manejen. Los funcionarios responsables de la elaboración de las estadísticas tienen la obligación de guardar reserva respecto a las mismas, sean éstas preliminares o definitivas, hasta tanto se hayan hecho públicas.

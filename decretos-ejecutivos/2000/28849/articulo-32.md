@@ -1,0 +1,1 @@
+Artículo 32.—Responsables de procesar y divulgar información estadística. Las autoridades de las instituciones que conforman el SEN determinarán la dependencia o funcionario responsable de la elaboración y difusión de las estadísticas nacionales que produzcan.

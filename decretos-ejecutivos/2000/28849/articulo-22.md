@@ -1,0 +1,1 @@
+Artículo 22.—Auditoría Interna. La función principal de la Auditoría Interna es comprobar el cumplimiento, la suficiencia y validez del sistema de control interno establecido por la institución. Los demás aspectos de funcionamiento de este órgano están determinados por el respectivo Reglamento.

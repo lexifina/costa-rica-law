@@ -1,0 +1,1 @@
+Artículo 21.—Del Consejo Nacional Consultivo de Estadística. El Consejo Nacional Consultivo de Estadística es una instancia de naturaleza consultiva que conocerá de los asuntos que le indica la Ley de creación del Sistema de Estadística Nacional y este reglamento, cuya integración y nombramiento se contemplan en el artículo treinta y nueve de la Ley.

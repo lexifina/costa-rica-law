@@ -1,0 +1,1 @@
+Artículo 23.—Dependencias sustantivas del INEC. Además de los órganos indicados en los artículos precedentes, conformarán parte del soporte administrativo del INEC las dependencias que conforman la estructura organizacional y funcional debidamente avaladas por MIDEPLAN, mismas que se contemplan en el manual de organización y servicio institucional.

@@ -1,0 +1,1 @@
+Artículo 17.—De la Gerencia. La Gerencia de INEC es el órgano de mayor rango administrativo con la representación judicial y extrajudicial del Instituto, responsable de la buena marcha del mismo, en acatamiento de la ley y de las directrices emanadas por el Consejo Directivo.

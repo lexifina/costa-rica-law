@@ -1,0 +1,1 @@
+Artículo 16.—Del Consejo Directivo. El Consejo Directivo es el órgano central del SEN y la autoridad máxima de la Institución y su nombramiento, conformación, atribuciones y funciones se regirá por la Ley y el respectivo reglamento.

@@ -1,0 +1,1 @@
+Artículo 11.—Estadísticas nacionales. Las estadísticas nacionales son aquellas que suministren información útil par sustentar procesos de ejecución y evaluación de proyectos de desarrollo cuya producción está confiada a las instituciones que conforman el SEN.

@@ -1,0 +1,1 @@
+Artículo 26.—Divulgación de la información estadística. La información estadística por divulgar no podrá referirse a datos relacionados con menos de tres unidades, ni suministrados con propósitos fiscales o de otra índole y deberá estar registrada de forma tal que se preserve el anonimato de los informantes.

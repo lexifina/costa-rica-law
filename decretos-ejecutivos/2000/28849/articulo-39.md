@@ -1,0 +1,1 @@
+Artículo 39.—Aporte en equipo de otras instituciones. Además de los recursos financieros detallados en el apartado anterior, el INEC podrá recibir aportes de instituciones públicas en materia de transporte, equipo y material de cómputo y suministros varios para satisfacer los propósitos de esta Ley.

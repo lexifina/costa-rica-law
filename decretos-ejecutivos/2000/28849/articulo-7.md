@@ -1,0 +1,1 @@
+Artículo 7º—Objetivo. El Instituto Nacional de Estadística y Censos se crea con la finalidad de que dirija técnicamente las estadísticas nacionales y coordine las actividades estadísticas de las entidades que conforman el SEN.

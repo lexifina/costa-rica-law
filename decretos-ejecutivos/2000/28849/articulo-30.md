@@ -1,0 +1,1 @@
+Artículo 30.—Suministro de información de otras entidades que procesan información estadística. También deberán remitir información todas aquellas entidades públicas que aunque no pertenezcan al SEN procesen información estrictamente estadística, siempre que la misma no esté cubierta por secreto de Estado o alguna protección especial.

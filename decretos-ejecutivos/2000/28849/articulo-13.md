@@ -1,0 +1,1 @@
+Artículo 13.—Estadísticas de interés particular. Las estadísticas de interés particular son las que decida realizar el INEC a solicitud de personas u organismos particulares, siempre que el costo de las mismas sea cubierto por los solicitantes.

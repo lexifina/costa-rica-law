@@ -14,3 +14,4 @@ Reglamento a la Ley del Sistema de Estadística Nacional.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-24 | la propia norma |
+| 2 | 2000-10-30 | Ley 7 |

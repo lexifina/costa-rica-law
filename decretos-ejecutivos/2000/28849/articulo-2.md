@@ -1,0 +1,1 @@
+Artículo 2º—Conformación del SEN. El Sistema de Estadística Nacional estará conformado por las instituciones públicas centralizadas y descentralizadas y demás entidades del sector público que elaboren estadísticas para fines estatales o que por medio de registros administrativos generen información de utilidad para la producción de las estadísticas nacionales.

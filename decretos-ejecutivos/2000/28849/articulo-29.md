@@ -1,0 +1,1 @@
+Artículo 29.—Suministro de información. Las dependencias públicas que conforman el SEN deberán remitir la información solicitada por el INEC en el plazo establecido en el artículo siete de la Ley, caso contrario, incurrirán en responsabilidades que determina la Ley en los artículos cuarenta y tres y siguientes.

@@ -1,0 +1,2 @@
+IX.—TRANSITORIOS
+Artículo 48.—Publicación del listado de las estadísticas de interés nacional. El Consejo Directivo en un plazo de seis meses a partir de la publicación de este Reglamento, publicará en La Gaceta, un listado de las estadísticas nacionales que permitan producir y difundir información confiable y oportuna para el conocimiento integral de la realidad costarricense y coadyuvar así a la toma de decisiones políticas y a la gestión administrativa, pública y privada.
