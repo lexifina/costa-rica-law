@@ -1,17 +1,5 @@
-Artículo 18.- Para renovar los vehículos importados parcialmente
-exonerados según la reforma establecida mediante la Ley 7293, la empresa
-arrendante debe previamente solicitar la liquidación de los tributos
-exonerados y gestionar cuando corresponda el cambio de placas ante el
-Registro Público. Se entiende como período de uso el tiempo transcurrido
-desde la fecha de aceptación de la póliza de importación del vehículo,
-hasta la fecha en que sea aceptada por la Dirección la respectiva
-liquidación de tributos. Dicha liquidación se aplicará únicamente en los
-casos en que se demuestre a la Dirección que los vehículos han sido
-arrendados y circulados regularmente conforme con la Ley, para lo que se
-tomará en cuenta los contratos de arrendamiento suscritos, el kilometraje
-recorrido y cualesquiera otros elementos que le permitan establecer con
-la mayor certeza tal circunstancia, y utilizando la depreciación
-establecida en la siguiente tabla:
+Artículo 18.-Para renovar los vehículos importados parcialmente exonerados según la reforma establecida mediante la Ley Nº 7293, la empresa arrendante debe previamente solicitar la liquidación de los tributos exonerados y en caso de que el vehículo cuente con placa especial TUR, gestionar cuando corresponda el cambio de placas ante el Registro Público. No será necesario el depósito de placas cuando el vehículo porte placas de las denominadas “particulares”. Se entiende como período de uso el tiempo transcurrido desde la fecha de aceptación de la declaración aduanera de importación del vehículo, hasta la fecha final de corte de los contratos que utilice la empresa para la confección de la respectiva solicitud de liquidación de tributos, según el formulario Hacienda-Turismo-Rent A Car que se establece en el artículo 17-bis. La Dirección mediante el Formulario Hacienda-Turismo-Rent A Car, que servirá como nota de liquidación, indicará a la Aduana el número de meses que debe considerar para la aplicación de la tabla. La Aduana utilizará la depreciación establecida en la siguiente tabla:
+(Así reformado el párrafo anterior por el artículo 3° del Decreto Ejecutivo No. 32015 de 15 de marzo de 2004).
 Período Tasa Tasa Porcentaje
 de uso mensual de acumulada de a liquidar
 (meses) depreciación depreciación (%)
@@ -40,18 +28,8 @@ de uso mensual de acumulada de a liquidar
 22 5,00 90,00 5,00
 23 5,00 95,00 2,50
 24 0,83 95,83 2,08
-La determinación de la obligación tributaria correspondiente será el
-resultado de aplicar el porcentaje a liquidar de la columna 4, al valor
-aduanero establecido en la póliza de importación sin las eventuales
-averías o depreciación reconocidas en esa oportunidad, y con los tributos
-y el cambio de moneda vigentes a la fecha de aceptación de la póliza de
-liquidación.
-Toda fracción de mes se reputará como mes completo, y se aplicará el
-porcentaje de avería que corresponda, en el evento de que exista, de
-conformidad con las reglas que para su otorgamiento rijan al momento de
-la aceptación de la póliza de liquidación.
-La Dirección le indicará a la Aduana, en la respectiva nota de
-liquidación, el número de meses que debe considerar para la aplicación de
-la tabla anterior.
-Para estos vehículos también se aplicará lo estipulado en los incisos
-d) y e) del artículo anterior.
+La determinación de la obligación tributaria correspondiente será el resultado de aplicar el porcentaje a liquidar de la columna 4, al valor aduanero establecido en la póliza de importación sin las eventuales averías o depreciación reconocidas en esa oportunidad, y con los tributos y el cambio de moneda vigentes a la fecha de aceptación de la póliza de liquidación.
+Para la aplicación del presente artículo, y para efecto de determinar los meses de uso, se tomarán en cuenta, si fuera necesario, para el primer, segundo y tercer período dos decimales, que al sumar el total, si los mismos suman más de 0.50 se reputará como mes completo a la unidad más próxima, ó si por el contrario, si es menos de 0.50 no se tomará en cuenta para determinar los meses de uso.
+(Así reformado el párrafo anterior por el artículo 3° del Decreto Ejecutivo No. 32015 de 15 de marzo de 2004).
+La Dirección le indicará a la Aduana, en la respectiva nota de liquidación, el número de meses que debe considerar para la aplicación de la tabla anterior.
+Para estos vehículos también se aplicará lo estipulado en los incisos d) y e) del artículo anterior.

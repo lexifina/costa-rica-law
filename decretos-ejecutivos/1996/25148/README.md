@@ -17,3 +17,4 @@ Regula Arrendamiento de Vehículos a Turistas Nacionales y Extranjeros
 | 2 | 1996-05-22 | SINALEVI (sin norma nombrada) |
 | 3 | 1999-03-10 | SINALEVI (sin norma nombrada) |
 | 4 | 2001-01-19 | Decreto Ejecutivo 29215 (2001-01-19) |
+| 5 | 2004-03-15 | Decreto Ejecutivo 32015 (2004-03-15) |

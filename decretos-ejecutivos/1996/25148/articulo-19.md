@@ -1,6 +1,2 @@
-Artículo 19.- La Dirección evaluará aquellos casos debidamente
-respaldados con documentos fehacientes en que por accidentes un vehículo
-no circuló o por fuerza mayor no fuese posible sustituir un
-cuentakilómetros dañado de un vehículo exonerado, con el propósito de no
-perjudicar a la empresa en la determinación del porcentaje de
-depreciación a conceder.
+Artículo 19.- Para el caso del cuentakilómetros dañado, la empresa podrá arrendar el vehículo a los turistas, pero para efectos de la liquidación de tributos no asignará kilometraje por el tiempo usado en esas circunstancias.
+(Así reformado por el artículo 4° del Decreto Ejecutivo N° 32015 de 15 de marzo de 2004).
