@@ -1,1 +1,2 @@
-Artículo 11.—Los terrenos pertenecientes al ITCO, que se encuentren incluidos dentro de la demarcación de las Reservas Indígenas, deberán ser cedidos por dicha institución para destinarlos a asentamientos campesinos de comunidades indígenas.
+Artículo 11.-Los terrenos pertenecientes al ITCO, que se encuentren incluidos dentro de la demarcación de las Reservas Indígenas, deberán ser cedidos por dicha institución para destinarlos a asentamientos campesinos de comunidades indígenas.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 6037 del 26 de mayo de 1976, se acordó extender a las Reservas Indígenas de Boruca y de Üjarrás-Salitre-Cabagra, las contempladas en este numeral)

@@ -1,1 +1,2 @@
-Artículo 14.—Las disposiciones contenidas en el presente decreto, son de interés público y en este sentido se considera indispensable su fiel acatamiento y el mantenimiento de su vigencia.
+Artículo 14.-Las disposiciones contenidas en el presente decreto, son de interés público y en este sentido se considera indispensable su fiel acatamiento y el mantenimiento de su vigencia.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 6037 del 26 de mayo de 1976, se acordó extender a las Reservas Indígenas de Boruca y de Üjarrás-Salitre-Cabagra, las contempladas en este numeral)
