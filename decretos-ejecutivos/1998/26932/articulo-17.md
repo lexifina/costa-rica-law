@@ -1,1 +1,2 @@
-Artículo 17°—La publicación de los resultados obtenidos de la información referente a la mortalidad infantil, se harán dentro de un programa regular y estarán a cargo de la Comisión Nacional de Análisis de la Mortalidad Infantil y el Sistema de Información de Salud.
+Artículo 17°—La publicación de los resultados obtenidos de la información referente a la mortalidad infantil, se harán dentro de un programa regular y estarán a cargo de la Comisión Nacional para la Prevención de la Mortalidad infantil y el Sistema de Información de Salud.
+(El Decreto Ejecutivo 28118 de 30 de septiembre 1999, modificó de modo expreso la denominación de la Comisión Nacional de Análisis de la Mortalidad Infantil por Comisión Nacional para la Prevención de la Mortalidad infantil.)

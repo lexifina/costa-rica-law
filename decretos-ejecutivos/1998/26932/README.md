@@ -14,3 +14,4 @@ Reglamento de Creación del Sistema Nacional de Análisis de la Mortalidad Infan
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-22 | la propia norma |
+| 2 | 1999-09-09 | Decreto Ejecutivo 28118 (1999-09-09) |
