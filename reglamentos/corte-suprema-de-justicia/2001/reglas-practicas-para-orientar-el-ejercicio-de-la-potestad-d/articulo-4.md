@@ -1,0 +1,3 @@
+4.—En el proceso disciplinario deben aplicarse además de las normas legales correspondientes contenidas en la Ley Orgánica, 1as reglas del debido proceso reconocidas y señaladas por la Sala Constitucional para el procedimiento administrativo sancionador y deberá respetar específicamente las siguientes disposiciones:
+a) El traslado de cargos contendrá una descripción detallada sobre los hechos concretos que se pretenden investigar y las pruebas existentes en su contra.
+b) El denunciado(a) tendrá pleno acceso a todas las piezas del expediente durante todo el proceso, con las excepciones que la ley señala.
