@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 16068
+
+Reforma División Regional del Territorio de Costa Rica, para los efectos de investigación y planificación del desarrollo económico
+
+- Tipo: Decreto Ejecutivo
+- Número: 16068
+- Fecha: 1985-02-15
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 57 del 1985-03-26
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=59724&param2=66785&param3=1 (ficha 59724)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1985-03-26 | la propia norma |
