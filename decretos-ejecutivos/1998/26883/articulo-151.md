@@ -1,5 +1,5 @@
-Artículo 151.—Disposiciones transitorias
-La inscripción de los bienes que a continuación se indican quedará sujeta a las siguientes condiciones:
-a) La inscripción de aeronaves y sus partes inscribibles seguirá siendo competencia del Registro Aeronáutico Costarricense adscrito a la Dirección General de Aviación Civil del Ministerio de Obras y Transportes, hasta tanto el Poder Ejecutivo mediante el respectivo decreto ordene su traslado al Registro Público de la Propiedad Mueble y regule los requisitos de inscripción de los documentos relacionados.
-b) La inscripción de bienes muebles que no sean vehículos y buques y que reúnan las condiciones señaladas en el presente Reglamento, no se autorizará hasta tanto entre en funcionamiento el sistema de información que habilite la inscripción de estos bienes.
-c) En el plazo de 60 (sesenta) días contados a partir de la vigencia de este Reglamento, el Registro Nacional publicará la lista de los códigos de las placas de los vehículos a que se refiere el artículo 113.
+CAPITULO TERCERO
+Disposiciones finales
+Artículo 151.—Disposiciones supletorias
+En lo no previsto en este Reglamento se aplicarán, en lo que fueren compatibles, las disposiciones del Código Civil y del Código de Comercio la Ley Sobre Inscripción de Documentos en el Registro Público No 388 del 30 de mayo de 1967, la Ley de Aranceles del Registro Público, el Reglamento de Organización del Registro Público y demás disposiciones reglamentarias de éste.
+(Así corrida la numeración por el Artículo 2° del Decreto Ejecutivo N° 30097, que adicionó los artículos 149 y 150, y ordenó correr la numeración por lo que este artículo pasó de ser 149 a 151)
