@@ -13,3 +13,4 @@ CFIA: Reglamento Especial para Uso de Planos Tipo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-04-27 | la propia norma |
+| 2 | 1997-06-17 | Reglamento 36 (1997-07-17) |
