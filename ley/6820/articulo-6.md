@@ -1,0 +1,5 @@
+CAPITULO II
+De las derogaciones, de la vigencia y de la reglamentación
+Artículo 6º.- Deróganse todos los impuestos específicos de consumo o ad valórem, cobrados en la primera etapa del proceso productivo o de comercialización, que recaigan sobre la producción, el consumo o la venta de mercancías no comprendidas en esta ley, así como en cualquier otra ley general o especial que regule exenciones en forma diferente, o que establezca impuestos de consumo para el Gobierno Central o para cualquier otra entidad pública o privada, que se cobren en la etapa mencionada.
+Se mantienen todos los beneficios que por concepto de impuestos perciben el Instituto de Fomento Cooperativo, el Instituto de Desarrollo Agrario y el Instituto de Fomento y Asesoría Municipal.
+Derógase el inciso c) del artículo 10 de la ley Nº 6324 del 24 de mayo de 1979, referente a un subsidio no menor de ocho millones de colones anuales que gira la Refinadora Costarricense de Petróleo (RECOPE) al Consejo de Seguridad Vial, y que dicha empresa incluye como impuesto en los precios de sus productos.

@@ -1,0 +1,3 @@
+Artículo 3º.- Modifícase el inciso c) del artículo 7º, el cual dirá así:
+"c) La exportación de mercancías, inclusive la que se efectúe por intermedio de comerciantes, sujeta a las medidas contraloras que se dispongan en el reglamento. Asimismo, se otorgará un crédito de impuestos a los contribuyentes por las mercancías que reexporten, sobre las cuales hayan pagado el impuesto, y por las mercancías que hayan tenido que destruir por razones de protección al consumidor, sobre las cuales hubiesen pagado este tributo.
+La destrucción deberá haberse producido en presencia de funcionarios de la Administración Tributaria".
