@@ -1,0 +1,1 @@
+Artículo 2°-La exención será de un ciento por ciento sobre el bodegaje de las mercaderías que se desalmacenen durante los primeros treinta días naturales de la vigencia de esta ley; y del cincuenta por ciento, si el desalmacenaje se efectúa dentro de los últimos treinta días de su vigencia.
