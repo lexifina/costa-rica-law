@@ -15,3 +15,4 @@ Reglamento de Caja Chica
 | --- | --- | --- |
 | 1 | 2002-08-05 | la propia norma |
 | 2 | 2003-07-17 | Reglamento 3181 (2003-07-17) |
+| 3 | 2004-04-15 | Reglamento 3236 (2004-04-15) |

@@ -7,7 +7,8 @@ b) Factura original debidamente membretada, con sello de cancelación y timbrada
 c) Fecha de emisión.
 d) A nombre de INCOP.
 e) Firmada por la persona autorizada (estipulada en el artículo 13 de este Reglamento) como aprobación.
-f) Especificación detallada de los artículos comprados o servicios adquiridos y el valor unitario de cada uno excepto cuando se trate de facturas por concepto de productos alimenticios (bocadillos, servicio de restaurante u otros).
+f) Especificación detallada de los artículos comprados o servicios adquiridos y el valor unitario de cada uno.
+(Así reformado mediante acuerdo adoptado por la Junta Directiva, en su sesión 3236 del 15 de abril de 2004)
 g) Las facturas deberán ser nítidas, sin borrones ni tachaduras o alteraciones.
 h) Al dorso de la factura deberá consignarse el recibido conforme de quien recibió el bien o el servicio. (Se exceptúa de éste a la Administración Superior).
 i) Sello de contenido presupuestario, código presupuestario y contable.
