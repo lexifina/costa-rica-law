@@ -1,0 +1,1 @@
+Artículo 2°.-Color y diseño de cada papeleta. Las papeletas para Presidente y Vicepresidentes de la República serán de color blanco; para Diputados a la Asamblea Legislativa color turquesa, y la de Regidores Municipales color rosado. E] color será el mismo por ambos lados de la papeleta.

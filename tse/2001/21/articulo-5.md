@@ -1,0 +1,1 @@
+Artículo 5°.- Casillas con candidatos. Cuando el número de partidos que participan en la respectiva elección sea mayor de cuatro, se ubicarán en dos filas, una bajo la otra. Si el número es impar, la mayor va arriba.
