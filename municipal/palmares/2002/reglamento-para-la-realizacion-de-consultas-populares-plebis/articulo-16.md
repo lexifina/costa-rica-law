@@ -1,0 +1,1 @@
+Artículo 16.—De la discusión de las propuestas. El Concejo Municipal tomará las medidas necesarias para garantizar la libertad encasaría para el planteo, examen de las distintas opciones que presenta la consulta popular, disponiendo un grupo razonable para la divulgación y análisis de las diversas alternativas por parte de los habitantes del cantón de Palmares.

@@ -1,0 +1,1 @@
+Artículo 30.—De la reposición del Alcalde propietario. Si el resultado de la consulta fuere la destitución del funcionario, el Concejo Municipal lo comunicará al Tribunal Supremo de Elecciones, el cual responderá al Alcalde por el resto del periodo, según el Artículo 14 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 22.—De la votación. El proceso de votación se llevará acabo según lo establecido en el código electoral y los mecanismos que al efecto ha establecido el Tribunal Supremo de Elecciones para los comicios nacionales.
