@@ -1,0 +1,1 @@
+Artículo 5°—Transitorio.—Hasta tanto se rectifique en el Registro Público de la Propiedad la escritura de la Reserva Indígena de Telire, conforme con lo establecido por los artículos 1° y 4° del presente Decreto, la escritura actual basada en el decreto No 6036-G, regirá como válida.
