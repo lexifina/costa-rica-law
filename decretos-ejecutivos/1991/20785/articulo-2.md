@@ -1,0 +1,4 @@
+Artículo 2-Agregase un artículo 19 al decreto ejecutivo N° 26 del 10 de noviembre de 1965, publicado en "La Gaceta" N° 26 del 16 del mismo-mes y año, el cual se leerá de la siguiente forma:
+"Artículo 19.-En lo que resultare compatible, al servicio internacional del transporte remunerado de personas, les serán aplicables las disposiciones, requisitos, formalidades, reglas y principios establecidos en la ley N° 3503 de 10 de mayo de 1965 y sus reformas, ley N° 6324 del 24 de mayo de 1979 y el decreto ejecutivo N° 17751MOPT, Reglamento Ejecutivo para el ejercicio de actuaciones y procedimientos de la Comisión Técnica de Transportes, así como las normas y principios del ordenamiento jurídico administrativo."
+Rige a partir de su publicación y deroga cualquier otra norma de igualo inferior rango en cuanto se le oponga.
+Dado en la Presidencia de la República.-San José, a los cuatro días del mes de octubre de mil novecientos noventa y uno.
