@@ -14,3 +14,4 @@ Crea Comisión Presidencial COPRE.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-09-21 | la propia norma |
+| 2 | 1998-05-08 | Decreto Ejecutivo 27084 (1998-05-08) |
