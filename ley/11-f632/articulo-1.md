@@ -1,0 +1,4 @@
+N§ 11
+EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
+DECRETA:
+La siguiente Ley de Informaciones Posesorias:
