@@ -1,0 +1,1 @@
+Articulo 6°—Los comisionistas, deberán cumplir con las instrucciones que les gire el Puesto de Bolsa, con estricto apego a las disposiciones del presente Reglamento y las disposiciones jurídicas vigentes.

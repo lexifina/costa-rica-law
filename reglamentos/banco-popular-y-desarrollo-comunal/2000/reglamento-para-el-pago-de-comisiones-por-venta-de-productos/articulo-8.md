@@ -1,0 +1,1 @@
+Articulo 8°—El Puesto de Bolsa se reserva el derecho de ejercer –en cualquier momento- controles, para asegurarse del cumplimiento efectivo de las instrucciones que hubiere girado a los comisionistas.

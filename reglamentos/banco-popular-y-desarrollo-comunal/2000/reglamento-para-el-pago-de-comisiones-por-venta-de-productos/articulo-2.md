@@ -1,0 +1,6 @@
+Artículo 2°—Para los electos del presente Reglamento, se entiende por:
+Puesto de bolsa: Puesto de Bolsa del Banco Popular y de Desarrollo Comunal, S, A, Entidad constituida al amparo de lo que dispone el articulo 55 de la Ley Reguladora del Mercado de Valores, S. A.
+Gerencia: El Gerente del Puesto de Bolsa, el Director Administrativo Financiero y/o el Director de Negocios.
+Reglamento: Reglamento para el Pago de Comisiones por Venta de Productos y/o Servicios del Puesto de Bolsa del Banco Popular y de Desarrollo Comunal. S. A,
+Comisionista: lodo agente de bolsa debidamente autorizado, o persona jurídica con personal acreditado para actuar como agente de bolsa que en nombre y por cuenta del Puesto de Bolsa, venda los productos y/o servicios que este ofrece, siempre y cuando dicho agente no labore o sea funcionario del Puesto de Bolsa del Banco Popular y de Desarrollo Comunal, S. A,, el Banco Popular y de Desarrollo Comunal, o cualquier sociedad donde el Banco sea socio, y haya aprobado la capacitación que de modo general la Gerencia del Puesto determine al efecto.
+Comisiones: Sumas que pagara el Puesto de Bolsa, a todos aquellos comisionistas que rendan los productos y/o servicios que ofrece el Puesto de Bolsa.
