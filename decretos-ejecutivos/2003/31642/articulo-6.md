@@ -1,0 +1,3 @@
+Artículo 6º—Modifíquese el artículo 88 del “Reglamento de Circulación por Carretera con base en el Peso y las Dimensiones de los vehículos de Carga”, contenido en el Decreto Ejecutivo Nº 31363-MOPT, para que se lea de la siguiente manera:
+“Artículo 88.—Suscripción de póliza adicional de los
+remolques y semirremolques. Como requisito previo para la obtención del respectivo permiso expedido por la oficina respectiva a que se refiere el presente Reglamento y que les habilite para la circulación por las vías públicas, una vez que les hayan asignado las respectivas placas de matrícula a los remolques y semirremolques, deberán suscribirse las correspondientes pólizas ante la entidad aseguradora, por las coberturas y montos que al efecto disponga esta última.”

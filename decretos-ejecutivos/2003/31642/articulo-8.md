@@ -1,0 +1,3 @@
+Artículo 8º—Adiciónese al Decreto Ejecutivo Nº 31363-MOPT, los transitorios VIII y IX que dirán, respectivamente:
+“Transitorio VIII.—El Ministerio de Obras Públicas y Transportes, por medio del Presupuesto Nacional, financiará el funcionamiento de la División de Circulación y Transporte de Carga.
+Transitorio IX.—En tanto el Ministerio de Obras Públicas y Transportes asigna el presupuesto para el funcionamiento de la División de Circulación y Transporte de Carga, las dependencias del Ministerio y órganos adscritos que tienen y financian actividades que ahora asume la mencionada División, seguirán financiando esas actividades con cargo a sus respectivas partidas presupuestarias.

@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el inciso a) del artículo 12 del “Reglamento de Circulación por Carretera con base en el Peso y las Dimensiones de los vehículos de Carga”, contenido en el Decreto Ejecutivo N° 31363-MOPT, para que en lo sucesivo se lea de la siguiente manera:
+“a) La distancia máxima permitida entre el centro del eje delantero y el centro del eje trasero o del primer eje trasero en el caso de un eje doble será de 6 metros.”
