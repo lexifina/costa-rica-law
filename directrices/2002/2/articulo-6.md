@@ -1,0 +1,1 @@
+Artículo 6º—Los jerarcas institucionales dictarán las orientaciones relacionadas con el PND a las respectivas unidades de planificación y presupuesto y nombrarán enlaces técnicos para atender las medidas de coordinación con MIDEPLAN. Estos nombramientos deberán comunicarse a MIDEPLAN antes del próximo 31 de mayo.

@@ -1,0 +1,1 @@
+Artículo 7º—Cada órgano, ente o empresa pública desagregará regionalmente, según las regiones oficiales de planificación, los programas, proyectos y actividades institucionales, con los respectivos componentes de participación de la sociedad civil.

@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Planificación Nacional y Política Económica (MIDEPLAN) es responsable de coordinar la participación de los diversos órganos y entes públicos y empresas del Estado en la elaboración del PND, el cual deberá estar concluido el próximo 30 de setiembre.
