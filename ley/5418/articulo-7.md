@@ -1,0 +1,1 @@
+Artículo 7º.- La Dirección General de Educación Física y Deportes, lo mismo que las demás asociaciones y federaciones, no reconocerán a ninguna asociación ni le atenderán gestiones, si no se encuentra inscrita en el Registro a que se refiere el artículo 1º de esta ley; la que esté en este caso, tampoco podrá participar en competencias o campeonatos oficiales.
