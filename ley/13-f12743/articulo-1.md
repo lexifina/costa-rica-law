@@ -1,0 +1,3 @@
+DECRETO XIII
+Convoca a las Asambleas Electorales, a fin de que procedan a elegir el Presidente de la República para el período que principia el 8 de mayo de 1866.
+EL SENADO Y CAMARA DE REPRESENTANTES de la República de Costa-Rica, reunidos en Congreso. - De conformidad con el artículo 103 de la Constitución. -DECRETAN-Artículo único. -Se convoca a las actuales Asambleas Electorales a fin de que, de acuerdo con la ley, procedan a elegir el Presidente de la República para el próximo período constitucional que principiará el 8 de mayo de 1866. —AL PODER EJECUTIVO. -Dado en el Salón de Sesiones. San José, Julio veintiséis de mil ochocientos sesenta y cinco. -Palacio Nacional. San José, Julio veintisiete de mil ochocientos sesenta y cinco. EJECUTESE.
