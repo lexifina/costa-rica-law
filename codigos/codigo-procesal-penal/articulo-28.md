@@ -1,0 +1,8 @@
+ARTICULO 28.- Revocatoria de la suspensión
+Si el imputado se aparta, considerablemente y en forma injustificada,
+de las condiciones impuestas o comete un nuevo delito, el tribunal dará
+audiencia por tres días al Ministerio Público y al imputado y resolverá,
+por auto fundado, acerca de la reanudación de la persecución penal. En el
+primer caso, en lugar de la revocatoria, el tribunal puede ampliar el
+plazo de prueba hasta por dos años más. Esta extensión del término puede
+imponerse solo por una vez.

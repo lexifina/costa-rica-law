@@ -1,0 +1,9 @@
+ARTICULO 339.- Diversidad cultural
+Cuando el juzgamiento del caso o la individualización de la pena
+requieran un tratamiento especial, por tratarse de hechos cometidos dentro
+de un grupo social con normas culturales particulares o cuando por la
+personalidad o vida del imputado sea necesario conocer con mayor detalle
+sus normas culturales de referencia, el tribunal podrá ordenar un peritaje
+especial, dividir el juicio en dos fases y, de ser necesario, trasladar la
+celebración de la audiencia a la comunidad en que ocurrió el hecho, para
+permitir una mejor defensa y facilitar la valoración de la prueba.

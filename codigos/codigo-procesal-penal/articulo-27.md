@@ -1,0 +1,9 @@
+ARTICULO 27.- Notificación y vigilancia de las condiciones de prueba
+El tribunal deberá explicarle personalmente al imputado las
+condiciones que deberá cumplir durante el período de prueba y las
+consecuencias de incumplirlas.
+Corresponderá a una oficina especializada, adscrita a la Dirección
+General de Adaptación Social, vigilar el cumplimiento de las reglas
+impuestas e informar, periódicamente, al tribunal, en los plazos que
+determine, sin perjuicio de que otras personas o entidades también le
+suministren informes.

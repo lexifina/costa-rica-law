@@ -1,0 +1,11 @@
+ARTICULO 331.- Participación de los medios de comunicación
+Para informar al público lo que suceda en la sala de debates, las
+empresas de radiodifusión, televisión o prensa podrán instalar en la sala
+de debates aparatos de grabación, fotografía, radiofonía, filmación u
+otros. El tribunal señalará, en cada caso, las condiciones en que se
+ejercerán esas facultades. Podrá, sin embargo, por resolución fundada,
+prohibir esa instalación cuando perjudique el desarrollo del debate o
+afecte alguno de los intereses señalados en el artículo anterior.
+Si el imputado, la víctima o alguna persona que deba rendir
+declaración solicitan expresamente que aquellas empresas no graben ni su
+voz ni su imagen, el tribunal hará respetar sus derechos.

@@ -1,0 +1,10 @@
+ARTICULO 165.- Citación
+Cuando, para algún acto procesal, sea necesaria la presencia de una
+persona, la autoridad que conoce del asunto deberá ordenar su citación,
+mediante carta certificada, telegrama con aviso de entrega, teléfono o
+cualquier medio de comunicación que garantice la autenticidad del mensaje.
+En tal caso, deberá hacerse saber el objeto de la citación y el
+procedimiento en que esta se dispuso; además, se deberá advertir que si la
+orden no se obedece, sin perjuicio de la responsabilidad penal
+correspondiente, la persona podrá ser conducida por la fuerza pública y
+pagar las costas que ocasione, salvo justa causa.

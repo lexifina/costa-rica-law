@@ -1,0 +1,12 @@
+ARTICULO 191.- Levantamiento e identificación de cadáveres
+En los casos de muerte violenta o cuando se sospeche que una persona
+falleció a consecuencia de un delito, el juez deberá practicar una
+inspección en el lugar de los hechos, disponer el levantamiento del
+cadáver y el peritaje correspondiente para establecer la causa y la manera
+de muerte.
+La identificación del cadáver se efectuará por cualquier medio
+técnico y, si no es posible, por medio de testigos. Si, por los medios
+indicados, no se obtiene la identificación y su estado lo permite, el
+cadáver se expondrá al público por un tiempo prudencial, en la morgue del
+Departamento de Medicina Legal, a fin de que quien posea datos que puedan
+contribuir al reconocimiento, se los comunique al juez.

@@ -1,0 +1,17 @@
+ARTICULO 174.- Queja por retardo de justicia
+Si los representantes del Ministerio Público o los jueces no cumplen
+con los plazos establecidos para realizar sus actuaciones y, en su caso,
+dictar resoluciones, el interesado podrá urgir pronto despacho ante el
+funcionario omiso y si no lo obtiene dentro del término de cinco días
+naturales, podrá interponer queja por retardo de justicia ante el Fiscal
+General, la Corte Suprema de Justicia o la Inspección Judicial, según
+corresponda.
+Cuando sea demorado o rechazado el diligenciamiento de una comisión
+dirigida a otro tribunal, a un representante del Ministerio Público o a
+una autoridad administrativa, el funcionario requirente podrá dirigirse al
+Presidente de la Corte Suprema de Justicia o al Fiscal General de la
+República, según corresponda, quienes, si procede, gestionarán u ordenarán
+la tramitación.
+Los funcionarios judiciales podrán ser sancionados disciplinariamente
+con suspensión o el despido, según la magnitud de la falta, cuando la
+justicia se haya retardado por causa atribuible a ellos.
