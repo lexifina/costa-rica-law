@@ -1,0 +1,1 @@
+Artículo 14.- Quienes medien con propósito de lucro en la obtención de órganos y materiales anatómicos para fines de trasplante o de investigación científica, serán juzgados como autores del delito de profanación de cadáveres, con la pena establecida para ese delito en el Código Penal.
