@@ -1,0 +1,2 @@
+Art. 3°-Todas las autoridades civiles y militares quedan encargadas de la ejecucion de este Decreto, -AL PODER EJECUTIVO, -Dado en el Palacio Nacional, en el Salon de Sesiones, á veinticuatro de enero de mil ochocientos setenta y ocho. –BRUNO CARRANZA, Presidente.-A. AGUILAR, Secretario accidental.
+Por tanto, ejecútese-Dado en el Palacio Nacional, San José, á veinticuatro de enero de mil ochocientos setenta y ocho. - T. GUARDIA, -El Secretario de Estado en el Despacho de Gobernación,-RAFAEL MACHADO.
