@@ -25,3 +25,4 @@ Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | 10 | 1997-09-17 | Reglamento 4924 (1997-09-17) |
 | 11 | 1997-10-24 | Reglamento 4931 (1997-10-24) |
 | 12 | 1997-11-26 | Reglamento 4935 (1997-11-26) |
+| 13 | 1997-12-17 | Reglamento 4938 (1997-12-17) |

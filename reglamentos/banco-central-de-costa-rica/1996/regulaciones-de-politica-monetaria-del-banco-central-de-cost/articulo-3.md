@@ -193,14 +193,24 @@ Las operaciones a que las que se refiere el numeral 5 anterior son las siguiente
 a) Las Comisiones de Confianza, los Fideicomisos y cualquier contrato de administración de cartera constituido por los intermediarios financieros, mediante los que se reciben recursos del público en forma habitual y abierta..
 b) Los fideicomisos y contratos de administración que emiten algún tipo de pasivo, mediante los cuales obtienen recursos del público, empleando como respaldo el patrimonio del fideicomiso (letras de cambio, hipotecas, prendas, cuentas por cobrar u otros).
 c) Los mecanismos de administración de carteras de títulos que mantienen los puestos de bolsa, tales como los denominados OPAB, CAV y OMF.D.
-6. Los recursos que una entidad financiera obtenga a partir de enero de 1998, por la venta de títulos emitidos por otra entidad financiera sujeta al control de la Superintendencia General de Entidades Financieras, estarán sujetos a un requerimiento de encaje del 15%. Las operaciones mencionadas se ajustarán al requerimiento de encaje a partir de enero de 1998.
-(Así adicionado el numeral 6 anterior en sesión N° 4935 del 26 de noviembre de 1997)
+6. (Derogado este numeral en sesión N° 4938 del 17 de diciembre de 1997)
 B.—Excepciones y deducciones
-1. Se exceptúan del requerimiento de encaje las operaciones originadas en:
-a) Empréstitos externos.
-b) Los depósitos y obligaciones financieras, en moneda nacional y extranjera, realizados por una entidad financiera sujeta a encaje en otra entidad también sujeta a este requerimiento.
-(Así reformado el inciso anterior en sesión N° 4935 del 26 de noviembre de 1997)
-2. En el caso de los fideicomisos, comisiones de confianza y los contratos de administración, para calcular el monto de operaciones sujetas al encaje, se deducirán de la totalidad de los recursos captados, los depósitos o inversiones que mantengan en otros instrumentos sujetos a requerimiento de encaje.
+1. Se exceptúan del requerimiento de encaje las operaciones originadas en empréstitos externos
+(Así reformado el numeral anterior en sesión N° 4938 del 17 de diciembre de 1997)
+2.- Las entidades sujetas al control de la Superintendencia General de Entidades Financieras podrán deducir de sus obligaciones sujetas a encaje los depósitos e inversiones que hagan en instrumentos financieros o bursátiles sujetos al requerimiento de encaje mínimo legal, en el tanto sean los propietarios de los contratos y los títulos y sean contabilizados en sus balances como parte de sus activos (no en cuentas de orden). Si los instrumentos son vendidos, en firme o a plazo, o traspasados a otra entidad, no se aplica dicha rebaja.
+La deducción se hará por el importe pagado excluyendo los intereses devengados acumulados por el título y no pagados por el emisor y las comisiones pagadas, esto último siempre y cuando esos intereses y comisiones estén incorporados en el precio pagado por el comprador.
+Un título en circulación solo podrá ser deducido cuando sea negociado en un mercado organizado y fiscalizado por algún ente del Banco Central de Costa Rica.
+La deducción a que se refiere este numeral la harán los intermediarios financieros sujetos a la fiscalización de la Superintendencia General de Entidades Financieras de la siguiente forma:
+a) Las inversiones y depósitos a plazo emitidos antes del 1° de enero de 1998 serán deducidos en la situación de encaje del intermediario financiero emisor de los mismos, en el tanto el propietario de esas inversiones y depósitos sea otro intermediario financiero sujeto a encaje. La rebaja se hará por el período en que éste lo mantenga.
+b) Las inversiones y depósitos a plazo emitidos después del 1° de enero de 1998, inclusive, serán deducidos en la situación de encaje- del intermediario financiero tenedor de los mismos durante el período de su tenencia.
+c) Para los depósitos en cuenta corriente y de exigibilidad inmediata aplicará la siguiente gradualidad:
+A partir de: | Porcentaje deducido por la entidad emisora de la obligación | Porcentaje deducido por la entidad inversora
+1 de enero, 1998 | 80% | 20%
+16 de enero, 1998 | 60% | 40%
+1 de febrero, 1998 | 40% | 60%
+16 de febrero, 1998 | 20% | 80%
+1 de marzo, 1998 | 0% | 100%
+(Así reformado el numeral anterior en sesión N° 4938 del 17 de diciembre de 1997)
 3. Se exceptúa del requerimiento de encaje las siguientes figuras:
 a) Los fideicomisos o contratos de administración que se constituyen exclusivamente y en forma limitada para administrar un patrimonio, cuyos Unes solo se consiguen después de transcurrido cierto tiempo, por lo que los recursos fideicometidos no se pueden transformar en efectivo hasta que dichas condiciones se cumplan.
 b) La captación de recursos para capital de trabajo o para el financiamiento de proyectos de inversión de carácter no financiero de las empresas emisoras o subsidiarias registradas ante la Comisión Nacional de Valores, según lo dispuesto en el Artículo 116 de la Ley Orgánica del Banco Central de Costa Rica.
