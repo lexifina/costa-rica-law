@@ -23,14 +23,12 @@ Esta área no será computable para el cálculo del área mínima del lote, ni p
 II.2.4. El tamaño, el frente y la forma de los lotes de cualquier fraccionamiento se ajustará a los requisitos de zonificación del área y en ausencia de éstos a lo establecido en III.3.
 En casos calificados, la Dirección de Urbanismo, tomando en consideración la situación socio-económica de la zona y de las personas favorecidas, podrá aplicar los mínimos establecidos en el Artículo V.5 para Vivienda Progresiva.
 II.3 Cesión de Áreas Públicas:
-Todo fraccionador de terrenos cederá gratuitamente para áreas verdes y equipamiento urbano un 10°/o (diez por ciento) del área sin restricciones *1, excepto cuando del fraccionamiento solo resulten parcelas con áreas no menores de 5 ha. y su uso, que conste en el plano, sea agropecuario.
-*1 Ver glosario de términos.
+Todo fraccionador de terrenos situados fuera del cuadrante de las ciudades o de zonas previamente urbanizadas, cederá gratuitamente para áreas verdes y equipamiento urbano un 10°/o (diez por ciento) del área, sin restricciones, excepto cuando el fraccionamiento sea agropecuario.
+(Así reformado el punto II.3 de este artículo por Resolución de la Sala Constitucional Nº 4205-96 del 20 de agosto de 1996.)
 II.3.1 La Municipalidad utilizará el área pública cedida según el orden de dotación indicado en el Artículo III.3.
 II.3.2 Servicios Particulares: Se aplicará lo indicado en el artículo III.3.6.3.2.
-Todas las áreas de uso público deberán ser traspasadas a favor del dominio municipal. No obstante, cuando éstas sean menores de 250 metros cuadrados, el fraccionador deberá cancelar a la Municipalidad, en dinero, el valor equivalente dentro del plazo que se le fije. En áreas mayores a los 250 metros cuadrados la cesión de áreas públicas se dará en el sitio, pudiendo sin embargo ser negociada a juicio de la Municipalidad, previa consulta con el INVU.
-Las sumas que perciba el municipio por el concepto antes indicado serán destinadas exclusivamente a la adquisición y mantenimiento de terrenos para uso público en sectores donde estos trabajos hagan falta.
-Las áreas para servicios particulares deberán dejarse en todos los fraccionamientos cuando resulten mayores de 100 metros cuadrados.
-(Así reformado parcialmente por acuerdo de Junta Directiva, en sesión de 17 de marzo de 1986)
+Todas las áreas de uso público deberán ser traspasadas a favor del dominio municipal. En áreas mayores a los 250 metros cuadrados la cesión de áreas públicas se dará en el sitio. Las áreas para servicios particulares deberán dejarse en todos los fraccionamientos cuando resulten mayores de 100 metros cuadrados.
+(Así reformado el punto II.3.2 de este artículo por Resolución de la Sala Constitucional Nº 4205-96 del 20 de agosto de 1996.)
 II.3.3 Cuando exista mapa oficial, la Municipalidad podrá negociar el pago en efectivo del área de parque y facilidades comunales de las urbanizaciones en las áreas determinadas por el Plan de manera que pagadas estas de inmediato, adquiera otras ubicadas en los sitios indicados en el mapa oficial. Estas áreas se denominarán reservas municipales a negociar. El área correspondiente o juegos infantiles deberá dejarse en el sitio necesariamente.
 En caso de que el propietario no desee negociar dichas áreas, estas de dejarán en el sitio indicándolas en el plano de la urbanización como área o reservas municipales susceptibles de cambio.
 (Así ampliado por acuerdo de Junta Directiva, en sesión N° 3912 de 17 de abril de 1989)

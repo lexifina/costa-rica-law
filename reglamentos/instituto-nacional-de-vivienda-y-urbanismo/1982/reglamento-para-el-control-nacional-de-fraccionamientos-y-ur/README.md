@@ -23,3 +23,4 @@ Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones.
 | 8 | 1988-02-17 | Reglamento 55 (1988-02-17) |
 | 9 | 1989-04-17 | Reglamento 3912 (1989-04-17) |
 | 10 | 1989-06-19 | Reglamento 3928 (1989-06-19) |
+| 11 | 1996-08-20 | SINALEVI (sin norma nombrada) |
