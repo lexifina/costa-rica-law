@@ -1,0 +1,1 @@
+Artículo 2°─ Para hacer efectiva la presente exoneración, los mencionados productores deben solicitar a la Administración Tributaria las autorizaciones correspondientes que les permitan adquirir dichas telas sin el pago del impuesto.
