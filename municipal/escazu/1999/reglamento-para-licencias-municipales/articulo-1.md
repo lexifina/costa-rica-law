@@ -1,7 +1,8 @@
 REGLAMENTOS
 MUNICIPALIDADES
 MUNICIPALIDAD DE ESCAZU
-El Concejo Municipal de Escazú, mediante acuerdo de la Sesión Ordinaria Nº 68, celebrada el día 15 de junio de mil novecientos noventa y nueve; aprobó el siguiente Proyecto de Reglamento:
+El Concejo Municipal de Escazú mediante acuerdo de la sesión ordinaria número 68 celebrada el 15 de junio de 1999, aprobó el siguiente Reglamento para Licencias Municipales de la Municipalidad de Escazú:
+(Así reformado en sesión No. 12 de 10 de marzo de 2004).
 REGLAMENTO PARA LICENCIAS MUNICIPALES DE LA MUNICIPALIDAD DE ESCAZU
 La Municipalidad del Cantón de Escazú, de conformidad con lo que establecen los artículos 169 y 170 de la Constitución Política, 4 inciso a), 13 inciso d), 79 y concordantes del Código Municipal, Ley Nº 7794 del treinta de abril de mil novecientos noventa y ocho, procede a emitir el Reglamento para Licencias Municipales de la Municipalidad de Escazú.
 Resultando:
