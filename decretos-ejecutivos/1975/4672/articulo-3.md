@@ -1,0 +1,1 @@
+Artículo 3°— La Dirección General de Desarrollo Social y Asignaciones Familiares, coordinará su acción, en lo que corresponda, con la Oficina de Planificación Nacional, con la Caja Costarricense de Seguro Social, con el Instituto de Fomento y Asesoría Municipal y con las otras Instituciones que tengan a su cargo la ejecución de los citados programas.

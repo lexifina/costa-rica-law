@@ -1,0 +1,1 @@
+Articulo 2°-La Dirección General de Desarrollo Social y Asignaciones Familiares tendrá a su cargo las funciones relativas a la asignación de los cursos, al estudio, aprobación y supervisión de los programas y al control de la aplicación de los fondos.
