@@ -1,0 +1,2 @@
+Artículo 44.—El abogado debe ajustar la estimación y cobro de sus honorarios a las disposiciones legales vigentes y a las normas de este Código. Constituye falta a la moral profesional percibir honorarios inferiores a los fijados, salvo en caso, de autorización legal.
+El abogado debe convenir con el cliente la suma a cobrar por concepto de honorarios y la forma de pago, antes de aceptar su asunto, sin perjuicio de situaciones excepcionales que aumenten o disminuyan el cálculo inicial.

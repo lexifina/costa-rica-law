@@ -1,0 +1,1 @@
+Artículo 9°—El abogado debe actualizar y profundizar sus conocimientos jurídicos constantemente. Antes de aceptar un asunto, debe analizarlo cuidadosamente, y rechazar aquel que requiera una preparación especial que no posea.

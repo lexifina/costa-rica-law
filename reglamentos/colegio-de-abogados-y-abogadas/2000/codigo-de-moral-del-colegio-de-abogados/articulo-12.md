@@ -1,0 +1,1 @@
+Articulo 12.—Es derecho y deber del abogado combatir por todos los medios lícitos la conducta censurable de los jueces y colegas y denunciar las a las autoridades competentes. Ante estas acciones, debe evitar las actitudes pasivas que podrían hacerle sospechoso de complicidad, así como, abstenerse de toda vejación y actuación escandalosa.

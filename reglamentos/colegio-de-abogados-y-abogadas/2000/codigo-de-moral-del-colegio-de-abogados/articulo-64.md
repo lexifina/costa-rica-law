@@ -1,0 +1,1 @@
+Artículo 64.—Antes de la renuncia expresa de un abogado a la atención de un asunto, el profesional no debe sustituirlo, salvo ante la imposibilidad de su localización. Tampoco debe sustituirlo si previamente no se le han satisfecho al colega los honorarios pendientes, o se ha pedido la liquidación de los mismos, garantizando su pago.

@@ -1,0 +1,1 @@
+Artículo 52.—El abogado debe contribuir a la celeridad de los procesos en que intervenga. Debe abstenerse de utilizar recursos o medios que, aunque leales, constituyan un perjuicio al normal desarrollo del proceso, así como gestiones puramente dilatorias.

@@ -1,0 +1,1 @@
+Artículo 34.—El abogado es libre de aceptar o rechazar asuntos en que se solicite su intervención, sin necesidad de expresar los motivos de su determinación, salvo en caso de nombramiento de oficio, en que debe justificar su decisión. No debe aceptar asuntos en que haya de sostener tesis contrarias a sus convicciones.

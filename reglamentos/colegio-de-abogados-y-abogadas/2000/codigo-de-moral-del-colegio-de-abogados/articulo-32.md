@@ -1,0 +1,1 @@
+Artículo 32.—Una vez aceptado el caso, el abogado informará al cliente siempre que sea necesario el estado de la causa. No podrá transigir, desistir o confesar sin la conformidad del cliente, aunque tenga las facultades legales para ello.

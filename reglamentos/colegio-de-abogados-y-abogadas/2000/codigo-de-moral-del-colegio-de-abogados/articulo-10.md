@@ -1,0 +1,1 @@
+Artículo 10.—Es deber del abogado dedicarse con diligencia a los asuntos de su cliente y poner en su defensa todos sus esfuerzos y conocimientos, con estricto apego a las normas jurídicas y morales. El abogado debe ser puntual con los tribunales, funcionarios, colegas, clientes y demás interesados.

@@ -1,0 +1,1 @@
+Artículo 40.—Es contrario a la moral profesional representar intereses contrapuestos en la misma o en ulteriores instancias. Esto se aplica también a todos los miembros de una firma o asociación o bufetes de abogados, y rige aunque no se haya iniciado el juicio, sino desde que se acepta un asunto.

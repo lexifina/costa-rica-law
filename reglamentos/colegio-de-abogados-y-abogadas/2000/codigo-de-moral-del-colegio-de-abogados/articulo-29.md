@@ -1,0 +1,1 @@
+Artículo 29.—El abogado debe limitar su publicidad y papelería a indicar su nombre, dirección, títulos académicos, número de teléfono y horario de atención al público. Dicha publicidad debe ser moderada y serial, evitando el autoelogio y todo medio llamativo.

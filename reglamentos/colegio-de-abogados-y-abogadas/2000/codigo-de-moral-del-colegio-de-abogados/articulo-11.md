@@ -1,0 +1,1 @@
+Artículo 11.—El abogado debe actuar con corrección en el ejercicio profesional y en su vida privada. Su conducta se ajustará a las normas morales que rigen a la sociedad costarricense, debiendo abstenerse de toda actuación impropia que pueda desacreditar la profesión. Su comportamiento debe ser siempre probo y leal, veraz y de buena fe.

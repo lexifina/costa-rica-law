@@ -1,0 +1,1 @@
+Artículo 72.– Los recursos provenientes de las cargas que impone la ley a los ciudadanos sólo podrán ser utilizadas por el Colegio en actividades académicas y en las que expresamente señalen las leyes y reglamentos. Los ingresos que provengan de las cuotas que paguen los abogados serán distribuidos libremente, según lo disponga la Asamblea del Colegio.

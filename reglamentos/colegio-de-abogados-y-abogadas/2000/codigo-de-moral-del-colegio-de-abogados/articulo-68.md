@@ -1,0 +1,1 @@
+Artículo 68.—El abogado no debe tener trato directo con la contraparte. Sólo mediante la intervención de su abogado procurara concertar acuerdos o transacciones con ésta. Si la contraparte careciera de asistencia profesional, el abogado se lo advertirá para que procure obtenerla.

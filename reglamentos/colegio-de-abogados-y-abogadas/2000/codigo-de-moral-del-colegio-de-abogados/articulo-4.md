@@ -1,0 +1,1 @@
+Artículo 4°—Ningún abogado podrá celebrar convenios que pretendan enervar los alcances de este Código ni excusarlo de sus obligaciones y responsabilidades profesionales. La renuncia de los clientes o perjudicados al derecho de exigir el cumplimiento de estas normas no producirá ningún efecto.

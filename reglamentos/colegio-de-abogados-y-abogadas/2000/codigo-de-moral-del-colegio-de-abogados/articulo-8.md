@@ -1,0 +1,1 @@
+Artículo 8°—El abogado, en el cumplimiento de su misión, actuará con toda libertad e independencia, sin otras limitaciones que las impuestas por el ordenamiento jurídico, especialmente las contenidas en este Código.

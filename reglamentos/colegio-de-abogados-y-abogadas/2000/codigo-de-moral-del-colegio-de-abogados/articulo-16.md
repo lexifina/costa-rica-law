@@ -1,0 +1,1 @@
+Artículo 16.—En sus actuaciones ante los Tribunales y autoridades, el abogado debe proceder con respeto y decencia, absteniéndose de expresiones violentas o agraviantes. La severidad y energía que se pueda requerir no autoriza vejaciones ni violencias.

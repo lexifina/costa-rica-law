@@ -1,0 +1,1 @@
+Artículo 14.—El abogado debe actuar con libertad de criterio en su vida profesional y rechazar todo asunto, negocio u ocupación que afecte su independencia. Debe evitar acumular cargas o tareas que le consuman demasiado tiempo y esfuerzo y le afecten negativamente su actuación profesional.

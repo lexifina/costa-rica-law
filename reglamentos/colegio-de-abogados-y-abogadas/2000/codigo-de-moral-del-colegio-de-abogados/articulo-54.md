@@ -1,0 +1,1 @@
+Artículo 54.—El abogado no debe ejercer influencia de ninguna clase sobre Jueces o autoridades, ni utilizar vinculaciones políticas, de amistad o de otra índole, en su beneficio, en el de su cliente o en el de terceros. En la defensa de los asuntos que se le encomienden no debe recurrir a otros medios que los establecidos en las normas procesales pertinentes.

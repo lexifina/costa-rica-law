@@ -1,0 +1,1 @@
+Artículo 36.—El abogado empleará al servicio del cliente todo su saber, celo y dedicación personal. Podrá ser asistido por personas de su confianza y consular con otros profesionales, en este caso previa anuencia del cliente, pero la responsabilidad en la dirección del proceso es suya.

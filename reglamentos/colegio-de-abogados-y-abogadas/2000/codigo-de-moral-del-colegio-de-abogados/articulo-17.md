@@ -1,0 +1,1 @@
+Artículo 17.—En su vida profesional el abogado debe actuar responsablemente. No puede excusarse de los errores que cometa, pretendiendo descargarlos en otros, ni de actos ilícitos atribuyéndolos a instrucciones de sus clientes. Debe adelantarse a reconocer su responsabilidad en caso de dolo o culpa, allanándose a indemnizar los daños y perjuicios causados al cliente.

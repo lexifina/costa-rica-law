@@ -1,0 +1,1 @@
+Artículo 71.—El abogado debe cumplir puntual y espontáneamente con el pago de las cuotas y cargas que establezca el Colegio, asistir y votar en las asambleas. Además, debe brindar a los órganos del Colegio un informe oportuno sobre su persona o actividad profesional cuando se le solicite.

@@ -1,0 +1,1 @@
+Artículo 5°—La interpretación con carácter vinculante de estas normas será de competencia de la Junta Directiva del Colegio de Abogados. Los abogados que, previa consulta, ajusten sus acciones a los dictámenes en la materia, estarán exentos de cualquier responsabilidad disciplinaria.

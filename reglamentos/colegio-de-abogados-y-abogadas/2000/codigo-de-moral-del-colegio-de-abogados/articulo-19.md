@@ -1,0 +1,1 @@
+Artículo 19.—El abogado, en mayor medida que el resto de los habitantes, está obligado a respetar y hacer respetar la Constitución, las leyes y las autoridades legítimas. Ello no obsta, sin embargo, a que promueva las modificaciones que le dicte su conciencia mediante los procedimientos constitucionalmente establecidos.

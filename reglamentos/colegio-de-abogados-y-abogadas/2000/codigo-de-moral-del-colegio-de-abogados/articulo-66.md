@@ -1,0 +1,2 @@
+Artículo 66.—El abogado que acepta colegas o estudiantes de derecho en su oficina en calidad de colaboradores, debe proveerles de un ámbito de trabajo adecuado y decoroso para su preparación profesional.
+Debe retribuir su colaboración, de conformidad con las disposiciones legales vigentes.

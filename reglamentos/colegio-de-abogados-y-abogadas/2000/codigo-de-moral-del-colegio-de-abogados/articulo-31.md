@@ -1,0 +1,1 @@
+Artículo 31.—La relación entre el abogado y el cliente se debe fundar en una recíproca confianza. Aquel debe obtener pleno conocimiento de la causa de su cliente antes de aceptarla y emitir opinión sobre ella. No debe asegurarle nunca el éxito ni magnificar sus dificultades, sino exclusivamente exponerle el amparo legal de la causa y sus probabilidades razonables.

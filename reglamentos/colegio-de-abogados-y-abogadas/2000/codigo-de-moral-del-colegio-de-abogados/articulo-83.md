@@ -1,0 +1,1 @@
+Artículo 83.—Si los hechos denunciados constituyen un delito, según la calificación del Colegio, la acción disciplinaria prescribe en los plazos respectivos señalados en el Código Penal. La prescripción se interrumpe con la presentación de la queja ante el Colegio.

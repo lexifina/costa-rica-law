@@ -1,0 +1,1 @@
+Artículo 69.—El abogado puede entrevistar a las partes y testigos del asunto en que intervenga, pero no debe inducirlos a apartarse de la verdad. No debe delegar en empleados o terceros el trato con ellos, que debe ser realizado en forma personal.

@@ -1,0 +1,1 @@
+Artículo 53.—El abogado debe hacer uso moderado de las acusaciones contra jueces y autoridades públicas, y no debe aceptar una causa con la intención de provocar la separación del Juez o funcionario competente.
