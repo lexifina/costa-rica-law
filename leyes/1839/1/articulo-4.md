@@ -1,0 +1,1 @@
+Art. 4. Es libre en el Estado de Costa Riea el tránsito, dépósito y trasbordo de los efectos extranjeros; debiendo únicamente pagar los de transito y depósito un real de bodegaje por bulto al tiempo de su embarque.
