@@ -1,0 +1,1 @@
+Art. 2°-En las actuaciones de segunda y tercera instancia, en negocios civiles, se usará del papel de la 6a clase á que se refiere la ley de 27 de mayo de 1871, cuando el litigio de que se trate exceda del valor de doscientos cincuenta pesos.
