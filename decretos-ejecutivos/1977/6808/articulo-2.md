@@ -1,0 +1,1 @@
+Artículo 2°.- La estimación del lote de terreno es de ¢ 210.830.90 (doscientos diez mil ochocientos treinta colones, noventa céntimos), que corresponde al total de la suma a pagar de conformidad con el Avalúo N° 13.904 de la Sección de Avalúos Especiales de la Tributación Directa.
