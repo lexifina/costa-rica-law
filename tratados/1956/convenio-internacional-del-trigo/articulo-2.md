@@ -1,0 +1,24 @@
+ARTÍCULO II
+Definiciones
+1- Para los fines del presente Convenio:
+"Comité Asesor sobre Equivalencias de Precio" significa el Comité creado en virtud del Artículo XV.
+"Bushel' significa 60 libras avoirdupois o 27,2155... Kilogramos.
+"Gastos de detención" significa los gastos ocasionados por almacenaje, interés y seguro del trigo en espera de despacho.
+"C. y f.", significa costo y flete.
+"Consejo" significa el Consejo Internacional del Trigo creado por el Artículo XIII.
+"Año agrícola" significa el periodo de tiempo comprendido entre el 19 de agosto y el 31 de julio, salvo que a los efectos del Artículo VII significa, respecto de la Argentina y Australia, el periodo de tiempo comprendido entre el 19 de diciembre y el 30 de noviembre y, respecto de los Estados Unidos de América, el periodo comprendido entre el 19 de julio y. el 30 de junio.
+"Comité Ejecutivo" significa el Comité creado en virtud del Artículo XIV.
+"País exportador" significa, según el contexto: 1) el Gobierno do un país que figure en el Anexo B al Artículo III que haya aceptado el presente Convenio o se haya adherido a el, siempre que no se haya retirado del mismo, o bien 2) el país mismo y aquellos territorios en que sean aplicables los derechos y las obligaciones de su Gobierno en virtud del presente Convenio.
+-"F.a.q." significa calidad media comercial.
+"F.o.b." significa libre a bordo de barco marítimo y, cuando se trate de:
+[imagen] Trigo de Francia entregado en un puerto del Rhin, libre a bordo de embarcación fluvial.
+ii) Trigo de Suecia, libre a bordo de barco marítimo.
+"Cantidad garantizada" significa, cuando se refiere a un país importador, sus compras garantizadas para un año agrícola, y cuando se refiere a un país exportador, sus ventas garantizadas para un año agrícola.
+"País importador" significa, según el contexto: i) el Gobierno de un país que figure en el Anexo A al Artículo III que haya aceptado el presente Convenio o se haya adherido a el, y que no se haya retirado del mismo, o Bien ii) el mismo país y aquellos territorios en que sean aplicables los derechos y las obligaciones de su Gobierno en virtud del presente Convenio.
+"Gastos de mercado" significa todos los gastos usuales de comercialización, fletamento y despacho.
+"Tonelada métrica", o sea, 1.000 kilogramos, significa 3614371 "bushels". "Trigo de cosecha anterior" significa trigo del país exportador de que se trate, cosechado más de dos meses antes del comienzo del año agrícola en curso.
+"Territorio", tanto si se refiere a un país exportador como a un país importador, significa todo territorio al cual, de conformidad con lo dispuesto en el Artículo XXIII, sean aplicables los derechos y las obligaciones del Gobierno de dicho país, en virtud del presente Convenio.
+"Transacción" significa, según el contexto, toda venta de trigo exportado desde un país exportador, o que haya de serlo, para ser importado en un país importador o la cantidad de ese trigo así vendida. Cuando en el presente Convenio se haga referencia a una transacción entre un país exportador y un país importador se entenderá que la referencia comprende no solo las transacciones entre el Gobierno de un país exportador y el Gobierno de un país importador, sino también las realizadas entre comerciantes o entre un comerciante y el Gobierno de un país exportador o de un país importador. En esta definición se entenderá que "Gobierno" significa el Gobierno de todo territorio al cual, de conformidad con lo dispuesto en el Artículo XXIII, sean aplicables los derechos y las obligaciones de cualquier Gobierno que acepte el presente Convenio o se adhiera a el.
+"Cantidad garantizada no cubierta" significa, cuando se trata de un país exportador, la diferencia entre las cantidades anotadas en los registros del Consejo, en cumplimiento de lo dispuesto en el Artículo IV, con cargo a ese país durante un año agrícola y sus ventas garantizadas para dicho año agrícola, y cuando se trata de un país importador, la diferencia entre las cantidades anotadas en los registros del Consejo, en cumplimiento de lo dispuesto en el Artículo IV, con cargo a dicho país, durante un año agrícola y aquellas partes de sus compras garantizadas para dicho año agrícola que, según la fecha, tenga derecho a comprar, conforme a lo dispuesto en el párrafo 9 del Artículo
+"Trigo" significa trigo en grano y, excepto en el Artículo VI, harina de trigo.
+2. a) Todos los cálculos sobre el equivalente en trigo de las compras garantizadas o de las ventas garantizadas de harina de trigo, se basarán en el porcentaje extracción especificado en el contrato entre el comprador y el vendedor. b) Si no se especifica dicho porcentaje, se considerara que, para los efectos dichos cálculos y a menos que el Consejo decida otra cosa, .72 unidades de peso de harina de trigo equivalen a 100 unidades de peso de trigo en grano.

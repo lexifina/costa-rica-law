@@ -1,0 +1,4 @@
+ARTÍCULO XVIII
+Cooperación con otras organizaciones intergubernamentales
+1. El Consejo podrá, tomar las disposiciones necesarias para celebrar consultas y conseguir la cooperación de los Órganos competentes de las Naciones Unidas y de sus organismos especializados, así como de otras organizaciones intergubernamentales.
+2. Si el Consejo estima que alguna disposición del presente Convenio es materialmente incompatible con los requisitos que las Naciones Unidas, sus Órganos competentes y los organismos especializados pudieran establecer en materia de acuerdos intergubernamentales sobre productos básicos, esa incompatibilidad será, considerada como una circunstancia que entorpece el funcionamiento del presente Convenio, y en ese caso se aplicará el procedimiento que se establece en los párrafos 3, 4 y 5 del Artículo XXII.
