@@ -4,3 +4,4 @@ Esta unidad sustituye la anterior División Administrativa, conservando los sigu
 - Abastecimiento
 - Ejecución presupuestaria y financiero contable.
 El proceso de Recursos Humanos absorberá las funciones relativas a la capacitación del Ministerio.
+(Así Derogado por el Artículo nº 16 del Decreto Ejecutivo 29673 de 9 de julio del dos mil uno)
