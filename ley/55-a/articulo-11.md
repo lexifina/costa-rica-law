@@ -1,0 +1,6 @@
+ARTICULO XI. RELACION CON PAISES NO ASOCIADOS
+1. Obligaciones respecto a las relaciones con países no asociados.-Cada asociado se compromete:
+I) a no efectuar, ni permitir que sus agencias fiscales a las que se refiere el artículo V, párrafo 1, efectúen operaciones con países no asociados o con personas situadas en territorio de países no asociados, que sean contrarias a lo dispuesto en este Convenio o a los fines del Fondo;
+II) a no participar con países no asociados o con personas situadas en el territorio de países no asociados, en prácticas que sean contrarias a lo dispuesto en este Convenio o a los fines del Fondo;
+III) a cooperar con el Fondo a fin de dar efecto en su territorio a medidas adecuadas para impedir las operaciones con países no asociados o con personas situadas en el territorio de los mismos que sean contrarias a lo dispuesto en este Convenio o a los fines del Fondo.
+2. Limitación de operaciones con países no asociados.- Ninguna disposición de este Convenio afectará el derecho de los asociados a imponer restricciones a las operaciones cambiarias con los países no asociados o con personas situadas en territorio de los mismos, a menos que el Fondo juzgue que dichas restricciones perjudican los intereses de los asociados y son contrarias a los fines del Fondo.
