@@ -1,0 +1,1 @@
+5.—Insumos para el proceso presupuestario. A Mideplan le corresponde elaborar y suministrar oportunamente aquellos insumos, que define el marco jurídico vigente, para el proceso presupuestario, especialmente en lo que se refiere a la formulación presupuestaria.

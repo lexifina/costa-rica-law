@@ -1,0 +1,1 @@
+7.—Consolidación del Sistema Nacional de Planificación. Mideplan debe determinar las acciones necesarias para la elaboración, al menos, de planes de mediano y corto plazo, para la consolidación del funcionamiento del Sistema Nacional de Planificación.

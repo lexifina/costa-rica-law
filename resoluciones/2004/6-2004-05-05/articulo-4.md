@@ -1,0 +1,1 @@
+4.—Cuestionamiento periódico de las premisas básicas que orientan la planificación nacional. Mideplan debe analizar y cuestionar periódicamente las premisas básicas que orientan la planificación nacional a fin de determinar su validez ante los cambios ambientales internos y externos, teniendo presente la satisfacción de necesidades de la sociedad.

@@ -1,0 +1,1 @@
+2.—Ámbito de aplicación. Los presentes Lineamientos serán aplicables al Ministerio de Planificación Nacional y Política Económica (Mideplan) como principal actor del Sistema Nacional de Planificación, en lo que corresponde al ámbito del Sector Público, excepto: las universidades, instituciones del sector municipal, la Caja Costarricense de Seguro Social.
