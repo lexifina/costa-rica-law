@@ -12,3 +12,4 @@ Restablece Unidad de Auditoría Interna Original en Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-01-16 | la propia norma |
+| 2 | 1996-01-16 | SINALEVI (sin norma nombrada) |
