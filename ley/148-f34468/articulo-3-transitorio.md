@@ -1,0 +1,1 @@
+Artículo 3°.- Los actuales miembros de la Directiva de la Junta Nacional de la Habitación, los representantes de las Cooperativas ante la expresada Junta, y quienes integran sus personales técnicos y administrativos, tendrán preferencia, en igualdad de condiciones, para desempeñar cargos en el Departamento de la Habitación de la Caja Costarricense de Seguro Social.

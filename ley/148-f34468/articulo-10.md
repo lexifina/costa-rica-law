@@ -1,0 +1,1 @@
+Artículo 10º.- Las casas que construya y adjudique la Caja Costarricense de Seguro Social son inembargables, salvo que el adquirente estuviere en mora, en cuyo caso podrán ser embargadas por dicha entidad.

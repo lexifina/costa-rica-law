@@ -1,0 +1,2 @@
+Transitorios
+Artículo 1°.- Los actuales adjudicatarios de la Junta Nacional de la Habitación y de las "Cooperativas Casas Baratas, La Familia", quedan sujetos a los términos de los contratos suscritos al amparo de las leyes anteriores, y continuarán depositando sus amortizaciones en los lugares donde la Caja de Seguro Social les indique, y quedan obligados a respetar las disposiciones que la Caja emita en salvaguarda de sus intereses y que no afecten sus derechos adquiridos.

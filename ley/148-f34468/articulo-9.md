@@ -1,0 +1,1 @@
+Artículo 9º.- Los tipos de construcción de casas, su edificación, reparación o venta, así como las condiciones, prohibiciones, cláusulas restrictivas, cuotas de interés y de amortización, plazos y demás detalles sobre financiación, edificación, mejoramiento, adjudicación, traspaso definitivo, serán fijadas en el Reglamento que al efecto se dicte.

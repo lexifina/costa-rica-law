@@ -1,0 +1,1 @@
+Artículo 15º.- Sólo podrán acogerse a los beneficios de esta ley los costarricenses naturales, jefes de familia, que carezcan de recursos para construir. El Reglamento fijará las demás condiciones que tienen que reunir los adquirentes.

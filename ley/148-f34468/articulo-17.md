@@ -1,0 +1,1 @@
+Artículo 17º.- Esta ley será reglamentada por el Poder Ejecutivo; empezará a regir treinta días después de su promulgación y deroga las leyes N° 37 de 23 de diciembre de 1940 y N° 190 de 14 de agosto de 1942 y sus reformas.
