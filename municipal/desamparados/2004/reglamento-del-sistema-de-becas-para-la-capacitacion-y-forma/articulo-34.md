@@ -1,0 +1,1 @@
+Artículo 34.—El incumplimiento por el trabajador de alguna de las disposiciones contenidas en este reglamento dará por rescindidas los derechos y beneficios que otorga el respectivo contrato que sustente el beneficio concedido por la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 14.—Se entiende por beneficiario de una beca, subsidio o licencia todo trabajador municipal que demuestra interés por capacitarse en cualquiera de las áreas académicas, tecnológicas o de formación profesional, que sean de conveniencia para la Municipalidad.
