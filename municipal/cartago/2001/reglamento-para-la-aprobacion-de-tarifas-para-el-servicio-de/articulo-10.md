@@ -1,0 +1,1 @@
+Artículo 10.—En dicha aprobación por parle del Concejo Municipal se ordenara otorgar un plazo de 30 días naturales contados a partir de la publicación. citando a una audiencia pública indicando lugar y hora de inicio.

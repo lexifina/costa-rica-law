@@ -1,0 +1,1 @@
+Artículo 3°— Los costos totales incurridos para la prestación del servicio, según los formularios y la documentación existente, serán distribuidos de acuerdo a las diferentes categorías de usuarios y bloques de consumo, según las técnicas utilizadas a la fecha de realización de los estudios.

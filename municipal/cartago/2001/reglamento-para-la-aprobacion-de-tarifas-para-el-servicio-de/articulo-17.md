@@ -1,0 +1,1 @@
+Artículo 17.— El Secretario de la Audiencia Pública , levantara un acta. con lodos los pormenores e incidencias que ocurran en la Audiencia Pública. Dicha acta será firmada por el presidente y secretario de la audiencia pública.

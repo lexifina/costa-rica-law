@@ -1,0 +1,1 @@
+Artículo 12. —Toda oposición al proyecto tarifario deberá ser presentada en forma escrita ante la Secretaría del Concejo Municipal, quien las trasladara a la Comisión Técnica y ésta a su vez a la Comisión de Hacienda y Presupuesto, para el respectivo dictamen y posterior conocimiento del Concejo Municipal.

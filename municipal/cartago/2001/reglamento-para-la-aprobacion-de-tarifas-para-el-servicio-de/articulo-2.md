@@ -1,0 +1,1 @@
+Artículo 2°— El estudio a que se refiere el articulo anterior deberá contener además los costos racionales necesarios para la prestación del servicio, recuperación de inversiones (obras), cargas financieras (créditos), así como el 10% de utilidad para ser invertido en el mismo servicio.
