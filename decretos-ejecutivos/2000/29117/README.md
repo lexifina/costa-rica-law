@@ -14,3 +14,4 @@ Reglamento a la Ley Orgánica del Ministerio de Economía Industria y Comercio.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-12-06 | la propia norma |
+| 2 | 2002-08-12 | Decreto Ejecutivo 30637 (2002-08-12) |
