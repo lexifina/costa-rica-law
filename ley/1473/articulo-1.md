@@ -1,0 +1,5 @@
+N°1473
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+Decreta:
+Artículo 1°.- Refórmase el artículo 1° de la ley N° 1429 de 13 de marzo de 1952, el cual se leerá así:
+“Artículo 1°- Autorízase a la Municipalidad del cantón central de Alajuela para donar a la Junta Administrativa del Instituto de Alajuela, las fincas inscritas en el Registro de la Propiedad, partido de esa provincia, número 27912, 15729 y 36874, de tomos 584, 730 y 779, folios 168, 410 y 513, asientos 8, 9 y 2, respectivamente, el terreno que falta a la reunión de las fincas citadas para completar una manzana de superficie, que está sin inscribir, y una manzana de terreno también sin inscribir, situados todos los inmuebles indicados en el distrito y cantón primero de la Provincia de Alajuela, con el objeto de construir en dichos inmuebles el edificio del Instituto de esa provincia. La correspondiente escritura será título suficiente para que el Registro Público proceda a hacer la inscripción de esas fincas a nombre de la Junta donataria.”
