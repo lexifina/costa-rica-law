@@ -1,0 +1,1 @@
+Art 2° Habrá en el Cantón del Puriscal, un Jefe Político cuyo nombramiento y calidades serán conforme a la ley, y mientras haya inopia de personas aptas, no se formará el cabildo cantonal que previenen las Ordenanzas Municipales del Poder Ejecutivo mandarlo organizar cuando lo crea conveniente.
