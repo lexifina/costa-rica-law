@@ -1,0 +1,5 @@
+Artículo 2º—Los jerarcas de cada uno de los órganos y empresas deberán:
+a) Emitir los lineamientos respectivos que aseguren el buen funcionamiento del Programa para el Establecimiento de una Ventanilla Única para la Formalización de Empresas.
+b) Capacitar y actualizar a los funcionarios designados por el jerarca para brindar los servicios que implica poner en ejecución el citado Programa, a efecto que se consolide íntegramente en un macroproceso los trámites y requisitos del proceso de formalización de empresas en el país, de manera que puedan proveer al administrado la información confiable, oportuna y veraz sobre el mismo.
+c) Suscribir un Convenio Marco de Cooperación Interinstitucional en el que se establezcan las obligaciones técnicas y legales que respaldan la participación de las instituciones dentro de la operación del Programa para el Establecimiento de una Ventanilla Única para la Formalización de Empresas.
+d) Cumplir íntegramente con lo dispuesto con las obligaciones técnicas y legales dispuestas en el Convenio Marco de Cooperación Interinstitucional.
