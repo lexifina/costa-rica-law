@@ -1,0 +1,1 @@
+Artículo 3º—Deróguense los Decretos Ejecutivos N° 28907-MEIC del 28 de agosto del 2000, publicado en el Alcance N° 59 a La Gaceta N° 173 del 8 de setiembre del 2000 y el N° 29113-MEIC del 22 de noviembre del 2000, publicado en La Gaceta N° 228 del 28 de noviembre del 2000, así como todas las respectivas reformas a estos precios.
