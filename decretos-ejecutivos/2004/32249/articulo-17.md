@@ -1,0 +1,9 @@
+Artículo 17.—Destitución de los miembros del Tribunal. El Poder Ejecutivo destituirá a los miembros del Tribunal, previa comprobación de uno o más de las siguientes causales de remoción:
+a) Desempeño ineficiente de sus funciones.
+b) Mala conducta en el desempeño de sus cargos, entendida como la inobservancia de los deberes y obligaciones o la violación de las prohibiciones establecidas en el Reglamento Autónomo de Servicios del Ministerio de Hacienda, por parte de los funcionarios del Tribunal Fiscal Administrativo.
+c) Negligencia reiterada que dilate la sustanciación de los procesos.
+d) Comisión de delitos, incluso en estado de tentativa y frustración, cuyas penas afectan su buen nombre y honorabilidad.
+e) Falta de excusa o inhibición en los casos previstos en el artículo 164 del Código de Normas y Procedimientos Tributarios, o la violación de las prohibiciones establecidas en ese mismo artículo.
+f) Cualquier otra falta grave en el desempeño de sus cargos a que se refiere el Estatuto de Servicio Civil, su Reglamento, el Reglamento Autónomo de Servicios del Ministerio de Hacienda y el artículo 81 siguientes y concordantes del Código de Trabajo.
+El Poder Ejecutivo, una vez finalizado el período de nombramiento, procederá a reelegir a los miembros en funciones, salvo que declare a alguno no elegible en virtud de que haya incurrido en alguna causa que amerite su remoción, lo anterior de acuerdo con el artículo 162 del Código de Normas y Procedimientos Tributarios y 9 de este reglamento.
+La comprobación de las causales mencionadas en este artículo se realizará mediante un procedimiento administrativo ordinario establecido por la Ley General de la Administración Pública, ordenado al efecto por el Poder Ejecutivo, en el cual se respetará la garantía fundamental del debido proceso y todos sus principios integrantes, en especial el derecho de defensa.

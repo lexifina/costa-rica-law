@@ -1,0 +1,1 @@
+Artículo 28.—Voto conforme de toda conformidad. Para que haya resolución, es necesario el voto conforme de toda conformidad de la totalidad de los miembros integrantes de cada Sala, en caso de que ello no se produjere, el Presidente del Tribunal ordenará la constitución de la Sala con otro u otros miembros de las otras Salas, para lograr la mayoría requerida por la ley.

@@ -1,0 +1,1 @@
+Artículo 24.—Reconocimiento in situ. El Tribunal Fiscal Administrativo podrá de oficio o a petición de parte, practicar el reconocimiento in situ en los lugares y bienes que así lo justifiquen. De dicha actuación se levantara igualmente un acta de la diligencia practicada.

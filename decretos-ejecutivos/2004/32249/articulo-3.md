@@ -1,0 +1,1 @@
+Artículo 3º—Creación de nuevas Salas. El Presidente del citado Tribunal, tomando en cuenta, el desarrollo económico, las necesidades reales del país, el volumen y complejidad de los asuntos sometidos a su consideración, podrá solicitar en forma razonada al Poder Ejecutivo, cuando así lo considere oportuno, conveniente y necesario, la creación de otras Salas.

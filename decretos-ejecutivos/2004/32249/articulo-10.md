@@ -1,0 +1,2 @@
+Artículo 10.—Actuación del Tribunal Fiscal Administrativo. El Tribunal Fiscal Administrativo seguirá funcionando con su actual conformación, a la entrada en vigencia de la Ley N° 8343, sea, un Presidente y dos Salas.
+Al producirse una vacante de uno de los miembros del citado Tribunal, deberá de inmediato procederse con los trámites para el respectivo nombramiento por parte del Poder Ejecutivo con la necesaria intervención de la Dirección General de Servicio Civil, de conformidad con lo estipulado en el artículo 9 de este Reglamento.
