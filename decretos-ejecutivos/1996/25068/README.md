@@ -17,3 +17,4 @@ Reglamento Servicio Social Obligatorio Profesionales Ciencias Salud
 | 2 | 1996-10-28 | Decreto Ejecutivo 25610 (1996-10-28) |
 | 3 | 1997-02-05 | Decreto Ejecutivo 25841 (1997-02-05) |
 | 4 | 1998-11-19 | Decreto Ejecutivo 27467 (1998-11-19) |
+| 5 | 2001-11-09 | SINALEVI (sin norma nombrada) |
