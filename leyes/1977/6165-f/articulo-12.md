@@ -1,4 +1,2 @@
-ARTÖCULO 12
-El Estado requerido podr rehusar el cumplimiento de un poder
-cuando
-‚ste sea manifiestamente contrario a su orden p£blico.
+ARTICULO 12
+El Estado requerido podrá rehusar el cumplimiento de un poder cuando éste sea manifiestamente contrario a su orden público.
