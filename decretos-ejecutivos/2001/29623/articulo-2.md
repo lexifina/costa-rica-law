@@ -1,0 +1,1 @@
+Artículo 2º—Competencia. A los efectos del presente Reglamento, corresponderá a las Direcciones de Edificaciones y de Relaciones Comunales del Ministerio de Obras Públicas y Transportes, encargarse de la distribución de los materiales de construcción que, al amparo de la normativa jurídica vigente, hubieren solicitado las comunidades organizadas e instituciones gubernamentales.
