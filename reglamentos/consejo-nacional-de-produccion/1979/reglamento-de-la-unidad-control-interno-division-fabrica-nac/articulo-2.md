@@ -1,0 +1,1 @@
+Artículo 2º-La Unidad de Control Interno de la Fábrica, funcionará bajo la Dirección del Auditor Regional, quien tendrá bajo su responsabilidad directa la dirección del personal asignada, debiendo a su vez señalar a cada uno de ellos los deberes y obligaciones propias de cada cargo y que más convengan a los intereses de la Fábrica y al Consejo Nacional de Producción.
