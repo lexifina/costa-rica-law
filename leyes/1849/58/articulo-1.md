@@ -1,0 +1,7 @@
+DECRETO LVIII.
+Manda reconocer y habilitar en la casa de moneda, la de La de real y de a medio con el tipo de arbol y volcanes (1).
+(1) Véanse sobre esta materia las leyes numeros 19 y 3 de 11 de diciembre de 1863,
+Y 7 de setiembre de 1861. Véase tambien el acuerdo n° 5 de 13 de enero de 1861.
+"Miguel Mora Representante encargado del Supremo Poder Ejecutivo de la República.
+Teniendo en consideracion: que en medio de la escasez de numerario que se experimenta en la actualidad, la malicia ha podido contrahacer la moneda decplata de a real y de á medio acuñada en el pais: que sinó se dictan medidas perentorias que impidan la falsificacion de esta clase de moneda seria protejer el crimen y se perjudicarian no solo los intereses nacionales sino los del comercio y los de la econamia doméstica; y que para evitar tan grave mal, mientras que la República puede acuñar de nuevo toda clase de moneda en los troqueles que se han mandado abrir últimamente, es indispensable se reconozca y habilite la circulante de aquella clase, decreto.
+Art. 1° La moneda de a real y de á medio acuñada en la República, con los emblemas de árbol y volcanes, será presentada entre el termino de dos meses la casa de amonedacion para que allí seà reconacida, habilitandose la legitima e inutilizandose la falúa que será devuelta al interesado a no ser que esté quiera voluntariamente se le rescate por la ley qué contenga.
