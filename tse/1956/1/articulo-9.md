@@ -1,0 +1,4 @@
+Artículo 9°—Los hijos de extranjeros nacidos en Costa Rica, que solicitaren naturalización, además de prometer que residirán en la República de modo recular, deben probar:
+a) Que han nacido y estado domiciliados en Costa Rica con arreglo a los plazos predeterminados a cada grupo de nacionalidades, en el artículo 14 de la Constitución Política ; y
+b) Que son de buena conducta y tienen oficio o medios de vivir.
+El nacimiento habrá de probarse con certificación del Registro Ciivil. La conducta con certificaciones del Registro Judicial de Delincuentes, de los Archivos Nacionales y del Gabinete de Identificación del Ministerio de Seguridad Pública. Las demás circunstancias se probarán con documentos, o con las declaraciones de cuatro testigos de honorabilidad reconocida, costarricenses, con cédula de identidad y vecinos del lugar de donde lo es el solicitante.

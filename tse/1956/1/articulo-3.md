@@ -1,0 +1,2 @@
+Artículo 3°— La Oficina Principal contará con un Jefe, quien será el de la Sección de Opciones y Naturalizaciones, y los auxiliares necesarios. El personal de las oficinas regionales estará integrado por un Jefe y dos auxiliares, debiendo ser fotógrafo uno de ellos.
+El Tribunal Supremo de Elecciones hará el nombramiento del personal indicado, aplicando las disposiciones legales y reglamentarias que rigen para los empleados del Registro Civil.

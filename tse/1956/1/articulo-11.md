@@ -1,0 +1,2 @@
+Articulo 11.—Las circunstancias indicadas en los incisos 1), 2). 3), 4), y párrafo 1° del 5), del artículo 11 de la Ley de Extranjería y Naturalización habrán de comprobarse en información ad perpetuam ante el Juez Civil del domicilio del solicitante, información a 3a que habrá de aportarse la cédula de residencia, cuando la haya, y las certificaciones y demás documentos que correspondan.
+No rige esta disposición reglamentaria respecto de los casos de tramitación especial a que se refiere la parte final del artículo 11 de la Ley de Extranjería y Naturalización.

@@ -1,0 +1,1 @@
+Artículo 8°—Pueden obtener la nacionalidad costarricense por naturalización quienes se hallaren en el caso del inciso 3) del articulo 13 de la Constitución y no hubieren optado dentro del plazo allí dispuesto. Además, podrán naturalizarse los extranjeros con más de veinte años de residencia ininterrumpida en Costa Rica.

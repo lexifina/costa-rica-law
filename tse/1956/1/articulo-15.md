@@ -1,0 +1,1 @@
+Artículo 15.—Las oficinas regionales contarán con equipo de fotografía para retratar a los solicitantes. Deberán rendir mensualmente al Registro informe detallado de sus labores y de sus gastos, aportando los comprobantes del caso.

@@ -1,0 +1,1 @@
+Artículo 4°—Las oficinas regionales estarán en comunicación directa con la Oficina Principal , la cual resolverá y encauzará adecuadamente la tramitación de las solicitudes, determinará la jurisdicción de cada oficina regional y su plan de trabajo.
