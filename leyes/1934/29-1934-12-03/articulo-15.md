@@ -1,0 +1,8 @@
+Artículo 15-No son adjudicables las tierras baldías nacionales que en seguida se enumeran
+1-Las que el Poder Ejecutivo declare inadjudicables por motivos de interés nacional. De los decretos que el Poder Ejecutivo dicte declarando terrenos inadjudicables, dará cuenta al congreso en sus sesiones, inmediatas ordinarias o extraordinarias, con copias de la descripción de dichos terrenos y con una exposición de motivos.
+2-Las costas marítimas que el Poder Ejecutivo declare que puedan ser utilizadas para darle protección y facilidades a la construcción de ciudades y puertos.
+3-Las riberas de los ríos navegables por embarcaciones mayores hasta una línea trazada a diez metros de la línea de las aguas y paralela á esta, sin perjuicio de que el Poder Ejecutivo pueda declarar denunciables otras porciones mayores para dedicarlas a usos públicos.
+4-Las riberas de los ríos navegables por embarcaciones menores en todo el espacio en todo el espacio necesario para esa navegación y en todo cuando fuere indispensable para el uso de las poblaciones cercanas.
+5-Las albinas, ósea los esteros bajos donde se producen la sal marina.
+6-Los terrenos cultivados por terceros. Para que esa posesión sea válida es indispensable que el terreno haya sido desmontado y cultivado, sin interrupción, por un año, por la misma persona, con cultivos estables y formales.
+Los terrenos de bosques en donde pastan en comunidad, o de donde se extraen leñas o maderas, no pueden conceptuarse como objeto de posesión para los objetos de esta ley, y los que hubieren hecho uso de tales derechos en los terrenos fiscales, salvo el uso por arrendamiento otorgado en forma legal, no podrán alegar perjuicios ni formular oposiciones.

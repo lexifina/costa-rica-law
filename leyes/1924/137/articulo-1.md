@@ -1,4 +1,6 @@
+(Derogado)
 N° 137
+(Esta norma fue derogada por el artículo 21 de la Ley N° 29 del 3 de diciembre de 1934, "Normas sobre adjudicación de lotes en baldíos nacionales")
 (Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente)
 EL CONGRESO CONSTITUCIONAL DE LA
 REPUBLICA DE COSTA RICA

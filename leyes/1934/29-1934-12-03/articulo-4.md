@@ -1,0 +1,2 @@
+Artículo 4-El Juzgado Primero de lo Contencioso Administrativo, si no tiene objeción que hacer a la solicitud, mandará publicar un Edicto en la Gaceta, por tres veces consecutivas, libre de todo gasto.
+Dicho edicto indicará nombre y apellidos del denunciante, su calidad y vecindario, así como la extensión, situación, naturaleza y linderos del lote. Copia de este edicto fijará por cartel en las Gobernaciones y Jefaturas políticas respectivas.
