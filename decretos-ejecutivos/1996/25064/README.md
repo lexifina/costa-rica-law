@@ -13,3 +13,4 @@ Reforma Reglamento de Becas-Taller del Ministerio de Cultura MCJD
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-23 | la propia norma |
+| 2 | 1996-04-23 | SINALEVI (sin norma nombrada) |
