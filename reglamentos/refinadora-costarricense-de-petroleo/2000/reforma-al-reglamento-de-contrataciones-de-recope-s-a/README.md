@@ -14,3 +14,4 @@ Reforma al Reglamento de Contrataciones de RECOPE S.A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-14 | la propia norma |
+| 2 | 2000-06-14 | Ley 8 |
