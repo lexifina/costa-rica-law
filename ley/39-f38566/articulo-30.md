@@ -1,0 +1,2 @@
+Art 30°Todas las funciones del Médico del pueblo, específicamente en este título, son obligatorias sin otra remuneración que, de su sueldo, excepto el caso figurado en el artículo 25.
+Sin embargo, si el Gobernador exigiese al médico del pueblo, para los fines de la policía médica un viaje más largo que de una legua legal, que se le debe abonar de los fondos municipales. Dado en el Palacio Nacional. San José, diciembre dieciocho de mil ochocientos sesenta y cinco.

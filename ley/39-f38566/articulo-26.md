@@ -1,0 +1,2 @@
+Art 26° Sin perjuicio de las revisiones que el artículo 27 del Decreto número 5 de 3 de agosto de 1859 encarga al Protomedicato, el Médico del pueblo está autorizado para practicar las que crea oportunas y por lo menos de tres en tres meses, dando cuenta con el resultado al Gobernador de la Provincia.
+Igualmente le corresponde la inspección superior sobre los Hospitales y Lazaretos de su Provincia.

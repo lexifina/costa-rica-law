@@ -1,0 +1,1 @@
+Art 2°. – Si en la Provincia de San José, el Médico del pueblo no pudiese por sí solo llenar las exigencias de la población, será de cargo de la Municipalidad el proporcionarle un asistente para la curación de los enfermos pobres y este obrará bajo la dirección y responsabilidad de aquel.

@@ -1,0 +1,1 @@
+Art 10° No pudiendo trasladarse el enfermo para su examen a la casa de Médico del pueblo, este le visitará cuantas veces lo estime oportuno atendiendo a la gravedad del caso; pero de ninguna manera el enfermo puede exigir más de dos visitas al día.
