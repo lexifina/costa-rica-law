@@ -1,0 +1,3 @@
+Artículo 4º.-Modifícase el artículo 9º de la Ley Nº 7375 de
+17-12-93, Relación de Puestos de Sueldos para Cargos Fijos, para el
+Ejercicio Económico de 1994 en la forma que se indica a continuación: ...
