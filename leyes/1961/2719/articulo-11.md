@@ -1,1 +1,1 @@
-Artículo 11.- (Derogado por el artículo 140 de la Ley de Tránsito, N° 5322 del 27 de agosto de 1973)
+Artículo 11.- (Derogado por el artículo 140 de la Ley de Transito, N° 5322 del 27 de agosto de 1973. Posteriormente vuelta a derogar por el artículo 146 de la Ley de Transito, N° 5930 del 13 de setiembre de 1976)
