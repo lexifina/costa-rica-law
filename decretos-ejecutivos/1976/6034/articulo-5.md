@@ -1,0 +1,1 @@
+Artículo 5°- El timbre a que se refiere el artículo 2° será de un color celeste y usará como logotipo la silueta de un avión. La leyenda ''Salida Aérea-Persona'' deberá colocarse en un lugar visible, así como el valor en números del timbre.

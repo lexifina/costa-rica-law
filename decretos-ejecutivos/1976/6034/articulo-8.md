@@ -1,0 +1,2 @@
+De la Vigencia de los Timbres y su Cobro
+Artículo 8°-El plazo de validez de los timbres que se establecen por el presente decreto es común a todos ellos y expira al término de la vigencia de la visa. Después de transcurrido ese tiempo deben pagarse nuevamente los timbres al obtener otro permiso de salida. El timbre ''Salida Aérea-Boleto" conservará su vigencia hasta el momento en que se haga uso del tiquete.

@@ -1,0 +1,1 @@
+Artículo 6°-El timbre creado en el artículo 3° será de un color azul y usará como logotipo la silueta de una terminal aérea. La leyenda "Salida Aérea-Boleto" deberá colocarse en un lugar visible, así como el valor en números del timbre.

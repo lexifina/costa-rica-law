@@ -1,0 +1,2 @@
+De la Emisión y Administración de los Timbres
+Artículo 13.-La emisión y administración de los timbres establecidos por este decreto estarán a cargo del Banco Central de Costa Rica, conforme la ley de creación ele cada uno ele los timbres reunificados y de común acuerdo con las instituciones beneficiadas. Para ello el Banco determinará el porcentaje por colón de cada timbre vendido que corresponde a cada institución según las respectivas leyes que originaron los timbres.

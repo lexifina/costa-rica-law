@@ -1,0 +1,1 @@
+Artículo 11.-Todo pasaporte costarricense. tendrá una duración de diez años contados a partir de la fecha de emisión del mismo. Pasada esa fecha deberá solicitarse uno nuevo para lo cual será requisito indispensable la presentación del anterior a la Oficina de Migración la que lo anulará mediante sello de "anulado''.

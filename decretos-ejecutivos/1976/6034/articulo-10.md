@@ -1,0 +1,3 @@
+Artículo 10.-Se reforman los artículos 12 y 23 del Reglamento de Migración N° 4 de 26 de abril de 1942, para que en lo sucesivo se lean de la siguiente forma:
+"Artículo 12.-Los menores de cinco años cuando viajen con sus padres, tutores o encargados no necesitan más que inscribir su nombre y edades en el pasaporte ele la persona que los acompañe y agregar al mismo la correspondiente fotografía, sellada y rubricada como queda dicho."
+Artículo 23.-En un · solo pasaporte pueden comprenderse el titular y hasta dos de sus hijos o pupilos menores de cinco años; debiendo constar en el mismo los respectivos nombres, edades y sus fotografías selladas."

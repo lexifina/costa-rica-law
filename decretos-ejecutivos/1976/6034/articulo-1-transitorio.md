@@ -1,0 +1,2 @@
+Transitorio.-Con el fin de poner en práctica lo más pronto posible las anteriores disposiciones, el Banco Central pondrá en circulación timbres fiscales resellados en el valor correspondiente en cantidad suficiente hasta tanto no se realice la emisión de las nuevas especies. Asimismo retirará de circulación y destruirá los remanentes ele los timbres que por este Reglamento se unifican.
+Dado en la Casa Presidencial.-San José, a los diez días del mes de mayo de mil novecientos setenta y seis.
