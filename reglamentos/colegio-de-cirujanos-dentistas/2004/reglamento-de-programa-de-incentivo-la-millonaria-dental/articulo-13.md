@@ -1,0 +1,1 @@
+Artículo 13.—Prórroga de la campaña. El Colegio de Cirujanos Dentistas de Costa Rica por medio de su Junta Directiva, en virtud del eventual éxito que podría tener esta campaña, se reserva el derecho de prorrogar por el tiempo que estime conveniente La Millonaria Dental, sea que no es obligación el efectuarla constantemente.

@@ -1,0 +1,1 @@
+Artículo 2º—De los posibles participantes. Podrán participar en este programa todos los odontólogos incorporados al Colegio de Cirujanos Dentistas de Costa Rica que se encuentren al día en sus cuotas de colegiatura, los estudiantes en las diferentes facultades de odontología establecidas en el país y los técnicos dentales.

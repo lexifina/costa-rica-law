@@ -1,0 +1,1 @@
+Artículo 14.—Del fin anticipado de la campaña. Si por cualquier razón o motivo el Timbre Odontológico fuera suspendido o eliminado, durante el plazo de la campaña, el programa y su sorteo quedarán automáticamente terminados sin responsabilidad para el Colegio de Cirujanos Dentistas de Costa Rica, y el sorteo no se celebrará.

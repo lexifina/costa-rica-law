@@ -1,0 +1,1 @@
+Artículo 11.—Períodos de la campaña. La Junta Directiva del Colegio de Cirujanos Dentistas de Costa Rica, señalará los períodos en que efectuará la campaña, no pudiendo ser menor de cinco meses, en los cuales estará abriendo las ventanillas para recepción de facturas.

@@ -1,0 +1,1 @@
+Artículo 16.—Participación de las facturas. En este programa de incentivo La Millonaria Dental, solamente se podrá participar con facturas originales emitidas a partir de la vigencia del presente Reglamento.

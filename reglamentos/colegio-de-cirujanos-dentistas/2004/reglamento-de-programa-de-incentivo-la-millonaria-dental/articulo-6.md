@@ -1,0 +1,1 @@
+Artículo 6º—Del Período de participación y fecha del sorteo. El Colegio de Cirujanos Dentistas de Costa Rica, a través de la Junta Directiva, establecerá un período de tiempo fijo para recibir las facturas y establecerá una fecha para realizar el sorteo ante la presencia de un notario público.

@@ -1,0 +1,1 @@
+Artículo 8º—Del plazo para reclamar el premio. Una vez efectuado el sorteo, el favorecido dispondrá de un mes calendario a partir de la fecha en que se publique el nombre del favorecido. Si en ese período no es retirado, el premio quedará en poder del Colegio de Cirujanos Dentistas de Costa Rica.

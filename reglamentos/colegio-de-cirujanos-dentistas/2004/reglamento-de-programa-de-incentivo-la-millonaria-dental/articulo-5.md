@@ -1,0 +1,1 @@
+Artículo 5º—Del recibo original de la factura y su control. En cada original de factura, el Colegio de Cirujanos Dentistas de Costa Rica, pondrá una razón que diga: “por esta factura se ha entregado el comprobante N° ___ y no podrá volver a ser presentada para participar en ningún sorteo”, así mismo se dejará una fotocopia de dicha factura.

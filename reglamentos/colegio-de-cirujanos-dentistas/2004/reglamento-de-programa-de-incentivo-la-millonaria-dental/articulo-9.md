@@ -1,0 +1,1 @@
+Artículo 9º—De la comunicación del resultado del sorteo. El resultado del sorteo se publicará en un diario de importante circulación nacional, siendo esta la única comunicación a la que estará obligado el Colegio de Cirujanos Dentistas de Costa Rica, debiendo ser hecha dicha publicación a la semana posterior a la fecha en que se efectuó el sorteo.

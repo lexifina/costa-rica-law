@@ -1,0 +1,1 @@
+Artículo 15.—Del conocimiento del presente Reglamento. Nadie podrá alegar desconocimiento del presente Reglamento, y el hecho de presentar las facturas o participar en el programa implica conocimiento de este Reglamento por parte del participante.
