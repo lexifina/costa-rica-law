@@ -1,0 +1,1 @@
+Artículo 10.—Cuando se ti -ate de compra directa o bienes financiables; los centros de información especializados realizarán los trámites previos a la misma y remitirán tres cotizaciones a nombre de CONICIT, quien analizará y determinará su aprobación. Si esta corresponde, el pago se hará en forma directa al proveedor.

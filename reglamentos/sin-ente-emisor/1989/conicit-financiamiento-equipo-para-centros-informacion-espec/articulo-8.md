@@ -1,0 +1,1 @@
+Artículo 8°—La notificación de la resolución sobre la solicitud, será por medio de un oficio firmado por el Secretario Ejecutivo del CONICIT, a la máxima autoridad de la institución a que pertenece el centro o la unidad de información especializada

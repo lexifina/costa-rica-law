@@ -1,0 +1,1 @@
+Artículo 7°—Cuando lo estime conveniente el CONICIT consultará con especialistas sobre la conveniencia de la adquisición del equipo, mobiliario y material bibliográfico, así como para obtener una opinión razonada sobre los méritos de la solicitud.

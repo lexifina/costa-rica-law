@@ -1,0 +1,1 @@
+Artículo 3° Compete a la Secretaría Ejecutiva o al Consejo Director del CONICIT, con base en las observaciones de la Comisión de Licitaciones o el criterio técnico de la Dirección de Información aprobar o desaprobar una solicitud de ayuda financiera La Secretaría Ejecutiva podrá aprobar financiamiento de hasta dos mil dólares o su equivalente en colones al tipo de cambio oficial.

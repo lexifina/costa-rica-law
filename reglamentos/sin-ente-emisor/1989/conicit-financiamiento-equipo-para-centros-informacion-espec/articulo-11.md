@@ -1,0 +1,1 @@
+Artículo 11.—Los centros o unidades de información especializadas suministrarán a la Dirección de Información todas las características técnicas y económicas del equipo, mobiliario y material bibliográfico para el análisis y trámite respectivo.

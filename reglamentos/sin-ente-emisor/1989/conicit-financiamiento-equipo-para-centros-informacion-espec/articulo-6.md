@@ -1,0 +1,1 @@
+Artículo 6°—El CONICIT recibirá las solicitudes durante todo el año. Las solicitudes deberán venir acompañadas de un oficio de respaldo firmado por la máxima autoridad de la Institución , a la cual pertenece el centro o la unidad de información especializada.
