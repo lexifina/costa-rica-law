@@ -13,10 +13,10 @@ de la Junta Directiva;
 f) Nombrar Comisiones que contribuyan a ejecutar las diversas tareas;
 g) Autorizar todos los gastos que no pasen de cien colones, dando cuenta
 en la siguiente sesión de la Junta;
-h) Firmar conjuntamente con el Secretario, las actas de las sesiones;
-con el Tesorero, los cheques que cubran las erogaciones; y con el Fiscal,
-los cortes de caja trimestrales, dejando constancia de ellos en los libros
-del Tesorero;
+h) Firmar conjuntamente con el Secretario, las actas de las sesiones; con
+el Tesorero, los cheques que cubran las erogaciones; y con el Fiscal, los
+cortes de caja trimestrales, dejando constancia de ellos en los libros del
+Tesorero;
 i) Convocar a sesiones extraordinarias a la Junta Directiva y presidir
 todos los Actos de la Corporación. Las ausencias del Presidente, serán
 suplidas por el Vicepresidente y en ausencia de éste, por los Vocales, en
