@@ -13,7 +13,8 @@ h) Abstenerse de acaparar, especular, condicionar la venta y discriminar el cons
 i) Resolver el contrato bajo su responsabilidad, cuando tenga la obligación de reparar el bien y no la satisfaga en un tiempo razonable.
 j) Fijar plazos prudenciales para formular reclamos.
 k) Establecer, en las ventas a plazos, garantías de pago proporcionales a las condiciones de la transacción.
-l) Cumplir con lo dispuesto en los artículos 35, 36, 37, 38, 39, 40 y 41 de esta Ley.
+l) Cumplir con los artículos 35, 36, 37, 38, 39, 40, 41 y 41 bis de esta ley.
+(Así reformado el inciso anterior por el artículo 1° aparte a) de la ley N° 7854 del 14 de diciembre de 1998)
 m) Cumplir con lo dispuesto en las normas de calidad y las reglamentaciones técnicas de acatamiento obligatorio.
 n) Mantener en buenas condiciones de funcionamiento y debidamente calibradas las pesas, las medidas, las registradoras, las básculas y los demás instrumentos de medición, que utilicen en sus negocios.
 ñ) Extender la factura o el comprobante de compra, donde conste, en forma clara, la identificación de los bienes o servicios, así como el precio efectivamente cobrado. En los casos de ventas masivas, se faculta al Ministerio de Economía, Industria y Comercio para autorizar el establecimiento de otros sistemas mediante los cuales se compruebe la compra.
