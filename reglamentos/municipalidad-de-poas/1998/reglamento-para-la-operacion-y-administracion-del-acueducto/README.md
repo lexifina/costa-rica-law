@@ -14,3 +14,4 @@ Reglamento para la operación y administración del acueducto de la municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-11-10 | la propia norma |
+| 2 | 2005-03-01 | Reglamento municipal 146 (2005-03-01) |
