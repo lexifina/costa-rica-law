@@ -1,0 +1,1 @@
+Artículo 8°- Los servidores sujetos al régimen de disponibilidad no podrán desempeñar otras labores fuera de la institución en que labora, cuando estas puedan entrar en contradicción con las responsabilidades, requerimientos y conveniencias de la Administración.

@@ -1,0 +1,1 @@
+Artículo 6°—El servidor sujeto a este régimen de disponibilidad, deberá indicar el número telefónico y lugar de localización durante su disponibilidad. La Administración procurará brindar las facilidades requeridas de transporte y otras necesarias para la prestación del servicio.

@@ -1,0 +1,3 @@
+Artículo 11.—En lo que resta del presente año, las instituciones públicas podrán utilizar los sobrantes presupuestarios de la Partida de Servicio Personales, para cubrir el pago derivado de este régimen de disponibilidad. A partir del año 1998, estos recursos deberán identificarse en la Relación de Puestos conforme corresponda.
+Transitorio.—Para los funcionarios de la Comisión Nacional de Emergencias se mantienen vigentes los porcentajes de retribución por disponibilidad que se han venido reconociendo al momento de publicación de este decreto.
+Este transitorio rige para las personas que han devengado esta compensación económica y mientras la Administración considere que se mantienen las condiciones que justifiquen su reconocimiento.

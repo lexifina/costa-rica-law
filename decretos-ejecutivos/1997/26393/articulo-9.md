@@ -1,0 +1,1 @@
+Artículo 9°—La Dirección General de Servicio Civil procederá a emitir la reglamentación y normativa que considere necesarias, a fin de aplicar y regular el régimen de disponibilidad que se crea mediante el presente Decreto, en cuanto a su aplicación para las instituciones cubiertas por el Régimen de Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 4"—Para tener derecho a esta compensación económica, el servidor deberá suscribir un contrato con la Administración, en donde se especifique: el tipo de disponibilidad a que queda obligado, el beneficio económico que recibirá, las condiciones en que prestará el servicio y demás detalles que sean necesarios.

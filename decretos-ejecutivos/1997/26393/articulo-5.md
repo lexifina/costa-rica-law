@@ -1,0 +1,1 @@
+Artículo 5°—En ningún caso esta compensación podrá considerarse como un derecho adquirido ni permanente, de forma que la Administración podrá rescindir el contrato en cualquier momento, sin responsabilidad para ésta, para lo cual deberá justificar adecuadamente su decisión y comunicarla al funcionario con 30 días naturales de antelación.

@@ -1,0 +1,1 @@
+Articulo 10.—La Autoridad Presupuestaria determinará la posible aplicación en el Sector Descentralizado, así como las condiciones especiales que se requieran y compatibilidad con otros componentes de salario que ahí existan.

@@ -1,0 +1,1 @@
+Artículo 2°—Para dichos efectos, se crea una Compensación Salarial que definirá el Órgano Técnico competente. Esta tiene como propósito retribuir económicamente a servidores que por necesidad institucional, deben permanecer disponibles y prestar sus servicios en horas y días inhábiles

@@ -1,0 +1,1 @@
+Artículo 7°—El servidor sujeto a disponibilidad, está obligado a prestar los servicios que le soliciten de acuerdo con sus funciones, so pena de ser sancionado disciplinariamente o con suspensión temporal o total del contrato, según sea el caso, excepto si puede justificar adecuadamente su ausencia.
