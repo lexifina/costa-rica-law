@@ -1,1 +1,0 @@
-Artículo 10.—El Director General rendirá informe en el mes de marzo al Ministro de Gobernación de las labores realizadas en el año inmediato anterior. Asimismo recomendará aquellas medidas de orden técnico y administrativo necesarias para mejorar la conservación del fondo documental y el buen servicio al público. Será también el Director de la Revista del Archivo Nacional.

@@ -1,1 +1,0 @@
-Artículo 11.—El Subdirector colaborará con el Director General en sus funciones; y en sus ausencias temporales tendrá las mismas atribuciones que éste. Será además Jefe de la Sección Administrativa-Legislativa.

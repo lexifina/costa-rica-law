@@ -1,1 +1,0 @@
-Artículo 42.—En toda solicitud de certificación de sentencias penales necesariamente deberán mencionarse las calidades conocidas del presunto reo. Tratándose de otra clase de certificaciones, lo mismo de testimonios, el interesado señalará las piezas de que se trate.

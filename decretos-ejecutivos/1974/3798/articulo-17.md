@@ -1,2 +1,0 @@
-Artículo 17.—La colocación de los documentos y legajos en los anaqueles, se efectuará por orden numérico sucesivo colocando los documentos con el mismo número de referencia y fecha. Esta disposición no rige para la Sección Jurídica cuyos documentos están ordenados por remesas y dentro de éstas por orden numérico sucesivo.
-* Las Dependencias que aparezcan con este asterisco indica que no hay documentos sobre ellas en este Archivo Nacional.

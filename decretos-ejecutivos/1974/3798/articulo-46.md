@@ -1,1 +1,0 @@
-Artículo 46.—Para efectos de la aplicación de los artículos 43, 44 y 45 que anteceden, se entenderá por Archivos Particulares aquellos que guarden documentos conforme a lo dispuesto en el articulo 10 de la ley que se reglamenta.

@@ -1,1 +1,0 @@
-Artículo 35.—Toda persona responsable podrá consultar y hacer copias de los documentos en custodia, previa presentación de la documentación personal; Cédula de Identidad, Carnet de Estudiante, Pasaporte, etc.

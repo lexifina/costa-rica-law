@@ -1,1 +1,0 @@
-Artículo 12.—Los Jefes de Sección, además de sus tareas específicas, serán los colaboradores inmediatos del Director General en aquellas labores que tienden a mejorar el funcionamiento del Archivo Nacional y a superar la formación técnica de sus subalternos. Semanalmente informarán al Director General de las labores realizadas en su Sección.

@@ -1,1 +1,0 @@
-Artículo 7°—Las solicitudes de certificaciones, testimonios y constancias se despacharán por estricto orden de recepción cuando la solicitud o mandamiento, tuviere fecha y hora señalada para la compulsa se hará conforme a éstas. Todo servicio contemplado en este Reglamento pagará los derechos señalados por la ley.
