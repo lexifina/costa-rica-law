@@ -15,3 +15,4 @@ Reglamento de Contratación de Servicios de Instrucción Técnica
 | --- | --- | --- |
 | 1 | 2003-05-29 | la propia norma |
 | 2 | 2003-11-12 | Reglamento 4088 (2003-11-12) |
+| 3 | 2003-12-08 | Reglamento 4092 (2003-12-08) |
