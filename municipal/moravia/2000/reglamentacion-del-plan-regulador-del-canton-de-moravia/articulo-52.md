@@ -1,0 +1,3 @@
+Artículo 52.—Licencias. Para colocar o fijar anuncios, rótulos, letreros o avisos, deberá pedirse licencia a la Municipalidad. La licencia será solicitada por el propietario de la estructura en que se va a fijar el anuncio y con la conformidad del propietario del predio en que se coloque la estructura, cuando sea el caso.
+El propietario de la patente del comercio que será anunciado por el rótulo para el que se pide la licencia y del predio deberán estar al día en el pago de los impuestos, contribuciones y pago de servicios de la Municipalidad.
+La Municipalidad tiene facultades para limitar la superficie que en una fachada ocupará un anuncio o un conjunto de anuncios y para no permitir su colocación.

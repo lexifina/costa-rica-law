@@ -1,0 +1,1 @@
+Artículo 42.—Las modificaciones parciales o totales que se propongan al presente Reglamento deben hacerse con base en criterios de carácter general y no casuística. Cuando alguna modificación sea aprobada por el Concejo Municipal, o el Departamento de Ingeniería sin seguir los procedimientos y criterios aquí establecidos, las mismas serán absolutamente nulas.
