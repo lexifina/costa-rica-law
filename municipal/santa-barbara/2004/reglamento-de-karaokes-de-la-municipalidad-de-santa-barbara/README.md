@@ -14,3 +14,4 @@ Reglamento de Karaokes de la Municipalidad de Santa Bárbara
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-02-09 | la propia norma |
+| 2 | 2004-02-17 | Reglamento municipal 313 (2004-02-17) |
