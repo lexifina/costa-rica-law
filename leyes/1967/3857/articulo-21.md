@@ -1,0 +1,1 @@
+Artículo 21.-La Municipalidad de Golfito deberá llevar cuentas separadas del movimiento de los ingresos autorizados en esta ley, y la Contraloría General de la República no aprobará sus presupuestos si no se ajustan a las anteriores disposiciones.

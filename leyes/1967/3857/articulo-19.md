@@ -1,0 +1,5 @@
+Artículo 19.-Los ingresos que perciba la Municipalidad de Golfito en la adjudicación y remate de lotes y por la negación de los bonos que reciba del estado, se destinarán exclusivamente en el siguiente orden:
+1°-Reintegro o pago al Instituto Nacional de Vivienda y Urbanismo de lo gastado por este en el programa de erradicación de tugurios y renovación urbana del terreno municipal, a que se refiere este ley, así como las deudas que la Municipalidad contraiga con el Instituto, por servicios u obras requeridos para la conclusión del mismo programa.
+2°-Ejecución de las obras de acueducto, alcantarillado, pavimentación o asfaltado de calles y avenidas, en el terreno municipal donde se realiza el programa de renovación.
+3°-Mejoramiento de la cañería de Golfito.
+Para efectuar y completar esas obras, la Municipalidad podrá negociar un empréstito, con la garantía del Estado, con cualquiera de las instituciones del Sistema Bancario Nacional o con instituciones internacionales hasta por la suma de tres millones de colones, comprometiendo sus propias entradas.

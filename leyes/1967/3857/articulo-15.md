@@ -1,0 +1,2 @@
+Artículo 15.-Notificado el acuerdo firme que adjudica un lote, dentro de los 30 días siguientes, el interesado deberá depositar en la Tesorería Municipal de Golfito el importe del precio.
+Sin embargo, cuando el adjudicatario demuestre ante la Junta Calificadora que tiene insuficientes recursos económicos, se le concederá un plazo no mayor de cuatro años para cancelar la deuda; en este caso, deberá enterar, dentro del término de 30 días, el 10% del precio fijado, y el saldo de la deuda deberá cubrirse en cuatro cuotas, distribuidas en el plazo que se otorgue.

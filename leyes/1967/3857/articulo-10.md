@@ -1,0 +1,1 @@
+Artículo10.En la parte no urbanizada, las adjudicaciones se harán respetando el plano denominado “Extensión Cuadrante en el Área de Tugurios, Sección Este Población Civil de Golfito”, levantado por el Instituto Nacional de Vivienda y Urbanismo en mayo de 1964, y las modificaciones que dicho Instituto acuerde.
