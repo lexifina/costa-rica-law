@@ -1,0 +1,1 @@
+Artículo XXXII.—La prestación de servicios se regirá de conformidad con el Reglamento de Prestación de Servicios a los Abonados, vigente y se aplicará en lo conducente a los entes operadores regulados por la presente normativa.
