@@ -14,3 +14,4 @@ Reglamento al Artículo Noveno a la Ley para la Importación y Control de la Cal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-01-31 | la propia norma |
+| 2 | 1986-05-06 | Decreto Ejecutivo 17021 (1986-05-06) |
