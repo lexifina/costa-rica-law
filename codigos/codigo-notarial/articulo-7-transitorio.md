@@ -1,0 +1,1 @@
+TRANSITORIO VII.- Los requisitos de especialidad en Derecho Notarial Registral y los años de incorporación al Colegio de Abogados de Costa Rica, establecidos en el inciso c) del artículo 3 y en los incisos a) y b) del artículo 10, se aplicarán cinco años después de la vigencia de esta ley.

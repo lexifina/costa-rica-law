@@ -1,0 +1,1 @@
+TRANSITORIO X.- Las disposiciones contenidas en el artículo 174 en cuanto al requisito de presentación del plano catastrado, regirán después de un año contado a partir de la publicación de la presente ley.

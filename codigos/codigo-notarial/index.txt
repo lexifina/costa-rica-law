@@ -179,7 +179,9 @@ articulo-178.md
 articulo-179.md
 articulo-180.md
 articulo-181.md
+articulo-1-transitorio.md
 articulo-182.md
+articulo-2-transitorio.md
 articulo-183.md
 articulo-184.md
 articulo-185.md
@@ -188,3 +190,12 @@ articulo-187.md
 articulo-188.md
 articulo-189.md
 articulo-190.md
+articulo-3-transitorio.md
+articulo-4-transitorio.md
+articulo-5-transitorio.md
+articulo-6-transitorio.md
+articulo-7-transitorio.md
+articulo-8-transitorio.md
+articulo-9-transitorio.md
+articulo-10-transitorio.md
+articulo-11-transitorio.md

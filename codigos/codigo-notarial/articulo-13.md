@@ -1,6 +1,6 @@
 CAPÍTULO IV
 VIGENCIA DE LA FUNCIÓN NOTARIAL
-ARTÍCULO 13.- Inhabilitación.
+ARTÍCULO 13.- Inhabilitación
 Los notarios públicos serán inhabilitados temporalmente cuando:
 a) Sean suspendidos disciplinariamente por el órgano competente.
 b) Surja algún hecho que conforme al artículo 4 impida el ejercicio de la función notarial; en tal caso, la suspensión se mantendrá mientras dure el impedimento.
