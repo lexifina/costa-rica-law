@@ -1,0 +1,1 @@
+ARTÍCULO 50.-En tiempo de guerra pueden formarse brigadas de infantería y caballería, a razón de una por cada dos regimientos, mandada por un General de brigada o coronel. Tambien pueden formarse columnas de compañías sueltas, de batallones y regimientos de diferentes armas, cuando las operaciones lo hicieren necesario.

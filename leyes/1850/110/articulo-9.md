@@ -1,0 +1,1 @@
+ARTÍCULO 9°.-Las planas mayores de los regimientos se compondrán de un coronel, un teniente coronel, un sargento mayor, un ayudante mayor graduado de capitán, y de un segundo de la clase de teniente; de un subteniente abanderado, de un capellán, de un cirujano; de un armero, de un corneta mayor y de un tambor de órdenes.

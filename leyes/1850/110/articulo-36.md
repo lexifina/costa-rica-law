@@ -1,0 +1,2 @@
+ARTÍCULO 36.-El consejo de guerra ordinario se compondrá de seis capitanes, presidido por un jefe hasta la clase de coronel, y el de oficiales generales de seis jefes presidido por un General o coronel.
+§ único. En caso de que faltaren jefes para la composición del consejo de guerra de oficiales generales, se llamarán a reemplazar los que faltaren a capitanes graduados de jefes, y si ocurrieren otras dudas se resolver n en conformidad con lo que disponen las ordenanzas generales, y reales órdenes vigentes.

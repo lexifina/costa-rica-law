@@ -1,0 +1,1 @@
+ARTÍCULO 48.-Cada provincia tendrá un comandante de armas, excepto aquellas en que el Poder Ejecutivo lo considere innecesario. Tambien pueden destinarse comandantes de armas a los cantones remotos, o a pueblos de las fronteras y a los puertos marítimos cuando el Poder Ejecutivo lo juzgare conveniente.

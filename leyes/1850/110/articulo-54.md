@@ -1,0 +1,1 @@
+ARTÍCULO 54.-Los regimientos de caballería estarán armados de carabina, espada y lanza; mas pueden suprimirse una de estas armas, según lo aconsejen las circunstancias; mas la primera compañía-escuadrón de cada regimiento, llevará carabinas precisamente.

@@ -1,0 +1,1 @@
+ARTÍCULO 13.-La plana mayor de cada regimiento constar de un coronel, un teniente coronel, un sargento mayor, un ayudante mayor graduado de capitán y un segundo ayudante de la clase de teniente, de un alferez porta-estandarte, de un capellán, un cirujano, dos mariscales herradores y de un clarín mayor.

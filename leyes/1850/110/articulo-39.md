@@ -1,0 +1,1 @@
+ARTÍCULO 39.-Se declara en toda su fuerza y vigor las ordenanzas generales del ejercito en todo lo que no se opusieren a la presente ley, y a las demás que se hallan en observancia y a las que en adelante sancionare el Poder Ejecutivo.

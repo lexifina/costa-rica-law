@@ -1,0 +1,1 @@
+ARTÍCULO 10.-Habrá una columna de infantería, en servicio activo con el carácter de veterana, organizada de la manera que lo tuviese a bien el Poder Ejecutivo con vista de las circunstancias que acaecieren.
