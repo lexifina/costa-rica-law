@@ -1,0 +1,1 @@
+Art 4° El Consejo de Instrucción informará al Supremo Poder Ejecutivo, y este declarará universitarias las clases, siempre que los Catedráticos tengan aptitud moralidad, que los alumnos en los estadios intermediarios no bajen de ocho, ni en los superiores de cuatro, y que haya posibilidad de sostener dichos establecimientos.

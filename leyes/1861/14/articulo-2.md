@@ -1,0 +1,1 @@
+Art 2° Para que las clases de que ha hecho merito tengan el carácter de universitario, a fin de que los alumnos de ellas ganen los cursos literarios y puedan optar a los grados científicos, es indispensable que dichos planteles de enseñanza se sujeten a las prescripciones establecidas por la ley general de estudios.

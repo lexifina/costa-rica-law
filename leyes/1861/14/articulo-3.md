@@ -1,0 +1,1 @@
+Art 3° Con tal fin las respectivas Juntas de las Instrucciones de las Provincias, antes de la creación de cualquier Cátedra, darán oportuno aviso al Consejo de Instrucción pública, indicándole los recursos con que se cuenta para la enseñanza, el número de alumnos y la clase de profesores.
