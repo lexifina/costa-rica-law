@@ -1,0 +1,3 @@
+Art. 8 Quedan vigentes las leyes del Estado de 16 de Enero de 1826, y la de 15 de Junio de 1829, en lo que no se opongan á la presente ley (4).
+(4) A la fecha de esta reimpresion, nada hay subsitente de, esta ley
+Al Consejo Representativo.—Dado en San Josè à los catorce dias del mes de Abril de mil ochocientos treinta y uno.—Rafael Osejo, D. Presidente.—Josè Gabriel del Campo D. Secretario.—Jose Julian Blanco, D. Secretario.—Sala del Consejo. San José Abril veintiseis de mil ochocientos treinta y uno.—Pase al Poder Ejecutivo—José Rafael de Gallegos, Presidente—José Anselmo Sancho Secretario.—Por tanto: ejecutese. San José Abril 27 de mil ochocientos treinta y uno.—Juan Mora—Al Ciudadano Joaquin Bernardo Calvo.
