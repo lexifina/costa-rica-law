@@ -1,0 +1,1 @@
+Art. 135.—Si el padre, tutor ó encargado no compareciere al llamamiento de la autoridad, se dictará el fallo que corresponda, el cual no se anulará sino en el caso de que el reo compruebe impedimento de fuerza mayor.

@@ -1,0 +1,1 @@
+Art. 80.—Las salas de clases deberán ser de capacidad proporcionada al número de alumnos que deben contener, con suficiente luz y ventilación, y se dispondrán de modo que los niños no puedan distraerse con lo que pasa en el exterior. La capacidad será la de seis metros cúbicos por alumno.

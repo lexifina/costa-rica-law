@@ -1,0 +1,1 @@
+Art. 60.—Con estos documentos, y comprobada la circunstancia de que el local revine las condiciones del objeto á que está destinado, el Gobernador dará inmediatamente la autorización correspondiente, avisándolo al Inspector provincial para lo de su cargo.

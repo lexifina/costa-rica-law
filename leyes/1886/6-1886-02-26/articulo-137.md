@@ -1,0 +1,1 @@
+Art. 137.—No se procederá contra el niño cuyo padre ó guardador manifieste á la autoridad no serle posible obligarlo á recibir la instrucción elemental,, sin que antes reconozca el padre ó tutor la autenticidad de la carta de aviso.

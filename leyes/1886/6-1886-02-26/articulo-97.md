@@ -1,0 +1,2 @@
+Art. 97.—La recaudación de los fondos para el objeto expresado en el artículo anterior, se verificará de la manera que indican éste y los artículos siguientes.
+Formado el presupuesto de la obra por el arquitecto de escuelas y la Junta local de educación, de común acuerdo, ésta convocará una reunión general de vecinos á efecto de que se llene por una suscrición voluntaria el cincuenta por ciento del valor del presupuesto.

@@ -1,0 +1,1 @@
+Art. 107.—Cuando por renuncia del maestro u otro motivo estuviere cerrada una escuela pública cualquiera, el valor del sueldo de aquél se destinará, por vía de subvención, á la construcción del edificio de escuela, compra de menaje para ésta, etc., etc.

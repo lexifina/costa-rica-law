@@ -1,0 +1,1 @@
+Art. 42.—El desempeño de estos empleos es una carga pública; las calidades de dichos funcionarios, su juramento, renuncias, prerrogativas y responsabilidad, se ajustarán á lo dispuesto en los artículos 103 á 113, 128 y 139 de la ley de 24 de julio de 1867.

@@ -1,0 +1,2 @@
+Art. 148.—Los Gobernadores, Jefes Políticos, inspectores y visitadores oficiales de escuelas, están autorizados para exigir á las Juntas y Tesoreros de distrito, la exhibición de los libros originales, y para practicar el arqueo y pedir todo género de informes, á fin de cerciorarse del buen manejo de los fondos escolares.
+De cualquier abuso que notaren darán cuenta inmediatamente al superior respectivo, y en casos graves dictarán bajo su responsabilidad las medidas provisionales que convengan.

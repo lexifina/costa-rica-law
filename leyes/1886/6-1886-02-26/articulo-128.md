@@ -1,0 +1,1 @@
+Art. 128.—El Poder Ejecutivo, previo informe del Inspector General, puede, pasados tres años después de la condena, rehabilitar al maestro á quien se. haya impuesto la pena de separación del magisterio.

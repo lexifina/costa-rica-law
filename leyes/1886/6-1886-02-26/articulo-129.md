@@ -1,0 +1,1 @@
+Art. 129.—Los maestros declarados inocentes bien por resolución de la Inspección general ó del Ministro de Instrucción, serán repuestos en sus destinos y reintegrados de los haberes que se les deban, y se publicará su inocencia en el periódico oficial.

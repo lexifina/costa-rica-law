@@ -1,0 +1,1 @@
+Art. 126.—Los maestros á quienes se hubiere impuesto alguna de las penas detalladas en los incisos 2°, 3°, 4° y 5° del artículo 125, tendrán derecho á ocurrir al Ministro del ramo para la aprobación, reforma ó revocatoria,

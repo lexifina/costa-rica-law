@@ -1,0 +1,2 @@
+Art. 55.—Del mismo Tesoro se votará anualmente una suma que represente el uno por ciento del total de los sueldos de maestros de instrucción primaria, para premiar á aquellos que hubieren manifestado mejor desempeño, á juzgar por la regular asistencia de los alumnos matriculados y por el resultado de los exámenes.
+Los maestros de escuelas privadas son relativamente acreedores á participar de dicho premio.

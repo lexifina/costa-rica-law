@@ -1,0 +1,1 @@
+Art. 136.—De lo obrado se levantará una acta en que lacónicamente se exprese todo lo ocurrido: extracto de ella se remitirá al Inspector provincial de escuelas, para que tome las notas correspondientes en un registro que ha de llevar.

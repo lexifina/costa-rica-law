@@ -1,0 +1,1 @@
+Art. 116.—Tanto las cuentas generales que lleve el Tenedor de Libros como las particulares de las Tesorerías de distrito, se cortarán el día 31 de marzo de cada año, y se abrirán al principio del nuevo año económico.

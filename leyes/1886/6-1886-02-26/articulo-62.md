@@ -1,0 +1,1 @@
+Art. 62.—Las escuelas privadas están sujetas á la inspección oficial en lo referente á asistencia de los niños, disciplina interior, á la moralidad, higiene, instituciones fundamentales del Estado y orden público.
