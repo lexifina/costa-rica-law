@@ -1,0 +1,1 @@
+Artículo 2°.-No obstante lo dispuesto en el artículo anterior, el Poder Ejecutivo mantendrá en el goce de sus respectivas becas á los jóvenes que en la actualidad se encuentren disfrutando de ellas, por el tiempo absolutamente indispensable para la conclusión de sus estudios, teniendo en cuenta el ya trascurrido.
