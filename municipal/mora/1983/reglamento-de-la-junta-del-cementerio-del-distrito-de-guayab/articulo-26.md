@@ -1,0 +1,2 @@
+Artículo 26.—El valor de los derechos de arrendamiento de terreno en el cementerio se establece de la siguiente manera: Sencillos (¢ 300,00. Dobles ¢ 600,00, ambos pagos son anuales.
+Los derechos sobre los lotes dobles tendrán un área de cuatro metros cuadrados, dos metros de frente y dos metros de fondo. La Junta deberá revisar anualmente las tasas anteriores para ajustar los altos costos del momento.

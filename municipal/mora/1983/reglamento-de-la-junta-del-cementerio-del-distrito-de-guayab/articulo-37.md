@@ -1,0 +1,1 @@
+Artículo 37.— La Junta no se responsabiliza por ninguna clase de accidentes que ocurrieran en las construcciones u otros trabajos que se hagan dentro del cementerio, salvo aquellos casos en que resultaren afectados sus propios empleados. Las construcciones, reparaciones y otros trabajos serán por cuenta y riesgo de los arrendatarios.

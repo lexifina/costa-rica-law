@@ -1,0 +1,1 @@
+Transitorio II.— La Junta Administrativa quedará obligada a levantar un censo en el mes de enero, a fin de establecer el cobro de los derechos anuales, de las bóvedas y nichos que se hayan establecido en cada cementerio a la fecha.

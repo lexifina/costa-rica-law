@@ -1,0 +1,1 @@
+Artículo 10.—Si se va a sepultar al fallecido en una bóveda, también debe presentarse el familiar más cercano al Comité, para que cancele el derecho de inhumación y luego dé los datos de rigor para su historial.

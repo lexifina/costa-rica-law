@@ -1,0 +1,1 @@
+Artículo 33.—Para llevar a cabo mejoras, reparaciones, repellos, etc., en las bóvedas, los interesados deberán comunicarlo a la Junta para su supervisión, respecto a ubicación, medidas, materiales, etc.

@@ -1,0 +1,1 @@
+Artículo 38.—Todos los dineros provenientes de arrendamientos de derechos en el cementerio deberá invertirlos la Junta en mejoras del mismo y dar un servicio acorde con las necesidades vigentes y planes de interés.

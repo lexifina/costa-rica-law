@@ -1,0 +1,1 @@
+Artículo 11.—Si se incumpliese la línea de demarcación que dará el Comité y el delegado distrital puede perder los trabajos efectuados una hora después de haberse apersonado la Comisión al sitio anteriormente demarcado.

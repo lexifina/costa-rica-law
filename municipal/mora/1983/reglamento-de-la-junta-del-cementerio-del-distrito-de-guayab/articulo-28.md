@@ -1,0 +1,1 @@
+Artículo 28.—Todo arrendatario que no cumpla con las tasas establecidas y otros, de este reglamento, caerá en caducidad de los servicios otorgados y una certificación de la Tesorería de la Junta será título ejecutivo.

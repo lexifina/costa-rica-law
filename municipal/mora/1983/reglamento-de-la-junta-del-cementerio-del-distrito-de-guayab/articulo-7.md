@@ -1,0 +1,1 @@
+Artículo 7°—Dejará de ser miembro de la Junta el que faltare a tres sesiones consecutivas sin causa justificada, decisión que tomará la Junta Ad ministrativa. Para sustituirlos se procederá conforme con lo que reza el artículo 2°.

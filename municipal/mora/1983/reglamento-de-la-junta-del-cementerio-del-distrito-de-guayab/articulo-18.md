@@ -1,0 +1,1 @@
+Artículo 18.—En caso de incumplimiento, el doliente más cercano recibirá tres avisos durante un lapso de 2 meses y si no se apersona ante el Comité puede perder su derecho ante la autoridad y luego se venderá el derecho a quien interese.
