@@ -1,0 +1,3 @@
+Artículo 20.—El conductor que sea declarado responsable por los Tribunales de Justicia, con motivo de un accidente de tránsito en que hubiere participado con el vehículo de la Institución debe pagar el monto correspondiente al deducible que eventualmente, tendría que girarse al Instituto Nacional de Seguros o las indemnizaciones que deba hacer la Institución en favor de terceros afectados, cuando el costo del daño sea inferior al monto del deducible.
+Será igualmente responsable aquel que permitiere a otra persona conducir un vehículo sin causa justificada o sin la debida autorización o lo estuviere utilizando para eventos personales.
+Lo dispuesto en este artículo será aplicado sin perjuicio de las sanciones disciplinarias correspondientes.

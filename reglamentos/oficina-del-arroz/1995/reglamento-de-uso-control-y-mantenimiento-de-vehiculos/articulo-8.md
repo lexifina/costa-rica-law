@@ -1,0 +1,1 @@
+Artículo 8°—Toda dependencia que requiera la utilización de un vehículo deberá solicitar el permiso a la Sección de Estudios Técnicos, para lo cual deberá llenar la boleta de solicitud firmada por el jefe del departamento solicitante o del funcionario autorizado.

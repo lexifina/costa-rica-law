@@ -1,0 +1,1 @@
+Artículo 11.—Antes de la salida de cualquiera de los vehículos el encargado de la Sección de Estudios Técnicos, junto con el conductor levantarán un informe en donde se detallará el estado del vehículo, así como el número de kilómetros que marca, lo cual deberá hacer también al término del servicio, igualmente se procederá con el control del combustible y lubricantes.

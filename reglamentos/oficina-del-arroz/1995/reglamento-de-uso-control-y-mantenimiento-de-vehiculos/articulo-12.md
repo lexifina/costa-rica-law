@@ -1,0 +1,1 @@
+Artículo 12.—Si el vehículo ingresara fuera de las horas laborales de la Institución, el conductor junto con el guarda del tumo, apuntarán el kilometraje y a la mañana siguiente se procederá a levantar el informe sobre el estado del vehículo.

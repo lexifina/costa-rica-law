@@ -1,0 +1,1 @@
+Artículo 14.—Una vez concluidas las labores para las que fuese solicitado-el vehículo, éste deberá ser guardado en el estacionamiento de la Institución , únicamente en casos de calificada excepción podrá ser guardado en otro lugar previa autorización.

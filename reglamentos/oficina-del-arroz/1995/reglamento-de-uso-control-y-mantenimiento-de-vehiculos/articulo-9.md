@@ -1,0 +1,1 @@
+Artículo 9°—Los vehículos deberán ser utilizados por las personas autorizadas para los fines solicitados y limitarse a funciones propias de la Institución y nunca a diligencias personales. El incumplimiento a la presente disposición, será considerado falta grave. La autorización de referencia deberá constar por escrito.

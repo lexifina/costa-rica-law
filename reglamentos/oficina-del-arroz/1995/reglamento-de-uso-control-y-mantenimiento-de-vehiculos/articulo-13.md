@@ -1,0 +1,1 @@
+Artículo 13.—El encargado de vehículos deberá reportar cualquier daño que presenten, en el término de un día, a sus superiores inmediatos. Deberá además confeccionar un informe mensual sobre la utilización de los mismos.

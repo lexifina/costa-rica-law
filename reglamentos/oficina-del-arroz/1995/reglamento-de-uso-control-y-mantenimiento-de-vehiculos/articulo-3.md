@@ -1,0 +1,1 @@
+Artículo 3°—Los vehículos de uso discrecional son los asignados al Director Ejecutivo y al Auditor Interno de la Institución , para lo cual se aplicará lo que dispone la Ley de Tránsito, no están sujetos al uso de combustible, horario de operación ni recorrido, características que asumirá, bajo su estricto criterio, el funcionario responsable de la Unidad.
