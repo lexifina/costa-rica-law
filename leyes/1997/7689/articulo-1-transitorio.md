@@ -1,6 +1,2 @@
-TRANSITORIO ÚNICO.- En el momento de entrar en vigencia la presente
-reforma, los procesos judiciales que se encuentren en trámite sin que se
-hubiere dictado sentencia en primera instancia, se tramitarán de
-conformidad con las nuevas disposiciones.
-( INTERPRETADO por Resolución de la Sala Constitucional Nº 8319-97
-de las 12:09 horas del 5 de diciembre de 1997 ).
+TRANSITORIO ÚNICO.-En el momento de entrar en vigencia la presente reforma, los procesos judiciales que se encuentren en trámite sin que se hubiere dictado sentencia en primera instancia, se tramitarán de conformidad con las nuevas disposiciones.
+(La Sala Constitucional mediante resolución N° 8319 del 5 de diciembre de 1997, declaró que: “…no es inconstitucional la aplicación de la frase del Transitorio Único de la Ley N° 7689 del 21 de agosto de 1997 que dice “sin que se hubiere dictado sentencia en primera instancia” siempre y cuando se interprete que esta disposición no afectó la posibilidad de la sala de casación de solicitar la prueba que considere pertinente de acuerdo a la nueva normativa”).
