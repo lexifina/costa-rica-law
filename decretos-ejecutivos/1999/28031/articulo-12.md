@@ -1,0 +1,3 @@
+Artículo 12.—Financiamiento. Las actividades científicas y tecnológicas regionales estarán apoyadas por los incentivos de la Ley Nº 7169 y las demás que señalen la legislación ordinaria costarricense.
+Conforme al artículo 8 de la Ley Nº 7169 las actividades científicas y tecnológicas se declaran de interés público, por lo que todas las entidades que conforman el Gobierno Central de la República, están autorizadas a destinar recursos financieros y humanos que se destinarán exclusivamente a éstas.
+Esta acción no limita al Consejo para identificar, negociar y gestionar con entidades de otros sectores su colaboración en la ejecución de las actividades científicas y tecnológicas. Dichas acciones deberán estar normadas de acuerdo al ordenamiento jurídico vigente.

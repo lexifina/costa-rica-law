@@ -13,3 +13,4 @@ Crea Consejos Regionales de Ciencia y Tecnología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-08-19 | la propia norma |
+| 2 | 1999-08-19 | Ley 7 |

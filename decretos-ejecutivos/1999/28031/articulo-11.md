@@ -1,0 +1,1 @@
+Artículo 11.—Estructura orgánica y organizativa. Mediante los reglamentos que correspondan, el MICIT regulará los aspectos específicos de la organización que no esté definida expresamente en éste decreto. Los que deberán ser avalados por el MICIT a través de la Coordinación General de los CORECITS.

@@ -1,0 +1,1 @@
+Artículo 8º—Las sedes de los Consejos. Por acuerdo de sus integrantes, éstos determinarán mediante cronograma, su sede administrativa en forma semestral a efecto permitir a todos los integrantes del Consejo contar con la ubicación de las oficinas centrales administrativas en la región o lugar de su interés directo.
