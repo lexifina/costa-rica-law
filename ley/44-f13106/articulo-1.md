@@ -1,0 +1,7 @@
+DECRETO XLIV.
+La Asamblea Constituyente nombra los individuos que deben concurrir en calidad de delegados por parte de Costa Rica a la Dieta con federativa
+que debe reunirse en “San Vicente” (1)
+(1) No tuvo efecto la concurrencia, por no haberlo tenido tan poco la reunión de la Dieta.
+La Asamblea Constituyente del Estado de Costa Rica: con presencia de las comunicaciones ministeriales de Honduras, Nicaragua y El Salvador de 11 de Noviembre, 18 y 22 de Diciembre último, con qué se ha dado cuenta el Ejecutivo, y de las que se advierte, de una parte, estar convenidos aquellos Estados en que la reunión de la Dieta Confederativa se verifique en la Ciudad de San Vicente; Y de otra, que son repetidas las escitaciones para que Costa Rica concurra ella por medio de sus delegados:
+Deseando no omitir medio alguno de contribuir á la felicidad pública por el de la reorganización de Centro-América; y en vista de lo declarado por el decreto n° 13 del 6 de Diciembre del año antes próximo, por el cual Costa Rica se adhiere al pacto de Chinandega de 27 de Julio de 1842, bajo las reformas propuestas en dicha declaratoria, decreta:
+Art. 1° Se nombra y ha por nombrado al Señor Diputado Félix Sancho, Delegado por Costa Rica á la Dieta Confederativa que debe reunirse en la Ciudad de San Vicente conforme al pacto de Chinandega de 27 de Julio de 1842, y convenios celebrados entre el Salvador, Honduras y Nicaragua. Se nombra asi mismo por Delegado suplente al Sr. Juan Antonio Alvarado.

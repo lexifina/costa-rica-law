@@ -1,0 +1,1 @@
+Art. 2. Igualmente se nombra y ha por nombrado al Sr. Diputado Licenciado Pedro Zeledon para Magistrado propietario del Poder Judicial de la Confederación, y por suplente al Sr. Licenciado Manuel Aguilar, conforme al pacto antes citado.
