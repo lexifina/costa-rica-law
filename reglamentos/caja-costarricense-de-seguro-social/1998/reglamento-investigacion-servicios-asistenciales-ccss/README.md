@@ -14,3 +14,4 @@ Reglamento Investigación Servicios Asistenciales CCSS
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-13 | la propia norma |
+| 2 | 2001-08-16 | Reglamento 7571 (2001-08-16) |
