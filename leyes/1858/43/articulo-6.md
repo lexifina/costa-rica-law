@@ -1,0 +1,3 @@
+Artículo 6°. - Ni la Municipalidad ni ninguna otra autoridad, podrá tomar los fondos pertenecientes a la instrucción pública, para invertirlos en otro objeto que no sea el de la misma instrucción; por consiguiente, la orden que se dé en otro sentido, no será obedecida; quedando mancomunadamente responsables con sus bienes las personas de donde dimane, lo mismo que las de los funcionarios que la obedezcan.
+Dado en el Salón de Sesiones en San José, a los treinta días del mes de Setiembre de mil ochocientos cincuenta y ocho
+Por tanto: EJECUTÉSE. Palacio Nacional. San José, octubre cinco de mil ochocientos cincuenta y ocho.

@@ -1,0 +1,1 @@
+Art. 4. Las Municipalidades son obligadas junto con los Gobernadores, a mandar practicar la medida de las leguas de que habla el artículo anterior, desde esta fecha hasta el mes de Febrero del año entrante; pudiéndose prorrogar este término por el Supremo Gobierno, en caso necesario.
