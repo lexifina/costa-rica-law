@@ -1,0 +1,1 @@
+Artículo 9º—De otras disposiciones. La Junta Directiva, previo dictamen de la Dirección Actuarial y de Planificación Económica, podrá eliminar el aporte, cuando considere que este Fondo ha cumplido sus fines, o bien sus reservas son suficientes para lograr su cometido.

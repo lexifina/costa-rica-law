@@ -1,0 +1,1 @@
+Artículo 8º—De las inversiones. Las inversiones del Fondo de Estabilidad Laboral y Garantía Social se realizarán atendiendo las directrices establecidas institucionalmente para los diversos fondos, en observancia de criterios de seguridad, liquidez y rentabilidad.

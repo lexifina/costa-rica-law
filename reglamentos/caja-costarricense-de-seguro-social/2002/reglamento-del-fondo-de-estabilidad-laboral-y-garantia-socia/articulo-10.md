@@ -1,0 +1,2 @@
+Artículo 10.—Consideración previa. Previo a la implementación de lo dispuesto en los artículos 5º , 6º , y 9º de este Reglamento, la Junta Directiva se apegará al procedimiento y plazos establecidos en el artículo 4° "Consideración previa a los sindicatos", de la Normativa de Relaciones Laborales aprobada en octubre de 1998 por la Junta Directiva de la CCSS".
+San José, 10 de junio del 2002.—Emma C. Zúñiga Valverde, Secretaria, Junta Directiva.

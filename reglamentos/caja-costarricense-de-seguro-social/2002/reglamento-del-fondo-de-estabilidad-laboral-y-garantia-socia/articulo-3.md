@@ -1,0 +1,1 @@
+Artículo 3º—De la protección. Los beneficios que se otorguen con cargo a este Fondo cubren a todos los trabajadores de la Caja Costarricense de Seguro Social que se encuentren en una plaza contemplada en el presupuesto de salarios fijos, descrita en el Estatuto de Servicios de la Institución.

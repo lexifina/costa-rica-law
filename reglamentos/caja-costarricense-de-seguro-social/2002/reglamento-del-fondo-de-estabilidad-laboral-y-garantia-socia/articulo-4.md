@@ -1,0 +1,2 @@
+Artículo 4º—De la administración. La administración del Fondo de Estabilidad Laboral y Garantía Social estará a cargo de la Gerencia de la División Financiera, la cual proporcionará a la Junta Directiva de la Institución, en el mes de marzo de cada año, un informe del estado y gestión del Fondo, de igual manera informará a las organizaciones de trabajadores.
+Este Fondo contará con su propio régimen contable y presupuestario separado de los Seguros de Salud y Pensiones.

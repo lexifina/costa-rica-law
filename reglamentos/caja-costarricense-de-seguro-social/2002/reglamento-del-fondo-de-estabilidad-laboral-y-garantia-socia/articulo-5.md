@@ -1,0 +1,1 @@
+Articulo 5º—La forma en que se implementarán los beneficios establecidos en el presente reglamento será acordada por la Junta Directiva mediante propuesta presentada por las Gerencias de las Divisiones Financiera y Administrativa, tomando en cuenta la disponibilidad de recursos financieros y la liquidez existente.

@@ -1,0 +1,1 @@
+Artículo 6º—La Gerencia de la División Financiera, podrá recomendar a la Junta Directiva variaciones en el perfil de beneficios, previa recomendación de la Dirección Actuarial y de Planificación Económica.

@@ -1,0 +1,1 @@
+Artículo 2º—De los beneficios. Los beneficios sociales que otorga el Fondo de Estabilidad Laboral y Garantía Social tendrán como propósito fundamental mejorar las condiciones sociolaborales y el nivel de vida de los trabajadores de la institución, mediante mecanismos que complementen la remuneración que en ocasión de su trabajo perciban.
