@@ -1,0 +1,3 @@
+Transitorio IV.- A partir de la fecha de promulgación de esta ley, la deuda actual del Gobierno con el Banco Central de Costa Rica por concepto de Letras del Tesoro, se considerará deuda permanente sin plazo, no debiendo el Gobierno pagar amortizaciones ni intereses por ese saldo, salvo cuando de común acuerdo el Gobierno y el Banco Central de Costa Rica dispongan lo contrario, o cuando leyes especiales recursos para las amortizaciones de ese pasivo.
+Para calcular el dozavo a que se refiere el artículo 71 de la Ley Orgánica del Banco Central de Costa Rica, no se tomará en cuenta la deuda actual por concepto de Letras del Tesoro.
+Casa Presidencial.-San José, a los veinte días del mes de octubre de mil novecientos setenta.
