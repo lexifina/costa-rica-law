@@ -1,11 +1,13 @@
-ARTICULO 724.- Conclusión del procedimiento y declaratoria del
-concurso o quiebra.
-Transcurrido el plazo previsto en el primer párrafo del artículo 716,
-o antes, si se denegare la continuación del negocio, o si la empresa no
-diere muestras de recuperarse económicamente, el juzgado dará por
-concluido el procedimiento, y si no diere inicio al convenio preventivo de
-acuerdo con lo dispuesto en el artículo 722, decretará el concurso o
-quiebra del deudor. Hecho este pronunciamiento, subsistirán los que prevé
-el párrafo segundo del artículo 713, y en la misma resolución el juzgado
-ordenará la liquidación del activo y el pago de su derecho al dividendo a
-los acreedores.
+ARTÍCULO 724.- Efectos sustantivos de la resolución inicial La resolución señalada en el artículo 719 se ejecutará inmediatamente, a partir de la firmeza en todos sus extremos y producirá estos efectos:
+1.- La exigibilidad inmediata de las obligaciones en favor de personas jurídicas, derivadas del pago de cuotas o de la suscripción de acciones por los socios o los accionistas.
+2.- La imposibilidad de socios o accionistas de retirar dividendos, los cuales les serán entregados cuando concluya el procedimiento, siempre y cuando este no se convierta en quiebra o en concurso civil.
+3.- La suspensión de pagos establecida en el proyecto del plan presentado para su discusión, será aplicable a las obligaciones vencidas del deudor, salvo las que no resulten afectadas por el procedimiento de intervención, de acuerdo con el artículo anterior. Los acreedores afectados por la suspensión podrán recibir únicamente los pagos parciales, conforme al procedimiento de ejecución del plan de salvamento.
+La resolución reducirá, de inmediato, de allí en adelante y hasta nueva resolución judicial, el pago de intereses sobre todas las deudas anteriores a la presentación, incluidas aquellas cuya pretensión individual no se afecta, a la tasa básica pasiva, que el Banco Central de Costa Rica calcula para deudas en colones y a la tasa internacional conocida como "Prime Rate" para las deudas en dólares. Pero, cuando los intereses establecidos en los respectivos títulos o contratos sean menores, se estará a lo antes estipulado.
+Los intereses que el acreedor deje de percibir serán adicionados al principal de la deuda aunque no generarán, a su vez, intereses. Serán cancelados cuando la empresa tenga mayor capacidad de pago, según resolución que dicte el juez y previo estudio pericial que así lo recomiende.
+4.- La nulidad de las cláusulas contractuales que prevean la rescisión de los contratos, en caso de sobrevenir procesos concursales preventivos.
+5.- La inexigibilidad de las multas administrativas o fiscales, de cualquier naturaleza y de las cláusulas penales de carácter contractual.
+Los acreedores de las obligaciones a que estas cláusulas se refieren, sólo podrán percibir intereses en los términos resultantes del plan, salvo que el monto fuere inferior; en cuyo caso será ese el monto por cubrir.
+6.- La posibilidad de demandar la invalidez de las obligaciones a título gratuito y de los actos o contratos que la legislación ordinaria prevé como inválidos o como ineficaces en relación con la masa de acreedores, en casos de quiebra o insolvencia, todo a partir de la fecha de retroacción fijada.
+7.- La obligación de todo acreedor, cuya pretensión o acción individual resulte afectada, de hacer valer cualquier derecho solo dentro del expediente de administración intervenida.
+8.- La obligación del solicitante de iniciar la aplicación del plan de administración por él propuesto. Para computar el plazo del proceso de administración mencionado en el artículo 732 de este Código, se tomará, como fecha inicial, aquella en la que el juzgado dicte el auto que dé por presentada válidamente la solicitud.
+(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)

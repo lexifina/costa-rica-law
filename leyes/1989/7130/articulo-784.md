@@ -1,8 +1,4 @@
-ARTICULO 784.- Distribución y cuentas finales.
-Concluidas la realización y liquidación de la masa, se procederá a la
-distribución final.
-El curador rendirá cuenta de su administración en la junta que se
-reúna para la aprobación de la distribución final. No será necesario
-publicar edicto para esta junta.
-Los objetos que no hayan podido realizarse, de conformidad con los
-acuerdos de la junta, se entregarán a la libre disposición del concursado.
+ARTÍCULO 784.- Rendición de cuentas.
+Cuando un curador cesare en su cargo deberá rendir cuenta de su gestión en los ocho días siguientes, la que se tramitará en el legajo de estados mensuales. Sobre ello se oirá por diez días a los acreedores, y al nuevo curador cuando se trate de un cambio de éste. Vencido ese plazo sin que haya oposición, el juez aprobará la cuenta y declarará exento de responsabilidad al curador, si tuviere comprobación en lo fundamental en el expediente, si no contradijere los estados mensuales u otros datos, y si no comprendiere partidas que estén reñidas con disposiciones expresas de la ley. En el caso contrario, el juez hará las rectificaciones correspondientes.
+Si la cuenta fuere impugnada oportunamente, se tramitará dicha oposición con el curador, por la vía incidental.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 761 al 784)

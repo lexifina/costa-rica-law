@@ -1,15 +1,4 @@
-ARTICULO 805.- Trato duro y ejemplos corruptores.
-Para decretar el depósito en los casos de que habla el inciso 2) del
-artículo 802, se necesita:
-1) Que lo solicite el menor, por escrito o de palabra; si no pudiera
-hacerlo por sí, lo hará otra persona en su nombre, pero en este último
-caso deberá dar su ratificación el menor ante el juez, si tuviere
-capacidad legal para hacerlo.
-2) Que el juez adquiera el convencimiento de la certeza de los hechos
-por los datos que haya podido adquirir.
-Sin embargo, de lo dicho en este artículo, el juez podrá decretar el
-depósito aun de oficio, cuando le conste la imposibilidad en que se
-encuentra el menor de formularla, o cuando se tratare de un inhábil.
-Decretado el depósito, el juez acordará realizarlo en la persona
-que designe, y ordenará que se le entreguen al menor, por inventario, sus
-muebles y su ropa.
+ARTÍCULO 805.- Remate de bienes.
+No habiendo sido posible la asignación de las deudas activas o de otros bienes, a los acreedores, el juez ordenará venderlos en subasta pública al mejor postor, con base o sin ella.
+En el edicto bastará con indicar el número de los créditos y el monto total de ellos, sin mención del nombre de los deudores, y una breve descripción de los otros bienes. Pero el juzgado deberá formar una lista, por lo menos tres días antes del remate, con una breve referencia de las pruebas pertinentes, para que pueda ser examinada por los interesados; y en el acto del remate se le dará lectura.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 782 al 805)

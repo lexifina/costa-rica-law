@@ -1,10 +1,3 @@
-ARTICULO 885.- Cierre bajo llave y colocación de sellos.
-Si el inventario no pudiere terminarse en el mismo día, el juez
-cerrará bajo llave, que conservará en su poder, las puertas de las
-habitaciones o locales que destine para la guarda de los bienes muebles,
-pondrá en ellas el sello del tribunal y continuará el día siguiente
-haciendo el inventario. Asimismo, si lo considerare necesario, podrá
-disponer que los bienes dejados bajo llave y sello, sean cuidados por la
-policía.
-El depositario o albacea, según el caso, venderá los frutos o bienes
-perecederos, por el precio corriente en plaza a la fecha de la venta.
+ARTÍCULO 885.- Otras medidas que tomará el juez.
+Al autorizar cualquier acto o contrato que afecte bienes de menores o incapacitados, el juez deberá decretar todas las medidas que juzgue necesarias para la garantía de los interesados. Cuando se autorizare la venta de bienes para adquirir otros, el juez intervendrá en el otorgamiento de los documentos respectivos, y en el recibo y pago de los precios correspondientes, e investigará la situación legal, los gravámenes y las demás circunstancias de los bienes que vayan a adquirir o a recibir en garantía los menores o incapacitados.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 862 al 885)

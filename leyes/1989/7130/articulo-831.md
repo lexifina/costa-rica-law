@@ -1,10 +1,4 @@
-CAPITULO V
-Tutela y curatela
-Sección primera
-Tutela
-ARTICULO 831.- Legitimación.
-La Procuraduría General de la República, el Patronato Nacional de la
-Infancia, o cualquier pariente del menor que deba estar sujeto a tutela,
-será parte legítima para pedir que se le discierna, previa las
-formalidades legales, el cargo al tutor testamentario, o que se nombre el
-legítimo o dativo que corresponda.
+ARTÍCULO 831.- Incapacitado en abandono.
+Comprobado que sea, sumariamente, que el incapacitado se halla en el caso del inciso 4) del artículo 802 (*), el juez le nombrará un depositario.
+(* El artículo indicado es ahora el 825)
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 808 al 831)

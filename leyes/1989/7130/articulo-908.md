@@ -1,10 +1,4 @@
-ARTICULO 908.- Objeciones a la partición.
-Las objeciones que oportunamente se le formulen a la partición se
-tramitarán conjuntamente en la vía incidental, y se decidirán en la misma
-resolución en la que se emita pronunciamiento sobre la partición.
-Si prosperare alguna objeción, el juez aplicará lo dicho en la
-parte final del artículo anterior.
-La resolución en la que emita pronunciamiento sobre la participación,
-cuando hubieren objeciones, tendrá la autoridad y la eficacia de la cosa
-juzgada material, y emitirá el recurso de apelación, y aun el de casación,
-si procediere conforme con la cuantía.
+ARTÍCULO 908.- Cierre bajo llave y colocación de sellos.
+Si el inventario no pudiere terminarse en el mismo día, el juez cerrará bajo llave, que conservará en su poder, las puertas de las habitaciones o locales que destine para la guarda de los bienes muebles, pondrá en ellas el sello del tribunal y continuará el día siguiente haciendo el inventario. Asimismo, si lo considerare necesario, podrá disponer que los bienes dejados bajo llave y sello, sean cuidados por la policía.
+El depositario o albacea, según el caso, venderá los frutos o bienes perecederos, por el precio corriente en plaza a la fecha de la venta.
+(La numeración de este artículo fue así modificada por el artículo 1ºde la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 885 al 908)

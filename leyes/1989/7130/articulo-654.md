@@ -1,4 +1,4 @@
-ARTICULO 654.- Incidentes y suspensión.
+ARTÍCULO 654.- Incidentes y suspensión.
 No obstante que antes de efectuarse el remate se presentare, por
 parte del ejecutado, algún incidente que tienda a suspenderlo o que
 produzca ese resultado, la subasta se llevará a cabo; pero se advertirá a

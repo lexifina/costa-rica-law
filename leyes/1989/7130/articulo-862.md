@@ -1,9 +1,5 @@
-ARTICULO 862.- Otras medidas que tomará el juez.
-Al autorizar cualquier acto o contrato que afecte bienes de menores
-o incapacitados, el juez deberá decretar todas las medidas que juzgue
-necesarias para la garantía de los interesados. Cuando se autorizare la
-venta de bienes para adquirir otros, el juez intervendrá en el
-otorgamiento de los documentos respectivos, y en el recibo y pago de los
-precios correspondientes, e investigará la situación legal, los gravámenes
-y las demás circunstancias de los bienes que vayan a adquirir o a recibir
-en garantía los menores o incapacitados.
+ARTÍCULO 862.- Entrega de bienes.
+Dictado el auto de que habla el artículo 837 (*), se le entregará al tutor el caudal del menor, por inventario, que se unirá al expediente, si ya no obrare en él. El recibo de los bienes se acreditará en los autos mediante acta firmada por el juez, el secretario y el tutor.
+(* El indicado artículo es ahora el 860)
+Igual entrega, y con la misma formalidad, se hará de los títulos y documentos que se refieran a dichos bienes. En el acta deberá cumplirse lo prevenido en el artículo 196 del Código de Familia, si antes no se hubiere hecho.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 839 al 862)

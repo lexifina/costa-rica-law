@@ -1,10 +1,5 @@
-ARTICULO 904.- Créditos reconocidos.
-Se tendrá por reconocido un crédito con el voto de la mayoría, si no
-hubiere disposición legal que lo impida, y si se tratare de deudas que
-efectivamente estén a cargo de la sucesión. El tribunal podrá negar el
-reconocimiento si tuviere motivo fundado para creer que se trata de una
-colusión en daño de la sucesión, o de la minoría de los interesados.
-Los créditos reconocidos serán pagados acto continuo, si fuere
-posible; si no, se procederá a la venta de bienes para su pago, con las
-formalidades prescritas por los artículos 550 del Código Civil y 915 del
-presente, o se tomarán las disposiciones del caso en la cuenta partición.
+ARTÍCULO 904.- Aceptación y renuncia de la herencia.
+Todo el que tenga un interés subordinado a la aceptación o renuncia de la herencia, por parte del llamado a recibirla, podrá pedir al tribunal que prevenga al sucesor que se pronuncie por uno de los dos extremos, en los términos y bajo el apercibimiento que fija el Código Civil.
+El juez accederá a esta solicitud, tan pronto como se comprueben la muerte del causante y el interés del petente.
+Cuando alguno de los herederos ocurra al tribunal en renuncia de la herencia a que tuviere derecho, el juez lo admitirá; y si no fuere el caso de que coherederos conocidos acrezcan en la parte del renunciante, se procederá a la publicación de la renuncia y al llamamiento de los herederos, en la misma forma y en los mismos términos que cuando se inicia el juicio de sucesión.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 881 al 904)

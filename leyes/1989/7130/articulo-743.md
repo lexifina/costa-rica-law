@@ -1,6 +1,5 @@
-ARTICULO 743.- Concursado ausente.
-Si el concursado no fuerehabido para notificarle la declaratoria, o
-se ausentare del lugar sin dejar apoderado bastante que lo represente en
-el concurso, se le tendrá por notificado con la publicación a que se
-refiere el inciso k) del artículo 740. Para efectos de recursos, el plazo
-se contará a partir del día siguiente de la última publicación.
+CAPITULO II
+Convenio preventivo
+ARTÍCULO 743.- Proposición y requisitos
+El deudor que se encuentrare (sic) en crisis económica y financiera o en una situación de hecho que, según la ley, permita someterlo a ejecución colectiva, podrá proponer un convenio a sus acreedores, siempre y cuando no esté declarado en quiebra, en concurso civil ni se esté tramitando un procedimiento de administración y reorganización con intervención judicial.
+(Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 743 es ahora 766)

@@ -1,15 +1,3 @@
-ARTICULO 762.- Remoción del curador.
-La remoción del curador se decretará de oficio o a solicitud de parte
-si:
-1) Omitiere depositar sumas al finalizar el respectivo período
-mensual de administración, salvo lo dispuesto en el párrafo final del
-artículo 754.
-2) A juicio del juez no cumpliere los deberes de su cargo con la
-corrección y diligencia debidas.
-3) No activare la tramitación del proceso.
-Si la remoción se decretare a solicitud del interesado, se tramitará
-en vía incidental.
-La remoción implicará la pérdida total de los honorarios y el
-impedimento para ser nombrado de nuevo en el mismo proceso.
-Contra el auto en el que se decrete la remoción no habrá más
-recurso que el de revocatoria.
+ARTÍCULO 762.- Averiguaciones previas.
+Podrán preceder a la declaratoria, las averiguaciones y diligencias justificativas que el tribunal juzgue necesarias; pero deberán hacerse de un modo sumario y aun sin audiencia del deudor, si el juez considerare conveniente omitirla.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 739 al 762)

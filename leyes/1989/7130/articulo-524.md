@@ -1,6 +1,2 @@
-ARTICULO 524.- Arbitraje de equidad.
-En caso de equidad, el procedimiento podrá ajustarse a lo dispuesto
-en el artículo 522. Pero en todo caso los árbitros oirán a las partes y
-les darán la oportunidad de ofrecer las pruebas que fueren necesarias. No
-obstante, se someterán a las reglas de actuación que las partes hubieren
-establecido en el compromiso.
+ARTÍCULO 524.- Arbitraje de equidad.
+(Derogado por el artículo 75 de la Ley de Resolución Alterna de Conflictos No.7727 de 9 de diciembre de 1997)

@@ -1,16 +1,6 @@
-ARTICULO 813.- Trámite.
-El funcionario celebrante hará saber a los pretendientes el
-impedimento opuesto, y la oposición pasará al juez de primera instancia,
-con emplazamiento previo a aquéllos para que se apersonen ante él dentro
-de tercero día. Esta resolución deberá notificárseles personalmente a los
-interesados.
-Si el funcionario celebrante fuere un juez, éste dará trámite a la
-oposición y resolverá lo que corresponda.
-En ambos casos, el juez conferirá un plazo de ocho días para ofrecer
-las pruebas que fueren procedentes. Una vez vencido ese plazo o evacuadas
-las pruebas, se dictará la resolución que corresponda, la cual será
-apelable en ambos efectos.
-En el trámite de la oposición, tanto el opositor como los
-pretendientes podrán gestionar por escrito o verbalmente; en este último
-caso, el funcionario respectivo levantará las actas
-correspondientes.
+ARTÍCULO 813.- Concurso en el extranjero.
+Si el representante de un concurso extranjero reclamare bienes del deudor existentes en la República, la autoridad requerida, con tal objeto deberá dar aviso por edicto que se publicará por una vez en el Boletín Judicial y en un periódico de circulación nacional, de la reclamación hecha, y si ningún acreedor de la República se presentare dentro de los dos meses siguientes a la última publicación, las sumas reclamadas se pondrán a disposición del concurso extranjero.
+Los acreedores residentes en la República podrán demandar el cobro de sus créditos y ejecutar sus bienes existentes en ella, o abrir un concurso para distribuírselos. En el primer caso, el ejecutado se hará representar por un curador de nombramiento del juez.
+Lo que sobrare, satisfechos los acreedores nacionales, se remitirá a la masa del concurso pendiente en el extranjero.
+No se inscribirá título de transmisión hecha por el concurso extranjero, si no se presentare la constancia de haberse hecho el llamamiento de que habla el párrafo primero.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 790 al 813)

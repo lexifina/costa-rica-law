@@ -1,11 +1,4 @@
-ARTICULO 833.- Personas obligadas a la tutela.
-La Procuraduría General de la República o el actor de la solicitud,
-si no hubiere sido aquélla, deberá expresar las personas obligadas a la
-tutela.
-Si se dijera que no la hay, deberá acreditarse ese hecho
-sumariamente, lo que podrá hacerse al mismo tiempo que la información de
-que habla el inciso 8) del artículo anterior.
-Si resultare que hay pariente obligado a la tutela, deberá llamársele
-para que dentro de tres días, se presente a aceptar o a exponer el motivo
-de excusa que tuviere. Será aplicable en su caso, la disposición del
-inciso 4) del artículo anterior.
+ARTÍCULO 833.- Alimentos.
+En el mismo auto en el que se decrete el depósito de una persona, el juez le señalará, para alimentos provisionales, la cantidad que prudencialmente crea necesaria, atendiendo el capital que le pertenezca, o el que posea el que ha de darlos.
+Para la seguridad del pago de los alimentos, el juez acordará las medidas que estime necesarias y que podrán llegar hasta el embargo y el remate de bienes.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 810 al 833)

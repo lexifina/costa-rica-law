@@ -1,17 +1,11 @@
-ARTICULO 785.- Fenecimiento del concurso.
-Con la ejecución de la distribución final quedará fenecido el
-proceso. El concurso también podrá darse por terminado cuando no haya
-bienes que realizar, una vez firme la resolución en la que se emita
-pronunciamiento sobre el reconocimiento de los créditos.
-El juez lo dispondrá así por medio de un auto que se publicará por
-una vez en el Boletín Judicial y en un periódico de circulación nacional.
-La resolución que declare fenecido el concurso deberá comunicarse al
-Registro Público, para que, en adelante pueda inscribir títulos otorgados
-por o a favor del concursado.
-Esto no obstará para que, si luego aparecieren pertenencias del
-concursado, se reabra el concurso, a solicitud de cualquier interesado, y
-se ordene notificar la reapertura a los acreedores que hubieren sido
-aceptados, para que dichos bienes se realicen y distribuyan entre ellos,
-a cuyo fin se nombrará un curador específico, y se le dará preferencia,
-siempre que fuere posible, al último que hubiere desempeñado esas
-funciones.
+ARTÍCULO 785.- Remoción del curador.
+La remoción del curador se decretará de oficio o a solicitud de parte si:
+1) Omitiere depositar sumas al finalizar el respectivo período mensual de administración, salvo lo dispuesto en el párrafo final del artículo 754 (*).
+(* El indicado artículo es ahora el 778)
+2) A juicio del juez no cumpliere los deberes de su cargo con la corrección y diligencia debidas.
+3) No activare la tramitación del proceso.
+Si la remoción se decretare a solicitud del interesado, se tramitará en vía incidental.
+La remoción implicará la pérdida de los honorarios y el impedimento para ser nombrado de nuevo en el mismo proceso.
+Contra el auto en el que se decrete la remoción no habrá más recurso que el de revocatoria.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 762 al 785)
+(Texto así modificado por Resolución de la Sala Constitucional No. 6113-96 de las 15:12 horas del 12 de noviembre de 1996).

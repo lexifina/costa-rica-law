@@ -1,4 +1,5 @@
-ARTICULO 869.- Gastos.
-Los gastos del procedimiento sobre ofertas, si fueren aceptadas,
-serán a cuenta del acreedor, cuando apareciere que éste se haya negado a
-recibir el pago ofrecido privadamente.
+ARTÍCULO 869.- Trámite.
+Cuando el actor no fuere el cónyuge del inhábil, el juez convocará, por medio de un edicto que se publicará una vez en el Boletín Judicial, a las personas a quienes corresponda la curatela, conforme con el artículo 223 (*) del Código de Familia, para que se presenten a encargarse de ella dentro del plazo de quince días contados desde la publicación.
+Si hubiere pariente obligado a la curatela, se le llamará para que, dentro de tres días, se presente a su aceptación. Si no constare la existencia de ningún pariente obligado a la curatela, o si los que existieren tuvieren impedimento o excusa para servirla, transcurrido el plazo de que habla el párrafo anterior, el juez procederá a nombrar curador de su elección al inhábil.
+(*) El artículo indicado en ahora el 230.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 846 al 869)

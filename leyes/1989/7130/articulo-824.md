@@ -1,12 +1,4 @@
-CAPITULO IV
-Insania
-ARTICULO 824.- Escrito inicial.
-La solicitud de insania de una persona deberá reunir los siguientes
-requisitos:
-1) El nombre y las calidades del solicitante y del presunto insano.
-2) La indicación del parentesco existente entre el solicitante y el
-insano. A falta de parientes la solicitud podrá hacerla la Procuraduría
-General de la República.
-3) Los hechos que motivan la solicitud.
-4) El dictamen médico en el que se diagnostique la enfermendad.
-5) La determinación de los bienes del insano, si los hubiere.
+ARTÍCULO 824.- Normas aplicables.
+Las pretensiones a que se refiere el artículo 796 (*) que deban ventilarse en proceso no contencioso, y que no tengan señalada una tramitación especial en el título siguiente, se regirán por las disposiciones generales de este título I.
+(* El indicado artículo es ahora el 819)
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 801 al 824)

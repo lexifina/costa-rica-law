@@ -1,16 +1,6 @@
-ARTICULO 731.- Aprobación o improbación del convenio.
-Verificada la junta y agotado el trámite de los incidentes de que
-habla el párrafo segundo del artículo anterior, el juzgado dictará la
-sentencia de aprobación o improbación del convenio. Para ello gozará del
-plazo de quince días.
-Si la sentencia fuere aprobatoria de un convenio de cesión de bienes,
-en ella se nombrará, de entre los acreedores una comisión, de dos o más
-miembros que, presidida por el curador, se encargará de llevar a cabo la
-liquidación de los bienes y la distribución del producto, de todo lo cual
-informará al juzgado.
-Si en la sentencia se aprobare un convenio dilatorio, la
-administración de los bienes continuará en la forma prescrita en el
-artículo siguiente, y el juzgado tomará todas las providencias que estime
-oportunas para asegurar el cumplimiento del convenio.
-En la misma sentencia en la que se imprueba el convenio, el juzgado
-deberá declarar el concurso del deudor.
+ARTÍCULO 731.- Efectos de la aprobación del plan
+Una vez aprobado en firme, el plan sustituirá cualquier medida adoptada anteriormente que se le oponga y obligará a los acreedores anteriores a la instauración del procedimiento, incluidos los reales, propios o equiparados, el Estado y sus instituciones, excepto a los acreedores alimentarios y laborales, quienes mantendrán siempre el derecho de hacer efectiva su pretensión individualmente, y a los hipotecarios y prendarios con demandas judiciales no afectadas por el procedimiento, hasta donde alcance el valor de las cosas dadas en garantía; además, el plan hará fenecer los procesos suspendidos de conformidad con el artículo 723, sin responsabilidad procesal para la empresa.
+Las obligaciones se pagarán directamente a los acreedores en los términos previstos en el plan aprobado, el cual deberá respetar, en todo caso, los privilegios que la ley acuerde para los acreedores.
+El juez podrá decretar que, por el resto del procedimiento, se ajuste el pago de los intereses señalados en el artículo 724 de este Código en el porcentaje que estime conveniente para el caso específico, previa consulta pericial obligatoria.
+Los intereses que el acreedor dejare de percibir serán adicionados al principal de la deuda aunque no generarán, a su vez, intereses. Serán cancelados cuando la empresa tenga mayor capacidad de pago, según resolución que dicte el juez y previo estudio pericial que así lo recomiende.
+(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)

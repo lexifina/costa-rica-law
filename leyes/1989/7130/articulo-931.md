@@ -1,11 +1,5 @@
-ARTICULO 931.- Forma del juramento.
-A los que debieren prestar juramento se les exigirá según esta
-fórmula: ¿ Juráis por Dios decir la verdad en lo que fuéreis interrogado?
-A lo cual se contestará: Sí, juro.
-Si el juramento se le pidiere a un perito, curador u otra persona que
-deba llenar un cometido, la fórmula será: ¿Juráis por Dios cumplir bien
-vuestro cargo?
-Los que no creyeren en Dios jurarán por lo más sagrado de sus
-creencias.
-A los confesantes y testigos se les harán saber previamente las penas
-del perjurio y del falso testimonio.
+ARTÍCULO 931.- Objeciones a la partición.
+Las objeciones que oportunamente se le formulen a la partición se tramitarán conjuntamente en la vía incidental, y se decidirán en la misma resolución en la que se emita pronunciamiento sobre la partición.
+Si prosperare alguna objeción, el juez aplicará lo dicho en la parte final del artículo anterior.
+La resolución en la que emita pronunciamiento sobre la participación, cuando hubieren objeciones, tendrá la autoridad y la eficacia de la cosa juzgada material, y emitirá el recurso de apelación, y aun el de casación, si procediere conforme con la cuantía.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 908 al 931)

@@ -1,7 +1,2 @@
-ARTICULO 178.- Requisitos de la cédula.
-En la cédula para notificaciones se expresará la naturaleza y el
-objeto del proceso, los nombres y los apellidos de las partes, la persona
-a quien deba entregarse la cédula, y copia literal de la parte dispositiva
-de la resolución que haya de notificarse, la que será firmada por el
-notificador. Se extenderá en papel común, y se agregarán las copias de
-los escritos y documentos respectivos.
+ARTÍCULO 178.- DEROGADO.
+(Derogado por el artículo 20, inciso a), de la Ley de Notificaciones No.7637 de 21 de octubre de 1996)

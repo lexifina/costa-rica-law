@@ -1,10 +1,4 @@
-ARTICULO 924.- Inventario y avalúo.
-Hecho el inventario por elalbacea, éste lo presentará al notario a
-fin de que lo protocolice, para lo cual dicho funcionario exigirá la
-aceptación de todos los interesados.
-El avalúo lo hará un perito que designará el notario, de acuerdo con
-los requisitos y prohibiciones del párrafo final del artículo 899. El
-perito no deberá tener nexo alguno con los interesados ni con el notario.
-El dictamen será rendido dentro de los diez días siguientes al de la
-protocolización del inventario. Dicho avalúo será protocolizado, con la
-aceptación de los interesados.
+ARTÍCULO 924.- Aprobación del inventario.
+Si la mayoría de los interesados presentes en la junta de que habla el artículo 903 (*) estuviere conforme con el inventario, el tribunal lo aprobará sin perjuicio de que los disidentes formulen las articulaciones a que se refiere el artículo anterior.
+(* El artículo indicado es ahora el 926)
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 901 al 924)

@@ -1,10 +1,5 @@
-ARTICULO 755.- Autorización y gastos.
-Cuando el curador solicite la autorización de que hablan los
-artículos 933 y 935 del Código Civil, el juez resolverá lo que
-corresponda, previa audiencia por tres días al deudor y a los acreedores
-que hubieren legalizado sus créditos.
-Para atender los gastos urgentes, el curador pedirá al juez que de
-los depósitos de dinero existentes se le entregue la suma necesaria, y
-éste la fijará prudencialmente según las circunstancias.
-Los gastos no urgentes serán autorizados por el juez, previa
-audiencia por tres días a los acreedores.
+ARTÍCULO 755.- Personas afectadas por el convenio
+El convenio aprobado por sentencia firme afectará a todos los acreedores de créditos anteriores al auto de apertura del procedimiento, con las excepciones y en los términos resultantes de esta ley.
+Tratándose de una sociedad, el convenio afectará a los socios ilimitadamente responsables.
+En cuanto a fiadores y obligados solidariamente, regirá lo dispuesto en los artículos 968 del Código Civil y 943 del Código de Comercio, según se trate de concurso o quiebra.
+(Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 755 es ahora 778)

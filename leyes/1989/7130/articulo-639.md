@@ -1,6 +1,3 @@
-ARTICULO 639.- Suspensión de la inscripción provisional.
-La falta de inscripción a que se refiere el artículo anterior, no
-obsta para que se reciban en el Registro las comunicaciones de decreto y
-de práctica de embargo, pero se suspenderá la inscripción provisional
-mientras se verifica la inscripción del inmueble respectivo.
-En este caso, el mandamiento contendrá la descripción de la finca.
+ARTÍCULO 639.- Suspensión de la anotación
+La falta de inscripción referida en el artículo anterior no obsta para que el Registro reciba la comunicación del decreto de embargo; pero la anotación provisional se suspenderá mientras se verifica la inscripción del bien respectivo.
+(Así reformado por el artículo 180 del Código Notarial No.7764 de 17 de abril de 1998)

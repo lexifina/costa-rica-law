@@ -1,19 +1,7 @@
-ARTICULO 455.- Desahucio administrativo.
-Procederá el desahucio administrativo contra los administradores,
-encargados, porteros, guardas, empleados públicos o particulares,
-pensionistas o pasajeros y peones, en relación con las casas de
-habitación, departamentos, locales, oficinas o fincas que ocupen por razón
-de los servicios que presten o paguen. En estos casos y en otros de igual
-índole, no habrá necesidad de promover el desahucio judicial, y las
-personas indicadas deberán abandonar las casas, departamentos, locales o
-fincas, tan pronto como cesen en los servicios que presten, o se les
-comunique que no se les suministrará más hospedaje. Si hubiere
-oposición, el dueño o la persona con derecho a poseer podrá recurrir a la
-autoridad de policía correspondiente, la que, sin trámite alguno,
-procederá al desalojamiento; pero ésta, en casos especiales, a su juicio,
-podrá conceder verbalmente un plazo prudencial con ese fin.
-Tratándose de trabajadores en fincas rurales, deberá concedérseles,
-necesariamente, un plazo no menor de ocho ni mayor de quince días, que
-comenzará a correr a partir del día en que la autoridad de policía les
-prevenga el desalojamiento, mediante un acta que firmará con el
-interesado, y, si éste no quisiere o no pudiere, con dos testigos.
+ARTÍCULO 455.- Desahucio administrativo.
+El desahucio administrativo procederá en los casos que establece el artículo 7 de la Ley general de arrendamientos urbanos y suburbanos.
+En tales casos, no habrá necesidad de promover desahucio judicial y quienes ocupen el bien deberán desalojarlo tan pronto como se lo solicite el dueño, el arrendador o la persona con derecho a poseerlo o su representante.
+De existir oposición, la autoridad de policía correspondiente, a solicitud del interesado con derecho a pedir la desocupación, procederá al desalojamiento, sin trámite alguno.
+En casos especiales, la autoridad de policía, a su juicio, podrá conceder verbalmente un plazo prudencial para la desocupación.
+Cuando se trate de trabajadores de fincas rurales necesariamente deberá concedérseles, para el desalojamiento, un plazo no menor de quince días ni mayor de treinta, que comenzará a correr a partir del día en que la autoridad de policía les haga la prevención, mediante acta que firmará con el interesado o, si este no quiere o no puede firmar, con dos testigos.
+(Así reformado por el artículo 131 de la Ley de Arrendamientos Urbanos No.7527 del 10 de julio de 1995)

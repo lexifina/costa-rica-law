@@ -1,13 +1,13 @@
-ARTICULO 446.- Sentencia desestimatoria.
-En la sentencia desestimatoria se revocará la ejecución y se
-levantará el embargo.
+ARTÍCULO 446.- Sentencia desestimatoria.
+En la sentencia desestimatoria se revocará la ejecución y se levantará
+el embargo.
 En este caso el actor podrá solicitar, en el mismo expediente, que se
 tramite su demanda como ordinaria o abreviada, según corresponda, en
 escrito que deberá reunir los requisitos del artículo 290, y se le dará
 traslado al demandado, todo conforme con lo establecido sobre el proceso
-ordinario o abreviado. En este nuevo proceso se tendrá como prueba toda
-la evacuada en el proceso ejecutivo, aun cuando no hubiere sido ofrecida
-por las partes.
+ordinario o abreviado. En este nuevo proceso se tendrá como prueba toda la
+evacuada en el proceso ejecutivo, aun cuando no hubiere sido ofrecida por
+las partes.
 La demanda deberá presentarse dentro de los ocho días siguientes a
 aquél en el que hubiere vencido el plazo para apelar de la sentencia de
 primera instancia, si no hubiere sido recurrida, o de la notificación de

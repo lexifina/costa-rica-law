@@ -1,4 +1,4 @@
-ARTICULO 929.- Normas prácticas.
-La Corte Suprema de Justicia dictará, de oficio o a propuesta de los
-tribunales, las normas prácticas que sean necesarias para la aplicación de
-este Código.
+ARTÍCULO 929.- Partición.
+Resueltas mediante auto firme las oposiciones que se hubieren hecho al inventario, al avalúo o a las legalizaciones, o hecha la aprobación por el tribunal en ausencia de oposiciones también en auto firme, el albacea procederá a pedir, privadamente a los herederos, las instrucciones y las aclaraciones que fueren necesarias para hacer la partición. Si no las obtuviere, solicitará al tribunal la convocatoria a una junta que se celebrará a la mayor brevedad, cuya resolución será notificada en la forma establecida en el artículo 175. Los acuerdos que se tomen en la junta serán las bases de la partición. Si no se produjere ningún convenio, se venderán en remate los bienes en cuya división haya desacuerdo, a fin de distribuir su producto.
+Si a la junta no concurrieren todos los herederos, el albacea formará la partición para lo cual procurará la mayor equidad en la adjudicación de los bienes, previo pago de las costas y de las deudas del sucesorio, o de indicación de bienes con qué hacerlo.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 906 al 929)

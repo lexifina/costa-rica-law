@@ -1,11 +1,4 @@
-ARTICULO 890.- Testamentos abierto y privilegiado.
-Si se tratare de un testamento abierto, pero no escrito en el
-protocolo de un notario, se verificará el examen de los testigos según lo
-dicho en los incisos 1), 2) y 3) del artículo anterior.
-En el caso de testamento privilegiado, se comprobará además la
-existencia, en su oportunidad, de la circunstancia excepcional que hubiere
-dado lugar al otorgamiento de esa forma de testamento, para lo cual, de
-ser posible, se recibirá declaración a la persona ante la cual se hubiere
-otorgado.
-Si el resultado fuere favorable, el juez insertará literalmente el
-testamento en el acta que deberá levantar.
+ARTÍCULO 890.- Cosa determinada.
+Si el objeto debido fuere una cosa determinada en su individualidad y pagadera, sea en el lugar en el que ella se encuentre o en otro lugar que no sea el del domicilio del acreedor, o si el objeto no fuere determinado sino en cuanto a su especie, no habrá necesidad de que las ofertas sean reales, sino que bastará con que el funcionario intime al acreedor, para que ocurra a recibir lo que se le debe, al lugar en el que ha de hacerse el pago. En el acta se consignará la intimación hecha y se determinará por indicaciones precisas el objeto que forme la materia de la prestación.
+En los casos de este artículo, las ofertas serán reales si el pago debe hacerse en el domicilio del acreedor.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 867 al 890)

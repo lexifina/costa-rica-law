@@ -1,19 +1,4 @@
-ARTICULO 736.- Resolución del convenio.
-El convenio se resolverá a solicitud del curador o de uno o varios
-acreedores:
-a) Cuando las garantías prometidas por el deudor no fueren otorgadas
-de acuerdo con lo pactado.
-b) Cuando el deudor incumpliere cualesquiera obligaciones derivadas
-del convenio.
-Sin perjuicio de la responsabilidad penal que pudiera
-establecerse, de oficio o a solicitud del curador o de uno o varios
-acreedores, el juzgado decretará la nulidad del convenio, si determinare
-que ha sido exagerado dolosamente el pasivo o sustraído, o simulada parte
-considerable del activo.
-Ambas pretensiones deberán plantearse por la vía incidental, dentro
-del plazo de seis meses desde el descubrimiento de los hechos que las
-motiven, pero en todo caso antes de que se cunmpla un año del vencimiento
-del último pago establecido en el convenio.
-En el auto en el que se decrete la nulidad o la resolución del
-convenio, el juzgado deberá declarar el concurso del deudor; y quedarán
-sin efecto las concesiones otorgadas a favor de éste.
+ARTÍCULO 736.- Venta de bienes gravados
+La venta de un bien gravado, que deba efectuarse en ejecución del plan, será por el valor real que se establezca pericialmente, en remate judicial, salvo que el titular de la empresa, la administración o el interventor, cuando asuma directamente la administración de la empresa, sean autorizados por el juzgado para venderlo en forma directa. En los casos anteriores, se requerirá la aquiescencia del acreedor garantizado.
+En la venta de dichos bienes, se tendrán por exigibles anticipadamente las obligaciones garantizadas no vencidas y, con el producto, se pagará de inmediato a los acreedores respectivos, junto con los intereses totales anteriores a la presentación del procedimiento y los posteriores que correspondan de acuerdo con la ley o el plan aprobado.
+(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)

@@ -1,3 +1,4 @@
-ARTICULO 800.- Días y horas hábiles.
-Para los asuntos no contenciosos son hábiles todos los días y horas
-sin excepción.
+ARTÍCULO 800.- Ejecución del convenio aprobado. Inmediatamente después de la aprobación, el curador tomará las providencias necesarias para asegurar el cumplimiento de las obligaciones impuestas al concursado por el convenio, y satisfará los reclamos de los acreedores de la masa y de los reivindicantes, o depositará lo que les corresponda a éstos, si sus créditos no estuvieren aun reconocidos o comprobados.
+Verificadas estas diligencias, se tendrá por terminado el concurso, cuya resolución que se dictará al efecto y se publicará de igual manera como se hizo con la declaratoria del concurso. El curador procederá, en su caso, a entregarle al concursado todos los bienes, efectos, libros y papeles y a rendirle cuenta de su administración, en los quince días siguientes.
+(Así reformado el párrafo anterior por el artículo 7º de la ley Nº 7421 de 18 de julio de 1994)
+(Así corrida su numeración por el artículo 1° de ley N° 7643 del 17 de octubre de 1996 que lo traspaso del antiguo artículo 777 al 800)

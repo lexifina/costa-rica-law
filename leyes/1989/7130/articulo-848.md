@@ -1,15 +1,9 @@
-CAPITULO VI
-Ausencia y muerte presunta
-Sección primera
-Ausencia
-ARTICULO 848.- Medidas provisionales.
-En los casos del artículo 49 del Código Civil, acreditados los hechos
-previstos en esa disposición, el juez le nombrará curador al ausente y
-ordenará la publicación de tres edictos en el Boletín Judicial, en días
-consecutivos, en los cuales se hará saber el nombramiento de curador, a
-fin de que el ausente pueda tener conocimiento de lo hecho.
-Esa publicación se hará también por una vez en uno de los periódicos
-de circulación nacional. Podrá hacerse además por medio de la radio.
-Todos los años, a contar desde el nombramiento de curador, deberá
-publicarse un edicto en el que se llame al ausente, en la misma forma
-establecida en los dos párrafos anteriores.
+ARTÍCULO 848.- Trámite.
+Recibido el escrito, el juez designará un curador para que represente al presunto insano dentro del proceso, y ordenará que el Departamento de Medicina Legal del Organismo de Investigación Judicial examine al presunto insano y emita un dictamen, el cual deberá comprender los siguientes extremos:
+1) El carácter propio de la enfermendad (sic).
+2) Los cambios que puedan sobrevenir durante el curso de la enfermedad, la duración, la posible terminación, o si, por el contrario, es incurable.
+3) Las consecuencias de la enfermedad en el comportamiento social y en la administración de los bienes del enfermo;.
+4) El tratamiento idóneo.
+El dictamen deberá rendirse en un plazo no mayor de un mes, para lo cual se tomarán las medidas que fueren necesarias.
+En la misma resolución ordenará notificar a la Procuraduría General de la República, cuando ésta no fuera la promotora.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 825 al 848)

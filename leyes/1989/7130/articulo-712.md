@@ -1,11 +1,3 @@
-ARTICULO 712. Trámite previo.
-De la solicitud del acreedor el juzgador conferirá audiencia por tres
-días al deudor.
-Tanto en la solicitud del deudor como en la del acreedor, el juzgado
-podrá designar un perito en la materia, para que haga un somero estudio e
-informe de la situación del deudor; también podrá ordenar cualquier otra
-prueba que considere indispensable. El informe del perito y toda la demás
-prueba que se ordene, deberá quedar evacuada dentro del plazo
-improrrogable de ocho días; si así no se hiciere, el juzgado prescindirá
-de ella sin necesidad de resolución alguna, y resolverá lo que
-corresponda.
+ARTÍCULO 712.- Entidades excluidas del procedimiento
+Se excluyen de este procedimiento los bancos y las demás entidades públicas o privadas sometidas a la fiscalización directa de la Superintendencia General de Entidades Financieras, las que se rigen tanto por la Ley Orgánica del Sistema Bancario Nacional como por la del Banco Central de Costa Rica.
+(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)

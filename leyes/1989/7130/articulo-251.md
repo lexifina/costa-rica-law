@@ -1,4 +1,4 @@
-ARTICULO 251.- Citación a la parte contraria.
+ARTÍCULO 251.- Citación a la parte contraria.
 La parte contraria será citada para que presencie la práctica de la
 prueba, salvo que dicha parte no fuere conocida o no residiere en el país,
 y no tuviere apoderado, en cuyo caso se citará al representante de la

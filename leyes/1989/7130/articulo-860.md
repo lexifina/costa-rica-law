@@ -1,4 +1,5 @@
-ARTICULO 860.- Hipoteca y otros acreedores.
-Para hipotecar o pignorar bienes del menor, tomar dinero prestado en
-su nombre, proceder a la división de bienes, aceptar o repudiar herencias,
-se observarán las disposiciones anteriores, en lo que fueren aplicables.
+ARTÍCULO 860.- Ejercicio de la tutela.
+Garantizada en forma la administración de la tutela, e inscrita la hipoteca que hubiere dado el tutor, o practicada cualquier otra diligencia que el juez haya creído conveniente para la eficacia de la garantía que se hubiere rendido, el juez decretará auto en el que se facultará al tutor para entrar en el pleno ejercicio de la tutela.
+De este auto se dará certificación, a fin de que el tutor pueda acreditar su personalidad.
+Dicha certificación deberá contener, además, lo que previene el artículo 835.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 837 al 860)

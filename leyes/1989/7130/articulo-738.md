@@ -1,5 +1,4 @@
-ARTICULO 738.- Casos urgentes.
-En casos urgentes como los de fuga del deudor, ocultación de bienes
-u otros semejantes, hasta en día feriado podrán tomarse las provindencias
-de seguridad con respecto a los bienes del deudor, si se dieran los demás
-requisitos que prevé el artículo anterior.
+ARTÍCULO 738.- Conclusión normal del proceso
+El proceso concluirá, de pleno derecho, una vez transcurrido el plazo del plan. Los efectos que con él se crearon dejarán de producirse a partir de entonces, o con anterioridad, cuando el deudor demuestre, mediante la aportación de los balances de situación, los estados de ganancias y pérdidas, la atención de pasivos o por cualquier otro medio, que se ha superado la situación económica y financiera difícil.
+Se entiende que la situación de la empresa es normal, a pesar de la existencia de saldos insolutos, siempre y cuando estos puedan seguir atendiéndose en los mismos términos y condiciones en que fueron pactados originalmente, aun cuando se trate de créditos posteriores a la instauración del procedimiento.
+(Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 738 es ahora 761)

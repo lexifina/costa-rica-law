@@ -1,6 +1,4 @@
-ARTICULO 864.- Oposición.
-Si al hacerse el deslinde naciere alguna oposición entre los
-colindantes, se sobreseerá, desde luego en cuanto al deslinde de la parte
-de la finca confinante con la del opositor u opositores, con reserva de
-que se resuelva la oposición en el juicio que corresponda, y sin que ésta
-sea obstáculo para que el deslinde se continúe en el resto de la finca.
+ARTÍCULO 864.- Incidentes.
+Las excusas de los tutores nombrados, las causas de incapacidad para ejercer la tutela, las de exclusión y cualquier otra cuestión que surja en el expediente sobre el nombramiento de tutor y el discernimiento del cargo, se sustanciarán y decidirán por los trámites señalados para los incidentes.
+Por los mismos trámites de los incidentes se tramitará la remoción del tutor.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 841 al 864)

@@ -1,13 +1,3 @@
-ARTICULO 754.- Informes mensuales.
-El curador deberá rendir informes mensuales sobre el estado de los
-ingresos y egresos; el juez formará con ellos un legajo aparte y se
-limitará a tenerlos por presentados sin resolución alguna, salvo que
-considere necesario hacer alguna observación al curador.
-En casos muy calificados, a criterio del juez, podrá dispensarse al
-curador de la obligación de rendir informes mensuales.
-Cuando hayan desempeñado el cargo varios curadores, se formará un
-legajo para cada uno de ellos.
-El juez cuidará de que el curador deposite en el lugar que señale la
-ley las cantidades que, según los estados mensuales, aparezca tener
-sobrantes. No obstante, el curador podrá mantener en su poder la suma de
-diez mil colones (¢10.000) para gastos de administración.
+ARTÍCULO 754.- Facultades del deudor y vigilancia de la administración
+Durante la instrucción del procedimiento y la ejecución del convenio, cuando este no consista en una cesión inmediata de los bienes a los acreedores, se aplicará al deudor o a la administración, en su caso y en lo pertinente, lo dispuesto en el artículo 733; mientras tanto, el curador vigilará la administración que el deudor haga de sus bienes y avisará al juzgado de cualquier irregularidad que observe. Si esta fuere grave, el convenio se tendrá por insubsistente y de seguido, se declarará el concurso o la quiebra, según corresponda.
+(Así adicionado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996. El antiguo artículo 754 es ahora 777)

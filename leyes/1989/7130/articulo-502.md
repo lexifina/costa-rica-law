@@ -1,6 +1,6 @@
 CAPITULO II
 Proceso monitorio
-ARTICULO 502.- Demanda, documento y prevención.
+ARTÍCULO 502.- Demanda, documento y prevención.
 Si el acreedor tuviere en su poder un documento sin fuerza ejecutiva,
 en el que conste la obligación de pagar una determinada suma líquida y
 exigible, presentará su demanda con las formalidades del artículo 439, con

@@ -1,18 +1,8 @@
-Sección sexta
-Distribución de la masa
-ARTICULO 767.- Cuenta distributiva.
-Pasados ocho días, y antes de los quince posteriores al de la fecha
-en la que se encuentre firme la resolución en la cual el juez se pronuncie
-sobre el reconocimiento de créditos, el curador deberá presentar su cuenta
-distributiva de las existencias en dinero.
-En la cuenta se pondrá como distribuible la existencia líquida que
-hubiere; y, enseguida, se especificarán los créditos que hubieren sido
-reconocidos; los de los acreedores extranjeros que no se hayan presentado
-y fueren reconocidos en la lista del curador, con tal de que no esté
-vencido el plazo de su legalización; los de los acreedores rechazados que
-hayan iniciado ya el correspondiente trámite para comprobarlos; los de los
-acreedores reconocidos por la mayoría, pero contra los cuales hubiere
-demanda pendiente establecida por uno o más de los acreedores de la
-minoría; y los de los acreedores condicionales reconocidos.
-Ultimamente se hará la distribución proporcional entre todos los
-créditos mencionados.
+Sección segunda
+Procesos pendientes y posteriores
+ARTÍCULO 767.- Fuero de atracción.
+Serán atraídos por el concurso:
+1) Los procesos ejecutivos establecidos contra el fallido, antes de la declaratoria de concurso, salvo los hipotecarios y prendarios en que haya señalamiento para remate.
+2) Los procesos ordinarios y abreviados pendientes en primera instancia contra el fallido, que afectaren expresa y directamente bienes que estén o deban estar en el concurso.
+3) Todos los procesos ordinarios y abreviados que se establezcan contra el concurso.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 744 al 767)

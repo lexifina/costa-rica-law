@@ -1,8 +1,4 @@
-ARTICULO 788.- Notificaciones.
-Por regla general, las resoluciones se les notificarán únicamente al
-curador y al concursado; pero si se tratare de resoluciones que afecten
-directamente a un acreedor o que recayeren sobre puntos promovidos por él,
-o en que interviniere como tercero, también se notificarán al acreedor que
-tuviere casa u oficina señalada con ese objeto.
-La convocatoria a junta se tendrá por notificada con la sola
-publicación del edicto.
+ARTÍCULO 788.- Renuncia de la preferencia.
+Los acreedores privilegiados, si quisieren apersonarse como acreedores comunes sin acogerse a lo dispuesto en el artículo 763 (*), desde su escrito de legalización, deberán indicar la parte de su crédito con respecto a la cual renuncian a la ventaja de su preferencia.
+(* El artículo indicado es ahora el 786)
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 765 al 788)

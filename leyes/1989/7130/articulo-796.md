@@ -1,23 +1,9 @@
-LIBRO IV
-Actividad judicial no contenciosa
-y disposiciones comunes
-TITULO I
-Disposiciones generales
-ARTICULO 796.- Casos que comprende.
-Se sujetarán al procedimiento establecido para la actividad judicial
-no contenciosa los siguientes casos:
-1) El depósito de personas.
-2) Oposiciones al matrimonio.
-3) Divorcio y separación por mutuo consentimiento.
-4) Insania.
-5) Tutela y curatela.
-6) Ausencia y muerte presunta.
-7) Enajenación, hipoteca o prenda de bienes de menores o de personas
-declaradas en estado de interdicción.
-8) Extinción del usufructo, uso, habitación y servidumbre, salvo, en
-cuanto a ésta que se trate de la resolución del derecho del constituyente.
-9) Deslinde y amojonamiento.
-10) Pago por consignación.
-11) Informaciones para perpetua memoria.
-12) Sucesiones.
-13) Cualesquiera otras que expresamente indique la ley.
+Sección sétima
+Convenio entre los acreedores y el concursado
+ARTÍCULO 796.- Convocatoria a junta.
+El juez accederá a cualquier convocatoria a junta que pida el concursado para tratar de convenio con los acreedores, si alguien ofreciere pagar por él.
+No podrá celebrarse la junta antes de que haya transcurrido el plazo para legalizar créditos.
+La convocatoria deberá publicarse por una vez en el Boletín Judicial y en un periódico de circulación nacional, con ocho días de anticipación, por lo menos, plazo que se contará a partir de la última publicación.
+Mediante estos trámites también podrá autorizarse cualquier liquidación extrajudicial, lo mismo que la terminación del concurso.
+En todo caso, para que haya convenio, será necesario que se produzca la mayoría que señala el artículo 948 del Código Civil.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 773 al 796)

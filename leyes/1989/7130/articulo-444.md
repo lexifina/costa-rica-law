@@ -1,4 +1,4 @@
-ARTICULO 444.- Confesión ficta o documento reconocido en rebeldía.
+ARTÍCULO 444.- Confesión ficta o documento reconocido en rebeldía.
 Cuando la ejecución se hubiere despachado por confesión ficta o por
 documento reconocido en rebeldía, no se permitirá al ejecutado desvirtuar
 los motivos que fundamentaron la rebeldía; le quedará su derecho a salvo

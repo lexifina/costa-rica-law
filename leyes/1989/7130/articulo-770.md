@@ -1,17 +1,7 @@
-ARTICULO 770.- Celebración de la junta.
-Abierta la sesión de la junta se leerá íntegramente la cuenta
-divisoria, lo mismo que los reparos hechos y la contestación del curador;
-y luego se discutirán estos reparos y los demás que se hicieren a la
-cuenta verbalmente.
-Si de la deliberación resultare conformidad, la repartición se
-llevará a efecto sin más trámite. Si los reclamos no se aquietaren, el
-juez, en el acta que deberá redactar, consignará los puntos que hayan
-quedado contenciosos y las partes interesadas en la oposición, la cual
-será juzgada sumariamente; pero no obstante tal oposición, se procederá al
-reparto de los dividendos no contradichos. Igualmente se les entregará el
-dividendo que les correspondiere a los acreedores de que habla el
-penúltimo caso del párrafo segundo del artículo 767, si dieren garantía de
-devolverlo, en caso de ser vencidos en la demanda establada contra ellos.
-Si un acreedor que hubiere hecho oposición oportunamente no
-compareciere a la junta, y si ningún otro acreedor acogiere los reparos
-como suyos, se tendrá la oposición por no hecha.
+ARTÍCULO 770.- Otros procesos.
+La personería del fallido quedará refundida en el concurso desde su apertura, y todos los procesos que afecten los bienes concursados se tramitarán con el curador, en vez del deudor.
+Tratándose de dichos procesos en los que no se aplicará el fuero de atracción radicados en el mismo juzgado donde se declaró el concurso, la intervención del curador será requerida desde que se le notifique la existencia de esos procesos. Si penden ante otro juzgado del mismo lugar, esa intervención deberá ordenarse desde la primera publicación de la declaratoria de concurso, y se le concederán tres días al curador para que se apersone; y si el proceso estuviere tramitándose en un juzgado de otro lugar o circuito, el plazo para apersonarse será de cinco días.
+El juez que conozca de los procesos indicados en el anterior párrafo, se abstendrá de todo procedimiento, cuando tuviere noticia de la declaratoria de concurso, hasta tanto no haya sido notificado el curador y hayan transcurrido, en su caso, los plazos concedidos a éste para apersonarse.
+El curador podrá pedir que los autos se repongan al estado que tenían cuando se publicó la declaratoria de concurso, si justificare que los procedimientos practicados en el intermedio han perjudicado los intereses del concurso.
+Esta gestión deberá establecerse en los cinco días siguientes a la primera notificación al curador.
+(La numeración de este artículo fue así modificada por el artículo 1º de la ley No.7643 de 17 de octubre de 1996, que lo traspasó del antiguo 747 al 770)

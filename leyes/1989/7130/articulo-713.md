@@ -1,24 +1,9 @@
-ARTICULO 713.- Apertura del proceso.
-Si con base en las pruebas correspondientes, el juzgado considerara
-que la situación económica o financiera del deudor justifica la aplicación
-del procedimiento, declarará abierto el proceso y hará los siguientes
-pronunciamientos:
-1) Nombramiento del curador, a quien le prevendrá que la aceptación
-del cargo deberá hacerla dentro del plazo de tres días.
-2) Decretará la ocupación e inventario de los bienes.
-3) Prevendrá al deudor que no abandone su domicilio ni salga del país
-sin autorización judicial, bajo el apercibimiento de que si lo hiciere,
-podrá ser juzgado por desobediencia a la autoridad. De ello informará a la
-Dirección General de Migración.
-4) Prohibirá que se hagan pagos al deudor, con la advertencia de que
-los obligados no quedarán descargados si contravinieren esta prohibición;
-les ordenará que hagan los pagos al curador o que los depositen en la
-cuenta corriente del juzgado.
-5) Concederá a los acreedores un plazo de quince días para legalizar
-sus créditos.
-6) Prevendrá al deudor y demás interesados el señalamiento de casa u
-oficina, dentro del perìmetro judicial, para atender notificaciones,
-conforme con lo dispuesto en los artículos 175 y 185.
-7) Ordenará publicar esa resolución por una vez en el Boletín
-Judicial y en un periódico de circulación nacional. Los plazos se contarán
-a partir de la última publicación.
+ARTÍCULO 713.- Solicitud del deudor
+La solicitud del deudor deberá contener la exposición de los hechos que motivan la crisis económica y financiera y de las medidas que se estiman indispensables para superarla. Asimismo, la indicación expresa de si, con anterioridad, ha sido declarado en quiebra o concurso civil o si ha sido beneficiario de un procedimiento preventivo concursal y, en su caso, de las fechas de conclusión del proceso respectivo.
+Deberán agregar a la solicitud los siguientes documentos:
+1.- Las declaraciones tributarias y sus anexos, que incluyan el balance de situación y el estado de ganancias y pérdidas de los cuatro últimos años anteriores a la fecha de la petición; se incluirán los costos de explotación y los libros de contabilidad, si por ley estuviere obligado a llevarlos, los que deberían haber estado legalizados y al día, por lo menos durante todo este lapso.
+2.- Un estado del activo y del pasivo, con indicación de nombres, calidades y domicilios de los deudores y acreedores y con el señalamiento, en su caso, de los gravámenes que afecten los bienes de la empresa.
+3.- Un plan, elaborado por un profesional en administración o en finanzas, de reconocida capacidad técnica e idoneidad moral e inscrito en el colegio respectivo. Este plan contendrá las razones que amparan la viabilidad económica y financiera de la empresa así como las medidas de reorganización que deberán adoptarse para superar la crisis y un cronograma de ejecución de ese plan, con señalamiento del plazo para cumplirlo. Cuando la empresa tenga autorización de oferta pública de títulos valores, la Comisión Nacional de Valores podrá colaborar realizando los análisis necesarios y elaborando el mencionado plan.
+4.- Cualquier otro documento que apoye los hechos expuestos o la indicación exacta del archivo donde se encuentra, a fin de que se haga venir a los autos.
+Si la solicitud careciere de alguno de esos requisitos, se le prevendrá subsanar la omisión dentro del plazo improrrogable de cinco días, con apercibimiento de que si no se cumpliere, la petición será rechazada de plano.
+(Así reformado por el artículo 1º de la ley No.7643 de 17 de octubre de 1996)
