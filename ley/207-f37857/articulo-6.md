@@ -1,0 +1,1 @@
+Artículo 6°-Las infracciones cometidas y falladas con anterioridad a la promulgación del presente Decreto, no serán tomadas en cuenta en la fijación de las multas, de acuerdo con la actual, escala, pero sí serán consideradas como elemento de juicio por la autoridad competente, en la apreciación de la falta misma.

@@ -1,0 +1,1 @@
+Artículo 3°-EI juzgamiento de las infracciones que se produzcan contra este Decreto se falIará con arreglo a lo dispuesto por el Código de Procedimientos Penales, en materia de faltas de Policía, excepto en cuanto a la acumulación de autos, la cual no podrá decretarse en ningún caso.
