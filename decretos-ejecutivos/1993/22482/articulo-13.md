@@ -1,0 +1,1 @@
+Artículo 13-El incumplimiento de las regulaciones establecidas en este reglamento, faculta a los funcionarios del Parque para expulsar al infractor y presentar la denuncia que corresponda en la vía judicial.
