@@ -1,0 +1,1 @@
+Artículo 2°-Para los fines del artículo 34 párrafo infine de la Ley de Planificación Urbana y en virtud de la declaratoria de interés para el Estado hecha en el artículo anterior, se establece que los planos, escrituras y otros documentos de los proyectos supra señalados no estarán sujetos al procedimiento establecido en los artículos 33 y 34 de la Ley de Planificación Urbana.
