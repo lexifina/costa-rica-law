@@ -18,5 +18,5 @@ REGLAMENTO A LA LEY DE DESARROLLO SOCIAL Y
 ASIGNACIONES FAMILIARES
 CAPITULO I
 De la comisión de solidaridad y desarrollo humano
-Artículo 1.- Crease la Comisión Nacional de Solidaridad y Desarrollo Humano en adelante CONASOL, como Organismo Asesor del Ministerio de Trabajo y Seguridad Social, y como ente de elaboración, coordinación y fiscalización de la política de financiamiento de programas destinados a la atención de la pobreza que se ejecuten con recursos del Fondo de Desarrro.o Socila y Asignaciones Familiares.
-(Así corregido mediante FE DE ERRATAS, publicada en La Gaceta N° 72 de 15 de abril de 1999).
+Artículo 1.- Crease la Comisión Nacional de Atención y Prevención de la Pobreza (CNAPP), adscrita al Ministerio de Trabajo y Seguridad Social, como órgano de desconcentración máxima para la elaboración, coordinación y fiscalización de la política social de programas destinados a la atención y prevención de la pobreza que se ejecuten con recursos del Fondo de Desarrollo Social y Asignaciones Familiares.
+(Así adicionado el texto del artículo anterior, mediante el artículo 1° del Decreto Ejecutivo No. 27794, de fecha 14 de abril de 1999.)

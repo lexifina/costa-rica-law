@@ -7,4 +7,4 @@ Artículo 2°—La Comisión de Solidaridad y Desarrollo Humano estará integrad
 6. Un representante de las Organizaciones Laborales.
 7. Un representante de la Confederación de Asociaciones de Desarrollo Humano.
 8. Un representante de la Unión Nacional de Gobiernos Locales.
-9. Un representante de los Beneficiarios de los programas que financia FODESAF.
+(Así reformado mediante el artículo 1° del Decreto Ejecutivo No. 27794, de fecha 14 de abril de 1999.)
