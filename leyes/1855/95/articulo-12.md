@@ -1,0 +1,1 @@
+Art 12°.- No obstante lo prevenido por la fracción 4° del referido art 94, puede la Junta conceder hasta dos años para pagar el total de los terrenos abiertos con el interés del seis por ciento anual, pero a condición de que el acto del remate pague el interesado los costos de la medida.

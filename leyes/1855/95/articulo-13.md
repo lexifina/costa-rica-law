@@ -1,0 +1,1 @@
+Art 13°.- El Tesorero con intervención de la Junta recibirá con la cuenta que corresponde las cantidades que satisfagan los interesados en la tierra, y no podrá disponer de partida alguna sino por acuerdo de la misma Junta

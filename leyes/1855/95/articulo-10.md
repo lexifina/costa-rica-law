@@ -1,0 +1,1 @@
+Art 10°.- Si alguno de los que ocupan tierra en la que se ha de vender, no quisiese pagarla por cualquier motivo que alegue, quedará privado de ella y la podrá tomar cualquiera otro con las obligaciones del artículo anterior y debiendo pagar las mejoras industriales a justa tasación de peritos, nombrados por las partes y juramentos por el Alcalde constitucional.

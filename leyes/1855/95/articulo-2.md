@@ -1,0 +1,1 @@
+Art 2°.- El Gobernador de la Provincia de Alajuela nombrará una Junta de tres individuos de providad, conocimiento y responsabilidad, vecinos de Atenas, para los objetos que se expresarán en el presente decreto.

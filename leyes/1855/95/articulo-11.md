@@ -1,0 +1,1 @@
+Art 11°.- Los terrenos abiertos comprendidos en las diez caballerías, se venderán en subasta pública por partes que no excedan de veinte manzanas tomándose por base para el remate el precio que le haya señalado la Junta y observándose en lo demás lo que dispone el art 94 de la ley n°41 de 27 de diciembre de 1848.

@@ -1,0 +1,1 @@
+Art 9°.- Los que no puedan pagar al contado el valor de su terreno, lo harán por cuartas partes cada tres meses en el año, reconocimiento además el interés del seis por ciento anual, pero los costos de la medida no admiten espera alguna.
