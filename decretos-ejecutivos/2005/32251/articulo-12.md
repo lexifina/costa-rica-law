@@ -1,0 +1,1 @@
+Artículo 12.—Vigencia del Fondo y de esta normativa: El Fondo estará vigente por el plazo de un año que se contará a partir de la publicación del presente decreto. CORBANA deberá realizar una liquidación final del Fondo, cuyos resultados deberá comunicarlos al Ministerio de Hacienda.
