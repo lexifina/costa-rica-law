@@ -13,3 +13,4 @@ Reconocimiento designaciones Su Santidad Papa Juan Pablo Segundo enDiócesis de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-05-28 | la propia norma |
+| 2 | 1980-05-28 | SINALEVI (sin norma nombrada) |
