@@ -1,1 +1,0 @@
-Artículo 14.—Es prohibido para los abogados hacer cualquier tipo de arreglo, con el deudor, recibir pagos de abonos a la deuda, los honorarios condonación de honorarios, donde deberá mediar nota del abogado de la Municipalidad.

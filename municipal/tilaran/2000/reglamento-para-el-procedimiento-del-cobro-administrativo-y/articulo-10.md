@@ -1,2 +1,0 @@
-Artículo 10.—El Departamento de Rentas y Cobranzas deberá rendir informes mensuales al Alcalde Municipal, sobre las gestiones realizadas de cobro de las cuentas morosas y el estado en que se encuentren las acciones de cada gestión, a esa fecha.
-(Mediante sesión ordinaria N° 132 del 13 de noviembre del 2000, se modificó el artículo 10° en cuanto a la presentación de informes sobre las gestiones realizadas de cobro de las cuentas morosas, y en su lugar se estableció una periodicidad trimestral)

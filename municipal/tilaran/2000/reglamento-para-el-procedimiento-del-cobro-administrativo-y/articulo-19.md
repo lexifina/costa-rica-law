@@ -1,1 +1,0 @@
-Artículo 19.—Para efectos de determinar si los juicios se encuentran al día, el Departamento de Rentas y Cobranzas revisará, periódicamente, con el personal calificado, el número de expedientes y registros que considere necesarios de operaciones entregados a cada ahogado tomando como base la documentación en poder del Departamento de Rentas y Cobranzas.
