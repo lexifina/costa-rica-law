@@ -1,0 +1,1 @@
+Art 2°.- Se tomará por el Estado en empréstito para el pago de pastas de oro y plata á los interesados la cantidad existente en el depósito del ramo de diezmos, y la existencia disponible en los fondos de las rentas Federales con calidad de reintegro del producto elaborado en la Casa de Moneda.
