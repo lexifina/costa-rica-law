@@ -1,0 +1,6 @@
+Artículo 27.—Sin perjuicio de las disposiciones establecidas en la legislación vigente, las violaciones a las disposiciones del presente Reglamento se sancionarán de la siguiente manera:
+a) Cuando se perfore sin autorización del MINAE se ordenará la paralización inmediata de los trabajos y emitirá resolución, a la empresa sobre las obligaciones y penalización en que se incurre.
+b) Cuando una empresa haya sido sancionado dos veces conforme lo dispuesto en el inciso anterior, procederá la suspensión temporal o definitiva de la licencia y a aplicar las sanciones que la legislación establezca.
+c) No se otorgará nuevos permisos de perforación a empresa que estuviese contraviniendo las normativas establecidas en la legislación y en este reglamento así como a lo dispuesto en el permiso otorgados a la empresa, hasta tanto no se normalice la situación.
+d) Se suspenderá el permiso de perforación y se ordenará la paralización de los trabajos en caso de que durante la vigencia del permiso de perforación y en el proceso constructivo se incumplan las condiciones técnicas sobre las cuales se otorgó el permiso.
+La aplicación del presente artículo corresponderá al MINAE de oficio o a solicitud del SENARA y/o tercero, y deberá estar fundamentado y siguiendo el debido proceso.

@@ -1,0 +1,2 @@
+De las sanciones
+Artículo 26.—De no cumplir las empresas perforadoras la normativa de protección ambiental establecidas en la Ley de Aguas N° 276, y su reforma Ley N° 5516, Ley Orgánica del Ambiente Ley N° 7554, Ley General de la Administración Pública N° 6227, Ley Forestal N° 7575 y Ley de creación del Servicio Nacional de Aguas Subterráneas, Riego y, Avenamiento N° 6877, se aplicarán las siguientes medidas precautorias.

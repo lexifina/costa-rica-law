@@ -1,0 +1,1 @@
+Artículo 14.—Los permisos de perforación otorgados no confieren el derecho de explotación del recurso hídrico, por lo cual el dueño del pozo deberá gestionar la concesión para el aprovechamiento de aguas ante el Departamento de Aguas de conformidad con la legislación vigente y el formulario prediseñado.

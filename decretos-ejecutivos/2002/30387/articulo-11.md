@@ -1,0 +1,1 @@
+Artículo 11.—El MINAE cuando lo considere necesario o a gestión del SENARA solicitará de previo a resolver estudio hidrogeológico detallado sobre el potencial del acuífero que se pretende explotar o estudio de radio de interferencia con respecto a otros pozos o nacientes.

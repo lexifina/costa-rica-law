@@ -1,0 +1,1 @@
+Artículo 5º—La empresa perforadora debe informar al Departamento de Aguas en forma inmediata cualquier cambio que se diere en la información aportada en el artículo 2, su incumplimiento le implicara su exclusión del registro.

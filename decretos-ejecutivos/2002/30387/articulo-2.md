@@ -1,0 +1,1 @@
+Artículo 2º—Con el fin de diferenciar a cada empresa perforadora en el campo, su maquinara y equipo deberá mostrar en forma permanente y visible el logotipo que la identifique de conformidad con el artículo siguiente.

@@ -1,0 +1,1 @@
+Artículo 15.—No podrán usarse sustancias contaminantes en el proceso de perforación, tales como solventes, aceites y detergentes no biodegradables; así como ser vertidas en los terrenos aledaños al pozo. De no acatar esta disposición, se le cancelará el permiso de perforación y se aplicará las sanciones de la legislación vigente.
