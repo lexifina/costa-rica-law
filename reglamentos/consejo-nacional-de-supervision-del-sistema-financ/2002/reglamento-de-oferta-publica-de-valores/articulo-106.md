@@ -1,0 +1,1 @@
+Artículo 106.—Sujetos autorizados. Además de los emisores de valores autorizados para oferta pública, en relación con tales valores, los puestos de bolsa podrán realizar oferta pública de valores, siempre y cuando cumplan con los trámites de autorización establecidos en el presente Título.

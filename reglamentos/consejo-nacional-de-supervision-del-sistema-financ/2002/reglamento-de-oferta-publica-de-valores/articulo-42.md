@@ -1,0 +1,1 @@
+Artículo 42.—Código de identificación ("ISIN"). El emisor deberá contratar la asignación del código de identificación internacional de la respectiva emisión ("ISIN"), de conformidad con las instrucciones que emita el Superintendente.

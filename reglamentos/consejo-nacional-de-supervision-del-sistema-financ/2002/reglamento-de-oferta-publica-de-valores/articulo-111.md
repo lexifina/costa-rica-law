@@ -1,0 +1,4 @@
+Artículo 111.—Leyenda para valores extranjeros. Toda publicidad que se refiera a valores colocados en mercado primario en mercados extranjeros y autorizados para oferta pública únicamente para mercado secundario, deberá contener además la siguiente leyenda de advertencia:
+"Por tratarse de valores inscritos en mercado primario en mercados extranjeros, ni el emisor de los valores ni la emisión de que éstos forman parte es objeto de supervisión por la Superintendencia General de Valores, sino únicamente por el órgano regulador de su mercado de origen."
+En los casos en que estos valores únicamente se negocien en los mercados extranjeros, deberá incluirse además la siguiente leyenda:
+"La negociación de esos valores se realizará en mercados extranjeros, bajo las reglas de negociación de esos mercados."

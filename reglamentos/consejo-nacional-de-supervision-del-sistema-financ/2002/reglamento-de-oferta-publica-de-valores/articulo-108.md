@@ -1,0 +1,1 @@
+Artículo 108.—Valores objeto de oferta pública. La oferta pública de valores que realicen los sujetos autorizados deberá limitarse siempre a valores previamente autorizados de conformidad con lo establecido en el Título III de este Reglamento.

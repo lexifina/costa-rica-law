@@ -1,0 +1,4 @@
+Artículo 43.—Renovación automática de papel comercial. La autorización para realizar oferta pública de las emisiones de papel comercial será renovada automáticamente, siempre y cuando el emisor presente la solicitud correspondiente con al menos diez días hábiles de anticipación a la fecha de vencimiento de la emisión en circulación conjuntamente con la siguiente documentación:
+a. Declaración jurada de que el prospecto y la información legal y administrativa se encuentran debidamente actualizados.
+b. Anexo al prospecto con la información correspondiente a la nueva emisión.
+Si en el plazo de cinco días hábiles a partir de la presentación de la solicitud no se hubiera apercibido al emisor sobre la presentación de documentación o información que se requiera para el trámite de autorización de conformidad con lo establecido en este artículo, la autorización se tendrá por otorgada.

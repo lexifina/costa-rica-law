@@ -1,0 +1,1 @@
+Transitorio I.—Para las emisiones de valores de oferta pública autorizadas o registradas con anterioridad a la entrada en vigencia de este Reglamento, los plazos a que se refiere el artículo 15 comenzarán a correr a partir de su entrada en vigencia.

@@ -1,0 +1,2 @@
+Artículo 114.—Disponibilidad de la publicidad realizada. Los emisores de valores autorizados, así como las personas autorizadas para realizar oferta pública de valores, deberán mantener disponible en sus oficinas una copia de toda la publicidad realizada.
+El Superintendente podrá solicitarles la remisión de una copia de cualquier publicidad impresa que realicen, así como de los textos de los avisos de radio y televisión. Estos envíos se realizarán en los plazos que éste indique.

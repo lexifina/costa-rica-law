@@ -1,0 +1,2 @@
+Artículo 94.—Obligaciones de información de los emisores. Los emisores deberán hacer una adecuada revelación del riesgo de desinscripción de la emisión en el prospecto respectivo y de sus consecuencias.
+Asimismo, estarán en la obligación de remitir a la Superintendencia General de Valores información periódica que permita verificar el cumplimiento del requisito de difusión establecido en este Capítulo, en los plazos y por los medios que establezca el Superintendente. Esta información será disponible también para el público inversionista.

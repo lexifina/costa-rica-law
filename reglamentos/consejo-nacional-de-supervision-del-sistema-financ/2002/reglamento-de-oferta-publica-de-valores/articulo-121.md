@@ -1,0 +1,1 @@
+Artículo 121.—Vigencia. Rige a partir de su publicación. Las normas contenidas en el artículo 49 en relación con los mecanismos de colocación de las emisiones de oferta pública en mercado primario entrarán a regir a partir de la aprobación de este Reglamento, sea a partir del martes 12 de noviembre de 2002.

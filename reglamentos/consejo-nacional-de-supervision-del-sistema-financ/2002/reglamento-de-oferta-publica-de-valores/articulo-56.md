@@ -1,0 +1,1 @@
+Artículo 56.—Trámite simplificado. En el caso de valores registrados ante el órgano regulador de un mercado homologado o admitidos a cotización en un mercado homologado no tendrá que presentarse la documentación a que se refieren los incisos d) y e) del artículo anterior, sino que únicamente se indicará la fuente en que dicha información pueda encontrarse.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+Condiciones adicionales aplicables a los valores provenientes de procesos de titularización
+Artículo 16.—Concepto. Además de los requisitos establecidos en el Capítulo anterior, la emisión de valores de oferta pública sustentados en procesos de titularización de activos deberá sujetarse a las condiciones especiales establecidas en el presente Capítulo. Se entenderá por titularización el proceso de agrupación de un conjunto prefijado de derechos de crédito o derechos de cobro y la venta de estos paquetes a los inversionistas, en la forma de valores emitidos en serie respaldados por los activos subyacentes y el flujo de ingresos asociado a ellos.

@@ -1,0 +1,1 @@
+Artículo 41.—Agente de pago. El emisor deberá suscribir un convenio con cualquier banco del sistema bancario nacional, con el propósito de que los pagos que correspondan a los inversionistas se realicen por su medio. El contrato respectivo deberá adjuntarse a la documentación legal y de orden administrativo.

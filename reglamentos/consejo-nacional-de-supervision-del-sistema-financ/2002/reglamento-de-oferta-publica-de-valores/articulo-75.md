@@ -1,0 +1,2 @@
+Artículo 75.—Trámite de autorización de la oferta. La competencia para conocer de las ofertas públicas de adquisición corresponde al Superintendente, quien deberá adoptar la resolución de autorización o denegación de la oferta en el plazo máximo de diez días hábiles contados a partir de su remisión con todos los requisitos.
+Contra esta resolución cabrán los recursos de revocatoria y apelación, los cuales deberán interponerse dentro de los plazos previstos en la Ley General de Administración Pública.

@@ -1,0 +1,2 @@
+Artículo 17.—Activos objeto de titularización. Podrá estructurarse procesos de titularización a partir de toda clase de derechos de créditos y de cobro, presentes o futuros, con o sin garantía real, siempre que generen un flujo predecible y periódico de ingresos. No serán considerados activos susceptibles de titularización los bienes muebles o inmuebles, pero sí lo serán los ingresos que estos generen.
+Salvo que se tratara de la titularización de créditos revolutivos o de carteras completamente estandarizadas, la cartera a titularizar deberá ser cerrada.

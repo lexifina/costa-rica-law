@@ -1,0 +1,1 @@
+Artículo 99.—Obligatoriedad de una oferta pública de adquisición por exclusión en casos de fusión. La fusión que conlleve a la desaparición de una sociedad cuyas acciones se encuentren autorizadas para oferta pública, requerirá de la presentación de una oferta pública de adquisición por exclusión dirigida a los accionistas en desacuerdo con la fusión.

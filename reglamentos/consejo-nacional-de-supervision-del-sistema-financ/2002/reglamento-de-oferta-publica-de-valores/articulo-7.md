@@ -1,0 +1,5 @@
+Artículo 7º—Supuestos de oferta pública de valores. Se presumirá oferta pública de valores:
+a. El ofrecimiento de valores que se realice en medios de comunicación colectiva, tales como prensa, radio, televisión e internet.
+b. El ofrecimiento en el territorio nacional de valores de un emisor de características análogas a otros valores de oferta pública del mismo emisor.
+c. El ofrecimiento de valores emitidos en serie de conformidad con lo establecido en el Capítulo I del Título II de este Reglamento, independientemente del medio utilizado.
+d. La difusión de los valores de una emisión entre un número mayor de cincuenta inversionistas que no formen parte del mismo grupo de interés económico del emisor, que representen a su vez al menos el quince por ciento (15%) de la emisión correspondiente o la difusión de valores de una misma emisión entre un número mayor de cien inversionistas que no formen parte del mismo grupo de interés económico del emisor, independientemente del porcentaje que representen. Para los efectos de la aplicación de este inciso se excluirán del cómputo los trabajadores de la empresa.

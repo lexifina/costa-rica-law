@@ -1,0 +1,1 @@
+Artículo 112.—Publicidad de asesores de inversión. Toda publicidad que realicen los asesores de inversión deberá contener una leyenda de advertencia que indique que la actividad de asesoría de inversión no está sujeta a un régimen de autorización previa por parte de la Superintendencia General de Valores.

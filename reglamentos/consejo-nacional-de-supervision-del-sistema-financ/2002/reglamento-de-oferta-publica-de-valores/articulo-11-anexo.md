@@ -1,0 +1,1 @@
+Artículo 11.—Información adicional. En esta sección se incorporará cualquier otra información sobre el emisor o la emisión que se estime relevante para el público inversionista. De existir contratos de impacto material para la emisión, deberán incluirse en esta sección.

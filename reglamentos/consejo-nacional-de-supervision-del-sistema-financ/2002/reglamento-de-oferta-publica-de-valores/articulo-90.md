@@ -1,0 +1,3 @@
+Artículo 90.—Liquidación de las ofertas. Las ofertas que hubieran alcanzado un resultado positivo se liquidarán en el mismo plazo previsto para las operaciones bursátiles al contado. Para los efectos de este artículo las operaciones se tendrán por perfeccionadas el día inmediato siguiente a la comunicación de la Superintendencia a que se refiere el artículo anterior.
+En el caso de que la contraprestación consista en dinero, la liquidación podrá realizarse por medio de los mecanismos de liquidación de bolsa o fuera de ellos, pero por medio de intermediarios autorizados.
+Liquidada la operación, la Superintendencia autorizará el levantamiento de la garantía ofrecida.

@@ -1,0 +1,1 @@
+Artículo 2º—Contenido mínimo de la contracarátula. Deberán incorporarse las advertencias correspondientes a la responsabilidad del emisor y de la Superintendencia, en relación con la información brindada en el prospecto que establezca el Superintendente.

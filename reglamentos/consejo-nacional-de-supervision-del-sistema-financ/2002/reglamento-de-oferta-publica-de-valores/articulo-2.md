@@ -1,0 +1,12 @@
+Artículo 2º—Definiciones. Para los efectos de la aplicación del presente Reglamento, se establecen las siguientes definiciones:
+a. Asesoría de inversión: Actividad realizada en forma habitual y por una retribución, directa o indirecta, que consiste en brindar recomendaciones a terceros, ya sea directamente o por medio de publicaciones o reportes, sobre el precio de determinados valores o sobre la ventaja de invertir, comprar o vender valores.
+b. Emisiones de valores en serie: Emisiones provenientes de un mismo emisor en las que todos y cada uno de los valores que la componen confieren a su tenedor idénticos derechos y obligaciones.
+c. Entidad originadora: Persona física o jurídica a cuyo favor se constituyeron en forma inicial los derechos de crédito o cobro objeto de procesos de titularización.
+d. Entidad estructuradora: Persona física o jurídica responsable del diseño de una emisión de valores.
+e. Grupo de interés económico: Definición establecida en el Acuerdo SUGEF 4-96.
+f. Hechos relevantes: Todo hecho o decisión que pueda influir sensiblemente en las decisiones de los inversionistas con respecto a los valores o instrumentos en los cuales invierte, a los participantes a través de los cuales invierte o a los participantes a los cuales compra sus servicios.
+g. Inversionista institucional: Se consideran inversionistas institucionales los fondos de inversión, los fondos de pensión y los fideicomisos que funcionen como fondos de inversión o de pensión.
+h. Inversionista sofisticado: Persona física o jurídica cuyo patrimonio sea superior a un millón de dólares o su equivalente o sus ingresos anuales superiores a ciento cincuenta mil dólares o su equivalente o la persona física que cuente con conocimientos suficientes para evaluar y aceptar los riesgos de su inversión.
+i. Oferta pública de valores: Todo ofrecimiento, expreso o implícito, que se proponga emitir, colocar, negociar o comerciar valores y se transmita por cualquier medio al público o a grupos determinados.
+j. Titularización: Proceso de agrupación de un conjunto prefijado de derechos de crédito o derechos de cobro y la venta de estos paquetes a los inversionistas, en la forma de valores emitidos en serie respaldados por los activos subyacentes y el flujo de ingresos asociado a ellos.
+k. Valor: Cualquier derecho de contenido económico o patrimonial, incorporado o no en un documento, que por su configuración jurídica propia y régimen de transmisión pueda ser objeto de negociación en un mercado financiero o bursátil.

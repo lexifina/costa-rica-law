@@ -1,0 +1,10 @@
+Artículo 29.—Requisitos para la autorización de oferta pública de emisiones de valores. Con excepción de las emisiones de valores de los gobiernos centrales y los bancos centrales, la renovación de papel comercial y los fondos de titularización, la autorización de oferta pública de cualquier otro tipo de emisión estará sujeta a la presentación de la documentación siguiente, por parte del emisor de los valores:
+a. Solicitud, de conformidad con lo establecido en el artículo 30 de este Reglamento.
+b. Prospecto, de conformidad con lo establecido en los artículos 31 a 34 de este Reglamento.
+c. Calificación, de conformidad con lo establecido en el artículo 35 de este Reglamento.
+d. Documentación legal y de orden administrativo, de conformidad con lo establecido en los artículos 36 a 39 de este Reglamento.
+e. Información y documentación relativa a las garantías, cuando resulte aplicable, de conformidad con lo establecido en el artículo 40 de este Reglamento.
+f. Copia del contrato suscrito con un banco del sistema bancario nacional, por medio del cual se acuerde el servicio de agente de pago, de conformidad con lo establecido en el artículo 41 de este Reglamento, salvo que el emisor sea una entidad bancaria.
+g. Código de identificación internacional ("ISIN"), de conformidad con lo establecido en el artículo 42 de este Reglamento.
+En el caso de fideicomisos, deberá presentarse la información correspondiente a la empresa fideicomitente y al fideicomiso. No obstante, el Superintendente General de Valores podrá eximir de la presentación total o parcial de la información relativa a la empresa fideicomitente cuando del contrato de fideicomiso derive la total independencia de ésta frente al fideicomiso.
+Aquellos solicitantes que se encuentren sujetos a la supervisión de la Superintendencia General de Entidades Financieras, únicamente deberán proveer la información que no haya sido suministrada a dicha Superintendencia, siempre y cuando la autoricen en forma expresa a remitir la información correspondiente a la Superintendencia General de Valores.
