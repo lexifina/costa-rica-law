@@ -1,0 +1,1 @@
+Artículo 4°.- Tendrán prioridad en la adjudicación de los contratos, en igualdad de circunstancias, aquellas empresas que demuestren que la mayor parte de capital social están en manos de costarricenses y que esta porción del capital social ha sido debidamente suscrita por pequeños ahorrantes en virtud del bajo valor nominal de las acciones.
