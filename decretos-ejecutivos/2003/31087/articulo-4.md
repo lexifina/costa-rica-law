@@ -1,0 +1,1 @@
+Artículo 4º—La Comisión Técnica contará para su coordinación con el apoyo logístico de la Secretaría Ejecutiva de Planificación Sectorial Agropecuaria (SEPSA) y de la Dirección Sectorial de Energía (DSE).

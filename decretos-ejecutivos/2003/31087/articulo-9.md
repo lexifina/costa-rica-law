@@ -1,0 +1,1 @@
+Artículo 9º—El Poder Ejecutivo emitirá antes del plazo citado en el artículo 7° de este Decreto, las normas que serán exigidas para la mezcla de todas las gasolinas con el etanol anhidro, en cumplimiento de las regulaciones establecidas.
