@@ -1,0 +1,1 @@
+Artículo 59.—Cumplidas las cuatro sesiones remuneradas la secretaria revisará en el registro pertinente la presencia tanto de sesiones del concejo como las de comisiones para pasar el informe a tesorería.

@@ -1,0 +1,1 @@
+Artículo 64.—Se acuerda crear y mantener partida presupuestaria, para darle contenido a los gastos de transporte a los regidores y síndicos propietarios y suplentes que por vivir fuera de la sede municipal deben trasladarse para asistir a las sesiones del concejo.

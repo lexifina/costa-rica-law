@@ -1,0 +1,1 @@
+Artículo 42.—Una vez designadas las comisiones por la presidencia municipal, sus miembros en la sesión de instalación que deberá celebrarse dentro de los ocho días siguientes nombrará de su seno un presidente (a), un vicepresidente (a) y un secretario (a).

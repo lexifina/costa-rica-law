@@ -1,0 +1,1 @@
+Artículo 13.—El regidor o síndico propietario que llegaren a la sesión después de los quince minutos amén de perder la dieta, aunque no se haya hecho la sustitución, puede permanecer durante toda la sesión como ciudadano, pero sin derecho a voz no voto (el regidor propietario) y sin derecho a voz el síndico propietario.

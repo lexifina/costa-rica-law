@@ -1,0 +1,1 @@
+Artículo 50.—Cuando el objeto de la audiencia un asunto de competencia del ejecutivo, la presidencia ordenará a la secretaría remitir el memorial presentado a dicho funcionario para que este le dé el trámite correspondiente. La secretaría lo hará del conocimiento del interesado.

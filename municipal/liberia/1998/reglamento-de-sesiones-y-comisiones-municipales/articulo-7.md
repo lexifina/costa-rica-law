@@ -1,0 +1,1 @@
+Artículo 7°—A una sesión extraordinaria pueden convocar el Ejecutivo Municipal o cuando se lo soliciten, con veinticuatro horas de anticipación, por lo menos la tercera parte de los regidores propietarios que lo soliciten por escrito; así como el Concejo mediante acuerdo.

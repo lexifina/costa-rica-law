@@ -1,0 +1,1 @@
+Artículo 58.—Para ausentarse temporalmente de la sesión municipal cualquier regidor o síndico propietario o suplente deben de pedir permiso a la presidencia quien decidirá el término para reincorporar a la sesión, sólo en caso de emergencia calificada y siendo el concejo municipal quien decida.

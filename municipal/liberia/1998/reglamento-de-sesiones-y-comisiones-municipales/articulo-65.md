@@ -1,0 +1,1 @@
+Artículo 65.—Los gastos por transporte mencionados en el artículo anterior se pagarán de acuerdo a la tarifa que para las diferentes rutas de autobuses que ha establecido el MOPT. El servicio de taxi debe ser autorizado previamente, dichos viáticos se le darán a aquellos regidores que vivan a una distancia no menos de 10 km.

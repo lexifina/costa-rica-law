@@ -1,0 +1,1 @@
+Artículo 26.—De toda sesión del concejo se levantará un acta en la que se hará constar los acuerdos tomados y sucintamente las deliberaciones habidas, salvo en casos de nombramiento o elecciones, en los que se hará constar; únicamente el acuerdo tomado.

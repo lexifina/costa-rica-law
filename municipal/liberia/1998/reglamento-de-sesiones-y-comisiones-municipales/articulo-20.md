@@ -1,0 +1,1 @@
+Artículo 20.—La presidencia municipal calificará los asuntos de trámite y ordenará a la secretaría incluirlos en el orden del día. En sesión podrán incluirse asuntos de tramite urgente por iniciativa de a presidencia municipal o de uno o varios regidores, si el concejo así lo acuerda por simple mayoría, mediante la presentación de un moción de orden.

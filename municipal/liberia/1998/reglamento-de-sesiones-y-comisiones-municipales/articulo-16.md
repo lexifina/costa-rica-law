@@ -1,0 +1,1 @@
+Artículo 16.—Las sesiones del concejo se desarrollarán conforme al orden del día previamente elaborado, el cual podrán ser modificado o alterado mediante moción de orden aprobada por el concejo por simple mayoría.

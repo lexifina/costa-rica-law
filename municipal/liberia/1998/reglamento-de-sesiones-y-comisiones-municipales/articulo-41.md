@@ -1,0 +1,1 @@
+Artículo 41.—Las comisiones formarán quorum la mitad más uno de los miembros. La presidencia municipal deberá realizar la juramentación solemne y formal de todos aquellos miembros de comisiones, que no forman parte del Concejo, en sesión previa al inicio de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 31.—El recurso de revisión procederá contra los acuerdos que no hubieren sido declarados firmes y deberá presentarse en la discusión del acta. La misma mayoría requerida para dictar el acuerdo sobre el que solicita revisión, será necesaria para acordar: éste. Acepta la revisión la presidencia pondrá en discusión el asunto a que se refiere el acuerdo.

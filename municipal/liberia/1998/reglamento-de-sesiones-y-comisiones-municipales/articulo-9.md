@@ -1,0 +1,1 @@
+Artículo 9°—El quorum para las sesiones será de 5 regidores propietarios. Ese número de regidores deberá encontrarse presente en el salón de sesiones al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.

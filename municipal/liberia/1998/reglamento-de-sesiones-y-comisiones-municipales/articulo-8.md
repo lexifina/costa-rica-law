@@ -1,0 +1,1 @@
+Artículo 8°—La convocatoria se notificará personalmente a los señores regidores y síndicos propietarios y suplentes o en su casa de habitación. En uno u otro caso firmará la persona que reciba la notificación la cual debe constar en el acta de notificación.
