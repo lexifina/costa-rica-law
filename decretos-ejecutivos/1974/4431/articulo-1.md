@@ -1,0 +1,1 @@
+Artículo 1: (La Sala Constitucional mediante resolución N° 075 del 14 de enero de 1992, anuló lo dispuesto por este artículo; sólo en cuanto grava con derechos de exportación, mercaderías destinadas a países con los cuales Costa Rica tiene tratados de libre comercio.).
