@@ -1,0 +1,1 @@
+Artículo 13°.-De conformidad con los puntos anteriores, el Encargado de Transportes definirá la ruta de cada vehículo. Desde luego, en cada vehículo podrán viajar empleados de diferentes Departamentos.

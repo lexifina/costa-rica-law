@@ -1,0 +1,1 @@
+Artículo 18°.--Con el fin de lograr un mejor aprovechamiento de los vehículos, el Encargado de Transportes agrupará para un mismo sitio o ruta varias solicitudes de diferentes personas o Departamentos.

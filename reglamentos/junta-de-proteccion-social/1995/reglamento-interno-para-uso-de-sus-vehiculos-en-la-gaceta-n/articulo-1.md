@@ -1,0 +1,7 @@
+REGLAMENTO INTERNO PARA USO DE VEHICULOS PRESENTACION
+(La Junta de Protección Social de San José, mediante acuerdo JD-147, artículo IV, inciso 9) de la sesión Nº 20-2002 del 31 de mayo del 2002, publicó en La Gaceta N° 155 del 14 de agosto de 2002, el Reglamento para el Uso, Control y Mantenimiento de los vehículos de la Junta de Protección Social de San José)
+El presente Reglamento pretende regular la utilización de vehículos en la Junta de Protección Social, tomando en cuenta la clasificación de los mismos y sus regulaciones, la prestación del servicio, obligaciones de los conductores, las prohibiciones y los accidentes de tránsito. De esta forma, ofrecer un servicio ágil y oportuno, que se ajuste a las necesidades de la Institución.
+La elaboración del mismo se realizó de conformidad con lo establecido en el artículo N° 2 el Reglamento Autónomo de Organización y Servicio de la Junta de Protección Social de San José y fue aprobado por la Junta Directiva de la Institución el 7 de setiembre, 1995, artículo III del acta 53-95.
+En definitiva este reglamento tendrá como objetivo, guiar la toma de futuras decisiones en el campo del transporte en nuestra Institución.
+CAPITULO I
+Artículo 1°.-El presente Reglamento regula lo concerniente a los vehículos que están al servicio de la Junta de Protección Social de San José, estableciéndose los deberes y responsabilidades de las personas a cuyo cargo están, así como los procedimientos relativos a la solicitud de estos, su mantenimiento y reparaciones.

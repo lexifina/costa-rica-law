@@ -1,0 +1,1 @@
+Artículo 34°.-Es terminantemente prohibido utilizar las herramientas, accesorios o tiempo de trabajo de los empleados, en servicios particulares. Estos deben limitarse a las funciones propias de su misión.

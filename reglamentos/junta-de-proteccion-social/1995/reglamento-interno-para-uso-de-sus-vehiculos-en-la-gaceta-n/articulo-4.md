@@ -1,0 +1,1 @@
+Artículo 4°-Los chóferes de los vehículos ejecutarán las órdenes que reciban directamente del Encargado del Transporte o de los funcionarios superiores a este, en cuanto a la prestación del servicio y mantenimiento de las unidades.

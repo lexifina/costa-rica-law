@@ -1,0 +1,1 @@
+Artículo 30°.-Por ningún motivo los operadores de equipo móvil trasladarán personas ajenas a la Institución, excepto aquellos casos que estén debidamente autorizados por el Encargado de Transportes o por los jefes.

@@ -1,0 +1,1 @@
+Artículo 17°.--Cualquier alteración a la ruta programada en la solicitud de servicio que haya en el transcurso de la salida o gira, caerá bajo la responsabilidad absoluta y personal del funcionarios que utilice el servicio, el chofer debe anotarlo y comunicar al Encargado de Transportes inmediatamente después de su regreso a la Institución.

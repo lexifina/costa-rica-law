@@ -1,0 +1,4 @@
+Artículo 14°.-EI Encargado de Transportes no aceptarán las solicitudes, que no cumplan con los puntos anteriores o, en aquellos casos que se presenten las siguientes circunstancias.
+Cuando el lugar por visitar o la ruta definida estén localizados en un área, en la que se pueda utilizar el transporte remunerado, o si la urgencia del servicio o el traslado de valores no son un factor importante.
+Cuando los lugares por visitar están comprendidos en un sector muy reducido, en que la circulación del vehículo resulte difícil, siempre y cuando no se trate del transporte de valores o mercancías que requieran el uso indispensable de un vehículo de la Institución.
+Cuando el Encargado de Transportes ha autorizado la salida del vehículo a una hora determinada y el usuario se retrasa injustificadamente 15 minutos o más.

@@ -1,0 +1,1 @@
+Artículo 12°.-Las solicitudes de más de un día de duración, deben ser presentadas por lo menos con dos días hábiles de anticipaci5n. Las demás solicitudes, con la anticipación debida a juicio del Encargado de Transportes, de manera que no obstaculicen el trabajo de preparación de las rutas de cada vehículo.

@@ -1,0 +1,1 @@
+Artículo 2° -Corresponderá al Encargado de Transportes velar por la correcta marcha y funcionamiento del sistema de transportes y el estricto cumplimiento de las instrucciones contenidas en este reglamento.

@@ -1,0 +1,7 @@
+Artículo 6°-Los vehículos de uso discrecional tendrán las siguientes características:
+a) Estarán asignados a la Presidencia Ejecutiva, Gerencia, Subgerencia y Auditoría Interna.
+b) Bajo ninguna circunstancia la facilidad de utilización de estos vehículos, será considerado como beneficio, mejoría salarial, salario en especie, o parte del contrato laboral, además de que no se otorgan derechos adquiridos en favor del funcionario de que se trate.
+c) Con excepción del vehículo de la Presidencia Ejecutiva, todos los demás vehículos de la Junta de Protección Social de San José, deberán rotularse con el respectivo distintivo institucional, en ambas puertas delanteras.
+d) Las dimensiones de esto rótulos deben ser de veinte centímetros de largo, por diez de ancho como mínimo.
+e) Artículo XI del acta N° 34-95: "Los vehículos de uso discrecional serán utilizados solamente en aquellas actividades que tengan relación directa con las funciones del cargo, quedando prohibido el uso del vehículo para fines recreativos y familiares, ya que los vehículos se otorgan no a los funcionarios, sino a las funciones, no a las personas sino a los puestos o cargos y por tal motivo los vehículos deben permanecer al servicio de la Institución".
+f) Todos los vehículos deberán permanecer en la Institución fuera de la jornada laboral, con excepción de aquellos casos especiales debidamente autorizados por la Presidencia Ejecutiva.

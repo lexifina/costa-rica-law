@@ -1,0 +1,1 @@
+Artículo 44°.-EI operador de equipo móvil involucrado en un accidente de tránsito, deberá declarar ante el Instituto Nacional de Seguros y ante el Tribunal de Tránsito correspondiente, dentro del plazo que establece la ley.

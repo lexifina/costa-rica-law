@@ -1,0 +1,1 @@
+Artículo 20°.-En casos especiales, cuando resulte más ventajoso realizar un viaje utilizando servicios particulares de transportes de pasajero, la Unidad de Transportes podrá rechazar la solicitud, con la debida motivación.

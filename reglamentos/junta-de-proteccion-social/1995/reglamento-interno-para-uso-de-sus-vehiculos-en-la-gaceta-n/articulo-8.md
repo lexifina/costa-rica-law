@@ -1,0 +1,1 @@
+Artículo 8°-La Unidad de Transportes mantendrá al día un registro de los vehículos de la Institución, a fin de controlar las revisiones periódicas a que deben someterse para su conservación y mantenimiento. Además, programará las revisiones con anticipación, a fin de que la Institución no sufra atrasos en el servicio.

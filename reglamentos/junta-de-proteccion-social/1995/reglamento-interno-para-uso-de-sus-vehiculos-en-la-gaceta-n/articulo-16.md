@@ -1,0 +1,1 @@
+Artículo 16°.-Ningún automotor de uso administrativo de la Institución, saldrá sin la debida solicitud de vehículo, excepto aquellas autorizadas por el Encargado de Transportes y/o superiores jerárquicos, en casos debidamente justificados.
