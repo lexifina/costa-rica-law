@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del momento aproximado
+Artículo 14.—El “momento aproximado”, a que se refieren los párrafos 2.b) i) y 2.b) iii), ambos del artículo 1 y de los artículos 2º y 3º, del acuerdo, es aquel que no exceda a los noventa (90) días hábiles, anteriores o posteriores a partir de la fecha de exportación de las mercancías objeto de valoración y para el párrafo 2.b) ii) del artículo 1º del acuerdo, noventa (90) días hábiles anteriores o posteriores a partir de la fecha de aceptación de la Declaración de Mercancías. La fecha de exportación será la que conste en el documento de transporte y a falta de éste, el que establezca el Servicio Aduanero.

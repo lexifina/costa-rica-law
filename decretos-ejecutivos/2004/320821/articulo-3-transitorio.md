@@ -1,0 +1,3 @@
+Transitorio III.—En tanto no entre en vigencia la Unión Aduanera Centroamericana, el comercio intrarregional de mercancías no originarias de los países miembros del Protocolo de Guatemala, estarán sujetas a la presentación de la Declaración del Valor, salvo las excepciones previstas en el artículo 28 del presente Reglamento.
+(Ver Declaración del Valor en Aduanas en las Mercancías Importadas, publicada en La Gaceta Impresa N° 217 del 5 de noviembre del 2004, páginas 15)
+(Ver Anexo a la Declaración del Valor en Aduanas en las Mercancías Importadas, publicada en La Gaceta Impresa N° 217 del 5 de noviembre del 2004, páginas 16)

@@ -1,0 +1,1 @@
+Artículo 5º—Cuando alguno de los elementos enumerados en los incisos a), b) y c) del artículo anterior, fueren gratuitos, no se contraten o se efectuaren por medios o servicios propios del importador, deberá calcularse su valor conforme a las tarifas normalmente aplicables.

@@ -1,0 +1,1 @@
+Artículo 15.—Cuando se disponga de más de un valor, dentro del momento aproximado a que se refiere el artículo anterior, se tomará el que corresponda a la fecha más próxima de la exportación o de la importación de las mercancías, según sea el caso, y sólo cuando se disponga de dos o más valores de la misma fecha se utilizará el más bajo.
