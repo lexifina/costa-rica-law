@@ -1,0 +1,1 @@
+Art. 42. –El Presidente de la Dirección podrá suspender la ejecución de las decisiones de ésta, y toda resolución contraria a la ley, á los Estatutos y á los intereses del Banco, dando cuenta á la Asamblea General ó al Poder Ejecutivo en su caso.

@@ -1,0 +1,1 @@
+Art. 61,-Para que haya quorum en la Asamblea General, y que ésta pueda ejercer sus funciones, es indispensable la concurrencia por si por procuracion, de los socios que representen Ins dos terceras partes de las acciones emitidas.

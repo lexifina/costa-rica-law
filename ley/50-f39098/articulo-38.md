@@ -1,0 +1,1 @@
+Art. 38. -El resultado de los dos balances generales practicados en los días treinta de Junio y treinta y uno de Diciembre de cada año, será publicado en la Gaceta Oficial, junto con el informe que, sobre todas las operaciones del Establecimiento, debe presentar la Dirección General á la Asamblea de Accionistas, en su reunion ordinaria.

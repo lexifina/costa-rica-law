@@ -1,0 +1,1 @@
+Art. 23.-La comision que debe cobrar el Banco por el servicio de Ia Administracion Principal, será objeto de un arreglo especial entre el Poder Ejecutivo y la Direccion; pero esta comision no excederá en ningún caso del cuarto por ciento sobre las cantidades en efectivo que ingresen por cuenta de la Nacion.

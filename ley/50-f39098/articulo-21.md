@@ -1,0 +1,1 @@
+Art. 21. -Para que las órdenes de entero y las de pago puedan ser satisfechas en el Banco ó en sus Agencias se atender a lo dispuesto en los capítulos 4° y 5° de la ley adicional al Reglamento de Hacienda, de veinticinco de Junio de mil ochocientos setenta y seis.

@@ -1,0 +1,1 @@
+Art. 63, -Guando en las elecciones para Directores, ninguno reuniere la mayoría absoluta de los votos presentes, se repetirá la eleccion contrayéndola d los dos que hayan obtenido mayor número de votos, y se repetirá el escrutinio hasta que uno de ellos obtenga la mayoría, el cual quedará electo.

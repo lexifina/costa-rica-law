@@ -1,0 +1,1 @@
+Art. 72. Cuando la Direccion lo juzgue conveniente, nombrará un Procurador que, con las facultades necesarias, represente al Bono judicial y extrajudicialmente. Corresponde á la misma Direccion señalar el sueldo de que debe gozar. La personeria de este empleado, en representacion del Banco Nacional, se acreditará con la certificacion de su nombramiento por la Direccion.

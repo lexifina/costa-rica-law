@@ -1,0 +1,1 @@
+Art. 34.-A la Direccion General toca decidir por si sobre todos los negocios que interesen al Banco, salvo las excepciones establecidas por la ley, los presentes Estatutos y el Reglamento de órden interior. La misma Direccion fijará la tasa y condiciones del descuento.

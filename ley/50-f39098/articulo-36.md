@@ -1,0 +1,1 @@
+Art. 36.-La Direccion General no podrá deliberar sin la concurrencia de la mayoría de sus miembros, -Para toda resolucion se requiere la mayoría absoluta de votos de los Directores presentes; y en caso de empate, el voto del Presidente será decisivo.

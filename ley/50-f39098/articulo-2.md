@@ -1,0 +1,1 @@
+Art. 2 -La creacion y organizacion de las Agencias y Oficinas sucursales en las capitales de Provincia ú otros puntos de la República, será objeto del Reglamento interior ó de un acuerdo de la Direccion General del mismo Banco.

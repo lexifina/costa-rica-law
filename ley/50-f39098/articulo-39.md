@@ -1,0 +1,1 @@
+Art. 39-La Direccion pasará mensualmente al Secretario de Hacienda, un estado de la situacion del Establecimiento, comprendido el de las Agencias y demás Oficinas sucursales. Tambien debe dirigir al mismo, a la expiracion de cada semestre, la cuenta sumaria de las operaciones hechas por el Banco, el resultado de ellas, y el arreglo de los dividendos en el semestre vencido.

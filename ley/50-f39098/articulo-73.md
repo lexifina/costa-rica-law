@@ -1,0 +1,2 @@
+Art. 73. Cualesquiera modificaciones que se hagan á estas Estatutos, en conformidad con el artículo sesenta y cinco, no tendrán efecto alguno sin la aprobación del Poder Ejecutivo.
+Al Poder Ejecutivo. -Dado en el Salon de Sesiones. -Palacio Nacional. San José, Diciembre veinticuatro de mil ochocientos setenta y siete. –Bruno Carranza, Presidente. –J. Solano, Secretario. –Palacio Nacional de San José, á veinticuatro de Diciembre de mil ochocientos setenta y siete. -Ejecútese, -T. Guardia. -El Secretario de Estado en los Despachos de Hacienda y Comercio, Salvador Lara.

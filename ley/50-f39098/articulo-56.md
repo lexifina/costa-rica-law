@@ -1,0 +1,1 @@
+Art. 56. -Tambien se reunirá extraordinariamente -cada vez que la Direccion lo juzgue necesario, ó que lo pidan por lo ménos cinco accionistas que representen la quinta parte de las acciones emitidas,
