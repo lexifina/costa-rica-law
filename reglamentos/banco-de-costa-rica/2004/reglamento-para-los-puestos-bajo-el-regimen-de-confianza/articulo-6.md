@@ -1,0 +1,1 @@
+Artículo 6º—Del tiempo extraordinario. De acuerdo con lo establecido en el artículo 143 del Código de Trabajo el funcionario que ocupe un puesto bajo el régimen de confianza, no le aplicará lo relativo a la jornada extraordinaria por lo que no podrá cobrar las sumas por concepto de tiempo extraordinario.

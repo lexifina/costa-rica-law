@@ -1,0 +1,1 @@
+Artículo 5º—De las opciones de nombramiento. Cuando el candidato a desempeñar un puesto bajo el régimen de confianza sea un empleado que esté nombrado en una plaza permanente, la Junta Directiva General o el Gerente General, según corresponda, podrán nombrarlo dentro o fuera de la escala de salarios del Banco, considerando el sistema que resulte más conveniente para el servidor.

@@ -1,0 +1,1 @@
+Artículo 7º—Reconocimiento salarial. El sueldo que reciba el servidor al desempeñar un puesto bajo el régimen de confianza contemplará el reconocimiento de los ajustes y aumentos salariales que se acuerden para los empleados regulares del Banco, calculados de acuerdo al tipo de salario (nominal o base más pluses), con que haya sido contratado.

@@ -1,0 +1,1 @@
+Artículo 8º—Limitación. Los funcionarios clasificados como empleados de confianza, no podrán ser cesados por reestructuración institucional ni podrán acogerse a algún programa de movilidad laboral voluntaria, o cualquier sistema que permita el pago de prestaciones legales o indemnización por supresión de plaza.
