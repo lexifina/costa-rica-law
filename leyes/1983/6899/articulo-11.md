@@ -1,0 +1,1 @@
+Artículo 11.- El Ministerio de Agricultura y Ganadería y el Instituto de Desarrollo Agrario, conjuntamente, tendrán un programa permanente para la explotación o agroindustrialización de las fincas adquiridas al amparo de esta ley.
