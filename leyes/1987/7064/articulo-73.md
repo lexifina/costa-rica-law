@@ -1,1 +1,1 @@
-Artículo 73.- Rige a partir de su publicación.
+ARTICULO 73.- Rige a partir de su publicación.
