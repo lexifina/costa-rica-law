@@ -1,0 +1,1 @@
+Artículo 70.- Del control de calidad de los agentes de control biológico. La Dirección, por medio del Laboratorio de Control Biológico realizará pruebas de calidad y de eficiencia biológica, sobre los agentes de control biológico.

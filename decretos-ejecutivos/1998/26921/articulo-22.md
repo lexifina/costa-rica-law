@@ -1,0 +1,2 @@
+Artículo 22.—Procedimiento para pedir orden de allanamiento. Toda autoridad fítosanitaria podrá solicitar a la autoridad judicial más cercana al lugar que se requiera allanar, una orden de allanamiento, para lo cual se apersonará ante el Despacho respectivo, adjuntando toda la información técnica y legal, con la que se cuenta al momento, y justificando la necesidad de la medida.
+Para tal petición, la autoridad fítosanitaria únicamente requerirá de su investidura como tal.

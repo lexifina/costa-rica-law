@@ -1,0 +1,2 @@
+Artículo 171.—De la importación de materiales de propagación.
+La importación de materiales de propagación queda sujeta al cumplimiento de los requisitos fitosanitarios establecidos en los Reglamentos y disposiciones administrativas y a la comprobación de su condición fítosanitaria en el punto de entrada. Además, en caso de ser necesario, la Dirección dará seguimiento en el interior del país o establecerá cuarentena posentrada.

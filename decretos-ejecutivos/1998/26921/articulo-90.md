@@ -1,0 +1,3 @@
+Artículo 90.—Del incumplimiento de medidas técnicas para el combate de plagas presentes en los laboratorios, de reproducción sexual o asexual y viveros.
+1. Cuando se incumplan las medidas técnicas, la Dirección podrá ordenar la clausura total o parcial de los laboratorios de reproducción sexual o asexual, y de los viveros.
+2. Cuando el material vegetal de propagación estuviere afectado por una plaga de importancia cuarentenal o económica y técnicamente se requiriere, la Dirección podrá decomisarlo y ordenar su destrucción, sin ninguna responsabilidad para el Estado, levantando el acta respectiva.

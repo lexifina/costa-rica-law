@@ -1,0 +1,2 @@
+Artículo 230.—De las muestras de plantas y productos vegetales para comercio. Los envíos de muestras de plantas y productos vegetales, cuyo fin es la apertura de un mercado, deben cumplir con los requisitos fítosanitarios del país importador, y serán exceptuados de la inscripción en la base de datos. Deben presentarse en sus respectivos empaques en el punto de salida para su examen y emisión del Certificado Fitosanitario.
+La cantidad de producto enviado, deberá estar acorde con su naturaleza y su condición de muestra.

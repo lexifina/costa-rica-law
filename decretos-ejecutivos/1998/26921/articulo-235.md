@@ -1,0 +1,1 @@
+Artículo 235.—De las retenciones de plantas y productos vegetales a exportar. Cuando la retención de un envío es ocasionada por la presencia de plagas cuarentenarias o nocivas para las plantas y productos vegetales, se ordenarán las medidas fitosanitarias correspondientes, llenando la respectiva Acta de Retención.

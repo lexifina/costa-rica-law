@@ -1,0 +1,2 @@
+Artículo 89.—De la copia de resultados y recomendaciones. Todas las investigaciones realizadas en el campo de la protección fitosanitaria con recursos públicos, deberá remitir su resultado a la Dirección, en un plazo de tres meses calendario una vez concluida la investigación.
+La Dirección analizará dichos resultados con apoyo de la Dirección de Investigaciones Agropecuarias para autorizar o no el uso público de las nuevas tecnologías en este campo.

@@ -1,0 +1,1 @@
+Artículo 244.—De la revocatoria de nombramientos. El Ministerio a instancia del Director o Subdirector podrá revocar de oficio, mediante el acuerdo ejecutivo correspondiente, el nombramiento que se hubiese decretado a cualquiera de las autoridades fitosanitarias nombradas ad-honorem, sin responsabilidad alguna.

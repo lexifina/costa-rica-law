@@ -1,0 +1,2 @@
+Artículo 229.—De las muestras de material vegetal o especímenes para identificación. Los envíos de material vegetal o especímenes con fines de identificación patológica, botánica o entomológica, deberán cumplir con los requisitos establecidos por el país de destino, en cuanto a medidas de bioseguridad para evitar cualquier posible contaminación.
+Las muestras deberán presentarse en los empaques adecuados, en el punto de salida correspondiente donde se emitirá el documento que hace constar la naturaleza y fines del envío.

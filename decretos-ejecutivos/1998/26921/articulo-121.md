@@ -1,0 +1,1 @@
+Artículo 121.—De la ubicación o almacenamiento de producto transgénico. El producto transgénico liberado, movilizado y/o importado, debe mantenerse en las áreas y locales especificados en la solicitud.

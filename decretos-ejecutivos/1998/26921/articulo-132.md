@@ -1,0 +1,1 @@
+Artículo 132.—De la confidencialidad de la información técnica y científica sobre productos transgénicos. Toda la información técnica y científica que aporten las personas físicas y jurídicas para los respectivos registros tendrá carácter confidencial.

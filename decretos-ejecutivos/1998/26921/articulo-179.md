@@ -1,0 +1,1 @@
+Artículo 179.—De la obligación de todo pasajero que arribe al país. Todo pasajero que arribe al país, de cualquier procedencia, tiene la obligación de manifestar en la Declaración de Aduana los productos de naturaleza agrícola que pretenda introducir al país, declaración que deberá ser exigida por las autoridades fitosanitarias al momento de la inspección de su equipaje.

@@ -1,0 +1,6 @@
+Artículo 82.—De la declaratoria de emergencia. Cuando se haya determinado que una plaga de importancia cuarentenal o económica que está amenazando la producción agrícola, la Dirección podrá recomendara! Poder Ejecutivo la promulgación de estado de emergencia con el fin de hacer expedito el combate de dicha plaga.
+Se hará declaratoria de Emergencia Fitosanitaria en los siguientes casos:
+1. Cuando la incidencia de una plaga establecida sobrepase los niveles normales de manejo por parte de los productores, lo cual será determinado por la Dirección.
+2. Cuando se introduzca en nuestro territorio una plaga exótica que ponga en peligro la agricultura nacional.
+La emergencia fítosanitaria de los casos anteriores, será atendida técnica y administrativamente por la Dirección, y la estructura general será definida en forma conjunta por el Ministro y el Director de la Dirección.
+A la Dirección, le corresponderá la dirección técnica y administrativa, coordinación y ejecución de las medidas correspondientes, para atender la emergencia. Igualmente quedará autorizada para disponer automáticamente de los recursos del Fondo de emergencia destinados para tal fin, así como, gestionar ante otros entes públicos o privados la ayuda necesaria.

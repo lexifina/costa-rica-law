@@ -1,0 +1,1 @@
+Artículo 214.—De los lineamientos técnicos para fincas y viveros. En toda finca y vivero de plantas y productos vegetales para la exportación deberá cumplirse con los lineamientos establecidos en la "Guía Técnica FE: 02 para Fincas y Viveros de Productos Agrícolas para la exportación".

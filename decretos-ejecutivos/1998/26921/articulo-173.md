@@ -1,0 +1,1 @@
+Artículo 173.—De los procedimientos para el tránsito. La Dirección determinará los procedimientos para la autorización del tránsito internacional por el país de plantas y productos vegetales, pudiendo incluso prohibir el traslado por el territorio nacional de determinados materiales en atención al riesgo fitosanitario.

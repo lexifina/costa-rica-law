@@ -1,0 +1,1 @@
+Artículo 184.—Del ingreso de productos por la vía postal. Todos los productos y subproductos de naturaleza vegetal que ingresen al país por la vía postal o de correos, están sujetos a la aplicación de las medidas y procedimientos cuarentenales.

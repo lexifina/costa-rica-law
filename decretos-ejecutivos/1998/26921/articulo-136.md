@@ -1,0 +1,2 @@
+Artículo 136.—De la elaboración de los reglamentos técnicos.
+El Departamento de Servicios Fitosanitarios Internacionales elaborará los Reglamentos Técnicos para realizar el control fitosanitario del intercambio internacional, de vegetales, agentes de control biológico y otros tipos de organismos usados en la agricultura, elementos y medios de transporte, materiales de acondicionamiento, cuando éstos sean potencialmente capaces de introducir y diseminar plagas.

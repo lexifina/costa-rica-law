@@ -1,0 +1,2 @@
+Artículo 66.—De las medidas de combate de las plagas. La Dirección elaborará las estrategias técnicas y propondrá las legales para la implementación de las medidas de combate a seguir en el país. Si se desconocen las medidas de combate, se aplicarán las tácticas disponibles mientras la Dirección gestiona la investigación para atender el problema.
+Cuando la situación lo amerite, la Dirección recomendará a las autoridades superiores la emisión de un decreto ejecutivo que declare la plaga de combate particular y obligatorio.

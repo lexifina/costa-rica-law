@@ -1,0 +1,1 @@
+Artículo 154.—De la verificación en el país de origen. La Dirección cuando se requiera, establecerá los procedimientos para constatar en el país de origen, el cumplimiento de las medidas fitosanitarias, previas a la importación de vegetales, agentes de control biológico y otros organismos usados en la agricultura, elementos y medios de transporte y acondicionamiento.

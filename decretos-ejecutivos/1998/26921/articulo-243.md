@@ -1,0 +1,5 @@
+TITULO XII
+DE LAS AUTORIZACIONES PARA LA EJECUCIÓN DE PROGRAMAS FITOSANITARIOS
+Artículo 243.—Del Nombramiento de autoridades fitosanitaria ad-honorem. El Ministerio por medio del acuerdo respectivo podrá nombrar a personas físicas idóneas como autoridades fitosanitarias ad-honorem para la ejecución de medidas fitosanitarias. Los requisitos y funciones los establecerá el Director o Subdirector junto con el Jefe del Departamento respectivo, bajo cuyas, órdenes prestará las labores, tomando en consideración las necesidades de la Dirección y las funciones específicas que se le asignarán.
+El puesto a desempeñar, la vigencia o duración del nombramiento, el lugar donde ejecutará las labores, las acciones a ejecutar, y cualquiera otra indicación importante, le serán indicadas a la persona, en el acuerdo ejecutivo, mediante el que se le dará la investidura oficial.
+Una vez publicado en La Gaceta el Acuerdo de Nombramiento, el Director o Subdirector autorizará y ordenará la emisión de la identificación respectiva.

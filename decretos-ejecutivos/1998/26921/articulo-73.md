@@ -1,0 +1,1 @@
+Artículo 73.—Del aval a programas de combate de plagas. Todo programa de prevención y combate de plagas de importancia económica, para que tenga carácter oficial deberá ser presentado ante la Dirección para que ésta técnicamente lo avale.

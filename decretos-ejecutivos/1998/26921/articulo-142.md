@@ -1,0 +1,5 @@
+Artículo 142.—De la naturaleza de los requisitos fitosanitarios. Los requisitos fitosanitarios para la importación y tránsito de vegetales. agentes de control biológico y otros organismos usados en la agricultura, establecidos en los reglamentos técnicos se deberán basaren análisis de riesgo de plagas cuarentenales para su sustentación en principios científicos. Su elaboración estará basada en las siguientes normus internacionales y sus actualizaciones:
+FAO. 1995. Directrices para el Análisis de Riesgo de Plagas. Sección 1. Reglamentación para la Importación. Normas Internacionales para Medidas Fitosanitarias. Publicación ?2. Roma.
+OIRSA. 1995. Norma Centroamericana para Análisis de Riesgo de Plagas. Dirección Técnica de Sanidad Vegetal. El Salvador.
+Antes de oficializar un reglamento técnico, este será notificado a la Organización Mundial del Comercio (OMC) y se publicará su aviso en el Diario Oficial "La Gaceta", para su consulta.
+La publicación final se hará en el diario oficial La Gaceta, donde se determinará el momento de su vigencia.

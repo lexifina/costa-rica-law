@@ -1,0 +1,1 @@
+Artículo 155.—De la constatación de las condiciones fitosanitarias al ingreso. Las autoridades fitosanitarias constatarán la condición fitosanitaria de los productos de origen vegetal, elementos y medios de transporte, cualquier otro material portador potencial o real de, plagas y ordenarán la ejecución de las medidas fitosanitarias que procedan.

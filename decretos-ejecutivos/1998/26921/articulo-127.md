@@ -1,0 +1,1 @@
+Artículo 127.—De la movilización de productos transgénicos. El interesado para la movilización dentro del país de un producto transgénico deberá contar con la autorización de la Dirección, anexando la respectiva solicitud en el formato BIO-01.

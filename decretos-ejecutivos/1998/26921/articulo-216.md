@@ -1,0 +1,1 @@
+Artículo 216.—De los lincamientos técnicos para instalaciones de empaque. Las instalaciones utilizadas para el empaque de plantas y productos vegetales para la exportación, deberán cumplir con los requisitos establecidos en la "Guía Técnica para Empacadoras FE.03".

@@ -1,0 +1,1 @@
+Artículo 165.—De la retención de bienes para importación. Las autoridades fitosanitarios están autorizadas para retener cualquier vegetal incluyendo los elementos y medios de transporte, cuando contravenga las disposiciones de la Ley de Protección Fitosanitaria y sus Reglamentos.

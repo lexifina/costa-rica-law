@@ -1,0 +1,1 @@
+Artículo 176.—De la detección de plagas. Cuando se detecte, en cualquier compartimiento del medio de transporte, una infestación de plagas de importancia económica o cuarentenal, la autoridad fitosanitaria ordenará la medida fitosanitaria correspondiente.

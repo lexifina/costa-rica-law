@@ -1,0 +1,1 @@
+Artículo 186.—Del control de los productos en envíos rápidos. Las autoridades fitosanitarias ejercerán control sobre los productos agrícolas que arriben al territorio nacional, a través de los servicios internacionales de envío rápido acorde con lo establecido en la Ley de Protección Fitosanitaria, sus Reglamentos y disposiciones administrativas.

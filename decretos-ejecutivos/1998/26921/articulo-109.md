@@ -1,0 +1,1 @@
+Artículo 109.—De la obligación del Fiscal del Colegio de Ingenieros Agrónomos. El Fiscal del Colegio de Ingenieros Agrónomos deberá denunciar de inmediato aquellos establecimientos que no cuenten con Regente, al Departamento de Control de Insumos Agrícolas, aportando el nombre del establecimiento, dirección, teléfono y fax para proceder al cierre del mismo.

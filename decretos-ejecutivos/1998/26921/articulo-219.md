@@ -1,0 +1,1 @@
+Artículo 219.—De los requisitos para exportación. Todo exportador debe comunicar al Programa de Exportación del Departamento de Servicios Fitosanitarios Internacionales, al menos con 8 días hábiles de antelación al envío, las restricciones, requisitos y condiciones fitosanitarias establecidas por el país importador para atenderlas oportunamente.

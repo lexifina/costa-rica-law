@@ -1,0 +1,2 @@
+DONACIÓN DE BIENES DECOMISADOS O DECLARADOS EN ABANDONO
+Artículo 23.—Del destino de los bienes decomisados o declarados en abandono. Las autoridades fítosanitarias que realicen decomisos, o que en el ejercicio de sus funciones mantengan en custodia bienes declarados en abandono, deberán de comunicar y trasladar inmediatamente cuando dichos bienes califiquen para donación y venta, a la Dirección para su custodia, la cual debe recibirlos bajo inventario y comunicar de inmediato y por escrito al área administrativa del Ministerio.

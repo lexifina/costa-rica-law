@@ -1,0 +1,1 @@
+Artículo 69.- De las medidas para traslado de vegetales. La Dirección propondrá la emisión del correspondiente decreto ejecutivo o resolución administrativa según corresponda; las medidas fitosanitarias para el manejo y traslado de materiales o agentes de control biológico, de un área a otra que puedan causar riesgo para la agricultura nacional.

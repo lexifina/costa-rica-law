@@ -1,0 +1,1 @@
+Artículo 200.—De la obligación de las empresas navieras. El representante de los medios de transporte marítimo está en la obligación de avisar y confirmar su arribo y brindar las facilidades a las autoridades fítosanitarias del punto de entrada, para la inspección correspondiente.

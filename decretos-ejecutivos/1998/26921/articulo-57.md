@@ -1,0 +1,1 @@
+Artículo 57.—De la denominación de agricultura orgánica. Tendrán derecho a utilizar la denominación de "agricultura orgánica" para efectos comerciales sólo las personas físicas o jurídicas cuyas fincas o industrias estén inscritas en los correspondientes registros.

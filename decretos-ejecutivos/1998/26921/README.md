@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 26921
+
+Reglamento a la Ley de Protección Fitosanitaria.
+
+- Tipo: Decreto Ejecutivo
+- Número: 26921
+- Fecha: 1998-03-20
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 98 del 1998-05-22
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=43150&param2=45482&param3=1 (ficha 43150)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1998-05-22 | la propia norma |

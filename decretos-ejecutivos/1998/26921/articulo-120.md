@@ -1,0 +1,1 @@
+Artículo 120.—De la carta de compromiso de productos transgénicos. El solicitante elaborará una carta compromiso ante la Dirección mediante la que se responsabilizará del manejo o destrucción del producto, en forma tal que evite su escape al medio ambiente, una vez que concluyan los ensayos.

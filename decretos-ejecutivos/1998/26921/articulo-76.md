@@ -1,0 +1,1 @@
+Artículo 76.—De la inspección de cultivos. El Departamento de Servicios Fitosanitarios Nacionales en conjunto con los Programas Regionales inspeccionará los cultivos y vegetales para la identificación de problemas fitosanitarios, y ejecutará la implementación de estrategias de combate y prevención de plagas.

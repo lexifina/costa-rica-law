@@ -1,0 +1,6 @@
+TITULO XIV
+DE LAS SANCIONES ADMINISTRATIVAS
+Artículo 256.—De los tipos de sanciones administrativas.
+1. La Dirección por medio de los diferentes departamentos que lo componen, previo cumplimiento del procedimiento administrativo que corresponda, según sea el caso, podrá aplicar además de las medidas técnicas que correspondan, sanciones administrativas, tales como: suspensiones temporales o indefinidas de registros, suspensiones temporales o indefinidas de inscripciones, cierres temporales de establecimientos, cancelaciones o suspensiones de autorizaciones o permisos.
+2. Además de las sanciones y los casos que se señalan en el presente reglamento, existen las sanciones que se estipulan en los diferentes Reglamentos Técnicos, que complementan la Ley de Protección Fitosanitaria, y en las otras disposiciones legales administrativas que se dicten con el objeto de complementar las lagunas o vacíos legales en esta materia.
+3. El que se aplique una medida fítosanitaria, y una sanción administrativa, no impide que de haberse infringido la Ley de Protección Fitosanitaria, o se compruebe la comisión de algún delito o alguna contravención de conformidad con el Código Penal, se proceda a presentar la denuncia ante la autoridad judicial respectiva.

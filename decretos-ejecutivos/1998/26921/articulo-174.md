@@ -1,0 +1,1 @@
+Artículo 174.—De la cooperación de las autoridades nacionales y los transportistas. Las otras autoridades nacionales y el responsable de los medios de transporte, brindarán a la autoridad fitosanitaria las facilidades requeridas para la ejecución de las medidas fitosanitarias.

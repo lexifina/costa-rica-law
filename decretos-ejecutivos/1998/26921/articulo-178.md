@@ -1,0 +1,1 @@
+Artículo 178.—De la comunicación del arribo de tripulantes y pasajeros. Las autoridades aduaneras, migratorias y aeroportuarias, comunicarán oportunamente a las autoridades fitosanitarias, el desembarque de tripulantes o pasajeros que arriben a territorio nacional, para efectuar la inspección de sus equipajes o efectos personales.

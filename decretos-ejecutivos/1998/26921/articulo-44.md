@@ -1,0 +1,11 @@
+Artículo 44.-De los requisitos para inspectores de Agricultura Orgánica. Para autorizar a inspectores de agricultura orgánica, deberán presentar al Programa de Certificación en Agricultura Orgánica lo siguiente:
+a- Declaración Jurada sobre la promesa de confidencialidad de la información que se recabe por el inspector que es propiedad del cliente.
+b-Llenar formulario N° A.O.1 y cumplir con los documentos que ahí se indiquen.
+c-Documento que demuestre que cuenta con la idoneidad, con un mínimo de tres años de experiencia en actividades de agricultura orgánica.
+d-No podrán tener relación o interés de negocios, en cuanto a producción, elaboración, envasado o comercialización de productos o insumos orgánicos con las empresas u organizaciones en los que tenga vínculos de asesoría o de interés comercial, lo cual implica prohibición de extender reportes en los casos enunciados. De comprobarse incumplimiento a lo establecido, serán imposibilitados para el desempeño del cargo, tanto el inspector como la agencia certificadora que lo contrate.
+e-No podrán tener vínculos de afiliación organizativa, ni asesorías profesionales o técnicas en forma directa o indirecta, con personas naturales o jurídicas que inspeccionan para efectos de certificación.
+f-Asimismo no podrán tener relación o interés de negocios en cuanto a producción, elaboración, envasado o comercialización de productos e insumos orgánicos con naturales o jurídicas que inspeccionan para efectos de certificación.
+g-Lo expuesto en los acápites anteriores de este artículo, implica la prohibición de extender reportes en los casos enunciados. De comprobarse incumplimiento a lo establecido, serán imposibilitados para el desempeño del cargo por período de un año, tanto el inspector como la agencia certificadora que lo contarte.
+h-Aprobación del curso para inspectores orgánicos avalado por la Dirección.
+i-Profesional idóneo colegiado, con un mínimo de tres años de experiencia en actividades de agricultura orgánica.
+Cumplidos todos los requisitos, la Dirección procederá a anotar la inscripción en el registro correspondiente. El registrante está en la obligación de actualizarlo anualmente previo pago de la anualidad respectiva.

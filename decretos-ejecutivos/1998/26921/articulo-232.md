@@ -1,0 +1,1 @@
+Artículo 232.—Del material de empaque y medios de transporte de plantas o productos vegetales. Las cajas, empaques y medios de transporte que se utilicen para el envío de plantas o productos vegetales, deben satisfacer los requisitos de protección, conservación y seguridad fitosanitaria, según lo que establece la "Guía Técnica para los Empaques y Medios de Transporte FE. 10"

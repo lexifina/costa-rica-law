@@ -1,0 +1,1 @@
+Artículo 195.—Del acatamiento de las medidas fítosanitarias. Los representantes de los importadores, conductores de vehículos de transporte, de carga y pasajeros, están obligados a acatar las medidas fítosanitarias establecidas en la Ley de Protección Fitosanitaria, sus reglamentos y cualquier otra disposición administrativa que emanen de las autoridades fítosanitarias.

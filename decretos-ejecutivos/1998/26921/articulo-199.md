@@ -1,0 +1,2 @@
+Artículo 199.—Del suministro de los manifiestos de carga. Los transportistas o portadores y los agentes de aduana, vapores, líneas aéreas y otras, están en la obligación de suministrar, a los inspectores fitosanitarios, los manifiestos de carga o los documentos con la descripción de los productos que transportan, escrita en idioma español.
+Los inspectores fitosanitarios, procederán a realizar las labores técnicas cuarentenales correspondientes, para hacer cumplir las medidas fítosanitarias respectivas cotejando la documentación presentada que respalde el embarque.

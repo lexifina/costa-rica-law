@@ -1,0 +1,1 @@
+Artículo 257.—El Ministerio a través de la Dirección de Servicios de Protección Fitosanitaria, realizará los ajustes técnicos, administrativos y financieros necesarios para la implementación de los alcances de la Ley de Protección Fitosanitaria.

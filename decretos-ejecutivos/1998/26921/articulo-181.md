@@ -1,0 +1,1 @@
+Artículo 181.—De la detección de productos en equipajes. Los productos agrícolas que se detecten en equipajes y efectos personales, serán retenidos, y sometidos a la aplicación de medidas fitosanitarias de acuerdo con el riesgo que representen.

@@ -1,0 +1,1 @@
+Artículo 122.—De la identificación de productos transgénicos. El producto transgénico a liberarse, movilizarse y/o importarse, debe identificarse con una etiqueta que contenga la información del formato BIO-04.

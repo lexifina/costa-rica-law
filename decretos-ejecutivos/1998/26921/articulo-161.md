@@ -1,0 +1,1 @@
+Artículo 161.—Del registro de intercepciones. En las Estaciones de Cuarentena Agropecuaria se mantendrán colecciones y registros, sobre las plagas interceptadas y de las medidas aplicadas. Esta información se comunicará al Departamento de Servicios Fitosanitarios Internacionales, para las comunicaciones internacionales que procedan.

@@ -1,0 +1,4 @@
+Artículo 119.—De los registros en el campo de los vegetales transgénicos, organismos modificados genéticamente o sus productos.
+a. Toda persona física o jurídica que desee importar, investigar, exportar, experimentar, movilizar, liberar al ambiente, multiplicar y comercializar materiales transgénicos, organismos modificados genéticamente o sus productos, agentes de control biológico y otros tipos de organismos para uso agrícola, producidos dentro o fuera del país, debe estar inscrito ante la Dirección.
+b. Toda persona física o jurídica que desee manipular genéticamente en el país un material transgénico u otro organismo de uso agrícola, debe estar inscrito en la Dirección.
+c. Todo proyecto que incluya la manipulación genética de materiales transgénicos u otros organismos de uso en la agricultura, debe registrarse, ante la Dirección.

@@ -1,0 +1,1 @@
+Artículo 77.—De la implementación de medidas. Las autoridades fitosanitarias mediante procedimientos técnicos y administrativos, indicarán las medidas fitosanitarias al propietario, poseedor u ocupante a cualquier título de los predios y fijará los plazos para el cumplimiento.

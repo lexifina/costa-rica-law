@@ -1,0 +1,1 @@
+Artículo 170.—De la responsabilidad del importador. Una vez establecidos los requisitos en los Reglamentos Técnicos, será responsabilidad del importador, consignatario o destinatario, comunicarlos a los suplidores o remitentes de sus productos en el país de origen, con la debida antelación para garantizar su cumplimiento.

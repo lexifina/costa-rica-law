@@ -1,0 +1,1 @@
+Artículo 225.—De los niveles de residuos de plaguicidas en los vegetales a exportar. Los exportadores de productos vegetales para el consumo humano deberán cumplir con los niveles de tolerancia de residuos de plaguicidas establecidos por el país de destino, en caso contrario no se emitirá el Certificado Fitosanitario.

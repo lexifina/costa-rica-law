@@ -1,0 +1,2 @@
+Artículo 145.—De los reglamentos técnicos para la importación.
+El Ministerio a través de la Dirección elaborará las regulaciones por medio de Reglamentos Técnicos los requisitos fítosanitarios para la importación o el ingreso en tránsito de productos básicos u otros capaces de propagar una plaga cuarentenal. Sé realizará el mismo procedimiento para casos de excepción como muestras de vegetales sin valor comercial.

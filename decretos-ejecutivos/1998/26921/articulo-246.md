@@ -1,0 +1,1 @@
+Artículo 246.—De la revocatoria de las autorizaciones para la autorización de acciones fitosanitarias. La Dirección podrá revocar las autorizaciones otorgadas en el artículo anterior cuando se incumpla con los requisitos, funciones y procedimientos establecidos en el respectivo reglamento, sin detrimento de la responsabilidad civil o penal a que se hagan acreedores.

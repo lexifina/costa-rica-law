@@ -1,0 +1,1 @@
+Artículo 182.—De los residuos en medios de transporte. Los residuos, sobrantes o desechos de productos agrícolas, que se pretenda desembarcar de medios de transporte que arriben al país, deberán ser tratados o destruidos, mediante métodos o procesos aprobados por la Dirección.

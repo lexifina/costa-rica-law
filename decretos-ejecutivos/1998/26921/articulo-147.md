@@ -1,0 +1,1 @@
+Artículo 147.—De la responsabilidad del Estado al aplicar medidas fitosanitarias. Al Estado no le corresponderá ninguna responsabilidad por los perjuicios que pueda ocasionar al aplicar cualquiera de las medidas fitosanitarias y/o legales necesarias, en el cumplimiento de la Ley de Protección Fitosanitaria y sus reglamentos.

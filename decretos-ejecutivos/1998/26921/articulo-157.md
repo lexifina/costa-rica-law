@@ -1,0 +1,1 @@
+Artículo 157.—De la competencia de la autoridad fitosanitaria. Para el cumplimiento de los objetivos de la Dirección de Servicios de Protección Fitosanitaria, las autoridades verificarán la observancia de los requisitos técnicos, legales y documentales que se establezcan y aplicará las medidas fitosanitarias que correspondan.

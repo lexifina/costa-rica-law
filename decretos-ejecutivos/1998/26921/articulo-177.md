@@ -1,0 +1,1 @@
+Artículo 177.—De la vigilancia. Las autoridades fitosanitarias están en la obligación de mantener una vigilancia permanente sobre la condición fítosanitaria de los productos y bodegas, predios o recintos portuarios y aduaneros.

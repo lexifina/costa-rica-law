@@ -1,0 +1,3 @@
+Artículo 20.- De la colaboración obligatoria de funcionarios públicos. Los funcionarios públicos dentro de sus respectivas competeiicias, deberán prestar la colaboración que las autoridades fitosanitarias les soliciten, para el cumplimiento de la Ley de Protección Fitosanitaria.
+Dicha colaboración podrá ser solicitada verbalmente o por escrito, por cualquier funcionario investido de autoridad fitosanitaria. Para demostrar la investidura, deberá mostrar el carné que lo acredita como funcionario del Ministerio, o como autoridad administrativa ad-honorem, debidamente autorizado.
+En caso de ser necesario, la petición de colaboración se hará por escrito por el Director o Subdirector, o, por el jefe de los Departamentos respectivos.

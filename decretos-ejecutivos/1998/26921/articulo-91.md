@@ -1,0 +1,1 @@
+Artículo 91.—De la regulación fitosanitaria para la propagación de vegetales. La Dirección elaborará y recomendará al Poder Ejecutivo la publicación del Reglamento para el Manejo Fitosanitario y Control de los Viveros y otros entes, dedicados a la producción y/o comercialización de material vegetal dentro del país.

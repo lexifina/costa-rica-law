@@ -1,0 +1,2 @@
+Artículo 63.—Del destino del producto descalificado. A partir de la notificación de la apertura del procedimiento administrativo para investigar el incumplimiento o no de los deberes y obligaciones; el productor o procesador no podrá utilizar la denominación de "agricultura orgánica". En ningún caso el producto podrá ser transferido a otra organización inscrita como orgánica.
+Quienes produzcan, elaboren, procesen, almacenen, envasen productos que utilicen la denominación "Agricultura Orgánica" no oficial, serán denunciados ante la autoridad competente.

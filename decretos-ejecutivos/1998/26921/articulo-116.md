@@ -1,0 +1,1 @@
+Artículo 116.—De las invitaciones a sesiones. A las sesiones de la Comisión podrá ser invitada, con derecho a voz pero no a voto, a cualquier persona, a quien la Comisión considere conveniente convocar.

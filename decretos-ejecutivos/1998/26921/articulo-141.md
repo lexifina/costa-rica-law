@@ -1,0 +1,2 @@
+Artículo 141.—De los programas de prevención y combate de plagas.
+La Dirección elaborará los programas, las medidas y procedimientos técnicos para la prevención de plagas exóticas, planes de emergencia para combatir plagas exóticas detectadas, plagas declaradas de combate obligatorio y el seguimiento posentrada de material vegetal para propagación, agentes de control biológico y otros organismos usados en la agricultura.

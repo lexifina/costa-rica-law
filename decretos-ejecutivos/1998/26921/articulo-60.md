@@ -1,0 +1,3 @@
+Artículo 60.—De la inhabilitación de inspectores. En caso de verificarse incumplimiento de lo establecido en este reglamento y las directrices fijadas, los inspectores serán inhabilitados para el desempeño de sus funciones de la siguiente forma:
+Dependiendo de la gravedad de la falta la inhabilitación será: por tres meses, por un año, o bien, será cancelado irrevocablemente su registro y acreditación.
+De previo a resolver la inhabilitación se le dará audiencia por un período de ocho días hábiles, a efecto de que haga valer su derecho y presente los fundamentos que dieron pie a su accionar. La Dirección, tomando en consideración los alegatos y pruebas presentadas, resolverá en. un plazo de ocho días hábiles.

@@ -1,0 +1,1 @@
+Artículo 240.—De los envíos de plantas y productos vegetales sin Certificado Fitosanitario. La Dirección, no emitirá Certificados Fitosanitarios, ni Declaraciones Adicionales, para aquellos envíos de plantas o productos vegetales que hayan salido del país sin los trámites y requisitos establecidos en el presente reglamento y en las Guías respectivas.

@@ -1,0 +1,2 @@
+Artículo 18.- De la capacitación, asesoramientos, y consultoras en materia de protección fitosanitaria. La Dirección por medio de sus funcionarios, podrá ofrecer a nivel nacional e internacional servicios de capacitación, asesorías y consultarías en materia de protección fitosanitaria. Los costos que conlleven dichos servicios, serán cubiertos por las personas o instituciones que lo requirieron.
+Todo ofrecimiento debe hacerse a través del Director o el Subdirector, o bien con el visto bueno de éstos.

@@ -1,0 +1,1 @@
+Artículo 166.—Del reacondicionamiento de bienes para importación. Las autoridades fitosanitarias están autorizadas para ordenar el reacondicionamiento de aquellas plantas, productos agrícolas, elementos y medios de transporte y otros que contravengan las disposiciones de la Ley de Protección Fitosanitaria y sus Reglamentos.

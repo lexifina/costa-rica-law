@@ -1,0 +1,1 @@
+Artículo 113.—De la operación de la Comisión. La Comisión nombrará de su seno a un Presidente, quien deberá ser el representante de la Dirección, para que coordine y dirija las reuniones, un Vicepresidente para que sustituya al presidente en sus ausencias y un secretario para que tome y lleve el acta de las reuniones.

@@ -1,0 +1,3 @@
+Artículo 17.- Del Apoyo Técnico y Financiero de organizaciones nacionales e internacionales. El Director o el Subdirector según corresponda, gestionarán en coordinación con los Despachos Ministeriales por escrito todo el apoyo técnico y financiero de organizaciones nacionales e internacionales, con el fin de hacer cumplir los objetivos del Servicio.
+Toda gestión de apoyo deberá ir acompañada de la justificación técnica respectiva, así como de un programa y presupuesto mediante el cuál se podría ejecutar.
+La preparación de dicho programa y presupuesto le corresponderá en primer instancia al o los Jefes de los Departamentos, a quiéjies le correspondería su ejecución directa, o bien, a quién el Director o Subdirector asigne.

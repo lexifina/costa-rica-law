@@ -1,0 +1,1 @@
+Artículo 75.—De la investigación fitosanitaria. La Dirección promoverá y apoyara la investigación científica fitosanitaria requerida para la prevención y control de las plagas de importancia económica y cuarentenal.

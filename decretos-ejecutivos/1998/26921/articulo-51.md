@@ -1,0 +1,1 @@
+Artículo 51.—De la confidencialidad de la información. La Agencia Certificadora deberá respetar la información considerada propiedad del cliente y mantendrá confidencialidad sobre la misma. Asimismo su actuación deberá estar exenta de trato discriminatorio y todos los procedimientos deberán garantizar transparencia.

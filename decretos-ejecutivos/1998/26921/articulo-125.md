@@ -1,0 +1,1 @@
+Artículo 125.—De la liberación accidental de productos transgénicos. En caso de una liberación accidental del producto transgénico, el responsable del material y el funcionario oficial encargado de la supervisión, deberán informar inmediatamente, posterior al imprevisto, al Programa Biotecnología de la Dirección, quien tomará en forma inmediata las acciones pertinentes.

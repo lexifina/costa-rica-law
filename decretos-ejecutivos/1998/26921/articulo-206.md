@@ -1,0 +1,1 @@
+Artículo 206.—De la base de datos de exportadores y/o empacadores. Todo exportador y/o empacador de plantas y productos vegetales no tradicionales para la exportación, debe inscribirse ante el Programa de Exportación del Departamento de Servicios Fitosanitarios Internacionales para conformar la base de datos.

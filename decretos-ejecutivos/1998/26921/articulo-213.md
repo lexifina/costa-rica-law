@@ -1,0 +1,1 @@
+Artículo 213.—De las disposiciones administrativas y técnicas. El Programa de Exportación del Departamento de Servicios Fitosanitarios Internacionales dictará todas las disposiciones administrativas y técnicas que serán de observancia obligatoria para los administrados que deseen exportar plantas y productos vegetales.

@@ -1,0 +1,1 @@
+Artículo 167.—Del decomiso de bienes de importación. Las autoridades fítosanitarias están autorizadas para decomisar y tomar las medidas fítosanitarias respectivas de los vegetales, elementos de transporte, y otros que contravengan la Ley de Protección Fitosanitaria, sus Reglamentos y sus disposiciones administrativas.

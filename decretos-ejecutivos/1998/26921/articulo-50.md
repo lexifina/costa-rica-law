@@ -1,0 +1,2 @@
+Artículo 50.—De las Agencias Certificadoras. Todo producto registrado y acreditado, proceso productivo, industrialización e instalaciones dedicadas a la producción orgánica en Costa Rica, para ser reconocidos deben ser certificados por una agencia certificadora debidamente registrada y acreditada por la Dirección.
+La labor de la Agencia Certificadora no es compatible con la actividad de producción, exportación y mercadeo de productos orgánicos.

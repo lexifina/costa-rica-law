@@ -1,0 +1,2 @@
+Artículo 19.- De las Comisiones o Comités Asesores. El Ministerio por medio de la Dirección establecerá u oficializará las comisiones o comités asesores para la aplicación e implementación de la Ley de Protección Fitosanitaria.
+El Director junto con el Jefe del Departamento respectivo, nombrarán los miembros de las comisiones o comités asesores que se requieran, los que prestarán sus funciones ad-honorem.

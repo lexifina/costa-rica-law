@@ -1,0 +1,1 @@
+Artículo 148.—De las autoridades aduaneras. Las autoridades aduaneras no permitirán el desalmacenaje, tránsito o redestino de productos de origen vegetal hasta que hayan sido autorizados previa y expresamente por las autoridades fitosanitarias.

@@ -1,0 +1,1 @@
+Artículo 183.—De las cuarentenas móviles. La Dirección podrá ampliar el servicio de vigilancia fitosanitaria en otros puntos fronterizos, a través de cuarentenas móviles para controlar el movimiento y origen de los productos, en las zonas fronterizas.

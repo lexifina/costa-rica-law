@@ -1,0 +1,1 @@
+Artículo 188.—De la inspección del equipaje y pertenencias a diplomáticos. El inspector en acatamiento a lo establecido en la Convención de Viena, podrá realizar la inspección fitosanitaria del equipaje y efectos personales de los Diplomáticos acreditados oficialmente en el país, a excepción de la valija diplomática.

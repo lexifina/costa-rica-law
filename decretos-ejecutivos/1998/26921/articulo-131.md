@@ -1,0 +1,1 @@
+Artículo 131.—De la comercialización de producto transgénico. Para introducir y/o comercializar en Costa Rica productos vegetales u otros organismos modificados genéticamente de uso en la agricultura, deberán ser identificados como tales en una etiqueta en donde el consumidor reconozca las características del producto.

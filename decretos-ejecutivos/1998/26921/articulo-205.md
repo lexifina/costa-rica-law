@@ -1,0 +1,1 @@
+Artículo 205.—Del ámbito de aplicación de las regulaciones de las exportaciones. El control fitosanitario se realizará a todas las plantas y productos vegetales, medios de transporte y empaques en fincas, empacadoras, lugares de almacenamiento y puntos de salida. Se exceptúan del control y la regulación fitosanitaria los productos procesados.

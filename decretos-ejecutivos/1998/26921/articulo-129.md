@@ -1,0 +1,1 @@
+Artículo 129.—Del arribo del material transgénico al país. La persona física o jurídica a la que se le haya otorgado la autorización para la importación del producto transgénico, deberá informar al Programa de Biotecnología de la Dirección, la fecha de llegada del producto a su destino final, o si por alguna razón no se realizó la importación.

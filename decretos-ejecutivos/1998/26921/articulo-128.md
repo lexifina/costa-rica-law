@@ -1,0 +1,1 @@
+Artículo 128.—Del empaque de productos transgénicos. El material de empaque, los envases y cualquier otro material que acompañe al producto transgénico importado o movilizado, deberá ser manejado en una forma tal que se prevenga la diseminación y el establecimiento del mismo.
