@@ -1,0 +1,1 @@
+Artículo 10.-Excepto el doctor Eduardo Jiménez de Aréchaga, los Procuradores mencionados en el artículo 7° y el Agente y el Coagente, todos los demás señores miembros de los organismos constituidos por este Decreto desempeñarán sus funciones ad honórem.

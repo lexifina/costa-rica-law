@@ -1,0 +1,1 @@
+Artículo 7°-De acuerdo con la decisión del Procurador General de la República, aceptar los servicios profesionales del Procurador Civil, licenciado Adrián Vargas Benavides y del Procurador Fiscal licenciado Martín Trejos Benavides para las labores que les asigne la Comisión de Juristas.

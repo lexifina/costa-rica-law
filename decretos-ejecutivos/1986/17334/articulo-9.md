@@ -1,0 +1,1 @@
+Artículo 9°-La Comisión Coordinadora de Juristas, podrá recomendar al Ministerio de Relaciones Exteriores y Culto la Contratación de otros asesores o consultores extranjeros, cuando así lo estime conveniente.

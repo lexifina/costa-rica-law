@@ -1,0 +1,1 @@
+Artículo 3°-Nombrar, para los efectos de lo estipulado en el artículo 40 del Reglamento de la Corte Internacional de Justicia, a los abogados don Edgar Ugalde Alvarez, como Agente y a don Raúl Trejos Flores, como CoAgente.

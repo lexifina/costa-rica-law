@@ -1,0 +1,2 @@
+Artículo 6°-Designar a los abogados Carlos Vargas Pizarro, Joaquín Tacsan Chen, Fabián Volio Echeverria, Alda Facio Montejo y Paulo Rodriguez, para colaborar con la Comisión y con la Oficina del Coordinador en la localización, ordenación y preconstitución de la prueba que debe presentarse en sustento de la defensa de Costa Rica ante la Corte Internacional de Justicia.
+Este grupo podrá ser ampliado a juicio de la Comisión Coordinadora de Juristas.
