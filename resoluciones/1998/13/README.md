@@ -20,3 +20,4 @@ Estructura y División Interna de la Dirección General de Tributación Directa.
 | 5 | 2002-11-11 | Resolución 45 (2002-11-11) |
 | 6 | 2002-11-21 | Resolución 48 (2002-11-21) |
 | 7 | 2003-02-04 | Resolución 5 (2003-02-04) |
+| 8 | 2003-02-12 | Resolución 7 (2003-02-12) |
