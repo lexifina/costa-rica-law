@@ -1,0 +1,1 @@
+Artículo 6° —Con base en los artículos precedentes, la indicada Junta Directiva clasificará dentro de los primeros quince días hábiles de cada zafra a, todos los ingenios en los respectivos rangos de producción de azúcar, para los efectos de lo establecido en la Ley N ° 7818.

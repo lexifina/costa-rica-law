@@ -1,0 +1,1 @@
+Artículo 2° —Se establecerá el promedio de la producción de azúcar de cada ingenio en el período indicado en el artículo puntero, con él propósito de clasificarlos en los referidos rangos de producción.
