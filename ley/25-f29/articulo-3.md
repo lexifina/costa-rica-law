@@ -1,0 +1,3 @@
+Art. 3°-Los hechos penados en esta ley serán juzgados gubernativamente por los respectivos Gobernadores de provincia.
+§ único. -Las resoluciones de los Gobernadores admiten el recurso de revisión, para ante el Ministro del ramo.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los diez y siete días del mes de julio de mil ochocientos ochenta y cinco. -A. ESQUIVEL, Vice-Presidente. -VICENTE C. SEGREDA, 1er Secretario. -JUAN J. ULLOA G., 2° Secretario. -Palacio Presidencial-San José, á diez y siete de julio de mil ochocientos ochenta y cinco. - Ejecútese. -BERNARDO SOTO.-El Secretario de Estado en el despacho de Justicia y Culto,-ASCENSIÓN ESQUIVEL.
