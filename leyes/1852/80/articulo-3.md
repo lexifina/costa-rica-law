@@ -1,0 +1,2 @@
+Art 3.- Las Administraciones de Aduanas, las Receptorías y demás oficinas fiscales de la República enterarán en la Administración Principal el día último del presente mes todas las cantidades que hasta ese día hayan recibido en billetes nacionales antiguos, y la misma Administración Principal pasará, en seguidas, al Despacho de Hacienda, los que se hayan amortizado, para que se destruyan.-
+Dado en el Palacio Nacional en San José a los dos días del mes de setiembre de mil ochocientos cincuenta y dos.
