@@ -10,5 +10,6 @@ Refórmase la Tarifa General de Fletes No 45 del Ferrocarril Eléctrico al Pací
 5°—Todas las reformas anteriores se aplicarán únicamente y por el momento al Flete Local.
 Quedan exceptuados de la supresión anterior, los carros de madera, ganado; leña. bananos, mosaicos, ladrillos, teja, mollejones y los carros de servicio diferido.
 ('Así AMPLIADO por el artículo 1° del Decreto Ejecutivo N° 4 de 09 de abril de 1946, publicado en la Colección de Leyes y Decretos de 1946, I Semestre, Tomo I, página 124, el cuál adicionó el último párrafo.)
+(DEROGADO PARCIAL Y TÁCITAMENTE por el artículo 19 del Decreto Ejecutivo N° 2 de 22 de marzo de 1960, publicado en La Gaceta N° 106 de 12 de mayo de 1960, el cual derogó al Decreto Ejecutivo N° 4 el que adicionó el último párrafo del presente Decreto.)
 Este decreto comenzará a regir desde el día de su publicación.
 Dado en la Casa Presidencial.—San José, a los diecinueve días del mes de febrero de mil novecientos cuarenta y seis.
