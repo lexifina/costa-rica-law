@@ -1,0 +1,1 @@
+Artículo 2º—Se modifica en lo conducente el Decreto Ejecutivo N° 27294-MOPT, del 23 de julio de 1998, publicado en el Diario Oficial "La Gaceta" N° 178, al alcance N° 60 del viernes 11 de setiembre de 1998.
