@@ -1,0 +1,2 @@
+Artículo IX
+Los Gobiernos de las Repúblicas Contratantes se comprometen a respetar la inviolabilidad del derecho de asilo a bordo de los buques mercantes de cualquiera nacionalidad surtos en sus aguas. No podrá extraerse de dichas embarcaciones sino a los reos de delitos comunes, por orden del Juez competente y con las formalidades legales. A los perseguidos por delitos políticos o delitos comunes conexos con los políticos, no se les podrá extraer en ningún caso.
