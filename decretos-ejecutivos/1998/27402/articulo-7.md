@@ -1,0 +1,1 @@
+Artículo 7°-Se autoriza a la Comisión Nacional de Emergencia, para que en la atención del presente estado de necesidad y urgencia por calamidad pública, utilice todos los fondos remanentes no comprometidos de declaratorias de emergencia anteriores. que aún se encuentren vigentes, siempre que con ello no se afecten obras o proyectos actuales.

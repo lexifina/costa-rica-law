@@ -1,0 +1,1 @@
+Artículo 6°-Se autoriza la Comisión Nacional de Emergencia, para que mientras dure la declaratoria de emergencia haga los nombramientos necesarios, sin el trámite de concurso, de conformidad con lo indicado en el Artículo 10 del Reglamento de Estatuto de Servicio Civil.
