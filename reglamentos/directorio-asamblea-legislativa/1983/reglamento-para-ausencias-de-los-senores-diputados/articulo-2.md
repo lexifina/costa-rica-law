@@ -1,0 +1,1 @@
+Artículo 2°.- La solicitud de licencia a que se refiere el párrafo primero del artículo anterior, se hará por escrito y estará firmada por el diputado que formula la gestión o por una persona autorizada al efecto.

@@ -1,0 +1,1 @@
+Artículo 3°.- Toda solicitud de licencia deberá ser presentada a la Secretaría Técnica de la Presidencia de la Asamblea Legislativa, con antelación al día en que se podría producir la ausencia. En esa solicitud se indicará el motivo de la ausencia.
