@@ -24,3 +24,5 @@ Artículo 30.—De conformidad con lo dispuesto en los artículos 72 del Código
 22) Dar órdenes a subalternos o compañeros para la ejecución de asuntos ajenos a sus labores.
 23) Propiciar acciones o disposiciones que, directa o indirectamente, promuevan la discriminación que afecte la dignidad de las personas con alguna discapacidad.
 (Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 28272 del 2 de noviembre de 1999)
+24) Exhibir material pornográfico dentro de la Institución, así como utilizar el equipo de cómputo y electrónico y los servicios de comunicación para observar, acceder o reproducir pornografía.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 29981 del 15 de noviembre de 2001)
