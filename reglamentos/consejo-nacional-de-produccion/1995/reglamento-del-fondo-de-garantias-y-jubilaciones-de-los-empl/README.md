@@ -19,3 +19,4 @@ Reglamento del Fondo de Garantías y Jubilaciones de los Empleados del Consejo N
 | 4 | 2000-10-18 | Reglamento 2221 (2000-10-18) |
 | 5 | 2001-03-21 | Reglamento 2261 (2001-03-21) |
 | 6 | 2001-04-25 | Reglamento 2268 (2001-04-25) |
+| 7 | 2004-07-20 | Reglamento 2531 (2004-07-20) |
