@@ -1,0 +1,1 @@
+Artículo 13.—E1 máximo a financiar por beneficiaria(o) es de 3500 árboles por año, mientras que en proyectos globales, cooperativas de autogestión y en reservas indígenas, el máximo es de 333.300 árboles por año.

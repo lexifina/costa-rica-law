@@ -1,0 +1,1 @@
+Artículo 2°-Las mejoras a la plantación de árboles forestales de los Sistemas Agroforestales establecidos antes del presente decreto, serán considerados para el Pago de Servicios Ambientales a partir del año 2003, bajo las condiciones de criterio técnico y pago diferenciado definidos en el anexo del Manual de Procedimientos.

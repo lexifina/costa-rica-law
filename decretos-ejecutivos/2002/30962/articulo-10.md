@@ -1,0 +1,1 @@
+Artículo 10.—Con base en el Decreto Ejecutivo Nº 29084-MINAE del 20 de octubre del 2000, la Comisión Agroforestal Nacional será la encargada de asesorar y recomendar a las instancias pertinentes, y definir anualmente los lineamientos y orientaciones en materia de Agroforestería.

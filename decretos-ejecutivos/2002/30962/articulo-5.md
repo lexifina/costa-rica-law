@@ -1,0 +1,1 @@
+Artículo 5°-Para la plantación de árboles forestales en sistemas silvoagrícolas se pagará un monto total por árbol de ¢230,00 (doscientos treinta colones exactos) para el año 2002, monto que será actualizado anualmente según el índice de precios del consumidor establecido por el Banco Central de Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 9°-En el caso que sean organizaciones de productores (as) y Cooperativas de Autogestión que tramiten proyectos para establecer plantaciones de árboles forestales en SAF, éstas destinarán un máximo de 18% del monto asignado al productor por PSA, para cubrir gastos administrativos, elaboración del Plan de Manejo y asistencia técnica de los proyectos compensados.

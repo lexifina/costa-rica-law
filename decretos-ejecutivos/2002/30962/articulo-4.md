@@ -1,0 +1,1 @@
+Artículo 4°-E1 objetivo de la compensación de los SAF estará orientado para la plantación de especies arbóreas forestales maderables y/o de uso múltiple, según se define en el Manual de Procedimientos, dentro de SAF nuevos para el período 2002.
