@@ -1,0 +1,1 @@
+Art. 9. Cuando se esté componiendo alguna parte de la calzada, se pondrán señales en los puntos por donde no se deba pasar; cuidando los encargados del camino de que haya en todo caso una parte transitable, para que no entorpezcan nunca las comunicaciones.

@@ -1,0 +1,1 @@
+Art. 2°-El conductor de caballerías, así como el de carros, carretas, carruajes cualquiera otra clase de vehículo, se inclinará en la calzada buscando la derecha de su frente, evitando el salir fuera de la cadena de piedra ó acercarse tanto á ella que pueda destruirla.
