@@ -1,0 +1,2 @@
+Artículo 8º—Selección de procedimientos: La selección de los procedimientos de contratación corresponderá al Proceso de Adquisiciones o al EPASUR, según corresponda, sea éste de licitación pública, licitación por registro, licitación restringida, remate o contratación directa.
+Lo anterior se hará con base en la información aportada por los jefes de las UNIDADES PRESUPUESTARIAS en sus solicitudes de compra.

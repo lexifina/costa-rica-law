@@ -1,0 +1,8 @@
+CAPÍTULO II
+De los procedimientos ordinarios de contratación
+Artículo 6º—Programación de compras y elaboración del programa de adquisiciones:
+a) PROGRAMACIÓN DE COMPRAS: El Proceso de Programación y Control de Operaciones abrirá un período para que los responsables de las Unidades solicitantes o a quien estos autoricen, incluyan en el sistema de información todas las necesidades de compra de bienes y servicios que requerirán para el período presupuestario siguiente.
+En caso de servicios o concesiones que no puedan ser digitados por razones justificadas deberán informar de las necesidades proyectadas.
+La no digitación en el sistema de información o la no presentación de la documentación para dar inicio a la solicitud de compra, de manera oportuna, de acuerdo a lo establecido en este artículo, podrá acarrear una sanción disciplinaria conforme con lo dispuesto por el Reglamento Autónomo de Servicio del Instituto Nacional de Aprendizaje.
+b) ELABORACIÓN DEL PROGRAMA DE ADQUISICIONES: El Proceso de Programación y Control de Operaciones será el encargado de elaborar y publicar el Programa de Adquisiciones que contiene la proyección de las compras que se requieren para satisfacer las necesidades de Bienes y Servicios institucionales, con base en el Plan Operativo Anual (POA) y el Presupuesto Institucional al tenor de lo dispuesto por el artículo 7 del "RGCA", el cual deberá ser aprobado por la Comisión de Licitaciones.
+Requieren una justificación por escrito debidamente sustentada, todas las compras de bienes y servicios que no están incluidas en el Plan Operativo Anual (POA) o en el Presupuesto Institucional del período.

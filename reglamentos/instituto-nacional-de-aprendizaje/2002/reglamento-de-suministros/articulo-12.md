@@ -1,0 +1,2 @@
+Artículo 12.—Controles y custodia de documentos: El Proceso de Adquisiciones, así como el EPASUR, deberán establecer los controles de las operaciones y de los documentos relativos a compras de los bienes y servicios. De igual forma deberán mantener en custodia los documentos de las contrataciones tramitadas.
+La actualización del sistema de información para tramitar las solicitudes de compra de los bienes y servicios es responsabilidad de todos los usuarios.

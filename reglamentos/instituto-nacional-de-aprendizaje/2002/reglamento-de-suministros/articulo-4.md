@@ -1,0 +1,1 @@
+Artículo 4º—Actualización del sistema: La Unidad de Recursos Materiales es la responsable del sistema de adquisición de bienes y servicios y deberá evaluar, actualizar, automatizar, estandarizar y difundir los procedimientos necesarios para el óptimo aprovisionamiento de bienes y servicios que requieran las diversas dependencias institucionales.

@@ -1,0 +1,1 @@
+Artículo 24.—Normativa derogada: Se deroga el Reglamento de Suministros publicado en La Gaceta Nº 188 del miércoles 1 de octubre de 1997 y su reforma publicada en La Gaceta 240 del jueves 14 de diciembre de 2000.
