@@ -1,0 +1,1 @@
+Artículo 10.—El área de Personal de este Instituto llevara un Registro de los representantes de nuestro país en el exterior, en el que en forma ordenada y cronológica se inscribirán las personas a las que se les otorgue el respectivo carné y reconocimiento.
