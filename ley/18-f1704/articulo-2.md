@@ -1,0 +1,1 @@
+Artículo 2°-Facúltase al Poder Ejecutivo para que haga los arreglos necesarios con entidades nacionales o extranjeras para vender o financiar, en total o en parte, los excedentes que no entren en la cuota a que se contrae el artículo anterior.
