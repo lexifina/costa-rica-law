@@ -1,6 +1,6 @@
-Artículo 30.- 1. Para fijar el valor de la pretensión, se tendrán
-en cuenta las normas de la legislación procesal civil, con las
-especialidades siguientes:
+Artículo 30.- 1. Para fijar el valor de la pretensión, se tendrán en
+cuenta las normas de la legislación procesal civil, con las especialidades
+siguientes:
 a) Cuando se solicite solamente la anulación del acto, se atenderá al
 contenido económico del mismo, para lo cual se tendrán en cuenta
 el débito principal y los intereses al día de interposición, pero

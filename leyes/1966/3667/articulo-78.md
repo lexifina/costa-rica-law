@@ -1,21 +1,8 @@
-Artículo 78.- 1. Para tales efectos, firme la sentencia o la
-resolución que determine la suma líquida, el Tribunal, también a
-petición de parte, expedirá comunicación para la Oficina de Presupuesto
-y la Contraloría General de la República, que deberá entregar bajo
-conocimiento.
-2. Pasados tres meses del recibo de la comunicación, dichas
-dependencias no cursarán o aprobarán, en su caso, ningún presupuesto
-ordinario o extraordinario de la Administración obligada al pago, si en
-los mismos no se contempla la partida necesaria para el cumplimiento de
-la sentencia o sentencias.
-3. En el pago deberá seguirse un orden riguroso de presentación
-o comunicación.
-4. En todo caso, cuando la Administración demandada alegare,
-dentro de los 30 días posteriores a la firmeza del fallo, que el
-cumplimiento de éste, en sus propios términos, habría de producir
-trastorno grave a su Hacienda para la realización de sus fines normales
-o para la atención de sus obligaciones previamente contraídas, podrá,
-mediante aprobación de la Contraloría General de la República, fijar la
-modalidad de pago que dé cumplimiento al fallo en la forma que sea menos
-gravosa para el Tesoro Público, sin perjuicio de lo que al respecto
-convengan las partes.
+Artículo 78.- 1. Para tales efectos, firme la sentencia o la resolución que determine la suma líquida, el Tribunal, también a petición de parte, expedirá comunicación para la Oficina de Presupuesto y la Contraloría General de la República, que deberá entregar bajo conocimiento.
+2. Pasados tres meses del recibo de la comunicación, dichas dependencias no cursarán o aprobarán, en su caso, ningún presupuesto ordinario o extraordinario de la Administración obligada al pago, si en los mismos no se contempla la partida necesaria para el cumplimiento de la sentencia o sentencias.
+Sin embargo, cuando se trate del pago de una indemnización correspondiente a expropiación o expropiaciones decretadas por el Poder Ejecutivo, bien por iniciativa propia o bien a petición de entidad estatal legalmente autorizada para hacerlo, será el Poder Ejecutivo el obligado a dar cumplimiento a lo dispuesto en el artículo anterior, en su presupuesto ordinario o en uno extraordinario si así lo prefiere, sin perjuicio de que después, caso de que la obligada directa a pagar sea una institución autónoma del Estado, recupere lo que pagó por el mismo procedimiento establecido en la disposición que se está adicionando
+(Así adicionado el párrafo anterior por el artículo 1º de la ley No. 5052 del 17 de agosto de 1972 )(*)
+(*) (Mediante el artículo 1° de la Ley N° 5540 de 8 de julio de 1974, se adiciona un párrafo final al artículo 1° de la Ley No. 5052 que adición el párrafo anterior, indicando lo siguiente: "La presente disposición tiene el carácter de interpretación auténtica y como tal ha de entenderse que queda incorporada a la norma legal que se interpreta y rige a partir de la vigencia de la ley original").
+(La Corte Suprema de Justicia mediante resolución de las 15:00 horas del 04 de diciembre de 1975 (expediente N° 0385-1974, promovido por la empresa Stewart Hermanos Limitada) declaro inaplicable el artículo 1° de la Ley N° 5540 del 8 de julio de 1974, por medio del cual se adicionó el párrafo final de la ley 5052 del 17 de agosto de 1972, por la que también se amplió este artículo)
+3. En el pago deberá seguirse un orden riguroso de presentación o comunicación.
+4. En todo caso, cuando la Administración demandada alegare, dentro de los 30 días posteriores a la firmeza del fallo, que el cumplimiento de éste, en sus propios términos, habría de producir trastorno grave a su Hacienda para la realización de sus fines normales o para la atención de sus obligaciones previamente contraídas, podrá, mediante aprobación de la Contraloría General de la República, fijar la modalidad de pago que dé cumplimiento al fallo en la forma que sea menos gravosa para el Tesoro Público, sin perjuicio de lo que al respecto convengan las partes.

@@ -4,6 +4,6 @@ proceso y se sustanciará en legajo separado.
 Administración demandada.
 3. Transcurrido el plazo, con contestación o sin ella, el Tribunal
 resolverá lo procedente.
-4. En casos especialísimos, podrá el Tribunal, desde el escrito
-de interposición y prima facie, ordenar la suspensión, siempre a
-petición del demandante.
+4. En casos especialísimos, podrá el Tribunal, desde el escrito de
+interposición y prima facie, ordenar la suspensión, siempre a petición del
+demandante.
