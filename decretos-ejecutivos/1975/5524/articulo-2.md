@@ -1,1 +1,0 @@
-Artículo 2°-Deróganse los Decretos Ejecutivos números 2133-MEIC de 10 de enero de 1972; 2292-MEIC de 7 de abril de 1972; 3101-MEIC de 26 de julio de 1973; 3880-MEIC de 11 de junio de 1974 y 4198-MEIC de 4 de agosto de 1974.
