@@ -14,3 +14,4 @@ Establece quiénes se consideran como importadores que adquieren directamente de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-27 | la propia norma |
+| 2 | 2003-07-10 | Resolución 20 (2003-07-10) |
