@@ -1,0 +1,2 @@
+Artículo 30.—Trámite para desechar y donar equipos. La donación, el desecho o, cualquier otra forma de retiro de activos, se ajustarán a la normativa jurídica vigente y a los lineamientos que decrete la Junta Directiva de Correos de Costa Rica. Solo se permitirá la donación de bienes en desuso y escaso valor económico, previa autorización de la Junta Directiva de Correos de Costa Rica.
+Todos los activos que se retiren de operación por las razones indicadas, se enviarán al Departamento de Compras y Contrataciones para su custodia siguiendo el trámite que esa oficina señale.

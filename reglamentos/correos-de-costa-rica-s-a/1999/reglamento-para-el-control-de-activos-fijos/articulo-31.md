@@ -1,0 +1,3 @@
+Artículo 31.—Oficina responsable de valorar si procede la donación o el desecho de activos. Los activos que sean enviados a la Dirección de Administración se mantendrán en custodia y esa Dirección valorará si recomienda si procede su donación o desecho. Se levantará un listado de los artículos y se le remitirá al Gerente General para su análisis y aprobación, previa autorización de la Junta Directiva. De ello se informará al Departamento de Contabilidad para lo pertinente.
+En caso de remate, el mismo se hará de conformidad con lo estipulado en el Reglamento de Contratación de CORREOS DE COSTA RICA.
+Una vez recibidos los documentos del remate, el Departamento de Contabilidad procederá al registro contable correspondiente al producto de la venta.

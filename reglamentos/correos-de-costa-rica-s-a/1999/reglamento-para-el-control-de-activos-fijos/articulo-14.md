@@ -1,0 +1,1 @@
+Artículo 14.—Determinación del costo inicial de activos. Como factores que determinan el costo de un activo, se considerarán el valor de adquisición, el flete, el seguro, los impuestos, los costos de instalación (si fuere necesario) y la diferencia en el tipo de cambio entre el colón y la moneda extranjera utilizada para la compra.

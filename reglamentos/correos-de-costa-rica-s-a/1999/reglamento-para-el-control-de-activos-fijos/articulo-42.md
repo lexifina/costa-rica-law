@@ -1,0 +1,1 @@
+Artículo 42.—Obligación de entregar activos dañados al Departamento de Compras y Contrataciones. Todo equipo dañado será entregado por el responsable del activo al Departamento de Compras y Contrataciones, para que se proceda a la reparación o al desecho del bien.

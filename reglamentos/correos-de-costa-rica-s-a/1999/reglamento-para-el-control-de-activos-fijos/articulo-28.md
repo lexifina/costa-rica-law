@@ -1,0 +1,1 @@
+Artículo 28.—Exclusión de activos por desecho o remate. Cuando se desechen o rematen activos, la Dirección de Administración procede a informar por escrito al Departamento de Contabilidad, para que actualice la base de datos de control de activos y emita el respectivo reporte.

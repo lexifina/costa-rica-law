@@ -1,0 +1,2 @@
+Artículo 7º—Responsabilidad del funcionario. Las personas a quienes se les asigne o utilicen un activo de Correos de Costa Rica, serán responsables en caso de daño, pérdida o destrucción de activos, si fuere por culpa, dolo y negligencia. En los mismos términos será responsable la persona que se encargue del traslado de los activos.
+Se prohíbe la utilización de activos de CORREOS DE COSTA RICA para fines distintos a los establecidos por la empresa o actividades propias de la misma.

@@ -1,0 +1,1 @@
+Artículo 8º—Del acatamiento del reglamento. La violación de cualquier disposición contenida en el presente reglamento, será sancionada de conformidad con lo establecido en el régimen disciplinario, sin perjuicio de que se puedan aplicar otras sanciones.

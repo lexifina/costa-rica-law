@@ -1,0 +1,1 @@
+Artículo 21.—Obligación de fijar placas a los activos. El Departamento de Almacén está obligado en todas las circunstancias a identificar los activos capitalizables mediante un número de patrimonio, antes de proceder a entregarlos al funcionario que lo requiera.

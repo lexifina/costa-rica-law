@@ -1,0 +1,1 @@
+Artículo 43.—Responsabilidad por daños a bienes de Correos de Costa Rica. Será responsable el funcionario que por, culpa o dolo, dañe bienes de Correos de Costa Rica, en cuyo caso se verá en la obligación a pagar el activo, de acuerdo con lo estipulado en este reglamento y normas conexas.

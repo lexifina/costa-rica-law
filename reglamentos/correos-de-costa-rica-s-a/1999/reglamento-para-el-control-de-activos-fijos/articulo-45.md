@@ -1,0 +1,3 @@
+Artículo 45.—Vigencia. El presente reglamento rige a partir de su publicación.
+El presente Reglamento fue aprobado por parte de la Junta Directiva de Correos de Costa Rica, Sociedad Anónima, en el acuerdo número trescientos noventa y dos, basado en la sesión extraordinaria número cero sesenta y ocho, capítulo VI, y la sesión extraordinaria número cero sesenta y nueve capítulo II, celebradas a partir de las diecisiete horas del veintisiete de mayo y a las siete horas con treinta minutos del treinta y uno de mayo de mil novecientos noventa y nueve.
+Lic. German Serrano Pinto, Presidente de la Junta Directiva.

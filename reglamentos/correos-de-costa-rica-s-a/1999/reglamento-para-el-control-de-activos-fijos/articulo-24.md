@@ -1,0 +1,4 @@
+Artículo 24.—Trámite para el traslado de activos a otro usuario. El trámite para el traslado de activos de un usuario a otro será el siguiente:
+a) Cuando un trabajador que tenga activos bajo su responsabilidad, es trasladado a otra dependencia, entregará esos bienes a su superior inmediato y éste los entregará a la persona que lo sustituya, y llenará el documento correspondiente.
+b) El trabajador o la dependencia, que en calidad de préstamo transfiere un activo, llenará el indicado documento, del que conservará el original para demostrar, cuando se requiera, el préstamo del bien.
+c) Cuando se recibe un bien en calidad de préstamo para uso de Correos de Costa Rica, el área que lo recibe, deberá informar por escrito a la Dirección de Administración, la descripción detallada del artículo, el periodo dentro del que estará en Correos de Costa Rica y el uso que se le dará. El oficio en que se rinda el informe indicado, llevará el visto bueno del Jefe Inmediato.

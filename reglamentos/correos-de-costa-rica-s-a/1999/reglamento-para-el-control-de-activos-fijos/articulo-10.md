@@ -1,0 +1,1 @@
+Artículo 10.—Obligación de ejecutar inventario permanente de activos en los libros de Correos de Costa Rica. El Departamento de Contabilidad llevará inventario permanente en los libros de Correos de Costa Rica, cada aumento o disminución, debe ser comunicado para que se afecten los registros correspondientes.

@@ -1,0 +1,1 @@
+Artículo 15.—Determinación del costo de activos con adiciones y mejoras. Una vez adquirido el activo, se determinará el costo del mismo basado en el valor actual en libros sumándole los montos por mejoras.

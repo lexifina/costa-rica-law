@@ -1,0 +1,1 @@
+Artículo 23.—Control de activos menores. Respecto a los activos menores, el Departamento de Contabilidad llevará el registro respectivo con relación al método de inventarios físicos, basándose en el desglose de reintegro de caja chica.

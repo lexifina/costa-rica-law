@@ -1,0 +1,1 @@
+Artículo 36.—Reasignación de equipos. En el caso de que un activo ya no sea necesario dentro de la misma oficina, podrá ser reasignado contando con la autorización correspondiente y se enviará a la Dirección de Administración, la boleta de "Traslado de activos" con copia al Departamento de Contabilidad para que realice el respectivo registro.

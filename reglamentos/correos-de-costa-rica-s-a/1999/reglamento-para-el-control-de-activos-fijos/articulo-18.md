@@ -1,0 +1,2 @@
+Artículo 18.—Responsabilidad del registro de depreciación y capitalización de activos. Será responsabilidad del Departamento de Contabilidad mantener actualizado el registro de activos que contemple el gasto por depreciación de cada uno de los bienes.
+Al finalizar cada período fiscal, el Departamento de Contabilidad deberá calcular el impuesto a los activos, declarar ante la Dirección General de la Tributación Directa según la legislación vigente.

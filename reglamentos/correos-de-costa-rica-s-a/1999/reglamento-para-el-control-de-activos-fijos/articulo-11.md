@@ -1,0 +1,1 @@
+Artículo 11.—Obligación de velar porque en los registros contables se incluyan todas las operaciones. El Departamento de Contabilidad velará porque en los registros contables se incluyan todas las operaciones relacionadas con los activos fijos.
