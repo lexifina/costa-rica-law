@@ -1,67 +1,277 @@
-ARTICULO 8º.-
-Gastos deducibles.
+ARTICULO 8º.- Gastos deducibles.
 Son deducibles de la renta bruta:
-a) El costo de los bienes y servicios vendidos, tales como la adquisición de bienes y servicios objeto de la actividad de la empresa; las materias primas, partes, piezas y servicios para producir los bienes y servicios vendidos; los combustibles, la fuerza motriz y los lubricantes y similares; y los gastos de las explotaciones agropecuarias necesarias para producir la renta.
-b) Los sueldos, los sobresueldos, los salarios, las bonificaciones, las gratificaciones, las regalías, los aguinaldos, los obsequios y cualquier otra remuneración por servicios personales efectivamente prestados, siempre y cuando proceda y se hayan hecho las retenciones y enterado los impuestos a que se refiere el título II de esta Ley.
-Además, podrá deducirse una cantidad igual adicional a la que se pague por los conceptos mencionados en los párrafos anteriores de este artículo a las personas con discapacidad a quienes se les dificulte tener un puesto competitivo, de acuerdo con los requisitos, las condiciones y normas que se fijan en esta ley.
-Asimismo, los costos por las adecuaciones a los puestos de trabajo y en las adaptaciones al entorno en el sitio de labores incurridas por el empleador.
-(Así reformado este segundo párrafo por el artículo 75 de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad No. 7600 del 2 de mayo de 1996)
-c) Los impuestos y tasas que afecten los bienes, servicios y negociaciones del giro habitual de la empresa, o las actividades ejercidas por personas físicas, con las excepciones contenidas en el inciso c) del artículo 9.
-ch) Las primas de seguros contra incendio, robo, hurto, terremoto u otros riesgos, contratados con el Instituto Nacional de Seguros o con otras instituciones aseguradoras autorizadas.
-d) Los intereses y otros gastos financieros, pagados o incurridos por el contribuyente durante el año fiscal, directamente relacionados con el manejo de su negocio y la obtención de rentas gravables en este impuesto sobre las utilidades, siempre que no hayan sido capitalizados contablemente.
-Las deducciones por este concepto estarán sujetas a las limitaciones establecidas en los párrafos siguientes: No serán deducibles, por considerarlos asimilables a dividendos o participaciones sociales, los intereses y otros gastos financieros pagados en favor de socios de sociedades de responsabilidad limitada.
-No será deducible la parte de los intereses atribuible al hecho de que se haya pactado una tasa que exceda las usuales de mercado.
-No serán deducibles los intereses cuando no se haya retenido el impuesto correspondiente a ellos.
-Cuando el monto de los intereses que el contribuyente pretenda deducir sea superior al cincuenta por ciento (50%) de la renta líquida, el contribuyente deberá completar un formulario especial que le suministrará la Administración Tributaria y, además, brindar la información y las pruebas complementarias que en él se especifiquen.
-Para los efectos del párrafo trasanterior, se entenderá por renta líquida la suma de la renta neta, definida en el artículo 7 de esta Ley, menos el total de ingresos por intereses del período, más las deducciones correspondientes a los intereses financieros deducibles, según se definen en este artículo.
-(Así reformado por el artículo 8 de la Ley de Ajuste Tributario No. 7543 de 14 de setiembre de 1995)
-El Poder Ejecutivo podrá establecer, por decreto, una vez al año y antes de iniciarse el período fiscal, un porcentaje superior al cincuenta por ciento (50%), como condición que obliga al contribuyente a presentar el formulario especial mencionado en el párrafo trasanterior.
-El deber impuesto a los contribuyentes en el primer párrafo de este inciso no limita las potestades de la Administración de requerir información y pruebas y de practicar las inspecciones necesarias para verificar la legalidad de la deducción de los intereses, de acuerdo con las facultades otorgadas en el Código de Normas y Procedimientos Tributarios.
-En todo caso, el contribuyente deberá demostrar a la Administración Tributaria el uso de los préstamos cuyos intereses pretende deducir, a fin de establecer la vinculación con la generación de la renta gravable, lo cual deberá evidenciarse en los documentos que deban acompañar la declaración.
-Sin perjuicio de los supuestos previstos en los incisos anteriores, cualquier otra circunstancia que revele desconexión entre los intereses pagados y la renta gravable en el período respectivo dará pie para que la deducción de los intereses no sea admisible.
-e) Las deudas manifiestamente incobrables, siempre que se originen en operaciones del giro habitual del negocio y se hayan agotado las gestiones legales para su recuperación, a juicio de la Administración Tributaria y de acuerdo con las normas que se establezcan en el Reglamento de esta Ley.
-f) Las depreciaciones para compensar el desgaste, el deterioro o la obsolescencia económica, funcional o tecnológica de los bienes tangibles productores de rentas gravadas,
+a) El costo de los bienes y servicios vendidos, tales como la
+adquisición de bienes y servicios objeto de la actividad de la
+empresa; las materias primas, partes, piezas y servicios para
+producir los bienes y servicios vendidos; los combustibles, la
+fuerza motriz y los lubricantes y similares; y los gastos de las
+explotaciones agropecuarias necesarias para producir la renta.
+b) Los sueldos, los sobresueldos, los salarios, las bonificaciones,
+las gratificaciones, las regalías, los aguinaldos, los obsequios
+y cualquier otra remuneración por servicios personales
+efectivamente prestados, siempre y cuando proceda y se hayan
+hecho las retenciones y enterado los impuestos a que se refiere
+el título II de esta Ley.
+Además, podrá deducirse una cantidad igual adicional a la que se
+pague por los conceptos mencionados en los párrafos anteriores de
+este artículo a las personas con discapacidad a quienes se les
+dificulte tener un puesto competitivo, de acuerdo con los
+requisitos, las condiciones y normas que se fijan en esta ley.
+Asimismo, los costos por las adecuaciones a los puestos de
+trabajo y en las adaptaciones al entorno en el sitio de labores
+incurridas por el empleador.
+(Así reformado este segundo párrafo por el artículo 75 de la Ley
+sobre Igualdad de Oportunidades para las Personas con
+Discapacidad No. 7600 del 2 de mayo de 1996)
+c) Los impuestos y tasas que afecten los bienes, servicios y
+negociaciones del giro habitual de la empresa, o las actividades
+ejercidas por personas físicas, con las excepciones contenidas en
+el inciso c) del artículo 9.
+ch) Las primas de seguros contra incendio, robo, hurto, terremoto u
+otros riesgos, contratados con el Instituto Nacional de Seguros o
+con otras instituciones aseguradoras autorizadas.
+d) Los intereses y otros gastos financieros, pagados o incurridos
+por el contribuyente durante el año fiscal, directamente
+relacionados con el manejo de su negocio y la obtención de rentas
+gravables en este impuesto sobre las utilidades, siempre que no
+hayan sido capitalizados contablemente.
+Las deducciones por este concepto estarán sujetas a las
+limitaciones establecidas en los párrafos siguientes:
+No serán deducibles, por considerarlos asimilables a dividendos o
+participaciones sociales, los intereses y otros gastos
+financieros pagados en favor de socios de sociedades de
+responsabilidad limitada.
+No será deducible la parte de los intereses atribuible al hecho
+de que se haya pactado una tasa que exceda las usuales de
+mercado.
+No serán deducibles los intereses cuando no se haya retenido el
+impuesto correspondiente a ellos.
+Cuando el monto de los intereses que el contribuyente pretenda
+deducir sea superior al cincuenta por ciento (50%) de la renta
+líquida, el contribuyente deberá completar un formulario especial
+que le suministrará la Administración Tributaria y, además,
+brindar la información y las pruebas complementarias que en él se
+especifiquen.
+Para los efectos del párrafo trasanterior, se entenderá por renta
+líquida la suma de la renta neta, definida en el artículo 7 de
+esta Ley, menos el total de ingresos por intereses del período,
+más las deducciones correspondientes a los intereses financieros
+deducibles, según se definen en este artículo.
+(Así reformado por el artículo 8 de la Ley de Ajuste Tributario
+No. 7543 de 14 de setiembre de 1995)
+El Poder Ejecutivo podrá establecer, por decreto, una vez al año
+y antes de iniciarse el período fiscal, un porcentaje superior al
+cincuenta por ciento (50%), como condición que obliga al
+contribuyente a presentar el formulario especial mencionado en el
+párrafo trasanterior.
+El deber impuesto a los contribuyentes en el primer párrafo de
+este inciso no limita las potestades de la Administración de
+requerir información y pruebas y de practicar las inspecciones
+necesarias para verificar la legalidad de la deducción de los
+intereses, de acuerdo con las facultades otorgadas en el Código
+de Normas y Procedimientos Tributarios.
+En todo caso, el contribuyente deberá demostrar a la
+Administración Tributaria el uso de los préstamos cuyos intereses
+pretende deducir, a fin de establecer la vinculación con la
+generación de la renta gravable, lo cual deberá evidenciarse en
+los documentos que deban acompañar la declaración.
+Sin perjuicio de los supuestos previstos en los incisos
+anteriores, cualquier otra circunstancia que revele desconexión
+entre los intereses pagados y la renta gravable en el período
+respectivo dará pie para que la deducción de los intereses no sea
+admisible.
+e) Las deudas manifiestamente incobrables, siempre que se originen
+en operaciones del giro habitual del negocio y se hayan agotado
+las gestiones legales para su recuperación, a juicio de la
+Administración Tributaria y de acuerdo con las normas que se
+establezcan en el Reglamento de esta Ley.
+f) Las depreciaciones para compensar el desgaste, el deterioro o la obsolescencia económica,
+funcional o tecnológica de los bienes tangibles productores de rentas gravadas,
 propiedad del contribuyente, así como la depreciación de las mejoras con carácter permanente.
-La Administración Tributaria, a solicitud del contribuyente, podrá aceptar métodos especiales de depreciación técnicamente aceptable, para casos debidamente justificados por el contribuyente.
-Asimismo, la Administración Tributaria podrá autorizar, por resolución general, métodos de depreciación acelerada sobre activos nuevos, adquiridos por empresas dedicadas a actividades económicas que requieran constante modernización tecnológica, mayor capacidad instalada de producción
+La Administración Tributaria, a solicitud del contribuyente,
+podrá aceptar métodos especiales de depreciación técnicamente aceptable,
+para casos debidamente justificados por el contribuyente.
+Asimismo, la Administración Tributaria podrá autorizar, por resolución general,
+métodos de depreciación acelerada sobre activos nuevos,
+adquiridos por empresas dedicadas a actividades económicas que requieran
+constante modernización tecnológica, mayor capacidad instalada de producción
 y procesos de reconversión productiva, a efecto de mantener y fortalecer sus ventajas competitivas.
-En el Reglamento se determinarán los porcentajes máximos que prudencialmente puedan fijarse por concepto de depreciación o los años de vida útil de los bienes; se tomará en consideración la naturaleza de los bienes y la actividad económica en la cual estos son utilizados.
-En todos los casos, cuando el contribuyente enajene bienes tangibles, sujetos a depreciación, por cualquier título, y por un valor diferente del que les corresponda a la fecha de la transacción, de acuerdo con la amortización autorizada, tal diferencia se incluirá como ingreso gravable o pérdida deducible, según corresponda, en el período en el que se realice la operación.
-El valor de la patente de invención propiedad del contribuyente, podrá amortizarse con base en el tiempo de su vigencia.
-Cuando se trate de bienes semovientes -específicamente el ganado dedicado a leche y cría-, así como de determinados cultivos, podrán concederse depreciaciones o amortizaciones, conforme se establezca en el Reglamento de esta Ley. Los cultivos que, por su ciclo de eficiencia productiva, no puedan catalogarse como permanentes a juicio de la Administración Tributaria, podrán ser amortizados en un número de años que tenga relación directa con su ciclo productivo.
-(Así reformado su párrafo primero por el inciso b) del artículo 19 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001). g) Cuando en un período fiscal una empresa industrial obtenga pérdidas, estas se aceptarán como deducción en los tres siguientes períodos. En el caso de empresas agrícolas, esta deducción podrá hacerse en los siguientes cinco períodos.
-Las empresas industriales que inicien actividades después de la vigencia de esta Ley también podrán deducir dichas pérdidas en los siguientes cinco períodos, pero después de cumplidos estos se regirán por la norma contenida en el primer párrafo de este inciso.
-La determinación de las pérdidas quedará a juicio de la Administración Tributaria y esta las aceptará siempre que estén debidamente contabilizadas como pérdidas diferidas. Aquellas empresas que, por su naturaleza, realicen actividades agrícolas o industriales combinadas con actividades comerciales, deberán llevar cuentas separadas de cada actividad para poder hacer esta deducción.
-El saldo no compensado en los términos indicados no dará derecho al contribuyente a reclamar devoluciones o créditos sobre el impuesto.
-(NOTA: Según el artículo 19 de Ley Nº 7200 de 28 de setiembre de 1990, las empresas privadas y las cooperativas de electrificación rural que suministren electricidad al ICE, en forma similar pueden deducir de la renta bruta las pérdidas).
+En el Reglamento se determinarán los porcentajes máximos que
+prudencialmente puedan fijarse por concepto de depreciación o los
+años de vida útil de los bienes; se tomará en consideración la
+naturaleza de los bienes y la actividad económica en la cual
+estos son utilizados.
+En todos los casos, cuando el contribuyente enajene bienes
+tangibles, sujetos a depreciación, por cualquier título, y por un
+valor diferente del que les corresponda a la fecha de la
+transacción, de acuerdo con la amortización autorizada, tal
+diferencia se incluirá como ingreso gravable o pérdida deducible,
+según corresponda, en el período en el que se realice la
+operación.
+El valor de la patente de invención propiedad del contribuyente,
+podrá amortizarse con base en el tiempo de su vigencia.
+Cuando se trate de bienes semovientes -específicamente el ganado
+dedicado a leche y cría-, así como de determinados cultivos,
+podrán concederse depreciaciones o amortizaciones, conforme se
+establezca en el Reglamento de esta Ley. Los cultivos que, por su
+ciclo de eficiencia productiva, no puedan catalogarse como
+permanentes a juicio de la Administración Tributaria, podrán ser
+amortizados en un número de años que tenga relación directa con
+su ciclo productivo.
+(Así reformado su párrafo primero por el inciso b) del artículo 19 de la Ley N° 8114,
+Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
+g) Cuando en un período fiscal una empresa industrial obtenga
+pérdidas, estas se aceptarán como deducción en los tres
+siguientes períodos. En el caso de empresas agrícolas, esta
+deducción podrá hacerse en los siguientes cinco períodos.
+Las empresas industriales que inicien actividades después de la
+vigencia de esta Ley también podrán deducir dichas pérdidas en
+los siguientes cinco períodos, pero después de cumplidos estos se
+regirán por la norma contenida en el primer párrafo de este
+inciso.
+La determinación de las pérdidas quedará a juicio de la
+Administración Tributaria y esta las aceptará siempre que estén
+debidamente contabilizadas como pérdidas diferidas. Aquellas
+empresas que, por su naturaleza, realicen actividades agrícolas o
+industriales combinadas con actividades comerciales, deberán
+llevar cuentas separadas de cada actividad para poder hacer esta
+deducción.
+El saldo no compensado en los términos indicados no dará derecho
+al contribuyente a reclamar devoluciones o créditos sobre el
+impuesto.
+(NOTA: Según el artículo 19 de Ley Nº 7200 de 28 de setiembre de
+1990, las empresas privadas y las cooperativas de electrificación
+rural que suministren electricidad al ICE, en forma similar
+pueden deducir de la renta bruta las pérdidas).
 (Derogado parcial y tácitamente, por el inciso g) del artículo 22 de la Ley N° 8114,
-Ley de Simplificación y EficienciaTributaria de 4 de julio del 2001). h) La parte proporcional por concepto de agotamiento de los bienes explotables de recursos naturales no renovables, incluidos los gastos efectuados para obtener la concesión, cuando corresponda.
-Esta deducción deberá relacionarse con el costo del bien y con la vida útil estimada, según la naturaleza de las explotaciones y de la actividad, y de acuerdo con las normas que sobre el particular se contemplen en el Reglamento de esta Ley.
-En ningún caso el total de las deducciones por concepto de agotamiento de recursos naturales no renovables podrá sobrepasar el valor de la adquisición del bien.
-En este inciso quedan comprendidas las explotaciones de minas y canteras, y de depósitos de petróleo, de gas y de cualesquiera otros recursos naturales no renovables.
+Ley de Simplificación y EficienciaTributaria de 4 de julio del 2001).
+h) La parte proporcional por concepto de agotamiento de los bienes
+explotables de recursos naturales no renovables, incluidos los
+gastos efectuados para obtener la concesión, cuando corresponda.
+Esta deducción deberá relacionarse con el costo del bien y con la
+vida útil estimada, según la naturaleza de las explotaciones y de
+la actividad, y de acuerdo con las normas que sobre el particular
+se contemplen en el Reglamento de esta Ley.
+En ningún caso el total de las deducciones por concepto de
+agotamiento de recursos naturales no renovables podrá sobrepasar
+el valor de la adquisición del bien.
+En este inciso quedan comprendidas las explotaciones de minas y
+canteras, y de depósitos de petróleo, de gas y de cualesquiera
+otros recursos naturales no renovables.
 i) Las cuotas patronales que se establezcan en las leyes.
-j) Las remuneraciones, sueldos, comisiones, honorarios o dietas que se paguen o acrediten a miembros de directorios, de consejos o de otros órganos directivos que actúen en el extranjero.
-k) Los pagos o créditos otorgados a personas no domiciliadas en el país por asesoramiento técnico, financiero o de otra índole, así como por el uso de patentes, suministro de fórmulas, marcas de fábrica, privilegios, franquicias, regalías y similares.
-Cuando los pagos o créditos indicados sean a favor de casas matrices de filiales, sucursales, agencias o establecimientos permanentes ubicados en el país, la deducción total por los conceptos señalados no podrá exceder del diez por ciento (10%) de las ventas brutas obtenidas durante el período fiscal correspondiente. Para ello deberán haberse hecho las retenciones del impuesto establecido en esta Ley.
-l) Los pagos o créditos otorgados a personas no domiciliadas en el país por el suministro de noticias, por la producción, la distribución, la intermediación o cualquier otra forma de negociación en el país, de películas cinematográficas y para televisión, videotapes, radionovelas, discos fonográficos, tiras de historietas, fotonovelas, y todo otro medio similar de proyección, transmisión o difusión de imágenes o sonidos.
-m) Los gastos de representación y similares en que se incurra dentro o fuera del país, los viáticos que se asignen o se paguen a dueños, socios, miembros de directorios u otros organismos directivos o a funcionarios o empleados del contribuyente, siempre que las deducciones por estos conceptos no representen más del uno por ciento (1%) de los ingresos brutos declarados.
-Asimismo, serán deducibles los gastos en que se incurra por la traída de técnicos al país o por el envío de empleados del contribuyente a especializarse en el exterior.
-n) Los gastos de organización de las empresas, los cuales podrán deducirse en el período fiscal en que se paguen o acrediten, o, si se acumularen, en cinco períodos fiscales consecutivos, a partir de la fecha del inicio de su actividad productiva, hasta agotar el saldo.
-Se considerarán gastos de organización todos los costos y gastos necesarios para iniciar la producción de rentas gravables que, de acuerdo con esta Ley, sean deducidos de la renta bruta.
-ñ) Las indemnizaciones, las prestaciones y las jubilaciones, limitado su monto al triple del mínimo establecido en el Código de Trabajo.
-o) Los gastos de publicidad y de promoción, incurridos dentro o fuera del país, necesarios para la producción de ingresos gravables.
-p) Los gastos de transporte y de comunicaciones, los sueldos, los honorarios y cualquier otra remuneración pagada a personas no domiciliadas en el país.
-q) Las donaciones debidamente comprobadas que durante el período tributario respectivo hubieren sido hechas al Estado, a sus instituciones autónomas y semiautónomas, a las corporaciones municipales, a las universidades del Estado, a las juntas de protección social, a las juntas de educación, a las instituciones docentes del Estado, a la Cruz Roja Costarricense y a otras instituciones como asociaciones o fundaciones para obras de bien social, científicas o culturales; así como las donaciones realizadas en favor de las asociaciones civiles y deportivas que hayan sido declaradas de utilidad pública por el Poder Ejecutivo al amparo del artículo 32 de la Ley de Asociaciones, o de los comités nombrados oficialmente por la Dirección General de Deportes en las zonas definidas como rurales, según el Reglamento de esta Ley, durante el período tributario respectivo.
-La Dirección General de la Tributación Directa tendrá amplia facultad en cuanto a la apreciación y calificación de la veracidad de las donaciones a que se refiere este inciso, y podrá calificar y apreciar las donaciones solamente, cuando se trate de las dirigidas a obras de bien social, científicas o culturales, y a los comités deportivos nombrados oficialmente por la Dirección General de Deportes en las zonas definidas como rurales, según el Reglamento de la presente Ley. En este Reglamento se contemplarán las condiciones y controles que deberán establecerse en el caso de estas donaciones, tanto para el donante como para el receptor.
-(Derogado el último párrafo del inciso q), por el inciso f) del artículo 22 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001). r) Las pérdidas por destrucción de bienes, por incendio, por delitos en perjuicio de la empresa, debidamente comprobadas y en la parte no cubierta por los seguros.
-s) Los profesionales o técnicos que presten sus servicios sin que medie relación de dependencia con sus clientes, así como los agentes vendedores, agentes comisionistas y agentes de seguros, podrán deducir los gastos necesarios para producir sus ingresos gravables de acuerdo con las normas generales, o bien, podrán acogerse a una deducción única, sin necesidad de prueba alguna, del veinticinco por ciento (25%) de los ingresos brutos de la actividad o de las comisiones devengadas, según corresponda.
-t) Todas las deducciones contempladas en la Ley de Fomento de la Producción Agropecuaria, No. 7064 del 29 de abril de 1987.
-u) DEROGADO por el inciso k) del artículo 22 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001). La Administración Tributaria aceptará todas las deducciones consideradas en este artículo, excepto la del inciso q) siempre que, en conjunto, se cumpla con los siguientes requisitos: 1.-
-Que sean gastos necesarios para obtener ingresos, actuales o potenciales, gravados por esta Ley.
-2.-
-Que se haya cumplido con la obligación de retener y pagar el impuesto fijado en otras disposiciones de esta Ley.
-3.-
-Que los comprobantes de respaldo estén debidamente autorizados por la Administración Tributaria. Quedará a juicio de esta exceptuar casos especiales, que se señalarán en el Reglamento de la presente Ley.
-La Administración Tributaria está facultada para rechazar, total o parcialmente, los gastos citados en los incisos b), j), k), l), m), n), o), p), s), y t) anteriores, cuando los considere excesivos o improcedentes o no los considere indispensables para obtener rentas gravables, según los estudios fundamentados que realice esa Administración.
-Para que puedan deducirse los gastos causados y no pagados en el año, será menester que hayan sido contabilizados en una cuenta especial, de manera que cuando se paguen realmente se imputen a dicha cuenta. No se aceptará deducción de gastos pagados si en un ejercicio anterior se hubieren deducido esos mismos gastos como simplemente causados.
-(Así reformado por el artículo 12 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995. NOTA: si bien el encabezado del artículo 12 afectante dice modificar sólo los incisos d) y f), el párrafo primero del inciso m), y los párrafos antepenúltimo y penúltimo del presente artículo, en realidad reforma todo el contenido, respetando las modificaciones que practicaban el artículo 105 de la Ley de Presupuesto No.7097 de 18 de agosto de 1988 y el artículo 33 de la ley No.7142 de 8 de marzo de 1990, e introduciendo otra redacción en el articulado)
+j) Las remuneraciones, sueldos, comisiones, honorarios o dietas que
+se paguen o acrediten a miembros de directorios, de consejos o de
+otros órganos directivos que actúen en el extranjero.
+k) Los pagos o créditos otorgados a personas no domiciliadas en el
+país por asesoramiento técnico, financiero o de otra índole, así
+como por el uso de patentes, suministro de fórmulas, marcas de
+fábrica, privilegios, franquicias, regalías y similares.
+Cuando los pagos o créditos indicados sean a favor de casas
+matrices de filiales, sucursales, agencias o establecimientos
+permanentes ubicados en el país, la deducción total por los
+conceptos señalados no podrá exceder del diez por ciento (10%) de
+las ventas brutas obtenidas durante el período fiscal
+correspondiente. Para ello deberán haberse hecho las retenciones
+del impuesto establecido en esta Ley.
+l) Los pagos o créditos otorgados a personas no domiciliadas en el
+país por el suministro de noticias, por la producción, la
+distribución, la intermediación o cualquier otra forma de
+negociación en el país, de películas cinematográficas y para
+televisión, videotapes, radionovelas, discos fonográficos, tiras
+de historietas, fotonovelas, y todo otro medio similar de
+proyección, transmisión o difusión de imágenes o sonidos.
+m) Los gastos de representación y similares en que se incurra dentro
+o fuera del país, los viáticos que se asignen o se paguen a
+dueños, socios, miembros de directorios u otros organismos
+directivos o a funcionarios o empleados del contribuyente,(*)
+(*) (Por resolución de la Sala Constitucional N° 2003-02349 de las 14:42 hrs del 19 de marzo del 2003, se declaró inconstitucional, la frase de este inciso que decía: "siempre que las deducciones por estos conceptos no representen más del uno por ciento (1%) de los ingresos brutos declarados")
+Asimismo, serán deducibles los gastos en que se incurra por la
+traída de técnicos al país o por el envío de empleados del
+contribuyente a especializarse en el exterior.
+n) Los gastos de organización de las empresas, los cuales podrán
+deducirse en el período fiscal en que se paguen o acrediten, o,
+si se acumularen, en cinco períodos fiscales consecutivos, a
+partir de la fecha del inicio de su actividad productiva, hasta
+agotar el saldo.
+Se considerarán gastos de organización todos los costos y gastos
+necesarios para iniciar la producción de rentas gravables que, de
+acuerdo con esta Ley, sean deducidos de la renta bruta.
+ñ) Las indemnizaciones, las prestaciones y las jubilaciones,
+limitado su monto al triple del mínimo establecido en el Código
+de Trabajo.
+o) Los gastos de publicidad y de promoción, incurridos dentro o
+fuera del país, necesarios para la producción de ingresos
+gravables.
+p) Los gastos de transporte y de comunicaciones, los sueldos, los
+honorarios y cualquier otra remuneración pagada a personas no
+domiciliadas en el país.
+q) Las donaciones debidamente comprobadas que hayan sido entregadas,
+durante el período tributario respectivo, al Estado, a sus instituciones
+autónomas y semi-autónomas, a las corporaciones municipales,
+a las universidades estatales, a las Juntas de Protección Social,
+a las Juntas de Educación, a las instituciones docentes del Estado,
+a la Cruz Roja Costarricense y a otras instituciones, como asociaciones
+o fundaciones para obras de bien social, científicas o culturales,
+así como las donaciones realizadas en favor de la Junta Directiva
+del Parque Recreativo Nacional Playas de Manuel Antonio,
+de las asociaciones civiles y deportivas declaradas de utilidad pública
+por el Poder Ejecutivo al amparo del artículo 32 de la Ley de Asociaciones,
+o de los comités nombrados oficialmente por la Dirección General de Deportes,
+en las zonas definidas como rurales según el Reglamento de esta Ley,
+durante el período tributario respectivo.
+La Dirección General de la Tributación Directa tendrá amplia
+facultad en cuanto a la apreciación y calificación de la
+veracidad de las donaciones a que se refiere este inciso, y podrá
+calificar y apreciar las donaciones solamente, cuando se trate de
+las dirigidas a obras de bien social, científicas o culturales, y
+a los comités deportivos nombrados oficialmente por la Dirección
+General de Deportes en las zonas definidas como rurales, según el
+Reglamento de la presente Ley. En este Reglamento se contemplarán
+las condiciones y controles que deberán establecerse en el caso
+de estas donaciones, tanto para el donante como para el receptor.
+(Así reformado el primer párrafo de inciso q) por el artículo 11 de la Ley N° 8133 de 19 de setiembre del 2001)
+(Derogado el último párrafo del inciso q), por el inciso f) del artículo 22 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
+r) Las pérdidas por destrucción de bienes, por incendio, por delitos
+en perjuicio de la empresa, debidamente comprobadas y en la parte
+no cubierta por los seguros.
+s) Los profesionales o técnicos que presten sus servicios sin que
+medie relación de dependencia con sus clientes, así como los
+agentes vendedores, agentes comisionistas y agentes de seguros,
+podrán deducir los gastos necesarios para producir sus ingresos
+gravables de acuerdo con las normas generales, o bien, podrán
+acogerse a una deducción única, sin necesidad de prueba alguna,
+del veinticinco por ciento (25%) de los ingresos brutos de la
+actividad o de las comisiones devengadas, según corresponda.
+t) Todas las deducciones contempladas en la Ley de Fomento de la
+Producción Agropecuaria, No. 7064 del 29 de abril de 1987.
+u) DEROGADO TÁCITAMENTE por la Ley N° 8114, Ley de Simplificación y Eficiencia Tributarias de 4 de julio del 2001, la cuál en el artículo 22 inciso k) deroga el artículo 22 de la Ley 7555 la cuál adicionaba el inciso u) al presente artículo).
+La Administración Tributaria aceptará todas las deducciones
+consideradas en este artículo, excepto la del inciso q) siempre que, en
+conjunto, se cumpla con los siguientes requisitos:
+1.- Que sean gastos necesarios para obtener ingresos, actuales o
+potenciales, gravados por esta Ley.
+2.- Que se haya cumplido con la obligación de retener y pagar el
+impuesto fijado en otras disposiciones de esta Ley.
+3.- Que los comprobantes de respaldo estén debidamente autorizados
+por la Administración Tributaria. Quedará a juicio de esta
+exceptuar casos especiales, que se señalarán en el Reglamento de
+la presente Ley.
+La Administración Tributaria está facultada para rechazar, total o
+parcialmente, los gastos citados en los incisos b), j), k), l), m), n),
+o), p), s), y t) anteriores, cuando los considere excesivos o
+improcedentes o no los considere indispensables para obtener rentas
+gravables, según los estudios fundamentados que realice esa
+Administración.
+Para que puedan deducirse los gastos causados y no pagados en el
+año, será menester que hayan sido contabilizados en una cuenta especial,
+de manera que cuando se paguen realmente se imputen a dicha cuenta. No se
+aceptará deducción de gastos pagados si en un ejercicio anterior se
+hubieren deducido esos mismos gastos como simplemente causados.
+(Así reformado por el artículo 12 de la Ley de Justicia Tributaria
+No.7535 del 1 de agosto de 1995. NOTA: si bien el encabezado del artículo
+12 afectante dice modificar sólo los incisos d) y f), el párrafo primero
+del inciso m), y los párrafos antepenúltimo y penúltimo del presente
+artículo, en realidad reforma todo el contenido, respetando las
+modificaciones que practicaban el artículo 105 de la Ley de Presupuesto
+No.7097 de 18 de agosto de 1988 y el artículo 33 de la ley No.7142 de 8
+de marzo de 1990, e introduciendo otra redacción en el articulado)
