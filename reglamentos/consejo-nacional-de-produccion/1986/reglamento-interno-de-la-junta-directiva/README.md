@@ -15,3 +15,4 @@ Reglamento Interno de la Junta Directiva
 | --- | --- | --- |
 | 1 | 1986-08-18 | la propia norma |
 | 2 | 1990-08-16 | Reglamento 1480 (1990-08-16) |
+| 3 | 1993-02-02 | Reglamento 1649 (1993-02-02) |

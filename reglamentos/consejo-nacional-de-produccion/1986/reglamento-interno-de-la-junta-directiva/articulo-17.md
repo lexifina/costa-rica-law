@@ -1,2 +1,2 @@
-Artículo 17.—Rige, una vez aprobado por la Contraloría General de la República, a partir de su publicación en el Diario Oficial, y deroga a toda otra disposición de rango igual o menor que se le oponga.
-(Modificada tácitamente su numeración mediante acuerdo de sesión N° 1480 de 16 de agosto de 1990, que lo pasó del 16 al 17)
+Artículo 17.—La actuación de miembros de Junta Directiva en los que concurran motivos de abstención, implicará la invalidez de los acuerdos en que haya intervenido y, además, dará lugar a responsabilidad. Cuando los motivos de abstención sean los de impedimento previstos en el artículo 49 del Código Procesal Civil o el artículo 107 de la Ley de la Administración Financiera, la nulidad será absoluta, en los demás casos será relativa.
+(Así adicionado mediante acuerdo tomado en sesión N° 1649 de 2 de febrero de 1993)
