@@ -1,0 +1,1 @@
+6. Una vez que el proyecto sea aceptado, podrá solicitarse el pase al pago de derechos ante el Colegio Federado de Ingenieros y Arquitectos de Costa Rica. Seguidamente en un plazo no mayor de dos días, la Oficina Central otorgará el visado o certificado definitivo al proyecto en cuestión.

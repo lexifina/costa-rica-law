@@ -1,0 +1,2 @@
+8. El horario de atención en la Oficina Central en la ventanilla será: de 8,00 a. m. a 12,00 m. d. y de 1,00 p. m. a 3.30 p. m. Las fichas se retirarán 20 minutos antes de concluir cada jornada. La atención vía telefónica, se dará únicamente de 9.00 a. m. a 12,00 m. d. y de 1,00 p. m. 3,30 p. m.. a través del teléfono 256-5265, extensión 308; por la línea directa solo se aceptarán consultas acerca de los requisitos técnicos de presentación de planos a la Oficina Central, no consultas propias de casos de planos que están en trámite.
+San José, 30 de enero de 1996.-
