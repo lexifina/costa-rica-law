@@ -1,0 +1,1 @@
+Artículo 14.—En caso de ocurrir daños o necesidad de reparaciones en los servicios públicos, el arrendatario está en la obligación de facilitar la entrada al local, de los operarios municipales que realizarán las labores de reparación respectiva, ya sea en su puesto o en los de los demás inquilinos.

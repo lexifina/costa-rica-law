@@ -1,0 +1,1 @@
+Artículo 4°—En caso de desacato a cualquier disposición de este Reglamento, la Municipalidad nombrará una Comisión Especial, de acuerdo al artículo 49 del Código Municipal, que será la encargada de conocer y dictaminar, acerca de dicho desacato.
