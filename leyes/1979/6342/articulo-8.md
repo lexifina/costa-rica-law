@@ -1,0 +1,1 @@
+Artículo 8°.- La información suministrada por los patentados, a la Municipalidad, mantendrá el carácter confidencial, que tiene la información de las declaraciones sobre la renta. Cualquier violación a esa confidencialidad se castigará con las penas que señala la ley número 837 del 20 de diciembre de 1946 y sus reformas.

@@ -1,0 +1,1 @@
+Artículo 4.-Se autoriza a la Municipalidad, para que dicte el reglamento correspondiente de la presente ley y adopte las medidas administrativas, a fin de ejercer una adecuada fiscalización de la misma.
