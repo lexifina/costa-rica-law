@@ -1,2 +1,0 @@
-Transitorio II.— El Director de la Secretaría Ejecutiva de Planificación Sectorial de Vivienda y Asentamientos Humanos que fungirá para el período que vence el I9 de junio de 1982, será nombrado dentro del plazo de un mes contado a partir de la fecha de celebración de la primera reunión del Consejo Nacional Sectorial.
-Dado en la Casa Presidencial.— San José, a los veintisiete días del mes de agosto de mil novecientos setenta y nueve.
