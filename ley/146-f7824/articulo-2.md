@@ -1,0 +1,1 @@
+Art 2°.- Se concede á los comprendidos en el art° anterior, el término de seis meses, contados desde esta fecha, para la satisfacción de la cantidad que les queda detallada, afianza competentemente con documento público y a satisfacción de la Intendencia. Verificado esto, y pagados las costas de embargo, se les entregarán sus bienes.
