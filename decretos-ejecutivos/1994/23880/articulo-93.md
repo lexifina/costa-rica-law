@@ -1,1 +1,3 @@
-Artículo 93.- El personal que reingrese a brindar servicios a la policía, deberá ajustarse a los mismos requisitos de admisión a que se refiere el artículo anterior. En el caso de que uno de los aspirantes haya aprobado cualesquiera de los cursos de formación profesional, se le revalidará el mismo, salvo que su contenido sea diferente en cuyo caso estará obligado a tomarlo y aprobarlo.
+Artículo 93.- La Dirección General de la Escuela Nacional de Policía podrá equiparar los cursos policiales realizados dentro o fuera del país al Curso Básico Policial, para los efectos del artículo 15 del presente Reglamento.
+De lo resuelto por la Dirección General se podrá interponer dentro del tercero día recurso de apelación ante el Ministro, quien resolverá en definitiva.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 25461 del 30 de agosto de 1996)

@@ -1,1 +1,2 @@
-Artículo 15.- Todo servidor que ingrese al Estatuto deberá pasar un período de prueba no menor de seis meses. El nombramiento en propiedad una vez pasado el período de prueba, debe ser solicitado por el superior inmediato en forma escrita, al Consejo de Personal quien resolverá lo pertinente. Dentro del período de prueba, el servidor interino deberá aprobar satisfactoriamente el Curso Básico Policial.
+Artículo 15.- Todo servidor que ingrese al Estatuto deberá pasar por un período de prueba no menos de seis meses. Dentro del período de prueba, el servidor deberá aprobar satisfactoriamente el Curso Básico Policial o su equivalente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 25461 del 30 de agosto de 1996)

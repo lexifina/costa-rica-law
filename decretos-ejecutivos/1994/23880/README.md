@@ -17,3 +17,4 @@ Reglamento de Servicio de los Cuerpos Policiales adscritos al Ministerio de Segu
 | 2 | 1995-07-31 | Decreto Ejecutivo 24538 (1995-07-31) |
 | 3 | 1995-10-09 | Decreto Ejecutivo 24792 (1995-10-09) |
 | 4 | 1995-11-16 | Decreto Ejecutivo 24774 (1995-11-16) |
+| 5 | 1996-08-30 | Decreto Ejecutivo 25461 (1996-08-30) |
