@@ -1,0 +1,1 @@
+Artículo 2° También procederá el Poder Ejecutivo a instar el desalojamiento de los que sin derecho posean o detenten terrenos dentro de la zona reservada, a que se refiere la concesión Astúa Pirie aprobada por decreto de 28 de 1904, y asimismo reinvindicará los lotes de aquellas tierras que ilegalmente hayan sido reducidos a dominio particular
