@@ -1,0 +1,1 @@
+Artículo 3°—Para el cumplimiento de las funciones encomendadas a la Oficina de Planificación Sectorial, se estructurarán las unidades de programación, coordinación y las otras que se consideren necesarias.
