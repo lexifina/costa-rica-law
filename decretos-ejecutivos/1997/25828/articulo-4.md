@@ -1,1 +1,0 @@
-Artículo 4°-Se establece como pago por concepto de los servicios ambientales establecidos en el art. 3, inciso k) de la Ley Forestal para manejo (le bosques naturales, la suma de ¢10.000,00 (diez mil colones) por hectárea por año, durante el período de tiempo que aquí se determine.

@@ -1,1 +1,0 @@
-Artículo 8°—El pago de los servicios ambientales para conservación de bosques naturales, será por un período de 5 años, comprometiéndose el propietario que se beneficie del pago, a la protección y conservación del bosque, durante los siguientes 15 años.

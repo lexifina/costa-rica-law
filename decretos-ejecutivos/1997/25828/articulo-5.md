@@ -1,1 +1,0 @@
-Artículo 5°—El pago de los servicios ambientales para manejo de bosques naturales, será por un período de 5 años, comprometiéndose el propietario que se beneficie del pago, al manejo sostenible del bosque durante los siguientes 15 años.
