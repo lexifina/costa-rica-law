@@ -1,0 +1,1 @@
+8. El presente reglamento se establece como interno, al no existir afectación a terceros y por tanto no se somete a consulta pública no vinculante, por lo que entrará a regir, una vez publicado en el diario oficial La Gaceta.

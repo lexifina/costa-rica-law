@@ -1,0 +1,1 @@
+2. Tomando como base el artículo 170 de la Constitución, que determina que las corporaciones municipales son autónomas, se determina que dicho remanente seguirá utilizándose para dicho fin, máxime que no se desvirtúa el espíritu de la ley, para lo cual los empleados municipales, deberán ajustarse al presente Reglamento.
