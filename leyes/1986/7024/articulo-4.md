@@ -1,0 +1,1 @@
+Artículo 4.-Recibida la solicitud como se estipula en el artículo anterior, el Ministerio de Gobernación, por medio del Departamento de Migración y Extranjería, procederá a expedir la correspondiente cédula de residencia, dentro del término máximo de dos meses, exenta de todo impuesto. Por los duplicados y renovaciones se pagarán los derechos dispuestos por ley.
