@@ -1,0 +1,1 @@
+Artículo 2º—Reglas del juego: Raspe el área de juego. Si un mismo símbolo aparece tres (3) veces, gana la cantidad indicada en la casilla de premio. Si aparece la palabra "RASPA", participa directamente en el sorteo de La Rueda de la Fortuna. La Junta solo pagará el importe de los premios incluidos en su Lista Oficial de Validación para cada boleto favorecido.
