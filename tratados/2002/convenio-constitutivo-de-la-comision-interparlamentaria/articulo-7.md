@@ -1,0 +1,1 @@
+Artículo 7º—La Secretaría Ejecutiva: La Secretaría estará a cargo de un Secretario Ejecutivo designado por la Comisión, que tendrá las responsabilidades y atribuciones que la Comisión y el Presidente le designen.

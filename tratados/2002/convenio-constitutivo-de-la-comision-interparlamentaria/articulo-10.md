@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión procurará que los beneficios en recursos materiales, humanos y financieros, que se deriven de la aplicación de este Convenio, se extiendan en forma equitativa a todos los países.

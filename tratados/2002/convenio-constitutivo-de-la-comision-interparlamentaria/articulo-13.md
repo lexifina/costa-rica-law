@@ -1,0 +1,1 @@
+Artículo 13.—Vigencia: El Convenio entrará en vigor para los países que lo hayan depositado, ocho días después de la fecha en que se deposite el tercer instrumento de ratificación. Para los demás países, entrará en vigor en la fecha de depósito de sus respectivos instrumentos de ratificación.
