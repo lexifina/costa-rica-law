@@ -1,0 +1,14 @@
+CAPITULO IV
+Reconocimientos Ocasionales
+Artículo 4-01.—Reconocimientos extraordinarios.
+Toda embarcación nacional, cualquiera que sea su tonelaje, clase o industria a que se dedique, incluso las exceptuadas de reconocimientos periódicos por el artículo 3-01 b) estará sujeta a sufrir los reconocimientos extraordinarios en los casos siguientes:
+a) Cuando como consecuencia del último reconocimiento resultase necesaria por causa de evidente necesidad, realizar nuevos reconocimientos antes de transcurrido el plazo reglamentario, sea en el casco, aparato motor, instalación eléctrica, instalaciones frigoríficas, puntales, material de salvamento, contra incendios, luces, alojamientos, etc. El Inspector de Buques lo llevara a cabo a los efectos de comprobar el estado de eficiencia y garantía de aquellas partes del buque que por su apariencia fueran causa de inspección extraordinaria.
+b) Después de haber sufrido varadas, abordajes, serias averías por temporal u otro motivo, o averías en elementos importantes en su maquinaria.
+c) Cuando el buque efectúe reparaciones de importancia o en elementos importantes de su casco, equipo motor o sufra alteraciones.
+d) Por reclamación de los tripulantes, pasajeros, cargadores, o denuncia que merezca confianza, si lo juzgan conveniente las Autoridades Portuaria o Cónsules.
+e) Por petición o requerimiento judicial.
+f) Los reclamantes en el caso d) y los causantes del requerimiento en el e), del presente artículo, serán responsables de cuanto gasto se origine en b reconocimientos si éstos no resultaren justificados y de resultar justificados lo será el propietario del buque. En todo caso se exigirá previamente un depósito para responder de daños y perjuicios, cuya cuantía será fijada por la Autoridad Portuaria excepto cuando la reclamación suscriba la dotación entera del buque. En este último caso ha de ser la Autoridad Portuaria o Consular, quien aprecie si procede o no la reclamación para lo cual ésta ha de entregarse debidamente fundamentada.
+Artículo 4-02.—Buques adquiridos en el extranjero.
+Los buques adquiridos en el extranjero serán sometidos antes de su abanderamiento, a un reconocimiento que será de tipo cuatrienal de acuerdo con su edad, para casco, aparato motor, instalaciones eléctricas y frigoríficas; los demás servicios del buque de los previstos en este Reglamento se reconocerán como si se tratase de un buque de nueva construcción.
+Artículo 4-03.—Reconocimientos de buques extranjeros.
+Si la Autoridad Portuaria estima que existen razones que hacen sospechar que el estado de un buque extranjero no corresponde sustancialmente a las indicaciones de los Certificados de que va previsto, ordenará que el Inspector efectúe un reconocimiento de las partes o servicios del buque sobre los que exista tal duda, previo conocimiento a la Autoridad Consular que corresponda y la oficina de Asuntos Consulares del Ministerio de Gobernación.
