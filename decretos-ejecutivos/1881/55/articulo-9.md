@@ -1,0 +1,1 @@
+Art. 9°-En ninguna inscripción ni nota marginal se usara de diferentes escribientes, ni de diversas clases de letra. EI funcionario que lo permitiere, será corregido con la multa adecuada al caso, en la visita de inspección.

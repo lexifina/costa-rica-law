@@ -1,0 +1,1 @@
+Art. 12.-Los libros y documentos se conservarán en lugar apropiado, y se custodiarán con esmero, so pena, para el funcionario responsable, de recibir la corrección del caso, en la visita de inspección.

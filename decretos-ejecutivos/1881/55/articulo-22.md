@@ -1,0 +1,1 @@
+Art. 22.-Ningún Alcalde, so pretexto de ocupaciones, ni bajo ningún otro, puede negarse á hacer las inscripciones que por Ia ley Ie corresponden, á no ser que se encuentre en diligencia impostergable de la instrucción ó sustanciación criminal, en cuyo caso puede diferir el asiento.

@@ -1,0 +1,1 @@
+Art. 13.-Cuando el encargado del registro advirtiere que un libro está para llenarse, acudirá en tiempo al municipio para su sustitución, que ha de hacerse por duplicado, y con las formalidades que dan autenticidad al registro. EI funcionario que fuere omiso en el cumplimiento de esta obligación, incurrirá en la multa de diez pesos.

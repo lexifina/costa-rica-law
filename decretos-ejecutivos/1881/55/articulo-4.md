@@ -1,0 +1,1 @@
+Art. 4°-Cada folio de los libros del registro estará rayado horizontalmente, no escribiéndose, en caso alguno, fuera de la raya, pena de nulidad. Si no pudieren obtenerse cuadernos que tengan esta preparación se rayaran los que hayan de emplearse, antes de que el Juez los rubrique.

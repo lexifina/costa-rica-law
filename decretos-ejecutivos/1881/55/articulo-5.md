@@ -1,0 +1,1 @@
+Art. 5°-El margen propio para las notas que allí corresponde estampar, comprenderá en lo ancho la tercera parte del folio, y todo el folio a lo largo, y estará limitado por una raya perpendicular a las otras. La inscripción que, en todo o en parte, estuviere hecha en el margen del libro, no es válida.
