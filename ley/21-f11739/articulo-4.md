@@ -1,0 +1,1 @@
+Art 4°.- Se hará efectivo irremisiblemente en todos los pueblos de la República el cumplimiento del art 204, sección 2, capítulo 4° del Reglamento de Policía, n° 20 de 20 de julio de 1849 en cuanto a que ninguno puede entrar a cazar en posesiones agenas sin permiso del propietario.
