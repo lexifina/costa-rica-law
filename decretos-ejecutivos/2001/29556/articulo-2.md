@@ -1,0 +1,1 @@
+Artículo 2º—Durante esta semana se realizarán en todo el país, actividades educativas y recreativas en las que participarán niños menores de cinco años y sus familias. Las personas físicas y jurídicas podrán, en la medida de sus posibilidades, colaborar para la materialización de esta celebración anual.
