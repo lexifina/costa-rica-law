@@ -1,0 +1,1 @@
+Artículo 7º—Es deber del usuario(a) devolver el material documental, que le fue prestado, en la última fecha que indica la boleta de préstamo, caso contrario, se le suspenderá el servicio de préstamo a domicilio, la primera vez hasta por un mes, la segunda vez hasta por dos meses, y la tercera, en forma definitiva.

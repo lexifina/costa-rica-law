@@ -1,0 +1,1 @@
+Artículo 12.—Corresponde a los funcionarios (as) de cada Biblioteca Pública, encausar con diligencia y atención los requerimientos del usuario, mostrando respeto y orden en cada una de sus actuaciones.

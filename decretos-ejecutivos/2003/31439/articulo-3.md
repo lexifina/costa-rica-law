@@ -1,0 +1,1 @@
+Artículo 3º—El horario de las Bibliotecas Públicas Oficiales será de lunes a viernes de 10:00 a. m., a 6:00 p. m., según lo establecido en el Artículo 10 del Reglamento Autónomo de Trabajo del Ministerio de Cultura, Juventud y Deportes.

@@ -1,0 +1,1 @@
+Artículo 14.—Con el propósito de brindar mayor información y seguridad en las relaciones entre las Bibliotecas Públicas y los (as) usuarios (as), se procederá a exhibir en lugar visible y de fácil acceso, el presente Reglamento.

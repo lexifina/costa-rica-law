@@ -1,0 +1,1 @@
+Artículo 9º—No se podrá hacer uso de las instalaciones de las Bibliotecas Públicas, para impartir lecciones, cursos u otras actividades, salvo que cuenten con la autorización de los funcionarios de la Biblioteca Pública respectiva.

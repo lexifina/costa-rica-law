@@ -1,0 +1,1 @@
+Artículo 8º—Los usuarios (as) que se consideren afectados por la conducta de algún(a) funcionario(a) de alguna de las Bibliotecas del Sistema Nacional de Bibliotecas, podrá elevar la queja correspondiente al Director(a) respectivo(a) o a la Dirección de Bibliotecas Públicas, incluso vía telefónica.

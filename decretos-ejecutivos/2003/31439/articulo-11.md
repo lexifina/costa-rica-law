@@ -1,0 +1,1 @@
+Artículo 11.—Todo funcionario(a) del Sistema Nacional de Bibliotecas, está en la obligación de respetar, resguardar y velar por los intereses de la institución donde labora, incluyendo al Director o Directora.

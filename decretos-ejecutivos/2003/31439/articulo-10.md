@@ -1,0 +1,2 @@
+Artículo 10.—Cuando se compruebe debidamente que un usuario(a) ha sustraído, causado daños, deterioro o ha cometido cualquier falta grave contra el material de servicio, equipo e instalaciones de la Biblioteca Pública, se plantearán en su contra, las acciones civiles o penales correspondientes.
+Lo anterior, sin perjuicio de que el usuario(a) restituya o repare el material, equipo o instalación dañado, en un plazo de quince días naturales, a partir del momento en que se tuvo certeza de la comisión del daño.

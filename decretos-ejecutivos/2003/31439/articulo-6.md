@@ -1,0 +1,1 @@
+Artículo 6º—Las Bibliotecas Públicas pueden brindar el servicio de préstamo a domicilio, para aquellos usuarios (as) que lo requieran y cuenten con el carné de biblioteca al día, de acuerdo con la autorización del Director o Directora de la Biblioteca, y cumpliendo con los requisitos que establezca cada biblioteca para tal efecto.
