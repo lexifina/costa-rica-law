@@ -14,3 +14,4 @@ Creación del Registro Nacional de Notarios y Registro de Notarios Consulares
 | --- | --- | --- |
 | 1 | 1999-01-21 | la propia norma |
 | 2 | 2003-02-10 | Resolución 0 (2003-02-10) |
+| 3 | 2003-03-13 | Resolución 355 (2003-03-13) |
