@@ -1,0 +1,1 @@
+Artículo 7°—En caso de establecerse que un lote de arroz producido en el país o importado no esté debidamente fortificado, se procederá al decomiso de la cantidad total del lote, siguiendo los procedimientos establecidos por el Ministerio de Salud.

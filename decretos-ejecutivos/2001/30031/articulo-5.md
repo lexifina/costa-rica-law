@@ -1,0 +1,2 @@
+Artículo 5°—Para autorizar el desalmacenaje de arroz pulido importado, el importador deberá demostrar en el certificado de conformidad del país de origen o certificado de análisis realizado en un laboratorio acreditado, que el producto cumple con la fortificación establecida en el presente reglamento, para cada partida de importaciones.
+Para el arroz producido en el país se establecerá un sistema de control a nivel de producción.

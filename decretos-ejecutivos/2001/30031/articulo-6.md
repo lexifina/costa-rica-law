@@ -1,0 +1,1 @@
+Articulo 6°—El Ministerio de Salud podrá confirmar, mediante muestreo o análisis de muestras en el mercado o en las bodegas del industrial o importador, el cumplimiento del arroz importado con los niveles de fortificación establecidos en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—La publicidad para la comercialización del arroz fortificado deberá cumplir con lo establecido en la normativa vigente al respecto y será controlada junto con el etiquetado nutricional, por el Ministerio de Salud de conformidad con sus potestades.

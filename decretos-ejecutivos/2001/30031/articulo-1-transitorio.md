@@ -1,0 +1,2 @@
+Transitorio I.—Se otorga un plazo adicional de seis meses a partir de la fecha de entrada en vigencia del presente Reglamento a efecto de que los pequeños industriales cumplan con las disposiciones aquí establecidas.
+Para los efectos de la presente disposición transitoria se considerará "pequeña industria" aquellas con capacidad de almacenamiento de arroz en granza menor a dos mil toneladas métricas.
