@@ -13,3 +13,4 @@ Reglamento sobre la Actividad de los Agentes de Aduana
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-04-20 | la propia norma |
+| 2 | 1996-06-14 | Decreto Ejecutivo 25270 (1996-06-14) |
