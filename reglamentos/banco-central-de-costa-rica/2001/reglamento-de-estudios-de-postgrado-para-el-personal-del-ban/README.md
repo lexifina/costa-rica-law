@@ -14,3 +14,4 @@ Reglamento de Estudios de Postgrado para el Personal del Banco Central de Costa 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-07 | la propia norma |
+| 2 | 2004-08-04 | Reglamento 5209 (2004-08-04) |
