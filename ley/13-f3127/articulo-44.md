@@ -1,0 +1,2 @@
+Artículo 44.- El fallo del Tribunal deberá ser obedecido por los interesados, y si no lo fuere, dicho Tribunal suspenderá al profesional hasta por un año del goce de todas las prerrogativas que tienen los abogados inscritos en la lista del Colegio; y cuando el renuente fuese persona extraña al Foro, se ordenará como sanción la publicación de la sentencia.
+(Corrida su numeración por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del artículo 38 al 44)

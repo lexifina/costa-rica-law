@@ -1,0 +1,2 @@
+Artículo 47.- Los acuerdos y resoluciones del Presidente del Colegio y de la Junta de Gobierno, en materia de su competencia, se ejecutará, desde luego. Los recursos contra dichos acuerdos y resoluciones se concederán para ante el Colegio, sólo en el efecto devolutivo.
+(Corrida su numeración por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del artículo 41 al 47)
