@@ -1,0 +1,1 @@
+Articulo 6º—En el mes de diciembre de cada año, la Junta Administrativa deberá remitir un programa de trabajo para el año siguiente al Ministro de Cultura, Juventud y Deportes, el cual deberá revisarlo y aprobarlo, con las modificaciones que él estime necesarias.
