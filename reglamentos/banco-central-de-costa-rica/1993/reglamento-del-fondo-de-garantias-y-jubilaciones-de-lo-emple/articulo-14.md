@@ -1,0 +1,1 @@
+ARTICULO 14. La Auditoría Interna del Banco podrá vigilar el adecuado cumplimiento y aplicación de este reglamento, la correcta contabilización y registro de sus operaciones y el normal desarrollo de sus actividades, debiendo informar a la Junta Administrativa de cualquier observación que estimare necesaria.
