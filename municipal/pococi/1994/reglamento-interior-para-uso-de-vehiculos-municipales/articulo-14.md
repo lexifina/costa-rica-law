@@ -1,0 +1,1 @@
+Artículo XIV. —El Ejecutivo Municipal autorizará las cuotas de combustible y lubricantes necesarios para el funcionamiento de los vehículos, de acuerdo con los programas de trabajo aprobadas en el presupuesto ordinario de cada año. En caso de que dicha cuota fuera insuficiente, el Ejecutivo Municipal podrá autorizar una cuota adicional mediante los estudios previos del caso.

@@ -1,0 +1,3 @@
+CAPITULO V
+De las prohibiciones
+Artículo XVIII.—Queda terminantemente prohibido a los conductores ingerir bebidas alcohólicas o cualquier otra droga similar en horas de trabajo y hacer uso de los vehículos bajo los efectos de las mismas. El desacato de esta disposición se considera falta grave por lo tanto será base al despido sin responsabilidad patronal, sin perjuicio de la responsabilidad administrativa, civil o penal en que incurra. Además el conductor estará sujeto a todas las disposiciones estipuladas por el artículo 132, capítulo XI, sección primera de multas, de la Ley de Tránsito vigente.

@@ -1,0 +1,1 @@
+Artículo IV.—Bajo ninguna circunstancia, la asignación y utilización de los vehículos municipales, y sobre todo los de uso de discrecional podrá ser considerado como beneficio, mejora salarial, salario en especie, o en alguna forma parte del contrato de trabajo, ni dará lugar a derechos adquiridos en favor del funcionario.
