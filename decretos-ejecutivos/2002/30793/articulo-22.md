@@ -1,0 +1,1 @@
+Artículo 22.—Tipos de procedimiento: Los procedimientos de contratación que deberán aplicarse para la ejecución del Proyecto, serán los establecidos en los Anexos B, C y D del Contrato de Préstamo, que constituyen parte integrante del presente reglamento.
