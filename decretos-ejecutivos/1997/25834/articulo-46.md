@@ -1,3 +1,0 @@
-Artículo 46.—Deberá llevarse una contabilidad escrita que permita al MAG comprobar para cada lote de los productos, que se importen de un país de origen:
--El origen, la naturaleza y la cantidad del lote, así como, cuando lo solicite el organismo de control, cualquier información sobre las condiciones del transporte entre el país de origen del exportador y las instalaciones o almacenes del importador.
--La naturaleza, la cantidad y los destinatarios del lote, así como, cuando lo solicite el MAG, cualquier información sobre las condiciones del transporte entre las instalaciones o almacenes del importador y los destinatarios. '

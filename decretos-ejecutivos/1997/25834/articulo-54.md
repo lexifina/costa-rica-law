@@ -1,1 +1,0 @@
-Artículo 54.—El único órgano competente para refrendar las certificaciones emitidas por las Agencias Certificadoras, como requisito de validez, de productos orgánicos destinados al consumo interno y a la exportación, será el Programa por medio de la Dirección. Se podrá rechazar la certificación que no cumpla con los requisitos establecidos en el presente Reglamento.

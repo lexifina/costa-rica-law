@@ -1,1 +1,0 @@
-Artículo 9°—En el caso de parcelas sometidas a cultivos orgánicos que posean condiciones de origen natural, regeneración, descanso, abandono, repasto o potrero quedan exentas de las restricciones del artículo anterior, siempre y cuando se demuestre la no aplicación de; productos de síntesis química en los últimos tres años.

@@ -1,1 +1,0 @@
-Artículo 44.—Cuando se examine la solicitud de un país de origen, se exigirá toda la información necesaria; además podrá encargar a expertos que efectúen, bajo su autoridad, un examen in situ de las normas de producción y de las medidas de control realmente aplicadas en el país tercero afectado.

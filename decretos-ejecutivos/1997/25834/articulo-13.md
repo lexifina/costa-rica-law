@@ -1,1 +1,0 @@
-Artículo 13.—La importación de insumos y de productos alimenticios orgánicos, frescos o elaborados, sólo se permitirá si provienen de países que contemplen reglamentaciones en esta materia equivalentes a la del nuestro. Dichos productos deberán ingresar con un Certificado del país de origen que los acredite como tales, previa homologación del mismo por parte del MAG.

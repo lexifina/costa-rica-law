@@ -1,1 +1,0 @@
-Artículo 57.—Toda Agencia Certificadora, inspector orgánico, productor orgánico, finca orgánica o en transición, establecimiento de procesamiento y elaboración de productos orgánicos, deberá registrarse como tal ante la Dirección.

@@ -1,1 +1,0 @@
-Artículo 79.—Deben registrarse la industria de elaboración y envasado cuyas instalaciones estén dedicadas a la exportación de productos protegidos por la denominación de agricultura orgánica. Además, deberá cumplir la legislación vigente en esta materia.

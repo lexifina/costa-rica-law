@@ -1,1 +1,0 @@
-Artículo 56.—La labor de la Agencia Certificadora no es compatible y excluye la actividad de producción, exportación y mercadeo de productos orgánicos y no puede ser considerada como tal, alguna de ellas en que se compruebe interés y participación en empresas que persigan los fines descritos.

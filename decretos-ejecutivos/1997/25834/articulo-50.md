@@ -1,1 +1,0 @@
-Artículo 50.—El importador deberá permitir que el MAG tenga acceso para su inspección, a sus instalaciones, en particular a los certificados de importación. Asimismo, le facilitará la información necesaria para las labores de inspección.

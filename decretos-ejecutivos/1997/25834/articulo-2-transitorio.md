@@ -1,1 +1,0 @@
-Transitorio 2°—Los pequeños productores orgánicos que deseen ampliar el período de gracia, hasta de un año, deberán solicitarlo ante quien corresponde y comprobar la existencia de su sistema de producción y someterse a la debida inspección por parte del MAG.

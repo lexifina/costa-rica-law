@@ -1,1 +1,0 @@
-Artículo 40.—Las partidas de productos amparados que en su producción o elaboración hayan incumplido los preceptos de este Reglamento o lo indicado por la legislación vigente, serán desinscritas por el MAG lo que acarreará la pérdida de la denominación.

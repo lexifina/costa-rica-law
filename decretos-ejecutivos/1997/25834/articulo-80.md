@@ -1,4 +1,0 @@
-Artículo 80.—
-80.1 Para la vigencia de las inscripciones en los correspondientes registros será indispensable cumplir, en todo momento, con los requisitos que impone el presente Capítulo, debiendo comunicar al Programa cualquier variación que afecte los datos suministrados en la inscripción cuando ésta se produzca. En consecuencia. La Dirección podrá suspender o anular las inscripciones cuando los titulares de las mismas no se acogieran a los correspondientes requisitos.
-80.2 El Programa por medio de la Dirección efectuará inspecciones periódicas para comprobar el cumplimiento de cuanto se dispone en el párrafo anterior.
-80.3 Todas las inscripciones en los diferentes Registros serán renovadas en el plazo y forma que se determine por el Programa. En el caso particular del registro de fincas agropecuarias, sus datos serán actualizados todos los años en la fecha que se determine.

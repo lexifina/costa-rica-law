@@ -1,1 +1,0 @@
-Artículo 39.—Sobre el transporte: El transporte de productos bienes o mercancías orgánicas deberá cumplir las normas de seguridad e higiene que garanticen la no contaminación por agentes internos o externos inherentes al medio de transporte. Además, deberá cumplir con las normas establecidas para transporte y cumplir con el protocolo referente a certificación.

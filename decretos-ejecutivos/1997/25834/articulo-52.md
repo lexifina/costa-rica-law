@@ -1,3 +1,0 @@
-Artículo 52.—Los productos importados podrán transportarse a otras unidades, tanto mayoristas como minoristas, en envases o recipientes adecuados cuyo cierre impida la sustitución de su contenido y que vayan previstos de una etiqueta en la que se mencione, sin perjuicio de cualquier otra indicación exigida legalmente:
-a) El nombre y la dirección del importador del producto o una indicación que permita a la unidad receptora y al organismo de control determinar de forma inequívoca quién es el importador del producto;
-b) El nombre del producto y una referencia al método orgánico de producción y demás requisitos establecidos como normas de etiquetado.

@@ -1,1 +1,0 @@
-Artículo 74.—Cuando se determine mediante muestreo o medio idóneo, que el agricultor o comercializador interno, haya incumplido alguna de las disposiciones técnicas exigidas como requisito para la producción orgánica, se procederá a la cancelación del registro respectivo y deberá asumir los costos de notificación a los consumidores de tal acto.

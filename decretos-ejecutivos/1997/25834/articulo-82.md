@@ -1,1 +1,0 @@
-Artículo 82.—Cualquier producto amparado por la denominación Agricultura Orgánica, podrá ser amparado a su vez por otra denominación de origen internacional, siempre que cumpla con lo establecido en los correspondientes reglamentos.

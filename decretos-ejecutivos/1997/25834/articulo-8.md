@@ -1,1 +1,0 @@
-Artículo 8°—Para que un producto agropecuario reciba la denominación de orgánico, deberá provenir de un sistema donde se hayan aplicado las bases establecidas en el presente Reglamento, durante no menos de tres años consecutivos, de acuerdo con un plan de transformación de la finca.

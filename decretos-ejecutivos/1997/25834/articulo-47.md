@@ -1,1 +1,0 @@
-Artículo 47.—El importador comunicará al MAG cada una de las partidas que importe al país, facilitando cualquier información que pueda requerir el MAG, como por ejemplo, una copia del certificado de control expedido para la importación de productos orgánicos.

@@ -1,1 +1,0 @@
-Artículo 35.—En las etiquetas de los envases, figurarán obligatoriamente de manera destacada, el sello o logotipo orgánico, el nombre de la denominación, y además, los datos que con carácter general se determinen en la legislación aplicable.

@@ -1,1 +1,0 @@
-Artículo 75.—El Ministro en su condición de jerarca resolverá en sede administrativa los conflictos que se presentaran entre inspectores, productores y agencias certificadoras, en lo atinente a la competencia conferida por ley.

@@ -1,4 +1,0 @@
-Artículo87.—
-87.1 Se aplicará lo dispuesto en e1 Artículo 33, en lo que corresponde a etiquetado, del presente Reglamento.
-87.2 A partir de la iniciación del expediente de suspensión, los productos en cuestión deberán permanecer debidamente aislados e identificados bajo control de la División, la cual determinará el destino del producto descalificado, el cual en ningún caso podrá ser transferido a otra organización inscrita.
-87.3 En el caso que el MAG detecte anomalías o defectos en la producción, elaboración, envasado, almacenamiento, inspección, certificación y comercialización, advertirá a los responsables para que las corrijan. Si en el plazo que para ello se conceda, éstas no se han corregido, se suspenderá al infractor o los infractores según lo establecido en el artículo 72 de este Reglamento.

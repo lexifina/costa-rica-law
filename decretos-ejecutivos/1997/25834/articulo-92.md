@@ -1,3 +1,0 @@
-Artículo 92.—
-92.1 Los miembros de la Comisión a los que se refiere el artículo anterior, deberán estar vinculados a los sectores que representan, bien directamente o por ser representantes de empresas que se dediquen a las actividades que han de representar. No obstante, una misma persona, física o jurídica, no podrá tener en la comisión doble representación.
-92.2 Los directores elegidos en calidad de representante de una organización inscrita, cesarán en su cargo al vencer el término del nombramiento o representación para la cual fueron designados, precediéndose a nombrar a su sustituto en la forma establecida.

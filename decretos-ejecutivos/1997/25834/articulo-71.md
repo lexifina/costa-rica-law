@@ -1,2 +1,0 @@
-Artículo 71.—La Dirección previo a proceder a la cancelación del registro correspondiente y a la consecuente inhabilitación para el desempeño de la función autorizada, dará audiencia por un período de ocho días hábiles al interesado, a efecto de que haga valer su derecho y presente los fundamentos que dieron pié a su accionar.
-Asimismo su actuación deberá estar exenta de tratos discriminatorios y todos los procedimientos deberán garantizar trasparencia.

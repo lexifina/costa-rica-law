@@ -1,1 +1,0 @@
-Artículo 27.—La dieta debe ser balanceada de acuerdo a los requerimientos nutricionales de los animales, y fundamentalmente basados en el uso de los forrajes, granos u otros de origen natural, para un nivel de producción razonable y un crecimiento normal, de acuerdo a lo que dictan las normas y el Manual de Procedimientos en esta materia.

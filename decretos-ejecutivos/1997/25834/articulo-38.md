@@ -1,3 +1,0 @@
-Artículo 38.—Con el objeto de controlar la producción, elaboración y envasado, almacenamiento y salida, así como los volúmenes de existencias, en su caso, y cuanto sea necesario para poder acreditar el origen y calidad de los productos respaldados, las personas físicas o jurídicas titulares de fincas e industrias estarán obligadas a cumplir con las siguientes formalidades:
-a. Presentar copia de informe de certificación por producto, finca y planta ante el MAG.
-b. En caso de duda o por razones de verificación el MAG efectuará controles de campo para comprobar el cumplimiento de los compromisos y situación de producción, conforme lo establecido en la certificación, incluyendo control de cantidades, de producto autorizado y lista de productores y registro de origen.

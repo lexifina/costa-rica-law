@@ -1,2 +1,0 @@
--FUNCIONAMIENTO ADMINISTRATIVO
-Artículo 67.—Las Agencias Certificadoras deberán suscribir una póliza de fidelidad que permitirá resarcirse a los usuarios en caso de que la actividad de las primeras les genere algún perjuicio. En caso de que las Agencias Certificadoras reincidan, la Dirección eliminará su registro. En el evento de comprobarse perjuicios, la Dirección una vez oídas las partes y comprobado en sede administrativa el incumplimiento a ios deberes y obligaciones de los responsables, se procederá a la cancelación definitiva de los registros.

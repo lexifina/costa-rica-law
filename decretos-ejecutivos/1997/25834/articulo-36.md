@@ -1,1 +1,0 @@
-Artículo 36.—El sello o logotipo orgánico para uso interno como externo, los nombres, emblemas, código de barras o cualquier otro tipo de propaganda utilizada sólo podrán ser empleados, por los propios titulares inscritos en los registros de la denominación, en la comercialización de productos registrados y certificados.

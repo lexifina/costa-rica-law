@@ -1,3 +1,0 @@
-Artículo 3°—
-1. La protección otorgada se extiende a todos aquellos productos de origen agropecuario que pueden ser obtenidos sin la utilización de productos químicos sintéticos", pudiendo denominarse igualmente con los términos "biológico" y "orgánico", "biodinámico", "biológico-dinámico".
-2. Se prohibe la utilización en otros productos alimenticios de origen agropecuario, otros nombres, marcas, expresiones y signos, que por su igualdad fonética o gráfica con los protegidos, puedan inducir a error al consumidor, aún en el caso que vayan precedidos por las expresiones "tipo", "estilo", "gusto" u otras análogas.

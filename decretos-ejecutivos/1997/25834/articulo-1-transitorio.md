@@ -1,1 +1,0 @@
-Transitorio 1°—Las personas físicas o jurídicas que requieran el amparo de la denominación de agricultura orgánica, en el proceso de producción, transformación y comercialización de productos orgánicos, tendrán un plazo hasta de 90 días a partir de la publicación del presente Decreto en el Diario Oficial para ponerse a derecho.

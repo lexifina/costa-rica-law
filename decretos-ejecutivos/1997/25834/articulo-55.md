@@ -1,1 +1,0 @@
-Artículo 55.—Todo producto agropecuario, proceso productivo, o industrialización, en instalaciones dedicadas a la producción orgánica en Costa Rica, para ser reconocidos como tales, deben ser certificados por una Agencia Certificadora debidamente registrada y acreditada de conformidad con lo dispuesto en este Reglamento.
