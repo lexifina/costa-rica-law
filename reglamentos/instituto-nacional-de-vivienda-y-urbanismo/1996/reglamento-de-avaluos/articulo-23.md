@@ -1,1 +1,0 @@
-Artículo 23.—Informe de mejoras: El profesional debe consignar en el informe, el valor del terreno, de la edificación y la estimación del valor de las mejoras que se requieren efectuar a la vivienda de acuerdo con la definición del artículo 3, inciso f).

@@ -1,2 +1,0 @@
-Articulo 17.—Asignación de avalúos: La asignación de avalúos a los profesionales se hará a través de la Comisión de Tasación. Se utilizara para ello el criterio de excelencia obtenido a través de la calificación del Concurso de Antecedentes Profesionales, según adjudicación publicada en el Diario Oficial "La Gaceta" N° 174 del 13 de setiembre de 1995.
-Procurando una distribución equitativa y justa del trabajo a asignar entre los profesionales.

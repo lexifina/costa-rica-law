@@ -1,1 +1,0 @@
-Artículo 9°—Aclaraciones: El profesional está en la obligación de acudir a la Institución para aclaraciones, cada vez que ésta así lo considere conveniente, en un plazo no mayor a tres días hábiles después de ser notificado, de acuerdo con lo que se establece en el articulo 13 de este Reglamento.

@@ -1,2 +1,0 @@
-Articulo 8°—Factura: La facturación por los servicios brindados, se hará una vez al mes, conteniendo ésta, el detalle de todos los casos asignados y para tasar y aprobados por la Comisión de Tasación durante el mes transcurrido. La misma deberá ser timbrada, firmada por el profesional, en original y dos copias, por el monto total de los honorarios.
-En el caso de personas jurídicas quién debe firmar la factura es el representante legal de la misma.

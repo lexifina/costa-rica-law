@@ -1,1 +1,0 @@
-Artículo 22.—Condominios: en este caso se debe utilizar el factor de proporcionalidad que indica el acta constitutiva del condominio, para el cálculo de la parte proporcional de terreno y de obras complementarias, que sumadas al valor del Área Privativa dará el valor del Inmueble sometido al Régimen de Propiedad Horizontal.

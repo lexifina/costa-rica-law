@@ -1,1 +1,0 @@
-Artículo 13.—Lugar para notificaciones: El profesional deberá indicar, dirección exacta, apartado postal, números telefónicos, fascímil, para recibir notificaciones de parte del INVU. Igualmente, deberá proceder a registrar legalmente su firma ante la Institución. En el caso de personas jurídicas deberá también registrarse la firma del representante legal.
