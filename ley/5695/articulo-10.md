@@ -1,1 +1,1 @@
-Artículo 10.- La Junta someterá a la aprobación de la Contraloría General de la República los proyectos de presupuesto, ordinario y extraordinarios, así como sus modificaciones, quien, además, será el organismo encargado de su fiscalización.
+Artículo 10.-La Junta someterá a la aprobación de la Contraloría General de la República los proyectos de presupuesto, ordinario y extraordinarios, así como sus modificaciones, quien, además, será el organismo encargado de su fiscalización.
