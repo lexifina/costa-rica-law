@@ -1,0 +1,1 @@
+ARTÍCULO 2°. -Todos los artículos que están cargo de la Receptoría subalterna de esta capital, con excepción del papel sellado, se vender n en la oficina de la Administración general de Alcabalas sin honorario ni emolumento alguno.
