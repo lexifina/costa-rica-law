@@ -1,0 +1,1 @@
+Artículo 2°.- Cuando la Municipalidad de Coto Brus lo considere conveniente, para los intereses de este cantón, podrá negociar con el Instituto Costarricense de Electricidad el traspaso de la planta con el fin de que sea éste el que asuma la obligación de suministrar la energía eléctrica.
