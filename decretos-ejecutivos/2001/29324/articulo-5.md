@@ -1,0 +1,1 @@
+Artículo 5º—Ratificar la procedencia y legalidad del nombramiento del personal docente que siempre ha llevado a cabo el Ministerio de Educación y particularmente, la de su nuevo Director, quienes son funcionarios públicos del Ministerio de Educación.

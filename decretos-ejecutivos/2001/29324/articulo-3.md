@@ -1,0 +1,1 @@
+Artículo 3º—Solicitar a los padres de familia y a toda institución pública o privada, que los aportes o donaciones destinados al Conservatorio Castella, se hagan a nombre de su Junta Administrativa y en la cuenta bancaria correspondiente.

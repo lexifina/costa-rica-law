@@ -1,0 +1,1 @@
+Artículo 6º—Adoptar las medidas que en Derecho procedan para garantizar el cumplimiento de lo dispuesto en esta Resolución, particularmente, las contempladas a partir del artículo 146 de la Ley General de la Administración Pública.
