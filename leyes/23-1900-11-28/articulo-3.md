@@ -1,0 +1,2 @@
+III
+El Gobierno en compensación de los expuesto, y para poner término á las cuestiones pendientes con el señor Keith sobre vigencia de ese convenio y respecto á las reclamaciones á que este último pretende tener derecho por razón de tal contrato, pagará á Keith la suma de doscientos veinticinco mil pesos oro americano, en bonos de los establecidos en contrato de veintidós de enero de mil ochocientos noventa y seis, para el pago de las obras de saneamiento de Limón.
