@@ -1,0 +1,3 @@
+Artículo 23.-La responsabilidad por la implantación de las recomendaciones de la Auditoría, será la Administración Activa, por lo que la Auditoría Interna incluirá en su Plan de Trabajo, el seguimiento de las recomendaciones aprobadas que hayan sido formuladas en sus informes, en informes de firmas independientes de contadores públicos, y a las disposiciones y recomendaciones emitidas por la Contraloría General de la República, con la finalidad de verificar si esas recomendaciones aprobadas han sido puestas en práctica.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.-San José, a los diecinueve días del mes junio de mil novecientos noventa y seis.

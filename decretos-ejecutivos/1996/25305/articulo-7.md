@@ -1,0 +1,1 @@
+Artículo 7°-La Auditoría Interna contará con la organización y personal profesional y técnico necesario que deberá poseer suficientes conocimientos y experiencia en labores de auditoria, contabilidad y conocimiento de disposiciones técnica y legales que rigen a la Administración Pública que lo califiquen para el desempeño de sus funciones.
