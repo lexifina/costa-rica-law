@@ -1,2 +1,0 @@
-Artículo 28.—Quedan relevados de la obligación de marcar aquellos servidores a quienes, habitualmente, les corresponda desempeñar su trabajo fuera de la oficina, y aquellos que ocasionalmente permanezcan en giras como consecuencia del trabajo que realicen, así como aquellos otros que el Viceministro, el Ministro u otro funcionario superior así lo dispongan.
-En el evento de que no existiere reloj o que el mismo estuviere descompuesto, dicho control se llevará por medio de un formulario de estilo.

@@ -1,2 +1,0 @@
-Artículo 69.—Una vez celebrada la audiencia oral y privada, en un plazo de quince días naturales el órgano director emitirá el informe que trasladara al Ministro con las recomendaciones disciplinarias que considere aplicables. quien resolverá en definitiva en un plazo de cinco días naturales. De considerarlo necesario el Ministro podrá ordenar aclaraciones y adiciones de ese informe.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 24983 de 9 de enero de 1996)

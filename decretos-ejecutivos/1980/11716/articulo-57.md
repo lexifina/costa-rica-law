@@ -1,1 +1,0 @@
-Artículo 57.—No obstante lo estipulado en este capítulo, las licencias para estudios podrán ser denegadas libremente, sin responsabilidad para la Presidencia de la República y sin que situaciones similares o sucedidas con anterioridad, puedan considerarse como derechos adquiridos.

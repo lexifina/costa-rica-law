@@ -1,1 +1,0 @@
-Artículo 4°—Quedan exceptuados de la aplicación de este Reglamento, quienes fueren contratados por servicios profesionales conforme al artículo 105 de la Ley de la Administración Financiera de la República, así como quienes sean remunerados por medio de dietas por la integración de organismos colegiados que sean parte de la Institución o estén adscritos a ellas.

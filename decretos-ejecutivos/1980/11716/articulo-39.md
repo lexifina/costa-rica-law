@@ -1,1 +1,0 @@
-Artículo 39.—El abandono injustificado del trabajo, cuando se considere falta grave a las obligaciones inherentes al cargo que ocupe el servidor, será sancionado con amonestación escrita la primera vez, con suspensión del trabajo hasta por ocho días la segunda vez y con despido la tercera.

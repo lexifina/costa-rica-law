@@ -1,1 +1,0 @@
-Artículo 18.—Las labores descritas en las especificaciones de clases de este Manual, no deberán interpretarse como restrictivas ni prescriptivas, sino tan solo representativas del trabajo del puesto que se desempeña y, en consecuencia, ningún servidor podrá negarse a ejecutar otras labores no contenidas en ésta, acordes con su capacidad y condición.

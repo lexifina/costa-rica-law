@@ -1,2 +1,0 @@
-Artículo 26.—Son días hábiles para el trabajo todos los días del año, menos los feriados y aquellos que el Poder Ejecutivo declare de asueto, conforme al acuerdo correspondiente.
-Sin embargo, eventualmente podrá trabajarse en tales días, siempre y cuando ello fuere necesario, en observancia de lo dispuesto en el artículo 4° de la Ley General de la Administración Pública, en cuyo caso se compensarán en tiempo o con el salario que corresponda.

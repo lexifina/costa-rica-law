@@ -1,1 +1,0 @@
-Artículo 53.—El servidor a quien se le conceda licencia para estudios, estará obligado a presentar, semestralmente, ante el Jefe Departamental, una constancia del centro docente donde realiza sus estudios relativa a su asistencia y puntualidad.

@@ -1,1 +1,0 @@
-Artículo 62.—Todo acto de administración que implique el otorgamiento de derechos o la aplicación de sanciones, salvo lo específicamente dispuesto en este Reglamento, deberá hacerse constar en el formulario de estilo denominado "Acción de Personal" la cual deberá contar con visto bueno del Viceministro.
