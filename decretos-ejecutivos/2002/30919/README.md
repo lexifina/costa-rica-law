@@ -14,3 +14,4 @@ Establece límite del incremento para gasto total efectivo que realice cada mini
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-01 | la propia norma |
+| 2 | 2003-04-21 | Decreto Ejecutivo 31141 (2003-04-21) |
