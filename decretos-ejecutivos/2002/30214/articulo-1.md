@@ -48,7 +48,7 @@ Direc. Serv. de Protec. Fitosanitaria (Así modificado por decreto ejecutivo N°
 Direc. Salud y Produc. Pecuaria | 637,0
 Dirección Ejecutora de Proyectos PL | 480 247,3
 Dirección General Archivo Nacional (Así modificado por el artículo 1° del decreto ejecutivo N° 31134 de 21 de abril de 2003) | 537.42
-Dirección General Aviación Civil (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31292 de 15 de julio de 2003, publicado en La Gaceta N° 146 de 31 de julio de 2003.) | 6.609.7
+Dirección General Aviación Civil (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31292 de 15 de julio de 2003, publicado en La Gaceta N° 146 de 31 de julio de 2003.) (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31390 de 24 de setiembre de 2003, publicado en La Gaceta N° 196 de 13 de octubre de 2003.) | 7.567.7
 Editorial Costa Rica (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31315 de 21 de julio de 2003, publicado en La Gaceta N° 158 de 19 de agosto de 2003.) | 122,6
 Escuela Centroamericana de Ganadería | 514,6
 Estaciones Experimentales MAG (Así modificado por el artículo 1° del decreto ejecutivo N° 31128 de 3 de abril de 2003) | 173.0
