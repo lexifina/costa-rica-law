@@ -1,0 +1,1 @@
+Artículo 81.—Los/las funcionarias, con el visto bueno de la jefatura inmediata, podrán solicitar al Área de Recursos Humanos un adelanto de sus vacaciones que, en ningún caso podrá superar el número de días que proporcionalmente corresponda a los meses laborados.

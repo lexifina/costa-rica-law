@@ -1,0 +1,3 @@
+Artículo 139.—Contra el acto final que dicte la Presidencia Ejecutiva, la/el funcionaria/o posible responsable podrá establecer el recurso de reposición, conforme a las reglas establecidas en los artículos 31 y siguientes de la Ley Reguladora de la Jurisdicción Contencioso Administrativa.
+Contra el acto final que dicte el Área de Recursos Humanos, en los casos de su conocimiento, cabrán los recursos ordinarios de revocatoria y apelación ante la Presidencia Ejecutiva, de acuerdo con lo señalado en los artículos 342 y siguientes de la Ley General de la Administración Pública.
+Estos recursos deberán ser interpuestos ante el órgano que emitió el respectivo acto.

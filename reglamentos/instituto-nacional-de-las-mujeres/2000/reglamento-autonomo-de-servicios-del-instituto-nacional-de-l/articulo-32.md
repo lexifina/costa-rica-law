@@ -1,0 +1,4 @@
+CAPÍTULO V
+De las promociones, traslados y permutas
+Artículo 32.—Los/as funcionario/s del Instituto harán carrera administrativa en igualdad de condiciones y requisitos. Para cada plaza vacante deberá considerarse a los/as funcionario/as de la Institución, que por su capacidad, responsabilidad, nivel académico y cualesquiera otros predictores de selección resulten idóneos para el cargo, conforme los procedimientos establecidos en la normativa respectiva.
+Los ascensos a clases diferentes de la inmediata superior de la misma u otra serie deberán tramitarse mediante concurso interno de acuerdo a las regulaciones que se estipulen en este Reglamento para ese efecto, salvo aquellos casos en que de previo la Presidencia Ejecutiva solicite aplicar los procedimientos señalados para el concurso externo o el ascenso directo indicado en este Reglamento.

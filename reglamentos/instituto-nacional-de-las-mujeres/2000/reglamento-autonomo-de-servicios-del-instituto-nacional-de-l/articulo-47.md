@@ -1,0 +1,4 @@
+Artículo 47.—Además de las contempladas en el artículo anterior y en otras del presente reglamento, el Área de Recursos Humanos tendrá las siguientes obligaciones:
+1. Planear y coordinar las actividades desarrolladas en el ámbito de los recursos humanos mediante la aplicación de reglamentos, normativas, procedimientos e instrumentos propios de la administración de recursos humanos, de manera que contribuya al cumplimiento de los objetivos asignados al INSTITUTO y al fortalecimiento de su capacidad de gestión.
+2. Planear, organizar y dirigir los procesos en materia de selección de personal: divulgación, reclutamiento, elaboración de las bases de selección, evaluación de oferentes y recomendación de la nómina, con base en la cual resolverá en definitiva la Presidencia Ejecutiva.
+3. La Coordinadora/or debe garantizar la transparencia del proceso de selección de personal, en apego a los criterios técnicos y normativa legal vigente.

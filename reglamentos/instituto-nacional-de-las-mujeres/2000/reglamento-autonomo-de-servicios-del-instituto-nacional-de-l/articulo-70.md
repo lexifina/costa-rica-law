@@ -1,0 +1,1 @@
+Artículo 70.—En ningún caso las vacaciones psicoprofilácticas podrán ser acumuladas ni remuneradas. Se tendrá derecho al disfrute de esas vacaciones después de haber laborado en forma efectiva y continua la mitad del período de 52 semanas, aún cuando se traslade a otra oficina no contemplada en los supuestos de esta norma para ese mismo año calendario.

@@ -1,0 +1,1 @@
+Artículo 67.—El Instituto procurará brindar atención médica directa en forma regular a sus funcionario/as, mediante médico general de empresa y ginecóloga, en convenio con la Caja Costarricense de Seguro Social y otras instituciones.

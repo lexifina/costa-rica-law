@@ -1,0 +1,1 @@
+Artículo 26.—En caso de recargo de funciones, la/el funcionaria/o devengará el salario de conformidad con lo dispuesto en los artículos 41 y 42 del presente reglamento y de acuerdo con los lineamientos gubernamentales vigentes.

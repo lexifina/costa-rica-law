@@ -1,0 +1,1 @@
+Artículo 74.—A los/las funcionarias del INSTITUTO que hayan laborado en otras instituciones del Sector Público, Instituciones Intergubernamentales e internacionales, en forma interina o en propiedad se les reconocerán los años servidos en ellas para determinar el número de días de vacaciones a que tienen derecho.

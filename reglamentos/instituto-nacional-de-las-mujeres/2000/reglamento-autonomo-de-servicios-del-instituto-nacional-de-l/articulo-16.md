@@ -1,0 +1,1 @@
+Artículo 16.—La Jefatura inmediata dispondrá la distribución del personal a su cargo a fin de que durante esos descansos se mantenga la continuidad y la prestación del servicio. Asimismo, serán responsables de la forma en que su respectivo personal haga uso de sus descansos.

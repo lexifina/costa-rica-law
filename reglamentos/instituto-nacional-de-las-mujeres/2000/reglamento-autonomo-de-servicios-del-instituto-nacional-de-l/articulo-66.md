@@ -1,0 +1,1 @@
+Artículo 66.—A discreción de las jefaturas inmediatas y siempre que no se altere el buen servicio, se permitirá que sus funcionario/as realicen actividades conmemorativas en los días asignados a las diversas profesiones, así declarados oficialmente por los Colegios Profesionales respectivos.

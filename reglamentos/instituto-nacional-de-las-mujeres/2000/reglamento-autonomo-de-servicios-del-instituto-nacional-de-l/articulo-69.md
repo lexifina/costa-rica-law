@@ -1,0 +1,1 @@
+Artículo 69.—Las funcionarias/os cuyas labores estén vinculadas con la atención directa de personas afectadas por la violencia intrafamiliar incluyendo al personal de dirección del Área de Violencia de Género, tendrán derecho a cinco días hábiles de vacaciones psicoprofilácticas, que disfrutarán a la mitad del período de 52 semanas.

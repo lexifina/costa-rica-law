@@ -1,0 +1,1 @@
+Artículo 106.—Se considerará como llegada tardía la presentación al centro de trabajo después de diez minutos de la hora señalada para el comienzo de las labores. En casos muy calificados a juicio de la jefatura inmediata, se justificarán las llegadas tardías a efecto de no aplicar la sanción correspondiente.

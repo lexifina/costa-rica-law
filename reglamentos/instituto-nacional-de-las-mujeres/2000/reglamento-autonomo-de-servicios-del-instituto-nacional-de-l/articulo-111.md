@@ -1,0 +1,1 @@
+Artículo 111.—Todo/a funcionaria/o deberá comunicar en las primeras horas de la jornada, por el medio que considere más idóneo, a la jefatura inmediata, que durante esa jornada va a estar ausente de sus labores, sin que tal aviso signifique la justificación de su inasistencia.

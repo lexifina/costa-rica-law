@@ -1,0 +1,3 @@
+Artículo 101.—En todos los casos, el/la funcionaria/o deberá notificar a la jefatura inmediata lo antes posible, verbalmente o por escrito, las causas que le impidieren asistir a su trabajo.
+Este aviso debe darse en el transcurso del primer día de ausencia, salvo casos de fuerza mayor.
+Las ausencias al trabajo por enfermedad que excedan de cuatro días, deberá justificarlas la persona funcionaria incapacitada con certificación emitida por la Caja Costarricense del Seguro Social o el Instituto Nacional de Seguros. Si la enfermedad lo afectare solamente hasta por cuatro días, en un mismo mes calendario, podrá justificar dicha ausencia por el ente asegurador o, en su defecto, por el dictamen de un médico particular.

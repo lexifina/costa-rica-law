@@ -1,0 +1,1 @@
+Artículo 18.—La Presidencia Ejecutiva podrá modificar los horarios establecidos en este reglamento, siempre que circunstancias especiales así lo justifiquen, y no se perjudique el servicio público ni los derechos de las/los funcionarias/os.

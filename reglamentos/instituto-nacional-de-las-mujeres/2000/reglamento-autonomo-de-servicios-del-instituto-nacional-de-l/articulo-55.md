@@ -1,0 +1,1 @@
+Artículo 55.—La evaluación del desempeño anual servirá como reconocimiento a los buenos servidores, como estímulo para propiciar una mayor eficiencia y como factor que se debe considerar para ingreso y selección, capacitación, ascensos, aumentos de salario, concesión de permisos, y reducciones forzosas de personal.

@@ -1,0 +1,2 @@
+Artículo 72.—Los días de asueto serán libres para los/las funcionarias del INSTITUTO, cuando el acto que los declare como tales así lo establezca. Se tomarán como libres los días feriados reconocidos de esa forma por el Poder Ejecutivo. Se exceptúa del disfrute de estos días, aquellas personas funcionarias que por la naturaleza de sus funciones deban laborar, en cuyo caso tendrán derecho al pago de tiempo doble de acuerdo con la normativa vigente.
+Los feriados que coincidan con días sábados se acumularán en el monto total de vacaciones.

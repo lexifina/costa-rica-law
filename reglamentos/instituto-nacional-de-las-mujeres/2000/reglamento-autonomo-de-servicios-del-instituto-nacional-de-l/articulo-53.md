@@ -1,0 +1,2 @@
+Artículo 53.—Los y las funcionarias del INSTITUTO tendrán derecho a que se les brinde la capacitación que requieran, mediante cursos, pasantías, seminarios, becas y otros que se promuevan, cuando exista el contenido presupuestario para ello, para lo cual deberán hacerse del conocimiento de toda/os, en su oportunidad.
+El Área de Recursos Humanos del INSTITUTO elaborará el reglamento que contenga las disposiciones relativas a las becas y licencias para asistir a cursos de estudios y formación, en las instituciones educativas a nivel superior del país y fuera de él y otras.

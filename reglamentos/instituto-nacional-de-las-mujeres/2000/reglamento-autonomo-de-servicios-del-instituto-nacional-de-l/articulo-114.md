@@ -1,0 +1,1 @@
+Artículo 114.—Se considera abandono del trabajo el ausentarse del mismo sin causa justificada, dentro de la jornada laboral. Para estos efectos, no es necesario que el/la funcionario/a salga del lugar donde presta sus servicios, basta que en forma evidente abandone la labor que le ha sido encomendada.

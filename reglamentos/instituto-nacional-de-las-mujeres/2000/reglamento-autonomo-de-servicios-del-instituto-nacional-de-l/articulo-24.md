@@ -1,0 +1,1 @@
+Artículo 24.—Cada vez que haya una nueva fijación de salarios, la Área de Recursos Humanos, revisará los salarios básicos acordados por el Poder Ejecutivo, a fin de que ningún servidor devengue menos del salario que le corresponde según su categoría.

@@ -1,0 +1,1 @@
+Artículo 95.—No podrán concederse nuevas licencias argumentando motivos iguales o diferentes, hasta después de haber transcurrido por lo menos seis meses del reintegro de la persona funcionaria al trabajo, excepto casos muy calificados, a juicio de la Presidencia Ejecutiva, sin que se perjudiquen los fines de la Institución.

@@ -1,0 +1,1 @@
+Artículo 34.—En los casos en que se demuestre inopia, previo informe del Área de Recursos Humanos, la Presidencia Ejecutiva podrá autorizar mediante resolución la modalidad de nombramiento que se aplicará.

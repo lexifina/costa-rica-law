@@ -1,0 +1,1 @@
+Artículo 90.—No obstante lo estipulado en otros artículos de este capítulo, las licencias para estudios podrán ser denegadas libremente, sin responsabilidad para el INSTITUTO y sin que situaciones similares o sucedidas con anterioridad puedan considerarse como derechos adquiridos.

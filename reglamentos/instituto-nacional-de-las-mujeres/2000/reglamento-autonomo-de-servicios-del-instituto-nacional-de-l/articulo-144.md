@@ -1,0 +1,1 @@
+Artículo 144.—El/Las funcionaria/os, previa autorización de la Presidencia Ejecutiva y en el apoyo de el Área de Recursos Humanos, podrán promover actividades de formación humanística, intelectual, artística, deportiva y recreativa.

@@ -1,0 +1,1 @@
+Artículo 50.—De conformidad con lo dispuesto en la ley Nº 7501 del 25 de abril de 1995 (Ley sobre regulación del fumado), sin excepción se prohíbe a todos los/as funcionario/as el fumado dentro de las oficinas, pasillos, servicios sanitarios y otros no autorizados para tales efectos. El Instituto deberá indicar dicha prohibición por medio de rótulos en lugares visibles.

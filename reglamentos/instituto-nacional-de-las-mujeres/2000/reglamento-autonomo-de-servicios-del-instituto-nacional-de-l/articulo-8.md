@@ -1,0 +1,1 @@
+Artículo 8º—La modificación de las condiciones bajo las cuales se desarrolla la prestación de servicios se efectuará según resolución del Área de Recursos Humanos, siempre y cuando el o la funcionario/a haya recibido notificación conteniendo las modificaciones propuestas, y resguardando los principios del debido proceso, respetando los derechos de las/os funcionarias/os.

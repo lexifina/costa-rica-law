@@ -1,0 +1,1 @@
+Artículo 56.—Corresponderá al Area de Recursos Humanos elaborar el mecanismo de evaluación del desempeño y definir los factores que lo conforman, con la aprobación de la Presidenta Ejecutiva. Además le corresponderá preparar y distribuir en forma oportuna el material correspondiente.

@@ -1,0 +1,2 @@
+Artículo 129.—El órgano director de todo procedimiento sancionatorio, debidamente nombrado para el efecto, es el responsable de la instrucción del mismo. Deberá garantizar el impulso procesal de oficio y por ende incorporar al expediente toda la información y evidencia pertinente para asegurar la averiguación de la verdad de los hechos.
+Además deberá garantizar la confidencialidad de la investigación, con las excepciones que establezca la ley.

@@ -1,0 +1,1 @@
+Artículo 99.—Las licencias que se otorguen de conformidad con las disposiciones del presente capítulo, se regularán mediante un contrato firmado entre la Presidenta Ejecutiva y el o la funcionario/a, siguiendo los procedimientos administrativos que para este efecto establezca el Area de Recursos Humanos.

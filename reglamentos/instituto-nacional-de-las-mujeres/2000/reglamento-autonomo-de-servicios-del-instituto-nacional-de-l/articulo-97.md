@@ -1,0 +1,1 @@
+Artículo 97.—En caso de denegatoria del permiso o licencia, el o la funcionario/a tendrá el derecho de interponer los recursos de reposición ante la Presidencia Ejecutiva, en los términos de la Ley Reguladora de la Jurisdicción Contencioso Administrativa.

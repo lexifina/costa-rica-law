@@ -1,0 +1,1 @@
+Artículo 21.—El salario de las/os funcionario/as se cancelará los días trece y veintiocho de cada mes, o en su defecto, el día hábil anterior. En casos calificados a juicio de la Presidencia ejecutiva, el pago podrá hacerse en fecha anterior a la indicada. En caso de coincidir el día de pago con un día feriado, se efectuará el día hábil inmediato anterior.

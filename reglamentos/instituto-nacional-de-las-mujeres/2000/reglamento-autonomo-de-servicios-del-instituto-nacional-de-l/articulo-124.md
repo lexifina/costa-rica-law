@@ -1,0 +1,1 @@
+Artículo 124.—La Presidencia Ejecutiva deberá proceder al despido de un funcionario/a sin responsabilidad patronal, cuando se presente alguna de las causales establecidas en el artículo 81 del Código de Trabajo, o la conducta se encuentre tipificada como causal de despido en las normas legales aplicables al régimen de empleo público, y en este Reglamento.

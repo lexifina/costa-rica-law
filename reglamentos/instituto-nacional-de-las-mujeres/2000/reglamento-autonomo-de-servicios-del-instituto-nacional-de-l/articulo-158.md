@@ -1,0 +1,1 @@
+Artículo 158.—El INSTITUTO está en la obligación de informar sobre las denuncias de hostigamiento sexual que reciba en las diferentes dependencias que lo conforman, así como el resultado del procedimiento que se realice, a la Defensoría de los Habitantes, según lo define la Ley Nº 7476.

@@ -1,0 +1,1 @@
+Artículo 60.—Los/as funcionario/as profesionales del Instituto podrán acogerse al incentivo de Carrera Profesional, de conformidad con los términos del reglamento respectivo, vigente para las entidades públicas.

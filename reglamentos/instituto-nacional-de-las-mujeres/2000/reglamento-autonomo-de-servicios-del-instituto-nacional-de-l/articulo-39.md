@@ -1,0 +1,1 @@
+Artículo 39.—Si el número de candidatas/os que integran una nómina fuera menor de tres, por no haber más candidatas/os, queda a criterio de la Presidencia Ejecutiva acordar o no el ascenso. Si en tal caso no se efectúa la escogencia, se deberá realizar concurso externo.

@@ -1,0 +1,2 @@
+Artículo 138.—El procedimiento disciplinario deberá estar terminado en un plazo máximo de treinta días hábiles a partir de la recepción de la denuncia por parte de la funcionaria señalada en el artículo 127.
+Los plazos señalados anteriormente serán de acatamiento obligatorio y la inobservancia injustificada de los mismos será considerada falta grave de servicio. Sin embargo, se podrán ampliar cuando sea absolutamente necesario para garantizar la defensa y para una correcta sustanciación del procedimiento.

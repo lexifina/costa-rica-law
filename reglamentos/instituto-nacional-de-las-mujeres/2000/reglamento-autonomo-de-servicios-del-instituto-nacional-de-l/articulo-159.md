@@ -1,0 +1,1 @@
+Artículo 159.—Las sanciones que se deriven de la aplicación de la Ley de Hostigamiento Sexual, serán tramitadas por los procedimientos que este Reglamento establece para las demás sanciones y sólo será competente para ello la Presidencia Ejecutiva.

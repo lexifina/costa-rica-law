@@ -1,0 +1,1 @@
+Artículo 117.—Es reincidente el o la funcionario/a que incurre, en una falta dentro de los tres meses siguientes a la comisión de otra igual por la que fue sancionado, de conformidad con lo dispuesto en este reglamento.

@@ -1,0 +1,1 @@
+Artículo 105.—La entrada y salida del tiempo destinado al almuerzo quedará bajo la responsabilidad de la jefatura inmediata, quien establecerá los mecanismos con el fin de que no se menoscabe la prestación del servicio y ajustado a los horarios establecidos en este Reglamento.

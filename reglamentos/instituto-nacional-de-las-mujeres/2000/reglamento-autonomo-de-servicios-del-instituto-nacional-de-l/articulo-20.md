@@ -1,0 +1,3 @@
+CAPÍTULO III
+De las categorías y salarios
+Artículo 20.—Todo/a funcionario/a del Instituto recibirá su salario de acuerdo con lo consignado en la orden personal correspondiente a su nombramiento o las emitidas posteriormente que señalen modificaciones, salario éste que, por su relación con el artículo 25 de la Ley Nº 7801, nunca será inferior a lo que señala la Ley de Salarios de la Administración Pública (Nº 2166). Los sueldos se pagarán en dinero efectivo, por medio de cheques emitidos por el Instituto con cargo a una de sus cuentas bancarias, por medio de transferencia electrónica a las diferentes cuentas corrientes de los empleados, o por el medio técnico idóneo que garantice la recepción del mismo por las/os funcionarias/os.

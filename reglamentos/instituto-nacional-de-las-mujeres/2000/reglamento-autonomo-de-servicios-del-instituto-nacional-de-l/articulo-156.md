@@ -1,0 +1,1 @@
+Artículo 156.—El Área de Recursos Humanos, dentro de las acciones inmediatas, podrá recomendar de oficio o a solicitud del interesado la reubicación temporal en el instituto, de el o la funcionario/a denunciante o del denunciado. La Presidencia Ejecutiva definirá en última instancia.

@@ -1,0 +1,1 @@
+Artículo 154.—El procedimiento deberá ser llevado a cabo resguardando la imagen de las partes y la confidencialidad de los hechos, bajo pena de incurrir en falta grave las personas funcionarias que intervinieren.

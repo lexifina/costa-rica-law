@@ -1,0 +1,1 @@
+Artículo 86.—En todos los casos de licencia, con o sin goce de salario, la autorización y comprobantes respectivos, deberán ser remitidos a Recursos Humanos, por parte de la jefatura inmediata para su control, previo a su disfrute.

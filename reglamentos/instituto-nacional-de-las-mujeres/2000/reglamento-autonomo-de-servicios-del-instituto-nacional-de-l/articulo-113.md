@@ -1,0 +1,3 @@
+Artículo 113.—En todos los casos las/los funcionarias/os deberán notificar a la jefatura inmediata lo antes posible, verbalmente o por escrito, las causas que le impidieren asistir a su trabajo.
+Por ninguna razón -salvo la de fuerza mayor- deberá esperar hasta el segundo día de ausencia para notificarlo.
+Las ausencias al trabajo por enfermedad que excedan de cuatro días, deberá justificarlas la persona funcionaria incapacitado con certificado médico, constancia de la Caja Costarricense de Seguro Social o del Instituto Nacional de Seguros, dentro del mes en que se dio dicha incapacidad, partiendo para su cómputo de la fecha que se señala como primer día de tal incapacidad.

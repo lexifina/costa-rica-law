@@ -1,0 +1,1 @@
+Artículo 54.—Las/os funcionarias/os regulares tendrán derecho a ser evaluados en el desempeño de sus labores, en la forma, períodos y condiciones que establece el manual correspondiente. Dicha evaluación consistirá en una apreciación objetiva del rendimiento en cada uno de los factores que influyen en el desempeño general de sus servidores.

@@ -1,0 +1,1 @@
+Artículo 38.—Todo funcionario/a podrá ser trasladado internamente a un puesto de igual clase y categoría por resolución de la Presidenta Ejecutiva, sin demérito de sus derechos adquiridos, siempre que se aplique el debido proceso. Una vez comunicado el traslado, el funcionario/a tendrá tres días hábiles para ejercer los recursos de reposición.

@@ -1,0 +1,4 @@
+Artículo 135.—En los asuntos en que pueda proceder la sanción de despido o suspensión sin goce de salario, la citación para la realización de comparecencia oral y privada se realizará con al menos cinco días hábiles de anticipación a dicha comparecencia.
+En los asuntos en que pueda proceder la sanción de amonestación oral o escrita, la citación para la realización de comparecencia oral y privada se realizará con al menos tres días hábiles de anticipación a dicha comparecencia.
+Si razonablemente y para efectos de realización de una defensa eficaz por parte de la funcionaria, fuere necesario ampliar el plazo entre el acto de la citación y la realización de la comparecencia, este plazo no podrá exceder de diez días hábiles, salvo casos de fuerza mayor o caso fortuito debidamente demostrados.
+La ampliación del plazo para la realización de la comparecencia podrá ser hecha de oficio por el órgano director o a solicitud de parte.

@@ -1,0 +1,2 @@
+Artículo 131.—La Unidad de Asesoría Legal, será la encargada de dirigir todos los órganos directores de procedimiento disciplinario de la institución.
+Para este efecto la Presidencia Ejecutiva designará una funcionaria de profesión abogada, quien estará encargada de presidir todos los órganos directores de procedimiento disciplinario, así como nombrar a las funcionarias que estime conveniente para integrar eficazmente los diversos órganos de procedimiento.

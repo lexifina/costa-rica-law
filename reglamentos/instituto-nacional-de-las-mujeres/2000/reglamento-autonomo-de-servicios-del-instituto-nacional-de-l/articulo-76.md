@@ -1,0 +1,1 @@
+Artículo 76.—Solo se pagarán vacaciones cuando termina la relación de servicios de los/las funcionarias con el INSTITUTO y existan saldos pendientes de disfrutar. Se hará con base en el promedio de las remuneraciones ordinarias y extraordinarias devengadas por los/as funcionarias durante cincuenta semanas anteriores al momento en que se adquirió el derecho.

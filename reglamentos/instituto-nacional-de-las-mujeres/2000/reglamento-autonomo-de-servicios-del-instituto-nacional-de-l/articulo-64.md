@@ -1,0 +1,1 @@
+Artículo 64.—Las funcionarias/os del Instituto tendrán derecho a que se les reconozca los créditos sobre las investigaciones, proyectos, documentos, participaciones y toda otra creación que realice en el desempeño de sus labores, los que se consignarán en las mismas producciones.

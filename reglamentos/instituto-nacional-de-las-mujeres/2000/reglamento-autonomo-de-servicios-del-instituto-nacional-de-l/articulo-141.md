@@ -1,0 +1,4 @@
+Artículo 141.—Cuando se tratare de sanciones derivadas del control de asistencia, ya sea llegadas tardías o ausencia y cuando se trate de faltas de mera comprobación, no se aplicará el procedimiento anterior, sino que se aplicará el procedimiento siguiente:
+1. La jefatura inmediata le comunicará por escrito de la posible falta y de su sanción al Área de Recursos Humanos, quien lo comunicará a la/el funcionaria/o, para que aquella/aquel, en un plazo de dos días hábiles, la justifique por escrito;
+2. Si la justificación fuere razonable será aceptada y no se impondrá la sanción. En caso contrario y si la justificación hecha sea irrazonable, impertinente o extemporánea o bien esta no se presentare, el Área de Recursos Humanos impondrá la sanción que corresponda.
+Cuando se imponga sanción, cabrá recurso de apelación ante la Presidencia Ejecutiva, que en definitiva resolverá.

@@ -1,0 +1,1 @@
+Artículo 91.—En caso de que los/las funcionarias que disfrutan de una licencia de estudios por tiempo completo, en la forma regulada y reprobare una o más materias comprendidas en el contrato, deberá reintegrarle al Instituto los salarios percibidos durante el tiempo que se otorgó la licencia para estudios. El trámite al efecto lo realizará la Dirección Administrativa.

@@ -1,0 +1,1 @@
+Artículo 61.—Los y las funcionaria/os regulares o interina/os del Instituto, tendrán derecho a acogerse al régimen de dedicación exclusiva, cuando la naturaleza del puesto lo amerite, de conformidad con las condiciones y requisitos que establezca el reglamento, vigente para las entidades públicas.

@@ -1,0 +1,1 @@
+Artículo 161.—El INSTITUTO se reserva el derecho de adicionar o modificar en cualquier momento, las disposiciones de este reglamento, cumpliendo con lo dispuesto en el artículo 136, inciso 2) de la Ley General de la Administración Pública y sometiéndolo a la aprobación de la Autoridad Presupuestaria.

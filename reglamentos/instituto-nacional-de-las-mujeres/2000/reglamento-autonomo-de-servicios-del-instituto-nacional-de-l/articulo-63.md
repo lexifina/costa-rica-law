@@ -1,0 +1,1 @@
+Artículo 63.—El INSTITUTO deberá acondicionar un local adecuado como sala de fumado. La administración procurará que las/os funcionarias/os puedan disfrutar de una soda o comedor dentro o fuera del INSTITUTO con el propósito de que consuman sus alimentos.

@@ -1,0 +1,1 @@
+Artículo 121.—La reincidencia específica de las faltas dentro de los tres meses consecutivos a la fecha en que se cometieren, traerá como consecuencia la sanción inmediata superior a la que se aplicó anteriormente.

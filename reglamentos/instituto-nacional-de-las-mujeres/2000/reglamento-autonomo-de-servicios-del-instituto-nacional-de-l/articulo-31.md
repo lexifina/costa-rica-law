@@ -1,0 +1,3 @@
+Artículo 31.—Las/os funcionarias/os estarán protegidas/os por los principios constitucionales de estabilidad en el cargo y nombramiento con base en condiciones de idoneidad, consagrados en los artículos 191 y 192 de la Constitución Política.
+Asimismo, las/os funcionarias/os estarán protegidas/os por el resto de los principios que se apliquen a la materia de empleo, establecidos en la Constitución Política y desarrollados en otra normativa aplicable.
+Los/as funcionarios/as solo podrán ser removidos/as por las causales de despido justificado que exprese la legislación laboral o en el caso de reducción forzosa de servicios ya sea por falta de fondos o para conseguir una mejor organización de los mismos.

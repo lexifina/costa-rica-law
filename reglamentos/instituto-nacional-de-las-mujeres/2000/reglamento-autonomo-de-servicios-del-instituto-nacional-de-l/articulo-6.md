@@ -1,0 +1,1 @@
+Artículo 6º—Los/as Directores/as o Coordinadores/as de áreas y todas aquellas personas que tengan bajo su responsabilidad tareas de administración o de supervisión de personal, son responsables ante la Presidencia Ejecutiva de velar por la correcta aplicación de todas las disposiciones del presente reglamento.

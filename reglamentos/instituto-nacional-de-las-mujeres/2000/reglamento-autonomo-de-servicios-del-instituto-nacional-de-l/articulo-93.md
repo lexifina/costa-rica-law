@@ -1,0 +1,1 @@
+Artículo 93.—Se concederán permisos sin goce de salario hasta por dos años, prorrogables por períodos iguales, cuando se trate de funcionarios nombrados en cargo de elección en sindicatos debidamente reconocidos y que además, requieran dedicación exclusiva durante el tiempo de la jornada laboral; todo ello previo a la demostración y comprobación respectivas.

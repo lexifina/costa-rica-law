@@ -1,0 +1,1 @@
+Artículo 36.—La publicación de un concurso interno deberá considerar los requisitos. Se imprimirá en caracteres fácilmente legibles y se colocará en los sitios más visibles de todas las dependencias del Instituto, donde se mantendrá por un plazo no superior a diez días hábiles. En caso de concurso externo se publicará en algún medio de comunicación masiva.
