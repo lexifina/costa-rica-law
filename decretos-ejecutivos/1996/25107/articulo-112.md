@@ -1,0 +1,4 @@
+Artículo 112.- No se pagará el salario que corresponde a las
+ausencias injustificadas, conforme lo establecido en este
+Reglamento y la normativa vigente, sin perjuicio de la sanción
+disciplinaria correspondiente .

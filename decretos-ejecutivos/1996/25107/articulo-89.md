@@ -1,0 +1,5 @@
+Artículo 89.- El Consejo de Personal resolverá la petición y
+si ésta fuera favorable, comunicará al-Ministro para su aprobación
+y trámites correspondientes al menos con ocho días hábiles de
+anticipación a la fecha del disfrute del permiso. En caso contrario
+lo hará directamente al interesado dentro del mismo plazo.
