@@ -1,0 +1,2 @@
+Art. 2°-La oficina remitente marcará en el ángulo derecho superior de cada carta multada, la cantidad que deba cobrarse al destinatario, y el Administrador de correos del lugar de destino la franqueará en presencia del interesado, de acuerdo con lo prevenido en el artículo 1°.
+Dado en el Palacio Presidencial, en San José, á los diez y ocho días del mes de agosto de mil ocho- cientos ochenta y seis. -BERNARDO SOTO. El Secretario de Estado en el despacho de la Gobernación, -SANTIAGO DE LA GUARDIA.
