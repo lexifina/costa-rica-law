@@ -1,0 +1,1 @@
+Artículo 5°. —Por cada giro que no exceda de ciento colones se pagará un derecho de veinticinco céntimos y el valor de los telegramas. Por cada diez colones más ó fracción que no exceda de ese valor, se adicionará el derecho con diez céntimos.
