@@ -14,3 +14,4 @@ Reglamento al Estatuto del Servicio Exterior de la República.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-05 | la propia norma |
+| 2 | 2001-12-20 | Decreto Ejecutivo 30072 (2001-12-20) |
