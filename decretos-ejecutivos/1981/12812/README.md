@@ -15,3 +15,4 @@ Establece Caserío Indígena de Zapatón de Puriscal (Actualmente Reserva Indíg
 | --- | --- | --- |
 | 1 | 1981-08-10 | la propia norma |
 | 2 | 1982-04-30 | Decreto Ejecutivo 13569 (1982-04-30) |
+| 3 | 2001-03-21 | Decreto Ejecutivo 29453 (2001-03-21) |
