@@ -1,0 +1,1 @@
+Artículo 2°—Cada vez que se haga uso de las franquicias y concesiones de orden administrativo y económico que preveé esta declaratoria de utilidad pública, deberá la solicitud contar previamente con la aprobación del Ministerio de Hacienda. Además, deberá rendir el informe anual ante el Ministerio de Justicia y Gracia exigida por el Reglamento a la Ley de Asociaciones.
