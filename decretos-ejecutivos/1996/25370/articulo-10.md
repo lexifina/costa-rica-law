@@ -1,0 +1,2 @@
+Artículo 10.—Vigencia de la póliza como requisito para todo trámite
+En ningún caso las oficinas y dependencias administrativas del Ministerio de Obras Públicas y Transportes y del Registro Público de la Propiedad de Bienes Muebles extenderán documento alguno que acredite la revisión técnica de un vehículo automotor nuevo o usado, ni entregarán placas de circulación, si su propietario no comprueba que tiene vigente la póliza de seguro obligatorio o el derecho de circulación a que se refiere este Reglamento.

@@ -1,0 +1,2 @@
+Artículo 30.—Documentación que deben aportar los interesados
+Quienes presentaren las condiciones jurídicas para ser considerados como posibles beneficiados o causahabientes, deberán legitimar su condición de tales ante el Departamento de Seguro Obligatorio para Vehículos Automotores o las dependencias del Instituto Nacional de Seguros que éste determine, a cuyo efecto aportarán las pruebas y documentos necesarios, conforme lo previsto por el ordenamiento jurídico.

@@ -1,0 +1,4 @@
+Artículo 6°—Caso de depósito de placas
+5.1 Para los casos en que a tenor de las disposiciones previstas por los artículos 45 y 22 de la Ley de Tránsito por Vías Públicas Terrestres, No. 7331, se hubiere efectuado el depósito de las placas de circulación del vehículo ante la Dirección General de Transporte Público del Ministerio de Obras Públicas ‘y Transportes, se eximirá a los correspondientes vehículos del pago de las primas y recargos correspondientes al seguro obligatorio.
+5.2 Si no se hubiere efectuado el depósito de las placas, el propietario deberá pagar, como máximo, además del periodo vigente, las tres últimas anualidades inmediatamente anteriores de las primas, así como los recargos del seguro obligatorio.
+(NOTA: A pesar de que la numeración de los incisos no coinciden con el número de artículo, se han dejado tal y como se publicó en el Diario Oficial La Gaceta).

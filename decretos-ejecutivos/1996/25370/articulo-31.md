@@ -1,0 +1,2 @@
+Artículo 31.—Límite máximo de la indemnización
+La indemnización a que se refiere el artículo 26 del presente Reglamento, tendrá como límite máximo la suma de quinientos mil colones, en el entendido de que no se rebajará el costo de las prestaciones señaladas en los artículos 19 y 22, que la víctima o accidentado pudiera haber recibido por parte del Instituto Nacional de Seguros antes de fallecer, excepto el monto a que se refiere el numeral 22.2 de dicho Reglamento.
