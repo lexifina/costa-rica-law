@@ -1,1 +1,0 @@
-Artículo 127.-La ley demarcará las jurisdicciones, el número y la duración de los tribunales que deban establecerse en la República, sus atribuciones, los principios a que han de arreglar sus actos, y la manera de exigírseles la responsabilidad.

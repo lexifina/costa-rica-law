@@ -1,1 +1,0 @@
-Artículo 80.-Los Presidentes de las Cámaras prestarán el juramento constitucional ante las Cámaras a que pertenezcan, y los demás miembros de ellas en manos de los respectivos Presidentes de las mismas.

@@ -1,1 +1,0 @@
-Artículo 132.-Para los casos en que se agote el número de Conjueces natos, el Congreso elegirá, al tiempo de nombrar los Magistrados, seis Conjueces que tengan en lugar de la calidad cuarta, conocimientos en el derecho. Todos los conjueces prestarán el juramento de la ley ante la Corte Suprema de Justicia.

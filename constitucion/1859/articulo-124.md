@@ -1,1 +1,0 @@
-Artículo 124.-Los funcionarios que administren justicia no podrán ser suspendidos de sus destinos sin que preceda declaratoria de haber lugar a formación de causa, ni depuestos de ellos sino en virtud de sentencia ejecutoriada.

@@ -1,1 +1,0 @@
-Artículo 94.-Las Cámaras tienen el recíproco derecho de proponer las alteraciones y variaciones que estimen convenientes a los proyectos que se pasen de una a otra, hasta ponerse de acuerdo en los términos en que definitivamente han de quedar concebidos, para presentarlos a la sanción del Ejecutivo.

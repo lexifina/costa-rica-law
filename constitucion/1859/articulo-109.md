@@ -1,1 +1,0 @@
-Artículo 109.-El Presidente de la República no puede salir del territorio de Costa-Rica, mientras dure en su destino, ni antes de un año después de haber dejado el mando, a no ser con permiso del Congreso.
