@@ -1,0 +1,2 @@
+Artículo 17.—Requisitos del dictamen. El dictamen certificará la inspección física realizada al proveedor, detallando condiciones, como: el local, el equipo especializado, las herramientas empleadas, espacio físico para efectuar las reparaciones; entre otros. El dictamen deberá ser suscrito por el supervisor y el proveedor interesado, indicando la fecha en que se efectuó.
+Con vista en lo anterior, el supervisor recomendará a la Unidad de Trámite y Control, en que bienes y servicios deberá incluirse o las razones por las cuales se deniega su inscripción.

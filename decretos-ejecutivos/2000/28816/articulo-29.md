@@ -1,0 +1,1 @@
+Artículo 29.—Órgano competente. Los recursos deberán interponerse ante la Unidad de Trámite y Control, conociendo éste la revocatoria y el de apelación el Despacho del señor Ministro de Obras Públicas y Transportes, esto último según lo dispuesto en el artículo 29 de la Ley Nº 6324 del 24 de mayo de 1979 y sus reformas, denominada Ley de Administración Vial.

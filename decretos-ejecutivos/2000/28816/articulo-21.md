@@ -1,0 +1,1 @@
+Artículo 21.—Verificación posterior del proveedor. Sin perjuicio de lo establecido en el artículo 15 de éste Reglamento, todo proveedor está obligado a verificar su inclusión en el Registro dentro del plazo de diez días hábiles posteriores a la presentación de su solicitud o de los documentos que se requieran para mantener actualizada su inscripción año con año.

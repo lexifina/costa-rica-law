@@ -1,0 +1,1 @@
+Artículo 20.—Contratación de servicios. La contratación de servicios previstos en los cuatro artículos precedentes, podrá aplicarse en forma subsidiaria en el evento que la Institución haya acordado otro mecanismo para la atención de esos rubros. Lo anterior, únicamente y bajo resolución razonada que justifique esa determinación.

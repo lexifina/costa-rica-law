@@ -1,0 +1,1 @@
+Artículo 34.—Vigencia de los documentos legales. Los documentos legales presentados de acuerdo al anterior Reglamento, se considerarán vigentes por un lapso que reste por cumplir el plazo de la inscripción original.

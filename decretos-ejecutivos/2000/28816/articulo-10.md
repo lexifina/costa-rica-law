@@ -1,0 +1,1 @@
+Artículo 10.—Regionalización de proveedores. Sin menoscabo del principio de libre participación, la Administración estará facultada para agrupar los bienes y servicios ofrecidos por los proveedores, según las necesidades y requerimientos a cubrir dentro la actividad administrativa.
