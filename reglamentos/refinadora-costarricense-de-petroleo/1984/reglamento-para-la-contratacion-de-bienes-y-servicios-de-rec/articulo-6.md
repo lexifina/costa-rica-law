@@ -1,0 +1,1 @@
+Artículo 6°—Criterios de selección: Las contrataciones se efectuarán considerando calidad, buenos precios, el tiempo de entrega, garantías ofrecidas, créditos y otras condiciones que beneficien a RECOPE.

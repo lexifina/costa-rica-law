@@ -1,0 +1,1 @@
+Artículo 46.—Revocatoria: La revocatoria de una concesión en cualquier momento por razones de interés para RECOPE, no acarrea a la empresa responsabilidad alguna, salvo la obligación de devolver cualquier suma recibida como adelanto del tiempo acordado al contratista.
