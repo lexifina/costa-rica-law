@@ -1,0 +1,1 @@
+7°—La falta de cumplimiento por parte de los distribuidores importadores, de los requisitos establecidos en esta Resolución generará la no inclusión o exclusión según sea el caso, del Registro General de Distribuidores Importadores con las consecuencias a cargo del incumplidor.
