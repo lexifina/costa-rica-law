@@ -14,3 +14,4 @@ Reforma Comisión de Enlace entre las Instituciones de Educación Superior, los 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-07-11 | la propia norma |
+| 2 | 1986-07-01 | Decreto Ejecutivo 17095 (1986-07-01) |

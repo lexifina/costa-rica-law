@@ -9,9 +9,11 @@ Que, en calidad de invitada especial, la actual Ministra de Cultura, Juventud y 
 Por tanto,
 DECRETAN:
 Artículo 1º.- Modifícase el artículo 2º del Decreto Ejecutivo número 4437 de los veintitrés días del mes de diciembre de mil novecientos setenta y cuatro, para que en lo sucesivo se lea así:
-"Artículo 2º.- La Comisión de Enlace es uno de los organismos coordinadores de la educación universitaria, previsto en el "Convenio de Coordinación de la Educación Superior en Costa Rica", suscrito por la Universidad de Costa Rica, el Instituto Tecnológico de Costa Rica y la Universidad Nacional y al que se adhirió la Universidad Estatal a Distancia. La Comisión estará integrada por:
-a) Cada uno de los rectores del Consejo Nacional de Rectores.
+"Artículo 2º.- —La Comisión de Enlace es uno de los organismos coordinadores de la educación universitaria, previsto en el "Convenio de Coordinación de la Educación Superior en Costa Rica", suscrito por la Universidad de Costa Rica, el Instituto Tecnológico de Costa Rica y la Universidad Nacional y al que se adhirió la Universidad Estatal a Distancia.
+La Comisión estará integrada por:
+a) Cada uno de los rectore- del Consejo Nacional de Rectores.
 b) El Ministro de Educación Pública.
 c) El Ministro de Planificación Nacional y Política Económica.
 d) El Ministro de Hacienda.
-e) El Ministro de Cultura, Juventud y Deportes".
+e) El Director con rango de Ministro del Programa Nacional de Ciencia y Tecnología o quien ocupare las funciones de ese rango dentro del campo.
+(Así reformado mediante el artículo 1 del decreto ejecutivo N°17095 del 01 de julio de 1986).
