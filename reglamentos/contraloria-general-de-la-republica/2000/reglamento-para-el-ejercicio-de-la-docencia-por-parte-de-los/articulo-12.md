@@ -1,0 +1,1 @@
+Artículo 12.—Incumplimientos. Los funcionarios que incumplan los términos del presente Reglamento serán sancionados de acuerdo con las disposiciones contenidas en el régimen de sanciones del Estatuto Autónomo de Servicios de la Contraloría General.

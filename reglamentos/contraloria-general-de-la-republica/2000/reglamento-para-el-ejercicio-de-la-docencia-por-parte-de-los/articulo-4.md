@@ -1,0 +1,1 @@
+Artículo 4º—Tiempo permitido. En total, el tiempo permitido para el ejercicio de la docencia no sobrepasará un cuarto del tiempo de la jornada laboral de 40 horas semanales, es decir, un máximo de diez horas semanales.

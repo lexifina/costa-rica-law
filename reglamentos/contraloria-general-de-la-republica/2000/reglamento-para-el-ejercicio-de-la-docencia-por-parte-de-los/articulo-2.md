@@ -1,0 +1,3 @@
+Artículo 2º—Actividades de Capacitación:
+1. Toda participación de los servidores de la Contraloría General en cualquier tipo de actividades de capacitación, incluyendo seminarios o cursos cortos, deberá contar con el aval previo de la Gerencia de su División y con la autorización del Centro de Capacitación. Para ello, las invitaciones dirigidas a funcionarios de la Institución, deberán ser presentadas ante la Gerencia de la División, quien una vez otorgado su visto bueno, las enviará al Centro de Capacitación, que verificará que se trata de actividades de interés institucional, como medio de proyección del quehacer de la Contraloría General.
+2. Quedan a salvo las actividades promovidas por la propia Institución.

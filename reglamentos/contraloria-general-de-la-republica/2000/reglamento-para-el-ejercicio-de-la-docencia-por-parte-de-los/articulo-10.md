@@ -1,0 +1,1 @@
+Artículo 10.—Responsabilidad del superior jerárquico. Es responsabilidad del superior jerárquico de cada unidad velar por el cumplimiento de la normativa aquí expuesta, de modo que la productividad de los servidores no se afecte por el ejercicio de la docencia.

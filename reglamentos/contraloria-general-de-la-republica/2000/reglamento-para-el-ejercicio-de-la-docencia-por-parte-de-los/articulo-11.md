@@ -1,0 +1,1 @@
+Artículo 11.—Situaciones no previstas. Las situaciones no consideradas en este Reglamento serán dirimidas en primera instancia por el superior de la unidad correspondiente. Si persiste la diferencia de criterios, será resuelta en última instancia por el Contralor General.

@@ -1,0 +1,1 @@
+Artículo 7º—Prohibición de uso del tiempo y recursos institucionales. Al tenor de lo que dispone el Estatuto Autónomo de Servicios, se prohíbe el uso del tiempo laboral y de los recursos de la Institución, para dedicarlos al ejercicio de las labores docentes a que se refiere este Reglamento.

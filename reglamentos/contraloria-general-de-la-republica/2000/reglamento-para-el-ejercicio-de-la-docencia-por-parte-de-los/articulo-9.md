@@ -1,0 +1,1 @@
+Artículo 9º—Informe de carga académica. Los servidores que ejerzan la docencia deberán informar por escrito previamente a su superior jerárquico acerca de todos los detalles de la carga académica que pretenden asumir. Cualquier variación de la información consignada deberá reportarse oportunamente mediante este mismo procedimiento.
