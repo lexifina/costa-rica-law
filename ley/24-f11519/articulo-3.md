@@ -1,0 +1,1 @@
+Art. 3. La administración principal y el comisionado de la obra llevarán sus cuentas respectivas, del modo que en el citado decreto se previene. –Dado en la Ciudad de San José, á dieziseis de Setiembre de mil ochocientos cuarenta. –Braulio Carrillo. –Al Secretario general del Despacho.”
