@@ -16,3 +16,4 @@ Declara emergencia nacional la erradicación de tugurios y el otorgamiento a sus
 | 1 | 1986-11-10 | la propia norma |
 | 2 | 1988-02-08 | Decreto Ejecutivo 17975 (1988-02-08) |
 | 3 | 1988-02-25 | Decreto Ejecutivo 18022 (1988-02-25) |
+| 4 | 1991-04-26 | Decreto Ejecutivo 20398 (1991-04-26) |
