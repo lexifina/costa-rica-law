@@ -1,0 +1,1 @@
+Transitorio.—Aquellos lotes existentes, catastrados con anterioridad a la vigencia de este reglamento, que estén situados dentro de las áreas declaradas industriales y que carezcan del área y frente mínimo establecido para cada zona, se considerarán como casos especiales; la Dirección decidirá en cuanto a retiros, y cobertura para cada caso en particular.

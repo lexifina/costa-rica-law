@@ -1,0 +1,1 @@
+Artículo 13.—Para la aplicación del presente Reglamento, regirán los límites que se muestran en los mapas, que lo acompañan, los cuales quedan a disposición de los interesados en el Departamento de Urbanismo y las respectivas Municipalidades.

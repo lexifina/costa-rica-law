@@ -1,0 +1,1 @@
+Artículo 10.—Estacionamientos: Se exigirá un espacio de 3 x 6 m por cada 150 m2 de área construida, y un espacio para carga y descarga si el área construida sobrepasa los 200 m2 aumentándose un espacio por cada 500 m2 más de área construida.

@@ -1,0 +1,1 @@
+Artículo 14.—Para efectos de este reglamento se define como Gran Área Metropolitana los cantones y distritos que la conforman de acuerdo al Plan Regional Metropolitano G.A.M. publicado en "La Gaceta" N° 119 del 22 de junio de 1982.
