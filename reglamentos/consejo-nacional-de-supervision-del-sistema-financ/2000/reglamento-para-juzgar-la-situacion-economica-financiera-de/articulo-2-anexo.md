@@ -1,24 +1,15 @@
 ANEXO 2
 Detalle de los numeradores y denominadores de los indicadores de la calificación global incluida en el Acuerdo SUGEF 24
-INDICADOR
-NUMERADOR
-DENOMINADOR
-Compromiso patrimonial
-Pérdidas esperadas[1] en activos menos [2] estimaciones para activos:
-C(129.00) [3]+ C(139.00) + C(149.00) + C(159.00) + C(169.00) + C(252.00).
-Patrimonio compuesto por capital primario más capital secundario hasta una suma máxima que no exceda el capital primario.
-Capital primario: C(311) + C(312) + C(341)
-Capital Secundario:
-C(321) + C(322) + C(32302) + C(324) + C(330) + C(35102) + C (261) + (271) - C(352) - C(362)
-Cartera con atraso mayor a 90 días / Cartera directa
-D (20002)
-C(131) + C(132) + C(133) + C(134) + C(137)
-Pérdida esperada en cartera de créditos / Cartera total de créditos
-Pérdidas esperadas en cartera 1
-Cartera total de créditos tomada del informe de clasificación de cartera según categorías de riesgo
-Activo productivo de intermediación / Pasivo con costo
-C(130) + C(139) -C(138)-D 20002 + C(120.00) + C(129)-C(128)+C(160.00) +C(169) - C(167.01) - C(168.00)
-C(21101102) + C(21101202)+C(211.03) + C(21199) + C(213.00) + C(215.01) + C(218.01)+ C(221.00) - C(221.99) + C(222.00) + C(231.03) + C(231.04) + C(231.05) + C(231.06) + C (231.07) + C(232.01) + C(232.02) + C(232.03) + C(232.04) + C(232.05) + C(232.06) + C(232.07) + C(232.08) + C(232.09) + C(232.10) + C(232.11) + C(232.99)+ C(233.02) + C(233.03)+ C(233.01) + C(233.04) -
+Indicador Numerador Denominador
+Compromiso Pérdidas esperadas [1] [2] menos Capital base calculado patrimonial estimaciones para activos: con base en el acuerdo
+C(129.00)[3]+C(139.00)+ SUGEF 22-00
+C(149.00)+C(159.00)+C(169.00)
++C(252.00)
+1/ La nomenclatura D corresponde a Datos Adicionales.
+2/ Se adjunta criterio para determinar la pérdida esperada en activos.
+3/ La nomenclatura C corresponde al plan de cuentas. Corregir ponderación del indicador "Rentabilidad nominal s/ Patrimonio Promedio (RSP)" del componente "Evaluación de Activos" del Anexo 1:
+iv. Corregir ponderación del indicador "Rentabilidad nominal s/Patrimonio Promedio (RSP)" del componente "Evaluación de Activos" del Anexo 1:
+La ponderación correspondiente al indicador "Rentabilidad nominal s/ Patrimonio Promedio (RSP)" del componente "Evaluación de Activos" del Anexo 1, debe ser de 50%, y no 30% como quedó consignado en el acuerdo.
 D (20016) Créditos con garantía de vivienda propia que se encuentran ocupadas o serán ocupadas por el prestatario o su núcleo familiar."
 (Mediante sesión 258 de 16 de octubre del 2001, se modifica el detalle del código 20016)
 D (20017) Obligaciones por cartas de crédito emitidas sin costo financiero -
@@ -368,3 +359,4 @@ Préstamos a la Banca Estatal que cumplen con lo señalado en el artículo 59, i
 20040
 Préstamos garantizados con títulos emitidos por la misma entidad que cumplen la disposición 4 c) de las "Normas para Establecer la Suficiencia Patrimonial de la Entidades Fiscalizadas por la SUGEF
 (*): Para las Organizaciones Cooperativas de Ahorro y Crédito aplica el Acuerdo SUGEF 15-97 y para las Mutuales y Organizaciones Cooperativas autorizadas por el Sistema Financiero Nacional para la Vivienda aplica el Acuerdo SUGEF 16-97.
+(Así reformado el detalle del indicador de Compromiso patrimonial, mediante sesión N° 320 de 28 de agosto del 2002)
