@@ -1,0 +1,1 @@
+Artículo 15.-El Tribunal de Honor estará presidido por el Presidente del Colegio. El Fiscal de éste será el encargado de levantar la información al respecto, quien actuará de acuerdo con las facultades y obligaciones inherentes a su cargo.

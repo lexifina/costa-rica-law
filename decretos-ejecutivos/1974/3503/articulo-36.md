@@ -1,0 +1,1 @@
+Artículo 36.-El Tesorero del Colegio de Farmacéuticos llevará un libro de Registro en el que consignará el beneficiario o beneficiarios que instituyan los mutualistas, los que deberán hacerlo por escrito debiendo archivarse esas designaciones. Tanto los actuales como los nuevos miembros o mutualistas deben pagar, como cuota de ingreso, diez colones (¢10.00).

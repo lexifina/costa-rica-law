@@ -1,0 +1,1 @@
+Artículo 37.-tanto para inscribir como para cambiar el o los beneficiarios, el colegio debe dirigirse a la Junta Directiva, en papel sellado de un colón (¢1.00), debiéndose registrar los nombres y el número de papel con que pidió la inscripción. La firma del colegiado debe estar autenticada por el Fiscal del Colegio o por un Abogado.

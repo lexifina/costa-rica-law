@@ -1,0 +1,2 @@
+Artículo 4°-El texto del juramento a que se refiere el artículo 2° infine o juramento de incorporación, es el siguiente:
+“Juráis a Dios, y prometéis a la Patria y al Colegio de Farmacéuticos de Costa Rica, observar y defender la Constitución y las leyes de la República, y cumplir fielmente los deberes de vuestro destino?-Si Juro.- Si así lo hiciéreis, Dios os ayude y si no, El la Patria y el Colegio os lo demanden”.

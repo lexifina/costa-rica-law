@@ -1,0 +1,1 @@
+Artículo 11°.-La calidad de Miembro Honorario o Miembro Honoris Causa implica un reconocimiento o agradecimiento por parte del Colegio de Farmacéuticos, y la persona así nombrada no tendrá ninguna de las obligaciones ni de los derechos inherentes a los miembros colegiados.

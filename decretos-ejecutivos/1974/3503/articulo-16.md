@@ -1,0 +1,1 @@
+Artículo 16.-Entre los miembros del Tribunal se nombrará su Secretario, quien deberá redactar y suscribir las actas en donde consten todas las actuaciones y resoluciones del Tribunal, las cuales deberán ser refrendadas por el Presidente.

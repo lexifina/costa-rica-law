@@ -1,0 +1,1 @@
+Artículo 38.-Si por falta de beneficiarios instituidos, o herederos testamentarios o legítimos, no existiere persona alguna que debe recibir el auxilio antes dicho, la cuota total, o el saldo del caso, quedará a beneficio del propio fondo de Mutualidad y Subsidios.

@@ -1,0 +1,1 @@
+Artículo 19.-Con base en el informe del Tribunal de Honor, la Junta Directiva podrá imponer cualquiera de las penas a que se refiere el inciso 19) del artículo 19 de la Ley Orgánica del Colegio de Farmacéuticos, fallando por votación secreta en una sesión convocada para tal fin, dentro de un plazo no mayor de 15 días, después de haber recibido el informe del Tribunal.

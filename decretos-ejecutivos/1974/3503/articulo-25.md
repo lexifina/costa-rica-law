@@ -1,0 +1,3 @@
+Artículo 25.-Las reuniones de Asamblea serán previamente convoca das por medio de “La Gaceta”, durante dos días consecutivos, debiendo mediar tres días hábiles, por lo menos, entre la primera publicación y el día señalado, e insertar en el aviso el objeto de la convocatoria. Constituirán quórum nueve miembros del Colegio. Toda Asamblea debe verificarse, siempre que sea posible, en el edificio del Colegio.
+Además de las convocatorias por medio del Diario Oficial (“La Gaceta”), deberán publicarse aquellas por lo menos en otro periódico de reconocida buena circulación durante los días que la Junta Directiva considere oportunos y necesarios.
+En la convocatoria se debe incluir el orden del día para la Asamblea, y ésta sólo podrá conocer de los asuntos incluidos en ella.

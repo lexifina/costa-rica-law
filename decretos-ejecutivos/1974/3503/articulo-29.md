@@ -1,0 +1,1 @@
+Artículo 29.-La Junta Directiva podrá aumentar el capital de los fondos del Colegio, mediante la compra de bonos con pacto de retroventa y certificados de depósito del Estado y de sus Instituciones. La compra de otra clase de valores, también podrá hacer la Junta Directiva; pero en tal caso cada operación requerirá una autorización previa y específica de la Asamblea General.

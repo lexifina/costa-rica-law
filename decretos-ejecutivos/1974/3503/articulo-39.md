@@ -1,0 +1,1 @@
+Artículo 39.-estarán exentos temporalmente de contribuir para el Fondo de Mutualidad y Subsidios, conservando todos sus derechos, los miembros o mutualistas a quienes la Junta Directiva conceda ese beneficio en atención a dificultades económicas.

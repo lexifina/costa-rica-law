@@ -1,0 +1,1 @@
+Artículo 17.-El Tribunal actuará como juez sólo en los caso a él remitidos por la Junta Directiva, recibiendo y oyendo las pruebas que se ofrezcan, y recomendará, por mayoría de votos, a la Junta Directiva las medidas que el caso amerite.

@@ -1,0 +1,1 @@
+Artículo 20.-Antes de resolver el asunto y cuando la Junta Directiva estimare que es preciso aclarar cualquier punto o allegar nuevas pruebas, podrá resolver que se amplíe la investigación, para lo cual dará las instrucciones del caso al Tribunal. Este deberá comunicar a dicha Junta su resolución en un término no mayor de 15 días.

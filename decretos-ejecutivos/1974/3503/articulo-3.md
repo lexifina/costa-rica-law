@@ -1,0 +1,2 @@
+Artículo 3°-La Secretaría del Colegio llevará un libro para el registro de los farmacéuticos que se incorporan. Cada folio contendrá el número de orden, cualidades generales y nacionalidad del nuevo miembro colegiado y las fechas del título y de asiento. Cada folio será firmado también por el Presidente y el Secretario del Colegio.
+La Secretaría llevará además, un índice de los colegiados inscritos, con indicación del número, tomo y folio en que se halla la partida de inscripción de cada uno de ellos.

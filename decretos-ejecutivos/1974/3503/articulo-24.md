@@ -1,0 +1,1 @@
+Artículo 24.-Las Asambleas Generales Extraordinarias se convocarán cuando así lo disponga la Junta Directiva, cuando lo soliciten por escrito no menos de 9 miembros colegiados, y cuando proceda de conformidad con el artículo 34 de la Ley Orgánica.
