@@ -1,0 +1,1 @@
+Artículo 3°.- El producto de esta venta se destinará a la terminación del edificio para la Casa Municipal, a la reconstrucción de la antigua Casa Cabildo, y a la construcción de un local adecuado para Cárcel Pública.
