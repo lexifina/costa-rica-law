@@ -1,0 +1,1 @@
+Artículo 2.- Las leches maternizadas y sus sustitutos, sólo podrán expenderse en establecimientos farmacéuticos que estén debidamente registrados en el Departamento de Controles y Registros del Ministerio de Salud, quedando prohibida su venta en cualquier otro tipo de establecimientos.
