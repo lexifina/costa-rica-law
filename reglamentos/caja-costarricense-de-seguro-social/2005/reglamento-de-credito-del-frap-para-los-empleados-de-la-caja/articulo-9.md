@@ -1,0 +1,1 @@
+Artículo 9º—De los plazos y tope máximo: El plazo máximo para los préstamos hipotecarios para vivienda será de 25 años. Para tal efecto, periódicamente la Junta Administrativa definirá dicho tope máximo de crédito, de previo a las recomendaciones que al efecto brinde la Dirección Actuarial y de Planificación Económica.

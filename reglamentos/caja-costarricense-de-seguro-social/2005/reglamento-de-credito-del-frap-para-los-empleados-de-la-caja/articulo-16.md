@@ -1,0 +1,1 @@
+Artículo 16.—Del desembolso: El monto del préstamo concedido se realizará conforme con el avance de la obra. Solamente se hará el giro total del préstamo en el acto de la firma de la escritura respectiva, cuando se trate de compra o cancelación de gravámenes hipotecarios que pesen sobre la propiedad ofrecida en garantía.

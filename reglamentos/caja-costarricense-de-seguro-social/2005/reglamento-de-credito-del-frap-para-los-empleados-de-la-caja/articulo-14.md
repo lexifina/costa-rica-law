@@ -1,0 +1,1 @@
+Artículo 14.—Del procedimiento para el funcionamiento de la Comisión de Crédito: La Junta Administrativa del FRAP regulará mediante instructivo, los respectivos procedimientos para el funcionamiento de la Comisión de Crédito.

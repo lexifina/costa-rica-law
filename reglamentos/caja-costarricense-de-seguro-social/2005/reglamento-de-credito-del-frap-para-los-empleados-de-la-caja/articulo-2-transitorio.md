@@ -1,0 +1,1 @@
+Transitorio II.—Una vez aprobado este Reglamento, la Dirección Ejecutiva del FRAP deberá presentar ante la Junta Administrativa el presupuesto de operación para el primer año de concesión de créditos.

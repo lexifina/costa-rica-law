@@ -1,0 +1,1 @@
+Artículo 6º—De los préstamos fiduciarios: El crédito fiduciario corriente, para compra de vehículo y de computadora, son préstamos a los que pueden acceder todos los empleados de la Caja nombrados en propiedad o con al menos un año de antigüedad si el nombramiento es interino.

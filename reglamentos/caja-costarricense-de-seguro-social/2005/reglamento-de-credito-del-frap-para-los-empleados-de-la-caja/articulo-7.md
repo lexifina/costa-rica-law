@@ -1,0 +1,1 @@
+Artículo 7º—De las tasas de interés: Los préstamos devengarán la tasa de interés acordada por la Junta Administrativa, las cuales revisará periódicamente, para ajustarlas en relación con las tasas de mercado, tomando en consideración las recomendaciones que al efecto brinde la Dirección Actuarial y de Planificación Económica.

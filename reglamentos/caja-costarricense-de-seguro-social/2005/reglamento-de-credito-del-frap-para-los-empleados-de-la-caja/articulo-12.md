@@ -1,0 +1,1 @@
+Artículo 12.—De la Comisión de Crédito: Para dar asesoría a la Junta Administrativa del FRAP, en cuanto al otorgamiento de créditos hipotecarios, se contará con el apoyo del Comité de Inversiones del FRE; constituyéndose además en la Comisión de Crédito para estos efectos.

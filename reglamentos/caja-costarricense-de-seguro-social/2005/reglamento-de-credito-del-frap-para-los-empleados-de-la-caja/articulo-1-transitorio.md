@@ -1,0 +1,1 @@
+Transitorio I.—La Dirección Ejecutiva del FRAP deberá elaborar los procedimientos necesarios para el otorgamiento de las distintas líneas de crédito, contemplados en este reglamento. El instructivo con los respectivos procedimientos, deberá ser presentado a la Junta Administrativa del FRAP.

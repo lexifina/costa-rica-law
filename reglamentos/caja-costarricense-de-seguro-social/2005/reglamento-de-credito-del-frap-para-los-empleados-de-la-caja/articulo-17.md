@@ -1,0 +1,4 @@
+Artículo 17.—De las responsabilidades notariales: Para el control de la formalización de los créditos el notario designado está obligado a presentar a la Dirección Ejecutiva del FRAP:
+a) Dentro de los cinco días hábiles posteriores a la firma, una copia de la escritura y una copia de la boleta de presentación al Diario del Registro Público.
+b) En los meses de enero, abril, julio y octubre de cada año un informe de las escrituras que inscribió durante el trimestre anterior y un detalle amplio de las gestiones realizadas con las escrituras pendientes de inscribir.
+La omisión del informe trimestral, la demora injustificada en la presentación de la copia de escritura o en su inscripción, así como cualquier otro aspecto que incumpla con la normativa de control establecida por la Caja, facultará a la Dirección Ejecutiva del FRAP para suspender la entrega de casos al notario.

@@ -1,0 +1,2 @@
+Artículo 11.—De las pólizas: La Dirección Ejecutiva del FRAP exigirá durante todo el plazo de la deuda por préstamos hipotecarios, la suscripción con el Instituto Nacional de Seguros, de una póliza colectiva de incendio y otra de vida sobre saldos deudores. El pago total de las primas respectivas será asumido por el prestatario.
+La falta de suscripción de las pólizas o del pago normal de las primas será motivo para tener por vencida la obligación y la hará exigible en su totalidad.
