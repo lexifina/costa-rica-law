@@ -1,0 +1,17 @@
+ARTÍCULO VI
+DESEMBOLSOS Y CERTIFICADOS DE APROVECHAMIENTO
+DE LOS FONDOS PRESTADOS; PAGARÉS
+DESEMBOLSOS Y CERTIFICADOS DE APROVECHAMIENTO
+DE FONDOS PRESTADOS
+6.01 Cada Préstamo que ha de ser desembolsado será desembolsado directamente por el PRESTAMISTA al Proveedor respectivo a la cuenta y a nombre del PRESTATARIO, basado en el Contrato pertinente y de acuerdo con el Itinerario de Desembolsos según lo declarado en la Oferta de Financiamiento.
+6.02 Cada Préstamo será desembolsado por el PRESTAMISTA contra un Pagaré correspondiente que refleje los detalles reales del Préstamo respectivo. Cada Pagaré estará en la forma del Anexo F y debidamente completo y firmado por el PRESTATARIO, según lo estipulado en la cláusula 6.05 del presente.
+6.03 El PRESTATARIO deberá, a más tardar, cinco (5) Días Bancarios antes de la respectiva Fecha de Desembolso, presentar al PRESTAMISTA a través del Agente un Certificado de Aprovechamiento de los Fondos Prestados en la forma de Anexo E y debidamente firmado y completado por el PRESTATARIO, según lo estipulado en la cláusula 6.05 del presente.
+6.04 El PRESTATARIO entregará al Agente la cantidad requerida de Pagarés y Certificados de Aprovechamiento de los Fondos Prestados para los propósitos del financiamiento del Precio del Contrato al amparo de un Contrato, junto con la autorización del Agente dentro de los veinte (20) Días Bancarios posteriores a la fecha de la aprobación final del respectivo Contrato por parte de la Contraloría General de la República en Costa Rica, pero en ningún evento más allá de quince (15) días Comerciales después de la Fecha de Desembolso del primer Préstamo al amparo del Crédito para la financiación de ese Acuerdo.
+6.05 El PRESTATARIO autorizará al Agente para que:
+(i) inserte en cada pagaré la Fecha de Desembolso respectiva y el respectivo monto del Préstamo, así como los montos de los pagos del reembolso;
+(ii) complete cada Certificado de Aprovechamiento de los Fondos Prestados con detalles específicos;
+(iii) libere, después de verificar los documentos especificados en el respectivo Contrato, el respectivo Pagaré y Certificado de Aprovechamiento de los Fondos Prestados al PRESTAMISTA cinco (5) Días Bancarios antes de la Fecha del respectivo Desembolso, a más tardar.
+PAGARÉS
+6.06 El PRESTATARIO está de acuerdo que como muestra adicional de su obligación de repagar todos los Préstamos desembolsados al amparo de la Línea de Crédito, él habrá de emitir a y a nombre del PRESTAMISTA y entregar al PRESTAMISTA a través del Agente, los Pagarés, en la forma del Anexo F según lo estipulado en el presente, para cada Préstamo. La fecha de cada pagaré será la respectiva Fecha de Desembolso.
+6.07 Cuando se haya ejecutado, cada Pagaré constituirá una obligación incondicional y irrevocable del PRESTATARIO como el responsable directo del pago de los montos establecidos en dicho Pagaré de acuerdo con los términos de dicho Pagaré y el PRESTATARIO no tendrá el derecho de retener cualquiera o todos esos pagos o para compensar cualquiera o todos esos pagos basándose en el hecho de que el PRESTATARIO tiene cualquier reclamo, derecho de acción, título o demanda contra el PRESTAMISTA, el Comprador, cualquier Proveedor, el Garante, Finnvera, el Agente o cualquier otra parte.
+6.08 El PRESTATARIO por este medio renuncia a la demanda, la diligencia, presentación, protesta, y notificación de protesta con respecto a los Pagarés.

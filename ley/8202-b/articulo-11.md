@@ -1,0 +1,7 @@
+ARTÍCULO XI
+GARANTÍA Y SEGURO DE CRÉDITO
+11.01 El Garante emitirá y entregará al PRESTAMISTA una Garantía, en la forma del Anexo G, garantizando todas las obligaciones de pago del PRESTATARIO al amparo del presente.
+11.02 El PRESTATARIO se compromete a hacer los arreglos para la Garantía.
+11.03 La Garantía estará en total vigencia y efecto hasta que la Línea de Crédito se haya repagado y todo otro monto al amparo del presente Acuerdo sea pagado por completo al PRESTAMISTA.
+11.04 Adicionalmente, las obligaciones de pago del PRESTATARIO hacia el PRESTAMISTA al amparo del presente Acuerdo se cubrirán por el Seguro de Crédito de acuerdo con el contrato separado de seguro de crédito entre el PRESTAMISTA y Finnvera.
+11.05 Las obligaciones del PRESTATARIO al amparo del presente Acuerdo y del Garante al amparo de la Garantía no serán afectadas de forma alguna por el Seguro de Crédito. El Seguro de Crédito sólo será invocado en caso de que ni el PRESTATARIO ni el Garante cumplan con todas o cualquiera de sus obligaciones al amparo del presente Acuerdo y de la Garantía. Finnvera tendrá el pleno derecho de presentar recurso en contra del PRESTATARIO y del Garante en caso de que pagos al PRESTAMISTA en cumplimiento del Seguro de Crédito. Los derechos de recurso de Finnvera no serán afectados de manera alguna por ninguna disputa, demanda o contra-reclamo entre el PRESTATARIO, el PRESTAMISTA, el Comprador, cualquier Proveedor, el Garante y/o Finnvera o cualquier otra disputa.
