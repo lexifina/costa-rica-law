@@ -14,3 +14,4 @@ Establece Comisión Asesora Nacional de los Incentivos Fiscales al Desarrollo In
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1969-10-22 | la propia norma |
+| 2 | 1969-12-01 | Decreto Ejecutivo 54 (1969-12-01) |

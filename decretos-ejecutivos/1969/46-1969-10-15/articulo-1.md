@@ -10,3 +10,5 @@ Artículo 1°-Establecer la Comisión Asesora Nacional la cual se integrará de 
 4) Un delegado del Ministerio de Agricultura y Ganadería;
 5) Un delegado del Sistema Bancario Nacional; y
 6) Un delegado de la Cámara de Industrias de Costa Rica.
+(*)Un delegado de la Cámara de Comercio de Costa Rica.
+(*)(Así adicionado mediante el artículo 1° del decreto ejecutivo N° 54 del 01 de diciembre de 1969).
