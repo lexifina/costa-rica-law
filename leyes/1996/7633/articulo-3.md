@@ -1,12 +1,3 @@
 ARTICULO 3.- Cierre de negocios
-Los expendios de bebidas alcohólicas deberán permanecer cerrados los
-Jueves y Viernes Santos, el día de las elecciones convocadas por el
-Tribunal Supremo de Elecciones, el día anterior y el siguiente. Asimismo,
-tendrán que cerrar en las poblaciones donde el Tribunal autorice, de
-conformidad con la ley, reuniones o mitines.
-No obstante la disposición anterior, los negocios que expendan
-bebidas alcohólicas, sin que esa sea su actividad principal, podrán
-permanecer abiertos en las fechas antes indicadas, siempre y cuando
-cierren la sección dedicada a venderlas. Las autoridades correspondientes
-obligarán a cumplir con lo dispuesto en este artículo mediante el sistema
-que consideren más eficaz.
+Los expendios de bebidas alcohólicas deberán permanecer cerrados los Jueves y Viernes Santos, el día de las elecciones convocadas por el Tribunal Supremo de Elecciones, el día anterior y el siguiente. Asimismo, tendrán que cerrar en las poblaciones donde el Tribunal autorice, de conformidad con la ley, reuniones o mitines.
+No obstante la disposición anterior, los negocios que expendan bebidas alcohólicas, sin que esa sea su actividad principal, podrán permanecer abiertos en las fechas antes indicadas, siempre y cuando cierren la sección dedicada a venderlas. Las autoridades correspondientes obligarán a cumplir con lo dispuesto en este artículo mediante el sistema que consideren más eficaz.

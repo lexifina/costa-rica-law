@@ -1,6 +1,6 @@
 # Regula Horario Funcionamiento Expendios Bebidas Alcohólicas: Licores, reforma Código Electoral y deroga artículos de la Ley sobre venta de licores
 
-Ley N° 7633 del 1996-09-26. SINALEVI, ficha 42514: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=42514&param2=44816&param3=1>.
+Ley N° 7633 del 1996-09-26. SINALEVI, ficha 42514: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=42514&param2=44817&param3=1>.
 
 Publicada en La Gaceta N° 201 del 1996-10-21.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 6 | 1997-04-21 | Ley 7633 | 1996-09-26 |
+| 2 de 6 | 1997-04-21 | SINALEVI | 1996-09-26 |
