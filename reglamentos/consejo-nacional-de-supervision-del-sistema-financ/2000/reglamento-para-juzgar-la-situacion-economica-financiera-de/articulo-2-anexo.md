@@ -44,9 +44,9 @@ Calce de plazos a tres meses ajustado por la volatilidad de cuentas corrientes y
 (Se adjunta detalle de forma de cálculo)
 Acumulado recuperación de activos moneda nacional más moneda extranjera a tres meses plazo, más inversiones en títulos valores del sector público no comprometidas y que le restan para el vencimiento un plazo mayor a tres meses
 Acumulado vencimiento de pasivos hasta tres meses ajustado por la volatilidad de cuentas corrientes y ahorros con el público a la vista
-Riesgo cambiario (Se adjunta detalle de método de cálculo)
-Valor absoluto de: activos en moneda extranjera menos pasivos en moneda extranjera, multiplicado por la variación máxima esperada en el tipo de cambio en un año
-Capital primario más capital secundario hasta una suma que no exceda el capital primario.
+Indicador | Numerador | Denominador
+Riesgo cambiario (Se adjunta detalle de método de cálculo). | Valor absoluto de: activos en moneda extranjera menos pasivos en moneda extranjera, multiplicado por la variación máxima esperada en el tipo de cambio en un año. | Capital Base.*
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión N° 393-2003, celebrada el 16 de setiembre de 2003, publicada en La Gaceta N° 191 de 06 de octubre de 2003.)
 Riesgo de tasas de interés (Se adjunta detalle de método de cálculo)
 Valor absoluto de [Duración de activos sensibles a tasas menos (duración de pasivos sensibles a tasas * Pasivos sensibles a tasas / activos sensibles a tasas) ] / (1 + tasa básica pasiva) * Cambio máximo esperado en un año en la tasa básica pasiva
 20041 Estimaciones genéricas, hasta el 1.25% de los activos ponderados por riesgo de la entidad.
