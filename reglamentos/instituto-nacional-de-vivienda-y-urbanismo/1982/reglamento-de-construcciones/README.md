@@ -21,3 +21,4 @@ Reglamento de Construcciones
 | 6 | 1991-06-12 | Reglamento 4142 (1991-06-12) |
 | 7 | 1991-06-12 | Reglamento 4230 (1992-07-30) |
 | 8 | 1993-03-04 | Reglamento 4290 (1993-03-04) |
+| 9 | 1995-02-22 | Reglamento 4486 (1995-02-22) |
