@@ -1,0 +1,1 @@
+Artículo 30.-Será penada con multa en cualquiera de sus grados la mujer pública que se aproveche de menores como proxenetas o simples criados. Caso de que el menor fuere mujer, la pena se aumentará en un grado.

@@ -1,0 +1,1 @@
+Artículo 44.-En las escuelas industriales y reformatorios, el trabajo debe ser proporcionado a las fuerzas físicas y mentales de los alumnos; debe además tomarse en cuenta sus aptitudes, gustos e inclinaciones. No será permitido en estos establecimientos el trabajo los domingos y días feriados.

@@ -1,0 +1,1 @@
+Artículo 33.-Es prohibida la entrada y asistencia de menores de dos años a templos, teatros, cinematógrafos, etc., donde no puedan ser alojados debidamente en locales especiales, y a aquellos lugares donde haya aglomeración de personas.

@@ -1,0 +1,1 @@
+Artículo 41.-Prohíbese el trabajo de menores de doce años, salvo en el caso contemplado en el inciso 3º del artículo 40, y de un tiempo mayor de siete horas diarias y de cuarenta y dos semanales a los mayores de 15 años y menores de 18.

@@ -1,0 +1,1 @@
+Artículo 29.-Será castigado con la pena que establece la fracción décima del artículo 383 del Código Penal, la persona mayor de edad que, valiéndose de la ignorancia de un menor, trate de conseguir de éste, por medio de engaños, una prenda u objeto por un precio más bajo de su valor real.

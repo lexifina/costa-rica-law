@@ -1,0 +1,1 @@
+Artículo 34.-En los templos, teatros, cinematógrafos, donde no se cuente con los locales a que se refiere el artículo anterior, deberá darse a conocer al público por medio de avisos que se fijarán en las entradas, pasillos y demás lugres visibles, la prohibición señalada en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 6º.-La mujer a quien se le haya concedido licencia, de acuerdo con las disposiciones del artículo anterior, tendrá derecho al cincuenta por ciento de su salario y a volver a su puesto, una vez desaparecidas las circunstancias que la obligaron a abandonarlo.

@@ -1,0 +1,1 @@
+Artículo 12.-La mujer que desee prestar servicios como nodriza los solicitará a la Junta, ante la cual probará que su hijo ha cumplido siete meses, que está sano y que soporta bien la lactancia artificial.
