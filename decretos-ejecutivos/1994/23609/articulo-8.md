@@ -1,0 +1,1 @@
+Artículo 8°- El Ministerio de Hacienda en el próximo presupuesto extraordinario trasladará a CORBANA, en carácter de transferencia, el producto de lo recaudado de acuerdo con lo dispuesto en el artículo 1º del Decreto Ejecutivo Nº 23.211 MAG-H del 28 de abril de 1994.
