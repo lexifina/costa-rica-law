@@ -1,0 +1,1 @@
+Artículo 3° Estas disposiciones serán aplicables tanto a las empresas que realizan operaciones aéreas en el país, como aquellas otras que no lo efectúan por no encontrarse Costa Rica comprendida dentro de sus rutas regulares, pero que tienen agencia establecida o representante comercial en la República para la venta de boletos de transporte de pasajeros o carga.

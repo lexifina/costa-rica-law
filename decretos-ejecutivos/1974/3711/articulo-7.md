@@ -1,0 +1,1 @@
+Artículo 7° El Consejo Técnico de Aviación Civil ordenará la publicación en el Diario Oficial de un aviso a fin de que los interesados puedan presentar sus objeciones por escrito dentro del plazo que al efecto señale, el cual no podrá exceder de quince días. En dicha publicación, se señalará lugar, día y hora para la celebración de una audiencia pública.

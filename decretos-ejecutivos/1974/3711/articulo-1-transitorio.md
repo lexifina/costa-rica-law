@@ -1,0 +1,1 @@
+Artículo Transitorio: Las empresas que estén ejerciendo la actividad que se regula por el presente Reglamento deberán gestionar su autorización e inscripción en el Registro Aeronáutico Administrativo cumpliendo con todos los requisitos señalados, dentro de los noventa días siguientes al inicio de la vigencia de este decreto:

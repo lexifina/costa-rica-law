@@ -1,0 +1,1 @@
+Articulo 4° El permiso otorgado por le Consejo Técnico de Aviación Civil se refiere únicamente a la autorización para la venta de boletos aéreos, por que no incluye las autorizaciones o disposiciones necesarias que se tengan que cumplir por otras leyes y reglamentos existentes.
