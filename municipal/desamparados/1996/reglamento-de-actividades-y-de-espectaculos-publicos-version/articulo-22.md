@@ -1,0 +1,1 @@
+Artículo 22.-En los lugares donde haya buzones recolectores deberá indicarse en lugar visible de la boletería, el precio de la entrada. cuando se haya autorizado la conmutación del impuesto, se deberá colocar en un lugar visible el recibo de pago de la misma y el respectivo acuerdo municipal. .

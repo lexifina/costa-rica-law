@@ -1,0 +1,3 @@
+CAPITULO IV
+De la declaración jurada
+Artículo 16.-Para los efectos del cobro fijados en el artículo cuatro del presente reglamento, se establece que los solicitantes deberán firmar una declaración jurada con la anticipación a la realización de la actividad o espectáculo a esta Municipalidad, indicando una estimación aproximada sobre el futuro ingreso bruto, debiendo depositar en las arcas municipales el 60% (sesenta por ciento) del posible impuesto a recaudar, según la respectiva declaración jurada. Esta deberá ser liquidada a la conclusión de la actividades o espectáculos públicos y estará sujeta a revisión previa del inspector y la Sección de Patentes y Espectáculos Públicos.

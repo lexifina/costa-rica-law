@@ -1,0 +1,1 @@
+Artículo 25.-Semanalmente los inspectores de actividades y espectáculos públicos, trasladarán a la Sección de Patentes y Espectáculos Públicos los boletos-timbre recolectados, asimismo los organizadores o los dueños de establecimientos deben permitir y colaborar con la labor de estos funcionarios municipales en el cumplimiento de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 21.-La responsabilidad sobre el o los buzones recolectores le compete al dueño del establecimiento o al responsable de la actividad ante la Municipalidad, independientemente se trate de daños ocasionados por terceros.

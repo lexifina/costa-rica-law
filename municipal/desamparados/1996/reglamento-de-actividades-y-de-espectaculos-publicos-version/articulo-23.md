@@ -1,0 +1,1 @@
+Artículo 23.-Los boletos- timbres que se entreguen al cliente para hacer ingreso al establecimiento, deberán depositarse en el buzón recolector por el empleado o persona a cargo. Estos boletos-timbre deberán tener numeración en ambos extremos y ser cortados por la mitad, entregándose al cliente una de ellas y la otra se depositará en el buzón.

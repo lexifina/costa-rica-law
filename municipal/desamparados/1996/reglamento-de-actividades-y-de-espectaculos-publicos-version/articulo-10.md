@@ -1,0 +1,10 @@
+Artículo 10.-EI valor de la conmutación lo fijará el Departamento de Patentes y Espectáculos Públicos, este anualmente elaborará una tabla de cálculo, relacionada con el monto de ingresos estimados de la actividad asignando una suma que se fija de acuerdo con los siguientes montos:
+a) ¢1,000.00 (mil colones)
+b) ¢1,500.00 (mil quinientos colones)
+c) ¢2,000.00 (dos mil colones)
+d) ¢2,500,00 (dos mil quinientos colones)
+e) ¢3,000.00 ( tres mil colones)
+f) ¢3,500.00 ( tres mil quinientos colones)
+g) ¢4,000.00 ( cuatro mil colones)
+h) ¢4,500.00 ( cuatro mil quinientos colones)
+i) ¢5,000.00 ( cinco mil colones)

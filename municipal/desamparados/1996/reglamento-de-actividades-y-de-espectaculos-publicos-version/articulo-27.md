@@ -1,0 +1,1 @@
+Artículo 27.-Los funcionarios del municipio responsables de la efectiva recaudación del impuesto, coordinarán con la Gobernación de la Provincia, Guardia de Asistencia Rural y Guardia Civil a fin de obtener la colaboración de estos en la aplicación de este reglamento.

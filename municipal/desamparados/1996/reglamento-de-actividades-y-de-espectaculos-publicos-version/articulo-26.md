@@ -1,0 +1,1 @@
+Artículo 26.-Los inspectores de actividades y espectáculos públicos contarán con una identificación extendida y firmada por el señor Ejecutivo Municipal, la cual llevará impreso el sello de la Municipalidad, como también la firma del Delegado Cantonal de la Guardia de Asistencia Rural y Guardia Civil, a fin de obtener la colaboración de estos en la aplicación de este Reglamento.

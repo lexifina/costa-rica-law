@@ -1,0 +1,1 @@
+Artículo 34.-La Gobernación de la Provincia facilitará a la Sección de Patentes y Espectáculos Públicos, Guardia de Asistencia Rural y Guardia Civil, un informe de los permisos concedidos conforme lo indicado en el artículo anterior donde se detallará: día, hora y valor de la entrada.

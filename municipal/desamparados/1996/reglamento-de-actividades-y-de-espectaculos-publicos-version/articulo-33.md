@@ -1,0 +1,1 @@
+Artículo 33.-La Gobernación de la Provincia, otorgará el permiso previo a celebración de bailes o actividades que de acuerdo al artículo 1 de la Ley 6844, requieran los interesados, excepto aquellas actividades que por ley corresponde conceder el permiso a la Municipalidad.
