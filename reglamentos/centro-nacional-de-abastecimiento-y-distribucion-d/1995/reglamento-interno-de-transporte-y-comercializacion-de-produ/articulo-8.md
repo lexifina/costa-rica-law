@@ -1,0 +1,1 @@
+Artículo 8: Es obligación del vendedor durante el proceso de comercialización, mantener en excelentes condiciones de limpieza el local y una vez finalizado el período de plaza, el vendedor no debe dejar residuos del producto pesquero dispersos en los alrededores del área asignada.

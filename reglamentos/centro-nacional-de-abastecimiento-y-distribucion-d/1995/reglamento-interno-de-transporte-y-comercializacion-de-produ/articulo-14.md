@@ -1,0 +1,1 @@
+Artículo 14: Los usuarios que incumplan las disposiciones del presente reglamento, serán sancionados como se establece en el Reglamento de Operación CENADA y el Reglamento sobre Manejo de Desechos en el CENADA, según corresponda.

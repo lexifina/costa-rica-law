@@ -1,0 +1,1 @@
+Artículo 4: Para poder ingresar a las instalaciones del CENADA, el "contenedor" no deberá presentar fugas y la llave del desagüe debe estar cerrada, so pena de impedírsele el ingreso al mercado por parte de los inspectores.

@@ -1,0 +1,1 @@
+Artículo 10: La utilización de publicidad dentro del mercado deberá contar con el permiso previo de la Administración de CENADA. Queda prohibido el empleo de cualquier tipo de publicidad en áreas consideradas de uso común (por ejemplo, aceras y vías de circulación).

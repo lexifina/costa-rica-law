@@ -1,0 +1,1 @@
+Artículo 9: Es obligación del usuario brindar la información solicitada por los inspectores del PIMA y/o INCOPESCA, para efectos de registros de comerciantes, de procedencias, volúmenes y precios de los distintos productos comercializados en CENADA. Así también permitir las debidas inspecciones que le competen al INCOPESA.

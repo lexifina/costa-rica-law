@@ -1,0 +1,1 @@
+Artículo 11: Se prohíbe el lavado de los recipientes y equipo de comercialización dentro de las instalaciones del CENADA, salvo en el caso de que el comercializador se convierta en usuario del CENADA, en las condiciones en que lo especifica el artículo 10, inciso a) del Reglamento de Operación
