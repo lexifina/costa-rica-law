@@ -1,0 +1,1 @@
+Art° 10 Gozarán por ahora el sueldo de cincuenta pesos mésales cada uno de los tres claveros, el de veinte y cinco el oficial mayor y el de doce cada uno de los escribientes, y el oficial tendrá á demas opción á las vacantes de Ministro.
