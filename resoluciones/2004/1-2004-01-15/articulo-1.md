@@ -1,0 +1,19 @@
+PRESIDENCIA DE LA REPÚBLICA
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº 001-SC.—San José, 15 de enero del 2004
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-496-2003, se adiciona a la Resolución DG-310-2003, artículo 2º en el aparte correspondiente a la Dirección General de Tributación la Clase de Puesto Profesional en Informática, Tributaria 2.
+DG-499-2003, se modifica su homóloga la DG-135-2000 mediante la cual se aprobó el Manual Institucional de Clases del Ministerio de Relaciones Exteriores y Culto, en cuanto a excluir el cargo de Encargado de Pasaportes de la Clase Técnico Especializado de Procesos Grupo A, del Manual Institucional de Relaciones Exteriores, incluir los cargos "Encargado de Pasaporte" en la clase Profesional Administrativo 2, "Profesional Analista de Comunicación e Información" en la clase Profesional Administrativo 4 como se detalla en la resolución y la carrera de Ciencias Políticas, como atinencia académica, para el cargo Profesional Analista de Comunicación e Información de la clase Profesional Administrativo 4.
+DG-001-2004, se modifica la Resolución DG-321-2003 revalorando en tres punto cinco por ciento (3.5%) la Escala de Sueldos de la Administración Pública, ajustando las categorías, niveles salariales y aumentos anuales según el detalle de la misma resolución.
+DG-002-2004, se modifica su homóloga la DG-32-2003, incrementando el valor del punto por concepto de Carrera Profesional, de manera que alcance la suma de un mil treinta y seis colones (¢1.036,00).
+DG-003-2004, se modifica la Resolución DG-323-2003 incrementando el monto de los sobresueldos por concepto de:
+"Riesgo, Seguridad y Vigilancia" y "Riesgo Penitenciario" que se pagan en la Dirección General de Adaptación Social del Ministerio de Justicia y Gracia, para que alcance la suma de diecinueve mil tres colones (¢19.003,00).
+DG-004-2004, se modifica su homóloga la DG-435-2003, revalorando las clases de los puestos profesionales amparados por las disposiciones de la Ley Nº 6836, "Ley de Incentivos a los Profesionales en Ciencias Médicas".
+DG-005-2004, se modifica la Resolución DG-324-2003, revalorando las clases de enfermería.
+DG-006-2004, se modifica el artículo 1º de la Resolución DG-008-2001, de manera que incluya la carrera de Ingeniería en Informática con énfasis en Redes y Sistemas Telemáticos, del Manual de Clases Anchas del Régimen de Servicio Civil.
+DG-007-2004, se modifica el artículo 1º de su homóloga la DG-048-2001, relacionado con la Serie de Informática del Manual de Clases Anchas del Régimen de Servicio Civil.
+DG-008-2004, se incluye la Unidad de la Secretaría Técnica en el Manual de Atinencias del Instituto Nacional de Aprendizaje, con la estructura ocupacional propuesta, a excepción de las clases de Técnico de Apoyo 1 y Técnico de Apoyo 2.
+DG-009-2004, se incluye el cargo de Técnico en Bibliotecología y Documentación, elimina el cargo de Técnico en Archivo de la clase Técnico y crea el cargo de Profesional en Bibliotecología en la clase Profesional de Apoyo, del Consejo Nacional de Concesiones.
+DG-010-2004, se modifica la Resolución DG-056-97 correspondiente al Manual de Atinencias de Instrucción del Instituto Nacional de Aprendizaje, de manera que incluya la carrera de Bachillerato y Licenciatura en Mercadeo como atinencia académica de las clases formador para el Trabajo 1 y Formador para el Trabajo 4 del Área de Gestión Compartida.
+DG-011-2004, se deroga la Resolución DG-172-93 del 10 de agosto de 1993, mediante la cual se concedía la suma de ¢7.000,00 como sobresueldo por concepto de Riesgo Policial, a los servidores de la Policía de Tránsito, exceptuando a aquellos que realicen labores administrativas.
+DG-012-2004, se corrige un error material consignado en la Resolución DG-441-2003, enumerando correctamente los tres artículos que en la misma se incluyen.
