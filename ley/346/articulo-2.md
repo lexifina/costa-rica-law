@@ -1,0 +1,1 @@
+Artículo 2°-La Junta de Protección de las Razas Aborígenes tienen personería. jurídica. Su representación estará a cargo del Presidente. Si alguno de los miembros es profesional en Derecho, éste podrá ser investido por la Junta de la representación legal para comparecer ante los tribunales judiciales.
