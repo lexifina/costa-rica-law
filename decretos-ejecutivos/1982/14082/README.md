@@ -49,3 +49,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 34 | 1997-11-21 | Decreto Ejecutivo 26601 (1997-11-21) |
 | 35 | 1999-04-20 | SINALEVI (sin norma nombrada) |
 | 36 | 1999-08-24 | Decreto Ejecutivo 28096 (1999-08-24) |
+| 37 | 2000-01-24 | Decreto Ejecutivo 28426 (2000-01-24) |
