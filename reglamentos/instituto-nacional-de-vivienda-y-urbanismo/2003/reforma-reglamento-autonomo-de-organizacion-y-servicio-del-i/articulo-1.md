@@ -1,0 +1,12 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+La Junta Directiva del Instituto Nacional de Vivienda y Urbanismo en sesión ordinaria Nº 5251, artículo III, inc. 1), celebrada el día 5 de febrero del año en curso, acuerda: aprobar la propuesta de reforma al Reglamento Autónomo de Organización y Servicio del Instituto Nacional de Vivienda y Urbanismo, la que textualmente dice:
+"Artículo 1º—Adicionar a los artículos 10, 12 y 20 del Reglamento Autónomo de Organización y Servicio del Instituto Nacional de Vivienda, y Urbanismo (Publicado en La Gaceta Nº 36 de 21 de febrero del 2000), un nuevo inciso a uno que dispondrán lo siguiente:
+"Artículo 10.—Además de lo dispuesto en la Ley General, de la Administración Pública, en el artículo 71 del Código de Trabajo, y otras disposiciones de este reglamento, son obligaciones de los servidores:
+bb. Observar el fiel cumplimiento de todos los principios y disposiciones contempladas en la Ley Sobre Igualdad de Oportunidades para las Personas con Discapacidad, N° 7600, de 29 de mayo de 1996 y su reglamento."
+"Artículo 12.—Además de lo dispuesto en los artículos 72 del Código de Trabajo, y en otras normas de este Reglamento, queda absolutamente prohibido a todo servidor:
+bb. Propiciar o ejecutar cualquier tipo de acción o disposición que, directa o indirectamente promueva la discriminación o impida a las personas con discapacidad tener acceso a los programas y servicios de esta Institución."
+"Artículo 20.—Los servidores tienen derecho a:
+4) Tener igualdad de oportunidades en el ámbito laboral, académico, social y cultural que ofrezca éste Instituto, aun en razón de la discapacidad de sus servidores.
+5) Reinstalación laboral. Si por motivo de fuerza mayor o cualquier riesgo del trabajo; un servidor resulta con alguna discapacidad; que afecte su idoneidad en el desempeño de su puesto, tiene el derecho a ser reubicado, trasladado o reasignado en descenso, con su consecuente indemnización dentro de la estructura organizativa de la Institución.
+En caso de que exista imposibilidad total de llevar a cabo lo anterior, se procederá con el pago de prestaciones, todo , ello tomando en cuenta las disposiciones de la Ley de Riesgos del Trabajo en lo que sea competente.
+Artículo 100 bis.—En lo que se refiere a procedimientos y sanciones por incumplimiento de la Ley Nº 7600; se aplicará lo dispuesto en la misma, en el Título IV, Capítulo único. Artículos 62 al 67 según corresponda.
