@@ -1,0 +1,1 @@
+Artículo 33.—En lo posible, el sistema de tratamiento deberá considerar los elementos de paisaje adecuados, que sean compatibles con las áreas adyacentes, y que contribuya a la preservación de la vida silvestre, de las áreas recreativas y de la salud pública en general.

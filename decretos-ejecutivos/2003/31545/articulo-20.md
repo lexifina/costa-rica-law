@@ -1,0 +1,1 @@
+Artículo 20.—La ubicación de un sistema de tratamiento de aguas residuales en áreas inundables o en otros sitios de alto riesgo, deberá contar con la autorización de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencia y la aprobación de la Dirección de Protección al Ambiente Humano del Ministerio de Salud.
