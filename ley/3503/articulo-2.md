@@ -1,21 +1,28 @@
 CAPITULO II
 Facultades de los Organismos Públicos
-Artículo 2º.- Es de la competencia del Ministerio de Transportes todo lo
-relativo al tránsito y al transporte automotor de personas en el país; el
-Ministerio podrá tomar a su cargo la prestación de ese servicio público en
-forma directa o a través de otras instituciones del Estado, o bien
-conceder derechos para explotarlo a empresarios particulares.
-El Ministerio de Transportes ejercerá, en todo caso, la vigilancia,
-control y regulación de esa actividad, con el objeto de garantizar los
-intereses del público.
+Artículo 2.- Es competencia del Ministerio de Transportes lo
+relativo al tránsito y transporte automotor de personas en el país. Este
+Ministerio podrá tomar a su cargo la prestación de estos servicios
+públicos ya sea en forma directa o mediante otras instituciones del
+Estado, o bien conceder derechos a empresarios particulares para
+explotarlos.
+El Ministerio de Obras Públicas y Transportes ejercerá la
+vigilancia, el control y la regulación del tránsito y del transporte
+automotor de personas. El control de los servicios de transporte público
+concesionados o autorizados, se ejercerá conjuntamente con la Autoridad
+Reguladora de los Servicios Públicos, para garantizar la aplicación
+correcta de los servicios y el pleno cumplimiento de las disposiciones
+contractuales correspondientes.
 A fin de cumplir con esta obligación, el Ministerio podrá:
-a) Fijar itinerarios, horarios, condiciones y tarifas;
-b) Expedir los reglamentos que juzgue pertinentes sobre el tránsito y el
-transporte en el territorio de la República; y
-c) Adoptar las medidas que sean del caso para que se satisfagan en forma
-eficiente las necesidades del tránsito de vehículos y las del transporte
-de personas.
-Para atender esas funciones existirá en el Ministerio de Transportes
-una Dirección General de Transporte Automotor, de la cual dependerá la
-Inspección del Tránsito y los demás departamentos y secciones que sean
-necesarios.
+a) Fijar itinerarios, horarios, condiciones y tarifas.
+b) Expedir los reglamentos que juzgue pertinentes sobre tránsito y
+transporte en el territorio costarricense.
+c) Adoptar las medidas para que se satisfagan, en forma eficiente,
+las necesidades del tránsito de vehículos y del transporte de
+personas.
+d) Realizar los estudios técnicos indispensables para la mayor
+eficiencia, continuidad y seguridad de los servicios públicos.
+Para atender estas funciones, en el Ministerio de Obras Públicas
+y Transportes existirán los órganos internos necesarios.
+( Así reformado por el artículo 64 de la Ley Nº 7593 de 9 de agosto
+de 1996).

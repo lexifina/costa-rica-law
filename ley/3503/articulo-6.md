@@ -1,6 +1,6 @@
 CAPITULO V
 Adjudicación de las Concesiones
-Artículo 6º.- Cuando haya varias ofertas sobre la misma línea, se
+Artículo 6.- Cuando haya varias ofertas sobre la misma línea, se
 adjudicará la licitación a la persona que, además de ofrecer cumplir con
 todos los requisitos contenidos en el cartel, demuestre en forma más
 efectiva su capacidad para cumplir las obligaciones que se derivan del

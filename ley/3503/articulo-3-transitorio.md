@@ -1,1 +1,1 @@
-Texto de artículo no encontrado
+Transitorio III.- Los empresarios que a la fecha de vigencia de esta ley estuvieren explotando el servicio de Transporte Remunerado de Personas, en vehículos automotores, podrán seguirlo haciendo mientras se les otorga la concesión o el permiso correspondientes, siempre que hagan la solicitud respectiva en el plazo a que se refieren los dos artículos anteriores.

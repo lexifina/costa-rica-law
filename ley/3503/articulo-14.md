@@ -1,4 +1,5 @@
-Artículo 14.- Las concesiones sólo podrán traspasarse previa
-autorización contenida en un Acuerdo del Ministerio de Transportes. Son
-inembargables, salvo cuando hayan sido dadas en garantía de un traspaso
-autorizado por el Ministerio.
+Artículo 14.—Las concesiones que otorga esta ley son inembargables y, en principio, intransferible total o parcialmente; sin embargo, este derecho podrá cederse previa autorización del Ministerio de Obras públicas y Transportes, siempre y cuando el cesionario cumpla los requisitos para optar a la concesión. El órgano competente verificará el cumplimiento de estos requisitos.
+Asimismo, podrán transferirse los derechos concedidos por muerte del concesionario, siempre que exista, ante la vía que corresponda, demostración fehaciente de que el órgano competente aprueba o considera a los herederos o representantes legales capaces de prestar el servicio eficaz y económicamente.
+De comprobarse que estas previsiones han sido incumplidas o se trata de alguna forma directa o indirecta de actuar, el órgano competente deberá caducar los derechos concesionados.
+El órgano competente podrá autorizar a la empresa operadora del servicio su agrupamiento bajo esquema de consorcios operativos o el de fusión de empresas o corporaciones de transportes, con el propósito de salvaguardar los intereses de los usuarios y mayor ordenamiento técnico del servicio, cuando por razones de interés público la operación del servicio lo requiera.
+( Así reformado por el artículo 1º de la ley No. 5523 de 7 de mayo de 1974, y posteriormente reformado por Ley N° 7964 del 21 de diciembre de 1999).

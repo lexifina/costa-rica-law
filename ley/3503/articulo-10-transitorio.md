@@ -1,1 +1,1 @@
-Texto de artículo no encontrado
+Transitorio X.- Entre tanto se dicta el reglamento de esta ley, el Ministerio de Transportes queda facultado para fijar, por acuerdos, las mismas normas de aplicación de los preceptos contenidos en ella.

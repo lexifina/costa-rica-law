@@ -1,1 +1,3 @@
-Texto de artículo no encontrado
+Transitorio IX.- Dentro de un plazo de dos meses a partir de la fecha de promulgación de la presente ley, la Dirección de Transporte Automotor deberá fijar tarifas provisionales a cada línea en servicio, con base en los estudios sobre costos de operación que al efecto realice en colaboración con la Dirección General de Economía.
+Dichas tarifas estarán en vigencia mientras no se otorguen las nuevas concesiones, en las cuales se establecerán las tarifas definitivas.
+Si del estudio de costos que se realice, se desprende que alguna línea no da para cubrir costos, el Estado deberá asumir la diferencia en el costo, a partir del 1º de octubre de 1964 y hasta la fecha en que entre en vigencia la tarifa provisional a que se refiere este transitorio, compensando al empresario por medio de exenciones de impuestos.
