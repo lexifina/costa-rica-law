@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Exoneraciones a la Actividad Pesquera Fundame
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-04-03 | la propia norma |
+| 2 | 1992-11-13 | SINALEVI (sin norma nombrada) |
