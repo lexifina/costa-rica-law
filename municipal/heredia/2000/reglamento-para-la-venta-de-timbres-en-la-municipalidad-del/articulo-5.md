@@ -1,0 +1,2 @@
+Artículo 5°—Los timbres serán adquiridos en el Banco que corresponda por el Señor Tesorero Municipal o por la persona que este designe, al Tesorero le corresponderá llevar el inventario de timbres.
+(Por omitirse el artículo anterior en la publicación hecha en La Gaceta N ° 197 del 13 de octubre del 2000, se extrajo el texto del mismo del proyecto publicado en La Gaceta N ° 107 del 5 de junio del 2000.)

@@ -1,0 +1,1 @@
+Articulo 2°— La Municipalidad del Cantón Central de Heredia, brindara el servicio de venta de timbres necesarios para las certificaciones de registro que se emiten dentro de la Municipalidad , con las siguientes denominaciones: Registro Nacional, Forense, Archivo y Fiscal.
