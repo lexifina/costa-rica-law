@@ -19,6 +19,10 @@ Reglas generales de operación
 Sección 02.1. Aplicabilidad
 a) Excepto por lo previsto en el párrafo b) de esta Sección, este reglamento describe las reglas que gobiernan la operación de aeronaves (sin incluir: globos estacionarios, cometas, cohetes no tripulados y globos libres sin tripulación y vehículos ultralivianos motorizados y no motorizados) dentro de Costa Rica.
 b) Toda persona que opere una aeronave en el espacio aéreo costarricense o sobre aguas territoriales, debe cumplir con las Secciones 02.1 hasta 02.2, 02.101 hasta 02.143, 02.151 hasta 02.159, 02.167 hasta 02.193, 02.203 hasta 02.205, 02.209 hasta 02.217, 02.221, 02.303 hasta 02.319, 02.323m, 02.605, 02.609, 02.703 hasta 02.715 y 02.903.
+Sección 2.2.-
+a) La Dirección General de Aviación Civil a solicitud de parte interesada con las justificaciones respectivas, determinará por vía de excepción, cuáles normas o disposiciones de este Reglamento, no son aptas para ser aplicadas a, o cumplidas por, los operadores, atendiendo a características particulares, naturaleza del servicio, tamaño del operador y a las características particulares, diseño, limitaciones, peso, tamaño, o uso de las aeronaves u otros activos a ser utilizados en las operaciones o servicios autorizados. La carencia o deficiencia de infraestructura y/o servicios de aeronáutica, podrán también servir de fundamento para solicitar y hacer excepciones siempre y cuando no pongan en riesgo la seguridad operacional. Las excepciones que se otorguen serán de acuerdo a la naturaleza de lo solicitado y en ningún caso, se podrá exceptuar o desviar de aspectos relacionados a los Certificados de Tipo, de Tipo Suplementario, o que afecten la aeronavegabilidad, ni procedimientos operacionales normalizados en los manuales de vuelo por la industria aeronáutica.
+b) Las excepciones autorizadas se consignarán en el Manual de Operaciones y Especificaciones de Operación de cada operador, o en el Manual de Procedimientos respectivo del concesionario de un certificado operativo.
+(Así adicionado mediante Decreto Ejecutivo N° 29574 de 8 de enero de 2001).
 Sección 02.3. Responsabilidad y autoridad del piloto al mando
 a) El piloto al mando es la máxima autoridad de la operación de una aeronave:
 Es responsable por ella, y como representante del operador, de la seguridad a bordo de sus tripulantes, pasajeros y carga, ya sea en tierra como en el aire.
@@ -176,7 +180,8 @@ Sección 02.123. Cumplimiento con autorizaciones e instrucciones ATC
 a) Cuando una autorización ATC haya sido recibida, ningún piloto al mando podrá desviarse de esta autorización, excepto que el piloto obtenga una nueva, exista una emergencia o la desviación obedezca a un aviso de resolución del sistema de alerta de tráfico y evasión de colisión. Sin embargo, excepto en el espacio aéreo clase A, el piloto puede cancelar un plan de vuelo IFR, si la operación está siendo conducida en condiciones meteorológicas de tiempo VFR.
 Cuando un Piloto esté inseguro de una autorización de ATC, debe inmediatamente solicitar una aclaración del ATC.
 b) Excepto en una emergencia, ninguna persona puede operar una aeronave en contra de una instrucción del ATC, en una área en la que se ejerza control de tránsito aéreo.
-c) Cada piloto al mando, en una emergencia o en respuesta a un aviso de resolución del sistema de alerta de tráfico y evasión de colisión se desvíe de una autorización o instrucción del ATC, deberá comunicarla a dicha dependencia lo mas pronto posible.
+c) Cada piloto al mando, en una emergencia o en respuesta a un aviso de resolución del sistema de alerta de tráfico y evasión de colisión que se desvíe de una autorización o instrucción del ATC, una vez concluida la maniobra de evasión deberá informar por radio a dicha dependencia.
+(Así reformado mediante Decreto Ejecutivo N° 29574 de 8 de enero de 2001).
 d) Cada Piloto al mando (no desviándose de una regulación de este capítulo) a quien el ATC le de prioridad en una emergencia, presentará un reporte detallado de dicha emergencia dentro de las próximas 48 horas a la jefatura de los servicios de control de tránsito aéreo.
 Salvo que se indique de otra manera por parte del control de tránsito aéreo, ninguna persona que opere una aeronave podrá operarla de acuerdo a una autorización o instrucción que se le ha dado al piloto de otra aeronave para efectos de control de tráfico aéreo con radar.
 Sección 02.125. Señales luminosas del control de tránsito aéreo
@@ -328,6 +333,8 @@ a) Información requerida. A menos que el ATC lo autorice de otra manera, toda p
 7. La cantidad de combustible a bordo (en horas).
 8. El número de personas a bordo, excepto si esa información está disponible a la Dirección General de Aviación Civil.
 9. Cualquier otra información que el piloto al mando o el ATC considere necesaria.
+10) Este plan de vuelo será obligatorio para vuelos que crucen la frontera internacional
+(Así ampliado por Decreto Ejecutivo N° 29574 de 8 de enero de 2001)
 b) Cancelación. Cuando se ha activado un plan de vuelo, el piloto al mando debe notificar a la estación de servicio de vuelo o al ATC sobre la cancelación o término del vuelo, indicado en el plan correspondiente.
 Sección 02.155. Mínimos meteorológicos VFR básicos
 a) A excepción de lo indicado en el párrafo b) de esta Sección y la Sección 02.157, nadie puede operar una aeronave bajo las condiciones VFR cuando la visibilidad de vuelo es menor o a una distancia de las nubes menor que la indicada para la altitud correspondiente y clase de espacio aéreo señalado en la siguiente tabla:
@@ -493,9 +500,11 @@ b) El párrafo a) 2) de esta Sección no aplica si:
 (i) Que el techo estará a por lo menos 2000 pies (600 metros) por encima de la elevación del aeropuerto/aeródromo; y
 (ii) La visibilidad será de por lo menos 3 millas terrestres (4 800 metros).
 Sección 02.169. Plan de vuelo IFR. Información requerida
-a) Información requerida. A menos que el ATC lo autorice de otra manera, toda persona que presente un plan de vuelo IFR debe incluir en él la siguiente información:
+a) Información requerida.
+A menos que el ATC lo autorice de otra manera, toda persona que envié o remita por fax, teléfono, o por radio un plan de vuelo IFR debe incluir en él la siguiente información:
 1. Información requerida bajo la Sección 02.153 a).
 2. Aeropuerto/aeródromo alterno, excepto como se indica en el párrafo b) de esta Sección.
+(Así reformado por Decreto Ejecutivo N° 29574 de 8 de enero de 2001).
 b) Excepciones a la aplicación del párrafo a) 2) de esta Sección.
 Párrafo a) 2) de esta Sección no aplica si existe un procedimiento por instrumentos aprobado para el primer aeropuerto/aeródromo en que se intente aterrizar y, por lo menos una hora antes y una hora después del tiempo estimado de llegada, los reportes meteorológicos o pronósticos o cualquier combinación de ellos, indican:
 1. El techo estará a por lo menos 2 000 pies (600 metros) sobre la elevación del aeropuerto/aeródromo; y
@@ -523,8 +532,9 @@ Ambos sistemas deben ser sintonizados a la misma estación de tierra VOR y anota
 d) Toda persona que esté realizando la verificación operacional VOR como se especifica en el párrafo b) o c) de esta Sección, debe anotar en la bitácora de la aeronave u otro registro, la fecha, el lugar, error de marcación y firmarlo. Adicionalmente si se utiliza la señal de prueba radiada por la estación de reparación, tal como se especifica en el párrafo b) 1) de esta Sección, el poseedor del certificado de operación de la estación reparadora debe realizar la anotación en el historial de la aeronave u otro registro, certificando la marcación transmitida por la estación de reparación para la verificación y fecha de transmisión.
 Sección 02.173. Autorizaciones ATC y el plan de vuelo
 Ninguna persona puede operar una aeronave en el espacio aéreo controlado bajo IFR a menos que:
-a) Haya llenado un plan de vuelo IFR, y
+a) Haya presentado un plan de vuelo IFR, y
 b) Haya recibido una autorización del ATC.
+(Así reformado por Decreto Ejecutivo N° 29574 de 8 de enero de 2001).
 Sección 02.175. Despegues y aterrizajes bajo IFR
 a) Aproximaciones por instrumentos en aeródromos y aeropuertos. A menos que la Dirección General de Aviación Civil lo autorice de otra manera, cuando sea necesario un descenso por instrumentos en un aeropuerto/aeródromo, toda persona operando una aeronave deberá usar un procedimiento de aproximación por instrumentos aprobado para el aeropuerto/aeródromo de que se trate y publicado en el AIP.
 b) DH o MDA autorizados. Para el propósito de esta Sección, cuando el procedimiento de aproximación que se está usando requiere del uso de un DH o MDA, la autorización DH o MDA debe ser la más alta de lo siguiente:
@@ -974,57 +984,33 @@ a) Ninguna persona podrá operar una aeronave que ha estado sometida a mantenimi
 b) Ninguna persona puede transportar a persona alguna (distinta de la tripulación) en una aeronave que ha sido mantenida, reconstruida o alterada de una manera que pueda haber cambiado apreciablemente sus características de vuelo, o afectado sustancialmente su operación en vuelo hasta que un piloto debidamente habilitado para la aeronave, con licencia de piloto privado como mínimo, realice una revisión operacional en vuelo del mantenimiento ejecutado o de las alteraciones realizadas y registre los resultados del vuelo en los historiales de la aeronave.
 c) La aeronave no debe efectuar el vuelo señalado en el párrafo b) de esta Sección hasta que se demuestre en forma concluyente a través de pruebas en tierra, de inspecciones, o ambas cosas que el mantenimiento, mantenimiento preventivo, reconstrucción, o alteración, no han cambiado apreciablemente las características del vuelo o afectado sustancialmente la operación de la aeronave en vuelo.
 Sección 02.409. Inspecciones
-a) Excepto como está señalado en el párrafo c) de esta Sección, ninguna persona puede operar una aeronave, a menos que, dentro de los 12 meses calendario precedentes ésta haya sido sometida a:
-1. Una inspección anual de acuerdo con el RAC 43 y el retorno a servicio efectuado por una persona autorizada, según la Sección RAC 43.7.
-2. Una inspección para el otorgamiento de un Certificado de Aeronavegabilidad de acuerdo con el RAC 21.
-b) Excepto lo establecido en el párrafo c) de esta Sección, ninguna persona podrá operar una aeronave de uso privado, de instrucción en vuelo, de trabajos aéreos o de transporte público bajo el RAC-OPS Partes II ó III, a menos que haya cumplido con la Inspección Anual requerida en el párrafo a) anterior y se le haya efectuado el mantenimiento conforme al Programa de Mantenimiento que la Dirección General de Aviación Civil le ha aprobado. El Programa de Mantenimiento aquí requerido será preparado y sometido a aprobación de la Dirección General de Aviación Civil por el propietario o por quien opere la aeronave. En su preparación se deben seguir los programas básicos del fabricante, como el sistema de 100 horas, Sistema Progresivo (párrafo d) de esta Sección) o cualquier otro plan de mantenimiento que el fabricante haya diseñado para aeronaves livianas. Incluyendo lo siguiente:
-1. Inspecciones Periódicas o Programadas (ej. Sistema de 100 horas por etapas o eventos, servicios A, B, C, D y similares).
-2. Inspecciones no Programadas (ej. Aterrizaje fuerte, turbulencia, aterrizaje con sobrepeso, por tormentas, por sobrerevoluciones del motor y similares).
-3. Ítems Especiales de Inspección (ej. De 900, 1000, 1900, 2000 horas o por años, ciclos, etc.)
-4. Inspecciones Regulatorias (ej. ELT, ATC Transponder, Alineamiento y similares).
-5. Inspección por Corrosión y Control (CPCL), cuando sea aplicable.
-6. Resumen de Componentes o Partes con TBO, Tiempo de Retiro, Pruebas en Banco o Prueba Operacional (ej. Motor, hélice, FCU, magnetos, grabador de hélice y similares).
-7. Cartas de Lubricación.
-8. Revisión Anual de la Aviónica.
-9. Procedimiento de cumplimiento de Directivas de Aeronavegabilidad y Boletines Mandatarios del Fabricante.
-10. Fórmulas para registrar el cumplimiento del Programa de Mantenimiento.
-(i) Registro de cumplimiento y control de directivas de Aeronavegabilidad.
-(ii) Registro de cumplimiento y control de boletines de servicio.
-(iii) Registro de Control y programación de Inspección, Overhaul, Prueba de Componentes y Partes.
-(iv) Registro de Control de Tiempo en Servicio de Partes con vida de retiro.
-(v) Registro de Inspecciones Realizadas del Programa.
-(vi) Registro de Discrepancias.
-(vii) Registro de Ítem Definidos.
-(viii) Registro de revisión de la aviónica.
-Nota: En caso de operadores con Manual de Control de Mantenimiento, los medios descritos en el punto 10) para el registro del mantenimiento, pasan a ser parte del manual.
-c) Los párrafos a) y b) de esta Sección no se aplican a:
-1. Una aeronave que tenga un permiso especial de vuelo, un certificado de aeronavegabilidad provisional o experimental.
-2. Aeronave que opera bajo el RAC-OPS Parte I.
-d) Inspección progresiva: Todo propietario u operador de una aeronave que desee usar un programa de inspección progresivo, debe proveer:
-1. Un Técnico en mantenimiento debidamente calificado como inspector de mantenimiento, un Taller Aeronáutico certificado o el fabricante de la aeronave para supervisar o dirigir dicha inspección progresiva.
-2. Un Manual de Procedimientos de Inspección actualizado que esté disponible y comprensible para el piloto y para el personal de mantenimiento, conteniendo en detalle:
-(i) Una explicación de la inspección progresiva incluyendo las responsabilidades de la continuidad de la inspección, la preparación de informes y la conservación de registros y material técnico de referencia;
-(ii) El programa de inspección especificando los intérvalos en horas, días, ciclos o aterrizajes de cuándo deben ser ejecutadas las inspecciones detalladas y de rutina, e incluyendo instrucciones para exceder un intervalo de inspección por no más de 10 horas, mientras sea en ruta y para cambiar las escalas en los intervalos de inspección basados en la experiencia en servicio;
-(iii) Muestra de los formularios de las inspecciones detalladas y de rutina e instrucciones para su uso;
-(iv) Muestra de informes y registros e instrucciones para su uso;
-3. Suficiente espacio para alojamiento y equipo requerido para el desmontaje que sea necesario, y para la apropiada inspección de la aeronave; y
-4. Información técnica apropiada y actualizada para la aeronave.
-La frecuencia y detalle de la inspección progresiva deben prever la inspección completa de la aeronave dentro del ciclo completo emitido por el fabricante y/o aprobado por la Dirección General de Aviación Civil y debe estar en conformidad con la experiencia de servicio en el campo y el tipo de operación en la cual la aeronave es empleada. El programa de inspección progresiva debe asegurar que la aeronave, en todo momento, será aeronavegable y se ajustará a todas las especificaciones, hojas de datos del Certificado Tipo, las directivas de aeronavegabilidad y todo otro dato aprobado. Si la inspección progresiva es descontinuada, el propietario u operador notificará inmediatamente por escrito a la Dirección General de Aviación Civil de la interrupción. La interrupción debe dar a la culminación del ciclo completo de inspecciones progresivas. Si la inspección se hace necesaria en cualquier otra fase del ciclo, el nuevo programa de mantenimiento debe iniciar con la inspección más detallada del programa de mantenimiento en bloque y dentro del lapso del tiempo aplicable a la secuencia del antiguo ciclo progresivo.
-e) Aviones grandes, aviones multimotores propulsados por turborreactores, aviones multimotores propulsados por turbohélices y helicópteros propulsados por turbina.
-Nadie puede operar una aeronave de las señaladas anteriormente, a menos que los tiempos de reemplazo para las partes con vida limitada indicados en las especificaciones de la aeronave, en las especificaciones de su certificado tipo, u otros documentos aprobados por la Dirección General de Aviación Civil, sean cumplidos y la aeronave, incluyendo la estructura, motor, hélices, rotores, accesorios, componentes, equipo de supervivencia y de emergencia, se haya inspeccionado de acuerdo con un programa de inspección bajo las previsiones del párrafo f) de esta Sección, excepto que el propietario u operador de un helicóptero de turbina puede elegir utilizar las inspecciones previstas en la Sección 02.409 a), b), c) o d), en lugar de una opción de inspección de la Sección 02.409 f).
-f) Selección de programas de inspección según el párrafo e) de esta Sección.
-El propietario u operador registrado de cada avión o helicóptero de turbinas, señalado en el párrafo e) de esta Sección, debe seleccionar, identificar en los registros de mantenimiento de la aeronave, y utilizar uno de los siguientes programas para la inspección de la aeronave:
-1. Un programa de inspección de aeronavegabilidad continua que es parte de un programa de mantenimiento de aeronavegabilidad continua en uso actual por la persona que posee un certificado de operador de servicios aéreos emitido según el RAC OPS, Parte I, II, III y operando esa marca y modelo de la aeronave según el RAC OPS, Parte I u operando esa marca y modelo bajo la regulación RAC OPS, Partes II ó III y manteniéndolos bajo el RAC OPS, Partes I, II ó III.
-2. Un programa de inspección de aeronave aprobado según la RAC OPS, Parte II, III actualmente en uso por la persona poseedora de un certificado de operación de servicios de transporte aéreo emitido bajo el RAC OPS, Partes II, III.
-3. Un programa de inspección actualizado recomendado por el fabricante.
-4. Algún otro programa de inspección, establecido por el propietario u operador registrado del avión o helicóptero de turbina y aprobado por la Dirección General de Aviación Civil según párrafo g) de esta Sección. Sin embargo, dicha autoridad puede solicitar revisión de este programa de inspección de acuerdo con lo que señala la Sección 02.415 de este reglamento.
-Cada operador incluirá en el programa seleccionado el nombre y el domicilio de la persona responsable de programar las inspecciones requeridas y hará que una copia de aquel programa esté disponible para las personas que realicen la inspección en la aeronave, y a solicitud de la Dirección General de Aviación Civil.
-g) Programa de inspección aprobado según el párrafo e) de esta Sección. Todo operador de un avión o helicóptero de turbina que pretendiera establecer o cambiar un programa de inspección aprobado por párrafo f) (4) de esta Sección, debe remitir el programa para aprobación de la Dirección General de Aviación Civil, el mismo debe presentarse por escrito e incluir, al menos, la siguiente información:
-1. Instrucciones y procedimientos para la conducción de inspecciones para cada marca y modelo particular de avión y helicóptero de turbina incluyendo las pruebas y verificaciones necesarias.
-Las instrucciones y procedimientos deben establecer el detalle, las partes y áreas de la estructura, motores, hélices, rotores, componentes y accesorios, incluyendo equipos de supervivencia y emergencia, requeridos para ser inspeccionados.
-2. Un programa para la realización de las inspecciones que deben llevarse a cabo bajo el programa expresado en términos de tiempo en servicio, tiempo calendario, número de operaciones del sistema, o alguna combinación de los mismos
-h) Cambios de un programa de inspección a otro.
-Cuando un operador cambia de un programa de inspección según el Párrafo f) de esta Sección a otro, el tiempo en servicio, tiempo calendario, aterrizajes o ciclos de operación acumulados bajo el programa previo deben ser aplicados a la determinación de tiempos de cumplimiento de las inspecciones según el nuevo programa.
+a) Ninguna persona puede operar una aeronave, a menos que ésta haya sido sometida a:
+1) Inspecciones de acuerdo al programa de mantenimiento aprobado.
+2) Una inspección para el otorgamiento de un Certificado de Aeronavegabilidad de acuerdo con el RAC 21.
+b) Ninguna persona podrá operar una aeronave de uso privado, de instrucción en vuelo, de trabajos aéreos o de transporte público, a menos que se le haya efectuado el mantenimiento conforme al Programa de Mantenimiento aprobado por la Dirección General de Aviación Civil. El Programa de Mantenimiento aquí requerido será preparado por el propietario o por quien opere la aeronave. En su preparación se deben seguir los programas básicos del fabricante, o cualquier otro plan de mantenimiento que el fabricante haya diseñado y debe tener incluido al menos lo siguiente:
+1) Inspecciones Periódicas o Programadas
+2) Inspecciones no Programadas
+3) Ítemes Especiales de Inspección o prueba
+4) Inspecciones Regulatorias que contemplen los reglamentos
+5) Inspección para el control y prevención de la corrosión según aplique
+6) Control de componentes o partes con TBO, tiempo de retiro, pruebas en banco o pruebas operacionales
+7) Cartas de Lubricación.
+8) Revisión y registro de equipos de Aviónica, cuando sea aplicable
+9) Cumplimiento de Directivas de Aeronavegabilidad y Boletines Mandatarios del Fabricante.
+10) Anotaciones o registros de inspecciones de cumplimiento con el Programa de Mantenimiento
+i) Registro de cumplimiento y control de directivas de Aeronavegabilidad.
+ii) Registro de cumplimiento y control de boletines de servicio.
+iii) Registro de Control y programación de Inspección, Overhaul Prueba de Componentes y Partes.
+iv) Registro de Control de Tiempo en Servicio de Partes con vida de retiro.
+v) Registro de Discrepancias.
+vi) Registro de Ítemes diferidos.
+b) La frecuencia y detalle del programa de mantenimiento deben prever la inspección completa de la aeronave dentro del ciclo completo por el fabricante y aprobado por la Dirección General de Aviación Civil y debe estar en conformidad con la experiencia de servicio en el campo y el tipo de operación en la cual la aeronave es empleada. El programa debe asegurar que la aeronave en todo momento esté aeronavegable y se debe ajustar a todas las especificaciones, hojas de datos del certificado de tipo, las directivas de aeronavegabilidad y todo otro dato aprobado. Si el programa es enmendado o descontinuado, el propietario u operador notificará inmediatamente por escrito a la Dirección General de Aviación Civil de la interrupción o la enmienda para su respectiva aprobación, esta interrupción debe dar a la culminación del ciclo completo de inspecciones. Si la inspección se hace necesaria en cualquier otra fase del ciclo, el nuevo programa de mantenimiento debe iniciar con la inspección más detallada del programa de mantenimiento en bloque y dentro del lapso del tiempo aplicable a la secuencia del antiguo ciclo.
+(Así reformado por Decreto Ejecutivo N° 29574 de 8 de enero de 2001)
+Sección 2.410.-
+a) Cuando una aeronave de un explotador costarricense haya sufrido daños, el Estado Costarricense decidirá si son de tal naturaleza que la aeronave ya no reúne las condiciones de Aeronavegabilidad definidas en las normas que atañen.
+b) Cuando la DGAC considera que el daño sufrido en la aeronave es de naturaleza tal que la aeronave no está en condiciones de Aeronavegabilidad, prohibirá que la aeronave continúe en vuelo hasta que vuelva estar en condiciones de Aeronavegabilidad. Sin embargo, la DGAC podrá, en circunstancias excepcionales, establecer restricciones y permitir que la aeronave vuele sin pasajeros hasta un Aeropuerto/ aeródromo en que se pueda repara y poner en condiciones de Aeronavegabilidad; en este caso es responsabilidad del propietario u operador de la aeronave obtener los permisos de los países que sobrevuele o en los que requiera aterrizar.
+c) Cuando la DGAC considere que los daños sufridos son tales que no afecten a las condiciones de Aeronavegabilidad de la aeronave, se permitirá a esta que reanude su vuelo.
+(Así adicionado por Decreto Ejecutivo N° 29574 de 8 de enero de 2001)
 Sección 02.411. Inspecciones y prueba de sistemas de altímetro y equipos de aviso de altitud
 a) Ninguna persona puede operar una aeronave en el espacio aéreo controlado en IFR (Reglas de Vuelo por Instrumentos) a menos que:
 1. Dentro de los 24 meses calendario precedentes, todo sistema de presión estático, altímetro y sistema automático de reporte de altitud presión, haya sido probado, inspeccionado y determinado que cumple con el Apéndice E del RAC-43.
@@ -1380,7 +1366,8 @@ Sección 02.707. Regulaciones especiales para aeronaves extranjeras
 a) Generalidades.
 Además de otras regulaciones aplicables a este reglamento, toda persona que opere una aeronave extranjera dentro de Costa Rica debe cumplir con esta Sección.
 b) VFR.
-Ninguna persona puede conducir operaciones VFR que requieran radiocomunicaciones en dos vías bajo este RAC, a menos que un miembro de la tripulación de ese avión sea capaz de llevar a cabo las radiocomunicaciones en dos vías en idioma español y esté laborando durante esa operación.
+Ninguna persona puede conducir operaciones VFR que requieran radiocomunicaciones en dos vías bajo este RAC, a menos que un miembro de la tripulación de ese avión sea capaz de llevar a cabo las radiocomunicaciones en dos vías en idioma español o inglés.
+(Así reformado por Decreto Ejecutivo N° 29574 de 8 de enero de 2001).
 c) IFR.
 Ninguna persona puede operar una aeronave extranjera bajo IFR a menos que:
 1. La aeronave esté equipada con:
@@ -1389,7 +1376,8 @@ Ninguna persona puede operar una aeronave extranjera bajo IFR a menos que:
 2. Cada persona al mando de una aeronave:
 (i) Debe poseer una habilitación costarricense de vuelo por instrumentos o estar autorizada por su Estado con un certificado como piloto para volar en condiciones IFR.
 (ii) Esté familiarizado con las rutas nacionales, aerovías y procedimientos de sostenimiento y descenso; y
-3. Por lo menos un miembro de la tripulación de la aeronave sea capaz de conducir comunicaciones radiotelefónicas en dos vías en el lenguaje español y que ese miembro de la tripulación esté laborando mientras la aeronave esté aproximándose, operando dentro o saliendo del territorio costarricense.
+3. Por lo menos un miembro de la tripulación de la aeronave sea capaz de conducir comunicaciones radiotelefónicas en dos vías en el lenguaje español o inglés.
+(Así reformado por Decreto Ejecutivo N° 29574 de 8 de enero de 2001).
 d) Operaciones sobre el agua. Toda persona que opere una aeronave extranjera sobre el agua o esté sobre las costas costarricenses debe llevar una notificación de vuelo o llenar un plan de vuelo de acuerdo con los procedimientos suplementarios para la referida región según OACI.
 e) Vuelo a y sobre FL 240. Si se requiere un equipo de radionavegación (VOR) bajo el párrafo c) 1) (ii) de esta Sección, ninguna persona puede operar una aeronave extranjera dentro de Costa Rica a o sobre FL 240 a menos que la aeronave esté equipada con un equipo medidor de distancia (DME) capaz de recibir e indicar la información de distancia desde las facilidades VORTAC a ser usadas. Cuando el DME requerido por este párrafo falla a o por encima del nivel de vuelo 240, el piloto al mando de la aeronave debe notificar inmediatamente al control de tránsito aéreo y puede continuar las operaciones a o por encima de dicho nivel hasta el próximo aeropuerto en que intente aterrizar y en el cual las reparaciones reemplazo del equipo pueda ser hecho. Sin embargo, el párrafo e) de esta Sección no aplica a las aeronaves extranjeras que no estén equipadas con equipo (DME) cuando éstas operen con los siguientes fines y si el control de tránsito aéreo es notificado antes de cada despegue:
 1. Vuelo de traslado (ferry) hacia o desde un lugar en Costa Rica donde las alteraciones o reparaciones pueden ser realizadas.
@@ -1399,12 +1387,8 @@ e) Vuelo a y sobre FL 240. Si se requiere un equipo de radionavegación (VOR) ba
 (ii) Vuelo de entrenamiento de los tripulantes extranjeros en la operación de la aeronave; o
 (iii) Vuelo de traslado (ferry) de la aeronave para envío de exportación fuera de Costa Rica.
 4. Vuelo de traslado (ferry) demostración y vuelo de prueba de una aeronave comprada en el extranjero para el propósito de demostración o prueba.
-Sección 02.715. Aeronaves extranjeras: Convalidación del Certificado de Aeronavegabilidad
-a) Una aeronave con matrícula extranjera puede ser operada por un operador costarricense en servicios de transporte aéreo y/o trabajo aéreo sólo si posee un certificado de aeronavegabilidad convalidado por la Dirección General de Aviación Civil debiendo la aeronave poseer Certificado Tipo y cumplir con los requisitos del RAC-21.
-b) La Autoridad Aeronáutica competente puede emitir un permiso especial de vuelo a una aeronave con matrícula extranjera sujeta a cualquier condición y limitación consideradas necesarias para la operación segura en el espacio aéreo costarricense.
-Sección 02.716. Autorizaciones especiales de vuelo para aeronaves extranjeras
-a) Una aeronave con matrícula extranjera puede ser operada sin el certificado de aeronavegabilidad requerido por el RAC 02.203 si se le emite un permiso especial de vuelo para esta operación según esta Sección. La solicitud para esta autorización debe ser realizada ante la Dirección General de Aviación Civil.
-b) La Autoridad Aeronáutica competente costarricense puede emitir un permiso especial de vuelo a una aeronave con matrícula extranjera sujeta a cualquier condición y limitación consideradas por la Dirección General de Aviación Civil necesarias para la operación segura en el espacio aéreo costarricense.
+Sección 02.715. (DEROGADA, esta sección por artículo 2° del Decreto Ejecutivo N° 29574 de 8 de enero de 2001)
+Sección 02.716. (DEROGADA, esta sección por artículo 2° del Decreto Ejecutivo N° 29574 de 8 de enero de 2001)
 CAPITULO X
 Límite de ruido de operación
 Sección 02.801. Aplicabilidad
@@ -1426,49 +1410,9 @@ Sección 02.807. Onda de Choque - Aeronaves Civiles
 Ninguna persona puede operar una aeronave civil en la República de Costa Rica a números Mach mayores a 1, salvo bajo las condiciones y limitaciones de una autorización específica emitida por la Dirección General de Aviación Civil.
 CAPITULO XI
 Excepciones
-Sección 02.903. Política y Procedimientos
-a) La Dirección General de Aviación Civil puede emitir un certificado de excepción autorizando la operación de una aeronave que se desvíe de cualquier regulación listada en este Capítulo, si la Dirección General de Aviación Civil determina que la operación propuesta puede ser conducida con seguridad bajo los términos de ese certificado de excepción.
-b) Una solicitud para un certificado de excepción bajo este Capítulo debe realizarse en la forma y el modo prescrito por la Dirección General de Aviación Civil y debe ser remitido a ésta.
-c) Un certificado de excepción tendrá la validez que se especifique en el mismo.
-Sección 02.905. Listado de regulaciones sujetas a excepción
-Regulaciones:
-02.107 Uso de cinturones de seguridad
-02.111 Operación cerca de otra aeronave
-02.113 Regulaciones de derecho de paso excepto para operaciones sobre agua
-02.115 Regulaciones de derecho de paso para operaciones sobre agua
-02.117 Velocidad de aeronaves
-02.119 Altitud Mínima de seguridad
-02.121 Reglaje altimétrico
-02.123 Cumplimiento de autorización e instrucción ATC
-02.125 Señales luminosas de control de tránsito aéreo
-02.126 Operando en la proximidad de un aeropuerto/aeródromo con espacio aéreo Clase G
-02.127 Operando en la proximidad de un aeropuerto/aeródromo con espacio aéreo Clase E
-02.129 Operación en espacio aéreo Clase D
-02.130 Operación en espacio aéreo Clase C
-02.131 Operación en espacio aéreo Clase B
-02.133 Area restringida y prohibida
-02.137 Restricciones temporales de vuelo
-02.141 Restricciones de vuelo en las proximidades de áreas en las que se celebrarán eventos oficiales
-02.143 Limitaciones de vuelo en las proximidades de espacio aéreo en donde se desarrollan eventos aeronáuticos especiales
-02.153 Plan de vuelo VFR. Información Requerida
-02.155 Mínimos meteorológicos de VFR básico
-02.157 Mínimos meteorológicos de VFR especial
-02.159 Altitud de crucero o nivel de vuelo VFR
-02.169 Plan de vuelo IFR. Información Requerida
-02.173 Autorización ATC y el plan de vuelo
-02.175 Despegue y aterrizaje bajo IFR
-02.177 Altitud Mínima para operaciones IFR
-02.181 Curso a ser volado
-02.183 Comunicaciones de radio en vuelo IFR
-02.185 Operaciones IFR: falla de comunicación en ambas vías
-02.187 Operaciones bajo IFR en espacio aéreo controlado: reporte de mal funcionamiento
-02.209 Luces de aeronaves
-02.303 Vuelos acrobáticos
-02.305 Areas de Vuelo de Prueba
-02.311 Remolque distintos a la Sección 02.309
-02.313 (e) Aeronaves civiles en categoría restringida: limitaciones de operación.
-02.515 Regulaciones de altitud de vuelo
-02.705 Operaciones en espacio aéreo MNPS
+(DEROGADO, este capítulo por artículo 2° del Decreto Ejecutivo N° 29574 de 8 de enero de 2001)
+Sección 02.903. (DEROGADA, esta sección por artículo 2° del Decreto Ejecutivo N° 29574 de 8 de enero de 2001)
+Sección 02.905. (DEROGADA, esta sección por artículo 2° del Decreto Ejecutivo N° 29574 de 8 de enero de 2001)
 APENDICE A
 OPERACIONES DE CATEGORIA II
 MANUAL, INSTRUMENTOS, EQUIPO Y MANTENIMIENTO

@@ -14,3 +14,4 @@ Reglamento Aeronáutico Costarricense Reglas Generales de Operación y Vuelo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-09 | la propia norma |
+| 2 | 2001-01-08 | Decreto Ejecutivo 29574 (2001-01-08) |
