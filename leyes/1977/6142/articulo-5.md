@@ -1,0 +1,1 @@
+Artículo 5°—El Poder Ejecutivo reglamentará lo relativo a requisitos, impedimentos para ser miembro del Consejo Directivo, número de reuniones renumeradas, funciones y atribuciones del Gerente y demás personal necesario y cualesquiera otros aspectos relacionados con el funcionamiento de la Unidad.
