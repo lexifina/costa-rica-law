@@ -14,3 +14,4 @@ Reorganiza Servicios de Correos, Telégrafos, Teléfonos y Radios Nacionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1937-04-29 | la propia norma |
+| 2 | 1938-04-19 | Decreto Ejecutivo 25 (1938-04-19) |
