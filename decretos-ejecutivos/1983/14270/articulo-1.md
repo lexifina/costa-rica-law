@@ -24,18 +24,18 @@ El mosaico debe ser vibrado hasta que permita que el aire entrapado escape a la 
 4.1 Requisitos de forma y dimensiones.
 4.1.1 Forma.
 Los mosaicos serán cuadrados, de caras planas y aristas rectas, otras formas pueden ser suplidas de acuerdo entre comprador y vendedor.
-4.1.2 Dimensiones.
-Las dimensiones de los mosaicos cuadrados más usuales se presentan en el cuadro N° 1.
-CUADRO N° 1 — Tamaño de los mosaicos
-Longitud de cada lado | Espesor en
-en mm | mm
-150 ± 1 | 15 ± 3
-200 ± 1 | 20 ± 3
-250 ± 1 | 30 ± 3
-300 ± 1 | 30 ± 3
-333 ± 1 | 30 ± 3
-400 ± 1 | 35 ± 3
-NOTA: Mosaicos de 250 x 250 mm con un espesor de 20 ± 3 mm pueden ser aceptados si cumplen con las restantes especificaciones de esta norma.
+(*) 4.1.2 Dimensiones. Las dimensiones de las losetas cuadradas más usuales se presentan en la tabla N° 1.
+Tabla N° 1. Tamaño de las losetas
+Longitud de cada lado | Espesor
+(mm1) | (mm3)
+150 | 15
+200 | 20
+250 | 30
+300 | 30
+333 | 30
+400 | 35
+Nota. Losetas con otros espesores serán aceptadas, siempre y cuando cumplan con los demás requisitos previstos en esta norma.
+(*)(Así reformado el punto 4.1.2 antetior por el artículo 1° del decreto ejecutivo N° 22706 del 8 de noviembre de 1993)
 4.1.3 Espesores.
 El espesor mínimo de la capa de desgaste medido en los puntos más delgados, deberá ser:
 a) Para mosaicos: 5 mm.

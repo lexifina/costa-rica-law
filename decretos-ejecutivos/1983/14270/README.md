@@ -14,3 +14,4 @@ Norma Oficial Mosaico Terrazo y Terracín
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-03-01 | la propia norma |
+| 2 | 1993-11-08 | Decreto Ejecutivo 22706 (1993-11-08) |
