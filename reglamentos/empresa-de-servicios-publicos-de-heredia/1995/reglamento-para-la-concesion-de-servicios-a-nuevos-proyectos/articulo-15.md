@@ -1,0 +1,1 @@
+Artículo 15.-Sin perjuicio de lo dispuesto en los artículos anteriores e igualdad de condiciones, la Empresa concederá derecho preferente de autorización a aquellas personas o entidades, que al formular sus solicitudes gestionen conjuntamente la prestación de los servicios de agua potable y energía eléctrica.

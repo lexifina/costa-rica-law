@@ -1,0 +1,1 @@
+Artículo 14.-La contribución convenida la definirá la ESPH, con base en la filosofía del servicio al costo más un 40% de cargo Administrativo, en atención a los caudales requeridos por los nuevos proyectos habitacionales.
