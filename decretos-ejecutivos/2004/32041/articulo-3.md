@@ -1,0 +1,1 @@
+Artículo 3º—Corresponde a cada una de las instancias administrativas de las citadas instituciones verificar la participación de sus colaboradores y colaboradoras, sin que con ello se afecten los servicios y demás funciones propias de su competencia.
