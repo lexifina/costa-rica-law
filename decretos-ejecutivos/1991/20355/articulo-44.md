@@ -1,5 +1,3 @@
-ARTÖCULO 44.- Una vez concluido el concurso, el Poder
-Ejecutivo
-emitir el acuerdo que contendr la concesi¢n de la
-administraci¢n, el
-otorgamiento del R‚gimen y la designaci¢n de la Zona Franca.
+Artículo 44.- Una vez concluido el concurso, el Poder Ejecutivo
+emitirá el acuerdo que contendrá la concesión de la administración, el
+otorgamiento del Régimen y la designación de la Zona Franca.

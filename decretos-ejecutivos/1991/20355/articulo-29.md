@@ -1,24 +1,16 @@
 TITULO CUARTO
 CAPITULO UNICO
-Del establecimiento de plantas sat‚lites
-ARTÖCULO 29.- El beneficiario interesado en establecer
-plantas
-sat‚lites, deber presentar una solicitud ante la Corporaci¢n que
-deber
+Del establecimiento de plantas satélites
+Artículo 29.- El beneficiario interesado en establecer plantas
+satélites, deberá presentar una solicitud ante la Corporación que deberá
 contener al menos lo siguiente:
-a) Indicaci¢n de los motivos por los cuales considera necesaria
-la
-instalaci¢n de plantas sat‚lites.
-b) Ubicaci¢n de las plantas.
-c) Plan de producci¢n total indicando la proporci¢n que se
-realizar en
-la Zona Franca, que en ning£n caso podr ser menor a un 35% del
-valor de
-la producci¢n total medida en t‚rminos del valor agregado
-nacional, salvo
-que la Junta Directiva considere que existen razones de inter‚s
-p£blico
-para aceptar una proporci¢n menor.
-d) Los dict menes indicados en los incisos b) y c) del art¡culo
-20 de
+a) Indicación de los motivos por los cuales considera necesaria la
+instalación de plantas satélites.
+b) Ubicación de las plantas.
+c) Plan de producción total indicando la proporción que se realizará en
+la Zona Franca, que en ningún caso podrá ser menor a un 35% del valor de
+la producción total medida en términos del valor agregado nacional, salvo
+que la Junta Directiva considere que existen razones de interés público
+para aceptar una proporción menor.
+d) Los dictámenes indicados en los incisos b) y c) del artículo 20 de
 este reglamento.

@@ -1,0 +1,6 @@
+Artículo 61.-El uso indebido de los bienes o servicios exonerados,
+será causa suficiente para que el Ministerio de Hacienda proceda a la
+liquidación de tributos exonerados o devueltos y ejerza las demás
+acciones que establece el Código de Normas y Procedimientos Tributarios
+en materia de defraudación fiscal, sin perjuicio de las demás sanciones
+que establece la ley.

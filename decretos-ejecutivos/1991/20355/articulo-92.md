@@ -1,11 +1,7 @@
-ARTÖCULO 92.- Los beneficiarios, a trav‚s de la Oficina de
-Bienes
-Nacionales de la Contabilidad Nacional del Ministerio de
-Hacienda, en
-adelanta denominada la Oficina de Bienes Nacionales, podr n donar
-materias primas, bienes terminados, bienes semielaborados,
-desperdicios y
-bienes de capital a instituciones de beneficencia, centros de
-educaci¢n e
-instituciones del Estado mediante el procedimiento que aqu¡ se
-establece.
+Artículo 92.-Los beneficiarios, a través del Instituto Mixto de
+Ayuda Social (I.M.A.S.) podrán donar materias primas, bienes terminados,
+bienes semielaborados, desperdicios y bienes de capital a instituciones
+de beneficencia, centros de educación e instituciones del Estado mediante
+el procedimiento que aquí se establece.
+( Así reformado por el artículo 1º del decreto Nº 24520 del 14 de junio
+de 1995).

@@ -1,9 +1,6 @@
 CAPITULO IV
-Del trasiego de materias y mercanc¡as destinadas al territorio
-aduanero nacional
-ARTÖCULO 81.- El tr mite de nacionalizaci¢n de materias y
-mercanc¡as
-provenientes de una Zona Franca se har conforme con el presente
-reglamento, utilizando la p¢liza £nica y los procedimientos
-aduaneros
+Del trasiego de materias y mercancías destinadas al territorio aduanero nacional
+Artículo 81.- El trámite de nacionalización de materias y mercancías
+provenientes de una Zona Franca se hará conforme con el presente
+reglamento, utilizando la póliza única y los procedimientos aduaneros
 aplicables.

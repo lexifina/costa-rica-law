@@ -1,18 +1,10 @@
 CAPITULO VI
-Del trasiego entre beneficiarios o entre estos y las plantas
-sat‚lites
-ARTÖCULO 86.- El trasiego de materias y mercanc¡as entre
-beneficiarios del R‚gimen deber contar £nicamente con la
-autorizaci¢n de
-la Corporaci¢n.
-Cuando los beneficiarios se encuentren en Zonas Francas
-distintas,
-deber n utilizar como respaldo del trasiego la p¢liza £nica.
-El tr nsito de materias y mercanc¡as de una zona franca a
-la planta
-sat‚lite y viceversa, se realizar amparado exclusivamente a la
-p¢liza
-£nica, y por tanto no requerir de rendici¢n de garant¡a.
-CAPITULO VII
-De las ventas amparadas a otros reg¡menes especiales de
-exportaci¢n
+Del trasiego entre beneficiarios o entre estos y las plantas satélites
+Artículo 86.- El trasiego de materias y mercancías entre
+beneficiarios del Régimen deberá contar únicamente con la autorización de
+la Corporación.
+Cuando los beneficiarios se encuentren en Zonas Francas distintas,
+deberán utilizar como respaldo del trasiego la póliza única.
+El tránsito de materias y mercancías de una zona franca a la planta
+satélite y viceversa, se realizará amparado exclusivamente a la póliza
+única, y por tanto no requerirá de rendición de garantía.

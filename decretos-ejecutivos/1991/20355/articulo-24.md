@@ -1,5 +1,3 @@
-ARTÖCULO 24.- La Junta Directiva revisar anualmente las
-tarifas a
-que se refiere el art¡culo anterior y recomendar al Poder
-Ejecutivo, de
-proceder, su modificaci¢n.
+Artículo 24.- La Junta Directiva revisará anualmente las tarifas a
+que se refiere el artículo anterior y recomendará al Poder Ejecutivo, de
+proceder, su modificación.

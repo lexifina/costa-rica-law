@@ -1,15 +1,10 @@
 TITULO NOVENO
-De los departamentos de inscripci¢n y registro, control y
-estad¡sticas
-ARTÖCULO 89.- Para los efectos de lograr un eficiente manejo
-y
-control del R‚gimen, la Corporaci¢n deber promover la creaci¢n
-de tres
-unidades o departamentos b sicos:
-a) De Inscripci¢n y Registro.
-b) Estad¡stica.
+De los departamentos de inscripción y registro, control y estadísticas
+Artículo 89.- Para los efectos de lograr un eficiente manejo y
+control del Régimen, la Corporación deberá promover la creación de tres
+unidades o departamentos básicos:
+a) De Inscripción y Registro.
+b) Estadística.
 c) Control.
-La Corporaci¢n deber emitir un manual para la operaci¢n de
-estos
-departamentos en coordinaci¢n con el Ministerio de Comercio
-Exterior.
+La Corporación deberá emitir un manual para la operación de estos
+departamentos en coordinación con el Ministerio de Comercio Exterior.

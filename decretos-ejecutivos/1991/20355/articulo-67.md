@@ -1,5 +1,3 @@
-ARTÖCULO 67.- Los beneficiarios que deseen subcontratar
-deber n
-presentar solicitud a la Corporaci¢n en los formularios que la
-misma
-entregar para esos efectos.
+Artículo 67.- Los beneficiarios que deseen subcontratar deberán
+presentar solicitud a la Corporación en los formularios que la misma
+entregará para esos efectos.

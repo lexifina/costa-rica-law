@@ -1,26 +1,16 @@
-ARTÖCULO 64.- La autorizaci¢n del MEIC deber contener,
-adem s de lo
-consignado en el art¡culo anterior, los siguientes datos:
-a) Indicaci¢n del porcentaje de ventas autorizado en cuanto a
-cantidad
+Artículo 64.- La autorización del MEIC deberá contener, además de lo
+consignado en el artículo anterior, los siguientes datos:
+a) Indicación del porcentaje de ventas autorizado en cuanto a cantidad
 y valor.
-b) Porcentaje y valor del componente nacional que se aplicar
-sobre el
+b) Porcentaje y valor del componente nacional que se aplicará sobre el
 precio CIF del bien o servicio.
-c) Plazo por el cual se otorga la autorizaci¢n, que en ning£n
-caso
-podr ser inferior a seis meses, que podr ser renovada a
-solicitud del
+c) Plazo por el cual se otorga la autorización, que en ningún caso
+podrá ser inferior a seis meses, que podrá ser renovada a solicitud del
 interesado.
-Para otorgar la autorizaci¢n, el MEIC deber ajustarse al
-plazo que
-establece el art¡culo 22 de la Ley. En caso de vencerse dicho
-plazo sin
-que se emita la resoluci¢n correspondiente, se entender que la
-solicitud
+Para otorgar la autorización, el MEIC deberá ajustarse al plazo que
+establece el artículo 22 de la Ley. En caso de vencerse dicho plazo sin
+que se emita la resolución correspondiente, se entenderá que la solicitud
 ha sido aprobada en todos sus extremos.
-El MEIC deber enviar copia de la autorizaci¢n al puesto de
-aduanas,
-a la Direcci¢n General de Aduanas, al Administrador de la Zona
-Franca y a
-la Corporaci¢n.
+El MEIC deberá enviar copia de la autorización al puesto de aduanas,
+a la Dirección General de Aduanas, al Administrador de la Zona Franca y a
+la Corporación.

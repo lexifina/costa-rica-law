@@ -1,4 +1,3 @@
-ARTÖCULO 65.- El tr nsito y trasiego de mercanc¡as vendidas
-que
-involucren un tr mite aduanero se ajustar a lo dispuesto por la
+Artículo 65.- El tránsito y trasiego de mercancías vendidas que
+involucren un trámite aduanero se ajustará a lo dispuesto por la
 normativa aduanera aplicable.

@@ -1,12 +1,8 @@
 TITULO OCTAVO
-De los procedimientos aplicables al tr nsito o trasiego de
-materias y mercanc¡as
+De los procedimientos aplicables al tránsito o trasiego de materias y mercancías
 CAPITULO I
 Disposiciones generales
-ARTÖCULO 72.- Todo tr nsito o trasiego de materias y
-mercanc¡as que
-se realice desde y hacia la Zona Franca, se ajustar a lo
-prescrito en el
-presente t¡tulo. En el caso de nacionalizaci¢n de materias y
-mercanc¡as,
-se aplicar , adem s, la normativa aduanera vigente.
+Artículo 72.- Todo tránsito o trasiego de materias y mercancías que
+se realice desde y hacia la Zona Franca, se ajustará a lo prescrito en el
+presente título. En el caso de nacionalización de materias y mercancías,
+se aplicará, además, la normativa aduanera vigente.

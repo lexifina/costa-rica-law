@@ -1,4 +1,2 @@
-ARTÖCULO 98.- Este reglamento entrar en vigencia a partir
-de su
-publicaci¢n en el Diario Oficial.
-
+Artículo 98.- Este reglamento entrará en vigencia a partir de su
+publicación en el Diario Oficial.

@@ -1,10 +1,9 @@
+TITULO QUINTO
+De la designación de nuevas Zonas Francas
+y del otorgamiento de su administración
 CAPITULO I
-De la iniciativa para la designaci¢n de nuevas Zonas
-Francas
-ARTÖCULO 33.- La Corporaci¢n podr recomendar, de oficio,
-la
-designaci¢n de reas para el establecimiento de nuevas Zonas
-Francas.
-Asimismo, deber considerar las iniciativas provenientes de
-cualquier
-entidad u ¢rgano p£blico o privado en ese sentido.
+De la iniciativa para la designación de nuevas Zonas Francas
+Artículo 33.- La Corporación podrá recomendar, de oficio, la
+designación de áreas para el establecimiento de nuevas Zonas Francas.
+Asimismo, deberá considerar las iniciativas provenientes de cualquier
+entidad u órgano público o privado en ese sentido.

@@ -1,4 +1,4 @@
-ARTÖCULO 97.- La Corporaci¢n deber proveer a la Direcci¢n
-General
+Disposiciones finales
+Artículo 97.- La Corporación deberá proveer a la Dirección General
 de Aduanas las facilidades requeridas para el cumplimiento de su
 actividad fiscalizadora.

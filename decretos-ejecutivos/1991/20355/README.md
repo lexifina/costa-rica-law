@@ -13,3 +13,4 @@ Reglamento a la Ley sobre Régimen de Zonas Francas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-04-24 | la propia norma |
+| 2 | 1991-04-24 | SINALEVI (sin norma nombrada) |
