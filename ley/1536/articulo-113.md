@@ -1,0 +1,2 @@
+Tiempo de que Dispone cada Elector para Emitir su Voto
+Artículo 113.- El Presidente de la Junta advertirá al elector que debe invertir el menor tiempo en el acto de la emisión del voto, recordándole que sólo dispone de tres minutos para ello y que no podrá detenerse en el recinto secreto más de un minuto de los tres ya indicados. Pasado ese tiempo, el Presidente lo hará salir; y si no tuviere listas las papeletas para ser introducidas en la urna, las recogerá y separará con razón firmada que exprese esa circunstancia sin permitirle que vote.

@@ -1,0 +1,4 @@
+Listas Provisionales de Electores
+Artículo 22.- El Registro Civil prepará las listas provisionales de electores, seis meses antes de una elección y deberá enviar al día siguiente a la autoridad política de cada distrito administrativo la que corresponde, y entregar copia de ellas a cada uno de los partidos inscritos en escala nacional. En ellas se seguirá el orden alfabético y estarán numerados los sufragantes por numeración corrida de uno en adelante. Al pie de cada lista se expresará el número de electores que contiene y se advertirá a los ciudadanos el término dentro del cual se oirán reclamaciones.
+Las autoridades de policía están en la obligación de colocar esas listas inmediatamente, en lugares bien visibles haciéndolas custodiar.
+Las listas provisionales se exhibirán durante cuatro meses.

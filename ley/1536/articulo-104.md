@@ -1,0 +1,2 @@
+Empleo de Papeletas Separadas para la Elección Nacional, Provincial y Local
+Artículo 104.- La votación se hará mediante el uso de tres papeletas separadas: una municipal, para elegir Regidores y Síndicos; otra provincial, para elegir Diputados a la Asamblea Legislativa o a una Constituyente; y la otra nacional, para elegir Presidente y Vicepresidentes de la República. El Registro Civil, al imprimir las papeletas, ordenará hacer la respectiva separación.

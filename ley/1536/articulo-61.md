@@ -1,0 +1,3 @@
+Asamblea Nacional de los Partidos Políticos
+Artículo 61.- La Dirección Política de los partidos estará a cargo de la correspondiente Asamblea Nacional, siendo obligatorios tanto para los organismos y Asambleas inferiores, como para sus representantes en los organismos del Estado los acuerdos que adopten en uso de las atribuciones que le confieran los estatutos y la ley. La ejecución de los acuerdos de toda Asamblea corresponde a su Comité Ejecutivo, que estará formado por el Presidente, el Secretario y el Tesorero de la misma.
+Si el partido no fuere de carácter nacional su dirección política estará a cargo de la Asamblea superior del mismo.

@@ -1,0 +1,2 @@
+Instalación de las Juntas Cantonales
+Artículo 47.- Dentro de los tres días posteriores a la publicación del acuerdo indicado en el artículo anterior, concurrirán los miembros de las Juntas Cantonales ante el respectivo Gobernador o Jefe Político, a la hora previamente señalada por éstos, a fin de prestar juramento, designar de su seno Presidente y Secretario, y fijar horas y local de trabajo en la forma indicada en el artículo 52.

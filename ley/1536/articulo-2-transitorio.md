@@ -1,0 +1,1 @@
+II.- (Artículo 98).- El Presidente de la República, los Vicepresidentes, los Diputados y los Regidores que resulten elegidos en los comicios de 1953, ejercerán sus cargos por cuatro años y medio, tal como se dispone en las Disposiciones Transitorias de la Constitución Política, números VII (artículo 116) y XVI (artículo 171), respectivamente.

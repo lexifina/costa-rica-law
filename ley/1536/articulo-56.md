@@ -1,0 +1,2 @@
+Locales para las Juntas Electorales
+Artículo 56.- Durante el período de sus funciones, las Juntas Electorales, mientras no tengan local propio, ocuparán para sus labores, por propia autoridad, las escuelas y otros locales públicos que no estén prestando determinado servicio y que consideren adecuados para ese objeto. Para ocupar locales particulares necesitarán autorización del Tribunal Supremo de Elecciones.
