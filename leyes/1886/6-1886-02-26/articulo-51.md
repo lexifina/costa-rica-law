@@ -8,3 +8,5 @@ b) Con el 1% mensual del sueldo que corresponde a los maestros, que será descon
 c) Con las sumas que los particulares o asociaciones destinen a este objeto;
 d) El 6 % que corresponde, según ley de 24 de setiembre de 1908, y además el 6 % de interés anual que reconocerá el Tesoro Público sobre las sumas que tenga en administración de dicho fondo de pensiones escolares.
 (Así reformado por el artículo 1° de la ley N° 59 del 21 de agosto de 1916)
+El fondo de pensiones de educación primaria acrecerá con el cuarenta por ciento de las entradas establecidas en los incisos a) y c) de este artículo y, además, con el cincuenta por ciento de la entrada establecida en el inciso b).
+(La adición del párrafo anterior practicada por el la ley N° 10 del 25 de octubre de 1918, posteriormente fue derogada por el artículo 1° de la ley N° 41 del 21 de agosto de 1920 "Ley de Nulidades contra Normativa Emitida en Régimen de Tinoco". Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma)

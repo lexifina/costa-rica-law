@@ -1,6 +1,6 @@
 # Ley General de Educación Común
 
-Ley N° 6 del 1886-02-26. SINALEVI, ficha 35307: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35307&param2=85666&param3=1>.
+Ley N° 6 del 1886-02-26. SINALEVI, ficha 35307: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=35307&param2=85709&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 6 de 16 | 1917-09-05 | Ley 35 | 1917-09-05 |
 | 7 de 16 | 1918-05-15 | Ley 1 | 1918-05-15 |
 | 8 de 16 | 1918-07-31 | Ley 39 | 1918-07-31 |
+| 9 de 16 | 1918-10-25 | Ley 10 | 1918-10-25 |
