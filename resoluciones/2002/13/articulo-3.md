@@ -1,0 +1,4 @@
+Artículo 3°—El Gerente de la Administración Tributaria territorial competente, conforme al procedimiento indicado en el artículo 2° de esta resolución, podrá acordar la clasificación como Gran Empresa Territorial de un sujeto pasivo que por sí solo no cumpla con las condiciones estipuladas en el articulo 1° de esta resolución, pero forme parte de un grupo económico que en su conjunto sí lo haga.
+El mismo procedimiento se aplicará en el caso de aquellos contribuyentes que integren un grupo económico al que pertenezcan uno o más sujetos pasivos que tengan la condición de Gran Empresa Territorial.
+Para tales efectos, se entenderá que la relación entre estos sujetos pasivos se manifiesta en una administración común, o porque más del menos el cincuenta por ciento de su capital pertenezca a socios comunes.
+Esta disposición se aplicará siempre que con ello se coadyuve a que la Administración Tributaria cumpla los objetivos que le fija la normativa vigente.

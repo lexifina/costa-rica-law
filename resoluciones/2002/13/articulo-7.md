@@ -1,0 +1,1 @@
+Artículo 7°—Las Administración Tributarias territoriales contarán con un plazo de un mes a partir de la publicación de la resolución a que se refiere el artículo anterior, para notificar la inclusión o exclusión de un sujeto pasivo como Gran Empresa Territorial, siguiendo el procedimiento que al efecto señala el articulo 2° de esta Resolución.

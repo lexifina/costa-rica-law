@@ -1,0 +1,1 @@
+Artículo 6°—Los impuestos, montos y periodos a que se refiere elartículo 1°, serán actualizados por esta Dirección, cuando hayan transcurrido al menos tres períodos fiscales del impuesto sobre la renta, mediante resolución dictada al efecto. Mientras no se dicte dicha resolución, regirán los impuestos, montos y períodos previamente establecidos.
