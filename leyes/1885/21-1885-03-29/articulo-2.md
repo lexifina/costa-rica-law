@@ -1,0 +1,2 @@
+Art. 2°-Bajo la denominación de "Archivo de los Ministerios", establécese una oficina á cargo de dos empleados, que se denominarán 1° y 2° archiveros.
+A esta oficina se enviarán de las cuatro Secretarías de Estado, todos los libros y documentos que en la actualidad se encuentran archivados en el local de cada una de ellas, y los que en lo sucesivo se fenezcan, con el objeto de que sean debidamente arreglados por orden de fechas, registrados en un índice que se abrirá para cada Secretaría, y custodiados bajo la responsabilidad de dichos archiveros.
