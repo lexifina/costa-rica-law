@@ -1,0 +1,1 @@
+Artículo 8º—Las ausencias a las sesiones de Junta Directiva deben ser justificadas por lo menos con una antelación de veinticuatro horas, salvo casos de fuerza mayor en que podrá hacerse en la sesión siguiente.

@@ -1,0 +1,1 @@
+Artículo 9º—Será causal para perder la condición de miembro/a de la Junta Directiva la ausencia a tres sesiones consecutivas o seis alternas en un año calendario, sin causa justificada y deberá ser reemplazada/o por parte del órgano a quien representa.
