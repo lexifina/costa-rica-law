@@ -1,0 +1,2 @@
+Artículo 21.—El presente reglamento podrá ser reformado por la asamblea general en cualquiera de sus sesiones, a solicitud de cualquiera de sus miembros, de la junta directiva o del Tribunal de Honor o cualquier particular.
+Las reformas que se aprueben entrarán en vigencia de inmediato, salvo los casos que estén pendientes de resolución y se hayan iniciado con el reglamento anterior. En estos últimos se seguirá aplicando el reglamento tal y como regía en el momento de iniciarse el trámite, salvo que la reforma favorezca a las partes.

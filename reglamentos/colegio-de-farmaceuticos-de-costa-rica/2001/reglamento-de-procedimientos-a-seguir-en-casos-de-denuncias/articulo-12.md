@@ -1,0 +1,1 @@
+Artículo 12.- El fiscal dentro del plazo conferido al efecto, estudiará el expediente y se trata de falta al Código de Moral pasará un informe al Tribunal de Honor. Si se trata de cualquier otro asunto lo pasar a la junta directiva.

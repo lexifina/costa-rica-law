@@ -1,0 +1,1 @@
+Artículo 3°—Para imponer cualquier corrección a un miembro del Colegio, la junta directiva por medio del Fiscal levantará la información del caso, en cumplimiento de lo dispuesto por el artículo 19 de la Ley Orgánica del Colegio de Farmacéuticos.

@@ -1,0 +1,1 @@
+Artículo 20.—El Tribunal de Honor actuará en cada caso libre e independientemente, ajeno a toda presión ,o consideración de la junta directiva y del fiscal, de modo tal que el informe que le presente sea lo más ajustado a la verdad y a los procedimientos a fin de que no incurra en errores de apreciación, juicios de valor o violaciones a las leyes y sus reglamentos.

@@ -1,0 +1,1 @@
+Artículo 4°—Toda falta al Código de Moral será juzgada por el Tribunal de Honor conforme con las disposiciones del artículo diez de dicho Código, así como cualquiera otra que le sea remitida por la junta directiva.
