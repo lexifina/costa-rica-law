@@ -1,1 +1,0 @@
-Transitorio I.—Los miembros del Consejo Nacional Sectorial de Trabajo y Seguridad Social, deberán juramentarse a más tardar 15 días a partir de la publicación de este decreto. Deberán tañer su primera reunión no más de 8 días después de que "todos hayan sido juramentados.
