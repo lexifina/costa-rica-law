@@ -4,7 +4,8 @@ medida que habrá de aplicarse para lograr el nivel adecuado de protección
 fitosanitaria contra ese riesgo, el Servicio Fitosanitario del Estado
 podrá tener en cuenta los siguientes factores económicos:
 a) El posible perjuicio por pérdida de producción o de ventas, en
-caso de entrada, radicación o propagación de una plaga o enfermedad.
+caso de entrada, radicación o propagación de una plaga o
+enfermedad.
 b) Los costos de control o erradicación en el territorio nacional.
 c) La relación costo-eficacia de otros posibles métodos para limitar
 los riesgos.
