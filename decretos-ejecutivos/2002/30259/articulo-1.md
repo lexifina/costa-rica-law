@@ -1,0 +1,11 @@
+Nº 30259- MP- TUR
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE LA PRESIDENCIA Y DE TURISMO
+Con fundamento en las facultades que les confieren los incisos 3) y 18) del artículo 140 de la Constitución Política y la Ley N° 6758 del 4 de junio de 1982, Ley Reguladora de Desarrollo y Ejecución del Proyecto Turístico Golfo Papagayo.
+Considerando:
+Que el párrafo segundo del artículo 12 del Decreto Ejecutivo N° 25439-MP-H-TUR, del 27 de agosto de 1996 (Reglamento a la Ley de Desarrollo y Ejecución del Proyecto Turístico Golfo Papagayo), establece que las operaciones de traspasos totales o parciales de concesiones dentro del Proyecto Papagayo, deberán de pagar la suma de $1 por metro cuadrado de terreno traspasado, de previo a su aprobación, el cual deberá de ser ajustado cada cinco años conforme a la tasa LIBOR acumulada a seis meses y anualizada con el promedio de los doce últimos meses.
+Que asimismo, el Decreto Ejecutivo N° 29794-MP-TUR, establece que en caso de que se proceda a la ejecución de una garantía que pese sobre un derecho de concesión, se tendrá como nuevo concesionario a quien resulte adjudicatario.
+Que en los procesos de ejecución de garantías, es común que en caso de no existir postores, sea el propio ejecutante quien se lo adjudica según lo autoriza el artículo 655 del Código Procesal Civil y siendo que en general es una entidad bancaria que no tiene dentro de su giro la operación de este tipo de actividades, lo traspasa a un tercero quien realizará el proyecto, por lo que los traspasos que se den bajo estas condiciones, no deberían de cancelar el monto de traspaso, ya que desvirtuaría la efectividad de la garantía, haciéndola más onerosa. Por lo tanto,
+Decretan:
+Artículo 1º—Agréguese un artículo 7 al Decreto Ejecutivo N° 29794-MP-TUR del 30 de agosto del 2001, corriendo la numeración de los siguientes, el cual dirá:
+"Artículo 7º—Cuando en virtud de un proceso de ejecución de una garantía real que pese sobre concesiones del proyecto, se lo adjudique el acreedor ejecutante, no para explotarlo, sino para propiciar su venta a efectos de recuperar los montos respaldados con esas garantías, en caso de traspaso a un tercero, esta transacción no pagará el monto establecido en el párrafo segundo del artículo 12 del Decreto Ejecutivo No. 25439-MP-H-TUR, del 27 de agosto de 1996."
