@@ -1,0 +1,4 @@
+Artículo 69 bis.—De la renta temporal voluntaria. La renta temporal es una modalidad de beneficio del Régimen Voluntario de Pensiones. El plan se adquiere con la firma de un contrato por medio del cual el afiliado pensionado destina un capital acumulado para ser retirado en pagos periódicos. La entidad autorizada gira periódicamente un monto, establecido en función del plazo definido por el afiliado, el cual no será menor a tres años, y el saldo de su cuenta individual, hasta agotar los recursos o el cumplimiento del plazo.
+En caso de muerte del afiliado pensionado el saldo se entregará a los beneficiarios que él haya designado en el contrato de suscripción del plan.
+El Superintendente definirá los parámetros técnicos de esta modalidad de beneficio.
+(Adicionado mediante sesión 488 del 6 de enero del 2005)

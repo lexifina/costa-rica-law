@@ -1,0 +1,3 @@
+Transitorio XII.—Migración de contratos al Fondo B según lo dispuesto en el Artículo 4 bis. Las entidades autorizadas deberán completar la separación de fondos a más tardar 270 días naturales después de comunicados los aspectos operativos que sobre el particular emita el Superintendente según lo dispuesto en el Artículo 4 bis. El fondo de pensiones original se denominará Fondo A. Los contratos cuyo perfil se ajuste a lo establecido en el párrafo segundo del Artículo 4 bis constituirán el Fondo B.
+Las entidades autorizadas comunicarán al Afiliado sobre el proceso de separación del fondo y su derecho a trasladarse al Fondo B de pensiones mediante la firma de un nuevo contrato de pensión.
+(Adicionado mediante sesión 488 del 6 de enero del 2005)

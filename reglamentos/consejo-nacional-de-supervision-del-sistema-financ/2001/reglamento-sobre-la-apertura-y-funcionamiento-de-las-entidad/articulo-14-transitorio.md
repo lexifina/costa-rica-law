@@ -1,0 +1,2 @@
+Transitorio XIV.—Planes de Renta Temporal y Retiro Programado autorizados. La Superintendencia autorizará, mediante resolución, la transformación de los planes voluntarios de Renta Temporal y Retiro Programado. Las entidades autorizadas deberán solicitar esta transformación en un plazo no mayor a veinte días hábiles a partir de la publicación en el Diario Oficial de esta reforma. Transcurrido ese plazo los planes autorizados previamente serán desinscritos administrativamente.
+(Adicionado mediante sesión 488 del 6 de enero del 2005)
