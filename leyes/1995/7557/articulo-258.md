@@ -6,4 +6,4 @@ c) Hermanos y hermanas.
 d) Tío y tía y sobrino y sobrina.
 e) Suegros y yernos o nueras.
 f) Cuñados y cuñadas.
-(Así adicionado y modificada su numeración por el artículo 1de la Ley N° 8013 del 18 de agosto del 2000)
+(Así adicionado por el artículo 1° de la ley N° 8013 del 18 de agosto del 2000)
