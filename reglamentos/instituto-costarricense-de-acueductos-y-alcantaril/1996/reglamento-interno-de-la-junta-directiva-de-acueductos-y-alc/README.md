@@ -15,3 +15,4 @@ Reglamento Interno de la Junta Directiva de Acueductos y Alcantarillados (AYA).
 | --- | --- | --- |
 | 1 | 1996-05-30 | la propia norma |
 | 2 | 1998-09-16 | Reglamento 45 (1998-09-16) |
+| 3 | 2003-03-11 | Reglamento 68 (2003-03-11) |
