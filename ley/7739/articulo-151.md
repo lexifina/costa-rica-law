@@ -1,0 +1,1 @@
+Artículo 151°- Audiencias. El tribunal superior señalará audiencia, en un plazo de cinco días, para oír a las partes y recibir la prueba que aporten y resolverá dentro de los tres días siguientes a la celebración.

@@ -6,5 +6,5 @@ de sus miembros.
 Las Juntas sesionarán con dos terceras partes del total de sus
 miembros.
 Los miembros no podrán ser sustituidos ni representados en las
-sesiones; su participación será obligatoria, por tanto, deberán justificar
-sus ausencias ante la Presidencia de la Junta.
+sesiones; su participación será obligatoria, por tanto, deberán
+justificar sus ausencias ante la Presidencia de la Junta.

@@ -1,0 +1,1 @@
+Artículo 47°- Permanencia en centros de salud. Los hospitales y clínicas, públicos o privados proporcionarán las condiciones necesarias para la permanencia del padre, la madre, el representante legal o el encargado, cuando la persona menor de edad sea internada y esta medida no sea contraria a su interés.

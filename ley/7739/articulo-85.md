@@ -1,0 +1,1 @@
+Artículo 85°- Validez de la relación laboral. Entiéndese plenamente válida la relación laboral o el contrato de trabajo suscrito entre el empleador y el trabajador adolescente, a partir de los quince años de edad.

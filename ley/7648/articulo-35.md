@@ -9,8 +9,8 @@ a) Exoneración del pago de timbres y derechos de registro.
 b) Exoneración de tributos e impuestos nacionales, directos o
 indirectos.
 c) Exoneración de rendir garantía de costas y depósitos para
-garantizar embargos, en los asuntos litigiosos donde sea parte activa o
-pasiva.
+garantizar embargos, en los asuntos litigiosos donde sea parte
+activa o pasiva.
 d) Inembargabilidad de sus bienes, depósitos, rentas y fondos.
 e) Franquicia en los servicios postales, telegráficos y
 radiográficos.

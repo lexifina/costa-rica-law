@@ -1,0 +1,5 @@
+Artículo 54°- Deberes de los centros de salud. Los centros de salud, públicos y privados, tendrán las siguientes obligaciones:
+a) Llevar registros actualizados del ingreso y el egreso de personas menores de edad, donde conste el tratamiento y la atención médica que se le brindó.
+b) Permitir que la persona recién nacida tenga contacto inmediato y alojamiento con su madre desde el nacimiento.
+c) Identificar a la persona nacida viva o la fallecida antes o después del parto, por medio de los controles estadísticos y la impresión de las huellas dactilares de la madre y plantares de la persona recién nacida, sin perjuicio de otras formas que indique la autoridad competente.
+d) Gestionar, en forma inmediata o a más tardar ocho días después del nacimiento, un carné de salud para la persona recién nacida, por medio de la Caja Costarricense de Seguro Social o del centro de salud correspondiente. El carné contendrá un resumen del historial de salud de cada una desde el nacimiento hasta la adolescencia y servirá para identificarla en instituciones de salud y educativas, tanto públicas como privadas.
