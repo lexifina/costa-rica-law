@@ -14,3 +14,4 @@ Declara de Utilidad Pública la Asociación Bienestar Social de Ciudad de Escaz�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-18 | la propia norma |
+| 2 | 1999-02-18 | SINALEVI (sin norma nombrada) |
