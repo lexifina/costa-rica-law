@@ -1,0 +1,2 @@
+Artículo 2°.- Se modifica, también, el íexío del artículo 2° del Decreto Ejecutivo n° 21669 - MOPT del 13 de octubre de 1992, publicado en “ La Gaceta” N° 226 del 24 de noviembre de 1992, para que se lea de la siguiente forma:
+“ Artículo 2°.- las tLuifas Establecidas conforme el artículo anterior se cobrarán en un solo sentido, con el propósito de disminuir la contaminación y Los costos de operación del sistema de peajes”.
