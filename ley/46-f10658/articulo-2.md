@@ -1,0 +1,1 @@
+Art. 2. Todos los que por hechos políticos se hallaren perseguidos con los otros Estados de la República, sea cual fuere el partido á que halla pertenecido anteriormente, tendrán en Costa Rica un seguro asilo, y podrán vivir en su territorio bajo la protección de las leyes.
