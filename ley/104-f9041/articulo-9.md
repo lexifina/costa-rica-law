@@ -1,0 +1,1 @@
+Art 9. Los porteros del Gobierno vestidos con decencia, asistirán inmediatamente tras el vital da Presidente de la República, donde estará colocado su asiento; y a ellos estará encomendado el hacer la seña correspondiente á cada uno de los actos religiosos para que las Autoridades varien de posicion, ya sentándose ya parándose ó hincándose.
