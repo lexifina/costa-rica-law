@@ -1,0 +1,1 @@
+Artículo 2°-Área de cobertura. La precalificación se realizará para aquellas organizaciones No Gubernamentales que posean su sede y acción en el área del cantón. Se consideran también para estos efectos organizaciones no gubernamentales cuya sede se encuentre fuera del cantón, pero siempre y cuando ejerzan actividades en este.
