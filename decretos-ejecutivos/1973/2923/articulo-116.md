@@ -1,2 +1,3 @@
-Artículo 116.-Recibida la solicitud se publicará un edicto con la inforon del artículo anterior por tres días seguidos en el Diario Oficial y por una vez en el periódico de mayor circulación del país.
-Dichas publicaciones serán pagadas por el interesado.
+Artículo 116.—En tratándose de productos contemplados en el capítulo 24 de la Nomenclatura Arancelaria Centroamericana (NAUCA) y su respectiva correlación con la Norma Arancelaria de Bruselas (NAB), salvo la madera rolliza cuya exportación queda prohibida, el exportador, corriendo por su cuenta los gastos, deberá publicar un edicto por tres días seguidos en "La Gaceta n con la información del artículo anterior y por una sola vez en el periódico de mayor circulación del país.
+Transcurridos diez días después de la última publicación y si no hay oposiciones se concederá el permiso, previa la inspección y el pago de los impuestos correspondientes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 10985 del 7 de diciembre de 1979)

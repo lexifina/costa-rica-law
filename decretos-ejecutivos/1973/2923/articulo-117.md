@@ -1,1 +1,2 @@
-Artículo 117.- Transcurridos diez días después de la última publicación no hay oposición se procederá a otorgar el permiso, previa la inspección y el pago de los derechos correspondientes.
+Artículo 117.—En todos los demás casos, es decir, cuando se compruebe mediante inspección que la exportación versa sobre productos no incluidos en el citado capítulo 24, o se trate de muestras, la Dirección General Forestal procederá a otorgar la respectiva autorización sin más trámite una vez cubiertos los impuestos correspondientes.
+(Así refromado por el artículo 1° del decreto ejecutivo N° 10985 del 7 de diciembre de 1979)

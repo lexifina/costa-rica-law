@@ -1,1 +1,2 @@
-Artículo 118. -Queda prohibida la exportación de madera rolliza.
+Artículo 118.—Cuando existan industrias debidamente inscritas en la Dirección General Forestal con una línea o líneas de producción específicas, siempre y cuando no comprendan productos —o muestras— del capítulo 24 ya mencionado, se podrá dar el visto bueno a la exportación sin necesidad de la inspección de rigor.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 10985 del 7 de diciembre de 1979)
