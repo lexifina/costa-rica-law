@@ -14,3 +14,4 @@ Reglamento para las Operaciones Cambiarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-10 | la propia norma |
+| 2 | 2001-10-03 | Reglamento 5091 (2001-10-03) |
