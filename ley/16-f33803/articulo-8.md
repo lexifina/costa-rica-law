@@ -1,0 +1,1 @@
+Art. 8°-Los baldíos comprendidos dentro del área de las praderías naturales expresadas en esta ley, y en una zona de bosques de diez kilómetros de ancho á orilla de dichas praderías, sólo podrán adquirirse con arreglo á disposiciones precedentes.
