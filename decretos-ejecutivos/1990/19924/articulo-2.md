@@ -1,0 +1,1 @@
+Artículo 2º.-Para importar, exportar, vender, distribuir o usar los productos psicotrópicos y benzodiacepinas, en cualquier forma de presentación, los interesados deberán solicitar el permiso respectivo, en cada caso, al Departamento de Drogas, Controles y Registros del Ministerio de Salud.

@@ -1,0 +1,1 @@
+Artículo 3º.-La venta al público de los psicotrópicos y las benzodiacepinas, solamente podrá hacerse en los establecimientos debidamente autorizados conforme con la ley y con receta médica oficial verde, especial para esta clase de productos.

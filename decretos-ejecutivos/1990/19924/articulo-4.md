@@ -1,0 +1,1 @@
+Artículo 4º.-Los regentes farmacéuticos, solo podrán entregar el fármaco rectado, si la persona que lo retira, consigna de su puño y letra el nombre completo, su firma y número de cédula de identidad y si presenta esta última para la comprobación respectiva.

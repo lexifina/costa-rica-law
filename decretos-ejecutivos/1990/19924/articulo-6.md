@@ -1,0 +1,1 @@
+Artículo 6º.-Las personas que incumplan con las normas anteriores podrán ser sancionadas de acuerdo con lo establecido en los artículos 376 y 378 de la Ley General de Salud, sin perjuicio de otras sanciones que pudieran ser aplicadas con base en las leyes vigentes.
