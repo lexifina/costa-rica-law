@@ -17,3 +17,4 @@ Reglamento de Eliminación de toda Plaza Vacante, así como las que adquieran es
 | 2 | 1990-11-07 | Decreto Ejecutivo 20100 (1990-11-07) |
 | 3 | 1991-01-24 | Decreto Ejecutivo 20225 (1991-01-24) |
 | 4 | 1991-09-06 | Decreto Ejecutivo 20720 (1991-09-06) |
+| 5 | 1992-02-13 | Decreto Ejecutivo 21105 (1992-02-13) |
