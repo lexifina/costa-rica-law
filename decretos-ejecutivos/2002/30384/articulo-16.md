@@ -1,0 +1,1 @@
+Artículo 16.—Los funcionarios que sean removidos de sus puestos, deberán devolver el Archivo Central todo documento que haya solicitado, antes del dejar su puesto de trabajo, con la debida anticipación.

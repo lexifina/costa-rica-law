@@ -1,0 +1,1 @@
+Artículo 7º—Los documentos que se remitan al Archivo serán los producidos por la diferentes dependencias del Ministerio y que hayan concluido el trámite administrativo. Los plazos de ingreso de los documentos al Archivo estarán definidos en las tablas generales de plazos de conservación de los documentos.

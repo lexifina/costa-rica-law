@@ -1,0 +1,1 @@
+Artículo 21.—Los expedientes o documentos devueltos al archivo, serán revisados por el personal de éste para constatar el estado antes de entregar al prestatario el recibo de préstamo de documentos cancelado.

@@ -1,0 +1,1 @@
+Artículo 9º—El horario de consulta de los documentos que se encuentren en custodia en el Archivo será de las ocho horas a las quince horas de Lunes a Viernes, con la finalidad de que el personal del Archivo, cuente con el tiempo suficiente para reubicar los documentos en el depósito o donde corresponden.

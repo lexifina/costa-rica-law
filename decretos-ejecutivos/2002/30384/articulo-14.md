@@ -1,0 +1,1 @@
+Artículo 14.—La Jefatura del Archivo podrá autorizar la salida de documentos para ser reproducidos fuera de las instalaciones, cuando no se cuente con equipo requerido para ello dentro de las mismas. En tal caso la documentación saldrá bajo custodia de un funcionario del Archivo y el usuario deberá cubrir el costo de la reproducción en su totalidad.

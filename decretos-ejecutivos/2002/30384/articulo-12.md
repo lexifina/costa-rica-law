@@ -1,0 +1,1 @@
+Artículo 12.—La Jefatura del Archivo podrá retirar en forma temporal o permanente de la consulta del público los documentos cuyo deterioro sea evidente, procurando rehabilitar su acceso lo antes posible, cuando sea transitorio y cuando no, se procederá a microfilmarlo para poner a disposición del usuario, en este caso la microficha.

@@ -1,0 +1,1 @@
+Artículo 26.—El Ministerio deberá dotar al archivo de un local que reúna las condiciones adecuadas según lo indicado en este Reglamento, así como dotarlo de mobiliario e instrumentos necesarios para que pueda cumplir con su cometido y con lo indicado en este Reglamento.

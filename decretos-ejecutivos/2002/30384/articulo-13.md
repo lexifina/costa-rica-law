@@ -1,0 +1,1 @@
+Artículo 13.—Sobre los documentos devueltos que presenten daños, deberán notificársele al responsable del Archivo Central para que se realicen las gestiones correspondientes a fin de que sea sancionado el prestatario y este asuma el costo de la correspondiente reparación o reposición según proceda.
