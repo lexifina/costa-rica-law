@@ -1,6 +1,8 @@
+(Derogado)
 Nº 25066-MINAE
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DEL AMBIENTE Y ENERGIA,
+(DEROGADO, por artículo 9° del Decreto Ejecutivo No. 31676 de 16 de enero de 2004).
 En uso de las facultades que les confieren los artículos 50, 140,
 incisos 3), 8) y 18) de la Constitución Política, en relación con los
 artículos 26, inciso b) y 28, inciso a) y 83 de la ley Nº 6227 del 2 de

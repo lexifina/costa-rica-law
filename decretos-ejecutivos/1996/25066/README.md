@@ -13,3 +13,4 @@ MINAE Crea Oficina Costarricense de Implementación Conjunta OCIC
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-04-22 | la propia norma |
+| 2 | 2004-01-16 | Decreto Ejecutivo 31676 (2004-01-16) |
