@@ -1,0 +1,1 @@
+Art 11° Cada Ingeniero de División, tendrá, duramente la construcción, sus ingenieros de sección o de asistencia, quienes permanecerán en los campamentos y deberán inspeccionar constantemente los trabajos a su cargo.
