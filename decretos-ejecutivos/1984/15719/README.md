@@ -14,3 +14,4 @@ Declara Emergencia Nacional Programa CEN-CINAI
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-10-18 | la propia norma |
+| 2 | 1984-10-18 | SINALEVI (sin norma nombrada) |
