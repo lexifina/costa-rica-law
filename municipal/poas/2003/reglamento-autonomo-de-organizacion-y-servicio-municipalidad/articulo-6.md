@@ -1,0 +1,1 @@
+Artículo 6º—El acto administrativo interno sólo producirá su efecto después de notificado la o el servidor, en la forma prevista en ESTE REGLAMENTO, Códigos Municipal y de Trabajo, excepto si le concede únicamente derechos o beneficios, en cuyo caso lo producirá desde que se adopte.

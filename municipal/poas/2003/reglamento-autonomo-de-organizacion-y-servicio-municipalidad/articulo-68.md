@@ -1,0 +1,1 @@
+Artículo 68.—Los servidores cumplirán su jornada laboral de trabajo, dentro de los horarios que se señala en este Reglamento. Cada jefatura regulará la forma en que sus subalternos puedan tomar dicho descanso, a efecto de que no se cause menoscabo del trabajo, ni mucho menos se produzca el cierre de ninguna oficina.

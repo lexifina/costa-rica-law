@@ -1,0 +1,1 @@
+Artículo 42.—La instancia encargada de los Recursos Humanos debe mantener actualizado el Manual de Clases de Puesto, y efectuar un estudio integral de los mismos cuando sea necesario, al menos una vez al año.

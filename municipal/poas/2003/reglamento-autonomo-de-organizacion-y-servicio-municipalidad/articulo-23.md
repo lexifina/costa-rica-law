@@ -1,0 +1,1 @@
+Artículo 23.—En caso de inopia en el concurso interno, se sacará la plaza a concurso externo publicado en un periódico de circulación nacional, bajo las mismas condiciones del interno; se notificará a cada trabajadora o trabajador participante las conclusiones de esta decisión con sus principales justificantes.

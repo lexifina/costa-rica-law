@@ -1,0 +1,2 @@
+Artículo 95.—Sólo procederá de acuerdo a lo establecido en el artículo 146, inciso b), del Código Municipal o por la apertura de mobilidad laboral decretada por el Concejo Municipal en la primera quincena del mes de junio y si existieran candidatos (máximo dos), deberá ser incluido el pago en el presupuesto ordinario para ser ejecutado en el año siguiente, para lo anterior no habrá tope de cesantía.
+En materia de preaviso queda sujeto a lo que dispone el Código de Trabajo.

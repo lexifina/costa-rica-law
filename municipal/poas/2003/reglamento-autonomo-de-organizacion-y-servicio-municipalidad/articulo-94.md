@@ -1,0 +1,1 @@
+Artículo 94.—El pago del auxilio de cesantía se hará conforme a lo dispuesto en los artículos 29, 30 y 85 del Código de Trabajo y en ningún caso podrá exceder dicho auxilio del salario de 8 meses., excepto que en reformas posteriores se rompa con dicho tope.

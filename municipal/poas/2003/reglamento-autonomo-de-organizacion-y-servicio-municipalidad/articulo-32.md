@@ -1,0 +1,1 @@
+Artículo 32.—Se considera un acto de discriminación, cuando los mecanismos empleados para este proceso no sean adaptados a las condiciones de la o el aspirante, cuando se exijan requisitos adicionales a los establecidos para todas las o los solicitantes o cuando no se emplee a una o un trabajador idóneo en razón de su discapacidad.

@@ -1,0 +1,2 @@
+Artículo 8º—La aplicación de este Reglamento corresponde al Alcalde Municipal y representantes patronales, según la legislación laboral que corresponda y rige para todas las y los funcionarios municipales.
+El Alcalde Municipal deberá interpretar y resolver las dudas o lagunas que contenga este Reglamento por lo cual se podrá consultar a la instancia encargada de los Recursos Humanos o en su defecto a la asesoría legal respectiva.

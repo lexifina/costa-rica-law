@@ -1,0 +1,2 @@
+Artículo 18.—La Selección de personal se hará por medio de pruebas de idoneidad y/o atestados para el caso de cargos que deban llenarse con profesionales, a las que únicamente se admitirán aspirantes que reúnan los requisitos para ser nombrados en el puesto que se trate.
+Para la elaboración y calificación de dichas pruebas, la instancia encargada de los Recursos Humanos, podrá requerir el asesoramiento técnico de la dependencia donde existan puestos vacantes, cuyos jefes están en la obligación de brindarlo.

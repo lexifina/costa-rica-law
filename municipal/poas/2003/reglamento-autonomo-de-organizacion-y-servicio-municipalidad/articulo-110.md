@@ -1,0 +1,1 @@
+Artículo 110.—Incurrirá en falta grave el servidor (a) que por dolo o complacencia, marque una tarjeta ajena o que maliciosamente altere, mutile o la haga desaparecer en aquellos casos en que aún se mantiene este sistema; como también el que dañe o altere los otros medios de control que pudiesen existir.

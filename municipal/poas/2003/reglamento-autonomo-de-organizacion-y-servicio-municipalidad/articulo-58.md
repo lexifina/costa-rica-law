@@ -1,0 +1,1 @@
+Artículo 58.—Para todo lo que se refiere a esta materia, sino existe incompatibilidad con este reglamento se aplicarán supletoriamente el Código de Trabajo y las leyes laborales conexas y el Código Civil cuando no existan normas reguladoras.

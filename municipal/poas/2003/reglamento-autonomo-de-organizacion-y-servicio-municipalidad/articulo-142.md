@@ -1,0 +1,1 @@
+Artículo 142.—En caso de integración del ordenamiento jurídico por laguna del presente capítulo se aplicarán en forma supletoria las disposiciones del Código de Trabajo, la Ley General de la Administración Pública, y demás normas del ordenamiento jurídico administrativo, que así se requieran.

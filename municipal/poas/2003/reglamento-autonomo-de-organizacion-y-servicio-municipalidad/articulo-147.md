@@ -1,0 +1,1 @@
+Artículo 147.—Los plazos para denunciar la comisión de la falta y, aquel dentro del cual la instancia encargada de los Recursos Humanos, debe dictar la resolución final, son perentorios e improrrogables.

@@ -1,0 +1,1 @@
+Artículo 33.—La Municipalidad debe proporcionar las facilidades básicas y normales con el fin de que todas las o los trabajadores, sin discriminación alguna, puedan capacitarse y superarse en el empleo.

@@ -1,0 +1,1 @@
+Artículo 15.—Las modificaciones de las condiciones de trabajo permitidas por la ley se efectuarán mediante acción de personal expedida por instancia encargada de los Recursos Humanos, y autorizadas por el Alcalde Municipal y la o el funcionario que éste designe con la autoridad respectiva.

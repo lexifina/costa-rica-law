@@ -1,0 +1,3 @@
+CAPÍTULO III
+Principios y propósitos que inspiran este Reglamento
+Artículo 10.—Son principios que inspiran la maximización de los recursos, la excelencia, igualdad en este Reglamento y que deben orientar las labores de la Municipalidad y sus servidores(as), y el servicio al usuario(a), la armonización y la superación de los procedimientos, la simplificación, flexibilidad, eficacia, trabajo en equipo, la proporcionalidad y el apego a las más estrictas normas de ética en el ejercicio de la función pública, así como el respeto a la dignidad y a los derechos de la trabajadora o trabajador y su bienestar, con acato riguroso del principio de legalidad.

@@ -1,0 +1,2 @@
+Artículo 97.—Para el empleo del recurso de horas extraordinarias, será necesario y obligatorio la autorización previa del superior inmediato.
+Las horas extraordinarias aprobadas sin la respectiva justificación, quedan totalmente prohibidas, también aquellas que las que en razón de ineficiencia quieran ser empleadas como sustituto de tiempo y de labores no realizadas en la jornada ordinaria de trabajo.

@@ -1,0 +1,1 @@
+Artículo 118.—Toda llegada tardía debe ser justificada ante la jefatura inmediata, el mismo día de su ocurrencia, con exposición clara y precisa de las razones que le impidieron presentarse a la hora señalada para el ingreso de labores. Lo anterior debe ser tomado en cuenta para efectos de valorar la misma, aceptarla o rechazarla por parte de la jefatura inmediata.

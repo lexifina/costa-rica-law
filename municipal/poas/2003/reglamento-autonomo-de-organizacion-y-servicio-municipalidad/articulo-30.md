@@ -1,0 +1,2 @@
+Artículo 30.—Es deber del Jefe Inmediato, enviar copia al expediente personal de las o los funcionarios, de aquellas gestiones que dentro de su ámbito de competencia, pueden generar actos jurídicoadministrativos.
+La información contenida en el prontuario así como en el expediente personal, es de carácter confidencial y sólo tendrán acceso a las o los funcionarios que lo requieran para labores propias del cargo, el servidor o servidora y su representante autorizado.

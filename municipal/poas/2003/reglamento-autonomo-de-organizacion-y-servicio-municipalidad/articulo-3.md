@@ -1,0 +1,1 @@
+Artículo 3º—Los representantes patronales que sean elegidos por el Concejo, obligan al patrono, en las relaciones, actos y disposiciones de índole laboral que tengan con los trabajadores de la Municipalidad, como si ésta, personalmente hubiera realizado el acto o actos de que se trate. Siempre y cuando sea ratificado por el Concejo en la sesión ordinaria siguiente.

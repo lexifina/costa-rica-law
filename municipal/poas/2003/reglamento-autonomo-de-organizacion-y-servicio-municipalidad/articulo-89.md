@@ -1,0 +1,4 @@
+CAPÍTULO XXII
+Del salario, aguinaldo, cesantía y preaviso
+Artículo 89.—Las categorías de los puestos y la escala salarial correspondiente a los mismos en ningún caso podrán ser inferiores a los mínimos legales establecidos por el Ministerio de Trabajo y Seguridad Social y en todo caso deberán de guardar sentido de proporcionalidad, oportunidad y conveniencia.
+La escala de Salario será aprobada por el Concejo de acuerdo a lo establecido en los artículos 120, 121, 122 del Código Municipal (Ley N° 7794). Para tal efecto, se pedirá un estudio de salarios a la Dirección General de Servicio Civil, a efecto de que se elabore una nueva escala salarial para la municipalidad, la cual regirá una vez que sea aprobada por el Concejo Municipal y la Contraloría General de la República. A partir de ahí el Concejo definirá las políticas salariales que en el futuro regirán para los empleados municipales.

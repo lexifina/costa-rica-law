@@ -1,0 +1,1 @@
+Artículo 29.—El expediente del personal deberá contener todos aquellos documentos y datos que sirvan para determinar las calidades y el historial de la relación de servicio en asuntos como: asistencia, evaluación del desempeño, disciplina, calidad de la o el funcionario, y otros que se consideren de importancia.

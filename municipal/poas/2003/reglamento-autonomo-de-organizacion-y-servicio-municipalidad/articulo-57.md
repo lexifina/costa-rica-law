@@ -1,0 +1,1 @@
+Artículo 57.—Se prohíbe y sanciona el acoso y hostigamiento sexual como una práctica discriminatoria por razón del sexo, contra la dignidad de la mujer y del hombre en las relaciones laborales y en lo pertinente se regirá lo dispuesto en la Ley 7476.

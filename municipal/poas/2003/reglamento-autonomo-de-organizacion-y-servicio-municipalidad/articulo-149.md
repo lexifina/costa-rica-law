@@ -1,0 +1,1 @@
+Artículo 149.—Toda cita que para los efectos del artículo anterior se curse, deberá hacerse por escrito mediando fecha en que se entrega la cita y aquel en que debe comparecer, un plazo lógico de convocatoria.

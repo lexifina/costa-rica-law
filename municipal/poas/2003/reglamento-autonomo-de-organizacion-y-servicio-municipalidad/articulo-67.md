@@ -1,0 +1,1 @@
+Artículo 67.—No obstante lo dispuesto en el artículo anterior, estarán obligados (as) a prestar sus servicios hasta por 12 horas diarias, con hora y media de descanso conforme lo dispone el artículo 143 del Código de Trabajo las o los funcionarios a cargo de las dependencias de mayor rango jerárquico de la Municipalidad.

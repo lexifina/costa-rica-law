@@ -1,0 +1,1 @@
+Artículo 90.—Las o los funcionarios de esta Municipalidad, podrán acogerse a cualquier plus salarial tales como Carrera Profesional, Prohibición, Dedicación Exclusiva, Disponibilidad, contemplados dentro de otros regímenes de la Municipalidad, según las disposiciones legales vigentes en esa materia; sin embargo, es potestad de la administración el otorgar o no, esos beneficios.

@@ -1,0 +1,1 @@
+Artículo 125.—La valoración de las faltas en que incurrieren los funcionarios o funcionarias, se fundamentará para determinación de la sanción correspondiente en los Principios de Derecho, de causalidad, objetiva y psicológica y de proporcionalidad y del debido proceso.
