@@ -1,6 +1,6 @@
 ARTÍCULO 4.- Rótulo
-En los estacionamientos públicos deberá colocarse en un lugar visible
-el siguiente rótulo: "Por disposición de la Ley reguladora de los
+En los estacionamientos públicos deberá colocarse en un lugar
+visible el siguiente rótulo: "Por disposición de la Ley reguladora de los
 estacionamientos públicos, este negocio está obligado a garantizar la
 seguridad de los vehículos a su cargo, así como la de sus accesorios y
 objetos guardados en ellos. El incumplimiento de esta obligación autoriza
