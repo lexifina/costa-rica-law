@@ -1,0 +1,1 @@
+Artículo 37.—El Agente Recaudador deberá retirar el cheque señaÍado en el saldo anterior, en las cajas de la División de Administración de Fondos del Instituto, en la Oficina Regional correspondiente cuando se trate de Agentes Recaudadores usuales. .
