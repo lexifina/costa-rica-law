@@ -1,0 +1,1 @@
+Artículo 10.—Se dejan sin efecto la obligatoriedad de incorporar dentro de los elementos de soporte correspondiente que debe contener la factura de combustible, la firma y cédula del beneficiario, así como el precio cobrado por bombeo y acarreo.

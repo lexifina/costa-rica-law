@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el paso 3, Punto D, del Proceso 2, para que se lea de la siguiente forma:
+D. Zarpe Nacional con fecha y hora real de salida, firma y sello de la Capitanía de Puerto, el cual no podrá ser anterior a la fecha en que se emitió la orden de combustible a precio preferencial que se pretende liquidar. Se exceptúa de la presentación del zarpe las embarcaciones Artesanales en Pequeña Escala cuyos propietarios deberán utilizar el formulario de declaración jurada de los días de pesca (ver Anexo Nº 3).

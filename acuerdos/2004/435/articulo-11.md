@@ -1,0 +1,1 @@
+Artículo 11.—Se dejan sin efecto la obligatoriedad de aportar para efecto de tramitar el combustible a precio preferencial, la constancia de venta del producto debidamente preimpresa y prenumerada, debiendo utilizarse para dichos efectos, el formulario adoptado sobre el particular por la Institución.
