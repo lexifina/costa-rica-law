@@ -14,3 +14,4 @@ Norma Oficial para la Sal de Calidad Alimentaria
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-05-16 | la propia norma |
+| 2 | 1992-06-03 | Decreto Ejecutivo 21344 (1992-06-03) |
