@@ -14,3 +14,4 @@ Autoriza a la Corporación Bananera Nacional (CORBANA) a Tomar un Porcentaje de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-02-18 | la propia norma |
+| 2 | 1998-02-18 | Ley 8 |
