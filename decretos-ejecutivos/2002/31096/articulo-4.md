@@ -1,0 +1,1 @@
+Artículo 4º—La propietaria de dicho inmueble se compromete a desarrollar las actividades que están estipuladas en el Plan de Manejo y que no comprometerán la existencia de la flora o la fauna y dará la colaboración dentro de sus posibilidades a investigadores y funcionarios del Ministerio del Ambiente y Energía, que visiten dicha área en labores oficiales a su cargo.
