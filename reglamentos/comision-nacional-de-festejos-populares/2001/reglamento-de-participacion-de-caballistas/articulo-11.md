@@ -1,0 +1,1 @@
+12.-Es responsabilidad del jinete velar por el buen estado físico y de salud, en general de cada caballo inscrito. Según las regulaciones de Ministerio de Agricultura y Ganadería para este tipo de eventos señalado en el Decreto No 28516-MAG, y las obligaciones, se solicitará e certificado de anemia infexiosa equina. ( Muestra aleatoria).

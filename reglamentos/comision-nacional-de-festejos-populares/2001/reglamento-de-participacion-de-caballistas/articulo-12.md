@@ -1,0 +1,1 @@
+13.-Para darle fluidez al desfile de caballistas, se evitarán la paradas innecesarias y no se permite a los jinetes devolverse una ve; iniciado el recorrido. Esto para evitar embotellamientos, el norma desarrollo del desfile y salvaguardar la integridad de los animales.

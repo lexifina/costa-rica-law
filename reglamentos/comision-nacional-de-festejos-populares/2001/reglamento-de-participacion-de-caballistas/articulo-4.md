@@ -1,0 +1,1 @@
+4°-El jinete que falte a la moral o que atente contra la seguridad del público o de sus compañeros, será separado del desfile, previa amonestación de los fiscales, así como el que maltrate notoriamente la integridad física de su caballo.

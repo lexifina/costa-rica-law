@@ -1,0 +1,1 @@
+3°-La vestimenta debe ser adecuada, acorde a la actividad. Se excluirán los jinetes que se presenten vestidos con pantaloneta o en tenis disfraces de fantasía, en fin cualquier vestimenta que pueda ridiculiza algún personaje o el evento. También quienes se presenten en grado de ebriedad o drogadicción.

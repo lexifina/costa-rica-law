@@ -1,0 +1,1 @@
+7°-Los caballistas tendrán derecho a participar con su número de inscripción en la rifa de premiación, que se realizará entre los participante al acto de cierre. De salir favorecido deberá presentar su cédula de identidad y el recibo correspondiente, asimismo si el ganador es menor de edad, deberá presentarse con el padre o la madre y el requisito ante mencionado.

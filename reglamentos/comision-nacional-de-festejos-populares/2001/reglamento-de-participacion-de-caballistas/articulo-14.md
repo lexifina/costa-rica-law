@@ -1,0 +1,1 @@
+15.-No se permitirá a los participantes llevar en su vestimenta gorra o número publicidad de patrocinadores que no haya sido aprobada expresamente por la Subcomisión de Tope Nacional. La Subcomisión se reserva el derecho de descalificar al infractor, previa amonestación de los fiscales.

@@ -1,0 +1,1 @@
+17.-Cualquier situación no contemplada en el presente Reglamento de participación en el Tope Nacional 2001, será resuelto por la Subcomisión, respetando las disposiciones de la Comisión de FestejoPopulares 2001-2002, y en apego estricto a las Leyes de la República.

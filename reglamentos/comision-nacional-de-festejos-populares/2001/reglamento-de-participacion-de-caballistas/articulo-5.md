@@ -1,0 +1,2 @@
+5°-La Subcomisión de Tope no asume ninguna responsabilidad por accidentes, los mismos correrán por cuenta y riesgo del dueño de bestia.
+6°-Las volantas deben ser inscritas por una persona encargada, la cual se responsabiliza de transportar un número de personas adecuadas, de manera que no se obligue a la bestia a hacer un esfuerzo mayor al normal garantizando que el animal esta debidamente adiestrado.
