@@ -1,0 +1,1 @@
+Art. 7°.-En los documentos que conforme á la ley deben llevar timbre, éste se pegará de modo que sobre él ó sobre todos los que el documento requiera, queden escritas, por lo menos, la fecha y parte de la firma de quien se obliga.
