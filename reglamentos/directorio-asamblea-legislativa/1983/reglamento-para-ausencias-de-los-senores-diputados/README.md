@@ -14,3 +14,4 @@ Reglamento para ausencias de los señores Diputados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-05-30 | la propia norma |
+| 2 | 1993-06-21 | Acuerdo 10 (1993-06-21) |
