@@ -1,0 +1,1 @@
+Artículo 5°-Formato de los formularios. Apruébense los Anexos 1, 2, 3, que corresponden a los formatos de formularios autorizados por la Dirección General de la Tributación Directa, así como sus fechas de vigencia.

@@ -1,0 +1,1 @@
+Artículo 6°-Distribución de los formularios. Los formularios descritos en los Anexos del I al 3 de esta resolución se proporcionarán gratuitamente en las Administraciones Regionales Tributarias y la Administración de Grandes Contribuyentes.
