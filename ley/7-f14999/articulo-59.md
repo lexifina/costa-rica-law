@@ -1,0 +1,2 @@
+59.
+Los jefes del resguardo por sì, ó por medio de sus subalternos visitarán con frecuencia los barcos que se estén cargando; y cuando encontraren moneda, frutos o efectos cargados sin registro ni licencia, les mandaràn desembarcar, los depositaràn en los almacenes de la aduana, y darán cuenta á los administradores para que procedan á la formacion de causa, declaracion del comiso y castigo del delincuente y complices, con todo el rigor que disponen las leyes.

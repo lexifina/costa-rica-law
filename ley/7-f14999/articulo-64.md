@@ -1,0 +1,2 @@
+64.
+En estos depósitos durarán los efectos el tiempo que quieran los propietarios; mas si concluído un año no se extrajésen, causaràn integros los derechos de importacion. Tambien los adeudarán si dentro del año se extrajésen de los almacenes para introducirlos en lo interior del Estado: y si estos depositos no pasasen de treinta dias, pagarán únicamente por todo derecho el bodegage, pero excediendo de este tiempo causarán un dos por ciento sobre los valuos de este arancel, y se cobrará al tiempo de su extraccion.

@@ -1,0 +1,2 @@
+47.
+Los capitanes ò sobrecargos, antes de poner los buques à la carga, se presentarán al comandante de puertos solicitando el correspondiente permiso.—El comandante nombrará inteligentes que se cercioren de la seguridad de las naves: si estàn de marineras, y en disposicion de navegar sin riesgo; de si llevan el velamen, jarcia y demas repuestos correspondientes à la distancia y regular duracion de los viajes; y de si tienen los viveres y agua de que puedan necesitar, segun el nùmero de pasageros y equipages.

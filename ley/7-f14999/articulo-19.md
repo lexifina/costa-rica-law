@@ -1,0 +1,2 @@
+19.
+Los buques extrangeros que arribaren a los puertos del Estado obligados de algun riesgo ó de la necesidad de hacer aguada y abastecerse de mantenimnientos, no podrán permanecer en ellos mas tiempo que el que fuese preciso para su remedio; y si fuesen mercantes estarán sujetos à presentacion de manifiestos, visitas y demas reconocimientos que con presencia de las circunstancias, dispusiese el comandante del Puerto de conformidad con el administrador y Jefe del resguardo.

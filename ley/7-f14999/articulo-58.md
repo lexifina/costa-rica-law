@@ -1,0 +1,2 @@
+58.
+Cerrado, sellado y rotulado el registro con el nombre del buque, el del ayudante del capitan y el del puerto de su destino, la fecha en que se despacha y las firmas del administrador y contador, se entregará al capitan, despues de haber satisfecho los derechos de porte, que no excederán de veinte reales; y el capitan lo pondrà del mismo modo en manos de la autoridad de hacienda que resida en el puerto del destino.

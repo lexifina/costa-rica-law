@@ -1,0 +1,2 @@
+15.
+Cuando el resguardo del muelle, advirtiere en los bultos alguna señal de estar fracturados, dará cuenta al administrador para que este con el contadorvista y a presencia de los interesados y de los dependientes del resguardo que hubieren acompañado la carga, haga el examen conveniente, tomando en su caso las providencias necesarias á efecto de asegurar el interes de la hacienda y el de los propietarios.

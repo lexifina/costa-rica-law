@@ -1,0 +1,2 @@
+50.
+En seguidas presentaràn á los administradores de las aduanas de los puertos, donde se hallen fondeados el ejemplar de la licencia, con peticion para que se mande abrir el respectivo registro.—Los administradores, con intervencion de los contadores, proverán de conformidad; y en consecuencia señalaràn los dependientes del resguardo que han de pasar á bordo y á los muelles para los reconocimientos de lo que se carga, y á llevar la cuenta y razon del número de bultos que se embarguen, con expresion de sus marcas; zelando é impidiendo al mismo tiempo todo fraude.
