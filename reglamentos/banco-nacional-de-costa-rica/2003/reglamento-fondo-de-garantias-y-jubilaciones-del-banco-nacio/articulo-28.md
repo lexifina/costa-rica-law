@@ -1,0 +1,1 @@
+Artículo 28.—Sesiones. La Junta Administrativa deberá reunirse en sesión ordinaria al menos una vez por mes, en el lugar, día y hora que sus miembros determinen y en sesión extraordinaria las veces que sea convocada por escrito por el Presidente o por cuatro miembros de la Junta o por lo menos el 50% más uno de los integrantes del Fondo.

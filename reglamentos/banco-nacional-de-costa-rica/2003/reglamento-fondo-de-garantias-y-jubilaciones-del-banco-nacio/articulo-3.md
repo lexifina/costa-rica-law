@@ -1,0 +1,1 @@
+Artículo 3º—Afiliación. La participación en el Fondo es de carácter obligatorio para todos los funcionarios y empleados del Banco, ya sea que se encuentren nombrados en propiedad, o bien como ocasionales.

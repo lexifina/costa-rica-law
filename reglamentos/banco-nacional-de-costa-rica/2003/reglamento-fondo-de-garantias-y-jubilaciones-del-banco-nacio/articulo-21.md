@@ -1,0 +1,1 @@
+Artículo 21.—Permiso sin goce de sueldo. Cuando el Banco autorice a un integrante del Fondo un permiso sin goce de sueldo, el tiempo que dure el referido permiso no se reconocerá como servicio cotizado al Fondo y no se contemplará para consolidar los derechos a pensión.

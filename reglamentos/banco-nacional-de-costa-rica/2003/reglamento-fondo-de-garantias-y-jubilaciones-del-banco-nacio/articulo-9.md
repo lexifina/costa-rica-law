@@ -1,0 +1,3 @@
+CAPÍTULO III
+Beneficio y Beneficiarios
+Artículo 9º—Beneficio para Miembro y Cónyuge. Todo miembro, que cumpla los requisitos estipulados en el presente reglamento, tendrá derecho a una pensión mensual, que cesa a su fallecimiento, salvo que el Miembro fuera casado o conviviere en unión de hecho, en el momento de pensionarse, en el entendido de que dicha unión debe ajustarse a los requisitos que para tal efecto estipula la ley sobre la materia, en cuyo caso el cónyuge o el conviviente supérstite tendrá derecho a continuar disfrutando de esa pensión al fallecimiento de aquel, pero reducida al 70% del monto que disfrutaba el miembro.
