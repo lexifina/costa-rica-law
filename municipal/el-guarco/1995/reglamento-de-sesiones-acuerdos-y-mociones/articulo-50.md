@@ -1,0 +1,1 @@
+Artículo 50.—Todo acuerdo por moción se tomara previo dictamen de comisión y/o después de considerarse suficientemente discutido el asunto. El dictamen de comisión podrá dispensarse en caso de urgencia, si el Concejo lo acuerda.

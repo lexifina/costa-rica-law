@@ -1,0 +1,1 @@
+Artículo 36.—Los dictámenes de comisión deberán presentarse en la secretaría municipal y serán incluidos por el Presidente Municipal en el orden del día siguiendo el orden en que fueron presentados. Para ese efecto, la secretaria, al recibir los dictámenes consignará al pie de ellos, la hora y fecha de presentación. Deberán ir firmados por el Presidente y secretario respectivo.

@@ -1,0 +1,1 @@
+Artículo 8°—El orden del día de esta primera sesión, será elaborada por la secretaria municipal e incluirá los aspectos protocolarios de solemnidad, además de la participación de los Jefes de Fracción y del Presidente electo. Para las sesiones siguientes, el orden del día lo establecerá el Presidente Municipal.

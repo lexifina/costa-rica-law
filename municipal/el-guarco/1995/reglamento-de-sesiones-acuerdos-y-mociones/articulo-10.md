@@ -1,0 +1,1 @@
+Artículo 10.—La votación será secreta y a través de las boletas que para tal efecto, confeccione la secretaría municipal. El conteo de los votos o hará la secretaria municipal, en presencia de los jefes de fracción.

@@ -1,0 +1,2 @@
+Artículo 19.—Las sesiones ordinarias del Concejo, se celebrarán los primeros cuatro lunes y jueves de cada mes, en el Salón de Sesiones del Concejo, iniciándose a las diecisiete horas treinta minutos y procurando finalizar a las diecinueve horas treinta minutos.
+Si por algún motivo, se considera que será necesario extender el período de una sesión ordinaria, este podrá efectuarse sólo por acuerdo de mayoría simple y a través de moción.

@@ -1,0 +1,1 @@
+Artículo 6°—La sesión será pública y constituye un acto de importancia cantonal y a la misma, se cursará invitación a los sectores comunales, educativos, religiosos, deportivos y otros lícitos que operan en el Cantón.

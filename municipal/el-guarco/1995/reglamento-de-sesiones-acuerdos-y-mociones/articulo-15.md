@@ -1,0 +1,1 @@
+Artículo 15.—Las designaciones contempladas en el artículo anterior, serán de conocimiento del Concejo en la sesión ordinaria inmediata en la cual se incluya dentro del orden del día, el capítulo de dictámenes de comisiones y sobre las mismas, no cabrá recurso de apelación alguna por parte del Concejo.

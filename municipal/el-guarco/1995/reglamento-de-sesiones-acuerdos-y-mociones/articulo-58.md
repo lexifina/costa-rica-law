@@ -1,0 +1,1 @@
+Artículo 58.—El Presidente determinará/con base en la discusión, el procedimiento de votación, el cual puede ser, poniéndose de pie, levantando la mano derecha, a viva voz o por consenso cuando no exista oposición al asunto que se trata.

@@ -1,0 +1,1 @@
+Artículo 56.—Cuando uno o varios miembros de una comisión se encuentren en desacuerdo con el criterio de la mayoría de los miembros, podrá remitir un dictamen de comisión de minoría en contra o a favor de lo resuelto, argumentando los criterios que conllevan a la presentación del mismo.

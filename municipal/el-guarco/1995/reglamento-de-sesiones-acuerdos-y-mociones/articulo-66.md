@@ -1,0 +1,1 @@
+Artículo 66.—Cuando concurriere a sesión uno o varios particulares invitados o a quienes se les haya concedido audiencia, el Presidente hará la presentación, exponiendo los motivos de su presencia y de inmediato les concederá el uso de la palabra para que hagan la exposición respectiva.

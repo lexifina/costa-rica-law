@@ -1,0 +1,1 @@
+Artículo 38.—El Concejo podrá pasar los dictámenes de cualquier comisión o parte de ellos, a conocimiento de otra que sea esencialmente asignada por el Presidente para que se pronuncie sobre, un caso en concreto.

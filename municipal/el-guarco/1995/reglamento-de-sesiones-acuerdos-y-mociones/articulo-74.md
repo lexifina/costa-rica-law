@@ -1,0 +1,1 @@
+Artículo 74.—Será obligación de la secretaría municipal, facilitar un ejemplar del presente reglamento a quienes sean electos miembros del Concejo Municipal a efecto de su conocimiento con un mínimo de un mes antes que asuman su puesto.

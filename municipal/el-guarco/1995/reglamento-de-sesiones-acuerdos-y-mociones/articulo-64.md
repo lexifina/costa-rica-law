@@ -1,0 +1,1 @@
+Artículo 64.—La secretaría remitirá al Presidente en orden de presentación, las solicitudes de particulares, dándose trámite según el interés municipal, la oportunidad y cualquier otro elemento que se considere pertinente.

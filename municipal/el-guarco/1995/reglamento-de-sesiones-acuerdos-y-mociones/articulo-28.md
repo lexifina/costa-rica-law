@@ -1,0 +1,1 @@
+Artículo 28.—Para ausentarse del recinto de sesión, se requiere la autorización expresa del Presidente, caso contrario, se tomará por abandono de la sesión, con la consecuente pérdida de la dieta. Para los alcances del párrafo anterior, el Presidente procurará mantener en todo momento, el quórum requerido para continuar la sesión.

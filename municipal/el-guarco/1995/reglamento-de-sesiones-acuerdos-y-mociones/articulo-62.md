@@ -1,0 +1,1 @@
+Artículo 62.—Para los alcances del artículo anterior, cada grupo organizado hará sus planteamientos a través de la persona de mayor jerarquía del mismo y quien haya sido acreditado para tales efectos.

@@ -1,0 +1,1 @@
+Artículo 73.—El presente reglamento puede ser objeto de ajustes por sólo votación de mayoría calificada. Sin embargo, cuando las leyes que regulan el régimen municipal sufran ajustes, los ajustes se harán por mayoría simple de los miembros del Concejo.
