@@ -1,0 +1,1 @@
+Artículo 21.- El rechazo del recurso de Amparo no prejuzga sobre la responsabilidad civil o penal en que haya podido incurrir el funcionario o empleado autor del agravio, quedándole al ofendido el derecho de ejercitar las acciones que estime convenientes.
