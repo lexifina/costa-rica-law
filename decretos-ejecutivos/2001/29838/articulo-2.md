@@ -1,0 +1,1 @@
+Artículo 2º—Dicho distrito pertenecerá al circuito escolar 06 de la Dirección Regional de Educación de Pérez Zeledón y tendrá como único centro educativo adscrito a la Escuela Nueva Santa Ana, código 0536, latitud 326.725, longitud 512.425.
