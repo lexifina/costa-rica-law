@@ -1,7 +1,0 @@
-Artículo 5º—Revisión extraordinaria. Serán revisiones extraordinarias aquellas que consideren variaciones en el entorno económico, por caso fortuito o fuerza mayor, o cuando se cumplan las condiciones siguientes, de forma tal que se altere el equilibrio económico- financiero del contrato:
-a) Cuando de la aplicación de la fórmula establecida para el caso de las revisiones ordinarias, se obtenga un incremento igual o superior a un 5% en un período inferior al establecido para la revisión ordinaria.
-b) Cuando la Administración autorice inversiones extraordinarias en equipamiento o infraestructura, a solicitud de cualquiera de las partes, o en virtud de lo estipulado en el punto 3.1.19. del contrato.
-A estos efectos se aplicará la siguiente fórmula:
-El resultado de esta fórmula se dividirá entre el número de años pendientes del contrato, y el cociente se adicionará a la tarifa
-c) Cuando, a partir del segundo año del contrato, no se alcance el 80% del número de revisiones anuales proyectadas exclusivamente por el Consejo de Transporte Público del MOPT o unidad competente para cada período, con base en la cláusula 3.1.11. del contrato, alternativamente se determinará si se autoriza un incremento de las tarifas, una reducción de la capacidad instalada o bien, una combinación de ambas medidas.
-En el supuesto de que proceda un incremento tarifario, este será proporcional a la disminución porcentual de las revisiones que no alcancen el 80% antes indicado, para lo cual se aplicará la siguiente fórmula:

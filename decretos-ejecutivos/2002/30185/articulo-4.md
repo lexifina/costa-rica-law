@@ -1,4 +1,0 @@
-Artículo 4º—De la revisión ordinaria. Serán revisiones ordinarias aquellas que en forma anual actualicen todos los costos y gastos directamente involucrados con la prestación del servicio contratado, exceptuando la inversión, aplicando la fórmula que a continuación se consigna, cuya estructura de costos se fundamenta en la que fuera presentada en la respectiva oferta.
-La nueva tarifa resultante entrará en vigencia a partir del día primero de cada año y su cálculo tomará en cuenta los índices acumulados en el período comprendido entre los últimos 12 meses inmediatamente anteriores al treinta y uno de agosto del año en que sea presentada la petición.
-A los efectos del cálculo respectivo se establece la siguiente fórmula matemática:
-Por lo que con la incidencia de la estructura de costos descrita, la fórmula quedaría de la siguiente forma:
