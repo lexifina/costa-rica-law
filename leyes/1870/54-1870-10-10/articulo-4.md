@@ -1,0 +1,1 @@
+Art 4° Los sueldos y dietas de que disfrutarán todos los expresados funcionarios, serán los fijados por la tarifa general, excepto el Presidente de la Sala 2° que gozará de veinticinco pesos mensuales más que el señalado a los demás magistrados.
