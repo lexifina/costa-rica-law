@@ -9,3 +9,4 @@ ARTICULO 2°: EGRESOS ORDINARIOS I EXTRAORDINARIOS PARA 2004.
 (Modificado por el Artículo 1° del Decreto Ejecutivo N° 31717 del 04 de marzo de 2004)
 (Modificado por el Artículo 1° del Decreto Ejecutivo N° 31725 del 16 de marzo de 2004)
 (Modificado por el Artículo 2° del Decreto Ejecutivo N° 31725 del 16 de marzo de 2004)
+(Modificado por el Artículo 1° del Decreto Ejecutivo N° 31748 de 29 de marzo de 2004).
