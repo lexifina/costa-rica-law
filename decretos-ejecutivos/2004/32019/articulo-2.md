@@ -1,0 +1,1 @@
+Artículo 2º—Las empresas de transporte aéreo internacional deberán enviar vía electrónica a la Dirección General de Migración y Extranjería, toda la información que dicho órgano requiera, en particular listas de pasajeros y su personal, que deberá contener como mínimo la siguiente información: nombre y apellidos, nacionalidad, número de pasaporte, fecha de nacimiento y sexo.

@@ -1,0 +1,1 @@
+Artículo 4º—La información a la que se refiere el artículo dos del presente decreto, deberá ser remitida por las empresas de transporte aéreo internacional, en el formato, dirección electrónica, plazo y términos que previamente indique la Dirección General de Migración y Extranjería.
