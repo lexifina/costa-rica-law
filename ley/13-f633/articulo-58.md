@@ -1,1 +1,0 @@
-Artículo 58.—Las exigencias de que habla el artículo 23 de esta ley en su inciso d), respeto a la siembra de árboles, serán igualmente aplicables a los arrendatarios de baldíos; y asimismo les será aplicable lo previsto en el artículo 12.

@@ -1,1 +1,0 @@
-Artículo 41.—La Secretaría de Fomento, antes de dar las aprobaciones relacionadas en el artículo 39, deberá cerciorarse de que el caso se encuentra comprendido en los términos de esta ley, y cada año dará cuenta al Congreso de las aprobaciones otorgadas con expresión de los nombres y apellidos de los interesados.

@@ -1,1 +1,0 @@
-Artículo 2°—Los baldíos son susceptibles de dominio particular por efecto de enajenación, de anuncio o prescripción adquisitiva, y pueden ser poseídos en virtud de arrendamiento que de ellos haga el Estado de acuerdo con los términos de esta ley, o bien de concesiones hechas o que se hagan por el Poder Legislativo, para fines determinados.
