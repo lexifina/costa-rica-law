@@ -19,3 +19,4 @@ Crea Comisión Ejecutiva Cacaotera (CEAC)
 | 4 | 1981-01-08 | Decreto Ejecutivo 12222 (1981-01-08) |
 | 5 | 1984-01-17 | Decreto Ejecutivo 15199 (1984-01-17) |
 | 6 | 1988-11-25 | Decreto Ejecutivo 18760 (1988-11-25) |
+| 7 | 1989-03-28 | Decreto Ejecutivo 18930 (1989-03-28) |
