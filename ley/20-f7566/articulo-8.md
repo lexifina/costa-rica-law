@@ -1,0 +1,1 @@
+ARTICULO 8°. -Conforme lo prevenido en el artículo 46 un solo escrutador ser designado por el Presidente de la junta calificadora para hacer escrutinio de los sufragios que cada individuo haya tenido en las Asambleas Electorales.
