@@ -1,1 +1,0 @@
-ARTICULO 10.-La Asociación de Desarrollo Comunal de Ostional, podrá donar con fines de sustento, hasta 2 docenas de huevos de tortuga lora por arribada, a jefes de familia de localidades vecinas que se apersonen al lugar a conseguir dicho producto.
