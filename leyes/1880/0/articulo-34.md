@@ -11,3 +11,4 @@ ESCALA GRADUAL PARA EL ABONO.
 3°—Presidio interior.
 4°—Reclusión é inhabilitación.
 5°-Extrañamiento, confinamiento, destierro y suspensión,
+(Nota de Sinalevi: De conformidad con el artículo 8° de la ley N° 15 del 15 de junio de 1916, se indica reformar este artículo en cuanto se opongan a las disposiciones de la ley antes referida)
