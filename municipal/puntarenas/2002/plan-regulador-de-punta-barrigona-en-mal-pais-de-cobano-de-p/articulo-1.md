@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PUNTARENAS
+La Municipalidad de Puntarenas comunica que en sesión ordinaria Nº 345 del 4 de febrero del 2002, artículo 2º, inciso ñ). La aprobación y puesta en ejecución del Plan Regulador de Punta Barrigona en Mal País de Cóbano de Puntarenas, comprendido entre los mojones 01 al 21 y entre las coordenadas Lamberd 1.770N 4.107E y 1.77E y 4.107E una vez cumplidos todos los requisitos establecidos en la Ley Nº 6043 y su Reglamento.
+Artículo 1°-(Nota de Sinalevi: En la publicación de este reglamento municipal, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto.)

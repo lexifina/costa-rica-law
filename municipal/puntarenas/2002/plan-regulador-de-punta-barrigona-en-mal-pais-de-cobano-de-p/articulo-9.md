@@ -1,0 +1,1 @@
+Artículo 9º—Uso Turístico Alta Densidad (Hoteles). Supresión legal realizada a este plan regulador a pedido de la Comisión Interna de la Zona Marítimo Terrestre según oficio ZMT-039-92 del 14 de julio de 1992, abarca las páginas Nos. 82 y 83 en lo referido a este uso del suelo específicamente.
