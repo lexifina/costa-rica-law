@@ -1,1 +1,0 @@
-Artículo 113.-Todos los costarricenses tienen el derecho de publicar sus pensamientos por medio de la imprenta sin necesidad de previa censura; pero con su firma y quedando sujeto a la responsabilidad y penas que determine la ley por los abusos que cometan de este derecho, los cuales, deberán calificarse por el jurado o jurados que la propia ley establezca.

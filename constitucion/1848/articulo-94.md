@@ -1,1 +1,0 @@
-Artículo 94.-El tribunal que haga efectiva la responsabilidad de los Ministros Jueces de la Corte Suprema de Justicia, las causas de responsabilidad, y el modo de formarlo, serán objetos de una ley particular.

@@ -1,1 +1,0 @@
-Artículo 104.-Admitida una acusación el Congreso instruirá por sí mismo el proceso, por medio de una comisión de su seno; y pronunciará la sentencia en sesión pública, limitándose aquella a destituir de su destino al acusado. Para que haya sentencia se necesita de las dos terceras partes de los votos presentes.

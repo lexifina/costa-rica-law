@@ -1,1 +1,0 @@
-Artículo 70.- El Presidente y Vice-Presidente de la República , al tomar posesión de sus destinos, prestarán el juramento constitucional ante el Congreso, y si este hubiere cerrado sus sesiones, ante la Comisión permanente.

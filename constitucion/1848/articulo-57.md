@@ -1,1 +1,0 @@
-Artículo 57.-El Poder Ejecutivo puede objetar cualquier proyecto de ley ó de otro acto legislativo, bien sea porque lo juzgue inconveniente en su totalidad, o bien porque crea necesario hacer en él algunas variaciones.
