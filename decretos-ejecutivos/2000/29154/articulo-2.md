@@ -1,0 +1,1 @@
+Artículo 2°-Se faculta a las instituciones y empresas del Estado para que, en la medida de sus posibilidades legales, financieras y de recursos humanos o materiales, brinden facilidades y cooperación en la realización de los eventos que se llevarán a cabo en Costa Rica con motivo de la citada actividad.
