@@ -1,4 +1,6 @@
+(Derogado)
 Nº 5097
+(Nota de Sinalevi: La norma a la cual esta ley afectaba fue derogada posteriormente en su totalidad por el artículo 9° de la ley N° 6396 del 26 de setiembre de 1979)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1º.- Refórmanse los artículos 1º, 2º, 3º, 6º, 9º, 10, 11, 12, 13, 14, 15, 16, 17, 19, 22, 25, 27 y 28 de la Ley Constitutiva de la Junta Administrativa del Servicio Eléctrico Municipal de Alajuela, Nº 716 de 14 de septiembre de 1949, modíficada por las leyes números 3171 de 12 de agosto de 1963 y 4738 de 31 de marzo de 1971, para que se lean así:
