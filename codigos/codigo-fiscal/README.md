@@ -1,6 +1,6 @@
 # Código Fiscal
 
-Ley N° 8 del 1885-10-31. SINALEVI, ficha 494: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=494&param2=102103&param3=1>.
+Ley N° 8 del 1885-10-31. SINALEVI, ficha 494: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=494&param2=78290&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -28,3 +28,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 22 de 30 | 1998-08-29 | Ley 6450 | 1980-07-15 |
 | 23-24 de 30 | 1998-08-29 | SINALEVI | 1984-07-26 |
 | 25 de 30 | 1998-08-29 | Ley 7088 | 1987-11-30 |
+| 26 de 30 | 1998-08-29 | Ley 7410 | 1994-05-26 |
