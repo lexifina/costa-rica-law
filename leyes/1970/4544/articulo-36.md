@@ -1,49 +1,17 @@
 ARTICULO 36
 Disposiciones Penales
-1.-A reserva de lo dispuesto por su Constitución, cada una de las
-Partes se obliga a adoptar las medidas necesarias para que el cultivo y la
-producción, fabricación, extracción, preparación, posesión, ofertas en
-general, ofertas de venta, distribución, compra, venta, despacho por
-cualquier concepto corretaje, expedición, expedición en tránsito,
-transporte, importación y exportación de estupefacientes, no conformes a
-las disposiciones de esta Convención a cualesquiera otros actos que en
-opinión de la Parte puedan efectuarse en infracción de las disposiciones
-de la presente Convención, se consideren como delitos si se cometen
-intencionalmente y que los delitos graves sean castigados en forma
-adecuada, especialmente con penas de prisión u otras penas de privación de
-libertad.
-2.-A reserva de las limitaciones que imponga la Constitución
-respectiva, el régimen jurídico y la legislación nacional de cada Parte;
-a) i) Cada uno de los delitos enumerados en el inciso 1, si se comete
-en diferentes países, se considerará como un delito distinto;
-ii) La participación deliberada o la confabulación para cometer
-cualquiera de esos delitos, así como la tentativa de cometerlos, los actos
-preparatorios y operaciones financieras, relativos a los delitos de que
-trata este artículo, se considerarán como delitos, tal como se dispone en
-el inciso 1;
-iii) Las condenas pronunciadas en el extranjero por esos delitos
-serán computadas para determinar la reincidencia; y
-iv) Los referidos delitos graves cometidos en el extranjero, tanto
-por nacionales como por extranjeros, serán juzgados por la Parte en cuyo
-territorio se haya cometido el delito, o por la Parte en cuyo territorio
-se encuentre el delincuente, si no procede la extradición de conformidad
-con la ley, de la Parte a la cual se la solicita, y si dicho delincuente
-no ha sido ya procesado y sentenciado.
-b) Es deseable que los delitos a que se refieren el inciso 1 y el
-apartado a) ii) del inciso 2 se incluyan entre los delitos que dan lugar a
-extradición, en todo tratado de extradición concertado o que pueda
-concertarse entre las Partes, y sean delitos que den lugar a extradición
-entre cualesquiera de las Partes que no subordinen la extradición a la
-existencia de un tratado o acuerdo de reciprocidad, a reserva de que la
-extradición sea concedida con arreglo a la legislación de la Parte a la
-que se haya pedido, y de que esta Parte tenga derecho a negarse a proceder
-a la detención del delincuente o a conceder la extradición si sus
-autoridades competentes consideran que el delito no es suficientemente
-grave.
-3.-Las disposiciones del presente artículo estarán limitadas por las
-disposiciones del derecho penal de la Parte interesada, en materia de
-jurisdicción.
-4.-Ninguna de las disposiciones del presente artículo afectará el
-principio de que los delitos a que se refiere han de ser definidos,
-perseguidos y castigados de conformidad con la legislación nacional de
-cada Parte.
+1. a) A reserva de lo dispuesto por su constitución, cada una de las Partes se obliga a adoptar las medidas necesarias para que el cultivo y la producción, fabricación, extracción, preparación, ofertas en general, ofertas de venta, distribución, compra, venta, despacho por cualquier concepto, corretaje, expedición, expedición en tránsito, transporte, importación y exportación y de estupefacientes, no conformes a las disposiciones de esta Convención o cualesquiera otros actos que en opinión de la Parte puedan efectuarse en infracción de las disposiciones de la presente Convención, se consideren como delitos si se cometen intencionalmente y que los delitos graves sean castigados en forma adecuada, especialmente con penas de prisión u otras penas de privación de libertad.
+b) No obstante lo dispuesto en el apartado anterior, cuando las personas que hagan uso indebido de estupefacientes hayan cometido esos delitos, las Partes podrán en vez de declararlas culpables o de sancionarlas penalmente, o además de declararlas culpables o de sancionarlas, someterlas a medidas de tratamiento, educación, postratamiento, rehabilitación y readaptación social, de conformidad con lo dispuesto en el párrafo 1 del artículo 38.
+(Así reformado por el artículo 14 del Protocolo de Modificación al presente Convenio, ley No.5168 del 8 de enero de 1973)
+2. A reserva de lo dispuesto por su Constitución, del régimen jurídico y de la legislación nacional de cada Parte:
+a) i) Cada uno de los delitos enumerados en el inciso 1, si se comete en diferentes países, se considerará como un delito distinto;
+ii) La participación deliberada o la confabulación para cometer cualquiera de esos delitos, así como la tentativa de cometerlos, los actos preparatorios y operaciones financieras, relativas a los delitos de que trata este artículo, se considerarán como delitos, tal como se dispone en el inciso 1; si se comete en diferentes países se considerará como un delito distinto;
+iii) Las condenas pronunciadas en el extranjero por esos delitos serán computadas para determinar la reincidencia; y
+iv) Los referidos delitos graves cometidos en el extranjero, tanto por nacionales como por extranjeros; serán juzgados por la Parte en cuyo territorio se haya cometido el delito, o por la Parte en cuyo territorio se encuentre el delincuente, si no procede la extradición de conformidad con la ley de la Parte a la cual se la solicita, y si dicho delincuente no ha sido ya procesado y sentenciado.
+b) i) Cada uno de los delitos enumerados en el párrafo 1 y en el inciso ii) del apartado a) del párrafo 2 del presente artículo se considerara incluido entre los delitos que den lugar a extradición en todo tratado de extradición celebrado entre las Partes. Las Partes se comprometen a incluir tales delitos como casos de extradición en todo tratado de extradición que celebren entre si en el futuro.
+ii) Si una Parte, que subordine la extradición a la existencia de un tratado, recibe de otra Parte, con la que no tiene tratado, una solicitud de extradición, podrá discrecionalmente considerar la presente Convención como la base jurídica necesaria para la extradición referente a los delitos enumerados en el párrafo 1 y en el inciso ii) del apartado a) del párrafo 2 del presente artículo. La extradición estará sujeta a las demás condiciones exigidas por el derecho de la Parte requerida.
+iii) Las Partes que no subordinen la extradición a la existencia de un tratado reconocerán los delitos enumerados en el párrafo 1 y en el inciso ii) del apartado a) del párrafo 2 del presente artículo como casos de extradición entre ellas, sujetos a las condiciones exigidas por el derecho de la Parte requerida.
+iv) La extradición será concedida con arreglo a la legislación de la Parte a la que se haya pedido y, no obstante lo dispuesto en los incisos i), ii) y iii) del apartado b) de este párrafo, esa Parte tendrá derecho a negarse a conceder la extracción si sus autoridades competentes consideran que el delito no es suficientemente grave.
+(Así reformado por el artículo 14 del Protocolo de Modificación al presente Convenio, ley No.5168 del 8 de enero de 1973)
+3.-Las disposiciones del presente artículo estarán limitadas por las disposiciones del derecho penal de la Parte interesada, en materia de jurisdicción.
+4.-Ninguna de las disposiciones del presente artículo afectará el principio de que los delitos a que se refiere han de ser definidos, perseguidos y castigados de conformidad con la legislación nacional de cada Parte.

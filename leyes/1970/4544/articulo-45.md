@@ -1,16 +1,4 @@
 ARTICULO 45
 Disposiciones Transitorias
-1.-A partir de la fecha en que entre en vigor la presente Convención
-(inciso 1 del artículo 41), las funciones de la Junta a que se refiere el
-artículo 9 serán desempeñadas provisionalmente por el Comité Central
-Permanente constituido con arreglo al capítulo 6 de la Convención a que se
-refiere el apartado c) del artículo 44, modificada, y por el Organo de
-Fiscalización constituido con arreglo al capítulo 2 de la Convención a que
-se refiere el apartado d) del artículo 44, modificado, según lo requieran
-respectivamente dichas funciones.
-2.-El Consejo fijará la fecha en que entrará en funciones la nueva
-Junta de que se trata el artículo 9. A partir de esa fecha, esta Junta
-ejercerá, respecto de los Estados Partes en los instrumentos enumerados en
-el artículo 44 que no sean Partes en la presente Convención las funciones
-del Comité Central Permanente y del Organo de fiscalización en el inciso
-1.
+1.-A partir de la fecha en que entre en vigor la presente Convención (inciso 1 del artículo 41), las funciones de la Junta a que se refiere el artículo 9 serán desempeñadas provisionalmente por el Comité Central Permanente constituido con arreglo al capítulo 6 de la Convención a que se refiere el apartado c) del artículo 44, modificada, y por el Organo de Fiscalización constituido con arreglo al capítulo 2 de la Convención a que se refiere el apartado d) del artículo 44, modificado, según lo requieran respectivamente dichas funciones.
+2.-El Consejo fijará la fecha en que entrará en funciones la nueva Junta de que se trata el artículo 9. A partir de esa fecha, esta Junta ejercerá, respecto de los Estados Partes en los instrumentos enumerados en el artículo 44 que no sean Partes en la presente Convención las funciones del Comité Central Permanente y del Organo de fiscalización en el inciso 1.
