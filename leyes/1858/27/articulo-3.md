@@ -1,0 +1,1 @@
+Art 3°. - Los Jueces de 1° Instancia Civiles y de Comercio de Alajuela y Cartago resumirán el Juzgado de Crimen y tendrá por dotación el sueldo que hoy disfrutan, y todos los derechos de actuación, siendo también de su propia cuenta los gastos de alquiler de oficinas y sueldos de escribiente, portero y alguacil.

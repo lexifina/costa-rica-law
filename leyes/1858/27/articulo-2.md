@@ -1,0 +1,1 @@
+Art 2°. - Los Jueces de 1° Instancia Civiles y de Comercio de San José y Heredia solo tendrán por dotación el producto de los derechos que se causen en sus respectivos Juzgados, debiendo ser de cuenta los gastos de alquiler de oficina y sueldo de portero y alguacil.
