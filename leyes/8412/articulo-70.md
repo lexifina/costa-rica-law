@@ -1,0 +1,4 @@
+Artículo 70.—Limitaciones del presidente de la Junta Directiva. El presidente de la Junta Directiva tendrá las siguientes limitaciones:
+a) Para enajenar o gravar bienes del Colegio, necesitará autorización de la Junta Directiva si se trata de muebles y de la Asamblea General si se trata de inmuebles.
+b) Para renunciar, transigir o comprometer en arbitrios al Colegio, necesitará la anuencia de la Junta Directiva si se trata de muebles o derechos cuyo valor no exceda de dos veces el monto del salario mínimo mensual en colones correspondiente al salario de oficinista 1 del Poder Judicial, y de la Asamblea General si se trata de inmuebles, muebles o derechos cuyo valor exceda de dos veces el monto del salario mínimo mensual en colones correspondiente al salario de oficinista 1 del Poder Judicial, o sean de cuantía indeterminada o indeterminable.
+c) Para tomar bienes en arrendamiento necesitará la autorización de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 43.—Funciones de los vocales. Los vocales podrán asumir cualquier otro puesto dentro de la Junta Directiva en caso de ausencia o impedimento de algún otro miembro, además de las funciones comprendidas en el presente título y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 96.—Asesoría a instituciones públicas o privadas. El Colegio de Químicos podrá asesorar a las instituciones públicas o privadas en el establecimiento de normas técnicas que rijan los concursos profesionales relativos al ejercicio de la Química.

@@ -1,0 +1,1 @@
+Artículo 92.—Contratos de servicios profesionales. Todo contrato de servicio profesional, en los extremos referidos exclusivamente a la prestación de un servicio y su remuneración, deberán constar en las fórmulas que para tal efecto expedirá el Colegio de Químicos, así como inscribirse en los registros de este.

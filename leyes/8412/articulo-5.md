@@ -1,0 +1,1 @@
+Artículo 5º—Profesionales del Colegio. El Colegio de Ingenieros Químicos y Profesionales Afines (CIQPA) estará formado por los profesionales con el grado de bachillerato, licenciatura o doctorado en Ingeniería Química o profesiones afines.

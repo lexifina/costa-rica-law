@@ -1,0 +1,2 @@
+Transitorio VI.—Los archivos y las bases de datos del antiguo Colegio Federado de Químicos y de Ingenieros Químicos de Costa Rica, se conservarán en archivos cerrados que administrará la Oficina de Enlace e Información, por el plazo legal correspondiente; finalizado dicho plazo, por común acuerdo de las Juntas Directivas del Colegio de Químicos y del Colegio de Ingenieros Químicos y de Profesionales Afines, cada Colegio examinará esa documentación y determinará si la incorpora a sus archivos u opta por destruirla.
+Rige a partir de su publicación.

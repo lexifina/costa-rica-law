@@ -1,0 +1,1 @@
+Artículo 29.—Dirección de la Asamblea General. Las sesiones ordinarias y extraordinarias de la Asamblea General serán presididas por el presidente y el secretario de la Junta Directiva, o bien por sus sustitutos, en caso de ausencia.

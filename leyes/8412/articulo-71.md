@@ -1,0 +1,1 @@
+Artículo 71.—Sustitución del presidente. El vicepresidente sustituirá al presidente en sus ausencias y durante los impedimentos temporales. En caso de que se ausenten o tengan impedimentos tanto el presidente como el vicepresidente, sus funciones las ejecutará el presidente interino nombrado por los otros miembros de la Junta Directiva.

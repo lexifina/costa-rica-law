@@ -1,0 +1,1 @@
+Artículo 79.—Miembros separados del Colegio. Cualquier miembro del Colegio tendrá derecho a separarse de este. Los miembros activos que se separen no podrán ejercer la profesión mientras permanezcan en esa condición, ni tendrán el resto de derechos que señala este título.

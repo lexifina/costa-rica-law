@@ -1,0 +1,11 @@
+CAPÍTULO X
+Disposiciones finales
+Artículo 106.—Logo y emblema del Colegio. El Colegio de Químicos tendrá un logo y un emblema oficiales, los cuales serán aprobados por la Asamblea General.
+CAPÍTULO XI
+Disposiciones transitorias
+Transitorio I.—El Colegio de Químicos deberá someter al conocimiento del Poder Ejecutivo el proyecto de Reglamento del presente título, dentro de los once meses siguientes a la instalación de la primera Junta Directiva del Colegio.
+Transitorio II.—En un plazo máximo de sesenta días hábiles contado a partir de la promulgación de esta Ley, la Junta Directiva del Colegio de Químicos procederá a convocar a una Asamblea General extraordinaria para proceder a elegir a la nueva Junta Directiva y al fiscal. La convocatoria se realizará mediante una única publicación en el Diario Oficial y en un diario de circulación nacional; en ella se incluirán el orden del día de la Asamblea, el lugar, el día y la hora de reunión. Entre el día de dicha publicación y el señalado para celebrar la Asamblea, deberán mediar por lo menos ocho días hábiles.
+Transitorio III.—El vicepresidente, tesorero, primero y tercer vocales de la Junta Directiva que resulten electos en la Asamblea mencionada en el transitorio anterior, durarán en sus funciones el tiempo que transcurra entre esa Asamblea y la Asamblea General ordinaria del año siguiente, a fin de iniciar el sistema de renovación parcial que contempla el artículo 67 de esta Ley.
+Transitorio IV.—Se tendrán por inscritos en el Colegio de Químicos los profesionales que figuran como miembros del antiguo Colegio Federado de Químicos y de Ingenieros Químicos de Costa Rica. Cualquier deuda que tengan con el Colegio Federado deberá ser cancelada al Colegio de Químicos.
+Transitorio V.—El Colegio de Químicos deberá someter al Poder Ejecutivo dentro de los once meses siguientes a la instalación de la primera Junta Directiva los proyectos para los Reglamentos y las tarifas mencionados en el presente título.
+Transitorio VI.—Los certificados de incorporación emitidos por el antiguo Colegio Federado de Químicos y de Ingenieros Químicos de Costa Rica, deberán ser sustituidos por certificados del Colegio de Químicos, en un término de noventa días. Los títulos tendrán igual validez legal que los emitidos por el antiguo Colegio Federado, que ahora perderán la vigencia legal.
