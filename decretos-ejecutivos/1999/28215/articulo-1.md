@@ -1,9 +1,11 @@
+(Anulada)
 PODER EJECUTIVO
-DECRETOS
-Nº 28215-MAG-MICIT
+DECRETO
+Nº 28215-MAG-MICIT (ANULADO)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERIA
 Y DE CIENCIA Y TECNOLOGIA
+*(Por resolución de la Sala Constitucional No. 11881 de las 14 horas con 50 minutos del 27 de octubre de 2004 se anula por Inconstitucional el presente Decreto Ejecutivo.)
 En uso de las atribuciones establecidas en los incisos 3) y 18) del artículo 140 de la Constitución Política, la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, la Ley Nº 7064 del 29 de abril de 1987, que incorpora la Ley Orgánica del Ministerio de Agricultura y Ganadería y la Ley Nº 7169 del 26 de junio de 1990, Ley de Promoción del Desarrollo Científico y Tecnológico.
 Considerando:
 1º—Que la globalización de los mercados es el creciente grado de interdependencia que existe entre las economías producto de la avalancha tecnológica, la desregulación en los mercados y la apertura comercial, la reducción del intervencionismo estatal y la mayor libertad de tránsito internacional de capitales y bienes.
