@@ -1,1 +1,0 @@
-Artículo 9°- Recibida que sea la declaración jurada del petente se oirá por ocho días al Agente Fiscal respectivo, quien será parte obligada en la tramitación de todos estos expedientes y cuya audiencia no podrá ser renunciada.
