@@ -1,1 +1,2 @@
-Artículo 76.—Siempre que por impresión personal, por avisos confidenciales, por pública voz o por otro conducto cualquiera llegare a conocimiento del Fiscal un acto de un abogado, pasante o procurador judicial, que pueda lastimar el decoro profesional, se cerciorará previamente si existe la incorrección, y, en caso afirmativo, la denunciará a la Junta de Gobierno, salvo que se trate de un hecho reservado a la querella privada.
+Artículo 76.—El Fiscal tendrá la facultad de solicitar, cuando así lo estime conveniente por propia iniciativa o a sugerencia de la Junta de Gobierno, pruebas para mejor proveer.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 8 del 3 de noviembre de 1952)
