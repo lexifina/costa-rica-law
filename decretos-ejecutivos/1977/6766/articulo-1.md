@@ -1,0 +1,11 @@
+N° 6766-G
+PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE GOBERNACIÓN, POLICIA, JUSTICIA, GRACIAS,
+Considerando:
+1°.- El Instituto Costarricense de Electricidad necesita adquirir para que forme parte de El Embalse del Proyecto Hidroeléctrico Arenal, como su propiedad N° 17-A, un lote de terreno a segregar de un inmueble perteneciente a “Hacienda La Rosita, Sociedad Anónima”.
+2°.- El citado terreno fue valorado por la Sala Segunda del Tribunal Fiscal Administrativo en resolución N° 65 de las 12:45 horas del 7 de abril de 1976, en la suma global de ¢156.512.00 (ciento cincuenta y seis mil, quinientos doce colones), cantidad que incluye además del lote el valor de una casa de habitación para peón e instalaciones allí existentes conforme las describe el respectivo avalúo, y se hace necesario recurrir a los trámites de expropiación forzosa en virtud de no haber sido aceptado dicho avalúo por la propietaria.
+3°.- La Ley N° 2292 de 20 de noviembre de 1958, declara de utilidad la adquisición de inmuebles y la constitución de servidumbres de cualquier naturaleza, necesarios para los programas de electrificación del referido Instituto, remitiendo la misma en los casos de expropiación forzosa el procedimiento prescrito por la ley N° 1371 de 10 de noviembre de 1951, de Expropiaciones para el Aeropuerto “El Coco”, hoy Juan Santamaría.
+4°.- De acuerdo con estudios técnicos realizados por el expresado Instituto, está suficientemente demostrada la utilidad pública y la urgencia de la adquisición del lote citado, por lo que de conformidad con lo dispuesto por el artículo 4 de la Constitución Política y leyes número 2292 y 1371 mencionadas, procede decretar la expropiación correspondiente.
+Por tanto,
+Decretan:
+Artículo 1°.- Exprópiese a “Hacienda La Rosita, Sociedad Anónima”, de su finca del Partido de Guanacaste N° 6849, tomo 1155 y 1726, folio 198 y 547, asiento 2 y 3, que es resto de terreno de pastos y montes, sito en Arenal, distrito 3° del cantón 8° de Guanacaste, un lote que se describe así, terreno de pastos con una casa de habitación para peón, sito como la finca madre, con una cabida de 11 Has., 2 282.00 m2, lindante: Norte, Este y Oeste, resto de la finca general; y Sur, camino público Tilarán Arenal. La expropiación se realiza de conformidad con el plano N° 119-4-87, levantado por el Instituto Costarricense de Electricidad en abril de1975.
