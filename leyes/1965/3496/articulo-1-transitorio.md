@@ -1,0 +1,1 @@
+Transitorio.- Las reformas anteriores no se aplicarán a las causas por delitos o faltas contra la Hacienda Pública que actualmente estén tramitándose. Su trámite se seguirá de acuerdo con las disposiciones que contengan los textos originales, hasta su fenecimiento.
