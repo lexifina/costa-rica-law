@@ -1,0 +1,2 @@
+Artículo 137.—El Ministro podrá ordenar o convenir oficiosamente o a solicitud del interesado, la reubicación temporal dentro de la DEP del servidor denunciante o del servidor denunciado. La solicitud escrita del interesado será resuelta por el Ministro en única instancia dentro de un plazo máximo de quince días a partir de su presentación, sin embargo su silencio durante el término establecido equivaldrá a la denegación de la solicitud presentada.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 24710 del 29 de septiembre de 1995)
