@@ -1,0 +1,1 @@
+Artículo 20.—Además de la notificación inmediata de los efectos adversos según se establece en el artículo anterior, el patrocinador del estudio deberá cubrir todos los costos que genere la atención inmediata de las reacciones adversas ocasionadas por el producto de investigación.

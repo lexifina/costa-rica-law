@@ -1,0 +1,1 @@
+Artículo 35.—Ninguno de los miembros del CECI podrán percibir directa ni indirectamente remuneración o reconocimiento alguno por parte de los patrocinadores e investigadores. Todos los integrantes de los comités de ética de la investigación institucional , deberán ser capacitados en ética de la investigación para el ejercicio de sus funciones.

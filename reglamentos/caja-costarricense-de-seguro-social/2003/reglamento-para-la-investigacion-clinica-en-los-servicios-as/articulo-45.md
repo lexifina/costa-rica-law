@@ -1,0 +1,2 @@
+Artículo 45.—Todo estudio o ensayo clínico con patrocinio ajeno a la CCSS, deberá cancelar la suma de mil doscientos dólares americanos a la institución, previo a la revisión de su proyecto por parte del CECI.
+Toda solicitud de enmienda o renovación anual de aprobación, requerirá previo a su revisión de la cancelación de cien dólares americanos. La cancelación de los costos administrativos antecederá siempre al proceso de revisión correspondiente, y será independiente del dictamen final de aprobación o rechazo emitido por el CECI.

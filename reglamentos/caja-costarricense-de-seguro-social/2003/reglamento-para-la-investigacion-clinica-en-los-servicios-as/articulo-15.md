@@ -1,0 +1,1 @@
+Artículo 15.—Cuando se trate de menores de doce años o sujetos en estado de interdicción, el consentimiento informado deberá ser otorgado por quienes ejercen la patria potestad y por su curador legal, respectivamente. Cuando haya conflicto entre los padres, la decisión final será tomada por el juez competente de conformidad con el Código de Familia.

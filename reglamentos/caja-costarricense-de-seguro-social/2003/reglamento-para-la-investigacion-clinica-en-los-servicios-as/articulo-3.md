@@ -1,0 +1,1 @@
+Artículo 3º—Todo proyecto de investigación en seres humanos que se realice en los establecimientos de la CCSS debe someterse a evaluación y aprobación del Comité Ético Científico Institucional (CECI). El proceso de evaluación y aprobación debe anteceder en todos los casos al inicio de la ejecución del estudio.

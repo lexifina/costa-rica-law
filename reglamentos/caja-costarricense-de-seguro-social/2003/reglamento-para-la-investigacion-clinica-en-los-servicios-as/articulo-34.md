@@ -1,0 +1,1 @@
+Artículo 34.—El Comité podrá solicitar a la Gerencia División Médica la revocatoria del nombramiento de algún miembro por ausencias injustificadas, incumplimiento de sus funciones o por razones operacionales justificadas.

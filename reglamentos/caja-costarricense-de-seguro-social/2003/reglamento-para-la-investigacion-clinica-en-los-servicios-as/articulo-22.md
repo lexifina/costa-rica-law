@@ -1,0 +1,1 @@
+Artículo 22.—El CECI evalúa y aprueba la investigación en seres humanos ponderando los aspectos metodológicos, éticos y legales de los protocolos de investigación propuestos, así como el balance de riesgos y beneficios con el fin de garantizar primordialmente la protección de los derechos y el bienestar de las personas sujetos de investigación.

@@ -1,0 +1,5 @@
+Artículo 21.—El patrocinador es el individuo, compañía, institución, u organización responsable de iniciar, administrar, monitorear, y/o financiar los ensayos clínicos.
+a. Serán deberes y responsabilidades del patrocinador todos aquellos establecidos en la reglamentación del Ministerio de Salud.
+b. Adicionalmente en todo estudio que se apruebe para su ejecución dentro de la CCSS el patrocinador será el responsable de firmar y cumplir el contrato económico, que deberá suscribir para efectos individuales de cada estudio junto con el director del establecimiento donde se realizará la investigación.
+c. En caso de ensayos clínicos controlados con medicamentos, el patrocinador deberá comprometerse al suministro, sin costo alguno, del producto de investigación al sujeto, en caso de comprobarse sus beneficios, hasta tanto se encuentre comercializado en el país.
+La continuación del tratamiento en pacientes crónicos debe ser evaluada caso a caso por el CECI y solicitarla cuando lo considere necesario.
