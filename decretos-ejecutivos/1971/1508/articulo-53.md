@@ -1,1 +1,1 @@
-Artículo 53. -Los Inspectores de Trabajo tienen la obligación de realizar visitas de inspección a las empresas con la frecuencia necesaria, para garantizar el efectivo cumplimiento de las disposiciones legales; esas visitas tienen que ser repetidas con el objeto de comprobar que las instrucciones impartidas por ellos al patrono, han sido oportunas y debidamente acatadas.
+Artículo 53.-(Así derogado mediante el artículo 40 del decreto ejecutivo N° 28578 del 03 de febrero del 2000).

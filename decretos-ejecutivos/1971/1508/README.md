@@ -17,3 +17,4 @@ Reglamento de Reorganización y Racionalización del Ministerio de Trabajo y Bie
 | 2 | 1971-03-25 | Decreto Ejecutivo 1644 (1971-03-25) |
 | 3 | 1992-06-22 | Decreto Ejecutivo 21403 (1992-06-22) |
 | 4 | 1995-07-06 | Decreto Ejecutivo 24458 (1995-07-06) |
+| 5 | 2000-02-03 | Decreto Ejecutivo 28578 (2000-02-03) |

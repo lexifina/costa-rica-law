@@ -1,4 +1,1 @@
-Artículo 47.-La Dirección Nacional de Inspección de Trabajo tiene las siguientes reglas:
-a) Normas para el Director Nacional e Inspector General de Trabajo;
-b) Normas para los Inspectores de Trabajo; y
-c) Normas especiales para el Inspector General y los Inspectores de Trabajo.
+Artículo 47.-(Así derogado mediante el artículo 40 del decreto ejecutivo N° 28578 del 03 de febrero del 2000).
