@@ -1,4 +1,4 @@
-Artículo 7º.- De todas las subvenciones o rentas, o de los ingresos
+ARTICULO 7º.- De todas las subvenciones o rentas, o de los ingresos
 adicionales, que reciban las juntas de educación y las juntas
 administrativas del país, por disposición de esta ley, del Código de
 Educación y de otras leyes, provenientes del Estado o de rentas propias,

@@ -1,1 +1,1 @@
-Artículo 14.- Rige a partir de su publicación.
+ARTICULO 14.- Rige a partir de su publicación.
