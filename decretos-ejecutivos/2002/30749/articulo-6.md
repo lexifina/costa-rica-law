@@ -1,0 +1,1 @@
+Artículo 6°—Se entiende que de conformidad con los artículos 5.1 b) y 5.5 del Acuerdo sobre la Agricultura, esta medida una vez en vigor es aplicable a cualquier envío de productos con fines de importación al país, independientemente de su procedencia y su fecha de embarque o de perfeccionamiento de la venta respectiva.
