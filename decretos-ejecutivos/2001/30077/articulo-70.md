@@ -1,0 +1,2 @@
+Artículo 70.—Del seguimiento de las denuncias ambientales. Cada órgano del Ministerio del Ambiente y Energía responderá al Contralor Ambiental, dentro de los términos legales, cual ha sido el seguimiento a cada una de las denuncias que están en trámite. Cuando corresponda presentarán copia de la denuncia ante el Ministerio Público.
+El Contralor Ambiental presentará un informe mensual al Jerarca Ministerial y al servicio 192, sobre la cantidad de denuncias recibidas, tramitadas y el seguimiento específico a cada una de ellas.

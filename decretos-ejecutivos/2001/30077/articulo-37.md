@@ -1,0 +1,3 @@
+Artículo 37.—De los Recursos. Los actos administrativos emitidos por los Jefes Departamentales tendrán recurso de revocatoria y apelación ante el Director General. De lo que resuelva éste, cabe el recurso de apelación ante el Ministro del Ambiente y Energía.
+El acto administrativo emitido por el Director General tendrá recurso de revocatoria y apelación ante el Ministro del Ambiente y Energía, quien agotará la vía administrativa conforme lo dispuesto por el artículo 356 de la Ley General de la Administración Pública.
+En el caso del Departamento de Aguas, los actos administrativos emanados de la Ministra a recomendación del mismo tendrán recurso de reposición.

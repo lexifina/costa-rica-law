@@ -1,0 +1,9 @@
+Artículo 30.—De las funciones de la Dirección General de Transportes y Comercialización de Combustible. Sin perjuicio de las funciones asignadas por las leyes y reglamentos ejecutivos respectivos, serán funciones primordiales de la Dirección General de Transportes y Comercialización de Combustibles:
+Recibir y tramitar las solicitudes y recomendar al Ministro el otorgamiento de permisos de construcción, remodelación y funcionamiento de los establecimientos donde se encuentran estaciones de servicio de combustibles, tanques de almacenamiento de combustibles, estaciones marinas, estaciones de servicio para abastecer aeronaves; y a los distribuidores sin punto fijo de venta, Igualmente que se recibe y tramitan los cambios de titularen estas autorizaciones.
+Recibir tramitar y recomendar al jerarca del MINAE, que se otorgue la autorización para brindar el servicio público de suministro de combustibles derivados de hidrocarburos.
+Recomendar al jerarca del MINAE, las suspensiones y cancelaciones de las autorizaciones otorgadas.
+Regular, fiscalizar u controlar lo relativo al transporte y comercialización de combustible derivados de hidrocarburos, así como los aspectos de seguridad e higiene en la operación y funcionamiento de estos transportes.
+Establecer y aplicar un sistema de evaluación para las instalaciones de autoconsumo y en las instalaciones de almacenamiento y distribución de productos derivados de hidrocarburos.
+Establecer un sistema de evaluación para el equipo de transporte de combustibles.
+Atención de la denuncias ambientales que estén relacionadas con derivados de hidrocarburos.
+Tramitar el procedimiento administrativo para determinar si procede la recomendación de suspensión o cancelación de la autorización de funcionamiento, tanto de los establecimientos como de los vehículos que suministran combustibles derivados de hidrocarburos, cuando estos cuentan con autorización del MINAE.

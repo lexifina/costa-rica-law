@@ -1,0 +1,1 @@
+Artículo 72.—Derogatorias. Deróguense todas las disposiciones de rango reglamentario que regulen en forma diferente la estructura y relaciones administrativas a lo interno del Ministerio del Ambiente y Energía. Deróguese específicamente el Decreto Ejecutivo N° -24652-MIRENEM.

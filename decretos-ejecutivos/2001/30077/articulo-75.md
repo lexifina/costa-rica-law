@@ -1,0 +1,1 @@
+Artículo 75.—En tanto se cumplen los requisitos procedimentales necesarios para el nombramiento de los representantes ante los Consejos Locales de las Áreas de Conservación, las tareas asignadas a dicho órgano serán asumidas por el Jefe de la Oficina Subregional.

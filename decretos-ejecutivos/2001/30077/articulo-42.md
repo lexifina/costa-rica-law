@@ -1,0 +1,1 @@
+Artículo 42.—De los recursos. Cabrá recurso de revocatoria ante la Comisión Plenaria y de apelación ante el Ministro del Ambiente y Energía, contra los actos finales de la Comisión Plenaria. El Ministro agotará la vía administrativa conforme con el artículo 356 de la Ley General de Administración Pública.

@@ -1,0 +1,6 @@
+Artículo 63.—De los recursos financieros del MINAE, de sus dependencias y órganos. El MINAE contará con los siguientes recursos:
+a) Las partidas que se le asignen anualmente en los presupuestos ordinarios y extraordinarios de la República.
+b) Los legados, donaciones y cualquier otra forma de cooperación financiera, que permita el ordenamiento jurídico vigente, que hagan el Estado, organismos nacionales o internacionales, privados o públicos, o cualquier persona física o jurídica; las cuales quedan exoneradas del pago de los impuestos bajo el principio de imnunidad fiscal del Estado salvo disposición legal en contrario..
+c) Los ingresos que se generen o perciban por concepto de concesión de bienes y de servicios que brinden las dependencias y órganos desconcentrados, así como los montos provenientes de la recaudación por multas y comisos, así como otros recursos que se generen, por concepto de impuestos, cánones, timbres, tarifas y figuras similares, en virtud del ejercicio de las funciones y atribuciones que la legislación vigente y sus respectivos reglamentos les asignan.
+d) Los ingresos provenientes de empréstitos gestionados por el Ministerio del Ambiente y Energía para el cumplimiento de los objetivos que le asigna la legislación correspondiente.
+e) Cualquier otro ingreso que se genere mediante mecanismos previstos en la legislación vigente.

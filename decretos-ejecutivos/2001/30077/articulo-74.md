@@ -1,0 +1,1 @@
+Artículo 74.—En tanto se cumplen los requisitos procedimentales necesarios para el nombramiento de los representantes ante los Consejos Regionales de las Áreas de Conservación, las tareas asignadas a dicho órgano serán asumidas por el Director del Área de Conservación.

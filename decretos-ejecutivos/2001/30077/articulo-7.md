@@ -1,0 +1,7 @@
+TÍTULO III
+Organización administrativa
+CAPÍTULO I
+Órganos superiores de la administración
+Artículo 7°—Del Despacho Ministerial. Es el órgano superior jerárquico de todo el personal y de los asuntos técnicos, operativos y administrativos del Ministerio. Está constituido por los despachos del Ministro y Viceministro y por el personal profesional, técnico y administrativo necesario para el mejor cumplimiento de sus funciones.
+El Ministro es el representante legal del MINAE para todos los efectos, correspondiéndole el ejercicio de las competencias que le atribuye el Ordenamiento Jurídico y es el titular de la cartera y superior de las dependencias y órganos que indique la legislación vigente y el presente reglamento.
+El Viceministro es el superior jerárquico inmediato subordinado de todo el personal del Ministerio, sin perjuicio de las potestades del Ministro al respecto. Bajo su inmediata subordinación se encuentran las oficinas, dependencias y órganos que conforman la Dirección Administrativa. Tendrá a su cargo la Comisión de Presupuesto y Eficiencia del Gasto, la que presidirá, y que conformará con los Jefes de los Departamentos Financiero-Contable, Proveeduría y el Oficial Mayor. Igualmente tendrá a su cargo la Comisión de Informática, la cual estará constituida por el Jefe del Departamento de Informática, el Director de Planificación y un representante cada uno de los siguientes órganos: SINAC, IMN, DGGM, DTCC, DSE y DGH.

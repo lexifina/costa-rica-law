@@ -1,0 +1,1 @@
+Artículo 64.—De la fijación de montos. Los montos por concepto de bienes y servicios que pueda cobrar o concesionar el MINAE, se revisarán periódicamente con el fin de actualizarlos según lo requiera su naturaleza y el interés público. La fijación de los montos debe realizarse mediante decreto ejecutivo, y será debidamente publicado en La Gaceta para efectos de su eficacia.
