@@ -1,0 +1,1 @@
+Artículo 22.-Lo resuelto por la Comisión podrá ser objeto de alzada para ante el Ministro de Obras Públicas y Transportes. El recurso de apelación será interpuesto ante la Comisión dentro de los cinco días siguientes al de la notificación personal al interesado o al de la publicación en "La Gaceta" de la resolución recurrida según sea el caso.

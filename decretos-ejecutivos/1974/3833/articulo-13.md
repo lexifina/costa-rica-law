@@ -1,0 +1,1 @@
+Artículo 13.-Una vez discutido un asunto, el Presidente lo pondrá a votación debiendo producirse los votos necesariamente de manera afirmativa o negativa. La votación será nominal cuando así se acuerde.

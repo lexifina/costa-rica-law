@@ -1,0 +1,1 @@
+Artículo 6°-En el conocimiento, tramitación y resolución de los asuntos propios de. su competencia, la Comisión aplicará las disposiciones legales que le son propias y los reglamentos ejecutivos complementarios, atendiendo previamente los estudios e informes que sean suministrados por las Direcciones Generales de Planificación y de Tránsito y Transportes.
