@@ -1,0 +1,147 @@
+PODER EJECUTIVO
+DECRETOS
+Nº 29860-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Considerando:
+1º—Que el inciso Nº 5, aparte b) del artículo 7º de la Ley Nº 8050 del 7 de diciembre del 2000, "Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2001", establece:
+"Facúltese al Poder Ejecutivo para que, mediante decreto elaborado por el Ministerio de Hacienda, realice lo siguiente:
+b) Traslade, previa autorización de la Contraloría General de la República, los sobrantes de las partidas de servicios personales y sus correspondientes cargas sociales, sobrantes en prestaciones legales y en las partidas destinadas a la erogación de los diferentes regímenes de pensiones cargados al presupuesto nacional, para financiar las partidas del servicio de la deuda pública, las partidas para pagar pensiones y prestaciones legales con cargo al Gobierno Central o el pago de servicios personales y sus correspondientes cargas sociales en los programas presupuestarios en que se generen faltantes. De la misma manera, se le autoriza para que realice, en forma inversa, los traslados antes mencionados".
+2º—Que en el subprograma presupuestario 573-03 Tercer Ciclo Educación Diversificada Técnica se generó un sobrante de lecciones destinadas a cubrir los incrementos en la matricula.
+3º—Que se hace necesario cubrir el faltante de lecciones de Educación Cívica en el subprograma presupuestario 573-02 Tercer Ciclo y Educación Diversificada Académica, producto del acuerdo del Consejo Superior de Educación Nº CS-08-2001.
+4º—Que la Contraloría General de la República aprobó el presente decreto mediante oficio Nº 10638 del 18 de setiembre del 2001. Por tanto,
+Decretan:
+Artículo 1º—Modifícase el artículo 2° de la Ley Nº 8050 del 7 de diciembre de 00 "Ley de Presupuesto Ordinario y Extraordinario de la República, para el ejercicio Económico del 2001, en la forma que se indica a continuación:
+REBAJAR:
+TÍTULO: 113
+MINISTERIO DE EDUCACIÓN PUBLICA
+PROGRAMA: 573-00
+IMPLEMENTACIÓN DE LA POLÍTICA EDUCATIVA
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+Sub Programa / Proyecto: 03
+III CICLO ED. DIVERS. TÉCNICA
+Registro Contable: 113-573-03
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 SERVICIOS PERSONALES 70,518,335
+000 01 111 20 SUELDOS PARA CARGOS FIJOS 65,093,848
+030 01 111 20 SUELDO ADICIONAL 5,424,487
+6 TRANSFERENCIAS CORRIENTES 10,086,563
+660 CONTRIB. PATRONAL A LA C.C.S.S. 8,404,974
+660 01 132 20 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (CUOTA PATRONAL POR
+CONCEPTO DE INVALIDEZ, VEJEZ
+Y MUERTE)
+Cédula Jurídica: 4-000-0421-47 2,383,794
+660 01 132 20 202 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (CUOTA PATRONAL POR
+CONCEPTO DE ENFERMEDAD
+Y MATERNIDAD)
+Cédula Jurídica: 4-000-0421-47 6,021,180
+661 CONTRIB. ESTATAL A LA C.C.S.S. 325,468
+661 01 132 20 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (CONTRIBUCIÓN ESTATAL POR
+CONCEPTO DE INVALIDEZ, VEJEZ
+Y MUERTE)
+Cédula Jurídica: 4-000-0421-47 162,734
+661 01 132 20 202 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (CONTRIBUCIÓN ESTATAL POR
+CONCEPTO DE ENFERMEDAD
+Y MATERNIDAD)
+Cédula Jurídica: 4-000-0421-47 162,734
+667 APORT. PATRON. REG. OBLIGAT. PENS.
+COMPLEMENTARIAS 813,673
+667 01 132 20 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (APORTE PATRONAL AL
+RÉGIMEN OBLIGATORIO DE PENSIONES
+COMPLEMENTARIAS, LEY DE
+PROTECCIÓN AL TRABAJADOR Nº 7983
+DEL 16 DE FEBRERO DEL 2000)
+Cédula Jurídica: 4-000-0421-47 813,673
+668 APORT. PATRON. FONDO
+CAPIT. LABORAL 542,448
+668 01 132 20 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (APORTE PATRONAL FONDO
+DE CAPITALIZACIÓN LABORAL, LEY
+DE PROTECCIÓN AL TRABAJADOR
+Nº 7983 DEL 16 DE FEBRERO DEL 2000)
+Cédula Jurídica: 4-000-0421-47 542,448
+7 TRANSFERENCIAS
+DE CAPITAL 325,468
+733 APORTES A ORGANISMOS FINANC. 325,468
+733 27 242 20 204 BANCO POPULAR Y DE DESARROLLO
+COMUNAL (PARA PAGO DE CUOTA
+PATRONAL AL BANCO POPULAR
+Y DE DESARROLLO COMUNAL)
+Cédula Jurídica: 4-000-0421-52 325,468
+Total Rebaja del
+Sub Programa / Proyecto: 573-03 80,930,366
+Total Rebaja del Programa: 573-00 80,930,366
+Total Rebaja del Título: 113 80,930,366
+Total rebajar 80,930,386
+AUMENTAR:
+TÍTULO: 113
+MINISTERIO DE EDUCACIÓN PUBLICA
+PROGRAMA: 573-00
+IMPLEMENTACIÓN DE LA POLÍTICA EDUCATIVA
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+Sub Programa / Proyecto: 02
+III CICLO Y EDUC. DIV. ACADEM.
+Registro Contable: 113-573-03
+G-O FF C-E CF I-P Concepto Monto en ¢
+0 SERVICIOS PERSONALES 70,518,335
+000 01 111 20 SUELDOS PARA CARGOS FIJOS 65,093,848
+030 01 111 20 SUELDO ADICIONAL 5,424,487
+6 TRANSFERENCIAS CORRIENTES 10,086,563
+660 CONTRIB. PATRONAL A LA C.C.S.S. 8,404,974
+660 01 132 20 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (CUOTA PATRONAL POR
+CONCEPTO DE INVALIDEZ, VEJEZ
+Y MUERTE)
+Cédula Jurídica: 4-000-0421-47 2,383,794
+660 01 132 20 202 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (CUOTA PATRONAL POR
+CONCEPTO DE ENFERMEDAD
+Y MATERNIDAD)
+Cédula Jurídica: 4-000-0421-47 6,021,180
+661 CONTRIB. ESTATAL A LA C.C.S.S. 325,468
+661 01 132 20 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (CONTRIBUCIÓN ESTATAL
+POR CONCEPTO DE INVALIDEZ, VEJEZ
+Y MUERTE)
+Cédula Jurídica: 4-000-0421-47 162,734
+661 01 132 20 202 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (CONTRIBUCIÓN ESTATAL
+POR CONCEPTO DE ENFERMEDAD
+Y MATERNIDAD)
+Cédula Jurídica: 4-000-0421-47 162,734
+667 APORT. PATRON. REG. OBLIGAT.
+PENS. COMPLEMENTARIAS 813,673
+667 01 132 20 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (APORTE PATRONAL AL
+RÉGIMEN OBLIGATORIO DE
+PENSIONES COMPLEMENTARIAS,
+LEY DE PROTECCIÓN AL
+TRABAJADOR Nº 7983 DEL 16 DE
+FEBRERO DEL 2000)
+Cédula Jurídica: 4-000-0421-47 813,673
+668 APORT. PATRON. FONDO
+CAPIT. LABORAL 542,448
+668 01 132 20 200 CAJA COSTARRICENSE DE SEGURO
+SOCIAL (APORTE PATRONAL
+FONDO DE CAPITALIZACIÓN
+LABORAL, LEY DE PROTECCIÓN AL
+TRABAJADOR Nº 7983 DEL 16 DE
+FEBRERO DEL 2000)
+Cédula Jurídica: 4-000-0421-47 542,448
+7 TRANSFERENCIAS DE CAPITAL 325,468
+733 APORTES A ORGANISMOS FINANC. 325,468
+733 27 242 20 204 BANCO POPULAR Y DE DESARROLLO
+COMUNAL (PAGO CUOTA PATRONAL
+A BANCO POPULAR Y DE
+DESARROLLO COMUNAL)
+Cédula Jurídica: 4-000-0421-52 325,468
+Total Aumento del
+Sub Programa / Proyecto: 573-02 80,930,366
+Total Aumento del Programa: 573-00 80,930,366
+Total Aumento del Título: 113 80,930,366
+Total Aumentar 80,930,366
