@@ -1,1 +1,0 @@
-Artículo 24.—Del informe final de liquidación. Por cada aporte otorgado, el Departamento Financiero elaborará un informe final al beneficiario, dando por aceptada o no la liquidación y enterando de ello a la Dirección y a la Auditoria Interna del ICODER para lo correspondiente.

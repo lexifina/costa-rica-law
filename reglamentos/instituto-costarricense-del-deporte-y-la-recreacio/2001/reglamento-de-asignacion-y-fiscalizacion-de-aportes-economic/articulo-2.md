@@ -1,1 +1,0 @@
-Artículo 2°—Sujetos beneficiarios. Podrán recibir aportes del ICODER o del Estado Costarricense todas aquellas instituciones definidas en el articulo 1° como beneficiarías, ya sean deportivas, educativas o privadas, y que tengan programas que el ICODER considere útiles para el cumplimiento de sus fines, así como aquellas instituciones que por ley obtengan ese beneficio.

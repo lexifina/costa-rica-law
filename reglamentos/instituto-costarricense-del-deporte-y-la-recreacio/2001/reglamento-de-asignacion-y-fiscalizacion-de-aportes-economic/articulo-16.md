@@ -1,2 +1,0 @@
-Artículo 16.—Del instructivo para la solicitud, entrega y control de aportes. El Proceso Financiero confeccionara un instructivo para la solicitud, aprobación, entrega, control y liquidación de aportes, mediante el cual se le indicará al beneficiario el mecanismo administrativo a seguir en las diferentes etapas del proceso (formatos de liquidación, fechas máximas para liquidar, unidades administrativas que deben dar
-aprobaciones previas, etc.).

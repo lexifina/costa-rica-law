@@ -1,1 +1,0 @@
-Artículo 34.—Obligación de la Contraloría en relación con aportes de otras instituciones. Para los mismos efectos del articulo anterior, la Contraloría informará al Consejo y a la Auditoria de las presupuestos aprobados a beneficiarios que reciban fondos públicos entregados por las instituciones señaladas en los artículos anteriores.

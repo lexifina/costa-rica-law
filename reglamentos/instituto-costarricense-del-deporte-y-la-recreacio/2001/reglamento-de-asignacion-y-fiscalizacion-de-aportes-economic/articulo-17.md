@@ -1,1 +1,0 @@
-Artículo 17.—De las cuentas bancarias. El beneficiario deberá utilizar una cuenta corriente en un banco estatal en la cual se depositara y administrara exclusivamente el aporte. El ICODER, según su elección y conveniencia, puede depositar directamente el aporte en esa cuenta, todo de acuerdo con las circulares 4700 y 4701 de mayo del 2001 dictadas por la Contraloría.
