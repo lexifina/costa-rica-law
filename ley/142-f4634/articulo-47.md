@@ -1,5 +1,5 @@
 Artículo 47
-1. Se establecerá un Comie de Estado Mayor para asesorar y asistir
+1. Se establecerá un Comité de Estado Mayor para asesorar y asistir
 al Consejo de Seguridad en todas las cuestiones relativas a las
 necesidades militares del Consejo para el mantenimiento de la paz y la
 seguridad internacionales, al empleo y comando de las fuerzas puestas a
@@ -12,8 +12,8 @@ asociarse a sus labores cuando el desempeño eficiente de las funciones
 del Comité requiera la participación de dicho Miembro.
 3. El Comité de Estado Mayor tendrá a su cargo, bajo la autoridad
 del Consejo de Seguridad, la dirección estratégica de todas las fuerzas
-armadas puestas a disposición del Consejo. Las cuestiones relativas all
+armadas puestas a disposición del Consejo. Las cuestiones relativas al
 comando de dichas fuerzas serán resueltas posteriormente.
 4. El Comité de Estado Mayor, con autorización del Consejo de
 Seguridad y después de consultar con los organismos regionales
-apropiados, podrá establecer subcomités regionales.
+apropiados, podrá estblecer subcomités regionales.
