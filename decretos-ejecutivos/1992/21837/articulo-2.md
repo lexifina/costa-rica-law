@@ -1,1 +1,0 @@
-Artículo 2°.-Por medio del presente, se modifica el decreto ejecutivo número 6112-A del 23 de junio de 1976 únicamente en lo que respecta los límites de la Zona Protectora La Carpintera; manteniéndose los limites de las demás Zonas Protectoras tal y como se establecieron mediante el decreto ejecutivo N° 6112-A. .

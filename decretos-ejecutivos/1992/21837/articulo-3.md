@@ -1,1 +1,0 @@
-Artículo 3°-De conformidad con la Ley Forestal número 7174, la propiedad número 83603, inscrita en el Registra Nacional al tomo 2493, folio 169, asientos 1 2 (Relleno Sanitario de Río Azul), queda sometida obligatoriamente al Régimen Forestal
