@@ -1,0 +1,5 @@
+DECRETO LVIII.
+Señala el plazo para la exaccion de los derechos de Aduana, y previene el modo de arreglarlos (1)
+(1) Refundido en la Ordenanza n° 6 de 31de agosto de1854.
+Considerando: que los derechos de consulado y peaje que se pagan en las Aduanas Marítimas no deben sujetarse a los plazos que para el pago de los demás derechos concede á los deudores del art° 2° del decreto de 6 de agosto de1838, por las perentorias exigencias de la Junta Itineraria que incesantemente y con el mayor zelo se ocupa de la composicion de los caminos generales en bien y mejora del comercio; y que por lo mismo es de imperiosa necesidad dictar medidas que aseguren á la expresada junta los recursos que le están asignados para llenar sus importantes atenciones y que hagan expedita y pronta la recaudación de sus respectivos derechos, de conformidad con su dictamen y en uso de las facultades que confiere al Ejecutivo la ley de 31de agosto de1842, ha venido en decretar y decreta.
+Art. 1°. Se reducen á un solo plazo de cuatro meses, los tres de que habla el art° 2° del citado decreto del 6 de agosto1838, para el pago de los derechos que corresponden á la dirección de caminos generales.

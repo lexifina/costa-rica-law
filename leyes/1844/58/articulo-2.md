@@ -1,0 +1,1 @@
+Art. 2. Los Ministros de las Aduanas, ántes de conceder la guía para la internación de cada cargamento ó factura, y de verificar su despacho, exijirán a los interesados, pagarees por el importe de los derechos itinerarios, otorgados á favor del tesorero de la Sociedad; los cuales deberán cubrirse, vencido el plazo á dicho funcionario en esta capital.

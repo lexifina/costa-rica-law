@@ -1,0 +1,1 @@
+Art. 3. Cuando la persona que verifica la introducción, y firma los pagarees, no tenga arraigo en el país, o no sea muy notoria su capacidad de cumplir la obligación contraída, se le exijirá por los Ministros un fiador de “mancomun” con las calidades designadas.
