@@ -1,0 +1,1 @@
+Artículo 5°—Cumplimiento de la Ley de Contratación Administrativa. Para la adquisición de líneas y teléfono celulares por parte de la Municipalidad, a Instituciones y empresas proveedoras, debe cumplir, en lo pertinente, con lo establecido en la Ley de Contratación Administrativa.

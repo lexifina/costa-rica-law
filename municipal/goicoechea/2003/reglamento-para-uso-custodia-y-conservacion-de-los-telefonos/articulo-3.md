@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. El presente Reglamento se aplicará a todos (as) los (as) servidores (as) de la Municipalidad, que posean un teléfono celular propiedad de la Municipalidad con su respectiva línea, ligados por una relación de empleo con la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 12.—Llamadas Internacionales. Tendrá acceso a llamadas telefónicas Internacionales, tanto entrantes como salientes, la línea celular asignada al Alcalde, siempre y cuando sean realizadas para atender asuntos estrictamente relacionadas con la Municipalidad.

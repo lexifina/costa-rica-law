@@ -1,0 +1,2 @@
+Artículo 8º—Responsabilidad de la custodia y conservación. Las
+personas a las que se les asigne teléfono celular tienen responsabilidad exclusiva sobre la custodia y la conservación de los teléfonos celulares asignados, así como de sus respectivos accesorios (baterías, cargadores, estuches, chips, entre otros). Por tanto, deben responder reintegrando el costo del aparato o del accesorio en caso de extravío o robo, y en los casos de deterioro, cuando se compruebe de conformidad con el procedimiento establecido por la Ley, que no obedece a su uso normal y cuidadoso.

@@ -1,0 +1,1 @@
+Artículo 4º—Supervisión de cumplimiento. La Dirección Administrativa en conjunto con el Departamento de Contabilidad son los responsables de velar por el debido cumplimiento de lo estipulado en el presente Reglamento.

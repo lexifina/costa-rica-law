@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. El presente Reglamento tiene por objeto regular la utilización racional, custodia y conservación de los teléfonos celulares pertenecientes a la Municipalidad, asignados con la finalidad de facilitar el desempeño de las funciones, tareas y actividades de los (as) servidores (as) y de los usuarios (as).

@@ -1,0 +1,1 @@
+Artículo 19.—Acceso a la información. El Alcalde se reserva el derecho de acceso a toda la información que requiere o amerita solicitando al respectivo proveedor del servicio las llamadas, duración y destinos entre otros. En el caso de que el Concejo requiera información debe solicitarla al Alcalde por acuerdo.

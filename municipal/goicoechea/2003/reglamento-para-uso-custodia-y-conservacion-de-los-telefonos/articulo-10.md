@@ -1,0 +1,1 @@
+Artículo 10.—Uso exclusivo. El teléfono celular es de uso exclusivo del (la) funcionario (a) a quien se le asignó, por lo que se prohíbe el trasiego o préstamo de teléfonos celulares, de una persona a otra, sin contar con el visto bueno del Alcalde.
