@@ -61,7 +61,7 @@ Instituto Costarricense del Deporte y la Recreación (Así modificado por el art
 Instituto Costarricense de Acueduc. y Alcantarillado (Así modificado por decreto ejecutivo N° 31142 de 21 de abril de 2003) | 32.129,2
 Instituto Costarricense de Ferrocarriles (Así Reformado parcial y expresamente por el artículo 1° del Decreto ejecutivo N° 31266 de 23 de junio de 2003) | 1.693.7
 Instituto Costarricense de Pesca | 833,4
-Instituto Costarricense de Puertos del Pacífico (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31477 de 27 de octubre 2003, publicado en La Gaceta N° 228 de 26 de noviembre de 2003.) | 5140.1
+Instituto Costarricense de Puertos del Pacífico (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31542 de 25 de noviembre 2003, publicado en La Gaceta N° 244 de 18 de diciembre de 2003.) | 5440.1
 Instituto Costarricense de Turismo (Así modificado por decreto ejecutivo N° 31057 de 26 de marzo de 2003) | 6.518,6
 Instituto Costarricense sobre Drogas (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 609.7
 Instituto de Desarrollo Agrario (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31309 de 29 de julio de 2003, publicado en La Gaceta N° 156 de 14 de agosto de 2003.) (Así REFORMADO PARCIAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 31373 de 16 de setiembre de 2003, publicado en La Gaceta N° 187 de 30 de setiembre de 2003.) | 8.024.7
