@@ -15,6 +15,6 @@ m) Controlar que los promotores trabajen ofreciendo información veraz, sin indu
 n) Establecer los sistemas contables, financieros, informáticos y de comunicaciones acordes con las normas de la Superintendencia.
 ñ) Realizar evaluaciones periódicas de los sistemas y planes vigentes, cuando a juicio de la Superintendencia sea necesario.
 o) Establecer, con carácter permanente, el comité de inversiones, el cual será responsable de las políticas de inversión de los recursos de los fondos administrados por la operadora.
-p) Presentar a la Superintendencia los estados financieros de los fondos y los estados financieros del propio ente autorizado, con la frecuencia, los criterios contables, las formalidades y el formato quedetermine la Superintendencia. Esta dispondrá cuándo deben ser dictaminados por un auditor externo.
+p) Presentar a la Superintendencia los estados financieros de los fondos y los estados financieros del propio ente autorizado, con la frecuencia, los criterios contables, las formalidades y el formato que determine la Superintendencia. Esta dispondrá cuándo deben ser dictaminados por un auditor externo.
 q) Adquirir una póliza de fidelidad o solvencia para cubrir los riesgos de manejo cuando, a juicio del Superintendente, así corresponda. Para tales efectos, el Consejo Nacional aprobará el respectivo reglamento.
 r) Los demás deberes que contemplen esta ley y los reglamentos dictados por la Superintendencia.

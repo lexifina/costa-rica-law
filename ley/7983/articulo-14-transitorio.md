@@ -1,0 +1,1 @@
+TRANSITORIO XIII.- Los afiliados al Régimen Obligatorio de Pensiones Complementarias que se pensionen dentro de los diez años siguientes a la vigencia de esta ley, podrán retirar la totalidad de los fondos acumulados en sus cuentas en el momento de pensionarse.

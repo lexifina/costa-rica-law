@@ -1,1 +1,2 @@
 ARTÍCULO 76.- Planes de pensiones complementarias existentes. Los contratos de planes de pensión complementaria y de capitalización que se hayan suscrito al amparo de la Ley de Régimen Privado de Pensiones Complementarias, No. 7523, de 7 de julio de 1995, o aquellos cuyo traslado al régimen privado de pensiones complementarias haya sido autorizado por la Superintendencia al amparo de esa ley, mantendrán las condiciones contractuales establecidas en el respectivo contrato.
+(NOTA: ver Transitorio XVI de esta ley).

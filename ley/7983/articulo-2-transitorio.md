@@ -1,0 +1,1 @@
+TRANSITORIO II.- La Superintendencia de Pensiones someterá a la consideración del Consejo Nacional de Supervisión, durante los primeros seis meses a partir de la vigencia de esta ley, los proyectos o las modificaciones de reglamentos que le correspondan de acuerdo con esta ley.
