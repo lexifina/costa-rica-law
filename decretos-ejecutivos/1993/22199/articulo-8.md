@@ -1,0 +1,1 @@
+ARTICULO 8. A las sesiones del Consejo de Finanzas, podrán ser convocadas por su Presidente con derecho a voz, representantes de otras instituciones públicas o privadas, y en general, todas aquellas personas a quienes el Consejo o su Presidente estime conveniente escuchar.
