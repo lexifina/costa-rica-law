@@ -1,0 +1,1 @@
+Artículo 10.—El Diario Oficial no publicará ningún documento que no se ajuste a lo dispuesto en la Ley No. 5292 del 23 de julio de 1973. (Sistema Internacional de Unidades (SI). Tampoco se publicarán documentos que no estén en el idioma Español (artículo 1, inciso e) de la Ley de Defensa del Idioma Español. Ley No. 7623 del 11-9-96).

@@ -1,0 +1,2 @@
+Artículo 3.—Todo documento que se va publicar debe ser impreso con tinta 100% legible. Si la publicación es escrita en computadora, la cinta debe ser negro sobresaliente (preferiblemente en láser o inyección de tinta).
+Si el documento tiene sellos no deben ser colocados sobre el texto a publicar, sino lo suficientemente separados de éste, para evitar confusiones.

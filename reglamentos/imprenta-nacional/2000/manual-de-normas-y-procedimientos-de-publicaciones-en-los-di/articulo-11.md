@@ -1,0 +1,1 @@
+Artículo 11.—Las tarifas para las publicaciones en los Diarios Oficiales, serán impuestas por la Junta Administrativa de la Imprenta Nacional. Estas tarifas, deberán ser publicadas en La Gaceta y en el Boletín Judicial (en sus versiones electrónicas inclusive) cada vez que se modifiquen.

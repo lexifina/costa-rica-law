@@ -1,0 +1,1 @@
+Articulo 12.—Cuando se trataré de documentos que deben publicarse dos o tres veces, deberá entenderse que son consecutivas. Si por alguna razón se omitiere una de esas publicaciones, la Imprenta se hará responsable de publicar el documento con el título de la publicación que se omitió ya sea primera, segunda o tercera vez, sin costo adicional para el cliente.

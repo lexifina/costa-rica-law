@@ -1,0 +1,1 @@
+Artículo 23.—El Departamento Financiero será el responsable de corroborar que los depósitos bancarios o descargos de las tarjetas de crédito estén en las cuentas de la Imprenta Nacional, antes de autorizar la publicación.

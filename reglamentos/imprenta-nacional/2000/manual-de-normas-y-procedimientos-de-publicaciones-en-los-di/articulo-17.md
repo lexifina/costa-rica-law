@@ -1,0 +1,1 @@
+Artículo 17.—El cliente que publica un documento, tendrá el derecho de recibir gratuitamente el ejemplar en el que salió publicado su aviso, siempre y cuando presente el correspondiente recibo o factura. De esta se hará una fotocopia en la que se estampará una leyenda que diga ejemplar entregado, y que quedará como comprobante por la entrega del ejemplar.

@@ -1,0 +1,1 @@
+Artículo 21.—Cuando la recepción de documentos para publicar se haga por medio de un ente autorizado por la Junta Administrativa de la Imprenta Nacional, mediante convenio se establecerán los mecanismos de comunicación y las responsabilidades de las partes.

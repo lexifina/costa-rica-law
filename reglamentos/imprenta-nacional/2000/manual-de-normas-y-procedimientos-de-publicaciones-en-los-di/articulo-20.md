@@ -1,0 +1,1 @@
+Artículo 20.—La recepción de documentos para publicar en los Diarios Oficiales también puede hacerse dentro o fuera del territorio nacional, mediante representantes autorizados por la Junta Administrativa de la Imprenta Nacional, utilizando para el pago un depósito o transferencia bancaria, o bien tarjetas de crédito.

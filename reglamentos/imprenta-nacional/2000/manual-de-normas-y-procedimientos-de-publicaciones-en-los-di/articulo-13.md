@@ -1,0 +1,1 @@
+Artículo 13.—Los documentos que requieran publicarse por tercera vez, y aquellos que además de presentarse impresos traen adjunto el texto en disquete, tendrán un descuento el cual será definido por la Junta Administrativa de la Imprenta Nacional.

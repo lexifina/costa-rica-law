@@ -1,0 +1,1 @@
+Articulo 2.—El documento a publicar debe venir en papel tamaño carta y con las páginas numeradas. En caso de tratarse de un documento muy extenso, se debe adjuntar un disquete con el contenido del documento en programas como Word o Excel y el texto no debe estar en letra mayúscula. También se solicita que no se incluyan ilustraciones tales como recuadros o áreas sombreadas.

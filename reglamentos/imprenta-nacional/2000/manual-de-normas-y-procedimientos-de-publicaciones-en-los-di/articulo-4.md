@@ -1,0 +1,1 @@
+Artículo 4.—Cuando se trata de marcas de fabrica y de ganado, se deben incluir dos fotocopias del diseño de la marca, 100% nítidas en papel bond N° 20, con un tamaño mínimo de 2 cm x 2 cm. Es necesario que cada diseño tenga bien definidas las líneas del dibujo.
