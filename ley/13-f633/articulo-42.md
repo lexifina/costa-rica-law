@@ -1,0 +1,1 @@
+Artículo 42.—Entre las limitaciones a que se refiere el artículo 39, no queda comprendido el contrato de prenda sobre las cosechas o frutos, el cual es permitido, con el objeto de facilitar al adjudicatario los medios para mantener y ampliar la producción del lote.

@@ -1,0 +1,1 @@
+Artículo 67.—Los árboles que se encuentren en el terreno arrendado podrán ser derribados cuando se considere necesario para los cultivos. No obstante, las maderas no podrán ser extraídas del lote arrendado, sino mediante el pago del precio y las demás condiciones que se establezcan en el reglamento de esta ley.

@@ -1,0 +1,1 @@
+Artículo 46.—Cuando los terrenos se dediquen a la cría o engorde de ganado, cada persona, familia o empresa, podrá obtener el arrendamiento de parcelas no mayores de quinientas hectáreas y si se trata de destinarlas a cultivos agrícolas, las parcelas se reducirán a doscientas cincuenta hectáreas.

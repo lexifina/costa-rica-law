@@ -1,0 +1,1 @@
+Artículo 55.—El arrendatario está obligado a cultivar por lo menos el veinticinco por ciento del área arrendada, dentro de los dos primeros años de la vigencia del contrato; un veinticinco por ciento en los dos años siguientes, y así sucesivamente, reservándose el Estado el derecho de declarar administrativamente la caducidad del contrato, si tales requisitos no fueren cumplidos.

@@ -1,0 +1,1 @@
+Artículo 64.—En caso de que el Poder Ejecutivo considere necesario el levantamiento de un plano y amojonamiento de la zona que va a arrendarse, así lo dispondrá, y para el efecto se seguirán los trámites señalados en los artículos 47, 48 y 49 de esta ley, a costa del arrendatario.

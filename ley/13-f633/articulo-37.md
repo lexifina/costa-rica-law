@@ -1,0 +1,1 @@
+Artículo 37.—La Secretaría de Fomento hará imprimir en folleto esta ley, así como las fórmulas necesarias para las solicitudes, con todos los datos y requisitos legales, y los repartirá profusamente a los Gobernadores y Jefes Políticos, a fin de que se distribuya gratuitamente a los interesados.
