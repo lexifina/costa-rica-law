@@ -20,3 +20,4 @@ Plan Regional de Desarrollo Urbano "Gran Area Metropolitana": Delimitación del 
 | 5 | 1987-08-27 | Reglamento 12 (1987-08-27) |
 | 6 | 1989-04-17 | Reglamento 3912 (1989-04-17) |
 | 7 | 1993-03-25 | Reglamento 4295 (1993-03-25) |
+| 8 | 1997-02-12 | Decreto Ejecutivo 25902 (1997-02-12) |
