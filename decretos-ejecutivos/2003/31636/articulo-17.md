@@ -1,0 +1,1 @@
+Artículo 17.—Del uso de herramientas o tiempo de trabajo: Es terminantemente prohibido utilizar las herramientas, accesorios o tiempo de trabajo de los empleados, en servicios particulares. Estos deben limitarse estrictamente a las funciones propias de su misión.

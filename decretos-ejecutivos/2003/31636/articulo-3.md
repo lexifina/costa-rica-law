@@ -1,0 +1,1 @@
+Artículo 3º—De los vehículos propiedad del MEP: Son vehículos propiedad del Ministerio de Educación Pública todos los vehículos adquiridos por este para cumplir sus fines y se encuentren inscritos a su nombre en el Registro Nacional de Bienes Muebles.

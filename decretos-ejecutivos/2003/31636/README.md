@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 31636
+
+Reglamento para el Uso, Control y Mantenimiento de Vehículos del Ministerio de Educación Pública
+
+- Tipo: Decreto Ejecutivo
+- Número: 31636
+- Fecha: 2003-10-12
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 30 del 2004-02-12
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=52391&param2=56860&param3=1 (ficha 52391)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2004-02-12 | la propia norma |

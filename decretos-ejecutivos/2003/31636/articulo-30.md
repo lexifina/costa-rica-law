@@ -1,0 +1,1 @@
+Artículo 30.—De la prohibición de intercambios: Los operadores de vehículos institucionales no podrán hacer intercambio de repuestos, herramientas y accesorios, o partes del vehículo, si no cuentan con la aprobación de la Sección de Transportes.

@@ -1,0 +1,2 @@
+Artículo 26.—De las personas autorizadas para conducir los vehículos: Únicamente están autorizados para conducir vehículos de uso administrativo del MEP, los servidores que ocupen el puesto de operador de equipo móvil y funcionarios debidamente autorizados por la Oficialía Mayor, ajustándose estos últimos a las regulaciones contempladas en este reglamento.
+Tratándose de los vehículos de uso discrecional, sólo podrán ser conducidos por la persona que lo tiene asignado o por el operador al cual dicha persona autorice.

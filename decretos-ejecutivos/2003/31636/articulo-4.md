@@ -1,0 +1,3 @@
+Artículo 4º—De la asignación de vehículos:
+a) Ningún vehículo estará asignado a funcionario o empleado determinado, con excepción de aquellos que se destinan a uso discrecional. No obstante lo anterior de acuerdo con la naturaleza de las funciones y la necesidad del servicio, se podrán asignar vehículos, de manera excepcional, a determinados departamentos o unidades internas del MEP.
+b) La asignación de los vehículos para uso discrecional o administrativo, será únicamente con la finalidad de brindar un mejor servicio y en ningún caso puede ser considerado como un beneficio, mejora salarial, plus, salario en especie o en alguna forma parte del contrato de trabajo, ni dar lugar a derechos adquiridos a favor del funcionario.

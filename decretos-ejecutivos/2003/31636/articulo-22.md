@@ -1,0 +1,1 @@
+Artículo 22.—De los vehículos sin utilidad para el MEP: La Dirección de Servicios Generales deberá recomendar la venta, remate o canje de unidades que, por alguna circunstancia, han dejado de ser útiles para la Institución.

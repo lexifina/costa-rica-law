@@ -1,0 +1,1 @@
+Artículo 25.—De las paradas innecesarias: No se permitirá que el operador realice paradas innecesarias para el buen resultado de la misión, exceptuando situaciones como las siguientes: necesidades fisiológicas, enfermedad, llamadas telefónicas de extrema urgencia.

@@ -1,0 +1,1 @@
+Transitorio único: Para iniciar el nuevo sistema de asignación de cupones, la Sección de Tesorería realizará inventario con el fin de informar a la Sección de Transportes la cantidad y numeración existente, de igual manera deberá informar cada vez que se realice una compra. Dado en la Presidencia de la República.—San José, a los trece días del mes de octubre del dos mil tres.

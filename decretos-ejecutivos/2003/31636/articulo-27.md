@@ -1,0 +1,2 @@
+Artículo 27.—Protección a los operadores: El MEP debe asegurar a sus operadores de equipo móvil durante el ejercicio de sus labores y también a los vehículos en forma permanente. Para ello suscribirá las pólizas de riesgos del trabajo y las relativas a vehículos, según las disposiciones de la Ley de Tránsito.
+La Sección de Transportes y la Dirección de Servicios Generales, propondrá a la Oficialía Mayor, las diversas coberturas adicionales en las pólizas de seguros de los vehículos.

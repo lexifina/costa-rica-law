@@ -1,0 +1,1 @@
+Artículo 16.—Del uso de vehículos en horas y días no hábiles: La circulación de vehículos de uso administrativo los sábados, domingos, feriados, días de asueto, y de lunes a viernes con posterioridad a las 22 horas, estará restringida, correspondiendo a la Oficialía Mayor autorizar su uso.

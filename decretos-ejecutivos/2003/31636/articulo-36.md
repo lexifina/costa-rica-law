@@ -1,0 +1,1 @@
+Artículo 36.—De la prohibición de arreglos extrajudiciales: Ningún Operador de Equipo Móvil del MEP está autorizado para efectuar arreglos extrajudiciales. En cualquier caso de accidente con vehículos del MEP, el operador está obligado a recurrir a la autoridad de tránsito para que confeccione la boleta de citación correspondiente.

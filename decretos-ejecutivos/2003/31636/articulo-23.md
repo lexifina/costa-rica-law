@@ -1,0 +1,1 @@
+Artículo 23.—De los recursos financieros: Corresponde a la Dirección de Servicios Generales conjuntamente con la Sección de Transportes, programar los recursos necesarios para la administración, operación y mantenimiento de los vehículos del MEP.

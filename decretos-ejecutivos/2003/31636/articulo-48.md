@@ -1,0 +1,1 @@
+Artículo 48.—Queda facultada la Dirección de Servicios Generales, para efectuar los cambios necesarios, en pro del mejoramiento del control interno, originados por la adquisición de nueva tecnología o modificación de procedimientos administrativos internos del Ministerio o de la Hacienda Pública. Estos cambios los comunicará en forma escrita a través de circulares.

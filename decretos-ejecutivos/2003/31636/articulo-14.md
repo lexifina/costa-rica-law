@@ -1,0 +1,1 @@
+Artículo 14.—De la agrupación de solicitudes: Con el propósito de lograr un mejor aprovechamiento de los vehículos disponibles, la Sección de Transportes podrá agrupar en un mismo viaje varias solicitudes de diferentes servidores u oficinas que se dirigen a un mismo lugar o ruta, previo aviso oportuno a los interesados, con doce horas mínimo de anticipación.

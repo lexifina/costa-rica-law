@@ -1,0 +1,1 @@
+Artículo 29.—De la conducción del vehículo: Es absolutamente prohibido a todos los operadores ceder la conducción del vehículo a personas no autorizadas dentro de la Orden de Transporte, salvo por razones muy calificadas, informando esta circunstancia a la Unidad de Transportes una vez finalizada la gira.

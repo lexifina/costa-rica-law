@@ -1,0 +1,1 @@
+Artículo 38.—Del informe del accidente: La Sección de Transportes analizará todo accidente de tránsito en que participe un vehículo del MEP a su cargo, del cual rendirá un informe con la recomendación respectiva, a la Dirección de Servicios Generales y a la División Jurídica.
