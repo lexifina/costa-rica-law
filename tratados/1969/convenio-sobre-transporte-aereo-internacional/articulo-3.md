@@ -1,21 +1,20 @@
 CAPITULO SEGUNDO
 Título de Transporte
 SECCION PRIMERA - BILLETE DE PASAJE
-Artículo 3
-1. En el transporte de viajeros, el portador estará obligado a
-expedir un billete de pasaje que deberá contener las indicaciones
-siguientes:
-a) Lugar y fecha de la emisión;
-b) Puntos de partida y destino;
-c) Las paradas previstas, bajo reserva de la facultad para el porteador
-de estipular que podrá modificarlas en caso de necesidad, y sin que dicha
-modificación pueda hacer perder el transporte su carácter internacional;
-d) El nombre y dirección del porteador o de los porteadores;
-e) Indicación de que el transporte está sometido al régimen de
-responsabilidad establecido en el presente Convenio.
-2. La falta, irregularidad o pérdida del billete, no afectará ni a la
-existencia ni a la validez del contrato de transporte, que no dejará por
-ello de estar sometido a las reglas del presente Convenio. Sin embargo,
-si el porteador admite al viajero sin que se le haya expedido un billete
-de pasaje, no tendrá derecho a prevalerse de las disposiciones de este
-Convenio que excluyan o limiten su responsabilidad.
+ARTICULO 3
+1.- En el transporte de pasajeros se expedirá un documento de
+transporte, individual o colectivo, que contenga:
+a) la indicación de los puntos de partida y destino;
+b) si los puntos de partida y destino están situados en el territorio
+de una sola Alta Parte Contratante y se ha previsto una o más escalas en
+el territorio de otro Estado, deberá indicarse una de esas escalas.
+2.- La expedición del documento mencionado en el párrafo anterior
+podrá sustituirse por cualquier medio que deje constancia de los datos
+señalados en a) y b) del párrafo anterior.
+3.- El incumplimiento de lo dispuesto en los párrafos precedentes no
+afectará a las existencias ni a la validez del contrato de transporte, que
+quedará sujeto a las reglas del presente Convenio, incluso las relativas
+a la limitación de responsabilidad.
+(Así modificado por el artículo II del Protocolo de Reformas a este
+Convenio, firmado en Guatemala en 1971, ley No.5103 del 15 de noviembre de
+1972)

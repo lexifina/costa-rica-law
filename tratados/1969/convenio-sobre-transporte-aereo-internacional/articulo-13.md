@@ -1,4 +1,4 @@
-Artículo 13
+ARTICULO 13
 1. Salvo en los casos indicados en el artículo precedente, el
 destinatario tiene derecho, desde la llegada de la mercancía al punto de
 destino, a solicitar del porteador que le remita la carta de porte aéreo

@@ -1,4 +1,4 @@
-Artículo 39
+ARTICULO 39
 1. Cada una de las Altas Partes Contratantes podrá denunciar al
 presente Convenio por medio de una notificación hecha al Gobierno de la
 República de Polonia, el cual dará cuenta inmediatamente al Gobierno de

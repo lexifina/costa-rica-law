@@ -1,6 +1,6 @@
 CAPITULO QUINTO
 Disposiciones generales y finales
-Artículo 32
+ARTICULO 32
 Serán nulas todas las cláusulas del contrato de transporte y todos
 los Convenios particulares anteriores al daño por medio de los cuales las
 Partes derogasen las reglas del presente Convenio, ya por determinación de

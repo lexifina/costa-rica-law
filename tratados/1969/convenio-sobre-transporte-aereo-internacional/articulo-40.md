@@ -1,4 +1,4 @@
-Artículo 40
+ARTICULO 40
 1. Las Altas Partes Contratantes podrán en el momento de la firma del
 depósito de las ratificaciones o de su adhesión, declarar que la
 aceptación por ellas prestada al presente Convenio, no se aplicará a todas

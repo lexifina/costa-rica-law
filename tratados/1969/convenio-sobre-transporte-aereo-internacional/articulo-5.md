@@ -1,5 +1,5 @@
 SECCION TERCERA - CARTA DE PORTE AEREO
-Artículo 5
+ARTICULO 5
 1. Todo porteador de mercancías tendrá derecho a solicitar al expedir
 la relación o entrega de un documento titulado "Carta de porte aéreo";
 todo expedidor tiene derecho a pedir al porteador la aceptación de dicho

@@ -1,4 +1,4 @@
-Artículo 38
+ARTICULO 38
 1. A partir de su entrada en vigor, el presente Convenio quedará
 abierto a la adhesión de todos los Estados.
 2. La adhesión se efectuará por una notificación dirigida al Gobierno

@@ -1,13 +1,17 @@
-Artículo 18
-1. El porteador es responsable del daño ocasionado en caso de
-destrucción, pérdida o avería de equipaje facturados o de mercancías,
-cuando el hecho que ha causado el daño se produzca durante el transporte
-aéreo.
-2. El transporte aéreo, con arreglo al sentido del párrafo
-precedente, comprenderá el período durante el cual los equipajes o
-mercancías se hallen bajo la custodia del porteador, sea en un aeródromo
-o a bordo de una aeronave o en un lugar cualquiera en caso de aterrizaje
-fuera de un aeródromo.
+ARTICULO 18
+1.- El transportista será responsable del daño ocasionado en caso de
+destrucción pérdida o avería de mercancías, cuando el hecho que haya
+causado el daño se haya producido durante el transporte aéreo.
+(Así modificado por el artículo V del Protocolo de Reformas a este
+Convenio, firmado en Guatemala en 1971, ley No.5103 del 15 de noviembre de
+1972)
+2.- El transporte aéreo, en el sentido del párrafo precedente,
+comprenderá el período durante el cual las mercancías se hallen bajo
+custodia del transportista, en un aeródromo, a bordo de una aeronave o, en
+caso de aterrizaje fuera de un aeródromo, en cualquier lugar.
+(Así modificado por el artículo V del Protocolo de Reformas a este
+Convenio, firmado en Guatemala en 1971, ley No.5103 del 15 de noviembre de
+1972)
 3. El período del transporte aéreo no comprende ningún transporte
 terrestre, marítimo o fluvial, efectuado fuera de un aeródromo. Sin
 embargo, cuando dicho transporte se efectuare en ejecución del contrato de

@@ -1,4 +1,4 @@
-Artículo 11
+ARTICULO 11
 1. La carta de porte aéreo hace fe, salvo prueba en contrario, de la
 ultimación del contrato, del recibo de la mercancía y de las condiciones
 del transporte.

@@ -1,6 +1,6 @@
 CAPITULO CUARTO
 Disposiciones relativas a los transportes combinados
-Artículo 31
+ARTICULO 31
 1. En el caso de transporte combinados efectuados en parte por el
 aire y en parte por cualquier otro medio de transporte, las estipulaciones
 del presente Convenio, no se aplicarán más que al transporte aéreo y si

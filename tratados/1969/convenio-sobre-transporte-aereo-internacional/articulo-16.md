@@ -1,4 +1,4 @@
-Artículo 16
+ARTICULO 16
 1. El expedidor estará obligado a suministrar los informes y unir a
 la carta de porte aéreo los documentos que, con anterioridad a la entrega
 de la mercancía al destinatario, sean necesarios para el cumplimiento de

@@ -1,4 +1,4 @@
-Artículo 37
+ARTICULO 37
 1. El presente Convenio será ratificado. Los documentos de
 ratificación se depositarán en los Archivos del Ministerio de Negocios
 Extranjeros de Polonia, el cual notificará dicho depósito a los Gobiernos

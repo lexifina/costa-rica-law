@@ -1,4 +1,4 @@
-Artículo 12
+ARTICULO 12
 1. El expedidor tiene derecho, con condición de cumplir toda las
 obligaciones resultantes del contrato de transporte, a disponer de la
 mercancía, ya retirándola del aeródromo de salida o destino, ya
