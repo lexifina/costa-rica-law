@@ -63,7 +63,8 @@ Fondo Nacional Ambiental 6,3
 Fondo Vida Silvestre 11,6
 Instituto Costarricense de Investigaciones y Enseñanza en
 Nutrición y Salud (incluye Asignaciones Fam.) 916,9
-Instituto Cost. del Deporte y la Recreación 1.210,5
+Instituto Cost. del Deporte y la Recreación 2.660,5
+(Así modificado por Decreto Ejecutivo N° 31047 de 17 de febrero de 2003)
 Instituto Costarricense de Acued. y Alcantarillado 28.129,2
 Instituto Costarricense de Ferrocarriles 1.293,7
 Instituto Costarricense de Pesca 833,4
