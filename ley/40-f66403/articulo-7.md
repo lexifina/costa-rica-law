@@ -1,0 +1,1 @@
+Artículo 7°—Los informes que obtenga el Banco respecto a personas o entidades que intervengan en cualquier contrato de seguro de esta clase, serán considerados como estrictamente confidenciales y estarán exentos de cualquier investigación judicial o de otra naturaleza.
