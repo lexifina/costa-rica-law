@@ -1,1 +1,2 @@
-Artículo 2º.- La anterior franquicia aduanera no se extiende a la importación de equipo personal de trabajo para los Bomberos, tal como botas, uniformes, cascos, etcétera.
+Artículo 2º.- La anterior franquicia se extiende, igualmente, a la importación del siguiente equipo personal de trabajo de los bomberos: cascos de seguridad, botas de hule de seguridad, equipos de radiocomunicaciones, guantes, viseras y capas protectoras, siempre y cuando tales artículos no se produzcan en el país, en condiciones de calidad que satisfagan los requisitos de seguridad que son necesarios para lograr una efectiva protección del usuario, todo a juicio del Ministerio de Hacienda.
+(Así reformado por el artículo 1° de la ley N° 5956 del 27 de octubre de 1976)
