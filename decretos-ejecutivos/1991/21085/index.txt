@@ -170,3 +170,5 @@ articulo-169.md
 articulo-170.md
 articulo-171.md
 articulo-172.md
+articulo-1-transitorio.md
+articulo-2-transitorio.md

@@ -1,2 +1,2 @@
-ARTICULO 32
-Las operaciones relacionadas con la manufactura y empaque primario de penicilina y otros antibióticos, hormonas y atinoplásicos se ejecutaran en instalaciones separadas de aquellas usadas para otros medicamentos para uso humano y animal.
+Artículo 32.- Las operaciones relacionadas con la fabricación, elaboración y empaque de penicilina, se realizarán en facilidades separadas de aquellas usadas para otros productos farmacéuticos para el consumo humano o animal. Entiéndase por facilidades separadas, las instalaciones, equipos, sistemas y procedimientos, personales y áreas exclusivamente destinadas para llevar a cabo esas operaciones.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 23950 del 6 de enero de 1995).

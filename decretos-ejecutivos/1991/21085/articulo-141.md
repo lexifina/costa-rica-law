@@ -1,4 +1,4 @@
 CAPITULO VII
 CONTAMINACIÓN CON ANTIBIÓTICOS HORMONAS Y ANTINEOPLASICOS
-ARTICULO 141
-Si ha existido la posibilidad de que un producto o componente haya estado expuesto a contaminación cruzada con antibióticos, hormonas o antineoplásicos se debe analizar la presencia de estos principios en el material supuestamemte contaminado. En caso de detectar contaminación, dicho material no debe ser usado ni comercializado.
+Artículo 141.- Si existiere la posibilidad razonable de que un producto farmacéutico haya estado expuesto a contaminación con otro producto farmacéutico, será sometido a prueba para determinar la presencia de los contaminantes. Si se encontraran niveles detectables, el producto contaminado no se pondrá a disposición del mercado.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 23950 del 6 de enero de 1995).

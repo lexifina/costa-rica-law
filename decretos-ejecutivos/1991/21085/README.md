@@ -14,3 +14,4 @@ Reglamento de Buenas Prácticas de Manufactura para la Fabricación y la Inspecc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-12-11 | la propia norma |
+| 2 | 1995-01-06 | Decreto Ejecutivo 23950 (1995-01-06) |
