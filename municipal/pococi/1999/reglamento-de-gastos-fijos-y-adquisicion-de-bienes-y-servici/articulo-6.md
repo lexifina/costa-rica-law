@@ -1,0 +1,1 @@
+Artículo 6°-El procedimiento de compra se inicia con la decisión administrativa de promover la adquisición de bines o servicios, emitida por el Alcalde u otro funcionario autorizado conforme al artículo 2° del presente Reglamento. Esta decisión, que encabezará el expediente que se forme, será motivada y contendrá por lo menos, una justificación de su procedencia.
