@@ -15,3 +15,4 @@ Apertura arancelaria y modificación de los Derechos Arancelarios a la Importaci
 | --- | --- | --- |
 | 1 | 2002-12-30 | la propia norma |
 | 2 | 2003-06-03 | Decreto Ejecutivo 31227 (2003-06-03) |
+| 3 | 2004-06-14 | Decreto Ejecutivo 31865 (2004-06-14) |
