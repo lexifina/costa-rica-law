@@ -1,6 +1,0 @@
-Artículo 125.- El personal que reingrese a brindar servicios
-a la policía, deberá ajustarse a los mismos requisitos de admisión
-a que se refiere el articulo anterior. En el caso de que uno de los
-aspirantes haya aprobado cualesquiera de los cursos de formación
-profesional, se le revalidará el mismo, salvo que su contenido sea
-diferente, en cuyo caso estará obligado a tomarlo y aprobarlo.

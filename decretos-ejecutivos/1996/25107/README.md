@@ -14,3 +14,4 @@ Reglamento General de Policía Penitenciaria (1996)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-09 | la propia norma |
+| 2 | 1996-05-09 | SINALEVI (sin norma nombrada) |
