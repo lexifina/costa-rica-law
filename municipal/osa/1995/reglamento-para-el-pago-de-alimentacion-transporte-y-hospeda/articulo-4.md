@@ -1,0 +1,1 @@
+Artículo N° 4.—Las sumas establecidas por el Reglamento de gastos de viaje y transportes para funcionarios o empleados del Estado aprobado por la Contraloría General de la República , son asignaciones máximas, en consecuencia la Municipalidad de Osa, se sujetara a dichas disposiciones-

@@ -1,0 +1,4 @@
+Artículo N° 3.—Las sumas a pagar por concepto de gastos de alimentación, transporte y hospedaje a los regidores y síndicos propietarios y suplentes, se regirán de acuerdo a lo que establece en el Reglamento de Viajes y Transporte para funcionarios o Empleados del Estado emitido y aprobado por la Contraloría General de la República y además según las siguientes reglas:
+a) Gastos por alimentación: se aplicarán las tarifas establecidas por el Reglamento emitido por la Contraloría General de la República.
+b) Gastos por alojamiento: tomando en consideración las áreas intermedias del traslado del lugar de residencia a la sede de la Municipalidad , considerando el pago de alojamiento en otras localidades del Cantón en caso de realizarse sesiones extraordinarias fuera de la sede habitual.
+c) Gastos por transportes: se aplicarán las tarifas que por transporte público, fije y regule el estado.

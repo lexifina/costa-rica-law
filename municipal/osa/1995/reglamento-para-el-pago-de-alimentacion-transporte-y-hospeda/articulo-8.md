@@ -1,0 +1,1 @@
+Artículo N° 8.—El funcionario encargado de recibir y revisar las liquidaciones y cancelaciones de saldos, deberá gestionar la liquidación y cobro respectivo antes del vencimiento del plazo, en caso contrario será responsable por su omisión.
