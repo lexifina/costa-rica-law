@@ -1,0 +1,1 @@
+Artículo 16.—La Municipalidad se compromete a cancelar conforme al Código de Trabajo el concepto de horas extras cuando las necesidades del municipio requieran que el empleado deba laborar más tiempo de la jornada laboral normal.

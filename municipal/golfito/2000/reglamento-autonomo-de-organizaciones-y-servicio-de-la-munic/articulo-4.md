@@ -1,0 +1,1 @@
+Artículos 4º—Las normas del presente Reglamento deben ser interpretadas y aplicadas recurriendo a los métodos y procedimientos usuales en el Derecho Administrativo, Códigos: Municipal y de Trabajo según corresponda, leyes conexas el uso y la costumbre en forma que mejor garantice la realización del fin público a que se dirigen.

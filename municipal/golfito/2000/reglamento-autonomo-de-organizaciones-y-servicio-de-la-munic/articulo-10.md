@@ -1,0 +1,1 @@
+Artículo 10.—La Municipalidad se compromete a otorgar a sus empleados un aumento igual al porcentaje decretado por el gobierno para el sector público más un 3%, el cual regirá a partir del primero de enero de cada año.

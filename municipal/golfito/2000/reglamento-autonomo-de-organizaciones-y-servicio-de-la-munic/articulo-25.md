@@ -1,0 +1,3 @@
+Artículo 25.—Se destina un monto fijo de ¢500.000,00 (quinientos mil colones) anuales, los cuales se incorporarán en el presupuesto ordinario de cada ejercicio y se asignará contra un programa de trabajo que presentará ante la Administración la Junta Directiva del Sindicato de Empleados Municipales.
+La Junta Directiva del Sindicato, deberá tomar en cuenta que la presente asignación deberá distribuirse de la siguiente forma: Un 50% para actividades deportivas y el otro 50% para el financiamiento de actividades recreativas y culturales de los empleados municipales.
+Golfito, 6 de noviembre del 2000.—Mariano Meza Peralta, Secretario del Concejo Municipal.
