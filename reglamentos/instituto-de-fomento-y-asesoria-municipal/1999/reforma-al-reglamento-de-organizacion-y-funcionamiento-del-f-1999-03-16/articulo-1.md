@@ -1,0 +1,3 @@
+INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal, mediante acuerdo segundo, artículo sexto de la sesión ordinaria N° 2876, celebrada por la junta directiva a las 13,00 horas del día 16 de marzo de 1999, resolvió modificar el artículo N° 15 del Reglamento de Organización y Funcionamiento del Fondo de Ahorro y Préstamo, en la siguiente forma:
+"El afiliado tendrá derecho a la devolución de sus ahorros e intereses acumulados una vez retirado del FODEAP, siempre que no tenga obligaciones con el Fondo. De tener ese servidor obligaciones con FODEAP. el monto del ahorro y sus intereses acumulados se aplicarán a la deuda, en cuyo caso tendrá derecho a la devolución del excedente."
