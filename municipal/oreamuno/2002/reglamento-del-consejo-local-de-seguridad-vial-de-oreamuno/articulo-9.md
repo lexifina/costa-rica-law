@@ -1,0 +1,1 @@
+Artículo 9º—El COLOSEVIO, sesionará ordinariamente una vez al mes y extraordinariamente cuando se considere necesario a criterio del presidente o a solicitud de dos o más de los miembros, hecha al Presidente quien convocara para tal efecto.

@@ -1,0 +1,1 @@
+Artículo 15.—Para la implementación de los programas y proyecto que formule y recomiende el COLOSEVIO, este podrá gestionar recursos adicionales provenientes de instituciones públicas y privadas, como de la comunidad. Los cuales ingresarán a la Municipalidad de Oreamuno para que sean presupuestados, para dar contenido a los programas y proyectos.

@@ -1,0 +1,1 @@
+Artículo 13.—El COLOSEVIO será el garante de la ejecución de los programas y proyectos de seguridad vial aprobado por el Concejo Municipal y por el Consejo de Seguridad Vial para lo que tendrá la atribución de evaluar periódicamente el avance y los resultados de los mismos.

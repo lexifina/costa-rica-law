@@ -1,0 +1,1 @@
+Artículo 4º—Los lineamientos del COLOSEVIO provendrán del Consejo de Seguridad Vial del Departamento de Ingeniería de Tránsito de la Dirección General de Tránsito, del Concejo Municipal y del propio COLOSEVIO.

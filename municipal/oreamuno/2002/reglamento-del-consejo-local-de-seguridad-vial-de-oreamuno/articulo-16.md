@@ -1,0 +1,1 @@
+Artículo 16.—La ejecución, el trámite y el control del gasto presupuestario que se derive de la gestión administrativa y operativa del COLOSEVIO está a cargo de la Municipalidad y se dará con base en el plan de trabajo de seguridad vial formulado por el COLOSEVIO y aprobado por el Concejo Municipal de Oreamuno y el Consejo de Seguridad Vial.

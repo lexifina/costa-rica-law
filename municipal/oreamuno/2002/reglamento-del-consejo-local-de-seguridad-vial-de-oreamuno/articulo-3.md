@@ -1,0 +1,1 @@
+Artículo 3º—Las políticas y acciones del COLOSEVIO se regirán en lo conducente a lo dispuesto en el Decreto Ejecutivo Nº 29390 MOPT-S, publicado en el Diario Oficial La Gaceta Nº 59 del 23 de marzo del 2001.
