@@ -13,3 +13,4 @@ Declara Región Pacífico Central Zona de Froticultura Tropical
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-07-11 | la propia norma |
+| 2 | 2000-01-21 | Decreto Ejecutivo 28441 (2000-01-21) |
