@@ -1,0 +1,1 @@
+Artículo 14.—Para los efectos de la actividad de servicio público de suministro de energía eléctrica, será causal de caducidad lo señalado en el artículo 15 de la Ley Nº 7593, sin perjuicio de otras causales de caducidad establecidas en otras leyes.

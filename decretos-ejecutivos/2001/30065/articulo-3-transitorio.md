@@ -1,0 +1,1 @@
+Transitorio III.—Cuando el plazo de una concesión de servicio público se encuentre sujeto a la promulgación del presente reglamento, el interesado deberá presentar una nueva solicitud en el término de seis meses a partir de la publicación de este reglamento.

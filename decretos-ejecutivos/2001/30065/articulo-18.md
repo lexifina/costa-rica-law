@@ -1,0 +1,1 @@
+Artículo 18.—Cuando una concesión se declare caduca o se revoque, el ICE asumirá la prestación del servicio publico, mientras se otorga una nueva concesión como lo señala el articulo 22 de la Ley Nº 7593. Los procedimientos que se seguirán en este caso, serán los establecidos en el reglamento de la mencionada Ley.

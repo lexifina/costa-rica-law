@@ -1,0 +1,1 @@
+Artículo 17.—En caso de que se llegara a determinar que el concesionario aportó documentación errónea o falsa en el trámite de obtención de la concesión de servicio, el MINAE procederá a revocar la concesión previo seguimiento del debido proceso.

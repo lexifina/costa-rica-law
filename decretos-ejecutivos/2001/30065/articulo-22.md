@@ -1,0 +1,1 @@
+Artículo 22.—El concesionario será el único y directo responsable ante terceros y sus usuarios de cualquier acción que, como consecuencia de su actividad, los llegue a afectar, para lo cual deberá contar con los seguros correspondientes.

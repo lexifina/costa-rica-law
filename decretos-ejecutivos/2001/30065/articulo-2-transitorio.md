@@ -1,0 +1,1 @@
+Transitorio II.—Cuando el plazo de una concesión de servicio público fuera de un año, el interesado deberá presentar la solicitud de prórroga a que se refiere el artículo 19 de este reglamento, con al menos tres meses de anticipación del vencimiento de la misma.

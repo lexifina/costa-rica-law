@@ -1,0 +1,1 @@
+Artículo 37.—La definición de sitios, rutas y la obtención de servidumbres o permisos para hacer uso de propiedades públicas o privadas, para la instalación de cualquier equipo y líneas de interconexión o distribución necesarias para la operación del proyecto, será responsabilidad del interesado.

@@ -1,0 +1,1 @@
+Artículo 7º—El MINAE, podrá realizar visitas de campo con el fin de recabar mayores elementos de juicio para mejor resolver la solicitud en trámite. De dicha visita se levantará el acta correspondiente. El interesado deberá proporcionar durante la inspección, toda la información que se le requiera y colaborará en el proceso de la misma.

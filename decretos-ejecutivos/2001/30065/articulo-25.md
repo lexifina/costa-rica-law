@@ -1,0 +1,1 @@
+Artículo 25.—En caso de que el interesado pretenda brindar el servicio público de generación utilizando como fuente de energía el agua, deberá además de lo dispuesto en el artículo anterior presentar la concesión de aguas vigente, respectiva.

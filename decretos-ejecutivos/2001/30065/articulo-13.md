@@ -1,0 +1,1 @@
+Artículo 13.—Conforme lo establece el artículo 18 de la Ley Nº 7593, el concesionario no podrá levantar, durante la vigencia de la concesión, los equipos o instalaciones indispensables para brindar el servicio público, sin autorización escrita previa de la entidad competente.

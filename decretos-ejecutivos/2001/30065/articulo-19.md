@@ -1,0 +1,1 @@
+Artículo 19.—Las concesiones de servicio público objeto de este reglamento, solo podrán ser prorrogadas mediante solicitud previa del interesado de acuerdo con los términos de la concesión y hasta completar el plazo de 20 años, dicha solicitud deberá presentarse con al menos doce meses de anticipación a la fecha de vencimiento de la concesión.

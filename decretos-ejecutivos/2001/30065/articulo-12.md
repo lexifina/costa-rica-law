@@ -1,0 +1,1 @@
+Artículo 12.—Contra el acto administrativo que resuelva la solicitud de concesión de servicio público, cabrán los recursos ordinarios y extraordinarios establecidos en la Ley General de la Administración Pública.

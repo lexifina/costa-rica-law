@@ -1,0 +1,1 @@
+Artículo 38.—Si un prestador disfruta de una o más concesiones para la prestación de un servicio público en los procesos de generación, distribución y comercialización, o cualquier combinación de ellos, deberá llevar contabilidades separadas. Asimismo, si brinda otros servicios no relacionados con el servicio público para el cual posee concesión.
