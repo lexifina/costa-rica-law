@@ -1,0 +1,1 @@
+Artículo V. Las cuestiones que se susciten sobre prioridad de las patentes de invención, se resolverán, teniendo en cuenta la fecha de la solicitud de las patentes respectivas, en los países en que se otorgaron.

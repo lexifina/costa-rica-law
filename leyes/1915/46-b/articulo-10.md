@@ -1,0 +1,1 @@
+Artículo X. Las copias certificadas de las patentes de invención en el país de origen, de acuerdo con las leyes de la nación, recibirán entera fe y crédito, como prueba del derecho de prioridad, sin perjuicio de lo que se dispone en el artículo VII.

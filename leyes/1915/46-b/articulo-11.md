@@ -1,0 +1,1 @@
+Artículo XI. Los tratados sabré patentes de invención, dibujos o modelos industriales, efectuados con anterioridad entre los países signatarios del presente convenio, serán sustituidos por éste, desde que quede ratificado, en cuanto a las relaciones entre los Estados signatarios,
