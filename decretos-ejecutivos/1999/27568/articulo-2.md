@@ -1,0 +1,2 @@
+Artículo 2°—De conformidad con lo establecido, las instancias indicadas procederán a otorgar las identificaciones respectivas.
+En cuanto fuere requerido y dentro del marco de las regulaciones legales pertinentes, se realizaran las acciones de coordinación y ajustes en los aspectos operativos de las instituciones antes mencionadas, que permitan compartir los recursos, información, conocimientos, así como el equipo, bienes y materiales que se necesitaren para el cumplimiento de los fines y objetivos perseguidos
