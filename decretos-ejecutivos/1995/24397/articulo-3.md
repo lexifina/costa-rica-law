@@ -1,0 +1,1 @@
+Artículo 3º.- Las sanciones provenientes de la relación de servicio público, se establecerán conforme lo establece el Reglamento Interior de Trabajo de este Ministerio, el Estatuto de Servicio Civil y su Reglamento.

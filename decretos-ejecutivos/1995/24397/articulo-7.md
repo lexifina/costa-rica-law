@@ -1,0 +1,1 @@
+Artículo 7º.- Contra las resoluciones que impongan sanciones disciplinarias dictadas por los jefes de dependencia de este Ministerio, cabrá recurso de revocatoria con apelación en subsidio ante el Ministro, en el término de tres días hábiles, contados a partir del día siguiente de la notificación de la sanción.

@@ -1,0 +1,1 @@
+Artículo 4º.- Los jefes inmediatos pondrán en conocimiento del titular de la dependencia, dentro del término improrrogable de tres días hábiles de ocurrida la infracción, los hechos irregulares en que incurran los servidores, para que se inicie el procedimiento disciplinario establecido, garantizando en todo caso el debido proceso al funcionario, bajo pena de responsabilidad.

@@ -1,0 +1,1 @@
+Artículo 6º.- Los incentivos establecidos a los servidores y los conflictos surgidos de la aplicación de las normas especiales que los otorguen, serán tramitadas por el Departamento de Personal, para la resolución final del Ministro.
