@@ -1,0 +1,7 @@
+Ley N° 8169
+ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DENOMINACIÓN DEL LICEO DE CERVANTES, CANTÓN
+DE ALVARADO, COMO LICEO LIC. MANUEL EMILIO
+RODRÍGUEZ ECHEVERRÍA
+Artículo 1°—Denomínese el Liceo de Cervantes, cantón de Alvarado, "Liceo Lie. Manuel Emilio Rodríguez Echeverría".
