@@ -1,0 +1,1 @@
+Artículo 7°—De la reelección de los miembros de la Junta. Los miembros integrantes de la Junta podrán ser reelectos consecutivamente por un período, debiendo esperar el transcurso de un período para ser nombrados nuevamente.

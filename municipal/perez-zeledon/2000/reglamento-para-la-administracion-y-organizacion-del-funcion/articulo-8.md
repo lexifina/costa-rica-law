@@ -1,0 +1,1 @@
+Artículo 8°—De la Juramentación de los miembros de la Junta. Previa convocatoria, los miembros de la Junta y el Fiscal serán juramentados por el Concejo en sus cargos e inmediatamente tomarán posesión de sus cargos.

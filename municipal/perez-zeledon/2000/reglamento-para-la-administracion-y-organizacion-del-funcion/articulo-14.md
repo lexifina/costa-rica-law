@@ -1,0 +1,1 @@
+Artículo 14.—Derecho a voz y voto. Los miembros de la Junta tendrán derecho a voz y voto en todas las sesiones. Las decisiones de la Junta se tomarán por mayoría simple. En caso de empate en la decisión el Presidente decidirá con el ejercicio del derecho al doble voto.

@@ -1,0 +1,10 @@
+Artículo 22.—Pérdida de Credencial de Miembro de la Junta. Perderá la credencial aquel miembro de la Junta que incurriere en cualquiera de las siguientes acciones:
+a. Quien faltare a tres sesiones consecutivas o a seis alternas, sin la respectiva justificación.
+b. Quien no ejerciere las funciones que su cargo en la Junta le fue otorgado.
+c. Quien actuare en contra de este Reglamento.
+d. Quien renunciare a su cargo y su renuncia fuere aceptada por la Junta.
+e. Quien realizare, favoreciere, ocultare la comisión por parte de la Junta de algún acto sancionado por cualquier norma del Ordenamiento Jurídico vigente que constituya, falta, contravención o delito, contra los principios de la Administración Pública y Privada que se le han encomendado, o contra la integridad de los activos y pasivos del inmueble que se le ha dado en administración.
+f. Quien ejerciere su cargo de manera desinterasada o irresponsable.
+g. Quien realizare, favoreciere u ocultare cualquier acto en forma personal o para favorecer a un tercero en contra de las normas del Ordenamiento Jurídico vigente.
+h. Quien incumpliere las normas del ordenamiento jurídico vigente en su gestión del cargo encomendado.
+La Junta conocerá, mediante una Comisión Especial conformada por dos de sus miembros y el Fiscal, de las denuncias o quejas que se presenten a su conocimiento contra sus miembros. Esta Comisión investigará los hechos denunciados y por votación de mayoría simple recomendará a la Junta una decisión acerca del resultado de su investigación. La Junta decidirá por mayoría simple de sus miembros, con exclusión de aquellos que hayan sido denunciados, lo procedente. De lo resuelto por la Junta cabrá recurso de revocatoria para ante la misma Junta y de Apelación para ante el Concejo Municipal, ambos dentro del término de cinco días hábiles. Lo resuelto por el Concejo será definitivo. Si la decisión que deba tomar la Junta o el Concejo fuere contra alguno de sus integrantes, estos deberán excusarse de conocer y votar del asunto.

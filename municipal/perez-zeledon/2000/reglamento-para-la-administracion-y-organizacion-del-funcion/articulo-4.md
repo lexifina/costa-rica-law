@@ -1,0 +1,2 @@
+Artículo 4°—Ámbito de aplicación de este Reglamento. Las presentes disposiciones serán aplicables a toda actividad; sea ésta cultural, deportiva, agropecuaria, social, religiosa, comunal, industrial, comercial, forestal, cívica, patronal o de cualquier otra índole, a realizarse en el Campo de Exposiciones Municipal.
+Además será de aplicación para todo trámite relacionado con la gestión de estas actividades y con la Administración efectiva, eficaz, eficiente y oportuna de este inmueble municipal.

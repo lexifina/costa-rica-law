@@ -1,0 +1,1 @@
+Artículo 17.—Recurso de Revisión.- Los miembros de la Junta podrán interponer recurso de revisión contra sus acuerdos. Este recurso deberá ser planteado a más tardar al momento de discutirse el acta y deberá resolverse en la misma sesión en que se conoce por votación de mayoría simple.

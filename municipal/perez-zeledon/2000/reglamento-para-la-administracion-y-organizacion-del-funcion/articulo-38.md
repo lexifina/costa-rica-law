@@ -1,0 +1,1 @@
+Artículo 38.—Firma de los Contratos. Los contratos por alquiler serán firmados por el Presidente, el Tesorero y el interesado, debiendo siempre informar de los términos y condiciones de los mismos a la Junta en la sesión inmediata siguiente a su firma.

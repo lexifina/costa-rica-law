@@ -1,0 +1,1 @@
+Artículo 37.—Principios de la Contratación. La Junta podrá alquilar parcial o totalmente las instalaciones del Campo de Exposiciones previo acuerdo y contrato establecido con las formalidades de ley y reglamentarias. Para lo anterior serán de aplicación los Principios de Justicia, Equidad e Igualdad por lo que no será posible hacer ningún tipo de discriminaciones.

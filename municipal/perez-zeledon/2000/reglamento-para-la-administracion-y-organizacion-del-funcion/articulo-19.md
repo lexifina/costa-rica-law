@@ -1,0 +1,1 @@
+Artículo 19.—Informe de Labores al Concejo. En el mes de abril de cada año, la Junta presentará por escrito al Concejo un informe anual de labores. Además adjunto al mismo deberá entregar un Plan Anual de Trabajo para el año siguiente junto con la Estimación del Presupuesto necesario para su operación.
