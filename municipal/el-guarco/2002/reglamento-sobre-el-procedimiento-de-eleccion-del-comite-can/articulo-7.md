@@ -1,0 +1,1 @@
+Artículo 7º—Aval de asociación, agrupación o entidad deportiva. Cada candidato debe presentar el aval o carta poder de tres entidades deportivas debidamente inscritas, Asociaciones de Desarrollo u Organizaciones Comunales vigentes que se incluirán dentro de los atestados.

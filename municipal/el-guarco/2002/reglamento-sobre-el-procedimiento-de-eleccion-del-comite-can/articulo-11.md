@@ -1,0 +1,1 @@
+Artículo 11.—Representante de las Asociaciones. La comisión nombrada por el Concejo Municipal para tal fin deberá coordinar con las diferentes organizaciones deportivas y recreativas del cantón el nombramiento de sus representantes.

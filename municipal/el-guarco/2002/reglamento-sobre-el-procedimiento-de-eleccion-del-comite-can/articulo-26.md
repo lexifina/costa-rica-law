@@ -1,0 +1,1 @@
+Artículo 26.—Integración de la Junta Directiva, Comité Comunal. Los Comités Comunales estarán conformados por una Junta Directiva dentro de la cual se nombraran un presidente, vicepresidente, un tesorero, un secretario, un vocal. Sus funciones estarán reguladas por el Comité Cantonal.

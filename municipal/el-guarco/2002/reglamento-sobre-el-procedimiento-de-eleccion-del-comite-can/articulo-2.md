@@ -1,0 +1,1 @@
+Artículo 2º—Comités Comunales. Asimismo se nombrarán Comités Comunales de Deportes y Recreación, adscritos del Comité Cantonal de cada distrito, barrio y caserío que lo amerite. (Art. Nº 166 Código Municipal).

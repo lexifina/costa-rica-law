@@ -1,0 +1,1 @@
+Artículo 6º—Verificación de los requisitos. El cumplimiento de estos requisitos será verificado por medio de la presentación de los atestados que lo muestren como aspirante a miembro del Comité Cantonal de Deportes y serán conocidos por la Comisión Municipal de Cultura y Deportes de la Municipalidad de El Guarco.
