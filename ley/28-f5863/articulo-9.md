@@ -1,0 +1,1 @@
+Art. 9°. -A otro día de vencido el emplazamiento sin necesidad de mejorarse el recurso, ni de presentarse las partes, el Juez del Crimen señalará hora para la visita, quedando el expediente en la oficina á la orden de las partes que estén presentes, las primeras veinticuatro horas de la fecha del auto en que se señala para la vista. Este auto no se notifica, pero si la sentencia.
