@@ -14,3 +14,4 @@ Modifíca el Límite Presupuestario y de Gasto Efectivo establecido para el Inst
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-12 | la propia norma |
+| 2 | 2001-02-08 | Decreto Ejecutivo 29334 (2001-02-08) |
