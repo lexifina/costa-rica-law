@@ -1,0 +1,1 @@
+ARTÍCULO 113.-Los votos deberán valer y numerarse según las barras que poseyere en la mina cada compañero; de suerte que si uno o muchos fueren dueños de solo una barra, solo tendrá n un voto, y el que tuviese dos valdrá su voto por dos; y as¡ de los demás; pero si uno solo fuere dueño de doce o m s barras, su voto valdrá siempre por uno menos de la mitad.

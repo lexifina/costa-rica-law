@@ -1,0 +1,1 @@
+ARTÍCULO 96.-Que la contramina se ha de llevar, en cuanto sea posible, por línea recta, y por la más corta distancia de la veta o vetas que se pretenden habilitar o por el hilo, o dirección de alguna de ellas.

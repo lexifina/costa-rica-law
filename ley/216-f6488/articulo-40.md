@@ -1,0 +1,1 @@
+ARTÍCULO 40.-El descubridor de veta nueva en cerro conocido, y en otras partes, trabajado, podrá tener en ella dos pertenencias seguidas o interrumpidas por otras minas, con tal que las designe también dentro de diez días.

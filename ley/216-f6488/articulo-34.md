@@ -1,0 +1,1 @@
+ARTÍCULO 34.-Las materias de abastos, obras y caminos públicos y demás objetos de esta naturaleza, han de ser del privativo conocimiento de las diputaciones: as¡ como todo lo que correspondía a la municipalidad establecida en el mineral del Aguacate, que cesar .

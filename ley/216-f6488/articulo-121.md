@@ -1,0 +1,1 @@
+ARTÍCULO 121.-Todos los individuos que voluntariamente quieran inscribir sus nombres en la matrícula de operarios, lo verificar n ante la diputación, expresando sus nombres y apellidos, lugares de la provincia de donde sean originarios y el destino que principalmente hayan elegido para cumplir su matrícula.

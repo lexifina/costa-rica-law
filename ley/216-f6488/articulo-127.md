@@ -1,0 +1,1 @@
+ARTÍCULO 127.-De la gracia anterior disfrutarán también todos los departamentos que en lo sucesivo se formen en cualquier punto del Estado, con tal que el terreno contiguo al departamento sea baldío, debiéndose entender por departamento el laborío que no baje de tres minas productivas.

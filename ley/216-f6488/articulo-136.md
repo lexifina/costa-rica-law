@@ -1,0 +1,1 @@
+ARTÍCULO 136.-Ninguna persona podrá comprar a operario ni sirviente alguno, metales, azogue, oro en pella o de otro modo, a no ser con boleto del patrón o persona de quien justamente lo haya adquirido, bajo la pena de perder el duplo de principal y sufrir el castigo a proporción de su malicia que de oficio aplicar la diputación.

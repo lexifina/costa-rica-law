@@ -1,0 +1,1 @@
+ARTÍCULO 59.-Tambi‚n se prohíbe los regulares de ambos sexos el que puedan denunciar, ni de manera alguna adquirir para s¡, ni para sus conventos o comunidades minas algunas: entendiéndose poderlas obtener los eclesiásticos seculares con tal que sea bajo los tr mites ante dichos y en la misma forma de los demás ciudadanos.

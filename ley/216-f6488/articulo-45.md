@@ -1,0 +1,1 @@
+ARTÍCULO 45.-Si se ofreciere cuestión sobre quien ha sido primer descubridor de una veta, se tendrá por tal el que probare que primero halle metal en ella aunque otro la haya cateado antes y en caso de duda se tendrá por descubridor el que primero hubiere registrado.

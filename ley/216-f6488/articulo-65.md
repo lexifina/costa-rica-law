@@ -1,0 +1,1 @@
+ARTÍCULO 65.-Por la que llaman cuadra esto es haciendo ángulo recto, con la anterior medida supuesto que el echado a recuesto de la veta se manifieste suficientemente en el poso de siete varas, se medir la pertenencia por la regla siguiente.

@@ -1,0 +1,1 @@
+ARTÍCULO 21.-Las apelaciones en tercera instancia guardar n el orden establecido en el Estado, debiendo ser el término de tres meses el prefijado para la conclusión de las causas de minería, contados desde la primera sentencia.
