@@ -1,1 +1,0 @@
-Artículo 2°—Las modificaciones arancelarias a las que se refiere el artículo anterior, se comunicarán a los Gobiernos Centroamericanos y a la Secretaría de Integración Económica Centroamericana (SIECA), a efecto de cumplir con lo dispuesto en el Convenio Sobre el Régimen Arancelario y Aduanero Centroamericano, Ley N° 6986 del 3 de mayo de 1985.
