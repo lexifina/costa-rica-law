@@ -1,0 +1,1 @@
+Art. 2°-La expresada Municipalidad puede con- ceder á los deudores á sus fondos, que no puedan pagar en la actualidad, una prórroga hasta por cinco años, bajo las mismas seguridades que tienen otorgadas.
