@@ -1,0 +1,1 @@
+Artículo 2°.- El Ministerio de Agricultura y Ganadería, en el desarrollo de sus actividades agrícolas, ganaderas, forestales y pesqueras, le dará prioridad a los aspectos conservacionistas, coordinando sus labores con las demás instituciones del sector agropecuario, manteniendo así una política armónica y uniforme.
