@@ -8,3 +8,4 @@ nacional debidamente comprobado por el Ministerio de Agricultura e
 Industrias, se podrá conceder la exoneración pero únicamente en las
 cantidades necesarias para llenar dicho faltante, previa recomendación
 del referido Ministerio.
+( Ver NOTA del artículo 19)

@@ -1,4 +1,6 @@
-Ley de Protección y Desarrollo Industrial
+Ley de Protección y Desarrollo Industrial (*)
+(*) Ver Observaciones sobre DEROGACION TACITA de la presente Ley
+en opción 3.
 CAPITULO I
 Objetivos de la Ley
 Artículo 1º.- La presente ley tiene como objetivo fundamental
