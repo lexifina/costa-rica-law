@@ -1,2 +1,3 @@
 Artículo 5°-Para el cómputo del tiempo servido no es menester que los servicios hayan sido desempeñados consecutivamente ni en puestos de igual categoría. Se sumará el tiempo servido en las diferentes épocas en la Municipalidad a la que se solicita pensión.
-A la persona que haya servido diez años como empleado, se le computarán como servicios para el efecto de esta ley, los años servidos como munícipe.
+A la persona que haya servido ocho años como empleado, se le computarán como servicios, para los efectos de esta ley, los años servidos como munícipe.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 2217 del 5 de junio de 1958)
