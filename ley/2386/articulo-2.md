@@ -1,0 +1,1 @@
+Artículo 2º.- Facúltase a la Universidad para permitir el internado en las dependencias hospitalarias del país, a los estudiantes de Medicina que hayan concluido su ciclo de estudios, como requisito previo al otorgamiento del título correspondiente y conforme a la reglamentación que dicha Institución establezca.
