@@ -14,3 +14,4 @@ Reglamento sobre financiamiento en el corto y largo plazo para proyectos de vivi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-10 | la propia norma |
+| 2 | 2003-02-20 | Reglamento 10 (2003-02-20) |
