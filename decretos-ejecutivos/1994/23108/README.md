@@ -14,3 +14,4 @@ Acuerdo Cooperativo entre el Ministerio de Agricultura y Ganadería de Costa Ric
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-04-21 | la propia norma |
+| 2 | 1998-10-15 | Decreto Ejecutivo 27404 (1998-10-15) |
