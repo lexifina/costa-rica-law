@@ -1,0 +1,1 @@
+Artículo 11.—Formalización de la orden de compra. Para fines internos, la orden de compra deberá contar con la respectiva revisión de la Proveeduría y con la aprobación de la Dirección Administrativa, o sustituto en caso de ausencia.

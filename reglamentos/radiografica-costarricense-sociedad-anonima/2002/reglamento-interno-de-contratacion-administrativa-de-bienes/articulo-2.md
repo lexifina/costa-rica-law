@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El presente reglamento tiene como objetivo regular el proceso de contratación de bienes y servicios de Radiográfica Costarricense, Sociedad Anónima, en el presente documento denominada RACSA, mediante el establecimiento de normas operativas y la asignación de responsabilidades a las diferentes dependencias de la Empresa.

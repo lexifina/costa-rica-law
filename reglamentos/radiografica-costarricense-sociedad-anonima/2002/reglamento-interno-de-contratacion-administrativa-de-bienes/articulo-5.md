@@ -1,0 +1,1 @@
+Artículo 5º—Mecanismos de contratación. Al seguir los diferentes lineamientos de contratación de bienes y servicios, RACSA deberá considerar y aplicar los límites de los montos económicos establecidos al efecto por la Ley de Contratación Administrativa, su Reglamento, lo dispuesto por la Contraloría General de la República y sus modificaciones.
