@@ -1,0 +1,1 @@
+Artículo 44. -Los pagos para el servicio de la deuda se harán mediante mandamientos del Tesorero Nacional, y por medio de cheque de pago a favor del Agente Fiscal correspondiente; o a favor del Banco-Cajero, para que este verifique el consiguiente traspaso a la cuenta correspondiente, si el mismo fuera el Agente.

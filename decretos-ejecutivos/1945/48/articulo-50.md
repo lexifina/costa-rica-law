@@ -1,0 +1,1 @@
+Artículo 50.- El Tesorero Nacional puede dispensar la rendición diaria de cuentas a la oficina de Contabilidad Nacional, cuando haya motivos de fuerza mayor , que imposibiliten al presunto cuentadante, de rendirlas en esa forma.

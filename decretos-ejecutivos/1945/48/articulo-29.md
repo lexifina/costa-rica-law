@@ -1,0 +1,1 @@
+Artículo 29.-Por regIa general ningún pagador podrá emitir cheques a favor de sí mismo; salvo el caso del pago de sus propio sueldo y del retiro de las sumas necesarias para el pago de sueldos o jornales que no sea posible pagar por cheque.

@@ -1,0 +1,1 @@
+Artículo 15: -Solamente el Tesorero Nacional, por medio de la Oficina de Contabilidad Nacional, podrá mandar a imprimir y distribuir formularios oficiales de recibo de dineros públicos, y todos los que se impriman Ilevarán una numeración correlativa. Podrán utilizarse, naturalmente, distintas series según la naturaleza del ingreso, si se considerara conveniente.

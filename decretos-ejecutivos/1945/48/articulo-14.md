@@ -1,0 +1,1 @@
+Artículo 14. -No se permitirán en los recibos por recaudaciones, tachaduras, borraduras o enmiendas. Los formularios que se utilicen, deberán ser anulados en todos sus tantos. Los tantos correspondientes al enterante y a la cuenta deberán ser ambos agregados, en tal caso, a esta última. El otro tanto deberá ser archivado como de costumbre.

@@ -1,0 +1,1 @@
+Artículo 22. -Los cheques de traspaso no podrán ser pagados en efectivo; sólo abonados en cuenta. En realidad, pues, no implicarán salida de fondos del Tesoro, sino simplemente un traslado de saldos dentro de las cuentas bancarias del Tesoro.

@@ -1,0 +1,2 @@
+Artículo 31 . -Las firmas puestas por las personas encargadas e emitir y refrendar los mandamientos de pago, o de suscribir certificados que hayan de formar parte de los mismos o completarlos ara su legitimo abono, harán suficiente fe para el Pagador, de los hechos sobre que el pago se haya de fundar.
+Por consiguiente, no tocará al pagador determinar, si efectivamente tales hechos han ocurrido en la forma certificada o si se han omitido requisitos de fondo en el trámite del gasto, o requisitos; de forma cuya falta no este manifiesta en el propio mandamiento.

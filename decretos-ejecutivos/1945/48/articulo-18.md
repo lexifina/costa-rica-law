@@ -1,0 +1,2 @@
+Artículo 18.-Las Tesorerías auxiliares deberán remesar cada día al Banco Cajero, todos los fondos recaudados en favor del Fisco, enviando diariamente a la Tesorería Nacional y al Centro de Control un duplicado de esos enteros.
+El Banco Cajero pondrá todas las sumas que reciba por cuenta del Tesorero Nacional, ya sea directamente de los deudores de este, ya sea de otros recaudadores, a la orden del 'Tesorero Nacional, abonándolos a una cuenta denominada "Cuenta General del 'Tesoro.

@@ -1,0 +1,2 @@
+Artículo 48. -Los funcionarios a que se refiere el artículo anterior, deberán rendir cuentas diariamente a la Oficina de Contabilidad Nacional. También deberán rendirlas al Centro de Control, en Ios plazos que indique la ley especial.
+En todo caso, la Oficina de Contabilidad Nacional y el Centro de Control, podrán exigir cuentas a los empleados que dejen su puesto antes. de que termine el período fijado por Ia ley para la rendición de sus cuentas, dentro de un plazo que no podrá exceder de quince días a contar de la fecha en que hayan entregado la oficina respectiva.

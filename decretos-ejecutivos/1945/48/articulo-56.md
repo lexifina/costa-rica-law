@@ -1,0 +1,2 @@
+Artículo 56. -El Tesorero Nacional podrá ordenar al Banco Cajero, la suspensión del pago de los cheques del pagador que la rendición de cuentas.
+En tal caso el Banco deberá advertir a las personas que presenten cheques del pagador moroso en las cuentas, que presenten mismos al Tesorero Nacional, o al funcionario designado por el que, visto que el cheque se refiere a un pago correcto, podrá levantar respecto de él, la orden de suspensión.

@@ -1,0 +1,1 @@
+Artículo 61 . -Ningún funcionario podrá alegar irresponsabilidad por haber confiado parte del cumplimiento de sus deberes, a un empleado inferior, salvo el caso de que esa delegación se apoye en la ley o en el presente reglamento.

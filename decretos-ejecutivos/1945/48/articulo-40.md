@@ -1,0 +1,2 @@
+Artículo 40.-De los pagos se levantará acta de pago que suscribirán el funcionario o empIeado que lo haya verificado, el Delegado deI Centro de Control y el Interventor, si estuvieren presentes, y los demás funcionarios que puedan dar fe de éI.
+Si a la hora del pago de una planilla no estuvieren presentes algunos de los que hayan devengado jornal, tal circunstancia deberá hacerse constar en el acta.

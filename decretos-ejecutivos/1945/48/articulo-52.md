@@ -1,0 +1,1 @@
+Artículo 52. -Los cuentadantes deberán enviar juntamente con los informes, los estados o las cuentas que les exija la Oficina de Contabilidad Nacional, los comprobantes de las operaciones a que dichos informes, estados o extractos en cuentas se refieren, para que ésta los someta a examen.

@@ -1,0 +1,1 @@
+Artículo 63. -Siempre que se hable de responsabilidad pecuniaria, se entenderá que se refiere a la responsabilidad que toca deducir, preventivamente a la Oficina de Contabilidad Nacional, y de manera definitiva, al Centro de Control y su Tribunal de Apelación, ello sin perjuicio de las responsabilidades que toque deducir a los Tribunales comunes.

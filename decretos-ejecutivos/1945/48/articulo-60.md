@@ -1,0 +1,2 @@
+Artículo 60 .-La responsabilidad que pudiera corre a la Oficina de Contabilidad Nacional con relación al examen de los comprobantes de ingreso o de pago, no disminuye Ia responsabilidad de los funcionarios o empleados cuyas cuentas se examinen o cuyas oficinas se sometan a arqueo o inspección.
+La única autoridad que puede fijar en definitiva, dentro de la esfera de la Administración, las responsabilidades pecuniarias de los empleados de manejo, o declarar que no las hay, es el Centro de Control.

@@ -1,0 +1,1 @@
+Artículo 41. -Dentro del término de dos meses de firmada acta a que se refiere el articulo anterior, podrá la pagaduría respectiva pagar los jornales rezagados, contra certificados expedidos por misma, y visados por el Interventor de la División del Tesoro y el Centro de Control o su Delegado; esto, sin perjuicio de las demás comprobaciones legales.

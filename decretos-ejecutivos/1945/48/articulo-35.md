@@ -1,0 +1,1 @@
+Artículo 35. -Se prohíbe el pago anticipado de sueldos, pensiones y jubilaciones, o de gastos fijos; es decir, los pagos definitivos de tales gastos, antes de ser devengados o de su fecha legal de vencimiento. Podrá verificarse el pago de los sueldos antes de la fecha su vencimiento, cuando mediare una disposición legal que beneficie a todo el personal administrativo.

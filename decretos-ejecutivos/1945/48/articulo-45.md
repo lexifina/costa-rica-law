@@ -1,0 +1,2 @@
+Artículo 45.-Los pagos de Dineros Ajenos en Custodia serán hechos por medio de cheque del Pagador Nacional, emitido en virtud de mandamiento de pago del Tesorero Nacional y refrenda por el Interventor de la División del Tesoro y por el Centro de Control a su Delegado.
+Los depósitos de garantía y los sueldos rezagados que no sean retirados en su debido tiempo, serán concentrados en la Cuenta General del Tesoro, como renta del Estado .

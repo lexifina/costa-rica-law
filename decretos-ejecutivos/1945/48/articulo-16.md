@@ -1,0 +1,3 @@
+Artículo 16.-Cuando la liquidación corresponda a una autoridad distinta del recaudador , se hará por medio de un mandamiento de ingreso expedido en debida forma. En tal caso deberá citarse en el recibo el número y el origen del mandamiento de ingreso.
+Los mandamientos de ingreso deberán llevar el sello y la firma del funcionario expedidor de ellos. Además siempre que sea posible deberán ser numerados correlativamente o por series. Deberán expresar claramente la suma a percibir , el concepto del ingreso y la persona que deberá hacer el pago.
+El recaudador responderá de su negligencia en hacer efectivos los mandamientos de ingreso ; pero no responderá de que el mandamiento haya sido correctamente liquidado. Solamente responderá de sus propias liquidaciones.

@@ -1,0 +1,1 @@
+Artículo 58.-Todo funcionario, empleado o agente del gobierno cuyas atribuciones permitan o exijan la posesión de dineros públicos, será responsable de su custodia, de conformidad con las disposiciones de la ley.

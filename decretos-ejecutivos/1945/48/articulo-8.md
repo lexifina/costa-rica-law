@@ -1,0 +1,2 @@
+Artículo 8°-La Contaduría de la División se encargará de llevar las cuentas de todo el movimiento de fondos de la Tesorería Nacional, y de intervenir, en la forma que después se indicará, en distribución y provisión de fondos.
+La Pagaduría Nacional tendrá a su cargo todos los pagos de la Nación, cualquiera que sea su motivo, origen y destino. Esos pagos los verificará ya directamente el Pagador Nacional, ya por medio de los pagadores subsidiarios

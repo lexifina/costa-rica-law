@@ -1,0 +1,1 @@
+Artículo 39. -En lo general deberá procurarse que los pagos de jornales se hagan por cheque. Se pagarán en efectivo únicamente aquellos jornales cuyo pago por cheque a juicio del Tesorero Nacional, habría de traer pérdidas o inconvenientes serios a los beneficiarios.

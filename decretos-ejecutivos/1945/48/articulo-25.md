@@ -1,0 +1,1 @@
+Artículo 25 .-No podrá emitirse mandamiento de pago alguno si no es a favor de un legítimo acreedor del Estado, o de un pagador que rinda alianza y que este en legal posesión de su cargo. Todo mandamiento se deberá referir a adeudos perfectamente definidos y liquidados.

@@ -1,0 +1,4 @@
+Artículo 19. -Entre el momento de la recaudación y el del depósito, no debe ser distraída suma alguna de las recaudaciones. Por consiguiente, será prohibido a los colectores todo préstamo o anticipo de dineros públicos que estén a su cuidado .
+Los colectores deberán depositar en la forma antes indicada, todas las recaudaciones íntegramente. Las deducciones de la renta, por comisiones o porcentajes sobre la venta de especies, podrán hacerse materia de excepción, por medio de instrucciones del Tesorero, si ello fuere absolutamente necesario para fines prácticos; pero no podrán hacerse deducciones para remuneración del propio colector. Su remuneración Ie será pagada por un pagador debidamente autorizado.
+Los Cónsules que no estén a sueldo quedan exceptuados de esta disposición, en el sentido de que podrán deducir, de las recaudaciones, el monto de sus honorarios.
+En todo caso, cualquier deducción deberá figurar en las cuentas, como gasto.

@@ -1,0 +1,1 @@
+Artículo 59. -Siempre que la ley o los reglamentos mencionen algún funcionario o empleado de manejo, dándole alguna intervención en la recaudación, custodia, control e inversión de los dineros públicos, se entiende que Ie impone un deber que cumplir, omisión Ie traerá responsabilidad. .
