@@ -1,0 +1,1 @@
+Art. 4°-La dirección de los trabajos para la conservación y mejora de los caminos será á cargo de una junta compuesta del Gobernador, en los cantones centrales, del Jefe Político en los menores y de los asociados que las Municipalidades nombrarán para cada distrito, cuyas funciones durarán un año, á contar del 1° de enero.
