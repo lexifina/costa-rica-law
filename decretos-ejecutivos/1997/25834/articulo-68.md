@@ -1,0 +1,1 @@
+Artículo 68.—La divulgación de información confidencial por parte de los inspectores personas o instituciones no autorizadas, ocasionará la aplicación de lo dispuesto en el artículo 72 de este Reglamento.

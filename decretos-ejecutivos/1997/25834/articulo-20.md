@@ -1,0 +1,1 @@
+Artículo 20.—Manejo de prácticas culturales: Es necesario practicar un plan de manejo general de la finca, que garantice una adecuada producción y salud de los cultivos, siguiendo las prácticas culturales indicadas en el Manual de Procedimientos.
