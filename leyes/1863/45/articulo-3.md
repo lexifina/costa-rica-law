@@ -1,0 +1,1 @@
+Art 3° El Agente Diplomático o Cónsul, ante quien haya pasado el matrimonio remitirá copia certificada del acta al Gobernador de la Provincia respectiva, para que este la deposite en su archivo o inscrita en un registro especial que al efecto ha de formar. El asiento que se inscriba contendrá su nacionalidad, edad, profesión y el nombre del Agente Diplomático o Cónsul.

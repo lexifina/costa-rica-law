@@ -1,0 +1,1 @@
+Art 2° Dichos funcionarios harán constar en la Secretaria Exteriores, la autorización correspondiente de sus respectivo Gobiernos, y certificará bajo la firma y sello oficial las actas de esta naturaleza que ellos autoricen, las cuales tienen fuerza de instrumento público, arreglado a las disposiciones del cap 1° tit 2°, 1° del Código Civil.
