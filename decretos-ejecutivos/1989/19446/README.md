@@ -14,3 +14,4 @@ Prohíbe el registro, fabricación, formulación, venta y usos agrícola del pro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-02-06 | la propia norma |
+| 2 | 1990-02-06 | SINALEVI (sin norma nombrada) |
