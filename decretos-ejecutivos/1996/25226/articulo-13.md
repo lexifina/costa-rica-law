@@ -17,3 +17,5 @@ k) Las empresas que no estén en operación y que van a construir edificaciones,
 (Así reformado el inciso anterior mediante el artículo 1 del decreto ejecutivo N°29058 del 06 de noviembre del 2000).
 l) Las agencias de viajes con declaratoria turística estarán sujetas asimismo a lo dispuesto en la Ley Reguladora de Agencias de Viajes, Nº 5339 y sus reformas.
 (Así adicionado el inciso anterior mediante el artículo 2 del decreto ejecutivo N°29058 del 06 de noviembre del 2000).
+ll) Cumplir con todas aquellas disposiciones establecidas por la Ley de Igualdad de Oportunidad para Personas con Discapacidad, Nº 7600, especialmente las contenidas en sus artículos 41, 42, 43, 44 y 50 así como en su respectivo reglamento.
+(Así adicionado el inciso anterior mediante el artículo 2 del decreto ejecutivo N°30207 del 05 de marzo del 2002).
