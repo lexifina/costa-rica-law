@@ -1,0 +1,1 @@
+Artículo 2°-Serán funciones de la comisión Asesora Aduanera del Ministerio de Hacienda, la de asesorar técnica y administrativamente a la Dirección General de Aduanas en materia de su competencia, según lo establecen el Código Aduanero Uniforme Centroamericano, su reglamento y las demás disposiciones legales y reglamentarias conexas.
