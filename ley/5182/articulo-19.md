@@ -1,0 +1,6 @@
+Artículo 19.- Sin perjuicio de lo dispuesto por los tratados vigentes, se exime a la Universidad Nacional del pago de impuestos municipales y de los impuestos a la importación, sobre las ventas, selectivos de consumo, territorial y de estabilidad económica.
+Exímesele, además, del pago de toda clase de impuestos nacionales o municipales, generales y especiales. La exención relativa a los tributos municipales y contribuciones nacionales comprende los presentes y los que en el futuro llegaren a crearse.
+La Universidad Nacional estará exenta, también, de los impuestos, tasas, timbres y derechos de inscripción en el Registro Público de todas las operaciones relativas a los bienes inmuebles que constituyen o llegaren a constituir el patrimonio de la Universidad.
+( Adicionado por Ley Nº 5684 de 30 de abril de 1975, artículo 1)
+( Interpretado auténticamente por Ley Nº 5857 de 3 de diciembre de 1975, artículo 1 )
+(Complementado por los artículos 2º inc. l) y 6º de la Ley Nº 7293 de 31 de marzo de 1992, la que en sus artículos 50 y 55 lo deroga tácitamente, en forma parcial, en lo relativo a pago de futuros impuestos. No goza de franquicia postal según el artículo 15 de la Ley Nº 5870 de 11 de diciembre de 1975 y sus reformas).
