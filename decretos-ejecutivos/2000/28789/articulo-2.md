@@ -1,0 +1,1 @@
+Artículo 2º—Modificar las tarifas del Impuesto Selectivo de Consumo, de conformidad con los incisos b) y c) del artículo 12 de la ley Nº 4961 del 10 de marzo de 1972 y sus reformas, y el artículo 41 de la ley Nº 6955 del 24 de febrero de 1984, a las mercancías incluidas en el Anexo 2 de este Decreto.
