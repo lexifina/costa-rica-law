@@ -14,3 +14,4 @@ Plan y Estrategia Antidrogas del Gobierno de la República de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-10-01 | la propia norma |
+| 2 | 2002-05-02 | Ley 8261 |
