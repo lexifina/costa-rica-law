@@ -15,3 +15,4 @@ Reglamento Interno de la Junta Directiva.
 | --- | --- | --- |
 | 1 | 2000-03-03 | la propia norma |
 | 2 | 2000-12-08 | Reglamento 2970 (2000-12-08) |
+| 3 | 2002-10-10 | Reglamento 3118 (2002-10-10) |
