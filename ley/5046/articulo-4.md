@@ -1,0 +1,1 @@
+Artículo 4º.- Esta tasa será cancelada a favor de la tesorería de la corporación municipal en cuya jurisdicción territorial se encuentre situado el sitio objeto de la explotación de los materiales mencionados.
