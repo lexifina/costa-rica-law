@@ -1,0 +1,3 @@
+Artículo 5°—El Poder Ejecutivo dará carácter de prioridad a las siguientes obras:
+a) Acondicionamiento de las vías de acceso de las nuevas poblaciones originadas por, el proyecto de Arenal, con la ciudad de Tilarán. -
+b) Construcción, en forma directa o por parte del Instituto Costarricense de Electricidad, de una carretera de circunvalación alrededor de la zona dada. Las tierras comprendidas entre las riberas del embalse y tal carretera, conforme a lo que al efecto disponga el Instituto Costarricense de Electricidad, podrán utilizarse en planes de desarrollo turístico, elaborados en coordinación con el Instituto Costarricense de Turismo.

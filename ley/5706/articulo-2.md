@@ -1,0 +1,1 @@
+Artículo 2°—Exonéranse del pago de todo impuesto, tasa o derecho que sea necesario para la inscripción en los registros respectivos, o para su otorgamiento, todos los documentos que se suscriban para formalizar el Contrato de Préstamo con el Banco Interamericano de Desarrollo (BID), anteriormente indicado.
