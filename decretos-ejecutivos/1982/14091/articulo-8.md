@@ -1,1 +1,3 @@
-Artículo 8°.-Por la índole de sus funciones, tanto los supervisores como los coordinadores no deben tener faltantes. Caso de que los tuvieren, se les sancionar conforme con el procedimiento señalado en los articulo 5°, 6° y 7°de este Reglamento.
+Articulo 8°-Por la índole de sus funciones. tanto los supervisores como los coordinadores no deben tener faltantes. Caso de que los tuvieren, se les sancionará conforme con las disposiciones del presente Reglamento.
+Asimismo todo funcionario que tenga a su cargo la recaudación, administración o custodia de fondos del Estado deberá rendir una garantía a favor de la Hacienda Pública para asegurar el correcto cumplimiento de sus deberes u obligaciones conforme lo estipula el artículo 9° de la Ley de la Administración Financiera de la República.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 17540 del 8 de mayo de 1987)

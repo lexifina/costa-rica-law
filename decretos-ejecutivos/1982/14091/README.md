@@ -14,3 +14,4 @@ Reglamento para Casos de Faltantes en Recaudación de Tasas de Peaje (En La Gace
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-12-20 | la propia norma |
+| 2 | 1987-05-08 | Decreto Ejecutivo 17540 (1987-05-08) |

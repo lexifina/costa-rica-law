@@ -1,1 +1,2 @@
-Artículo 3°.-Realizado este procedimiento, el coordinador entregar al Jefe de la Oficina de Peaje o a quien ‚ este designe, las liquidaciones y los respectivos enteros de Gobierno, junto con los comprobantes de los depósitos correspondientes.
+Artículo 3°-Realizado este procedimiento el coordinador entregará al Jefe del Departamento de Peaje o a quien éste designe, las liquidaciones y los respectivos comprobantes de los depósitos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 17540 del 8 de mayo de 1987)

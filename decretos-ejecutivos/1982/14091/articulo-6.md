@@ -1,1 +1,2 @@
-Artículo 6°.-Si el cajero es sancionado por la Dirección de Personal y no cancela el faltante respectivo, la Oficina de Peaje certificará el monto a cobrar y lo remitirá a la Oficina de Cobros Judiciales del Ministerio de Hacienda, a fin de que ésta proceda a ejecutarlo, de conformidad con lo que establece el articulo 157 del Código Tributario.
+Artículo 6°-Si el funcionario no cancela el faltante respectivo, el Ministro de Obras Públicas y Transportes certificará el monto a cobrar y lo remitirá a la Dirección General de Asuntos Legales a fin de que proceda a su cobro con fundamento en lo estipulado en el artículo 210, inciso 3) de la Ley General de la Administración Pública.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 17540 del 8 de mayo de 1987)
