@@ -1,0 +1,1 @@
+Artículo 2º—La Unidad formará parte del Departamento de Desarrollo Organizacional y Tecnológico, de la Dirección General de Planificación, por ser la dependencia encargada de llevar a cabo la formulación, monitoreo y evaluación de los planes, programas y proyectos en el Ministerio.

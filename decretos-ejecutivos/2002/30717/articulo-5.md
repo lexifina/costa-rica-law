@@ -1,0 +1,1 @@
+Artículo 5º—Todas las dependencias ministeriales están obligadas a facilitar la labor de la Unidad, mediante el trabajo conjunto en la consolidación y fortalecimiento del Sistema, así como a brindar en tiempo, suficiencia, certeza y claridad toda la información que sea requerida por la Unidad.

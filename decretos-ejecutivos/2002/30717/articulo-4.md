@@ -1,0 +1,6 @@
+Artículo 4º—Las funciones de la Unidad son:
+a) Recomendar los ajustes que sea necesario aplicar en el sistema de control interno y participar en la implementación de las recomendaciones de la Contraloría General de la República y de la Auditoría Interna que se dicten al efecto.
+b) Revisar y recomendar el ajuste de los procesos de control interno existentes en el ministerio, con el fin de que no constituyan trabas innecesarias a la prestación de servicios, de acuerdo con lo estipulado en la Ley Nº 8220.
+c) Promover que las operaciones, actividades, funciones y tareas del ministerio se desarrollen de acuerdo con la política prescrita por las Autoridades Superiores y con arreglo a los principios de racionalidad, economía, eficacia, eficiencia, oportunidad y calidad.
+d) Capacitar, fomentar y promover a nivel ministerial el más amplio conocimiento de lo qué es control interno y la planificación con base en la valoración del riesgo, así como la conciencia de la responsabilidad administrativa de autoevaluarse.
+e) Participar activamente en el perfeccionamiento y documentación de los procesos que la Administración considere más importantes, de acuerdo con un plan de trabajo que abarque los asuntos sustanciales y, sobre todo, en las áreas que constituyan un alto grado de riesgo para la Administración.
