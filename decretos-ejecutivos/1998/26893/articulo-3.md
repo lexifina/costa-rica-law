@@ -1,0 +1,1 @@
+Artículo 3°- Los órganos del Estado y entidades públicas sujetos a un proceso de reorganización o reestructuración institucional deberán cumplir con los procedimientos de consulta establecidos en el artículo 3° inciso f) de la Ley No 7668, previo a someter su propuesta a conocimiento del Ministerio de Planificación y Política Económica.

@@ -1,0 +1,1 @@
+Artículo 4°- El Ministerio de Planificación Nacional y Política Económica podrá proponer, promover y estimular el traslado al sector privado de servicios, programas o actividades que funcionen dentro del sector público y que muestren condiciones de ser adecuadamente ejecutados en forma privada, sin sacrificar los objetivos sociales implícitos en ellos.
