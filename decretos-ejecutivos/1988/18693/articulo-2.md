@@ -1,0 +1,14 @@
+ARTÖCULO 2§.-La emisi¢n estar compuesta por los siguientes
+valores:
+Cantidad Denominaci¢n Numerados total por
+de bonos del 1 al denominaci¢n
+22 2.000.000,00 22 44.000.000,00
+03 1.000.000,00 03 3.000.000,00
+03 500.000,00 03 1.500.000,00
+04 200.000,00 04 800.000,00
+04 100.000,00 04 400.000,00
+02 50.000,00 02 100.000,00
+08 20.000,00 08 160.000,00
+07 5.000,00 07 35.000,00
+05 1.000,00 05 5.000,00
+TOTAL ½ 50.000.000,00
