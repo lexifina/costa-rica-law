@@ -1,0 +1,1 @@
+2. Dentro de los seis meses siguientes a la aprobación de este reglamento, el CENDEISSS y las dependencias involucradas en el sistema de becas y auxilios especiales reembolsables, tendrán la obligación de poner en práctica un sistema que permita identificar las situaciones de mora que pudieren existir en relación con los interesados.

@@ -1,0 +1,16 @@
+# Reglamento (1996-05-21)
+
+Reglamento de Beneficios para Estudio
+
+- Tipo: Reglamento
+- Número: 7028
+- Fecha: 1996-05-21
+- Ente emisor: Caja Costarricense de Seguro Social
+- Publicación: La Gaceta N° 117 del 1996-06-20
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=48645&param2=51848&param3=1 (ficha 48645)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1996-06-20 | la propia norma |

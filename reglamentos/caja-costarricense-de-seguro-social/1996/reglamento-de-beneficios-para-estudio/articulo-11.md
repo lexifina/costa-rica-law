@@ -1,0 +1,1 @@
+Artículo 11.—En ningún caso se prorrogará el inicio del cumplimiento de la obligación contraída, salvo cuando -previo estudio del CENDEISSS- la Junta Directiva decida lo contrario por un plazo que nunca será mayor de un año.

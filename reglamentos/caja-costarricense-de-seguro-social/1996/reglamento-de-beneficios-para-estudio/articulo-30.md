@@ -1,0 +1,1 @@
+Artículo 30.—Los auxilios especiales reembolsables se formalizarán en dólares (USA $) o colones costarricenses (¢ CR), entendiéndose que su reintegro se hará en la misma moneda al tipo de cambio de venta vigente en la fecha en que se haga cada pago.

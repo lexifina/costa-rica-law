@@ -1,0 +1,3 @@
+Artículo 5°—La Caja podrá aprovechar las becas y demás facilidades que otorguen los gobiernos y otros organismos internacionales y nacionales, siempre y cuando los estudios convengan a la Institución.
+En tal hipótesis, si el monto de la beca ofrecida o la facilidad otorgada resultare insuficiente para hacer frente a las necesidades básicas del estudiante, la Caja podrá conceder una beca complementaria por la diferencia respectiva, conforme a lo que establece el artículo 12 del presente reglamento.
+El CENDEISSS será responsable de recopilar la información referente a esas becas, con el propósito de promocionarlas y de seleccionar a los mejores candidatos.
