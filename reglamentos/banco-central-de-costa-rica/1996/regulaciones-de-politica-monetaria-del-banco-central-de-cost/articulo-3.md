@@ -73,7 +73,8 @@ A partir del: |
 1° de mayo, 1998 | 9,0%
 1° de junio, 1998 | 9,5%
 1° de julio, 1998 | 10,0%
-El Banco Central de Costa Rica indicará, antes del 27 de noviembre de 1996, los nuevos intermediarios financieros y las nuevas operaciones de captación de recursos que estarán sujetos a los requerimientos de encaje mínimo legal incluidos en estas Regulaciones. Lo anterior en virtud de lo establecido en los artículos 65 y 117 de la ley 7558.
+El Banco Central de Costa Rica indicará, antes del 27 de febrero de 1997, los nuevos intermediarios financieros y las nuevas operaciones de captación de recursos que estarán sujetos a los requerimientos de encaje mínimo legal incluidos en estas Regulaciones. Lo anterior en virtud de lo establecido en los artículos 65 y 117 de la Ley 7558.
+(Así reformado el párrafo anterior de este numeral en sesión N° 4896 del 5 de noviembre de 1996)
 4. Se exceptúan del requerimiento de encaje las operaciones originadas en:
 a) Empréstitos externos,
 b) Los depósitos y obligaciones financieras, en moneda nacional y extranjera, realizadas por una entidad sujeta a encaje en otra entidad financiera también sujeta a este requerimiento.
