@@ -1,0 +1,1 @@
+Artículo 5º—Presidencia de las sesiones. El Regulador General presidirá las sesiones de la Junta. En ausencia del Regulador General, la Junta nombrará a un Presidente ad hoc, de conformidad con lo establecido al efecto en la Ley General de la Administración Pública.

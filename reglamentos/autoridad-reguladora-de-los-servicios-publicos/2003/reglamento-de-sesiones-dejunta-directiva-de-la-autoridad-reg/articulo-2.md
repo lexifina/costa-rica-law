@@ -1,0 +1,3 @@
+Artículo 2º—Lugar y hora de las sesiones. Las sesiones se celebrarán, normalmente, en las oficinas de la Autoridad Reguladora, salvo que la Junta disponga otra cosa.
+La Junta podrá celebrar sesiones no presenciales, de las que debe conservarse prueba fidedigna, por medio de comunicación simultánea o sucesiva, con todas las herramientas que ofrece la tecnología de las telecomunicaciones, tales como fax, teléfono, tele conferencia, videoconferencia e Internet.
+La Junta señalará el día y la hora de las sesiones, pero no se podrá sesionar válidamente, si transcurridos treinta minutos después de la hora señalada para sesionar, no hubiere el quórum mínimo para ello.

@@ -1,0 +1,1 @@
+Artículo 4º—Quórum necesario para sesionar válidamente. Para sesionar válidamente se requiere del quórum establecido en el artículo 54 de la Ley Nº 7593, sin perjuicio de lo dispuesto en la Ley General de la Administración Pública.

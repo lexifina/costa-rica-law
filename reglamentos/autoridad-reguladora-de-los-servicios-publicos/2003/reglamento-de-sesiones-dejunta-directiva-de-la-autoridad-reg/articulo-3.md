@@ -1,0 +1,4 @@
+Artículo 3º—Preparación de la agenda de las sesiones. El Regulador General preparará la agenda de las sesiones de la Junta. En las agendas de sesiones ordinarias, necesariamente deberá incluirse un capítulo de Asuntos del Regulador General y otro de Proposiciones de los miembros de la Junta.
+La Junta, por mayoría simple de votos de los presentes, podrá alterar el orden de la agenda, a solicitud de alguno de los miembros.
+Los oficios, informes y dictámenes internos de la Autoridad Reguladora, que se dirijan a la Junta, deberán estar firmados por sus autores y por el superior máximo de la dependencia que los produzca.
+La agenda, los borradores de las actas de la sesión o sesiones anteriores que no hayan sido aprobadas y, la documentación correspondiente a los asuntos a tratar, serán remitidos a los miembros de la Junta, sea en forma impresa, digital o magnética; con veinticuatro horas de anticipación, por lo menos.
