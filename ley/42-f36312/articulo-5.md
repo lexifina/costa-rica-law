@@ -1,0 +1,1 @@
+Artículo 5° Durante los treinta días fijados por el artículo 3° queda prohibida la introducción de moneda de plata extranjera a la República, La que se presentare en los puertos durante este tiempo para su introducción, será reembarcada o permanecerá en depósito en la Aduana respectiva, a opción del importador.
