@@ -1,0 +1,1 @@
+Artículo 6°-Toda compra que se realice mediante el Fondo de Trabajo, deberá ser hecha estrictamente al contado, contra la presentación de la respectiva factura comercial (original y tres copias). Cuando se haga a través de cheque, se deberá anotar en la factura el número de éste.

@@ -1,0 +1,2 @@
+Artículo 2°-Créase un Fondo de Trabajo por un monto de ¢600.000,00, (seiscientos mil colones exactos), destinado a la compra de bienes y servicios indispensables y urgentes, por un valor no mayor de ¢100.000,00 (cien mil colones exactos).
+Para ejecutar el gasto se mantendrá en efectivo ¢120.000,00 (ciento veinte mil colones exactos), del cual solo se podrá hacer compras hasta ¢10.000,00 (diez mil colones exactos). Erogaciones superiores a este monto, deberán ser canceladas mediante cheque.

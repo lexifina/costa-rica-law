@@ -1,0 +1,1 @@
+Artículo 15.-La infracción de las disposiciones contenidas en este Reglamento, hará acreedor al responsable de las sanciones disciplinarias que estipule la Ley Orgánica del Poder Judicial, sin perjuicio de lo que disponen los artículos 6 y 7 de la Ley de Administración Financiera y demás ordenamiento jurídico.

@@ -1,0 +1,2 @@
+Artículo 11.-El responsable del Fondo de Trabajo, deberá llevar un libro de control auxiliar de cheques girados, el cual contendrá la siguiente información: la fecha en que emite el cheque, número, nombre de la empresa o persona a quien se gira, monto, concepto y saldo del Fondo una vez efectuada la anotación del cheque.
+La conciliación bancaria de la cuenta corriente del Fondo, deberá ser llevada por otro funcionario del Departamento de Proveeduría.

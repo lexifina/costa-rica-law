@@ -1,0 +1,1 @@
+Artículo 8°-Para solicitar el reintegro de las sumas gastadas al Departamento Financiero Contable, el encargado de compras del Fondo de Trabajo, presentará un detalle de las facturas canceladas acompañando los originales y dos copias de éstas, con el visto bueno del Jefe o Subjefe del Departamento de Proveeduría.

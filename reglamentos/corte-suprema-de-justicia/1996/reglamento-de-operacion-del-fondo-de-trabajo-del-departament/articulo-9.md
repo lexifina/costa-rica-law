@@ -1,0 +1,1 @@
+Artículo 9°-La liquidación del gasto efectuado, deberá presentarse al Encargado del Fondo de Trabajo, dentro de los cinco días hábiles siguientes a la fecha en que se le entregó el adelanto de los recursos.

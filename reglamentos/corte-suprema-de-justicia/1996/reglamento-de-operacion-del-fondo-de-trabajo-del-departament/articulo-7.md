@@ -1,0 +1,1 @@
+Artículo 7°-El Fondo operará bajo el sistema de "fondo fijo", haciéndose los reembolsos necesarios, para reponer las sumas pagadas, de tal forma que no llegue a agotarse. Cada reembolso se hará siguiendo los procedimientos establecidos para tal efecto.

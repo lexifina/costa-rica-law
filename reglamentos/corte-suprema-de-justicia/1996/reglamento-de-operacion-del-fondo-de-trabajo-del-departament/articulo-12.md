@@ -1,0 +1,1 @@
+Artículo 12.- Todo cheque del Fondo de Trabajo, debe ser girado a nombre de una persona física o jurídica y con base en las cotizaciones del costo del bien o servicio: quedando totalmente prohibido el giro de cheques a favor de "caja".
