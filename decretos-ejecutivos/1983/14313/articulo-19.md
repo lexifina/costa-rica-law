@@ -1,0 +1,1 @@
+Artículo 19.-El Director de la Secretaria Ejecutiva del actuará como colaborador directo del Ministro Sectorial y será secretario Ejecutivo del Consejo Nacional de Sector, participando en sus sesiones con derecho a voz.

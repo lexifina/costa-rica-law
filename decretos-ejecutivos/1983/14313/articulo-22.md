@@ -1,0 +1,1 @@
+Artículo 22.-Le corresponderá a dicho Comité coordinar y promover el proceso de planificación entre las distintas instituciones involucradas en las actividades del Sector para apoyo a la Secretaria Ejecutiva, al Consejo Nacional Sectorial y al Ministro Sectorial.

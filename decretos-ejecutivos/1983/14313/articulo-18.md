@@ -1,0 +1,1 @@
+Artículo 18.-Para el cumplimiento de sus funciones, la Secretaria Ejecutiva de Planificación Sectorial, estará directamente subordinada al Ministro en su calidad de director político del Sector y para efectos administrativos estará adscrita al Ministerio de Salud.

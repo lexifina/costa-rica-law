@@ -1,0 +1,1 @@
+Artículo 14.-Esta Comisión cada año, designará de su seno un coordinador el cual actuará como moderador, e interlocutor de la misma cuando ello sea conveniente y necesario. El coordinador del comité de presidentes ejecutivos del articulo 10, supervisará elo buen funcionamiento de esta Comisión, recabando la información necesaria por medio del propio coordinador de ésta.
