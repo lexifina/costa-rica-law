@@ -1,0 +1,2 @@
+Art. 2° -Con el presente decreto se dará cuenta al Congreso Constitucional, en su próxima reunión ordinaria.
+AL PODER EJECUTIVO. -Dado en el Salón de Sesiones. -Palacio Nacional, en San José, à diez y seis de noviembre de mil ochocientos ochenta y dos. A. DE JESUS SOTO, presidente. -VICENTE SEGREDA. Secretario Palacio Presidencial. -San José, diez y siete de noviembre de mil ochocientos ochenta y dos. -Ejecútese. -P. FERNÁNDEZ. -El Secretario de Estado en el Despacho de la Guerra. -MIGUEL GUARDIA.
