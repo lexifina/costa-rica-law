@@ -13,3 +13,4 @@ Reglamento Subsidio Transportistas Autobuses en Area Metropolitana
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-06-11 | la propia norma |
+| 2 | 1980-06-11 | Decreto Ejecutivo 13148 (1981-11-26) |
