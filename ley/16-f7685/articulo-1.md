@@ -1,0 +1,4 @@
+DECRETO XVI
+Manda reponer la elección de los Senadores y Representantes que en virtud del sorteo deben dejar sus asientos.
+El Senado y Cámara de Representantes de Costa Rica, reunidos en Congreso, habiendo procedido al sorteo para la renovación de la mitad de los miembros de una y otra Cámara Legislativa, según lo previenen los artículos 72 y 75 de la Constitución, decretan:
+Art 1° La Electoral de la Provincia de San José elegirá en el tiempo y modo designado por la ley, dos Senadores principales y un suplente en reposición de los Sres. D. Manuel J. Carazo, D. Francisco Montealegre y D. Juan F, Echeverría: la de la Provincia de Heredia un Senador principal en reposición de D. Juan González la de la Provincia de Alajuela un Senador principal y uno id. Suplente en reposición de los Sres. D. Ramón Fernández y Don Rafael Ugalde; y la de Guanacaste y Puntarenas un Senador principal en lugar Sr. D. Nicolás Sáenz, y el suplente cuya elección no ha verificado.
