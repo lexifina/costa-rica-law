@@ -1,0 +1,1 @@
+Art. 4. Además, cada Departamento tendrá tantos Alcaldes de barrio como barrios de que se compone; tantos de cuartel como los cuarteles que comprende; y un numero de pedáneos igual al cómputo de dos por cuartel. –Dado en San José á primero de diciembre de mil ochocientos cuarenta y uno. –Braulio Carrillo. –El Secretario general, Manuel A. Bonilla.
