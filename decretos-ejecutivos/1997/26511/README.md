@@ -14,3 +14,4 @@ Reglamento para el aprovechamiento del recurso forestal en las reservas indígen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-12-18 | la propia norma |
+| 2 | 1999-03-16 | Decreto Ejecutivo 27800 (1999-03-16) |
