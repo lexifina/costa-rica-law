@@ -1,0 +1,1 @@
+Artículo 3°-Caso de no efectuarse el depósito dentro del término indicado, se procederá a suprimir la plaza, para lo cual, las citadas oficinas, informarán del atraso a la Inspección General de Autoridades y Comunicaciones, antes del día 15 de cada mes.

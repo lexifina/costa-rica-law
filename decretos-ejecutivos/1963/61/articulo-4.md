@@ -1,0 +1,1 @@
+Artículo 4°-Suprimida la plaza del Agente Auxiliar de Policía, por demora del patentado en el depósito del sueldo, la Inspección solicitará a la Corporación Municipal respectiva, la cancelación de la patente por falta de autoridad sin que esto acarree responsabilidad alguna para el Estado o para la Corporación Municipal.
