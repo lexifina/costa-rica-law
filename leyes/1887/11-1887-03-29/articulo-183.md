@@ -1,0 +1,1 @@
+Art. 183.-No obstará lo ordenado en el artículo anterior, que llamados al orden y obtenida la venia del que presida el acto puedan explicar las palabras que hubieren pronunciado y manifestar el sentido ó intención que les hubieren querido dar, ó satisfacer cumplidamente al Juzgado ó Tribunal.

@@ -1,0 +1,1 @@
+Art. 86.-No puede ser Secretario ni subalterno de los Juzgados ninguna persona que sea ascendiente, descendiente, hermano legítimo ó natural, primo ó tío del Juez ó Alcalde. Tampoco puede serlo en las Salas de Apelaciones ó en la Sala de Casación ninguna persona que se halle ligada en igual grado con alguno de los Magistrados.

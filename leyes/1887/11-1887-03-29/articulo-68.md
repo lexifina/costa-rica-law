@@ -1,0 +1,1 @@
+Art. 68.-El Juez de lo contencioso-administrativo, además de conocer de los asuntos que tengan ese carácter, podrá conocer de otros administrativos, referentes la Hacienda Nacional, que la ley especialmente determine.

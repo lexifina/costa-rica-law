@@ -1,0 +1,1 @@
+Art. 82.-No podrá ser Arbitro de derecho el que ejerce funciones judiciales, ni el que ha intervenido como abogado ó procurador de una de las partes en el negocio para que fuere nombrado; salvo en este último caso que las partes, en la escritura de compromiso, lo hayan elegido con conocimiento de causa y así lo expresen.

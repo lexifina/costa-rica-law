@@ -1,0 +1,1 @@
+Art. 38.-La dotación de los Magistrados y Jueces de primera instancia no podrá alterarse de ningún modo durante el período. -Cualquier alteración que se haga, no surtirá efecto sino en el período siguiente.

@@ -1,0 +1,1 @@
+Art. 22.-Los Magistrados y Jueces de 1a instancia durarán en su puesto cuatro años y los Alcaldes dos años. Durante su período no pueden ser suspendidos sin que preceda declaratoria de haber lugar formación de causa, ni depuestos sino en virtud de sentencia ejecutoria.

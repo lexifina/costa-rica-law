@@ -1,0 +1,2 @@
+Art. 9°. -Es prohibido los Alcaldes, Jueces de 1a instancia, Magistrados y á los subalternos de los Juzgados y Tribunales ejercer la abogacía, aunque están con licencia ó suspensos del destino. Tampoco podrán ser procuradores en juicio.
+Podrán, sin embargo, abogar en negocios en que están interesados personalmente, ó en que están interesados sus esposas, ascendientes, descendientes, hermanos, suegros, yernos y cuñados.

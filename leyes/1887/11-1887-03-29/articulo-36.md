@@ -1,0 +1,2 @@
+Art. 36.-Las respectivas Salas de Apelación, podrán conceder licencia á los Jueces de primera instancia por el tiempo y con las condiciones dichas en el artículo anterior.
+Igual facultad corresponde á los Jueces de primera instancia respecto de los Alcaldes, con la advertencia de que el Juez del crimen ser quien conceda las licencias para separarse del lugar de la Alcaldía los días feriados, y de que el Juez civil primero si hubiere varios, ser quien conceda las licencias en los demás casos.

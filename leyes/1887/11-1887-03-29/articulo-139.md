@@ -1,0 +1,1 @@
+Art. 139.-Cuando el objeto de la demanda fuere una acción real por cosa mueble ser competente el Juez del lugar donde se encuentre el demandado con ella, aunque su estancia sea transitoria; pero si garantizare con fiador abonado el valor de la cosa y la promesa de comparecer al juicio, deber demandársele ante el Juez de su domicilio.

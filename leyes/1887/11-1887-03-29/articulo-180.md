@@ -1,0 +1,1 @@
+Art. 180.-Aquellos contra quienes haya que emplear la fuerza para expulsarlos por resistirse á cumplir la orden de expulsión, podrán ser condenados á una multa hasta de cinco pesos, si fuere impuesta por un Alcalde; si por un Juez de 1a Instancia hasta de diez; y si lo fuere por alguna de las Salas del Tribunal Supremo hasta de veinticinco.

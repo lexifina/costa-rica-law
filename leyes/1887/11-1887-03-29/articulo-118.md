@@ -1,0 +1,2 @@
+Art. 118.-La jurisdicción de los Arbitros se limita al negocio ó negocios que expresamente les fueron sometidos por la escritura de compromiso; y á los incidentes sin cuya resolución no fuere posible decidir el negocio principal.
+Cuando se opusiere la excepción de compensación la sentencia que la admita no será eficaz en cuanto á la declaratoria del crédito del demandado sino por la cantidad que importe la demanda.

@@ -1,0 +1,1 @@
+Art. 103.-A los dos años de concluidos los libros que, conforme á la ley, deben llevar los Tribunales y Juzgados, los remitir n al archivo judicial, después de cerrarlos, con una razón que exprese el número de fojas que cada uno tiene y recabarán el recibo correspondiente.

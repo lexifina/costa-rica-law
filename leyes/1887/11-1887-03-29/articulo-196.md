@@ -1,0 +1,2 @@
+Art. 196.-Del acta de visita que firmarán el Magistrado visitador, el Juez y el Secretario, deber éste remitir una copia á cada Sala para que, respectivamente, según el negocio de que se trate, apruebe ó enmiende ó revoque lo que hubiere resuelto el visitador ó de solución los puntos no resueltos por éste.
+Mientras la respectiva Sala no enmiende ó revoque las resoluciones del visitador deberá cumplirse lo ordenado por éste, salvo lo dicho sobre pena de multa ó suspensión disciplinaria.

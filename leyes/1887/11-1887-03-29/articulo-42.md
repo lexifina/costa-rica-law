@@ -1,0 +1,1 @@
+Art. 42.-Los Magistrados, fuera de tener las condiciones de todo funcionario judicial, deberán ser mayores de treinta años, abogados de la República, con cinco años, por lo menos, de práctica como tales, y costarricenses por nacimiento ó naturalizados con residencia de cuatro años después de adquirida la carta de naturalización.

@@ -1,0 +1,1 @@
+Art. 165.-El Magistrado separado queda inhibido para conocer en todo el negocio ‚ incidentes. La parte, sin embargo, puede habilitarlo en otro incidente ó en lo principal. Si lo habilita no podrá después recusarlo sin causa.

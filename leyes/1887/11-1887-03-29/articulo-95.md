@@ -1,0 +1,1 @@
+Art. 95.-Las licencias para ausentarse el Secretario del lugar de su Juzgado ó Tribunal, ó para dejar de asistir él, serán concedidas por el Alcalde, Juez ó Tribunal, según los casos y respecto al tiempo por que se conceda la licencia, y á las condiciones de ella, se estará á lo dispuesto en el artículo 35.

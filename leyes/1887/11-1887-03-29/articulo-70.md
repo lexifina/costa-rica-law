@@ -1,0 +1,3 @@
+Art. 70.-Compete á los Alcaldes conocer en primera instancia de las causas civiles cuya cuantía no exceda de doscientos cincuenta pesos.
+Mientras no haya contención, podrán los Alcaldes conocer de los juicios de sucesión, cualquiera que sea el valor de los bienes. Habiendo contención sobre un punto cuyo valor exceda de doscientos cincuenta pesos, se pasar n los autos al Juez respectivo.
+Pueden también, cuando haya urgencia y el Juez no pueda por algún motivo hacerlo, decretar arraigos, embargos preventivos, etc.; y en general, en los casos que requieran una determinación que sin daño de los interesados no pueda diferirse, pueden adoptar providencias interinas, dando cuenta al Juez de 1a instancia, con remisión de los antecedentes.

@@ -1,0 +1,1 @@
+Art. 92.-Si se tratare de suplir en las sesiones de la Corte Plena la falta de su Secretario, actuar como tal el de la Sala 1a de Apelaciones, y en defecto de éste, el de la 2a; falta de éste, vendrán los Prosecretarios.

@@ -1,0 +1,3 @@
+Art. 192.-Todos los Jueces del crimen deberán visitar el sábado de cada semana los lugares en que los procesados estuvieren detenidos, á fin de indagar si sufren vejaciones ó prisiones innecesarias ó se pone algún embarazo la libertad de su defensa.
+En estas visitas dictar n las providencias convenientes para remediar las faltas ó abusos; y ellas deberán concurrir los Alcaldes y demás funcionarios de justicia que tuvieren personas detenidas.
+De estas visitas se levantará acta en el libro especial que tendrá todo Juez del crimen, y en ella se expresará además el estado de los libros del Alcaide y de los funcionarios de justicia en lo relativo á entrada y salida de los presos.

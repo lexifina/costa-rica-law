@@ -1,0 +1,1 @@
+Art. 156.-Si se hubiere cometido un delito á bordo de un buque nacional en alta mar, ó á bordo de un buque de guerra nacional, ó si el delito se hubiere cometido fuera del territorio del Estado y debiere ser castigado con arreglo á las leyes de Costa Rica, ser competente para conocer de ‚l el Juez en cuyo territorio se encontrare ó fuere la sazón habido el delincuente.

@@ -1,0 +1,1 @@
+Art. 104.-Los Tribunales y Juzgados cuando necesitaren tener á la vista uno de los documentos archivados, lo pedirán por oficio en que se insertará el auto ó determinación que lo ordene, y no les será entregado sin previo recibo. En el legajo de donde se extraiga el documento se dejará el oficio en que se pidió éste.

@@ -1,0 +1,1 @@
+Art. 74.-Los Alcaldes se instalan el día siete de enero. El nombramiento de Alcaldes debe hacerse en la primera sesión ordinaria de la Corte Plena que haya en el mes de diciembre del año en que termine el período de Alcaldes.

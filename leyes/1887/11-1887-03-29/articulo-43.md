@@ -1,0 +1,1 @@
+Art. 43.-Los Magistrados son de nombramiento del Congreso, duran cuatro años y toman posesión el ocho de mayo. Cuando ocurra la vacante de un Magistrado, iniciado el período constitucional, el Congreso, en sus próximas sesiones ordinarias, si no está reunido, elegirá nuevo Magistrado y le dará posesión tan pronto como se haya llenado el requisito de afianzamiento.

@@ -1,0 +1,2 @@
+Art. 106.-Es prohibido al abogado dirigir negocios de que está conociendo ó deba conocer como Juez ó Magistrado su ascendiente, descendiente ó hermano, sean políticos ó naturales, salvo que lo haga ostensiblemente. Esta excepción no obsta á que la contraria recuse, dentro del término señalado para ejercitar la recusación, al Juez ó Magistrado pariente en el grado dicho.
+También es prohibido al abogado dirigir al mismo tiempo ó sucesivamente, á partes contrarias en el mismo negocio.

@@ -1,0 +1,3 @@
+Art. 37.-La Corte Suprema de Justicia y los Juzgados de primera instancia y de lo contencioso-administrativo se cerrarán el 18 de diciembre, por un término de veinte días, que terminarán el 6 de enero.
+Una vacación anual de veinte días, tendrán igualmente los Jueces del crimen, los Alcaldes y sus respectivos empleados; pero no se cerrarán esas oficinas.El Juez puede usar de la vacación en cualquier fecha siempre que la Sala de Apelaciones, en lo criminal, quien debe dar cuenta para la reposición necesaria, no encuentre inoportuno el término ó tiempo elegido para separarse el Juez.
+Los Alcaldes y los empleados del Juez indicarán á éste el tiempo en que desean entrar á vacación, á fin de que se provea la plaza del empleado ó se llame al suplente respectivo.

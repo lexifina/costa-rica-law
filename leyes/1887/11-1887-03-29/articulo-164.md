@@ -1,0 +1,1 @@
+Art. 164.-La parte que use del derecho de recusación sin causa, al tratarse de un incidente, no puede hacer uso de otra recusación de esta clase, cuando se trate de lo principal del negocio ó de otro de sus incidentes, salvo si el personal de la Sala hubiere variado enteramente.

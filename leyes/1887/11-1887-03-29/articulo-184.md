@@ -1,0 +1,1 @@
+Art. 184.-Cuando los hechos de que tratan los artículos que preceden, llegaren á constituir delito ó falta á los que el Código Penal señale pena, será detenido su autor, se instruir la respectiva sumaria y se pondrá al detenido á disposición del Juzgado que deba conocer de la causa.

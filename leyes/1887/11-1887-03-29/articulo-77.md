@@ -1,0 +1,1 @@
+Art. 77.-No es obligatorio el cargo de Asesor, pero una vez aceptado sólo puede renunciarse por enfermedad, por tener que ausentarse del país, por haber admitido empleo público, ó por sobrevenimiento de causa que implique impedimento para ejercer el cargo ó constituya un motivo legal de excusa ó de recusación.

@@ -1,0 +1,1 @@
+Art. 60.-Los Conjueces prestarán el juramento constitucional, necesario para quedar instalados en el ejercicio de su cargo al entrar en el desempeño de éste y ante la Sala que fueren llamados á completar.

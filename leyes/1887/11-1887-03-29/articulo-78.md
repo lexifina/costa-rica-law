@@ -1,0 +1,2 @@
+Art. 78.-La parte que pida el asesoramiento nombrará dos abogados y el Juez ordenará á la contraria nombre otros dos.
+Si ambas eligen un mismo Asesor, el Juez deber conformarse con esa elección. De lo contrario el Juez elegirá entre los cuatro indicados al que le parezca. Si éste no acepta ó si cesare en su cargo por renuncia ú otro motivo, nombrará el Juez otro de los cuatro, y así sucesivamente, hasta que acepte uno de ellos. Si ninguno de los cuatro acepta, quedará al Juez la libre elección del Asesor.
