@@ -1,1 +1,0 @@
-Artículo 5°—Entre las peticiones que reciba la Junta para adquirir divisas extranjeras con el objeto de pagar facturas de importación de artículos correspondientes a la segunda categoría, dará preferencia a aquéllas cuyo objeto sea cubrir el valor de explosivos o sustancias inflamables que, por disposiciones especiales, sólo pueden permanecer muy corto tiempo en las Aduanas.
