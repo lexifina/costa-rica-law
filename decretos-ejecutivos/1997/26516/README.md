@@ -14,3 +14,4 @@ Crea Comisión Nacional de Artesanía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-12-22 | la propia norma |
+| 2 | 1999-02-18 | Decreto Ejecutivo 27739 (1999-02-18) |
