@@ -14,3 +14,4 @@ Reglamento del Consejo Técnico de Asistencia Médico-Social
 | --- | --- | --- |
 | 1 | 1950-08-31 | la propia norma |
 | 2 | 1952-05-16 | Acuerdo 503 (1952-05-16) |
+| 3 | 1973-03-22 | Decreto Ejecutivo 2899 (1973-03-22) |

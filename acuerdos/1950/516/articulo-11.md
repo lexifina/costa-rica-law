@@ -1,2 +1,2 @@
-Artículo 11.-Las Instituciones bajo la jurisdicción del Consejo podrán gestionar directamente ante el mismo la resolución de cualquier asunto relacionado con sus intereses.
-Solamente de tales resoluciones podrán apelar los interesados para ante el Ministro de Salubridad Pública, dentro de los cinco días siguientes a la notificación respectiva.
+Artículo 11.-De todas las resoluciones del Consejo podrá apelar cualquier interesado para ante el Ministro de Salubridad, dentro de los ocho días hábiles siguientes a la notificación respectiva o a partir de la fecha de lo resuelto, en su caso.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 2899 del 22 de marzo de 1973)

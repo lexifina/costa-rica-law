@@ -1,1 +1,2 @@
-Artículo 10.-Las actas deberán ser trascritas íntegramente al Ministro de Salubridad. Las objeciones que éste estimare del caso deberá hacerlas dentro de las veinticuatro horas siguientes al recibo del acta.
+Artículo 10°.-Las instituciones bajo la jurisdicción del Consejo podrán gestionar directamente ante el mismo la resolución de cualquier asunto relacionado con sus intereses.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 2899 del 22 de marzo de 1973)
