@@ -1,8 +1,8 @@
-Artículo 4º.- Para mantener el fondo de reserva que se cita en el
-artículo anterior, se autoriza a la Junta para que establezca una cuota
-general de cinco colones (¢ 5.00) y a deducirla a los mutualistas
-conforme las necesidades del artículo 3º de demanden, con ocasión del
-fallecimiento de alguno de ellos o de su cónyuge, hijos, o bien del
-padre o madre, por consanguinidad. La suma que se entregará al
-beneficiario o beneficiarios o a él, será de mil quinientos colones (¢
-1,500.00).
+ARTÍCULO 4º.- Se brindará ayuda económica con ocasión del
+fallecimiento de alguno de los mutualistas, de su cónyuge, de sus hijos,
+o de sus padres, por los montos que al efecto se señalen en los
+estatutos. Estos fondos serán inembargables, no podrán ser objeto de
+compensación, transacción, venta o cesión y estarán exentos de toda clase
+de impuestos.
+En ningún caso se girará más de una vez el monto correspondiente a la
+defunción de una misma persona.

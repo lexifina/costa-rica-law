@@ -1,4 +1,6 @@
-Artículo 6º.- Comprobado el fallecimiento de un mutualista o alguno
-de sus parientes a que hace mención el artículo 4º, la Junta Directiva
-ordenará girar la suma correspondiente a favor de quien deba recibirla,
-acreditando la muerte por los medios legales.
+ARTÍCULO 6º.- Tendrá derecho a continuar voluntariamente en el Fondo
+de Socorro Mutuo de Defunciones, los mutualistas que, al cesar en su
+relación laboral con el Tribunal Supremo de Elecciones o con el Registro
+Civil, hubiesen permanecido afiliados al Fondo por lo menos durante cinco
+años, en cuyo caso deberán observar las disposiciones de esta ley y de sus
+estatutos.
