@@ -1,1 +1,0 @@
-Transitorio I.—Los bancos y entidades que hayan obtenido reconocimiento o renovación de éste, antes de la fecha en que se publique esta normativa, deberán ajustarse en lo que corresponda a las presentes disposiciones.

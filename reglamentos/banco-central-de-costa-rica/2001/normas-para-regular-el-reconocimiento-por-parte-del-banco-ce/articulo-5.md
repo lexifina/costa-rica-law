@@ -1,4 +1,0 @@
-Artículo 5°—La vigencia del reconocimiento para las entidades reconocidas de conformidad con lo dispuesto en el Artículo 4 de esta normativa, será por un periodo indefinido.
-Para los bancos reconocidos de acuerdo con lo establecido en los Artículos 1 y 2, la vigencia del reconocimiento se mantendrá, siempre y cuando el Banco en cuestión cumpla con lo estipulado en esta normativa.
-Los bancos reconocidos adquieren la obligación de informar oportunamente al Banco Central de Costa Rica, los cambios que alteren las condiciones bajo las cuales se otorgó el reconocimiento. Cuando la entidad reconocida cambie de nombre o razón social, deberá solicitar nuevamente el reconocimiento a la luz de la normativa vigente sobre la materia.
-El Banco Central de Costa Rica podrá revocar cualquier reconocimiento otorgado, cuando constate que el banco reconocido dejó de cumplir alguno de los requisitos dispuestos en esta normativa.
