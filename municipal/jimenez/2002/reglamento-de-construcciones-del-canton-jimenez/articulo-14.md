@@ -1,0 +1,1 @@
+Artículo 14.—En caso de construcción de pequeñas industrias, hoteles, beneficios de café y urbanizaciones de más de cincuenta unidades habitacionales, deben presentar plano eléctrico y un Estudio de Impacto Ambiental conforme al Reglamento para la tutela del medio ambiente y demás disposiciones compiladas en este reglamento para estos fines.

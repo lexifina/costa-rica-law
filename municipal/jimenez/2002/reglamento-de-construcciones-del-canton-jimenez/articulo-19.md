@@ -1,0 +1,1 @@
+Artículo 19.—Toda alteración al trazo de construcción hacia fuera del alineamiento oficial será considerada como una invasión de la vía pública, quedando obligado el dueño de la construcción a demoler la parte de la misma que motive dicha invasión dentro del plazo que al efecto le señale la municipalidad.

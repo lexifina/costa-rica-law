@@ -1,0 +1,1 @@
+Artículo 10.—La resolución de la solicitud presentada se dará en un lapso máximo de treinta días calendario, contados a partir de su presentación con todos los requisitos. Se deberá señalar dentro de la solicitud, el lugar para recibir notificaciones dentro del cantón.
