@@ -1,0 +1,1 @@
+Artículo 50.—Las resoluciones que ordenen el cierre temporal o definitivo del establecimiento por incumplimiento o quebrantamiento de las leyes o de las buenas costumbres o disposiciones reglamentarias, tendrán los recursos de revocatoria y apelación que se tramitarán conforme lo dispuesto en el artículo 179 del Código Municipal.

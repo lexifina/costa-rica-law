@@ -1,0 +1,1 @@
+Artículo 44.—Las recalificaciones y calificaciones tendrá los recursos de revocatoria y apelación para ante el Ejecutivo Municipal. Podrán estar fundadas en motivos de ilegalidad o inoportunidad y no suspenderá la ejecución del acto.

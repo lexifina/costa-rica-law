@@ -1,0 +1,1 @@
+Artículo 37.—Las tarifas de diez, quince y cincuenta colones, solamente serán aplicadas a personas físicas que atiendan personalmente sus actividades, y que los estudios que haga la Sección de Patentes demuestre fehacientemente que no debe ser tasado en categorías superiores, previa solicitud del interesado.

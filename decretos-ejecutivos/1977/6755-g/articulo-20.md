@@ -1,0 +1,2 @@
+Artículo 20.—La Municipalidad indicará a los interesados, cuales permisos de funcionamiento deben acompañarse con la solicitud de licencia. Únicamente se tramitarán las solicitudes que presenten todos los requisitos que se exigen.
+Cuando por error u omisión, la Sección de Patentes determine que una actividad que haya obtenido la licencia necesita algún otro permiso de funcionamiento que no se exigió en su oportunidad, concederá al interesado el término improrrogable de treinta días hábiles para que se corrija el error o se llene la omisión.

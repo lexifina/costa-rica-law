@@ -1,0 +1,1 @@
+Artículo 12.—La violación a lo dispuesto en este Capítulo, dará lugar al cierre del local o la imposibilidad comerciar ambulantemente medidas que se ejecutarán por medio de las autoridades de policía.

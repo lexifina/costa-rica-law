@@ -1,0 +1,1 @@
+Artículo 35.—Para fijar el monto del impuesto, la Sección de Patentes solicitará al interesado, quien estará obligado a suministrar la información necesaria para establecer los factores de imposición a que se refiere el párrafo segundo del artículo 17 de la Ley.

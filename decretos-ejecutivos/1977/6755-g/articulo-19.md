@@ -1,0 +1,1 @@
+Artículo 19.—Cuando el permiso de funcionamiento esté condicionado a plazo fijo, el vencimiento del mismo obliga al interesado a la renovación de la licencia, que deberá tramitarse conforme a lo establecido en el artículo 10 de este Reglamento, o en los que fuere pertinente.

@@ -1,0 +1,1 @@
+Artículo 48.—Las resoluciones de la Sección de Patentes que ordenen la cancelación de la patente o la clausura del negocio por el vencimiento o la revocatoria de permisos de funcionamiento, no tendrá recurso alguno.
