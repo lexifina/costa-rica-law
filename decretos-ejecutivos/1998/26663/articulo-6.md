@@ -1,0 +1,12 @@
+Artículo 6°—Punciones del Área de Coordinación Administrativa con respecto a la custodia y uso de los vehículos:
+a) Llevar un registro detallado de cada uno de los vehículos sujetos a control. El expediente de cada vehículo incluirá un historial que refiera documentalmente su adquisición, las medidas de conservación y mantenimiento que se le hayan aplicado y las que deban aplicarse, el régimen de aseguramiento que hayan ejecutado y cualquier otra información de importancia, que se conste contribuya a demostrar la propiedad, la tenencia y uso y la conservación del vehículo.
+b) Atender y tramitar con celeridad los asuntos administrativos relativos al uso de vehículos a su cargo.
+c) Asignar los vehículos UA de conformidad con las características que el servicio de transporte requiera, siguiendo los lineamientos de utilidad y uso racional dictados por el Coordinador del Área Administrativa.
+d) Designar los conductores o choferes que deberán conducir los vehículos.
+e) Utilizar controles individuales cada vez que los vehículos UA sean utilizados. Ello comprende el uso de "Boleta de control de uso de vehículos" donde se hará constar las condiciones, implementos, el combustible y las herramientas que acompañan cada vehículo. Asimismo, existirán registros foliados y sellados donde se hará constar cada ingreso y cada salida de los vehículos.
+f) Controlar la distribución de cupones de combustible. Asimismo, controlar el kilometraje recorrido, por cada servicio de transporte y las autorizaciones que justifiquen el uso del vehículo UA. Cuando se realicen giras deberán llevar un registro que informe del control de kilometraje y del uso del combustible durante las giras.
+g) Velar porque los vehículos estén debidamente asegurados y dar seguimiento de denuncias presentadas ante el Instituto Nacional de Seguros.
+h) Velar por el adecuado mantenimiento, las reparaciones, y en general, por el buen estado de los vehículos a su cargo, con inclusión de la medidas permanentes de limpieza y las de revisión, periódica en talleres especializados según el kilometraje de cada vehículo.
+i) Rendir informes sobre la tenencia, el uso, el mantenimiento y situaciones especiales de los vehículos.
+j) Velar porque los vehículos sean debidamente depositados y custodiados en los estacionamientos previamente establecidos por el MICIT.
+k) Realizar cualquier otra diligencia necesaria para el buen uso y conservación de los vehículos.

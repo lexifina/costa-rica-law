@@ -1,0 +1,1 @@
+Artículo 5°—El Area de Coordinación Administrativa del MICIT, será la encargada de ejecutar las medidas de conservación y Control en cuanto al uso de los vehículos. El encargado de dicha área velará por que las disposiciones contenidas en el presente reglamento, el Reglamento Interno de Trabajo y la Ley de Tránsito, sean debidamente acatadas.

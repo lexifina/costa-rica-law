@@ -1,0 +1,1 @@
+Artículo 3°—Las clasificaciones de los vehículos. Para efectos del presente reglamento, los vehículos del MICIT, serán utilizados bajo la siguiente clasificación: a) de Uso Discrecional (UD), exclusivamente a aquellos destinados al servicio personal del Ministro y Viceministro y b) de Uso Administrativo (UA) todos los demás vehículos.

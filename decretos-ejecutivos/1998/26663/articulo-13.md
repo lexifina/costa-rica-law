@@ -1,0 +1,1 @@
+Artículo 13.—Sanciones. Las infracciones de los funcionarios del MICIT, a las disposiciones del presente reglamento serán sancionadas, según la gravedad, de conformidad con las disposiciones del (Reglamento Interior de Trabajo) Reglamento Autónomo de Servicio del Ministerio de Ciencia y Tecnología y las que en materia de empleo público correspondan.
