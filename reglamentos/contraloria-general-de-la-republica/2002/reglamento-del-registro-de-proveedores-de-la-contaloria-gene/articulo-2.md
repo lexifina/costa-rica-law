@@ -1,0 +1,2 @@
+Artículo 2°—El Registro de Proveedores de la Contraloría, será el organismo idóneo para incluir la información de las personas físicas y jurídicas que deseen participar en los procesos de contratación administrativa que se lleven a cabo en la Institución, con el fin de adquirir bienes y servicios.
+Las personas físicas yo jurídicas que deseen participar en los 'cosos de contratación administrativa de la Contraloría General, deben registrarse en el Departamento de Proveeduría de esta Institución.

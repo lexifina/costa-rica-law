@@ -1,0 +1,1 @@
+Artículo 4°—Una vez recibida la solicitud de incorporación, la Contraloría General verificara si aporta toda información solicitada en el artículo 3 de este Reglamento; en caso contrario, procederá a conceder un plazo máximo de cinco días hábiles para que se subsanen los defectos. Si la prevención no es atendida en tiempo, la solicitud se tendrá por rechazada, sin más tramite.
