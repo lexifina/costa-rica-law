@@ -1,0 +1,1 @@
+Artículo 9°-La Comisión podrá invitar a sus deliberaciones a otros representantes de instituciones públicas o privadas cuyas actividades están relacionadas con e! mejoramiento y fomento de! cultivo de la papa.
