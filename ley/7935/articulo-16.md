@@ -1,7 +1,2 @@
 ARTÍCULO 16.- Integración al núcleo familiar
-En la medida de lo posible, las personas adultas mayores deben
-permanecer integradas a su núcleo familiar y su comunidad, participando
-activamente en la formulación y ejecución de las políticas que afecten
-directamente su bienestar. Además, deben tener la oportunidad de prestar
-servicios a la comunidad, en puestos apropiados a sus intereses y
-capacidades.
+En la medida de lo posible, las personas adultas mayores deben permanecer integradas a su núcleo familiar y su comunidad, participando activamente en la formulación y ejecución de las políticas que afecten directamente su bienestar. Además, deben tener la oportunidad de prestar servicios a la comunidad, en puestos apropiados a sus intereses y capacidades.

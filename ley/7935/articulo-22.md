@@ -1,8 +1,2 @@
 ARTÍCULO 22.- Programas culturales
-Por medio del Ministerio de Cultura, Juventud y Deportes y el
-Instituto Costarricense del Deporte y la Recreación, el Estado promoverá
-programas que generen espacios para estimular el desarrollo de las
-potencialidades y capacidades intelectuales, físicas, culturales,
-deportivas y recreativas de las personas adultas mayores. Contarán con el
-apoyo de organizaciones no gubernamentales, la comunidad organizada y los
-gobiernos locales.
+Por medio del Ministerio de Cultura, Juventud y Deportes y el Instituto Costarricense del Deporte y la Recreación, el Estado promoverá programas que generen espacios para estimular el desarrollo de las potencialidades y capacidades intelectuales, físicas, culturales, deportivas y recreativas de las personas adultas mayores. Contarán con el apoyo de organizaciones no gubernamentales, la comunidad organizada y los gobiernos locales.
