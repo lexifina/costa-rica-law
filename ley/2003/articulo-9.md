@@ -1,0 +1,4 @@
+ARTICULO IX
+De los Informes
+1.—Costa Rica rendirá o hará que se rindan mensualmente al Eximbank informes o estados relativos a la utilización de los fondos adelantados por razón de este Contrato, así como de las erogaciones que se hagan con relación a la construcción de la Carretera, debiendo ser esos informes o estados tan detallados, e ir acompañados de tales certificaciones, como el Eximbank pueda razonablemente solicitarlo.
+2.—Costa Rica rendirá o hará que se rindan al Eximbank cuando éste lo solicite, informes sobre el progreso de lo trabajos, en forma y sustancia satisfactorias al Eximbank, que cubrirán el progreso de las operaciones de construcción e ingeniería relativas a la construcción de la Carretera que por este medio se financia. Esos informes serán tan detallados como el Eximbank pueda razonablemente solicitarlo.
