@@ -1,1 +1,2 @@
-Artículo 51.—Igualmente regirán para los miembros del Consejo las disposiciones del artículo 9° de esta ley, reducido a seis meses el plazo de un año que establece el inciso 1) de dicho artículo.
+Artículo 51.- En los casos en que se produjeren renuncias o vacancias, si se tratare del representante del Gobierno, la designación del sucesor la deberá hacer el Poder Ejecutivo dentro de los ocho días siguientes; y si se tratare del de los bancos comerciales, la elección del sucesor deberá efectuarse dentro de los quince días siguientes. Los nuevos miembros delConsejo así designados servirán el cargo respectivo durante el resto delperíodo legal correspondiente.
+(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)

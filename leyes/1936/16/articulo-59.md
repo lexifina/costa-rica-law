@@ -1,1 +1,2 @@
-Artículo 59.—El Departamento Emisor tendrá el derecho exclusivo de la emisión de billetes y monedas fraccionarias. Ni el Estado u otra persona jurídica, ni ninguna persona natural, podrán emitir billetes u otros documentos o títulos, o monedas, que puedan circular como dinero.
+Artículo 59.- De acuerdo con lo dispuesto al efecto por la Ley General de Bancos, el Consejo podrá establecer y modificar de tiempo en tiempo los porcentajes de encaje mínimo legal que los bancos comerciales deben mantener como garantía de sus depósitos y demás obligaciones. Las resoluciones del Consejo deberán ser comunicadas inmediatamente al Superintendente de Bancos, quien cuidará de su ejecución.
+(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)

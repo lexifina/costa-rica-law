@@ -1,1 +1,2 @@
-Artículo 73. — La Comisión de Cambios tendrá a su cargo la fijación diaria, en colones, de los tipos de compra y de venta para letras, cheques y otras divisas en moneda extranjera, que regirán las operaciones de cambio del Banco. Estas cotizaciones estarán expuestas en un lugar visible del Banco, de fácil acceso para el público.
+Artículo 73.- La Comisión de Cambios tendrá a su cargo la fijación diaria, en colones, de los tipos de compra y venta de divisas extranjeras que regirán para las operaciones de cambio del Banco, los cuales podrán ser variados durante el día, si fuere necesario o conveniente.
+(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)

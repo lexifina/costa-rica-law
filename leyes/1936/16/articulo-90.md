@@ -1,2 +1,2 @@
-Artículo 90.—El Consejo Directivo fijará, y podrá variar cuando lo estime conveniente, las tasas de redescuento, descuento e interés que el Departamento cobrará sobre las operaciones a que se refiere el artículo 85 de esta ley. Del mismo modo podrá fijar cuando lo estime conveniente, las tasas de descuento e interés que el Departamento Comercial cobrará en sus operaciones.
-Dichas tasas regirán en forma igual para la oficina central y las agencias y sucursales del Banco.
+Artículo 90.- En caso muy calificados, el Consejo podrán autorizar, por acuerdo unánime y con aprobación de la Junta, la contratación de créditos en el extranjero con bancos centrales, bancos comerciales de primera clase o instituciones económicas y monetarias de organización internacional, para usos determinados del Departamento Emisor, los cuales deberán ser cancelados tan pronto como fuere posible.
+(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
