@@ -111,3 +111,4 @@ Teatro Melico Salazar 489.2
 Teatro Nacional 278.9
 Unidad Ejecutora Pequeños Productores Zona Norte 8.9
 Para ajustarse a los límites establecidos en este artículo, las entidades públicas realizarán los ajustes necesarios por programa completo, o proporcionales por partida dentro de cada programa.
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29000 de 12 de setiembre del 2000)
