@@ -13,3 +13,4 @@ Reglamento Sobre el Origen Centroamericano de las Mercancías
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-03-16 | la propia norma |
+| 2 | 1993-03-16 | SINALEVI (sin norma nombrada) |
