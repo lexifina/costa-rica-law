@@ -1,0 +1,1 @@
+Artículo 2º—Definiciones. Se entenderá en este Reglamento por "Colegio", el Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes y por "Ley Orgánica" la Ley Orgánica del Colegio Nº 4770 del 3 de octubre de 1972.

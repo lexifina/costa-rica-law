@@ -1,0 +1,2 @@
+Artículo 50.—Cajas Chicas. Se autoriza a la Junta Directiva para establecer el número de cajas chicas que considere convenientes. Estas se regirán por los lineamientos que disponga la junta directiva de conformidad con las normas contables aceptadas en su manejo.
+El presidente en asocio con el fiscal o este último, practicará cortes de caja cuando lo estimen conveniente, dejando constancia de ellos en los libros. (5)

@@ -1,0 +1,1 @@
+Artículo 44.—Deducciones de cuotas. La Tesorería de "El Colegio" está obligada a enviar mensualmente a la Oficina Técnica Mecanizada las autorizaciones de deducción de las cuotas de colegiados que reciben giros elaborados por dicha Oficina. Igualmente hará con otras oficinas de personal de instituciones que contraten miembros de la Corporación.

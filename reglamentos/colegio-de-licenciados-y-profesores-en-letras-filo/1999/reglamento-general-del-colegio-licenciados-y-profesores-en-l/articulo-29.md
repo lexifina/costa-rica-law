@@ -1,0 +1,6 @@
+Artículo 29.—Procedimiento Electoral. La elección de miembros de la Junta Directiva según lo dispuesto en el artículo 19 de la Ley Orgánica de "El Colegio", se hará en sesión de Asamblea General, en votación secreta. Se aplicará el siguiente procedimiento:
+a) El Tribunal Electoral hará la apertura del proceso electoral, que se publicará en un órgano de prensa de circulación nacional, indicando los puestos a elegir, período de inscripción y cierre del mismo.
+b) b) La inscripción de candidatos se hará ante el Tribunal Electoral, a más tardar treinta días naturales antes de la elección, el cual informará a la Junta Directiva sobre los candidatos inscritos máximo quince días antes de la elección.
+c) La elección se efectuará por papeletas selladas por el Tribunal que se depositarán en urnas cerradas, ante las Juntas receptoras y fiscales que designe el Tribunal.
+Se autoriza a la Junta Directiva para disponer una elección computarizada, cuando lo estime prudente.
+d) Una vez concluido el proceso de votación, las juntas receptoras harán el escrutinio y lo informarán al Tribunal, el cual a su vez informará del resultado de la elección al Presidente de la Junta Directiva, quien hará la correspondiente declaratoria ante la Asamblea, explicando en detalle el resultado.

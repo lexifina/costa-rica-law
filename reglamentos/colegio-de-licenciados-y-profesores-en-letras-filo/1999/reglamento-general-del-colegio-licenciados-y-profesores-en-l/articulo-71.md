@@ -1,0 +1,1 @@
+Artículo 71.—Derechos de Autor. Los autores que concursen mantendrán los derechos de autor sobre las obras premiadas, sin perjuicio de una única publicación limitada que sin fines de lucro podrá disponer "El Colegio".

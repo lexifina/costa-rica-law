@@ -1,0 +1,2 @@
+Artículo 13.—Continuación del debate. El proponente de una moción cualquiera que sea su naturaleza, puede acoger una modificación propuesta por otro asambleísta, lo mismo que retirarla antes de que sea objeto de modificaciones o de votación. La moción retirada puede ser acogida como propia por otro asambleísta.
+La Presidencia podrá conceder el uso de la palabra al que la solicite, para hacer una aclaración breve sobre algún aspecto de procedimiento. La calificación de la naturaleza de una moción, es facultad de la Presidencia.
