@@ -1,0 +1,6 @@
+Nº 8382
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA MUNICIPALIDAD DEL CANTÓN CENTRAL DE LA PROVINCIA DE HEREDIA PARA QUE SEGREGUE UN LOTE DE SU PROPIEDAD Y LO DONE A LA FUNDACIÓN LUZ DE ATARDECER
+Artículo 1º—Autorización. Autorízase a la Municipalidad del cantón Central de la provincia de Heredia, cédula de persona jurídica número tres-cero catorce-cero cuarenta y dos mil noventa y dos, para que, del inmueble de su propiedad, partido de Heredia, inscrito en el Registro de la Propiedad bajo el Sistema de Folio Real matrícula número veinte mil novecientos sesenta y cuatro-cero cero cero, segregue un lote y lo done a la Fundación Luz de Atardecer, cédula de persona jurídica número tres-cero cero seis-doscientos setenta y tres mil novecientos dieciocho. Este lote se describe así: es terreno para construir; está ubicado en el distrito 4°, Ulloa; cantón I, Heredia; provincia de Heredia. Mide dos mil cuatrocientos cincuenta metros con setenta y ocho decímetros cuadrados y colinda al norte, con el Ministerio de Obras Públicas y Transportes; al sur, con la Municipalidad de Heredia; al este, con calle pública, y al oeste, con Francosta S.R.L., según el plano catastrado número H-ochocientos dos mil seiscientos treinta y ocho-dos mil dos.
