@@ -1,5 +1,6 @@
-Artículo 45.—Otorrinolaringología:
+Artículo 45.- Otorrinolaringología:
 Requisitos específicos:
-Un año de residencia y estudios de Post-Grado en Hospital Clase A, Universitario .
-Tres años de residencia y estudios de Post-grado en Centro o Servicio de Otorrinolaringología en Hospital Clase A, Universitario.
-Para ejercer como Audiólogo, Laringólogo, Rinólogo, Otoneurólogo, es requisito indispensable estar inscrito como Especialista en Otorrinolaringología.
+a) Un año de residencia y estudios de Post-Grado en Hospital Clase A, universitario.
+b) Tres años de residencia y estudios de Post-grado en centro o servicio de otorrinolaringología en hospital clase A, universitario.
+Para ejercer como laringólogo, rinólogo, otoneurólogo, es requisito indispensable estar inscrito como especialista en otorrinolaringología.
+(Así reformado por el artículo 2 del Decreto Ejecutivo N° 23105, del 11 de marzo de 1994)

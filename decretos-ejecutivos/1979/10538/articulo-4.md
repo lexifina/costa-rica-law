@@ -1,12 +1,9 @@
-Artículo 4°—Requisitos generales:
-Diploma que acredite la conclusión y aprobación de los estudios realizados.
-En casos de excepción (por ejemplo en los sitios donde no se entreguen diplomas) certificación de los estudios realizados y carta de recomendación de médicos preceptores de los mismos.
-Trabajo original relativo a la especialidad de acuerdo a las normas vigentes sobre la materia en el Colegio de Médicos y Cirujanos de Costa Rica.
-Cuando la Junta de Gobierno lo considere necesario deberá presentar certificación del programa de adiestramiento realizado.
-Recibo que acredite el pago de los derechos de inscripción vigentes.
-La Junta de Gobierno en el caso de que considere insuficientes los documentos señalados anteriormente podrá nombrar un Jurado calificador integrado por tres miembros, ante el cual el solicitante se someterá a examen de suficiencia.
-El Jurado estará integrado por:
-Un miembro de la especialidad, nombrado por la Asociación respectiva y un miembro nombrado por la Junta de Gobierno del Colegio de Médicos y Cirujanos.
-Un profesor universitario de la materia, o afín a ésta, en caso de no existir, nombrado por el Colegio de Médicos y Cirujanos.
-El solicitante tendrá derecho a recursar, por una vez, a uno de los miembros del Jurado. Queda establecido que en caso de no aprobar el examen, el solicitante puede realizar nueva solicitud, pasados por lo menos seis meses, quedando a criterio del Jurado Examinador el número de horas diarias que durante esos seis meses, tiene que recibir el adiestramiento en la especialidad respectiva.
-Si no aprobare el examen en esta ocasión, podrá presentarlo a los seis meses siguientes con las mismas condiciones anteriores.
+Artículo 4°—Para efecto de la inscripción a que alude el artículo 3° anterior aquí reformado se requiere:
+a) Diploma que acredite la conclusión y aprobación de los estudios realizados.
+b) Certificación de los estudios realizados y carta de recomendación de médicos preceptores de los mismos, en caso de excepción donde no se entreguen diplomas.
+c) Certificación del programa de adiestramiento realizado, cuando la Junta de Gobierno lo considere necesario.
+ch) Recibo que acredite el pago de derecho de inscripción.
+d) En el caso de que la Junta de Gobierno considere insuficientes los documentos señalados anteriormente, podrán nombrar un Jurado Calificador integrado por tres miembros, ante el cual el solicitante se someterá a examen de suficiencia. El Jurado estará integrado por: un miembro de la asociación respectiva; un miembro de la especialidad, nombrado por la Junta de Gobierno del Colegio de Médicos y Cirujanos; un profesor universitario nombrado por el Colegio de Médicos y Cirujanos.
+El solicitante tendrá derecho a recusar los miembros del Jurado. En caso de no aprobar el examen, el solicitante puede realizar nueva solicitud, pasados por lo menos seis meses, quedando a criterio del Jurado Calificador el número de horas diarias que, durante seis meses, tiene que recibir el solicitante por concepto de adiestramiento en la especialidad respectiva.
+Si no aprobare el examen en segunda ocasión, podrá presentarlo a los seis meses siguientes con las mismas condiciones indicadas.
+(Así reformado por el artículo 2 del Decreto Ejecutivo N° 23105, del 11 de marzo de 1994)
