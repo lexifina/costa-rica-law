@@ -14,3 +14,4 @@ Reforma al Reglamento de Exoneración a la Actividad Agropecuaria Fundamentada e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-05-25 | la propia norma |
+| 2 | 2001-08-29 | Decreto Ejecutivo 29902 (2001-08-29) |
