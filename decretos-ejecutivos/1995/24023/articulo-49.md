@@ -1,0 +1,1 @@
+Artículo 49.—A nivel interinstitucional: para estas actividades, dirigidas especialmente a funcionarios públicos involucrados con el quehacer archivístico, se requerirá la presentación de una solicitud por escrito, de la institución interesada por lo menos con un mes de anticipación. Las solicitudes serán atendidas por estricto orden de recibo.

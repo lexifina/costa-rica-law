@@ -1,0 +1,1 @@
+Artículo 137.—Cada vez que se solicite una visita de selección, la Dirección General del Archivo Nacional recomendará el establecimiento de tablas de plazos de conservación, a nivel institucional o de Unidades Administrativas.

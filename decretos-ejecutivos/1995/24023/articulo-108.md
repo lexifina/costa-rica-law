@@ -1,0 +1,1 @@
+Artículo 108.—El Director General del Archivo Nacional autorizará con su firma el préstamo de los documentos que se conservan en el Archivo Nacional de Costa Rica, excepto cuando se tratare de salida fuera del país, lo cual deberá ser autorizado mediante decreto ejecutivo.

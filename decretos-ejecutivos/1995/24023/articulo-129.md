@@ -1,0 +1,1 @@
+Artículo 129.—Todas las instituciones productoras de documentos son las responsables de fijar la vigencia administrativa y legal de cada tipo documental. La Comisión únicamente determinará el valor científico-cultural de los documentos.

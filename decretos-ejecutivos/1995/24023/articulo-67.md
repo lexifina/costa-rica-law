@@ -1,0 +1,1 @@
+Artículo 67.—Los Archivos de Gestión y los Centrales están obligados a conservar adecuadamente sus documentos con los medios a su alcance, y con la asesoría y adiestramiento de la Dirección General del Archivo Nacional.
