@@ -1,0 +1,2 @@
+Artículo 3°—De la adjudicación
+Los lotes serán adjudicados a aquellos jefes de familia que demuestren ser personas de escasos recursos y de necesidad demostrada. La Municipalidad de San Carlos vigilará que en la escritura de la formalización de la venta sea acorde a los artículos 7°, 42 y 43 de la Ley de Promoción de la Igualdad Social de la Mujer No 7142 del 8 de marzo de 1990, publicada en el Diario Oficial "La Gaceta", No 59 del 26 de marzo de 1990.

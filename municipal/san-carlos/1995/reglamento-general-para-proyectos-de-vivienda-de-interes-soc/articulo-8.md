@@ -1,0 +1,2 @@
+Artículo 8°—De la elaboración del proyecto
+El Departamento de Ingeniería Municipal, elaborará el anteproyecto de los planos de lotificación, a fin de abaratar los costos. Dicho departa mentó tendrá bajo su completa vigilancia la ejecución de las obras y que estas sean acorde al proyecto, sea o no finalizado por la Municipalidad de San Carlos.

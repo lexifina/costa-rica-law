@@ -1,0 +1,13 @@
+Artículo 5°—De la distribución y organización de los beneficiarios
+El Proyecto de lotificación o vivienda municipal estará dividido en bloques, de acuerdo a la distribución de los lotes en los planos del proyecto de lotificación municipal. Cada bloque tendrá una letra con el cual se distinguirán, no pudiéndose repetir.
+La ubicación de los beneficiarios en cada bloque se hará mediante sorteo público que será convocado por la Comisión de Vivienda Municipal, que se crea en el presente reglamento. Cada bloque nombrará un coordinador, un secretario y un tesorero, para su organización interna. El coordinador representará el bloque ante la Comisión de Vivienda Municipal. Los miembros indicados tendrán un periodo de seis meses en su cargo, vencido dicho plazo el bloque elegirá nuevamente para llenar las plazas vacantes, pudiendo ser reelegidos los anteriormente nombrados por un periodo más.
+Los beneficiarios regularán las actividades a realizar para la obtención de recursos económicos, que aportarán a la Municipalidad, para solventar los costos de infraestructura u otros que el proyecto demande como forma de cooperación.
+La Municipalidad de San Carlos no se hará responsable sobre dineros que sean solicitados, por los coordinadores o los demás miembros de los bloques, a títulos personal o a nombre de la Municipalidad y que estos no hayan ingresado en las arcas municipales. Los beneficiarios velarán por aquellos dineros que no haya sido depositados en la Municipalidad de San Carlos y su correcto uso.
+Los coordinadores de cada bloque presentarán un informe mensual, que contendrán los siguientes elementos:
+1) Identificación del bloque y el nombre del coordinador, secretario y tesorero.
+2) Actividades realizadas, sumas obtenidas de las actividades y aportadas por los beneficiarios, o donatarios.
+3) Todos los aspectos que se consideren de importancia, como:
+a) Aquellos beneficiarios que no participen.
+b) No tengan interés en pertenecer en el proyecto.
+c) Que haya variado la situación económica, a una situación más favorable que lo descalifique para dicho lote.
+La Comisión de Vivienda, en los casos antes dichos como cualquier otro que se presente, deberá realizar las investigaciones del caso, y recomendar las acciones a seguir ante el Concejo Municipal, como la sustitución ante el Concejo Municipal del beneficiario, la presentación de denuncias públicas ante el Ministerio Público en el caso que se presente malversación de fondos u otro delito de carácter penal. Para lo cual deberá aplicar los artículos 214 siguientes y concordantes de la Ley General de la Administración Pública, con el fin de salvaguardar el debido proceso.

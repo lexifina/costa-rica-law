@@ -1,0 +1,6 @@
+Artículo 6°—Del precio del lote y del pago
+El precio final de cada lote se determinará tomando en cuenta el costo total del proyecto, entre el número total de los lotes, más un diez por ciento para efectos de reinversión. Al valor de cada lote se le restará los adelantos depositados por los beneficiarios. El monto resultante será el que se le adeudará a la Municipalidad, y esta determinará la forma de cancelación de la deuda.
+Dentro del valor total se entenderán incluidos el valor del terreno, los costos de infraestructura, costos de elaboración de planos y costos de escritura, tanto de la segregación como de adjudicación.
+Los beneficiarios podrán cancelar en un solo tracto lo adeudado a la Municipalidad, o bien, por medio de las entidades que determina el artículo 4° del Código Municipal.
+La Municipalidad de San Carlos determinará la forma de pago, teniendo un máximo de diez años para la cancelación total del lote, cuando el beneficiario no recurra a una entidad crediticia autorizada por el artículo 4° del Código Municipal.
+En este el último caso, en la escritura se establecerá como garantía de cumplimiento una hipoteca en primer grado a favor de la Municipalidad de San Carlos, por el valor total del lote vendido, más el cincuenta por ciento de interés.
