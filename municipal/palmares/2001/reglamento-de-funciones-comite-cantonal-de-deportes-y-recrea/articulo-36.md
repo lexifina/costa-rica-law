@@ -1,0 +1,1 @@
+Artículo 36.—Serán funciones de los Comités Distritales de Deportes y Recreación, las mismas establecidas en los artículos 1 y 5 de este Reglamento, pero circunscrito a su distrito, según sea el caso.

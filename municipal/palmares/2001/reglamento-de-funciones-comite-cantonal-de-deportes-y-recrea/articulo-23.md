@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Comisiones de apoyo y sus funciones
+Artículo 23.—Una vez instalada y debidamente juramentada la Junta Directiva por parte del Alcalde Municipal, el Comité Cantonal, designará a cada uno de los directivos para conformar las comisiones que se detallan en este reglamento, y aquellas que fuere necesario crear a futuro. Es válido que un miembro coordine más de una comisión, pero no será necesario que el miembro de la Junta sea miembro de la Comisión que coordine, tan sólo tendrá a su cargo la supervisión de la comisión, eventualmente la Junta decidirá si se le nombra como miembro de la Comisión.

@@ -1,0 +1,2 @@
+Artículo 13.—La junta directiva se reunirá conforme a lo establecido en el artículo 6, inciso 1, de las sesiones ordinarias deberá informar al Municipio y al Director Regional de Deportes del ICODER.
+Las sesiones extraordinarias, serán convocadas con al menos tres días de anticipación y su comunicación a los miembros la hará el presidente por cualquier medio idóneo, debiendo informar los puntos específicos a tratar.

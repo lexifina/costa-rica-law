@@ -1,0 +1,1 @@
+Artículo 15.—Los acuerdos de la Junta que no sean firmes, se requerirá su aprobación en la sesión siguiente. Queda a criterio de los miembros se consigne en actas su negativa. La Junta Directiva, sugerirá a las visitas en la exposición de sus temas, una duración máxima de 15 minutos, ello con el objeto de aligerar las sesiones.
