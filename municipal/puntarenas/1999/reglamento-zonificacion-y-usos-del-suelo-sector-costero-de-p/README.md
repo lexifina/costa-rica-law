@@ -14,3 +14,4 @@ Reglamento Zonificación y Usos del Suelo Sector Costero de Playa Santa Teresa, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-08 | la propia norma |
+| 2 | 2000-03-08 | Ley 7 |
