@@ -6,7 +6,7 @@ Considerando:
 1°—Que la instalación de calderas se ha incrementado vertiginosamente con mayor velocidad que en décadas anteriores, y es previsible el aumento de dichas instalaciones en los años venideros como consecuencia del desarrollo industrial, agroindustrial del país y del área centroamericana.
 2°—Que el margen de seguridad en las calderas modernas ha mejorado, pero no en el tanto necesario para ofrecer la supresión de riesgos de desastre.
 3°—Que en todo caso, la instalación, la operación, la conservación, el traslado y las revisiones periódicas de esos equipos ha de tener la vigilancia oficial.
-4°—ó Que el cumplimiento de la función de protección a la Seguridad e Higiene de los Trabajadores y de la Ciudadanía en general, corresponde al Estado.
+4°—Que el cumplimiento de la función de protección a la Seguridad e Higiene de los Trabajadores y de la Ciudadanía en general, corresponde al Estado.
 5°—Que de conformidad con las recomendaciones de la Organización Internacional del Trabajo, 01T, de la Sociedad Americana de Ingenieros Mecánicos, ASME, de la Asociación Nacional de Protección contra el Fuego, NFPA, el Instituto de Normas Técnicas de Costa Rica y previa consulta a los Reglamentos de Calderas de países con amplia experiencia en la materia, y asesorados por profesionales con conocimientos específicos en calderas, procede a emitir un nuevo Reglamento en la materia. Por tanto;
 DECRETAN:
 El siguiente:
@@ -17,7 +17,8 @@ Artículo 1°—Definiciones: Para los efectos de este Reglamento, se entiende p
 a) Bitácora: es el cuaderno foliado, registrado en el Departamento en el que se anotarán todos los hechos principales relacionados con la instalación y la operación del sistema de vapor del usuario.
 b) Caldera: todo recipiente cerrado en el cual, para cualquier fin, excepto el cocimiento doméstico de alimentos, se calienta agua o se genera vapor, generalmente de agua, para ser usado fuera de él, a una presión mayor que la presión atmosférica. Los supercalentadores, recalentadores, economizadores, u otras partes a presión, conectadas directamente a la caldera, sin la intervención de válvulas, serán consideradas como partes de la caldera.
 c) Cuarto de Calderas: es una edificación independiente de una planta, dedicado a alojar una o más calderas y sus equipos auxiliares, construido según el Código de Construcción y lo que se establece en este Reglamento.
-d) Compartimiento de Calderas: es un local dentro de una construcción dedicado a alojar una o más calderas y sus equipos auxiliares, construido según el Código de Construcción y lo que se establece en este Reglamento.
+d) Compartimento de Calderas: es un local dentro de una construcción dedicado a alojar una o más calderas y sus equipos auxiliares, construido según el Código de Construcción y lo que se establece en este Reglamento.
+(Así reformado mediante artículo 1° de Decreto Ejecutivo N°29626 de 12 de junio del 2001)
 e) Departamento: El Departamento de Medicina, Higiene y Seguridad Ocupacionales
 f) Generación: es la capacidad de producir vapor de una caldera expresada en kilogramos de vapor por hora, a la presión máxima de trabajo.
 g) Inspector de calderas: Profesional autorizado por el Colegio Federado de Ingenieros y Arquitectos de Costa Rica, para efectuar las inspecciones y otras labores decretadas en este Reglamento;

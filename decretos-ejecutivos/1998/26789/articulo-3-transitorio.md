@@ -1,1 +1,2 @@
-III.—Los usuarios cuyas calderas se excedan de un 70 % de su carga nominal máxima, deberán cambiar la misma a su categoría superior inmediata, dentro del plazo establecido en el transitorio anterior.
+III.—DEROGADO.
+(Derogado expresamente mediante artículo 1° de Decreto Ejecutivo N°29626 de 12 de junio del 2001)

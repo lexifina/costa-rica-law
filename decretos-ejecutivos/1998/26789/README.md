@@ -14,3 +14,4 @@ Reglamento de Calderas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-05-02 | la propia norma |
+| 2 | 2001-06-12 | Decreto Ejecutivo 29626 (2001-06-12) |
