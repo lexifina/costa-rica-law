@@ -1,0 +1,1 @@
+Artículo 19.—Obligación de tramitación. Las gestiones que formule el contratista a Correos de Costa Rica serán analizadas y resueltas dentro de un plazo de hasta quince días hábiles, salvo situaciones excepcionales debidamente justificadas en donde se podrá prorrogar dicho plazo.

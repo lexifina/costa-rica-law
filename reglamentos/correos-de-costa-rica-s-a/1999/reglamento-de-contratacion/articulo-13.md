@@ -1,0 +1,1 @@
+Artículo 13.—Rescisión. El acuerdo de rescisión debe estar precedido de los estudios e informes técnicos que acrediten fehacientemente las causales de la rescisión. Este acuerdo se le notificará al interesado, para que en el término de tres días hábiles se manifieste sobre el particular.

@@ -1,0 +1,1 @@
+Artículo 4°—Principio de igualdad y libre competencia. La empresa garantiza la igualdad de participación de todos los potenciales oferentes en los procedimientos de contratación. Correos de Costa Rica se reserva el derecho de solicitar y considerar ofertas alternativas presentadas con la principal en el proceso de contratación.

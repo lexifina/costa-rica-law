@@ -1,0 +1,1 @@
+Artículo 32.—Declaratoria de desierto. La Junta Directiva o la Gerencia General, según corresponda, podrá declarar desierto un procedimiento de contratación, cuando existan razones que justifiquen tal medida, debiendo quedar acreditadas en el expediente y comunicándolo oportunamente a los proveedores participantes.

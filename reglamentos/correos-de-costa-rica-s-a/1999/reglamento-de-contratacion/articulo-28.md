@@ -1,0 +1,1 @@
+Artículo 28.—Efectos del incumplimiento. La violación del régimen de prohibiciones establecido en este capítulo originará la nulidad absoluta de la oferta, el acto de adjudicación o el contrato, recaídas a favor del inhibido y acarreará, a la parte infractora, las sanciones previstas en el presente reglamento.

@@ -1,0 +1,2 @@
+Artículo 71.—Legitimación y plazos para interponer el recurso. Estará legitimado para recurrir quien haya presentado oferta, y deberá interponer el recurso de revocatoria dentro del tercer día hábil de la comunicación de la adjudicación.
+El recurso de fiscalización superior para ante la Contraloría General de la República en materia de contratación general, deberá presentarse dentro de los diez días hábiles siguientes a partir de la comunicación del acuerdo en firme.

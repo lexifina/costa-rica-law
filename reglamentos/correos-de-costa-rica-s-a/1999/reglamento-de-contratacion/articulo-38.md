@@ -1,0 +1,1 @@
+Artículo 38.—Otras garantías. Correos de Costa Rica podrá establecer otras modalidades de garantía que conlleve a una adecuada tutela de la efectiva ejecución del contrato, lo cual deberá ser aceptado por el contratista.

@@ -1,0 +1,3 @@
+Artículo 44.—Ofertas conjuntas. Cuando distintos componentes del objeto de contratación puedan ser brindados por diferentes personas y esto contribuya a la mejor satisfacción del interés de la empresa. Correos de Costa Rica podrá contemplar en las bases de la contratación la posibilidad de que en una sola propuesta figuren dos o más oferentes en forma conjunta.
+En este supuesto la oferta debe establecer con toda claridad el componente de la prestación que corresponde a cada oferente conjunto.
+En ausencia de esta especificación los oferentes conjuntos responderán solidariamente ante Correos de Costa Rica por todas las consecuencias de su participación.

@@ -1,0 +1,1 @@
+Artículo 54.—Vigencia de la oferta. Por el solo hecho de su presentación, se entiende que la oferta se somete al plazo de vigencia indicado en el requerimiento de la contratación, o en ausencia de este último, por el plazo previsto para dictar el acto de adjudicación.

@@ -1,0 +1,1 @@
+Artículo 33.—Prohibición de fragmentar. Correos de Costa Rica no podrá fragmentar sus adquisiciones de bienes y servicios con el propósito de variar el procedimiento de contratación o que se realice con la finalidad de obtener un beneficio ilícito.
