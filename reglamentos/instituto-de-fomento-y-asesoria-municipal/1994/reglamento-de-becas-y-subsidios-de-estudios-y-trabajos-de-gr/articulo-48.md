@@ -1,0 +1,1 @@
+Artículo 48 .-Ningún servidor podrá disfrutar de los beneficios que autoriza este Reglamento mientras este pendiente de cumplimiento algún contrato anterior, salvo casos muy calificados, siendo requisito indispensable el dictamen de la Comisión.

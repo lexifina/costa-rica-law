@@ -1,0 +1,1 @@
+Artículo 7° Para que un funcionario se haga acreedor a cualesquiera de los beneficios contemplados en este Reglamento, deberá tener no menos de un ano continuo de prestar servicio para el IFAM. En todo caso, por razones de interés institucional la Junta Directiva podrá acordar lo que corresponda.

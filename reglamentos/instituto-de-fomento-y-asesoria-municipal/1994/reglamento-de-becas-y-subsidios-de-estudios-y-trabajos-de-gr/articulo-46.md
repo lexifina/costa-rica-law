@@ -1,0 +1,1 @@
+Artículo 46.—En todos los casos de incumplimiento, por parte del funcionario, el órgano que otorgó el beneficio determinará si existe responsabilidad y los atenuantes si los hubiere, previo dictamen de la Comisión.

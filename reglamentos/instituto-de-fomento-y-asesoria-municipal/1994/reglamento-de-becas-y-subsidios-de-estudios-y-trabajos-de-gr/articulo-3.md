@@ -1,0 +1,2 @@
+Artículo 3° Corresponde a la Comisión de Capacitación Interna proponer las políticas para capacitar el recurso humano de la Institución, dentro y fuera del país.
+Elaborará un programa que satisfaga los requisitos operativos del Instituto, a corto, mediano y largo plazo, directa o inmediatamente relacionados con sus políticas y propósitos y acorde con las necesidades de la acción municipal, el cual será sometido a consideración de la Junta Directiva. Para el cumplimiento del programa, se tomarán las previsiones presupuestarias del caso.

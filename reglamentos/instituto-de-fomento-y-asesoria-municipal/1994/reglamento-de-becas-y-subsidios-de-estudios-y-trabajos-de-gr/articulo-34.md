@@ -1,0 +1,1 @@
+Artículo 34.—Las erogaciones se harán de conformidad con el plan de desembolsos aprobado. Será indispensable que previamente se haya suscrito el contrato respectivo confeccionado por el Departamento Legal.

@@ -1,0 +1,1 @@
+Artículo 30.—Cumplidos los requisitos y concedido el subsidio, el interesado deberá presentar tos atestados documentales del caso, con el objeto de que el IFAM gire el cheque a la empresa o centro de estudios respectivo.

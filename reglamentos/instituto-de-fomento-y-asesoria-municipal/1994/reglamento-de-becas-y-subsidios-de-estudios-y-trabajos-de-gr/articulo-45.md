@@ -1,0 +1,1 @@
+Artículo 45.—El servidor que incumpliere los deberes u obligaciones de cualesquiera de los contratos que establece este Reglamento por causa evidentemente imputable a él, podrá quedar excluido de los respectivos beneficios hasta por tres anos.

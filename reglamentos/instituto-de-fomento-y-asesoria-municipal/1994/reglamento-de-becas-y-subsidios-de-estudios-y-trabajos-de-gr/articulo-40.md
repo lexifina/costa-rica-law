@@ -1,0 +1,1 @@
+Artículo 40.—Se tendrán por extinguidas las obligaciones y garantías contraídas con la Institución, cuando un funcionario que este acogido a cualesquiera de tos beneficios de este Reglamento, falleciere o fuere incapacitado permanentemente, incluyendo ello la etapa de cumplimiento laboral.

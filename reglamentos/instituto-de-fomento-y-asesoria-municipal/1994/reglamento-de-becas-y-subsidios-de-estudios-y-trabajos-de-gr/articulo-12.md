@@ -1,0 +1,1 @@
+Artículo 12.—Para resolver cualesquiera asunto que se someta al conocimiento de la Comisión, se requerirá simple mayoría de sus miembros En caso de empate, quien preside someterá el auxilio nuevamente a votación y si persistiese el empate, podrá ejercer el voto de calidad.

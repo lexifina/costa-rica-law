@@ -1,0 +1,1 @@
+Artículo 24.—La Comisión deberá razonar su dictamen, ponderando expresamente para ello cada uno de tos aspectos que contempla el artículo anterior en el caso de todos tos concursantes. En el cartel se podrá señalar el pontaje que se dará a cada una de las condiciones que se evaluarán, tratándose de las que exija específicamente la beca (inciso f, artículo 23).

@@ -1,0 +1,1 @@
+Artículo 42.—Los funcionarios acogidos a los beneficios de este Reglamento que estuvieren realizando estudios en el interior o exterior del país, si la continuidad de los cursos no le permitiere disfrutar de sus vacaciones, podrán optar por la acumulación o compensación parcial o total, en este último caso a juicio de la Administración.

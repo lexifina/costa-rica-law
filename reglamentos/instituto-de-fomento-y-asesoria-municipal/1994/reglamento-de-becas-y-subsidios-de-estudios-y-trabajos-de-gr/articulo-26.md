@@ -1,0 +1,1 @@
+Artículo 26.—La Sección de Personal confeccionará y mantendrá en existencia formularios que se refieran a los datos necesarios para concursar, sin que sea admitido ningún otro documento distinto a este, salvo en aquellos casos en que por fuerza mayor no se disponga de tales formularios.

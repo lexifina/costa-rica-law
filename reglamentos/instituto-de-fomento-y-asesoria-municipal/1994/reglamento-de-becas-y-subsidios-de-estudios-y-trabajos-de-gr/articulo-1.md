@@ -1,0 +1,4 @@
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal (IFAM), con fundamento en lo establecido en el artículo 11, inciso c) de la Ley de Organización y Funcionamiento del Instituto de Fomento y Asesoría Municipal.
+CAPITULO I
+De las disposiciones generales
+Artículo 1° Se establece el presente articulado para normar la adjudicación de becas al personal, así como la concesión de subsidios para realizar estudios y trabajos de graduación y la selección de candidatos para participar en todos los cursos, seminarios, congresos, pasantías y otras actividades análogas internas, nacionales y en el exterior, de acuerdo con las necesidades y políticas institucionales, auspiciados o en que participe el IFAM, a efecto de fomentar su capacitación asegurar un sistema de participación igualitaria a todos los empleados y dotar al Instituto de los mecanismos adecuados para el logro eficaz y eficiente de sus objetivos.

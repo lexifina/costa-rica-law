@@ -1,0 +1,1 @@
+Artículo 19.—Las condiciones del concurso se tendrán como aceptadas por los interesados con la sola presentación de la solicitud para participar. No obstante, en casos muy calificados, la Junta Directiva cuando adjudique la respectiva beca podrá mejorar las condiciones del beneficio.
