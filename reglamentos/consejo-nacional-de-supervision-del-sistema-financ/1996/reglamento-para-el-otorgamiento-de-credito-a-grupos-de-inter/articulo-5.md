@@ -1,4 +1,0 @@
-Artículo 5.
-El límite máximo de las operaciones activas, directas o indirectas, que los intermediarios financieros puedan realizar con cada grupo de interés económico, en cada una de las modalidades de sus operaciones y en el conjunto de todas ellas, será de una suma equivalente al veinte por ciento (20%) del capital suscrito y pagado y de las reservas patrimoniales no redimibles.
-Sin perjuicio del límite establecido en el párrafo anterior, el monto del financiamiento que puede otorgarse a los Grupos de Interés Económico, en conjunto, definidos en el Artículo 4 de este Reglamento, no podrá exceder el 20% (veinte por ciento) del capital social suscrito y pagado y de las reservas patrimoniales no redimibles de la Entidad Financiera.
-(Así reformado por acuerdo tomado en Sesión N° 142 de 29 de febrero del 2000)
