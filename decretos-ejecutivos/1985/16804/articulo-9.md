@@ -1,9 +1,11 @@
 Artículo 9°—El Ministerio de Agricultura y Ganadería podrá autorizar la utilización de trasmallo en la parte interior del Golfo de Nicoya, con base en las siguientes disposiciones:
 a) En la Zona 1, únicamente será permitido el trasmallo con malla mínima de 15,24 cm.
 b) En la Zona 2, se declara veda permanente para la utilización del trasmallo, excepto cuando ésta se realice con fines científicos o tecnológicos, previa autorización de la Dirección General de Recursos Pesqueros y Acuacultura.
-c) En la.Zona 3:
+c) En la Zona 3:
 c.1) Los 290 permisionarios de pesca con trasmallo, a la fecha de publicación del presente Decreto, se les autoriza la utilización del trasmallo con malla mínima de 8,90 cm.
 c.2) Los nuevos permisos que otorgue el Ministerio de Agricultura y Ganadería en esta zona, deberán utilizar trasmallo con malla mínima de 15,24 cm.
-d) Se declara veda durante los meses de mayo, junio y julio, para la utilización de trasmallo en las zonas 1 y 3 de la parte interior del Golfo de Nicoya.
-(Mediante el artículo 1° del decreto ejecutivo N° 16996 del 18 de abril de 1986, se suspende para el año 1986 la veda a que se refiere el inciso anterior)
+(*) d) Se declara veda durante los meses de mayo, junio y julio, para la utilización de trasmallo en las zonas 1 y 3 de la parte interior del Golfo de Nicoya.
+(*) (NOTA: Dejado sin efecto la veda a que se refiere el inciso anterior por el artículo 2° del decreto ejecutivo N° 20418 del 16 de abril de 1991, en lo referido a la parte exterior de la zona 3 del Golfo de Nicoya, delimitada por una línea imaginaria que va desde la parte más oriental de Punta Gigante hasta el Faro del Muelle de Puntarenas siguiendo hasta la parte más oriental de las Islas Negritos y de aquí hasta la parte este de Punta Gigante.)
+(*) (NOTA: El artículo 3° del decreto ejecutivo N° 20418 del 16 de abril de 1991, dispone que las personas que cuenten con permiso de pesca artesanal en pequeña escala de camarón al amparo de lo dispuesto por el artículo 16 del decreto ejecutivo N° 16804- MAG de fecha 16 de diciembre de 1985, podrán pescar camarón durante el período de veda a que se refiere el acápite anterior, en el área delimitada por la costa y una línea recta imaginaria que va desde “el faro del muelle grande de la ciudad de Puntarenas a Punta Carballo en Puerto Caldera” excluyendo el área de uso público para los bañistas.)
+(*) (NOTA: El artículo 4° del decreto ejecutivo N° 20418 del 16 de abril de 1991, dispone que las personas que a la fecha de entrada en vigencia de la veda a que se refiere el acápite d) anterior y posean permiso de pesca para operar en la parte interior del Golfo de Nicoya, utilizando como arte de pesca la red de enmalle (trasmallo), quedan autorizados para que utilicen cuerdas y líneas, durante el período de veda citado.
 El Ministerio de Agricultura y Ganadería no podrá autorizar la sustitución de trasmallo con mallas menores a las autorizadas en la respectiva licencia.

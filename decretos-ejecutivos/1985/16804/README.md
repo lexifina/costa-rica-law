@@ -16,3 +16,4 @@ Disposiciones Generales relativas a la Pesca Artesanal en Pequeña Escala
 | 2 | 1986-04-18 | Decreto Ejecutivo 16996 (1986-04-18) |
 | 3 | 1989-01-09 | Decreto Ejecutivo 18792 (1989-01-09) |
 | 4 | 1989-06-13 | Decreto Ejecutivo 19046 (1989-06-13) |
+| 5 | 1991-04-16 | SINALEVI (sin norma nombrada) |
