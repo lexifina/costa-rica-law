@@ -1,2 +1,0 @@
-Artículo 3°—La compensación económica por disponibilidad no podrá ser menor de un 10% ni mayor del 30% del salario base para el respectivo puesto. La compensación a que se refiere este reglamento se considera una compensación económica por las obligaciones a que queda sujeto el servidor al ejercer el cargo en las condiciones señaladas en el listado.
-(Así reformado mediante sesión N° 5197 del 17 de julio del 2002)

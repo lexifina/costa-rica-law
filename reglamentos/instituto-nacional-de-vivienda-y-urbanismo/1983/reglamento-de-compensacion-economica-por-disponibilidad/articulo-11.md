@@ -1,4 +1,0 @@
-Artículo 11.—El pago de disponibilidad procede en los casos de vacaciones o incapacidad laboral, así como en casos de disfrute de becas o permisos con goce de sueldo para colaborar con organismos del sector público u otros en el extranjero de acuerdo con la reglamentación vigente y disposiciones de la Contraloría General de la República y de la Procuraduría General de la República corresponde al funcionario segundo en jerarquía de la respectiva dependencia, asumir las nuevas responsabilidades reconociéndosele también el pago por el concepto e disponibilidad mientras sustituya al titular del puesto
-(incluido en la sesión número 3651 del 19-3-85 La Gaceta Nº 195 del 14-10-85 y reformado en sesión Nº 3740 del 21-7-86 La Gaceta Nº 160 del 26-8-86).
-(Así adicionado mediante sesión N° 3651 del 19 de agosto de 1985)
-(Así reformado mediante sesión N° 5197 del 17 de julio del 2002)

@@ -1,2 +1,0 @@
-Artículo 6°—El personal profesional que se haya acogido al régimen de Dedicación Exclusiva así como los que no lo hayan hecho sin tener impedimento para ello y los que hayan renunciado a dicho sistema podrán ser incluidos dentro de la lista indicada en el artículo 2° de este Reglamento, en cuyo caso no podrán devengar por concepto de la Disponibilidad un porcentaje mayor de un 10% del salario.
-(Así reformado mediante sesión N° 3651 del 19 de agosto de 1985)
