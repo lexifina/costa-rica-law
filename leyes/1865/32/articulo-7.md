@@ -1,0 +1,2 @@
+Art 7° Los Jueces y Agentes fiscales que en cumplimiento de los deberes que la presente ley les impone, sean omisos, responderán por el duplo que corresponda al Hospital en cada una de los mortuales en que lo hayan sido.
+A la Cámara de Representantes, Palacio Nacional, San José, junio veintisiete de mil ochocientos sesenta y cinco. Al Poder Ejecutivo, San José noviembre siete de mil ochocientos sesenta y cinco. Ejecútese.

@@ -1,0 +1,2 @@
+Art 3° Las otras rentas destinadas por disposiciones anteriores, y el derecho concedido por el artículo 1 del decreto n° 15 de 8 de agosto de 1854, y que se declara extensivo al nuevo Panteón construido en esta ciudad, corresponderá exclusivamente al Hospital de San Juan de Dios.
+Único también se podrá cobrar en favor de dicho Hospital, de derecho de veinticinco pesos por cada nicho que se ocupe por el término de cinco años, cuando la Junta de Caridad, corresponderá exclusivamente de esta especie en el mismo Panteón.

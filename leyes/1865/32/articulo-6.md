@@ -1,0 +1,1 @@
+Art 6°. – Los Agentes fiscales pasarán mensualmente al Tesorero de la Junta de Caridad, informe de los mortuales que hayan visado, y de la cantidad que en cada una corresponda al Hospital, ya sea en virtud de la manda forzosa o de legados voluntarios.
