@@ -1,4 +1,3 @@
-(Derogado)
 N° 11
 EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA,
 A solicitud del Colegio de Enfermeras de Costa Rica,
