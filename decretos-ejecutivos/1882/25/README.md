@@ -13,3 +13,4 @@ Reglamenta la Administración General de Rentas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1882-12-04 | la propia norma |
+| 2 | 1882-12-07 | Ley 27 |

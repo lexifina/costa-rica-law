@@ -1,1 +1,2 @@
 Art. 22.—Los sueldos de todos los funcionarios y empleados de la Administración pública, se principiarán á pagar el día primero del mes siguiente al que corresponde al servicio prestado. Es prohibido el pago por partes, así como el adelanto por cuenta de sueldos, á no ser por orden especial del Presidente de la República, quien sólo la dará en casos urgentes.
+(Este artículo fue tácitamente ampliado por el Decreto-Ley N° 27 de 7 de diciembre de 1882)
