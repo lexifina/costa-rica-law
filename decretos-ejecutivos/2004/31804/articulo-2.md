@@ -1,0 +1,1 @@
+Artículo 2º—En esta zona serán prohibidas todas las actividades humanas dirigidas a la explotación de los recursos naturales, con la excepción de aquellas cuyos fines sean la investigación y el ecoturismo según lo establecido en la normativa vigente.
