@@ -1,0 +1,5 @@
+Artículo 4º—Se modifica el artículo 13 para que se en adelante se lea de la siguiente forma:
+Artículo 13.—Según el presupuesto presentado y aprobado por la Contraloría General de la República para el ejercicio y lo indicado en la cláusula sexta inciso H del Contrato de Fideicomiso 73-2002, podrá ser modificado en cambios internos en las sub-partidas del presupuesto por la Unidad Ejecutora velando porque se cumpla las partidas generales del presupuesto aprobado por la Contraloría General de la República. La Unidad Ejecutora deberá presentar informes trimestrales al Comité Director del Fideicomiso.
+En todo lo demás dejamos firme y valedero el Reglamento de Utilización de los Recursos Para Gastos Operativos, aprobado en sesión ordinaria Nº 4-04 de fecha 23 de febrero del 2004 celebrada por el Comité Director del Fideicomiso 73-2002 BICSA-IMAS-BANACIO.
+Estas modificaciones al Reglamento son vigentes, a partir de la aprobación del Comité Director del citado Fideicomiso, en la sesión ordinaria Nº 10-04 el día 16 de junio del 2004.
+San José, octubre del 2004.
