@@ -1,1 +1,0 @@
-Artículo 15.- El Instituto de Tierras y Colonización promoverá el cultivo y conservación de bosques en sus asentamientos campesinos, en aquellas áreas que considere conveniente, todo de acuerdo con la Dirección General Forestal.

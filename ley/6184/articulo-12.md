@@ -1,3 +1,0 @@
-Artículo 12.- En las informaciones posesorias referentes a fincas rurales, ya se tramiten en los tribunales o administrativamente, el Instituto de Tierras y Colonización deberá consultar a la Dirección General Forestal sobre la aptitud forestal del inmueble, dentro del plazo de un mes que indica el artículo 5º de la Ley de Informaciones Posesorias Nº 139 de 14 de julio de 1941 y sus reformas.
-Si la Dirección referida estimare que la finca es de aptitud forestal, quedará sujeta a la condición que establece el inciso ch) del artículo 19 de esa ley. En caso contrario o si esa oficina no emitiere informe en el plazo indicado, el inmueble no quedará con aquella limitación.
-Las informaciones tramitadas sin los requisitos que señala esta ley serán absolutamente nulas.

@@ -1,1 +1,0 @@
-Artículo 19.- Esta ley será reglamentada por el Poder Ejecutivo en un plazo no mayor de noventa días. El Banco Central de Costa Rica reglamentará el funcionamiento de estos préstamos en un plazo no mayor de noventa días.
