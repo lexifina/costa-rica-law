@@ -1,0 +1,1 @@
+Artículo 23.—De la garantía laboral para el funcionario. Conforme al artículo seis de la Ley de Licencias, el Consejo de Seguridad Vial garantiza la relación laboral al servidor que esté realizando estudios amparado al presente Reglamento.

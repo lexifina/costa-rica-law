@@ -1,0 +1,1 @@
+Artículo 22.—Del limitante económico. El financiamiento total o parcial otorgado a servidores del Consejo en la adjudicación de una beca que regula este reglamento, quedará sujeto a que existan las disponibilidades presupuestarias, salvo lo dispuesto en los artículos 1° y 12 de la Ley de Licencias.

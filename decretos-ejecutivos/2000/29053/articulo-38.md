@@ -1,0 +1,1 @@
+Artículo 38.—De los límites a la licencia: La Comisión de Becas no recomendara licencia para estudio, solamente hasta transcurridos tres años después de concluido el término natural de la carrera optado por el servidor; salvo que exista interés especial por parte de la Administración.

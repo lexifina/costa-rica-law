@@ -1,0 +1,1 @@
+Articulo 41.—Requisitos del contrato. Cuando corresponda, en el contrato respectivo se establecerá las condiciones referentes a las obligaciones del beneficiario y de la Institución, sin perjuicio de las que prescriben la Ley de Adiestramiento para Servidores Públicos y disposiciones conexas.

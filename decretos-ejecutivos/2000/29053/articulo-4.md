@@ -1,0 +1,1 @@
+Artículo 4°—El financiamiento. El financiamiento total o parcial de la participación de los servidores del Consejo de Seguridad Vial. en las facilidades otorgadas en el presente Reglamento, que se lleven a cabo en el país o en el extranjero, y que quedará sujeto a que existan las disponibilidades presupuestarias.

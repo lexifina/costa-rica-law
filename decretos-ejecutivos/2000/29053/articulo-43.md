@@ -1,0 +1,1 @@
+Articulo 43.—De las condiciones generales. El contrato de previo a ser remitido ante el Presidente de la Junta Directiva del Consejo de Seguridad Vial, deberá contar con la firma del Coordinador de la Asesoría Legal, quien dará fe de la legalidad del acto.

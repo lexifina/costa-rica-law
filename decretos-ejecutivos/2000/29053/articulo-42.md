@@ -1,0 +1,1 @@
+Articulo 42.—De los anexos al contrato. Cuando dentro del proceso de capacitación sea necesario variar alguna circunstancia de las establecidas en el contrato, previo señalamiento de la Unidad de Capacitación, se adicionará el contrato para normar en forma distinta las circunstancias establecidas dentro de éste.

@@ -1,0 +1,2 @@
+Artículo 31.—De la comunicación del concurso de oposición. La Unidad de Capacitación comunicará cuando menos, a las Jefaturas de cada Dirección y a los encargados administrativos para que las hagan de conocimiento de los servidores. Estos a su vez, tendrán la obligación de realizar circulares sobre la existencia del Concurso. Corresponderá a la Unidad de Capacitación la verificación de la divulgación del concurso.
+Cuando el concurso esté limitado a una cantidad no significativa de funcionarios, la Unidad de Capacitación remitirá nota directamente a los interesados.

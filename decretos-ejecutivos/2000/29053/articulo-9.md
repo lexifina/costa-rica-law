@@ -1,0 +1,1 @@
+Artículo 9°—De la forma para canalizar una ayuda económica fuera del país. Es facultad exclusiva del beneficiario de un permiso total o parcial de salario o una beca, cuando los estudios se realicen fuera del país, determinar la forma específica mediante la cual se haga llegar el rubro económico correspondiente, buscando siempre evitar el extravió de los mismos.

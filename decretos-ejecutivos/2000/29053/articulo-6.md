@@ -1,0 +1,1 @@
+Artículo 6°—De la competencia del Departamento de Recursos Humanos. La capacitación de los servidores del Consejo, se canalizará a través del Departamento de Recursos Humanos por medio de la Unidad de Capacitación y con estricta observancia del procedimiento establecido en este Reglamento.

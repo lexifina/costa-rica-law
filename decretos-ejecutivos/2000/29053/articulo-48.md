@@ -1,0 +1,1 @@
+Articulo 48.—De la supletoridad de las normas. Todo lo referente a impedimentos, excusas, recusaciones, procedimientos administrativos disciplinarios, recursos ordinarios y extraordinarios y cualquier aspecto no regulado expresamente, se regirán de conformidad con la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 50. .— De las derogatorias. Deróguese el Reglamento para la Adjudicación de Becas, Licencias y Subsidios para Estudio y Adiestramiento Complementario al Personal del Consejo de Seguridad Vial, publicado en La Gaceta No. 156 de 17 de agosto de 1993.

@@ -1,0 +1,1 @@
+Articulo 37.—De las calificaciones: La Comisión de Becas no recomendará nuevo contrato de licencias para estudios, si el servidor ha omitido presentar las calificaciones obtenidas durante el curso lectivo anterior o si el servidor fuere reprobado en dos o más asignaturas. En éste último caso, no podrán autorizarse licencias para estudios durante el periodo siguiente.

@@ -1,0 +1,1 @@
+Artículo 15.—De los funcionarios excluidos de estos beneficios. No tienen derecho al disfrute de los beneficios señalados en este reglamento, aquellos servidores que hayan sido suspendidos por faltas graves durante el último año anterior al concurso, o hayan obtenido una calificación de regular o menor al último período calificado.

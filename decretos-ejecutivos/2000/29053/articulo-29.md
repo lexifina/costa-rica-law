@@ -1,0 +1,1 @@
+Artículo 29.—Del funcionamiento de la Comisión. La recomendación da aprobar o no la beca o beneficio, será adoptada por un mínimo de tres miembros de la Comisión, en caso de empate el Director Ejecutivo o su delegado tendrán voto de calidad.

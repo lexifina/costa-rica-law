@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Del contrato
+Articulo 40.—De la necesidad de un contrato: El servidor seleccionado con la adjudicación de una facilidad superior a tres meses, está obligado a suscribir un contrato con el representante del Consejo, de acuerdo a lo que establece el articulo 4° de la ley N° 3009 de Adiestramiento de Servidores Públicos. Los términos del contrato se establecerán en cada caso. por común acuerdo del beneficiario y el Consejo, sin perjuicio de las obligaciones que prescribe la Ley de Licencias y el presente Reglamento. Las condiciones estipuladas en el pliego de condiciones que sacan a concurso una beca, se entienden aceptadas por los interesados y por lo tanto incorporadas al contrato.
