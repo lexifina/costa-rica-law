@@ -1,4 +1,6 @@
+(Derogado)
 DIRECTRIZ Nº 99-009
+(La presente Directriz es inaplicable según lo establece el artículo 28 de la Directriz 005-2001, dictada por la Dirección Nacional de Notariado a las diez horas del dieciocho de diciembre de dos mil uno )
 DIRECCION NACIONAL DE NOTARIADO.- A las diez horas del siete de abril de mil novecientos noventa y nueve.
 R E S U L T A N D O:
 UNICO.- Que el licenciado Faride Beirute Brenes, Procurador General Adjunto de la República, mediante oficio PGA-064-99, solicita que esta Dirección considere la posibilidad de emitir lineamiento, de acatamiento obligatorio para los Notarios Públicos, en el sentido de que ante casos de ejercicio de la competencia en actividad judicial no contenciosa, en los cuales debe darse audiencia a la Procuraduría General de la República, los profesionales cartularios señalen, expresa y claramente, en su nota de remisión a ese ente, la dirección exacta de la oficina en la que deben ser enviados los documentos y apersonamiento del Procurador designado para atender el caso particular; y,
