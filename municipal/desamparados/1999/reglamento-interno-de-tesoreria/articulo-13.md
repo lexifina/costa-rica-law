@@ -1,0 +1,2 @@
+Artículo 13.-Todos los pagos serán ordenados por el Alcalde Municipal y por el funcionario que designe de conformidad con el artículo N° 17, inciso b) del Código Municipal y se efectuarán por medio de cheque, excepto los que corresponden hacerse por Caja Chica.
+Para la elaboración del cheque, se requiere la autorización respectiva del documento o documentos que los respalden; a excepción de los cheques de sueldos, por existir acción de personal que ampara el nombramiento.

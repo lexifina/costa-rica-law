@@ -1,0 +1,2 @@
+Artículo 14.-Los cheques debidamente prenumerados en forma consecutiva, serán emitidos por la contabilidad amparados a la nómina de pago, en estricto orden numérico, previa revisión y codificación de la documentación por parte del encargado. Los cheques de salarios y aguinaldo serán emitidos normalmente por el centro de cómputo, siguiendo este mismo procedimiento, hasta tanto no se desarrolle un nuevo sistema.
+Podrá definirse otros métodos de pago para proveedores, conforme las facilidades tecnológicas y desarrollo de nuevos sistemas que lo permitan.

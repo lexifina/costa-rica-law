@@ -1,0 +1,1 @@
+Artículo 10.-Los ingresos los recibirá únicamente la Tesorería por medio de la Caja General. Por cada ingreso recibido deberá emitirse un recibo de caja, en las fórmulas que existen para tal efecto. Los recibos anulados deben mantenerse en el consecutivo de copias de recibos en original y copia respectiva.

@@ -1,0 +1,2 @@
+Artículo 3°-Queda terminantemente prohibida la entrada de funcionarios o empleados de la Institución y de particulares al local de la Tesorería, salvo visto bueno de la Tesorera.
+Se exceptúa de esta disposición al Auditor, sus delegados en funciones propias de su cargo, a cualquier otro funcionario empleado de esta Institución o ajena, cumpliendo con una función determinada por Ley, previamente autorizado por el Director Financiero.

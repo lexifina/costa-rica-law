@@ -1,0 +1,1 @@
+Artículo 27.-EI Director Financiero y el Auditor o sus delegados pueden realizar en cualquier momento y sin previo aviso todas las revisiones o arqueos que crean convenientes sobre valores y documentos en custodia en la Tesorería o sobre los procedimientos o medidas de control internos.
