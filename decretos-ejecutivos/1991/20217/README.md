@@ -14,3 +14,4 @@ Régimen Tarifario para la Prestación de Servicios y Facilidades Aeroportuarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-02-07 | la propia norma |
+| 2 | 1991-08-14 | Decreto Ejecutivo 20656 (1991-08-14) |
