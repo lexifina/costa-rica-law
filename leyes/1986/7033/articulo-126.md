@@ -1,4 +1,4 @@
-Artículo 126.- El recurrente podrá reclamar ante la Sala las
+ARTICULO 126.- El recurrente podrá reclamar ante la Sala las
 siguientes defensas:
 1) Que es ciudadano costarricense.
 2) Que el motivo que se invoca no es causa legal de expulsión.

@@ -1,1 +1,1 @@
-Artículo 157.- Rige a partir de su publicación.
+ARTICULO 157.- Rige a partir de su publicación.

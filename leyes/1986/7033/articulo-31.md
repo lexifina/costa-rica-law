@@ -1,4 +1,4 @@
-Artículo 31.- Los documentos que acreditan la permanencia en el país
+ARTICULO 31.- Los documentos que acreditan la permanencia en el país
 son:
 a) Cédula de residencia.
 b) Permiso temporal de radicación

@@ -1,4 +1,4 @@
-Artículo 64.- Los extranjeros tienen los mismos deberes y derechos
+ARTICULO 64.- Los extranjeros tienen los mismos deberes y derechos
 individuales y sociales que los costarricenses, con las excepciones y
 limitaciones que la Constitución Política y las leyes establecen. No
 podrán intervenir en los asuntos políticos del país y estarán sometidos a

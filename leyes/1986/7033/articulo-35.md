@@ -1,4 +1,4 @@
-Artículo 35.- Considérase residente permanente al extranjero que
+ARTICULO 35.- Considérase residente permanente al extranjero que
 ingrese al país para permanecer en él en forma definitiva.
 Los residentes permanentes podrán ingresar como:
 a) Inmigrantes, que podrán ser espontáneos, llamados o asistidos.
