@@ -1,1 +1,3 @@
 Artículo 25.—Se entiende por salario de ingreso, el salario de clase, más el respectivo complemento salarial que le corresponda al profesional en enfermería. Cuando el servidor obtenga un título universitario de mayor nivel (bachillerato, licenciatura), en forma automática se le reconocerá el nuevo grupo salarial que le corresponda desde la fecha que obtuvo el título respectivo, sin perjuicio de las prescripciones de ley.
+Unicamente para efectos del reconocimiento del aumento anual, se toma como referencia el salario de ingreso, estableciendo el monto por anualidad que corresponda a la categoría mas cercana, segun la Escala de Sueldos y Salarios vigentes.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 23546 del 1° de agosto de 1994)
