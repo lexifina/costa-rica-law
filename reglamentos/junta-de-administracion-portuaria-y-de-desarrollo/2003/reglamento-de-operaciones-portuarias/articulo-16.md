@@ -1,0 +1,7 @@
+ARTÍCULO 16
+De las reservas sobre el recibo y almacenamiento de carga
+JAPDEVA se reserva los siguientes derechos:
+a) Rehusar el manejo y almacenamiento de cargamentos que por su naturaleza puedan ocasionar daños a las instalaciones del puerto, o a otros cargamentos que por su peso, volumen o características propias, no puedan ser manejados con los equipos disponibles en la terminal.
+b) Revisar el manejo o almacenamiento de mercaderías que por su naturaleza, deficiencia en el empaque o por cualquier otra circunstancia, produzca emanaciones, vapores, olores, basura que causen o contaminen las instalaciones o a los cargamentos depositados. Bajo estas circunstancias se podrá ordenar el retiro de las mercaderías de nuestras instalaciones.
+c) Proceder con cargo al propietario o su representante, cuando el peso de los cargamentos no estén indicados en los conocimientos de embarque, ni consten en otro documento. Asimismo, se reserva el derecho de verificar el peso a los cargamentos que juzgue conveniente con cargo al propietario de la carga o su representante.
+d) JAPDEVA, mantendrá bajo su custodia las mercancías en la terminal portuaria hasta tanto los propietarios de las mismas o sus representantes cancelen la totalidad de la deuda por concepto de bodegaje. Tratándose de otras obligaciones, tanto los clientes como dueños de mercancías deberán rendir garantía satisfactoria, previa al uso del muelle para responder por eventuales deudas.

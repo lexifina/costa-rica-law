@@ -1,0 +1,4 @@
+ARTÍCULO 21
+De la obligación de depósito de garantía
+Los usuarios de los servicios que presta JAPDEVA a las naves y a la carga, deberán solicitarlo a través de agenciamiento. El agente naviero deberá cancelar el costo total de los servicios que solicita mediante un depósito de garantía. Dicho pago se hará de contado con base en la estimación amparada en el desglose de cada uno de los servicios solicitados, y el costo de los efectivamente brindados será liquidado contra la garantía rendida anteriormente. No se prestará servicio a aquellas agencias representantes o personas que adeuden derechos por servicios prestados.
+Asimismo, cuando los depósitos en garantía hechos por las agencias no cubran la totalidad de los servicios prestados, durante la operación se exigirá la ampliación de dicho depósito, de lo contrario la Autoridad Portuaria podrá suspender la operación de la nave con cargo al agente.

@@ -1,0 +1,3 @@
+ARTÍCULO 11
+De la responsabilidad civil en cuanto a personas y objetos
+Los usuarios de las instalaciones portuarias, deben asegurar a sus trabajadores contra riesgos profesionales y suplirles los implementos de protección personal que establece el Ministerio de Trabajo, el INS, y sujetarse a las normas de seguridad ocupacional. JAPDEVA no será responsable por accidentes o muertes que ocurran en las instalaciones portuarias a trabajadores de empresas usuarias de sus servicios, ni a daños que ocurran a las embarcaciones, vehículos equipo ferroviario, mercancías, equipo operativo y cualquier otro objeto que se use en las operaciones portuarias.

@@ -1,0 +1,15 @@
+ARTÍCULO 24
+De la obligatoriedad del uso del piloto o práctico
+a) Toda embarcación marítima internacional; (mercante, científico, militar o de cabotaje), sin restricción de eslora, y de un tonelaje de registro bruto (TRB), de o superior a doscientas cincuenta toneladas (250 TM), debe hacer uso del piloto o práctico para entrar, atracar, desatracar, o zarpar del puerto.
+b) Desde el punto de vista operativo el piloto o práctico, ejecutará las maniobras de atraque y desatraque propias del caso, siendo el único autorizado por la Autoridad Portuaria a coordinar con los remolcadores, cuadrillas de atraque a tierra, lancha de piloto y cualquier otro elemento que intervenga en la maniobra. Para tal fin, el Capitán de la nave deberá brindar toda la colaboración necesaria abordo; con el objeto de garantizar y mantener los parámetros de seguridad y eficiencia de la operación.
+c) El capitán de la nave mantendrá siempre y en todo momento la responsabilidad absoluta de la misma, no obstante, deberá acatar en materia de atraque y desatraque las indicaciones, recomendaciones e instrucciones que gire el piloto o práctico.
+d) Durante el desempeño de sus funciones, el piloto o práctico, debe ajustarse al respeto de las normas internacionales, considerando lo que para el caso esté establecido en el nivel nacional; por lo que informará al capitán de la nave, de aquellas normas que difieran por concepto de Legislación Nacional.
+e) El piloto o práctico, podrá determinar la cancelación o suspensión de una maniobra, cuando por:
+1. La condición climatológica adversa se pueda afectar la seguridad de la operación, la nave y las instalaciones.
+2. Avería, confirmada en el sistema de propulsión, gobierno o de fondeo, de la nave en cuestión.
+3. Condición irregular de la estabilidad o estiba de la nave, represente un riesgo para que la embarcación proceda hacia o desde el muelle.
+4. Restricción, o constreñimiento en el calado de la nave con referencia al calado real en el canal de acceso y/o el puesto de atraque designado.
+5. Restricción de eslora de la nave con referencia al espacio de pantalla disponible.
+6. Deficiencias comprobadas en el equipo de amarre de la nave.
+7. La no-aceptación del capitán de la nave a seguir las recomendaciones del piloto o práctico; (número de remolcadores a utilizar, sistema de fondeo a utilizar, banda sugerida para atracar y otros), perderá su espacio de atraque y queda, según lo establecido en este reglamento, en lista de espera para atraque posterior. Todos los costos que se generen por la espera de la ejecución de la maniobra, serán por cuenta del usuario.
+f) El piloto o práctico, deberá recibir del capitán de la nave, una boleta confeccionada por la Autoridad Portuaria, dando fe de los servicios primarios recibidos en el puerto; la misma recopilará la información necesaria para el control de calidad del servicio y costos, que refleje un informe variado como: pilotaje, remolcaje, lancha piloto, cuadrillas de atraque, calidad del servicio, las horas de inicio y término de las maniobras, así como un espacio para comentarios del capitán.

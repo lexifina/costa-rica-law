@@ -1,0 +1,5 @@
+ARTÍCULO 45
+De las inspecciones de vehículos
+a) Los responsables de trenes y los conductores de vehículos terrestres, que entren o salgan de las zonas portuarias, están en la obligación de permitir y facilitar la inspección de dichos vehículos a los funcionarios del Resguardo Portuario y de Aduana.
+b) Las personas referidas en el inciso anterior que ingresen a las zonas portuarias a descargar mercaderías, artículos y otros, sólo pueden hacerlo con los manifiestos destinados al puerto. Si transportan cosas distintas que no están en dicho manifiesto y para otro u otros destinatarios, deben dejarlas fuera de la Terminal al ingresar a las zonas portuarias.
+c) Las personas referidas en los dos incisos anteriores, que salgan con carga de las zonas portuarias deben portar, necesariamente, la respectiva solicitud de despacho autorizado por la oficina de documentación con su respectivo sello que ampare la mercadería que transporta, su omisión obliga a los oficiales del Resguardo Portuario a impedir la salida de vehículos y/o carga del recinto portuario.
