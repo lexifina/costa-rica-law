@@ -1,0 +1,2 @@
+Artículo 4.
+La Bahía de San Juan del Norte, así como la de Salinas, serán comunes á ambas Repúblicas, y de consiguiente lo serán sus ventajas, y la obligación de concurrir á su defensa. También estará obligado Costa-Rica por la parte que le corresponde en las márgenes del río de San Juan, que en los mismos términos que por tratados lo está Nicaragua, á concurrir á la guarda de él, del apropio modo que concurrirán las dos Repúblicas á su defensa en caso de agresión exterior; y lo harán con toda la eficacia que estuviese á su alcance.
