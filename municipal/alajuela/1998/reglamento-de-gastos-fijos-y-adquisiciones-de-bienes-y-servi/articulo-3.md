@@ -1,0 +1,1 @@
+Articulo 3°—Se autoriza al Alcalde para que adquiera compromisos económicos para la compra de bienes y servidos, hasta por el monto establecido por la Contraloría General de la República para la contratación directa, según el grupo presupuestario en que se ubique la Municipalidad de Alajuela.

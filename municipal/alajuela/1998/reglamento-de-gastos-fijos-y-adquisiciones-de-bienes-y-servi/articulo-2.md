@@ -1,0 +1,1 @@
+Articulo 2°—La adquisición de bienes y servidos competencia del Alcalde Municipal se ajustaran a la Ley de Contratación Administrativa y su Reglamento a las disposiciones de este Reglamento y a las demás normas aplicables en la materia.

@@ -1,0 +1,1 @@
+Artículo 5°—Cuando el bien o servicios a contratar supere el monto de la contratación directa, será necesaria la autorización del Concejo. Para tales efectos, el Alcalde deberá dirigir su solicitud debidamente fundamentada, en la cual hará mención expresa a la partida presupuestaria con que se cubrirá dicha adquisición.
