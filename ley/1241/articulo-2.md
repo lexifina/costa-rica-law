@@ -1,0 +1,1 @@
+Artículo 2°.- El empréstito obtenido será destinado por la Municipalidad a la construcción de edificios escolares y de cañerías en los distritos del mismo cantón que posteriormente dispongan acuerdos municipales, así como a caminos vecinales.

@@ -1,0 +1,1 @@
+Artículo 3°.- Servirá de garantía a este empréstito el producto del impuesto creado por la ley N°1141 (26) de 2 de marzo del presenta año y que corresponda a esta municipalidad conforme al artículo 3° de dicha ley.
