@@ -1,0 +1,1 @@
+Artículo 6°—Monto para compradores de Caja Chica. La Alcaldía podrá autorizar a uno o dos funcionarios de la Unidad de Proveeduría para que funja como comprador con fondos de Caja Chica, con el fin de agilizar las gestiones de compra.

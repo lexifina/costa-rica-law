@@ -1,0 +1,5 @@
+Artículo 27.—Liquidación del “Vale de Caja Chica”. La liquidación del Vale por Caja Chica y la confección del Comprobante de Pago por Caja Chica será realizada por el Departamento de Proveeduría.
+Toda liquidación de vales provisionales de caja chica para la compra de bienes y servicios debe hacerse mediante la presentación de los siguientes documentos:
+a- Original de la factura. En las facturas no se debe utilizar como descripción la palabra “varios”, el detalle debe ser suficiente para su justificación y clasificación.
+b- Recepción de bienes y servicios. Toda factura deberá estar aprobada por el Jefe respectivo (firma y nombre completo), dando fe que el pago incurrido es correcto y necesario para el cumplimiento de los objetivos y metas de la Unidad a su cargo.
+c- Otros documentos o informaciones que se amerite. Cuando se trate de compras de repuestos materiales y suministros deberá indicar al dorso de la factura, el uso que se le dará a los mismos. En el caso de repuestos y servicios, se debe especificar el número de activo en el que se utilizará, de concordancia con lo estipulado en el artículo 2º inciso c) de este Reglamento.

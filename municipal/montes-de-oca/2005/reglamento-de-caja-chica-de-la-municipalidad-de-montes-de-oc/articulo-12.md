@@ -1,0 +1,5 @@
+Artículo 12.—Plazo para liquidar vales provisionales para viáticos. Los vale de caja chica para gastos de traslado, alimentación y hospedaje o permanencia se podrán entregar hasta dos días hábiles antes del viaje y deberán ser liquidados durante el plazo señalado en el artículo 11 de este reglamento.
+En caso de que no se produzca la gira que originó el vale provisional, o que la misma haya sido pospuesta por más de dos días hábiles, el dinero deberá ser devuelto al fondo respectivo justificando expresamente las razones que impidieron su utilización.
+El funcionario deberá reintegrar el dinero adelantado a más tardar al día hábil siguiente de haber recibido la comunicación verbal o escrita correspondiente.
+Si algún funcionario no presenta la liquidación a tiempo, el Tesorero -encargado de la Caja Chica- lo comunicará al Jefe de Recursos Humanos, en un plazo no mayor de cinco días hábiles para que dicha Unidad levante el procedimiento disciplinario que corresponda y gestione el reintegro de los dineros.
+Para efectos de las sanciones aplicables, el incumplimiento de este artículo se considerará falta grave.
