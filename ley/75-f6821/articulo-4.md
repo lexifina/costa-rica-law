@@ -1,0 +1,5 @@
+ARTÍCULO IV.
+La duración del presente privilegio será de noventa abierto al tráfico universal. y nueve años, contados desde el día en que el Canal sea
+Durante el mismo término tendrá la Asociación el derecho de construir y explotar dentro del territorio de Costa Rica, un ferrocarril á lo largo del Canal, en toda la extensión del mismo, ó en aquellas partes de él en que lo estime conveniente para el mejor servicio y explotación de dicha obra.
+Mientras dure el presente privilegio se compromete la República á no otorgar ninguna concesión ulterior para la apertura de un canal entre los dos océanos.
+Se abstendrá tanbién durante el mismo tiempo de otorgar dentro de una zona de veinticinco millas á lo largo del Canal, concesiones para ferrocarriles de mar á mar que puedan hacer competencia al Canal en el tráfico entre naciones extranjeras. Esta restricción no impide la construcción de las nuevas líneas férreas que á Costa Rica pueda convenir construir hasta el Canal ó hasta cualquier punto de la frontera setentrional de la República, ya se enlacen ó no con cualesquiera otros ferrocarriles.

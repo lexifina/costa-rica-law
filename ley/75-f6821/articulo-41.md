@@ -1,0 +1,2 @@
+ARTÍTULO XLI.
+En caso de que sea posible utilizar las aguas del Canal y sus dependencias, para riego de plantaciones, jardines y calles, ó para el abastecimiento de poblaciones que carezcan de ella, ó como fuerza motriz para empresas particulares, la Compañía tendrá facultad de suministrarla, percibiendo, según la tarifa que establezca de acuerdo con el Gobierno, un derecho proporcional á la cantidad que suministre.

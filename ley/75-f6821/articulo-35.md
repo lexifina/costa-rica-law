@@ -1,0 +1,3 @@
+ARTÍCULO XXXV.
+La Asociación quedará exenta durante el término de la concesión, así en tiempo de paz como de guerra, de toda clase de impuestos sobre la propiedad raíz que adquiera en virtud de este contrato, y de toda especie de contribuciones directas, impuestos locales, ó de cualquier otro derecho relativo á la propiedad y al uso del Canal ó sus edificios y las construcciones que de él dependan, en todo su trayecto, incluso las que se hallen situadas en los puertos y establecimientos marítimos en los dos océanos.
+Esa franquicia no es trasmisible á los compradores de los bienes raíces que la Asociación pueda enajenar con arreglo á esta concesión.
