@@ -1,0 +1,1 @@
+Artículo 23.—Los proveedores y productores de materiales pirotécnicos en coordinación con las autoridades competentes, serán los responsables de difundir la información y promover la educación respecto a los riesgos que entraña para la salud y la vida de las personas el uso de dichos productos, así como los métodos de prevención y control.

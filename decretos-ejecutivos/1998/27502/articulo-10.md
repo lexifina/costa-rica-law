@@ -1,0 +1,1 @@
+Artículo 10.—El Ministerio de Hacienda, a través de sus autoridades administrativas y personal de Aduanas, verificará que todo ingreso al país de pólvora pirotécnica o explosiva cuente con los permisos de los Ministerios de Salud y de Seguridad Pública, e implementará las medidas de control pertinente para impedir el tráfico ilegal de dichas mercancías

@@ -1,0 +1,1 @@
+Artículo 26.—La rotulación y etiquetado de los productos pirotécnicos o materias primas para su fabricación importados o de producción nacional, deberán informar sobre sus riesgos para la salud y la vida de las personas

@@ -1,0 +1,1 @@
+Artículo 17.—El empleador deberá tomar medidas para la disposición de desechos de modo que no se ocasione daños a la salud de los trabajadores, población vecina por contaminación al ambiente, por difusión de partículas o vapores desde el lugar de trabajo.

@@ -1,0 +1,1 @@
+Artículo 8°—Otorgado el Permiso de Funcionamiento para la fábrica por parte del Ministerio, el interesado deberá presentarse ante el Ministerio de Seguridad Pública para tramitar el otorgamiento de la licencia correspondiente.

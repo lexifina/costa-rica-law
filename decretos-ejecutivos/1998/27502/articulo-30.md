@@ -1,0 +1,1 @@
+Artículo 30.—Todo importador y distribuidor de materia prima para la fabricación de productos pirotécnicos, deberá llevar un control de las cantidades vendidas, clientes, la dirección de los mismos, el uso declarado para dichas sustancias. Dicha información deberá reportase al Ministerio de Seguridad Pública.

@@ -1,0 +1,1 @@
+Artículo 16.—En los centros de trabajo los alimentos a ingerir por los trabajadores en sus horas libres, deberán almacenarse en lugares que garanticen la no contaminación de los mismos. El empleador deberá proporcionar un lugar seguro, limpio, libre de contaminación a fin de evitar los riesgos asociados a la ingestión o inhalación

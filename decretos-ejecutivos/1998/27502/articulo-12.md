@@ -1,0 +1,2 @@
+Artículo 12.—Los permisos para efectuar juegos pirotécnicos se tramitarán ante las Regiones de Salud del Ministerio, quienes junto con las autoridades el Ministerio de Seguridad Pública y el Benemérito Cuerpo de Bomberos, determinarán las medidas específicas a tomar para prevenir los riesgos que dicha actividad podría presentar.
+No se permitirán los espectáculos con juegos pirotécnicos, en lugares cerrados y abiertos; sin la presencia de la Autoridad de Salud.

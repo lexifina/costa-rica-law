@@ -1,0 +1,2 @@
+Artículo 22.—Será obligación de quien solicita y obtiene el registro de un producto peligroso, mantener actualizada ante el Ministerio, la información técnica de ese registro.
+El fabricante deberá informar y capacitar a sus trabajadores sobre los riesgos por exposición a los productos peligrosos que se utilicen, según la Hoja de Seguridad conocida como MSDS (Material Safety Data Sheet) presentada ante el Ministerio.

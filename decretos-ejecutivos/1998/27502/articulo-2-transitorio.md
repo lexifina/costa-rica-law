@@ -1,0 +1,2 @@
+Transitorio II.—Las fábricas existentes que cumplan con los requisitos de ubicación y distancias a linderos tendrán un plazo máximo de un año, para ajustarse a las disposiciones del presente reglamento. Para ello el interesado deberá presentar ante el Ministerio, para su aprobación, un Plan de Ejecución que contemple la calendarización de mejoras de acuerdo a las prioridades salud y ambiente.
+Dado en la Presidencia de la República.—San José, a los veinte días del mes de noviembre de mil novecientos noventa y ocho.
