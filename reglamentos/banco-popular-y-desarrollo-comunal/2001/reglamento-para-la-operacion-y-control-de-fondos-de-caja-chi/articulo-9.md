@@ -1,0 +1,1 @@
+Artículo 9º—El Gerente General del Puesto de Bolsa, el Custodio y los Empleados Autorizados, serán los responsables directos de la operación de la Caja Chica, de acuerdo con las disposiciones del presente Reglamento y con las normas de control interno que correspondan.

@@ -1,0 +1,1 @@
+Artículo 4º—El monto máximo de las compras que se realicen por Caja Chica será de un 20% del fondo asignado, pudiendo variar esos montos en el momento en que sea necesario, de acuerdo con los requerimientos de utilización y operación de la misma. Éstos se podrán exceder en casos especiales únicamente y con autorización previa de la Gerencia General del Puesto de Bolsa.

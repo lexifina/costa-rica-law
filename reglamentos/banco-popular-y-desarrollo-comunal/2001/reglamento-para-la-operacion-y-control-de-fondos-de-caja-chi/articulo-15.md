@@ -1,0 +1,1 @@
+Artículo 15.—El Gerente General del Puesto de Bolsa se ocupará, una vez deducidos los montos totales de vales provisionales no liquidados del salario del empleado o empleados responsables, de reintegrar tales montos al Custodio de la Caja Chica.

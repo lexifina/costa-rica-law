@@ -1,0 +1,1 @@
+Artículo 8º—Los empleados autorizados y el custodio se abstendrán de autorizar y/o tramitar vales provisionales o definitivos de activos fijos, so pena de incurrir en la causal de Falta Grave, que establece el literal 1) del artículo 81 del Código de Trabajo.

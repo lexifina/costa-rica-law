@@ -1,0 +1,1 @@
+Artículo 19.—De cada uno de los arqueos que se realice, deberá quedar constancia por escrito, mediante el levantamiento de una acta confeccionada al efecto; en la misma deben consignarse todos los datos que corresponda al respecto de la Caja Chica.

@@ -1,0 +1,3 @@
+Artículo 14.—En el evento de que el vale provisional no se liquide dentro del plazo establecido en el artículo 12 del presente Reglamento, el custodio lo hará del conocimiento inmediato del Gerente General del Puesto de Bolsa, y le indicará el nombre del empleado responsable de que se trate.
+EI Gerente General del Puesto de Bolsa procederá de inmediato a girar la orden -ante quien corresponda- de retener del salario del empleado responsable, mediante una sola deducción, la totalidad del monto del vale provisional no liquidado.
+Lo anterior sin perjuicio de las sanciones laborales que corresponda, de acuerdo con las normas del Código de Trabajo.
