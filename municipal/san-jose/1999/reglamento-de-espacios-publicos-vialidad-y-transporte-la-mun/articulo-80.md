@@ -1,0 +1,1 @@
+Articulo 80.—Rótulos temporales: Se otorgaran por un plazo de un mes como mínimo y 3 meses como máximo. Deberán ser de materiales livianos. Se incluyen en esta categoría los rótulos de venta o alquiler, rótulos de obras en construcción, etc. Para asegurar el desmantelamiento del rótulo se exigirá un depósito de garantía igual al monto a pagar por el permiso.

@@ -1,0 +1,1 @@
+Articulo 93.—Colores v estilos. El mobiliario deberá ser sin publicidad y acorde al diseño arquitectónico del paseo peatonal, deberá escogerse o definirse además en colores no intensos, neutros (grises, blancos, tabacos y cremas).

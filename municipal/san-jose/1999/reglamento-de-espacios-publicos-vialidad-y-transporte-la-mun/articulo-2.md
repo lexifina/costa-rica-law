@@ -1,0 +1,1 @@
+Articulo 2°—Derecho de vía. Tendrán un derecho de vía entre treinta y seis y cincuenta metros de acuerdo al Mapa de Vialidad, con cuatro o seis carriles de tres metros con setenta y cinco centímetros cada uno y dos calles marginales con una calzada de siete metros. Debe reservarse un carril en cada sentido para el paso del transporte público masivo.

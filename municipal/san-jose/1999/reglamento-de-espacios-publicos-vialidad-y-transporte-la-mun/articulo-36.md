@@ -1,0 +1,1 @@
+Articulo 36.—No se prohiben estacionamientos privados, quedando a criterio del propietario el proveerlo o no. permitiéndose en el caso positivo la construcción exclusivamente de tipo garage bajo techo, con un numero de espacios de estacionamiento no mayor al cincuenta por ciento (50%) del requerido por el Reglamento de Construcciones.

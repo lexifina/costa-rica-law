@@ -1,0 +1,1 @@
+Articulo 85.—Ventas ambulantes- Se prohibe en el "Boulevar Avenida Central" la instalación de venias ambulantes y estacionarias, además de cualquier tipo de actividad temporal de carácter comercial, que sea de prejuicio y deterioro para el mismo.

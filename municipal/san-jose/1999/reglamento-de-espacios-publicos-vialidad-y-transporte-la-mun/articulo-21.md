@@ -1,0 +1,1 @@
+Artículo 21.—Derecho de vía- Tendrán un derecho de vía que oscilara entre los siete metros y catorce metros de ancho. En estas vías regirá lo estipulado para estos efectos lo indicado en el Reglamento para el Control Nacional de Fraccionamiento y de Urbanizaciones. No se permitirá la construcción de calles nuevas con el derecho de vía menor a 7 metros.

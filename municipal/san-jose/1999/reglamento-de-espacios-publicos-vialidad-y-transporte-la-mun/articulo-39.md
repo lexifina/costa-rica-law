@@ -1,0 +1,1 @@
+Articulo 39.—El tránsito de autobuses será restringido en el Centro Antiguo en un radio de aproximadamente cuatrocientos metros con la excepción de las rutas regionales diametrales este - oeste y norte - sur, así como rutas internas del casco.

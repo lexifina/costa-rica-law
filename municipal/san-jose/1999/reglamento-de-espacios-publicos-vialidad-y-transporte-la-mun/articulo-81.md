@@ -1,0 +1,1 @@
+Articulo 81.—Transitorio: Este reglamento de Publicidad Exterior (artículos 93 - 108) se aplicará a partir de enero de 1997 para lodo rótulo nuevo. Los rótulos existentes deberán ponerse a derecho o ajustarse al reglamento en un plazo o periodo máximo de 3 años, comprendido entre el 1° de julio del año 1997 al 1° de julio de 1999.

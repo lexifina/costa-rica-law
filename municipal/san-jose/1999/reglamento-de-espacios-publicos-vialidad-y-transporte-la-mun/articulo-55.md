@@ -1,0 +1,1 @@
+Articulo 55.—Barreras de seguridad. Para la instalación de postes u otros obstáculos para impedir la entrada de vehículos a la acera, parques o jardines, se solicita el permiso de la Dirección de Urbanismo de la Municipalidad. En este caso debe preverse un paso a través del obstáculo de 1,0 m mínimo para las sillas de ruedas.

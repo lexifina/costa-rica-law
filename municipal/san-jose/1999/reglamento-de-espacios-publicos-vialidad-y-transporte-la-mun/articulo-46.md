@@ -1,0 +1,5 @@
+TITULO VII
+Ocupación y embellecimiento de las vías públicas
+CAPITULO I
+Generalidades
+Artículo 46.—Propiedad de las vías. Son propiedad pública los terrenos ocupados por carreteras y caminos públicos. Todo terreno que en los planos existentes de la Municipalidad, o en el Archivo de la Dirección General de Obras Públicas, o el de la Dirección General de Caminos, o en el Catastro, o en cualquier otro archivo museo o biblioteca pública, aparezca como vía pública, se presumirá que tiene la calidad de tal, salvo prueba plena en contra, que deberá rendir aquel que afirme que el terreno en cuestión es de propiedad particular o pretenda tener algún derecho exclusivo a su uso. Mientras no se pronuncie sentencia ejecutoria que así lo declare, nadie podrá impedir o estorbar el uso público del terreno de que se trate. (Articulo 7 de la Ley de Construcciones).

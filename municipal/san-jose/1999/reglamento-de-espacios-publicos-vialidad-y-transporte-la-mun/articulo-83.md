@@ -1,0 +1,1 @@
+Artículo 83.—Tránsito. El Boulevar Avenida Central será destinado exclusivamente para tránsito peatonal, quedando prohibido el paso de vehículos. Se permitirá únicamente el acceso de vehículos de emergencia (ambulancias, bomberos, patrullas o seguridad y servicios públicos), cuando se tratare específicamente de sucesos que lo ameriten.

@@ -1,0 +1,1 @@
+Artículo 89.—Locales prioritarios. Se dará prioridad a los locales comerciales existentes o futuros, que no cuenten con una área propia en el exterior aprovechable para el uso definido o que no puedan remeterse de la línea de propiedad con este fin.

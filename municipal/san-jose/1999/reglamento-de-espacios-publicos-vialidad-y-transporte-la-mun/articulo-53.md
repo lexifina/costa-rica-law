@@ -1,0 +1,4 @@
+Articulo 53.—Rampas para discapacitados. En espacios públicos, aceras, parques, calles, puentes peatonales, plazas y otros deberá obligatoriamente construirse rampas para acceso a discapacitados las cuales deberán tramitar permiso municipal para su construcción.
+La inclinación máxima de las rampas será de 1:12 con largo máximo de 1 m y 1:8 cuando sobrepase 1 m pero sea menor a 3 m. En caso contrario deben hacerse descansos de 1,2 m de largo como mínimo. El ancho mínimo de la rampa será de 90 cm.
+La rampa debe acompañarse con una barandilla normal a una altura de 90 cm para personas no discapacitadas, o para los que usan bastón, y barandilla adicional a altura de 75 cm.
+En los cruces con semáforo este último tendrá la duración de la luz en verde, necesaria para que las personas débiles y con silla de ruedas pueden cruzar la calle con seguridad (1 metro por segundo). En caso necesario deben preverse las isletas a media calle de 1,2 m por 1,5 m como mínimo.

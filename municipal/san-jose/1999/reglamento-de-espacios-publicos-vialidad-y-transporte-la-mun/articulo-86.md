@@ -1,0 +1,1 @@
+Artículo 86.—Eventos culturales. Los eventos culturales se regularán, según sea el tipo de actividad, prohibiéndose aquellas, que introduzcan el transito de animales y vehículos, que puedan provocar daños materiales y físicos al espacio urbano. Quedando sujeto el mismo a juicio de la Municipalidad.

@@ -1,0 +1,3 @@
+Articulo 48.—Pago por ocupación de la vía. Se cobrara una Renta Anual sobre el valor del terreno, por la ocupación de la vía pública con fines privados y de lucro, la cual se establece de acuerdo a la lasa pasiva de interés a seis meses plazo vigente en el Sistema Bancario Nacional en enero de cada año. más un diez por ciento de utilidad para el desarrollo.
+En caso de ocupación de la vía pública para fines de interés social se cobrará una Renta Anual sobre el valor del terreno de un 12%.
+El valor del metro cuadrado del terreno se establecerá de acuerdo a los dalos de Departamento de Desarrollo Catastral. Dicho pago se realizará trimestralmente en las cajas de la Municipalidad de San José.
