@@ -1,0 +1,1 @@
+Artículo 3º—Apoyo institucional: Para el cumplimiento de sus funciones, la Contraloría de Servicios recibirá el apoyo de todas las áreas del Banco, y los servidores que la integren deberán guardar la confidencialidad tanto de la información y documentos que le brinden las diversas áreas, como de las denuncias que se reciban.
