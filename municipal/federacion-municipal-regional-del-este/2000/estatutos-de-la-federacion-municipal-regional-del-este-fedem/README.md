@@ -14,3 +14,4 @@ Estatutos de la Federación Municipal Regional del Este (FEDEMUR).
 | --- | --- | --- |
 | 1 | 2000-07-29 | la propia norma |
 | 2 | 2001-07-07 | Reglamento municipal 0 (2001-07-07) |
+| 3 | 2001-09-29 | Reglamento municipal 0 (2001-09-29) |
