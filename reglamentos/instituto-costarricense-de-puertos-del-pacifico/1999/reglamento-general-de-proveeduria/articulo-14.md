@@ -1,0 +1,1 @@
+Artículo 14.—La Comisión de Contratación Administrativa estará integrada por el Gerente General o a quien él delegue, quien tendrá la coordinación de la misma., el Director Financiero, un Abogado del Departamento Legal y un técnico con voz y voto. Este último se integrará conforme a la naturaleza de la contratación.

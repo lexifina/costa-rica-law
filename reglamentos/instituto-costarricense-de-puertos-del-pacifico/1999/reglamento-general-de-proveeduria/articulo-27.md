@@ -1,0 +1,1 @@
+Artículo 27.—Potestad modificatoria. El INCOP se reserva el derecho de modificar, total o parcialmente el presente reglamento, y para su eficacia bastará con la publicación que se hará en el Diario Oficial "La Gaceta".

@@ -1,0 +1,1 @@
+Artículo 16.—Una vez subsanados los defectos, se procederá a la selección de las ofertas elegibles, en cuanto a condiciones generales una vez definida cuáles ofertas son elegibles para su análisis técnico, mismo que deberá ser emitido por un técnico seleccionado conforme a la naturaleza de la contratación. (Así reformado por Acuerdo 3-Sesión N° 2869 del 14-9-99).

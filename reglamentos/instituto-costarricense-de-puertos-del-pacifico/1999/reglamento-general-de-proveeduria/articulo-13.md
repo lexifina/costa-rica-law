@@ -1,0 +1,1 @@
+Artículo 13.—Créase una comisión de Contratación Administrativa que tendría a su cargo el estudio, análisis y recomendación de todas las licitaciones públicas, por registro y restringidas, así como aquellas contrataciones que por su urgencia sean autorizadas por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 17.—Concluidas las etapas de análisis establecidas en los Artículos 16 y 17 del presente reglamento, la Proveeduría remitirá un informe a la Comisión de Contratación Administrativa con todos los aspectos relevantes.

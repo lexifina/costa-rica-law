@@ -1,0 +1,1 @@
+Artículo 10.—Para los casos anteriores la Actividad de Proveeduría deberá acudir al Registro de Proveedores para invitar como mínimo a tres oferente, para una mejor selección, procurando en el transcurso del tiempo un acceso igual a todos los proveedores debidamente inscritos.

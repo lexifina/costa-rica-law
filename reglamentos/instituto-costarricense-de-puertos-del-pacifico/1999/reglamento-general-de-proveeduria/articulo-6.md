@@ -1,0 +1,1 @@
+Artículo 6.—La Proveeduría con base en la Solicitud de Materiales o Servicios procederá a cotizar el bien o servicio solicitado todo conforme a lo estipulado en el inciso b. del artículo 2. para posteriormente confeccionar la Orden de Compra, enviándole copia de estas al Jefe de la Unidad Solicitante, al Almacén de Materiales, Sección Registros Contables y Sección Presupuesto.
