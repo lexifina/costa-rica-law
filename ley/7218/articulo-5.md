@@ -1,3 +1,1 @@
-ARTICULO 5.- Los ingresos brutos de las personas físicas o jurídicas que exploten casinos o salas de juego, debidamente autorizados, quedarán afectos a un impuesto especial de un veinte por ciento (20%).
-Las personas obligadas a este tributo deberán presentar una declaración jurada mensual de dichos ingresos y pagar el impuesto dentro de los diez primeros días del mes siguiente al que se refiere la declaración, en las agencias recaudadoras autorizadas por el Banco Central de Costa Rica.
-Corresponde a la Dirección General de la Tributación Directa la administración de este impuesto.
+ARTICULO 5.- (ANULADO por resolución de la Sala Constitucional Nº 2359-94 de las 15:03 horas del 17 de mayo de 1994.)
