@@ -1,0 +1,1 @@
+Artículo 59.—La participación de la comunidad se operativiza por medio de las organizaciones de la sociedad civil legalmente constituidas, los comités existentes o que se constituyan para la atención de diferentes ámbitos de la problemática local y los gobiernos locales.

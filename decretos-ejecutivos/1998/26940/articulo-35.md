@@ -1,0 +1,3 @@
+Artículo 35.—El Área de Gerencia de Desarrollo Social estará integrada por el Gerente de Desarrollo Social, el Equipo Técnico de Programas Sociales en el nivel central y por las Arreas Regionales en el nivel desconcentrado, y le corresponde lo siguiente:
+El diseño conceptual y metodológico, ejecución, seguimiento y evaluación de los programas sociales, así como la articulación Interinstitucional y local para su implementación y ejecución.
+Deberá, además, formular las políticas y establecer los mecanismos para la selección, seguimiento y evaluación de toda organización que coadyuve en la ejecución de los diferentes programas sociales del Instituto para garantizar la mayor eficacia y eficiencia del servicio.

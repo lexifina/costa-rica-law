@@ -1,0 +1,3 @@
+CAPITULO CUARTO
+Del Director Ejecutivo o Gerente Administrativo Financiero y del Gerente de Desarrollo Social
+Artículo 28.—Las competencias señaladas en los artículos 23 y 24 de la Ley 4760 para el Director Ejecutivo, estarán a cargo de un Gerente Administrativo Financiero, término con el cual se le designará en el futuro, deberá ser costarricenses, con título profesional universitario que los acredite para el ejercicio de sus funciones, de reconocida honorabilidad y con experiencia en el campo de acción del IMAS. Deberán dedicar todo su tiempo al desempeño de sus funciones y no podrán ejercer en forma liberal la profesión, excepto la docencia.

@@ -1,0 +1,1 @@
+Artículo 21.—Ningún miembro del Consejo Directivo, ni los Gerentes, podrán, bajo sanción de nulidad del respectivo acto, estar presentes en una sesión durante el tiempo en que se discuta y se haga votación de algún asunto en el que tenga interés personal, directo indirecto, o de parientes suyos hasta un tercer grado de afinidad consanguinidad.

@@ -1,0 +1,1 @@
+Artículo 45.—Todos los funcionarios están obligados, sin excepción, a prestar al Auditor o a sus delegados, en las condiciones que estos determinen, la mas amplia cooperación y ayuda, para mejor desempeño de sus funciones.
