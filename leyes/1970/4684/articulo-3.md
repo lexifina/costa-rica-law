@@ -1,2 +1,0 @@
-Artículo 3° Si el contrato de distribución o representación termina por causas ajenas a la voluntad del representante, la casa matriz deberá indemnizarlo con el equivalente a dos meses de utilidad bruta por cada año, o fracción no menor de seis meses de servicio, con un máximo de ocho años.
-Para establecer la utilidad bruta de cada mes se tomará el promedio mensual devengado durante el año inmediato anterior, o fracción menor, de duración del contrato.

@@ -1,1 +1,0 @@
-Artículo 11° La indemnización prevista por esta ley a favor de los representantes deberá ser pagada en un pago único y total, inmediatamente después de terminado el contrato y, en su caso, de firme el fallo, condenatorio.
