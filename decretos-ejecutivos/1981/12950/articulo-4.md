@@ -4,4 +4,6 @@ b) Un Representante del Ministerio de Economía, Industria y Comercio;
 c) Un Representante del Consejo Nacional de Producción;
 ch) Dos Representantes de los productores de oleaginosas; y
 d) Un Representante de los industriales de oleaginosas.
+e) Un representante del interés de los consumidores.
+(Así adicionado el inciso anterior mediante el artículo 1° del decreto ejecutivo N° 13468 del 18 de marzo de 1982).
 La Comisión será presidida por un Representante del Poder Ejecutivo, quien tendrá doble voto en caso de empate.
