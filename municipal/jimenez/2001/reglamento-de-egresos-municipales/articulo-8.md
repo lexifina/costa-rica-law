@@ -1,0 +1,1 @@
+Artículo 8º—El Concejo autorizará la apertura de la Caja Chica, para realizar pagos menores de ¢50.000,00 (cincuenta mil colones exactos), con un fondo fijo de ¢200.000.00 (doscientos mil colones exactos).
