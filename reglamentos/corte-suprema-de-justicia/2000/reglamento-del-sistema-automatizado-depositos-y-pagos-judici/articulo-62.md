@@ -1,0 +1,1 @@
+Artículo 62.—Del control. El Despacho Judicial y la U.A.R., o en su caso el Departamento Financiero Contable, llevarán un registro del detalle de las transferencias enviadas y recibidas y verificarán que todo se haya realizado correctamente.

@@ -1,0 +1,1 @@
+Artículo 72.—Trámite. Para hacer efectivo el cobro del dinero depositado, el interesado podrá acudir a cualquier agencia o sucursal del Banco, para esto, podrá presentar el carné que lo acredita como usuario del servicio que presta el S.D.J. y el documento de identificación respectivo.

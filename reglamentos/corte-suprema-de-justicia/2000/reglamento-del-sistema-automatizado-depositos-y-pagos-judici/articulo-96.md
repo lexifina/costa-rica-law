@@ -1,0 +1,2 @@
+Artículo 96.—Responsables. El Departamento de Informática, en coordinación con la Escuela Judicial, elaborará un plan de capacitación.
+Será responsabilidad del Jefe del Departamento Financiero Contable y de la U.A.R. o el Juez Encargado, solicitar la capacitación de las personas que se encargarán de utilizar el S.D.J. Cada participante, una vez capacitado, será responsable en su despacho judicial, de la aplicación de los conocimientos adquiridos en el uso del Sistema.

@@ -1,0 +1,1 @@
+Artículo 50.—De la contraorden de pago. Toda contraorden de pago debe ser registrada en el S.D.J. y comunicada a la Sección de Cuentas Corrientes o a la U.A.R. formalmente con la autenticación del Juez Encargado.

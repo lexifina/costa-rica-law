@@ -1,0 +1,2 @@
+Artículo 28.—Responsables. Será responsabilidad del Encargado del Sistema en el Despacho Judicial, gestionar las operaciones de mantenimiento de los usuarios y de sus perfiles dentro del Sistema.
+El Jefe del Departamento de Financiero Contable en coordinación con el Administrador del Circuito Judicial, será responsable de gestionar las operaciones de mantenimiento de los usuarios y de sus perfiles en el Sistema Automatizado del Banco, solicitando formalmente la inclusión de un usuario, modificación de los perfiles de acceso o la eliminación o exclusión temporal o permanente.

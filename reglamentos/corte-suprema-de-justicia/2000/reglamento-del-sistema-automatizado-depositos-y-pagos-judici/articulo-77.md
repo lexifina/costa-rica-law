@@ -1,0 +1,3 @@
+Artículo 77.—Verificación de los estados de conciliación. La revisión y verificación de los estados de conciliación que emite el S.D.J., los hará el Encargado del Sistema en el Departamento Financiero Contable, o en su caso, el de la U.A.R.
+Las U.A.R. remitirán semanalmente al Departamento Financiero Contable un informe de los saldos de las cuentas, para hacer una revisión centralizada de los movimientos efectuados, con el fin de determinar los intereses que debe pagar el Banco.
+El Departamento Financiero Contable será el encargado de realizar cada mes las conciliaciones de todas las U.A.R. con el dinero que se encuentra en el Banco.

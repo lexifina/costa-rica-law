@@ -1,0 +1,2 @@
+Artículo 23.—Perfiles de acceso. Los perfiles de acceso serán definidos por los encargados del S.D.J. del Departamento de Informática, de acuerdo con los requerimientos de los usuarios, en coordinación con la Administración del Circuito y el Juez Encargado del Sistema respectivamente.
+Para el caso de los usuarios de las oficinas administrativas, el responsable de asignar los perfiles de acceso será el Jefe del Departamento de Informática.

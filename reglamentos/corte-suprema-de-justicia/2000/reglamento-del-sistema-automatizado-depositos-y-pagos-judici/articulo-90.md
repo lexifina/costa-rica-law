@@ -1,0 +1,1 @@
+Artículo 90.—Responsables. El Departamento de Informática o el Analista Regional Informático será el responsable de hacer el respaldo parcial y total de la información del S.D.J. instalado en el Circuito Judicial. Asimismo, será responsable de velar por la correcta ejecución de los respaldos en los despachos judiciales de la periferia, que cuenten con el S.D.J.

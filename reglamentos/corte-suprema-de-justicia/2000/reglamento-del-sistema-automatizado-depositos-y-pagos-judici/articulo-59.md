@@ -1,0 +1,1 @@
+Artículo 59.—Del estado de cuenta. La Sección de Cuentas Corrientes y la U.A.R. deben hacer la aclaración en el estado de cuenta en el que se realizaron las transferencias de expediente, indicando el monto de depósitos con saldo disponible y las autorizaciones sin pagar.

@@ -1,0 +1,1 @@
+Artículo 75.—Del control. El Despacho Judicial llevará el control de los dineros autorizados para retiro en el S.D.J. Ese control contendrá el monto de pago autorizado y el nombre y apellidos de las personas autorizadas para retirarlo.

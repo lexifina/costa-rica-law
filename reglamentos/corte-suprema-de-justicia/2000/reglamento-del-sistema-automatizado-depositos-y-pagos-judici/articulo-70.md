@@ -1,0 +1,3 @@
+Artículo 70.—Del control. Previo a la autorización de la transferencia de fondos, el Despacho Judicial origen deberá verificar que las boletas de depósitos estén activas.
+Será responsabilidad del Despacho Judicial y de la U.A.R., o en su caso del Departamento Financiero Contable, llevar un registro del detalle de las transferencias enviadas y recibidas, con la respectiva copia de la boleta del depósito efectuado, y de verificar que todo se haya realizado correctamente.
+En caso de transferencias de un depósito, el Despacho Judicial adjuntará al expediente físico la copia del comprobante emitido por el Banco.

@@ -1,0 +1,1 @@
+Artículo 27.—De la actualización de los usuarios del Sistema del Banco. El Jefe del Departamento Financiero Contable en coordinación con el Jefe Administrativo del Circuito, serán las personas encargadas de gestionar ante el Banco, la inclusión o exclusión temporal o definitiva de los usuarios.

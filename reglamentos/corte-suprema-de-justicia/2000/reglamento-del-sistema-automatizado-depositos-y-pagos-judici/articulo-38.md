@@ -1,0 +1,1 @@
+Artículo 38.—Plazo. No hay plazo para que el interesado haga la solicitud de autorización de pago ante el despacho judicial, lo cual puede hacer en cualquier momento. En caso de pensiones alimentarias, el Juez autorizará en forma inmediata el pago del depósito mediante una resolución judicial.

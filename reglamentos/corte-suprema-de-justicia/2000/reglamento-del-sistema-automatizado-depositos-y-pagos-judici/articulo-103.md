@@ -1,0 +1,1 @@
+Artículo 103.—Manual de Procedimientos. Para el cumplimiento de las disposiciones contempladas en este Reglamento, los despachos y oficinas judiciales contarán con el Manual de Procedimiento, instructivos y circulares emanados de los órganos competentes, que serán de acatamiento obligatorio.

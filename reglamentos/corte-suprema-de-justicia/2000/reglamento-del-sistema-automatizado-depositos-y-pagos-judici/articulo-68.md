@@ -1,0 +1,1 @@
+Artículo 68.—Reversión. En caso de que se determine que el traspaso de expedientes de un Despacho Judicial fuera del S.D.J. a un Despacho Judicial destino dentro del S.D.J., no corresponda, el Despacho destino esperará que los depósitos correspondientes sean registrados en el S.D.J. y procederá conforme al artículo 64 del presente Reglamento.

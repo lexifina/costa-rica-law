@@ -1,0 +1,1 @@
+Artículo 80.—Consultas en el Banco. El beneficiario o interesado de un depósito judicial podrá consultar el depósito hecho a su favor en el Banco, para lo cual debe presentar identificación, número de expediente y carné que lo acredite como usuario del S.D.J.

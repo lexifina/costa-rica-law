@@ -1,0 +1,1 @@
+Artículo 3º—Información indispensable para que cada usuario tenga acceso al servicio. Para tener acceso al S.D.J. se requiere que el usuario identifique el expediente con el número único establecido por el Poder Judicial.

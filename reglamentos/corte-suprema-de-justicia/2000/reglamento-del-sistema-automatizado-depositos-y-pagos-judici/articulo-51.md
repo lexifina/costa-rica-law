@@ -1,0 +1,1 @@
+Artículo 51.—Levantamiento de la contraorden de pago. Para proceder al levantamiento de una contraorden de pago, deberá ser registrada y comunicada formalmente a la Sección de Cuentas Corrientes o a la U.A.R. del Circuito Judicial respectivo, con la autorización del Juez Encargado del Despacho .

@@ -1,0 +1,1 @@
+Artículo 52.—Autorización a un tercero para retiro. Toda autorización que realicen los beneficiarios a favor de terceros para retirar el dinero del Banco, tendrá que ser presentada y aprobada por resolución del Despacho Judicial. Las diligencias de esa gestión, deberán quedar agregadas al expediente del proceso y registradas en la base de datos de S.D.J.

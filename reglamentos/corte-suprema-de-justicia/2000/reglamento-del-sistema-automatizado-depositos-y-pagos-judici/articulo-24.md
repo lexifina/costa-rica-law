@@ -1,0 +1,1 @@
+Artículo 24.—Del acceso al S.D.J. El ingreso al S.D.J. se realizará únicamente a través de la clave de acceso, la cual deberá ser solicitada formalmente al Departamento de Informática, o en su caso, a los analistas regionales informáticos, indicando las opciones o funciones a las que tendrán derecho.

@@ -1,0 +1,2 @@
+Artículo 66.—Del control. El Despacho Judicial y la U.A.R., o en su caso el Departamento Financiero Contable, llevarán un registro del detalle de las transferencias enviadas y recibidas, con la respectiva copia de la boleta del depósito efectuado, y verificarán que todo se haya realizado correctamente.
+En caso de transferencias de un depósito, el Despacho Judicial adjuntará al expediente físico la copia de la boleta remitida por el Banco.
