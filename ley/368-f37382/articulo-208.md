@@ -1,2 +1,2 @@
-Artículo 208.-El que a sabiendas de que se encuentra atacado de una enfermedad venérea en su período contagioso, tuviere acceso carnal con una persona menor de dieciocho años y la infectare, será reprimido con prisión de tres meses a un año o multa de ciento ochenta a setecientos veinte colones.
-Se presumirá el conocimiento de la dolencia, cuando el paciente presente lesiones o manifestaciones externas de enfermedad, fácilmente perceptibles.
+Artículo 208.-Quien conscientemente contagiare a otro una enfermedad venérea, por relación sexual o de cualquier otro modo, será reprimido con prisión de seis meses a dos años.
+(Así sustituido por el artículo 226 del Código Sanitario, ley N° 33 del 18 de diciembre de 1943)

@@ -1,4 +1,5 @@
 PODER LEGISLATIVO
+(Esta norma fue Derogada por el artículo 408 del código Sanitario, N° 33 del 18 de diciembre de 1944)
 N° 13
 EL CONGRESO CONSTITUCIONAL DE LA
 REPÚBLICA DE COSTA RICA
