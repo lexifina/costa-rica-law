@@ -1,0 +1,1 @@
+Artículo 3°—La Oficina contará con las asignaciones presupuestarias provenientes del Presupuesto Ordinario del MINAE y de aquellos proyectos de cooperación pública o privada, nacional o internacional, que se constituyan.
