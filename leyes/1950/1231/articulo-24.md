@@ -1,0 +1,1 @@
+Artículo 24.—Estarán exentos de contribución para el Fondo de Mutualidad, conservando, sin embargo, todos los derechos, los mutualistas mayores de sesenta años; y, temporalmente, los miembros a quienes la Directiva del Colegio conceda esa gracia en atención a dificultades económicas.

@@ -1,0 +1,1 @@
+Artículo 34.—El fallo del Tribunal deberá ser obedecido por los interesados, so pena de que se les suspenda hasta por un año del goce de las prerrogativas que tienen los miembros del Colegio inscritos en la lista de éste; y cuando el renuente fuere persona extraña a él, se ordenará, como sanción, la publicación de la sentencia.

@@ -1,0 +1,1 @@
+Artículo 11.—Para que la Directiva pueda celebrar sesión se requiere que concurran, cuando menos, seis de los individuos que la componen; y para que haya acuerde o resolución, la mayoría de los votos presentes. En caso de empate, el voto del Presidente se contará como doble.
