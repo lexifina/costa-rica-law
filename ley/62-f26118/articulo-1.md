@@ -1,0 +1,5 @@
+DECRETO LXII
+El Gefe Supremo del Estado libre de Costa rica
+Por quanto la Asamblea ha decretado y el Consejo sancionado lo siguiente:
+La Asamblea Constitucional del Estado libre de Costa rica teniendo presente la utilidad que trahen al Estado las nuevas Colonias, en su territorio, la conformidad que tiene su admición con los principios de humanidad y civilización con los principios de humanidad y civilisacion del presente siglo y que la proposición hecha a este Gobierno por el Ingles Mr. Juan Hale es en un todo arreglada a la Ley dada por la Asamblea Nacional Constituyente de esta República en 22 de Enero de 1824, ha tenido a bien decretar y decreta.
+Art 1°.- Se concede a Mr. Juan Hale la aprobación del proyecto de Colonia que ha propuesto fundar en el río navegable mas cercano que explore compuesta de cien familias, con el goze de los privilegios y gracias concedidias tanto en favor del Capitulante como en favor de las familias y demás individuos extrangeros que se agreguen a ellos por la Ley de 25 de Enero de 1824 dada por la Asamblea Nacional Constituyente de la República.

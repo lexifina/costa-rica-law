@@ -1,0 +1,1 @@
+Art2°.- A más de esto se le concede a la nueva Colonia una legua quadrada de terreno donde quiera fundar la Ciudad la que divida en manzanas, y estas en solares se venderá al que mejor la pague, destinando de su valor como fondo propio de aquella Ciudad, a la composición de caminos, Puentes, Calzadas y ríos o canales de navegación.
