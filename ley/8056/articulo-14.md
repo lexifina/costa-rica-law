@@ -1,0 +1,1 @@
+Artículo 14.- El Poder Ejecutivo reglamentar esta Ley, en lo conducente, dentro de los noventa días posteriores a su publicación. Para la preparación de dicho Reglamento se consultar a los sectores involucrados, de conformidad con la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 12.- Deróganse el inciso j) del artículo 2 y el artículo 3 de la Ley Nº 7638, Creación del Ministerio de Comercio Exterior y Creación de la Promotora del Comercio Exterior de Costa Rica, de 30 de octubre de 1996.

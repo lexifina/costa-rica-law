@@ -1,0 +1,4 @@
+Artículo 5°.- Los negociadores comerciales internacionales no podrán participar en un tema especifico de una negociacion comercial, cuando:
+a) Están interesados directamente en el tema o este interese en forma directa a sus padres, conyuge o hijos. En el caso de los padres, se exceptua de esta prohibición al negociador comercial que acredite que aquellos se han dedicado de modo habitual a desarrollar la actividad empresarial o profesional objeto de la negociación, por lo menos desde un año antes de que el negociador haya asumido su cargo.
+b) Estén interesadas directamente sociedades de capital cerrado de las que sean socios, miembros de la junta directiva, gerentes o apoderados. Esta prohibición alcanza a cualquiera de las personas indicadas en el inciso a), con la excepción ahí prevista.
+c) Se encuentren negociando o ya exista un acuerdo de futura relación de empleo con personas físicas o jurídicas que tengan interés directo en el tema de la negociación comercial.
