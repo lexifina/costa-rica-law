@@ -1,1 +1,2 @@
-Artículo 11.- Los representantes de la Cámara de Industrias, Comercio y los trabajadores, serán escogidos por el Consejo Directivo del INA de una terna presentada a su consideración por cada organización. Durarán en sus cargos dos años y podrán ser reelegidos.
+Artículo 11.- Los representantes del INA; de las Cámaras de Industrias y de Comercio y de las Confederaciones de Trabajadores, los elegirán sus respectivas Juntas Directivas. Los representantes del Gobierno Estudiantil del Instituto Nacional de Aprendizaje serán designados por el propio Gobierno Estudiantil. La Comisión Mixta, fungirá por el término de un año. Reglamentariamente se establecerán las fechas de elección y funcionamiento.
+(Así reformado por el artículo 1° de la ley N° 5833 del 30 de octubre de 1975)
