@@ -13,3 +13,4 @@ BCAC: Regula el Control y Uso de los Vehículos Propiedad del Banco Deroga dispo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-05 | la propia norma |
+| 2 | 2001-12-30 | Ley 7 |
