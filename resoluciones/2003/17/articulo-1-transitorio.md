@@ -1,0 +1,1 @@
+Transitorio único.—La información de las tarjetas de crédito del periodo del 1° de octubre del 2002 al 6 de julio del 2003 inclusive, deberá reportarse en un formulario D-154 y presentarse dentro del plazo establecido para ello, sea. del 1° de octubre al 30 de noviembre del 2003.
