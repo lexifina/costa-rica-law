@@ -1,0 +1,1 @@
+Artículo 98.- Interprétanse auténticamente el numeral 18 del artículo 14, de la ley Nº 7018 del 13 de diciembre de 1985, y el inciso 2) del artículo 35, de la ley Nº 6999 del 17 de setiembre de 1985, en el sentido de que la disposición comprende, además, aquellos cargos para los que se exija actualmente el grado académico de licenciatura.

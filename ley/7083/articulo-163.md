@@ -1,0 +1,1 @@
+Artículo 163.- Autorízase al Consejo Nacional de la Producción para que les condone las deudas, a los pequeños y medianos agricultores amparados a UPANACIONAL, originadas en la importación de fertilizantes, y ocasionadas por la fluctuación del tipo de cambio con respecto al dólar y por las excesivas cargas financieras.

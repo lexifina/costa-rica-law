@@ -1,0 +1,1 @@
+Artículo 143.- Modifícase el destino del giro de Gobierno Nº 86-1494382, por ¢ 150.000, a fin de que le sea entregado a la Asociación de Desarrollo Integral de la Comunidad de Jaris de Mora, para el centro de salud de Jaris.

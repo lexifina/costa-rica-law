@@ -1,0 +1,1 @@
+Artículo 133.- La Asociación para el Fomento y Desarrollo Agrícola de Costa Rica podrá depositar en su cuenta corriente, los giros Nos. 860083910, por ¢ 75.000; 860083942, por ¢ 120.000; 860083943, por ¢ 150.000; 860305018, por ¢ 75.000, 860305114, por ¢ 100.000; y 860457389, por ¢ 50.000, y usar estos recursos en capacitación y desarrollo de sus programas.

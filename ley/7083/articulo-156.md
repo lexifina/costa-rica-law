@@ -1,0 +1,1 @@
+Artículo 156.- Modifícase el destino del giro número 870828016, para la Junta de Educación de la Escuela Bajos de Limoncito, para gastos varios, por ... ¢ 31.500,00, a fin de que se le gire a la Asociación de Desarrollo de San Vito de Coto Brus, para la compra de materiales de construcción.

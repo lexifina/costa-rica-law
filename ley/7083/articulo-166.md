@@ -1,0 +1,1 @@
+Artículo 166.- Se autoriza al Instituto Costarricense de Puertos del Pacífico para que desalmacene tres autobuses nuevos, libres de todo tributo para transporte de empleados de esa institución, de Puntarenas a Caldera y viceversa, conforme lo establece la ley Nº 5582 del 11 de octubre de 1974. Estos vehículos fueron adquiridos mediante la licitación pública Nº 9 5.

@@ -1,0 +1,1 @@
+Artículo 110.- En el programa 900, código 664-471-1132-50, página O.E. 20, donde dice: "Instituto Costarricense de Turismo, gastos varios, ¢ 100.000", debe decir: "Asociación Integral de Desarrollo de Sabanilla de Alajuela, para asfaltado del cuadrante de Sabanilla, ¢ 100.000."

@@ -1,0 +1,2 @@
+Artículo 16.- Refórmase el artículo 80 del Código Municipal, para que diga así:
+"Artículo 80.- Todo contrato suscrito por las municipalidades, cuyo valor sea superior a ciento cincuenta mil colones, excepto los de trabajo, deberá ser sometido al refrendo de la Contraloría General de la República, sin el cual no podrá surtir efecto alguno. A igual control estarán sujetos los acuerdos municipales en que se acojan reclamos pecuniarios por un valor de diez mil colones o más."

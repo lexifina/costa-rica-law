@@ -1,0 +1,3 @@
+Artículo 158.- Modifícase el numeral 15 del artículo 14 de la ley Nº 7055 del 18 de diciembre de 1986, a fin de que diga así:
+"Artículo 14.- ...
+15 Club Deportivo Cartaginés, ¢ 10.000.000,00. Municipalidad de Cartago, para construcción de la plaza de la Independencia, ¢ 7.000.000,00."

@@ -1,0 +1,1 @@
+Artículo 87.- Por el carácter beneficioso de las actividades de la Confederación de Cooperativas del Caribe y Centroamérica (CCC-CA), creada según la ley Nº 6941 del 24 de enero de 1984, y para su buen desempeño, a esta confederación le serán aplicables los beneficios contenidos en la ley Nº 7037 del 6 de mayo de 1986, establecidos para la Fundación Hans Seidel.

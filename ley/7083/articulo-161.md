@@ -1,0 +1,1 @@
+Artículo 161.- Autorízase a la Unión Cantonal de Asociaciones de Pococí para que varíe el destino de la partida de ¢ 100.000,00 código 637-379-01-131-20, programa 917 del título 30, de la ley Nº 7018 del 20 de diciembre de 1986, a fin de que la utilice en obras varias.

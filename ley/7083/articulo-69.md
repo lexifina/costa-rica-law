@@ -1,0 +1,1 @@
+Artículo 69.- Los recursos a que se refiere el artículo III de la Ley número 6998 del 20 de agosto de 1985, podrán utilizarse, total o parcialmente, para pagar parte de los compromisos adquiridos por el Gobierno por concepto de las renegociaciones de la deuda externa.

@@ -1,0 +1,1 @@
+Artículo 55.- Se autoriza al Instituto Costarricense de Turismo para que reconozca, como organismo internacional, a la Confederación de Cooperativas del Caribe y Centro América (CCC-CA), tal como lo establece su ley de creación Nº 6941 del 24 de enero de 1984, para que se acoja a la respectiva reglamentación que el Instituto Costarricense de Turismo tiene para estos organismos.

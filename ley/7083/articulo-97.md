@@ -1,0 +1,1 @@
+Artículo 97.- interprétase autenticamente el artículo 59 de la ley N° 7040 del 25 de abril de 1986, en el sentido de que el beneficio que esta ley establece se otorgará de acuerdo con el requisito primario del puesto, independientemente de los reuqisitos que ostenten los funcionarios que los desempeñan en la actualidad. (Vetado).

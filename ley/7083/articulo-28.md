@@ -1,0 +1,2 @@
+Artículo 28.- Autorízase a la Municipalidad de Goicoechea, para que traspase la finca Nº 201.213 del partido de San José, inscrita en el tomo 2039, folio 359, asiento 1, del cantón VIII distrito VI, a la Asociación de Desarrollo de Vista de Mar, para que concluya la construcción de la casetilla de la Guardia Rural y del salón comunal.
+La referida asociación deberá contar con la respectiva personería jurídica.

@@ -1,0 +1,1 @@
+Artículo 113.- Se autoriza a la Municipalidad de Matina para que, con los fondos del giro Nº 840599468, por ¢170.000, según la ley Nº 6962 del 26 de julio de 1984, para electrificación de la comunidad de Davao-Batán, finalice la construcción de la escuela de esa comunidad.

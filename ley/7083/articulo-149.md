@@ -1,0 +1,1 @@
+Artículo 149.- Se autoriza a la Municipalidad de Naranjo para que utilice los cien mil colones (¢ 100.000,00) que le ingresaron por concepto de una partida específica, según la ley Nº 7018, para el Comité Centro de Salud para compra de medicamentos, en mejoras de la planta física del Centro de Salud de Naranjo.

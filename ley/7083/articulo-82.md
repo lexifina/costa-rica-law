@@ -1,0 +1,1 @@
+Artículo 82.- Autorízase a la Corporación Costarricense de Desarrollo, S. A., para que condone, total o parcialmente, el crédito concedido al Ministerio de Obras Públicas y Transportes al amparo del artículo 10 de la Ley de Presupuesto Extraordinario número 6811 del 10 de setiembre de 1982, norma que dio lugar al convenio suscrito entre ambas partes y a sus modificaciones.
