@@ -1,0 +1,1 @@
+Artículo 24.—Toda inclusión o exclusión o cambio de usuarios deberá hacerse mediante solicitud escrita al Área de Operaciones y deberá cumplir con los mismos requisitos que los demás usuarios del mismo proyecto.

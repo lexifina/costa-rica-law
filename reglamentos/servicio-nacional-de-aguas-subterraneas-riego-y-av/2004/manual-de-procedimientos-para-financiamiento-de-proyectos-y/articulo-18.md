@@ -1,0 +1,1 @@
+Artículo 18.—Además de la garantía fiduciaria, el usuario deberá firmar una autorización de cargo a su cuenta de los montos generados por concepto de gastos administrativos, multas y otros por causa de atraso en el pago de su cuenta o por cobro judicial. (adjunto machote).

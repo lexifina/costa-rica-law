@@ -1,0 +1,1 @@
+Artículo 15.—El Coordinador Regional será la persona responsable de gestionar la formalización del Convenio, con la obtención de las firmas de la Gerencia del SENARA, la organización de usuarios y de los productores beneficiarios del proyecto.

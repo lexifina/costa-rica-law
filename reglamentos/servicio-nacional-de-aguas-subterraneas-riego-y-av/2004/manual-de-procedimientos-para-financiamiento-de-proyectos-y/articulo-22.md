@@ -1,0 +1,1 @@
+Artículo 22.—Si el Coordinador Regional tuviera que llevar pagarés a firmar, este deberá enviar los pagarés debidamente firmados al Proceso Financiero Contable, para su control y custodia, dentro del término de cinco días hábiles, contados a partir de la firma de estos documentos.

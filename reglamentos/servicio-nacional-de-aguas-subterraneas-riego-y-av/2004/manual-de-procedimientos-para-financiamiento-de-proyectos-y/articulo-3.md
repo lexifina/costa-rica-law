@@ -1,0 +1,1 @@
+Artículo 3º—El Coordinador Regional someterá a conocimiento del Comité Sectorial Regional Agropecuario (CSRA) el proyecto a efecto de obtener el respectivo acuerdo del Sector Agropecuario para su incorporación en la estrategia de integración de servicios hacia el proyecto.

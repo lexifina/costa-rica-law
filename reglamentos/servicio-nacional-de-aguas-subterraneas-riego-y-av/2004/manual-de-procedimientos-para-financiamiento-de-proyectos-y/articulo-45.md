@@ -1,0 +1,1 @@
+Artículo 45.—Las cuentas cuyo saldo total sobrepase la suma su equivalente en colones de US$1.000,00 (mil dólares exactos) del día en que se realice el estudio, al tipo de cambio de referencia del Banco Central de Costa Rica, requerirán autorización de la junta directiva.

@@ -1,0 +1,1 @@
+Artículo 32.—SENARA podrá realizar la gestión de cobro en forma directa o ceder la gestión de cobro a un operador público o privado especialista y con capacidad para el cobro a los productores a nivel nacional. También se podrán vender carteras de crédito cuando la ley así lo permita.

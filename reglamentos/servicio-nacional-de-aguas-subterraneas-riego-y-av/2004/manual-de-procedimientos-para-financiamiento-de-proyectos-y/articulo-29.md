@@ -1,0 +1,1 @@
+Artículo 29.—En caso de no obtener respuesta positiva en el transcurso de 30 días naturales después de la fecha de vencimiento se procederá, de ser posible, enviarle una segunda carta de aviso de cobro.

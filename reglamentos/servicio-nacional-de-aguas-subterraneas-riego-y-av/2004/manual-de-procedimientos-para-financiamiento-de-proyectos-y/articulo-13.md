@@ -1,0 +1,1 @@
+Artículo 13.—En el Convenio se indicará el costo total estimado de la construcción o instalación de la infraestructura del proyecto, el área potencial a beneficiar, la lista de los usuarios con la respectiva área beneficiada y el plazo estimado para la ejecución de las obras y de entrega del proyecto a los usuarios.

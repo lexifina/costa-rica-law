@@ -1,0 +1,1 @@
+Artículo 4º—El Área de Operaciones realizará un Estudio que incorpore la factibilidad técnica, financiera, ambiental y eventualmente la económica–social, así como la documentación necesaria que garantice la ejecución del proyecto ( permisos de paso, concesión, otros).

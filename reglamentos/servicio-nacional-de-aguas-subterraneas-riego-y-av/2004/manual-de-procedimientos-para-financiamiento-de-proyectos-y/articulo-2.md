@@ -1,0 +1,1 @@
+Artículo 2º—Seguidamente el Coordinador Regional realizará un Perfil / Prefactibidad del Proyecto, señalando las principales generalidades del mismo e identificando a los promoventes o usuarios potenciales del proyecto.

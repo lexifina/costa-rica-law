@@ -1,0 +1,1 @@
+Artículo 37.—El Departamento Legal u oficina a la que se hayan trasladado los documentos para cobro judicial deberá rendir un informe al Área Administrativa de forma trimestral, a saber, 01 de abril, 01 de julio, 01 de octubre y 02 de enero de cada año, en el cual se detalle el avance de los mismos.

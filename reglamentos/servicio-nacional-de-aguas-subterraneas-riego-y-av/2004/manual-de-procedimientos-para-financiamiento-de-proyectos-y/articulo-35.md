@@ -1,0 +1,1 @@
+Artículo 35.—Una vez iniciado el proceso de cobro judicial, todos los gastos procesales y personales, deberán ser cubiertos por el usuario, aun en el caso que durante esa fase, el deudor gestione el pago o algún arreglo; le corresponderá a la asesoría legal estimar el monto a cobrar por estos conceptos de acuerdo a la normativa vigente.
