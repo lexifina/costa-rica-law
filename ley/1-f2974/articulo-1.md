@@ -1,4 +1,6 @@
+(Derogado)
 N°1
+(Esta ley fue derogada por el artículo 4° de la ley N° 68 del 13 de agosto de 1920 "Impuesto Destace y Exonera Importación Ganado Vacuno")
 EL PRESIDENTE DEL SENADO DE LA REPÚBLICA DE COSTA RICA
 En acatamiento a lo dispuesto por el artículo 85 de la Constitución Política, y por cuanto el Congreso ha decretado lo siguiente:
 El Congreso Constitucional de la
