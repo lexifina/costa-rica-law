@@ -1,0 +1,2 @@
+Artículo 5º—Gestión de las garantías. Las garantías aportadas por las entidades liquidadoras pertenecientes a una bolsa de valores, se gestionarán por medio de un fondo de gestión de riesgo, cuyo objetivo será garantizar la liquidación financiera. El fondo de gestión de riesgo deberá constituirse como un mecanismo de último recurso.
+La gestión y administración de cada fondo de gestión de riesgo corresponderá a la bolsa de valores respectiva, en tanto mantenga las funciones de compensación y liquidación.

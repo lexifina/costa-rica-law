@@ -1,0 +1,1 @@
+Transitorio I.—Las bolsas de valores deberán presentar el reglamento para la organización y funcionamiento del fondo de garantías respectivo en el plazo máximo de un mes, contado a partir de la entrada en vigencia de este Reglamento.

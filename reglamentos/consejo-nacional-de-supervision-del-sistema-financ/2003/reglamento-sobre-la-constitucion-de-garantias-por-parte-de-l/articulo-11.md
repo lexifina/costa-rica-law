@@ -1,0 +1,4 @@
+Artículo 11.—Aportes en caso de autorización de nuevos miembros liquidadores, fusión y desinscripción. La autorización de nuevas entidades liquidadoras estará condicionada a un aporte inicial por parte de la sociedad respectiva de una garantía, equivalente al monto promedio simple por entidad. (resultado de dividir el monto total del fondo en ese momento entre el número de entidades participantes)
+En caso de fusión, los recursos aportados por la entidad que desaparece deberán ser contabilizados a favor de la prevaleciente.
+En el caso de la desinscripción de una entidad, su aporte deberá mantenerse depositado en el fondo hasta que se haya liquidado la totalidad de las operaciones por cuya cancelación es responsable.
+En todos los casos anteriores, la bolsa de valores deberá establecer los mecanismos necesarios para la realización de ajustes a los montos depositados por los participantes, de forma que se cumpla con el principio de proporcionalidad del fondo.

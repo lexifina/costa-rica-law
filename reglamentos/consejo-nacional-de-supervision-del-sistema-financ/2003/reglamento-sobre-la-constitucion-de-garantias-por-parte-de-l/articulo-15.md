@@ -1,0 +1,1 @@
+Artículo 15.—Cargos por uso del fondo. Cada bolsa de valores establecerá, reglamentaria ni ente, la estructura de costos financieros y administrativos que estarán obligados a cubrir los liquidadores, con motivo de la activación del fondo de garantía.

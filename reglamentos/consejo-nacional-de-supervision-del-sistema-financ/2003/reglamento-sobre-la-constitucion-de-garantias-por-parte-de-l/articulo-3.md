@@ -1,0 +1,1 @@
+Artículo 3º—Garantías a aportar por las entidades liquidadoras. Las entidades liquidadoras estarán obligadas a aportar una garantía en los términos establecidos en el presente Reglamento para la gestión del riesgo de contraparte de la liquidación financiera.
