@@ -1,0 +1,1 @@
+Artículo 6°—Las Comisiones Especiales funcionarán como órganos de coordinación entre el Concejo Municipal y los Concejos de Distrito con el fin de brindarle a estos últimos la asistencia que proceda en los proyectos e interés para un distrito o grupo de ellos.

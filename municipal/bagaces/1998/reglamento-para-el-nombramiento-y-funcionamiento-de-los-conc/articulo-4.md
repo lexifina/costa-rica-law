@@ -1,0 +1,1 @@
+Artículo 4°—Los Concejos de Distrito, deben celebrar reuniones con los vecinos de su circunscripción con el fin de considerar problemas comunes, proponer las soluciones adecuadas y prever las medidas necesarias para ejecutarlas en la medida de sus probabilidades.

@@ -1,0 +1,1 @@
+Artículo 5°—La Municipalidad creará varias comisiones especiales para atender en forma exclusiva los asuntos según corresponda, que sean remitidos por los Concejos de Distrito. Estas comisiones estarán integradas en la forma y términos que establece el Código Municipal en su artículo 53 (sobre las comisiones de trabajo).

@@ -1,0 +1,1 @@
+Artículo 8°—La Municipalidad ejecutará sus obras o servicios públicos en cada distrito, atendiendo fundamentalmente las prioridades fijadas por el Concejo de Distrito, en la medida de los recursos existentes.

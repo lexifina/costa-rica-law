@@ -1,0 +1,1 @@
+Artículo 2°—La jurisdicción territorial de los Concejos de Distrito ora: para el distrito de Bagaces, la ciudad de Bagaces; Fortuna, para el distrito de La Fortuna, Guayabo para el distrito de Mogote y Río Naranjo para el distrito de Río Naranjo.
