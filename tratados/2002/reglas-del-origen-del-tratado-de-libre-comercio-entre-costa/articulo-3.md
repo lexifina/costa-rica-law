@@ -1,0 +1,4 @@
+Artículo IV.3 Acumulación
+Para efectos de determinar si una mercancía es originaria, la producción de esa mercancía en el territorio de una o ambas Partes por uno o más productores deberá, si así lo decide el exportador o productor de la mercancía para la cual se solicita trato arancelario preferencial, ser considerada como realizada en el territorio de cualquiera de las Partes por ese exportador o productor, siempre que:
+(a) todos los materiales no originarios utilizados en la producción de la mercancía, sufran el cambio correspondiente de clasificación arancelaria establecido en el Anexo IV.1 (Reglas de Origen Específicas) y la mercancía cumpla todo requisito de valor de contenido regional correspondiente, enteramente en territorio de una o ambas Partes; y
+(b) la mercancía satisfaga los demás requisitos correspondientes de este Capítulo.

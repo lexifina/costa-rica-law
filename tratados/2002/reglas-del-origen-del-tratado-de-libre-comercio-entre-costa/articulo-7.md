@@ -1,0 +1,5 @@
+Artículo IV.7 Accesorios, Repuestos y Herramientas
+Los accesorios, repuestos y herramientas entregados con la mercancía que formen parte de los accesorios, repuestos o herramientas usuales de la mercancía serán considerados originarios si la mercancía es originaria y no se tomarán en cuenta para determinar si todos los materiales no originarios utilizados en la producción de la mercancía experimentan el cambio correspondiente de clasificación arancelaria establecido en el Anexo IV.1 (Reglas de Origen Específicas), siempre que:
+(a) los accesorios, repuestos y herramientas no sean facturados por separado de la mercancía, independientemente que se desglosen o detallen cada uno en la propia factura;
+(b) las cantidades y el valor de dichos accesorios, repuestos o herramientas sean los habituales para la mercancía; y
+(c) cuando la mercancía esté sujeta a un requisito de valor de contenido regional, el valor de los accesorios, repuestos o herramientas se tomará en cuenta como materiales originarios o no originarios, según sea el caso, al calcular el valor de contenido regional de la mercancía.
