@@ -1,1 +1,0 @@
-Artículo 3º-La Dirección de la Fábrica Nacional de Licores, deberá dotar dicha Unidad de los recursos humanos y materiales que le permitan cumplir a cabalidad con las funciones que tiene encomendadas.
