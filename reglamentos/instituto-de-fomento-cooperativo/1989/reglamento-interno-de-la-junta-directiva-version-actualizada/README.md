@@ -14,3 +14,4 @@ Reglamento Interno de la Junta Directiva (Versión Actualizada)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-04-20 | la propia norma |
+| 2 | 1990-05-17 | Reglamento 1963 (1990-05-17) |
