@@ -1,0 +1,1 @@
+Artículo 9°— De no ser posible su aplicación en el ejercicio económico, se estaría reconociendo el importe una vez que se tenga debidamente aprobado el presupuesto donde se contempla el reconocimiento.

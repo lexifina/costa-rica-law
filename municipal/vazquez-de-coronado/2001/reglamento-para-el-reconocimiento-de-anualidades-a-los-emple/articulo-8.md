@@ -1,0 +1,1 @@
+Artículo 8°—La Oficina de Recursos Humanos externará su pronunciamiento en un plazo máximo de quince días y lo trasladará incluyendo el cálculo del importe por reconocer y la fecha a partir de la cual se hace el reconocimiento. El Contador Municipal, se encargará de la presupuestación de las sumas correspondientes de ser posible en el mismo ejercicio económico.

@@ -1,0 +1,1 @@
+Artículo 2° —Se entenderá para todos los efectos como Sector Público el conglomerado conformado por el Poder Judicial. Poder Legislativo. Poder Ejecutivo, Instituciones Autónomas, Instituciones Semiautónomas. Registro Civil, Tribunal Supremo de Elecciones y otras municipalidades.
