@@ -11,4 +11,5 @@ Considerando:
 6º—Que mediante el Decreto Ejecutivo N° 31092-H y sus reformas, publicado en La Gaceta N° 63 del 31 marzo del 2003, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2004, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo el gasto presupuestario para el 2004, para las entidades cubiertas por el ámbito del mencionado órgano colegiado.
 7º—Que mediante circular STAP-0604-03 del 24 de abril de 2003, se le comunicó al Instituto el límite de gasto fijado para el año 2004, por lo que resulta necesario modificar el gasto presupuestario del Instituto. Por tanto,
 DECRETAN:
-Artículo 1º—Modifícase el gasto presupuestario establecido al Instituto Costarricense del Deporte y la Recreación (ICODER), en el artículo 1° del Decreto Ejecutivo N° 31092-H y sus reformas publicado en La Gaceta N° 63 del 31 marzo del 2003, fijando el nuevo límite en ¢2.578,6 millones.
+Artículo 1º—Modifícase el gasto presupuestario establecido al Instituto Costarricense del Deporte y la Recreación (ICODER), en el artículo 1° del Decreto Ejecutivo Nº 31813-H, publicado en La Gaceta Nº 107 del 2 de junio del 2004, fijando el nuevo gasto en la suma de ¢2.598,6 millones.
+(Así reformado parcialmente, mediante Decreto Ejecutivo No. 31956-H de fecha 24 de agosto del 2004).

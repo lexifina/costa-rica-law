@@ -14,3 +14,4 @@ Modifica límite de gasto presupuestario del Instituto Costarricense del Deporte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-02 | la propia norma |
+| 2 | 2004-08-24 | Decreto Ejecutivo 31956 (2004-08-24) |
