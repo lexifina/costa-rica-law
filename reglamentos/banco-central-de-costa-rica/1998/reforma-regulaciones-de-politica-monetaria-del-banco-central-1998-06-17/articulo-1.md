@@ -1,7 +1,8 @@
 BANCO CENTRAL DE COSTA RICA
 La Junta Directiva del Banco Central de Costa Rica, mediante artículo 9, del acta de la sesión 4960-98, celebrada el 17 de junio de 1998, y con base en lo propuesto por el Departamento Monetario en su memorando DM-228 del 8 de junio de 1998,
 convino en:
-I. Modificar el literal A, capítulo I, título III, de las Regulaciones de Política Monetaria para que en adelante se lea de la siguiente forma:,
+(*) I. Modificar el literal A, capítulo I, título III, de las Regulaciones de Política Monetaria para que en adelante se lea de la siguiente forma:,
+(*)(Mediante sesión N° 4971 del 23 de setiembre de 1998, se dispone dejar sin efecto lo dispuesto en el numeral anterior, el cual reformó el literal A, Capítulo I, Título III, de las Regulaciones de Política Monetaria)
 “A. Tasas de encaje mínimo legal
 1. El 10% de los depósitos y obligaciones en moneda nacional de los entes financieros que a la entrada en vigencia de la Ley 7558 del 27 de noviembre, 1995, se encontraban sujetas al requerimiento de encaje mínimo legal incluidos los depósitos en cuenta corriente, sean los exigibles a simple requerimiento del depositante o acreedor, mediante la libranza de cheques; los depósitos constituidos por medio del sistema de ahorro por libreta; los cheques certificados y los cheques de gerencia; los depósitos y obligaciones a plazo vencido, los pasivos originados en las operaciones de venta de títulos con pacto de retrocompra a la vista, las obligaciones por cheques presentados al cobro por otras entidades mediante la Cámara de Compensación, así como otras obligaciones de exigibilidad inmediata y los depósitos y obligaciones exigibles a plazo, incluidos los pasivos originados en las operaciones de venta de títulos con pacto de retrocompra a plazo. Los intermediarios financieros se ajustarán a dicha tasa con la siguiente gradualidad:
 Fecha | Tasa

@@ -14,3 +14,4 @@ Reforma Regulaciones de Política Monetaria del Banco Central de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-01 | la propia norma |
+| 2 | 1998-10-01 | Reglamento 4971 (1998-09-23) |
