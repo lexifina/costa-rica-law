@@ -1,0 +1,1 @@
+Art 2°.- Se prohíbe a los consignatarios realizar por menor los efectos de sus consignados, no pudiendo hacerlo por menos de bultos, quintales y cajas, bajo la pena de perder el derecho de comisión en favor de sus mismos consignados, y de pagar al denunciante el valor de la mercancía que hubiese vendido al menudeo.

@@ -1,0 +1,6 @@
+DECRETO CLXVI
+Dispone que se consigne a los hijos del país para sus negociaciones cualesquiera que sean estas (1)
+“ El Jefe Supremo del Estado libre de Costa Rica, - Por cuanto la Asamblea ha decretado y el Consejo sancionado lo siguiente.
+La Asamblea Constitucional del Estado libre de Costa Rica, considerando: que la falta de conocimiento de las leyes y costumbres del país en los negociantes extranjeros es un obstáculo, que retraza las especulaciones mercantiles: y además, que si estos tienen que tocar de alguna manera con las autoridades, no saben la forma, práctica y trámites necesarios, ha venido en decretar y decreta:
+Art 1°.- Los comerciantes extranjeros se consignaran para sus negocios, cualquiera que ellas sean, en hijos del país o naturalizados en el con carta de Ciudadano: y los consignatarios serán sus apoderados natos para los asuntos judiciales que les ocurran; y además responsables como fiadores de la conducta pública, civil y política de sus consignados. El derecho de consignación será un cinco por ciento, si la comisión será un cinco por ciento, si la comisión fuese doble: es decir para vender y comprar: y un tres por ciento, si fuese sencilla, esto es, para solo vender, o para solo comprar.
+(1) La orden Legislativa de 7 de Diciembre de 1836 dispuso que la presente ley, quedará sin efecto.
