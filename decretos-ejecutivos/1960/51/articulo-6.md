@@ -1,0 +1,1 @@
+Artículo 6°─ Si el depósito no se efectuare dentro del término señalado se procederá a suprimir la plaza, para lo cual la Jefatura Política o la Agencia Principal de Policía informará del atraso, antes del día quince de cada mes, a la Inspección General de Autoridades con copia a la Contaduría del Ministerio de Gobernación de Policía.

@@ -1,0 +1,1 @@
+Artículo 5°─ Con el objeto de cumplir con lo dispuesto en el artículo trasanterior, a más tardar el día ocho de cada mes, deberán los Patentados o cualquiera otro de los interesados, que tuvieran a su cargo el pago del respectivo Agente Auxiliar de Policía, depositar la suma correspondiente al sueldo mensual del servidor.

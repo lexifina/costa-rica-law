@@ -1,0 +1,1 @@
+Artículo 3°─ Dichos pagos deberán ser por mes adelantado y la copia del comprobante del Entero se depositará en la Jefatura Política o en la Agencia Principal de Policía, oficina que la remitirá de inmediato a la Contaduría del Ministerio de Gobernación y Policía, por correo certificado, antes del día 10 del mes, a efecto de que se tramite la correspondiente planilla de pago.

@@ -1,0 +1,1 @@
+Artículo 4°─ Si el depósito es realizado en una Jefatura Política o en una Agencia Principal de Policía, estas oficinas serán las encargadas de llevar a cabo el depósito en la Sucursal Bancaria más cercana, a más tardar al día siguiente de haber recibido el depósito y hacer la remisión indicada en el artículo anterior.

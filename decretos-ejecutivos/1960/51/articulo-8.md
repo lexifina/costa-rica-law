@@ -1,0 +1,1 @@
+Artículo 8°─ A efecto de fijar el monto de los sueldos de estos servidores, la Contaduría del Ministerio de Gobernación y Policía, por intermedio de la Inspección General ele Autoridades, estudiará los sueldos que actualmente se pagan por ese concepto en cada caso, y, con base en los informes que obtengan, se fijarán los futuros y se modificarán los que lo ameriten.

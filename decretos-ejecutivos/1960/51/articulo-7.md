@@ -1,0 +1,1 @@
+Artículo 7°─ Suprimida la plaza de Agente Auxiliar de Policía por demora del Patentado en el depósito del correspondiente sueldo, la Inspección General ele Autoridades solicitará a la Corporación Municipal respectiva, la cancelación de la patente por falta de autoridad en el lugar, sin que esto acarré responsabilidad alguna para el Estado o para la Corporación Municipal.

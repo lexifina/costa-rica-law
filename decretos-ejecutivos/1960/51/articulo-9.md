@@ -1,0 +1,1 @@
+Artículo 9°─ Los Jefes Políticos y los Agentes Principales de Policía reportarán con tiempo suficiente a la respectiva Gobernación, con copia a la Contaduría del Ministerio de Gobernación y Policía, los cambios a operarse entre los Agentes Auxiliares (Patentados) a fin de que los Acuerdos que afecten a esos servidores, no entorpezcan la tramitación de las planillas de sueldos.
