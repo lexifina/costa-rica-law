@@ -1,0 +1,2 @@
+Artículo 13.—Del quórum. El quórum para que el CONAC pueda sesionar válidamente será el de la mayoría absoluta de sus miembros.
+Si no hubiere quórum, el CONAC podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia en que podrá sesionar después de media hora y para ello será suficiente la asistencia de la tercera parte de sus miembros. Los casos de urgencia definidos por el Presidente y declarados por los medios idóneos y expeditos dependiendo del caso concreto.
