@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE GRECIA
+El concejo de Grecia, por acuerdo unánime de la sesión celebrada el 29 de enero pasado, artículo III, inciso 2, del acta 6, dispuso modificar el artículo VI, del Reglamento para el uso de espacios de estacionamiento, publicado en La Gaceta N° 21 del 31 de enero del 2000, para que se lea como sigue:
+Artículo VI.- "Los vehículos que utilicen las zonas de estacionamieno autorizado deberán pagar una tasa de ¢65.00 (sesenta y cinco colones) por meda hora y ¢ 125.00 (ciento veinticinco colones) por una hora. Esta tasa podrá ser variada por el concejo municipal conforme a la ley 6852 del 16 de febrero de 1983 y mediante el simple relleno de las boletas".
