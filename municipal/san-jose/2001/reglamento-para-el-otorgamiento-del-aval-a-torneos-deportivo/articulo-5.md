@@ -1,0 +1,1 @@
+Artículo 5°—Las solicitudes serán analizadas por el Área Técnica del Comité Cantonal de Deportes y San José, la cual deberá, en un plazo no mayor a ocho días después de recibida la solicitud, recomendar a la Junta Directiva si procede o no el otorgamiento del aval respectivo.

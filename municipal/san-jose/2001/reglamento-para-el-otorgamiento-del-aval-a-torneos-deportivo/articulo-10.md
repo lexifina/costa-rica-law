@@ -1,0 +1,2 @@
+Artículo 10.—El Comité no entregará ni autorizará bajo ninguna concepto premiación, implementos deportivos u otro tipo de material para ser utilizados en campeonatos que no cuenten con el aval respectivo de acuerdo al presente Reglamento.
+Este Reglamento fue aprobado por la Junta Directiva del Comité Cantonal de Deportes y Recreación de San José en su sesión número 07-2001, Acuerdo 3, Artículo V, del 2 de marzo del año 2001.

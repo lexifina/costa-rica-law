@@ -1,0 +1,1 @@
+Artículo 2°— Aquellas organizaciones. agrupaciones deportivas, grupos comunales, etc., que pretendan desarrollar campeonatos deportivos, deberán solicitar el aval correspondiente al Comité a! Comité Cantonal de Deportes y Recreación de San José.

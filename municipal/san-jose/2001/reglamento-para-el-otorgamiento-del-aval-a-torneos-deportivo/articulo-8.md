@@ -1,0 +1,1 @@
+Artículo 8°— Para las categorías mosco, infantil, juvenil, tercera división y veteranos los calendarios deberán estructurarse de manera que no se juegue bajo ninguna circunstancia más de cíenlo veinte minutos por día. En la categoría premoscos se podrán efectuar torneos relámpagos siempre y cuando un mismo equipo no juegue más de ciento sesenta minutos en un mismo día.

@@ -1,0 +1,1 @@
+Artículo 3°—Las solicitudes de aval para Torneos Deportivos deberán hacerse por escrito, a maquina o computadora, ante las oficinas del Área Técnica del Comité Cantonal de Deportes y Recreación de San José con quince días naturales de antelación a la lecha de inicio del torneo.
