@@ -1,0 +1,1 @@
+2. En consecuencia cada uno le los Ministros despacharà en oficina separado, y estas deben estar provistas por el tesoro público de todos los útiles que son indispensables y necesarios, consultando siempre la decencia posible.
