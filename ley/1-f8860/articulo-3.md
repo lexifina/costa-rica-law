@@ -1,0 +1,1 @@
+Art. 3. En lo demas se observarán las disposiciones del referido decreto hasta tanto que por el Cuerpo Legislativo nacional se disponga otra cosa. –Dado en la ciudad de San José, á los tres dias del mes de enero de mil ochocientos cincuenta y uno. -Juan Rafael Mora.-El Ministro de Estado en el Despacho de Gobernacion, Joaquin Bernardo Calvo."
