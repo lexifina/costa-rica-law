@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE OROTINA
+El Concejo Municipal de Orotina en el artículo III, aparte 6 del acta de sesión ordinaria Nº 230, celebrada el día 18 de enero del 2005, tomó el siguiente acuerdo: El Concejo Municipal de Orotina considerando que ha sido de conocimiento lo establecido en el Oficio FOE-SM-3088, de la División de Fiscalización Operativa y Evaluativo, Área de Servicios Municipales, de la Contraloría General de la República, en materia de inclusión de presupuestos a comisiones. Acuerda:
+Derogar el artículo 6 del Reglamento de las Operaciones para la Comisión Municipal Organizadora de la Feria de las Frutas del cantón de Orotina, acuerdo tomado en el artículo III, aparte 6 del acta de sesión ordinaria Nº 230, celebrada el día 18 de enero del 2005. Publíquese en el Diario O.cial La Gaceta.
+Orotina, 26 de enero del 2005.
