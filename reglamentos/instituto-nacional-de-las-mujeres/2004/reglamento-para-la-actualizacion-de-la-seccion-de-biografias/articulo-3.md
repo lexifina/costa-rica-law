@@ -1,0 +1,1 @@
+Artículo 3.—La sección Biografías de Mujeres es una antología de vidas de mujeres extraordinarias que por su ímpetu, temperamento, talento y fuerza, han provocado rupturas que las convierten en emblemas insignes.

@@ -1,0 +1,1 @@
+Artículo 2º—Se crea el Comité de actualización de la sección Biografías de Mujeres en el apartado denominado “Nuestras Huellas: Lo que las Mujeres hemos logrado”; del portal Web del Instituto Nacional de las Mujeres.

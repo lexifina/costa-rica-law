@@ -1,0 +1,1 @@
+Artículo 16.—El Comité dará el fallo de las candidatas seleccionadas para la elaboración de la biografía correspondiente, a más tardar dos meses después de la fecha de cierre de recepción de candidaturas.

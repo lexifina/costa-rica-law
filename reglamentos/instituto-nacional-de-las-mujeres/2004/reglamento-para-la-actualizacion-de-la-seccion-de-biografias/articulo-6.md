@@ -1,0 +1,1 @@
+Artículo 6º—El Comité realizará, como mínimo, dos procesos anuales de convocatoria, revisión, análisis y declaratoria de resultados. De estos procesos, debe resultar como mínimo un grupo de doce biografías de mujeres designadas anualmente.

@@ -1,0 +1,1 @@
+Artículo 7º—Para asegurar el cumplimiento de los objetivos y tareas a realizar, el Comité sesionará como mínimo una vez cada dos meses, o en su defecto esclarecerá en su seno, en la primera reunión de cada año la periodicidad de sus reuniones, misma que debe quedar claramente especificada en actas.
