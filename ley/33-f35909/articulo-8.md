@@ -1,0 +1,3 @@
+Artículo 8°.-Los funcionarios del Ministerio Público y sus subalternos tienen la obligación de asistir a sus despachos a las mismas horas de servicio público en las oficinas de Justicia, en los días que no fueren legalmente feriados, salvo cuando estuvieren en vacaciones o gozando de licencia, o cuando tuvieren que ausentarse en servicio con la venia expresa de su inmediato superior jerárquico.
+También están obligados a asistir a sus despachos, sin derecho a remuneración extraordinaria, fuera de esas horas, durante todo el tiempo que el buen servicio lo requiera.
+Toda falta de asistencia sin justa causa deberá ser corregida disciplinariamente, y después de haberse impuesto reprensión, la pena correspondiente a la nueva o nuevas faltas ser multa o suspensión del empleo.
