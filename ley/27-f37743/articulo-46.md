@@ -1,1 +1,1 @@
-Artículo 46.-En los cafés, hosterías, clubs, cantinas, etc., es prohibido el trabajo de menores diez y ocho años.
+Artículo 46.- (Derogado por el aparte 5) del Capítulo Único de las Disposiciones Finales de la Sección I del Código de Trabajo, N° 2 del 27 de agosto de 1943)

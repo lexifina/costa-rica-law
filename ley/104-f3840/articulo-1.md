@@ -1,4 +1,6 @@
+(Derogado)
 N° 104
+(Esta norma fue derogada por el Título Duodecimo, Disposiciones Finales del Capítulo Unico del Código de Trabajo, Ley N° 2 del 27 de agosto de 1943)
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA
 DECRETA:
 Artículo único.- Las barberías y peluquerías de la cuidad de San José, no podrán ser abiertas los domingos para el servicio público.

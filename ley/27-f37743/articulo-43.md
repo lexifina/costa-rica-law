@@ -1,1 +1,1 @@
-Artículo 43.-El trabajo de menores de diez y ocho años, y en especial el de aprendices de obreros, no puede exceder de siete horas diarias, entre las cuales habrá uno o más reposos de duración no menor de una hora.
+Artículo 43.- (Derogado por el aparte 5) del Capítulo Único de las Disposiciones Finales de la Sección I del Código de Trabajo, N° 2 del 27 de agosto de 1943)
