@@ -14,3 +14,4 @@ Reconoce existencia oficial de Grupos Étnicos Indígenas en Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-05-17 | la propia norma |
+| 2 | 1984-12-03 | Decreto Ejecutivo 16057 (1984-12-03) |

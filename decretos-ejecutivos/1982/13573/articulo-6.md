@@ -1,4 +1,4 @@
-Artículo 6°—La lista oficial de las comunidades indígenas y Reservas Indígenas de Costa Rica es la siguiente:
+Artículo 6°-La lista oficial de las comunidades indígenas y Reservas Indígenas de Costa Rica es la siguiente:
 Grupos étnicos | Reservas Indígenas
 (Etnias) | (Comunidades Indígenas)
 1. Bribri. | 1. Salitre
@@ -19,3 +19,4 @@ Grupos étnicos | Reservas Indígenas
 7. Maleku (Guatuso) | Guatuso
 8. Chorotega (Nicoya) | Matambú
 Por tanto, se reconocen así oficialmente 17 reservas indígenas, y 17 comunidades indígenas.
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 16057 del 3 de diciembre de 1984, se divide la Reserva Indígena Cabécar de Chirripó en dos reservas distintas con los nombres oficiales de Reserva Indígena Cabécar de Chirripó (Chirripó Alto) y Reserva Indígena Cabécar de Bajo Chirripó y artículo 3° modifica el presente artículo de manera a tomar en cuenta lo establecido por el artículo 1° del decreto ejecutivo N° 16057).
