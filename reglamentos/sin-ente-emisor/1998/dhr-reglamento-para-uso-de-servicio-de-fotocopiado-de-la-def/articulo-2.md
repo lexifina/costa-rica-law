@@ -1,0 +1,1 @@
+Artículo 2°—El servicio de fotocopiado se prestará únicamente a las unidades orgánicas de la Defensoría de los Habitantes, con la salvedad que se establece en el artículo 12 de este Reglamento, y podrá ser requerido por los Directores y personal autorizado por el Despacho, quienes deberán firmar las respectivas boletas de solicitud.

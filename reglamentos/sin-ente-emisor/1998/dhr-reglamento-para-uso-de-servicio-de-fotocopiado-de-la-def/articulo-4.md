@@ -1,0 +1,1 @@
+Artículo 4°—Cuando los habitantes soliciten copia de documentos o expedientes, el Director o Jefe de dependencia podrá autorizar la solicitud hasta un límite de 10 hojas. De ser mayor el número de fotocopias solicitadas se les deberá requerir el aporte de las hojas previo a prestar el servicio.

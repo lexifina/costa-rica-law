@@ -1,0 +1,1 @@
+Artículo 19.—Al final de la labor diaria, las fotocopias desechadas deben contarse, consignarse su número en la vitácora y almacenarse con el fin de realizar la conciliación al final de cada semana por el funcionario competente. Después de efectuada la conciliación, estas hojas pueden solicitarlas las Direcciones para borradores o destinarse para reciclado.

@@ -1,0 +1,1 @@
+Artículo 6°—Los operadores deberán presentar mensualmente al Jefe de Servicios Generales, con copia al Despacho, un informe sobre el servicio de fotocopiado prestado a los usuarios con base en la vitácora que deberá llevar al efecto.

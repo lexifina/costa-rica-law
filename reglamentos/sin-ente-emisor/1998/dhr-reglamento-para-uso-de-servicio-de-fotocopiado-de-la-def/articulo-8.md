@@ -1,0 +1,1 @@
+Artículo 8°—El servicio de fotocopiado se prestará en forma permanente por los respectivos operadores, de conformidad con el orden de presentación, salvo casos urgente*, debidamente autorizados por el Director Administrativo o por el Despacho.

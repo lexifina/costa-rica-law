@@ -1,0 +1,1 @@
+Artículo 23.—La Jefatura del Departamento de Proveeduría y Servicios Generales deberá hacer las observaciones del caso cuando el reglamento sea omiso en algún aspecto o cuando alguno de los artículos resulten inaplicables, con el transcurso del tiempo, y hacer las recomendaciones correspondientes a la Dirección General Administra para lo que proceda.

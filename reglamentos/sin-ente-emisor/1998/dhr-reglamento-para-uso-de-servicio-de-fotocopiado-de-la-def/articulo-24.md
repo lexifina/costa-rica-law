@@ -1,0 +1,1 @@
+Artículo 24.—Las discrepancias o diferencias de criterio que surja! de la aplicación del presente reglamento entre los afectados y el Departamento de Proveeduría y Servicios Generales será dirimido por el Despacho.

@@ -1,0 +1,1 @@
+Artículo 10.—La orden de servicio de fotocopiado tendrá que presentarse con la información requerida, sin tachaduras, borrones ni alteraciones en la boleta que la oficina de Proveeduría entregará para ello. Deberá cancelarse con una línea los espacios libres.
