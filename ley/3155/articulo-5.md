@@ -1,1 +1,1 @@
-Artículo 5º.- Esta ley rige a partir de su publicación.
+Articulo 5°-Esta ley rige a partir de su publicación.
