@@ -1,0 +1,1 @@
+Artículo 23.— La Junta Directiva entregará un reconocimiento a aquellos colegiados que hayan sido aceptados como especialistas, con copia al expediente personal y al archivo de la Comisión de Especialidades.

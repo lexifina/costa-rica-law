@@ -1,0 +1,11 @@
+CAPITULO IV
+Del trámite para solicitar reconocimiento de Especialidad
+Artículo 19.—El procedimiento para solicitar el reconocimiento de especialidad será el siguiente:
+a) El miembro del Colegio, presentará su solicitud por escrito a la Dirección Ejecutiva , adjuntando original y copia de los atestados que respaldan su petición El Director Ejecutivo sellará las copias, haciendo, constar que son copia fiel de los originales y devolverá estos últimos.
+b) Cuando la Dirección Ejecutiva determine que la documentación presentada está completa, para continuar los trámites, el Aspirante deberá pagar los derechos que la Junta Directiva haya establecido para cubrir los gastos.
+c) La Dirección Ejecutiva adjuntará el recibo de los derechos de trámite a la documentación y entregará el expediente así constituido a la Comisión de Especialidades para su evaluación.
+d) La Comisión de Especialidades procederá a verificar que el Aspirante cumple con el puntaje mínimo requerido para cada una de las áreas: académica, experiencia y publicaciones.
+e) Verificado que el Aspirante cumple el puntaje mínimo, la Comisión de Especialidades deberá consultar con la Agrupación Gremial de la especialidad que corresponda, si no existiera podrá recurrir al asesoramiento que considere pertinente. Así mismo, comunicará sobre dicha petición a los demás miembros del Colegio por medio del Boletín Informativo o en su defecto mediante una circular. Los Colegiados presentaran sus objeciones si las hubiera, dentro de los treinta días naturales siguientes a la comunicación.
+f) Una vez que se cumpla el período de oír objeciones, si no hubiera ninguna oposición para otorgar la especialidad, entonces la Comisión de Especialidades le comunicará al Aspirante fecha, hora y lugar para brindar una charla pública, ante la Comisión.
+g) Satisfechos todos los requisitos, la Comisión de Especialidades deberá recomendar a la Junta Directiva el otorgamiento o denegatoria de la especialidad.
+h) Si la Junta Directiva acuerda otorgar la especialidad, el Coordinador de la Comisión de Especialidades la inscribirá en el Registro de Especialidades y se comunicará a los demás miembros del Colegio por medio del Boletín Informativo y en la próxima Asamblea General.

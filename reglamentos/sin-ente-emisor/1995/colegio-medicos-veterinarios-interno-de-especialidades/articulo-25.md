@@ -1,0 +1,1 @@
+Artículo 25.—Los miembros que estén estudiando para obtener una especialidad académica, podrán por el tiempo que duren sus estudios - pagar su cuota ordinaria cancelando únicamente el aporte del Fondo de Mutualidades y Contingencias. Esta cancelación pueden hacerla al término de sus estudios.

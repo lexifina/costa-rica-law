@@ -1,0 +1,1 @@
+Artículo 24.—Cuando se publique la lista de colegiados, se pondrán en un aparte a los miembros especialistas agrupados en orden alfabético y por especialidad. Aquellos especialistas que además ostenten un grado académico, se les incluirá en su nombre.

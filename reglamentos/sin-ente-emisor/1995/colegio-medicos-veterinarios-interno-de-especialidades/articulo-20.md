@@ -1,0 +1,1 @@
+Artículo 20.—En el caso de ser rechazada la solicitud de reconocimiento de especialidad, el Aspirante podrá apelar ante la Junta Directiva. De no obtenerse la aprobación ante la Junta Directiva , podrá presentar nueva solicitud un año después de la denegatoria o cuando los factores por los que se razonó la denegatoria hayan dejado de existir.
