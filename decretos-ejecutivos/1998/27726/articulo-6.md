@@ -1,0 +1,1 @@
+Artículo 6°—Se autoriza al Catastro Nacional a interpretar los límites del área a que se refiere este decreto, dotar al Instituto de Desarrollo Agrario de la información catastral existente y dar asesoramiento a este en la ejecución de la labor, asimismo a dar mantenimiento a la información catastral generada por el proyecto.

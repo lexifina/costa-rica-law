@@ -1,0 +1,1 @@
+Artículo 4°—Se encomienda al Departamento ordenamiento agrario y formación de asentamiento a la Dirección Región Huetar Norte, del Instituto de Desarrollo Agrario, a realizar los trámites necesarios para la ejecución de este Programa de Titulación
