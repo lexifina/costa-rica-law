@@ -13,3 +13,4 @@ Deber de participación en redes implementadas por el Ministerio de Seguridad P�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-06 | la propia norma |
+| 2 | 2003-03-13 | Circular 26 (2003-03-13) |
