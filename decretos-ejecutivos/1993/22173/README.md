@@ -13,3 +13,4 @@ Reforma Reglamento sobre la Actividad de Agentes de Aduanas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1993-05-25 | la propia norma |
+| 2 | 1996-06-14 | Decreto Ejecutivo 25270 (1996-06-14) |
