@@ -1,0 +1,1 @@
+Artículo 2°.- La estimación de las obras es de ¢3.500.00 (tres mil quinientos colones), que corresponde al total de la suma a pagar de conformidad con el avalúo N° 13.900-E de la Sección de Avalúos Especiales de la Tributación Directa.
