@@ -1,0 +1,1 @@
+Artículo 15.—El Ministerio de Agricultura y Ganadería podrá autorizar la utilización de motor, a los permisionarios de botes con remo dentro del Golfo de Nicoya, para que se trasladen a las zonas de pesca, siempre y cuando mantengan las características originales de la embarcación.

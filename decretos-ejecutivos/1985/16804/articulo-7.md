@@ -1,0 +1,1 @@
+Artículo 7°—Se declara de uso exclusivo para la pesca artesanal en pequeña escala, deportiva, científica y tecnológica, la parte interior del Golfo de Nicoya delimitada por las zonas 1, 2 y 3 establecidas en el artículo 69.

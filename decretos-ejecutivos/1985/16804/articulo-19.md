@@ -1,0 +1,1 @@
+Artículo 19.—El Ministerio de Agricultura y Ganadería podrá autorizar la pesca artesanal de camarón, a los permisionarios de pescado de escama dentro del Golfo que así lo soliciten. Este permiso se otorgará en forma independiente del de escama.

@@ -1,0 +1,1 @@
+Artículo 22.—El Ministerio de Agricultura y Ganadería por medio del Director Regional del Centro Regional de Pacífico Central gestionará ante las entidades bancarias de la zona, a fin de que éstas adecúen los créditos a los pescadores que sean afectados por la veda dispuesta por el artículo 9° inciso d).

@@ -1,0 +1,1 @@
+Artículo 4°—La malla mínima permitida para labores de pesca con trasmallo es de 8,90 cm entre nudo y nudo. Se considerará cumplido este requisito cuando un calibrador de 1780 cm atraviese la malla completa de lado a lado.

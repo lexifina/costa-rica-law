@@ -1,0 +1,1 @@
+Artículo 20.—El otorgamiento de los permisos para la pesca artesanal de camarón dentro del Golfo quedarán sujetos a la administración de recursos que realice el Ministerio de Agricultura y Ganadería y a la disponibilidad de recursos en esa zona, y no dará derecho al permisionario para que a su término le sea sustituido por otro permiso de otro tipo.

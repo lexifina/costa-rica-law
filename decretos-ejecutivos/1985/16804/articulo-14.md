@@ -1,0 +1,1 @@
+Artículo 14.—El Ministerio de Agricultura y Ganadería, sólo podrá autorizar la sustitución de embarcaciones que ejecuten la pesca en la parte interior del Golfo de Nicoya, por otras de similares características, a fin de no propiciar aumentos en el esfuerzo pesquero.

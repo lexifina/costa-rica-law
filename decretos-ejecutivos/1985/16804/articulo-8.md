@@ -1,0 +1,1 @@
+Artículo 8°—Se fija en 10 metros la eslora máxima autorizada para las embarcaciones artesanales en pequeña escala que al amparo del presente Decreto deseen realizar actividades de pesca comercial en las zonas establecidas en el artículo 6°

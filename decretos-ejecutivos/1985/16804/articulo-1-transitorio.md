@@ -1,0 +1,2 @@
+Transitorio.—El Ministerio de Agricultura y Ganadería podrá renovar por períodos iguales los permisos de pesca artesanal, a personas que no reuniendo las calidades señaladas en el artículo 1° del presente Decreto, tuvieren permiso de pesca vigente al 15 de octubre de 1981 y durante el período de vida útil de cada embarcación.
+Dado en la Presidencia de la República.—San José, a los dieciséis días del mes de diciembre de mil novecientos ochenta y cinco.
