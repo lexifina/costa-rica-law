@@ -1,1 +1,1 @@
-Artículo 9º.-Para el gasto e inversión de los fondos provenientes de subvenciones estatales, municipales o de cualquier ente público, así como de los auxilios económicos que le proporcionen entidades no estatales, los Centros Agrícolas Cantonales está sujetos a lo dispuesto en el Capítulo Cuarto, Título V de la Ley de la Administración Financiera de la República y demás leyes pertinentes de ordenamiento fiscal.
+Artículo 9º.-(Derogado por el artículo 52 de la ley N° 7064 del 29 de abril de 1987)

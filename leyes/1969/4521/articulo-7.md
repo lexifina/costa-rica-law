@@ -2,7 +2,8 @@ Artículo 7º.-Los Centros Agrícolas Cantonales tendrán los siguientes deberes
 a) Colaborar en la ejecución del Plan Agropecuario Nacional y participar en la elaboración de los proyectos de trabajo de la Agencia de Extensión Agrícola;
 b) Colaborar con el Ministerio de Agricultura y Ganadería en el estudio, programación y ejecución de los proyectos de diversificación agrícola;
 c) Estudiar los problemas agropecuarios de la región y recomendar las políticas y el programa de acción a seguir para su adecuada solución;
-d) Elaborar los presupuestos ordinarios y extraordinarios, enviándolos a la Contraloría General de la República para su aprobación;
+d) Elaborar los presupuestos ordinarios y extraordinarios. Las subvenciones que reciban de diferentes entidades y organismos estatales serán supervisadas por la Contraloría General de la República. A más tardar el 31 de enero de cada año, se debe remitir a esa institución la liquidación de los presupuestos del año anterior financiados con recursos del Estado.
+(Así reformado el inciso anterior por el artículo 52 de la ley N° 7064 del 29 de abril de 1987)
 e) Solicitar la cooperación y establecer la coordinación necesaria con la labor de las dependencias de otros ministerios, instituciones autónomas, organismos locales y extranjeros o internacionales, que tengan relación con la agricultura y con el bienestar de la comunidad;
 f) Promover y colaborar en toda campaña que tienda a la preservación de los recursos naturales renovables y su racional aprovechamiento;
 g) Cooperar estrechamente con la Agencia de Extensión Agrícola para crear en la zona una verdadera consciencia agraria, fomentando la enseñanza, la investigación y la extensión agrícolas, con el firme propósito de alcanzar el mejoramiento de la producción, de la economía y de la vida rural;
