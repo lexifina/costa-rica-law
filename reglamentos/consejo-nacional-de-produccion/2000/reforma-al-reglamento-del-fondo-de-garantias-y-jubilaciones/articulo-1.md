@@ -1,0 +1,5 @@
+CONSEJO NACIONAL DE PRODUCCIÓN
+El Consejo Nacional de Producción avisa que mediante acuerdo N° 34010. sesión N° 2220 artículo 3°, celebrada el 11 de octubre del año 2000, se acordó:
+Aprobar la siguiente modificación al artículo 14 del Reglamento del Fondo de garantías y Jubilaciones de los Empleados del Consejo Nacional de Producción, cuyo redacción ha sido recomendada por medio de oficio DAJ AAd 214-00 del 3 de agosto del 2000, de !a Dirección de Asuntos Jurídicos, para que su texto se lea en los siguientes términos.
+"Articulo 14.--EI Fondo dependerá administrativamente de la Dirección Administrativa Financiera. Se manejara por separado de la Contabilidad General del CNP, bajo la fiscalización de la Auditoria Genera! de la Institución y de acuerdo con las disposiciones de la Junta Administrativa del Fondo de Garantías y Jubilaciones".
+Esta resolución tomó el carácter de acuerdo firme con la aprobación del acta correspondiente en el articulo 2° de la sesión N° 2221 del 18 de octubre del 2000.
