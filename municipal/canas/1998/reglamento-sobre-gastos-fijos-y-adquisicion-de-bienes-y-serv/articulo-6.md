@@ -1,0 +1,1 @@
+Artículo 6°—El tesorero será el funcionario responsable de la Caja Chica. Deberá destinarse para adquirir bienes y servicios así como pagar viáticos y gastos de viaje con previa autorización del Alcalde y con base en la tabla de viáticos Municipal.

@@ -1,0 +1,1 @@
+Artículo 2°—Se autoriza al Alcalde Municipal-para realizar compras o adquisiciones de bienes y servicios, así como para suscribir gastos fijos, convenios en los cuales la Municipalidad de Cañas actúe como parte, hasta por la suma de 300.000,00 (trescientos mil colones).

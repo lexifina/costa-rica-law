@@ -1,0 +1,1 @@
+Artículo 8°—-Los pagos municipales serán ordenados por el Alcalde y se efectuarán por medie de cheque expedido por el Contador. Deberá ser filmado por el Tesorero y el Alcalde y por ningún motivo podrán expedirse.

@@ -1,0 +1,1 @@
+Artículo 7°—Se autoriza a la caja recaudadora la apertura de una caja chica por un monto de 60.000,00 (sesenta mil colones) reintegrables en forma diaria. La liquidez anterior permitirá la agilización de la labor de la caja recaudadora.
