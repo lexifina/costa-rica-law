@@ -1,5 +1,6 @@
-Atribuciones de las Juntas Cantonales
-Artículo 45.- Corresponde a las Juntas Cantonales:
-a) Nombrar las Juntas Receptoras de Votos de su cantón;
-b) Entregar a las Juntas Provinciales la documentación relativa a la elección de Presidente y Vicepresidentes de la República, Diputados a la Asamblea Legislativa y en su caso, a una Asamblea Constituyente, y a Regidores y Síndicos Municipales, que le entreguen las Juntas Receptoras de Votos;
-c) Cualquier otra función que expresamente les encomiende este Código o que sea indispensablemente derivada de las que se determinen en incisos anteriores.
+Artículo 45.- Atribuciones de las Juntas Cantonales
+Corresponderá a las Juntas Cantonales:
+a) Recomendar al Tribunal Supremo de Elecciones los nombres de las personas que serán designadas como miembros de las Juntas Receptoras de Votos de su cantón, el Tribunal deberá realizar los nombramientos a más tardar dentro de los quince días posteriores al recibo de la recomendación;
+b) Entregar, al Tribunal Supremo de Elecciones, la documentación relativa a la elección correspondiente, que reciban de las Juntas Receptoras de Votos;
+c) Otras atribuciones que les encomiende expresamente este Código o se deriven indispensablemente de las que se determinan en los incisos anteriores.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

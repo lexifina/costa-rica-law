@@ -1,3 +1,3 @@
-Caso en que el Sufragante Haga Público su Voto
-Artículo 118.- Cuando un sufragante después de haber votado, mostrare su papeleta haciendo público su voto, el Presidente de la Junta le decomisará las papeletas y las apartará con la razón correspondiente, impidiéndole depositarlas en las urnas electorales.
-(NOTA de Sinalevi: Mediante el artículo 6 de la ley N° 3556 del 25 de octubre de 1965, se indica literalmente que, para las elecciones presidenciales de 1966, que no obstante lo dispuesto en el presente artículo, “en relación con urna o urnas electorales, habrá de entenderse que se trata de una sola urna electoral correspondiente a cada Junta Receptora, la que estará construida del material que para el caso disponga el Tribunal Supremo de Elecciones”)
+Artículo 118.- Anulación de votos públicos injustificados
+Cuando después de haber votado, un sufragante hiciere público su voto, mostrando la papeleta, el Presidente de la Junta se la decomisará y la apartará, con la razón correspondiente de nulidad y le impedirá depositarla en la urna.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

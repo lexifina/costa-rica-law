@@ -1,5 +1,3 @@
-Tiempo en que Debe Renovarse la Inscripción de un Partido Político
-Artículo 73.- Cada cuatro años, a partir de su fundación, quedará sin efecto alguno el Registro de Afiliados de un partido. Deberá en consecuencia renovarse a fin de que presentadas de nuevo al Registro Civil el número de adhesiones a que se refiere el artículo 64, se anote al margen de la inscripción, su reorganización.
-Los partidos inscritos que con cuatro años de fundados no tengan anotada la reorganización de su Registro de Afiliados, serán cancelados sin más trámite.
-Sin embargo, cuando un partido político ha obtenido en la elección anterior al vencimiento de su inscripción un número de votos superior al número de adhesiones exigidas conforme al artículo 64, no estará obligado a reorganizar un Registro de Afiliados y podrá participar en la elección inmediata siguiente. En caso de que en las elecciones participen partidos coaligados, conforme a los requisitos exigidos por el artículo 62 para poder gozar de los beneficios que establece este párrafo, dicha coalición necesitará haber obtenido un número de votos superior al total de adhesiones que se requerirían para que cada partido fuera inscrito separadamente.
-(Así reformado por el artículo 1° de la ley N° 4813 del 27 de julio de 1971)
+Artículo 73.- Cancelación de inscripciones
+Se cancelarán sin más trámite las inscripciones de los partidos políticos que no participaren o no obtuvieren, en la elección respectiva, un número de votos válidos igual o superior al número de adhesiones exigidas, de conformidad con el artículo 64.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

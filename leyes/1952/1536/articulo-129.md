@@ -1,2 +1,3 @@
-Obligación de Hacer Constar en Cada Papeleta el Motivo de Nulidad
-Artículo 129.- Siempre que se declare nulo un voto se hará constar al dorso de la papeleta esa circunstancia y el fundamento de la declaratoria de nulidad, autorizando dicha nota con la firma de cualquiera de los Magistrados del organismo escrutador.
+Artículo 129.- Constancia del motivo de nulidad
+Siempre que un voto se declare nulo, el Presidente de la Junta Receptora hará constar la razón al dorso de la papeleta, así como el fundamento que respalda esa decisión y su firma.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

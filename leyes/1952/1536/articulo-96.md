@@ -1,3 +1,3 @@
-Fiscales Acreditados ante las Juntas Receptoras de Votos
-Artículo 96.- El Presidente del Comité Ejecutivo de la Asamblea de Cantón de cada partido hará el nombramiento de un Fiscal propietario y su respectivo suplente para cada Junta Receptora de Votos del correspondiente cantón.
-También podrá hacer tales nombramientos el Presidente del Comité Ejecutivo del organismo superior de cada partido.
+Artículo 96.-Fiscales de juntas receptoras de votos
+Cualquier miembro del comité ejecutivo de la Asamblea de Cantón de cada partido que intervenga en la elección con candidaturas inscritas, nombrará un Fiscal propietario y su respectivo suplente para la Junta Receptora de Votos del cantón respectivo. También podrá nombrarlos cualquier miembro del Comité Ejecutivo Superior del partido. Asimismo, cualquier miembro de este Comité podrá nombrar fiscales generales, pero solo un fiscal por partido podrá permanecer en el recinto electoral. El Tribunal Supremo de Elecciones fijará el número de fiscales generales que pueden nombrar los partidos, los cuales comunicarán ese nombramiento a la Dirección del Registro Civil.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

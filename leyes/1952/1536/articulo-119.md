@@ -1,2 +1,4 @@
-Cómo Votan los Ciegos y Quienes Tienen Algún Otro Impedimento Físico
-Artículo 119.- Los ciegos, los que no tuvieren pulgar derecho y los impedidos de ambas manos, votarán públicamente; a petición de ellos y acatando su voluntad, el Presidente de la Junta marcará las papeletas en la columna correspondiente.
+Artículo 119.- Forma de votar los discapacitados
+Podrán votar públicamente los sufragantes con alguna discapacidad que les dificulte o imposibilite emitir su voto en el lugar secreto.
+El Tribunal Supremo de Elecciones tomará todas las previsiones necesarias para que esta disposición se cumpla fielmente, en salvaguarda del derecho al libre ejercicio del sufragio.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

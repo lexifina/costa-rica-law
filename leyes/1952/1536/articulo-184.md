@@ -1,4 +1,4 @@
-Artículo 184.- El Banco Central de Costa Rica será el encargado, como agente fiscal, de la atención y pago de los bonos y cupones de intereses y del manejo de la contabilidad de ellos, de acuerdo con lo dispuesto en el artículo 121 de su Ley Orgánica. El Banco sólo estará obligado a atender el servicio de dichos valores, cuando se le haga traspaso oportuno de los fondos necesarios para ese fin.
+Artículo 184.- Pago de bonos
+El Banco Central de Costa Rica, como agente fiscal, será el encargado del pago de los bonos y cupones de intereses y de su manejo en la contabilidad, conforme a lo dispuesto en su Ley Orgánica. El Banco sólo estará obligado a atender el servicio de tales valores, cuando se traspasen oportunamente los fondos necesarios para este fin.
 (Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)
-(Así reformado por el artículo 1° de la ley N° 4794 del 16 de julio de 1971)
-(La Sala Constitucional mediante resolución N° 980 del 24 de mayo del 1991, anuló este artículo "en cuanto prevé que los llamados bonos de Deuda Política, que conforme a ellos se emitan para el financiamiento previo de los gastos de los partidos, devengarán intereses.")
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

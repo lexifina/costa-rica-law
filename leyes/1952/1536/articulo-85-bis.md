@@ -1,0 +1,4 @@
+Artículo 85 bis.-Transporte de los electores
+El día de las elecciones, así como la víspera y el día posterior, los concesionarios y permisionarios de transporte remunerado de personas en la modalidad de autobuses con ruta asignada, deberán prestar el servicio como si fuera un día ordinario y deberán poner sus vehículos y personal a disposición del Tribunal. Los partidos políticos no podrán contratar este servicio remunerado para el transporte de electores durante esos días. El Tribunal reglamentará los mecanismos necesarios para cumplir con estas disposiciones.
+Transitorio.- Las disposiciones contenidas en el artículo 85 bis tendrán vigencia a partir del proceso electoral inmediatamente posterior al previsto para febrero de 1998.
+(Así adicionado incluyendo el transitorio por el artículo 3° de la ley N° 7653 del 10 de diciembre de 1996)

@@ -1,6 +1,3 @@
 Debe de garantizar el 30% por financiación anticipada
-Artículo 195: Los partidos políticos que hubieren alcanzado el porcentaje establecido en el inciso c) del artículo 96 de la Constitución Política , deberán garantizar el cincuenta por ciento de cada cantidad que reciban por concepto de financiación anticipada, con pagarés u otras garantías, por un monto no mayor de 20,000.00 colones cada una. En el caso de las garantías personales deben corresponder a personas físicas o jurídicas de reconocida solvencia moral y económica.
-Los pagarés tendrán un plazo de vencimiento no mayor de ocho meses, después de la fecha de las elecciones, y un interés igual al de los Bonos Deuda Política, sin perjuicio de que puedan ser ejecutados proporcionalmente si el pago total a que tuviere derecho el partido, una vez efectuada la liquidación final según el artículo 187 anterior, resultará inferior a la cantidad recibida por concepto de financiamiento anticipado.
-Los pagarés serán conservados en depósito, confidencialmente, por la Contraloría General de la República.
+Artículo 195: (Derogado por el artículo 4° de la ley N° 7653 del 10 de diciembre de 1996)
 (Así adicionado por el artículo 1° de la ley N° 4794 del 16 de julio de 1971)
-(Así reformado este artículo mediante resolución de la Sala Constitucional N° 980-91 del 24 de mayo de 1991 y adicionada por resolución de la misma Sala N° 1697 del 23 de junio de 1992.)

@@ -1,0 +1,6 @@
+Artículo 85 ter.-Divulgación de encuestas y sondeos
+Para llevar a cabo su actividad en el período electoral, las empresas dedicadas a elaborar encuestas y sondeos de opinión de carácter político-electoral, deberán registrarse ante el Tribunal Supremo de Elecciones dentro de los quince días posteriores a la convocatoria de elecciones, con la indicación del nombre, las calidades del responsable y de los miembros de la empresa, así como otros datos que respalden su idoneidad para llevar a cabo esta labor, lo cual será reglamentado por el Tribunal Supremo de Elecciones.
+Prohíbese la difusión o publicación, parcial o total, por cualquier medio, de sondeos de opinión pública o encuestas relativas a procesos eleccionarios, durante los dos días inmediatos anteriores al de las elecciones y el propio día.
+Cuando la violación sea cometida por los partidos políticos, se les sancionará, con una disminución del cinco por ciento (5%) del aporte estatal que les corresponda luego de la liquidación de gastos ante el Tribunal Supremo de Elecciones, lo anterior sin perjuicio de lo previsto en el inciso c) del artículo 151 de este Código
+El Tribunal Supremo de Elecciones trasladará al Ministerio Público el expediente, dentro de las cuarenta y ocho horas siguientes a que ocurra la violación.
+(Así adicionado por el artículo 3° de la ley N° 7653 del 10 de diciembre de 1996)

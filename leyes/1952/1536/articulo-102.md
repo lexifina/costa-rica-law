@@ -1,4 +1,4 @@
-Hora en que se Efectuarán las Votaciones
-Artículo 102.- La votación debe efectuarse sin interrupción, durante el tiempo comprendido entre los cinco y las dieciocho horas del día señalado, en el local predeterminado con tal objeto.
-Si la votación no se iniciare a las cinco horas, podrá abrirse más tarde, siempre que no sea después de las doce horas.
-(Así reformado por el artículo 1° de la ley N° 1604 del 15 de julio de 1953)
+Artículo 102.- Período de votación
+La votación deberá efectuarse sin interrupción, durante el período comprendido entre las seis y las dieciocho horas del día señalado, y en los recintos predeterminados para emitir el sufragio.
+Si la votación no se iniciare a las seis horas, podrá abrirse más tarde siempre que no sea después de las doce horas.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

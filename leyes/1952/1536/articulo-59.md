@@ -1,3 +1,4 @@
-Exclusividad del Nombre y la Divisa de un Partido
-Artículo 59.- No se admitirá la inscripción de un partido con nombre o divisa iguales o similares al de otro partido inscrito en el Registro o con derecho de prelación para ser inscrito, cuando la segunda inscripción pudiera producir confusión.
-Tampoco se admitirán como divisa la bandera ni el escudo nacionales, ni de otro país.
+Artículo 59.- Exclusividad del nombre y la divisa
+No se admitirá la inscripción de un partido con nombre o divisa iguales o similares a los de otro partido inscrito en el Registro o con derecho de prelación para ser inscrito, cuando la segunda inscripción pudiere producir confusión. Tampoco se admitirán como divisa la bandera ni el escudo costarricenses, ni los de otros países.
+Los partidos políticos inscritos podrán cambiar su nombre o divisa, previo acuerdo del órgano superior del partido, en cualquier momento, excepto dentro de los ocho meses anteriores a una elección, siempre y cuando se ajusten a lo dispuesto en el párrafo anterior. Para este efecto se aplicará el mismo procedimiento indicado en el artículo 67.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)
