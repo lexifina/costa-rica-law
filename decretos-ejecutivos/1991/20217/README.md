@@ -21,3 +21,4 @@ Régimen Tarifario para la Prestación de Servicios y Facilidades Aeroportuarias
 | 6 | 1995-02-24 | Decreto Ejecutivo 24088 (1995-02-24) |
 | 7 | 1995-03-27 | Decreto Ejecutivo 24144 (1995-03-27) |
 | 8 | 1995-03-27 | Decreto Ejecutivo 24168 (1995-03-27) |
+| 9 | 1995-04-21 | Decreto Ejecutivo 24203 (1995-04-21) |
