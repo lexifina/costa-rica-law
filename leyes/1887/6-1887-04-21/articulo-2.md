@@ -1,0 +1,4 @@
+Art. 2°. -Las penas de deportación, presidio en San Lucas y presidio interior no son conmutables.
+Las demás penas corporales podrán conmutarse por extrañamiento ó confinamiento en casos muy excepcionales y por motivos muy calificados. En este caso el agraciado sufrirá extrañamiento ó confinamiento por tiempo doble del que se le designó de la pena primitiva. El Poder Ejecutivo, con conocimiento de causa, podrá conceder ó negar la conmutación.
+Las penas impuestas por simples delitos, excepto la de presidio interior menor, podrán conmutarse por multa de ciento uno á mil pesos. El Poder Ejecutivo graduará la suma atendiendo á la naturaleza del delito y á los recursos pecuniarios del solicitante.
+Para toda conmutación se pedirá informe á la Corte Suprema de Justicia, y cuando se verificaré en multa, el agraciado estará sujeto á las prescripciones del artículo 108 del Código Penal.
