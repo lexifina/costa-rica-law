@@ -1,0 +1,13 @@
+Nº 30114-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En uso de las facultades que le confieren los incisos 3 y 8 del artículo 140 de la Constitución Política
+Considerando:
+1º—Que en razón de la actividad de la Dirección General de Servicio Civil de administrar bienes y servicios públicos y prestar servicios de la misma naturaleza con la única intención de lograr una función eficaz, dinámica y activa, se implantan mecanismos de control y seguimiento de las áreas y sus servidores.
+2º—Que el artículo 48 del Reglamento Autónomo de Servicio y Organización de la Dirección General de Servicio Civil, Decreto Ejecutivo N° 25813-MP, publicado en La Gaceta N° 36 del 20 de febrero de 1997, remite a la normativa del artículo 41 del Reglamento del Estatuto de Servicio Civil, mediante el cual se autoriza a las Unidades de Recursos Humanos para que diseñen sistemas de medición adecuados a las circunstancias presentes.
+3º—Que la Dirección General de Servicio Civil, conciente de las nuevas exigencias, que persiguen la calidad en la gestión y prestación de los servicios, diseñó un nuevo Sistema de Medición de Resultados y Rendición de Cuentas en el que se introducen elementos, para medir de manera objetiva con base en parámetros de verificación cualitativos y cuantitativos en el ámbito individual y grupal.
+4º—Que la presente modificación al Reglamento Autónomo de Servicio y Organización de la Dirección General de Servicio Civil, fue autorizado por la Asesoría Jurídica de la Dirección General de Servicio Civil, mediante oficio AJ-702-2001, de fecha 30 de noviembre del 2001. Por tanto,
+Decretan:
+Artículo 1º—Agregar el artículo 48 bis al Reglamento Autónomo de Servicio y Organización de la Dirección General de Servicio Civil (Decreto Ejecutivo N° 25813-MP, publicado en La Gaceta N° 36 del 20 de febrero de 1997), para que en lo sucesivo se lea:
+Los servidores, regulares e interinos, de la Dirección General de Servicio Civil deberán ser evaluados de conformidad con el artículo 41 del Reglamento del Estatuto de Servicio Civil y con base en el Sistema de Medición de Resultados y Rendición de Cuentas (SIMERC)
+Este sistema permitirá la medición de resultados y rendición de cuentas de las áreas y sus integrantes en forma sistemática y permanente. Para tales efectos el Sistema hará uso de una serie de instrumentos que permitirán la medición de resultados y rendición de cuentas en aspectos cualitativos y cuantitativos en los ámbitos grupal e individual, los cuales para su aplicación inicial y siguientes, deberá estar aprobados vía resolución emitida por la Dirección General de Servicio Civil.
