@@ -1,0 +1,1 @@
+Artículo 4º—Una vez instalado el cable el Desarrollador del Sistema entregará a las autoridades correspondientes una hoja cartográfica que contenga el trazado exacto de la ubicación del sistema ARCOS-1 en el territorio costarricense.
