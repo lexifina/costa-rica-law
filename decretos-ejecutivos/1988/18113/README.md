@@ -13,3 +13,4 @@ Declara Emergencia Nacional Transporte Marítimo Granos Básicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-05-12 | la propia norma |
+| 2 | 1988-05-12 | Decreto Ejecutivo 20123 (1990-12-07) |
