@@ -1,0 +1,3 @@
+Artículo 5° Las obligaciones serán al portador.
+Estas serán redactadas según un modelo convenido antes de todo pago por los Banqueros, de acuerdo con el Representante del Gobierno de la República de Costa Rica, en el idioma francés y español y llevarán agregada una hoja de cupones, igualmente impresa en los mismos idiomas. Los cupones serán semestrales.
+Las obligaciones llevaran además un talón y la República proporcionará a mas tardar, un mes después del vencimiento del último cupón agregado a la obligación original a sus expensas y entregable en París, una nueva hoja de cupones que será cambiada por el talón agregado a las obligaciones, sin gasto para los portadores o para los Banqueros.

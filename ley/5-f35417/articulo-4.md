@@ -1,0 +1,2 @@
+Artículo 4° La República de Costa Rica se comprometerá a llenar todas las formalidades necesarias para obtener la cotización del presente empréstito, en las Bolsa oficial de París, siendo entendido que el presente contrato no surtirá sus efectos, sino desde el momento en que la cotización oficial del mercado de Paris haya sido formalmente acordada. Los Banqueros ayudarán a la República a obtener dicha cotización en el plazo mas breve posible.
+Todos los gastos y derechos ocasionados por esta admisión a la cotización serán soportados por la República.

@@ -1,0 +1,3 @@
+Artículo 12° La República de Costa Rica se compromete a reponer con títulos nuevos los títulos deteriorados que no fueren aceptables o que fueren declarados como tales por las autoridades de la Bolsa de Paris.
+La República se compromete, además, a conformarse con las leyes francesas en todo lo que concierne a los títulos robados o perdidos.
+Los términos para la prescripción se fijan: para los cupones, en diez años, contados a partir de su vencimiento y para las obligaciones salidas en los arqueos de reembolso o llamadas para el reembolso en su treinta años a partir de la fecha de la amortización.
