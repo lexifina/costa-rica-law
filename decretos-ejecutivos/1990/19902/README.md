@@ -14,3 +14,4 @@ Reforma Reglamento Tareas y Funciones Ministerio Relaciones Exteriores y Reglame
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-08-20 | la propia norma |
+| 2 | 1994-06-01 | Decreto Ejecutivo 23419 (1994-06-01) |
