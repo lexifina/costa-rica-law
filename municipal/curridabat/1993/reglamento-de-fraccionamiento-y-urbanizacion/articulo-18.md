@@ -1,0 +1,1 @@
+Artículo 18 —Los traspasos de las calles y áreas verdes en toda segregación y urbanización se harán ante el notario público que la Municipalidad designe para que proteja sus derechos, el costo de los mismos será cubierto por el urbanizador.

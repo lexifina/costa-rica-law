@@ -1,0 +1,1 @@
+Artículo 16 —El amansamiento de toda urbanización en cuanto a tamaño, tipo, forma o bloques, será conforme lo establece el Plan Regulador, y el Reglamento de Zonificación y el Reglamento para el Control Nacional de fraccionamiento y Urbanización.

@@ -1,0 +1,1 @@
+Artículo 15 —Los anchos de las vías de urbanizaciones, así como de las aceras, serán conforme el Reglamento de Zonificación, y el Plan Regulador y el Reglamento para el Control Nacional de fraccionamiento y Urbanización.

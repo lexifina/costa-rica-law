@@ -1,0 +1,1 @@
+Artículo 19—La Municipalidad no autorizará el visado de planos y permisos de construcción si el urbanizador no ha traspasado formalmente a la Municipalidad calles, las áreas verdes y de facilidades comunales.
