@@ -1,2 +1,1 @@
-Artículo III.—Descripción de la cuenta comercial
-La Cuenta Comercial es una cuenta de ahorros por medio de la cual, tanto personas físicas como jurídicas, puedan realizar colocaciones de dinero a la vista ganando intereses diarios acreditables quincenalmente.
+Artículo III.—Descripción de la Cuenta Comercial: La Cuenta Comercial es una cuenta de ahorros por medio de la cual, tanto personas físicas como jurídicas, puedan realizar colocaciones de dinero a la vista ganando intereses diarios acreditables quincenalmente.

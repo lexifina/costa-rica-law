@@ -1,4 +1,1 @@
-Artículo XV.—Otros aspectos
-Es responsabilidad exclusiva del ahorrante velar por el buen uso de su libreta de ahorros, por lo tanto, releva de dicha obligación a la Mutual.
-Este reglamento regula todas las cuentas existentes y futuras.
-En Junta Directiva de la Mutual Alajuela, fijará la tasa de interés y la forma de pago de los mismos.
+Artículo XV.—Sobre la Garantía de las Cuentas: Las cuentas de ahorro reguladas en el presente reglamento cuentan con la garantía subsidiaria del Estado, de conformidad con lo establecido en el Reglamento del Sistema Financiero Nacional para la Vivienda sobre garantías de los Títulos Valores, Cuentas de Ahorro y Fondos de Garantía y de Estabilización.
