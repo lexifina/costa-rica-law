@@ -1,0 +1,6 @@
+Artículo 33-El coordinador del Sector en la región tendrá las siguientes funciones:
+a) Formar parte del Consejo Regional de Desarrollo y del Comité Técnico Intersectorial respectivamente, así como de cualquier otro foro o en cualquier situación de emergencia donde se requiera la participación del Sector como tal, o en negociaciones con grupos especiales de interés o presión, a menos que el Ministro del Sector disponga lo contrario expresamente, según las circunstancias;
+b) Ofrecer el aporte del Sector, cuando sea posible y ante peticiones o solicitudes concretas del Consejo Regional de Desarrollo;
+c) Coordinar las actividades del Sector en la región;
+d) Reportar al Ministro del Sector o a la Secretaria Ejecutiva de Planificación Sectorial cualquier anomalía por parte de los otros miembros del Comité Sectorial, a fin de que aquél recomiende las acciones correctivas pertinentes a los superiores jerárquicos del ente, con el fin de corregir así tales anomalías; y
+e) Enviar al Ministro respectivo cada dos meses, un informe detallado de las actividades del sector en la región, con copia al Consejo Regional de Desarrollo, indicando avance de planes y programas de trabajo, logros, obstáculos, aprovechamiento de recursos, etc.

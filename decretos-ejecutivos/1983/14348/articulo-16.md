@@ -1,0 +1,1 @@
+Artículo 16.-Dicha Comisión deberá reunirse por lo menos una vez al mes, previamente a la reunión mensual del Consejo Nacional Sectorial y será un foro donde se analicen, coordinen y propongan asuntos comunes del Sector Economía y Comercio.

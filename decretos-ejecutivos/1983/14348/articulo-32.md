@@ -1,0 +1,1 @@
+Artículo 32.-El Comité Sectorial Regional será coordinado por uno de sus miembros nombrados al efecto por decreto del Ministro del Sector Economía y Comercio conjuntamente con el Presidente de la República.
