@@ -1,0 +1,1 @@
+Artículo 3º—Para la implementación de la Ley número 7852, Desconcentración de los Hospitales y Clínicas de la Caja, se incorporan los principios filosóficos que privaron para su promulgación, con la finalidad de administrar y gestionar, con mayor oportunidad, los recursos humanos según los requerimientos de la administración actual.

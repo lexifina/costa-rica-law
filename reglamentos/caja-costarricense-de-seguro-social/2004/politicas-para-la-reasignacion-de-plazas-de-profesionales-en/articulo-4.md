@@ -1,0 +1,6 @@
+CAPÍTULO II
+Disposiciones generales en materia de reasignación de plazas de profesionales en ciencias de la salud:
+Artículo 4º—Plazas vacantes u ocupadas interinamente. Se podrán reasignar plazas de profesionales en Ciencias de la Salud cubiertos por la Ley Nº 6836 que estén vacantes u ocupadas interinamente, bajo las siguientes condiciones:
+a) Cuando el Servicio requiera de una plaza de otra categoría, para el cumplimiento de los objetivos cuya necesidad debe ser demostrada ante las Autoridades Superiores, con base en el diagnóstico situacional y el cuadro epidemiológico de la población adscrita a la unidad de trabajo a que pertenece la plaza.
+b) Cuando la ubicación de la categoría de la plaza corresponda a una estructura organizativa previamente establecida y aprobada, con fundamento en factores como: ampliación de la cobertura, nivel de especialización, nivel de resolución ambiental que modifican las condiciones de salud, aspectos poblacionales y otros de interés institucional.
+c) Cuando se haya cumplido con las condiciones indicadas en los incisos a y/o b, anteriores, las plazas deben ser publicadas en concurso, de acuerdo con lo que establece la Ley Nº 3671 Estatuto de Servicios Médicos y el Reglamento, Ley Nº 5462 y el Reglamento de Microbiología Química Clínica, así como el Reglamento de Reclutamiento y Selección para Odontología y Farmacia.
