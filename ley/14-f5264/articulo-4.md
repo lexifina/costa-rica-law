@@ -1,0 +1,1 @@
+Art 4° Se autoriza al mismo Poder Ejecutivo para invertir del Tesorero Público hasta la suma de cincuenta mil pesos, en la compra de armas de precisión y útiles de guerra, conforme a las invenciones modernas de la ciencia, militar a las invenciones modernas de la ciencia, militar, y en hacer venir y remunerar un inteligente Jefe de Instrucción.
