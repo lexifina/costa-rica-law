@@ -1,0 +1,1 @@
+Artículo 4° Auxiliase a la colonia de El General con la cantidad de cinco mil colones para la compra y montaje de una máquina de aserrar maderas, otra de beneficencia arroz y las mas que el Poder Ejecutivo crea conveniente instalar allí para el Progreso de la Colonia.

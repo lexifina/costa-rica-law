@@ -1,0 +1,1 @@
+Artículo 7° Desde que el camino de que se habla en el artículo 1° este abierto al tráfico, uno de los vapores nacionales del Pacífico hará dos viajes por mes con itinerario fijo al puerto respectivo, para el transporte de pasajeros correspondiente y carga entre Puntarenas y la colonia.
