@@ -1,0 +1,2 @@
+2°—En su lugar, y por el orden indicado, nómbrase a los señores Claudio González Quirós, Licenciado Rogelio Valverde Vega y Licenciado Otto Fallas Monge, miembro propietario el primero y suplentes los demás, para completar dicha Junta por el resto del período de las personas reemplazadas.
+Nombrar, asimismo, al señor Warren Bonilla Antillón como miembro suplente, en sustitución del presbítero Benjamín Núñez, quien por ley pasa a ser propietario;
