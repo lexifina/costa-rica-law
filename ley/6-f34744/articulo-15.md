@@ -1,0 +1,2 @@
+Art. 15.-Del presente decreto se dará cuenta al Congreso Constitucional en su primera reunión ordinaria.
+AL PODER EJECUTIVO. -Dado en el salón de sesiones del Palacio Nacional, en San José, á los veinticinco días del mes de febrero de mil ochocientos ochenta y cuatro.-A. DE JESÚS SOTO, Presidente.- LEOVIGILDO CASTRO S., Secretario.-Palacio Presidencial.-San José, á veinticinco de febrero de mil ochocientos ochenta y cuatro.-Ejecútese.-P. FERNÁNDEZ.-Por el Honorable Secretario de Estado en el Despacho de Justicia, el de lo Interior.-BERNARDO SOTO.

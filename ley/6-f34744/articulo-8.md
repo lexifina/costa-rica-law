@@ -1,0 +1,2 @@
+Art. 8°-En el mismo auto en que se ordene el desalojamiento, concederá el Juez al demandado ocho días, para que proponga y pruebe las excepciones que tuviere. Tanto las excepciones como la cuatro primeros días del término dicho. prueba de ellas, deberán proponerse dentro de los
+El actor podrá, para combatir las excepciones, proponer prueba dentro de todo el término de ocho días de que habla este artículo.
