@@ -1,1 +1,0 @@
-Artículo 4°.- Tanto al personal propiamente docente como al personal técnico docente y administrativo-docente, le son aplicables las disposiciones reglamentarias pertinentes de los respectivos Títulos del Estatuto.
