@@ -1,0 +1,1 @@
+Art 3° La Administración General del ramo, mandará arreglar las medidas necesarias para la venta, en conformidad con lo que dispone el presente Decreto, las cuales cambiará sin exigir pago alguno, por las que actualmente tienen en uso los expendedores. - Dado en el Palacio Nacional de San José a los ocho días del mes de octubre de mil ochocientos sesenta y nueve.
