@@ -1,0 +1,1 @@
+Artículo 75—En cualquier tiempo en que un Diputado se inhabilitare, después de admitido en el Congreso por alguna de las causas enumeradas en el artículo 68, se declarará por el Congreso su inhabilidad y perder inmediatamente el cargo.

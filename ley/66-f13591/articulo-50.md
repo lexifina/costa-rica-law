@@ -1,0 +1,1 @@
+Artículo 50.—Cuando sea convocada una Asamblea, el Gobernador ó Jefe Político en su caso, además de procurar que se cite personalmente á los electores. publicará por carteles, con anticipación de ocho días ó más, la convocatoria, con expresión de su objeto y del día, hora y local de la reunión.

@@ -1,0 +1,2 @@
+Artículo 124.—Los reos de cohecho ó soborno en asuntos de elecciones, serán castigados conforme á los artículos 271 a 274 del Código Penal.
+AL PODER EJECUTIVO. Dado en el salón de sesiones del Palacio Nacional, en San José, á los veintinueve días del mes de julio de mil ochocientos ochenta y nueve.—MANL ARAGÓN, Presidente. - F. AGUILAR B., Secretario. -Félix GONZÁLEZ, Secretario. Palacio Presidencial.-San José, dos de agosto de mil ochocientos ochenta y nueve.—Ejecútese.- ASCENSIÓN ESQUIVEL. El Secretario de Estado en el despacho de Gobernación, —SANTIAGO DE LA GUARDIA.

@@ -1,0 +1,1 @@
+Artículo 120.—Cuando una Junta Electoral dejare de formar la lista de sufragantes en los términos establecidos por la ley, cada uno de los miembros culpables incurrir en una multa de veinticinco á cincuenta pesos.

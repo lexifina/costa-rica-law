@@ -1,0 +1,1 @@
+Artículo 25. -Las resoluciones de esta Junta son apelables para ante la Junta electoral de provincia ó comarca, á quien, llegado el caso, la Junta, de la cual se a-pela, remitirá copia certificada de aquella diligencia.

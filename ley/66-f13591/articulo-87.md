@@ -1,0 +1,1 @@
+Artículo 87.-Si del escrutinio resultare que ninguno ha reunido la pluralidad absoluta ó se declarare conforme á lo dispuesto en el artículo 83, que no hay elección, se procederá á perfeccionarla entre los dos ó más que hayan obtenido mayor número de votos, anunciando el Presidente cuales son aquellos entre quienes deba recaer la elección

@@ -1,0 +1,1 @@
+Artículo 27. —Con los resultados de estas reclamaciones procederá la Junta de distrito á hacer una lista adicional de los ciudadanos nuevamente inscritos, y anotará en la lista principal las bajas que ocurrieren.

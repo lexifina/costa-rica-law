@@ -1,0 +1,1 @@
+Artículo 85.—Cualquier miembro del Congreso podrá entonces pedir que se declare que no hay elección, si creyere que el que ha reunido la expresada pluralidad de votos, no tiene las calidades requeridas por la Constitución. En este caso se procederá como queda dispuesto en el artículo 81.

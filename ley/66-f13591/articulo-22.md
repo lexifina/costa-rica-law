@@ -1,0 +1,2 @@
+Artículo 22.—Estas listas llevarán al pie la expresión del número de ciudadanos que ellas contienen y se ex-, tenderán por duplicado: un ejemplar será reservado para que sirva en los actos de la votación y el otro se tijara en el lugar mas público para los efectos que se expresan.
+Después de firmada la lista por la Junta no pueden hacerse nuevas inscripciones, ni borrar á los inscritos, sino á virtud de una reclamación intentada. y decidida contorme á esta ley.
