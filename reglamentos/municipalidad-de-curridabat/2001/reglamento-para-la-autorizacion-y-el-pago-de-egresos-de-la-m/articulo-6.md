@@ -1,0 +1,2 @@
+Pagos Municipales
+Artículo 6°—Tanto en el caso de los egresos autorizados por el Alcalde Municipal: según lo señalado en el articulo 1° de este Reglamento, como de los autorizados por el Concejo Municipal, según lo dispuesto en el artículo 2° de este Reglamento, los pagos deberán ser ordenados por el Alcalde, conforme lo establecido en el articulo 2° de este Reglamento y/o el funcionario responsable del área financiera.

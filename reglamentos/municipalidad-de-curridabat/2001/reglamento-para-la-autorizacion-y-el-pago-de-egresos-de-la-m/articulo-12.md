@@ -1,0 +1,1 @@
+Articulo 12. El Tesorero Municipal no hará pago alguno, sin orden escrita, acuerdo municipal, resolución del Alcalde, pago por servicio, orden de compra o cualquier otro tipo de disposición emitida por el órgano municipal competente que lo autorice al electo, so pena de que se le apliquen las sanciones consignadas en el articulo 110 del Código Municipal.

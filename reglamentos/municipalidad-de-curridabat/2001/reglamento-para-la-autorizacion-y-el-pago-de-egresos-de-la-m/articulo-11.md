@@ -1,0 +1,1 @@
+Articulo 11.—Todo pago deberá hacerse con cargo a la partida presupuestaria respectiva y en ajuste a lo contemplado en los artículos 101 y 103 del Código Municipal. Para esos efectos, el Departamento de Contabilidad deberá hacer constar de previo y por escrito, que existe el respectivo contenido presupuestario en relación con el pago de que se trate.
