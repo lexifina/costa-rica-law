@@ -1,0 +1,1 @@
+ARTÍCULO 3.- La República de Costa Rica interpreta que la disposición establecida en el artículo IV.10 del Convenio se refiere a las aeronaves de los Estados Unidos de América pertenecientes a las autoridades del orden, policiales y no militares estrictamente.
