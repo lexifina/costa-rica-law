@@ -1,0 +1,1 @@
+Art. 58.-El cabo general es el jefe de todas las rondas, y de cada una lo será igualmente su cabo respectivo, debiendo aquel estar al celo de ellas para que cada una cumpla con su obligacion, y destinarlas entre el partido á que correspondan, á los puntos donde convenga celar.

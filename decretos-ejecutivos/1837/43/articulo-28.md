@@ -1,0 +1,1 @@
+Art 28.-Cuando algun hacendado quiera emprender destilacion de aguardiente para extraher, no lo podrá hacer sino es en las fábricas permitidas, y con convenio de todos los rematarios de los distritos del partido; con las mismas prevenciones del artículo anterior para verificar la exportacion.

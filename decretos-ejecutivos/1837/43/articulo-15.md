@@ -1,0 +1,1 @@
+Art. 15.-Las patentes no podrán librarse por menor término que el de tres meses en cada año, sin perjuicio de que el postor la solicite por mayor tiempo; quedando desde luego comprometido por aquel que pidió sobre el prefijado.

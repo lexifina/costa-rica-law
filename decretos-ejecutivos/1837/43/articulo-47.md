@@ -1,0 +1,1 @@
+Art. 47.-Los Jueces y Tribunales de apelaciones de este ramo, serán juzgados en razon de las quejas que ocurran contra ellos, en la misma forma establecida para juzgar á los demas Jueces y Tribunales en los negocios comunes.

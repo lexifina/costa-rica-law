@@ -1,0 +1,1 @@
+Art 55.-Las fábricas clandestinas corresponden á los rematarios del partido, y de su valor le darán aquellos la cuarta parte á la ronda que hizo la aprehension, ó no habiendo esta tenido parte, corresponde al denunciante; y si lo tuvo, la ronda le participará con el tercio de su parte.

@@ -1,0 +1,1 @@
+Art. 32.-Esta no permitirá que las ventas establecidas ya sean de licor del pais, ó del extranjero se coloquen en lugares escusados, debiendo ser en los mas públicos para facilitar el zelo y vijilancia prevenida; y por tanto los rematarios no colocarán sus puestos sin conocimiento y anuencia de la misma, quien será estrechamente responsable del no cumplimiento de esta prevención.

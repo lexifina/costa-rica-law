@@ -1,0 +1,1 @@
+Art. 38.-El dueño de fábrica permitida, que consienta fabricar en ella á alguna persona que no sea de los rematarios del partido, se tendrá por clandestinario, é‚ incurso en las penas del artículo anterior.

@@ -1,0 +1,1 @@
+Art 54.-El aguardiente clandestino que se aprehenda, será su valor de la ronda que lo aprehendió al precio de venta por mayor, tomándolo los rematarios del partido: si hubiese denunciante, se le participará con la tercera parte del producido.

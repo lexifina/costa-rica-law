@@ -1,0 +1,1 @@
+Art. 21.-No se venderá al fiado ni sobre prenda, bajo la pena de perder uno y otro: tampoco se consentirá por los dueños de ventas ó fábricas, reuniones ni grupos en ellas, ni hijos de familia y domésticos. La falta de cumplimiento en las prevenciones de este artículo, la castigará la policía con multas desde uno hasta veinticinco pesos, ó con arresto que no pase de treinta dias.

@@ -1,0 +1,1 @@
+Art 56.-La ronda á quien se le acredite fraude ó coalicion con los clandestinarios será depuesta; y á mas, sufrirá veinticinco pesos de multa y seis meses de obras públicas, debiéndose entender esta para los guardas: á los cabos de rondas por igual causa se impondrá pena doble: y triple por la misma al cabo general.

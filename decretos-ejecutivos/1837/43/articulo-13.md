@@ -1,0 +1,1 @@
+Art 13.-Sin éste, tampoco podrán ponerse ventas por menor de aguardiente y mixtelas extranjeras, con la diferencia de que para obtenerlo no es requisito preciso el ser rematario de estanquillos del pais, ni es obligado el postor á poner la venta en las taquillas de esta clase.

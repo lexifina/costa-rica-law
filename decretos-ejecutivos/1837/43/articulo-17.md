@@ -1,0 +1,1 @@
+Art 17.-El valor de las patentes de mixtelas del pais, es el de cinco pesos al mes, y de veinticinco el de las extranjeras y aguardiente de esta clase. Los vinos de cualquier especie no se comprenden en este artículo.

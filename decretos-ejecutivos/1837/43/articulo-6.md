@@ -1,0 +1,1 @@
+Art 6°.-Concluídos los remates se abrirá el término de mejoras por los siguientes treinta dias, para el medio diezmo, diezmo entero y cuarta, en razon de diez dias para cada uno; entendiéndose que deben ser éstas sobre cada distrito, excepto que un postor se hubiese sacado todos os distritos de un partido, porque entonces la mejora para ser admisible debe ser á todo el partido.

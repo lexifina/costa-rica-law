@@ -1,0 +1,1 @@
+Art. 11.-Tambien podrán admitirse posturas para los partidos pendientes entre los dias restantes del mes de Diciembre, y aun en cualquiera mes del año del arrendamiento, siempre con las mismas formalidades prevenidas; pero ya sin correr el término de las mejoras por no haber tiempo para ellas.

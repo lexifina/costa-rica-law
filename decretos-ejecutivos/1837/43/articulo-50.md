@@ -1,0 +1,1 @@
+Art. 50.-Cada ronda tendrá un cabo respectivo, nombrando la Intendencia á propuesta de la administracion principal un cabo general, dándole á éste el Despacho competente en papel de oficio: el cabo general propondrá á la misma Intendencia los cabos de ronda y los guardas de cada una, y aquella le librará su Despacho á las mismas, tambien en papel de oficio.

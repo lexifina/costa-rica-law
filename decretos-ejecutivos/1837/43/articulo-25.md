@@ -1,0 +1,1 @@
+Art. 25.-El Aguardiente que se dé á la venta en los puestos permitidos, debe tener dos meses de reposo por lo menos, no pudiendo bajar de veinte grados; la policía cuidará del exácto cumplimiento de esta disposición, bajo su mas estrecha responsabilidad; haciendo se derrame el que se reconozca sin estas cualidades.

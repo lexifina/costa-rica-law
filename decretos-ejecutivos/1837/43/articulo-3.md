@@ -1,0 +1,1 @@
+Art 3°-No se admitirá postura que no sea por todo un distrito; pero no se procederá á rematarlo hasta que no la tengan todos los de aquel partido. Tampoco se admitirá postura por todo un partido, á menos que el postor se sujete al remate de uno á uno de los distritos que comprende el mismo partido.

@@ -1,0 +1,2 @@
+Disposiciones especiales.
+Art. 62.-Los asentistas que dejan de serlo darán conocimiento el día último de Diciembre á los rematarios del año entrante de la porcion de aguardiente que les haya quedado de su arrendamiento; que no podrá exceder del necesario para el prudente consumo en dos meses del puesto ó puestos de que hayan sido dueños; y serán obligados los unos á vender y los otros á comprar al precio por mayor conforme la práctica acostumbrada; y de no presentarlo, caerá la porcion en comiso y se tendrá por clandestinario á su dueño.

@@ -1,0 +1,1 @@
+Art. 51.-La dotacion del resguardo es la siguiente: al cabo general doscientos pesos annuales, á los de rondas ciento cincuenta pesos cada uno; y á los guardas ciento veinte pesos cada uno, tambien annualmente.

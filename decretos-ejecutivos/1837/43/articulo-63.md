@@ -1,0 +1,1 @@
+Art. 63.-El sobrante que se reconozca será obligado el rematario saliente dentro de dos meses á extraerlo fuera del Estado, ó á venderlo á cualquiera otro rematario de los entrantes del mismo partido; y no haciendolo así, le será decomisado en favor de estos.
