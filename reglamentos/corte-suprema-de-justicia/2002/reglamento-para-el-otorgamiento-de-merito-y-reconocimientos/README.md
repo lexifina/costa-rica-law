@@ -13,3 +13,4 @@ Reglamento para el otorgamiento de mérito y reconocimientos a servidores y depe
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-01 | la propia norma |
+| 2 | 2004-02-02 | Reglamento 3 (2004-02-02) |
