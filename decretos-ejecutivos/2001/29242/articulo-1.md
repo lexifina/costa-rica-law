@@ -18,3 +18,4 @@ Artículo 1º—La Autoridad Presupuestaria no considerará solicitudes para la 
 (Mediante Decreto Ejecutivo Nº 29701 de 23 de julio del 2001, se exeptúa de está disposición al Instituto Nacional de Seguros, en lo que se refiere a la creación de una plazas)
 (Mediante Decreto Ejecutivo Nº 29733 de 1 de agosto del 2001, se exeptúa de está disposición a la Dirección General de Aviación Civil, en lo que se refiere a la creación de una plazas)
 (Mediante Decreto Ejecutivo Nº 29766 de 16 de agosto del 2001, se exeptúa de está disposición a JAPDEVA, en lo que se refiere a la creación de plazas)
+(Mediante Decreto Ejecutivo Nº 29862 de 24 de setiembre del 2001, se exeptúa de está disposición a la Junta de Desarrollo de la Zona Sur de la Provincia de Puntarenas, en lo que se refiere a la creación de plazas)
