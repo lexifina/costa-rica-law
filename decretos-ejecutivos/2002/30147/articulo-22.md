@@ -1,0 +1,3 @@
+Artículo 22.—Del apoyo logístico: La Administración Superior designará un funcionario que brinde el apoyo logístico a la Junta, quien debe presentar y resguardar los documentos de cada caso sometido a consideración en el seno de la Junta y constituir bajo su responsabilidad un archivo de toda la correspondencia y documentación que se produzca.
+Por tal motivo, deberá asistir a las sesiones de la junta, podrá asesorar a los miembros sobre su campo técnico, pero no tendrá voto.
+La Institución dotará a la Junta de un lugar apropiado y debidamente dotado con el mobiliario y equipo de oficina necesario para que pueda celebrar sus sesiones.

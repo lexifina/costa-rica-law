@@ -1,0 +1,1 @@
+Artículo 5º—Ámbito de aplicación: La Junta no tendrá competencia para resolver asuntos que pudiesen presentarle aquellos trabajadores contratados para actividades específicas y ocasionales, que no sean del giro normal en la institución.

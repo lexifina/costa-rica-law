@@ -1,0 +1,1 @@
+Artículo 8º—De las actas: Se debe confeccionar un acta por cada sesión que se realice, sea ordinaria o extraordinaria, las cuales se identificarán con un número consecutivo, debiéndose entregar copia de la misma a cada miembro y una copia debe adjuntarse al expediente que fue sometido a consideración. Las actas deberán ser firmadas por el Coordinador y por el Secretario.
