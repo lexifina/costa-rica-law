@@ -14,3 +14,4 @@ Reglamento al inciso n) del artículo 31 de la Ley de Tránsito por vías públi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-03-22 | la propia norma |
+| 2 | 2005-01-03 | Decreto Ejecutivo 32192 (2005-01-03) |
