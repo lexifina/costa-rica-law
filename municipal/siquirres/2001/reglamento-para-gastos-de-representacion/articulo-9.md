@@ -1,0 +1,1 @@
+Artículo 9°—Normativa supletoria: Aquellos casos que se presenten y que no estén regulados por el Reglamento, se regirán por la normativa que al respecto tenga o indique la Contraloría General de la República.

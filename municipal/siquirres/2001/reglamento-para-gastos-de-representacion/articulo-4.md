@@ -1,0 +1,1 @@
+Artículo 4°—Disponibilidad presupuestaria: No sé podrá autorizar ningún egreso por concepto de gasto de Representación, sin el previo visto bueno del conductor, donde se haga constar la existencia de contenido presupuestario para tal efecto. El monto correspondiente al gasto por Representación para el caso concreto, será fijado por el Concejo Municipal.

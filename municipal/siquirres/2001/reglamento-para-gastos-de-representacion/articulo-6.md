@@ -1,0 +1,1 @@
+Artículo 6°—Facultades de verificación: El Departamento de Contabilidad de la Municipalidad de Siquirres queda facultado para verificar cualquier dato relacionado con el gasto de Representación que este en trámite de pago.
