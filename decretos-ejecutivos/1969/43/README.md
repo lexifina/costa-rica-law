@@ -14,3 +14,4 @@ Servicio postal interior de cartas y tarjetas de respuesta comercial con porte a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1969-11-16 | la propia norma |
+| 2 | 1974-03-30 | Decreto Ejecutivo 3659 (1974-03-30) |
