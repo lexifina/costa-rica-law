@@ -1,0 +1,1 @@
+Artículo 5º.- Los beneficios que establecen los incisos a) y b) del artículo 1º de esta ley son aplicables a los funcionarios y empleados del Poder Ejecutivo a que se refiere el artículo 141 de la Ley Orgánica del Poder Judicial y a los egresados de la Facultad de Derecho.
