@@ -1,0 +1,8 @@
+INSTITITO COSTARRICENSE DE PESCA Y ACUACULTURA
+AJDIP-386.—Puntarenas, a los veintisiete días del mes de agosto del dos mil cuatro.
+Considerando:
+1º—Que mediante acuerdos de Junta Directiva AJDIP/318-2004 y 319-2004, se aprobaron modificaciones al Reglamento de Combustible adoptado por medio del Acuerdo AJDIP/258-2002. 2º—Que de manera paralela la Comisión de combustible se ha dado a la tarea de efectuar la correspondiente capacitación del respectivo Instructivo de Combustible a los funcionarios de las distintas oficinas institucionales.
+3º—Que si bien es cierto se ha llevado a cabo con buen suceso la capacitación interna, no aún en lo que respecta al sector pesquero sobre las nuevas pautas a seguir en cuanto a la tramitación de combustible se refiere.
+4º—Que si bien es cierto los acuerdos AJDIP/318-2004 y AJDIP/319-2004 estableció plazo para su entrada en vigencia, considera conveniente esta Junta Directiva, que al efecto de la coordinación que debe existir entre el Instituto y el sector, de manera que éste cuente con la suficiente información sobre el procedimiento a seguir. 5º—Que debido a un error material, se estableció en el acuerdo AJDIP/318-2004, que se modifica el párrafo primero, siendo lo correcta, “modificación del párrafo segundo”, por lo cual se hace necesario realizar la aclaración respectiva. Por tanto:
+Se acuerda:
+1º—Que de conformidad con las consideraciones anotadas y con el afán de que el sector pesquero conozca claramente las pautas a seguir establecidas en el Instructivo de Combustible, establecer la vigencia de los acuerdos AJDIP/318-2004 y AJDIP/319-2004, a partir del 01 de octubre del 2004.
