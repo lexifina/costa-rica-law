@@ -1,0 +1,1 @@
+Artículo 10º- Se prohíbe la caza de paloma arrocera (Zenaida macroura), paloma alablanca (Zenaida asiática) y se fijan los límites de piezas por cazador con licencia en 20 por día, en todo el territorio nacional en el período comprendido entre el primero de abril al 31 de octubre.

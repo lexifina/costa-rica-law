@@ -1,0 +1,1 @@
+Artículo 20º- Se define la barra de un río como “El cauce comprendido hasta un kilómetro aguas arriba, partiendo de su boca”. Se autoriza la pesca todos los días del año en las Barras de Colorado, Parismina, Tortuguero y Matina. El límite de piezas en las barras citadas es de 5 peces por pescador por día.

@@ -1,0 +1,2 @@
+Artículo 4º- Se prohibe la caza menor de todas las especies de aves silvestres residentes y migratorias en todo el territorio nacional, con excepción de lo dispuesto en los artículos 2º, 3º, 8º, 9º, 10, 11 y 13 del presente decreto.
+Decrétase una veda total para la caza y captura de aves silvestres en el cantón de Grecia, en el distrito Los Angeles del cantón de San Ramón; al igual que en el cantón de Tarrazú y el cantón de Aguirre.
