@@ -1,0 +1,1 @@
+Artículo 9°-El trámite de las solicitudes de exoneración de tributos, se realizar ante la Secretaría Técnica. Una vez evaluado cada caso, la Secretaría Técnica recomendará lo pertinente a la Dirección.

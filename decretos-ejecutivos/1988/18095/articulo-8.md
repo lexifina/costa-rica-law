@@ -1,0 +1,4 @@
+CAPITULO III
+Materias primas y similares
+Artículo 8°-Cuando se trate de solicitudes de exoneración de materias primas, productos semielaborados, material de empaque, envase y otros similares que se incorporen en el producto final o que desaparezcan en el proceso productivo, se conceder el porcentaje de exoneración que corresponda, según lo establecido en el artículo 7° de este Reglamento.
+Previa solicitud del interesado, la Secretaría Técnica remitirá el Consejo, los casos que a su juicio ameriten un tratamiento fiscal distinto, el que una vez aprobado deber ser consistente durante la vigencia de los incentivos. En caso de que el planteamiento sea de aceptación del Consejo, para poder tramitar exoneraciones el interesado deber presentar a principio de cada período fiscal un presupuesto de las materias primas y similares, requeridos para poder cumplir con el programa de exportaciones de ese período fiscal.
