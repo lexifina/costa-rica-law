@@ -17,4 +17,6 @@ Son causas justas las siguientes:
 15. Cuando el funcionario(a) efectúe un registro de asistencia que no sea el suyo, o consienta o solicite a otro que le registre su marca de asistencia.
 16. Viole la confidencialidad en el procedimiento por casos de hostigamiento o acoso sexual.
 17) Aquel funcionario que utilice un vehículo del Ministerio e incurra en alguna de las prohibiciones que establece el Artículo 234 de la Ley de Tránsito
-(Así adicionado por el artículo 13 del decreto ejecutivo N° 25941 del 14 de marzo de 1997)
+(Así adicionado por el artículo 13 del decreto ejecutivo N° 25941 de 14 de marzo de 1997)
+18) Cuando el funcionario observe, reproduzca o exhiba imágenes deshonestas u obscenas, o material pornográfico en cualquier lugar de la institución, a través del acceso de Internet, del correo electrónico, o por cualquier medio.
+(Así adicionado por el artículo 1° del decreto ejecutivo N°. 30289 de 9 de abril de 2002)

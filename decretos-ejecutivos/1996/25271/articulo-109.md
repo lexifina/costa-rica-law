@@ -44,3 +44,5 @@ Distraer con cualquier clase de juegos o bromas a los compañeros (as) de trabaj
 34) Nombrar a funcionarios (as) con parentesco de consanguinidad o de afinidad en línea directa o colateral hasta tercer grado inclusive con el jefe inmediato o con los superiores de este en el respectivo Departamento u Oficina.
 35) Realizar actos de acoso laboral, entendiendo como tales aquellas acciones u omisiones tendientes a obstaculizar el normal desempeño de las labores a cualquier funcionario del Ministerio.
 36) Aquellas otras que se estipulen por los medios administrativos y jurídicos, y las demás incluidas en la legislación existente al respecto y que no se hayan considerado en este artículo.
+37. Observar, reproducir o exhibir imágenes deshonestas u obscenas, o material pornográfico en cualquier lugar de la institución, a través del acceso de Internet, del correo electrónico, o por cualquier medio.
+(Así adicionado por el artículo 3° del decreto ejecutivo N°. 30289 de 9 de abril de 2002)
