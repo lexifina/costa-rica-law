@@ -1,0 +1,1 @@
+Artículo 3°—El premio se entregará en una actividad solemne que organizará anualmente el Ministerio de Educación Pública con motivo del Día del Maestro, de conformidad con lo dispuesto por el Decreto Ejecutivo N° 16 del 7 de octubre de 1915.

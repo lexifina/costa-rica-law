@@ -1,0 +1,2 @@
+Artículo 7°—En cada una de las direcciones regionales de enseñanza se integrará un Jurado Regional encargado de seleccionar diez educadores distinguidos de las nominaciones que se sometan a su consideración, los que, por ese hecho, serán objeto de homenaje especial en la región correspondiente con motivo del Día del Maestro.
+De entre los diez escogidos el jurado designará el candidato propuesto por la región al Premio Nacional. Las decisiones del Jurado Regional son inapelables.

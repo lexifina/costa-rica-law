@@ -1,0 +1,1 @@
+Artículo 6°—El jurado nacional escogerá al galardonado de entre los candidatos que postulen los jurados regionales y el que se postule por la sede central, mediante votación secreta, quedando favorecido el que obtuviere tres votos o más.
