@@ -1,0 +1,1 @@
+Artículo 101.—Únicamente podrá tramitarse mediante estos fondos, aquellas compras que no sobrepasen la suma de US $500.00, (quinientos dólares), con excepción de servicios de comunicación y el pago de salarios al personal de esta oficina, para los que no se regirá este límite.

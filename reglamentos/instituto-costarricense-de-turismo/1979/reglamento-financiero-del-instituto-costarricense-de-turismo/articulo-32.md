@@ -1,0 +1,1 @@
+Artículo 32.—La Proveeduría debe preparar durante los tres últimos meses del año una licitación publica para la adquisición de materiales y útiles de oficina de uso corriente para entregar mensual, trimestral y semestralmente, según las necesidades de la Institución.

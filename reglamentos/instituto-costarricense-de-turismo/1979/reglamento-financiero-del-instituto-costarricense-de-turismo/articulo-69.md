@@ -1,0 +1,1 @@
+Artículo 69.—La auditoría dará la aprobación final a las liquidaciones de gastos de viaje de transporte, tanto de giras dentro como fuera del país, cuando estas no se ajusten a las disposiciones de este reglamento. No las aprobará indicando las razones del caso.

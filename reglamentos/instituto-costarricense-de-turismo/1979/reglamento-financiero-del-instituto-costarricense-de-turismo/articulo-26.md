@@ -1,0 +1,1 @@
+Artículo 26.—Los documentos relacionados con las licitaciones deberán ser agrupados en archivos debidamente clasificados, conjuntamente con los muestrarios de materiales, catálogos y demás referencias. Estos archivos serán conservados por la Proveeduría.

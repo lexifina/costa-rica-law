@@ -1,0 +1,1 @@
+Artículo 109.—Las disposiciones generales contenidas en los artículos 76, 77, 78, 79, 80, y 81 del presente reglamento, no son aplicables á este fondo. La liquidación de estos fondos los refrendará el Jefe del Departamento Financiero.

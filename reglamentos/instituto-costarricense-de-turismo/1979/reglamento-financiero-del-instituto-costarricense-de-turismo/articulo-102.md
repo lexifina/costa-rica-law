@@ -1,0 +1,1 @@
+Artículo 102.—Para los efectos de estos fondos la autorización del gasto será efectuada por el Jefe Administrativo de la Oficina. El encargado de los fondos será solidariamente responsable ante sus superiores inmediatos de los gastos que autorice. Las liquidaciones de estos fondos serán refrendadas por el jefe de la unidad superior.

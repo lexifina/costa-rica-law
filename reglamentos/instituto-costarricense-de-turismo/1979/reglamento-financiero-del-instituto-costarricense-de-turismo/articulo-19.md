@@ -1,0 +1,1 @@
+Artículo 19.—Las ofertas extemporáneas podrán recibirse pero no serán consideradas. Los sobres en que éstas vengan incluidas se conservarán cerrados, anotándose sobre ellos una razón explicativa con la indicación precisa de la hora en que fueron recibidos; de todo lo cual se tomará nota.

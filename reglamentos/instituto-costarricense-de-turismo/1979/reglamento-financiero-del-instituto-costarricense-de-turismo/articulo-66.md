@@ -1,0 +1,1 @@
+Artículo 66.—Cuando en los viajes que se realicen, tanto dentro como fuera del país, se incurriera en gastos de representación, deberá sujetarse a las disposiciones estipuladas por el capítulo XIII de este reglamento.

@@ -1,0 +1,6 @@
+Artículo 107.—Cada pago que se haga mediante estos fondos deberá estar respaldado por los siguientes comprobantes con los requisitos que se señalan:
+a) Fotocopia del boleto con el sello de "anulado", "reembolsado en su totalidad", o cualquier otro, que deje de manifiesto que dicho boleto no fue utilizado y el sello particular de la agencia de viajes o compañía de transportes con la firma del funcionario de la misma, que certifique la anulación o la no utilización del boleto.
+b) Copia del recibo ICT, con el nombre del pasajero, el número del boleto y el monto pagado del impuesto 5% sobre pasajes internacionales.
+c) Original del recibo de reintegro del 5% de impuesto sobre pasajes internacionales, debidamente firmado por el jefe de la Sección de Ingresos y el interesado o representante en caso de que el interesado sea menor de edad.
+El Instituto reconocerá como representante de un menor de edad únicamente al comprador del boleto cuyo impuesto se está reintegrando o, a la madre o padre del menor.
+d) En casos muy calificados y de conformidad con resolución de la Oficina de Ingresos y la Auditoría, se podrá reintegrar el impuesto pagado a la compañía o agencia vendedora del boleto respectivo.

@@ -1,0 +1,1 @@
+Artículo 13º.—Ninguna compra podrá realizarse si no existe partida en el presupuesto, o si no llena los requisitos que establece el presente reglamento. La Auditoría no autorizará pago alguno de compras o de otra clase de contratos que hubieran sido hechos sin las formalidades reglamentarias y de la ley.

@@ -1,0 +1,1 @@
+Artículo 75.—Los encargados de la custodia de los fondos asignados a cada caso en particular, responderán por el correcto manejo de los mismos ante sus superiores inmediatos, así como ante la Auditoría del Instituto. Esta última, de acuerdo con lo que establece el artículo 35, inciso b), de la Ley Orgánica del ICT, realizará arqueos y verificaciones periódicas de estos fondos.

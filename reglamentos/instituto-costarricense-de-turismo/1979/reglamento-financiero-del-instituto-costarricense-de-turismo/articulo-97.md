@@ -1,0 +1,1 @@
+Artículo 97.—Para los efectos de este fondo la autorización de los gastos la efectuará el Jefe del Departamento Administrativo, quien refrendará la liquidación respectiva. El encargado de estos fondos será solidariamente responsable ante sus superiores inmediatos de los gastos que autorice.

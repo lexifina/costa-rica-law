@@ -1,0 +1,1 @@
+Artículo 40.—En los contratos sobre inmuebles, cuando la complejidad de la transacción, a juicio de la Dirección Superior justifique una revisión de la escritura de traspaso en borrador, podrá solicitar a la Contraloría General de la República el respectivo estudio para oír sus observaciones, antes de la formalización del acto notarial.
