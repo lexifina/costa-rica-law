@@ -17,3 +17,4 @@ Reglamento para la regulación de las relaciones corporativas del Banco Popular 
 | 2 | 2001-07-17 | Reglamento 3876 (2001-07-17) |
 | 3 | 2001-07-24 | Reglamento 3880 (2001-07-24) |
 | 4 | 2002-04-16 | Reglamento 3987 (2002-04-16) |
+| 5 | 2003-09-29 | Reglamento 4152 (2003-09-29) |
