@@ -13,3 +13,4 @@ Reglamento para Uso de Vehículo del MEIC
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-11 | la propia norma |
+| 2 | 1996-07-11 | SINALEVI (sin norma nombrada) |
