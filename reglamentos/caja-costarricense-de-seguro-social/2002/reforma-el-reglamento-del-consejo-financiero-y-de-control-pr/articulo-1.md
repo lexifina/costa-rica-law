@@ -1,0 +1,4 @@
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 6º de la sesión Nº 7686, celebrada el 12 de setiembre en curso, dispuso modificar el artículo 10 del Reglamento del Consejo Financiero y de Control Presupuestario, para que en adelante se lea así:
+"Artículo 10.—De la Supervisión. Corresponderá a la Gerencia de División Financiera la supervisión del cumplimiento de las directrices emitidas por el Consejo e informar periódicamente sobre el resultado de las evaluaciones realizadas.
+La Auditoría efectuará evaluaciones periódicas, de conformidad con el plan de trabajo y al efecto atenderá las normas y procedimientos debidamente establecidos. Además, estará sujeto a los otros organismos que por ley o regulaciones especiales puedan controlar o fiscalizar las conductas de los funcionarios públicos."
+Acuerdo firme.
