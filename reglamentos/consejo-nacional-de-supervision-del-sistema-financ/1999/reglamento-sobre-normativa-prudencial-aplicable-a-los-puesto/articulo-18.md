@@ -1,4 +1,0 @@
-Artículo 18. Limites al activo fijo y a la inversión de los recursos propios
-Los recursos propios que deberán mantener los Puestos de bolsa deberán ser invertidos con las siguientes limitaciones:
-a) Deberán mantener al menos un 50 por 100 de los recursos propios determinados para cubrir los diferentes tipos de riesgos, en efectivo o invertidos en valores que tengan riesgo soberano de Costa Rica, o en aquellos que por su naturaleza sean muy líquidos, independientemente del plazo, de conformidad con lo que al respecto define el Superintendente General de Valores.
-b) La suma de las inversiones descritas en el inciso anterior deberá ser al menos igual a la suma de los recursos propios exigidos al Puesto por cobertura de riesgos, suscripción de emisiones, administración de carteras, volumen de actividad y custodia de valores.
