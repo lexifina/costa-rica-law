@@ -1,0 +1,1 @@
+Artículo 46.- Si no hubiese elección popular la Cámara de Representantes elegirá entre los que obtengan cuatrocientos o más votos. Si esto no se verificare nombrará entre los que tuvieren de ciento cincuenta votos arriba, y no resultando los suficientes para ninguno de estos casos, elegirá entre los que obtengan diez o más votos.

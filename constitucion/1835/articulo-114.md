@@ -1,0 +1,1 @@
+Artículo 114.- Sin intervención del senado nombrará los secretarios del despacho y oficiales del ejército, los subalternos de unos y otros, y los correspondientes a los empleados expresado en el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 163.- La detención de que habla el artículo anterior no podrá durar mas de cuarenta y ocho horas, y durante este término deberá la autoridad que la haya ordenado practicar lo prevenido en el artículo 161, y librar por escrito la orden de prisión, o poner en libertad al detenido.

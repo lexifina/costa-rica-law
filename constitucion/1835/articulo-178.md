@@ -1,0 +1,1 @@
+Artículo 178.- La facultad de nombrar árbitros en cualquier estado del pleito es inherente a toda persona: la sentencia que los árbitros dieren es inapelable, si las partes comprometidas no se reservaren este derecho.

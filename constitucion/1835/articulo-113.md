@@ -1,0 +1,1 @@
+Artículo 113.- Nombrará los ministros diplomáticos y cónsules-el comandante de armas de la federación-los ministros de la tesorería general-y los jefes de las rentas generales, poniendo estos nombramientos en noticia del senado para su confirmación. Llenará las vacantes que ocurran en estos destinos durante el receso del senado, y reunido solicitará su aprobación.

@@ -1,0 +1,1 @@
+Artículo 6º.- La Federación se compone actualmente de cinco estados que son: Costa Rica, Nicaragua, Honduras, El Salvador y Guatemala. La provincia de Chiapas se tendrá por estado en la Federación cuando libremente se una.

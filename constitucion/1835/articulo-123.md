@@ -1,0 +1,1 @@
+Artículo 123.- En caso de que los informes sean necesarios para exigirla responsabilidad al presidente, no podrá rehusarse por ningún motivo, ni reservarse los documentos después que se le hayan declarado haber lugar a formación de causa por la cámara de representantes.

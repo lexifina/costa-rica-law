@@ -1,0 +1,1 @@
+Artículo 161.- No podrá librarse esta orden sin que preceda justificación de que se ha cometido un delito que merezca pena mas que correccional, y sin que resulte al menos por el dicho de un testigo quien es el delincuente.

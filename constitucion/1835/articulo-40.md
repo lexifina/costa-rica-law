@@ -1,0 +1,1 @@
+Artículo 40.- En la renovación de presidente de la república los electores sufragarán por dos individuos, debiendo ser precisamente uno de ellos vecino de otro estado distinto de aquel en que se elige; y cada voto será registrado con separación. En la propia forma; pero en acto diverso se votará para Vice-presidente de la república.

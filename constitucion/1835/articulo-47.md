@@ -1,0 +1,1 @@
+Artículo 47.- El senado sin intervención de la Cámara de Representantes abrirá los pliegos y escrutará los votos emitidos para Vice-presidente de la República; declarando la elección popular si resultase hecha según los artículos 44 y 45 o verificándola en los casos del artículo 46 del mismo modo y por las mismas reglas prevenidas para la elección de Presidente.

@@ -1,0 +1,1 @@
+Artículo 70.- Para ser representante se necesita tener la edad de veinte y tres años de edad-haber sido cinco ciudadano, bien del estado seglar o eclesiástico-y hallarse un año de residencia no interrumpida e inmediata a la elección, sino es que hayan estado ausentes en servicios de la república.

@@ -1,0 +1,1 @@
+Artículo 90.- Admitido, deberá pasarse a una comisión que lo examinará detenidamente, y no podrá presentarlo sino después de tres días. El informe que diere tendrá también dos lecturas en días diversos, y señalado el de su discusión con el intervalo a lo menos de otros tres no podrá diferirse más tiempo sin acuerdo de la cámara en que se trate.

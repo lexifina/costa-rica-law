@@ -1,0 +1,1 @@
+Artículo 196.- Acordada la reforma a discusión, debe para ser valida y tenida por constitucional, aceptarse por la mayoría absoluta de los estados con las dos terceras partes de la votación de sus Legislaturas.

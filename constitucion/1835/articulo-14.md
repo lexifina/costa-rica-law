@@ -1,0 +1,1 @@
+Artículo 14.- Son ciudadanos todos los habitantes de la República naturales del país, o naturalizados en él, que fueren casados, o mayores de diez y ocho años, siempre que ejerzan alguna profesión útil, o tengan medios conocidos de subsistencia.

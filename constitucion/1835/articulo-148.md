@@ -1,0 +1,1 @@
+Artículo 148.- Deberá declararse que ha lugar a la formación de causa contra los representantes y senadores por-traición-venalidad-falta grave en el desempeño de sus funciones-y delitos comunes que merezcan pena mas que correccional.

@@ -1,0 +1,1 @@
+Artículo 59.- Para toda resolución se necesita la concurrencia de la mayoría absoluta de los miembros de cada cámara, y el acuerdo de la mitad y uno mas de los que se hallaren presentes; pero, un número menor podrá obligar a concurrir a los ausentes del modo y bajo las penas que se designen en su reglamento interior.

@@ -1,0 +1,1 @@
+Artículo 38.- Un distrito electoral constará de ciento veinte electores. Reunida por lo menos la mayoría de este número, se forma la junta electoral y organizada con su directorio elige a pluralidad absoluta de votos el representante y el suplente que le corresponda.

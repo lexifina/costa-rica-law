@@ -1,0 +1,1 @@
+Artículo 11.- Los habitantes de la república pueden adorar a Dios según su conciencia. El Gobierno general protege en la libertad del culto religioso.-Más los Estados cuidarán de la actual religión de sus pueblos; y mantendrán todo el culto en armonía con las leyes.

@@ -1,0 +1,1 @@
+Artículo 149.- Todos estos casos, y en los de infracción de ley, y usurpación de poder habrá igualmente lugar a la formación de causa contra el Presidente y Vice-presidente de la república-individuos de la Suprema Corte de Justicia-y secretarios del despacho.

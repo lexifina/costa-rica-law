@@ -1,0 +1,5 @@
+Artículo 15.- Se concederán cartas de naturaleza a los extranjeros que manifiesten a la autoridad local designio de radicarse en la República:
+1º.- Por servicios relevantes hechos a la nación, y designados por la ley.
+2º.- Por cualquier invención útil, y por el ejercicio de alguna ciencia arte u oficio no establecidos aun en el país, o mejora notable de una industria conocida.
+3º.- Por vecindad de cinco años.
+4º.- Por la de tres, a los que vinieren a radicarse con su familias, a los que contrajeren matrimonio en la República, y a los que adquirieren bienes raíces del valor y clase que determine la ley.

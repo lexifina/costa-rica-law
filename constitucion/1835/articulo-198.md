@@ -1,0 +1,2 @@
+Artículo 198.- Aceptada por la mayoría de los estados la presente reforma, será esta la única ley constitutiva de la república: el Congreso la mandará publicar solemnemente; quedando derogada la que decretó la Asamblea Nacional Constituyente en 22 de noviembre de 1824.
+Pase a las asambleas que en cumplimiento del artículo 202, de la Constitución actual la tomen en consideración y la devuelvan con sus votos al Congreso.

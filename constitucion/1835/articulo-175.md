@@ -1,0 +1,1 @@
+Artículo 175.- Es inviolable el secreto de las cartas y las que se substraigan de las oficinas de correos o de sus conductores no producen efecto legal ni pueden presentarse en el testimonio contra ninguno.

@@ -1,0 +1,1 @@
+Artículo 186.- En caso de que alguna autoridad constituida de un estado reclamare que la Legislatura de otro estado ha traspasado en daño suyo los limites constitucionales, las cámaras, reunidas en asamblea general, tomarán los informes convenientes, y decidirán lo que les parezca arreglado.

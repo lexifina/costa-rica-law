@@ -1,0 +1,1 @@
+Artículo 107.- El presidente y Vice-presidente de la república no podrán funcionar un día mas de los cuatro años que fija el artículo anterior. El que se elija por sus faltas solo durará el tiempo necesariopara completar este período que comienza y concluye el primero de abril del año de la renovación.

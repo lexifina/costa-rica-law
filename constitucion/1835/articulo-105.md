@@ -1,0 +1,1 @@
+Artículo 105.- Para ser Presidente y Vice-presidente se requiere-naturaleza en la república-tener treinta años cumplidos-haber sido siete ciudadano-ser del estado seglar-hallarse en actual ejercicio de sus derechos-y poseer un capital libre de cuatro mil pesos, o tener alguna renta u oficio que produzca cuatrocientos pesos anuales.

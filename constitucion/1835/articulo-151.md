@@ -1,0 +1,1 @@
+Artículo 151.- Los delitos mencionados producen acción popular y las acusaciones de cualquier ciudadano o habitante de la república deben ser atendidas. La acusación se tratará en sesión secreta; pero declarado que ha lugar a la formación de causa serán públicos y los demás actos del juicio. La ley reglamentará el derecho de acusación, y designará la pena del calumniador.

@@ -1,0 +1,1 @@
+Artículo 42.-Las listas relativas a la elección de Presidente de la República deberán leerse y firmarse a presencia de los electores, y remitirse cerradas y selladas a la cámara de representantes. En la propia forma se dirigirán al Senado las que corresponden a la elección de Vice-presidente, y copias de una y otras a la Legislatura respectiva.

@@ -1,0 +1,1 @@
+Artículo 191.- No podrá formarse nuevo estado en el interior de otro estado. Tampoco podrá formarse por la unión de dos o más estados o partes de ellos, si no estuvieren en contacto, y sin el consentimiento de las Legislaturas respectivas.

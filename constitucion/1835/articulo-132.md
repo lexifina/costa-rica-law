@@ -1,0 +1,1 @@
+Artículo 132.- Cuando el presidente sea informado de alguna conspiración o traición a la república y de que la amenaza un próximo riesgo, podrá dar órdenes de arresto e interrogar a los que se presuman reos; pero en el término de tres días los pondrá precisamente a disposición del juez respectivo.

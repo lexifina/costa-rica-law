@@ -1,0 +1,1 @@
+Artículo 64.- Si el Congreso se traslada a otro lugar fuera del distrito las autoridades federales no ejercerán otras facultades sobre la población donde residan que las concernientes a mantener el orden y tranquilidad pública para asegurarse en el libre y decoroso ejercicio de sus funciones.

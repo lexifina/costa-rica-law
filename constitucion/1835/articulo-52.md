@@ -1,0 +1,1 @@
+Artículo 52.- Las elecciones de Presidente y Vice-presidente se publicarán por un Decreto de la Cámara que las haya verificado. Las Legislaturas publicarán del mismo modo la elección que hicieren de Senadores.
