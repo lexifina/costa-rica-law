@@ -1,7 +1,7 @@
 Artículo 3º.- La pensión concedida a la viuda y a los hijos se
 distribuirá por mitades entre aquéllas y éstos y, caso de contraer la
 viuda nuevas nupcias, se continuará girando el 50% de esta pensión a los
-hijos de menores.
+hijos menores.
 No tendrán derecho a la pensión, no obstante lo dicho en el artículo
 1º, la esposa del Guarda Fiscal, Guardia Civil, Director o Inspector del
 Tránsito, Oficial de Investigación y Oficial del Servicio de
