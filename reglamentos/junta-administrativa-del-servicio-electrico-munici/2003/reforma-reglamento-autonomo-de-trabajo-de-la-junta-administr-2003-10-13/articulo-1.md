@@ -1,0 +1,4 @@
+JUNTA ADMINISTRATIVA DEL SERVICIO ELÉCTRICO MUNICIPAL DE CARTAGO
+La Junta Administrativa del Servicio Eléctrico Municipal de Cartago (J.A.S.E.C.) comunica, que nuestra junta directiva, en artículo 1, de la sesión extraordinaria Nº 3816, celebrada el 13 de octubre del 2003:
+Modificar parcialmente el artículo Nº 7 del Reglamento Autónomo de Servicios en los siguientes términos: "La jornada ordinaria de trabajo será 48 horas por semana. Los funcionarios administrativos tendrán el siguiente horario de trabajo: lunes a viernes de las 7:24 a las 17:00 horas. Tiempo para almorzar: 30 minutos. En cuanto a los funcionarios de la UEN de Servicio al Cliente tendrán el siguiente horario: lunes a viernes de las 7:00 a las 17:00 horas. Sábados de las 7:30 a las 12:00 horas. Tiempo para almorzar: 30 minutos..."
+Cartago, 16 de octubre del 2003.—
