@@ -1,0 +1,1 @@
+Artículo 5°—Monto y duración del beneficio. El monto del beneficio y su duración máxima son determinadas por el CENDEISSS, tomando en consideración las condiciones exigidas por el Centro donde el becario va a cursar los estudios, así como, en caso de estudios en el exterior, el costo de vida del país del que se trate.

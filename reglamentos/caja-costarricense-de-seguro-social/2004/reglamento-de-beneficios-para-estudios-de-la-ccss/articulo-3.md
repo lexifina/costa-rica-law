@@ -1,0 +1,1 @@
+Artículo 3°—Financiamiento. El CENDEISSS incluirá en su presupuesto los recursos financieros necesarios de acuerdo con la disponibilidad de éstos y con las directrices definidas en las políticas institucionales y las necesidades priorizadas por los diagnósticos y planes realizados.

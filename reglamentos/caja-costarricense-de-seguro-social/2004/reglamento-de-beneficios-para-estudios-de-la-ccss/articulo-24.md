@@ -1,0 +1,2 @@
+Artículo 24.—Incumplimiento parcial. Si una vez iniciado o reiniciado su trabajo en la Institución, el funcionario da por terminada su relación de servicio o es despedido por motivo justificado, o se acoge a movilidad laboral o a algún programa de reducción de personal en el sector público antes del vencimiento del plazo de prestación de servicios a que contractualmente se comprometió, tiene la obligación de cancelar a la CCSS lo correspondiente, conforme a lo previsto en el artículo anterior.
+El incumplimiento se calcula proporcionalmente al tiempo de trabajo no servido.

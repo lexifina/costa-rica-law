@@ -1,0 +1,2 @@
+Artículo 31.—Financiamiento. Puede ser total o parcial y de acuerdo con lo que establece el Reglamento de Gastos de Viajes y Transporte para Funcionarios Públicos de la Contraloría General de la República.
+En casos especiales, previa recomendación del CENDEISSS a la Junta Directiva, se puede otorgar una ayuda complementaria que cubra los costos de la actividad y que no sobrepase el 75% de los viáticos reglamentarios que le corresponderían.

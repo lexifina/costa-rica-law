@@ -1,0 +1,1 @@
+Artículo 25.—Prórroga de inicio del cumplimiento. Solamente se prorrogará el inicio del cumplimiento de la obligación contraída, cuando previo estudio del CENDEISSS o la Junta Directiva según corresponda, se decida lo contrario. Esta prórroga no es mayor a un año.

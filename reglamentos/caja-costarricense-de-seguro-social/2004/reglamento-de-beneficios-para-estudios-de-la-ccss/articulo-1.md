@@ -1,0 +1,10 @@
+I.—La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 17, acuerdo primero de la sesión número 7877, celebrada el 5 de agosto del año 2004, aprobó el siguiente Reglamento de Beneficios para Estudios de la Caja Costarricense de Seguro Social:
+"REGLAMENTO DE BENEFICIOS PARA ESTUDIOS DE LA CCSS
+INTRODUCCIÓN
+El Centro de Desarrollo Estratégico e Información en Salud y Seguridad Social (CENDEISSS), establecido en 1974, responsable de la capacitación y formación del recurso humano funciona con base a las prioridades definidas en su Plan Estratégico. Esta planificación se fundamenta en los estudios de necesidades institucionales.
+La Caja Costarricense de Seguro Social requiere contar con recursos humanos calificados para el desarrollo de sus servicios. De acuerdo con sus posibilidades económicas continuará ofreciendo oportunidades a sus trabajadores, mediante la concesión de beneficios, para que realicen estudios en áreas de interés institucional y afines a su cargo. Es responsabilidad institucional velar porque las inversiones que se realizan en la formación y capacitación de sus recursos humanos vayan dirigidas a fortalecer el desarrollo institucional y la capacidad de respuesta de sus servicios en salud y seguridad social.
+La CCSS, por medio de su Junta Directiva acuerda aprobar el "Reglamento de Beneficios para Estudio", como marco regulador para la adjudicación de estos beneficios, con el objetivo de apoyar el desarrollo de las políticas de salud en general y de los recursos humanos en particular.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Del objeto. El objeto de este Reglamento es normar la concesión de beneficios para la realización de estudios o para la participación en actividades científicas, administrativas y tecnológicas, de los funcionarios y particulares, en el país o en el extranjero, siempre que tales actividades sean de interés para la CCSS y en el tanto contribuyan a mejorar los servicios que presta la Institución.
+Los beneficios para estudios deben ser aprobados por la Junta Directiva de la CCSS y pueden concederse para realizar estudios de nivel técnico, de grado y de postgrado.
