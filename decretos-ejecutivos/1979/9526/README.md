@@ -14,3 +14,4 @@ Reglamento para la venta de materiales y equipo odontológico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1979-02-08 | la propia norma |
+| 2 | 1979-06-30 | Decreto Ejecutivo 10186 (1979-06-30) |
