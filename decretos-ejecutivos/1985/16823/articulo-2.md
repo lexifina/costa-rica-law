@@ -1,0 +1,1 @@
+Artículo 2°-Se encarga a la Comisión Nacional de Asuntos Indígenas, CONAI, presentar ante el Poder Ejecutivo un informe del caso, y realizar los trámites necesarios, para que en un plazo no mayor de 3 meses a partir de esta fecha, se pueda volver a emitir un decreto de expropiación que tome en cuenta las modificaciones necesarias.
