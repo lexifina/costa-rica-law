@@ -1,1 +1,0 @@
-Artículo 4°─ Podrá haber otra categoría de Médicos, excluidos de la limitación de jornada de trabajo, según los casos de verdadera excepción muy calificada que determina el artículo 143 del Código de Trabajo. Estos Médicos serán clasificados mediante Reglamento Interno de Trabajo en cada Institución , lo cual deberá tramitarse de conformidad con la ley.
