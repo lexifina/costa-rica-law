@@ -1,0 +1,1 @@
+Artículo 3°—No se permite la utilización de medios distintos al establecido en el párrafo primero del artículo 1° de esta Resolución, para presentar las declaraciones por parte de un gran contribuyente, en cuyo caso, se tendrá por no presentada la declaración correspondiente para todo efecto, sin necesidad notificación alguna al interesado.

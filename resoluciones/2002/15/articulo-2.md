@@ -1,0 +1,1 @@
+Artículo 2°—Los sujetos pasivos calificados como grandes contribuyentes que efectúen el pago mediante débito electrónico simultáneamente con la presentación de la declaración que genere un débito tendrán derecho a descuento conforme se detalla en Resolución de esta Dirección, N° 44/2001, publicada en el Alcance N° 80 a La Gaceta N° 215 del 8 noviembre del 2001.
