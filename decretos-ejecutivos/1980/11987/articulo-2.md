@@ -1,0 +1,1 @@
+Articulo 2°-La administración y funcionamiento de estas bibliotecas públicas, se hará mediante convenio entre la Dirección General de Bibliotecas y las asociaciones de desarrollo comunal. Los convenios serán suscritos por el Ministerio de Cultura, Juventud y Deportes y el representante legal de la respectiva asociación de desarrollo.

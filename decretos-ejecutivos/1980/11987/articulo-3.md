@@ -1,0 +1,1 @@
+Articulo 3°-La Dirección General de Bibliotecas y la Dirección Nacional de Desarrollo de la Comunidad , DINADECO, deberán promocionar la apertura y funcionamiento de las Bibliotecas Públicas Semioficiales en los cantones que se requiera.
