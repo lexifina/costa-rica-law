@@ -14,3 +14,4 @@ Reglamento de Ventas Estacionarias en Vías Públicas o Sitios deTránsito Inter
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1968-09-14 | la propia norma |
+| 2 | 1968-09-14 | SINALEVI (sin norma nombrada) |
