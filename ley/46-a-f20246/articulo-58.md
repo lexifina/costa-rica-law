@@ -1,4 +1,4 @@
-Artículo 58.- Si trascurridos dos años después de haberse hecho
+ARTICULO 58.- Si trascurridos dos años después de haberse hecho
 público en Costa Rica el fallecimiento del intestado, no se presentasen
 herederos legales del mismo, el Cónsul, previa autorización de la
 Secretaría de Relaciones Exteriores, procederá a la realización de la

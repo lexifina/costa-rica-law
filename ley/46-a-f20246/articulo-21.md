@@ -1,4 +1,4 @@
-Artículo 21.- Es terminantemente prohibido a los funcionarios
+ARTICULO 21.- Es terminantemente prohibido a los funcionarios
 consulares de la República, tomar parte activa en la política del país en
 que residen, afiliarse a alguno de los partidos militantes o intervenir
 por la prensa en sus luchas.

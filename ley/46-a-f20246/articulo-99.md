@@ -1,4 +1,4 @@
-Artículo 99.- Para el mejor desempeño de las funciones, los Cónsules
+ARTICULO 99.- Para el mejor desempeño de las funciones, los Cónsules
 de la República tendrán presentes las estipulaciones contenidas en las
 convenciones consulares y en los tratados de comercio y navegación que la
 República haya celebrado con otras naciones.

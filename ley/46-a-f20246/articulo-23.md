@@ -1,4 +1,4 @@
-Artículo 23.- Para la mayor eficacia de su gestión los Cónsules
+ARTICULO 23.- Para la mayor eficacia de su gestión los Cónsules
 informarán trimestralmente, por lo menos, a la Secretaría de Relaciones
 Exteriores, sobre estos extremos:
 a) Existencia y cotización en el mercado o mercados de su distrito

@@ -1,4 +1,4 @@
-Artículo 17.- Todo funcionario consular que se separe de su puesto
+ARTICULO 17.- Todo funcionario consular que se separe de su puesto
 sin las formalidades establecidas en el artículo anterior, se entenderá
 que voluntariamente renuncia el cargo y se procederá a la cancelación de
 su patente.

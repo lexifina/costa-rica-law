@@ -1,4 +1,4 @@
-Artículo 79.- Están exentos del pago de derechos por expedición y
+ARTICULO 79.- Están exentos del pago de derechos por expedición y
 viso de pasaportes:
 1º.- Los Agentes Diplomáticos y los Consulares, tanto los nacionales
 como los extranjeros que se dirijan a Costa Rica.

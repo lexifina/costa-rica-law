@@ -1,4 +1,4 @@
-Artículo 11.- Ya en posesión legal del cargo, el funcionario
+ARTICULO 11.- Ya en posesión legal del cargo, el funcionario
 consular lo comunicará a la Secretaría de Relaciones Exteriores, a la
 Legación de la República y también, por comunicación oficial, a los demás
 Cónsules de Costa Rica que residan en la nación, a los Cónsules

@@ -1,4 +1,4 @@
-Artículo 7º.- El exequatur será solicitado por la Legación de Costa
+ARTICULO 7º.- El exequatur será solicitado por la Legación de Costa
 Rica acreditada ante el Gobierno de la nación a que pertenece el distrito
 consular. A falta de Legación, por el Cónsul General cuando se trate de
 él mismo o de un Cónsul o Vicecónsul, y si no hubiere Cónsul General, por

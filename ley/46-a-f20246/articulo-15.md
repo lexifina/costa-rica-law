@@ -1,4 +1,4 @@
-Artículo 15.- Si en cualquiera de estos actos el funcionario
+ARTICULO 15.- Si en cualquiera de estos actos el funcionario
 consular se viera desconocido o se pusiesen obstáculos al buen desempeño
 del mismo por las autoridades del distrito, formará del hecho una
 relación minuciosa con todos los antecedentes necesarios, la que remitirá

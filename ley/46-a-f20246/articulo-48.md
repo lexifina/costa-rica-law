@@ -1,4 +1,4 @@
-Artículo 48.- En caso de muerte de un costarricense en el distrito
+ARTICULO 48.- En caso de muerte de un costarricense en el distrito
 jurisdiccional de un Cónsul, habiendo testado, pero sin existir en el
 distrito heredero o legatario, albacea ni representante legítimo de
 cualquiera de ellos, el Cónsul velará por la seguridad del testamento y

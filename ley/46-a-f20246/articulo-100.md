@@ -1,4 +1,4 @@
-Artículo 100.- En los países con los que no haya celebrado Costa
+ARTICULO 100.- En los países con los que no haya celebrado Costa
 Rica tratados o convenciones consulares, los Cónsules de la República
 medirán sus atribuciones, prerrogativas y derechos en general, de acuerdo
 con los principios del derecho de gentes y con las prescripciones

@@ -1,4 +1,4 @@
-Artículo 10.- Cuando el funcionario consular reciba el cargo de su
+ARTICULO 10.- Cuando el funcionario consular reciba el cargo de su
 antecesor, se extenderá un inventario por triplicado en que figurarán
 detalladamente, por legajos, todos los documentos que formen el archivo;
 los sellos, escudos, pabellones y mueblaje que no sean propiedad personal
