@@ -1,5 +1,1 @@
-ARTICULO 51.- PRESENTACION DEL PRESUPUESTO
-El proyecto de presupuesto anual de la Contraloría General de la
-República se remitirá al Poder Ejecutivo en el mes de mayo, para que sea
-incluido en el Presupuesto Nacional, a efecto de que cumpla con los
-trámites establecidos por ley.
+Artículo 51.- Presentación del Presupuesto. El proyecto de presupuesto anual de la Contraloría General de la República se remitirá al Poder Ejecutivo en el mes de mayo, para que sea incluido en el Presupuesto Nacional, a efecto de que cumpla con los trámites establecidos por ley.

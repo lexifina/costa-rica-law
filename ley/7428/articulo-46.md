@@ -1,6 +1,1 @@
-ARTICULO 46.- RECONOCIMIENTO DE ANTIGüEDAD
-Para los efectos de la Ley Nº 3724 del 8 de agosto de 1966, Ley de
-Salarios y Régimen de Méritos de la Contraloría General de la República,
-los años de servicio, consecutivos o no, prestados por sus servidores en
-otras entidades u órganos públicos, se considerarán como servidos en la
-Contraloría General de la República.
+Artículo 46.- Reconocimiento de antigüedad. Para los efectos de la Ley Nº 3724 del 8 de agosto de 1966, Ley de Salarios y Régimen de Méritos de la Contraloría General de la República, los años de servicio, consecutivos o no, prestados por sus servidores en otras entidades u órganos públicos, se considerarán como servidos en la Contraloría General de la República.

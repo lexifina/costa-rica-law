@@ -1,11 +1,2 @@
-ARTICULO 52.- EJECUCION Y LIQUIDACION DEL PRESUPUESTO
-La Contraloría General de la República ejecutará su presupuesto, con
-plena autonomía respecto de los trámites y procedimientos establecidos
-para el Gobierno en materia de ejecución presupuestaria y manejo de
-fondos; para ese efecto, la Tesorería Nacional le girará en efectivo, por
-bimestres adelantados, los recursos correspondientes que se le asignan en
-el Presupuesto Nacional de la República. La Contraloría presentará
-trimestralmente a la Asamblea Legislativa un informe de dicha ejecución.
-La liquidación del presupuesto de la Contraloría General de la
-República se incorporará a la del Poder Ejecutivo, de conformidad con lo
-establecido en el artículo 181 de la Constitución Política.
+Artículo 52.- Ejecución y liquidación del presupuesto. La Contraloría General de la República ejecutará su presupuesto, con plena autonomía respecto de los trámites y procedimientos establecidos para el Gobierno en materia de ejecución presupuestaria y manejo de fondos; para ese efecto, la Tesorería Nacional le girará en efectivo, por bimestres adelantados, los recursos correspondientes que se le asignan en el Presupuesto Nacional de la República. La Contraloría presentará trimestralmente a la Asamblea Legislativa un informe de dicha ejecución.
+La liquidación del presupuesto de la Contraloría General de la República se incorporará a la del Poder Ejecutivo, de conformidad con lo establecido en el artículo 181 de la Constitución Política.

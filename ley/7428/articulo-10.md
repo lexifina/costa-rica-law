@@ -1,10 +1,2 @@
-ARTICULO 10.- ORDENAMIENTO DE CONTROL Y FISCALIZACION SUPERIORES
-El ordenamiento de control y de fiscalización superiores de la
-Hacienda Pública comprende el conjunto de normas, que regulan la
-competencia, la estructura, la actividad, las relaciones, los
-procedimientos, las responsabilidades y las sanciones derivados de esa
-fiscalización o necesarios para esta.
-Este ordenamiento comprende también las normas que regulan la
-fiscalización sobre entes y órganos extranjeros y fondos y actividades
-privados, a los que se refiere esta Ley, como su norma fundamental, dentro
-del marco constitucional.
+Artículo 10.- Ordenamiento de control y fiscalización superiores. El ordenamiento de control y de fiscalización superiores de la Hacienda Pública comprende el conjunto de normas, que regulan la competencia, la estructura, la actividad, las relaciones, los procedimientos, las responsabilidades y las sanciones derivados de esa fiscalización o necesarios para esta.
+Este ordenamiento comprende también las normas que regulan la fiscalización sobre entes y órganos extranjeros y fondos y actividades privados, a los que se refiere esta Ley, como su norma fundamental, dentro del marco constitucional.

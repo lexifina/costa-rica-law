@@ -1,16 +1,4 @@
-ARTICULO 13.- GARANTIA DE ACCESO Y DISPOSICION DE INFORMACION
-Con las salvedades de orden constitucional y legal para cumplir con
-sus cometidos, la Contraloría General de la República tendrá acceso a
-cualquier fuente o sistema de información, registro, documento,
-instrumento, cuenta o declaración de los sujetos pasivos públicos.
-Con las salvedades de orden constitucional y legal, la Contraloría
-General de la República tendrá acceso a la contabilidad, correspondencia
-y en general a los documentos emitidos o recibidos por los sujetos pasivos
-privados, para el ejercicio del control y la fiscalización aquí
-contemplados.
-Para el cumplimiento de las anteriores atribuciones, sólo estarán
-investidos de autoridad los servidores de la Contraloría General de la
-República acreditados para ello.
-Los funcionarios, empleados o particulares que sean requeridos al
-efecto, deberán suministrar, en el plazo que ella les fije, la información
-o piezas documentales o instrumentales solicitadas.
+Artículo 13.- Garantía de acceso y disposiciones de información. Con las salvedades de orden constitucional y legal para cumplir con sus cometidos, la Contraloría General de la República tendrá acceso a cualquier fuente o sistema de información, registro, documento, instrumento, cuenta o declaración de los sujetos pasivos públicos.
+Con las salvedades de orden constitucional y legal, la Contraloría General de la República tendrá acceso a la contabilidad, correspondencia y en general a los documentos emitidos o recibidos por los sujetos pasivos privados, para el ejercicio del control y la fiscalización aquí contemplados.
+Para el cumplimiento de las anteriores atribuciones, sólo estarán investidos de autoridad los servidores de la Contraloría General de la República acreditados para ello.
+Los funcionarios, empleados o particulares que sean requeridos al efecto, deberán suministrar, en el plazo que ella les fije, la información o piezas documentales o instrumentales solicitadas.
