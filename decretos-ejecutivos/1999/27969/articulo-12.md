@@ -27,3 +27,5 @@ y) Notificar a su jefe inmediato en el mismo día, oralmente o por escrito, de l
 z) Laborar la jornada extraordinaria a que se refieren los artículos 37 y 38 de este reglamento. La negativa injustificada será calificada como falta grave.
 aa) Velar por la buena imagen del Ministerio y no comprometerlo con comportamientos inmorales o inadecuados.
 bb) Guardar la debida consideración y respeto a sus compañeros y a sus superiores jerárquicos.
+cc) Portar el carné de identificación durante la jornada laboral, en el centro de trabajo.
+(Así adicionado, por el artículo 1° del Decreto Ejecutivo N° 31679 de 25 de noviembre de 2003).
