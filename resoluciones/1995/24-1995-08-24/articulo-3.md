@@ -1,0 +1,1 @@
+Artículo 3°—Los contribuyentes que tengan periodo riscal especial autorizado, deberán efectuar la comunicación a que se refiere el artículo 1 °, inciso ch) dentro de los dos meses siguientes a la terminación del periodo fiscal respectivo.
