@@ -1,0 +1,1 @@
+Artículo 2º—Adiciónense a las exclusiones estipuladas en el artículo 2° del Decreto N° 29089-H y en el inciso b), artículo 2° del Decreto Nº 29511-H, para la Junta de Protección Social de San José, las transferencias producto de las utilidades de la lotería electrónica y las apuestas deportivas.
