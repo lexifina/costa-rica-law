@@ -1,0 +1,4 @@
+CAPÍTULO V
+Registros, inspecciones e informes
+CLÁUSULA 5.01.—Registros, inspecciones e informes. El Prestatario se compromete a que por sí o mediante el Organismo Ejecutor se lleven los registros, se permitan las inspecciones y se suministren los informes y estados financieros, de conformidad con las disposiciones establecidas en el Capítulo VII de las Normas Generales.
+CLÁUSULA 5.02.—Auditorías. En relación con lo establecido en el Artículo 7.03 de las Normas Generales, los estados financieros del Proyecto, del PROYECTO SIEPAC y los del Organismo Ejecutor se presentarán debidamente dictaminados por una firma de contadores públicos independiente aceptable al Banco, los del Proyecto y los del PROYECTO SIEPAC durante el período de su ejecución y los del Organismo Ejecutor durante la vigencia del presente Contrato.
