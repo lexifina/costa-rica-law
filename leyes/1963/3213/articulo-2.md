@@ -1,1 +1,2 @@
-Artículo 2º.- En cuanto a los traspasos, se entenderá que el promedio de sueldos nunca había sido inferior a doscientos colones (¢ 200.00) mensuales y se harán en la proporción que indican las leyes pertinentes.
+Artículo 2º.- Refórmase el párrafo tercero del inciso j) del artículo 2º de la Ley Nº 14de 2 de diciembre de 1935, reformado por la Nº 2069 de 1º de noviembre de 1956, el cual se leerá así:
+"Ninguna pensión de gracia será menor de doscientos colones ( ¢ 200.00) mensuales. En el caso de concurrencia de grupos o partes en un mismo grupo, salvo dos casos de hijos de soldados de la Campaña Nacional , la pensión se prorrateará".

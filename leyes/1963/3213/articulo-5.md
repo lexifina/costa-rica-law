@@ -1,1 +1,1 @@
-Artículo 5º.- Para la atención del gasto que demande esta ley, el Poder Ejecutivo podrá, durante el año 1964, enviar a la Asamblea Legislativa proyectos de presupuestos extraordinarios. Para los años siguientes deberá consignarse la partida necesaria en los proyectos de presupuesto.
+Artículo 5º.- La financiación de las pensiones del Ferrocarril Eléctrico al Pacífico la asumirá esa institución.
