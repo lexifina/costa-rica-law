@@ -160,3 +160,5 @@ a fin excluir del límite de gasto presupuestario y efectivo total para el año 
 asignado a los ministerios y entidades públicas, los montos ordenados por ejecución
 de sentencias judiciales en firme, así como el separar del cumplimiento de la materia
 de inversiones las cauciones que deben rendirse en los estrados judiciales).
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29553 de 15 de mayo del 2001,
+para el Instituto Costarricense de Electricidad)
