@@ -1,0 +1,3 @@
+Articulo 5°—Suministro de información al comitente.
+El comisionista deberá enviar al comitente un estado de cuenta sobre la gestión desarrollada, con la periodicidad que éste solicite en el respectivo instrumento, pudiendo el comitente solicitar esta y cualquier otra información en cualquier otro momento. Dicho estado indicará, como mínimo- la composición de la cartera por tipo de titulo, el emisor, los vencimientos, el rendimiento y el método de valorización de la cartera.
+Por cada operación realizada en la administración de cartera, el comisionista debe entregar al comitente una copia de la boleta de transacción, según los términos establecidos en el instrumento (contrato o poder).

@@ -1,0 +1,1 @@
+Transitorio.—Los instrumentos de comisiones de confianza individuales de administración de valores actualmente vigentes seguirán operando bajo los criterios establecidos por la entidad fiscalizada, no obstante, cuando cambien sus condiciones originales, se ajustarán en todos sus extremos a estas normas.
