@@ -1,0 +1,1 @@
+Artículo 17.—De otras obligaciones del Consultor. El Consultor deberá cumplir con sus obligaciones en la Caja Costarricense de Seguro Social, deberá tener facturas timbradas y deberá presentar sus respectivas declaraciones de renta en los momentos propicios para ello. La Administración puede fiscalizar el cumplimiento de estas obligaciones en cualquier momento.

@@ -1,0 +1,1 @@
+Artículo 11.—Recursos. El acuerdo del Consejo mediante el cual se pronuncia sobre el informe de la Secretaría Técnica tendrá los recursos ordinarios y extraordinarios que le confiere la Ley General de la Administración Pública a los actos del Consejo Nacional de Concesiones y deberá ser comunicado a los que presentaron ofertas en el concurso.

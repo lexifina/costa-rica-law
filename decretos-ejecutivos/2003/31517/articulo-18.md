@@ -1,0 +1,1 @@
+Artículo 18.—De la responsabilidad por daños. El Consultor será responsable como cualquier funcionario público de los daños que provoque a terceros de buena fe, en ejercicio de las obligaciones contractuales que le han sido asignadas. En ese sentido, se impone el deber de coordinación con la Administración en todas las tareas que desempeñe.

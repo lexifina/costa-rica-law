@@ -1,0 +1,2 @@
+Artículo 7º—Tres cotizaciones. Salvo cuando proceda la invitación por publicación, la Secretaría Técnica deberá gestionar al menos la presentación de tres ofertas a distintas empresas o personas idóneas de reconocida capacidad para el desempeño del cargo.
+En caso de que no se consigan esas tres cotizaciones, se deberá dejar una explicación escrita de las razones por las cuales no ha sido posible cumplir con este requisito.

@@ -1,0 +1,2 @@
+Artículo 9º—Calificación y recomendación. La Secretaría Técnica, una vez valoradas las ofertas según la metodología que se haya establecido en el cartel, procederá a elaborar un informe que presentará al Consejo Nacional de Concesiones en el cual hace su recomendación, debidamente motivada, para que resuelva lo pertinente.
+Para estos efectos el Concejo podrá solicitar a la Secretaría Técnica las ampliaciones y justificaciones que considere necesarias.

@@ -1,0 +1,3 @@
+Artículo 8º—Plazo para presentar las ofertas y subsanación de defectos. Los interesados en el llamado de la Secretaría Técnica, deberán presentar su oferta en un sobre cerrado, a la hora y fecha indicadas en la invitación, para lo cual se les deberá dar un plazo razonable de acuerdo a la complejidad del objeto contractual, que en todo caso no podrá ser menor a tres días hábiles.
+Se podrá utilizar el sistema de dos sobres, cuando así se estime conveniente de acuerdo a la naturaleza del servicio.
+Los defectos de las ofertas podrán ser subsanados cuando así proceda, de modo que se facilite su conservación y elegibilidad.

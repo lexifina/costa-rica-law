@@ -1,0 +1,3 @@
+Artículo 20.—Deber de confidencialidad y prohibiciones. Los consultores estarán afectos al régimen de prohibiciones del artículo 22 de la Ley de Contratación Administrativa y deberán rendir una declaración jurada en ese sentido.
+Toda la información que se genere producto de sus servicios es propiedad de la Administración y no podrá ser revelada o transmitida sin su consentimiento expreso.
+El Consultor no podrá, durante el plazo que dure su contratación, tener negocios de ninguna clase ni relaciones comerciales con empresas que de alguna manera se relacionen con el giro de actividades para las cuales fue contratado. La violación de esta norma será causal para resolver el contrato sin perjuicio de otras responsabilidades penales y administrativas que le pudieren caber.

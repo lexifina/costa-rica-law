@@ -1,0 +1,2 @@
+Artículo 13.—Fiscalización. Corresponde a la Secretaría Técnica la fiscalización de los contratos de consultoría que se celebren de conformidad con este Reglamento, de todo lo cual deberá mantener debidamente informado al Consejo Nacional de Concesiones.
+La Auditoría Interna de la Administración o la Contraloría General de la República tendrán facultades irrestrictas de investigación y control sobre estos contratos y el Secretario Técnico estará obligado a brindarles los datos que pidan referentes a estos procedimientos.
