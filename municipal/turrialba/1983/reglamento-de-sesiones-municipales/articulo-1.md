@@ -1,2 +1,0 @@
-1) La Municipalidad de Turrialba, de acuerdo con la ley, sesionará diez veces al mes en forma ordinaria y extraordinariamente cuando juzgue pertinente, según circunstancias especiales.
-1.1 El recinto oficial será el "Salón de Sesiones"; sin embargo, sesionará cada dos meses en las cabeceras o caseríos distritales cuando hayan causas excepcionales. También lo podría hacer en cualquier centro de enseñanza del cantón con fines educativos o necesidades cívicas (párrafo 2° del artículo 40 del Código Municipal vigente).

@@ -1,1 +1,0 @@
-13) Las actas municipales deben ser sucintas y en ellas se insertarán los acuerdos tomados; asimismo, cuando el regidor o síndico desee que se deje constancia de su razonamiento, o bien, cuando se pida dejar grabadas en el acta las exposiciones de algún compañero.
