@@ -1,4 +1,1 @@
-Artículo 218.-Las partes tendrán derecho a una comparecencia oral y
-privada con la Administración, en que se ofrecerá y recibirá en lo posible
-toda la prueba, siempre que la decisión final pueda causar daños graves a
-alguna o a todas aquellas, de conformidad con la ley.
+Artículo 218.-Las partes tendrán derecho a una comparecencia oral y privada con la Administración, en que se ofrecerá y recibirá en lo posible toda la prueba, siempre que la decisión final pueda causar daños graves a alguna o a todas aquellas, de conformidad con la ley.

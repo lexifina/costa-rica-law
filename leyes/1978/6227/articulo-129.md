@@ -1,4 +1,1 @@
-Artículo 129.- El acto deberá dictarse por el órgano competente y por
-el servidor regularmente designado al momento de dictarlo, previo
-cumplimiento de todos los trámites sustanciales previstos al efecto y de
-los requisitos indispensables para el ejercicio de la competencia.
+Artículo 129.-El acto deberá dictarse por el órgano competente y por el servidor regularmente designado al momento de dictarlo, previo cumplimiento de todos los trámites sustanciales previstos al efecto y de los requisitos indispensables para el ejercicio de la competencia.

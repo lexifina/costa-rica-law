@@ -1,5 +1,1 @@
-Artículo 300.- A los fines de la recepción de la prueba, el órgano
-director tendrá las mismas facultades y deberes que las autoridades
-judiciales y los testigos, peritos o partes incurrirán en los delitos de
-falso testimonio y perjurio, previstos en el Código Penal, cuando se dieren
-las circunstancias ahí señaladas.
+Artículo 300.-A los fines de la recepción de la prueba, el órgano director tendrá las mismas facultades y deberes que las autoridades judiciales y los testigos, peritos o partes incurrirán en los delitos de falso testimonio y perjurio, previstos en el Código Penal, cuando se dieren las circunstancias ahí señaladas.

@@ -1,5 +1,1 @@
-Artículo 278.- El coadyuvante no podrá pedir nada para sí ni podrá
-cambiar la pretensión a la que coadyuva, pero podrá hacer todas las
-alegaciones de hecho y derecho y usar todos los recursos y medios
-procedimentales para hacer valer su interés, excepto en lo que perjudique
-al coadyuvado.
+Artículo 278.- El coadyuvante no podrá pedir nada para sí ni podrá cambiar la pretensión a la que coadyuva, pero podrá hacer todas las alegaciones de hecho y derecho y usar todos los recursos y medios procedimentales para hacer valer su interés, excepto en lo que perjudique al coadyuvado.

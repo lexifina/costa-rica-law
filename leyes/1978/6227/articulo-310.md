@@ -1,4 +1,1 @@
-Artículo 310.- Sólo las partes y sus representantes y abogados podrán
-comparecer al acto, fuera de la Administración, pero ésta podrá permitir la
-presencia de estudiantes, profesores o científicos, quienes asistirán
-obligados por el secreto profesional.
+Artículo 310.-Sólo las partes y sus representantes y abogados podrán comparecer al acto, fuera de la Administración, pero ésta podrá permitir la presencia de estudiantes, profesores o científicos, quienes asistirán obligados por el secreto profesional.
