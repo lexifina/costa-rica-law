@@ -1,0 +1,1 @@
+Artículo 22.- Además del libro a que se refiere el artículo 17, las asociaciones deberán llevar: un libro de actas de la asamblea general; un libro de actas de las sesiones de Directiva y libros Mayor y de Caja a cargo del Tesorero. Esos libros deberán ser autorizados por el Juez Civil respectivo, en la forma que determina el artículo 11 de la ley Nº 20 de 5 de julio de 1901.

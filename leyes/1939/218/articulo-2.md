@@ -1,0 +1,1 @@
+Artículo 2º.- Las asociaciones que no siendo de las enumeradas en el artículo anterior se propongan un objeto meramente comercial o civil se regirán por las leyes comerciales o civiles , según el caso.
