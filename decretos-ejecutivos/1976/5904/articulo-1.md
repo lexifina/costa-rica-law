@@ -1,4 +1,4 @@
-N° 5904-G
+1N° 5904-G
 PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE GOBERNACIÓN POLICÍA, JUSTICIA Y GRACIA,
 Con fundamento en los incisos 3) y 18) del artículo 140 de la Constitución Política y ley N° 5251 de 11 de julio de 1973, y
@@ -382,8 +382,8 @@ De este punto, al punto de origen de la presente descripción, vértice Angucian
 (Así reformado por el artículo 2° del decreto ejecutivo N° 12232 del 26 de enero de 1981)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se acordó modificar los linderos de la Reserva Indígena Guaymí de Coto Brus, a fin de incluir en ella al grupo indígena de Paraíso y excluir los Altos del Cerro Paraguas)
 (Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 12232 del 26 de enero de 1981, se indicó qie la Reserva Indígena Guaymí de Coto Brus, en referencia a la División Político - Administrativa, tendrá en adelante calidad de "Barrio" del cantón de Coto Brus)
-RESERVA INDÍGENA GUAYMÍ DE CONTE-BURICA(*)
-(Mediante el artículo 1° del decreto ejecutivo N° 8514 del 2 de mayo de 1978, se indicó que la Reserva Indígena de Burica se llamará en adelante: "Reserva Indígena Guaymí de Conteburica". Posteriormente por el artículo 1° del decreto ejecutivo N° 13545 del 26 de abril de 1982, se indicó que la a Reserva Indígena de Burica se llamará en adelante: "Reserva Indígena Guaymí de Conteburica".)
+RESERVA INDÍGENA GUAYMÍ DE CONTEBURICA(*)
+(Mediante el artículo 1° del decreto ejecutivo N° 8514 del 2 de mayo de 1978, se indicó que la Reserva Indígena de Burica se llamará en adelante: "Reserva Indígena Guaymí de Conteburica". Posteriormente por el artículo 1° del decreto ejecutivo N° 13545 del 26 de abril de 1982, se indicó que la a Reserva Indígena de Burica se llamará en adelante: "Reserva Indígena Guaymí de Conteburica".Consecuentemente por el artículo 3° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984, se indicó que el nombre correcto de la reserva establecida por el decreto N° 8514-G, Alcance N° 93 a "La Gaceta" N° 105 de 2 de junio de 1978 y delimitada por decreto N° 13545-G, "La Gaceta" N° 92 de 13 de mayo de 1982 es "Reserva Indígena Guaymí de Conteburica.")
 La Reserva Indígena Guaymí de Conte-Burica se localiza en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541-11, Río Caña Blanca 3540-1, Puerto Armuelles 3640-IV.
 La Reserva se delimita por los puntos cuyas coordenadas se dan a continuación:
 Partiendo de un punto en la playa en coordenadas N 254 850 E 560 450, se continúa con los puntos de coordenadas siguientes:
@@ -412,7 +412,7 @@ N 263 450 E 569 425
 N 262 725 E 569 250
 N 262 500 E 569 750
 N 260 950 E 570 150 (Quebrada Vueltas)
-N 259 950 E 569 825 •
+N 259 950 E 569 825 .
 N 259 725 E 570 550 (Unión de los dos brazos del río La Vaca)
 N 259 650 E 571 450
 N 258 575 E 571 225
@@ -432,7 +432,8 @@ Superficie de la Reserva Indígena Guaymí de Conte-Burica: 11 910 hectáreas.
 (**) (Así adicionado el párrafo anterior por el artículo 4° del decreto ejecutivo N° 13545 del 26 de abril de 1982)
 (*) (Así adicionada la Reserva Indígena Guaymí de Conteburica anterior por el artículo 2° del decreto ejecutivo N° 8514 del 2 de mayo de 1978)
 (Así reformada la Reserva Indígena Guaymí de Conteburica anterior por el artículo 2° del decreto ejecutivo N° 13545 del 26 de abril de 1982)
-RESERVA INDÍGENA GUAYMÍ DE ABROJOS-MONTEZUMA(*)
+RESERVA INDÍGENA GUAYMÍ DE ABROJOS DE MONTEZUMA(*)
+(Así modificada la denominación anterior por el artículo 1° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984. Anteriormente se indicaba: "Reserva Indígena Guaymí de Abrojos, Montezuma")
 La Reserva Indígena Guaymí de Abrojos-Montezuma se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Canoas 3641 IV y Cañas Gordas, 3642 III.
 La reserva está delimitada por los puntos cuyas coordenadas se detallan a continuación:
 N 288 950 | E 588 150 | Río Abrojos.
@@ -451,7 +452,8 @@ N 288950 | E 588150
 (*) (Así adicionada la Reserva Indígena de Abrojo de Montezuma anterior por el artículo 3° del decreto ejecutivo N° 8514 del 2 de mayo de 1978)
 (Así reformada la la Reserva Indígena de Abrojo de Montezuma anterior por el artículo 1° del decreto ejecutivo N° 12115 del 9 de diciembre de 1980)
 RESERVA INDÍGENA DE LA ESTRELLA
-Establécese la "Reserva Indígena Cabécar de Tayni, Estrella". La Reserva Indígena Cabécar de Tayni, Estrella, se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Estrella 3545 II y Telire 3544 I.
+Establécese la "Reserva Indígena Cabécar de Tayni(*),". La Reserva Indígena Cabécar de Tayni,(*), se localiza en las hojas del Instituto Geográfico Nacional, escala 1/50.000, Estrella 3545 II y Telire 3544 I.
+(*) (Así reformado por el artículo 2° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984. Anteriormente se llamaba: "Reserva Indígena Cabécar de Tayni, Estrella")
 Se localiza por los puntos cuyas coordenadas son:
 198 107 | 636 403 | (Vértice Muchilla, ÍGN)
 196 850 | 638 600 |
@@ -519,7 +521,8 @@ Caseríos:
 7) | Suruy | (Suruy, Alto Suruy) .
 (Así adicionados los caseríos anteriores por el artículo 3° del decreto ejecutivo N° 12233 del 26 de enero de 1981)
 (Así reformado los linderos de la Reserva Indígena de la Estrella anterior, por el artículo 1° del decreto ejecutivo N° 12233 del 26 de enero de 1981)
-(Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 12233 del 26 de enero de 1981 se indicó que La Reserva Indígena Cabécar de Tayni, Estrella, en referencia a la División Político- Administrativa, tendrá en adelante calidad de "Barrio" del cantón central, distrito único, de Limón.)
+(Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 12233 del 26 de enero de 1981 se indicó que La Reserva Indígena Cabécar de Tayni(*), en referencia a la División Político- Administrativa, tendrá en adelante calidad de "Barrio" del cantón central, distrito único, de Limón.)
+(*) (Así reformado por el artículo 2° del decreto ejecutivo N° 16052 del 3 de diciembre de 1984. Anteriormente se llamaba: "Reserva Indígena Cabécar de Tayni, Estrella")
 RESERVA INDÍGENA DE GUATUSO
 La Reserva Indígena de Guatuso se encuentra localizada en las hojas del Instituto Geográfico Nacional, escala 1: 50.000, Guatuso 3248 III y Arenal S 247 IV.
 La Reserva se localiza por los siguientes rumbos, distancias y coordenadas:
