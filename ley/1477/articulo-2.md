@@ -1,0 +1,1 @@
+Artículo 2°.- La Junta Administrativa del Colegio de Limón podrá comprar el edificio municipal destinado a taller, pagando el costo de esa construcción que resulte de los libros de contabilidad Municipales y que ascienda a sesenta y ocho mil quinientos colones (¢68,500.00)
