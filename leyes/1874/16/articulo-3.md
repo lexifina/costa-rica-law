@@ -1,0 +1,2 @@
+Art 3° Para la ejecución de la presente ley, relativamente a los delitos indicados, quedan suspensas, las garantías consignadas en los artículos 38, 40 y 42 de la Constitución.
+Al Poder Ejecutivo. - Dado en el Salón de Sesiones, Palacio Nacional, San José, mayo veintiséis de mil ochocientos setenta y cuatro. Palacio Nacional, San José, veintiséis de mayo de mil ochocientos de mayo de mil ochocientos setenta y cuatro. Ejecútese.
