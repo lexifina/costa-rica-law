@@ -1,0 +1,1 @@
+Art 7° El Inspector General vigilará porque todos los empleados en el ramo de Hacienda, seas exactos en el cumplimiento de sus deberes, informando a la Secretaría de Hacienda de lo que a este respecto ocurra.

@@ -1,0 +1,1 @@
+Art 3° El Inspector General organizará el servicio de los resguardos de vigilancia pública, y secreta del modo que lo juzgare más adecuada al fin propuesto, y podrá removerlos cuando fuese conveniente dando cuenta.
