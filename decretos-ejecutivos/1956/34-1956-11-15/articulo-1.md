@@ -1,3 +1,5 @@
+(Derogado)
+(Este decreto ejecutivo fue derogado por el artículo 29 de la ley N° 5251 del 11 de julio de 1973)
 N° 34
 EL PRESIDENTE CONSTITUCIONAL DE LA REPÚBLICA
 De conformidad con lo dispuesto por el artículo 4° del Decreto Ejecutivo N° 45 de fecha de 3 de diciembre de 1945, 7 y en uso de la facultad que le brinda el párrafo final del artículo 8° de la Ley General de Terrenos Baldíos N° 13 del 1° de enero de 1939,

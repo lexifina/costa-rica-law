@@ -14,3 +14,4 @@ Declara y demarca zonas como Reservas Indígenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1957-01-05 | la propia norma |
+| 2 | 1973-07-11 | Ley 5251 |
