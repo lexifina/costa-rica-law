@@ -14,3 +14,4 @@ Reforma al reglamento general del Ministerio de Planificación Nacional y Polít
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-06-03 | la propia norma |
+| 2 | 1999-01-04 | Decreto Ejecutivo 27596 (1999-01-04) |

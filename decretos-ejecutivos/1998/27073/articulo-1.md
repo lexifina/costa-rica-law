@@ -9,7 +9,8 @@ II.—Que es necesario readecuar algunos elementos de la organización interna d
 DECRETAN:
 Artículo 1°—Refórmase el decreto ejecutivo N° 23323-PLAN del 17 de mayo de 1994, "Reglamento General del Ministerio de Planificación Nacional y Política Económica (MIDEPLAN)", de la siguiente manera: modifíquense el inciso c) del artículo 8°, el artículo 9° y el inciso e) del artículo 11; adiciónense al artículo 8° los incisos d) y e); agréguese un nuevo artículo 13 y córrase la numeración del articulado a partir del numeral incorporado. Todo lo cual se leerá de la siguiente manera:
 "Artículo 8°— …
-c) La Oficialía Mayor tendrá a cargo la supervisión de las actividades administrativas y contará con una Unidad de Sistemas para servicio del Ministerio.
+c) La Oficialía Mayor tendrá a cargo la supervisión del Área Administrativa de la institución y contará con una Unidad de Sistemas y con un Centro de Documentación (CEDOP).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 27596 del 4 de enero de 1999)
 d) La Dirección Ejecutiva será dependencia directa del Despacho Ministerial y estará a cargo de un Director Ejecutivo, cuyo nombramiento y remoción corresponderá al Ministro de MIDEPLAN. La Dirección Ejecutiva tendrá las siguientes funciones:
 i) Dirigir la ejecución de los lineamientos y directrices emitidos por el Ministro y el Viceministro de MIDEPLAN para organizar, coordinar y controlar todas las actividades que realizan cada una de las diferentes instancias de MIDEPLAN, garantizando el desarrollo de las mismas con el mayor grado de eficiencia y eficacia.
 ii) Facilitar al Consejo de Asesoría Presidencial todas aquellas acciones que dentro de las competencias establecidas para este Ministerio, garanticen el cumplimiento efectivo del mandato de Ley y las directrices y lineamientos presidenciales.
@@ -19,13 +20,10 @@ v) Constituirse en vínculo entre el Despacho Ministerial y las instancias técn
 vi) Colaborar en la formulación, el cumplimiento y la realización del Plan Nacional de Desarrollo y del Sistema Nacional de Evaluación con el Despacho Ministerial y el Consejo de Asesoría Presidencial.
 vii) Elaborar y someter al Ministro los proyectos ministeriales de presupuesto anual, los extraordinarios y las modificaciones a éstos.
 viii) Ejercer las demás funciones que se le asignen.
-e)El Área Administrativa estará encargada de las funciones administrativas y financieras de MIDEPLAN. Contará con las siguientes Unidades:
-i) Unidad de Recursos Humanos
-ii) Unidad Financiero Contable
-iii) Unidad de Servicios Generales
-iv) Unidad de Proveeduría
-v) Unidad de Documentación
-vi) Unidad de Publicaciones
+e) El Área Administrativa estará integrada por dos procesos:
+i) Proceso Administrativo, que comprende las actividades de administración de recursos humanos, administración de recursos materiales y administración de servicios generales.
+ii) Proceso Financiero, que comprende las actividades de contabilidad, tesorería y presupuesto.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 27596 del 4 de enero de 1999)
 Artículo 9°—Para un eficaz cumplimiento de las funciones contempladas en este Reglamento, MIDEPLAN dirigirá sus esfuerzos hacia cuatro áreas prioritarias. Para el funcionamiento idóneo de esas áreas, MIDEPLAN tendrá una estructura flexible que le permita adecuarse a la evolución del desarrollo nacional. Estas áreas son:
 a) Análisis del Desarrollo
 b) Evaluación y Seguimiento
