@@ -1,4 +1,7 @@
-N° 11.·-EL CONGRESO CONSTITUCIONAL
+(Derogado)
+N° 11
+(Esta norma fue Derogada por el artículo N° 67 de la Nº 5066 del 30 de agosto de 1972, “Ley General de Ferrocarriles”)
+EL CONGRESO CONSTITUCIONAL
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 La siguiente ley sobre ferrocarriles:
