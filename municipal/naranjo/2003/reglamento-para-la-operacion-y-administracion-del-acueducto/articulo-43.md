@@ -1,0 +1,1 @@
+Artículo 43.—De la organización del Departamento de Acueducto Municipal. El Departamento de Acueducto Municipal se organizará de acuerdo al reglamento específico que para tal efecto emitirá la Municipalidad de Naranjo en el plazo de seis meses a partir de la publicación del presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 30.—Del procedimiento de suspensión. Para la suspensión de servicios según la resolución Nº 2201-04233 de la Sala Constitucional (23/5/2001) nos libera de la obligación de entregar notificación a los abonados, ya que la suspensión de servicio se dará con un mes vencido y el que está al cobro.

@@ -1,0 +1,5 @@
+CAPÍTULO V
+Del arreglo de pago
+Artículo 33.—Del arreglo de pago y de la constancia en el pago de impuestos. Se autoriza a los Departamentos de Contabilidad con asocio al de Acueductos a realizar arreglos de pago, por una única vez, cuando el monto no supere la suma de diez mil colones. Misma que podrá ser aumentada por acuerdo del Concejo Municipal, con el visto bueno de los departamentos indicados y por escrito se establecerá la forma de pago.
+Para que dicho arreglo de pago proceda, el abonado deberá cancelar un cincuenta por ciento de lo adeudado, cancelando el restante en pagos de acorde a la necesidad del caso. Pero según la circunstancia el Contador Municipal está facultado para modificar el porcentaje del primer pago y la cantidad de pago, según el caso y debidamente justificado, analizándose la situación económica y social del usuario.
+En el caso de que el usuario requiera una constancia del pago de servicios municipales, se emitirá la misma indicándose los montos adeudados, periodos y otros datos como multas e intereses.
