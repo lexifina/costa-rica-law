@@ -1,1 +1,0 @@
-Artículo 14.-Comunicado el resello al Gobernador, si éste se conformare, ordenará se dé cumplimiento al acuerdo. Si no lo aceptare, elevará dentro de tres días hábiles el asunto a conocimiento de la Secretaría de Gobernación, con copias de los acuerdos vetado y confirmatorio y de las objeciones presentadas.

@@ -1,1 +1,0 @@
-Artículo 15.-La Secretaría de Gobernación, así en el caso de apelación como en el de veto, resolverá lo procedente, dentro de los sesenta días hábiles siguientes al del recibo del expediente o diligencias. Si estimare ilegal el acuerdo, lo revocará o lo confirmará y mandará ejecutar en caso contrario. En uno u otro caso, expresará los fundamentos de la resolución.

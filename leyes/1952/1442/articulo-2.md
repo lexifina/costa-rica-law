@@ -1,1 +1,0 @@
-Articulo 2°-En cada caso la Contraloría General de la República estimará si el monto de la cuenta fijada para tales objetos, guarda proporción con la situación o los ingresos de la respectiva entidad.
