@@ -1,0 +1,2 @@
+Artículo 3°.- Está prórroga tendrá una vigencia del 1° de julio al 31 de octubre de 1999. Vencido dicho plazo, regirán de nuevo los derechos arancelarios vigentes antes de la modificación realizada en el decreto 27742-MEIC-COMEX-MAG, sin perjuicio de la potestad del Poder Ejecutivo de modificar este decreto antes de dicho plazo si lo estima pertinente.
+Dado en la Presidencia de la República.- San José, a los veintitrés días del mes de junio de mil novecientos noventa y nueve.
