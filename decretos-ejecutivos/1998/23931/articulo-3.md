@@ -1,0 +1,1 @@
+Artículo 3°—E1 PNT incluye; a) Pruebas de laboratorio para la detección y la confirmación diagnóstica de las enfermedades incluidas, b) Consultas especializadas para el tratamiento y seguimiento del niño afectado y c) Consejo Genético de la familia.

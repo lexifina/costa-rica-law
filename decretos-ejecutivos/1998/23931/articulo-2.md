@@ -1,0 +1,1 @@
+Artículo 2°—Los consultorios pediátricos privados y los laboratorios clínicos privados podrán participar en el PNT en forma voluntaria, tomando la muestra gratuitamente y remitiéndola al laboratorio central del PNT.
