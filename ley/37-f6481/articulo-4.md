@@ -1,0 +1,1 @@
+Art 4° El Poder Ejecutivo hará construir un mausoleo en el Panteón general de esta Capital, para depositar en él los restos de los finados Carrillo Mora (Juan y José Joaquín) y Cañas, con capacidad suficiente para recibir las de otros personajes beneméritos a quienes la República acuerde esta distinción.
