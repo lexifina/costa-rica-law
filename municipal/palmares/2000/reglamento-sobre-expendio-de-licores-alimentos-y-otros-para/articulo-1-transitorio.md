@@ -1,0 +1,2 @@
+Transitorio l.-Todos los establecimientos con actividad principal o secundaria de licor, que dentro de un plazo de tres meses, a partir de la publicación de este reglamento, no cuenten con los requisitos señalados en el artículo 3° punto 1, de este reglamento, será recalificado, pasando a la categoría "A" de Bar, determinada por la Ley 7633, con el horario correspondiente.
+(Así adicionado y publicado en La Gaceta N° 176 del 13 de setiembre del 2000).

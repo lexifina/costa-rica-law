@@ -7,7 +7,8 @@ CAPITULO I
 Clasificaciones
 Artículo 1°-Definición de términos para efectos de] presente reglamento:
 1. Restaurante: Todo establecimiento gastronómico de expendio de alimentos y bebidas de acuerdo a un menú establecido de comida nacional e internacional.
-2. Restaurante sin venta de licor: Todo establecimiento gastronómico dedicado únicamente al expendio de comidas sin la autorización para el expendio de bebidas alcohólicas.
+2. Restaurante sin venta de licor: Todo establecimiento gastronómico dedicado únicamente al expendio de comidas sin expendio de bebidas alcohólicas.
+(Así reformado el punto anterior y publicado en La Gaceta N° 176 del 13 de setiembre del 2000).
 3. Restaurante con venta de licor: Todo establecimiento gastronómico donde el expendio de bebidas alcohólicas es una actividad secundaria y no principal.
 4. Bar, cantina o taberna: Todo negocio cuya actividad comercial principal es el expendio de bebidas alcohólicas para su consumo al detalle y dentro del establecimiento, en los cuales no existan actividades bailables o de espectáculos públicos, con la debida patente de licores otorgada por la Municipalidad y que se encuentre al día.
 5. Salones de baile, discotecas: Todo negocio cuya actividad principal y permanente, es el expendio de bebidas alcohólicas y la realización de bailes públicos con música de cabina o presentación de orquestas, conjuntos o grupos musicales. Deberán contar con las dimensiones y medidas de seguridad que las leyes y reglamentos exijan para la actividad.

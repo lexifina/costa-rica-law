@@ -14,3 +14,4 @@ Reglamento sobre Expendio de Licores, Alimentos y Otros, para el Cantón de Palm
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-09 | la propia norma |
+| 2 | 2000-09-05 | Reglamento municipal 0 (2000-09-05) |
