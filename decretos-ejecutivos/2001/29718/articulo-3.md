@@ -1,0 +1,1 @@
+Artículo 3º—El Consejo de Cooperación para el Proyecto "Detener la Exclusión, Crear Valor DECV" coordinará con las Instituciones y Empresas Estatales los asuntos correspondientes a la ejecución, los cuales podrán brindar todas las facilidades y cooperación necesarias en procura del desenvolvimiento exitoso del Proyecto.

@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones del sector público y del sector privado, dentro del marco legal respectivo, podrán contribuir con recursos, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos, en la exitosa realización del Proyecto indicado.
