@@ -1,2 +1,4 @@
-Artículo 21.- Habrá un Vicepresidente Ejecutivo que será designado por el Directorio a propuesta del Presidente del Banco. Ejercerá la autoridad y desempeñará en la administración del Banco las funciones que determine el Directorio.
-El Vicepresidente Ejecutivo participará en las reuniones del Directorio, pero sin derecho a voto.
+Artículo 21.- Habrá un Vicepresidente Ejecutivo que será designado por el Directorio de una terna propuesta por el Presidente quien deberá reunir los mismo requisitos exigidos para ser Presidente Ejecutivo. El Vicepresidente Ejecutivo sustituirá al Presidente en las ausencias temporales de éste, con sus mismas facultades y atribuciones.
+Corresponde al Directorio, a propuesta del Presidente Ejecutivo, determinarla autoridad y funciones que desempeñará el Vicepresidente Ejecutivo en la administración del Banco, cuando no actúe en sustitución del Presidente Ejecutivo.
+El Vicepresidente deberá tener diferente nacionalidad a la del Presidente del Banco y podrá participar en las reuniones del Directorio, en la forma que éste determine.
+(Así reformado por el artículo 1° de la ley N° 6886 del 20 de setiembre de 1983)
