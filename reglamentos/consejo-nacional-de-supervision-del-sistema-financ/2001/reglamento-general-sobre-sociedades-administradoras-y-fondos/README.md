@@ -18,3 +18,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | 3 | 2002-03-14 | Reglamento 290 (2002-03-14) |
 | 4 | 2002-06-18 | Reglamento 307 (2002-06-18) |
 | 5 | 2002-10-22 | Reglamento 355 (2002-10-22) |
+| 6 | 2002-12-19 | Reglamento 346 (2002-12-19) |
