@@ -1,0 +1,1 @@
+Artículo 16- Mediciones. Todas las mediciones y análisis de datos se harán de acuerdo con los métodos y procedimientos establecidos por el Ministerio de Salud a través de la Dirección de Protección al Ambiente Humano, quien ser el certificador oficial de las mediciones sónicas.

@@ -1,0 +1,1 @@
+Artículo 12°- De las facilidades para la inspección. Los propietarios, encargados u ocupantes del establecimiento público o privado, objeto de la visita y los propietarios, encargados u ocupantes de los predios colindantes, están obligados a permitir el acceso y dar todo género de facilidades e informes al personal del Ministerio de Salud para el desarrollo de su labor.

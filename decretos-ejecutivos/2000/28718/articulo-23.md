@@ -1,0 +1,12 @@
+Artículo 23.- Excepciones. Las siguientes acciones estarán exentas de los requisitos establecidos en el artículo anterior.
+- Periodo Diurno (6,00 horas y las 20,00 horas)
+- Sonidos por proyectos temporales para la reparación y mantenimiento de hogares y sus dependencias.
+- Sonidos producidos por el disparo de armas livianas de fuego en polígonos de tiro autorizados.
+- Sonidos producidos durante la instalación y reparación de servicios públicos esenciales
+- Sonidos estrictamente necesarios producidos por personal de emergencia, policías, bomberos o conductores de ambulancias y otros similares, o por el equipo utilizado por el citado personal durante el cumplimiento de sus deberes a fin de proteger la salud, integridad física, seguridad de la comunidad o en labores que deban realizarse después de un desastre público. Se incluyen además las plantas generadoras de electricidad, subestaciones y equipo de bombeo de agua durante casos de emergencia temporal.
+- Sonidos producidos por artefactos para la prevención de accidentes.
+- Sonidos producidos en actos públicos eventuales y paradas no rutinarias.
+- Sonidos causados por alarmas, campanario y similares que tengan una duración de cinco (5) minutos.
+- Sonido causado por la voz humana no amplificada.
+- Sonido causado por animales.
+- Cualquier otra actividad que a criterio técnico no genere un problema de contaminación sónica.

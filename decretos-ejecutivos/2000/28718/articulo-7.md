@@ -1,0 +1,1 @@
+Artículo 7°- De las interferencias. Ninguna persona física o jurídica causará o permitirá, la interferencia o destrucción de cualquier equipo de control de ruido, excepto que sea para propósitos de reparación o reposición.

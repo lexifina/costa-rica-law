@@ -1,0 +1,1 @@
+Artículo 25- De la restricción temporal. Las autoridades competentes, podrán señalar bajo criterio técnico, zonas de restricción temporal o permanente a la emisión de ruido en áreas cercanas a escuelas, colegios, iglesias, jardines de niños y similares.

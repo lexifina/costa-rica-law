@@ -1,0 +1,1 @@
+Artículo 15- De los registros. El Ministerio de Salud, podrá requerir del dueño o responsable de cualquier predio público o privado, donde se ubique la fuente emisora de sonido, industrial o comercial, establecer y mantener registros sobre las diferentes (equipos) fuentes de emisión de sonidos y preparar informes que a juicio del Ministerio, sean necesarios y razonables.

@@ -1,0 +1,1 @@
+Artículo 13- Facultades para concretar la inspección. Si los dueños, poseedores, sus representantes o funcionarios a cargo, impidieran la entrada al personal autorizado, las autoridades de Salud podrán utilizar los medios establecidos en la Ley General de Salud, Ley Orgánica y demás normas supletorias, a fin de tener acceso al predio, equipo o propiedad a inspeccionar.

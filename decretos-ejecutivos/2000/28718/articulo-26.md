@@ -1,0 +1,1 @@
+Artículo 26- Regulación de ruido en operaciones de carga y descarga. En toda operación de carga o descarga de mercancías u objetos, que se realice en la vía pública, el responsable de la operación no deberá rebasar los niveles de ruido establecidos en el presente Reglamento.

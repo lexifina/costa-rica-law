@@ -1,0 +1,37 @@
+Artículo 3°- Definiciones. Para efectos del presente Reglamento se entenderá por:
+- Autoridad competente: Ministerio de Salud.
+- Amortiguador de sonido: Cualquier dispositivo o artefacto usado para reducir el sonido producido por la emisión de gases de un motor de combustión interna.
+- Banda de frecuencias: Intervalo de frecuencia donde se presentan componentes preponderantes de ruido.
+- Bocina de aire: Cualquier tipo de artefacto que se utilice para producir una señal de sonido por medio de gas comprimido.
+- Construcción: Aquellas actividades que incluyan movimiento de terreno, demolición, remoción o disposición, excavación, operaciones en terminaciones en edificios, predios, derechos de vía, estructuras públicas o privadas o propiedad similar.
+- Contaminación por ruido: Cualquier emisión de sonido que afecte adversamente la salud o seguridad de los seres humanos, la propiedad o el disfrute de la misma, según las normas que se establecen en este Reglamento.
+- dB(A): El total de la presión de sonido en decibeles de todos los sonidos medidos por un sonómetro con una referencia de presión de 20 micropascales, usando la escala de medición "A" del sonómetro y la unidad de medición se expresa como dB(A).
+- Decibelio o Decibel (dB): Unidad dimensional, usada para expresar el logaritmo de la razón entre una cantidad medida y una de referencia, de esta manera el dB es usado para describir niveles de presión, potencia o intensidad sonora.
+- Nivel de presión sonoro: Está definida por N.P.S = 20 Log P1 / P0 en dB.
+P1= presión efectiva medida.
+P0= presión sonora de referencia = 2 x 10-5 Pa = 20uPa.
+- Demolición: Destrucción, remoción o desmantelamiento intencional de estructuras, tales como: edificios públicos o privados, superficies de derechos de vía, u otros similares.
+- Derecho de vía pública: Cualquier vía, calle, carretera, autopista, avenida, callejón, acera o espacio similar destinado exclusivamente al uso público.
+- Diurno (D): Período comprendido entre las 6,00 horas y las 20,00 horas.
+- DPAH: Dirección de Protección del Ambiente Humano, del Ministerio de Salud.
+- Emergencias: Situación imprevista que tiene consecuencias negativas o la probabilidad que estas ocurran; sobre las personas materiales o el ambiente que requieren de atención inmediata.
+- Emisión: Emanación de sonido a la atmósfera por una fuente emisora.
+- Fuente emisora: Cualquier objeto o artefacto que de origen a una onda sonora, ya sea de tipo estacionario, móvil o portátil.
+- L10: El nivel de sonido, en la escala A, dB(A), que es excedido en un diez por ciento (10%) del tiempo para un período bajo consideración.
+- L Equivalente (Leq): Nivel de sonido continuo equivalente. Es decir, el nivel constante, dB(A), que puede producir la misma energía sonora (medida en escala A) que un sonido variante especificado en un tiempo establecido.
+- Límite de propiedad: Límite de colindancia con el predio donde se ubica la fuente que origina el sonido.
+- Nivel de sonido: El nivel de presión de sonido medido mediante las características de medición y escalas A, B o C, como lo especifica la "American National Standards Institute" (ANSI), "Specification for Sound Level Meters", SI- 4-1971, o la última revisión.
+- Nocturno (N): Período comprendido entre las 20,00 horas y las 6,00 horas.
+- Ondas de sonido: Son las variaciones periódicas ondulatorias de sonido en la densidad y en la presión del medio.
+- Persona: Toda persona, física o jurídica, o grupo de personas privadas o públicas, incluyendo agencias, instituciones del gobierno, municipios u otros similares.
+- Fuente emisora de sonido: Comprende todas las fuentes individuales de sonido que están localizadas dentro de los límites de una propiedad, ya sean de tipo estacionario, móvil o portátil.
+- Fuente emisora de sonidos nuevo o modificado: Cualquier fuente que se instale en un predio, local o similar que de origen a sonido inexistente a la fecha de vigencia de este Reglamento.
+- Presión de onda sonora: Cantidad expresada en decibeles obtenida del producto de 20 veces el logaritmo a la base 10 (20 log 10) de la proporción de la presión de sonido que se mide a una presión de referencia de 20 micropascales (20 x 10-6 N/m2). La presión de onda sonora se representa como Lp se expresa en decibelios.
+- Ruido: Sonido indeseable o perturbante que afecte psicológicamente o físicamente al ser humano o exceda las limitaciones establecidas en este Reglamento.
+- Ruido del ambiente (Background noise): Todos los ruidos asociados con un ambiente dado, compuesto usualmente por sonidos de varias fuentes cercanas y lejanas.
+- Ruido continuo: Ruido constante e invariable.
+- Ruido intermitente: El ruido que se interrumpe o cesa y prosigue o se repite.
+- Ruido de impacto: Ruido que tiene su causa en golpes simples de corta duración.
+- Sonido: Fenómeno vibratorio en el cual la materia se pone en vibración de tal forma que se afecta su densidad. Los cambios en la densidad de la materia (por lo tanto en la presión sonora que ejerce) habrán de ser rítmicos o periódicos. La descripción de este incluir todas aquellas características del sonido, tales como: longitud de onda, duración amplitud de onda, frecuencia, intensidad y velocidad.
+- Sonómetro: Instrumento usado para medir los niveles de sonido de acuerdo con la "American National Standards Institute" (ANSI) Specification for Sound Level Meters SI-4- 1971, type 2, o la última revisión aprobada.
+- Vibración: Cualquier movimiento oscilatorio al azar de cuerpos sólidos descrito por el desplazamiento, velocidad, o aceleración con respecto a un punto de referencia dado.

@@ -1,0 +1,1 @@
+Artículo 19.-En la zona de tranquilidad, ninguna persona ocasionará o permitirá la emisión de cualquier ruido innecesario, inesperado o inusitado en violación a este Reglamento cerca de la vecindad de un hospital, centro de educación, Tribunales de Justicia, o área designada donde sea necesaria una tranquilidad excepcional.

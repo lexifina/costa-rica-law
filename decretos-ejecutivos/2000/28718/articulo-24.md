@@ -1,0 +1,1 @@
+Artículo 24- Las excepciones establecidas en el artículo anterior no impedirán a las autoridades del Ministerio de Salud, requerir la aplicación de la mejor tecnología de control de ruido disponible en el mercado para las actividades indicadas en este Reglamento.
