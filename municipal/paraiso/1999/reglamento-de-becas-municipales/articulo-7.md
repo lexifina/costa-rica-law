@@ -1,0 +1,1 @@
+Artículo 7°-La Tesorería Municipal, no emitirá el primer giro sin haber recibido la autorización de la comisión en la cual le comunica que el estudiante ha completado su documentación. Todos los giros mensuales por concepto de beca solo se extenderán previa por parte del becario de constancia de su centro docente de que se mantiene matriculado.

@@ -1,0 +1,1 @@
+Artículo 8°-No podrán concederse becas a los que no sean costarricenses (excepto lo dispuesto por la convención colectiva de trabajo vigente), ni a los hermanos de quien ya goza de otra beca municipal, particular o del Estado.

@@ -1,0 +1,1 @@
+Artículo 3°-La adjudicación de becas corresponderá a la Comisión de Becas Municipal, que la hará en vista de los antecedentes de los interesados, del respectivo estudio social y del dictamen de comisión.

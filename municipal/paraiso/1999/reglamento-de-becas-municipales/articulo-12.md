@@ -1,0 +1,1 @@
+Artículo 12.-La sección de comisiones llevará un expediente en que consten todos los datos y documentos que acrediten el comportamiento y resultados de los estudios del becario, este queda obligado a enviar a la comisión el informe de las notas al completar cada trimestre y a fin del curso lectivo.

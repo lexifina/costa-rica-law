@@ -1,0 +1,1 @@
+Artículo 11.-Cuando por cualquier causa o en cualquier momento del curso lectivo quede vacante alguna de estas becas, previa recomendación de la Comisión, la Corporación podrá adjudicarla a algún concursante que no hubiera podido obtenerla desde el primer momento por haberse agotado la partida de becas.

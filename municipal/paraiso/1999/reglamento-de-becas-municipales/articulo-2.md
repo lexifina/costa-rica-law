@@ -1,0 +1,1 @@
+Artículo 2°-Pueden aspirar a este programa de becas, aquellos estudiantes vecinos del cantón con distinción y que carezcan de recursos económicos, para sus estudios, también podrán aspirar a estas becas estudiantes sobresalientes y que merezcan como estímulo a su esfuerzo una ayuda de esta naturaleza.
