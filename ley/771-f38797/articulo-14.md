@@ -35,16 +35,16 @@ desempeñe su cargo.
 e) Son atribuciones del Fiscal: velar por el cumplimiento de la Ley
 Orgánica y Estatutos del Colegio; concurrir con el Presidente a
 las revisiones que se realicen en la Tesorería, visando al final
-del año, las cuentas de dicha Tesorería; visitar por lo menos
-dos veces al año, o cuando la Junta Directiva lo estime
-necesario, los laboratorios de propiedad de los Colegiados,
-pudiendo revisar el registro de exámenes realizados por el
-laboratorio; representar judicialmente al Colegio en sustitución
-del Presidente, cuando así lo acordare éste o la Junta
-Directiva; promover anta la Asamblea General el juzgamiento de
-los miembros del Colegio que faltaren a la observancia de esta
-ley, sus reglamentos, o los de la Corporación, o en el
-cumplimiento de los deberes profesionales.
+de año, las cuentas de dicha Tesorería; visitar por lo menos dos
+veces al año, o cuando la Junta Directiva lo estime necesario,
+los laboratorios de propiedad de los Colegiados, pudiendo
+revisar el registro de exámenes realizados por el laboratorio;
+representar judicialmente al Colegio en sustitución del
+Presidente, cuando así lo acordare éste o la Junta Directiva;
+promover anta la Asamblea General el juzgamiento de los miembros
+del Colegio que faltaren a la observancia de esta ley, sus
+reglamentos, o los de la Corporación, o en el cumplimiento de
+los deberes profesionales.
 f) Son atribuciones de los Vocales: asistir a las sesiones de la
 Junta Directiva; suplir las ausencias temporales de cualquiera
 de los miembros, por el orden de su nombramiento.
