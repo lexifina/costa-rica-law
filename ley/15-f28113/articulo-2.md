@@ -1,0 +1,1 @@
+Art 2°.- El Jefe Político por si o por un comisionado de su confianza demarcará el lugar en que deba levantarse la Hermita proporcionando la mayor altura del terreno, y la inmediación a alguna fuente abundante y perenne; arreglándose en su erección a la Ley de 23 de Marzo de 1832.
