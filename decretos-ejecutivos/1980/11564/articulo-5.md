@@ -1,0 +1,1 @@
+Artículo 5º.- Debido al carácter particular de la zona, las fincas de habitantes no indígenas incluidas en los límites del caserío indígena definidos en el artículo 3º, no serán sometidos a un proceso obligatorio de expropiación, sin embargo, en adelante, ninguna persona no indígena podrá adquirir terrenos en el caserío, conforme al artículo 3º de la ley Nº 6172.

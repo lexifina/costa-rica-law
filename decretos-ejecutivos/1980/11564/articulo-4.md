@@ -1,0 +1,1 @@
+Artículo 4º.- La zona así delimitada en el artículo 3º corresponde a la zona de acción de la Asociación de Desarrollo Integral de Matambú, las zonas de acción de las Asociaciones de Desarrollo vecinas deberán ajustarse a estos límites.
