@@ -22,3 +22,4 @@ Reglamento Orgánico de la Junta Protección Social de San José
 | 7 | 1992-06-11 | Decreto Ejecutivo 21388 (1992-06-11) |
 | 8 | 1994-06-09 | Decreto Ejecutivo 23412 (1994-06-09) |
 | 9 | 1997-05-02 | Decreto Ejecutivo 26035 (1997-05-02) |
+| 10 | 1998-10-26 | Decreto Ejecutivo 27408 (1998-10-26) |
