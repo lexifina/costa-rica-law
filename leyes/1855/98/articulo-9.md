@@ -1,0 +1,1 @@
+Art 9°.- Se destinan sesenta pesos anuales del Tesoro público para auxiliar el pago del Secretario, y el mayor sueldo que se le pueda señalar por el Jefe Político y Alcaldes, se cubrirá del fondo de propios de San Ramón

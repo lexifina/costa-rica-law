@@ -1,0 +1,1 @@
+Art 6°.-Estos Alcaldes, sin perjuicio de las funciones judiciales que les confiere la ley, ejercerán en San Ramón con el Jefe Político las que incumben a las Municipalidades y además servirán de consejo al mismo Jefe en los casos que les consulte para algún objeto de bien común.

@@ -1,0 +1,1 @@
+Art 8°.- El Jefe Político con consulta de los Alcaldes, nombrará un Secretario que extienda las actas en los acuerdos de que habla el artículo anterior y que además sirva de Escribiente al expresado Jefe Político.
