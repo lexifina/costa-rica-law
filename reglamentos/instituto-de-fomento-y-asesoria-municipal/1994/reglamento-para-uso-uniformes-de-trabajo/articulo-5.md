@@ -1,0 +1,1 @@
+Artículo 5°—Se podrán entregar uniformes a los siguientes grupos de trabajadores: conserjes, chóferes y guardas. También aquellos casos en que se justifique plenamente, previa anuencia de la Contraloría General de la República.

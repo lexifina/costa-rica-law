@@ -1,0 +1,2 @@
+Artículo 3°— La Institución podrá suministrar uniformes en forma gratuita a los servidores en propiedad que lo requieran, de conformidad con los artículos 9 de la ley N° 2166 "Ley de Salarios de la Administración Pública ", artículo 166, párrafo IV del Código de Trabajo y lo que establece este Reglamento.
+El uniforme no tendrá carácter de salario en especie, ya que soto se otorgarán cuando las necesidades del servicio así lo amerite.

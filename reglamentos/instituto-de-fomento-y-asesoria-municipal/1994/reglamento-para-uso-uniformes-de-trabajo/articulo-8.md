@@ -1,0 +1,1 @@
+Artículo 8°—Los uniformes serán cuidadosamente conservados por los usuarios y éstos no podrán ser utilizados fuera de horas de servicio; salvo el tiempo normal de traslado de la casa de habitación al trabajo y viceversa, además queda prohibido que los funcionarios usen el uniforme en lugares públicos en donde se expedan bebidas alcohólicas.

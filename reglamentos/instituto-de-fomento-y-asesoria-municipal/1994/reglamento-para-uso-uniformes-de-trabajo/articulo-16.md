@@ -1,0 +1,1 @@
+Artículo 16.—En caso de trabajadores nombrados en forma temporal, quedará a criterio de la administración el suministro de uniformes, para lo cual considerará periodo de nombramiento y el tipo de labor a realizar.

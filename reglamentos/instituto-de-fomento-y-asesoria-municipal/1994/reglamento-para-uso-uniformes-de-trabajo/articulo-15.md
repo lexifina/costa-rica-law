@@ -1,0 +1,1 @@
+Artículo 15.—Aquellos funcionarios que tienen el beneficio del uniforme y que incumplan con las disposiciones que este reglamento establece, podrá hacerse acreedor a las sanciones que prevé el capítulo "del Régimen Disciplinario", del Reglamento Autónomo de Organización y Servicio, según la gravedad de la falta.

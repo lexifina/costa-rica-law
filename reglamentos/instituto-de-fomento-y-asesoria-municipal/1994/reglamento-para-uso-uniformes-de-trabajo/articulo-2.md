@@ -1,0 +1,1 @@
+Artículo 2°—Se emite el presente reglamento par regular la distribución y uso de los uniformes de trabajo que el Instituto de Fomento y Asesoría Municipal entrega a algunos de sus trabajadores, que por la naturaleza de su función sea necesario.
