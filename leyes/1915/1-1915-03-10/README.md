@@ -1,0 +1,9 @@
+# Congreso Abre Sesiones Extraordinarias
+
+Ley N° 1 del 1915-03-10. SINALEVI, ficha 3939: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=3939&param2=4169&param3=1>.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 1 | 1915-03-10 | Ley 1 | 1915-03-10 |
