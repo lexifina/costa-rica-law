@@ -1,0 +1,4 @@
+Artículo 2º—Los objetivos generales del Departamento de Sistemas Computadorizados, consisten en:
+a) Formular en coordinación con el COGESIN, lineamientos de política institucional para la administración de recursos informáticos de la institución y garantizar el cumplimiento de la política que sobre la materia emita la Administración Superior.
+b) Asesorar, apoyar, participar activamente en el desarrollo, planificación y administración de los sistemas de información y dar soporte técnico y mantenimiento a todos los recursos informáticos, subsistemas, sistemas, servicios y tecnologías informáticas de telecomunicación; en uso o haber del Ministerio; a fin de garantizar su funcionamiento y utilización óptimos.
+c) Fungir como enlace entre la Administración y el Comité Gerencial de Bienes y Sistemas de información (COGESIN).

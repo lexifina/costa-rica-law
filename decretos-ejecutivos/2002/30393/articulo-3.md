@@ -1,0 +1,1 @@
+Artículo 3º—El Departamento de Sistemas Computadorizados se ocupará de lo relativo a la coordinación, supervisión, funcionamiento, soporte, desarrollo y mantenimiento del patrimonio constituido por los recursos informáticos institucionales ("hardware", "software" y "sistemas y aplicaciones específicas desarrolladas por o para el Ministerio").
