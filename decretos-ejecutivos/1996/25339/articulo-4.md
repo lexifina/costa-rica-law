@@ -1,0 +1,1 @@
+Artículo 4°-Se prohíbe la tala de árboles o el aprovechamiento del bosque, en terrenos de dominio particular, sin la aprobación del plan de manejo por parte de la Administración Forestal del Estado; la cual podrá denegar esa aprobación si con el aprovechamiento se preveé un daño al Ambiente.

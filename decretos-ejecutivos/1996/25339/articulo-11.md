@@ -1,0 +1,1 @@
+Artículo 11.-Se otorga al regente forestal la facultad de certificar que el plan de manejo cumple con los requisitos de sostenibilidad, así como emitir los certificados de origen de la madera con el fin de que las trozas puedan ser transportadas a la industria identificando el lugar en el cual se va a procesar la madera.

@@ -1,0 +1,1 @@
+Artículo 12.-Los planes de manejo serán aprobados por los Directores de la Areas Conservación previa evaluación del documento técnico y si se considera necesario la inspección de campo correspondiente sobre todo en aquellas áreas frágiles, mediante resolución debidamente razonada, en la cual se debe consignar la duración del plan del manejo, volumen total a extraer por especie.

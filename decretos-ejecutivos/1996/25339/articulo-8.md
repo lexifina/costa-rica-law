@@ -1,0 +1,1 @@
+Artículo 8°-La resolución de aprobación, debe contener los datos del petente, citas de inscripción de la propiedad, reseña de la solicitud, mención del certificador, área del proyecto y otros de interés. Esta resolución debe ser recibida por el petente y fungirá como permiso de aprovechamiento forestal, por la vigencia del plan de manejo.
