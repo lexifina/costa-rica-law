@@ -14,3 +14,4 @@ Reforma al Reglamento de Estaciones Inalámbricas Decretos Números 16004- G y 6
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-11-21 | la propia norma |
+| 2 | 2003-10-27 | Decreto Ejecutivo 31443 (2003-10-27) |
