@@ -1,0 +1,1 @@
+Articulo 3°—EI beneficiario facilitará al INCOPESCA, o a cualquier otro ente fiscalizador público, su acceso a la información necesaria para que estos ejerzan un debido control y puedan realizar los estudios y comprobaciones del fiel cumplimiento de las disposiciones del presente Reglamento.

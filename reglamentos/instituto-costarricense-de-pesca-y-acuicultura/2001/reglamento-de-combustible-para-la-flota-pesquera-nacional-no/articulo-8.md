@@ -1,0 +1,1 @@
+Artículo 8°—De los documentos indicados en el artículo anterior, luego de ser utilizados, se devolverán al interesado: a) una copia de la solicitud debidamente firmada y sellada, b) original y copia de la orden de compra emitida, c) original de la factura de compra de combustible del viaje anterior.

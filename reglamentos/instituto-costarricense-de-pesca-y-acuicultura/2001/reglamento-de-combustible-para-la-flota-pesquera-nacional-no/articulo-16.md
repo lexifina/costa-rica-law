@@ -1,0 +1,2 @@
+Articulo 16.—Cuando el propietario de una embarcación con derecho al disfrute del beneficio señale expresamente en la solicitud de combustible que se encuentra imposibilitado para adquirir el combustible, la SCAC registrará la presentación de dicha solicitud a efecto de poder autorizarla dentro de un plazo máximo de 60 días naturales.
+Vencido dicho plazo sin haberse hecho electiva por parte del beneficiario, la solicitud caducará de pleno derecho y será cancelada dentro del Sistema de Registro.

@@ -1,0 +1,10 @@
+Artículo 6°—Atribuciones y Responsabilidades: a-Autorizar la venta de combustible a precio competitivo con el precio Internacional según Ley N° 7384 para la flota pesquera nacional no deportiva de conformidad con la legislación vigente, b- Disminuir o suspender los beneficios en forma particular o general, en cumplimiento de lo estipulado por las disposiciones legales establecidas, c-Llevar el control del combustible autorizado, el efectivamente vendido por RECOPE, los días de ausencia y los reportes de desembarque de cada embarcación beneficiaria, d- Llevar un archivo físico anual y otro computarizado por cada embarcación beneficiaría, mínimo con la siguiente información:
+1- Nombre del beneficiario y fotocopia confrontada de la cédula de identidad o jurídica.
+2- Nombre y registro de firmas de las personas autorizadas para realizar los tramites de combustibles.
+3- Copia de la licencia de pesca vigente o certificación de licencia en tramite debidamente autorizado por la Jefatura del Departamento de Protección y Registro del 1NCOPESCA. copia del certificado de matrícula y de navegabilidad o certificaciones de que estos documentos están en trámite, debidamente autorizadas y certificadas por el órgano competente o por un Notario Público.
+4- Reportes de entrada y salida por viaje de pesca.
+5- Solicitudes de las órdenes de compra y copia de las facturas de compra de combustible, confrontadas con los originales.
+6- Los documentos que se detallan en el articulo 6 de este Reglamento para la obtención de combustible a precio preferencial.
+7- Efectuar mensualmente una conciliación entre órdenes de compra emitidas por la SCAC y en poder de ésta, con aquellas dadas al pescador con el sello de venta de RECOPE. Esta conciliación será confrontada con las ventas mensuales que se solicitarán para ese fin a RECOPE.
+8- Recibir y resolver en primera instancia, los reclamos sobre la correcta aplicación de este Reglamento y demás disposiciones que se establezcan para el racional disfrute de los beneficios creados por Ley.
+9- Cualesquiera otras que le confiera la Junta Directiva del INCOPESCA mediante acuerdo.

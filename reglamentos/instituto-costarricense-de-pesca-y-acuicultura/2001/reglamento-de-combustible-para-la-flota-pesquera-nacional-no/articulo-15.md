@@ -1,0 +1,1 @@
+Articulo 15.—Para las embarcaciones que laboran en el Mar Caribe, cuando estas trabajan con dos motores, previamente registrados ante INCOPESCA. se aplicará la tabla correspondiente para uno sólo de los motores, según lo indique el Permisionario en la respectiva solicitud.
