@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del uso y Disposición de Vehículos
+Artículo 13.─ Prohibición para el uso de vehículos fuera de la jornada ordinaria: Queda terminantemente prohibido el uso de vehículos oficiales fuera de las jornadas ordinarias de trabajo. Se entenderá jornada ordinaria de trabajo el lapso establecido en los horarios de trabajo del INSA. Estas disposición no afecta a la circulación o uso de los vehículos de uso discrecional. El incumplimiento de esta disposición acarreará la suspensión de un mes del cargo que ocupa el funcionario infractor y en caso de reincidencia la separación definitiva del puesto.

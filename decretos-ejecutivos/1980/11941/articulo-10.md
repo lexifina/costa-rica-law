@@ -1,0 +1,1 @@
+Artículo 10.─ Vehículos en oficinas regionales: Los vehículos asignados a oficinas regionales, estarán bajo la responsabilidad del jefe o director de la misma, debiendo cumplir con lo que al respecto establecen los artículos 7° y 8° anteriores.

@@ -1,0 +1,1 @@
+Artículo 26. ─ Mientras el INSA no cuente con taller mecánico propio, podrá solicitar los servicios de talleres de otras entidades públicas o contratar los servicios con talleres particulares, acorde con las regulaciones que establece el Reglamento de Compras.

@@ -1,0 +1,1 @@
+Artículo 20. ─ Utilización de servicios particulares: En casos especiales, cuando resulte ventajoso realizar un viaje utilizando servicios particulares de pasajeros y su uso no perjudique la efectividad y oportunidad del trabajo a juicio de la Sección de Servicios Generales, se podrá no usar vehículos oficiales, previa autorización de la Administración General.

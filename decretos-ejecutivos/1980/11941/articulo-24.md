@@ -1,0 +1,2 @@
+Artículo 24. ─Responsabilidad del conductor ante accidentes de tránsito: El conductor de vehículos oficiales que resultare responsable de un accidente de tránsito, quedará obligado a reintegrar tanto al INSA como a terceros si hubiere, los gastos ocasionados por concepto de reparaciones y otros, pagando el deducible correspondiente. Si la póliza del INS no cubriere todos los gastos, ese hecho no limita la responsabilidad del conductor.
+La culpabilidad la determinarán en última instancia los jueces de tránsito respectivos.

@@ -1,0 +1,2 @@
+Artículo 22. ─ De los conductores de vehículos.
+La conducción de vehículos oficiales estará a cargo y bajo la responsabilidad exclusiva de los choferes designados por el Instituto. Sin embargo en casos justificados y a falta de personal especializado para desempeñar tales labores, el Director General o el Administrador General podrán autorizar a funcionarios o empleados que no estén nombrados como chóferes, para que conduzcan vehículos siempre y cuando porten licencia de conducir al día.

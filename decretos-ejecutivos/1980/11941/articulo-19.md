@@ -1,0 +1,2 @@
+Artículo 19. ─ Racionalidad en el aprovechamiento de los vehículos: Para lograr un mejor aprovechamiento de los vehículos de uso administrativo, la Sección de Servicios Generales podrá agrupar en un mismo viaje varias solicitudes de diferentes personas o departamentos para un mismo sitio o ruta.
+Esta sección avisará a los interesados oportunamente para obtener la mejor coordinación del viaje que se vaya a realizar.

@@ -1,0 +1,2 @@
+Artículo 18. ─ Solicitudes de Servicio de Transporte: Las solicitudes de servicio de Transporte: Las solicitudes de servicio para transporte deben ser dirigidas a la Sección de Servicios Generales con la previa autorización del jefe del Departamento o sección que solicita el servicio.
+En giras de trabajo de más de un día de duración la solicitud de transporte debe presentarse con veinticuatro horas de anticipación, salvo urgencia reconocida o emergencia comprobada, en cuyo caso se presentará cuando se haga necesario el servicio.
