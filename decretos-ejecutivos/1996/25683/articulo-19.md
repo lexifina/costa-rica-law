@@ -1,0 +1,1 @@
+Artículo 19.—Del sello. El sello del Traductor Oficial deberá llevar una leyenda con la siguiente información: Traductor Oficial, nombre del Traductor e idioma. Puede incluir además el número de acuerdo, publicación, número de " La Gaceta ", ciudad, país".

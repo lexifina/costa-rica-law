@@ -1,0 +1,1 @@
+Artículo 14.—La autenticación de la firma del Traductor Oficial, será necesaria únicamente en caso de Traducciones Oficiales destinadas al exterior, corresponderá dicha autenticación a la Oficina de Autenticaciones del Ministerio de Relaciones Exteriores y Culto.

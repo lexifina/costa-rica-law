@@ -1,0 +1,1 @@
+Artículo 27.—El informe semestral deberá ser entregado en la Dirección Jurídica del Ministerio de Relaciones Exteriores y Culto, dentro de un plazo de treinta días a partir del 2 de enero para el primer semestre y del 1 de julio para el segundo semestre.

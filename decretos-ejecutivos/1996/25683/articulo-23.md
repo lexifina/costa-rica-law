@@ -1,0 +1,1 @@
+Artículo 23.—En caso de traducciones requeridas a ser entregadas en un plazo máximo de veinticuatro horas, tendrán un recargo del cincuenta por ciento sobre la tarifa básica normal, regida por el libre mercado.

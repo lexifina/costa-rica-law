@@ -1,0 +1,1 @@
+Artículo 12.—La lista actualizada de los Traductores e Intérpretes Oficiales con su respectivo número de teléfono, se mantendrá visible en un lugar público en el Ministerio de Relaciones Exteriores, y se enviará periódicamente al Poder Judicial.

@@ -1,0 +1,1 @@
+Artículo 2°—De los nombramientos. El Traductor e Intérprete Oficial es nombrado mediante acuerdo ejecutivo, e! cual tendrá el efecto de otorgarle la autorización para realizar traducciones de carácter oficial, para lo cual y en calidad de Traductor e Intérprete Oficial, gozará de fe pública en sus actuaciones.
