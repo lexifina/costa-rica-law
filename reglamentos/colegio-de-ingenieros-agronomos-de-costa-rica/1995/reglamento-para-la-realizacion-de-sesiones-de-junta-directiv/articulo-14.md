@@ -1,0 +1,1 @@
+Artículo 14.—Quedará ausente aquel director que llegare con un atraso superior a una hora luego de iniciada la sesión de Junta Directiva, sin causa alguna. De la misma forma quedará ausente aquel director que se retire de la sesión una hora antes de la hora prevista para su finalización. La hora del ingreso y retiro de los directores deberá quedar constando en el acta.

@@ -1,0 +1,1 @@
+Artículo 18.—El Director Ejecutivo deberá entregar a los miembros de la Junta Directiva , a más tardar tres días naturales antes de la realización de la sesión respectiva, copia de las actas que deberán ser conocidas en dicha sesión.

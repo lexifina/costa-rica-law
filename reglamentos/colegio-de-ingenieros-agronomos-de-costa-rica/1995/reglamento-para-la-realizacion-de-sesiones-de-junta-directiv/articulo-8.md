@@ -1,0 +1,2 @@
+Artículo 8°—El presidente será el encargado de abrir, presidir, dirigir, asignar la palabra, suspender y levantar las sesiones ordinarias y extraordinarias de Junta Directiva.
+En ausencia del presidente le corresponderá al vicepresidente presidir la sesión, manteniendo sus mismas funciones, deberes y atribuciones. En caso de ausencia de ambos, los sustituirán los vocales en el orden de su nombramiento.

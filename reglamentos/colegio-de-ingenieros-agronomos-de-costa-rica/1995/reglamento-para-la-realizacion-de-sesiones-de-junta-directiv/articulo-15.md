@@ -1,0 +1,1 @@
+Artículo 15.—Ningún director, una vez iniciada la sesión podrá ausentarse temporal o definitivamente de la misma. En casos especiales, solo podrá hacerlo autorizado por acuerdo de la Junta Directiva y el Secretario de Actas tomará nota indicando la hora, haciéndolo constar en el acta respectiva.

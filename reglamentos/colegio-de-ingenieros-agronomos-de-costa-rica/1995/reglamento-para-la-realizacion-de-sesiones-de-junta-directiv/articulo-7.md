@@ -1,0 +1,2 @@
+Artículo 7°—En las sesiones extraordinarias el orden del día estará formado únicamente por los asuntos que hayan sido objeto de convocatoria.
+En este tipo de sesiones, se conocerá de asuntos específicos que por razones de urgencia o importancia requieran pronta resolución, o bien cuestiones de trámite ordinario cuyo conocimiento por parte de la Junta Directiva sea de importancia definir en el menor tiempo posible.

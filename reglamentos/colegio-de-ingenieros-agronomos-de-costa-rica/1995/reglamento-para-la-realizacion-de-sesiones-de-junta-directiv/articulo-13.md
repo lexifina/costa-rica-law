@@ -1,0 +1,1 @@
+Artículo 13.—En caso de que no hubiere "quórum" requerido a la hora convocada para dar inicio a la sesión, se dará un término máximo de treinta minutos para completar el quórum. Después de cumplido este término, el Presidente de la Junta tendrá la potestad de suspender la convocatoria, cuando lo estime conveniente.

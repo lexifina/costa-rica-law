@@ -1,0 +1,2 @@
+Artículo 11.—Todos los miembros tienen derecho a solicitar revisión de las declaraciones, acuerdos y resoluciones que tome la Junta Directiva , que no estén como acuerdo firme.
+Los acuerdos de la Junta Directiva podrán revisarse una sola vez. El recurso de revisión deberá ser planteado, a más tardar al discutirse el acta de la sesión respectiva y deberá resolverse en la misma sesión, a menos que la Junta acuerde conocerlo en una sesión extraordinaria por tratarse de un asunto que así lo requiera.

@@ -1,0 +1,1 @@
+Artículo 20.—Los directores podrán solicitar la inclusión de al menos un "asunto vario" en cada sesión ordinaria, para lo cual deberá solicitarlo ante la presidencia o la Dirección Ejecutiva , a más tardar un día hábil antes de la sesión respectiva.

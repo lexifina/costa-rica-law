@@ -1,0 +1,1 @@
+Artículo 19.—Los temas incluidos en la agenda tendrán un tiempo de discusión máximo de 25 minutos. En caso de que sea necesario ampliar este período de debate, se requerirá votación por mayoría simple de los miembros presentes, con el propósito de prolongar la discusión del tema sólo por una vez durante 10 minutos adicionales.

@@ -1,0 +1,1 @@
+Artículo 23.—Las sesiones de Junta Directiva serán privadas, sin embargo, de no existir objeción de sus miembros, el Director Ejecutivo o cualquier otra persona podrá estar presente en la misma, exceptuando aquellos casos donde se considere conveniente la presencia de solamente los miembros de la Junta , lo cual debe ser expresado por mayoría simple.
