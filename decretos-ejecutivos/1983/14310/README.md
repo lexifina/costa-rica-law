@@ -14,3 +14,4 @@ Crea Comisión Institucional de la Pequeña Industria (CIPI) y Comisión Institu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-03-22 | la propia norma |
+| 2 | 1985-02-11 | Decreto Ejecutivo 15970 (1985-02-11) |
