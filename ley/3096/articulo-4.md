@@ -1,0 +1,1 @@
+Artículo 4º.- Declárase de interés público que el Consejo Nacional de Producción continúe desarrollando una política tendiente a que se llenen las necesidades crecientes de la población del país en el consumo de la leche y sus derivados.
