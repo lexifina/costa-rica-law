@@ -1,0 +1,1 @@
+Artículo 7º—Modificación de la información presentada ante la Dirección. Cualquier cambio en la información o condiciones bajo las cuales se otorgó el registro de un alimento, debe ser comunicado previamente a la Dirección, la cual, en un plazo no mayor a cinco días hábiles, notificará al interesado la aceptación del cambio o la necesidad de efectuar un nuevo trámite.

@@ -1,0 +1,1 @@
+Artículo 3º—De la administración del Registro Sanitario de los Alimentos. La Dirección de Registros y Controles, en lo sucesivo Dirección, es la dependencia del Ministerio encargada de otorgar, denegar o cancelar el registro de los productos alimenticios.

@@ -1,0 +1,1 @@
+Artículo 6º—Registro de importadores de alimentos. En caso de productos que ya se encuentran registrados ante la Dirección que vayan a ser importados por personas físicas o jurídicas distintas al titular de dicho registro, el interesado deberá registrarse como importador de alimentos, presentando el formulario oficial para cada producto y el pago del arancel.

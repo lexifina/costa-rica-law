@@ -1,0 +1,1 @@
+Artículo 14.—Este decreto deroga los Decretos Ejecutivos Nº 26725-S del 17 de febrero de 1998, publicado en La Gaceta Nº 52 del 16 de marzo de 1998; el Nº 26817-S del 17 de marzo de 1998, publicado en La Gaceta Nº 85 del 5 de mayo de 1998; y cualquier otra disposición de igual o inferior rango que se le oponga.

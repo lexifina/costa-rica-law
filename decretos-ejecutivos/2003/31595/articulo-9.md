@@ -1,0 +1,1 @@
+Artículo 9º—De la vigencia del registro. El registro tendrá una vigencia de cinco años, salvo que los titulares hayan cometido infracciones que ameriten la cancelación anticipada de la inscripción o que el alimento registrado, a criterio de la autoridad de salud, constituya un peligro para la salud pública.

@@ -1,0 +1,1 @@
+Artículo 13.—Acceso público a las normas obligatorias de inocuidad. El Ministerio pondrá a disposición para consulta de todos los interesados, el conjunto de normas obligatorias de inocuidad de alimentos y de calidad nutricional.
