@@ -1,0 +1,1 @@
+Artículo 4° Queda autorizado el Poder Ejecutivo para hacer en los diferentes ramos y oficinas de su absoluta dependencia, las economías y modificaciones que creyere indispensables, pero en ningún caso podrá exceder el total del Presupuesto de egresos.

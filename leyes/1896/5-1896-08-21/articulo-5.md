@@ -1,0 +1,1 @@
+Artículo 5° La cantidad de entradas del Tesoro Nacional que exceda del Presupuesto Tesoro Nacional que exceda del Presupuesto general de egresos se aplicará preferentemente al establecimiento de la nueva moneda nacional, construcción del ferrocarril al Pacífico y demás obras reconocidas necesidad y utilidad pública iniciadas por el Poder Ejecutivo.
