@@ -14,3 +14,4 @@ Reglamento de Uso, Control y Mantenimiento de Vehículos Municipales(La Municipa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-24 | la propia norma |
+| 2 | 2000-01-24 | Ley 8 |
