@@ -1,0 +1,2 @@
+Artículo 10.- Acceso a las dependencias y permisos
+El Organo Director del Proceso tendrá acceso a las diferentes áreas administrativas del Banco, las cuales facilitarán en forma expedita, la documentación e información requerida para el cumplimiento de sus fines. Igualmente, los superiores inmediatos de los funcionarios cuya presencia requiera el Organo, deberán otorgar los permisos respectivos para la hora y fecha en que fueren citados.

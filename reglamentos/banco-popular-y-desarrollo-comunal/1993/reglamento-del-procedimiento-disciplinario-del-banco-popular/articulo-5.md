@@ -1,0 +1,3 @@
+Artículo 5.- Conformación
+El Organo Director del Proceso estará conformado por tres miembros propietarios que se sortearán cada vez, de modo que siempre exista un representante de la Gerencia General, un representante de la División de Recursos Humanos y un abogado de la División de Asuntos Jurídicos. Estará adscrito a la División de Recursos Humanos.
+Serán motivos de abstención de los miembros designados, los mismo de impedimento y recusación que se establecen en los artículos 49 y siguientes del Código Procesal Civil. En caso de presentarse alguno de los supuestos previstos en dicha normativa, se procederá a nombrar sustitutos, utilizando el sistema de sorteo antes referido.

@@ -1,0 +1,2 @@
+Artículo 15.- Notificación por publicación
+Si el trabajador estuviere fuera de su centro de trabajo, y se ignoraré su domicilio, la notificación del traslado se practicará por medio de una publicación que se hará por tres veces consecutivas en el diario oficial La Gaceta, computándose el término conferido a partir del día siguiente a la última publicación, en cuyo caso el plazo para la investigación quedará suspendido mientras se realiza la publicación, reanudándose el día hábil siguiente a la aparición del último aviso.

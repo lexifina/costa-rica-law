@@ -1,0 +1,2 @@
+Artículo 11.- Facultades para recepción de prueba
+Para la recepción de la prueba, el Organo Director tendrá las mismas facultades y deberes que las autoridades judiciales; y los testigos o peritos, incurrirán en los delitos de falso testimonio y perjurio, previstos en el Código Penal, cuando se dieren las circunstancias allí señaladas según lo dispuesto por el artículo 300 de la Ley General de la Administración Pública, sin perjuicio de las sanciones disciplinarías que les fueren aplicables.

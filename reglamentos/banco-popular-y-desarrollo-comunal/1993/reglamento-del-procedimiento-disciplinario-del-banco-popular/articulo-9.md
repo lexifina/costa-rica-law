@@ -1,0 +1,2 @@
+Artículo 9.- Quorum
+El Organo Director del Proceso se reunirá validamente con la totalidad de sus miembros propietarios o sus respectivos suplentes, y los acuerdos se tomarán por simple mayoría. No obstante, para la práctica y evacuación de las pruebas, el Organo Director del Proceso podrá comisionar al efecto a dos de sus integrantes. Los miembros deberán emitir su voto en el sentido que lo consideren procedente, y en forma razonada. Bajo ninguna circunstancia les será permitido abstenerse de emitir el voto.
