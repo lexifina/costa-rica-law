@@ -1,2 +1,0 @@
-Artículo 3°-En toda finca ganadera que sea sometida a las pruebas diagnósticas de brucelosis, se deberán marcar los animales con fierros numerados y en serie, en lugar visible y sobre la piel para el ganado de carne y para el ganado fino de lechería podrá emplearse este mismo procedimiento o el tatuaje numeral con serie en la oreja derecha.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 2 del 25 de febrero de 1965)

@@ -1,1 +1,0 @@
-Artículo 7°-Para que la vacunación a que se refiere el presente reglamento surta efectos legales, debe ser realizada por funcionarios del Departamento de Veterinaria del Ministerio de Agricultura e Industrias, aceptándose también como oficial la que practiquen aquellos Médicos Veterinarios particulares que fueron previamente autorizados para ese fin por dicho Departamento.
