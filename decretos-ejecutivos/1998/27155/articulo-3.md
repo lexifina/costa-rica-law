@@ -1,0 +1,1 @@
+Artículo 3°—Se derogan los decretos número 24478-MP del siete de julio de mil novecientos noventa y cinco; 24912-MP del 15 de enero de 1996; 25481-MPMIVAH del 24 de julio de 1996; 25509-MP-MIVAH del 24 de julio de 1996 y el 27019-MP del seis de mayo de 1998.

@@ -1,0 +1,2 @@
+Artículo 2°—Dicha comisión tendrá las funciones de liquidar el citado Programa de Compensación Social. A tal efecto tendrá amplias facultades y atribuciones y tomará los acuerdos que permitan la citada liquidación en forma ordenada, diligente y perentoria.
+Dentro de las principales tareas y actividades verificará los casos planteados ante la anterior Comisión de Ejecución del Programa de Compensación Social y los asignará a las instituciones públicas correspondientes, para su seguimiento y ejecución final.
