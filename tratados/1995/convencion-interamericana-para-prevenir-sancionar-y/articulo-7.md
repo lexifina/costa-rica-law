@@ -1,6 +1,6 @@
 CAPITULO III
 DEBERES DE LOS ESTADOS
-Artículo 7
+ARTICULO 7
 Los Estados Partes condenan todas las formas de violencia contra la
 mujer y convienen en adoptar, por todos los medios apropiados y sin
 dilaciones, políticas orientadas a prevenir, sancionar y erradicar dicha

@@ -1,4 +1,4 @@
-Artículo 18
+ARTICULO 18
 Los Estados podrán formular reservas a la presente Convención al
 momento de aprobarla, firmarla, ratificarla o adherir a ella, siempre que:
 a) no sean incompatibles con el objeto y propósito de la Convención;

@@ -38,7 +38,7 @@ las situaciones de violencia que puedan afectarlas,
 HAN CONVENIDO en lo siguiente:
 CAPITULO I
 DEFINICION Y AMBITO DE APLICACION
-Artículo 1
+ARTICULO 1
 Para los efectos de esta Convención debe entenderse por violencia
 contra la mujer cualquier acción o conducta, basada en su género, que
 cause muerte, daño o sufrimiento físico, sexual o psicológico a la mujer,

@@ -1,4 +1,4 @@
-Artículo 20
+ARTICULO 20
 Los Estados Partes que tengan dos o más unidades territoriales en las
 que rijan distintos sistemas jurídicos relacionados con cuestiones
 tratadas en la presente Convención podrán declarar, en el momento de la

@@ -1,4 +1,4 @@
-Artículo 9
+ARTICULO 9
 Para la adopción de las medidas a que se refiere este capítulo, los
 Estados Partes tendrán especialmente en cuenta la situación de
 vulnerabilidad a la violencia que pueda sufrir la mujer en razón, entre

@@ -1,4 +1,4 @@
-Artículo 8
+ARTICULO 8
 Los Estados Partes convienen en adoptar, en forma progresiva, medidas
 específicas, inclusive programas para:
 a) fomentar el conocimiento y la observancia del derecho de la mujer

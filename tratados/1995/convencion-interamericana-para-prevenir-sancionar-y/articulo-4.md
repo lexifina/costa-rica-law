@@ -1,4 +1,4 @@
-Artículo 4
+ARTICULO 4
 Toda mujer tiene derecho al reconocimiento, goce, ejercicio y
 protección de todos los derechos humanos y a las libertades consagradas
 por los instrumentos regionales e internacionales sobre derechos humanos.

@@ -1,4 +1,4 @@
-Artículo 2
+ARTICULO 2
 Se entenderá que violencia contra la mujer incluye la violencia
 física, sexual y psicológica:
 a) que tenga lugar dentro de la familia o unidad doméstica o en

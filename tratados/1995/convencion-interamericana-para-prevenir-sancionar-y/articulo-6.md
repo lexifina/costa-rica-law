@@ -1,4 +1,4 @@
-Artículo 6
+ARTICULO 6
 El derecho de toda mujer a una vida libre de violencia incluye, entre
 otros:
 a) el derecho de la mujer a ser libre de toda forma de

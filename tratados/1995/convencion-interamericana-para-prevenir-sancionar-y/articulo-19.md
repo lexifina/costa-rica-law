@@ -1,4 +1,4 @@
-Artículo 19
+ARTICULO 19
 Cualquier Estado Parte puede someter a la Asamblea General, por
 conducto de la Comisión Interamericana de Mujeres, una propuesta de
 enmienda a esta Convención.

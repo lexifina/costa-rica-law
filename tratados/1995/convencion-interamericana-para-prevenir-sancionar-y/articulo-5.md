@@ -1,4 +1,4 @@
-Artículo 5
+ARTICULO 5
 Toda mujer podrá ejercer libre y plenamente sus derechos civiles,
 políticos, económicos, sociales y culturales y contará con la total
 protección de esos derechos consagrados en los instrumentos regionales e

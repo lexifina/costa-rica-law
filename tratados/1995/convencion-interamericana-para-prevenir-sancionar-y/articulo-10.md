@@ -1,6 +1,6 @@
 CAPITULO IV
 MECANISMOS INTERAMERICANOS DE PROTECCION
-Artículo 10
+ARTICULO 10
 Con el propósito de proteger el derecho de la mujer a una vida libre
 de violencia, en los informes nacionales a la Comisión Interamericana de
 Mujeres, los Estados Partes deberán incluir información sobre las medidas
