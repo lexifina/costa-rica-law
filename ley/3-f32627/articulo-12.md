@@ -1,0 +1,1 @@
+Arto 12—Terminada una campaña, los libros que se hayan llevado durante ella, pasarán á la Oficina Central, teniendo cuidado el Registrador General, antes de archivarlos, de practicar en sus libros todas las inscripciones que aquéllos contengan.

@@ -1,0 +1,1 @@
+Art°. 10°. —Cuando haya cambio en 1a persona del Registrador ó de la persona encargada del Registro, se pondrá en todos los libros una razón que haga constar: el estado del libro una razón en que se haga constar: el estado del libro y el número de folio escritos, la cual será firmada por el empleado que entrega y el que recibe

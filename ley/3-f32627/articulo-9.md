@@ -1,0 +1,1 @@
+Art°. 9°—Lleno completamente cualquiera de los libros del Registro, se cerrará poniendo al final una razón firmada por el Registrador y dos testigos de asistencia, en que se haga constar el número de asientos que comprende, con expresión de fecha de principio y término del libro.

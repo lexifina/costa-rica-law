@@ -1,0 +1,1 @@
+Art°. 31. —Los asientos de bajas expresarán, además de las indicaciones que requiere el artículo 169 de la Ley antes citada, el nombre del oficial que haya dado la baja y el del Registrador que la comunique, lo mismo que aquellos daros que sean indispensables del artículo 52 de la misma Ley.

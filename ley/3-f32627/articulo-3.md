@@ -1,0 +1,1 @@
+Art°. 3°. —Cuando el Ejército se hallare en campaña, el Jefe de cada Cuerpo ó Columna que deba operar con independencia, encargará del servicio del Registro un oficial, el cual se sujetará á las prescripciones de este Reglamento para inscribir los actos que deba tomarse conocimiento

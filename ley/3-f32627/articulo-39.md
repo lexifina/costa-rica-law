@@ -1,0 +1,1 @@
+Art°. 39 —Este Registro se puede dividir en dos libros: uno para soldados y clases y otro para oficiales de toda categoría, debiendo consignar en los asientos de este último libro, datos de antigüedad, motivos de ascenso y tiempo que ha servido cada grado.

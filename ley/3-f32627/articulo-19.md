@@ -1,0 +1,1 @@
+Art°. 19°. —Los libros del Registro llevarán al dorso el nombre de la provincia o comarca a que pertenecen, la calidad de las inscripciones que en el se hacen v el número que les corresponde, siendo de advertir que cada serie de libros clasificados por su naturaleza, comenzará por el número uno.

@@ -1,0 +1,3 @@
+Art°. 25 —De todo asiento practicado en el Registro, se tomará nota en el índice respectivo, poniendo el apellido paterno primero, después del materno, y por último el nombre de la persona á quien se refiere el asiento, en la hoja marcada con las iniciales de ambos apellidos, y al lado el número del tomo, el folio y el asiento.
+Si la persona de que se trata no tiene más de un apellido, la anotación en el índice se hará en la hoja marcada con las iniciales del apellido y nombre.
+Habiendo ya en el índice anotaciones referentes á una persona, no se repetirá su nombre, á menos que no hubiere espacio; y seguida de las citas ya anotadas, se hará la de los asientos que ocurran referentes á la misma persona.
