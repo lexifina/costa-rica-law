@@ -1,0 +1,3 @@
+Transitorio II.- Las modificaciones de las partidas específicas incluidas en los presupuestos ordinario y extraordinarios de la República que rijan para 1998, deberán efectuarse en observancia de la presente ley y su reglamento, en lo aplicable. En particular, deberán originarse en iniciativas de los concejos municipales y las respectivas organizaciones sociales de las comunidades; para ello seguirán, en lo pertinente, los lineamientos del procedimiento estipulado en el artículo 4 de la presente ley.
+Rige a partir del 1 de mayo de 1998.
+Dado en la Presidencial de la República.-San José a los veintitrés días del mes de febrero de mil novecientos noventa y ocho.
