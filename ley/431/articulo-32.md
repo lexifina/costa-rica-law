@@ -1,8 +1,0 @@
-Artículo 32.- La Junta Directiva General sesionará ordinariamente una
-vez cada mes a la hora y fecha que acuerde al efecto. Sesionará en la sede
-del Colegio Federado, pero excepcionalmente puede acordar sesionar en otro
-lugar. Hará quórum la mayoría absoluta de los miembros siempre que todos
-los colegios estén representados.
-En caso de que en dos convocatorias consecutivas no se alcance el
-quórum requerido, se sesionará la siguiente vez con los miembros
-asistentes.
