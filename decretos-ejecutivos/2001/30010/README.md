@@ -17,3 +17,4 @@ Convoca a la Asamblea Legislativa a Sesiones Extraordinarias, a partir del 3 de 
 | 2 | 2001-11-30 | Decreto Ejecutivo 30011 (2001-11-30) |
 | 3 | 2001-12-03 | Decreto Ejecutivo 30012 (2001-12-03) |
 | 4 | 2001-12-10 | Decreto Ejecutivo 30026 (2001-12-10) |
+| 5 | 2001-12-11 | Decreto Ejecutivo 30028 (2001-12-11) |
