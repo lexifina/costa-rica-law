@@ -1,4 +1,4 @@
-Artículo 6º.- La obligación que crea esta ley se tendrá por
+ARTÍCULO 6º.- La obligación que crea esta ley se tendrá por
 incorporada a todo contrato individual o colectivo de trabajo, y su
 incumplimiento se considerará, para todos los efectos legales, como un
 retención indebida del salario y una falta grave del patrono a las
