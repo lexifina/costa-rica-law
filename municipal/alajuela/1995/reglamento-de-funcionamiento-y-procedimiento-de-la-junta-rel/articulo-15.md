@@ -1,0 +1,1 @@
+Artículo 15: Las actas se llevarán en un libro foliado, sellado y autorizado por el Ministerio de Trabajo o en su defecto por la Secretaria Municipal para su razón de apertura. Todos los miembros de la Junta , firmarán la razón inicial por medio de la cual la Secretaria Municipal autoriza el libro.

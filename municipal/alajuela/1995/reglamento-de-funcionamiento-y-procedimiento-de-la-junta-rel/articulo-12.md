@@ -1,0 +1,1 @@
+Artículo 12: En cada documento recibido por la Junta se indicará la hora y fecha de entrada. El mismo ocupará el lugar que le corresponda en la discusión de los asuntos, respetando estrictamente el orden de presentación. Además las alteraciones al orden del día se podrán hacer por mayoría simple.
