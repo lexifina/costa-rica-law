@@ -1,0 +1,1 @@
+Artículo 2°—Designar al señor Fernando Trejos Ballestero, mayor, casado una vez, consultor, vecino de San Pedro de Montes de Oca, portador de la cédula de identidad número seis-uno uno tres-nueve ocho ocho, como representante del Ministro de Gobernación y Policía, y Seguridad Pública, ante el Consejo Nacional de Desarrollo Comunal.
