@@ -14,3 +14,4 @@ Reglamento Interno para la Utilización, Adquisición y Sustitución de Vehícul
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-18 | la propia norma |
+| 2 | 2002-06-18 | Reglamento 4 (2002-05-30) |
