@@ -1,0 +1,6 @@
+DECRETO IX
+Trasfiere la reunión ordinaria del Exemo, Congreso en el presente año, para el día en que lo disponga el Poder Ejecutivo
+“ Francisco María Oreamuno, Vicepresidente de la República de Costa Rica, en ejercicio del Supremo Poder Ejecutivo.
+Considerando: que aún no ha surtido todos sus efectos la autorización omnímoda que confiere al Poder Ejecutivo el decreto de la Representación Nacional n°1 de 27 de febrero último: que a consecuencia de la autorización indicada y de lo dispuesto en decreto n° 3 de 28 del propio mes, la República está empeñada en la guerra contra los filibusteros que dominan a Nicaragua, y que audazmente han pretendido apoderarse de Costa Rica; que llamada la atención de los costarricenses a objeto tan importante, no pueden dedicarla con buen suceso a los negocios del interior, y que en las presentes circunstancias el orden constitucional se halla suspenso hasta cierto punto, decreto:
+Art único: Se trasfiere la reunión ordinaria del Excelentísimo Congreso en el presente año para el día en que la disponga el Poder Ejecutivo, después de haber hecho uso de sus omnímodas faculta.
+Dado en el Palacio Nacional, en San José, a los once días del mes de abril de mil ochocientos cincuenta y seis.
