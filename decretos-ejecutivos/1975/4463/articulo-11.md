@@ -1,0 +1,1 @@
+Artículo 11.—Disfrutarán de franquicia en ambos regímenes, como única excepción por vía de superficie, los denominados “Cecogramas”, incluyendo las tasas especiales, con excepción de la sobre tasa aérea. Estos envíos están sujetos a un límite de peso por envío a 7 kilogramos.

@@ -1,0 +1,1 @@
+Artículo 10.—El punto B — Tasas para Revistas y Libros edición costarricenses y para editoriales, del artículo 3° II Régimen Internacional, es aplicable únicamente cuando son despachados por las editoriales. Para los otros casos, cuando son despachados individualmente por los autores, se aplicara la “tasa reducida de impresos”.

@@ -1,0 +1,1 @@
+Artículo 7°—Todo envío de correspondencia, para la aplicación de la tarifa, ha de ajustarse al acondicionamiento, para lo que se respetaran las normas del Convenio Postal Universal y, sobre el particular el que a su vez prohibe el uso de grapas en los envíos al descubierto.

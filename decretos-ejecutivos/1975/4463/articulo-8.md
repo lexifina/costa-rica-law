@@ -1,0 +1,2 @@
+Disposiciones Finales
+Artículo 8°—El Punto D — Tasas de Trámite Aduanero del artículo 3° de este decreto, se aplicará a nivel de aduana y la que se pagará en sellos postales, los que se deben adherir en los documentos o pólizas de aduana. En la Aduana Postal serán cancelados dichos sellos con el “Sello de Caja” y en la Central de Correos-Sección de Aduana con el sello de “Correo”. Cualquier otro sistema que se adopte con tales fines, se deben hacer a niveles de Directores de Aduana y Correos.
