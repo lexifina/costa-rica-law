@@ -1,1 +1,2 @@
-Artículo 86.- La asamblea de representantes acordará, suspenderá y modificará el régimen de auxilio del Colegio Federado y pondrá en cualquier tiempo acogerse a otros sistemas de mutualidad, seguros o pensiones, variando parcial o totalmente los beneficios consignados en este Reglamento
+Artículo 86.- Tendrán derecho a todos los beneficios del Régimen de Mutualidad los miembros activos, ausentes y asociados del CFIA, según lo dispone este Reglamento y el Reglamento del Régimen de Mutualidad.
+(Así reformado por Acuerdo de Sesión Nº 0 de 17 de enero de 2001)
