@@ -1,12 +1,8 @@
-Artículo 16.- La función de miembro de la Junta Directiva es
-incompatible con los cargos de:
-a) Los miembros y empleados de los Supremos Poderes, los funcionarios
-que los sustituyan durante sus ausencias temporales y los que desempeñen
-cargos temporales no remunerados, salvo los tres miembros mencionados en
-el inciso a) del artículo 13.
-b) Los presidentes ejecutivos y demás miembros de las juntas directivas
-de las instituciones de Derecho público, autónomas o descentralizadas.
-c) El gerente general, los subgerentes, el auditor y el subauditor
-internos y los demás funcionarios y empleados del Banco.
-ch) Los accionistas o funcionarios de las empresas constructoras de
-viviendas y empresas urbanizadoras que operan con el Sistema.
+Artículo 16.—No podrán ser miembros de la junta directiva quienes se encuentren en cualquiera de las siguientes situaciones:
+a) Los miembros y empleados de los Supremos Poderes, los funcionarios que los sustituyan durante sus ausencias temporales y los que desempeñen cargos temporales no remunerados, salvo los tres miembros mencionados en el inciso a) del artículo 13 de esta ley.
+b) Los presidentes ejecutivos, gerentes generales, directores ejecutivos y demás miembros de las juntas directivas de las instituciones de Derecho Público, autónomas o descentralizadas.
+c) El gerente general, los subgerentes, el auditor y el subauditor internos y los demás funcionarios o empleados del banco.
+d) Los miembros de las juntas directivas, los gerentes generales, subgerentes, sus ascendientes y descendientes hasta el tercer grado por consanguinidad o afinidad y demás empleados de las entidades autorizadas.
+Los accionistas, socios, miembros de las juntas directivas, gerentes, subgerentes, sus ascendientes y descendientes hasta el tercer grado por consanguinidad o afinidad y empleados de los desarrolladores y de las empresas constructoras, así como de la cámara de construcción y de las empresas asesoras en el ramo de la construcción que operan dentro del Sistema.
+Transitorio.—Los actuales directivos permanecerán en sus puestos hasta el final del período para el cual fueron nombrados. En caso de ocurrir alguna vacante en la junta directiva del Banco Hipotecario de la Vivienda, esta deberá llenarse de conformidad con lo establecido en la presente ley.
+(Así reformado por el artículo único de la Ley No. 8388 de 9 de octubre de 2003).
