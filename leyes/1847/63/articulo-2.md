@@ -1,0 +1,1 @@
+Art. 2. La cantidad que resulte, será cubierta en proporción por todos los habitantes del mismo Departamento de Alajuela; Sin comprender a los que residen desde la boca del Aguacate hacia el Occidente.

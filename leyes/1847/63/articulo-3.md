@@ -1,0 +1,1 @@
+Art. 3. El Gobernador Politico de aquel Departamento, nombrará una junta tasadora, compuesta de cinco individuos de probidad y conocimiento, que no pueden excusarse por pretexto alguno, para que hagan la distribucion proporcionada entre los propietarios del mismo Departamento.

@@ -1,0 +1,1 @@
+Art. 5. Las cantidades designadas se cubrirán por las contribuyentes, pagando una tercera parte el último del mes de noviembre, otra en fines de diciembre del corriente año; y la restante el treinta y uno de enero del año venidero; siendo obligación del mismo Gobernador Político recaudar y entregar puntualmente en los plazos señalados la suma à que ascienda cada dividendo.
