@@ -1,0 +1,1 @@
+Artículo 2º—Facúltese al Sistema Nacional de Radio y Televisión Cultural a compensar el porcentaje proveniente de los aportes que realicen a favor del Sistema los organismos y entidades de conformidad con lo dispuesto en el artículo anterior, en propaganda y publicidad, según lo indiquen dichos organismos y entidades.
