@@ -1,0 +1,3 @@
+Artículo 2°-Podrán ser beneficiarios aquellos estudiantes que se encuentren cursando estudios en los centro educativos públicos del cantón de Santa Ana, ya sea de enseñanza primaria, secundaria o especial. Asimismo podrán ser beneficiarios los estudiantes que acudan a colegios vocacionales del Area Metropolitana.
+De forma excepcional y previo análisis del caso concreto se podrán adjudicar becas a estudiantes del cantón que acudan a instituciones educativas públicas de cantones aledaños.
+Los estudiantes que se encuentren en una u otra de las situaciones anteriores deberán cumplir con los requisitos establecidos en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 15.-En caso de cancelarle el beneficio a un becado por las causales anteriores, la Comisión Municipal de Becas, procederá a ocupar el cupo vacante siguiendo el procedimiento antes establecido y tomando prioritariamente los formularios que quedaron pendientes por falta de recursos económicos de la Municipalidad que asignarlos.
