@@ -1,0 +1,7 @@
+Artículo 22.—Corresponde al Presidente:
+a. Presidir, abrir, suspender y cerrar las sesiones.
+b. Preparar el Orden del Día.
+c. Recibir las votaciones y anunciar si hay aprobación o rechazo del asunto,
+d. Conceder la palabra y quitarla a quien hiciere uso de ella sin permiso o se excediera en su expresiones,
+e. Vigilar el orden en las sesiones y hacer retirar a quienes presencien el acto y se comporten indebidamente, y
+F. Firmar en unión del secretario las actas de cada sesión.

@@ -1,0 +1,2 @@
+Artículo 12.—El Concejo de Distrito deberá reunirse ordinariamente cuando menos dos veces al mes, debiendo comunicar a la Municipalidad, el día, hora y lugar que designen para tal efecto, pudiendo. celebrar sesiones extraordinarias previa convocatoria del Presidente o cuando así lo convoquen tres de sus miembros.
+El Concejo Municipal tendrá la potestad de convocar a sesión extraordinaria al Concejo de Distrito para atender casos específicos, o cuando lo considere necesario el Concejo de Distrito y lo soliciten al Concejo Municipal o al Ejecutivo Municipal.

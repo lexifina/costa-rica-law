@@ -1,0 +1,1 @@
+Artículo 6°—La escogencia de los miembros del Concejo de Distrito la hará el Concejo Municipal entre las ternas que al efecto le presenten las organizaciones comunales, las Asociaciones de Desarrollo Comunal, Educativas, y Deportivas. Las mismas se le solicitarán con un mes mínimo de antelación a la fecha del nombramiento.
