@@ -1,0 +1,1 @@
+ARTÍCULO 2°.- En todas las disposiciones del Reglamento Orgánico de la Contraloría General, decreto ejecutivo N° 16123-P-H de 26 de marzo de 1985 y sus reformas, donde diga "Oficina o Sección", debe leerse "Departamento"; y en donde diga "Departamento" debe leerse "Dirección General".

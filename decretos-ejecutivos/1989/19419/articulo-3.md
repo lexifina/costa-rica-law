@@ -1,0 +1,2 @@
+ARTÍCULO 3°.- Adicionase al Reglamento Orgánico de la Contraloría General de la República, un nuevo capítulo que llevará el número XVI, titulado "Despacho de Contralores Generales " y un nuevo artículo 36, corriéndose la numeración de los demás capítulos y artículos, el cual se leerá así:
+"Artículo 36.- La Dirección General de Despacho de Contralores Generales actuar como colaboradora directa de los titulares de esos Despachos, en los asuntos que le sean encomendados."

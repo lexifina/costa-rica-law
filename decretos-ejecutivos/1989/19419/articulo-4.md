@@ -1,0 +1,2 @@
+ARTÍCULO 4°.- Adicionase con el nombre de "Departamento de Auditoria Interna", un nuevo capítulo que llevar el número XVII y un artículo 37, corriéndose en consecuencia la numeración de los demás capítulos y artículos, el cual se leer así:
+"Articulo 37.- El Departamento de Auditoria Interna actuar como unidad de asesoría en el campo de su especialidad, y tendrá a su cargo la evaluación de las operaciones presupuestarias, contables, financieras, administrativas y de otra naturaleza, de la Contraloría General."
