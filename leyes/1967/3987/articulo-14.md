@@ -1,4 +1,4 @@
-Artículo 14.- A fin de asegurar un desarrollo bananero equitativo,
+ARTICULO 14.- A fin de asegurar un desarrollo bananero equitativo,
 quienes fabriquen para la venta, cajas de cartón para el empaque de
 bananos no gozarán de ninguna franquicia o beneficio estatal a menos que
 garanticen a todos los interesados en la compra de las cajas, las mismas

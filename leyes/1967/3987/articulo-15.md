@@ -1,4 +1,4 @@
-Artículo 15.- Rige desde su publicación.
+ARTICULO 15.- Rige desde su publicación.
 Transitorio I.- El Banco Central de Costa Rica abrirá una línea de
 crédito interno, mediante préstamos a los bancos comerciales, por un monto
 no inferior a los veinte millones de colones, destinados al financiamiento
