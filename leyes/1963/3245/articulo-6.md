@@ -1,7 +1,3 @@
-Artículo 6º.- El producto de este aumento ingresará al Colegio de
-Abogados, como contribución forzosa que los notarios hacen en favor de
-dicha corporación para su sostenimiento y para formar y acrecentar el
-fondo de pensiones y jubilaciones a que alude el artículo 3º. Se pagará
-mediante el Timbre del Colegio de abogados, agregándolo y cancelándolo en
-todo testimonio que se expida, salvo que se hubiere cancelado en la
-matriz.
+ARTÍCULO 6.- Un cincuenta por ciento (50%) de este aumento, producto de las operaciones notariales inscribibles en el Registro Nacional, será girado por el Colegio de Abogados de Costa Rica al Poder Judicial, para financiar a la Dirección Nacional de Notariado. Estas sumas serán giradas según información contable remitida por el Registro Público al Colegio de Abogados una vez al mes, el cual deberá girar, al Poder Judicial, a más tardar quince días después de recibida la información indicada. El cincuenta por ciento (50%) restante del producto de este aumento ingresará al Colegio de Abogados, como contribución forzosa que los notarios aportarán a dicha corporación para sostenerla, así como para formar y acrecentar el fondo de pensiones y jubilaciones aludido en el artículo 3.
+Este aumento se pagará mediante el timbre de abogados, el cual se agregará y cancelará en todo testimonio que se expida, salvo si se hubiere cancelado en la matriz.
+(Así reformado por el artículo 185 del Código Notarial No.7764 de 17 de abril de 1998)

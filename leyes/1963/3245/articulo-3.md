@@ -1,4 +1,4 @@
-Artículo 3º.- El producto de este aumento ingresará al Colegio de
+ARTÍCULO 3º.- El producto de este aumento ingresará al Colegio de
 Abogados como contribución forzosa de los abogados, bachilleres en leyes
 y procuradores judiciales en favor de dicha Corporación para su
 sostenimiento y para formar un fondo de pensiones y jubilaciones en
