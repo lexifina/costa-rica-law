@@ -1,0 +1,5 @@
+ARTÍCULO XV
+Aceptación y entrada en vigor
+1.-La aceptación de este acuerdo por el Gobierno de Venezuela y por los demás Estados Miembros o Miembros Asociados contratantes se efectuará mediante depósito, por cada uno de esos Gobiernos de un instrumento de aceptación ante el Director General de la Organización, el cual surtirá efecto al recibirlo el Director General, quien lo comunicará al Presidente del Instituto, al Gobierno de Venezuela, a todas las demás partes del Acuerdo, a los otros Estados Miembros y Miembros Asociados de la Organización y al Secretario General de las Naciones Unidas.
+2.-Se considerará aceptado este Acuerdo por la Organización al adoptar la Conferencia de ésta la resolución aprobatoria, a la que se hará referencia en el correspondiente testimonium.
+3.-Una vez aceptado por la Organización, el Acuerdo entrará en vigor en cuanto el Director General de aquélla hubiese recibido los instrumentos de aceptación del Gobierno de Venezuela y de otros cuatro Estados Miembros, siempre que tales instrumentos se reciban antes de transcurrido un año de la fecha de aprobación del Acuerdo por la Conferencia de la Organización.

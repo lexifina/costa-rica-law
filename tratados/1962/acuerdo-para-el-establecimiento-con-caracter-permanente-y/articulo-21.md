@@ -1,0 +1,7 @@
+ARTÍCULO XXI
+Caducidad
+1.-El presente Acuerdo caducará:
+a) Si lo denunciaren el Gobierno de Venezuela o la Organización; o
+b) Si el número de los demás Estados Miembros o Miembros Asociados contratantes quedase reducido, como consecuencia de tales denuncias, a menos de cuatro. En este caso, sólo perdurará el Acuerdo si lo decidieses afirmativamente los demás Estados participantes, por unanimidad, con el asentimiento de la Organización y del Gobierno de Venezuela.
+La caducidad surtirá efecto a los seis meses de que el Presidente del Instituto haya sido informado por el Director General de la Organización de haber recibido las notificaciones necesarias.
+2.-Al caducar el presente Acuerdo, y una vez terminado el lapso antes citado, el Comité Ejecutivo en consulta con el Gobierno de Venezuela, devolverá a la Facultad de Ciencias Forestales de la Universidad de Los Andes, todas las propiedades cuyo uso le haya sido cedido por la misma y liquidará todos los demás bienes del Instituto. Una vez cumplida todas las obligaciones, se distribuirá el saldo remanente entre el Gobierno de Venezuela y los demás Estados Miembros o Miembros Asociados contratantes, en proporción a las cuotas que hayan abonado durante todo el tiempo del funcionamiento, provisional y definitivo, del Instituto. Los Estados participantes que en el momento de caducar el Acuerdo tuvieren pendientes dos cuotas anuales (aunque no sean consecutivas), no tendrán derecho a compartir aquellos bienes.

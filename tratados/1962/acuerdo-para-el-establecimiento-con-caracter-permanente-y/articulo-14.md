@@ -1,0 +1,3 @@
+ARTÍCULO XIV
+Disposiciones Suplementarias
+El Comité Ejecutivo elaborará y aprobará las normas necesarias para la labor y funcionamiento del Instituto, las cuales abarcarán el funcionamiento de los órganos de éste (Reglamento Interior), el personal (Estatuto de Personal) y la gestión económica del Instituto (Reglamento Financiero). Se adoptarán como base de las citadas normas, según corresponda, las disposiciones pertinentes de los Reglamento de la Organización, adaptándolas a las características y necesidades especiales del Instituto y serán sometidas a la ratificación del Consejo Directivo en su próxima sesión.

@@ -1,0 +1,4 @@
+ARTÍCULO XXIV
+Gastos de asistencia a las sesiones del Consejo Directivo y del Comité Ejecutivo
+1.-Los gobiernos respectivos sufragarán los gastos de sus representantes en las sesiones del Consejo Directivo y del Comité Ejecutivo que asistan a las mismas. Los gastos de los funcionarios del Instituto y de los expertos a título personal que, a juicio del Comité Ejecutivo, deben asistir a sus sesiones o a las del Consejo Directivo así como los del Presidente y del Director, se sufragarán con fondos del Instituto.
+2.-La Organización sufragará los gastos en que incurra su Director General, o su representante, en conexión con la asistencia de éstos a las sesiones del Consejo Directivo y del Comité Ejecutivo. Tales gastos, cuando sean costeados con fondos del presupuesto ordinario de aquélla, se fijarán y pagarán con arreglo a los límites que señale la partida pertinente del Presupuesto de la Organización aprobado por la Conferencia.

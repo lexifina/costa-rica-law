@@ -1,0 +1,5 @@
+ARTÍCULO XVI
+Enmiendas
+1.-Este acuerdo podrá ser modificado mediante la aprobación de tercios de los Estados Miembros o Miembros Asociados de la Organización que en él particípen, siempre que entre los mismos figure Venezuela.
+2.-Las enmiendas sólo tendrán efectividad previo asentimiento del Consejo de la organización, a menos que éste juzgue
+3.-Los instrumentos de aceptación de las enmiendas que entrañen nuevas obligaciones se depositarán ante el Director General de la Organización, quien informará de su recibo y de la entrada en vigor de las enmiendas a todos los Estados Miembros o Miembros Asociados de la Organización que participen en el presente Acuerdo, así como al Secretario General de las Naciones Unidas. Los derechos y obligaciones de todo Estado Miembro o Miembro Asociado participante que no haya aceptado una enmienda que entrañe nuevas obligaciones, seguirán regulándose por las cláusulas del Acuerdo, tal y como se hallen estipuladas con anterioridad a la introducción de la enmienda.
