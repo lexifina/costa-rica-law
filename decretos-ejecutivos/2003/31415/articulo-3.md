@@ -1,0 +1,1 @@
+Artículo 3º—Cada entidad religiosa o jerarquía eclesiástica extenderá gratuitamente un carné especial que será refrendado por la Caja Costarricense del Seguro Social, para identificar a las personas que están calificadas y autorizadas para ingresar a los centros de salud para los propósitos de este decreto.

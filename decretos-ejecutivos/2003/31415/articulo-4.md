@@ -1,0 +1,3 @@
+Artículo 4º—Cada entidad religiosa o jerarquía eclesiástica acreditará ante la Caja Costarricense del Seguro Social los datos de las personas autorizadas para proporcionar la asistencia religiosa descrita en el presente decreto, los cuales deberán ser actualizados anualmente. La Caja Costarricense del Seguro Social podrá cancelar la autorización de ingreso a las instituciones de salud cuando:
+a)el adjudicante del respectivo permiso irrespetare alguna de las normas que dicte esta institución en relación con el ingreso y permanencia de los representantes religiosos dentro de las instituciones de salud, y
+b)cuando así se lo solicite la asociación religiosa que lo expidió.

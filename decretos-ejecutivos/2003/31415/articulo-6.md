@@ -1,0 +1,1 @@
+Artículo 6º—La Caja Costarricense del Seguro Social permitirá el ingreso de los representantes religiosos en horas y días tanto fuera como dentro del tiempo normal de visita, respetando las regulaciones de salud y seguridad establecidas en cada institución.
