@@ -14,3 +14,4 @@ Autoriza y Dota de Investidura como "Inspectores de Calidad" a los Funcionarios 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-14 | la propia norma |
+| 2 | 2000-01-21 | Decreto Ejecutivo 28433 (2000-01-21) |
