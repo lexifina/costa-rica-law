@@ -1,0 +1,1 @@
+Artículo 2°—Modifiqúese en términos generales el decreto ejecutivo No 26042-S-MINAE de 14 de abril de 1997, para que donde dice "Laboratorios Acreditados", se sustituya por "Laboratorios Habilitados por el Ministerio de Salud".
