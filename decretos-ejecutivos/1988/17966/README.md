@@ -13,3 +13,4 @@ Regula Venta Bicromato Potasio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-02-25 | la propia norma |
+| 2 | 1988-02-25 | SINALEVI (sin norma nombrada) |
