@@ -1,0 +1,1 @@
+Art. 2-Si el descubrimiento se hiciese sobre los vestigios antiguos de una calle empedrada que se halla en el paraje llamado Potrero Cerrado, además del premio expresado en el articulo anterior; se le gratificará con trescientos pesos en dinero.
