@@ -1,0 +1,1 @@
+Artículo 4.- La Comisión Nacional para la Prevención y el Combate de los Incendios Forestales, estará bajo la dirección y autoridad del MIRENEM, quien aprobará, apoyará y supervisará las acciones que en materia de incendios sea necesario ejecutar.
