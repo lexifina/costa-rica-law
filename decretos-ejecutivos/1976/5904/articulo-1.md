@@ -387,45 +387,45 @@ RESERVA INDÍGENA GUAYMÍ DE CONTEBURICA(*)
 La Reserva Indígena Guaymí de Conte-Burica se localiza en las hojas del Instituto Geográfico Nacional, escala 1:50.000, Pavón 3541-11, Río Caña Blanca 3540-1, Puerto Armuelles 3640-IV.
 La Reserva se delimita por los puntos cuyas coordenadas se dan a continuación:
 Partiendo de un punto en la playa en coordenadas N 254 850 E 560 450, se continúa con los puntos de coordenadas siguientes:
-N 255 300 | E 560 825 |
-N 255 475 | E 560 750 |
-N 256 750 | E 560 750 |
-N 257 800 | E 560 000 |
-N 258 875 | E 560 250 | ( Río Claro ).
+N 255 300 E 560 825
+N 255 475 E 560 750
+N 256 750 E 560 750
+N 257 800 E 560 000
+N 258 875 E 560 250 ( Río Claro ).
 De este punto se sigue el Río Claro aguas arriba hasta el punto de coordenadas N 258 825 E 56Q 425.
 De este punto, se sigue con los puntos de coordenadas:
-N 259 225 | E 560 775 |
-N 259 600 | E 560 300 |
-N 259 900 | E 560 300 |
-N 260 250 | E 560 525 |
-N 260 100 | E 561 450 |
-N 259 750 | E 561 725 |
-N 259 375 | E 561 800 | (Cerro, 406 m).
-N 260 000 | E 563 000 | (Quebrada La Yerba).
-N 260 200 | E 564 550 | (Quebrada Honda).
-N 261 000 | E 565 400 |
-N 261 425 | E 565 300 |
-N 263 225 | E 566 625 |
-N 263 600 | E 567 325 | (Río Conté)
-N 264 100 | E 568 775 |
-N 263 450 | E 569 425 |
-N 262 725 | E 569 250 |
-N 262 500 | E 569 750 |
-N 260 950 | E 570 150 | (Quebrada Vueltas)
-N 259 950 | E 569 825 . |
-N 259 725 | E 570 550 | (Unión de los dos brazos del río La Vaca)
-N 259 650 | E 571 450 |
-N 258 575 | E 571 225 |
-N 258 175 | E 571 500 | (Cerro, 493 m).
-N 257 325 | E 572 900 | (Frontera de Panamá).
+N 259 225 E 560 775
+N 259 600 E 560 300
+N 259 900 E 560 300
+N 260 250 E 560 525
+N 260 100 E 561 450
+N 259 750 E 561 725
+N 259 375 E 561 800 (Cerro, 406 m).
+N 260 000 E 563 000 (Quebrada La Yerba).
+N 260 200 E 564 550 (Quebrada Honda).
+N 261 000 E 565 400
+N 261 425 E 565 300
+N 263 225 E 566 625
+N 263 600 E 567 325 (Río Conté)
+N 264 100 E 568 775
+N 263 450 E 569 425
+N 262 725 E 569 250
+N 262 500 E 569 750
+N 260 950 E 570 150 (Quebrada Vueltas)
+N 259 950 E 569 825 •
+N 259 725 E 570 550 (Unión de los dos brazos del río La Vaca)
+N 259 650 E 571 450
+N 258 575 E 571 225
+N 258 175 E 571 500 (Cerro, 493 m).
+N 257 325 E 572 900 (Frontera de Panamá).
 A partir de este punto, se sigue por el límite fronterizo entre Costa Rica y Panamá, primero hacia el suroeste y después hacia el sureste, hasta el punto de coordenadas:
-N 247 250 | E 578 950 | (Frontera de Panamá).
+N 247 250 E 578 950 (Frontera de Panamá).
 De allí se sigue por los puntos de coordenadas:
-N 246 775 | E 578 950 |
-N 246 200 | E 578 400 |
-N 246 200 | E 578 025 | (Quebrada La Peñita).
+N 246 775 E 578 950
+N 246 200 E 578 400
+N 246 200 E 578 025 (Quebrada La Peñita).
 De allí se sigue aguas abajo la quebrada La Peñita hasta su desembocadura en el mar, en coordenadas:
-N 243 250 | E 576 600
+N 243 250 E 576 600
 A partir de este punto se continúa por la playa hasta el punto origen de la presente descripción, en coordenadas N 254 850 E 560 450.
 Superficie de la Reserva Indígena Guaymí de Conte-Burica: 11 910 hectáreas.
 (**)La Reserva Indígena Guaymí de Conte-Burica se compone de los caseríos de: Alto Conté, La Vaca, Río Claro, Litoral y La Peñita. El mapa de los caseríos que comprende la Reserva Indígena de Conte-Burica, elaborado por la Sección de Asuntos Indígenas del Instituto de Tierras y Colonización (actualmente Instituto de Desarrollo Agrario), será presentado al Instituto Geográfico Nacional para los fines consiguientes, tal como la nueva edición del mapa 1/50.000 de Costa Rica, los censos de población y la nueva edición de la "División Territorial Administrativa de la República de Costa Rica".
@@ -643,6 +643,10 @@ De aquí hasta el punto inicial de la presente descripción de coordenadas N 394
 Además, la Reserva de Talamanca incluirá, como anexo administrativo, la "Reserva Indígena de Cocles", correspondiente a parte de las fincas 1.089 y 1.050 del ITCO.
 Su delimitación exacta será efectuada por el ITCO, en coordinación con la CONAI.
 (Así reformado los linderos de la Reserva Indígena de Talamanca anterior por el artículo 4° del decreto ejecutivo N° 6036 del 26 de mayo de 1976)
+(Nota de Sinalevi: Mediante el artículo 4° del decreto ejecutivo N° 13572 del 30 de abril de 1982, se acordó dividir la Reserva Indígena de Talamanca, decretada y delimitada por el decreto N° 6036-G, "La Gaceta" N° 114, de 15 de junio de 1976, en dos reservas distintas, con los nombres oficiales de:
+1. Reserva Indígena Cabécar de Talamanca (Talamanca Oeste).
+2. Reserva Indígena Bribrí de Talamanca (Talamanca Este).")
+(Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 13572 del 30 de abril de 1982, se indicó que la Reserva Indígena Cabécar de Talamanca incluye los caseríos y poblados de: San José Cabécar, Coén, Xcuy, Mojoncito, Cabey, Jamey, Gavilán, Canta y Sibuju y la Reserva Indígena Bribrí de Talamanca incluye los caseríos y poblados de Alto Urén, Alto Lari, Coroma, Sepecue, Amubri, Katsi, Boca Urén, Sheuab-Yorkin, Shiroles, Suretka, Bambú-Bratsi, Chase, Watsi y Cocles.)
 RESERVA INDÍGENA DE CHASE
 Partiendo de un punto en el río Sixaola, coordenadas N 393 850 E 586 450, se continúa con los siguientes rumbos, distancias y coordenadas:
 N 37 18 W | 1 320.04 | 394 900 | 585 650
