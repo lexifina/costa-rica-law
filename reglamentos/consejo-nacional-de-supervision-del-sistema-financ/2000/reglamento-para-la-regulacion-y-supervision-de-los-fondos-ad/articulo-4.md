@@ -1,0 +1,4 @@
+CAPITULO II
+Autorización y registro
+Artículo 4°—Trámite de autorización: Los fideicomisos que sean similares a los Fondos de Inversión, Planes de Capitalización y Fondos de Pensión, de conformidad con las definiciones establecidas en el presente reglamento, deberán solicitar la autorización para funcionar como tales al Consejo Nacional de Supervisión del Sistema Financiero. El otorgamiento de dicha autorización estará sujeto al cumplimiento por parte (le la entidad de los requisitos que correspondan, de conformidad con lo establecido en el presente reglamento.
+La entidad correspondiente deberá presentar la solicitud a la Superintendencia General de Entidades Financieras, quien emitirá una recomendación al Consejo Nacional, para lo cual podrá solicitar el criterio técnico de la Superintendencia General de Valores o la Superintendencia de Pensiones, según corresponda.

@@ -1,0 +1,1 @@
+Articulo 5°—Registro: La Superintendencia General de Entidades Financieras mantendrá un registro de Indos los fideicomisos que sean similares a los fondos de inversión, planes de capitalización y fondos de pensión, de conformidad con las autorizaciones que otorgue el Consejo Nacional de Supervisión del Sistema Financiero. Este registro será de acceso público.

@@ -1,0 +1,1 @@
+III.—Los fideicomisos que a la entrada en vigencia de este reglamento se encuentren funcionando como planes de capitalización o fondos de pensión de conformidad con las definiciones establecidas en esta normativa, contaran con un plazo de seis meses para adecuarse a la normativa de los planes de capitalización y los fondos de pensión, respectivamente.

@@ -1,0 +1,4 @@
+Articulo 7°—Modificaciones al prospecto: Toda modificación a la información contenida en el prospecto deberá ser comunicada a la Superintendencia General de Entidades. Financieras.
+Las reformas al régimen de inversión requerirán la aprobación previa de] Consejo Nacional. Para estos electos la Superintendencia General de Entidades Financieras emitirá una recomendación al Consejo Nacional, para lo cual podrá solicitar la recomendación técnica de la Superintendencia General de Valores.
+La reforma al régimen de inversión dará derecho al inversionista de solicitar el reembolso de su inversión, sin que se pueda aplicar comisión de salida o penalidad alguna, en los mismos términos establecidos para los fondos de inversión.
+La aprobación de las demás reformas que se realicen al prospecto serán competencia del Superintendente General de Entidades Financieras, para lo cual podrá solicitar la recomendación técnica de la Superintendencia General de Valores.

@@ -1,0 +1,1 @@
+IV.—Durante los primeros seis meses contados a partir de la vigencia de este reglamento, los fideicomisos que se encuentren funcionando como fondos de inversión, planes de capitalización y fondos de pensión de conformidad con las definiciones aquí establecidas podrán trasladarse a las figuras de los fondos de inversión, planes de capitalización y fondos de pensión.
