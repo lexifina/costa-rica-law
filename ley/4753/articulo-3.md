@@ -1,0 +1,1 @@
+Artículo 3º.- El Poder Ejecutivo adscribirá por decreto los caseríos que correspondan a los distritos que integren este cantón y podrá variarles el nombre si estuviere repetido o si pudiere ser confundido con otros poblados, previo informe de la Comisión creada po ley Nº 3535 de 3 de agosto de 1965.
