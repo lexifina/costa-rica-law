@@ -1,10 +1,8 @@
-CAPITULO V
-De las Sanciones
-Artículo 12.- Perderá temporalmente su calidad de miembro activo, y
-por lo tanto, los derechos establecidos en esta ley, el que no cubra a
-tiempo las cuotas anuales que el Colegio imponga de acuerdo con el
-reglamento. Las recuperará cuando las pague, más un veinticinco por ciento
-en concepto de multa. Cuando las cuotas atrasadas cubran un período de
-tres años o más, la reincorporación del miembro al Colegio requerirá la
-aprobación de la Asamblea General, previa satisfacción, de los requisitos
-que al efecto establece el Reglamento.
+Artículo 12.- Todas las obras o servicios de ingeniería o de
+arquitectura, de carácter público o privado, deberán ser proyectadas,
+calculadas, supervisadas, dirigidas y en general realizadas en todas sus
+etapas bajo la responsabilidad de miembros activos del Colegio Federado de
+acuerdo a esta ley. Cada uno de los miembros activos estará legalmente
+autorizado a ejercer sus actividades profesionales contempladas en este
+artículo, con estricto apego al Código de Etica Profesional y demás
+reglamentos del Código Federado.

@@ -1,0 +1,2 @@
+Transitorio II.- La Junta Directiva General y las Juntas Directivas de los colegios miembros que se nombren de conformidad con este transitorio, serán consideradas como provisionales y todos sus miembros terminarán en sus funciones el treinta y uno de octubre siguiente, debiendo hacerse los nuevos nombramientos para que entren en funciones el primero de noviembre siguiente. Los miembros de las Juntas Directivas provisionales podrán ser reelectos en sus cargos en esta primera sesión.
+(Adicionado este transitorio por Ley Nº 4925 de 17 de diciembre de 1971).
