@@ -21,3 +21,4 @@ Artículo 2°: Aprúebase los siguientes Egresos Ordinarios y Extraordinarios pa
 (Modificado por el artículo1 del Decreto Ejecutivo N° 29806 de 13 de setiembre del 2001)
 (Modificado por el artículo1 del Decreto Ejecutivo N° 29832 de 21 de setiembre del 2001)
 (Modificado por el artículo1 del Decreto Ejecutivo N° 29850 de 21 de setiembre del 2001)
+(Modificado por el artículo1 del Decreto Ejecutivo N° 29870 de 28 de setiembre del 2001)

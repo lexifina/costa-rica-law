@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República, para el Ejercicio Económico del 2001
 
-Ley N° 8050 del 2000-12-07. SINALEVI, ficha 46703: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=46703&param2=64239&param3=1>.
+Ley N° 8050 del 2000-12-07. SINALEVI, ficha 46703: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=46703&param2=49466&param3=1>.
 
 Publicada en La Gaceta N° 249 del 2000-12-28.
 
@@ -41,3 +41,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 31 de 60 | 2001-09-25 | Decreto Ejecutivo 29806 (2001-09-13) | 2001-09-13 |
 | 32 de 60 | 2001-10-08 | Decreto Ejecutivo 29833 (2001-09-21) | 2001-09-21 |
 | 33 de 60 | 2001-10-10 | Decreto Ejecutivo 29850 (2001-09-21) | 2001-09-21 |
+| 34 de 60 | 2001-10-12 | Decreto Ejecutivo 29870 (2001-09-28) | 2001-09-28 |
