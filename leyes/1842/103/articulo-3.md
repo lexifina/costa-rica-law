@@ -1,0 +1,1 @@
+Art. 3. El presente decreto se imprimirá y circulará, publicándose por bando para que llegue á noticia de todos. –Dado en San José á nueve de Noviembre de mil ochocientos cuarenta y dos. –José Ma Alfaro. –Al Ministro general del Despacho Sr. Doctor José María Castro.
