@@ -1,0 +1,1 @@
+Articulo 11°.—Los bancos deberán someter a conocimiento de la Junta toda aquella documentación que tenga relación con operaciones de los productores no aceptados por los bancos y que estén en posibilidad de ser sometidas a cobro judicial.

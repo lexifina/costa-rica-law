@@ -1,0 +1,1 @@
+Artículo 10°.—Aquellos productores agropecuarios que no hayan acudido a documentar sus readecuaciones podrán ser sometidos a cobro judicial por los bancos, con base en recomendaciones previas de la Junta.
