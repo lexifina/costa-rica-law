@@ -1,0 +1,1 @@
+Art. 5° Se declara en favor de los fondos de instrucción, las multas que se impongan en toda clase de delitos, como también las cantidades que resulten de las conmutaciones de penas que se hagan por Poder Ejecutivo, bien entendido que cada Provincia tendrá un derecho exclusivo a las multas y conmutaciones que procedan de los delitos que en ellas se hayan cometido.
