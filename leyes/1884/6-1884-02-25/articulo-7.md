@@ -1,0 +1,1 @@
+Art. 7° - Si el derecho del actor para pedir el desahucio no constare sino por su dicho, y con tal de que acompañare el título que justifique su propiedad, su derecho para disfrutar de la cosa, ó su calidad de depositario ó administrador, prevendrá el Juez al demandado desaloje la finca dentro de quince días.

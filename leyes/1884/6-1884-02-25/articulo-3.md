@@ -1,0 +1,1 @@
+Art. 3-Serán parte legítima para promover el juicio de desahucio, los que tengan la posesión de la finca á título de dueños, usufructuarios, depositarios ó cualquiera otro que les dé derecho para disfrutarla ó administrarla.

@@ -1,0 +1,1 @@
+Art. 11. Si la acción de desahucio se hubiere fundado en la falta de pago del precio, no se admitirá el recurso de apelación que interpusiere el demandado, si no consignare al establecerlo, el valor de las rentas vencidas y el de las que con arreglo al contrato deban satisfacerse adelantadas.
