@@ -1,0 +1,1 @@
+Artículo 91.-Una vez concluida la investigación del accidente, el Departamento de Accidentes hará llegar a la Dirección General de Personal los resultados de ésta. Esta última dependencia impondrá las medidas disciplinarias que correspondan.

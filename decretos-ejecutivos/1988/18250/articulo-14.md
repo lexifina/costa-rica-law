@@ -1,0 +1,1 @@
+Artículo 14.-El Ministro o su representante podrán autorizar el trabajo durante horas extras sólo en situaciones excepcionales, cuando sea indispensable satisfacer necesidades esenciales del servicio público.

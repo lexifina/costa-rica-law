@@ -1,0 +1,5 @@
+Artículo 77.-Además de las faltas y sanciones correspondientes contenidas en otros artículos del presente Reglamento, se considerarán faltas graves las infracciones a las disposiciones de los artículos 37 incisos 1), 2), 3), 4), 6), 8), 9), 10), 15), 16), 17), 18), 19), 20), 21), 22), 23), 25), 26), 27) y 30); artículo 38 incisos a), b), c), d), f), g), h), i) y j); artículo 39 incisos a), b), c), d), e), f), g), h), i) y j); artículo 40 incisos a), c), e), f), g), h), i), j), k), ll), m). n), ñ). o), p), q), r), s) y t); 41 incisos a), b), c), d), e); y artículos 62, 69, 73, 84, 87 y 89 de este ordenamiento las cuales se computarán en un lapso de tres meses y se sancionarán de la siguiente manera:
+(Corregido mediante Fe de Erratas publicada en la Colección de Leyes y Decretos Año 1988, Semestre II, Tomo I, página 125).
+Por una suspensión hasta por quince días hábiles.
+Por dos o más, despido sin responsabilidad patronal.
+Las anteriores sanciones se aplicarán sin perjuicio de que, si las faltas lo ameritan, se aplique una medida disciplinaria más drástica.

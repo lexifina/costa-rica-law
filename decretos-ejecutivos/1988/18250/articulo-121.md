@@ -1,0 +1,1 @@
+Artículo 121.-El presente Reglamento deroga el anterior Reglamento Interior de Trabajo del Ministerio de Obras Públicas y Transportes y cualquiera otra disposición de rango igualo inferior, en tanto se le opongan.

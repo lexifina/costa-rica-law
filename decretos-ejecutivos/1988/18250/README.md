@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 18250
+
+Reglamento Autónomo de Organización y Servicio del Ministerio de Obras Públicas y Transportes
+
+- Tipo: Decreto Ejecutivo
+- Número: 18250
+- Fecha: 1988-06-23
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 139 del 1988-07-21
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=62168&param2=70869&param3=1 (ficha 62168)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1988-08-11 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 72.-Para casos muy calificados no contemplados en este reglamento, queda a juicio del jefe inmediato, con la aprobación de la Dirección General de personal justificar ausencias que no sean por enfermedad comprobada para efectos de evitar sanción disciplinaria, sin que ello signifique obligación de pago del salario.
