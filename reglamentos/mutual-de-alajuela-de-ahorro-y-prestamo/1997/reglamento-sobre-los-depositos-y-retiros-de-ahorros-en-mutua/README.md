@@ -14,3 +14,4 @@ Reglamento sobre los Depósitos y Retiros de Ahorros en Mutual Alajuela de Ahorr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-09-19 | la propia norma |
+| 2 | 2001-05-14 | Reglamento 23 (2001-05-14) |

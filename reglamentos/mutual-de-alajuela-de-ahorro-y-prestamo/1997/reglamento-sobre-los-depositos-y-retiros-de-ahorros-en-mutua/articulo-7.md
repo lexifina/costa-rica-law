@@ -1,1 +1,1 @@
-Artículo VII-Suspensión de los retiros: Si la propiedad o derecho de los depósitos realizados a la cuenta de ahorros fuere disputada judicialmente, la Mutual podrá suspender el pago de los mismos hasta tanto éste no sea solicitado mediante orden judicial.
+Artículo VII.-Suspensión de los retiros: Si la propiedad o derecho de los depósitos realizados a la cuenta de ahorros fuere disputada judicialmente, la Mutual podrá suspender el pago de los mismos hasta tanto éste no sea solicitado mediante orden judicial.

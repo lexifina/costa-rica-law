@@ -1,2 +1,2 @@
-Artículo V-Personas discapacitadas: Las personas discapacitadas podrán abrir Cuentas de Ahorros, para lo cual deberán actuar mediante su representante legal debidamente acreditado de acuerdo a la legislación vigente.
+Artículo V.-Personas Discapacitadas: Las personas discapacitadas podrán abrir Cuentas de Ahorros, para 10 cual deberán actuar mediante su representante legal debidamente acreditado de acuerdo a la legislación vigente.
 En el caso de los ahorrantes analfabetos se deberá abrir la cuenta ante dos testigos en presencia de los cuales se le leerá el reglamento y en caso de no saber firmar estampará su huella digital. De tal situación se dejará constancia en la tarjeta poder.
