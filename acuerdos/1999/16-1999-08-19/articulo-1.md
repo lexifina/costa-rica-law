@@ -12,3 +12,4 @@ SOCIEDADES ADMINISTRADORAS DE FONDOS
 DE INVERSION.Y FONDOS DE INVERSIÓN.
 Artículo 1°—Se aprueba la presente Normativa Contable para los Puestos de Bolsa, las Sociedades Administradoras de Fondos de Inversión y los Fondos de Inversión.
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por los artículos 1, 2, 3, 4 y 5 del Acuerdo 38 de 24 de agosto de 1999, publicado en La Gaceta No. 112 de 12 de junio de 2003, Alcance 29.)
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por los artículos 1, 2, 3, 4, 5, 6 y 7 del Acuerdo 54 de 11 de febrero de 2002, publicado en La Gaceta No. 112 de 12 de junio de 2003, Alcance 29.)
