@@ -1,3 +1,0 @@
-Artículo 12. -Queda totalmente prohibida la exportación de carne de ganado vacuno hembra, la cual será destinada exclusivamente para el consumo interno.
-La matanza de vacas se hará bajo la vigilancia del Consejo Nacional de Producción, el que tendrá la absoluta responsabilidad de que esta carne llegue al consumo local. Con este fin el Consejo Nacional de Producción gozará dentro de la ley de todos los medios que considere necesarios nombrando fiscales específicos para lograr el cumplimiento de este artículo en las plantas que procesen para exportación. Ninguna planta podrá sacrificar hembras si no ha solicitado la presencia de los fiscales.
-El Consejo Nacional de Producción no permitirá la matanza de hembras aptas para la cría.
