@@ -1,2 +1,2 @@
 Aplicación de medidas de seguridad a mayores de 17 y menores de 21 años
-Artículo 99.- El Juez podrá también aplicar medidas de seguridad a los mayores de diecisiete y menores de veintiún años cuando, de acuerdo con el informe del Instituto de Criminología, éstas puedan contribuir a su readaptación.
+Artículo 99.- (Derogado por el artículo 3° de la Ley Reforma Integral de Ley Orgánica de la Jurisdicción Tutelar de Menores; ley N° 7383 del 16 de marzo de 1994)
