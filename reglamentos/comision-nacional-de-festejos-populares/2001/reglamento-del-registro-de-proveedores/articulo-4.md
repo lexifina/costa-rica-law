@@ -1,0 +1,1 @@
+Artículo 4°—Una vez recibida la solicitud de incorporación, la Comisión verificará si aporta toda la información indicada en el artículo 3° de este reglamento, en caso contrario, procederá a conceder un plazo máximo de cinco días hábiles para que se subsanen los defectos. Si la prevención no es atendida en tiempo, la solicitud se tendrá por rechazada, sin más trámite.

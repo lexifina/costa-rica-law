@@ -1,0 +1,2 @@
+Articulo 2°—El Registro de Proveedores de la dimisión, será el mecanismo idóneo para incluir la información de las personas físicas y jurídicas que deseen participar en los procesos de contratación administrativa que se lleven a cabo en la institución, con el fin de adquirir sus bienes y servicios.
+Las personas físicas y/o jurídicas que deseen participar en los procesos de contratación administrativa, deben registrarse en la administración de la Comisión.
