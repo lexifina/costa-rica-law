@@ -13,3 +13,4 @@ Traslada al IMAS Servicio de Atención a Ciudadanos Tercera Edad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-03-25 | la propia norma |
+| 2 | 2001-06-18 | SINALEVI (sin norma nombrada) |
