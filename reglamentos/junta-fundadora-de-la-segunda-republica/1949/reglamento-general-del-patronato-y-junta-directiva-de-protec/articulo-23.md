@@ -1,2 +1,7 @@
-Artículo 23.-Simultáneamente, no podrán ser miembros de la Junta, las personas que entre sí sean ascendientes o descendientes en el grado prohibido por este Reglamento, o quienes tengan parentesco prohibido con el Delegado Ejecutivo, Jefes de Departamentos, Directores o Superintendentes de las instituciones que administra la Junta. Será nula toda elección practicada en contra de lo establecido en este artículo. Si se eligieren dos parientes en grado prohibido, será nula la votación que favoreció al de menor edad. En igualdad de circunstancias perderá su credencial el último nombrado, por su orden de numeración en la papeleta.
-Tampoco podrá ser miembro de la Junta cualquiera de los empleados de la misma o de alguna de las Instituciones que ella administre ni sus proveedores o quienes tengan contrato con la Junta o cualquiera de sus organismos.
+Artículo 23.-No pueden ser miembros de la Junta
+1°-Las personas que entre sí sean parientes hasta el tercer grado consanguíneo y el segundo de afinidad.
+2°-Los empleados o funcionarios de la Junta o de las Instituciones que ella administre, o sus parientes en grado prohibido.
+3°-Los proveedores comerciales de la Junta, o los que tengan contratos con la misma.
+Toda designación contraria a estas prohibiciones será nula, y si se eligiere a dos parientes en grado prohibido, será nula la votación que favoreció al de menor edad. En caso de igualdad de circunstancias será nula la elección del últimamente nombrado, por su orden de categoría en la papeleta.
+La Dirección General de Asistencia vigilará el cumplimiento de las disposiciones a que se refiere este artículo y el anterior.
+(Así reformado por acuerdo N° 390 del 8 de abril de 1952)

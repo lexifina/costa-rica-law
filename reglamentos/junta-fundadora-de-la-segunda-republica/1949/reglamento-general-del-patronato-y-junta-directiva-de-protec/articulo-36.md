@@ -1,6 +1,7 @@
 CAPITULO VI
 Departamento de Auditoría
-Artículo 36.-EI Departamento de Auditoría tendrá función propia e independiente. El Auditor, que debe ser un Contador Público Autorizado, responderá de sus actuaciones directamente ante la Junta y será el asesor inmediato del Delegado Ejecutivo.
+Artículo 36.-EI Departamento de Auditoría tendrá función propia e independiente. El Auditor responderá de sus actuaciones directamente ante la Junta, y será el asesor inmediato del Delegado Ejecutivo.
+(Así reformado el párrafo anterior por acuerdo N° 390 del 8 de abril de 1952)
 Tendrá las siguientes atribuciones:
 a) Ejercer el control económico de las diversas dependencias de la Junta.
 b) Controlar los billetes de premios pagados por el Departamento de Loterías.
