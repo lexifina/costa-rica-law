@@ -1,0 +1,1 @@
+Artículo 298. Cuando se rectificare un asiento por error de cualquiera especie cometido en el por el Registrador, no causar derechos el asiendo nuevo que extendiere; pero sin perjuicio de lo dispuesto en el segundo párrafo del artículo 228.

@@ -1,0 +1,1 @@
+Artículo 149. Si el marido ofreciera‚ a la mujer arras y donación esponsalicia, solamente quedar obligado a constituir hipoteca por las unas o por las otras, a elección de la misma mujer o a la suya, si ella no optase en el plazo de veinte días que la ley señala, contados desde el en que se hizo la promesa

@@ -1,0 +1,1 @@
+Artículo 361. Lo dispuesto en los anteriores, artículos sobre las inscripciones de posesión, no ser aplicable al derecho, hipotecario, el cual no podrá inscribirse sino mediante la presentación del título escrito.

@@ -1,0 +1,2 @@
+Artículo 108. Se considerar también, como tercer poseedor para los efectos de los artículos 103 y 104, el que hubiere adquirido solamente el usufructo el dominio útil de la finca hipotecada, bien la propiedad el dominio directo, quedando en el deudor el derecho correlativo.
+Si hubiere más de un tercer poseedor, por hallarse en una persona la propiedad el dominio directo, y en otra el usufructo el dominio útil, se entender con ambas el requerimiento y ser común ellas, el término de los diez días para pagar la deuda desamparar la finca.

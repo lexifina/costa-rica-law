@@ -1,0 +1,2 @@
+Artículo 71. El acreedor refaccionario podrá convertir su anotación preventiva en inscripción de hipoteca, si, al espirar el término señalado en el artículo anterior, no estuviere aun pagado por completo de su crédito, por no haber vencido el plazo estipulado en el contrato.
+Si el plazo estuviere vencido, podrá el acreedor, prorrogarlo mediante la conversión de la anotación en inscripción hipotecaria, exigir el pago, desde luego, para lo cual surtir la anotación todos los efectos de la hipoteca.

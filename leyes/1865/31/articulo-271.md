@@ -1,0 +1,1 @@
+Artículo 271. Los errores, e inexactitudes u omisiones expresados en el artículo anterior, no serán imputables al Registrador, cuando tengan su origen en algún defecto del mismo título inscrito, y no sea de los que notoriamente, y según los artículos 17, número 8§ del 40, 78 y 79, debieran haber motivado la denegación o la suspensión de la inscripción, anotación o cancelación.

@@ -1,0 +1,1 @@
+Artículo 52. Las providencias decretando denegando la anotación preventiva en los casos 1° y 5° del artículo 40, ser n apelables en un solo efecto. En el caso 6§ del mismo artículo, ser apelable en ambos la providencia, cuando se haya opuesto la anotación, el que tuviere su favor algún derecho real anterior sobre el inmueble anotado.

@@ -1,0 +1,1 @@
+Artículo 192. Los libros del registro no se sacarán, por ningún motivo, de la oficina del Registrador, todas las diligencias judiciales o extrajudiciales que exijan la presentación de dichos libros, se ejecutar n precisamente en la misma oficina.

@@ -1,0 +1,1 @@
+Artículo 296. Los derechos que se causen por los asientos o certificaciones que los jueces manden extender o librar, a consecuencia de los juicios de que conozcan, se calificarán, para su exacción, como las demás costas del mismo juicio.

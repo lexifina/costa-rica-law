@@ -1,0 +1,1 @@
+Artículo 202. La falta de asiento de una inscripción en el libro por orden alfabético, no afectar la validez de la misma, si se hallare extendida en el registro por orden de fechas, con las formalidades correspondientes.

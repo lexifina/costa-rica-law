@@ -1,0 +1,1 @@
+Artículo 294. En los derechos que señala el arancel las certificaciones del Registrador, no se considerar comprendido al importe del papel sellado en que deban extenderse, el cual ser dé cuenta de los interesados.

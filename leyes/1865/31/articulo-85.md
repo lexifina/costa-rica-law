@@ -1,0 +1,9 @@
+Artículo 85. Podrán hipotecarse, pero con las restricciones que continuación se expresan:
+1°. -El edificio construido en suelo ajeno, el cual, si se hipotecare por el que lo construye, ser sin perjuicio del derecho del propietario del terreno, y extendiéndose sujeto a tal gravamen, solamente el derecho que el mismo que edificio tuviere sobre lo edificado:
+2°. -El derecho de percibir los frutos en el usufructo, pero quedando extinguida la hipoteca, cuando concluya el mismo usufructo por un hecho ajeno la voluntad del usufructo. Si concluyere por su voluntad, subsistir la hipoteca hasta que se cumpla la obligación asegurada, hasta que venza el tiempo en que el usufructo habría naturalmente concluido no mediar el hecho que le puso fin:
+3°. -La mera propiedad, en cuyo caso, si el usufructo se consolidare con ella en la persona del propietario, no solo subsistir la hipoteca, sino que se extender también al mismo usufructo, como no se haya pactado lo contrario:
+4°. -Los bienes anteriormente hipotecados, aunque lo están con el pacto de no volverlos hipotecar, siempre que quede salvo la prelación que tuviere para cobrar su crédito, aquel cuyo favor esta‚ constituida la primera hipoteca:
+5°. -Los derechos de superficie, pastos, aguas, leñas y otros semejantes de naturaleza real, siempre que quede salvo el de los demás partícipes en la propiedad:
+6°. -Los ferrocarriles, canales, puentes y otras obras destinadas al servicio público, cuya explotación haya concedido el Gobierno por diez años más, pero quedando pendiente la hipoteca que sobre ellos se constituya, de la resolución del derecho del concesionario:
+7°. - Los bienes pertenecientes personas que no tienen la libre disposición de ellos, en los casos y con las formalidades que prescriben las leyes para su enajenación:
+8°. -El derecho de hipoteca voluntaria, pero quedando pendiente la que se constituya sobre el de la resolución del mismo derecho.

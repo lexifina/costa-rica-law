@@ -1,0 +1,2 @@
+Artículo 160. La mujer podrá exigir la subrogación de su hipoteca en otros bienes del marido, según lo dispuesto en los dos anteriores artículos, en cualquier tiempo que lo crea conveniente, desde que haya consentido por escrito, en la enajenación o gravamen de los inmuebles afectados a su dote, o como condición previa para prestar dicho consentimiento.
+Si la mujer se hallare en cualquiera de los casos prescritos en los párrafos 2° y 3° del artículo 152, podrán también ejercitar este derecho en su nombre, las personas designadas en el mismo artículo.

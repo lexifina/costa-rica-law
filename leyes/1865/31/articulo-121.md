@@ -1,0 +1,1 @@
+Artículo 121. No se considerar asegurado con la hipoteca el interés del préstamo en la forma que prescribe el artículo 92, sino cuando la estipulación y cuantía de dicho interés resulten de la inscripción misma.

@@ -1,0 +1,1 @@
+Artículo 139. Lo dispuesto en los dos artículos anteriores se entender sin perjuicio de las reglas establecidas en el artículo 164, sobre hipotecas por bienes reservables, y en el Código civil, sobre fianzas de los tutores y curadores.

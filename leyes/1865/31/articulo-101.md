@@ -1,0 +1,1 @@
+Artículo 101. Cuando sea una la finca hipotecada, cuando siendo varias no se haya señalado la responsabilidad de cada una, por ocurrir el caso previsto en el artículo 99, no se podrá exigir la liberación de ninguna parte de los bienes hipotecados, cualquiera que sea la del crédito que el deudor haya satisfecho.

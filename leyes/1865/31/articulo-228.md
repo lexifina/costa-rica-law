@@ -1,0 +1,1 @@
+Artículo 228. Siempre que se haga la rectificación en virtud del mismo título antes presentado, serán todos los gastos y perjuicios que originen de cuenta del Registrador. En el caso de necesitarse un título nuevo, pagarán los interesados los gastos de la nueva inscripción, y los demás que la rectificación ocasione.

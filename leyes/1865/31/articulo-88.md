@@ -1,0 +1,1 @@
+Artículo 88. La hipoteca se estienden las accesiones naturales, las mejoras, los frutos pendientes y rentas no percibidas al vencer la obligación, y al importe de las indemnizaciones concedidas debidas al propietario por los aseguradores de los bienes hipotecados.

@@ -1,0 +1,2 @@
+Artículo 214. Para que, en virtud de providencia judicial, pueda hacerse cualquier asiento en el registro expedir el juez por duplicado al mandamiento correspondiente.
+El Registrador devolver dirigido, o al interesado que lo haya presentado, con nota firmada por ‚l, en que se exprese quedar cumplido, y conservar el otro en su oficio, extendiendo en una notificada, igual a la que hubiere puesto en el ejemplar devuelto. Estos documentos se archivar n enlegajados numerándolos por el orden de su presentación.

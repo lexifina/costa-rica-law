@@ -1,0 +1,1 @@
+Artículo 194. La sección del registro titulada de la Propiedad, comprender todas las inscripciones, anotaciones preventivas y cancelaciones de los títulos sujetos a inscripción, según los artículos 2° y 6°, con excepción de las inscripciones, anotaciones y cancelaciones de la hipotecas.

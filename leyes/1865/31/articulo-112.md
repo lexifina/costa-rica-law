@@ -1,0 +1,1 @@
+Artículo 112. Las inscripciones y cancelaciones de las hipotecas, se sujetarán las reglas establecidas en los artículos 2 y 4, para las inscripciones y cancelaciones en general, sin perjuicio de las especiales contenidas en este título.

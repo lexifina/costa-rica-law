@@ -1,0 +1,1 @@
+Artículo 73. Las cuestiones que se susciten entre el acreedor y el deudor sobre la liquidación del crédito refaccionario, sobre la constitución de la hipoteca, se decidir n en juicio ordinario. Mientras este se sustancie y termine, subsistir la anotación preventiva, y producir todos sus efectos.

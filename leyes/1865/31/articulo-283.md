@@ -1,0 +1,1 @@
+Artículo 283. El Gobierno suspender desde luego, al Registrador condenado por ejecutoria a la indemnización de daños y perjuicios, si en el término de diez días, no completare o repusiere su fianza, o no asegurare a los reclamantes, las resultas de los respectivos juicios.

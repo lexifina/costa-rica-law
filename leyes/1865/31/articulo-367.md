@@ -1,0 +1,1 @@
+Artículo 367. Los asientos que se hagan en los nuevos índices relativos a fincas o derechos inscritos en los libros antiguos, contendrán la cita expresada en el artículo anterior, además de la correspondencia a los libros nuevos.

@@ -1,0 +1,1 @@
+Artículo 253. Cuando se pidiere o mandare dar certificación de una inscripción señalada, bien literal o bien en relación, y la que se señalare, estuviere cancelada, el Registrador insertar, a continuación de ella, copia literal del asiento de cancelación.

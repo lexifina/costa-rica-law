@@ -1,0 +1,1 @@
+Artículo 92. La hipoteca constituida favor de un crédito que devengue interés, no asegurar, con perjuicio de tercero, además del capital, sino los intereses de los dos últimos años trascurridos y la parte vencida de la anualidad corriente.

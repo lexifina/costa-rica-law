@@ -1,0 +1,6 @@
+Artículo 137. Para constituir ampliar judicialmente e instancia de parte, cualquiera hipoteca legal, se proceder con arreglo las reglas siguientes:
+1°. -El que tenga derecho exigirla, presentar un escrito en el Juzgado del domicilio del obligado prestarla, pidiendo que se constituya la hipoteca, fijando la cantidad por que deba constituirse y señalando los bienes que pueden ser gravados con ella, por lo menos, el registro donde deban constar inscritos, los que posea la misma persona obligada:
+2¦. -A este escrito acompañar precisamente el título documento que produzca el derecho de hipoteca legal, y, si fuere posible, una certificación del Registrador en que consten todos los bienes hipotecables que posea el demandado:
+3¦. -El Juez, en su vista, mandar comparecer su presencia todos los interesados en la constitución de la hipoteca, fin de que se avengan, si fuere posible, en cuanto al modo de verificarlo:
+4§. -Si se avinieren, mandar el Juez constituir la hipoteca en los términos que se hayan convenido:
+5§. -Si no se avinieren, ya sea en cuanto la obligación de hipotecar, ¢ ya en cuanto la cantidad que debe asegurarse, ¢ la suficiencia de la hipoteca ofrecida, se dar traslado del escrito de demanda al demandado, y se seguir el juicio por los tr mites establecidos para el ordinario con arreglo al Código de procedimientos.

@@ -1,0 +1,1 @@
+Artículo 116. Los que, con arreglo al artículo anterior, tienen la facultad de constituir hipotecas voluntarias, podrán hacerlo por s¡, por medio de apoderado con poder especial para contraer este género de obligaciones, otorgado ante cartularios correspondientes.

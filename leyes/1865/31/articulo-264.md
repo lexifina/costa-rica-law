@@ -1,0 +1,1 @@
+Artículo 264. La fianza del Registrador y la hipoteca, en su caso, quedar n afectos, mientras no se devuelvan, a las responsabilidades en que aquel incurra, por razón de su cargo, con preferencia a cualesquiera otras diligencias del mismo Registrador.

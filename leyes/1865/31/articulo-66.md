@@ -1,0 +1,2 @@
+Artículo 66. Las inscripciones anotaciones preventivas, hechas en virtud de escritura pública, no se cancelarán, sino mediante otra escritura en la cual manifiesten su consentimiento la persona cuyo favor se haya otorgado la primera, sus causahabientes representantes legítimos, en virtud de providencia ejecutoriada contra la cual no se halle pendiente ningún recurso.
+Las inscripciones anotaciones hechas en virtud de mandamientos judiciales no se cancelarán, sino por providencia ejecutoriada, que tenga la circunstancia prevenida en el párrafo anterior.

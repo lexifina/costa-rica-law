@@ -1,0 +1,2 @@
+Artículo 165. Si transcurrieren noventa días, sin presentar el padre al Juzgado el expediente de que trata el artículo anterior, podrán reclamar el cumplimiento del mismo, los tutores o curadores de los hijos, si los hubiere, y en su defecto, los parientes cualesquiera que sea su grado, o en albacea del cónyuge premuerto.
+El término de los noventa días empezar a contarse, desde que, por haberse contraído segundo o ulterior matrimonio, adquieran los bienes el carácter de reservables.

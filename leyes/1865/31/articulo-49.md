@@ -1,0 +1,1 @@
+Artículo 49°. Ser n faltas subsanables en los títulos presentados inscripción para el efecto de anotarlos preventivamente, las que afecten la validez del mismo título, sin producir necesariamente la nulidad de la obligación en el constituida. Serán faltas no subsanables que impidan la anotación, las que produzcan necesariamente aquella nulidad.

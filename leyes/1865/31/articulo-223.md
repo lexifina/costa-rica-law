@@ -1,0 +1,1 @@
+Artículo 223. Cuando los errores materiales o de concepto produzcan la nulidad de la inscripción, conforme al artículo 28, no habrá lugar a rectificación, y se pedir y declarar por quien corresponda, dicha nulidad.

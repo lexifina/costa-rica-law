@@ -1,0 +1,1 @@
+Artículo 177. Si la madre no constituyere la hipoteca en el término de sesenta días, contados desde la fecha del nuevo matrimonio, nombrar o hará nombrar el juez, con arreglo a las leyes, otro tutor o curador al huérfano o incapacitado, bien a instancia de cualquiera de los parientes de ‚este, del Agente Fiscal, o bien de oficio.

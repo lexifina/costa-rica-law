@@ -1,0 +1,3 @@
+Artículo 220. El Registrador no podrá rectificar, sin la conformidad del interesado que tenga en su poder el título inscrito, o sin una providencia judicial, en su defecto, los errores materiales cometidos:
+1°. -En inscripciones, anotaciones preventivas o cancelaciones comprendidas en el registro de la propiedad, o en el de las hipotecas por el orden de fechas, y cuyos títulos no existan en el registro:
+2°. -En asientos de presentación, notas marginales, indicaciones de referencia o asiento del registro de las hipotecas por orden alfabético, cuando dichos errores no puedan comprobarse por las inscripciones principales respectivas, y no existan tampoco los títulos en la oficina del registro.

@@ -1,0 +1,1 @@
+Artículo 241. El Registrador pondrá de manifiesto los registros en la parte necesaria, a las personas que tengan interés en consultarlos, sin sacar los libros del oficio, y con las precauciones convenientes para asegurar su conservación.

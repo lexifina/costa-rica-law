@@ -1,0 +1,1 @@
+Artículo 124. Las inscripciones de hipotecas voluntarias, solo podrán ser canceladas en la forma prevenida en el artículo 66. Si no se presentaren la cancelación los que deban hacerla, podrá decretarse judicialmente.

@@ -1,0 +1,1 @@
+Artículo 104. Requerido de pago el tercer poseedor, deber satisfacer en el término de otros diez días la deuda con sus intereses, regulados conforme lo dispuesto en el artículo 92, desamparar los bienes hipotecados.
