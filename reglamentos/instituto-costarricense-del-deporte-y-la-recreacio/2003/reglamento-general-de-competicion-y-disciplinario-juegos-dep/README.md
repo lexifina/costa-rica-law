@@ -14,3 +14,4 @@ Reglamento general de competición y disciplinario juegos deportivos nacionales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-20 | la propia norma |
+| 2 | 2004-06-02 | Reglamento 372 (2004-06-02) |
