@@ -1,0 +1,12 @@
+PODER EJECUTIVO
+DECRETO N° 29118-MEIC LA PRIMERA VICEPRESIDENTA EN EJERCICIO DE LA PRESIDENCIA DE LA REPéBLICA Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En uso de las atribuciones que les confiere el artículo 140 de la Constitución Política en sus incisos 3) y 18), artículos 28. 2b de la Ley General de la Administración Pública y el art¡culo 44 del Reglamento a la Ley de Incentivos para la Producción Industrial N° 7017.
+Considerando:
+1°-Que en el inciso vii) del numeral 6) del artículo 44 del Reglamento a la Ley de Incentivos para la Producción Industrial, Decreto N° 17301, se establece que el Decreto de calificación de la empresa, deber contener como mínimo el "señalamiento, en su caso, de la garantía que deber rendir la unidad productiva ante la Secretaría Técnica, para asegurar el cumplimiento de las obligaciones derivadas del decreto."
+2°-Que en los decretos de calificación de las empresas se señaló: "Depositar a la orden y satisfacción del Ministerio de Economía, Industria y Comercio, dentro de los veintidós días naturales contados a partir de la fecha en que sean acreditadas las inversiones correspondientes, un bono de cumplimiento por un monto equivalente al 4% de los créditos aplicados al impuesto sobre la Renta.
+3°-Que la administración nunca estableció formalmente por cu nto tiempo se debían rendir las garant¡as.
+4°-Que debe establecerse el tiempo por el cual deber rendirse la garantía, por lo que se recurre al plazo de cuatro años de prescripción de los créditos fiscales, de acuerdo con el pronunciamiento de la Procuraduría General de la República, número C-251-97 del 24 de diciembre de 1997.
+5°-Que de conformidad con el oficio AJ-144-2000 de la Unidad de Asuntos Jurídicos de éste Ministerio, el propósito de la garantía es el de resguardar el cumplimiento de las obligaciones derivadas del contrato industrial, por lo que debe extenderse por un plazo razonable que permita asegurar el cumplimiento de todas las obligaciones contractuales.
+6°-Que las empresas, aún sin disfrutar del incentivo, han presentado informes anuales detallados.
+Decretan:
+Artículo 1°-Que las garant¡as que presentan las empresas con base en la Ley de Incentivos para la Producción Industrial, deberán ser otorgadas por un plazo no menor de cuatro años. Dicho plazo de cuatro años comenzar a regir desde el momento de la firmeza de la recomendación otorgada por el Ministro de Economía, Industria y Comercio sobre la solicitud de reconocimiento de inversiones correspondiente a cada periodo fiscal.
