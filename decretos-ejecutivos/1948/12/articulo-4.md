@@ -1,9 +1,0 @@
-Artículo 4°-La cuenta pro-forma debe hacerse de acuerdo con las reglas que siguen:
-Constatado el total de las ventas del beneficio, según queda establecido, se harán, por su orden, las siguientes deducciones:
-a) Gastos que expresen las cuentas de venta;
-b) Cualquier impuesto de exportación que sea establecido y el del beneficio;
-c) Los gastos de elaboración, sacos, acarreo, etc. El beneficiador podrá hacer una deducción fija de cinco colones por fanega por los gastos a que se refiere este párrafo tercero, si así lo prefiere.
-Hechas las anteriores deducciones, el producto de las ventas así reducido se separará en tantas porciones como zonas correspondan al beneficio tomando en cuenta la cantidad de café recibido de cada zona y diferencia de precios de las mismas, a que se refiere el artículo 9°, y de cada porción se rebajará un porcentaje en favor del beneficiador por su intervención en el negocio y el servicio del beneficio.
-Este porcentaje se calculará sobre el precio por fanega, como sigue: hasta un 13% cuando el precio neto por fanega sea de ¢ 40. 00 o menos; hasta un 14 % cuando el precio sea mayor de ¢ 40.00 y menor de ¢50.00; hasta un 15 % cuando el precio sea mayor de ¢50.00 y menor de ¢60.00; y hasta un 16 % cuando el precio sea mayor de ¢60.00 El beneficiador no tendrá derecho a ninguna otra deducción en su favor.
-La utilidad neta que quede por zona, se dividirá por el número de fanegas recibidas de la misma zona, fijándose así el precio que corresponda pagar por fanega a aquel beneficio en la cosecha que se liquida, en cada zona, y se hará saber esto por medio de aviso que se publicará en el Diario Oficial.
-En las cuentas que presente el beneficiador, el producto de las ventas de café efectuadas en moneda fuerte, debe calcularse en colones al tipo oficial de cambio del día que se vendió la letra.

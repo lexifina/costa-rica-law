@@ -1,1 +1,0 @@
-Artículo 10.-Los beneficiadores están obligados, al rendir los informes a que se refiere el artículo 22 del reglamento de la Bolsa del Café, a manifestar la cantidad de café verde recibido durante la quincena.

@@ -1,1 +1,0 @@
-Artículo 13. -La infracción del inciso b) del artículo 2° será penada con multa de mil a cinco mil colones, de acuerdo con la cantidad de café beneficiado por el infractor y las demás infracciones con pena de cien a quinientos colones. Las acusaciones serán presentadas ante el Agente Principal de Policía Específico del Café, por el Director de la Oficina del Café.

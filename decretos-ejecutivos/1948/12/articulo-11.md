@@ -1,1 +1,0 @@
-Artículo 11.-El café verde sólo se podrá vender previa autorización de la Bolsa del Café, que permitirá su venta para la exportación o para consumo local. La infracción a este artículo se castigará con las penas establecidas en el artículo 5° de la ley N° 200 de 5 de octubre de 1948.

@@ -1,3 +1,0 @@
-Artículo 2°-Las compras de café en fruta, para su beneficio, exportación y venta, sujetas a fijación ulterior de precios, se harán en lo sucesivo bajo las siguientes condiciones:
-a) El beneficiador recibirá el café de acuerdo con las prescripciones del decreto N° 200 de 5 de octubre de 1948, beneficiará el café verde separado del maduro y pagará de conformidad con las condiciones que adelante se expresan; y
-b) A más tardar el día último de marzo, posterior a la recolección de la cosecha y de acuerdo con las ventas obtenidas, hasta entonces, el beneficiador hará entre los clientes una liquidación y pago provisionales y la definitiva durante el mes de octubre siguiente, cualquiera que sea la cantidad de café vendido.
