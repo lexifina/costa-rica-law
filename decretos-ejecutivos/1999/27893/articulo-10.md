@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión Técnica de Transporte, mediante acuerdo, establecerá los requisitos con los que deberá cumplir el solicitante, cuando de su gestión se requiera la elaboración de un informe pericial, en cualquiera de las dos modalidades establecidas en este Reglamento.

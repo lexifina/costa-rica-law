@@ -1,0 +1,1 @@
+Artículo 7°—Una vez recibidas las ofertas preliminares, serán estudiadas por cada Dirección. De ser necesario, se solicitara a los oferentes ampliar los detalles que se requieran. Con toda la información disponible, las Direcciones procederán a elaborar las listas de peritos, clasificadas por especialidad y por zona.

@@ -1,0 +1,1 @@
+Artículo 5°—Para conformar las listas oficiales de peritos que se incorporarán a los Registros, cada Dirección publicara, en por lo menos en uno de los diarios de mayor circulación nacional, una invitación a quienes tengan interés en participar en la prestación de estos servicios.

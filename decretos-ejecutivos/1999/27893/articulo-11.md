@@ -1,0 +1,1 @@
+Artículo 11.—La Dirección respectiva deberá llevar a cabo, con sus funcionarios y en forma aleatoria, una auditoría sobre la calidad y la veracidad de los peritajes realizados. Si el informe fuese contrario a aquellos en forma desmedida, previo audiencia conferida, el perito o peritos podrán ser excluidos del Registro.
