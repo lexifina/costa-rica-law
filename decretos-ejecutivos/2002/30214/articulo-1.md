@@ -22,7 +22,7 @@ Centro Cost. Producción Cinematográfica | 58,1
 Centro Cultural Histórico José Figueres Ferrer (Así modificado por el artículo 1° del decreto ejecutivo N° 31133 de 4 de abril de 2003). | 23,8
 Centro Nacional de Drogas | 560,4
 Centro Univ. Para el Desarrollo del Trópico Seco (Así modificado mediante artículo 1° del Decreto ejecutivo N° 31065 de 4 de febrero de 2003). | 283.8
-Colegio de San Luis Gonzaga | 97,4
+Colegio de San Luis Gonzaga (Así REFORMADO PARCIAL Y EXPRESAMENTE, por el artículo 1° del Decreto Ejecutivo N° 31287 de 01 de julio de 2003, publicado en La Gaceta N° 146 de 31 de julio de 2003.) | 145.51
 Colegio Universitario de Alajuela | 917,7
 Colegio Universitario de Cartago ( Así modificado por el Decreto ejecutivo N° 31012 del 04 de febrero de 2003). | ¢ 722.7
 Colegio Universitario de Limón (Así AMPLIADO por el artículo 1º del Decreto Ejecutivo N° 31283 de 01 de julio de 2003, publicado en La Gaceta N° 145 de 30 de julio de 2003.) | 271.5
