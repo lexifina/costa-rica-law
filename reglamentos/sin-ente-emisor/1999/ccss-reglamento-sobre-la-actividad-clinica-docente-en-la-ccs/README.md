@@ -13,3 +13,4 @@ CCSS: Reglamento sobre la Actividad Clínica Docente en la CCSS.Deroga Reglament
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-11-03 | la propia norma |
+| 2 | 2003-02-26 | Ley 8 |
