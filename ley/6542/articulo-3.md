@@ -1,0 +1,1 @@
+Artículo 3°.-Incorpórense a la presente ley los siguientes ingresos extraordinarios provenientes del crédito externo. El Poder Ejecutivo mediante decreto incorporará los recursos extraordinarios provenientes del crédito externo.
