@@ -1,0 +1,1 @@
+Articulo 6°— La Instalación de agujas de seguridad implicará obligatoriamente la construcción de una caseta de seguridad, así como la contratación de un empleado o una empresa que sean los encargados de operar las agujas de acuerdo al horario establecido en este Reglamento.

@@ -1,0 +1,1 @@
+Articulo 11.—Para las sanciones correspondientes por el mal uso de las agujas y ordenar la desmantelación de las agujas ante el Concejo Municipal se deberá respetar el procedimiento que se establece en la Ley General de Administración Pública y el Código Municipal.

@@ -1,0 +1,1 @@
+Articulo 12.—La autorización que se contempla en este Reglamento es de carácter excepcional, por lo que la Municipalidad de La Unión , en cualquier momento podrá evaluar la razonabilidad de que continúen las agujas en vías públicas del cantón autorizadas con fundamento en este reglamento.

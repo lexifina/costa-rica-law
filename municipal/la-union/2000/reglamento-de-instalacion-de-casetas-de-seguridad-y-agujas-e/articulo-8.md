@@ -1,0 +1,1 @@
+Articulo 8°—El Concejo Municipal conocerá la solicitud de los vecinos, y luego de una evaluación y análisis del caso, proceder a la resolución pertinente en ejercicio de su poder discrecional. En caso de llegarse la autorización gestionada, el Concejo Municipal deberá dar las razones y fundamentar el acuerdo correspondiente.

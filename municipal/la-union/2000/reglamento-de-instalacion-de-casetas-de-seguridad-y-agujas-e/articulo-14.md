@@ -1,0 +1,1 @@
+Artículo 14. —Para instalar reductores de velocidad, se deberá respetar estrictamente tas especificaciones técnicas que dicte el Departamento de Ingeniería Municipal de La Unión , así como la ubicación de dichos reductores.

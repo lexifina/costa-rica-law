@@ -1,0 +1,1 @@
+Artículo 17.— La Municipalidad de La Unión , a través de su Departamento de Ingeniería, liará saber a las empresas urbanísticas que desarrollen proyectos habitacionales que es prohibido hacer propaganda con base en el sistema de agujas.

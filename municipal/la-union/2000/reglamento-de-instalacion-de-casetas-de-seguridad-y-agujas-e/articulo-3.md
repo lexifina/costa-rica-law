@@ -1,0 +1,1 @@
+Artículo 3°—El Concejo Municipal de la Unión conocerá la solicitud de los vecinos y tras una evaluación del caso procederá a aprobar o improbar lo solicitado en ejercicio de su poder discrecional. En caso de denegar o Improbar la autorización gestionada, deberá fundamentarse el acuerdo correspondiente.
