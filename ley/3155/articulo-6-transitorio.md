@@ -1,0 +1,1 @@
+Transitorio VI.- Las atribuciones y funciones de las Direcciones Generales de Tránsito y de Aviación Civil, del Consejo Superior de Tránsito y de la Junta de Aviación Civil, serán trasladadas a este Ministerio en el término de un año a partir de la vigencia de esta ley.
