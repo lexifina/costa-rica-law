@@ -14,3 +14,4 @@ Reglamento sobre la Apertura y Funcionamiento de las Entidades Autorizadas y el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-04-24 | la propia norma |
+| 2 | 2001-08-13 | Reglamento 245 (2001-08-13) |

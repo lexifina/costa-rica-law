@@ -1,2 +1,1 @@
-Artículo 43. Del cobro por los servicios del Sistema Centralizado de Recaudación
-La Caja Costarricense de Seguro Social cobrará a las entidades autorizadas una comisión calculada sobre la base de un porcentaje aplicable a los montos recaudados, por los servicios que prestará mediante el Sistema Centralizado de Recaudación. Tal porcentaje será calculado al costo de los servicios prestados.
+Artículo 43. DEROGADO EXPRESAMENTE por la Sesión N° 245-2001, celebrada el 13 de agosto de 2001, publicada en La Gaceta N° 191 de 04 de octubre de 2001.
