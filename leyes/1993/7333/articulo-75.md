@@ -1,0 +1,4 @@
+ARTICULO 75.- Los miembros del Consejo Superior del Poder
+Judicial, propietarios o suplentes en el ejercicio del cargo, no
+podrán, durante su mandato, ser promovidos en ascenso mediante
+nombramientos que dependan del Consejo.

@@ -1,0 +1,6 @@
+ARTICULO 30.- Cuando por impedimento, recusación o excusa,
+un funcionario que administra justicia haya sido reemplazado por
+otro, según las reglas del artículo anterior, el expediente, si
+hubiere sido enviado a otro despacho, volverá a la oficina de
+origen para su fenecimiento, al desaparecer el motivo que originó
+el reemplazo.

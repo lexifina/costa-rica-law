@@ -1,0 +1,10 @@
+ARTICULO 31.- A falta de regla expresa sobre impedimentos,
+excusas y recusaciones, se estará a lo dispuesto en el Código
+Procesal Civil, en cualquier materia, salvo en la jurisdicción
+constitucional la cual se regirá por sus propias normas y
+principios.
+Los motivos de impedimento y recusación, previstos en los
+códigos y leyes procesales, comprenden a los servidores
+judiciales, incluso a los auxiliares y administrativos que, de
+algún modo, deban intervenir en el asunto, debiendo ser
+sustituidos para el caso concreto.

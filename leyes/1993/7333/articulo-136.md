@@ -1,0 +1,11 @@
+ARTICULO 136.- Salvo los que corresponda hacer al Consejo,
+los jefes de Despacho -sujetos a la aprobación de aquel- podrán
+nombrar a sus respectivos funcionarios y empleados. Cuando se
+trate de nombramientos en propiedad, deberán solicitar al
+Departamento de Personal, las ternas respectivas, las cuales
+podrán ser rechazadas si estiman que ninguno de los candidatos
+satisface las necesidades del Despacho. Si la plaza estuviere
+vacante, el nombramiento en propiedad no podrá diferirse por más
+de tres meses. Las mismas reglas se aplicarán para los
+nombramientos del personal subalterno del resto de las oficinas
+judiciales.

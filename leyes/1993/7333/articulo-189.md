@@ -1,0 +1,8 @@
+ARTICULO 189.- El Presidente del Tribunal de la Inspección
+Judicial deberá comunicar al Presidente de la Corte los asuntos
+que puedan afectar el buen servicio de los Despachos judiciales,
+de que tenga noticia la oficina a su cargo. Recibirá, de él o del
+Consejo Superior, las instrucciones relativas a la función de
+vigilancia que le está
+encomendada a la Inspección Judicial e informará del resultado de
+las diligencias levantadas.

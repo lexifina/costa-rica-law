@@ -1,0 +1,8 @@
+ARTICULO 126.- El actuario es un subalterno del jefe de la
+oficina en el orden administrativo y disciplinario pero goza de
+independencia funcional y tiene responsabilidad propia. Debe
+reunir y llenar todos los requisitos necesarios para ser juez, de
+acuerdo con la categoría que corresponda al Despacho en que
+sirva, y está sujeto a los mismos impedimentos, prohibiciones y
+exigencias, que la Ley Orgánica del Poder Judicial establece para
+los funcionarios que administran justicia.

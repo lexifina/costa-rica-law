@@ -1,0 +1,14 @@
+ARTICULO 214.- La anotación de la sanción de advertencia
+quedará cancelada por el transcurso del plazo de un año desde que
+adquirió firmeza, si durante este tiempo no hubiere habido contra
+el sancionado otro procedimiento disciplinario que termine con la
+imposición de sanción.
+La anotación de las restantes sanciones, con excepción de la
+de revocatoria de nombramiento, podrá cancelarse por quien la
+impuso, a instancia del interesado, cuando hayan transcurrido, al
+menos, cinco o diez años desde la imposición firme de la sanción,
+según que se trate de falta grave o gravísima, y durante este
+tiempo el sancionado no hubiere dado lugar a nuevo procedimiento
+disciplinario que termine con la imposición de sanción.
+La cancelación borrará el antecedente para todos los
+efectos, salvo para el otorgamiento de distinciones.

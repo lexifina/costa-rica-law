@@ -1,0 +1,5 @@
+ARTICULO 145.- Los secretarios deberán asistir a las
+audiencias orales ordenadas por el Despacho, a efecto de levantar
+las actas correspondientes, pero, si ocupaciones urgentes de la
+oficina lo impidieran, podrán ser reemplazados para este acto por
+los prosecretarios.

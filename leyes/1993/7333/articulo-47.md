@@ -1,0 +1,18 @@
+ARTICULO 47.- Las personas que laboran en el Poder Judicial
+se denominan "servidores". Sin embargo, cuando en esta Ley se
+hable de "funcionarios que administran justicia" ha de entenderse
+por tales a los Magistrados, jueces superiores de casación,
+jueces superiores, jueces, actuarios, miembros integrantes de los
+tribunales colegiados y alcaldes; por "funcionarios" ha de
+entenderse a los que, fuera de los antes dichos, tengan
+atribuciones y responsabilidades propias determinadas en esta Ley
+y por "empleados", a todas las demás personas que desempeñen en
+el Poder Judicial, puestos remunerados por el sistema de sueldos.
+Las prohibiciones establecidas en esta Ley se aplicarán
+tanto a los servidores que fueren nombrados en propiedad como a
+los interinos, salvo disposición legal en contrario. Cuando esta
+Ley mencione "Corte" ha de entenderse Corte Suprema de Justicia y
+cuando en los códigos procesales se hable de "Ley Orgánica", sin
+especificación alguna, se alude a la presente Ley. Cuando se
+mencione "Consejo" ha de entenderse Consejo Superior del Poder
+Judicial.

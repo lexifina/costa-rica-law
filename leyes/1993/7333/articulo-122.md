@@ -1,0 +1,4 @@
+ARTICULO 122.- En los cantones donde hubiere varias
+alcaldías, la Corte Suprema de Justicia, si lo juzga conveniente,
+fijará cuáles han de atender asuntos civiles y cuáles asuntos de
+las otras materias.

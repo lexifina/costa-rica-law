@@ -1,0 +1,5 @@
+ARTICULO 132.- No podrá ser árbitro de derecho, el que ha
+intervenido como abogado o procurador de una de las partes, en el
+asunto para el que fuere nombrado, salvo que las partes, en la
+escritura o exposición de compromiso, lo hayan elegido con
+conocimiento de causa y así lo expresen.

@@ -1,0 +1,11 @@
+ARTICULO 71.- Salvo el Presidente, los tres miembros del
+Consejo, que a su vez son funcionarios judiciales, deberán haber
+laborado para el Poder Judicial, como mínimo durante cinco años.
+Dos de ellos serán escogidos entre los funcionarios que
+administren justicia y los demás abogados que trabajan en el
+Poder Judicial. El otro, entre los restantes servidores
+judiciales. Para elegir a este último, la Corte solicitará a
+todas las organizaciones de empleados del Poder Judicial, el
+envío de una lista de cinco candidatos.
+El abogado externo deberá tener experiencia profesional como
+litigante, no menor de diez años.

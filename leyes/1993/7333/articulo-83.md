@@ -1,0 +1,8 @@
+ARTICULO 83.- Sin perjuicio del derecho de avocamiento de la
+Corte Suprema de Justicia, cuando el Consejo resuelva aspectos de
+carácter administrativo, su pronunciamiento agota la vía
+administrativa y solo tendrá recurso de reconsideración, que
+deberá ser interpuesto por el interesado dentro del plazo de tres
+días, a partir del día siguiente al de su notificación. En este
+último caso, el Consejo podrá disponer la suspensión del acto que
+pueda causar daño o perjuicio de imposible o difícil reparación.

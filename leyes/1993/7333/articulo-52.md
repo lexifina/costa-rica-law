@@ -1,0 +1,9 @@
+ARTICULO 52.- Salvo excepción expresa en contrario, para que
+las Salas puedan ejercer sus funciones se requiere de la
+concurrencia de todos sus miembros.
+Cada Sala elegirá a uno de sus miembros como Presidente, con
+las facultades y deberes que esta Ley establece. En los casos de
+separación del Presidente, o cuando no formara parte del tribunal
+por cualquier causa, el Magistrado que corresponda ejercerá la
+Presidencia, de conformidad con el artículo 32, inciso 1) de esta
+Ley.

@@ -1,0 +1,22 @@
+ARTICULO 19.- Deben rendir caución para el ejercicio de sus
+cargos, los Magistrados, los miembros del Consejo Superior del
+Poder Judicial, los jueces superiores de casación, los jueces
+superiores, el Fiscal General y el Fiscal General Adjunto, por
+quinientos mil colones; el Auditor, el Director Ejecutivo, el
+Subdirector Ejecutivo, el Jefe y el Subjefe de los Departamentos
+Financiero Contable y la Proveeduría Judicial, por un millón de
+colones; los jueces, por trescientos mil colones y todos los
+demás funcionarios del Poder Judicial que, por ley, deban rendir
+garantía, por doscientos mil colones. Esta disposición no
+comprende a los suplentes ni interinos que sustituyan a un
+funcionario judicial por un tiempo menor de tres meses.
+En caso de traslado o permuta de funcionarios de la misma
+categoría, las cauciones rendidas serán válidas para los nuevos
+cargos, sin perjuicio de que se ordene completarlas, si fuere
+necesario. En el documento respectivo, se hará constar que el
+garante consiente en que si el funcionario se traslada al
+desempeño de otro cargo de igual categoría, se tenga por
+subsistente la garantía para el nuevo puesto. El Consejo podrá
+variar esos montos cuando cambien las condiciones económicas que
+los determinaron, para lo cual se solicitará un informe sobre el
+índice inflacionario al Banco Central de Costa Rica.

@@ -1,0 +1,28 @@
+ARTICULO 231.- Para el cómputo del tiempo servido, no es
+necesario que los servidores del Poder Judicial hayan servido en
+él consecutivamente ni en puestos de igual categoría. Se tomarán
+en cuenta también los años de trabajo remunerado que se hubiesen
+servido en otras dependencias o instituciones públicas estatales,
+debiendo haber servido al Poder Judicial los últimos cinco años.
+Sin embargo, en estos casos se aplicarán las siguientes reglas:
+si el interesado había cotizado en otros regímenes de pensiones,
+establecidos por otra dependencia o por otra institución del
+Estado, el Poder Judicial tendrá derecho a exigir -y la
+respectiva institución o dependencia estará obligada a girar- que
+el monto de esas cotizaciones sea trasladado al Fondo de
+Jubilaciones y Pensiones del Poder Judicial. Este traslado
+incluye también las sumas depositadas para efecto de la pensión
+del interesado por el Estado. En el caso de que no hubiese
+existido esa cotización o que lo cotizado por el interesado y por
+el Estado no alcanzare el monto correspondiente establecido para
+el Fondo de Pensiones y Jubilaciones del Poder Judicial, el
+interesado deberá reintegrar a este Fondo la suma adeudada que,
+en todos los casos, incluye las cuotas del Estado.
+Para esos casos, el Consejo Superior del Poder Judicial dará
+las facilidades necesarias, deduciendo una suma no mayor de un
+diez por ciento del sueldo, jubilación o pensión cualquiera que
+sea el número de años servidos en el Poder Judicial. En cuanto a
+la prueba para la debida comprobación de los servicios prestados
+será admisible todo medio de prueba y en cuanto a su interpre-
+tación se aplicará por analogía el principio in dubio pro
+operario.

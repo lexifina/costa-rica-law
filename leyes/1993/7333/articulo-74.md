@@ -1,0 +1,8 @@
+ARTICULO 74.- A quien haya sido designado miembro del
+Consejo Superior y ocupe algún cargo dentro del Poder Judicial,
+se le suspenderá en el ejercicio de este último, pero conservará
+el derecho de reintegrarse a ese puesto, con el salario que
+corresponda a tal cargo, una vez que termine en sus funciones
+como miembro del Consejo. Todo ello siempre que no hubiere
+vencido el período para el que fue nombrado en ese otro puesto o
+no hubiere sido reelecto en él, o que no hubiere sido despedido.

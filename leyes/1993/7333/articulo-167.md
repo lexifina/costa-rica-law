@@ -1,0 +1,5 @@
+ARTICULO 167.- Los fallos y demás resoluciones serán
+ejecutados por el tribunal de primera instancia que falle el
+asunto. Tratándose de tribunales penales, la sentencia se
+ejecutará por el mismo tribunal, siempre que la misma condene a
+suma líquida.

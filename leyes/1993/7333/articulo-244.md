@@ -1,0 +1,17 @@
+ARTICULO 244.- Aunque sean abogados, no podrán ejercer la
+profesión los servidores propietarios de los Poderes Ejecutivo y
+Judicial, del Tribunal Supremo de Elecciones, de la Contraloría
+General de la República, de la Procuraduría General de la
+República y de las municipalidades, salvo en sus propios negocios
+y en los de sus cónyuges, ascendientes o descendientes, hermanos,
+suegros, yernos y cuñados.
+Se exceptúan de la prohibición anterior los servidores del
+Poder Ejecutivo que presten servicios en los establecimientos
+oficiales de enseñanza y que no tengan ninguna otra
+incompatibilidad; lo mismo que los servidores judiciales
+interinos o suplentes, siempre que ese interinato no exceda de
+tres meses; los fiscales específicos; los munícipes y apoderados
+municipales; el Director de la Revista Judicial; los defensores
+públicos de medio tiempo y los que sean retribuidos por el
+sistema de honorarios y, en general, todos los servidores que no
+devenguen sueldo sino dietas.

@@ -1,0 +1,18 @@
+ARTICULO 29.- Cuando por impedimento, recusación, excusa u
+otro motivo, un servidor tenga que separarse del conocimiento de
+un asunto determinado, su falta será suplida del modo siguiente:
+1.- Si se trata de un juez o de un alcalde, lo suplirá otro
+del mismo lugar y de la misma materia, por orden numérico y en
+rotación. Si ninguno de los de la misma materia pudiere conocer,
+tocará hacerlo a los de las otras materias, en la forma que esta-
+blezca el Presidente de la Corte. Si tampoco estos pudieren
+conocer, serán llamados los suplentes respectivos y si ni aún
+estos pudieren hacerlo, el Consejo Superior del Poder Judicial
+nombrará un suplente.
+2.- Los Magistrados y los miembros de los tribunales
+colegiados, por los suplentes llamados al efecto, salvo lo
+dispuesto en el artículo 31 de esta Ley, cuando fuere aplicable.
+3.- Los demás servidores serán suplidos por otros del mismo
+despacho y de igual categoría; si no los hubiere, por el
+inmediato inferior y a falta de estos, se designará un servidor
+para el caso.

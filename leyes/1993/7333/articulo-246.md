@@ -1,0 +1,6 @@
+ARTICULO 246.- El Colegio de Abogados informará a la
+Secretaría del Consejo Superior del Poder Judicial de las
+inscripciones de los licenciados en Derecho, a fin de anotarlos
+en los catálogos respectivos y publicar sus nombres en el Boletín
+Judicial, para que todas las autoridades judiciales tengan
+conocimiento de ello.

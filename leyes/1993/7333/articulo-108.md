@@ -1,0 +1,15 @@
+ARTICULO 108.- Los Juzgados de Instrucción tendrán a su
+cargo los asuntos de instrucción formal y también los de
+competencia de los juzgados penales, en que deba procederse por
+instrucción. Deberán, además, cumplir las funciones que les
+corresponden en el procedimiento de citación directa y en otros
+casos que la ley determine.
+Podrán actuar fuera de su territorio, en casos especiales,
+ya sea porque los hechos han ocurrido en una circunscripción
+cercana o por la conveniencia de practicar determinados actos en
+forma personal o de hacerlo con prontitud, según las
+circunstancias, sin la demora que pudiere producirse al
+comisionar a otras autoridades.
+La Corte podrá designar juzgados de instrucción para que
+presten servicio luego de la jornada ordinaria, y en días de
+asueto y feriados.

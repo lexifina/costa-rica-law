@@ -1,0 +1,4 @@
+ARTICULO 24.- La extinción de la que se habla en el artículo
+21 se refiere únicamente a la garantía, pues la acción de
+responsabilidad contra el funcionario se rige por los términos
+ordinarios de la prescripción.

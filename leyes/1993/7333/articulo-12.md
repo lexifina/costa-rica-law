@@ -1,0 +1,26 @@
+ARTICULO 12.- Para ingresar al Servicio Judicial, además de
+los otros requisitos exigidos por ley, se requiere ser costa-
+rricense y estar capacitado, mental y físicamente, para el
+desempeño de la función, según la naturaleza de esta última.
+Sin embargo, no podrán ser nombrados los procesados con auto
+de elevación a juicio o de citación a juicio, los condenados por
+delito a pena de prisión; los que estuvieren sometidos a pena de
+inhabilitación para el desempeño de cargos u oficios públicos;
+los declarados judicialmente en estado de quiebra o insolvencia;
+los que habitualmente ingieran bebidas alcohólicas de forma
+excesiva y las personas que consuman drogas no autorizadas o
+tengan trastornos graves de conducta, de forma tal que puedan
+afectar el servicio; y los que hubieran sido destituidos de
+cargos judiciales, mientras no sean rehabilitados por el Consejo
+Superior del Poder Judicial.
+Tampoco podrá ingresar al Servicio Judicial una persona que
+sea cónyuge o que esté ligada por parentesco de consanguinidad o
+afinidad, en línea directa o colateral, hasta tercer grado
+inclusive, con un Magistrado y demás funcionarios que administran
+justicia; con los miembros del Consejo Superior del Poder
+Judicial; con los inspectores generales y asistentes; con el
+Secretario de la Corte; con el Fiscal General y el Fiscal General
+Adjunto y con el Jefe y Subjefe del Departamento de Defensores
+Públicos; con el Director y Subdirector del Organismo de
+Investigación Judicial; con el Director y Subdirector Ejecutivo;
+con el Auditor y el Jefe del Departamento de Personal.

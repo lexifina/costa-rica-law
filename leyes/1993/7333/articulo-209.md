@@ -1,0 +1,5 @@
+ARTICULO 209.- Siempre que se le imponga una suspensión
+mayor de ocho días o la revocatoria del nombramiento, el
+denunciado podrá apelar de la resolución final del Tribunal de la
+Inspección, dentro de los tres días siguientes al de la
+notificación. Su recurso será conocido por el Consejo Superior.

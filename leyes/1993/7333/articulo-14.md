@@ -1,0 +1,9 @@
+ARTICULO 14.- Cuando quedare vacante un puesto de
+administración de justicia, con la excepción del de Magistrado,
+para llenar la vacante en propiedad, la Corte o el Consejo deberá
+pedir al Consejo de la Judicatura que le envíe una terna
+constituida entre los funcionarios elegibles. Si abierto el
+concurso no se presentare ningún candidato, se seguirá el
+procedimiento establecido en la Ley de Carrera Judicial.
+Igual procedimiento se aplicará para hacer un nombramiento
+interino por más de tres meses.

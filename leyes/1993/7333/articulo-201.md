@@ -1,0 +1,4 @@
+ARTICULO 201.- En todo caso, el denunciado podrá nombrar
+defensor a su costo, o solicitar se le designe uno conforme a lo
+dispuesto en el artículo 152. El denunciado y su defensor tendrán
+libre acceso al expediente.

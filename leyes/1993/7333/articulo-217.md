@@ -1,0 +1,11 @@
+ARTICULO 217.- Si los actos a los que se refiere el artículo
+anterior, significaren ultraje u ofensa directa contra el
+funcionario o tribunal, éste podrá imponer también al culpable de
+cinco a quince días multa. Cabrá apelar esta resolución ante el
+superior, si se tratare de la de un juez, actuario, alcalde o
+agente fiscal. Si la multa fuere impuesta por la Corte Plena, una
+de las Salas o por un tribunal colegiado, o por el Consejo
+Superior, no cabrá más recurso que el de revocatoria.
+Cuando los hechos de que trata este artículo y el precedente
+llegaren a constituir delito o falta, su autor será puesto a la
+orden de la autoridad respectiva para su juzgamiento.

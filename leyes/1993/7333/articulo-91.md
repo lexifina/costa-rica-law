@@ -1,0 +1,11 @@
+ARTICULO 91.- En el caso de ausencia temporal del Auditor,
+sus funciones se recargarán en cualquier otro servidor de la
+Auditoría que tenga conocimientos contables, según lo disponga el
+Presidente del Consejo. Si la ausencia se prolongare por más de
+ocho días, el Consejo nombrará a un auditor interino.
+Los nombramientos que se realicen, de forma interina, podrán
+recaer en personas que no reúnan los requisitos establecidos en
+esta Ley, siempre que tales nombramientos no excedan de tres
+meses. Transcurrido este término, el Consejo deberá hacer el
+nombramiento de una persona que reúna los requisitos estableci-
+dos, previo concurso que convocará el Departamento de Personal.
