@@ -1,0 +1,18 @@
+II.—Disposiciones generales para los tipos de verificación documental o física.
+2.1- En ambos casos, sea el declarante la empresa o el agente aduanero, la presentación de los originales de las declaraciones aduaneras de zona franca y documentos adjuntos, debe hacerse a más tardar el día hábil siguiente de transmitida la DAZF, y con la anticipación suficiente para realizar la revisión física de las mercancías dentro de la jornada laboral.
+2.2- Le corresponde al funcionario aduanero destacado en la Aduana o Puesto Aduanero de Zona Franca, generar reportes diarios dirigidos a su jefe inmediato, respecto de aquellas DAZF, con tipo de verificación documental o física, cuyos documentos no hayan sido presentados dentro del plazo establecido en el punto 2.1 anterior y se encuentren pendientes de confirmar. Tales reportes deben detallar lo siguiente:
+· Nombre de empresa de zona franca
+· Tipo de transacción aduanera
+· Número de declaración
+· Fecha de aceptación
+· Fecha de presentación de la declaración física Esta tarea resulta fundamental para tomar las acciones preventivas o sancionatorias, que impidan mantener en el Sistema informático declaraciones transmitidas, a las que les correspondió verificación física o revisión documental, pendientes de finiquitar.
+2.3 Cuando el funcionario aduanero que tramita DAZF, en la aduana o en el puesto aduanero de zona franca, al realizar la comprobación del cumplimiento de la presentación de documentos declarados adjuntos a la DAZF, así como el análisis de la información declarada y debidamente confrontada con la transmitida, llegara a detectar incongruencias en la información de los documentos, o la ausencia de los mismos, deberá de conformidad con el artículo 98 de la Ley General de Aduanas, notificar al declarante y efectuar las correcciones y los ajustes correspondientes en la declaración aduanera y en el sistema informático, comunicando al jefe inmediato las discrepancias encontradas, mediante un reporte en el que se detalle al menos la siguiente información:
+· Nombre de empresa de zona franca
+· Tipo de transacción aduanera
+· Número de la DAZF y fecha de aceptación
+· Fecha de presentación al Puesto de Aduana
+· Documentos no presentados y/o
+· Descripción de incongruencias o errores en la información
+2.4- El funcionario encargado del puesto aduanero de zona franca deberá remitir, en los primeros cinco días de cada mes, al archivo central de la aduana las copias de las DAZF (y sus documentos adjuntos), tramitados durante el mes, mediante un reporte en el que se detalle por empresa de zona franca, los números de las DAZF, fecha y tipo de transacción. Tal y como se indicó en el punto A.3 anterior, los originales son custodiados por el declarante.
+2.5- Corresponde a la Sección de Supervisión del Departamento Técnico de la aduana dar seguimiento a los procesos efectuados a las declaraciones aduaneras en los puestos de zona franca y a su vez, efectuar con base en la información que éstos le remitan, los análisis e investigaciones que sean necesarios, a fin de determinar la posible comisión de irregularidades o delitos e iniciar los procedimientos administrativos que correspondan.
+2.6- Cuando no se cuente con el módulo informático de zonas francas, el reconocimiento físico de las mercancías, se efectuará de conformidad con los criterios generales y específicos vigentes para la selección de sujetos (exportadores, importadores y auxiliares de la función pública aduanera, que hayan sido determinados por el Gerente de la Aduana en coordinación con la División de Control y Fiscalización. Lo anterior, deberá quedar debidamente documentado y a disposición de la División de Control y Fiscalización, para cuando ésta lo requiera. San José, 24 de enero del 2005.
