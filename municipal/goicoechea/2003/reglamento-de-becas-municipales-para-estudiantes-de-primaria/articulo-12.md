@@ -1,0 +1,1 @@
+Artículo 12.—De la responsabilidad de la Municipalidad sobre becas para hijos de empleados municipales. La responsabilidad de la Municipalidad en cuanto a las becas para los hijos de los servidores municipales se restringe al estricto cumplimiento del porcentaje establecido en el artículo 37 de la Convención Colectiva y conforme a ese porcentaje se asignarán las becas.

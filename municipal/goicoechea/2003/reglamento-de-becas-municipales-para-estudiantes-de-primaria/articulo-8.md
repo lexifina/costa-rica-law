@@ -1,0 +1,1 @@
+Artículo 8º—Becas de secundaria y primaria. Serán los Concejos de Distrito los responsables de recomendar a la Comisión de Asuntos Sociales la asignación de becas correspondientes a primaria y secundaria, según la necesidad de cada distrito.

@@ -1,0 +1,1 @@
+Artículo 7º—De la asignación. Los Concejos de Distrito en pleno y de acuerdo a los estudios socioeconómicos pertinentes a este Reglamento y al perfil elaborado por la Comisión de Asuntos Sociales, recomendará los beneficiarios de las becas.
