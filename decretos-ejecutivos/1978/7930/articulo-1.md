@@ -1,4 +1,5 @@
 N° 7930- MEIC
+(NOTA: Mediante el artículo 21 del decreto ejecutivo N° 16999 del 5 de mayo de 1986, Reglamento para el tramite, concesión y control de las exoneraciones que se fundamentan en la Promoción de las Exportaciones (Leyes N° 5162 y N° 695), se indica, que se deroga este decreto en lo conducente)
 EL PRESIDENTE DE LÁ REPUBLICA
 Y EL MINISTRO DE ECONOMIA, INDUSTRIA Y COMERCIO,
 Con fundamento en los incisos 3) Y 18) del artículo 140 de la Constitución Política y en las leyes N° 5162 de 22 de diciembre de 1972, reformada por las leyes N° 5909 de 16 de junio de 1976 y N° 6075 de 26 de julio de 1977, y en la ley N° 6054 de 14 de junio de 1977,
