@@ -1,0 +1,1 @@
+II.-Los que hubieren prestado servicios al Ferrocarril Eléctrico al Pacífico, por espacio mayor de treinta y cinco años, cuya edad pase de sesenta años y carezcan de recursos para su subsistencia o hayan perdido su capacidad física para el trabajo, podrán reclamar una pensión equivalente a la tercera parte del sueldo o salario que devengaron el último mes servido.

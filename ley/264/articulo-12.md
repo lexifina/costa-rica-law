@@ -1,0 +1,1 @@
+Artículo 12.-No son susceptibles de embargo, ni podrán cederse, venderse, ni en forma alguna enajenarse, las pensiones que se otorguen conforme a esta ley. Tampoco lo serán las sumas que por concepto de bonificaciones reconozca la Junta.

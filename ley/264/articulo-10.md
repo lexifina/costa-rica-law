@@ -1,0 +1,2 @@
+Artículo 10.-Los empleados y obreros, y aun los jubilados y pensionados, contribuirán también para el pago de las pensiones referidas en esta ley. A los sueldos y salarios se les hará una rebaja mensual del 3 % a los que pasen de ¢ 200.00 Y del 2 % a los que no excedan de esa cantidad.
+A toda pensión se le hará una rebaja deI 5%. El producto de tales rebajas, engrosará el fondo del Tesoro Nacional.
