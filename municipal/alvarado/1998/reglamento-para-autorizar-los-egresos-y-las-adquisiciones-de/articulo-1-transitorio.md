@@ -1,0 +1,4 @@
+Transitorio: Durante el mes de octubre de 1998 y mientras no sea publicado el presente Reglamento se autoriza a la Alcalde Municipal girar contra la cuenta corriente de la Municipalidad de Alvarado, la suma de hasta trescientos mil colones, si ello fuere necesario para la adquisición de bienes y servicios.
+Rige a partir de su publicación.
+Por tanto, analizado el mismo, se acuerda: en forma unánime, 1° aumentar el monto designado en la sesión N° 14 del 20 de julio 1998, cap. V, art. 6° inciso A, aumentando el tope de montos para gastos fijos y la adquisición de bienes y servicios bajo la competencia de la Alcalde de la suma de doscientos setenta y cinco mil seiscientos colones (¢275.600,00) aumentándola a trescientos mil colones exactos (¢300.000,00). 2° Aprobar tal y como se presenta el modelo de reglamento. 3° Publíquese en el diario.
+Pacayas, 27 de noviembre de 1998.
