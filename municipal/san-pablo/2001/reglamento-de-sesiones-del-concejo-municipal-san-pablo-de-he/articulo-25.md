@@ -1,0 +1,2 @@
+Artículo 25.—Toda iniciativa tendiente a adoptar, reforzar, suspender o derogar disposiciones reglamentarias, debe ser presentada o acogida para su trámite por el Alcalde Municipal o alguno de los regidores.
+Salvo en el caso de reglamentos internos, el Concejo mandará a publicar el proyecto en La Gaceta, lo someterá a consulta pública no vinculante, por un plazo máximo de diez días hábiles, luego de lo cual quedará aprobado. Toda disposición tendiente a reformar o derogar algún reglamento, deberá ser publicada en La Gaceta y regirá a partir de su publicación.

@@ -1,0 +1,1 @@
+Artículo 30.—El Presidente del Concejo Municipal concederá el uso de la palabra en el orden en que se lo soliciten los concejales o síndicos, por un espacio máximo de 5 minutos por persona. En el caso de audiencias a munícipes, estos tendrán un tiempo máximo de 10 minutos para exponer el asunto que los ocupe.

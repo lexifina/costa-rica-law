@@ -1,0 +1,1 @@
+Artículo 37.—Tanto las comisiones permanentes como las especiales estarán integradas al menos por tres miembros, de los cuales, dos tendrán que ser regidores o síndicos propietarios o suplentes. Los funcionarios municipales y los particulares, podrán participar con carácter de asesores.

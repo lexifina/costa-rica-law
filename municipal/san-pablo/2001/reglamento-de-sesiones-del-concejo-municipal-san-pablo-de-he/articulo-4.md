@@ -1,0 +1,1 @@
+Artículo 4º—Las sesiones del Concejo Municipal deben efectuarse en el local sede de la Municipalidad. Sin embargo, podrán celebrarse sesiones en cualquier lugar del cantón, cuando vayan a tratar asuntos relativos a los intereses de los vecinos de la localidad.

@@ -1,0 +1,1 @@
+Artículo 40.—Los asuntos trasladados por el Concejo Municipal a las comisiones deberán resolverse en el término de ocho días, salvo situaciones especiales que requieran más tiempo, debiendo consignarse en los respectivos informes.

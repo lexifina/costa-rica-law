@@ -1,0 +1,1 @@
+Artículo 39.—Cada una de las comisiones, deberá llevar en estricto orden y limpieza un libro debidamente legalizado por la Auditoría Interna, en donde harán constar sucintamente las deliberaciones y resoluciones tomadas, el cual una vez finalizadas sus funciones, pasará a la nueva comisión para su continuidad.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+De las votaciones
+Artículo 32.—Al dar por discutido un asunto, el Presidente del Concejo Municipal dará un término prudencial para recibir la votación correspondiente procurando que esta se realice cuando todos los regidores presentes estén en el salón de sesiones. Los regidores o concejales deberán dar su voto necesariamente en sentido afirmativo y/o negativo. No caben las abstenciones. En aquellos casos en que se discuta o apruebe un asunto en el que tengan interés directo, su cónyuge o algún pariente hasta el tercer grado de consanguinidad, deberán acogerse al artículo 31 del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 17.—Todo regidor propietano o suplente con propiedad, presentará sus mociones y proposiciones por escrito y firmadas. El secretario anotará la hora y fecha en que fueron presentadas y serán conocidas en estricto orden de presentación salvo que se trate de mociones de orden.

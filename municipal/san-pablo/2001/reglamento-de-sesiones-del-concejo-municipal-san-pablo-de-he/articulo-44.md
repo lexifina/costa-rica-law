@@ -1,0 +1,1 @@
+Artículo 44.—El presente reglamento deroga cualquier otro reglamento o disposición reglamentaria o acuerdo municipal que se le oponga. Ante cualquier reforma al Código Municipal, este reglamento se ajustará a la misma modificación.

@@ -1,0 +1,1 @@
+Artículo 13.—Las sesiones del Concejo se desarrollarán con base al orden del día previamente elaborado, el cual podrá modificarse, alterarse mediante acuerdo aprobado por las dos terceras partes de la totalidad de los regidores propietarios presentes.

@@ -1,0 +1,1 @@
+Artículo 31.—El regidor que cede su tiempo debe haber solicitado de previo el uso de la palabra. El Presidente podrá pedir a los expositores que se concreten al punto en debate y en caso de renuncia podrá retirar el uso de la palabra. Este artículo se aplicará de igual forma al público que tenga audiencia.
