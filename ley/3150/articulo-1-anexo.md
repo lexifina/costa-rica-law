@@ -15,7 +15,7 @@ REGIMENES BILATERALES
 GUATEMALA-EL SALVADOR
 22.07 2208.90.10 | Alcohol etílico, esté o no desnaturalizado | Control de importación.
 GUATEMALA-HONDURAS
-0901.2 | Café tostado | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
+0901.2 | *Café tostado (Mediante resolución N° 04-2004 (CEIE) la cual fue aprobada mediante decreto ejecutivo N° 31924 del 13 de agosto de 2004, se resuelve Incorporar al libre comercio en las relaciones bilaterales entre Honduras y Guatemala el Café tostado, fracción arancelaria 0901.2 y por tanto eliminar dicha limitación del Anexo “A” del Tratado General de Integración Económica Centroamericana.) | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 22.08 | Bebidas alcohólicas destiladas | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 27.10 27.12 27.13 27.15 | Productos derivados del petróleo. Se exceptúan los solventes minerales, comprendidos en la subpartida 2710.11 y el asfalto de la subpartida 2713.20.00 (betún de petróleo) los cuales gozarán de libre comercio entre los estados Parte. | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 GUATEMALA-NICARAGUA
@@ -24,7 +24,7 @@ GUATEMALA-COSTA RICA
 0901.2 | Café tostado | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 22.07 2208.90.10 | Alcohol etílico esté o no desnaturalizado | Control de importación
 EL SALVADOR-HONDURAS
-0901.2 | Café tostado | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
+0901.2 | *Café tostado (Mediante resolución N° 04-2004 (CEIE) la cual fue aprobada mediante decreto ejecutivo N° 31924 del 13 de agosto de 2004, se resuelve Incorporar al libre comercio en las relaciones bilaterales entre Honduras y El Salvador el Café tostado, fracción arancelaria 0901.2 y por tanto eliminar dicha limitación del Anexo “A” del Tratado General de Integración Económica Centroamericana.) | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 22.07 2208.90.10 | Alcohol etílico esté o no desnaturalizado | Control de importación
 22.08 excepto 2208.90.10 | Bebidas alcohólicas destiladas | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
 27.10 27.12 27.13 27.15 | Productos derivados del petróleo. Se exceptúan los solventes minerales, comprendidos en la supartida 2710.11 y el asfalto de la subpartida 2713.20.00 (betún de petróleo) los cuales gozarán de libre comercio entre los estados Parte. | El intercambio estará sujeto al pago de los derechos arancelarios a la importación.
