@@ -1,0 +1,1 @@
+Artículo 23.-En caso de negarse el recurso de revocatoria y así haberse solicitado, pasará el expediente en alzada a la asamblea general. La que resolverá finalmente en la asamblea general extraordinaria.

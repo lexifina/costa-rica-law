@@ -1,0 +1,1 @@
+Artículo 17.-La aplicación del artículo anterior se hará en orden descendente según el grado de infracción del colegiado a juicio del Tribunal de Ética, nombrado para tal efecto como lo dispone la Ley Orgánica del Colegio.

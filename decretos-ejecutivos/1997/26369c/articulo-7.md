@@ -1,0 +1,1 @@
+Artículo 7°-Cuando un miembro del Colegio observe que sus empleadores o cualquier otra persona no cumple con las leyes, los reglamentos o disposiciones del Colegio, debe hacerlo de conocimiento de la fiscalía del Colegio con el objeto de que se trate de remediar el problema. Lo anterior es en materia de salarios, condiciones de trabajo inadecuadas, peligrosas o insalubres.
