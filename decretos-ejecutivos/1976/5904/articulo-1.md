@@ -706,6 +706,8 @@ b) El caserío de Mojoncito no es parte de esta reserva, sino de la Reserva Ind�
 14. | Sepecue (Sepecwe).
 15. | Mojoncito.
 (*) (Así adicionado el párrafo anterior por el artículo 3° del decreto ejecutivo N° 16307 del 16 de mayo de 1985)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 16571 del 25 de setiembre de 1985, se indicó que las áreas correspondientes al Parque Nacional La Amistad (Parque Nacional Cordillera de Talamanca) y a la Reserva Biológica de Hitoy, que fueron incluidas en la demarcación de las reservas indígenas Cabécar de Talamanca, Bribrí de Talamanca y Cabécar de Telire permanecerán bajo el régimen de Parques Nacionales hasta que la Asamblea Legislativa apruebe el proyecto de ley, presentado por el Servicio de Parques Nacionales y la CONAI, por el cual estas áreas se segregarán definitivamente de los mencionados parques y se incluirán en las reservas indígenas citadas.
+Conforme con la legislación existente, estas áreas siguen siendo parques nacionales hasta la publicación de la ley referida.)
 RESERVA INDÍGENA DE CHASE
 Partiendo de un punto en el río Sixaola, coordenadas N 393 850 E 586 450, se continúa con los siguientes rumbos, distancias y coordenadas:
 N 37 18 W | 1 320.04 | 394 900 | 585 650
@@ -776,6 +778,8 @@ Superficie de la Reserva Indígena Cabécar de Telire: 16 260 hectáreas.
 2. Telire Bley (Tälire Bley), situado al este del primero y al norte de los ríos Chiquei (Xiqey) y Quei (Tqey); incluye al poblado de Rangalle (Bicäläfitey).
 3. Telire Tqey, situado al sur de los ríos Chiquei (Xiqey) y Quei (Tqey).
 (Así adicionado el párrafo anterior referente a los caseríos de la Reserva Indígena Cabécar de Telire por el artículo 3° del decreto ejecutivo N° 16308 del 16 de mayo de 1985)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 16571 del 25 de setiembre de 1985, se indicó que las áreas correspondientes al Parque Nacional La Amistad (Parque Nacional Cordillera de Talamanca) y a la Reserva Biológica de Hitoy, que fueron incluidas en la demarcación de las reservas indígenas Cabécar de Talamanca, Bribrí de Talamanca y Cabécar de Telire permanecerán bajo el régimen de Parques Nacionales hasta que la Asamblea Legislativa apruebe el proyecto de ley, presentado por el Servicio de Parques Nacionales y la CONAI, por el cual estas áreas se segregarán definitivamente de los mencionados parques y se incluirán en las reservas indígenas citadas.
+Conforme con la legislación existente, estas áreas siguen siendo parques nacionales hasta la publicación de la ley referida.)
 Establécese la Reserva Indígena de Nimari-Bukeri:
 RESERVA INDÍGENA DE NIMARI-BUKERI
 La Reserva Indígena de Nimari-Bukeri se encuentra en las hojas del Instituto Geográfico Nacional, escala 1: 50 000, Barbilla 3545 IB y Tucurrique 3445 I y se localiza por los puntos cuyos rumbos, distancias y coordenadas son:
