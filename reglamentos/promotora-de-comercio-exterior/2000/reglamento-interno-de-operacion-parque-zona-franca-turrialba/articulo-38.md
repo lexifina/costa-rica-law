@@ -1,0 +1,1 @@
+Artículo 38.—Servicios Sanitarios y Lockers. Las Empresas deberán tener en sus instalaciones servicios sanitarios para su personal en el número y con las condiciones que establecen los requerimientos respectivos. Asimismo, deberán dotar de lockers a sus empleados para que guarden durante las horas de trabajo sus efectos personales que no empleen en las mismas.

@@ -1,0 +1,3 @@
+CAPITULO V
+Servicios del Parque
+Artículo 28.—Servicios Básicos. El Parque cuenta con todos los servicios básicos de infraestructura tales como la red de alcantarillado sanitario, tratamiento de aguas negras, alcantarillado pluvial y el servicio de hidrantes contra incendio que serán directamente administrados por el Parque, quien es el responsable de su adecuado mantenimiento. El Parque también cuenta con red de agua potable; el servicios de energía eléctrica primaria y secundaria (provista por ICE); servicio de alumbrado público, red telefónica (administrado por el ICE) así como con toda la estructura vial y de áreas para vehículos y personas respectivamente.

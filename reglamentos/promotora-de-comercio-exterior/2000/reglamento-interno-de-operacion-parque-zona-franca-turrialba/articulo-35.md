@@ -1,0 +1,3 @@
+CAPITULO X
+Protección del Medio Ambiente y la Salud
+Artículo 35.—Autorización del Ministerio de Salud. Toda persona física o jurídica que desee establecerse en el Parque, deberá obtener la correspondiente autorización del Ministerio de Salud, para su instalación y su posterior funcionamiento. Asimismo deberá obtener la correspondiente autorización del Ministerio de Salud, para modificar en cualquier forma la actividad originalmente aprobada así como, en caso necesario, obtener cualesquiera otras autorizaciones necesarias para el desempeño de sus actividades, expedidas por las autoridades reguladoras.

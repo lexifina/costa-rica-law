@@ -1,0 +1,1 @@
+Artículo 44.—De la co-responsabilidad de los ejecutivos. Es obligación de los ejecutivos de las Empresas, trabajadores o vigilantes, denunciar a la Administración del Parque, cualquier anomalía que en este sentido note o detecte, en beneficio de la buena marcha de las Empresas, del prestigio de ellas y del parque y especialmente del cumplimiento de las normas legales respectivas.

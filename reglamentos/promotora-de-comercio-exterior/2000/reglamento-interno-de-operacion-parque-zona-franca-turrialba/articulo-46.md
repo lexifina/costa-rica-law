@@ -1,0 +1,3 @@
+CAPITULO XIII
+Area Recreativa y Centro Infantil
+Artículo 46.—La Administración cuenta con un Área Recreativa para uso de todas las Empresas del Parque. Para hacer uso de las mismas deberá enviar un fax a la Administración indicando fecha y hora en que desean utilizarlas. La Administración se encarga de enviar el fax con el visto bueno y llevar un horario. Además, la Administración del Parque proporcionará las instalaciones del Centro Infantil el cual será administrado por ella misma y lo pondrá a disposición de los empleados de las empresas beneficiarias del Régimen de Zona Franca, de igual forma proporcionará un local y lo mantendrá en buenas condiciones, para que los trabajadores de esas empresas realicen reuniones y asambleas.

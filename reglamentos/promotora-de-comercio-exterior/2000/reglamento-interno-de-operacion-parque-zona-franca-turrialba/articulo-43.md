@@ -1,0 +1,1 @@
+Artículo 43.—Normas de trabajo y seguridad. Las Empresas están obligadas a cumplir con todas las normas legales y reglamentarias relativas a la seguridad e higiene del trabajo, con el objeto de fortalecer al máximo las relaciones obrero-patronales. En especial, están obligadas a cubrir a sus empleados con los seguros y otras obligaciones que ordena nuestra legislación laboral.
