@@ -1,0 +1,1 @@
+Artículo 2°─ Con el fin indicado se permite el uso de un lote de terreno al extremo occidental de la Sabana y al lado norte del Bosque de los Niños, y que tendrá como extensión máxima 200 metros de Este a Oeste.
