@@ -1,4 +1,7 @@
-CAPITULO VI
-Sanciones
-Artículo 74.—Aplicación de sanciones. En caso de determinarse un incumplimiento dentro de un procedimiento de contratación por parte del contratista, se respetará el debido proceso para su determinación, debiéndose registrar dicho incumplimiento para ser valorado en futuras contrataciones requeridas por Correos de Costa Rica. El registro de sanciones será responsabilidad del Departamento de Compras y Contrataciones.
-A partir de la firmeza de la incorporación del incumplimiento por parte del contratista la sanción permanecerá por un espacio de seis meses a un año a criterio de la Comisión de Contrataciones, período durante el cual Correos de Costa Rica no realizará contrataciones con la empresa incumpliente.
+SECCIÓN VII
+De los recursos
+Artículo Nº 74.—Supuestos. Contra los actos de adjudicación de la Junta y la Gerencia General, solo cabrá el recurso de revocatoria, además de los extraordinarios de adición y aclaración.
+Lo resuelto en definitiva por la Junta de Correos en materia de contratación general, tendrá recurso para ante la Contraloría General de la República, en los casos en que conforme a lo dispuesto por la normativa de fiscalización resulte procedente.
+Cuando el procedimiento estuviere conformado por líneas independientes, Correos continuará con la tramitación de los renglones no recurridos.
+(Así reformado por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002)
+(Así modificada su numeración por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002, que lo pasó del 70 al 74)

@@ -1,6 +1,3 @@
-CAPITULO VII
-Los controles
-Artículo 76.—Control. El Departamento de Compras y Contrataciones será el encargado del control del cumplimiento de las obligaciones asumidas por los contratistas.
-El Departamento de Compras y Contrataciones efectuará los actos de verificación necesarios para establecer que Correos de Costa Rica reciba los bienes, obras o servicios dentro de las condiciones de calidad, plazo y demás estipulaciones acordadas.
-El presente reglamento fue aprobado por parte de la Junta Directiva de Correos de Costa Rica. Sociedad Anónima por medio del acuerdo número trescientos noventa y tres, tomado en la sesión extraordinaria número sesenta y nueve, celebrada el treinta y uno de mayo de mil novecientos noventa y nueve.
-Este reglamento rige a partir de su publicación.
+Artículo Nº 76.—De la audiencia al adjudicado. Correos una vez admitido el recurso, dará audiencia al adjudicado, para que este en el plazo de dos días hábiles se refiera al mismo.
+(Así reformado por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002)
+(Así modificada su numeración por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002, que lo pasó del 72 al 76)

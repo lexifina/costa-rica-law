@@ -1,2 +1,3 @@
-Artículo 64.—Contratos con entes de derecho público. Con entes de derecho público independientemente de su naturaleza jurídica. Correos de Costa Rica podrá celebrar contrataciones sin sujeción a los procedimientos de contratación.
-En sus relaciones contractuales deberán observar el equilibrio y la razonabilidad entre las respectivas prestaciones.
+Artículo Nº 64.—De la Adjudicación. Una vez que se ha cumplido con todo el proceso de contratación, el expediente será remitido a la Gerencia General, la cual procederá con su adjudicación.
+En caso de que la Gerencia General considerarse necesario anular el proceso, esta deberá estar debidamente razonado y justificado.
+(Así adicionado por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002)

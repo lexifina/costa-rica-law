@@ -1,5 +1,12 @@
-SECCIÓN IV
-Contratación excepcional
-Artículo 62.—Alcances. Los tipos de contratación que a continuación se desarrollan, podrán ser objeto de negociación directa entre Correos de Costa Rica y el proveedor respectivo, cuando sea el único medio de satisfacer el interés de la actividad postal.
-Son tipos de contratación excepcional: la actividad ordinaria de Correos de Costa Rica. la contratación con entes de derecho público, los acuerdos con sujetos de derecho público internacional, las actividades que por su. naturaleza y circunstancias no estén sujetas a concurso, las contrataciones realizadas por oficinas en el exterior, la exclusión por ley o por tratado internacional, la contratación por caja chica, y la contratación autorizada por parte de la Junta Directiva de Correos de Costa Rica, en cuyo caso deberá dictarse una resolución debidamente motivada y se dejará constancia expresa en el expediente que al efecto se levante.
-La determinación de la aplicación de la contratación excepcional compete a la Junta Directiva de Correos de Costa Rica. salvo situaciones de fuerza mayor o caso fortuito, en que podrá ser aprobada por la Gerencia General. En todo caso deberá dictarse una resolución debidamente motivada y se dejara constancia expresa en el expediente que al efecto se levante. Esta última disposición no se aplicará a las compras realizadas por caja chica, reguladas en el presente reglamento.
+Artículo Nº 62.—Contratación por concurso. Mediante este procedimiento el Departamento de Compras y Contrataciones invitará a cotizar a un mínimo de tres proveedores del Registro vigente, en caso de no existir proveedor, podrá buscarlo por otros medios y facultativamente dependiendo del objeto a contratar, se podrá realizar invitación a través de algún medio de comunicación nacional.
+Se les cursará una invitación la cual contendrá como mínimo la siguiente información:
+a) Descripción del objeto a contratar.
+b) Plazo de recepción de la oferta.
+c) Vigencia de la oferta.
+d) Garantía del objeto ofrecido.
+e) Plazo de entrega
+f) Y cualquier otra que Correos considere necesaria
+Vencido el plazo indicado en la invitación se procederá con la formulación del cuadro comparativo de las ofertas recibidas. Cuando el monto de la contratación se estime en más de tres millones de colones, deberá complementarse el cuadro anterior con de factores de valoración establecidos previamente por la Unidad solicitante.
+Cuando involucre un monto superior a un millón de colones, la oferta deberá presentarse en sobre cerrado, la apertura deberá ser registrada en un acta que se levante al efecto, que será suscrita por el Jefe de Compras y Contrataciones y un Asesor del Departamento Legal.
+Además de los proveedores invitados podrán participar en el procedimiento de contratación cualquier otro proveedor interesado, siempre y cuando formalice su inscripción en el Registro de Proveedores de Correos.
+(Así adicionado por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002)

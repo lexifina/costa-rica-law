@@ -14,3 +14,4 @@ Reglamento de Contratación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-09 | la propia norma |
+| 2 | 2002-10-14 | Reglamento 361 (2002-10-14) |

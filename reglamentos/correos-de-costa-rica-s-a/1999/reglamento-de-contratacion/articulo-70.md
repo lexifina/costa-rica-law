@@ -1,5 +1,2 @@
-SECCIÓN VII
-De los recursos
-Artículo 70.—Supuestos. Contra las decisiones de la Junta Directiva y la Gerencia General solo cabra el recurso de revocatoria, además de los extraordinarios de adición y aclaración.
-Lo resuelto en definitiva por la Junta Directiva de Correos de Costa Rica, S. A., en materia de contratación general, tendrá recurso para ante la Contraloría General de la República, en los casos en que conforme a los dispuesto por la normativa de fiscalización resulta procedente.
-Cuando el procedimiento estuviere conformado por líneas independientes. Correos de Costa Rica continuará con la tramitación de los renglones no apelados.
+Artículo 70.—Exclusión de contrataciones realizadas por oficinas en el exterior. Las contrataciones que tienen por objeto la construcción, la instalación o la provisión de oficinas y servicios en el exterior, podrán celebrarse sin sujeción a los procedimientos ordinarios de contratación, pero Correos de Costa Rica deberá procurar que el contratista sea idóneo y garantice el fiel cumplimiento de sus obligaciones contractuales. La adjudicación definitiva de estas contrataciones deberá hacerse por la Junta Directiva.
+(Así modificada su numeración por acuerdo tomado en sesión N° 361 de 14 de octubre del 2002, que lo pasó del 66 al 70)
