@@ -1,1 +1,1 @@
-Artículo 70.-La omisión del informe a que se refiere el. artículo 52 hará incurrir al omiso en una multa de cien a quinientos colones. Un informe engañoso o maliciosamente inexacto es motivo bastante para cancelar la autorización de la Compañía.
+Artículo 70.-(Derogado por el artículo único de la Ley N° 2 del 19 de setiembre de 1940).

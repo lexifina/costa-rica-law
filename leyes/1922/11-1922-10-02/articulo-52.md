@@ -1,1 +1,1 @@
-Artículo 52.-Las Compañías de Seguros están obligadas a presentar al Superintendente de Seguros, informe mensual de todas las operaciones efectuadas en Costa Rica en el último mes, con expresión detallada de las cantidades aseguradas, primas recibidas, seguros pagados, siniestros acaecidos y nombres, apellidos y domicilio de los asegurados que hayan intervenido en las operaciones a que el informe se contrae.
+Artículo 52.-(Derogado por el artículo único de la Ley N° 2 del 19 de setiembre de 1940).
