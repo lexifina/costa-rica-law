@@ -1,0 +1,1 @@
+Artículo 6°-EI Instituto Mixto de Ayuda Social y las demás Instituciones integrantes de la COTIN celebrarán convenios interinstitucionales, con el propósito establecer el marco de obligaciones que asumirá cada Institución en el Programa Hogares Comunitarios.

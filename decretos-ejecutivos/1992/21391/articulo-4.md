@@ -1,0 +1,1 @@
+Artículo 4°-La organización y ejecución del Programa se dará con la participación de las asociaciones y otras entidades de apoyo de la comunidad legalmente constituidas, para lo cual se deberán promulgar los reglamentos, convenios y manuales de procedimiento respectivos, que permitan establecer los modelos técnicos de acción del Programa.
