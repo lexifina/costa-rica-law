@@ -1,0 +1,2 @@
+N° 2374
+Artículo 1º.- En tanto no existan servicios establecidos para abastecer adecuadamente y en condiciones económicas satisfactorias las necesidades de energía eléctrica de las zonas fronterizas de la República por parte de las plantas generadoras localizadas en el territorio nacional, se exonera del pago de los impuestos que señala la partida nauca 315-01-00 del Arancel de Aduanas el suministro gratuito a los trabajadores del fluido eléctrico generado fuera del país.
