@@ -1,0 +1,3 @@
+Artículo 2°—Agréguese un artículo 8 bis al Decreto Ejecutivo N° 27763-MAG del 10 de marzo de 1999 que se leerá de la siguiente forma:
+"Articulo 8° bis - Todos los montos de los servicios estipulados quedarán sujetos a un aumento anual a partir del 1° de febrero de cada año que será cobrado y calculado automáticamente con base en valor del índice de precios al consumidor del año anterior.
+El listado de las tarifas actualizadas y correspondientes al año de su vigencia serán dadas a conocer a los usuarios de los servicios a través de las Cajas Recaudadoras de las diferentes instancias administrativas agencias de Servicios Agropecuarios del Ministerio de Agricultura y Ganadería."
