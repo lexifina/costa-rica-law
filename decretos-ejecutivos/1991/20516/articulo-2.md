@@ -1,0 +1,1 @@
+Artículo 2°.- Este parque nacional será administrado por el Servicio de Parques Nacionales rigiendo en él las prohibiciones y disposiciones establecidas en la Ley Número 6084 del 24 de agosto de 1977.
