@@ -1,0 +1,1 @@
+Art 6° Cuando por enfermedad u otra causa, se aumente el gasto presupuestado para cubrir el sueldo del sustituto, la diferencia se ordenará precisamente sobre la partida de gastos extraordinarios presupuestados en el Departamento respectivo.
