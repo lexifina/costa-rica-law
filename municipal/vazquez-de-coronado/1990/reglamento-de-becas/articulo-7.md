@@ -1,0 +1,1 @@
+Artículo 7°.- El becario deberá presentar semestralmente la tarjeta de calificación ante los miembros de la Comisión de Educación municipal, para que esta a su vez informe a la Municipalidad lo que corresponda.

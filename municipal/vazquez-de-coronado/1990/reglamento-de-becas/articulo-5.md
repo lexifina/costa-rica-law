@@ -1,0 +1,1 @@
+Artículo 5°.- Las becas deberán ser solicitadas por los interesados antes del 15 de enero; las mismas serán aprobadas por parte de los señores regidores previo estudio y recomendación de la Comisión de Educación de la Municipalidad, o cualquier otra que para el efecto se nombre; y resueltas 15 días antes de iniciar el curso lectivo en los centros de enseñanza.

@@ -1,0 +1,1 @@
+Artículo 10.- El monto de la beca o fijara la Comisión de educación en coordinación con la omisión que estudia el presupuesto de cada año. Este deberá ser aprobado por el Concejo, junto con a nómina de becados.

@@ -1,0 +1,1 @@
+Artículo 2°.- El presente reglamento regula la concesión de becas y ayudas económicas que la Municipalidad de Vázquez de Coronado podrá otorgar a jóvenes que desean estudiar una carrera académica o de formación profesional.
