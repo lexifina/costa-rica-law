@@ -14,3 +14,4 @@ Reglamento que norma las actividades relacionadas con la venta de licores finos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-04-18 | la propia norma |
+| 2 | 2000-08-09 | Reglamento 2206 (2000-08-09) |
