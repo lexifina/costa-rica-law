@@ -1,0 +1,1 @@
+Art. 2°-Los Gobernadores, de acuerdo con los Inspectores de escuelas, designarán los individuos deben componer los tribunales de exámenes, quienes gozarán de las dietas que los municipios les asignen. Estos tribunales serán presididos por los mismos Gobernadores y en su defecto por los Inspectores de escuelas.
