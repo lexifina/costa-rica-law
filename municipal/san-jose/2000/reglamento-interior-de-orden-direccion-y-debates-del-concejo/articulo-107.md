@@ -1,0 +1,1 @@
+Artículo 107.—La Comisión de Festejos Populares será integrada por el Concejo Municipal en el mes de junio de cada año, de acuerdo con lo dispuesto en el artículo treinta y uno inciso d), del Código Municipal, y la Ley No cuatro mil doscientos ochenta y seis, de las Comisiones de Festejos Populares.

@@ -1,0 +1,1 @@
+Artículo 61.—Los funcionarios municipales, el Alcalde, los asesores del Concejo y los vecinos del cantón, podrán participar, en calidad de asesores, sin derecho a voto, en las comisiones permanentes o especiales.

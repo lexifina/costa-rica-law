@@ -1,0 +1,1 @@
+Artículo 85.—En todo lo no previsto en este Reglamento, en lo que deberes y atribuciones de los miembros de Comisión se refiere, se aplicará en lo conducente, lo dispuesto en este Reglamento, para el normal desempeño de las sesiones en el Plenario Municipal.

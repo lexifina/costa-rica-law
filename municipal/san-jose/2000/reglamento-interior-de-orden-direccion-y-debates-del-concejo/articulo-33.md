@@ -1,0 +1,2 @@
+Artículo 33.—Cuando se presente una moción con dispensa de trámite de comisión, sólo podrá hacer uso de la palabra para argumentar sobre la solicitud de dispensa de dicho trámite, el regidor proponente, durante un período máximo de cinco minutos. Acto seguido la Presidencia someterá a votación dicha dispensa, la que requerirá para su aprobación de mayoría calificada.
+Aprobada la dispensa de trámite, el Presidente pondrá a discusión el asunto, por el fondo, pudiendo hacer uso de la palabra para referirse al asunto todos los miembros del Concejo, los síndicos y el Alcalde.
