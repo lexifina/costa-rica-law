@@ -1,1 +1,2 @@
-Artículo 14.—El Consejo Directivo nombrará en la sesión de su instalación un presidente, dos vicepresidentes, un secretario y un tesorero por un periodo de dos años, pudiendo ser reelectos. Dicha elección deberá llevarse a cabo en el mes de octubre de cada año.
+Artículo 14.—En caso de fallecimiento, de renuncia, de impedimento absoluto o de tres ausencias consecutivas injustificadas o cinco alternas de un miembro del Consejo Directivo, en un periodo de seis meses, será comunicado el Concejo Municipal que representa a fin de proceder a designar el sustituto.
+(Así corrida su numeración en Asamblea General Extraordinaria del 4 de agosto de 2001, que al adicionar un artículo 6°, lo pasó del antiguo 13 a ser el artículo 14)

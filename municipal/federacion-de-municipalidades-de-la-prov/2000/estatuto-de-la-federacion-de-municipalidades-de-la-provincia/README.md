@@ -14,3 +14,4 @@ Estatuto de la Federación de Municipalidades de la Provincia de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-27 | la propia norma |
+| 2 | 2001-08-04 | Reglamento municipal 0 (2001-08-04) |

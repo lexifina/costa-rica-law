@@ -1,5 +1,2 @@
-CAPITULO III
-De los órganos de la Federación
-Artículo 7°—Serán órganos de la Federación:
-La Asamblea General
-b) El Consejo Directivo
+Artículo 7°—Además de las funciones generales enunciadas, la Federación luchará conjuntamente con los concejos Municipales afiliados por la formulación y ejecución de planes tendientes a solucionar los problemas más urgentes de los cantones que integran la Federación mediante acciones cooperativas.
+(Así corrida su numeración en Asamblea General Extraordinaria del 4 de agosto de 2001, que al adicionarse un artículo 6°, lo pasó del antiguo 6° a ser el artículo 7°)

@@ -1,1 +1,2 @@
-Artículo 15.—El quorum del Consejo lo forman la simple mayoría de sus miembros y sus acuerdos se toman por la misma proporción.
+Artículo 15.—El Consejo Directivo nombrará en la sesión de su instalación un presidente, dos vicepresidentes, un secretario y un tesorero por un periodo de dos años, pudiendo ser reelectos. Dicha elección deberá llevarse a cabo en el mes de octubre de cada año.
+(Así corrida su numeración en Asamblea General Extraordinaria del 4 de agosto de 2001, que al adicionar un artículo 6°, lo pasó del antiguo 14 a ser el artículo 15)

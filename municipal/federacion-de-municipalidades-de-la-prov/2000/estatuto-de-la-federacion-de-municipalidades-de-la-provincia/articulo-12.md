@@ -1,4 +1,8 @@
-TÍTULO III
-Del Consejo Directivo
-Artículo 12.—El Consejo Directivo estará integrado por ocho miembros propietarios y ocho suplentes. Todos serán regidores integrantes de la Asamblea General y durarán dos años en sus funciones pudiendo ser reelectos. Cada uno de los Consejos miembros de la Federación debe estar representados en el Consejo Directivo con un directivo propietario y uno suplente. Los miembros propietarios tendrán voz y voto, y los miembros suplentes tendrán únicamente voz en las reuniones del Consejo Directivo. Solo tendrán voto cuando estén sustituyendo al miembro propietario. -
-Los Alcaldes Municipales de los Concejos miembros deben asistir a las reuniones del Consejo Directivo y tendrán voz pero no voto.
+Artículo 12.—Son funciones de la asamblea general:
+a) Fijar las políticas de la Federación
+b) Discutir y aprobar su presupuesto anual
+c) Reunirse ordinariamente por lo menos una vez al año y extraordinariamente a solicitud del Concejo Directivo o de dos de los Concejos miembros.
+d) Elegir y juramentar al Consejo Directivo
+e) Conocer y decidir sobre reformas parciales o totales al presente estatuto.
+f) Aprobar proyectos para la zona que por su tamaño e implicación el Consejo Directivo considere que debe ser aprobado por la Asamblea.
+(Así corrida su numeración en Asamblea General Extraordinaria del 4 de agosto de 2001, que al adicionar un artículo 6°, lo pasó del antiguo 11 a ser el artículo 12)
