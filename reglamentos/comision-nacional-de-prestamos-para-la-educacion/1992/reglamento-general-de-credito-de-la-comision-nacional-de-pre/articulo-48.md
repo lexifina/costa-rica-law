@@ -1,1 +1,2 @@
-48. —Todas las ampliaciones al monto del préstamo serán aprobadas por el Consejo Directivo de CONAPE.
+48. —Todas refundiciones de préstamo serán aprobadas por el Consejo Directivo de CONAPE.
+(Así reformado por acuerdo del Consejo Directivo en su sesión N° 10 del 2 de marzo de 1995)
