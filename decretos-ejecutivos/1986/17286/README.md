@@ -14,3 +14,4 @@ Reglamento de Cremación de Cadáveres y Restos Humanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-11-25 | la propia norma |
+| 2 | 1989-06-07 | Decreto Ejecutivo 19034 (1989-06-07) |
