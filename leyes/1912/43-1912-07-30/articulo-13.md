@@ -1,0 +1,1 @@
+Articulo 13° Autorizase al Poder Ejecutivo para introducir en su Departamento y en las oficinas de su dependencia, todas las modificaciones y supresiones que considere necesarias, pero dentro del límite fijado para el monto total de egresos.
