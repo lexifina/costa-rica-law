@@ -1,0 +1,1 @@
+Artículo 1º.- Créase una Misión Diplomática ante el Gobierno del Reino Unido de la Gran Bretaña e Irlanda del Norte, con el rango que el Poder Ejecutivo ordene concederle y con un sueldo mensual, para su Jefe, de mil dólares.

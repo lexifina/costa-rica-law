@@ -1,0 +1,1 @@
+Artículo 5º.- Todos los derechos de Cancillería que cobren los Cónsules de la República, de conformidad con el Arancel Consular establecido por la ley Nº 46 de 30 de junio de 1925 y disposiciones posteriores, se cobrarán mediante la colocación en los documentos o recibos respectivos de los "Timbres Consulares" que crea la presente ley.
