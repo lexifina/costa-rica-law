@@ -1,0 +1,2 @@
+Artículo 38.—En los procedimientos anteriormente señalados, los vecinos de un establecimiento, las asociaciones de desarrollo y otros grupos similares que se consideren afectados por algunas circunstancias podrán intervenir como parte interesada.
+Para los electos de comparecencias orales y privadas, cuando fuere un grupo numeroso a criterio del Alcalde Municipal, se les indicará que nombren a no más de tres representantes, quienes participaran en la audiencia citada.

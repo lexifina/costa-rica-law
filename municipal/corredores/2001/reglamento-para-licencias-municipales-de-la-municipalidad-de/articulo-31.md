@@ -1,0 +1,1 @@
+Artículo 31. — Esta Sección tendrá a cargo las inspecciones y verificaciones que se requieran para cumplir con el ordenamiento jurídico vigente. Asimismo cada inspector recomendará al jefe del Departamento, mediante un informe la procedencia o improcedencia de otorgar el visto bueno para lo que se solicite.

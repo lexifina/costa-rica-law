@@ -1,0 +1,1 @@
+Artículo 47.—La información suministrada por los contribuyentes del impuesto de patentes a la Municipalidad tiene el carácter confidencial al que se refiere el articulo 117 del Código de Normas y Procedimientos Tributarios.

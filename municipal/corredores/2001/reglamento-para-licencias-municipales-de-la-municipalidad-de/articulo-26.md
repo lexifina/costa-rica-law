@@ -1,0 +1,12 @@
+Artículo 26.—Requisitos. El interesado que desee traspasar su licencia comercial a otra persona física o jurídica, deberá aportar los siguientes documentos:
+a) Solicitud dirigida al Departamento de Rentas, de la Municipalidad de Corredores en la cual solicite:
+1. Nombre y calidades del solicitante de la licencia comercial, en caso de persona física, cuando el solicitante, lo sea una persona jurídica deberá aportarse el nombre y calidades del representante legal.
+2. Nombre y calidades del cesionario de la licencia comercial. En caso de persona física, cuando el solicitante lo sea una persona jurídica deberá aportarse el nombre y calidades del representante legal.
+3. Se hará constancia de la cesión que realiza el propietario de la licencia comercial al cesionario, comprometiéndose este último a ejercer la actividad comercial respectiva, cumpliendo con las normas legales y reglamentarias que regulan la actividad, y el orden público, entendido este como la paz social, la tranquilidad, la seguridad, la moral y las buenas costumbres.
+4. Lugar para atender notificaciones dentro del perímetro de la Municipalidad , a nombre del nuevo propietario.
+5. El documento deberá ir firmado por e¡ interesado o por el representante legal, en su caso firma que deberá estar autenticada por un abogado.
+6. En caso de que el cesionario sea una persona física, deberá aportar copia certificada de la cédula de identidad del interesado, en caso de ser persona jurídica, deberá aportar, copia certificada de la cédula jurídica de la sociedad, del acta constitutiva de esta, cédula de identidad de representante legal, y certificación de personería.
+7. Nota dirigida al Departamento de Rentas, del propietario del inmueble, en caso de ser arrendado, en la que haga constar que acepta que el cesionario continué explotando la actividad lucrativa referida en 111 local comercial, si el local perteneciera al cesionario deberá adjuntarse certificación de propiedad.
+8. Copia certificada de contrato de cesión de la licencia comercial suscrito entre las partes, el cual deberá estar debidamente autenticado.
+9. Copia certificada del permiso sanitario de! Ministerio de Salud cuando sea necesario de conformidad con lo que establece el Decreto N° 27569-S el cual deberá estar vigente.
+10. Constancia Municipal de estar al día en los tributos municipales tanto del ceden te como del cesionario.

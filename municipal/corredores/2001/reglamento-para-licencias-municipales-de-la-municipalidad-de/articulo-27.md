@@ -1,0 +1,2 @@
+SECCIÓN V
+Artículo 27.—Los patentados podrán solicitar ampliaciones a la actividad lucrativa autorizada, o bien solicitar se autorice el cambio de la actividad lucrativa a explotar, para lo cual deberá presentar escrito al Departamento de Rentas, manifestando su voluntad de obtener dicha ampliación o el cambio respectivo y adjuntara a dicha solicitud, aquellos requisitos que sean necesarios para la explotación de la nueva actividad que pretenden, que no se encuentren en el expediente, o bien que se encuentren vencidos.

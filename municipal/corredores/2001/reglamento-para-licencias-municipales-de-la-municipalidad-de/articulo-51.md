@@ -1,0 +1,1 @@
+Artículo 51. —La declaración jurada municipal que deben presentar los patentados quedará sujeta a las disposiciones especiales de los artículos Nos. 122. 123 v 130, del Código de Normas y Procedimientos Tributarios, así como a lo que establece el articulo N" 3119 del Código Penal y las establecidas en el articulo N° 14 de la Ley 7459.

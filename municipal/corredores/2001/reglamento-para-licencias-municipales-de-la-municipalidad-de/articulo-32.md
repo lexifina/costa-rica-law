@@ -1,0 +1,1 @@
+Artículo 32. —Compete únicamente al Departamento de Rentas, la tramitación y resolución con todo lo relacionado con las patentes del cantón de Corredores. Así como velar por el fiel cumplimiento de las normas establecidas para estas actividades y de cualquier otro cuerpo normativo que regule la materia.
