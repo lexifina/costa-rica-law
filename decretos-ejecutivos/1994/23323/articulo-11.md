@@ -5,6 +5,6 @@ b) Velar porque se den los procesos de evaluación, reestructuración y moderniz
 c) Proponer al Despacho y por su medio a otras entidades del Sector Público procesos de evaluación y elaboración de propuestas de reformas institucionales que conduzcan a un Estado eficiente y orientado a la satisfacción de los diversos tipos de usuario.
 d) Evaluar los procesos de elaboración y aprobación del Presupuesto Nacional, así como los proyectos de Inversión Pública, de manera que en ambos se reflejen las prioridades que el Gobierno haya fijado en el Plan Nacional de Desarrollo. Este apoyo es requisito para la adecuada de MIDEPLAN en la Autoridad Presupuestaria, tanto en lo que respecta a la definición de la política presupuestaria y sus modificaciones, como a la política nacional de inversiones públicas.
 e) Para el cumplimiento de sus funciones esta área contará con las siguientes unidades:
-1) Unidad de Acciones de Gobierno
-2) Unidad de Eficiencia Administrativa
-3) Unidad de Inversión y Presupuesto
+i) Unidad de Acciones de Gobierno
+ii) Unidad de Inversiones
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 27073 del 8 de mayo de 1998)

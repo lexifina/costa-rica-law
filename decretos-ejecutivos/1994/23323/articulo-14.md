@@ -1,2 +1,3 @@
-Artículo 14.- Se deroga el Decreto Ejecutivo Nº 17592-PLAN de 8 de junio de 1987 y cualquier otra norma que se le oponga.
-Este reglamento rige a partir del día dieciocho de mayo de mil novecientos noventa y cuatro.
+Reorganizaciones estructurales:
+Artículo 14.- Se entenderá por reorganización estructural la creación o supresión de unidades administrativas, así como la transformación de las mismas. La Contraloría General de la República, la Autoridad Presupuestaria, La Dirección General de Presupuesto del Ministerio de Hacienda no tramitarán presupuestos ni modificaciones presupuestarias de aquellos entes públicos que lleven a cabo reorganizaciones estructurales no autorizadas por MIDEPLAN. Las instituciones públicas quedan obligadas a remitir trimestralmente el reporte de avance sobre el procedimiento de implementación de las recomendaciones organizativas o estructurales emitidas por MIDEPLAN.
+(Así corrida su numeración por el artículo 1º del decreto ejecutivo N° 27073 del 8 de mayo de 1998, que lo traspasó del antiguo 13 al 14 actual del artículo)

@@ -14,3 +14,4 @@ Reglamento General del Ministerio de Planificación Nacional y Política Económ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-05-18 | la propia norma |
+| 2 | 1998-05-08 | Decreto Ejecutivo 27073 (1998-05-08) |
