@@ -14,3 +14,4 @@ Reglamento de Patentes Municipales del Cantón Central de San José
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1977-02-10 | la propia norma |
+| 2 | 1978-01-23 | Decreto Ejecutivo 7953 (1978-01-23) |

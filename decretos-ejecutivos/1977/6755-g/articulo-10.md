@@ -1,3 +1,3 @@
-Artículo 10.—La licencia deberá ser solicitada por escrito en papel sellado de un colon con veinte colones en timbres municipales. Deberá ser suscrita por el interesado y el dueño del local y sus firmas deberán estar debidamente autenticadas
-Para los efectos de este artículo, basta la sola manifestación en la solicitud de la persona que firma como propietaria del local y su firma será innecesaria, en que el solicitante demuestre fehacientemente a juicio de la Sección de Patentes que es el titular del derecho de arrendamiento, autorizado para ejercer la actividad solicitada.
-Además la solicitud deberá ser acompañada por una constancia de que el interesado y el dueño del local se encuentran totalmente al día en el pago de impuestos, tasa y contribuciones correspondientes.
+Artículo 10.—La licencia será solicitada por escrito en papel sellado de un colón y acompañada con un timbre municipal de veinte colones.
+Deberá ser suscrita por el interesado y su firma autenticada por un abogado. Además, la solicitud será acompañada de constancia de que el solicitante se encuentra al día en el pago de los impuestos, tasas y contribuciones municipales.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 7953 del 23 de enero de 1978)
