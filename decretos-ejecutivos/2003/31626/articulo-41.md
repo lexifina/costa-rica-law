@@ -1,0 +1,2 @@
+Artículo 41.—El vendedor de un animal de compañía deberá extender una constancia emitida por un médico veterinario que acredite la edad, procedencia, cumplimiento y próximas fechas de los protocolos de medicina preventiva (inmunoprofilaxis y control endo y ectoparasitario), e información sobre los cuidados, necesidades básicas, importancia de la socialización y educación.
+Además, tiene la obligación y responsabilidad de entregar el presente reglamento así como, material educativo avalado por el Ministerio referente a la tenencia y reproducción responsable de estos animales.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De los establecimientos
+Artículo 39.—Las siguientes actividades y establecimientos relacionados con los animales de compañía requieren permiso sanitario de funcionamiento extendido por el Ministerio: criaderos, guarderías, comercios dedicados a su compra y venta, escuelas de adiestramiento, y cualesquier otras actividad análoga que tengan como fin el comercio de éstos. También requerirán permiso sanitario de funcionamiento extendido por el Ministerio los lugares como albergues, centros de adopción y similares, que sin tener fines de lucro, cuiden o mantengan más de diez animales de compañía mayores de seis meses. En los casos donde todos los ejemplares se encuentren esterilizados, este número se ampliará a treinta.

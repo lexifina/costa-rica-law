@@ -1,0 +1,1 @@
+Artículo 46.—Los médicos veterinarios en el ejercicio liberal, quedan autorizados para realizar las cuarentenas que se establecen en este reglamento. Para ello deberán informar el domicilio del animal y su estado clínico a través de la papelería controlada.

@@ -1,0 +1,1 @@
+Artículo 24.—Los poseedores de animales de compañía que no brinden a estos las condiciones sanitarias adecuadas para su pleno desarrollo y convivio, deberán mejorar las condiciones en el plazo indicado por la autoridad sanitaria, caso contrario será decomisado el animal.

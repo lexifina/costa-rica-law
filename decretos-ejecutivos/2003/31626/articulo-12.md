@@ -1,0 +1,1 @@
+Artículo 12.—El Ministerio dará la capacitación necesaria a las autoridades sanitarias y promoverá, si las circunstancias así lo requieran, la capacitación a todos aquellos actores sociales que estén vinculados con el tema objeto de este reglamento.

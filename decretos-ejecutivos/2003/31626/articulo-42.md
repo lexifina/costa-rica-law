@@ -1,0 +1,1 @@
+Artículo 42.—Los vendedores de animales de compañía, deben asegurarse que el comprador sea mayor de edad, que sea capaz de proporcionar los cuidados necesarios al animal y asumir sus responsabilidades administrativas, civiles y penales.

@@ -1,0 +1,2 @@
+Artículo 37.—Las veterinarias, en ocasión de la vacunación antirrábica, deberán crear un registro de personas con animales de compañía, donde se acreditará: nombre del propietario y responsable, dirección (provincia, cantón y distrito), teléfono, nombre del animal, fecha de nacimiento, raza, sexo, especie y fecha de última vacunación contra la rabia.
+El registro de un animal debe ser conservado por la veterinaria por un mínimo de diez años y estar disponible para las investigaciones epidemiológicas del Ministerio.

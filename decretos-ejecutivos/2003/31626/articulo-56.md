@@ -1,0 +1,2 @@
+Transitorio Único.—Los propietarios de establecimientos que requieren el Permiso Sanitario de Funcionamiento, contarán con un plazo de seis meses a partir de la publicación de este reglamento para ponerse a derecho. Vencido este plazo sin que hayan iniciado gestiones conducentes a la consecución del permiso en cuestión, se procederá a la clausura de dichos establecimientos de acuerdo con lo dispuesto en el artículo 363 y siguientes y concordantes de la Ley General de Salud.
+Dado en la Presidencia de la República.—San José, el día veintidós de setiembre del dos mil tres.

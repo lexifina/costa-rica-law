@@ -1,0 +1,1 @@
+Artículo 26.—Los animales de compañía declarados como peligrosos para la salud pública y cuyo comportamiento agresivo no sea reversible serán sometidos a la eutanasia. En el caso de que exista la posibilidad de revertir dicha peligrosidad, la autoridad competente validará propuestas de solución.

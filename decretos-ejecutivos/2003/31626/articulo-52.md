@@ -1,0 +1,1 @@
+Artículo 52.—Los animales dejados en veterinarias y que sean abandonados por su propietario o encargado por un período superior a los siete días naturales, pueden ser dispuestos de la manera que mejor convenga al establecimiento, siendo la eutanasia la última opción.

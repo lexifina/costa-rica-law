@@ -1,0 +1,1 @@
+Artículo 27.—Cuando se reclame la devolución de un animal de compañía, antes de haberse realizado la adopción o la eutanasia, el interesado pagará los gastos por captura, vacunación, esterilización, la alimentación y el mantenimiento en general.

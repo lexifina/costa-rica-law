@@ -1,0 +1,1 @@
+Artículo 31.—Los servicios de salud que atiendan casos de ataques de animales de compañía deberán registrarlos ante la oficina local del Ministerio de Salud. Esto con el fin de que las autoridades de salud realicen la investigación correspondiente.

@@ -1,0 +1,1 @@
+Artículo 23.—Los poseedores de animales de compañía que causen molestias como: ladridos constantes, malos olores, ruidos, por disposición de la autoridad sanitaria, deberá realizar los cambios necesarios en su propiedad para evitar las molestias a sus vecinos. En caso contrario se procederá al decomiso del animal o se trasladará a un lugar determinado por la autoridad sanitaria.

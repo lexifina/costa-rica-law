@@ -1,0 +1,1 @@
+Artículo 17.—Solamente se podrá disponer de los cuerpos, una vez que el médico veterinario confirme la muerte del animal. Los cadáveres se deben de enterrar por lo menos a cincuenta centímetros de profundidad, pudiendo también ser incinerados en un establecimiento que cumpla con los requisitos sanitarios, que para tales efectos exige el Ministerio de Salud.

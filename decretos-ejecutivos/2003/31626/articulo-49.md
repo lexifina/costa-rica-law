@@ -1,0 +1,1 @@
+Artículo 49.—Sólo se permitirá la permanencia de animales de compañía en establecimientos que expenden alimentos para personas, cuando el responsable del establecimiento lo permita mediante la colocación de rótulos, y además cuando tome medidas a satisfacción de la autoridad de salud, que impidan la contaminación de los alimentos para las personas.

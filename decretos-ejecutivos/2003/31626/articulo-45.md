@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+De las medidas de cuarentena
+Artículo 45.—Todo animal de compañía que ingrese al país, debe acompañarse con los certificados oficiales que determine el Ministerio. Además, de acuerdo con el Código Zoosanitario Internacional (OIE), deberá someterse por cuenta del interesado a una cuarentena domiciliar de cuatro semanas. Esto implica que la autoridad de salud pueda durante ese periodo, localizar el animal. Además deberá aportar los resultados de los exámenes clínicos en donde conste el estado de salud del animal. El egreso de los animales de compañía solo se permitirá con la constancia veterinaria emitida en papelería controlada y el permiso correspondiente emitido por el Ministerio de Salud.

@@ -1,0 +1,1 @@
+Artículo 3º—Los encargados, propietarios, cuidadores, guardianes o poseedores son responsables en materia administrativa, civil y penal de los animales de compañía de compañía que tengan bajo su tutela.

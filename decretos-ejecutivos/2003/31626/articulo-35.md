@@ -1,0 +1,1 @@
+Artículo 35.—Las droguerías veterinarias al vender la vacuna antirrábica deberán adjuntar el formulario o papelería controlada, para lo cual el Colegio realizará las coordinaciones necesarias. La vacuna antirrábica será considerada medicamento veterinario del Grupo II.

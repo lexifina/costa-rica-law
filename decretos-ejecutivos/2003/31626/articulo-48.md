@@ -1,0 +1,1 @@
+Artículo 48.—Los propietarios o responsables deben recoger y disponer adecuadamente de las heces de los animales de compañía cuando realicen deposiciones en las aceras, parques, jardines de vecinos o lugares públicos.

@@ -1,0 +1,1 @@
+Artículo 36.—Todas las veterinarias están obligadas a brindar el servicio de vacunación contra la rabia y conferir la constancia y contraseña respectiva al tutor o encargado mediante papelería controlada. El Médico Veterinario informará en los siguientes 30 días naturales al Colegio de las vacunaciones realizadas.

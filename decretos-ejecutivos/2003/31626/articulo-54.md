@@ -1,0 +1,1 @@
+Artículo 54.—Deróguese el Decreto Ejecutivo N° 12 del 19 de enero de 1954, Decreto Ejecutivo N° 9 del 5 de setiembre de 1957, Decreto Ejecutivo N° 7 del 5 de junio de 1967, Decreto Ejecutivo N° 2375-SPPS de 15 de junio de 1972 y el decreto Ejecutivo N° 22843-S del 26 de enero de 1994.
