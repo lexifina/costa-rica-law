@@ -13,3 +13,4 @@ Ejecuta Decisión Nº 9 Comisión Adm. Tratado Libre Comercio con MéxicoReglame
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-19 | la propia norma |
+| 2 | 1999-05-19 | SINALEVI (sin norma nombrada) |
