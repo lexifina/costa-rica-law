@@ -67,7 +67,7 @@ Instituto de Fomento y Asesoría Municipal (Así modificado por el artículo 1°
 Instituto Geográfico Nacional | 150,0
 Instituto Meteorológico Nacional | 272,0
 Instituto Mixto de Ayuda Social | 20.426,2
-Instituto Nacional de Estadística y Censos (Así modificado por artículo 1° del decreto ejecutivo N° 31135 de 21 de abril de 2003) | 1.100,2
+Instituto Nacional de Estadística y Censos (Así Reformado parcial y tácitamente por artículo 1° del decreto ejecutivo N° 31239 de 03 de junio de 2003) | 1.213.5
 Instituto Nacional de Fomento Cooperativo | 1.012,5
 Instituto Nacional de las Mujeres (Así modificado por el artículo 1° del decreto ejecutivo N° 31067 de 20 de febrero de 2003) | 1062.0
 Instituto Nacional de Vivienda y Urbanismo | 6.102,0
