@@ -1,2 +1,2 @@
-Artículo 19.-El delegado o delegados que se nombren, asegurarán sus responsabilidades con fianza de fidelidad en la cuantía que fije el Banco.
-Casa Presidencial, San José, a los diez días del mes de agosto de mil novecientos treinta y tres.
+Artículo 19.—El delegado o delegados que se nombren, asegurarán su responsabilidad con fianza de fidelidad en la cuantía que el Banco determine.
+Los delegados serán responsables de los perjuicios que reciba el Banco por causa de dolo, culpa o infidelidad de ellos en el desempeño de sus funciones.
