@@ -1,3 +1,3 @@
-Artículo 13.- Las sumas que representan los certificados de aportación de cada asociado deberán serle entregadas, una vez que ejerza el derecho al retiro o, por cualquier causa, sea excluido, conforme se establezca en el estatuto de cada cooperativa.
+Atículo 13.-Las sumas que representan los certificados de aportación de cada asociado deberán serle entregadas, una vez que ejerza el derecho al retiro o, por cualquier causa, sea excluido, conforme se establezca en el estatuto de cada cooperativa.
 El asociado únicamente tendrá derecho a que se le reembolse el valor de sus aportaciones, deducidas las pérdidas que le corresponda soportar más los excedentes e intereses del ejercicio en curso. Para estos efectos, será aplicable la compensación de deudas, de conformidad con la ley.
 Para la devolución de las aportaciones, se aplicará lo dispuesto en el artículo 72 de la Ley de Asociaciones Cooperativas.

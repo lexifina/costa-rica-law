@@ -1,1 +1,1 @@
-Artículo 2°.- Las actividades de intermediación financiera cooperativa son actos cooperativos, por lo cual quedan sometidos al derecho cooperativo; sin embargo, supletoriamente se regirán por el derecho mercantil, en cuanto sea compatible con su naturaleza especial.
+Artículo 2°.-Las actividades de intermediación financiera cooperativa son actos cooperativos, por lo cual quedan sometidos al derecho cooperativo; sin embargo, supletoriamente se regirán por el derecho mercantil, en cuanto sea compatible con su naturaleza especial.
