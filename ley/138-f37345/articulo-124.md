@@ -1,0 +1,1 @@
+Art 124.- En la contestación de la demanda tiene lugar toda excepción que obste al derecho deducido por el actor, sea por falta de título para fundarlo, por la invalidación de este ó por su ineficación, por su falta aplicación o por haber prescrito.

@@ -1,0 +1,1 @@
+Art 368°.- Los embargos provisionales se proverán por el Presidente o el Vocal que le sostituya en acto continuo de presentarle la solicitud si la hallare conforme a derecho, sirviendo su providencia de mandamiento a los alguaciles del Tribunal para proceder a su cumplimiento.

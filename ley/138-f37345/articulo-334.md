@@ -1,0 +1,1 @@
+Art 334°.- Concluido el término del encargado, pondrá nota el Secretario de haber fenecido y en la cuenta al Tribunal, el que en su consecuencia mandará unir las probanzas a los autos y entregarlos a cada una de las partes por término de un día improrrogable, para solo el efecto de instruirse de sus méritos

@@ -1,0 +1,1 @@
+Art 180°.- La acción, daños y perjuicios que compete al quebrado repuesto contra el acreedor que hubiere instado o sostenido la declaración de quiebra con dolo, falsedad o injusticia manifiesta, se ejercerá en el mismo expediente de reposición, sustanciándose por los trámites del juicio oridnaria

@@ -1,0 +1,1 @@
+Art 372°.- Del embargo provisional hecho en bienes del deudor, que se hallen en poder de distinto tenedor, se le dará conocimiento dentro las veinticuatro horas siguientes a su ejecución, por notificación en su persona o por cédula sino pudiere ser habido y en su defecto será ineficaz el embargo, quedando el Secretario responsable a las resueltas.

@@ -1,0 +1,1 @@
+Art 244°.- Los síndicos en la exposición que se les prescribe presentar por el art 1080, deducirán pretensión formal sobre la calificación de la quiebra, y unida a los autos, se entregaran al quebrado por término de nueve días, para que conteste a esta solicitud.

@@ -1,0 +1,1 @@
+Art 439°.- Acreditándose el depósito, se remitirán los autos originales a la Corte Suprema de Justicia, emplazándose a las partes para que comparezcan a usar de su derecho en el término que prudencialmente creyese necesario el Tribunal, no pudiendo excederle treinta días.

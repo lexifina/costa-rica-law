@@ -1,0 +1,2 @@
+Art 120.- Transcurrida la dilación de prueba, llamará el tribunal los autos, sin admitirse nuevos escritos ni documentos y oyendo en voz a las partes, o sus defensores en la audiencia en que se de cuenta proveerá sobre la excepción dilatoria.
+Esta providencia causa ejecutoria de Derecho sin necesidad de que se declare por pasada en autoridad de cosa juzgada, vencido que sea el término de la ley para apelar de las sentencias interlocutorias que causen estado.

@@ -1,0 +1,1 @@
+Art 295°.- Si el compromiso se hubiere hecho pendiente la instancia de apelación de la sentencia del Tribunal de comercio, los jueces árbitros continuaran esta por los trámites de derecho; y su decisión, confirmando o reformando aquella, causará ejecutoria, salvo el recurso de injusticia notoria en los casos que este proceda.

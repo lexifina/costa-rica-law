@@ -1,0 +1,1 @@
+Art 236°.- Después de haberse proveído el auto de declaración de quiebra, no se podrá promover ni continuar instancia alguna ejecutiva contra el quebrado, y las que existan de esta clase en cualquiera juzgado o Tribunal, se remitirán al que conozcan de la quiebra para que corran bajo una misma cuerda con esta pieza.

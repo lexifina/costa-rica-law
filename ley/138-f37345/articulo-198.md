@@ -1,0 +1,1 @@
+Art 198.- Las providencias en que se acuerde la separación de algún síndico, bajo el concepto de administrativas, no pararán perjuicio en la buena opinión y fama de la persona separada, y se llevarán a efecto sin admitirse recurso alguno contra ellas.

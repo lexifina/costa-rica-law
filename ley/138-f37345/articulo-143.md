@@ -1,0 +1,1 @@
+Art 143.- Las posiciones que se articulen por alguna de las partes, que la contraria declare al tenor de ellas, se tendrán reservadas en la oficina, bajo la responsabilidad del Secretario sin publicarse hasta el juez las mande unir al proceso después de evacuadas las respuestas por la parte confesante.

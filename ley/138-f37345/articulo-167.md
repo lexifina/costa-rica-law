@@ -1,0 +1,2 @@
+Art 167.- Si el actor abandonará se demanda después de contestada, y el reo instase la continuación del juicio, se le citará para que comparezca a seguirle en un término igual a al del emplazamiento del demandado; y no habiéndose se seguirá adelante la causa hasta sentencia definitiva, sustanciándose con los estrados, menos el auto de prueba que se le notificara en persona.
+Teniendo procurador acreditado en los autos, se observara lo prevenido en el artículo 36.

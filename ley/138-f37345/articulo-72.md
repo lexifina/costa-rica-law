@@ -1,0 +1,1 @@
+Art 72°.- Con solo pedimento de apremio se obligará a la devolución de autos a la parte que los retengan después de transcurrido el término de la comunicación, recogiéndose si no los devolviere en el día, de poder de cualquiera persona en quien se encuentren a costa del apremiado.

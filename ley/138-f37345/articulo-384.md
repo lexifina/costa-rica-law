@@ -1,0 +1,1 @@
+Art 384°.- Si tuviere lugar la tercería se entregarán al opositor los bienes que se hubieren declarado o permanecerle, y el ejecutante usará de su derecho según le convenga contra los demás embargos u otros del deudor.

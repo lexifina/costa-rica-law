@@ -1,0 +1,1 @@
+Art 231.- Si por la contestación del deudor el Tribunal hallare mérito para recibir la causa a prueba, lo acordara por el término de ocho días perentorios, y cumplido este, entregándolo los autos a las partes por el de los dos para que instruyan, señalará día para la vista, y fallará lo que corresponda en justicia.

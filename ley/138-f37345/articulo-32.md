@@ -1,0 +1,1 @@
+Art 32.- La habilitación no puede proveerse sino por el Tribunal y no por el Presidente ni otro de sus individuos en particular, salvo con respecto a las diligencias que estos puedan legítimamente proveer también por sí solos.

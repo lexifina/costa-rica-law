@@ -1,0 +1,1 @@
+Art 385°.- Para la sustanciación de la tercería que su funda en la calidad preferente del crédito del opositor, se formará ramo separado siguiendo sus trámites la vía ejecutiva en la pieza principal hasta la venta de los bienes embargados, cuyo producto se depositará para entregarse al acreedor que obtenga la preferencia en la tercería.

@@ -1,0 +1,1 @@
+Art 49.- El demandado presentará también con la contestación de la demanda los documentos en que funde la impugnación, quedándole la facultad de producir en el progreso del juicio los demás que descubra posteriormente para justificar sus excepciones

@@ -1,0 +1,1 @@
+Art 422°.- Si el procedimiento estuviere arreglado a derecho, y la nulidad consistiere en las formas de la sentencia, el Tribunal declarando esta nula, proverá también sobre el fondo de la cuestión del pleito.

@@ -1,0 +1,1 @@
+Art 94°.- Todas las sentencias definitivas y las interlocutorias que hayan recaído con vista de autos, se publicarán en la audiencia leyéndose a la letra por el Secretario sin perjuicio de notificarse a las partes.

@@ -1,0 +1,1 @@
+Art 249.-El quebrado que habiendo sido calificado de tercera clase y condenado como tal a pena de reclusión, se hallaré en soltura o arrestado en su casa, será trasladado inmediatamente a la prisión que le esté señalada para cumplir su pena.

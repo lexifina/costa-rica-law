@@ -1,0 +1,1 @@
+Art 87°.- En las votaciones será el primero en dar su voto, el Vocal más moderno, y seguirán los demás por el orden inverso de su antigüedad, siendo el último votante el Presidente del Tribunal o el que se haga sus veces.

@@ -1,0 +1,1 @@
+Art 67.- Los términos y dilación de los juicios comienzan a correr desde el emplazamiento, citación o notificación de la providencia que llame la persona emplazada, citada o notificada a usar de un derecho, a cumplir con una obligación que le imponga la ley.

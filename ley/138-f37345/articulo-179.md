@@ -1,0 +1,2 @@
+Art 179.- En el caso de dedicarse la reposición, se pondrá certificación de la sentencia en las demás piezas de autos de quiebra, acordándose en cada una de ellas lo conveniente para la reintegración del quebrado en sus bienes, papeles, libre tráfico y demás derechos.
+Copia autorizada de la sentencia se fijará además en los estrados del Tribunal, y se insertará en los periódicos a instancia del quebrado, si le conviniese hacerlo.

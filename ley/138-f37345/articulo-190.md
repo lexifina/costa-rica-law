@@ -1,0 +1,1 @@
+Art 190.- El juez comisario presentará al Tribunal el estado de los acreedores del quebrado, que ha debido formar en los tres días siguientes a la declaración de la quiebra, y con vista de él se fijará el día para la celebración de la primera junta general, convocándose a ella a los acreedores en la forma que previene el artículo 103 del Código.

@@ -1,0 +1,2 @@
+Art 14.- El Juez avenidor tendrá un registro en que copiarán literalmente las cédulas de citación que se expidan, y a continuación de cada una se anotará el día y hora en que se dé curso, con el nombre y apellido del alguacil a quien se encargue su entrega.
+Si se dirigiere al Alcalde otro domicilio, se expresará la fecha en que se expida el oficio de remisión y de haberse enviado este por el correo o por alguna persona, determinado cual sea.

@@ -1,0 +1,2 @@
+Art 297°.- En el nombramiento de amigables componedores y la forma en que se ha de celebrar el compromiso regirán las mismas disposiciones prescritas con respecto a los árbitros, a excepción de las circunstancias 6 y 7 del artículo 259 que no le son aplicables.
+En su lugar contendrá necesariamente el compromiso en amigables componedores, bajo pena de nulidad, el pacto de la multa en que se habrá de incurrir el interesado que se conforme con la decisión de aquellos.

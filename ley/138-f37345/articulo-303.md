@@ -1,0 +1,1 @@
+Art 303°.- Si no usaren de esta facultad en el término de tres días consignados la multa en manos de los mismos amigables componedores o en las del Secretario del Tribunal de comercio, se extenderá sin otra declaración que consienten el laudo y este será ejecutivo como la sentencia arbitral ejecutoria

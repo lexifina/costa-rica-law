@@ -1,0 +1,1 @@
+Art 346°.- No podrá hacerse el pago al acreedor que hubiese obtenido sentencia de remate, aun cuando se pudiere verificar con dinero embargado o con el producto de los valores de comercio, hasta que haya trascurrido el término para apelar de la misma.

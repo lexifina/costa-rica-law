@@ -1,0 +1,1 @@
+Art 174.- De la oposición y de su aplicación si el quebrado la hiciere se conferirá traslado al acreedor, y por el mismo auto se abrirá la causa a prueba por término de veinte diez dentro de los cuales se admitirá a ambos partes, las alegaciones y probanzas que les convengan conforme el artículo 971 del Código.

@@ -1,0 +1,1 @@
+237.- Hechas todas las operaciones que para la justificación y examen de los créditos prescriben los artículos 1042, 1043, 1044 y 1045 del Código de comercio, si alguno de los acreedores o el quebranto se tuvieren por agraviados de la resolución de la junta, podrán usar de su derecho ante el Tribunal que conociere de la quiebra del término de quince días, y no después.

@@ -1,0 +1,5 @@
+Art 133.- No se concederá el término extraordinario para probar, sino se solicitare dentro de los ocho días siguientes a la notificación del auto en que se hubiere recibido la causa a prueba, y concurrieren además las circunstancias siguientes:
+1°.- Que los hechos esenciales para la calificación del derecho de las partes o alguno de ellos hayan ocurrido en el país adonde se intente hacer la prueba.
+2°.- Que si las diligencias probatorias que se hubieren en examen de testigos, se expresen los nombres y apellido de estos, presentándose las cartas, documentos u otro género de prueba, por donde conste que residen en el lugar donde se solicita que sean examinados.
+3° Que si la prueba consistiere en el reconocimiento de algunos documentos, en extraer testimonios de ellos, o en el cotejo de los presentado en autos, se manifiesten los archivos, oficinas y matrices donde obren los documentos de que se pretenda hacer uso, o la persona en cuyo poder se encuentren, y que sea manifiesta la conducencia de ellos para probar la intención del que los reclama.
+4°.- Que el litigante que pide el término extraordinario, jure no hacerlo de malicia para dilatar el pleito.

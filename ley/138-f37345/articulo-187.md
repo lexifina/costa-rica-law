@@ -1,0 +1,2 @@
+Art 187°.- El quebrado, su apoderado si lo tuviese, o el sugeto a cuyo cargo hubiese quedado la dirección de sus negocios, en el caso de haberse ausentado antes de la declaración de quiebra, será citado en una sola diligencia para concurrir a los días de correo en el lugar y a la hora que el Juez comisario designe para la apertura de la correspondencia.
+No concurriendo a la hora de la citación, se verificará por el juez y el depositario.

@@ -1,0 +1,2 @@
+Art 282°.- Aceptando los árbitros el compromiso tácita o expresamente, mandaran hacer saber a los interesados que deduzcan sus respectivas pretensiones, acompañado los documentos en que apoyen su derecho con señalamiento de un término, que se graduará con relación al plazo del compromiso sin que pueda en ningún caso exceder de quince días.
+La parte que lo verifique será habida por contumaz, parándole el perjuicio que haya lugar en la sentencia, y se le declarará desde luego incursa en la pena del compromiso.

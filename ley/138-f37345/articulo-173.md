@@ -1,0 +1,2 @@
+Art 173.- Si el quebrado hiciere oposición al auto de quiebra, se formará expediente separado sobre ella, por cabeza del cual se pondrán la solicitud y justificación del acreedor y testimonio del auto de declaración de quiebra.
+El quebrado podrá ampliar con vista de estos antecedentes los fundamentos de su oposición; y al efecto, si lo hubiese pedido en el escrito en que la hizo, se le entregara al expediente por término de tercero día.

@@ -1,0 +1,1 @@
+Art 9.- Para la comparecencia ha de proceder providencia del Juez avenidor, solicitada verbalmente por el actor, exponiendo con brevedad y sencillez el nombre y apellido, clase, profesión o ejercicio de la persona contra quien dirige la acción, el negocio contrato o derecho sobre que recae, y la pretensión que motiva.

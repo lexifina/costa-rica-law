@@ -1,0 +1,1 @@
+Art. 220°.- No se admitirá recurso de apelación ni de nulidad contra las providencias del Tribunal de comercio que se contraigan al orden administrativo de la quiebra, sin decidir ningún derecho controvertido entre las partes.

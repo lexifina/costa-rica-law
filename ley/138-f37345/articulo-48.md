@@ -1,0 +1,1 @@
+Artículo 48°.- El actor en toda especie de juicios ha de producir con su demanda las escrituras y documentos originales que justifiquen el derecho que deduce; y de los que pueda presentar por no obrar en sus poder, hará la debida mención con la individualidad posible sobre lo que de ello resulte, y del archivo, oficina pública u otro lugar en donde se encuentren los orignales

@@ -1,0 +1,1 @@
+Art 183.- Se tendrá por persona abonada para prestar la fianza de cárcel segura todo vecino con casa abierta a su nombre, que gozando de buena reputación asegure su subsistencia con las rentas de sus bienes, en el sueldo de su empleo, o en el ejercicio de alguna profesión, arte u oficio.

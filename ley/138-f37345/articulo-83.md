@@ -1,0 +1,2 @@
+Art 83°.- Los Jueces podrán después de visto el negocio en audiencias públicas, pedir los autos originales para examinarlos por si privadamente, con tal que lo hagan en la misma sesión en que se haya concluido la vista, y bajo la obligación de devolverlos a tiempo de que pueda votarse y darse sentencia en el plazo legal.
+Cuando sean varios los Jueces que pidan el proceso para su examen, el Presidente designará el tiempo que cada uno podrá retenerlo en su poder para este efecto.

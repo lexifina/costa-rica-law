@@ -1,0 +1,1 @@
+Art 447°.- La citación se hará por medio de cédula en que instruyéndose al demandado de la pretensión del actor y título en que la funda, se le emplazará para que en el día señalado se presente al juicio con los documentos necesarios para probar cualquiera excepción que pretenda oponer a la demanda.

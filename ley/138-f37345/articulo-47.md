@@ -1,0 +1,1 @@
+Art 47.- Los apoderados y procuradores acreditarán su personalidad desde la primera gestión que hagan en su nombre de sus poderdantes con la competente escritura de poder, y en otra forma no serán tenidos por tales, aun cuando protesten hacerlo en el progreso del juicio.

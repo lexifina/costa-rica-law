@@ -1,0 +1,1 @@
+Artículo 142.- Todo instrumento público presentado en el proceso por copia o testimonio sacado sin citación de la parte a quien perjudique, ha de ser cotejado con su original dentro del término de prueba, sin lo cual podrá aquella argüirlo de ineficaz para probar en el juicio en que haya sido presentada la copia o testimonio.

@@ -1,0 +1,1 @@
+Art 324°.- No verificándose el pago, ni haciendo el deudor oposición en los tres días del término de citación, se pronunciará en la primera audiencia sentencia de remate, mandado proceder a la venta de los bienes embargados y que de ellos se haga pago al acreedor

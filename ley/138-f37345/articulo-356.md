@@ -1,0 +1,1 @@
+Art 356°.-Hallando el Tribunal, que el actor pide conforme a derecho, se despachará mandamiento a los alguaciles, para que4 requieran al deudor al pago de la deuda y no haciéndolo en el acto, procedan al embargo de sus bienes. En el requerimiento y ejecución, se observarán las disposiciones de los artículos 317 t 318 de esta ley.

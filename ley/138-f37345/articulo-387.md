@@ -1,0 +1,1 @@
+Art 387°.- Si por la ampliación de la ejecución se hallaren bienes suficientes para cubrir el crédito del ejecutante sin perjuicio del derecho del tercer opositor, se dirigirán los procedimientos ejecutivos sobre ellos, y el opositor ejercerá el que le competa contra el deudor y los bienes comprendidos en su tercería.

@@ -1,0 +1,1 @@
+Art 383°.- El término de prueba será de veinte días improrrogables a cuyo vencimiento podrán instruirse las partes de las probanzas hechas, para lo cual se entregaran los autos a cada una por dos días precisos, y trascurridos que estos sean se mandarán traer para sentencia con citación de los interesados litigantes.

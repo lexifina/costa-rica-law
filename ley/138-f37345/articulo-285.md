@@ -1,0 +1,1 @@
+Art 285.-En el juicio arbitral tendrán lugar todos los medios de prueba que las leyes permitan para los juicios ordinarios, observándose en su práctica las formalidades prescritas en el título 4° de esta ley.

@@ -1,0 +1,3 @@
+Art 225°.- Los sindicos estarán obligados a formar dentro de los diez días inmediatos a habérseles hecho la entrega de los libros y papeles de la quiebra, los estados siguientes:
+Uno, de los pagos hechos por el quebrado en los quince días precedentes a la declaración de quiebra por deudas y obligaciones directas, cuyo vencimiento fuese posterior a esta.
+Otro de los contratos celebrados en los treinta días anteriores a la declaración de la quiebra, que en el concepto de fraudulentos queden ineficaces de Derecho con arreglo al artículo 979 del Código de comercio y de las donaciones entre vivos que se encuentren comprendidas en la disposición del artículo 980 del mismo Código.

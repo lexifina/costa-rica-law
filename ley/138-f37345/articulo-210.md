@@ -1,0 +1,1 @@
+Art 210°.- Los permisos que del Juez comisiario para las ventas urgentes de los efectos de la quiebra, para los gastos indispensables que hayan de hacerse para su conservación, han de acordarse también en providencia formal a consecuencia de reclamaciones del depositarlo.

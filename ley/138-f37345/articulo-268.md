@@ -1,0 +1,1 @@
+Art 268°.- Los árbitros aceptaron o renunciarán el compromiso dentro de los ocho días siguientes a habérseles hecho saber el nombramiento o que se les hubiere entregado el acta a instancia de cualquiera de las partes. Pasado este término sin haber hecho la renuncia, se tendrá por aceptado.
