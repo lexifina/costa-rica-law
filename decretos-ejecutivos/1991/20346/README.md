@@ -13,3 +13,4 @@ Reglamento a Ley de la Generación Eléctrica Autónoma Paralela
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1991-04-23 | la propia norma |
+| 2 | 1991-04-23 | Decreto Ejecutivo 22177 (1993-04-27) |

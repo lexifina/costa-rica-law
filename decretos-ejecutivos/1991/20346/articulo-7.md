@@ -1,5 +1,5 @@
-ARTÖCULO 7§.-Dentro del plazo de 120 d¡as naturales contados
-a
+ARTÖCULO 7§.- Dentro del plazo de 120 d¡as naturales
+contados a
 partir del recibo de la solicitud, el ICE deber extender la
 declaratoria
 de elegibilidad, indicando el plazo de vigencia de la misma que

@@ -1,4 +1,4 @@
-ARTÖCULO 8§.-El ICE rechazar las solicitudes de
+ARTÖCULO 8§.- El ICE rechazar las solicitudes de
 elegibilidad
 cuando:
 a) La documentaci¢n e informaci¢n requerida est‚ incompleta.
@@ -23,9 +23,11 @@ e) Se trate de proyectos que superan el l¡mite de 20 000 kW de
 potencia, fijado para un mismo productor en una o varias
 concesiones.
 f) La capacidad comprometida del conjunto de contratos
-suscritos y de
-elegibilidades, alcancen el l¡mite correspondiente al quince por
-ciento
-(15%) de la capacidad nominal del total de centrales que
-conforman el
-Sistema El‚ctrico Nacional al momento de recibir la solicitud.
+suscritos
+alcancen el l¡mite correspondiente al quince por ciento (15%) de
+la
+capacidad nominal del total de centrales que conforman el Sistema
+El‚ctrico Nacional al momento de recibir la solicitud.
+(As¡ reformado por el art¡culo 1§ del Decreto Ejecutivo N§ 22177
+de 27 de
+abril de 1993).

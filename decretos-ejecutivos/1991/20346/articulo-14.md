@@ -80,10 +80,10 @@ de Aguas estudiar la solicitud y remitir a la Junta Directiva
 del
 Servicio Nacional de Electricidad la recomendaci¢n sobre la
 solicitud
-para su resoluci¢n final. Dicha resoluci¢n se emitir en un
-plazo m ximo
+para su resoluci¢n final. Dicha resoluci¢n se emitir en un plazo
+m ximo
 de 120 d¡as naturales que corren a partir de la presentaci¢n
 inicial de
 la solicitud. En caso de que se hubieran presentado oposiciones,
-estas
-se resolver n al momento de dictar la resoluci¢n final.
+estas se
+resolver n al momento de dictar la resoluci¢n final.
