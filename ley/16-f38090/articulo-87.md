@@ -1,2 +1,1 @@
-Artículo 87.- Todos los documentos redescontados, aceptados como garantía o constituyentes de un préstamo, deberán ser plenamente garantizados con la firma del banco comercial que los entregó u otorgó al Departamento; y deberán ser pagados y retirados por dicho banco en la fecha de su vencimiento, sin perjuicio de que puedan ser pagados y retirados, previo pago de su importe, en cualquier momento; pero los intereses correspondientes se calcularán y cobrarán por el Departamento por períodos mínimos sucesivos de 30 días.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 87.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")

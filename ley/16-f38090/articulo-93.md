@@ -1,2 +1,1 @@
-Artículo 93.- Los bonos de estabilización monetaria serán libremente negociables, pero no podrán ser recibidos por los bancos comerciales como garantía de ninguna operación de crédito, ni directa ni indirectamente. Podrán ser rescatados por el Departamento Emisor, a los precios del mercado, o a la par y por sorteo, o bien por compra directa a sus tenedores, a opción del Departamento y conforme se establezca por el Consejo al autorizar cada emisión.
-(Así reformado por el artículo 1° de la ley N° 15 del 9 de noviembre de 1945)
+Artículo 93.- (Derogado por el artículo 128 (actual 147) de la ley N° 1552 del 23 de abril de 1953 "Ley Orgánica del Banco Central de Costa Rica")
