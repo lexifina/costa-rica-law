@@ -1,1 +1,0 @@
-Artículo 6°—Como, de acuerdo con el artículo 7° de la ley, en ningún caso el préstamo podrá pasar de la mitad del valor de los bienes del pétente, debe entenderse que en ese valor se considerará comprendida la construcción en que el préstamo hade invertirse.

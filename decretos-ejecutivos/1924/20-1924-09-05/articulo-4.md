@@ -1,1 +1,0 @@
-Artículo 4°—Cuando un solicitante de préstamo consiga comprador para una cantidad de Bonos cuyo producto una vez deducido el descuento acordado por la ley sea igual al monto de su préstamo, o en los casos en que el constructor acepte dichos Bonos en pago de la reparación o construcción, el Banco imputará esa suma a la provincia o cantón que corresponda.

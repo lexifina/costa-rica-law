@@ -1,1 +1,0 @@
-Artículo 5°—El Banco dará preferencia a las solicitudes de préstamo destinados a reparación y reconstrucción de edificios dañados por los últimos temblores. Esa preferencia durará tres meses a contar de la publicación del decreto que se reglamenta. Después de esos tres meses el Banco podrá hacer también préstamos para nuevas construcciones ciñéndose a los términos de la ley.
