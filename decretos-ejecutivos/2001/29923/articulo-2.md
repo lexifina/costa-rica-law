@@ -1,0 +1,1 @@
+Artículo 2º—Se entiende por IDSD un índice compuesto, que sintetiza siete indicadores sobre dimensiones importantes del ámbito social, como son salud, educación, nacimiento de hijos de madres solas y electricidad. Su rango de variación oscila entre 100,00 (mejor situación) y 0,00 (situación más desfavorable).
