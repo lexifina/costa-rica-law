@@ -13,3 +13,4 @@ Reforma la integración del Consejo de Seguridad Vial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-01-01 | la propia norma |
+| 2 | 1988-06-13 | Decreto Ejecutivo 18179 (1988-06-13) |
