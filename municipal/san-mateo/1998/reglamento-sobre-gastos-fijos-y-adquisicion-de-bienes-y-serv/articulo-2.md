@@ -1,0 +1,1 @@
+Artículo 2°—Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y servicios, así como para suscribir gastos fijos, convenios en los cuales la Municipalidad de San Mateo actúe como parte, hasta por la suma de ¢200.000,00 doscientos mil colones.
