@@ -16,3 +16,4 @@ Reglamento para la regulación y control del uso eficiente del combustible desti
 | 1 | 2002-02-15 | la propia norma |
 | 2 | 2002-02-15 | Reglamento 31 (2002-02-07) |
 | 3 | 2002-02-28 | Reglamento 61 (2002-02-28) |
+| 4 | 2002-03-07 | Reglamento 70 (2002-03-07) |
