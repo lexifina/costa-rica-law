@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 16: 1997: Barras de tiza destinadas a la escritura en p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1959-11-24 | la propia norma |
+| 2 | 1997-10-02 | Decreto Ejecutivo 26512 (1997-10-02) |
