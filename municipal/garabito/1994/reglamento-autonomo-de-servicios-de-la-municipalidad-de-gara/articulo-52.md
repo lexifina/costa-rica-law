@@ -1,0 +1,1 @@
+Artículo 52.—Las llegadas tardías injustificadas mayores de 15 minutos contados a partir de la hora de entrada, impedirán al trabajador laborar en la respectiva fracción de jornada y se calificará y computará como media ausencia para efectos de sanción y de no pago del salario.

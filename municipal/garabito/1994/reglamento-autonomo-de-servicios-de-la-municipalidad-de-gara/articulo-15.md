@@ -1,0 +1,1 @@
+Artículo 15.—La municipalidad podrá modificar transitoriamente, los establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan y que no cause grave perjuicio a los trabajadores. El cambio deberá ser comunicado a los trabajadores afectados con un mínimo de tres días de anticipación.

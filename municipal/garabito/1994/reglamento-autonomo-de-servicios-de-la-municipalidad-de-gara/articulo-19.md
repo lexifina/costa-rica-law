@@ -1,0 +1,1 @@
+Artículo 19.—Al acordarse un recargo total de funciones, el trabajador sustituto tiene derecho a recibir el sueldo base del puesto de categoría superior si aquel fuere mayor, el cual se reconocerá a partir de haber asumido tal recargo.

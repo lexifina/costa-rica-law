@@ -1,0 +1,2 @@
+Artículo 16.—Cuando necesidades imperiosas de la municipalidad lo requieran, los trabajadores quedan en la ineludible obligación de laborar horas extraordinarias, salvo impedimento grave y hasta por el máximo de horas permitidas por ley, sea, que la jornada ordinaria sumada a la extraordinaria, no podrá exceder de doce horas diarias.
+El patrono deberá comunicar a los trabajadores con la debida anticipación, la jornada extraordinaria que deberá laborar. Teniéndose la negativa injustificada a hacerlo, para efectos de sanción, como falta grave.

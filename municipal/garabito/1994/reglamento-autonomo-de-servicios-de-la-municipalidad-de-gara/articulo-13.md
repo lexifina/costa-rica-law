@@ -1,0 +1,2 @@
+Artículo 13.—En la Municipalidad se trabajará jornada continua, atendiendo al siguiente horario: para empleados administrativos: de lunes a viernes de 7:00 a.m. a 3:00 p.m. Tendrán derecho a treinta minutos para descanso y alimentación. Para empleados que presten servicios fuera de la Municipalidad: de lunes a viernes de 7:00 a.m. a 4:00 p.m. Tendrán derecho a una hora para descanso y alimentación.
+El Ejecutivo Municipal establecerá los horarios respectivos, en que los empleados disfrutarán el tiempo destinado para descanso y alimentación.

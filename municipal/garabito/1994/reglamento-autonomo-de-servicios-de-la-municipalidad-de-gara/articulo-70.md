@@ -1,0 +1,2 @@
+Artículo 70.—En defecto de disposiciones propias de este Reglamento, deberán tenerse como supletorias el Código Municipal, el Código de Trabajo y demás leyes, decretos y reglamentos conexos en la materia que estén en vigencia. Asimismo el manual descriptivo de puestos de la municipalidad.
+Este Reglamento fue aprobado en todas sus partes, por el Concejo Municipal de Garabito en sesión ordinaria N° 43, artículo V, inciso A, celebrada el 18 de noviembre de 1994.

@@ -1,0 +1,6 @@
+CAPÍTULO XVII
+DE LAS CONDICIONES DE SEGURIDAD E HIGIENE EN EL TRABAJO
+Artículo 56.—De conformidad con lo establecido en el artículo 273 del Código de Trabajo que declara de interés público lo referente a salud ocupacional, que tiene como finalidad promover y mantener el más alto nivel de bienestar físico, mental y social del trabajador en general, prevenir todo daño causado a la salud de este por las condiciones del trabajo: protegerlo en su empleo contra los riesgos resultantes de la existencia de agentes nocivos a la salud, colocar y mantener al trabajador en un empleo con sus aptitudes fisiológicas y sicológicas y, en síntesis, adoptar el trabajo al hombre y cada hombre a su tarea.
+La Municipalidad dispone adoptar las medidas necesarias para proteger eficazmente la salud ocupacional de sus trabajadores, conforme a los términos del Código de Trabajo, su reglamento, los reglamentos de salud ocupacional que se promulguen y las recomendaciones que en esta materia formulen tanto el Consejo de Salud Ocupacional como las autoridades de Inspección del Ministerio de Trabajo y Seguridad Social, Ministerio de Salud e Instituto Nacional de Seguros que garanticen:
+a) La protección de la salud y la preservación de la integridad física, moral y social de los trabajadores, y
+b)La prevención y control de los riesgos del trabajo.

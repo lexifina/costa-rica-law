@@ -1,0 +1,1 @@
+Artículo 65.—En caso de que el trabajador contraiga matrimonio o le sobrevenga el fallecimiento de alguno de sus padres, hijos, hermanos o cónyuge, la Municipalidad le concederá licencia con goce de salario hasta por una semana.

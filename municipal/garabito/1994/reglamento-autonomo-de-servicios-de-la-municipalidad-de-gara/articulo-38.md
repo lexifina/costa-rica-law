@@ -1,0 +1,1 @@
+Artículo 38.—Salvo los casos previstos en este reglamento la omisión de una marca a cualquiera de las horas de entrada o de la salida, hará presumir la inasistencia a la correspondiente fracción de jornada, siempre y cuando el trabajador no la justifique a más tardar en la fracción de jornada siguientes a aquella en la que el hecho sucedió.

@@ -1,0 +1,1 @@
+Artículo 40.—No obstante, lo dispuesto en el artículo anterior, dejará de imponerse la sanción disciplinaria si el trabajador que por error marcó la tarjeta, o aquel a quien le marcaron la suya informa del hecho a quien corresponde a más tardar en el curso de la jornada de trabajo siguiente a aquella en que sucedió.
