@@ -16,3 +16,4 @@ Reglamento Orgánico de la Junta de Protección Social
 | 1 | 1999-08-05 | la propia norma |
 | 2 | 2003-09-25 | Decreto Ejecutivo 31530 (2003-09-25) |
 | 3 | 2004-03-23 | Decreto Ejecutivo 31822 (2004-03-23) |
+| 4 | 2004-10-22 | Decreto Ejecutivo 32142 (2004-10-22) |
