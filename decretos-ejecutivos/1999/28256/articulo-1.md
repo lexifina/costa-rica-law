@@ -1,3 +1,4 @@
+(Derogado)
 PODER EJECUTIVO
 DECRETOS
 Nº 28256-MAG-MEIC-COMEX
@@ -18,9 +19,4 @@ Código SAC Descripción
 6º—Que la cláusula de salvaguarda especial agrícola (SGE) por precio es un mecanismo legitimo diferente del DAI y de protección reconocido en los acuerdos internacionales respectivos como un medio para facilitar la transición del comercio agropecuario mundial a esquemas de mercado más abiertos; aplicable aún a importaciones en tránsito siempre y cuando concurran las condiciones establecidas en el artículo 5º del acuerdo sobre la Agricultura.
 7º—Que mediante Resolución Administrativa Nº 062-99 de las dieciséis horas con treinta minutos del doce de noviembre de 1999 se dio por concluida la investigación de rigor, resolviéndose poner en vigor la SGE por precio a la brevedad posible en los productos de interés, de conformidad con las disposiciones del artículo 5.5 del acuerdo sobre Agricultura. Por tanto,
 Decretan
-Artículo 1º—Proceder a poner en vigor de conformidad con el DE. 23912-COMEX-MAG-MEIC, el mecanismo de Salvaguarda Especial por la vía del Precio (SGE) como medida diferente del arancel (DAI), en los productos clasificados en los incisos arancelarios código SAC siguientes:
-Código SAC Descripción
-1006.10.90 Arroz granza (con cáscara), otros
-1006.20.00 Arroz descascarillado
-1006.30.00 Semiblanqueado o pulido
-(Prorrogado por el artículo 1 del Decreto Ejecutivo Nº 30068 del 20 de Noviembre del 2001)
+Artículo 1º—DEROGADO por el artículo 1 del Decreto Ejecutivo N° 30262 de 18 de marzo del 2002.
