@@ -1,0 +1,1 @@
+Art 3° El Juez de 1° Instancia civil de la referida Provincia disfrutará del todo de los derechos que produzca el Juzgado, debiendo ser de su cuenta los gastos de alquiler de oficinas y portero, más el escribiente será pagado por el Tesoro Nacional.
