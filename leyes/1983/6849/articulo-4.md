@@ -1,4 +1,4 @@
-Artículo 4º.- Los ingresos provenientes del gravamen al cemento
+ARTICULO 4º.- Los ingresos provenientes del gravamen al cemento
 producido en la provincia de Guanacaste serán distribuidos, por partes
 iguales, entre las municipalidades de esta provincia.
 Lo recaudado por el impuesto a la producción de cemento en la
