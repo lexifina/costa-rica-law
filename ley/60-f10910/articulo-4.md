@@ -1,0 +1,2 @@
+Art. 4° El Juez de Minas arreglará sus procedimientos á las prescripciones de la ley n° 9 de 23 de Setiembre de 1862: de sus fallos podrán interponer- se los recursos que la misma ley establece, ante el Juez de Hacienda y la Corte Suprema de Justicia.
+Único. En los casos de impedimento y escusa del Juez de Minas, conocerá de los asuntos que la presente ley le atribuye, el Alcalde Constitucional de San Mateo

@@ -1,0 +1,1 @@
+Art. 3° Son tambien del privativo conocimiento del referido Juez, en terminacion verbal, los juicios criminales sobre cualquier delito que se cometa contra las Ordenanzas respectivas, con tal de que la pena que deba imponerse al reo no exceda de un año de duracion ó de doscientos cincuenta pesos de multa.
