@@ -14,3 +14,4 @@ Disposiciones relativas a Certificado médico de aptitud física para trabajo ma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-02-03 | la propia norma |
+| 2 | 2003-12-12 | Directriz 29 (2003-12-12) |
