@@ -1,0 +1,1 @@
+Art. 2°.-Si el funcionario administrativo que se hallare en cualquiera de los casos expresados en el artículo anterior no se declara impedido, el interesado podrá recusarlo y si ello no asintiere, de la providencia negativa podrá apelar para ante el inmediato superior.

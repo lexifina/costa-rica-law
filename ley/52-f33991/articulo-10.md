@@ -1,0 +1,3 @@
+Art. 10.-Solo podrá recusar á un funcionario del orden administrativo la parte á quien pueda perjudicar la causal que motiva el impedimento; pero no aquella á quien esa causal puede favorecer.
+AL PODE EJECUTIVO
+Dado en el salón de sesiones del Palacio Nacional, en San José, á los doce días del mes de julio de mil ochocientos ochenta y nueve. MANL. ARAGÓN. – F. AGUILAR B., Secretario. – FELIX GONZÁLEZ, -Secretario. Palacio Presidencial, -San José á trece de julio de mil ochocientos ochenta y nueve. -Ejecútese- ASCENCIÓN ESQUIVEL- El Secretario de Estado en el despacho de Gobernación – TOBÍAS ZÚÑIGA.

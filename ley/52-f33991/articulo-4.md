@@ -1,0 +1,1 @@
+Art. 4°.-De los actos de los Jefes Políticos y Agentes de Policía, habrá recurso de apelación para ante los Gobernadores; y de los actos de éstos y de los de las Municipalidades, para ante el Poder Ejecutivo.
