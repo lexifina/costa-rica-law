@@ -1,0 +1,1 @@
+Artículo 17.—Derogatoria de otras disposiciones. Este Reglamento deroga los acuerdos tomados en sesiones de Junta Directiva Nacional Nº 2034 del 31 de marzo de 1987 y Nº 3084 del 9 de mayo de 1995, así como cualquier otra disposición emitida por el Banco sobre arreglos de pagos de cuotas obrero-patronales que se opongan.

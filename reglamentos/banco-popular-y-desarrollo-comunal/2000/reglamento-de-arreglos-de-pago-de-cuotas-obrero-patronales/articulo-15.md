@@ -1,0 +1,1 @@
+Artículo 15.—Formalización de arreglos de pago. Tanto la solicitud como el arreglo o compromiso de pago, deberán hacerse constar en documento en el que debe constar la firma del patrono o su representante legal.

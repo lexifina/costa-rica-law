@@ -1,0 +1,1 @@
+Artículo 2º—Dependencias autorizadas para resolver arreglos de pago. Los arreglos de pago se resolverán por las unidades administrativas que determine la Gerencia General, siempre y cuando el órgano resolutivo no tenga rango inferior al de un Coordinador de Proceso.

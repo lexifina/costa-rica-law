@@ -1,0 +1,4 @@
+CAPÍTULO III
+Obligaciones prescritas incobrables
+Artículo 11.—Obligaciones con plazos de prescripción operado o con imposibilidad de cobro. Amparado en los principios de oportunidad y discrecionalidad contenidos en los artículos 15, 16, y 17 de la Ley General de Administración Pública, el Banco podrá cobrar el principal y un año de multas o de intereses y gastos, en obligaciones en trámite de cobro judicial o administrativo, que tengan operados los plazos de prescripción o que exista imposibilidad de cobro de la deuda, de conformidad con lo dispuesto en el artículo 3º, inciso b) del Reglamento para la liquidación por la cuenta de incobrable de operaciones de crédito y cuotas obrero-patronales. A criterio razonado y por escrito del nivel resolutivo correspondiente, se podrá exonerar el pago de honorarios y gastos.
+En tales casos se dará por terminado el trámite de cobro.

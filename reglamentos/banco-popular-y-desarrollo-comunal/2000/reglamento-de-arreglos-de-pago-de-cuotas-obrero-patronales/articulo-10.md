@@ -1,0 +1,1 @@
+Artículo 10.—Cobro de multas en períodos con más de 5 años de atraso. En casos muy calificados, el nivel resolutivo podrá cobrar un máximo de 5 años de multas, en aquellos casos de períodos que sin encontrarse prescritos o incobrables tuvieran más de 5 años de atraso.
