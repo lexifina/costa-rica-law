@@ -1,0 +1,1 @@
+Artículo 19.—Las garantías fiduciarias ofrecidas por las personas jurídicas serán valoradas en conjunto con el resto de las variables del crédito, considerando para ello la situación patrimonial del garante, así como sus antecedentes crediticios y capacidad de pago.

@@ -1,0 +1,1 @@
+Artículo 51.—En caso de emergencia declarada por el órgano competente señalado por ley, la Junta Directiva Nacional podrá crear líneas de crédito y autorizar readecuaciones, excepcionando el presente Reglamento en los términos que se indique, en atención a la naturaleza y gravedad de la situación. Estas medidas serán de carácter temporal.

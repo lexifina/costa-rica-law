@@ -1,0 +1,1 @@
+Artículo 14.—En caso de pignoración de acciones, el Banco se reservará el derecho de voto en la asamblea de accionistas, tanto ordinarias como extraordinarias. Corresponderá a la Gerencia General designar al representante del Banco para tales efectos.

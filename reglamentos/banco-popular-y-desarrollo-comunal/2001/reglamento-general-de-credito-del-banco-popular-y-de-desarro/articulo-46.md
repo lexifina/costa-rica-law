@@ -1,0 +1,1 @@
+Artículo 46.—Para todo lo relacionado con arreglos de pago, el Banco Popular se regirá por el establecido en el "Reglamento de arreglos de pago de operaciones de crédito del Banco Popular y de Desarrollo Comunal".

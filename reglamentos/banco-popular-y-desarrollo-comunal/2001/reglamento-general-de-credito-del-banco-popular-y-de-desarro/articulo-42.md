@@ -1,0 +1,1 @@
+Artículo 42.—Los formatos utilizados en los documentos de formalización de los créditos deberán ser uniformes en todas las oficinas del Banco. La Gerencia General será la encargada de establecer dichos formatos.

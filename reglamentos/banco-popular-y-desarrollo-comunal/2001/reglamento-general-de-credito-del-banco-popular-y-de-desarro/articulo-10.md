@@ -1,0 +1,1 @@
+Artículo 10.—En caso de cédulas hipotecarias, sólo se aceptarán vencidas y por la emisión total de las cédulas hipotecarias a que se refiere el grado. En tales casos, el plazo en el que se otorgará el crédito será hasta un año antes de su prescripción, salvo que éste sea interrumpido legalmente, acto que deberá autorizar el deudor de previo o durante la formalización del crédito.
