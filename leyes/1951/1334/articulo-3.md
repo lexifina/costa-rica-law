@@ -1,0 +1,1 @@
+Artículo 3º.- Se destina para su sostenimiento la partida señalada en el Artículo 217-1, Capítulo VII-A, Título V de la ley Nº 1299 de 8 de junio de 1951 (Modificación a la Ley de Presupuesto General de Ingresos y Egresos para 1951.)
