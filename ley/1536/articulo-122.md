@@ -1,4 +1,4 @@
-Obligación de comunicar al Tribunal Supremo de Elecciones el resultado de la elección y de entregar la documentación a la Junta Cantonal.
-Artículo 122.-Los Presidentes de las Juntas Receptoras, apenas haya sido entregada la documentación electoral a la Junta Cantonal , están obligados a comunicar esa circunstancia al Tribunal Supremo de Elecciones con expresión clara, en letras, del número de votos emitidos a favor de cada partido ante la respectiva Junta.
-Tal comunicación se hará por la vía más rápida que use la Dirección Nacional de Comunicaciones. El Presidente de una Junta Receptora es personalmente responsable de la fidelidad del mensaje y de la presentación del mismo a la oficina transmisora.
-(Así reformado por el artículo 1° de la ley N° 6833 del 23 de diciembre de 1982)
+Artículo 122.-Comunicación del resultado de la elección
+Los Presidentes de las Juntas Receptoras estarán obligados a comunicar el resultado de la elección, a la mayor brevedad posible, al Tribunal Supremo de Elecciones, con expresión clara, en letras, del número de votos emitidos a favor de cada partido ante la Junta. Esta comunicación se realizará por la vía más rápida con que se cuente y que el Tribunal disponga para ese efecto. El Presidente de la Junta Receptora será responsable, personalmente, de la fidelidad del mensaje y de su entrega.
+Las instituciones estatales encargadas de las comunicaciones deberán prestar, al Tribunal Supremo de Elecciones, la colaboración que requiera para transmitir ágil y rápidamente el resultado de las elecciones.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)
