@@ -1,0 +1,1 @@
+Artículo 8°-Quedan así ampliados los artículos respectivos del Reglamento de Policía de I849, y modificadas las disposiciones del Código Penal respecto de los hechos previstos por esta ley y las reglas contenidas en el decreto N° 18 de 9 de junio de 19I5.

@@ -1,0 +1,1 @@
+Artículo 5°-La promoción de reuniones que amenacen seguramente la seguridad pública, así como la asistencia a ellas, si no se diere explicaciones satisfactoria de su legítimo objeto, se reprimirán con sesenta días de arresto a cien días de confinamiento.
