@@ -1,3 +1,12 @@
-Artículo 14.—La Administración de Grandes Contribuyentes
-1. La Administración de Grandes Contribuyentes desarrollará sus funciones en todo el territorio nacional, en relación con los contribuyentes de mayor significación fiscal, los cuales serán seleccionados aplicando los criterios establecidos mediante resolución de la Dirección General debidamente publicada.
-2. El Gerente de esta administración comunicará a los sujetos pasivos su adscripción a la misma con al menos un mes de antelación respecto a la fecha en que haya de surtir efectos.
+Artículo 14.—Las administraciones tributarias
+1. Las administraciones tributarias desarrollarán todas las funciones de índole ejecutiva atribuidas a la institución, con excepción de las que por este reglamento o por otra disposición expresa se asignen a un órgano diferente.
+2. En particular, desempeñarán las siguientes funciones:
+a) Llevar a cabo las actuaciones administrativas de cobro voluntario, moroso y ejecutivo de las obligaciones tributarias, las de registro, información y asistencia a los contribuyentes y las de control del cumplimiento de las obligaciones, de acuerdo con los planes, directrices e instrucciones establecidos por la División de Recaudación y Atención al Contribuyente.
+b) Ejecutar los planes y programas de auditoría, inspección e investigación tributaria, de acuerdo con las directrices e instrucciones dictadas por la División de Fiscalización.
+c) Preparar los proyectos de resolución de determinación de las obligaciones tributarias y los de imposición de sanciones administrativas, de acuerdo con los criterios interpretativos y los procedimientos dictados por la División de Normativa.
+d) Atender los actos que el artículo 146 del Código de Normas y Procedimientos asigna al cuerpo especializado.
+e) Ejecutar los lineamientos de la División de Informática en cuanto al procesamiento de datos, el mantenimiento de los sistemas de información y la custodia y conservación de los equipos de cómputo.
+f) Realizar las valoraciones de bienes muebles e inmuebles atribuidas a la institución, siguiendo las directrices e instrucciones del Órgano de Normalización Técnica en Valoración de Bienes.
+3. Cada administración ejercerá sus competencias en relación con los contribuyentes y demás obligados tributarios que le correspondan de acuerdo con los criterios fijados en los dos artículos siguientes. No obstante, al objeto de lograr el mejor aprovechamiento de los recursos humanos y materiales disponibles, el Director General podrá acordar que, de modo transitorio o continuado, alguna o algunas de las administraciones asuman determinadas funciones en relación con contribuyentes asignados a otra u otras de ellas, cuando la naturaleza o el volumen de la tareas a realizar, las especialidades del asunto o razones geográficas así lo aconsejen.
+4. Cada Administración estará a cargo de un Gerente y su estructura y funcionamiento internos serán aprobados mediante resolución de la Dirección General.
+(Así corrida su numeración por el arículo 2° del Decreto Ejecutivo N° 29812, del 5 de setiembre del 2001, el cual pasó de ser del artículo 13 al artículo 14)

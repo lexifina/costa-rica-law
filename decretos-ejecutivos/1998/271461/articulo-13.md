@@ -1,11 +1,8 @@
-Artículo 13.—Las administraciones tributarias
-1. Las administraciones tributarias desarrollarán todas las funciones de índole ejecutiva atribuidas a la institución, con excepción de las que por este reglamento o por otra disposición expresa se asignen a un órgano diferente.
-2. En particular, desempeñarán las siguientes funciones:
-a) Llevar a cabo las actuaciones administrativas de cobro voluntario, moroso y ejecutivo de las obligaciones tributarias, las de registro, información y asistencia a los contribuyentes y las de control del cumplimiento de las obligaciones, de acuerdo con los planes, directrices e instrucciones establecidos por la División de Recaudación y Atención al Contribuyente.
-b) Ejecutar los planes y programas de auditoría, inspección e investigación tributaria, de acuerdo con las directrices e instrucciones dictadas por la División de Fiscalización.
-c) Preparar los proyectos de resolución de determinación de las obligaciones tributarias y los de imposición de sanciones administrativas, de acuerdo con los criterios interpretativos y los procedimientos dictados por la División de Normativa.
-d) Atender los actos que el artículo 146 del Código de Normas y Procedimientos asigna al cuerpo especializado.
-e) Ejecutar los lineamientos de la División de Informática en cuanto al procesamiento de datos, el mantenimiento de los sistemas de información y la custodia y conservación de los equipos de cómputo.
-f) Realizar las valoraciones de bienes muebles e inmuebles atribuidas a la institución, siguiendo las directrices e instrucciones del Órgano de Normalización Técnica en Valoración de Bienes.
-3. Cada administración ejercerá sus competencias en relación con los contribuyentes y demás obligados tributarios que le correspondan de acuerdo con los criterios fijados en los dos artículos siguientes. No obstante, al objeto de lograr el mejor aprovechamiento de los recursos humanos y materiales disponibles, el Director General podrá acordar que, de modo transitorio o continuado, alguna o algunas de las administraciones asuman determinadas funciones en relación con contribuyentes asignados a otra u otras de ellas, cuando la naturaleza o el volumen de la tareas a realizar, las especialidades del asunto o razones geográficas así lo aconsejen.
-4. Cada Administración estará a cargo de un Gerente y su estructura y funcionamiento internos serán aprobados mediante resolución de la Dirección General.
+Artículo 13.—El Órgano de Normalización Técnica en Valoración de Bienes
+1. Operando en régimen de desconcentración mínima, el Órgano desempeñará las siguientes funciones referentes a la administración del Impuesto sobre Bienes Inmuebles:
+a) Establecer las disposiciones generales de valoración para el uso común de las municipalidades.
+b) Mantener coordinación estricta con las municipalidades y el Catastro Nacional, para desarrollar en forma óptima la valoración.
+c) Suministrar a las municipalidades los métodos de depreciación, las tasas de vida útil totales y estimadas, Tos valores de las edificaciones según los tipos, los métodos para valorar terrenos, factores técnicos y económicos por considerar en cuanto a topografía, ubicación, descripción, equipamiento urbano y servicios públicos del terreno.
+d) Analizar y recomendar la calidad de los avalúos realizados por las municipalidades, con el objeto de aplicar las correcciones necesarias.
+2. Operando en régimen administrativo ordinario, corresponderá al Órgano programar y dirigir las actuaciones de valoración que las leyes atribuyan a la Dirección General de Tributación.
+(Así corrida su numeración por el arículo 2° del Decreto Ejecutivo N° 29812, del 5 de setiembre del 2001, el cual pasó de ser del artículo 12 al artículo 13)
