@@ -1,0 +1,3 @@
+Artículo 19
+1.—La presente Convención entrará en vigor el trigésimo día a partir de la fecha de depósito del vigésimo primer instrumento de ratificación, aceptación o aprobación, en poder del depositario.
+2.—Para cada uno de los Estados que ratifiquen, acepten o aprueben la presente Convención o se adhieran a ella después de la fecha de depósito del vigésimo primer instrumento de ratificación, aceptación o aprobación, la presente Convención entrará en vigor el trigésimo día a partir de la fecha en que dicho Estado haya depositado su instrumento de ratificación, aceptación, aprobación o adhesión.

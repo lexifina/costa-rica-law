@@ -1,0 +1,2 @@
+Artículo 9
+El Estado Parte en cuyo territorio se encuentre el presunto delincuente, si considera que las circunstancias lo justifican, tomará las medidas apropiadas, inclusive la detención, de acuerdo con su legislación nacional, para asegurar su presencia a efectos de procesamiento o extradición. Las medidas tomadas en virtud del presente artículo se notificarán sin demora a los Estados que hayan de establecer la jurisdicción según el artículo 8 y, cuando proceda, a todos los demás Estados interesados.

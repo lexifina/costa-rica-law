@@ -1,0 +1,2 @@
+Artículo 3
+Cada Estado Parte adoptará medidas apropiadas en el marco de su legislación nacional y de conformidad con el derecho internacional para asegurarse, en la mayor medida posible, de que, durante el transporte nuclear internacional, los materiales nucleares que se encuentren en su territorio, o a bordo de un buque o de una aeronave bajo su jurisdicción en tanto que dicho buque o dicha aeronave estén dedicados al transporte a ese Estado o desde ese Estado, quedan protegidos a los niveles descritos en el Anexo I.

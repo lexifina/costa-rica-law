@@ -1,0 +1,4 @@
+Artículo 2
+1.—La presente Convención se aplicará a los materiales nucleares utilizados con fines pacíficos, cuando sean objeto de transporte nuclear internacional.
+2.—Con excepción de los artículos 3 y 4, y del párrafo 3 del artículo 5, la presente Convención se aplicará también a los materiales nucleares utilizados con fines pacíficos, cuando sean objeto de utilización, almacenamiento y transporte nacionales.
+3.—Independientemente de los compromisos que los Estados Parte hayan asumido explícitamente con arreglo a los artículos indicados en el párrafo 2 del presente artículo en lo que respecta a los materiales nucleares utilizados con fines pacíficos cuando sean objeto de utilización, almacenamiento y transporte nacionales, ninguna disposición de la presente Convención podrá interpretarse de modo que afecte a los derechos soberanos en un Estado con respecto a la utilización, almacenamiento y transporte nacionales de dichos materiales nucleares.
