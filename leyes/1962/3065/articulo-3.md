@@ -1,0 +1,1 @@
+Artículo 3°-Las Juntas Directivas de las Instituciones Autónomas no podrán celebrar más de doce sesiones remuneradas por mes, incluyendo ordinarias y extraordinarias, estas cuando sean absolutamente necesarias.

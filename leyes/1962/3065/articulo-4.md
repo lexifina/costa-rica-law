@@ -1,0 +1,1 @@
+Artículo 4°- Los reglamentos de orden general -no interno- y sus reformas, que emitan en uso de sus atribuciones las Juntas Directivas de las Instituciones Autónomas del Estado, deberán ser publicados en el Diario Oficial para que puedan surtir sus efectos.
