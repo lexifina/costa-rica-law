@@ -1,0 +1,1 @@
+Art 33°. - Las sesiones de la Corte serán publicadas, a no ser que no previamente se declare por ella misma que el asunto se trate a puerta cerrada, demandarlo así la decencia u otra circunstancia imperiosa.

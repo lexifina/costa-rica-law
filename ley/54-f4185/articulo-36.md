@@ -1,0 +1,1 @@
+Art 36°. - Las partes alegarán en píe y fuera de la barra, pero si fuesen letrado se les dará asiento dentro de la barra y podrán alegar. Igual deferencia se usará cuando alguna persona constituida en alta dignidad o caracterizada se presente a alegar ante el Tribunal.

@@ -1,0 +1,1 @@
+Art 31°. - Abierta la sesión ninguno de los Magistrados se permitirá salir sino es por asunto grave a juicio del Regente, ni se tratarán asuntos estraños, debiendo observarse en las discusiones y demás actos, la circunspección y decoro conveniente.

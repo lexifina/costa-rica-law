@@ -1,0 +1,1 @@
+Art 40°.- Es a cargo de esta Corporación el mantenimiento de la Academia de Derecho teórico practico, cuyo Presidente será nombrado por ella a pluralidad de votos cada año. Ella formará así mismo, sus Estatutos y los de la Académica y los presentará al Gobierno para sus aprobaciones.
