@@ -1,0 +1,3 @@
+Artículo 3º.- Recodifíquese el Decreto Nº 22494-H, publicado
+en "La Gaceta" Nº 181 de 22 de setiembre de 1993, en la forma que
+a continuación se detalla: ...
