@@ -1,0 +1,1 @@
+Art 2° Estas se verificarán conforme a la ley de 20 de junio de 1870 y demás leyes sobre la materia que esta deja vigentes en cuanto no se oponga a los prescrito en el Título 6° de la Constitución y de la presente ley.
