@@ -1,0 +1,1 @@
+Artículo 22.—Del deber de dar a conocer el número telefónico. Ningún funcionario, salvo el Gerente General, el Subgerente y el Auditor, podrá negarse a dar a conocer el número del teléfono celular que le ha sido asignado. Ante el requerimiento de otro funcionario o de un usuario, el empleado con teléfono celular deberá dar a conocer el número donde puede ser localizado.

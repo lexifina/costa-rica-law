@@ -1,0 +1,2 @@
+Artículo 26.—Normas aplicables. En lo relativo al uso, conservación y devolución del radiolocalizadores, se aplicará lo dispuesto en el capítulo III, del Título Segundo de este reglamento.
+En caso de devolución, temporal o definitiva del radiolocalizador, será el funcionario que lo asignó, quien decida si lo reasigna o lo devuelve a la empresa de localizadores, cuando esta sea la propietaria, o al Almacén Central, cuando el equipo pertenezca a JASEC.

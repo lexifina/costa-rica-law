@@ -1,0 +1,2 @@
+Artículo 14.—De la devolución por orden de la Gerencia. También se deberá devolver, definitiva o temporalmente, el teléfono celular, si la Gerencia General, discrecionalmente, así lo dispone.
+La Gerencia General puede retirar su uso en cualquier momento sea por que desaparezca la necesidad institucional, por reiterado mal uso de la línea telefónica, por incumplimiento a las disposiciones de este Reglamento, por limitaciones presupuestarias o por cualquier otra razón que discrecionalmente determine.

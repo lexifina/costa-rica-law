@@ -1,0 +1,2 @@
+Artículo 13.—De la devolución o retiro definitivo del teléfono celular. En caso que el funcionario termine su relación laboral, sea por despido o renuncia, o por traslado definitivo a otra unidad o funciones donde no se justifique utilizar teléfono celular, deberá devolverlo al Almacén Central, en perfecto estado de funcionamiento. El Almacén Central le extenderá el recibo correspondiente.
+El Gerente General de JASEC decidirá si solicita la cancelación del servicio o lo reasigna al funcionario que sustituye al que se retira.

@@ -1,0 +1,2 @@
+Artículo 31.—Del pago del servicio de radilocalizadores. JASEC contratará todos los servicios de radiolocalización con una sola empresa a quien directamente se le cancelará la facturación mensual de los servicios contratados, según la tarifa vigente.
+La empresa de radiolocalizadores se seleccionará mediante concurso y la relación contractual se regirá por lo dispuesto en la orden de compra, en la oferta del contratista y en la Ley de Contratación Administrativa y su reglamento.

@@ -1,0 +1,3 @@
+Artículo 6º—Deber de asumir el daño patrimonial. Si derivada de la asignación del equipo de telefonía celular y/o radiolocalizador se generara alguna clase de daño patrimonial a JASEC o a un tercero de buena fe, se procederá de la siguiente manera:
+a) La administración determinará el monto de la deuda y se lo informará al funcionario, quien si está de acuerdo, autorizará su cancelación mediante las deducciones convenidas, las cuales no podrán exceder los tres tractos mensuales. El trabajador o funcionario podrá efectuar la cancelación en un solo pago.
+b) Si el funcionario no estuviere de acuerdo con que el monto de lo adeudado se le deduzca de conformidad con inciso anterior, la administración procederá a certificar dicho monto y establecer el cobro respectivo.

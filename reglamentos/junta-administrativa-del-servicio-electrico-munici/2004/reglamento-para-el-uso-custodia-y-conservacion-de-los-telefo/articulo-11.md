@@ -1,0 +1,2 @@
+Artículo 11.—Del deber de marcar la herramienta como activo de JASEC. Como herramienta que es, el teléfono celular, deberá ser registrado bajo un número de activo y cargado a la cuenta del funcionario respectivo.
+El número de activo y las siglas de JASEC serán marcadas en el respectivo teléfono. Cuando estas marcas hayan sido consignadas en una parte reemplazable del teléfono y dicho reemplazo se produzca, deberá llevarse el teléfono al Almacén Central, para que nuevamente sea identificado como activo de JASEC y se registren las nuevas características.
