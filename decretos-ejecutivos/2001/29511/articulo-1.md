@@ -153,3 +153,5 @@ Para ajustarse a los límites establecidos en este artículo, las entidades púb
 (Modificado el límite de gasto presupuestario y efectivo para el 2002, del Teatro Popular Melico Salazar, por el artículo 1 del Decreto Ejecutivo N° 30659 de 6 de agosto del 2002)
 (Modificado el límite de gasto presupuestario y efectivo para el 2002, del Centro Costarricense de producción Cinematográfica, por el artículo 1 del Decreto Ejecutivo N° 30660 de 6 de agosto del 2002)
 (Modificado el límite de gasto presupuestario y efectivo para el 2002, de la Orquesta Sinfónica Nacional, por el artículo 1 del Decreto Ejecutivo N° 30658 de 6 de agosto del 2002)
+(Modificado el límite de gasto presupuestario y efectivo para el 2002, del Colegio Universitario de Cartago, por el artículo 1 del Decreto Ejecutivo N° 30682 de 19 de agosto del 2002)
+(Modificado el límite de gasto presupuestario y efectivo para el 2002, de la Comisión Nacional de Préstamoa para la Educación, por el artículo 1 del Decreto Ejecutivo N° 30683 de 19 de agosto del 2002)
