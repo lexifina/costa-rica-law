@@ -1,4 +1,4 @@
-Artículo 113.- El registro de todo medicamento se hará ante el
+ARTICULO 113.- El registro de todo medicamento se hará ante el
 Ministerio donde se practicará la inscripción cuando proceda según las
 disposiciones reglamentarias correspondientes.
 Dicha inscripción estará a cargo de un Organismo Técnico cuya

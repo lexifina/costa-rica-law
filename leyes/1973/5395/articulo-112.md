@@ -1,4 +1,4 @@
-Artículo 112.- Toda persona física o jurídica sólo podrá importar,
+ARTICULO 112.- Toda persona física o jurídica sólo podrá importar,
 fabricar, manipular, comerciar o usar medicamentos registrados en el
 Ministerio y cuyo registro haya satisfecho las exigencias reglamentarias,
 en especial las relativas a: la naturaleza y cantidad de la información

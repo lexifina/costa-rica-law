@@ -1,4 +1,4 @@
-Artículo 212.- Los alimentos deben ser producidos, manipulados,
+ARTICULO 212.- Los alimentos deben ser producidos, manipulados,
 transportados, conservados, almacenados, expendidos y suministrados al
 público por las personas que se ocupen de ello, en condiciones higiénicas
 y sanitarias y con sujeción estricta a los requisitos y exigencias

@@ -1,4 +1,4 @@
-Artículo 270.- La construcción de pozos privados y la utilización de
+ARTICULO 270.- La construcción de pozos privados y la utilización de
 sistemas privados de abastecimientos de agua para el uso y consumo humano
 en las áreas del país donde existe acueducto público en funciones, deberá
 ser autorizado por el Ministerio conforme al reglamento respectivo.

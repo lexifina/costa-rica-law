@@ -1,4 +1,4 @@
-Artículo 360.- El decomiso podrá ir seguido de la desnaturalización
+ARTICULO 360.- El decomiso podrá ir seguido de la desnaturalización
 o destrucción de los bienes, que según corresponda, de acuerdo a la
 naturaleza y gravedad de la infracción o del peligro que tales bienes
 entrañen para la salud y seguridad de las personas.

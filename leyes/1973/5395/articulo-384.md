@@ -1,4 +1,4 @@
-Artículo 384.- Cuando la infracción haya sido cometida en un
+ARTICULO 384.- Cuando la infracción haya sido cometida en un
 establecimiento, empresa o negocio que sea propiedad o que explote o
 administre a cualquier título una entidad jurídica, serán responsables
 penalmente los administradores, gerentes o representantes legales que por

@@ -1,4 +1,4 @@
-Artículo 282.- Los propietarios de terrenos desocupados en áreas
+ARTICULO 282.- Los propietarios de terrenos desocupados en áreas
 urbanas están obligados a mantenerlos cerrados y en buenas condiciones
 higiénicas.
 Quedarán obligados, asimismo, a realizar las prácticas u obras,

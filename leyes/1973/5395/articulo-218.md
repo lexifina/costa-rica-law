@@ -1,4 +1,4 @@
-Artículo 218.- Queda prohibido a las autoridades competentes otorgar
+ARTICULO 218.- Queda prohibido a las autoridades competentes otorgar
 patentes comerciales o industriales o cualquier clase de permiso a
 establecimientos de alimentos que no hayan obtenido previamente la
 correspondiente autorización sanitaria de instalación extendida por le

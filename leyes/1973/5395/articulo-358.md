@@ -1,4 +1,4 @@
-Artículo 358.- La retención consiste en mantener bajo prohibición de
+ARTICULO 358.- La retención consiste en mantener bajo prohibición de
 traslado, uso o consumo, en condiciones de seguridad y bajo sellos de la
 autoridad de salud, bienes de dudosa naturaleza o condición respecto de
 los cuales haya antecedentes para estimar su uso o consumo nocivos o

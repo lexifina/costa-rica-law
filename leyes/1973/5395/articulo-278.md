@@ -1,7 +1,7 @@
 CAPITULO II
 De las obligaciones y restricciones relativas a la recolección
 y eliminación de residuos sólidos
-Artículo 278.- Todos los desechos sólidos que provengan de las
+ARTICULO 278.- Todos los desechos sólidos que provengan de las
 actividades corrientes personales, familiares o de la comunidad y de
 operaciones agrícolas, ganaderas, industriales o comerciales, deberán ser
 separados, recolectados, acumulados, utilizados cuando proceda y sujetos

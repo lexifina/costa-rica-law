@@ -1,9 +1,2 @@
-Artículo 128.- Se prohibe a toda persona la importación de cualquier
-droga estupefaciente y del los medicamentos, que por uso puedan producir
-dependencia física o psíquica en las personas, incluidos en el
-correspondiente decreto restrictivo que dicte el Poder Ejecutivo.
-Tal importación será de atribución exclusiva del Ministerio y la
-ejercerá directamente libre de todo impuesto, carga y gravamen, limitando
-el monto de las importaciones a las necesidades médicas y a la
-investigación científica del país y, en todo caso, de acuerdo con las
-convenciones internacionales que el Gobierno haya suscrito o ratificado.
+ARTICULO 128.- Se prohibe a toda persona la importación de cualquier droga estupefaciente y del los medicamentos, que por uso puedan producir dependencia física o psíquica en las personas, incluidos en el correspondiente decreto restrictivo que dicte el Poder Ejecutivo.
+Tal importación será de atribución exclusiva del Ministerio y la ejercerá directamente libre de todo impuesto, carga y gravamen, limitando el monto de las importaciones a las necesidades médicas y a la investigación científica del país y, en todo caso, de acuerdo con las convenciones internacionales que el Gobierno haya suscrito o ratificado.

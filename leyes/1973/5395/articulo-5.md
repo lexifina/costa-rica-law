@@ -1,4 +1,4 @@
-Artículo 5º.- Toda persona física o jurídica, está obligada a
+ARTICULO 5º.- Toda persona física o jurídica, está obligada a
 proporcionar de manera cierta y oportuna los datos que el funcionario de
 salud competente le solicite para los efectos de la elaboración, análisis
 y difusión de las estadísticas vitales y de salud y demás estudios

@@ -2,18 +2,9 @@ PARRAFO III
 De los medicamentos, de los requisitos para operar establecimientos
 farmacéuticos y de las restricciones a que quedan sujetas tales
 actividades
-Artículo 95.- Los establecimientos farmacéuticos son:
-a) Farmacia, aquel que se dedica a la preparación de recetas y al
-expendio y suministro directo al público de medicamentos.
-b) Droguería, aquel que opera en la importación, depósito, distribución
-y venta al por mayor de medicamentos, quedando prohibido realizar en
-éstos el suministro directo al público y la preparación de recetas.
-c) Laboratorio Farmacéutico o Fábrica Farmacéutica: aquel que se dedica
-a la manipulación o elaboración de medicamentos, de materias primas cuyo
-destino exclusivo sea la elaboración o preparación de los mismos y a la
-manipulación o elaboración de cosméticos; y
-d) Botiquín, el pequeño establecimiento destinado, en forma
-restringida, únicamente al suministro de medicamentos que el Ministerio
-autorice, oyendo previamente el criterio del Colegio de Farmacéuticos.
-En el caso de medicamentos para uso veterinario, será necesario además,
-oír previamente el criterio del Colegio de Médicos Veterinarios.
+ARTICULO 95.- Los establecimientos farmacéuticos son:
+a) Farmacia, aquel que se dedica a la preparación de recetas y al expendio y suministro directo al público de medicamentos.
+b) Droguería, aquel que opera en la importación, depósito, distribución y venta al por mayor de medicamentos, quedando prohibido realizar en éstos el suministro directo al público y la preparación de recetas.
+c) Laboratorio Farmacéutico o Fábrica Farmacéutica: aquel que se dedica a la manipulación o elaboración de medicamentos, de materias primas cuyo destino exclusivo sea la elaboración o preparación de los mismos y a la manipulación o elaboración de cosméticos; y
+d) Botiquín, el pequeño establecimiento destinado, en forma restringida, únicamente al suministro de medicamentos que el Ministerio autorice, oyendo previamente el criterio del Colegio de Farmacéuticos. En el caso de medicamentos para uso veterinario, será necesario además, oír previamente el criterio del Colegio de Médicos Veterinarios.
+(Nota de Sinalevi: Mediante dictamen N° C-131-2011 del 06/06/2011 se interpretó que de conformidad con lo dispuesto en los artículos 101, 95 y 120 de la Ley General de Salud . La interpretación que la Procuraduría ha dado al artículo 120 es discutida por el Colegio de Farmacéuticos. De allí la importancia de establecer cuál es su alcance. En concreto, qué debe entenderse por medicamento de venta libre. Por lo que la interpretación literal de esos artículos 101 y 95 nos llevaría a afirmar que la venta de medicamentos, incluidos los que no requieren receta médica, solo puede realizarse por medio de farmacias y botiquines y ello en el tanto en que se encuentren autorizados y registrados por el Ministerio de Salud. Consecuentemente, que los medicamentos de venta libre no constituirían una excepción a lo dispuesto en el artículo 101 de mérito, afirmación presente en el dictamen C-172-2009 que se solicita reconsiderar).

@@ -1,4 +1,4 @@
-Artículo 82.- La producción, abastecimiento y suministro adecuado y
+ARTICULO 82.- La producción, abastecimiento y suministro adecuado y
 oportuno de medicamentos de pureza, potencia, eficacia y seguridad
 técnicamente requeridas, así como la validez de los análisis y la bondad
 de artefactos e instrumentos de uso médico, son elementos básicos para

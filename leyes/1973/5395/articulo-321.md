@@ -1,4 +1,4 @@
-Artículo 321.- Calificada de inhabitable o de insalubre una
+ARTICULO 321.- Calificada de inhabitable o de insalubre una
 habitación o edificio, se comunicará al propietario o encargado,
 fijándole un plazo dentro del cual debe proceder al desalojamiento,
 demolición o reparación, según el caso. Si no se cumpliere la orden dada

@@ -1,4 +1,4 @@
-Artículo 141.- Queda prohibida la promoción o propaganda de
+ARTICULO 141.- Queda prohibida la promoción o propaganda de
 medicamentos y cosméticos dirigida al público, cuando induzca a error;
 cuando sea hecha en contravención a las disposiciones reglamentarias, a
 las autorizaciones obtenidas si se trata de medicamentos o a las

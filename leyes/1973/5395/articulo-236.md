@@ -1,4 +1,4 @@
-Artículo 236.- Toda persona física o jurídica que almacene o
+ARTICULO 236.- Toda persona física o jurídica que almacene o
 transporte materias primas destinadas a la elaboración de alimentos o
 productos alimenticios, sea como actividad principal, incidental o como
 parte de sus actividades productoras o comerciales, deberá cuidar que los

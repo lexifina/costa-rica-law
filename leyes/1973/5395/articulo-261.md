@@ -1,4 +1,4 @@
-Artículo 261.- Todo establecimiento de educación primaria y media
+ARTICULO 261.- Todo establecimiento de educación primaria y media
 público o privado, deberá destinar horas de sus programas, para la
 enseñanza de tópicos y normas obligatorias relativas a la salud personal
 y de trascendencia para la salud de terceros.

@@ -1,4 +1,4 @@
-Artículo 163.- Las personas que hayan estado en contacto directo o
+ARTICULO 163.- Las personas que hayan estado en contacto directo o
 indirecto con personas que padezcan de enfermedad transmisible de
 denuncia obligatoria, serán considerados para los efectos de ésta ley y
 sus reglamentos como contactos y deberán someterse a las medidas de

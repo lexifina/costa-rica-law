@@ -1,18 +1,4 @@
 SECCION II
 De las inspecciones y otras diligencias
-Artículo 346.- Para los efectos de llevar a cabo el efectivo control
-del cumplimiento de las disposiciones de esta ley y de sus reglamentos,
-de resoluciones complementarias que las autoridades de salud dicten
-dentro de sus competencias, podrán los funcionarios dependientes del
-Ministerio, debidamente identificados, hacer inspecciones o visitas para
-practicar operaciones sanitarias, recoger muestras o recolectar
-antecedentes o pruebas, en edificios, viviendas y establecimientos
-industriales, de comercio y en cualquier lugar en el que pudieran
-perpetrarse infracciones a las leyes y reglamentos y resoluciones
-aludidos.
-Tales diligencias deberán practicarse durante el día, entre las seis
-y dieciocho horas y los particulares están en la obligación de
-facilitarles de inmediato. La limitación horaria no regirá para las
-inspecciones relativas al control de alimentos, de estupefacientes,
-alucinógenos y sustancias psicotrópicas capaces de producir por su uso,
-dependencia psíquica o física.
+ARTICULO 346.- Para los efectos de llevar a cabo el efectivo control del cumplimiento de las disposiciones de esta ley y de sus reglamentos, de resoluciones complementarias que las autoridades de salud dicten dentro de sus competencias, podrán los funcionarios dependientes del Ministerio, debidamente identificados, hacer inspecciones o visitas para practicar operaciones sanitarias, recoger muestras o recolectar antecedentes o pruebas, en edificios, viviendas y establecimientos industriales, de comercio y en cualquier lugar en el que pudieran perpetrarse infracciones a las leyes y reglamentos y resoluciones aludidos.
+Tales diligencias deberán practicarse durante el día, entre las seis y dieciocho horas y los particulares están en la obligación de facilitarles de inmediato. La limitación horaria no regirá para las inspecciones relativas al control de alimentos, de estupefacientes, alucinógenos y sustancias psicotrópicas capaces de producir por su uso, dependencia psíquica o física.

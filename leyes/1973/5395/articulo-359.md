@@ -1,4 +1,4 @@
-Artículo 359.- El decomiso consiste en la pérdida de la propiedad
+ARTICULO 359.- El decomiso consiste en la pérdida de la propiedad
 que experimenta el dueño en favor del Estado de los bienes materiales que
 han sido causa o instrumento de una infracción sanitaria o que sean
 nocivos o peligrosos por la salud de las personas.

@@ -1,4 +1,4 @@
-Artículo 85.- La autorización de funcionamiento u operación se
+ARTICULO 85.- La autorización de funcionamiento u operación se
 concederá una vez que el interesado acredite haber cumplido con todas las
 exigencias reglamentarias o las que se le puedan haber hecho
 especialmente, con motivo de su solicitud de instalación y durará dos

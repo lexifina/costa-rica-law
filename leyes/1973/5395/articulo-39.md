@@ -1,4 +1,4 @@
-Artículo 39.- El propietario y el encargado de bienes muebles o
+ARTICULO 39.- El propietario y el encargado de bienes muebles o
 inmuebles deberán evitar las molestias y daños que puedan derivarse, para
 la salud de terceros, de la mala calidad o mal estado de conservación o
 de higiene de tales bienes.

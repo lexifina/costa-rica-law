@@ -1,4 +1,4 @@
-Artículo 171.- Toda persona física o jurídica, deberá evitar
+ARTICULO 171.- Toda persona física o jurídica, deberá evitar
 omisiones perjudiciales y pondrá el máximo de su diligencia en el
 cumplimiento de las disposiciones obligatorias y de las prácticas,
 medidas y obras que la autoridad de salud ordene para evitar la difusión

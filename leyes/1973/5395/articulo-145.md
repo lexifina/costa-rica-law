@@ -1,4 +1,4 @@
-Artículo 145.- En todo caso, la utilización, manipulación,
+ARTICULO 145.- En todo caso, la utilización, manipulación,
 aplicación y administración, según proceda, de materiales, aparatos,
 equipos o instrumentos que, por su naturaleza, puedan significar riesgo
 para la salud de las personas que los manejan o utilizan, o para el

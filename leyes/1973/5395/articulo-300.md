@@ -1,4 +1,4 @@
-Artículo 300.- Para obtener autorización de instalación, los
+ARTICULO 300.- Para obtener autorización de instalación, los
 interesados deberán acreditar ante el Ministerio, que el sitio elegido se
 encuentra en zona permitida según la correspondiente reglamentación
 vigentes, que cuenta con los elementos de saneamiento básico y que

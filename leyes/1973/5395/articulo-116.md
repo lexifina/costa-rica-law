@@ -1,4 +1,4 @@
-Artículo 116.- Los medicamentos de nombre registrado, para los
+ARTICULO 116.- Los medicamentos de nombre registrado, para los
 efectos de su importación, comercio y distribución en el país, requieren
 para su inscripción comprobante de registro sanitario en el país de
 origen y comprobante de análisis correspondientes al producto, extendido

@@ -1,4 +1,4 @@
-Artículo 72.- Los propietarios, directores o administradores de los
+ARTICULO 72.- Los propietarios, directores o administradores de los
 establecimientos en que se utilice material, natural y artificialmente
 radioactivo o aparatos diseñados para la emisión de radiaciones
 ionizantes con fines de diagnóstico, de terapia médica u odontológica o

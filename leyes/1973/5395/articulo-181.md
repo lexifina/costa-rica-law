@@ -1,4 +1,4 @@
-Artículo 181.- Las personas naturales y los responsables,
+ARTICULO 181.- Las personas naturales y los responsables,
 administradores y encargados de empresas que se ocupen de manera
 transitoria o permanente en el transporte internacional de personas,
 animales o cosas, están obligados a mantener los vehículos de transporte

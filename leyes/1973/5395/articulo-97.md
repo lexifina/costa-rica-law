@@ -1,4 +1,4 @@
-Artículo 97.- La instalación y operación de los establecimientos
+ARTICULO 97.- La instalación y operación de los establecimientos
 farmacéuticos necesitan de la inscripción en el Ministerio, previa
 autorización y registro en el Colegio de Farmacéuticos. En el caso de
 establecimientos farmacéuticos de medicamentos para uso veterinario será

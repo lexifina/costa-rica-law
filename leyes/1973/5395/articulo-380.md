@@ -1,4 +1,4 @@
-Artículo 380.- Serán reprimidos con veinte a sesenta días multa las
+ARTICULO 380.- Serán reprimidos con veinte a sesenta días multa las
 autoridades y funcionarios públicos que concedieren permisos para hacer,
 reparar o modificar construcciones, así como los que otorgaren patentes o
 licencias para operar o instalar establecimientos de cualquier

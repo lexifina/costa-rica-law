@@ -1,4 +1,4 @@
-Artículo 74.- Los directores y administradores de los
+ARTICULO 74.- Los directores y administradores de los
 establecimientos de atención médica deberán velar por el correcto y
 acucioso funcionamiento del sistema de ingresos y egresos de pacientes y
 por el correspondiente archivo de expedientes clínicos, debiendo entregar

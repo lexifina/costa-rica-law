@@ -1,4 +1,4 @@
-Artículo 247.- Sin perjuicio de las atribuciones de otras
+ARTICULO 247.- Sin perjuicio de las atribuciones de otras
 autoridades competentes en la materia, toda persona que se ocupe de la
 importación, instalación, manufactura o reparación de aparatos o equipos
 diseñados para emitir radiaciones y de la importación, comercio,

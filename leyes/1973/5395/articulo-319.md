@@ -1,4 +1,4 @@
-Artículo 319.- Cuando un inmueble se constituyere, por su condición
+ARTICULO 319.- Cuando un inmueble se constituyere, por su condición
 o estado, en peligro para la salud o seguridad de los ocupantes o de los
 vecinos, la autoridad sanitaria podrá ordenar al dueño que realice las
 obras necesarias o tome las medidas que hubiere menester dentro del plazo

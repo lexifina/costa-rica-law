@@ -1,4 +1,4 @@
-Artículo 294.- Se entiende por contaminación de la atmósfera para
+ARTICULO 294.- Se entiende por contaminación de la atmósfera para
 los efectos legales y reglamentarios, el deterioro de su pureza por la
 presencia de agentes de contaminación, tales como partículas sólidas,
 polvo, humo, vapor, gases, materias radiactivas y otros, que el

@@ -1,4 +1,4 @@
-Artículo 228.-Las personas interesadas en utilizar nuevos aditivos
+ARTICULO 228.- Las personas interesadas en utilizar nuevos aditivos
 en la producción o elaboración de alimentos, deberán solicitar
 autorización al Ministerio, cumpliendo con las exigencias reglamentarias
 y en todo caso tal autorización no podrá concederse cuando el aditivo

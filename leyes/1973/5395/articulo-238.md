@@ -1,4 +1,4 @@
-Artículo 238.- Los propietarios, administradores, encargados y
+ARTICULO 238.- Los propietarios, administradores, encargados y
 responsables de establecimientos de alimentos deberán permitir a
 cualquier hora la entrada de los funcionarios de salud, debidamente
 identificados, para realizar las inspecciones que haya menester de

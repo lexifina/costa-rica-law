@@ -1,4 +1,4 @@
-Artículo 286.- Toda persona natural o jurídica está obligada a
+ARTICULO 286.- Toda persona natural o jurídica está obligada a
 realizar las obras de drenaje que la autoridad de salud ordene a fin de
 precaver la formación de focos insalubres y de infección, o de sanear los
 que hubiere en predios de su propiedad.

@@ -1,5 +1,2 @@
-Artículo 120.- Son de venta libre los medicamentos que el Ministerio
-declare como tales en el correspondiente decreto, oyendo previamente el
-criterio del Colegio de Farmacéuticos. En el caso de medicamentos para
-uso veterinario será también consultado el Colegio de Médicos
-Veterinarios.
+ARTICULO 120.- Son de venta libre los medicamentos que el Ministerio declare como tales en el correspondiente decreto, oyendo previamente el criterio del Colegio de Farmacéuticos. En el caso de medicamentos para uso veterinario será también consultado el Colegio de Médicos Veterinarios.
+(Nota de Sinalevi: Mediante dictamen N° C-131-2011 del 06/06/2011 se interpretó que de conformidad con lo dispuesto en los artículos 101, 95 y 120 de la Ley General de Salud . La interpretación que la Procuraduría ha dado al artículo 120 es discutida por el Colegio de Farmacéuticos. De allí la importancia de establecer cuál es su alcance. En concreto, qué debe entenderse por medicamento de venta libre. Por lo que la interpretación literal de esos artículos 101 y 95 nos llevaría a afirmar que la venta de medicamentos, incluidos los que no requieren receta médica, solo puede realizarse por medio de farmacias y botiquines y ello en el tanto en que se encuentren autorizados y registrados por el Ministerio de Salud. Consecuentemente, que los medicamentos de venta libre no constituirían una excepción a lo dispuesto en el artículo 101 de mérito, afirmación presente en el dictamen C-172-2009 que se solicita reconsiderar).

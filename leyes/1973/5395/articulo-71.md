@@ -1,5 +1,5 @@
-Artículo 71.- Toda persona natural o jurídica de derecho público o
-privado, propietaria o administradora de establecimientos destinados ala
+ARTICULO 71.- Toda persona natural o jurídica de derecho público o
+privado, propietaria o administradora de establecimientos destinados a la
 prestación de servicios de atención médica a las personas, deberá obtener
 autorización previa del Ministerio para proceder a su instalación y
 operación, debiendo acompañar a su solicitud los antecedentes en que se

@@ -1,4 +1,4 @@
-Artículo 55.- Los profesionales autorizados legalmente para
+ARTICULO 55.- Los profesionales autorizados legalmente para
 prescribir medicamentos y los autorizados para despacharlos, deberán
 atenerse a los términos de las farmacopeas declaradas oficiales por el
 poder Ejecutivo y quedan, en todo caso, sujetos a las disposiciones

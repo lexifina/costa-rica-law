@@ -1,4 +1,4 @@
-Artículo 363.- La clausura consiste en el cierre con formal
+ARTICULO 363.- La clausura consiste en el cierre con formal
 colocación de sellos, que la autoridad competente haga de un
 establecimiento, edificio, vivienda, instalación o similares, inhibiendo
 su funcionamiento.

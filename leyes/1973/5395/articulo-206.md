@@ -1,4 +1,4 @@
-Artículo 206.- Toda persona física o jurídica que se ocupe de la
+ARTICULO 206.- Toda persona física o jurídica que se ocupe de la
 importación, elaboración o comercio de alimentos de nombre determinado y
 bajo marca de fábrica deberá solicitar, previamente, el permiso del
 Ministerio y la inclusión del producto alimenticio en el correspondiente

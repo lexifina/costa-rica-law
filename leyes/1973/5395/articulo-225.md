@@ -1,4 +1,4 @@
-Artículo 225.- Las operaciones preparatorias y de elaboración del
+ARTICULO 225.- Las operaciones preparatorias y de elaboración del
 producto alimenticio, así como las de envase, conservación, transporte y
 almacenamiento del producto terminado deberán ser hechas higiénicamente y
 en forma de asegurar la protección de éste de la contaminación,

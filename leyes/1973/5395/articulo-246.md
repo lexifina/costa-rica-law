@@ -1,4 +1,4 @@
-Artículo 246.- Toda persona natural o jurídica de derechos público o
+ARTICULO 246.- Toda persona natural o jurídica de derechos público o
 privado, quedará sujeta al control del Ministerio y a las medidas y
 prácticas que éste ordene, dentro de su competencia, a fin de proteger a
 las personas, de la contaminación proveniente de la luz ultravioleta y de

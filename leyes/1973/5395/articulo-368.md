@@ -1,4 +1,4 @@
-Artículo 368.- En caso de peligro, amenaza o de invasión de epidemia
+ARTICULO 368.- En caso de peligro, amenaza o de invasión de epidemia
 y de desastre provocados por inundaciones, terremotos u otra calamidad y
 en casos de emergencia nacional, el Ministerio podrá tomar a su cargo: la
 protección de cualquier planta de agua potable; el saneamiento de

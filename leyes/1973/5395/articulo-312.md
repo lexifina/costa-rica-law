@@ -1,4 +1,4 @@
-Artículo 312.- Toda persona requerirá permiso del Ministerio para
+ARTICULO 312.- Toda persona requerirá permiso del Ministerio para
 proceder a la construcción, reparación o modificación de cualquier
 edificación destinada a la vivienda permanente o transitoria de las
 personas y tal permiso sólo le será concedido cuando acredite, con los

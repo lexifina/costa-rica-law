@@ -1,4 +1,4 @@
-Artículo 259.- En caso de peligro de epidemia o de epidemia
+ARTICULO 259.- En caso de peligro de epidemia o de epidemia
 declarada, la prensa, la radio, la televisión y todo otro medio de
 comunicación colectiva deberá colaborar, con la autoridad de salud en la
 forma que el Poder Ejecutivo disponga.

@@ -1,4 +1,4 @@
-Artículo 317.- Ninguna autoridad podrá conceder permiso o patente a
+ARTICULO 317.- Ninguna autoridad podrá conceder permiso o patente a
 los propietarios o administradores de cualquier local o establecimiento
 destinado a la vivienda transitoria o permanente de personas, tales como
 hoteles, pensiones, hospederías, internados y similares que no reúnan los

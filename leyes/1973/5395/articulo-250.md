@@ -1,4 +1,4 @@
-Artículo 250.- Las personas naturales o jurídicas que importen,
+ARTICULO 250.- Las personas naturales o jurídicas que importen,
 comercien, distribuyan, transporten o utilicen aparatos, equipos e
 instrumentos que produzcan radiaciones secundarias o incidentalmente,
 quedarán sujetas a las disposiciones de control y restrictivas respecto

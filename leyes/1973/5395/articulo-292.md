@@ -1,4 +1,4 @@
-Artículo 292.- Queda prohibido en todo caso la descarga de las aguas
+ARTICULO 292.- Queda prohibido en todo caso la descarga de las aguas
 negras, de las aguas servidas y de residuos industriales al
 alcantarillado pluvial. El Ministerio que da facultado para restringir,
 regular, o prohibir la eliminación de productos sintéticos no

@@ -1,4 +1,4 @@
-Artículo 161.- Las personas afectadas por enfermedades transmisibles
+ARTICULO 161.- Las personas afectadas por enfermedades transmisibles
 de denuncia obligatoria, deberán someterse a las medidas de aislamiento
 cuando y en la forma que la autoridad lo disponga.
 Se entiende por aislamiento, la separación del o los pacientes,

@@ -1,4 +1,4 @@
-Artículo 251.- Los fabricantes e importadores de prendas para
+ARTICULO 251.- Los fabricantes e importadores de prendas para
 vestir, de adornos u otros objetos que entren en contacto directo con el
 cuerpo humano; de materiales de construcción, de aparatos o utensilios
 para el hogar y materiales de limpieza y juguetes u objetos que sirvan

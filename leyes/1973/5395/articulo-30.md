@@ -1,4 +1,2 @@
-Artículo 30.- Toda internación no voluntaria y no judicial de
-enfermos mentales, de toxicómanos y de alcohólicos, deberá ser comunicada
-por el director del establecimiento a la Corte Suprema de Justicia de
-conformidad con las disposiciones reglamentarias pertinentes.
+ARTICULO 30.- Cuando la internación de personas con trastornos emocionales severos o deficiencias, toxicómanos y alcohólicos, no es voluntaria ni judicial, deberá ser comunicada por el director del establecimiento al juzgado de familia de su jurisdicción, en forma inmediata y deberá cumplir con las obligaciones y los requisitos de la curatela.
+(Así reformado por el artículo 74 (actual 87) de la Ley sobre Igualdad de Oportunidades para las Personas con Discapacidad Nº 7600 de 2 de mayo de 1996)

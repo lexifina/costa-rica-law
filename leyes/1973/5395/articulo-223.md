@@ -1,4 +1,4 @@
-Artículo 223.- Todo fabricante de productos alimenticios deberá
+ARTICULO 223.- Todo fabricante de productos alimenticios deberá
 emplear en la elaboración de éstos, materias primas que reúnan
 condiciones sanitarias.
 Queda prohibido, por tanto, el uso de materias, productos o

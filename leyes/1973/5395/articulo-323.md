@@ -1,4 +1,4 @@
-Artículo 323.- Toda empresa particular o pública o persona que desee
+ARTICULO 323.- Toda empresa particular o pública o persona que desee
 iniciar una edificación de las aludidas en el artículo anterior o que
 desee destinar para los mismos fines una ya construida, deberá solicitar
 permiso previo al Ministerio.

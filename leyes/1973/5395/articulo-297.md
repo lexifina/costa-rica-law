@@ -1,4 +1,4 @@
-Artículo 297.- Queda prohibido el funcionamiento de toda fábrica o
+ARTICULO 297.- Queda prohibido el funcionamiento de toda fábrica o
 establecimiento industrial o comercial en edificios que no dispongan de
 los elementos o sistemas necesarios para evitar que las descargas,
 emisiones, emanaciones o sonidos producto de tales actividades

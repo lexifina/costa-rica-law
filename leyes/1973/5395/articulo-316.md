@@ -1,4 +1,4 @@
-Artículo 316.- Cuando la autoridad de salud lo ordene, los
+ARTICULO 316.- Cuando la autoridad de salud lo ordene, los
 propietarios, administradores o encargados, procederán a la desinfección,
 desinsetización, desratización o reparación, según proceda, de los
 edificios destinados a vivienda permanente o transitoria, incluidos

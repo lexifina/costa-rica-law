@@ -1,4 +1,4 @@
-Artículo 104.- Se considera medicamento, para los efectos legales y
+ARTICULO 104.- Se considera medicamento, para los efectos legales y
 reglamentarios, toda sustancia o productos naturales, sintéticos o
 semi-sintéticos y toda mezcla de esas sustancias o productos que se
 utilicen para el diagnóstico, prevención, tratamiento y alivio de las

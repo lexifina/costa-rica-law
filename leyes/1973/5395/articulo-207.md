@@ -1,4 +1,4 @@
-Artículo 207.- El Registro de los productos alimenticios citados en
+ARTICULO 207.- El Registro de los productos alimenticios citados en
 el artículo anterior, sólo podrá ser practicado cuando los análisis
 previos, que realice el laboratorio oficial, tenga resultado favorable y
 se haya acreditado debidamente por el interesado que el producto proviene

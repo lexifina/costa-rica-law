@@ -1,4 +1,4 @@
-Artículo 273.- Se prohíbe contaminar los abastos de agua, así como
+ARTICULO 273.- Se prohíbe contaminar los abastos de agua, así como
 dañar, obstruir parcial o totalmente, los sistemas de abastecimiento de
 agua potable destinada a la población. Se presume de pleno derecho la
 contaminación del agua por el simple hecho de agregarle cualquier cosa o

@@ -1,4 +1,4 @@
-Artículo 309.- Las personas naturales y jurídicas que se ocupen de
+ARTICULO 309.- Las personas naturales y jurídicas que se ocupen de
 la urbanización de terrenos deberán presentar a la de salud competente
 para su estudio previo el anteproyecto correspondiente y sólo podrán
 iniciar sus trabajos una vez aprobado el proyecto definitivo.

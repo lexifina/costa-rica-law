@@ -1,4 +1,4 @@
-Artículo 347.- En el caso que las personas físicas o jurídicas
+ARTICULO 347.- En el caso que las personas físicas o jurídicas
 impidieren la entrada o acceso a los lugares o inmuebles o interfierieren
 con la actuación de los funcionarios o se negaren a la entrega de
 muestras y antecedentes, podrá la autoridad de salud solicitar de la

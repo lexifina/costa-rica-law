@@ -1,4 +1,4 @@
-Artículo 131.- Solamente los médicos, odontólogos y veterinarios, en
+ARTICULO 131.- Solamente los médicos, odontólogos y veterinarios, en
 ejercicio legal de sus profesiones podrán prescribir y administrar con
 sujeción a las exigencias reglamentarias pertinentes, drogas
 estupefacientes y sustancias o productos sicotrópicos, anestésicos y

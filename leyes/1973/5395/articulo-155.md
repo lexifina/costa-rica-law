@@ -1,4 +1,4 @@
-Artículo 155.- Queda prohibido a las personas afectadas por
+ARTICULO 155.- Queda prohibido a las personas afectadas por
 enfermedades transmisibles incluidas en la lista oficial, asistir a
 establecimientos educacionales, de trabajo y de recreo o a lugares de
 reunión públicos o privados durante el período de transmisibilidad, a
