@@ -1,0 +1,2 @@
+10.—Trámites para autorización de construcciones: A más de los trámites reglamentarios de la Ley de Urbanismo ante las entidades oficiales, los propietarios de lotes que deseen construir, deberán someter anteproyectos y luego los planos terminados a Desarrollos Los Reyes S. A. Para su visto bueno y/o objeciones o recomendaciones, no pudiendo adelantar construcciones sin la aprobación definitiva de desarrollos Los Reyes S. A.
+A su vez, esta se reserva el derecho de ejercer la supervisión de construcción y verificar el cumplimiento de las normas de este reglamento.

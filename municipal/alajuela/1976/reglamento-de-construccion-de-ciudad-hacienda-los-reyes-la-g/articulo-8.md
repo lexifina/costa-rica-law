@@ -1,0 +1,1 @@
+8º—Servicios comunales: Los propietarios de lotes quedarán obligados al pago de los servicios de agua, luz, recolección de basuras, teléfono, etc., de acuerdo a los costos de cada uno de los servicios que preste directamente la compañía desarrolladora y/o la facturación del consumo de las empresas estatales o eventualmente la Municipalidad de Alajuela.

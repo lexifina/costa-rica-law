@@ -1,0 +1,1 @@
+5º—Áreas máximas de construcción: De acuerdo al área de cada lote, en ningún momento se autorizará la construcción de inmuebles que cubran más del 50% del área total de terreno. Este significa que deberán existir zonas verdes y/o libres en proporción no menor al 50% de la superficie del lote.

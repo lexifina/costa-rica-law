@@ -1,0 +1,2 @@
+6º—Área de antejardines: Todas las construcciones deberán estar separadas de la calle a la cual tengan frente, un mínimo de siete metros contados desde el límite de la propiedad, salvo circunstancias especiales de conformación de lotes que hicieren imposible el incumplimiento de este requisito, casos en los cuales la compañía desarrolladora se reserva el derecho de autorizar un cambio del mínimo de metros establecido.
+En el caso de lotes que tengan lindero con las canchas de golf, deberá dejarse una zona por dicho límite no inferior a 5 metros.

@@ -1,0 +1,1 @@
+2º—Planos de construcción: Toda residencia que se pretenda construir deberá ser planeada a través de un profesional o firma de arquitectura o ingeniería, registrada en el Colegio Federado de Ingenieros y Arquitectos.
