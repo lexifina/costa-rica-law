@@ -1,0 +1,1 @@
+3°—Deróguense las normas de contabilidad E-4 "Inventarios" y E- 6 "Inmuebles. Maquinaria y Equipo" aprobadas por la Junta Directiva del Colegio de Contadores Públicos de Costa Rica y publicadas en "La Gaceta" número 240 del 12 de diciembre de 1997
