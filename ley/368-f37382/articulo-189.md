@@ -1,0 +1,3 @@
+Artículo 189-Será reprimido con prisión de dos a cinco años, el que instigare a otro al suicidio o le ayudare a efectuarlo si el suicidio se consuma inmediatamente después de la ayuda o la instigación.
+Se impondrá prisión de seis a diez años al que diere muerte a otro, accediendo a expreso y formal ruego suyo.
+En los casos anteriores, los jueces, apreciando las circunstancias personales del culpable, los móviles de piedad o compasión de su conducta y las circunstancias del hecho, quedan facultados para disminuir la pena a su prudente arbitrio, sin que ésta pueda en ningún caso ser inferior a un año.

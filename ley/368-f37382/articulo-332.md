@@ -1,0 +1,1 @@
+Artículo 332.-Se pronunciará prisión de seis meses a cinco años contra el que tomare parte en una asociación o banda de dos o más personas, formada para cometer delitos, por el mero hecho de ser miembro de la asociación.

@@ -1,0 +1,4 @@
+Artículo 77.-Si la multa no fuere satisfecha a su tiempo y es la única pena señalada por la ley, se convertirá en prisión a razón de dos colones por día sin que pueda exceder de dos años; pero en cualquier momento en que el reo pagare lo debido, será puesto en libertad.
+Si la multa es alternativa y el reo no la pagare, se sustituirá con la otra pena aplicable al caso.
+Podrá el reo descontar la multa por medio de su trabajo personal en una obra pública, siempre que rindiere fianza de cumplimiento y mediante el arreglo y condiciones que el reglamento determine.
+Si el reo no fuere habido y se hallare en el caso previsto en el artículo anterior, procederán las autoridades represivas a hacer efectiva la garantía dada por la vía de apremio, de acuerdo con las disposiciones respectivas del Código de Procedimientos Civiles.

@@ -1,0 +1,1 @@
+Artículo 304.-EI que haciendo uso de concesiones gratuitas otorgadas por la ley en bien de la agricultura, hubiere entrado en posesión de un terreno baldío en virtud de denuncio, y después de explotar el bosque respectivo, abandonare dicho denuncio, será considerado como usurpador de bienes nacionales y castigado con multa de trescientos sesenta a dos mil colones.

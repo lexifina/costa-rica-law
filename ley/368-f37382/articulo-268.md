@@ -1,0 +1,1 @@
+Artículo 268.-EI que sin derecho alguno, ni mediar mutua confianza, amistad o lazos de próximo parentesco, tome sin intención de apropiársela una cosa total o parcialmente ajena, la use y la devuelva a su dueño o la restituya a su lugar, será penado con prisión de seis meses a un año, siempre que el valor del uso y del deterioro o depreciación de la cosa exceda de cien colones.

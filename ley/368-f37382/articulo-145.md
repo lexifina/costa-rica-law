@@ -1,0 +1,2 @@
+Artículo 145.- La cancelación de que habla el artículo anterior, la ordenará el Jefe del Registro por resolución motivada, que dictará a solicitud del condenado o de su cónyuge o de cualquiera de sus ascendientes o descendientes, legítimos o naturales, o de cualquiera de sus hermanos, con audiencia e intervención del Jefe del Ministerio Público.
+La resolución será notificada por medio de un Juez Penal al solicitante y al Jefe del Ministerio Público, quienes podrán ocurrir a la Sala Penal, dentro de tercero día, si no estuvieren conformes con lo resuelto.

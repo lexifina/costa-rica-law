@@ -1,0 +1,1 @@
+Artículo 258.-Sufrirá la pena de multa de trescientos a mil colones, el que por medio de violencia o amenazas graves, impidiere o tratare de impedir a otro el ejercicio de su profesión, oficio, industria o comercio.

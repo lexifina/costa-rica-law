@@ -1,0 +1,3 @@
+Artículo 287.-Sufrirán prisión de seis meses a dos años o multa de mil a dos mil colones:
+1.-El que ofreciere cualesquiera bonos, acciones u obligaciones de alguna persona jurídica o sociedad, disimulando u ocultando hechos o circunstancias verdaderos, o afirmando o haciendo entrever hechos o circunstancias falsos, relativos a tales valores.
+2.-El fundador, director, administrador, gerente o síndico de una sociedad anónima o cooperativa o de otro establecimiento mercantil, que publicare un balance o cualquier otro informe falso o con omisiones capaces de inducir en error cualquiera que hubiese sido el propósito perseguido al verificarlo.

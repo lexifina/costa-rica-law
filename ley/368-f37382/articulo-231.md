@@ -1,0 +1,1 @@
+Artículo 231.-Se castigará con multa de trescientos sesenta a mil colones, al que se haga sostener, en todo o en parte, por una mujer, aprovechándose de las utilidades que ésta retire de su prostitución.

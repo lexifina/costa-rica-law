@@ -1,0 +1,1 @@
+Artículo 98.-En los casos de concurso o acumulación de delitos, o de primera reincidencia, no podrá concederse la libertad condicional sino cuando el delincuente haya cumplido las cuatro quintas partes de la pena y reúna, además, los requisitos señalados en el artículo anterior. Después de la segunda reincidencia no se otorgará la libertad condicional.

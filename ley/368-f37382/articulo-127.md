@@ -1,0 +1,6 @@
+Artículo 127.-En los hechos punibles contra la salud o la integridad corporal, se observarán las reglas siguientes:
+1°- El condenado pagará los gastos de curación del ofendido y lo que hubiera dejado de ganar durante el período en que, por motivo del hecho no haya podido trabajar, segÚn la profesión o el oficio del perjudicado.
+2°- Si el ofendido quedare en incapacidad absoluta de trabajar, le pagará además el penado una pensión alimentaria vitalicia, que se fijará sobre la base de lo que hubiese sido el producto del trabajo del incapacitado.
+3°-Si el ofendido no quedare en incapacidad completa para trabajar, pero con evidente pérdida de su anterior habilidad o resistencia, la pensión dicha se determinará en proporción al decrecimiento efectivo del poder de trabajar.
+4°-Si el ofendido quedare con desfiguración del rostro o con deformidad física incorregibles, le pagará también el penado, a título de indemnización, una suma que se regulará en los mismos términos, establecidos en el artículo 125.
+5°-En cualquiera otros casos no previstos en las reglas anteriores, se aplicará, si fuere posible, la que guarde mayor analogía dentro de un criterio de equidad, y, a falta de esa analogía, los jueces fijarán prudencialmente la indemnización y el modo de satisfacerla.

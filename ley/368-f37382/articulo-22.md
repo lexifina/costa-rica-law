@@ -1,0 +1,1 @@
+Artículo 22.-No eximen de responsabilidad la ignorancia de la ley penal o el error acerca de ella; pero si se tratare de infracciones de mera creación legal, los tribunales podrán apreciar la ignorancia o el error como atenuante o eximente, según las circunstancias.

@@ -1,0 +1,1 @@
+Artículo 241-El que usurpare el estado civil de otro o por un acto cualquiera lo hiciere incierto, lo alterare o suprimiere, con e! propósito de causar perjuicio, será reprimido con prisión de seis meses a cuatro años.

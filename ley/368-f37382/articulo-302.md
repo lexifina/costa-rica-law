@@ -1,0 +1,1 @@
+Artículo 302.-La pena será de setecientos veinte a dos mil colones de multa cuando para cometer los delitos expresados en el artículo anterior, se rompieren, destruyeren o alteraren diques, exclusas, compuertas u otras obras hidráulicas semejantes, si el hecho no tiene señalada mayor pena en otra disposición de este Código.

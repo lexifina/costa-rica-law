@@ -1,0 +1,1 @@
+Artículo 369.-Sufrirá prisión de tres a diez años e inhabilitación absoluta de cuatro a doce años, el juez que en asunto sometido a su jurisdicción, aceptare promesa o dádiva para dictar, demorar, u omitir dictar resolución o fallo.

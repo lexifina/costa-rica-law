@@ -1,0 +1,1 @@
+Artículo 234.-Se impondrá la pena de prisión de seis meses a dos años o multa de trescientos sesenta a mil quinientos colones, al que de cualquier modo ofenda el pudor o las buenas costumbres con hechos de grave escándalo, no penados expresamente.

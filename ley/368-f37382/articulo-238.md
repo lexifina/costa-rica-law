@@ -1,0 +1,1 @@
+Artículo 238.-El funcionario que a sabiendas autorice un matrimonio de los comprendidos en los artículos 235 y 236 o interviniere en la simulación indicada en el artículo 237, sufrirá en su caso la misma pena señalada para los contrayentes o el simulador.

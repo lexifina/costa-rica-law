@@ -1,0 +1,1 @@
+Artículo 206.-Si la víctima provocó el hecho delictuoso con ofensas o injurias graves, la pena será: en el caso del artículo 201, de dos a seis años; en el caso del artículo 202, de año y medio a cinco años; en el caso del artículo 203, de nueve meses a tres años; y en el caso del artículo 204, de tres meses a dos años.

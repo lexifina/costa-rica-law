@@ -1,0 +1,1 @@
+Artículo 224.-En los casos previstos en los dos artículos anteriores, se presumirá que el rapto se ha ejecutado con miras deshonestas, si otra cosa no se probare o revelaren las circunstancias por modo evidente.

@@ -1,0 +1,2 @@
+Artículo 371.-EI que, directa o indirectamente, hiciere dádivas a un funcionario o empleado público o se las ofreciere, para que practique u omita un acto relativo a su cargo, será condenado a multa de trescientos sesenta a mil quinientos colones. Si la dación u ofrecimiento se hiciere, a un juez de cualquier categoría, la multa será de setecientos veinte a dos mil colones.
+Cuando el culpado de tal hecho fuere un funcionario público, se aplicará, además, inhabilitación para el ejercicio de cargos y oficios públicos de seis meses a dos años.

@@ -1,0 +1,1 @@
+Artículo 400.-Al responsable de cualquiera de los hechos de que tratan los artículos anteriores que se retracte de su dicho en el mismo proceso y manifieste la verdad, a tiempo para que ella pueda ser apreciada por el juzgador, podrá imponérsele la pena ordinaria disminuída hasta en cinco sextas partes y aun eximírsele de ella, según las circunstancias.

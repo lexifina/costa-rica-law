@@ -1,0 +1,1 @@
+Artículo 27.-La defensa legítima o la preservación en los estados de necesidad, no pierden su carácter de eximentes por el exceso de acción en que el agente incurra, si, según las circunstancias, el exceso deba atribuirse a la perturbación de espíritu que la agresión o el riesgo le hayan producido.

@@ -1,4 +1,6 @@
+(Derogado)
 N° 22
+(Esta norma fue deroga por el artículo 434 del Código Penal de 1941, ley N° 368 del 21 de agosto de 1941)
 El congreso Constitucional de la
 República de Costa Rica
 DECRETA:

@@ -1,0 +1,1 @@
+Artículo 47.-El desistimiento de un codelincuente lo librará de la responsabilidad del hecho punible consumado, cuando fue re indudable que comunicó tal determinación a sus colaboradores en tiempo oportuno para obstaculizar o evitar, con su apartamiento, la ejecución del hecho.

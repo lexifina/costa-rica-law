@@ -1,0 +1,1 @@
+Artículo 113.-Cuando estuviere comprobado que el reo es toxicómano habitual, podrán los jueces disponer que, antes o después de cumplida la pena, si fuere de privación de libertad, o simultáneamente con ella, si fuere de otra clase, sea internado aquél en un departamento de toxicómanos hasta que se demuestre, previo dictamen médico, que puede ser sometido a libertad vigilada.

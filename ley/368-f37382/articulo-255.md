@@ -1,0 +1,1 @@
+Artículo 255.-El que hallándose en posesión de una correspondencia de carácter privado, la hiciere publicar indebidamente, aunque le haya sido dirigida, será reprimido con multa de doscientos a seiscientos colones, si el hecho causa o es capaz de causar perjuicio al autor o a tercero.

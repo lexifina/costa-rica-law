@@ -1,0 +1,1 @@
+Artículo 251.-El funcionario público o agente de la autoridad, que allanare un domicilio sin las formalidades prescritas por la ley o fuera de los casos que ella determina, se le aplicará la pena establecida en el artículo anterior e inhabilitación para el ejercido de cargos y oficios públicos de seis meses a dos años.

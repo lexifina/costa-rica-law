@@ -1,0 +1,2 @@
+Artículo 430.-Se impondrá prisión de un mes a un año o multa de sesenta a setecientos veinte colones, al médico que diere un certificado falso, concerniente a la existencia o inexistencia, presente o pasada, de alguna enfermedad o lesión, cuando de ello pueda resultar perjuicio.
+La pena será de uno a cuatro años de prisión, si el falso certificado debiera tener por consecuencia que una persona sana fuera detenida en un manicomio, lazareto u otro hospital.

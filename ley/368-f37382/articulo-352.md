@@ -1,0 +1,1 @@
+Artículo 352.-Se infligirá prisión de seis meses a dos años o multa de trescientos sesenta a cinco mil colones, al que violare la neutralidad de la Nación en un conflicto de guerra entre dos o más potencias, comerciando con los beligerantes en artículos declarados como contrabando de guerra.

@@ -1,0 +1,1 @@
+Artículo 322.-La persona que interrumpiere o entorpeciere la comunicación telegráfica, telefónica o inalámbrica destinada al servicio público, o se opusiere con violencia al restablecimiento de la comunicación interrumpida, sufrirá prisión de seis meses a dos años.

@@ -1,0 +1,1 @@
+Artículo 290.- Toda simulación o práctica tendiente a ocultar la verdadera tasa de interés o a encubrir bajo otra forma contractual cualquiera un préstamo usurario, será castigada con multa de doscientos a novecientos colones.

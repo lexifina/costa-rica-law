@@ -1,4 +1,6 @@
+(Derogado)
 N° 5
+(Esta norma fue deroga por el artículo 434 del Código Penal de 1941, ley N° 368 del 21 de agosto de 1941)
 EL CONGRESO CONSTITUCIONAL DE LA REPUBLICA DE COSTA RICA
 DECRETA:
 Artículo único.-El artículo 89 del Código Penal se leerá así:

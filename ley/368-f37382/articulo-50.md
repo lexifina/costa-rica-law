@@ -1,0 +1,1 @@
+Artículo 50.-Se considerará también como un solo delito la infracción repetida de la misma ley penal, cuando revelare ser ejecución de un designio único, y tal repetición podrá ser apreciada como circunstancia agravante.

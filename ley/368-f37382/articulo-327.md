@@ -1,0 +1,1 @@
+Artículo 327.-El que voluntariamente y por cualquier medio propagare una enfermedad peligrosa o contagiosa para las personas o ejecutare actos o realizare operaciones capaces de producir tal propagación, será reprimido con prisión de cinco a quince años.

@@ -1,0 +1,1 @@
+Artículo 2.-La ley posterior que en cualquier forma favorezca al delincuente, se aplicará de oficio si no se hubiere dictado el fallo, y a solicitud de parte interesada, dirigida al juez de la causa, si ya existiere sentencia firme.

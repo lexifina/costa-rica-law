@@ -1,0 +1,2 @@
+Artículo 131.-Las rentas alimenticias a que se refieren los artículos 127 y 128 no son embargables ni susceptibles de compensación; el derecho de pedirlas es irrenunciable e intransmisible, y sobre ellas sólo se puede transigir previa autorización judicial, siempre que queden asegurados o cubiertos suficientemente los alimentos debidos.
+Durante la ejecución de la sentencia, podrá el juez, según las circunstancias, ordenar una pensión provisional en favor de los reclamantes, que se deducirá del monto de la liquidación final.

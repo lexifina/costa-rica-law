@@ -1,0 +1,1 @@
+Artículo 132.-En los casos previstos en los artículos 127, 128 y 129, cuando la víctima haya contribuido por su propia falta a la producción del daño, los jueces podrán reducir equitativamente el monto de la reparación.

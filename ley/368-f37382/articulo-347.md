@@ -1,0 +1,1 @@
+Artículo 347.-El costarricense que acepte honores, pensiones u otras utilidades de un Estado en guerra con Costa Rica, será castigado con prisión de seis meses a dos años o multa de trescientos sesenta a mil quinientos colones.

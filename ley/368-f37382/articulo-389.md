@@ -1,0 +1,1 @@
+Artículo 389.-Los funcionarios de que trata el artículo anterior que viertan o den opinión concreta antes de fallar, o que dirijan, aconsejen o de otro modo ayuden a una de las partes que ante ellos litiguen, incurrirán en multa de trescientos sesenta a mil colones e inhabilitación para el ejercicio de cargos y oficios públicos de seis meses a dos años.

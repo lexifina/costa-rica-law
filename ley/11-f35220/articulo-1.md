@@ -1,3 +1,5 @@
+(Derogado)
+(Esta norma fue deroga por el artículo 434 del Código Penal de 1941, ley N° 368 del 21 de agosto de 1941)
 Cartera de Gobernación
 N° 142
 San José, 27 de junio de 1924

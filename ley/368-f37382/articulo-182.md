@@ -1,0 +1,1 @@
+Artículo 182.-Si el penado reincidiere dentro del término de la prescripción de una pena anterior, perderá todo el tiempo transcurrido hasta el día de la comisión del último hecho, y el plazo comenzará a correr nuevamente desde ese día.

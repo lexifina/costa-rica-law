@@ -1,0 +1,1 @@
+Artículo 393.-El funcionario público que, faltando a las obligaciones de su cargo, dejare de promover la persecución y represión de delincuentes, sufrirá inhabilitación para el ejercicio de cargos y oficios públicos de seis meses a dos años, a menos que pruebe que su omisión se ha debido a motivos suficientes, en los cuales no haya contribuido.

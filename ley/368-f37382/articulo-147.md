@@ -1,0 +1,1 @@
+Artículo 147.-Si el reo fuere condenado nuevamente, recobrará su vigor el asiento cancelado de acuerdo con el artículo 144, y así se hará constar de oficio al margen de ese asiento; pero las nuevas sentencias por cuasidelitos o faltas de policía, no afectarán las cancelaciones de asientos referentes a delitos.

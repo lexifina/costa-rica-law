@@ -1,0 +1,1 @@
+Artículo 211.-Cuando en riña o agresión en que pelearen varios contra varios, o varios contra uno, resultaren muerte o lesiones y no constare su autor, se aplicará a todos los que hubieren ejercido violencia sobre el ofendido la pena correspondiente a la especie, rebajados en un tercio sus extremos mayor y menor.

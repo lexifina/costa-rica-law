@@ -1,0 +1,1 @@
+Artículo 338.-Se impondrá prisión de dos a diez años a la persona encargada por el Gobierno de una negociación con un Estado extranjero, que la condujere de un modo perjudicial a la Nación, apartándose de sus instrucciones.

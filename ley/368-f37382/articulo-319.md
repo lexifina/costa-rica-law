@@ -1,0 +1,2 @@
+Artículo 319.-El que ejecutare cualquier acto dirigido a interrumpir el funcionamiento de las comunicaciones telegráficas, telefónicas, inalámbricas o semafóricas destinadas al servicio de un ferrocarril, de una nave o de un aparato de aviación, será castigado con la pena de prisión de seis meses a cinco años.
+Si por ese hecho sobreviniere un accidente, se aplicarán las penas establecidas en el artículo anterior, en sus casos respectivos.

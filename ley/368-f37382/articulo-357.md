@@ -1,0 +1,1 @@
+Artículo 357.-Serán castigados con multa de trescientos sesenta a dos mil colones, los que excitar en al pueblo al alzamiento en armas por medio de discursos o impresos subversivos o tocando campanas o cualquier otro instrumento ruidoso, y los que excitar en a la muchedumbre al desconocimiento de las instituciones o leyes del Estado o de las órdenes de sus autoridades.

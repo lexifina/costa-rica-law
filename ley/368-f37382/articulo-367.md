@@ -1,0 +1,2 @@
+Artículo 367.-Se castigará con prisión de seis meses a cuatro años, si el hecho por constituir defraudación no merece mayor pena, al que sustrajere, ocultare, destruyere o inutilizare objetos destinados a servir de prueba ante la autoridad, o registros, documentos o papeles de cualquier clase, confiados en interés del servicio público a la custodia de un funcionario.
+Si el culpado fuere el mismo depositario, sufrirá, además, inhabilitación para el ejercicio de cargos y oficios públicos de uno a cuatro años.

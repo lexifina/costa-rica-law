@@ -1,0 +1,1 @@
+Artículo 87.-Si al cometer el hecho punible el agente fuere mayor de diecisiete años y menor de veintiuno la pena ordinaria podrá reducirse hasta en un tercio, concurran o no circunstancias modificativas de responsabilidad, y hasta en dos tercios, si concurren dos o más atenuantes, no contrarrestadas por alguna agravante.
