@@ -1,0 +1,1 @@
+Artículo 4º—Se autoriza al Poder Ejecutivo para, con los fondos indicados, comprar por el sistema de Licitación, el equipo, maquinaria, implementos, servicio de partes y repuestos, y materiales que considere necesarios para la ejecución de los proyectos indicados, por el monto dicho en los contratos aprobados.
