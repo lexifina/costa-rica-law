@@ -1,0 +1,1 @@
+Artículo 6º—Todo incorporando podrá al momento de solicitar su incorporación al Colegio afiliarse al Fondo de Ayuda y Socorro Mutuo, para lo cual procederá a llenar los formularios respectivos de afiliación.
