@@ -1,0 +1,2 @@
+Artículo 3º—Sesiones del Comité. El Comité se reunirá ordinariamente el primer día hábil de diciembre, marzo, junio y setiembre, y extraordinariamente cuando lo convoque su Presidente. Formarán quórum la mayoría absoluta de los componentes según el asunto que vaya a ser discutido y los acuerdos se tomarán por la mayoría absoluta de los asistentes con derecho a voto según el acuerdo por adoptar.
+De las sesiones del Comité se levantará un acta que será firmada por todos los presentes, libro de actas que será custodiado por su Secretario.

@@ -1,0 +1,6 @@
+CAPÍTULO I
+Del comité de cumplimiento para la prevención, detección
+y control de la legitimación de capitales
+Artículo 2º—Integración del comité de cumplimiento para la prevención, detección y control de legitimación de capitales. Crease el “Comité de cumplimiento para la prevención, detección y control de la legitimación de capitales” (El Comité), conformado por un integrante de la Junta Directiva, quien lo presidirá, el Gerente General Corporativo, quien será su vicepresidente, el Director del Macroproceso de Negocios, el Coordinador del Subproceso de Seguridad y el Oficial de Cumplimiento, quien será su secretario, Comité al que deberá asistir el Jefe de la Consultoría Jurídica del Banco Popular en calidad de asesor, con voz y sin voto.
+Para el conocimiento y resolución de asuntos relacionados con alguna de las empresas públicas propiedad del Banco, la composición del Comité se tendrá por adicionada con el o los Gerentes de las empresas interesadas en el asunto, quienes para el conocimiento del mismo tendrá voz y voto.
+Las funciones indicadas en este artículo son indelegables; salvo en el caso del Gerente Corporativo, quien podrá delegarlas en alguno de los Subgerentes del Banco Popular y de Desarrollo Comunal.
