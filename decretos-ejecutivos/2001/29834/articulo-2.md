@@ -1,0 +1,1 @@
+Artículo 2º—De acuerdo con el artículo 13 de la Ley Nº 6084 del 24 de agosto de 1977, el Instituto Geográfico Nacional procederá a indicar los límites precisos del área marina del Parque Nacional Isla del Coco y confeccionará las cartas batimétricas o mapas oficiales correspondientes.
