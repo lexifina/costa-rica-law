@@ -1,0 +1,1 @@
+Artículo 2°- Encargar al Ministro de Educación, Departamento de Extensión Cultural y Dirección General de Artes y Letras, de efectuar y coordinar las actividades que juzgue pertinentes a fin de que con ocasión del Día del Libro se lleven a cabo las exposiciones, concursos y ferias del libro.
