@@ -14,3 +14,4 @@ Declara Emergencia Nacional Suministro Agua Potable en Todo el País
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-03-16 | la propia norma |
+| 2 | 1984-03-16 | SINALEVI (sin norma nombrada) |
