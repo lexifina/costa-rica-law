@@ -1,1 +1,0 @@
-ARTICULO 17.- Las disposiciones del Poder Legislativo o del Ejecutivo que fueren contrarias a la Constitución son nulas y de ningún valor, cualquiera que sea la forma en que se emitan. Lo son igualmente los actos de los que usurpen funciones públicas, los empleos conferidos sin los requisitos prevenidos por la Constitución o las leyes.

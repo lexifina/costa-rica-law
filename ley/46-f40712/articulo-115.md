@@ -1,1 +1,0 @@
-ARTICULO 115.- Los acuerdos, resoluciones y órdenes del Presidente de la República, serán firmados por cada Secretario en los ramos que le están encomendados, sin cuyo requisito no serán válidos y por consiguiente no producirán efecto legal.
