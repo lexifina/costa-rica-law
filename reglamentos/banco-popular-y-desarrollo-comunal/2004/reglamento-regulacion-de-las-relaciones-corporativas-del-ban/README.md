@@ -14,3 +14,4 @@ Reglamento Regulación de las Relaciones Corporativas del Banco Popular y de Des
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-08-10 | la propia norma |
+| 2 | 2004-08-10 | Reglamento 4232 (2004-08-05) |
