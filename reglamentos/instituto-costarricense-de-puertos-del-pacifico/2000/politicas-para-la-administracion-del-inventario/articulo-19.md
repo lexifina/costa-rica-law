@@ -1,0 +1,7 @@
+Artículo 19.—Del recibo de los artículos. Para el recibo de los artículos deben seguirse los siguientes pasos.
+Procedimiento de compra directa
+a) La empresa o casa comercial debe entregar al Almacén de Materiales la mercadería o activos y presentar en ese mismo acto la factura original con tres copias y además copia de la "orden de compra."
+b) El Almacén de Materiales debe revisar los activos o mercadería y verificar físicamente contra factura y copia de la "orden de compra" en su poder; si no fuese el material solicitado o si se encuentra defectuoso debe proceder a devolverlo.
+c) Si el recibo de la mercadería es parcial, la jefatura del Almacén de Materiales o a quién éste designe deberá confeccionar "El control auxiliar de la orden de compra'' y archivar temporalmente en Ordenes de Compra pendientes de liquidación.
+d) Una vez completa la entrega de la mercadería, un funcionario del Almacén de Materiales confeccionará según cada caso el Reporte de Artículos o Activos recibidos, en un formulario con cinco copias, firmará dicho documento y lo entregara a la jefatura del Almacén de Materiales para que lo firme en señal de aprobación.
+e) La jefatura del Almacén de Materiales debe enviar a Proveeduría el original de la factura v el Reporte de Artículos o Activos Recibidos adicionalmente envía copias de dicho reporte a: Departamento de Contabilidad. Unidad solicitante. Departamento Proveeduría, Despacho del Almacén y Archivo.

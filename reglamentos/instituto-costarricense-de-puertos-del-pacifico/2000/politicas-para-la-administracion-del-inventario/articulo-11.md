@@ -1,0 +1,1 @@
+Articulo 11.—Del visto Bueno en el Despacho. Todo artículo solicitado al Almacén de Materiales por medio del "Movimiento de Almacén" deberá contar con el Visto Bueno de la Jefatura del Almacén de Malcríales o del funcionario designado por éste para el despacho.

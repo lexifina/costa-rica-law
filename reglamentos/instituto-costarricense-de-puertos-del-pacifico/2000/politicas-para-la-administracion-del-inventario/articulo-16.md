@@ -1,0 +1,1 @@
+Artículo 16.—Del responsable de los niveles óptimos de combustible. La jefatura del Almacén de Materiales será la responsable de mantener los niveles óptimos de combustible que permitan el funciona miento normal del equipo rodante, fletante y toda aquella maquinaria que lo necesite para su funcionamiento.

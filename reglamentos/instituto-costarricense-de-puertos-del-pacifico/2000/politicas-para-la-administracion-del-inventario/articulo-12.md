@@ -1,0 +1,1 @@
+Articulo 12.—Del Almacenaje exclusivo en el Almacén de Materiales. Para mayor control, seguridad y una eficiente administración, no se deberá almacenar artículos propios del Almacén de Materiales, fuera de éste.

@@ -1,0 +1,1 @@
+Articulo 17.—De la identificación del material obsoleto. El personal del almacén de Materiales debe identificar el material obsoleto para que el Departamento de Contabilidad efectúe el ajuste en los registros contables y la administración superior tome una decisión con respecto a dicho material que le permita al Almacén de Materiales liberar espacio físico.

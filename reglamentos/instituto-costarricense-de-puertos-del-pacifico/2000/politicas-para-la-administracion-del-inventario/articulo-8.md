@@ -1,0 +1,1 @@
+Artículo 8°—De la seguridad en la recepción de la mercadería. La recepción de la mercadería en el Almacén de Materiales deberá estar sujeta a las más rigurosas medidas de seguridad para evitar accidentes y desvíos; al efecto solo debe intervenir personal autorizado e identificado.

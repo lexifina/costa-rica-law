@@ -1,0 +1,1 @@
+Articulo 2°—Del control y la planificación del inventario. Los factores de cantidad, calidad, tiempo y costo son clave para el control y la planificación efectiva; razón por la cual la jefatura del Almacén de materiales debe determinar la cantidad correcta de articules, el tipo y la cantidad adecuada, en el momento que se necesiten para su uso.

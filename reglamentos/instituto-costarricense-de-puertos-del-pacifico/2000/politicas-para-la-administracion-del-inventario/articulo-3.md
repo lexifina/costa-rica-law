@@ -1,0 +1,1 @@
+Articulo 3°—De los pedidos óptimos. La Jefatura del Almacén de Materiales hará los pedidos necesarios cu las cantidades óptimas de los diferentes artículos para mantener en stock niveles adecuados de inventario para cada ítem y en concordancia con el contenido presupuestario asignado.

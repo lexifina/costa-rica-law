@@ -1,0 +1,1 @@
+Artículo 7°—De la ubicación inmediata de Ios artículos recibidos. El responsable del Almacén de Materiales, coordinara con sus colaboradores para que los articules recibidos sean ubicados en los casilleros y lugares correspondientes en el menor tiempo posible.

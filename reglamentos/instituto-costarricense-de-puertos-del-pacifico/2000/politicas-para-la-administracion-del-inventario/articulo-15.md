@@ -1,0 +1,2 @@
+Articulo 15. De las estimaciones anuales de los artículos de oficina Cada Jefatura de Dirección hará los estimaciones del material de oficina que ocupará durante el año y se las remitirá a la Jefatura de Almacén de Materiales para que este los consolide y organice la programación de los pedidos con el fin de poder satisfacer las demandas de cada dependencia en forma oportuna.
+Dichas estimaciones deben ser enviadas a la Jefatura del Almacén de Materiales en los primeros días del mes de enero de cada año.
