@@ -1,0 +1,1 @@
+Art. 7. El Gobierno nombrará una comisión particular, para que haga la distribución anterior. –Dado en la Ciudad de San José, á ocho de Octubre de mil ochocientos cuarenta y uno. Braulio Carrillo. –El Secretario general –Manuel A. Bonilla.
