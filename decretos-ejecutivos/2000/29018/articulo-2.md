@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza al sector público centralizado y descentralizado, territorial e institucional, para contribuir al desarrollo de las actividades de la Comisión con recursos humanos y materiales, dentro del marco legal respectivo y sin perjuicio del cumplimiento de sus propios objetivos.
