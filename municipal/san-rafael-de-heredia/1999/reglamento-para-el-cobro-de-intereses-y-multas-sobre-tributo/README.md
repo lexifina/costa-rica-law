@@ -14,3 +14,4 @@ Reglamento para el Cobro de Intereses y Multas sobre Tributos Municipales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-03 | la propia norma |
+| 2 | 2000-04-25 | Reglamento municipal 0 (2000-04-25) |
