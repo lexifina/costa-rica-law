@@ -1,0 +1,1 @@
+Artículo 5º—El Servicio Fitosanitario del Estado no gozará de facultades discrecionales en la aplicación de las prohibiciones y medidas fitosanitarias, las cuales son absolutas y de aplicación obligatoria.

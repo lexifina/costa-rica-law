@@ -1,0 +1,1 @@
+Artículo 12.—El Servicio Fitosanitario del Estado podrá, cuando lo considere necesario, coordinar, planificar y programar con las otras dependencias del Ministerio involucradas en la prestación efectiva de las funciones descritas por ley.

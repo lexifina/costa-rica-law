@@ -1,0 +1,1 @@
+Artículo 47.—Cuando se establece en tiempo y forma el Recurso de Revisión, el Ministro deberá resolver en un plazo máximo de ocho días hábiles y lo que éste resuelva no tendrá recurso alguno en sede administrativa.

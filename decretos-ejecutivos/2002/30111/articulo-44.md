@@ -1,0 +1,1 @@
+Artículo 44.—En caso que el Recurso de Revocatoria no prospere, cabrá recurso de apelación el cual deberá establecerse en un plazo máximo de tres días hábiles, después de notificada la resolución que resuelva el Recurso de Revocatoria. El Recurso de Apelación será interpuesto ante el Director Ejecutivo del Servicio Fitosanitario del Estado.

@@ -1,0 +1,1 @@
+Artículo 46.—Contra lo resuelto por el Director Ejecutivo cabrá Recurso de Revisión, el que deberá establecerse dentro de las 24 horas siguientes a la notificación de la resolución de Director Ejecutivo, ante el Ministro Rector del Sector Agropecuario.

@@ -1,0 +1,1 @@
+Artículo 6º—Los funcionarios públicos, y de órganos de la Administración Pública, dentro de sus respectivas competencias, deberán prestar la colaboración que las autoridades del Servicio Fitosanitario del Estado les soliciten para cumplir con las funciones y objetivos establecidos legalmente.
