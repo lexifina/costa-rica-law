@@ -1,0 +1,1 @@
+Artículo 36.—Cuando el objeto de la audiencia fuere un asunto de competencia del Alcalde, el Presidente ordenará a la Secretaría remitir el memorial presentado a dicho funcionario, para que éste le dé trámite correspondiente. La Secretaría deberá comunicárselo al interesado.

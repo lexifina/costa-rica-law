@@ -1,0 +1,1 @@
+Artículo 30.—El recurso ordinario de revisión procederá contra los acuerdos que no han sido declarados en firme y sólo podrá ser presentado por los regidores antes de la aprobación del acta; para acordar la revisión, se necesitará la misma mayoría requerida para dictar el acuerdo.

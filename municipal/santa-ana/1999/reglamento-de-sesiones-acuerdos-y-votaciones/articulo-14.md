@@ -1,0 +1,1 @@
+Artículo 14.—Las sesiones del Concejo se desarrollarán conforme al Orden del Día elaborado previamente por la Presidencia con ayuda de la Secretaría del Concejo. Esto no afectará el hecho de que la Presidencia pueda incluir a última hora asuntos que sean considerados de trámite urgente.

@@ -1,0 +1,1 @@
+Artículo 32.—Las actas se colocarán en las curules dos horas antes de que se inicie la sesión según lo establece el Código Municipal. No obstante se tratará de darlas con un día de anticipación para facilidad de los regidores.

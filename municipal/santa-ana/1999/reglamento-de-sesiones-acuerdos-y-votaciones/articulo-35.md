@@ -1,0 +1,1 @@
+Artículo 35.—Los interesados en participar deberán presentar ante la Secretaría solicitud escrita con exposición de los motivos en que fundamentan su petición. En el caso de que sea por invitación del Concejo no se deberá de cumplir con este requisito.

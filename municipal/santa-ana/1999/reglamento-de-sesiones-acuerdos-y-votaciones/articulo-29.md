@@ -1,0 +1,2 @@
+Artículo 29.—Los acuerdos tomados por el Concejo quedarán definitivamente firmes al aprobarse el acta respectiva. Para declarar como definitivamente aprobado un acuerdo se necesitará el voto de las dos terceras partes de la totalidad de los miembros del Concejo.
+Cada dos meses, el Alcalde y el Presidente en conjunto emitirán un informe a modo de listado de los acuerdos tomados por el Concejo Municipal para el correspondiente seguimiento por parte de sus miembros.

@@ -1,0 +1,1 @@
+Artículo 4º—El Concejo tendrá sesiones ordinarias y extraordinarias según lo dispuesto en la ley. Todas las sesiones serán públicas sin perjuicio de que, en casos muy especiales, determinada sesión, o parte de ella, sea declarada secreta.

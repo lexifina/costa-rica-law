@@ -1,0 +1,1 @@
+Artículo 24.—El presidente no dará curso o declarará fuera de orden las mociones o proposiciones que resulten evidentemente improcedentes porque no han cumplido con los requisitos requeridos o porque tiendan a dilatar u obstruccionar el curso normal del debate o la resolución del asunto.

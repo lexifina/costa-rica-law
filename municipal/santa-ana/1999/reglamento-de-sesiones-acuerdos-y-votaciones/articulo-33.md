@@ -1,0 +1,1 @@
+Artículo 33.—Las actas se aprobarán en la sesión ordinaria inmediata posterior salvo que lo impidan razones de fuerza mayor, en cuyo caso la aprobación se pospondrá para la siguiente sesión ordinaria.

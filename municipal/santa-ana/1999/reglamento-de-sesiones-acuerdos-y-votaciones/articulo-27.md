@@ -1,0 +1,1 @@
+Artículo 27.—Los acuerdos del Concejo se tomarán por mayoría absoluta del Concejo salvo los casos que de conformidad con la ley se requiera una mayoría diferente. Se entenderá por mayoría absoluta la mitad más uno de los Regidores Propietarios del Concejo.

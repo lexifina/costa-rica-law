@@ -1,0 +1,1 @@
+Artículo 15.—El orden del día se respetará una vez pasados los quince minutos a que se hace referencia el artículo 10 de este Reglamento. No obstante por iniciativa de al menos un regidor o del Alcalde se puede solicitar al Concejo que se modifique o altere, debiendo ser aprobado por dos terceras partes de los miembros presente.

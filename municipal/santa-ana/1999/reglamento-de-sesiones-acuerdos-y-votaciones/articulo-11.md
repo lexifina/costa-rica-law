@@ -1,0 +1,1 @@
+Artículo 11.—Los regidores y síndicos que lleguen después de transcurridos los quince minutos a que se hace referencia el artículo 10 perderán el derecho a devengar la dieta, aunque no se hubiera efectuado su sustitución. Podrán participar con derecho a voz, pero no a voto.
