@@ -1,0 +1,1 @@
+Art. 7°-En los casos de los artículos 3° y 4°, junto con la embarcación, serán inmediatamente detenidos, el patrón o dueño de ella; y en los del artículo 5°, lo será además la tripulación, á fin de proceder á las investigaciones respectivas.
