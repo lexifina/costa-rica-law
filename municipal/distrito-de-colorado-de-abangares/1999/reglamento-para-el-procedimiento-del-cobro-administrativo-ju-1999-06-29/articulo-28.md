@@ -1,0 +1,1 @@
+Artículo 28.—En caso de que el contribuyente moroso incumpliere el compromiso adquirido de arreglo de pago. el Concejo Municipal de Distrito procederá de inmediato a pasar dicha cuenta a cobro judicial.
