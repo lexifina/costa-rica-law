@@ -1,0 +1,1 @@
+Artículo 17.—Le corresponderá al Encargado Administrativo, la observancia y vigilancia del cumplimiento del presente Reglamento y quedará en la obligación de elevar ante la Auditoría Interna de este Municipio cualquier anomalía detectada.

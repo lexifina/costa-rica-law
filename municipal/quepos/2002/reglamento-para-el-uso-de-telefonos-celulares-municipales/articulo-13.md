@@ -1,0 +1,1 @@
+Artículo 13.—En el caso que no cancele la suma de recargo indicada en el recibo telefónico del correspondiente mes, el Encargado Administrativo procederá al decomiso del aparato y gestionará ante la Auditoría Interna los procedimientos correspondientes para la obligación de la cancelación del mismo.

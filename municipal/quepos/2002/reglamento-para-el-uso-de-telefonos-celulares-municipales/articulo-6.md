@@ -1,0 +1,1 @@
+Artículo 6º—Cada asignatario podrá utilizar su teléfono celular solo para llamadas nacionales correspondientes al ejercicio de su función. Las llamadas internacionales, serán cubiertas en su totalidad por el asignatario.

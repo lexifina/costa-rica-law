@@ -1,0 +1,1 @@
+Artículo 16.—Queda prohibido el uso excesivo de los teléfonos celulares, mientras se lleve a cabo actos oficiales, sesiones del Concejo, reuniones de comisión y reuniones con funcionarios municipales y otros.
