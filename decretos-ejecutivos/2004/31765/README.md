@@ -14,3 +14,4 @@ Manual para la Atención de los Informes de la Contraloría General de la Repúb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-04-30 | la propia norma |
+| 2 | 2004-06-01 | Decreto Ejecutivo 31863 (2004-06-01) |
