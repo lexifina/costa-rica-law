@@ -1,0 +1,1 @@
+Artículo 7°—Los negocios que estén funcionando sin la respectiva patente, la Oficina de Cobros les notificará otorgando un plazo de cuatro días hábiles para realizar la solicitud y cancelar la tasa fijada. Sí no atiende el aviso de la Municipalidad, se solicitará al Departamento de Inspectores a proceder a cierre del negocio.

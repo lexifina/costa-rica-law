@@ -1,0 +1,1 @@
+Artículo 10.—Previo Informe de Inspectores, se solicitará al Concejo Municipal que por falta de ejercicio de la Actividad Comercial, se de por cancelada la patente y sea excluida del sistema de cobro.
