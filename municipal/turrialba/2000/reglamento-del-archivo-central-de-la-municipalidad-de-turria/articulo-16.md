@@ -1,0 +1,1 @@
+Articulo 16.-Acceso a los documentos. Los dictámenes emitidos por las dependencias que no han sido conocidos por el órgano a quien van dirigidos, no pueden ser conocidos por las partes, razón por la cual queda absolutamente prohibido en acceso de los mismos, a tenor de lo que establece el articulo 273 de la Ley General de la Administración Pública.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Del Comité Institucional de Selección y Eliminación de Documentos
+Artículo 34.-Conformación del Comité. El Comité Institucional de Selección y Eliminación de Documentos, estará conformado por el Encargado del Archivo Central, el Alcalde Municipal y el Asesor Legal Municipal. Entre dichos miembros se nombrará un Presidente y un Secretario. En la primera sesión del Comité, que se efectuará a más tardar quince días naturales después de la entrada en vigencia de este Reglamento, se definirá lo relativo al programa de trabajo, así como los detalles relativos al cumplimiento de funciones, todo lo cual se hará del conocimiento del Concejo Municipal.

@@ -1,0 +1,2 @@
+Artículo 21.-Los Encargados de los Archivos de Gestión serán los responsables de que en su oficina se ordenen y archiven correctamente los documentos, siguiendo la normativa establecida por el Archivo Central.
+Asimismo, será el responsable de que se envíen correctamente las listas de remisión.

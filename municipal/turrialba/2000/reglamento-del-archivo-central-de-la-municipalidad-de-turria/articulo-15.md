@@ -1,0 +1,2 @@
+Articulo 15.-Consulta al expediente administrativo. La consulta al expediente administrativo, sólo podrá darse dentro de las instalaciones del Archivo Central.
+El Alcalde Municipal, Miembros del Concejo Municipal, el Auditor Interno en el ejercicio de sus funciones, el Asesor Legal, podrán consultar el expediente administrativo del Archivo Central en cualquier recinto de la Municipalidad de Turrialba. Esta consulta se realizará en casos calificados en aras de proteger la información e integridad original de los documentos.

@@ -1,0 +1,2 @@
+De la consulta y préstamo de documentos
+Artículo 17.-EI plazo máximo de permanencia fuera del recinto del Archivo Central sobre documentación solicitada, será de diez (10) días hábiles a partir de la fecha de entrega. Cumplido el periodo, los documentos deberán ser devueltos. En caso de ser requeridos por más tiempo, la unidad interesada, solicitará una prórroga conforme lo dispuesto en el formulario, que para tal fin existe en el Archivo Central.

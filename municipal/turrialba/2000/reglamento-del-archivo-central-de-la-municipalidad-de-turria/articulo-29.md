@@ -1,0 +1,1 @@
+Artículo 29.-Expedientes personales de funcionarios inactivos. Los expedientes personales en custodia del Archivo Central de los funcionarios inactivos, se prestarán únicamente al interesado, al Departamento de Personal a la Auditoria Interna en el cumplimiento de sus funciones, a los Tribunales de Justicia o bien bajo una orden judicial así lo determine.

@@ -1,0 +1,1 @@
+Articulo 18.-Cualquier ciudadano interesado en consultar documentos deberá hacer la solicitud por escrito indicando con toda claridad el objetivo de su investigación, llenará la boleta de préstamo de documentos y, además, deberá identificarse con su cédula de identidad, pasaporte o carné de estudiante, según sea el caso.

@@ -1,0 +1,1 @@
+Artículo 19.-En caso de que los documentos sean consultados por historiadores o con un fin de elaborar investigaciones importantes y a juicio del Encargado del Archivo, éste solicitará una copia del trabajo realizado que pasará a formar parte del patrimonio documental de la Institución.

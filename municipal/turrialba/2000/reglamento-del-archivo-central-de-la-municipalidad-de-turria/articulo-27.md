@@ -1,0 +1,2 @@
+Artículo 27.-Reproducción de documentos. El Archivo Central estará facultado para reproducir sus documentos a nivel interno, estableciendo los controles necesarios para ello. Cuando se trate de usuarios externos, el Encargado del Archivo Central podrá autorizar la salida de documentos para su reproducción fuera de las instalaciones, con la custodia de uno de los funcionarios.
+Para la prestación y/o reproducción de documentos, deberá observarse lo que establecen las disposiciones finales de este Reglamento.
