@@ -1,0 +1,1 @@
+Artículo 11.—Del dictamen de la comisión calificadora del estado de invalidez. Una vez rendido el dictamen por parte de la Comisión Calificadora del Estado de Invalidez, el cual tiene carácter técnico médico, se remite, junto con el expediente, a la dependencia administrativa que corresponda.

@@ -1,0 +1,1 @@
+Artículo 4º—Del informe. El informe que rindan los médicos evaluadores, serán remitidos a la Comisión Calificadora del Estado de Invalidez ó Comisión de Apelaciones al Estado de Invalidez, según corresponda.

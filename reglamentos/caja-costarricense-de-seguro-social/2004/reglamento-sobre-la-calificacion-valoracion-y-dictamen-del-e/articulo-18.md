@@ -1,0 +1,1 @@
+Artículo 18.—De la integración. Los Equipos Regionales Evaluadores de la Invalidez, estarán integrados por tres médicos especialistas del respectivo centro hospitalario o de la Región. Asimismo se nombrará un médico especialista quien sustituirá la ausencia de cualquiera de ellos.

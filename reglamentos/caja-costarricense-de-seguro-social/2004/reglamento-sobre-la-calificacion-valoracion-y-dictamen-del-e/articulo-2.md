@@ -1,0 +1,7 @@
+Artículo 2º—Definiciones. Para la aplicación de este Reglamento, deben considerarse las siguientes definiciones:
+PERSONA INVÁLIDA: Se considera persona inválida el asegurado que por alteración o debilitamiento de su estado físico o mental, perdiera dos terceras partes o más de la capacidad de desempeño de su profesión u oficio, actividad habitual u otra compatible con su capacidad residual y que, por tal motivo, no pudiere obtener remuneración suficiente, que le permita subsistir.
+MÉDICO EVALUADOR: Médico que tiene a su cargo la evaluación del asegurado solicitante de pensión por invalidez, tomando en cuenta el historial médico y todos los informes que aporta el solicitante, así como los estudios complementarios que haya solicitado para la adecuada resolución del caso.
+EQUIPO REGIONAL EVALUADOR: Equipo médico que tiene a su cargo la evaluación del asegurado solicitante de pensión por invalidez, tomando en cuenta el historial médico y todos los informes que aporta el solicitante, así como los estudios complementarios que haya solicitado
+para la adecuada resolución del caso.
+COMISIÓN CALIFICADORA DEL ESTADO DE INVALIDEZ: Órgano competente a nivel institucional para declarar inválido o no invalido en sede administrativa al asegurado solicitante de pensión.
+COMISIÓN DE APELACIONES AL ESTADO DE INVALIDEZ: Órgano competente a nivel institucional, para revisar en segunda instancia la declaratoria de no invalidez en sede administrativa.
