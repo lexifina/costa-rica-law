@@ -1,0 +1,1 @@
+Artículo 2°-EI producto de este empréstito será destinado a reanudar el servicio de Ia Deuda Pública, cancelando las sumas atrasadas por concepto de amortización e intereses, así como a cubrir las subvenciones urgentes que el Gobierno Central adeuda a varias instituciones asistenciales y a satisfacer otros pagos perentorios.
