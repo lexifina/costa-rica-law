@@ -1,1 +1,0 @@
-Artículo 32.-Si la Dirección de Geología y Minas, considera incompleto o incorrecto el informe semestral de labores, prevendrá al titular para que mediante anexo cumpla con el requisito en un plazo no mayor de un mes. De no cumplirse con lo requerido, se caducará la concesión.

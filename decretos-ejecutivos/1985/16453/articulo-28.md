@@ -1,1 +1,0 @@
-Artículo 28.-La Dirección de Geología y Minas solicitará al concesionario el nombramiento de un geólogo, o ingeniero de minas debidamente incorporado al Colegio Profesional respectivo, como responsable de la explotación, en casos, en los que, a juicio del inspector, así se requiera, debido a los volúmenes de la explotación y a la inminencia de daños irreparables.

@@ -1,2 +1,0 @@
-Artículo 10.-Las oposiciones se presentarán ante el Registro Nacional Minero y se tramitarán, en lo no previsto por este Reglamento, mediante los mismos procedimientos que señala el Código de Procedimientos Civiles, en su título IV, capítulo único, para los incidentes.
-La oposición que no indicare o no acompañare los documentos que justifiquen al causal que invoca, se tendrá por no presentada, sin necesidad de resolución que así lo indique.

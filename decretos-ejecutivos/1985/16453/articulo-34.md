@@ -1,1 +1,0 @@
-Artículo 34.-Tratándose de solicitudes de extracción manual, de bajo volumen, a juicio de la Dirección de geología y Minas, podrá eximieres al solicitante de cumplir con algunos de los requisitos contemplados en el presente Reglamento, cuando la naturaleza de los trabajos a realizar así lo ameriten, y la condición socioeconómica del solicitante, así lo requiera.

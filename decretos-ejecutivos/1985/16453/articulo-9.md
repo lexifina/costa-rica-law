@@ -1,1 +1,0 @@
-Artículo 9º.-Todo aquel que tuviere en trámite o que le hubiese sido otorgada una concesión anterior sobre la misma área podrá interponer oposición a la solicitud dentro del plazo de quince días, contado desde la fecha de la última publicación.

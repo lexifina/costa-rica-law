@@ -1,1 +1,0 @@
-Artículo 17.-Las concesiones de extracción se entenderán adquiridas desde la fecha en que se inscriba la resolución en el Registro Nacional Minero, a petición del beneficiario. El acto de pedir la inscripción constituye la aceptación por parte del titular, de todos los derechos, obligaciones y condiciones con que han sido otorgadas.
