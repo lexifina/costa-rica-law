@@ -1,0 +1,1 @@
+Art. 2°. -Estas comisiones procederán á llenar su cometido tan luego como fueren nombradas, y á más tardar el 31 de agosto próximo deberán haber presentado á la Comandancia de la provincia respectiva las listas que hubieren formado.
