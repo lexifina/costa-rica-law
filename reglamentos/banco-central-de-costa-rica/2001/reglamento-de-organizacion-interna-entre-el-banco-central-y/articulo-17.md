@@ -1,0 +1,1 @@
+Artículo 17.—Las solicitudes de compra de bienes y servicios de los O.D.M., serán atendidas cronológicamente y se dará prioridad a los aspectos urgentes, previa coordinación de los Superintendentes con la Gerencia del Banco Central de Costa Rica.

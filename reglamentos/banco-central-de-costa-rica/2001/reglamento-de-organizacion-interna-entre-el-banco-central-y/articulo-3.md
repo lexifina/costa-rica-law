@@ -1,0 +1,1 @@
+Artículo 3°—Los O.D.M. quedan obligados a observar los reglamentos, normativa, directrices, procedimientos e instructivos que regulan la actividad administrativa en el Banco Central. Las solicitudes que no cumplan con esta disposición no serán atendidas por el Banco Central.

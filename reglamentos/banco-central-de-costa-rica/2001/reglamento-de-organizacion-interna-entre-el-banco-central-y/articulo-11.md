@@ -1,0 +1,1 @@
+Artículo 11.—El Sistema Integrado de Proveeduría/Presupuesto (SIPP) será el instrumento de formulación y consolidación del presupuesto y sus modificaciones que utilizarán los O.D.M., de manera que posteriormente, el Banco Central de Costa Rica pueda llevar a cabo el control presupuestario.

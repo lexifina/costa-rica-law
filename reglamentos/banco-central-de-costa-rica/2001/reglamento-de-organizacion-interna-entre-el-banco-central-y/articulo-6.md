@@ -1,0 +1,1 @@
+Artículo 6°—Para efectos de controlar la calidad y la eficacia en los servicios administrativos objeto de este Reglamento se deberá comunicar a los O.D.M., todo cambio o inclusión que afecte la materia de Presupuesto, Recursos Humanos, Proveeduría, Vigilancia, Adquisición de Bienes y Servicios y Sistema de Pagos.

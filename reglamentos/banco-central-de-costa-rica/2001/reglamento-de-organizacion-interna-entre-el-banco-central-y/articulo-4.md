@@ -1,0 +1,1 @@
+Artículo 4°—Los servicios administrativos que brinda el Banco Central de Costa Rica se prestarán bajo principios de calidad y confiabilidad de la información, oportunidad y eficiencia en los procesos administrativos y responsabilidad en cuanto a la trascendencia de los errores u omisiones, de tal manera que aplique el concepto de "satisfacción al cliente".

@@ -1,0 +1,1 @@
+Artículo 18.—El personal asignado al Departamento de Proveeduría por parte de los O.D.M., estará bajo la dirección del Director del Departamento de Proveeduría, recibirá instrucciones y su gestión laboral será evaluada por dicho Director. Sus plazas estarán adscritas presupuestariamente a los O.D.M.. que correspondan.

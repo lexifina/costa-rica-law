@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Otros Servicios
+Artículo 23.—Estará a cargo de cada Superintendencia la gestión del cobro a los regulados por los servicios de supervisión de los O.D.M.. para lo cual deberán de realizar el cálculo, comunicación, control. seguimiento, conciliación, morosidad y saldos pendientes.
+El Banco Central facilitará, a las superintendencias, la infraestructura del SINPE para que los regulados puedan hacer pagos en forma electrónica, directamente o a través de sus entidades financieras, siendo cada Superintendencia la encargada de realizar las labores de monitoreo sobre el Sistema de Transferencia Electrónico de Fondos (TEF), aceptando o rechazando según corresponda, las operaciones de pago respectivas. En caso de que las superintendencias acepten incorrectamente operaciones de transferencia de fondos, deberán de coordinar, con los regulados y con el propio Banco Central, para los ajustes correspondientes.

@@ -1,0 +1,1 @@
+Artículo 8°—La aplicación y modificación a reglamentos, normas y directrices en materia administrativa, serán comunicadas a los O.D.M. los que en un plazo perentorio podrán externar sus criterios u observaciones.

@@ -1,0 +1,1 @@
+Artículo 12.—Los O.D.M., deben comunicar a la División Administrativa las modificaciones y presupuestos extraordinarios, consolidados de las superintendencias, para su inclusión en el S1PP, los cuales se aplicarán una vez comunicada la aprobación por parte del Ente Contralor.

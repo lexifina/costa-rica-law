@@ -1,0 +1,1 @@
+Artículo 9°—Al menos cada seis meses, la primera semana de enero y julio de cada año, los Superintendentes junto con la Gerencia del Banco Central de Costa Rica evaluaran los sen icios prestados a los O.D.M., para lo cual, los Superintendentes deberán rendir un informe razonado sobre el particular, dirigido a la Gerencia del Banco.
