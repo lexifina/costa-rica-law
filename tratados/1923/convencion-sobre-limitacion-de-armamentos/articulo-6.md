@@ -1,0 +1,2 @@
+Artículo VI
+Seis meses después de haber entrado en vigor esta convención, cada Gobierno Contratante presentará a los otros Gobiernos Centroamericanos un informe completo de las medidas que haya adoptado para el cumplimiento de esta Convención. Iguales informes serán presentados semestralmente, durante el término expresado de cinco años. Los informes incluirán las unidades del ejército si los hubiere; las de la Guaria Nacional; y en cualesquiera otros datos que las Partes tengan a bien.
