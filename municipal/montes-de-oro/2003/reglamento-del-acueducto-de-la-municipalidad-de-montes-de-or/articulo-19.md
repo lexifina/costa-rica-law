@@ -1,0 +1,1 @@
+Artículo 19.—Los usuarios que disfrutan del servicio de agua, podrán solicitar por escrito a la Municipalidad, el cambio en el uso del servicio (diferente categoría), para lo cual el Gobierno local determinará si se justifica la solicitud del usuario.

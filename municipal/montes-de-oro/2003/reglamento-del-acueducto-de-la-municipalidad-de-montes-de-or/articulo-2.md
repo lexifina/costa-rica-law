@@ -1,0 +1,1 @@
+Artículo 2°—Este Reglamento regulará la organización y funcionamiento municipal, en cuanto a la prestación del servicio de agua potable, así como establecer los derechos y deberes tanto de los abonados del sistema como de la Municipalidad.
