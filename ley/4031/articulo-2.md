@@ -1,0 +1,1 @@
+Artículo 2º.- Las obligaciones y derechos de Costa Rica como Estado contratante se asignan al Instituto Costarricense de Electricidad, en razón de habérsele encomendado a dicha Institución la atención de las telecomunicaciones, según ley Nº 3226 de 28 de octubre de 1963.
