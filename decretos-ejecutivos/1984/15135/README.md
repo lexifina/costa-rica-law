@@ -14,3 +14,4 @@ Reglamento a la Ley Orgánica del Instituto Nacional de Aprendizaje.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1984-01-23 | la propia norma |
+| 2 | 1987-07-13 | Decreto Ejecutivo 17662 (1987-07-13) |

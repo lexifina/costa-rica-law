@@ -1,2 +1,5 @@
-Articulo 2—Naturaleza
+Artículo 2°—Naturaleza y Régimen de Empleo.
 El INA es una institución autónoma de derecho público con personalidad jurídica y patrimonio propio.
+Sin perjuicio de lo dispuesto en el articulo 24 de la Ley Orgánica del Instituto, en cuanto al personal contratado para programas especiales. instructores y técnicos en formación profesional, Presidente Ejecutivo, Gerente General, Subgerente y Auditor, el personal del Instituto se regirá por el régimen de Servicio Civil, únicamente en cuanto al nombramiento, remoción, clasificación y valoración de puestos y por la Ley de Salarios de la Administración Pública.
+En cuanto a los demás aspectos, el personal del Instituto se regirá exclusivamente por las leyes ordinarias aplicables a las instituciones autónomas, por su reglamento autónomo de servicio emitido directamente por la Junta Directiva y por la legislación laboral aplicable en lo conducente, de acuerdo con la naturaleza de la relación pública de empleo que se da en el Instituto.
+(Así REFORMADO TOTAL Y EXPRESAMENTE por el artículo 1° del Decreto Ejecutivo N° 17662 de 13 de julio de 1987, publicado en La Gaceta N° 154 de 13 de agosto de 1987.)
