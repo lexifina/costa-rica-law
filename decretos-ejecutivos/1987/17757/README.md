@@ -16,3 +16,4 @@ Reglamento a la Ley sobre la Venta de Licores
 | 1 | 1987-10-08 | la propia norma |
 | 2 | 1987-10-08 | SINALEVI (sin norma nombrada) |
 | 3 | 1997-10-08 | SINALEVI (sin norma nombrada) |
+| 4 | 2003-02-26 | Ley 8 |
