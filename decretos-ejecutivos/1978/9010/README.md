@@ -14,3 +14,4 @@ Crea Comisión Ejecutiva Cacaotera (CEAC)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-09-19 | la propia norma |
+| 2 | 1979-12-19 | Decreto Ejecutivo 11142 (1979-12-19) |
