@@ -1,6 +1,5 @@
-Artículo 55.- Cualquier persona podrá denunciar ante el Gerente,
-Subgerente, Fiscal o Inspectores de la Caja, las infracciones que se hagan
-a esta ley o a sus reglamentos.
-Los Tribunales de Trabajo tendrán siempre como parte a la Sección de
-Fiscalía en todos los juzgamientos de faltas cometidas contra la presente
-ley o sus reglamentos.
+Artículo 55.- Las controversias suscitadas por la aplicación del Régimen de Invalidez, Vejez y Muerte y las promovidas por la aplicación de las leyes y los reglamentos por parte del Servicio de Inspección o contra él, serán substanciadas y resueltas por el despacho correspondiente y contra lo que este Servicio decida, cabrá recurso de apelación ante la Gerencia de División correspondiente, siempre que se interponga ante la oficina que dictó la resolución, dentro de los tres días hábiles posteriores a la notificación respectiva.
+El pronunciamiento deberá dictarse dentro de los veinte días hábiles siguientes a la fecha en que se promovió el recurso.
+Las demás controversias que se promuevan con motivo de la aplicación de esta ley o sus reglamentos, serán substanciadas y resueltas por la Gerencia de División respectiva. Contra lo que esta decida, cabrá recurso de apelación ante la Junta Directiva, el cual deberá interponerse ante la misma Gerencia de División que dictó la resolución impugnada, dentro de los tres días hábiles siguientes a la notificación. El pronunciamiento de la Junta Directiva deberá dictarse dentro de los veinte días siguientes a aquél en que se planteó el recurso.
+Cada Gerente de División conocerá de los asuntos atinentes a su competencia, según la materia de que se trate. Si alguno estima que un caso no le corresponde, lo remitirá de oficio sin más trámite a la División respectiva. El plazo para impugnar ante los tribunales las resoluciones firmes que dicte la Caja será de seis meses.
+(Así reformado por el artículo 85 de la Ley N° 7983 del 16 de febrero del 2000).
