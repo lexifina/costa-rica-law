@@ -14,3 +14,4 @@ Declara e Incorpora al Patrimonio Histórico Arquitectónico de Costa Rica, el I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-05 | la propia norma |
+| 2 | 2002-06-06 | Decreto Ejecutivo 30569 (2002-06-06) |
