@@ -1,0 +1,1 @@
+2º—Ordénese mandamiento de desafectación de la anotación provisional de declaratoria de interés público, contenida en el Decreto Ejecutivo N° 14894-MOPT del 5 de octubre de 1983, publicado en La Gaceta N° 196 del 18 de octubre de 1983, ante el Registro Público de la Propiedad Inmueble.
