@@ -1,0 +1,1 @@
+Artículo 2º—Corresponderá a la Autoridad Presupuestaria ajustar la clasificación del personal del Tribunal Registral Administrativo señalada en el Decreto Ejecutivo N° 30944-J, sin perjuicio de los derechos adquiridos.
