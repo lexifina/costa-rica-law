@@ -1,0 +1,1 @@
+Artículo 16.—La Administración del cementerio específicamente autorizado, estará obligada a extender las certificaciones de los datos existentes del registro de cremaciones que le fueren solicitadas y las relativas al Registro o pago del derecho de la urna respectiva.

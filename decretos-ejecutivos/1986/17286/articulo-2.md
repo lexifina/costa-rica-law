@@ -1,0 +1,1 @@
+Artículo 2°—La cremación de cadáveres y de restos humanos sólo podrá efectuarse en crematorios debidamente autorizados por el Ministerio previo cumplimiento de las exigencias reglamentarias existentes.

@@ -1,0 +1,1 @@
+Artículo 25.—La cremación de un cadáver deberá efectuarse entre las veinticuatro y las treinta y seis horas, después del deceso de la persona, salvo cuando por orden de la autoridad competente deba efectuarse antes o después de dicho tiempo.

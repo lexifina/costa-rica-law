@@ -1,0 +1,1 @@
+Artículo 13°—Las urnas o recipientes depositarios de las cenizas y producto de la cremación deberán ser de metal preferiblemente inoxidable y herméticamente sellados y llevar en forma legible la grabación del nombre del fallecido, el número de orden que le corresponderá en el registro de cremaciones y las fechas de nacimiento y defunción.

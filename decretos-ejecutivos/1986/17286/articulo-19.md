@@ -1,0 +1,1 @@
+Artículo 19.—Es obligación de los cementerios específicamente autorizados llevar los registros indicados en los incisos a) y b) del artículo anterior, con el mínimo de requisitos que sn ellos se indica y aquellos otros de control y seguridad que se previenen en su reglamento interno.

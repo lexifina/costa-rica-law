@@ -1,0 +1,1 @@
+Artículo 11°—La cremación de restos humanos exhumados después de transcurridos cinco ańos o más desde el día de la defunción, podrá efectuarse sin necesidad de autorización de la autoridad judicial, pero es necesario en todo caso el registro y permiso del Departamento de Vigilancia Epidemiológica.

@@ -1,0 +1,1 @@
+Artículo 27.—Cuando el fallecimiento fuere causado por enfermedad infecto- contagiosa de grave peligro para la salud pública, comprobado en forma fehaciente. el Ministerio podrá ordenar la cremación del cadáver de inmediato.
