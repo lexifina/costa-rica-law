@@ -1,6 +1,3 @@
-ARTÖCULO 7§.-La Bandera de barcos de
-guerra y fiscales ser igual en todo la de
-cuarteles, pero s¢lo medir dos metros de largo
-por un metro sesenta y dos cent¡metros de
-ancho; el Escudo estampado formar una circunferencia
-de cincuenta cent¡metros de di metro.
+Artículo 7º.- La bandera de los barcos de guerra y de los buques
+fiscales será en un todo igual a la que prescribe el artículo cuarto.
+( Así reformado por ley No. 60 de 13 de junio de 1934 ).
