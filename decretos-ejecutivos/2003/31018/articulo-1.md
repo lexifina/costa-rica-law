@@ -1,0 +1,14 @@
+DECRETOS
+N° 31018-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; el artículo 5° de la Ley del Impuesto General sobre las Ventas, N° 6826 del 8 de noviembre de 1982 y sus reformas y el artículo 11 de su Reglamento.
+Considerando:
+1º—Que tanto en el artículo 5º de la Ley General del Impuesto sobre las Ventas, Ley N° 6826 del 8 de noviembre de 1982 y sus reformas, como en el artículo 10 de su Reglamento, se establece que las personas físicas y jurídicas al iniciar sus actividades gravadas con dicho impuesto deben inscribirse en el registro de contribuyentes que al efecto deberá llevar la Administración Tributaria.
+2º—Que el artículo 11 del Reglamento a la Ley N° 6826, Ley General del Impuesto sobre las Ventas de 8 de noviembre de 1982 y sus reformas, fue promulgado mediante Decreto N° 14082-H, de fecha 29 de noviembre de 1982 y publicado en el Alcance N° 38, a La Gaceta N° 230 de fecha 30 de noviembre del mismo año, establece que la Administración Tributaria notificará al interesado la inscripción, su vigencia y el número asignado.
+3º—Que es imperativo procurar la agilización y simplificación de los procedimientos tributarios en virtud de la modernización de la Administración Tributaria, de conformidad con la Ley N° 8220 del 4 de marzo del 2002, publicada en el Alcance 22 a La Gaceta N° 49 "De Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos" y en aras de la observancia del objetivo de aumento de recaudación capaz de inducir al cumplimiento voluntario a los contribuyentes dentro de un ámbito de respeto a los derechos y garantías de éstos.
+4º—Que en apego a la protección de los intereses fiscales, así como la facilitación del cumplimiento de las obligaciones tributarias, en la medida que el contribuyente formalice por actuación propia su inscripción en observancia del cumplimiento voluntario de sus obligaciones, la Administración considera innecesaria, la notificación establecida en el artículo 11 del Reglamento a la Ley N° 6826, Ley General del Impuesto sobre las Ventas del 8 de noviembre de 1982 y sus reformas, referente a la inscripción, su vigencia y número asignado. Por tanto,
+DECRETAN:
+Artículo 1º—Modifíquese el último párrafo del artículo 11 del Reglamento a la Ley del Impuesto General sobre las Ventas, Ley N° 6826 del 8 de noviembre de 1982 y sus reformas, promulgado mediante Decreto N° 14082-H y publicado en el Alcance N° 38 a La Gaceta N° 230 del 30 de noviembre de 1982, para que en lo sucesivo se lea así:
+"La Administración Tributaria notificará al sujeto pasivo las inscripciones que se realicen de oficio conforme se establece en el artículo anterior.
+Las inscripciones realizadas por actuación propia del interesado no requerirán de notificación; el sujeto pasivo será responsable por la veracidad y exactitud de la información contenida en la solicitud presentada."
