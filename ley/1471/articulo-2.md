@@ -1,0 +1,1 @@
+Artículo 2°.- Afirmando don Fernando Alvarado Chacón con él construyendo y habilitó esa carretera y sus ramales, y que ha atendido su mantenimiento, deberá comprobar tales hechos en expediente creado, ante el Juzgado Civil de Hacienda, con intervención y audiencia de la Procuraduría de la República.
