@@ -1,0 +1,1 @@
+Artículo 30.—Cuando un particular haga exposición de un asunto, lo que hará en forma breve y concisa, los miembros del Concejo, sólo se podrán referir al asunto una vez y por 10 minutos, salvo caso de alusiones personales.

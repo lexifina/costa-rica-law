@@ -1,0 +1,1 @@
+Artículo 14.—El Presidente concederá la palabra en el orden que lo soliciten los regidores, quienes lo harán levantando la mano. Podrá el Presidente pedir a los regidores que se concreten al tema de debate y en caso de renuncia podrá retirarle el uso de La palabra.

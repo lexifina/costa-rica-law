@@ -1,0 +1,1 @@
+Artículo 32.—El Concejo por simple mayoría decide si el acuerdo se toma o no en presencia del interesado. Lo acordado debe notificársele por escrito, dentro de los ocho días hábiles posteriores al acuerdo y una vez aprobada el acta.

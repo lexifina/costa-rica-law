@@ -1,0 +1,1 @@
+Artículo 22.—Toda comisión está en la obligación de presentar el dicten o informe solicitado en un plazo máximo de quince días a partir de la nota salvo casos excepcionales y justificados que podrán ampliarse hasta otros quince días.

@@ -1,0 +1,1 @@
+Artículo 10.—Solamente las mociones de orden o de privilegio podrán sentarse oralmente. El Presidente deberá darles prioridad deteniendo la discusión de cualquier otro asunto para proceder a su presentación.

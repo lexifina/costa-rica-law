@@ -1,0 +1,1 @@
+Artículo 23.—Los miembros de una comisión que no pean regidores que tengan más de tres ausencias injustificadas podrán ser sustituidos a solicitud de la mayoría de los demás miembros. Las justificaciones de ausencias deben hacerse ante el Concejo.

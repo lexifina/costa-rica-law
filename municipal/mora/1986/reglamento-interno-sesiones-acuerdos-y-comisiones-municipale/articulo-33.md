@@ -1,0 +1,1 @@
+Artículo 33.—Los particulares que asistan a sesiones deberán guardar silencio y respeto. Sólo podrán intervenir cuando el Presidente les conceda eI uso de la palabra. Cuando incurrieren en faltas graves, manifestaciones o comportamientos indebidos podrán ser retirados del salón de sesiones y se les privará del uso de la palabra en esa sesión.

@@ -1,0 +1,1 @@
+Artícu1o 21.—Además de las comisiones ordinarias, podrá el Concejo nombrar comisiones especiales para investigar algún asunto en particular u otras actividades, cuyo número de integrantes podrá ser inclusive de uno.

@@ -1,0 +1,1 @@
+Artículo 31.—De los asuntos expuestos por los particulares, el Presidente tomará nota y se discutirán en el capítulo de asuntos varios, proposiciones de los señores regidores y acuerdos, en la misma sesión deberá ser expuesto el problema.

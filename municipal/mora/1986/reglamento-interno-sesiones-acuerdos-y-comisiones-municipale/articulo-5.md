@@ -1,0 +1,1 @@
+Artículo 5°—Si en el transcurso de una sesión se rompiera el quórum quien presida instará a los regidores que se hubieren retirado sin permiso para que ocupen sus curules. Transcurridos quince minutos sin que se restablezca el quórum, se levantará la sesión. Los regidores remisos perderán el derecho de dieta.

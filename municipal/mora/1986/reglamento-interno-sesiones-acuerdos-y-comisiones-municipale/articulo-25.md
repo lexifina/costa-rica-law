@@ -1,0 +1,1 @@
+Artículo 25.—El dictamen de una comisión puede ser unánime por mayoría, Debe indicarse en el dictamen quiénes votaron a favor y quiénes en contra. Los miembros que no estén de acuerdo podrán por separado rendir dictamen.

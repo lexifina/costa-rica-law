@@ -1,0 +1,1 @@
+Artículo 9°—Las mociones de los regidores deberán ser presentada por escrito y firmadas. Se discutirán en el orden de presentación, para tal efecto la secretaria deberá enumerarlas. En la misma nota de la moción el Presidente indicará el resultado del debate, aprobada o rechazada.

@@ -1,0 +1,1 @@
+Artículo 36.—Toda correspondencia que sea acordada por el Consejo para ser enviada debe de anotarse en una libreta de correspondencia enviada con la fecha de envío y el número de oficio. La mencionada tarjeta y el oficio de cada una de las notas enviadas pueden ser revisadas por los regidores.

@@ -1,0 +1,1 @@
+Artículo 16.—Son mociones de orden las que se presenten para regular el debate, ceder el uso de la palabra del tiempo de su participación de un regidor a otro, alterar el orden del día, incluir un asunto o que se posponga uno que se encuentra en el orden del día.

@@ -1,0 +1,1 @@
+Artículo 12.—Los regidores no podrán proponer más de tres mociones o proyectos por sesión, salvo de urgencia calificada. Asimismo no podrá participar en la discusión de un mismo asunto más de dos veces, excepto el proponente que puede hacerlo hasta tres veces o que otro regidor le ceda a una de sus participaciones. No durará cada regidor en su participación más de cinco minutos.
