@@ -14,3 +14,4 @@ Crea las Comisiones de Alto Nivel Político y Técnicos (INAMU)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-03-02 | la propia norma |
+| 2 | 2000-03-02 | Ley 8 |
