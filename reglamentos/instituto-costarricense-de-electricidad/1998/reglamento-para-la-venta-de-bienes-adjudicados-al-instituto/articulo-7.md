@@ -1,0 +1,1 @@
+Artículo 7°—Las ofertas junto con el depósito de garantía de participación equivalente a un 5% del valor base de la propiedad, se recibirán en el departamento encargado de la venta, en días y horas hábiles. Fuera de la fecha y hora indicada como vencimiento para la recepción de ellas, no se recibirán más ofertas.

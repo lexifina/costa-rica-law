@@ -1,0 +1,1 @@
+Artículo 12.—Los empleados de la Institución podrán participar en la compra directa de los bienes que se ofrezcan; sin embargo, si es mediante financiamiento del Fondo de Garantías y Ahorro, deberán ajustarse a los requisitos establecidos para la concesión de créditos.

@@ -1,0 +1,1 @@
+Artículo 23.—Al avalúo practicado se sumarán además los gastos legales (procesales y personales) en que se incurrió en el respectivo juicio ejecutivo, para conformar un solo valor, recuperando con ello lo que se debió cancelar por concepto de los gastos legales referidos.

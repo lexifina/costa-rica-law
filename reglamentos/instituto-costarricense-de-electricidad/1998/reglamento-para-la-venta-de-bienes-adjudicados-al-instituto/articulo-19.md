@@ -1,0 +1,1 @@
+Artículo 19.—El proceso de remate de un bien de la Institución deberá publicarse por dos veces en un diario de circulación nacional con intervalo de al menos un día entre un aviso a otro. Anunciando el precio base y las características del bien de conformidad con lo dispuesto en este caso para la venta directa.

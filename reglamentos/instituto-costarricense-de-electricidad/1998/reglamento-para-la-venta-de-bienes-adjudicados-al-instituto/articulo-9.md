@@ -1,0 +1,1 @@
+Artículo 9°—A partir de la fecha de vencimiento establecida para la recepción de ofertas, el departamento encargado de la venta, dispondrá las medidas necesarias para que el acto de adjudicación se dicte en un plazo no mayor a un mes.

@@ -1,0 +1,1 @@
+Artículo 14.—Una vez notificada la persona que resulte elegida para la venta del bien, deberá de formalizar su propuesta en término de cinco días luego de recibida la notificación. De no formalizarse quedará insubsistente la oferta y se podrá optar por la segunda de las ofertas revisadas por la Autoridad que decidió en definitiva, sin necesidad de consulta previa.

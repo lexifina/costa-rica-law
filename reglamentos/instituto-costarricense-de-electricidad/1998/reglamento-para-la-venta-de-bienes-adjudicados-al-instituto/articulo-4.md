@@ -1,0 +1,1 @@
+Artículo 4°—La dependencia responsable de la venta del bien confeccionará para cada caso, un expediente en que se dejará constancia de todas y cada una de las actuaciones en los bienes vendidos. El expediente se iniciará con los documentos originales, o al menos copias certificadas .de la escritura de adjudicación, plano catastrado (cuando proceda) y estudio registral del bien.

@@ -1,0 +1,1 @@
+Artículo 20.—El remate será dirigido por la Comisión y el bien se le venderá a la persona que al momento del remate ofrezca la suma mayor a partir de la base, sin necesidad de intervención en este caso del Subgerente o Junta Administrativa del Fondo según corresponda. Adjudicado el bien en este procedimiento habrá cinco días para iniciar el trámite de formalización

@@ -1,0 +1,1 @@
+Artículo 8°—En la fecha fijada para la apertura de ofertas se levantará un acta indicando los datos de los oferentes (nombre, número de cédula, precio ofertado, etc.). En la apertura deberá estar presente la jefatura de la dependencia responsable de la venta así como no menos de otros dos funcionarios de la misma y cualesquiera de los oferentes que hayan participado.

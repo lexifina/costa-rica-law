@@ -1,0 +1,1 @@
+Artículo 3°—En ambos casos anteriores, la venta del bien deberá coordinarse además con el Área de Cobros Judiciales de la Asesoría Legal de la Institución, quienes deberán coadyuvar en todo el proceso.
