@@ -20,3 +20,4 @@ Reglamento de Inscripción, Control, Importación y Publicidad de Medicamentos
 | 5 | 2002-10-23 | Decreto Ejecutivo 30875 (2002-10-23) |
 | 6 | 2004-02-16 | Decreto Ejecutivo 31669 (2004-02-16) |
 | 7 | 2004-03-17 | Decreto Ejecutivo 31740 (2004-03-17) |
+| 8 | 2005-01-10 | Decreto Ejecutivo 32294 (2005-01-10) |
