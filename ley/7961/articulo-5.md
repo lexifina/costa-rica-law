@@ -1,0 +1,3 @@
+Artículo 5.- Derecho a la protección. El derecho para registrar un esquema de trazado de circuito integrado corresponde a su diseñador. Podrá ser transferido por acto entre vivos o por vía sucesoria.
+Si el esquema ha sido diseñado por dos o más personas conjuntamente, el derecho a la protección les corresponderá en común.
+Cuando el esquema se haya diseñado en cumplimiento de un contrato de obra o servicio con este fin o en el marco de una relación laboral en la que el diseñador tenga esa función, el derecho a la protección le corresponderá a la persona contratante de la obra o el servicio o al empleador, salvo disposición contractual en contrario.

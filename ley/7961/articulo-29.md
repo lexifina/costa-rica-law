@@ -1,0 +1,1 @@
+Artículo 29.- Prórroga de plazos. A petición del solicitante o titular de un registro, en casos debidamente justificados, el Registro podrá prorrogar en forma prudencial los plazos establecidos a favor del solicitante o titular en esta ley o sus disposiciones reglamentarias, para contestar una notificación o un requerimiento del Registro.

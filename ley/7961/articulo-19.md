@@ -1,0 +1,1 @@
+Artículo 19.- Desistimiento de la solicitud. El solicitante podrá desistir de su solicitud en cualquier momento del trámite. El desistimiento acaba con la instancia administrativa y, en consecuencia, se pierde la fecha de presentación atribuida.
