@@ -1,7 +1,1 @@
-ARTÍCULO 29.- La administración de los condominios sujetos al régimen
-creado en esta ley, estará a cargo de un administrador que puede ser una
-persona física o jurídica. Será designado conforme al reglamento de
-condominio y administración, por la Asamblea de Condóminos, la cual deberá
-aprobar la remuneración correspondiente por estos servicios. Salvo que
-este reglamento disponga otra medida, el administrador tendrá la facultad
-de apoderado general, con respecto al condominio y los bienes comunes.
+ARTÍCULO 29.- La administración de los condominios sujetos al régimen creado en esta ley, estará a cargo de un administrador que puede ser una persona física o jurídica. Será designado conforme al reglamento de condominio y administración, por la Asamblea de Condóminos, la cual deberá aprobar la remuneración correspondiente por estos servicios. Salvo que este reglamento disponga otra medida, el administrador tendrá la facultad de apoderado general, con respecto al condominio y los bienes comunes.

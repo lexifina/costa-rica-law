@@ -1,4 +1,1 @@
-ARTÍCULO 8.- Cada finca filial, sus accesorios y los espacios
-necesarios para su cabal aprovechamiento, pertenecen exclusivamente a su
-propietario, quien, según sus necesidades como condómino tendrá el derecho
-de aprovechar las cosas comunes conforme a su destino.
+ARTÍCULO 8.- Cada finca filial, sus accesorios y los espacios necesarios para su cabal aprovechamiento, pertenecen exclusivamente a su propietario, quien, según sus necesidades como condómino tendrá el derecho de aprovechar las cosas comunes conforme a su destino.
