@@ -1,0 +1,2 @@
+Artículo 134.- Como principio fundamental de una bien entendida seguridad rural, el crédito que se otorgue a los campesinos debe tener una definida orientación.
+El Instituto está obligado a hacer los estudios necesarios del suelo costarricense, dividiendo el país en zonas de producción. Los resultados de esta investigación serán comunicados al Sistema Bancario Nacional para efectos de la mayor orientación y planificación del crédito rural.

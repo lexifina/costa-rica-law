@@ -1,0 +1,2 @@
+Artículo 5º.- Suspéndense, en lo que a informaciones posesorias se refiere, los efectos de las leyes números 19 de 12 de noviembre de 1942 y 201 de 26 de agosto de 1943, sobre denuncias e informaciones posesorias en la Milla Marítima. Modificase el artículo 15 de la ley Nº 139 de 14 de julio de 1941 en el sentido de que la prescripción será de tres años en lugar de diez.
+( Así reformado por el artículo 1º de la ley Nº 3218 del 19 de octubre de 1963).

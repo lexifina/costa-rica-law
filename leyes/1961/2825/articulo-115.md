@@ -1,0 +1,1 @@
+Artículo 115.-El Instituto, una vez en poder de la solicitud a que se refiere el artículo anterior, hará los estudios pertinentes y fijará el precio por hectárea, para cuyo efecto no tomará en cuenta las mejoras existentes.

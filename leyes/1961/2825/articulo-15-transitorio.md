@@ -1,0 +1,1 @@
+Artículo 15.- (Transitorio) El Instituto de Tierras y Colonización, al hacer los nombramientos de empleados del Departamento de Crédito Rural, Tierras y Colonias, deberá nombrar a los funcionarios y empleados del Departamento de Tierras y Bosques del Ministerio de Agricultura, para quienes no habrá solución de continuidad en sus derechos laborales adquiridos.

@@ -1,0 +1,1 @@
+Artículo 22.- El dejar de ser miembro de la Junta Directiva, sea por terminación del período o por cualquier otra causa, no libra a las personas que hubieren ocupado el cargo, de las responsabilidades legales en que pudieren haber incurrido durante su actuación.

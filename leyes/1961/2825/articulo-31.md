@@ -1,0 +1,1 @@
+Artículo 31.- Los miembros de la Junta no podrán participar en actividades político-electorales, salvo con la emisión de su voto o en las que sean obligatorias por ley. Esta prohibición será aplicable a los Gerentes, Auditores y a aquellos otros funcionarios y empleados que determine la Junta Directiva.

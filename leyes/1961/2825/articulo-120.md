@@ -1,0 +1,1 @@
+Artículo 120.- Si el interesado no estuviere de acuerdo con el precio fijado o con la extensión asignada de terreno, sólo podrá pedir entonces que se le paguen sus derechos conforme a los procedimientos establecidos en los artículos 108 y siguientes de esta ley.

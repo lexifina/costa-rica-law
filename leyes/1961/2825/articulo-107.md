@@ -1,0 +1,1 @@
+Artículo 107.- El Sistema Bancario Nacional, el Consejo Nacional de Producción, el Ministerio de Agricultura y las demás instituciones del Estado en capacidad de hacerlo, darán a los ocupantes en precario que en virtud de la aplicación de esta ley adquieran en propiedad sus parcelas, la máxima asistencia económica y técnica para poner en buen pie de producción sus tierras.

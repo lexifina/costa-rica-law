@@ -1,0 +1,1 @@
+Artículo 145.- Si una persona es propietaria de varios inmuebles que sean objeto de expropiación, tendrá derecho a escoger de los mismos la extensión que, según los principios establecidos en esta ley y la zona de ubicación, le fije el Instituto.

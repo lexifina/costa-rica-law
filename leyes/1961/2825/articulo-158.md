@@ -1,0 +1,1 @@
+Artículo 158.- En las grandes explotaciones agrícolas - que serán determinadas por el Instituto - los patronos estarán obligados a facilitar viviendas a sus trabajadores permanentes, en los términos y condiciones que establezca el Instituto. Para el cumplimiento de esta disposición, el Estado podrá colaborar con la ayuda técnica y crediticia que estimare conveniente.

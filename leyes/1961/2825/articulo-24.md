@@ -1,0 +1,4 @@
+Artículo 24.- Los miembros de la Junta Directiva serán personal y solidariamente responsables por las resoluciones votadas en oposición a las leyes y reglamentos aplicables.
+Quedan exentos de esta responsabilidad los miembros ausentes de las sesiones en que se hubieren votado tales resoluciones, así como los que hubieren hecho constar en el acta respectiva, en forma razonada, su voto contrario.
+Cada uno de los integrantes de la Junta Directiva, el Gerente y el Subgerente, rendirán caución por veinte mil colones (¢ 20,000.00). Esta caución puede ser hipotecaria, mediante valores del Estado pólizas de fidelidad del Instituto Nacional de Seguros o depósitos en efectivo.
+Para la calificación de la garantía y el otorgamiento de escrituras en su caso, se seguirán las prescripciones del Código Fiscal.

@@ -1,0 +1,1 @@
+Artículo 150.- Al ocupante de tierras baldías se le aplicarán las mismas reglas relativas a la función social de la propiedad. En el juicio de expropiación que correspondiera, siempre se le han de pagar las mejoras y obras que tenga.

@@ -1,0 +1,1 @@
+Artículo 108.- Los propietarios o poseedores en precario que habiendo iniciado gestiones judiciales al amparo de la ley Nº 88 de 14 de julio de 1942, y cuyos procedimientos no hubieren alcanzado sentencia firme, o sea la resolución que habría de fijar el tanto a indemnizar al propietario, estarán sujetos a los procedimientos señalados en esta ley.

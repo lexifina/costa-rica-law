@@ -1,0 +1,1 @@
+Artículo 57. -Como complemento de sus actividades de parcelación y colonización, el Instituto podrá, cuando lo estime conveniente y previa consulta con el Instituto Nacional de Vivienda y Urbanismo, construir viviendas en las zonas rurales, como una contribución más al mejoramiento de las condiciones de vida del campo.

@@ -1,0 +1,1 @@
+Artículo 118.- Si el valor de la finca fuere mayor que el monto de los derechos del gestionante, se le traspasará únicamente la superficie que resulte cubierta con aquéllos, localizada de acuerdo con el interesado. El resto continuará como reserva nacional, sin que el Estado adquiera por ello obligación indemnizatoria por razón de mejoras o de cualquier otra causa.

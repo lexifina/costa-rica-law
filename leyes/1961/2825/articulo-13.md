@@ -1,0 +1,4 @@
+Artículo 13.- Los inmuebles afectados conforme al presente Capítulo serán transferidos gratuitamente al Instituto de Tierras y Colonización.
+Quedan especialmente autorizados para hacer estos traspasos, tanto el Poder Ejecutivo como los Gerentes de las Instituciones Autónomas y los Presidentes Municipales.
+Las citadas entidades, con excepción del propio Instituto de Tierras y Colonización, no podrán enajenar, gravar ni arrendar las tierras afectadas.
+A pesar de lo dicho en los párrafos anteriores, el Poder Ejecutivo podrá requerir del Instituto que le traspase la propiedad de aquellas tierras que fueren indispensables para la construcción de obras o la instalación de servicios públicos distintos de los contemplados en esta ley, así como de aquellas que fueren comprendidas en contratos suscritos por dicho Poder y ratificados por la Asamblea Legislativa.

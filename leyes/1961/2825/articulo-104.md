@@ -1,0 +1,3 @@
+Artículo 104.- Si el propietario estuviere de acuerdo con el avalúo hecho en definitiva por el Tribunal Fiscal Administrativo, los ocupantes deberán obligadamente someterse al mismo, para lo cual contarán con un plazo de quince días hábiles a partir del recibo de la comunicación que les haga el Instituto, para que se presenten a formalizar las negociación.
+Si los ocupantes se negaren a aceptar el precio fijado en definitiva de conformidad con los artículos 99 y siguientes de esta ley, que haya sido aceptado por el propietario, quedarán sujetos a las disposiciones legales comunes.
+( Así reformado por el artículo 1º de la ley Nº 3336 de 31 de julio de 1964 ).

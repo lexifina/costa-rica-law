@@ -1,0 +1,3 @@
+Artículo 97.- El Instituto contará, para hacer las investigaciones a que se refiere el último párrafo del artículo anterior, con la colaboración que obligadamente le dará los propios interesados, los funcionarios y los empleados del Gobierno, municipales y de las otras Instituciones del Estado.
+Las personas encargadas por el Instituto para desempeñar estas funciones o cualesquiera otras relacionadas con esta ley, tendrán libre acceso a los terrenos afectados, vecinos u otros si fuere necesario para que llenen su cometido.
+( Así reformado por el artículo 1º de la ley Nº 3336 de 31 de julio de 1964 ).

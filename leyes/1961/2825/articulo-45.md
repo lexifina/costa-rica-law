@@ -1,0 +1,1 @@
+Artículo 45.- El Instituto podrá solicitar, por medio del Poder Ejecutivo o directamente, según el caso, el asesoramiento de organismos extranjeros e internacionales, oficiales o particulares, para la mejor solución de problemas o situación relacionados con la presente ley, acerca de los cuales se carezca de antecedentes o jurisprudencia aplicable a determinados casos.

@@ -1,0 +1,2 @@
+Artículo 66.- El incumplimiento de las obligaciones impuestas al ocupante de una parcela, causará, a juicio del Instituto, la pérdida del derecho sobre la misma.
+En el caso de dictarse una resolución en tal sentido, que requerirá cuatro votos conformes de la Junta Directiva, la parcela volverá al dominio del Instituto con toda su dotación, reconociéndole éste al parcelero el valor de las mejoras necesarias o útiles que hubiere hecho de su peculio.

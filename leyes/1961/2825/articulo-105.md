@@ -1,0 +1,7 @@
+Artículo 105.- Cuando el propietario de la finca no aceptare el avalúo del Tribunal Fiscal Administrativo a que hace referencia el artículo anterior, el Instituto podrá gestionar la expropiación parcial o total de la finca afectada, y una vez efectuada la expropiación, hará las adjudicaciones que considere necesarias para la resolución del conflicto, de acuerdo con los principios establecidos en el Capítulo de Parcelaciones en lo que fuere procedente.
+Cuando se expropiare un inmueble, conforme está indicado en el párrafo anterior, el avalúo realizado de conformidad con los artículos 103 y 104 de esta ley, sustituirá para todos los efectos legales, el exigido en el artículo 2º de la ley Nº 1371(*) de 10 de noviembre de 1951.
+En toda expropiación que se realice al amparo de esta ley, tocará al propietario cubrir de su cuenta los gastos que demande el nombramiento del perito valuador que le correponde, pero el Juez, al fijar los honorarios correspondientes, no se sujetará a la tarifa señalada en el artículo 4º de la ley Nº 1371(*).
+El Instituto mantendrá un registro de esta clase de documentos, que tendrá fe pública.
+( Así reformado por el artículo 1º de la ley Nº 3336 de 31 de julio de 1964 ).
+(*) La Ley Nº 1371 de cita fue derogada por el artículo 64 de la Ley de
+Expropiaciones Nº 7495 de 3 de mayo de 1995, reguladora actual de dicha materia y a la que, en lo pertinente, deben ajustarse los procedimientos expropiatorios prescritos en la presente ley.

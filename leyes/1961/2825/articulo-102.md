@@ -1,0 +1,2 @@
+Artículo 102.- Efectuado el avalúo, el Instituto lo someterá a consideración de los interesados y los requerirá para que manifiesten, dentro del término de quince días hábiles, a partir de la notificación, si lo aprueban o si están dispuestos a vender o a comprar en su caso el inmueble o parte del mismo por el precio fijado, a efecto de que se otorgue la escritura correspondiente.
+( Así reformado por el artículo 1º de la ley Nº 3336 de 31 de julio de 1964 ).

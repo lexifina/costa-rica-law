@@ -1,0 +1,1 @@
+Artículo 155.- El Instituto dará preferencia, en igualdad de condiciones, al ex propietario del inmueble comprado o expropiado, en el momento de proceder a la adjudicación de las respectivas parcelas.

@@ -1,0 +1,1 @@
+Artículo 84.- El Instituto establecerá colonias solamente en aquellos casos en que pueda ofrecer a los colonos, ya sea en forma directa, por medio del Sistema Bancario Nacional o por otras fuentes, la financiación adecuada para su conveniente instalación. Los centros, unidades o colonias se regirán por reglamentos que dictará el Instituto.

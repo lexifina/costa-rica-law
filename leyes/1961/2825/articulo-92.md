@@ -1,0 +1,6 @@
+CAPITULO VI
+Regulación de Conflictos entre Propietarios y Poseedores en Precario
+Artículo 92.-El Instituto es el organismo facultado para intervenir en todos los casos de posesión precaria de tierras, y procurará encontrarles solución satisfactoria, de acuerdo con las disposiciones establecidas por esta ley.
+Para los efectos de esta ley se entenderá que es poseedor en precario todo aquel que por necesidad realice actos de posesión estables y efectivos, como dueño, en forma pacífica, pública e ininterrumpida, por más de un año, y con el propósito de ponerlo en condiciones de producción para su subsistencia o la de su familia, sobre un terreno debidamente inscrito a nombre de un tercero en el Registro Público.
+Los poseedores en precario que tengan posesión decenal en las condiciones enunciadas en el párrafo anterior, podrán inscribir su derecho de acuerdo con lo establecido en esta ley y por el procedimiento de información posesoria; pero una vez involucrados en la resolución de un conflicto motivado por la posesión precaria de tierras, quedarán sujetos a lo dispuesto en el párrafo final del artículo 101 de esta ley; los que no tuvieren la posesión decenal, reclamarán sus derechos conforme a las disposiciones de este Capítulo.
+( Así reformado por el artículo 1º de la ley Nº 3336 del 31 de julio de 1964 ).

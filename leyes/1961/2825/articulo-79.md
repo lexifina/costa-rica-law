@@ -1,0 +1,1 @@
+Artículo 79.- A efecto de otorgar parcelas a comunidades o familias indígenas, el Instituto no esperará solicitudes, sino que enviará delegados a esas zonas a ofrecerles parcelas y a exponer planes de trabajo, cuando éstos estén debidamente confeccionados y el Instituto en condiciones de realizarlos.

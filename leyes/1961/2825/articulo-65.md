@@ -1,0 +1,2 @@
+Artículo 65.- Una vez acordada la adjudicación de las parcelas por venta, el Instituto expedirá a favor del ocupante un título de Posesión Provisional en que consten sus derechos y obligaciones.
+Si el ocupante ha cultivado el mínimo señalado por el Instituto y cumplido a satisfacción de éste todas las demás obligaciones, tendrá derecho a que se le otorgue título de propiedad, garantizando el pago con hipoteca de su parcela.

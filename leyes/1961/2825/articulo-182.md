@@ -1,0 +1,2 @@
+Artículo 182.- Se faculta al Poder Ejecutivo para que emita bonos, en moneda nacional o extranjera, hasta por la suma de veinte millones de dólares ($ 20.000,000.00), con un vencimiento de 20 años y un interés del 7% anual, cuyo producto se destinará íntegramente a financiar los programas agrarios del Instituto de Tierras y Colonización contemplados en esta ley.
+Cada una de las emisiones de bonos que haga el Poder Ejecutivo de acuerdo con esta facultad, deberá contar con la ratificación de la Asamblea Legislativa.

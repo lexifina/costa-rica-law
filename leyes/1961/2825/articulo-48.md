@@ -1,0 +1,1 @@
+Artículo 48.- Todas las instituciones autónomas, municipalidades y dependencias del Estado que tengan relación con el objeto de la presente ley, dentro de sus facultades legales y constitucionales, deberán dar su colaboración cuando ésta les sea requerida por el Instituto de Tierras y Colonización.

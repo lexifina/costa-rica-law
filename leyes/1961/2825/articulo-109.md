@@ -1,0 +1,1 @@
+Artículo 109.- Si de conformidad con la Ley Nº 88 de 14 de julio de 1942, existiere sentencia firme que fijara la suma a indemnizar al propietario de terrenos ocupados por poseedores en precario, el Estado pagará a los actuales propietarios de los derechos a aplicar en los baldíos nacionales, el tanto aplicado, con bonos, en la forma que se indica en los artículos siguientes.

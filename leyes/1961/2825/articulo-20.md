@@ -1,0 +1,1 @@
+Artículo 20.- Con excepción del Ministro de Agricultura y Ganadería, que integrará la Junta Directiva en virtud de su cargo, los demás miembros serán designados por períodos de cuatro años. Sus nombramientos deberán hacerse dentro de los cuatro meses siguientes al ocho de mayo, en que toma posesión el Presidente de la República.

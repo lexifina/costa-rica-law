@@ -1,0 +1,1 @@
+Artículo 76.- A título gratuito y en propiedad, se entregarán a las familias indígenas parcelas que el Instituto señale como mínimo indispensable para satisfacer las necesidades de las mismas, y explotables por ese grupo, sin necesidad de trabajadores asalariados.
