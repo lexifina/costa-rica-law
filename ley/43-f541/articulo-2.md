@@ -1,0 +1,1 @@
+Art. 2° En virtud de la obligación que establece el artículo anterior, todos deben contribuir al sostenimiento de las escuelas que alcancen a sustentar la educación general, conforme lo prevenido en disposiciones anteriores.
