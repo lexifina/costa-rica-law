@@ -1,0 +1,1 @@
+Articulo 2°—Autorizar la presente publicación de la delimitación del cuadrante urbano de la cabecera del distrito de Orosi del cantón de Paraíso, según consta en el plano que aquí se publica, el cual puede ser consultado para mayor detalle en la Municipalidad de Paraíso o en esta Dirección de Urbanismo del Instituto Nacional de Viviendo y Urbanismo.
