@@ -108,3 +108,5 @@ Nº 5780.
 (Mediante el artículo 1° del decreto ejecutivo N° 28966 de 11 de setiembre de 2000, se adiciona a las exclusiones detalladas la subpartida Servicios Contratados, en Radiográfica Costarricense, S.A.)
 (Modificado por el artículo 2 del Decreto Ejecutivo N° 29089 de 30 de octubre del 2000, con respecto a la
 Junta de Protección Social de San José)
+(Modificado por el artículo 1 del Decreto Ejecutivo N° 29142 de 17 de noviembre del 2000, para la
+Junta Administrativa del registro Nacional)

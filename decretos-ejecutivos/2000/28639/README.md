@@ -20,3 +20,4 @@ Directrices Política Presupuestaria 2001 Ministerios y EntidadesPúblicas Cubie
 | 5 | 2000-10-25 | Decreto Ejecutivo 29092 (2000-10-25) |
 | 6 | 2000-10-30 | Decreto Ejecutivo 29089 (2000-10-30) |
 | 7 | 2000-10-30 | Decreto Ejecutivo 29095 (2000-10-30) |
+| 8 | 2000-11-17 | Decreto Ejecutivo 29142 (2000-11-17) |
