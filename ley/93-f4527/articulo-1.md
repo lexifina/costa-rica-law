@@ -1,0 +1,7 @@
+DECRETO CXIII
+(Se respeta la ortografía y gramática del texto, tal y como fue publicado originalmente.)
+Hace estensiva al: Departamento del Guanacaste, la franquicia decretada para Puntarenas, y establece al efecto algunas reglas. (2)
+El presidente del Estado de Costa Rica.
+Convencido de que la franquicia del puerto de Puntarenas nunca podría tener los resultados que se apetecen, sinó se removieran los obstáculos que se van presentando en el curso de las transacciones comerciales: que por ahora el mas descollante es el sistema restrictivo decretado para impedir la introduccion de efectos en el Departamento del Guanacaste; porque los trámites que se exigen, la mismo tiempo que hostilizan al comercio de Puntarenas alejan la concurrencia de los habitantes de dicho Departamento con grave perjuicio de estos y de la riqueza pública: que el programa de tu presente Administracion es el de promover la felicidad general y asegurar las rentas del Estado sin empobrecer á los costaricenses, dictando todas aquellas medidas que favorezcan su industria y los hagan ricos y felices. Por todas; estas consideraciones y en uso de la facultad que le concede el artículo 2° del decreto número 7 de 22 de junio último, decreta.
+Art. 1° La franquicia decretada por el Excelentísimo Congreso en favor del puerto de Puntarenas, se hace extensiva a todo el Departamento del Guanacaste.
+(2) Derogado por el decreto n° 9 de 10 de julio de 1860.

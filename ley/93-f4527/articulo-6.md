@@ -1,0 +1,1 @@
+Art. 6. En todo lo demas queda vigente el citado decreto de 24 de setiembre de 1847; y con el presente se dará cuenta al Excelentísimo Congreso en sus próximas sesiones.-Dado en la ciudad de San José, á veintinueve de febrero de mil ochocientos cuarenta y ocho.-
