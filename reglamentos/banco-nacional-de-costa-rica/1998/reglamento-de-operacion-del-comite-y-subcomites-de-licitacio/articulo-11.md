@@ -1,2 +1,2 @@
-Artículo 11.—Rige: 1) Las presentes normas de operación empezarán a regir a partir de su publicación. 2) encargar a la Gerencia General que gire la instrucciones pertinentes para que este reglamento sea publicado, oportunamente, en el Diario Oficial. 3) encargar a la Gerencia General que en lo sucesivo presente ante esta Junta Directiva, un informe mensual de los acuerdos que tome el Comité de Licitaciones.
-Nota: Se dejó constancia de que los señores Directores acordaron la firmeza de este acuerdo en forma nominal y unánime, de conformidad con lo que dispone el inciso 2) del artículo 56° de la Ley General de Administración Pública.
+Artículo 11.—Rige: Las presentes normas de operación empezarán a regir a partir de su publicación.
+San José, 26 de junio del 2000.—
