@@ -1,1 +1,0 @@
-Artículo 3°-Los acuerdos se tomarán por mayoría de votos presentes. En caso de empate se repetirá la votación en forma secreta. Si nuevamente se produjera empate el asunto será pospuesto para la siguiente reunión, que podrá ser extraordinaria, en que se decidirá por voto público, decidiendo el voto del Presidente en caso de empate.

@@ -1,1 +1,0 @@
-Artículo 11.-Los Reglamentos de Normas de Nomenclaturas se dividirán en dos partes: la primera se concretará a explicar el tema de que trata, y la segunda consistirá en la definición de los términos y abreviaciones que se normalizan, y la descripción clara de los símbolos y diagramas que deben considerarse como normales.

@@ -1,2 +1,0 @@
-Artículo 2°-El quórum para celebrar reunión lo formarán cuatro miembros. Para la aprobación definitiva de los reglamentos a que se refieren los artículos 10 y siguientes de este Reglamento, se requerirá la presencia de dos representantes por lo menos del Ministerio de Agricultura e Industrias y dos de la Cámara de Industrias de Costa Rica.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 17 del 01 de agosto de 1952).

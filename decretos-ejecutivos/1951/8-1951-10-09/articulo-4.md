@@ -1,1 +1,0 @@
-Artículo 4°-Las reuniones ordinarias se ceñirán en cuanto a asuntos a tratar a lo que contempla la Orden del Día acordada en la sesión anterior, y además se conocerán las iniciativas que fueren presentadas. En las reuniones extraordinarias sólo se podrá conocer de aquellos asuntos que se indiquen en la convocatoria.

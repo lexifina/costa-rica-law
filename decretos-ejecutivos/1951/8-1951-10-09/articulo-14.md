@@ -1,1 +1,0 @@
-Artículo 14.-Los Reglamentos de Normas que elabore el Comité los remitirá para su definitiva aprobación y publicación con carácter de decreto, al Poder Ejecutivo por medio del Ministro de Agricultura e Industrias, con una exposición de motivos en que se indicará las personas u organismos que han sido consultados.

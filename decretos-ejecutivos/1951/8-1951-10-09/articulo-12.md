@@ -1,4 +1,0 @@
-Artículo 12.-Los Reglamentos de Normas de Calidad y Funcionamiento se dividida en tres partes que serán:
-a) Definición y Generalidades. que contendrá la definición del material, producto o maquinaria, etc. de que se trate, la que será lo más clara posible, y si se. considera necesario se describirá el procedimiento de fabricación. Las generalidades se referirán preferentemente a las aplicaciones usuales del artículo de que se trate;
-b) Clasificación y Características, que contendrá la clasificación por tipos, calidades y grados, según fuere necesario, con la enumeración de las especificaciones físicas, químicas, biológicas o de cualquier otro orden requeridas y con los límites máximos y mínimos de tolerancia; y
-c) Métodos de Control de Prueba, que indicarán con la mayor amplitud d procedimiento de muestreo, y los procedimientos de análisis y prueba y descripción del equipo correspondiente, debidamente ilustrado si fuere de caso.

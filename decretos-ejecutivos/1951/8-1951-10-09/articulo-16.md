@@ -1,1 +1,0 @@
-Artículo 16.-Para el mejor cumplimiento de sus funciones el Comité organizará una biblioteca técnica de consulta y tratará de mantenerse en comunicación con los organismos similares de otros países; también procurará la adquisición y empleará los medios de divulgación que creyere adecuados a sus fines.

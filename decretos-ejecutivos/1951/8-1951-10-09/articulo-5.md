@@ -1,1 +1,0 @@
-Artículo 5°-El Comité designará un Secretario y un Tesorero de su seno. El Secretario será el encargado de levantar las actas, atender la correspondencia y los archivos, y de las otras funciones compatibles con 51,1 cargo, que le señale el Comité. El Tesorero tendrá la custodia de los fondos que por cualquier concepto maneje el Comité.

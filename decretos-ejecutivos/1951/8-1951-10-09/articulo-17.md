@@ -1,1 +1,0 @@
-Artículo 17.-La asistencia técnica en lo posible será gratuita, pero cuando su atención demandare gastos, éstos serán sufragados al costo por la empresa beneficiada por el grupo de industriales respectivo o por el Ministerio de Agricultura e Industrias, a juicio del Comité, lo que se comunicará previamente a fin de obtener la aprobación de quien deba hacer el pago.
