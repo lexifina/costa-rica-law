@@ -1,0 +1,1 @@
+Artículo 9º—La contabilidad emitirá el reporte de ingresos por código, el cual deberá coincidir con el reporte de recibos cancelados, elaborar el asiento de ingresos e iniciar el proceso de contabilización.

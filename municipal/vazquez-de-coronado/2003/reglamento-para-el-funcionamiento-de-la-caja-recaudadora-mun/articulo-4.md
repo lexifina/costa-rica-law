@@ -1,0 +1,1 @@
+Artículo 4º—Los recibos Preimpresos se deben emitir en formularios que constan de dos tantos uno para el cliente y el otro para la Caja y Contabilidad, y tendrán validez cuando sean cancelados, firmados y sellados por el Cajero. Debiendo incluirlos el Cajero en el sistema de cómputo.

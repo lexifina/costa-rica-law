@@ -1,0 +1,2 @@
+Artículo 23.—El recibo cancelado por medio de cheque, tendrá validez una vez sea acreditado el mismo en la cuenta corriente Municipal, por tanto el cajero deberá colocar un sello con la leyenda: "Cancelado con CK Nº___ del Banco ________, la cancelación de este recibo queda sujeta a que el Banco haga efectivo el pago respectivo."
+El pago de un recibo con un cheque sin fondos, obliga al propietario a devolver el comprobante emitido, previa notificación por parte del Tesorero.

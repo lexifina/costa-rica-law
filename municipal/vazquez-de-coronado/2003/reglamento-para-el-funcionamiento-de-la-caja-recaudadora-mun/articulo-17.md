@@ -1,0 +1,1 @@
+Artículo 17.—Cuando el cajero tenga una suma igual o superior al 50% de su póliza de fidelidad, deberá trasladar mediante una remesa parcial, el dinero que tenga al Tesorero, conjuntamente con los recibos cancelados.

@@ -1,0 +1,1 @@
+Artículo 13.—El Cajero deberá suscribir una póliza de fidelidad a favor de la Municipalidad, cuyo monto lo fijará la Municipalidad por medio de acuerdo de conformidad con el volumen de las operaciones.

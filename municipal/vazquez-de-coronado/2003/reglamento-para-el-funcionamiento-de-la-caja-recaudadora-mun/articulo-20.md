@@ -1,0 +1,1 @@
+Artículo 20.—El descubrimiento de faltantes por parte del Tesorero, deberá ser sometido a conocimiento del Auditor Municipal, para lo que proceda, caso contrario podrá ser sancionado de igual forma que el Cajero.

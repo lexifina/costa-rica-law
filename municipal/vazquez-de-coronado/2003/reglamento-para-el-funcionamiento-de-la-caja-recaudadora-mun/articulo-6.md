@@ -1,0 +1,1 @@
+Artículo 6º—Todos los recibos que se emitan o cancelen deberán incluirse en el sistema de cómputo de conformidad con el número impreso por el sistema, con el fin de controlar y dar seguimiento a los pagos realizados.

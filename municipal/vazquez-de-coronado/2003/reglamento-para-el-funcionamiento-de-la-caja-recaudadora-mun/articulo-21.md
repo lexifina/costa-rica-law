@@ -1,0 +1,1 @@
+Artículo 21.—Los sobrantes que se produzcan en los cierres diarios de Caja, deberán ser incluidos por medio de un comprobante de ingresos y depositados en la Cuenta de la Municipalidad, a más tardar el día hábil siguiente de ocurrido el sobrante.
