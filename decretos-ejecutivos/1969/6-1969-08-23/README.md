@@ -13,3 +13,4 @@ Reglamento de Calderas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1969-09-11 | la propia norma |
+| 2 | 1969-09-11 | SINALEVI (sin norma nombrada) |
