@@ -1,0 +1,1 @@
+Articulo 4° Facultase al Poder Ejecutivo para que en caso de que el producto de las rentas durante el presente año económico no alcanzare a cubrir las sumas presupuestas, haga en cualquier ramo de la Administración Pública, comprendido en la presente Ley de Presupuesto, las economías y supresiones que a su juicio fueren necesarias.
