@@ -1,0 +1,1 @@
+Artículo 2º—Marco normativo. Los gastos en que incurran los miembros y funcionarios del Colegio Federado, cuando deban salir de viaje o efectuar giras dentro del país, en cumplimiento de gestiones especiales o funciones específicas de su cargo, estarán sujetos a las disposiciones del presente y demás regulaciones generales contenidas en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 9º—Otras localidades. Para las localidades no incluidas en la tabla de la Contraloría General de la República, la Administración podrá reconocer por concepto de gastos de viajes; una suma diaria máxima de ¢ 10.000,00 contra la presentación de las respectivas facturas.

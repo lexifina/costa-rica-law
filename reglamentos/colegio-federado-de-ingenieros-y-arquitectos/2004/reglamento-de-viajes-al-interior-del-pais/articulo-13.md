@@ -1,0 +1,1 @@
+Artículo 13.—Gastos de hospedaje en lugar distinto al destino. Cuando el gasto por el servicio de hospedaje a que se refiere el artículo 5º, deba realizarse durante el traslado al lugar de destino, se reconocerá la suma autorizada correspondiente para el lugar de tránsito donde ese gasto se concretó.

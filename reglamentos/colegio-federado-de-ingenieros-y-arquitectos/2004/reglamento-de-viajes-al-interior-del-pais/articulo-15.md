@@ -1,0 +1,2 @@
+CAPÍTULO VI
+Artículo 15.—De la obligatoriedad. El uso de las tarifas establecidas en sus tablas por parte de la Contraloría General de la República, son de carácter obligatorio; por lo tanto, el Colegio Federado de Ingenieros y de Arquitectos no reconocerá ningún gasto por viajes al interior del país ni efectuará ninguna retribución de kilometraje, si dichos cobros no se ajustan estrictamente a los valores establecidos en dichas tablas.

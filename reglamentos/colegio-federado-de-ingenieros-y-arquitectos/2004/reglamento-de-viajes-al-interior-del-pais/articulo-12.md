@@ -1,0 +1,1 @@
+Artículo 12.—Reconocimiento de gastos cuando el lugar de destino coincide con el de su residencia o de su trabajo. Cuando el miembro deba efectuar una gestión o el funcionario o empleado deba trabajar en el mismo lugar donde está su domicilio, no se cubrirá gasto alguno por concepto de viáticos.

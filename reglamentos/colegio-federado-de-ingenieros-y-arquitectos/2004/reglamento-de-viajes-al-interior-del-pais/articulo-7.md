@@ -1,0 +1,5 @@
+Artículo 7º—Adelantos:
+a) Por adelanto debe entenderse la suma total estimada para los gastos de viaje que correspondan al período de la gira, de acuerdo con las tablas establecidas por la Contraloría General de la República; así como los gastos de transporte cuando proceda.
+b) Todo miembro o funcionario en primera instancia deberá verificar si se cuenta con contenido presupuestario para gastos de viaje y de transporte, procediendo inmediatamente a solicitar la autorización de los respectivos gastos.
+c) Posteriormente a la autorización de la gira, el miembro o funcionario deberá solicitar a la Administración el adelanto correspondiente para dicho viaje.
+d) La solicitud de adelanto debe ser hecha por los miembros o funcionarios que vayan a salir de gira en el formulario que para tal efecto establezca la Administración, el cual deberá contener entre otra información, lo relativo a cada uno de los miembros o funcionarios, los lugares a visitar, el propósito de la misión, el período estimado del viaje, el monto de adelanto solicitado para cada miembro o funcionario y la firma de quien autoriza el viaje.
