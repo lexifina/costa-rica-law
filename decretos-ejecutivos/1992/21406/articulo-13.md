@@ -1,0 +1,1 @@
+Artículo 13.- Toda Sustancia o Producto Tóxico y Sustancia o Producto u Objeto Peligroso. debe consignar en la etiqueta de su empaque o embalaje la simbología correspondiente según se describe en el anexo 1 de este Reglamento.

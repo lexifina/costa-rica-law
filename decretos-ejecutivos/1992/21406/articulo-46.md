@@ -1,0 +1,1 @@
+Artículo 46.-EI Departamento para el efectivo cumplimiento de lo que este Reglamento dispone podrá requerir de todo ente de derecho público, la más estrecha colaboración. Las entidades anteriormente señaladas no podrán negar su colaboración.

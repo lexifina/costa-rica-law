@@ -1,0 +1,1 @@
+Artículo 16.-La solicitud de Renovación de una Sustancia o Producto Tóxico y Sustancia, Producto u Objeto Peligroso es válida sólo para un producto y deberá ser presentada 90 días antes de la fecha de vencimiento del registro correspondiente.

@@ -1,0 +1,1 @@
+Artículo 7°-EI Departamento exigirá al registrante las muestras necesarias de producto para los análisis de laboratorio que considere pertinentemente: Además el registrante deberá aportar el esquema de muestreo para la toma de muestras representativas.

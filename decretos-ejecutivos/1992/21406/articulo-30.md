@@ -1,0 +1,1 @@
+Artículo 30.-Para el otorgamiento del Permiso Sanitario de Funcionamiento, toda persona natural o jurídica deberá presentar ante el Departamento además del formulario respectivo el nombre y el número de inscripción en el Colegio Profesional respectivo, el nombre y número de inscripción del Regente del establecimiento y copia de los planos de la construcción del local.
