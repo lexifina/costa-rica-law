@@ -1,0 +1,1 @@
+Artículo 8°-El Auditor Interno podrá asignar funciones, delegar autoridad y exigir responsabilidad, excepto en aquellos casos en que su intervención personal sea obligatoria conforme a los reglamentos y disposiciones legales que emanen de las autoridades competentes.

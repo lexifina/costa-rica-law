@@ -1,0 +1,1 @@
+Artículo 11.-El personal de la Auditoría Interna deberá poseer suficientes conocimientos y experiencia en Auditoría, contabilidad, administración y de las disposiciones legales que rigen a la Administración Pública y a la Municipalidad de San José, que lo califiquen para ejercer en forma apropiada las funciones a él encomendadas.

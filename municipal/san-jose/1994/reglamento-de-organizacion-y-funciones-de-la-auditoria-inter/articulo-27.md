@@ -1,0 +1,1 @@
+Artículo 27.-La comunicación de los resultados se deberá hacer por escrito durante el desarrollo de la auditoría o estudios especiales de auditoría, mediante memorándum u oficio e informe parcial y al finalizar la labor de campo, por medio del informe final, cuando el caso lo amerite.

@@ -1,0 +1,1 @@
+Artículo 17.-EI Auditor Interno deberá proponer la creación de plazas y servicios que considere indispensables para el cumplimiento de su plan anual de auditorías y en general para el buen funcionamiento de la Unidad bajo su cargo. La realización de este procedimiento debe justificarse al Concejo Municipal.

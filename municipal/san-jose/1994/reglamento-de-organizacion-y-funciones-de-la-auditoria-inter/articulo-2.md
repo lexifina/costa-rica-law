@@ -1,0 +1,1 @@
+Artículo 2°-La Auditoría Interna constituye parte integral y vital del sistema de control interno de la Municipalidad de San José y tendrá como función principal la comprobación del cumplimiento; la suficiencia y la validez de dicho sistema.

@@ -1,0 +1,3 @@
+CAPITULO V
+De la ejecución de la auditoría
+Artículo 23.-La Unidad de Auditoría Interna deberá ejecutar su trabajo de acuerdo con lo que establecen las normas personales, de ejecución y sobre el informe, contenidas en el Manual sobre Normas Técnicas de Auditoría para la Contraloría General de la República y las Entidades y Órganos sujetos a Fiscalización, las del Colegio de Contadores Públicos de Costa Rica, en lo que fuere aplicable; los lineamientos que al respecto contiene el Manual para el Ejercicio de la Auditoría Interna en las Entidades y Órganos sujetos a la Fiscalización de la Contraloría General de la República y en cualquiera otras disposiciones que dicte la Contraloría.

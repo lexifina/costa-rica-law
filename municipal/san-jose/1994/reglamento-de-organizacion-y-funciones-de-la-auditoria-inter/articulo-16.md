@@ -1,0 +1,1 @@
+Artículo 16.-La Sección de Estudios Especiales de Auditoría, estará encaminada al examen de aspectos específicos de orden contable, financiero, presupuestario, administrativo, económico, jurídico, ingenieril, etc.
