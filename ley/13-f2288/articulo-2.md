@@ -1,0 +1,1 @@
+Artículo 2°. -El Estado facilitar la traslación de las familias y suministrar la colonia los útiles corrientes de labranza, seis yuntas de bueyes, diez vacas, un toro, un trapiche, una máquina de aserrar madera y las demás que juicio del Poder Ejecutivo fueren necesarias.
