@@ -14,3 +14,4 @@ Reglamento de Construcción y Mantenimiento de Obras del Instituto Nacional de A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-07-13 | la propia norma |
+| 2 | 2000-01-18 | Reglamento 0 (2000-01-18) |

@@ -1,8 +1,3 @@
-Artículo 10.—Prerrequisitos de la contratación de obras.
-De previo a licitar la construcción o remodelación de una obra es preciso que la Comisión de Obras observe los siguientes prerrequisitos:
-1) Determinación del presupuesto suficiente y disponible para atender el proyecto que se plantea construir y su correspondiente separación de fondos.
-2) Determinación de la necesidad y de las características y condiciones técnicas de la obra, lo cual comprenderá todos aquellos aspectos previsibles en condiciones normales, fundándose para ello en los estudios de prefactibilidad y factibilidad practicados.
-3) Estimación del negocio y determinación del procedimiento a seguir conforme a la normativa vigente de Contratación Administrativa.
-4) Decisión de contratar proveniente del órgano competente, sea de la Junta Directiva si se tratara de licitaciones públicas o de la Comisión de Licitaciones si es otro tipo de licitación.
-5) Cumplimiento de las autorizaciones legales requeridas para afectar la cuenta de inversión en el Sector Público.
-6) Previo a licitar una obra pública se deberá contar con las autorizaciones legales que exige nuestro ordenamiento jurídico.
+Artículo 10.—Plan de organización. La Unidad de Arquitectura e Ingeniería será la responsable de la presentación del Plan de Organización, una vez la obra haya sido aprobada en un Plan de Inversión y dentro del plazo concedido para tal efecto. En el plan se indicará el nombre del ingeniero de la Institución que estará a cargo de la coordinación de inspección del proyecto y de la firma consultora que se contrate para ese efecto.
+El Plan de Organización deberá armonizar relaciones de responsabilidad y de autoridad en los niveles más apropiados, para lograr la máxima flexibilidad y prontitud en la toma de decisiones que el proyecto demande, de manera que de presentarse alguna desviación de lo planeado, la acción correctiva opere rápida y oportunamente, y así se eviten inversiones no recuperables. En caso de que se requieran enlaces externos al Instituto, el Plan de Organización así debe preverlo.
+El Plan de Organización será aprobado por la Comisión de Obras.

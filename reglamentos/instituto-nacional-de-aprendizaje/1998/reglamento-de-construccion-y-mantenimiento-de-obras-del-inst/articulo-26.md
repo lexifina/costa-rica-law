@@ -1,3 +1,1 @@
-Artículo 26.—Vigencia.
-El presente Reglamento rige a partir de su publicación en el Diario Oficial "La Gaceta".
-San José, 30 de junio de 1998.
+Artículo 26. —NOTA DE SINALEVI: En la publicación de reforma de este reglamento, no aparece el artículo 26. No obstante, al continuarse con la numeración consecutiva, el sistema exige crear el artículo 26 por lo que se ha creado el mismo, pero sin texto.

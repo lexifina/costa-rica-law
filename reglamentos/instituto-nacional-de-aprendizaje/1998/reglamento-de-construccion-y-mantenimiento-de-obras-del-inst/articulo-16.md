@@ -1,5 +1,5 @@
-Artículo 16.—Documentación a entregar por el adjudicatario.
-Dentro del plazo de diez días naturales en obras de menor plazo, y de quince días naturales en obras cuya ejecución demande plazos mayores a los tres meses, ambos plazos contados a partir de la orden de inicio, el adjudicatario deberá entregar a la Unidad de Arquitectura e Ingeniería:
-1) El detalle de actividades y su correspondiente asignación temporal dentro del plazo previsto para la entrega de la obra, de acuerdo a la técnica indicada por el cartel o por la Unidad de Arquitectura, incluyendo entre otros Ruta Crítica y Diagrama de Pert.
-2) El presupuesto detallado de la obra.
-En caso de omisión, la Unidad de Arquitectura e Ingeniería no dará trámite favorable a ninguna factura presentada a cobro e intimará su presentación por una única vez al Contratista.
+Artículo 16.—Cargas sociales y seguros. El Contratista será el único responsable de las obligaciones obrero-patronales estipuladas en las leyes y reglamentos vigentes. Deberá asegurar a todo el personal ante la Caja Costarricense del Seguro Social y ante el Instituto Nacional de Seguros, por riesgos del trabajo. El INA se reservará el derecho de solicitar al Contratista en cualquier tiempo, la documentación que compruebe el cumplimiento de tales obligaciones y podrá retener los pagos pendientes de liquidar, ejecutar la garantía de cumplimiento y hasta resolver el contrato, en caso de que el Contratista no cumpla dichas obligaciones.
+El cartel de licitación podrá requerir la contratación de pólizas adicionales y la cobertura que éstas deban tener, por eventos tales como:
+1) lesión o muerte de terceras personas.
+2) daños a la propiedad de terceros.
+3) daños ocasionados por incendio y terremoto u otros que se estimen procedentes. Dichas pólizas deberán ser presentadas al Instituto, de previo a ordenar cualquier tipo de pago originado en el contrato.
