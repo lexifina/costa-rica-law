@@ -1,0 +1,1 @@
+Artículo 1º.- Autorízase al Ministerio de Economía y Hacienda para eximir del pago de derechos de aduana la maquinaria y equipo indispensables de trabajo, como tractores de oruga y de llantas, cargadores, vagonetas y voltea, motoniveladoras, aplanadoras, camiones y pick-ups, que importen las Municipalidades, Concejos de Distritos y Juntas Cantonales de Caminos.
