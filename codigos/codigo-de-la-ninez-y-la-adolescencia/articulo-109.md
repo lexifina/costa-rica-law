@@ -1,2 +1,2 @@
-Artículo 109°- Tutela de la Procuraduría General de la República. La Procuraduría General de la República ejercerá, en sede administrativa y judicial, a favor de las personas menores de edad, la tutela del cumplimiento de los principios consagrados en este Código.
-En sede administrativa a la Procuraduría le corresponderá comparecer cuando se lo solicite el Patronato Nacional de la Infancia o la Defensoría de los Habitantes de la República. La autoridad administrativa que tramite el proceso notificará a la Procuraduría, a fin de que se apersone dentro de un plazo de cinco días hábiles.
+Artículo 109°- Tutela de la Procuraduría General de la República.
+(Anulado por resolución de la Sala Constitucional N° 9274 del 24 de noviembre de 1999)
