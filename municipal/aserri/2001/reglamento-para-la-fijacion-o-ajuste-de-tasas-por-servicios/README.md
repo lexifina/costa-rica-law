@@ -14,3 +14,4 @@ Reglamento para la Fijación o Ajuste de Tasas por Servicios Municipales.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-02-09 | la propia norma |
+| 2 | 2003-09-22 | Reglamento municipal 74 (2003-09-22) |
