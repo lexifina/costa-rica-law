@@ -1,2 +1,2 @@
-Artículo 5º.-Rige a partir de su publicación.
-Dado en la Presidencia de la República.-San José, a los veintisiete días del mes de junio de mil novecientos ochenta y cinco.
+Artículo 5°-Las normas y procedimientos establecidos en este Reglamento serán también aplicables a los cosméticos que no contienen medicamentos.
+(Así adicionado por el artículo 1° del decreto ejecutivo N°26448 del 23 de octubre de 1997)

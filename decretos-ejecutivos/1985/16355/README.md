@@ -14,3 +14,4 @@ Reglamento de control estatal de productos terminados, materias primas, medicame
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-07-11 | la propia norma |
+| 2 | 1997-10-23 | Decreto Ejecutivo 26448 (1997-10-23) |

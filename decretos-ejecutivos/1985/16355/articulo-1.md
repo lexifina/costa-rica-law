@@ -10,7 +10,9 @@ Considerando:
 Por tanto,
 DECRETAN:
 El siguiente
-Reglamento de Control Estatal de Productos Terminados
-y Materias Primas que de acuerdo con lo que dispone
-la Ley General de Salud, deban ser registrados
+Reglamento de Control Estatal de Productos Terminados, Materias Primas,
+Medicamentos y Cosméticos que deban ser registrados en el
+Departamento de Drogas Estupefacientes, Controles y
+registros del Ministerio de Salud*
+(*) (Modificada su denominación por el artículo 2° del decreto ejecutivo N° 26448 del 23 de octubre de 1997. Anteriormente se llamaba: "Reglamento de Control Estatal de Productos Terminados y Materias Primas que de acuerdo con lo que dispone la Ley General de Salud, deban ser registrados")
 Artículo 1º.-Toda persona física o jurídica estará obligada a entregar a los profesionales inspectores, representantes del Departamento de Drogas Estupefacientes, Controles y Registros debidamente identificados, los ejemplares necesarios para el análisis del producto y materias primas cuyo destino sea la elaboración o preparación de productos que de acuerdo con lo que dispone la Ley General de Salud, deban ser registrados.
