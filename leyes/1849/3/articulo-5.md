@@ -1,0 +1,1 @@
+Art. 5. Habrá en la clase de Farmácia, en el tiempo del estudio teórico, los exámenes periódicos de que habla la sesion 2° título 5: de los Estatutos de la Universidad. Comenzarán dichos exámenes despues que hayan pasado los que corresponden á la clase de medicina y recaerán sobre las materias estudiadas en el año respectivo.
