@@ -1,0 +1,1 @@
+Artículo 2º.- Se exceptúan del pago del impuesto de estabilización económica, las importaciones que se realicen al amparo de los tratados de libre comercio o tratamiento preferencial, de reciprocidad comercial, vigentes con Panamá y República Dominicana.
