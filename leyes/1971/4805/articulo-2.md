@@ -1,5 +1,7 @@
-Artículo 2º.- El fondo estará regido por una Junta Directiva, que
-la integrarán cinco personas, empleados de la Institución y
-pertenecientes al fondo. Durarán en sus funciones dos años, pudiendo ser
-reelectos, con excepción de su tesorero, que lo será de hecho el
-Contador del Tribunal.
+ARTÍCULO 2º.- El Fondo estará regido por una junta directiva
+compuesta por cinco miembros. El tesorero del Fondo será el contador del
+Tribunal Supremo de Elecciones. La Asamblea General elegirá a los cuatro
+miembros restantes. Todos permanecerán en sus cargos dos años y podrán
+ser reelegidos.
+(Así reformado por el artículo 1º de la ley No.7876 de 27 de mayo de
+1999)
