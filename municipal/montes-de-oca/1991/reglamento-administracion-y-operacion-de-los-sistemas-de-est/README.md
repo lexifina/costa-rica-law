@@ -14,3 +14,4 @@ Reglamento Administración y Operación de los Sistemas de Estacionamiento Autor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1992-07-24 | la propia norma |
+| 2 | 2000-03-06 | Reglamento municipal 123 (2000-03-06) |
