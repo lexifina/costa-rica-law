@@ -31,3 +31,6 @@ Todas las áreas de uso público deberán ser traspasadas a favor del dominio mu
 Las sumas que perciba el municipio por el concepto antes indicado serán destinadas exclusivamente a la adquisición y mantenimiento de terrenos para uso público en sectores donde estos trabajos hagan falta.
 Las áreas para servicios particulares deberán dejarse en todos los fraccionamientos cuando resulten mayores de 100 metros cuadrados.
 (Así reformado parcialmente por acuerdo de Junta Directiva, en sesión de 17 de marzo de 1986)
+II.3.3 Cuando exista mapa oficial, la Municipalidad podrá negociar el pago en efectivo del área de parque y facilidades comunales de las urbanizaciones en las áreas determinadas por el Plan de manera que pagadas estas de inmediato, adquiera otras ubicadas en los sitios indicados en el mapa oficial. Estas áreas se denominarán reservas municipales a negociar. El área correspondiente o juegos infantiles deberá dejarse en el sitio necesariamente.
+En caso de que el propietario no desee negociar dichas áreas, estas de dejarán en el sitio indicándolas en el plano de la urbanización como área o reservas municipales susceptibles de cambio.
+(Así ampliado por acuerdo de Junta Directiva, en sesión N° 3912 de 17 de abril de 1989)
