@@ -14,3 +14,4 @@ Reforma Reglamento de Crédito Referido al Programa de Descentralización y Fort
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-03-06 | la propia norma |
+| 2 | 1998-03-06 | Ley 8 |
