@@ -1,1 +1,0 @@
-Artículo 38.-Si no resulta indicado suficientemente el delito que se proponía ejecutar el agente, se presumirá que sus actos se dirigían a cometer el de menor gravedad entre aquéllos a cuya perpetración pudieran estar dirigidos.

@@ -1,1 +1,0 @@
-Artículo 30.-Excepto que pruebe su legítima adquisición, se presume autor del delito o falta de merodeo a aquel en cuyo poder se encuentre la cosa sustraída, si al hacerse el decomiso se dedicaba al transporte o venta de ella.

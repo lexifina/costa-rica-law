@@ -1,1 +1,0 @@
-Artículo 312.-El que incendiare cosa propia con riesgo para las personas o los bienes ajenos, será castigado con prisión de nueve meses a tres años. Si el incendio produjere perjuicio a tercero, se aplicarán las reglas anteriores.

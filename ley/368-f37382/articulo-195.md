@@ -1,1 +1,0 @@
-Artículo 195.-Si el aborto lo causare un médico u obstétrica, además de las sanciones que le correspondan conforme a los dos artículos anteriores, se le impondrá inhabilitación para el ejercicio de su profesión de uno a cuatro años.
