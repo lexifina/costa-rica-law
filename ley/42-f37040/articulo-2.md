@@ -1,0 +1,1 @@
+Art 2°.- La moneda de oro y plata que en lo sucesivo se acuñe en la Repúblico, según las prescripción de la presente ley, será fraccionada conforme al sistema decimal, y el Poder Ejecutivo de acuerdo con el Consejo de Estado, detallará dichas fracciones dictando las medidas conducentes a la plantación de este sistema.
