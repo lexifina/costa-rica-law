@@ -1,0 +1,7 @@
+Artículo 31.- El presente reglamento rige a partir de su
+publicación.
+Transitorio.- Quedan exceptuadas de la aplicación de las
+disposiciones contenidas en el presente Reglamento, las instituciones u
+organizaciones de bien social o religioso, que sin ánimo de lucro,
+brinden el servicio de venta de cajas mortuorias a precios de costo, con
+un afán de ayudar a la comunidad.
