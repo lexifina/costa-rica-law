@@ -1,4 +1,3 @@
-#
 Art. 3º.-La Dirección del Museo estará á cargo de una Junta
 compuesta de siete individuos.
 El Secretario del Museo será miembro de la Junta; ninguno de los
