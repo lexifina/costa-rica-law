@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión Nacional de Seguridad Transfusional, tendrá dentro de sus funciones asesoras, la organización y supervisión de la capacitación y educación del personal de Salud y de la población en general, en esa materia.
