@@ -1,0 +1,1 @@
+Artículo 11.—Cualquier maniobra que induzca a error a la administración municipal, así como el incumplimiento en el pago puntual de este impuesto, será considerada defraudación fiscal y sujeta a todos los procedimientos y sanciones instituidos al respecto, por el Código de Normas y Procedimientos Tributarios y Código de Minería.

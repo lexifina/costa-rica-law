@@ -1,0 +1,1 @@
+Artículo 2º—Es sujeto activo de este impuesto la Municipalidad de Osa, la cual para los efectos de la relación Jurídico- Tributaria y en su condición de Administración Tributaria de este impuesto hará uso de las facultades y prerrogativas que contempla el Código de Normas y Procedimientos Tributarios, Código de Minería, Código Municipal y el Presente Reglamento.
