@@ -14,3 +14,4 @@ Reglamento de Pago de Comisiones por Venta Productos y Servicios Bancarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-06-26 | la propia norma |
+| 2 | 2001-06-26 | Reglamento 3084 (1995-05-09) |
