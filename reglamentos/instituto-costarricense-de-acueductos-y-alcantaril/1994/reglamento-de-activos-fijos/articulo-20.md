@@ -1,1 +1,2 @@
-Art. 20 | El Departamento de Almacenes es la dependencia encargada de la recepción, custodia provisional y entrega de los activos fijos que se adquieran o se reciban como donaciones.
+Artículo 20.—Si se responsabiliza al usuario por el deterioro anormal de un bien, el Encargado de los Activos Fijos de cada área trasladará los antecedentes a Asuntos Legales, dependencia que se encargará del debido procedimiento administrativo, y determinar las responsabilidades del caso, si procede, con una recomendación a la Administración Superior de las acciones a seguir.
+Cuando el funcionario tiene que reponer un activo, después de realizado el debido proceso, este deberá cubrir el precio de reposición en el momento que se dictamine su responsabilidad.

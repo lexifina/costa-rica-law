@@ -1,1 +1,0 @@
-Art. 132 | Todas las dependencias tienen la obligación de procesar solo los formularios que contengan la información solicitada, para que no exista ninguna duda acerca de la identificación plena de los activos

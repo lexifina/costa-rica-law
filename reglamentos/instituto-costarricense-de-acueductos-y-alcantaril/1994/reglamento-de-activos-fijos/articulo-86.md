@@ -1,1 +1,0 @@
-Art. 86 | Es responsabilidad del usuario informar a su jefe los daños que sufran los activos bajo su responsabilidad y también los que descubra en sus equipos ocasionados por otras personas, para que se tomen de inmediato las medidas pertinentes. Si esto no se hace, el usuario dueño de los vales será el único responsable por tales daños.

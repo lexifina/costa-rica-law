@@ -1,1 +1,0 @@
-Art. 87 | Es responsabilidad de las jefaturas, velar porque cada 6 meses se realice un inventario del equipo y mobiliario de su dependencia, de acuerdo con el plan de inventarios del Departamento de Administración de Activos.

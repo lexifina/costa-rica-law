@@ -1,1 +1,0 @@
-Art. 138 | El Departamento de Contabilidad tiene la obligación de confeccionar los Comprobantes de Diario, completamente documentados y confeccionar el Informe de Activos Fijos que envía al Depto de Admón. de Activos Fijos, anotando en ellos la información necesaria que permita la localización de los documentos soporte de todos los movimientos contables mensuales del activo.

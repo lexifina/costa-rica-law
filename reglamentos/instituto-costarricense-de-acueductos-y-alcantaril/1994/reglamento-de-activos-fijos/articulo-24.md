@@ -1,1 +1,1 @@
-Art. 24 | El Departamento de Administración de Activos coordinará con Almacenes lo necesario para que este control se lleva a cabo con exactitud y eficiencia
+Artículo 24.—Cuando el encargado de realizar el inventario con base en la guía de mantenimiento detecte algún incumplimiento, lo informará por primera vez al jefe respectivo de la Unidad y de mantenerse esta situación en próximos inventarios, lo reportará al Director del Área con copia a Asuntos Legales para que se inicie el proceso disciplinario.

@@ -1,1 +1,0 @@
-Art. 164 | Es parte de las funciones del Depto. de Admón. de Activos Fijos, brindar información veraz y oportuna de todo lo que se refiera al activo fijo, cuando se le solicite y aclarar cualquier duda.

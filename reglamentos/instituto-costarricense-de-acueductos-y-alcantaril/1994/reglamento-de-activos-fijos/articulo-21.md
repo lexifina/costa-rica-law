@@ -1,1 +1,1 @@
-Art. 21 | El Departamento de Almacenes recibe la documentación necesaria y queda en espera del arribo de! activo fijo a bodega.
+Artículo 21.—Cuando se envíe a reparar un activo que se encuentre en mal estado, el encargado de activos deberá conservar copia del documento de salida del bien para que en caso de un inventario no se considere como faltante.

@@ -1,1 +1,4 @@
-Art. 32 | Las dependencias solicitantes deben confeccionar el Vale por Equipo y Mobiliario con la información necesaria para localizar e identificar el activo en posteriores inventarios, llenando todas sus casillas con los datos reales correspondientes al nombre y número de cédula del usuario, número de la Oficina de Custodia, fecha del documento, etc., y toda la descripción del activos, que les suministra Almacenes.
+CAPITULO VI
+Vigencia
+6.1 VIGENCIA DEL PRESENTE REGLAMENTO
+Artículo 32.- El presente reglamento deroga toda norma Administrativa Interna que se oponga.

@@ -1,1 +1,0 @@
-Art. 139 | El informe que Contabilidad envíe al Depto. de Admón. de Activos Fijos, debe estar acompañado de fotocopias de todos los documentos de soporte de los movimientos contables, con una calidad tal que permita sin lugar a dudas, obtener los datos necesarios para la actualización de los controles de inventario y vales.

@@ -1,2 +1,0 @@
-II- | Actualización del Organigrama Funcional.
-Art. 88 | Cuando por cualquier circunstancia, una Dirección del Instituto modifique su organigrama interno, ya sea cambiando los nombres de sus dependencias o creando nuevas (departamentos, secciones, oficinas, etc.), deberán informar de inmediato al Departamento de Administración de Activos los cambios efectuados y cuales son los activos que quedan a cargo de ellas.

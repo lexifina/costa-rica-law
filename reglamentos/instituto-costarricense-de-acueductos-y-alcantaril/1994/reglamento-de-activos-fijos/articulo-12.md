@@ -1,1 +1,2 @@
-Art. 12 | Si no existe contenido, el formulario es devuelto a la unidad solicitante, quien deberá pedir la modificación presupuestaria correspondiente ante Departamento de Presupuesto, si la necesidad del activo es inaplazable. Luego de esto, debe realizar de nuevo el trámite.
+2.3 SEGUROS
+Artículo 12.—Ningún activo podrá ser utilizado si no posee la póliza de seguro según el detalle de bienes que lo requieran.

@@ -1,1 +1,2 @@
-Art. 29 | No se permite la compra de activos fijos por Caja Chica, ya que su reglamento así se dispone.
+4.2 COBROS LEGALES
+Artículo 29.—En caso de existir responsabilidad penal, independiente de la civil o disciplinaria del servidor encargado del activo, el jefe superior del funcionario responsable, previa consulta vinculante de la Dirección Jurídica, deberá interponer denuncia formal ante el Organismo de Investigación Judicial, (OIJ) u órgano jurisdiccional competente en los casos en que el usuario no haya efectuado gestión alguna.

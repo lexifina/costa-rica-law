@@ -1,1 +1,0 @@
-Art. 78 | Los usuarios deben velar porque sus activos mantengan la placa identificación en su lugar. En ningún caso deben se removidas y si por cualquier motivo desaparecen del activo, deberán solicitarle al Departamento de Almacenes, la confección de una nueva placa, con igual codificación a la anotada en el vale, y supervisar su reinstalación inmediata.

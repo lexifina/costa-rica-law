@@ -1,1 +1,0 @@
-Art. 70 | El encargado de activos será quien provea información y coordine las acciones con los funcionarios del Departamento de Administración de Activos, cuando estos lleguen a realizar los inventarios periódicos.

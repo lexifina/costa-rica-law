@@ -1,1 +1,0 @@
-Art. 119 | El Departamento de Servicios Generales realizará la reparación de todos aquellos activos para los cuales se determine que es conveniente, con excepción de aquellos que aun cuenten con la garantía de compra o sean contemplados por un contrato de mantenimiento o que requieran de tratamiento especializado que el Instituto no pueda brindar.

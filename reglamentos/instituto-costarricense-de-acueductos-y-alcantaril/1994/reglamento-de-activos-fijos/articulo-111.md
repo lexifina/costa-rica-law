@@ -1,1 +1,0 @@
-Art. 111 | Si se responsabiliza al usuario por el deterioro anormal de un activo, el Departamento de Admón. de Activos Fijos traslada los antecedentes a Relaciones Laborales, quien .se encargará de determinar las responsabilidades del caso, previo procedimiento administrativo, descrito en artículos anteriores.

@@ -1,1 +1,0 @@
-Art. 84 | La información sobre los activos a cargo de un funcionario, cuyo valor de reposición deba ser cobrado de su salario la obtiene la Dirección de Recursos Humanos, a través de la CONSTANCIA DE ACTIVOS EN PODER DEL EMPLEADO, que emite el Departamento de Administración de Activos, a solicitud del jefe respectivo

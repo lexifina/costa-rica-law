@@ -1,1 +1,0 @@
-Art. 73 | Todo funcionario, al aceptar para su uso cualquier activo, debe confeccionar el respectivo VALE, anotando claramente su nombre, el No de cédula, el nombre y número de la oficina en que va a estar ubicado el bien, no sin antes verificar que los datos que lo identifican, estén claramente anotados en dicho documento.

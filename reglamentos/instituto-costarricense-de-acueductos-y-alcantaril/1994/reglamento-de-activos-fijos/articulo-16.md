@@ -1,1 +1,1 @@
-Art. 16 | Si el valor de lo solicitado es entre í 1 y 5 Millones el asunto se envía a LICITACIONES, para la apertura de una Licitación Privada, para la tramitación de ofertas, adjudicación y confección de la Orden de Compra correspondiente.
+Artículo 16.—Cuando se realiza un movimiento de activos dentro de unidades de una misma región o dependencia y éstos corresponden a los bienes asignados a la Dependencia (Artículo 2°, párrafo primero) el traslado no requiere de traspaso, pero si la comunicación respectiva entre las partes.

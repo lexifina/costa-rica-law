@@ -1,1 +1,2 @@
-Art. 23 | Es responsabilidad del Departamento de Almacenes, mantener los controles de numeración consecutiva según clases y tipos de activos, confeccionar la placa de identificación y colocarla en el activo despachado.
+3.2 MANTENIMIENTO.
+Artículo 23.—Se constituirá en parte complementaria a este reglamento, el instructivo que preparará y actualizará la Dirección de Operaciones para el mantenimiento de los sistemas. (ANEXO 3).

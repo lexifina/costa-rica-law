@@ -1,1 +1,0 @@
-Art. 43 | El Taller de Ebanistería procederá a confeccionar el mueble solicitado y lo enviará a Almacenes para el trámite de entrega normal, como si se tratará de un activo adquirido en una casa comercial, para su codificación, plaqueo, confección del RAD, entrega, etc. Para este trámite, el taller debe llenar el formulario: Reporte de Activos Fabricados.

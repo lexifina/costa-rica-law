@@ -1,1 +1,0 @@
-Art. 152 | El original del vale se mantiene en custodia en el Depto. De Admón. de Activos Fijos, una copia se entrega al usuario, otra se envía al encargado en la dependencia en que estará ubicado el activo y la tercera copia se incluye en el archivo de Vales por usuario. Se debe llevar control de los originales, bajo llave, en el Departamento de Administración de Activos Fijos.

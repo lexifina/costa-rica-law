@@ -1,1 +1,0 @@
-Art. 72 | Todo funcionario del Instituto Costarricense de Acueductos y Alcantarillados, asume plena responsabilidad por el uso del Equipo y Mobiliario que recibe para el desempeño de las labores propias según su cargo. También es su obligación velar por el idóneo y correcto uso y cuido de los mismos, y reportar daños, robo o extravío de sus activos oportunamente.

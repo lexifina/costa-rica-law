@@ -1,1 +1,0 @@
-Art. 147 | Los funcionarios encargados de los archivos de tales documentos serán los responsables de mantenerlos ordenados y actualizados y tienen la obligación de brindar asistencia a los funcionarios autorizados, cuando estos requieran de su ayuda en una consulta o investigación.

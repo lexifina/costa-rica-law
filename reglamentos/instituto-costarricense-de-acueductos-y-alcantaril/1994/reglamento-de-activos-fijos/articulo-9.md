@@ -1,1 +1,1 @@
-Art. 9 | Si el activo solicitado puede ser confeccionado en los talleres de la Institución, la solicitud debe realizarse con un trámite similar, utilizando los formularios correspondientes.
+Artículo 9°—La asignación del número de activo se obtiene en forma consecutiva en el Sistema Financiero Suministros y el encargado de activos de cada región o dependencia es el responsable de plaquear los bienes, mediante código de barras.

@@ -1,1 +1,0 @@
-Art. 140 | El Depto. de Admón, de Activos Fijos está autorizado para exigir claridad en los documentos que recibe y procederá a devolver los que no tengan la información necesaria. El atraso en la actualización de las bases de datos, será responsabilidad de quien cometió la falta.

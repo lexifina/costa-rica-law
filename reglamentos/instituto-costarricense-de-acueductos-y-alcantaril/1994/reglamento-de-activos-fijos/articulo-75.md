@@ -1,1 +1,0 @@
-Art. 75 | Ningún funcionario tiene la obligación de recibir para su uso, activos deteriorados o con daños que aún permitan su funcionamiento. Si no se puede evitar, esa condición deberá anotarse en la casilla de observaciones del VALE que vaya a firmar y el usuario será responsable solo del deterioro que ocurra a partir de ese momento.

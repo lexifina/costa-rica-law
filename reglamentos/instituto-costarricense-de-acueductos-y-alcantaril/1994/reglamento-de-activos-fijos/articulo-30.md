@@ -1,1 +1,4 @@
-Art. 30 | Es responsabilidad de tas jefaturas, verificar que la Solicitud de Adelanto de Dinero por caja chica, para la adquisición de materiales, no sea para compra de activos. El manual de Clasificación deberá .ser consultado, para establecer la existencia del activo dentro de las clases ahí descritas. Si no estuviera incluido, la consulta para la asignación de código y numeración consecutiva, se debe realizar de inmediato al Departamento de Administración de Activos, quien a su vez comunicará el asunto a Almacenes y a Contabilidad, para lo que corresponda.
+CAPITULO V
+Disposiciones finales
+5.1 RESPONSABILIDADES
+Artículo 30.—Es responsabilidad de las jefaturas el velar porque los artículos contemplados en este reglamento se cumplan.

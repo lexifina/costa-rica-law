@@ -1,1 +1,0 @@
-Art. 159 | El Departamento de Admón. de Activos Fijos, es responsable de la emisión de listados de activos por dependencia, usuario, clase; y tipos de activo, y de cualquier otro tipo de listado que sea de utilidad para aclarar dudas y realizar estudios que se refieran al control de los inventarios del activo fijo.

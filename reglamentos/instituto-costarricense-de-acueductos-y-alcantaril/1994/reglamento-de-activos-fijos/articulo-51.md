@@ -1,1 +1,0 @@
-Art. 51 | Ningún activo será despachado bajo la responsabilidad de personas no autorizadas, ni podrá ser enviado por Almacenes a solicitud telefónica de los interesados. Siempre deberá estar presente el funcionario responsable de la oficina que solicitó el activo, de lo contrario el Departamento de Almacenes será el único responsable, en caso de daño, perdida o extravío.

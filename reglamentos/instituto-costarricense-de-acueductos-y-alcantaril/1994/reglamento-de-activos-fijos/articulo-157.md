@@ -1,1 +1,0 @@
-Art. 157 | El Departamento de Admón. de Activos Fijos, es quien realiza la actualización diaria de las bases de datos de los sistemas de control que se llevan para los inventarios, y procurar su conciliación con los registros contables.

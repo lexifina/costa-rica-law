@@ -1,1 +1,1 @@
-Art. 17 | Si el valor de lo solicitado supera los 5 millones el asunto es enviado a LICITACIONES, para la apertura de una licitación Pública, para los efectos correspondientes.
+Artículo 17.—Cuando los bienes están asignados a una persona y cambia el responsable se requiere confeccionar el vale de traspaso de activo. (ANEXO 2).

@@ -1,1 +1,0 @@
-Art. 93 | Los encargados de los activos son los responsables de la ubicación de los mismos y deberán responder por los que no sean localizados por los funcionarios encargados de realizar los inventarios a cargo del Departamento de Administración de Activos y en última instancia, el responsable será el jefe respectivo.

@@ -1,1 +1,2 @@
-Art. 10 | El Departamento de Presupuesto recibe el formulario: Solicitud de Maquinaria, Equipo y Materiales y procede a verificar, según la unidad que solicite, la existencia de contenido presupuestario para la adquisición del activo.
+2.2 DONACIONES
+Artículo 10.—Los activos recibidos por donación deben reportarse directamente a la Sede Central por la dependencia que los recibió, para su debido registro y control.

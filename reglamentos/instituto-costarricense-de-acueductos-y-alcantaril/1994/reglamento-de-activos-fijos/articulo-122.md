@@ -1,2 +1,0 @@
-XI- | Cobros legales
-Art. 122 | En caso de existir responsabilidad penal, independientemente de la civil o disciplinaria, del servidor encargado del activo, el jefe superior del funcionario responsable, previa consulta vinculante de la División Jurídica, deberá incoar o interponer denuncia formal ante el O.I.J., u Órgano jurisdiccional competente en los casos en que el usuario dueño del vale no haya efectuado gestión alguna.

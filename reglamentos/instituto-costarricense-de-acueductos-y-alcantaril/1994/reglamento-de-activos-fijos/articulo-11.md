@@ -1,1 +1,1 @@
-Art. 11 | Presupuesto tiene la obligación de verificar que en la solicitud se consigne claramente quien solicita, donde se despachará y en que unidad será utilizado el activo.
+Artículo 11.—El funcionario que ponga en uso un bien que fue donado sin que la Sede Central lo haya contabilizado, será responsable disciplinariamente previo procedimiento ordinario respectivo. El funcionario que realiza el inventario deberá informar cuando se presenta la situación antes descrita.

@@ -14,3 +14,4 @@ Reglamento de Activos Fijos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1994-02-09 | la propia norma |
+| 2 | 1999-02-10 | Reglamento 0 (1999-02-10) |

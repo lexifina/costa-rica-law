@@ -1,1 +1,0 @@
-Art. 81 | Las jefaturas deben girar instrucciones a sus subalternos para que confeccionen de inmediato los vales por el traspaso de sus activos, cuando por cualquier motivo deban abandonar la dependa en que trabajan, ya que si esto no se realiza, entra en vigor lo descrito en el artículo 83.
