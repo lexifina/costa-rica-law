@@ -1,3 +1,1 @@
-Artículo 41.—De la carta de gerencia. Los entes administradores deberán tener a disposición de la Superintendencia la "carta de gerencia" emitida por los auditores externos, en caso de ser solicitada por ésta.
-Esta carta de gerencia deberá explicar ampliamente todos los detalles referentes a la calificación del dictamen, de conformidad con lo dispuesto en el artículo 39 de este Reglamento.
-La carta de gerencia se considerará, en todo momento, como un documento confidencial, ello sin perjuicio de las facultades de la Superintendencia para exigir la comunicación de información derivada de la carta.
+Artículo 41.—(DEROGADO, por el artículo 35 del Reglamento para la regulación de los Regímenes de Pensiones creados por Leyes Especiales y Regímenes Públicos sustitutos al Régimen de Invalidez, Vejez y Muerte, aprobado en sesión N° 424 de 9 de marzo de 2004).

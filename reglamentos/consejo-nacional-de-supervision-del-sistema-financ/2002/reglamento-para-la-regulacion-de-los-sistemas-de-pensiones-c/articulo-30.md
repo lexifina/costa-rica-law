@@ -1,1 +1,1 @@
-Artículo 30.—De los informes. Anualmente, o con la frecuencia que indique el Superintendente, los auditores internos presentarán a la Superintendencia los informes que sobre evaluaciones del Fondo, hayan realizado.
+Artículo 30.—(DEROGADO, por el artículo 35 del Reglamento para la regulación de los Regímenes de Pensiones creados por Leyes Especiales y Regímenes Públicos sustitutos al Régimen de Invalidez, Vejez y Muerte, aprobado en sesión N° 424 de 9 de marzo de 2004).

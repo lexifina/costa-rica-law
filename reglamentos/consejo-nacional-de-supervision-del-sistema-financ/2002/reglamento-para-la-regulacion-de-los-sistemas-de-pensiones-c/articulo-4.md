@@ -1,3 +1,3 @@
 CAPÍTULO II
 De la Administración y Funcionamiento
-Artículo 4º—De la Administración de los Recursos. Los recursos de los sistemas de pensiones complementarios y los regímenes públicos sustitutos, constituyen patrimonios exclusivos de los afiliados, salvo disposición legal en contrario. Los recursos aportados deben ser administrados como un fondo separado del patrimonio de la entidad administradora o de la entidad que los creó.
+Artículo 4º—(DEROGADO, por el artículo 35 del Reglamento para la regulación de los Regímenes de Pensiones creados por Leyes Especiales y Regímenes Públicos sustitutos al Régimen de Invalidez, Vejez y Muerte, aprobado en sesión N° 424 de 9 de marzo de 2004).

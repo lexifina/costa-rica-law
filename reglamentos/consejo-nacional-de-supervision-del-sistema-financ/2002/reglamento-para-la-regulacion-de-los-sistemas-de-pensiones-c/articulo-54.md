@@ -1,1 +1,1 @@
-Artículo 54.—Vigencia. Estas disposiciones rigen a partir de su publicación en el Diario Oficial "La Gaceta" y deroga toda la normativa anterior que se le oponga.
+Artículo 54.—(DEROGADO, por el artículo 35 del Reglamento para la regulación de los Regímenes de Pensiones creados por Leyes Especiales y Regímenes Públicos sustitutos al Régimen de Invalidez, Vejez y Muerte, aprobado en sesión N° 424 de 9 de marzo de 2004).

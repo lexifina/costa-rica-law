@@ -20,4 +20,4 @@ Aprobar el "Reglamento para la regulación de los Sistemas de Pensiones Compleme
 "Reglamento para la regulación de los Sistemas de Pensiones Complementarias, creados por Ley Especial o Convención Colectiva y los Regímenes Públicos sustitutos del Régimen de Invalidez, Vejez y Muerte"
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1º—Alcance del Reglamento. De conformidad con las facultades conferidas mediante la Ley Nº 7983, las presentes disposiciones regulan los sistemas de pensiones complementarios creados por Ley especial o convención colectiva y los regímenes públicos sustitutos del Régimen de Invalidez, Vejez y Muerte administrado por la Caja Costarricense de Seguro Social.
+Artículo 1º—(DEROGADO, por el artículo 35 del Reglamento para la regulación de los Regímenes de Pensiones creados por Leyes Especiales y Regímenes Públicos sustitutos al Régimen de Invalidez, Vejez y Muerte, aprobado en sesión N° 424 de 9 de marzo de 2004).

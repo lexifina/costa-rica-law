@@ -2,6 +2,4 @@ CAPÍTULO IV
 Información Financiera
 SECCIÓN I
 Estados Financieros
-Artículo 25.—De la confección de los estados financieros. Los entes administradores confeccionarán los estados financieros del fondo administrado, de acuerdo con el Plan de Cuentas dictado por la Superintendencia.
-Los estados financieros auditados se conforman por los estados financieros básicos, sus notas y el dictamen de auditoría.
-Las notas que contemplen explicaciones adicionales, deben hacer referencia específica al rubro o rubros correspondientes.
+Artículo 25.—(DEROGADO, por el artículo 35 del Reglamento para la regulación de los Regímenes de Pensiones creados por Leyes Especiales y Regímenes Públicos sustitutos al Régimen de Invalidez, Vejez y Muerte, aprobado en sesión N° 424 de 9 de marzo de 2004).

@@ -1,2 +1,1 @@
-Artículo 28.—De la publicación. Los estados financieros se consideran información pública y deberán estar disponibles para su consulta por parte de los interesados.
-Los estados financieros auditados deberán publicarse en un medio de comunicación interno en la entidad en que se creó el fondo, una vez al año, en un plazo de cinco días hábiles contados a partir de la fecha de entrega de los estados financieros auditados a la Superintendencia.
+Artículo 28.—(DEROGADO, por el artículo 35 del Reglamento para la regulación de los Regímenes de Pensiones creados por Leyes Especiales y Regímenes Públicos sustitutos al Régimen de Invalidez, Vejez y Muerte, aprobado en sesión N° 424 de 9 de marzo de 2004).
