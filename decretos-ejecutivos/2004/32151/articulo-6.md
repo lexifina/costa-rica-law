@@ -1,0 +1,1 @@
+Artículo 6º—Todo personal profesional y técnico que labore en establecimientos de salud dedicados a tratamientos con radiaciones deberá estar incorporado o autorizado al Colegio Profesional Respectivo, de conformidad con la legislación vigente en esta materia.

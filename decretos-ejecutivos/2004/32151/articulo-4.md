@@ -1,0 +1,1 @@
+Artículo 4º—De las prohibiciones: Se prohíbe la importación, instalación y uso de equipos usados para teleterapia, sean éstos unidades de cobalto 60, aceleradores lineales de electrones y equipos o fuentes para braquiterapia.

@@ -1,0 +1,1 @@
+Artículo 14.—Del Registro. Todas las pruebas descritas en el artículo anterior, deberán estar consignadas en los libros de bitácora debidamente sellados por el Ministerio de Salud que para este fin se tendrán por cada equipo y debidamente numerados. Las bitácoras deberán estar a disposición de las autoridades del Ministerio de Salud cuando se efectúen inspecciones.

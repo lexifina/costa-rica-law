@@ -1,0 +1,4 @@
+Artículo 8º—Requisitos del recurso humano. Los profesionales en física con especialidad en física médica y los médicos radioterapeutas deberán satisfacer como mínimo los siguientes requisitos:
+a) Los médicos deben ser especialistas en radioterapia. Deben acreditar experiencia de haber tratado al menos a cincuenta pacientes.
+b) Los físicos deben ser especialistas en física médica. Deben acreditar experiencia de haber tratado al menos a cincuenta pacientes.
+c) Para la acreditación en aceleradores lineales de electrones y braquiterapia de alta tasa de dosis, los físicos deberán contar con una maestría en física médica otorgada por una Universidad reconocida, cuyo título debe estar reconocido por el Consejo Nacional de Rectores, CONARE. Deberán acreditar experiencia en sistemas tridimensionales de tratamiento, así como contar con una experiencia de haber tratado al menos a cincuenta pacientes.

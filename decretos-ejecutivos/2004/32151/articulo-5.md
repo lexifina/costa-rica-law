@@ -1,0 +1,1 @@
+Artículo 5º—Autorización previa para operar: Todo equipo de teleterapia y de braquiterapia deberá estar debidamente autorizado para operar por el Ministerio de Salud, a través del Programa de Control de Radiaciones, y debe cumplir con los requisitos estipulados en el Capítulo V del Reglamento sobre Protección contra las Radiaciones Ionizantes, Decreto Ejecutivo N° 24037-S.

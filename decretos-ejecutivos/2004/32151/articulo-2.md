@@ -1,0 +1,1 @@
+Artículo 2º—Fin. La finalidad del presente Reglamento es asegurar la protección radiológica de los trabajadores, los pacientes, el público y el ambiente, con base en criterios aceptados nacional e internacionalmente.
