@@ -1,0 +1,1 @@
+Art. 2. Para dar el lleno correspondiente à los objetos del establecimiento de la plaza de Médico del pueblo en cada Departamento, se organizará una junta de caridad compuesta de Gobernador Político, el cura párroco, el Alcalde 2° y dos personas de conocido patriotismo y caridad, cuya organización y funciones seràn reglamentadas por el Supremo Gobierno.
