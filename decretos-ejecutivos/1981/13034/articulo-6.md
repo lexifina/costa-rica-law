@@ -1,0 +1,2 @@
+Artículo 6°─ Se adiciona un segundo párrafo al artículo 3° del decreto N° 11677-H de 8 de julio de 1980 correspondiente al “Reglamento para la emisión de los Bonos Deuda Interna 8%,1980.(Primera emisión), que se leerá así:
+“A partir del 1° de julio de 1981 sobre el saldo de ₡ 425.700.000,00 se pagarán los intereses, se incluirá en el Presupuesto Ordinario de la República la suma trimestral de ₡ 8.514.000,00”.

@@ -1,0 +1,2 @@
+Artículo 10°─ Se adiciona un segundo párrafo al artículo 3° del decreto N° 7240-H de 28 de julio de 1977 correspondiente al “Reglamento para la emisión de Bonos Refundición Deuda Interna 8%,1977 Serie A” que se leerá así:
+“A partir del 1° de julio de 1981 sobre el saldo de ₡ 980.481.000,00 se pagarán los intereses, se incluirá en el Presupuesto Ordinario de la República la suma trimestral de ₡ 18.208.620,00”.

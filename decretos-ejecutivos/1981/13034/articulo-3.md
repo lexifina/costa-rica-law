@@ -1,0 +1,2 @@
+Artículo 3°─ Se adiciona un segundo párrafo al artículo 3° del decreto N° 7498-H del 14 de setiembre de 1977, correspondiente al “Reglamento para la emisión de los Bonos de Deuda Interna 8%,1977”, que se leerá así:
+“A partir del 1° de julio de 1981 sobre el saldo de ₡ 342.125.000,00 se pagarán los intereses se incluirá en el Presupuesto Ordinario de la República la suma trimestral de ₡ 6. 842.500,00”

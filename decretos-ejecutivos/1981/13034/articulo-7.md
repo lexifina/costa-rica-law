@@ -1,0 +1,2 @@
+Artículo 7°─ Se adiciona un cuarto párrafo al artículo 2° del decreto N° 11710-H del 8 de julio de 1980 correspondiente al “Reglamento para la emisión de Bonos Deuda Interna 8%,1980.(Segunda emisión), que se leerá así:
+“A partir del 1° de julio de 1981 tendrán una cuota fija trimestral de 2,556447% sobre el saldo de ₡ 25.000,00 que será redimido en el siguiente sorteo que se efectúe, para atender amortización e intereses”.

@@ -1,0 +1,2 @@
+Artículo 8°─ Se adiciona un segundo párrafo al artículo 3° del decreto N° 7499-H de 14 de setiembre de 1977, correspondiente al “Reglamento para la emisión de los Bonos Inversión Pública 8%,1977, que se leerá así:
+“A partir del 1° de julio de 1981 sobre el saldo de ₡ 149.980.000,00 se pagarán los intereses, se incluirá en el Presupuesto Ordinario de la República la suma trimestral de ₡ 2.999.600,00”.

@@ -1,0 +1,2 @@
+Artículo 4°─ Se adiciona un segundo párrafo al artículo 3° del decreto N° 8683-H de 24 de mayo de 1978 correspondiente al “Reglamento para la Emisión de los Bonos Deuda Interna 8% 1978”. (Primera emisión), que se leerá así:
+“A partir del 1° de julio de 1981 sobre el saldo de ₡ 138.900.000,00 se pagarán los intereses se incluirá en el Presupuesto Ordinario de la República la suma trimestral de ₡ 2. 778.000,00”.

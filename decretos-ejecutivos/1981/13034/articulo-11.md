@@ -1,0 +1,1 @@
+Artículo 11°─ El cálculo de las cuotas fijas correspondientes al tercer trimestre de 1981, deben contemplar la proporción de los meses en que rigió la emisión, tanto antes como después de la condonación.
