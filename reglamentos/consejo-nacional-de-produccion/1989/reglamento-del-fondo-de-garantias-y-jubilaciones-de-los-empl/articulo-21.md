@@ -1,3 +1,0 @@
-Artículo 21—De los préstamos de vivienda: El tope máximo para este tipo de financiamiento será de ¢ 300.000,00 (trescientos mil colones) a un interés de un 9% anual y 15 años plazo.
-En casos muy calificados a juicio de la Junta Administrativa, se podrá variar este tope, la tasa de interés o ambos, siempre que dichas variaciones sean aprobadas por votación no menor de las tres cuartas partes de los miembros que constituyen el quórum.
-Para préstamos relacionados con la compra de útiles para escuelas y colegios, para alumnos hijos de padres empleadas del CNP, se seguirán otorgando los mismos en los primeros meses del año, sin que el trabajador esté obligado al congelamiento.

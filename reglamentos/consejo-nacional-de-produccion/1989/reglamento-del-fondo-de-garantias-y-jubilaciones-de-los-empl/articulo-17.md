@@ -1,1 +1,0 @@
-Artículo 17—La Administración del Consejo Nacional de Producción, seguirá dotando al Fondo de Garantías y Jubilaciones de los recursos humanos, planta física y materiales necesarios para su normal operación, en todo lo que es de competencia del Fondo.

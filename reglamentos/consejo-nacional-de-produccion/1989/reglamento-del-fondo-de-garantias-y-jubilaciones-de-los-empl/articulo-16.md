@@ -1,1 +1,0 @@
-Artículo 16—Mensualmente, la contabilidad del Fondo presentará a la Junta Administradora, las labores e informes que esta requiera. La Junta Administradora deberá hacer un informe semestral de labores a la Subgerencia General.
