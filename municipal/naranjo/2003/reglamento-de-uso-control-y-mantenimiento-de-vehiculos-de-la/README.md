@@ -14,3 +14,4 @@ Reglamento de uso, control y mantenimiento de vehículos de la Municipalidad de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-01-24 | la propia norma |
+| 2 | 2003-02-03 | Reglamento municipal 5 (2003-02-03) |
