@@ -14,3 +14,4 @@ Declara Emergencia Nacional Cosecha Arroz 1986
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-02-17 | la propia norma |
+| 2 | 1988-02-17 | SINALEVI (sin norma nombrada) |
