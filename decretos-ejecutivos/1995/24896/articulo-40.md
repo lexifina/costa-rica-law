@@ -4,3 +4,5 @@ a) Cuando contraiga matrimonio o se dé el fallecimiento de cualquiera de sus pa
 b) Cuando se dé el nacimiento de un hijo, dos días naturales para el padre.
 c) Cuando se trate de licencias para estudio, en cuyo caso se regularán por la normativa vigente aplicable al caso concreto.
 d) Cuando la servidora adopte un menor de edad, tendrá derecho a una licencia especial de tres meses, para que ambos tengan un período de adaptación. El descanso se iniciará al día inmediato siguiente a partir de la entrega del menor. La interesada debe presentar certificación del Patronato Nacional de la Infancia o del Juzgado de Familia en que consten los trámites de adopción.
+e) Cuando participe en eventos culturales y deportivos debidamente oficializados por el Ministerio de Cultura, Juventud y Deportes, por el término que dure dicha participación.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 26225 del 30 de mayo de 1997).

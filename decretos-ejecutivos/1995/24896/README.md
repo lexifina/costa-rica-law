@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicio del Ministerio de Seguridad Pública
 | --- | --- | --- |
 | 1 | 1996-05-03 | la propia norma |
 | 2 | 1996-09-16 | Decreto Ejecutivo 25526 (1996-09-16) |
+| 3 | 1997-05-30 | Decreto Ejecutivo 26225 (1997-05-30) |
