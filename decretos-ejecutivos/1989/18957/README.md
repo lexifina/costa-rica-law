@@ -13,3 +13,4 @@ Reforma Reglamento Dispositivo Seguridad Vehículos Automotores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1989-05-11 | la propia norma |
+| 2 | 1989-05-11 | SINALEVI (sin norma nombrada) |
