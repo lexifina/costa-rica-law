@@ -1,1 +1,0 @@
-Artículo 10.-0FIPLAN responderá directamente ante el Presidente de la República por la ejecución del Plan de Reforma Administrativa. Para ello contará con la colaboración de los ministerios y de las instituciones descentralizadas y deberá informar al Presidente de la República, trimestralmente, sobre la marcha de las labores.

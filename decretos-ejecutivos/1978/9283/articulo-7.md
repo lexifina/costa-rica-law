@@ -1,1 +1,0 @@
-Artículo 7°-Será responsabilidad de cada unidad institucional de Reforma Administrativa conocer y transmitir sus respectivas instituciones los lineamientos y políticas administrativas básicas formuladas por la Presidencia de la República y por OFIPLAN.

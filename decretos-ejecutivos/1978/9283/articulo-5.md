@@ -1,4 +1,0 @@
-CAPITULO III
-De las Relaciones Funcionales del Sistema
-Artículo 5°-El proceso de Reforma Administrativa responderá a lineamientos de .política general formulados por la Presidencia de la República. Dentro de esta línea de acción, la Oficina de Planificación Nacional y Política Económica, tendrá la responsabilidad principal de la elaboración del Plan de Reforma Administrativa y para ello implantará las normas de asesoría, información y coordinación que sean necesarias con el resto del Sistema de Reforma Administrativa, el cual deberá prestarle toda la cooperación técnica requerida.
-En la realización de los análisis y en la formulación y ejecución de las políticas administrativas de cada institución o sector, participará el personal de las unidades de análisis administrativo existentes en la actualidad, transformadas para tales efectos en oficinas de Reforma Administrativa. En aquellos sectores e instituciones que no las tienen, OFIPLAN promoverá su establecimiento.
