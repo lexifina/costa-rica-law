@@ -1,0 +1,1 @@
+Artículo 4°.- Corresponderá al Consejo Asesor brindar las recomendaciones y consejos que se requieran a efecto de que el Taller cumpla eficientemente con los objetivos a los que se refiere el artículo 1.

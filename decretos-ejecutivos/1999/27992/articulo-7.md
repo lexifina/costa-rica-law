@@ -1,0 +1,1 @@
+Artículo 7°.- El personal del Taller Nacional de Teatro, estará sujeto en su relación de trabajo a las disposiciones contenidas en el Reglamento Interior de Trabajo del Ministerio de Cultura, Juventud y Deportes, excepto lo correspondiente a horarios para personal docente, extremo en los que se estará a lo que contractualmente se establezcan para ese personal.
