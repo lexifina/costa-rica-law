@@ -1,1 +1,0 @@
-Décimo cuarto: Los gastos y viáticos de los Representantes serán pagados por sus respectivos Gobiernos, así como los que ocasionen los asistentes del Comisionado de la F.A.O. de quien se ha hecho mención.

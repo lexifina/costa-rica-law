@@ -1,1 +1,0 @@
-Décimo Séptimo: Los países participantes concederán franquicia postal, telegráfica y de radio para asuntos del servicio al personal directivo y subalterno del Comité, así como en los ferrocarriles y vapores nacionales.

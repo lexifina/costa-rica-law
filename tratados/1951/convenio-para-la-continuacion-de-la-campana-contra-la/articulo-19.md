@@ -1,1 +1,0 @@
-Décimo Noveno: El Comité solicitará al Gobierno respectivo en donde actúen las brigadas de combate o de investigación en los casos de emergencia, la colaboración de las Fuerzas Armadas o de Policía de dicho país, como auxilio en la destrucción del acridio.

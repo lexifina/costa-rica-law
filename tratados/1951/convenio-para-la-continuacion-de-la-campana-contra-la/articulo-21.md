@@ -1,1 +1,0 @@
-Vigésimo Primero: Este Convenio estará en vigor durante dos años a partir de la fecha de su firma y será prorrogable por dos años más mientras no haya sido denunciado por uno o más de los países signatarios.

@@ -1,1 +1,0 @@
-Transitorio Tercero: Para que los trabajos puedan continuarse mientras se obtiene la ratificación del presente Convenio, el Comité anterior continuará funcionando dentro de las modalidades acostumbradas y las prórrogas indispensables se acordarán por conducto de la Cancillería del Gobierno de México.

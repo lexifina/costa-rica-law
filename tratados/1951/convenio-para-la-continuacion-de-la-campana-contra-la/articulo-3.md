@@ -1,1 +1,0 @@
-Tercero: Cada Representante tendrá derecho a un voto. Las decisiones serán adoptadas por simple mayoría y en caso de empate no habrá resolución, salvo en los asuntos de carácter técnico que decidirá la opinión del Comisionado de la Organización de las Naciones Unidas para la Agricultura y la Alimentación, de quien se hará mención más adelante.
