@@ -1,0 +1,1 @@
+Artículo 21.-Cuando una Asociación pueda ofrecer garantía real o de cualquier otro tipo, a satisfacción del Banco, se usará el Fondo de Garantías únicamente para responder por el monto no cubierto por tal garantía, con la obligación que les determina el articulo 22 de este Reglamento.

@@ -1,0 +1,4 @@
+Artículo 16.-En caso de disolución de una Asociación, DINADECO nombrará un liquidador.
+Los fondos que le correspondan de acuerdo con la ley se utilizarán para, por medio de DINADECO, cancelar las deudas pendientes al hacer la liquidación final, dándose prioridad a las deudas contraídas con el Banco y con el Fondo de Garantías. Para estos efectos DINADECO girará las cuotas.
+Si una Asociación se atrasara en el pago de sus obligaciones con el Banco, se le suspenderá la entrega de las sumas de la cuenta de Fondos para girar a Asociaciones, hasta tanto no se ponga a derecho.
+Si el atraso llegara a más de tres cuotas, el Banco podrá acreditar los giros que ordene DINADECO a favor de esa Asociación, para ser aplicados a intereses, amortización y demás cargos de la deuda, hasta la extinción de la deuda misma.

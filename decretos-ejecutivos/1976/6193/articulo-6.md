@@ -1,0 +1,1 @@
+Artículo 6°- Tendrán derecho a recibir fondos las Asociaciones registradas en DINADECO con personería jurídica vigente o constituidas y en proceso de inscripción, al 15 de diciembre del año anterior. Los fondos respectivos no se girarán hasta que la Asociación haya presentado el Plan de Trabajo y los informes que determine la ley N° 3859 y su reglamento.

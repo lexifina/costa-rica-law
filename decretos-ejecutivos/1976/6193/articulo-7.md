@@ -1,0 +1,1 @@
+Artículo 7°-Los recursos asignados por el Estado, según el artículo 19 de la ley N° 3859, se distribuirán en forma tal que a cada Asociación Integral se le asigne el doble que a cada Asociación Específica.

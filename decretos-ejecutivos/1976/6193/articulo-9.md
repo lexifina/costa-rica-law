@@ -1,0 +1,1 @@
+Artículo 9°-Para la solicitud de los fondos que el Consejo debe girar todos los años a las Asociaciones, de acuerdo con este Reglamento, las Asociaciones seguirán los trámites y procedimientos que al efecto establezca el Consejo.

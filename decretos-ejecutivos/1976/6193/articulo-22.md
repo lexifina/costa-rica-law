@@ -1,0 +1,1 @@
+Artículo 22.-Las Asociaciones, en el momento en que posean garantías reales, a satisfacción del Banco, deberán sustituir con éstas la garantía del Fondo, a efecto de liberar éste en esas sumas y ponerlo en condiciones de brindar garantía a otras Asociaciones que así lo requieran.

@@ -1,0 +1,1 @@
+Artículo 37.-El programa de crédito se hará sobre la base de un monto total que será igual al doble del monto estimado del Fondo de Garantía al 31 de diciembre del año anterior al que regirá el programa de crédito.

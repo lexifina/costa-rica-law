@@ -1,0 +1,1 @@
+Artículo 35.-En caso de liquidación del Fondo de Garantías, el Banco cargará a éste el total de las obligaciones que garantice el mismo y el remanente, si lo hubiere, lo girará al Consejo para que éste lo distribuya a las Asociaciones conforme a su derecho.
