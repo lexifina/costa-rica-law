@@ -1,0 +1,1 @@
+Artículo 11.—El monto a pagar por concepto de este impuesto, será de un 5% sobre la totalidad de los ingresos brutos obtenidos por cada presentación de los espectáculos gravados, según lo estableció la Ley Nº 6844 del 11 de enero de 1983.
