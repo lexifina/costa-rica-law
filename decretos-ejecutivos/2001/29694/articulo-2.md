@@ -1,0 +1,1 @@
+Artículo 2º—Asignar al Patronato Nacional de la Infancia como Autoridad Central para que cumpla con todas las atribuciones y obligaciones impuestas por el Convenio sobre los Aspectos Civiles de la Sustracción Internacional de Menores, Ley Nº 7746.
