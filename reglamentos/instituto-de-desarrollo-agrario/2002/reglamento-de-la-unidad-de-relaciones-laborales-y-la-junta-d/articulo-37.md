@@ -1,0 +1,1 @@
+Artículo 37.—La Junta de Relaciones Laborales sesionará ordinariamente dos veces por mes y extraordinariamente cada vez que lo soliciten al menos tres de sus miembros o la Secretaría Técnica de la Unidad de Relaciones Laborales. La convocatoria se hará con al menos tres días hábiles de anticipación.

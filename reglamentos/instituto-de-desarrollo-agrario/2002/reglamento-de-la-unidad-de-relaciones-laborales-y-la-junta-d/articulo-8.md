@@ -1,0 +1,1 @@
+Artículo 8º—Los expedientes deberán llevarse por separado para cada asunto y se les numerará de acuerdo con su apertura respecto al año calendario. A este número identificador se antepondrá también una sigla que indicará si el Procedimiento es Ordinario (O) o Sumario (S). Todos los expedientes deberán llevarse debidamente foliados y ordenados.

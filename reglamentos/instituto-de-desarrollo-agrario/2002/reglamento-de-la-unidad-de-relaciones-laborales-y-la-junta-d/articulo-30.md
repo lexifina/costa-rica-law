@@ -1,0 +1,3 @@
+SECCIÓN PRIMERA
+De la Integración de la Junta de Relaciones Laborales
+Artículo 29.—La Junta de Relaciones Laborales estará integrada por seis miembros titulares: tres representantes de la Administración Superior y tres representantes de los trabajadores (as), (un representante por SIPROIDA y dos representantes por UNEIDA), habrá cuatro suplentes, dos por la Administración Superior y dos por los representantes de los trabajadores (as), todos los cuales durarán en sus cargos dos años y podrán ser reelectos (as). Todos los miembros de la Junta podrán ser sustituidos (as) en cualquier tiempo por la parte a la cual representan.

@@ -1,0 +1,1 @@
+Artículo 42.—La Junta deberá emitir su decisión dentro de los treinta días naturales siguientes a la fecha en que conoció el caso. En el caso de que se justifique un plazo mayor, deberá informarlo así a las partes por medio de resolución fundamentada, con por lo menos tres días de anticipación al fenecimiento del plazo.

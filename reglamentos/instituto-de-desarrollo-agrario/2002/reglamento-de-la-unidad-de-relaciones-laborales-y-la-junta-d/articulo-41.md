@@ -1,0 +1,1 @@
+Artículo 41.—Los (as) integrantes de la JRL gozarán de las más amplias atribuciones para cumplir con eficacia y prontitud la competencia propia de sus cargos, teniendo para ello autorización para desplazarse a cualquier lugar del país si fuese necesario, debiendo el IDA cubrir todos los gastos en que incurran con ocasión de ello.

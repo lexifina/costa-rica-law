@@ -1,0 +1,1 @@
+Artículo 22.—Recibido el expediente administrativo la Presidencia Ejecutiva tendrá un plazo de quince días hábiles para el dictado del acto final, el que debe ser notificado en los términos de los artículos 240, 241 y 335 de la LGAP. Las recomendaciones de la JRL., no serán vinculantes para el Presidente Ejecutivo, pero sus resoluciones deben estar debidamente fundamentadas.

@@ -1,0 +1,1 @@
+Artículo 5º—En los casos no previstos en el presente Reglamento se resolverán aplicando el Código de Trabajo, Código Procesal Civil, la Ley General de la Administración Pública, los principios generales de Derecho y la equidad.

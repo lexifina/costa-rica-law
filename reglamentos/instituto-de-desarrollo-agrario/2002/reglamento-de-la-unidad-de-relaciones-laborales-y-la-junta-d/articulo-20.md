@@ -1,0 +1,1 @@
+Artículo 20.—Una vez elaborado el informe por la URL, se procederá a convocar a la Junta de Relaciones Laborales, en dicha convocatoria se deberá indicar la fecha, hora y lugar de reunión, además la agenda del día especificando los casos que van a ser de su conocimiento.

@@ -1,0 +1,1 @@
+Artículo 4º—Se exceptúan de las presentes disposiciones por su orden, al Presidente Ejecutivo y a los miembros de la Junta Directiva, dada la índole de su nombramiento; asimismo a todas aquellas personas que se contraten por servicios profesionales.

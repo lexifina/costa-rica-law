@@ -1,0 +1,1 @@
+Artículo 31.—Los representantes de los trabajadores (as) serán designados (as) por acuerdo del Comité Ejecutivo de UNEIDA y SIPROIDA. Los (as) representantes de los trabajadores (as) se podrán asesorar por profesionales en derecho o en otras disciplinas, o por personas con conocimientos especializados en materias de su interés, todo para el mejor cumplimiento de sus labores.

@@ -1,0 +1,1 @@
+Artículo 15.—La solicitud de inicio constituirá, aunque no se exprese, y a menos que se señale lo contrario, delegación en la URL de las competencias del órgano solicitante para tramitar y resolver lo pertinente en el Procedimiento.

@@ -1,0 +1,1 @@
+Artículo 50.—De las actas: La Junta de Relaciones Laborales llevará actas que asentará lo conocido en las sesiones, las cuales se mantendrán en la Unidad de Relaciones Laborales. Dichas actas podrán ser examinadas por las partes interesadas. El IDA y los trabajadores investigados tendrán acceso a toda la documentación correspondiente.

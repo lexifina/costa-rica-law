@@ -1,0 +1,1 @@
+Artículo 51.—De las votaciones: Todas las votaciones, sin excepción, serán nominales. Si hubiese unanimidad, se prescindirá de detallar en actas los votantes. En caso de votación dividida deben de consignarse en el acta el voto de minoría y sus razones.

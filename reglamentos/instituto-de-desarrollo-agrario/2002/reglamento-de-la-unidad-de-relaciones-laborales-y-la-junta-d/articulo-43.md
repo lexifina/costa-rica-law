@@ -1,0 +1,1 @@
+Artículo 43.—La Junta tendrá un Presidente que corresponderá a un representante de la Administración y un Vicepresidente que corresponderá a uno de los representantes de las Organizaciones representadas.

@@ -1,0 +1,1 @@
+Artículo 21.—La Junta de Relaciones Laborales notificará a través de la URL dentro del término de cinco días hábiles, los acuerdos tomados con relación a los casos sometidos a su conocimiento, procediendo la URL a remitir a la Presidencia Ejecutiva el expediente correspondiente con su respectiva recomendación.
