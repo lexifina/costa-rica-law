@@ -1,2 +1,2 @@
-Artículo 11.- Los acuerdos del Consejo Nacional de Desarrollo de la Comunidad, sancionados por el presidente de la República y los dos Ministros mencionados en el artículo 1°, tendrán carácter obligatorio para los Ministerios, en cuanto a sus acciones relacionadas con programas de desarrollo comunal.
-(Así reformado por el artículo 6° de la ley Crea el Ministerio de Cultura, Juventud y Deportes, N° 4788 del 5 de julio de 1971)
+Artículo 11.-Los acuerdos del Consejo Nacional de Desarrollo de la Comunidad, sancionados por el Presidente de la República y por el Ministro de Gobernación y Policía, tendrán carácter obligatorio para los Ministerios en cuanto a las acciones relacionadas con programas de desarrollo comunal.
+(Así reformado por el artículo 10° de la ley de Reestructuración del Poder Ejecutivo, N° 6812 del 14 de setiembre de 1982)
