@@ -1,0 +1,1 @@
+Artículo 6§.-El Director Ejecutivo deberá ser graduado universitario en Ciencias Sociales y de reconocida preocupación por los problemas de la mujer y de la familia. El Director Ejecutivo ser nombrado de las ternas que presente la Dirección General del Servicio Civil.

@@ -1,0 +1,1 @@
+Artículo 3§.-El Centro tendr un Consejo Asesor constituido por siete miembros de reconocida preocupación por los problemas de la familia, nombrados por el Ministerio de Cultura, Juventud y Deportes, uno de los cuales ser el Director Ejecutivo a que se refiere el artículo 6§ de esta ley. Con excepción de éste, durarán en sus cargos dos años y podrán ser reelectos.
