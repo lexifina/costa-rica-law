@@ -1,0 +1,1 @@
+Artículo 2°—El incremento del 5% se aplicará sobre los salarios base de todos los servidores públicos, según la determinación que para cada clase de puesto realice el organismo competente, según el proceder técnico y jurídico de aplicación.

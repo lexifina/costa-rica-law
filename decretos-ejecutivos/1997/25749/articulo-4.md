@@ -1,0 +1,1 @@
+Artículo 4°—La Autoridad Presupuestaria, según su proceder administrativo y técnico, hará extensivas a las instituciones que corresponda las resoluciones que con respecto a la revaloración para el primer semestre de 1997, ha emitido la Dirección General de Servicio Civil y asimismo autorizará el aumento que proceda para las instituciones bajo su ámbito no homologadas. .
