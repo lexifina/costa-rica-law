@@ -1,2 +1,0 @@
-Artículo10
-La bandera de la institución es un cuadrilátero de color blanco que ostenta en su centro por uno y otro lado la cruz roja y esta cruz ocupará las tres quintas partes del ancho de la bandera sin emblema ni inscripción alguna.

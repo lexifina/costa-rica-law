@@ -1,2 +1,0 @@
-Artículo 11
-De conformidad con lo aconsejado por el Congreso Internacional de Berlín, las oficinas y edificios de la "C. R. C." se distinguirán exteriormente por el escudo de la institución, un letrero y dos astas de bandera en las que se izará la propia diariamente, y cuando sea residencia de la Asamblea Suprema, junto con la nacional. La bandera nacional y la de la "C. R. C." se colocarán a media asta siempre que aparezca así en los demás edificios oficiales.

@@ -1,2 +1,0 @@
-Artículo 40
-Las recompensas serán únicamente honoríficas y de cuatro clases: 1a Cruz Roja (en medalla de oro); 2a Medalla de Mérito de plata; 3a Diploma extendido por el Consejo Supremo en sesión ordinaria; 4a Citación en la Orden del Día en el Boletín de la “C. R. C." o en su defecto en los periódicos del país, consignándose además el nombre del socio y su acción, en el Libro de Honor de la “C. R. C.".
