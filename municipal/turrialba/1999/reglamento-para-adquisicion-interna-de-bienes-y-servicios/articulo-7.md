@@ -1,0 +1,1 @@
+Artículo 7°—El formulario deberá ser presentado en primera instancia a la Proveeduría Municipal, la cual verificará el costo y el contenido presupuestario, luego se pasara al Departamento Financiero para verificar su contenido económico, luego será devuelta a la Proveeduría Municipal para ejecutar la compra.

@@ -1,0 +1,2 @@
+Procedimiento
+Artículo 5°—El formulario deberá contener el nombre del solicitante, la fecha de solicitud, el departamento al que pertenece el solicitante, la prioridad que tiene la compra (Si es urgente deberá justificarse el porque), la descripción detallada del o de los bienes o servicios, para lo cual se podrá utilizar todo el espacio, y se podrán solicitar varios bienes o servicios que pertenezcan al mismo rubro, por ejemplo: 2 borradores, 2 lapiceros, 3 resmas de papel bond, etc., ya que todos pertenecen al rubro de Materiales y Suministros.

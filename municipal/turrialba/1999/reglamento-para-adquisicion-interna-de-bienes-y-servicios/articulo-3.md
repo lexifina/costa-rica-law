@@ -1,0 +1,1 @@
+Artículo 3°—Cualquier factura original que sea presentada para su tramite de pago por cualquier funcionario o departamento municipal, sin haber hecho la solicitud previamente, mediante este formulario, no será tramitada, quedando exenta la Administración Municipal de cualquier responsabilidad de pago.

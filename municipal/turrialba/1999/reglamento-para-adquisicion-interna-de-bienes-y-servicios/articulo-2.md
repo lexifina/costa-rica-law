@@ -1,0 +1,1 @@
+Artículo 2°—Para toda adquisición de bienes y servicios, deberá llenarse, con anterioridad a la factura original, el formulario de Solicitud de Bienes y Servicios. Solo se admitirán facturas proformas anexas al formulario de solicitud, que no representen ningún compromiso de pago, si no que servirán de mera información con respecto al costo del bien o servicio.
