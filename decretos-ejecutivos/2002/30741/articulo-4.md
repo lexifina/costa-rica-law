@@ -1,0 +1,1 @@
+Artículo 4º—Se autoriza a la Dirección General de Migración y Extranjería y al Consejo Nacional de Migración para proseguir con el conocimiento y tramitación de las solicitudes de residencia presentadas directamente en las oficinas administrativas de la Dirección General de Migración y Extranjería antes del día 28 de agosto de 2002.

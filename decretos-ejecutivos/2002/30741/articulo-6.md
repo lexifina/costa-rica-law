@@ -1,0 +1,1 @@
+Artículo 6º—Las solicitudes de residencia presentadas en las oficinas administrativas de la Dirección General de Migración y Extranjería antes del 28 del agosto de 2002, deberán se resueltas en su totalidad a más tardar el último día hábil del año en curso.

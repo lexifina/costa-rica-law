@@ -1,0 +1,1 @@
+Artículo 7º—Se declara de interés público, como parte esencial de la seguridad nacional, todo lo relativo a la materia migratoria; incluido el presente Decreto, así como otros reglamentos, directrices, políticas y acuerdos de alcance general que al efecto se emitan.
