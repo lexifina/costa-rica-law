@@ -1,0 +1,224 @@
+N° 31304-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; 27 de la Ley General de la Administración Pública, así como lo dispuesto en la Ley N° 8131, Ley de Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre del 2001, Ley Nº 8341, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2003 del 9 de diciembre del 2002 y el Decreto Ejecutivo N° 30906-H del 12 de diciembre del 2002.
+Considerando:
+1º—Que el inciso b) del artículo 45 de la Ley N° 8131, publicada en La Gaceta N° 198 del 16 de octubre del 2001, autoriza al Poder Ejecutivo a realizar las modificaciones presupuestarias no contempladas en el inciso a) del mismo artículo, de acuerdo con la reglamentación que se dicte para tal efecto.
+2º—Que mediante Decreto Ejecutivo N° 30906-H, publicado en el Alcance Nº 94 a La Gaceta Nº 251 del 30 de diciembre del 2002, se establece la normativa técnica y legal, referente a las modificaciones presupuestarias que el Gobierno de la República y sus dependencias pueden efectuar a través de Decreto Ejecutivo.
+3º—Que el artículo 1° del Decreto Ejecutivo precitado, autoriza para que, mediante decreto ejecutivo elaborado por el Ministerio de Hacienda, se realicen traspasos de partidas presupuestarias entre los gastos autorizados en las leyes de presupuesto ordinario y extraordinario de la República del ejercicio que se tratare, sin modificar el monto total de los recursos asignados al programa o subprograma.
+4º—Que los Ministerios incluidos en el presente decreto, solicitaron su confección, cumpliendo en todos sus extremos con lo dispuesto en la normativa técnica y legal vigente, tales solicitudes fueron realizadas mediante oficios Nos. DM-605 del 7 de julio de 2003 del Ministerio de Agricultura y Ganadería; DVM-180-03 del 13 de junio del 2003, OM-437-03 del 18 de junio del 2003 y OM-458-03 del 24 de junio del 2003 del Ministerio de Economía, Industria y Comercio; 20033031 del 17 de junio del 2003 y 20033365 del 30 de junio del Ministerio de Obras Públicas y Transportes; y DM-0631-3 del 1º de julio del 2003, del Ministerio de Comercio Exterior.
+5º—Que las modificaciones presupuestarias incluidas en el presente decreto, no afectan la programación presupuestaria contenida en la Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2003.
+6º—Que se hace necesario realizar los ajustes presupuestarios contenidos en el presente decreto ejecutivo, con la finalidad de cumplir oportunamente con las metas y objetivos propuestos por las Carteras en él incorporadas. Por tanto,
+Decretan:
+Artículo 1º—Modifícase el artículo 2° de la Ley N° 8341 del 9 de diciembre del 2002, "Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2003", en la forma en que se indica a continuación:
+REBAJAR:
+TÍTULO: 110
+MINISTERIO DE AGRICULTURA Y GANADERÍA
+PROGRAMA: 169-00
+ACTIVIDADES CENTRALES
+Registro Contable: 110-169-00
+CLASIFICACIÓN DE GASTOS SEGÚN OBJETO
+G-O FF C-E CF I-P Concepto Monto en ¢
+1 SERVICIOS NO PERSONALES 750.000
+172 01 112 10 MANTEN. Y REPAR. MOBIL. Y EQ. OF. 750.000
+2 MATERIALES Y SUMINISTROS 171.674
+214 01 112 10 OTROS PRODUCTOS QUÍMICOS 50.000
+220 01 112 10 TEXTILES Y VESTUARIOS 71.674
+282 01 112 10 ÚTILES Y MATERIALES DE OFICINA 50.000
+3 MAQUINARIA Y EQUIPO 400.000
+350 27 221 10 EQUIPO EDUCACIONAL 400.000
+Total Rebaja del Programa: 169-00 1.321.674
+PROGRAMA: 174-00
+EXTENSIÓN AGROPECUARIA
+Registro Contable: 110-174-00
+1 SERVICIOS NO PERSONALES 882.600
+114 01 112 40 IMPRESIÓN, ENCUADERN. Y OTROS 74.000
+134 01 112 40 GASTO DE VIAJE DENTRO DEL PAÍS 808.600
+2 MATERIALES Y SUMINISTROS 575.000
+240 01 112 40 PRODUCTOS ALIMENTICIOS 100.000
+254 01 112 40 PROD. METAL. PARA LA CONSTR. 300.000
+286 01 112 40 OTROS ÚTILES Y MATER. ESPECIF. 75.000
+290 01 112 40 ARTICUL. Y GASTOS PARA RECEPC. 100.000
+Total Rebaja del Programa: 174-00 1.457.600
+Total Rebaja del Título: 110 2.779.274
+TÍTULO: 111
+MINISTERIO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+PROGRAMA: 215-00
+ACTIVIDADES CENTRALES
+Registro Contable: 111-215-00
+0 SERVICIOS PERSONALES 4.000.000
+000 01 111 10 SUELDOS PARA CARGOS FIJOS 4.000.000
+Total Rebaja del Programa: 215-00 4.000.000
+PROGRAMA: 216-00
+DEFENSA CONSUMIDOR Y PROMOCIÓN DE LA COMPETENCIA
+Registro Contable: 111-216-00
+G-O FF C-E CF I-P Concepto Monto en ¢
+1 SERVICIOS NO PERSONALES 170.000
+124 01 112 46 SERVICIO DE CORREOS 170.000
+2 MATERIALES Y SUMINISTROS 50.000
+282 01 112 46 ÚTILES Y MATERIALES DE OFICINA 50.000
+Total Rebaja del Programa: 216-00 220.000
+Total Rebaja del Título: 111 4.220.000
+TÍTULO: 112
+MINISTERIO DE OBRAS PÚBLICAS Y TRANSPORTES
+PROGRAMA: 327-00
+MEJORAMIENTO Y CONSERVACIÓN DE LA RED VIAL CANTONAL
+Registro Contable: 112-327-00
+1 SERVICIOS NO PERSONALES 300.000
+199 27 212 47 OTROS SERVICIOS NO PERSONALES
+(COMPRENDE GASTOS DE SERVICIOS
+VARIOS, FOTOCOPIADO, SEMINARIOS,
+ENTRE OTROS) 300.000
+2 MATERIALES Y SUMINISTROS 39.500.000
+259 27 212 47 OTROS MATERIALES DE CONSTRUC. 16.500.000
+270 27 212 47 REPUESTOS 23.000.000
+Total Rebaja del Programa: 327-00 39.800.000
+PROGRAMA: 328-00
+PUERTOS Y REGULACIÓN MARÍTIMA
+Registro Contable: 112-328-00
+5 CONSTRUC., ADICIONES Y MEJORAS 90.000.000
+504 27 212 47 OBRAS PORTUARIAS Y FLUVIALES 90.000.000
+Lista de Obras del Programa: 328-00
+OBRAS POR CONTRATO 90.000.000
+001 AMPLIACIÓN Y REHABILITACIÓN DEL
+MUELLE DE GOLFITO 90.000.000
+Total Lista de Obras: 90.000.000
+Total Rebaja del Programa: 328-00 90.000.000
+PROGRAMA: 331-00
+TRANSPORTE TERRESTRE
+SUB PROGRAMA/PROYECTO: 01
+TRANSPORTE TERRESTRE
+Registro Contable: 112-331-01
+G-O FF C-E CF I-P Concepto Monto en ¢
+1 SERVICIOS NO PERSONALES 4.100.000
+190 01 112 47 SERVICIOS ADUANEROS 100.000
+199 01 112 47 OTROS SERVICIOS NO PERSONALES
+(PARA CUBRIR LOS CONTRATOS DE
+SEGURIDAD Y VIGILANCIA, CONTRATA-
+CIÓN DE SERVICIOS DE INSTALACIÓN
+Y COLOCACIÓN DE SEMÁFOROS-CABLEA-
+DO Y POSTEADO- ENTRE OTROS) 4.000.000
+2 MATERIALES Y SUMINISTROS 107.420
+214 01 112 47 OTROS PRODUCTOS QUÍMICOS 107.420
+Total Rebaja del Sub Programa/Proyecto: 331-01 4.207.420
+Total Rebaja del Programa: 331-00 4.207.420
+Total Rebaja del Título: 112 134.007.420
+TÍTULO: 126
+MINISTERIO COMERCIO EXTERIOR
+PROGRAMA: 792-00
+ACTIVIDADES CENTRALES
+Registro Contable: 126-792-00
+1 SERVICIOS NO PERSONALES 200.000
+199 01 112 10 OTROS SERVICIOS NO PERSONALES 200.000
+Total Rebaja del Programa: 792-00 200.000
+Total Rebaja del Título: 126 200.000
+Total Rebajar 141.206.694
+AUMENTAR:
+TÍTULO: 110
+MINISTERIO DE AGRICULTURA Y GANADERÍA
+PROGRAMA: 169-00
+ACTIVIDADES CENTRALES
+Registro Contable: 110-169-00
+G-O FF C-E CF I-P Concepto Monto en ¢
+1 SERVICIOS NO PERSONALES 750.000
+174 01 112 10 MANTEN. Y REPAR. MAQUIN.Y EQ 750.000
+2 MATERIALES Y SUMINISTROS 171.674
+286 01 112 10 OTROS ÚTILES Y MATER. ESPECIF. 171.674
+3 MAQUINARIA Y EQUIPO 400.000
+340 27 221 10 EQUIPO PARA COMUNICACIONES 400.000
+Total Aumento del Programa: 169-00 1.321.674
+PROGRAMA: 174-00
+EXTENSIÓN AGROPECUARIA
+Registro Contable: 110-174-00
+1 SERVICIOS NO PERSONALES 1.033.100
+102 01 112 40 ALQUILER DE EDIF. Y TERRENOS 808.600
+174 01 112 40 MANTEN. Y REPAR. MAQUIN. Y EQ. 224.500
+2 MATERIALES Y SUMINISTROS 424.500
+206 01 112 40 OTROS COMBUST. GRASAS Y LUBRIC 200.000
+270 01 112 40 REPUESTOS 224.500
+Total Aumento del Programa: 174-00 1.457.600
+Total Aumento del Título: 110 2.779.274
+TÍTULO: 111
+MINISTERIO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+PROGRAMA: 215-00
+ACTIVIDADES CENTRALES
+Registro Contable: 111-215-00
+0 SERVICIOS PERSONALES 2.000.000
+000 01 111 10 SUELDOS PARA CARGOS FIJOS 2.000.000
+2 MATERIALES Y SUMINISTROS 1.253.400
+214 01 112 10 OTROS PRODUCTOS QUÍMICOS 900.000
+254 01 112 10 PROD. METAL. PARA LA CONSTR. 75.000
+259 01 112 10 OTROS MATERIALES DE CONSTRUC. 100.000
+290 01 112 10 ARTICUL. Y GASTOS PARA RECEPC. 178.400
+3 MAQUINARIA Y EQUIPO 246.600
+310 01 221 10 EQUIPO Y MOBILIARIO DE OFICINA 246.600
+6 TRANSFERENCIAS CORRIENTES 500.000
+602 01 131 10 PRESTACIONES LEGALES 500.000
+Total Aumento del Programa: 215-00 4.000.000
+PROGRAMA: 216-00
+DEFENSA CONSUMIDOR Y PROMOCIÓN DE LA COMPETENCIA
+Registro Contable: 111-216-00
+1 SERVICIOS NO PERSONALES 220.000
+128 01 112 46 OTROS SERVICIOS PÚBLICOS 220.000
+Total Aumento del Programa: 216-00 220.000
+Total Aumento del Título: 111 4.220.000
+TÍTULO: 112
+MINISTERIO DE OBRAS PÚBLICAS Y TRANSPORTES
+PROGRAMA: 327-00
+MEJORAMIENTO Y CONSERVACIÓN DE LA RED VIAL CANTONAL
+Registro Contable: 112-327-00
+0 SERVICIOS PERSONALES 16.500.000
+030 27 212 47 SUELDO ADICIONAL 1.500.000
+060 27 212 47 SOBRESUELDOS 15.000.000
+3 MAQUINARIA Y EQUIPO 23.000.000
+310 27 221 47 EQUIPO Y MOBILIARIO DE OFICINA 23.000.000
+8 SERVICIO DE LA DEUDA PÚBLICA 300.000
+814 27 251 80 AMORT. CUENT. PEND. EJERC. ANTER.
+(PARA FINANCIAR EL PAGO QUE GENERÓ
+LA CONTRATACIÓN CED 3194-2002) 300.000
+Total Aumento del Programa: 327-00 39.800.000
+PROGRAMA: 328-00
+PUERTOS Y REGULACIÓN MARÍTIMA
+Registro Contable: 112-328-00
+G-O FF C-E CF I-P Concepto Monto en ¢
+1 SERVICIOS NO PERSONALES 2.000.000
+112 27 212 47 INFORMACIÓN Y PUBLICIDAD 2.000.000
+2 MATERIALES Y SUMINISTROS 3.000.000
+214 27 212 47 OTROS PRODUCTOS QUÍMICOS 1.500.000
+232 27 212 47 PRODUCTOS DE PAPEL Y CARTÓN 1.500.000
+3 MAQUINARIA Y EQUIPO 5.500.000
+310 27 221 47 EQUIPO Y MOBILIARIO DE OFICINA 5.500.000
+5 CONSTRUC., ADICIONES Y MEJORAS 79.500.000
+504 27 212 47 OBRAS PORTUARIAS Y FLUVIALES 79.500.000
+Lista de Obras del Programa: 328-00
+OBRAS POR CONTRATO 79.500.000
+002 REHABILITACIÓN DE TERMINAL DE
+TRANSBORDADORES DE PUNTARENAS
+EN BARRIO EL CARMEN 79.500.000
+DIRECCIÓN Y SUPERVISIÓN 10.500.000
+099 Gastos Varios 10.500.000
+Total Lista de Obras: 90.000.000
+Total Aumento del Programa: 328-00 90.000.000
+PROGRAMA: 331-00
+TRANSPORTE TERRESTRE
+SUB PROGRAMA/PROYECTO: 01
+TRANSPORTE TERRESTRE
+Registro Contable: 112-331-01
+G-O FF C-E CF I-P Concepto Monto en ¢
+1 SERVICIOS NO PERSONALES 4.000.000
+182 01 112 47 MANTEN. Y REPAR. DE EDIFICIOS 4.000.000
+2 MATERIALES Y SUMINISTROS 207.420
+234 01 112 47 IMPRESOS Y OTROS 207.420
+Total Aumento del Sub Programa/Proyecto: 331-01 4.207.420
+Total Aumento del Programa: 331-00 4.207.420
+Total Aumento del Título: 112 134.007.420
+TÍTULO: 126
+MINISTERIO COMERCIO EXTERIOR
+PROGRAMA: 792-00
+ACTIVIDADES CENTRALES
+Registro Contable: 126-792-00
+1 SERVICIOS NO PERSONALES 200.000
+124 01 112 10 SERVICIO DE CORREOS 200.000
+Total Aumento del Programa: 792-00 200.000
+Total Aumento del Título: 126 200.000
+Total Aumentar 141.206.694
