@@ -1,4 +1,6 @@
+(Derogado)
 N° 1929-A
+(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 5974 del 4 de mayo de 1976)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE AGRICULTURA Y GANADERIA,
 Por cuanto:

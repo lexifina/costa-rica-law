@@ -14,3 +14,4 @@ Traspasa al Instituto de Tierras y Colonización (ITCO INDER) los terrenos ubica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1971-09-04 | la propia norma |
+| 2 | 1976-05-04 | Decreto Ejecutivo 5974 (1976-05-04) |
