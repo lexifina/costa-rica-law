@@ -1,0 +1,1 @@
+Artículo 11.—No se autorizará permisos simultáneos en comunidades que se encuentren a un radio de 15 kilómetros de distancia una de otras, para evitar perjuicio económicos a los diferentes grupos comunales.

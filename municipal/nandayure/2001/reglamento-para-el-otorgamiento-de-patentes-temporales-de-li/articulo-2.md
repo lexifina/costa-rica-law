@@ -1,0 +1,1 @@
+Artículo 2°—Las solicitudes para las actividades mencionadas en los Artículos anteriores deberán ser presentadas a la secretaría del Concejo Municipal, con al menos treinta días naturales de anticipación.

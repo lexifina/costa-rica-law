@@ -1,0 +1,1 @@
+Artículo 7°—No se autorizará bajo ninguna circunstancia la explotación de patente temporal de licores en iglesias, centros educativos, instalaciones deportivas o en terrenos e instalaciones de esta Municipalidad.
