@@ -1,0 +1,1 @@
+Art 52° Estarán exentos del pago de matricula para el curso siguiente, los alumnos que obtengan diplomas de honor de 1° y 2° clase. También estarán exentos los alumnos que justifiquen suma pobreza, y a juicio del Director merezcan esta gracia por sus aptitudes.

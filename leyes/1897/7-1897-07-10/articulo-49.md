@@ -1,0 +1,1 @@
+Art 49° A pesar de lo que dispone el inciso 1° del artículo anterior, podrán ser admitidos en la Escuela alumnos menores de catorce años, cuando por su aptitudes extraordinarias para el arte lo acuerde el Consejo.

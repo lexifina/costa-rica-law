@@ -1,0 +1,1 @@
+Art 36° Los alumnos que obtengan en sus calificaciones promedio que no exceda de 2, tendrán derecho a pasar a la clase superior inmediata. Los que obtengan promedio que pase de 2 no exceda de 3, quedan sujetos a la decisión del Consejo, y perderá el curso los que obtengan mayor promedio.
