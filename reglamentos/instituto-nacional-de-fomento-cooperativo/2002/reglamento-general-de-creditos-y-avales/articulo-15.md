@@ -1,2 +1,0 @@
-Artículo 15.—El INFOCOOP no estará obligado a otorgar los montos máximos establecidos en los artículos 12, 13 y 14, cuando así lo estime conveniente de acuerdo al proyecto presentado, las garantías ofrecidas, o la situación administrativa, económica o financiera de la cooperativa solicitante.
-Todos los créditos a las Asociaciones Cooperativas estarán supeditados a que éstas muestren una capacidad de pago total suficiente, incluyendo el crédito que solicitan.
