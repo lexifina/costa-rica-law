@@ -1,0 +1,1 @@
+Artículo 7º.-En el caso de que una mujer permanezca ausente de su trabajo un tiempo mayor del concedido, a consecuencia de enfermedad, que según el certificado médica deba su origen al embarazo o al alumbramiento y que la incapacite para reanudarlo, no podrá ser declarada cesante.

@@ -1,0 +1,1 @@
+Artículo 35.-La falta de avisos en los lugares mencionados será castigada con multa menor en su grado primero, que se impondrá al Director de la institución o al respectivo empresario del teatro o cinematógrafo.

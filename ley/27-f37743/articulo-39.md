@@ -1,0 +1,1 @@
+Artículo 39.-La mujer que haya trasmitido una enfermedad sexual contagiosa a un menor de diez y seis años, está sujeta a las penas correspondientes que para lesiones establece el Código Penal en sus artículo 257, 258, 259 y 260.
