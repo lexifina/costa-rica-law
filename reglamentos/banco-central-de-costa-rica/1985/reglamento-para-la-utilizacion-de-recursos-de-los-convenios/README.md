@@ -14,3 +14,4 @@ Reglamento para la utilización de recursos de los Convenios de Asistencia AID 5
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-04-29 | la propia norma |
+| 2 | 1985-09-04 | Reglamento 4061 (1985-09-04) |
