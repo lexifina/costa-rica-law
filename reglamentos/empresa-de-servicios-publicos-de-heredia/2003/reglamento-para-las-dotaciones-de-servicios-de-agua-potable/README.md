@@ -15,3 +15,4 @@ Reglamento para las Dotaciones de Servicios de Agua Potable, Alcantarillado Sani
 | --- | --- | --- |
 | 1 | 2003-08-01 | la propia norma |
 | 2 | 2004-08-17 | Reglamento 203 (2004-08-17) |
+| 3 | 2005-01-10 | Reglamento 2639 (2005-01-10) |
