@@ -1,0 +1,5 @@
+PODER LEGISLATIVO
+Decreto n°18 (publicado el 15 de junio) Faculta al Poder Ejecutivo para que mande practicar un estudio científico de la línea que mejor convenga para un camino de carreteras que enlace algunos de los de esa especie existentes al Sur de Cartago, con cualquiera de los análogos del cantón de Dota, para cualquier de los análogos del cantón de Dota, para que una vez descubierta dicha línea se abra una vereda formal que sirva de base a la respectiva carretera, localizado que sea el camino se dejará de uno y otro, lado una faja de cuatrocientos metros de ancho para dividirla en lotes destinados a padres de familia pobres.
+N°18
+EL CONGRESO CONTITUCIONAL DE LA REPUBLICA DE COSTA RICA
+Artículo 1° Facultase al Poder Ejecutivo, para que, dentro del más breve plazo posible, mande practicar un estudio científico de la línea que mejor convenga adoptar para la localización de un camino de carreteras, que enlace alguno de los de esa especie, existente al Sur de Cartago, con cualquiera de los análogos del cantón de Dota, y para una vez descubierta dicha línea, se abra una vereda formal que sirva de base a la futura carretera, todo a costa del Tesoro Nacional.
