@@ -1,0 +1,5 @@
+DECRETO XXXVI.
+La Camara de Representantes cierra sus sesiones.
+"El Senador encargado del Supremo Poder Ejecutivo del Estado libre de Costa RiCA. –Por cuanto la Cámara de Representantes ha decretado lo siguiente.
+La Cámara de Representantes del Estado libre de Costa Rica, concluyendo en este dia su segundo periodo constitucional prorogado por decreto de 16 del corriente, ha venido en decretar y decreta.
+Art° único. Se han por cerradas las sesiones ordinarias de la Cámara de Representantes en su segundo periodo constitucional del presente año.-Comuníquese al Poder Ejecutivo para que lo haga imprimir, circular y publicar. _ Dado en la ciudad de San José, à los veintinueve dias del mes de julio de mil ochocientos cuarenta y cinco.-José Maria Castro, Representante Presidente.-Rafael Ramirez, Representante primer Secretario,-Gordiano Fernandez, Representante segundo Secretario. -Por tanto: EJECUTESE. San José, agosto primero de mil ochocientos cuarenta y cinco. –José Rafael de Gallegos.-Al Ministro de relaciones y gobernación.”
