@@ -26,3 +26,4 @@ Reglamento a la Ley General de Aduanas
 | 11 | 2004-03-05 | Decreto Ejecutivo 31667 (2004-03-05) |
 | 12 | 2004-04-01 | Decreto Ejecutivo 31810 (2004-04-01) |
 | 13 | 2004-05-13 | Decreto Ejecutivo 32006 (2004-05-13) |
+| 14 | 2004-09-23 | Decreto Ejecutivo 32098 (2004-09-23) |
