@@ -1,0 +1,3 @@
+Artículo 18.—La Comisión calificadora remitirá el expediente a la Junta Directiva para que proceda a emitir los acuerdos respectivos, debidamente preparado para la resolución de adjudicación, incluyendo cuadros comparativos, criterios técnicos , y el respectivo análisis.
+Corresponderá al Departamento de Administración de Bienes, una vez firmes los acuerdos de Junta Directiva, remitir los expedientes a la Comisión de Notariado Indicando condiciones de pago y formalización.
+En caso de saldo a respaldar con garantía hipotecaria regirá lo dispuesto por el Reglamento de Préstamos Hipotecarios en lo que sea aplicable.

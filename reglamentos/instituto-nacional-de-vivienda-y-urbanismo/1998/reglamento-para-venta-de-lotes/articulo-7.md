@@ -1,0 +1,1 @@
+Artículo 7°—La venta de los lotes se liará previo avalúo del Departamento interno del Instituto designado por Junta Directiva para tal efecto. En casos calificados o por fallado personal idóneo en la institución o exceso de trabajo se podrá requerir el avalúo a la Dirección General de Tributación Directa.

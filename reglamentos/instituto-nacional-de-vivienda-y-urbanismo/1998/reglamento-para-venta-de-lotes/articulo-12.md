@@ -1,0 +1,1 @@
+Artículo 12.—El procedimiento para la venta de lotes será el de policitación, siguiendo los principios de la sana contratación conforme los establece la Ley de Contratación Administrativa, por lo que en lo supletorio regirá lo dispuesto en dicha normativa, así como todas aquellas directrices que regulen la materia emanadas de la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 15.—Se procederá por policitación y la apertura de un expediente administrativo, debidamente foliado, calificado de conformidad con el cartel publicado v la normativa aplicable, como de todas aquellas ofertas que se premiaron durante el proceso.

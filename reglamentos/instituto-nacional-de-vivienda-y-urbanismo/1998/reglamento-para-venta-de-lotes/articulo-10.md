@@ -1,0 +1,2 @@
+Articulo 10.—La adjudicación de los lotes residenciales se hará a grupos familiares que acrediten carecer de vivienda propia. Los fondos de patio por su parte se adjudicarán únicamente a los predios colindantes que se beneficien con él y para reunión de fincas mediante escritura pública.
+La adjudicación de los lotes de reserva no utilizables y los comerciales se podrán realizar a personas físicas o jurídicas.

@@ -1,0 +1,1 @@
+Artículo 6°—La Dirección de Urbanismo, así como los departamentos de Planes y Obras y Topografía, rendirán apoyo técnico al Departamento de Administración de Bienes, encargado de toda venia para establecer los parámetros de medida, zona y servicios que permitan el correcto desarrollo de todo el proceso de venta. '

@@ -1,0 +1,1 @@
+Artículo 11.—Los lotes se venderán expresando, tanto en los carteles como en la escritura respectiva, los usos permitidos según el certificado de uso que emita la Municipalidad en caso de existir plan regulador en la zona, conteniendo la posibilidad de resolución contractual por violación de los usos autorizados.

@@ -1,0 +1,1 @@
+Artículo 17.—De existir ofertas de igual monto, se otorgará el bien atendiendo el principio de que se satisfaga más adecuadamente el interés publico perseguido por el Instituto con el procedimiento de policitación.

@@ -1,0 +1,1 @@
+Artículo 2°—Se define como lote residencial el área resultado del fraccionamiento de un inmueble viable para la construcción de una vivienda o más viviendas de acuerdo con las normas establecidas al respecto, que por sus características no puede ser objeto de ulterior fraccionamiento.
