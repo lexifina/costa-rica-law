@@ -1,0 +1,2 @@
+Artículo 10.-Pueden apelar de un acuerdo municipal para ante el Poder Ejecutivo los que tengan interés en el asunto.
+La apelación debe interponerse dentro de los diez días hábiles siguientes al de la sesión en que se hubiera aprobado el acta que contempla el acuerdo; o si los interesados hubieren sido notificados personalmente del acuerdo, dentro de los tres días hábiles siguientes al de la notificación.
