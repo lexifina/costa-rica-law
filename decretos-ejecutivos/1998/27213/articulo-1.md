@@ -1,0 +1,9 @@
+N° 27213-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DEL AMBIENTE Y ENERGÍA
+Considerando:
+1-Que es de vital importancia en el mantenimiento y consolidación de las Áreas Silvestres Protegidas, que asegure la biodiversidad que en ellas se protegen de acuerdo a la Ley de Biodiversidad, como lo establecen los artículos dieciséis, cincuenta y ocho Y sesenta respectivamente, de acuerdo a la normativa vigente.
+2-Que el Sistema Nacional de Áreas de Conservación (SINAC), ante la necesidad de sistematizar y uniformar la práctica de administración de las áreas silvestres protegidas y asegurar que se cuente con un claro marco de referencia para orientar su desarrollo y generación de los beneficios de la conservación para la sociedad, ha planteado la formulación de políticas para la administración de estas áreas.
+3-Que bajo el principio de democratización que ha planteado SINAC, se propicia la participación tanto de funcionarios como de representantes de los diferentes sectores vinculados a la gestión de las áreas silvestres protegidas, en una serie de actividades de generación de ideas que fundamenten los lineamientos estratégicos para la orientación de las acciones tendientes a su consolidación y su posicionamiento en el proceso de desarrollo socioeconómico del país. Por tanto,
+DECRETAN:
+Artículo 1°—Créase la Comisión Asesora en Áreas Silvestres Protegidas, (CONAP), la cual tendrá como objetivo principal asesorar al Ministro del Ambiente y Energía en materia de áreas silvestres protegidas y facilitando las acciones tendientes a apoyar los lineamientos establecidos en el documento oficial de Políticas para Áreas Silvestres Protegidas de Costa Rica y la debida aplicación de las normas jurídicas ambientales, con especial atención de la Ley de Biodiversidad y aquellas otras que regulen la materia.
