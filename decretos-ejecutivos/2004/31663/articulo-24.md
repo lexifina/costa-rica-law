@@ -1,0 +1,1 @@
+Artículo 24.—El director de un centro educativo no puede conceder matrícula ordinaria, ni extraordinaria a un estudiante extranjero cuyos atestados no hayan sido sometidos a estudio, reconocimiento y pronunciamiento del Director de Desarrollo Educativo de la respectiva Región Educativa.

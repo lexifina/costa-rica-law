@@ -1,0 +1,1 @@
+Artículo 25.—Las disposiciones de este Reglamento, referentes a la matrícula ordinaria o extraordinaria de estudiantes extranjeros, son de acatamiento obligatorio para todas las instituciones educativas del país.

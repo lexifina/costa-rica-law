@@ -1,0 +1,5 @@
+Artículo 11.—Para ingresar a la Educación Preescolar y al primer año del Primer Ciclo de la Educación General Básica y al Programa Nuevas Oportunidades Educativas para Jóvenes (PNOEJ), se establece como requisito indispensable de matrícula, las siguientes edades mínimas:
+a) Educación Preescolar, Ciclo Materno Infantil y Ciclo Interactivo II: edad mínima de cuatro años y seis meses cumplidos, a más tardar a la fecha de inicio del curso lectivo en que se desee matricular.
+b) Educación Preescolar y Ciclo de Transición: edad mínima de cinco años y seis meses cumplidos, a más tardar a la fecha de inicio del curso lectivo en que se desee matricular.
+c) Primer año del Primer ciclo de Educación General Básica: edad mínima de 6 años y seis meses cumplidos, a más tardar, a la fecha de inicio del curso lectivo en que se desee matricular.
+d) Programa Nuevas Oportunidades Educativas para Jóvenes: edad mínima de quince años cumplidos, a más tardar el día de la prematrícula. En este Programa no se podrán matricular jóvenes con edades superiores a los 18 años, salvo aquellos que hubieren estado previamente matriculados en este Programa antes de cumplir esa edad.
