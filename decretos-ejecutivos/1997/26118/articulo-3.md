@@ -1,0 +1,1 @@
+Artículo 3°.- Los vendedores o usuarios que contravengan lo dispuesto en este decreto, serán sancionados conforme la estipula la ley General de Salud. Las autoridades de salud velarán por el estricto cumplimiento de este decreto.

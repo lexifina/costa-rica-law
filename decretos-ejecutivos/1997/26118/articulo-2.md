@@ -1,0 +1,1 @@
+Artículo 2°.- Para todo otro uso en que se emplee este producto químico y como reactivo de laboratorio, deberá cumplirse con las disposiciones legales y reglamentarias referentes al etiquetado, envasado, embalaje, simbología y disposición final, emitidas por el Ministerio de Salud aplicables a los productos químicos, tóxicos y peligrosos.
