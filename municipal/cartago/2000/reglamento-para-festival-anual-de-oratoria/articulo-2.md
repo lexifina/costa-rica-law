@@ -1,1 +1,1 @@
-Artículo 2º—No será impedimento para que Centros Educativos privados del Cantón Central participen en cualquiera de las modalidades de dicho Festival.
+Artículo 2º—Los estudiantes participantes en la final del Festival Anual de Oratoria, son los ganadores de la Oratoria Interna, de todos y cada uno de los once distritos del cantón central de Cartago, que participaron en las eliminatorias en las cuales la Dirección Regional de Educación de Cartago, en las categorías de preescolar, primaria y secundaria.

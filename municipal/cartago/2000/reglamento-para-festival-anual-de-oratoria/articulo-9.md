@@ -1,1 +1,1 @@
-Artículo 9º—Solamente se escogerá una o dos personas como miembro del jurado de las instituciones que de una u otra manera participan como dedicado, colaboradores y otro tipo en el festival, tomando en cuenta que una estará en las eliminatorias y otra si fuera del caso en la final.
+Artículo 9º—El estudiante participante del Festival de Oratoria deberá acatar los ordenamientos del presente Reglamento, cumplir las indicaciones que el jurado indique, Dichos ordenamientos e indicaciones no serán objeto de recursos ordinarios.

@@ -1,1 +1,1 @@
-Artículo 3º—Se establecerán tres modalidades para el Festival de Oratoria, orientado a la participación de jóvenes estudiantes en las categorías de Kinder, Escuela y Colegio del Cantón Central de Cartago.
+Artículo 3º—Los estudiantes clasificados por distrito en cada categoría, deben ser notificados ante el Departamento de la Secretaría General de la Municipalidad de Cartago, a más tardar el 28 de agosto de cada año, teléfono 552-8058, extensiones: 218, 219 y 220. Cada participante debe notificar un tema de los establecidos para la eliminatoria y otro, para la final.

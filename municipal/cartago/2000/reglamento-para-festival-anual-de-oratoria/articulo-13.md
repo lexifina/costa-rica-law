@@ -1,1 +1,2 @@
-Artículo 13.—El orador tiene como derecho a no ser interrumpido durante el transcurso de su discurso, a menos que contravenga lo prescrito en el artículo anterior, o que se extralimite en el tiempo que estable este reglamento.
+Artículo 13.—Para calificar el discurso, el Jurado tomará en consideración los siguientes aspectos:
+(NOTA: Por lo complejo del formato ver La Gaceta N° 176 de 13 de setiembre del 2002, página 44)

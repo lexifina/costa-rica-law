@@ -1,1 +1,1 @@
-Artículo 7º—Los miembros del jurado de las eliminatorias no podrán tener participación en el jurado de la final, por lo cual se define que el jurado tendrá como máximo siete y como mínimo cinco miembros.
+Artículo 7º—Solamente se escogerá una persona como miembro del jurado de las instituciones que de una u otra manera participan como dedicado.

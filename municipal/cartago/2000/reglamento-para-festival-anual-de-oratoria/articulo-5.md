@@ -1,1 +1,1 @@
-Artículo 5º—Los Centros Educativos tendrán derecho a participar con un máximo de cuatro representantes por institución.
+Artículo 5º—Los miembros del jurado de las eliminatorias no podrán tener participación en el jurado de la final, por lo cual se define que el jurado tendrá como máximo siete y como mínimo cinco miembros.

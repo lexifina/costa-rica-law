@@ -1,1 +1,1 @@
-Artículo 12.—El orador concursante, en sus participaciones debe guardar la compostura y moderación que el acto exige; de no hacerlo será descalificado por el jurado.
+Artículo 12.—Se nombrará dentro del jurado un Presidente (a), a quién le corresponde dirigir las sesiones. Abrirá y cerrará las sesiones de cada concurso. Declarará los resultados oficiales del Festival. Hará oficialmente todas las observaciones necesarias en nombre del Jurado y demás funciones inherentes al cargo de un cuerpo colegiado y deliberado a saber:

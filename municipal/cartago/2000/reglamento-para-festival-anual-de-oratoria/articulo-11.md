@@ -1,1 +1,1 @@
-Artículo 11.—Todo estudiante participante del Festival de Oratoria deberá acatar los ordenamientos del presente reglamento, cumplir las indicaciones que el jurado indique y aceptar las decisiones del mismo, las cuales son inapelables.
+Artículo 11.—El orador tiene como derecho a no ser interrumpido durante el transcurso de su discurso, a menos que contravenga lo prescrito en él articulo anterior, o que se extralimite en el tiempo que estable este Reglamento.

@@ -1,2 +1,1 @@
-Artículo 10.—El tiempo que se da para los participantes para la exposición de su discurso a nivel de Kinder será de mínimo dos minutos y máximo tres, para primaria será de tres minutos mínimo y cuatro máximo y para secundaria el tiempo será de cinco minutos mínimo y siete máximo.
-El jurado tendrá el derecho de modificar este artículo según la hoja de calificación que se diseñe para el Festival, además debe comunicarle con anticipación a los concursantes este tipo de cambio.
+Artículo 10.—El orador concursante, en sus participaciones debe guardar la compostura y moderación que el acto exige; de no hacerlo será descalificado por el jurado. Será descalificado también cuando use cualquier otra técnica que no se ajuste a la oratoria.

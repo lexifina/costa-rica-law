@@ -1,1 +1,1 @@
-Artículo 14.—Se nombrará dentro del jurado un Presidente al cual le corresponde dirigir las sesiones, hará todo lo que normalmente realiza un Presidente en las organizaciones colegiadas y deliberantes. Abrirá y cerrará las sesiones de cada concurso. Declarará los resultados oficiales del festival, hará oficialmente todas las observaciones necesarias en nombre del Jurado.
+Artículo 14.—El artículo anterior esta sujeto a cambios, de acuerdo con el criterio del Jurado y se les informará con anticipación a los concursantes.
