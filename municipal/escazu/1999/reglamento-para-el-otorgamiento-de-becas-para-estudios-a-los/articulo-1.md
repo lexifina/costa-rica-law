@@ -9,4 +9,5 @@ Resultando:
 3°—Este Concejo Municipal, en uso de las facultades que le otorga la Constitución Política y el Código Municipal acuerda emitir el siguiente Reglamento:
 REGLAMENTO PARA EL OTORGAMIENTO DE BECAS
 PARA ESTUDIOS A LOS MUNÍCIPES DE ESCAZÚ
-Artículo 1°—La Municipalidad podrá otorgar becas en beneficio de toda aquella persona vecina del Cantón de Escazú, que desee iniciar estudios o se encuentre cursando estudios de enseñanza primaria o secundaria. Asimismo, podrá gestionar el otorgamiento de becas para toda aquella persona vecina del Cantón de Escazú, que desee iniciar estudios o se encuentre cursando estudios de educación superior.
+Artículo 1°—La Municipalidad podrá otorgar becas en beneficio de toda aquella persona vecina del cantón de Escazú, que desee iniciar estudios o se encuentre cursando estudios de enseñanza primaria o secundaria. Asimismo, podrá gestionar el otorgamiento de becas para toda aquella persona vecina del cantón de Escazú, que desee iniciar estudios o se encuentre cursando estudios de educación superior, técnica, tecnológica o científica.
+(Así reformado por el acuerdo del Concejo Municipal, en su sesión N° 185 del 18 de setiembre de 2001)

@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de becas para estudios a los munícipes de Escaz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-05-27 | la propia norma |
+| 2 | 2001-09-18 | Reglamento municipal 185 (2001-09-18) |
