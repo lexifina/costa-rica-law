@@ -1,0 +1,1 @@
+Artículo 19.—El Director que sustituya al titular por ausencia temporal, actuará con todos los efectos legales del cargo, sin subordinación ninguna, y ejercerá las competencias del órgano con la plenitud de los poderes que las mismas contienen.

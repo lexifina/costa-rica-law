@@ -1,0 +1,1 @@
+Artículo 16.—El primer secretario será reemplazado en sus ausencias o faltas temporales por el segundo y en defecto de este, desempeñará sus funciones el prosecretario con las mismas facultades de aquel. En caso de ausencia de los secretarios y el prosecretario, actuará en su lugar uno de los vocales, en el orden de su elección. (Artículo 19 del Reglamento a la Ley).

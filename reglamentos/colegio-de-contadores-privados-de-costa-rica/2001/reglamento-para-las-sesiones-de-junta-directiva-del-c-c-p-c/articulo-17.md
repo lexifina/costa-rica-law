@@ -1,0 +1,1 @@
+Artículo 17.- En las faltas o ausencias temporales, el tesorero será reemplazado por el miembro directivo que la Junta Directiva designe por acuerdo formal. De acuerdo a la Ley y Reglamentos del Colegio.

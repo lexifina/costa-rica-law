@@ -1,0 +1,1 @@
+Artículo 7°—Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden la firmeza por votación de siete miembros de la Junta Directiva.

@@ -1,0 +1,2 @@
+Artículo 3°—El orden del día para cada reunión de Junta Directiva será redactado por el Presidente conjuntamente con el Secretario o Prosecretario, cuando corresponda. Para la confección del orden del día podrá tomar en cuenta las sugerencias de los demás miembros de Junta Directiva, formuladas al menos con 3 días de anticipación; el orden del día
+podrá ser variado si 2/3 de la Junta Directiva así lo acuerdan.

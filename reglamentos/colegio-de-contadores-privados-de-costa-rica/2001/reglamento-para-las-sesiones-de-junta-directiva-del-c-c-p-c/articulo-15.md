@@ -1,0 +1,1 @@
+Artículo 15.—Las ausencias temporales del presidente serán llenadas por el primero o segundo vicepresidente y en ausencia de estos por el primero o segundo vocal, en este orden. (Artículo 18 del Reglamento a la Ley).
