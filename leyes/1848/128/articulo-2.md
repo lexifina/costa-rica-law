@@ -1,0 +1,1 @@
+Art. 2. Se faculta tambien al mismo resguardo para zelar el buen órden en los pueblos del transito desde Atenas hasta Esparza, dando cuenta à las autoridades locales y auxiliándolas para perseguir y capturar los delincuentes.
