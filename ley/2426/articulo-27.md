@@ -12,3 +12,4 @@ nueva planta industrial empiece su producción.
 En cuanto a las industrias establecidas, este período empezará a
 contar a partir de la fecha de la publicación del contrato en "La
 Gaceta". En ningún caso dicho plazo podrá ser superior a diez años (10).
+(Ver NOTA al final de esta Ley y NOTA del artículo 19)
