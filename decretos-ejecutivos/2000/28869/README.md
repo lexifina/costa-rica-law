@@ -14,3 +14,4 @@ Reglamento para regular ingreso de Naves Extranjeras en el Territorio Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-30 | la propia norma |
+| 2 | 2000-12-08 | Decreto Ejecutivo 29388 (2000-12-08) |
