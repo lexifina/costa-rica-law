@@ -13,3 +13,4 @@ Reglamento Instructores Teóricos Terrestres y de Vuelo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1983-01-07 | la propia norma |
+| 2 | 1983-01-07 | SINALEVI (sin norma nombrada) |
