@@ -15,3 +15,4 @@ Reforma Tasas Ordinarias Especiales Respuestas de Cartas y Tarjetas Comerciales 
 | --- | --- | --- |
 | 1 | 1976-03-13 | la propia norma |
 | 2 | 1976-06-08 | Decreto Ejecutivo 6081 (1976-06-08) |
+| 3 | 1977-07-20 | Decreto Ejecutivo 7255 (1977-07-20) |
