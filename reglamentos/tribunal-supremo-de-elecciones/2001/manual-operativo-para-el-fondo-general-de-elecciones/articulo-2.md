@@ -1,0 +1,1 @@
+2º—Base legal. El fondo Elecciones Generales se fundamenta en la Ley de Presupuestos Ordinario y Extraordinario de la República, para el ejercicio económico del 2001 Nº 8050, subpartida 900 Imprevistos.
