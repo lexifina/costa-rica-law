@@ -17,3 +17,4 @@ Reglamento de Becas
 | 2 | 2002-10-24 | Reglamento municipal 26 (2002-10-24) |
 | 3 | 2003-03-10 | Reglamento municipal 46 (2003-03-10) |
 | 4 | 2003-05-06 | Reglamento municipal 0 (2003-05-06) |
+| 5 | 2005-04-01 | Reglamento municipal 152 (2005-04-01) |
