@@ -1,0 +1,1 @@
+Artículo 21.—De conformidad con lo que dispone el artículo 80 de la Ley General de Salud, el embalsamiento de los cadáveres solamente podrá ser realizado por anatomapatólogos debidamente registrados en el Colegio de Médicos y Cirujanos.

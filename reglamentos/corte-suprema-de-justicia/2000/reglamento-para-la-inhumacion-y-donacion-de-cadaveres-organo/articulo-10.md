@@ -1,0 +1,1 @@
+Artículo 10.—El personal de la Sección de Patología Forense del Organismo de Investigación Judicial, a cargo del depósito de cadáveres, velará por la preservación de los cuerpos, procurando conservar de la mejor forma posible sus rasgos fisonómicos.

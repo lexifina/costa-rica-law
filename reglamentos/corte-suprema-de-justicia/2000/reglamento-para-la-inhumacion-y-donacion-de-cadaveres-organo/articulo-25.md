@@ -1,0 +1,1 @@
+Artículo 25.—Una vez que las universidades concluyan la utilización del cadáver y sus restos, deberán sepultarlos en un cementerio, con el consecuente registro para determinar exactamente la localización de cada cadáver o resto biológico donado por el Poder Judicial.

@@ -1,0 +1,1 @@
+Artículo 26.—El Consejo Superior del Poder Judicial podrá revocar la autorización concedida a aquellas Universidades que incumplieren con las disposiciones contenidas en este Reglamento, sin perjuicio de la responsabilidad penal, civil o administrativa a que estén sujetos sus representantes o personal docente.

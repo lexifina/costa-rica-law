@@ -1,0 +1,1 @@
+Artículo 16.—Si hubieren solicitudes de donación por parte de varias Universidades, se seguirá el orden que establece la lista mencionada en el artículo anterior, de tal forma que los cuerpos, órganos o materiales biológicos humanos se distribuyan de forma equitativa entre cada uno de los solicitantes.

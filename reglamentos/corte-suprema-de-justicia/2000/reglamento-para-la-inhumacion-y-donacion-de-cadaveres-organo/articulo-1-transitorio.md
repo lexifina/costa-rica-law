@@ -1,0 +1,2 @@
+Transitorio I.—Las Universidades que actualmente se encuentran autorizadas para recibir cadáveres, órganos o material biológico humano en donación, deberán acreditar, ante la Secretaría General del Poder Judicial, los requisitos señalados en el presente Reglamento y mientras no los cumplan, no se les entregará ningún cadáver, órgano o material biológico humano.
+El Presente reglamento rige a partir de su publicación en el Boletín Judicial.

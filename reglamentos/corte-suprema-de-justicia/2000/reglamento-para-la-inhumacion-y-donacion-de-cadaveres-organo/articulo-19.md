@@ -1,0 +1,1 @@
+Artículo 19.—Ningún cadáver puede ser inhumado, entregado provisionalmente o donado, sin antes habérsele realizado la autopsia o examen correspondiente y haberse extendido el certificado de defunción.

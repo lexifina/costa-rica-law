@@ -1,0 +1,1 @@
+Artículo 15.—La Sección de Patología Forense tendrá una lista de todas las Universidades autorizadas para recibir cuerpos, órganos o material biológico humano en donación y de las personas autorizados para efectuar el retiro. Las donaciones se realizarán en el orden en que se reciban las solicitudes.

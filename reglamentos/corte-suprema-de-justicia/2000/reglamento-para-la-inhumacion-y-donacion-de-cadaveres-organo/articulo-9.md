@@ -1,0 +1,1 @@
+Artículo 9º—Cuando el cuerpo fuere de un extranjero de identidad conocida, se esperará respuesta de la embajada o del respectivo país. Si en el término de dos meses no mostraren interés en retirarlo, se procederá a la inhumación o donación del cuerpo.
