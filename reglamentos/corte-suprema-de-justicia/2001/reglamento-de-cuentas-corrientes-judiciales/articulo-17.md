@@ -1,1 +1,1 @@
-Artículo 17.—Depósitos activos. Las constancias de depósitos activas, en poder del Despacho y de las oficinas administrativas, se custodiarán en un archivo que se deberá llevar para estos efectos, con las medidas de seguridad necesarias y de manera que se facilite su pronta localización.
+Artículo 17.—Depósitos activos. Las constancias de depósitos activos, en poder del Despacho y de las oficinas administrativas, se custodiarán en un archivo que se deberá llevar para estos efectos, con las medidas de seguridad necesarias y de manera que se facilite su pronta localización.

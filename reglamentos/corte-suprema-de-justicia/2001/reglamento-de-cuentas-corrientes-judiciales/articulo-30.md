@@ -1,4 +1,9 @@
 CAPÍTULO III
-De los depósitos pertenecientes a procesos
-abandonados o fenecidos
-Artículo 30.—Derogado mediante sesión N° 20 del 13 de mayo del 2002.
+De los depósitos pertenecientes a procesos abandonados o fenecidos
+“Este CAPÍTULO fue dejado sin efecto por la Corte Plena en sesión
+Nº 20-02, celebrada el 13 de mayo del 2002, artículo XI, comunicado
+mediante circular Nº 66-2002, publicada en el Boletín Judicial Nº 127 del
+3 de julio del 2002, en virtud de lo dispuesto por la Sala Constitucional en
+el voto Nº 10817-2001, que anuló los artículos 236, inciso 5) y 237 de la
+Ley Orgánica del Poder Judicial”.
+Artículo 30.—Derogado.

@@ -14,3 +14,4 @@ Reglamento de Cuentas Corrientes Judiciales
 | --- | --- | --- |
 | 1 | 2001-07-30 | la propia norma |
 | 2 | 2002-05-13 | Reglamento 20 (2002-05-13) |
+| 3 | 2004-09-13 | Reglamento 38 (2004-09-13) |
