@@ -1,0 +1,1 @@
+3°-La Dirección General de Servicio Civil para el cumplimiento de sus cometidos y del Programa de Cooperación Técnica, establecerá con organismos y empresas nacionales e internacionales, públicos y privados, diversas formas de alianza y de cooperación, tales como convenios, pasantías e intercambios de servicios.

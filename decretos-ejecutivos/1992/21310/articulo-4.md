@@ -1,0 +1,3 @@
+4° -Las formas de alianza referidas en el presente decreto cuando corresponda, serán rubricadas por el Director General de Servicio Civil.
+Rige a partir del ...
+Dado en la Presidencia de la República.-San José, a los veintiséis días del mes de mayo de mil novecientos noventa y dos.
