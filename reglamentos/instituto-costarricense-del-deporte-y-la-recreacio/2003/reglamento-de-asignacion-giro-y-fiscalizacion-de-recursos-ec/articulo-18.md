@@ -1,1 +1,3 @@
 Artículo 18.—La Auditoría Interna se cerciorará que el sujeto privado administre los beneficios otorgados por el ICODER en una cuenta corriente separada, en un banco estatal y que lleve registros de su empleo independientemente de los que correspondan a otros fondos de su propiedad.
+Durante la totalidad del periodo en el cual se estén ejecutando los aportes entregados, los beneficiarios deberán presentar ante dicha Autoridad, en los primeros días hábiles de cada mes, las conciliaciones bancarias de la cuenta en las que se estén manejando los fondos públicos.
+(Así adicionado por acuerdo del Consejo Nacional del Deporte y la Recreación, y publicado en La Gaceta N° 139 del 16 de julio del 2004)
