@@ -1,1 +1,3 @@
 Artículo 3─ Estos Bonos estarán a cargo del Tesoro Público, tendrán fecha 1° de junio de 1977; devengarán un interés del 8% anual, pagadero por trimestre vencidos el día 1° de cada uno de los meses de marzo, junio, setiembre y diciembre, comenzando con el correspondiente al 1° de setiembre de 1977. Para el pago de estos intereses se incluirá en el Presupuesto Ordinario de la República la suma anual de ₡ 36.000,000.00.
+A partir del 1° de julio de 1981 sobre el saldo de ₡ 342.125.000,00 se pagarán los intereses se incluirá en el Presupuesto Ordinario de la República la suma trimestral de ₡ 6. 842.500,00.
+(Así adicionado el inciso anterior por el artículo 3° del Decreto Ejecutivo N° 13034 del 15 de octubre de 1981)
