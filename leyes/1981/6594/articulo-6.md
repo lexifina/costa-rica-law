@@ -1,10 +1,10 @@
-Artículo 6º.- El "Timbre policial" deberá ser usado en todos los
+ARTICULO 6º.- El "Timbre policial" deberá ser usado en todos los
 trámites y documentos siguientes, según los indique en cada caso:
-1) Se agregará un "Timbre policial" de cinco colones a las
+1) Se agregará un "Timbre fiscal" de cinco colones a las
 certificaciones emitidaspor las dependencias de los Ministerios de
 Seguridad Pública, de Gobernación yPolicía y de Justicia, salvo las que
 emitiere el Registro Nacional.
-2) Se agregará un "Timbre policial" de diez colones:
+2) Se agregará un "Timbre fiscal" de diez colones:
 a) En el pasaporte u otro documento migratorio de toda persona, cada
 vez que salga del país; se exceptúan de esta obligación los funcionarios
 públicos en misión oficial, el personal diplomático acreditado en Costa
@@ -12,13 +12,13 @@ Rica y las personas que no deban pagarlo, en virtud de convenios
 internacionales.
 b) En el recibo de pago de toda publicación que se realice en "La
 Gaceta".
-3) Se agregará un "Timbre policial" de veinte colones:
+3) Se agregará un "Timbre fiscal" de veinte colones:
 a) En la renovación de pasaportes.
 b) En la renovación de permisos de portación de armas.
 c) En el recibo de pago de las multas que se impusieren como
 consecuencia de la comisión de delitos, contravenciones e infracciones de
 tránsito.
-4) Se agregará un "Timbre policial" de cincuenta colones:
+4) Se agregará un "Timbre fiscal" de cincuenta colones:
 a) Por cada mes de prórroga que se otorgue en las visas de turismo.
 b) En el escrito en el que se apele cualquier resolución dictada por
 el Consejo Nacional de Migración.
@@ -31,7 +31,7 @@ las apelaciones a las resoluciones de éstas.
 d) En el permiso que, por primera vez, se otorgue para portación de
 armas.
 e) Por cada mes de permiso temporal de residencia.
-5) Se agregará un "Timbre policial" de cien colones:
+5) Se agregará un "Timbre fiscal" de cien colones:
 a) En las renovaciones de cédulas de residencia.
 b) En las solicitudes de cédulas de residencia y en las de cambio de
 condición de éstas.
@@ -47,3 +47,6 @@ f) En las solicitudes del funcionamiento de los negocios, a que se
 refiere la ley número 6122 del 17 de noviembre del 1977.
 g) En las solicitudes de frecuencia de radio y televisión, o para la
 operación de equipos de radiodifusión.
+(Así reformado por el artículo 28, inciso 1), de la Ley de Justicia
+Tributaria No.7535 del 1 de agosto de 1995, que sustituye el timbre
+policial por timbres fiscales del mismo valor)
