@@ -1,13 +1,6 @@
-ARTÖCULO 1§.-Todo el que pretenda abrir una casa de
-pr‚stamos sobre prendas, deber presentarse por escrito
-al Gobernador de la provincia ¢ comarca donde
-haya de establecerse, fin de obtener la matr¡cula
-correspondiente. La matr¡cula no se conceder en
-ning£n caso, y si hubiere sido concedida el Gobernador
-la retirar , aquellas personas que hubieren sido
-condenadas ¢ que est‚n procesadas por delitos contra
-la propiedad ¢ contra la fe p£blica.
-Al solicitar la matr¡cula, el petente deber expresar
-el lugar y casa donde va abrir operaciones, el
-capital que va poner en giro y las condiciones especiales
-en que har sus negocios.
+N° 40
+EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+La siguiente Ley sobre casas de préstamos.
+Art. 1°.- Todo el que pretenda abrir una casa de préstamos sobre prendas, deber presentarse por escrito al Gobernador de la provincia ó comarca donde haya de establecerse, fin de obtener la matrícula correspondiente. La matrícula no se concederá en ningún caso, y si hubiere sido concedida el Gobernador la retirará á aquellas personas que hubieren sido condenadas ó que están procesadas por delitos contra la propiedad ó contra la fe pública.
+Al solicitar la matrícula, el petente deberá expresar el lugar y casa donde va á abrir operaciones, el capital que va á poner en giro y las condiciones especiales en que hará sus negocios.
