@@ -1,0 +1,1 @@
+Artículo 2º—Corresponderá al Concejo Municipal por la vía del acuerdo municipal que se emane al efecto y con base en lo dispuesto en el Artículo 13, inciso e), del Código Municipal autorizar los egresos de la Municipalidad por gastos fijos y la adquisición de bienes y servicios, cuando éstos superan la suma de tres millones de colones.
