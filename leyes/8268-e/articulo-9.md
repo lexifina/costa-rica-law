@@ -1,0 +1,1 @@
+9. La responsabilidad del Garante sólo se extinguirá por el cumplimiento de las obligaciones contraídas por el Prestatario, no pudiendo alegar en descargo de su responsabilidad que el Banco haya otorgado prórrogas o concesiones al Prestatario o que haya omitido o retardado el ejercicio de sus acciones contra el Prestatario.

@@ -1,0 +1,1 @@
+10. El retardo en el ejercicio de los derechos del Banco acordados en este Contrato, o su omisión, no podrán ser interpretados como una renuncia a tales derechos, ni como una aceptación de las circunstancias que lo habrían facultado para ejercitarlos.
