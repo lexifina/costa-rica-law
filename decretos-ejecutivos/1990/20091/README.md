@@ -14,3 +14,4 @@ Reglamento de la Escuela Casa del Artista
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1990-12-18 | la propia norma |
+| 2 | 1995-07-12 | Decreto Ejecutivo 24624 (1995-07-12) |
