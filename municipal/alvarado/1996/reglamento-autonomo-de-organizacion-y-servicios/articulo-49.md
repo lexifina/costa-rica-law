@@ -1,0 +1,1 @@
+Artículo 49.-Las ausencias por enfermedad deberán ser justificadas preferentemente mediante dictamen médico expedido por la Caja Costarricense del Seguro Social, o por el Instituto Nacional de Seguros.
