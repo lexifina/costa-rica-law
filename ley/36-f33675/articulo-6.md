@@ -1,0 +1,1 @@
+Art. 6°-En la construcción y dotación del edificio se emplearán todos los productos líquidos de la Lotería; pero después de terminado y dotado de los muebles y útiles necesarios, sólo le pertenecerá, en parte de sus rentas, la porción que se expresa en seguida.
