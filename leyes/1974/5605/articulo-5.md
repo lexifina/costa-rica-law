@@ -1,0 +1,8 @@
+ARTICULO V
+Reglamentación del Comercio de Especímenes de Especies Incluidas en el Apéndice III
+1. Todo comercio en especímenes de especies incluidas en el Apéndice III se realizará de conformidad con las disposiciones del presente artículo
+2. La exportación de cualquier espécimen de una especie incluida en el Apéndice III procedente de un Estado que la hubiere incluido en dicho Apéndice, requerirá la previa concesión y presentación de un permiso de exportación, el cual únicamente se concederá una vez satisfechos los siguientes requisitos:
+a) que una Autoridad Administrativa del Estado de exportación haya verificado que el espécimen no fue obtenido en contravención de la legislación vigente en dicho Estado sobe la protección de su fauna y flora; y
+b) que una Autoridad Administrativa del Estado de exportación haya verificado que todo espécimen vivo será acondicionado y transportado de manera que se reduzca al mínimo el riesgo de heridas, deterioro en su salud o maltrato.
+3. La importación de cualquier espécimen de una especie incluida en el Apéndice III requerirá, salvo en los casos previstos en el párrafo 4 del presente artículo, la previa presentación de un certificado de origen, y de un permiso de exportación cuando la importación proviene de un Estado que ha incluido esa especie en el Apéndice III.
+4. En el caso de una reexportación, un certificado concedido por una Autoridad Administrativa del Estado de reexportación en el sentido de que el espécimen fue transformado en ese Estado, o está siendo reexportado, será aceptado por el Estado de importación como prueba de que se ha cumplido con las disposiciones de la presente Convención respecto de ese espécimen.

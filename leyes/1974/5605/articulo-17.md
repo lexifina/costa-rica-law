@@ -1,0 +1,5 @@
+ARTICULO XVII
+Enmiendas a la Convención
+1. La Secretaría, a petición por escrito de por lo menos un tercio de las-Partes, convocará una reunión extraordinaria de la Conferencia de las Partes para considerar y adoptar enmiendas a la presente convención. Las enmiendas serán adoptadas por una mayoría de dos tercios de las Partes presentes y votantes. A estos fines, “Partes presentes y votantes” significa Partes presentes que emiten un voló afirmativo o negativo. Las Partes que se abstienen de votar no serán contadas entre los dos tercios requeridos para adoptar la enmienda.
+2. La Secretaría transmitirá a todas las Partes los textos de propuestas de enmiendas por lo menos 90 días antes de su consideración por la Conferencia.
+3. Toda enmienda entrará en vigor para las Partes que la acepten 60 días después de que dos tercios de las Partes depositen con el Gobierno Depositario sus instrumentos de aceptación de la enmienda. A partir de esa fecha la enmienda entrará en vigor para cualquier otra Parte 60 días después de que dicha Parte deposite su instrumento de aceptación de la misma.

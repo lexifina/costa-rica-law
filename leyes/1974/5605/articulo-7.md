@@ -1,0 +1,18 @@
+ARTICULO VII
+Exenciones y otras Disposiciones Especiales Relacionadas en el Comercio
+1. Las disposiciones de los artículo II, IV y V no se aplican al tránsito o trasbordo de especímenes a través, o en el territorio de una Partes mientras los especímenes permanecen bajo control aduanal.
+2. Cuando una autoridad Administrativa del Estado de exportación o de reexportación haya verificado que un espécimen fue adquirido en anterioridad a la fecha en que entraron en vigor las disposiciones de la presente Convención respecto a ese espécimen, las disposiciones de los artículos III, IV y V no se aplicarán a ese espécimen si la Autoridad Administrativa expide en certificado a tal efecto.
+3. Las disposiciones de los artículos III, IV, y V no se aplicarán a especímenes que son artículo personales o bienes del hogar. Esta exención no se aplicará si:
+a) en el caso de especímenes de una especie incluidas en el Apéndice I, éstos fueron adquiridos por el dueño fuere del Estado de su residencia normal y s importen en ese Estado; o
+b) en el caso de especímenes de una especie incluida en el Apéndice II:
+i) éstos fueron adquiridos por el dueño fuera del Estado de su residencia normal y en el Estado en que se produjo la separación del medio silvestre:
+ii) éstos se importan en el Estado de residencia normal del dueño; y
+iii) el Estado en que se produjo la separación del medio silvestre requiere la previa concesión de permisos de exportación antes de cualquier exportación de estes especímenes;
+a menos que una Autoridad Administrativa haya verificado que los especímenes fueron adquiridos antes de las disposiciones de la presente Convención entraren en vigor respecto de ese espécimen.
+4. Los especímenes de una especie animal incluida en el Apéndice I y criados en cautividad para fines comerciales, o de una especie vegetal incluida en el Apéndice I y reproducidos artificialmente para fines comerciales, serán considerados especímenes de las especies incluidas en el Apéndice II.
+5. Cuando una Autoridad Administrativa del Estado de exportación haya verificado que cualquier espécimen de una especie animal ha sido criado en cautividad o que cualquier espécimen de una especie vegetal ha sido reproducida artificialmente, o que sea una parte de ese animal o planta o que se ha derivado de uno y otro, un certificado de esa Autoridad Administrativa a ese efecto será aceptado en sustitución de los permisos exigidos en virtud de las disposiciones de los artículo III, IV y V.
+6. Las disposiciones de los artículo III, IV y V no se aplicarán al préstamo, donación o intercambio no comercial entre científicos o instituciones científicas registradas con la Autoridad administrativa de su Estado, de especímenes de herbario, otros especímenes preservados, secos o incrustados de museo, y material de plantas vivas que lleven una etiqueta expedida o aprobada por una Autoridad Administrativa.
+7. Una Autoridad Administrativa de cualquier Estado podrá disponer con los requisitos de los artículo III, IV y V y permitir el movimiento, sin permisos o certificados, de especímenes que formen parte de un parque zoológico, circo, colección zoológica o botánica ambulantes u otras exhibiciones ambulantes siempre que:
+a) el exportador o importador registre todos los detalles sobre esos especímenes con la Autoridad Administrativa,
+b) los especímenes están comprendidos en cualquiera de las categorías mencionadas en los párrafos 2 ó 5 del presente artículo, y
+c) La Autoridad Administrativa haya verificado que cualquier espécimen vivo será transportado y cuidado de manera que se reduzca al mínimo el riesgo de heridas, deterioro su salud o maltrato.
