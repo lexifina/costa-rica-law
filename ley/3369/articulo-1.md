@@ -1,4 +1,6 @@
+(Derogado)
 N° 3369
+(Esta norma fue derogada por el artículo 2° de la ley N° 3400 del 28 de setiembre de 1964)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 Artículo único. Refórmase el artículo 17 de la Ley N° 34 de 1 de diciembre de 1940, que se lea así:
