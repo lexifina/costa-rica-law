@@ -8,4 +8,4 @@ Considerando:
 3°-Que el empleo de embarcaciones de tipo no artesanal en pequeña escala en la captura de langosta; y el uso de redes de arrastre durante el período de captura de este crustáceo, coloca en evidente situación de desventaja al pescador artesanal en pequeña escala, haciendo peligrar su estabilidad socioeconómica.
 Por tanto,
 DECRETAN:
-Artículo 1°- En la captura de langosta con fines comerciales en aguas territoriales del mar Atlántico, se permite únicamente el empleo de embarcaciones de tipo artesanal en pequeña escala, de bandera y registro nacionales.
+Artículo 1°- (Derogado por el artículo 10 del decreto ejecutivo N° 19646 del 30 de marzo de 1990, "Permisos para Pesca de Tipo Artesanal")

@@ -14,3 +14,4 @@ Prohíbe el empleo de redes de arrastre en aguas territoriales del mar Atlántic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-11-14 | la propia norma |
+| 2 | 1990-03-30 | Decreto Ejecutivo 19646 (1990-03-30) |
