@@ -1,0 +1,5 @@
+Artículo 5°.-Para hacer frente a las erogaciones de la Junta Nacional de Turismo e Inmigración, dedicase las siguientes rentas, ya creadas o que por esta ley se crean:
+1°.-El 5% del producto del impuesto consular a que se refiere el artículo 3° de la ley N° 4 de 29 de setiembre de 1930.
+2°.-Impuesto de 2 1/2 % sobre el valor de los pasajes que emitan las empresas navieras, ferroviarias o automovilísticas, para el exterior de la República.
+3°.-Impuesto del 10 % del producto bruto de todos los juegos y deportes que permita la ley con apuestas mutuas. Este producto se calculará sobre el valor de las entradas sumadas al beneficio de las apuestas y a cualquiera otro proveniente del juego permitido, y obtenido por los propietarios o usufructuarios de los juegos.
+4°.-Impuesto de cincuenta céntimos que pagarán todos los hoteles de primera clase por cada pasajero del exterior que se hospede una noche o más. A este efecto, quedan obligados los hoteles dichos a anotar el nombre, procedencia, etc. de cada pasajero en su libro de Registro.

@@ -1,0 +1,1 @@
+Artículo 3°.-Los miembros de la Junta durarán en sus funciones tres años, pudiendo ser reelectos. nombrarán de su seno, por períodos anuales, un Presidente, un Vicepresidente; y además un Gerente, un Tesorero y un Secretario, los cuales podrán ser o no escogidos de entre sus miembros.
