@@ -1,0 +1,1 @@
+Artículo 8º—Con el fin de evaluar el sistema de control interno la Comisión debe proponer al Ministro una herramienta idónea a implementar, de acuerdo con las especificaciones emanadas por la Contraloría General de la República.

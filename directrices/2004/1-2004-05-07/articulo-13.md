@@ -1,0 +1,1 @@
+Artículo 13.—El quórum para sesionar estará constituido por la mayoría absoluta de sus miembros. Pasados los primeros treinta minutos de la hora señalada para iniciar la reunión, será suficiente la asistencia de la tercera parte de sus miembros y sus decisiones tendrán plena validez.
