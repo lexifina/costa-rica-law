@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicios de la Municipalidad de Escazú
 | --- | --- | --- |
 | 1 | 2002-01-19 | la propia norma |
 | 2 | 2004-04-19 | Reglamento municipal 103 (2004-04-19) |
+| 3 | 2004-05-03 | Reglamento municipal 105 (2004-05-03) |
