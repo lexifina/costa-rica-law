@@ -1,0 +1,1 @@
+Artículo 5º—Cada usuario del equipo tendrá derecho a utilizarlo única y estrictamente durante un período máximo de 15 minutos por día, prorrogables hasta por un máximo de 15 minutos más en caso de que no haya otra persona en espera.

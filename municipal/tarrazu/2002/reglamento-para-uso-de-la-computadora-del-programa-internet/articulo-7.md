@@ -1,0 +1,1 @@
+Artículo 7º—A aquel usuario que incumpla alguna de las anteriores disposiciones se le podrá solicitar que deje de utilizar el equipo y, en caso de reincidencia, o por causar problemas, disputas o faltar el respeto a algún funcionario municipal u otro usuario, se le podrá impedir hacer uso del mismo en lo sucesivo.
