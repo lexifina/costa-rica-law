@@ -1,0 +1,1 @@
+Artículo 9º—Los Ministerios deberán adoptar las medidas necesarias para asegurarse que los proyectos de presupuestos para programas de cómputo y los requerimientos para el procesamiento de datos incluyan recursos adecuados para la adquisición de las licencias correspondientes de los programas de cómputo que necesiten.
