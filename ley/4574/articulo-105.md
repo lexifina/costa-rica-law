@@ -1,5 +1,3 @@
 CAPÍTULO III
 Crédito
-Artículo 105.- Las municipalidades podrán celebrar empréstitos con autorización de la Asamblea Legislativa cuando vayan a realizarse con entidades extranjeras o cuando se efectúen en el país con capital extranjero, y con autorización de la Contraloría General de la República en los demás casos.
-Junto con la solicitud de autorización, deberá remitirse a la Asamblea Legislativa o a la Contraloría General en su caso, un detalle de la inversión que se proyecta con los fondos que se obtendrán, y una certificación del Secretario Municipal de que el acuerdo que dispuso requerir la autorización fue aprobado por las dos terceras partes del total de los regidores en votación nominal, con indicación de la fecha de la sesión y el número del acuerdo; a la Asamblea se remitirá, además, informe de la Contraloría sobre las posibilidades económicas de la municipalidad.
-Lo dispuesto en este artículo sea aplicable en lo conducente, a la emisión de bonos, que indica el artículo siguiente.
+Artículo 105.- ANULADO por Resolución de la Sala Constitucional No. 5445-99 de las 14:30 horas del 14 de julio de 1999; adicionada por las sentencias números 06218-99, de las 15:21 horas del 10/08/1999, 09811 de las 15: 21 horas 14/12/1999, 07728 de las 14: 45 horas del 30/08/2000 y 8861-00 de las 14:30 horas del 11/10/2000.

@@ -1,3 +1,2 @@
-Artículo 86.- Salvo leyes especiales el cobro de las tasas municipales prescribirá en tres años y el de las contribuciones e impuestos en cinco.
-Los funcionarios que dejaren prescribir estos cobros responderán personalmente de su pago.
-Lo dispuesto en el párrafo primero del artículo anterior se aplicará únicamente a los derechos municipales originados a partir de la vigencia de este Código.
+Artículo 86.- El cobro de las tasas, contribuciones e impuestos municipales prescribirá en cinco años. Los funcionarios que dejaren prescribir estos cobros responderán personalmente por su pago.
+(Así reformado por el artículo 1º de la ley No. 6890 de 14 de septiembre de 1983 ).

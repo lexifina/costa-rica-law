@@ -1,0 +1,4 @@
+Artículo 193.- El concejo municipal del cantón podrá disolver el concejo municipal de distrito, de conformidad con las siguientes reglas:
+a) El acuerdo de disolución deberá ser justificado y aprobado al menos por dos terceras partes del total de los miembros del concejo municipal del cantón.
+b) El concejo municipal del cantón deberá asumir las obligaciones contraídas por el concejo municipal de distrito y dará prioridad al pago de las indemnizaciones laborales. Para realizar la liquidación, la municipalidad dispondrá del plazo de un año, contado a partir del día siguiente a la firmeza del acuerdo de disolución. Las prestaciones legales de cada trabajador se pagarán dentro de los tres meses siguientes a su despido.
+(Así adicionado por el artículo 2º de la ley No.7620 de 3 de septiembre de 1996. Además, corre la numeración subsiguiente, pasando el antiguo artículo 193 a ser el 194)

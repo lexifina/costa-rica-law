@@ -1,1 +1,2 @@
-Artículo 165.- Rendido el dictamen pericial a que se refiere el artículo 163, el Juzgado, previa audiencia a las partes, procederá a dictar resolución fijando el monto de la indemnización, la cual no podrá exceder, en ningún caso, a la suma mayor estimada en los avalúos. Ordenará además el Juzgado, en su caso, al expropiado abandonar el inmueble o porción, al servicio a que se le destina, previo el depósito por parte de la municipalidad de la suma fijada. Efectuando el depósito, el Juzgado autorizará a la municipalidad para entrar en posesión de lo expropiado, si ésta no se hubiere operado conforme a lo dispuesto en el artículo 164.
+Artículo 165.- DEROGADO.-
+(Derogado por el artículo 64, inciso l), de la Ley de Expropiaciones No.7495 del 3 de mayo de 1995)

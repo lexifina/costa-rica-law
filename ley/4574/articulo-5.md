@@ -1,1 +1,2 @@
-Artículo 5º.- La competencia municipal definida en el artículo anterior no afecta las atribuciones conferidas a otras entidades de la Administración Pública.
+Artículo 5º.- La competencia municipal, definida en el artículo anterior, no afecta las atribuciones conferidas a otras entidades de la Administración Pública. No obstante, estas entidades informarán al Concejo y coordinarán con éste, con la debida antelación, las obras y proyectos que pretendan realizar en el cantón respectivo.
+(Así reformado por el artículo 1º de la ley Nº 6890 de 14 de septiembre de 1983).

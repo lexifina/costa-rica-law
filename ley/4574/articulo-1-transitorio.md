@@ -1,0 +1,1 @@
+Transitorio I.- Los funcionarios y empleados de los Concejos de Distrito y de las Juntas de Caminos, pasarán automáticamente a formar parte del personal de la municipalidad respectiva. Y los bienes, derechos y obligaciones de tales Concejos y Juntas, pasarán a formar parte del Patrimonio de la municipalidad correspondiente.

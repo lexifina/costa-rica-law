@@ -1,1 +1,2 @@
-Artículo 161.- Efectuado el avalúo que se indica en el artículo precedente, y previo acuerdo del Concejo, el Ejecutivo requerirá al propietario, mediante notificación personal o telegráfica, para que manifieste dentro de los ocho días hábiles siguientes, si está dispuesto a vender a la municipalidad el respectivo inmueble por el precio que indique el avalúo, a efecto de que comparezca al otorgamiento de la escritura correspondiente.
+Artículo 161.- DEROGADO.-
+(Derogado por el artículo 64, inciso l), de la Ley de Expropiaciones No.7495 del 3 de mayo de 1995)
