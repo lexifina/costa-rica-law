@@ -1,0 +1,1 @@
+Art. 3. El intendente servirá la Secretaría del Gobierno en calidad accidental; y el Contador de la Tesorería del Estado se encargará de la Intendencia, ocupando su lugar al empleado que llama la ley. –Dado en la Ciudad de San José á los once días del mes de Julio de mil ochocientos treinta y ocho. –Braulio Carrillo. –Al ministra General del Despacho.
