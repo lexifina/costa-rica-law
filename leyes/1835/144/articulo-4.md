@@ -1,0 +1,1 @@
+4°.- Que siendo todos estos responsables a la indemnización de gastos y perjuicios, se les hará exhibir el tercio de su capital o propiedad, para lo cual se dictaran las reglas convenientes, dándoseles el término de tres días para constituyan sus apoderados o agentes.

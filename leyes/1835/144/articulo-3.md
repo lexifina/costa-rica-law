@@ -1,0 +1,1 @@
+3°.- Que introduciendo en el Estado los comprendidos en el art 1° sin previo permiso del Gobierno con acuerdo del Consejo, por servicios positivos e importantes al mismo Estado, quedan en el hecho sugetos a igual tiempo de presidio los de 2° a salir del Estado, siempre que de cualquiera manera traspasen los límites del territorio que se señala.
