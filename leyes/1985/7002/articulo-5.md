@@ -1,0 +1,1 @@
+Artículo 5º.- Todas las armas que el Gobierno de la República tenga o adquiera deberán ser marcadas, en una parte visible e integral, con el Escudo Nacional o las siglas G.C.R. (Gobierno de Costa Rica), la fecha de adquisición y una letra que identifique el tipo de arma, seguida de una numeración corrida.

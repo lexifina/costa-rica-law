@@ -1,0 +1,1 @@
+Artículo 49.- El Departamento tendrá facultades de control y fiscalización sobre los establecimientos dedicados a la venta, fabricación, importación, exportación y comercialización de armas permitidas.

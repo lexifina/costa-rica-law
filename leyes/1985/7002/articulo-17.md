@@ -1,0 +1,1 @@
+Artículo 17.- Es absolutamente prohibido a los funcionarios o empleados bajo cuya custodia se encuentren armas, entregarlas, prestarlas o en cualquier forma facilitarlas a personas, entes o grupos no autorizados por ley para tenerlas.

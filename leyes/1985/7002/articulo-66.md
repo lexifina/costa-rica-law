@@ -1,0 +1,1 @@
+Artículo 66.- Los funcionarios judiciales que juzgaren las infracciones a esta ley enviarán copia de la sentencia definitiva al Departamento, con el propósito de decidir la vigencia o derogatoria del permiso de portación de armas.

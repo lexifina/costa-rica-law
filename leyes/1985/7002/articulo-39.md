@@ -1,0 +1,1 @@
+Artículo 39.- Si el petente tuviere antecedentes, según las certificaciones dichas, esto no será motivo suficiente para denegar la inscripción, pero el Departamento,al dictar la resolución correspondiente, deberá indicar las razones que tenga para la inscripción.

@@ -1,0 +1,1 @@
+Artículo 54.- Los extranjeros no residentes podrán adquirir en el país armas permitidas, en los establecimientos autorizados, con el visto bueno previo del Departamento. Tales armas serán para uso exclusivamente fuera del país. El reglamento regulará los trámites del caso.

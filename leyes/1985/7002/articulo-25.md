@@ -1,0 +1,1 @@
+Artículo 25.- Sólo podrán poseer armas permitidas las personas físicas mayores de edad y de buena conducta y las personas jurídicas que hayan obtenido la autorización correspondiente del Departamento.

@@ -1,0 +1,1 @@
+Artículo 58.- Se impondrá de dos a nueve años de prisión, a quien fabricare o introdujere armas prohibidas en el país en forma clandestina, de las definidas en el artículo 10 de esta ley, o traficare en forma directa o indirecta con ellas.

@@ -1,0 +1,1 @@
+Artículo 23.- Las armas permitidas que se encuentren debidamente inscritas en el Departamento, sólo podrán caer en comiso en favor del Estado, cuando con ellas se cometa un delito, en los términos del artículo 110 del Código Penal, caso en el cual se cancelará la inscripción correspondiente.

@@ -1,0 +1,2 @@
+DISPOSICIONES FINALES
+Artículo 67.- Esta ley es de orden público y deroga las leyes, Nº 12 del 5 de mayo de 1881, Nº 32 del 3 de junio de 1925 y la Nº 40 del 15 de enero de 1926, así como el reglamento del decreto ejecutivo Nº 7 del 1º de junio de 1936, el decreto-ley Nº 367 del 4 de febrero de 1949 y el decreto ejecutivo Nº 1 del 3 de abril de 1965. Derógase además cualquier otra disposición legal o reglamentaria que contradiga o se oponga a lo dispuesto en la presente ley.

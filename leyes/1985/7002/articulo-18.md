@@ -1,0 +1,1 @@
+Artículo 18.- Toda arma prohibida decomisada por traficarse con ella en forma directa o indirecta en el país, pasará a formar parte del inventario en custodia del Departamento, con la finalidad de resguardar la defensa y seguridad nacional.

@@ -1,0 +1,3 @@
+Artículo 29.- Para portar armas cargadas en poblado, permitidas para la defensa personal, será necesario un permiso especial extendido por el Departamento. Esta permiso podrá ser denegado, y si fuere concedido su duración será de una año; no obstante, podrá ser revocado en cualquier momento por razones de seguridad o de conveniencia. Dicho permiso sólo podrá otorgarse:
+a) Cuando la vida de la persona autorizada estuviere razonablemente expuesta a peligro, por el tiempo que dure dicho peligro.
+b) A los funcionarios públicos que por la índole de sus funciones necesiten de un arma para su protección.

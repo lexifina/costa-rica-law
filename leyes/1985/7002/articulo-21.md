@@ -1,0 +1,1 @@
+Artículo 21.- En caso de duda sobre la clasificación de alguna arma, como prohibida o permitida, decidirá el Departamento, de conformidad con lo establecido en esta ley, previa consulta a la Procuraduría General de la República.

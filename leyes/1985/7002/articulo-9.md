@@ -1,0 +1,1 @@
+Artículo 9º.- En resguardo de las normas establecidas en la presente ley, y sin menoscabo de las facultades constitucionales del Poder Ejecutivo, queda prohibida la organización de grupos paramilitares por parte del Gobierno, de los partidos políticos o de cualquiera otra organización pública o privada.

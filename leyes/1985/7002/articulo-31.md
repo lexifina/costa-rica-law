@@ -1,0 +1,1 @@
+Artículo 31.- El Departamento no concederá permiso para la portación de armas cortantes, punzantes o contundentes en poblado. No habrá restricción en cuanto a la cuchilla cuya hoja no exceda de nueve centímetros.

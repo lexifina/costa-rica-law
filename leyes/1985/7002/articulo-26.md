@@ -1,0 +1,1 @@
+Artículo 26.- Los menores de edad mayores de catorce años podrán usar armas de cacería y de tiro al blanco, exclusivamente para la práctica de estos deportes, cuando se hicieren acompañar de un adulto debidamente autorizado, quien será responsable del uso que el menor pueda hacer de ellas.

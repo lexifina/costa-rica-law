@@ -1,0 +1,1 @@
+Artículo 64.- Se impondrá de quince a sesenta días multa al turista que al abandonar el país no mostrare a las autoridades correspondientes las armas que trajo consigo o la constancia del Departamento que justifique tal omisión.

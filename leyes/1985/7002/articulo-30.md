@@ -1,0 +1,1 @@
+Artículo 30.- Los extranjeros residentes en el país podrán inscribir armas a su nombre, así como solicitar permiso para portarlas, si cumplen con los trámites exigidos a los nacionales y demuestran tener permiso de residencia en Costa Rica.

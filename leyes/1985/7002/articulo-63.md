@@ -1,0 +1,1 @@
+Artículo 63.- Será sancionada con treinta a ochenta días multa, la autoridad que decomisare armas y no las pusiere de inmediato a la orden de la autoridad judicial competente. En caso de reincidencia, además le será revocado el nombramiento.
