@@ -1,1 +1,0 @@
-Transitorio IIl.-El personal técnico y administrativo que actualmente labora en la Oficina de Planificación Sectorial Agropecuaria, conserva sin solución de continuidad todos sus derechos laborales, privilegios por años de servicio y los demás derechos de que han venido gozando.

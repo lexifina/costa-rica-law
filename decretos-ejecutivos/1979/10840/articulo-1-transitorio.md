@@ -1,1 +1,0 @@
-Transitorio I.-Los miembros del Consejo Nacional Sectorial Agropecuario y de Recursos Naturales Renovables deberán juramentarse a más tardar 15 días a partir de la publicación de este decreto. Deberán tener su primera reunión no más de ocho días después de que todos hayan sido juramentados.

@@ -1,1 +1,0 @@
-Artículo 12.-Para el cumplimiento de sus funciones, la Secretaría Ejecutiva de Planificación Sectorial Agropecuario y de Recursos Naturales Renovables, estará subordinada al Presidente del Consejo y para efectos administrativos estará adscrita al Ministerio de Agricultura y Ganadería.

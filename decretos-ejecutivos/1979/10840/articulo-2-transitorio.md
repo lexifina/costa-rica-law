@@ -1,1 +1,0 @@
-Transitorio Il.-El Director de la Secretaría Ejecutiva de Planificación Sectorial Agropecuaria y de Recursos Naturales Renovables, será nombrado dentro del plazo de un mes, contado a partir de la fecha de celebración de la primera reunión del Consejo Nacional Sectorial.

@@ -1,1 +1,0 @@
-Artículo 20.-El Presidente del Consejo Nacional Sectorial Agropecuario y de Recursos Naturales Renovables nombrará, en consulta con los demás miembros de éste, a cada funcionario responsable de la coordinación de cada Comité en todas las regiones.
