@@ -14,9 +14,11 @@ Sobre el exceso de 150,000.00 Hasta 200,000.00 un 32% anual
 Sobre el exceso de 200,000.00 Hasta 250,000.00 un 38% anual
 Sobre el exceso de 250,000.00 Hasta 350,000.00 un 44% anual
 Sobre el exceso de 350,000.00 en adelante un 50% anual
-2) 2) En el caso de sociedades de hecho o de derecho, patrimonios hereditarios indivisos, fideicomisos o encargos de confianza, se aplicará sobre la renta líquida obtenida la escala progresiva de tasas que sigue:
-Sobre el exceso de doscientos mil hasta un millón de colones (¢200.000 hasta ¢ 1.000.000) cuarenta por ciento (40%) anual.
-Sobre el exceso de un millón de colones (¢ 1.000.000) en adelante cuarenta y cinco por ciento (45%) anual.
-A las personas jurídicas, sociedades de hecho, patrimonios hereditarios indivisos y fideicomisos o encargos de confianza, con renta líquida obtenida: hasta doscientos mil colones (¢ 200.000) se les aplicará la escala progresiva contenida en el inciso 1) de este artículo.
-(Así reformado el inciso 2) anterior por el artículo 1° de la ley N° 5909 del 10 de junio de 1976)
+2) En el caso de sociedades de hecho o de derecho, patrimonios hereditarios indivisos, establecimientos permanentes, fideicomisos o encargos de confianza, se aplicará sobre la renta líquida obtenida, la escala progresiva que sigue:
+De cero (0), hasta cincuenta mil colones (¢ 50.000,00) un quince por ciento (15%) anual.
+Sobre el exceso de cincuenta mil colones (¢ 50.000,00) y hasta cien mil colones (¢ 100.000,00) un veinte por ciento (20%) anual.
+Sobre el exceso de cien mil colones (¢ 100.000,00) y hasta doscientos mil colones (¢ 200.000,00) un treinta por ciento (30%) anual.
+Sobre el exceso de doscientos mil colones (¢ 200.000,00) hasta un millón de colones (¢ 1.000.000.00) un cuarenta por ciento (40%) anual.
+Sobre el exceso de un millón de colones (¢ 1.000.000,00) un cincuenta por ciento (50%) anual".
+(Así reformado el inciso 2) anterior por el artículo 2° de la ley N°6450 del 15 de julio de 1980)
 (Así reformado por el artículo 20 de la ley N° 4961 del 11 de marzo de 1972)
