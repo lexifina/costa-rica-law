@@ -1,0 +1,1 @@
+Art 5°.- Para conservar las existencias que en fin de cada año entregue el Mayordomo habrá una arca de tres llaves que manejaran el Presidente de la Municipalidad, el Procurador Sindico y el Mayordomo.
