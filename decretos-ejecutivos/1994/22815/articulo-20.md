@@ -1,7 +1,1 @@
-Artículo 20.-Las autoridades de Salud, en coordinación con las
-autoridades del Ministerio de Agricultura y Ganadería, procederán al
-decomiso o exterminio de cerdos, cuando valorada técnicamente con previa
-audiencia al propietario, se determine la existencia de enfermedades o
-condiciones físico sanitarias de la granja porcina, que pongan en peligro
-la Seguridad o en riesgo, la salud de las personas, del hato porcino
-nacional o del medio ambiente.
+Artículo 20.-Las autoridades de Salud, en coordinación con las autoridades del Ministerio de Agricultura y Ganadería, procederán al decomiso o exterminio de cerdos, cuando valorada técnicamente con previa audiencia al propietario, se determine la existencia de enfermedades o condiciones físico sanitarias de la granja porcina, que pongan en peligro la Seguridad o en riesgo, la salud de las personas, del hato porcino nacional o del medio ambiente.
