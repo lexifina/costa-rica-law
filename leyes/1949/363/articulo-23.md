@@ -1,4 +1,4 @@
-Artículo 23.- Todos los pescadores que se dediquen a pescar en
+ARTICULO 23.- Todos los pescadores que se dediquen a pescar en
 embarcaciones, bien nacionales o extranjeras, tendrán que estar
 previamente inscritos en el Bolsín de Embarque, bajo la dependencia del
 Departamento de Conservación y Pesca, al cual tanto los armadores
