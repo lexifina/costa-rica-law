@@ -1,0 +1,1 @@
+Artículo 2º—La información de trascendencia tributaria a que alude el artículo 1 del presente texto legal, deberá ser suministrada a la Administración Tributaria en un plazo de diez días hábiles a partir del conocimiento por parte de la institución respectiva.
