@@ -1,0 +1,1 @@
+Artículo 12º—Cuando el encargado de Caja Chica cese en sus funciones o se ausente de su trabajo temporalmente por cualquier motivo, el Ejecutivo solicitará el Departamento de Auditoría que haga el traspaso de fondos, a la persona que se hará responsable de los mismos.

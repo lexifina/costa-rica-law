@@ -1,0 +1,1 @@
+Artículo 5º—Los egresos que se realicen por Caja Chica, se tramitarán a través de la fórmula denominada Comprobante de pago por Caja Chica que preparará el Ejecutivo Municipal en original y una copia.

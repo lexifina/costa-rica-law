@@ -1,0 +1,1 @@
+Artículo 13º—La Caja Chica se reintegrará una vez que se haya agotado más de ¢ 24.000 (veinticuatro mil colones) de su fondo, el Tesorero presentará al Ejecutivo el detalle de los egresos realizados clasificado por cuentas de presupuesto y las facturas y recibidos originales con que cuenta, para que el ejecutivo ordene el reintegro de la misma.

@@ -1,0 +1,1 @@
+Artículo 2º—El Fondo de Caja Chica se mantendrá en dinero en efectivo y tiene por objeto facilitar la adquisición y pago de servicios y suministros de emergencia y aquellos que por su naturaleza y monto se exceptúan de los trámites de la orden de compra y de la cancelación directa por medio de cheque.

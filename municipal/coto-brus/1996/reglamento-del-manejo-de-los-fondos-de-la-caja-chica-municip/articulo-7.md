@@ -1,0 +1,1 @@
+Artículo 7º—Todos los reembolsos de Caja Chica deberán respaldarse con documentos originales que serán revisados en cuanto a su integridad y autenticidad y marcados a efecto de que no puedan ser utilizados posteriormente.

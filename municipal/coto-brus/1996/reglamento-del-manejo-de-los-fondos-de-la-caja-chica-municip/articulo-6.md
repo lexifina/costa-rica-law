@@ -1,0 +1,1 @@
+Artículo 6°—Todo desembolso por caja chica deberá contra con una autorización escrita y será respaldado con el correspondiente justificante, el cual debe ser original, auténtico y que no presente roturas ni tachones que lo pongan en duda.
