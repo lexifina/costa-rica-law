@@ -1,0 +1,1 @@
+Artículo 3°─ El fin primordial del Consejo Nacional de Bellas Artes es trabajar en pro de la cultura artística; hacer lo posible porque en Costa Rica se respeten espectáculos de gran categoría y poner todo su empeño porque el público responda a ellos favorablemente.
