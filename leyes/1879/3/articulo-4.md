@@ -1,0 +1,1 @@
+Art. 4°-En la Facultad de Medicina y Cirugía, habrá un grado menor que es el de Bachiller, del cual no ha de librarse título, y dos superiores superiores que son: la Licenciatura y el Doctorado. De estos últimos, el primero habilita para el ejercicio de la carrera, y el segundo no es mas que un título honorífico.

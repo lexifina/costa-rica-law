@@ -1,0 +1,1 @@
+Art. 5°-El Estudiante que hubiere ganado los dos primeros cursos, á cuyas matrículas queda acceso sin título previo, podrá con certificado de ello y el título de Bachiller en Artes, solicitar ante el Rector, examen para igual grado en Medicina y Ciencia Naturales, sin el cual, no es admisible a la matricula en las asignaturas de tercer año.
