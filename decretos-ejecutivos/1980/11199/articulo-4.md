@@ -1,0 +1,1 @@
+Artículo 4°—Cualquier beneficiario de la norma, podrá retirarse en el momento que lo desee, una vez cumplido el período de permanencia de cuatro meses indicado en el artículo tercero, pero no podrá reingresar en lo que le resta al período de vigencia de la norma. El retiro se reportará por medio de nota a la Dirección de Personal del MOPT., con copia a la AIC.

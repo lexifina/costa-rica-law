@@ -1,0 +1,1 @@
+Artículo 6°—Aquellos interesados en acogerse a los beneficios de esta norma número 89 que, a la fecha de su solicitud, tuvieren compromisos de ejercicio profesional particular, debidamente consolidados por cualquier tipo de mandato legal, podrán acogerse a la norma sin necesidad de romper esos compromisos existentes.

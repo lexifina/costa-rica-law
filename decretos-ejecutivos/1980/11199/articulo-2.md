@@ -1,0 +1,2 @@
+Artículo 2°—Los profesionales mencionados en el artículo primero que deseen acogerse a los beneficios de la norma número 89 deberán llenar la fórmula preparada al efecto.
+Como transitorio a este artículo segundo se establece que los interesados que se acojan a los beneficios de la norma durante los meses de enero y febrero de 1980, podrán disfrutar de dichos beneficios a partir del primero de enero de 1980.

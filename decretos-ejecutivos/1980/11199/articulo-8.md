@@ -1,0 +1,1 @@
+Artículo 8°—Dentro de los trabajos que pueden realizarse a familiares se aceptará la prestación de servicios para: cónyuge, hijos, padres, hermanos, nietos, abuelos, suegros, yernos y nueras, cuñados, tíos directos y primos hermanos.

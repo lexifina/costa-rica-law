@@ -1,0 +1,1 @@
+Artículo 3°—Se establece un plazo de cuatro meses como período mínimo a que pueden acogerse los interesados, salvo en los casos de ingreso dentro de los últimos cuatro meses del período de vigencia de la norma. En este último caso el plazo mínimo será igual al tiempo de vigencia que le resta a la norma.

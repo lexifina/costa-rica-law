@@ -1,0 +1,1 @@
+Artículo 5°—El sobresueldo que implica esta norma número 89 se asimilará, para todo efecto, al sueldo ordinario. Por tanto contará para el cálculo de tiempo extraordinario, vacaciones, aguinaldos, etc.
