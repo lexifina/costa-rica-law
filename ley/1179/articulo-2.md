@@ -1,0 +1,2 @@
+Artículo 2°.- El traspaso no se hará sino cuando el edificio esté terminado, de acuerdo con los planos oficiales. Mientras tales construcciones estén en proceso, la Municipalidad conservará su derecho a la propiedad del terreno, sin que esté obligada a reconocer las inversiones que se hayan hecho si la obra queda sin terminar.
+Casa Presidencial.- San José, a los cuatro días del mes de julio de mil novecientos cincuenta.
