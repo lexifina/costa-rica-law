@@ -1,0 +1,1 @@
+Artículo 4°.- La Reserva Forestal que se declara en este decreto comprende un área de 5.000 kilométros cuadrados. La demarcación de dicha reserva se encuentra en el plano confeccionado por la Dirección General Forestal.

@@ -1,0 +1,1 @@
+Artículo 6°.- Corresponde a la Dirección General Forestal la delimitación en el terreno, la administración y la realización de estudios técnicos para el mejor aprovechamiento de los recursos de la reserva establecida.

@@ -1,0 +1,1 @@
+Artículo 10°.- La Dirección Forestal para el mejor cumplimiento de sus obligaciones en relación con el desarrollo de esta reserva, promoverá la colaboración de instituciones nacionales e internacionales en la realización de estudios o en el establecimiento de proyectos tendientes a la mejor utilización de sus recursos naturales renovables.

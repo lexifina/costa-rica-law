@@ -1,0 +1,1 @@
+Artículo 7°.- El aprovechamiento de cualquiera de los recursos naturales de la Reserva, sólo será permitido bajo normas técnicas que la Dirección General Forestal emitirá en su oportunidad, y según la zonificación que para tal efecto se establezca.
