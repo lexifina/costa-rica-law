@@ -1,0 +1,5 @@
+Artículo 3º—Refórmase el segundo párrafo del artículo 16 del Código Procesal Penal, Ley Nº 7594, de 10 de abril de 1996, y sus reformas. El texto dirá:
+"Artículo 16.—
+…
+En los delitos contra la seguridad de la Nación, la tranquilidad pública, los poderes públicos, el orden constitucional, el ambiente, la zona marítimo-terrestre, la hacienda pública, los deberes de la función pública, los ilícitos tributarios y los contenidos en la Ley de aduanas, Nº 7557, de 20 de octubre de 1995; la Ley orgánica del Banco Central de Costa Rica, Nº 7558, de 3 de noviembre de 1995 y la Ley contra el enriquecimiento ilícito de los servidores públicos, Nº `6872, de 17 de junio de 1983, la Procuraduría General de la República también podrá ejercer directamente esa acción, sin subordinarse a las actuaciones y decisiones del Ministerio Público. En los asuntos iniciados por acción de la Procuraduría, esta se tendrá como parte y podrá ejercer los mismos recursos que el presente Código le concede al Ministerio Público."
+Rige tres meses después de su publicación.
