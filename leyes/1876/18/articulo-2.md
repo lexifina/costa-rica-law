@@ -1,0 +1,1 @@
+Art 2° Nombrase igualmente Magistrado propietario del mismo Supremo Tribunal, a los Señores Dr. Don Eusebio Figueroa y Licenciados Don Manuel Arguello, Don Camilo Esquivel, Don José María Acosta y Don Ezequiel Herrera, y Fiscal al Sr. Licenciado Don Jesús Solano. El 1° de los nombrados será el Presidente de la 2° de la Sala.
