@@ -1,0 +1,10 @@
+ARTICULO 2
+1.- Todo Estado Parte tomará medidas legislativas,
+administrativas, judiciales o de otra índole eficaces para impedir los
+actos de tortura en todo territorio que esté bajo su jurisdicción.
+2.- En ningún caso podrán invocarse circunstancias excepcionales
+tales como estado de guerra o amenaza de guerra, inestabilidad política
+interna o cualquier otra emergencia pública como justificación de la
+tortura.
+3.- No podrá invocarse una orden de un funcionario superior o de
+una autoridad pública como justificación de la tortura.

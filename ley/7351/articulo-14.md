@@ -1,0 +1,10 @@
+ARTICULO 14
+1.- Todo Estado Parte velará porque su legislación garantice a la
+víctima de un acto de tortura la reparación y el derecho a una
+indemnización justa y adecuada, incluidos los medios para su
+rehabilitación lo más completa posible. En caso de muerte de la víctima
+como resultado de un acto de tortura, las personas a su cargo tendrán
+derecho a indemnización.
+2.- Nada de lo dispuesto en el presente artículo afectará a
+cualquier derecho de la víctima o de otra persona a indemnización que
+pueda existir con arreglo a las leyes nacionales.
