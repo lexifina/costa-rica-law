@@ -1,0 +1,1 @@
+Artículo 43.—En el caso de la documentación administrativa a cargo del Archivo Central, podrá ser solicitada en calidad de préstamo por las instancias institucionales productoras de esta, previa la elaboración de las boletas de préstamo de documentos. La solicitud deberá devolverse en un plazo de ocho días hábiles.

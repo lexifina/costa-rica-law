@@ -1,0 +1,1 @@
+Artículo 2°—El Archivo Central se regirá por las disposiciones de la ley 7202 “Ley del Sistema Nacional de Archivos”, del 24 de octubre de 1990, su reglamento, la Ley General de Administración Pública, y demás normativas vigentes relacionadas con la materia archivística.

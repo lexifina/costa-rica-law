@@ -1,0 +1,1 @@
+Artículo 38.—La documentación se ordenará en estanterías en forma consecutiva de acuerdo con su ingreso. Se rescatará su procedencia por medio de los instrumentos descriptivos. Se conservarán en cajas debidamente rotuladas con: nombre de la institución, nombre del Archivo Central, nombre de la instancia productora de la documentación y el número de apartado correspondiente.

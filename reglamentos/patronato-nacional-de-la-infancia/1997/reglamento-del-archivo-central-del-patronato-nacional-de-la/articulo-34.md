@@ -1,0 +1,1 @@
+Artículo 34.—El Archivo Central solamente recibirá la documentación remitida de los Archivos de Gestión en orden riguroso según el formulario diseñado para estos efectos, sin el cual no se admitirá ningún documento.

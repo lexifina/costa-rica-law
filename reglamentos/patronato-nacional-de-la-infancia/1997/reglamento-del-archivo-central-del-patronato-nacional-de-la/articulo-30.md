@@ -1,0 +1,1 @@
+Artículo 30.—La eliminación documental se efectuará con base en el informe emitido por la Comisión Nacional de Selección y Eliminación de Documentos, de lo cual se levantará un acta debidamente firmada por el Comité Institucional.

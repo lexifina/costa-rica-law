@@ -1,0 +1,1 @@
+Artículo 3°—El Archivo Central funcionará bajo la responsabilidad de un especialista en archivística o funcionario con amplia experiencia y capacitación en la materia, así como de los técnicos necesarios en la especialidad.

@@ -1,0 +1,1 @@
+Artículo 6°—El Archivo Central facilitará la documentación a su cargo a las instancias productoras de esta, a funcionarios, instancias externas y particulares respetando las disposiciones establecidas para el acceso.

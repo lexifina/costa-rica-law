@@ -1,0 +1,1 @@
+Artículo 40.—La selección documental se llevará a cabo por pieza y en caso de eliminación se hará por unidades (expedientes o legajos), series documentales o bien grupos documentales según corresponda.
