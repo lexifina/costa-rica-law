@@ -1,0 +1,2 @@
+Artículo 4°-Se adiciona el artículo 273 del Código Fiscal con un nuevo inciso, que dirá así:
+(28) Los testimonios o certificaciones de instrumentos o documentos públicos, no sujetos a inscripción en el Registro Público, que se soliciten para hacerlos valer como tales o como títulos ejecutivos, pagarán el timbre que corresponda al acto de origen; pero, si fueren a aducirse únicamente como prueba o por orden de los tribunales para ese fin, deben satisfacer únicamente el timbre que indica el inciso 21) de este artículo".
