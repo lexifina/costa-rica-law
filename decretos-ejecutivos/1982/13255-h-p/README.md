@@ -13,3 +13,4 @@ Equipara e Integra Comisión de Recursos Humanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1982-01-01 | la propia norma |
+| 2 | 1982-05-20 | Decreto Ejecutivo 13648 (1982-05-20) |
