@@ -1,1 +1,0 @@
-ARTICULO 94.-Cada vez que un regente se haga cargo o se separe de la dirección de una botica deber comunicarlo inmediatamente a la Junta Directiva del Colegio de Farmacéuticos, indicando las fechas respectivas.

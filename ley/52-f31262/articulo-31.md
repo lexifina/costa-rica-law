@@ -1,1 +1,0 @@
-ARTICULO 31.-Todo enfermo de lepra confirmada bacteriológicamente o por otro medio científico, que no se encuentre recluido y debidamente aislado y asistido en un lugar retirado de toda población o que carezca de recursos para ello, ser forzosamente recluido en una leprosería autorizada por la ley, conforme a las disposiciones que rijan la materia.

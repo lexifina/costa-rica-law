@@ -1,1 +1,0 @@
-ARTICULO 87.-La venta de medicamentos y drogas como industrias peligrosas para la salud pública, se hará solamente en establecimientos especiales llamados boticas o droguerías y quedar sometida a las restricciones establecidas por la ley y sus reglamentos.

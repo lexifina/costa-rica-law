@@ -1,2 +1,0 @@
-ARTICULO 139.-El Reglamento Sanitario determinar las medidas de aislamiento, desinfección y destrucción de los animales y objetos contaminados, que sean necesarias para impedir la propagación del contagio.
-Es obligación de todos los dueños de ganados el proceder al enterramiento o incineración de los cadáveres de aquéllos. Las autoridades de policía impondrán una multa no menor de diez colones al que burlase esta disposición.

@@ -1,1 +1,0 @@
-ARTICULO 98.-Las sustancias peligrosas indicadas como tales en la Farmacopea Oficial o por la Subsecretaría de Higiene y Salud Pública solo podrán ser vendidas al público con orden escrita y firmada con tinta, del médico cirujano.

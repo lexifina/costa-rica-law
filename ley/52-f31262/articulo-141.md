@@ -1,1 +1,0 @@
-ARTICULO 141.-El Director General de Estadística hará llegar mensualmente a la Subsecretaría de Higiene y Salud Pública, los datos sobre nacimientos, matrimonios, defunciones y los resúmenes parciales de mortalidad que puedan motivar medidas urgentes de preservación.

@@ -1,1 +1,0 @@
-ARTICULO 32.-Tan pronto como un paciente de enfermedad transmisible sea dado de alta por el médico de cabecera, ‚este dará aviso a la autoridad de sanidad competente para que la ratifique, y mientras no se obtenga esta ratificación escrita, no se levantar el aislamiento ni se permitir al enfermo la salida a la calle.

@@ -1,1 +1,0 @@
-ARTICULO 76.-En adelante la adquisición de los títulos de Médico-Cirujano y de Farmacéutico no facultar para ejercer conjuntamente las dos profesiones, sino una sola de ellas. En lo sucesivo los nuevos titulados deber n elegir una de las dos profesiones y anunciarlo así en “La Gaceta Oficial”.

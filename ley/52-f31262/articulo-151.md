@@ -1,2 +1,0 @@
-ARTICULO 151.-Los Delegados de la Subsecretaría de Higiene y Salud Pública, los Jefes de Sanidad, los Agentes Sanitarios, los Jefes Políticos y los Agentes Principales de Policía, son competentes a prevención, para conocer, tramitar y penar las infracciones a lo prescrito en esta ley y los reglamentos u órdenes que la completen.
-En caso de que la infracción constituya delito deber ponerse el hecho inmediatamente y por escrito en conocimiento del Juez del Crimen, a fin de que se inicie el proceso respectivo y se imponga al culpable la pena de ley.

@@ -1,1 +1,0 @@
-ARTICULO 38.-Los que burlen la vigilancia, la observación sanitaria, quebranten el aislamiento a que hayan sido sometidos por las autoridades sanitarias o contravengan las demás disposiciones consignadas sobre enfermedades contagiosas, ser n reintegrados nuevamente al aislamiento dispuesto sin perjuicio de las penas de ley.

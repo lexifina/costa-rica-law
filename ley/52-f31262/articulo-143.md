@@ -1,1 +1,0 @@
-ARTICULO 143.-Los Jefes de Sanidad y los Médicos de Pueblo enviar n mensualmente a la Subsecretaría de Higiene y Salud Pública, todos los datos referentes al desarrollo y marcha de las enfermedades infecto-contagiosas, así como los que se relacionen con la asistencia médica de pobres.

@@ -1,1 +1,0 @@
-ARTICULO 56.-Un reglamento dictado por el Poder Ejecutivo determinar las medidas de protección que deben adoptarse para impedir que las aguas de los ríos, acequias y fuentes destinadas a la alimentación de las poblaciones disminuyan su caudal y puedan ser contaminadas, sea por los residuos de fábricas o establecimientos industriales, sea por cualquier otromedio.

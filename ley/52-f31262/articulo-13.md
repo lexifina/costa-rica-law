@@ -1,1 +1,0 @@
-ARTICULO 13.-Si después de un año de promulgada la presente ley, hubiere Municipalidad que no haya dado cumplimiento a las obligaciones contenidas en los dos artículos anteriores, el Poder Ejecutivo dictar por ella el correspondiente Reglamento Sanitario.

@@ -1,1 +1,0 @@
-ARTICULO 159.-El pago de la multa y la extinción del arresto no eximir n al infractor de la ejecución de la obra o medida sanitaria dispuesta o del cumplimiento de la orden dictada por el Jefe de Sanidad o por el Agente Sanitario o por el Delegado de la Subsecretaría de Higiene y Salud Pública.

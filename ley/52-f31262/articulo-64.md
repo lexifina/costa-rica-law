@@ -1,1 +1,0 @@
-ARTICULO 64.-El hecho de desocupar la casa, edificio o local, es causa de responsabilidad para el propietario, y por tal motivo los inquilinos tienen el derecho de exigir la rescisión de los contratos existentes y reclamar ante los tribunales respectivos los perjuicios que hubieren sufrido, todo conforme con las leyes comunes.

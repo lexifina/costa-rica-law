@@ -1,3 +1,0 @@
-ARTICULO 81.-Ejercen ilegalmente las profesiones médicas:
-1.-Toda persona que no estando autorizada legalmente para ejercer la medicina, la farmacia, la cirugía dental o la obstetricia, toma parte en el tratamiento de las enfermedades o de las afecciones quirúrgicas, así como en la práctica del arte dental, de la farmacia o de los partos, salvo en los casos de urgencia manifiesta; 2.-Toda obstétrica que salga de los límites fijados para el ejercicio de su profesión en el artículo 79;
-3.-Toda persona que provista de un título regular, salga de las atribuciones que la ley confiere o preste su concurso a las personas indicadas en los párrafos anteriores, a efecto de sustraerlas al cumplimiento de las prescripciones de la presente ley.

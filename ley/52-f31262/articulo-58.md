@@ -1,6 +1,0 @@
-TITULO III
-SALUBRIDAD DE LAS HABITACIONES
-ARTICULO 58.-En las ciudades capitales de provincias no podrá procederse a la construcción o reconstrucción parcial o total de una casa o edificio, as¡ como colocar, cambiar o modificar sus instalaciones sanitarias, sin permiso del Gobernador, el que ser concedido si del examen de los planos que deber presentar el interesado resulta que se cumplen las prescripciones de los reglamentos de construcciones, sanitario y de instalaciones sanitarias.
-Las presentes disposiciones podrán hacerse extensivas a otras ciudades o poblaciones menores, cuando lo juzgue conveniente la Municipalidad respectiva y se harán por medio de un decreto del Poder Ejecutivo, y en estos casos corresponde al Jefe Político dar el permiso.
-Para la construcción de hospitales, hospicios, asilos, sanatorios, casas de salud, escuelas, colegios, liceos, casas de obreros, cuarteles, cárceles y muelles de primera clase, en toda la República, deber obtenerse la aprobación de la Subsecretaría de Higiene y Salud Pública.
-La contravención a lo dispuesto en este artículo ser penada conforme a la ley, sin perjuicio de mandar a destruir lo hecho o paralizar la obra hasta que se llenen los requisitos en el establecidos, todo sin lugar a indemnización.

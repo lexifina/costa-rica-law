@@ -1,1 +1,0 @@
-ARTICULO 138.-Tan pronto como una autoridad tuviere noticias de haberse presentado en alguna localidad, alguna epidemia en los animales, dar aviso, por la vía más rápida, a la Subsecretaría de Higiene y Salud Pública, del hecho, tomando desde el primer momento las medidas de aislamiento y desinfección que estime convenientes para impedir la propagación del contagio.
