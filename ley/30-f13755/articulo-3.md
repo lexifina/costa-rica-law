@@ -1,0 +1,1 @@
+3°-Es obligación del Profesor que se nombre, prestar los auxilios de la ciencia á todos los enfermos que los soliciten, dentro del trayecto de su cargo, y sin devengar gaje ó emolumento alguno forzoso.
