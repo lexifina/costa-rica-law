@@ -1,0 +1,1 @@
+Artículo 4°-El Poder Ejecutivo adscribirá por decreto los nuevos poblados que correspondan a este Distrito, conforme avance la cartografía y podrá variarles el nombre, si se presentaron conflictos toponímicos, ajustándose para ello a lo que indica el artículo 4° de la ley N° 3535 del 3 de agosto de 1965.

@@ -1,0 +1,1 @@
+Artículo 3° La Cabecera del distrito será el poblado de Vara Blanca y lo compondrán además los siguientes caseríos: San Rafael, Legua de Barba, Montaña Azul, Legua (Santo Domingo); Colonias Virgen del Socorro y Jesús María; Haciendas: Georgina, Quetzal, Selva, Rancho Quemado, Marías, Fátima, María Luisa y Cayuga.
