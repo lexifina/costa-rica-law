@@ -1,0 +1,1 @@
+Artículo 2º- Para financiar el proyecto, la Caja Costarricense de Seguro Social abrirá dos cuentas bancarias, una en dólares y otra en colones, a las cuales les serán acreditados los recursos provenientes del préstamo aprobado mediante la presente Ley.
