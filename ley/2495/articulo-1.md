@@ -1,4 +1,5 @@
 N° 2495
+(Esta norma fue derogada por el artículo 2° de la ley N° 3400 del 28 de setiembre de 1964)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA,
 DECRETA:
 Artículo 1º.- Adiciónase el artículo 17 de la ley Nº 34 de 21 de diciembre de 1940, reformado por la Nº 2468 de 13 de noviembre de 1959, con el siguiente párrafo final:
