@@ -1,0 +1,1 @@
+Artículo 2º.-Queda prohibida la caza en esta área así como cualquier alteración de las condiciones naturales del lugar. La visita de particulares a este refugio requerirá de un permiso escrito del Departamento de Vida Silvestre de la Dirección General Forestal.
