@@ -1,0 +1,2 @@
+Artículo XIX
+Los agentes diplomáticos de cada una de las Partes contratantes favorecerán con sus buenos oficios la justicia que asista á sus nacionales; pero es entendido que en la defensa y resguardo de sus derechos é intereses y en sus reclamaciones y quejas contra la nación ó los particulares, no podrán emplear más recursos que los que las leyes de cada una de las dos Repúblicas conceden á sus nacionales; debiendo conformarse con la resolución definitiva de los Tribunales de Justicia, sin poder, en ningún caso, apelar á la vía diplomática.

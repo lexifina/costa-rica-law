@@ -1,0 +1,2 @@
+Artículo XXII
+Los agentes diplomáticos y consulares de las Repúblicas contratantes en las ciudades, plazas ó puertos extranjeros, prestarán á las personas, buques y demás propiedades de los ciudadanos de la otra la misma protección que á las personas, buques y demás propiedades de sus compatriotas, sin exigir por esos servicios otros ó más altos derechos que los acostumbrados respecto de sus nacionales.

@@ -1,0 +1,4 @@
+Artículo XIV
+Sí se suscitare algún desacuerdo ó desavenencia entre una de las Partes contratantes y otra de las Repúblicas de Centro América, la otra Parte ofrecerá á aquellas sus buenos oficios y mediará á fin de conducir á una solución amigable la cuestión pendiente.
+En el remoto caso de que la mediación expresada no tuviere resultado satisfactorio y por desgracia sobreviniese rompimiento, la Parte mediadora se compromete á guardar la más estricta neutralidad, sin perjuicio de redoblar sus esfuerzos, si lo creyere conveniente, para que cesen cuanto antes las hostilidades comenzadas.
+Cuando el desacuerdo ó desavenencia ocurriere solamente entre otras de las Repúblicas centroamericanas, las Partes contratantes, conjuntamente, ó cada una de por sí, ofrecerán á aquellas su mediación, á fin de mantener la armonía general de Centro América.

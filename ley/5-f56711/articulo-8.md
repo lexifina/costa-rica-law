@@ -1,0 +1,2 @@
+Artículo VIII
+El ejercicio de los derechos políticos, en su caso, y el servicio de cualquier empleo ó cargo público por parte de los ciudadanos de una República en la otra, nunca y en ningún caso podrán afectar la nacionalidad ni la ciudadanía de su origen; mas en la República donde tales derechos, empleos ó cargos ejerzan, están sujetos á todas las cargas y servicios obligatorios á los naturales.
