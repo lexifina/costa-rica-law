@@ -1,0 +1,1 @@
+Art 16° No permitirán tampoco que el comercio o sus agentes dejen mercaderías fuera de estiba, sino que los bultos que saquen de ella y no los despachen, deben volver a colocarlos en el mismo lugar, pena de no obtener más despacho mientras no lo hagan.
