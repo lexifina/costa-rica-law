@@ -1,1 +1,0 @@
-Artículo 14.-La Tesorería Municipal, no emitirá el primer pago sin haber recibido la autorización de la Comisión, avalada por el Concejo Municipal, en la cual se le comunica que el estudiante ha completado su documentación y se le ha asignado la beca.

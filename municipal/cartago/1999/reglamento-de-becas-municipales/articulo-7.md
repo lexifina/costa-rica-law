@@ -1,1 +1,0 @@
-Artículo 7°-La información que se da en la fórmula respectiva deberá ser fidedigna. Si se comprueba lo contrario automáticamente se desechara la solicitud, la Comisión estará en plena autoridad para verificar la información cuando así lo amerite.

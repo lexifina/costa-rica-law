@@ -1,1 +1,0 @@
-Artículo 3°-Los estudiantes que soliciten becas municipales deben ser vecinos del Cantón Central de Cartago, lo cual se comprobará mediante una constancia expendida por la Comandancia de Plaza de Cartago, o por la Delegación de la Guardia Civil o Rural de cada uno de los Distritos que conforman el Cantón.

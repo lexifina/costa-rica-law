@@ -1,1 +1,0 @@
-Artículo 17.-Pasados tres meses si el estudiante no retira su beca, pierden automáticamente el derecho de continuar disfrutando de este beneficio siempre y cuando se compruebe que se le ha notificado.
