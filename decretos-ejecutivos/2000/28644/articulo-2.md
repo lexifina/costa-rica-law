@@ -1,0 +1,1 @@
+Artículo 2º—Quien se desempeñe como Presidente ejecutivo del Instituto Costarricense de Turismo y/o los representantes que además delegue el Gobierno de Costa Rica, fungirán como representantes del Gobierno ante dicho organismo.
