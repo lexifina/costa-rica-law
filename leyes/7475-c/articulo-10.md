@@ -1,0 +1,9 @@
+Artículo 10
+Prevención de la elusión de los compromisos en materia de subvenciones a la exportación
+1.- Las subvenciones a la exportación no enumeradas en el párrafo 1 del artículo 9 no serán aplicadas de forma que constituya, o amenace constituir, una elusión de los compromisos en materia de subvenciones a la exportación; tampoco se utilizarán transacciones no comerciales para eludir esos compromisos.
+2.- Los Miembros se comprometen a esforzarse en elaborar disciplinas internacionalmente convenidas por las que se rija la concesión de créditos a la exportación, garantías de créditos a la exportación o programas de seguro y, una vez convenidas tales disciplinas, a otorgar los créditos a la exportación, garantías de créditos a la exportación o programas de seguro únicamente de conformidad con las mismas.
+3.- Todo Miembro que alegue que una cantidad exportada por encima del nivel de compromiso de reducción no está subvencionada deberá demostrar que para la cantidad exportada en cuestión no se ha otorgado ninguna subvención a la exportación, esté o no enumerada en el artículo 9.
+4.- Los Miembros donantes de ayuda alimentaria internacional se asegurarán:
+a) de que el suministro de ayuda alimentaria internacional no esté directa o indirectamente vinculado a las exportaciones comerciales de productos agropecuarios a los países beneficiarios;
+b) de que todas las operaciones de ayuda alimentaria internacional, incluida la ayuda alimentaria bilateral monetizada, se realicen de conformidad con los "Principios de la FAO sobre colocación de excedentes y obligaciones de consulta", con inclusión, según proceda, del sistema de Requisitos de Mercadeo Usual (RMU); y
+c) de que esa ayuda se suministre en la medida de lo posible en forma de donación total o en condiciones no menos favorables que las previstas en el artículo IV del Convenio sobre la Ayuda Alimentaria de 1986.
