@@ -1,0 +1,1 @@
+Articulo 13.—La Asociación de Desarrollo podrá cesar en su cargo a cualquier miembro - del Comité que faltare a tres reuniones consecutivas o cinco alternas sin causa justificada o cuando se le comprobaran faltas o hechos compatibles con sus funciones, deberes y responsabilidades.

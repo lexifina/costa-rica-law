@@ -1,0 +1,1 @@
+Artículo 5°—La asamblea de vecinos elegirá a los miembros del Comité Administrador y ellos, en la primera reunión, designarán internamente los cargos de Presidente, Secretario, Tesorero, un Vocal y el Fiscal de acuerdo artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 14.—El Comité se reunirá ordinariamente una vez al mes en el día que el mismo señale y extraordinariamente cuando fuere convocado por su Presidente o por el Secretario y el Tesorero conjuntamente. Las reuniones se harán en el lugar designado por el mismo Comité.

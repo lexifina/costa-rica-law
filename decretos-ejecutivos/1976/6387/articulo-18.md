@@ -1,0 +1,2 @@
+Artículo 18.—El Comité Administrador se encargará de recoger y controlar tos aportes de la comunidad que se indican en el inciso e) del artículo anterior. .
+Si los aportes son en dinero efectivo, deberá depositarlos en su cuenta bancaria en la sucursal del banco más cercano. Si son en materiales o en cualesquiera otros bienes deberá guardarlos y custodiarlos para la oportunidad en que se requiera emplearlos.
