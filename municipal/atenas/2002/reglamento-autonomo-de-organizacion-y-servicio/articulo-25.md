@@ -1,0 +1,1 @@
+Artículo 25.—La selección de personal se hará por medio de pruebas de idoneidad y/o atestados para el caso de cargos que deban llenarse con profesionales, a las que únicamente se admitirán aspirantes que reúnan los requisitos para ser nombrados en el puesto que se trate.

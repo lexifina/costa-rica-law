@@ -1,0 +1,2 @@
+Artículo 67.—Quien haya formulado una denuncia de hostigamiento sexual, sólo podrá ser despedido por causas justificadas, contempladas en este Reglamento y en los artículos 147, 148, y 149 del código Municipal, así como las señaladas en el artículo 81 del código de Trabajo, debiendo demostrar la existencia de la causa o causas justas para su despido y en acatamiento del debido proceso.
+El incumplimiento de estas disposiciones constituirá por parte del funcionario o funcionaria, causa justa para terminar con responsabilidad patronal, el contrato laboral.

@@ -1,0 +1,1 @@
+Artículo 79.—El Departamento encargado del personal a través de la Comisión de Salud Ocupacional, será la responsable de promover, coordinar, ejecutar y fiscalizar las políticas y medidas que se adopten en materia de Salud Ocupacional, y de la integración de las brigadas de Salud Ocupacional, las cuales recibirán la capacitación necesaria que les faculte para cumplir su cometido.

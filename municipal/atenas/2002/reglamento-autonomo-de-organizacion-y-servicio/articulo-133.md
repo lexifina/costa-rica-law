@@ -1,0 +1,1 @@
+Artículo 133.—La asistencia a la CCSS, INS y/o médico de empresa, cuando son en horas laborales, así como el tiempo utilizado para ese fin, se considerará como licencia con goce de salario. El trabajador, deberá hacer la marca correspondiente y presentar la constancia de asistencia expedida, por esas autoridades y a esos efectos.

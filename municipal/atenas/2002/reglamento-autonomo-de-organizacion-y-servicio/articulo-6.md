@@ -1,0 +1,1 @@
+Artículo 6º—En virtud del principio de legalidad y con la salvedad de los derechos adquiridos, el servidor no podrá disfrutar de más beneficios, ni la administración ejercer mayores potestades que las expresamente autorizadas por este Reglamento o, en su defecto, por las demás normas del ordenamiento jurídico.

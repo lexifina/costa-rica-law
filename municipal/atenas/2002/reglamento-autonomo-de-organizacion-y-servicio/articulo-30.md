@@ -1,0 +1,1 @@
+Artículo 30.—Las plazas vacantes podrán ser ocupadas en forma interina por la persona designada para ello, mientras se realiza el concurso, hasta por el término de dos meses, improrrogables de conformidad con el artículo 130 del Código Municipal.

@@ -1,0 +1,2 @@
+Artículo 110.—La Municipalidad pagará salarios quincenales al personal; el pago se hará los días quince y treinta de cada mes, o el día hábil anterior si aquel fuese feriado y para el pago se utilizará el sistema, de depósito en el sistema bancario nacional.
+El sistema de pago, podrá ser variado cuando las circunstancias lo ameriten o en caso de que existan medios más novedosos de pago que vayan en beneficio del trabajador.

@@ -1,0 +1,3 @@
+Artículo 131.—No obstante lo anterior, las ausencias deberán justificarse por escrito, a más tardar dentro de los tres días hábiles siguientes a la fecha de ocurrida según sea el caso. El jefe correspondiente; determinará si la ausencia es justificada o no. Las ausencias por enfermedad deberán justificarse por medio de certificado médico.
+Las certificaciones emitidas por médicos particulares justificaran únicamente la ausencia pero no dará derecho a su pago.
+En aquellos casos en que una incapacidad sea emitida por médico particular, el funcionario está en la obligación de presentar la misma con el refrendo u autorización extendida sobre esta por la clínica a la cual está adscrito, según controles de la CCSS.

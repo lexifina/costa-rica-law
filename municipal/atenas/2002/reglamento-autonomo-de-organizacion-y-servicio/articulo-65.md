@@ -1,0 +1,1 @@
+Artículo 65.—El Patrono o Jerarca de la Institución, que incurra en el hostigamiento sexual, será responsable personalmente por sus actuaciones, así mismo tendrá responsabilidad, si, pese a haber recibido las quejas de la persona ofendida no cumple con lo establecido en este articulado.

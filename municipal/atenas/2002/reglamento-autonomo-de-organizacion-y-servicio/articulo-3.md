@@ -1,0 +1,1 @@
+Artículo 3º—Los representantes patronales obligan al patrono, en las relaciones que tengan con los trabajadores de la Municipalidad, cuando realicen actos o ejecuten disposiciones de índole laboral, como si esta, personalmente, hubiera realizado el acto o actos de que se trate.

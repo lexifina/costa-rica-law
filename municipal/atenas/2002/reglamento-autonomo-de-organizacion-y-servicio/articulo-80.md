@@ -1,0 +1,2 @@
+Artículo 80.—La Municipalidad deberá notificar al INS, cualquier riesgo y accidente de trabajo que sufran sus servidores dentro de los ocho días hábiles siguientes al de su acaecimiento. Dicha notificación deberá ajustarse a las formalidades que establece el artículo 222 del Código de Trabajo.
+Las jefaturas están obligadas a verificar y reportar la ocurrencia de un accidente o riesgo laboral, el mismo día en que se presente la situación.

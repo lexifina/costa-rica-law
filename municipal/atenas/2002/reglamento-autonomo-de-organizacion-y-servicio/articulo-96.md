@@ -1,0 +1,1 @@
+Artículo 96.—El patrono señalará la época en que el trabajador gozará de sus vacaciones, pero deberá hacerlo dentro de las quince semanas posteriores al día en que se cumplieron las cincuenta semanas de servicio continuo, tratando de que no se altere la buena marcha de la Municipalidad ni la efectividad del descanso.
