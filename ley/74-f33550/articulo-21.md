@@ -1,0 +1,1 @@
+ARTÍCULO 21.-La duración de los electores y de los Alcaldes con sus suplentes será de un año, y la de los Síndicos de dos. Los primeros deberán reunirse cuando los convoque la Autoridad Política para la reposición de algún oficio municipal.
