@@ -1,0 +1,1 @@
+Artículo 4º—Las normas, las disposiciones y los procedimientos sobre contratación establecidos en el contrato de préstamo aquí aprobado, prevalecerán sobre lo estipulado en el ordenamiento jurídico nacional acerca de la materia, pero deberán ser conformes a Constitución Política.
