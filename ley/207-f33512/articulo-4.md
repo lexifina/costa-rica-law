@@ -1,0 +1,1 @@
+Artículo 4°-Las solicitudes de naturalización pendientes al emitirse esta ley, deberán completar los trámites y documentos que les falten de acuerdo con lo prescrito en los artículos anteriores, aun cuando ya hubieren cumplido las exigencias de leyes y reglamentos vigentes el día en que fueron presentadas en Ia Secretaria de Relaciones Exteriores.
