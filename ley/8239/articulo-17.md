@@ -1,0 +1,1 @@
+Artículo 17.—Acreditación de centros de salud privados. Los servicios de salud privados deberán contar con una acreditación que emitirá el Ministerio de Salud, el cual fijará los requisitos para tal efecto.

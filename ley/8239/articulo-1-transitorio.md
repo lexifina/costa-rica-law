@@ -1,0 +1,2 @@
+Transitorio único.—El Reglamento de esta Ley determinará el procedimiento y el plazo para que la Auditoría General de Servicios de Salud implemente las contralorías de servicios de salud, en los principales hospitales y clínicas del país. La implementación de tales contralorías deberá realizarse en un plazo máximo de seis meses a partir de la publicación del Reglamento. La Caja Costarricense de Seguro Social adoptará las medidas que se requieran con el propósito de dar cumplimiento a lo ordenado en esta Ley.
+Rige a partir de su publicación.

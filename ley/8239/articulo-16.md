@@ -1,0 +1,1 @@
+Artículo 16.—Obligación de colaborar e informar. Para todos los efectos legales, la desatención injustificada de los requerimientos de colaboración e información, presentados por las contralorías locales, por parte de los funcionarios de la institución respectiva, se considerará falta grave.
