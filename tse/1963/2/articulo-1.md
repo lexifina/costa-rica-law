@@ -1,0 +1,126 @@
+N° 2
+EL TRIBUNAL SUPREMO DE ELECCIONES
+De conformidad con las funciones que le atribuyen el inciso 9) del artículo 102 de la Constitución Política y el inciso f) del artículo 19 del Código Electoral,
+DECRETA:
+Refórmase el actual Reglamento del Registro del Estado Civil, que originalmente fuera dictado mediante Decreto Ejecutivo N° 7 de 25 de julio de 1913, a efecto de que su texto sea el que sigue:
+REGLAMENTO DEL REGISTRO DEL ESTADO CIVIL
+TITULO I
+CAPITULO ÚNICO
+Inscripciones Relativas al Estado Civil
+Artículo 1°—Las inscripciones relativas al estado civil se practicarán en el Departamento del Estado Civil del Registro Civil, con fundamento en las declaraciones que deben ser hechas ante los respectivos Registradores Auxiliares.
+Artículo 2°—Cuando el ejército se hallare en campaña, el Jefe de todo cuerpo o columna que deba operar con independencia, encargará del servicio del Registro a un oficial, el cual se sujetará a las prescripciones legales para inscribir provisionalmente los actos civiles que ocurran.
+Artículo 3°—El Tribunal Supremo de Elecciones puede investir con el carácter de Registradores Auxiliares a los Jefes de las Oficinas Regionales del Registro Civil, a los Agentes de Policía de los distritos, a los directores de hospitales, clínicas o escuelas públicas, a los telegrafistas o administradores de correos y aun a particulares capaces para el caso, y esas funciones se desempeñarán ''ad-honórem.
+TITULO II
+CAPITULO ÚNICO
+Deberes y Atribuciones de los Registradores
+Artículo 4°—El Director General del Registro Civil es el Jefe de la Oficina y debe velar porque todos los empleados cumplan estrictamente con sus obligaciones.
+Artículo 5°—Fuera de las demás atribuciones que le asigna la ley y este Reglamento, corresponde al Director del Registro:
+1) Ordenar o denegar las inscripciones, cuando proceda según la ley;
+2) Disponer lo referente al despacho de los documentos que fueren presentados, observando en lo posible el orden cronológico. Asimismo dispondrá el estudio e inscripción de documentos y firma de asientos entre los oficiales de inscripción, conforme al artículo 18. En ausencia del Director General, esta facultad la tiene el Oficial Mayor Civil, y, en defecto de éste, el Secretario del Registro; y
+3) Enviar al Registrador Auxiliar respectivo una nota recibo del cupón de instrucciones recibidas, para que le sirva de comprobante.
+Artículo 6°—Los Gobernadores en los cantones centrales y los Jefes Políticos en los cantones menores, son los encargados de la celebración de los matrimonios civiles, y de expedir el documento correspondiente para su inscripción.
+TITULO III
+CAPITULO I
+Libro de Registro. Disposiciones Generales
+Artículo 7°—Los libros que se lleven en el Registro del Estado Civil los proporcionará el Tribunal Supremo de Elecciones; deberán estar empastados y paginados y tendrán en la parte superior del frente de cada hoja el sello del Tribunal.
+Artículo 8°—En la primera página de cada uno de los libros, el Tribunal pondrá una razón suscrita por su Presidente en que se haga constar el objeto a que esté destinado, el número de páginas que contenga y de hallarse todos los folios sellados y ninguno de ellos manchado, escrito o inutilizado.
+Los asientos comenzarán a extenderse en la segunda página de los libros.
+Artículo 9°—Al quedar completamente lleno cualquiera de los libros del Registro, se cerrará poniendo al fin una razón en que se haga constar la época que comprende. Esta razón será firmada y sellada por el Director del Registro.
+Artículo 10°—Los libros llevados en campaña, terminada ésta, pasarán a la oficina central; y el Director del Registro cuidará entonces de practicar todas las inscripciones que aquéllos contengan.
+Artículo 11.—En los libros que lleven los Agentes Consulares, las diligencias para abrir y cerrar cada libro, se formalizarán por notas del Cónsul encargado del Registro, autorizadas con la firma del funcionario y el sello del Consulado .
+CAPITULO II
+Libros del Departamento del Estado Civil
+Artículo 12.—Para cada una de las provincias de San José, Alajuela, Cartago, Heredia, Guanacaste, Puntarenas y Limón se llevarán tres series de libros: una para los nacimientos, otra para los matrimonios y otra para las defunciones que ocurran en cada provincia.
+Sin embargo cuando el movimiento de la oficina así lo exigiere, el Director del Registro podrá disponer que para alguna o algunas provincias se lleven simultáneamente dos o más libros en cada serie.
+Articulo 13.—Se llevará además un cuaderno talonario para extender ¡os recibos de los documentos que se presenten para su inscripción. Cada foja formará un recibo.
+Artículo 14.—Todas las páginas de los libros tendrán un margen vertical en blanco, del ancho de la cuarta parte de una página, destinado a anotaciones posteriores.
+Artículo 15.—El Registro llevará al día un índice General de Nacimientos, otro de Matrimonios y otro de Defunciones, todos en estricto orden alfabético por el sistema de tarjetas IBM, cuyo mantenimiento estará a cargo de la Sección de Constancias y Certificaciones.
+CAPITULO III
+Libros de Registros Auxiliares
+Artículo 16.—Los Registradores Auxiliares llevarán un libro para asentar las actas de matrimonios que celebren y otros libros talonarios, para tornar nota de los nacimientos y de las defunciones que se declaren ante ellos.
+Articulo 17.—En los libros talonarios, el talón y la copia deben tener la misma foliatura.
+TITULO IV
+CAPITULO ÚNICO
+Disposiciones Comunes a Todas las Inscripciones
+Articulo 18.—Los asientos y sus marginales se practicarán con estudio y confrontación de los correspondientes documentos, y serán firmados por los respectivos oficiales de inscripción, quienes, serán responsables de su cometido; el Director General, de acuerdo con la facultad indicada en el inciso 2) del artículo 5°, dispondrá la distribución del trabajo entre los dichos oficiales con la mayor equidad posible.
+Artículo 19.—Los documentos a que se refieran los asientos del Registro, deben conservarse en el archivo, excepto las ejecutorias de divorcio, separación de cuerpos e investigación de paternidad y las escrituras de reconocimientos, emancipación y adopción que serán devueltas a los interesados, con la correspondiente razón de haber sido inscritas.
+Articulo 20.—Son prohibidas en los asientos del Registro las raspaduras, entrerrenglonaduras y enmiendas. Los errores u omisiones se salvarán por medio de notas puestas al pie del asiento y antes de las firmas.
+TITULO V
+CAPITULO ÚNICO
+Registro de Nacimientos
+Artículo 21.—Dentro del término de veinticinco días del nacimiento de una persona, debe hacerse la declaración ante cualquier Registrador Auxiliar.
+Las declaraciones de nacimiento se harán con base en el respectivo certificado que extienda el médico, la obstétrica o enfermera graduada que atendiera el parto; de la fe de bautismo o de otro documento fehaciente del nacimiento. En defecto de esos documentos se podrán recibir tales declaraciones, por manifestación verbal de las personas a quienes corresponda hacerlas, siempre que se identifiquen por medio de la cédula de identidad, cuyo número deberá hacerse constar o por dos testigos de conocimiento del Registrador Auxiliar quienes también firmarán la declaración.
+Artículo 22.—El padre o la madre del recién nacido están en la obligación de declarar el nacimiento a que se refiere el artículo anterior, salvo que por imposibilidad física no pudieren hacerlo, en cuyo caso tal obligación corresponde:
+1) A la persona a cuyo cargo esté el niño;
+2) Al Jefe del establecimiento público o el de la casa donde el nacimiento haya ocurrido; y
+3) Al facultativo, obstétrica u otra persona que haya atendido el parto.
+Artículo 23.—Además de las circunstancias generales a toda inscripción y de los requisitos particulares a la inscripción de nacimientos establecidos en los artículos 5° y 21 de la Ley Orgánica del Registro Civil, en el acta o asiento de inscripción de nacimiento se especificará el nombre, apellido, edad y domicilio de la persona que hace la declaración.
+Artículo 24.—Para inscribir en el Registro Civil el nacimiento de personas mayores de diez años, se requiere:
+1) Que el interesado al hacer la declaración, presente documento fehaciente del nacimiento que exprese el nombre y apellidos de la persona a que se refiere, los de sus padres, el lugar y fecha en que ocurrió.
+Si el documento consistiere en fe de bautismo, expedida en Costa Rica, para que pueda ser admitido como prueba completa, es de rigor que el acto religioso se hubiere celebrado no después de diez años de edad de la persona, y que la autoridad política del lugar en que se encuentre el archivo eclesiástico autentique la firma de quien la extiende y compruebe la fidelidad del documento con su original. Si la fe de bautismo no es de la Iglesia Católica, es necesario además que la Iglesia que la expida esté debidamente organizada en el país, con representación inscrita en el Registro Público y que lleve libros de registro para los bautismos. El valor probatorio del documento será apreciado por el Director del Registro, quien firmándolo al dorso lo agregará a la documentación respectiva para archivarla.
+Si el nacimiento hubiere ocurrido fuera de Costa Rica, para su inscripción se requiere el respectivo documento debidamente legalizado.
+2) Si no existiere documento o si el valor probatorio del que existiere fuere ineficaz para fundar en él la inscripción, deberá levantarse información ad-perpetuam ante la autoridad judicial competente, a la cual deberá aportarse toda la prueba necesaria con respecto al nacimiento o en su defecto a la existencia del individuo que ayude a denostar su nacimiento, en Costa Rica, con los detalles requeridos; además se presentarán certificaciones de la Sección de Opciones y Naturalizaciones del Registro Civil y del Departamento de Extranjeros del Ministerio de Seguridad Pública, con los que se compruebe, respectivamente, que la persona cuyo nacimiento se va a inscribir no ha adquirido nuestra nacionalidad por naturalización y si figura inscrita como extranjero en el citado Departamento. Se tomará además declaración a cuatro testigos con cédula de identidad, de reconocida honorabilidad, quienes dando razón de su dicho, informen del nacimiento o la existencia de la persona.
+El valor probatorio de la información dicha será apreciado por el Director del Registro, en resolución que deberá ser consultada con el Tribunal Supremo de Elecciones, de no ser apelada.
+Previamente a la inscripción de que se trata en este artículo, se hará el estudio necesario en la Sección dé Defunciones y si la persona hubiere fallecido, así se hará constar por marginal en el asiento del nacimiento.
+Los nacimientos de los mayores de diez años se inscribirán en tomos de un Partido especial y en cada asiento se consignarán todos los datos referentes al mismo y se hará cita de la comprobación admitida. Cuando de los documentos conste la fecha del bautismo, se consignará ese dato en el asiento.
+Artículo 25.—En la inscripción del nacimiento del expósito, se hará mención de todas las circunstancias fijadas en el artículo 22 de la Ley Orgánica del Registro Civil.
+Artículo 26.—Los objetos encontrados con el niño expósito o abandonado, los remitirá el funcionario al Registro Civil para que, si fueren documentos, se archiven en la forma dicha en el artículo 19, y si fueren cíe otra clase, pero de fácil conservación, se custodien también en el mismo archivo, marcándose de manera conveniente para que en todo tiempo puedan ser reconocidos.
+Artículo 27.—En el asiento de inscripción de nacimiento de hijos fuera de matrimonio no se expresará quien es el padre, a no ser que por documento público se halle establecida la paternidad, o que sea el propio padre quien hace la declaración como tal y la firme.
+Artículo 28.—Si el niño muriese antes de estar inscrito en el Registro se hará la inscripción de nacimiento antes que la de muerte, caso de tenerse a la vista el cupón de nacimiento; de lo contrario, se procederá inmediatamente a inscribir la defunción.
+Artículo 29.—Al hacer la declaración de un nacimiento, el funcionario hará la inscripción en el libro talonario respectivo con todas las circunstancias que la ley exige y la firmará con el declarante, o con dos testigos de asistencia si el declarante no porta cédula de identidad; de dicha inscripción sacará copia y la remitirá firmada al Registro Central, por el correo inmediato.
+TITULO VI
+CAPITULO ÚNICO
+De la Celebración del Matrimonio
+Artículo 30.—Los que pretendan contraer matrimonio civil presentarán su solicitud por escrito, conforme lo prescribe el artículo 61 del Código Civil, ante el Gobernador o Jefe Político, según el caso, del lugar donde resida cualquiera de los pretendientes. En esa solicitud se nombrará a los testigos que deben presentar los contrayentes, para que declaren sobre la libertad de estado y aptitud legal de los mismos.
+Artículo 31.—Con la solicitud se acompañarán los documentos que comprueben los requisitos que previenen los incisos 29, 3° y 49 del artículo 64 del Código Civil.
+Artículo 32.—Ratificada verbalmente la solicitud y llenados los requisitos del artículo 64 del Código Civil, el funcionario que haya de celebrar el matrimonio mandará publicar los edictos de ley en el periódico oficial, y señalarán día para el examen de los testigos.
+Artículo 33.—Si antes de celebrarse el matrimonio se denunciare algún impedimento, el funcionario lo liará constar así en la información y remitirá la denuncia al Juez Civil .de la respectiva provincia, para que siga el juicio correspondiente.
+Artículo 34.—Terminada la información, y pasado el término de los edictos sin haber habido oposición al matrimonio o sin haberse denunciado impedimento o ejecutoriada en su caso la sentencia que lo declare sin lugar, el funcionario terminará el expediente, señalando el lugar, día y hora en que deba celebrarse el matrimonio.
+Artículo 35.—El día designado, el funcionario, asociado de dos testigos de asistencia, preguntará a los contrayentes si es su voluntad unirse en matrimonio. Después de la contestación afirmativa de ambos, les leerá los artículos 50, 73 y 74 del Código Civil y hará constar todo en el acta, que levantará enseguida y que firmará con las partes si supieren y con los testigos. Terminada el acta, el funcionario expedirá una certificación de ella y la remitirá al Registro Civil.
+En las Gobernaciones de provincia, cuando se trate de la tramitación de los expedientes v de la celebración de matrimonios civiles, en ausencia de los Gobernadores y en sustitución de éstos como Registradores Auxiliares podrán actuar sus Secretarios.
+Artículo 36.—Cuando alguno de los contrayentes negare su consentimiento en el acto de ser interrogado, todo se suspenderá, haciéndose constar así.
+TITULO VII
+CAPITULO ÚNICO
+Registro de Matrimonios
+Artículo 37.—El Registro Civil procederá a la inscripción de los matrimonios civiles, según la certificación que reciba de! respectivo funcionario, quien está en la obligación de remitirla por el correo inmediato al día en que se verificó el matrimonio.
+Artículo 38.—Los matrimonios celebrados por la Iglesia Católica se inscribirán en virtud de las certificaciones extendidas por los párrocos.
+Artículo 39.—Las certificaciones de los matrimonios católicos celebrados en el territorio de la República, se enviarán por los señores párrocos, en el término más corto que permita el servicio de Correos, al Registro Civil.
+Artículo 40.—La inscripción de matrimonio católico se verificará trascribiendo literalmente la partida certificada y haciendo constar además de las circunstancias exigidas por el artículo 28 de la Ley Orgánica del Registro Civil, la de no aparecer en el Registro antecedente alguno que impida la inscripción.
+Artículo 41.—Los matrimonios celebrados en la República por los Ministros Diplomáticos y Cónsules que conforme a los tratados puedan hacerlo, se inscribirán en virtud de certificación expedida por el Agente Diplomático o Consular, previa la traducción y autenticación legal.
+Artículo 42.—Cuando del Registro resultaren constancias o declaraciones que contradigan el certificado de la partida de matrimonio, el Director del Registro suspenderá la inscripción y pondrá en conocimiento del respectivo funcionario las dificultades que la impiden, para que éste lo comunique a los interesados.
+Artículo 43.—Los matrimonios celebrados fuera de la República, entre costarricenses o extranjeros, podrán inscribirse en el Registro Civil a requerimiento de parte interesada y en virtud de documento debidamente autenticado y legalizado.
+Artículo 44.—La ejecutoria que declare la separación de cuerpos, la nulidad de un matrimonio o el divorcio, se inscribirá también en los libros destinados a matrimonios y además se pondrá nota marginal al asiento del matrimonio.
+Las ejecutorias dictadas por Tribunales extranjeros en materia de nulidad de matrimonio, divorcio o separación de cuerpos, podrán inscribirse a requerimiento de parte interesada, una vez cumplidos los trámites que establecen los artículos 1020 y siguientes del Código de Procedimientos Civiles.
+TITULO VIII
+CAPITULO ÚNICO
+Registro de Defunciones
+Articulo 45.—La inscripción de un fallecimiento se hará en virtud de parte escrito que de él deben dar los Tesoreros de las Juntas de Protección Social, Jefes Políticos, Agentes de Policía y demás empleados encargados de expedir boletos de entierro.
+Artículo 46.—Antes de expedirse los boletos de entierro, deben los interesados presentar el correspondiente certificado especificando la causa de la muerte, firmado por el médico que asistió al finado. Cuando no haya habido asistencia médica, la constancia de muerte podrá extenderla la autoridad política o dos testigos de reconocida honradez. Quienes expidan estas constancias procurarán indicar el sexo y la edad aparente del fallecido.
+Artículo 47.—Cuando se tratare del fallecimiento de una persona nacida después del primero de enero de mil ochocientos ochenta y ocho, debe exigirse a quien de el parte, constancia de haber sido sentada con anterioridad la partida de nacimiento; y en caso de no estar inscrito el nacimiento, obligar al interesado a hacerlo ante cualquier Registrador Auxiliar.
+Artículo 48.—El parte de defunción se debe dirigir al Registro Civil dentro de veinticuatro horas, si la inhumación se verificase en esta capital y dentro del término más breve que sea posible conforme al servicio de correos, tratándose de los demás lugares de la República; y debe contener las circunstancias exigidas en el artículo 31 de la Ley Orgánica del Registro Civil.
+Articulo 49.—Cuando se diere sepultura a un cadáver fuera del Cementerio, tiene obligación de dar parte del fallecimiento, toda persona que de él tenga noticia cierta, ya por haberlo presenciado, ya por haber visto el cadáver, ya por otro motivo semejante. Especialmente están obligados a dar este parte, los padres, hijos, parientes del difunto o dueños de la casa o finca donde el fallecimiento hubiere ocurrido.
+Artículo 50.—-Cuando el parte a que se refiere el artículo 45 careciere de algunos de los requisitos exigidos por el artículo 31 de la Ley Orgánica del Registro Civil, el empleado que lo envíe dará los motivos de la omisión, lo que se hará constar en el Registro. Cuando se vayan adquiriendo nuevos datos se anotarán al margen del asiento.
+Articulo 51.—Con respecto a los fallecimientos que ocurran, en el mar, se levantará una acta que exprese todas las circunstancias del caso y será firmada por los parientes del finado, si los hubiere, el capitán del buque y dos testigos de asistencia. Si se tratare de un buque extranjero y el capitán se negare a autorizar el acta, su firma se sustituirá con la de dos testigos. Esta acta se entregará a un agente diplomático o consular de la República, o si no fuere esto posible, se entregará al regreso a algún Registrador Auxiliar; en cualquiera de estos casos será remitida copia del acta al Registro Civil.
+Artículo 52.—Si por circunstancias extraordinarias no pudiere levantarse el acta, bastará la declaración jurada del interesado hecha en el extranjero ante un agente consular o diplomático de la República o a su regreso ante el Registrador Auxiliar de su domicilio, el cual mandará copia del acta al Registro Civil. En uno u otro caso se oirá a los testigos del hecho, si ello no ofreciere dificultad.
+Artículo 53.—Los fallecimientos ocurridos en viajes por tierra, dentro del territorio de la República, se declararán ante el Registrador Auxiliar del lugar en que haya de enterrarse el cadáver.
+Artículo 54.—Toda inscripción de defunción se anotará al margen del correspondiente asiento de nacimiento, cuando estuviere inscrito. En la respectiva tarjeta del índice de nacimiento se pondrá razón que exprese la defunción de la persona.
+TITULO IX
+CAPITULO ÚNICO
+Reconocimientos, Legitimaciones y Emancipaciones
+Artículo 55.—De todo reconocimiento, legitimación o emancipación que hubiera de inscribirse, ya se refiera a costarricenses o extranjeros, deberá tomarse razón en el Registro Civil inscribiendo previamente el nacimiento si no lo estuviere antes, y anotando marginalmente lo que corresponda, haciendo constar que en virtud de matrimonio subsiguiente o de documento público, queda legitimada, reconocida o emancipada la persona a que se refiere el asiento. Esta anotación deberá ser firmada por el Director del Registro, o por el Oficial Mayor del Departamento Civil o por el Oficial de Inscripción respectivo.
+TITULO X
+CAPITULO ÚNICO
+Disposiciones Comunes
+Artículo 56.—Los párrocos están en la obligación de pasar al Registrador Auxiliar de su respectiva jurisdicción, cada ocho días, nómina de los bautizos que verifiquen, con expresión de la provincia, cantón y distrito donde ocurrió el nacimiento de cada uno de los bautizados; y cada fin de mes al Departamento del Estado Civil del Registro Civil, de los matrimonios que celebren, y de las defunciones que hubieren motivado oficios religiosos en la iglesia.
+Tanto el Oficial Mayor del Departamento Civil como los Registradores Auxiliares al recibir las nóminas de los párrocos, examinarán si todos los actos que ellas expresan se encuentran inscritos. Si alguno de los matrimonios, nacimientos o defunciones no lo estuviere, tomarán las medidas necesarias para que esos sucesos se inscriban y darán inmediatamente parte a la autoridad política para que ésta proceda en su caso, a hacer efectiva la multa correspondiente.
+Artículo 57.—Los costarricenses que después de haber vivido en países donde Costa Rica no tuviese Agente Consular, fijaran su domicilio en lugar donde lo haya o retornaren a la patria, deben hacer inscribir en el Registro todos los actos, que habiendo ocurrido antes, necesiten inscripción.
+Artículo 58.—Cada seis meses y siempre que lo ordene el Tribunal Supremo de Elecciones, se revisarán los libros del Registro Civil, por el Inspector Electoral o por otro funcionario a quien se encargue la revisión. Los libros de los Registradores Auxiliares los revisará el Inspector Electoral, u otro empleado del Tribunal o del Registro debidamente autorizado, debiendo rendir informe a su superior, en relación con la manera en que los libros sean llevados por el Registrador Auxiliar.
+Artículo 59.—El Registro Civil extenderá a quien solicite, previo pago de las especies fiscales correspondientes, certificación de asiento o asientos inscritos, o de que no aparece inscrito determinado suceso.
+Artículo 60.—Las certificaciones contendrán copia literal del asiento con todas sus notas marginales y cita del tomo y página en que se encuentre y estarán autorizadas con el sello de la oficina y la firma del Director del Registro o del Oficial Mayor Civil o del Secretario o del funcionario encargado de expedir certificaciones.
+Sin embargo las certificaciones sobre nacimiento se expedirán refiriéndolas al asiento original y según resulte de las modificaciones motivadas por los asientos marginales, salvo que el solicitante las requiera en forma literal, en cuyo caso se extenderán conforme a la solicitud.
+Artículo 61.—Cuando los Registradores Auxiliares se encontraren ausentes de la Oficina, los Oficiales Mayores o los Secretarios podrán recibir en su lugar las declaraciones que ocurran y enviarlas al Registro Civil.
+Artículo 62.—Todos los encargados del Registro responderán de los daños v perjuicios que ocasionen en el ejercicio de sus funciones por la inobservancia de las leyes y reglamentos que al Registro se refieran.
+Artículo 63.—Tanto los Registradores Auxiliares corno los Tesoreros de las Juntas de Protección Social y encargados de Cementerios, están en la obligación de corregir o anular en su caso, todos los documentos que el Registro Civil les devuelva por defectuosos, de manera que debidamente corregidos puedan inscribirse conforme a este reglamento.
+Artículo 64.—Por los asientos que se extienden en el Registro Civil y las declaraciones que se hagan a los Registradores Auxiliares. Tesoreros de las Juntas de Protección Social, etc.. no se cobrará remuneración alguna.
+Artículo 65.—El presente reglamento regirá después de treinta días naturales contados a partir de su publicación en el Diario Oficial.
+San José, 26 de setiembre de 1963.
