@@ -1,14 +1,4 @@
-Artículo 18.- En casos excepcionales, como la construcción de
-plantas industriales, instalaciones de pesca deportiva o instalaciones
-artesanales, de obras portuarias, programas de maricultura, u otros
-establecimientos o instalaciones similares, para cuyo funcionamiento sea
-indispensable su ubicación en las cercanías del mar, se podrá autorizar
-el uso de las áreas de la zona marítimo terrestre que fueren necesarias
-para facilitar su edificación y operación, siempre que se cuente con la
-aprobación expresa de la municipalidad respectiva, del Instituto
-Costarricense de Turismo, del Instituto Nacional de Vivienda y Urbanismo
-y demás instituciones del Estado encargadas de autorizar su
-funcionamiento, así como del Ministerio de Obras Públicas y Transportes.
-Sin embargo, cuando su vigencia exceda de quince años o sus prórrogas
-sumadas al plazo original sobrepasen ese plazo, se requiere autorización
-legislativa.
+Artículo 18.- En casos excepcionales, como la construcción de plantas industriales, instalaciones de pesca deportiva o instalaciones artesanales, de obras portuarias, programas de maricultura, u otros establecimientos o instalaciones similares, para cuyo funcionamiento sea indispensable su ubicación en las cercanías del mar, se podrá autorizar el uso de las áreas de la zona marítimo terrestre que fueren necesarias para facilitar su edificación y operación, siempre que se cuente con la aprobación expresa de la municipalidad respectiva, del Instituto Costarricense de Turismo, del Instituto Nacional de Vivienda y Urbanismo y demás instituciones del Estado encargadas de autorizar su funcionamiento, así como del Ministerio de Obras Públicas y Transportes.
+En el caso de construcción, instalación y operación de astilleros y diques secos o flotantes, se podrá autorizar el uso de las áreas de la zona marítimo terrestre que fueren necesarias para su funcionamiento, previa aprobación expresa de la municipalidad respectiva. Sin embargo, cuando su vigencia exceda de quince años o sus prórrogas sumadas al plazo original sobrepasen ese plazo, se requerirá autorización legislativa.
+(La reforma practicada a este artículo por el artículo 4° de la ley N° 6951 del 29 de febrero de 1984, posteriormente fue derogada por el artículo 37 (actual 38) de la Ley Nº 7210 de 23 de noviembre de 1990, “Ley de Régimen de Zonas Francas”. Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver éste al estado anterior a dicha reforma)
+(Nota de Sinalevi: Ver artículo 36 de la Ley Nº 7210 de 23 de noviembre de 1990, “Ley de Régimen de Zonas Francas”, en relación al funcionamiento de diques secos o Flotantes)

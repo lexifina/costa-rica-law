@@ -1,0 +1,1 @@
+Transitorio IV.- Los proyectos de desarrollo turístico aprobados por el Instituto Costarricense de Turismo con anterioridad a la vigencia de esta ley no serán afectados por las disposiciones de la misma.

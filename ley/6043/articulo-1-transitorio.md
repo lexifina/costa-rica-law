@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I.- Las concesiones o contratos de arrendamiento otorgados con fundamento en leyes anteriores, salvo las excepciones aquí establecidas, pasarán a control de las municipalidades respectivas y continuarán en los mismos términos y condiciones en que fueron convenidos, pero a su vencimiento y si fuere acordada su prórroga, se modificarán con arreglo a las normas de esta ley. Lo anterior referido a la zona marítimo terrestre.
