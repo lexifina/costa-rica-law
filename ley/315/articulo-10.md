@@ -1,1 +1,0 @@
-Artículo 10.-Ni el Gobierno de la Republica, ni ninguna de las instituciones que eligen la Directiva de la Caja, tendrán intervención alguna en su administración, la cual será de la absoluta responsabilidad de dicha Junta.

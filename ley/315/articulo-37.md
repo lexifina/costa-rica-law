@@ -1,1 +1,0 @@
-Artículo 37.-Autorízase al Ministerio de Economía, Hacienda y Comercio, para tomar todas las medidas que considere convenientes para lograr cuanto antes la instalación de la Caja y la iniciación de sus operaciones.

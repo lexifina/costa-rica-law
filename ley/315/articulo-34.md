@@ -1,1 +1,0 @@
-Artículo 34.-El fondo de reserva de la Caja será invertido y manejado en la forma y condiciones que la Junta considere más convenientes de acuerdo con las finalidades que estime más prudente proseguir dentro de las estipulaciones del artículo anterior.
