@@ -1,0 +1,4 @@
+Artículo 27
+1. Los programas y los servicios de educación destinados a los pueblos interesados deberán desarrollarse y aplicarse en cooperación con éstos a fin de responder a sus necesidades particulares, y deberán abarcar su historia, sus conocimientos y técnicas, sus sistemas de valores y todas sus demás aspiraciones sociales, económicas y culturales.
+2. La autoridad competente deberá asegurar la formación de miembros de estos pueblos y su participación en la formulación y ejecución de programas de educación, con miras a transferir progresivamente a dichos pueblos la responsabilidad de la realización de esos programas, cuando haya lugar.
+3. Además, los gobiernos deberán reconocer el derecho de esos pueblos a crear sus propias instituciones y medios de educación, siempre que tales instituciones satisfagan las normas mínimas establecidas por la autoridad competente en consulta con esos pueblos. Deberán facilitárseles recursos apropiados con tal fin.

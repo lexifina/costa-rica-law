@@ -1,0 +1,2 @@
+Artículo 12
+Los pueblos interesados deberán tener protección contra la violación de sus derechos, y poder iniciar procedimientos legales, sea personalmente o bien por conducto de sus organismos representativos, para asegurar el respeto efectivo de tales derechos. Deberán tomarse medidas para garantizar que los miembros de dichos pueblos puedan comprender y hacerse comprender en procedimientos legales, facilitándoles, si fuere necesario, intérpretes u otros medios eficaces.

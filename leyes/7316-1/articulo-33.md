@@ -1,0 +1,6 @@
+PARTE VIII. ADMINISTRACIÓN
+Artículo 33
+1. La autoridad gubernamental responsable de las cuestiones que abarca el presente Convenio deberá asegurarse de que existen instituciones u otros mecanismos apropiados para administrar los programas que afecten a los pueblos interesados, y de que tales instituciones o mecanismos disponen de los medios necesarios para el cabal desempeño de sus funciones.
+2. Tales programas deberán incluir:
+a) La planificación, coordinación, ejecución y evaluación, en cooperación con los pueblos interesados de las medidas previstas en el presente Convenio;
+b) La proposición de medidas legislativas y de otra índole a las autoridades competentes y el control de la aplicación de las medidas adoptadas en cooperación con los pueblos interesados.
