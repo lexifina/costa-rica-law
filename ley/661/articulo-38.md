@@ -1,7 +1,0 @@
-Artículo 38.- El Consejo estará formado por el Ministro del ramo que
-lo presidirá por derecho propio, por los Directores Generales de
-Educación, por el Jefe del Departamento Administrativo, por el Rector de
-la Universidad, por los Decanos de las Facultades de Filosofía y Letras,
-Ciencias y Pedagogía; por un representante de la Escuela de Pedagogía, un
-representante de la Educación Primaria, un representante de la Educación
-Secundaria y por un representante de la ANDE.
