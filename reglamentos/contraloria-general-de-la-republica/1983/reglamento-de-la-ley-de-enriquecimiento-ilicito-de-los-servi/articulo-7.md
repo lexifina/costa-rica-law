@@ -1,0 +1,1 @@
+Artículo 7°-Cuando de los datos suministrados por el denunciante se pueda inferir la existencia del delito de enriquecimiento ilícito o cualquier irregularidad que a juicio de la Contraloría General deba investigarse, se abrirá sumaria administrativa secreta para determinar si los hechos justifican llevar el asunto a conocimiento del Ministerio Público.

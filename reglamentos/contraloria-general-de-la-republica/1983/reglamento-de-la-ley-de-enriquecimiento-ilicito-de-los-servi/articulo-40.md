@@ -1,0 +1,1 @@
+Artículo 40. -En tanto la Contraloría General no se pronuncie sobre la procedencia de la remoción, el funcionario se mantendrá en el cargo, salvo que la Administración respectiva, hubiere tramitado conforme con el régimen jurídico correspondiente, la suspensión del servidor.

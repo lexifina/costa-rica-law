@@ -1,0 +1,2 @@
+Artículo 28.-Mientras el ex servidor no demuestre con el recibo respectivo que cumplió, dentro del término, con la obligación que le señala el artículo 26, será nulo el nombramiento con que se le invista para ocupar un cargo público aunque se trate de un puesto donde no esté obligado a rendir declaración jurada de bienes.
+El órgano respectivo comprobará que el servidor ha cumplido con el requisito de la declaración jurada de bienes final, antes de tramitar su nombramiento.

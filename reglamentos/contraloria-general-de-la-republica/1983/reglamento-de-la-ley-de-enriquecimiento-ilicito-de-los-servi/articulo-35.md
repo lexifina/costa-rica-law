@@ -1,0 +1,1 @@
+Artículo 35.-Corresponde al Departamento de Auditoría de la Contraloría General de la República llevar el registro de todas las declaraciones juradas de bienes, así como la verificación de su veracidad y su actualización.

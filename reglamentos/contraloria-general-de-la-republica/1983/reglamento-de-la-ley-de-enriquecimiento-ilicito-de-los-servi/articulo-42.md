@@ -1,0 +1,1 @@
+Artículo 42.-La Contraloría General de la República convocará una vez al año a un Congreso de Auditores de la Administración, con el objeto de revisar procedimientos y fijar normas que tiendan a mejorar el efectivo control de los procedimientos administrativos de los entes públicos.

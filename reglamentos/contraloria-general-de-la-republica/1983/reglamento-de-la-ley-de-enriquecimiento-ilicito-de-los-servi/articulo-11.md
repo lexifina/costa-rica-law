@@ -1,0 +1,2 @@
+Artículo 11.-Incurrirá en falta grave y se sancionará de conformidad con el régimen disciplinario interno, el servidor que proceda con negligencia, tardanza u ocultamiento de hechos, de informes o de datos en la tramitación de la sumaria administrativa, sin perjuicio de las demás sanciones procedentes conforme con la legislación penal.
+El superior jerárquico respectivo aplicará la sanción procedente de despido en forma inmediata, una vez que reciba la comunicación razonada que le remita la Contraloría.

@@ -1,0 +1,1 @@
+Artículo 8°-La Contraloría General de la República no dará trámite a las denuncias que se formulen con imprecisión sobre los datos relativos al denunciado o a los hechos o que de manera evidente no se refieran a irregularidades imputables a algún funcionario o ex funcionario público.

@@ -1,0 +1,1 @@
+Artículo 13.-La sumaria administrativa se tramitará bajo secreto; no obstante, el denunciado tendrá acceso al expediente y se podrá asesorar por un abogado, una vez que la Contraloría le reciba la declaración indagatoria.

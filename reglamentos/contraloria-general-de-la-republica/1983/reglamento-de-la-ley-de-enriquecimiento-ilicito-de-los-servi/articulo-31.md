@@ -1,0 +1,3 @@
+Artículo 31.-Las declaraciones juradas de bienes que los funcionarios deban rendir se tendrán por confidenciales. El servidor público que violare esta confidencialidad, así como el secreto de las sumarias administrativas, será destituido de su cargo sin responsabilidad para la Administración.
+La destitución deberá acordarla el superior jerárquico sin perjuicio de los procedimientos que deberán observarse al efecto, conforme con lo que establece la legislación vigente.
+Quedan a salvo de las disposiciones anteriores las informaciones que requieran el Ministerio Público, el juez, el propio interesado o las comisiones especiales de la Asamblea Legislativa.
