@@ -1,0 +1,2 @@
+Artículo 34.-Procederá el cierre del negocio para aquellas personas físicas o jurídicas que abran establecimientos dedicados a actividades lucrativas o realicen el comercio en forma ambulante sin contar con la respectiva licencia municipal.
+El cierre será ejecutado por las Gobernaciones, o por las Delegaciones cantonales o distritales de la Guardia de Asistencia Rural según el caso, en compañía de un inspector de patentes.

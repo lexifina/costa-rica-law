@@ -1,0 +1,1 @@
+Artículo 23.-La Administración determinará el monto del impuesto a pagar por cada patentado, en el transcurso del mes de enero siguiente, sin perjuicio de las revisiones que pueda realizar posteriormente.

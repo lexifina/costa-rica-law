@@ -1,0 +1,1 @@
+Artículo 36.-La revisión de las declaraciones y la correspondiente tasación, estará a cargo del Departamento de Patentes y los funcionarios asignados formalmente por el Ejecutivo Municipal, quienes serán los responsables de ejecutar lo establecido en la ley 7546.

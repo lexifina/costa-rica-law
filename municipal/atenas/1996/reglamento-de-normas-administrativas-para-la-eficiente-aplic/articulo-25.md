@@ -1,0 +1,1 @@
+Artículo 25.-La administración realizará el procedimiento de inspección periódica, para obtener promedios de ingreso por periodo de cualquier actividad que presente dificultades para la determinación de los indicios externos, especialmente en el transporte remunerado de personas, en ventas ocasionales, distribución de productos a domicilio.
