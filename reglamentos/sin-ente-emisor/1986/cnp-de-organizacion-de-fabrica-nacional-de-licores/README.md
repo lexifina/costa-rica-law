@@ -13,3 +13,4 @@ CNP: De Organización de Fábrica Nacional de Licores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1986-06-18 | la propia norma |
+| 2 | 1990-04-23 | Reglamento 0 (1990-04-23) |
