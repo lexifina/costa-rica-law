@@ -14,3 +14,4 @@ Reforma Integral Estructura Organizativa de la Dirección General de Aviación C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-04-29 | la propia norma |
+| 2 | 1999-12-09 | Decreto Ejecutivo 28321 (1999-12-09) |

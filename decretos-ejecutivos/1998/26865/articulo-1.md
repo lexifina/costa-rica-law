@@ -76,17 +76,58 @@ Estudios Económicos
 Acuerdos Bilaterales y Multilaterales
 Estudios Estadísticos
 Control del servicio del transporte aéreo
-Artículo 10.—El objetivo y productos de la Unidad de Servicios Aeronáuticos son los que se describen a continuación:
-OBJETIVOS
-Normar y regular los servicios de navegación aérea, operaciones y aeronavegabilidad y evaluar su cumplimiento.
-PRODUCTOS
-Certificados de matrícula y aeronavegabilidad
-Licencias al personal aeronáutico
-Certificados de operadores aeronáuticos
-Normas y procedimientos que garanticen la seguridad de la aviación civil de conformidad con los estándares internacionales
-Disminución de accidentes e incidentes desviación.
-Mapas y cartas aeronáuticas
-Servicio de navegación aérea
+* Artículo 10.—En cuanto a la función de la Unidad de Servicios Aeronáuticos:
+10.1. Sus Objetivos:
+Normar y regular los servicios de navegación aérea, operaciones, aeronavegabilidad y el otorgamiento de licencias, así como evaluar su cumplimiento. En esa capacidad tiene también la responsabilidad de armonizar los reglamentos y la coordinación entre las diversas secciones encargadas de poner en practica las normas nacionales e internacionales.
+10.2. Sus Productos:
+Certificados de matricula y aeronavegabilidad.
+Certificado de operador aéreo (COA).
+Certificado Operativo.
+Licencias al personal aeronáutico.
+Certificados de operador aeronáutico.
+Normas y procedimientos que garanticen la seguridad de la aviación civil de conformidad con los estándares internacionales.
+Disminución de accidentes e incidentes de aviación.
+Mapas y cartas aeronáuticas.
+Servicio de navegación Aérea.
+103. En cuanto a la Unidad de la sección Operaciones, son funciones esenciales:
+a. Redactar, enmendar y proponer las reglas relativas a las operaciones de las aeronaves.
+b. Certificar y aprobar los aspectos relativos a las operaciones de las aeronaves en la certificación de los explotadores aéreos.
+c. Ejecutar la inspección y vigilancia permanente de los explotadores certificados, aeropuertos y aeródromos en los aspectos relacionados con las operaciones,
+10.4. En cuanto a la Unidad de la sección Aeronavegabilidad, son funciones esenciales:
+a. Redactar, enmendar y proponer las reglas relativas a la aeronavegabilidad de las aeronaves.
+b. Certificar y aprobar los aspectos relativos a la aeronavegabilidad en la certificación de los explotadores aéreos.
+c. Ejecutar la inspección y vigilancia permanente de los explotadores, certificados en los aspectos relacionados con la aeronavegabilidad.
+d. Expedición, renovación y convalidación permanente del certificado de aeronavegabilidad.
+e. Aprobación de modificaciones e inspecciones a las aeronaves.
+f. Aprobación e inspección permanente de los organismos de mantenimiento y talleres aeronáuticos.
+g. Aprobación e inspección permanente en los aspecto- relativos a la aeronavegabilidad de todas las entidades certificadas por la D.G.A.C.
+h. Vigilar y controlar la información relativa al mantenimiento de la aeronavegabilidad.
+i. Analizar y aprobar modificaciones y reparaciones efectuadas a las aeronaves.
+j. Examinar, tramitar, matricular y cancelar los certificados de matricula de aeronaves, así como su control en el Registro Nacional de Aeronaves y la facilitación de la información que en él se hallare contenida.
+10.5. Estas dos secciones, en relación con sus incumbencias. tendrán a su cargo:
+a. Redactar, enmendar y proponer las reglas relativas a las licencias al personal de cada especialidad
+b. Examinar y aprobar las solicitudes de licencias y habilitaciones y la expedición de las mismas
+c. Evaluar la aptitud física de los postulantes o poseedores de licencias que así lo requieran
+d. Asegurar la coordinación entre aeronavegabilidad \ operaciones en todos los aspectos relativos a la emisión de las licencias respectivas
+10.6. En cuanto a la Unidad de la sección Tránsito Aéreo, son funciones esenciales:
+a. Prevenir colisiones entre aeronaves en general y entre las aeronaves que se hallen en tierra y obstáculos.
+b. Lograr la afluencia ordenada y expedita del tránsito aéreo.
+c. Dar consejo e información necesaria a las aeronaves para que puedan volar eficazmente en forma segura.
+d. Advertir a los servicios de búsqueda y salvamento sobre las aeronaves que necesiten asistencia y disponer las medidas necesarias para auxiliarlas.
+e. Brindar y coordinar la prestación de los servicios auxiliares a la navegación aérea: servicio de información aeronáutica (ARO AIS), comunicaciones (COM), meteorología (MET) y búsqueda y salvamento (SAR).
+10.7. En cuanto a la Unidad de la sección Licencias al personal, son funciones esenciales:
+a. Redactar, enmendar y proponer las reglas relativas a las licencias al personal de cada especialidad.
+b. Examinar y aprobar las solicitudes de licencias y habilitaciones y fa expedición de las mismas.
+c. Evaluar la aptitud física de los postulantes o poseedores de licencias que así lo requieran.
+d. Asegurar la coordinación en todos los aspectos relativos a la emisión de las licencias respectivas.
+10.8. En cuanto a la Unidad de la sección Investigación de Accidentes, son funciones esenciales:
+a. Notificar a los Estados de matricula, explotador, diseño, fabricación y a la O.A.C.I. de todo accidente o suceso ocurrido, para la prevención de futuros accidentes y bajo ninguna circunstancia con carácter punitivo.
+b. Investigar los accidentes e incidentes que se producen en el territorio nacional y participar como representante acreditado u observador en la investigación de aeronaves costarricenses
+accidentadas en el extranjero.
+c. Preparar un informe sobre las circunstancias del percance en la medida que lo permitan las leyes y procedimientos nacionales e internacionales.
+d. Descubrir, identificar, evaluar los riesgos y formular recomendaciones para eliminarlos y mantener a la administración y al personal aeronáutico informados acerca de las tendencias y problemas en materia de seguridad.
+e. Mantener un registro de los accidentes e incidentes y publicar las estadísticas anualmente para utilizarlas en prevención de accidentes.
+* (Así reformado mediante el artículo 1° del decreto ejecutivo N° 28321 del 9 de diciembre de 1999).
 Artículo 11.—El objetivo y productos de la Unidad de Aeropuertos son los siguientes:
 OBJETIVOS
 Facilitación y coordinación de los servicios que se prestan a los usuarios en la terminales aéreas tendientes a proveer la máxima seguridad, comodidad, agilidad y rentabilidad en la gestión.
@@ -127,7 +168,8 @@ Artículo 18.—Las Unidades Funcionales contarán con un responsable y un colab
 Artículo 19.—La Unidad de Servicios de Apoyo asumirá las actividades de Adiestramiento. Servicios de Biblioteca y Archivo General de Aviación Civil.
 Artículo 20.—En materia de recursos humanos cada Unidad Asesora o Funcional contara con las plazas técnicas, administrativas y profesionales que se requieran para su eficaz funcionamiento, debiendo la Autoridad Presupuestaria ajustar el nivel ocupacional y el nivel del gasto en este rubro, en la medida que favorezca el desarrollo de la actividad aeronáutica en Costa Rica.
 Artículo 21.—Todas las Unidades Asesoras y Funcionales definidas en este Decreto, se conformaran en equipos de trabajo por procesos, que permitan la flexibilidad y movilización de los recursos, de conformidad con las necesidades específicas. La Dirección General del Servicio Civil valorará a cada plaza componente de los equipos de trabajo, considerando aparte del nivel de dificultad y responsabilidad de sus tareas, el carácter especial y ámbito internacional de la actividad aeronáutica.
-Artículo 22.—Los ajustes en cuanto a funciones y definiciones de procesos para la Dirección General de Aviación Civil serán realizados por la Unidad de Planificación y serán aprobados por Planeamiento Administrativo del Ministerio de Obras Públicas y Transportes.
-Articulo 23.—Este Decreto deroga, en lo que se oponga, cualquier disposición normativa de igual o interior rango.
+* Artículo 22. La Dirección General de Aviación Civil, tendrá su estructura técnica propia e idónea para cumplir con las funciones y atribuciones que la ley y los tratados internacionales determinan, o que ésta considere conveniente en su ámbito de competencia interno; así mismo la Dirección General de Aviación Civil con fundamento en las potestades que la Ley General de Aviación Civil le otorgue, asumirá la responsabilidad de autorizar, designar, establecer funciones y supervisar a las personas y otras unidades que ésta considere necesarias, para cumplir con las responsabilidades de Costa Rica en los aspectos relacionados con la vigilancia de la seguridad operacional.
+* (Así reformado mediante el artículo 2° del decreto ejecutivo N° 28321 del 9 de diciembre de 1999).
+Artículo 23.—Este Decreto deroga, en lo que se oponga, cualquier disposición normativa de igual o interior rango.
 Artículo 24.—Rige a partir de su publicación.
 Dada en la Presidencia de la República.—San José a los tres días del mes de abril de mil novecientos noventa y ocho.
