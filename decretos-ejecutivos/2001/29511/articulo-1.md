@@ -70,7 +70,8 @@ Instituto de Fomento y Asesoría Municipal 1,051.8
 Instituto Geográfico Nacional 140.2
 Instituto Meteorológico Nacional 254.2
 Instituto Mixto de Ayuda Social 19,089.9
-Instituto Nacional de Estadística y Censos 863.9
+Instituto Nacional de Estadística y Censos 1,032.0
+( Así modificado por el artículo primero del Decreto Ejecutivo N°30876 07 de noviembre de 2002, con relación al límite de gasto presupuestario y efectivo del Instituto Nacional de Estadísitica y Censos, que lo estableció en 1,032.0 millones)
 Instituto Nacional de Fomento Cooperativo 946.3
 Instituto Nacional de las Mujeres 710.1
 Instituto Nacional de Vivienda y Urbanismo 5,702.8
