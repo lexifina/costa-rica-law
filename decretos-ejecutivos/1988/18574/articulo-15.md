@@ -1,0 +1,1 @@
+Artículo 15.—El ganado que se introduzca en Los Llanos ilegalmente y se determine quien es su dueño, será denunciado ante las autoridades competentes a través de la Guardia de Asistencia Rural. El Comité, la Asociación y el Servicio velarán por el cumplimiento y pondrán la denuncia ante dicha autoridad.

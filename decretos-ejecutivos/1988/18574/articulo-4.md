@@ -1,0 +1,1 @@
+Artículo 4°—Para efectos de uso de los terrenos de "Los Llanos", éste será permisible únicamente durante los meses de enero a junio de cada año, exceptuando los ubicados en el sitio denominado "Playuelas" cuyo uso se autorizará por todo el año.

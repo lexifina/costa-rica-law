@@ -1,0 +1,1 @@
+Artículo 16.—El incumplimiento de las obligaciones aquí estipuladas faculta al Comité y Asociación para solicitar al Servicio la rescinción del permiso de uso y podrán exigir .una indemnización por los daños y perjuicios causados por dicho incumplimiento.

@@ -1,0 +1,1 @@
+Artículo 7°—El Permisionario está obligado a avisar con ocho días de anticipación a la Administración del Refugio de Caño Negro, a la Asociación y al Comité, el día de ingreso del ganado a Los Llanos y traerlos al redondel de la Asociación en Caño Negro para su respectivo conteo por parte de las entidades supradichas.

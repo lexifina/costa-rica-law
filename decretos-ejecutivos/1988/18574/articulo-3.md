@@ -1,0 +1,1 @@
+Artículo 3°—Se destinan los terrenos del área denominada "Llanos Nacionales" del Refugio de Vida Silvestre de Caño Negro para uso comunal, exclusivamente para pastoreo de ganado vacuno y caballar, con las limitaciones que se estipulan en el presente reglamento.

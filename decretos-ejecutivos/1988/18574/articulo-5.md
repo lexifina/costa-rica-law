@@ -1,0 +1,1 @@
+Artículo 5°—El Permisionario deberá pagar la cuota que establezca "El Servicio" anualmente, por cada cabeza de ganado, al momento del ingreso del mismo a "Los Llanos". El dinero se pagará a "La Asociación" quien depositara el monto que le corresponde al "Servicio" en la cuenta especial (112156-5 Banco Nacional de Costa Rica).

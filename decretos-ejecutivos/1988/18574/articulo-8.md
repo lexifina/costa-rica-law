@@ -1,0 +1,1 @@
+Artículo 8°—Cuando se trate de grandes cantidades de ganado que ingresaren a Los Llanos el interesado avisará con ocho días de anticipación al Comité o a la Asociación para que realice la inspección a la finca y en la cual el Permisionario se compromete a tener todo el ganado que ingresará a Los Llanos en sus respectivos corrales.

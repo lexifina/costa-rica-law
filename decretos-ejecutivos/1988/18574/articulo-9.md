@@ -1,0 +1,1 @@
+Artículo 9°—Todo ganado que ingrese a "Los Llanos" debe contar con el respectivo certificado sanitario extendido por la Dirección de Salud Animal del Ministerio de Agricultura y Ganadería o por veterinario particular.

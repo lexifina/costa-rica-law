@@ -1,0 +1,1 @@
+Artículo 11.—El Permisionario que utilice Los Llanos durante el invierno y el verano pagará el doble de la cuota fijada. La autorización para este tipo de permiso se dará únicamente en el sitio denominado Playuelas y queda sometido a los trámites y sanciones aquí estipuladas.
