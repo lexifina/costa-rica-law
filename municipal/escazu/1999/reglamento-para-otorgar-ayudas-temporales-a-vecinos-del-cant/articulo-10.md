@@ -1,0 +1,1 @@
+Artículo 10.—El monto de la ayuda lo determinará el Concejo Municipal, previa recomendación de la Comisión de Hacienda, la cual debe estar debidamente motivada, y en ningún caso, el monto final asignado para la ayuda, podrá exceder la partida presupuestaria que para tales efectos se haya establecido en el Presupuesto Ordinario respectivo.

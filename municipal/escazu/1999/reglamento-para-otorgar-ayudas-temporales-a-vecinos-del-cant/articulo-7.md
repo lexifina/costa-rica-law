@@ -1,0 +1,1 @@
+Artículo 7°—Las ayudas otorgadas por la Municipalidad con fundamento en esta normativa, podrán estar constituidas por dinero en efectivo, artículos de primera necesidad, u otros, ello de acuerdo con las necesidades y prioridades que se determinen en cada caso, con fundamento en lo dictaminado por la Comisión Permanente de Asuntos Sociales.
