@@ -1,0 +1,1 @@
+Artículo 9º—De los nombramientos en propiedad. Los nombramientos en propiedad para ocupar las plazas que se encuentren vacantes se llevarán a cabo según el procedimiento establecido en el Estatuto de selección, ascensos y nombramientos de la Defensoría de los Habitantes de la República.

@@ -1,0 +1,3 @@
+Artículo 28.—De la justificación de ausencias. Las justificaciones de las ausencias deben remitirse al Departamento de Recursos Humanos, con el correspondiente visto bueno del superior respectivo, dentro del tercer día hábil posterior a la reincorporación del servidor (a) a su trabajo.
+El servidor (a) deberá notificar a su superior inmediato la causa de su ausencia al trabajo en el mismo día en que ésta ocurra. Sólo en casos de caso fortuito y fuerza mayor debidamente comprobadas que lo justifiquen, podrá notificar hasta el momento en que desaparezcan las causas que le impidieron hacerlo oportunamente.
+Las ausencias injustificadas de los servidores (as) , deberán ser comunicadas de inmediato al Departamento de Recursos Humanos por el superior jerárquico correspondiente.

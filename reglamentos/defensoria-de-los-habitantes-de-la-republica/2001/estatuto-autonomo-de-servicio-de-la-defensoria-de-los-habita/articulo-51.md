@@ -1,0 +1,2 @@
+Artículo 51.—Del ascenso en propiedad. Los ascensos en propiedad serán realizados por medio de concurso interno de antecedente de conformidad con lo que establece el Estatuto de selección, ascensos y nombramientos de la Defensoría de los Habitantes de la República.
+En los casos de ascensos en propiedad, el servidor (a) ocupará el nuevo puesto condicionado al período de prueba de hasta tres meses y deberá ser evaluado su desempeño por la jefatura inmediata. Dentro de ese lapso conservará los derechos de la plaza de la cual proviene.

@@ -1,0 +1,3 @@
+Artículo 29.—De la justificación de ausencias por enfermedad. Las justificaciones de ausencias por enfermedad deben ser acompañadas por el correspondiente certificado de incapacidad emitido por la Caja Costarricense de Seguro Social, el Instituto Nacional de Seguros, el médico de empresa y en casos calificados, por médicos particulares.
+No obstante, si la ausencia es hasta por un día, la justificación puede presentarse con el visto bueno del superior respectivo.
+Los certificados médicos particulares se aceptarán como justificación de la ausencia hasta por tres días. En caso de plazos mayores, se tendrán como válidos cuando provengan de un especialista en la enfermedad aludida por el servidor (a) y hayan sido avalados por el médico de empresa.

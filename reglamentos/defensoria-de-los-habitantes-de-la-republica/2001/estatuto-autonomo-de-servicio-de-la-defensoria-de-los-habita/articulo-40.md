@@ -1,0 +1,1 @@
+Artículo 40.—De las licencias para estudio. En caso de licencias para estudio, su otorgamiento estará regulado por el Estatuto para la Adjudicación de Becas y Subsidios para Estudios y Capacitación de Servidores (as).

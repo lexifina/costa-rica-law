@@ -1,0 +1,1 @@
+Artículo 77.—Del procedimiento de hostigamiento sexual. Las disposiciones anteriores referidas a faltas, sanciones y procedimientos disciplinarios no se aplicarán en materia de hostigamiento sexual. En este caso los procedimientos se regirán de conformidad con lo dispuesto en el Estatuto previsto para tal efecto.

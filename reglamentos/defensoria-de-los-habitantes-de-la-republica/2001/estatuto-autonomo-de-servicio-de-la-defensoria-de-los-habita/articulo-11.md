@@ -1,0 +1,1 @@
+Artículo 11.—Del período de prueba. El período de prueba tanto para los nombramientos interinos como en propiedad es hasta por un lapso de tres meses. El Jefe inmediato comunicará al Departamento de Recursos Humanos su recomendación según se establece en el presente Estatuto. En este período cualquiera de las partes puede dar por terminado el nombramiento sin responsabilidad.

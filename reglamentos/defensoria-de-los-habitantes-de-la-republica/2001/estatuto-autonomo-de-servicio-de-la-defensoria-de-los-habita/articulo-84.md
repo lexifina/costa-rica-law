@@ -1,0 +1,1 @@
+Artículo 84.—De la reincidencia. La reincidencia para efectos de aplicar las sanciones se computará en un período de tres meses, la cual será contada a partir del mes en que se le impuso una sanción por la misma causa.

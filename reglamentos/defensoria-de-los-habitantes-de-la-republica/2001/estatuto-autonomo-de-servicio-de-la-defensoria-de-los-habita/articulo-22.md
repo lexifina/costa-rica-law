@@ -1,0 +1,3 @@
+Artículo 22.—De las horas extra. Previa autorización del Defensor (a), cuando se requiera prestar servicio fuera de la jornada ordinaria, quienes ejercen funciones de jefatura podrán solicitar a los servidores (as) que trabajen horas extraordinarias remuneradas, con apego a los límites que indica la ley.
+No se reconocerá como jornada extraordinaria aquella que no hubiese sido autorizada. Tampoco se considerarán horas extraordinarias las que el trabajador ocupe en subsanar los errores imputables sólo a él, cometidos durante la jornada ordinaria.
+Los funcionarios (as) de confianza, no podrán recibir remuneración alguna por concepto de horas extra.

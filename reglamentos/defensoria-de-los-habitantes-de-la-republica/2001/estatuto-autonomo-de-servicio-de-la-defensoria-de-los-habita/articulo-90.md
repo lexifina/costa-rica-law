@@ -1,0 +1,1 @@
+Artículo 90.—Del compromiso Institucional con la Gestión Preventiva. Integrar, desarrollar y mantener un sistema de gestión preventiva de riesgos laborales, que permita el mejoramiento continuo de las condiciones de seguridad y salud ocupacional, como una responsabilidad institucional, con involucramiento y participación de todos los niveles de la organización.

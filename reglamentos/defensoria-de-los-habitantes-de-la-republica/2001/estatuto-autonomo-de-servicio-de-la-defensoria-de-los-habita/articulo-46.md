@@ -1,0 +1,3 @@
+CAPÍTULO IX
+De la evaluación del desempeño laboral
+Artículo 46.—De la evaluación del desempeño laboral. En la segunda quincena del mes de noviembre de cada año se hará una evaluación individual del personal regular de la Institución. Para calificación de los funcionarios (as) se utilizará un sistema de evaluación bidireccional. El sistema será preparado por el Departamento de Recursos Humanos, tomando en cuenta el perfil laboral de cada puesto. El resultado de la calificación durante el año respectivo se dará en orden de méritos de cada uno/a, como Excelente, Muy Bueno, Bueno, Insuficiente o Inaceptable.

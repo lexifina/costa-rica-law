@@ -1,0 +1,1 @@
+Artículo 34.—De la acumulación de vacaciones. Previa consulta al Departamento de Recursos Humanos, el Director o Jefe del Departamento podrá autorizar la acumulación de vacaciones por una única vez. En el caso de los Directores (as)la autorización deberá ser otorgada por el Defensor (a). De dichas acumulaciones quedará constancia en el expediente personal del servidor (a).

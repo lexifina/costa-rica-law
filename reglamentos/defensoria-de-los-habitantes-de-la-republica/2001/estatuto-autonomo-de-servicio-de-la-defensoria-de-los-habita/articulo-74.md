@@ -1,0 +1,4 @@
+Artículo 74.—De los recursos. Los recursos deberán presentarse dentro del término de tres días tratándose del acto final y de veinticuatro horas en los demás casos. Ambos plazos contados a partir de la última comunicación del acto.
+Contra de las resoluciones interlocutorias, cabrá el recurso de apelación ante el Defensor (a) de los Habitantes quien resolverá en el plazo de tres días hábiles a partir de que se eleve el expediente al Despacho.
+El recurso de reconsideración será resuelto por el Defensor (a) dentro del plazo de ocho días hábiles al recibo del expediente.
+El acto que agote la vía administrativa deberá contar de previo, con el dictamen de la Dirección de Asuntos Jurídicos, la cual deberá emitirlo dentro de los cinco días hábiles siguientes al recibo de la solicitud del criterio.

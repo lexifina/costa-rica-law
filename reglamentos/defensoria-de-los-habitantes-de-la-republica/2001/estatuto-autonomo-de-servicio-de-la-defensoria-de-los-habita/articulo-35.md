@@ -1,0 +1,3 @@
+Artículo 35.—Del plan institucional de vacaciones. De acuerdo con el plan institucional de vacaciones que elaborará el Departamento de Recursos Humanos en coordinación con los Directores (as) y Jefas (as) de Departamento, los servidores (as) disfrutarán en forma continua al menos de una tercera parte del período de vacaciones que le corresponde. En todo caso, podrán dividir el resto de su período de vacaciones en las fracciones que mejor les convenga.
+Sin detrimento de las funciones propias de la institución, pasadas quince semanas desde que se cumplieron las respectivas cincuenta semanas de trabajo continuo, el servidor (a) deberá reclamar por escrito sus vacaciones.
+La solicitud de vacaciones debe presentarse de previo a su disfrute.

@@ -1,0 +1,4 @@
+Artículo 19.—Del aguinaldo. Los servidores (as) tendrán derecho a una remuneración adicional anual denominada aguinaldo, correspondiente a la doceava parte del total de salarios ordinarios y extraordinarios devengados entre el 1º de noviembre de un año y el 31 de octubre del siguiente.
+Si un servidor (a) presta servicios durante un tiempo menor al indicado, recibirá el aguinaldo en proporción al tiempo servido.
+Esta remuneración se hará efectiva en el mes de diciembre de cada año.
+Cuando el trabajador hubiere disfrutado de licencias sin goce de sueldo, o hubiere sido suspendido, el sueldo adicional se calculará con base en el promedio de salarios del tiempo efectivamente laborado en el respectivo período. En los demás casos de suspensión de la relación de servicio con responsabilidad para el Estado, tales como la enfermedad del servidor (a), licencias con goce de sueldo y otros, el aguinaldo se reconocerá completo.

@@ -1,0 +1,1 @@
+Artículo 76.—De la ejecución de las sanciones. La ejecución de las sanciones disciplinarias impuestas mediante los procedimientos señalados en este capítulo, se aplicarán a partir del día siguiente de la firmeza de la sanción. La aplicación corresponderá al Departamento de Recursos Humanos.

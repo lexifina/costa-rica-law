@@ -1,0 +1,2 @@
+Artículo 7º—De los nombramientos en general. Para ocupar una plaza de la Defensoría de los Habitantes de la República, todo oferente deberá cumplir con los requisitos académicos, legales y los demás establecidos por el Manual Descriptivo de Puestos.
+En los casos en que proceda el nombramiento de personal, sea este interino o en propiedad, se exigirá al aspirante una declaración jurada con el fin de verificar que se haya cumplido con lo establecido en el artículo 25 de la Ley N° 6955 y sus reformas.

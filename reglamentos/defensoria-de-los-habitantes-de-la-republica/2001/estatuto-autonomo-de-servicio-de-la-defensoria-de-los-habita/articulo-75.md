@@ -1,0 +1,1 @@
+Artículo 75.—Del plazo de iniciación del procedimiento. El procedimiento disciplinario deberá iniciarse dentro del plazo perentorio de un mes contado a partir del momento en que las autoridades tengan conocimiento de los hechos que conduzcan a las sanciones de suspensión sin goce de sueldo o al despido sin responsabilidad para el Estado, o cualquier otra de similar gravedad.

@@ -1,0 +1,2 @@
+Artículo 72.—Del acto final. Emitidas las recomendaciones por parte del Órgano Director o en su caso por la Junta de Relaciones Laborales, el Defensor (a) dictará en el plazo perentorio de quince días el hábiles acto final mediante acto motivado.
+El Departamento de Recursos Humanos será responsable de notificar al servidor (a) la resolución, la cual tendrá el recurso que indica el artículo 74 de éste Estatuto. Dicha resolución será comunicada según lo establece la Ley N° 7637, de las Notificaciones, Citaciones y otras comunicaciones oficiales.

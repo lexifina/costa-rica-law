@@ -1,0 +1,1 @@
+Artículo 2º—Del jerarca. Para los efectos de este Estatuto se entenderá como patrono a la Defensoría de los Habitantes de la República representada por el Defensor(a) de los Habitantes quien es el jerarca de la institución.

@@ -1,0 +1,10 @@
+CAPÍTULO XIII
+Del Régimen Sancionatorio
+Artículo 78.—Del régimen de sanciones. Los servidores (as) de la Defensoría de los Habitantes de la República estarán sujetos a responsabilidad administrativa cuando, por dolo o culpa grave, incurran en algunas de las conductas sancionables según el presente Estatuto y demás normativa aplicable, lo cual dará lugar a la imposición de las sanciones disciplinarias correspondientes por parte del Defensor (a) de los Habitantes, el Defensor (a) Adjunto, el órgano director del procedimiento administrativo, los Directores, los Jefas (as) de Departamento y demás funcionarios (as) con personal a cargo, según corresponda.
+Sin perjuicio de las leyes aplicables a la Defensoría de los Habitantes, las sanciones se harán efectivas de conformidad con la gravedad de la falta, la reincidencia y otros elementos de juicio similares y serán:
+a) Amonestación verbal.
+b) Amonestación escrita.
+c) Suspensión del trabajo sin goce de sueldo hasta por un mes.
+d) Despido sin responsabilidad patronal.
+Tales sanciones se aplicarán atendiendo no estrictamente el orden en que aquí aparecen, sino la gravedad de la falta y la reincidencia de la misma.
+Firme la resolución que notifique la suspensión sin goce de sueldo o el despido sin responsabilidad patronal, el servidor (a) deberá hacer entrega a su superior inmediato, contra inventario, de activos que se encuentren bajo su custodia, incluyendo las llaves de acceso a los mismos. En los casos que proceda, el funcionario (a) deberá presentar un informe actualizado en el que conste el estado de los expedientes que se encuentre tramitando, las tareas pendientes, así como la documentación institucional -física y electrónica- bajo su responsabilidad. Asimismo, se le solicitará retirar todos sus efectos personales, previo a separarse de la institución. En caso de inobservancia de la prevención realizada, se entenderá que la Administración tendrá la potestad de hacer uso, con apego a las normas existente, de los expedientes, activos y documentación institucional.

@@ -1,0 +1,3 @@
+Artículo 60.—De las revaloraciones de puestos. Se entenderá por revaloración la modificación del salario base de las clases de puestos por concepto de un aumento en el costo de vida o razones de tipo técnico-jurídico. Se manifiesta en la ubicación del puesto en un nuevo nivel salarial.
+La revaloración por ajuste técnico es aquella revaloración salarial específica de una clase o grupo de éstas, basada en razones técnico-jurídicas distintas, al costo de vida.
+Las revaloraciones por costo de vida son las que se dan con el propósito de compensar la pérdida del poder adquisitivo de los salarios de los servidores (as) públicos.
