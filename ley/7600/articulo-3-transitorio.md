@@ -1,0 +1,1 @@
+TRANSITORIO III.- La Dirección General de Servicio Civil adaptará los procedimientos y mecanismos de reclutamiento y selección de personal, en un plazo máximo de dos años, para cumplir con lo dispuesto en el artículo 24 de esta ley.

@@ -1,0 +1,4 @@
+ARTICULO 63.-
+Sanciones por irregularidades en el reclutamiento y selección de personal En el Estado, sus instituciones y corporaciones, será anulable, a solicitud de la parte interesada, todo nombramiento, despido, suspensión o traslado, permuta, ascenso, descenso o reconocimientos que se efectúen en contra de lo dispuesto en esta ley.
+Los procedimientos para reclutar y seleccionar personal carecerán de eficacia en lo que resulte violatorio contra esta ley.
+Los funcionarios causantes de la acción en contra de lo dispuesto en esta ley serán, personalmente, responsables y responderán con su patrimonio por los daños y perjuicios que resulten.

@@ -1,0 +1,1 @@
+TRANSITORIO VI.- El Ministerio de Obras Públicas y Transportes iniciará, de inmediato y con los recursos existentes, la ejecución de las obligaciones señaladas en la presente ley y la completará en un plazo máximo de siete años.
