@@ -10,4 +10,7 @@ e) Procurar la colaboración de los sectores representados en él, para la búsq
 f) Proponer métodos modernos de trabajo para la Inspección de Trabajo.
 g) Sugerir mecanismos y procedimientos que permitan una mayor participación de los trabajadores y patronos, así como de sus respectivas organizaciones, en los procesos de inspección de trabajo.
 Asimismo, se crea un Consejo Técnico Consultivo Regional, con las mismas tareas, actividades, competencias y funciones que tiene el Consejo Nacional, en relación con la respectiva Oficina Regional de que se trate.
-Dichos Consejos sesionarán una vez por trimestre y extraordinariamente cuando los convoque quien los presida. Sus miembros no devengarán dietas.
+Dichos Consejos realizarán como mínimo una sesión bimestral y extraordinariamente cuando los convoque quien los preside. Sus miembros no devengarán dietas.
+El Viceministro dictará un reglamento de funcionamiento de los Consejos Consultivos Nacional y Regionales.
+(Así reformado su último párrafo por el artículo 1 del Decreto Ejecutivo N° 29361 de
+20 de febrero del 2001).
