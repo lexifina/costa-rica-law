@@ -1,2 +1,2 @@
-Artículo 70.- Si el Notario no conociere a las partes o alguna de ellas, deben concurrir al otorgamiento de la escritura dos testigos más que las conozcan y sean a la vez conocidos del Notario, para que éste funde sobre el dicho de ellos la fe de identidad.
-Sin embargo, cuando los interesados exhiban al Notario su cédula de identidad, éste podrá prescindir de los testigos de conocimiento, y fundarse en ese documento para la identificación de las partes.
+Artículo 70.-Si el notario no conociere a las partes o a alguna de ellas y no fueren suficientes, a su juicio, los documentos de identificación que se le mostraren, hará concurrir al otorgamiento de la escritura dos testigos de conocimiento que sean conocidos suyos y de las partes, para que fundamente sobre el dicho de ellos la fe de identidad.
+(Así reformado por el artículo 1° de la ley N° 6145 del 18 de noviembre de 1977)

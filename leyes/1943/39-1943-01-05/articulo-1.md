@@ -7,4 +7,6 @@ Ley Orgánica del Notariado
 TITULO I
 CAPITULO I
 Disposiciones Generales
-Artículo 1º.- La persona autorizada para ejercer el notariado tiene fe pública cuando hace constar un acto jurídico o un contrato que tenga por objeto asegurar o hacer constar derechos puramente civiles, en los límites que la ley señala a sus atribuciones y con observancia de los requisitos que ella exige.
+Artículo 1°-La persona autorizada para ejercer el notariado público tiene fe pública cuando deja constancia de un hecho, suceso, situación, acto jurídico o contrato que tenga por objeto asegurar o hacer constar derechos y obligaciones dentro de los límites .que Ia ley señala a sus atribuciones y observando los requisitos que exige.
+Cuando en la ley se: use simplemente el término "Notario" debe entenderse referido al "Notario Público”.
+(Así reformado por el artículo 1° de la ley N° 6145 del 18 de noviembre de 1977)
