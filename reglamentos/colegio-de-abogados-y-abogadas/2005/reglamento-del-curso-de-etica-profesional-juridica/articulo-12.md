@@ -1,0 +1,1 @@
+Artículo 12.—Ausencia a la prueba ordinaria. Cuando un candidato no se presente a la prueba ordinaria reprobará el Curso. Salvo en el caso de ausencia justificada y previa autorización del Departamento Académico, el estudiante podrá realizar el examen en la convocatoria de ampliación, perdiendo el derecho a la prueba ordinaria.

@@ -1,0 +1,1 @@
+Artículo 14.—Independencia. En el cumplimiento de sus funciones, el Tribunal Examinador actuará con independencia de todo otro órgano o instancia administrativa del Colegio y estará sometido sólo a lo que dispongan la Constitución Política, las Leyes de la República y el presente Reglamento en el que se entiende incorporado el Programa del Curso.

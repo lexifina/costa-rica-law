@@ -1,0 +1,1 @@
+Artículo 18.—Procedimiento. El recurso de revisión se iniciará con la gestión escrita del recurrente ante el Departamento Académico, en la cual aquél deberá exponer en forma clara y razonada los motivos de su disconformidad, con indicación de las pruebas pertinentes.

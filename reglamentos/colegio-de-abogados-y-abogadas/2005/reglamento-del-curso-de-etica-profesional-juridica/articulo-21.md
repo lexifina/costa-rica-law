@@ -1,0 +1,1 @@
+Artículo 21.—Efectos. Los efectos de la prueba recurrida no quedarán suspendidos mientras se resuelve la revisión planteada. Si la revisión se declarare con lugar, el candidato aprobará el curso. Si la revisión se declarare sin lugar, el candidato deberá repetir el Curso, con las salvedades del artículo 9º inciso g), de este reglamento.

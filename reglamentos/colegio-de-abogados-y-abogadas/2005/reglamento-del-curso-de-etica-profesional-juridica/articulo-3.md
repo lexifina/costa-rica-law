@@ -1,0 +1,2 @@
+Artículo 3º—Modalidades y duración. El Curso se ofrecerá mediante tres modalidades: a) Ordinario matutino, b) Ordinario vespertino; c) Intensivo. Cualquier modalidad comprende un total de treinta horas presenciales.
+De conformidad con lo establecido en el artículo 7º de este mismo Reglamento, el Departamento Académico del Colegio de Abogados será el órgano encargado de establecer los horarios y fechas en las cuales se impartirá el mismo.

@@ -1,0 +1,2 @@
+Artículo 4º—Apertura, cupo y sedes. Todos los cursos, sin importar la modalidad, requerirán de una matrícula mínima de veinte estudiantes y hasta un máximo de treinta y cinco para ser impartidos.
+El Curso será impartido en la sede central del Colegio en Zapote pero también podrá ser impartido en las sedes regionales o en las Asociaciones de Abogados existentes en el territorio nacional, previa autorización del Departamento Académico cuando exista disponibilidad docente y una demanda de matrícula acorde con lo previsto en este artículo.
