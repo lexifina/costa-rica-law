@@ -5,4 +5,5 @@ Las personas obligadas al pago de este tributo deberán presentar mensualmente u
 Sólo podrán ser autorizados los casinos o salas de juego en aquellos hoteles calificados de primera categoría, con tres o más estrellas, conforme lo establezca el Instituto Costarricense de Turismo.
 La patente municipal anual que deberá pagar la persona física o jurídica autorizada para la explotación de casinos o salas de juego será de quinientos mil colones (¢ 500.000) anuales.
 Se establece una multa de doscientos mil colones (¢ 200.000.00) por cada mesa de juego, en aquellos casos en que se practiquen juegos prohibidos sin perjuicio de cualquier otra sanción que se pueda imponer.
-Para los efectos de esta ley, los ingresos netos estarán constituidos por la diferencia entre los ingresos recibidos en moneda, cheques, mediante tarjetas de crédito y otros, y el total de egresos representado por las fichas cambiadas. En el reglamento de esta ley se establecerán los procedimientos, exigencias y controles necesarios para la debida fiscalización de este tributo.
+En el reglamento de esta ley se establecerán los procedimientos, exigencias y controles necesarios para la debida fiscalización de este tributo.
+*(Así modificado el párrafo anterior mediante resolución de la Sala Constitucional N° 2359-94 del 17 de mayo de 1994.)
