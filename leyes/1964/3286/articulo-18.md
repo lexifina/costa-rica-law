@@ -1,1 +1,0 @@
-Artículo 18.- El Director Ejecutivo del Patronato asistirá a las sesiones de la Junta Directiva, con voz pero sin voto. También podrá ser llamado a ellas cualquier funcionario o empleado por algún motivo especial.

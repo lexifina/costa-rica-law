@@ -1,1 +1,0 @@
-Artículo 34.- En los cantones o distritos que requieran la atención de funcionarios especiales, ya sea por el número de habitantes o por otras razones, de especial consideración, la Junta Directiva designará una Delegación, cuyo jefe será el funcionario que nombre el Director Ejecutivo.

@@ -1,1 +1,0 @@
-Artículo 36.- El Director Ejecutivo de la Institución, así como sus Representantes y Delegados podrán tomar declaraciones, bajo la fe del juramento, a testigos y a cualquier persona que intervenga en sus diligencias y actuaciones.

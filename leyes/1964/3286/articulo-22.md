@@ -1,1 +1,0 @@
-Artículo 22.- La Junta elegirá un Vicepresidente y un Secretario, quienes durarán en sus cargos un año, y podrán ser reelectos. El Vicepresidente sustituirá al Presidente en sus ausencias temporales; en su defecto, presidirá uno de los vocales, a la suerte.
