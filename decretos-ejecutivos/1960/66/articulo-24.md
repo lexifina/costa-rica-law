@@ -1,0 +1,1 @@
+Artículo 24.—Los concesionarios están obligados a prestar un servido eficiente, tratando de brindar todas las condiciones necesarias para la seguridad, el orden, la sanidad y la moralidad en sus embarcaciones.

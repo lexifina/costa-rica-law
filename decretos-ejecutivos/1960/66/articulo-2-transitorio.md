@@ -1,0 +1,1 @@
+Transitorio Segundo.—Las empresas que de acuerdo con el transitorio de la Ley hayan obtenido su derecho a la línea y a la concesión, deberán cumplir' con todos los requisitos exigidos por la ley y este Reglamento, dentro de un término no mayor de seis meses a partir de la promulgación de la resolución que se le declare su derecho.

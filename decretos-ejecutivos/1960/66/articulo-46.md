@@ -1,0 +1,1 @@
+Artículo 46.—Los capitanes de las embarcaciones serán responsables y podrán ser suspendidos de seis días a un mes, en caso de que por negligencia se incumpla alguna de las disposiciones contenidas en los artículos 39 y 41, sin perjuicio de las medidas que se indiquen en los reglamentos de servicio.

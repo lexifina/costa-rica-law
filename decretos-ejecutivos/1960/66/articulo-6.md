@@ -1,0 +1,1 @@
+Artículo 6°—Para que se pueda considerar que son aptas para prestar este servicio, deberán las embarcaciones citadas, tener capacidad para transportar un mínimum de cinco pasajeros o un mínimum de dos toneladas métricas de carga.

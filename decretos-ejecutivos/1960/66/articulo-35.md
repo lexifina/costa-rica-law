@@ -1,0 +1,1 @@
+Articulo 35.—Las solicitudes deberán ser presentadas al Ministerio, el que las remitirá de inmediato al Capitán de Puerto y Presidente de la Comisión de Consulta. Este deberá convocar a los restantes miembros para celebrar sesión dentro de un plazo no mayor de cuatro días. Habrá quórum con la presencia de tres representantes.

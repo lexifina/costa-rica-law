@@ -1,0 +1,1 @@
+Artículo 12.—Las concesiones se otorgarán a quienes presenten mayores garantías de seguridad y de servicio, por medio de licitación pública del Ministerio. Se dará preferencia, en igualdad de circunstancias y condiciones, a los que la soliciten teniendo un servicio establecido y organizado.

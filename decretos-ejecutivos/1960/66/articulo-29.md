@@ -1,0 +1,1 @@
+Artículo 29.—La comisión se instalará a más tardar el último día de noviembre y tendrá su sede en la Capitanía respectiva. Excepto en cuanto a sus miembros natos, los demás durarán en sus cargos dos años.

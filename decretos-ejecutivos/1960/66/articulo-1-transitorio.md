@@ -1,0 +1,1 @@
+Transitorio Primero.—Mientras no esté integrada y trabajando la Comisión, podrá el Ministerio otorgar concesiones conforme a lo establecido en la Ley y este Reglamento manteniendo las tarifas que se han estado usando hasta la fecha de la promulgación de la ley.

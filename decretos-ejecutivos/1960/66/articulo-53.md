@@ -1,0 +1,1 @@
+Articulo 53.—Una vez resuelta la caducidad, se tendrá por cancelada la autorización, arrendamiento o mera tolerancia de que viniere gozando el empresario para mantener bodegas, o instalaciones de la empresa dentro de la milla marítima.

@@ -1,0 +1,1 @@
+Artículo 59.—Toda empresa deberá proveerse de la correspondiente Póliza de Riesgo Profesional y Póliza de Seguro para pasajeros, del Instituto Nacional de Seguros y a su número deberán referirse en la solicitud de zarpe; sin ese requisito no se concederá el zarpe solicitado.

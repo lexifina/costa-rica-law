@@ -1,0 +1,1 @@
+Artículo 22.—Las autorizaciones las otorgará el Ministerio anualmente las embarcaciones, una vez que éstas hayan sido revisadas por los inspectores que se señalan en el inciso d) del artículo 39 de este Reglamento.

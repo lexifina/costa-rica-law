@@ -1,0 +1,3 @@
+CAPITULO NOVENO
+DISPOSICIONES VARIAS
+Articulo 58.—Las empresas de cabotaje comprendidas en lo dispuesto en el transitorio de la ley y que hayan cumplido con el requisito indispensable de legalizar su línea y obtener su concesión dentro del término de seis meses desde la promulgación de la ley, es decir, del 20 de junio al 20 de diciembre de mil novecientos cincuenta y ocho, tiene automáticamente obtenidas su línea y su concesión. El Ministerio, al extender el certificado de concesión correspondiente lo otorgará por medio de una resolución, cuyo número será el que distinguirá la línea correspondiente, de puerto a puerto, y al cual harán mención en todas las gestiones relacionadas con la ley o el presente Reglamento.

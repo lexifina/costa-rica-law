@@ -1,0 +1,1 @@
+Articulo 9°—La concesión de un derecho de línea, faculta al concesionario para explotar el cabotaje entre dos puertos nacionales de un mismo litoral, pudiendo hacer escala en íos puertos intermedios, siempre y cuando, no se cause manifiesta interferencia a otra línea ya establecida, en uno de los puertos intermedios.

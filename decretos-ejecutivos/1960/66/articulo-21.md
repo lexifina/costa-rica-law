@@ -1,0 +1,1 @@
+Articulo 21.—La autorización que otorga el Ministerio, es independiente del derecho de explotar una concesión de línea obtenido por licitación. Ambos se implementan, y no podrá prestarse el servicio sin esos requisitos.

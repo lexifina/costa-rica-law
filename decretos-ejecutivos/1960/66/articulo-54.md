@@ -1,0 +1,1 @@
+Articulo 54.—Una vez cancelada la autorización, deberá el arrendatario o poseedor retirar de inmediato las bodegas o instalaciones, salvo que sean cedidas, rendidas o traspasadas al nuevo concesionario del servicio caduco.

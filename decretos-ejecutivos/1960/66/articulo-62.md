@@ -1,0 +1,1 @@
+Artículo 62.—Toda solicitud de concesión de línea, las autorizaciones anuales, y demás fojas de tramitación indicadas en el presente Reglamento se harán en papel de la décima clase indicado en el inciso 5) del articulo 249 del Código Fiscal y deberán ser autenticados por un abogado.

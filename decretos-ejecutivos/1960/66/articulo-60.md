@@ -1,0 +1,1 @@
+Artículo 60.—Toda embarcación de servicio de cabotaje deberá llevar un Diario de Navegación debidamente sellado y autorizado por la Capitanía de Puerto respectiva, en donde se anotarán todas las incidencias del viaje, en orden cronológico, conforme lo ordena el inciso e) del articulo 14 de la Ley.

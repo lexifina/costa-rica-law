@@ -1,0 +1,1 @@
+Articulo 25.—Toda empresa deberá tener Reglamento de Servicio, y la que cuente con cinco o más empleados, habrá de tener, además. Reglamento Interior de Trabajo, del cual, una vez aprobado por el Ministerio de Trabajo y Previsión Social, deberá enviar una copia al Ministerio y otra a la Capitanía respectiva.

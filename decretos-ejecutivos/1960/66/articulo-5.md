@@ -1,0 +1,1 @@
+Articulo 5°—Sólo podrá ejercer el servicio de cabotaje la persona que goce de la respectiva concesión y usando en él embarcaciones que cuenten con la lida autorización del Ministerio. Ninguna otra persona física o jurídica puede dedicarse al transporte remunerado de personas o de carga o de ambas a la vez.

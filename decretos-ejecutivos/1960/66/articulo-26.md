@@ -1,0 +1,1 @@
+Articulo 26.—Corresponde al Ministerio el estudio, la aprobación, la revisión o modificación de itinerarios, horarios, reglamentos de servicio, tarifas, sus elementos de aplicación y demás documentos que le sometan a estudio los concesionarios.

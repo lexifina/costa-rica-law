@@ -1,0 +1,1 @@
+Artículo 42.—Caso de incumplimiento a lo dispuesto por los incisos a) y c) del artículo anterior, la Capitanía, la Sub-Inspección o la Agencia, según el caso, no autorizarán el zarpe, sin perjuicio de imponer una suspensión al capitán de la nave, en la forma que se indicará.

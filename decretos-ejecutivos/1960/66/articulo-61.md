@@ -1,0 +1,1 @@
+Articulo 61.—Los casos no previstos en el presente Reglamento, serán resueltos de conformidad con la Ley de Servicio de Cabotaje o de acuerdo con la interpretación más lógica y más ajustada a derecho.

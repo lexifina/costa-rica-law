@@ -1,0 +1,1 @@
+Artículo 23.—Si el informe dado por los inspectores resultare desfavorable, no se dará la autorización de que habla el articulo 22, hasta tanto no se realicen los trabajos que se hayan indicado en la inspección.
