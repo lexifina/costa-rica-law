@@ -1,1 +1,2 @@
-Artículo 7º—Se deroga el Decreto Ejecutivo Nº 22163-MP-H-TUR del 22 de abril de 1993.
+Artículo 7º—Cuando en virtud de un proceso de ejecución de una garantía real que pese sobre concesiones del proyecto, se lo adjudique el acreedor ejecutante, no para explotarlo, sino para propiciar su venta a efectos de recuperar los montos respaldados con esas garantías, en caso de traspaso a un tercero, esta transacción no pagará el monto establecido en el párrafo segundo del artículo 12 del Decreto Ejecutivo No. 25439-MP-H-TUR, del 27 de agosto de 1996.
+(Así adicionado por el artículo 1 del Decreto Ejecutivo Nº 30259-MP-TUR del 21 de febrero del 2002, corriendo su numeración)
