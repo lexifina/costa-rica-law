@@ -14,3 +14,4 @@ Reglamento del Formulario Terapéutico Nacional
 | --- | --- | --- |
 | 1 | 1989-12-19 | la propia norma |
 | 2 | 1994-11-02 | Decreto Ejecutivo 23806 (1994-11-02) |
+| 3 | 1997-05-30 | Decreto Ejecutivo 26139 (1997-05-30) |

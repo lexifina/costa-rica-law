@@ -1,921 +1,807 @@
-(*)Formulario Terapéutico Nacional:
-(*)(Incluido mediante el artículo 2° del Decreto Ejecutivo N° 23806 de 2 de noviembre de 1994)
-Descripción Nivel de uso
-CCSS INS
-O1 AMEBICIDAS, ANTIPARASITARIOS
-ANTIHELMINTICOS
-Bencilo (benzoato) 25% loción, frasco 120 o 180 ml. AP HM
-Cloroquina. Base: 150 mg (como fosfato), tabletas. M
-Cloroquina. Base: 75 mg (como fosfato), tabletas. M
-Cloroquina. Base: 75 mg (como fosfato) + Primaquina.
-Base: 7,5 mg (como fosfato), tableta. M
-Cloroquina. Base: 150 mg (como fosfato) + Primaquina.
-Base: 15 mg (como fosfato), tabletas. M
-Hidroxicloroquina. Base: 300 mg.,
-como sulfato 400 mg, tabletas M
-Levamisol clorhidrato 50 mg, tabletas R
-Mebendazol 100 mg, tabletas AP
-Meglumina (antimoniato) 30% (300 mg/ml)
-inyectable ampolla de 5 ml M E
-Metronidazol. Base: 125 mg. En 5 ml (como benzoilo)
-suspensión oral, frasco de 120 ml. M
-Metronidazol 500 mg, tabletas M HM
-Pirimetramina 23 mg, tabletas E
-Primaquina. Base: 5 mg (como fosfato), tabletas M
-Primaquina. Base: 15 mg (como fosfato), tabletas M
-Tiabendazol 1 g. en 5 ml, suspensión oral al 20%,
-frasco de 15 ml. M
-02 ANTIBIOTICOS
-Acedapsona 750 mg (150 mg/ml), inyectable
-frasco-ampolla de 5ml E
-Amikacina. Base: 100 mg (como sulfato),
-inyectable, frasco-ampolla de 2 ml. HR
-Amikacina. Base: 500 mg (como sulfato),
-inyectable, frasco-ampolla de 2 ml. HR HR
-Amoxicilina. Base: 500 mg (trihidrato),
-cápsula o tabletas M
-Amoxicilina (como trihidrato) Base: 250 mg en 5 ml,
-polvo para suspensión, frasco de 60 o 100 ml. M
-Ampicilina. Base: 500 mg (como sal sódica),
-inyectable, frasco-ampolla de 5 ml. HM
-Cefalexina. Base: 500 mg (anhidra o monohidrato),
-cápsula o tableta. M M
-Cefalexina. Base: 250 mg, en 5 ml (como monohidrato),
-polvo para suspensión oral, frasco de 60 ml. M
-Cefalotina. Base. 1 g. (como sal sódica), inyectable,
-frasco-ampolla de 10 ml. HM HM
-Cefotaxima o Ceftriaxona. Base: 1 g, inyectable,
-frasco-ampolla de 10 ml. HR HM
-Ceftazidima. Base: 1 g (como pentahidrato),
-inyectable, frasco-ampolla de 10 ml. HR
-Ciprofloxacina. Base: 250 mg (como clorhidrato),
-tabletas ranuradas. R HM
-Clindamicina. Base. 600 mg (150 mg/ml),
-(como fosfato), inyectable, frasco-ampolla o ampollas
-de 4ml HR HM
-Cloranfenicol 500 mg, cápsulas. M M
-Cloranfenicol. Base: 125 mg en 5 ml. (como palmitato
-o estearato), suspensión o jarabe oral, frasco de
-60 ml M
-Dapsona 100 mg. tableta. E
-Dicloxacilina. Base: 500 mg (como sal sódica),
-cápsulas M M
-Eritromicina. Base: 500 mg (como estearato o
-estilsuccionato o base), tabletas. M M
-Eritromicina. Base. 250 mg en 5 ml. (como estearato),
-suspensión oral, frasco de 60 ml. M
-Espiramicina o acetil espiramicina 500 mg, tableta o
-cápsula. E
-Gentamicina. Base: 20 mg (10 mg/ml), (como sulfato),
-inyectable, frasco-ampolla o ampollas de 2 ml. HM
-Gentamicina. Base. 80 mg (40 mg/ml), (como sulfato),
-inyectable, frasco-ampolla o ampollas de 2 ml. HM HM
-Imipenen 500 mg, (como monohidrato) más Cilastatina
-500 mg, (como sal sódica) inyectable frasco-ampolla HR
-Metronidazol 05 g. (5 mg/ml), inyectable,
-bolsa de 100 ml o ampolla de 10 ml. HE
-Neomicina. Base: 250 mg a 350 mg
-(como sulfato) cápsulas o tabletas. HM
-Oxacilina. Base: 1 g (como sal sódica),
-inyectable, frasco-ampolla de 10 ml. HM HM
-Penicilina fenoximetílica. Base: 1 a 1.2 millones UI
-(como sal potásica o sal cálcica), tabletas M
-Penicilina G 1.000 000 UI (como sal sódica o potásica
-cristalina), inyectable, frasco-ampolla de 5 ml. HM M
-Penicilina G 5.000 000 UI (como sal sódica o potásica
-cristalina), inyectable, frasco-ampolla de 20 ml. HM
-Penicilina G 1.200.000 UI (benzatínica), inyectable,
-frasco-ampolla de 4 ml. HM M
-Sulfadiazina 500 mg. tabletas E
-Sulfasalacina 500 mg, grageas E
-Tetraciclina (clorhidrato) u oxitetraciclina.
-Base: (como clorhidrato) 500 mg., cápsulas. M M
-Trimetoprima con sulfametoxazol 40 y 200 mg en 5 ml.
-Suspensión oral. Frasco de 100 a 120 ml. M
-Trimetoprima con sulfametoxazol 80 y 400 mg, tabletas M M
-Vancomicina. Base: 500 mg (como clorhidrato),
-inyectable, frasco-ampolla de 10 ml. HR
-03 ANTITUBERCULOSOS
-Estreptomicina. Base: 1 g. (como sulfato),
-inyectable, frasco-ampolla de 5 ml. M
-Etambutol (clorhidrato) 400 mg, tabletas, M
-Isoniazida 300 mg, tabletas ranuradas. M
-Pirazinamida 500 mg, tabletas E
-Rifampicina 300 mg, cápsulas M
-Rifampicina 100 mg en 5 ml (2%), suspensión oral,
-frasco de 60 ml. M
-Rifampicina 300 mg + Isoniazida 150 mg, tabletas M
-04 FUNGICIDAS
-Amfotericina B, 50 mg, inyectable, frasco-ampolla
-de 20 ml. HE
-Flucitosina 500 mg, cápsulas o tabletas recubiertas E
-Fluconazol 200 mg, cápsulas R
-Griseofulvina 125 g en 5 ml, suspensión oral
-frasco de 120 ml M M
-Ketoconazol 200 mg, tabletas ranuradas R HM
-Nistatina 100.000 UI/ml, suspensión oral,
-frasco-gotero de 30 ml. M
-05 ANTISEPTICOS Y ANALGESICOS URINARIOS
-Fenazopiridina (clorhidrato), 100 mg, tabletas
-recubiertas. M HM
-Nitrofurantoína 25 mg en 5 ml, suspensión oral, frasco
-de 60 ml. M
-Nitrofurantoína (macrocristales), 50 mg, cápsulas M HM
-06 ADRENERGICOS
-Dobutamina clorhidrato 250 mg polvo liofilizado,
-frasco-ampolla. HR
-Dopamina (clorhidrato), 200 mg (40 mg/ml), inyectable,
-ampolla de 5ml. HE
-Epinefrina. Base: 1 mg (1:1 000), (como clorhidrato),
-inyectable, solución acuosa, ampolla de 1 ml. HM M
-Metaraminol. Base: 1% (10 mg/ml), (como bitartrato),
-inyectable, frasco-ampolla de 10 ml. HE
-Pseudoefedrina (clorhidrato), 60 mg, tabletas M E
-07 AGENTES CARDIACOS
-Amiodarona (clorhidrato), 150 mg (50 mg/ml),
-inyectable ampolla de 3ml. HR
-Amiodarona (clorhidrato), 200 mg, tabletas ranuradas R
-Digoxina 0,005% (0,05 mg/ml), elíxir, frasco-gotero
-de 60 ml. E
-Digoxina 0,25 mg/ml, inyectable, ampolla de 1 ml. HM
-Digoxina 0,075% (0,75 mg/ml), solución oral, frasco
-gotero de 10 ml. M
-Digoxina 0,25 mg, tabletas ranuradas M
-Enalaprila (maleato) 5 mg, tabletas R HM
-Estreptokinasa 1.500 000 UI, inyectable, ampollas de
-5 o 10 ml. HR
-Propanolol (clorhidrato), 1 mg, inyectable, ampolla
-de 1 ml. HE
-Propanolol (clorhidrato), 10 mg, tabletas M
-Quinidina (sulfato), 200 mg, tabletas ranuradas E
-Verapamilo (clorhidrato), 5 mg (2,5 mg/ml),
-inyectable, ampolla de 2 ml o 2,2 ml. HR
-Verapamilo (clorhidrato), 240 mg, tabletas R
-Verapamilo (clorhidrato), 80 mg, tabletas recubiertas E
-08 ANTIHIPERTENSORES
-Atenolol 100 mg, tabletas ranuradas M
-Enalaprila (maleato) 20 mg, tabletas R
-Hidralazina (clorhidrato), 20 mg, inyectable ampollas
-de 1 ml. HM
-Hidralazina (clorhidrato), 50 mg, tabletas ranuradas M
-Hidroclorotiazida 50 mg, tabletas ranuradas M M
-Metildopa (levo-alfa), 250 mg, tabletas recubiertas. M
-Metildopa (levo-alfa), 500 mg, tabletas recubiertas M HM
-Nitroprusíato de sodio, 50 mg, polvo para solución
-inyectable, ampolla de 5 ml. HR
-Propanolol (clorhidrato), 40 mg, tabletas M
-09 DIURETICOS
-Espironolactona 25 mg, tabletas E
-Espironolactona 100 mg, tabletas ranuradas en cruz. M
-Furosemida 20 mg (10 mg/ml), inyectable, ampolla de
-2 ml HM M
-Furosemida 40 mg, tabletas ranuradas M M
-Manitol 25% (250 mg/ml), inyectable, frasco-ampolla
-de 50 ml. HM M
-10 VASODILATADORES CORONARIOS Y
-ANTIANGINOSOS
-Glicerilo trinatrato 0,5 a 0,6 mg, tabletas
-sublinguales. M
-Isosorbida (dinitrato), 20 mg, tabletas orales
-ranuradas. M
-Nifedipino 10 mg, cápsulas M M
-11 ANTICOAGULANTES
-Heparina (sódica), 1.000 UI/ml, inyectable,
-frasco-ampolla de 5-10 ml. HE
-Heparina (sódica), 5.000 UI/ml, inyectable,
-frasco-ampolla de 5-10 ml. HM HM
-Warfarina (sódica), 5 mg, tabletas ranuradas M HM
-12 HEMOSTATICOS
-Acido aminocaproico 500 mg, tabletas. HE
-Factor IX humano (complejo), 500 UI a 600 UI,
-inyectable con diluente, frasco de 20-30 ml. HE
-Factor VIII humano concentrado (globulina
-antihemofílica) 250 UI a 300 UI, inyectable con
-diluente, frasco-ampolla. E
-Factor VIII humano concentrado (globulina antihe-
-mofílica) 500 UI a 600 UI, inyectable con diluente
-frasco-ampolla de 20 ml. E
-Fitomenadiona 1 mg, inyectable, ampolla de 0,5-1 ml. HM
-Protamina (sulfato o clorhidrato), 1% (10 mg/ml),
-inyectable, ampolla de 5 ml. HM
-13 HEMATINICOS
-Acido Fólico 1 mg, tabletas AP HM
-Acido Folínico. Base: 50 mg (como folinato cálcico),
-inyectable, frasco ampolla de 5 ml. HE
-Acido Folínico 15 mg, tabletas E
-Eritropoyetina humana recombinante 2.000 UI,
-inyectable, frasco-ampolla de 2 ml. HR
-Hierro. Base: 50 mg/ml (como dextrano, sorbitol o
-polimaltosato), inyectable, frasco-ampolla de 10 ml
-o ampolla de 1-2 ml. HR HM
-Hierro (fumarato), 200 mg (65 mg de hierro elemental),
-tabletas. AP HM
-Hierro (sulfato), 125 mg/ml. (25 mg/ml de hierro
-elemental), solución oral, frasco-gotero de 30 ml.
-o Hidróxido Férrico Polimaltosato, 50 mg/ml
-(50 mg de hierro elemental), frasco-gotero de
-30 ml. AP
-Interferon Alfa 2B o 2A recombinante
-3 000 000 UI por vial, frasco-ampolla. R
-Vitamina B-12 (cianocobalamina), 1000 mcg/ml,
-inyectable, frasco-ampolla de 10 ml. HM M
-14 ANTIARTRITICOS, ANTIRREUMATICOS,
-ANTIINFLAMATORIOS NO ESTEROIDES
-Acido acetil salicílico, 500 mg, grageas con capa
-entérica M M
-Diclofenaco (sódico), 75 mg (25 mg/ml), inyectable
-ampolla de 3 ml. M M
-Ibuprofeno 400 mg, tabletas recubiertas M M
-Indometacina 25 mg, cápsulas. M M
-Indometacina 100 mg, supositorios. M M
-Oro (tiosulfato sódico o tiomalato sódico o
-tioglucosa), 10 mg/ml., inyectable, frasco-ampolla
-de 1 o 5 ml. E
-Penicilamina 250 mg, cápsulas. E E
-Sulindaco 200 mg, tabletas E
-Tenoxicam 20 mg, tabletas ranuradas. R
-15 URICOSURICOS ANTIGOTOSOS.
-Alopurinol 300 mg, tabletas M
-Colchicina 0,5 o 0,6, tabletas M
-16 ANALGESICOS NO NARCOTICOS
-Acetaminofén (paracetamol), 120 mg en 5 ml. jarabe
-frasco de 60 ml. AP
-Acetaminofén (paracetamol), 300 mg, supositorios M
-Acetaminofén (paracetamol), 500 mg, tabletas AP M
-Acido acetil salicílico 100 mg, tabletas M
-17 ANALGESICOS NARCOTICOS Y ANTAGONISTAS
-DE NARCOTICOS
-Cocaína (clorhidrato), polvo HR
-Codeína fosfato con acetaminofén, 30 mg y 500 mg,
-respectivamente, tabletas o cápsulas M M
-Fentanilo. Base: 0,05 mg/ml. (como citrato),
-inyectable, ampolla de 2 ml. HE
-Morfina (sulfato) 30 mg, tabletas de acción rápida M
-Morfina (sulfato), 30 mg, tabletas A.P. M
-Morfina (sulfato o clorhidrato), 15 mg,
-inyectable, ampolla de 1 ml. M
-Morfina sulfato 15 mg con atropina sulfato 0,6 mg,
-ampolla de 1 ml. HE
-Naloxona (clorhidrato(, 0,4 mg, inyectable, ampolla
-de 1 o 2 ml. HE
-Tramadol (clorhidrato) 100 mg (50 mg/ml),
-inyectable, ampolla de 2 ml. M HM
-Tramadol (clorhidrato) 100 mg/ml.
-Solución oral, frasco-gotero de 10 ml. R
-18 ANESTESICOS GENERALES
-Ketamina 1% (10 mg/ml), inyectable, frasco-ampolla
-de 20 ml. HE
-Droperidol 5 mg (2.5 mg/ml), inyectable, ampolla de
-2 ml. HE
-Enflurano, solución inhalante, frasco de 125 ml. HE
-Halotano, solución inhalante, frasco de 250 ml. HE
-Tiopental (sódico), 500 mg, inyectable,
-frasco-ampolla de 10 ml. HE
-19 ANESTESICOS LOCALES
-Bupivacaína (clorhidrato), 0,5% (5 mg/ml),
-inyectable, frasco-ampolla de 20-50 ml. HE
-Lidocaína (clorhidrato), 2% (20 mg/ml),
-inyectable, frasco-ampolla de 20-30 ml. HM M
-Lidocaína (clorhidrato), 2% (20 mg/ml), inyectable,
-sin preservante, ampolla de 5 ml. HE M
-Lidocaína (clorhidrato), 2% jalea, tubo de 30 g HE HM
-Lidocaína (clorhidrato), 10% solución en aerosol,
-frasco de 65 a 80 g. HE E
-Lidocaína (clorhidrato), con dextrosa 5% y 7,5%,
-respectivamente, inyectable, ampolla de 2 ml. HE
-Lidocaína (clorhidrato), con epinefrina, 2%,
-1:100 000 o 1:200 000, inyectable, frasco-ampolla
-de 20 a 30 ml HM
-Lidocaína (clorhidrato), o mepivacaína (clorhidrato)
-2 o 3%, respectivamente, inyectable, cartucho de
-vidrio, de 1,8 ml. HE E
-Lidocaína (clorhidrato) + epinefrina o mepivacaína
-(clorhidrato) + Levonorfedrina 2% + 1:80 000 o
-2% + 1:20 000 r, inyectable, cartucho de vidrio
-de 1,8 ml. HE
-20 RELAJANTES MUSCULARES
-Atracurio (besilato) 10 mg/ml., inyectable, ampollas
-de 2,5 ml. HE
-Pancuronio (bromuro) 2 mg/ml., inyectable, ampollas
-de 2 ml. HE
-Succinil colina (bromuro), 50 mg/ml, inyectable
-frasco-ampolla de 10 ml. HE
-21 ANTICOLINERGICOS/ANTIESPASMODICOS
-Atropina (sulfato), 0,5 mg, inyectable, ampolla
-de 1 ml. HM M
-Belladona con fenobarbital, fórmula, elíxir,
-frasco de 120 ml. M
-Hioscina (bromuro de N-butil) o propinoxato o
-pramiverina (clorhidrato), 10 o 5 0 5 mg,
-grageas o tabletas, respectivamente. M M
-Hioscina (bromuro de N-butil) o propinoxato o
-pramiverina (clorhidrato), 20 o 5 o 2.5, inyectable
-ampolla de 1 o 2 ml., respectivamente. HM HM
-22 COLINERGICOS
-Betanecol (clorhidrato), 10 mg, tabletas. E E
-Neostigmina (bromuro), 15 mg tabletas M
-Neostigmina (metilsulfato), 0,5 mg, inyectable,
-ampolla de 1 ml. HM
-23 ANTIASMATICOS Y BRONCODILATADORES
-Aminofilina 250 mg (25 mg/ml), inyectable, ampolla de
-10 ml. HM M
-Beclometasona (dipropionato) 50 mcg/dosis, solución
-aerosol M E
-Cromoglicato disódico 200 mg (1 mg/dosis), solución
-aerosol. R E
-Salbutamol 20 mg (100 mcg/dosis), solución aerosol,
-frasco de 200 dosis. M HM
-Salbutamol. Base: 2 mg en 5 ml.
-(como sulfato) jarabe, frasco de 120 o 150 ml. M
-Salbutamol. Base: 0,5% (5 mg/ml), (como sulfato)
-solución respirador, frasco de 20 ml. HM
-Salbutamol. Base: 4 mg (como sulfato) tabletas
-ranuradas. M M
-Teofilina 50 mg en 5 ml., elíxir, frasco de 120 ml. M M
-Teofilina anhidra 150 mg, tabletas. M M
-Teofilina A.P. (anhidra), 250 a 300 mg, tabletas
-ranuradas. R
-24 ANTITUSIGENOS
-Codeína (fosfato), 0,2% (10 mg en 5 ml), jarabe,
-frasco de 100-120 ml. M M
-Dextrometorfano (bromhidrato), 15 mg en 5 ml.,
-jarabe, frasco de 120 ml. AP M
-Dextrometorfano (bromhidrato), 15 mg, tabletas. M
-25 ANTIHISTAMINICOS, ANTIEMETICOS,
-ANTIPRURITICOS.
-Clorfeniramina (maleato), 1% (10 mg/ml), inyectable
-ampolla de 1 ml., o difenhidramina clorhidrato 1%
-(10 mg/ml), inyectable, frasco-ampolla de 10 ml. HM M
-Clorfeniramina (maleato), 4 mg, tabletas M M
-Clorfeniramina (maleato), 2 mg en 5 ml., jarabe,
-frasco de 120 ml. M
-Descongestionante respiratorio oral (bromfeniramina
-maleato, fenilefrina clorhidrato y fenilpropanolamina
-clorhidrato), 4 mg, 5 mg y 5 mg en 5 ml., respectiva-
-mente, solución oral, frasco de 120 ml. M M
-Descongestionante respiratorio oral (bromfeniramina
-maleato, fenilefrina clorhidrato y fenilpropanolamina
-clorhidrato), 8 mg, 10 mg y 10 mg, respectivamente,
-tabletas. M
-Defenhidramina (clorhidrato), 50 mg, tabletas M M
-Difenhidramina (clorhidrato), 12,5 mg, en 5 ml.,
-jarabe, frasco de 120 ml. AP M
-Dimenhidrinato 5% (50 mg/ml), inyectable,
-frasco-ampolla de 5 ml. M M
-Dimenhidrinato 25 mg, supositorio de 1 g. M
-Dimenhidrinato 100 mg, supositorio de 2 g. M
-Dimenhidrinato 50 mg, tabletas. AP M
-Metoclopramida (clorhidrato), 4 mg/ml, solución
-oral, frasco-gotero de 20 ml. E
-Prometazina (clorhidrato), 50 mg (25 mg/ml), inyecta-
-ble, ampolla de 2 ml. HM HM
-Terfenadina o astemizol, 60 o 10 mg, respectivamente,
-tabletas. E E
-26 ANTIPARKINSONIANOS
-Biperideno (clorhidrato), 2 mg, tabletas M E
-Biperideno (lactato9, 0,5% (5 mg/ml), inyectable,
-ampolla de 1 ml. HM
-Levo dopa con inhibidor, 100 mg + 25 mg, respec-
-tivamente, tabletas ranuradas. E
-27 ANTIMIGRAÑA
-Ergotamina (tartrato) o ergotamina (tartrato) y
-cafeína, 2 mg o 1 mg + 100 mg, respectivamente,
-grageas. M
-28 ANTICONVULSIVOS
-Carbamazepina 2% jarabe, frasco de 100 ml. E HM
-Carbamazepina 200 mg, tabletas. E E
-Clonazepam 0,25% (2,5 mg/ml), solución oral,
-frasco-gotero de 10 ml. E E
-Clonazepam 2 mg., tabletas E E
-Difenilhidantoína (fenitoína), (sal sódica),
-5% (50 mg/ml), inyectable, ampolla o
-frasco-ampolla de 5-10 ml. HM
-Difenilhidantoína (sódica), (fenitoína sódica),
-125 mg en 5 ml., suspensión oral, frasco de 120 ml. M
-Difenilhidantoína (sódica), (fenitoína sódica),
-100 mg, cápsulas ME HM
-Divalproato (sódico) 250 mg, tabletas E
-Etosuximida 250 mg, cápsulas E
-Fenobarbital sódico 50 mg, inyectable, ampollas de 1 ml HM M
-Fenobarbital 25 mg, tabletas ranuradas M
-Fenobarbital 100 mg, tabletas ranuradas. M HM
-Primidona 250 mg en 5 ml., suspensión oral,
-frasco de 120 o 150 ml. E
-Primidona 250 mg, tabletas. E
-Valproato de sodio, 200 mg/ml., solución oral,
-frasco-gotero de 40 ml. E
-29 ANTIDEPRESORES
-Amitriptilina (clorhidrato), 10 mg, tabletas M HM
-Amitriptilina (clorhidrato), 25 mg, tabletas M HM
-Imipramina (clorhidrato), 10 mg tabletas recubiertas M HM
-Imipramina (clorhidrato), 25 mg, tabletas recubiertas M HM
-Litio (carbonato), 300 mg, tabletas E
-30 ANTISICOTICOS
-Clorpromazina (clorhidrato), 25 mg, (5 mg/ml),
-inyectable, I:M: HE
-Clorpromazina (clorhidrato), 100 mg, tabletas
-ranuradas. E
-Flufenazina (decanoato), 25 mg, inyectable,
-ampolla de 1 ml. HE
-Haloperidol 5 mg, inyectable, ampolla de 1 ml. HE HM
-Haloperidol 0,2% (2 mg/ml), solución oral,
-frasco-gotero de 15 ml. E HM
-Haloperidol 5 mg, tabletas E
-Levomepromazina (maleato), 25 mg, inyectable,
-ampolla de 1 ml. HE HM
-Levomepromazina (maleato), 25 mg, tabletas
-recubiertas. E E
-Perfenazina 4 mg, tabletas recubiertas. E
-Tioridazina (clorhidrato), 10 mg, tabletas
-recubiertas. M HM
-Tioridazina (clorhidrato), 100 mg, recubiertas. E HM
-Tiotixeno 10 mg, tabletas. E
-Trifluoperazina. Base: 5 mg (como diclorhidrato),
-tabletas recubiertas. E E
-31 SEDANTES/HIPNOTICOS/ANSIOLITICOS
-Clobazan 10 mg, tabletas. E
-Cloral (hidrato), 500 mg en 5 ml, solución oral,
-frasco de 120 ml. M
-Diazepam 2 mg/5 ml, jarabe. E
-Diazepam 5 mg, tabletas ranuradas. M M
-Hidroxizina (diclorhidrato o pamoato),
-10 mg en 5 ml, jarabe, frasco de 200 ml. E HM
-Hidroxicina (diclorhidrato o pamoato), 25 mg.,
-tabletas. M HM
-Lorazepam 2 mg, tabletas. M HM
-Midazolam. Base. 15 mg (5 mg/ml), (como clorhidrato),
-inyectable, ampolla de 3 ml. HE
-Triazolam 0,25, tabletas ranuradas. E
-32 AGENTES GASTROINTESTINALES, ANTIACIDOS
-Y ANTAGONISTAS DEL RECEPTOR H2.
-Aluminio (hidróxido), 5,5 a 6,7% p/p, sin magnesio,
-suspensión oral, frasco de 120 o 180 ml. E
-Aluminio (hidróxido), con magnesio, fórmula,
-suspensión oral, frasco de 240 ml. a 500 ml. AP M
-Aluminio hidróxido 200 mg, magnesio hidróxido
-150-200 mg con dimetilpolisiloxano 25 mg,
-tabletas masticables. AP
-Aluminio (hidróxido) sin magnesio, 200-300 mg,
-tabletas. E
-Antiácido compuesto en polvo (creta 40% + Mg carbonato
-40% + Na bicarbonato 20%), polvo, frasco de 120 g. M
-Cimetidina clorhidrato, 200 mg/5 ml, jarabe, frasco
-de 150 ml. E
-Cimetidina 300 mg (150 mg/ml), inyectable, ampolla de
-2 ml, HR
-Cimetidina 400 mg, tabletas recubiertas. H HM
-Metoclopramida (clorhidrato), 10 mg,
-(5mg/ml), inyectable, ampolla de 2 ml. HM HM
-Pancreatina en microesférulas con capa entérica
-(lipasa 4.000, amilasa 2.000, proteasa 25.000),
-cápsulas R
-33 ANTIDIARREICOS Y LAXANTES.
-Aceite de ricino, frasco de 60 ml. M HM
-Bisacodilo 10 mg, supositorios de 2 g. M HM
-Glicerina, supositorio de 1 g a 1,5 g. M
-Glicerina, supositorio de 2 g a 2,6 g. M
-Loperamida (clorhidrato), 2 mg, cápsulas o tabletas. M
-Magnesio (hidróxido), de 7 a 8,5%,
-suspensión oral, frasco de 120 a 180 ml. AP M
-Microenema, fórmula, solución tópica, envase de 5 ml. HR
-Mucílago (psillium granulado), fórmula, frasco
-de 100-120 g., o
-Policarbófilo cálcico 625 mg, tableta en blíster. M HM
-Petrolato líquido pesado emulsificado, fórmula,
-suspensión oral,
-frasco de 180 ml. M HM
-34 CORTICOSCOSTEROIDES.
-Corticotrofina sintética, 1 mg,
-inyectable, ampolla de 1 ml. HE
-Dexametasona o betametasona, 0,5 mg, tabletas. M M
-Dexametasona (fosfato sódico) o betametasona
-(fosfato sódico), 4 o 5 mg, inyectable,
-ampolla de 1 ml. HM M
-Fludrocortisona (acetato), 0,1 mg, tabletas. E
-Hidrocortisona 20 mg, tabletas E
-Hidrocortisona. Base: 100 mg, (como succinato
-sódico), inyectable, frasco-ampolla de 2 ml. HM M
-Metilprednisolona. Base: 500 mg (como succinato
-sódico), inyectable, frasco-ampolla de 8 ml. HE M
-Prednisolona 1 mg, tabletas. M
-Prednisolona 5 mg., tabletas. M M
-Prednisolona 25 mg, tabletas E
-Triamcinolona (acetónido o diácetato), 1% (10 mg/ml)
-o 2,5% (25 mg/ml), inyectable, frasco-ampolla de 5 ml. HE M
-35 ANDROGENOS Y ANABOLICOS
-Danazol 200 mg, cápsulas R
-Oximetolona 50 mg, tabletas. E
-Testosterona (enantato), 250 mg, inyectable,
-ampolla de 1 ml. E
-36 ESTROGENOS, PROGESTAGENOS,
-ANOVULATORIOS.
-Contraceptivos orales (levonorgestrel con
-etinilestradiol), 0,150 mg con 30 mcg,
-tableta recubierta, caja 21 (28). AP
-Contraceptivos orales (norgestrel con
-etinilestradiol), 0,5 mg con 50 mcg., tabletas
-recubiertas, caja 21 (28) AP
-Dietilestilbestrol 1 mg, tabletas. E
-Estradiol (17 N valerato), 10 mg, solución oleosa,
-inyectable, ampolla de 1 ml. E
-Estradiol (17 N valerato) y estradiol con norgestrel,
-10 mg y 2 mg + 0.5 mg, tabletas, sobre 21, tabletas. R
-Estrógenos conjugados equinos o sintéticos,
-0,625 mg o 0,5 mg, respectivamente, tabletas. M
-Medroxiprogesterona (acetato), 150 mg, inyectable,
-ampolla de 1-3 ml. E
-Medroxiprogesterona (acetato), 500 mg, inyectable,
-frasco-ampolla de 2.5 a 3.3 ml. HE
-Medroxiprogesterona (acetato), 5 mg, tabletas. M
-Progesterona 100 mg, inyectable, ampolla de 1 ml. E
-37 OXITOCICOS Y PREVENCION DE PARTOS.
-Metilergobasina (maleato), 0-2 mg, inyectable,
-ampolla de 1 ml. HM
-Oxitocina sintética, 5 UI, inyectable, ampolla de
-1 ml. HM
-Salbutamol. Base: 1 mg/ml (como sulfato),
-inyectable, ampolla de 5 ml. HM
-38 HORMONAS HIPOTALAMICAS, PITUITARIAS Y
-OTROS AGENTES.
-Bromocriptina. Base: 2.5 (como mesilato), tabletas. E
-Clomifeno (citrato), 50 mg, tabletas. E
-Diamino-diarginina vasopresina, 100 mcg en 1 ml,
-solución inhalante, frasco-ampolla de 2.5 ml. R
-Gonadotrofina coriónica, 1 000 UI en 1 ml,
-inyectable, frasco-ampolla de 5-10 ml. E
-Gonadotrofina humana, post-menopáusica 75 UI-FSH
-+ 75 UI - LH, inyectable, ampolla de 2 ml. E
-Hormona de crecimiento biosintético, 5 mg,
-inyectable, frasco-ampolla de 3-5 ml. HR
-Leuprorelina (Leuprolide) acetato 3.75 mg, frasco
-ampolla. Liofilizado como disolvente para
-suspensión deport. HR
-39 HIPOGLICEMIANTES E HIPERGLICEMIANTES.
-Diazóxido 50 o 100 mg., cápsulas. R
-Glibenclamida 5 mg o Glipizida 5 mg
-o Gliclazida 80 mg, tabletas ranuradas. M HM
-Insulina de acción intermedia (N.P.H.)
-biosintética 100 UI en 1 ml, suspensión inyectable,
-frasco-ampolla de 10 ml. M
-Insulina cristalina biosintética 100 Ui en 1 ml,
-solución inyectable, frasco-ampolla de 10 ml. M HM
-Insulina porcina acción intermedia (N.P.H.) 100 UI
-en 1 ml, suspensión inyectable, frasco-ampolla de
-10 ml. M HM
-40 HORMONAS TIROIDEAS Y DROGAS
-ANTITIROIDEAS.
-Solución de yodo fuerte (Lugol), fórmula, solución
-oral, frasco-gotero de 30 ml. M
-Levotiroxina (sódica), 0.025 mg, tabletas. M
-Levotiroxina (sódica), 0,10 mg, tabletas ranuradas. M
-Propiltiouracilo 50 mg, tabletas. M
-41 ANTINEOPLASICOS.
-Azatioprina 50 mg, tabletas. M
-Bleomicina. Base: 15 mg (como sulfato), inyectable,
-ampolla de 5 ml. HE
-Busulfano 2 mg, tabletas. E
-Ciclofosfamida 500 mg, inyectable, ampolla de 20 ml. HE
-Ciclofosfamida 50 mg, tabletas recubiertas. E
-Cisplatino 10 mg, inyectable, frasco-ampolla de 10 ml. HE
-Citabarina 100 mg, inyectable, frasco-ampolla de 5 ml. HE
-Clorambucilo 2 mg, tabletas. E
-Dacarbazino 200 mg, inyectable, frasco-ampolla de
-10 ml. HE
-Dactinomicina 0,5 mg, inyectable, frasco-ampolla de
-3 ml. HE
-Daunorrubicina 20 mg, frasco-ampolla de 4 ml. HE
-Epirrubicina (clorhidrato), 50 mg, inyectable,
-frasco ampolla de 20 ml.
-Etopósido 100 mg (20 mg/ml), inyectable, ampolla de
-5 ml. HE
-Fluorpuracilo 250 mg (50 mg/ml), inyectable, ampolla
-de 5 ml. HE
-Flutamida o Nilutamida 250 mg o 50 mg,
-respectivamente, tabletas o cápsulas. E
-Ifosfamida 2 g., inyectable, frasco-ampolla. HE
-L-asparaginasa 10 000 UI, inyectable, frasco-ampolla
-de 10 ml. HE
-Melfalano 2 mg, tabletas. E
-Mercaptopurina 50 mg, tabletas E
-Mesna 400 mg, ampolla de 4 ml., inyectable. HE
-Metotrexato (ametopterina), 50 mg, (como sal
-sódica), inyectable, frasco-ampolla de 2 ml. HE
-Metotrexato (ametopterina), 2,5 mg, tabletas. E
-Mitomicina C,5 mg, inyectable, frasco-ampolla
-de 5 ml. HE
-Procarbazina. Base: 50 mg (como clorhidrato),
-cápsulas. E
-Tamoxifeno. Base: 10 mg (como citrato), tabletas. M
-Vinblastina (sulfato) 10 mg, inyectable,
-frasco-ampolla de 10 ml. HE
-Vincristina (sulfato), 1 mg, inyectable,
-frasco-ampolla de 10 ml. HE
-42 VITAMINAS
-Complejo B, fórmula, inyectable, frasco-ampolla
-de 10 ml. HM M
-Multivitaminas I.V., fórmula, inyectable,
-frasco-ampolla de 10 ml. HR
-Multivitaminas I.V., fórmula pediátrica. HR
-Vitamina A (retinol), 25 000 UI, cápsulas. E E
-Vitamina A (retinol), 50 000 UI en 1 ml, solución
-oral, frasco de 30 ml. E
-Vitamina B-1 (tiamina clorhidrato), 1 g (100 mg/ml),
-inyectable, frasco-ampolla de 10 ml. HM M
-Vitamina B-1 (tiamina clorhidrato), 100 mg, tabletas. M M
-Vitamina B-6 (piridoxina clorhidrato),
-50 mg, inyectable, ampolla de 1 ml. HM
-Vitamina B-6 (piridoxina clorhidrato), 50 mg,
-tabletas. M
-Vitamina C (ácido ascórbico), 10% (100 mg/ml),
-solución oral, frasco-gotero de 30 ml. M
-Vitamina C (ácido ascórbico), 500 mg, tabletas. M M
-Vitamina D2 (ergocalciferol), 10 000 UI/ml,
-solución oral, frasco-gotero de 30 ml. M
-Vitamina D3 (1 alfa hidroxicole calciferol),
-0,25 mcg., cápsulas. E
-Vitamina D3 (1 alfa hidroxicole calciferol),
-1 mcg., cápsulas. E
-43 ELECTROLITOS Y SOLUCIONES PARENTALES
-Agua estéril para inyección, ampollas de 5 ml. HM M
-Agua estéril para inyección, ampolla o frasco-ampolla
-de 10 ml. HM M
-Aminoácidos sin carbohidratos y sin electrolitos,
-8 a 10%, inyectable, frasco 500 ml. HR
-Aminoácidos solución, fórmula pediátrica,
-inyectable, frasco. HR
-Baño concentrado para hemodiálisis normal,
-fórmula, solución concentrada, galones. HE
-Calcio carbonato, 500 a 600 mg de calcio iónico
-tabletas recubiertas. E
-Calcio (gluconato), 10% (100 mg/ml), inyectable,
-ampolla de 10 ml. HM M
-Dextrano 40, 10% inyectable, bolsa de 500 ml. HE
-Dextrano 70, 6% inyectable, bolsa de 500 ml. HM
-Dextrosa anhidra con cloruro de sodio, cloruro de
-potasio y acetato de sodio, al 1%, 0,5%, 0,10% y
-0.65% respectivamente, inyectable, bolsa de 2 000 ml. HM
-Dextrosa 1,5% solución para diálisis peritoneal
-bolsa de 2 000 ml. HM
-Dextrosa 4,25%, solución para diálisis peritoneal
-bolsa de 2 000 ml. HE
-Dextrosa 5%, inyectable, bolsa de 50 ml. HM
-Dextrosa 5%, inyectable, bolsa de 100 ml. HM
-Dextrosa 5%, inyectable, bolsa de 250 ml. HM
-Dextrosa 5%, inyectable, bolsa de 500 ml. HM M
-Dextrosa 5%, inyectable, bolsa de 1 000 ml. HM M
-Dextrosa 10%, inyectable, bolsa de 250 ml. HM
-Dextrosa 10%, inyectable, bolsa de 1 000 ml. HM
-Dextrosa 50%, inyectable, bolsa de 50 ml. HM M
-Dextrosa 50%, inyectable, bolsa de 1 000 ml. HR
-Dextrosa y sodio (cloruro), 5% y 0,9%, inyectable,
-bolsa de 500 ml. HM M
-Dextrosa y sodio (cloruro), 5% y 0,9%, inyectable,
-bolsa de 1 000 ml. HM M
-Dextrosa, sodio (cloruro) y potasio (cloruro),
-5%, 0,3% y 0,14%, inyectable, bolsa de 250 ml. HM
-Dextrosa, sodio (cloruro) y potasio (cloruro),
-5%, 0,3% y 0,149%, inyectable, bolsa de 500 ml. HM
-Dextrosa, sodio (cloruro), potasio (cloruro) y
-sodio (acetato) 2%, 0,35%, 0,15% y 0,4%, inyectable,
-bolsa de 500 ml. HM
-Electrolitos solución, fórmula inyectable, bolsa de
-500 ml. HM
-Emulsión de lípidos (triglicéridos, cadenas
-medianas y largas), 20%, inyectable, frasco de 250 ml. HR
-Eurocollins, solución, set de 1 020 ml. HR
-Fosfatos, fórmula, inyectable, frasco-ampolla o
-ampolla de 15 ml. HE
-Fosfatos ácidos (preparar en farmacia), fórmula,
-solución oral, frasco de 1 000 ml. E
-Fosfatos neutros, fórmula, tabletas. E
-Magnesio (sulfato), 20 a 25%, inyectable,
-frasco-ampolla o ampollas de 10 ml. HM
-Oligo elementos, inyectables, cobre (cloruro),
-cromo (cloruro), zin (cloruro), 0.4 mg/ml,
-4 mcg/ml, 1 mg/ml, inyectable, frasco-ampolla de
-10 ml. HR
-Potasio (cloruro), 2 molar, inyectable, ampolla
-de 10 ml. HM M
-Potasio (gluconato), 20 mEq., en 15 ml, elíxir,
-frasco de 150 a 180 ml. M
-Sales para hidratación oral, fórmula, polvo oral,
-sobres para preparar 250 ml y 1 litro. AP
-Sodio (bicarbonato), 1 molar, solución isotónica,
-inyectable, frasco-ampolla de 10 ml. HM M
-Sodio (cloruro), 4 molar, solución hipertónica,
-inyectable, frasco-ampolla de 20 a 30 ml. HM
-Sodio (cloruro), 0,9%, solución isotónica,
-inyectable, bolsa de 50 ml. HM
-Sodio (cloruro), 0,9%, solución isotónica,
-inyectable, bolsa de 100 ml. HM M
-Sodio (cloruro), 0,9%, solución isotónica,
-inyectable, bolsa de 250 ml. HM
-Sodio (cloruro), 0,9%, solución isotónica,
-inyectable, bolsa de 500 ml. HM M
-Sodio (cloruro), 0,9%, solución isotónica, inyectable
-bosa de 1 000 ml. HM M
-Sodio (cloruro), 0,9%, solución isotónica, inyectable
-bolsa de 2 000 ml. HE
-Sodio cloruro con cloruro de calcio, cloruro de
-magnesio y cloruro de potasio, al 0,643%, 0,0176%,
-0,3253% y 0,1193%, respectivamente, solución
-cardiopléjica inyectable, bolsa de 1 000 ml. HR
-Solución electrolítica balanceada con gluconato
-de sodio, fórmula, bolsa de 1 000 ml. HR
-44 BIOLOGICOS, VACUNAS, TOXOIDES Y ANTITOXINAS.
-Albúmina humana de 20 a 25%, inyectable, frasco-
-ampolla de 50 ml. M
-Gamma globulina inmune antirrábica, frasco de 2 ml. AP
-Gamma globulina I.V., 2,5 a 3 g., inyectable,
-frasco-ampolla de 50 ml. M
-Gamma globulina I.V., 160 mg frasco de 2 o 5 ml. M
-Gamma globulina antitetánica humana 250 UI,
-inyectable, frasco-ampolla de 2 0 5 ml. M
-Gamma globulina anti RH, 300 mcg., inyectable,
-frasco-ampolla de 1-2 ml. E
-Gamma globulina hiperinmune anti-hepatitis B-200
-UI/ml. M
-Gamma Globulina innmune anti-varicela Zoster
-125 UI/ml, frasco-ampolla de 2.5 ml. E
-Suero antiofídico, anticoral, fórmula,
-inyectable, frasco-ampolla de 10 ml. AP M
-Suero antiofídico, polivante, fórmula, inyectable,
-frasco-ampolla de 10 ml. AP M
-Toxoide difterotetánico (DT), frasco de 0,5 ml
-a 10 ml. AP M
-Toxoide tetánico 10 LF, inyectable, (TT), frasco-
-ampolla d e 0,5 ml. AP
-Toxoide tetánico y diftérico con vacuna pertusis,
-(DPT), fórmula inyectable de 0,5 ml a 10 ml. AP
-Vacuna antiamarílica, frasco de 1 ml (1 dosis)
-y 0,5 ml. M
-Vacuna Anti-Haemophilus Influenzae,
-frasco-ampolla de 5 ml. E
-Vacuna Antimeningococcia, frasco de 0,5 ml. E
-Vacuna Antineumococcica, frasco de 1 ml. E
-Vacuna Anti-rubeola simple, frasco de 0,5 ml a 1 ml. AP
-Vacuna Anti-varicela, frasco de 1 ml. E
-Vacuna Antirrábica, canina, frasco de 1 ml. AP
-Vacuna Antirrábica Humana, en células diploides,
-frasco de 1 ml. E
-Vacuna Antipoliomelítica trivalente, solución
-oral, frasco-ampolla de 5 ml. AP
-Vacuna B.C.G. (desecada), inyectable, ampolla. AP
-Vacuna contra hepatitis tipo B, elaborada a través
-de ingeniería genética, 20 mcg/ml, frasco-ampolla
-de 1 ml. M HM
-Vacuna contra sarampión simple, inyectable,
-ampolla de 0,5 ml. AP
-Vacuna difterotetánica absorbida, inyectable,
-ampolla de 5 ml. AP M
-45 AGENTES OFTAMOLOGICOS
-Acetazolamida 250 mg, tabletas. M HM
-Acetilcolina (cloruro) y manitol 20 y 100 mg,
-respectivamente, solución oftálmica, frasco-
-gotero de 2 ml. HE
-Atropina (sulfato), 1% (10 mg/ml), solución
-oftálmica, frasco-gotero de 5 o 10 ml. E HM
-Ciclopentolato 1% (10 mg/ml), solución
-oftálmica, frasco-gotero de 10 o 15 ml. M HM
-Cromoglicato disódico al 2% (20 mg/ml),
-solución oftálmica, frasco-gotero de 10 ml. E E
-Dexametasona-fosfato 0,05% (como fosfato sódico)
-o fluorometolona 0,1%, solución o suspensión
-oftálmica, frasco-gotero de 5 ml. E
-Dexametasona o betametasona con neomicina
-(sulfato), 0,1% (1 mg/ml), respectivamente,
-solución oftálmica, frasco-gotero de 5 ml. M M
-Fenilefrina clorhidrato 10% (100 mg/ml),
-solución oftálmica, frasco-gotero de 5 o 10 ml. E HM
-Gentamicina (base), 3 mg/ml (como sulfato)
-solución oftálmica, frasco-gotero de 5 ml. M HE
-Hialuronato de sodio 10 mg, ampollas de 2 ml. HE
-Hialuronidasa 150 UI, inyectable, frasco-ampolla
-de 1 ml. HE
-Metilcelulosa 0,5% (5 mg/ml), solución oftálmica,
-frasco-gotero de 15 ml. M HM
-Multicelulosa hidroxipropil 20 mg/ml, frasco-
-ampolla de 2,25 ml. HE
-Neomicina con gramicidina y polimixina B, fórmula,
-solución oftálmica, frasco-gotero de 5 o 10 ml. M HM
-Pilocarpina (clorhidrato o nitrato), 2% (20 mg/ml),
-solución oftálmica, frasco-gotero de 10 o 15 ml. E HM
-Pilocarpina (clorhidrato o nitrato), 4% (40 mg/ml)
-solución oftálmica, frasco-gotero de 10 o 15 ml. E
-Solución salina balanceada, fórmula, solución
-tópica, frasco de 500 ml. HE
-Tetracaína (clorhidrato), 0,5 (5 mg/ml),
-solución oftálmica, frasco-gotero de 10 ml. HM M
-Tetraciclina (clorhidrato), u oxitetraciclina
-(clorhidrato) + polimixina B (sulfato), 1% (10mg/g)
-o 0,05% (0,5 mg/g) + 0,01% (0,1 mg/g), respectivamente,
-ünguento oftálmico, tubo de g. M M
-Tetrizolina clorhidrato (tetrahidrozolina) u
-oximetazolina (clorhidrato), 0,05% (0,5 mg/ml),
-solución oftálmica, frasco-gotero de 10 o 15 ml. M M
-Timolol (maleato), 0,50% (5 mg/ml),
-solución oftálmica, frasco-gotero de 5 ml. E HM
-Vidarabina 3% o acyclovir 3%, ungüento, tubo de
-3 a 5 g. E
-46 PREPARACIONES DERMATOLOGICAS
-8-Metoxipsoraleno (metoxaleno), 10 mg, cápsulas. HR
-Acido salicílico 5% (20 mg/g), ünguento tópico,
-frasco de 60 g. M
-Acido salicílico en colodión flexible 15% al 17%
-(150 mg/ml), solución tópica, frasco de 15 ml. M
-Alquitrán de hulla compuesto, 4% (40 mg/g),
-ungüento tópico, tubo de 30 g. E
-Aluminio (acetato), fórmula, polvo, sobre de 2 g. M HM
-Aluminio (hidróxido), fórmula, ungüento tópico,
-envase de 1 kg. M
-Anabólico con antibiótico (clostebol con neomicina
-sulfato), fórmula, solución tópica aerosol, frasco
-de 30 ml. E E
-Benzoilo (peróxido), 5% (50 mg/ml),
-solución tópica, frasco de 30 ml. E
-Betametasona. Base: 0,1% ( mg/g),
-(como 17 - valerato), crema, tubo de 15 g. E M
-Betametasona. Base: 0,1% (1 mg/m)
-(como 17 - valerato), ungüento, tubo de 15 g. E
-Brea concentrada, fórmula, solución tópica,
-frasco de 120 ml. E
-Calamina, fórmula, loción, frasco de 75 a 120 ml. AP M
-Clorhexidina (gluconato) 20% v/v, solución tópica
-garrafa de 4-5 litros HM M
-Crema de rosas, fórmula, crema, kilogramos. HM
-Crema de rosas, fórmula, crema, tubo de 60 g. AP M
-Crotamitón 10% (100 mg/ml), loción, frasco de
-vidrio, de 50 o 60 ml. M HM
-Detergente neutro, pastilla de 100 g., jabón. HR E
-Etretinato 10 y 25 mg, cápsulas o tabletas. R
-Fluoruracilo al 5% ungüento, tubo de 25 g. E
-Hidrocortisona 0,5% (mg/ml), loción tópica,
-frasco de 15 ml. E
-Hidrocortisona (acetato), 0,25% (2,5 mg/g), crema
-tópica, tubo de 15 g. M
-Hidrocortisona (acetato), 1% (10 mg/g), crema
-tópica, tubo de 15 g. M M
-Hidrógeno (peróxido), 10 v., solución tópica,
-frasco de 1 litro. HM M
-Iodo Polividona, 7,5% a 10%,
-solución tópica, frasco de 1 litro. HM
-Mercurocromo, solución acuosa al 2%, frasco de
-1 litro HE HM
-Neomicina (sulfato) 3,5 mg, con bacitracina
-500 UI, fórmula o fusidato sódico, 2% (20 mg/g),
-ünguento tópico, tubo de 15 g. AP M
-Oxido de zinc compuesto, fórmula, crema de 1/2
-o 1 kilogramo. HM
-Oxido de zinc compuesto, fórmula, crema, tubo
-de 60 g. AP
-Podofilina 25% (250 mg/ml), solución alcohol,
-frasco de 15 ml. HM
-Potasio (ioduro), fórmula, solución saturada oral,
-frasco gotero de 30 ml. M
-Sulfadiazina de plata 1% (10 mg/g), crema tópica,
-frasco de 400 g. HM M
-Sulfadiazina de plata 1% (10 mg/g), crema tópica,
-frasco de 50 g a 60 g. M M
-Sulisobenzona 10% (100 mg/ml), solución tópica,
-frasco de 60-75 ml. E
-Talidomida 100 mg, tabletas. R
-Tioconazol o bifonazol o miconazol (nitrato), 1%
-(10 mg/g), o 1% (10 mg/g) 0 2% (20 mg/g), respec-
-tivamente, crema cutánea, tubo de 15, 15 0 30 g.,
-respectivamente. M M
-Trioxisaleno 5 mg, tabletas. E
-47 PREPARACIONES GINECOLOGICAS
-Acido metacresolsufónico y formaldehído,
-18 mg/g., gel, tubo 50 g. con aplicador. E
-Acido metacresolsulfónico y formaldehído,
-90 mg, óvulos de 3 a 3,8 g. E
-Dienestrol o estrógenos conjugados equinos 0,1
-mg/g o 0,625 mg/g., crema vaginal, tubo 40 g
-con aplicador. M
-Tioconazol o miconazol (nitrato), 1% (100 mg) o
-2% (400 mg), respectivamente, óvulos vaginales. AP
-48 ANTIDOTOS
-Deferoxamina (mesilato), 500 mg, inyectable,
-frasco-ampolla de 10 ml. HR
-Edetato cálcico disódico 10% (100 mg/ml), 0
-20% (200 mg/ml), inyectable, ampollas de 5 o 10 ml. HR HM
-Fisostigmina (salicilato), 2 mg (1 mg/ml), inyec-
-table, ampolla de 2 ml. HR
-Ipecacuana 7% (70 mg/ml), solución oral,
-frasco de 1 000 ml. HM
-Obidoxima (cloruro), 250 mg/ml, inyectable,
-ampolla de 1 ml. HE M
-49 ANTIHEMORROIDALES
-Antihemorroidal (anestésico local, astringente,
-corticosteroide), fórmula, supositorios de 2 g. M
-Antihemorroidal (anestésico local, astringente,
-corticosteriode), fórmula, ungüento, tubo de 30 g. M
-50 MISCELANEOS
-Aciclovir. Base. 250 mg (como sal sódica),
-inyectable, frasco-ampolla de 10 ml. HE
-Aciclovir 200 mg, tabletas. E
-Acido aminoacético (glicina), 1,5%, solución,
-irrigación vesical, bolsa de 2 000 ml. HE
-Agua bidestilada, bolsa de 500 a 1 000 ml. HM M
-Beclometasona (dipropionato), 50 mcg/dosis,
-solución nasal, frasco de 200 dosis. E E
+(*)FORMULARIO TERAPÉUTICO NACIONAL:
+(*)(Incluido mediante el artículo 2° del decreto ejecutivo N° 26139 de 30 de mayo de 1997)
+| | FORMA | | NIVEL DE |
+NOMBRE GENÉRICO | POTENCIA | FARMACÉUTICA | PRESENTACIÓN | USO |
+| | | | C.C.S.S. | I.N.S.
+01 AMEBICIDAS ANTIPARASITARIOS, ANTIHELMINTICOS | | | | |
+| | | | |
+BENCILO BENZOATO | 25% v/v | LOCION | FRASCO 120 ml | M | HM
+CLOROQUINA BASE (COMO FOSFATO) | 150mg | TABLETAS | | M |
+CLOROQUINA BASE (COMO FOSFATO) | | | | |
+150 mg + PRIMAQUINA BASE (COMO FOSFATO) 15 mg. | | TABLETAS | | M |
+CLOROQUINA BASE (COMO FOSFATO) | | | | |
+75 mg + PRIMAQUINA BASE (COMO FOSFATO) 7.5 mg. | | TABLETAS | | M |
+HIDROX1CLOROQUINA BASE (COMO SULFATO) | 310mg. | TABLETAS | | M |
+LEVAMISOLE BASE (COMO CLORHIDRATO) | 50 mg. | TABLETAS | | R |
+MEBENDAZOL | 100 mg. | TAB. MASTICABLES | | M |
+MEGLUMINA ANTIMONIATO | 30% | INYECTABLE | AMPOLLA 5 mi. | M | E
+METRONIDAZOL | 500 mg. | TABLETAS | | M | HM
+METRONIDAZOL BASE | | | | |
+(COMO BENZOILO) | 125 mg. | | | |
+en 5 mi. | SUSPENSIÓN ORAL | FRASCO 120 mi. | M | |
+PIRIMETAMINA | 25 mg. | TABLETAS | | R |
+PRIMAQUINA BASE (COMO FOSFATO) | 5 mg. | TABLETAS | | M |
+PRIMAQUINA BASE (COMO FOSFATO) | 15mg. | TABLETAS | | M |
+TIABENDAZOL | 1 g. en 5 mi. | SUSPENSIÓN ORAL | FRASCO 15 mi. | M |
+| | | | |
+02 ANTIBIÓTICOS | | | | |
+| | | | |
+ACEDAPSONA | 150mg. / 1 mi. | INYECTABLE | FCO AMP. / 5 mi. | E |
+AMIKACINA (COMO SULFATO) | lOOmg. | INYECTABLE | FCO-AMP. 2 mi. | HR |
+AMIKACINA (COMO SULFATO) | 500 mg. | INYECTABLE | FCO-AMP. 2 mi. | HR | HR
+AMOXICILFNA (COMO TRIHIDRATO) | 500 mg. | CAP. O TABLETAS | | M | M
+AMOXICILINA (COMO TRIHIDRATO) | 250 mg. / 5 mi. | POLVO PARA SUSP. | FCO. 60o 100 mi. | M |
+AMPICILINA (COMO SAL SÓDICA) | 500 mg. | INYECTABLE | FCO-AMP. 5 mi. | HM |
+CEFALEXINA (COMO ANHIDRA O COMO | | | | |
+MONOHIDRATO) | 500 mg. | CAPSULAS 0 TABLETAS | M | M
+CEFALEXINA CÓMO MONOHIDRATO) | 250 mg. en 5 mi. | POLVO PARA SUSP. | | |
+| | ORAL O SUSP. ORAL | FRASCO 60 mi. | M |
+CEFALOTINA (COMO SAL SÓDICA) | lg. | INYECTABLE | FCO-AMP. 10 mi. | HM | HM
+CEFOTAXIMA (COMO SAL SÓDICA) | 1 g- | INYECTABLE | FCO-AMP. 10 mi. | HR | HM
+CEFTAZIDIMA (COMO PENTAHIDRATO) | lg- | INYECTABLE | FCO-AMP. 10 mi. | HR |
+CEFTRIAXONA BASE (COMO SAL SÓDICA) | 250 mg. | INYECTABLE | FCO-AMPOLLA 2 mi. | HM |
+CEFTRIAXONA BASE (COMO SAL SÓDICA) | lg- | INYECTABLE | FCO-AMP. 10ML. | | HM
+CIPROFLOXACINA BASE (COMO CLORHIDRATO) | 500 mg. | TAB. RANURADAS RECUBIERTAS | R | HM
+CLINDAMICINA (COMO FOSFATO) | 600 mg. | INYECTABLE | FCO-AMPOLLA o | |
+AMP. DE 4 mi.. | HR | HM | | |
+CLORANFENICOL | 500 mg. | CAPSULAS | | M |
+CLORANFENICOL (COMO PALMITATO o ESTEARATO) | 125 mg. | | | |
+en 5 mi. SUSPENSIÓN O JARABE ORAL | FRASCO 60 mi. | M | |
+DAPSONA | 100 mg. | TABLETAS | | E |
+DICLOXALINA (COMO SAL SÓDICA) | 500 mg. | CAPSULAS | | | M
+ERITROMICINA (COMO ESTEARATO O COMO | | | | |
+ETILSUCCINATO O COMO BASE) | 500 mg. | TABLETAS | | M | M
+ERITROMICINA (COMO ESTEARATO) | 250 mg./ 5 mi. | SUSPENSIÓN ORAL | FRASCO 60 mi. | M |
+ESPIRAMICINA O ACETIL ESPIRAMICINA | 500 mg. | TAB. 0 CAPSULAS | | E |
+GENTAMICINA (COMO SULFATO) | 10 mg. /mi. | INYECTABLE | FCO-AMP. 2 mi. | HM |
+GENTAMICINA (COMO SULFATO) | 40 mg. / mi. | INYECTABLE | FCO-AMPOLLA o | |
+AMP. DE 2 mi.. | HM | HM | | |
+IMIPENEM (COMO MONOHIDRATO) | | | | |
+500 mg + CILASTATINA (COMO SAL SÓDICA) 500 mg. | | INYECTABLE | FCO-AMPOLLA | |
+120 mi. | HR | | | |
+METRONIDAZOL | 500 mg. | INYECTABLE | BOLSA 100 mi. o | |
+AMP. 10 mi.. | HE | | | |
+NEOMICINA (COMO SULFATO) | 250 a 350 mg. | CAP. O TABLETAS | | HM |
+OXACILINA (COMO SAL SÓDICA) | lg- | INYECTABLE | FCO-AMP. 10 mi. | HM | HM
+PENICILINA G (COMO SAL SÓDICA O | | | | |
+POTASICA CRISTALINA) | 1. 000.000 UI | INYECTABLE | FCO-AMP. 5 mi. | HM | M
+PENICILINA G (COMO SAL SÓDICA O | | | | |
+POTÁSICA CRISTALINA) | 5.000.000 UI | INYECTABLE | FCO-AMP. 20 mi. | HM |
+PENICILINA G BENZAT1NICA. | 1. 200.000 UI | INYECTABLE | FCO-AMP. 4 mi. | HM | M
+PENICILINA FENOXIMETILICA (COMO SAL POTÁSICA O SAL CALCICA) | 1 a 1.2 M.U.I | TABLETAS | | M |
+SULFADIAZINA | 500 mg. | TABLETAS | | R |
+SULFASALACINA | 500 mg. | TAB. DE CUBIERTA ENTÉRICA | E |
+TETRACICLINA CLORHIDRATO U OXITETRACICLINA (COMO CLORH.) | 500 mg. | CAPSULAS | | M |
+TRIMETOPRIMA CON SULFAMETOXAZOL | | | | |
+(COTRIMOXAZOL) | 80 y 400 mg. | TABLETAS | | M | M
+TRIMETOPRIMA CON SULFAMETOXAZOL (COTRIMOXAZOL) | 40 y | | | |
+200 mg. / 5ml. | SUSPENSIÓN ORAL | FRASCO DE 100 a 120 mi. | M | |
+VANCOMICINA (COMO CLORHIDRATO) | 500 mg. | INYECTABLE | FCO-AMP. 10 mi. | HR |
+| | | | |
+03 ANTITUBERCULOSOS | | | | |
+| | | | |
+ESTREPTOMICINA (COMO SULFATO) | lg. | INYECTABLE | FCO-AMP. 5 mi. | M |
+ETAMBUTOL CLORHIDRATO | 400 mg. | TAB. RECUBIERTAS | | M |
+ISONIAZIDA | 300 mg. | TAB. RANURADAS | | M |
+PIRAZIN AMIDA | 500 mg. | TABLETAS | | M |
+RIFAMPICINA | 300 mg. | CAPSULAS | | M | E
+RIFAMPICINA | 100 mg. / 5 mi. | SUSPENSIÓN ORAL | FRASCO 60 mi. | M |
+| | | | |
+04 FUNGICIDAS | | | | |
+| | | | |
+ANFOTERICINA B | 50 mg. | INYECTABLE | FCO-AMP. 20 ml. | HE |
+FLUCONAZOL | 200 mg | CAPSULAS o TAB. | | R |
+GRISEOFULVINA | 125 mg/ 5 ml | SUSPENSION ORAL | FRASCO 120 ml. | M |
+GRISEOFULVINA ULTRAMICRONIZADA | 250 mg | TABLETAS | | M | M
+KETOCONAZOL | 200 mg | TAB. RANURADAS | | R | HM
+NISTATINA | 100.000 Ul en ml | SUSPENSION ORAL | FCO. GOT. 30 ml. | M |
+| | | | |
+05 ANTISÉPTICOS Y ANALGÉSICOS URINARIOS | | | | |
+| | | | |
+FENAZOPIRIDINA (COMO CLORHI.) | lOOmg. | TAB. RECUBIERTAS | | M | HM
+NITROFURANTOINA (MACROCRISTALES) | 50 mg. | CAPSULAS | | M | HM
+NITROFURANTOINA | 25 mg. / 5 mi. | SUSPENSIÓN ORAL | FRASCO 60 mi. | M |
+| | | | |
+06 ADRENERGICOS | | | | |
+| | | | |
+DOBUTAMINA CLORHIDRATO | 250 mg. | POLVO LIOFILIZADO | FCO-AMPOLLA | HR |
+DOPAMINA (COMO CLORHIDRATO) | 200 mg. | INYECTABLE | AMPOLLA 5 mi. | HE |
+EPINEFRINA (COMO CLORHIDRATO) | 1 mg. | INYECTABLE | AMPOLLA 1 mi. | HM | M
+METARAMINOL (COMO BITARTRATO) | 1% | INYECTABLE | FCO-AMP. 10 mi. | HE |
+PSEUDOEFEDRINA CLORHIDRATO | 60 mg. | TABLETAS | | M | E
+| | | | |
+07 AGENTES CARDIACOS | | | | |
+| | | | |
+AMIODARONA CLORHIDRATO | 200 mg. | TABLETAS | | R |
+AMIODARONA CLORHIDRATO | 150mg. | INYECTABLE | AMPOLLA 3 mi. | HR |
+DIGOXINA | 0.25 mg. | TAB. RANURADAS | | M |
+DIGOXINA | 0.25 mg. / mi. | INYECTABLE | AMPOLLA 1 mi. | HM |
+DIGOXINA | 0.005 % | ELIXIR | FCO. GOT. 60 mi. | E |
+DIGOXINA | 0.075% | SOLUCIÓN ORAL | FCO.GOTERO | |
+ÁMBAR 10 mi. | M | | | |
+ENALAPRILA MALEATO | 5mg. | TABLETAS | | R |
+ESTREPTOQUINASA | 1.500.000 UI | INYECTABLE | FCO-AMPOLLA | HR |
+INDOMETACINA | Img / mi. | | AMPOLLA | HR |
+PROPRANOLOL CLORHIDRATO | lOmg. | TABLETAS | | M |
+PROPRANOLOL CLORHIDRATO | 1 mg. / mi. | INYECTABLE | AMPOLLA 1 mi. | HE |
+QUINIDINA SULFATO | 200 mg. | TAB. RANURADAS | | E |
+VERAPAMILO CLORHIDRATO | 80 mg. | TAB. RECUBIERTAS. | | E |
+VERAPAMILO CLORHIDRATO | 5 mg. | INYECTABLE | AMP. 2 mi. o 2.2 mi. | HR |
+| | | | |
+08 ANTIHIPERTENSORES | | | | |
+| | | | |
+ATENOLOL | 100 mg. | TABLETAS | | M |
+- ENALAPRILA MALEATO | 20 mg. | TABLETAS | | R | HM
+HIDRALAZINA CLORHIDRATO | 50 mg. | TABLETAS | | M |
+HIDRALAZINA CLORHIDRATO | 20 mg. | INYECTABLE | SOLUCIÓN O POLVO LIOFILIZADO. | HM |
+HIDROCLOROTIAZIDA | 25 mg. | TAB. RANURADAS | | M | HM
+METILDOPA (LEVO-ALFA) | 250 mg. | TAB. RECUBIERTAS | | M |
+METILDOPA (LEVO-ALFA) | 500 mg. | TAB. RECUBIERTAS | | M | HM
+PROPRANOLOL CLORHIDRATO | 40 mg. | TABLETAS | | M |
+SODIO NITROPRUSIATO | 50 mg. | POLVO PARA SOL.INYECTABLE | AMPOLLA 5 mi. | HR |
+| | | | |
+09 DIURÉTICOS | | | | |
+| | | | |
+ESPIRONOLACTONA | 25 mg. | TABLETAS | | E |
+ESPIRONOLACTONA | 100 mg. | TAB. RANURADAS | | M |
+FUROSEMIDA | 40 mg. | TABLETAS | | M | HM
+FUROSEMIDA | 20 mg. | INYECTABLE | AMPOLLA 2 mi. | HM | M
+FUROSEMIDA | 5mg. | TABLETAS | | E |
+MANITOL | 25% | INYECTABLE | AMPOLLA o | |
+FCO-AMP. 50 mi. | HM | HM | | |
+| | | | |
+10 VASODILATADORES CORONARIOS | | | | |
+Y ANTIANGINOSOS | | | | |
+| | | | |
+GLICERITO-TRINITRATO | 0.5 a 0.6 mg. | TABLETAS SUBLINGUALES | M | HM
+ISOSORBIDE DINITRATO | 20 mg. | TAB. RANURADAS | | M |
+NIMODIPINA | 30 mg. | COMP. LAQUEADOS | | HR |
+NIFEDIPINO | 10 mg. | CAPSULAS | | M | M
+NITROGLICERINA | 1 mg. / mi. | INYECTABLE | AMP. 50 mi. | HR |
+| | | | |
+11 ANTICOAGULANTES | | | | |
+| | | | |
+HEPARINA SÓDICA | l.OOOU.I/1 mi. | INYECTABLE | FCO-AMP. 5-10 mi. | HE |
+HEPARINA SÓDICA | 5.000 U.I / 1 mi. | INYECTABLE | FCO-AMP. 5- 10 mi. | HM | HM
+WARFARINA SÓDICA | 5 mg. | TABLETAS | | M | HM
+NADROPARINA CALCICA 7500 U. | | | | |
+A Xa IC (EQUIVALENTE a 2 850 U. I A Xa) | | INYECTABLE | JERINGA | | R
+POR 0.3 mi. | | USO SUBCUTÁNEO | PRELLENADA | |
+| | | CON 0.3 mi. | |
+| | | | |
+12 HEMOSTÁTICOS | | | | |
+| | | | |
+ACIDO AMINOCAPROICO 500 mg. | 500 mg | TABLETAS | | E |
+ACIDO AMINOCAPROICO 25% | 25% | INYECTABLE | FCO-AMP. 20 ml. o AMP. 10 ml. | HE |
+FACTOR IX HUMANO (COMPLEJO) 500 UI | 500 UI a 600 Ul | INYECTABLE CON DILUENTE | FRASCO DE 20-30 ml | E |
+FACTOR VIII HUMANO CONCENTRADO (GLOBULINA ANTIHEMOFILICA) 250 UI a 300 UI | 250 Ul a 300 Ul | INYECTABLE CON DILUENTE | FCO-AMPOLLA 5 ml.. | E |
+FACTOR VIII HUMANO CONCENTRADO (GLOBULINA ANTIHEMOFILICA) 500 UI a 600 UI | 500 UI a 600 Ul | INYECTABLE CON DILUENTE | FCO-AMPOLLA 5 ml.. | E |
+FITOMENADIONA 1 mg. | 1 mg | INYECTABLE | AMP. 0.5-1 ml. | E |
+FITOMENADIONA 10 mg. | 10 mg | INYECTABLE | AMPOLLA 1 ml. | HM |
+PROTAMINA SULFATO O CLORHIDRATO 1% | 1% | INYECTABLE | AMPOLLA 5 ml. | HM |
+| | | | |
+13 HEMATINICOS | | | | |
+| | | | |
+ACIDO FOLICO | 1 mg. | TABLETAS | | M | HM
+ACIDO POLÍNICO (COMO SAL CALCICA) | 15 mg. | TABLETAS | | E |
+ACIDO POLÍNICO (COMO SAL CALCICA) o FOLINATO CALCICO | 50 mg, | INYECTABLE | FCO-AMP. 5 mi. | HE |
+ERITROPOYETINA RECOMBINANTE HUMANA | 2.000 ó 4.000 UI | INYECTABLE | FCO-AMPOLLA 1 o 2 mi. | HR |
+HIDROXIDO FÉRRICO POLIMALTOSATO | 50 mg/ml. DE HIERRO ELEMENTAL. | SOLUCIÓN ORAL | FCO. GOTERO DE 30 mi. | M |
+HIERRO ( DEXTRANO.SORBITOL, POLIMALTOSATO). | 50 mg. en 1 mi.. | INYECTABLE | FCO AMP. 10 mi. o AMP. 1-2 mi. | HR | HM
+HIERRO FUMARATO | 200 mg. | TABLETAS | | M | HM
+INTERFERON ALFA-2B o 2A RECOMBINANTE | 3.000.000 U.I./VIAL | INYECTABLE | FCO-AMP. 1 mi. | R |
+VITAMINA B-12 (CIANOCOBALAMINA) | 1000 mcg. en 1 mi. | INYECTABLE | FCO-AMPOLLA 10 mi. | HM | M
+| | | | |
+14 ANTIARTRÍTICOS, ANTIRREUMATICOS, | | | | |
+ANTIINFLAMATORIOS NO ESTEROIDES | | | | |
+| | | | |
+ACIDO ACETIL SALICILICO | 500 mg. | TABL.RECUB.CON CAPA ENTÉRICA | M | M
+DICLOFENACO SÓDICO | 75 mg. | INYECTABLE | AMPOLLA 3 mi. | M | M
+1BUPROFENO | 400 mg. | TAB. RECUBIERTAS | | M | M
+INDOMETACINA | 25 mg. | . CAPSULAS | | M | M
+INDOMETACINA | lOOmg. | SUPOSITORIOS | | M | M
+ORO TIOSULFATO SÓDICO O TIOMALATO O TIOGLUCOSA | 10 mg. | INYECTABLE | FCO-AMPOLLA o AMP. 5 o 1 mi.. | E |
+PENICILAMINA | 250 mg. | CAPSULAS | | E | E
+SULINDACO | 200 mg. | TAB. RANURADAS | | E |
+TENOXICAM | 20 mg. | TAB. RANURADAS | | R |
+| | | | |
+15 URICOSURICOS ANT1GOTOSOS | | | | |
+| | | | |
+ALOPURINOL | 300 mg. | TABLETAS | M | |
+COLCHICINA | 0.5 a 0.6 mg. | TABLETAS | M | |
+| | | | |
+16 ANALGESICOS NO NARCOTICOS | | | | |
+| | | | |
+ACETAMINOFEN (PARACETAMOL) | 500 mg. | TABLETAS | | M | M
+ACETAMINOFEN (PARACETAMOL) | 300 mg. | SUPOSITORIO 1 g. | | M |
+ACETAMINOFEN (PARACETAMOL) | 120 mg. / 5 mi. | JARABE | FRASCO 60 mi. | M |
+ACIDO ACETIL SALICILICO | 100 mg. | TABLETAS | | M | HM
+| | | | |
+17 ANALGÉSICOS NARCÓTICOS | | | | |
+Y ANTAGONISTAS DE NARCÓTICOS | | | | |
+| | | | |
+COCAÍNA CLORHIDRATO | | | | |
+CODEINA FOSFATO HEMIHIDRATADA CON ACETAMINOFEN | 30 mg. y 500 mg. Respect. | EN POLVO | | HR |
+FENTANILA CITRATO | 0.05 mg. / 1 mi. | TAB. RANURADAS | | M | M
+MORFINA SULFATO | 30 mg. A.P. | INYECTABLE | AMPOLLA 2 mi. | HE |
+MORFINA SULFATO | 30 mg. | TABLETAS | | M |
+MORFINA SULFATO | 30 mg. | TABLETAS | | M |
+| | GRANULADO DE LIBERACION | |
+| | PROLONGADA PARA SUSPENSION | SACHETS | M |
+MORFINA SULFATO O CLORHIDRATO | 15 mg. | INYECTABLE | AMPOLLA 1 mi. | M |
+NALOXONA CLORHIDRATO | 0.4 mg. | INYECTABLE | AMP. /1 mi. o 2 mi. | HE |
+TRAMADOL CLORHIDRATO | 100 mg. | INYECTABLE | AMPOLLA 2 mi. | M | M
+TRAMADOL CLORHIDRATO | lOOmg. /mi. | SOLUCIÓN ORAL | FCO-GOT. 10 mi. | R | HM
+| | | | |
+18 ANESTÉSICOS GENERALES | | | | |
+| | | | |
+DROPERIDOL | 2.5 mg/ml | INYECTABLE | AMP. de 2 mi. | HE |
+ENFLURANO | | SOLUCIÓN INHALANTE | FRASCO 125-250 ML. | HE |
+HALOTANO | | SOLUCIÓN INHALANTE | FRASCO 250 mi. | HE |
+KETAMINA (COMO CLORHIDRATO) | 1% | INYECTABLE | FCO-AMP. 20 mi. | HE |
+TIOPENTAL SÓDICO | 500 mg. | INYECTABLE | FCO-AMP. 10 mi. | HE |
+| | | | |
+19 ANESTÉSICOS LOCALES | | | | |
+| | | | |
+BUPIVACAINA CLORHIDRATO | 0.5% | INYECTABLE | FCO-AMPOLLA 20-50 mi. | HE |
+LIDOCAINA | 10% | SOL. EN AEROSOL | FCO. 65 a 80 g. | HE | E
+LIDOCAINA CLORHID.+EPINEFRINA o MEPIVACAINA | | | | |
+CLORHIDRATO + LEVONORDEFRINA | 2% + 1 :80000 o 2% +1 :20000, respectivamente. | INYECTABLE | CARTUCHO VIDRIO 1 .8 mi. | HE | E
+LIDOCAINA CLORHIDRATO | 2% | JALEA | TUBO 30 g. | HE |
+LIDOCAINA CLORHIDRATO CON DEXTROSA | 5% y 7.5% respectivamente. | INYECTABLE | AMPOLLA 2 mi. | HE |
+LIDOCAINA CLORHIDRATO + EPINEFRINA | 2% + 1:100000 o 1:200000, respectivamente. | INYECTABLE | FCO-AMPOLLA 20 a 30 mi. | HM | E
+LIDOCAINA CLORHIDRATO CON PRESERVANTE | 2% | INYECTABLE | FCO-AMPOLLA 20-30 mi. | HM | E
+LIDOCAINA CLORHIDRATO o MEPIVACAINA CLORHIDRATO | | | | |
+SIN VASOCONSTRICTOR | 2% o 3% respectivamente. | INYECTABLE | CARTUCHO VIDRIO 1.8 mi. | HE | E
+LIDOCAINA CLORHIDRATO SIN PRESERVANTE | 2% | INYECTABLE | AMPOLLA 5 mi. | HE | M
+| | | | |
+20 RELAJANTES MUSCULARES | | | | |
+| | | | |
+ATRACURIO BESILATO | 10 mg. / mi. | INYECTABLE. | AMP. DE 2.5ml | HE |
+PANCURONIO BROMURO | 2 mg. / mi. | INYECTABLE | AMP. DE 2ml | HE |
+SUCCINIL COLINA CLORURO | 50 mg. / mi. | INYECTABLE | FCO-AMP.10ml | HE |
+| | | | |
+21 ANTICOLINERGICOS / ANTIESPASMODICOS | | | | |
+| | | | |
+ATROPINA SULFATO | 0.5mg | INYECTABLE | AMPOLLA 1 mi. | HM | M
+BELLADONA CON FENOBARBITAL | FORMULA | ELIXIR | FRASCO 120 mi. | M |
+HIOSC1NA BROMURO DE N-BUTIL o PROPINOXATO o PRAMIVERINA 10, 5 ó 2 mg. respectivamente. | TABLETAS RECUBIERTAS | M | M
+HIOSClNABROMURODEN-BUTILoPROPINOXATOoPRAMIVERINA 20 o 5 o 2.25 mg., respectivamente. | INYECTABLE | AMPOLLA DE 1 mi., 1 mi o 2 mi., |
+| | | | HM | HM
+| | | | |
+22 COLINERGICOS | | | | |
+| | | | |
+BETANECOL CLORURO | l0mg. | TABLETAS | | E | E
+NEOSTIGMINA BROMURO | 15 mg. | TABLETAS | | M |
+NEOSTIGMINA MET1LSULFATO | 0.5 mg. | INYECTABLE | AMPOLLA 1 mi. | HM |
+| | | | |
+23 ANTIASMATICOS Y BRONCODILATADORES | | | | |
+| | | | |
+AMINOFILINA | 250 mg. | INYECTABLE | AMPOLLA 10 mi.. | HM | M
+BECLOMETASONA DIPROPIONATO | 50 mcg. / dosis | SOL. AEROSOL | FRASCO 200 DOSIS | E | E
+CROMOGLICATO DISOD1CO | 1 mg / dosis. | SOL. AEROSOL | FRASCO 200 DOSIS | E | E
+SALBUTAMOL | 0.1 mg. / dosis | AEROSOL | FRASCO 200 DOSIS | M | HM
+SALBUTAMOL (COMO SULFATO) | 4 mg. | TAB. RANURADAS | | M |
+SALBUTAMOL (COMO SULFATO) | 0.5% | SOLUCIÓN RESPIRADOR. | FRASCO 50 mi. | HM | HM
+SALBUTAMOL SULFATO | 2 mg. / 5ml. | JARABE | FCO 120-150 mi.. | M |
+TEOFILINA ANHIDRA | 150mg. | TABLETAS | | M |
+TEOFILINA ANHIDRA | 50 mg. / 5ml.. | ELIXIR | FRASCO 120 mi. | M | HM
+TEOFILINA ANHIDRA-AP | 250 a 300 mg. | TAB. RANURADAS | | R | HM
+| | | | |
+24 ANTITUSIGENOS | | | | |
+| | | | |
+CODEINA FOSFATO | 10 mg. / 5 mi. | JARABE | FCO 100-120 mi.. | M | M
+DEXTROMETORFANO BROMHIDRATO | 15mg. | TABLETAS | | M |
+DEXTROMETORFANO BROMHIDRATO | 15 mg. en 5 mi. | JARABE | FCO. 100-120 mi. | M | M
+| | | | |
+25 ANTIHISTAMINICOS, ANTIHEMETICOS, ANTIPRURITICOS | | | |
+| | | | |
+ASTEMIZOL lOmg. | 10 mg | TABLETAS | | E | E
+CLOROFENIRAMINA MALEATO 4 mg. | 4 mg | TABLETAS | | M | M
+CLOROFENIRAMINA MALEATO 1% | INYECTABLE | AMPOLLA 1 ml. | HM |
+CLOROFENIRAMINA MALEATO | 2 mg en 5 ml | JARABE | FRASCO 120 ml. | M |
+DESCONGESTIONANTE RESPIRATORIO | | | | |
+(BROMOFENIRAMINA MALEATO 4 mg., FENILEFRINA CLORHIDRATO. 5 mg. | | | |
+y FENILPROPANOLAMINA CLORHIDRATO 5 mg.) | Por 5 ml.. | SOLUCIÓN ORAL | FCO. 100 o 120 ml. | M | M
+DESCONGESTIONANTE RESPIRATORIO (BROMOFENIRAMINA MALEATO 8 mg., | | |
+FENILEFRINA CLORHIDRATO 10 mg. y | | | | |
+FENILPROPANOLAMINA CLORHIDRATO 10 mg.) | | TABLETAS RANURADAS | M |
+DIFENHIDRAMINA CLORHIDRATO | 50 mg | TAB. RANURADAS | | M | M
+DIFENHIDRAMINA CLORHIDRATO | 12.5 mg/5 ml | JARABE | FRASCO 120 ml. | M |
+DIMENHIDRÍNATO | 50 mg | TABLETAS | | M | M
+DIMENHIDR1NATO | 25 mg | SUPOSITORIO 1 g. | | M |
+DIMENHIDRINATO | 100 mg | SUPOSITORIO 2 g. | | M |
+DIMENHIDRÍNATO | 5% | INYECTABLE | FCO-AMP 5 ml. | M | M
+TROPISETRON (COMO CLORHIDRATO) 1 mg / mi., AMPOLLAS DE 5 mi., | | | |
+o GRANISETRON (COMO CLORHIDRATO) AMPOLLAS DE 3 mi. | | AMPOLLA | HR |
+PROMETAZINA (COMO CLORHIDRATO) | 50 mg | INYECTABLE | AMPOLLA 2 mi. | HM | HM
+| | | | |
+| | | | |
+26 ANTIPARKINSONIANOS | | | | |
+| | | | |
+BIPERIDENO CLORHIDRATO | 2 mg | TABLETAS | | H | E
+BIPERIDENO LACTATO | 0.50% | INYECTABLE | AMPOLLA 1 ml. | HM |
+LEVO DOPA CON INHIBIDOR | 100 + 25 mg. respectivamente. | TABLETAS RANURADAS | E |
+| | | | |
+27 ANTIMIGRAÑA | | | | |
+| | | | |
+ERGOTAMINA TARTRATO o ERGOTAMINA TARTRATO y CAFEÍNA | 2mg o i mg + 100 mg | TABLETAS | | M |
+| | | | |
+28 ANTICONVULSIVOS | | | | |
+| | | | |
+CARBAMAZEPINA | 200 mg. | TABLETAS | | E | E
+CARBAMAZEPINA | 2% | JARABE | FRASCO 100 ml. | E |
+CLONAZEPAM | 2mg. | TABLETAS | | M |
+CLONAZEPAM | 2.5 mg. / mi. | SOLUCIÓN ORAL | FCO-GOT 10 ml. | M |
+DIFENILHIDANTOINA (FENITOINA) SÓDICA | 50 mg. / mi. | INYECTABLE | AMPOLLA o FCO-AMP. 5 ml. | HM |
+DIFENILHIDANTOINA BASE (FENITOINA) | 125 mg. / 5ml. | SUSPENSIÓN | FCO. 100-120 ml. | M |
+DIFENILHIDANTOINA SÓDICA (FENITOINA) | l00mg. | CAPSULAS | | M | HM
+DIVALPROATO ACIDO DE SODIO | | | | |
+EQUIVALENTE A 250 mg. DE ACIDO VALPROICO. | | TABLETAS CAPA ENTÉRICA | M |
+FENOBARBITAL | 25 mg. | TAB. RANURADAS | | M |
+FENOBARBITAL | l00mg. | TAB. RANURADAS | | M | HM
+FENOBARBITAL SÓDICO | 50 mg. | INYECTABLE | AMPOLLA 1 ml. | HM |
+PRIMIDONA | 250 mg. | TABLETAS | | E |
+PRIMIDONA | 250 mg. / 5 mi. | SUSPENSIÓN ORAL | FCO. 120 o 150 ml. | E |
+VALPROATO DE SODIO | 200 mg. / mi.. | SOLUCIÓN ORAL | FCO-GOT. 40 ml. | M |
+VIGABATR1NA | 500 mg | TABLETAS | | R |
+| | | | |
+29 ANTIDEPRESORES | | | | |
+| | | | |
+AMITRIPTIL1NA CLORHIDRATO | 25 mg. | TABLETAS. | | HM |
+AMITRIPTILINA CLORHIDRATO | 10 mg. | TAB. RECUBIERTAS | M | HM |
+FLUOXETINA Cl 20 MG. CAPSULA o SERTRALINA Cl 50 MG. | | | |
+TAB.RANURADA o PAROXETINA Cl 20mg. TAB. RANURADAS | | E | |
+IMIPRAMINA CLORHIDRATO | 10 mg. | TAB. RECUBIERTAS | M | HM |
+IM1PRAMINA CLORHIDRATO | 25 mg. | TAB. RECUBIERTAS | M | HM |
+LITIO CARBONATO | 300 mg. | TABLETAS | E | |
+| | | | |
+30 ANTISICOTICOS | | | | |
+| | | | |
+CLORPROMAZINA (COMO CLORHIDRATO) | l00mg. | TAB. RANURADAS | | E |
+CLORPROMAZINA (COMO CLORHIDRATO) | 25 mg. / mi. | INYECTABLE | AMPOLLA 2 ml. | HE |
+FLUFENAZINA DECANOATO | 25 mg. | INYECTABLE | AMPOLLA o FCO-AMP. 1 mi. | HE |
+HALOPERIDOL | 5 mg. | TABLETAS | | E |
+HALOPERIDOL | 5 mg. | INYECTABLE | AMPOLLA 1 ml. | HE | HM
+HALOPERIDOL | 0.2% | SOLUCIÓN ORAL | FCO-GOT 15 ml. | E | HM
+LEVOMEPROMAZIMA (COMO CLORHIDRATO) | 25 mg. | INYECTABLE | AMPOLLA 1 ml. | HE |
+LEVOMEPROMAZINA (COMO MALEATO) | 25 mg. | TABLETAS | | E |
+PERFENAZINA | 4mg. | TAB. RECUBIERTAS | | E |
+TIORIDAZINA CLORHIDRATO | 10 mg. | TAB. RECUBIERTAS | | M | HM
+TIORIDAZINA CLORHIDRATO | 100 mg. | TAB. RECUBIERTAS | | E | HM
+TIOTIXENO | 10 mg. | TABLETAS | | E |
+TRIFLUOPERAZINA (COMO DICLORHIDRATO) | 5mg. | TAB. RECUBIERTAS | | E |
+| | | | |
+| | | | |
+31 SEDANTES/HIPNOTICOS/ANSIOLITICOS | | | | |
+| | | | |
+CLOBAZAM | 10 mg | TABLETAS | | E |
+CLORAL HIDRATO | 500 mg/5 ml | SOLUCION ORAL | FRASCO 120 ml | M |
+DIAZEPAM | 5 mg | TAB. RANURADAS | | M | M
+DIAZEPAM | 10 mg | INYECTABLES | AMPOLLA 2 ml | HM | M
+DIAZEPAM | 2 mg/5 ml | SOLUCION | FCO. 100 o 120 ml | E |
+HIDROXICINA BICLORHIDRATO o PAMOATO | 25 mg | TAB. RANURADAS | | M | HM
+fflDROXICINA BICLORHIDRATO o PAMOATO | 10 mg. En 5 ml | JARABE | FRASCO 200 ml | E | HM
+LORAZEPAM | 2 mg | TABLETAS | | M | HM
+MIDAZOLAM | 15 mg | TABLETAS CON FILM RANURADAS | E |
+MIDAZOLAM | 5 mg/ml | AMPOLLA | 3 ml | HE |
+| | | | |
+32 AGENTES GASTROINTESTINALES, ANTIACIDOS Y ANTAGONISTAS DEL RECEPTOR H2 | | |
+| | | | |
+ALUMINIO HIDROXIDO 200 mg. Y MAGNESIO HIDROXIDO 150-200 mg. | | | |
+CON DIMETILPOL 25 mg. | | TABLETAS MASTICABLES | M |
+ALUMINIO HIDROXIDO CON MAGNESIO F.E.U. | FORMULA | SUSPENSIÓN ORAL | FCO. DESOOml. | M |
+ALUMINIO HIDROXIDO CON MAGNESIO F.E.U. | FORMULA | SUSPENSIÓN ORAL | FCO. DE240-360ml. | | M
+ALUMINIO HIDROXIDO SIN MAGNESIO | 200-300 mg. | TABLETAS MASTICABLES | E |
+ALUMINIO HIDROXIDO, 5.5 A 6.7% P/P SIN MAGNESIO | | SUSPENSIÓN ORAL | FCO. 120o 180 mi. | E | HM
+ANTIÁCIDO COMP.EN POLVO | | | | |
+(CRETA 40% + Mg. CARBONATO 40%+ Na BICARBONATO 20%). | FORMULA | POLVO | FRASCO 120 g. | M |
+CIMETIDINA (COMO CLORHIDRATO) | 300 mg. | INYECTABLE | AMPOLLA 2 mi. | HR |
+CIMETIDINA CLORHIDRATO | 200 mg. / 5 mi. | JARABE | FCO 150 mi. | E |
+CISAPRIDE | Img. / mi. | SOLUCIÓN ORAL | FCO-GOT lOOml. | E |
+E4MOTIDINA | 40 mg. | TAB. RANURADAS | | M | HM
+METOCLOPRAMIDA (COMO CLORHIDRATO) 4.6 mg. / mi. | 4.6 mg. / mi. | SOLUCIÓN ORAL | FCO-GOTERO 30 ml. | E |
+METOCLOPRAMIDA CLORHIDRATO | 10 mg. | TABLETAS | | M | HM
+METOCLOPRAMIDA CLORHIDRATO | 10 mg. | INYECTABLE | AMPOLLA 2 ml. | HM |
+PANCREATINA EN MICROESFERULAS CON CAPA ENTÉRICA (LIPASA 4000 U, | | |
+AMILASA 20.000 U, PROTEASA 25.000 U). | | CAPSULAS | | R |
+| | | | |
+33 ANTIDIARREÍCOS Y LAXANTES | | | | |
+| | | | |
+ACEITE DE RICINO | | | FRASCO 60 ml | M |
+BISACODILO | 10 mg. | SUPOSITORIO 2g | | M | HM
+GLICERINA | 1 a 1.5 g. | SUPOSITORIO | | M |
+GLICERINA | 2 a 2.6 g. | SUPOSITORIO | | M |
+LOPERAMIDA CLORHIDRATO | 2 mg. | CAPSULAS o TABL. RECUBIERTAS | M |
+MAGNESIO HIDROXIDO F.E.U | FORMULA | SUSPENSIÓN ORAL | FCO. 120 a 180 ml. | M | HM
+MICROENEMA | FORMULA | SOLUCIÓN TÓPICA | ENVASE 5 ml. | HR |
+MUCILAGO (PSILLIUM HIDROFILICO) FORMULA O POLICARBOFILO CALCICO | 625 mg. | GRANULADO FCO. 100-120 g. o TAB., respectivamente. | M | HM
+PETROLATO LIQUIDO PESADO EMULSIFICADO | FORMULA | SUSPENSIÓN ORAL | FRASCO 180 ml. | M | HM
+| | | | |
+34 CORTICOSTEROIDES | | | | |
+| | | | |
+BETAMETASONA O DEXAMETASONA. | 0.5 mg. | TABLETAS | | M | M
+DEXAMETASONA FOSFATO (COMO SAL SÓDICA) | | | | |
+O BETAMETASONA FOSFATO SÓDICO | 4 o 5 mg. | INYECTABLE | AMPOLLA 1 ml. | HM | M
+FLUDROCORTISONA ACETATO | 0.1 mg. | TABLETAS | | E |
+HIDROCORTISONA | 5mg. | TABLETAS | | E |
+HIDROCORTISONA | 20 mg. | TABLETAS | | E |
+HIDROCORTISONA (COMO SUCCINATO SÓDICO) | 100 mg. | INYECTABLE | FCO-AMP.2 ml. | HM | M
+METILPREDNISOLONA (COMO SUCCINATO SÓDICO) | 500 mg. | INYECTABLE | FCO-AMPOLLA | |
+8-10 mi. | HE | M | | |
+PREDNISOLONA | 1 mg. | TABLETAS | | M |
+PREDNISOLONA | 5mg. | TAB. RANURADAS | | M | M
+PREDNISOLONA | 25 mg. | TAB. RANURADAS. | | E |
+TRIAMCINOLONA ACETONIDO 10 mg/ml. | | | | |
+o DIACETATO DE TRIAMCINOLONA 25 mg/ml. | | INYECTABLE | FCO-AMP. 5ml. | HE | E
+| | | | |
+35 ANDROGENOS Y ANABÓLICOS | | | | |
+| | | | |
+DANAZOL | 200 mg. | CAPSULAS | | R |
+OXIMETOLONA | 50 mg. | TABLETAS | | E |
+TESTOSTERONA ENANTATO | 250 mg. | INYECTABLE | AMPOLLA 1 ml. | E |
+| | | | |
+36 ESTROGENOS, PROGESTAGENOS, | | | | |
+ANOVULATORIOS | | | | |
+| | | | |
+| | | | |
+CONTRACEPTIVO ORAL: LEVONORQESTREI. CON ETINILESTRADIOL. | 0.150 mg. con 30 mcg. | TABLETAS RECUBIERTAS | CAJA 21 (28) | M |
+CONTRACEPTIVO ORAL: NOROESTREL CON ETINILESTRADIOL. | 0.5 mg. con 50 mcg. | TABLETAS RECUBIERTAS | CAJA 21 (28) | M |
+DIETILESTILBESTROL | 1 mg. | TABLETAS | | E |
+DISPOSITIVO INTRAUTERINO (D.I.U.) | | | | M |
+ENANTATO DE METENOLONA | 100 mg. / ml.. | AMPOLLA | 1 ml. | HR |
+ESTRADIOL (COMO I7N.VALERATO) | 10 mg. | SOLUCIÓN OLEOSA INYECTABLE | AMPOLLA 1 ml. | E |
+ESTRADIOL VALERIANATO y ESTRADIOL VALERIANATO | | | |
+CON NORGESTREL | 2mg. y 2mg.+ 0.5 mg. | TABLETAS | SOBRE 21 TABLETAS | R |
+ESTROGENOS CONJUGADOS | 0.625 mg. | TABLETAS | | M |
+MEDROXIPROGESTERONA ACETATO | 5 mg. | TABLETAS | | M |
+MEDROXIPROGESTERONA ACETATO | 500 mg. | INYECTABLE | FCO-AMPOLLA 2.5 a 3.3 mi. | HE |
+MEDROXIPROGESTERONA ACETATO | 150 mg. | INYECTABLE | FCO-AMP. 1-3 ml. | M |
+PROGESTERONA | 100 mg. | INYECTABLE | AMPOLLA 1 ml. | E |
+| | | | |
+| | | | |
+37 OXITOCICOS V PREVENCIÓN DE PARTOS | | | | |
+| | | | |
+METILERGOBASINA MALEATO | 0.2 mg. | INYECTABLE | AMPOLLA 1 ml. | HM |
+OXITOC1NA SINTÉTICA | 5U.I. | INYECTABLE | AMPOLLA 1 ml. | HM |
+SALBUTAMOL (COMO SULFATO) o ALBUTEROL (COMO SULFATO) | 1 mg. / ml. | INYECTABLE | AMPOLLA 5 ml. | HM |
+| | | | |
+| | | | |
+38 HORMONAS HIPOTALAMICAS, | | | | |
+PITUITARIAS V OTROS AGENTES | | | | |
+| | | | |
+BROMOCRIPTINA (COMO MESILATO) | 2.5 mg. | TABLETAS | | E |
+CLOMIFENO CITRATO | 50 mg. | TABLETAS | | E |
+DIAMINO DIARGININA VASOPRESINA ACETATO | | | | |
+(DESMOPRESINA ACETATO) | 100 mcg. en 1 mi. | SOLUCIÓN NASAL. | FRASCO 2.5 mi.. | R |
+GONADOTROFINA CORIONICA | 1000 U.I. en 1 mi.. | INYECTABLE | FCO-AMP. 5-10ml. | E |
+GONADOTROFINA HUMANA POSTMENOPAUSICA | 75 U.l.-FSH + 75 U.I.-LH | INYECTABLE | AMPOLLA 1 mi. | E |
+HORMONA DE CRECIMIENTO BIOSINTETICA 4 a 13 U.I. | | INYECTABLE | FCO-AMPOLLA | HR |
+LEUPROREI.INA (LEUPROLIDE) ACETATO | 3,75 mg. | | FCO-AMPOLLA LIOF1L17.ADO |
+| | | CON DISOLVENTE PARA SUSPENSION DEPOT | R
+| | | | |
+39 H1POGLICEMIANTES E HIPERGLICEMIANTES | | | | |
+| | | | |
+DIAZOXIDO | 50 mg. | CAPSULAS | | R |
+GLIBENCLAMIDA o GLIPI7.IDA o GLICACIDA | 5 mg., 5 mg. y 80 mg., respectivamente | TABLETAS RANURADAS | M | HM
+INSULINA CRISTALINA BIOSINTETICA | 100 U.I./ml. | SOLUCIÓN INYECTABLE | FCO-AMP. 10 mi. | M | HM
+INSULINA DE ACCIÓN INTERMEDIA (N.P.H).BIOSINTETICA. | 100 U.I/ml. | SUSPENSIÓN INYECTABLE | FCO-AMP. 10 mi. | M | HM
+INSULINA HUMANA CRISTALINA DE ACCIÓN RÁPIDA | 100 U.I / ml. | INYECTABLE | CARTUCHO 1.5-2ml. | R |
+INSULINA HUMANA DE ACCIÓN INTERMEDIA | 100 U.I / ml. | INYECTABLE | CARTUCHO 2.5 ral. | R |
+METFORMINA CLORHIDRATO | 850 mg. | TAB. RANURADAS | | E |
+| | | | |
+40 HORMONAS TIROIDEAS Y DROGAS ANTITIROIDEAS | | | |
+| | | | |
+LEVOTIROX1NA SÓDICA | 25 mg. | TABLETAS | | E |
+LEVOTIROXINA SÓDICA | 0.025 mg. | TABLETAS | | M |
+LEVOTIROXINA SÓDICA | 0.10mg. | TAB. RANURADAS | | M |
+PROPILTIOURACILO | 50 mg. | TABLETAS | | M |
+SOLUCIÓN DE YODO FUERTE (LUGOL) | FORMULA | SOLUCIÓN ORAL | FCO-GOT. 30 ml. | M |
+| | | | |
+| | | | |
+41 ANTINEOPLAS1COS | | | | |
+| | | | |
+AZAT1OPRINA | 50 mg. | TABLETAS | | M |
+BLEOMICINA (COMO SULFATO) | 15 mg. | INYECTABLE | AMPOLLA 5 ml. | HE |
+BUSULFANO | 2mg. | TABLETAS | | E |
+CICLOFOSFAMIDA | 50 mg. | TAB. RECUBIERTAS | | E |
+CICLOFOSFAMIDA | 500 mg. | INYECTABLE | FCO-AMP. 20 ml. | HE |
+CISPLATINO | 10 mg. | INYECTABLE | FCO-AMP. 10 ml. | HE |
+CITARABINA | 100 mg. | INYECTABLE | FCO-AMP. 5 ml. | HE |
+CLORAMBUCILO | 2 mg. | TABLETAS | | E |
+DACARBAZINO | 200 mg. | INYECTABLE | FCO-AMP. 20 ml. | HE |
+DACTINOMICINA | 0.5 mg. | INYECTABLE | FCO-AMP. 3 ml. | HE |
+DAUNORRUBICINA | 20 mg. | INYECTABLE | FCO-AMP | HE |
+EPIRUBICINA (CLORHIDRATO) | 50 mg. | INYECTABLE | FCO-AMP. 25 ml. | HE |
+ETOPOSIDO | 20 mg. / ml. | INYECTABLE | AMPOLLA 5 ml. | HE |
+FLUOROURACILO | 250 mg. | INYECTABLE | AMPOLLA o FCO-AMP. 5 ml. | HE |
+FLUTAMIDA O NILUTAMIDA | 250 mg. o 50 mg. Respec. | TABLETAS | | R |
+IDARUBICINA CLORHIDRATO (POLVO LIOFILIZADO) | 5mg. | INYECTABLE | FCO-AMPOLLA | HE |
+IFOSFAMIDA | 2g. | INYECTABLE | FCO-AMPOLLA | HE |
+L-ASPARAGINASA | 10000 U.I. | INYECTABLE | FCO-AMP. 10 ml. | HE |
+MELFALANO | 2mg. | TABLETAS | | E |
+MERCAPTOPURINA | 50 mg. | TABLETAS | | E |
+MESNA | 400 mg. | INYECTABLE | AMPOLLA 4 ml. | HE |
+METOTREXATO (AMETOPTERINA) | 2.5 mg. | TABLETAS | | E |
+METOTREXATO (AMETOPTERINA) (COMO SAL SÓDICA) | 50 mg. | INYECTABLE | FCO-AMP. 2 ml. | HE |
+MITOMICINA C | 5 mg. | INYECTABLE | FCO-AMP. 5 ml. | HE |
+PROCARBAZINA CLORHIDRATO | 50 mg. | CAPSULAS | | E |
+TAMOX1FENO (COMO CITRATO) | 20 mg. | TABLETAS | | E |
+VINBLASTINA SULFATO | 10 mg. | INYECTABLE | FCO-AMP. 10 ml. | HE |
+VINCRISTINA SULFATO | 1 mg. | INYECTABLE | FCO-AMP. 10 ml. | HE |
+| | | | |
+42 VITAMINAS | | | | |
+| | | | |
+COMPLEJO B. | | INYECTABLE | FCO-GOT.10ml | |
+MULTIVITAMINAS I.V | FORMULA PEDIATRICA | | HR |
+MULTIVITAM1NAS I.V. | FORMULA | INYECTABLE | FCO-GOT.10ml | HR |
+VITAMINA A (RETINOL) | 25.000 U.l | PERLAS | | E |
+VITAMINA A (RETINOL) | 50000 U.l | | | |
+por 1 ml. | SOLUCION ORAL | FCO-GOT.30 ml | E | |
+VITAMINA B1 (TIAM1NA CLORHIDRATO) | 100 mg | TABLETAS | | M |
+VITAMINA Bl (TIAM1NA CLORHIDRATO) | 1 g | INYECTABLE | FCO-GOT.10ml | HM |
+VITAMINA B6 (PIRIDOXINA CLORHIDRATO) | 50 mg | TABLETAS | | M |
+VITAMINA B6 (PIRIDOXINA CLORHIDRATO) | 50 mg | INYECTABLE | AMP. 1 ml | HM |
+VITAMINA C (ACIDO ASCORBICO | | | | |
+500 mg) o ACIDO ASCORBICO | | | | |
+250 mg. + ASCORBATO DE SODIO | | | | |
+281.25 mg) | | TABLETA | | M | M
+VITAMINA C (ACIDO ASCORBICO) | 100 mg/ml | SOLUCION ORAL | FCO-GOT.30ml | M |
+VITAMINA D3 (1 ALFA HIDROXICHOLE CALCIFEROL) | 0.25 mcg | CAPSULAS | | E |
+VITAMINA D3 (1 ALFA HIDROXICHOLE CALCIFEROL) | 1 mcg | CAPSULAS | | E |
+VITAMINA D3 (COLECALCIFEROL) | 10.000 U.l/1 ml | SOLUCION ORAL | FCO-GOT.30ml | M |
+| | | | |
+43 ELECTROLITOS Y SOLUCIONES PARENTERALES | | | | |
+| | | | |
+AGUA ESTÉRIL PARA INYECCIÓN | | | AMP. 5 ml | HM |
+AGUA ESTÉRIL PARA INYECCIÓN | | | AMP. 10 ml | HM | M
+AGUA ESTÉRIL PARA INYECCIÓN | | | FCO-AMP. 20 ML | | M
+AMINOÁCIDOS SIN CARBOHIDRATOS | 10% | INYECTABLE | FRASCO 500 ml | HR |
+BAÑO CONCENTRADO PARA HEMODIALISIS NORMAL | FORMULA | SOLUCION CONCENTRADA | GALONES | HE |
+CALCIO CARBONATO | 500 a 600 mg DE CALCIO IONICO | TAB. RECUBIERTAS | | E |
+CALCIO GLUCONATO | 10% | INYECTABLE | AMP. 10 ml | HM | M
+DEXT. 1 % NaCl 0,5% KC1 0,1% y ACETATO DE Na 0,65% | INYECTABLE | BOLSA 2 LITROS | HM |
+DEXTRAN 40 | 10% | INYECTABLE | BOLSA 500 ml | HE |
+DEXTRAN 70 | 6% | INYECTABLE | BOLSA 500 ml | HM |
+DEXTROSA | 5% | INYECTABLE | BOLSA 50 ml | HM |
+DEXTROSA | 5% | INYECTABLE | BOLSA 100 ml | HM |
+DEXTROSA | 5% | INYECTABLE | BOLSA 250 ml | HM |
+DEXTROSA | 5% | INYECTABLE | BOLSA 500 ml | HM | M
+DEXTROSA | 5% | INYECTABLE | BOLSA 1000 ml | HM | M
+DEXTROSA | 10% | INYECTABLE | BOLSA 250 ml | HM |
+DEXTROSA | 10% | INYECTABLE | BOLSA 1000 ml | HM |
+DEXTROSA | 50% | INYECTABLE | BOLSA 50 ml | HM | M
+DEXTROSA | 50% | SOL. INYECTABLE | BOLSA 1000 ml | HR |
+DEXTROSA Y SODIO CLORURO | 5%, 0.9% | INYECTABLE | BOLSA 500 ml | HM | M
+DEXTROSA Y SODIO CLORURO | 5%, 0.9% | INYECTABLE | BOLSA 1000 ml | HM | M
+DEXTROSA, SODIO CLORURO Y POTASIO CLORURO. | 5%, 0.3%, 0.15% y 0.4% | INYECTABLE | BOLSA 500 ml | HM |
+DEXTROSA, SODIO CLORURO, POTASIO CLORURO Y SODIO ACETATO. | 2%, 0.35%, 0.15% y 0.4% | INYECTABLE | BOLSA 500 ml | HM |
+DEXTROSA, SODIO CLORURO, POTASIO CLORURO. | 5%, 0.3%, 0.149% | INYECTABLE | BOLSA 250 ml | HM |
+EMULSIÓN DE LIPIDOS TRIGUCERIDOS CADENAS MEDIANAS Y LARGAS | 20% | INYECTABLE | FCO 250 ml | HR |
+FOSFATOS | FORMULA | INYECTABLE | FCO-AMPOLLA o AMPOLLA 15 ml | HE |
+FOSFATOS ÁCIDOS (PREPARAR EN FARMACIA) | FORMULA | SOLUCION ORAL | FCO. 1000 ml | E |
+FOSFATOS NEUTROS | FORMULA | TABLETAS | | E |
+MAGNESIO SULFATO | 20 a 25% | INYECTABLE | AMPOLLA | |
+FCO-AMP. 10 mi. | HM | | | |
+OLIGO ELEMENTOS INYECTABLES: COBRE (CLORURO), | | | |
+CROMO (CLORURO), ZINC (CLORURO) | 0.4 mg/ml., 4mcg./ ml., 1 mg./ ml | INYECTABLE | FCO-AMP. 10 ml | HR |
+POTASIO CLORURO | 2 MOLAR | INYECTABLE | AMPOLLA 10 ml., o FCO-AMP | HM |
+POTASIO GLUCONATO | 20 Meq./ 15 ml | ELIXIR O SOLUCION ORAL | FCO. 150 a 180 ml | M |
+SALES PARA HIDRATACION ORAL | FORMULA | POLVO ORAL | SOBRES PARA 250 ml | M |
+SODIO CLORURO. | 0.90% | SOL. ISOTONICA INYECTABLE | BOLSA 50 ml | HM |
+SODIO CLORURO. | 0.90% | SOL. ISOTONICA INYECTABLE | BOLSA 100 ml | HM | M
+SODIO CLORURO. | 0.90% | SOL. ISOTONICA INYECTABLE | BOLSA 250 ml | HM |
+SODIO CLORURO. | 0.90% | SOL. ISOTONICA INYECTABLE | BOLSA 500 ml | HM | M
+SODIO CLORURO. ' | 0.90% | SOL. ISOTONICA INYECTABLE | BOLSA 1000 ml | HM | M
+SODIO CLORURO. | 0.90% | SOL. ISOTONICA INYECTABLE | BOLSA 2000 ml | HE |
+SODIO BICARBONATO | 1 MOLAR | SOL. ISOTONICA INYECTABLE | AMPOLLA 10 ml. | HM | M
+SODIO CLORURO | 4 MOLAR | SOL. ISOTONICA INYECTABLE | FCO-AMP. 20 o 30 ml | HM |
+SOLUCIÓN AMINOÁCIDOS 5% FORMULA PEDIÁTRICA | | INYECTABLE | FRASCO 250 ml | HR |
+SOLUCIÓN CARDIOPLEJICA NaCl 0,643%, CaCl 2 H2O | | | | |
+0,0176%; MgCl2 6H2O 0,3253%; KCI 0,1193% | | | BOLSA 1000 ml | HE |
+SOLUCIÓN DE ELECTROLITOS PARA USO PARENTERAL | | BOLSA 1000 ml | HM |
+SOLUCIÓN ELECTROLÍTICA BALANCEADA CON GLUCONATO DE SODIO | | BOLSA 1000 ml | HE |
+SOLUCIÓN EURO COLLINS | | | SET 1020 ml | HR |
+SOLUCIÓN PARA DIÁLISIS PERITONEAL: DEXTROSA | 1.50% | SOL. DIALISIS PERITONEAL | HM |
+SOLUCIÓN PARA DIÁLISIS PF.RITONEAL: DEXTROSA | 4.25% | SOL. DIALISIS PERITONEAL | HE |
+| | | | |
+44 BIOLÓGICOS, VACUNAS, TOXOIDES Y ANTITOXINAS | | | |
+| | | | |
+ALBÚMINA HUMANA | 20 al 25% | INYECTABLE | FCO.AMP. 50 ml | HR |
+GAMMA GLOBULINA I.V. | 2.5 a 3 g. | INYECTABLE | FCO.AMP. 50 ml | HR |
+GLOBULINA GAMMA ANT1 RHO | 300 mcg. | INYECTABLE | FCO.AMP. 1 o 2 ml | HE |
+GLOBULINA GAMMA ANTITCTANICA HUMANA | 250 U.L | INYECTABLE | FCO.AMP. 1 o 5 ml | HM |
+GLOBULINA GAMMA H1PER1NMUNE ANTI-HEPATITIS B | 200 U.I / mi. | INYECTABLE | FCO.AMP. 1 ml | HE |
+GLOBULINA GAMMA INMUNE ANTI-VAR1CELA ZOSTER | 125U.I/ml. | INYECTABLE | FCO.AMP. 1 ml | HE |
+SUERO ANTIOFIDICO ANT1CORAL | FORMULA | INYECTABLE | FCO.AMP. 10 ml | HM | M
+SUERO ANTIOFIDICO POLIVALENTE | FORMULA | INYECTABLE | FCO.AMP. 10 ml | HM | M
+TOXOIDE DIFTERO TETANICO ASDORBIDO 10 DOSIS | SUSPENSION ESTERIL | INYECTABLE | FCO.AMP. 5 ml | HM | M
+TOXOIDE DÍPTERO TETÁNICO CON VACUNA PERTUSSIS | | | |
+CELULAR ADSORBIDA | | INYECTABLE | FCO. AMP. 5 mi. | HM |
+VACUNA POLIO (TRIVALENTE) | | SOLUCIÓN ORAL | FCO-GOTERO. | HM |
+VACUNA SARAMPIÓN, RUBÉOLA Y PAROTIDITIS | LIOFILIZADO | INYECTABLE | AMP. DE 0.5 mi. | HM |
+VACUNA PARA HEPATITIS B 10 mcg. DEL ANTIGENO. | | INYECTABLE | FCO-AMPOLLA 0.5 o 1 mi.. | HM |
+VACUNA PARA HEPATITIS B 20 mcg. DEL ANTIGENO | | INYECTABLE | FCO-AMP. 1 mi. | HR | HM
+VACUNA SARAMPIÓN VIVA ATENUADA. | POLVO LIOFILIZADO | INYECTABLE | AMPOLLAS DE 0.5 mi. | HR |
+VACUNA TUBERCULOSIS ATENUADA 10 DOSIS | POLVO LIOFILIZADO | INYECTABLE | FCO. AMP. 1 mi. | HM |
+| | | | |
+45 AGENTES OFTÁLMICOS | | | | |
+| | | | |
+ACETAZOLAMIDA | 250 mg. | TABLETAS | | M | E
+ACETILCOLINA CLORURO 20 mg. Y MANITOL 60 a 100 mg. | SOLUCIÓN OFTÁLMICA | FRASCO 2 mi. | HE |
+ATROPINA SULFATO | 1% | COLIRIO | FCO-GOTERO 5o 10 mi. | E | E
+CICLOPENTOLATO | 1% | SOLUCIÓN OFTÁLMICA | FCO-GOTERO 5o 10 mi. | E | E
+DEXAMETASONA FOSFATO (COMO SAL SÓDICA) 0.05% o | | | |
+FLUOROMETOLONA 0.1% | | UNGÜENTO OFTÁLMICO | TUBO 3 a 3. 5 g. | E | E
+DEXAMETASONA FOSFATO (COMO SAL SÓDICA) 0.1% o | | | |
+FLUOROMETOLONA 0.1%. | | SOLUCIÓN o SUSP.OFTALMICA. | FCO-GOT. 5 mi. | E | E
+DEXAMETASONA FOSFATO (COMO SAL SÓDICA) o BETAMET. | | | |
+FOSF.SODICO CON NEOMICINA (COMO SULFATO) | 0.1% y 0.35% Respectivamente | COLIRIO | FCO-GOT. 5 mi. | M | . M
+FENILEFRINA CLORHIDRATO | 10% | COLIRIO | FCO-GOTERO 5 o 10 mi. | E | E
+GENTAMICINA (COMO SULFATO) | 3 mg/ml. | SOL. OFTÁLMICA. | FCO-GOT. 5 mi. | M | E
+HIALURONATO DE SODIO 10 MG. EN BUFFER FISIOLÓGICO | | | |
+(pH 7 A 7.5) AMPOLLA o HIDROXIPROPILMETILCELULOSA 20 mg/ml. | .lOmg. o 20mg. / mi., respectivamente. | INYECTABLE | FCO-AMPOLLA 2.25 mi. | HE |
+HIALURONIDASA POLVO LIOFILIZADO | 150U.I. | INYECTABLE | FCO-AMP. 1 mi. | UE |
+METILCELULOSA (HIDROXIPROPIL) | 2.5% | SOL. OFTÁLMICA | FRASCO | HE |
+METILCELULOSA (HIDROXIPROPIL) | 0.5% | SOL. OFTÁLMICA | FCO-GOTERO 10o 15 mi. | M | E
+NEOMICINA CON GRAMICÍDINA Y POLIMIXINA B | FORMULA | SOL. OFTÁLMICA | FCO-GOTERO 5 mi. | | E
+PILOCARPINA CLORHIDRATO PILOCARPINA CLORHIDRATO SOLUCIÓN SALINA BALANCEADA | 2% 4% FORMULA | SOL. OFTÁLMICA SOL. OFTÁLMICA SOLUCIÓN TÓPICA | FCO-GOTERO 10o 15 mi. FCO-GOTERO 10o 15 mi. FCO 500 mi. | E E HE | é
+TETRACAINA CLORHIDRATO | 0.5% | SOL. OFTÁLMICA | FCO-GOT. 10 mi. | HM | M
+TETRACICLINA CLORHIDRATO U OXITETRACICLINA | | | | |
+(COMOCLORHIDRATO)+POLIMIX.SULFATO | 1% ó 0.5% + 0.1% Respectivamente | UNGÜENTO OFTÁLMICO | TUBO 5 g. | M | M
+TETRAHIDROZOLINA CLORH. U OXIMETAZOLINA CLORH. | 0.05% | SOLUCIÓN OFTÁLMICA | FCO-GOTERO 10o 15 mi. | M | M
+TIMOLOL (COMO MALEATO) | 0.5% | SOL. OFTÁLMICA | FCO-GOT. 5 mi. | E | E
+VIDARABINA O ACICLOVIR | 3% | UNGÜENTO | TUBO 3 a 5 g. | E |
+| | | | |
+| | | | |
+46 AGENTES DERMATOLÓGICOS | | | | |
+| | | | |
+8-METOXIPSORALENO o (METHOXALEN) (PUYA) | 10 mg. | CAPSULAS | | HR |
+ACIDO SALICILICO | 5% | UNGÜENTO TÓPICO | TUBO COLAPIBLE 50 g. | M |
+ACIDO SALICILICO EN COLODIÓN FLEXIBLE | 15% a 17%. | SOLUCIÓN TÓPICA | FCO. 15 mi. | M |
+ALQUITRÁN DE HULLA COMPUESTO | 4g- | UNGÜENTO TÓPICO | TUBO 28 A 45 g. | E |
+ALUMINIO ACETATO | FORMULA | POLVO | SOBRE 2.2 g. | M | M
+ALUMINIO HlDROXIDO | FORMULA | UNGÜENTO TÓPICO | ENVASE 250 g. | HM |
+ANABÓLICO CON ANTIBIÓTICO (CLOSTEBOL CON NEOMICINA SULFATO) | FORMULA | SOLUCIÓN TÓPICA AEROSOL. FRASCO 30 mi. | FRASCO 30 ml | |
+BENZOILO PERÓXIDO | 5% | SOLUCIÓN TÓPICA | FCO 30 mi. | E | E
+BETAMETASONA (COMO 17 VALERATO) | 0.1% | CREMA | TUBO 15g. | M |
+BETAMETASONA BASE (COMO 17 VALERATO) | 0.1% | UNGÜENTO | TUBO 15g. | E | M
+BREA CONCENTRADA | FORMULA | SOLUCIÓN TÓPICA | FRASCO 120 mi. | M |
+CALAMINA 16% | FORMULA | LOCIÓN | FRASCO 120 mi. | M |
+CALAMINA 16% | FORMULA | LOCIÓN | FCO. 100-120 mi. | | M
+CLORHEXIDINA GLUCONATO | 20% V/V | SOLUCIÓN TÓPICA | ENVASE DE POLIETILENO DE 3.785 o 5 Litros. | | M
+CLORHEXIDINA GLUCONATO | 20% V/V | SOLUCIÓN TÓPICA | ENVASE DE POLIETILENO DE 1, 4 o |
+CREMA DE ROSAS | FORMULA | CREMA | TUBO 60 g. | M |
+CREMA DE ROSAS | FORMULA | CREMA | Kg. | HM |
+CROTAMITON | 10% | LOCIÓN | FRASCO 60 mi. | M |
+DETERGENT¿ NEUTRO | PASTILLA | JABÓN | l00g. | HR | E
+ETRETINATO | 10-25 mg. | CAP. O TABLETA | | R |
+FLUORURACILO | 5% | UNGÜENTO | 25 g. | E |
+HIDROCORTISONA | 0.5% | LOCIÓN | FCO. 15 mi. | E |
+HIDROCORTISONA BASE o (COMO ACETATO) | 0.25% | CREMA | TUBO 15 g. | M |
+HIDROCORTISONA BASE o (COMO ACETATO) | 1% | CREMA | TUBO 15g. | M |
+HIDROGENO PERÓXIDO 10 V. | | SOLUCIÓN | FRASCO 1000 mi. | HM | M
+MERCURO CROMO | 2% | SOLUCIÓN ACUOSA | FRASCO 1000 mi. | HM | HM
+NEOMICINA 3.5 mg (COMO SULFATO) CON BACITRACINA 500 U.I o | | | |
+FUSIDATO SÓDICO | 2% | UNGÜENTO | TUBO 1 5 g. | M | M
+OXIDO DE ZINC COMPUESTO | FORMULA (PAIDOS) | CREMA | 500o lOOOg. | HM |
+OXIDO DE ZINC COMPUESTO | FORMULA (PAIDOS) | CREMA | TUBO 60 g. | M |
+PODOFILINA | 25% | SOL. ALCOHÓLICA | FCO. 15 mi. | HM |
+POTASIO YODURO 1 g. / mi. | FORMULA | SOLUCIÓN SATURADA ORAL FCO-GOT. 30 mi. | M |
+POVIDONA YODURO | 7.5 % a 10 % | SOLUCIÓN TÓPICA | FCO 1000 mi. | HM |
+SULFADIAZINA DE PLATA 1% | | CREMA TÓPICA | TUBO 40-50 g. | HM | M
+SULFADIAZINA DE PLATA 1% | | CREMA TÓPICA | 400 gramos. | | M
+SULIZOBENZONA | 10% | LOCIÓN TÓPICA | FCO. 60 a 75 mi. | M | M
+TALIDOMIDA | 100'mg. | TABLETAS | | R |
+TIOCONAZOL o BIFONAZOL o MICONAZOL NITRATO | 1% ó 1% ó 2% Respectivamente | CREMA | TUBO 15, 15, 30 g., Respectiv. | M | M
+TRIOXISALENO | 5 mg. | TABLETAS | | E |
+| | | | |
+47 AGENTES GINECOLÓGICOS | | | | |
+ACIDO METACRESOLSULFONICO y FORMALDEHIDO | 90 mg. | ÓVULOS 3 a 3.8g. E | | E |
+ACIDO METACRESOLSULFONICO y FORMALDEHIDO | 18 mg. /lg. | GEL | TUBO 50g. CON APLICADOR | E |
+ESTROGENOS CONJUGADOS | 0.625 mg. / g. | CREMA VAGINAL | TUBO 40g. a 45g. con APLICADOR | M |
+TIOCONAZOL O MICONAZOL NITRATO | l00mg. o 400mg. respectivamente | TABLETAS U ÓVULOS VAGINALES M | M |
+| | | | |
+48 ANTÍDOTOS | | | | |
+DEFEROXAMINA | 500 mg. | INYECTABLE | FCO-AMP. 10 mi. | HE |
+EDETATO CALCICO DISODICO (VERSENATO) | 10%o 20% | INYECTABLE | AMP. 5 o 10 mi. | HE | E
+FISOSTIGMINA SALICILATO | 1 mg. en 1 mi. | INYECTABLE | AMPOLLA 2 mi. | HE |
+IPECACUANA | 7% DE EXTR. FLUIDO | SOLUCIÓN ORAL | FCO. 1000 mi. | HM |
+N-ACETIL CISTEINA | 200 mg. o 600 mg. SOBRES O TAB. EFERVESCENTES, respectivamente. | HR |
+OBIDOXIMA CLORURO | 250mg. / 1 ml. | INYECTABLE | AMPOLLA 1 ml. | HE | M
+| | | | |
+49 ANTIHEMORROIDALES | | | | |
+| | | | |
+ANTIHEMORRO1DAL (ANESTÉSICO LOCAL, | | | | |
+ASTRINGENTE, CORTICOESTEROIDE) | FORMULA | SUPOSITORIOS 2 g. | | M |
+ANTIHEMORROIDAL (ANESTÉSICO LOCAL, | | | | |
+ASTRINGENTE, CORTICOESTEROIDE) | FORMULA | UNGÜENTO | TUBO 30 g. | M |
+| | | | |
+50 MISCELÁNEOS | | | | |
+| | | | |
+ACICLOVIR | 400 mg. | TAB. 0 CAPSULAS | | R |
+ACICLOVIR (COMO SAL SÓDICA) | 250 mg. | INYECTABLE | FCO-AMP. 10 mi. | HR |
+ACIDO AMINOACETICO (GLICINA) | 1.5% | SOLUCIÓN IRRIGACIÓN VESICAL | BOLSA 2000 mi. | HE |
+AGUA BIDESTILADA | | | BOLSA 500 mi. | HM |
+AGUA PURIFICADA | | | FCO. DE 1000 mi. | | M
+ALCOHOL DE 70° | | | | HM | M
+ALCOHOL DE 95° | | | | HM | E
+BECLOMETASONA DIPROPIONATO | 50 mcg. / dosis | SOLUCIÓN AEROSOL NASAL | FCO 200 dosis | E | E
+CICLOSPORINA A | 100 mg. | CAPSULAS | | R |
+CICLOSPORINA A | 50 mg. / mi. | INYECTABLE | AMP 5 mi. | HR |
+CICLOSPORINA A | lOOmg. /mi. | SOLUCIÓN ORAL | FCO 50 mi. | R |
+COLESTIRAMINA (ANHIDRA) 4 g. | 4.5 a 9 g. DE POLVO | | SOBRES | E |
+ETIDRONATO DISODICO | 200 mg. FLUORURO) | TABLETAS | | R |
+FLUORURO DE SODIO | 0.2% (CON 9.2 mg. DE FLUORURO | TABLETAS PARA USO EN ENJUAGES ORALES | | HE |
+FORMULA ENTERAL (PROTEÍNAS 14-20%., LIPIDOS 30-46%., | | | | |
+CARBOHIDRATOS 45-55%., VITAMINAS Y MINERALES) | | POLVO PARA DILUCIÓN | LATA CON 400-450 g. | HR | HM
+FORMULA LÁCTEA PARA FENILCETONUR1A | Fenilalanina, APROX. 0,08 % | POLVO PARA DISOLUCIÓN | LATA CON 456 g. | R |
+FORMULA PARA ALIMENTACIÓN DE NIÑOS | | | | |
+PREMATUROS | PROT. 14.7%, GRASA 24.8%, CARB.54.6%,
+| MIN. Y VITAM. | POLVO SOLUBLE | ENVASE 400 g. | E |
+FORMULA PARA ALIMENTACIÓN ENTERAL EN NIÑOS GELATINA ABSORBIBLE | PROT. 15.3%, LIP. 28.3%, CARB. 51.3%, VIT. Y MIN. POLVO SOLUBLE ESPONJA QUIRÚRGICA | POLVO SOLUBLE LAMINA lOOcm2 | E HE |
+GEMFIBROZIL | 600 mg. TABLETAS RECUBIERTA CON RANURA | M |
+GLUCONATO DE CLORHEXIDINA 1 .5% P/V Y CETRIMIDA 15% P/V | SOLUCIÓN TÓPICA | ENVASE DE | |
+JALEA LUBRICANTE. | | TUBO COLAPSIBLE | POLIETILENO DE3.785 o 5 1. 1 20 gramos. | M | M HM
+L-CARNITINA AL 30% | | SOLUCIÓN | FCO. 10o 100 mi. | HE |
+LECHE MATERN IZADA HIPOOSMOLAR | | POLVO | LATA 450 al 000 g. | HR |
+LECHE PARA PACIENTES CON AMINOACIDOPATIAS | | | | |
+(MSUD DIET POWDER), H.N.N. | | | | R |
+LECHE SIN DISACARIDOS CON GLUCOSA | FORMULA | POLVO SOLUBLE | LATA 400 g. | HR |
+LOVASTATINA | 20 mg. | TABLETAS | | M |
+METILFENIDATO | lOmg. | TABLETAS RECUBIERTAS | R |
+METILO SALICILATO | UNG.TOPICO 50 mg. / g. | FRASCO O TUBO | | |
+| | COLAPSIBLE | 60 gramos. | | M
+POLISTIRENO SULFONATO SÓDICO PO!Í|||ftJTRICIONAL LIBRE DE PROTEÍNAS PRC'/TuL ANDINA E-l PARENTERAL | 500 ug. | POLVO PARA SOLUCIÓN ORAL INYECTABLE | FRASCO 454 g. LATA 2.3 Kg. AMPOLLA 1 mi. | HE E HE |
+PROSTAGLANDINA E-2 | 500 mcg. | TABLETAS | | HE |
+SACARINA SÓDICA | 12.5 mg. / TABLETA o GOTA | TABLETAS o SOLUCIÓN ORAL. | CAJA o FRASCO | M | HM
+SOYA CON CARBOHIDRATOS | FORMULA | POLVO SOLUBLE | ENVASE 400 a 500 g. | R |
+SOLUCIÓN ESCLEROSANTE | | | | |
+(TETRADECIL SULFATO DE SODIO) . | 3% | INYECTABLE | AMPOLLAS 2 mi. | HE |
+SOLUCIÓN EVANS | | INYECTABLE | FCO-AMPOLLA 20 mi. / 9 mi. | HR |
+SURFACTANTE PULMONAR EXOGENO BOVINO O SINTÉTICO | | SUSPENSIÓN INTRATRAQUEAL | FCO-AMP. 8 mi. | HR |
+| | | | |
+51 OTORRINOLARINGOLOGÍA | | | | |
+| | | | |
+ALUMINIO ACETATO | FORMULA | SOLUCIÓN ÓTICA | FCO-GOT. 60 mi. | E |
+ALUMINIO ACETATO | FORMULA | SOLUCIÓN ÓTICA | FCO-GOT. 30 mi. | | HM
+BENJUÍ | FORMULA | TINTURA | FCO 60 mi. | M |
+GOTAS ÓTICAS PARA SUAVIZAR CERUMEN | FORMULA | SOLUCIÓN | FCO-GOT. 30 mi. | M | M
+OXIMETAZOLINA CLORHIDRATO | 0.025% | SOLUCIÓN NASAL Y OFTÁLMICA | FCO-GOT. 10 mi. | M |
+TETRAHIDROZOLINA CLORHIDRATO U OXIMETAZOLINA | | | | |
+CLORHIDRATO 0.1% o 0.05%. Respectivamente. | | SOLUCIÓN NASAL | FCO-GOTER010 a l5 ml.. | M | M
+SOLUCIÓN ANTISÉPTICA BUCOFARINGEA | FORMULA | SOLUCIÓN TÓPICA | FCO. 120 mi. | | M
+| | | | |
+| | | | |
+52 MEDIOS PARA RADIODIAGNOSTICO | | | | |
+| | | | |
+BARIO SULFATO DE ALTA DENSIDAD CON CORRECTIVOS | | POLVO PARA SUSPENSIÓN ORAL | TAMBOR CON 25-50 Kg. | HE | E
+DIATRIZOATO DE MEGLUMINA CON DIATRIZOATO DE SODIO 66% | | | |
+CON 10 % RESPECTIVAMENTE. | | SOLUCIÓN ORAL | FRASCO 100-120 ml. HE | HE |
+GRANULOS EFERVESCENTES | FORMULA | GRANULOS | AMP. PLÁSTICA o VIDRIO de 3 g. HE | HE |
+IODOTALAMATO DE MEGLUMINA | 30% | INYECTABLE | FCO 300 ml. HE | HE |
+IOHEXOL o IOPAMIDOL | 300 mg. | INYECTABLE | FCO-AMP. 50 ml. HE | HE |
+IOHEXOL | 180 mg. /mi. | INYECTABLE | FCO-AMP. 10 ml. | | E
+IOXITALAMATO DE MEGLUMINA CON POLIVIDONA | 55% y 14% respectivamente. | | |
+| (YODO 25%) | | FCO-AMP. 20 ml. | HE |
+IPODATO SÓDICO O ACIDO IOCFTAMICO | 500 o 750 mg. respectivamente. | CAPSULAS O TABLETAS, Respec. | E |
+YODOTALAMATO DE MEGLUMINA | 17.2% | INTRAVESICAL | FCO. 250 mi. | HE |
+YODOTALAMATO DE MEGLUMINA O DIATRIZOATO DE MEGLUMINA. | 60% | INYECTABLE | FCO-AMP. 50 mi. | HE |
+YODOTALAMATO DE MEGLUMINA | 60% | INYECTABLE | FCO-AMP. 50 mi. | | E
+| | | | |
+53 MEDIOS DE DIAGNOSTICO | | | | |
+| | | | |
+AZUL DE METILENO | 1% | INYECTABLE | AMP. 10 mi.. | HE |
+FLUORESCEINA SÓDICA | 25% | INYECTABLE | AMPOLLA 2 mi.. | HE |
+FLUORESCEINA SÓDICA | 2% | SOL. OFTÁLMICA | FCO-GOT. 15 mi. | HE | E
+HORMONA LIBERADORA DE GONADOTROFINAS (L.H.R.H). | 0.1 mg. | INYECTABLE | AMP 2 mi. | HE |
+HORMONA LIBERADORA DE TIROTROFINA (T.R.H.). | 0.2 mg. | INYECTABLE | AMPOLLA 1 mi. | HE |
+| | | | |
+54 MATERIAS PRIMAS | | | | |
+| | | | |
+BENTONITA | | | KILO | M |
+CARBÓN VEGETAL ACTIVADO | | | KILO | M |
+CITRATO DE POTASIO | | POLVO | KILO | M |
+MAGNESIO SULFATO HEPTAHIDRATADO | | CALIDAD FARMACÉUTICA | KILO | M |
+| | | | |
+| | | | |
