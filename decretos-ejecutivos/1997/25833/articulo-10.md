@@ -1,2 +1,1 @@
-ARTÖCULO 10- Rige a partir de su publicaci¢n.
-
+ARTÍCULO 10- Rige a partir de su publicación.

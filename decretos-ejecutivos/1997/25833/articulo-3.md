@@ -1,12 +1,9 @@
-ARTÖCULO 3§- Todo tipo de embarcaci¢n para poder operar
+ARTÍCULO 3°- Todo tipo de embarcación para poder operar
 comercialmente, deber de encontrarse debidamente inscrita en el
-Registro
-Mar¡timo Administrativo de la Sub rea de Transporte Acu tico
-Costarricense de la Direcci¢n General de Transporte Mar¡timo, del
-Ministerio de Obras P£blicas y Transportes, y en el Registro
-Nacional de
-Buques en el Registro P£blico de la Propiedad Mueble del Registro
-Nacional. Estas empresas deber n adicionalmente, cumplir las
-exigencias y
-requisitos de seguridad y operaci¢n que definan las respectivas
-dependencias para cada tipo de embarcaci¢n.
+Registro Marítimo Administrativo de la Subárea de Transporte Acuático
+Costarricense de la Dirección General de Transporte Marítimo, del
+Ministerio de Obras Públicas y Transportes, y en el Registro
+Nacional de Buques en el Registro Público de la Propiedad Mueble del Registro
+Nacional. Estas empresas deberán adicionalmente, cumplir las
+exigencias y requisitos de seguridad y operación que definan las respectivas
+dependencias para cada tipo de embarcación.
