@@ -14,3 +14,4 @@ Fija los salarios mínimos que rigen en el país a partir del 1 de enero del 200
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-01 | la propia norma |
+| 2 | 2002-06-26 | Decreto Ejecutivo 30547 (2002-06-26) |
