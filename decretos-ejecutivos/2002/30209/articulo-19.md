@@ -1,0 +1,7 @@
+CAPÍTULO V
+De la emisión
+Artículo 19.—Condiciones y características de la emisión. Corresponde al Comité de Aprobación la autorización de las condiciones y características de la emisión de bonos, de conformidad con el diseño del Ente Estructurador y las regulaciones aplicables de la Superintendencia General de Valores.
+Será obligación del Ente Estructurador recomendar las condiciones que permitan alcanzar una calificación de riesgo mínima de "A" o su equivalente y realizar todas las gestiones a su alcance para la colocación total de los títulos.
+La emisión podrá incluir diferentes tipos de series, entre las cuales, se tendrá una cuyo monto máximo será de setenta y cinco millones de dólares estadounidenses y contará con las garantías a que se refiere el artículo 1 de la Ley y la cobertura del Fondo de Reserva de Liquidez.
+La emisión deberá cumplir con las disposiciones contenidas en los Reglamentos aplicables emitidos por el Consejo Nacional de Supervisión del Sistema Financiero y las directrices de la Superintendencia General de Valores.
+Si la emisión no llegare a la suma de setenta y cinco millones de dólares, las garantías se mantendrán en los montos máximos establecidos en el artículo 1 de la Ley y no serán disminuidas; a menos que el monto total de la emisión sea inferior a la suma de treinta y cinco millones de dólares, en cuyo caso, las garantías serán reducidas hasta un monto equivalente al total de la emisión.

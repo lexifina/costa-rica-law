@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la titularización
+Artículo 11.—Fines. La finalidad de la titularización es agrupar los créditos cafetaleros y readecuarlos a largo plazo, de conformidad con las características y condiciones que se definan en la estructura de la titularización, las cuales quedarán claramente descritas en el prospecto respectivo.

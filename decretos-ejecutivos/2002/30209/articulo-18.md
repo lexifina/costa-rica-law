@@ -1,0 +1,3 @@
+Artículo 18.—Del Fondo de Liquidez. Al constituirse el Fideicomiso, se creará un Fondo de Reserva de Liquidez aportado por el Instituto del Café de Costa Rica, en forma temporal, por una suma de dos millones doscientos mil dólares estadounidenses (US$ 2.200.000,00).
+Este fondo será constituido en numerario o en títulos valores de alta liquidez o bien, por medio de pólizas o garantías equivalentes, emitidas por el Instituto Nacional de Seguros o los Bancos del Sistema Bancario Nacional.
+En el momento en que el Fideicomiso obtenga liquidez suficiente para mantener el Fondo de Reserva, se reintegrará al Instituto del Café de Costa Rica el aporte efectuado y sus correspondientes intereses, calculados en razón del mayor rendimiento establecido para los bonos de la emisión.

@@ -1,0 +1,1 @@
+Artículo 15.—Del Fideicomiso. El Fideicomiso es un contrato que forma parte de la titularización, cuyo patrimonio fideicometido estará conformado por las carteras de créditos cafetaleros que aporten los Bancos Comerciales del Estado y otros entes financieros, los activos complementarios y las garantías a que se refiere la Ley y este reglamento.
