@@ -1,0 +1,1 @@
+Artículo 10. Los Comités Sectoriales se reunirán por común acuerdo de los participantes, y establecerán las matrices de compromiso y los planes de trabajo así como las acciones pertinentes, para fomentar la Modernización de los Sectores Industriales.

@@ -1,0 +1,1 @@
+Artículo 8º. Créanse los Comités Sectoriales para la Modernización Industrial con el objetivo de canalizar las demandas de Modernización Sectorial de los empresarios y establecer acciones y programas específicos de Modernización industrial Sectorial. Dichos comités Sectoriales se establecerán según las necesidades especificas de modernización de los sectores industriales.

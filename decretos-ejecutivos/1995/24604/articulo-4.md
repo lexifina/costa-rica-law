@@ -1,0 +1,1 @@
+Artículo 4º. En las reuniones del Consejo podrán participar, cuando se considere necesario, otros representantes del Poder Ejecutivo y Legislativo, representantes del Sector Privado y de Organismos Internacionales.
