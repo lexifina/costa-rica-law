@@ -14,3 +14,4 @@ Plan Regulador de Playa Tamarindo.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-18 | la propia norma |
+| 2 | 2003-09-30 | Reglamento municipal 39 (2003-09-30) |
