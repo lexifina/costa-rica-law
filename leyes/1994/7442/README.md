@@ -1,6 +1,6 @@
 # Ley Orgánica del Ministerio Público
 
-Ley N° 7442 del 1994-10-25. SINALEVI, ficha 27760: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=27760&param2=29367&param3=1>.
+Ley N° 7442 del 1994-10-25. SINALEVI, ficha 27760: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=27760&param2=29368&param3=1>.
 
 Publicada en La Gaceta N° 225 del 1994-11-25.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 8 | 1997-12-26 | SINALEVI (1 normas) | 1994-10-25 |
 | 2 de 8 | 1997-12-26 | SINALEVI | 1994-10-25 |
+| 3 de 8 | 2002-07-04 | Ley 8221 | 2002-03-08 |
