@@ -1,0 +1,2 @@
+Artículo 12.—Monto mínimo de las emisiones. Las emisiones estandarizadas deberán tener un monto mínimo de cien millones de colones o su equivalente en dólares al tipo de cambio de compra del Banco Central, y un número mínimo de doscientos valores, a efectos de asegurar la existencia de un volumen suficiente de valores para dar profundidad al mercado secundario.
+El Superintendente podrá modificar anualmente tanto el monto como el número mínimo de valores aquí establecido. El acuerdo respectivo deberá comunicarse con seis meses de anticipación a su entrada en vigencia.

@@ -1,0 +1,3 @@
+SECCION V
+Requisitos y procedimiento para la autorización de oferta pública de valores
+Artículo 15.—Requisitos y procedimiento para la autorización de oferta pública en el mercado primario. El emisor de valores que pretenda realizar oferta pública de sus valores en el mercado primario está obligado a presentar ante la Superintendencia General de Valores, de previo a la realización de la oferta pública, una solicitud de autorización con los requisitos y de conformidad con lo establecido en el Reglamento para la autorización de oferta pública e inscripción de emisiones de valores, aprobado por el Consejo Nacional de Supervisión del Sistema Financiero.

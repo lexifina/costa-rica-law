@@ -1,0 +1,7 @@
+Artículo 19.—Renovación automática de papel comercial. Cuando se trate de emisiones de valores de papel comercial, es decir, emisiones de valores cuyo plazo de vencimiento sea inferior a 360 días, la autorización para realizar oferta pública de la emisión será renovada automáticamente por el Superintendente General de Valores, siempre que el emisor cumpla con los siguientes requisitos:
+a) Presentar una solicitud por escrito a la Superintendencia, con al menos diez días hábiles de anticipación a la fecha de vencimiento de la emisión en circulación.
+b) Presentar la actualización del prospecto y la clasificación de riesgo correspondientes.
+c) Encontrarse al día en cuanto a la presentación de estados financieros, información sobre hechos relevantes y demás requisitos de cumplimiento periódico ante la Superintendencia.
+d) No encontrarse el emisor sujeto a ninguna medida precautoria, ni en el curso de ningún procedimiento administrativo sancionatorio relacionado con faltas graves o muy graves, según lo establecido en la Ley Reguladora del Mercado de Valores.
+La Superintendencia contará con un plazo de cinco días hábiles para autorizar la renovación o, en su caso, apercibir al emisor la presentación de cualquier documentación que se requiera para el trámite de autorización de conformidad con lo establecido en este artículo.
+El Superintendente deberá informar al Consejo Nacional de Supervisión del Sistema Financiero sobre las renovaciones autorizadas.
