@@ -9,8 +9,10 @@ Considerando:
 Decretan:
 Artículo 1°— Reformar el Decreto Ejecutivo No 21341-MEIC del 3 de junio de 1992, publicado en “La Gaceta” N° 128 de 7 de julio de 1992, para que la Tabla 2. Tolerancias para el espesor y la Tabla 3. Resistencia a la flexión, así como los numerales 5.1, 8.2.4.5 y 8.2.5.3 en adelante se lean así:
 (*)Tabla 2. Tolerancias para el espesor
-La tolerancia para espesores “hasta 8 mm” debe ser ± 10%
-(*)(Corregida la tabla anterior mediante Fe de Erratas publicada en La Gaceta N ° 134 del 14 de julio de 1994).
+Espesor en milímetros | Tolerancias
+hasta 8 | ± 10%, del espesor nominal
+mayor de 8 hasta 30 | ± 0,9 mm, del espesor nominal
+(*) (Así reformada la tabla anterior por el artículo 1° del decreto ejecutivo N° 26899 del 2 de abril de 1998)
 (*) Tabla 3. Resistencia a la flexión:
 Grado 1, Tipo A ≥ 4 hasta <Φ 255 7
 Grado 2, Tipo A ≥ 7 hasta <Φ 255 14
