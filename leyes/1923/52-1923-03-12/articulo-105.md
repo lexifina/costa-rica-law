@@ -1,0 +1,1 @@
+ARTICULO 105.-La persona que solicite el permiso de venta deber presentar al Colegio de Farmacéuticos la fórmula exacta del medicamento o preparado, el cual una vez aceptado, podrá ponerse a la venta haciendo conocer en la etiqueta del envase su composición.

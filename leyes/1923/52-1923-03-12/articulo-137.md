@@ -1,0 +1,1 @@
+ARTICULO 137.-Prohíbase la introducción de perros al país, al menos que los propietarios presenten certificación extendida por autoridad competente de haber sido sometidos en la localidad de donde proceden a cuarentena durante un período no menor de tres meses. Autorizada la introducción, los perros permanecerán provistos de bozal durante el mismo tiempo, es decir, tres meses.

@@ -1,0 +1,2 @@
+ARTICULO 106.-Las sustancias venenosas destinadas a usos industriales o agrícolas, solo se vender n a personas provistas de una autorización otorgada por el Jefe de Sanidad o por la autoridad política del lugar, quien la conceder informándose previamente del uso industrial o agrícola cierto a que se destina la sustancia.
+En cada caso el farmacéutico anotar la venta en un registro especial con la indicación de la fecha, cantidad y calidad de la sustancia vendida y el nombre y domicilio del comprador de quien recoger la firma al pie.

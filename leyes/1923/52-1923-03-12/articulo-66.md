@@ -1,0 +1,1 @@
+ARTICULO 66.-Las obras, servicios o instalaciones de carácter sanitario que ordene el Jefe de Sanidad o autoridad sanitaria correspondiente, se ejecutar n por los interesados dentro del término que se les señale, y en su defecto cuando as¡ lo estime necesario el Jefe de Sanidad, se ejecutar n por los empleados o dependientes de la sanidad o por los ayuntamientos, según los casos.

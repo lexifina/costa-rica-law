@@ -1,0 +1,1 @@
+ARTICULO 48.-En tiempo de epidemia variolosa o bien por aparición de un caso de viruela en una localidad, la Subsecretaría de Higiene y Salud Pública podrá ordenar la vacunación o revacunación para todos los habitantes de dicha localidad.

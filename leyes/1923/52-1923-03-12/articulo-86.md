@@ -1,0 +1,1 @@
+ARTICULO 86.-El que hallándose autorizado para la fabricación o tráfico de las sustancias o productos expresados en el artículo anterior, los fabricare o expendiere, sin cumplir con las formalidades prescritas en los reglamentos respectivos, ser penado.

@@ -1,0 +1,1 @@
+ARTICULO 104.-No podrá venderse al público medicamentos de patente sin autorización de la Subsecretaría de Higiene y Salud Pública, concedida con las formalidades que prescriba el Reglamento de Boticas y Droguerías.

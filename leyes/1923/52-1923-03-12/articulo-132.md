@@ -1,0 +1,2 @@
+ARTICULO 132.-El régimen sanitario de los puertos en todo lo que se refiere a admisión de naves, visitas de entrada y salida, expedición de patentes de sanidad, prohibición de introducir ciertas mercaderías y su destrucción o desinfección, as¡ como la desinfección del equipaje y de las embarcaciones, ser indicado en el Reglamento de Policía Sanitaria Marítima.
+El mismo Reglamento determinar las medidas de profilaxis que deban adoptarse para impedir la importación de las enfermedades infecciosas y trasmisibles.

@@ -1,0 +1,1 @@
+ARTICULO 37.-Queda prohibido el propalar, sin fundamento alguno de veracidad, noticias o rumores con respecto a la existencia de enfermedad epidémica en una o varias localidades del territorio de la República.

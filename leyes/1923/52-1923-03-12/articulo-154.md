@@ -1,0 +1,2 @@
+ARTICULO 154.-Cuando la parte ocurra a la oficina de la autoridad sanitaria, el Secretario le hará saber la resolución, leyéndosela íntegramente.
+De igual modo lo hará el notificador cuando encuentre en persona la parte que ha de ser notificada. En ambos casos, ésta firmar las diligencias con el Secretario o notificador, mas si no sabe o no quiere o no puede firmar, el funcionario lo hará constar así bajo su responsabilidad.

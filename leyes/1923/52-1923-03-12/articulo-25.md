@@ -1,0 +1,1 @@
+ARTICULO 25.-Los delegados de la Subsecretaría de Higiene y Salud Pública, los Jefes de Sanidad y los Agentes Sanitarios tendrán obligación de visitar cualquier caso manifiesto o sospechoso de enfermedad transmisible de las especificadas en el articulo 22 y para ello se les permitir la entrada a los domicilios, de las 6 horas a las 18 horas.

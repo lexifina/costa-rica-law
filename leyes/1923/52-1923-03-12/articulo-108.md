@@ -1,0 +1,1 @@
+ARTICULO 108.-En las villas cabeceras de cantones menores pueden también establecerse boticas de servicio nocturno y de días feriados y cuando se establecieren, se regirán por las mismas reglas que las anteriores.

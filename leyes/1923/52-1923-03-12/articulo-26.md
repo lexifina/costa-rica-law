@@ -1,0 +1,1 @@
+ARTICULO 26.-El médico instruir al jefe de familia o al dueño o encargado de la casa tan pronto como reconozca o sospeche que el caso es de enfermedad transmisible acerca de las medidas que deben ponerse en práctica para evitar en la familia y en la vecindad el contagio.
