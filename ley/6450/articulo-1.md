@@ -1,6 +1,8 @@
 N° 6450
 LA SAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA
 Decreta:
+(Nota de Sinalevi: Mediante el artículo 1° de la ley N° 6605 del 17 de 1981, se interpretó de forma auténtica esta ley en el sentido de que "... sus disposiciones no derogan la ley Nº 4179 del 22 de agosto de 1969 -reformada por la ley Nº 5185 del 20 de febrero de 1973, y en especial el artículo 6º, inciso d) de esta ley- ni el artículo 14 de la ley Nº 12 de l3 de octubre de 1944. Estas leyes mantienen todo su vigor y eficacia legal...")
+(Nota de Sinalevi: Mediante el artículo 2° de la ley N° 6605 del 17 de 1981, se interpretó de forma auténtica esta ley en el sentido de que "... las asociaciones cooperativas y la Caja de Ahorro y Préstamos de la Asociación Nacional de Educadores son entes sin fines de lucro, las cuales no están obligadas al pago del Impuesto sobre la Renta; por tanto, nunca les ha alcanzado el mandato legal de registrar las operaciones de crédito, que han hecho o hagan mediante pagarés, según la ley Nº 6450...")
 Artículo 1º.- Refórmase el Código Fiscal, Título VII "Del Timbre", Capítulo I, artículo 273, en sus incisos 12), 13), 14) y 15) y adiciónase un inciso al final, que será el 28). Sus textos serán los siguientes:
 "Artículo 273.- En la aplicación del impuesto de timbre se observan las reglas y salvedades siguientes:
 12) Los vales o pagarés satisfarán el impuesto de timbre, a razón de dos céntimos por cada diez colones o fracción sobre el monto de la obligación principal.

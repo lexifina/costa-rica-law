@@ -1,0 +1,3 @@
+Artículo 3º.- Adiciónase el inciso m) al artículo 6º de la ley Nº 5185 del 20 de febrero de 1973, con el siguiente texto:
+m) Exención de pago de impuestos y tasas a los vehículos automotores de trabajo, los cuales podrán ser vendidos a terceros por las cooperativas, uniones, federaciones o confederaciones propietarias, sin pago alguno de los impuestos exonerados. La venta deberá efectuarse mediante el trámite de licitación pública.
+Al mismo beneficio podrán acogerse, transcurridos tres años de la fecha de otorgamiento del beneficio, los concesionarios del transporte remunerado de personas con vehículo taxis.
