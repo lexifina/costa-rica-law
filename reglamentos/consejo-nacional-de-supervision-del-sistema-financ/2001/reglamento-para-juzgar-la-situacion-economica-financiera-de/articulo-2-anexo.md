@@ -14,7 +14,8 @@ Calce de plazos a tres meses ajustado por la volatilidad de cuentas corrientes y
 Flujo de efectivo proyectado a dos meses | Sumatoria de las cuentas de ingreso (se incluye las disponibilidades al inicio del periodo) del flujo de efectivo proyectado a dos meses | Sumatoria de las cuentas de egreso del flujo de efectivo proyectado a dos meses
 Riesgo cambiario (Se adjunta detalle de método de cálculo) | Valor absoluto de: activos en moneda extranjera menos pasivos en moneda extranjera, multiplicado por la variación máxima esperada en el tipo de cambio en un año | Patrimonio no redimible (Así reformado parcialmente mediante sesión ordinaria N° 231, celebrada el 11 de junio de 2001.)
 Riesgo de tasas de interés (Se adjunta detalle de método de cálculo) | Valor absoluto de [Duración de activos sensibles a tasas menos (duración de pasivos sensibles a tasas * Pasivos sensibles a tasas / activos sensibles a tasas )] / (1 + tasa básica pasiva) * Cambio máximo esperado en un año en la tasa básica pasiva
-PROCEDIMIENTO PARA EL CÁLCULO DEL CALCE DE PLAZO A UNO Y TRES MESES AJUSTADOS POR LA VOLATILIDAD
+*PROCEDIMIENTO PARA EL CÁLCULO DEL CALCE DE PLAZO A UNO Y TRES MESES AJUSTADOS POR LA VOLATILIDAD
+*(Así corregido, mediante FE DE ERRATAS, publicada en La Gaceta N° 152 de 09 de agosto de 2001).
 Este procedimiento consiste en ajustar en el calce de plazos las obligaciones a la vista con el público que desde el punto de vista contractual no tienen restricciones para su retiro. La herramienta evalúa la liquidez a través del "Índice de calce de plazos a un mes" y el "Índice de calce de plazo a tres meses". El procedimiento que se propone para la medición de ambos indicadores se detalla a continuación:
 1) Se utiliza la información del calce de plazos acumulado a uno y tres meses, para lo cual se realizan los siguientes ajustes:
 a) En el numerador que contempla la recuperación de activos, se sensibilizan las descoberturas con las inversiones temporales y permanentes no comprometidas que mantienen los supervisados en el Gobierno y en el Banco Central de Costa Rica, por cuanto este tipo de recursos son de alta liquidez en el mercado.
@@ -85,7 +86,7 @@ C 12220 N 1 - C 12221 N 1 + C 12220 N 2 + C 12220 N 3 + C 12220 N 4
 a) Los meses en que los saldos de las cuentas objeto de estudio de volatilidad sean cero, para efectos del cálculo de los logaritmos naturales, asumirán un valor de uno.
 b) Cuando dos o más entidades fiscalizadas se fusionen, el análisis de la volatilidad se efectuará como si la fusión hubiese ocurrido doce meses atrás, es decir se sumarán los saldos de las cuentas respectivas de los fiscalizados durante los meses precedentes a la fusión, y hasta completar una serie de doce meses.
 c) Cuando una entidad inicie operaciones, para efectos del cálculo de volatilidad, se considerará que en los meses que anteceden al del primer reporte financiero, las respectivas cuentas asumen saldos de uno, hasta completar una serie de doce meses.
-DETALLE DEL CÁLCULO DEL INDICADOR DE RIESGO CAMBIARIO*
+*DETALLE DEL CÁLCULO DEL INDICADOR DE RIESGO CAMBIARIO
 *(Así corregido, mediante FE DE ERRATAS, publicada en La Gaceta N° 152 de 09 de agosto de 2001).
 Fórmula: [(Valor absoluto de: Activos en moneda extranjera-pasivos en moneda extranjera) / Tipo de cambio de compra] * (Variación máxima esperada en el tipo de cambio para un año) / [Capital primario + capital secundario (hasta una suma que no exceda el capital primario)].
 Activos en moneda extranjera: De los saldos del plan de cuentas: sumatoria de todas las partidas de activo que tienen como sexto dígito un 2 (No considerar las cuentas 129012, 139012, 139022, 139032, 139042, 149012, 159012, 169012).
@@ -182,3 +183,5 @@ CODIGO | DETALLE
 20040 | Préstamos garantizados con títulos emitidos por la misma entidad que cumplen con lo dispuesto en el Artículo 4 c) de las Normas para establecer la Suficiencia Patrimonial de las Asociaciones Mutualistas de Ahorro y Préstamo para la Vivienda (Acuerdo SUGEF 26)
 20041 | Estimaciones genéricas, hasta el 1.25% de los activos ponderados por riesgo de la entidad. (Así reformado mediante sesión ordinaria N° 231 celebrada el 11 de junio de 2001.)
 20042 | Monto de las estimaciones mínimas para la cartera clasificada en categorías de riesgo B2, C, D y E, según el Acuerdo SUGEF-1-95. (Así adicionado mediante sesión ordinaria N° 231 de 11 de junio de 2001.)
+20043 | Saldo de las obligaciones subordinadas registradas en la cuenta 261 que cumple con las condiciones detalladas en el anexo del Acuerdo SUGEF 25-00 (Cálculo del Patrimonio no redimible). (Así adicionado mediante sesión ordinaria N° 248 de 27 de agosto de 2001.)
+20044 | Saldo de las obligaciones convertibles en capital registradas en la cuenta 271 que cumple con las condiciones detalladas en el anexo del Acuerdo SUGEF 25-00 (Cálculo del patrimonio no Redimible). (Así adicionado mediante sesión ordinaria N° 248 de 27 de agosto de 2001.)
