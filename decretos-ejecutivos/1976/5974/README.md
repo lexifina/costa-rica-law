@@ -14,3 +14,4 @@ Deroga afectaciones al programa de tiitulación de tierras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1976-05-20 | la propia norma |
+| 2 | 1982-03-29 | Ley 6735 |
