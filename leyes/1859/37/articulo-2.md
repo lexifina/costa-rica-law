@@ -1,0 +1,2 @@
+Art 2° Atendiendo a las dificultades en que deben haberse encontrado los Jueces cartularios, se declara: que no es causa de nulidad para los testamentos otorgados hasta la fecha, el que los capitales de los testadores excedan o no de la cantidad expresada en el final del artículo anterior.
+Al Supremo Poder Ejecutivo. Dado en el Salón de Sesiones en San José, a los veintisiete días del mes de julio de mil ochocientos cincuenta y nueve. Por tanto, Ejecútese.
