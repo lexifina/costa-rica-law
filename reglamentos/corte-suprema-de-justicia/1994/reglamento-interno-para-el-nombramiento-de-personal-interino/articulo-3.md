@@ -1,0 +1,1 @@
+Artículo 3°-Para optar por un ascenso en una plaza fuera del Departamento de Defensores Públicos, se deberá contar con el visto bueno de la jefatura, quien en todo caso deberá tener en cuenta la posible afectación al servicio público. Estos permisos no se concederán por términos inferiores a 15 días.
