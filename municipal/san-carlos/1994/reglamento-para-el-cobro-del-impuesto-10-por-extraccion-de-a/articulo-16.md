@@ -1,0 +1,2 @@
+Artículo 16.—
+Determinado el tributo por la Municipalidad , ya sea por que esta aceptó los términos de la declaración dada por el sujeto pasivo, o porque esté firme la resolución mediante la cual se determina de oficio al tributo, el Contador Municipal procederá a certificar la deuda, este documento constituirá título ejecutivo y en el juicio correspondiente, solo podrá oponerse la excepción de pago o prescripción sin perjuicio de las sanciones de tipo penal que correspondan.

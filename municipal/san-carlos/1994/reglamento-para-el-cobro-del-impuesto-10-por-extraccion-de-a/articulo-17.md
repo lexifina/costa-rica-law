@@ -1,0 +1,2 @@
+Artículo 17—SANCIONES:
+Las multas y los intereses por atraso en el pago del tributo se aplicarán conforme a lo que establece el artículo 82 del Código Municipal- La falta de pago del impuesto por parte del contribuyente, se considerará de conformidad con el último párrafo del artículo 36 del Código de Minería, como defraudación fiscal, sujeta a las penas establecidas en el Código Fiscal: consecuentemente deberá pagar una multa a favor de la Municipalidad , equivalente a diez (10) veces el valor de la suma defraudada.

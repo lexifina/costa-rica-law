@@ -1,0 +1,2 @@
+Artículo 2°—EL SUJETO ACTIVO:
+Será sujeto activo del impuesto, la Municipalidad del Cantón de San Carlos, utilizando las potestades y prorrogativas que el Código de Normas y Procedimientos Tributarios le asigna a la Administración Tributaria. Para tal efecto, la Municipalidad podrá ejercer todas las facultades que se confieren en los artículos 105 siguientes y concordantes del Código de Normas y Procedimientos Tributarios, en su carácter de órgano de la Administración Tributaria.

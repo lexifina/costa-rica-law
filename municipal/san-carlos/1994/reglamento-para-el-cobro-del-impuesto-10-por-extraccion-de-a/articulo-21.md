@@ -1,0 +1,2 @@
+Artículo 21.—PRORROGAS Y FACILIDADES DE PAGO:
+Las prorrogas deben solicitarse antes del vencimiento del plazo para efectuar el pago y solo pueden ser concedidas en casos de excepción cuando ajuicio del Concejo Municipal, se justifiquen las causas que impiden el cumplimiento normal de la obligación de que se trate la prórroga y facilidades de pago que se conceden devengarán los intereses provistos en el artículo 17 de este Reglamento.
