@@ -1,4 +1,6 @@
+(Derogado)
 N° 146
+(Esta norma fue derogada por el artículo 2° de la Ley N° 7974 del 4 de enero del 2000)
 El Congreso Constitucional de la República de Costa Rica
 Decreta:
 ARTICULO 1°- Los establecimientos nacionales y las oficinas públicas estarán abiertos todos los días del año que la ley no declare feriados.
