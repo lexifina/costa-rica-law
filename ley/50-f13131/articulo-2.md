@@ -1,0 +1,1 @@
+Art. 2. Se establece el pabellón, las armas y tipo nacionales, en los mismos términos que estaban en uso antes de la emisión del citado decreto. –Dado en San José, á veinte de Abril de mil ochocientos cuarenta y dos. –Francisco Morazan. –Al Ministro general del Despacho Sr. General José Miguel Saravia.
