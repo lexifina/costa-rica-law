@@ -14,15 +14,13 @@ Artículo 1º—Modificar los derechos arancelarios a la importación contemplad
 SAC | Descripción | DAI
 0713.3 | Frijoles (judías, alubias, fréjoles) |
 | (Vigna spp., Phaseolus spp.) |
-0713.32.00 | Adzuki (rojos pequeños) | 46%
-| (Phaseolus o Vigna angulares) |
+0713.32.00 | Adzuki (rojos pequeños) (Phaseolus o Vigna angulares) | 46%
 0713.33 | Comunes (Phaseolus vulgaris) |
 0713.3310 | Negros | 46%
 2) A partir del 16 de agosto del 2003:
 SAC | Descripción | DAI
 0713.3 | Frijoles (judías, alubias, fréjoles) |
 | (Vigna spp., Phaseolus spp.) |
-0713.32.00 | Adzuki (rojos pequeños) | 30%
-| (Phaseolus o Vigna angulares) |
+0713.32.00 | Adzuki (rojos pequeños) (Phaseolus o Vigna angulares) Así Modificado por el Decreto Ejecutivo No. 31227 de 03 de junio de 2003, publicado en La Gaceta No. 129 de 07 de julio de 2003, Alcance 37. | DAI % SOBRE EL Valor CIF 46% Del 3 de febrero del 2003 al 15 de agosto del 2003.
 0713.33 | Comunes(Phaseolus vulgaris) |
-0713.3310 | Negros | 30%
+0713.3310 | Negros Así Modificado por el Decreto Ejecutivo No. 31233 de 03 de junio de 2003, publicado en La Gaceta No. 130 de 08 de julio de 2003. | 46% Del 3 de febrero del 2003 al 15 de agosto del 2003.

@@ -14,3 +14,4 @@ Modifica Derechos Arancelarios al Arancel Centroamericano de Importación.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-05-16 | la propia norma |
+| 2 | 2003-06-03 | Decreto Ejecutivo 31225 (2003-06-03) |
