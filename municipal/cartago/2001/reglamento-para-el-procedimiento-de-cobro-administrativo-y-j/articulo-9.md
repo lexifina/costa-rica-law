@@ -1,1 +1,0 @@
-Artículo 9º—A fin de que haya la mayor equidad posible, el Departamento de Cobro Administrativo hará la distribución de las cuentas que se asignan a cobro judicial, clasificando las mismas como convengan.

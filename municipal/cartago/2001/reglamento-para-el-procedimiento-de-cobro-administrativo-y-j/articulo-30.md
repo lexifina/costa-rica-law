@@ -1,1 +1,0 @@
-Artículo 30.—Toda la documentación relativa a fraccionamiento o aplazamientos estará en custodia del Departamento de Cobro Administrativo, el cual en su oportunidad, y de ser necesario, la remitirá a los abogados que contrate la Municipalidad, para realizar las negociaciones de cobro judicial correspondientes.

@@ -1,1 +1,0 @@
-Artículo 8º—Agotadas las gestiones administrativas en la recuperación de cuentas morosas, el Jefe de Cobro Administrativo entregará a los abogados, la documentación necesaria para que inicie los trámites de cobro judicial.
