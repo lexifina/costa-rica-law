@@ -1,0 +1,1 @@
+Artículo 2°-El Ministerio de Economía y Hacienda no hará efectiva esta exoneración, hasta tanto la Municipalidad no presente certificación emanada de la Contraloría General de la República, de que cuenta con los fondos necesarios para comprar el vehículo objeto de la exoneración.
