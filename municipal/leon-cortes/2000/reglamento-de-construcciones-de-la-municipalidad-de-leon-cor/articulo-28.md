@@ -1,0 +1,1 @@
+Artículo 28.-No se permitirá abrir ventanas ni balcones que den vista a menos que intervenga una distancia de tres metros medida entre el plano vertical de la línea divisoria de los predios, en el punto en que dichas líneas se estrechen más, si no son paralelas o bien que se levante una tapia entre ambas propiedades que impida totalmente la visibilidad entre ellas.

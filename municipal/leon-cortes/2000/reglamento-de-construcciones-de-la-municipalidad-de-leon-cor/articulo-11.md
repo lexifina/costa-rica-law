@@ -1,0 +1,2 @@
+Artículo 11.-EI alineamiento se indicará en el plano constructivo cuando se tramite el respectivo permiso,
+Todo alineamiento otorgado por esta Municipalidad tendrá una vigencia de un año natural a partir de la fecha en la que fue otorgado. Si no se hiciere uso del mismo al cabo de ese tiempo deberá solicitarse la revalidación.

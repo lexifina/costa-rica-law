@@ -1,0 +1,2 @@
+Artículo 21.-Los dueños de construcciones que deben retirarse con arreglo al alineamiento oficial no podrán ejecutar en ellas obras que tiendan a consolidarse en su totalidad y por lo tanto a perpetuar su estado actual. Se entenderá como obras que tiendan a consolidar su estado actual lo siguiente:
+Los cambios de paredes, refuerzos de estructuras, cambio de construcción total o parcial de techos, remodelación de fachadas, apertura de puertas, ventanas o cierre de las mismas o sustitución de unas por otras.

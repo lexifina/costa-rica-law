@@ -1,0 +1,1 @@
+Artículo 20.-La Unidad de Ingeniería o Departamento a cargo deberá llevar un libro de registro en el cual se indicará el nombre, lugar y ubicación de la construcción o edificación, número de permiso, área de construcción, fecha de inicio y de conclusión, valor de la construcción.

@@ -1,0 +1,1 @@
+Artículo 22-La apertura del pavimento de la vía pública para la ejecución de obras privadas requerirá licencia previa de la Municipalidad o del MOPT, según corresponda, quienes fijaran en cada caso las condiciones bajo las cuales se concede y estarán en la obligación de reparar la vía.
