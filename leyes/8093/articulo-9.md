@@ -1,0 +1,2 @@
+ARTÍCULO 9.- El Ministerio de Educación Pública deberá elaborar una liquidación del presupuesto anual del Programa, la cual incluirá todos los ingresos y gastos del fondo, las labores realizadas y un análisis del cumplimiento de las metas establecidas en el presupuesto. A la Contraloría General de la República le corresponderá la fiscalización a posteriori del fondo, tanto en los aspectos económicos como en lo relativo al cumplimiento de los objetivos planteados.
+Rige a partir de su publicación.
