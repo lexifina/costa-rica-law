@@ -1,0 +1,1 @@
+Artículo 7º—Modifíquese el Artículo 5° del Decreto N° 12232-G, de La Gaceta N° 25 de fecha 5 de febrero de 1981, para que de hora en adelante se lea así: Los sectores de La Casona, Brusmalís, Limoncito, Cerro Paraguas, Villa Palacios. En conjunto tendrán, una categoría de barrio del Cantón de Coto Brus y se denominará: Barrio Guaymí de Coto Brus.
