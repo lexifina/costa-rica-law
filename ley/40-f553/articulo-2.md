@@ -1,0 +1,1 @@
+Art. 2°-Quedan los concesionarios, durante el término de dos años, exentos de pagar los derechos de introducir para el importación de los útiles y materiales que necesiten consumo y servicio de la misma fábrica.
