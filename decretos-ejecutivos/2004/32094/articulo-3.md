@@ -1,0 +1,1 @@
+Artículo 3º—Contenido. Sólo podrán donarse, entregarse o suministrarse, a los efectos del presente Reglamento, materiales y servicios relacionados con la construcción de obras comunales, viales o fluviales.
