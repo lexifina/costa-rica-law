@@ -1,0 +1,2 @@
+Artículo 39.—Prestaciones en pago total o parcial.
+En caso de que así se pactare de común acuerdo entre la Operador; y el afiliado, éste podrá hacer un retiro total o parcial de los fondo; acumulados en su cuenta individual, en las condiciones que se haya establecido en el contrato. En caso de retiro parcial, el monto que permanezca en la Operadora devengará los rendimientos correspondiente! y se deducirán las comisiones que procedan.

@@ -1,0 +1,2 @@
+Artículo 12.—Confidencialidad de la información.
+Los miembros de las Juntas Directivas, los apoderados, gerentes, los administradores, y en general, cualquier persona que, por razón de su labor o funciones en una operadora, tengan acceso a información sobre las inversiones de los recursos de un fondo que aún no se haya divulgado oficialmente en el mercado, y que, por su naturaleza sea capaz de influir en las cotizaciones de los valores de dichas inversiones, deberán guardar estricta confidencialidad respecto de esa información.

@@ -1,0 +1,3 @@
+Artículo 75.—Medidas cautelares provisionales.
+1. Mientras los Tribunales de Justicia resuelven en definitiva sobre la comisión del delito, la Superintendencia, previa autorización del , Juez de la Causa, está facultada para tomar las medidas cautelares que considere oportunas y necesarias para asegurar el cumplimiento de la ley y la conservación de los fondos. Estas medidas se ajustarán en un todo a lo que sobre ellas establecen la Ley, este Reglamento, y las Directrices por ella emitidas.
+2. Ante la solicitud de medida cautelar, el Juez resolverá lo que corresponda dentro de las veinticuatro horas siguientes al recibo del incidente.

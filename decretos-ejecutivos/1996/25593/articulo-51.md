@@ -1,0 +1,2 @@
+Artículo 51.—Pago de gastos administrativos.
+Cuando se realice el retiro anticipado de conformidad con lo establecido en el contrato, la Ley y este Reglamento, la Operadora podrá cobrar por única vez, una comisión especial que será fijada por la Superintendencia de Pensiones según la Directriz que al efecto se emita, y cuyo monto no podrá ser superior al 6% (seis por ciento) de los rendimientos acumulados.

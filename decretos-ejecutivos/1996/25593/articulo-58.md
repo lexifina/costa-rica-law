@@ -1,0 +1,5 @@
+Artículo 58.—Título ejecutivo.
+1. Si la Operadora incumpliere el plazo para la transferencia establecido en la Ley, el contrato de afiliación más la solicitud de transferencia debidamente recibida por la Operadora morosa, constituirán título ejecutivo.
+2. En el caso de que los Tribunales de Justicia deban determinar tanto la procedencia como la cuantía de la transferencia, se ajustarán a lo dispuesto en la Ley y este Reglamento, debiendo solicitar a la Superintendencia de Pensiones, la certificación de la tasa de interés moratorio a que se refiere el párrafo segundo del artículo anterior.
+3. La nueva Operadora que no ha recibido la transferencia que solicitó el afiliado, tendrá legitimación activa suficiente para comparecer, junto con éste, en la defensa de sus derechos.
+4. En caso de que la transferencia se declare procedente en sentencia, los intereses respectivos y las costas tanto procesales como personales, serán a cargo de la Operadora vencida en juicio, y no podrá eximírsele, bajo ningún concepto, de dichos pagos.

@@ -1,0 +1,3 @@
+Artículo 4°—Requisitos de constitución y acreditación.
+Además de los requisitos generales establecidos en el Código de Comercio para las sociedades anónimas, la Superintendencia de Pensiones determinará los requisitos especiales que deban cumplir para ser acreditadas y autorizadas, mediante la Directriz que al efecto de regulación de la acreditación de Operadoras, promulgue de conformidad con la Ley y este Reglamento.
+La Superintendencia de Pensiones deberá informar a la Dirección General de la Tributación Directa a cuáles operadoras ha autorizado y a cuáles se les ha aplicado algún tipo de sanción que impida su funcionamiento.

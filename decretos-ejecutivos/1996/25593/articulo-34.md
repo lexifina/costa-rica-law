@@ -1,0 +1,2 @@
+Artículo 34.—Límites a la participación del cotizante.
+El cotizante participará en la formación tanto del contrato como del fondo contenido en la cuenta individual, mediante la aportación de las sumas que se pacten, pero no podrá determinar ni condicionar la modalidad de prestaciones ni las condiciones y circunstancias en que el afiliado alcanzará el derecho a éstas, ni en el ejercicio del derecho previsto en el artículo 22 de la Ley.

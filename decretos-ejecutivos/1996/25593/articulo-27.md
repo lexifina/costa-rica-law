@@ -1,0 +1,5 @@
+Artículo 27.—Reserva para pérdidas.
+1. Cada operadora deberá constituir una reserva con la finalidad exclusiva de responder por las pérdidas que pudieren ocurrirle al capital del fondo . Esta reserva formará parte del fondo referido y se aplicará a cada cuenta individual, cuando corresponda. La Superintendencia de Pensiones establecerá la normativa para la constitución de la reserva, el origen de los recursos, su administración, su inversión y su utilización.
+2. Dicha reserva provendrá de la rentabilidad real positiva que obtenga la Operadora.
+3. La administración de dicha reserva estará a cargo de la Operadora y deberá invertirse según los criterios que al respecto indique la Superintendencia.
+4. Dicha reserva deberá aplicarse a las cuentas individuales en los casos en los que la Operadora obtenga una rentabilidad real anual negativa, medida mensualmente, de conformidad con el procedimiento que indique la Superintendencia, sin perjuicio de los demás razones extraordinarias que resultaren procedentes a juicio de dicho ente regulador.

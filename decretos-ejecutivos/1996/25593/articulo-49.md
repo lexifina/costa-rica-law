@@ -1,0 +1,2 @@
+Artículo 49.—Plazo.
+No obstante lo dispuesto en el contrato de afiliación según lo establecido en el artículo anterior, ningún afiliado podrá retirar anticipadamente sus fondos, antes de cumplir cinco años de su ingreso al régimen. Para la determinación de este plazo, y habida cuenta de la posibilidad de irregularidad en la frecuencia de aportaciones, los cinco años se contarán según el número de cotizaciones aportadas, por lo que se exigirá un número mínimo de sesenta cotizaciones mensuales, independientemente de su forma y momento de pago.

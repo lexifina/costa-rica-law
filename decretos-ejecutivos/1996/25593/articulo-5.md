@@ -1,0 +1,3 @@
+Artículo 5°—Capital mínimo de una Operadora.
+1. Además de los requisitos mencionados en los dos artículos anteriores, para autorizar y acreditar una Operadora, ésta deberá contar con un capital mínimo que no podrá ser inferior a la cuarta parte del capital mínimo requerido para los bancos privados, y el cual deberá estar íntegramente suscrito y pagado en dinero en efectivo.
+2. Cuando el Banco Central de Costa Rica, en ejercicio de la potestad que le confiere el artículo 151 de su Ley Orgánica, modifique el capital mínimo de los bancos privados, el capital mínimo de las Operadoras variará automáticamente en concordancia, y dentro del mismo plazo otorgado a los bancos privados.

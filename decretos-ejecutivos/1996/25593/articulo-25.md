@@ -1,0 +1,3 @@
+Artículo 25.—Prohibición para invertir.
+1. Los recursos del fondo no podrán ser invertidos en títulos de empresas o sociedades en las que los miembros de la Junta Directiva, los apoderados y los gerentes de las operadoras tengan participación accionaria o un control efectivo mayor al cinco por ciento.
+2. Igual prohibición existirá para las empresas en que la mencionada participación accionaria o control efectivo, esté en manos de los parientes hasta el segundo grado de afinidad o consanguinidad, o de los socios de la Operadora que, aun no siendo miembros de la Junta Directiva, tengan una participación accionaria en ésta igual o superior a dicho cinco por ciento.

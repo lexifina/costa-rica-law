@@ -1,0 +1,4 @@
+Artículo 31.—Naturaleza.
+1. El contrato de afiliación se regirá por las normas generales de loí contratos en cuanto a su validez y eficacia, y contendrá e clausulado suficiente para determinar claramente tanto el alcance de los derechos y obligaciones contraídos por la Operadora y el afiliado, como la expresa manifestación de voluntad para obligarse.
+2. El contrato de afiliación, de conformidad con lo dispuesto en el artículo 21 de la Ley, es un contrato complejo en el cual se harán constar las manifestaciones de voluntad que sean necesarias para constituir las obligaciones correspondientes a cargo de cada participante.
+3. Ninguna operadora podrá rechazar la solicitud de afiliación de una persona, formulada conforme a la Ley y a este Reglamento, y que cumpla con los requisitos exigidos de forma general a los demás afiliados.

@@ -1,0 +1,4 @@
+Artículo 17.—Comisiones extraordinarias.
+1. En el caso de que la Operadora contemple en su plan beneficios adicionales a las pensiones por vejez, tendrá derecho al cobro de comisiones extraordinarias destinadas a financiar los gastos administrativos de dichos beneficios.
+2. Para que la Operadora pueda cobrar las comisiones extraordinarias, éstas deberán ser previamente autorizadas por la Superintendencia de Pensiones, para lo cual deberá detallar y justificar puntualmente el beneficio adicional que otorga y por el cual pretende el cobro de la comisión extraordinaria. Una vez aprobado por la Superintendencia, el monto de la comisión extraordinaria deberá ser comunicado a todos los afiliados y cotizantes.
+3. Estos beneficios adicionales serán siempre de carácter voluntario, por lo que, para cobrar a un afiliado dicha comisión, el beneficio debe haber sido previamente contratado por éste.

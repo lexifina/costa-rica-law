@@ -1,0 +1,2 @@
+Artículo 45.—Fiscalización de beneficios fiscales.
+La Superintendencia de Pensiones, deberá remitir mensualmente, a la Dirección General de la Tributación Directa, la información que ésta considere necesaria para la correcta fiscalización de los beneficios fiscales conferidos a trabajadores y patronos, de conformidad con lo establecido en el artículo 26 del Reglamento General de Gestión, Fiscalización y Recaudación Tributaria.

@@ -1,0 +1,3 @@
+Artículo 37.—Prestaciones periódicas a cargo de la Operador;
+1. En caso de que las prestaciones periódicas estén a cargo de la misma; Operadora, se determinará el período por el cual se otorgarán las prestaciones y la suma a pagar mensualmente al afiliado por parte de la Operadora, las formas de pago referidas a circunstancias de modo, tiempo y lugar, así como, en su caso, los mecanismos de revaluación.
+2. Los saldos de las cuentas individuales de los afiliados que hubieren optado por esta modalidad continuarán integrando el respectivo fondo y, por consiguiente, percibiendo la misma rentabilidad de éste y sujeto a la comisión ordinaria respectiva.
