@@ -1,1 +1,0 @@
-Artículo 4°.-Las enfermedades del Grupo A deben notificarse por teléfono, telégrafo o personalmente a la mayor brevedad después de sospecharse o efectuarse el diagnóstico. Además deberá enviarse por correos o entregará personalmente la boleta de vigilancia epidemiológica, correspondiente al caso reportado telefónicamente, por telágrafo o personalmente.

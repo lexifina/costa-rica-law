@@ -1,1 +1,0 @@
-Artículo 7°.-Las enfermedades del Grupo D se notificarán colectivamente y semanalmente, informando solamente la localidad, la institución o médico privado que atendió a los pacientes y el número de casos ocurridos de cada enfermedad.
