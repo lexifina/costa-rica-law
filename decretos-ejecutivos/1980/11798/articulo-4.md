@@ -1,1 +1,0 @@
-Artículo 4°.- Los inspectores de precios deberán velar porque ellos establecimiento que se acojan al presente Reglamento, cumplan no sólo con las obligaciones que establece la Ley de Protección al Consumidor y su Reglamento, sino también con las que le impones las presentes disposiciones.
