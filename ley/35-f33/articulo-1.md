@@ -1,0 +1,14 @@
+DECRETO XXXV
+Aprueba un contrato hecho para la conclusión del camino carretero a los pueblos de San Marcos y Santa María de Dota
+El Congreso Constitucional de la República de Costa Rica, decreta:
+Art 1° Apruebase el contrato celebrado entre los Señores Doctor Don Vicente Herrera, Secretario de Estado en los Despachos de Gobernación y justicia, competentemente autorizado por el Supremo Gobierno y Don Francisco Castro Valverde, para la conclusión del camino carretero que actualmente se construye para los pueblos de Santa María de Dota, cuyo contrato literalmente dice: “Los infrascritos Vicente Herrera, Secretario de Estado en los Despachos de Gobernación y Justicia, con la autorización bastante de S.E el Sr General Presidente de la República y Francisco Castro Valverde, mayor de edad, agricultor y de este vecindario, han convenido en celebrar un contrato cuyas bases son las siguientes:
+I
+Castro se compromete a concluir el camino carretero que se haya en construcción de San Miguel de Desamparados a sus Marcos de Dota, jurisdicción de aquella Villa, que atraviese las poblaciones de Candelaria, Corralillo, Bajos de Tarrazú, la Lumbre, los Frailes, y San Marcos pasando por las inmediaciones de San Cristóbal, y siempre ciñéndose a la línea trazada al efecto por el Ingeniero del Gobierno.
+II
+El mismo Castro se obliga a dar terminada la obra del camino en la forma que lleva, es decir, a dejarla para el servicio expedido de carreteras, en todo el mes de diciembre del corriente año.
+III
+Ejecutados los trabajos a satisfacción del Gobierno, este renumerará al contratista con la suma de cuatro mil pesos, además de los novecientos que Castro ha suplicado a buena cuenta de los cinco mil con que la ley de 22 de julio de 1872 subvención la composición y rectificación de dicho camino, a que se refiere la orden suprema número 98 de 24 de octubre del año pasado, todo en terrenos baldíos a elección de Castro, en el sitio llamado “San Marcos de Dota” y entendiéndose que en estos terrenos se deben comprender veintiocho caballerías que ya tiene denunciadas y medidas y que se le adjudicaron en pago de trabajos ejecutados y que el valor de dichos terrenos debe ser el que resulte del remate público con propuesta al contado si al contratista le conviene.
+IV
+Se faculta al contratista para exigir por medio de la autoridad respectivo, el derecho al trabajo que por contribuciones subsidiaria deben prestar los vecinos de las poblaciones favorecidas con el camino de que se trata.
+En fe de lo cual firmamos el presente contrato en San José, a los tres días del mes de Julio de mil ochocientos setenta y cuatro.
+Dado en el Salón de Sesiones, Palacio Nacional, San José, julio catorce de mil ochocientos setenta y cuatro, Palacio Nacional, San José, julio catorce de mil ochocientos setenta y cuatro.
