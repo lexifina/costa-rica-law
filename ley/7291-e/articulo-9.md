@@ -1,5 +1,2 @@
-ARTÖCULO 9
 Honorarios y gastos
-Los honorarios y gastos de la comisi¢n correr n a cargo de
-las
-Partes en la controversia.
+ARTÍCULO 9 .Los honorarios y gastos de la comisión correr n a cargo de las Partes en la controversia.
