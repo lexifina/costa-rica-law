@@ -1,0 +1,1 @@
+Artículo 2º.- Los Peritos Agrícolas que se inscriban en el Colegios de Ingenieros Agrónomos estarán facultados para ejercer libremente las funciones para las cuales están capacitados, obligándose a acatar la Ley y Reglamento del Colegio de Ingenieros Agrónomos.
