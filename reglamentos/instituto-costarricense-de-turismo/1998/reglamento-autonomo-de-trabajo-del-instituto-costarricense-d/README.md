@@ -1,0 +1,16 @@
+# Reglamento (1998-08-11)
+
+Reglamento Autónomo de Trabajo del Instituto Costarricense de Turismo
+
+- Tipo: Reglamento
+- Número: 4846
+- Fecha: 1998-08-11
+- Ente emisor: Instituto Costarricense de Turismo
+- Publicación: La Gaceta N° 174 del 1998-09-07
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=39262&param2=41383&param3=1 (ficha 39262)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 1998-09-07 | la propia norma |

@@ -1,0 +1,1 @@
+Artículo 47.—Deberán marcar tarjeta de asistencia todos los servidores, con excepción de aquellos funcionarios que tengan más de veinte años continuos de trabajo dentro de la Institución, salvo disposición en contrario de la Gerencia por decisión escrita y razonada.

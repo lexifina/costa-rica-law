@@ -1,0 +1,1 @@
+Artículo 107.—Toda denuncia por acoso u hostigamiento sexual debe ser puesta por escrita ante el Departamento de Personal, que será el órgano encargado de tramitar todo lo relacionado con esta clase de denuncias, guardando el debido secreto y privacidad en todos los trámites.
