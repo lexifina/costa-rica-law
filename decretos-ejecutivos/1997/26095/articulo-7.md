@@ -30,3 +30,5 @@ Artículo 7°—Sin perjuicio de lo que al efecto disponga el Estatuto de Servic
 27 Custodiar los documentos que se encuentren bajo su responsabilidad.
 28 Respetar el orden jerárquico establecido en la realización de su reclamo o gestiones administrativas.
 29 Portar el carné que los identifica como servidores del Ministerio.
+30. Observar fiel cumplimiento de todos los principios y disposiciones contempladas en la Ley Sobre Igualdad de Oportunidades para las Personas con Discapacidad, número 7600 de veintinueve de mayo de mil novecientos noventa y seis y su reglamento.
+(Decreto Ejecutvio No. 28213 de 09 de setiembre de 1999 adicionó inciso 30 de modo expreso)

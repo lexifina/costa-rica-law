@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Ministerio de Justicia y Paz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-07-02 | la propia norma |
+| 2 | 1999-09-09 | Decreto Ejecutivo 28213 (1999-09-09) |

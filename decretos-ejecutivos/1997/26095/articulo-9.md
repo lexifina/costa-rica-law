@@ -32,3 +32,5 @@ Artículo 9°—Además de lo dispuesto en los artículos 72 del Código de Trab
 29 Cualesquiera otro proceder contrario a la moral y buen nombre que necesariamente debe poseer todo servidor en este Ministerio.
 30 Conforme lo establece la Ley contra el Hostigamiento Sexual en el empleo y la docencia número 7476. publicado en la Gacela No. 45 del 3 de marzo de 1995. se prohibe cualquier acción de acoso u hostigamiento sexual tanto a nivel vertical como horizontal.
 31 Establecer un trato preferencial a los privados de libertad, sus organizaciones o parientes de ellos.
+32. Propiciar o ejecutar cualquier tipo de acción o disposición que, directa o indirectamente promueva la discriminación o impida a las personas con discapacidad tener acceso a los programas y servicios de este Ministerio.
+(Decreto Ejecutivo No. 28213 de 09 de setiembre de 1999, adicionó inciso 32 de modo expreso)
