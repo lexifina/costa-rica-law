@@ -1,0 +1,1 @@
+Artículo 3°-La Caja tendrá su domicilio en la ciudad de San José, pudiendo designar agencias y corresponsales dentro o fuera del territorio de la República , cuando su Junta Directiva lo considere conveniente. Del mismo modo podrá cancelar las designaciones que hubiere efectuado y hacer otras de nuevo .
