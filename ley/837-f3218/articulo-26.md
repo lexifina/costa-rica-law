@@ -1,0 +1,1 @@
+Artículo 26.-La falta de presentación de las declaraciones en el período señalado o la presentación de declaraciones manifiestamente falsas o incompletas, a juicio de la Dirección General, da derecho a ésta para proceder de oficio a la liquidación del impuesto, con base en los indicios que puedan revelar la situación de la entidad o persona de que se trate.

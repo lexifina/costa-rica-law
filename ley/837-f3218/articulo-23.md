@@ -1,0 +1,1 @@
+Artículo 23. -Las declaraciones se presentarán en el mes de octubre de cada año y contendrán los datos correspondientes a la renta del año inmediato anterior, salvo las excepciones consignadas en el artículo precedente.
