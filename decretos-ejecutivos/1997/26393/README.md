@@ -14,3 +14,4 @@ Reglamento Reconocimiento Disponibilidad Funcionarios Poder Ejecutivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-10-20 | la propia norma |
+| 2 | 1997-10-20 | Ley 8 |
