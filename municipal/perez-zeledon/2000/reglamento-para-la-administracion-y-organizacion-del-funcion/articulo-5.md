@@ -1,20 +1,14 @@
 CAPÍTULO II
 De la Junta Administradora del Campo de Exposiciones
-Artículo 5°—Del nombramiento de la Junta. Para la correcta y efectiva Gestión y Administración del Campo de Exposiciones, el Concejo Municipal nombrará una Junta Administradora y al Fiscal. La primera conformada por un representante de las instituciones y/o sectores de la comunidad que se indican a continuación:
-a. Ministerio de Agricultura y Ganadería
-b.Cámara de Ganaderos Unidos del Sur
-c. Cámara de Comercio, Industria y Turismo de la Zona Sur
-d. Sociedad Civil
-e. Organizaciones de Servicio que funcionan en el cantón
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el punto a) del artículo 8), inciso 3), de la Sesión No. 182-01, celebrada el día 10 de julio de 2001, publicada en La Gaceta No. 148 de 03 de agosto de 2001, la cual reformó los incisos d y e, del presente reglamento.)
-f. Sector Cooperativo
-g. Asociación de Desarrollo Integral de Daniel Flores
+Artículo 5º—Del nombramiento de la junta. Para la correcta y efectiva Gestión y Administración del Campo de Exposiciones, el Consejo Municipal nombrará una Junta Administradora y el Fiscal. La primera conformada por un representante de las instituciones y/o sectores de la comunidad que se indican a continuación:
+a. Cámara de Ganaderos Unidos del Sur.
+b. Cámara de Comercio, Industria y Turismo de la Zona Sur.
+c. Asociación de Orquídeas de Pérez Zeledón.
+d. Asociación de Caballistas de Pérez Zeledón.
+e. Sector Cooperativo.
+f. Asociación de Desarrollo Integral de Daniel Flores.
+g. Sociedad Civil.
 El Fiscal será electo como representante de la Municipalidad de Pérez Zeledón de conformidad a lo que establece este Reglamento.
-Dentro de los quince días hábiles anteriores a la fecha de nombramiento de este órgano, el Concejo Municipal solicitará a estas organizaciones o sectores comunales que propongan una tema con los nombres de los candidatos para ser electos como miembros de la Junta. Para la selección de estas ternas deberá considerarse lo dispuesto en el artículo 9 de este Reglamento.
-El plazo para presentar las temas será de cinco días hábiles.
-El Concejo Municipal conocerá las ternas y hará el nombramiento de la respectiva Junta.
-Asimismo, el Concejo nombrará el representante de la Municipalidad de Pérez Zeledón en ese órgano, que podrá ser electo de entre los integrantes del Concejo mismo, de entre los funcionarios de la Administración Municipal o de entre los miembros del municipio en general.
-Con fundamento de los artículos 169 y 170 de la Constitución Política y en los incisos d), m) y p) del artículo 13 del Código Municipal, este consejo deja otorgada a este Junta Administradora de personería jurídica instrumental para actuar.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el punto b) del artículo 5), inciso 17), de la Sesión Ordinaria No. 181-01, celebrada el día 03 de julio de 2001 y publicada en La Gaceta No. 148 de 03 de agosto de 2001.)
-Los sectores representados podrán nombrar un suplente a su representante.
-(Así REFORMADO PARCIAL Y EXPRESAMENTE por el punto b) del artículo 8), inciso 3), de la Sesión No. 182-01, celebrada el día 10 de julio de 2001 y publicada en La Gaceta No. 148 de 03 de agosto de 2001, el cual adicionó este último párrafo.)
+Dentro de los quince días hábiles anteriores a la fecha de nombramiento de este órgano el Concejo Municipal solicitará a estas organizaciones o sectores comunales que propongan una terna con los nombres de los candidatos para ser electos como miembros de la junta. Para la selección de estas ternas deberá considerarse lo dispuesto en el artículo 9 de este Reglamento. El plazo para presentar las ternas será de cinco días hábiles.
+El Concejo Municipal conocerá las ternas y hará el nombramiento de los miembros necesarios en la respectiva Junta ya sea que vencieron en su periodo y que hayan renunciado al su puesto. Asimismo el Concejo Municipal nombrará el representante de la Municipalidad de Pérez Zeledón en ese órgano, que podrá ser electo de entre los integrantes del Concejo mismo, de entre los funcionarios de la Administración Municipal o de entre los miembros del municipio en general.
+(Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 063-03, en su artículo 8, inciso 16, celebrada el 15 de julio del 2003, publicada en La Gaceta No. 173 de 09 de setiembre de 2003.)
