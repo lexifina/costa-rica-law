@@ -1,1 +1,0 @@
-Artículo 8º.- Los fondos de la Comisión serán depositados en cuenta corriente en uno de los bancos del Estado y los cheques que se giren contra esa cuenta deberán llevar conjuntamente las firmas del Presidente de la Comisión y del Director Ejecutivo. La Contraloría General de la República ejercerá la supervisión que la ley establece para el manejo de los fondos públicos.
