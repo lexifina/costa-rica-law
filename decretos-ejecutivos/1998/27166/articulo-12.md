@@ -1,2 +1,0 @@
-Regulación de las entidades autorizadas
-Artículo 12.—Fiscalización de las entidades y centros. El Ministerio de Justicia tiene la potestad de controlar y fiscalizar el funcionamiento de las entidades y centros, para lo cual sus funcionarios estarán facultados para recibir y tramitar administrativamente, y con el seguimiento del debido proceso, todas las quejas relativas al funcionamiento de las entidades y centros RAC.

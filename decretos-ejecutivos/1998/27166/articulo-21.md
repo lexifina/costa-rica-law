@@ -1,1 +1,0 @@
-Artículo 21.—Facultades de la Ministra de Justicia. En tanto no se promulgue un nuevo reglamento que establezca un Sistema Nacional de Resolución Alterna de Conflictos, se entenderá que todas las facultades atribuidas por la Ley y el Reglamento al Ministerio, serán ejercidas a través del Despacho de la Ministra de Justicia.

@@ -1,1 +1,0 @@
-Artículo 19 : -De las estadísticas. Las entidades y centros deberán remitir al Despacho de la Ministra, la información estadística que solicite, de acuerdo al formulario elaborado para esos efectos. Las estadísticas nacionales serán almacenadas en una base de datos, de acceso público, y serán publicadas anualmente.

@@ -1,1 +1,0 @@
-Artículo 10.—Deber de información. La entidad o centro autorizados, deberán informar al Ministerio de cualquier modificación que afecte los aspectos enumerados en el artículo 6 de este reglamento, así como la inclusión o exclusión de neutrales de la lista aprobada.

@@ -1,1 +1,0 @@
-Artículo 15.—Responsabilidad. Las entidades y centros, serán responsables, conforme a la ley y al Código Civil, de las actuaciones culposas o dolosas de sus neutrales, así como su personal administrativo y dependientes, en la administración institucional de métodos RAC.
