@@ -35,15 +35,8 @@ VI. 3.8.3. Retido lateral: No se exigirá cuando el material de la pared en la r
 — Uno y medio metros (1,50 m) para unidades habitacionales de un piso.
 — Tres metros (3,00 m) para las de dos pisos.
 — Por cada piso adicional deberá agregarse un metro (1,00 m) de retiro lateral.
-Artículo VI. 4.—Número máximo de viviendas por lote. El número de viviendas que puede admitir un lote depende de que éste se encuentre en una urbanización tradicional, o en un conjunto habitacional; y de que, en cualquiera de ambos casos, haya o no servicio de cloaca. El número máximo es el cociente de dividir el área total del terreno entre el área tributaria asignada a cada vivienda según el número de dormitorios.
-URBANIZACIÓN TRADICIONAL CONJUNTO HABITACIONAL
-________________________________ __________________________________
-Área Tributaria en m2 Área Tributaria en m2
-Número de
-dormitorios Sin cloaca Con cloaca Sin cloaca Con cloaca
-3 150 96 120 60
-2 125 80 105 45
-1 120 65 90 30
+Artículo VI. 4.—Si no hubiere colector de aguas negras en funcionamiento, el número máximo de viviendas que se podrá construir en un lote estará sujeto al área libre requerida para ubicar el sistema de drenaje en la longitud y área que resulten de la prueba de infiltración, la cual deberá realizarse de conformidad con el instructivo que al respecto tiene el A y A En todo caso el área resultante no podrá ser inferior a seis metros cuadrados por persona. Para definir el número de habitantes por vivienda se considerarán dos personas por dormitorio. En caso de existir duda sobre el uso indicado para un aposento se presumirá que éste puede tener carácter de dormitorio a los efectos del cálculo del área de drenaje.
+( Reformado mediante sesión ordinaria N° 06, celebrada el 3 de agosto de 1987)
 Artículo VI. 5.—Iluminación y ventilación naturales. Las piezas habitables, las cocinas y los baños deberán tener iluminación y ventilación por medio de ventanas, linternillas o tragaluces abiertos directamente a patios o al espacio público. Esta norma se exigirá también en escaleras, vestíbulos y pasillos de uso público, en caso de edificios de tres o más viviendas.
 Artículo VI. 6.—Iluminación artificial. En cada pieza deberá diseñarse iluminación con la intensidad luminosa que fija el Código Eléctrico Nacional.
 En pasillos y escaleras que den salida a más de diez viviendas, deberá contarse con iluminación de emergencia.
@@ -52,12 +45,14 @@ El ancho de pasillos o corredores no será menor de un metro, veinte centímetro
 Artículo VI. 8.—Paredes comunes. Los tabiques que separen unos apartamientos de otros, o que separen los apartamientos de los pasillos comunes, o de secciones destinadas a otros usos, deberán ser de material con coeficiente retardatorio al fuego de un mínimo de una hora, hasta la altura de la cubierta de techo.
 Artículo VI. 9.—Escaleras de uso común.
 VI. 9.1. Los edificios de más de un piso tendrán escaleras que comuniquen todos los niveles, aunque se disponga de ascensores.
-VI.9.2. Cada escalera podrá servir a veinte viviendas, como máximo, en cada piso. VI. 9.3. Las escaleras interiores tendrán una anchura mínima libre de noventa centímetros (0,90 m) y de un metro, veinte centímetros (1,20 m) las de servicio general. VI.9.4. La huella no será menor de veintiséis centímetros (0,26 m), ni la contrahuella mayor de dieciocho centímetros (0,18 m) debiendo construirse con materiales retardatorios al fuego un mínimo de una hora; también deben proteger se con barandales de una altura mínima de noventa centímetros (0,90 m).
+VI.9.2. Cada escalera podrá servir a veinte viviendas, como máximo, en cada piso.
+VI. 9.3. Las escaleras interiores tendrán una anchura mínima libre de noventa centímetros (0,90 m) y de un metro, veinte centímetros (1,20 m) las de servicio general.
+VI.9.4. La huella no será menor de veintiséis centímetros (0,26 m), ni la contrahuella mayor de dieciocho centímetros (0,18 m) debiendo construirse con materiales retardatorios al fuego un mínimo de una hora; también deben proteger se con barandales de una altura mínima de noventa centímetros (0,90 m).
 Artículo VI. 10.—Escaleras y salidas de emergencia. Todos los edificios multifamillares con pisos a más de ocho metros medidos sobre el nivel de la acera, deberán contar con escalera de emergencia que desemboque a espacio público, con arreglo a las normas del artículo IV. 26.
 Las diferencias de niveles de piso en las salidas de emergencia deberán ser salvadas por rampa.
 Artículo VI. 11.—Instalaciones de agua. Todos los edificios destinados a vivienda estarán provistos de instalaciones de agua potable que tengan capacidad suficiente para abastecer ciento cincuenta (150 1) litros por habitante, por día.
 Los tanques de almacenamiento deberán ser construidos de tal forma que se evite la contaminación y el derrame de agua. Tendrán acceso fácil para su limpieza interior.
-Artículo VI. 12.—Fosas sépticas. Cuando no fuere posible conducir las aguas negras a un alcantarillado sanitario, será obligatorio disponer de ellas por medio de un tanque séptico con sus drenajes, o por algún otro sistema sanitario aprobado por el Ministerio de Salud.
+Artículo VI. 12.—Fosas sépticas. Cuando no fuere posible conducir las aguas negras a un alcantarillado sanitario, será obligatorio disponer de ellas por medio de un tanque séptico con sus drenajes, o por algún otro sistema sanitario aprobado por el Ministerio de Salud
 Artículo VI. 13.—Servicios sanitarios. Cada vivienda deberá contar con su propio servicio de baño, lavabo, inodoro, fregadero y pila de ropa.
 En zonas rurales en donde el Ministerio de Salud acepte la construcción de letrina, ésta deberá estar alejada de la vivienda ocho metros (8,00 m) como mínimo; si existiera pozo o tanque de almacenamiento de agua potable subterráneo, la letrina estará por lo menos a treinta metros (30,00 m) de aquéllos.
 Artículo VI. 14.—Desagües pluviales. Las aguas pluviales de techos, terrazas y patios, deberán ser conducidas a sistemas de alcantarillado pluvial o a cursos de aguas naturales.
