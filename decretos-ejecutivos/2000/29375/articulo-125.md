@@ -1,0 +1,1 @@
+Artículo 125.—En las audiencias públicas los participantes deberán de presentar por escrito sus mociones, comentarios, modificaciones y podrán comentarlas de viva voz en un término no mayor de quince minutos, sin perjuicio de que soliciten ser atendidos individualmente de previo a la aprobación del Plan.

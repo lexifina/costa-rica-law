@@ -1,0 +1,1 @@
+Artículo 88.—Nadie podrá realizar quemas en terrenos forestales, zonas protectoras, parques nacionales, refugios de vida silvestre ni aledaños a ellas, conforme lo dispone el artículo 35 de la Ley Forestal.

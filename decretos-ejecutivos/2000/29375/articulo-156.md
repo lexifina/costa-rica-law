@@ -1,0 +1,1 @@
+Artículo 156.—Se otorgará un plazo prudencial al administrado para que dentro de los diez días siguientes presente un plan de manejo o en su caso cese las conductas activas u omisivas generadoras del peligro para el suelo, las aguas o el ambiente en general según lo dispone el Artículo 54 de la ley.

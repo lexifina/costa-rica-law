@@ -1,0 +1,1 @@
+Artículo 161.—El Juez Agrario podrá ordenar que el empresario agrario adopte las medidas que a ese efecto establezca el Plan Nacional, el Plan de Manejo del Área o en su caso el estudio de uso manejo y conservación de suelos, aguas y caminos especifico para la finca o la microcuenca que se trate.

@@ -1,0 +1,1 @@
+Artículo 153.—El daño, alteración, degradación, erosión o contaminación de los suelos y aguas puede producirse por conductas de acción u omisión y les son imputables a las personas físicas o los representantes de las personas jurídicas que las realicen de conformidad con la Ley del Ambiente Nº 7554 del 4 de octubre de 1995.

@@ -1,0 +1,1 @@
+Artículo 142.—En el procedimiento sumario no habrá debates, pero deberá por parte de las autoridades administrativas competentes, comprobarse exhaustivamente de oficio la verdad real de los hechos y elementos del caso, para lo cual, cuando lo considere pertinente recabará la realización de las pruebas necesarias.

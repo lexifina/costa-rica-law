@@ -1,0 +1,1 @@
+Artículo 68.—Se declara de interés y utilidad pública la aplicación de la mejor tecnología disponible en lo agroecológico y agronómico, para el mejor uso y manejo de tierras, aguas y demás recursos naturales de conformidad con los artículos 3 y 6 inciso d) de la Ley Nº 7779.

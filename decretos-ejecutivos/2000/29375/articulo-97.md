@@ -1,0 +1,1 @@
+Artículo 97.—Todo material de divulgación y publicidad que se pretenda hacer de conocimiento público sobre el uso de agroquímicos y contaminación sobre suelo, aire y agua, deberá ser previamente valorado y aprobado por la División de Protección al Ambiente Humano del Ministerio de Salud.

@@ -1,0 +1,1 @@
+Artículo 138.—Se establecerá el procedimiento sumario en el caso de que se denuncie por particulares, u oficialmente se determine un eventual incumplimiento o desacato a las disposiciones técnicas o lineamientos fijados para el manejo, conservación y recuperación de suelos.

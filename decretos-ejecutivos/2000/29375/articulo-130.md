@@ -1,0 +1,1 @@
+Artículo 130.—Corresponde al Ministerio de Hacienda y / o a la respectiva Municipalidad en su caso autorizar los incentivos o exoneraciones de carácter tributario, que se soliciten al amparo de la Ley 7779.

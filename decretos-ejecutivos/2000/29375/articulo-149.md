@@ -1,0 +1,1 @@
+Artículo 149.—El agotamiento de la vía la hace el MAG, en su condición de Jerarca del Sector Agropecuario, quien también atenderá y resolverá los recursos extraordinarios que tiene derecho a interponer el interesado.

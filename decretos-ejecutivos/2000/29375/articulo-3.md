@@ -1,0 +1,1 @@
+Artículo 3º—De conformidad con lo dispuesto en el Artículo 3º la ley, se reconoce y declara que los suelos, como recurso natural, constituyen el activo de mayor importancia patrimonial y productiva para la empresa agraria.

@@ -1,0 +1,1 @@
+Artículo 55.—En los Planes Reguladores y Reglamentos de Zonificación que elabore el INVU y las municipalidades, necesariamente en los distritos urbanos y rurales, se clasificarán y zonificarán los suelos agrarios, conforme lo disponen los incisos a) y b) del artículo 13 de la Ley de Planificación Urbana.

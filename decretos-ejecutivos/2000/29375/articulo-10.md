@@ -1,0 +1,1 @@
+Artículo 10.—Todas las personas físicas o jurídicas, públicas o privadas se encuentran en la obligación de realizar las mejores prácticas de uso, manejo y conservación de suelos, conforme con las directrices y en coordinación con el MAG.

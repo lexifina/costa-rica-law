@@ -1,0 +1,1 @@
+Artículo 102.—Los propietarios, arrendatarios o poseedores de tierras por cualquier título, tienen la obligación de realizar el manejo de sus fincas, según la mejor tecnología disponible para prevenir la degradación, erosión y contaminación de suelos y aguas.

@@ -1,0 +1,1 @@
+Artículo 28.—Los vocales podrán sustituir a cualquiera de los demás miembros del Comité. La Junta Directiva asignará a los vocales funciones en zonas específicas, para la aplicación del plan de manejo del área.

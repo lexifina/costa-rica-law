@@ -1,0 +1,1 @@
+Artículo 89.—Todas las personas físicas y jurídicas públicas y privadas, se encuentran obligadas a brindar su apoyo y colaboración a las Brigadas contra Incendio del MINAE, para contrarrestar los efectos nocivos de los incendios.

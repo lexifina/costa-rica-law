@@ -1,0 +1,1 @@
+Artículo 146.—El acto final o disposición administrativa que resuelva, recaída fuera del plazo será válida para todo efecto legal. En ausencia de disposición legal expresa que regule el procedimiento administrativo y los recursos administrativos, se estaría a lo dispuesto en la Ley General de Administración Pública.

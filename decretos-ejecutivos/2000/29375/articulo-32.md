@@ -1,0 +1,1 @@
+Artículo 32.—El MAG, el MINAE, el MS y la Secretaría Nacional de los COVIRENA, asesorarán y capacitarán a los COVIRENA para el desarrollo de sus funciones en el control del cumplimiento de la Ley 7779 y este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 126.—Cumplido el Plan, el Comité de Área incorporará o no las recomendaciones obtenidas en la audiencia, según su procedencia técnica y solicitará al MAG su aprobación y publicación en el Diario La Gaceta.

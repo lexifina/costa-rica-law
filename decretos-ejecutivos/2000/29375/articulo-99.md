@@ -1,0 +1,1 @@
+Artículo 99.—Toda persona física o jurídica pública o privada esta obligada a contribuir, fomentar y ejecutar todas las prácticas, manejo y actividades necesarias para el manejo, conservación y recuperación de suelos y aguas.

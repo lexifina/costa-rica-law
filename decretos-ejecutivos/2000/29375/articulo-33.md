@@ -1,0 +1,1 @@
+Artículo 33.—La Secretaría Nacional de COVIRENA, en conjunto con el Director Regional del MAG, emitirá un carné especial de coordinador de grupo, a través del cual se autorizará a su portador para el desarrollo de las tÁreas dirigidas a las obligaciones emanadas en los Artículos 94 y 159 del presente Reglamento.

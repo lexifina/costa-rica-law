@@ -1,0 +1,1 @@
+Artículo 129.—El MAG reglamentará y controlará la utilización de productos, maquinaria, herramientas e implementos que puedan perjudicar las características físicas, químicas o biológicas de los suelos y las aguas, de conformidad con el Artículo 30 de la Ley 7779.

@@ -1,0 +1,1 @@
+Artículo 157.—Transcurrido dicho plazo, se procederá a denunciar la acción u omisión al Juez Agrario de la jurisdicción territorial donde se encuentra el inmueble, para que ordene el cumplimiento respectivo, bajo los apercibimientos de poder ser encausado por desobediencia a la autoridad, el Juez le dará un plazo razonable para ello.

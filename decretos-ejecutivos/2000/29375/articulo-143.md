@@ -1,0 +1,1 @@
+Artículo 143.—El procedimiento sumario deberá ser concluido mediante resolución final en un plazo de quince días hábiles, tomando como fecha de iniciación la verificación del daño o la denuncia del particular.

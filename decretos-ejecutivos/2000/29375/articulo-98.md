@@ -1,0 +1,3 @@
+CAPÍTULO XIII
+De la participación ciudadana
+Artículo 98.—Previa notificación a los propietarios, administradores, poseedores o sus representantes en el sitio; los funcionarios del MAG, del MINAE, MS, AyA, los técnicos autorizados de los Comités de Áreas, los coordinadores de COVIRENA, los integrantes de la Brigada de Incendios, podrán ingresar a cualquier finca agraria o de protección ecológica para verificar el cumplimiento de las leyes, reglamentos, directrices, planes y prácticas de manejo, conservación, recuperación de suelos y aguas en las fincas particulares. En caso de oposición se harán acompañar de la fuerza pública.

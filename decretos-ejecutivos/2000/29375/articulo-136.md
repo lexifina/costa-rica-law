@@ -1,0 +1,1 @@
+Artículo 136.—Para los efectos de lo dispuesto en los Artículos 46 y 47 de la Ley 7779, entiéndase que las exoneraciones o incentivos fiscales o tributarios, así como los créditos preferenciales se refieren a aquellos propios de la actividad agropecuaria.

@@ -1,0 +1,1 @@
+Artículo 154.—El MAG, por intermedio de sus diversas instancias o Comités de Áreas, prevendrá a los propietarios, poseedores, arrendatarios o sus representantes públicos o privados, sobre las violaciones específicas a la ley Nº 7779, este Reglamento o Plan de Uso, Manejo, Conservación y Recuperación de Suelos.

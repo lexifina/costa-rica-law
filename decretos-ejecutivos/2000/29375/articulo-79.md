@@ -1,0 +1,1 @@
+Artículo 79.—En los distritos de riego el SENARA coordinará con el MAG para que los regantes cumplan con el manejo, conservación y recuperación de suelos, y utilicen la finca en la forma y para los fines a los que se les habilitó las aguas, de conformidad con lo dispuesto en el artículo 62 de la Ley Nº 7779.

@@ -1,0 +1,1 @@
+Artículo 60.—Es obligatorio para el IDA contar con estudios de suelos, al menos a nivel de semidetalle en coordinación con el MAG, de previo a toda compra de fincas, parcelación, adjudicación, titulación, arrendamiento, y con mayor énfasis en la titulación de tierras ubicadas en reservas nacionales según ley 7599 del 29 de abril de 1996.

@@ -1,0 +1,1 @@
+Artículo 109.—La educación ambiental relacionará los problemas del ambiente con las preocupaciones locales y la política nacional de desarrollo, incorporando el enfoque interdisciplinario y la cooperación solidaria, como principales fórmulas de solución destinadas a promover la conservación y el uso sostenible de los recursos naturales.

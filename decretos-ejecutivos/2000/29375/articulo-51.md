@@ -1,0 +1,1 @@
+Artículo 51.—La introducción de las prácticas de manejo, conservación y recuperación de suelos se realizará paulatinamente y de manera integral en los sistemas de producción; la integración de las mismas se implementará según la capacidad técnica y socioeconómica de los productores, tomando en cuenta las características particulares de los sistemas de producción.

@@ -1,0 +1,1 @@
+Artículo 101.—Los COVIRENAS y toda persona podrán vigilar y controlar el cumplimiento de la legislación y normas técnicas en materia de manejo de suelos y aguas y denunciar administrativa o judicialmente su incumplimiento.

@@ -1,0 +1,1 @@
+Artículo 35.—Para ser acreditado y autorizado por el MAG como Certificador de Uso Conforme del Suelo, el profesional deberá demostrar idoneidad académica, experiencia práctica y aprobar los cursos de complementación que determine el MAG.

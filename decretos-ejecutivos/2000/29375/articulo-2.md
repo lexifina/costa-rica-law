@@ -1,0 +1,1 @@
+Artículo 2º—Todas las personas físicas o jurídicas, públicas o privadas, se encuentran obligadas a emplear la mejor tecnología disponible, la aplicación de la mejor práctica en el uso del suelo, con el fin de evitar la erosión hídrica, eólica y aprovechar racional e inteligentemente los suelos, conforme lo establece la ley que aquí se reglamenta.

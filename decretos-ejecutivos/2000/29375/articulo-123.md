@@ -1,0 +1,1 @@
+Artículo 123.—En las audiencias públicas deberán participar obligatoriamente quienes elaboraron el plan y los representantes del Comité de Área ya designados, para evacuar toda clase de consultas del Plan a que alude el Artículo 39 de la Ley Nº 7779.

@@ -1,0 +1,1 @@
+Artículo 166.—Quienes sin la aprobación del MAG Y MINAE construyan caminos o trochas en terrenos con bosque o violentando los diseños necesarios para el uso adecuado del suelo o utilicen maquinarias en contra de lo dispuesto en el plan de manejo, podrán ser sancionados en la forma que dispone el Artículo 62 de la Ley Forestal Nº 7575 del 5 de febrero de 1996.

@@ -1,0 +1,1 @@
+Artículo 30.—Los inspectores y vigilantes de los recursos naturales, dentro de sus funciones, tendrán además de vigilar y denunciar lo relativo al incumplimiento de la Ley Nº 7779 y este Reglamento, lo correspondiente a los Planes Nacionales o Planes por Área.

@@ -1,0 +1,1 @@
+Artículo 37.—El Certificador de Uso Conforme del Suelo, bajo su responsabilidad profesional, emitirá la certificación de uso conforme del suelo, en la que obligatoriamente consignará el número y fecha del oficio de aprobación del MAG, para todos los efectos legales.

@@ -1,0 +1,1 @@
+Artículo 120.—El MAG convocará la Audiencia de aprobación definitiva del plan, con un plazo de 15 días naturales. En la audiencia de presentación del documento final del proyecto, únicamente se admitirán propuestas técnicas que se formulen por escrito, las cuales deberán ser incorporadas al borrador del plan.

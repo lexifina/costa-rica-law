@@ -1,0 +1,1 @@
+Artículo 24.—La presidencia, preside, convoca y modera las reuniones, vela por el cumplimiento de los acuerdos, firma el libro de actas y elevará, para las firmas respectivas de las autoridades superiores, convenios que hayan sido acordados.

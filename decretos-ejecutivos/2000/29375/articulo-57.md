@@ -1,0 +1,1 @@
+Artículo 57.—En todo fraccionamiento y urbanización, deberán presentarse estudios de uso, manejo y conservación de suelos y aguas, para evitar la contaminación, degradación, erosión, sedimentación de embalses y obstrucción de alcantarillados.

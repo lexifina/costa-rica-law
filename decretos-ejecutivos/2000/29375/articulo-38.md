@@ -1,0 +1,1 @@
+Artículo 38.—El Certificador de Uso Conforme del Suelo, será responsable penal, civil y disciplinariamente por negligencia, impericia, dolo o culpa al emitir certificaciones de uso conforme del suelo cuando se compruebe que el beneficiario no cumplió los requisitos para obtener los beneficios o exoneraciones.

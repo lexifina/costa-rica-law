@@ -1,0 +1,1 @@
+Artículo 122.—El representante del MAG, presidirá las audiencias publicas, establecerá las reglas, otorgará o retirará la palabra según el caso y tomará nota de todas las mociones y recomendaciones y compilará los documentos aportados, para ser consideradas oportunamente de previo a aprobar el plan del área específica.

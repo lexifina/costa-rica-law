@@ -1,0 +1,1 @@
+Artículo 112.—El MINAE, MOPT, ICE, AyA,. Comisión Nacional de Emergencia y el INVU, coordinarán con el MAG, la ejecución de las investigaciones hidrológicas, hidrogeológicas y agroecológicas, así como las prácticas de mejoramiento conservación de suelos y aguas en las cuencas hidrográficas del país.

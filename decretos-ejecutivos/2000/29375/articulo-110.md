@@ -1,0 +1,1 @@
+Artículo 110.—Los ministerios e instituciones públicas, cada cual en su especialidad orgánica elaborarán los documentos necesarios, para la educación y divulgación ambiental y los pondrán a disposición del público a manera de capítulos que interrelacionados, permitan una visión holística de la biosfera y la participación e intervención del ser humano sobre ella.

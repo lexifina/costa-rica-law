@@ -1,0 +1,1 @@
+Artículo 100.—Es de obligatorio acatamiento cooperar y acatar las medidas técnicas emitidas por el MAG y otros ministerios o instituciones con el fin de manejar, conservar y recuperar los suelos, aguas, biodiversidad y cuencas hidrográficas.

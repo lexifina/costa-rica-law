@@ -1,0 +1,1 @@
+Artículo 144.—Finalizado dicho plazo se le notificará al particular interesado, la disposición administrativa adoptada en torno al asunto objeto de la investigación; en caso de persistir en la consecución del daño, se le apercibirá de las consecuencias civiles y penales que de ellas se pudieran derivar.

@@ -1,0 +1,1 @@
+Artículo 25.—La vicepresidencia, presidirá las reuniones en ausencia de la presidencia, apoyará a la presidencia en toda su gestión y llevará a cabo las acciones que se le encomienden por acuerdo de la Junta Directiva.

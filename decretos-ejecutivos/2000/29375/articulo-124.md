@@ -1,0 +1,1 @@
+Artículo 124.—En la audiencia pública para conocer el Plan podrán participar los representantes de las personas jurídicas, así como todas las personas físicas que habiten en la jurisdicción donde se aplicará el Plan o tengan interés en el mismo.

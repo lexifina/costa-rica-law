@@ -1,0 +1,1 @@
+Artículo 147.—Posteriormente, se acudirá oficiosamente a las instancias judiciales competentes, y a aquellas administrativas involucradas en la conservación y manejo sostenible del recurso suelo, con el objeto de que se adopten las sanciones administrativas procedentes.

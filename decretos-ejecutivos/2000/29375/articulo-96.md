@@ -1,0 +1,1 @@
+Artículo 96.—Como mecanismo de coordinación con el MAG y el MINAE, el Ministerio de Salud,cuando corresponda, podrá solicitar el criterio previo a estas instituciones a fin de otorgar la aprobación para el manejo (almacenamiento, recoleccion, transporte, tratamiento y disposición final) de los desechos contaminantes.

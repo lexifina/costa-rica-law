@@ -1,0 +1,1 @@
+Artículo 43.—Para establecer criterios estratégicos metodológicos, técnicos y operativos normativos, el Plan Nacional de Uso, Manejo, Conservación y Recuperación de Suelos integrará las experiencias técnicas y operativas generadas en las regiones y a nivel local, en las áreas donde se desarrollan las acciones de uso, manejo, conservación y recuperación de suelos.

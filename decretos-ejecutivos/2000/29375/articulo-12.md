@@ -1,0 +1,1 @@
+Artículo 12.—En lo pertinente a los artículos 59 y 60 de la Ley, se hará énfasis a la coordinación interinstitucional entre el MAG y los demás ministerios u oficinas que ejecuten programas en materia de uso, manejo y conservación de suelos y aguas.

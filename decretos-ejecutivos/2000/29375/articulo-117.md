@@ -1,0 +1,1 @@
+Artículo 117.—Una vez transcurridos 30 días naturales a la entrega del anteproyecto a todas las fuerzas del área involucrada, el MAG procederá a convocar a la segunda audiencia pública para discutir el anteproyecto de plan de área.

@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De la Titulación de Tierras
+Artículo 58.—En toda información posesoria o que se presente ante el IDA o ante los Tribunales de Justicia, con el fin de inscribir en el Registro Público de la Propiedad, el interesado, además de los requisitos que exige la normativa común, deberá de demostrar, con un estudio adecuado de suelos, que ha ejercido la posesión cumpliendo con el uso conforme del suelo para la actividad que realiza de acuerdo con la metodología aprobada, y ejecutándolas con las mejores prácticas de su manejo, según la mejor tecnología disponible en cumplimiento con lo dispuesto en los artículos 3, 6, 12, 13, 19, 26, 27, 41, 43 y 64 de la Ley Nº 7779 y este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 31.—Para el cumplimiento de las funciones otorgadas por el presente reglamento, los inspectores y vigilantes de COVIRENA, debidamente uniformados y acreditados, podrán ser transportados en los vehículos oficiales de las instituciones involucradas en el cumplimiento de esta Ley y este reglamento, de conformidad con las disposiciones establecidas en la Ley de Tránsito.

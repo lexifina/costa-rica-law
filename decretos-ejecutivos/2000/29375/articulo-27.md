@@ -1,0 +1,1 @@
+Artículo 27.—La tesorería llevará los libros contables, registros, facturas y administrará los fondos. Rendirá un informe de tesorería cada dos meses a la Junta Directiva y un informe de tesorería en audiencia pública una vez al año. Vigilará por la aplicación correcta de los fondos que se obtengan para la ejecución de los Planes por Área. Deberá rendir una póliza de fidelidad.

@@ -1,0 +1,1 @@
+Artículo 104.—Queda permitido a los Comités por Áreas establecer fondos para el manejo, la conservación y la recuperación de suelos del área respectiva, tales fondos podrán ser financiados por medio de donaciones de personas físicas o jurídicas, privadas o públicas, nacionales o internacionales, que estarán sujetas a la fiscalización de la Controlaría General de la República.

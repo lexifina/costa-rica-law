@@ -1,0 +1,1 @@
+Artículo 116.—Una vez que el MAG confeccione el anteproyecto del plan de manejo del área, procederá a la entrega del mismo a todas las fuerzas del área involucrada; el MAG procederá a convocar a la primera audiencia pública, la cual será para brindar información sobre el estado del recurso suelo en la zona y las acciones que se proponen.

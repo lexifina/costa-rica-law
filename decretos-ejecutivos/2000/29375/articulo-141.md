@@ -1,0 +1,1 @@
+Artículo 141.—Transcurrido el término fijado en la notificación y de comprobarse la desobediencia a la prevención, se acudirá oficiosamente a las instancias judiciales competentes para conocer el asunto. En el nivel judicial los asuntos se ventilarán en los despachos competentes por razón de la materia.

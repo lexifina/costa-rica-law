@@ -1,0 +1,1 @@
+Artículo 52.—La transferencia de las prácticas de manejo, conservación y recuperación de suelos, desarrolladas y comprobadas en un área determinada, se divulgará en primer lugar, hacia aquellas zonas agroecológicas que cuenten con características semejantes.

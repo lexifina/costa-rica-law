@@ -1,0 +1,3 @@
+CAPÍTULO XI
+De la práctica minera
+Artículo 90.—Adjunta a toda solicitud de permiso de exploración y concesión de explotación minera de áreas donde se involucre el recurso suelo definido como tal en el reglamento, que se presente ante el MINAE, por parte de personas físicas y jurídicas, el interesado además de las exigencias comunes, deberá presentar un estudio detallado de suelos elaborado por un profesional con competencia en la materia, acreditado ante el MAG que deberá además ser aprobado por el MAG, a efectos de que la SETENA del MINAE, de acuerdo con los estudios que realizara sobre la mayor riqueza involucrada, determine o no la procedencia de la explotación minera.

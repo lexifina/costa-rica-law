@@ -1,0 +1,1 @@
+Artículo 76.—En toda concesión de aguas por parte del Departamento de Aguas de MINAE para actividades productivas agrarias, los interesados están en la obligación de someterla a la aprobación del MAG para la respectiva evaluación del uso racional del suelo y del agua.

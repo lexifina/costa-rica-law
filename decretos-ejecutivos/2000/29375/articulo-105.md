@@ -1,0 +1,1 @@
+Artículo 105.—Para que el Comité por Área pueda directamente administrar los fondos previstos en esta ley, deberán hacerlo por medio de una Asociación específica constituida al amparo de la ley de Desarrollo de la Comunidad y su reglamento. La constitución y organización se rige por la ley de DINADECO y su plazo será indefinido, mientras existan las acciones del Comité de Área.

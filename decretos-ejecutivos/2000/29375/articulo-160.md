@@ -1,0 +1,1 @@
+Artículo 160.—El Juez Agrario denegará la solicitud de información posesoria o titulación, sin el interesado no demuestra fehacientemente, que ha ejercido la posesión agraria o ecológica cumpliendo al efecto con las prácticas de manejo de suelos y aguas, de acuerdo con la tecnología aprobada al efecto.

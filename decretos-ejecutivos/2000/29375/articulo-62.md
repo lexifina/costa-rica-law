@@ -1,0 +1,1 @@
+Artículo 62.—Si del estudio de suelos y la clasificación de las tierras, no sea procedente la titulación para fines agrarios o urbanos, el IDA las destinará en su caso a reserva nacional traspasándolas en su caso al MINAE.

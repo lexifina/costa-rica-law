@@ -1,0 +1,1 @@
+Artículo 163.—Quienes provoquen un incendio o quema sin la autorización del MINAE y del MAG, o no lo realicen de acuerdo con la autorización otorgada, serán sancionados por el Juez, según lo establecido en el Artículo 60 de la Ley Forestal Nº 7575 del 5 de febrero de 1996.

@@ -1,0 +1,1 @@
+Artículo 169.—Los Comités de Área podrán establecer cuentas especiales para el cumplimiento de sus funciones; tales fondos estarán bajo la fiscalización de la Contraloría General de la República y deberán ser administrados de acuerdo con las mejores normas de contabilidad aceptables y de su operatividad se dará informe al MAG semestralmente.

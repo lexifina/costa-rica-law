@@ -1,0 +1,1 @@
+Artículo 11.—La Coordinación del MAG se llevará a cabo por medio de las siguientes instancias: la Comisión Técnica Nacional de Uso, Manejo y Conservación de Suelos, los Comités de Áreas, los Certificadores de Uso conforme del Suelo y la Secretaría Nacional de los Comités de Vigilancia de los Recursos Naturales (COVIRENAS).

@@ -1,0 +1,1 @@
+Artículo 106.—El MAG abrirá una cuenta especial donde se depositarán las multas que se impusieran con motivo de la aplicación de la ley que aquí se reglamenta. Dichos fondos se destinarán para complementar los recursos económicos necesarios para la aplicación de la ley.

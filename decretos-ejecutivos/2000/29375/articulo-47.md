@@ -1,0 +1,1 @@
+Artículo 47.—La selección de las áreas de trabajo se realizará sobre la base de criterios desarrollados mediante experiencias técnicas metodológicas y operativas regionales y locales apoyadas en criterios basados en la información de los estudios básicos de suelos, evaluación de tierras, zonas agroecológicas y de los ámbitos de recomendación a nivel nacional, regional y local.

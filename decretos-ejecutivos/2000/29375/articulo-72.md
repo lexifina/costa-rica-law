@@ -1,0 +1,1 @@
+Artículo 72.—Todo propietario se encuentra en la obligación de dar un uso racional del suelo en su finca, a efectos de evitar la erosión de los suelos, para lo cual técnicamente se tomarán en consideración las características de las fincas adyacentes, así como las de la microcuenca donde se encuentra.

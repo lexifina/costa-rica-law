@@ -1,0 +1,1 @@
+Artículo 42.—El Plan Nacional de Uso, Manejo, Conservación y Recuperación de Suelos se fundamenta además en los estudios de suelos y evaluación de tierras a nivel nacional, regional y local, y su diseño se basará en el concepto de diversificación por zonas agroecológicas y por ámbito de recomendación o unidad de manejo definido.

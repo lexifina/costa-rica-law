@@ -1,0 +1,1 @@
+Artículo 107.—En caso que se cumpla el fin de la Asociación y esta se disolviese, todos los bienes, activos y recursos serán trasladados a la Administración del MAG y a la Región respectiva a la que perteneció la Asociación.

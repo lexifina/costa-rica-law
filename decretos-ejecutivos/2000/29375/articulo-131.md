@@ -1,0 +1,6 @@
+Artículo 131.—Para el trámite de solicitudes de los incentivos mencionados en el Artículo 49 de la Ley que aquí se reglamenta, se establece el siguiente procedimiento:
+1. Del registro que para tal fin dispone el MAG, el interesado contrata los servicios de un certificador de uso conforme del suelo para que realice el estudio pertinente.
+2. El interesado envía el informe elaborado por el Certificador y la certificación expedida por éste al MAG.
+3. El MAG verifica y avala o no, tanto el informe como la certificación, para lo cual dispone de un plazo máximo de 60 días hábiles. El costo de esta verificación será de conformidad con el Decreto de Tarifas por Servicios del MAG.
+4. El interesado retira el aval emitido por el MAG y lo traslada a la instancia respectiva Municipalidad, Departamento de Exoneraciones y /o la Dirección General de Tributación del Ministerio de Hacienda.
+5. Por solicitud expresa de las instancias, cada dos años el MAG verificará el manejo de uso conforme del suelo en las propiedades que hayan sido beneficiadas con el incentivo mencionado en el Artículo 49 de la Ley; para emitir recomendaciones e informar a las mismas acerca de la suspensión o no del beneficio otorgado; cuando las circunstancias así lo ameriten, y se confirme la decisión de suprimir el beneficio por incumplimientos demostrados, se dará previa audiencia a los interesados.

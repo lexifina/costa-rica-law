@@ -1,0 +1,1 @@
+Artículo 66.—La Comisión a que se refiere el artículo anterior, coordinada por el MS elaborará los procedimientos y disposiciones sobre la normativa ambiental que sirva de base para la clasificación de suelos.
