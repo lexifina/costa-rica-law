@@ -14,8 +14,8 @@ signatarios o que se adhieran al Protocolo.
 PROTOCOLO, 1979, PARA LA QUINTA PRORROGA DEL CONVENIO
 SOBRE EL COMERCIO DEL TRIGO, 1971
 Los Gobiernos partes en el presente Protocolo:
-Considerando que el Convenio sobre el Comercio del Trigo, 1971 (en
-adelante llamado "el Convenio") del Convenio Internacional del Trigo, 1971,
-que fue prorrogado de nuevo por virtud de Protocolo en 1978, expira el 30
-de junio de 1979,
+Considerando que el Convenio sobre el Comercio del Trigo, 1971 (en adelante
+llamado "el Convenio") del Convenio Internacional del Trigo, 1971, que fue
+prorrogado de nuevo por virtud de Protocolo en 1978, expira el 30 de junio
+de 1979,
 Han convenido lo siguiente:
