@@ -1,0 +1,1 @@
+7°.- Para ser Diputado se requiere ser Ciudadano en exercicio de sus derechos, mayor de veinte y tres años y tener una propiedad que no baje de quinientos peso o una renta anual de cien, o ser profesor de alguna ciencia.
