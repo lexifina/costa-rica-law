@@ -1,0 +1,195 @@
+Artículo 3°- Modificase el inciso 4 del artículo 5, relativo a insumos agropecuarios, para que en adelante se lea así:
+"4) Insumos agropecuarios
+- Layas, palas, azadas, picos, binaderas, horcas, rastrillos y raederas; hachas, hocinos y herramientas similares con filo; tijeras de podar de cualquier tipo; hoces y guadañas; cuchillos para heno o para paja, cizallas para setos, cuñas y demás herramientas de mano, agrícolas, hortícolas o forestales.
+-Máquinas, aparatos y artefactos agrícolas, hortícolas o silvícolas, para la preparación o el trabajo del suelo o para el cultivo, excepto rodillos para césped o terrenos de deporte.
+- Máquinas, aparatos y artefactos para cosechar o trillar incluidas las prensas para paja o forraje; guadañadoras; se incluyen las barras de corte para montar en un tractor.
+-Las demás máquinas y aparatos, para la agricultura, horticultura, silvicultura o apicultura, incluidos los germinadores con dispositivos mecánicos o térmicos, excepto máquinas y aparatos para preparar alimentos o piensos para animales.
+Para la avicultura: las incubadoras, criadoras, máquinas de postura, equipos desplumadores, dedos y discos, bebederos, alimentadores de diferentes tipos, comederos, bandejas para ser utilizadas en comederos para pollitos, canastas para congelación de huevos fértiles y despicadores eléctricos. Además los accesorios y repuestos para bebederos, comederos, despicadores eléctricos y los repuestos para incubadoras.
+-Aparatos mecánicos (incluso manuales) para proyectar, dispersar o pulverizar materias líquidas o en polvo para la agricultura o la horticultura. Además los repuestos y accesorios para bombas de fumigación, atomización, espolvoreo y equipo de riego.
+- Ordeñadoras, sus accesorios y repuestos.
+- Remolques y semirremolques, autocargadores o autodescargadores, para usos agrícolas.
+- Abonos y las demás preparaciones a base de productos inorgánicos, incluidas las mezclas de microelementos utilizados como abono.
+- Abrebocas.
+- Abrevaderos.
+- abridores de huecos.
+- Aceite agrícola para el control de plagas y enfermedades.
+- Aditivos para nutrición animal.
+- Agujas hipodérmicas de uso pecuario.
+- Agujas de sutura de uso veterinario.
+- Aisladores para cerca eléctrica de uso pecuario.
+- Alambre (cable) de acero redondo de 4 alambres trenzados de 5 mm de diámetro con identación.
+- Alambre de acero según especificación AISI 1045 de 11,10 mm.
+- Alambre de púas.
+- Alicates diablo.
+- Alimentos preparados para animales criados por el hombre, para la alimentación, incluso las harinas de semillas oleaginosas de hueso o pescado.
+- Almácigos de árboles frutales y de reforestación.
+- Almohadillas para conchar.
+- Ampollas en pasta para detección de celo.
+- Anemómetro.
+- Aplicador de aretes.
+- Árboles frutales y de reforestación.
+- Arciales de inmovilización.
+- Aretes de identificación.
+- Argollas de nariz.
+- Armellas.
+- Artes de pesca para la producción acuícola no deportiva.
+- Avionetas destinadas exclusivamente a la fumigación, atomización y espolvoreo.
+- Bandejas plásticas para el enraizamiento y almacenamiento de esquejes.
+- Barra cardánica exclusiva para implementos agrícolas.
+- Barra porta herramientas para ser acoplada al sistema de enganche de los tractores agrícolas.
+- Barómetros.
+- Barrenadores para acoplar al tractor agrícola.
+- Biberones para terneros.
+- Biológicos para uso agropecuario.
+- Block de sal mineral.
+- Bombas de agua de 0,75 kW (1hp) o m s para uso de proyectos agropecuarios.
+- Bolsas plásticas para la protección y empaque de banano.
+- Cable tractores para el transporte de fruta.
+- Calibradores para control y medición de frutas.
+- Canastos para congelación para huevo fértil.
+- Cánulas para tetas.
+- Carbonato de calcio.
+- Carpas (estirilite) a prueba de calor para las camas de cultivos.
+- Carretillas de mano.
+- Carrete para extender y recoger mangueras de riego.
+- Cascos y caretas para la aplicación de agroquímicos.
+- Cauterizador eléctrico para cuernos.
+- Cartones de huevo. (Artículos alveolares, para envase y transporte de huevos).
+- Ceras antitranspirantes para frutas y vegetales.
+- Clavos para herrar.
+- Clavos de ferrocarril.
+- Coadyuvantes.
+- Conductímetro.
+- Conmutadores para riego.
+- Controles de riego (eléctricos o mecánicos).
+- Cortacolas eléctrico.
+- Cortadora de cascos.
+- Cortadora de pajillas.
+- Cortineros para granjas avícolas.
+- Criadoras para granjas porcinas.
+- Cuchillas para implementos agrícolas, hortícolas o forestales.
+- Cuchillas para injertar.
+- Cuchillos de toda clase para uso agropecuario.
+- Chicharras.
+- Chupones para terneros.
+- Chuzos eléctricos.
+- Descolmilladores.
+- Desmochadoras.
+- Detectores electrónicos de mastitis.
+- Detectores para diagnóstico veterinario de embarazo o de celo.
+- Detergentes para equipo de lechería.
+- Determinadores de humedad.
+- Dilatadores de tetas.
+- Dispositivos para ahuyentar o atrapar plagas de vertebrados.
+- Dosificadores orales.
+- Envases cilíndricos anticorrosivos con cierre hermético para transporte de leche.
+- Equipo de frío para mantenimiento de huevos fértiles.
+- Equipo para cercas eléctricas y solares.
+- Equipo utilizado exclusivamente para inseminación artificial.
+- Equipo meteorológico.
+- Equipo para instalar saran.
+- Equipo para recolección de semen e inseminación.
+- Equipo para nivelación de suelos de uso agrícola (incluyendo rayos láser).
+- Equipo para injertar.
+- Equipo quirúrgico para transferencia de embriones.
+- Equipo para venóclisis.
+- Equipo para extender tela plástica.
+- Equipo de protección para la aplicación de agroquímicos y sus repuestos.
+- Equipo de enfriamiento de leche, sus accesorios y repuestos.
+- Equipos de diagnóstico microbiológico.
+- Equipos para diagnóstico químico.
+- Fieltro no manufacturado (filtros) para tubería de riego y avenamiento.
+- Fitohormonas.
+- Fitorreguladores de crecimiento.
+- Fórceps.
+- Fusibles para cercas eléctricas.
+- Galvanómetros.
+- Gorros plásticos para flores.
+- Grapas para cerca.
+- Grava para filtros.
+- Guantes desechables para obstetricia veterinaria.
+- Guillotina para tallos.
+- Herbicidas, inhibidores de germinación y reguladores del crecimiento de las plantas.
+- Herraduras.
+- Herramientas para herrar.
+- Hilos para "sarán", (tiras crudas o teñidas para tejidos de uso agrícola).
+- Hojas de bisturí¡.
+- Hojas de tijeras podadoras.
+- Hormonas vegetales.
+- Huevos fértiles.
+- Implantadores.
+- Impulsadores de aire para granjas, y sus repuestos y accesorios.
+- Infiltrómetros.
+- Inhibidores de hongos (para aflotoxinas de maíz).
+- Inmovilizadores para cerdos.
+- Instrumentos para manejo de animales.
+- Jaulas para la actividad avícola.
+- Jaulas de parición para cerdos.
+- Jeringas de uso veterinario.
+- Láminas plásticas para invernadero elaboradas contra rayos ultravioleta.
+- Lápices para marcar aretes.
+- Limas de filo.
+- Limas para cascos y dientes.
+- Llantas y neumáticos para tractores agrícolas.
+- Llantas agrícolas de flotación tipo (L) para uso en eje delantero del tractor y transporte de productos agrícolas.
+- Mangas inmovilizadoras.
+- Mangos de bisturí¡.
+- Mangueras perforadas para la conducción de vapor.
+- Máquinas para esquilar ganado.
+- Máquinas eólicas (molinos de viento).
+- Marcadores en pasta para detección de celo.
+- Medidores de humedad del suelo.
+- Miel de purga o melaza.
+- Motoazadas.
+- Motosierras.
+- Niveladoras de arrastre para acoplar al sistema de 3 puntos de los tractores agrícolas.
+- Palas frontal y trasera.
+- Paleta para prueba de mastitis.
+- Pasta para descornar.
+- Película plástica (protectores) blanca o negra tratada contra rayos ultravioleta.
+- Penetrógrafos.
+- Penetrómetros.
+- Pigmentantes.
+- Pinzas para cascos.
+- Pipetas para inseminación.
+- Piso de acero para porcicultura (desnudo y recubierto).
+- Pistolas de inseminación.
+- Plaguicidas.
+- Pluviómetro.
+- Polen para la actividad agropecuaria.
+- Potenciómetros.
+- Preservantes para flores, frutas y ornamentales.
+- Productos desincrustantes de piedra de leche.
+- Protectores contra ruido para proyectos agrícolas.
+- Quemadores de azufre.
+- Rastrillos, acordonadores y empacadores o enfardadores.
+- Repuestos para mascarillas de protección y para jeringas.
+- Retroexcavadores de hasta 51 kW.
+- Rieles para cable vías.
+- Rodines y rolas para cable vía.
+- Ruedas fangueadoras.
+- Sacabocados.
+- Secadoras para granos (no eléctricas).
+- Semillas de toda clase y todo tipo de material de reproducción.
+- Serruchos curvos para podar.
+- Silos de hasta 10 TM para la actividad agropecuaria.
+- Sistemas de levante hidráulico de tractores agrícolas.
+- Sondas uterinas.
+- Sondas esofágicas.
+- Tatuadoras.
+- Tejidos de densidad inferior o igual a 10 tiras por cm en ambos lados, de malla abierta para uso agrícola ("sarán").
+- Tensiómetros.
+- Tensores y estacas para uso agropecuario.
+- Tensores para cable.
+- Termómetros.
+- Termos con nitrógeno líquido. (Envases criogénicos para semen).
+- Tornamesa o unión para carretas agrícolas.
+- Tractores agrícolas que reúnan las siguientes características:
+a) ancho de trocha ajustable.
+b) Sistema de levante hidráulico trasero o delantero, con enganche de 3 o 2 puntos para el montaje de instrumentos agrícolas y sistema hidráulico para el control remoto.
+c) Toma de fuerza trasera, lateral o delantera para poner en acción distintos implementos.
+d) Barra de tiro para el arrastre de implementos y carretas agrícolas y/o sistema de enganche (fijo o de levante automático) para jalar implementos.
+- Tractores de oruga de aplicación especial, únicamente para proyectos agrícolas.
+- Tubería corrugada para avenamiento.
+- Zanjeadoras rotativas hasta 51 kW.
+- Zetas de metal para transporte de banano."
