@@ -1,0 +1,1 @@
+Artículo 5º—El financiamiento de la factura petrolera otorgado de conformidad con el Acuerdo de Cooperación Energética de Caracas y su Addendum, no se considerará a efecto de lo ordenado en el artículo 9 de la Ley Nº 7970, de 22 de diciembre de 1999.

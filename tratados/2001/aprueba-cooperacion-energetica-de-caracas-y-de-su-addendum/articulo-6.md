@@ -1,0 +1,3 @@
+Artículo 6º—El Gobierno de la República entiende que, para la correcta aplicación del Acuerdo aprobado mediante esta Ley, el párrafo noveno debe interpretarse en el sentido de que este se mantendrá en vigencia en el tanto la República Bolivariana de Venezuela no lo modifique ni denuncie. Pasado el año de vigencia señalado en ese párrafo, el Acuerdo de Cooperación Energética de Caracas se entenderá automáticamente prorrogado, sin que se requiera una nueva aprobación legislativa.
+Rige a partir de su publicación.
+Presidencia de la República.- San José, al tercer día del mes de agosto del dos mil uno.
