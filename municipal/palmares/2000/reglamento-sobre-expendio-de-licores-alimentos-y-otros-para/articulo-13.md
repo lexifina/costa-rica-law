@@ -1,0 +1,3 @@
+Artículo 13.-Una vez que el establecimiento comercial cierre su actividad diaria, de conformidad con el horario que se establezca para el mismo, según la categoría asignada por la Ley N° 7633, no se permitirá en ningún caso la permanencia de clientes dentro del local.
+Por tal motivo los propietarios o administradores deberán avisar a sus clientes cuando se acerque la hora de cierre con suficiente antelación para que se preparen a abandonar el local a la hora correspondiente. ,
+La infracción de esta disposición será considerada falta grave y puede ser sancionada administrativamente con el cierre temporal o permanente del negocio correspondiente, para lo cual deberá seguirse el procedimiento administrativo correspondiente.

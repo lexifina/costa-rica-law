@@ -1,0 +1,1 @@
+Artículo 6°-No se permitirá la explotación de una patente de licores en establecimientos comerciales que pretendan realizar otras actividades lucrativas que sean excluyentes entre sí, de forma conjunta, como el caso de "pulpería y cantina", "heladería y bar", "bar y soda", y similares. Este tipo de establecimientos debe ser instalado en forma totalmente independiente.

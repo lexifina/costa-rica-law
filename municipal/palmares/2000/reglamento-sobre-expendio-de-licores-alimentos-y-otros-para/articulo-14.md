@@ -1,0 +1,7 @@
+Artículo 14.-Los establecimientos dedicados principalmente al expendio de licores, tales como: bares y cantinas, estarán prohibida la entrada a menores de edad.
+Los establecimientos que vendieren otros productos, como las licoreras, sólo permitirán la entrada a los menores con el fin de que compren otros productos diferentes de los licores. Realizada la compra, el menor deberá hacer abandono inmediato del local.
+Podrán permanecer los menores en establecimientos como restaurantes "salones familiares", supermercados y similares en donde el expendio de licores constituye actividad secundaria y no principal, pero en ningún caso deben ingerir ni comprar bebidas alcohólicas.
+En lugares como los citados, en determinadas circunstancias cuando la actividad principal del lugar se observa que se dedica más al expendio de bebidas alcohólicas, deben las autoridades administrativas impedir a los menores de edad, aunque estuvieren en compañía de sus padres o tutores.
+Los menores de dieciocho años no deben ser dependientes, mozos, porteros, guardas o de otra manera empleados de un establecimiento dedicado al expendio de licores.
+Los menores de edad, pueden laborar en establecimientos donde el expendio de licores sea actividad secundaria y no principal como restaurantes, salones familiares y similares. Pero en ningún caso debe tener entre sus funciones la de servir bebidas alcohólicas.
+La violación de las disposiciones del presente artículo será sancionada, como falta grave, con el cierre del establecimiento respectivo.

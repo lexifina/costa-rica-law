@@ -1,0 +1,1 @@
+Artículo 19.-Es absolutamente prohibido vender licor a personas que se halle en estado avanzado de embriaguez. La infracción de esta disposición será considerada falta grave y puede ser sancionada administrativamente con el cierre temporal o permanente del negocio correspondiente, para lo cual deberá seguirse el procedimiento administrativo correspondiente.

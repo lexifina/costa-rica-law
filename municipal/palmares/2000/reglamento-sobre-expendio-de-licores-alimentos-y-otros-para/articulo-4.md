@@ -1,0 +1,2 @@
+Artículo 4°-El horario de funcionamiento de los restaurantes, supermercados, discotecas, cantinas con expendio de bebidas alcohólicas será el correspondiente a la categoría establecida por la Ley N° 7633.
+Cumplida la hora de cierre, no se permitirá en ningún caso la permanecía de clientes dentro del local. La infracción a esta determinación será sancionada de conformidad con lo establecido en la Sección 11 de este Reglamento. Los restaurantes y supermercados sin expendio de licor no tendrán limitaciones de horario.

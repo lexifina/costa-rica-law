@@ -1,0 +1,3 @@
+Artículo 8°-Ningún establecimiento dedicado a la venta de licores, puede vender tales productos a los menores de edad. Los establecimientos cuya actividad principal lo constituya la venta de licores, tales como: cantinas, tabernas, bares, discoteques y licoreras de conformidad con la categoría que haya asignado la Municipalidad al otorgar la licencia comercial respectiva.
+En establecimientos en donde la venta de licor constituye actividad secundaría y no principal, tales como: restaurantes, supermercados se permitirá la permanecía de los menores pero en ningún caso deben consumir ni comprar bebidas alcohólicas.
+La violación a esta disposición, será sancionada como falta muy grave.

@@ -1,0 +1,3 @@
+Artículo 2°-Todo tipo de establecimiento comercial, ya sea de los definidos en el artículo anterior u otros no definidos en este reglamento, deben obedecer ]a ley de salud y cumplir con todos sus requisitos, como único medio para obtener la patente municipal, la licencia y su renovación.
+a) Los establecimientos que no llenen el requisito de este artículo serán cIausurados a partir de la vigencia del presente reglamento. Los que funcionan sin este requisito deben ajustarse a él para continuar funcionando. No se considera derecho adquirido lo que lesiona, o pueda lesionar, la salud o la seguridad de terceros.
+b) Para obtener licencia municipal los nuevos establecimientos deben cumplir los requisitos de seguridad, salud pública, moral y buenas costumbres.
