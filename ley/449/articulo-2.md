@@ -2,10 +2,10 @@ Artículo 2º.- Las finalidades del Instituto, hacia la consecución de
 las cuales se dirigirán todos sus esfuerzos y programas de trabajo, serán
 las siguientes:
 a) Dar solución pronta y eficaz a la escasez de fuerza eléctrica en
-la Nación, cuando ella exista, y procurar que haya en todo momento energía
-disponible para satisfacer la demanda normal y para impulsar el desarrollo
-de nuevas industrias, el uso de la electricidad en las regiones rurales y
-su mayor consumo doméstico.
+la Nación, cuando ella exista, y procurar que haya en todo momento
+energía disponible para satisfacer la demanda normal y para impulsar el
+desarrollo de nuevas industrias, el uso de la electricidad en las
+regiones rurales y su mayor consumo doméstico.
 Las principales gestiones del Instituto se encaminarán a llenar este
 objetivo, usando para ello todos los medios técnicos, legales y
 financieros necesarios, y su programa básico de trabajo será el de
@@ -28,15 +28,21 @@ calefacción en sustitución de los combustibles obtenidos de los bosques
 nacionales y de combustibles importados, e impulsará el uso de la madera
 como materia prima industrial.
 e) Conservar y defender los recursos hidráulicos del país,
-protegiendo las cuencas, las fuentes y los cauces de los ríos y corrientes
-de agua, tarea en que deberán ayudar al Servicio Nacional de Electricidad
-y los Ministerios de Agricultura y Obras Públicas, por medio de un
-programa de cooperación mutua.
+protegiendo las cuencas, las fuentes y los cauces de los ríos y
+corrientes de agua, tarea en que deberán ayudar al Servicio Nacional de
+Electricidad y los Ministerios de Agricultura y Obras Públicas, por medio
+de un programa de cooperación mutua.
 f) Ayudar a la habilitación de tierras para la agricultura por medio
 del riego y la regulación de los ríos, cuando esto sea económicamente
 factible al desarrollar en forma integral los sitios que se usen para
 producir energía eléctrica.
-g) Hacer de sus procedimientos técnicos, administrativo y
+g) Hacer de sus procedimientos técnicos, administrativos y
 financieros, modelos de eficiencia que no sólo garanticen el buen
 funcionamiento del Instituto, sino que puedan servir de norma a otras
 actividades de los costarricenses.
+h) Procurar el establecimiento, mejoramiento, extensión y operación
+de los servicios de comunicaciones telefónicas, telegráficas,
+radiotelegráficas y radiotelefónicas, para lo cual tendrá de pleno
+derecho la concesión correspondiente por tiempo indefinido.
+( Adicionado por el artículo 1º de la Ley Nº 3226 de 28 de octubre
+de 1963).
