@@ -13,3 +13,4 @@ Deroga Tarifas de Honorarios Profesionales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-02-09 | la propia norma |
+| 2 | 1999-10-06 | Ley 7 |
