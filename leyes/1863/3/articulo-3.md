@@ -1,0 +1,3 @@
+Artículo 3°. -Art.29.-Tanto la copia de que se ha hecho mérito en el artículo precedente, como la que se refiere en el artículo 24, servir n para formar una lista general de todos los sufragantes del Cantón.
+Formadas así dichas listas, los Presidentes de las Juntas de cabecera de Canton, elevar n un ejemplar de ellas a la Junta de cabecera de Provincia, para que ‚este forme una que los comprenda a todos y sirva de centro común al que pueda ocurrirse en aquellos asuntos que así lo demanden.
+único. - Es un derecho privativo de las Municipalidades designar cual deba ser la Junta cabecera de Cantón, y cual la de cabecera de Provincia.
