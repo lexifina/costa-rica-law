@@ -20,3 +20,4 @@ Reglamento Autónomo de servicio del Instituto Nacional de Aprendizaje
 | 5 | 1987-04-06 | Reglamento 2394 (1987-04-06) |
 | 6 | 1987-05-04 | Reglamento 2404 (1987-05-04) |
 | 7 | 1987-05-06 | Reglamento 2403 (1987-05-06) |
+| 8 | 1989-09-26 | Reglamento 2648 (1989-09-26) |
