@@ -1,0 +1,5 @@
+Nº 2174
+LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
+DECRETA:
+Artículo 1º.- Refórmase el artículo 11 de la Ley Orgánica del Colegio de Abogados de 28 de octubre de 1941, el cual se leerá así:
+"Artículo 11.- Para que se verifique una Asamblea es preciso una convocatoria que se publicará en "La Gaceta", durante dos días consecutivos, debiendo mediar cinco días hábiles por lo menos entre la primera publicación y el día señalado, y expresar en el aviso el objeto de la convocatoria con relación del proyecto respectivo. Constituirán quórum veinticinco miembros del Colegio; no obstante, si no estuviere presente ese número de miembros media hora después de la señalada para comenzar la sesión, ésta podrá celebrarse válidamente si concurren no menos de quince abogados. Toda Asamblea debe verificarse en el edificio o en el Salón de Actos del Colegio. La Asamblea ordinaria se reunirá en la primera semana de diciembre de cada año, y la nueva Directiva se instalará el seis de enero siguiente.
