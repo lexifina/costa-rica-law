@@ -1,0 +1,1 @@
+Art. 4. Podrán insertarse comunicados ó avisos de interés particular, pagando su valor conforme el reglamento de la imprenta, los que pretendan su inserción; mas los que se suscriban podrán hacerlo sin esta obligación.

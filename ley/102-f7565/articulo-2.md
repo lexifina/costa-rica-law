@@ -1,0 +1,1 @@
+Art.2. Este periódico será sostenido por cuatro editores que el Gobierno nombre, sin exclusión de los mas que quieran escribir en obsequio del bien general, sujetándose todos á las restricciones de las leyes que garantizan la LIBERTAD DE IMPRENTA.
