@@ -1,3 +1,4 @@
+(NOTA: DEROGADO. Este Decreto fue DEROGADO PARCIALMENTE por el Artículo 1° del Decreto Ejecutivo N° 31492 del 19 de noviembre de 2003, publicado en La Gaceta N° 230 del 28 de noviembre de 2003, con excepción del artículo 2°, artículo que fue derogado por el Decreto Ejecutivo N° 31826 de 15 de marzo de 2004, en consecuencia queda DEROGADO EN SU TOTALIDAD este Decreto)
 DECRETOS
 Nº 30944-J
 EL PRESIDENTE DE LA REPUBLICA
@@ -27,4 +28,4 @@ Decretan:
 El siguiente,
 RÉGIMEN SALARIAL DE LOS PUESTOS DEL TRIBUNAL
 REGISTRAL ADMINISTRATIVO
-Artículo 1º—La retribución de los miembros del Tribunal Registral Administrativo, será equivalente a la de los Jueces Superiores del Poder Judicial. Igualmente, ese salario, se ajustará cada vez que se acuerden los aumentos y cambios en los pluses salariales que se aprueben en el Poder Judicial para los Jueces 4, previa autorización por parte de la Autoridad Presupuestaria.
+Artículo 1º—(Así DEROGADO por el artículo 1° del Decreto Ejecutivo N° 31492 del 19 de noviembre de 2003, publicado en La Gaceta N° 230 del 28 de noviembre de 2003.)

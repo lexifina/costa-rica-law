@@ -1,1 +1,1 @@
-Artículo 3º—Se reconoce para todo el personal del Tribunal Registral Administrativo, adicional al salario indicado en los artículos 1 y 2 anteriores, el pago de los mismos componentes salariales autorizados para quienes dentro de dicho poder ocupan igualmente puestos clasificados en las clases homólogas, con excepción del denominado sobresueldo por Laudo.
+Artículo 3º—(Así DEROGADO por el artículo 1° del Decreto Ejecutivo N° 31492 del 19 de noviembre de 2003, publicado en La Gaceta N° 230 del 28 de noviembre de 2003.)

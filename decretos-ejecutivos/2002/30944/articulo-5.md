@@ -1,1 +1,1 @@
-Artículo 5º—Las modificaciones salariales de los puestos citados en el artículo 2, se ajustarán cada vez que se efectúen aumentos y cambios en los pluses salariales que se aprueben en el Poder Judicial, previa autorización de la Dirección General de Servicio Civil.
+Artículo 5º—(Así DEROGADO por el artículo 1° del Decreto Ejecutivo N° 31492 del 19 de noviembre de 2003, publicado en La Gaceta N° 230 del 28 de noviembre de 2003.)

@@ -1,2 +1,1 @@
-Artículo 6º—Rige a partir del 1º de enero del 2003.
-Dado en la Presidencia de la República.—San José, a los veinte días del mes de diciembre del dos mil dos.
+Artículo 6º—(Así DEROGADO por el artículo 1° del Decreto Ejecutivo N° 31492 del 19 de noviembre de 2003, publicado en La Gaceta N° 230 del 28 de noviembre de 2003.)
