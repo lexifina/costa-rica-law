@@ -14,3 +14,4 @@ Reglamento a la Ley sobre la Venta de Licores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1987-10-08 | la propia norma |
+| 2 | 1987-10-08 | SINALEVI (sin norma nombrada) |
