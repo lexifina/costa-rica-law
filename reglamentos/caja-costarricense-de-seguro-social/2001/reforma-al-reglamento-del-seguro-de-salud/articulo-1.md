@@ -1,0 +1,8 @@
+REGLAMENTO DEL SEGURO DE SALUD
+"Artículo 52.—De conformidad con lo estipulado en el inciso d) del artículo 27° de este Reglamento, la Caja concederá una ayuda para gastos de funeral a los parientes o personas que demuestren haber efectuado tales gastos, cuando se trate del fallecimiento del asegurado directo, o de su cónyuge, compañero o compañera.
+El derecho al monto de la ayuda se otorgará por el fallecimiento del pensionado directo con la condición de tal y del asegurado directo cuando haya cotizado en los últimos 3 (tres) meses dentro de los 6 (seis) meses anteriores al fallecimiento. Si se tratare de asegurados por el Estado, se requiere tal condición al momento del deceso y que la haya adquirido como mínimo tres meses antes del deceso.
+En el caso de la muerte del (a) cónyuge o compañera (o), viudo o viuda, la ayuda será el equivalente a 2/3 del monto fijado para el fallecimiento del asegurado directo.
+No procede el pago simultáneo del beneficio, con la muerte de un asegurado en su doble condición de asegurado directo y de cónyuge o compañero o compañera. Cuando se dé esta doble posibilidad, se otorgará el monto mayor que corresponda.
+El monto de la ayuda mutual será fijado anualmente por la Junta Directiva, de acuerdo con las recomendaciones de la Dirección Actuarial y de Planificación Económica".
+Acuerdos firmes".
+San José, 25 de octubre del 2001.—Emma C. Zúñiga Valverde, Secretaria Junta Directiva.
