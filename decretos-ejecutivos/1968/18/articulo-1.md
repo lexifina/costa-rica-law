@@ -3,6 +3,7 @@ N° 18
 (Este decreto fue dejado sin efecto por el artículo 1° del decreto ejecutivo N° 76 del 16 de diciembre de 1969, con respecto a la compra de un vehículo rústico).
 (Este decreto fue dejado sin efecto por el artículo único del decreto ejecutivo N° 3106 del 03 de agosto de 1973, con respecto a la adquisición de repuestos para la planta trituradora de piedra).
 (Este decreto fue dejado sin efecto por el artículo 1° del decreto ejecutivo N° 3422 del 06 de diciembre de 1973, con respecto a la Reconstrucción Calles de Liberia).
+(Este decreto fue dejado sin efecto por el artículo 1° del decreto ejecutivo N° 6231 del 09 de agosto de 1976, única y exclusivamente para la Licitación Pública que hará el Banco de Costa Rica, para el arrendamiento de los locales comerciales del primer piso y del primer sótano, de su nuevo edificio central)
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE HACIENDA
 De conformidad con el inciso 3) del articulo 140 de la Constitución Política; según el tenor de las disposiciones correspondientes de la Ley de la Administración Financiera de la República y de acuerdo con la doctrina que rige la materia, a solicitud de la Contraloría General de la República,
