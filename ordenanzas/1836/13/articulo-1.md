@@ -1,6 +1,0 @@
-ORDEN XIII.
-(Nota de Sinalevi: Se respeta la ortografía y gramática del texto original)
-Suspende los efectos de la ley de 29 de Agosto de 1835que sistemo la venta de aguardientes por patentes, mientras no se llenen ciertas condiciones. (1)
-(1) Derogada por el Reglamento de 7 de Diciembre de 1837.
-"El Jefe Supremo del Estado libre de Costa Rica.-Por cuanto la Asamblea ha decretado y el Consejo sancionado la resolucion siguiente.
-Tomando en consideración por el Cuerpo Legislativo el Decreto del Ejecutivo de 21 del próximo pasado Diciembre sobre la renta de aguardientes, y atendidas las razones fuertes que motivaron su emision, en Sesion de esta fecha se ha servido resolver : “que la ley de 29 de Agosto de 835 que sistemó la enunciada renta por patentes, no tenga efecto mientras el número de estas que se espenderá todos los años en los meses de Setiembre y Octubre, no llegue á ciento veinte, en cuyo caso se procederá á rematarla por partidos en la manera y forma que lo determina el citado Decreto del Gobierno.” Y de órden del mismo alto cuerpo lo decimos á U. para conocimiento del Gobierno y efectos consiguientes. Heredia Marzo 11 de 1836. Sala del Consejo. Heredia Marzo veintidos de mil ochocientos treinta y seis.- Pase al Poder Ejecutivo.- Por tanto EJECUTESE. San José, Marzo veintitrés de mil ochocientos treinta y seis.
