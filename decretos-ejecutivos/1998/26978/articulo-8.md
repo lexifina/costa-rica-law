@@ -1,0 +1,1 @@
+Artículo 8°—El Centro Rural de Información -CRI- es la unidad básica de operación del INFOAGRO y se define como una organización cuya función principal es la de favorecer y facilitar la distribución de información al mayor número posible de agentes participantes en alguna cadena agroproductiva.
