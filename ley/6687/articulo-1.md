@@ -1,3 +1,4 @@
+(La presente Ley fue parcialmente derogada por artículo 23 de la Ley 7246 del 24 de julio de 1991 en todo lo referente al "impuesto de patentes" lo demás queda vigente)
 N° 6687
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 decreta:
@@ -115,5 +116,6 @@ en los demás distritos | 50,00 ^
 Permisos de serenata, cada vez, | 40,00 f,
 Propiedades con cordón y caño sin acera por cada metro lineal | 1,00
 Comuníquese al Poder Ejecutivo
-Asamblea Legislativa —San José, a los veinticuatro días del mes de setiembre de mil novecientos ochenta y uno
+Asamblea Legislativa —San José, a los veinticuatro días del mes de setiembre de mil novecientos ochenta y uno.
+Presidencia de la República. -San José, a los veintiocho días del mes de setiembre de mil novicientos ochenta y uno.
 Ejecútese y publíquese
