@@ -15,3 +15,4 @@ Reforma Reglamento Comisión Calificadora del Servicio Exterior.
 | --- | --- | --- |
 | 1 | 1994-07-07 | la propia norma |
 | 2 | 1996-08-23 | Decreto Ejecutivo 25450 (1996-08-23) |
+| 3 | 1998-09-14 | Decreto Ejecutivo 27365 (1998-09-14) |

@@ -1,7 +1,9 @@
+(Derogado)
 N° 23419-RE
 EL PRIMER VICEPRESIDENTE EN EJERCICIO
 DE LA PRESIDENCIA DE LA REPÚBLICA
 Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+DEROGADO EXPRESAMENTE por el artículo 1 del Decreto Ejecutivo N° 27365 del 14 de setiembre de 1998, publicado en La Gaceta N° 204 del 21 de octubre de 1998.
 Con base en el artículo 140 incisos 3, 18 y 20 de la Constitución Política de la República; la Ley No 3530 del 5 de agosto de 1965, Estatuto del Servicio Exterior de la República.
 Decretan:
 Artículo 1o—Modificar el inciso 1 del artículo 1 del Reglamento de la Comisión Calificadora del Servicio Exterior, No 17333 del 17 de noviembre de 1986 y el decreto No 19902-RE del 17 de agosto de 1990, para que en lo sucesivo diga:
