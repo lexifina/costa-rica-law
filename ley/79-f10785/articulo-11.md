@@ -1,0 +1,2 @@
+ARTÍCULO 11.
+Mientras no se haya hecho por el concesionario la elección de lotes, se declaran indenunciables los terrenos que se encuentren á diez millas (16 k. 93,14) á uno y otro lado de la línea férrea; y en tanto no esté determinado su trazado definitivo, se presume que éste irá por la línea recta que parte del río Jiménez en el ferrocarril al Atlántico y llega hasta el río Frío, doce millas antes de su desembocadura en el lago de Nicaragua.
