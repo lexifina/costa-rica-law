@@ -14,3 +14,4 @@ Constituye Comisión para el control de emisión de gases y partículas producid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-07-18 | la propia norma |
+| 2 | 1996-09-09 | Decreto Ejecutivo 25580 (1996-09-09) |
