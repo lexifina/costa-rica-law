@@ -1,0 +1,3 @@
+CAPITULO TERCERO
+De la Coordinación del Subsector
+Artículo 6°-La coordinación del Subsector corresponderá al Director Ejecutivo del Centro para la Promoción de las Exportaciones y de las Inversiones, quien asumirá sus funciones dentro de las directrices que fijen el Presidente de la República y el Ministro del Sector Economía, Industria y Comercio, y las leyes. Contará para desarrollar su gestión con el concurso técnico que obligatoriamente le brindarán la Secretaría Ejecutiva de Planificación del Subsector de Promoción de Exportaciones e Inversiones, la Oficina de Planificación Nacional y Política Económica, así como la Secretaría Ejecutiva de Planificación del Sector Economía, Industria y Comercio.
