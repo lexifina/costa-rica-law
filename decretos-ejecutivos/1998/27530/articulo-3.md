@@ -1,0 +1,1 @@
+Artículo 3°—El Ministerio de Agricultura y Ganadería, por intermedio del Servicio Fitosanitario del Estado implementará mecanismos para garantizar la divulgación adecuada en tomo a la existencia de agroquímicos genéricos cuando de dicha información se deriven ventajas para los productores.
