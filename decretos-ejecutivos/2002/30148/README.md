@@ -19,3 +19,4 @@ Convoca a la Asamblea Legislativa a Sesiones Extraordinarias, que se inician el 
 | 4 | 2002-03-05 | Decreto Ejecutivo 30205 (2002-03-05) |
 | 5 | 2002-03-18 | Decreto Ejecutivo 30234 (2002-03-18) |
 | 6 | 2002-03-25 | Decreto Ejecutivo 30244 (2002-03-25) |
+| 7 | 2002-04-04 | Decreto Ejecutivo 30260 (2002-04-04) |
