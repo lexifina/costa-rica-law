@@ -1,0 +1,1 @@
+Articulo 9°—Quien ingrese en forma interina o en propiedad al escalafón policial a partir de la vigencia de la reforma a este Reglamento, estará imposibilitado para ejercer la profesión en forma particular, o desempeñar cualquier actividad remunerada en la empresa privada, la Administración Pública, instituciones autónomas o semiautónomas.

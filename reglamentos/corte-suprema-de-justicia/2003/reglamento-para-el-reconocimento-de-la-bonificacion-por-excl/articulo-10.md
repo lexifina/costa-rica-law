@@ -1,0 +1,1 @@
+Articulo 10.—Formulario. Se establece como modelo de uso obligatorio de contrato por exclusividad policial el que se incluye en los anexos, cuyo formato podrá ser modificado según las necesidades o conveniencia del Poder Judicial.

@@ -1,0 +1,1 @@
+2°—Los servidores en propiedad que tuvieren derecho al BEP, conforme a las disposiciones del presente reglamento, tendrán un plazo perentorio de un mes para hacer llegar al Departamento de Personal el original del formulario indicado en el articulo octavo del capitulo cuarto, caso contrario no tendrán derecho al beneficio".
