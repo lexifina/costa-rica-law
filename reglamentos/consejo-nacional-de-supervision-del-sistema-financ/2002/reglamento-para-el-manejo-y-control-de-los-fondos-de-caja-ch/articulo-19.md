@@ -1,0 +1,6 @@
+Artículo 19.—Para efectos de solicitud de reembolsos, el encargado de la caja chica realiza los siguientes pasos:
+A. Prepara liquidación de caja chica, asigna consecutivo y adjunta listado de las facturas por liquidar con un detalle que incluye: nombre del proveedor, detalle, número de factura, fecha y monto.
+B. Traslada el listado de facturas, así como la carta de remisión al superior inmediato para la revisión y aprobación respectivas.
+C. Remite la liquidación al Área de Presupuesto y Planificación Operativa del Banco Central de Costa Rica, con el fin de que se realicen los trámites respectivos para proceder al reintegro del monto que corresponda.
+D. Una vez que el Área de Presupuesto y Planificación Operativa tramita la liquidación, debe confeccionar oficio para el Área Administración de Numerario del Departamento de Emisión y Custodia General del Banco Central de Costa Rica, mediante el cual se autoriza a algún mensajero de la SUGEF para el retiro del dinero.
+El encargado de la CCHG debe mantener un registro permanente (con fechas), que detalle pormenorizadamente el estado de cada solicitud de reintegro del fondo que tramita ante el Banco Central, el cual debe consignar espacios para que ambos, el mensajero y el encargado de la CCHG, consignen su firma cada vez que el primero le entrega el dinero de cada reintegro al segundo.
