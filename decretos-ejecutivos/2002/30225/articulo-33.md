@@ -1,0 +1,2 @@
+Artículo 33.—Antes de ser utilizada una propaganda el Comité de Propaganda del Partido Político Estudiantil debe presentar ante el Tribunal Electoral Estudiantil una copia del texto, del artículo propuesto y / o la descripción de la actividad, para que sea de su conocimiento.
+Toda propaganda que no haya cumplido con lo anterior será retirada o suspendida y el Partido Político será sancionado, según lo estipulado en el capítulo XIII de este Código.

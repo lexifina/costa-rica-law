@@ -1,0 +1,4 @@
+Procedimiento para emitir el voto:
+Artículo 59.—Para emitir el voto el y la estudiante debe hacer fila en orden de llegada. El o la presidenta de la Junta Receptora le preguntará su nombre y le solicitará la presentación del carné o documento de identificación para cotejar su nombre con el Padrón Electoral.
+Si está correcto, se le entregará la papeleta debidamente firmada por los miembros de la Junta Receptora de Votos presentes y se le indicará el lugar preparado para que emita su voto secreto y directo.
+Una vez emitido un Voto, el Presidente (a) de la Junta escribirá en el Padrón, en el margen izquierdo correspondiente al renglón donde aparece inserto el elector, la expresión: sí votó y al lado derecho del nombre el elector debe consignar su firma. En fórmulas confeccionadas al efecto, debe aparecer el Acta de Apertura y el Acta de Cierre de la votación e indicarse en ellas las principales incidencias del proceso de votación.

@@ -1,0 +1,4 @@
+Caso de anulación, empate u otros:
+Artículo 77.—En caso de anulación de las elecciones: El Tribunal Electoral Estudiantil hará una segunda convocatoria a elecciones ocho días naturales después de hacerse pública la declaratoria oficial de anulación.
+En caso de empate de las elecciones, el Tribunal Electoral Estudiantil hará una segunda convocatoria a elecciones ocho días naturales después hacerse pública la declaratoria oficial. Esta se celebrará el primer viernes después de la convocatoria y en ella tendrán derecho a participar solo los Partidos Políticos Estudiantiles que resultaron empatados.
+En caso de inscribirse un solo partido político estudiantil para la elección del Comité Ejecutivo, debe hacerse la elección como consulta popular. Para lo cual el Tribunal Electoral Estudiantil debe tomar todas las previsiones del caso al tenor del artículo 45 del Reglamento de la Comunidad Estudiantil.

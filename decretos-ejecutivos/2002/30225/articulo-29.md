@@ -1,0 +1,3 @@
+Artículo 29.—Durante la Semana de Formación Cívica se deben llevar a cabo actividades proselitistas de los partidos políticos donde se vivencien los valores democráticos de libre agrupación y elección.
+La solicitud de permiso para una reunión o mitin público deberá presentarla el Partido Político Estudiantil el lunes anterior a la Semana de Formación Cívica ante el Tribunal.
+En la semana anterior a la Cívica el Tribunal Electoral Estudiantil publicará el calendario de reuniones o mítines públicos autorizados así como los lugares asignados para cada actividad proselitista de los partidos políticos.

@@ -1,0 +1,1 @@
+Artículo 44.—Los Partidos Políticos tienen derecho a fiscalizar el Proceso Electoral mediante Fiscales Generales y Fiscales de Mesa de Junta Receptora de Votos, debidamente acreditados ante cada uno de los Organismos Electorales.
