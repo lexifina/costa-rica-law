@@ -1,2 +1,2 @@
-Artículo 4°—El uso del muelle estará sujeto exclusivamente para el transporte de productos y subproductos de la caña de azúcar y siempre que se acate lo dispuesto por este Reglamento y se observen las tarifas que se establezcan con la aprobación del Ministerio de Obras Públicas y Transportes.
-(Así reformado por el artículo 1° de decreto ejecutivo N° 15567 del 3 de agosto de 1974)
+Artículo 4°—La terminal portuaria de Punta Morales se destinará exclusivamente para el transporte de productos y subproductos de la caña de azúcar, debiendo cumplirse, además, con las disposiciones previstas en este Reglamento, así como las tarifas que se establezcan con la aprobación por parte del Ministerio de Obras Públicas y Transportes.
+(Así reformado por el artículo 1° de decreto ejecutivo N° 25074 del 26 de marzo de 1996)
