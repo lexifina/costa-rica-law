@@ -136,13 +136,13 @@ c) En caso de paralización del trámite por más de 6 meses, por razones achaca
 d) En lo referente al cobro de timbres del Colegio de Abogados, al ser derogado el Decreto N° 20307-J, en el que se establecían los aranceles de los Profesionales en derecho, cobra vigencia al Artículo 5, inciso b, de la Ley N° 3245, por lo que el timbre de abogados a aplicarse es de la suma de dos colones (rt2.00), o en defecto el timbre de menor valor que exista a la fecha.
 ACTIVIDAD: GASTRONOMIA Y CENTROS DE DIVERSION NOCTURNA
 1.-Debe presentarse la respectiva solicitud de Declaratoria Turística, suscrita por el propio interesado (en caso de personas físicas), o por el representante de la empresa (en caso de personas jurídicas), la cual deberá estar debidamente autenticada. La solicitud deberá indicar expresamente la actividad a la que se dedicará la empresa, el lugar específico desde donde se operará, el nombre comercial a utilizar, el plazo a partir del cual se iniciarán operaciones (esto último solamente en caso de que se trate de un proyecto). Asimismo, se deberá hacer manifestación bajo la fe de juramento, sobre la fidelidad de los documentos que se aportan para el trámite.
-2.-Deben presentarse los certificados de carencia de antecedentes penales, de aquellas personas que de acuerdo con los estatutos, tengan la representación legal de la empresa (apoderados). En el caso de que las personas sean extranjeras, los certificados deberán ser expedidos en su lugar de procedencia y contar con las respectivas autenticaciones por parte del cónsul costarricense y del Ministerio de Relaciones Exteriores de Costa Rica. Si los documentos se emitieran en otro idioma, deberán contar con la traducción al español, la cual solamente podrá ser expedida por el cónsul, un traductor oficial costarricense o por un notario público costarricense, con conocimiento del idioma. En caso de ser expedida por notario, deberá contar con rt 187.50 en timbres fiscales y rt 2.00 de abogado.
+2.-Deben presentarse los certificados de carencia de antecedentes penales, de aquellas personas que de acuerdo con los estatutos, tengan la representación legal de la empresa (apoderados). En el caso de que las personas sean extranjeras, los certificados deberán ser expedidos en su lugar de procedencia y contar con las respectivas autenticaciones por parte del cónsul costarricense y del Ministerio de Relaciones Exteriores de Costa Rica. Si los documentos se emitieran en otro idioma, deberán contar con la traducción al español, la cual solamente podrá ser expedida por el cónsul, un traductor oficial costarricense o por un notario público costarricense, con conocimiento del idioma. En caso de ser expedida por notario, deberá contar con rt 187.50 en timbres fiscales y ¢2.00 de abogado.
 Si los apoderados fueran costarricenses, deberán apersonarse al Departamento de Fomento, a fin de retirar la fórmula respectiva para que el Registro Judicial, les extienda la certificación de antecedentes penales, para lo cual deberán presentar copia de la cédula de identidad.
 En el caso de que la persona sea extranjera, pero cuente con status de residente rentista o residente pensionado vigente, o bien con cédula de residencia vigente y así lo demuestre con una certificación notarial del documento que lo acredite, podrá presentar el certificado de antecedentes extendido por el Registro Judicial costarricense.
 3.-El gestionante directo de la declaratoria turística o bien el representante con facultades suficientes en caso de personas jurídicas, deberá presentar una declaración jurada otorgada en escritura pública ante notario, en el sentido de que la empresa tendrá como objeto exclusivo las actividades turísticas y que en caso de que se dedique a otros giros, los llevará contable y administrativamente por separado. Asimismo, la declaración incluirá el compromiso de reportar cualquier cambio de propietario, administradores, domicilio, razón social, nombre comercial u otro cambio que modifique los alcances de la Declaratoria Turística original otorgada a la empresa. Este documento debe indicar un lugar donde recibir notificacioñes, relacionadas con el presente trámite, así como para cualquier acto o resolución que en el futuro y una vez otorgada la Declaratoria, puedan afectar a la empresa, comprometiéndose además a comunicar cualquier cambio de esta dirección, de lo contrario aceptan ser notificados en el lugar señalado.
-Esta declaración deberá contar con rt 187.50 de timbres fiscales y rt 2.00 de abogado.
+Esta declaración deberá contar con ¢87.50 de timbres fiscales y ¢2.00 de abogado.
 4.-Debe presentarse certificación que demuestre la personería vigente del representante de la empresa, con indicación de las facultades que ostenta.
-5.-Se advierte que toda certificación notarial tiene una vigencia de tres meses, por lo que de presentarse fuera de ese término a esta Dirección, se tendrá como vencida y se solicitará una actualizada. Asimismo, se advierte que debe contar con los siguientes timbres: 't 18.75 fiscales, l forense, l rehabilitación, 't 5 archivo nacional y 't 2.00 de abogado. Por cada folio adicional certificado debe incluirse 't 2.50 fiscales.
+5.-Se advierte que toda certificación notarial tiene una vigencia de tres meses, por lo que de presentarse fuera de ese término a esta Dirección, se tendrá como vencida y se solicitará una actualizada. Asimismo, se advierte que debe contar con los siguientes timbres: ¢18.75 fiscales, l forense, l rehabilitación, ¢5 archivo nacional y ¢2.00 de abogado. Por cada folio adicional certificado debe incluirse ¢2.50 fiscales.
 REQUISITOS TECNICOS
 1.-Para aquellas empresas que se encuentren en operación, deberán de presentar una solicitud de inspección ante el Departamento de Fomento, para la realización de una evaluación y clasificación, la cuál tendrá una validez de seis meses a partir de realizada la misma. La solicitud de inspección que no venga autenticada, ni con los timbres de ley no serán recibidas. Además se debe adjuntar copia del Ministerio de Salud y la patente municipal.
 2.- Todas las empresas deben alcanzar una categoría mínima de un tenedor, en el caso de restaurantes o de dos copas en el caso de centros de diversión nocturna.
@@ -152,7 +152,7 @@ NOTAS:
 a) Con el propósito de agilizar la revisión de los requisitos legales, se ruega a los interesados ajustarse estrictamente a lo detallado en cada punto y a los timbres que se solicitan. Asimismo, presentar los documentos en el mismo orden en que aparecen en la hoja de requisitos.
 b) Una vez efectuada la revisión de los documentos y en caso de que se realicen observaciones, favor subsanar las mismas totalmente y no de forma parcial, para así evitar demoras y pérdida de tiempo.
 c) En caso de paralización del trámite por más de 6 meses, por razones achacables al interesado, deberán de actualizarse los documentos que se encuentren vencidos.
-d) En lo referente al cobro de timbres del Colegio de Abogados, al ser derogado el Decreto N° 20307-J, en el que se establecían los aranceles de los Profesionales en derecho, cobra vigencia al Artículo 5, inciso b, de la Ley W 3245, por lo que el timbre de abogados a aplicarse es de la suma de dos colones ('t2.00), o en defecto el timbre de menor valor que exista a la fecha.
+d) En lo referente al cobro de timbres del Colegio de Abogados, al ser derogado el Decreto N° 20307-J, en el que se establecían los aranceles de los Profesionales en derecho, cobra vigencia al Artículo 5, inciso b, de la Ley N° 3245, por lo que el timbre de abogados a aplicarse es de la suma de dos colones (¢2.00), o en defecto el timbre de menor valor que exista a la fecha.
 GUIA CON LOS REQUISITOS MINIMOS PARA
 CONFECCIONAR UN ESTUDIO ECONOMICO
 Todo Estudio Económico tiene que ser elaborado y firmado por un profesional debidamente incorporado al Colegio de Profesionales en Ciencias Económicas.
@@ -214,8 +214,10 @@ REQUISITOS PARA PLANOS CONSTRUCTIVOS DE PROYECTOS
 TURISTICOS PARA EMPRESAS QUE DESEAN OPTAR POR LA
 DECLARATORIA Y CONTRATO TURISTICO
 a) Formato de planos:
-1) Deberán de cumplir con la presentación de planos según los lineamientos de la Oficina Centralizadora de Permisos para la Construcción.
-2) 5 juegos de planos completos: arquitectónicos, civiles, mecánicos, eléctricos, estructurales, de carácter ambiental, etc. diseñados conforme con los Reglamentos y Regulaciones vigentes del país, y firmados por los profesionales responsables.
+1) Deberán aportar una copia de los planos básicos de conformidad con el Decreto número 27967-MP-MIVAH-S-MEIC del 6 de julio de 1999.
+(Así reformado el inciso anterior mediante sesión N° 4954 del 06 de setiembre de 1999).
+2) Nombre del proyecto acorde con la tipología establecida en el capítulo 1 del Reglamento de Empresas de Hospedaje Turístico del ICT. Indicar el nombre comercial y tipo de proyecto a realizar (levantamiento, ampliación, proyecto, anteproyecto, etc.).
+(Así reformado el inciso anterior mediante sesión N° 4954 del 06 de setiembre de 1999).
 3) Planos de plantas por nivel, cortes, fachadas, materiales y acabados, secciones, detalles, etc., todo debidamente dimensionado.
 4) Nombre del proyecto acorde con la tipología establecida en el capítulo I del Reglamento de Empresas de Hospedaje Turístico del I.C.T.. Indicar el nombre comercial y tipo de proyecto a realizar (levantamiento, ampliación, proyecto, anteproyecto, etc.).
 5) Planos de ubicación y localización de la finca, sus colindancias, alineamiento, restricciones.
@@ -262,8 +264,10 @@ Cualquier consulta podrá ser atendida en el Departamento de Fomento del I.C.T.,
 * Requisitos para planos constructivos en proyectos de carácter turístico que desean optar por el Contrato Turístico. Actualizados a mayo de 1999*
 REQUISITOS PARA PLANOS ARQUITECTONICOS (ANTEPROYECTOS) PARA EMPRESAS QUE DESEAN OPTAR POR LA DECLARATORIA TURISTICA UNICAMENTE
 a) Formato de planos:
-1) Deberán de cumplir con la presentación de planos según los lineamientos de ]a Comisión Centralizadora de Permisos de Construcción y de la Comisión Reguladora de Planos y Permisos de Construcción.
-2) 2 juegos de planos arquitectónicos completos y firmados por el profesional responsable.
+1) Deberán aportar una copia de los planos básicos de conformidad con el Decreto número 27967-MP-MIVAH-S-MEIC del 6 de julio de 1999.
+(Así reformado el inciso anterior mediante sesión N° 4954 del 06 de setiembre de 1999).
+2) Nombre del proyecto acorde con la tipología establecida en el capítulo I del Reglamento de Empresas de Hospedaje Turístico del ICT.. Indicar el nombre comercial y tipo de proyecto a realizar (levantamiento, ampliación, proyecto, anteproyecto, etc.).
+(Así reformado el inciso anterior mediante sesión N° 4954 del 06 de setiembre de 1999).
 3) Planos de plantas por nivel, cortes, fachadas, materiales y acabados, secciones, detalles, etc., todo debidamente dimensionado.
 4) Nombre del proyecto acorde con la tipología establecida en el capítulo I del Reglamento de Empresas de Hospedaje Turístico del I.C.T.. Indicar el nombre comercial y tipo de proyecto a realizar (levantamiento, ampliación, proyecto, anteproyecto, etc.).
 5) Planos de ubicación y localización de la finca, sus colindancias, alineamiento, restricciones.
@@ -309,22 +313,18 @@ Cualquier consulta podrá ser atendida en el Departamento de Fomento del I.C.T.,
 * Requisitos para planos arquitectónicos de anteproyectos de empresas que desean optar por la Declaratoria Turística únicamente, actualizados a mayo de 1999*
 REQUISITOS PARA PLANOS DE LEVANTAMIENTO ARQUITECTONICO (OBRAS EXISTENTES) PARA EMPRESAS QUE ESTAN OPERANDO y DESEAN OPTAR POR LA DECLARATORIA TURISTICA
 Luego de aprobada la inspección de categorización por parte de este Departamento de Fomento, se podrá continuar con la presentación de los planos de levantamiento, de acuerdo con los siguiente requisitos:
-a) Formato de planos:
-1) Deberán de cumplir con la presentación de planos según los lineamientos de la Oficina Centralizadora de Permisos para la Construcción.
-2) 2 juegos de planos arquitectónicos completos y firmados por el profesional responsable.
-3) Planos de plantas por nivel, cortes, fachadas, materiales y acabados, secciones, detalles, etc., todo debidamente dimensionado.
-4) Nombre del proyecto acorde con la tipología establecida en el capítulo 1 del Reglamento de Empresas de Hospedaje Turístico del I.C.T.. Indicar el nombre comercial y tipo de proyecto a realizar (levantamiento, ampliación, proyecto, anteproyecto, etc.).
-5) Planos de ubicación y localización de la finca, sus colindancias, alineamiento, restricciones.
-6) Planta de conjunto indicando todas las edificaciones existentes y proyectadas a construir, curvas de nivel, accesos peatonal y vehicular. Si fuera necesario, plantas específicas indicando paisajismo; y/o impacto ambiental ocasionado por el proyecto.
-b) Documentos a presentar: (junto con los planos)
-1) Contrato de Consultoría del CFIA, firmado por el profesional responsable (copia).
-2) Plano de catastro de la propiedad a nombre del propietario del proyecto, caso contrario, presentar los documentos legales de relación (ej. escritura, contrato de arrendamiento, contrato de compra - venta, etc.). .
-3) Copia del permiso actualizado de funcionamiento sanitario del Ministerio de Salud.
-4) Copia de la patente municipal actualizada por concepto de
-restaurante para empresas gastronómicas ó:
-copia de la patente municipal para tabernas, bar y similares centros de diversión nocturna.
-copia de la patente de Gobernación para espectáculos públicos.
-6) Presentar fotografías del establecimiento.
+(*) a) Formato de planos:
+1) En el caso de obras existentes, deberán presentar copia de los planos constructivos si existieran, y en caso de que no se hallarán, levantamiento arquitectónico de las instalaciones.
+2) En caso de empresas que estén operando que deseen hacer ampliaciones deberán aportar una copia de los planos básicos de conformidad con el decreto número 27967-MP-MIVAH-SMEIC del 6 de julio de 1999 .
+3) Para ambos casos, deberán aportar el nombre del proyecto acorde con la tipología establecida en el capítulo 1 del Reglamento de Empresas de Hospedaje Turístico del ICT. Indicar el nombre comercial y tipo de proyecto a realizar (levantamiento, ampliación, proyecto, anteproyecto, etc.).
+(*) (Así reformado mediante sesión N° 4954 del 06 de setiembre de 1999).
+(*) b) Documentos a presentar: (junto con los planos)
+1) Copia del permiso actualizado de funcionamiento sanitario del Ministerio de Salud.
+2) Copia de la patente municipal actualizada por concepto de restaurante para empresas gastronómicas o:
+-copia de la patente municipal para tabernas, bar y similares centros de diversión nocturna.
+-copia de la patente de Gobernación para espectáculos públicos.
+3) Presentar fotografías del establecimiento.
+(*) (Así reformado mediante sesión N° 4954 del 06 de setiembre de 1999).
 c) Equipamiento e infraestructura mínima de servicios de hospedaje:
 Todas las instalaciones, equipamiento e infraestructura de los proyectos de carácter turístico deberán de cumplir con la normativa especificada en las leyes, reglamentos y códigos vigentes en nuestro país, incluyendo el Reglamento a la Ley N° 7600 conocido como "Igualdad de oportunidad para personas son discapacidad en Costa Rica" que incluye entre otros, el "diseño arquitectónico sin barreras".
 1) Accesos de vehículos y de peatones, calles, rotondas, indicar las obras de accesibilidad para personas con discapacidad física.

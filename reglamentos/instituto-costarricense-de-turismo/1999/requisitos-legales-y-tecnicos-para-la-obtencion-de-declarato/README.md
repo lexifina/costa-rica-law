@@ -14,3 +14,4 @@ Requisitos Legales y Técnicos para la Obtención de Declaratoria y Contrato Tur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-07-23 | la propia norma |
+| 2 | 1999-09-06 | Reglamento 4954 (1999-09-06) |
