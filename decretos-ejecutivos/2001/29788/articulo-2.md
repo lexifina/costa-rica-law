@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Cultura, Juventud y Deportes, a través de la Dirección General de Bibliotecas, destinará, en la medida de sus posibilidades, los recursos necesarios para su funcionamiento.
