@@ -1,0 +1,1 @@
+Artículo 7°— La Municipalidad procederá a cerrar los establecimientos o impedirá el ejercicio de las actividades de las personas afectas al impuesto que hayan obtenido la patente respectiva o que se hayan atrasado dos trimestres en sus pagos. Para tal efecto, la delegación Cantonal de la Guardia de asistencia rural deberá prestar a colaboración del caso.

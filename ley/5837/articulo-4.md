@@ -1,0 +1,1 @@
+Artículo 4°—Las patentes serán aplicadas por la Municipalidad, a través sus inspectores, quienes estarán facultados para visitar los establecimientos afectos al impuesto. Estos inspectores harán un estudio del área del establecimiento, existencias, volumen de los servicios que se prestan, número de empleados grado de la tecnología de la industria, etc.
