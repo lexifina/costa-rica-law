@@ -1,0 +1,1 @@
+Artículo 3.- La pensión concedida á la viuda y á los hijos se distribuirán por mitades entre aquellas y estos, y caso de pasar la viuda á nuevas nupcias, su parte acrecerá á los hijos; la concedida á los hijos se distribuirá por igual entre todos. No tendrá derecho á pensión la viuda que á la muerte del cabo ó guarda estuviere separada de él con justa causa dada por ella.
