@@ -1,0 +1,1 @@
+Artículo 18.- Territorio. Para ejecutar sus funciones, su ubicación geográfica y el territorio de atención de contribuyentes actuales y potenciales estará conforme al decreto ejecutivo N° 16068-PLAN del 15 de febrero de 11985 y sus reformas.

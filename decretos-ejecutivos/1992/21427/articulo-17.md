@@ -1,0 +1,2 @@
+De las Administraciones Regionales
+Artículo 17.- Objetivo. Mantener un contacto eficaz, eficiente y económico de los contribuyentes y potenciales contribuyentes en el territorio de su jurisdicción a fin de comprobar y mejorar el grado de cumplimiento de las obligaciones tributarias de estos, además de cumplir con los lineamientos establecidos por las Subdirecciones de Gestión, Fiscalización, Recaudación e informática.
