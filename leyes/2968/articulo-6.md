@@ -1,0 +1,1 @@
+Artículo 6° Con excepción de las Oficinas de Asistencia Social del Patronato y de los servicios de rehabilitación indicados en el artículo 12 de la ley N° 2547 de 22 de febrero de 1960, todos los servicios que se otorguen a ciegos estarán a cargo de organizaciones e instituciones no lucrativas, especialmente fundadas para ese fin.

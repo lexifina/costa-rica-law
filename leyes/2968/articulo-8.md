@@ -1,0 +1,1 @@
+Artículo 8° - Ninguna persona ciega podrá recibir servicios retribuidos por el Estado, mediante el Patronato, mientras no haya sido clasificada como tal por el mismo, de acuerdo con el inciso b) del artículo 14 de la ley N° 2171.

@@ -1,0 +1,1 @@
+Art 11° Los datos referentes a la condición física y mental requeridos por el artículo 9° de esta ley para la elegibilidad, serán válidos sólo con la firma de los profesionales médicos y sicólogos inscritos.
