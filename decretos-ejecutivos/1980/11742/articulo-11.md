@@ -1,0 +1,8 @@
+Artículo 11.—A la Secretaría Ejecutiva le corresponderá:
+a) Atender los lineamientos del Plan Nacional de Desarrollo que corresponden al Subsector, armonizándolos con las políticas regionales y con los lineamientos que emanen del Presidente Ejecutivo del Instituto Costarricense de Turismo, del Consejo Nacional de Turismo, de la Secretaría Ejecutiva de Planificación de Economía, Industria y Comercio y de la Oficina de Planificación Nacional y Política Económica;
+b) Elaborar el Plan de Desarrollo del Subsector, solicitando y compatibilizando las iniciativas, y el aporte de los departamentos y de las unidades de planificación de las instituciones del Subsector;
+c) Efectuar estudios a escala nacional y regional y proponer políticas, para el Subsector, en concordancia con los resultados de esos estudios y con los objetivos del Plan Nacional de Desarrollo vigente;
+ch) Presentar informes trimestrales y anuales al Consejo Nacional de Turismo y a la Oficina de Planificación Nacional y Política Económica;
+d) Participar con la Secretaria de Planificación Sectorial de Economía, Industria y Comercio en el análisis, evaluación, supervisión de todo lo relacionado con la cooperación técnica, las inversiones y el financiamiento externo, así como la gestión que llevan a cabo los organismos o expertos en el Subsector, de acuerdo con lo dispuesto en la legislación vigente;
+e) Establecer adecuados medios de comunicación con todas las instituciones del Subsector, así como con los entes públicos y privados, asociaciones comunales, cooperativas y en general con todas las organizaciones que se relacionen con el Subsector; y
+f) Cumplir las demás funciones que le asigna el Presidente del Consejo de Turismo.
