@@ -4,3 +4,4 @@ Sus integrantes devengarán un máximo de cuatro dietas mensuales, de doscientos
 Para el cumplimiento de sus funciones, la Dirección General pondrá a su disposición el personal necesario.
 El Poder Ejecutivo reglamentará su funcionamiento.
 (Así reformado por el artículo 1° de la ley N° 6164 del 25 de noviembre de 1977)
+(Nota de Sinalevi: Mediante el artículo 24 de la Ley de Presupuesto Extraordinario, N° 7056 del 9 de diciembre de 1986, se reformó parcialmente el presente artículo en cuanto al número de sesiones y al monto de las dietas, estableciéndose lo siguiente: “lo relativo al número de sesiones y al monto de las dietas de los integrantes del Patronato de Construcciones, Instalaciones y Adquisición de Bienes de Adaptación Social, se regirá de conformidad con lo establecido en la ley Nº 6908 del 3 de noviembre de 1983 y sus modificaciones”)
