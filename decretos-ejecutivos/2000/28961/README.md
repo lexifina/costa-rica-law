@@ -14,3 +14,4 @@ Modifica Límite Gasto Presupuestario para la Refinadora Costarricense de Petró
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-03 | la propia norma |
+| 2 | 2000-12-18 | Decreto Ejecutivo 29224 (2000-12-18) |
