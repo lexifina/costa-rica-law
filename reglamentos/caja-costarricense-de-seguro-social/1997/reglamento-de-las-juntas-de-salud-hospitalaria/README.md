@@ -14,3 +14,4 @@ Reglamento de las Juntas de Salud Hospitalaria.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-07-01 | la propia norma |
+| 2 | 1997-10-09 | Reglamento 7158 (1997-10-09) |
