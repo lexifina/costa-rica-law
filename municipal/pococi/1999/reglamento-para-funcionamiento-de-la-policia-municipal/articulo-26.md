@@ -1,0 +1,1 @@
+Artículo 26.—El Policía Municipal deberá en todo momento presentarse en perfecto estado y aseo personal, mantener en buen estado de conservación, tanto el vestuario como los equipos que le fueron entregados o encargados para su uso y custodia, procurando siempre una imagen decorosa.

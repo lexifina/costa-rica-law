@@ -1,0 +1,20 @@
+REGLAMENTOS
+MUNICIPALIDADES
+MUNICIPALIDAD DE POCOCI
+Acuerdo tomado por el Concejo Municipal de Pococí en sesión ordinaria Nº 49 del 2-9-99.
+Acta Nº 49, artículo, III, acuerdo Nº 344.
+Inciso Nº 3: El señor Manuel Hernández, Alcalde presenta el siguiente Reglamento, se conoce el mismo a como sigue:
+REGLAMENTO PARA EL FUNCIONAMIENTO DE LA POLICIA MUNICIPAL DE LA MUNICIPALIDAD DE POCOCI
+El Concejo Municipal de la Municipalidad de Pococí
+Considerando:
+I.—Que Pococí no es un cantón descendente ni estacionario ya que está creciendo en diferentes áreas, a saber: en el campo social, cultural y económico, transformándose en una región donde desde el campo de la seguridad se necesitan cambios para el mantenimiento de comunidades ordenadas y pacíficas.
+II.—Que en los últimos años en nuestro cantón se ha establecido un clima de violencia y debido a ello, el proceso de descomposición social es cada vez más acelerado. Tal situación, puede palparse en el aumento de actos delictivos como lo son el robo, tráfico de drogas, proxenetismo y otros de similar naturaleza, que perturban la privacidad y la acción de la ciudadanía, patología toda que acontece en la jurisdicción del cantón de Pococí, territorio que está bajo la competencia de la Municipalidad de Pococí, por lo cual no puede alegarse desconocimiento de la problemática descrita supra.
+Que de conformidad lo señala la ley número 7794 vigente, está Municipalidad podrá ofrecer los servicios de la Policía Municipal, aunque sus habitantes no demuestren interés en tales servicios y para ello se cobrará las tasas de servicio de Policía Municipal.
+Dichas se incrementarán en un 10% de utilidad para su desarrollo, tal suma se cobrará proporcionalmente entre los contribuyentes del distrito, cantón o área donde se brinde el servicio de Policía Municipal según la medida lineal frente de propiedad, la tasa se calculará en forma anual y los cobros se harán en tractos trimestrales sobre saldos vencidos.
+La Municipalidad de Pococí, con fundamento en los artículos 169 y 170 de la Constitución Política, el artículo 74 del Código Municipal y de conformidad con el Dictamen de la Comisión de Policía Municipal, suscrita en la sesión ordinaria Nº 16 del 25 de febrero de 1999, acta Nº 16, artículo V, acuerdo 113. Siendo consecuente con lo señalado por la Honorable Sala Constitucional en el voto número 5433-99, San José, a las 15 horas y 42 minutos del 15 de octubre de 1996, acción de inconstitucionalidad, promovida por Danilo Rodas Gómez, en contra de la Municipalidad de Pococí, y el voto número 42-43-96, San José, a las 16 horas, 27 minutos del 20 de agosto de 1996, acción de inconstitucionalidad promovida por el señor José Gerardo Chacón Alvarado contra inconstitucionalidad al Reglamento del Departamento de la Policía Municipal de San José.
+Señalan entre otros: "Que la competencia municipal para la protección de los intereses y servicios locales, incluye el poder de Policía Municipal, fundamento válido para la existencia de la Policía Municipal como Policía Administrativa".
+Que existe un pronunciamiento de la Corte Suprema de Justicia de 1973 en relación con el veto del Poder Ejecutivo por razones de Inconstitucionalidad respecto a la creación del Organismo de Investigación Judicial OIJ. Donde los magistrados Baudrit, presidente, Quirós, Coto, Arroyo, Retana, Jacobo, Vallejo, Cervantes, Bejarano, Blanco, Odio, Jugo, Zavaleta, Trejos, Porter, Benavides, y el suplente Alfredo Chavarría Serrano quienes concluyen que dicho organismo, no constituye ninguna fuerza pública, es una policía judicial, como tampoco puede considerarse fuerza pública la policía municipal y consecuentemente no es inconstitucional.
+En sesión celebrada el día 20 de setiembre en curso, dispuesto por unanimidad, que el decreto Nº 5229 del 9 de julio de 1973.
+CAPITULO I
+Fines y funciones
+Artículo 1º—El Departamento de la Policía Municipal de Pococí, tendrá carácter civil, con estructuras y una organización jerarquizada. Los funcionarios que pertenecen al departamento tienen la denominación genérica de Policía Municipal y la consideración de agentes de la autoridad a todos los efectos.

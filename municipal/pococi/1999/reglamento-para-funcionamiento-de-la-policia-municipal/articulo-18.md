@@ -1,0 +1,1 @@
+Artículo 18.—Los miembros del departamento de policía que se distingan notablemente en el cumplimiento de las funciones dispuestas por este reglamento serán acreedores dentro de las circunstancias que concurran en cada caso.

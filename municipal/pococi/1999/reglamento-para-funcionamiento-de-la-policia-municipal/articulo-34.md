@@ -1,0 +1,3 @@
+CAPITULO VII
+De los comités de seguridad comunitaria
+Artículo 34.—Para garantizar la coordinación entre las políticas de seguridad ciudadana, tanto en el plano municipal como el gubernamental, la Comisión de la Policía Municipal en asocio con los comités de seguridad comunitaria, podrán recomendar al Concejo Municipal y a las autoridades pertinentes políticas a seguir en cuanto a la prevención al delito a nivel comunal, realizar un diagnóstico de la problemática social de las diferentes comunidades, identificando los problemas y áreas que originan el fenómeno delictivo. Establecer formas y procedimientos de colaboración con los miembros de Policía Municipal y otros miembros policiales.

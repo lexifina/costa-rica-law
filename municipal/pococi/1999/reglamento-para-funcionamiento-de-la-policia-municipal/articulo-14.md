@@ -1,0 +1,1 @@
+Artículo 14.—Los que superen lo anterior serán nombrados policías en práctica, y percibirán, durante su período de prueba, las distribuciones mínimas fijadas para los miembros del departamento de su misma categoría, siéndoles de aplicación todo lo dispuesto en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 16.—Los ascensos de los miembros de la Policía Municipal se realizarán según lo establecido en el Código Municipal y este reglamento. Serán también requisitos imprescindibles para optar a cualquier categoría superior, no tener nota desfavorable en expediente personal.

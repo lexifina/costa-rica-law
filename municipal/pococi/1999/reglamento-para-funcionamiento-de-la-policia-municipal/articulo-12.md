@@ -1,0 +1,1 @@
+Artículo 12.—Corresponde a los policías el exacto desempeño de las funciones genéricas que se encomiendan en el presente reglamento, así como las específicas del destino concreto que desempeñen cumpliendo puntualmente las órdenes de sus superiores jerárquicos orientadas a dicha finalidad.
