@@ -1,1 +1,0 @@
-Artículo 43.- Sobre el mismo punto no se concederá la palabra a cada miembro del Colegio más de dos veces, salvo el autor o autores de una preposición o modificación, quienes para defenderla podrán hacer uso de la palabra cuantas veces fuere necesario. El Presidente o quien haga sus veces podrá en todo caso limitar el tiempo para uso de la palabra.

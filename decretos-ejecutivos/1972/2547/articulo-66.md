@@ -1,1 +1,0 @@
-Artículo 66.- Con el objeto de un mejor cumplimiento de los fines del Colegio se crearán subcomités consultivos en cada una de las especialidades coordinados por el miembro perteneciente al Comité Consultivo. Estos subcomités estudiarán los asuntos de interés, particularmente de carácter público, que les someta el Comité Consultivo o la Junta Directiva

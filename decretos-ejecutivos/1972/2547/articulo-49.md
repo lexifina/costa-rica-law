@@ -1,1 +1,0 @@
-Artículo 49.- Cuando la importancia de los asuntos a conocer lo amerite, la Junta Directiva podrá señalar en la convocatoria una sanción especial- para los miembros que no asistan estando obligados a ello.

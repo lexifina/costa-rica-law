@@ -1,1 +1,0 @@
-Artículo 56°.-La Junta Directiva no podrá conocer de asunto alguno que no haya sido presentado al Secretario con veinticuatro horas de antelación por lo menos, para que pueda ser incluido en el orden del día, sin otra formalidad, se leerán y aprobarán o modificarán en la sesión siguiente y serán firmadas por el Presidente y el Secretario.

@@ -1,1 +1,0 @@
-Artículo 88.-Las cuotas mensuales ordinarias podrán ser satisfechas en la Tesorería antes de concluir el respectivo mes. Los miembros del Colegio inscritos dentro de la segunda quincena de un mes no estarán obligados a cubrir la cuota de tal mes.

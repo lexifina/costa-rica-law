@@ -1,1 +1,0 @@
-Artículo 103.- El Tesorero rehusará el pago de un libramiento, so pena de incurrir en una multa igual al doble del monto de lo girado, cuando la orden de pago no contengan los requisitos exigidos por este Reglamento o cuando la orden de pago contradiga la disposición del artículo 107.

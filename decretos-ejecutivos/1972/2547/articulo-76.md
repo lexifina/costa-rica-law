@@ -1,1 +1,0 @@
-Artículo 76°.- El Código de Etica regulará la conducta profesional de los miembros del Colegio en las distintas especialidades y será aprobado por la Asamblea General a propuesta de la Junta Directiva.

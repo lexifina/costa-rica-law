@@ -1,1 +1,0 @@
-Artículo 16°.- El secretario anotará en el respectivo Libro de Registro, respecto de cada miembro del Colegio; su muerte, retiro voluntario o por disposición de la Junta Directiva, reingreso, suspensión temporal en el ejercicio profesional e imposición de correcciones disciplinarias.

@@ -1,1 +1,0 @@
-Artículo 24°.- Los Tribunales de Justicia de Justicia y en general las instituciones públicas deben nombrar peritos en asuntos relacionados con la administración económica, estadística, seguros y otras especialidades de las Ciencias Económicas, de entre los miembros del Colegio.

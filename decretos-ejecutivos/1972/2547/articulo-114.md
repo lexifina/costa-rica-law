@@ -1,2 +1,0 @@
-Artículo 114.- Rige a partir de su publicación.
-Dado en la Casa Presidencial.- San José, a los catorce días del mes de setiembre de mil novecientos setenta y dos.

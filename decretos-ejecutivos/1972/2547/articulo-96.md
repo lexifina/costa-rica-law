@@ -1,3 +1,0 @@
-Artículo 96°.- El Tesorero deberá informar regularmente a la Junta Directiva en la primera sesión ordinaria de cada mes, si existen miembros del Colegio con mora en el pago de sus cuotas por más de seis meses o sin no los hay.
-Si los hubiere, la Junta Directiva apercibirá a los morosos para que paguen las cuotas atrasadas dentro del plazo de un mes, con prevención de que si no lo hacen serán suspendido temporalmente en tanto no hagan el pago respectivo, más un cincuenta por ciento de exceso a título de multa.
-Vencido el plazo de gracia, la Junta Directiva dispondrá la suspensión del moroso, con suspensión del ejercicio profesional y sin perjuicio de ordenar el cobro judicial del crédito. La disposición en tal sentido de la Junta Directiva no tiene ningún recurso.

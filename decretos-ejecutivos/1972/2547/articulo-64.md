@@ -1,1 +1,0 @@
-Artículo 64.- Los vocales deberán asistir a todas las sesiones de Junta Directiva y desempeñar en ellas las funciones que correspondan al Tesorero Secretario y Fiscal, caso de impedimento o de ausencia temporal de esos funcionarios.

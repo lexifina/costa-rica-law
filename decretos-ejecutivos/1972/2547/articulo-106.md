@@ -1,1 +1,0 @@
-Artículo 106.- El Tesorero empleará un sello con las leyendas dichas y además, con la fecha impresa automáticamente y la indicación de que pertenece a la Tesorería. Igualmente, el Fiscal usará un sello con las leyendas indicadas y además, la que pertenece a la Fiscalía.

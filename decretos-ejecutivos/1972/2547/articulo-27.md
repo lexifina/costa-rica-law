@@ -1,1 +1,0 @@
-Artículo 27°.- Los miembros del Colegio del Colegio podrán figurar en nombre colectivo, pero sus actuaciones solo tendrán validez si van respaldadas por su firma con que asumen toda responsabilidad de las labores, así como si simultáneamente forman parte de primer rango en la entidad en que figuran, como asociados, principales ejecutivos o asesores permanentes.

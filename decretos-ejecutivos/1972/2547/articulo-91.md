@@ -1,1 +1,0 @@
-Artículo 91.- El Tesorero garantizará sus responsabilidades con una Póliza de Fidelidad extendida por el Instituto Nacional de Seguros, por el monto que indique la Junta Directiva. La prima será pagada por el Colegio. El Secretario y el Fiscal vigilarán el estricto cumplimiento de esta disposición.

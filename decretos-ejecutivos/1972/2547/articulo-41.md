@@ -1,3 +1,0 @@
-Artículo 41°.- Llegado el momento de la celebración de la Asamblea General, el Presidente, o en su ausencia el Vicepresidente o en su defecto, el Vocal que debe reemplazarle y a falta de todos ellos el miembro del Colegio de más edad abrirá la sesión siempre que haya quorum legal y se leerá aprobará o modificará abrirá la sesión siempre que haya quorum legal y se leerá, aprobará o modificará el acta de la Junta anterior. A continuación se despacharan los asuntos pendientes.
-Antes de levantarse la sesión, el Secretario leerá una minuta que señale Presidente y el propio Secretario, que archivará éste.
-Las actas serán redactadas por el Secretario y firmadas por él y el Presidente, dentro de los quince días siguientes.

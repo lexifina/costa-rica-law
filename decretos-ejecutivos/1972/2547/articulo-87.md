@@ -1,1 +1,0 @@
-Artículo 87°.- El Tesorero recaudará todos los fondos pertinentes al Colegio y expedirá por cada ingreso un recibo que carecerá de eficacia si no lleva la firma de ese funcionario y el sello de la Tesorería.

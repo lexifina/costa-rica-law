@@ -1,2 +1,0 @@
-Artículo 25°.- Sólo los miembros del Colegio pueden ejercer la profesión de Licenciados en Ciencias Económicas en su respectiva especialidad o en las que tengan registradas en el Colegio y también en aquellas ramas que constituyen la preparación básica y general de la profesión.
-Con excepción de los casos contemplados en los tratados internacionales, se establecerá el campo de acción profesional de los colegiados de acuerdo con su especialización y nivel técnico.

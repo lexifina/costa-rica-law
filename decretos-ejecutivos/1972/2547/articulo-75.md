@@ -1,1 +1,0 @@
-Artículo 75.- El Fiscal actuará de oficio, levantando la información que corresponda, cuando por aviso confidencial, voz pública u otro medio, se entere de irregularidades imputadas a un miembro del Colegio.

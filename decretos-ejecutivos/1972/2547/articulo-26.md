@@ -1,1 +1,0 @@
-Artículo 26.- Las personas que públicamente o bien en forma oculta o reservada, ejerzan indebidamente la profesión de Licenciados en Ciencias Económicas y Sociales contra lo dispuesto por la Ley y este Reglamento, quedan sujetas a las prescripciones legales establecidas al efecto en el Código Penal vigente.

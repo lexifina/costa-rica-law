@@ -1,1 +1,0 @@
-Artículo 90.- La Junta Directiva, de considerarlo conveniente, podrá colocar parte de los fondos a plazo en una institución bancaria o o invertirlos dentro de las mejores condiciones de seguridad y liquidez.
