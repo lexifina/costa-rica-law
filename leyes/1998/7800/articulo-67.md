@@ -1,10 +1,1 @@
-ARTÍCULO 67.- Las municipalidades de la República, incluyendo los
-concejos municipales de distrito, podrán incluir en sus presupuestos
-ordinarios anuales, una subvención para los programas deportivos, así como
-para programas de actividad física, recreación y deporte para todos, en la
-respectiva jurisdicción; dicha subvención no será inferior al uno y medio
-por ciento (1,5%), conforme al Código Municipal, con la finalidad de que
-estos programas puedan ser organizados por los comités cantonales.
-La municipalidad podrá proporcionarles un funcionario administrativo,
-un local que será su sede y todas las facilidades para el cumplimiento
-cabal de sus fines.
+ARTÍCULO 67.- ANULADO por Resolución de la Sala Constitucional No.5445-99 de las 14:30 horas del 14 de julio de 1999; adicionada por las sentencias números 06218-99, de las 15:21 horas del 10/08/1999, 09811 de las 15: 21 horas 14/12/1999, 07728 de las 14: 45 horas del 30/08/2000 y 8861-00 de las 14:30 horas del 11/10/2000.
