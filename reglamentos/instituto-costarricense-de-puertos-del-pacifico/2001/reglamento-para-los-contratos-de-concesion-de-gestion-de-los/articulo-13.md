@@ -1,0 +1,2 @@
+Artículo 13.—Titularidad de los servicios. La Administración concedente mantendrá, en todo momento, la titularidad de los servicios contratados y velara porque el concesionario cumpla con las obligaciones adquiridas en el contrato de concesión y las que le imponga la legislación vigente, de manera que los servicios concesionados sean prestados dentro
+de los estándares de calidad y eficiencia estipulados.

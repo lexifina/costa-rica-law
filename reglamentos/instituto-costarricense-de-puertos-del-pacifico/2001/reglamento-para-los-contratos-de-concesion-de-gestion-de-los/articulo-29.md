@@ -1,0 +1,1 @@
+Artículo 29.—Garantía de cumplimiento. Para efectos de determinar el monto correspondiente a las garantías de cumplimiento y el valor del respectivo contrato, se calculará con base en el valor presente neto de los flujos de fondos a futuro; tal y como se estableció en el artículo anterior.

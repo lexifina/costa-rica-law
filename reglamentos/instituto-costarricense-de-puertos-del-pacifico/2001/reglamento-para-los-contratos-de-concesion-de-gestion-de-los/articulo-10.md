@@ -1,0 +1,3 @@
+Artículo 10.—Retribución económica. El concesionario recibirá su retribución económica a través del pago del cobro de las tarifas establecidas para cada uno de los servicios portuarios concedidos. A la firma del contrato de concesión, el concesionario deberá contar con la aprobación de su estructura de tarifas y de aquellos precios sujetos a aprobación previa por la Autoridad Concedente y de la Autoridad Reguladora de los Servicios Públicos.
+La estructura de tarifas con los precios por servicios vigentes al momento de iniciar el proceso de concesión será incluida en el cartel de licitación. La revisión de tarifas deberá seguir los procedimientos previstos por la Ley de la Autoridad Reguladora de los Servicios Públicos y su
+Reglamento.

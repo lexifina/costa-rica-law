@@ -1,0 +1,2 @@
+Artículo 15.—Limitaciones del Contrato de Concesión de Gestión de Servicios Públicos. El contrato de Concesión de Gestión de Servicios Públicos no implica traspaso alguno de las instalaciones. mejoras y derechos de la Administración a favor del Concesionario
+Tampoco conlleva, en modo alguno, la venta de los puertos, ni su arrendamiento, ni la imposición de gravámenes sobre él. Las mejores que se realicen en las instalaciones portuarias pasarán a manos de la Administración Concedente.

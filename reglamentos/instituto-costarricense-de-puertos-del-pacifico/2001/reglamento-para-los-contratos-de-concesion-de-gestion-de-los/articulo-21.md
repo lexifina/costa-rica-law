@@ -1,0 +1,2 @@
+Artículo 21.—Cumplimiento de los principios del servicio público. El Concesionario deberá garantizar el cumplimiento de los principios de continuidad, regularidad, uniformidad, igualdad, generalidad y obligatoriedad en la prestación de los servicios portuarios, durante la
+vigencia del contrato, salvo que se den razones eximentes de responsabilidad contempladas en el cartel de licitación o en la legislación vigente, en cuyo caso deberá informar inmediatamente a la Administración concedente, con el fin coordinar las medidas a tomar.

@@ -1,0 +1,4 @@
+Artículo 6°—Pluralidad de oferentes. En los procedimientos para seleccionar al Concesionario podrán participar dos o más empresas reunidas en acuerdo de consorcio, a cuyo efecto deberán acreditar ante la Administración, la existencia de un acuerdo de consorcio, en el cual se regulen, al menos las obligaciones de las partes y otros aspectos que pueda requerir el cartel.
+La conformación del consorcio no implica la creación de una persona jurídica independiente para la presentación de la oferta. No obstante, en caso de resultar adjudicatario, una vez firme la adjudicación, deberá constituir la sociedad nacional a la que se refiere el artículo
+siguiente.
+Podrán presentarse además ofertas conjuntas, cuando por la naturaleza del servicio licitado, sea posible y conveniente para los intereses públicos que distintos componentes de la prestación sean brindados por diversas personas, en cuyo caso el cartel debe autorizarlo expresamente.

@@ -1,0 +1,1 @@
+Artículo 11.—Plazo del Contrato. El plazo de los contratos de Concesión de Gestión de Servicios Públicos portuarios, no podrá exceder de veinticinco años, el cual empezara a correr a partir de la fecha en que el acto de adjudicación adquiera firmeza. La Administración determinará en el cartel respectivo, el plazo aplicable al proyecto de que se trate.

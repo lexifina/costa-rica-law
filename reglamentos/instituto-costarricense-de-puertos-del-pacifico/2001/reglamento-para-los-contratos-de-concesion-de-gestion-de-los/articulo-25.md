@@ -1,0 +1,1 @@
+Artículo 25.—Mantenimiento del equilibrio financiero del contrato. Cuando la Administración acuerde modificaciones que afecten el equilibrio financiero del contrato, deberá compensar al Concesionario, de manera que se restablezcan las condiciones consideradas al momento de la adjudicación.
