@@ -1,0 +1,1 @@
+Art 2° Nombrase igualmente Magistrado propietario del mismo Supremo Tribunal a los señores Doctor Don Eusebio Figueroa y Licenciados D. Félix González, D. Ezequiel Herrera, D. Ramón García D. José María Acosta y Magistrado Fiscal D. Alejandro Alvarado. El primero de los nombramientos será el Presidente de la 2° de la Sala.
