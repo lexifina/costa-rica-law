@@ -13,3 +13,4 @@ Creación del Registro Nacional de Notarios y Registro de Notarios Consulares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-01-21 | la propia norma |
+| 2 | 2003-02-10 | Resolución 0 (2003-02-10) |
