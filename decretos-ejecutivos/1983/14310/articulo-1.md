@@ -1,4 +1,5 @@
 (Derogado)
+(Este decreto fue derogado por el artículo 11 del decreto ejecutivo N° 24604 del 10 de agosto de 1995)
 N° 14310
 EL PRESIDENTE DE LA REPUBLICA
 Y LOS MINISTROS DE INDUSTRIA, ENERGIA Y MINAS Y DE LA PRESIDENCIA,
