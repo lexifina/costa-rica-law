@@ -1,0 +1,2 @@
+Artículo 6º.- La Dirección Nacional de Desarrollo de la Comunidad contará con los departamentos necesarios para el cumplimiento de sus fines. Su estructura orgánica y funcional será determinada por el reglamento de esta ley.
+La Dirección, para realizar sus funciones, actuará fundamentalmente a nivel de las propias comunidades a través de las asociaciones de desarrollo. Por medio de éstas, las comunidades participarán activamente en todos los planes y programas dirigidos a su propio desarrollo.

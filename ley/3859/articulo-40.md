@@ -1,0 +1,1 @@
+Artículo 40.- En caso de disolución, los bienes pertenecientes a una asociación serán administrados por la Dirección General de Desarrollo de la Comunidad, hasta tanto ella proceda a reorganizar la antigua asociación o a promover la creación de una de que la sustituya.

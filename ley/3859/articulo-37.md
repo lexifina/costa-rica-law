@@ -1,0 +1,1 @@
+Artículo 37.- Quedan exentos del uso de papel sellado, timbres y derechos de registro, los actos y contratos en que participen las asociaciones de desarrollo comunal, relativos a la realización de sus fines.

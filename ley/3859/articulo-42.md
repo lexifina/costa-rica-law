@@ -1,0 +1,1 @@
+Artículo 42.- Mediante un reglamento a la presente ley, se determinará todos los detalles no previstos en ella relativos a organización, funcionamiento, sanciones y demás detalles atinentes a estas asociaciones. El reglamento debe ser emitido a más tardar 60 días a partir de la fecha de publicación de la presente ley.

@@ -1,0 +1,1 @@
+Artículo 2º.- Todo grupo o entidad pública o privada, nacional o internacional, que desee dedicarse en Costa Rica al desarrollo de la Comunidad, gozará de los beneficios que establece la presente ley si obtiene previamente la autorización expresa de la Dirección Nacional de Desarrollo de la Comunidad, que se extenderá conforme a las normas que señale el reglamento de esta ley.

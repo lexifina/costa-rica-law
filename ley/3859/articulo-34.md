@@ -1,0 +1,1 @@
+Artículo 34.- Siempre que en los presupuestos de las asociaciones figuren fondos provenientes de subvenciones, donaciones o contribuciones de cualquier clase, provenientes del Estado, de las instituciones autónomas o de las municipalidades, ellos requerirán además, la aprobación de la Contraloría General de la República.

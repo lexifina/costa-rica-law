@@ -1,0 +1,1 @@
+Artículo 12.- El Consejo Nacional de Desarrollo de la Comunidad se reunirá por lo menos una vez al mes y en forma extraordinaria, cuando sea convocado por el Director o tres de sus miembros. Los miembros devengarán la dieta que determine el reglamento.

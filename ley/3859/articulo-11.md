@@ -1,0 +1,1 @@
+Artículo 11.- Los acuerdos del Consejo Nacional de Desarrollo de la Comunidad, sancionados por el Presidente de la República y el respectivo Ministro, tendrán carácter obligatorio para los Ministerios, en cuanto a sus acciones relacionadas con programas de Desarrollo Comunal.

@@ -1,0 +1,1 @@
+Artículo 25.- Corresponde a la Dirección Nacional de Desarrollo de la Comunidad ejercer la más estricta vigilancia sobre estas asociaciones con el propósito de que funcionen conforme a los términos de esta ley, su reglamento y los respectivos estatutos.

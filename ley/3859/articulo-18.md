@@ -1,0 +1,1 @@
+Artículo 18.- Las asociaciones de desarrollo están obligadas a coordinar sus actividades con las que realice la Municipalidad del cantón respectivo, a fin de contribuir con su acción al buen éxito de las labores del organismo municipal y obtener su apoyo.
