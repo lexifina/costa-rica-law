@@ -1,1 +1,0 @@
-ARTÍCULO 38.-Le corresponde al Auditor, entre otras funciones, fiscalizar las operaciones económicas y financieras, revisar los sistemas, procedimientos, registros y el manejo de fondos y bienestar del Instituto.

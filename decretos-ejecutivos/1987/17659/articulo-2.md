@@ -1,1 +1,0 @@
-ARTÍCULO 2°.-La Dirección Técnica y Administrativa del Instituto estará a cargo de un Director General de nombramiento de la Junta Directiva. Habrá, además, dos Directores Ejecutivos que tendrán a su cargo, cada uno separada, pero coordinadamente, las acciones en el campo alcoholismo y en el de la farmacodependencia.

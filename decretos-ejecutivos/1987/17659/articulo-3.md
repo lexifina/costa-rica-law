@@ -1,1 +1,0 @@
-ARTÍCULO 3°.-Sesenta días antes de expirar el término para el cual haya sido electo cada uno de los miembros de la Junta Directiva, comunicará‚ ésta al Ministro de Salud que proceda a un nuevo nombramiento, a fin de que pueda ser hecho con la debida antelación.

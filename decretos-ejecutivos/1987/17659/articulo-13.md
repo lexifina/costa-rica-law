@@ -1,1 +1,0 @@
-ARTÍCULO 13.-Los acuerdos se tomarán por mayoría absoluta de los miembros asistentes. Si hubiere empate, el asunto ser decidido con el voto de calidad del Presidente. Este procedimiento opera también cuando se trate de una votación secreta.

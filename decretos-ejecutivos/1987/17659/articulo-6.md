@@ -1,1 +1,0 @@
-ARTÍCULO 6°.-Los cheques que se giren contra la cuenta corriente del Instituto a que se refiere el artículo 23 de la ley N° 5412, deberán llevar necesariamente para su validez la firma del Director General y la del Jefe del Departamento Administrativo.

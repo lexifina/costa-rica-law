@@ -1,1 +1,0 @@
-ARTÍCULO 22.-Las votaciones referentes a nombramientos y a las remociones que sean de competencia de la Junta, se emitir n en secreto. Igualmente, se harán en secreto las que la Junta Directiva dispusiere recibir de esa manera.
