@@ -1,0 +1,5 @@
+PODER LEGISLATIVO
+N°12 EL CONGRESO CONSTITUCIONAL DE LA REPÚBLICA DE COSTA RICA
+ARTÍCULO 1° Reformase el inciso séptimo del artículo 73 de la Constitución, en los siguientes términos:
+VII.- Suspender por dos tercios de votos presentes, en caso de hallarse la República en inminente peligroso, sea por causa de agresión extranjera, sea por causa de conmoción interior, las garantías individuales consignadas en los artículos 28, 30, 31, 32, 33, 36, 37, 40 y 41 de la misma Ley Fundamental. Esta suspensión podrá ser de todas estas garantías ó sólo de alguna de ellas, para todo el territorio de la República o para una parte de él y por sesenta días o por menos. El Ejecutivo no podrá, respecto de las personas, más que imponer detención en lugar no destinado a reos comunes o decretar su cofinanciamiento en lugar no destinado en lugares habitados. En ningún caso podrá atormentarlas.
+El Ejecutivo dará cuenta al Congreso en sus próxima reunión, de las medidas tomadas para salvar el orden público o mantener la seguridad del Estado, las cuales cesarán inmediatamente que se restablezca las garantías.
