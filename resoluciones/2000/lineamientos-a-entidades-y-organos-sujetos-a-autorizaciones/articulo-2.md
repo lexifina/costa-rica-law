@@ -1,0 +1,1 @@
+2°—La solicitud deberá contener una justificación detallada de las circunstancias por las cuales la utilización del procedimiento licitatorio no resulta apropiado o conveniente para la satisfacción del interés general, el monto estimado del negocio, y la especificación de la partida presupuestaria que ampara la erogación.

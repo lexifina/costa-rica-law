@@ -1,0 +1,1 @@
+3°—En caso de que la solicitud se origine en una evidente falta de planificación que dé lugar a un desabastecimiento de bienes o en una tardanza en la disponibilidad del servicio requerido que comprometa la continuidad del servicio público, la solicitud deberá indicar en forma expresa las medidas correctivas y disciplinarias que hayan sido adoptadas.
