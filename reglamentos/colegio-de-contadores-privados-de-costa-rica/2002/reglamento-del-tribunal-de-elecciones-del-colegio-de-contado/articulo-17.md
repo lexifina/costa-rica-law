@@ -1,1 +1,0 @@
-Artículo 17.—Durante el período preelectoral, únicamente el Tribunal estará facultado para autorizar la colocación de propaganda y la realización de actividades proselitistas en las instalaciones del Colegio, en coordinación con la Gerencia General del Colegio, previo reconocimiento de gastos, cuando el acto lo requiera.

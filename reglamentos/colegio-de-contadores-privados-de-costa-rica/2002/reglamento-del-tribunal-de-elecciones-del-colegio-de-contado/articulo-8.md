@@ -1,1 +1,0 @@
-Artículo 8º—Las ausencias temporales del presidente serán llenadas por el vicepresidente y, en ausencia de éste, por el primer o el segundo vocal, en su orden. En ausencia de cualquiera de los otros, fungirán el primer y el segundo vocales, en su orden.

@@ -1,1 +1,0 @@
-Artículo 16.—Las tendencias podrán hacer proselitismo y propaganda por los medios de comunicación que consideren pertinentes a partir del día señalado en el artículo anterior. En todo caso, en su actividad deberán tener presentes las disposiciones de la Ley Nº 1269 y su Reglamento.

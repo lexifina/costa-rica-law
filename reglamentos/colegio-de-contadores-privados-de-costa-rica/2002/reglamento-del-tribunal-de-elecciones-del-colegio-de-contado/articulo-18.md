@@ -1,1 +1,0 @@
-Artículo 18.—La impresión de las papeletas electorales estará bajo la responsabilidad del Tribunal. En ellas se consignará el nombre de los candidatos y de sus puestos, el nombre de la tendencia y los colores de la divisa. La ubicación de cada tendencia en la papeleta electoral se hará por sorteo.

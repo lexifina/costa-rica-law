@@ -1,3 +1,0 @@
-Artículo 32.—Los resultados parciales de la elección se darán el mismo día de las elecciones y ante estos cabrá el recurso de revocatoria y apelación en subsidio. El primero lo resolverá el Tribunal como primera instancia y el segundo la Comisión establecida como segunda instancia en el artículo 13 de este Reglamento.
-Estos recursos se deberán interponer ante el Tribunal de Elecciones en las próximas veinticuatro horas después de emitido el resultado parcial.
-La segunda instancia emitirá el fallo definitivo cuarenta y ocho horas después de interpuesto el recurso y ante este fallo no cabrá recurso alguno.
