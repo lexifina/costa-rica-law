@@ -1,0 +1,1 @@
+Artículo 6°—La Procuraduría General de la República hará inscribir las tincas ubicadas dentro de esta reserva a nombre del Estado, una vez finalizadas las diligencias de expropiación que ordena el Decreto Ejecutivo N° 9119-G del trece de setiembre de mil novecientos setenta y ocho.
