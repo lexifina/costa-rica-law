@@ -1,0 +1,12 @@
+Nº 31224-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en las atribuciones que les confieren los incisos 3), y 18) de los numerales 140 y 146 de la Constitución Política, los artículos 26 y 27 de la Ley General de la Administración Pública, las Leyes N° 7554 de 4 de octubre de 1995 y sus reformas, N° 6084 del 24 de agosto de 1977 y sus reformas, N° 7575 del 13 de febrero de 1996; la Ley N° 7317 del 30 de octubre de 1992 y sus reformas y los artículos 23 y 24 de la Ley N° 8131 del 18 de setiembre del 2001.
+Considerando:
+1º—Que por imperativo constitucional al Estado costarricense le corresponde garantizar a los ciudadanos el disfrute de un ambiente sano y ecológicamente equilibrado.
+2º—Que la Ley Orgánica del Ambiente N° 7554, establece que el Ministerio del Ambiente y Energía (MINAE) es el ente rector en materia ambiental, por lo que debe velar por la protección, conservación y aprovechamiento de los recursos naturales como condición indispensable para el desarrollo económico sostenible.
+3º—Que el Fondo de Parques Nacionales, Fondo Forestal y Fondo de Vida Silvestre forman parte del Sistema Nacional de Áreas de Conservación, mediante los cuales se lleva a cabo la protección, conservación, control y fomento de estas áreas protegidas debido a su riqueza en especies de vida silvestre y bosque forestal. Por lo cual requieren incorporar recursos adicionales para implementar acciones estratégicas con miras al eficaz cumplimiento de su misión institucional.
+4º—Que mediante el Decreto Ejecutivo N° 30214-H, publicado en La Gaceta N° 54 del 18 de marzo del 2002 y sus reformas, la Autoridad Presupuestaria formuló las Directrices Generales de Política Presupuestaria para el 2003, las cuales fueron conocidas por el Consejo de Gobierno y aprobadas por el Presidente de la República, estableciendo el gasto presupuestario del presente año, para las entidades cubiertas por el ámbito del mencionado Órgano Colegiado.
+5º—Que por lo anterior, resulta necesario modificar el gasto presupuestario fijado a dichos entes en el Decreto citado y sus reformas. Por tanto,
+Decretan:
+Artículo 1º—Modifícase el gasto presupuestario establecido en el artículo 1 ° del Decreto Ejecutivo N° 30214-H, publicado en La Gaceta N° 54 del 18 de marzo del 2002 y sus reformas, al Fondo de Parques Nacionales, Fondo Forestal y Fondo de Vida Silvestre, fijándolos en ¢2.076,1 millones; ¢120,2 millones y ¢21 millones, respectivamente.
