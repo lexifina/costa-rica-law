@@ -1,0 +1,1 @@
+Artículo 8°—Las solicitudes de alquiler de maquinaria Municipal deberán hacerse ante el Ejecutivo Municipal, para su respectivo acuerdo del Concejo y en caso de aceptación, se firmara un contrato entre este funcionario y el solicitante, indicando: tipo de trabajo, lugar donde se realizará, equipo alquilado, horas contratadas, dueño de la propiedad y monto del contrato.

@@ -1,0 +1,1 @@
+Artículo 3°—El alquiler de la Maquinaria Municipal no tiene fines de lucro solamente se cobrará el importe para gastos de mantenimiento y compra de repuestos y se podrá alquilar siempre y cuando no haya menoscabo de la labor Municipal, es decir solamente cuando la maquinaria se encuentra desocupada.

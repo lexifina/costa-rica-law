@@ -1,0 +1,1 @@
+Artículo 4°—El alquiler de la maquinaria Municipal se cobrará por horas máquina y horas extra del operador, el precio de la hora para cada tipo de maquinaria se fijará por acuerdo del Concejo, previo informe que presentará el Ejecutivo Municipal, pudiendo ser modificado cuando se estime que los costos hayan variado.

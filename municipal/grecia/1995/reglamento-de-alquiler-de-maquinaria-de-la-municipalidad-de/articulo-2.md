@@ -1,0 +1,1 @@
+Artículo 2°—La finalidad de este upo de servicios es brindar a los vecinos y Asociaciones de Desarrollo del Cantón, cierta facilidad cuando necesitan realizar trabajos que requiere el uso de maquinaria pesada y que estén imposibilitados en contratar empresas que presten este tipo de servicio.
