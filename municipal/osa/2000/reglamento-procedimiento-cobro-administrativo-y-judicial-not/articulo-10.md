@@ -1,0 +1,1 @@
+Artículo 10.—La designación de la empresa le será comunicado por escrito para que dentro de los siguientes diez días naturales, conteste por escrito de su aceptación, conocimiento y conformidad con las normas establecidas con este Reglamento. La empresa designada deberá firmar el contrato correspondiente, que al efecto elaborará la municipalidad.

@@ -1,0 +1,1 @@
+Artículo 11.—Es prohibido para la empresa hacer cualquier tipo de arreglo o recibir pagos del deudor abonos a la deuda de tributos. Los honorarios profesionales los cobrará en su oficina la empresa por medio de una cuenta bancaria designada al efecto a excepción de la condonación de honorarios, donde deberá mediar nota de la empresa hacia la municipalidad.

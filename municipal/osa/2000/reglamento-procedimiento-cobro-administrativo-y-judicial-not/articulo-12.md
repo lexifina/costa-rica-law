@@ -1,0 +1,1 @@
+Artículo 12.—La municipalidad no podrá recaudar suma alguna por concepto de honorarios profesionales y así mismo no podrá recibir arreglos o cancelaciones de cobro sobre deudas de tributos que hayan sido trasladados a la gestión de cobro, sin antes constatar la existencia del recibo de pago de dichos honorarios a la cuenta bancaria designada por la empresa.

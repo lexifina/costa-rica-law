@@ -1,0 +1,1 @@
+Artículo 26.—Una vez que el cobro judicial haya sido iniciado sólo podrá darse por terminado o suspendido por el siguiente motivo. El pago total de la suma adeudada a la municipalidad incluyendo las costas del juicio y cualquier otro gasto generado por la acción.

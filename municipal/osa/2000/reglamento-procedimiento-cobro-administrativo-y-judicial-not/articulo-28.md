@@ -1,0 +1,1 @@
+Artículo 28.—La empresa estará obligada a cotejar el edicto antes y después de su publicación en el "Boletín Judicial", con los documentos que fundamentan la demanda y será responsable, ante la municipalidad de cualquier perjuicio que por error al respecto pudiera causar su omisión.

@@ -1,0 +1,1 @@
+Artículo 8°—La oficina encargada de las cobranzas entregará a la empresa contratada, la documentación necesaria para el cobro administrativo, agotadas las gestiones administrativas en la recuperación de cuentas morosas, la empresa iniciará el trámite de cobro judicial.

@@ -1,0 +1,1 @@
+Artículo 16.—Para efectos de determinar si los juicios se encuentran al día, el Departamento de Cobranzas revisará, periódicamente, con personal calificado, el número de expedientes y registros que considere necesarios de operaciones entregadas a la empresa tomando como base la documentación en el poder del Departamento de Cobranzas.

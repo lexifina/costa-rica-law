@@ -1,0 +1,1 @@
+Artículo 22.—El tiempo máximo que se conceda para hacer un arreglo de pago no excederá de los seis meses calendario, contados a partir de la firma del documento respectivo. El Departamento de Cobranzas elaborará una tabla donde se establece el monto de los depósitos previstos a fecha de la formalización de arreglo de pago.

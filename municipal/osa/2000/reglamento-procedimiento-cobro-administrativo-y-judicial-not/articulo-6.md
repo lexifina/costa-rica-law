@@ -1,0 +1,1 @@
+Artículo 6°—La dirección y control, tanto las acciones, como de las gestiones de cobro administrativo, extrajudicial y judicial, estarán a cargo de los departamentos designados en directa coordinación con la empresa encargada del cobro.

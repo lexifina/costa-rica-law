@@ -1,0 +1,3 @@
+Artículo 5°—Para el cumplimiento de sus objetivos, los departamentos encargados del cobro, trasladarán a la empresa contratada para realizar las gestiones de cobro, la documentación necesaria de las cuentas en estado de morosidad quien a su vez deberá:
+a) Realizar las gestiones de cobro administrativo de las cuentas atrasadas, para lo cuál deberá notificar al administrado, por cualquiera de los medios establecidos artículo 137 y concordantes del Código de Normas y Procesamientos Tributarios.
+b) Una vez agotada la gestión de cobro administrativo de las cuentas en estado de morosidad, se procederá a su cobro vía judicial.

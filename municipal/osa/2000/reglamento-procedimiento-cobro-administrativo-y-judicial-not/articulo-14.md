@@ -1,0 +1,1 @@
+Artículo 14.—La municipalidad contará con una lista de los montos por conceptos de honorarios profesionales emitida por la empresa contratada de acuerdo a la tabla estipulada en este Reglamento, corroborando que el pago real realizado el contribuyente se ajuste a dicha lista.

@@ -1,0 +1,1 @@
+Artículo 25.—Toda la documentación relativa a arreglos de pago estará en custodia del Departamento de Cobranzas, el cuál en su oportunidad, y de ser necesario, la remitirá a la empresa, que contrate la municipalidad, para realizar las negociaciones de cobro judicial correspondientes.

@@ -1,0 +1,1 @@
+Artículo 17.—La empresa contratada que por alguna razón, quiera dejar de servir a la institución, deberá comunicar esa decisión con treinta días de antelación al Consejo Municipal y enviar la totalidad de los expedientes judiciales que ella maneje al Departamento de Cobranzas.

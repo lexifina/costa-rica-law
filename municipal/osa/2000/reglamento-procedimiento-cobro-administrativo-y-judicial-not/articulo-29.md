@@ -1,0 +1,1 @@
+Artículo 29.—El día hábil siguiente al remate, la empresa deberá informar por escrito al Departamento de Cobranzas, el resultado del remate, si pasado el lapso de ocho días no cumpliera con lo anterior el departamento le enviará una nota solicitando el informe, una copia al Consejo Municipal y al Alcalde Municipal para que proceda de conformidad.
