@@ -1,6 +1,2 @@
-Artículo 2º.- Concédense a los funcionario y expertos de las
-Organizaciones participantes en el Acuerdo aprobado en el artículo 1º,
-siempre que no sean costarricenses o extranjeros con residencia
-permanente en el país, franquicias y facilidades aduaneras para la
-importación de artículos de uso y consumo personal sin perjuicio de las
-limitaciones autorizadas en el artículo 6º.
+Artículo 2º.- Concédense a los funcionario y expertos de las Organizaciones participantes en el Acuerdo aprobado en el artículo 1º, siempre que no sean costarricenses o extranjeros con residencia permanente en el país, franquicias y facilidades aduaneras para la importación de artículos de uso y consumo personal sin perjuicio de las limitaciones autorizadas en el artículo 6º.
+(La Sala Constitucional mediante resolución N° 256-92 de las 16 horas del 4 de febrero de 1992, declaró que es inconstitucional la aplicación del presente artículo “…a los funcionarios del Consejo Monetario Centroamericano como consecuencia de conformidad con lo dispuesto en el artículo 89 de la Ley de la Jurisdicción Constitucional; además, mediante la resolución N° 1018 del 15 de abril de 1992, se interpreta que los derechos adquiridos que se reconocen en ella, incluyen tanto a los que ya los hubieran adquirido, como los que hubieran sido nombrados por el Consejo Monetario Centroamericano para servir en Costa Rica, antes de su notificación”.)
