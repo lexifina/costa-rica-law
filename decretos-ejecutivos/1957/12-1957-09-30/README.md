@@ -13,3 +13,4 @@ Reglamento Interno del Colegio de Microbiólogos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1957-10-05 | la propia norma |
+| 2 | 1957-10-05 | SINALEVI (sin norma nombrada) |
