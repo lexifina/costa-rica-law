@@ -1,0 +1,1 @@
+Artículo 6°__Primeramente el Ejecutivo Municipal confirma si el gasto se ajusta a lo estipulado en el artículo tres. Luego firma y sella el original y la copia del comprobante y lo remite a la Tesorería Municipal.
