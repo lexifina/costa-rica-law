@@ -1,0 +1,1 @@
+Artículo 28.—Para el trámite de pago correspondiente, una vez recibida conforme la mercadería, el proveedor enviará copia de la factura con el refrendo de recibido, y copia de la respectiva orden de compra, a la dependencia encargada de la elaboración de las nóminas de pago, para su registro y trámite de pago.

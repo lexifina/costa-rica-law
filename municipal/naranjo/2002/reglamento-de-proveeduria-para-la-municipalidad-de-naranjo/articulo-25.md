@@ -1,0 +1,1 @@
+Artículo 25.—Las Órdenes de Compra, hasta el límite autorizado por el Concejo, como competencia del Alcalde, para adquisición de bienes y servicios, serán autorizadas por el Alcalde Municipal, los montos superiores al límite autorizado por el Concejo como competencia del Alcalde, deberán ser autorizados por acuerdo del Concejo Municipal.

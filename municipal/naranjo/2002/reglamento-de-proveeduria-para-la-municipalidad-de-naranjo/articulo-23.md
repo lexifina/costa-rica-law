@@ -1,0 +1,1 @@
+Artículo 23.—Cuando no resultare necesario la formalización de una contratación, la Orden de Compra que emita el Departamento de Proveeduría, constituirá el documento idóneo, mediante el cual se autoriza la ejecución contractual, para la adquisición de bienes y servicios y el trámite de pago. La Orden de Compra se emitirá bajo la responsabilidad del funcionario que la expida.

@@ -1,0 +1,1 @@
+Artículo 26.—Los demás elementos de la ejecución de los contratos se regirán por las disposiciones de los capítulos IV "Derechos y obligaciones de las Partes" y VI "Procedimiento de contratación" del Reglamento General de la Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 30.—El Departamento de Proveeduría, tendrá la facultad para fiscalizar la existencia de materiales en las diferentes Direcciones de la Institución, y podrá realizar inventarios cuando lo crea conveniente.

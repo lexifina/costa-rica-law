@@ -1,0 +1,1 @@
+Artículo 20.—Una vez analizadas las ofertas y efectuadas las recomendaciones pertinentes, la Comisión de Contratación Administrativa elevará su dictamen al Concejo Municipal. Trascrito el acuerdo del Concejo Municipal, el Departamento de Proveeduría retomará el procedimiento de contratación administrativa que corresponda.
