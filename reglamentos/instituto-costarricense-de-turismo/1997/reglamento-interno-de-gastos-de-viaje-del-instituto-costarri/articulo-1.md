@@ -4,7 +4,8 @@ NOTA: Este Reglamento fue reformado parcialmente y reproducido su texto en forma
 CAPITULO I
 Aspectos Generales
 Artículo 1°—Presentación de los comprobantes de pago. Todos los comprobantes de pago deben cumplir con las siguientes condiciones:
-a- Ser factura o tiquete de caja preferiblemente originales y sin borrones ni tachaduras que puedan presumir alteración.(modificado así por la Junta Directiva en sesión número 4851 del 25 de agosto de 1998 y publicado en La Gaceta número 195 del 7 de octubre de 1998.)
+a- Ser originales y sin borrones ni tachaduras que puedan presumir alteración.
+(Así reformado el inciso anterior mediante sesión N° 5095 del 2 de abril del 2001).
 b- Estar debidamente timbrados, si así lo dispone el Reglamento del Impuesto sobre la Renta.
 c- Mostrar toda la información requerida tal como la fecha, dirección del vendedor y detalle o descripción del servicio brindado.
 d- No se aceptará el "voutcher” como comprobante de pago; cuando se realicen cancelaciones con tarjetas de crédito, se debe incorporar la factura correspondiente.
