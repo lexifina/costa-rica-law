@@ -1,0 +1,1 @@
+ARTÍCULO 30.-La Dirección General es el órgano de administración y en consecuencia le corresponde: planificar, organizar, coordinar, ejecutar, controlar y evaluar todos los aspectos técnico- administrativos relacionados con el Instituto.

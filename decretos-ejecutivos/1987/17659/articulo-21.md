@@ -1,0 +1,1 @@
+ARTÍCULO 21.-Cuando se produjeran llegadas tardías superiores a treinta minutos, el Director perder el derecho a percibir la dieta. Igualmente, la perder el Director que se ausente de la respectiva sesión sin autorización del Presidente.
