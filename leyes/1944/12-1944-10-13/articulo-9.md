@@ -1,8 +1,11 @@
 CAPITULO II
 Administración
-Artículo 9°— La Caja será administrada por una Junta Directiva integrada por cinco miembros propietarios y tres suplentes nombrados en la siguiente forma:
-Tres propietarios y un suplente en forma libre por la Directiva Central de la Asociación Nacional de Educadores. Un propietario y un suplente, que nombrará cada vez que corresponda la Directiva Central de la Asocia ción de Profesores de Segunda Enseñanza.
-Un propietario y un suplente, en las mismas condiciones que las mencionadas en el párrafo precedente, pero referidas a la Asociación de Educadores Pensionados.
-Los miembros propietarios desempeñarán sus cargos por períodos de cinco años, y los suplentes por períodos de tres; los nombramientos serán hechos de manera que cada año hayan de ser renovados un propietario y un suplente. Cuando se produzca vacante por otra razón que no sea la terminación del período, la reposición se hará por el tiempo que al director de que se trata le falte para completar su período.
-Quienes hayan ocupado cargo de propietario o de suplente en la Junta Directiva de la Caja , no podrán volver a ser miembros de ella, ni como propietarios ni como suplentes, antes de que haya transcurrido un año desde la terminación de su período anterior. Sesenta días antes del vencimiento de los períodos respectivos, la Gerencia de la Caja deberá comunicar ese vencimiento a las Juntas Directivas encargadas del trámite de nombramiento para llenar las vacantes.
-(Así reformado por el artículo 1° de la ley N° 4694 del 28 de diciembre de 1970)
+Artículo 9°—La dirección de la Caja estará a cargo de una Junta Directiva integrada por cinco miembros propietarios y tres suplente, nombrados en la siguiente forma:
+a) Tres propietarios y un suplente por la Directiva Central de la Aso ciación Nacional de Educadores;
+b) Un propietario y un suplente por la Directiva Central de la Aso ciación de Profesores de Segunda Enseñanza; y
+c) Un propietario y un suplente por la Directiva Central de la Asocia ción de Educadores Pensionados.
+Los propietarios y suplentes desempeñarán sus cargos por períodos de cuatro años y podrán ser reelectos hasta por otro período consecutivo.
+Los nombramientos serán hechos de manera que cada año hayan de ser renovados dos directores.
+Cuando se produzca una vacante por otra razón que no sea la terminación del período, la reposición se hará por el tiempo que le falte al director saliente.
+Sesenta días antes de producirse el vencimiento de los períodos, la Gerencia de la Caja deberá comunicarlo a las Asociaciones respectivas para que efectúen los nombramientos correspondientes.
+(Así reformado por el artículo 1° de la ley N° 5194 del 16 de abril de 1973)
