@@ -2913,6 +2913,7 @@ balas, sacos o acondicionamientos análogos... ... ... ...
 63.02 00 00 Trapos (nuevos o usados), cordeles, cuerdas y cordajes,
 en desperdicios o en artículos de desecho ... ... ... ...
 10
+NOTA: Por Decreto Ejecutivo N° 29954 de 1 de noviembre de 2001, se agrega el siguiente párrafo a este artículo: "En el caso de El Salvador, la ropa usada comprendida en la subpartida Nº 6309.00.90 deberá estar debidamente fumigada previo a su desaduanaje conforme a los procedimientos respectivos".
 SECCION XII
 CALZADO SOMBRERERIA; PARAGUAS Y QUITASOLES: PLUMAS
 PREPARADAS Y ARTICULOS DE PLUMAS; FLORES ARTIFICIALES;
@@ -7451,3 +7452,4 @@ e) Los juguetes del Capítulo 97.
 2. Sin perjuicio de las disposiciones de la Nota 1 de este Capítulo, los
 artí
 (NOTA: El Decreto Ejecutivo No. 28230 modifica los Derechos Arancelarios a la Importación de Calamares)
+(Modificado mediante Decreto Ejecutivo N° 29955 de 01 de noviembre de 2001)
