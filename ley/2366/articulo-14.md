@@ -1,0 +1,1 @@
+Artículo 14.- Las vacantes que ocurran en el Consejo Directivo serán cubiertas por el suplente nombrado por el mismo organismo que designó al titular, organismo que en el término de quince días nombrará nuevo suplente.

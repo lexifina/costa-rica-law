@@ -1,0 +1,1 @@
+Transitorio V.- La Asociación de Autores de Obras Literarias, Artísticas y Científicas deberá constituirse y legalizarse durante los tres meses siguientes a la publicación de esta ley, de acuerdo con la Ley de Asociaciones.
