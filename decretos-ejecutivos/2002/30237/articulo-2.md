@@ -1,0 +1,2 @@
+Artículo 2º—Este Decreto suspende temporalmente el Decreto Ejecutivo N° 29113-MEIC del 22 de noviembre del 2000, de la siguiente manera:
+Los precios indicados en el artículo 1° de este Decreto se mantendrán vigentes del 1° de abril al 31 de mayo del 2002. A partir del 1° de junio del 2002 volverán a regir los precios del Decreto Ejecutivo N° 29113-MEIC del 22 de noviembre del 2000, publicado en La Gaceta Nº 228 del 28 de noviembre del 2000.
