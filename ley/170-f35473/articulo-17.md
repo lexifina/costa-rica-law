@@ -1,0 +1,1 @@
+Art. 17. Las partes que no tuvieren montaña ni fueren útiles para la agricultura, se dejaran para pastos, sin que porcion alguna de ellas ni de los bosques pueda cerrarse si no es para el uso comun de todos los vecinos.
