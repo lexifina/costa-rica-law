@@ -1,0 +1,1 @@
+Art 5°.- La Administración Principal será la oficina en donde se recaude el empréstito y al efecto llevará cuenta se separada de las sumas que en este concepto reciba, librando a favor del interesado un bono equivalente, más antes de entregar este bono se mandará tomar razón de él en la Contaduría mayor.
