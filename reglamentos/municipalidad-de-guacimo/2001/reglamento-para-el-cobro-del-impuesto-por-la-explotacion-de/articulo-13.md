@@ -1,0 +1,1 @@
+Artículo 13.—La Administración Tributaria por resolución del Alcalde Municipal podrá determinar de oficio la obligación del contribuyente en los casos previstos y según los procedimientos establecidos en el artículo 124 del Código de Normas y Procedimientos Tributarios.

@@ -1,0 +1,1 @@
+Artículo 2º—Es sujeto de activo de este impuesto la Municipalidad de Guácimo, la cual para los efectos de la relación jurídico tributaria y en su condición de Administración Tributaria de este impuesto, hará uso de las facultades y prerrogativas que contempla el Código de Normas y Procedimientos Tributarios, Código de Minería, Código Municipal y el presente Reglamento.

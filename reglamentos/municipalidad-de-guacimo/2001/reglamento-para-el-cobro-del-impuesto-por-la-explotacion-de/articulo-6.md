@@ -1,0 +1,1 @@
+Artículo 6º—Se considera producto primario extraído cualquiera que surja del simple proceso de extracción y su valor de mercado, para los efectos del tributo aquí regulado, no podrá ser inferior del mismo producto obtenido por otros medios, excluyendo costos de transporte.
