@@ -3,5 +3,7 @@ los porcicultores, las industrias conexas de fabricación de premezclas
 vitamínicas y las plantas procesadoras de carne de cerdo debidamente
 inscritas, gozarán de las exenciones de derechos o gravámenes de
 importación, estabilización económica, consumo y ventas de los elementos
-necesarios para la alimentación, fabricación y formulación de los productos
-y subproductos aquí estipulados.
+necesarios para la alimentación, fabricación y formulación de los
+productos y subproductos aquí estipulados.
+( TACITAMENTE DEROGADO, en lo referente a exenciones, por el artículo 1º
+de la Ley Nº 7293 de 31 de marzo de 1992).
