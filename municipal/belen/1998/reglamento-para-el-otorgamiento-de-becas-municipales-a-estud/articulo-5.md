@@ -1,0 +1,1 @@
+Artículo 5°—La adjudicación de las becas que realizará el Concejo Municipal, previa recomendación no vinculante de la Comisión Municipal de becas, previo estudio de una Trabajadora Social que se contratará al efecto, quien se encargará de preparar un estudio socio - económico de los aspirantes a becas y de su núcleo familiar.
