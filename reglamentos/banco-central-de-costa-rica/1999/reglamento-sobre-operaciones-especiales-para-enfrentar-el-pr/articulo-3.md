@@ -1,0 +1,2 @@
+Artículo 3°-Cálculo del requerimiento de encaje.
+El cálculo del requerimiento del encaje se realizará sobre el promedio de saldos diarios de las operaciones sujetas a este requisito, de una quincena natural, esto es, del 1 ° al 15 y del 16 al 30 ó 31 de cada mes. En el cálculo intervendrán todos los días de la quincena, para los fines de semana y días feriados se repite la información del último día hábil anterior.

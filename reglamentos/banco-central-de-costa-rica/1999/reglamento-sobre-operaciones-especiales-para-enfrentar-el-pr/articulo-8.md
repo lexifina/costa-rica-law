@@ -1,0 +1,2 @@
+Artículo 8°-Insuficiencias en el encaje.
+Si una entidad financiera presenta algún faltante en la proporción del encaje que debe mantenerse depositada en el Banco Central, esta no podrá ser suplida por dinero en efectivo que mantenga en su poder y se considerará que incurre en una "insuficiencia en el encaje mínimo legal". En este caso se aplicarán las sanciones previstas en el capítulo III, Título III, de las Regulaciones de Política Monetaria.

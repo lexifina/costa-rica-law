@@ -1,0 +1,2 @@
+Artículo 6°-Control técnico de la situación de encaje.
+El control técnico de la situación de encaje en moneda nacional y extranjera de los intermediarios financieros corresponde a la Superintendencia General de Entidades Financieras. Las entidades sujetas a control de esta Superintendencia, deberán enviar a dicha entidad, dentro de un plazo máximo de ocho días naturales siguientes al fin de cada quincena natural, un estado que muestre su situación de encaje, de acuerdo con los procedimientos señalados en los artículos anteriores.
