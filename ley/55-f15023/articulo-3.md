@@ -1,0 +1,1 @@
+Art 3° El Servicio de la guarnición del puerto del Limón, será considerado como en campaña, en consecuencia, el Gobierno ordenará se le suministre el correspondiente rancho o señalará una gratificación equivalente, a los jefes oficiales, oficiales e individuos de tropa que la componen.
