@@ -1,0 +1,1 @@
+Artículo 4°—Los permisos de construcción extendidos al amparo de este reglamento tendrán una validez de un año. En caso de que no se haya edificado la construcción autorizada en ese lapso, deberá solicitarse la renovación del permiso.
