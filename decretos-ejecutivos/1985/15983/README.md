@@ -14,3 +14,4 @@ Emergencia Nacional II Etapa Programa Nacional Electrificación Rural
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1985-01-30 | la propia norma |
+| 2 | 1985-01-30 | SINALEVI (sin norma nombrada) |
