@@ -1,2 +1,0 @@
-Del otorgamiento del título
-Artículo 33.-Una vez cumplidos a cabalidad los trámites legales y reglamentarios para el otorgamiento de permisos de exploración y concesiones de explotación minera, la DGMH a través del Registro Nacional Minero elevará el expediente respectivo ante el MIEM, a efecto de que sea emitida y publicada en "La Gaceta", por parte del Poder Ejecutivo, la respectiva resolución de otorgamiento, conteniendo el Título de Exploración o Explotación Minera.

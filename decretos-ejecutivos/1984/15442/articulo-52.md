@@ -1,1 +1,0 @@
-Artículo 52.-La DGMH determinará el valor en el mercado por metro cúbico extraído de arena, piedra, lastre y derivados de estos; a efecto de que los concesionarios de canteras, den cumplimiento a la obligación contenida en el artículo 36 del Código de Minería.

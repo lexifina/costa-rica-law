@@ -1,1 +1,0 @@
-Artículo 43: Toda empresa minero-metalúrgica que derive beneficios de sus operaciones y desee repatriar su inversión o exportar sus beneficios, deberá regirse por los reglamentos promulgados a este respecto por el Banco Central de Costa Rica y por las leyes vigentes.

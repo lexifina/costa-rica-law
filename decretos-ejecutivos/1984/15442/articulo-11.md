@@ -1,1 +1,0 @@
-Artículo 11: El informe de evaluación, las conclusiones de la exploración y todos los documentos técnicos deben ser realizados y firmados por un geólogo o ingeniero de minas, miembro activo del colegio profesional respectivo.

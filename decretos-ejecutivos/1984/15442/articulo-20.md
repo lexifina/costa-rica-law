@@ -1,3 +1,0 @@
-Artículo 20: La exportación de muestras deberá ser autorizada por la DGMH, la cual determinará las condiciones y demás requisitos para que esta pueda realizarse, de acuerdo entre otros, con los siguientes perímetros:
-a) Para el caso de minerales metálicos se deberá comprobar mediante una muestra testigo y análisis químico de laboratorio, el tipo de minerales contenidos en la muestra. La cantidad de muestra a exportar, se determinará con base en dicho análisis.
-b) Para el caso de minerales no metálicos se deberá presentar una muestra testigo y análisis químico de laboratorio; sin embargo este no será parámetro determinante para establecer la cantidad de muestra a exportar.

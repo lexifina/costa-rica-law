@@ -1,1 +1,0 @@
-Artículo 26: La maquinaria a emplearse en las labores de explotación deberá corresponder con aquella declarada en el programa de explotación. Todo cambio en la maquinaria o en el sistema de trabajo, deberá ser notificado a la DGMH.

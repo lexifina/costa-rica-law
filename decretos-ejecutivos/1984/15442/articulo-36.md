@@ -1,1 +1,0 @@
-Artículo 36.-Si la Comisión Gubernamental de Control Ambiental, considera incompleto un EIA o los sistemas usados para la recuperación ambiental, lo señalará el titular para que haga las correcciones necesarias en un plazo no mayor de 3 meses. De no cumplirse se cancelará la concesión.

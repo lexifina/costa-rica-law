@@ -1,1 +1,0 @@
-Artículo 55.-La resolución que deniegue u otorgue la servidumbre, en apelable por las partes interesadas ante el Ministerio de Industria, Energía y Minas dentro del plazo establecido en el artículo 84 del Código.

@@ -1,1 +1,0 @@
-Artículo 17: Si la DGMH considera incompleto o incorrecto un informe semestral, prevendrá al titular para que el geólogo o ingeniero de minas responsable, mediante anexo cumpla con el requerimiento en un plazo no mayor de un mes, no pudiendo repetirse este procedimiento. De no cumplirse con lo requerido no caducará el permiso de exploración respectivo.

@@ -1,1 +1,0 @@
-Artículo 28: Los concesionarios de explotación minera deberán obtener la autorización correspondiente, de la DGMH de previo a la realización de cualquier venta de minerales que se extraigan en el territorio nacional.

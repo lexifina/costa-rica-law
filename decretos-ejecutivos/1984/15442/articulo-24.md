@@ -1,1 +1,0 @@
-Artículo 24: Para la aprobación del informe anual y posterior a su presentación ante la DGMH, se realizará una inspección de campo, cuyos gastos correrán por cuenta del titular de la concesión. La DGMH fijará la fecha de inspección, para la cual deberá estar presente el geólogo o ingeniero de minas responsable.

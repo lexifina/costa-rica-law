@@ -1,2 +1,0 @@
-De las exenciones y franquicias
-Artículo 45.-Para realizar el trámite de la exención y franquicias establecidas en el artículo 55 del Código los titulares de permisos de exploración o explotación minera deberán presentar ante el DGMH la solicitud correspondiente junto con la documentación que justifique y compruebe ante los entes encargados la necesidad del otorgamiento de la exención. la DGMH trasladará esta información al Departamento de Exenciones del Ministerio de Hacienda, con su recomendación de la procedencia o no de la exoneración, según criterios técnicos.

@@ -1,1 +1,0 @@
-Artículo 12: Una vez aprobado el informe de evaluación y la demás documentación, el solicitante está obligado a correr con los gastos de la correspondiente inspección de campo. La DGMH fijará la fecha de inspección, para la cual deberá estar presente el geólogo o ingeniero de minas responsable del trabajo.

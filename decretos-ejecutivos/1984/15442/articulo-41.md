@@ -1,1 +1,0 @@
-Artículo 41.-Los titulares de permisos de exploración o explotación deberán cumplir con las leyes fiscales vigentes y que en un futuro se emitan, en la República de Costa Rica, y deberán mantener los libros de registro contables a disposición de la DGMH para su examen y verificación.

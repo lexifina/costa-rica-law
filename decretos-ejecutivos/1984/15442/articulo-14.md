@@ -1,1 +1,0 @@
-Artículo 14: La DGMH concederá una prórroga del plazo de vigencia del permiso de exploración hasta por un máximo de dos años, si el interesado demuestra que no pudo terminar la exploración en el plazo previsto, por causas ajenas a su voluntad.

@@ -1,6 +1,0 @@
-Del Registro Nacional Minero
-Artículo 60: La presentación de solicitudes de permiso de exploración y concesiones de explotación ante el Departamento de Registro Nacional Minero, de la DGMH, será en la siguiente forma:
-a) Las solicitudes y demás documentos, prórrogas, renuncias, nulidades, caducidades, cancelación, servidumbres y en general todo lo relativo a su tramitación, se entregará en la Oficina de recepción de documentos. El encargado de esta oficina firmará y anotará en el original y en las dos copias del documento entregado, el nombre de la persona que lo entrega y la fecha. En el caso de las solicitudes iniciales, se anotará además, la hora de presentación.
-b) En la oficina de archivo se tendrán todas las copias de los expedientes otorgados en trámite, renunciados, anulados y caducos. Estos expedientes serán de carácter público y podrán ser consultados por cualquier persona debidamente identificada que así lo solicitase.
-c) En el Departamento del Registro Nacional Minero, se tendrán las hojas mapa del Padrón Minero, así como los libros de Registro establecidos en el Código. Estos documentos podrán ser consultados por el público, quien puede solicitar a su costo, copias y certificaciones.
-d) Las certificaciones serán entregadas cinco días después de solicitadas.
