@@ -1,0 +1,8 @@
+Artículo 6º—Funciones. Serán funciones de la Comisión creada en el artículo anterior las siguientes:
+a) Recibir las solicitudes para uso de instalaciones de los espacios que se encuentran fuera de la Administración del Museo de Arte y Diseño Contemporáneos, la Compañía Nacional de Teatro, la Compañía Nacional de Danza y el Colegio Costa Rica.
+b) Aprobar o denegar dichas solicitudes conforme los términos del presente reglamento, las cuales deben encontrarse claramente justificadas.
+c) Fijar si así se determina, la suma que debe cubrir el solicitante por concepto de gastos de mantenimiento del espacio cedido.
+d) Emitir a los interesados, las recomendaciones que estime pertinentes para el mejor desarrollo de la actividad a efectuar en el espacio cedido, y suspender o revocar el permiso cuando las mismas no sean cumplidas a satisfacción, o se produzca algún uso indebido de las instalaciones.
+e) Llevar el control de las actividades autorizadas en cuanto a fechas, horarios y espacios, con la finalidad de procurar el mayor aprovechamiento de éstas y evitar la autorización simultánea de actividades en un mismo espacio y fecha.
+f) Mantener un registro de los permisos concedidos ordenados cronológicamente.
+Para el caso de las instalaciones que no corresponda ceder en préstamo a la Comisión antes dicha, los respectivos Directores Generales deberán procurar de igual forma el cumplimiento de las anteriores disposiciones, debiendo informar además a ese órgano sobre las actividades autorizadas para el siguiente mes, ello para efectos de coordinación en aspectos como seguridad, limpieza y otros, así como para evitar interferencia o incompatibilidad entre actividades que pudieran resultar programadas para una misma fecha.

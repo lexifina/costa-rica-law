@@ -1,0 +1,1 @@
+Artículo 15.—Prohibiciones. Será absolutamente prohibido utilizar las instalaciones del CENAC para actividades políticas, religiosas o eminentemente comerciales, así como distribuir en ellas bebidas con contenido alcohólico.

@@ -1,0 +1,6 @@
+Artículo 2º—Distribución. Para los efectos del presente reglamento y de las regulaciones que se dirán, las instalaciones del Ministerio de Cultura, Juventud y Deportes serán distribuidas para su asignación de la siguiente manera:
+a) El auditorio ubicado dentro del Museo de Arte y Diseño Contemporáneos, las salas de exhibición, y las áreas que dentro de sus instalaciones sean susceptibles de destinarse al préstamo, así como la explanada ubicada frente a éste, serán administradas por dicho Museo.
+b) El Teatro FANAL corresponderá cederlo para su uso a la Compañía Nacional de Teatro.
+c) El Teatro 1887 y las salas ubicadas en la Compañía Nacional de Danza serán cedidas en préstamo por este programa, con excepción de la galería ubicada en el vestíbulo de ese Teatro, que corresponderá a la Dirección General de Cultura en coordinación con esa Compañía, según el Decreto Ejecutivo Nº 30923-C.
+d) El espacio conocido como Colegio Costa Rica que incluye el área denominada “Las Torres”, estará a cargo del programa ministerial del mismo nombre.
+e) El resto de las instalaciones ubicadas en el CENAC no indicadas en los incisos anteriores, serán cedidas en préstamo por la Comisión establecida en el artículo 5º del presente reglamento.
