@@ -1,1 +1,0 @@
-Artículo 2º.-Los beneficios, facilidades y obligaciones que se establecen en la Ley y en el presente Reglamento, se otorgarán y obligan a las personas físicas o jurídicas ubicadas en las Zonas cuando se hayan cumplido los requisitos mencionados en los artículos 28, 29 y 30 de la Ley.

@@ -1,1 +1,0 @@
-Artículo 45.-La exención sobre las remesas a que se refiere el inciso e) del artículo 12 de la Ley, se refiere únicamente al envió de los ingresos originados en las ventas de sus productos independientemente de las remisiones que se efectúen por otro conceptos.

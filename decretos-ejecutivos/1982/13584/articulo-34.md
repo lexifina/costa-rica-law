@@ -1,1 +1,0 @@
-Artículo 34.-Las mercancías debidamente embaladas y marcadas que se internen al territorio aduanero nacional, se trasladarán a la aduana que soliciten los interesados, mediante la presentación en el puesto de aduana en la Zona, de una guía de redestino con sus copias correspondientes.

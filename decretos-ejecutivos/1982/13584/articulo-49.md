@@ -1,1 +1,0 @@
-Artículo 49.-Todas las empresas establecidas en las zonas deberán llenar debidamente al final de cada mes, el formulario especial del Banco Central de Costa Rica, enviando durante los primeros ocho días del mes siguiente el original a dicho banco y copia a la Corporación.

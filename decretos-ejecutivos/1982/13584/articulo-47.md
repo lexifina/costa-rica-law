@@ -1,1 +1,0 @@
-Artículo 47.-Las empresas que se establezcan dentro de las zonas, gozarán del libre manejo de las divisas que generen y con las que operen para su funcionamiento. De igual facultad gozará la Corporación.

@@ -1,1 +1,0 @@
-Artículo 28.-La aduana de la Zona entregará el conductor del vehículo o al custodia, según sea el caso, tres copias de la póliza de exportación correspondiente, las cuales deberán ser entregadas en la aduana por donde se embarcará la mercancía.

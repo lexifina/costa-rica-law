@@ -1,1 +1,0 @@
-Artículo 19.-Si en la Verificación del peso, resulta un peso mayor hasta un 10% del declarado, únicamente se hará constar en el documento de solicitud; pero si el peso es mayor de dicho porcentaje el consignatario quedará obligado a presentar a la aduana una nota exploratoria sobre la anomalía, a satisfacción de ésta.

@@ -1,1 +1,0 @@
-Artículo 63.-Lo no previsto en la Ley y en este Reglamento, se regirá cuando corresponda, por la disposiciones del Código Aduanero Uniforme Centroamericano y su Reglamento, Código de Comercio, Código Fiscal y demás leyes conexas.

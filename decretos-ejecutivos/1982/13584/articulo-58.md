@@ -1,2 +1,0 @@
-Artículo 58.-La empresa quedará comprometida y obligada a mostrar a los funcionarios del MEIC, la Corporación y las autoridades fiscales, en cualquier momento todos los registros contables, documentos y libros de contabilidad.
-Asimismo materias primas, mercancías y otros bienes que se utilicen en la fabricación de los bienes, para que una u otra dependencia conjunta o separadamente, puedan determinar o no que la empresa continué manteniendo los requisitos exigidos por la Ley, su Reglamento y el Acuerdo Correspondiente.

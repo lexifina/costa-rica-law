@@ -1,1 +1,0 @@
-Artículo 27.-El vehículo que transportará la mercancía hacia la aduana de embarque deberá ser cargado bajo la vigilancia aduanera; éste deberá ser marchamado por la aduana y ésta autorizará su salida de la zona con destino a la aduana de embarque. La aduana de la Zona podrá asigna custodia al vehículo.
