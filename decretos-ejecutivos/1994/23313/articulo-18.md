@@ -1,0 +1,1 @@
+Artículo 18.-Toda renovación de Registro debe aparecer en el libro denominado "RENOVACION DE SUSTANCIAS O PRODUCTOS TOXICOS Y SUSTANCIAS PRODUCTOS U OBJETOS PELIGROSOS" que lleva el Departamento de Registro de Sustancias Tóxicas y Medicina del Trabajo.

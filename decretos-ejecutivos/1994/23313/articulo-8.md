@@ -1,0 +1,1 @@
+Artículo 8º--La solicitud de Registro de sustancias, productos tóxicos y sustancias, productos u objetos peligrosos deberá indicar el material, tipo y tamaño de los envases o empaques a utilizar en la comercialización; y garantía de que el material utilizado en el envase es resistente a la acción física o química del producto.

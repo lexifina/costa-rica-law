@@ -1,0 +1,1 @@
+Artículo 28.-El Ministerio de Salud previa recomendación de los departamentos técnicos de la División de Saneamiento Ambiental, podrá dictar medidas adicionales en todo lo referente al almacenamiento de sustancias o tóxicos y sustancias, productos u objetos peligrosos.

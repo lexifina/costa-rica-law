@@ -1,0 +1,1 @@
+Artículo 19.-Concedida la Renovación de Registro y publicada en el Oficial, al solicitante se le extenderá el Certificado de Renovación debidamente sellado y con las firmas del Jefe del Departamento de Registro de Sustancias Tóxicas y Medicina del Trabajo y la del Jefe de la Unidad de Registro.

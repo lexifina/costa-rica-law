@@ -1,0 +1,1 @@
+Artículo 41.-Este Reglamento es de cumplimiento obligatorio para todas las personas físicas o jurídicas y su incumplimiento acarreará las sanciones que establece la Ley General de Salud y las sanciones penales que correspondan.

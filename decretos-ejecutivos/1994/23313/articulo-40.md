@@ -1,0 +1,1 @@
+Artículo 40.-Las resoluciones de los departamentos de la División de Saneamiento Ambiental tendrán los recursos que establece la Ley N° 5412 de 8 de noviembre de 1973, "Ley Orgánica del Ministerio de Salud" .

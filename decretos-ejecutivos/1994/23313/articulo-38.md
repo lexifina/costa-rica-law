@@ -1,0 +1,1 @@
+Artículo 38.-La División de Saneamiento Ambiental mediante sus departamentos respectivos podrá requerir de todo ente de derecho público, la más estrecha colaboración y dichas entidades no podrán negar su colaboración conforme a sus competencias, para efectos de lo que dispone el presente Reglamento.
