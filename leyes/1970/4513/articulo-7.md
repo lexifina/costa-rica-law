@@ -1,0 +1,1 @@
+Artículo 7º.- Todos los trabajadores que sean trasladados a la empresa que prestará los servicios que actualmente explota la Dirección General de Telégrafos y Radios Nacionales, usufructuarán de los derechos estipulados por la ley Nº 733 de 5 de setiembre de 1946 y sus reformas, y por la Nº 2121 de 25 de mayo de 1957.

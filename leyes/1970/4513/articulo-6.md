@@ -1,0 +1,1 @@
+Artículo 6º.- La organización sindical que agrupe a los trabajadores a que hace referencia la presente ley, designará mediante asamblea una junta que administre los beneficios del timbre telegráfico dispuesto por ley Nº 3818, el cual se mantiene y debe ser aplicado por todos los mensajes que se cursen por la institución que explote el servicio de telecomunicaciones.

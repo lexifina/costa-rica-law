@@ -1,0 +1,1 @@
+Artículo 8º.- Los servidores de telecomunicaciones no podrán ser trasladados a otras localidades fuera del lugar en que están sirviendo, si no es con arreglo a lo que dispone el Código de Trabajo y el Estatuto de Servicio Civil.
