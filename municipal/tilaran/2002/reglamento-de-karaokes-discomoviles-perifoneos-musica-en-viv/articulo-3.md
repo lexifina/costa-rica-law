@@ -1,0 +1,1 @@
+Artículo 3º—Toda actividad social con Karaoke, música en vivo, discomóvil o similares que se programe en establecimientos comerciales, deberá contar con el correspondiente permiso municipal para su realización, en caso de no contar con la licencia correspondiente.

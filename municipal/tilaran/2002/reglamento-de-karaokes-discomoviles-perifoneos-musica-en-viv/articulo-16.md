@@ -1,0 +1,1 @@
+Transitorio.—Para los establecimiento comerciales que ofrezcan este tipo de actividades y que no cuentan en la actualidad con el respectivo permiso de funcionamiento del Ministerio de Salud, se les conceden un plazo de noventa días para que cumplan con el resto de los requisitos que establece el artículo 8 del presente Reglamento.

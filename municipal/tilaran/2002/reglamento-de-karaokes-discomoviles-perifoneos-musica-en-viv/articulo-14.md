@@ -1,0 +1,1 @@
+Artículo 14.—En relación a los perifoneos no se permitirá altos decibeles, siendo prohibido durante horas de la noche, cerca de hospitales, cerca de aquellos habitaciones que haya enfermos de gravedad (previa solicitud de la familia), así como familias que están en luto, centros educativos o religiosos. No se permitirá el perifoneo de las 18,00 horas a las 20,00 horas

@@ -1,0 +1,1 @@
+Artículo 13.—Cuando un patentado incumpliere con este reglamento, será notificado en forma personal por el notificador oficial de la Municipalidad, y se le otorgará un período de 5 días hábiles a fin de hacer velar sus derechos.
