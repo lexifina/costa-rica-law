@@ -1,0 +1,1 @@
+Artículo 4°-Corresponde al Comandante en Jefe del Ejército, por medio de la Secretaría de Seguridad Pública, el nombramiento de todos los funcionarios superiores en el orden militar o administrativo del Cuerpo de Policía Nacional, que se juramentarán ante esta Secretaría de Estado.

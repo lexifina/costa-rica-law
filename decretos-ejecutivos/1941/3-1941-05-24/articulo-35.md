@@ -1,0 +1,1 @@
+Artículo 35.-El 20 de diciembre de cada año, el Comandante en Jefe del Ejército revistará las fuerzas de la Policía Nacional y será en ese acto en el que haga entrega de las Recompensas que hayan sido acordadas.

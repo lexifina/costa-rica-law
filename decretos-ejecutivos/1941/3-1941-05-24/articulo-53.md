@@ -1,0 +1,2 @@
+DISPOSICIÓN FINAL
+Artículo 53.-Ningún miembro de la Policía Nacional podrá' dedicar sus actividades a otra cosa que no sea el servicio policíaco así como tampoco intervenir política activa emitiendo opiniones o afiliándose a alguno de los partidos que se disputen el poder. No podrá formar parte de entidades de carácter extremista, de socorro o de fraternidad cuyos estatutos exijan el silencio a sus miembros como norma de conducta.

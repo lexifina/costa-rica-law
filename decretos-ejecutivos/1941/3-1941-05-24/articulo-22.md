@@ -1,0 +1,1 @@
+Artículo 22.-La aprobación del retiro del servicio por las circunstancias que consigna el artículo anterior tendrá que darla el Comandante en Jefe del Ejército, a su Secretario de Seguridad Pública, previa audiencia del Consejo de Calificación y Disciplina y ajustándose a lo señalado en el artículo 15.

@@ -1,0 +1,1 @@
+Artículo 45.-Las pruebas que acusen falta de algún miembro de la Policía Nacional tendrán que constar por escrito, ya sea que quienes las proporcionen pertenezcan al Cuerpo de Policía Nacional o sean ciudadanos particulares.

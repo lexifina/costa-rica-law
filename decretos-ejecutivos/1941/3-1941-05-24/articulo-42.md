@@ -1,0 +1,1 @@
+Artículo 42.-Las penas estarán en relación directa con la falta y con el grado que tenga el infractor. Esas penas serán: amonestación privada; suspensión; arresto; remoción; multa; retiro de medallas otorgadas; degradación.

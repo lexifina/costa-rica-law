@@ -1,0 +1,1 @@
+Artículo 31.- La Caja de Ahorros y Auxilios será administrada por una junta constituida por el Director General, que será su presidente, y por los Subdirectores. Todos sus acuerdos tendrán que ser aprobados por el Secretario de Estado en el Despacho de Seguridad Pública.

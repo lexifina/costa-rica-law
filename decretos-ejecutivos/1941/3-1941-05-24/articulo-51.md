@@ -1,0 +1,2 @@
+BOLETÍN DE LA POLICÍA NACIONAL
+Artículo 51.- La Dirección de Policía editará un Boletín, que será el órgano oficial de la Policía Nacional. En ese Boletín se insertarán todas las noticias que se refieran a los servicios meritorios realizados por miembros del Cuerpo, las órdenes generales y especiales relacionadas con los servicios, los decretos, acuerdos y decisaiones que tengan relación con las funciones de la Policía Nacional y toda otra publicación que tienda a ilustrar en la materia policíaca a los miembros de la Institución.

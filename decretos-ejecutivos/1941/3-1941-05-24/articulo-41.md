@@ -1,0 +1,2 @@
+DE LAS SANCIONES
+Artículo 41.--Corresponderá al Director General, al Consejo Superior de Disciplina, al Consejo de Calificación y Disciplina, a los Subdirectores o a los Comandantes de Sección en su respectiva jurisdicción, imponer a todo miembro del Cuerpo de Policía Nacional las penas por infracción de este reglamento o de la disciplina y que no constituyan un delito que deba ser juzgado por los tribunales represivos.

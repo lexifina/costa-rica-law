@@ -1,0 +1,1 @@
+Artículo 44.-Las penas de amonestación privada y de suspensión o arresto hasta por cinco días podrán ser impuestas a cualquiera de los oficiales, sub-oficiales o policías por los Jefes Superiores o Seccionales sin la intervención del Consejo de Calificación y Disciplina, dándose cuenta de ellas al Director de la Policía Nacional.

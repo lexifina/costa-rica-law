@@ -1,0 +1,4 @@
+DE LOS ASCENSOS
+Artículo 24.-Después de dos años de estar en vigencia la ley que creó el Cuerpo de Policía Nacional y el presente reglamento, los ascensos de todos los miembros de la Policía Nacional se harán por riguroso escalafón, desde inmediato inferior hasta el de Capitán.
+Para el ascenso se tomará en cuenta la buena conducta; la antigüedad; la eficiencia y otras circunstancias que hagan del aspirante un candidato capacitado para el ascenso.
+Corresponde al Consejo de Calificación y Disciplina la calificación para todo ascenso, que se hará por medio de ternas que enviará al Director General. Los ascensos se otorgarán por medio de órdenes de Cuerpo, distadas por la Dirección y aprobadas por la Secretaría de seguridad Pública. Estas órdenes serán publicadas en La Gaceta y en el Boletín de Policía.

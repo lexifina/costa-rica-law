@@ -1,0 +1,1 @@
+Artículo 29.-Los fondos de la Caja de Ahorros y Auxilios provendrán de contribuciones quincenales que harán todos los miembros del Cuerpo de Policía Nacional, y teniendo éstos derecho a préstamos a un tipo de interés no mayor del 6 % anual hasta por una suma igual a la que tengan ahorrada y un 50 % más y el cual deberán garantizar con su sueldo.

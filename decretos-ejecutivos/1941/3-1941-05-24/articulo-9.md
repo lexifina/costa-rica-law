@@ -1,0 +1,1 @@
+Artículo 9°-El Director con la cooperación de los Subdirectores, tendrá a su cargo la administración, dirección y gobierno de la Policía Nacional. Su autoridad y mando se extenderá a todo el territorio de la República.

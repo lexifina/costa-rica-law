@@ -1,0 +1,1 @@
+Artículo 21.-Ningún miembro del Cuerpo de Policía Nacional podrá, después de suscrito este convenio, separarse voluntariamente del servicio antes de cumplir el tiempo prescrito, salvo el caso de impedimento físico o legal que lo imposibilite.

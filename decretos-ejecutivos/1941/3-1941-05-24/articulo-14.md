@@ -1,0 +1,1 @@
+Artículo 14.-Corresponderá al Director la creación y supervigilancia de ese Consejo, que tendrá el carácter de permanente y que lo integrarán los Subdirectores. La Presidencia del mismo estará a cargo del Primer Subdirector y la Secretaría la desempeñará el Secretario de la Dirección de la Policía Nacional asistido por los mecanógrafos que sean necesarios.

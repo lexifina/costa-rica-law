@@ -1,0 +1,1 @@
+Artículo 26.- La Escuela tendrá una Sección Preparatoria en la que recibirán instrucción los policías de ambas categorías, así como los Inspectores y Sargentos, y a cuyas clases podrán asistir los aspirantes al servicio de policía.

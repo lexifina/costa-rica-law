@@ -1,0 +1,1 @@
+Artículo 48.-EI monto de las multas que hayan sido impuestas a los miembros de la Policía Nacional será deducido del sueldo correspondiente a quien haya sido condenado y su valor ingresará a la Caja de Ahorros y Auxilios.

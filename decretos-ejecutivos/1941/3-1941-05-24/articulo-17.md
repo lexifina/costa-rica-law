@@ -1,0 +1,1 @@
+Artículo 17.-Un Juez Instructor, designado ad-hoc por la Secretaría, de Seguridad Pública, levantará toda información que dicha Secretaría juzgue necesaria por las faltas que cometan los Jefes Superiores del Cuerpo de Policía Nacional a que se refiere el anterior artículo.

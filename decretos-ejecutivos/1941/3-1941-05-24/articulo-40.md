@@ -1,0 +1,1 @@
+Artículo 40.-El miembro de la Policía Nacional que, después de un servicio de tres años falleciere a consecuencia de enfermedad ocasionada por los rigores del servicio, debidamente comprobado, será sepultado por cuenta del Estado y sus deudos tendrán derecho a percibir, por una sola vez, un auxilio pecuniario igual al total de sueldos devengados durante un año.

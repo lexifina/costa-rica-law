@@ -1,0 +1,3 @@
+DEL INGRESO Y SUS CONDICIONES
+Artículo 6°-Para ingresar al Cuerpo de Policía Nacional, cuyo servicio se reputa voluntario, debe ceñirse el aspirante a las condiciones siguientes:
+No ser menor de 21 años ni mayor de 40 años; ser ciudadano Costarricense en pleno goce de sus derechos civiles y políticos, tener buena conducta, y de limpios antecedentes; no ser vicioso; no padecer de enfermedades crónicas ni contagiosas; no padecer de defectos físicos que lo imposibiliten para el buen servicio; saber leer y escribir y someterse a los exámenes que dispongan los reglamentos internos y no ser de una estatura menor de un metro setenta y cinco centímetros.

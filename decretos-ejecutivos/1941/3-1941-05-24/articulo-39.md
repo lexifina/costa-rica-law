@@ -1,0 +1,1 @@
+Artículo 39.-El miembro de la Policía Nacional que, en el desempeño de sus funciones, o en el cumplimiento de una orden superior, sufriere un accidente que lo invalidara para continuar en el servicio, tendrá derecho a un Auxilio, por una sola vez, del total de sueldos que hubiere devengado en dos años de servicio.

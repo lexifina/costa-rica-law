@@ -1,0 +1,1 @@
+Artículo 43.-Las penas de amonestación privada y de multa hasta de veinte colones, de suspensión o arresto hasta por ocho días, pueden ser impuestas por el Director, sin que sea necesaria la intervención del Consejo Superior de Disciplina.

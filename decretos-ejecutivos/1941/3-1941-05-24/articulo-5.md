@@ -1,0 +1,2 @@
+DEL DIRECTOR DE LA POLICÍA
+Artículo 5°-Corresponde a la Dirección del Cuerpo de Policía Nacional el nombramiento de Sargentos, Inspectores y Policías de Primera y Segunda Categoría, que se juramentarán ante ella: asimismo corresponde a la Dirección del Cuerpo de Policía Nacional la remoción personal inferior de acuerdo con las disposiciones que dicte el Consejo de Calificación y Disciplina cuyas funciones se determinarán más adelante.

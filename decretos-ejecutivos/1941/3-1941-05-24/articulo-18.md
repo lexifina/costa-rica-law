@@ -1,0 +1,1 @@
+Artículo 18.-Corresponderá al Primer Subdirector levantar las informaciones por las faltas cometidas por los miembros inferiores del Cuerpo de la Policía Nacional. El Subdirector podrá delegar sus funciones en el Comandante de Sección, cuando la falta se haya cometido en su Jurisdicción.
