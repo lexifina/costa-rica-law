@@ -14,3 +14,4 @@ Normas Generales para la Administración de Carteras
 | --- | --- | --- |
 | 1 | 1994-01-27 | la propia norma |
 | 2 | 2001-10-29 | Reglamento 260 (2001-10-29) |
+| 3 | 2002-08-05 | Reglamento 317 (2002-08-05) |
