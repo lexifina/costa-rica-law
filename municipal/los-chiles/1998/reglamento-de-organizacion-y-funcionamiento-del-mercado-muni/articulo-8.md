@@ -1,0 +1,3 @@
+CAPITULO III
+De los inquilinos
+Artículo 8°—Los puestos que se explotan en el mercado se dividen en transitorios y permanentes. Son permanentes los puestos ocupados por los inquilinos en forma continua, con base en la respectiva adjudicación y al contrato suscrito con la Municipalidad de Los Chiles. Son transitorios aquellos puestos comerciales como “Derecho de Piso” que se otorgan provisionalmente en lugares habilitados para tal efecto y que constituyen derecho de uso, revocable unilateralmente ajuicio del Ejecutivo Municipal o Administrador del mercado si lo hubiese, cuando por razones de seguridad, conveniencia o utilidad, se estimare conveniente.

@@ -1,0 +1,1 @@
+Artículo 23.—Dentro del mercado municipal, no se concederán patentes municipales para el expendio de bebidas alcohólicas, actividades industriales molestas o peligrosas, de objetos usados que se atente contra la salud pública, venta de animales vivos de cualquier índole o cualquier otra actividad que por su naturaleza no sea conveniente ubicar en dicha instalación.

@@ -1,0 +1,1 @@
+Transitorio I.—Los actuales inquilinos que estén en el Mercado Municipal conservarán los derechos adquiridos y deberán formalizar el contrato respectivo dentro de los treinta días naturales siguientes a la entrada en vigencia de este reglamento.

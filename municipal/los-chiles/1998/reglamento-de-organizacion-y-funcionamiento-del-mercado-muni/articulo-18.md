@@ -1,0 +1,1 @@
+Artículo 18.—El cambio de destino de puesto para expendio de artículos o mercaderías distintas a las autorizadas, exige al interesado a dirigir una solicitud escrita al Concejo Municipal, dicha solicitud deberá contener mil colones en timbres municipales, indicando el número de puesto, ubicación, los artículos o mercadería que actualmente expende y los que aspira a vender.

@@ -1,0 +1,1 @@
+Artículo 12.—Solamente serán reconocidos como inquilinos permanentes aquellas personas favorecida con las adjudicaciones, que hayan firmado en contrato respectivo y que se encuentren al día con el valor del arrendamiento.

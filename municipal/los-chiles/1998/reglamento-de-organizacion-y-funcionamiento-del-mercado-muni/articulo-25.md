@@ -1,0 +1,2 @@
+Artículo 25.—No podrán los inquilinos, guardar o almacenar en sus locales por ningún motivo sustancias tóxicas, explosivas o inflamables, con excepción de aquellas que sean necesarias para la operación del local.
+En este último caso, deberá el arrendatario garantizar que las sustancias no permitidas, son necesarias para su labor y que para su permanencia en el lugar tiene las medidas de seguridad correspondientes, tanto para evitar accidentes o siniestros, como para combatirlos si por causa no imputable al arrendatario o sus dependientes, ocurriere algún evento.

@@ -1,0 +1,1 @@
+Transitorio II.—Dentro de los quince días siguientes a la entrada en vigencia de este reglamento. La Municipalidad de Los Chiles efectuará un estudio para el ajuste de los precios del arrendamiento de los locales del Mercado Municipal, al cual deberán ajustarse los arrendatarios
