@@ -1,0 +1,1 @@
+Artículo 7°-Las llamadas externas tendrán el grado de prioridad conforme al orden de solicitud ante la central telefónica, excepto en casos urgentes y especiales previamente verificados ante la operadora, de los cuales tomará nota para posterior inclusión en el informe.

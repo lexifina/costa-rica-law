@@ -1,0 +1,1 @@
+Artículo 15.-La institución no se responsabiliza por llamadas no autorizadas a nivel internacional, las cuales. sólo podrán realizarse con la aprobación del Ejecutivo, siempre y cuando se trate de asuntos urgentes y de estricta competencia municipal, quien deberán informar al Concejo el monto, el valor y la justificación de la llamada.

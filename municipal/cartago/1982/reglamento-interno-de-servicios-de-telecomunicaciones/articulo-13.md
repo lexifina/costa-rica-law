@@ -1,0 +1,1 @@
+Articulo 13.-EI Ejecutivo, una vez recibido el informe o control de llamadas remitido o por la operadora de la central telefónica, conocerá del mismo y decidirá lo que proceda según lo aquí estipulado.

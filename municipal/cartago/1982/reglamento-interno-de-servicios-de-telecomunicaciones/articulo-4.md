@@ -1,0 +1,1 @@
+Artículo 4°-El equipo de la central telefónica, confiado a la encargada en servicio sólo podrá ser operado por personal autorizado y en ningún caso por particulares, tal como lo indica el artículo anterior.

@@ -1,0 +1,1 @@
+Artículo 14.-La Tesorería en coordinación con el Ejecutivo revisará los estados de cuenta enviados por el ICE y una vez aprobados ordenará su cancelación pero se reservará el derecho de recobrar las sumas de dinero que no correspondan a llamadas tramitadas conforme a este Reglamento, a fin de que las áreas municipales no sufran menoscabo alguno.

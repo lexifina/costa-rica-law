@@ -1,0 +1,1 @@
+Artículo 11.-Toda llamada externa, realizada por medio de la central telefónica, no podrá exceder de tres minutos. La operadora deberá informar semanalmente al Ejecutivo de las personas que se excedan, a fin de que se proceda a verificar la importancia de la misma para la institución y, en caso contrario, establecer la sanción que corresponda de conformidad con este Reglamento.

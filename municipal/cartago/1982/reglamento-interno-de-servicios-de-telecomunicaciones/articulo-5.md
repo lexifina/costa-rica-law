@@ -1,0 +1,1 @@
+Artículo 5°-El Ejecutivo organizará los recursos tanto de equipo como humanos con el propósito de tramitar diariamente el cúmulo de comunicaciones que solicite el personal y programará el mantenimiento del equipo de 'la central telefónica en estrecha coordinación con la Oficina de Personal.

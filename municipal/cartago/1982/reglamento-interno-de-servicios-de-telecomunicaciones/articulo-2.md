@@ -1,0 +1,1 @@
+Artículo 2- Las disposiciones que este Reglamento señala se ajustan a cuatro necesidades básicas: comunicaciones rápidas, seguras y eficientes, información precisa y confiable, racionalización de los recursos económicos de la institución y registro de las comunicaciones establecidas así como de la actividad de la central telefónica.

@@ -1,0 +1,1 @@
+Artículo 9°-Las líneas directas, de uso exclusivamente externo, serán las de Ejecutivo, Auditor y Secretaría. En este caso se tomará en cuenta la necesidad efectiva del contacto externo directo que debe mantener con otras instituciones u oficinas estatales. El conocimiento de la solicitud y su aprobación o rechazo estará reservado al Ejecutivo.
