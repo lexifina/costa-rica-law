@@ -14,3 +14,4 @@ De Interés Público Foro Retos de la Mujer del Tercer Milenio (VII Foro Regiona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-19 | la propia norma |
+| 2 | 1999-10-19 | SINALEVI (sin norma nombrada) |
