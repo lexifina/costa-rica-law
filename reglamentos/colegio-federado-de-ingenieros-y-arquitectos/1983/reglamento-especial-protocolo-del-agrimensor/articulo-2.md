@@ -1,0 +1,1 @@
+Artículo 2°—El Protocolo es un libro donde se anotarán los registros de actividades profesionales de las personas autorizadas por ley, para el ejercicio de la agrimensura. Los protocolos son documentos del Estado que están sujetos a legislación y deberá cancelarse el Timbre de Topografía de acuerdo con la ley N° 5361, artículo 5°.

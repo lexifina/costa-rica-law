@@ -1,0 +1,1 @@
+Artículo 9°—En el croquis del levantamiento se indicarán los nombres de los colindantes o el número catastral correspondiente, la clase de linderos o símbolos estipulados en el Reglamento de la Ley de Catastro Nacional o literalmente, se dibujará el norte en la parte superior de la hoja. No es necesario usar escala. Para indicar dimensiones aclaratorias se usarán cotas.

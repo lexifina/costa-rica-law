@@ -1,0 +1,1 @@
+Artículo 15.—El Colegio Federado imprimirá su sello en los documentos que sean presentados a catastrar, incluyendo el Protocolo y cancelará con este mismo procedimiento los timbres de Topografía adheridos en dichos documentos.

@@ -1,0 +1,1 @@
+Artículo 17.—El Colegio Federado de Ingenieros y de Arquitectos de Costa Rica actuará conforme lo indicado en el capítulo XII de su Ley Orgánica, cuando se cometan faltas o contravenciones a lo señalado en este Reglamento. Podrá notificar a los afectados para que puedan establecer si así lo quieren, las acciones correspondientes.

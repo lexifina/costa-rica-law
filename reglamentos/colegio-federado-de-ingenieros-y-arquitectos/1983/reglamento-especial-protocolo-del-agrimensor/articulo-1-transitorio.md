@@ -1,0 +1,1 @@
+Transitorio I: Hasta tanto el Colegio Federado de Ingenieros y de Arquitectos de Costa Rica tenga todos los elementos previstos en este Reglamento, se seguirá utilizando las mismos libretas Protocolo que existen en uso.
