@@ -14,3 +14,4 @@ Reglamento Celebración Fiestas Cívicas Turnos y Ferias enel Cantón central de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-13 | la propia norma |
+| 2 | 2001-11-08 | Reglamento municipal 0 (2001-11-08) |
