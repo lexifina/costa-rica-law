@@ -14,3 +14,4 @@ Reglamento para la Prestación de Servicios Notariales del Banco Nacional de Cos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-27 | la propia norma |
+| 2 | 2002-05-16 | Reglamento 0 (2002-05-16) |

@@ -1,1 +1,2 @@
-Texto no disponible
+Artículo 25.—Trámite para el cobro de gastos y honorarios. El notario procederá a otorgar la escritura con las formalidades de ley, aportando dos copias del testimonio definitivo, original y dos copias de la factura con el detalle del cobro de gastos y honorarios, según los artículos 29, 30 y 31 de este Reglamento, dentro del plazo indicado en el artículo 24.
+(Así reformado mediante sesión celebrada el 16 de mayo del 2002)
