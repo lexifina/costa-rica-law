@@ -1,0 +1,3 @@
+Artículo 8°—Exigencias de recursos en relación con el riesgo de tipo de cambio (FORM. RI-7). Los recursos exigibles para gestionar el riesgo cambiario, se determinará únicamente sobre el monto en que los pasivos en divisas excedan a los activos en esas divisas. En el cálculo se considerarán las operaciones a plazo y se excluirán los activos fijos que estén denominados en divisas.
+Una vez determinado dicho monto, se convertirá a colones utilizando el tipo de cambio de venta, comunicado por el Banco Central de Costa Rica, vigente el día en que se realice el cálculo.
+Sobre dicho monto se aplicará un 8%, que constituirán los recursos exigibles.

@@ -1,0 +1,6 @@
+Artículo 15.—Presentación de los estados sobre el nivel exigido de recursos propios, créditos con grupos de interés económico y personas individuales y coeficiente de liquidez. Los Puestos de Bolsa deberán remitir a la Superintendencia General de Valores, los estados sobre el nivel exigido de recursos propios y grandes riesgos que se detallan en el anexo conjuntamente con los estados financieros mensuales.
+9 Suma de los valores propiedad del puesto más las compras a plazo menos las ventas a plazo.
+Los Puestos de Bolsa deberán remitir a la Superintendencia General de Valores el estado que figura en el anexo, referido al coeficiente de liquidez Ll-1 conjuntamente con los estados financieros mensuales.
+En el estado LI-1 se presentará información referida a los días viernes de cada semana y al último día natural de cada mes. No obstante las entidades deberán cumplir en todo momento el coeficiente de liquidez.
+La Superintendencia General de Valores podrá requerir cualquier dato sobre la cobertura de los coeficientes mencionados anteriormente.
+Las entidades deberán disponer de los medios necesarios para atender al cumplimiento de las obligaciones de información y control establecidas en el Reglamento.
