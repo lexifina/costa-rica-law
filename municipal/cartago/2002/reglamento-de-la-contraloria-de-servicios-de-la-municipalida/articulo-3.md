@@ -1,0 +1,1 @@
+Artículo 3º—Objetivo General. Cumplir con el principio de vigilancia sobre el buen funcionamiento de los servicios públicos, avanzar en la modernización del gobierno local haciéndolo más eficiente al servicio del ciudadano, promoviendo mecanismos que permitan la participación ciudadana en la fiscalización de la prestación de servicios públicos.

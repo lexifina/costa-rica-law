@@ -1,0 +1,1 @@
+Artículo 8º—Apoyo Institucional a la Contraloría. Para el cumplimiento de sus funciones, los órganos competentes de la Municipalidad suministrarán a la Contraloría de Servicios los recursos necesarios para el cumplimiento de las funciones establecidas en el presente Reglamento de acuerdo con la legislación vigente.

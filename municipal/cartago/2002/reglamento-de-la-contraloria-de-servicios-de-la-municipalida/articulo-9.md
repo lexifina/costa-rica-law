@@ -1,0 +1,15 @@
+Artículo 9º—De los Procedimientos.
+a) Toda persona física o jurídica podrá interponer consultas, quejas o denuncias respecto a los servicios prestados por la Institución y sobre las actuaciones de los funcionarios en ejercicio de sus funciones, cuando éste estime que afectan directa o indirectamente los servicios brindados. El Contralor de Servicios recibirá las quejas o denuncias según el procedimiento establecido y las remitirá a las dependencias encargadas según corresponda.
+b) Las quejas podrán ser escritas o verbales e interpuestas por cualquier medio, pero deberán ser recibidas incluyendo al menos los siguientes datos:
+• Identificación de la persona.
+• Residencia y lugar para recibir notificaciones.
+• Detalle de los hechos u omisiones denunciadas, con indicación de las personas u órganos involucrados.
+• Referencia específica o comprobantes cuando la denuncia o queja se refiere a servicios por los cuales se emite comprobante.
+c) En caso de formularse verbalmente, se levantará la respectiva acta de queja, la que deberá contener los datos señalados en el inciso anterior.
+d) El Departamento de Contraloría de Servicios, si lo considera oportuno y pertinente, rechazará las quejas y denuncias anónimas y podrá rechazar aquellas donde se evidencie la mala fe o carencia de fundamento.
+e) Las quejas interpuestas deberán ser tramitadas con la mayor diligencia, estando obligados los funcionarios a contestar las solicitudes de información y resolución de la Contraloría de Servicios en un plazo de cinco días hábiles a partir de la comunicación, salvo que el caso requiera de más término (solicitado por escrito) hasta un máximo de quince días hábiles calendario y deberán estar resueltas en un plazo mayor de treinta días calendario, salvo que se requiera más tiempo para su investigación, en cuyo caso deberá dejarse constancia de sus razones en el expediente.
+f) El denunciante podrá requerir reserva y secreto de su identidad, la que deberá ser guardada específicamente en aquellos casos que se considere que, a raíz de las investigaciones, puede afectarse la continuidad y atención de los servicios prestados al quejoso o denunciante por la Institución o bien el peligro de su integridad física.
+g) Deberá mantenerse un Registro de control de todas las quejas planteadas y admitidas, resumiéndose los resultados de su gestión.
+Este registro dará origen a un informe semestral, en el cual resume la naturaleza y frecuencia de las quejas y las acciones institucionales acatadas o recomendaciones para resolver el caso.
+h) Al funcionario que sea denunciado, se le notificará la denuncia y se le dará traslado por diez días hábiles para que formule por escrito o verbalmente su defensa y aporte las pruebas de descargo que considere oportunas.
+i) Una vez analizadas las pruebas y realizadas las investigaciones pertinentes, la Contraloría de Servicios emitirá un Informe debidamente razonado, que se remitirá al Alcalde Municipal con las recomendaciones que se consideren oportunas y necesarias, con copia a la jefatura correspondiente y al denunciado involucrado.
