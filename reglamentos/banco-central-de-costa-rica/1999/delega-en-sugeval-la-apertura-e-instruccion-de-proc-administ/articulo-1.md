@@ -1,0 +1,8 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica, mediante Artículo 10, del Acta de la Sesión 5004-99, celebrada el 4 de agosto de 1999,
+considerando:
+I.—Que el Artículo 65 de la Ley Orgánica del Banco Central de Rica, faculta a la Institución a someter a encaje las operaciones de captación de recursos financieros del público, en forma habitual, realizadas mediante fideicomisos o contratos de administración y que en los Artículos 66 y 67 autoriza al Banco Central de Costa Rica a cobrar una tasa de interés en caso de insuficiencia en el encaje o a prohibir la realización de nuevas operaciones de créditos e inversiones si la deficiencia persistiere, respectivamente.
+II.—Que la Ley Orgánica del Banco Central de Costa Rica es omisa en el caso de los puestos de bolsa, específicamente en cuanto al proceso administrativo a seguir para la aplicación de las sanciones por deficiencias en el encaje, por lo que debe ser suplida con la aplicación de orden general que, para estos casos, preceptúa la Ley General de Administración Pública.
+III.—Que los puestos de bolsa están bajo la supervisión y regulación de la Superintendencia General de Valores, según lo establecido en los Artículos 3 y 5, inciso b), de la Ley Reguladora del Mercado de Valores,
+resolvió:
+1°—Delegar en la Superintendencia General de Valores la apertura e instrucción de los procedimientos administrativos, para efectos de la imposición de las sanciones por incumplimiento de los requerimientos de encaje mínimo legal por parte de los puestos de bolsa, establecidos en las Regulaciones de Política Monetaria.
