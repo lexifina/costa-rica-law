@@ -1,0 +1,2 @@
+CAPÍTULO II
+Artículo 3º—De la Convocatoria al concurso. El Ministerio de Obras Públicas y Transportes y el Consejo de Transporte Público, invitan a los interesados a concursar en el primer procedimiento especial abreviado, tendiente a adjudicar un total de 13.675 concesiones administrativas de taxi, según la distribución por bases de operación señaladas en el artículo 1 del capítulo 1 de este Reglamento y transitorio VI de la Ley 7969.

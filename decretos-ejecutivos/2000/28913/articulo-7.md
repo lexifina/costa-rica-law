@@ -1,0 +1,17 @@
+CAPÍTULO III
+Artículo 7º—Requisitos formales de las ofertas. Los requisitos formales de las ofertas están taxativamente señalados en los artículos 32 y 48 de la Ley 7969 y para facilitar la presentación y recepción de las ofertas, el Consejo de Transporte Público dispondrá de un formulario preimpreso de oferta, su instructivo y hoja de presentación.
+a- La oferta deberá presentarse en original y dos copias iguales, escrita en español y con el formulario pre impreso de oferta. El formulario deberá llenarse de acuerdo con el instructivo adjunto a la misma (No se aceptarán por ningún motivo ofertas que no se presenten con dicho formulario). Las ofertas no deberán contener borrones, ni tachaduras y deberán presentarse debidamente firmadas por el oferente, con indicación clara del nombre o razón social, calidades personales, cédula de identidad o residencia, debidamente foliadas, con la indicación de un lugar o medio para recibir notificaciones.
+La presentación de la oferta así como cualquier otro acto que en el curso del procedimiento deban ejecutar los oferentes, deberá hacerse estrictamente con carácter personal, la administración no se hace responsable si el oferente delega tales actos a terceras personas.
+b- La oferta deberá presentarse en un sobre cerrado, el cual deberá estar dirigido al Consejo de Transporte Publico, con indicación del objeto del concurso y la base de operación donde se pretende brindar el servicio.
+c- Deberá adjuntarse a la oferta una declaración jurada rendida ante notario publico, bajo fe de juramento, en la cual conste:
+Que no lo alcanza ninguna de las prohibiciones contenidas en la Ley 7969, ni en la Ley de Contratación Administrativa, No 7494 y sus Reglamentos.
+Que se compromete a respetar la base de operación que se le asigne.
+Que se compromete a mantener vigente, durante todo el período de la concesión, los seguros de ley del vehículo que utilizará para prestar el servicio de taxi.
+Que se compromete a cobrar solo la tarifa autorizada oficialmente.
+Que se compromete a efectuar las revisiones técnicas periódicas estipuladas en la Ley de Tránsito por Vías Públicas Terrestres.
+Se compromete a conducir personalmente el vehículo durante 8 horas diarias, según inciso d del artículo 48 de la Ley Nº 7969 o que está eximido de tal compromiso, según artículo 49 de la Ley Nº 7969.
+El oferente acepta que cualquier falsedad en la información suministrada o la falta de requisitos y pruebas documentales anularán su oferta.
+Manifestar expresamente el no haber cedido concesión o permiso para el transporte remunerado de personas en modalidad de taxi durante los 10 años previos al otorgamiento de la concesión.
+d- Aportar copia certificada de la cédula de identidad.
+e- Rendir la Garantía de Participación que será el equivalente a un salario base establecido en el artículo 2º de la ley Nº 7337, del 5 de mayo de 1993, a favor del Consejo de Transporte Publico, mediante los títulos que para tales efectos establece el numeral 37 del Reglamento a la Ley de Contratación Administrativa, decreto ejecutivo Nº 25083-H, que deberán depositarse en cualquier agencia del Banco Nacional de Costa Rica, Sección de Valores en custodia cuenta Nº 2745 que será devuelta una vez depositada la garantía de cumplimiento o en su defecto para los que no resulten adjudicados una vez declarado en firme el acto de adjudicación.
+f- Las ofertas deberán tener una vigencia de 90 días a partir del acto de apertura.

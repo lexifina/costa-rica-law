@@ -1,0 +1,1 @@
+Artículo 4º—De la recepción de ofertas. Los participantes del presente procedimiento contarán con un plazo de 2 meses calendarios posteriores a la publicación del presente reglamento, para presentar sus ofertas, según la fecha y lugar que para tales efectos anunciará el Consejo de Transporte Público en los medios de comunicación (prensa escrita, radio y televisión).
