@@ -1,0 +1,1 @@
+Art.3°.Dentro de un año contado desde la fecha de este decreto, es obligado el Señor Fernandez á dar principio á sus trabajos. Si pasado este término, no se hubiese llenado esta condición quedará, por el mismo hecho, caduco el privilegio de que se ha hecho referencia.

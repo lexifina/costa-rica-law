@@ -1,0 +1,2 @@
+Art.4°. EL Poder Ejecutivo celebrará el correspondiente contrato con el Señor Fernandez, bajo las bases contenidas en su solicitud y conforme á las condiciones exigidas en el presente decreto.
+Al Poder Ejecutivo.-Dado en el Salon de Sesiones.Palacio Nacional, San José, Mayo veintinueve de mil ochocientos setenta y seis,-Manuel A. Bonilla, Presidente.-Andrés Saenz Secretario.-Miguel Guardia, Secretario.-Palacio Nacional. San José, Mayo treinta de mil ochocientos setenta y seis..-Ejecutese.A. Esquivel.-El Secretario de Estado en el Despacho de Industria, S. Lizano.
