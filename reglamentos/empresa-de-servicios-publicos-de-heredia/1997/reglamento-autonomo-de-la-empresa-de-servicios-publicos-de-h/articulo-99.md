@@ -1,0 +1,1 @@
+Artículo 99.—En caso de conclusión de la relación de servicio antes de completar las cincuenta semanas consecutivas de trabajo anual, el servidor tendrá derecho al pago del período proporcional de vacaciones.

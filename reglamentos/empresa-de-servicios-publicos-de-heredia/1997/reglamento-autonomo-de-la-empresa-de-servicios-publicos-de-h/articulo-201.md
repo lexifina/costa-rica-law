@@ -1,0 +1,1 @@
+Artículo 201.—Cuando por razones muy calificadas de necesidad o conveniencia evidentes, se requiera separar temporalmente del cargo al servidor instruido durante el desarrollo del procedimiento de investigación disciplinaria, la Gerencia o la Contraloría Interna en su caso, podrá suspenderlo cautelarmente con goce de salario mediante resolución motivada.

@@ -1,0 +1,1 @@
+Artículo 133.—La pérdida o deterioro anormal de los uniformes, ropa de trabajo o equipo de seguridad, generará responsabilidad disciplinaria y civil para el servidor. En caso de que se determine la existencia de culpa grave o dolo en dicha pérdida, éste deberá reponer el valor de las prendas respectivas, para lo cual el jefe respectivo debe reportar a Recursos Humanos.

@@ -1,0 +1,1 @@
+Artículo 78.—Se podrá pagar disponibilidad en forma permanente o temporal a los servidores cuyas funciones, exija tal reconocimiento. Es necesario que las circunstancias mismas del trabajo exijan acudir a éste en cualquier momento, durante las veinticuatro horas del día, para atender cualquier percance emergencia.

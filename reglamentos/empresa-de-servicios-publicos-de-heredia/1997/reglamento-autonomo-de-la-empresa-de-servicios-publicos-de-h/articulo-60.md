@@ -1,0 +1,1 @@
+Artículo 60.—La asistencia al trabajo será fiscalizada mediante tarjetas individuales que todo servidor deberá marcar al comienzo y conclusión de la jornada laboral o bien a la hora que se retire de su centro de trabajo en un reloj marcador o mediante cualquier otro sistema de control que la E.S.P.H., establezca.

@@ -1,0 +1,1 @@
+Artículo 152.—Si la actividad de capacitación se realizare en el centro habitual de trabajo y afectare el horario preestablecido para ingerir los alimentos, el funcionario participante deberá mantenerse en dicha actividad para que ésta continué sin mayor dilación. Oportunamente se le concederá lugar y tiempo para su alimentación.

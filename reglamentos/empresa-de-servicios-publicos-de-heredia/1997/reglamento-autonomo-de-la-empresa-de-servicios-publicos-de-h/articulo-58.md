@@ -1,0 +1,1 @@
+Artículo 58.—El servidor debe notificar a su jefe correspondiente, verbalmente o por escrito, las causas que le impiden asistir al trabajo dentro de las veinticuatro horas siguientes a aquella en que se inicie su ausencia, salvo fuerza mayor o caso fortuito.

@@ -1,0 +1,1 @@
+Artículo 215.—Los recursos ordinarios contra la resolución final deberán interponerse dentro de los tres días hábiles siguientes a aquél en que ésta fue notificada. Es potestativo usar ambos recursos ordinarios o uno sólo de ellos, pero será inadmisible el que se interponga pasado el término antes señalado.

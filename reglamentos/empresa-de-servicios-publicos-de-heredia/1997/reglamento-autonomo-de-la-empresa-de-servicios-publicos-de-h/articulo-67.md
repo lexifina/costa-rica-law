@@ -1,0 +1,1 @@
+Artículo 67.—Quedan relevados de la obligación de marcar la tarjeta de control de asistencia únicamente el Gerente, Asesores, Asistentes, Auditores y aquellos personas que el Gerente estime conveniente.

@@ -1,0 +1,1 @@
+Artículo 126.—De conformidad con lo dispuesto en el Código de Trabajo, la E.S.P.H., deberá notificar al Instituto Nacional de Seguros de cualquier riesgo y accidente de trabajo que sufran sus servidores dentro de los ocho días hábiles siguientes al de su acaecimiento. Dicha notificación deberá ajustarse a las formalidades que establece el citado cuerpo legal.

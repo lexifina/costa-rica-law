@@ -1,0 +1,1 @@
+Artículo 146.—El Departamento de Recursos Humanos definirá y comunicará los plazos y fechas límites para la recepción y trámite de las solicitudes de becas y de los demás documentos referidos a ellas. La presentación extemporánea o incompleta de estos documentos por parte del funcionario originará la anulación del trámite.

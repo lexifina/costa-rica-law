@@ -1,0 +1,1 @@
+Artículo 116.—Aquellos funcionarios que obtengan una calificación de "Malo" y "Muy malo" en un período, se les abrirá un proceso administrativo y no podrán ser considerados para ascensos, ni se les otorgará ninguna clase de bonificaciones ni de permisos de naturaleza facultativa. Los funcionarios calificados de "Excelente" tendrán preferencia para futuros ascensos.

@@ -1,0 +1,1 @@
+Artículo 90.—La concesión de un descanso colectivo es potestad de la Gerencia de la E.S.P.H. De ahí que éste no constituye en modo alguno, un derecho que los servidores puedan reclamar como adquirido.

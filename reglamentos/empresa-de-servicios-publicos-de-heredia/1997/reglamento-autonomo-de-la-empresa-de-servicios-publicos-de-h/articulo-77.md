@@ -1,0 +1,1 @@
+Artículo 77.—Para la atención de los trabajos que se realicen en horas no laborales como consecuencia de averías en los sistemas de energía eléctrica, alumbrado público, acueductos y alcantarillado sanitario, la E.S.P.H. para reconocer a los servidores ligados con estas actividades una retribución económica adicional denominada "disponibilidad".

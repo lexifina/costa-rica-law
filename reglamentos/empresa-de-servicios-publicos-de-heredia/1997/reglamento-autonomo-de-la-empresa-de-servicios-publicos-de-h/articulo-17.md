@@ -1,0 +1,1 @@
+Artículo 17.—El período de prueba establecido en el artículo anterior, también se aplicará a aquel servidor que sea ascendido o trasladado a desempeñar otro cargo, sea éste con mayor o igual remuneración. Durante este período podrá gestionarse el regreso del servidor a su antigua posición con las condiciones anteriores a su traslado o ascenso.

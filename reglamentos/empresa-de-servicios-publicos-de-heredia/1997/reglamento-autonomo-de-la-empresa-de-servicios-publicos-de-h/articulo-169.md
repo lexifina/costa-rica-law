@@ -1,0 +1,1 @@
+Artículo 169.—El material didáctico adquirido para ser utilizado en las actividades de capacitación será propiedad de los servidores que en ellas se incorporen. Lo anterior siempre y cuando dicho material no califique como activo de la E.S.P.H., en cuyo caso se regirá por la normativa pertinente.

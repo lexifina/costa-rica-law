@@ -1,0 +1,1 @@
+Artículo 188.—El instructor o el órgano director podrá citar a cualquier servidor de la E.S.P.H., para que declare o realice cualquier acto necesario para el desenvolvimiento normal del procedimiento disciplinario o para su decisión final. El servidor citado que, sin justa causa, no compareciere el día y hora que se le indiquen, incurrirá en responsabilidad disciplinaria.

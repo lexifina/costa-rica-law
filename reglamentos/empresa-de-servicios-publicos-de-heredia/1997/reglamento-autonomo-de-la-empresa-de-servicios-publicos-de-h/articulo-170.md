@@ -1,0 +1,1 @@
+Artículo 170.—El extravío o pérdida injustificada de cualquier material didáctico que se le entregue al funcionario con motivo de su participación en actividades de capacitación, correrá bajo su responsabilidad siendo además civilmente responsable ante la E.S.P.H.

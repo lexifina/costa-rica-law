@@ -1,0 +1,1 @@
+Artículo 72.—Las remuneraciones que deben pagarse a los servidores por conceptos tales como dedicación exclusiva, carrera profesional, disponibilidad, viáticos y similares se pagarán de acuerdo con las normas que la Empresa establecerá y cualesquiera otra disposición jurídico- administrativa que resulte aplicable.

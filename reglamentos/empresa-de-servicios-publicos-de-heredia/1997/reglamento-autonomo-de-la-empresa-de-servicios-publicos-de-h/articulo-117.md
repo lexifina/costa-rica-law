@@ -1,0 +1,1 @@
+Artículo 117.—El Comité de Evaluación estará integrado por el encargado del Departamento Legal o su delegado, el encargado del Departamento de Recursos Humanos o su delegado y un representante de los servidores o su suplente, que será elegido de conformidad con el procedimiento establecido en el artículo 124 del presente Reglamento.

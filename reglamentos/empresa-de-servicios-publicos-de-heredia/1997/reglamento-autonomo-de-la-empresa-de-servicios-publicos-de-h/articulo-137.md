@@ -1,0 +1,1 @@
+Artículo 137.—Los uniformes, ropa de trabajo, equipo de seguridad o cualquier otra prenda de vestir que sea suministrada por la E.S.P.H., a sus servidores, será en forma gratuita y no constituye salario en especie. Es responsabilidad de cada trabajador el buen uso que de ellos haga.

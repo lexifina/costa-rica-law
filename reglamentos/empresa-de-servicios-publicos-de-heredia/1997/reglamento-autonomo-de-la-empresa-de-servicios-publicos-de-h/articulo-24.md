@@ -1,0 +1,1 @@
+Artículo 24.—Las reasignaciones entrarán en vigencia a partir del primer día del mes siguiente a aquél en que fueron aprobadas. El pago de los aumentos que se produzcan con motivo de las reasignaciones de puestos quedan sujetos a que exista contenido presupuestario para poder hacerse efectivo, aun que el mismo se hará efectivo a partir de la fecha en que rigió.

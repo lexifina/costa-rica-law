@@ -1,0 +1,1 @@
+Artículo 89.—No podrán disfrutar de los días feriados o de asueto señalados en el artículo anterior, los servidores que por la índole de sus funciones deban trabajar en esos días para ejecutar tareas urgentes que no admiten posposición. En estos casos se pagara el tiempo extraordinario como lo establece el Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 124.—Todos los servidores de la E.S.P.H. están obligados a prestar a la Comisión de Salud Ocupacional y el encargado de la salud ocupacional el apoyo y la colaboración necesaria para que cumplan con su cometido.

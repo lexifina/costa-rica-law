@@ -1,0 +1,1 @@
+Artículo 134.—El encargado de Salud Ocupacional, y todos los servidores deberán velar porque todos los trabajadores que tengan la obligación de portar equipo de seguridad, lo utilicen en forma adecuada y que éste sea de óptima calidad.

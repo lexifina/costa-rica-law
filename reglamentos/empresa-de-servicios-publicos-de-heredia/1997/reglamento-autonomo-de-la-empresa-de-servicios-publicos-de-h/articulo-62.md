@@ -1,0 +1,1 @@
+Artículo 62.—La ausencia de marca en la tarjeta al inicio o término de la jornada de trabajo hará presumir la inasistencia del servidor durante ésta, a menos que justifique la omisión como máximo dentro de los tres días hábiles siguientes a aquél en que se produjo la irregularidad.

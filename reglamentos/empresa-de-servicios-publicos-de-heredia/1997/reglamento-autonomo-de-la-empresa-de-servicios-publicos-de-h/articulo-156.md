@@ -1,0 +1,1 @@
+Artículo 156.—Bajo ninguna circunstancia la E.S.P.H., sufragará los gastos de estudios realizados antes de haber sido aprobada la capacitación, ni las materias que en vigencia de ésta hayan sido reprobadas.

@@ -1,0 +1,1 @@
+Artículo 217.—El recurso de revocatoria deberá resolverse dentro de los ocho días hábiles posteriores a su presentación y el de apelación dentro de los ocho días hábiles posteriores al recibo del expediente.

@@ -1,0 +1,1 @@
+Artículo 150.—Salvo casos excepcionales, en la medida de lo posible la E.S.P.H., brindará el tiempo necesario a sus servidores para que se trasladen y participen en las actividades programadas de capacitación y no los distraerá con otras labores durante el tiempo que dure la misma.

@@ -1,0 +1,1 @@
+Artículo 47.—El tiempo extraordinario debe ser previa y expresamente autorizado por la Dirección correspondiente y por el Jefe inmediato de aquel que va a laborar las horas extra. Únicamente podrá autorizarse su pago en situaciones de calificada necesidad y urgencia.

@@ -1,0 +1,1 @@
+Artículo 212.—Contra la resolución final el servidor afectado podrá interponer los recursos ordinarios de revocatoria y apelación ante la Gerencia, la Contraloría en su caso y la Junta Directiva de la E.S.P.H., respectivamente.

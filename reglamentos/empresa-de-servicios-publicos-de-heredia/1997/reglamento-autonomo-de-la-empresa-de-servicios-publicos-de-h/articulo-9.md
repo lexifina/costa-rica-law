@@ -1,0 +1,1 @@
+Artículo 9°—La E.S.P.H., está regida por una Junta Directiva nombrada e integrada de conformidad con los términos de la Ley No 5889 del 8 de marzo de 1976 y sus reformas, teniendo las atribuciones, funciones y potestades que le otorga dicho cuerpo legal.

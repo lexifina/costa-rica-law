@@ -1,0 +1,1 @@
+Artículo 158.—La asistencia a las actividades de capacitación no escolarizadas es obligatoria. Su incumplimiento será considerado como falta grave, salvo justificación avalada por la jefatura que corresponda. Para tener opción al certificado de participación, el funcionario deberá asistir a más del 75% del tiempo lectivo programado de la actividad.

@@ -1,0 +1,1 @@
+Artículo 162.—En todos los casos el funcionario deberá rendir garantía real o fianza solidaria por persona o personas de reconocida solvencia moral y económica, para garantizar el cumplimiento de las obligaciones que asume.

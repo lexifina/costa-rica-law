@@ -1,0 +1,1 @@
+Artículo 193.—El plazo para denunciar ante el Departamento de Recursos Humanos la presunta comisión de una falta y aquél dentro del cual la Gerencia o la Contraloría en su caso, debe dictar la resolución final son perentorios e improrrogables.

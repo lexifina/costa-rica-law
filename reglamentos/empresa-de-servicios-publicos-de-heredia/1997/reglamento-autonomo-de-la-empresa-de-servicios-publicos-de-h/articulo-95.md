@@ -1,0 +1,1 @@
+Artículo 95.—Para efectos del disfrute de las vacaciones, se excluirá del cómputo los días sábado para aquellos funcionarios que tienen una jornada acumulativa de cuarenta horas. Para aquellos que tienen una jornada de cuarenta y ocho horas, dicho día de la semana si será computado.

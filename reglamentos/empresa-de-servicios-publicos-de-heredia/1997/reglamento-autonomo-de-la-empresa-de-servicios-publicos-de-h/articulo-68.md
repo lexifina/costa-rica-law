@@ -1,0 +1,1 @@
+Artículo 68.—En aquellos centros de trabajo que no dispongan de relojes marcadores o cuando éstos estuvieren averiados, el control de asistencia se verificará mediante los mecanismos que establezca Recursos Humanos.

@@ -1,0 +1,1 @@
+Artículo 219.—En todo caso y de conformidad con las disposiciones que al efecto contiene el Código de Trabajo, el servidor podrá discutir en sede judicial el acto administrativo mediante el cual la Gerencia o la Contraloría en su caso, resolvió despedir sin responsabilidad patronal o imponer cualquier otra sanción.

@@ -1,0 +1,1 @@
+Artículo 153.—El tiempo laboral que el servidor dedique a su capacitación en virtud de programas desarrollados o avalados por la E.S.P.H., le será reconocido y computado como tiempo de trabajo efectivo para todos los efectos legales que correspondan.

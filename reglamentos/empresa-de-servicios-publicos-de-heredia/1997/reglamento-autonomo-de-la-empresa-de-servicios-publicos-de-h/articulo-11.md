@@ -1,0 +1,3 @@
+CAPITULO III
+De la naturaleza y contenido de la relación de servicio
+Artículo 11.—En su relación de servicio, el servidor estará sujeto a las condiciones establecidas en el acto de su nombramiento, las cuales deberán formalizarse mediante acción de personal, lo anterior sin perjuicio de que la E.S.P.H., pueda variarlas posteriormente, dentro del marco legal del principio laboral del ius variandi, respetando los derechos laborales del funcionario. Además de las disposiciones particulares, se tendrán como incorporadas a su contrato de trabajo, las normas del presente reglamento, las contenidas en los acuerdos de la Junta Directiva y todas las demás del ordenamiento jurídico administrativo en materia de empleo público.

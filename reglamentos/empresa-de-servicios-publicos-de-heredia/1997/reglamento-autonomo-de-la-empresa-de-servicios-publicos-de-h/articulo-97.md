@@ -1,0 +1,1 @@
+Artículo 97.—Las vacaciones no podrán acumularse por más de dos períodos. Únicamente y sólo en forma excepcional se podrán acumular, cuando el servidor desempeñe labores técnicas, de dirección, de confianza u otras análogas que hagan difícil su reemplazo. A este efecto, la jefatura respectiva solicitará al Departamento de Recursos Humanos la correspondiente autorización.

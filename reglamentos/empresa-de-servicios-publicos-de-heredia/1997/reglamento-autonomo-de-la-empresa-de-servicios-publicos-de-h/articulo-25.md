@@ -1,0 +1,1 @@
+Artículo 25.—El Departamento de Recursos Humanos deberá elaborar y mantener un índice alfabético y ocupacional de la totalidad de las clases de puestos con su categoría salarial, salario base, código del manual y el monto por anualidades para aquellos pluses que integran el salario total.

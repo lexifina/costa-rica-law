@@ -1,0 +1,1 @@
+Artículo 83.—Durante el período de vacaciones, licencias o incapacidades del personal técnico disponible, el superior inmediato deberá indicar a Recursos Humanos el nombre de la persona que los reemplazará, en cuyo caso el pago por concepto de disponibilidad será proporcional.

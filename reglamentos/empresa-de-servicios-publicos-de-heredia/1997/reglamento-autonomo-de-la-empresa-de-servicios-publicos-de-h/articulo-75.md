@@ -1,0 +1,1 @@
+Artículo 75.—Todas aquellas erogaciones que por concepto de gastos de viaje y de transporte dentro y fuera del país en las que incurran los funcionarios de la E.S.P.H., se regirán por el Reglamento de Gastos de Viaje y de Transporte para funcionarios de la E.S.P.H.

@@ -1,0 +1,4 @@
+Artículo 144.—Para efectos de este reglamento se entiende por beca cualquier beneficio concedido por la E.S.P.H., a sus funcionarios, destinado a posibilitar la capacitación, profesionalización o el desarrollo de éstos. Se definen tres categorías a saber:
+a) Becas para realizar estudios escolarizados con el objeto de obtener un grado académico reconocido por las autoridades educativas del país (a nivel básico, medio o superior).
+b) Becas para realizar estudios no escolarizados (que no obedecen a una carrera determinada, ni conducen al otorgamiento de un grado académico), con el objeto de capacitar al funcionario en diversos aspectos relacionados directamente con su puesto (cursos cortos, seminarios, congresos, talleres, entre otros).
+c) Becas para realizar estudios en el exterior, sean escolarizados o no.

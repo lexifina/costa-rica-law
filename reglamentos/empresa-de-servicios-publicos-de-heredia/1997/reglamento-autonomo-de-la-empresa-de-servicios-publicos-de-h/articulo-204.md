@@ -1,0 +1,1 @@
+Artículo 204.—En la misma audiencia oral y privada del servidor investigado o después de ésta, el instructor u órgano director del procedimiento evacuara la prueba de descargo ofrecida por aquel, así como cualquier otra que estime necesaria para determinar la verdad real de los hechos.

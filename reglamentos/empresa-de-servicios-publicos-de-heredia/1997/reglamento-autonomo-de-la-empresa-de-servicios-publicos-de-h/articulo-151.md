@@ -1,0 +1,1 @@
+Artículo 151.—Cuando se trate de becas al exterior y proceda su pago, la E.S.P.H., sufragará los gastos de viáticos que correspondan, siempre y cuando no se brinde ni la alimentación ni el alojamiento por parte de quien promueve la capacitación.

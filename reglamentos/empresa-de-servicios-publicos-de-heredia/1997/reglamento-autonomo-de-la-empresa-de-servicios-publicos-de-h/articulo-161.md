@@ -1,0 +1,1 @@
+Artículo 161.—Cuando sólo se otorgue el beneficio contemplado en el inciso d) del artículo 157 del presente reglamento, sin la concesión de ningún tipo de licencia, el servidor queda obligado a prestar sus servicios a la E.S.P.H., una vez el período por ésta financiado.

@@ -1,0 +1,1 @@
+Artículo 164.—La E.S.P.H., le garantizará al funcionario la continuidad de su trabajo, cuando le conceda una licencia para realizar estudios. Para todos los efectos de su relación laboral se le reconocerá el tiempo de estudio comprendido dentro de la jornada laboral como tiempo de trabajo efectivo.

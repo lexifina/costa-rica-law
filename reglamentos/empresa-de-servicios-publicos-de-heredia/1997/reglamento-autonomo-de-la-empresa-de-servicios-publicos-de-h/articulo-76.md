@@ -1,0 +1,1 @@
+Artículo 76.—La E.S.P.H., no reconocerá los gastos señalados en el artículo anterior, cuando por tener instalaciones propias o contratos con particulares, pueda proporcionarle a sus servidores el alojamiento o la alimentación o cuando éstos acepten esos mismos servicios proporcionados por otra Institución.

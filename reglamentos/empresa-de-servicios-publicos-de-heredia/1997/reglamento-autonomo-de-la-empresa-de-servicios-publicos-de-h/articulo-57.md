@@ -1,0 +1,1 @@
+Artículo 57.—Todo servidor podrá justificar las ausencias y llegadas tardías en que incurra, a efecto de que no se le aplique la sanción correspondiente. Esto deberá hacerlo por escrito ante su jefe correspondiente dentro de los tres días hábiles siguientes a aquél en que reasumió sus funciones en caso de ausencia y durante la misma jornada de trabajo en caso de llegada tardía.

@@ -1,0 +1,1 @@
+Artículo 172.—El trabajador sujeto al compromiso laboral adquirido por contrato de estudios, podrá laborar para otro ente público, sin necesidad de cancelar suma alguna, siempre y cuando cuente con el consentimiento de la Gerencia.

@@ -1,0 +1,1 @@
+Artículo 190.—En caso de integración por laguna del presente capítulo, se aplicarán en forma supletoria, las disposiciones procedimentales de la Ley General de la Administración Pública, así como las demás normas procedimentales escritas o no escritas del ordenamiento jurídico administrativo.

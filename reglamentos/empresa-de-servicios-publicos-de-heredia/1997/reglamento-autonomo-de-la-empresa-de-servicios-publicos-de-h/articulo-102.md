@@ -1,0 +1,1 @@
+Artículo 102.—El Jefe inmediato de cada servidor será el encargado de extender los permisos, para aquellos trabajadores que participan en actividades sindicales debidamente legalizadas en la E.S.P.H., tales como asambleas generales y sesiones de Junta Directiva, entre otras.

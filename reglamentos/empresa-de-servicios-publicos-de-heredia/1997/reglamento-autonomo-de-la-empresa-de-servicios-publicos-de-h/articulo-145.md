@@ -1,0 +1,1 @@
+Artículo 145.—La E.S.P.H., otorgará o convalidará certificados de asistencia o de aprobación, según corresponda y defina el Departamento de Recursos Humanos. Los criterios en que se fundamentará para determinarlo serán la naturaleza y características de la actividad, su duración y el sistema de evaluación utilizado.

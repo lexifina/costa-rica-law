@@ -1,0 +1,1 @@
+Artículo 61.—El servidor debe marcar personalmente la tarjeta de control de asistencia a él asignada, cuidando que quede impresa con claridad. Las marcas que exhiban defectos o manchas no atribuibles a desperfectos del reloj marcador se tendrán por no hechas, salvo prueba en contrario.

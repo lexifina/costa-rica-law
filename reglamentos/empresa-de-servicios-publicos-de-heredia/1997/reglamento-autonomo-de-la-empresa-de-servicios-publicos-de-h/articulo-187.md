@@ -1,0 +1,1 @@
+Artículo 187.—En el procedimiento disciplinario se deberán verificar los hechos que sirven de motivo al acto final en la forma más fiel y completa posible, para lo cual el instructor deberá adoptar todas las medidas probatorias pertinentes o necesarias, aún si no han sido propuestas por las partes.

@@ -1,0 +1,1 @@
+Artículo 107.—El otorgamiento de permisos y becas para estudios se regirá por lo que disponga el capítulo denominado "De las Becas para Capacitación y Desarrollo de Personal" y por las demás disposiciones afines con la materia, que rigen en la E.S.P.H.
