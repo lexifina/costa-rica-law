@@ -1,0 +1,3 @@
+GARANTÍAS
+Artículo 14.—Todo interesado en participar en la negociación de bienes a que se refiere este reglamento, sea como comprador o como vendedor, deberá presentar una garantía de participación por el monto, plazo y demás condiciones que establezca la bolsa. El monto máximo que podrá fijarse para la garantía de participación será de un cinco por ciento de la oferta.
+Una vez establecido el contrato en firme, los contratantes deberán sustituir la garantía de participación por una garantía de cumplimiento, en los términos que la bolsa establezca. El monto máximo que podrá fijarse para la garantía de cumplimiento será de un diez por ciento del monto del contrato.

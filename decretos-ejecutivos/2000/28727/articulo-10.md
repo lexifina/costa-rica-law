@@ -1,0 +1,1 @@
+Artículo 10.—Las ofertas de compra o venta podrán ser aceptadas por cualquier puesto de bolsa, constituyéndose así un contrato preliminar que para su perfeccionamiento debe ser llevado a remate público.

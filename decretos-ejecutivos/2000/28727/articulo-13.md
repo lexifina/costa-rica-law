@@ -1,0 +1,3 @@
+Artículo 13.—Una vez registrada la operación, el puesto de bolsa vendedor deberá comunicar a la bolsa el nombre del vendedor y el puesto de bolsa comprador deberá comunicar a la bolsa el nombre del comprador, con el fin de que la bolsa emita al comprador una certificación indicando los términos de la negociación con base en la cual se adjudica la respectiva cuota.
+En dicha certificación, sin perjuicio de los requisitos que usualmente exija la bolsa, deberá hacerse constar el plazo de vigencia para la importación, conforme con lo dispuesto en el artículo 6° de este Reglamento.
+La certificación indicada será requisito indispensable para que la Dirección General de Aduanas del Ministerio de Hacienda aplique la tarifa arancelaria reducida.

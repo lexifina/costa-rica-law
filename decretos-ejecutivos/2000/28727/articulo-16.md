@@ -1,0 +1,2 @@
+Artículo 16.—La bolsa deberá llevar un control de los volúmenes de las cuotas de importación asignadas, de manera que en ningún momento las asignaciones excedan el volumen puesto a disposición del público en el decreto ejecutivo correspondiente.
+Asimismo, deberá llevar un control de las importaciones efectivamente realizadas, en coordinación con la Dirección General de Aduanas del Ministerio de Hacienda.

@@ -1,0 +1,1 @@
+Artículo 9º—Sin perjuicio de los demás requisitos que usualmente exija la bolsa, en toda oferta se deberá indicar claramente el precio que el oferente cotiza para el producto, incluyendo el costo del producto, el arancel aplicable, los gastos de internación y cualquier otro gasto que se estime necesario.

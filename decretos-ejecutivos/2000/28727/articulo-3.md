@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio de Agricultura y Ganadería tendrá la responsabilidad de declarar, con suficiente anticipación la situación de desabastecimiento a efecto de permitir la utilización de este mecanismo.

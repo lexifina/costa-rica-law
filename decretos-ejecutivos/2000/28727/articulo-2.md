@@ -1,0 +1,1 @@
+Artículo 2º—Las disposiciones de este Reglamento son de aplicación en los casos en que el Poder Ejecutivo establezca cuotas de importación, con una tarifa arancelaria reducida, para atender situaciones de desabastecimiento de bienes agropecuarios.

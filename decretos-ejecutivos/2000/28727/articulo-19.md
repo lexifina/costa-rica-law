@@ -1,0 +1,1 @@
+Artículo 19.—Las situaciones no previstas expresamente en este Reglamento serán resueltas con base en las normas y principios de la Ley General de la Administración Pública, la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Nº 7472, los usos y reglamentos de la bolsa y las demás normas y principios aplicables.
