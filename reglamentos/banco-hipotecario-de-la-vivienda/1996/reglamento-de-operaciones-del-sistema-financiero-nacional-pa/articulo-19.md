@@ -1,0 +1,2 @@
+Artículo 19.—Análisis de crédito: Recibida la solicitud por la Entidad Autorizada, ésta deberá velar porque la información sea veraz y completa y efectuar con la máxima diligencia el análisis de crédito. cumplido lo cual aprobará el crédito o el subsidio si ello fuera procedente.
+La Entidad Autorizada debe verificar el cumplimiento por parte de la familia solicitante de las disposiciones de la Ley. este reglamento y demás normas emitidas por el Banco.

@@ -1,0 +1,1 @@
+Artículo 92.—Otras disposiciones aplicables a la recalificación de precios: La fijación de precios y la recalificación de los mismos debe establecerse de conformidad con los criterios previstos en los artículos 171, 172 y 173 de la Ley del Sistema.

@@ -1,0 +1,1 @@
+Artículo 39.—Porcentaje máximo de financiamiento: De conformidad con las características de cada programa, la Junta Directiva determinará el monto de la respectiva asistencia financiera, la cual podrá ser de hasta un noventa por ciento del valor del proyecto, y en casos de excepción hasta de un cien por ciento del mismo.

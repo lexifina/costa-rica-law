@@ -1,0 +1,4 @@
+Artículo 129.—Requisitos y condiciones de la garantía: La Garantía se solicitará únicamente tratándose del desarrollo de conjuntos habitacionales debidamente calificados, de acuerdo con las siguientes reglas:
+a) Se rendirá por medio de cheque certificado, certificado de depósito, pagaré, letras de cambio. Bonos de garantía del Instituto Nacional de Seguros o de los bancos del Sistema Bancario Nacional o cualquier otro tipo de garantía, a satisfacción y bajo la responsabilidad de la Entidad Autorizada.
+b) La garantía deberá conservarse en la Entidad autorizada correspondiente, bajo su responsabilidad, y copia de la misma se incorporará al expediente del proyecto.
+c) Si se incumplieren las condiciones bajo las cuales se emitió la respectiva declaratoria de interés social, la Entidad Autorizada entregará la garantía al Ministerio de Hacienda, para que se proceda a su ejecución, sin perjuicio de la aplicación de otras sanciones que sean procedentes.

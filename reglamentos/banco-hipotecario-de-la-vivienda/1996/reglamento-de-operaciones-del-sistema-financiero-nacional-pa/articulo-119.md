@@ -1,0 +1,5 @@
+Artículo 119.—Cuota de Partida: En el momento en que el beneficiario se incorpore al sistema de cuota real, la cuota de partida no puede ser mayor al 30% del ingreso familiar efectivo.
+Para determinar la cuota de partida aplicable la Entidad Autorizada puede seguir cualquiera de los siguientes procedimientos:
+a) Utilizar el ingreso declarado al momento de realizar la operación, actualizándolo con el índice mensual de salarios mínimos, entre el momento de la firma y la fecha correspondiente.
+b) En casos muy calificados, a juicio de la Entidad Autorizada, la familia puede actualizar sus certificaciones de ingresos para demostrar cuál es su nivel de ingreso familiar efectivo. También podrá acordar algún nivel distinto entre la Entidad Autorizada y el beneficiario, siempre y cuando sean menores del límite del 30%.
+En algunos casos la cuota de partida puede implicar que durante algún tiempo la amortización sea negativa en un monto razonable a juicio de la Entidad Autorizada, o bien podría implicar un mecanismo de prórroga o reducción del plazo originalmente pactado.

@@ -1,0 +1,2 @@
+Artículo 157.—Fondo de Contingencias. Mediante acuerdo de su Junta Directiva, el Banco establecerá las disposiciones operativas mediante las cuales operará el fondo de contingencias de las cuentas de ahorro y la forma de administración de sus recursos.
+(Derogado mediante artículo 25 del Reglamento del Sistema Financiero Nacional para la Vivienda sobre las Garantías de los Títulos Valores, Cuentas de Ahorro y Fondo de Garantías de Estabilización, aprobado por la junta Directiva del Banco Hipotecario de la Vivienda en sesión N° 21-2001 de 14 de marzo de 2001).

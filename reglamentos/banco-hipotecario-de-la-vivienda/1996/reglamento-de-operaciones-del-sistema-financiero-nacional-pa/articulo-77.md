@@ -1,0 +1,1 @@
+Artículo 77.—Potestades del Banco. El Banco, por medio de la Junta Directiva, tendrá amplias facultades para determinar las normas y procedimientos administrativos, técnicos y metodológicos requeridos para la aplicación de lo dispuesto en este Reglamento.

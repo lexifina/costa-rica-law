@@ -1,0 +1,3 @@
+Artículo 144.—Contratos de Participación Hipotecaría: Los Contratos de Participación Hipotecaria individuales deberán ser traspasados por medio de cesión según lo dispuesto en la Ley del Sistema.
+Los Contratos de Participación Hipotecaria con garantía global, sin perjuicio de ser traspasados por cesión, pueden ser traspasados por medio de endoso. Empero, en caso de ser nominativos el endoso también debe ser nominativo.
+(Derogado mediante artículo 25 del Reglamento del Sistema Financiero Nacional para la Vivienda sobre las Garantías de los Títulos Valores, Cuentas de Ahorro y Fondo de Garantías de Estabilización, aprobado por la junta Directiva del Banco Hipotecario de la Vivienda en sesión N° 21-2001 de 14 de marzo de 2001).

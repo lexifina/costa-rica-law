@@ -1,0 +1,1 @@
+Artículo 29.—Preferencia por la autoconstrucción: Para el presente programa se podrá dar preferencia a los proyectos de vivienda que se construyan bajo el sistema de autoconstrucción dirigida, en la forma prevista por las presentes normas.

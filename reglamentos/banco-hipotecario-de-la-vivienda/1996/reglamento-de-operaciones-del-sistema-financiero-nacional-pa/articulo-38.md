@@ -1,0 +1,1 @@
+Artículo 38.—Proyectos Elegibles: Para recibir los beneficios de los programas regulados por el presente reglamento, el proyecto deberá ser presentado al BANHVI por la Entidad Autorizada, cumpliendo con los requisitos usuales y debidamente documentado. En todo caso. sólo serán elegibles aquellos proyectos que contribuyan a cumplir con los objetivos previstos por la Ley.

@@ -1,0 +1,6 @@
+SECCIÓN II
+Trámites y condiciones operativas
+Artículo 52.—Características: Los inmuebles susceptibles de ser incluidos dentro del programa de compra de lote regulado por estas normas, deberán contar al menos con las siguientes características:
+a) Deberán reunir los requisitos mínimos para construir en él una vivienda habitable, para lo cual ésta deberá contar al menos con los servicios básicos de agua, sistemas de evacuación o disposición de aguas negras y pluviales y acceso, lo mismo que con los permisos o visados municipales correspondientes.
+b) Debe contar con condiciones topográficas adecuadas para la futura construcción de la vivienda. No debe estar ubicado en zonas de alto riesgo de conformidad con declaratorias y estudios que de la región hayan hecho las autoridades competentes en la materia, según lo determine la Entidad Autorizada.
+c) Con la única excepción que se dirá. el inmueble deberá estar debidamente inscrito y al momento de la formalización debe estar libre de litigios, gravámenes y anotaciones que impidan la formalización e inscripción de la operación, lo mismo que con los impuestos de todo tipo al día. Para el presente programa se podrán aplicar sin embargo las disposiciones previstas en el artículo 10 del presente reglamento.

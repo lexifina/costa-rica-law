@@ -1,0 +1,1 @@
+Artículo 115.—Sanciones a las Entidades Autorizadas, desarrolladores y beneficiarios: Cuando el BANHVI. en el ejercicio de sus funciones auxiliares de fiscalización y supervisión detectare irregularidades cometidas por Entidades Autorizadas, desarrolladores o beneficiarios, procederá a comunicarlo así a las autoridades competentes para los efectos que correspondan.

@@ -1,0 +1,1 @@
+Artículo 102.—Garantías. Las Entidades Autorizadas otorgarán su financiamiento con garantía hipotecaria de primer grado sobre el inmueble. Podrá aceptarse hipoteca de segundo grado, cuando el acreedor de primer grado sea un ente publico u otra Entidad Autorizada del Sistema. Asimismo, se admitirán otro tipo de garantías dentro de programas expresamente autorizados por el BANHVI.

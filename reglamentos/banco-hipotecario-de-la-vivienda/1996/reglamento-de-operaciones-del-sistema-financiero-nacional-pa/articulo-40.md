@@ -1,0 +1,4 @@
+Artículo 40.—Disposición de los recursos anuales del FOSUVI: La Junta Directiva dispondrá mediante acuerdo, de un veinte por ciento de los recursos anuales del FOSUVI para su aplicación en los presentes programas. De dicho porcentaje un ochenta por ciento estará destinado a los siguientes dos programas:
+1) Para programas de erradicación de tugurios y asentamientos en precario, y
+2) Para situaciones de emergencia y extrema necesidad, a que se refieren la sección segunda y cuarta del presente capítulo, respectivamente. Consecuentemente el resto, sea un veinte por ciento, se destinará al programa para grupos organizados, contemplado en la sección tercera de este capítulo.
+Se entiende que cuando en la formalización de operaciones en el largo plazo se otorgaren recursos del FOSUVI no amparados a los programas deteste capítulo, dicha formalización no se deducirá del porcentaje del veinte por ciento citado en la primera frase del párrafo anterior.

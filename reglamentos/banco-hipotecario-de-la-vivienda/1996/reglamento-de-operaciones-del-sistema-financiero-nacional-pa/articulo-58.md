@@ -1,0 +1,1 @@
+Artículo 58.—Mecanismo general de operación: El Banco por medio de las Entidades Autorizadas respectivas y según sus posibilidades presupuestarias, concederá a las Juntas de Educación correspondientes, a título de subsidio, el Bono Familiar de Vivienda para la Construcción de Viviendas Escolares en escuelas rurales que cuenten con no más de tres aulas.

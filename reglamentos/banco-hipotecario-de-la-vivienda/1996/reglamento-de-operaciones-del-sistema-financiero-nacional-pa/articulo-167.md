@@ -1,0 +1,5 @@
+TITULO QUINTO
+CAPITULO ÚNICO
+Disposiciones Finales
+Artículo 167.—Otras obligaciones de la Entidad Autorizada: Se entiende que las disposiciones contenidas en el presente Reglamento sobre financiamiento, otorgamiento de garantías y autorización para la emisión de títulos valores, se acordarán y mantendrán de parte del BANHVI, en el tanto la respectiva Entidad Autorizada cumpla y continúe cumpliendo cabalmente con las leyes, reglamentos, directrices y demás normas del Sistema o ajenas al mismo que le fueren aplicables a la respectiva Entidad.
+El incumplimiento injustificado, o la modificación negativa de las condiciones financieras y administrativas de la Entidad Autorizada podrá dar lugar a la modificación, suspensión o variación de las garantías o beneficios otorgados, sin perjuicio de la aplicación de las cláusulas penalizantes o sancionatorias contenidas en los respectivos contratos entre el BANHVI y la Entidad Autorizada, y sin perjuicio de otras sanciones que al efecto sean procedentes.

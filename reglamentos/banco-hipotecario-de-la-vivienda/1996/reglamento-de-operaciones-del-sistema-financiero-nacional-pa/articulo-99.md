@@ -1,0 +1,1 @@
+Artículo 99.—Modalidades de financiamiento: Las modalidades de financiamiento serán: compra de lote, compra de lote y construcción, compra de vivienda existente, construcción en lote propio, mejoras, reparaciones o ampliaciones y cancelación de gravámenes.

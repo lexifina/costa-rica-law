@@ -1,0 +1,1 @@
+Artículo 56.—Aceptación de las obligaciones: Todos los beneficiarios deberán aceptar expresamente las obligaciones previstas por este programa por medio de las cláusulas contractuales que deberán incluirse en las respectivas escrituras, según las instrucciones que al efecto gire el Banco.

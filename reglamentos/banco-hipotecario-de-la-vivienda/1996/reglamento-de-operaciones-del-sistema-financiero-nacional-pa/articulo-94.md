@@ -1,0 +1,1 @@
+Artículo 94.—Cobro de primas y otras sumas: El cobro de cualquier suma por adelantado -independientemente de su denominación-, está permitido bajo la responsabilidad exclusiva del Desarrollador y del beneficiario, sin responsabilidad para el Banco y la Entidad Autorizada.

@@ -1,0 +1,1 @@
+Artículo 34.—Canalización de los recursos: La Junta Directiva decidirá en cada caso la forma en que se podrán canalizar los recursos del presente programa y las condiciones en que se otorgan, entendiéndose que al efecto rigen los mismos principios citados en el artículo 23 del presente reglamento.

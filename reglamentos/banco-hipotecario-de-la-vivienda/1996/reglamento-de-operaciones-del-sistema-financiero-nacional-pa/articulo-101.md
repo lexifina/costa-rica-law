@@ -1,0 +1,1 @@
+Artículo 101.—Porcentaje de financiamiento. El porcentaje máximo de financiamiento será en todo caso el 95% del valor tasado de la solución habitacional. salvo casos de extrema necesidad o de emergencia en que podrá financiarse hasta un ciento por ciento, y otros casos previstos expresamente por las disposiciones del Sistema.

@@ -1,0 +1,1 @@
+Artículo 4°—Beneficios. Los beneficios del FOSUVI se otorgarán por medio del Bono Familiar de Vivienda o de los demás subsidios previstos en la Ley y en el presente Reglamento. Se entiende que el Bono Familiar de Vivienda es una modalidad de subsidio, mas no la única que se podrá aplicar con base en el FOSUVI.

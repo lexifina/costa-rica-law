@@ -1,0 +1,1 @@
+Artículo 43.—Personas con impedimentos físicos: Los casos de las personas con impedimentos físicos y que reunieren los requisitos previstos en el párrafo primero del artículo 59 de la Ley, se tramitarán en forma individual de conformidad con el procedimiento establecido para la tramitación usual del Bono.

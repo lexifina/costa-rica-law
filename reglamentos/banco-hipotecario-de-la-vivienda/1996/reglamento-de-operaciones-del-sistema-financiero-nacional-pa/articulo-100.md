@@ -1,0 +1,1 @@
+Artículo 100.—Sujetos de crédito. Podrán ser sujetos de crédito las personas físicas o jurídicas que requieran de una de las modalidades de crédito previstas en el artículo anterior. En igualdad de condiciones, tendrán preferencia las solicitudes de los núcleos familiares, sobre las de personas jurídicas.

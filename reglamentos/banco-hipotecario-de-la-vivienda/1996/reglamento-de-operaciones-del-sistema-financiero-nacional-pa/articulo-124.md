@@ -1,0 +1,1 @@
+Artículo 124.—Procedimiento: Tratándose de viviendas individuales, de conjuntos habitacionales, proyectos de erradicación de tugurios, asentamientos en precario y situaciones de emergencia la Entidad Autorizada promotora del proyecto, emitirá la respectiva declaratoria.

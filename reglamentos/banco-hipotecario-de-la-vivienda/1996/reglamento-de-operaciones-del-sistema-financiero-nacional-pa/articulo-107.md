@@ -1,0 +1,2 @@
+Artículo 107.—Prohibición de otorgar subsidios y declaratorias de interés social: En ningún caso los créditos a que se refieren las presentes normas podrán ser acompañadas del otorgamiento de subsidios.
+Asimismo, ninguna propiedad financiada mediante este programa será susceptible de ser declarada como de interés social, aunque su precio máximo fuere igual o menor al vigente para la emisión de ese beneficio.

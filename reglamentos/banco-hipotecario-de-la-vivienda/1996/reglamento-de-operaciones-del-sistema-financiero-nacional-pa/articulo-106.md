@@ -1,0 +1,2 @@
+Artículo 106.—Solicitantes que hubieren recibido bono: Las personas físicas que hubieren sido beneficiarías del Bono Familiar de Vivienda, podrán optar por los beneficios del presente programa previa devolución del monto original que hubieren recibido por dicho subsidio.
+Los casos en que se demuestre disolución del grupo familiar y la creación de nuevos grupos familiares por razones tales como divorcio, la separación judicial y el matrimonio, se regirán por las normas usuales del Sistema.

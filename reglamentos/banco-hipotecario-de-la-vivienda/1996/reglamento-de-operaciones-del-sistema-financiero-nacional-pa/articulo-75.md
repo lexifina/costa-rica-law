@@ -1,0 +1,1 @@
+Artículo 75.—Pólizas: La Entidad Autorizada será responsable porque toda vivienda subsidiada sea asegurada por su valor real. con las pólizas al costo de acuerdo con la Ley. Se exceptúan aquellos casos en que sea absolutamente imposible la suscripción de la póliza, debido a disposiciones del Instituto Nacional de Seguros.

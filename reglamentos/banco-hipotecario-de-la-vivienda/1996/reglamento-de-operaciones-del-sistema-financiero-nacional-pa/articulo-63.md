@@ -1,0 +1,1 @@
+Artículo 63.—Régimen de vivienda escolar: Las viviendas construidas al amparo del presente programa quedarán sometidas de pleno derecho al régimen de las Viviendas Escolares, de acuerdo con la normativa que al efecto dicte el Poder Ejecutivo.

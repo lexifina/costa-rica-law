@@ -1,0 +1,1 @@
+Artículo 16.—Solicitud: El trámite para obtener el Bono o el subsidio se iniciará mediante una solicitud presentada ante la Entidad Autorizada, en los formularios establecidos al efecto por el BANHVI, solicitud a la cual se adjuntarán los demás documentos que al efecto se determinen.

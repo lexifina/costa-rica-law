@@ -1,0 +1,1 @@
+Artículo 140.—Corrección de las deficiencias: Cuando el caso lo, amerite, el Banco podrá exigir a la Entidad respectiva, la adopción medidas tendientes a corregir las causas de la deficiencia de liquidez, cuales serán de acatamiento obligatorio y se harán constar en respectivos contratos, sin perjuicio de las medidas que en el mismo serán les hayan señalado otras autoridades.

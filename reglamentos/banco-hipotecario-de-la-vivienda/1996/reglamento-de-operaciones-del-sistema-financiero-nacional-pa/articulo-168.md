@@ -1,0 +1,1 @@
+Artículo 168.—Sobre la fiscalización y supervisión a las Entidades Autorizadas: El Banco realizará funciones de fiscalización como auxiliar de la Superintendencia de Entidades Financieras, en los términos que defina la respectiva reglamentación.

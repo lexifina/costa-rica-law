@@ -1,0 +1,1 @@
+Artículo 78.—Operaciones donde no medie crédito: Cada Entidad Autorizada deberá velar por el control y fiscalización de las operaciones formalizadas por ella, en las cuales sólo mediaren recursos del Bono Familiar de Vivienda.

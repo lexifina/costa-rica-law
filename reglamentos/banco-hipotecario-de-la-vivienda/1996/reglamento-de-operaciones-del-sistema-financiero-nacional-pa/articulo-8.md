@@ -1,0 +1,4 @@
+Artículo 8°—Otras propiedades: No podrán otorgarse los beneficios del FOSUVI a una familia cuando alguno de sus miembros aparezca como propietario de un inmueble, salvo los casos en que el subsidio sea para construcción en lote propio o para reparaciones o ampliaciones. Sin embargo, la propiedad con que se cuente en ese momento do se tomará en cuenta si se da alguna de las circunstancias siguientes:
+a) Es habitada por el primer núcleo familiar, tratándose de un divorciado o separado judicial o de hecho.
+b) Constituye un derecho no localizable, o una finca no apta para construcción de vivienda.
+c) Si es de uso agropecuario y no es conveniente edificar en ella la vivienda por afectarse significativamente la producción y con ello el ingreso familiar, supuesto similar a los anteriores, a criterio de la Entidad Autorizada.

@@ -1,0 +1,1 @@
+Artículo 135.—Mecanismos y condiciones del descuento: Al proceder al descuento de todo o parte de la cañera hipotecaria de las Entidades Autorizadas, el BANHVI y la respectiva Entidad suscribirán un contrato de descuento de hipotecas, de acuerdo con las condiciones generales que para este tipo de financiamiento haya acordado la Junta Directiva del Banco.

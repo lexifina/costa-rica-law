@@ -1,0 +1,1 @@
+Artículo 136.—Procedimiento de descuento: Los créditos presentados por las Entidades Autorizadas ante el BANHVI para su descuento se regirán por lo establecido en los artículos 119 a 131 de la Ley del Sistema, y las demás disposiciones contractuales que al efecto se indiquen en el documento correspondiente.

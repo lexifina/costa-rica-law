@@ -1,0 +1,1 @@
+Artículo 12.—Bono o Subsidio parcial: El Bono o subsidio parcial se define en función inversa al ingreso familiar de acuerdo con las tablas que para tal efecto elabore el BANHVI. Se otorgará a las familias elegibles cuyo ingreso exceda una vez el salario mínimo.

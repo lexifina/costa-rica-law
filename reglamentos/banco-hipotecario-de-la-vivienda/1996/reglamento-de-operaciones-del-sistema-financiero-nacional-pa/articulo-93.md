@@ -1,0 +1,3 @@
+SECCIÓN III
+Obligaciones de los desarrolladores
+Artículo 93.—Obligación general: Los desarrolladores de proyectos dentro del Sistema están obligados a respetar las condiciones técnicas y financieras del proyecto, tal y como hayan sido aprobadas por la Entidad Autorizada, y como consten en el contrato respectivo, incluyendo el tipo de acabados y precio de las viviendas, y deberán respetar fielmente todas las demás disposiciones legales y reglamentarias del Sistema. El incumplimiento podrá dar lugar a que la Entidad acreedora tenga por vencida y exigible la totalidad de la obligación, sin perjuicio de las demás responsabilidades pertinentes.

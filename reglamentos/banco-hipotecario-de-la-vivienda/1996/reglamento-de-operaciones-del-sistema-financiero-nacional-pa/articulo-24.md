@@ -1,0 +1,3 @@
+SECCIÓN II
+Programa para la Erradicación de Tugurios y Asentamientos en precario
+Artículo 24.—Sujetos de Crédito o de Subsidio: La asistencia financiera para el programa de erradicación de tugurios y asentamientos en precario se podrá aplicar en proyectos que cumplan con las calificaciones y directrices que al efecto establezca la Junta Directiva, siempre y cuando los ingresos de cada núcleo familiar sean iguales o inferiores a un salario y medio mínimo de un obrero no especializado de la industria de la construcción. También se podrá otorgar esta asistencia financiera para la tramitación de casos individuales en la forma dispuesta por las presentes normas.

@@ -1,0 +1,1 @@
+Artículo 30.—Responsabilidad de la Entidad Autorizada: Cada Entidad Autorizada será la responsable de elegir a cada grupo organizado. aprobar su proyecto, cuando proceda, presentarlo ante el Banco en la forma que determine este reglamento, y fiscalizar las tareas de dicho grupo y las de los profesionales que la organización asignare al proyecto como responsables de las obras.

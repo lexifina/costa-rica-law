@@ -1,0 +1,1 @@
+Artículo 82.—Porcentaje de crédito: La Entidad Autorizada podrá otorgar crédito interino al desarrollador de un proyecto hasta por los porcentajes máximos que señalen la ley y las disposiciones del Banco.

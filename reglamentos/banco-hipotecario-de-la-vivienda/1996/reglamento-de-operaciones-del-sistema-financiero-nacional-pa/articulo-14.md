@@ -1,0 +1,1 @@
+Artículo 14.—Ajuste: El monto del Bono o del subsidio se determinará con base en la información y los parámetros vigentes al ser presentada la solicitud ante la Entidad Autorizada. El monto del Bono o del subsidio se podrá ir ajustando de conformidad con la metodología aprobada por la Junta Directiva.

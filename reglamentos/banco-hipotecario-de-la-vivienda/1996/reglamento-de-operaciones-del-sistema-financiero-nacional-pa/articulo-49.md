@@ -1,0 +1,4 @@
+Artículo 49.—Condiciones financieras y operativas: Las normativas financieras y operativas, tasas de interés, garantías, plazos de operaciones de crédito, comisiones u otras de similar naturaleza que se apliquen para el presente programa de financiamiento, se regirán de acuerdo con las condiciones usuales establecidas para el Sistema.
+No será obligatorio el otorgamiento de créditos dentro de este programa para los siguientes casos:
+a) Para los beneficiarios cuyos ingresos familiares fueren iguales o inferiores a un salario mínimo de un obrero no especializado de la industria de la construcción.
+b) Para el caso de los beneficiarios que se encontraren dentro de las situaciones previstas por el artículo 22 inciso c) del presente reglamento, entendiéndose que se incluyen en este grupo y/o beneficiarios de adjudicaciones y arrendamientos del Instituto Nacional de Vivienda y Urbanismo y del Instituto Mixto de Ayuda Social.

@@ -1,0 +1,1 @@
+Artículo 6°—Nacionalidad: Además de los nacionales, podrán ser beneficiarios del FOSUVI los extranjeros cuyo status migratorio y circunstancias familiares y laborales demuestren perspectivas razonables de residir en forma legal y permanente en el país, contando con sus respectivas fuentes de ingresos.

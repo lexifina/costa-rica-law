@@ -1,0 +1,2 @@
+Artículo 159.—Administración del Fondo: La administración del Fondo corresponderá al Banco por medio de su Junta Directiva, la cual revisara y actualizara las políticas del Fondo de Estabilización, y evaluará periódicamente sus resultados.
+(Derogado mediante artículo 25 del Reglamento del Sistema Financiero Nacional para la Vivienda sobre las Garantías de los Títulos Valores, Cuentas de Ahorro y Fondo de Garantías de Estabilización, aprobado por la junta Directiva del Banco Hipotecario de la Vivienda en sesión N° 21-2001 de 14 de marzo de 2001).

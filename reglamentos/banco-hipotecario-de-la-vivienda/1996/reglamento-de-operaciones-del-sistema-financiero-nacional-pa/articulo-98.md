@@ -1,0 +1,1 @@
+Artículo 98.—Financiamiento: El análisis y la aprobación de los créditos individuales será responsabilidad exclusiva de la Entidad Autorizada, la cual con sus recursos otorgará financiamiento a las personas físicas o jurídicas que cumplan con los requisitos correspondientes.

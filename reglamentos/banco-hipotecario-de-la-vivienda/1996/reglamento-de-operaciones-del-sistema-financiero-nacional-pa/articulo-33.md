@@ -1,0 +1,1 @@
+Artículo 33.—Planes de inversión: Los subsidios directos y los créditos subsidiados que se otorguen para el presente programa deberán ser destinados exclusivamente para la reparación, reconstrucción y construcción de viviendas dañadas o destruidas, total o parcialmente, por hechos del hombre o de la naturaleza.

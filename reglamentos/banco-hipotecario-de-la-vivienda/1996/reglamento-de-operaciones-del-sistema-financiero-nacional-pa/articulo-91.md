@@ -1,0 +1,2 @@
+Artículo 91.—Recalificación de precios: Las recalificaciones de precios de los proyectos deberán ser aprobadas en cada caso por la Entidad Autorizada.
+El plazo máximo de recalificación será el del periodo constructivo aprobado. Las recalificaciones servirán para ajustar y registrar el nuevo valor de las viviendas. Todo recalificación debe ser comunicada inmediatamente el BANHVI. Se entiende que es posible recalificar los precios por la realización de obras adicionales.

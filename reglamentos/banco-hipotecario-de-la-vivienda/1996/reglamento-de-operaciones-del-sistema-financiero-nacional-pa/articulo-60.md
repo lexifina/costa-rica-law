@@ -1,0 +1,1 @@
+Artículo 60.—Función del Ministerio del ramo: De acuerdo con las normas que al efecto emita el Poder Ejecutivo, con el Ministerio del ramo se coordinara todo lo referente a las necesidades de construcción de viviendas escolares que al efecto se presenten.

@@ -1,0 +1,1 @@
+Artículo 27.—Casos individuales. Tramitación: Las familias que cumplieren con los requisitos que al efecto exige este programa y que desearen tramitar su caso en forma individual, tanto para el área urbana como rural, harán sus solicitudes por medio de las respectivas Entidades Autorizadas, las cuales tramitarán su caso de acuerdo con las normas establecidas en este Reglamento.

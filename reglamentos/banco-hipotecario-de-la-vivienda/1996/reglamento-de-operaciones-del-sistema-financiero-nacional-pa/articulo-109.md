@@ -1,0 +1,4 @@
+SECCIÓN III
+Trámite y condiciones operativas
+Artículo 109.—Aprobación de los créditos. Corresponde a las Entidades Autorizadas . por medio de los órganos designados al efecto, aprobar o improbar las solicitudes de crédito para vivienda que le sean formuladas. La aprobación de los créditos individuales se regirá, en lo que corresponda, por las normas generales contenidas en el presente reglamento. Todo trámite de supervisión y fiscalización en las obras de urbanización o de construcción, es responsabilidad de la Entidad Autorizada.
+Las condiciones financieras de las operaciones de crédito a que se refieren las presentes normas y el número en que se pueden realizar las mismas, serán fijadas por cada Entidad, para lo cual deberán observar las regulaciones que al efecto hayan emitido otras autoridades competentes en la materia.

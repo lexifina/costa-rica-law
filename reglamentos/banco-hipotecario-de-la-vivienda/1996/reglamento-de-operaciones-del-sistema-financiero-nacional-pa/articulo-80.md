@@ -1,0 +1,1 @@
+Artículo 80.—Origen del financiamiento: El financiamiento de los proyectos será responsabilidad de la Entidad Autorizada, quien con sus recursos podrá otorgar crédito interino a los desarrolladores que cumplan los requisitos correspondientes.

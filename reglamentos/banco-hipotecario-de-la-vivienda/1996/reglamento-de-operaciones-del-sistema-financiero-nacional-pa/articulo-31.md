@@ -1,0 +1,3 @@
+SECCIÓN IV
+Programa para situaciones de emergencia y extrema necesidad
+Artículo 31.—Definición: Se entienden como sinónimos los conceptos "situaciones de emergencia y extrema necesidad", las cuales se presentan cuando en una vivienda o en un grupo de viviendas ocurra un hecho grave producto del hombre o de la naturaleza, que requiera en forma inmediata y urgente su reparación o reconstrucción total o parcial, a criterio de la Junta Directiva. Se entiende que dentro del concepto de reparación o reconstrucción se encuentran incluidas las obras y servcios complementarios de la vivienda y las que estén destinadas a velar por la seguridad y salubridad del inmueble y de sus moradores.
