@@ -1,0 +1,1 @@
+Artículo 14.-Las partidas específicas no podrán destinarse ni en todo ni en parte a la remuneración de personal permanente de las entidades que las reciban, excepto que se trate de personal contratado temporalmente para laborar específicamente en la obra o servicio que la partida financia.

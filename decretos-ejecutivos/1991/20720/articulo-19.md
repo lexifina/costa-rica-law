@@ -1,0 +1,1 @@
+Artículo 19.-La Comisión Presidencial deberá reunirse al menos una vez por mes y cuando sea convocada por su Presidente. El quórum lo constituye tres miembros y sus decisiones se tomarán por mayoría simple. En caso de empate, decidirá el voto su Presidente.

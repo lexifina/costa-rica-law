@@ -1,0 +1,7 @@
+Artículo 13.-Las entidades públicas o privadas que recibieren sumas por concepto de partidas específicas, deberán cumplir con los siguientes requisitos:
+a) Para aquellas partidas mayores de ¢300,00. deberá la entidad interesada elaborar un plan de gastos sobre la utilización de la misma.
+Dicho plan de gastos deberá ser presentado a la institución rectora correspondiente con copia a la Sección de Partidas Específicas del Ministerio de Hacienda, y a la Contraloría General de la República. Aquellas entidades que no tuvieren institución rectora, presentarán el plan a la Sección de Partidas
+Específicas con copia a la Contraloría General de la República. Este requisito deberá ser cumplido previamente a la entrega de la partida correspondiente.
+b) Cada cuatro meses a partir del recibo de la partida, las entidades deberán informar a la institución u órgano correspondiente, a que se refiere el inciso anterior, del avance de las obras, realizaciones o metas alcanzadas con la partida específica.
+Las instituciones rectoras o la Contraloría General de la República en su caso, mantendrán esta información actualizada mediante el control y seguimiento de estas partidas específicas.
+c) La Contraloría General de la República deberá efectuar auditorias a aquellas partidas específicas cuyos montos sobrepasen los ¢5.000.000 millones y en aquellas partidas cuyos montos sean menores, cuando así lo solicite expresamente la institución rectora o cualquier otro interesado legítimamente.
