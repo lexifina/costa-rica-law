@@ -1,0 +1,1 @@
+Artículo 12.—La Oficina de Cobros deberá informar mensualmente al Alcalde Municipal, de los trámites de cobro realizados sobre las cuentas morosas y el estado en que se encuentran las acciones de cada caso en particular.

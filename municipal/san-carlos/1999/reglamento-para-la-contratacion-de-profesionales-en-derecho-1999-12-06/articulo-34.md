@@ -1,0 +1,1 @@
+Artículo 34.—En el arreglo de pago el contribuyente ofrecerá una garantía a satisfacción de la Municipalidad. Las personas interesadas presentarán como mínimo cuatro copias de la garantía y cuatro copias de los documentos restantes.

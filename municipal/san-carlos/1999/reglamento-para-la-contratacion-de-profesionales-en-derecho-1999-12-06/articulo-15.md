@@ -1,0 +1,1 @@
+Artículo 15.—El Abogado deberá excusarse de atender la dirección de un juicio, cuando existieren vínculos de parentesco o una relación de cliente, lo hará en forma escrita dirigida a la Oficina de Cobros de la Municipalidad, dentro de las cuarenta y ocho horas siguientes al recibo de la documentación correspondiente.

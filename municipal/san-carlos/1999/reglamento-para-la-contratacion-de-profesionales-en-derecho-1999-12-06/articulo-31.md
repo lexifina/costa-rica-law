@@ -1,0 +1,1 @@
+Artículo 31.—La Oficina de Cobros de la Municipalidad de San Carlos podrá realizar arreglos de pago que consiste en recibir del contribuyente la suma que desea pagar, deducida del capital más multas e intereses a la fecha del abono. Una vez hecho el primer abono, el contribuyente tendrá noventa días hábiles para la cancelación total de la deuda.

@@ -1,0 +1,1 @@
+Artículo 39.—Una vez que el cobro judicial haya sido iniciado, solo podrá darse por terminado o suspendido ante el pago total de la suma adeudada a la Municipalidad o solicitud escrita de arreglo de pago presentada por el interesado.

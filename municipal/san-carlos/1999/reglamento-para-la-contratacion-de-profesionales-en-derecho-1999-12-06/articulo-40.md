@@ -1,0 +1,1 @@
+Artículo 40.—En el caso que el contribuyente solicite arreglo de pago y éste haya sido entregado al Abogado contratado para ejecución de cobro judicial, deberá el contribuyente pagar los gastos en que haya incurrido el profesional en atención a su caso.

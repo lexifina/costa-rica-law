@@ -1,0 +1,1 @@
+Artículo 19.—Cuando un Abogado deba ausentarse de su bufete por más de ocho días hábiles, deberá comunicarlo a la Oficina de Cobros de la Municipalidad de previo y en forma escrita, indicando el profesional que queda a cargo de los casos que le fueron asignados.

@@ -1,0 +1,1 @@
+Artículo 10.—Agotados los trámites administrativos en la recuperación de las cuentas morosas, la Oficina de Cobros enviará a los abogados, para el trámite de cobro judicial, la documentación necesaria.

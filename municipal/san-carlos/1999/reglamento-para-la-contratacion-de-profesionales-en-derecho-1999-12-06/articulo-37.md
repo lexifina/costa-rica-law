@@ -1,0 +1,1 @@
+Artículo 37.—Las personas jurídicas interesadas en realizar un arreglo de pago deberán presentar su solicitud escrita, firmada por el Representante Legal o Apoderado Generalísimo, aportando el número de cédula jurídica.
