@@ -1,0 +1,1 @@
+Artículo 2°—Créase la Comisión Asesora de Seguridad Vial adscrita a la Dirección General de Ingeniería de Tránsito, la cual será integrada por el Ministro de Obras Públicas y Transportes. Sus atribuciones y el lugar, número, hura día para las sesiones se fijará al momento de su instalación.
