@@ -1,0 +1,1 @@
+Artículo 5°—El Ministerio de Comercio Exterior remitirá copia de la resolución administrativa de asignación de la cuota a las empresas industrializadoras que hayan participado en la adjudicación, así como al Ministerio de Agricultura y Ganadería y al Instituto Costarricense de Pesca y Acuacultura, para los efectos pertinentes.

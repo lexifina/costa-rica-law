@@ -1,0 +1,2 @@
+Artículo 7°—Para la evaluación de las solicitudes, a los efectos de definir la asignación de las respectivas cuotas, el Ministerio de Comercio Exterior se basara en el estudio técnico del Instituto Costarricense de Pesca y Acuacultura y en el informe que deberá remitirle el Ministerio de Agricultura y Ganadería.
+El Ministerio de Comercio Exterior podrá requerir a las empresas participantes toda la información que razonablemente sea necesaria para evaluar las solicitudes.
