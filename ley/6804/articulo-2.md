@@ -1,0 +1,2 @@
+Artículo 2§- Adiciónese a la ley Nº 5923 del 18 de agosto de 1976, un artículo transitorio que llevará el número IV y dirá así:
+"Transitorio IV- Las sumas recaudadas a la fecha de publicación de esta ley, que aún no hayan sido retiradas o solicitadas expresamente por cada Junta de Educación, serán giradas por el Banco Central de Costa Rica, sin más trámite ni requisito, a la Universidad Estatal a Distancia".
