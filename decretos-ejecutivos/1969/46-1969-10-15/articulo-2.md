@@ -1,3 +1,4 @@
-Artículo 2°-Con excepción de los Viceministros de Industrias y de Economía y Comercio, el Director General de Industrias y del Representante del Ministerio de Hacienda, los demás miembros serán nombrados por un período de dos años.
-Todos los miembros podrán ser sustituidos en sus ausencias temporales u ocasionales. Para acreditar esta sustitución bastará comunicación escrita del ente representado.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 8655 del 05 de junio de 1978).
+Artículo 2°-Con excepción del Viceministro de Economía, Industria y Comercio, el Director General de Industrias, el Asesor Económico con rango de Viceministro encargado de los programas de Economía y Comercio y el Viceministro de Hacienda, los demás miembros serán nombrados por un período de dos años.
+En la misma forma y por igual periodo serán designados, para cada propietario, los suplentes, quienes sólo actuarán en las ausencias o faltas temporales de los propietarios a que sustituyen.
+Los representantes de la Oficina de Planificación Nacional y Política Económica, de la Cámara de Comercio de Costa Rica y del Banco Central, serán escogidos de ternas que para tal efecto deberán enviarse 131 Ministerio de Economía, Industria y Comercio. En el caso de la Cámara de Industrias de Costa Rica, deberá enviarse al citado Ministerio una nómina de seis.
+(Así reformado mediante el artículo 1° del decreto ejecutivo N° 13653 del 24 de mayo de 1982).
