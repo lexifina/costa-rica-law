@@ -1,0 +1,2 @@
+Artículo 4º—Modifíquese el artículo 6° del “Reglamento al inciso n) del artículo 31 de la Ley de Tránsito por Vías Públicas Terrestres, N° 7331”, contenido en el Decreto Ejecutivo N° 31686-MOPT, publicado en La Gaceta N° 57, de fecha 22 de marzo del 2004, para que en lo sucesivo se lea:
+“Artículo 6º—La verificación del cumplimiento de este Reglamento se realizará en la preceptiva revisión técnica periódica a la que deben ser sometidos los vehículos, sin detrimento de que también pueda verificarse en las vías públicas y en las estaciones de pesaje.”

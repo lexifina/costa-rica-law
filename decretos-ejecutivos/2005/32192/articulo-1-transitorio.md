@@ -1,0 +1,2 @@
+Transitorio único.—Los vehículos objeto de este Reglamento que a la fecha de publicación del presente Decreto Ejecutivo porten cintas del tipo A en las partes laterales del vehículo en contraposición con lo que ahora se dispone reglamentariamente, dispondrán hasta su siguiente revisión técnica periódica, a partir de la última realizada y según el orden de convocatoria establecido, para realizar los cambios pertinentes.
+Dado en la Presidencia de la República.—San José, a los tres días del mes de enero del dos mil cinco.
