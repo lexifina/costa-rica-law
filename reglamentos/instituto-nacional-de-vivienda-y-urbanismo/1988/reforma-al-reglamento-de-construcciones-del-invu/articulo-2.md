@@ -1,0 +1,5 @@
+Artículo 2°—Se modifica lo dispuesto por el artículo VII. 10.4.4. para que se lea
+así:
+Artículo VI. 10.4.4: No procederá la inscripción de planos de las fincas filiales mientras no conste en el Registro Público de la Propiedad, la finalización de obras, conforme con lo que establece el párrafo segundo del artículo 8° de la Ley de Propiedad Horizontal. Dado que los planos generan acciones legales de inscripción en el Registro Nacional, cuando por razones fundamentales se requiera hacer modificaciones en la obra que produzcan diferencias con los planos originales, deberá tramitarse la autorización para los cambios en las respectivas instituciones; los planos definitivos serán presentados a la Oficina Centralizadora y una vez aprobados, se procederá a hacer las rectificaciones o modificaciones en el Registro Público de la Propiedad con antelación a la inscripción individual de planos de filiales ante el Catastro.
+Rige a partir de su publicación.
+San José, mayo de 1988.—Zuleyka Salom Rodríguez, Directora de Urbanismo.— (O.C.No 96027).
