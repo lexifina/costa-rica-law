@@ -1,0 +1,1 @@
+Artículo 8°—La Oficina de Cobros debe rendir informes trimestrales al Ejecutivo Municipal, sobre las gestiones Judiciales realizadas y el estado en que se encuentren las acciones de cada gestión, a esa fecha.

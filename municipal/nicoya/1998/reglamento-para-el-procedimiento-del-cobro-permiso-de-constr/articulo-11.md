@@ -1,0 +1,1 @@
+Artículo 11.—El tiempo máximo que se concede para hacer un arreglo de pago no excederá los tres meses calendario, contados a partir de la firma del documento respectivo. En el momento en que acepta el arreglo de pago debe cancelarse una tercera parte (1/3) del monto total adeudado.
