@@ -1,0 +1,1 @@
+ARTICULO 3º.-Estas normas deberán ser revisadas periódicamente con el fin de hacer los cambios o ajustes necesarios, de acuerdo con la experiencia que se obtenga con su estricta aplicación y con la comparación y experiencia que proporcionan los centros oncológicos de otros países.

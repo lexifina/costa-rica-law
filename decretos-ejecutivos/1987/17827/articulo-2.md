@@ -1,0 +1,1 @@
+ARTICULO 2º.-El objeto de este Manual es definir las normas o pautas para el tratamiento médico, quirúrgico y de rehabilitación de pacientes con cáncer, para ser aplicadas en todos los establecimientos de atención médica en el país.
