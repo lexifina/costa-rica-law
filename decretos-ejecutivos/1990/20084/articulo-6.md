@@ -1,0 +1,1 @@
+Artículo 6°—El Programa trabajará en estrecha coordinación con todas las dependencias que integran el MIRENEM, para lo cual estas deberán prestar su apoyo y colaboración en la realización de las distintas actividades de este Programa
