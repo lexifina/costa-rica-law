@@ -14,3 +14,4 @@ Declara de Interés Público la III Conferencia de Ministros de Justicia y Procu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-10-22 | la propia norma |
+| 2 | 2000-01-28 | Decreto Ejecutivo 28468 (2000-01-28) |
