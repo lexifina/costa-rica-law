@@ -1,0 +1,1 @@
+Artículo 17.—Todos aquellos asuntos que no estuviesen contemplados en este Reglamento, los decidirá el Presidente de la Asamblea de conformidad con la Ley Orgánica del Colegio de Cirujanos Dentistas de Costa Rica.

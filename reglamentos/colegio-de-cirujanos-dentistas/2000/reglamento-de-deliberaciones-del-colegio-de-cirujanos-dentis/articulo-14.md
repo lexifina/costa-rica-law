@@ -1,0 +1,1 @@
+Artículo 14.—El Presidente o quien presida podrá suspender en el uso de la palabra a los colegiados, si considera que la intervención se sale del tema tratado o se alude a personas o entidades con palabras o frases ofensivas e inconvenientes.

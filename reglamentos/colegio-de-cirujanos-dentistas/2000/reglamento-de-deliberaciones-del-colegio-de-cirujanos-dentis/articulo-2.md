@@ -1,0 +1,1 @@
+Artículo 2º—Al inicio de cada asamblea ordinaria u extraordinaria, el Fiscal del Colegio, examinará la lista de los odontólogos asistentes y presentará su informe a la Mesa Directiva, para comprobar el quórum.

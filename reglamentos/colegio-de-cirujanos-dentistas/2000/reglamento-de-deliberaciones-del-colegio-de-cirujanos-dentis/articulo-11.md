@@ -1,0 +1,1 @@
+Artículo 11.—La Asamblea podrá dar el carácter de urgente a un asunto con el voto de mayoría simple, siempre que esté relacionado con los asuntos contemplados en el orden del día. El asunto declarado urgente será tratado de inmediato con relación a los otros asuntos de conocimiento de la Asamblea.
