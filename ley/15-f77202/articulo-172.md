@@ -1,0 +1,2 @@
+Concurso de delitos
+Artículo 172.-AI culpable de dos o más delitos se le impondrán todas las penas correspondientes a las diversas infracciones, las cuales deben ser cumplidas sucesivamente y siguiendo el orden de su gravedad, si el ser descontadas a Ia vez fuere incompatible con la efectividad de las condenas. Las de extrañamiento, confinamiento y destierro, se ejecutarán después de las de presidio, prisión o arresto.

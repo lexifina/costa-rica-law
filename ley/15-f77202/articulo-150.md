@@ -1,0 +1,2 @@
+Transcurso del tiempo de una condena
+Artículo 150.-El término de las penas temporales comenzará a trascurrir en beneficio del reo, desde el día en que se le notifique la sentencia ejecutoria, debiendo abonarse el tiempo de la detención preventiva sufrida. Pero cuando se trate de penas accesorias que por su naturaleza deban hacerse efectivas después de la condena principal, será entonces cuando dicho término comience a correr.

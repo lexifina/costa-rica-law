@@ -1,0 +1,2 @@
+Destinación del producto de las multas
+Artículo 129.-El producto de las multas tendrá Ia destinación que la ley indique, y a falta de especial disposición sobre el particular, se constituirá con él un fondo Ilamado Caja de Indemnización; que servirá para pagar a las víctimas de los delitos, conforme a las reglas legales que para el caso se adopten, los daños y perjuicios por ellas sufridos, cuando el delincuente careciere de bienes para satisfacerlos.

@@ -1,0 +1,2 @@
+Empleados públicos que faltaren a su deber de resistencia:
+Artículo 447.-Los empleados públicos que debiendo resistir la sublevación por razón de su cargo, no lo hubieren hecho por todos los medios que estuvieren a su alcance; los que no admitida aun la renuncia de su empleo lo abandonaren cuando haya peligro de alzamiento, y las personas que aceptaren cargos o empleos de los sublevados, incurrirán en inhabilitación absoluta temporal para cargos y oficios públicos en cualquiera de sus grados.

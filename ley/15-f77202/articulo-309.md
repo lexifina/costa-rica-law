@@ -1,0 +1,1 @@
+Artículo 309.-Cuando cualquiera de los delitos comprendidos en el artículo anterior estuviere calificado por alguna de las circunstancias enumeradas en el artículo 307, se aplicará Ia pena en este último establecida.

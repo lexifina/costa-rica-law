@@ -1,0 +1,2 @@
+Disciplina correctiva de los establecimientos penales
+Articulo 109.-No podrá aplicarse a los penados como medida correctiva, ni la flagelación ni ninguna otra especie de tortura o maltratamiento personal directo: pero podrá aherrojárseles, recluírseles en la celda destinada a castigo, y sometérseles a otros tratamientos displinarios. compatibles con Ios sentimientos de humanidad, siempre que así lo disponga ,el Consejo de la prisión.

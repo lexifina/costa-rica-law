@@ -1,0 +1,2 @@
+Homicidio por imprudencia
+Artículo 226.-Será reprimido con multa mayor en mis grados primero a segundo e inhabilitación temporal en su grado primero, del cargo de la profesión en cuyo ejercicio hubiere contraído la responsabilidad penal, el que por imprudencia, negligencia, impericia en su arte, oficio o profesión, o inobservancia de los reglamentos o de los deberes de su cargo, causare a otro la muerte.

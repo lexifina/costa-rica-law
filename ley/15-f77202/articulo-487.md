@@ -1,0 +1,2 @@
+Prisión ilegal
+Artículo 487.-Será reprimido con multa mayor en sus grados primero a tercero e inhabilitación absoluta en sus grados primero a cuarto, el juez que decretare e hiciere efectiva una prisión preventiva, contra ley expresa y terminante, o que a pesar de reclamos del reo prolongare dicha prisión, si computada ésta según las reglas establecidas para su abono en la primera liquidación de condena, resultare agotada la pena máxima que podría corresponder al inculpado por el delito motivador del juicio.
