@@ -1,0 +1,1 @@
+Artículo 58.—La Comisión de Juegos Deportivos Comunales y Nacionales podrá formar tantas subcomisiones específicas por deporte como disciplinas deportivas sean practicadas en el cantón, pero deberá tener como mínimo cinco. Las subcomisiones pueden ser de ajedrez, atletismo, baloncesto, béisbol, boxeo, ciclismo, fútbol, fútbol salón, natación, tenis de mesa, voleibol, entre otros.

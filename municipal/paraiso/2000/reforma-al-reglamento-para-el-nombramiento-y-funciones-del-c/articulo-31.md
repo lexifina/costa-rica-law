@@ -1,0 +1,1 @@
+Artículo 31.—La Junta Directiva del Comité recomendará a lasa visitas que la exposición de temas en las sesiones ordinarias públicas tenga una duración máxima de 15 minutos, con el fin de aligerar la atención a otras visitas.
