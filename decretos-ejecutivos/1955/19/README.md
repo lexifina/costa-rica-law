@@ -34,3 +34,4 @@ Reglamento para el Sistema de Ahorro y Préstamo del Instituto Nacional de Vivie
 | 19 | 1993-12-14 | Reglamento 4373 (1993-12-14) |
 | 20 | 1995-03-15 | Reglamento 4491 (1995-03-15) |
 | 21 | 1996-03-13 | Reglamento 4587 (1996-03-13) |
+| 22 | 1996-05-22 | Reglamento 4606 (1996-05-22) |
