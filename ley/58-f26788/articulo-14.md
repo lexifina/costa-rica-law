@@ -1,0 +1,1 @@
+Art. 14. Cuando alguno solicitare permiso por mas de los tres dias, que puede conceder el Presidente segun lo dispuesto en el articulo 8°, manifestará al Consejo por medio de exposición, los motivos que tenga para pedirlo, y el tiempo que necesitare, á fin de que en su vista, pueda el mismo Cuerpo otorgárselo, en caso de ser bastantes aquellos y de permitirlo las circunstancias.

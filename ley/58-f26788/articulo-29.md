@@ -1,0 +1,1 @@
+Art. 29. Quedando designado en el artìculo 19 los dias en que han de celebrarse las sesiones ordinarias del Consejo, sus individuos en el intervalo de unas á otras, se ocuparàn del despacho de los negocios de las Comisiones que respectivamente les estuviesen encargadas.

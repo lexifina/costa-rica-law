@@ -1,0 +1,1 @@
+Art. 39. El Consejo darà ó negarà la sancion dentro del tèrmino de diez dias, y con arreglo en todo á los artículos 72 y 73 de la Constitucion del Estado, acompañado en caso de negarlos la nota motivada.

@@ -1,0 +1,1 @@
+Art. 34. Estando en la discucion, cada Consejero podrà hablar tres veces sobre el asunto de que se trata, cuidando el Presidente que no se toque otro distinto. Cuando pareciere bastantemente discutìdo el negocio, y declarandolo el Consejo, no podrá concederse de nuevo la palabra sobre el mismo asunto.

@@ -1,0 +1,1 @@
+Art. 25. Se abrirá la sesion leyendo el acta anterior. En seguida se dará cuenta con las notas de la Asambléa, y Poder Ejecutivo, dictàmenes de Comisiones y proposiciones por escrito que hayan hecho los Consejeros sobre asuntos del desempeño de su encargo: últimamente se verán los señalados para aquel dia, ò los mas urgentes á juicio del Consejo.

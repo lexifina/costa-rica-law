@@ -1,0 +1,1 @@
+Art. 23. Las sesiones ordinarias comenzarán à las nueve de la mañana y se levantaràn á las doce, á menos que se prorroguen, ó se declaren permanentes. Las extraordinarias se celebrarán à las horas en que lo exijan los asuntos para que fueron convocados.

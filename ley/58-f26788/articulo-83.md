@@ -1,0 +1,1 @@
+Art. 83. Todas las cuentas de que habla la presente ley, se cortarán el 31 de Diciembre, y se presentarán à la revisacion en el mes de Enero: serán revisadas, aclaradas ò corregidas en el mes de Febrero, y presentadas al Tribunal como queda prevenido.

@@ -1,0 +1,1 @@
+Art. 45. Para que el Consejo pueda declarar que ha lugar à la formacion de causa contra cualquiera funcionario en conformidad de lo que dispone el §. 3° del art. 68 de la Constitucion del Estado, son necesarias las dos terceras partes de votos.
