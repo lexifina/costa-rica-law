@@ -1,0 +1,1 @@
+Articulo 4°—Las labores de coordinación y secretaría que el Comité demande serán desempeñadas por la Oficina de Planificación Nacional y Política Económica, a través de su Departamento de Estadística.

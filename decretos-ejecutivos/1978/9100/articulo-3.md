@@ -1,0 +1,1 @@
+Articulo 3°—El Comité establecerá sus propios procedimientos y normas de trabajo y podrá solicitar la colaboración de otros especialistas, para el estudio de aspectos específicos relacionados con la problemática del Sistema Estadístico Nacional.
