@@ -1,0 +1,1 @@
+Artículo 9º.- Se autoriza a la Municipalidad del cantón central de Puntarenas para que gestione ante la CIAT, en conjunto con la Universidad Nacional de Costa Rica, la instalación de un laboratorio de túnidos y otras especies marinas, en cualquiera de las islas o en el litoral del cantón citado o de los cantones aledaños, de las provincias de Puntarenas y Guanacaste.

@@ -1,0 +1,1 @@
+Artículo 3º.- Costa Rica continuará otorgando permisos de pesca para barcos extranjeros pertenecientes a Estados distintos de los Miembros del Convenio Interino según las disposiciones de las leyes Nº 5775 del 14 de agosto de 1975 y Nº 6267 del 29 de agosto de 1978.
