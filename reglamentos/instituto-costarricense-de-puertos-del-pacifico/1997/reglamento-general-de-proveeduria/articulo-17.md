@@ -1,1 +1,0 @@
-Artículo 17.—La orden de compra constituye el documento legal que emite la Proveeduría, mediante el cual se ordena la ejecución contractual para la adquisición de bienes y servicios, quedando a criterio de la Administración Superior la suscripción del contrato en caso de contrataciones que por interés institucional se determine.

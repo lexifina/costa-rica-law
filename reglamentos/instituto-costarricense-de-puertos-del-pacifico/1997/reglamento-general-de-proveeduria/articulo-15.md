@@ -1,1 +1,0 @@
-Artículo 15.-—Tomado el Acuerdo por la Junta Directiva, la Secretaria lo comunicará por escrito a la Gerencia quien inmediatamente lo hará notificar según el canal que corresponda y procederá a la formalización de la compra.

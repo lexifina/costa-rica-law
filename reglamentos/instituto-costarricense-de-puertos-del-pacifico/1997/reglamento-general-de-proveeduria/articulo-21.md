@@ -1,1 +1,0 @@
-Articulo 21.—En caso de que alguno de los requisitos verificables por el Almacén de Materiales no se cumpliera, éste deberá de notificarlo a la Proveeduría para que dependiendo de la necesidad institucional pueda autorizar su recibo.
