@@ -1,0 +1,1 @@
+Articulo 4°-El Poder Ejecutivo procederá a nombrar desde ahora para la zona del Atlántico, y cuando lo crea conveniente para la del Pacífico, un Agente de Policía en cada zona que tendrá a su cargo la vigilancia y cumplimiento de las obligaciones a que se refieren los artículos 2° y 3° anteriores, y de las leyes y reglamentos generales de sanidad en las zonas bananeras.
