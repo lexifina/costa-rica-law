@@ -1,0 +1,1 @@
+ARTICULO 34.- En todos los juicios que se entablen cuestionando la ubicación, linderos y su correspondencia o identidad de determinada finca o fincas, provenientes de la exposición pública, se debe dar audiencia al Catastro Nacional para que emita su criterio técnico.

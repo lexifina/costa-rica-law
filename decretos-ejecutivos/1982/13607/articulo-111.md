@@ -1,0 +1,2 @@
+De la prohibición para el ejercicio de la agrimesura a los funcionarios del Catastro Nacional
+ARTICULO 111.-Es prohibido a los funcionarios del Catastro Nacional el ejercicio de la agrimensura ante éste, ya sea que su participación sea directa o indirecta en la confección de planos o en su presentación para ser registrados. La violación a este precepto se considerará Calta grave o facultará al Estado para despedir al servidor sin responsabilidad alguna.

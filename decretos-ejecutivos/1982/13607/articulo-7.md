@@ -1,0 +1,1 @@
+ARTICULO 7.- Personas que pueden pedir el certificado: El certificado será expedido a solicitud del propietario o poseedor a título de dueño, o al notario o funcionario que ejerza facultades notariales, previa autorización escrita del propietario, debidamente autenticada.

@@ -1,0 +1,1 @@
+ARTICULO 6.- Copias del Certificado: El certificado debe expedirse por duplicado, debiendo el original ir anexado al documento expedido por el notario o funcionario Judicial o administrativo que lo solicitó. La copia quedará en poder de dichos funcionarios quienes la agregarán al protocolo e referencias o al expediente respectivo en su caso.

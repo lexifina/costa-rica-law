@@ -1,0 +1,1 @@
+ARTICULO 106.- La Comisión será presidida por el Ministro de Justicia y se reunirá por lo menos una vez al mes. Podrá ser convocada en cualquier fecha cuando tres de sus miembros o el presídeme lo estimen necesario. Cinco de sus miembros formarán quorum.

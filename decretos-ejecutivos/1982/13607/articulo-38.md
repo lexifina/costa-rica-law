@@ -1,0 +1,1 @@
+ARTICULO 38.- Los notarios y funcionarios judiciales o administrativos que autoricen títulos inscribibles en el Registro Público de la Propiedad procurarán fusionar o reunir las fincas que integran un predio catastral de modo que, en el futuro, coincidan fincas y predios.

@@ -1,0 +1,1 @@
+ARTICULO 15.- Anotación en el predio: Expedido un certificado y a efecto de cumplir con lo dispuesto en el artículo 17, el Catastro Nacional anotará en el plano del predio el número de certificado, así como la hora y fecha de su expedición.

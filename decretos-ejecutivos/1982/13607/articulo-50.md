@@ -1,0 +1,2 @@
+Del levantamiento
+ARTICULO 50.- Previo el levantamiento de agrimensura, el agrimensor comprobará en el Registro Público de la Propiedad o con el contratante, los títulos de propiedad y la existencia de derechos u otras cargas sobre la misma. Además deberá verificar en el Catastro Nacional, en los mapas y registros catastrales, si los hubiere los nombres de los propietarios colindantes, número de parcelas, referencia a planos catastrados con anterioridad, y cualquier otra información complementaria.

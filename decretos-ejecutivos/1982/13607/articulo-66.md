@@ -1,0 +1,1 @@
+ARTICULO 66.- Cuando el plano a registrar corresponda a un único edificio construido sometido al régimen de propiedad horizontal, se deberá indicar el número de plano catastrado donde se asienta el edificio, independientemente del piso al que corresponda el plano a catastral.

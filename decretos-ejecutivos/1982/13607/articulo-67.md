@@ -1,0 +1,2 @@
+ARTICULO 67.- Para el caso que se señala en el artículo anterior. deberá indicarse la ubicación de la propiedad en sus tres coordenadas, para lo cual debe incluirse, un dibujo en planta con sus accesos desde las áreas comunes y por lo menos un corte transversal y longitudinal para establecer la posición vertical. Ambos deben cumplir con su orientación del norte hacia la parte superior del plano indicando la escala de planta y del corte.
+Mediante cotas, debe referenciarse en sus tres coordenadas o línes o puntos permanentes en las vías de acceso del edificio.

@@ -1,0 +1,1 @@
+ARTICULO 81.- En los casos en que no se compruebe k) dispuesto en el artículo anterior, el funcionario denegará la inscripción de los documentos, informando al interesado sobre las discrepancias o inconsistencias encontradas, de conformidad con lo establecido en este reglamento.

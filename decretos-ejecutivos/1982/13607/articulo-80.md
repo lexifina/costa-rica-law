@@ -1,0 +1,1 @@
+ARTICULO 80.- El Catastro Nacional procederá a calificar los planos de conformidad con lo que se dispone en el presente reglamento, la legislación vigente y la información a disposición del Catastro. Si se ajustan a las disposiciones, métodos, procedimientos y especificaciones adoptadas, el funcionario autorizante aprobara el plano con su firma.

@@ -1,0 +1,1 @@
+ARTICULO 99.-Todos los casos no contemplados en este capítulo, a regirán por la costumbre. Hasta tanto no se publique la simbología y especificaciones de este capítulo el Catastro Nacional aceptará la que ese uso o costumbre determinen.

@@ -1,0 +1,1 @@
+ARTICULO 14.- Contenido de la solicitud: En la solicitud de un certificado deberá especificarse para qué tipo de acto es que se está solicitando, e indicarse claramente el número del predio cuyo certificado se solicita- Deberán expedirse sendos certificados como predios se soliciten.

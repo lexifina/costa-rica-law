@@ -1,0 +1,1 @@
+ARTICULO 102.-Consütuirá contravención la acción de aquel propietario o poseedor de inmueble, por cualquier título, que entorpezca la ejecución de los estudios y operaciones técnicas consecuencia de la ejecución la Ley de Catastro Nacional y este reglamento, y será sancionado con una pena de diez a treinta días multa.

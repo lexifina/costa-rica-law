@@ -1,0 +1,1 @@
+ARTICULO 98.-Las instituciones publicas quedarán obligadas a adoptar a la simbología y especificaciones a que se refiere este capítulo, a efecto de facilitar la integración de toda la cartografía catastral en un banco de datos del país.
