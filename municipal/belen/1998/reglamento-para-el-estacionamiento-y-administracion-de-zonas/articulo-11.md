@@ -1,1 +1,2 @@
-Artículo 11.—Del sistema de cobro: La fijación del tiempo de aparcado se hará por medio de boletas de estacionamiento, las cuales tendrán diferente color según se trate de boletas válidas para estacionar ya sea por una hora o por tres horas.
+Artículo 11.-Del sistema de cobro: La Fijación del tiempo de aparcado se hará por medio de boletas de estacionamiento, las cuales tendrán diferente color según se trate de boletas válidas para estacionar, ya sea por media hora o por una hora.
+(NOTA DE SINALEVI: Este artículo fue reformado mediante sesión N° 53 del 28 de setiembre de 1999, dicha reforma fue publicada como proyecto y no consta publicación del acuerdo definitivo de aprobación).
