@@ -1,0 +1,11 @@
+EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA
+La Junta Directiva de la Empresa de Servicios Públicos de Heredia, en sesión No 878, artículo 2°, punto I, e incisos a) y b), con fecha 28 de agosto 1985, acuerda:
+Aprobar la modificación del artículo 24 del Reglamento para la Prestación de Servicios de Agua y Alcantarillado de la Empresa de Servicios Públicos de Heredia, para que se lea de la siguiente manera:
+Artículo 24.—"Cuando por fugas en las instalaciones propiedad del abonado cuya localización, a juicio de la Empresa, no esté al alcance del mismo, se produzca exceso sobre el consumo promedio mensual de agua determinado dicho promedio, sobre la base del consumo representativo de los seis meses anteriores a la detección de la fuga, se procederá de la siguiente forma:
+Para dar curso al reclamo, el interesado debe cancelar un monto igual al correspondiente a la facturación del mes anterior.
+La Empresa procederá en un tiempo no mayor de 30 (treinta) días hábiles, a llevar a cabo las inspecciones pertinentes con el propósito de orientar al abonado, para que corrija la fuga de agua o deficiencias en la instalación de su inmueble, haciendo por escrito la notificación de la inspección domiciliaria correspondiente.
+El abonado dispondrá de 45 (cuarenta y cinco) días hábiles, a partir del momento en que la fuga o deficiencia se detectó y notificó para corregir.
+La empresa no podrá mantener en condición de "estudio", ningún servicio de agua potable por más de 45 (cuarenta y cinco) días hábiles.
+Una vez corregido la fuga o deficiencia en las instalaciones propiedad del abonado y recibido por la Empresa la notificación correspondiente ésta cobrará al abonado, cada mes con el consumo promedio representativo de agua, de los 6 (seis) meses anteriores a la concurrencia de la fuga.
+Bajo circunstancias especiales cuando se registraren consumos mensuales de agua de agua, superiores a 500 m3 (quinientos metros cúbicos), en servicios domiciliarios, 750 m3 (setecientos cincuenta metros cúbicos) en servicios clasificados como reproductivos, preferenciales y de gobierno. Se autoriza a la Dirección de Administración y Finanzas para que convenga arreglos de pago con los abonados, los que incluirá multas y cuyo plazo de cancelación no será superior a 6 (seis meses).
+Heredia, setiembre de 1985.
