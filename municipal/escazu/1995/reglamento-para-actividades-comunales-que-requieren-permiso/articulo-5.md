@@ -1,0 +1,1 @@
+5°— La Comisión solicitante, debe presentar un Plan de evacuación en caso de emergencia; así mismo suscribir una Póliza de Responsabilidad Civil que cubra a los participantes, para aquellas actividades que lo ameriten ajuicio del Concejo.

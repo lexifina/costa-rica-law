@@ -1,0 +1,1 @@
+11.—El incumplimiento a éste reglamento, autoriza al Concejo Municipal, para no otorgar más permisos a la Comisión respectiva, para realizar otras actividades, sin perjuicio de que pueda tomar las medidas legales correspondientes.
