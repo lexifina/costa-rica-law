@@ -1,2 +1,3 @@
-Designación de los Candidatos a Regidores y Síndicos
-Artículo 75.- Corresponde a la Asamblea de Cantón, la designación de los candidatos a los cargos de Regidores y Síndicos municipales.
+Artículo 75.- Designación de candidatos a Regidores y Síndicos
+Los candidatos a Regidores y Síndicos municipales se designarán según lo prescriba el estatuto de cada partido político.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

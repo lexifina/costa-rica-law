@@ -1,12 +1,14 @@
 CAPITULO II
 Del Tribunal Supremo de Elecciones
-Sus Atribuciones
-Artículo 19.- Además de las funciones que expresamente le conceden la Constitución Política y las leyes, el Tribunal Supremo de Elecciones tiene estas otras:
-a) Formular y publicar por lo menos cuatro meses antes del día fijado para una elección de Presidente y Vicepresidentes de la República, la División Territorial Electoral que corresponda;
-b) Declarar integradas las Juntas Provinciales, con las personas que designaren los partidos políticos inscritos y remover de su cargo a cualquiera de sus miembros por causa justa, a juicio del Tribunal.
-c) Interpretar en forma exclusiva y obligatoria las disposiciones constitucionales y legales referentes a la materia electoral. Tales interpretaciones pueden darse a solicitud de los personeros de cualquier partido político inscrito, y de la resolución que se produzca, el Tribunal enviará copia literal telegráfica dentro de las cuarenta y ocho horas siguientes, a cada uno de los partidos inscritos. Si dentro de ese término publica la copia literal, puede omitir su envío a los partidos.
-d) Comunicar a los elegidos la declaratoria de elección;
-e) Nombrar, revocar o suspender a sus propios funcionarios y empleados y a los de sus dependencias;
-f) Colaborar en los proyectos de leyes que interesen al sufragio y dictar su Reglamento y los de cualquier organismo que esté bajo su dependencia.
-g) El cargo de miembro del Tribunal Supremo de Elecciones es incompatible con cualquier otra función remunerada por el Estado o sus Instituciones, excepto la de Catedrático de la Universidad de Costa Rica, de la Universidad Nacional o del Instituto Tecnológico de Costa Rica.
-(Así reformado el inciso anterior por el artículo 1° de la ley N° 5379 del 24 de octubre de 1973)
+Artículo 19.- Funciones
+El Tribunal Supremo de Elecciones tendrá las siguientes funciones:
+a) Formular y publicar, la División Territorial Electoral, por lo menos cinco meses antes del día fijado para una elección de Presidente y Vicepresidentes de la República ;
+b) Declarar integradas las Juntas Electorales, con las personas que designen los partidos políticos inscritos, y remover de su cargo a cualquier miembro por causa justa, a juicio del Tribunal;
+c) Interpretar, en forma exclusiva y obligatoriamente, las disposiciones constitucionales y legales sobre la materia electoral. Tales interpretaciones podrán darse de oficio o a solicitud de los miembros del Comité Ejecutivo Superior de los partidos políticos inscritos. El Tribunal Supremo de Elecciones ordenará publicar en el Diario Oficial la resolución que se produzca y enviará copia literal, dentro de las cuarenta y ocho horas siguientes, a cada uno de los partidos inscritos. Para estos efectos, los partidos estarán obligados a señalar lugar para atender notificaciones, según lo establecido en el inciso o) del artículo 58 de este Código;
+d) Comunicar la declaratoria de elección a los candidatos electos;
+e) Nombrar, revocar el nombramiento o suspender tanto a sus funcionarios y empleados como a los de sus dependencias, cuando medie justa causa;
+f) Colaborar en los proyectos de ley que incidan sobre materia electoral y dictar sus reglamentos y los de cualquier organismo que se encuentre bajo su dependencia;
+g) Regular y fiscalizar el uso razonable y equitativo de los medios de comunicación colectiva que empleen los partidos políticos para su propaganda electoral, durante el período autorizado por este Código, sin perjuicio de la libertad de información y expresión que garantiza la Constitución Política ;
+h) Vigilar, conforme al ordenamiento jurídico y los estatutos respectivos, los procesos internos de los partidos políticos para la designación de candidatos a puestos de elección popular;
+i) Las demás funciones que le otorguen la Constitución Política y las leyes.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

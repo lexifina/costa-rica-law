@@ -55,6 +55,7 @@ articulo-54.md
 articulo-55.md
 articulo-56.md
 articulo-57.md
+articulo-57-bis.md
 articulo-58.md
 articulo-59.md
 articulo-60.md
@@ -72,6 +73,7 @@ articulo-71.md
 articulo-72.md
 articulo-73.md
 articulo-74.md
+articulo-74-bis.md
 articulo-75.md
 articulo-76.md
 articulo-77.md
@@ -83,6 +85,8 @@ articulo-82.md
 articulo-83.md
 articulo-84.md
 articulo-85.md
+articulo-85-bis.md
+articulo-85-ter.md
 articulo-86.md
 articulo-87.md
 articulo-88.md
@@ -127,6 +131,7 @@ articulo-126.md
 articulo-127.md
 articulo-128.md
 articulo-129.md
+articulo-129-bis.md
 articulo-130.md
 articulo-131.md
 articulo-132.md
@@ -174,6 +179,7 @@ articulo-173.md
 articulo-174.md
 articulo-175.md
 articulo-176.md
+articulo-176-bis.md
 articulo-177.md
 articulo-178.md
 articulo-179.md

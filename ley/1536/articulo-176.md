@@ -1,12 +1,13 @@
 TITULO X
-DE LA CONTRIBUCION DEL ESTADO PARA EL FINANCIAMIENTO DE LOS GASTOS POLITICO-ELECTORALES DE LOS PARTIDOS
+De la Contribución Pública y Privada para
+Financiar los Gastos Político-Electorales de los Partidos Políticos
+(Así modificada la denominación de este Título por el artículo 2º de la ley N° 7653 de 10 de diciembre de 1996)
 (*)CAPITULO ÚNICO
-(*)(Creado el Capítulo anterior por el artículo 4° de la Ley N° 4341 del 3 de junio de 1969)
-Contribución del Estado
-Artículo 176.- En la forma y en la proporción establecida en el artículo 96 de la Constitución Política , el Estado contribuirá para la financiación previa y para el pago de los gastos en que incurran los partidos políticos que participen en las elecciones para presidente y vicepresidentes de la República y para diputados a la Asamblea Legislativa.
-Para poder recibir el aporte del Estado, los partidos políticos estarán obligados a comprobar sus gastos ante el Tribunal Supremo de Elecciones.
-Con el propósito de ordenar los gastos de la campaña política, los partidos políticos con derecho a recibir financiación previa, deberán presentar al Tribunal nueve meses antes de las elecciones, por medio del presidente del comité ejecutivo del organismo superior, un presupuesto en el que se contemplarán los posibles gastos en que incurrirán durante el desarrollo de sus actividades político-electorales, a partir de los ocho meses anteriores a las elecciones. El partido político que no presente ese presupuesto a su debido tiempo no recibirá la contribución previa a que se refiere el artículo 194. También perderá el cinco por ciento (5%) que le corresponda de la contribución del Estado, en el caso de que llegare a tener derecho a ella. El Tribunal Supremo de Elecciones, al dictar la resolución correspondiente en la que se disponga el citado pago, hará la respectiva deducción del total que se deba entregar al partido de que se trate. Los partidos políticos que no reciban financiación previa deberán presentar dicho, presupuesto dentro de los treinta días siguientes, contados a partir de la fecha de la convocatoria a elecciones. Si no lo hicieren en ese término, quedarán sujetos a la sanción que se indica anteriormente.
-Para registrar las operaciones y gastos en que incurran, cada partido llevará al día una contabilidad y los comprobantes de gastos debidamente ordenados, conforme con las normas que dictará la Contraloría General de la República por medio de un reglamento.
-La Contraloría General de la República suspenderá el pago de la contribución del Estado a los partidos políticos mientras no se ajusten a estas disposiciones.
+(*)(Creado este Capítulo por el artículo 4° de la Ley N° 4341 del 3 de junio de 1969)
+Artículo 176.- Contribución del Estado
+En la forma y en la proporción establecidas en el artículo 96 de la Constitución Política , el Estado contribuirá a sufragar los gastos de los partidos políticos participantes en las elecciones para Presidente y Vicepresidentes de la República y para Diputados a la Asamblea Legislativa.
+Para recibir el aporte estatal, los partidos políticos estarán obligados a comprobar sus gastos ante el Tribunal Supremo de Elecciones.
+A fin de registrar las operaciones y los gastos en que incurra, cada partido llevará su contabilidad al día y los comprobantes de gastos ordenados, conforme al Reglamento que dictará la Contraloría General de la República.
+Ocho meses antes de las elecciones, los partidos políticos, por medio del Comité Ejecutivo Superior, deberán presentar al Tribunal Supremo de Elecciones un presupuesto donde incluirán sus posibles gastos durante el desarrollo de las actividades político-electorales. Los que no lo presenten a su debido tiempo perderán un cinco por ciento (5%) del monto que les corresponda de la contribución estatal.
 (Así adicionado por el artículo 4° de la ley N° 4341 del 3 de junio de 1969)
-(Así reformado por el artículo único de la ley N° 7094 del 27 de mayo de 1988)
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

@@ -1,2 +1,3 @@
-Obligación de Mostrar los Libros, Expedientes y Documentos del Registro
-Artículo 21.- El Director General bajo ningún pretexto podrá negarse a mostrar libro, expediente o documento alguno del Registro a quien lo solicitare. Los conflictos que surgieren con motivo de esas solicitudes los resolverá el Director de acuerdo con su criterio. Caso de concurrencia simultánea de fiscales, si fuere necesario, se le asignará un término corto de revisión a cada partido, por turnos sucesivos de lapso igual.
+Artículo 21.- Obligación de mostrar documentos del Registro Civil
+Ni el Director General ni los funcionarios encargados podrán negarse a mostrar libro, expediente o documento alguno del Registro Civil a quien lo solicite, salvo que medie justa causa. Los Magistrados del Tribunal Supremo de Elecciones resolverán, en alzada, los conflictos que surgieren con motivo de esas solicitudes. De concurrir simultáneamente varios Fiscales, se le asignará, si fuere necesario, un término corto de revisión a cada partido, por turnos sucesivos de idéntica duración.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)

@@ -1,5 +1,3 @@
-Forma de Hacer la Remisión
-Artículo 35.- La remisión a que se refiere el artículo anterior, se hará por medios expéditos y seguros, para lo cual, el Director del Registro, bajo su responsabilidad, procurará que lleguen con la debida oportunidad a su destino, en paquetes sellados, firmados y cerrados, de modo que no pueda verse el contenido sin romper el paquete.
-A efecto de que la Junta se reúna para recibir el material y la documentación electoral, el Registro avisará de su envío inmediatamente después de hecho, por la vía más rápida que use la Dirección Nacional de Comunicaciones.
-Si la Junta no se reuniere, la entrega se hará a su Presidente.
-(Así reformado por el artículo 1° de la ley N° 6833 del 23 de diciembre de 1982)
+Artículo 35.- Forma de enviar el material
+El material a que se refiere el artículo anterior, se enviará por medios expeditos y seguros. Para eso, el Director del Registro, bajo su responsabilidad, procurará que llegue a su destino con la debida oportunidad, en paquetes sellados, firmados y cerrados, de modo que no pueda verse el contenido sin romper el paquete. A fin de que la Junta se reúna para recibir el material y la documentación electoral, el Registro comunicará de inmediato el envío, por el medio más rápido que use el ente a cargo de las comunicaciones. Si la Junta no se reuniere a la hora señalada, el material será entregado a su Presidente o, en su defecto, al Secretario, si treinta minutos después de la convocatoria el primero no se presentare.
+(Así reformado por el artículo 1° de la ley N° 7653 del 10 de diciembre de 1996)
