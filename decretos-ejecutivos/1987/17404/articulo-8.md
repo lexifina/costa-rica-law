@@ -1,0 +1,2 @@
+Artículo 8°-En relación con los repuestos y cualquier otro bien que TRANSMESA haya dado en administración se constituirá el respectivo fideicomiso para fiscalizar los contratos y captar los beneficios que genera dicha contratación.
+Los repuestos que aún estén en poder de TRANSMESA y que están en proceso de traspaso continuarán el proceso iniciado hasta su finalización a fin de dar cumplimiento con lo establecido en los contratos respectivos.

@@ -1,0 +1,1 @@
+Artículo 4°-La sociedad Transportes Metropolitanos, S. A. (TRANSMESA), contará para su funcionamiento durante este período de liquidación con los fondos que le asigne el titular del. Ministerio de Obras Públicas y Transportes, mediante acuerdos publicados en el Diario Oficial y aquellos que obtengan en razón del cobro de sus créditos y cualquier otra que haga llegar a sus arcas.

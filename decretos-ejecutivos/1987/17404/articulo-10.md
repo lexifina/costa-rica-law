@@ -1,0 +1,1 @@
+Artículo 10.-La Junta Interventora de Transportes Metropolitanos, S. A., creada mediante decreto número 17120-MOPT del 14 de agosto de 1986, publicado en "La Gaceta" número 153, continuará sus funciones hasta tanto concluya la liquidación y solventará cualquier otra situación no prevista en el presente Reglamento, mediante simple resolución.

@@ -1,0 +1,1 @@
+Artículo 7°-Los activos en poder de TRANSMESA serán trasladados al Ministerio de Obras Públicas y Transportes, mediante sus respectivas actas e inventarios a la autoridad pertinente de este Ministerio.
