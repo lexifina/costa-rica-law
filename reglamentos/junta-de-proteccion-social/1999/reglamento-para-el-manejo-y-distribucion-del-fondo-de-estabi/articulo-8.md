@@ -1,0 +1,1 @@
+Artículo 8°-Los premios acumulados se podrán otorgar en efectivo o en especie y su importe lo establecerá semanalmente la Junta, de conformidad con los aportes generados al Fondo por el sorteo inmediato anterior de la lotería nacional, y los dos sorteos inmediatos anteriores de la lotería popular, cuando esta lotería estuviere contribuyendo al Fondo.

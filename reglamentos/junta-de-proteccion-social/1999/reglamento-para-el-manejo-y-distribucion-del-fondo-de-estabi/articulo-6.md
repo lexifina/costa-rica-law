@@ -1,0 +1,1 @@
+Artículo 6°-El Fondo se aplicará para el otorgamiento de premios adicionales, en efectivo o en especie, simples o acumulados, en los diferentes sorteos de loterías que realice la Junta, para cualquier tipo de lotería, sean estos sorteos ordinarios o extraordinarios.
