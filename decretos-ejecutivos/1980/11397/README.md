@@ -13,3 +13,4 @@ Crea Laboratorio Oficial Análisis Calidad y Residuos Agroquímicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1980-04-29 | la propia norma |
+| 2 | 1980-04-29 | SINALEVI (sin norma nombrada) |
