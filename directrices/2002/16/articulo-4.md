@@ -1,0 +1,1 @@
+Artículo 4°—1.a Autoridad Presupuestaria velará por el cumplimiento de las disposiciones contenidas en la presente Directriz e informara al Presidente de la República y al Ministro de Hacienda del cumplimiento del mismo.
