@@ -1,0 +1,1 @@
+ARTÍCULO 12.-Para el exterior del Estado se despacharán los correos que el Gobierno disponga, y ninguna persona puede hacerlo aún por sus negocios particulares, sino es por medio del Receptor respectivo; mas para aquellos que se despachen para los puertos, o para cualquiera otro punto en el interior del Estado, no regirá la limitación anterior.

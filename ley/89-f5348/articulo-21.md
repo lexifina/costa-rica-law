@@ -1,0 +1,1 @@
+ARTÍCULO 21.-Cuando una carta o pliego se despachare certificado, es obligado el Administrador general o Receptor a poner sobre la cubierta esta razón con el lugar y fecha, legalizada con su firma; y debe reclamar de la estafeta respectiva la cubierta con el recibo en ella misma de la persona a quien iba dirigida, y presentarla al remitente para su satisfacción.
