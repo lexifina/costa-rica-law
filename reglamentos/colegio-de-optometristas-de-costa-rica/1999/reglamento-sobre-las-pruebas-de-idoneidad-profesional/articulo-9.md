@@ -1,0 +1,1 @@
+Artículo 9º—Costos de las pruebas: Los gastos que demanden las pruebas, serán cubiertos mediante la cancelación del canon que se cobrará a los profesionales en Optometría. Los montos respectivos serán fijados por la Junta Directiva.

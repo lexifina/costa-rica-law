@@ -1,0 +1,1 @@
+Artículo 8º—Recursos: La Junta Directiva resolverá en definitiva, en el plazo de un mes, los recursos de apelación que se interpongan contra las pruebas o su evaluación. Las apelaciones deberán presentarse mediante memorial razonado en el plazo de cinco días hábiles, posteriores a la comunicación del resultado de la prueba, sea esta teórica o práctica.

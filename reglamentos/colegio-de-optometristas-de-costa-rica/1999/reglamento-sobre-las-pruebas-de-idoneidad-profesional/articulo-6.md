@@ -1,0 +1,3 @@
+Artículo 6º—Comisión Examinadora: La Junta Directiva integrará una Comisión Examinadora, que será la encargada de realizar las pruebas y estará compuesta pro tres miembros activos del Colegio, quienes deben contar con un mínimo de diez años de experiencia profesional.
+Los miembros de la Comisión serán nombrados por un período de tres años. Vencido este período, podrán ser reelectos a criterio de la Junta Directiva.
+La Junta Directiva revocará el nombramiento del miembro de la Comisión al que se le compruebe que ha incurrido en falta grave. Perderá su condición de miembro de la comisión quien falte, injustificadamente, a tres sesiones consecutivas.

@@ -1,0 +1,2 @@
+Artículo 7º—Aprobación de las pruebas: El profesional en Optometría que obtenga como mínimo setenta por ciento de la calificación en cada una de las pruebas practicadas (teóricas y prácticas) y cumpla con los restantes requisitos exigidos por la Junta Directiva será incorporado como miembro activo del Colegio.
+Si el profesional en Optometría no obtiene el porcentaje mínimo establecido en alguna de las pruebas practicadas se entenderá que las reprobó integralmente. En tal supuesto podrá presentarse a cualquier convocatoria posterior.

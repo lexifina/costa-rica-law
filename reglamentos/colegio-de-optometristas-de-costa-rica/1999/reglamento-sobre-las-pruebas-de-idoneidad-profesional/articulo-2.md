@@ -1,0 +1,1 @@
+Artículo 2º—Solicitud de incorporación: El profesional en Optometría, una vez que ha obtenido el título que lo acredita como tal, está en la obligación de incorporarse al Colegio para poder ejercer la profesión, y para ello debe haber superado las pruebas, teórica y prácticas y haber satisfecho los demás requisitos establecidos en la Ley.

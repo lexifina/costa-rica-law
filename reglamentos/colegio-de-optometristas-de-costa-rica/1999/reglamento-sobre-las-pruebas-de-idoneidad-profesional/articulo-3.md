@@ -1,0 +1,1 @@
+Artículo 3º—Formalidades: Para poder efectuar las pruebas, el profesional en optometría presentará una solicitud formal, que deberá acompañar de la constancia de pago del canon correspondiente y la documentación que indique la Junta Directiva.

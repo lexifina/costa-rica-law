@@ -1,0 +1,1 @@
+Artículo 4º—Pruebas: Las pruebas permitirán determinar el dominio de los conocimientos por parte del profesional en Optometría, así como sus destrezas, habilidades y las aptitudes mínimas que lo capaciten para el ejercicio profesional, todo esto con el fin de proteger el interés público.
