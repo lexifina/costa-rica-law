@@ -1,0 +1,15 @@
+Transitorio I.-Se llevarán a cabo las reformas necesarias al marco
+legal vigente en sus aspectos orgánicos, administrativos y regulatorios
+para la implantación de las anteriores políticas y estrategias, a fin
+de buscar la organización Gubernamental necesaria para administrar y
+controlar en mejor forma la prestación concesionada del Transporte
+Público Remunerado de Personas, solicitando a la Comisión Técnica de
+Transportes fomentar el desarrollo de esta importante actividad en sus
+diferentes modalidades, buscar el mejoramiento sustancial en la
+regulación y las mejores formas de prestación de los servicios,
+implantando incluso si fuera del caso, nuevas tecnologías para el
+transporte público que permitan mejorar la calidad de los servicios
+prestados al menor costo posible para el usuario. Para resolver lo
+anterior, se dará la reestructuración administrativa que se estime
+pertinente, conforme el artículo 3º de la ley 4786, Ley de Creación del
+Ministerio de Obras Públicas y Transportes.

@@ -1,0 +1,9 @@
+Artículo 10.-Los Bancos del Sistema Bancario Nacional prestarán la
+colaboración del caso para que las acciones de las empresas de
+Transporte Público Remunerado de Personas sean aceptadas como garantía
+colateral en las gestiones de préstamo que estas realicen para la
+renovación parcial o total de sus flotas automotores. Los Bancos del
+Sistema Bancario Nacional podrían asignar mayor cantidad de recursos a
+las líneas de crédito que son utilizadas para financiar este tipo de
+actividad, tomando en consideración la demanda por este tipo de recursos
+especialmente para los años 1999 y 2000.

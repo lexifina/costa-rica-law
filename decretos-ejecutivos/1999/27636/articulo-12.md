@@ -1,0 +1,11 @@
+Artículo 12.-Con el objeto de agilizar y hacer más eficientes los
+procedimientos administrativos relativos a la actividad del transporte
+remunerado de personas en vehículos automotores de superficie, el
+Ministerio de Obras Públicas y Transportes privatizará todos aquellos
+estudios y servicios administrativos complementarios necesarios para la
+adecuada planeación, regulación, control y vigilancia de la referida
+actividad , para el logro de los objetivos y propósitos básicos que el
+MOPT pretende llevar a cabo en el proceso de modernización de la
+referida actividad, para lo que se abrirá el correspondiente registro
+de oferentes que se establezca o utilizando personas u organismos que
+puedan contratar con el Estado en forma directa de acuerdo a la Ley.

@@ -1,0 +1,7 @@
+Artículo 7º-Las Cámaras y Asociaciones de Transporte del país
+podrán organizarse para contribuir con las empresas asociadas que se
+sometan a este proceso, para cumplir con los requisitos aquí detallados.
+Aquéllas empresas que no pertenezcan a ninguna Cámara o Asociación de
+Transporte, o deseen presentar la información directamente, lo podrán
+hacer también, mientras se cumpla con la totalidad de requisitos
+exigidos.
