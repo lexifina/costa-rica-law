@@ -1,0 +1,4 @@
+6. Reinserción laboral
+En materia de reinserción laboral, la institución estará acorde con lo establecido en el artículo 89 del Reglamento a la Ley 7600, el cual señala lo siguiente:
+"Las instituciones públicas cubiertas por el Régimen de Servicio Civil, estarán obligadas a reinsertar a aquel servidor regular que por fuerza mayor o cualquier otro riesgo del trabajo, adquiera una discapacidad que afecte su idoneidad en el desempeño de su puesto, ya sea adaptándole el entorno, reubicándola, trasladándola o reasignándola en descenso, con su consecuente indemnización, dentro de la organización del Estado.
+En caso de que exista imposibilidad total de llevar a cabo lo anterior, se procederá con el pago de prestaciones, todo ello tomando en cuenta las disposiciones de la Ley de Riesgos del Trabajo en lo que sea competente."

@@ -1,0 +1,3 @@
+7. Relaciones laborales
+Los grupos de apoyo técnico de los diferentes centros de trabajo de la Institución, que durante alguna de las etapas de su proceso de trabajo, detecten algún tipo de desigualdad o inconsistencia en el trato y/o condiciones del contexto laboral en el que se desempeña el funcionario(a) con alguna discapacidad, deberá comunicar de inmediato por escrito de la situación detectada, a la autoridad correspondiente.
+Una vez conocido este resultado por parte de la autoridad correspondiente, ésta deberá tomar las medidas y brindar la ayuda técnica respectiva e informar de lo actuado al Área de Relaciones Laborales de la Dirección Corporativa de Recursos Humanos en Oficinas Centrales.
