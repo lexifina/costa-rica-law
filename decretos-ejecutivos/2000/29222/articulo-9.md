@@ -1,0 +1,1 @@
+Artículo 9º—El Premio consistirá en una dotación económica en colones, equivalente a $25.000,00 (veinticinco mil dólares). El Ministerio de Cultura, Juventud y Deportes, hará las gestiones presupuestarias pertinentes a efecto de dar contenido económico al citado premio y para los otros gastos que se generen, estatuilla, anuncios, gastos de ceremonia.

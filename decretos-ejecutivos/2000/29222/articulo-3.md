@@ -1,0 +1,1 @@
+Artículo 3º—Las propuestas para otorgar el premio sólo podrán ser presentadas al jurado por sus miembros, los jefes de las misiones diplomáticas de Costa Rica, Los Presidentes de los Poderes del Estado y los Ministros de Gobierno.
