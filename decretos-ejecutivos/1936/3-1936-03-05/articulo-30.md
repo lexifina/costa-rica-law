@@ -1,0 +1,2 @@
+Artículo XXX
+Si un italiano deja bienes en Costa Rica, o un costarricense los deja en Italia y la Autoridad territorial estime que el valor de ellos es inferior en Italia a la suma de 1,500 liras y en Costa Rica a la de ¢500.00, el Cónsul General, Cónsul, Vicecónsul o Agente Consular, podrá hacerse entregar estos bienes. El solo se encargará de la liquidación de la sucesión pero no podrá enviar el saldo fuera del Estado de residencia, sino hasta después de haber cancelado el pasivo de dicha sucesión y efectuado el pago de todas las tasas que se debieren.

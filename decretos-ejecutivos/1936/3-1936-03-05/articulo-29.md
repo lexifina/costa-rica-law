@@ -1,0 +1,2 @@
+Artículo XXIX
+Las disposiciones del Artículo XXVIII serán aplicables cuando ciudadanos de uno de los Estados Contratantes, ausentes o incapaces, y no representados, estén interesados en una sucesión abierta en el territorio del otro Estado, cualquiera que sea la nacionalidad del de "cujus". Pero la intervención consular no será admitida desde el momento en que todos los interesados en la sucesión pertenecientes a la nacionalidad del Estado que ha nombrado el Agente, estuvieren presentes o representados.

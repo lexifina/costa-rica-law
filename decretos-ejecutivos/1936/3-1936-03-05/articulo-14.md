@@ -1,0 +1,3 @@
+Artículo XIV
+Los funcionarios consulares están obligados, a indicación de las Autoridades Judiciales del País en el cual ejerzan sus funciones, a responder como testigos en juicio. Los Jefes de las Oficinas Consulares de carrera podrán, en caso de impedimento por causa de necesidades del servicio, rendir sus declaraciones en la Sede de los Consulados dentro del término fijado por la Autoridad Judicial.
+En este caso, el interrogatorio tendrá lugar en la forma prevista por las leyes locales. Los funcionarios consulares podrán rehusar declarar sobre los hechos que tienen atingencia con el ejercicio de sus funciones.

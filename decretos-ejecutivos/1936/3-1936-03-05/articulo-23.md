@@ -1,0 +1,4 @@
+Artículo XXIII
+Dentro de los seis meses siguientes a la fecha en que el funcionario consular haya recibido el aviso previsto por el artículo XXII, el funcionario mismo organizará la tutela o la curátela de conformidad con las leyes de la Parte que lo ha nombrado y hará conocer a la Autoridad local el nombre del tutor o del curador escogido.
+Si se tratare de tutela o curátela para organizarse a consecuencia de una interdicción, el término será de un año, y, antes de finalizar este lapso, deberá darse noticia de la disposición a la Autoridad local.
+Si el funcionario consular no cumpliere con estas disposiciones, o si declarare que no organizará la tutela o la curátela, la Autoridad local procederá ella misma a la organización, administración y a la vigilancia de la tutela o de la curátela, de conformidad con sus propias leyes.

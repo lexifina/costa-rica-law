@@ -1,0 +1,7 @@
+Artículo XXXIV
+Cuando una nave que lleva la bandera de una de las Altas Partes Contratantes naufragare o si encallare sobre las costas de la otra Alta Parte Contratante, las Autoridades locales deberán llevar el hecho a conocimiento del Cónsul General, Cónsul o Vicecónsul.
+En ausencia del funcionario consular y hasta la llegada de éste o de la persona que delegue para ese fin, las Autoridades locales deberán tomar todas las medidas para la protección de las personas y la conservación de los objetos salvados del naufragio.
+Todas las operaciones relativas al salvamento de las naves a que los párrafos anteriores se refieren, serán dirigidas por los Cónsules Generales, Cónsules o Vicecónsules del País del cual la nave lleva la bandera.
+La intervención de las Autoridades locales se limitará solamente a prestar su asistencia a los funcionarios consulares o a sus delegados, para mantener el orden, garantizar los intereses de los salvadores extranjeros para la entrada y la salida de las mercaderías salvadas y para salvaguardar los intereses generales de la navegación.
+La intervención de las Autoridades locales en estos diversos casos no dará motivo al pago de derechos de ninguna clase, excepto aquellos que hayan sido necesarios a consecuencia de las operaciones de salvamento y para la conservación de los objetos salvados, así como los que hubieren sido aplicados a las naves nacionales en casos análogos.
+Las mercaderías y los efectos salvados no serán sujetos al pago de ningún derecho de aduanas a menos que fueren destinados para el consumo interno.
